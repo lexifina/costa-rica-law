@@ -14,3 +14,4 @@ Reglamento para la Regulación de la aprobación Interna de las Contrataciones d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-15 | la propia norma |
+| 2 | 2014-07-14 | Reglamento municipal 337 (2014-07-14) |
