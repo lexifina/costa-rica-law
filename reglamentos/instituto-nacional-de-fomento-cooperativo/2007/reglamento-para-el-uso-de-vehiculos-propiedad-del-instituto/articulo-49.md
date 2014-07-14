@@ -1,4 +1,1 @@
-Artículo 49.—Este Reglamento entrará a regir a partir de su publicación en el Diario Oficial La Gaceta.
-Revisado y aprobado por Junta Directiva en sesión Nº 3675, artículo 2, inciso 3.4, celebrada el 26 de octubre del 2007, aprobado por la Contraloría General de la República en oficio Nº 14235.
-San José, 18 de febrero del 2008
-(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 50 al 49, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+Artículo 49.- .-(Nota de Sinalevi: El texo del presente numeral debe consultarse en el numeral 46. Lo anterior debido a que en la publicación en La Gaceta N° 134 del 14 de julio del 2014, se ordena derogar los numerales 4, 5 y 38 y correr la numeración de los restantes.

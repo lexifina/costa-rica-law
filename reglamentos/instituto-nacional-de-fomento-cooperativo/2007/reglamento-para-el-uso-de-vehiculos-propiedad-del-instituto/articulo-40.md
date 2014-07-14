@@ -1,7 +1,4 @@
-Artículo 40.—Todo funcionario autorizado para conducir vehículos del INFOCOOP, debe cumplir con las siguientes disposiciones:
-a) Conducir responsablemente.
-b) Cumplir con todas las obligaciones que establece la Ley de Tránsito por Vías Públicas Terrestres, el presente Reglamento y el Manual sobre Normas Técnicas de Control Interno Relativas al Uso Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República.
-c) Informar por la vía más expedita sobre cualquier accidente o colisión en que se haya visto involucrado, acatando lo estipulado en el capítulo VI “De los accidentes de tránsito en que intervienen los vehículos del INFOCOOP”.
-Llenar y revisar, junto con el funcionario designado por el Administrativo Financiero(*), el formulario editado para el control del estado de los vehículos, sus accesorios e implementos, verificando que se cumpla con lo que dispone la sección V de la Ley de Tránsito; tanto a la entrada como en la salida del vehículo.
-(*)(Así reformado el inciso anterior mediante sesión N° 3831 del 25 de junio del 2011)
-(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 41 al 40, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+Artículo 40.-El Administrativo Financiero(*) es la dependencia encargada a nivel Institucional de velar porque se cumplan las disposiciones contenidas en este Reglamento. Sin perjuicio de las acciones que en mismo sentido, realicen los Gerente respectivo(*).
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 44 al 43, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+(Así modificada su numeración mediante publicación en La Gaceta N° 134 del 14 de julio del 2014, que lo traspasó del antiguo artículo 43 al 40, lo anterior ya que en dicha sesión se ordena eliminar los numerales 4, 5 y 38 originales y correr la numeración de los artículos restantes)

@@ -1,3 +1,6 @@
-Artículo 12.—Para lograr el mayor aprovechamiento de los vehículos de uso administrativo, podrán agruparse en el mismo viaje, cuando las circunstancias lo permitan, a los funcionarios que requieran viajar hacia el mismo sitio o ruta. En estos casos se dará aviso oportunamente a los interesados para lograr una adecuada coordinación.
-Para el logro de lo anterior, las distintas dependencias de la institución deberán presentar ante el Administrativo Financiero(*) , la programación de uso de vehículos de la semana siguiente. Dicha programación debe presentarse formalmente el día viernes antes de las 15:00 horas.
+CAPÍTULO II
+Responsabilidades del Administrativo Financiero(*)
+(Así reformado el capítulo anterior mediante sesión N° 3831 del 25 de junio de 2011)
+Artículo 12.-La dirección y responsabilidad de los servicios de transporte estará a cargo del Administrativo Financiero(*).
 (*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+(Así modificada su numeración mediante publicación en La Gaceta N° 134 del 14 de julio del 2014, que lo traspasó del antiguo artículo 14 al 12, lo anterior ya que en dicha sesión se ordena eliminar los numerales 4 y 5 originales y correr la numeración de los artículos restantes)

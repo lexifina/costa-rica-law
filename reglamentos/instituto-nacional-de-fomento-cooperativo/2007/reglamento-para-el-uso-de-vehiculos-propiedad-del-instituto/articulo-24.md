@@ -1,12 +1,14 @@
-CAPÍTULO V
-De los usuarios de los servicios de transporte
-Deberes y responsabilidades
-Artículo 24.—Responsabilidades del funcionario y acompañantes. Son deberes de los usuarios de los servicios de transporte que presta la Institución:
-a) Conocer y cumplir con las disposiciones que establece la Ley de Tránsito por Vías Públicas Terrestres, el presente Reglamento y el Manual sobre Normas Técnicas de Control Interno Relativas al Uso Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República.
-b) Portar la licencia o identificación que los acredita como funcionarios de esta Institución, mientras viaja en vehículos del INFOCOOP, salvo el caso de particulares autorizados.
-c) Hacer uso de los servicios de transporte que presta la Institución, en situaciones justificadas y por razón del desempeño de las labores propias de la Institución.
-d) Mantener una posición de respeto para las otras personas que viajan dentro del vehículo y las que se encuentran fuera de él.
-e) Reportar al encargado de conducir el vehículo o al Administrativo Financiero(*), cualquier irregularidad que observe en el transcurso del servicio, ya fuere en el vehículo o en cumplimiento del presente Reglamento.
-(*) (Así reformado el inciso anterior mediante sesión N° 3831 del 25 de junio del 2011)
-Respetar las decisiones adoptadas por el conductor del vehículo, en el tanto se ajuste a la normativa vigente.
-(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 25 al 24, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+CAPÍTULO VI
+De los accidentes de tránsito en que intervienen
+los vehículos del INFOCOOP
+Artículo 24.-Cobertura de seguros. Como protecciones que la Institución otorga a todos sus funcionarios durante el ejercicio de sus labores están las siguientes:
+a) Riesgos del trabajo: Todos los conductores de la Institución están amparados por la póliza del seguro contra riesgos del trabajo.
+b) Vehículos: Las unidades de transporte de la Institución estarán aseguradas por:
+i. Responsabilidad civil por lesión o muerte de personas.
+ii. Responsabilidad civil por daños a la propiedad de terceros.
+iii. Colisión y vuelco.
+iv. Cobertura por robo o hurto.
+v. Incendio y rayo.
+Combinación de riesgos adicionales.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 27 al 26, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+(Así modificada su numeración mediante publicación en La Gaceta N° 134 del 14 de julio del 2014, que lo traspasó del antiguo artículo 26 al 24, lo anterior ya que en dicha sesión se ordena eliminar los numerales 4 y 5 originales y correr la numeración de los artículos restantes)

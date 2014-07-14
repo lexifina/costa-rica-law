@@ -1,1 +1,1 @@
-Artículo 50.—(Nota de Sinalevi: El texto de este artículo puede consultarse en el numeral 49. Lo anterior ya que en sesión N° 3831 del 25 de junio de 2011, se ordena eliminar el numerla 16 original y correr la numeración de los restante artículos)
+Artículo 50.- .-(Nota de Sinalevi: El texo del presente numeral debe consultarse en el numeral 47. Lo anterior debido a que en la publicación en La Gaceta N° 134 del 14 de julio del 2014, se ordena derogar los numerales 4, 5 y 38 y correr la numeración de los restantes.

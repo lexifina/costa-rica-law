@@ -1,4 +1,4 @@
-CAPÍTULO VIII
-Disposiciones finales
-Artículo 42.—Es responsabilidad de todo funcionario que conduzca vehículos de la Institución, el acatamiento obligatorio de lo establecido en el presente Reglamento.
-(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 43 al 42, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+Artículo 42.-Cualquier discrepancia que pudiere presentarse en cuanto a la interpretación o aplicación de este Reglamento, a las atribuciones y jurisdicción del Gerente Administrativo Financiero(*), será resuelta en última instancia por la Junta Directiva.
+(*)(Así reformado en sesión N° 3831 del 25 de junio de 2011)
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 46 al 45, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+(Así modificada su numeración mediante publicación en La Gaceta N° 134 del 14 de julio del 2014, que lo traspasó del antiguo artículo 45 al 42, lo anterior ya que en dicha sesión se ordena eliminar los numerales 4, 5 y 38 originales y correr la numeración de los artículos restantes)

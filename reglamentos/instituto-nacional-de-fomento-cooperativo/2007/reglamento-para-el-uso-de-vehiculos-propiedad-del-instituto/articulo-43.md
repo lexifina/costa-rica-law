@@ -1,3 +1,3 @@
-Artículo 43.—El Administrativo Financiero(*) es la dependencia encargada a nivel Institucional de velar porque se cumplan las disposiciones contenidas en este Reglamento. Sin perjuicio de las acciones que en mismo sentido, realicen los Gerente respectivo(*).
-(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
-(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 44 al 43, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+Artículo 43.-Las facilidades o ventajas que presente para los funcionarios o servidores la utilización de vehículos institucionales, no se entenderán como parte del salario para todos los efectos laborales.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 47 al 46, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+(Así modificada su numeración mediante publicación en La Gaceta N° 134 del 14 de julio del 2014, que lo traspasó del antiguo artículo 46 al 43, lo anterior ya que en dicha sesión se ordena eliminar los numerales 4, 5 y 38 originales y correr la numeración de los artículos restantes)

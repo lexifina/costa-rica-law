@@ -1,9 +1,8 @@
-Artículo 25.—Ningún funcionario (acompañante de la gira o visitante) está autorizado para:
-a) Exigir al conductor a continuar operando el vehículo cuando se vea en la necesidad de detener la marcha debido a un posible desperfecto mecánico.
-b) Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida en la zona. En el primer caso no podrá aducirse urgencia en el servicio.
-c) El funcionario(s) que es acompañante en la gira no tiene derecho a exigir al conductor que circule por lugares que no tiene relación con el lugar o con la finalidad de la gira.
-d) Cuando los ocupantes de un vehículo realicen paradas en horas de desayuno, almuerzo o comida, deberán evitar estacionar el vehículo frente a expendios de licor u otro lugar que pueda menoscabar la función que se realiza.
-e) En general, ningún funcionario tendrá autoridad para obligar al conductor a violar el presente Reglamento o las leyes vigentes.
-f) Viajar en estado de ebriedad, drogas o estupefacientes.
-Causar daños o destrozos al vehículo en que viaje.
-(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 26 al 25, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+Artículo 25.-Trámites en caso de accidente. En caso de accidente, el funcionario conductor del vehículo de uso administrativo o discrecional, si está en condiciones físicas de hacerlo, debe reportar ante el Gerente Administrativo Financiero(*) lo sucedido y presentar durante las veinticuatro horas siguientes o en el breve plazo posible, según las circunstancias, la denuncia ante el Instituto Nacional de Seguros (INS). Caso contrario se designará un responsable para cumplir con este trámite.
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+En caso de accidente, el funcionario autorizado que conduce un vehículo de la Institución no deberá aceptar arreglos extrajudiciales, por lo que se limitará a indicarle al particular que se apersone o comunique con el Administrativo Financiero(*).
+(*)(Así reformado mediante sesión N° 3831 del 25 de junio del 2011)
+Tampoco deberá hacer manifestaciones a ninguna otra autoridad que no sea la judicial, salvo la información que le solicite la autoridad de Tránsito.
+En todo caso deberá cumplir con el procedimiento establecido en el artículo siguiente.
+(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 28 al 27, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+(Así modificada su numeración mediante publicación en La Gaceta N° 134 del 14 de julio del 2014, que lo traspasó del antiguo artículo 6 al 4, lo anterior ya que en dicha sesión se ordena eliminar los numerales 27 al 25 originales y correr la numeración de los artículos restantes)

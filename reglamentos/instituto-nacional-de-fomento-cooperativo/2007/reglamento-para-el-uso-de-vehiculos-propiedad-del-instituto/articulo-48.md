@@ -1,2 +1,1 @@
-Artículo 48.—Se deroga el Reglamento aprobado por la Junta Directiva del INFOCOOP en sesión Nº 3.105 del 26 de noviembre del 2001, así como cualquier otra disposición reglamentaria que se le opusiere.
-(Corrida la numeración mediante sesión N° 3831 del 25 de junio de 2011, que lo traspaso del antiguo artículo 49 al 48, lo anterior ya que en dicha sesión se ordena eliminar el numeral 16 original y correr la numeración de los restante artículos)
+Artículo 48.-(Nota de Sinalevi: El texo del presente numeral debe consultarse en el numeral 45. Lo anterior debido a que en la publicación en La Gaceta N° 134 del 14 de julio del 2014, se ordena derogar los numerales 4, 5 y 38 y correr la numeración de los restantes.
