@@ -1,1 +1,0 @@
-Artículo 15.- Deróganse las Directrices Presidenciales No. 013-H, publicada en el Alcance Digital No. 13-A a La Gaceta No. 45 de 4 de marzo de 2011 y sus reformas y No. 022-H, publicada en el Alcance Digital No. 61 a La Gaceta No. 174 de de 9 de setiembre de 2011.
