@@ -1,0 +1,1 @@
+Artículo 10.—Requerimientos de información para mejor resolver. Durante el trámite de aprobación, la Aresep podrá formular al CTP los requerimientos de información adicionales que estime necesarios, para el análisis del proyecto de cánones de regulación. Las respuestas formarán parte del expediente administrativo y serán de acceso público.

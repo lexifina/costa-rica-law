@@ -1,0 +1,2 @@
+Artículo 15.—Cumplimiento del principio del servicio al costo. El CTP en el ámbito de aplicación conforme artículo 2 del presente Reglamento deberá, durante las etapas de cálculo, ejecución y liquidación del canon, cumplir con el principio del servicio al costo tal y como lo prevé el artículo 25 de la Ley Nº 7969.
+No se podrán cobrar ni destinar montos recaudados por concepto de cánones de regulación para objetivos distintos a los que justificaron su aprobación.

@@ -1,0 +1,1 @@
+Artículo 13.—Comunicación de lo resuelto. La Aresep comunicará mediante resolución al CTP el resultado de la solicitud de aprobación a más tardar el último día hábil de agosto del año correspondiente.
