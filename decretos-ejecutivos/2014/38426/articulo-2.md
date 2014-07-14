@@ -1,0 +1,1 @@
+Artículo 2°.—Las instituciones del Sector Público y del Sector Privado, podrán contribuir en la medida de sus posibilidades, a la realización anual y por ende a la conservación de esta importante tradición cultural liberiana y guanacasteca.
