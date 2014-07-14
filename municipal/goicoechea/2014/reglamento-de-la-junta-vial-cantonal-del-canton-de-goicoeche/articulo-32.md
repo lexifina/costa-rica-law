@@ -1,0 +1,1 @@
+Artículo 32.—Las Actas de la Junta Vial deberán ser aprobadas en la siguiente sesión ordinaria, estando habilitados para deliberar y aprobarlas. Serán firmadas por el (la) Presidente(a) y el (la) Secretario(a), así como por los miembros que en la sesión respectiva mostraran su voto disidente respecto de algún acuerdo adoptado.

@@ -1,0 +1,3 @@
+De la destitución de los miembros
+Artículo 12.—Será causal de destitución de los miembros el incumplimiento de las funciones del cargo, la inobservancia de los deberes como funcionario(a) público, o la ausencia injustificada a tres sesiones consecutivas o seis alternas en el plazo de un año calendario, sino existe una justificación real y documentada con respecto a las ausencias señaladas, previa comunicación que al efecto hará la Junta Vial al Concejo Municipal.
+Tal procedimiento no será aplicable al Alcalde o Alcaldesa Municipal, pero sí cuando el que ejerce la presidencia de este órgano es un representante de la Alcaldía, por lo que el Alcalde o Alcaldesa deberá proceder a realizar la respectiva sustitución del representante destituido.

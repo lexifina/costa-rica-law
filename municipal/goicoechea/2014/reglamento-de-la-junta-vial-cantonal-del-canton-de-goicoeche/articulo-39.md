@@ -1,0 +1,2 @@
+Del seguimiento y evaluación de la gestión vial
+Artículo 39.—El MOPT pondrá a disposición de las municipalidades el SIGVI o su equivalente, como herramienta estandarizada y ágil para la evaluación, planificación y programación de sus proyectos. La Junta Vial Cantonal deberá realizar el seguimiento y la evaluación de los planes anuales y quinquenales apoyándose en la información del Sistema de Gestión Vial de la Municipalidad.
