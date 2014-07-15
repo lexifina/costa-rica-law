@@ -1,0 +1,3 @@
+Artículo 11.—Sanciones administrativas
+11.1 Una vez que se tenga establecido que un plaguicida microbiológico no cumpla con la norma de calidad declarada en el registro, se ordenará al registrante la destrucción del producto o cualquier otra medida técnicamente pertinente a juicio de la Administración.
+11.2 La orden de destrucción corresponderá a todos los lotes que salgan fuera de norma, por lo que el producto que se encuentre en esas condiciones, se procederá inmediatamente con su retención y posterior destrucción, la cual correrá por parte del registrante y bajo supervisión técnica de un funcionario del SFE debidamente acreditado.
