@@ -1,0 +1,1 @@
+Artículo 5º—Rectifíquese la indexación literal del último inciso del artículo 14, del Decreto Ejecutivo N° 26683-SP, del 10 de febrero de 1998, publicado en La Gaceta N° 40 del 26 de febrero de 1998, para que en lugar de la letra “I”, se lea correctamente la letra “H”.

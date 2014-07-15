@@ -1,0 +1,1 @@
+Artículo 3º—Rectifíquese la enumeración de los capítulos del Decreto Ejecutivo N° 26683-SP, del 10 de febrero de 1998, publicado en La Gaceta N° 40 del 26 de febrero de 1998, después del “Artículo 3”, para que su numeración romana conforme el orden consecutivo que corresponde, se lea correctamente de la siguiente manera: “III”, “IV”, “V”.
