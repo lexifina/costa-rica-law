@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese el Decreto Ejecutivo Nº 32650-S del 18 de julio del 2005, “Manual de Normas para el Tratamiento de Cáncer en Costa Rica.” Vigente desde el 14 de octubre del 2005, publicado en La Gaceta Nº 198 del 14 de octubre del 2005, Alcance 38a.
