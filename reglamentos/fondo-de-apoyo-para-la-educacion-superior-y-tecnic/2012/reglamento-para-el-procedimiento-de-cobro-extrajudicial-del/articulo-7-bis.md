@@ -1,0 +1,3 @@
+Artículo 7 bis—Del cobro administrativo y judicial. En el caso en que el prestatario, tengo un día o más días sin que haya efectuado el pago de su obligación, la cuenta entrará en forma automática en cobro administrativo y se mantendrá en esa condición durante cuatro meses.
+Será el departamento de cobro del Fondo, el encargado de hacer el diligenciamiento necesario para que el prestatario ponga la cuenta al día o suscriba un arreglo de pago. En todo caso el prestatario deberá cancelar todos los gastos administrativos en que incurra el Fondo en el proceso de cobro administrativo. Cumplido el plazo indicado, se inmediato se pasará la cuenta a cobro judicial.
+(Así adicionado mediante sesión ordinaria N° 7-2014 publicada en La Gaceta N° 199 del 16 de octubre del 2014)

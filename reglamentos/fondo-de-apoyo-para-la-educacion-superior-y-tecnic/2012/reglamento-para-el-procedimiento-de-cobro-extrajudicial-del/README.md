@@ -14,3 +14,4 @@ Reglamento para el procedimiento de cobro extrajudicial del Fondo de Apoyo para 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-17 | la propia norma |
+| 2 | 2014-07-15 | Reglamento 7 (2014-07-15) |

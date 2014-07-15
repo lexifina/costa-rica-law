@@ -1,5 +1,8 @@
-Artículo 5º—Procedimiento para la cancelación total de una obligación que se ejecuta en cobro judicial o bien que se haya entregado a los abogados externos del Fondo para su ejecución: La obligación que se encuentra en cobro judicial tendrá los siguientes rubros, los cuales deben ser cancelados en su totalidad:
-1. Gastos administrativos: Serán los que el Fondo designe, los cuales corresponden a gastos de papelería, certificaciones, timbres, peritajes, insumos utilizados para lograr interponer la demanda con todos sus requisitos ante la autoridad judicial correspondiente, además de los gastos propios de un proceso judicial que se manifiesten en el transcurso de su ejecución.
-2. Honorarios del abogado externo responsable: Serán cobrados de conformidad con lo establecido en el Decreto Ejecutivo vigente del Arancel de Honorarios por Servicios Profesionales de Abogacía y notariado, por los abogados externos del Fondo.
-3. Capital: Corresponde al monto adeudado por concepto del subsidio entregado por el Fondo.
-4. Intereses: Corresponde a los intereses generados del Capital hasta la fecha del pago efectivo de la totalidad de la obligación.
+Artículo 5º—Se entenderá que una obligación está al día, cuando luego de haber entrado en el proceso de cobro administrativo o judicial, se hayan cancelado los siguientes rubros:
+1. Gastos administrativos: Serán los que el Fondo designe y detalle según la gestiones realizadas y que deben constar en el expediente.
+2. Costas procesales y personales en caso de cobro judicial, según lo fija el ordenamiento jurídico
+3. Intereses: Corresponde a los intereses generados del capital hasta la fecha del pago efectivo de la totalidad de la obligación adeuda.
+4. Capital: Corresponde al monto adeudado por concepto del préstamo otorgado por el Fondo.
+5. Pólizas: Seguros de saldos deudores, que se utilizan como garantía de la obligación
+6. Y cualquier otro gasto que tuvo el Fondo con el fin de normalizar el pago de la obligación.
+(Así reformado mediante sesión ordinaria N° 7-2014 publicada en La Gaceta N° 199 del 16 de octubre del 2014)
