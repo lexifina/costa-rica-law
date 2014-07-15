@@ -14,3 +14,4 @@ Reglamento de Financiamiento de Becas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-28 | la propia norma |
+| 2 | 2014-07-15 | Reglamento 7 (2014-07-15) |
