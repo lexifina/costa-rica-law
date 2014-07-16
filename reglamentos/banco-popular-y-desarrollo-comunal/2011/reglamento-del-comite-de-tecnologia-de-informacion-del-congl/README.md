@@ -15,3 +15,4 @@ Reglamento del Comité de Tecnología de información del Conglomerado Financier
 | --- | --- | --- |
 | 1 | 2011-08-21 | la propia norma |
 | 2 | 2013-12-04 | Reglamento 5126 (2013-12-04) |
+| 3 | 2014-07-16 | Reglamento 5193 (2014-07-16) |
