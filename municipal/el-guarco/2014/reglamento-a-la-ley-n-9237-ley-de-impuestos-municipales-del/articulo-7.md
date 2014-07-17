@@ -1,0 +1,6 @@
+CAPÍTULO III
+Requisitos para otros procedimientos especiales
+en materia de licencias municipales
+Artículo 7º—Traslado del lugar de la licencia. De acuerdo al artículo 27 de la Ley de Impuestos Municipales del Cantón de El Guarco, N° 9237, las licencias municipales autorizadas podrán ser trasladas del sitio en donde fueron otorgadas, lo anterior previo a la presentación de todos los requisitos generales establecidos en el artículo 3° del presente reglamento, así como los requisitos especiales establecidos en el artículo 4° del presente reglamento, y los requisitos extraordinarios establecidos en el artículo 5° de este reglamento, de acuerdo a las condiciones y características propias de la actividad de que se trate.
+Así mismo deberá aportar el certificado original de la licencia. De no poderse presentar tal certificado el administrado deberá indicarlo mediante una nota explicando el extravío.
+Si la actividad comercial además requería de una licencia para el expendio de bebidas con contenido alcohólico, se deberá tramitar una nueva licencia, de acuerdo a lo indicado en la Ley para la Regulación y Comercialización de Bebidas con Contenido Alcohólico N° 9047 así como el Reglamento de la Municipalidad de El Guarco a dicha ley, publicado La Gaceta N° 82 del miércoles 30 de abril del 2014, y ratificado en La Gaceta N° 105 del 3 de junio del 2014.

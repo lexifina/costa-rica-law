@@ -1,0 +1,1 @@
+Artículo 15.—Trámite de devolución de mercaderías. La mercaderías decomisadas por la Municipalidad de El Guarco, podrán ser devueltas a los interesados, de conformidad con lo establecido en los artículos 71 y 72 de la Ley de Impuestos Municipales del Cantón de El Guarco, N° 9237.

@@ -1,0 +1,1 @@
+Artículo 2º—Ambito de aplicación de este reglamento. Este Reglamento será aplicado a todas las personas físicas y/o jurídicas que realicen actividades productivas y/o lucrativas y que requieran para ello licencia municipal en el cantón de El Guarco, de acuerdo a lo establecido por la ley de Impuestos Municipales del Cantón de El Guarco, número 9237.

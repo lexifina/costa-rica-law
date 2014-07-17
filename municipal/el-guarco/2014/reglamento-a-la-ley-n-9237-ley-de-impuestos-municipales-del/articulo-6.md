@@ -1,0 +1,13 @@
+Artículo 6º—Requisitos y condiciones para el otorgamiento de licencias para el uso de rótulos, anuncios y vallas publicitarias. Todas las solicitudes para los trámites de obtención de licencias para el uso de rótulos, anuncios y vallas publicitarias, deberán contener los siguientes requisitos generales:
+a) Solicitud por escrito o en su lugar el formulario debidamente lleno, que proveerá al efecto la Municipalidad.
+b) Timbres fiscales por un valor de ciento veinticinco colones, por cada licencia municipal solicitada.
+c) Cédula de identidad o cédula de residencia permanente del solicitante y del propietario del inmueble.
+d) Si se trata de personas jurídicas deberán aportar copia de la cédula de identidad del apoderado, así como la certificación de personería jurídica, con no más de 1 mes de emitida si es realizada por Notario Público, o bien, por el plazo de vigencia que indique la certificación, si es emitida por el Registro Nacional.
+e) Estudio de registro de la propiedad emitido por el Registro Nacional, por el plazo de vigencia que indique la certificación, o bien certificado por un Notario Público, con no más de 1 mes de emitido.
+f) Plano catastrado.
+g) Si el inmueble donde se ubicara el rotulo, anuncio o valla publicitaria es alquilado, se deberá presentar el contrato de arrendamiento. De igual manera si la propiedad es prestada, además deberá adjuntar una nota original firmada por el propietario registral de la propiedad en donde indica su conformidad de prestarle el inmueble.
+h) Autorización del Departamento de Desarrollo Urbano, para la publicidad exterior.
+i) Estar al día en el pago de todos los tributos y obligaciones municipales.
+j) Para los rótulos, anuncios o vallas publicitarias con estructuras complejas o por tener más de seis metros cuadrados de área de publicidad, se requiere el plano constructivo, además deberá aportar una póliza de seguros para cubrir daños a terceros.
+Todos los documentos requeridos en este artículo se deberán presentar mediante copia certificada por Notario Público con no más de un mes de emitida, o bien, copia simple y original para su cotejo. Así mismo, cuando para el trámite de otorgamiento de una licencia se requiere presentar más de una declaración jurada, se puede presentar en un mismo documento.
+Cuando un permiso u autorización de los solicitados en este artículo, esté condicionado a plazo fijo, el vencimiento de éste, obliga al interesado a presentar de nuevo el permiso o autorización a esta Municipalidad, una vez que le haya sido renovado o vuelto a otorgar, bajo pena de ser sancionado de acuerdo con el artículo 81 bis del Código Municipal.
