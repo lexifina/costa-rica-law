@@ -14,3 +14,4 @@ Reglamento para el manejo integral de los residuos sólidos en el cantón de Cur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-25 | la propia norma |
+| 2 | 2014-07-17 | Reglamento municipal 220 (2014-07-17) |
