@@ -1,0 +1,1 @@
+Artículo 20.—El interesado dispondrá de los recursos administrativos previstos en el ordenamiento, debiendo interponerlos antes la Alcaldía Municipal, en los tres días siguientes a la notificación de la Resolución Administrativa de la Alcaldía Municipal de Jiménez.

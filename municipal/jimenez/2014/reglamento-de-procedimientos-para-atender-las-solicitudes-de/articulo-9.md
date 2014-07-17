@@ -1,0 +1,1 @@
+Artículo 9º—La donación del área privada requerida para el camino, debe ser aceptada y acordada por el Concejo Municipal de Jiménez, para utilizarse como calle pública de la red vial cantonal; para lo cual se tomará un acuerdo en firme del Concejo Municipal aceptando estudios técnicos legales manifestados en la resolución dada por la UTGVM.

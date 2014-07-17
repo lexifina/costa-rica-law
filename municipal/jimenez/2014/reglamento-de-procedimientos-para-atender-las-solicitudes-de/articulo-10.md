@@ -1,0 +1,1 @@
+Artículo 10.—En caso de requerirse ampliar el ancho del camino para establecerlo conforme a derecho, deben los propietarios de los inmuebles colindantes con la vía, realizar las donaciones de las franjas de terreno correspondientes.

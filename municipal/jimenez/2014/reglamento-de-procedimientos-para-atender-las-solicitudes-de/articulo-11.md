@@ -1,0 +1,1 @@
+Artículo 11.—Aceptadas las donaciones de terrenos para constituir el camino público por el Concejo Municipal de Jiménez, se facultará por acuerdo a la Alcaldía Municipal para firmar la escritura de donación.

@@ -1,0 +1,1 @@
+Artículo 14.—La Alcaldía Municipal de Jiménez analizará el cumplimiento de los requisitos establecidos en el artículo anterior y confeccionará el expediente administrativo de la gestión, y lo trasladará a la Unidad Técnica de Gestión Vial Municipal para que elabore los estudios previos de la vía.

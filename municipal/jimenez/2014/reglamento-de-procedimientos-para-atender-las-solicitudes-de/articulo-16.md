@@ -1,0 +1,1 @@
+Artículo 16.—En los casos de las solicitudes de reaperturas de vías públicas la Alcaldía Municipal, una vez estudiados los informes y la resolución administrativa emitida por la Unidad Técnica de Gestión Vial Municipal al respecto, dictará el acto inicial del caso y acordará el nombramiento del Órgano Director del debido Proceso.
