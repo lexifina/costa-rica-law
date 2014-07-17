@@ -1,0 +1,4 @@
+Artículo 22. Naturaleza del préstamo.
+La morosidad es determinada por la naturaleza del préstamo:
+1. Sala: corresponden a documentos de reserva, textos de uso cotidiano en las diferentes materias impartidas y obras auxiliares que cada profesor señala como material necesario para consulta de sus alumnos. Las obras de referencia como diccionarios, enciclopedias almanaques, bibliografías, publicaciones periódicas, tesis, audiovisuales, documentos electrónicos).
+2. Domicilio: es el proceso mediante el cual el ejemplar sale físicamente del recinto de la biblioteca por un tiempo que abarca de uno hasta ocho días. El beneficiario de dicho préstamo es responsable de su conservación y devolución en el plazo establecido. Todos los préstamos realizados por un usuario de la biblioteca son responsabilidad del dueño de la identificación utilizada para tal fin.
