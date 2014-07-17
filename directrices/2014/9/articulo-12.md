@@ -1,0 +1,1 @@
+Artículo 12.—Los salarios únicos o compuestos, según corresponda del Presidente, Vicepresidentes, Ministros, Viceministros, Presidentes Ejecutivos, Gerentes y Subgerentes del Sector Descentralizado, se mantendrán fijos, no recibiendo aumentos.

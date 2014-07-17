@@ -1,0 +1,1 @@
+Artículo 16.—El Ministerio de Hacienda preparará a más tardar dos meses después de la publicación de la presente Directriz, las modificaciones a la Ley de Presupuesto vigente, para rebajar las autorizaciones de gasto sujetas a subejecución, sumas todas que deberán contribuir al menor crecimiento de la deuda pública.
