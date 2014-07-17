@@ -1,4 +1,0 @@
-Artículo 13. Del préstamo a académicos y funcionarios administrativos.
-a) Los Académicos y funcionarios administrativos podrán solicitar a la Biblioteca los materiales documentales que necesiten para la preparación de programas, cursos, proyectos y otras actividades por un lapso no mayor de dos semanas.
-b) Los académicos y los funcionarios administrativos deben devolver los materiales en la fecha indicada, de lo contrario se sancionará de acuerdo con lo estipulado en el capítulo V este reglamento.
-c) En caso de los manuales para laboratorios que sean de uso cotidiano para estudiantes y docentes, la biblioteca extenderá el préstamo al coordinador de la carrera por un periodo no mayor a un año lectivo y con una fecha específica de devolución. Si el material no es devuelto en la fecha indicada se sancionará con lo estipulado en este reglamento.
