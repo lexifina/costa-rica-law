@@ -1,0 +1,1 @@
+Artículo 3. Los miembros del Consejo Técnico del Área de Idiomas y sus respectivos suplentes permanecerán en sus cargos por un período de dos años con la posibilidad de ser reelectos de manera consecutiva.

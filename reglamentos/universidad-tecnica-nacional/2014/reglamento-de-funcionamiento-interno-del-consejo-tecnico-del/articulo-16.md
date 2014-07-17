@@ -1,0 +1,1 @@
+Artículo 16. No podrá ser discutido ni ser objeto de acuerdo ningún asunto que no figure en el orden del día en sesiones ordinarias, salvo que estén presentes dos tercios de los miembros del Consejo y sea declarada la urgencia del asunto por el voto unánime de los presentes.

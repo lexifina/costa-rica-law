@@ -1,0 +1,1 @@
+Artículo 23. Las actas serán distribuidas a los miembros del Consejo el día anterior a la sesión en que se sometan a su aprobación. Una vez aprobadas, las actas serán suscritas por quienes ocuparon la presidencia y la secretaría de la sesión. Será suscrita también por el miembro que hubiese hecho constar su voto disidente si así lo manifestara expresamente.

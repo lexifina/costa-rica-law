@@ -1,0 +1,1 @@
+Artículo 15. Las sesiones deberán iniciar, a más tardar, quince minutos después de la hora para la cual han sido convocadas. Pasado ese tiempo y si no hay quórum, el Presidente convocará en ese mismo acto una sesión extraordinaria con la misma agenda, y lo comunicará a los miembros ausentes.

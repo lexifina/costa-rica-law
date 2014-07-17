@@ -1,0 +1,1 @@
+Artículo 17. En todos aquellos casos en que se discute un asunto que pueda concluir en un acuerdo que eventualmente conceda beneficios particulares para un miembro del Consejo, éste deberá retirarse de la sesión todo el tiempo que sea necesario y hasta que se adopte la decisión respectiva, la cual deberá justificarse debidamente.

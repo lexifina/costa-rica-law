@@ -1,0 +1,1 @@
+Artículo 12. La asistencia a las sesiones del Consejo Técnico es de naturaleza obligatoria. En caso de ausencia se debe justificar de manera escrita en un plazo no mayor a tres días hábiles. Cuando un miembro deba ausentarse por un período prolongado o renunciar por cualquier motivo, el suplente tomará su puesto por el lapso que reste de su designación.

@@ -1,0 +1,3 @@
+Capítulo V:
+Curso y Convocatoria de las Sesiones
+Artículo 14. Todas las sesiones deberán ser convocadas por escrito y con al menos veinticuatro horas de antelación, salvo los casos de urgencia debidamente fundamentados. La convocatoria a las sesiones del Consejo Técnico deberá estar acompañada por el orden del día y los asuntos deberán conocerse de conformidad con ésta, iniciando con la aprobación del acta de la sesión anterior. Solamente por acuerdo de la mayoría de los presentes podrá alterarse el orden del día, en el caso de sesiones ordinarias. Para modificar el orden del día en sesiones extraordinarias se requiere la votación unánime de todos los miembros del Consejo.
