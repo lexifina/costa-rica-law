@@ -1,6 +1,6 @@
-Artículo 13.—Servicios no sujetos a concurso: No están sujetos a concurso las contrataciones para los siguientes servicios técnicos o profesionales:
-a) Notariado.
-b) Abogacía para la dirección de asuntos o negocios jurídicos.
-c) Avisos o publicaciones en los medios de comunicación colectiva.
-d) Peritaje.
-e) Servicios ocasionales que se requiera para la buena administración de la Fundación.
+Artículo 13.—Servicios no sujetos a concurso. No estarán sujetos a concurso y por lo tanto podrán contratarse en forma directa los siguientes servicios técnicos o profesionales:
+• Servicios especializados en transporte de obras de arte dentro y fuera del país.
+• Oferente único.
+• Bienes o servicios artísticos o intelectuales.
+• Objetos o servicios que requieren seguridades calificadas.
+(Así reformado en sesión N° 05 del 17 de julio de 2014)

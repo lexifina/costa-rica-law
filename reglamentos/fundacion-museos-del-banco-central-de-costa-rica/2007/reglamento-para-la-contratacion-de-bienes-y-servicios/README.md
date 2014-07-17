@@ -15,3 +15,4 @@ Reglamento para la Contratación de Bienes y Servicios
 | --- | --- | --- |
 | 1 | 2007-07-04 | la propia norma |
 | 2 | 2008-08-05 | Reglamento 0 (2008-08-05) |
+| 3 | 2014-07-17 | Reglamento 5 (2014-07-17) |
