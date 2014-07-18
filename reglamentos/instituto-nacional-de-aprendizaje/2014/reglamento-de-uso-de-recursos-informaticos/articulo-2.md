@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de acción. Lo enunciado en el presente reglamento es aplicable tanto para las personas usuarias finales, como para las personas técnicas informáticas, así como de las personas proveedoras de los recursos y servicios informáticos. Será responsabilidad de las personas citadas anteriormente, cumplir lo aquí estipulado.

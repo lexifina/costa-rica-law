@@ -1,0 +1,1 @@
+Artículo 23.—Deberes de la persona ARI. Es deber de la persona ARI guardar la debida confidencialidad, cuando por razones de trabajo se tenga acceso incidental a información no autorizada por las personas usuarias.
