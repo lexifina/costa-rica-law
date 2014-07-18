@@ -1,0 +1,1 @@
+Artículo 12.—Término máximo para presentar las solicitudes de licencia: Las solicitudes de autorizaciones sanitarias y de licencias de funcionamiento temporal a que se refieren estas disposiciones, deberán presentarse hasta 5 días hábiles antes del 2 de agosto.

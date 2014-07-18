@@ -1,0 +1,1 @@
+Artículo 23.—Prohibición de uso de pólvora no autorizada: No se permitirá el uso de pólvora de cualquier tipo en los distritos 1, 2 y 3, salvo en aquellos casos debidamente autorizados por el Ministerio de Salud.

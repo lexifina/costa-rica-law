@@ -1,0 +1,3 @@
+Artículo 17.—Condiciones de instalación de puestos asistenciales: Los puestos asistenciales no podrán interferir con el plan operativo de las instituciones de primera respuesta ni con el libre tránsito de los romeros, ni con la instalación de puestos autorizados.
+Los puestos donde se ejerzan actividades relacionadas con la salud, deberán presentar en el Área Rectora de Salud Cartago, una solicitud para su funcionamiento, indicando el tipo de actividad que se realizará, además de los atestados de las personas que brindarán el servicio.
+Para efectos de la autorización por parte de la Municipalidad, se deberá presentar el permiso otorgado previamente por el Ministerio de Salud y cumplir con los requisitos exigidos en este reglamento.

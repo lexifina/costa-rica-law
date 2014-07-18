@@ -1,0 +1,1 @@
+Artículo 9.—Prohibición de publicidad, expendio o consumo de tabaco y su derivados: Con base en la Ley General de Control de Tabaco y su Reglamento, queda prohibida la publicidad, expendio o consumo bajo cualquier título de tabaco y productos elaborados de tabaco, en los sitios definidos en el artículo 5 de esa ley, así como su expendio a menores de edad.
