@@ -1,1 +1,2 @@
-Artículo 15.—En caso de renuncia o abandono de funciones de acuerdo a lo previsto en el artículo 28 del Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes, el Concejo, dentro de las ternas presentadas, elegirá y nombrará al miembro faltante.
+Artículo 15.—En caso de renuncia o abandono de funciones de acuerdo a lo previsto en el artículo 36(*) del Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes, el Concejo, dentro de las ternas presentadas, elegirá y nombrará al miembro faltante.
+(*) (Así reformado el número del artículo que hace referencia del párrafo anterior mediante publicación en La Gaceta N° 170 del 4 de setiembre del 2014)

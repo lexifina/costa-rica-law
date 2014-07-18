@@ -1,1 +1,2 @@
 Artículo 86.—Todo miembro deberá comunicar por escrito, cuando procedan las razones de su inasistencia a las sesiones, a más tardar en la sesión siguiente de su ausencia. De no hacerlo, la ausencia será considerada injustificada y sancionable.
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 170 del 4 de setiembre del 2014 se reforma el presente artículo estableciendose lo siguiente: "Modificar que el lapso de tiempo de espera sea de 15 minutos")
