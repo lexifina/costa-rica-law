@@ -1,0 +1,2 @@
+Artículo 18.—Levantamiento de la Prohibición
+La Administración deberá prestar su total colaboración en los procesos de solicitud del levantamiento de la prohibición que realicen los proveedores de la Municipalidad, suministrando de forma oportuna la información que estos requieran.
