@@ -1,0 +1,1 @@
+2. La Metodología para la captación de recursos de transacciones de alto monto de entidades públicas del Estado, aprobada en el numeral 1) precedente entrará en vigencia a partir del 21 de julio del 2014.
