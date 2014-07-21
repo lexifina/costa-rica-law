@@ -1,12 +1,23 @@
-Artículo 13.—Pago de derechos trimestrales. De conformidad con el artículo 10 de la Ley, se establecen los siguientes derechos que deberán pagar los patentados de forma trimestral por anticipado, según el tipo de licencia:
-a. Licencia clase A: 2 (dos) salarios base.
-b. Licencia clase B: 1 (un) salario base.
-c. Licencia clase C: 1 (un) salario base.
-d. Licencia clase D1: 2 (dos) salarios base.
-e. Licencia clase D2: 3 (tres) salarios base.
-f. Licencia clase E1a: 1 (un) salario base.
-g. Licencia clase E1b: 2 (dos) salario base.
-h. Licencia clase E2: 3 (tres) salario base.
-i. Licencia clase E3: 2 (dos) salario base.
-j. Licencia clase E4: 3 (tres) salario base.
-k. Licencia clase E5: 1 (un) salario base.
+Artículo 13.—Pago de derechos trimestrales. De conformidad con el artículo 10 de la Ley, y el Voto Nº 11499- 2013 de la Sala Constitucional, se establecen los siguientes derechos que deberán pagar los patentados de forma trimestral por anticipado, según el tipo de licencia será como se establece a continuación:
+Licencia tipo | Detalle de licencia | Cabecera de provincia | Demás población |
+Licencia clase A | Habilitan únicamente para la comercialización de bebidas con contenido alcohólico, en envases cerrados para llevar y sin que se puedan consumir dentro del establecimiento. En este tipo de licencias la venta de bebidas con contenido alcohólico será la actividad comercial principal del establecimiento (licoreras). | 50% del salario base | 25% del salario base |
+| Licencia clase B Habilitan la venta de bebidas con contenido alcohólico en envase abierto y/o cerrado para ser consumidas dentro del establecimiento. En este tipo de licencias la venta de bebidas con contenido alcohólico será la actividad comercial principal del establecimiento. La licencia clase B se clasifica en: Cantinas, bares y tabernas sin actividad de baile. | | |
+Licencia clase b-1 | Cantinas, bares y tabernas sin actividad de baile. | 50% del salario base | 12.05% del salario base |
+Licencia clase b-2 | Salones de baile, discotecas, clubes nocturnos y cabarés con actividad de baile. | Un salario base | 12.05% del salario base |
+Licencia clase C | Habilitan únicamente la comercialización de bebidas con contenido alcohólico al detalle, en envase abierto, servidas y para el consumo, junto con alimentos dentro del establecimiento. En este tipo de licencias la venta de bebidas con contenido alcohólico será la actividad comercial secundaria del establecimiento (RESTAURANTE) | 50% del salario base | 12.05% del salario base |
+| Licencia clase D Habilitan únicamente para la comercialización de bebidas con contenido alcohólico al detalle, en envase cerrado para llevar y sin que se pueda consumir dentro del establecimiento. En este tipo de licencias la venta de licor será la actividad comercial secundaria del establecimiento. Habrá dos clases de sublicencias, así: Queda prohibida la venta de bebidas alcohólicas en establecimientos que se dediquen al expendio de abarrotes, salvo lo indicado en las licencias clase D1 y clase D2. | | |
+Licencia clase D1 | Mini súper. | Un salario base | 25% del salario base |
+Licencia clase D2 | Supermercados | Dos salarios bases | 50% del salario base |
+| Licencia clase E: La municipalidad respectiva podrá otorgar licencias clase E a las actividades y empresas declaradas de interés turístico por el Instituto Costarricense de Turismo (ICT), conforme a los requisitos establecidos por esta ley, la cual habilitará únicamente para la comercialización de bebidas con contenido alcohólico al detalle, servidas o en envase abierto, previamente conocido y aprobado por la municipalidad respectiva: | | |
+Clase E1 a | Empresas de hospedaje con menos de quince habitaciones declaradas de interés turístico por el ICT. | 35% del salario base | 25% del salario base
+Clase E1 b | Empresas de hospedaje con quince o más habitaciones declaradas de interés turístico por el ICT. | Un salario base | 50% del salario base
+Clase E2 | A las marinas y atracaderos declarados de interés turístico por el ICT. | Un salario base | 75% del salario base
+Clase E3: | A las empresas gastronómicas declaradas de interés turístico por el ICT. | 50% del salario base | 25% del salario base
+Clase E4: | A los centros de diversión nocturna declarados de interés turístico por el ICT. | Dos salarios bases | 75% del salario base
+Clase E5: | A las actividades temáticas declaradas de interés turístico por el ICT y que cuenten con la aprobación del concejo municipal. | Un salario base | 25% del salario base
+| En cantones con concentración de actividad turística, la municipalidad, previo acuerdo del concejo municipal, podrá demarcar zonas comerciales en las que otorgará licencia de clase E a restaurantes y bares declarados de interés turístico por el ICT. La definición de los parámetros para la calificación de cantones de concentración turística será definida con fundamento en lo dispuesto en el Plan Nacional de Desarrollo Turístico emitido por el ICT y el plan regulador del municipio respectivo que cuente con uno autorizado o, en su defecto, con la norma por la que se rige. | |
+| | | | | | |
+Vigencia. La licencia tendrá una vigencia de cinco años renovables por períodos iguales de forma automática siempre y cuando la solicitud de prórroga se presente con treinta días hábiles de anticipación de cada vencimiento. Al momento de la prórroga el patentado deberá cumplir con todos los requisitos legales establecidos.
+En la solicitud de prórroga se deberá adjuntar una constancia de que se encuentra al día en sus obligaciones con la Caja Costarricense de Seguro Social, de que cuenta con póliza de riesgos laborales al día, y de estar al día en sus obligaciones con Asignaciones Familiares. Además, al momento de solicitar la prórroga el patentado deberá estar al día en sus obligaciones con la Municipalidad.
+El solicitante estará exento de aportar los documentos aquí mencionados cuando la información esté disponible de forma remota por parte de la Municipalidad.
+(Así reformado mediante sesión ordinaria N° 29-2014 del 21 de julio del 2014)
