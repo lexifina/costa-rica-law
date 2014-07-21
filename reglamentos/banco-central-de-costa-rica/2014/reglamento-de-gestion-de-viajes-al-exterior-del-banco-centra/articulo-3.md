@@ -1,0 +1,1 @@
+Artículo 3°—Normativa complementaria. Lo no dispuesto en el presente Reglamento, se regirá complementariamente por las disposiciones del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República, la Ley de Contratación Administrativa y su Reglamento.

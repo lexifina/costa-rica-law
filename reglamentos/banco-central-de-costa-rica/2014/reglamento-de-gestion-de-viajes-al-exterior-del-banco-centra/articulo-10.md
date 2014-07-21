@@ -1,0 +1,1 @@
+Artículo 10.—Firma de liquidaciones. Las autoridades indicadas en el artículo 5 de este reglamento, podrán designar un funcionario para que autorice mediante su firma las liquidaciones de los viajes que previamente éstas hayan aprobado.

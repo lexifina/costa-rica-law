@@ -1,0 +1,2 @@
+Transitorio único
+La Gerencia del Banco Central de Costa Rica dictará los lineamientos o directrices sobre la materia. La División Administrativa del Banco Central de Costa Rica dentro del plazo de dos meses a partir de la publicación de este reglamento, gestionará el establecimiento de los formatos, formularios, tecnologías de información y demás aspectos operativos necesarios para la aplicación de este reglamento.”

@@ -1,0 +1,1 @@
+Artículo 9°—Encargado de la gestión de viajes al exterior y liquidaciones. El Departamento de Proveeduría por medio de la persona Encargada de la gestión de viajes al exterior y liquidaciones recibirá, revisará y gestionará, los anticipos, reintegros y el trámite de liquidaciones.
