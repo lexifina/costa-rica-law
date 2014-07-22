@@ -1,3 +1,9 @@
-Artículo 9º—Capital mínimo obligatorio. Para el control del cumplimiento del capital exigido en el artículo 11 de la Ley 8653, se tomará el capital social de la entidad, ajustado por los resultados del periodo y de periodos anteriores, más la reserva legal.
-Para efectos del cálculo del capital mínimo (CM) se considerará el valor de la Unidad de Desarrollo del último día de cada mes:
-(Así reformado mediante el punto II) de la sesión N° 1050 del 2 de julio de 2013. Este numeral había sido reformado por el punto I de la sesión antes mencionada)
+Artículo 9 Capital mínimo obligatorio.
+El capital mínimo de la entidad será valorado al cierre de cada mes y no podrá ser inferior al exigido en el artículo 11 de la Ley 8653. Para efectos de determinar el cumplimiento del capital mínimo se debe sumar el capital pagado neto de acciones en tesorería y la reserva legal ajustada por la pérdida del periodo y las pérdidas de periodos anteriores cuando existan.
+Para la conversión del capital a unidades de desarrollo debe utilizarse el valor de la unidad de desarrollo vigente al último día del mes de estudio.
+En caso de incumplimiento, la entidad debe regularizar la situación dentro del plazo de 40 días hábiles contados a partir del día siguiente a fecha de cierre del mes en el que se presentó la insuficiencia de capital, salvo que por “caso fortuito” o “fuerza mayor” mayor” se justifique la extensión del plazo.
+Ante eventos calificados como “caso fortuito” o “fuerza mayor”, la entidad puede solicitar a la Superintendencia, por una sola vez, la prórroga del plazo hasta por 20 días hábiles adicionales. El superintendente, con base en los motivos expuestos por la entidad, podrá otorgar la prórroga solicitada, otorgar una por un plazo menor o denegarla, según corresponda.
+Los aportes de capital que se realicen para regularizar la situación de incumplimiento estarán sujetos a la valoración de origen de fondos por parte de la Superintendencia.
+El Superintendente informará los incumplimientos de capital mínimo al Consejo Nacional de Supervisión del Sistema Financiero. Sin perjuicio de lo anterior, el incumplimiento del capital mínimo puede dar lugar al establecimiento de medidas precautorias y responsabilidades administrativas según se establece en el inciso l) del artículo 29 de la Ley Reguladora del Mercado de Seguros.
+Las sanciones administrativas que deriven del incumplimiento del capital mínimo serán divulgadas como hecho relevante.
+(Así reformado mediante sesión N° 1114-2014 del 22 de julio del 2014)

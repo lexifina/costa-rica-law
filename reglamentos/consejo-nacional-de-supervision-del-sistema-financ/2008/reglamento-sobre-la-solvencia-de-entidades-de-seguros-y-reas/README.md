@@ -18,3 +18,4 @@ Reglamento sobre la Solvencia de Entidades de Seguros y Reaseguros
 | 3 | 2010-10-29 | Reglamento 888 (2010-10-29) |
 | 4 | 2010-12-17 | Reglamento 895 (2010-12-17) |
 | 5 | 2013-07-02 | Reglamento 1050 (2013-07-02) |
+| 6 | 2014-07-22 | Reglamento 1114 (2014-07-22) |
