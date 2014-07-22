@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Cabecera y caseríos
+El distrito de Caldera contará con los siguientes caseríos: Mata de Limón, que será la cabecera, Hacienda Salinas, Cambalache, Tivives, Caldera, Quebrada Honda, San Antonio, Cabezas, Finca Cortijo, Hacienda La Moncha, Hacienda Playa Linda, Cuesta Jocote, Finca Brazo Seco, Cascabel, Corralillo, Figueroa, Jesús María (Estación), Hacienda Mata de Guinea, Silencio, Villanueva, Guardianes de la Piedra y Alto de las Mesas.
