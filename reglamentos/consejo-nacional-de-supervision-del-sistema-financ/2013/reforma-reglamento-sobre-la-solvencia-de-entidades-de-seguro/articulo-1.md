@@ -79,7 +79,8 @@ CAPÍTULO I
 CÁLCULO DEL CAPITAL BASE
 Artículo 5 Capital base
 El capital base (CB) corresponde a la suma del capital primario y del capital secundario, neto de deducciones, según se define en este reglamento. Para efectos del cálculo del capital base se considera el capital secundario hasta en un 100% del capital primario.
-En el caso de entidades de seguros autorizadas bajo la modalidad de sucursal, el capital base está constituido, únicamente, por el capital asignado a la operación en Costa Rica según lo dispuesto en el artículo 226 del Código de Comercio, menos las deducciones de capital indicadas en el Artículo 6 y en el Artículo 8 de este Reglamento.
+En el caso de entidades de seguros autorizadas bajo la modalidad de sucursal, el capital base está constituido por el capital asignado a la operación en Costa Rica según lo dispuesto en el artículo 226 del Código de Comercio, ajustado por las pérdidas del periodo y de periodos anteriores cuando existan, más los aportes realizados para el mantenimiento de capital mínimo, menos las deducciones de capital indicadas en los artículos 6 y 8 de este reglamento.
+(Así refromado el párrafo anterior mediante sesión N° 1114 del 22 de julio del 2014)
 Artículo 6 Capital primario
 El capital primario se calcula de la siguiente forma:
 Partidas que suman:
@@ -128,10 +129,15 @@ e) Activos intangibles excepto la plusvalía comprada.
 f) Gastos pagados por anticipado excepto intereses y comisiones pagadas por anticipado.
 g) Los activos con gravámenes, embargos, medidas precautorias o de cualquier otra naturaleza que impidan o dificulten su libre disposición.
 h) Los créditos e inversiones en fideicomiso u otras comisiones de confianza estructurados o administrados por empresas del mismo grupo financiero, excepto fondos de inversión.
-Artículo 9 Capital mínimo obligatorio
-El capital de la entidad no puede ser inferior al capital exigido en el artículo 11 de la Ley 8653. Para efectos de determinar el cumplimiento del capital mínimo se debe sumar el capital pagado neto de acciones en tesorería y la reserva legal ajustada por la pérdida del periodo y de periodos anteriores cuando exista.
+Artículo 9 Capital mínimo obligatorio.
+El capital mínimo de la entidad será valorado al cierre de cada mes y no podrá ser inferior al exigido en el artículo 11 de la Ley 8653. Para efectos de determinar el cumplimiento del capital mínimo se debe sumar el capital pagado neto de acciones en tesorería y la reserva legal ajustada por la pérdida del periodo y las pérdidas de periodos anteriores cuando existan.
 Para la conversión del capital a unidades de desarrollo debe utilizarse el valor de la unidad de desarrollo vigente al último día del mes de estudio.
-El incumplimiento del plazo establecido en el párrafo anterior constituye una falta a lo dispuesto en el inciso l) del artículo 25 de la Ley 8653.
+En caso de incumplimiento, la entidad debe regularizar la situación dentro del plazo de 40 días hábiles contados a partir del día siguiente a fecha de cierre del mes en el que se presentó la insuficiencia de capital, salvo que por “caso fortuito” o “fuerza mayor” mayor” se justifique la extensión del plazo.
+Ante eventos calificados como “caso fortuito” o “fuerza mayor”, la entidad puede solicitar a la Superintendencia, por una sola vez, la prórroga del plazo hasta por 20 días hábiles adicionales. El superintendente, con base en los motivos expuestos por la entidad, podrá otorgar la prórroga solicitada, otorgar una por un plazo menor o denegarla, según corresponda.
+Los aportes de capital que se realicen para regularizar la situación de incumplimiento estarán sujetos a la valoración de origen de fondos por parte de la Superintendencia.
+El Superintendente informará los incumplimientos de capital mínimo al Consejo Nacional de Supervisión del Sistema Financiero. Sin perjuicio de lo anterior, el incumplimiento del capital mínimo puede dar lugar al establecimiento de medidas precautorias y responsabilidades administrativas según se establece en el inciso l) del artículo 29 de la Ley Reguladora del Mercado de Seguros.
+Las sanciones administrativas que deriven del incumplimiento del capital mínimo serán divulgadas como hecho relevante.
+(Así reformado el artículo anterio mediante sesión N° 1114 del 22 de julio del 2014)
 CAPÍTULO II
 CÁLCULO DEL REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 Artículo 10 Requerimiento de capital
@@ -158,7 +164,7 @@ ISC= Índice de Suficiencia de Capital.
 CB= Capital Base.
 RCS= Requerimiento de Capital de Solvencia.
 Para la conversión del capital mínimo a unidades de desarrollo debe utilizarse el valor de la unidad de desarrollo vigente al último día del mes de estudio.
-Una entidad aseguradora o reaseguradora cumple con la exigencia del ISC cuando éste es mayor o igual al factor de requerimiento señalado en el Artículo 15 de este Reglamento.
+(Derogado el útimo párrafo original mediante sesión N° 1114-2014 del 22 de julio del 2014)
 Artículo 14 Periodicidad del cálculo y comunicación
 Las entidades deben informar a la Superintendencia, con la periodicidad y en la forma que esta establezca, sobre el resultado del cálculo del ISC y, en su caso, sobre el cumplimiento de las medidas de actuación señaladas en el artículo 16 según la categoría asociada al ISC establecidas en el artículo 15. En todo caso, la Superintendencia puede requerir a una entidad, en cualquier momento, la verificación del cumplimiento del índice de suficiencia de capital.
 Adicionalmente, en el caso de entidades de seguros autorizadas bajo la modalidad de sucursal, en el plazo de dos meses a partir del cierre de cada semestre, la entidad debe remitir a la Superintendencia, certificación del cumplimiento de las normas de adecuación de capital de la empresa a la que pertenece la sucursal, emitida por el órgano de supervisión de la jurisdicción en la que se encuentra domiciliada, con corte al cierre del semestre calendario inmediato anterior.
@@ -169,7 +175,8 @@ Fuerte | ISC≥1,5
 Moderada | 1,3≤ISC<1,5
 Baja | 1≤ISC<1,3
 Débil | ISC<1
-La Superintendencia debe publicar, en su sitio de Internet, la categoría del índice de suficiencia de capital de cada una de las entidades aseguradoras y reaseguradoras con corte a los meses de marzo, junio, setiembre y diciembre de cada año. Dicha publicación deberá hacerse dentro de los quince días hábiles siguientes al cierre de esos meses.
+La Superintendencia debe publicar, en su sitio de Internet, la categoría y el resultado del índice de suficiencia de capital reportado por cada una de las entidades aseguradoras y reaseguradoras con corte a los meses de marzo, junio, setiembre y diciembre de cada año. Dicha publicación deberá hacerse dentro del mes siguiente al cierre de esos meses. También es obligación de cada una de las entidades realizar la publicación de su propio índice de suficiencia de capital en las condiciones descritas para la Superintendencia.
+(Así reformado el párrafo anterior mediante sesión N° 1114 del 22 de julio del 2014)
 Artículo 16 Medidas de Actuación
 El nivel de cumplimiento del régimen de solvencia definirá las siguientes acciones:
 a) Categoría Fuerte
@@ -423,6 +430,8 @@ Cuando las entidades carezcan de información para el cálculo de la provisión 
 Una vez aprobado por la Superintendencia, el plan será de acatamiento obligatorio para la entidad. Durante este plazo la entidad debe constituir la provisión de siniestros ocurridos y no reportados por el importe resultante de multiplicar el 20% por el monto de la provisión para siniestros reportados.
 Transitorio IV
 Las entidades que a la entrada en vigencia de estas disposiciones requieran ajustar el monto de las provisiones técnicas constituidas, o requieran constituir alguna de las provisiones dispuestas en este reglamento, podrán realizar las reclasificaciones necesarias de las provisiones existentes previa autorización de la Superintendencia.
+TRANSITORIO V: La primera publicación del índice de suficiencia de capital de las entidades supervisadas, en los términos dispuestos en el artículo 15 de este reglamento, se hará con la información reportada por las entidades al 31 de diciembre de 2014.
+(Así adicionado el transitorio anterior mediante sesión 1114 del 22 de julio del 2014)
 ANEXO PT-1
 PROVISIÓN PARA PRIMA NO DEVENGADA (PPND)
 La provisión de prima no devengada se calculará póliza a póliza de la siguiente forma:
@@ -736,12 +745,12 @@ Grupo | Standard & Poor’s | Moody ’s | Fitch
 D | | D
 3.-Requerimiento de Capital por Riesgo de Concentración de inversiones
 El requerimiento de capital adicional por concentración de las inversiones corresponde al 100% del exceso de inversión sobre los límites máximos que se señalan a continuación:
-1. 10% del total de activos, para la inversión en un mismo emisor. Se excluyen de este límite los instrumentos emitidos por el Banco Central de Costa Rica y Ministerio de Hacienda de Costa Rica .
-2. 15% del total de activos, para la inversión en los emisores pertenecientes a un mismo grupo económico privado.
-3. 20% del total de activos, para la inversión total en propiedades inmobiliarias.
-4. 10% del total de activos para la inversión en acciones u otros títulos representativos de capital, fondos de inversión y otros instrumentos de renta variable.
-5. 5% del total de activos para los préstamos que otorguen las aseguradoras.
-6. 5% del total de activos para la inversión en notas estructuradas y otros productos financieros híbridos de similar naturaleza.
+10% del total de activos, para la inversión en un mismo emisor. Se excluyen de este límite los instrumentos emitidos por el Banco Central de Costa Rica y Ministerio de Hacienda de Costa Rica .
+15% del total de activos, para la inversión en los emisores pertenecientes a un mismo grupo económico privado.
+20% del total de activos, para la inversión total en propiedades inmobiliarias.
+10% del total de activos para la inversión en acciones u otros títulos representativos de capital, fondos de inversión y otros instrumentos de renta variable.
+5% del total de activos para los préstamos que otorguen las aseguradoras.
+5% del total de activos para la inversión en notas estructuradas y otros productos financieros híbridos de similar naturaleza.
 El monto de la inversión sujeta al requerimiento de capital por concentración, esto es el 100% del exceso de inversión sobre los límites máximos señalados, no se debe considerar para efectos de la determinación de los requerimientos de capital por riesgo de mercado y riesgo de activos.
 4.-Requerimiento de Capital por Riesgo de Descalce
 Para determinar el riesgo de descalce entre activos y pasivos, por moneda y plazo, se debe utilizar la metodología que mediante Lineamiento General definirá el Superintendente.
