@@ -14,3 +14,4 @@ Reglamento interno para regula la producción y disposición de las Mieles Final
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-04 | la propia norma |
+| 2 | 2014-07-22 | Reglamento 484 (2014-07-22) |
