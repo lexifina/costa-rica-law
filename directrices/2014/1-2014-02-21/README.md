@@ -14,3 +14,4 @@ Presentación digital de planos de agrimensura, sometidos al proceso de califica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-17 | la propia norma |
+| 2 | 2014-07-24 | Directriz 2 (2014-07-24) |

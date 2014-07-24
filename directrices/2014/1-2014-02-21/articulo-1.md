@@ -33,6 +33,16 @@ Situación geográfica (provincia, cantón, distrito)
 Fecha de emisión
 Firma de responsable y sello de la respectiva institución.
 Las instituciones tendrán acceso al APT mediante usuarios y contraseñas asignados por el CFIA, con el objetivo de que el funcionario encargado de la institución respectiva, verifique la solicitud del visado requerido.
+En todos los casos que las instituciones no extiendan las autorizaciones o visados en el formato descrito para los planos de agrimensura y señalados en esta Directriz, el profesional responsable podrá presentar el visado correspondiente estampado en el plano, como se viene haciendo en los planos que no se presentan bajo esta plataforma; para ello deberá elaborar una declaración jurada en formato .pdf, manifestando bajo la fe de juramento que la institución competente otorgó el visado correspondiente; misma que subirá al Administrador de Proyectos de Topografía (APT) en el apartado dispuesto para incluir información sobre los visados. La citada declaración deberá rendirse cada vez que se dé un nuevo ingreso del documento.
+(Asi adicionado el párrafo anterior mediante directriz N° RIM-002-2014 del 24 de julio del 2014)
+La declaración jurada que se presente al Registro Inmobiliario a través del APT, deberá contener como mínimo lo siguiente:
+(Asi adicionado el párrafo anterior mediante directriz N° RIM-002-2014 del 24 de julio del 2014)
+Nombre completo del profesional y calidades.
+(Asi adicionado el párrafo anterior mediante directriz N° RIM-002-2014 del 24 de julio del 2014)
+La manifestación que declara bajo juramento que la institución otorgó el visado o autorización, la fecha en que lo realizó, el funcionario e institución que lo concede, y el número de oficio o de aprobación con que se otorgó, si lo tuviere.
+(Asi adicionado el párrafo anterior mediante directriz N° RIM-002-2014 del 24 de julio del 2014)
+Fecha en que se expide la Declaración Jurada y firma del profesional.
+(Asi adicionado el párrafo anterior mediante directriz N° RIM-002-2014 del 24 de julio del 2014)
 Procedimientos generales
 e.- Del archivo con las coordenadas del derrotero: Tal y como dispone la Directriz RIM-001-2012, de fecha 17 de abril 2012, publicada en La Gaceta Nº 96 de 18 de mayo siguiente, es de acatamiento obligatorio para zonas catastradas, adjuntar un archivo en formato “.csv” que contenga las coordenadas de todos los vértices correspondientes al polígono representado en cada plano, de conformidad con el Sistema de la Red Oficial de Coordenadas, vigente al momento del levantamiento. Este requerimiento es de resorte voluntario del profesional en zonas catastrales.
 f.- De la prohibición del uso de colores o tonos de grises en las presentaciones: De acuerdo con lo dispuesto en la Directriz 002-2011 de fecha 07 de julio de 2011, no se permitirá el uso de colores ni tonos de grises en los documentos digitales que contengan los levantamientos de agrimensura presentados bajo la plataforma APT; debiendo por tanto representarse tales archivos, necesariamente en color negro en su totalidad.
