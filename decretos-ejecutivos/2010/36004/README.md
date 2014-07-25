@@ -14,3 +14,4 @@ Reglamento a la Ley General de Transferencia de Competencias del Poder Ejecutivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-13 | la propia norma |
+| 2 | 2014-07-25 | Decreto Ejecutivo 38536 (2014-07-25) |
