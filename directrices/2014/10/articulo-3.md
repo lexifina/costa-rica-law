@@ -1,0 +1,3 @@
+Artículo 3º—Comité permanente de atención.
+Con el fin de mejorar la coordinación de esfuerzos, todas las instituciones citadas en la presente directriz conformarán un comité permanente de atención, integrado por los jerarcas o sus delegados, siempre que estos últimos cuenten con amplia representación y poder de decisión. El comité será presidido por el Presidente de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias o su representante.
+El comité se reunirá al menos una vez cada dos semanas, previa convocatoria. En este comité se conocerán los informes técnicos presentados y se valorará las acciones adoptadas, y coordinará la implementación de acciones futuras.
