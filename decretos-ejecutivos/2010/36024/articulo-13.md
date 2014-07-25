@@ -1,1 +1,0 @@
-Artículo 13.—Del Consejo Nacional de Seguridad Pública. Además de las labores señaladas por ley, se asigna al Consejo Nacional de Seguridad Pública, creado mediante Ley Nº 7410, en lo que resulten compatibles, las labores que el presente decreto asigna a los Consejos Presidenciales, en materia de seguridad.

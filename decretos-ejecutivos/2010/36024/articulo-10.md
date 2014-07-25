@@ -1,1 +1,0 @@
-Artículo 10.—DelConsejo Nacional Ambiental. Además de las labores señaladas por ley, se asigna al Consejo Nacional Ambiental, creado mediante Ley Nº 7554 del 4 de octubre de 1995, en lo que resulten compatibles, las labores que el presente decreto asigna a los Consejos Presidenciales, en materia ambiental.

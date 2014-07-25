@@ -1,5 +1,0 @@
-Artículo 7º—Operación de los Consejos Presidenciales. Para el desempeño de sus funciones, los Consejos Presidenciales actuarán conforme las siguientes condiciones:
-a) Los Consejos Presidenciales sesionarán previa convocatoria de quien ocupe la Presidencia de la República, quien procurará hacerlo al menos una vez al mes.
-b) Las convocatorias las hará quien se encuentre en el ejercicio de la Presidencia, por medio de la correspondiente Secretaría Técnica.
-c) De cada sesión ordinaria o extraordinaria, se levantará un acta que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los acuerdos a los que se llegue, así como cualquier otra circunstancia que se considere relevante por parte del consejo.
-d) Quien ejerza la Presidencia de la República, podrá convocar a participar en los Consejos Presidenciales a otras instituciones de la Administración Central y Descentralizada, así como a miembros de los otros Supremos Poderes de la República, que sin estar expresamente indicadas en este decreto, resulten de utilidad en las actividades de tales Consejos.

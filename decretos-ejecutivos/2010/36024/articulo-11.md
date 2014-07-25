@@ -1,1 +1,0 @@
-Artículo 11.—De la Secretaría Ejecutiva del Consejo Nacional Ambiental. Las funciones que el presente decreto establece para las Secretarías Técnicas, serán realizadas por la Secretaria Ejecutiva del Consejo Nacional Ambiental.
