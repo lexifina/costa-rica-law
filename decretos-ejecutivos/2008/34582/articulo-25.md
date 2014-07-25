@@ -1,2 +1,0 @@
-Artículo 25.- Coordinación e integración entre los Consejos Presidenciales y los sectores. Las decisiones de carácter estratégico adoptadas por los sectores deberán ser comunicadas a los Consejos Presidenciales creados mediante Decretos Ejecutivos Nº 36024-MP-PLAN de 11 de mayo de 2010 y Nº 36467MP-PLAN de 15 de febrero de 2011.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 36646 del 14 de junio del 2011)

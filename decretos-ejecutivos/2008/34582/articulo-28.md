@@ -1,2 +1,0 @@
-Artículo 28.- Los Comités Intersectoriales Regionales. Los coordinadores de los Comités Sectoriales Regionales, conjuntamente con el Director Regional de MIDEPLAN, constituirán Comités Intersectoriales Regionales en cada región, con el fin de lograr la compatibilidad de los planes, programas y proyectos sectoriales regionales. Estos Comités serán coordinados por el Director Regional de MIDEPLAN.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 36646 del 14 de junio del 2011)

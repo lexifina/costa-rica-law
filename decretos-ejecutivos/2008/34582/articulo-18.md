@@ -1,1 +1,0 @@
-Artículo 18.—Consejos Sectoriales. Créanse los Consejos Sectoriales como órganos de coordinación y consulta del Ministro Rector, en cuanto a los planes, programas y metas que le corresponde ejecutar a cada sector según las políticas gubernamentales y el Plan Nacional de Desarrollo.
