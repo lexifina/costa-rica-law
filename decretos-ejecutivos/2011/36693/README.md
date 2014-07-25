@@ -14,3 +14,4 @@ Declara Moratoria Nacional para la explotación petrolera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-19 | la propia norma |
+| 2 | 2014-07-25 | Decreto Ejecutivo 38537 (2014-07-25) |

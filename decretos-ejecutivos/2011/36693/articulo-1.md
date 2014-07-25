@@ -14,4 +14,5 @@ Considerando:
 8º—Que mientras esta actualización y ajustes se llevan a cabo, es conveniente proceder a decretar una moratoria preventiva de dicha actividad. Por tanto,
 Decretan:
 MORATORIA A LA EXPLOTACIÓN PETROLERA
-Artículo 1º—Se declara la moratoria nacional por un plazo de tres años para la actividad que tenga el propósito de desarrollar la explotación de los depósitos de petróleo en el territorio nacional.
+Artículo 1º—Se declara una moratoria nacional hasta el 15 de setiembre del 2021 para la actividad que tenga el propósito de desarrollar la exploración y explotación de los depósitos de petróleo en el territorio nacional continental y marino.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38537 del 25 de julio del 2014)
