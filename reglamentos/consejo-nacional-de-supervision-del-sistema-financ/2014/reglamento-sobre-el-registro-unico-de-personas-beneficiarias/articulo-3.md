@@ -1,0 +1,7 @@
+Artículo 3º—Definiciones. Para la aplicación de estas disposiciones se entiende por:
+a. Consulta simple: detalle de la información que consta en el Registro y que se facilitará al solicitante.
+b. Certificación: documento donde se hace constar la información del Registro.
+c. Cuenta cliente: Estructura estandarizada del número de cuentas de fondos asociadas a cuenta corriente, cuenta de ahorro, tarjetas de crédito o cualquier otra cuenta de fondos a la vista o de dinero electrónico de los clientes de las entidades financieras, utilizadas para la realización de las transacciones interbancarias de cobro y pago, la cual constituye el domicilio financiero utilizado por el cliente.
+d. Débito en tiempo real: servicio que permite enviar una instrucción hacia la entidad financiera, donde se tiene registrada la cuenta cliente y que se debiten los fondos para ser acreditados en una cuenta cliente en tiempo real.
+e. Servicio SINPE: Servicios financieros y de apoyo que operan en el Portal Financiero Interbancario denominado Sistema Nacional de Pagos Electrónicos-SINPE, que permite que se realicen operaciones desde y hacia las entidades financieras y sus clientes.
+f. SUGESE en línea: Nombre de la plataforma de negocios o portal Web de la SUGESE que opera sobre Internet, por medio de la cual la institución mantiene una relación directa con los participantes que se benefician de los servicios que brinda la SUGESE mediante este portal.
