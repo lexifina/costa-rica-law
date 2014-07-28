@@ -1,0 +1,2 @@
+3) El artículo 8° se adiciona al final y dirá:
+“Artículo 8º—Personal del Centro: El Cetro de Cuido estará integrado por una persona Coordinadora Técnica que deberá contar como mínimo con el título de Licenciatura en Preescolar o carrera afín. Además, contará con una persona profesional docente, con el grado mínimo de bachillerato en Preescolar o carrera afín y una persona asistente con al menos noveno año de escolaridad, por cada grupo de 25 niños o niñas. De igual forma, contará con una persona encargada de la cocina que cuente con curso de manipulación de alimentos.”
