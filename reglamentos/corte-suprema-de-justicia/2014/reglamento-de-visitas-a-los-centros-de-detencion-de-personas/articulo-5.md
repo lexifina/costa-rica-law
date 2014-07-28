@@ -1,0 +1,1 @@
+Artículo 5°—La Dirección Ejecutiva del Poder Judicial deberá garantizar a los jueces y juezas que realicen estas visitas la disponibilidad de un vehículo oficial y de un chofer, para que los traslade del asiento del Despacho al centro de detención y viceversa, independientemente de la hora de inicio y finalización de la diligencia.

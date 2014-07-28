@@ -1,0 +1,1 @@
+Artículo 2°—En los juzgados y tribunales integrados por más de un juez o jueza, la visita deberá hacerla uno de los jueces o juezas en forma rotativa, de manera que no se recargue en uno solo de ellos esta labor, ni se perjudique la prestación de los demás servicios públicos que se prestan en el despacho.

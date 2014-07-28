@@ -1,0 +1,1 @@
+Artículo 7°—La fijación del día y la hora para hacer la visita la hará el juez que la realizará, en coordinación con el juez coordinador del tribunal, pero en todo caso deberá hacerse al menos una vez al mes. El coordinador del despacho deberá llevar un registro del rol de visitas por juez y de las visitas realizadas.

@@ -1,0 +1,1 @@
+Artículo 6°—Si al realizar la visita el juez o jueza advierten que no existen las condiciones de seguridad suficientes para realizar la diligencia, dejará constancia de ello en el acta e informará de inmediato al Consejo Superior.

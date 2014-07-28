@@ -1,0 +1,1 @@
+Artículo 8°—La Administración del Poder Judicial deberá garantizar a los funcionarios y servidores judiciales que realicen estas visitas, el pago de los viáticos que correspondan según la normativa que rige la materia.
