@@ -589,7 +589,7 @@ A. FARMACOS, QUIMICOS Y ECTOPARACITICIDAS PARA USO VETERINARIO.
 4. Métodos de Análisis del producto terminado . Pruebas de control del producto terminado (especificaciones y métodos de análisis físico, químico y microbiológico) .
 5. Certificado de análisis de un Jote producido de acuerdo a las especificaciones técnicas del producto.
 6. Pruebas de estabilidad (especificaciones para el plazo de validez , descripción de los estudios, resultados y conclusiones).
-7. Estudios de eliminación de residuos o de comprobación del período de retiro y descarte, del producto a registrar
+(*)7. Estudios de eliminación de residuos o de comprobación del período de retiro y descarte, del producto a registrar
 Para medicamentos con moléculas nuevas o innovadoras, excepto productos de medicina alternativa, adicionalmente presentar:
 a. Pruebas de seguridad en la especie destino, con sus correspondientes referencias bibliográficas.
 b. Documentación clínica: estudios de eficacia y determinación de dosis.
@@ -603,6 +603,10 @@ c. Estudios biológicos de efectos no deseados.
 . Hipersensibilidad .
 . Sobre la reproducción.
 . Sobre la flora digestiva. según conesponda
+(Nota de Sinalevi: Mediante el artículo 1° y 2° del decreto ejecutivo N° 38819 del 28 de julio del 2014, "Publica Resolución N° 350-2014 (COMIECO-LXVIII) de 27 de junio de 2014: Suspende hasta el 31 de diciembre de 2014 la aplicación del requisito del numeral 7, literal A del Anexo C del "Reglamento Técnico Centroamericano RTCA 65.05.51:08 Medicamentos Veterinarios y Productos Afines, Requisitos de Registro Sanitario y Control", se establece lo siguiente: " 1. Suspender hasta el 31 de diciembre de 2014 la aplicación del requisito del numeral 7, literal A del Anexo C del Reglamento Técnico Centroamericano, RTCA 65.05.51:08 Medicamentos Veterinarios y Productos Afines. Requisitos de Registro Sanitario y Control.
+2. La aplicación de este requisito se establecerá conforme al cronograma de ejecución de plazos, el cual deberá elaborarse en el período indicado en el párrafo anterior. Esta suspensión no exime de presentar la información técnica sobre el período de retiro y descarte del producto a registrar conforme al artículo 21.7 Controles sobre residuos medicamentos del Anexo Al.
+3. Esta suspensión no aplica a los medicamentos innovadores.
+4. Para el caso de Costa Rica, Honduras, Nicaragua y Panamá esta disposición no aplica a los medicamentos que contengan como ingrediente activo la Ivermectina, Doramectina, Abamectina o la Moxidectina. El reconocimiento mutuo de registros para estos productos entre los Estados Parte, aplicará únicamente si cumplen con lo establecido en el RTCA 65.05.51:08 Medicamentos Veterinarios y Productos Afines. Requisitos de Registro Sanitario y Control")
 Estudios de impacto ambiental realizados por el fabricante.
 B. BIOLOGICOS VETERINARIOS.
 1. Composición cualitativa y cuantitativa completa de acuerdo a la presentación comercial del producto.
