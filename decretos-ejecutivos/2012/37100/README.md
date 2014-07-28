@@ -18,3 +18,4 @@ Publica Resolución N° 277-2011 (COMIECO-LXI) del 2 de diciembre de 2011 y su a
 | 3 | 2013-01-15 | Decreto Ejecutivo 37624 (2013-01-15) |
 | 4 | 2013-05-27 | Decreto Ejecutivo 37850 (2013-05-27) |
 | 5 | 2014-02-28 | Decreto Ejecutivo 38432 (2014-02-28) |
+| 6 | 2014-07-28 | Decreto Ejecutivo 38818 (2014-07-28) |
