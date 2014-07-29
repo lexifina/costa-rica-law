@@ -1,0 +1,1 @@
+Artículo 15.—La fiscalización del funcionamiento y la administración del CECUDI, formara parte de las funciones a realizar por parte de la Dirección de Desarrollo Social, debiendo la Coordinadora Técnica, y/o (a) del Centro presentar todo tipo de informes u otros registros al responsable o coordinador de esta Dirección Municipal.
