@@ -1,0 +1,1 @@
+Artículo 15.—Requisitos para ampliación del monto del préstamo. Los requisitos que debe presentar el prestatario para solicitar una ampliación del monto del préstamo quedan establecidos en el Anexo 8.

@@ -1,0 +1,79 @@
+Anexo 17: Resolución por medio de acuerdos administrativos de cambios en las condiciones crediticias. La Sección de Desembolsos y Control de Crédito, por medio de sus profesionales o jefatura, resolverá mediante Acuerdo Administrativo, las siguientes situaciones crediticias, que presente el prestatario y que solicite por escrito con los requisitos señalados para cada situación:
+a. Extensión del período de estudios.
+1. Solicitud del prestatario para extender la fecha de conclusión de estudios del préstamo.
+2. Breve justificación escrita.
+3. Llenar el formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
+4. Carta emitida por la entidad educativa, con sello y firma, donde realiza los estudios, que indique que no tiene deudas del último periodo cursado.
+5. Documento emitido por la entidad educativa donde realiza los estudios, con sello y firma, que indique los cursos pendientes para concluir plan de estudios y la factura proforma de los costos de los mismos,
+6. Constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
+7. Informe de matrícula del período actual.
+8. Llenar formulario de actualización de datos del deudor y los fiadores.
+9. En caso de quedarse sin disponible de desembolsos para la extensión del período, debe indicar la fuente de financiamiento.
+b. Cambio de entidad educativa y/ o carrera en el mismo nivel de estudios.
+1. Solicitud del prestatario para cambio de universidad y/o carrera.
+2. Breve justificación.
+3. Llenar el formulario de actualización de datos del deudor y los fiadores.
+4. Presentar el nuevo programa de estudios, firmado y sellado por la entidad educativa donde va a realizar los estudios.
+5. Factura proforma extendida por la entidad educativa en la que va a realizar los estudios, con el costo de cada una de las materias, totalizada por ciclos lectivos.
+6. Documento original emitido, con el sello y firma, por la entidad educativa de la pre-convalidación o convalidación de materias o carta de no convalidación.
+7. Llenar el formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
+8. Carta emitida por la entidad educativa, con sello y firma, en la que va a realizar los estudios, que indique que no tiene deudas del último período cursado.
+9. Informe de matrícula del período actual.
+10. Presentar constancia de notas, con sello y firma de la entidad educativa, en caso de tener períodos pendientes por presentar a CONAPE
+11. Si va a cursar otro grado en otra entidad educativa, deberá presentar título o certificación de conclusión de estudios del grado anterior.
+12. Cuando el prestatario vaya a realizar estudios en el exterior o pos-grados, deberá aportar:
+• Carta de admisión extendida por la entidad educativa.
+• Comprobante que indique si tiene o no beca (del trabajo o universidad) o no,
+• Documento que demuestre la acreditación de la Universidad y costos del programa.
+c. Disminución o aumento de grado académico en el mismo nivel de estudios.
+1. Solicitud del prestatario para cambio de grado académico.
+2. Nuevo programa de estudios extendido por la entidad educativa, sellado y firmado.
+3. Factura proforma, firmado y sellado por la entidad educativa, en la cual se indique el costo de las materias, totalizado por ciclo lectivo.
+4. Llenar formulario de actualización de datos del deudor y los fiadores.
+5. Llenar formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
+6. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
+7. Informe de matrícula del período actual.
+8. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
+9. En caso de aspirar a un grado académico superior deberá presentar título o certificación de conclusión de estudios del anterior grado o certificación de los cursos pendientes por cursar para obtener el nuevo grado.
+d. Disminución de las asignaturas por matricular.
+1. Solicitud del prestatario de la disminución de carga académica por matricular.
+2. Breve justificación y documento que respalde la solicitud.
+3. Llenar formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
+4. Llenar formulario de actualización de datos del deudor y los fiadores.
+5. Factura proforma, firmado y sellado por la entidad educativa, en la cual se indique el costo de las materias, totalizado por ciclo lectivo
+6. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
+7. Informe de matrícula del periodo actual.
+8. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
+e. Sustitución de fiadores:
+1. Solicitud del prestatario para sustitución de fiadores.
+2. Breve justificación.
+3. Fotocopia de la cédula de identidad vigente y legible del fiador(es) que propone.
+4. Constancia de salario original del fiador(es) que propone.
+5. Original y fotocopia de la orden patronal vigente del fiador(es) que propone.
+6. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
+7. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
+8. Informe de matrícula del periodo actual.
+9. Llenar formulario de datos de los fiadores propuestos.
+10. Llenar el formulario de actualización de datos del deudor y de los fiadores que permanecen.
+f. Suspensión de estudios y/o desembolsos:
+1. Solicitud del prestatario para suspender plan de estudios.
+2. Breve justificación y documento que respalde la solicitud.
+3. Llenar formulario de actualización de datos del deudor y los fiadores.
+4. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
+5. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
+6. Informe de matrícula del periodo actual (En caso de que se encuentre matriculado)
+g. Modificación de plan de estudios y plan de desembolsos.
+1. Solicitud del prestatario para modificar plan de estudios y/o plan de desembolsos
+2. Breve justificación y documento que respalde la solicitud.
+3. Llenar formulario del nuevo cronograma de estudios y la nueva distribución del saldo disponible del préstamo.
+4. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
+5. Factura proforma extendida por la entidad educativa en la que va a realizar los estudios, con el costo de cada una de las materias, totalizada por ciclos lectivos.
+6. Informe de matrícula del periodo actual.
+7. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
+h. Cambio de garantía a otro tipo de garantía:
+1. Solicitud del prestatario para cambiar la garantía
+2. Breve justificación y documento que respalde la solicitud.
+3. El prestatario debe cumplir con los requisitos establecidos en éste reglamento según el tipo de garantía.
+4. La solicitud de cambio de garantía es analizada por la Sección de Desembolsos y Control de Crédito y resuelta por el Comité de Crédito.
+No aplican los incisos a, b y c., para la solicitud de préstamo aprobada en la modalidad de préstamo parcial.
+Si han transcurrido más de 30 días calendario después de finalizado el ciclo lectivo inmediato anterior, el prestatario debe presentar la certificación de notas pendientes de los ciclos anteriores.

@@ -1,0 +1,1 @@
+Artículo 60.—Transferencia electrónica del desembolso. Después de firmado el Contrato de Crédito para Estudios, la Sección de Desembolsos y Control de Crédito, por medio de los profesionales o jefatura, autoriza el desembolso a través de la Transferencia Electrónica de Desembolso, a la cuenta de ahorro del prestatario o por medio de cheque por vía de excepción.

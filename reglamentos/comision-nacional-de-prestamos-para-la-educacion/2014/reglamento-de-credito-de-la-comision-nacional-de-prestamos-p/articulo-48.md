@@ -1,0 +1,1 @@
+Artículo 48.—Sustitución y porcentaje de cobertura de la garantía hipotecaria por otro inmueble. La solicitud de una sustitución del bien hipotecado por otro inmueble, es resuelta por el Comité de Crédito. El valor de la nueva propiedad ofrecida debe cubrir al menos el 150% del monto aprobado, cuando es de primer grado o de 175% para el segundo grado que acepta CONAPE.

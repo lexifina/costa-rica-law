@@ -1,0 +1,1 @@
+Artículo 75.—Derogatoria. El presente reglamento deroga el Reglamento General de Crédito aprobado por el Consejo Directivo en sesión N° 20-5-2011, artículo 7, de fecha 31 de mayo de 2011 y publicado en La Gaceta N° 122, del 24 de junio de 2011.

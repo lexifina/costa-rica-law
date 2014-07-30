@@ -1,0 +1,1 @@
+Artículo 56.—Sanciones al prestatario. La Sección de Desembolsos y Control de Crédito por medio de los profesionales o jefatura, queda facultada para trasladar la operación crediticia a la fase de cobro cuando el prestatario incumple la reglamentación vigente y/o las causas o motivos establecidos en el Anexo 14.

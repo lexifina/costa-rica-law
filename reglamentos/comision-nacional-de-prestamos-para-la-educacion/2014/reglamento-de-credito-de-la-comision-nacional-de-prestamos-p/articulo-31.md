@@ -1,0 +1,1 @@
+Artículo 31.—Calendarios de entrega y recepción de solicitudes de préstamos y de desembolsos. La Secretaría Ejecutiva mediante Resolución Administrativa puede calendarizar los períodos de entrega y recepción de las solicitudes de préstamos y de desembolsos.

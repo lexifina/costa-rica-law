@@ -1,0 +1,1 @@
+Artículo 11.—Fijación de condiciones generales de los préstamos. Los topes de los préstamos por niveles de estudio, asignación de recursos, períodos de estudios, coberturas de las garantías, condiciones crediticias y otros lineamientos crediticios, son fijados por el Consejo Directivo de la Institución y establecidos en el Plan Anual de Crédito.

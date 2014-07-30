@@ -1,0 +1,1 @@
+Artículo 47.—Solicitud de un cambio de grado de una garantía hipotecaria a segundo grado o por otra garantía. La solicitud de un cambio de un primer grado hipotecario a un segundo o por otra garantía no hipotecaria, es resuelta por el Comité de Crédito, conforme a lo que establece este Reglamento.

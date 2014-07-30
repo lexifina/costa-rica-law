@@ -1,0 +1,1 @@
+Artículo 69.—Autorización al prestatario para tramitar la solicitud de ampliación del monto del préstamo. La Sección de Desembolsos por medio de sus profesionales o jefatura autoriza o no, por medio de un Acuerdo Administrativo, el trámite de la Solicitud de Ampliación del monto del préstamo, en las situaciones establecidas en el Anexo 18.

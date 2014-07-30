@@ -1,0 +1,1 @@
+Artículo 46.—Garantía hipotecaria cuando el inmueble se encuentra hipotecado a favor de CONAPE. Cuando todas las hipotecas que soporte el inmueble estén contraídas a favor de CONAPE, se podrá recibir la garantía en cualquier grado, de acuerdo con la reglamentación vigente.

@@ -1,0 +1,1 @@
+Artículo 37.—Verificación de lugar de trabajo del fiador. A cada fiador asalariado propuesto, los Profesionales de la Sección de Gestión y Análisis de Crédito, debe verificar - por los medios que CONAPE determine -, que el fiador propuesto labora en el lugar indicado en la constancia de salario.

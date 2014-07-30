@@ -1,0 +1,1 @@
+Artículo 30.—Topes crediticios de los préstamos. Los préstamos que CONAPE concede podrán cubrir los aranceles universitarios y otros rubros afines con los estudios, hasta por los topes que establezca el Consejo Directivo en el Plan Anual de Crédito.

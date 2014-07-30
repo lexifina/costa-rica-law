@@ -1,0 +1,1 @@
+Artículo 4°—Comité de Crédito. Habrá un Comité de Crédito que estará conformado por el Secretario Ejecutivo, quién lo preside, el Jefe del Departamento de Crédito y el Jefe del Departamento Financiero.

@@ -1,0 +1,1 @@
+Artículo 71.—Plazo para trasladar la operación crediticia a la fase de cobro. El traslado de la operación crediticia a cobro, lo realiza la Sección de Desembolsos y Control de Crédito, después de que se cumpla la fecha de vencimiento del período de estudios establecida en el Contrato de Crédito para Estudios, en un plazo máximo de 60 días calendario.
