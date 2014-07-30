@@ -1,1 +1,0 @@
-Artículo 34.—CONAPE desestimará la solicitud de préstamo al estudiante que no haya completado, los requisitos o documentos adicionales, que le haya solicitado el Departamento de Crédito después de la fecha de ingreso o registro de la solicitud, en un plazo de 15 días naturales transcurridos a partir de la fecha de la comunicación respectiva.

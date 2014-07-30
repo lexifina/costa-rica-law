@@ -1,1 +1,0 @@
-Artículo 26.—CONAPE aplica el Índice de Desarrollo Social Relativo establecido por el Ministerio de Planificación Nacional (MIDEPLAN) para los diferentes distritos del país y le asigna un mayor puntaje a los solicitantes provenientes de las zonas de menor desarrollo social relativo, de conformidad con lo que establece la Ley de Creación de CONAPE Nº 6041 (Anexo 4).

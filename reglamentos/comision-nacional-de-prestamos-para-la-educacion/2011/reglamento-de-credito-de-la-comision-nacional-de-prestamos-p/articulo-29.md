@@ -1,1 +1,0 @@
-Artículo 29.—Los préstamos que CONAPE concede podrán cubrir los aranceles universitarios y otros rubros afines con los estudios, hasta por el tope crediticio anual que establezca el Consejo Directivo en el Plan Anual de Crédito.

@@ -1,1 +1,0 @@
-Artículo 19.—Con la firma de la solicitud de préstamo, el solicitante declarará bajo juramento, que los datos suministrados son verdaderos. En caso de cualquier inconsistencia, CONAPE queda facultada a rechazarla sin responsabilidad alguna.

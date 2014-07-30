@@ -1,1 +1,0 @@
-Artículo 78.—El presente reglamento deroga el Reglamento General de Crédito aprobado por el Consejo Directivo en Sesión Nº 44, del 1 de noviembre de 2005, publicado en La Gaceta Nº 220, del 15 de noviembre de 2005 y sus reformas.

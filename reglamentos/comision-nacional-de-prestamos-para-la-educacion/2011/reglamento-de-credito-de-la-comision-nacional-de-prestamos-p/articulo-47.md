@@ -1,2 +1,0 @@
-Artículo 47.—CONAPE podrá aceptar garantías hipotecarias hasta tercer grado, cuando los grados hipotecarios anteriores estén contraídos con instituciones públicas o instituciones de reconocida trayectoria financiera a criterio del Comité de Crédito. Los casos excepcionales serán resueltos por el Consejo Directivo de CONAPE. En todos los casos el valor consignado en el avalúo debe cubrir no menos del 175% del monto aprobado.
-El saldo de las deudas no debe superar veinticinco millones de colones.

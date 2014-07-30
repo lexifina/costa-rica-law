@@ -1,1 +1,0 @@
-Artículo 77.—La actuación del Departamento de Crédito en la aplicación de este Reglamento, en lo que corresponda, se realiza mediante Acuerdo Administrativo firmado por el funcionario autorizado en cada Sección y por el Jefe inmediato.

@@ -1,1 +1,0 @@
-Artículo 63.—Los desembolsos suspendidos por la Sección de Desembolsos y Control de Crédito y los no tramitados por el prestatario, podrán ser autorizados, distribuidos entre los restantes o reprogramados, a solicitud escrita de éste, de acuerdo con el análisis y dictamen resuelto por Acuerdo Administrativo.

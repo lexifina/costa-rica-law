@@ -1,3 +1,0 @@
-Artículo 31.—CONAPE sólo financiará la deuda oficial en Costa Rica de aranceles universitarios del solicitante correspondiente al ciclo lectivo que cursa, mediante certificación de deuda e informe de matrícula, extendidos por la entidad educativa.
-El prestatario deberá presentar a la Sección de Desembolsos y Control de Crédito, el comprobante de pago de la deuda, con la solicitud del próximo desembolso, de lo contrario se traslada el préstamo al cobro inmediato, por incumplimiento del Contrato de Crédito para Estudios.
-El tope máximo de deuda que CONAPE financia es el establecido en el Plan Anual de Crédito.

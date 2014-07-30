@@ -1,1 +1,0 @@
-Artículo 38.—A cada fiador propuesto, la Sección de Gestión y Análisis de Crédito, deberá consultar el lugar de trabajo con el fin de verificarlo, con la empresa que CONAPE contrate para estos efectos, de conformidad con la normativa legal vigente.

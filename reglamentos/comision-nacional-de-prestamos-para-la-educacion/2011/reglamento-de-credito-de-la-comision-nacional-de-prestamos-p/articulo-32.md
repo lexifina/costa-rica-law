@@ -1,1 +1,0 @@
-Artículo 32.—El estudiante del nivel de estudios de pregrado y grado en Costa Rica, que demuestre que tiene beca total sobre los aranceles universitarios (no tiene deuda con la universidad por este concepto), podrá realizar la solicitud de préstamo para cubrir gastos de alojamiento, alimentación, transporte y otros costos de sostenimiento, durante el ciclo lectivo que cursa.

@@ -1,1 +1,0 @@
-Artículo 11.—Los topes de los préstamos por niveles de estudio, la asignación de recursos, tasas de interés, plazos de recuperación, comisiones y otras regulaciones crediticias, son establecidos por el Consejo Directivo.
