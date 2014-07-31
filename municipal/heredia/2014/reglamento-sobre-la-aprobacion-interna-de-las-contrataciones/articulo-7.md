@@ -1,0 +1,3 @@
+Artículo 7º—Plazo para resolver la solicitud de aprobación interna.
+a. La Asesoría de Gestión Jurídica atenderá las gestiones de aprobación interna de contratos en un plazo de quince días hábiles para licitaciones públicas y diez días hábiles en los restantes casos, el cual empezará a correr a partir del día hábil siguiente al recibo de la solicitud que cumpla con todos los requisitos de admisibilidad, en los términos del artículo 5, incisos a) y b) de este Reglamento.
+b. Ese plazo se interrumpirá y computará de nuevo cuando la Asesoría de Gestión Jurídica formule requerimientos de información adicionales que estime imprescindibles para el estudio de fondo del documento contractual respectivo, según lo establecido en el numeral 5, inciso c) de este reglamento.
