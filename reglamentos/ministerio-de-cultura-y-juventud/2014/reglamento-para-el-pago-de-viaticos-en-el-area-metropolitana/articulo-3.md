@@ -1,0 +1,1 @@
+Artículo 3º—El monto máximo a pagar por concepto de viáticos, así como los requisitos a observar para su tramitación, serán los estipulados en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
