@@ -1,0 +1,1 @@
+Artículo 14.—Tesorería Municipal. La Tesorería Municipal es la Unidad administrativa encargada de custodiar, controlar y fiscalizar la correcta administración de las garantías de participación y cumplimiento.

@@ -1,0 +1,9 @@
+Artículo 2º—Definiciones. Para los efectos del presente Reglamento se entiende por:
+a. Bienes: Todo objeto mueble o inmueble, material o inmaterial, susceptible de satisfacer las necesidades del interés público.
+b. Cartel de contratación: Pliego de condiciones administrativas, legales y técnicas bajo las cuales se rige el procedimiento de compra.
+c. Comisión de Contratación Administrativa: Órgano encargado de asesorar a las autoridades superiores en las competencias dadas en el sistema de suministros de la Municipalidad de Heredia, según lo dispuesto en el Reglamento a la Ley de Contratación Administrativa.
+d. Requisición de bienes y/o servicios: Documento para iniciar el trámite de contratación, emitido por la unidad solicitante, en donde se expresa la finalidad de la contratación, los recursos presupuestarios con que se atenderán las obligaciones derivadas de la contratación, se manifiesta que la Administración cuenta con los recursos humanos y la infraestructura administrativa suficiente para verificar el cumplimiento de la contratación.
+e. Estudio Legal: Verificación del cumplimiento de todos los aspectos legales establecidos en el cartel con respecto a los indicados por las ofertas presentadas dentro del marco jurídico y legal de acuerdo con la Ley y el Reglamento de Contratación Administrativa.
+f. Estudio Técnico: Verificación del cumplimiento de todos los aspectos técnicos indicados en el cartel con respecto a los indicados en las ofertas presentadas.
+g. Servicio: Conjunto de actividades y servicios ofrecidos, que por su naturaleza son intangibles y prestados por personas físicas o jurídicas a la institución, para el desarrollo de las actividades municipales.
+h. Unidad Solicitante: Unidad administrativa que solicita el bien o servicio y facilita las especificaciones técnicas de lo requerido.
