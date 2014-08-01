@@ -1,0 +1,4 @@
+Artículo 6º—Liquidación de compras:
+a) Cajas Chicas con Saldo de Efectivo: La liquidación de las compras debe realizarse dentro del mismo mes en que fueron realizadas compras, a más tardar el último día hábil del mes y la cuantía de cada factura no deberá superar el 25% del monto total autorizado para el fondo. La jefatura de la oficina es la encargada de autorizar y ejecutar el pago.
+b) Cajas Institucionales: La gestión de contabilización una vez recibida en forma satisfactoria el bien o servicio adquirido, dentro del mismo mes en que fueron realizadas las compras.
+La cuantía de cada factura no deberá superar el 100% del monto total autorizado para el fondo. La jefatura de la oficina es la encargada de autorizar la ejecución del pago, en la Dirección de Logística de Recursos Materiales o por medio de la tarjeta institucional.

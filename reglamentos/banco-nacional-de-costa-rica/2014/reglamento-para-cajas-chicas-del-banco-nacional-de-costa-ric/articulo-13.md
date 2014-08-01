@@ -1,0 +1,1 @@
+Artículo 13.—Retiro de efectivo. Para las cajas chicas detalladas en el artículo 2, inciso a, podrá hacerse retiros de efectivo para pagar facturas al contado, mediante la emisión de vales, los cuales deberán liquidar máximo un día hábil después de emitido el mismo.
