@@ -14,3 +14,4 @@ Reforma al Reglamento para el Uso, Custodia y Conservación de los teléfonos ce
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-19 | la propia norma |
+| 2 | 2014-08-01 | Decreto Ejecutivo 38621 (2014-08-01) |
