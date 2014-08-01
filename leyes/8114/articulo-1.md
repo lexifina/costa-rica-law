@@ -4,21 +4,21 @@ CAPÍTULO I
 Modificación de la carga tributaria
 que pesa sobre los combustibles
 Artículo 1º—Objeto, hecho generador y sujetos pasivos. Establécese un impuesto único por tipo de combustible, tanto de producción nacional como importado, según se detalla a continuación:
-Tipo de combustible por litro Impuesto en colones (¢)
-Gasolina regular 228,25
-Gasolina súper 239,00
-Diesel 135,25
-Asfalto 45,75
-Emulsión asfáltica 34,25
-Búnker 22,25
-LPG 45,75
-Jet Fuel A1 136,75
-Av Gas 228,25
-Queroseno 65,75
-Diesel pesado (Gasóleo) 44,25
-Nafta pesada 32,75
-Nafta liviana 32,75
-(Nota de Sinalevi: Los montos aquí establecidos, fueron actualizados por el artículo 1º del decreto ejecutivo N° 38332 del 7 de abril del 2014, mediante un ajuste del 2.04%)
+Tipo de combustible por litro | Impuesto en colones (¢)
+Gasolina regular | 233,00
+Gasolina súper | 244,00
+Diesel | 138,00
+Asfalto | 46,75
+Emulsión asfáltica | 35,00
+Búnker | 22,75
+LPG | 46,75
+Jet Fuel A1 | 139,50
+Av Gas | 233,00
+Queroseno | 67,00
+Diesel pesado (Gasóleo) | 45,25
+Nafta pesada | 33,50
+Nafta liviana | 33,50
+(Nota de Sinalevi: Los montos aquí establecidos, fueron actualizados por el artículo 1º del decreto ejecutivo N° 38597 del 3 de julio del 2014, mediante un ajuste del 2.06%)
 Se exceptúa del pago de este impuesto, el producto destinado a abastecer las líneas aéreas y los buques mercantes o de pasajeros en líneas comerciales, todas de servicio internacional; asimismo, el combustible que utiliza la Asociación Cruz Roja Costarricense, así como la flota de pescadores nacionales para la actividad de pesca no deportiva, de conformidad con la Ley Nº 7384.
 (Así reformado por el artículo 1° de la Ley N° 8451 del 13 de julio del 2005)
 El hecho generador del impuesto establecido en el primer párrafo ocurre, en la producción nacional, en el momento de la fabricación, la destilación o la refinación, entendiendo por producción nacional el momento en el cual un producto está listo para la venta, lo que excluye su reproceso, y en la importación o internación, el momento de la aceptación de la declaración aduanera.
