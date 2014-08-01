@@ -1,0 +1,1 @@
+Artículo 39.—En casos excepcionales en los que se autoricen las visitas fuera de horario ordinario por parte de los Directores Regionales de Áreas de Conservación, se aplicará un 50% adicional sobre las tarifas de ingreso a las áreas silvestres protegidas indicadas en el presente decreto ejecutivo.

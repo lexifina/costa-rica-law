@@ -1,0 +1,1 @@
+Artículo 41.—Los recursos económicos obtenidos con la aplicación del presente decreto ejecutivo, serán depositados en el Fondo de Parques Nacionales, creado por la Ley de Creación del Servicio de Parques Nacionales Nº 6084 del 24 de agosto de 1977.

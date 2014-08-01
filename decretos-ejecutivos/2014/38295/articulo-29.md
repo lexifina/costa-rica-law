@@ -1,0 +1,1 @@
+Artículo 29.—Quedan exentas del pago de esta tarifa las filmaciones de aficionados que pretendan únicamente la preservación de un recuerdo de la visita al Área Silvestre Protegida y que por ello no persigue fines comerciales o de lucro.

@@ -1,0 +1,2 @@
+Artículo 40.—En situaciones de emergencia, la Administración podrá decretar cierres temporales, incluidas las ASP que tienen sistema de reservaciones para la visitación.
+En virtud de lo anterior, las ASP en las que se haya dado el cierre podrán reprogramar la visita conforme a la disponibilidad de espacio de dicha área o realizar la devolución de dinero, previa solicitud del visitante afectado en su reservación ante el Área de Conservación respectiva.

@@ -1,0 +1,1 @@
+Artículo 20.—El número máximo de personas en la zona de uso público se establecerá mediante estudios técnicos que elaborará el Área de Conservación responsable del ASP, los cuales respaldarán esta determinación. Los Estudios Técnicos serán custodiados por las Áreas de Conservación a efectos de poder ser consultados por particulares interesados.

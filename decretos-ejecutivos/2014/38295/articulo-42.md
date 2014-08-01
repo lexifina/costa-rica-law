@@ -1,0 +1,1 @@
+Artículo 42.—Deróguese el Decreto Ejecutivo Nº 34164-MINAE del 05 de diciembre del 2007, a partir de la entrada en vigencia del presente decreto ejecutivo, de conformidad a lo indicado en el Transitorio I y artículo 43.

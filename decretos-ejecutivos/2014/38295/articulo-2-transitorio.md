@@ -1,0 +1,1 @@
+Transitorio II.—A partir de la entrada en vigencia del presente decreto a las tarifas indicadas en los numerales anteriores, se les debe aplicar la tarifa del impuesto indicado en el numeral 10 de la Ley de Impuesto General sobre las Ventas, Nº 6826 del 08 de noviembre de 1982.

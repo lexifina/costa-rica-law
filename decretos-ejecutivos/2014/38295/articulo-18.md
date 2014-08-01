@@ -1,0 +1,6 @@
+Artículo 18.—Quedan exentos del pago de las tarifas de ingreso a las áreas silvestres protegidas, los siguientes tipos de personas y organizaciones:
+a) Las personas menores de dos años de edad.
+b) Las personas que visitan el Área Silvestre Protegida en misión oficial, siempre que la misión guarde relación con los fines del Sistema Nacional de Áreas de Conservación (SINAC).
+c) Las personas u organizaciones que demuestren a la Administración, que su ingreso al ASP es en apoyo a la conservación y manejo de los recursos naturales. Previo al ingreso, los miembros de las agrupaciones exoneradas deberán portar carné de identidad que los identifique como tales.
+d) Los visitantes residentes mayores de 65 años, con carné de Ciudadano de Oro expedido por la Caja Costarricense de Seguro Social (CCSS).
+e) Los estudiantes de centros educativos (nivel de primaria y secundaria) ubicados en distritos con menor desarrollo social relativo, según el índice de desarrollo social establecido por el Ministerio de Planificación Nacional y Política Económica (MIDEPLAN); así como aquellos ubicados en las comunidades más cercanas a las áreas silvestres protegidas. f) Funcionarios y funcionarias del SINAC, los que en todo caso deberán acreditar esta condición, aportando el carné institucional vigente.

@@ -1,0 +1,1 @@
+Artículo 28.—Para el Parque Nacional Cahuita, sector marino, la tarifa por derecho de filmación diaria será de quinientos dólares -moneda del curso legal en los Estados Unidos de América- ($500,00) o su equivalente en colones.

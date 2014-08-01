@@ -1,0 +1,8 @@
+CAPÍTULO III
+Tarifas de ingreso para ejecutar investigaciones autorizadas
+por el SINAC, dentro de áreas silvestres protegidas
+Artículo 21.—Por derecho de ingreso y permanencia para realizar investigaciones de carácter científico debidamente autorizadas por el SINAC, dentro de las Áreas Silvestres Protegidas bajo su administración y durante el período que estipule la autorización respectiva, los investigadores residentes y no residentes, así como sus asistentes debidamente acreditados y autorizados, pagarán las siguientes sumas por persona:
+● Por una estadía de hasta de 3 meses, cinco dólares diarios- moneda del curso legal en los Estados Unidos de América- ($5,00) o su equivalente en colones, al tipo de cambio del Banco Central de Costa Rica publicado vigente para el día de la compra de la entrada respectiva.
+● Por una estadía de hasta 6 meses, diez dólares diarios- moneda del curso legal en los Estados Unidos de América- ($10,00) o su equivalente en colones, al tipo de cambio del Banco Central de Costa Rica publicado vigente para el día de la compra de la entrada respectiva.
+● Por una estadía de hasta 12 meses, quince dólares diarios- moneda del curso legal en los Estados Unidos de América- ($15,00) o su equivalente en colones, al tipo de cambio del Banco Central de Costa Rica publicado vigente para el día de la compra de la entrada respectiva.
+Toda autorización para realizar investigaciones dentro de las Áreas Silvestres Protegidas administradas por el SINAC, se otorgará conforme a los procedimientos y requisitos que para su ejecución establece el ordenamiento jurídico vigente.

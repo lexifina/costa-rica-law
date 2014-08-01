@@ -1,0 +1,1 @@
+Transitorio I.—Las tarifas contenidas en el presente Decreto Ejecutivo, empezarán a regir tres meses a partir de su publicación en el Diario Oficial La Gaceta, por lo que todas aquellas compras de entradas adquiridas con anterioridad a esta publicación, mantendrán la tarifa anterior y su vigencia hasta hacerlas efectivas ante la administración de las ASP.

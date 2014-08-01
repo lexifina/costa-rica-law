@@ -1,0 +1,1 @@
+Artículo 25.—Previo a efectuar cualquier labor de investigación en un Área Silvestre Protegida, el investigador deberá cumplir con todos los requisitos y trámites establecidos en la Ley de Conservación de la Vida Silvestre, la Ley de Biodiversidad y la reglamentación existente en el Sistema Nacional de Áreas de Conservación, para estos casos.
