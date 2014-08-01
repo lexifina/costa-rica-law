@@ -1,0 +1,1 @@
+2º—Proponer al Ministerio de Comercio Exterior que, mediante los mecanismos de administración de Tratados existentes, se defina el concepto y alcance de términos tales como “almacenamiento temporal”, “transporte y depósito” y “depósito temporal”.
