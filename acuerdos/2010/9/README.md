@@ -1,0 +1,16 @@
+# Acuerdo 9
+
+Política y Procedimiento Retiros Temporales e Indefinidos
+
+- Tipo: Acuerdo
+- Número: 9
+- Fecha: 2010-05-03
+- Ente emisor: Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes
+- Publicación: La Gaceta N° 147 del 2014-08-01
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=77697&param2=97557&param3=1 (ficha 77697)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2014-08-01 | la propia norma |
