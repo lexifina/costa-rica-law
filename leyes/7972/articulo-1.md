@@ -7,12 +7,11 @@ TRIBUTOS
 SECCIÓN I
 IMPUESTO ESPECÍFICO SOBRE LAS BEBIDAS ALCOHÓLICAS
 Artículo 1º—Créase un impuesto específico por cada mililitro de alcohol absoluto contenido en cualquier bebida alcohólica de producción nacional o importada, indistintamente de su presentación, según la concentración de alcohol por volumen, de acuerdo con la siguiente tabla:
-Porcentaje de alcohol Impuesto (colones por mililitro
-por volumen de alcohol absoluto)
-Hasta 15% 3,11
-Más de 15% y hasta 30% 3,73
-Más de 30% 4,34
-(Los montos de este impuesto fueron actualizados mediante el artículo 1º de la resolución N° DGT-R-17-2014 del 3 de abril del 2014, mediante un ajuste del 2.04 %)
+Porcentaje de alcohol por volumen | Impuesto (colones por mililitro de alcohol absoluto)
+Hasta 15% | 3.17
+Más de 15% y hasta 30% | 3.81
+Más de 30% | 4.43
+(Los montos de este impuesto fueron actualizados mediante el artículo 1º de la resolución N° DGT-R-28-2014 del 3 de julio del 2014, mediante un ajuste del 2.06 %)
 Este impuesto no se aplicará a las bebidas de producción nacional destinadas a la exportación.
 (Así reformado por el artículo 1° de la Ley N° 8399 de 19 de diciembre de 2003).
 NOTA DE SINALEVI: Mediante el artículo N° 3 de la Ley 8399 de 19 de diciembre de 2003, se exonera del pago de este impuesto el vino utilizado para el ritual de la consagración de la Iglesia Católica. Asimismo, sobre la actualización de este impuesto véase el Transitorio Único de la ley referida.
