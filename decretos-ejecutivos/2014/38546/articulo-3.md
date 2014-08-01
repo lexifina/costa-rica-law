@@ -1,0 +1,1 @@
+Artículo 3º—Deróguese el transitorio II del Decreto Ejecutivo N° 38295-MINAE denominado “Tarifas por derechos de ingreso y otros servicios ofrecidos en las áreas silvestres protegidas bajo la administración del Sistema Nacional de Áreas de Conservación”, publicado el 30 de abril del 2014 en La Gaceta Nº 82.
