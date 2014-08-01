@@ -14,3 +14,4 @@ Tarifas por derechos de ingreso y otros servicios ofrecidos en las Áreas Silves
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-01 | la propia norma |
+| 2 | 2014-08-01 | Decreto Ejecutivo 38546 (2014-07-30) |
