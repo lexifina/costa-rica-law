@@ -14,3 +14,4 @@ Reglamento del Registro del Estado Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-08-14 | la propia norma |
+| 2 | 2014-08-04 | Decreto TSE 5 (2014-08-04) |

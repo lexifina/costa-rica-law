@@ -1,1 +1,3 @@
-Artículo 37.—En la declaración de matrimonios católicos, si de los estudios se comprueba que hay un matrimonio civil inscrito entre los mismos contrayentes, ésta será enviada a la Sección de Actos Jurídicos para que se proceda a realizar la respectiva razón que relacione dicho matrimonio.
+Artículo 37.—En la declaración de matrimonios católicos, si de los estudios se comprueba que hay un matrimonio civil celebrado posteriormente inscrito entre los mismos contrayentes, esta será enviada a la Sección de Actos Jurídicos para que se proceda a realizar la respectiva anotación.
+La Sección de Inscripciones verificará que se cumpla los requisitos legales exigidos para el tipo de celebración y advertirá aquellos que deban ser comunicados a las autoridades eclesiásticas correspondientes.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 5-2014 del 4 de agosto del 2014)

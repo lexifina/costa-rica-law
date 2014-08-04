@@ -1,1 +1,5 @@
-Artículo 42.—En el término de ocho días, las personas Registradoras Auxiliares deberán remitir al Registro Civil los certificados que contengan la información de las defunciones que les hayan sido declaradas.
+Artículo 42.—En el término de ocho días, los Registradores Auxiliares deberán remitir al Registro Civil los certificados que contengan la información de las defunciones que les hayan sido declaradas.
+La Sección de Inscripciones comunicará a la Inspección Electoral aquellos casos en que se incumpla dicho plazo por parte de registradores auxiliares institucionales para que inicie la investigación correspondiente.
+Tratándose de Registradores Auxiliares de hospitales o clínicas privadas, la Sección de Inscripciones comunicará al respectivo director la situación acaecida para que se tomen las acciones correctivas pertinentes, de lo cual deberá informar a dicha Sección o de lo contrario se expondrá a lo señalado en el párrafo segundo del artículo 4 del presente reglamento.
+Si el Registrador es profesional en medicina, se comunicará al Colegio de Médicos la situación acaecida para que se dé inicio a la investigación correspondiente, sin perjuicio de exponerse a lo señalado en el párrafo segundo del artículo 4 del presente reglamento.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 5-2014 del 4 de agosto del 2014)
