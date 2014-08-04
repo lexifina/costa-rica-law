@@ -14,3 +14,4 @@ Procedimiento de subasta pública aduanera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-19 | la propia norma |
+| 2 | 2014-08-04 | Resolución 229 (2014-08-04) |
