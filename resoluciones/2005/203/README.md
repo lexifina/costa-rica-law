@@ -75,3 +75,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 60 | 2014-07-09 | Resolución 154 (2014-07-09) |
 | 61 | 2014-07-09 | Resolución 155 (2014-07-09) |
 | 62 | 2014-07-30 | Resolución 226 (2014-07-30) |
+| 63 | 2014-08-04 | Resolución 229 (2014-08-04) |
