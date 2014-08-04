@@ -1,1 +1,1 @@
-Artículo 12.—Asignación del servicio de telefonía celular, dispositivos y accesorios. La línea, dispositivo y accesorios de telefonía celular, son asignados al puesto, según lo establecido en el artículo 7° del presente reglamento.
+Artículo 12.—Asignación del servicio de telefonía celular, dispositivos y accesorios. La línea, dispositivo y accesorios de telefonía celular, son asignados al puesto, según lo establecido en el artículo 7 del presente reglamento.

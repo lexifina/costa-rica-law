@@ -1,6 +1,6 @@
 CAPÍTULO III
-Obligaciones y prohibiciones de las personas
-usuarias del servicio y de las jefaturas
+Obligaciones y prohibiciones de las personas usuarias
+del servicio y de las jefaturas
 Artículo 15.—Obligaciones. Son obligaciones de la persona funcionaria que utiliza la línea y/o dispositivo celular:
 a) Hacer uso de la línea, dispositivo y accesorio de telefonía celular para labores atinentes a su cargo.
 b) Velar por el cuido y mantenimiento de la línea, dispositivo y accesorio de telefonía celular a su cargo.
