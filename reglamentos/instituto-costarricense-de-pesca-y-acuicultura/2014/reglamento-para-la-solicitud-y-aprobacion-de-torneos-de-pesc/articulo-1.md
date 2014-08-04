@@ -1,0 +1,45 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+AJDIP/073-2014.—Puntarenas, a los catorce días del mes de marzo de dos mil catorce.
+Considerando:
+1º—Se presenta por parte de la Comisión Nacional de Pesca Deportiva - Turística para su conocimiento y aprobación de éste Órgano Colegiado, la propuesta de Reglamento para la solicitud de realización de Torneos de Pesca Deportiva - Turística.
+2º—Debidamente analizada esta propuesta, consideran los Sres. Directores que la misma responde a las necesidades de establecer con claridad meridiana las pautas mínimas a seguir para la celebración de Torneos de Pesca Deportiva y Turística; la razón por la cual, la Junta Directiva. Por tanto,
+ACUERDA:
+1º—Aprobar el Reglamento para la solicitud de realización de Torneos de Pesca Deportiva-Turística, en los siguientes términos y condiciones:
+REGLAMENTO PARA LA SOLICITUD DE REALIZACIÓN
+DE TORNEOS DE PESCA DEPORTIVA - TURÍSTICA
+1º—Definiciones (Según la Ley 8436)
+Autorización: Acto administrativo mediante el cual el Instituto Costarricense de Pesca y Acuicultura (INCOPESCA) habilita a personas físicas o jurídicas para que desarrollen la actividad acuícola y de pesca en los términos indicados en esta Ley.
+Autoridad Ejecutora: Instituto Costarricense de Pesca y Acuicultura (INCOPESCA).
+Desembocadura: Sitio o lugar donde un río, un estero o laguna confluye con el mar o el océano, y cuya área de influencia acuática se extiende a un semicírculo de un kilómetro de radio, a partir del centro de dicha boca.
+Licencia: Acto administrativo mediante el cual el INCOPESCA le confiere a una persona física o jurídica el derecho para que realice en una determinada embarcación, en los términos y las condiciones establecidos en dicho acto, la extracción y el aprovechamiento sostenible de recursos marinos, pesqueros e hidrobiológicos en aguas marinas y continentales.
+Permiso: Acto administrativo especial, mediante el cual se autoriza a personas físicas o jurídicas, públicas o privadas, para que ejerzan actividades pesqueras y acuícolas de fomento, didáctica y con fines investigativos, en los términos indicados en la Ley 8436
+Pesca deportiva: La pesca deportiva es una actividad de pesca que realizan personas físicas, nacionales o extranjeras, con el fin de capturar, con un aparejo de pesca personal apropiado para el efecto, especies acuáticas en aguas continentales, jurisdiccionales o en la zona económica exclusiva, sin fines de lucro y con propósito de deporte, distracción, placer, recreo, turismo o pasatiempo. Además, el INCOPESCA establecerá diferentes tipos de carnés de pesca según el tiempo de vigencia de estos.
+Pesca turística: Entiéndase como pesca turística la actividad pesquera que realizan personas físicas, nacionales o extranjeras, con el fin de capturar, con un aparejo de pesca personal apropiado para el efecto, recursos acuáticos pesqueros en aguas continentales, jurisdiccionales o en la zona económica exclusiva, con fines comerciales y propósitos exclusivamente turísticos, llevados a cabo en forma permanente; asimismo, a la pesca turística le serán aplicables, por analogía, las disposiciones establecidas en los artículos 69 a 76 de la Ley.
+Las embarcaciones dedicadas a esta actividad, deberán estar registradas en el ICT y contarán con una licencia especial otorgada por el INCOPESCA para este propósito. Dicha licencia podrá ser prorrogada mediante autorización del INCOPESCA, previo estudio y revisión anual, a fin de determinar que la embarcación esté siendo utilizada para tal propósito. Además, el INCOPESCA establecerá diferentes tipos de carnés de pesca según el tiempo de vigencia de estos.
+El INCOPESCA fomentará la práctica y el desarrollo de la pesca turística, en coordinación con el ICT y los demás sectores interesados. También velará porque su personal reciba la capacitación necesaria para el cumplimiento de los fines propuestos; impulsará la práctica de liberar las especies capturadas vivas y establecerá pautas y normas que garanticen la sostenibilidad del uso de las especies prioritarias para esta actividad.
+Pescador: Persona dedicada a la actividad de la pesca.
+Recursos pesqueros marinos, y de agua dulce: Todos los organismos vivos cuyo medio y ciclo de vida total, parcial o temporal que se desarrollan dentro del medio acuático marino, o de agua dulce, y que son susceptibles de ser extraídos sosteniblemente.
+Recursos marinos costeros y de agua dulce: Los recursos marinos costeros y de agua dulce son: las aguas del mar, las playas, los playones y la franja del litoral, las bahías, las lagunas costeras, los manglares, los arrecifes de coral, los pastos marinos, es decir, las praderas de fanerógamas marinas, los estuarios, ríos, lagunas, las bellezas escénicas, los seres vivos y su entorno, contenidos en el agua del mar u océano territorial y patrimonial, la zona económica exclusiva y su zócalo insular y de agua dulce.
+Torneos de pesca: son aquellas actividades de pesca organizadas en agua dulce, y marinas por personas físicas y jurídicas cuyo fin es la participación de pescadores debidamente autorizados en una competencia con fines de esparcimiento y recreo.
+2º—Conforme al artículo 8 de la Ley 8436, los torneos de pesca deberán practicarse sin producir daños irreparables a los ecosistemas, sin entorpecer la navegación, la utilización y el curso natural de las aguas. Asimismo, deberán realizarse procurando respetar los derechos de terceros legítimamente adquiridos.
+3º—Corresponde al INCOPESCA el control de la actividad pesquera en aguas marinas interiores y exteriores y agua dulce, por lo cual antes de realizarse un torneo de pesca, deberá tramitarse ante la Comisión Nacional de Pesca Deportiva Turística, a quien le corresponderá elevar recomendación a la Junta Directiva del INCOPESCA para su autorización, conforme a las disposiciones del presente reglamento. En casos de excepción los interesados podrán elevar su solicitud directamente ante la Junta Directiva.
+4º—Disposiciones para el otorgamiento de permisos de torneos de pesca:
+a) Se permitirá la realización de torneos de pesca a personas físicas y jurídicas, tratándose de personas física estas deberán presentar su cedula de identidad o residencia, en el caso de personas jurídicas deberán aportar su personería al día.
+b) Los solicitantes deberán acatar todas las disposiciones vigentes en materias de zonas de veda, áreas protegidas, tallas y cantidad de especímenes por especie.
+c) Toda solicitud deberá ser presentada por escrito con un mínimo de 30 días naturales de anticipación a la fecha del torneo y debidamente firmado por la persona física o jurídica organizadora de este. Cuando se requiera el establecimiento de una veda temporal a la pesca comercial durante el torneo, la solicitud de autorización deberá ser presentada con 60 días naturales de anticipación.
+Para lo cual se establecen los siguientes requisitos de información:
+• Lugar y fecha del torneo.
+• Responsable directo de la actividad.
+• Número aproximado de participantes.
+• Especies objeto del torneo.
+• Tipo de torneo: por ejemplo: pesca de orilla en el mar, ríos, lagos, esteros y lagunas, pesca con embarcación de pequeña escala, pesca de grandes pelágicos, etc.
+• Copia del reglamento del torneo.
+• Categorías, modalidades.
+• Presentación del croquis del área o zona del torneo con sus coordenadas, el cual no deberá contemplar dentro de la misma ningún área o zona restringida, Reserva Biológica o Parque Nacional.
+• Requerimientos de veda temporal para la pesca comercial si el torneo lo amerita.
+• En caso de aprobarse una zona de veda temporal a la pesca comercial durante el torneo, el organizador correrá con todos los gastos de publicación del Acuerdo en el Diario Oficial La Gaceta.
+• Dirección postal o electrónica para notificaciones.
+El organizador del torneo deberá presentar a la Junta Directiva del INCOPESCA, un informe de los resultados del evento, así como copia de los permisos respectivos.
+5º—Para los efectos correspondientes se utilizará el Formulario de solicitud para realizar Torneos de Pesca, que se adjunta en el anexo I y forma parte del presente reglamento.
+6º—Los organizadores del torneo deberán velar que se cumplan todas las previsiones que resulten necesarias para garantizar la seguridad de los participantes de acuerdo a la legislación vigente y a la información disponible.
