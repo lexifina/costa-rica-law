@@ -14,3 +14,4 @@ Formulario para solicitud de licencia de obra mayor de la Municipalidad de Monte
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-13 | la propia norma |
+| 2 | 2014-08-04 | Acuerdo municipal 0 (2014-08-04) |
