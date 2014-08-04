@@ -23,5 +23,6 @@ El AC ejercerá, entre otras, las siguientes funciones:
 15) Velar por que toda compra de materiales y equipo que se pretenda tramitar, no esté en existencia en los almacenes de la Institución. En caso de que exista dicho material o equipo en los Almacenes, se deberá comprobar que existe una disposición que imposibilite su utilización.
 16) Verificar que el contratista se encuentra al día con el pago de las cuotas obrero patronales de los proveedores, cuando corresponda y remitir dicho documento al expediente administrativo de la contratación respectiva que custodia la Proveeduría.
 17) Participar en aquellas audiencias previas para la confección del cartel que se realicen.
-18) Cumplir con los lineamientos establecidos en la Norma General para la Administración de Contratos (Código Normativo 16.00.055.2009), en los procesos de contratación de obras, bienes y servicios que estén bajo su responsabilidad.
+18) Cumplir con los lineamientos establecidos en la Norma General para la Administración de Contratos vigentes en los procesos de contratación de obras, bienes y servicios que estén bajo su responsabilidad.
+(Así reformado el inciso anterior mediate sesión N° 6102 del 4 de agosto del 2014)
 19) Verificar que las compras que se realicen bajo la modalidad de proyecto se rijan según corresponda por el Procedimiento Administración de Proyectos 20-00-001.2005.

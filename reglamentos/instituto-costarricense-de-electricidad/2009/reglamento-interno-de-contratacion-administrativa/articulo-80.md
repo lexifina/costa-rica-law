@@ -1,6 +1,7 @@
-Artículo 80.— La División de Planificación Financiera será la responsable de revisar la cuantificación de los daños y perjuicios producto de una resolución o rescisión contractual.
+Artículo 80.—La División Operaciones Financieras será la responsable de revisar la cuantificación de los daños y perjuicios producto de una resolución o rescisión contractual.
 Para los casos de rescisión contractual se actuará según lo indicado en el artículo 107 del presente reglamento. En caso de resolución contractual el procedimiento será el siguiente:
 A) El AC deberá determinar si se ocasionaron daños o perjuicios a la Administración. Una vez identificados los daños y perjuicios ocasionados, se debe indicar la metodología de cálculo empleada, anexar la memoria de cálculo y la prueba fehaciente que respalde la cuantificación en cuestión.
-B) El AC en coordinación con el CCA remitirá a la División de Planificación Financiera aquellos casos donde existan daños y perjuicios para emitir un criterio financiero sobre el análisis realizado por el AC. La División de Planificación Financiera tendrá un plazo de 10 días hábiles para rendir el informe correspondiente.
-De determinar el AC en conjunto con el CCA de dicha dependencia, que no se presentaron daños y perjuicios a la Institución , no se solicitará valoración adicional alguna y se continuará con el trámite conforme corresponda.
-C) El informe de la División de Planificación Financiera será remitido al AC para que continúe con el procedimiento de resolución contractual ante la Proveeduría.
+B) El AC en coordinación con el CCA remitirá a la División Operaciones Financieras aquellos casos donde existan daños y perjuicios para emitir un criterio financiero sobre el análisis realizado por el AC. La División de Operaciones Financieras tendrá un plazo de 10 días hábiles para rendir el informe correspondiente.
+De determinar el AC en conjunto con el CCA de dicha dependencia, que no se presentaron daños y perjuicios a la Institución, no se solicitará valoración adicional alguna y se continuará con el trámite conforme corresponda.
+C) El informe de la División Operaciones Financieras será remitido al AC para que continúe con el procedimiento de resolución contractual ante la Proveeduría.
+(Así reformado mediante sesión N° 6102 del 4 de agosto del 2014)

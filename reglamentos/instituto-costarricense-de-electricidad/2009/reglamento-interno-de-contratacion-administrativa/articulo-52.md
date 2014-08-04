@@ -1,6 +1,7 @@
 Artículo 52.—En el caso de prórrogas de alquiler de bienes inmuebles, ésta deberá ser aprobada por la Dirección Administrativa de Bienes Inmuebles, según lo dispuesto en la Política de Bienes Inmuebles y su reglamento vigentes a la fecha, aplicando para ello la Ley de Arrendamientos Urbanos y Suburbanos.
 La solicitud de aprobación deberá incluir la justificación técnica del AC con el visto bueno del Director de la dependencia interesada, que demuestre que existe la necesidad de prorrogar la contratación, justificación que deberá incorporarse al expediente administrativo.
 Dicha prórroga deberá ser notificada a la Proveeduría y no requerirá dictamen legal.
-En aquellos casos en que opere una prórroga tácita se requerirá además de lo anterior el dictamen legal.
-Será responsabilidad del AC tramitar, con al menos un mes de antelación al vencimiento del contrato, la dotación de contenido presupuestario, emisión de la orden de servicio por parte de la Proveeduría , así como contar con las aprobaciones respectivas.
+En aquellos casos en que opere una prórroga tácita, se deberá dejar evidencia en el expediente respectivo, además de lo anterior, las justificaciones que fundamentan la prórroga tácita de conformidad con la Ley de Arrendamientos Urbanos y Suburbanos. Además, de lo anterior, se requerirá dictamen legal.
+Será responsabilidad del AC tramitar, con al menos un mes de antelación al vencimiento del contrato, la dotación de contenido presupuestario, emisión de la orden de servicio por parte de la Proveeduría, así como contar con las aprobaciones respectivas.
 En los casos de prórrogas a contrataciones directas basadas en la excepción de arrendamiento de bienes únicos, se deberá incluir en el expediente respectivo la justificación técnica del AC, que demuestre que las condiciones de excepción que originaron la contratación se mantienen. En estos casos no se requerirá dictamen legal.
+(Así reformado mediante sesión N° 6102 del 4 de agosto del 2014)

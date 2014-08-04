@@ -18,3 +18,4 @@ Reglamento Interno de Contratación Administrativa
 | 3 | 2011-06-07 | Reglamento 5951 (2011-06-07) |
 | 4 | 2013-05-15 | SINALEVI (sin norma nombrada) |
 | 5 | 2013-05-15 | Reglamento 6039 (2013-05-15) |
+| 6 | 2014-08-04 | Reglamento 6102 (2014-08-04) |
