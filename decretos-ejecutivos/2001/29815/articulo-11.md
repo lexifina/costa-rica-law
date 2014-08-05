@@ -1,1 +1,0 @@
-Artículo 11.—Becarios. Podrá aspirar a la Beca-Taller para Proyectos de Desarrollo Artístico-Cultural, todo creador, investigador, intérprete, escritor o promotor cultural, en forma individual o en equipo. En este último caso, el proyecto será coordinado por uno de ellos, quien será responsable del proyecto, siempre y cuando los objetivos planteados así lo justifiquen.

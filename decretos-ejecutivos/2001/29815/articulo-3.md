@@ -1,1 +1,0 @@
-Artículo 3º—Competencia. La Dirección General de Cultura, del Ministerio de Cultura, Juventud y Deportes, será la oficina competente para la aplicación del presente reglamento, y tendrá bajo su administración el Programa Becas-Taller para Proyectos de Desarrollo Artístico-Cultural.

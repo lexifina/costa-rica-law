@@ -1,2 +1,0 @@
-Artículo 12.—Comunicación. La Comisión Evaluadora deberá comunicar al Director General de Cultura, a más tardar el 30 de setiembre, la lista de participantes seleccionados como beneficiarios del Programa Becas-Taller para Proyectos de Desarrollo Artístico- Cultural. La Dirección General de Cultura a su vez, hará lo anterior de conocimiento del Ministro (a), con la finalidad que se proceda a la elaboración de la resolución administrativa correspondiente.
-(Así reformado mediante Decreto 32208 del 27 de agosto del 2004)

@@ -1,2 +1,0 @@
-Artículo 8º—Plazo de recepción. La Dirección General de Cultura y las Direcciones Regionales de Cultura, recibirán a partir del primer día hábil de enero y hasta el último día hábil de julio, los proyectos de los postulantes al beneficio de la Beca - Taller, que corresponden a cada región. Durante los meses de febrero a junio, la Dirección General de Cultura, ofrecerá capacitación para la formulación de los citados proyectos.
-(Así reformado mediante Decreto 32208 del 27 de agosto del 2004)
