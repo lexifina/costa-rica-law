@@ -1,0 +1,1 @@
+II.—Establecer que a partir del 1 de noviembre del presente año, la información estadística de envió regular, de periodicidad mensual y referente al mercado eléctrico del servicio de distribución eléctrica, será recibida por la Autoridad Reguladora, únicamente con la estructura establecida y que es detallada en el anexo 1 de esta resolución.
