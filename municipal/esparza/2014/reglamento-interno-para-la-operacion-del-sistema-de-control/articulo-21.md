@@ -1,0 +1,1 @@
+Artículo 21.—Diseño y propuesta. La Unidad de Planificación presentará a la comisión de control interno, para su aprobación e implementación, la metodología e instrumentos para la aplicación de la autoevaluación anual del control interno y la administración del riesgo.

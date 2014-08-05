@@ -1,0 +1,1 @@
+Artículo 11.—Conformación. Estará integrada por el Alcalde o por quien este delegue, dos Gestores de Área, un coordinador de unidad, un técnico administrativo, gestor de Planificación y un representante del Concejo Municipal. Esto mediante oficio formal del Alcalde.

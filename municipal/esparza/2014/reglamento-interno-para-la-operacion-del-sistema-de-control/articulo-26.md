@@ -1,0 +1,1 @@
+Artículo 26.—Registro de información. Los titulares subordinados y los gestores de área tienen la obligatoriedad de llevar un registro (archivo) con toda la documentación que genere las autoevaluaciones, monitoreo de las recomendaciones implantadas.

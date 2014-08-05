@@ -1,0 +1,1 @@
+Artículo 10.—Función. Será un órgano staff del máximo jerarca administrativo (Alcalde) con el objetivo de coordinar, en el ámbito institucional, las acciones orientadas al fortalecimiento del sistema de control interno y el alineamiento entre indicadores operativos y el cumplimiento de la visión y misión.

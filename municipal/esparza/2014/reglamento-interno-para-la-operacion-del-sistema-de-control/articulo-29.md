@@ -1,0 +1,1 @@
+Artículo 29.—Metodología. La metodología para la valoración y gestión de riesgos institucionales, deberá considerar la sistematización y descripción de actividades básicas como: identificación, análisis, evaluación, administración, revisión, documentación y comunicación.

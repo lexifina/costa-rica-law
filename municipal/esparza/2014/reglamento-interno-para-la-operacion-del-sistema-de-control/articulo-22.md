@@ -1,0 +1,1 @@
+Artículo 22.—Cuestionario de autoevaluación. El cuestionario de autoevaluación podrá ser modificado y adaptado año con año de acuerdo con la realidad institucional los indicadores previos establecidos.

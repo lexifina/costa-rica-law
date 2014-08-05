@@ -1,0 +1,1 @@
+Artículo 25.—Seguimiento. Los titulares subordinados y los gestores de área deben dar seguimiento e informar periódicamente a la comisión de control interno sobre las gestiones realizadas para el fortalecimiento del sistema de control interno y de la administración del riesgo.

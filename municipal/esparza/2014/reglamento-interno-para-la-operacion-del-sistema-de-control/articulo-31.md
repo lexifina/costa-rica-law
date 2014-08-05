@@ -1,0 +1,1 @@
+Artículo 31.—Responsabilidad de los titulares subordinados y órganos específicos en la operación del Sistema de Valoración de Riesgos (SEVRI). Se definen como responsables de la operación de SEVRI todos los funcionarios u órganos de la institución citados en el artículo 8 del presente Reglamento.

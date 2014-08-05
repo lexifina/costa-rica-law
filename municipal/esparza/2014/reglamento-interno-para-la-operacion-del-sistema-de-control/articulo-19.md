@@ -1,0 +1,1 @@
+Artículo 19.—Implementación y periodicidad. Las autoevaluaciones se efectuarán de acuerdo con el artículo 17 inciso c) de la Ley General Control Interno; que obliga a la administración activa a ejecutarlas al menos una vez al año.
