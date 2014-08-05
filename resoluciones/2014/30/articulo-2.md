@@ -1,0 +1,3 @@
+Artículo 2º—Información de transcendencia tributaria contenida en “AMPO”. La información de transcendencia tributaria contenida en la herramienta y que deberá ser cumplimentada por los grandes contribuyentes nacionales se presenta en el anexo que acompaña esta resolución y que es parte integrante de ella.
+La herramienta “AMPO” deberá estar disponible en el sitio Web que se indica en el artículo 4 de esta resolución, con al menos 15 días hábiles de antelación a la fecha en que deberá cumplirse esta obligación.
+La Dirección de Grandes Contribuyentes Nacionales a través de la Subdirección de Recaudación Control y Asistencia al Contribuyente comunicara a cada contribuyente, por medio de correo electrónico, la puesta a disposición de la herramienta en dicha página.

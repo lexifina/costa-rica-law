@@ -1,0 +1,4 @@
+Artículo 6º—Acuses de recibo.
+1) El sistema confirmará la recepción de la información, a través de un acuse de recibo, que será presentado en pantalla una vez presentado el archivo. Éste se podrá imprimir o guardar a elección del usuario en un formato PDF, además tendrá la posibilidad de consultar para reimprimir el acuse de recibo generado en presentaciones anteriores.
+2) El acuse de recibo que emita la Administración Tributaria no implica manifestación de su conformidad con el contenido de la información presentada. La Dirección General de Tributación, se reserva los derechos contemplados en las normas tributarias respecto de sus facultades de comprobación y determinación de la obligación tributaria.
+3) Si el usuario no recibe el acuse de recibo inmediatamente después de su presentación, deberá considerar su información como no presentada.

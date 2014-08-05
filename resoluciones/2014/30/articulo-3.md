@@ -1,0 +1,1 @@
+Artículo 3º—Sujeto Responsable. La actualización de la información será validada por el representante legal del sujeto pasivo obligado autorizado ante la Administración Tributaria, por lo consiguiente, será el responsable del envió de la información.

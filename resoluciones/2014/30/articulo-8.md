@@ -1,0 +1,1 @@
+Artículo 8º—Incumplimiento: El incumplimiento a lo establecido en la presente resolución, califica como infracción administrativa tipificada en el Código de Normas y Procedimientos Tributarios, por lo que podrá ser sancionado de conformidad con lo dispuesto en esa normativa.
