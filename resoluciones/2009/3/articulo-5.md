@@ -1,1 +1,0 @@
-Artículo 5º—Si los estados financieros aportados por el contribuyente reportan bases imponibles negativas, no habrá razón para establecer un sistema especial de cálculo de la renta, por lo que la Administración Tributaria procederá a rechazar de plano la solicitud planteada.

@@ -1,1 +1,0 @@
-Artículo 7º—Las solicitudes de sistemas especiales de cálculo de la renta que sean autorizadas, tendrán carácter vinculante para ambas partes, por un plazo de vigencia de tres períodos fiscales consecutivos, en tanto no se modifique la legislación o varíen significativamente las circunstancias económicas que fundamentaron la valoración de la solicitud aprobada.

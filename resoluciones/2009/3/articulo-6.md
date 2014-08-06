@@ -1,1 +1,0 @@
-Artículo 6º—Cuando la Administración Tributaria rechace de plano la solicitud o no autorice el sistema especial de cálculo de la renta propuesto por el contribuyente, éste deberá atenerse a lo dispuesto en el párrafo primero del artículo 11 de la Ley del Impuesto sobre la Renta.

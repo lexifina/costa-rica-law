@@ -1,1 +1,0 @@
-Artículo 8º—Los convenios que actualmente estén vigentes, seguirán produciendo efectos jurídicos hasta la fecha de su conclusión, sin perjuicio de que cuando se finiquiten, los contribuyentes puedan solicitar la autorización de un sistema especial de cálculo de la renta, de conformidad con las disposiciones de esta resolución.
