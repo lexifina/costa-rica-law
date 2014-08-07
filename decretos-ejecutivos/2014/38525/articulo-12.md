@@ -1,0 +1,2 @@
+Artículo 12.—Córrase la numeración del Capítulo XXIV del Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y del Ministerio de la Presidencia, Decreto Ejecutivo N° 32300 del 25 de marzo del 2005, para que se lea Capítulo XXVI “Disposiciones Finales”, a su vez córrase la numeración de los artículos 151 a 154 y léase 172 a 175 (*) respectivamente.
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 163 del 26 de agosto del 2014, página N° 52. Anteriormente decía 184 a 187)

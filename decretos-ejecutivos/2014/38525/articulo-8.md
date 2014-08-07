@@ -1,0 +1,3 @@
+Artículo 8º—Modifíquese el artículo 143 del Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y del Ministerio de la Presidencia, Decreto Ejecutivo N° 32300 del 25 de marzo del 2005, para que se lea de la siguiente manera:
+Artículo 143.—Excepto que se trate del despido, en cuyo caso la gestión correspondiente estará a cargo del Ministro, la aplicación de sanciones por infracciones al registro de control de puntualidad y asistencia, por llegadas tardías o por ausencias injustificadas a labores, corresponde a la Oficina de Gestión Institucional de Recursos Humanos.
+Cuando la sanción disciplinaria sea superior a ocho días, se aplicará dicha sanción una vez efectuado el Procedimiento Ordinario Administrativo al servidor de que se trate.
