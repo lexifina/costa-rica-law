@@ -5,7 +5,8 @@ Para el trámite de afiliación de asegurados voluntarios, los interesados deben
 1. Presentar el original y copia de:
 • Cédula de identidad, si es nacional.
 • Documento de identidad migratorio, cédula de residencia, carné de refugiado provisional, pasaporte y resolución de aprobación de residencia o pasaporte con acreditación de la estancia legal (solo para categorías especiales), si es extranjero.
-2. Original y copia del último recibo de electricidad o agua.
+2. Presentar el original y copia de un recibo de servicios reciente que detalle claramente la dirección de la casa de habitación.
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 167 del 1° de setiembre del 2014)
 3. En caso de:
 • Estudiante Activo: presentar el original de la constancia o certificación emitida por el centro educativo o comprobante de la matrícula que demuestre tal condición.
 • Rentista: original de la constancia o certificación de los ingresos por pensión y/o certificados a plazo.
@@ -18,7 +19,8 @@ Para el trámite de afiliación de trabajadores independientes, los interesados 
 1. Presentar el original y copia de:
 • Cédula de identidad, si es nacional.
 • Documento de identidad migratorio, cédula de residencia, carné de refugiado provisional, pasaporte y resolución de aprobación de residencia o pasaporte con acreditación de la estancia legal (solo para categorías especiales), si es extranjero.
-2. Presentar el original y copia del último recibo de electricidad o agua.
+2. Presentar el original y copia de un recibo de servicios reciente que detalle claramente la dirección del lugar en donde se desarrolla la actividad generadora de ingresos. En caso de no contar con un lugar fijo de trabajo, adjuntar el recibo de la casa de habitación.
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 167 del 1° de setiembre del 2014)
 3. Presentar los siguientes documentos que acredite su actividad económica:
 • Copias de facturas emitidas en el desarrollo de la actividad económica, dentro de los últimos 6 meses.
 • Copia de la patente municipal vigente u otros requeridos por instituciones públicas que permitan el ejercicio de la actividad económica respectiva (Ministerio de Salud, Tributación Directa, entre otras relacionadas).

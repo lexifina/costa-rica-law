@@ -14,3 +14,4 @@ Requisitos Afiliación Asegurado Voluntario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-23 | la propia norma |
+| 2 | 2014-08-08 | Acuerdo 0 (2014-08-08) |
