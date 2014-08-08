@@ -54,7 +54,8 @@ c) Documentos que respalden la procedencia de la devolución, tales como:
 • Carta renuncia o despido.
 • Copia de los recibos de pago.
 • Cualquier otro documento probatorio que permita tener por demostrado que los pagos cuyo reintegro se solicita califican como improcedentes.
-d) Deseable: Certificación de cuenta cliente del banco de preferencia del patrono.
+d) Certificación de Cuenta Cliente del banco de preferencia.
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 167 del 1° de setiembre del 2014)
 e) En todos los casos el patrono debe aportar la prueba que sustente el trámite.
 Notas:
 1. El trámite debe realizarlo el representante patronal o autorizar a otra persona mediante nota. En la nota se debe citar el nombre y número de identificación del patrono y del autorizado y copia de ambos documentos de identificación.
@@ -71,7 +72,8 @@ a) Solicitud donde indique:
 b) Fotocopia del documento de identificación del trabajador, a saber:
 • Cédula de identidad, si es nacional.
 • Documento de identidad migratorio, cédula de residencia, carné de refugiado provisional, pasaporte y resolución de aprobación de residencia o pasaporte con acreditación de la estancia legal (solo para categorías especiales), si es extranjero.
-c) Deseable: Certificación de cuenta cliente del banco de preferencia del pensionado.
+c) Certificación de Cuenta Cliente del banco de preferencia.
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 167 del 1° de setiembre del 2014)
 d) Certificaciones de Pensionado del régimen nacional que sea diferente al de la CCSS, (en caso de que continúe laborando).
 e) Otros documentos probatorios que permitan tener por demostrado que los pagos cuyo reintegro se solicita califican como indebidos.
 f) En todos los casos el trabajador debe aportar la prueba que sustente el trámite.
@@ -79,17 +81,7 @@ Notas:
 1. El trámite debe realizarlo el interesado o autorizar a otra persona mediante nota. En la nota se debe citar el nombre y número de identificación del trabajador y del autorizado y copia de ambos documentos de identificación.
 2. La persona que realiza el trámite debe portar el original del documento de identificación.
 Requisitos del trámite de devolución de cuotas a pensionados
-a) Solicitud donde indique nombre completo, número de identificación, dirección del domicilio y teléfono del interesado (ya que esta solicitud se atiende de acuerdo con el lugar de residencia del solicitante), periodo a devolver, lugar y medio para notificaciones, la solicitud debe ser firmada por el interesado (pensionado).
-b) Certificaciones de los regímenes por los que se encuentra pensionado y que son diferentes a los de la CCSS.
-c) Certificación de Contabilidad Nacional donde consten las cotizaciones mensuales y el régimen al cual pertenece y que es diferente al de la CCSS.
-d) Copia del documento de identificación del interesado, a saber:
-• Cédula de identidad, si es nacional.
-• Documento de identidad migratorio, cédula de residencia, carné de refugiado provisional, pasaporte y resolución de aprobación de residencia o pasaporte con acreditación de la estancia legal (solo para categorías especiales), si es extranjero.
-e) Deseable: Certificación de cuenta cliente del banco de preferencia del pensionado.
-f) En todos los casos el pensionado debe aportar la prueba que sustente el trámite.
-Notas:
-1. El trámite debe realizarlo el interesado o autorizar a otra persona mediante nota. En la nota se debe citar el nombre y número de identificación del pensionado y del autorizado y copia de ambos documentos de identificación.
-2. La persona que realiza el trámite debe portar el original del documento de identificación.
+(Eliminado los requisitos del presente trámite mediante publicación en La Gaceta N° 167 del 1° de setiembre del 2014)
 Requisitos para el trámite de la solicitud de planillas adicionales
 a) Presentar una carta de solicitud de la planilla adicional, esta carta debe contener como mínimo:
 • Nombre y número de identificación del patrono.
@@ -196,7 +188,8 @@ Requisitos para el trámite de cambio de modalidad de asegurado voluntario a tra
 2) Presentar el original y copia de:
 a. Cédula de identidad vigente y en buen estado, si es nacional.
 b. Documento de identidad migratorio, cédula de residencia, carné provisional de refugiado, pasaporte y resolución de aprobación de residencia temporal o permanente, o pasaporte con acreditación de la estancia legal (solo para categorías especiales), si es extranjero. El documento que se presente debe encontrarse vigente y en buen estado.
-3) Presentar el original y copia del último recibo de consumo eléctrico o agua.
+3) Presentar el original y copia de un recibo de servicios reciente que detalle claramente la dirección del lugar en donde se desarrolla la actividad generadora de ingresos. En caso de no contar con un lugar fijo de trabajo, adjuntar el recibo de la casa de habitación
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 167 del 1° de setiembre del 2014)
 4) Presentar documentos que acrediten el desarrollo de una actividad económica, como:
 a. Copias de facturas emitidas en el desarrollo de la actividad económica, dentro de los últimos 6 meses.
 b. Copia de la patente municipal vigente u otros requeridos por instituciones públicas que permitan el ejercicio de la actividad económica respectiva (Ministerio de Salud, Tributación Directa, entre otras relacionadas).
@@ -243,5 +236,6 @@ Notas:
 a. Todo trámite debe contar con documentos probatorios de la existencia de los ingresos, en caso que el AV cuente con regalías de familiares u otros terceros, debe aportar documentos que prueben que recibe este dinero, de al menos 6 meses antes de la fecha de la solicitud, en caso que no sea factible la presentación de documentos, esto debe quedar expreso en la declaración bajo fe de juramento.
 Requisitos para la actualización de datos de trabajador independiente o asegurado voluntario en plataformas
 1. Original y fotocopia del documento de la cédula de identidad, para costarricenses y el documento de identificación extendido por la Dirección General de Migración y Extranjería o el pasaporte con resolución de estado migratorio, para extranjeros. En todos los casos el documento de identificación debe encontrarse vigente y en buen estado.
-2. Original y copia del último recibo de luz, agua o teléfono. En caso de ser una casa de habitación alquilada, debe presentar el contrato de arrendamiento o en su efecto una nota extendida por el propietario que haga constar que el usuario reside en el lugar.
-San José, 27 de febrero del 2013.—
+2. Presentar el original y copia de un recibo de servicios reciente que detalle claramente la dirección del lugar en donde se desarrolla la actividad generadora de ingresos. En caso de no contar con un lugar fijo de trabajo, adjuntar el recibo de la casa de habitación.
+(Así reformado el punto anterior mediante publicación en La Gaceta N° 167 del 1° de setiembre del 2014)
+San José, 27 de febrero del 2013.
