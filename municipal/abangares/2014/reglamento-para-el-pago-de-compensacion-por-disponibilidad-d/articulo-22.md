@@ -1,0 +1,1 @@
+Artículo 22.—Vigencia: El presente reglamento cubrirá todos los funcionarios municipales, según lo establece la convención colectiva de trabajo. Y en cumplimiento del Artículo 43, del Código Municipal, entrará en vigencia a los cinco días de su publicación en La Gaceta.
