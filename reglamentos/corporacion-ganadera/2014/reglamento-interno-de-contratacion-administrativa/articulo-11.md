@@ -1,1 +1,1 @@
-Artículo 11.—De la Junta Directiva. Corresponde a la Junta Directiva aprobar los contratos de bienes y servicios originados en una licitación pública o en una contratación directa vía excepción, cuyo monto ascienda al establecido para una licitación pública.
+Artículo 11.-De la Junta Directiva. Corresponde a la Junta Directiva aprobar los contratos de bienes y servicios originados en una licitación pública o en una contratación directa vía excepción, cuyo monto ascienda al establecido para una licitación pública.

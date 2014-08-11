@@ -1,3 +1,1 @@
-CAPÍTULO VI
-Disposiciones finales
-Artículo 24.—Uso de medios electrónicos y telemáticos. Dentro de los procesos de compra, se considerará oficialmente comunicada la información generada mediante la página Web institucional, así como cualquier mensaje que se transmita en forma electrónica y telemática por parte de medios o cuentas de correos de la Coordinación de Procesos de Apoyo autorizados para dichos efectos.
+Artículo 24.-Intercambio de bases de datos. La Coordinación de Procesos de Apoyo podrá accesar o intercambiar las bases de datos de registro de proveedores de otras instituciones de conformidad con el artículo 120 del RLCA.

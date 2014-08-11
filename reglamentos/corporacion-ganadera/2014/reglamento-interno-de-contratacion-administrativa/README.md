@@ -15,3 +15,4 @@ Reglamento Interno de Contratación Administrativa
 | --- | --- | --- |
 | 1 | 2014-02-18 | la propia norma |
 | 2 | 2014-03-24 | Reglamento 384 (2014-03-24) |
+| 3 | 2014-08-11 | Reglamento 393 (2014-08-11) |

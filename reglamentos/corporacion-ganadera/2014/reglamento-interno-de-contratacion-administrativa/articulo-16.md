@@ -1,1 +1,1 @@
-Artículo 16.—Formalización contractual. Únicamente requerirán formalización los contratos de servicios derivados de licitaciones públicas y abreviadas. También los derivados de un procedimiento de contratación directa por excepción.
+Artículo 16.-Coordinación interna con respecto al cartel. Las aclaraciones, modificaciones y prórrogas al plazo de recepción de ofertas serán incluidas por la Coordinación de Procesos de Apoyo, la cual deberá coordinarlas previamente con el área solicitante respectiva y demás unidades intervinientes.

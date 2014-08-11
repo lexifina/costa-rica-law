@@ -1,6 +1,1 @@
-Artículo 20.—Actualización de la información. Los proveedores incluidos en el Registro de Proveedores de CORFOGA, están en la obligación de comunicar a la Coordinación de Procesos de Apoyo los cambios que se produzcan en su información, respecto del:
-a) Nombre o razón social.
-b) Sustitución del apoderado, apoderada o representante legal.
-c) Dirección, teléfono, número de fax, correo electrónico.
-d) Cambio de giro comercial.
-e) Medio señalado para atender notificaciones.
+Artículo 20.-Vigencia de la inscripción. La condición de proveedor activo tiene una vigencia de veinticuatro meses, conforme con lo que señala el artículo 122 del RLCA.

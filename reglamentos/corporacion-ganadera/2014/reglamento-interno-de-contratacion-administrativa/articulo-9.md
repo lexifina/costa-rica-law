@@ -1,4 +1,4 @@
-Artículo 9º—Del área solicitante. Corresponde al área solicitante, proveer la asesoría y la ejecución de funciones específicas para la atención de los distintos procedimientos de contratación que solicite. Para ello, cuenta al menos con los siguientes deberes y obligaciones:
+Artículo 9º-Del área solicitante. Corresponde al área solicitante, proveer la asesoría y la ejecución de funciones específicas para la atención de los distintos procedimientos de contratación que solicite. Para ello, cuenta al menos con los siguientes deberes y obligaciones:
 a) Centralizar sus necesidades en las materias que le competan.
 b) Definir las metas, el plan de acción y la estimación de recursos presupuestarios requeridos anualmente para las contrataciones que le competen.
 c) Generar los documentos de orden técnico que se requieran para la tramitación de un procedimiento de contratación administrativa.

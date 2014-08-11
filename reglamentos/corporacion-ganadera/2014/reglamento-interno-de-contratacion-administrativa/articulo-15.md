@@ -1,1 +1,1 @@
-Artículo 15.—Coordinación interna con respecto al cartel. Las aclaraciones, modificaciones y prórrogas al plazo de recepción de ofertas serán incluidas por la Coordinación de Procesos de Apoyo, la cual deberá coordinarlas previamente con el área solicitante respectiva y demás unidades intervinientes.
+Artículo 15.-Divulgación de los carteles. Todo cartel será divulgado además de los medios previstos en la LCA y su Reglamento, en la página Web de la Corporación.
