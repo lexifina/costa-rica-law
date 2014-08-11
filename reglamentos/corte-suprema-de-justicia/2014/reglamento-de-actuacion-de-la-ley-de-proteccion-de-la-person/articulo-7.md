@@ -1,0 +1,2 @@
+Artículo 7º—Personas encargadas de la protección de datos. El Digesto de Jurisprudencia es el principal responsable, para todas aquellas resoluciones a su cargo. Para tal efecto coordinará lo correspondiente con los Centros de Información Jurisprudencial de las Salas de la Corte, para todas aquellas resoluciones emitidas en cada una de ellas.
+En el caso de la Sala Constitucional ella proceder á en forma directa a realizar la protección de datos respectiva.

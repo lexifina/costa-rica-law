@@ -1,0 +1,1 @@
+Artículo 21.—Aclaración a personas usuarias. Los despachos u oficinas deben incluir o insertar en las respectivas publicaciones y en la información que brinden o suministren, una aclaración al usuario sobre la protección legal aquí relacionada.

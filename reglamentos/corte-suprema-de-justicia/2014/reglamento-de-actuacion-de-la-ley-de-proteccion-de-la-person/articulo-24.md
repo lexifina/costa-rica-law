@@ -1,0 +1,1 @@
+Artículo 24.—Control interno para el cumplimiento de las políticas de privacidad. Los despachos u oficinas, responsables y encargados, deberán establecer mecanismos de control interno, con el fin de verificar el cumplimiento de este reglamento.

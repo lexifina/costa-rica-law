@@ -1,0 +1,2 @@
+Artículo 15.—Datos referentes a las partes sentenciadas en el proceso. No serán despersonalizados los datos de las personas sentenciadas en resoluciones dictadas por las Salas de la Corte o por los Tribunales Superiores que estén en firme o con cosa juzgada material.
+Con excepción de aquellas dictadas a personas sentenciadas menores de edad o con alguna resolución que señale un estado de inimputabilidad, o cuando se encuentren en la resolución datos personales vinculados a datos sensibles.
