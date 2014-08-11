@@ -14,3 +14,4 @@ Reglamento del Manejo de los Fondos de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-06-27 | la propia norma |
+| 2 | 2014-08-11 | Reglamento municipal 224 (2014-08-11) |
