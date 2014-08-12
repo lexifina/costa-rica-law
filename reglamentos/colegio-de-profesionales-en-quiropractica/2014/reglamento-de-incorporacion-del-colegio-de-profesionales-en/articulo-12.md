@@ -1,0 +1,6 @@
+CAPÍTULO III
+Sobre las ausencias a la ceremonia de incorporación
+Artículo 12.—Sobre la asistencia y ausencias.
+1. La asistencia a la ceremonia de incorporación es obligatoria, sólo podrán incorporarse, aquellos solicitantes que se presenten el día y la hora que oportunamente se comunicará para la realización de éste acto. Así como quienes han firmado el acta de incorporación al inicio de la actividad y han cumplido todos los requisitos reglamentados.
+2. Cuando una persona no pueda asistir a la ceremonia de Incorporación por motivos fortuitos o de fuerza mayor, podrá solicitar de manera anticipada a la Unidad de Incorporación, que se le mantenga la solicitud para la ceremonia de incorporación siguiente. Este trámite deberá estar debidamente justificado por escrito y realizarse con al menos diez días naturales de antelación a la celebración del Acto de Incorporación.
+3. Cuando por algún motivo injustificado el solicitante no se presente a la ceremonia de incorporación, los títulos u otra documentación confeccionada para tal fin quedarán anulados automáticamente y la solicitud quedará para la próxima incorporación programada, para lo cual deberá cancelar nuevamente el canon correspondiente.

@@ -1,0 +1,1 @@
+Artículo 9°—De la aprobación de la solicitud por la Junta Directiva. Una vez que la Unidad de Incorporación revisa la documentación respectiva y habiéndose determinado que la misma se encuentra a derecho, elevará a la Junta Directiva la solicitud para su aprobación. Posteriormente, por medio de la Secretaría del Colegio, se le comunicará al solicitante la fecha de incorporación.

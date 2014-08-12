@@ -1,0 +1,1 @@
+Artículo 14.—Aprobación del presente Reglamento. El presente Reglamento es aprobado por la Junta Directiva mediante el acuerdo Nº 7.3 tomado en la sesión ordinaria N° 04-2014 celebrada el día 13 del mes de junio del año 2014. Y ratificado el día 13 del mes de junio del mismo año.

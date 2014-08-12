@@ -1,0 +1,1 @@
+Artículo 6°—Fechas de recepción de documentos y actos de incorporación. La fecha de presentación de documentos será el primer viernes del mes de marzo y el primer viernes del mes de octubre. Las fechas de incorporación serán el primer viernes del mes de febrero y el primer viernes del mes de agosto.
