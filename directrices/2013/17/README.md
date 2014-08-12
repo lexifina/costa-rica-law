@@ -14,3 +14,4 @@ Reforma Integral Manual de Procedimientos legales de la Inspección de Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-19 | la propia norma |
+| 2 | 2014-08-12 | Directriz 14 (2014-08-12) |
