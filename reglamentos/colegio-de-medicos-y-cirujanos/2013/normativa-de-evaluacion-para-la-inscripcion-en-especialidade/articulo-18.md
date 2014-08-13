@@ -1,2 +1,3 @@
-Artículo 18.—Una vez finalizado y calificado el examen de suficiencia teórico-práctico, el Jurado Calificador debe completar y firmar el acta del examen (ver detalles en Anexo Nº 3).
-Posteriormente el Coordinador del Jurador Calificador, deberá entregar esta información a la Dirección Académica, para la misma sea notificada oficialmente a la Junta de Gobierno del Colegio de Médicos y Cirujanos.
+Artículo 18.—El examen de suficiencia parte práctica, tiene como objetivo valorar las competencias para el ejercicio profesional del solicitante. Las instrucciones del examen y la metodología de evaluación, deben ser explicadas claramente al solicitante previo a la realización del mismo.
+a) La metodología de evaluación, puede variar según las características de cada especialidad o subespecialidad médica, sin embargo se deben contemplar al menos los parámetros contenidos en el Anexo Nº 2.
+(Así corrida su numeración mediante sesión ordinaria N° 2014-08-13 del 13 de agosto del 2014, que lo traspasó del antiguo 17 al 18)

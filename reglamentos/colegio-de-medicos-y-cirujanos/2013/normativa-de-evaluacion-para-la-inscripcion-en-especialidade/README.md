@@ -14,3 +14,4 @@ Normativa de evaluación para la inscripción en Especialidades y Subespecialida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-14 | la propia norma |
+| 2 | 2014-08-13 | Reglamento 0 (2014-08-13) |

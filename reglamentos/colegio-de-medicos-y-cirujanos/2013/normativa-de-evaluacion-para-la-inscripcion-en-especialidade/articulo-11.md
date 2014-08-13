@@ -1,3 +1,2 @@
-Del examen de suficiencia
-Artículo 11.—Una vez que ha sido debidamente conformado el Jurado Calificador, los miembros procederán conjuntamente a la elaboración del examen de suficiencia teórico-práctico.
-El Coordinador será el responsable de convocar a los miembros del Jurado Calificador, para el planeamiento y elaboración del examen de suficiencia teórico-práctico.
+Artículo 11.—El miembro de Jurado Calificador, con mayor cantidad de años de experiencia en la especialidad o subespecialidad médica, será designado como Coordinador del mismo. En el caso de que por motivos justificables dicha designación sea rechazada, se procederá a nombrar de oficio un Coordinador a criterio del Colegio de Médicos y Cirujanos.
+(Así corrida su numeración mediante sesión ordinaria N° 2014-08-13 del 13 de agosto del 2014, que lo traspasó del antiguo 10 al 11)

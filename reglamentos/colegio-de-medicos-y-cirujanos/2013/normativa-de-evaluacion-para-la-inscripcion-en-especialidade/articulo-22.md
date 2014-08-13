@@ -1,1 +1,2 @@
-Artículo 22.—Todas las convocatorias del examen de suficiencia teórico-práctico se realizarán según las condiciones establecidas en esta normativa de evaluación.
+Artículo 22.—El solicitante que no se presente a la aplicación del examen de suficiencia teórico-práctico, en la fecha, lugar y hora, establecida por el Jurado Calificador, se le reportará la evaluación con reprobada.
+(Así adicionado y corrida su numeración mediante sesión ordinaria N° 2014-08-13 del 13 de agosto del 2014, toda vez que originalmente este correspondía al artículo N° 20 pero la numeración se duplicaba).

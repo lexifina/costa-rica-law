@@ -1,2 +1,4 @@
-Artículo 12.—El Jurado Calificador de la especialidad o subespecialidad médica, deberá fijar fecha, lugar y hora para la aplicación del examen de suficiencia teórico-práctico al solicitante, según los plazos establecidos en esta normativa.
-Posteriormente el Coordinador del Jurador Calificador, deberá notificarlo por escrito a la Dirección Académica, para que la misma se lo notifique de manera oficial al solicitante.
+Del examen de suficiencia
+Artículo 12.—Una vez que ha sido debidamente conformado el Jurado Calificador, los miembros procederán conjuntamente a la elaboración del examen de suficiencia teórico-práctico.
+El Coordinador será el responsable de convocar a los miembros del Jurado Calificador, para el planeamiento y elaboración del examen de suficiencia teórico-práctico.
+(Así corrida su numeración mediante sesión ordinaria N° 2014-08-13 del 13 de agosto del 2014, que lo traspasó del antiguo 11 al 12)

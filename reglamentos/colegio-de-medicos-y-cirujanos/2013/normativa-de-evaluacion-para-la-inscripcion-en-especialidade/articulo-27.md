@@ -1,1 +1,4 @@
-Artículo 27.—Para el cobro efectivo del pago a los miembros del Jurado Calificador, deberán aportar cuenta bancaria y recibo timbrado a la Dirección Académica para que gestione el pago ante el Departamento Financiero-Contable.
+Artículo 27.—El solicitante tiene derecho a presentar recurso de apelación ante la Junta de Gobierno del Colegio de Médicos y Cirujanos, dentro del plazo de cinco (5) días hábiles siguientes a la fecha de notificación de la resolución que rechace el recurso de revocatoria por parte de la Dirección Académica.
+a) Este recurso debe estar debidamente motivados y exponer claramente las razones y fundamentos del mismo, con su debido respaldo documental y bibliográfico.
+b) La Junta de Gobierno será la responsable de notificarle oficialmente al solicitante lo resuelto. Esta resolución de la Junta de Gobierno del Colegio de Médicos y Cirujanos, da por terminada la vía administrativa.
+(Así corrida su numeración mediante sesión ordinaria N° 2014-08-13 del 13 de agosto del 2014, que lo traspasó del antiguo 25 al 27)

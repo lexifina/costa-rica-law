@@ -1,6 +1,2 @@
-Artículo 25.—El solicitante tiene derecho a presentar recurso de apelación ante la Junta de Gobierno del Colegio de Médicos y Cirujanos, dentro del plazo de cinco (5) días hábiles siguientes a la fecha de notificación de la resolución que rechace el recurso de revocatoria por parte de la Dirección Académica.
-a) Este recurso debe estar debidamente motivados y exponer claramente las razones y fundamentos del mismo, con su debido respaldo documental y bibliográfico.
-b) La Junta de Gobierno será la responsable de notificarle oficialmente al solicitante lo resuelto. Esta resolución de la Junta de Gobierno del Colegio de Médicos y Cirujanos, da por terminada la vía administrativa.
-Del pago a los miembros del Jurado Calificador
-Artículo 25.—La Junta de Gobierno establecerá el monto que se reconocerá a los miembros del Jurado Calificador, por la colaboración durante la elaboración y aplicación del examen de suficiencia teórico-práctico al solicitante.
-(Nota de Sinalevi: En la publicación de esta normativa se consigna dos veces el artículo N° 25)
+Artículo 25.—El examen de suficiencia teórico-práctico, es material confidencial y propiedad del Colegio de Médicos y Cirujanos. Los solicitantes tienen derecho a revisar el examen de suficiencia teórico-práctico pero no a reproducirlo por ningún medio.
+(Así corrida su numeración mediante sesión ordinaria N° 2014-08-13 del 13 de agosto del 2014, que lo traspasó del antiguo 23 al 25)

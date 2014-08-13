@@ -1,1 +1,2 @@
-Artículo 21.—En caso de no aprobar el examen de suficiencia teórico-práctico deberán transcurrir al menos seis (6) meses entre la fecha de resolución final de la prueba presentada y la nueva solicitud de examen, hasta su aprobación efectiva.
+Artículo 21.—El examen de suficiencia teórico-práctico se rige por las normas del Código de Ética Médica. El solicitante que sea sorprendido copiando o realizando algún tipo de fraude, se hace acreedor a que se le retire el examen y se le califique con un 0%. Esta medida es independiente de las medidas disciplinarias a que se haga acreedor el médico por el fraude cometido.
+(Así corrida su numeración mediante sesión ordinaria N° 2014-08-13 del 13 de agosto del 2014, que lo traspasó del antiguo 20 al 21)
