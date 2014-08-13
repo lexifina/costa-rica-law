@@ -10,4 +10,4 @@ IV.—Que el Decreto Ejecutivo N° 29680-MINAE del 23 de julio del 2001, publica
 Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a los siguientes representantes de la Unión Costarricense de Cámaras de la Empresa Privada.
 1. Miembro propietario: Fabio Vincenzi Guilá
-2. Miembro suplente: Jaime Echeverría Bonilla
+2. (Derogado por el artículo 2° del decreto ejecutivo N° 38658 del 13 de agosto del 2014 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
