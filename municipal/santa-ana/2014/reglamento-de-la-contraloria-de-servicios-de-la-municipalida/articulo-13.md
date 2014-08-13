@@ -1,0 +1,1 @@
+Artículo 13.—Deber de las instancias administrativas de brindar información. Es obligación de los funcionarios, empleados, colaboradores o representantes de la administración contestar a la mayor brevedad posible, cualquier gestión que formula la contraloría de servicios. En ningún caso este plazo podrá ser superior al establecido en esta ley.

@@ -1,0 +1,5 @@
+Artículo 12.—Del plazo para resolver. La Contraloría de Servicios deberá atender, resolver, o dar respuesta a todos los casos sometidos a su conocimiento, con la mayor diligencia en los plazos establecidos en la Ley 9158.
+Los órganos o las unidades administrativas de cada organización ante la petición planteada por la contraloría de servicios, en el ejercicio de sus funciones, deberán responder a ésta en un plazo máximo de cinco días hábiles, excepto en los casos en que la resolución de la gestión sea de una mayor complejidad, se concederá un plazo máximo hasta de cincuenta días naturales para responder a la contraloría de servicios.
+Una vez recibida la respuesta de la administración, la Contraloría de Servicios responderá a la persona usuaria en un plazo máximo de diez días hábiles.
+En caso de que la administración no responda en dicho plazo, la contraloría de servicios elevará el asunto al jerarca, con la recomendación correspondiente para la toma de decisiones.
+Se deben entender estos plazos en aquellos casos que no exista plazo legal establecido para dicho servicio o gestión.
