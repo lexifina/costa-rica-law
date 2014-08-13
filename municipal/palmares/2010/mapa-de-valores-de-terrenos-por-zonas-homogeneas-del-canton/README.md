@@ -14,3 +14,4 @@ Mapa de Valores de Terrenos por Zonas Homogéneas del Cantón de Palmares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-29 | la propia norma |
+| 2 | 2014-08-13 | Acuerdo municipal 0 (2014-08-13) |
