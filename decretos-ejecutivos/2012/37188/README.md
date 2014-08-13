@@ -16,3 +16,4 @@ Reglamento de Uso de Uniformes y Distintivos de los Cuerpos Policiales Adscritos
 | 1 | 2013-01-01 | la propia norma |
 | 2 | 2013-01-01 | Decreto Ejecutivo 37215 (2012-07-10) |
 | 3 | 2014-04-07 | Decreto Ejecutivo 38337 (2014-04-07) |
+| 4 | 2014-08-13 | Decreto Ejecutivo 38675 (2014-08-13) |
