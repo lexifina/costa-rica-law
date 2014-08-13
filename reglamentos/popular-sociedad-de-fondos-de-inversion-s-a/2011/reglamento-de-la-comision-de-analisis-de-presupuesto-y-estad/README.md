@@ -14,3 +14,4 @@ Reglamento de la Comisión de Análisis de Presupuesto y Estados Financieros de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-27 | la propia norma |
+| 2 | 2014-08-13 | Reglamento 384 (2014-08-13) |
