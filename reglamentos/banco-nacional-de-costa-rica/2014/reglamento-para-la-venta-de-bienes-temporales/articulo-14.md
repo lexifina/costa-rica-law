@@ -1,0 +1,1 @@
+Artículo 14.—La oficina que tramita el concurso deberá resolver el recurso de revocatoria dentro de los ocho días posteriores a su presentación. El de apelación deberá resolverse por la Junta Directiva del Banco Nacional de Costa Rica dentro de los treinta días posteriores al recibo del expediente.

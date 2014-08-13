@@ -1,0 +1,3 @@
+Artículo 9º—La base para la venta de los bienes será el correspondiente avalúo del mercado, el cual, al momento de iniciarse el proceso de venta, no podrá tener más de un año de haberse efectuado
+La elaboración de los avalúos será gestionada por la Unidad de Administración de Bienes Temporales, ya sea con peritos internos o externos.
+Se podrá eximir de un nuevo avalúo el bien que hayan sido objeto de un avalúo dentro del año previo a la publicación de la primera invitación. Dicho avalúo podrá haberse originarse tanto en el expediente de la operación de crédito en el que se rindió originalmente como garantía como en el expediente de cobro judicial con base en el cual fue adjudicado a favor del Banco.

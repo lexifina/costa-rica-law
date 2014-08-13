@@ -1,0 +1,1 @@
+Artículo 10.—La venta de los bienes deberá promoverse mediante un concurso público de oferentes. Para tales efectos, se invitará a los interesados a participar en el concurso mediante publicación en el sitio web del Banco, así como en cualquier otro medio de comunicación nacional o internacional que se considere de interés.

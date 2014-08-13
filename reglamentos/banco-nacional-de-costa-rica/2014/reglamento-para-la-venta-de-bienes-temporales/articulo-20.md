@@ -1,0 +1,9 @@
+IV. DE LA READQUISICIÓN DE UN BIEN MUEBLE O INMUEBLE:
+Artículo 20.—El Banco puede aceptar la readquisición de un bien temporal que realice un ex propietario cuando el bien mueble o inmueble esté en cualquiera de las etapas del proceso de adjudicación como bien temporal, aun si se ha invitado a concurso, en el tanto no exista un acto de adjudicación, siempre y cuando se reconozca al Banco la totalidad de lo adeudado, capital, intereses corrientes y moratorios, costas personales y procesales, gastos de administración y otros gastos generados en la recuperación del crédito.
+El interesado debe presentar certificación de que se encuentra al día en sus restantes operaciones directas o indirectas, tanto con la institución como con los otros intermediarios financieros fiscalizados por la SUGEF. En casos especiales, donde el ex propietario, califique como sujeto de crédito de acuerdo con la normativa de crédito del Banco Nacional, se podrá considerar un nuevo crédito para gestionar la readquisición del bien.
+La readquisición se regirá por los siguientes pasos:
+a. El expropietario lo debe solicitar por escrito.
+b. Se deberá cancelar de contado y/o tener la capacidad de crédito para saldar la totalidad de la deuda y los gastos ocasionados a la fecha de la cancelación.
+c. Asumir los gastos de traspaso, timbres y honorarios, de acuerdo a las políticas establecidas por el Banco.
+d. Estar al día en otras operaciones que tenga con el Banco.
+e. Plazo y Arras: En caso de se autorice por parte del Banco la readquisición, se le comunicará al cliente por escrito indicándole que cuenta con 5 días hábiles para realizar el pago total. En caso de que el ex propietario solicite un plazo mayor, no deberá exceder 20 días hábiles, se le solicitará un 5% sobre el monto total de la deuda, por concepto de arras. En caso de incumplimiento por parte del re adquirente las arras quedaran en poder del Banco, por concepto de Cláusula Penal.
