@@ -1,9 +1,5 @@
-Artículo 129.—Las direcciones generales y direcciones que estén conformadas a su vez en programas o subprogramas presupuestarios, podrán contar con una Unidad de Proyectos para lograr que las necesidades reales se transformen en proyectos concretos de corto, mediano y largo plazo, de conformidad con las necesidades y la dinámica institucional.
-Las unidades de proyectos que se constituyan tendrán las siguientes funciones generales:
-1) Elaborar estudios e investigaciones para determinar las necesidades de inversión de las direcciones de programas o subprogramas presupuestarios y establecer el orden de prioridades.
-2) Elaborar los perfiles y estudios técnicos de prefactibilidad y factibilidad de los proyectos en coordinación con la Oficina de Planificación Institucional.
-3) Formular, dar seguimiento y evaluar los proyectos de inversión compatible con las prioridades institucionales y el Plan Nacional de Desarrollo, en coordinación con la Oficina de Planificación Institucional y de acuerdo con los lineamientos establecidos en el Sistema Nacional de Inversión Pública.
-4) Colaborar en la formulación presupuestaria en lo atinente a la ejecución de proyectos de inversión.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 111 al 112)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 112 al 128)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 128 al 129)
+Artículo 129.—Las direcciones podrán proponer al (a la) Ministro (a) el nombramiento permanente o temporal de consultores (as), asesores (as) o de instructores (as), para que de manera voluntaria, colaboren con la Fuerza Pública en aquellos aspectos propios de la función policial.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 109 al 110)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 110 al 126)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 126 al 127)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 127 al 129)

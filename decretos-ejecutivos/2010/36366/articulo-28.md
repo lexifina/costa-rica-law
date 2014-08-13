@@ -1,11 +1,3 @@
-CAPÍTULO III
-Consejo de Personal
-Artículo 28.—El Consejo de Personal es un órgano adscrito al Despacho del (de la) Ministro (a), que tendrá las siguientes funciones:
-1) Conocer de los reclamos originados e interpuestos por disposiciones emanadas de cualquier jerarca de las dependencias de las fuerzas de policía.
-2) Determinar las políticas generales de la Dirección de Recursos Humanos en relación con el ingreso al Estatuto Policial.
-3) Refrendar las listas de servidores policiales elegibles confeccionadas por la Dirección de Recursos Humanos, con el fin de que el (la) Ministro (a) efectué los nombramientos correspondientes.
-4) Conocer y resolver, en primera instancia, las recomendaciones de suspensiones temporales, al aplicar el régimen disciplinario a los (las) funcionarios (as) policiales, así como elevar el asunto ante el (la) Ministro (a), cuando se apele la resolución de que se trate. Y conocer y recomendar las causas de despido ante el (la) superior (a) jerárquico (a), en aplicación del régimen disciplinario.
-5) Decretar la nulidad de los concursos de antecedentes que incumplan los requisitos dispuestos en el ordenamiento jurídico.
-6) Autorizar las permutas y los descensos de los (las) funcionarios (as) policiales de la Institución.
-7) Las demás atribuciones establecidas legal y reglamentariamente y las que sean asignadas por el (la) Ministro (a).
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 27 al 28)
+Artículo 28.—La Auditoría General como órgano asesor y fiscalizador de este Ministerio, está adscrita y supeditada solo al Despacho del (de la) Ministro (a) y se regirá por las disposiciones contenidas en la Ley General de Control Interno, en la Ley Orgánica de la Contraloría General de la República, en los lineamientos de organización y funcionamiento de las auditorías internas emitidos por la Contraloría General de la República, en el Manual para el Ejercicio de la Auditoría General en las entidades y órganos sujetos a la fiscalización de ese órgano Contralor, el propio Reglamento de la Auditoría Interna y la demás normativa correspondiente.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 25 al 26)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 26 al 28)

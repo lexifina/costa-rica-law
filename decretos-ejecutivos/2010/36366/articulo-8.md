@@ -1,17 +1,9 @@
-Artículo 8º—El Proceso Jurídico Contractual tendrá las siguientes funciones:
-1) Atender y resolver consultas planteadas en materia de contratación administrativa, convenios interinstitucionales, donaciones y cualquier otra materia relacionada con el régimen jurídico en cuanto a la administración, uso y disposición de los bienes del Estado o fondos públicos.
-2) Preparar los proyectos de resolución de los recursos de objeción interpuestos contra los carteles de la contratación en trámite, así como preparar la propuesta de contestación según la audiencia conferida por la Contraloría General de la República, en los casos que corresponda.
-3) Realizar el análisis de los aspectos legales de las ofertas que se presenten con ocasión de los procedimientos de contratación administrativa.
-4) Preparar los proyectos de resolución de los recursos de revocatoria que se interpongan contra los actos finales dictados en los procedimientos de contratación administrativa, así como preparar la propuesta contestación a la audiencia en atención a los recursos de apelación interpuestos ante la Contraloría General de la República.
-5) Revisar los documentos de formalización que confecciona la Dirección de Proveeduría Institucional, para el visto bueno asesor, previo a la suscripción por parte del (de la) Ministro(a).
-6) Realizar el estudio y análisis de legalidad de los expedientes de contratación administrativa, para la aprobación interna de los contratos, así como de las contrataciones no formalizadas, de conformidad con las disposiciones del Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública, lo mismo con respecto a los contratos que se deban remitir a la Contraloría General de la República para el refrendo contralor.
-7) Elaborar y dar seguimiento, hasta su formalización, a los convenios de cooperación del Ministerio con diferentes instituciones públicas y entes privados. El seguimiento con respecto a su ejecución y fiscalización quedará a cargo del órgano designado para esos efectos.
-8) Tramitar los asuntos que se relacionen con la materia contractual, tales como: incumplimiento contractual, incidentes de aumento de alquiler y modificaciones a los contratos existentes, solicitud de prórroga y asesorar en cuanto a la resolución contractual o rescisión administrativa, en los casos de contratos suscritos por el Ministerio.
-9) Elaborar certificaciones de personería jurídica, sustitución de garantías prendarías, gestiones de donaciones de bienes muebles e inmuebles.
-10) Recopilar toda la documentación necesaria en el caso de las donaciones de bienes inmuebles y bienes muebles inscribibles, para su remisión a la Notaría del Estado, a efectos de que se realice la inscripción correspondiente; así como realizar las coordinaciones necesarias con los organismos internacionales, embajadas y con cualquier otro ente público o privado, o persona física, según corresponda, para tales efectos.
-11) Realizar las coordinaciones necesarias con las diferentes dependencias del Ministerio en relación con los trámites de las sustituciones de garantías.
-12) Redactar los proyectos de resolución administrativa para pago de montos adeudados y por reclamos administrativos derivados de las relaciones jurídicas contractuales de la institución, así como indemnizaciones.
-13) Atender las quejas interpuestas ante la Contraloría General de la República u otras solicitudes en materia de su competencia.
-14) Confeccionar la propuesta de los informes en relación con los recursos de Hábeas Corpus que se interpongan en contra de los (las) jerarcas del Ministerio.
-15) Atender las solicitudes de autorización de funcionamiento de casinos y los recursos de reposición y cualquier otra gestión relacionada con esa materia.
-16) Atender cualquier otra de su competencia.
+Artículo 8º—El Subproceso Jurídico Administrativo tendrá las siguientes funciones:
+1) Conocer y preparar los proyectos de resolución de los recursos de apelación en materia disciplinaria, violencia en eventos deportivos, así como de cualquier otra materia administrativa, cuya resolución deba ser emitida por el (la) Ministro (a) y que no esté asignada a alguna otra dependencia.
+2) Conocer y preparar los proyectos de resolución de los recursos de reconsideración, de revisión y de solicitudes de agotamiento de la vía administrativa que emita el (la) Ministro (a).
+3) Conocer y tramitar las gestiones e informes que deban interponerse o rendirse ante la Sala Constitucional, los Tribunales de la Corte Suprema Justicia, Procuraduría General de la República, Contraloría General de la República, Defensoría de los Habitantes y otras instituciones del Estado.
+4) Atender y resolver las consultas de carácter jurídico provenientes de los (las) funcionarios (as) del Ministerio en razón de su cargo, de otras entidades e Instituciones del Estado y del público en general cuando versen sobre el ramo de este Ministerio y conforme corresponda en Derecho.
+5) Confeccionar dictámenes, informes y directrices para este Ministerio.
+6) Elaborar los proyectos de reglamentos, decretos, acuerdos y los proyectos de Ley requeridos.
+7) Atender cualquier otra propia de su competencia.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014)

@@ -1,17 +1,15 @@
-SECCIÓN V
-Dirección de Operaciones
-Artículo 150.—La Dirección de Operaciones dependerá de la Dirección General de la Fuerza Pública y cumplirá las siguientes funciones:
-1) Planificar, coordinar, supervisar y participar en los diversos operativos policiales ordinarios y extraordinarios para el mantenimiento de la seguridad nacional, de los habitantes, sus bienes, sus derechos y libertades fundamentales, el orden público y la prevención del delito, velando por el estricto cumplimiento de la normativa vigente y de las políticas, directrices y lineamientos emanadas por la Dirección General de la Fuerza Pública.
-2) Brindar soporte operacional y técnico a las Direcciones Regionales y unidades policiales.
-3) Proveer información a la Dirección General de la Fuerza Pública sobre situaciones operativas.
-4) Mantener actualizadas las necesidades de seguridad de las diferentes unidades policiales del país.
-5) Recopilar y analizar información obtenida de diferentes fuentes, con la finalidad de producir y suministrar a las entidades que corresponda, de modo permanente, inteligencia policial oportuna, confiable y útil para la adopción de medidas tácticas y estratégicas en materia de seguridad de los habitantes y de resguardo del orden público mediante la confección de orden de operaciones.
-6) Identificar necesidades de capacitación y gestionar con las instancias pertinentes las actividades de capacitación para el personal policial y administrativo.
-7) Colaborar con la Oficina de Planificación Institucional en la elaboración de diagnósticos, estudios e investigaciones, operacionales o técnicos para crear, fortalecer, modificar, reubicar o suprimir unidades, delegaciones u otro tipo de dependencia policial.
-8) Asegurar que los recursos requeridos en situaciones operativas se suministren de manera pronta, eficaz, oportuna y adecuada.
-9) Realizar las acciones pertinentes con la finalidad de actualizar los sistemas de radio-comunicación, de acuerdo con las necesidades de las diferentes instancias del Ministerio, aplicando criterios de racionalidad.
-10) Administrar las redes de comunicación del Ministerio en los diferentes segmentos del espectro radioeléctrico (VHF, UHF, HF), y la banda celular, así como la interconexión de frecuencias externas, públicas o privadas, de interés policial.
-11) Aquellas otras propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 132 al 133)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 133 al 149)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 149 al 150)
+Artículo 150.—La Guardia Presidencial, tendrá rango de Departamento y dependerá de la Dirección General de la Fuerza Pública. Cumplirá las siguientes funciones, sin perjuicio de las establecidas para la Fuerza Pública:
+1) Proteger el perímetro interno y externo de la Casa Presidencial, las 24 horas del día, durante todos y cada uno de los días del año, así como la residencia del (de la) Presidente (a) de la República.
+2) Brindar información y orientación al público, protección al personal y visitantes que se encuentren en la Casa Presidencial.
+3) Controlar la portación y/o utilización de armas dentro de las instalaciones de la Casa Presidencial y los sitios adyacentes.
+4) Verificar el ingreso y salida de los bienes y activos asignados, así como los registrados como patrimonio de la Casa Presidencial y de la Fundación para el Rescate y Protección del Patrimonio de la Casa Presidencial.
+5) Controlar el ingreso y salida de personas y vehículos.
+6) Custodiar los bienes asignados a la Casa Presidencial.
+7) Colaborar y apoyar a la Escolta Presidencial en las labores de seguridad del (de la) señor (a) Presidente (a) de la República, su esposa (o) e hijos.
+8) Coordinar acciones con otros cuerpos de seguridad, nacionales o internacionales, en caso de eventos o visitas que se realicen a la Casa Presidencial.
+9) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+Para los efectos del presente reglamento, el término “Casa Presidencial” se usa indistintamente de “Presidencia de la República” y “Ministerio de la Presidencia”.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 130 al 131)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 131 al 147)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 147 al 148)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 148 al 150)

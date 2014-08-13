@@ -1,17 +1,11 @@
-SECCIÓN X(*)
-Departamento de Salud Ocupacional
-(Así corrida la numeración de la sección anterior por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso de la antigua sección IX a la X)
-Artículo 101.—El Departamento de Salud Ocupacional tendrá las siguientes funciones:
-1) Brindar atención en salud integral a los (las) funcionarios (as) del Ministerio y sus familiares directos, para contribuir en su bienestar biosicosocial.
-2) Participar en los operativos que lleve a cabo la Fuerza Pública, dando respaldo en el campo de los primeros auxilios.
-3) Realizar las investigaciones ambientales del entorno laboral, relacionadas con las diferentes disciplinas integrantes del Área de Salud.
-4) Detectar factores biosicosociales que generan riesgo para la salud e integridad de los (las) funcionarios (as) y recomendar las medidas correctivas.
-5) Asesorar a las diferentes instancias de la institución, para la toma de decisiones relacionadas con la salud en materia de contratación, reubicación y traslado de personal, así como el rediseño de funciones o puestos.
-6) Coordinar el funcionamiento de la Comisión de Salud de la institución, donde se valoran, desde una perspectiva multidisciplinaria de salud, el estado biosicosocial del personal policial y administrativo, que presentan patologías que afectan su desarrollo y rendimiento laboral.
-7) Promover convenios y asesoramiento con instituciones públicas y privadas afines, para capacitar en materia de sanidad a los (las) funcionarios (as) del Departamento y el Ministerio.
-8) Capacitar y asesorar a los (las) funcionarios (as) en aspectos relacionados con la salud, para mejorar su calidad de vida.
-9) Emitir y velar porque se cumplan los lineamientos en materia de nutrición de los (las) funcionarios (as) policiales, en concordancia con la normativa vigente.
-10) Promover el desarrollo sociolaboral de los (las) funcionarios (as).
-11) Cualquier otra propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 84 al 85)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 85 al 101)
+Artículo 101.— La Sección de Taller Mecánico tendrá las siguientes funciones:
+1. Realizar los inventarios de ingreso y egreso de los vehículos automotores que requieren mantenimiento preventivo ó correctivo, en las distintas áreas del Taller.
+2. Diagnosticar el estado mecánico de los vehículos automotores propiedad del Ministerio y aquellos asignados en formal convenio de préstamo y comodato.
+3. Alistar y verificar que los vehículos automotores cuenten con la condición mecánica, eléctrica, de carrocería y accesorios que le permitan cumplir con los requerimientos normativos exigidos por la instancia externa evaluadora de revisión técnica vehicular.
+4. Brindar el servicio de reparación y mantenimiento en los talleres internos de los vehículos automotores propiedad del Ministerio y aquellos asignados en formal convenio de préstamo.
+5. Supervisar el funcionamiento de los talleres mecánicos ubicados en las diferentes regiones.
+6. Brindar asesoría técnica en las reparaciones menores que se realizan en los talleres ubicados en las diferentes regiones.
+7. Realizar avalúos de vehículos automotores en avanzados estado de deterioro, que hayan cumplido su vida útil, que se hayan declarado en pérdida total; o bien que puedan ser objeto de canje, donación o destrucción.
+8. Realizar cualquier otra función propia de su competencia.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 99 al 101)

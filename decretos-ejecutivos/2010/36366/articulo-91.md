@@ -1,11 +1,14 @@
-Artículo 91.—El Departamento de Control Vehicular tendrá las siguientes funciones:
-1. Mantener registros actualizados de los vehículos automotores y conductores autorizados del Ministerio.
-2. Ejercer control sobre los registros y realizar los trámites correspondientes de los vehículos automotores asignados al Ministerio en calidad de préstamo o comodato.
-3. Supervisar el cumplimiento de los trámites de inscripción, desinscripción y demás trámites registrales de los vehículos automotores del Ministerio.
-4. Velar por el cumplimiento de los trámites de inclusión y exclusión de vehículos automotores en las pólizas de aseguramiento voluntario; así como que exista una correspondencia en la facturación de primas y deducibles con las bases de datos vehiculares y los registros de casos de accidentes.
-5. Supervisar los trámites de exoneración de impuestos, obtención de derechos de circulación, autorización de conductores, revaloración de vehículos en póliza, retiro de placas metálicas, reposición de placas extraviadas y retenidas, liberación de vehículos detenidos, emisiones de tarjetas de paso exento en rutas concesionadas, permisos para circular en zonas y horarios restringidos, pago de infracciones, entrega de cupones de peajes del Consejo Nacional de Vialidad, liberación de gravámenes, infracciones y anotaciones en Juzgados y entrega de cuadernos de bitácoras.
-6. Ejercer supervisión sobre los vehículos automotores que se encuentran con las revisiones técnicas de garantía vigentes y coordinar los reclamos de daños de fábrica ante los contratistas.
-7. Dar seguimiento a los acuerdos del convenio de compras institucionales a través de tarjeta electrónica y proponer mecanismos de control para los insumos adquiridos bajo esta modalidad de compra.
-8. Supervisar que los Conciliadores de insumos (combustibles y otros), realicen una adecuada revisión de los estados de cuenta y comprobantes de pago; así como, de los rendimientos de los insumos, según los mecanismos de control preestablecidos.
-9. Realizar cualquier otra función propia de su competencia.
+Artículo 91.— La Sección de Procedimientos Administrativos tendrá las siguientes funciones:
+1. Tramitar la instrucción administrativa de los asuntos relacionados con daños a los vehículos asignados al Ministerio y por infracciones a las disposiciones legales sobre la materia de tránsito y vehicular, de conformidad con lo dispuesto en la Ley de Tránsito por Vías Públicas Terrestres y toda normativa legal y reglamentaria relacionada que resulte aplicable.
+2. Preparar los proyectos de resolución, interlocutorias, finales y de la fase recursiva, así como los informes que soliciten al Consejo de Personal, por las causas administrativas disciplinarias de su cargo.
+3. Elaborar las recomendaciones disciplinarias y de responsabilidad civil, conforme la normativa legal y reglamentaria aplicable en cada caso, según el régimen de relación de servicio al que está adscrito el servidor.
+4. Preparar la información correspondiente a las gestiones de despido ante la Dirección General de Servicio Civil y elaborar la acción que firmará el (la) Ministro(a).
+5. Dar seguimiento a los escritos que suscribirá el (la) Ministro(a) en las gestiones de despido que se tramitan ante la Dirección General de Servicio Civil y remitir la disposición final a la Dirección de Recursos Humanos.
+6. Preparar las recomendaciones de suspensión provisional con goce de salario o la reubicación temporal de los servidores del Ministerio, previo a la apertura de la causa administrativa y como medida cautelar, de conformidad con lo estipulado en la normativa vigente.
+7. Realizar diligencias previas a la instrucción, recolectando indicios y elementos probatorios con respecto a las irregularidades y faltas disciplinarias en las que, por razón de la materia, puedan verse involucrados los servidores del Ministerio de Seguridad Pública.
+8. Realizar todas aquellas investigaciones técnico-jurídicas e inspecciones oculares que le sean requeridas.
+9. Requerir a los funcionarios del Ministerio, la cooperación y demás facilidades necesarias para el buen desempeño de sus funciones.
+10. Recibir quejas o denuncias que presente cualquier persona en contra de los servidores del Ministerio y darle la tramitación debida de conformidad con sus funciones.
+11. Realizar cualquier otra función propia de su competencia.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 89 al 91)

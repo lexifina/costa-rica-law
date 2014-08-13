@@ -1,7 +1,5 @@
-Artículo 145.—La Inspección General estará conformada por dos subprocesos:
-1) Subproceso de Asuntos Internos.
-2) Subproceso de Control y Fiscalización.
-Ambos subprocesos podrán realizar investigaciones y acciones preventivas en los cuerpos policiales a solicitud del (de la) Ministro (a).
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 127 al 128)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 128 al 144)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 144 al 145)
+Artículo 145.—La Inspección General será un órgano asesor, adscrito a la Dirección General de la Fuerza Pública, con competencia en todo el territorio nacional, con funciones preventivas, investigativas, en los casos que se requiera, con la intención de combatir y reprimir los posibles niveles de corrupción y la comisión de actos ilícitos cometidos por funcionarios policiales, bajo el mando de la Dirección General de la Fuerza Pública, de la misma forma podrán actuar a requerimiento del (de la) Ministro (a), realizando investigaciones a funcionarios pertenecientes a otros cuerpos policiales, administrativos, o que por su investidura deban ser investigados.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 125 al 126)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 126 al 142)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 142 al 143)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 143 al 145)

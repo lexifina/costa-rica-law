@@ -1,9 +1,15 @@
-Artículo 95.— La Sección de Control de Garantías tendrá las siguientes funciones:
-1. Coordinar la realización de las revisiones técnicas de garantías de los vehículos automotores generando las órdenes de trabajo respectivas.
-2. Informar a las distintas dependencias regionales del Ministerio ubicadas en todo el país en donde se asigna vehículos automotores en garantía, el detalle de la que incluye las revisiones técnicas de garantía, así como su periodicidad, según lo estipulado en el cartel de la contratación.
-3. Llevar un control de las citas de revisión de garantía por contratista, de todos los vehículos automotores en garantía y un inventario de las garantías vigentes.
-4. Solicitar a los encargados de transportes de vehículos automotores en garantía, la coordinación, para que se solicite antes de cumplirse el kilometraje o las horas uso, la correspondiente solicitud de revisión.
-5. Realizar solicitudes al área técnica competente, del contenido económico, cuando la garantía no cubre el daño y es fundamental su reparación.
-6. Realizar visitas a las agencias contratistas para dar seguimiento a los vehículos automotores en reparación y gestionar reclamos de inclusión de reparaciones de repuestos, cuando técnicamente se demuestra que los daños detectados son de fábrica o hay un deterioro acelerado irregular de algún componente del vehículo automotor.
-7. Realizar cualquier otra función propia de su competencia.
+Artículo 95.— La Sección de Registro y Aseguramiento tendrá las siguientes funciones:
+1. Realizar el trámite de inclusión y exclusión de póliza de aseguramiento voluntario de los vehículos automotores, previa solicitud de los Programas Presupuestarios, y controlar que todos los vehículos automotores en funcionamiento incluidos en póliza se encuentren debidamente incorporados en la facturación de primas y con un valor asegurado acorde al valor de mercado sin impuestos.
+2. Actualizar la base de datos digital y física con toda la información relevante de los vehículos automotores, conductores autorizados, avisos de accidente, caracterización de los vehículos y su estado tanto físico como registral.
+3. Revisar y tramitar la facturación de inclusiones y deducibles ante el Instituto Nacional de Seguros una vez cotejada contra la base de datos y verificar que las reversiones por primas no devengadas se apliquen en la facturación siguiente y que los deducibles cobrados corresponden a avisos de accidentes de vehículos que han sido reparados por reclamo de póliza.
+4. Tramitar los Derechos de Circulación y los cambios de placa metálica respectivos de cada uno de los vehículos automotores que se encuentre al día con el documento de revisión técnica vehicular.
+5. Gestionar ante el Ministerio de Hacienda las exoneraciones de importación, impuestos al ruedo, liberación de impuestos de inscripción, documentos de DUA y pólizas de desalmacenaje de los vehículos automotores del Ministerio.
+6. Realizar los trámites necesarios ante el Registro Público de la Propiedad Mueble para el depósito de placas, desinscripción, inscripción, cambios de características, reposición de placas por deterioro o extravío y liberación de placas detenidas de vehículos automotores de este Ministerio.
+7. Tramitar ante los juzgados respectivos todos aquellos procesos de vehículos que sean donados a las diferentes dependencias regionales de este Ministerio y gestionar la liberación de gravámenes, anotaciones e infracciones de los vehículos que se requierendesinscribir.
+8. Actualizar el estado de la flotilla vehicular con la información mensual que remiten las diferentes Direcciones y Jefaturas del país que cuentan con vehículos automotores asignados.
+9. Generar informes dirigidos a usuarios internos y externos sobre la información contenida en la base de datos de Transportes.
+10. Coordinar el trámite de pago de las infracciones condenadas y cargadas por el Consejo de Seguridad Vial a la cédula jurídica del Ministerio.
+11. Realizar la solicitud de cupones de peaje del Consejo Nacional de Vialidad, confección y entrega de bitácoras, requerimientos de tarjeta de paso exento, de rutas concesionadas y permisos para circular en zonas y horarios restringidos.
+12. Atender cualquier otra función propia de su competencia.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 93 al 95)

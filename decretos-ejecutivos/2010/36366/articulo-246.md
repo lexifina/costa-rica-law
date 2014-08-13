@@ -1,9 +1,12 @@
-Artículo 246.—El Departamento de Control de Armas y Explosivos tendrá los siguientes deberes y responsabilidades:
-1) Levantar y mantener actualizados y en forma adecuada y apropiada, los registros de todas las armas propiedad de particulares y tramitar los permisos establecidos en la Ley de Armas y Explosivos y su Reglamento y demás disposiciones vinculantes.
-2) Tramitar y resolver por escrito, los permisos que se soliciten para la inscripción, portación, adquisición, fabricación, importación, exportación, distribución y comercialización de las armas de fuego permitidas, sus municiones, sus partes, repuestos, aditamentos, accesorios; así como de la pólvora destinada a uso industrial agrícola, de minería, pirotécnico, deportivo y el gas para uso personal.
-3) Comprobar, inspeccionar, supervisar y fiscalizar la fabricación, compra, venta, importación, exportación, desalmacenaje, almacenaje, distribución, traslado y decomiso de armas, municiones, cargadores, aditamentos, accesorios, explosivos y afines.
-4) Aquellas otras que se deriven de nuestro ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 218 al 219)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 219 al 235)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 235 al 236)
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 236 al 246)
+SECCIÓN II
+Organización
+Artículo 246.—La Dirección General contará con las siguientes dependencias:
+1) Departamento de Arsenal Nacional.
+2) Departamento de Control de Armas y Explosivos.
+3) Departamento de Registro de Armas.
+4) Museo de Armas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 216 al 217)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 217 al 233)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 233 al 234)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 234 al 244)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 244 al 246)

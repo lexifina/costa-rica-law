@@ -1,11 +1,12 @@
-Artículo 71.—El Departamento de Presupuesto tendrá las siguientes funciones:
-1) Controlar y dar seguimiento a la ejecución de las partidas presupuestarias, así como velar por la aplicación de la normativa y procedimientos necesarios para una adecuada, racional y proporcional ejecución.
-2) Vigilar que el control y ejecución presupuestario del Ministerio sea acorde con el ordenamiento jurídico y la normativa técnica impartida por la Dirección General de Presupuesto Nacional, así como las demás instituciones que intervienen en los procesos de ejecución presupuestaria.
-3) Coordinar con las diferentes unidades ejecutoras de presupuesto, la elaboración del Ante Proyecto Presupuestario, con el objetivo de que este responda a los Planes Operativos Institucionales.
-4) Coordinar y consolidar el anteproyecto de presupuesto del Ministerio, atendiendo la normativa técnica establecida por la Dirección General de Presupuesto Nacional, así como los lineamientos y directrices, generales y específicos, emitidos por la Autoridad Presupuestaria y la Contraloría General de la República.
-5) Ejercer supervisión sobre las actividades presupuestarias, de conformidad con las disposiciones y políticas que imparta el Ministerio de Hacienda y la Dirección General de Presupuesto Nacional.
-6) Valorar el resultado de la ejecución de las partidas presupuestarias, de acuerdo con los recursos asignados y ejecutados en cada subpartida, en concordancia con los principios de eficiencia, eficacia, economía y calidad.
-7) Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respalde las operaciones económicas y financieras que se realicen, de conformidad con las regulaciones y lineamientos que defina el Ministerio de Hacienda, en coordinación con la Contraloría General de la República.
-8) Formular las opciones de contenido presupuestario a los documentos de ejecución, estudios o proyectos que generen los programas, subprogramas y actividades presupuestarias.
+Artículo 71.—El Departamento de Tesorería tendrá las siguientes funciones:
+1) Controlar y dar seguimiento a los recursos financieros del Ministerio asignados por la Tesorería Nacional al Fondo General de Caja Chica del Ministerio.
+2) Administrar y custodiar los dineros y valores que se generen, así como atender el pago de las obligaciones que sean legalmente contraídas con cargo a los recursos financieros de este Ministerio.
+3) Dar contenido presupuestario a los documentos de ejecución tramitados por medio de las reservas de efectivo de caja chica destinadas por cada programa presupuestario, para compras menores y urgentes gestionadas a través del Fondo General de Caja Chica, según se establece en el Reglamento General de Cajas Chicas vigente.
+4) Controlar y administrar el Fondo General de la Caja Chica Auxiliar, y los fondos que al efecto se aporten o se segreguen de éste.
+5) Elaborar los flujos de caja de acuerdo con las necesidades del Ministerio.
+6) Definir y proponer al Ministerio de Hacienda la priorización de los pagos que solicita la Tesorería Nacional.
+7) Dar a conocer a las autoridades superiores por medio de informes, el estado de los recursos financieros que se administran a través de la Tesorería.
+8) Mantener y custodiar un archivo de los documentos de ejecución presupuestaria que respalde las operaciones financieras y económicas que se realicen, de conformidad con la normativa vigente, así como las regulaciones y lineamientos que definan el Ministerio de Hacienda y la Contraloría General de la República.
 9) Atender cualquier otra propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 70 al 71)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 68 al 69)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 69 al 71)

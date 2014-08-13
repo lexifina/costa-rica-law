@@ -1,6 +1,5 @@
-Artículo 124.—Para efectos del ingreso al Estatuto Policial, los (las) funcionarios (as) policiales, que en el desarrollo de sus actividades realicen, simultánea y permanentemente, funciones mixtas (policiales-administrativas), serán considerados funcionarios policiales.
-La calificación de la función mixta deberá hacerse luego de la realización de un estudio efectuado por la Dirección de Recursos Humanos, la que tomará en cuenta: la pertenencia del funcionario a uno de los cuerpos policiales adscritos a este Ministerio y haber sido nombrado de conformidad con lo establecido en la Ley General de Policía y sus reformas.
-La Dirección de Recursos Humanos solicitará los informes y demás documentación pertinente, con la finalidad de elaborar un expediente que sustente la resolución final que decida el cumplimiento de las funciones mixtas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 106 al 107)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 107 al 123)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 123 al 124)
+Artículo 124.—La Dirección General de la Fuerza Pública recomendará al (a la) Ministro (a), mediante un estudio técnico, las regiones en que se dividirá territorialmente la Fuerza Pública. Para su implementación contará con el apoyo de las instancias policiales y técnicas del Ministerio.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 104 al 105)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 105 al 121)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 121 al 122)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 122 al 124)

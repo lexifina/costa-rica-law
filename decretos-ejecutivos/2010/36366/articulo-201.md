@@ -1,7 +1,10 @@
-Artículo 201.—La Policía de Control de Drogas estará compuesta por las siguientes dependencias:
-1) Departamento de Operaciones.
-2) Departamento de Inteligencia.
-3) Delegaciones Regionales.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 183 al 184)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 184 al 200)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 200 al 201)
+Artículo 201.—Las Unidades de Seguridad Aeroportuarias tendrá las siguientes funciones:
+1) Asegurar la protección y salvaguardia de los (las) pasajeros (as), las tripulaciones, el personal en tierra, el público, las aeronaves y en las instalaciones de los aeropuertos internacionales y nacionales, contra actos de interferencia ilícita perpetrados en tierra o en vuelo.
+2) Coordinar la colaboración con las diferentes autoridades que laboran en las terminales aéreas.
+3) Mantener el orden público y brindar seguridad al perímetro aeroportuario, bases aéreas, aeronaves, equipos, armamento, instalaciones, terrenos y edificios adyacentes cuyo acceso esté controlado.
+4) Mantener el plan permanente de reacción para atender desastres aéreos, en estricto apego a los lineamientos, directrices y al protocolo de Atención de Emergencias.
+5) Aquellas otras que de conformidad con su competencia se deriven del ordenamiento jurídico.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 181 al 182)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 182 al 198)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 198 al 199)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 199 al 201)

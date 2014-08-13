@@ -1,10 +1,11 @@
-Artículo 52.—La Sección de Capacitación tendrá las siguientes funciones:
-1) Gestionar y coordinar acciones de capacitación para el personal del Ministerio, con instituciones, tanto públicas como privadas.
-2) Elaborar estudios técnicos para el reconocimiento de títulos para carrera profesional del personal administrativo.
-3) Estudiar y recomendar las solicitudes de licencia de estudio con goce de salario para el personal administrativo y policial, de acuerdo con las disposiciones legales.
-4) Organizar y mantener actualizados los registros que identifiquen los recursos de facilitadores, personal capacitado, programas, con el fin de satisfacer necesidades internas de planificación de la capacitación y necesidades externas del Subsistema de Capacitación Desarrollo del Servicio Civil.
-5) Realizar estudios para determinar necesidades de capacitación del personal del Ministerio.
-6) Diseñar y desarrollar programas de capacitación orientados a mejorar el desempeño laboral.
-7) Diseñar e implementar metodologías de evaluación para medir el impacto de las actividades de capacitación en el personal.
+Artículo 52.—El Departamento de Capacitación y Desarrollo tendrá las siguientes funciones:
+1) Gestionar e implementar programas de educación, formación y capacitación para el personal del Ministerio, en coordinación con instituciones públicas y privadas.
+2) Analizar y recomendar el reconocimiento de actividades de capacitación y licencias para estudios con goce de salario, según la normativa vigente.
+3) Gestionar y dar seguimiento a los trámites para el otorgamiento y disfrute de becas e invitaciones nacionales y extranjeras de interés para el Ministerio, según la normativa vigente.
+4) Desarrollar acciones orientadas hacia el mejoramiento de la calidad de vida y de las condiciones laborales de los servidores del Ministerio que sirvan de insumo en la toma de decisiones para la administración.
+5) Elaborar y gestionar los contratos para capacitación de los (las) funcionarios (as) policiales y administrativos, de acuerdo con la normativa vigente.
+6) Desarrollar programas de inducción para el personal de recién ingreso al Ministerio, que les permita su mejor y más expedita socialización y adaptación institucional.
+7) Administrar la información del personal participante en las diferentes acciones de educación, capacitación, formación y becas que sirve de insumo a la administración para la toma de decisiones.
 8) Atender cualquier otra actividad propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 51 al 52)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 49 al 50)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 50 al 52)

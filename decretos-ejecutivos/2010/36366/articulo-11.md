@@ -1,6 +1,8 @@
-Artículo 11.—La Oficina de Planificación Institucional estará conformada por los siguientes subprocesos de trabajo:
-1) Subproceso de Prospección Institucional.
-2) Subproceso de Reorganización Institucional.
-3) Subproceso de Asesoría y Capacitación.
-4) Subproceso de Formulación Planes, Programas y Proyectos.
-5) Subproceso de Evaluación Institucional.
+Artículo 11—La Oficina de Relaciones Públicas y Prensa está adscrita al Despacho del (de la) Ministro(a) y realizará las siguientes funciones:
+1) Asesorar a los diferentes despachos de este Ministerio sobre el fondo y la forma de la información difundida por los medios de comunicación colectiva.
+2) Dar a conocer y suministrar material informativo a medios de comunicación e instituciones públicas y privadas, referente a las principales acciones realizadas por el Ministerio, previa autorización del (de la) Ministro(a).
+3) Producir y comunicar material informativo de las actividades institucionales a los (las) funcionarios (as) del Ministerio.
+4) Realizar labores de protocolo en que participe el Ministerio.
+5) Documentar información para los (las) jerarcas y demás dependencias de este Ministerio, relacionada con el mantenimiento del orden público y la seguridad de los habitantes.
+6) Atender cualquier otras propia de su competencia o que le sea asignada por el (la) Ministro(a)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 9 al 11)

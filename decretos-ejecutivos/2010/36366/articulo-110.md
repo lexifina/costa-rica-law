@@ -1,5 +1,12 @@
-Artículo 110.—El Departamento Disciplinario Legal tendrá un (a) Jefe de Departamento y un (a) Jefe de Sección para cada una de las que lo conforman. Estará conformado por dos Secciones, las cuales se encargarán de trámites de investigaciones previas, instrucción y elaboración de proyectos de resolución, para lo cual podrán solicitar informes, realizar consultas e indagaciones, según se estime pertinente, en todas y cada una de las dependencias del Ministerio, contando para ello con la obligada colaboración de todo el personal del mismo. Las Secciones que conforman el Departamento son:
-1) Sección de Inspección Administrativa. Será la encargada de tramitar la instrucción de los asuntos por faltas disciplinarias de los servidores administrativos, de conformidad con la normativa legal y reglamentaria que rige su relación de servicio.
-2) Sección de Inspección Policial. Será la encargada de tramitar la instrucción disciplinaria de todos los asuntos por faltas disciplinarias graves de todos los servidores policiales de conformidad con lo dispuesto en la Ley General de Policía y cualquier otra normativa legal y reglamentaria que rige la relación de servicio de los miembros de la fuerza pública. En caso de que en una misma causa disciplinaria se puedan ver involucrados tanto servidores policiales como servidores administrativos, la tramitación de los procedimientos corresponderá a la Sección de Inspección Policial para efectos de economía procesal.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 93 al 94)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 94 al 110)
+Artículo 110.—Para el levantamiento de la información o instrucción respectiva, se estará a lo dispuesto para el procedimiento ordinario regulado en la Ley General de la Administración Pública.
+En cuanto a llegadas tardías y faltas leves de los servidores administrativos, que puedan derivar en sanción de amonestación por escrito, el trámite será sumario. En cuanto a las faltas leves de los servidores policiales que ameriten amonestación, se estará a lo dispuesto en la normativa legal y reglamentaria que regula la relación de servicio de los miembros de la fuerza pública.
+En todo caso, se actuará ajustándose a las garantías del debido proceso, incluyendo:
+a. Emplazamiento al interesado sobre el carácter y fines del procedimiento.
+b. Derecho de presentar argumentos y aportar las pruebas pertinentes.
+c. Amplio acceso al expediente.
+d. Derecho de hacerse representar por un abogado.
+e. Notificación de la resolución dictada por la Administración y los motivos en que se funda.
+f. Derecho de recurrir la decisión tomada.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 91 al 92)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 92 al 108)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 108 al 110)

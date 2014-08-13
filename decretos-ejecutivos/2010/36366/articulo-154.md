@@ -1,17 +1,14 @@
-Artículo 154.—La Sección de Planeamiento tendrá las siguientes funciones:
-1) Planificar las diversas acciones policiales operativas ordinarias y extraordinarias, para la atención de emergencias naturales o antrópicas, en pro del mantenimiento de la seguridad nacional, de los habitantes, sus bienes, el orden público y la prevención del delito.
-2) Participar en la toma de decisiones tanto operativas como administrativas, para el desarrollo de las operaciones policiales coordinadas por el Departamento de Planes y Operaciones.
-3) Apoyar y asesorar en materia técnico-policial en el área de planeamiento en coordinación con el personal administrativo del Ministerio de Seguridad Pública.
-4) Atender las solicitudes que presentan las comunidades vulnerables y sensibles a nivel nacional y coordinar con los grupos organizados no gubernamentales y entidades estatales competentes, la atención de dichos requerimientos, mejorando el servicio de seguridad ciudadana y prevenir las manifestaciones delictivas.
-5) Elaborar estudios, programas, proyectos, protocolos e informes orientados a mejorar la función operacional de las fuerzas de policía, para la vigilancia y la conservación de la seguridad pública y remitirlos a la jefatura del Departamento para su revisión y aprobación ante las instancias pertinentes.
-6) Confeccionar documentos operativos necesarios para la ejecución de los dispositivos policiales, estratégicos y/o tácticos, tanto de orden preventivo y de carácter represivo.
-7) Brindar asesoría en el campo de su competencia, a sus superiores (as), jefaturas y subjefaturas de las Direcciones Regionales, Delegaciones Policiales, Direcciones y demás unidades policiales que conforman la Fuerza Pública.
-8) Realizar diagnósticos, estudios e investigaciones, para determinar la ubicación del recurso humano policial, que permita fortalecer la presencia en lugares de mayor riesgo, establecimiento de requerimientos logísticos, creación, reubicación o eliminación de delegaciones o casetas policiales.
-9) Elaborar y/o modificar los protocolos de actuación operativa requeridos para el funcionamiento de las diferentes unidades policiales de la Fuerza Pública y remitirlos a la jefatura del Departamento para su revisión y aprobación.
-10) Representar a la Institución en diferentes comisiones interinstitucionales, a solicitud de instancias superiores del Ministerio.
-11) Fungir como intermediarios institucionales ante diferentes grupos sociales, facilitando los procesos de organización, planeamiento y coordinación de actividades con otras organizaciones y entes estatales.
-12) Confeccionar los croquis, mapas o cualquier tipo de audiovisual que se requiera para una operación determinada.
-13) Elaborar material informativo, tipo folleto, con recomendaciones a la ciudadanía sobre prevención en materia de seguridad.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 136 al 137)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 137 al 153)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 153 al 154)
+Artículo 154.—El Departamento de Planes y Operaciones tendrá las siguientes funciones:
+1) Planificar y establecer los requerimientos operacionales, ordinarios y extraordinarios, de las diferentes actividades dirigidas al mantenimiento de la seguridad nacional, la seguridad de los habitantes, sus bienes, sus derechos y libertades fundamentales y el orden público, dentro del territorio nacional.
+2) Participar activamente y evaluar el proceso operativo policial ordinario y extraordinario de la Fuerza Pública, para identificar las limitaciones, deficiencias y duplicidades existentes y realizar las coordinaciones, recomendaciones y acciones que conlleven a la superación de éstas.
+3) Elaborar programas, proyectos e informes orientados a mejorar la función operacional de la Fuerza Pública.
+4) Mantener comunicación y coordinación con organismos privados y públicos, de carácter nacional e internacional, con los cuales la Fuerza Pública ejecuta acciones operacionales de índole policial.
+5) Desarrollar iniciativas de comunicación e información dirigidas al público en general con el propósito de fortalecer la seguridad de los habitantes, la preservación del orden público y la prevención del delito.
+6) Planificar, coordinar, supervisar y participar en la atención de las emergencias naturales o antrópicas.
+7) Establecer los requerimientos de las Operaciones a desarrollar por la Dirección, coordinando y asegurando que los recursos requeridos se suministren de manera pronta, eficaz, oportuna y adecuada.
+8) Mantener un registro actualizado y en estricto orden sobre el inventario de recursos asignados a la Dirección.
+9) Cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 134 al 135)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 135 al 151 )
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 151 al 152)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 152 al 154)

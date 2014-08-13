@@ -1,11 +1,14 @@
-Artículo 78.—El Departamento de Control y Fiscalización de Activos tendrá las siguientes funciones:
-1) Realizar, coordinar, asignar, dirigir, controlar y supervisar los procedimientos administrativos y su aplicación, relacionados con los activos del Ministerio de Seguridad Pública, de conformidad con las disposiciones normativas legales y reglamentarias existentes, y demás disposiciones que los entes gubernamentales competentes, en relación con la materia de Control y Fiscalización de Activos de la Hacienda Pública.
-2) Implementar las medidas correctivas y de control interno que se estimen necesarias, en materia de registro y control de bienes.
-3) Coordinar con los órganos competentes y superiores, lo pertinente con respecto a las modificaciones o nuevas disposiciones normativas que puedan darse, en relación con la materia de administración, registro y control de bienes.
-4) Realizar la incorporación al patrimonio del Ministerio, de todos los bienes que sean adquiridos por compra, donación, canje, permuta o cualquiera otro procedimiento que implique su ingreso.
-5) Realizar la desincorporación de bienes del patrimonio del Ministerio, de los bienes que egresen por motivo de venta, donación, canje, permuta o cualquier otro procedimiento que implique su egreso.
-6) Programar y realizar periódicamente inventarios físicos totales y parciales y velar por que se lleve un registro actualizado de los bienes muebles e inmuebles, semovientes y otros sobre los que se tenga derecho, que sean propios o estén asignados al Ministerio.
-7) Elaborar informes periódicos y consolidar el Informe Anual del Inventario de Bienes del Ministerio, para su remisión a la Dirección General de Administración de Bienes y Contratación Administrativa.
-8) Mantener actualizado el valor de los bienes patrimoniales del Ministerio.
-9) Realizar cualquier otra función propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 77 al 78)
+Artículo 78.—El Departamento de Programación y Control tendrá las siguientes funciones:
+1) Coordinar y analizar con los diferentes programas que conforman la institución, la elaboración del programa de adquisiciones y sus modificaciones, a que se refiere el artículo 6 de la Ley de Contratación Administrativa, para su debida publicación
+2) Establecer un control de diagnóstico, a través de un muestreo, que permita detectar las debilidades y errores frecuentes que se presentan en los procedimientos de contratación administrativa y recomendar al Proveedor las rectificaciones que se requieran.
+3) Controlar y fiscalizar la ejecución de los procedimientos de contratación administrativa por parte de los (las) funcionarios (as) competentes, así como el correcto funcionamiento de los departamentos de Control y Fiscalización de Activos y Almacén Institucional.
+4) Realizar evaluaciones del funcionamiento y operación de la Dirección de Proveeduría Institucional y formular, al Proveedor Institucional, las recomendaciones que al efecto estime pertinentes, todo sin perjuicio de las funciones que le competen a la Auditoría General del Ministerio.
+5) Verificar la corrección de la orden de inicio remitida por los jefes de Programa, en todos los procedimientos de contratación administrativa, incluyendo el cumplimiento de los requisitos previos.
+6) Programar y desarrollar charlas de inducción y capacitación a los (las) funcionarios (as) involucrados (as) en las áreas de contratación administrativa y control de calidad.
+7) Dar seguimiento a los trámites de contratación administrativa, manteniendo informado (a) a los (las) jefes de Programa o encargados (as) del manejo presupuestario y a aquellos (as) funcionarios (as) que así lo requieran, tanto a nivel interno como externo, para que se les de cumplimiento de acuerdo con los programas, fechas y plazos establecidos, para lo cual se mantendrá actualizada la base de datos con la información de todas las contrataciones administrativas que se generen.
+8) Elaborar y aplicar los procedimientos pertinentes en la Dirección de Proveeduría y en los departamentos que la conforman, de acuerdo con la Ley de Contratación Administrativa, su Reglamento y demás disposiciones normativas legales y reglamentarias conexas.
+9) Planificar, programar, dirigir, controlar y supervisar las actividades de control de calidad que se ejerce sobre los diferentes procedimientos de contratación administrativa, de conformidad con la normativa vigente.
+10) Incluir, modificar y anular solicitudes de pedido y coordinar los procesos de caduco y arrastres de pedidos de compras.
+11) Realizar cualquier otra función propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 75 al 76)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 76 al 78)

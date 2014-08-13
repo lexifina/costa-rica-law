@@ -1,18 +1,16 @@
-SECCIÓN VIII
-Direcciones Regionales
-Artículo 177.—Cada Dirección Regional dependerá de la Dirección General de la Fuerza Pública y su número y ubicación estarán determinados por las necesidades del servicio policial. Sin perjuicio de las funciones establecidas para la Fuerza Pública, cada Dirección Regional de la Fuerza Pública cumplirá con las siguientes funciones:
-1) Realizar acciones para promover intensamente la prevención y represión del delito.
-2) Planear y ejecutar estrategias y operativos preventivos ordinarios y de reacción, según las necesidades regionales, con el propósito de mantener el orden público y la seguridad de los (las) habitantes, sus bienes y el respeto de sus derechos y libertades fundamentales.
-3) Brindar vigilancia y protección física por medio de puestos fijos, a las sedes diplomáticas, expresidentes (as), viudas de expresidentes, exprimeras damas, residencias de embajadores (as) y dignatarios (as) acreditados (as) en Costa Rica, y otros (as) funcionarios (as) del Estado que lo requieran por razones judiciales o de otra índole.
-4) Proteger objetivos especiales por decisión del (de la) Ministro (a) de Seguridad Pública.
-5) Coordinar dispositivos de seguridad en eventos organizados en donde haya presencia de representantes diplomáticos o personalidades importantes, a solicitud de la Sede Diplomática.
-6) Implementar los protocolos de actuación definidos de acuerdo con las disposiciones operativas de la Dirección de Operaciones y de la Dirección de Unidades Especializadas.
-7) Velar por el cumplimiento de la normativa ambiental, ejerciendo labores de vigilancia, protección y conservación del ambiente y denunciando, ante los órganos administrativos y judiciales competentes, aquellos actos y omisiones que contravengan esa normativa.
-8) Participar en los procesos de capacitación relacionados con la normativa y educación ambiental, que posibiliten ejercer mejor control, vigilancia, protección y conservación del ambiente.
-9) Coordinar con el (la) Oficial Regional Administrativo (a) las acciones administrativas y de soporte operacional de la Región.
-10) Apoyar a la Dirección de Servicios de Seguridad Privados en la labor de verificación y control de las personas físicas y jurídicas dedicadas a prestar este servicio al amparo de la Ley de Servicios de Seguridad Privados.
-11) Ejercer la representación de la Fuerza Pública, en su Región, cuando así sea necesario.
-12) Aquellas otras que se deriven de nuestro ordenamiento jurídico de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 159 al 160)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 160 al 176)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 176 al 177)
+Artículo 177.—La Unidad Especializada de Seguridad y Protección, como unidad especializada de la Fuerza Pública, realizará las siguientes funciones:
+1) Elaboración de Protocolos de Actuación de las sedes diplomáticas, residencias de embajadores y objetivos especiales de interés del Ministerio.
+2) Fiscalizar la implementación de protocolos de actuación elaborados para cada sede diplomática residencias de embajadores y objetivos especiales de interés del Ministerio.
+3) Proteger el perímetro interno y externo de las oficinas centrales del Ministerio las 24 horas del día, durante todos los días del año.
+4) Controlar la portación o utilización de armas dentro de las instalaciones del Ministerio de Seguridad Pública.
+5) Custodiar los bienes que se encuentren en calidad de decomiso, en las instalaciones centrales que comprende el Complejo Policial Juan Rafael Mora Porras.
+6) Facilitar las visitas al Ministerio de Seguridad Pública, a los miembros de los Supremos Poderes y diplomáticos, por lugares de ingreso restringido o no autorizado para visitantes.
+7) Controlar el ingreso y salida de personas y vehículos de las instalaciones de este Ministerio.
+8) Verificar el ingreso y salida de los bienes registrados como patrimonio de este Ministerio.
+9) Brindar información que oriente a las personas que visiten las instalaciones del Complejo Policial Juan Rafael Mora Porras.
+10) Brindar protección a los (las) jerarcas y personal que se encuentre en las oficinas centrales que comprende el Complejo Policial Juan Rafael Mora Porras.
+11) Aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 157 al 158)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 158 al 174)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 174 al 175)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 175 al 177)

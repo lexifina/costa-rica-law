@@ -1,6 +1,7 @@
 Artículo 3.—El Ministerio de Seguridad Pública tendrá dos Viceministros (as) operativos y un(a) Viceministro (a) Administrativo, los cuales ejercerán las atribuciones que determina el artículo 48 de la Ley General de la Administración Pública, dentro de la siguiente distribución organizativa, sin perjuicio de cualquier otra dependencia o función que se les asigne, o bien que de las asignadas les sean relevadas por el (la) Ministro (a) de Seguridad Pública:
 1) Viceministro (a) Administrativo (a) ejercerá sus funciones respecto de la Dirección General Administrativa y Financiera y sus dependencias.
-2) Viceministro (a) de Unidades Regulares bajo el mando de la Dirección de la Fuerza Pública y otras unidades coadyuvantes. Ejercerá sus funciones respecto de las siguientes áreas:
+2) Viceministro (a) de Unidades Regulares, ejercerá sus funciones respecto de las siguientes áreas:
+(Así reformado el inciso 2) anterior por el artículo 1° del decreto ejecutivo N° 38705 del 13 de agosto del 2014)
 2.1 Dirección General de la Fuerza Pública.
 2.2 Escuela Nacional de Policía.
 2.3 Dirección de la Policía de Fronteras.

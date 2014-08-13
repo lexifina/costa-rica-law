@@ -1,15 +1,19 @@
-Artículo 179.—La Unidad Administrativa de cada Dirección Regional tendrá las siguientes funciones generales:
-1) Establecer los controles internos necesarios para garantizar la eficiencia del servicio en el cumplimiento de instrucciones, reglamentos, planes establecidos y el mandato del ordenamiento jurídico, así como también los dictados éticos y morales en el ejercicio de la función.
-2) Determinar las necesidades de capacitación del personal de la Dirección Regional respectiva.
-3) Coordinar y desarrollar acciones con la Escuela Nacional de Policía, la Dirección General de la Fuerza Pública y el Departamento de Capacitación y Desarrollo del Ministerio de Seguridad Pública, para la capacitación técnico-policial y administrativa del personal de la Dirección Regional.
-4) Elaborar los estudios técnicos necesarios para justificar la adquisición de uniformes, equipo de transporte, armas de reglamento, equipo de protección policial, equipo de comunicación y de cualquier otro implemento de uso policial que se requiera.
-5) Gestionar el suministro del recurso humano, así como de los recursos materiales y financieros para el buen desempeño de los cuerpos policiales.
-6) Velar por la correcta administración del recurso humano, así como de los recursos materiales y su buen uso, de acuerdo con las necesidades del servicio, tomando las previsiones necesarias para las contingencias.
-7) Aplicar y fiscalizar la implementación de las normas sobre la seguridad del personal, equipo, vehículos y las instalaciones fijas y móviles.
-8) Velar para que cada unidad policial a su cargo remita mensualmente a la Dirección General de Armamento el registro y el inventario de armas, municiones y explosivos, y que se cumpla con las directrices que dicte la Dirección General de Armamento.
-9) Ejercer los controles pertinentes para que las edificaciones, vehículos y demás bienes del Ministerio, se mantengan en buen estado de conservación, utilidad y limpieza.
-10) Informar, oportunamente, a la Dirección de Recursos Humanos, lo relativo a movimientos de personal.
-11) Desarrollar acciones para el mejoramiento de las condiciones sociolaborales de los (las) funcionarios (as), en materia de salud ocupacional.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 161 al 162)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 162 al 178)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 178 al 179)
+SECCIÓN VIII
+Direcciones Regionales
+Artículo 179.—Cada Dirección Regional dependerá de la Dirección General de la Fuerza Pública y su número y ubicación estarán determinados por las necesidades del servicio policial. Sin perjuicio de las funciones establecidas para la Fuerza Pública, cada Dirección Regional de la Fuerza Pública cumplirá con las siguientes funciones:
+1) Realizar acciones para promover intensamente la prevención y represión del delito.
+2) Planear y ejecutar estrategias y operativos preventivos ordinarios y de reacción, según las necesidades regionales, con el propósito de mantener el orden público y la seguridad de los (las) habitantes, sus bienes y el respeto de sus derechos y libertades fundamentales.
+3) Brindar vigilancia y protección física por medio de puestos fijos, a las sedes diplomáticas, expresidentes (as), viudas de expresidentes, exprimeras damas, residencias de embajadores (as) y dignatarios (as) acreditados (as) en Costa Rica, y otros (as) funcionarios (as) del Estado que lo requieran por razones judiciales o de otra índole.
+4) Proteger objetivos especiales por decisión del (de la) Ministro (a) de Seguridad Pública.
+5) Coordinar dispositivos de seguridad en eventos organizados en donde haya presencia de representantes diplomáticos o personalidades importantes, a solicitud de la Sede Diplomática.
+6) Implementar los protocolos de actuación definidos de acuerdo con las disposiciones operativas de la Dirección de Operaciones y de la Dirección de Unidades Especializadas.
+7) Velar por el cumplimiento de la normativa ambiental, ejerciendo labores de vigilancia, protección y conservación del ambiente y denunciando, ante los órganos administrativos y judiciales competentes, aquellos actos y omisiones que contravengan esa normativa.
+8) Participar en los procesos de capacitación relacionados con la normativa y educación ambiental, que posibiliten ejercer mejor control, vigilancia, protección y conservación del ambiente.
+9) Coordinar con el (la) Oficial Regional Administrativo (a) las acciones administrativas y de soporte operacional de la Región.
+10) Apoyar a la Dirección de Servicios de Seguridad Privados en la labor de verificación y control de las personas físicas y jurídicas dedicadas a prestar este servicio al amparo de la Ley de Servicios de Seguridad Privados.
+11) Ejercer la representación de la Fuerza Pública, en su Región, cuando así sea necesario.
+12) Aquellas otras que se deriven de nuestro ordenamiento jurídico de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 159 al 160)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 160 al 176)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 176 al 177)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 177 al 179)

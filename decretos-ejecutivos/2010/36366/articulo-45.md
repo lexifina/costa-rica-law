@@ -1,5 +1,9 @@
-Artículo 45.—El Departamento de Remuneraciones y Compensaciones estará conformado por las siguientes secciones:
-1) Sección de Remuneraciones.
-2) Sección de Aplicaciones.
-3) Sección de Incentivos y Beneficios.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 44 al 45)
+Artículo 45.—La Sección Análisis Administrativo tendrá las siguientes funciones:
+1) Analizar la estructura ocupacional del área policial, para proponer un orden congruente con la estructura organizativa de la Institución.
+2) Definir necesidades de clases de puestos que requiera la Institución.
+3) Ajustar y mantener actualizado el Manual de Clases y Cargos Policiales, conforme la estructura orgánica vigente.
+4) Diseñar instrumentos de valoración que permitan estudiar la capacidad de producción del recurso humano, con respecto a los métodos de trabajo establecidos.
+5) Desarrollar estudios de productividad relacionados con: optimización del recurso humano, aprovechamiento del tiempo laboral, estudios de cargas de trabajo, tomando como insumos manuales ocupacionales, de procedimientos, de funciones u otros, así como datos estadísticos de control de la gestión operacional, técnica, profesional o gerencial.
+6) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 42 al 43)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 43 al 45)

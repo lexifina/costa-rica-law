@@ -1,6 +1,5 @@
-Artículo 192.—La Dirección de Programas Preventivos Policiales está conformada por los siguientes departamentos:
-1) Departamento de Prevención Policial Comunitaria.
-2) Departamento de Investigación y Desarrollo.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 174 al 175)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 175 al 191)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 191 al 192)
+Artículo 192.—La Dirección de Seguridad Turística estará organizada por sectores de zonas de interés turístico y estratégico, atendiendo la demanda turística y los índices de delitos en esta materia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 172 al 173)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 173 al 189)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 189 al 190)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 190 al 192)

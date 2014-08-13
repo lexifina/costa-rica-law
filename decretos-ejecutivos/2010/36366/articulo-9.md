@@ -1,7 +1,7 @@
-Artículo 9º—La Oficina de Relaciones Públicas y Prensa está adscrita al Despacho del (de la) Ministro(a) y realizará las siguientes funciones:
-1) Asesorar a los diferentes despachos de este Ministerio sobre el fondo y la forma de la información difundida por los medios de comunicación colectiva.
-2) Dar a conocer y suministrar material informativo a medios de comunicación e instituciones públicas y privadas, referente a las principales acciones realizadas por el Ministerio, previa autorización del (de la) Ministro(a).
-3) Producir y comunicar material informativo de las actividades institucionales a los (las) funcionarios (as) del Ministerio.
-4) Realizar labores de protocolo en que participe el Ministerio.
-5) Documentar información para los (las) jerarcas y demás dependencias de este Ministerio, relacionada con el mantenimiento del orden público y la seguridad de los habitantes.
-6) Atender cualquier otras propia de su competencia o que le sea asignada por el (la) Ministro(a).
+Artículo 9º—El Subproceso de Reclamos Administrativos tendrá a su cargo las siguientes funciones:
+1) Conocer y preparar los proyectos de resolución de los reclamos administrativos que conlleven carácter pecuniario que pueda significar alguna erogación a cargo del Erario, cuya resolución deba ser emitida por el (la) Ministro (a).
+2) Conocer y preparar los proyectos de resolución de los recursos de reconsideración o reposición, y de revisión contra las resoluciones por reclamos administrativos de su competencia, que debe ser emitida por el (la) Ministro (a).
+3) Conocer y tramitar gestiones e informes que estén relacionadas con los reclamos administrativos de su competencia y deban interponerse o rendirse ante la Sala Constitucional, así como las diferentes instancias de los Tribunales de Justicia, o de cualquier órgano o ente de la Administración Pública.
+4) Atender y resolver las consultas provenientes de los (las) jerarcas y de los (las) funcionarios (as) del Ministerio, relacionadas con los reclamos administrativos de su competencia.
+5) Atender cualquier otra propia de su competencia.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014)

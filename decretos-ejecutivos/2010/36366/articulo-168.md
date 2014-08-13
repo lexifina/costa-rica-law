@@ -1,9 +1,5 @@
-Artículo 168.—Esta Dirección estará conformada por las siguientes unidades:
-1) Unidad Especial de Apoyo.
-2) Unidad de Intervención Policial.
-3) Unidad Canina.
-4) Unidad de Operaciones en Armas y Explosivos y Seguridad Privada.
-5) Unidad Especializada de Seguridad y Protección.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 150 al 151)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 151 al 167)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 167 al 168)
+Artículo 168.—Los (las) funcionarios (as) de la Dirección de Operaciones deberán administrar, de manera compartimentada los asuntos, datos, antecedentes, documentos e informaciones que reciban y tramiten, así como lo referente a actividades y operativos policiales que desarrollen. La violación del principio de compartimentación se considerará falta grave para efectos disciplinarios.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 148 al 149)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 149 al 165)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 165 al 166)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 166 al 168)

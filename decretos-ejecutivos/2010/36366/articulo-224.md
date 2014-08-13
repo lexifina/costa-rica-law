@@ -1,9 +1,13 @@
-Artículo 224.—La Sección de Recolección de Información tendrá las siguientes funciones:
-1) Recolectar y tratar la información estratégica y táctica, con fines pre-operativos, para coadyuvar en el desarrollo de las acciones policiales ordinarias y extraordinarias,
-2) Administrar las fuentes de información, a través de medios técnicos, humanos y realizar análisis de la información pública y de datos recabados de otros servicios u órganos de forma constante, en tiempo real y efectivo,
-3) establecer las estrategias necesarias para recopilar y verificar información de interés policial fronterizo,
-4) Ejercer labores de vigilancia visual en las franjas fronterizas, utilizando tecnologías de apoyo y fuentes primarias de información,
-5) Realizar operaciones para obtener información de interés policial fronterizo,
-6) Mantener un registro de información documental de medios de comunicación masivos, escritos y electrónicos en materia policial fronteriza,
-7) Participar en las diferentes operaciones de la Policía de Fronteras con la finalidad de recopilar información y plantear las recomendaciones para la toma de decisiones.
+SECCIÓN II
+Organización
+Artículo 224.—La Dirección de la Policía de Fronteras estará conformada por los siguientes Departamentos y Secciones:
+1) Departamento de Inteligencia Fronteriza
+1.1 Sección de Recolección de Información.
+1.2 Sección de Análisis y Producción de Información.
+1.3 Sección de Contra-inteligencia.
+2) Departamento Operativo
+2.1 Sección de Planificación Estratégica.
+2.2 Sección Seguridad Tecnológica y Comunicaciones.
+3) Unidades Móviles de Frontera.
 (Así adicionado por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 222 al 224)

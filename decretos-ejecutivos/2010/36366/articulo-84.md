@@ -1,6 +1,6 @@
-Artículo 84.—El Departamento de Soporte Técnico tendrá las siguientes funciones:
-1) Atender y solucionar problemas técnicos derivados de la operación de equipos y programas.
-2) Coordinar con el Departamento de Salud Ocupacional, en materia de competencia, la solución de problemas que afecten o puedan afectar la integridad de los (las) usuarios (as) en materia de su competencia.
-3) Brindar mantenimiento preventivo y correctivo a los dispositivos físicos y lógicos cuando éstos no cuenten con garantía, esta haya caducado o que no exista contrato, con alguna empresa externa al Ministerio que realice el servicio.
-4) Atender cualquier otra propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 83 al 84)
+Artículo 84.—El Departamento de Sistemas tendrá las siguientes funciones:
+1) Planear, controlar y ejecutar los diferentes proyectos orientados a la automatización de los procesos técnicos y administrativos, así como el mejoramiento de los ya existentes.
+2) Supervisar el implemento y el manejo de programas informáticos, brindando asesoría, capacitación y apoyo técnico al personal de este Ministerio.
+3) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 81 al 82)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 82 al 84)

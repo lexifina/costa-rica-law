@@ -1,12 +1,11 @@
-Artículo 196.—La Dirección del Servicio de Vigilancia Aérea, está constituida por las siguientes dependencias:
-1) Departamento de Operaciones Aeronáuticas.
-2) Departamento de Mantenimiento Aeronáutico.
-3) Unidades de Seguridad Aeroportuarias, que serán las siguientes:
-a) Unidad de Seguridad Aeropuerto Juan Santamaría.
-b) Unidad de Seguridad Aeropuerto Daniel OduberQuirós.
-c) Unidad de Seguridad Aeropuerto Tobías Bolaños Palma.
-d) Unidad de Seguridad Aeropuerto de Limón.
-(Así reformado el inciso 3) anterior por el artículo 2° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 178 al 179)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 179 al 195)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 195 al 196)
+Artículo 196.—Al Departamento de Investigación y Desarrollo le corresponderán las siguientes funciones:
+1) Definir metodologías de capacitación policial y comunal, basadas en las demandas de seguridad de las comunidades y remitirlas al Departamento de Prevención Policial Comunitaria para su aplicación.
+2) Diseñar procesos que mejoren la implementación de la Estrategia de Policía Comunitaria y los programas preventivos que desarrollan los policías en las Direcciones Regionales para su aplicación.
+3) Realizar estudios sobre la situación de seguridad integral que tienen las comunidades y sectores poblacionales específicos para adecuar el abordaje preventivo policial.
+4) Llevar el control estadístico de las actividades realizadas por el Departamento de Prevención Policial Comunitaria y las Direcciones Regionales de la Fuerza Pública en relación con los programas preventivos.
+5) Realizar investigaciones sobre las tendencias de los modelos de policía de orientación comunitaria, metodologías de prevención y atención a problemas comunales que inciden en la seguridad.
+6) Elaborar instrumentos de actuación y supervisión dirigidos a los (las) funcionarios (as) policiales relacionados con la Estrategia de Policía Comunitaria y los programas preventivos y remitirlos a la Dirección General de la Fuerza Pública para su aplicación.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 176 al 177)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 177 al 193)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 193 al 194)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 194 al 196)

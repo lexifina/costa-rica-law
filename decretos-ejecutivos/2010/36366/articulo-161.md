@@ -1,10 +1,16 @@
-Artículo 161.—La Sección de Dactiloscopia tendrá las siguientes funciones:
-1) Realizar la identificación dactilar y verificación de antecedentes penales y policiales de las personas aprehendidas por la Fuerza Pública en todo el país.
-2) Realizar pericias técnico-dactiloscópicas orientadas a la identificación de presuntos responsables de hechos delictivos.
-3) Asistir técnicamente en materia lofoscópica a las autoridades policiales y judiciales nacionales e internacionales que lo requieran en virtud del principio de cooperación y auxilio recíprocos, de conformidad con los convenios y tratados internacionales vigentes.
-4) Realizar la identificación dactilar y verificación de antecedentes penales y policiales de nacionales y extranjeros que realicen algunos de los siguientes trámites: residencia, permisos temporales, solicitudes de pensionados rentistas, matrículas y permisos de portación de armas, permisos de seguridad privada, pasaportes nuevos; así como de los funcionarios públicos dados de alta en la Fuerza Pública.
-5) Participar en las operaciones policiales ordinarias y extraordinarias que se realicen en todo el territorio nacional, en el ejercicio de la labor policial y brindando asistencia técnica en el campo de su especialidad.
-6) Cualquier otra de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 143 al 144)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 144 al 160)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 160 al 161)
+Artículo 161.—La Sección de Análisis y Estadística tendrá las siguientes funciones:
+1) Evaluar, tratar, analizar y difundir información de interés policial que mejore el accionar de la policía, tanto a nivel estratégico como táctico.
+2) Analizar la información de las operaciones policiales para medir el impacto sobre las tendencias de la criminalidad.
+3) Mantener y administrar un registro de información documental e informatizada de actividades propias de la institución (informes policiales, reincidentes, incidencias diarias, etc.).
+4) Aplicar distintas modalidades de análisis criminal que permitan medir la eficacia y eficiencia de las operaciones policiales.
+5) Colaborar con la Escuela Nacional de Policía en la asesoría y capacitación de servidores policiales en materia de análisis criminal.
+6) Suministrar información constante en tiempo real y efectivo a las unidades policiales para el planeamiento y ejecución de operativos policiales.
+7) Brindar asesoría a las Direcciones y demás unidades que conforman la Fuerza Pública en temas relacionados con análisis, estandarizando las estrategias a seguir, tanto en el trabajo diario como en operaciones extraordinarias.
+8) Evaluar las operaciones policiales tácticas y estratégicas, para enfrentar el delito desde el punto de vista de la inteligencia policial que se genera y recomendar los posibles cambios en la operatividad de la policía.
+9) Proveer al Sistema de Estadística Nacional de la Información de interés policial, tanto cuantitativa y cualitativa, para la elaboración de las estadísticas.
+10) Participar activamente en acciones preventivas y en la ejecución de operaciones policiales que se requiera.
+(Así adicionado el inciso anterior por el artículo 8° del decreto ejecutivo N° 37310 del 6 de agosto de 2012)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 141 al 142)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 142 al 158)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 158 al 159)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 159 al 161)

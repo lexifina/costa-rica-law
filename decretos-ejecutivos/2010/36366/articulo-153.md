@@ -1,7 +1,8 @@
-Artículo 153.—El Departamento de Planes y Operaciones tendrá tres Secciones:
-1) Sección de Planeamiento.
-2) Sección de Operaciones.
-3) Sección de Servicios de Transporte Policial.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 135 al 136)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 136 al 152)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 152 al 153)
+Artículo 153.—La Dirección de Operaciones estará conformada por:
+1) Departamento de Planes y Operaciones.
+2) Departamento de Inteligencia Policial (DIP).
+3) Departamento de Comunicaciones Policiales.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 133 al 134)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 134 al 150)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 150 al 151)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 151 al 153)

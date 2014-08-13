@@ -1,4 +1,10 @@
-Artículo 41.—El Departamento de Análisis Ocupacional tendrá las siguientes Secciones:
-1) Sección de Gestión Ocupacional.
-2) Sección de Análisis Administrativo.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 40 al 41)
+Artículo 41.—La Sección de Selección asumirá las siguientes funciones:
+1) Aplicar los predictores de selección de personal según las características de los puestos de trabajo.
+2) Realizar entrevistas a los candidatos que ocuparán puestos asignados en alguna dependencia del Ministerio.
+3) Verificar información y requisitos para los nombramientos y ascensos, acorde a la normativa.
+4) Tramitar las valoraciones del periodo de prueba y actualizar la información pertinente.
+5) Confeccionar las nóminas de elegibles ante las jefaturas correspondientes para su respectiva resolución.
+6) Tramitar ante el Consejo de Personal las solicitudes de ingreso de los oferentes que reúnan los requisitos para ser incluidos en el Estatuto Policial.
+7) Atender cualquiera otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 38 al 39)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 39 al 41)

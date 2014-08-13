@@ -1,8 +1,10 @@
-Artículo 57.—La Sección de Inspección tendrá las siguientes funciones:
-1) Llevar un registro actualizado del recurso humano y de los puestos asignados al Ministerio.
-2) Realizar las gestiones ante el Departamento Disciplinario Legal con respecto a aquellas anomalías disciplinarias relacionadas con el pago de salarios indebidos, sumas pagadas de más, denuncias por faltas relacionadas con controles de asistencia y ausencia laboral, tanto de los (las) funcionarios (as) policiales como administrativos.
-3) Realizar el Informe de Nivel Ocupacional semestral a la Secretaría Técnica de la Autoridad Presupuestaria.
-4) Realizar inspecciones de control de asistencia y ubicaciones en los lugares de trabajo del personal del Ministerio de Seguridad Pública.
-5) Custodiar la gestión administrativa de los puestos vacantes del Ministerio, su ejecución óptima e informar a la Dirección de Recursos Humanos.
-6) Atender otras funciones propias de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 56 al 57)
+Artículo 57.—El Departamento de Control y Documentación tendrá las siguientes funciones:
+1) Administrar el recurso humano y los puestos asignados al Ministerio de Seguridad Pública.
+2) Velar porque los movimientos de personal se realicen acorde con la normativa vigente en el Ministerio.
+3) Mantener el control de asistencia y puntualidad del personal del Ministerio.
+4) Administrar y custodiar, los expedientes personales de los (las) funcionarios (as) y ex funcionarios (as) del Ministerio de Seguridad Pública.
+5) Administrar y custodiar los documentos referentes a pólizas de garantía, declaraciones juradas de bienes e informe de fin de gestión; en cumplimiento de la Ley General de Control Interno Nº 8292.
+6) Formular y analizar la evaluación del desempeño de los (las) funcionarios (as) del Ministerio de Seguridad Pública.
+7) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 54 al 55)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 55 al 57)

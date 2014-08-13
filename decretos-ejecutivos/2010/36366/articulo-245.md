@@ -1,12 +1,8 @@
-Artículo 245.—El Departamento de Arsenal Nacional tendrá los siguientes deberes y responsabilidades:
-1) Custodiar, preservar, fiscalizar, dar mantenimiento preventivo y correctivo y trasladar las armas, municiones, cargadores, explosivos, aditamentos y accesorios, así como, equipo policial propiedad del Estado.
-2) Suministrar, mediante orden emitida por el Director (a) General de Armamento, las armas, municiones, aditamentos y accesorios, así como, cargadores, explosivos y equipo policial para el cumplimiento de las funciones de los distintos cuerpos policiales.
-3) Mediante acto razonado, emitir los procedimientos y directrices que serán de acatamiento obligatorio para las armerías comerciales y privadas y para los (las) funcionarios (as) de las distintas unidades policiales, en materia de custodia, guarda, almacenamiento y mantenimiento de armas y explosivos.
-4) Asignar, mediante orden emitida por el (la) Ministro (a) de esta Cartera, las armas, cargadores, municiones, aditamentos y accesorios que asignen, a cada uno de los (las) Ministros (as) de Gobierno, para su protección personal mientras ejerzan sus respectivos cargos, de conformidad con lo dispuesto en la Ley de Armas y Explosivos y su Reglamento.
-5) Mantener actualizados los registros que muestren adecuada y apropiadamente los movimientos de entrega, inventarios, autorizaciones y otros controles que sean necesarios en relación con las armas, municiones, cargadores, aditamentos y accesorios; así como el equipo policial propiedad del Estado.
-6) Custodiar aquel armamento que por su peligrosidad, cantidad, magnitud o por las eventuales consecuencias cualitativas y/o cuantitativas de su manipulación y/o almacenaje, requiere traslado, previa autorización de la Dirección General de Armamento.
-7) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 217 al 218)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 218 al 234)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 234 al 235)
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 235 al 245)
+Artículo 245.—La Dirección General de Armamento será la encargada de realizar las acciones necesarias para recuperar armas, cargadores, municiones, explosivos, aditamentos y accesorios, así como, equipo policial propiedad del Estado, que hayan sido sustraídos, extraviados o traslados de dominio en forma ilícita.
+Esta Dirección podrá solicitar a la autoridad judicial que ordenó la custodia de un arma al Arsenal Nacional, como resultado de un proceso, la aprobación para incluir este bien como activo estatal o para destruirla.
+De igual forma, podrá solicitar a la autoridad judicial competente, la devolución de un arma que sea prioridad del Estado, que haya sido incautada o decomisada con ocasión de prueba para un proceso judicial.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 215 al 216)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 216 al 232)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 232 al 233)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 233 al 243)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 243 al 245)

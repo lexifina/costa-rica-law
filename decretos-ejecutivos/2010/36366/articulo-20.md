@@ -1,15 +1,14 @@
-Artículo 20.—La Unidad de Control Interno tendrá las siguientes funciones:
-1) Velar por la correcta aplicación del Sistema de Control Interno que posibilite la protección y utilización racional de los recursos institucionales.
-2) Remitir a los (las) titulares subordinados (as) los lineamientos a seguir en las diferentes etapas de la autoevaluación.
-3) Asesorar en el desarrollo y mejoramiento del Sistema de Control Interno a los (las) titulares subordinados (as).
-4) Capacitar, asesorar y evaluar sobre el modelo de Autoevaluación de Control Interno que se aplicarán en la institución.
-5) Verificar que el Sistema de Control Interno esté formalmente establecido en la organización y que su ejercicio sea intrínseco al desarrollo de las funciones de todos los cargos, en particular, en aquellos que tengan responsabilidad de mando.
-6) Colaborar con la Administración en la implementación de las recomendaciones remitidas por la Contraloría General de la República y la Auditoría General del Ministerio, para el fortalecimiento de los controles internos.
-7) Verificar que los controles asociados con las actividades de la organización, sean definidos, apropiados y mejoren permanentemente, de acuerdo con la evolución de la entidad.
-8) Velar porque los controles aseguren y se adecuen al cumplimiento de las leyes, reglamentos, políticas, procedimientos, planes, programas, proyectos y metas de la organización.
-9) Verificar los controles relacionados con el manejo de los recursos, bienes y sistemas de información de la entidad y recomendar las medidas correctivas que sean necesarias.
-10) Verificar la implementación de las medidas correctivas recomendadas para la Autoevaluación de Control Interno.
-11) Preparar en coordinación con la Unidad de Gestión de Riesgos, la información para la elaboración del Manual de Políticas y Procedimientos para la Administración Integral de Riesgos.
-12) Elaborar y aplicar los planes de contingencia, en caso de que el Control Interno sea desfavorable e inseguro para el patrimonio de la Institución.
-13) Elaborar y presentar los informes al (a la) superior (a) jerárquico (a) y al Equipo Gerencial de la Autoevaluación de Control Interno.
-14) Cualquier otra propia de su competencia.
+Artículo 20.—La Oficina de Mejoramiento y Control de la Gestión Institucional está adscrita al Despacho del (de la) Ministro (a) y tendrá las siguientes funciones:
+1) Formular las metodologías para la autoevaluación del proceso de Control Interno y del Sistema Específico de Valoración de Riesgo (SEVRI) y remitirla al Despacho del (de la) Ministro (a) para su aprobación.
+2) Coordinar las actividades de formulación, ejecución y evaluación de los procesos de Control Interno y el Sistema Específico de Valoración de Riesgo (SEVRI), de conformidad con las disposiciones de la Ley General de Control Interno, el Manual de Normas Generales de Control Interno, y demás disposiciones que emitan los respectivos órganos gubernamentales competentes sobre la materia.
+3) Fomentar en la organización la formación de una cultura de control que contribuya al mejoramiento continuo en el cumplimiento de la misión institucional.
+4) Mantener informados a los (las) jerarcas acerca del estado del Control Interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI) de la entidad, dando cuenta de las debilidades detectadas y de las fallas en su cumplimiento.
+5) Crear y facilitar los instrumentos necesarios para que las dependencias emitan información clara, oportuna y confiable que faciliten la toma de decisiones de los (las) jerarcas y titulares subordinados (as).
+6) Capacitar y asesorar a los (las) titulares subordinados (as) y enlaces de unidad, sobre la aplicación de la metodología para la autoevaluación del Sistema de Control Interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI).
+7) Coordinar con el Equipo Gerencial las etapas de formulación, seguimiento y evaluación del Informe Estratégico de Control Interno.
+8) Revisar y recomendar los ajustes necesarios para actualizar el Sistema de Control Interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI) que posibiliten el mejoramiento en la prestación de los servicios.
+9) Emitir y actualizar los lineamientos técnicos para la elaboración de los informes tanto de la Autoevaluación de Control Interno como del Sistema Específico de Valoración de Riesgos.
+10) Elaborar y aplicar los planes de contingencia, en caso de que el Control Interno y los factores de riesgo sean desfavorables e inseguros para el patrimonio de la Institución.
+11) Verificar que se implementen las medidas correctivas recomendadas para la Autoevaluación de Control Interno y del Sistema Específico de Valoración de Riesgo.
+12) Cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 18 al 20)

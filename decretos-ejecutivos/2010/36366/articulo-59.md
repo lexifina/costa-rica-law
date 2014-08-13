@@ -1,7 +1,9 @@
-Artículo 59.—La Sección de Control y Verificación tendrá las siguientes funciones:
-1) Coordinar, asesorar y controlar del proceso de Declaraciones Juradas de Bienes.
-2) Supervisar y controlar el cumplimiento de suscripción de las Pólizas de Garantía de los (las) funcionarios (as) con puestos de jefatura y los demás funcionarios según lo establecido por Ley.
-3) Supervisar y controlar que el personal que se encuentra nombrado en puestos de jefatura, realicen el informe de Fin de Gestión una vez concluido su nombramiento como jefe.
-4) Dar seguimiento a la correcta aplicación técnico-jurídica de los movimientos de personal que se realizan en el Ministerio.
-5) Atender cualquier otra actividad propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 58 al 59)
+Artículo 59.—La Sección de Inspección tendrá las siguientes funciones:
+1) Llevar un registro actualizado del recurso humano y de los puestos asignados al Ministerio.
+2) Realizar las gestiones ante el Departamento Disciplinario Legal con respecto a aquellas anomalías disciplinarias relacionadas con el pago de salarios indebidos, sumas pagadas de más, denuncias por faltas relacionadas con controles de asistencia y ausencia laboral, tanto de los (las) funcionarios (as) policiales como administrativos.
+3) Realizar el Informe de Nivel Ocupacional semestral a la Secretaría Técnica de la Autoridad Presupuestaria.
+4) Realizar inspecciones de control de asistencia y ubicaciones en los lugares de trabajo del personal del Ministerio de Seguridad Pública.
+5) Custodiar la gestión administrativa de los puestos vacantes del Ministerio, su ejecución óptima e informar a la Dirección de Recursos Humanos.
+6) Atender otras funciones propias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 56 al 57)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 57 al 59)

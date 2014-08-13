@@ -1,15 +1,17 @@
-Artículo 186.—La Dirección de Seguridad Turística, sin perjuicio de las funciones asignadas para la Fuerza Pública, cumplirá las siguientes funciones:
-1) Formular y ejecutar planes estratégicos y operativos, que permitan mejorar el accionar de la seguridad turística.
-2) Realizar operativos especiales propios o en coordinación con la Dirección de Operaciones y otras dependencias.
-3) Intervenir en acciones policiales que requieran la atención de problemas de seguridad turística.
-4) Establecer acciones preventivas orientadas a dar seguridad al turista.
-5) Promover alianzas estratégicas con instancias públicas y privadas, relacionadas con el sector turismo, para obtener insumos necesarios que mejoren el servicio que brinda la Dirección de Seguridad Turística.
-6) Colaborar con autoridades judiciales en la represión de los hechos delictivos originados de la actividad turística.
-7) Coordinar con la Escuela Nacional de Policía el Programa de Especialización Policial en materia de seguridad turística.
-8) Velar por el cumplimiento de los acuerdos nacionales e internacionales que se establezcan en materia de seguridad turística.
-9) Mantener acciones permanentes de divulgación dirigidas a los habitantes sobre la importancia de la protección y la seguridad turística.
-10) Participar en reuniones del Comité de Seguridad Turística coordinado por la Cámara Nacional de Turismo.
-11) Aquellas otras que se deriven de nuestro ordenamiento jurídico de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 168 al 169)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 169 al 185 )
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 185 al 186)
+Artículo 186.—Las Delegaciones Distritales tendrán las siguientes funciones:
+1) Velar por el cumplimiento de la Constitución Política, los tratados internacionales y del ordenamiento jurídico en general.
+2) Desarrollar acciones efectivas de prevención y control de la criminalidad a través de servicios policiales de patrullaje y vigilancia.
+3) Administrar adecuadamente los recursos humanos, materiales, avituallamientos, armas de reglamento, equipo de protección policial, equipo de comunicación y otros implementos asignados a la Delegación Distrital para el servicio de seguridad ciudadana.
+4) Actuar según el principio de cooperación y auxilio recíproco, en procura de la debida coordinación con autoridades policiales y judiciales.
+5) Ejecutar y hacer cumplir lo que resuelvan o dispongan, según su competencia, los tribunales de justicia y los organismos electorales, a solicitud de éstos.
+6) Participar en el desarrollo de operaciones o acciones en que intervienen los cuerpos policiales especializados en el área de responsabilidad de la Delegación Distrital.
+7) Auxiliar a las comunidades y organizaciones de servicio público y colaborar con ellas en casos de emergencia nacional o conmoción pública.
+8) Establecer adecuados canales de comunicación y coordinación con las autoridades locales y demás organizaciones de la sociedad civil.
+9) Cumplir con las órdenes de operaciones y de servicio emanadas por la Dirección Regional y Delegación Policial a la cual se encuentra subordinada.
+10) Desarrollar proyectos asignados a la Unidad, en el Plan Operativo Anual de la Delegación Policial.
+11) Establecer un enlace permanente y dinámico con las Comisiones Distritales de Seguridad y los Comités de Prevención Comunitaria.
+12) Representar al (a la) Jefe (a) de la Delegación Policial Cantonal en el área de responsabilidad de la Delegación Distrital.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 166 al 167)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 167 al 183)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 183 al 184)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 184 al 186)

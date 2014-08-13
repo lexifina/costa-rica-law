@@ -1,12 +1,5 @@
-SECCIÓN II
-Organización
-Artículo 209.—La Escuela Nacional de Policía estará conformada por las siguientes dependencias:
-1) La Dirección de la Escuela Nacional de Policía.
-2) El Consejo Académico.
-3) Departamento Administrativo.
-4) Departamento de Investigación y Evaluación.
-5) Departamento Académico.
-6) La Academia del Servicio Nacional de Guardacostas.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 191 al 192)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 192 al 208)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 208 al 209)
+Artículo 209.—Las delegaciones regionales tienen la responsabilidad de realizar investigaciones y operativos policiales en el área geográfica de su competencia, con la finalidad de detectar, prevenir, erradicar y reprimir actividades de tráfico ilícito de drogas, legitimación de capitales, desvío de precursores y químicos y otras actividades conexas.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 189 al 190)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 190 al 206)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 206 al 207)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 207 al 209)

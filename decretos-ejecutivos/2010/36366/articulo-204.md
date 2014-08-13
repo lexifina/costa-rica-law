@@ -1,4 +1,9 @@
-Artículo 204.—El Departamento de Inteligencia contará con el Centro de Información y Análisis, el cual se encargará de archivar, custodiar y resguardar los expedientes clasificados de las investigaciones y contará con el registro informático. También administrará la red informática de la Dirección y procurará crear enlaces con otras fuentes de información.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 186 al 187)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 187 al 203)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 203 al 204)
+Artículo 204.—El Departamento de Operaciones tendrá las siguientes funciones:
+1) Realizar investigaciones, operativos, decomisos y secuestros, además de detenciones de personas vinculadas con el tráfico ilícito de drogas, legitimación de capitales y actividades conexas.
+2) Apoyar a las Delegaciones Regionales con logística, personal y recursos, en investigaciones y operativos de cierta dificultad y complejidad, con la finalidad de detectar, prevenir y reprimir actividades de tráfico ilícito de drogas, legitimación de capitales y actividades conexas.
+3) Realizar investigaciones que involucran actividades de desviación de precursores y químicos esenciales para la preparación o fabricación de drogas ilícitas; así como, operaciones de erradicación de plantaciones de drogas ilícitas.
+4) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 184 al 185)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 185 al 201)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 201 al 202)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 202 al 204)

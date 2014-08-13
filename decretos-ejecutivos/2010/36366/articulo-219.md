@@ -1,5 +1,5 @@
-Artículo 219.—La Academia del Servicio Nacional de Guardacostas, es el órgano encargado de brindar la capacitación técnica y policial a los (las) funcionarios (as) policiales del Servicio Nacional de Guardacostas.
-La Academia dependerá jerárquicamente de la Dirección del Servicio Nacional de Guardacostas pero, en lo relacionado con aquellos procesos de capacitación de carácter policial, se establecerá una dependencia de coordinación académica con la Escuela Nacional de Policía “Francisco J. Orlich B.”
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 201 al 202)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 202 al 218)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 218 al 219)
+Artículo 219.—El Departamento Académico es el órgano encargado de la ejecución de los programas de educación policial, subordinado a la Dirección.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 199 al 200)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 200 al 216)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 216 al 217)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 218 al 219)

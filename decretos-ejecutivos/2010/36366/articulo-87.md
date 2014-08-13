@@ -1,13 +1,24 @@
-Artículo 87.—El Departamento Legal de Tránsito tendrá las siguientes funciones:
-1. Fungir como instancia legal técnica especializada, y órgano director de procedimientos, para efectos de tramitación disciplinaria y por responsabilidad civil que deriven de las faltas e irregularidades cometidas por los servidores del Ministerio de Seguridad Pública, durante la conducción, uso y custodia de los vehículos oficiales, así como las infracciones a las disposiciones legales y reglamentarias sobre materia de tránsito y vehicular, debiendo emitir la resolución de recomendación, con autonomía de criterio, ante el órgano decisor respectivo; teniendo para ello, competencia en todo el territorio nacional.
-2. Tramitar los recursos de revocatoria que suscribirá el órgano decisor respectivo, así como contestar y suscribir los recursos de revocatoria que se interpongan en las distintas etapas procesales antes del dictado de la recomendación final. Contestar los recursos de amparo que se interpongan en su calidad de órgano director, con ocasión de procedimientos disciplinarios relativos a la materia de su competencia. Tratándose de recursos de amparo contra el órgano decisor, redactar el proyecto de contestación o de informe.
-3. Recomendar al (la) Ministro(a) la procedencia o no de gestiones de despido ante la Dirección General de Servicio Civil, por faltas graves relacionadas con la materia de tránsito y uso vehicular, en los casos de funcionarios amparados a éste Régimen, y preparar la documentación que corresponda.
-4. Dictar las recomendaciones disciplinarias y de responsabilidad civil, conforme la normativa legal y reglamentaria aplicable en cada caso, según el régimen de relación de servicio al que esté adscrito el servidor y remitir la información levantada al órgano encargado de decidir, según corresponda.
-5. Recomendar la suspensión provisional con goce de salario o la reubicación temporal de los servidores del Ministerio, como medida cautelar antes o durante el proceso administrativo, de conformidad con lo estipulado en la normativa vigente.
-6. Coordinar con la Dirección de Recursos Humanos la suspensión con o sin goce de salario ó el despido de los servidores del Ministerio, según corresponda, cuando se dicte una medida cautelar judicial de inhabilitación o sentencia penal condenatoria.
-7. Recomendar la apertura o no de causas administrativas, en la materia de su competencia.
-8. Ordenar las diligencias de investigación que correspondan en los asuntos disciplinarios de su competencia; pudiendo solicitar con carácter obligatorio los informes y documentación que se estime pertinente, así como realizar consultas e indagaciones en todas las dependencias del Ministerio.
-9. Supervisar el cumplimiento oportuno de los trámites de reclamo de póliza y la posterior reparación de los vehículos automotores a través del contrato de póliza de seguro voluntario de automóviles.
-10. Ejercer control sobre los Talleres Proveedores Autorizados, en lo referente a requisitos para la emisión de órdenes de pago.
-11. Realizar cualquier otra función propia de su competencia o asignada por el (la) Ministro(a).
+SECCIÓN IX(*)
+Dirección de Transportes
+(Así adicionada la Sección IX anterior por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+Artículo 87.— La Dirección de Transportes tendrá las siguientes funciones:
+1. Velar por la correcta aplicación del ordenamiento jurídico, políticas, manuales y lineamientos sobre la administración de los vehículos automotores del Ministerio que transitan por vías públicas terrestres.
+2. Aplicar las recomendaciones y disposiciones que formulan las instituciones que regulan materia vehicular en el país, incluyendo las instancias de control tanto externas como internas.
+3. Velar por la correcta administración del Erario, respecto a los vehículos automotores del Ministerio.
+4. Proponer lineamientos técnicos que propicien un adecuado uso y mantenimiento de los vehículos automotores pertenecientes al Ministerio.
+5. Regular los aspectos relativos a las autorizaciones para el uso de los vehículos; el, personal autorizado para el manejo, los sistemas de control interno, las prohibiciones y los procedimientos ante accidentes de tránsito, en relación con los vehículos automotores del Ministerio.
+6. Coordinar la gestión y actualización de la formación del personal del Ministerio en materia de mantenimiento, uso y manejo de vehículos automotores del Ministerio.
+7. Velar por que se mantengan actualizados los registros y controles de los vehículos automotores y conductores autorizados de este Ministerio; tanto física como digitalmente.
+8. Velar por un oportuno registro de los vehículos asignados al Ministerio en calidad de préstamo o donados.
+9. Velar por la correcta asignación y control de vehículos automotores de las dependencias del Ministerio, en coordinación con los (las) jerarcas y responsables de cada Programa Presupuestario.
+10. Velar por el cumplimiento de los contratos y asignaciones de servicio de mecánica, reparación, enderezado, pintura y otros, que tengan que realizar los proveedores autorizados y contratistas.
+11. Supervisar y verificar el cumplimiento de las actividades de mantenimiento preventivo y correctivo de los vehículos automotores, que tengan que realizarse en los talleres internos de la Institución , así como de la correcta disposición de las herramientas, insumos y repuestos.
+12. Realizar las gestiones pertinentes que garanticen el debido aseguramiento de los vehículos automotores pertenecientes al Ministerio.
+13. Velar porque los vehículos automotores del Ministerio, cuenten con todos los dispositivos y aditamentos que exige la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.
+14. Velar por el cumplimiento de los trámites de reclamo de póliza y la posterior reparación de los vehículos automotores a través del contrato de póliza de seguro voluntario de automóviles.
+15. Vigilar que se mantengan los controles sobre asuntos disciplinarios y por responsabilidad civil que deriven de los accidentes de tránsito, de las faltas e irregularidades de los servidores del Ministerio, durante la conducción y custodia de los vehículos automotores oficiales.
+16. Emitir lineamientos técnicos y propuestas de políticas relacionadas con la verificación del cumplimiento de la normativa legal y administrativa en materia de vehículos automotores del Ministerio.
+17. Velar por sistemas de información que permitan la inspección y control de los vehículos automotores y de los conductores autorizados del Ministerio.
+18. Realizar cualquier otra función propia de su competencia.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 85 al 87)

@@ -1,5 +1,7 @@
-Artículo 86.— La Dirección de Transportes estará conformada por los siguientes Departamentos:
-1) Departamento Legal de Tránsito
-2) Departamento de Control Vehicular
-3) Departamento de Mantenimiento Vehicular
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+Artículo 86.—El Departamento de Soporte Técnico tendrá las siguientes funciones:
+1) Atender y solucionar problemas técnicos derivados de la operación de equipos y programas.
+2) Coordinar con el Departamento de Salud Ocupacional, en materia de competencia, la solución de problemas que afecten o puedan afectar la integridad de los (las) usuarios (as) en materia de su competencia.
+3) Brindar mantenimiento preventivo y correctivo a los dispositivos físicos y lógicos cuando éstos no cuenten con garantía, esta haya caducado o que no exista contrato, con alguna empresa externa al Ministerio que realice el servicio.
+4) Atender cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 83 al 84)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 84 al 86)

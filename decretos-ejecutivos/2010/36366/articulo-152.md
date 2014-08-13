@@ -1,13 +1,18 @@
-Artículo 152.—El Departamento de Planes y Operaciones tendrá las siguientes funciones:
-1) Planificar y establecer los requerimientos operacionales, ordinarios y extraordinarios, de las diferentes actividades dirigidas al mantenimiento de la seguridad nacional, la seguridad de los habitantes, sus bienes, sus derechos y libertades fundamentales y el orden público, dentro del territorio nacional.
-2) Participar activamente y evaluar el proceso operativo policial ordinario y extraordinario de la Fuerza Pública, para identificar las limitaciones, deficiencias y duplicidades existentes y realizar las coordinaciones, recomendaciones y acciones que conlleven a la superación de éstas.
-3) Elaborar programas, proyectos e informes orientados a mejorar la función operacional de la Fuerza Pública.
-4) Mantener comunicación y coordinación con organismos privados y públicos, de carácter nacional e internacional, con los cuales la Fuerza Pública ejecuta acciones operacionales de índole policial.
-5) Desarrollar iniciativas de comunicación e información dirigidas al público en general con el propósito de fortalecer la seguridad de los habitantes, la preservación del orden público y la prevención del delito.
-6) Planificar, coordinar, supervisar y participar en la atención de las emergencias naturales o antrópicas.
-7) Establecer los requerimientos de las Operaciones a desarrollar por la Dirección, coordinando y asegurando que los recursos requeridos se suministren de manera pronta, eficaz, oportuna y adecuada.
-8) Mantener un registro actualizado y en estricto orden sobre el inventario de recursos asignados a la Dirección.
-9) Cualquier otra propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 134 al 135)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 135 al 151 )
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 151 al 152)
+SECCIÓN V
+Dirección de Operaciones
+Artículo 152.—La Dirección de Operaciones dependerá de la Dirección General de la Fuerza Pública y cumplirá las siguientes funciones:
+1) Planificar, coordinar, supervisar y participar en los diversos operativos policiales ordinarios y extraordinarios para el mantenimiento de la seguridad nacional, de los habitantes, sus bienes, sus derechos y libertades fundamentales, el orden público y la prevención del delito, velando por el estricto cumplimiento de la normativa vigente y de las políticas, directrices y lineamientos emanadas por la Dirección General de la Fuerza Pública.
+2) Brindar soporte operacional y técnico a las Direcciones Regionales y unidades policiales.
+3) Proveer información a la Dirección General de la Fuerza Pública sobre situaciones operativas.
+4) Mantener actualizadas las necesidades de seguridad de las diferentes unidades policiales del país.
+5) Recopilar y analizar información obtenida de diferentes fuentes, con la finalidad de producir y suministrar a las entidades que corresponda, de modo permanente, inteligencia policial oportuna, confiable y útil para la adopción de medidas tácticas y estratégicas en materia de seguridad de los habitantes y de resguardo del orden público mediante la confección de orden de operaciones.
+6) Identificar necesidades de capacitación y gestionar con las instancias pertinentes las actividades de capacitación para el personal policial y administrativo.
+7) Colaborar con la Oficina de Planificación Institucional en la elaboración de diagnósticos, estudios e investigaciones, operacionales o técnicos para crear, fortalecer, modificar, reubicar o suprimir unidades, delegaciones u otro tipo de dependencia policial.
+8) Asegurar que los recursos requeridos en situaciones operativas se suministren de manera pronta, eficaz, oportuna y adecuada.
+9) Realizar las acciones pertinentes con la finalidad de actualizar los sistemas de radio-comunicación, de acuerdo con las necesidades de las diferentes instancias del Ministerio, aplicando criterios de racionalidad.
+10) Administrar las redes de comunicación del Ministerio en los diferentes segmentos del espectro radioeléctrico (VHF, UHF, HF), y la banda celular, así como la interconexión de frecuencias externas, públicas o privadas, de interés policial.
+11) Aquellas otras propias de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 132 al 133)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 133 al 149)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 149 al 150)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 150 al 152)

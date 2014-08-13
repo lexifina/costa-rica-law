@@ -1,13 +1,14 @@
-Artículo 18.—La Oficina de Mejoramiento y Control de la Gestión Institucional está adscrita al Despacho del (de la) Ministro (a) y tendrá las siguientes funciones:
-1) Formular las metodologías para la autoevaluación del proceso de Control Interno y del Sistema Específico de Valoración de Riesgo (SEVRI) y remitirla al Despacho del (de la) Ministro (a) para su aprobación.
-2) Coordinar las actividades de formulación, ejecución y evaluación de los procesos de Control Interno y el Sistema Específico de Valoración de Riesgo (SEVRI), de conformidad con las disposiciones de la Ley General de Control Interno, el Manual de Normas Generales de Control Interno, y demás disposiciones que emitan los respectivos órganos gubernamentales competentes sobre la materia.
-3) Fomentar en la organización la formación de una cultura de control que contribuya al mejoramiento continuo en el cumplimiento de la misión institucional.
-4) Mantener informados a los (las) jerarcas acerca del estado del Control Interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI) de la entidad, dando cuenta de las debilidades detectadas y de las fallas en su cumplimiento.
-5) Crear y facilitar los instrumentos necesarios para que las dependencias emitan información clara, oportuna y confiable que faciliten la toma de decisiones de los (las) jerarcas y titulares subordinados (as).
-6) Capacitar y asesorar a los (las) titulares subordinados (as) y enlaces de unidad, sobre la aplicación de la metodología para la autoevaluación del Sistema de Control Interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI).
-7) Coordinar con el Equipo Gerencial las etapas de formulación, seguimiento y evaluación del Informe Estratégico de Control Interno.
-8) Revisar y recomendar los ajustes necesarios para actualizar el Sistema de Control Interno y el Sistema Específico de Valoración de Riesgo Institucional (SEVRI) que posibiliten el mejoramiento en la prestación de los servicios.
-9) Emitir y actualizar los lineamientos técnicos para la elaboración de los informes tanto de la Autoevaluación de Control Interno como del Sistema Específico de Valoración de Riesgos.
-10) Elaborar y aplicar los planes de contingencia, en caso de que el Control Interno y los factores de riesgo sean desfavorables e inseguros para el patrimonio de la Institución.
-11) Verificar que se implementen las medidas correctivas recomendadas para la Autoevaluación de Control Interno y del Sistema Específico de Valoración de Riesgo.
-12) Cualquier otra propia de su competencia.
+Artículo 18.—El Subproceso de Evaluación Institucional ejecutará las siguientes funciones:
+1) Elaborar en coordinación con el Ministerio de Justicia la evaluación integral de la Matriz Anual de Programación, Seguimiento y Evaluación Sectorial e Institucional (MAPSESI) del Sector Seguridad Ciudadana y Prevención del Delito.
+2) Evaluar el cumplimiento del Plan Estratégico Institucional.
+3) Dirigir el proceso de evaluación de la Matriz Anual de Programación Institucional y presupuestaria, solicitado por el Ministerio de Hacienda y el Ministerio de Planificación Nacional y Política Económica.
+4) Evaluar los planes anuales operativos de las diferentes dependencias del Ministerio de Seguridad Pública.
+5) Apoyar al Subproceso de Asesoría y Capacitación en el asesoramiento y capacitación a los (las) funcionarios (as) de las direcciones policiales y administrativas en materia de evaluación.
+6) Desarrollar las herramientas técnicas y metodológicas necesarias para facilitar el proceso de evaluación institucional.
+7) Evaluar el avance el cumplimiento de los proyectos del Programa Anual Institucional de Inversión Pública con que cuenta el Ministerio.
+8) Rendir un informe técnico de los resultados obtenidos en las diferentes evaluaciones que contribuya a la toma de decisiones.
+9) Realizar actividades de seguimiento a los planes y proyectos institucionales.
+10) Evaluar el cumplimiento de los planes regionales de desarrollo.
+11) Elaborar las evaluaciones que soliciten los (las) jerarcas.
+12) Cualquier otra de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 16 al 18)

@@ -1,11 +1,6 @@
-Artículo 239.—La Reserva de las Fuerzas de Policía, cuando haya sido convocada de conformidad con lo establecido en la Ley General de Policía y sus reformas, tendrá, en esas circunstancias y dentro de ese marco de competencias, las siguientes funciones:
-1) Coordinar con la Fuerza Pública las labores de prevención, vigilancia y protección en el territorio nacional, para preservar la seguridad de los (las) habitantes, sus bienes y sus derechos y libertades constitucionales.
-2) Cooperar con la Fuerza Pública, instituciones gubernamentales y otras entidades en casos de calamidad o desastre natural, eventos masivos, conflagraciones y conmoción civil.
-3) Hacer cumplir lo ordenado por el Tribunal Supremo de Elecciones, en materia electoral, en coordinación con la Fuerza Pública y de conformidad con la Constitución Política y demás normativa aplicable.
-4) Velar por el cumplimiento de la normativa ambiental, ejerciendo las labores de vigilancia, protección y conservación del ambiente y denunciando, ante los órganos administrativos y judiciales competentes, aquellos actos y omisiones que contravengan esta normativa.
-5) Realizar las acciones pertinentes para procurar la capacitación de los miembros de la Reserva de las Fuerzas de Policía, de acuerdo con las necesidades y funciones que desempeñan.
-6) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 211 al 212)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 212 al 228)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 228 al 229)
-(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 229 al 239)
+Artículo 239.—La Dirección solicitará a las direcciones regionales, la colaboración para implementar los alcances del artículo anterior, cuando así lo requiera.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 209 al 210)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 210 al 226)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 226 al 227)
+(Así corrida su numeración por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 227 al 237)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 237 al 239)

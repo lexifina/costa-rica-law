@@ -1,9 +1,10 @@
-Artículo 55.—El Departamento de Control y Documentación tendrá las siguientes funciones:
-1) Administrar el recurso humano y los puestos asignados al Ministerio de Seguridad Pública.
-2) Velar porque los movimientos de personal se realicen acorde con la normativa vigente en el Ministerio.
-3) Mantener el control de asistencia y puntualidad del personal del Ministerio.
-4) Administrar y custodiar, los expedientes personales de los (las) funcionarios (as) y ex funcionarios (as) del Ministerio de Seguridad Pública.
-5) Administrar y custodiar los documentos referentes a pólizas de garantía, declaraciones juradas de bienes e informe de fin de gestión; en cumplimiento de la Ley General de Control Interno Nº 8292.
-6) Formular y analizar la evaluación del desempeño de los (las) funcionarios (as) del Ministerio de Seguridad Pública.
+Artículo 55.—La Sección de Desarrollo tendrá las siguientes funciones:
+1) Gestionar y coordinar acciones referentes a la obtención de facilidades de educación y formación del personal, con instituciones, tanto públicas como privadas.
+2) Elaborar contratos de adiestramiento para el personal que participa en los diferentes cursos que imparte la Escuela Nacional de Policía, la Academia del Servicio Nacional de Guardacostas y cualquier otra instancia.
+3) Tramitar descuentos universitarios conforme a los lineamientos establecidos en los distintos convenios suscritos con universidades y otras organizaciones formativas.
+4) Realizar estudios de las condiciones de trabajo y de calidad de vida laboral en que se encuentran los servidores del Ministerio de Seguridad Pública.
+5) Diseñar y aplicar programas de inducción al funcionario que permita una expedita socialización y adaptación institucional.
+6) Organizar y ejecutar actividades que permitan el fortalecimiento de la cultura institucional.
 7) Atender cualquier otra actividad propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 54 al 55)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 52 al 53)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 53 al 55)

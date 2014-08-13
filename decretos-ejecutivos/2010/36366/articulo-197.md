@@ -1,13 +1,13 @@
-Artículo 197.—El Departamento de Operaciones Aeronáuticas tendrá las siguientes funciones:
-1) Realizar patrullajes de vigilancia y seguridad en el espacio y territorio nacional, mar territorial y jurisdiccional.
-2) Colaborar con otras dependencias de la Fuerza Pública en los operativos aéreos relacionados con el tráfico de drogas y la atención de otros delitos.
-3) Monitorear las aeronaves que ilegalmente sobrevuelen el espacio aéreo nacional y comunicarlo a las autoridades competentes nacionales y extranjeras.
-4) Observar la normativa nacional e internacional relacionada con el despacho de vuelos.
-5) Ejecutar las operaciones de vuelo de acuerdo con el Manual General de Operaciones Aeronáuticas.
-6) Efectuar acciones de cooperación en situaciones de emergencia.
-7) Mantener actualizado el registro y las pólizas de las aeronaves propiedad del Estado.
-8) Actualizar el registro de habilitaciones del personal técnico y pilotos encargados de operar las aeronaves pertenecientes o asignadas al Estado.
-9) Aquellas otras propias de su competencias.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 179 al 180)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 180 al 196)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 196 al 197)
+CAPÍTULO V
+Dirección del Servicio de Vigilancia Aérea
+Artículo 197.—La Dirección del Servicio de Vigilancia Aérea dependerá del (de la) Ministro (a) y tendrá las siguientes funciones:
+1) Garantizar el orden público, la salvaguarda e integridad del espacio aéreo, el territorio nacional, mar territorial y jurisdiccional y la seguridad de los aeropuertos internacionales, mediante operativos y patrullajes.
+2) Brindar transporte dentro y fuera del país en casos calificados de excepción, a los (las) servidores (as) públicos en el ejercicio de sus funciones y a los (las) habitantes en caso de emergencia.
+3) Promover convenios entre el Ministerio de Seguridad Pública y aquellas instituciones del Estado que puedan brindar alguna contraprestación por los servicios de transporte aéreo.
+4) Coordinar y cooperar con las instituciones vinculadas en la atención de emergencias nacionales, en operativos de búsqueda, detección y rescate de personas, aeronaves y embarcaciones extraviadas, entre otros.
+5) Brindar mantenimiento y reparación a las aeronaves encargadas de la vigilancia y seguridad del espacio aéreo, el territorio nacional, mar territorial y jurisdiccional.
+6) Aquellas otras que se deriven del ordenamiento jurídico, de conformidad con su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 177 al 178)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 178 al 194)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 194 al 195)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 195 al 197)

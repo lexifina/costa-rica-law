@@ -1,6 +1,9 @@
-Artículo 81.—La Dirección de Tecnologías de Información(*) estará conformada por los siguientes departamentos:
-(*) (Así modificada su denominación por el artículo 79 del Reglamento de normas y políticas de las tecnologías de información del Ministerio de Seguridad, aprobado mediante decreto ejecutivo N° 38561 del 22 de mayo del 2014. Anteriormente indicaba "Dirección de Informática")
-1) Departamento de Sistemas.
-2) Departamento de Telemática.
-3) Departamento de Soporte Técnico.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 80 al 81)
+Artículo 81.—El Departamento de Almacén Institucional tendrá las siguientes funciones:
+1) Recibir y verificar pedidos y existencias. Registrar, custodiar, conservar y distribuir los bienes adquiridos por el Ministerio, observando para ello las políticas, directrices, normas técnicas y procedimientos que al efecto dicten los (las) superiores (as) jerárquicos (as), así como el Departamento de Programación y Control, la Dirección General de Administración de Bienes y Contratación Administrativa, u otros órganos competentes.
+2) Recibir y verificar en cada caso, que los proveedores entreguen los bienes dentro del plazo contractual establecido y cumplan con las respectivas condiciones de cantidad, calidad y especificaciones técnicas acordadas, e informar lo pertinente a los órganos competentes según corresponda. Para tales efectos podrá obtener la asesoría y criterio técnico de las dependencias competentes del Ministerio de Seguridad Pública, como de la Dirección General de Administración de Bienes y Contratación Administrativa.
+3) Almacenar y custodiar, en condiciones físicas, técnicas y de seguridad apropiadas, y bajo un adecuado sistema de control e inventario, los bienes adquiridos por el Ministerio de Seguridad Pública, a través de los diferentes procedimientos de contratación administrativa.
+4) Distribuir, con arreglo a un sistema de control eficiente y oportuno y en óptimas condiciones de traslado, los bienes adquiridos por el Ministerio de Seguridad Pública, en acatamiento a lo establecido en el Reglamento de Administración de Bienes emitido por la Dirección General de Administración de Bienes y Contratación Administrativas.
+5) Elaborar diferentes prendas, como pantalones largos y cortos, camisas, faldas, blusas, chaquetas, maternales, sacos de gala, enaguas de gala y otras prendas de vestir de acuerdo con diseños y patrones establecidos.
+6) Realizar cualquier otra función propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 78 al 79)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 79 al 81)

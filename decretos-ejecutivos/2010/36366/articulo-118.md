@@ -1,4 +1,5 @@
-Artículo 118.—Se entiende por prevención del delito, el conjunto de estrategias, tácticas y acciones que realiza el Ministerio, con la finalidad de conservar el orden público, la tranquilidad de los habitantes, el libre disfrute de las libertades públicas y de disminuir el riesgo de los habitantes a ser víctimas de alguna conducta delictiva.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 100 al 101)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 101 al 117)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 117 al 118)
+Artículo 118.—Los alcances del presente reglamento se extenderán a todos los cuerpos policiales y a todos los órganos de apoyo de carácter policial, agrupados dentro de las fuerzas de policía adscritas a este Ministerio, de modo que el marco de actuación de cada uno de éstos y de sus servidores queda debidamente regulado.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 98 al 99)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 99 al 115)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 115 al 116)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 116 al 118)

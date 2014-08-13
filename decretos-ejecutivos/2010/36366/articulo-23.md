@@ -1,11 +1,15 @@
-Artículo 23.—La Oficina de Igualdad y Equidad de Género será un órgano asesor y fiscalizador en materia de género, supeditada al Despacho del Ministro, facultada para incidir en la toma de decisiones en materia de género, en especial respecto a la planificación institucional y a la definición de mecanismos internos de igualdad de oportunidades para las y los funcionarios tanto administrativos como policiales.
-La Oficina de Igualdad y Equidad de Género tendrá las siguientes funciones:
-1) Alentar y coadyuvar en la formulación, aplicación, seguimiento y evaluación de la política institucional para la igualdad y equidad de género.
-2) Actualizar la política integral que homogenice los principios y la perspectiva de igualdad y equidad de oportunidades entre hombres y mujeres en el Ministerio de Seguridad Pública, promoviendo y desarrollando las medidas de carácter administrativo, normativo, procedimental y operativo necesarias, con el fin de garantizar la integración y la aplicación de esta política en los diferentes ámbitos del mismo. Para tal efecto, podrá solicitar informes, realizar consultas e indagaciones según se estime pertinente, en todas y cada una de las dependencias de este Ministerio, contando para ello con la obligada colaboración de todo el personal.
-3) Impulsar y apoyar el proceso de cambio en la cultura institucional para lograr una prestación de servicios con criterios de igualdad y equidad de género y relaciones laborales en igualdad de derechos y oportunidades para mujeres y hombres.
-4) Brindar asistencia técnica en estrategias, formas de trabajo y de relación entre funcionarios y funcionarias para asegurar un trato equitativo en derechos y oportunidades a ambos sexos.
-5) Velar porque se incorpore una visión de igualdad y equidad en las políticas y procedimientos establecidos por la institución para el otorgamiento de ascensos a los funcionarios y funcionarias tanto del área administrativa como operativa, incluyendo el otorgamiento de grados policiales.
-6) Respaldar la institucionalización del enfoque de género en las estadísticas e indicadores que integran los sistemas de información a las entidades de gobierno.
-7) Velar por el cumplimiento de los compromisos adquiridos por la Institución mediante la ratificación de Convenios Internacionales y en cuanto a las políticas nacionales de igualdad y equidad de género, en coordinación con el INAMU y la Defensoría de los Habitantes. Para tal fin podrá solicitar la información que considere necesaria ante las diversas instancias del Ministerio.
-8) Promover y apoyar la canalización de iniciativas institucionales hacia agencias de cooperación internacional en la igualdad y equidad de género.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012)
+Artículo 23.—La Unidad de Gestión de Riesgos tendrá las siguientes funciones:
+1) Orientar a las unidades policiales y administrativas en la identificación, análisis, evaluación, administración de los riesgos que pueden afectar el cumplimiento de los objetivos.
+2) Revisar y actualizar periódicamente los componentes del Sistema Específico de Valoración de Riesgo Institucional (Marco orientador, Ambiente de apoyo, Recursos, Sujetos interesados y las Herramientas para la administración de información).
+3) Elaborar e implementar los modelos necesarios, para definir, medir y controlar los riesgos a los que podría estar expuesta la Institución.
+4) Establecer las herramientas necesarias para definir los límites aceptables de cada tipo de riesgo.
+5) Socializar los resultados de la Administración de Riesgos a las unidades interesadas y a nivel institucional.
+6) Capacitar, asesorar y evaluar los modelos de medición y administración de riesgos institucionales.
+7) Identificar, analizar y evaluar el impacto de los riesgos en el cumplimiento de los objetivos de los proyectos o procesos de importancia en un periodo determinado.
+8) Formular y aplicar pruebas bajo condiciones extremas, que permitan identificar el riesgo que enfrentaría la Institución y elaborar medidas y procedimientos de emergencia que minimicen la exposición al riesgo y su impacto.
+9) Verificar la funcionalidad de los modelos utilizados en el proceso de medición de riesgo, realizando pruebas entre resultados estimados y observados, así como el cumplimiento de los procedimientos para la medición de riesgos.
+10) Preparar en coordinación con la Unidad de Control Interno, la información para la elaboración del Manual de Políticas y Procedimientos para la Administración Integral de Riesgos.
+11) Elaborar y aplicar los planes de contingencia, en caso de que los factores de riesgo sean desfavorables e inseguros para el patrimonio de la Institución.
+12) Verificar la implementación de las medidas correctivas recomendadas para el Sistema Específico de Valoración de Riesgo (SEVRI).
+13) Cualquier otra propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 21 al 23)

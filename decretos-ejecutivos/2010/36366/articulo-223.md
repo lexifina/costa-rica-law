@@ -1,14 +1,18 @@
-Artículo 223.— El Departamento de Inteligencia Fronteriza tendrá las siguientes funciones:
-1) Recopilar y analizar datos con la finalidad de producir información oportuna y confiable, para la toma de decisiones operativas,
-2) Desarrollar análisis estratégicos, tácticos y de inteligencia para la seguridad fronteriza,
-3) Suministrar información actualizada y efectiva a todas las instancias de la Policía de Fronteras, para el planeamiento y ejecución de acciones operativas,
-4) Mantener y administrar los sistemas de información documental e informatizado de la Policía de Fronteras,
-5) Planificar y establecer estrategias de recolección, procesamiento, análisis y flujo de información para la Policía de Fronteras,
-6) Participar en los operativos policiales de vigilancia y seguridad fronteriza que se desarrollen, en coordinación con el Departamento de Operaciones,
-7) Evaluar el proceso de las operaciones especiales, que permitan mejorar la toma de decisiones,
-8) Desarrollar técnicas y metodologías de intercambio de información con organismos privados y públicos, de carácter nacional e internacional, que coadyuven a la realización de acciones operacionales,
-9) Establecer un enlace permanente y dinámico con otros entes nacionales e internacionales en materia policial y seguridad fronteriza,
-10) Desarrollar mecanismos de verificación y control para los flujos de información de la Policía de Fronteras,
-11) Realizar los análisis situacionales en las franjas fronterizas, para la mejor gestión administrativa y operativa,
-12) Cualquier otra propia de su competencia.
+CAPÍTULO VIII
+Dirección de la Policía de Fronteras
+SECCIÓN I
+Funciones
+Artículo 223.—La Dirección de la Policía de Fronteras dependerá del (de la) Ministro (a) y tendrá las siguientes funciones:
+1) Realizar acciones operativas, propias y en coordinación con otros cuerpos policiales, instituciones públicas y privadas, órganos judiciales y otros gobiernos,
+2) Mantener patrullajes fronterizos permanentes que permitan vigilar y proteger las zonas fronterizas,
+3) Realizar acciones de vigilancia y protección, propias o en coordinación con otras instituciones en materia de ayuda humanitaria, protección al ambiente, estabilización en casos de desastres naturales o provocados por el ser humano,
+4) Realizar acciones de prevención de delitos nacionales e internacionales en las franjas fronterizas,
+5) Desarrollar planes estratégicos que permitan orientar el accionar de la Policía de Fronteras,
+6) Gestionar convenios de cooperación nacional e internacional, con otros cuerpos policiales, instituciones públicas, privadas y otros gobiernos, para el fortalecimiento de la vigilancia y seguridad fronteriza,
+7) Velar por la correcta administración de los bienes, servicios y el recurso humano para el buen desempeño de la Policía de Fronteras,
+8) Coadyuvar en la protección y preservación de los recursos naturales, de conformidad con la legislación vigente y los convenios internacionales,
+9) Coadyuvar en los procesos de integración de las comunidades y poblaciones indígenas, en las zonas fronterizas del país,
+10) Desarrollar iniciativas de comunicación e información con el propósito de fortalecer la imagen y el sentido de pertenencia de la Dirección de la Policía de Fronteras,
+11) Cualquier otra que establezcan las leyes y reglamentos.
 (Así adicionado por el artículo 3° del decreto ejecutivo N° 38367 del 21 de febrero del 2014)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 221 al 223)

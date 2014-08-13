@@ -1,10 +1,17 @@
-Artículo 12.—El Subproceso de Prospección Institucional tendrá las siguientes funciones:
-1) Realizar análisis retrospectivos de la realidad institucional con la finalidad de plantear posibles escenarios, retos y objetivos para enfrentar desafíos futuros.
-2) Analizar variables cuantitativas y cualitativas con visión de futuro para ajustar a la realidad presente y concebir estrategias de acción tendientes a alcanzar el futuro deseable.
-3) Identificar proyectos institucionales, su relación con los posibles escenarios y las acciones que deberán tomarse para que los mismos puedan ser viables.
-4) Definir lineamientos que permitan identificar, programar, ejecutar y evaluar planes de inversión.
-5) Identificar posibles estrategias en materia de seguridad ciudadana, que sean factibles de implementar en el presente y en el futuro del Ministerio.
-6) Aplicar técnicas de análisis de la cultura organizacional a fin de identificar elementos de apoyo o de resistencia a posibles cambios institucionales y remitir las recomendaciones pertinentes.
-7) Colaborar en la elaboración de la Memoria Anual Institucional.
-8) Coordinar la elaboración de los manuales de procesos y procedimientos.
-9) Cualquier otra de su competencia.
+Artículo 12.—La Oficina de Planificación Institucional está adscrita al Despacho del (de la) Ministro(a), y desarrollará las siguientes funciones:
+1) Cumplir con los lineamientos y procedimientos establecidos en el Sistema Nacional de Planificación y Sistema Nacional de Inversión Pública.
+2) Identificar factores endógenos y exógenos de la realidad institucional, que permitan generar una visión integral de los factores que interactúan para la orientación de estudios particulares, así como plantear soluciones a los problemas identificados.
+3) Analizar las políticas y estrategias nacionales en materia de seguridad, que incidan en el cumplimiento de la misión institucional y emitir las recomendaciones correspondientes.
+4) Formular, proponer y evaluar políticas en el área de seguridad, según los lineamientos emitidos por el (la) Ministro(a), o establecidos en el Plan Nacional de Desarrollo.
+5) Crear, identificar y fortalecer los procesos de planificación, que permitan cumplir con los objetivos institucionales.
+6) Emitir el criterio técnico y participar en los procesos de modificación de la estructura orgánica institucional.
+7) Contribuir en la formulación del Plan Estratégico y el Plan Operativo Anual Institucional de conformidad con los lineamientos del Plan Nacional de Desarrollo y con la normativa institucional.
+8) Revisar y redefinir, de acuerdo con la dinámica institucional, la estructura programática en coordinación con otras instancias del Ministerio como base para la formulación presupuestaria.
+9) Coordinar con la Dirección General Administrativa, la Dirección de Recursos Humanos, la Dirección Financiera y los responsables de subprogramas y actividades presupuestarias, la formulación y evaluación del presupuesto institucional.
+10) Revisar y avalar toda creación, modificación o supresión de cualquier dependencia de la estructura orgánica del Ministerio, en coordinación con la Asesoría Jurídica y la Dirección de Recursos Humanos, para su posterior aprobación por parte del (de la) Jerarca.
+11) Realizar los procesos de seguimiento y evaluación de planes, programas y proyectos, recomendando las medidas correctivas pertinentes.
+12) Brindar a los (las) funcionarios (as) de la Institución que en razón de su cargo requieran, asesoría y capacitación en materia de planificación.
+13) Recopilar, procesar y analizar información para la elaboración de documentos sobre la gestión institucional.
+14) Mantener una estrecha coordinación con el Ministerio de Planificación Nacional y Política Económica y con las demás entidades vinculadas al ámbito de acción.
+15) Cualquier otra propia de su competencia o que le sea asignada por el (la) Ministro(a).
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 10 al 12)

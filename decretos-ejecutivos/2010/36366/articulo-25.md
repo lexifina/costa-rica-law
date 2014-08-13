@@ -1,16 +1,12 @@
-Artículo 25.—El Consejo Superior de Oficiales tendrá las siguientes funciones:
-1) Acatar las políticas dictadas por el Consejo Nacional de Seguridad Ciudadana.
-2) Proponer políticas y lineamientos generales de organización, funcionamiento y desarrollo de las fuerzas de policía adscritas al Ministerio de Seguridad Pública.
-3) Definir lineamientos para el diseño y ejecución de los programas de formación, capacitación y entrenamiento policial.
-4) Emitir lineamientos que generen condiciones favorables para la adecuada promoción, humana, social y profesional de los miembros de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública.
-5) Conocer, evaluar y recomendar propuestas de ascensos, pensiones y separaciones de los (las) funcionarios (as) de nivel de Dirección, Superior y Medio, de conformidad con las disposiciones de ley y demás disposiciones generales relativas a la carrera, estatuto, escalafón y régimen disciplinario.
-6) Brindar asesoría en cuanto a tácticas, experiencias, técnicas, estrategias, fortalezas, procedimientos, protocolos, necesidades y limitaciones de las unidades policiales.
-7) Recomendar la creación de nuevas Direcciones Operativas, siguiendo lineamientos de los órganos competentes.
-8) Determinar procedimientos aplicables internamente en los casos de violación a las leyes y reglamentos por parte de funcionarios policiales en servicio, que pudieren configurar un crimen o un delito.
-9) Conocer y recomendar al Ministro (a) las propuestas de creación o modificaciones a leyes y reglamentos que afecten la función policial.
-10) Conocer y evaluar los informes del Inspector General y del Ministerio Público, en los casos en que corresponda y brindar asesoría al (a la) Jerarca sobre su proceder.
-11) Emitir lineamientos que contribuyan a regular el uso de armas reglamentarias y servicios para los cuales se autoriza el uso de armas especiales.
-12) Revisar y realizar sugerencias sobre nuevo equipo policial, avituallamiento y tecnología a adquirir por parte del Ministerio.
-13) Solicitar a los (las) Directores (as), tanto Policiales como Administrativos, la rendición de cuentas sobre la aplicación de las políticas y lineamientos dictados por este Consejo.
-14) Cualquier otra de su competencia o que le sea asignada por el (la) Ministro (a).
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 24 al 25)
+Artículo 25.—La Oficina de Igualdad y Equidad de Género será un órgano asesor y fiscalizador en materia de género, supeditada al Despacho del Ministro, facultada para incidir en la toma de decisiones en materia de género, en especial respecto a la planificación institucional y a la definición de mecanismos internos de igualdad de oportunidades para las y los funcionarios tanto administrativos como policiales.
+La Oficina de Igualdad y Equidad de Género tendrá las siguientes funciones:
+1) Alentar y coadyuvar en la formulación, aplicación, seguimiento y evaluación de la política institucional para la igualdad y equidad de género.
+2) Actualizar la política integral que homogenice los principios y la perspectiva de igualdad y equidad de oportunidades entre hombres y mujeres en el Ministerio de Seguridad Pública, promoviendo y desarrollando las medidas de carácter administrativo, normativo, procedimental y operativo necesarias, con el fin de garantizar la integración y la aplicación de esta política en los diferentes ámbitos del mismo. Para tal efecto, podrá solicitar informes, realizar consultas e indagaciones según se estime pertinente, en todas y cada una de las dependencias de este Ministerio, contando para ello con la obligada colaboración de todo el personal.
+3) Impulsar y apoyar el proceso de cambio en la cultura institucional para lograr una prestación de servicios con criterios de igualdad y equidad de género y relaciones laborales en igualdad de derechos y oportunidades para mujeres y hombres.
+4) Brindar asistencia técnica en estrategias, formas de trabajo y de relación entre funcionarios y funcionarias para asegurar un trato equitativo en derechos y oportunidades a ambos sexos.
+5) Velar porque se incorpore una visión de igualdad y equidad en las políticas y procedimientos establecidos por la institución para el otorgamiento de ascensos a los funcionarios y funcionarias tanto del área administrativa como operativa, incluyendo el otorgamiento de grados policiales.
+6) Respaldar la institucionalización del enfoque de género en las estadísticas e indicadores que integran los sistemas de información a las entidades de gobierno.
+7) Velar por el cumplimiento de los compromisos adquiridos por la Institución mediante la ratificación de Convenios Internacionales y en cuanto a las políticas nacionales de igualdad y equidad de género, en coordinación con el INAMU y la Defensoría de los Habitantes. Para tal fin podrá solicitar la información que considere necesaria ante las diversas instancias del Ministerio.
+8) Promover y apoyar la canalización de iniciativas institucionales hacia agencias de cooperación internacional en la igualdad y equidad de género.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 23 al 25)

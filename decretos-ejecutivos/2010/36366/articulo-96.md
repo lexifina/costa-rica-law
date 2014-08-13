@@ -1,13 +1,16 @@
-Artículo 96.—El Departamento de Mantenimiento Vehicular tendrá las siguientes funciones:
-1. Elaborar y ejecutar, en coordinación con los Programas Presupuestarios, el plan de mantenimiento preventivo y correctivo de los vehículos automotores del Ministerio.
-2. Mantener un registro actualizado con la información relevante de las reparaciones realizadas a los vehículos automotores.
-3. Gestionar y actualizar periódicamente el equipo mecánico-tecnológico necesario para brindar un servicio de calidad.
-4. Revisar los vehículos automotores asignados al Ministerio en calidad de préstamo y comodato, al momento de su recibo de entrega.
-5. Velar por que los vehículos automotores mantengan una condición mecánica que les permita obtener el documento de revisión técnica vehicular favorable.
-6. Coordinar con los talleres mecánicos ubicados en las diferentes regiones, según las necesidades específicas, el suministro y abastecimiento de los insumos y repuestos.
-7. Coordinar con los Programas Presupuestarios la priorización de las necesidades de los vehículos a reparar en talleres externos.
-8. Mantener un control de las tareas mecánicas que realizan los talleres mecánicos ubicados en las regiones.
-9. Mantener mecanismos de control que garanticen una ejecución adecuada de los contratos.
-10. Mantener actualizada la estrategia de mantenimiento, basándose esencialmente en los parámetros vigentes del Manual de Revisión Técnica.
-11. Realizar cualquier otra función propia de su competencia.
+Artículo 96.— La Sección de Control de Insumos tendrá las siguientes funciones:
+1. Realiza las gestiones ante la entidad bancaria que corresponda para la generación de pines de acceso a la página electrónica de la entidad bancaria correspondiente; la emisión y activación de tarjetas institucionales para la compra de insumos de transportes, certificación de voucher, reposición de tarjetas, cancelación y destrucción de tarjetas, afiliaciones, cambios de ubicación de tarjetahabientes y todas aquellas que se requieran en materia de transportes.
+2. Mantener un registro de las tarjetas electrónicas de compra institucional, con que cuenta cada una de las unidades policiales y administrativas que conforman el Ministerio.
+3. Aplicar cambios de parámetros en tarjetas electrónicas de compras institucionales.
+4. Realizar estudios sobre comportamiento de rendimientos, consumos, emisiones de insumos y ampliación y mejoramiento del servicio de compras a través de la modalidad de tarjeta electrónica.
+5. Recibir, preparar y enviar los estados de cuenta que remite la entidad bancaria correspondiente por gastos de insumos a través de la compra con tarjeta electrónica, a todas las Unidades del Ministerio que cuentan con vehículos automotores, a efectos de que realicen la liquidación de los gastos.
+6. Realizar investigaciones por mal uso de los combustibles y preparar los informes respectivos.
+7. Gestionar reclamos de compras que la entidad bancaria correspondiente cobra, pero que no fueron efectivas por el tarjetahabiente, dando el seguimiento a las reversiones de fondos.
+8. Conciliar según consumo mensual registrado en el estado de cuentas, contra los comprobantes de compra (vouchers y facturas), las liquidaciones de insumos que presentan las unidades que mantienen tarjetahabientes habilitados.
+9. Reportar anomalías de las conciliaciones del estado de cuenta, emitido por la entidad bancaria correspondiente, a las autoridades superiores e instancias disciplinarias según corresponda.
+10. Revisar y analizar la documentación de rendimiento de insumos, que remiten mensualmente las Unidades del Ministerio que tienen asignados vehículos automotores y otros activos que consumen insumos.
+11. Capacitar a los tarjetahabientes, encargados de combustibles, jefes de unidad y Oficiales Administradores Regionales sobre el manejo y control de los insumos compradores a través de tarjeta electrónica.
+12. Proponer cambios en la estructura de tarjetas electrónicas de compras institucionales en la página electrónica de la entidad bancaria correspondiente; velando por que dicha estructura se mantenga acorde con las nomenclaturas de las instancias descritas en el organigrama vigente del Ministerio.
+13. Realizar cualquier otra función propia de su competencia.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 94 al 96)

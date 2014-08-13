@@ -1,17 +1,16 @@
-Artículo 157.—El Departamento de Inteligencia Policial tendrá las siguientes funciones:
-1) Recopilar, evaluar, tratar, analizar y difundir la información de interés policial que permita el desarrollo de acciones policiales con eficiencia y eficacia, tanto en el plano estratégico como en el táctico.
-2) Crear mecanismos que permitan la recopilación de información de interés policial en las diferentes unidades policiales e instancias vinculadas al sector de actividad con el fin de suministrar a la Dirección de Operaciones información de interés policial.
-3) Participar de las diferentes operaciones policiales con la finalidad de recopilar información y plantear recomendaciones para la toma de decisiones.
-4) Mantener un registro de información documental en materia de interés policial, así como de identificación dactilar.
-5) Fortalecer mediante convenios o políticas ya establecidas el intercambio de bases de datos, aplicaciones informáticas u otras que permitan mejorar y ampliar los servicios.
-6) Dirigir la actividad de inteligencia policial, en seguridad ciudadana enfocado a la prevención en el ámbito nacional.
-7) Planear y ejecutar las operaciones abiertas o encubiertas para la obtención de información policial utilizando tecnología de apoyo permitidas según el ordenamiento jurídico.
-8) Realizar diagnósticos con el fin de medir la eficacia y eficiencia de las operaciones policiales a través del análisis de la información.
-9) Asesorar y brindar capacitación en coordinación con la Escuela Nacional de Policía a los servidores policiales en materia de inteligencia policial.
-10) Coadyuvar en el planeamiento y ejecución de operativos policiales mediante el suministro de información constante en tiempo real y efectivo.
-11) Custodiar la información que se procesa y almacena en los diferentes sistemas y el buen uso de la misma.
-12) Recopilar, clasificar, procesar y difundir información cuantitativa y cualitativa, obtenida por el Ministerio en lo concerniente a las estadísticas de interés policial y proveer al Sistema de Estadística Nacional los datos requeridos para elaborar las estadísticas nacionales.
-13) Atender las consultas presentadas por funcionarios de las diferentes unidades administrativas, policiales y público en general, relacionadas con el campo de actividad.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 139 al 140)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 140 al 156)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 156 al 157)
+Artículo 157.—La Sección de Operaciones tendrá las siguientes funciones:
+1) Confeccionar la orden de operaciones para las unidades policiales y asesorar a las unidades policiales en la elaboración de la orden de servicio que da sustento a la operación policial.
+2) Elaborar informes para la jefatura del Departamento de Planes y Operaciones, la Dirección de Operaciones y la Dirección General de la Fuerza Pública, referente al trabajo ordinario y extraordinario.
+3) Coordinar con instituciones públicas y privadas, a nivel nacional, la ejecución de operativos policiales.
+4) Participar en operaciones policiales ejecutadas por la Fuerza Pública, supervisar y evaluar su ejecución.
+5) Establecer y ejecutar con las unidades especializadas competentes, los dispositivos para la atención del tráfico de armas y sustancias prohibidas, desalojos, eventos masivos, atención a comunidades y otros.
+6) Brindar apoyo estratégico y táctico, en la toma de decisiones de los mandos superiores ante la presencia de manifestaciones a nivel nacional, operativos nacionales, secuestros, toma de rehenes, entre otros.
+7) Brindar apoyo táctico in situ, para el desarrollo satisfactorio de la orden de operaciones emitida por el Departamento.
+8) Coordinar y participar en los operativos requeridos por la Policía de Control de Drogas, para la erradicación de plantaciones de drogas en las diferentes zonas del país.
+9) Desarrollar en conjunto con los cuerpos y unidades policiales acciones policiales orientadas a la protección y preservación del ambiente y de los recursos naturales, como colaboración a las instituciones u organismos públicos o privados dedicados a esa actividad.
+10) Colaborar con la Escuela Nacional de Policía, brindando instrucción a los servidores policiales, en temas afines con la función policial desarrollada por el Departamento de conformidad con los conocimientos y experiencia en la materia.
+11) Brindar soporte a las Direcciones Regionales en el campo operacional, estandarizando los procedimientos y estrategias.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 137 al 138)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 138 al 154)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 154 al 155)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 155 al 157)

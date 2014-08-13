@@ -1,7 +1,8 @@
-Artículo 58.—La Sección de Asistencia y Reubicaciones tendrá las siguientes funciones:
-1) Gestionar y ejecutar los procedimientos relacionados con la ubicación y traslado del personal del Ministerio.
-2) Controlar y dar seguimiento al proceso de asistencia y puntualidad de los (las) funcionarios (as) del Ministerio.
-3) Informar al Departamento Disciplinario Legal, sobre las actuaciones de los (las) funcionarios (as) que contravienen el principio de legalidad.
-4) Realizar acciones relacionadas con la retención y liberación salarial de los (las) funcionarios (as) del Ministerio.
-5) Atender cualquier otra actividad propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 57 al 58)
+Artículo 58.—El Departamento de Control y Documentación tendrá las siguientes Secciones:
+1) Sección de Inspección.
+2) Sección de Asistencia y Reubicaciones.
+3) Sección de Control y Verificación.
+4) Sección de Documentación.
+5) Sección Evaluación del Desempeño.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 55 al 56)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 56 al 58)

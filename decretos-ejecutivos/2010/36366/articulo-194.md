@@ -1,10 +1,7 @@
-Artículo 194.—Al Departamento de Investigación y Desarrollo le corresponderán las siguientes funciones:
-1) Definir metodologías de capacitación policial y comunal, basadas en las demandas de seguridad de las comunidades y remitirlas al Departamento de Prevención Policial Comunitaria para su aplicación.
-2) Diseñar procesos que mejoren la implementación de la Estrategia de Policía Comunitaria y los programas preventivos que desarrollan los policías en las Direcciones Regionales para su aplicación.
-3) Realizar estudios sobre la situación de seguridad integral que tienen las comunidades y sectores poblacionales específicos para adecuar el abordaje preventivo policial.
-4) Llevar el control estadístico de las actividades realizadas por el Departamento de Prevención Policial Comunitaria y las Direcciones Regionales de la Fuerza Pública en relación con los programas preventivos.
-5) Realizar investigaciones sobre las tendencias de los modelos de policía de orientación comunitaria, metodologías de prevención y atención a problemas comunales que inciden en la seguridad.
-6) Elaborar instrumentos de actuación y supervisión dirigidos a los (las) funcionarios (as) policiales relacionados con la Estrategia de Policía Comunitaria y los programas preventivos y remitirlos a la Dirección General de la Fuerza Pública para su aplicación.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 176 al 177)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 177 al 193)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 193 al 194)
+Artículo 194.—La Dirección de Programas Preventivos Policiales está conformada por los siguientes departamentos:
+1) Departamento de Prevención Policial Comunitaria.
+2) Departamento de Investigación y Desarrollo.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 174 al 175)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 175 al 191)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 191 al 192)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 192 al 194)

@@ -1,12 +1,12 @@
-Artículo 146.—El Subproceso de Asuntos Internos tendrá la colaboración de funcionarios investidos de autoridad policial, los cuales realizarán las siguientes funciones:
-1) Ejecutar en estricta coordinación con las instancias judiciales competentes, operativos, detenciones, allanamiento, requisas, registros, secuestros y decomisos de pruebas, de aquellos hechos ilícitos en los que funcionarios policiales se vean involucrados.
-2) Coordinar con otros cuerpos de policía, organismos nacionales e internacionales, las investigaciones e intercambio de información, que permita la prevención y represión oportuna, eficiente y eficaz de conductas ilícitas por parte de miembros de la Fuerza Pública.
-3) Establecer las acciones pertinentes para la recepción de quejas o denuncias relacionadas con posibles faltas disciplinarias en que hayan incurrido servidores (as) de la Dirección General de la Fuerza Pública y de otras instancias policiales del Ministerio a petición del (de la) Ministro (a).
-4) Realizar las diligencias previas de la investigación y recolección de indicios, elementos probatorios con respecto a las irregularidades y faltas disciplinarias en que puedan verse involucrados los (las) servidores (as) policiales del Ministerio.
-5) Establecer los procedimientos adecuados para realizar entrevistas y recibir declaraciones a funcionarios (as) públicos (as) y personas particulares, así como levantar actas sobre inspecciones y sobre cualquier otro tipo de evidencias que se requieran en razón de la investigación que se realice.
-6) Realizar acciones dirigidas a constatar en las distintas instancias judiciales, la existencia de expedientes penales en trámite o concluidos, en contra de los (las) servidores (as) del Ministerio, y de las resoluciones que de ellos se deriven.
-7) Remitir el resultado de las investigaciones - expediente y pruebas - al Departamento Disciplinario Legal, cuando se presuma la comisión de una falta grave por parte de un servidor del Ministerio.
-8) Todas las demás relacionadas con su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 128 al 129)
-(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 129 al 145)
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 145 al 146)
+Artículo 146.—A la Inspección General, le corresponderán las siguientes funciones:
+1) Garantizar el cumplimiento de los procedimientos establecidos en la operación policial en estricto apego con el ordenamiento jurídico.
+2) Inspeccionar y controlar el funcionamiento de los servicios y la gestión realizada por los (las) funcionarios (as) policiales de las dependencias de la Dirección General de la Fuerza Pública.
+3) Actuar de oficio o a requerimiento del (de la) Ministro (a), realizando investigaciones a funcionarios pertenecientes a los cuerpos policiales, o que por su investidura requieran ser investigados.
+4) Velar por el uso adecuado, proporcional, racional, eficiente y eficaz de los recursos asignados a los (las) funcionarios (as) policiales del Ministerio.
+5) Realizar las diligencias que se deriven del Ordenamiento Jurídico y que sean necesarias para la investigación de conductas irregulares que puedan significar delito, cometidas por miembros de la Fuerza Pública.
+6) Presentar ante las instancias competentes los resultados de las investigaciones preliminares ejecutadas.
+7) Todas las demás relacionadas conforme con las competencias y potestades definidas por el ordenamiento jurídico.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 126 al 127)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 127 al 143)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 143 al 144)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 144 al 146)

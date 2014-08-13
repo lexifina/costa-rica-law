@@ -1,8 +1,11 @@
-Artículo 49.—La Sección de Prestaciones tendrá las siguientes funciones:
-1) Realizar estudios y cálculos de proyecciones emitidas mediante resoluciones relacionadas con la materia de pago de extremos laborales.
-2) Monitorear el saldo de cada programa presupuestario en relación con el pago de extremos laborales.
-3) Elaborar resoluciones de pago de extremos laborales.
-4) Elaborar estadísticas mensuales que permitan determinar los diferentes tipos de ceses de personal y el costo correspondiente.
-5) Emitir certificaciones de pago de extremos laborales a solicitud de otras instituciones del Estado.
-6) Atender cualquier otra actividad propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 48 al 49)
+Artículo 49.—La Sección de Aplicaciones tendrá las siguientes funciones:
+1) Velar por la aplicación de los movimientos de personal, relacionados con la administración de salarios y derechos pecuniarios derivados de la relación laboral.
+2) Mantener actualizado el sistema de pagos mediante el registro y monitoreo de los movimientos de personal de la Institución.
+3) Administrar la relación de puestos para el trámite y aplicación de los movimientos de personal de este Ministerio.
+4) Realizar mediante el sistema de pagos del Ministerio de Hacienda la inclusión y exclusión de los servidores de este Ministerio.
+5) Confeccionar las propuestas de planillas de pago conforme a los periodos que establezca el Ministerio de Hacienda.
+6) Realizar las actividades correspondientes para el pago de horas extra, anualidades e incentivos que así lo requieran.
+7) Ejercer el control y monitoreo quincenal de pago de la planilla para verificar y analizar los resultados referentes a ésta.
+8) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 46 al 47)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 47 al 49)

@@ -1,7 +1,10 @@
-Artículo 48.—La Sección de Incentivos y Beneficios tendrá las siguientes funciones:
-1) Efectuar los estudios y dar trámite a los incentivos y beneficios para los (las) funcionarios (as) del Ministerio según su viabilidad jurídica y material; así como el seguimiento del cumplimiento de los requisitos establecidos.
-2) Verificar el efectivo cumplimiento de la normativa legal que regula la materia de incentivos.
-3) Mantener una base de datos actualizada sobre los (las) funcionarios (as) que disfruten de los incentivos, vacaciones y anualidades.
-4) Dar trámite y seguimiento a las gestiones relacionadas con vacaciones y horas extras.
-5) Atender cualquier otra actividad propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 47 al 48)
+Artículo 48.—La Sección de Remuneraciones se avocará a la realización de las siguientes funciones:
+1) Efectuar y dar trámite a los estudios de cobro de sumas acreditadas que no corresponden a funcionarios y ex funcionarios; así como registrar en el Sistema de Pagos Integra, las deducciones a los (las) funcionarios (as) que poseen deuda con este Ministerio e iniciar la gestión de cobros con deudas pendientes ante la Dirección Financiera.
+2) Realizar las valoraciones pertinentes para elaborar certificaciones de salarios y sus componentes.
+3) Realizar, dar seguimiento y tramitar los cálculos de reclamos administrativos de los (las) funcionarios (as) por sumas dejadas de percibir.
+4) Recibir y tramitar las denuncias por accidentes laborales y de tránsito; así como recibir y tramitar las incapacidades emitidas por el Instituto Nacional de Seguros y la Caja Costarricense de Seguro Social, en materia propia de su competencia.
+5) Realizar los cálculos y estudios de incapacidades reportadas por parte de los (las) funcionarios (as) y ex funcionarios del Ministerio.
+6) Elaborar las propuestas de planillas para el pago correspondiente por parte del Instituto Nacional de Seguros y la Caja Costarricense de Seguro Social, conforme los períodos establecidos.
+7) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 45 al 46)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 46 al 48)

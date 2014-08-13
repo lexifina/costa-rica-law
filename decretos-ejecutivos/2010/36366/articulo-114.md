@@ -1,17 +1,11 @@
-SECCIÓN XII
-Departamento de Archivo Central
-Artículo 114.—El Departamento de Archivo Central tendrá las siguientes funciones:
-1) Centralizar la documentación tramitada de varias o de todas las oficinas del Ministerio de acuerdo con los plazos de remisión, establecidos en las tablas de plazo de conservación y eliminación de documentos,
-2) Velar por la aplicación de políticas archivísticas implementadas por la Junta Administrativa del Archivo Nacional y asesorar técnicamente al personal de la Institución que labore en Archivos de Gestión,
-3) Reunir, conservar, clasificar, ordenar, describir, seleccionar, administrar, custodiar y facilitar la documentación producida y la que se haya recibido como producto de las funciones del Ministerio,
-4) Preparar guías, inventario, índices, catálogos y otros instrumentos, así como auxiliares descriptivos para facilitar la consulta de los documentos que son producto de la gestión del Ministerio,
-5) Entregar o facilitar a otras instituciones o personas interesadas, copia o reproducción de los documentos que conserva. Los costos correrán a cargo de los interesados,
-6) Promover cursos para la capacitación del personal a cargo de los Archivos de Gestión, ya sea por medio del propio Archivo Central, el Archivo Nacional o cualquier otra institución atinente,
-7) Suministrar de una manera ágil, veraz y oportuna la información que requieran los usuarios del Archivo Central,
-8) Despachar todo tipo de constancias y certificaciones con base en el fondo documental del Archivo Central. Cuando así lo exijan las leyes y reglamentos, el solicitante aportará las especies fiscales y el papel correspondiente,
-9) Promover la creación del Comité Institucional de Selección y Eliminación de Documentos,
-10) Ejercer los controles necesarios para el adecuado manejo y conservación de la documentación que en él esté depositada,
-11) Coordinar con la Dirección General del Archivo Nacional, la ejecución de las políticas archivísticas del Ministerio,
-12) Salvaguardar toda aquella documentación que de una u otra manera vea amenazada su integridad por medio de microfilm, así mismo reproducirá por el mismo medio los documentos previa consulta a la Dirección General del Archivo Nacional sobre la planificación y realización del procedimiento,
-13) Elaborar las tablas generales de plazos de conservación de documentos del Ministerio, basadas en las tablas de plazo de los Archivos de Gestión y someterlas a conocimiento de los Comité Institucional de Selección y Eliminación y Nacional de Selección y Eliminación de Documentos.
-(Así adicionado por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014)
+Artículo 114.—Sin perjuicio de las facultades del (de la) Jefe del Departamento, a los (las) jefes de Sección les corresponderán las siguientes funciones:
+1) Velar por el fiel cumplimiento de las presentes disposiciones y por el buen funcionamiento de la Sección a su cargo.
+2) Coordinar, dirigir, distribuir y supervisar el trabajo entre el personal de la Sección a su cargo.
+3) Velar por que se cumplan en debida forma los procedimientos de instrucción disciplinaria de los asuntos asignados a la Sección bajo su cargo, para lo cual deberá suscribir en calidad de Jefe de Sección, las distintas actuaciones de tramitación necesarias para la buena marcha de los procedimientos, salvo los autos de apertura, resoluciones interlocutorias y resolución de recomendación final, los cuales corresponde suscribir al Jefe del Departamento Disciplinario Legal; no obstante el (la) Jefe de Sección, deberá revisarlos previamente y consignar su “visto bueno” de previo a ser firmados por el (la) Jefe del Departamento Disciplinario.
+4) Velar por el mantenimiento del orden y la disciplina del personal de la Sección a su cargo.
+5) Apoyar y dar seguimiento a los lineamientos y órdenes dictadas por la jefatura del Departamento.
+6) Asumir las funciones de la Jefatura del Departamento, por recargo, cuando así se le asigne en ausencia del titular.
+7) Todas aquellas que le sean asignadas por la Jefatura del Departamento Disciplinario.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 95 al 96)
+(Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 96 al 112)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 112 al 114)

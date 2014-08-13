@@ -1,7 +1,11 @@
-Artículo 54.—La Sección Gestión de Becas y Facilidades al exterior tendrá las siguientes funciones:
-1) Gestionar y dar seguimiento a los trámites necesarios para salidas al exterior para el aprovechamiento de becas y facilidades de capacitación.
-2) Coordinar con la Oficina de Cooperación Internacional las diferentes actividades relacionadas con invitaciones, becas u otras facilidades de capacitación en el exterior, para los (las) funcionarios (as) del Ministerio.
-3) Realizar concursos para el otorgamiento y aprovechamiento de becas otorgadas por organismos internacionales y gobiernos extranjeros.
-4) Elaborar, gestionar y dar seguimiento a los contratos de adiestramiento del personal que participa en becas en el exterior.
-5) Atender cualquier otra actividad propia de su competencia.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 53 al 54)
+Artículo 54.—La Sección de Capacitación tendrá las siguientes funciones:
+1) Gestionar y coordinar acciones de capacitación para el personal del Ministerio, con instituciones, tanto públicas como privadas.
+2) Elaborar estudios técnicos para el reconocimiento de títulos para carrera profesional del personal administrativo.
+3) Estudiar y recomendar las solicitudes de licencia de estudio con goce de salario para el personal administrativo y policial, de acuerdo con las disposiciones legales.
+4) Organizar y mantener actualizados los registros que identifiquen los recursos de facilitadores, personal capacitado, programas, con el fin de satisfacer necesidades internas de planificación de la capacitación y necesidades externas del Subsistema de Capacitación Desarrollo del Servicio Civil.
+5) Realizar estudios para determinar necesidades de capacitación del personal del Ministerio.
+6) Diseñar y desarrollar programas de capacitación orientados a mejorar el desempeño laboral.
+7) Diseñar e implementar metodologías de evaluación para medir el impacto de las actividades de capacitación en el personal.
+8) Atender cualquier otra actividad propia de su competencia.
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 51 al 52)
+(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 52 al 54)
