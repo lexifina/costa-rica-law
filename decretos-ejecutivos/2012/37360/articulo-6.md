@@ -1,1 +1,1 @@
-Artículo 6º—Corresponderán a los tres Viceministros/as, dentro del ámbito de sus competencias, ejercer las funciones previstas en el numeral 48 de la Ley General de la Administración Pública.
+Artículo 6º—(Derogado por el artículo 2° del decreto ejecutivo N° 38599 del 14 de agosto del 2014)
