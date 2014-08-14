@@ -1,0 +1,1 @@
+Artículo 21.—Para los montos a pagar dentro de la jurisdicción del cantón de La Cruz, por concepto de desayuno, almuerzo y cena, se aplicarán las condiciones establecidas en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República, que se encuentre vigente a la fecha.

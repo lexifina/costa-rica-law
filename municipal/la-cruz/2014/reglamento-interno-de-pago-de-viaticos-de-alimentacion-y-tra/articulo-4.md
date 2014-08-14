@@ -1,0 +1,1 @@
+Artículo 4º—Competencia para extender autorizaciones: En el caso de todos los funcionarios municipales, corresponderá dar la autorización del gasto de viáticos de alimentación y Transporte al Alcalde Municipal. Por su parte, corresponde al Concejo Municipal, dictar el acuerdo de autorización de los gastos de transporte correspondiente a los Regidores y Síndicos.

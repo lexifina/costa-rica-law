@@ -1,0 +1,1 @@
+Artículo 24.—El pago de viáticos estará sujeto a la existencia efectiva y disponibilidad de contenido presupuestaria que permita hacer dicha erogación, por lo que en caso de insuficiencia de recursos se le comunicará al interesado a fin de que adopte las previsiones del caso

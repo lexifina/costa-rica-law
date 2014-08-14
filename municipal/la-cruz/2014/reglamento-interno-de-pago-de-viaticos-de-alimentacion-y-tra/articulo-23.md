@@ -1,0 +1,1 @@
+Artículo 23.—El pago de los viáticos de viajes, solo se reconocerán a favor de los funcionarios municipales, que hayan sido debidamente comisionados a realizar diligencias, dentro del Cantón de La Cruz, no así para personas ajenas a la Institución.

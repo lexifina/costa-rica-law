@@ -1,0 +1,1 @@
+Artículo 6º—Cuando se participe en sesiones municipales, giras o cuando la sesiones o gira sean en horarios que ya no se cuente con servicio de autobús, el Regidor o Síndico deberá de utilizar el servicio de autobús hasta donde se preste dicho servicio, posteriormente continuará el viaje utilizando el servicio de taxi y así se hará al inverso.
