@@ -1,0 +1,1 @@
+Artículo 11.—Una vez aprobado el contrato respectivo, la Municipalidad procederá a través del Departamento de Recursos Humanos, a confeccionar la acción de personal, la cual deberá seguir el trámite usual que rige en la institución.
