@@ -1,0 +1,1 @@
+Artículo 6º—Concluido el nombramiento final de un servidor o servidora en un puesto donde recibe el incentivo por regionalización, el Consejo de la Judicatura revisará y propondrá al Consejo Superior si mantiene o no el beneficio al puesto. En los concursos para estos puestos deberá publicitarse la existencia del beneficio.

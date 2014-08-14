@@ -1,0 +1,1 @@
+Artículo 3º—Atendiendo a la dificultad de la carrera judicial en la integración de las ternas o en la permanencia de jueces o juezas en las distintas zonas del país, el Consejo de la Judicatura propondrá al Consejo Superior, para su aprobación, la lista de las zonas o de los puestos donde se reconocerá el incentivo por regionalización y los porcentajes correspondientes.

@@ -1,0 +1,1 @@
+Transitorio I.—Dentro de los tres meses posteriores a la publicación de este reglamento, el Consejo de la Judicatura deberá proponer al Consejo Superior, las zonas o los puestos y los porcentajes a reconocer como incentivo por regionalización.
