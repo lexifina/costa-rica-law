@@ -1,0 +1,1 @@
+Transitorio único: Los procesos administrativos iniciados con anterioridad a la entrada en vigencia de este reglamento, cualquiera que sea su estado procesal, continuarán sustanciándose, en todos sus trámites y recursos, por las normas que regían a la fecha de inicio, para lo cual se continuará con el trámite de dichos asuntos hasta su finalización.

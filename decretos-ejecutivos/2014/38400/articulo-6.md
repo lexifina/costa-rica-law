@@ -1,0 +1,2 @@
+Artículo 6º—De los ascensos directos. Se entiende por ascenso directo el paso de un puesto a otro de grado inmediato superior, en la misma serie o una clase diferente, según los procedimientos de carrera administrativa establecidos de conformidad con el Estatuto de Servicio Civil y su reglamento.
+La dependencia interesada deberá solicitarlo al Departamento de Gestión Institucional de Recursos Humanos con la aprobación del Director General.

@@ -1,0 +1,1 @@
+Artículo 111.—Régimen jurídico aplicable a las faltas imprevistas. Las faltas no previstas en el presente Reglamento serán sancionadas conforme al Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, Código de Trabajo y demás leyes conexas y supletorias.

@@ -1,0 +1,1 @@
+Artículo 69.—Comunicación de prohibición del fumado. Los Jefes inmediatos serán los responsables de advertir a los servidores sobre la prohibición del fumado. La Institución deberá, asimismo, indicar dicha prohibición por medio de rótulos en lugares visibles.

@@ -1,0 +1,1 @@
+Artículo 88.—Reserva de la investigación preliminar. La información recabada y contenida en el expediente de la investigación será de carácter reservado. En caso que la investigación preliminar se inicie con ocasión de una denuncia, el denunciante podrá solicitar información sobre el curso de la investigación.

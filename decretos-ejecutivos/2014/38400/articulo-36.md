@@ -1,0 +1,6 @@
+Artículo 36.—Del disfrute de las vacaciones. Lo servidores del Registro Nacional disfrutarán de una vacación remunerada de acuerdo con las normas siguientes:
+1) Si han trabajado por un lapso que va de cincuenta semanas hasta cuatro años y cincuenta semanas, gozará de quince días hábiles de vacaciones.
+2) Si han trabajado por un lapso que va de cinco años y cincuenta semanas y hasta nueve años y cincuenta semanas, gozará de veinte días hábiles de vacaciones.
+3) Si han trabajado por un lapso de diez años y cincuenta semanas o más, gozará de treinta días hábiles de vacaciones.
+La prestación efectiva de servicio, para efectos de cálculo de las vacaciones anuales, no será afectada por las licencias con goce de salario que se concedan, según este Reglamento o acorde a lo establecido por el Estatuto de Servicio Civil. Es entendido que la continuidad laboral no se afecta por las causas antes señaladas de manera que el servidor mantiene a su favor el tiempo de servicios prestados antes de la suspensión mencionada.
+Para la determinación de los días hábiles se excluirán los sábados y domingos y demás feriados establecidos por el artículo 147 del Código de Trabajo, y los días de asueto que conceda el Poder Ejecutivo, siempre que el asueto comprenda a la dependencia y al servidor de que se trate.

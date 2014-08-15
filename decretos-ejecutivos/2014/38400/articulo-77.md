@@ -1,0 +1,2 @@
+Artículo 77.—Los funcionarios que incurren en errores. Los errores registrales son los cometidos por los registradores, asesores jurídicos, asesores técnicos, certificadores literales, topógrafos, anotadores en el ejercicio de sus funciones y demás funcionarios incluidos en el macro proceso registral.
+Los errores registrales en las inscripciones del Registro pueden ser de dos tipos, los materiales y los conceptuales.

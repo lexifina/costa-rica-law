@@ -1,0 +1,1 @@
+Artículo 49.—Manual de funcionamiento de la Comisión Institucional de Salud Ocupacional. La Comisión Institucional de Salud Ocupacional elaborará su propio manual de funcionamiento. Se crearán las Subcomisiones de Salud Ocupacional que a su juicio sean necesarias coadyuvando en el cumplimiento de lo estipulado en el presente reglamento.

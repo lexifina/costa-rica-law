@@ -1,0 +1,1 @@
+Artículo 21.—Días hábiles de trabajo. Son días hábiles para el trabajo todos los días del año, salvo lo dispuesto en el Código de Trabajo, en cuanto a los días de descanso y feriados, así como los asuetos que conceda el Poder Ejecutivo.

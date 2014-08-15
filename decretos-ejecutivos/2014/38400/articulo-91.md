@@ -1,0 +1,5 @@
+SECCIÓN SEGUNDA
+Del procedimiento administrativo disciplinario
+Artículo 91.—Del procedimiento ordinario o sumario. Artículo 90. Del procedimiento ordinario o sumario. La Administración debe observar el procedimiento ordinario previsto en la Ley General de la Administración Pública, cuando la falta atribuida sea grave. La orden de inicio y la resolución final en este tipo de procedimiento, recaerá en el Director General, el Máximo Jerarca de la Institución o la Junta Administrativa del Registro Nacional, según corresponda.
+Cuando la falta atribuida consista en faltas leves que ameritan una amonestación verbal o escrita, el procedimiento a seguir es el sumario previsto en la Ley General de la Administración Pública. La orden de inicio y la resolución final de este tipo de procedimiento recae en el Director del Registro respectivo del presunto responsable.
+En caso que se realice un procedimiento administrativo ordinario y se compruebe la comisión de una falta leve, podrá imponerse inmediatamente la sanción contemplada en el artículo 104 del presente Reglamento.

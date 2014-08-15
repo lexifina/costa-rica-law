@@ -1,0 +1,4 @@
+Articulo 44.—Normativa aplicable para proteger la salud ocupacional. Es deber del Registro Nacional adoptar e implementar las medidas necesarias para proteger eficazmente la salud ocupacional de sus funcionarios, conforme lo establece la Ley y las recomendaciones que en esta materia formulan tanto el Consejo de Salud Ocupacional como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros, a efecto de garantizar
+1) La prevención de los riesgos de trabajo.
+2) La protección de la salud y prevención de la integridad física, mental y social de los funcionarios.
+3) Mantener en estado óptimo lo relacionado con: edificaciones e instalaciones, condiciones ambientales, operaciones y procesos de trabajo y suministros y mantenimiento de equipo de protección general.

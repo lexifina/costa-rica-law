@@ -1,0 +1,1 @@
+Artículo 66.—Marco Jurídico Aplicable. Para la tramitación de las denuncias se aplicará el procedimiento ordinario establecido en el presente Reglamento, además de lo estipulado por la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia N° 7476, la Ley General de Administración Pública, según corresponda.

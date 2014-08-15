@@ -1,0 +1,1 @@
+Artículo 70.—De las áreas de fumado. La Institución proporcionará, a los servidores, las áreas especiales para el fumado; las cuales serán puestas en conocimiento de dichos servidores y de los usuarios, mediante los medios idóneos.

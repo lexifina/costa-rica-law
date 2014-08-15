@@ -1,0 +1,1 @@
+Articulo 28.—Determinación de las llegadas tardías. Se considera llegada tardía al trabajo, el lapso de diez minutos, contado a partir del inicio de la jornada. La llegada tardía que exceda en veinte minutos a partir de la hora de ingreso establecida y que a juicio del jefe superior inmediato, carezca de justificación, acarreará al trabajador la pérdida de media jornada

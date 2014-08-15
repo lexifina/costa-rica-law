@@ -1,0 +1,1 @@
+Articulo 32.—Cómputo de ausencias a media jornada de trabajo. La inasistencia a media jornada de trabajo, se considera como la mitad de una ausencia. Dos medias jornadas, constituyen una ausencia para los efectos de este Reglamento.

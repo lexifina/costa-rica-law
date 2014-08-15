@@ -1,0 +1,1 @@
+Artículo 80.—Publicidad registral inexacta. Se entenderá que hay inexactitud en la publicidad registral cuando se presenta falta de concordancia entre la realidad física o la jurídica y la información gráfica contenida en el Registro Inmobiliario. Las inexactitudes en la publicidad registral pueden ser de dos tipos, las registrales y las extraregistrales.

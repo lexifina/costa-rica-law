@@ -1,0 +1,1 @@
+Artículo 9º—Recargo de funciones. Los recargos de funciones que excedan de un mes, podrán ser remunerados y estarán sujetos a aprobación previa de la Dirección General de Servicio Civil o en quien delegue, siempre que el funcionario consienta y reúna los requisitos de preparación y de experiencia que para el desempeño del puesto sean necesarios.

@@ -1,0 +1,1 @@
+Artículo 74.—Programas de Adiestramiento y Capacitación. El Máximo Jerarca de la Institución o el Director General, facilitarán la participación de los servidores en programas de adiestramiento y capacitación, cuando sufran discapacidad en razón del trabajo que realizaban, con el fin de mejorar sus condiciones de empleo.

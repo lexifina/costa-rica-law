@@ -1,0 +1,1 @@
+Artículo 48.—Elección de los representantes de la Comisión Institucional de Salud Ocupacional. La elección de los representantes de la Comisión Institucional de Salud Ocupacional se hará de conformidad con lo establecido en el Decreto Ejecutivo N° 18379-TSS vigente desde el 16 de agosto de 1988, sus reformas y la Negociación Colectiva de los Servidores del Registro Nacional.

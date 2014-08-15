@@ -1,0 +1,5 @@
+Artículo 105.—De las faltas graves. Atendiendo a lo dispuesto en el artículo anterior, se considerarán faltas graves las infracciones de las disposiciones contenidas en los artículos 14 incisos 1), 2), 3), 4), 7), 8), 9), 12), 15), 17), 18), 21), 23), 25), 27) y 28), artículo 15 incisos 1), 2), 3), 6), 7), 9), 10), 11), 12); artículo 16 incisos 1), 2), 3), 4), 5), 6), 7), 8), 9), 10), 11), 12), 13), 15), 16), 17), 18), 19), 20), 21), 23), 25), 27) 28), 29), 30), 31), 32) y 33) todos de este Reglamento, así como todas las demás faltas contenidas en este reglamento que no sean catalogadas como faltas leves, sancionándose de la siguiente manera:
+1) Por una, suspensión sin goce de salario de un día hasta por diez días.
+2) Por dos, suspensión sin goce de salario de once días hasta por quince días.
+3) Por tres, despido o cese de labores, ambos sin responsabilidad patronal.
+Dichas sanciones se aplicarán sin perjuicio de que la comisión de una sola falta grave o reincidencia de faltas leves que se considere causal de despido, siguiendo los lineamientos establecidos en el párrafo final del artículo anterior.

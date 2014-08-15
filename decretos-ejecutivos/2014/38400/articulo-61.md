@@ -1,0 +1,1 @@
+Artículo 61.—Trámite de la denuncia. Para la tramitación de las denuncias por acoso laboral en lo aplicable se seguirá el procedimiento ordinario establecido en este Reglamento, la Ley General de Administración Pública o Estatuto de Servicio Civil, según corresponda.

@@ -1,0 +1,2 @@
+Artículo 30.—Determinación de una ausencia. Se considera ausencia la inasistencia a un día completo de labores o la asistencia a laborar después de transcurrida media jornada. La asistencia a laborar antes de transcurrida media jornada pero que exceda en veinte minutos a partir de la hora establecida para el inicio de las labores, se considera media ausencia.
+Para los casos previstos en esta norma, el Departamento de Gestión Institucional de Recursos Humanos deberá realizar la deducción salarial correspondiente.

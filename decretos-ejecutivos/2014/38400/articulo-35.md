@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+De las vacaciones
+Artículo 35.—Del derecho a las vacaciones. Todo servidor tiene derecho a vacaciones anuales remuneradas por cada cincuenta semanas de labores continuas, solo podrá dividirlas en tres fracciones, de conformidad con lo estipulado por el artículo 32 del Reglamento del Estatuto de Servicio Civil. Los funcionarios del Registro Nacional tendrán derecho a gozar sus vacaciones sin interrupción, salvo que por necesidad de servicio público no se puedan otorgar en derecho, para lo que deberán dictar resolución razonada; los jefes están en la obligación de autorizar el pleno goce de este derecho, debiendo programarlas dentro de las quince semanas siguientes al advenimiento del derecho, otorgándolas antes de que se cumpla un nuevo período

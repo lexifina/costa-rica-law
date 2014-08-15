@@ -1,0 +1,1 @@
+Artículo 89.—De los plazos de la investigación administrativa. Llevada a cabo la investigación, deberá presentarse el informe dentro del plazo de un mes a partir del último movimiento dentro del expediente correspondiente a la tramitación de la investigación administrativa.

@@ -1,0 +1,1 @@
+Artículo 71.—Marco jurídico aplicable y sanciones. El incumplimiento de lo dispuesto en la Ley de Fumado Nº 9028 del 22 de marzo de 2012, publicada el 26 de marzo de 2012, Ley General de Control del Tabaco y sus efectos nocivos en la salud y su respectivo Reglamento, se considerará como una falta grave.

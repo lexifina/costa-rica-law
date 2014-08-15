@@ -1,0 +1,1 @@
+Artículo 65.—Temeridad de la queja. Cuando a juicio del Director General o del Máximo Jerarca de la Institución, la denuncia carezca de todo fundamento fáctico y jurídico, se iniciará Procedimiento Disciplinario contra el quejoso.

@@ -1,0 +1,1 @@
+Artículo 29.—Sobre la justificación de las llegadas tardías. En casos muy calificados, el Superior Inmediato podrá justificar hasta un máximo de cuatro llegadas tardías dentro del mismo mes calendario. Las llegadas tardías injustificadas que sean computadas dentro de un mismo mes calendario, tendrán las sanciones previstas en el artículo 106 de este Reglamento.

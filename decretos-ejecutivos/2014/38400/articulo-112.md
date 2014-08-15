@@ -1,0 +1,2 @@
+Artículo 112.—Régimen jurídico aplicable a los despidos y cese de la relación laboral. Los despidos de los servidores amparados por el Régimen de Servicio Civil, se tramitarán conforme lo dispuesto en el Estatuto de Servicio Civil, su Reglamento y las disposiciones contenidas en el presente Reglamento.
+El cese de la relación laboral de los funcionarios no amparados por el Régimen de Servicio Civil, se regirán por lo que al efecto dispone el Código de Trabajo, la Ley General de la Administración Pública y el presente Reglamento.

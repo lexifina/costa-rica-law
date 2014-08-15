@@ -1,0 +1,1 @@
+Artículo 100.—De la Ejecución. Firme el acto final, su ejecución recaerá en el Departamento de Gestión Institucional, quien deberá notificarla al funcionario sancionado. En todos los casos se procurará ejecutar el acto administrativo con la mayor celeridad, sin entorpecer el cumplimiento del servicio público.

@@ -1,0 +1,1 @@
+Artículo 26.—Presunción de inasistencia. La omisión de registrar su asistencia a cualquiera de las horas de entrada o salida, hará presumir la inasistencia a la correspondiente fracción de jornada, salvo que el Superior Jerárquico Inmediato la justifique conforme los mecanismos establecidos por el Departamento de Gestión Institucional de Recursos Humanos para tales efectos.

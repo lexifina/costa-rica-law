@@ -1,0 +1,1 @@
+Artículo 64.—Denuncia. El servidor (a) víctima de acoso u hostigamiento sexual o su representante legal, podrán plantear la denuncia en forma verbal o escrita, indistintamente ante el Director General o ante el Máximo Jerarca de la Institución.

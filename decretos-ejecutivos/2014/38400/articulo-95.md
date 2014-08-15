@@ -1,0 +1,2 @@
+Artículo 95.—De la Prueba. Los hechos relevantes para la decisión de un procedimiento, podrán acreditarse por cualquier medio de prueba admisible en Derecho. Se practicarán de oficio o se admitirán a propuesta del presunto responsable, cuantas pruebas sean adecuadas para la determinación de la verdad real de los hechos.
+El órgano instructor del procedimiento sólo podrá rechazar las pruebas propuestas por los interesados, cuando sean manifiestamente improcedentes o innecesarias, mediante resolución motivada.

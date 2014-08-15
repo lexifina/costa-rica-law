@@ -1,0 +1,1 @@
+Artículo 60.—Temeridad de la queja de Acoso Laboral. Cuando a juicio del Máximo Jerarca de la Institución o el Director General la queja de acoso laboral carece de todo fundamento fáctico o razonable, se iniciará Procedimiento Disciplinario contra quien la formuló.

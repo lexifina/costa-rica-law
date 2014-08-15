@@ -1,0 +1,1 @@
+Artículo 11.—Confidencialidad de los expedientes. La confidencialidad de los expedientes personales y los relativos al incentivo de carrera profesional deberá ser garantizada por el Departamento de Gestión Institucional. Tendrán acceso a la información contenida en estos: el interesado y quienes de previo deberán acreditar interés legítimo.

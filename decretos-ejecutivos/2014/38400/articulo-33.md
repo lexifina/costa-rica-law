@@ -1,0 +1,1 @@
+Artículo 33.—Determinación del abandono del trabajo. El abandono ocurre cuando se da la interrupción injustificada de la labor objeto de la relación de servicio dentro de su jornada de trabajo. Para estos efectos, no es preciso que el funcionario salga del lugar donde presta sus servicios, sino que es suficiente el abandono evidente de la labor que le ha sido encomendada.

@@ -1,0 +1,1 @@
+Artículo 10.—Obligación del expediente. El Departamento de Gestión Institucional de Recursos Humanos llevará un expediente escrito o electrónico debidamente foliado y actualizado de cada uno de los funcionarios, así como constancias de todos aquellos datos que sirvan para mantener un historial.
