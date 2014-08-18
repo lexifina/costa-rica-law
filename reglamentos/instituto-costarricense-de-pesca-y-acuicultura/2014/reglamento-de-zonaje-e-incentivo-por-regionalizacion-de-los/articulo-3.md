@@ -1,0 +1,1 @@
+Artículo 3º—Excepcionalmente y de conformidad con lo dispuesto en el inciso b) del artículo 2 del Decreto Ejecutivo N° 90-S.C. del 13 de diciembre de 1965, se podrá reconocer el pago de zonaje a aquellos funcionarios que teniendo su domicilio legal en las Islas del Golfo de Nicoya, deban prestar sus servicios en el Cantón Central de Puntarenas.

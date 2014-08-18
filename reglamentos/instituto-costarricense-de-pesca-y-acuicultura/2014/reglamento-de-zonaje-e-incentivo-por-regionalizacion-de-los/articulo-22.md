@@ -1,0 +1,1 @@
+Artículo 22º—El INCOPESCA, a través de las instancias representadas en la Comisión y la respectiva Organización de Trabajadores podrá remover, sustituir y reelegir libremente a sus representantes. La Administración concederá licencia con goce de salario a los miembros de la Comisión, durante el tiempo que se requiera para cumplir sus funciones.

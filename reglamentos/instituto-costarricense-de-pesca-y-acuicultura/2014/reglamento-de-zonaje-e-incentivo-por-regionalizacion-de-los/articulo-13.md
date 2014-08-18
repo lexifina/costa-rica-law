@@ -1,0 +1,1 @@
+Artículo 13º—En toda Acción de Personal emitida por la Sección de Recursos Humanos del INCOPESCA, deberá indicarse el monto del zonaje o incentivo por regionalización asignado y el lugar donde presta o prestará sus servicios el funcionario en caso de traslado.

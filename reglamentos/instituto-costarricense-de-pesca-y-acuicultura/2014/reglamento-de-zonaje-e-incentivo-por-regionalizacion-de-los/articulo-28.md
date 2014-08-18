@@ -1,0 +1,1 @@
+Artículo 28º—La Sección de Recursos Humanos suspenderá, previo apercibimiento y comunicación al funcionario, el zonaje o incentivo por regionalización a aquellos funcionarios que no hubieren aportado o incumplan con la presentación de la declaración jurada, y hasta tanto no lo hagan.

@@ -1,0 +1,1 @@
+Artículo 18º—Los gastos de viaje y de transporte seguirán regulándose de manera independiente al zonaje e incentivo por regionalización, de acuerdo con las disposiciones contenidas en el Reglamento de Gastos de viaje y transporte para Funcionarios Públicos promulgado por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 12º—El pago de zonaje o incentivo por regionalización por inclusión del nombre de un funcionario dentro de la planilla respectiva de la Institución, no implica por parte del INCOPESCA obligatoriedad alguna para mantenerlo en determinada oficina o zona geográfica.

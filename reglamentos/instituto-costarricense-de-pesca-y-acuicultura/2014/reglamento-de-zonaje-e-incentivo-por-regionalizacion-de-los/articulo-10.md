@@ -1,0 +1,3 @@
+Artículo 10º—Para la determinación de la suma a pagar por zonaje, la administración deberá tomar en cuenta los beneficios de uso y habitación de casa, apartamento o dormitorio que reciba el funcionario de parte del INCOPESCA sean éstos de su propiedad, arrendados, producto de convenio o cedido por terceros a su favor y que signifique una disminución en sus gastos de subsistencia.
+En estos casos el beneficio deberá ser utilizado únicamente por el funcionario, no debiendo compartirlo con familiares o terceros no autorizados debidamente.
+El beneficio de habitar casa, apartamento o dormitorio hará que se deduzca al funcionario el 15% del monto de zonaje o incentivo por regionalización.

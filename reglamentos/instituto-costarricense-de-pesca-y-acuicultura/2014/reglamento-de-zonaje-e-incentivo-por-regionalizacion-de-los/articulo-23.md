@@ -1,0 +1,1 @@
+Artículo 23º—Todo funcionario del INCOPESCA, sin distinción de rango o categoría, está en la obligación de comparecer ante la Comisión cuando sea requerido por asuntos de su competencia y suministrar la información que se le pida y prestar toda la colaboración que la Comisión le solicite, para lo cual la Administración le brindará el permiso correspondiente.

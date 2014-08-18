@@ -1,0 +1,1 @@
+Artículo 6º—En aquellos casos en que la administración constate que un funcionario ha traslado su núcleo familiar a la residencia laboral provisional declarada y tal situación se ha mantenido por 1 año o más sin variar esta condición, perderá el derecho al pago de zonaje, en razón de que se considera modificado su domicilio legal.

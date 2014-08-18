@@ -1,0 +1,1 @@
+Artículo 8º—En aquellos casos en que la administración constate que un funcionario se ha separado de su núcleo familiar por cualquier causa o circunstancia y ha hecho de su residencia laboral temporal su nuevo domicilio legal, se le deberá reajustar el zonaje a incentivo por regionalización, cuando corresponda.
