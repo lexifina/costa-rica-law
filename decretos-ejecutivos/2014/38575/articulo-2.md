@@ -1,0 +1,2 @@
+Artículo 2º—Se insta a JUDESUR a brindar toda la información necesaria a la Junta Interventora sin Sustitución, así como todo el apoyo y colaboración en su función.
+Se insta a JUDESUR para que colabore con los gastos que demande la intervención. En caso de requerirse un nivel superior a éstos, la Junta Interventora sin Sustitución, solicitará la autorización al Poder Ejecutivo para que vía decreto les autorice los recursos necesarios.

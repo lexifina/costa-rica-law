@@ -1,0 +1,1 @@
+Artículo 3º—Los designados para cumplir con los objetivos planteados, no tendrán ni compartirán las atribuciones que conforme a la Ley corresponden a los miembros de la Junta Directiva de conformidad con la Ley N° 7012.
