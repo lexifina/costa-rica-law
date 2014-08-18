@@ -1,0 +1,1 @@
+2º—Se prohíbe la retención a bordo, transbordo, descarga, almacenamiento, venta, u ofrecimiento de venta de tiburones oceánicos punta blanca, en parte o entero, en las pesquerías abarcadas por la Convención de Antigua.
