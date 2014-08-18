@@ -1,1 +1,0 @@
-Artículo 23.—La Municipalidad podrá suspender el servicio temporal, una vez concluido el tiempo por el que fue solicitado; siempre y cuando no exista una solicitud de prórroga por parte del interesado y que fuera acogida por el Alcalde.
