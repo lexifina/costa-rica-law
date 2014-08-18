@@ -14,3 +14,4 @@ Creación del Centro de Producción Artística y Cultural (CPAC)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-14 | la propia norma |
+| 2 | 2014-08-18 | Decreto Ejecutivo 38816 (2014-08-18) |

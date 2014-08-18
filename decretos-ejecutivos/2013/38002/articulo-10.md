@@ -1,1 +1,2 @@
-Artículo 10.—Dirección. El Centro de Producción Artística y Cultural contará con un director, que ocupará un cargo de confianza de libre nombramiento y remoción del Ministro de Cultura y Juventud.
+Artículo 10.—Dirección. El Centro de Producción Artística y Cultural contará con un Director, que ocupará un cargo de confianza de libre nombramiento y remoción del Ministro de Cultura y Juventud. Deberá contar con un grado mínimo de bachiller en una carrera universitaria afín y o experiencia en la producción de actividades, espectáculos culturales, o festivales y eventos artísticos culturales de alta calidad y proyección nacional e internacional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38816 del 18 de agosto de 2014)
