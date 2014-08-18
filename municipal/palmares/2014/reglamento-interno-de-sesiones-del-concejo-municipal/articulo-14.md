@@ -1,0 +1,1 @@
+Artículo 14.—Quien presida, concederá la palabra en el orden en que la soliciten los regidores (as) y síndicos (as), sean estos propietarios o suplentes, quienes lo harán levantando la mano, o utilizando el dispositivo electrónico disponible. Quien preside podrá pedir a los regidores que se concreten al tema de debate y de hacer caso omiso podrá retirarles el uso de la palabra.

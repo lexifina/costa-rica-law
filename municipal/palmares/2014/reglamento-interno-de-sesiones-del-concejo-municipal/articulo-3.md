@@ -1,0 +1,9 @@
+Artículo 3º—El Concejo Municipal celebrará sesiones extraordinarias el día y hora indicados en la convocatoria respectiva (Artículo 36 Código Municipal). Deberán ser convocados todos sus miembros por lo menos con veinticuatro horas de anticipación y por escrito. En la convocatoria se debe indicar el objeto de la sesión.
+a) Puede ser convocada por el Alcalde, cuando tenga un asunto de urgencia o cuando lo soliciten al menos la tercera parte de los regidores propietarios, con veinticuatro horas de anticipación. (Art. 17, inciso m, CM).
+b) Cuando haya un acuerdo del Concejo Municipal al respecto, no se requerirá convocatoria por escrito.
+c) En las sesiones extraordinarias solamente podrán conocerse los puntos incluidos en la convocatoria, además, los que por unanimidad acuerden conocer los miembros del Concejo Municipal. (Art. 36 párrafo tercero del CM)
+d) El Concejo Municipal celebrará una sesión extraordinaria al mes, los primeros miércoles de cada mes, a las 6:30pm, exclusivamente para atención de las audiencias, con un máximo de cinco audiencias por sesión.
+e) Cada visita tendrá derecho a exponer su caso con un máximo de 10 minutos.
+f) Los Regidores y Síndicos tendrán derecho a solicitar el uso de la palabra, solamente para hacer preguntas a los visitantes, a fin de mejorar la información o planteamientos hechos por ellos.
+g) La Secretaria del Concejo Municipal será la encargada de recibir las solicitudes de audiencias y de ordenarlas conforme al momento en que le fueron solicitadas. Dichas solicitudes se recibirán a más tardar al medio día del día hábil anterior a la sesión, como máximo. No obstante, la presidencia, está facultada para ampliar o recibir a última hora, aquellas audiencias que considere necesarias u oportunas, siempre que cuente con el aval de la mayoría de los Regidores Propietarios.
+h) Cuando corresponda, la Secretaría del Concejo transcribirá el acuerdo pertinente a la persona o grupo interesado.

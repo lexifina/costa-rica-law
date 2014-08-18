@@ -1,0 +1,1 @@
+Artículo 18.—No procede hacer modificaciones para alterar o trastornar el acta original, incorporando comentarios, debates o acuerdos que no se dieron, o eliminando o modificando comentarios, debates o acuerdos que efectivamente sucedieron. (PGR).

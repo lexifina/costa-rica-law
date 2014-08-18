@@ -1,0 +1,1 @@
+Artículo 8º—Todas las sesiones son públicas. Las personas físicas, jurídicas o grupos de vecinos, podrán participar con derecho a voz. Quien presida será el encargado de decidir si se le otorga la palabra y de atender y responder a las visitas.

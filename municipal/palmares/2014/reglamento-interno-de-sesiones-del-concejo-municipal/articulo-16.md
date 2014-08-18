@@ -1,0 +1,1 @@
+Artículo 16.—El (la) secretario(a) hará un expediente para cada proyecto. A él se agregará el dictamen de comisión, las mociones que se presenten durante el debate y los acuerdos tomados. Firmarán el Presidente(a) y el Secretario(a)
