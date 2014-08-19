@@ -1,0 +1,1 @@
+Artículo 2º—Derogar el Decreto Ejecutivo N° 37923-COMEX del 23 de agosto de 2013, publicado en el Diario Oficial La Gaceta N° 184 del 25 de setiembre de 2013 de conformidad con el numeral 2 de la Resolución N° 07-2014 (CEIE) de fecha 25 de abril de 2014 del Comité Ejecutivo de Integración Económica, que se publica mediante el presente Decreto Ejecutivo.
