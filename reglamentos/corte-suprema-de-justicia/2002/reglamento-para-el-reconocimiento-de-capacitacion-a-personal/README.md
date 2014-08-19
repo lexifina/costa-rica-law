@@ -13,3 +13,4 @@ Reglamento para el reconocimiento de capacitación a personal de investigación 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-17 | la propia norma |
+| 2 | 2014-08-19 | Circular 176 (2014-08-19) |
