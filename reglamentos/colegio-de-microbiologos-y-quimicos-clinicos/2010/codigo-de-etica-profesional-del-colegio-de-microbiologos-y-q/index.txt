@@ -39,10 +39,12 @@ articulo-38.md
 articulo-39.md
 articulo-40.md
 articulo-41.md
+articulo-41-bis.md
 articulo-42.md
 articulo-43.md
 articulo-44.md
 articulo-45.md
+articulo-45-bis.md
 articulo-46.md
 articulo-47.md
 articulo-48.md
@@ -59,3 +61,4 @@ articulo-58.md
 articulo-59.md
 articulo-60.md
 articulo-61.md
+articulo-61-bis.md

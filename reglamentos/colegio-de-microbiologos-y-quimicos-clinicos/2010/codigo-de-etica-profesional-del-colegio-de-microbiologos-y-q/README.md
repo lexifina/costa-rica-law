@@ -15,3 +15,4 @@ Código de Ética Profesional del Colegio de Microbiólogos y Químicos Clínico
 | --- | --- | --- |
 | 1 | 2011-02-03 | la propia norma |
 | 2 | 2014-06-07 | Reglamento 15 (2014-06-07) |
+| 3 | 2014-08-19 | Reglamento 27 (2014-08-19) |
