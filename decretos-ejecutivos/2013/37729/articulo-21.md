@@ -1,2 +1,2 @@
 Capítulo IV. Reconocimientos a la Excelencia Profesional.
-Artículo 21. Los Reconocimientos a la Excelencia Profesional constituyen una premiación especial a funcionarios(as) del Ministerio de Educación Pública que lideran proyectos para la mejora de la calidad educativa en diferentes áreas.
+Artículo 21. (Derogado por el artículo 14 del decreto ejecutivo N° 38622 del 19 de agosto del 2014)

@@ -1,2 +1,1 @@
-Artículo 23. Podrá postularse cualquier funcionario(a) personalmente o por acción de terceros, en este último caso el o la funcionaria postulada deberá consignar por escrito que acepta la nominación.
-Todo(a) nominado(a) deberá cumplir los requisitos establecidos en el presente reglamento y el manual respectivo, así como con los procesos indicados por la Comisión, el Equipo Operativo y los Jurados respectivos.
+Artículo 23. (Derogado por el artículo 16 del decreto ejecutivo N° 38622 del 19 de agosto del 2014)

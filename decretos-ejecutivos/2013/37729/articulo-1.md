@@ -10,7 +10,8 @@ Considerando:
 5. Que mediante Decreto Ejecutivo Nº 17303 del 22 de noviembre de 1986, reformado por el Decreto Ejecutivo “Reforma Creación del Premio Nacional de Educación Mauro Fernández”, N° 28561 del 28 de febrero del 2000, se promulgó el Premio Nacional de Educación Mauro Fernández Acuña.
 6. Que se impone derogar el Decreto Ejecutivo Nº 17303‐E, del 22 de noviembre de 1986 y el Decreto Ejecutivo Nº 28561‐E, del 28 de febrero del 2000, en razón de la necesidad de establecer nueva normativa, condiciones y procedimientos que se ajusten a las actuales exigencias del sistema educativo. Por tanto,
 DECRETAN:
-Reglamento del Premio al Educador (a) del Año “Mauro Fernández Acuña”
-y de los Reconocimientos a la Excelencia Profesional.
-Capítulo I. De la cobertura de la presente normativa
-Artículo 1. El Premio al Educador(a) del Año “Mauro Fernández Acuña” y los Reconocimientos a la Excelencia Profesional se entregarán anualmente a los(as) funcionarios(as) del Ministerio de Educación Pública, cuyos aportes significativos mejoren en forma extraordinaria la calidad de los Centros Educativos donde laboran.
+Reglamento del Premio a la Educadora o al Educados del Año Mauro Fernández Acuña"
+(Modificada su denominación por el artículo 1° del decreto ejecutivo N° 38622 del 19 de agosto del 2014, anteriormente se denominaba: "Reglamento del Premio al Educador (a) del Año “Mauro Fernández Acuña” y de los Reconocimientos a la Excelencia Profesional")
+")Capítulo I. De la cobertura de la presente normativa
+Artículo 1. El Premio a la Educadora o al Educador del Año “Mauro Fernández Acuña”, se entregará anualmente a la funcionaria o el funcionario docente del Ministerio de Educación Pública, cuyos aportes significativos mejoren en forma extraordinaria la calidad de los Centros Educativos donde laboran.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 38622 del 19 de agosto del 2014)

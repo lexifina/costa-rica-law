@@ -14,3 +14,4 @@ Reglamento del Premio a la Educadora o al educador del Año Mauro Fernández Acu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-10 | la propia norma |
+| 2 | 2014-08-19 | Decreto Ejecutivo 38622 (2014-08-19) |
