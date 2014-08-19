@@ -1,0 +1,3 @@
+Ejercicio presupuestario
+Artículo 41.—El ejercicio presupuestario de la SIECA será del 1° de enero al 31 de diciembre del año correspondiente. Los proyectos de presupuesto anuales y sus normas de ejecución, elaboradas en armonía con las normas de carácter general en esta materia, serán sometidos a consideración y aprobación del COMIECO por el Secretario o Secretaria General a más tardar el 30 de noviembre de cada año o en la última reunión ordinaria del COMIECO de cada año.
+Si dicho presupuesto no fuere aprobado oportunamente, regirá el del año anterior hasta tanto no se efectúe tal aprobación. Todo lo relativo a la ejecución presupuestaria se regulará por el Manual de Presupuesto.

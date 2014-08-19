@@ -1,0 +1,1 @@
+Artículo 18.—El Secretario o Secretaria General notificará al Ministerio de Relaciones Exteriores de la República de Guatemala el listado de los funcionarios o técnicos internacionales que gozarán de prerrogativas, inmunidades o franquicias, de acuerdo con el Convenio de Sede.

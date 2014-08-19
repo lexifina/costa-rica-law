@@ -1,0 +1,3 @@
+Nombramiento del secretario o secretaria general
+Artículo 9º—El Secretario o Secretaria General de la SIECA será nombrado(a) por consenso por el COMIECO, por un período de cuatro años.
+Debe ser profesional de alto prestigio y honorabilidad, comprometido(a) con el proceso de integración económica centroamericana, y nacional de cualquiera de los Estados Parte del Subsistema de Integración Económica. Para su nombramiento se deberá tener en cuenta el principio de rotación entre nacionales de los Estados Parte.El nombramiento del Secretario o Secretaria General se formalizará mediante una resolución del COMIECO.

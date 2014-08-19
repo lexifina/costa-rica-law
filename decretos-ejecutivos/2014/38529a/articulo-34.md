@@ -1,0 +1,1 @@
+Artículo 34.—Salvo disposición en contrario, los derechos que provengan directamente del contrato de trabajo o del Manual de Recursos Humanos, prescribirán en el término de cuatro meses contados desde la fecha de terminación del contrato o de la ocurrencia del hecho u omisión respectivo.

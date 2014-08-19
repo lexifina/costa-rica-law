@@ -1,0 +1,1 @@
+Artículo 53.—La Auditoría Interna es la unidad responsable de verificar el cumplimiento de las acciones de control interno necesarias para evaluar la gestión de la institución conforme a la normativa legal y a los lineamientos institucionales de la SIECA.

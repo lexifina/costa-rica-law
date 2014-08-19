@@ -1,0 +1,3 @@
+Competencia
+Artículo 6º—A la SIECA le corresponde velar, a nivel regional, por la correcta aplicación de los instrumentos jurídicos de la integración económica centroamericana, y la ejecución de las decisiones de los órganos del Subsistema de integración económica.
+También realizará los trabajos y estudios que los órganos del Subsistema de Integración Económica le encomienden y las demás funciones que le asignen el Consejo de Ministros de Integración Económica, en adelante -el COMIECO-, el Comité Ejecutivo de Integración Económica, en adelante -el Comité Ejecutivo- y demás foros del Subsistema de Integración Económica de los que la SIECA sea Secretaría.

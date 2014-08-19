@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Adopción de decisiones impulso y toma de decisiones
+Artículo 32.—La SIECA será administrada por medio de los siguientes actos administrativos internos:
+Orden Administrativa: es el acto obligatorio por medio del cual el Secretario o Secretaria General toma decisiones de aplicación general o específica, referentes a asuntos internos de la Secretaría con base en las facultades que le confieren el Tratado General de Integración Económica Centroamericana, el Protocolo de Guatemala y el presente Reglamento y sus manuales. Las órdenes administrativas serán suscritas por el Secretario o Secretaria General, o quien haga sus veces.
+Circular Administrativa: es el acto obligatorio por medio del cual el Secretario o la Secretaria General comunica decisiones administrativas, basadas en el presente Reglamento y los manuales de organización, administración y funcionamiento de la SIECA, para una mejor operación de la Secretaría. Las Circulares Administrativas serán suscritas por el Director o Directora de Servicios de Apoyo, o quien haga sus veces.

@@ -1,0 +1,2 @@
+Artículo 31.—Las sumas de dinero existentes en depósitos y que constituyan los recursos del Fondo de Retiro, únicamente podrán ser utilizadas para el pago de la prestación que las originen. Por ninguna causa podrá la SIECA disponer de las mismas para un destino distinto.
+Asimismo, se prohíbe toda transferencia, pignoración o gravamen de los derechos del Fondo, por la SIECA o el personal, en la parte que le corresponde.

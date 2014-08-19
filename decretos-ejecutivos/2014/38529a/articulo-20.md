@@ -1,0 +1,2 @@
+Inmunidades en países miembros
+Artículo 20.—De conformidad con el artículo XXIII del Tratado General de Integración Económica Centroamericana y el artículo 58 del Protocolo al Tratado General de Integración Económica Centroamericana, la Secretaría y sus funcionarios internacionales gozarán, en el territorio de cada uno de los Estados Parte, de los privilegios e inmunidades que dichos Estados reconozcan a la institucionalidad regional dentro del marco del Sistema de la Integración Centroamericana (SICA).

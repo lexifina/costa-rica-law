@@ -1,0 +1,3 @@
+Junta de personal
+Artículo 36.—Se creará la Junta de Personal que asesorará al Secretario o Secretaria General ante cambios de normativa y reglamentación interna de la SIECA y en la resolución de las peticiones y reclamos presentados por los miembros del personal.
+La Junta será integrada por tres miembros del personal. El primero de ellos será nombrado por el Secretario o Secretaria General, el segundo por el personal mediante votación mayoritaria y el tercero, quien presidirá la Junta, por los dos anteriores. Los integrantes de la Junta de Personal durarán un año en sus funciones y desempeñarán sus cargos ad-honorem.

@@ -1,0 +1,2 @@
+Solicitudes y gestiones de los gobiernos
+Artículo 23.—Por su naturaleza, la SIECA sólo responde a solicitudes, gestiones y consultas que provengan de los Gobiernos de los Estados Parte y de los órganos e instituciones del Sistema de Integración Centroamericana. Las solicitudes, gestiones y consultas de los sectores privados deberán canalizarse a través de la respectiva Dirección de Integración Económica o su equivalente en cada Estado Parte.

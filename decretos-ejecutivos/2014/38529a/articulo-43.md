@@ -1,0 +1,2 @@
+Ejecución del presupuesto
+Artículo 43.—La ejecución del presupuesto de la SIECA estará bajo la responsabilidad del Secretario o Secretaria General, quien establecerá el sistema necesario para llevar su control. Todos los gastos previstos en el presupuesto deberán ser autorizados por el Secretario o Secretaria General o por la persona delegada para estos efectos, con la discrecionalidad que demanden las circunstancias y buscando el funcionamiento transparente, eficiente y eficaz de la Secretaría.

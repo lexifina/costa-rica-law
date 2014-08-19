@@ -1,0 +1,1 @@
+Artículo 52.—Sin perjuicio de lo regulado en el artículo anterior, con el objetivo de cumplir con los compromisos derivados del artículo 45 y demás informes derivados del presente Reglamento, la auditoría externa deberá realizarse cada año por una firma auditora externa e independiente, de acuerdo a las normas internacionales de auditoría.

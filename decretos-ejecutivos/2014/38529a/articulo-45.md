@@ -1,0 +1,1 @@
+Artículo 45.—El Secretario o Secretaria General, durante el primer trimestre de cada año, deberá presentar al COMIECO, el informe sobre la ejecución del presupuesto del año anterior y los estados financieros, debidamente examinados por la Auditoría Externa conforme a las políticas de ejecución de ese presupuesto y a las normas de auditoría generalmente aceptadas.

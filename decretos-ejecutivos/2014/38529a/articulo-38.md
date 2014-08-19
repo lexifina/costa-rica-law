@@ -1,0 +1,2 @@
+Usufructo de inmueble
+Artículo 38.—El bien inmueble en donde está ubicado el edificio que alberga las oficinas de la SIECA en la ciudad de Guatemala, es propiedad del Estado de Guatemala, adscrito al Ministerio de Economía, para uso de la SIECA, siempre que mantenga su condición de Órgano Técnico y Administrativo y Secretaría del proceso de integración económica centroamericana en los términos del Acuerdo Gubernativo N° 280-2007 del 20 de julio de 2007, publicado en el Diario Oficial de la República de Guatemala, el 7 de agosto de 2007.
