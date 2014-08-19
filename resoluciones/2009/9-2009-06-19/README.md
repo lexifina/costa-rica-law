@@ -15,3 +15,4 @@ Formularios de declaración jurada para Tributación Digital
 | --- | --- | --- |
 | 1 | 2009-06-29 | la propia norma |
 | 2 | 2013-07-04 | Resolución 25 (2013-07-04) |
+| 3 | 2014-08-19 | Resolución 37 (2014-08-19) |

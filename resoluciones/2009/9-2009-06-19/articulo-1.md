@@ -20,7 +20,8 @@ Artículo 1º—Formularios de declaración jurada para Tributación Digital. Se
 Formulario denominado “Declaración jurada de retenciones en la fuente por salarios, pensiones, jubilaciones y otras remuneraciones por servicios personales”;
 Formulario denominado “Declaración jurada de retenciones en la fuente por intereses”;
 Formulario denominado “Declaración jurada de retenciones en la fuente por dividendos, excedentes y participaciones sociales”;
-Formulario denominado “Declaración jurada de retenciones en la fuente del 2% sobre pagos por licitaciones, contrataciones u otros negocios de entidades públicas con terceros”;
+Formulario denominado “Declaración jurada de retenciones en la fuente del 2% impuesto a las utilidades”;
+(Así reformado el formulario anterior por el artículo 1° de la resolución DGT-R-037-2014 del 19 de agosto de 2014. Anteriormente dicho formulario se llamaba: "Declaración jurada de retenciones en la fuente del 2% sobre pagos por licitaciones, contrataciones u otros negocios de entidades públicas con terceros”)
 Formulario denominado “Declaración jurada de retenciones en la fuente del 3% en servicios de transporte, comunicaciones, reaseguros, películas cinematográficas y noticias internacionales, prestados por no domiciliados con representante permanente en el país”;
 Formulario denominado “Declaración jurada de retenciones en la fuente por remesas al exterior”;
 Formulario denominado “Declaración jurada de retenciones en la fuente por retiros anticipados de pensiones complementarias voluntarias”;
