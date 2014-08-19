@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad del Plano Tipo. El Colegio Federado recibirá la solicitud de inscripción del plano del Proyecto Tipo con el fin de registrar el, o los, profesionales responsables del diseño del mismo. Los servicios profesionales que deben registrarse para esta etapa son: anteproyecto, planos constructivos y especificaciones técnicas, y presupuesto global.

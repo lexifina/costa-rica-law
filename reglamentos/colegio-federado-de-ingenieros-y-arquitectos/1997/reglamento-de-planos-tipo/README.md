@@ -16,3 +16,4 @@ Reglamento de Planos Tipo
 | 1 | 1997-09-05 | la propia norma |
 | 2 | 1998-08-06 | Reglamento 27 (1998-08-06) |
 | 3 | 2004-08-19 | Reglamento 33 (2004-08-19) |
+| 4 | 2014-08-19 | Reglamento 32 (2014-08-19) |
