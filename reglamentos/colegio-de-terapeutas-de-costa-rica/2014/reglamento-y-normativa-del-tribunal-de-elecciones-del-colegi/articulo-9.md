@@ -1,0 +1,1 @@
+Artículo 9º—Cada miembro de Junta Directiva que desee reelegirse en su mismo puesto tendrá el derecho a escoger su papeleta sin que se le pueda imponer el tener en su papeleta a un compañero anterior.

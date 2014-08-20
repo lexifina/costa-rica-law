@@ -1,0 +1,1 @@
+Artículo 7º—En caso de que un miembro de Junta Directiva (1-Presidente (a), 2- Tesorero(a), 3-Prosecretaria (o), 4- Vocal dos y 5-Vocal tres), elegido en año par quiera postularse en puesto de junta directiva de año impar, deberá renunciar a su cargo el día de la inscripción de la papeleta para poder optar al puesto.

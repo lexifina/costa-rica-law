@@ -1,0 +1,1 @@
+Artículo 37.—En cuanto al cargo de Imagenología Diagnóstica y Terapéutica, de Junta Directiva, este tendrá voz y voto, según acuerdo de Asamblea General número 11 de sesión del 2 de noviembre del 2013.

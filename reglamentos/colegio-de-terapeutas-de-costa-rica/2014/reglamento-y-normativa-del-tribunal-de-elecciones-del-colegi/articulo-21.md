@@ -1,0 +1,1 @@
+Artículo 21.—Sobre la elección del Tribunal de Ética: Los candidatos para ostentar cargos dentro del Tribunal de Ética tendrán que postularse en papeleta única en los años pares. Y deberá tener un miembro de cada especialidad.

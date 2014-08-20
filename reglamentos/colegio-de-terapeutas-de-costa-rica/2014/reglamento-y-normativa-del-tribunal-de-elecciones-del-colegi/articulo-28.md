@@ -1,0 +1,1 @@
+Artículo 28.—En caso de haber dos o más papeletas inscritas para el puesto de Fiscal de Junta Directiva el voto en Asamblea General será secreto, mediante papeleta y supervisado por el Tribunal de Elecciones. Se seguirá el mismo método del artículo 26 de este Reglamento.

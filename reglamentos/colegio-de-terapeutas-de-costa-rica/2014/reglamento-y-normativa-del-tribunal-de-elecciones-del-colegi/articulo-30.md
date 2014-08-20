@@ -1,0 +1,1 @@
+Artículo 30.—En caso de haber dos o más papeletas inscritas para los puestos de Tribunal de Ética, el voto en Asamblea General será secreto, mediante papeleta y supervisado por el Fiscal del Tribunal de Elecciones y se aplicará el método del artículo 26 de este Reglamento.
