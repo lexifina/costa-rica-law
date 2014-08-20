@@ -14,3 +14,4 @@ Reglamento de Máquinas de Juegos de la Municipalidad de Buenos Aires
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-12-14 | la propia norma |
+| 2 | 2014-08-20 | SINALEVI (sin norma nombrada) |
