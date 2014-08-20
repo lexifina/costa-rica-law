@@ -1,0 +1,1 @@
+Artículo 29.—Disposiciones legales sobre las rectorías. Las rectorías indicadas en el artículo 5 de este Reglamento se ejercerán sin perjuicio de lo que dispongan regulaciones con rango de ley sobre determinadas rectorías.

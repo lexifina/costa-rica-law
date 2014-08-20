@@ -1,0 +1,1 @@
+Artículo 31.—Derogatorias. Se derogan: a) los incisos VII) y VIII) del artículo 1º del Decreto Ejecutivo Nº7944-P de 26 de enero de 1978, b) el Decreto Ejecutivo N° 34582-MP-PLAN de 4 de junio de 2008; y c) el Decreto Ejecutivo N° 36024-MP-PLAN de 11 de mayo de 2010.

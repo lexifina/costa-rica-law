@@ -1,0 +1,1 @@
+Artículo 10.—Consejos Nacionales Sectoriales. Créanse los Consejos Nacionales Sectoriales como órganos de coordinación y consulta de la o el ministro rector respectivo, en cuanto a los planes, programas y metas que le corresponde ejecutar a cada sector según las políticas gubernamentales, el Plan Nacional de Desarrollo y la estrategia de largo plazo.
