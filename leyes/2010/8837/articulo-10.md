@@ -1,1 +1,2 @@
 ARTÍCULO 10.- Deróganse los artículos 369, 451, 464 bis y 466 bis del Código Procesal Penal, Ley N.º 7594, de 10 de abril de 1996, y sus reformas.
+(Anulado parcialmente por resolución de la Sala Constitucional N° 13820 del 20 de agosto de 2014, la cual anuló la derogación sobre el artículo 466 bis del Código Procesal Penal N.º 7594 de 10 de abril de 1996. En consecuencia, se restituye el texto del artículo derogado a su estado anterior. En dicha sentencia no se anularon las derogatorias sobre los restantes artículos.)
