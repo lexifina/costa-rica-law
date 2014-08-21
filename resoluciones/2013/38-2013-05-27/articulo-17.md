@@ -16,7 +16,8 @@ Artículo 17. Funciones generales de las Intendencias de Regulación
 15. Rendir dictamen con respecto a los estudios técnicos que justifiquen la necesidad de licitar concesiones y realizar contratos de adhesión, cuando sean remitidos para este efecto a la Aresep.
 16. Emitir criterio sobre refrendos y concesiones que se sometan a consideración de la Aresep, según los servicios de su competencia.
 17. Atender las solicitudes relacionadas con la concesión de obra pública en el sector de su competencia, de acuerdo con lo que establece la ley.
-18. Resolver los recursos de revocatoria que se presenten contra sus actos, excepto en materia de fijación de tarifas, los cuales competen a la Junta Directiva.
+18. Resolver los recursos de revocatoria que se presenten contra sus actos y elevar a conocimiento de la Junta Directiva los recursos de apelación y revisión.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 49-2014 del 21 de agosto del 2014)
 19. Gestionar las relaciones con los organismos nacionales e internacionales que guarden relación con la regulación de su sector.
 20. Comunicar a la Dirección General de Participación de Usuarios aquellos casos en los cuales, presuntamente, podría haber infracción a los artículos 38 y 41 de la Ley 7593 y coordinar la realización de las acciones que correspondan.
 21. Apoyar a la Dirección General de Asesoría Jurídica y Regulatoria en la atención de procesos judiciales en que es parte Aresep.

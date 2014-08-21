@@ -1,6 +1,5 @@
 Artículo 44. Funciones de la Dirección General de Mercados.
 Son funciones de esta dirección general las siguientes:
-1. En materia de Mercados de Telecomunicaciones:
 a) Tramitar y recomendar al Consejo de la Sutel las fijaciones tarifarias del servicio telefónico básico tradicional y sus redes, de conformidad con lo señalado en el artículo 28 de la Ley N° 8642.
 b) Promover los principios de competencia en el mercado nacional de telecomunicaciones.
 c) Analizar el grado de competencia efectiva en los mercados de telecomunicaciones.
@@ -31,11 +30,4 @@ aa) Hacer constar en el Registro Nacional de Telecomunicaciones los servicios qu
 ab) Recibir la información de los operadores y proveedores cuando amplíen la oferta de servicios que prestan.
 ac) Requerir la información adicional, aclaraciones o ajustes necesarios para verificar que la prestación de los nuevos servicios se ajuste a lo previsto en la ley, a la concesión o autorización otorgada y al Plan nacional de desarrollo de las telecomunicaciones.
 ad) Instruir los procedimientos de otorgamiento de autorizaciones.
-2. En materia de Registro Nacional de Telecomunicaciones:
-a) Definir los actos y hechos inscribibles en el Registro Nacional de Telecomunicaciones.
-b) Establecer las características y movimientos de cada uno de las inscripciones.
-c) Velar por el establecimiento, actualización y renovación de los sistemas de información que soportan el Registro Nacional de Telecomunicaciones.
-d) Desarrollar los estudios registrales necesarios para sustentar los procesos de las áreas que conforman la Sutel.
-e) Emitir las certificaciones de los actos y hechos registrados.
-f) Establecer los procesos de verificación de cumplimiento de las condiciones esenciales para el registro y los respectivos sistemas de control interno.
-g) Recibir, solicitar, procesar y generar la información estadística que requieran las áreas que conforman la Sutel para el cumplimiento de sus funciones.
+(Así reformado mediante sesión ordinaria N° 49-2014 del 21 de agosto del 2014)
