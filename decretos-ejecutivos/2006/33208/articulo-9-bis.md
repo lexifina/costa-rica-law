@@ -31,5 +31,11 @@ Artículo 9-Bis.—La Asesoría Legal tendrá las siguientes funciones:
 30. Preparar para la firma del Director Administrativo y Financiero las gestiones necesarias para el levantamiento de gravámenes y anotaciones, así como para la inscripción de documentos originados en funciones de la mencionada Dirección.
 31. Preparar solicitudes de Desahucio Administrativo y dar seguimiento a dicho procedimiento entablando los recursos administrativos procedentes hasta que se ponga en posesión al Ministerio, de las propiedades correspondientes.
 32. Realizar informes a solicitud del Director y de los Directores de Departamento en materias específicas que se soliciten.
-33. Cualesquiera otras actividades relacionadas con la materia de su competencia que le asigne el (la) Director(a) o el (la) Subdirector (a) según corresponda.
+33. Cualesquiera otras actividades relacionadas con la materia de su competencia que le asigne el (la) Director(a) o el (la) Subdirector (a) según corresponda
+34. Revisar la legalidad de las formalizaciones contractuales originadas en procedimientos de contratación administrativa promovidas por el Ministerio.
+(Así adicionado el inciso 34) anterior por el artículo 2° del decreto ejecutivo N° 38707 del 21 de agosto del 2014)
+35. Realizar la verificación de legalidad de los contratos que por su monto requieren el refrendo contralor.
+(Así adicionado el inciso 35) anterior por el artículo 2° del decreto ejecutivo N° 38707 del 21 de agosto del 2014)
+36. Otorgar la autorización interna para la ejecución de contratos excluidos del refrendo contralor.
+(Así adicionado el inciso 36) anterior por el artículo 2° del decreto ejecutivo N° 38707 del 21 de agosto del 2014)
 (Así adicionado por el artículo 4° del decreto ejecutivo N° 35564 del 1 de setiembre del 2009)
