@@ -1,8 +1,9 @@
 Artículo 5º—De las Funciones de la Asesoría Jurídica del Ministerio de Hacienda. La Asesoría Jurídica tendrá las siguientes funciones:
 a) Asesorar y tramitar para el Ministro, Viceministros y las Direcciones Generales del Ministerio, los asuntos jurídicos que le sometan a su conocimiento y dentro de la competencia del Ministerio.
 b) Evacuar consultas escritas o verbales de los ciudadanos, relativas a la aplicación e interpretación de los asuntos de su competencia.
-c) Elaborar y revisar la legalidad y constitucionalidad de los proyectos de ley, decretos, reglamentos, acuerdos, resoluciones, contratos y convenios de interés para el Ministerio.
-d) Otorgar el visado en los contratos que por su monto requieren el refrendo contralor y la autorización para la ejecución en los demás casos.
+c) Elaborar y revisar la legalidad y constitucionalidad de los proyectos de ley, decretos, reglamentos, acuerdos, resoluciones y convenios de interés para el Ministerio.
+(Así reformado el inciso c) anterior por el artículo 3° del decreto ejecutivo N° 38707 del 21 de agosto del 2014)
+d) (Derogado por el artículo 5° del decreto ejecutivo N° 38707 del 21 de agosto del 2014)
 e) Examinar y dictaminar en alzada, la legalidad de los acuerdos y resoluciones que preparen las unidades administrativas del Ministerio.
 f) Evacuar las consultas presentadas por las diferentes dependencias del Ministerio, cuando la materia por resolver, involucre aspectos de interpretación y aplicación de leyes, así como cuando el acto que se dicte agote la vía administrativa.
 g) Emitir criterio legal para que en vía administrativa se resuelvan todos los reclamos y trámites que presenten los servidores públicos y los administrados contra el Ministerio o contra alguno de sus funcionarios.
