@@ -1,1 +1,0 @@
-Artículo 8º—Aprovechamiento de los vehículos. Para un mejor aprovechamiento de los vehículos UA, el Departamento de Servicios Generales, podrá agrupar varias solicitudes de transporte dentro de una misma ruta en un sólo trayecto.
