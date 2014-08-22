@@ -1,0 +1,1 @@
+Artículo 16.—La fecha, lugar y hora del examen de suficiencia teórico-práctico, no puede modificarse a petición del solicitante, sin una causa debidamente justificada y autorizada por la Junta de Gobierno. Entiéndase por causa debidamente justificada cualquier situación fortuita o de fuerza mayor debidamente documentada.

@@ -1,0 +1,1 @@
+Artículo 2º—El solicitante tiene la obligación de comunicar de forma precisa y exacta el medio para recibir notificaciones, so pena de generar cualquier atraso en los plazos establecidos y archivar la solicitud presentada.

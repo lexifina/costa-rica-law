@@ -1,0 +1,2 @@
+Artículo 20.—Una vez finalizado y calificado el examen de suficiencia teórico-práctico, el Jurado Calificador debe completar y firmar el Acta del Examen (ver detalles en Anexo N° 3).
+Posteriormente el Coordinador del Jurador Calificador, deberá entregar esta información y documentación a la Dirección Académica, para la misma sea notificada oficialmente a la Junta de Gobierno del Colegio de Médicos y Cirujanos.

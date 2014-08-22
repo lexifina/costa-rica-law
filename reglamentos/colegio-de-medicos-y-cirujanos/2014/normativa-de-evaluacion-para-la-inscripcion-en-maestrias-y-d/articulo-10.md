@@ -1,0 +1,1 @@
+Artículo 10.—Posterior al nombramiento y aceptación de los miembros del jurado calificador. La Dirección Académica, notificará al solicitante la conformación del Jurado Calificador ante el cual se someterá a examen de suficiencia teórico-práctico.

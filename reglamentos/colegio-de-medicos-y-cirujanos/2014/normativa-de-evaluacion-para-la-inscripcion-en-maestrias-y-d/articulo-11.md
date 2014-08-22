@@ -1,0 +1,1 @@
+Artículo 11.—El solicitante tendrá derecho a recusar los miembros del Jurado Calificador, en el plazo de tres (3) días hábiles posterior a la notificación de la conformación del mismo. Para ello debe presentar carta formal ante la Junta de Gobierno del Colegio de Médicos y Cirujanos, exponiendo las razones que fundamentan la recusación.

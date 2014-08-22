@@ -1,0 +1,2 @@
+Artículo 9º—De conformidad con el artículo 9º inciso a) de la Ley N° 3019 “Ley Orgánica del Colegio de Médicos y Cirujanos”, los miembros están obligados a aceptar las designaciones para integrar cualesquiera de los organismos del Colegio.
+La Dirección Académica, notificará a los miembros del jurado calificador su designación como tales. Los miembros del jurado calificador tienen un plazo de tres (3) días hábiles posterior a dicha notificación para declinar su nombramiento, presentando la debida justificación.

@@ -1,0 +1,1 @@
+Artículo 6º—Solo la Junta de Gobierno del Colegio de Médicos y Cirujanos, está facultada y tiene potestad legal, para aprobar o denegar las solicitudes de inscripción al Colegio de Médicos y Cirujanos de Maestrías y Doctorados en áreas de las ciencias médicas. Pero delega en la Dirección Académica la gestión de esta normativa de evaluación.

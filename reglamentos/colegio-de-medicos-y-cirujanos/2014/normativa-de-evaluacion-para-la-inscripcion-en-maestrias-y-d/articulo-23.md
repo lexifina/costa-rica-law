@@ -1,0 +1,1 @@
+Artículo 23.—El solicitante que no se presente a la aplicación del examen de suficiencia teórico-práctico, en la fecha, lugar y hora, establecida por el Jurado Calificador, se le reportará la evaluación como reprobada.

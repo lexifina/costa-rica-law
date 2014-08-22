@@ -1,0 +1,1 @@
+Artículo 18.—El examen de suficiencia parte teórica, constará de al menos 50 preguntas de selección única. Las instrucciones del examen deben estar contenidas en el mismo y ser claras. Todas las preguntas de selección única tienen el mismo valor.

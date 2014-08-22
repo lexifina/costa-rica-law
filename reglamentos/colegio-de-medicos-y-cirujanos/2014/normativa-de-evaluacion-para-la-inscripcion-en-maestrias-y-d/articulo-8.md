@@ -1,0 +1,1 @@
+Artículo 8º—La Junta de Gobierno del Colegio de Médicos y Cirujanos, nombrará un miembro suplente del Jurado Calificador, para que sustituya en caso de una eventualidad a alguno de los miembros del Jurado Calificador establecidos en al artículo anterior, el cual debe ser médico inscrito en Maestría o Doctorado según corresponda a la solicitud presentada.
