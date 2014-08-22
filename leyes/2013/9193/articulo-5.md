@@ -10,3 +10,4 @@ OBJETIVOS ESTRATÉGICOS INSTITUCIONALES:
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato, consultar el Alcance digital N° 131 a la gaceta N° 235 del 5 de diciembre de 2013)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38245 del 3 de marzo del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38425 del 30 de abril del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38522 del 19 de junio del 2014)

@@ -16,3 +16,4 @@ Totales | 352,236,000,000 | 100.00%
 (Modificado por el artículo 1° del decreto ejecutivo N° 38198 del 17 de febrero del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38245 del 3 de marzo del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38425 del 30 de abril del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38522 del 19 de junio del 2014)
