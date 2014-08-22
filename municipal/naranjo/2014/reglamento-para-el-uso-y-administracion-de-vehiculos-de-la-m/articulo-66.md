@@ -1,0 +1,1 @@
+Artículo 66.—Las discrepancias o diferencias de criterio que surjan en la aplicación de este Reglamento por parte del Coordinador de Servicios Generales de la Municipalidad encargado del área de transportes, serán resueltas por el Alcalde Municipal.

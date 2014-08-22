@@ -1,0 +1,1 @@
+Artículo 56.—El funcionario que tiene asignado un vehículo de uso de la Alcaldía Municipal, debe suministrarle los cuidados apropiados, para lo cual debe reportar oportunamente a la Dependencia Administrativa de la Municipalidad encargada del área de transportes, cualquier daño al vehículo.

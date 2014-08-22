@@ -1,0 +1,1 @@
+Artículo 4º—El vehículo de uso administrativo asignado a la Alcaldía Municipal, estará regulado por las disposiciones que para el efecto señale la nueva Ley de Tránsito, deberá estar rotulado con el logo institucional y portar placas oficiales de la Municipalidad.

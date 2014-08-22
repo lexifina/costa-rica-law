@@ -1,0 +1,1 @@
+Artículo 57.—El funcionario que tenga a cargo un vehículo de uso de la Alcaldía Municipal, debe reportar a la Dirección de Administración y Planificación mediante la dependencia encargada del área de transportes en forma mensual, el kilometraje del automotor mediante un formulario diseñado al efecto, para efectuar los cargos correspondientes.

@@ -1,0 +1,1 @@
+Artículo 37.—Quienes estén autorizados para conducir vehículos municipales no podrán en ningún caso ceder la conducción de los mismos a personas particulares y sólo en casos de fuerza mayor a funcionarios de la Municipalidad que no cuenten con la debida licencia institucional.

@@ -1,0 +1,6 @@
+Artículo 21.—La circulación de vehículos propiedad de la Municipalidad o alquilados en horas y días no hábiles está restringida estrictamente a la realización de labores no postergarles o a la atención de emergencias relacionadas con funciones inherentes a la Institución.
+La responsabilidad en el cumplimiento de esta disposición recaerá sobre los encargados inmediatos de las dependencias donde se encuentran asignados los vehículos, quienes autorizarán y firmarán el permiso respectivo, denominado Permiso para Circular Vehículos en Horas y Días fuera del horario normal establecido por la administración, sábados, domingos y feriados.
+Para los vehículos de tipo técnico la vigencia del permiso será por un período máximo de un mes. Se entenderá como vehículo de tipo técnico los que realizan actividades tales como: reparación de vías y alcantarillado, instalaciones, mantenimiento o construcción de obras, y recolección de desechos sólidos y no tradicionales.
+Para los vehículos de uso administrativo se requiere de un permiso diario; en caso de giras el permiso será por un máximo de seis días.
+Autorización diaria para circular vehículos
+administrativos en horario normal

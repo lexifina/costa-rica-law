@@ -1,0 +1,2 @@
+Artículo 17.—Los vehículos municipales o alquilados tendrán prioridad en el Plantel Municipal. Dicha prioridad será definida por la Dirección de Administración y Planificación, mediante la emisión de un procedimiento relacionado con la utilización del citado estacionamiento.
+Será responsabilidad del bodeguero o personal de vigilancia destacado en cada edificio el velar por el cumplimiento de lo aquí dispuesto.

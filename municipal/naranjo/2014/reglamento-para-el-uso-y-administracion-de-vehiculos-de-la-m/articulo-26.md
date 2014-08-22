@@ -1,0 +1,1 @@
+Artículo 26.—El Coordinador de Servicios Generales de la Municipalidad encargado del área de transportes, será el encargado de administrar e implementar un programa de mantenimiento de los vehículos municipales, y velará porque en todo momento exista un sistema que permita a todos los usuarios hacer uso del mismo en forma ágil y eficiente.

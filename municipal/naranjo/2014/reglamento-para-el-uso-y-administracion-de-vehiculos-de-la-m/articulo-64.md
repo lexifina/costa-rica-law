@@ -1,0 +1,1 @@
+Artículo 64.—Los controles en materia de combustible, lubricantes, llantas, baterías, mantenimiento en general, para los vehículos de uso de la Alcaldía, serán los mismos que se aplican a los vehículos de uso administrativo general.

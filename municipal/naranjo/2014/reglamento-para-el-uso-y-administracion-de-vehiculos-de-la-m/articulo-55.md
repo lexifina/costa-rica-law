@@ -1,0 +1,2 @@
+Artículo 55.—Estos vehículos únicamente podrán ser utilizados por el funcionario que tiene derecho a este, en razón del cargo que ostenta.
+En casos de excepción, el funcionario autorizado podrá ceder la conducción del vehículo a otros funcionarios de la municipalidad o del Concejo Municipal, cuando tengan que realizar una gestión de su cargo.

@@ -1,0 +1,2 @@
+Artículo 30.—Queda prohibido que un funcionario no autorizado conduzca vehículos municipales. Casos especiales deberán ser analizados y aprobados previamente por el Coordinador de Servicios Generales de la Municipalidad encargada del área de transportes.
+El Coordinador de Servicios Generales de la Municipalidad encargada del área de transportes, no dará trámite a la solicitud de autorización para conducir vehículos de la municipalidad, cuando no exista una necesidad real que la justifique.

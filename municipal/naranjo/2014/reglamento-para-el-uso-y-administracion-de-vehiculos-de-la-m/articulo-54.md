@@ -1,0 +1,2 @@
+Artículo 54.—Para efectos de las siguientes normas, se considerará como vehículo de uso de la Alcaldía Municipal, el asignado al Alcalde Municipal. Bajo ninguna circunstancia podrá asignarse más de un vehículo para uso del funcionario indicado.
+Estos vehículos no cuentan con restricciones en cuanto a combustible, horarios de operación, ni recorridos, aspectos que asumirá bajo su criterio, el funcionario responsable de la unidad. Estos vehículos deben portar placas oficiales y estar debidamente rotulados con el Logo Institucional.

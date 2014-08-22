@@ -1,0 +1,1 @@
+Artículo 12.—El Coordinador de Servicios Generales de la Municipalidad encargada del área de transportes determinará, de acuerdo con la solicitud presentada, el tipo de vehículo que mejor se adapte a las condiciones del servicio solicitado.
