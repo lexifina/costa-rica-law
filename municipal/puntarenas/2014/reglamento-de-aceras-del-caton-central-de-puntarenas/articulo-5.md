@@ -1,0 +1,1 @@
+Artículo 5º—Corresponde al Proceso de Desarrollo y Control Urbano atender, gestionar y dar seguimiento al presente Reglamento, así como a las quejas de los usuarios en relación a lo dispuesto en este, para lo cual, beberá coordinar con las dependencias municipales correspondientes.
