@@ -14,3 +14,4 @@ Establece criterios de clasificación de eventos y sus respectivos requisitos pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-24 | la propia norma |
+| 2 | 2014-08-25 | Directriz 7 (2014-08-25) |

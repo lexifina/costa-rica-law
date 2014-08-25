@@ -43,6 +43,6 @@ Tipo | Clase estab. | Código actividad | Clase y subclase | No comercial | Pequ
 | | 020102 | Subastas comunales / parroquiales de animales vivos | Todos | NA | Na | NA | X | | X | |
 | 103 | Campañas sanitarias para control de fauna urbana
 | | 0301 | Campañas sanitarias para control de fauna urbana
-| | 030101 | Campañas sanitarias para control de fauna urbana | NA | Todos | NA | NA | X | X | | | 4 y 5
+| | 030101 (Así reformado el código anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014) | Campañas sanitarias para control de fauna urbana (Así reformado el punto anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014) | Todos (Así reformado el punto anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014) | NA (Así reformado el punto anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014) | NA (Así reformado el punto anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014) | NA (Así reformado el punto anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014) | X (Así reformado el punto anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014) | | | | 4 y 5 (Así reformado el punto anterior mediante directriz N° DG-D007-2014 del 25 de agosto del 2014)
 [imagen]
 [imagen]
