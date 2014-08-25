@@ -14,3 +14,4 @@ Reglamento Interno de Gastos en Alimentación y Transporte para regidores y sín
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-02 | la propia norma |
+| 2 | 2014-08-25 | Reglamento municipal 51 (2014-08-25) |
