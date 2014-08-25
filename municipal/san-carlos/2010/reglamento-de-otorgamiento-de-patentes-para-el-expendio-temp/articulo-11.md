@@ -1,1 +1,0 @@
-Artículo 11.—De ser aprobada la (s) patente (s) deben ser retirados por el representante legal o representante autorizado por acuerdo de Junta Directiva de la Organización Comunal, quien al hacerlo debe firmar que conoce y que acepta las condiciones que establece el presente reglamento.

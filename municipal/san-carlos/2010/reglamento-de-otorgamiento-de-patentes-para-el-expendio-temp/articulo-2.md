@@ -1,1 +1,0 @@
-Artículo 2º—Las patentes provisionales o temporales de licores serán otorgadas única y exclusivamente a las Organizaciones Comunales debidamente constituidas como personas jurídicas y cuyos fines sea el desarrollo de la comunidad. Su solicitud deberá realizarse como mínimo con quince días hábiles antes de la realización de las actividades.
