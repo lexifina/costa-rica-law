@@ -1,0 +1,1 @@
+Artículo 11.—Las disposiciones del presente decreto, serán aplicables en toda comunidad que con posterioridad, se detecte presencia de arsénico con niveles superiores a los establecidos en el Decreto Ejecutivo N° 32327-S del 10 de febrero del 2005 “Reglamento para la Calidad del Agua Potable”.

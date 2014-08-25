@@ -1,0 +1,1 @@
+Artículo 9º—El Ministerio de Salud y el Instituto Costarricense de Acueductos y Alcantarillados quedan facultados para suscribir los convenios de cooperación, con instituciones públicas o privadas, que consideren necesarios y que contribuyan a la solución de la problemática.

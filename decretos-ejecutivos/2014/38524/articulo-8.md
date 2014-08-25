@@ -1,0 +1,1 @@
+Artículo 8º—El Instituto Costarricense de Acueductos y Alcantarillados se encargará de disponer y ejecutar, en coordinación con el Ministerio de Salud y las Municipalidades respectivas de las zonas afectadas, las medidas técnicas y económicas que sean necesarias para el suministro provisional de agua, en cantidad y calidad suficiente para el consumo humano.
