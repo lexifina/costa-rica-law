@@ -1,0 +1,1 @@
+Artículo 2º—Presupuesto. Para garantizar estas ayudas a personas físicas o jurídicas que lo requieran, la Municipalidad de Curridabat presupuestará anualmente recursos conforme con su posibilidad financiera.

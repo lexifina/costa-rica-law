@@ -1,0 +1,1 @@
+Artículo 23.—Este Reglamento deroga el Reglamento para Ayudas Temporales y Subvenciones, tomado por acuerdo N° 8, de las 20:43 horas del 11 de marzo de 2004, según artículo 2ª, capítulo 3ª, del acta de la sesión ordinaria N° 98-2004, publicado en La Gaceta N° 9 del 13 de enero de 2005, y cualquier disposición anterior que se le oponga.

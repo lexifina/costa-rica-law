@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 22.—En todos los casos señalados en el presente Reglamento, si transcurrido un mes los beneficiarios de ayudas aprobadas, no se apersonan a la Municipalidad a hacer efectivos los beneficios otorgados, la Dirección Financiera deberá informarlo a la Alcaldía, a fin de proponer al Concejo, el asignar ese dinero o recursos a otras personas u organizaciones que lo necesiten. Al mismo tiempo, la Dirección de Responsabilidad Social registrará a la persona u organización que renunció a la ayuda en el Registro establecido al efecto y actualizará el respectivo expediente. La entidad o persona omisa, no podrá solicitar una nueva ayuda, sino pasados un año.

@@ -1,0 +1,1 @@
+Artículo 19.—En el caso de subvenciones en especie, se seguirá en lo pertinente, el mismo procedimiento de solicitud por parte de la entidad interesada y de estudio descrito en el Artículo 18 de este Reglamento.
