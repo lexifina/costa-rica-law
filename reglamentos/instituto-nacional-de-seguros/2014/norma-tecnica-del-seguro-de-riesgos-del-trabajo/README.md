@@ -14,3 +14,4 @@ Norma Técnica del Seguro de Riesgos del Trabajo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-07 | la propia norma |
+| 2 | 2014-08-26 | Reglamento 9220 (2014-08-26) |

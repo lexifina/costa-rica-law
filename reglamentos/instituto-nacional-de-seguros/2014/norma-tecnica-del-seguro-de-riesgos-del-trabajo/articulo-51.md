@@ -1,3 +1,5 @@
 Artículo 51.—Aseguramiento de nuevos trabajadores. Cuando el tomador contrate un nuevo trabajador, deberá informarlo al INS con anterioridad al inicio de sus labores, utilizando el formulario electrónico “Inclusión de asegurados” en el sistema RT-Virtual, en apego a lo dispuesto en el artículo 216 del Código de Trabajo, y deberá incluir al trabajador en la declaración de planilla que corresponda, según la fecha de ingreso.
 De no incluirse en dicha declaración de planilla, el INS lo incluirá de oficio, registrando el salario proporcional a los días acumulados entre la fecha de inclusión y el último día natural del periodo de planilla.
 Las pólizas RT-Hogar, RT-Ocasional, los seguros del sector público y las pólizas de periodo corto están exentas del formulario “Inclusión de asegurados”, no obstante, quedan obligados a reportar al trabajador en la declaración de planilla del mes en que fueron contratados.
+En el caso de las pólizas RT-Agrícola y RT-Producción, están exoneradas del formulario “Inclusión de asegurados.
+(Así reformado mediante sesión ordinaria N° 9220 del 26 de agosto del 2014)

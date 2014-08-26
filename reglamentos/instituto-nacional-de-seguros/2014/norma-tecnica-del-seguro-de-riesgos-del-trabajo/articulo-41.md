@@ -7,3 +7,5 @@ Dónde:
 MC = Monto consumido del periodo.
 MP = Sumatoria de las planillas del periodo.
 MO = Mano de obra de los proyectos y sub-contratos.
+En el caso de las pólizas RT-Producción, la producción real del período se determinará con base en el monto registrado en la constancia de la producción real entregada.
+(Así reformado mediante sesión ordinaria N° 9220 del 26 de agosto del 2014)
