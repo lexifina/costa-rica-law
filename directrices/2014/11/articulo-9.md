@@ -1,0 +1,1 @@
+Artículo 9º—Para dar fiel cumplimiento a lo establecido se da un plazo de un mes que comenzará a regir el día siguiente de la publicación de esta Directriz y al término del cual los Jerarcas deberán comunicar al Ministro Rector sobre las gestiones realizadas para el cumplimiento de esta directriz, a efecto de que él informe a la Presidencia de la República.

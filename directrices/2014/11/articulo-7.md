@@ -1,0 +1,1 @@
+Artículo 7º—A efectos de definir la línea base para el seguimiento de esta directriz, las instituciones deberán adicionar la “Hoja de registro de consumo de energía eléctrica” con los datos correspondientes al año 2013, en el primer informe de avance del PGAI, posterior a la entrada en vigencia de esta directriz.

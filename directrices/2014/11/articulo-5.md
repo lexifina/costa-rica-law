@@ -1,0 +1,1 @@
+Artículo 5º—Las lámparas fluorescentes y demás equipos que sean reemplazadas por efecto de la aplicación de la presente directriz, no podrán ser reutilizados, ni donados y deberán tener una adecuada disposición final considerando para ella lo contemplado en la Ley para la Gestión Integral de Residuos así como lo establecido en el Decreto Ejecutivo 38272-S.

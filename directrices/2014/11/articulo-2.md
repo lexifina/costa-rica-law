@@ -1,0 +1,1 @@
+Artículo 2º—Se prohíbe adquirir equipos, luminarias y artefactos de baja eficiencia que provoquen alto consumo de electricidad. Dicha prohibición aplica a todas las nuevas compras institucionales, incluyendo mantenimiento o sustitución por deterioro de equipos dañados, remodelaciones, nuevas obras y programas de reemplazo masivo.
