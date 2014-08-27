@@ -1,0 +1,1 @@
+Artículo 35.—Los casos no previstos en este Reglamento se resolverán de acuerdo con la jurisprudencia administrativa, la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley General de la Administración Pública, Ley y Reglamento de Contratación Administrativa, Reglamento General Fondo Fijo Cajas Chicas y demás leyes aplicables y conexas.
