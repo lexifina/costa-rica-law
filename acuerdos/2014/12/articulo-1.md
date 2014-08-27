@@ -1,0 +1,8 @@
+AVISO Nº 012-2014
+Asunto: Sobre la remisión de personas al Centro de Atención para Personas con Enfermedad Mental en Conflicto con la Ley, (CAMPECOL).
+LAS AUTORIDADES PENALES DEL PAÍS,
+DEFENSA PÚBLICA Y ORGANISMO
+DE INVESTIGACIÓN JUDICIAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 75- 14, celebrada el 21 de agosto de 2014, artículo XCIX, acordó comunicarles que según el oficio Nº GM-MDB-38956-14 de 12 de agosto del año en curso, remitido por la doctora María Eugenia Villalta Bonilla, Gerente Médica de la Caja Costarricense de Seguro Social y denominado “Optimización de las instalaciones del Centro de Atención a las Personas con Enfermedad Mental y Conflictos con la ley. Priorización de ingreso de internos”, a partir del 14 de agosto de 2014, se recibirán en el Centro de Atención para Personas con Enfermedad Mental en Conflicto con la Ley, adscrito al Hospital Nacional Psiquiátrico, las personas a las cuales se les impone una medida cautelar de internamiento para observación, siempre y cuando la medida ordenada por el Tribunal se fundamente en la solicitud expresa por parte de la Sección de Psiquiatría Forense, una vez evaluada la condición de salud mental por parte de esa dependencia; de conformidad con la aplicación del artículo 86 del Código Procesal Penal, que establece que “Si es necesario el internamiento del imputado para elaborar el informe pericial sobre su capacidad, la medida podrá ser ordenada por el tribunal, a solicitud de los peritos, sólo cuando exista la probabilidad de que el imputado haya cometido el hecho y esta medida no sea desproporcionada respecto de la importancia de la pena o medida de seguridad que podría imponerse”.
+San José, 27 de agosto de 2014.
