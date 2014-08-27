@@ -13,3 +13,4 @@ Manual de Procedimientos de las Comunicaciones por medios electrónicos de las O
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-09-28 | la propia norma |
+| 2 | 2014-08-27 | Circular 186 (2014-08-27) |

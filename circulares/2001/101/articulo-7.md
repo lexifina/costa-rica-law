@@ -1,1 +1,1 @@
-Artículo 7.- En caso de que el contenido de la comunicación enviada electrónicamente esté incompleto, la oficina o el servidor judicial comunicado deberá informarlo por el mismo medio y en un plazo máximo de veinticuatro horas, para que se haga la enmienda correspondiente.
+Artículo 7º—Si el proceso de transmisión se interrumpe por cualquier motivo, cuando éste se restablezca, la persona servidora encargada de efectuar la comunicación electrónica, deberá verificar cuáles comunicaciones no fueron transmitidas, para proceder de inmediato a realizar la transmisión.

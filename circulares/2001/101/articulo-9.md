@@ -1,1 +1,1 @@
-Artículo 9.- En caso de que el Sistema de Correo Electrónico se interrumpa por más de una audiencia, la oficina, despacho o persona interesada, determinará qué otro medio utilizará para efectuar las comunicaciones, hasta que se restablezca el sistema.
+Artículo 9º—Las personas servidoras judiciales que administren cuentas oficiales deberán acatar el Manual de Etiqueta para el uso del correo electrónico (Netiqueta).
