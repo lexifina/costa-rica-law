@@ -14,3 +14,4 @@ Reglamentación y normativa del perfil de terapia física
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-03 | la propia norma |
+| 2 | 2014-08-27 | Reglamento 0 (2014-08-27) |
