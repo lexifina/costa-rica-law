@@ -1,1 +1,2 @@
-Artículo 32. Excepciones al uso de papel de seguridad. Tratándose de certificación de copias, autenticación de firmas o huellas en documento privado, no es necesario el uso del papel de seguridad, salvo que la razón de certificación o autenticación, por su extensión, requiera el uso de papel de seguridad.
+Artículo 32. Uso de papel de seguridad en certificaciones de copias y autenticaciones de firmas o huellas digitales. La razón de certificación de copias, autenticación de firmas o huellas en documento privado, debe realizarla el notario en su papel de seguridad, el cual deberá adherirse con pegamento al documento certificado o autenticado.
+(Así reformado mediante sesión ordinaria número 2014-016-008 del 27 de agosto del 2014)
