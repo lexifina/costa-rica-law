@@ -1,0 +1,1 @@
+Artículo 2º—Ajustar el índice del RIOF y el artículo 31, en adelante dentro de la estructura organizativa de la Sutel, posterior al punto 1.3 denominado “Comunicación” lea un punto 1.4 llamado “Registro Nacional de Telecomunicaciones” y en consecuencia se corra la numeración de la Unidad Jurídica para ser en adelante la 1.5.
