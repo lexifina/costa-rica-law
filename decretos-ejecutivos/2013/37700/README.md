@@ -14,3 +14,4 @@ Reglamento de buenas prácticas de almacenamiento y distribución de medicamento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-28 | la propia norma |
+| 2 | 2014-08-28 | Decreto Ejecutivo 38820 (2014-08-28) |
