@@ -1,1 +1,0 @@
-Artículo 8°—Plazos de los créditos. Los plazos que se fijarán para la cancelación de los créditos otorgados, serán desde los doce (12) a los treinta y seis (36) meses, para la cual se tomará en consideración el monto aprobado y la capacidad de pago.

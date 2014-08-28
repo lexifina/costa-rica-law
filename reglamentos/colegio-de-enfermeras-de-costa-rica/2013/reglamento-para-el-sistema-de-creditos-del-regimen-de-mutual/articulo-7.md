@@ -1,1 +1,0 @@
-Artículo 7°—Capacidad de pago. Para el otorgamiento de los créditos a que se refiere este Reglamento, los afiliados y afiliadas deberán demostrar mediante los documentos idóneos y necesarios, su capacidad de pago, no pudiendo el monto del crédito superar el cuarenta por ciento (40%) del nivel de endeudamiento del solicitante.

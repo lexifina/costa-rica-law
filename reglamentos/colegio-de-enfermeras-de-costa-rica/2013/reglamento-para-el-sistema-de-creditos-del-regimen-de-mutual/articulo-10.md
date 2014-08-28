@@ -1,1 +1,0 @@
-Artículo 10.—Gastos administrativos. El Sistema de Créditos, deberá incluir a título de “comisión” a cargo y deducible anticipadamente del crédito que se apruebe, un porcentaje de dinero que servirá y se destinará para la atención de los gastos administrativos del sistema.
