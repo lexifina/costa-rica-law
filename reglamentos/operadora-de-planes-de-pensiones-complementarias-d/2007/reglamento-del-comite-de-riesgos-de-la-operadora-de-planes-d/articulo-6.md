@@ -1,9 +1,14 @@
 Artículo 6°—De la conformación del Comité. El Comité de Riesgos de la Operadora estará integrado por los siguientes miembros los cuales tendrán derecho a voz y voto:
 a) El Gerente de la Operadora, quien lo presidirá y, en caso de empate, ejercerá el doble voto, de acuerdo con la Ley General de la Administración Pública.
-b) El Encargado de la Unidad de Riesgos de Popular Pensiones OPC quien funge como enlace técnico entre la OPC y el PAR, será su Secretario y podrá nombrar como suplente en este cargo de secretario, a uno de los participantes mencionados en el inciso c) o d) de este artículo.
-c) El Director de Gestión Corporativa del Banco Popular y de Desarrollo Comunal, quien podrá delegar en el Coordinador del Proceso de Gestión de Riesgo del Banco Popular y de Desarrollo Comunal.
-d) Uno de los Gestores de Riesgo del Banco Popular y de Desarrollo Comunal quien será designado por el Director de Gestión Corporativa del Banco Popular.
-e) El miembro independiente que se especifica en el inciso b) del artículo 9° del Reglamento de Inversiones de las Entidades Reguladas,
+(Así reformado el inciso anterior en sesión N° 442 del 28 de agosto de 2014)
+b) El Encargado de la Unidad de Riesgos de Popular Pensiones OPC quien funge como enlace técnico entre la OPC y la DIRRC, será su Secretario y podrá nombrar como suplente en este cargo de secretario, a uno de los participantes mencionados en el inciso c) o d) de este artículo.
+(Así reformado el inciso anterior en sesión N° 442 del 28 de agosto de 2014)
+c) El Director de Riesgo Corporativo del Banco Popular y de Desarrollo Comunal, quien podrá delegar en el Jefe de la División de Riesgo Financiero del Banco Popular y de Desarrollo Comunal.
+(Así reformado el inciso anterior en sesión N° 442 del 28 de agosto de 2014)
+d) Uno de los Gestores de Riesgo del Banco Popular y de Desarrollo Comunal quien será designado por el Director de Riesgo Corporativo del Banco Popular.
+(Así reformado el inciso anterior en sesión N° 442 del 28 de agosto de 2014)
+e) El miembro independiente que se especifica en el inciso b) del artículo 9° del Reglamento de Inversiones de las Entidades Reguladas.
+(Así reformado el inciso anterior en sesión N° 442 del 28 de agosto de 2014)
 El Jefe del Departamento de Inversiones de la Operadora y el Asistente del Gerente de la Operadora asistirán con derecho a voz, pero sin voto. Podrá asistir, en las mismas condiciones el Contralor Normativo, cuando así lo disponga el Presidente del Comité.
 La asistencia a las sesiones del Comité no devengará el pago de dietas, salvo en el caso del miembro independiente, el cual se indica en el inciso e) anterior. Éste devengará dietas en el mismo monto señalado para los integrantes de la Junta Directiva Nacional del Banco Popular y de Desarrollo Comunal, hasta por un máximo de dos sesiones mensuales.
 El quórum para sesionar quedará conformado con tres de los miembros con derecho a voz y voto.
