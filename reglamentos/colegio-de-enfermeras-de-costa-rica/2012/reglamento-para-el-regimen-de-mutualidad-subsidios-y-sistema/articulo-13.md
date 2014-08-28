@@ -1,5 +1,0 @@
-CAPÍTULO IV
-De los miembros del fondo
-Artículo 13.—De los afiliados y afiliadas: De conformidad con la Ley Orgánica del Colegio de Enfermeras de Costa Rica y su reglamento, se considerarán colegiados (as) afiliados (s) al Fondo, con igualdad de derechos y obligaciones:
-a) Todas las personas profesionales en enfermería incorporadas como miembros activos al día en sus obligaciones, al régimen del Fondo de Mutualidad y al Colegio de Enfermeras de Costa Rica. Con el acto de incorporación del o la profesional al Colegio, se entenderá automáticamente como el acto de afiliación al Fondo, en la medida que cumpla con los demás requisitos que establezca este Reglamento.
-b) También conservarán su condición de colegiados (as) afiliados (as), todos aquellos profesionales en enfermería que se hayan pensionado por cualesquiera de los regímenes establecidos por ley, siempre y cuando se mantengan pagando sus cuotas al Fondo del Colegio y cumplan con las demás obligaciones establecidas en este Reglamento.

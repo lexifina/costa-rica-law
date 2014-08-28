@@ -1,3 +1,0 @@
-Artículo 17.—Prescripción del beneficio.
-a) El derecho para reclamar los beneficios que otorga el Fondo, en caso de fallecimiento del colegiado (a) afiliado (a) prescribe, después de transcurrido un año, contado a partir de la fecha del evento que lo justifica, tales como el fallecimiento, la invalidez, la ausencia, desaparición o el retiro por la edad establecida en este Reglamento.
-b) El plazo de prescripción previsto en el acápite anterior, no correrá en caso de desaparición legítimamente comprobada del colegiado (a) afiliado (a) y empezará a correr a partir de la ausencia judicialmente declarada del mismo, conforme a las disposiciones del Código Civil.

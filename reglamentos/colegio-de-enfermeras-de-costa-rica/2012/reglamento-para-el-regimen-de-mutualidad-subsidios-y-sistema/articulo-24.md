@@ -1,1 +1,0 @@
-Artículo 24.—Reuniones: La Junta Administradora, deberá reunirse ordinariamente dos veces al mes en los días que así lo establezcan sus miembros y extraordinariamente cuando así lo requieran sus obligaciones o, a solicitud de quien presida o, de por lo menos dos de sus miembros o, cuando sea convocada por la Junta Directiva.
