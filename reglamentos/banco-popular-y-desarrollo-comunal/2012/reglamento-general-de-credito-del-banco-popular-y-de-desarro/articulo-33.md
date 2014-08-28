@@ -1,1 +1,1 @@
-Artículo 33.—Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual los solicitantes u obligados deberán dar toda la información pertinente y colaboración que se les solicite.
+Artículo 33.— En la etapa de seguimiento, el Banco clasificará a sus deudores con el nivel de capacidad de pago correspondiente, según los parámetros aprobados por la Junta Directiva Nacional.
