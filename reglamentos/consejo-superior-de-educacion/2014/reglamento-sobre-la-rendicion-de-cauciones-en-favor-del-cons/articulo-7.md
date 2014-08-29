@@ -1,0 +1,1 @@
+Artículo 7º—Caucionantes del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos, durante todo el tiempo de su nombramiento, los miembros propietarios y suplentes del Consejo Superior de Educación y el Secretario o Secretaria General.

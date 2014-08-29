@@ -1,0 +1,2 @@
+Artículo 3º—Forma de rendir la caución. La caución se hará mediante la suscripción con cargo al peculio del funcionario obligado a rendir caución, de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, o las entidades o empresas aseguradoras autorizadas para el ejercicio de sus funciones.
+Dicha póliza será a favor del Consejo Superior de Educación, quien ostenta la personería jurídica; y cesará por la renuncia aceptada, suspensión o remoción del funcionario obligado a contraerla.

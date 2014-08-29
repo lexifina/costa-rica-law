@@ -1,0 +1,1 @@
+Artículo 4º—Del plazo de las garantías. Las garantías se deben mantener vigentes durante todo el tiempo que los funcionarios obligados se encuentren en sus cargos o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios.

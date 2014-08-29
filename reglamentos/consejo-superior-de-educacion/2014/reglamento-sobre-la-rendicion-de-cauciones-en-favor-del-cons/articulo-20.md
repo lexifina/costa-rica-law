@@ -1,0 +1,1 @@
+Artículo 20.—Medidas adicionales para el resarcimiento de daños y perjuicios. La Administración deberá tomar medidas adicionales para el eventual resarcimiento de daños y perjuicios ocasionados por el caucionante contra el patrimonio de la Institución, cuando la responsabilidad del funcionario haya sido probada.

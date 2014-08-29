@@ -1,0 +1,1 @@
+Artículo 11.—Funcionarios ad-honorem. Los funcionarios o miembros de consejo que ejerzan cargos públicos en condición ad-honorem, y que realicen funciones de recaudación, custodia o administración de fondos públicos deberán rendir garantía o caución, salvo disposición expresa en contrario.

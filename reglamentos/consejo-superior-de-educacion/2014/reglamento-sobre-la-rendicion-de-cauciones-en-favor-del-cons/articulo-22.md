@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales y transitorias Artículo
+22.—Transitorio único.—Los funcionarios que a la fecha de entrada en vigencia de este Reglamento estén obligados a caucionar, contarán con un plazo de un mes calendario para gestionar la caución y presentar una copia a la dependencia competente según el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Simultaneidad de funciones sujetas a caución. El funcionario de un puesto que por Decreto, Ley o disposición interna le corresponda asumir otras funciones donde se recaude, administre o custodie fondos públicos, deberá rendir una única caución y por el monto mayor.
