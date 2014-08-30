@@ -1,0 +1,1 @@
+Artículo 10.—De las áreas mínimas de los permisos de uso. Las áreas mínimas de las parcelas donde se otorguen permisos de uso se ajustaran a las dimensiones establecidas en el reglamento de la ley, por lo demás se otorgaran por las áreas solicitadas en cada expediente de solicitud de concesión sujetas a modificación una vez aprobado el Plan Regulador para la zona.

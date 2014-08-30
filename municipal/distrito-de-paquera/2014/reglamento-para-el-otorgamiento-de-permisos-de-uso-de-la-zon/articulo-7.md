@@ -1,0 +1,1 @@
+Artículo 7º—Precariedad del permiso de uso. El permiso de uso es un acto unilateral de carácter precario mediante el cual el Concejo Municipal de Paquera autoriza a un particular el uso privativo sobre una parcela de dominio público, conforme a los lineamientos que se establecen en el artículo 6° de este procedimiento.
