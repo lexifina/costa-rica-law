@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+SOPORTES ELECTRÓNICOS
+ARTÍCULO23. Digitalización de documentos. El proceso digitalización de documentos deberá ser supervisadopor el Archivo Institucional, el cual establecerá los procedimientos para talefecto. Para el uso de cualquier otra tecnología que afecte el manejo de los documentos en la Institución, se deberá coordinar con el Archivo Institucional, para que éste establezca los procedimientos respectivos. En caso de que alguna unidad administrativa desee aplicar cualquiera de los procesos de microfilmación, digitalización o nueva tecnología, al manejo documental, deberá coordinarlo de previo con el Archivo Central.

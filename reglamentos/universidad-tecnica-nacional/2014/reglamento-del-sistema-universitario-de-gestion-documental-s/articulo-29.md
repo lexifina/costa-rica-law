@@ -1,0 +1,1 @@
+ARTÍCULO 29. Presupuesto. El Archivo Institucional y cada Archivo Periférico contarán independientemente con un presupuesto para la adquisición de materiales y equipo necesarios para el buen ejercicio desus funciones.
