@@ -1,0 +1,1 @@
+Artículo 30.- Los Planes de Desarrollo Académico establecen cursos, talleres, seminarios, entre otros; los cuales se coordinan con el Área de Capacitación y Desarrollo de la Dirección de Gestión de Desarrollo Humano, la Unidad de Capacitación, Actualización y Profesionalización Académica y Directores de Docencia.

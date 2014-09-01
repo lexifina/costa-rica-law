@@ -1,0 +1,1 @@
+Artículo 22.- La estrategia de mediación pedagógica se realiza mediante un plan de evaluación que tiene tres pasos: un acuerdo sobre las áreas a mejorar, la aplicación de la estrategia de mediación y la devolución de los resultados y el acuerdo del plan de desarrollo académico.

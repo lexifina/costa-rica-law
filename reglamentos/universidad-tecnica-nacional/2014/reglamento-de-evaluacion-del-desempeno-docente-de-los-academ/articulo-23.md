@@ -1,0 +1,1 @@
+Artículo 23.-La estrategia de mediación pedagógica se aplica en primera instancia, a los académicos que obtengan una nota inferior a setenta (70), como promedio de los tres instrumentos y opcionalmente cuando se determine pertinente para la Universidad.

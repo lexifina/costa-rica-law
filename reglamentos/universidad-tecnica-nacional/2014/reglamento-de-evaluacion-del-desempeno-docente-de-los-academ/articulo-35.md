@@ -1,0 +1,1 @@
+Artículo 35.- Ante las resoluciones mediante las cuales se establecen medidas correctivas, el interesado tiene derecho a presentar los recursos ordinarios de revocatoria y apelación, de conformidad con lo establecido en la Ley General de Administración Pública.

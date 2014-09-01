@@ -1,0 +1,1 @@
+Artículo 32.- El ente responsable del seguimiento de las acciones de mejora es el Área de Capacitación y Desarrollo de la Dirección de Gestión de Desarrollo Humano en coordinación con el Departamento de Gestión de Desarrollo Humano de cada Sede y los Directores de Docencia.

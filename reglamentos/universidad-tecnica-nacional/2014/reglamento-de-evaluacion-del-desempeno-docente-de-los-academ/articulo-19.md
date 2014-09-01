@@ -1,0 +1,6 @@
+Artículo 19.- VICERRECTORÍA DE DOCENCIA. Le corresponde a esta Vicerrectoría desde la Unidad de Capacitación, Actualización y Profesionalización Académica del Centro de Formación Pedagógica y Tecnología Educativa y a la Dirección de Gestión de Desarrollo Humano emitir las directrices para el proceso de evaluación.
+a) Proponer los criterios generales para la elaboración de los instrumentos y las actualizaciones de los mismos tomando en cuenta los elementos particulares de la investigación y extensión.
+b) Diseñar y hacer públicos los instrumentos de evaluación del desempeño docente del académico, el de los estudiantes, los Directores de Carrera, así como el de autoevaluación y las estrategias de evaluación de la mediación pedagógica.
+c) Coordinar la elaboración de los instrumentos y la normativa de evaluación del desempeño académico.
+d) Aplicar desde la Unidad de Capacitación, Actualización y Profesionalización Académica del CFPTE, la estrategia de evaluación de la mediación pedagógica, a los académicos e identificar las necesidades de capacitación y elaborar el Plan de Desarrollo Académico, que se ejecuta desde el Centro de Formación Pedagógica y Tecnología Educativa.
+e) Trasladar a la Dirección de Evaluación Académica el informe final, para que esta dirección utilice los datos vinculados con la calidad académica.

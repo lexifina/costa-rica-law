@@ -1,0 +1,1 @@
+Artículo 12.- HERRAMIENTAS Y ESTRATEGIA DE EVALUACIÓN. La evaluación se realiza mediante instrumentos digitales (directores de carrera, estudiantes y autoevaluación) y estrategias presenciales diseñadas y aplicadas por la Unidad de Capacitación, Actualización y Profesionalización Académica del CFPTE.

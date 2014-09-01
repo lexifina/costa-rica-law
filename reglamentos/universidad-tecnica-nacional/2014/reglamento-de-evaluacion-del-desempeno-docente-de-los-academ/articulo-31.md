@@ -1,0 +1,1 @@
+Artículo 31.- La persona con calificación inferior a setenta tiene un periodo de un cuatrimestre como máximo, para iniciar el proceso de capacitación, después de establecido el Plan de Desarrollo Académico de acuerdo a sus necesidades.

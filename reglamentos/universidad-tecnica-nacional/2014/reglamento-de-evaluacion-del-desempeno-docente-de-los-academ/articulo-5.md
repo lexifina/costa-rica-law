@@ -1,0 +1,5 @@
+Artículo 5.- PRINCIPIOS GENERALES PARA LA EVALUACIÓN. Los principios que rigen la evaluación del desempeño docente del académico son:
+a) Una nueva situación de aprendizaje: Entendida como una transformación en la relación estudiante, académico y director de carrera, trascendiendo los conceptos tradicionales y cambiando la actuación en los espacios de aprendizaje.
+b) Una búsqueda constante de actualización permanente: Genera una actitud de observación y escucha y una disposición para reflexionar, resignificar, reformar, y organizar la labor en función del mejor aprendizaje de sí mismo.
+c) Una comunicación entre los actores de la función académica para su mejora: En un marco de respeto y empatía para lograr una realimentación, cuyo fin es generar la reflexión y proactividad pertinente en la labor académica de la UTN.
+d) Un proceso de acompañamiento, transparente y equitativo con información clara del mismo en sus diversas etapas: Que permite el desarrollo integral del académico que va más allá de la calificación obtenida.

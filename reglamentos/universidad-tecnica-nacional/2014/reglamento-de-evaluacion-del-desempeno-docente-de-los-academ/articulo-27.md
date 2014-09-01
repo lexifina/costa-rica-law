@@ -1,0 +1,1 @@
+Artículo 27.- EL INFORME DE EVALUACIÓN. Una vez concluido el proceso en los períodos establecidos y recibida debidamente la documentación, el Área de Capacitación y Desarrollo de la Dirección de Gestión de Desarrollo Humano dispone de cuatro semanas para presentar el informe de la evaluación del desempeño docente del académico, desagregado por académico y sede.
