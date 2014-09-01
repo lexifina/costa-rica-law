@@ -36,3 +36,4 @@ Reglamento para Juzgar la situación económica financiera de las Asociaciones M
 | 21 | 2010-05-20 | Reglamento 852 (2010-05-20) |
 | 22 | 2010-06-25 | Reglamento 862 (2010-06-25) |
 | 23 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
+| 24 | 2014-09-01 | Reglamento 1123 (2014-09-01) |
