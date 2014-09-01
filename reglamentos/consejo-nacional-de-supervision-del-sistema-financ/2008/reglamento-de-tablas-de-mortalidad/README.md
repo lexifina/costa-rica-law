@@ -14,3 +14,4 @@ Reglamento de Tablas de Mortalidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-26 | la propia norma |
+| 2 | 2014-09-01 | Reglamento 1122 (2014-09-01) |

@@ -11,4 +11,6 @@ considerando que:
 dispuso, en firme:
 Aprobar el “Reglamento de Tablas de Mortalidad”, en los siguientes términos:
 “REGLAMENTO DE TABLAS DE MORTALIDAD
-Artículo 1º—Alcance. Este reglamento define las tablas de mortalidad para pensionados y beneficiarios que deben utilizarse para el cálculo de los retiros programados por parte de las Operadoras de Pensión Complementaria; de las provisiones y reservas técnicas por parte de los Regímenes de Pensiones de beneficio definido sustitutos o complementarios al Régimen de Invalidez, Vejez y Muerte administrado por la Caja Costarricense de Seguro Social; de la estimación de reservas y provisiones técnicas de rentas vitalicias por parte de las entidades aseguradoras.
+Artículo 1. Alcance
+Este reglamento establece las tablas de mortalidad que deben utilizarse para el cálculo de los retiros programados por parte de las Operadoras de Pensión Complementarias, de las provisiones y reservas técnicas por parte de los Regímenes de Pensiones de Beneficio definido sustitutos o complementarios al Régimen de Invalidez, Vejez y Muerte administrado por la Caja Costarricense del Seguro Social.
+(Así reformado mediante sesión N°1122-2014 del 1° de setiembre del 2014)
