@@ -14,3 +14,4 @@ Reglamento General de Transportes de la Junta de Pensiones y Jubilaciones del Ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-14 | la propia norma |
+| 2 | 2014-09-01 | Reglamento 0 (2014-09-01) |
