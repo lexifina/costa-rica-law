@@ -1,3 +1,0 @@
-Artículo 43.—Los recursos que proceden en las contrataciones de emergencias son los siguientes:
-Recurso de revocatoria: Procede para todas las contrataciones de emergencia. Deberá presentarse en el plazo de dos días hábiles contados a partir del día siguiente en que se comunicó el acto a recurrir.
-Recurso de apelación: Procede en contra de las contrataciones cuyo monto mínimo sea el establecido para la licitación pública por parte de la Contraloría General de la República para la Comisión. Deberá ser resuelto por el superior del funcionario que emitió el acto impugnado y debe presentarse en el plazo de tres días hábiles contados a partir del día siguiente que se comunicó el acto a recurrir.

@@ -1,1 +1,0 @@
-Artículo 55.—La Gestión de compras extraordinarias llevará un archivo de los documentos presentados por cada interesado que ha solicitado su inscripción en el Registro de Proveedores. También se registrará la información en forma digital, la cual se reputará válida salvo prueba en contrario.

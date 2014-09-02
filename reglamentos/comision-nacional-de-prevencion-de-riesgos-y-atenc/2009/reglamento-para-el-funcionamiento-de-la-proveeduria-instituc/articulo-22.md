@@ -1,3 +1,0 @@
-Artículo 22.—Comité de Recomendación de Adjudicaciones. Quórum y carácter no vinculante de sus decisiones. El quórum para sesionar será con la totalidad de sus miembros y sus decisiones se tomarán por simple mayoría.
-El Proveedor Institucional será quien presida las reuniones del Comité.
-Las recomendaciones que emita dicho Comité no serán vinculantes, por su naturaleza asesora, pero para apartarse de ellas el órgano competente para adjudicar deberá fundamentar ampliamente las razones por las que no acepta la respectiva recomendación, asumiendo en tal caso total y plena responsabilidad de dicho acto.

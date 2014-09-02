@@ -1,1 +1,0 @@
-Artículo 54.—Una vez presentada la información necesaria, la Gestión de compras extraordinarias revisa y la pasa al Proveedor para la aprobación del oferente. Si hicieran falta documentos o deban ser actualizados, se hace la prevención respectiva y se le otorga un plazo máximo de cinco días para cumplir con ello, de no hacerlo se pasa a la categoría de proveedor inactivo.

@@ -1,1 +1,0 @@
-Artículo 4º—De la plataforma tecnológica. La plataforma tecnológica que la Dirección General de Bienes y Contratación Administrativa designe, será el instrumento obligatorio para que la Proveeduría Institucional ejecute los procedimientos de contratación administrativa ordinarios y de prevención, y será utilizada por la primera, para cumplir su función fiscalizadora.

@@ -1,5 +1,0 @@
-CAPÍTULO V
-De las Contrataciones por Emergencias No Declaradas
-Artículo 47.—De conformidad con lo dispuesto en el artículo 15 de la Ley Nacional de Atención de Emergencias y Prevención del Riesgo, la Comisión está facultada para realizar contrataciones por emergencias no declaradas sin que medie una declaratoria de emergencia por parte del Poder Ejecutivo, y que por la alta frecuencia con que ocurren o la seria afectación que provocan en las comunidades, demandan la prestación de un servicio humanitario.
-Estas contrataciones se pueden realizar por materiales y por maquinaria hasta un máximo de cien horas para la rehabilitación de las zonas afectadas. En ambos casos las compras o contrataciones (suministros y recurso humano) se pueden efectuar para salvaguardar la vida, la salud, la seguridad de las personas o para la habilitación de los servicios básicos de las comunidades y el avituallamiento indispensable para habilitar albergues.
-(Así reformado en sesión N° 08 del 7 de agosto de 2013)

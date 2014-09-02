@@ -1,1 +1,0 @@
-Artículo 72.—El proveedor deberá señalar un fax como medio electrónico oficial para ser notificado. Si el proveedor ingresa varios números de fax, deberá informar además, para el medio alterno, la prioridad del mismo, lo cual implica que solo el de mayor prioridad será utilizado para notificar.

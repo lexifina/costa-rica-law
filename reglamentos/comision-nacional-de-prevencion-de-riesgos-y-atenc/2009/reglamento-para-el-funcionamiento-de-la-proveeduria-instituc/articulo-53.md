@@ -1,6 +1,0 @@
-Artículo 53.—En el Registro de Proveedores, por estados del proveedor, entiéndase lo siguiente:
-Activo: Esta condición se le asignará al proveedor que posea la característica de estar inscrito en el Registro y será susceptible de ser invitado a participar en las contrataciones correspondientes, según el rol respectivo.
-Inactivo: Corresponde al proveedor que ha dejado de ser activo al finalizar la vigencia de su registro y al proveedor que no renovó un documento debidamente, en los términos definidos en este Reglamento, así como al proveedor que no atendió, injustificadamente, la cantidad de invitaciones a participar en una contratación, según establece el Reglamento a la Ley de Contratación Administrativa.
-Inhabilitado: Se refiere a los proveedores a los cuales se les impuso una sanción de inhabilitación para participar en la actividad contractual de la Institución, por un plazo determinado.
-En revisión: Es el estado cuando el proveedor ha hecho la solicitud de inscripción y se encuentra en proceso de registro y si se cursare prevención para que el proveedor subsane o aclare algún aspecto de su solicitud de inscripción, según los términos de este Reglamento y se está en espera de su respuesta.
-La Proveeduría no podrá eliminar del Registro a un oferente, excepto que se le hayan establecido sanciones u otras anotaciones.

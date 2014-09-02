@@ -1,1 +1,0 @@
-Artículo 62.—El interesado activo e inscrito, es responsable de seleccionar aquellas mercancías, servicios o familias que está en disposición de ofertar a la Institución relacionados con su giro comercial.

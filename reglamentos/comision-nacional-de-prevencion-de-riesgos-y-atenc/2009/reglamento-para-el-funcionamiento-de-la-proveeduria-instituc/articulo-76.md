@@ -1,1 +1,0 @@
-Artículo 76.—El recurso de revocatoria deberá interponerse ante el Departamento de Proveeduría; y el de apelación, ante la Dirección Administrativa Financiera, dentro del término de tres días hábiles contados a partir del día hábil siguiente de la notificación del acto.

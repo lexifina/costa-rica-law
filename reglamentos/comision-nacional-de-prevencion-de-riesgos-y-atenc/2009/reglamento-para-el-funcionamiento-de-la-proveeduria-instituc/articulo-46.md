@@ -1,1 +1,0 @@
-Artículo 46.—En los casos en que una contratación por emergencia o primer impacto se declare infructuosa o desierta, el Presidente de la Comisión puede instruir a la Proveeduría para que se proceda de manera inmediata a la contratación en forma directa con un proveedor, que demuestre idoneidad técnica, administrativa, legal y financiera para la ejecución de la obra o servicio.

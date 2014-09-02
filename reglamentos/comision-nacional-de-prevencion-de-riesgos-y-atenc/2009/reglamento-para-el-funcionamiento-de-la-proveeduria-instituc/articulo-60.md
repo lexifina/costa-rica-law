@@ -1,1 +1,0 @@
-Artículo 60.—En toda contratación de proyectos de construcción, ya sea por emergencia declarada, ordinario y prevención se debe solicitar al oferente los estados financieros a fin de verificar la solvencia del mismo, en todo caso el capital de trabajo no debe ser inferior a un veinte por ciento (20%) del monto de la oferta.

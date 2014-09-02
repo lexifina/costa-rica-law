@@ -1,1 +1,0 @@
-Artículo 70.—La Proveeduría podrá adicionar proveedores del mismo Registro o bien de otras fuentes, cuando se desea obtener mayor participación para una determinada contratación, siempre y cuando el proveedor no esté inhabilitado.

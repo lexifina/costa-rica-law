@@ -1,1 +1,0 @@
-Artículo 56.—El interesado deberá solicitar expresa y oportunamente su inclusión en el Registro de Proveedores, para lo cual entregará debidamente llena y con la información requerida, la solicitud o formulario que para tales efectos tiene disponible la Proveeduría en sus oficinas o en la página electrónica de la Comisión.

@@ -1,1 +1,0 @@
-Artículo 67.—La rotación o rol de proveedores, será utilizada por la Proveeduría para seleccionar los oferentes a invitar en los procedimientos de contratación que correspondan, incluyendo las contrataciones directas por escasa cuantía, no referidas a caja chica o a otras excepciones.

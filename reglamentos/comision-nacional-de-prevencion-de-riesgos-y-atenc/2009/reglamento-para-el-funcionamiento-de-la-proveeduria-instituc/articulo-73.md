@@ -1,1 +1,0 @@
-Artículo 73.—En el Registro de Proveedores se ingresarán las sanciones impuestas a los proveedores y las que establezca la Contraloría General de la República. Para el ingreso de una sanción, el proveedor no tiene necesariamente que estar en un estado activo.
