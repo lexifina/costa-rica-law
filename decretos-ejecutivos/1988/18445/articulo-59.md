@@ -1,12 +1,11 @@
-ARTICULO 59.-
-Valuación de inventarios. Para la valuación de inventarios se puede utilizar cualquiera de los siguientes procedimientos, siempre que técnicamente sea apropiado para el negocio de que se trate y se aplique de manera uniforma y continua:
+ARTICULO 59.-Valuación de inventarios. Para la valuación de inventarios se puede utilizar cualquiera de los siguientes procedimientos o métodos, siempre que técnicamente sea apropiado para el negocio de que se trate y se aplique de manera uniforme y continua:
 a) Para las mercancías compradas en plaza o importadas, se debe utilizar el costo de adquisición. Para su valuación se puede usar cualquiera de los siguientes métodos:
-i) Método de minoristas
+i) Método de minoristas.
 ii) Identificación específica de costos individuales para aquellos productos que no son intercambiables entre sí.
-iii) Primeras entradas, primeras salidas (PEPS).
-iv) Últimas entradas, primeras salidas (UEPS).
-v) Costos promedios ponderados (Se puede calcular el promedio periódicamente o después de recibir cada envío adicional, dependiendo de las circunstancias de la empresa).
-(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 30410 del 7 de febrero de 2002)
+iii)Primeras entradas, primeras salidas (PEPS).
+iv)Costos promedios ponderados (Se puede calcular el promedio periódicamente o después de recibir cada envío adicional, dependiendo de las circunstancias de la empresa).
+Los métodos descritos en este inciso, serán los únicos autorizados para realizar la valuación de inventarios a los fines de este impuesto, quedando desautorizada la valoración de inventarios por el método UEPS tradicional y los ajustes contables de UEPS monetario, es decir, la actualización de precios ya sea por el sistema de doble extensión o en cadena u otros.
+(Así reformado el inciso a) anterior por el artículo 1° del decreto ejecutivo N° 38708 del 2 de setiembre de 2014)
 b) Para los artículos producidos por el declarante, se debe determinar el valor del inventario de la siguiente manera:
 i) Materias primas: Se deben valuar por el costo de adquisición, que comprende el valor de compra, más los gastos efectuados hasta situar estos bienes en el establecimiento; en este caso se puede utilizar cualquiera de los métodos indicados en el inciso a) del presente artículo. Si la propia empresa es productora de las materias primas, su valuación se debe hacer por el costo de producción;
 ii) Productos en proceso: Los artículos que al cierre del ejercicio fiscal se encuentren en proceso de fabricación, se deben valuar proporcionalmente de acuerdo con su grado de elaboración, considerando el valor de la materia prima empleada, el de la mano de obra directa usada y los gastos aplicables en que se haya incurrido; y
