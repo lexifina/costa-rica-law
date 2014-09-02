@@ -54,3 +54,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 39 | 2014-08-11 | Decreto Ejecutivo 38616 (2014-08-11) |
 | 40 | 2014-08-11 | Decreto Ejecutivo 38619 (2014-08-11) |
 | 41 | 2014-08-13 | Decreto Ejecutivo 38627 (2014-08-13) |
+| 42 | 2014-09-02 | Decreto Ejecutivo 38634 (2014-09-02) |
