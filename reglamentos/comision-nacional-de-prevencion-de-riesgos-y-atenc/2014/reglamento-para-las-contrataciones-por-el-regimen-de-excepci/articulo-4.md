@@ -1,0 +1,1 @@
+Artículo 4º—De la plataforma tecnológica. La plataforma tecnológica que el Poder Ejecutivo designe, será el instrumento obligatorio para que la Proveeduría Institucional ejecute los procedimientos de contratación administrativa ordinarios y extraordinarios.

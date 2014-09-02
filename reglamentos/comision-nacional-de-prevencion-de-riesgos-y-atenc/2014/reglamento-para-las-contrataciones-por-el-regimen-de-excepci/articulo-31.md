@@ -1,0 +1,1 @@
+Artículo 31.—De los recursos. Los recursos de revocatoria y el de apelación en contra del acto de adjudicación y el de objeción al cartel de la de contratación se regirá por lo dispuesto en la Ley y Reglamento de Contratación Administrativa, para las licitaciones públicas, abreviada y contrataciones directas.

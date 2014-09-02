@@ -1,0 +1,1 @@
+Artículo 40.—Los incumplimientos de las obligaciones por parte de los contratistas u oferentes se sancionarán en la forma establecida en la Ley de Contratación Administrativa y su Reglamento. La Proveeduría Institucional se encuentra facultada para sancionar y ejecutar las garantías correspondientes.

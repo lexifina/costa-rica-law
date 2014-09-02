@@ -1,0 +1,1 @@
+Artículo 6º—De la competencia para dar la orden de inicio de los procedimientos de contratación. Los responsables de las Unidades y Procesos que tienen asignado un presupuesto, salvo disposición en contrario del máximo Jerarca, serán los competentes y responsables para dar la orden de inicio en cada procedimiento de contratación administrativa.
