@@ -1,0 +1,1 @@
+Artículo 3º—Hecho Generador. El hecho generador es el otorgamiento de la licencia o autorización por parte del Concejo Municipal de Distrito, para la comercialización de bebidas con contenido alcohólico.

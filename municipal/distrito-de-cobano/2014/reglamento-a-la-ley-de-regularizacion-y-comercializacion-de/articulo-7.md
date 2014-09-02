@@ -1,0 +1,4 @@
+Artículo 7º—Adquisición. Para adquirir una licencia se requiere:
+a). Reunir los requisitos establecidos en el artículo 8 de la Ley N° 9047 y satisfacer las prohibiciones establecidas en el artículo 9 de la misma, proporcionar la información requerida en el formulario de solicitud que dispondrá la Administración al efecto; y cancelar el derecho correspondiente.
+b). Presentar declaración jurada rendida ante Notario Público, de que cuenta con plena capacidad cognoscitiva y volitiva, además, de que conoce las prohibiciones establecidas en el artículo 9 de la Ley N° 9047 y que se compromete a respetar ésta y todas las disposiciones de la ley antes citada.
+La licencia otorgada sólo puede ser ejercida en el establecimiento, en la ubicación y en las condiciones en las cuales se autorizó y limitarse, exclusivamente, a su tipo en los términos del artículo 4 de la Ley N° 9047.

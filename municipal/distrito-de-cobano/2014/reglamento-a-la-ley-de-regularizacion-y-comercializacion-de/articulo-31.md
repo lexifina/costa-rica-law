@@ -1,0 +1,1 @@
+Artículo 31.—Legislación de aplicación supletoria. Lo no previsto en este Reglamento se regirá por lo dispuesto en la Ley N° 9047 y en su defecto se aplicará supletoriamente lo regulado en la legislación correspondiente según la materia.

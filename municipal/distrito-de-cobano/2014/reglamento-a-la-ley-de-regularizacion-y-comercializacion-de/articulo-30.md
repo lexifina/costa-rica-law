@@ -1,0 +1,1 @@
+Artículo 30.—Recursos. En contra de los actos municipales emitidos en aplicación de este Reglamento cabrán los recursos de revocatoria y apelación con base en las disposiciones del Título VI del Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 25.—Sanciones Administrativas. La Administración posee la potestad para aplicar las sanciones de carácter administrativo, sin perjuicio de la responsabilidad civil y penal correspondiente conforme lo estipula el artículo 23 de la Ley N° 9047.

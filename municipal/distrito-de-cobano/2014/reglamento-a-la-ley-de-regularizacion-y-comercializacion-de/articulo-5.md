@@ -1,0 +1,1 @@
+Artículo 5º—Contribuyentes. En cumplimiento a lo dispuesto en el artículo 3°, 4° y 10° de la Ley N° 9047, son contribuyentes o sujetos pasivos del impuesto las personas físicas o jurídicas con licencia municipal para la comercialización de bebidas con contenido alcohólico localizado en el territorio del Distrito de Cóbano.

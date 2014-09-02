@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las Licencias
+Artículo 6º—Licencias. El otorgamiento, revocación, tipos, vigencia, pago, renovación, requisitos, prohibiciones, horarios, sanciones y suspensión de la licencia se regirán por las disposiciones de la Ley N° 9047, artículos 3, 4, 5, 6, 8, 9, 10, 11, 14, 15 y concordantes; la Resolución N° 11.499-2013 de las dieciséis horas del 28 agosto del 2013 de la Sala Constitucional, el Código Municipal, la Ley General de Administración Pública y las de este Reglamento. En el caso de las licencias tipo A y B, solo se podrá otorgar una licencia por cada trescientos habitantes como máximo, según lo resuelto por la Sala Constitucional.
