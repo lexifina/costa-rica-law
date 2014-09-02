@@ -1,1 +1,0 @@
-Artículo 10.—De la no rendición de garantía o letra de cambio. Si el funcionario deja de laborar para el Banco, o es trasladado a otro puesto en que no deba rendir la garantía, deberá solicitar ante la jefatura respectiva la exclusión de la letra de cambio.

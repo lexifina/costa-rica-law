@@ -1,6 +1,0 @@
-Artículo 11.—Funciones de la Jefatura de Gestión de Medios, Jefatura de Gestión de Medios Aeropuerto, Coordinador de Operaciones CN Tipo 2, Coordinador de Operaciones, según corresponda
-- Definir y mantener un registro actualizado de los funcionarios que deben rendir la garantía mediante letra de cambio. El registro debe contener al menos: nombre del funcionario, puesto que ocupa, monto de la letra de cambio, fecha de vigencia.
-- Velar para que los funcionarios que deben rendir la garantía cumplan con su obligación, según el presente reglamento.
-- Cada uno de los responsables citados en este artículo, deberá suministrar el listado de los funcionarios que rinden garantía de fidelidad a la Dirección de Recursos Humanos.
-- Cuando se definan nuevos puestos, corresponderá a la Dirección de Recursos Humanos determinar si dentro de las funciones que se asignarán al perfil de las plazas, se incluye la de recaudar, custodiar o administrar fondos y valores públicos, y por ende, si el funcionario que ocupe el nuevo puesto debe rendir o no garantía.
-- La Dirección de Recursos Humanos, en conjunto con las áreas involucradas, en el mes de marzo de cada año analizarán la necesidad de ajustar el monto de la letra de cambio, e informar el nuevo monto a los funcionarios que deban rendir esta garantía, para que éstos procedan con la actualización.
