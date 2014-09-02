@@ -17,3 +17,4 @@ Aprueba Tabla de Tarifas y Comisiones para los servicios de Bancrédito
 | 2 | 2011-10-25 | Acuerdo 0 (2011-10-25) |
 | 3 | 2012-10-02 | Acuerdo 0 (2012-10-02) |
 | 4 | 2013-07-09 | Acuerdo 0 (2013-07-09) |
+| 5 | 2014-09-02 | Acuerdo 0 (2014-09-02) |

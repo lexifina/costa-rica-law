@@ -140,6 +140,9 @@ SWIFT Modificación | $7.00
 Modificaciones | $20 por cada modificación. Si la modificación se trata del valor principal, se aplica la comisión de apertuta (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
 Discrepancias | $20.00
 Envío por aceptación o no aceptación de discrepancias | $7.00
+Mensaje MT 101 (Así adicionado el serivicio anterior mediante sesión N° 8777/14 del 2 de setiembre del 2014) | Mínimo: $5 US/dls. 0.10% sobre el monto del dinero recibido (Así adicionada la comisión anterior mediante sesión N° 8777/14 del 2 de setiembre del 2014)
+Mensaje MT 940-950 (Así adicionado el serivicio anterior mediante sesión N° 8777/14 del 2 de setiembre del 2014) | $5 US/dls. (Así adicionada la comisión anterior mediante sesión N° 8777/14 del 2 de setiembre del 2014)
+Mantenimiento por servicio de mensaje MT 940-950 (Así adicionado el serivicio anterior mediante sesión N° 8777/14 del 2 de setiembre del 2014) | $50 US/dls. mensual. (Así adicionada la comisión anterior mediante sesión N° 8777/14 del 2 de setiembre del 2014)
 Cobranzas del Exterior (Cobranza de Importación):
 Cobranza | 0.25% del monto
 - Mínimo | $25.00
