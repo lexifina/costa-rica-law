@@ -14,3 +14,4 @@ Reglamento para regular el funcionamiento y operación de los Centros de Cuido y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-30 | la propia norma |
+| 2 | 2014-09-02 | Reglamento municipal 52 (2014-09-02) |
