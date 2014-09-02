@@ -9,3 +9,5 @@ Artículo 24.—Prohibiciones. Queda prohibido a los usuarios depositar en cualq
 · Baterías de ácido plomo.
 · Residuos electrónicos.
 · Residuos provenientes de las ferias del agricultor.
+9. Depositar residuos voluminosos como ramas, zacate u otros objetos que se dejen en bolsas, para la recolección ordinaria ya que pueden ocasionar graves daños al camión recolector.
+(Así adicionado el punto anterior en sesión N° 34 del 2 de setiembre de 2014)
