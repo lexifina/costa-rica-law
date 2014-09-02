@@ -1,0 +1,2 @@
+Artículo 36.—De la activación del proveedor sancionado: Si a la fecha de vencimiento de la inscripción, el proveedor cuenta con una sanción que lo inhabilite para su participación en los procedimientos de contratación con el Banco y este exprese su voluntad de continuar formando parte del Registro de Proveedores, su nueva activación quedará sujeta al vencimiento de la sanción, siendo esta fecha a partir de la cual se contará el nuevo plazo de 24 meses de inscripción.
+(Así adicionado mediante sesión N° 8777/14 del 2 de setiembre del 2014)

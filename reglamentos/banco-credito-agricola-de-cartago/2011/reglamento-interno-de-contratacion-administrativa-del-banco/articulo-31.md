@@ -1,0 +1,2 @@
+Artículo 31.—Del detalle de los bienes y servicios ofrecidos: El proveedor será responsable de informar con detalle los bienes y servicios ofrecidos, con el fin de ser clasificado con base en el catálogo de bienes y servicios del Banco y tomando en cuenta los diferentes procedimientos de contratación, según los requerimientos que se presenten.
+(Así adicionado mediante sesión N° 8777/14 del 2 de setiembre del 2014)

@@ -1,0 +1,2 @@
+Artículo 27.—Del formulario de inscripción: Para que un proveedor ingrese a formar parte del Registro de Proveedores, deberá completar el formulario de inscripción denominado “Solicitud de Inscripción al Registro de Proveedores de Bancrédito y sus subsidiarias” y adjuntar la documentación que se solicita como persona física o jurídica, según corresponda, en original y copia, según se indica. La información deberá ser presentada en la Oficina de Proveeduría y Licitaciones del Banco.
+(Así adicionado mediante sesión N° 8777/14 del 2 de setiembre del 2014)

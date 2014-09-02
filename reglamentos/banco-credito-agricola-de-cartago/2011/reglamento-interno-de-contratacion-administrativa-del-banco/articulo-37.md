@@ -1,0 +1,4 @@
+Artículo 37.—De la notificación del vencimiento de su inscripción: La Oficina de Proveeduría y Licitaciones del Banco comunicará de forma escrita al proveedor sobre el vencimiento de su inscripción, con un mes calendario de antelación, para lo cual, en este plazo deberá informar por escrito su interés en continuar inscrito por un período igual y la indicación de si su información se mantiene invariable; caso contrario, deberá aportar la documentación respectiva previo al vencimiento.
+En caso de silencio por parte del proveedor a la notificación realizada por el Banco, automáticamente al día natural siguiente al vencimiento, pasará al estado de inactivo.
+Si el proveedor se mantiene inactivo por un plazo mayor de 24 meses calendario, contados a partir de la fecha de notificación, la documentación relacionada a éste será destruida por parte del Banco.
+(Así adicionado mediante sesión N° 8777/14 del 2 de setiembre del 2014)

@@ -1,3 +1,5 @@
+CAPÍTULO II
+Contratación Administrativa
 Artículo 6º—Decisión de iniciar el procedimiento: La decisión inicial deberá contener y acreditar ante la oficina de Proveeduría y Licitaciones, lo siguiente:
 a) Una justificación de la procedencia de la contratación, con indicación expresa de la necesidad a satisfacer, considerando para ello las metas estratégicas institucionales, el Plan Operativo Institucional y el presupuesto.
 b) La descripción del objeto, las especificaciones técnicas y características de los bienes, obras o servicios que se requiera contratar, así como la indicación de la posibilidad de adjudicar parcialmente, de acuerdo a la naturaleza del objeto.

@@ -1,0 +1,3 @@
+Artículo 38.—De las ausencias de los proveedores a los procedimientos de contratación: Un proveedor pasará a estado de inactivo, cuando siendo invitado a participar en procedimiento de contratación administrativa, no lo hiciere en tres ocasiones, en el término de tres años. Lo anterior, aplicará a partir de la primera invitación, salvo que exista justificación debidamente informada al Banco.
+Esta inactivación operará en forma automática; no obstante, en cualquier momento el proveedor inactivo podrá solicitar el cambio de su condición y en tal caso, ocupará el lugar que por rol le corresponda en el Registro de Proveedores.
+(Así adicionado mediante sesión N° 8777/14 del 2 de setiembre del 2014)

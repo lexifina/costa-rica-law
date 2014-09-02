@@ -1,0 +1,2 @@
+Artículo 28.—El registro de proveedores como herramienta: El Registro de Proveedores será la herramienta de consulta para los funcionarios de la Oficina de Proveeduría y Licitaciones del Banco en los trámites de contratación administrativa, según las condiciones que establece la Ley de Contratación Administrativa y su Reglamento.
+(Así adicionado mediante sesión N° 8777/14 del 2 de setiembre del 2014)
