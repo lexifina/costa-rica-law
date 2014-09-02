@@ -1,2 +1,0 @@
-Artículo 6º—Las instituciones y organizaciones indicadas, deberán acreditar dos representantes, un titular y un suplente ante la Secretaría Ejecutiva del CORACLAP.
-El suplente representará al titular con derecho a voz y voto, en su ausencia a la Asamblea o en caso de renuncia, muerte o cancelación de credencial del miembro titular, cuando entre a sustituirlo y hasta cumplir con el periodo para el cual fue nombrado el titular, en caso de haber sido elegido como miembro del CORACLAP.

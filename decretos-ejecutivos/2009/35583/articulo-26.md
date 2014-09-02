@@ -1,2 +1,0 @@
-Artículo 26.—Perderán la representación ante el CORACLAP, previo acuerdo de remoción, los miembros que sin causa justificada, se ausenten por tres veces consecutivas o cuatro alternas aún cuando fueran justificadas por escrito, a las sesiones que han sido convocados.
-No se considerará ausencia aquella en la que el miembro titular haya sido representado ante el Consejo Regional por el suplente correspondiente.

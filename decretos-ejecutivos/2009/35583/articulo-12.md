@@ -1,2 +1,0 @@
-Artículo 12.—De entre los seis miembros de los diferentes sectores mencionados, se nombrará por parte de la Asamblea, un Presidente (a), un Vicepresidente(a), un Secretario(a), un Tesorero(a) y dos Vocales, procurando equidad de género.
-Los miembros del CORACLAP durarán en sus cargos dos años, cambiando en los años impares el Presidente, el Secretario, el Primer Vocal; y en los pares, el Vicepresidente, Tesorero y Segundo Vocal.

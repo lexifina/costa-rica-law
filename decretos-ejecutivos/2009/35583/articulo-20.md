@@ -1,2 +1,0 @@
-Artículo 20.—La asistencia a las sesiones por parte de todos los miembros será obligatoria y las faltas deben ser justificadas por escrito previamente.
-Los representantes propietarios ante el CORACLAP deberán asistir a todas las sesiones ordinarias y extraordinarias. En caso de no poder asistir por fuerza mayor, deberán informarlo así a la Secretaría Ejecutiva y gestionar la participación de su respectivo suplente.

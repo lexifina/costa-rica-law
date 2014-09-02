@@ -1,3 +1,0 @@
-Artículo 19.—El CORACLAP se reunirá al menos una vez al mes en forma ordinaria. Para celebrar una sesión ordinaria, el Secretario Ejecutivo del CORACLAP enviará convocatoria vía correo electrónico o por fax con quince días naturales de anticipación.
-El CORACLAP se reunirá extraordinariamente cuando el Secretario Ejecutivo convoque de manera escrita, a solicitud del Presidente o de la mitad más uno de los miembros del Consejo Regional.
-El calendario y hora de las sesiones se definirán en la primera sesión. La agenda la elaborará la Presidencia y la Secretaría Ejecutiva y se entregará con siete días de anticipación, a la fecha de la sesión, a cada uno de los miembros del CORACLAP.
