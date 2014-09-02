@@ -1,2 +1,2 @@
-Artículo 79.—Publicación. Rige a partir de su publicación.
-Belén, 8 de diciembre del 2011.—
+Artículo 79.—De previo a remitir el informe indicado en el artículo 79, la Secretaría del Concejo Municipal verificará si ha ingresado a la corriente administrativa de correspondencia o de informes presentados ante el órgano colegiado, información parcial o aclaratoria en relación con los acuerdos que se han adoptado, y que permita establecer si los acuerdos pendientes mantienen interés actual o carecen de él.
+(Así adicionado mediante sesión N° 34-2014 del 10 de junio del 2014 y definitivamente aprobada mediante sesión N° 51-2014 del 2 de setiembre del 2014)

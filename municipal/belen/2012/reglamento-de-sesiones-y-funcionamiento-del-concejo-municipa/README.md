@@ -14,3 +14,4 @@ Reglamento de Sesiones y Funcionamiento del Concejo Municipal del Cantón de Bel
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-19 | la propia norma |
+| 2 | 2014-09-02 | Reglamento municipal 51 (2014-09-02) |
