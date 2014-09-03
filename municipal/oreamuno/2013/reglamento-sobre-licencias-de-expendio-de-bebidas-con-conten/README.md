@@ -15,3 +15,4 @@ Reglamento sobre Licencias de Expendio de Bebidas con Contenido Alcohólico de l
 | --- | --- | --- |
 | 1 | 2014-02-12 | la propia norma |
 | 2 | 2014-02-24 | Reglamento municipal 318 (2014-02-24) |
+| 3 | 2014-09-03 | Reglamento municipal 0 (2014-09-03) |

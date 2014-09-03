@@ -1,6 +1,6 @@
 CAPÍTULO III
-De las licencias permanentes
-Artículo 10.—Solicitud de la licencia. Quien desee obtener una licencia deberá presentar una solicitud firmada, ya sea directamente por el solicitante o por su representante con poder suficiente. En caso de no presentarse en forma personal la solicitud, la firma deberá estar autenticada, y deberá contener al menos lo siguiente:
+De las Licencias Permanentes
+Artículo 10.—Solicitud de la Licencia. Quien desee obtener una licencia deberá presentar una solicitud firmada, ya sea directamente por el solicitante o por su representante con poder suficiente. En caso de no presentarse en forma personal la solicitud, la firma deberá estar autenticada, y deberá contener al menos lo siguiente:
 a. Indicación expresa de la actividad que desea desarrollar, con indicación expresa de la clase de licencia que solicita.
 b. El (los) nombre(s) comercial (es) con el (los) que operará la actividad a desarrollar con la licencia.
 c. Fotocopia de la cédula de identidad o documento de identificación del solicitante persona física, que será el que explotara la actividad directamente en el local.
@@ -12,7 +12,7 @@ h. Certificación que acredite la titularidad del inmueble en el cual se desarro
 i. En casos que se solicite una licencia clase C, el permiso sanitario de funcionamiento que autorice expresamente como restaurante, así como la declaración jurada debidamente protocolizada de que se cumple con el artículo 8 inciso d) de la ley.
 j. En caso que se solicite una licencia clase E, copia certificada de la declaratoria turística vigente o su original para cotejo con su respectiva fotocopia.
 k. Declaración rendida bajo la fe y gravedad del juramento, en la que manifieste conocer las prohibiciones establecidas en el artículo 9 de la Ley, y que se compromete a respetar esta y cualquier otra de las disposiciones de la Ley.
-l. Constancia de que se encuentra al día en sus obligaciones con la Caja Costarricense de Seguro Social, que cuenta con póliza de riesgos laborales al día, y de estar al día en sus obligaciones con Asignaciones Familiares
+l. Constancia de que se encuentra al día en sus obligaciones con la Caja Costarricense de Seguro Social, que cuenta con póliza de riesgos laborales al día, y de estar al día en sus obligaciones con Asignaciones Familiares.
 m. En los términos del artículo 243 de la Ley General de la Administración Pública, señalar fax, correo electrónico o cualquier otra forma tecnológica que permita la seguridad del acto de comunicación. Si se designa un lugar para recibir notificaciones el mismo debe estar dentro de un perímetro.
 n. Tanto el solicitante como el dueño del inmueble donde se desarrollan la actividad comercial, deberán estar al día en el pago de todas las obligaciones municipales.
 Para los efectos del cumplimiento de este artículo, la Municipalidad pondrá a disposición del solicitante un formulario diseñado al efecto, en el cual se consignará la información pertinente que satisfaga los requerimientos indicados.
