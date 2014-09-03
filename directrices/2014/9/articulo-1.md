@@ -13,4 +13,5 @@ Considerando:
 8º—Que cada Jerarca deberá velar por el cumplimiento de las medidas de contención del gasto para colaborar con el logro de los objetivos contenidos en esta directriz. Por tanto,
 Emiten la siguiente directriz
 DIRIGIDA AL SECTOR PÚBLICO
-Artículo 1º—A partir de la vigencia de esta Directriz, no se crearán plazas en el Sector Público. Sin embargo, se autoriza a la Autoridad Presupuestaria para que conozca y valore lo relativo a la creación de plazas estrictamente necesarias en razón de conveniencia y necesidad de la Administración. Las propuestas deberán ser debidamente justificadas por los respectivos jerarcas.
+Artículo 1º—A partir de la vigencia de esta directriz, no se crearán plazas en los ministerios, órganos desconcentrados y entidades cubiertas por el ámbito de la Autoridad Presupuestaria. Se exceptúan de esta directriz los puestos del Ministerio de Educación Pública. Sin embargo, se autoriza a este Órgano Colegiado para que conozca y valore lo relativo a la creación de plazas estrictamente necesarias en razón de conveniencia y necesidad de la Administración. Las propuestas deberán ser debidamente justificadas por los respectivos jerarcas.
+(Así reformado por el artículo 1° de la directriz N° 14 del 3 de setiembre del 2014)

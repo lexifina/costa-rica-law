@@ -1,2 +1,1 @@
-Artículo 18.—Rige a partir de su publicación.
-Dada en la Presidencia de la República, a los catorce días del mes de julio del dos mil catorce.
+Artículo 18.—(El texto de este artículo debe consultarse en el numeral 17 toda vez que mediante directriz N° 14 del 3 de setiembre del 2014, se derogó el artículo 7 corriendo la numeración de todos los artículos posteriores)

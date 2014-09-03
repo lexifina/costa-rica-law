@@ -14,3 +14,4 @@ No se crearán plazas en Sector Público, autoriza a Autoridad Presupuestaria pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-17 | la propia norma |
+| 2 | 2014-09-03 | Directriz 14 (2014-09-03) |

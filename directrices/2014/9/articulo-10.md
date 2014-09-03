@@ -1,13 +1,6 @@
-Artículo 10.—Los jerarcas de los Ministerios del Poder Ejecutivo así como de las demás entidades públicas remitirán un informe a la Secretaría Técnica de la Autoridad Presupuestaria, en un plazo de dos meses a partir de la publicación de esta Directriz, sobre el estado de los contratos por a) alquiler de edificios y mobiliario y b) alquiler de equipo informático. El informe deberá contemplar la siguiente descripción para cada uno de los contratos activos:
-En el caso de alquiler de edificios y mobiliario:
-• Localización del edificio alquilado
-• Total de funcionarios que laboran en dicho edificio
-• Valor anual del contrato
-• Fecha de conclusión
-• Consideraciones sobre el ajuste anual en el valor del contrato
-En el caso de alquiler de equipo informático:
-• Monto total por año
-• Descripción del equipo alquilado
-• Fecha de conclusión
-• Consideraciones sobre el ajuste anual en el valor del contrato
-Las entidades públicas que pretendan desplazarse de su ubicación actual a otra, mediante el alquiler de un bien inmueble, deberán demostrar a la Secretaría Técnica de la Autoridad Presupuestaria (STAP), dentro del expediente administrativo correspondiente, que existen criterios razonables que justifiquen tal erogación, como un criterio de experto o profesional que determine el estado ruinoso de la infraestructura que les sirve de sede, o que esta haya sido declarada inhabitable por la autoridad competente, poniendo en riesgo a los funcionarios, a los usuarios y la prestación efectiva del servicio público que se brinda. La STAP deberá emitir un criterio correspondiente y dar seguimiento a su cumplimiento. Lo señalado busca propiciar que la aplicación de los recursos públicos se realice según los principios de economía, eficiencia y eficacia.
+Artículo 10—Las entidades públicas y órganos desconcentrados que se financien con recursos provenientes de transferencias del Presupuesto de la República y que tienen capacidad legal para cobrar por los servicios que prestan, mediante el cobro directo a quienes los reciben, deberán darle continuidad al establecimiento de precios y tarifas que cubran sus gastos operativos, incluyendo el pago de la planilla, así como los costos necesarios para prestar el servicio y a la vez permitan una retribución competitiva, garantizando el adecuado desarrollo de la actividad y de esta manera reducir gradualmente su dependencia del Presupuesto de la República, de tal forma que durante la vigencia de esta directriz deberán cubrir con los recursos por tarifas no menos del veinticinco por ciento (25%) de la totalidad de sus gastos operativos, a partir del ejercicio fiscal del año 2015. Se entiende por gasto operativo el conjunto de asignaciones financieras cuyo objetivo es garantizar la operación ordinaria de una institución o programa. Como ejemplo de lo anterior incluye gastos por remuneraciones -incluidas las contribuciones sociales- y los bienes y servicios asociados a la gestión operativa ordinaria de la entidad.
+Para aquellas entidades públicas y órganos desconcentrados que no logren alcanzar el 25% citado, deberán justificarlo ante la STAP, indicando las medidas que aplicarán para que en el Presupuesto Ordinario del año 2016 se atienda el porcentaje indicado.
+La implementación de lo dispuesto en este artículo, deberá ser remitido a la STAP a más tardar el 30 de setiembre del año 2014.
+Cada trimestre se deberá informar a la STAP sobre el avance en el cumplimiento de esta disposición.
+La STAP informará lo correspondiente a la DGPN.
+(Así reformado y corrida su numeración por el artículo 3° de la directriz N° 14 del 3 de setiembre del 2014, que traspasó el texto del artículo 11 al 10 toda vez que se derogó el artículo 7 original)
