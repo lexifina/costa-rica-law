@@ -1,0 +1,1 @@
+Artículo 3º—Del hecho generador. El hecho generador es el otorgamiento de la autorización por parte de la Municipalidad de Desamparadas para la venta de licores bajo las condiciones establecidas en la ley; por lo que el sujeto pasivo del impuesto es la persona física o jurídica licenciataria y el sujeto activo la Municipalidad de Desamparados.

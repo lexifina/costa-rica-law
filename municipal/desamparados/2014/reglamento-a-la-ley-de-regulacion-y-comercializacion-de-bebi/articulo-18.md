@@ -1,0 +1,3 @@
+Artículo 18.—Tipologías constructivas. Conforme a la tipología constructiva indicada los establecimientos se clasifican de acuerdo a los siguientes parámetros objetivos: Tipo, tamaño e infraestructura del establecimiento.
+Para la clasificación de los establecimientos y la determinación del impuesto se utilizarán específicamente las tipologías de Local Comercial (LC01 a LC05), Edificio Comercial (EC), Centro Comercial (CC), Restaurante (RE 01 a 04) y Nave Comercial (NC).
+Se aplican los montos mínimos y máximos por clase de licencia con fundamento en la tipología constructiva asignada a cada establecimiento por la Administración, según lo indicado en el artículo 20 de este reglamento.

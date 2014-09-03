@@ -1,0 +1,1 @@
+Artículo 26.—Revocación de licencia. En los supuestos del artículo 6 de la Ley N° 9047 y en observancia del debido proceso la Administración en cada caso emitirá la resolución correspondiente debidamente razonada. Para la aplicación del inciso b) se entenderá como causa justificada el caso fortuito o fuerza mayor.

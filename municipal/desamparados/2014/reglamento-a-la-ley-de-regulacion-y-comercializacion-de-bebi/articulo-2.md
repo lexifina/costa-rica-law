@@ -1,0 +1,14 @@
+Artículo 2º—Definiciones. Para todos los efectos, cuando la Ley N° 9047 o este Reglamento utilicen los siguientes términos, debe dárseles las acepciones que a continuación se indica:
+Bebidas con contenido alcohólico: Aquellas que contengan alcohol en cualquier proporción que sea.
+Centro Comercial: Los centros comerciales se definen como un edificio de uno o más pisos, el cual cuenta con locales comerciales, amplios pasillos de circulación, áreas de comidas (Food Court), baterías de servicios sanitarios en los diferentes pisos, amplias áreas de uso común con elementos decorativos, estacionamiento bajo techo, todo en un solo edificio, el cual cuenta con ascensores.
+Edificio comercial: Edificaciones de dos o más plantas, con áreas mayores a 500 m². Son edificios dedicados totalmente a la actividad comercial, amplias plantas sin divisiones internas, generalmente con dos baterías de baños ubicadas en un mismo piso.
+“Impuesto” o “Patente”: Es el tributo a cargo del contribuyente cuyo hecho generador es la tenencia o posesión de licencia para expendio y la comercialización de bebidas con contenido alcohólico.
+Ley N° 9047: Se entenderá como la Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico.
+Licencia, Patente, Patentado, Salario Base: Se entenderá por estos conceptos los indicados en el artículo 2° de la Ley N° 9047.
+Licenciatario: Persona física o jurídica a quién la Municipalidad le haya otorgado una licencia para el expendio y comercialización de bebidas con contenido alcohólico.
+Local comercial: Es aquel que tiene acceso directo desde la calle, con áreas menores a 500 m².
+Nave comercial: Estructuralmente son naves industriales, pero incluyen mejoras tales como enchapes en pisos, sistema electromecánico diseñado para una adecuada iluminación de toda el área, líneas de frío, tuberías para abastecimiento de agua en diversos sectores, circuitos independientes para conexión de diferentes equipos, mayor y mejor calidad de servicios sanitarios y otros. Incluye supermercados y otros tipos de comercio.
+Restaurantes: Edificaciones diseñadas y construidas para restaurantes, no se incluye en esta categoría casas remodeladas para su uso como restaurante ni sodas.
+Sujeto Pasivo o Contribuyente: La persona física o jurídica responsable del pago del impuesto o patente.
+Sitios públicos: Se denomina a los parques públicos, zonas de recreo o esparcimiento establecidas por la municipalidad o el Estado, bibliotecas, canchas o estadios donde se practique cualquier deporte y que sean de uso público.
+Tipología Constructiva: Local comercial, edificio comercial, centro comercial, restaurante y nave comercial. Conforme al Manual de Valores Base Unitarios por Tipología Constructiva de la Dirección General de la Tributación, publicado en el Alcance N° 22 a La Gaceta N° 23 del 01 de febrero del 2013.

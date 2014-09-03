@@ -1,0 +1,1 @@
+Artículo 5º—Contribuyentes. A los efectos de lo dispuesto en el artículo 3°, 4° y 10° de la Ley N° 9047, son contribuyentes o sujetos pasivos de este impuesto las personas físicas o jurídicas con licencia municipal para el expendio y comercialización de bebidas con contenido alcohólico en la jurisdicción del cantón de Desamparados.
