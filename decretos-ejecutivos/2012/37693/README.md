@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica del Colegio de Profesionales en Nutrición
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-30 | la propia norma |
+| 2 | 2014-09-03 | Decreto Ejecutivo 38710 (2014-09-03) |
