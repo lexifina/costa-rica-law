@@ -1,0 +1,1 @@
+Artículo 34.—Para la compra y venta de los títulos valores se utilizarán los mecanismos que ofrezca el mercado financiero costarricense, mediante la intermediación financiera de un Puesto de Bolsa. También, los títulos valores se pueden adquirir o vender directamente con el emisor (ventanilla), o comprar a través de una negociación directa o por medio de las entidades bancarias.

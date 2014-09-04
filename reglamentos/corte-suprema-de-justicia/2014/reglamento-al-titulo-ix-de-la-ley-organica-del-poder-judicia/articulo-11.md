@@ -1,0 +1,3 @@
+Artículo 11.—El Departamento de Personal debe velar porque ninguna jubilación sea inferior a una tercera parte del salario del último puesto desempeñado por el servidor.
+Igualmente, la pensión no podrá ser inferior a la tercera parte del último sueldo percibido ni superior a las dos terceras partes de la jubilación que disfrutaba o pudo disfrutar el exservidor, pero si existiere cónyuge o compañero (a) de hecho, el monto de la pensión a que tuvieren derecho los beneficiarios será del ciento por ciento.
+Por último salario se entenderá el correspondiente a salario ordinario de los últimos treinta días de la relación de servicio.

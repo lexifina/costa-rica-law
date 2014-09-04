@@ -1,0 +1,1 @@
+Artículo 40.—Los recursos concedidos a los sujetos que establece el 238 de la LOPJ en calidad de crédito a los servidores, jubilados y pensionados judiciales, se realizarán conforme al reglamento de crédito aprobado por Corte Plena en sesión N° 16-11, del 30 de mayo de 2011, artículo XXIX y sus reformas.

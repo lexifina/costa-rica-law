@@ -1,0 +1,1 @@
+Artículo 26.—El beneficio de jubilación se extingue con el fallecimiento del beneficiario cuando no existan parientes con derecho a pensión. También se extingue cuando el servidor pensionado por incapacidad permanente para el desempeño del cargo deja de estar en esa situación, para lo cual será valorado por el Consejo Médico Forense.

@@ -1,0 +1,1 @@
+Artículo 17.—En caso de que la persona gestionante de la pensión sea el padre o la madre de la persona servidora judicial fallecida, deberá presentar los documentos atinentes que se indican en el artículo anterior y el Departamento de Personal consultará en línea la filiación de éstos con la persona exservidora judicial fallecida.

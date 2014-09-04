@@ -1,0 +1,1 @@
+Artículo 4°—Corresponde al Consejo Superior la administración del Fondo; conceder, modificar, suspender o cancelar las jubilaciones y pensiones otorgadas; aprobar el reconocimiento de tiempo servido y la concesión de préstamos cuando proceda conforme a la ley; y velar por el correcto manejo financiero contable, así como de las inversiones.

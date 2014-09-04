@@ -1,0 +1,1 @@
+Artículo 12.—Toda jubilación o pensión se reajustará con base en los incrementos por variaciones en el costo de vida que se realicen a los servidores judiciales, según lo dispuesto en el artículo 229 de la L.O.P.J. Para este reajuste se considera la asignación mensual por jubilación o pensión.

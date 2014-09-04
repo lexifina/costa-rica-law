@@ -1,0 +1,1 @@
+Artículo 29.—El acrecimiento de la pensión solo se dará por extinción del derecho de uno de los beneficiarios, según lo establece el artículo 232 Ley Orgánica del Poder Judicial, previo estudio de trabajo social.

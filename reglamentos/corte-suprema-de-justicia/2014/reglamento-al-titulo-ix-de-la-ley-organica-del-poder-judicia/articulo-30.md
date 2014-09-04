@@ -1,0 +1,1 @@
+Artículo 30.—Para declarar la extinción o suspensión del beneficio de jubilación o pensión, salvo el caso del fallecimiento, deberá seguirse un procedimiento con garantía del debido proceso, del cual se dejará constancia en el respectivo expediente. Lo anterior sin perjuicio de la retención de las cuotas autorizada en este Reglamento como medida precautoria.

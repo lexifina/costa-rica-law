@@ -1,0 +1,1 @@
+Artículo 38.—El Departamento Financiero Contable deberá rendir informes trimestrales a la Dirección Ejecutiva, quien a su vez deberá informar al Consejo Superior, sobre la distribución de la cartera de inversiones, los intereses ganados, rendimientos, así como cualquier otro aspecto que coadyuve a la toma de decisiones.

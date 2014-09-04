@@ -1,0 +1,1 @@
+Artículo 44.—El estudio actuarial debe ejecutarse considerando las distintas variables en esta materia, que permita proyectar la situación actuarial en el corto, mediano y largo plazos, y en apego estricto a los requerimientos que se establecen en el pliego de condiciones para la contratación.
