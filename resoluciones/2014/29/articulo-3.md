@@ -1,0 +1,1 @@
+Artículo 3º—Continuación del cobro. El cobro deberá reiniciarse inmediatamente una vez conocido por parte de la Administración Tributaria que se levantó la medida cautelar por parte de la autoridad judicial competente.
