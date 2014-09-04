@@ -1,1 +1,0 @@
-Artículo 12.—Tipos de sanciones. Para determinar la sanción en el procedimiento administrativo disciplinario, la Gerencia General se ajustará a los niveles de gravedad establecidos en el Reglamento Autónomo de Servicios del IMAS y a lo establecido en los artículos 9, 10 y 11 de este Reglamento.

@@ -1,5 +1,0 @@
-SECCIÓN III
-Debido Proceso
-Artículo 15.—Del Procedimiento administrativo disciplinario. En la instrucción del procedimiento administrativo disciplinario, el Órgano Director, previa orden de la Gerencia General realizará todas las acciones necesarias para tutelar el derecho de defensa, acceso al expediente, ofrecimiento de pruebas y demás principios jurídicos que integran el debido proceso a favor de todas las partes involucradas en el procedimiento; para ello se apegará a lo establecido en el Libro Segundo de la Ley General de Administración Publica, el Reglamento Autónomo de Servicios del IMAS y este Reglamento.
-Solo en casos en que expresamente la Gerencia General lo permita previo análisis de la situación, el Órgano Director podrá instruir procedimientos sumarios, no obstante esta será la excepción.
-Para el desarrollo de la investigación, el Órgano Director se trasladará a la oficina desconcentrada pertinente, cuando la comisión de la eventual conducta constitutiva de acoso u hostigamiento sexual se haya configurado en una Gerencia Regional, oficina de CEDES o bien en las Tiendas Libres de Derechos.

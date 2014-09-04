@@ -1,1 +1,0 @@
-Artículo 2º—Competencia Subjetiva. El presente reglamento regirá para todos los empleados, funcionarios o servidores del Instituto Mixto de Ayuda Social en sus relaciones de empleo y de prestación de servicios a la comunidad nacional, sean estos contratados de forma regular o interina, según las definiciones establecidas en el artículo 3 de este cuerpo normativo.

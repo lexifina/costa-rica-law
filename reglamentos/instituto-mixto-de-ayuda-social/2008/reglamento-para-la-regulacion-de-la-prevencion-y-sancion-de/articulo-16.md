@@ -1,5 +1,0 @@
-Artículo 16.—Medidas cautelares: en cualquier estado del procedimiento administrativo disciplinario o antes de éste y hasta tanto no adquiera firmeza el fallo contenido en la resolución final, la Gerencia General o el Órgano Director del Procedimiento podrán adoptar el establecimiento de medidas cautelares como:
-a) Suspensión temporal con goce de salario de la persona denunciada o expedientada.
-b) Traslado temporal de la persona denunciada o expedientada a otro puesto que no sea de inferior jerarquía o salario; si esta medida es adoptada, el salario de esta persona no puede verse disminuido.
-c) Traslado de la presunta víctima o de algún testigo cuando estos sean parte del personal del IMAS a un puesto de igual o superior jerarquía sin afectación en perjuicio de su salario. Esta medida puede generarse por requerimiento de la Gerencia General, del Órgano Director, de ellos mismos o de sus representantes legales.
-d) Cualquier otra medida que permita al Órgano Director alcanzar la verdad real de los hechos denunciados.

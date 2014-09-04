@@ -1,3 +1,0 @@
-CAPÍTULO V
-La denuncia
-Articulo 17.—Denuncia. La presunta víctima de acoso u hostigamiento sexual o su representante legal podrán plantear la denuncia en forma oral o escrita con o sin el fundamento probatorio indicado en el articulo 13 de este Reglamento ante el superior jerárquico inmediato del presunto acosador cuando corresponda, ante la Contraloría de Servicios, o la Dirección Superior del IMAS, cuando la denuncia se interponga, la Instancia Administrativa deberá trasladarla a la Gerencia General dentro del primer día hábil siguiente contado a partir del recibido de la misma, la misma disposición opera para usuarios de la Institución.
