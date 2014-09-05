@@ -13,10 +13,15 @@
 - ISO 14066, versión vigente. Gases de efecto invernadero—Requerimientos de competencia para equipos de validación y verificación de gases de efecto invernadero.
 - INTE 12-01-06, versión vigente. Norma Nacional para demostrar la C-neutralidad. Requisitos.
 - IAF MD 12 Documento mandatorio para la evaluación de actividades de certificación para la acreditación transfrontera
-- IAF MD 6
 - IAF ML1:2011 Guidance for the Exchange of Documentation among MLA Signatories for the Purposes of Assessment of Conformity Assessment Bodies, Issue 2
 - ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/IEC 17021
+- ECA-MC-C10 Criterios para la evaluación de la norma INTE-ISO 14065
 - ECA-MC-P22 Inducción
 - ECA-MC-P01 Confidencialidad, imparcialidad y objetividad
 - ECA-MP Manual de procedimientos
 - ECA-MC-P13 Ejecución de la Evaluación
+- GFSI Requirements on the aplication of ISO/IEC 17011:2004
+- FSSC 22000 Certification scheme for food safety systems in compliance with ISO 22000: 2005 and technical specifications for sector PRPs Part III Requirements and regulations for providing accreditation
+- FSSC 22000 Certification scheme for food safety systems in compliance with ISO 22000: 2005 and technical specifications for sector PRPs Part II Requirements and regulations for certification bodies
+- FSSC 22000 Certification scheme for food safety systems in compliance with ISO 22000: 2005 and technical specifications for sector PRPs Part I Requirements for organizations that require certification
+- IAF MD 16 Aplicación de la norma ISO/IEC 17011 para la acreditación de Sistemas de Gestión de la Seguridad Alimentaria.
