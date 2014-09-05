@@ -47,3 +47,4 @@ articulo-46.md
 articulo-47.md
 articulo-48.md
 articulo-49.md
+articulo-50.md
