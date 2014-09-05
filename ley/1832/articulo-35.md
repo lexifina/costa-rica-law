@@ -1,3 +1,2 @@
 Artículo 35*
-* Los artículo 34 y 35 carece actualmente de aplicabilidad al haber entrado en vigor la Constitución, el 30 de noviembre de 1954.)
-Los Gobiernos miembros del Comité Intergubernamental para las Migraciones Europeas que en la fecha de entrada en vigor de la presente Constitución no hayan notificado al Director que aceptan dicha Constitución, podrán seguir siendo Miembros del Comité durante un año a partir de dicha fecha si aportan una contribución a los gastos de administración del Comité, de acuerdo con los términos del apartado 2 del artículo 25, conservando durante este período el derecho de aceptar la Constitución.
+(Nota de Sinalevi: El texto del presente artículo debe consultarse en el artículo 30 toda vez que se corrieron la numeración de varios artículo al derogarse mediante ley N° 9250 del 4 de junio del 2014, los artículo 12 al 16 originales)

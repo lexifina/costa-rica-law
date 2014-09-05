@@ -1,7 +1,3 @@
 Artículo 14
-1. El Comité Ejecutivo celebrará por lo menos una reunión al año. Se reunirá asimismo, en caso necesario, para el cumplimiento de sus funciones, a petición:
-a) de su Presidente;
-b) del Consejo;
-c) del Director General previa consulta con el Presidente del Consejo;
-d) de la mayoría de sus miembros.
-2. El Comité Ejecutivo elegirá entre sus miembros un Presidente y un Vicepresidente, cuyo mandato será de un año.
+El Director General nombrará el personal de la Administración de conformidad con el estatuto del personal adoptado por el Consejo.
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguo artículo 19 al 14, toda vez que se derogaron los artículo 12 al 16 originales)
