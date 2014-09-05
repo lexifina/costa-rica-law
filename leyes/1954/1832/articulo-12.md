@@ -1,11 +1,6 @@
 CAPITULO V
-EL COMITE EJECUTIVO
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguo capítulo IV al capítulo V, toda vez que se derogó el capítulo V original)
+LA ADMINISTRACION
 Artículo 12
-Las funciones del Comité Ejecutivo consistirán en:
-a) Examinar y revisar la política, los programas y las actividades de la Organización, los informes anuales del Director General y cualesquiera informes especiales;
-b) examinar toda cuestión financiera o presupuestaria que incumba al Consejo;
-c) considerar toda cuestión que le sea especialmente sometida por el Consejo, incluida la revisión del presupuesto, y adoptar a este respecto las medidas que juzgare necesarias;
-d) asesorar al Director General sobre toda cuestión que por éste le sea sometida;
-e) adoptar, entre las reuniones del Consejo, cualesquiera decisiones urgentes sobre cuestiones de la incumbencia del mismo, que serán sometidas a la aprobación del Consejo en su próxima reunión;
-f) presentar recomendaciones o propuestas al Consejo, o al Director General, por su propia iniciativa;
-g) someter al Consejo informes y/o recomendaciones sobre las cuestiones tratadas.
+La Administración comprenderá un Director General, un Director General Adjunto y el personal que el Consejo determine.
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguo artículo 17 al 12, toda vez que se derogaron los artículo 12 al 16 originales)

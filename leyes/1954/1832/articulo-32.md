@@ -1,2 +1,2 @@
 Artículo 32
-A reserva de la aprobación por dos tercios de los miembros del Consejo, la Organización podrá hacerse cargo de las actividades, los recursos y obligaciones actuales de cualquier otra organización o institución internacional cuyos objetivos y actividades se hallen dentro de la esfera de la Organización, actividades, recursos y obligaciones que podrán ser fijados mediante un acuerdo internacional o un arreglo convenido entre las autoridades competentes de las organizaciones respectivas.
+(Nota de Sinalevi: El texto del presente artículo debe consultarse en el artículo 27 toda vez que se corrieron la numeración de varios artículo al derogarse mediante ley N° 9250 del 4 de junio del 2014, los artículo 12 al 16 originales)

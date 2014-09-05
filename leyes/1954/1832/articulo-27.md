@@ -1,4 +1,3 @@
-CAPITULO IX
-ESTATUTO JURIDICO
 Artículo 27
-La Organización posee personalidad jurídica. Goza de la capacidad jurídica necesaria para ejercer sus funciones y alcanzar sus objetivos, en especial de la capacidad, de acuerdo con las leyes del Estado de que se trate, de: a) contratar, b) adquirir bienes muebles e inmuebles y disponer de ellos; c) recibir y desembolsar fondos públicos y privados, y d) comparecer en juicio.
+A reserva de la aprobación por dos tercios de los miembros del Consejo, la Organización podrá hacerse cargo de las actividades, los recursos y obligaciones actuales de cualquier otra organización o institución internacional cuyos objetivos y actividades se hallen dentro de la esfera de la Organización, actividades, recursos y obligaciones que podrán ser fijados mediante un acuerdo internacional o un arreglo convenido entre las autoridades competentes de las organizaciones respectivas.
+(Así corrida su numeración por el artículo único de la ley N° 9250 del 4 de junio del 2014, que lo traspasó del antiguo artículo 32 al 27, toda vez que se derogaron los artículo 12 al 16 originales)
