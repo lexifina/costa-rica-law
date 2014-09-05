@@ -1,0 +1,2 @@
+Artículo 3º—Ámbito de cobertura
+El presente reglamento rige para todas las personas servidoras del Poder Judicial, nombradas en propiedad, interinamente, en puestos de confianza, a plazo fijo y quienes realicen una labor de meritorio. De igual manera rige para el personal de contratación externa al servicio de la institución cuando sean víctimas de acoso laboral por parte de alguna persona servidora judicial.

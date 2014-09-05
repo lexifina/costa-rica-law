@@ -1,0 +1,4 @@
+Artículo 16.—Audiencia de recepción de prueba testimonial
+El órgano instructor señalará la hora y fecha para recibir, en una sola audiencia, la prueba testimonial ofrecida por las partes, con mención expresa de los nombres de las personas admitidas como testigos.
+De sus manifestaciones se levantará un acta que será firmada, al final, por las personas presentes. Si alguno de los testigos propuestos no se hiciere presente a dicha audiencia, se prescindirá de su declaración; salvo que el órgano instructor lo considere esencial, en cuyo caso se hará un nuevo señalamiento dentro de los cinco días hábiles siguientes.
+Una vez concluida la recepción de las pruebas, se les deberá dar oportunidad a las partes, por un tiempo razonable atendiendo la complejidad del caso, para exponer sus conclusiones.

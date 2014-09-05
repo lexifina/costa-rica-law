@@ -1,0 +1,3 @@
+Artículo 11.—La víctima como parte del proceso
+La víctima será expresamente reconocida como parte en el proceso, con todos los derechos inherentes a esta condición, incluyendo la posibilidad de ser asistida por un (a) profesional en derecho, sobre lo cual será advertido por el órgano instructor en la primera resolución. Si así lo solicita, la representación podrá recaer sobre un (a) defensor (a) público (a).
+De igual manera, tiene derecho a ser atendida por los profesionales de los Servicios de Salud o en los servicios de Psicología y áreas afines a disposición de los (as) servidores (as) judiciales de los diferentes ámbitos.

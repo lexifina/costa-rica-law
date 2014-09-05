@@ -1,0 +1,2 @@
+Artículo 8º—Órganos facultados para recibir, investigar y resolver las denuncias
+La Corte Suprema de Justicia, el Consejo Superior, el Tribunal de la Inspección Judicial y cualquier otro que de acuerdo con la ley puedan ejercer la potestad disciplinaria, serán los competentes para recibir, tramitar y resolver las denuncias por acoso laboral, según corresponda a cada uno de conformidad con las atribuciones y competencias designadas en la Ley Orgánica del Poder Judicial.
