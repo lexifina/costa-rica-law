@@ -1,2 +1,3 @@
-Artículo 48.- La constancia dada por el Secretario del Colegio con el visto bueno del Presidente, de que cualquiera de los abogados debe pagar una determinada cantidad por contribución, multa o alcance de cuentas en fondos que haya administrado, tendrá fuerza ejecutiva ante los Tribunales.
-(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 42 al 48)
+Artículo 48.- Los acuerdos y resoluciones del Presidente del Colegio y de la Junta de Gobierno, en materia de su competencia, se ejecutará, desde luego. Los recursos contra dichos acuerdos y resoluciones se concederán para ante el Colegio, sólo en el efecto devolutivo.
+(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 41 al 47)
+(Corrida su numeración por el artículo 3° de la Ley N° 9266 del 12 de agosto de 2014, que lo traspaso del artículo 47 al 48))

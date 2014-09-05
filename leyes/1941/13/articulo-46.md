@@ -1,5 +1,5 @@
-CAPITULO X
-Disposiciones Generales
-(Corrida la numeración del capítulo anterior por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del capítulo IX al capítulo X)
-Artículo 46.- Las resoluciones de las Juntas Generales en materia de su competencia, conforme a la presente ley, tendrán fuerza de sentencia ejecutoria sin recurso de ninguna clase.
-(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 40 al 46)
+Artículo 46.-Cuando se presente queja contra un abogado, por algún hecho que vaya en desdoro de la profesión, ya sea que constituya delito o siquiera procedimiento torcido, o por alguno de los motivos señalados en los incisos 2 al 6 del artículo 10, se procederá en la forma indicada en los artículos 11 al 16 de esta Ley.
+Si la solicitud de suspensión resultare imprudente o maliciosa, la Directiva del Colegio podrá imponer al quejoso, cuando sea un particular, una multa de mil a cinco mil colones, convertible en prisión por falta de pago, a razón de un día por cada cien colones de multa, sin perjuicio de los derechos que pueda ejercitar el profesional absuelto. La multa se depositará a la orden del Colegio de Abogados.
+(Así reformado por el artículo 5° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial")
+(Corrida su numeración por el artículo 3° de la ley N° 7333 del 5 de mayo de 1993, "Reforma Integral a la Ley Orgánica del Poder Judicial", que lo traspaso del artículo 39 al 45)
+(Corrida su numeración por el artículo 3° de la Ley N° 9266 del 12 de agosto de 2014, que lo traspaso del artículo 45 al 46)
