@@ -1,0 +1,1 @@
+Artículo 6°—Sujeto pasivo. La tasa por el servicio de aseo de vías y sitios públicos, deberán pagarla todos los propietarios o poseedores por cualquier título de bienes inmuebles ubicados en el Cantón de Curridabat donde existan estructuras superficiales de conducción pluvial como cordón de caño, zanjas o canales a cielo abierto y se brinde el servicio.
