@@ -16,6 +16,10 @@ xiii. Disminución en el monto máximo de las comisiones de administración, ent
 xiv. Inclusión o eliminación de costos o gastos que asume directamente el fondo.
 xv. Cambio en el límite de suscripción de nuevas participaciones.
 xvi. Cambios o adiciones de entidades comercializadoras.
+xvii. Actualización de la información de los activos subyacentes del fondo de inversión de titularización, de conformidad con lo establecido en el artículo 44 del Reglamento sobre procesos de titularización.
+(Así adicionado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
+xviii. Incorporación posterior de activos subyacentes que no implique la ampliación del activo total del fondo de inversión de titularización, de acuerdo con lo establecido en el artículo 46 del Reglamento sobre procesos de titularización.
+(Así adicionado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
 b. Autorización previa por el Superintendente de la modificación del prospecto, según lo dispuesto en el artículo 25 de este Reglamento, si se presenta alguna situación indicada a continuación:
 i. Modificaciones del régimen de inversión, entendido como la naturaleza del fondo (abierto o cerrado), la política de inversión, el nivel en endeudamiento autorizado para el fondo, el aumento en las comisiones de administración, entrada o salida máximas establecidas en el prospecto, la disminución de la periodicidad de distribución de los rendimientos hacia los inversionistas y el aumento en el monto autorizado de fondos cerrados.
 ii. Cambio de la entidad de custodia C a una entidad de custodia B; y lo indicado en el artículo 7 y artículo 26 cuando aplique, de este Reglamento.

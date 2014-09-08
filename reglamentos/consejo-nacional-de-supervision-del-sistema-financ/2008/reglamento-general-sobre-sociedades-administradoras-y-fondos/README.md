@@ -25,3 +25,4 @@ Reglamento General sobre Sociedades Administradoras y Fondos de Inversión
 | 10 | 2013-06-18 | Reglamento 1047 (2013-06-18) |
 | 11 | 2013-08-13 | Reglamento 1057 (2013-08-13) |
 | 12 | 2013-12-17 | Reglamento 1080 (2013-12-17) |
+| 13 | 2014-09-08 | Reglamento 1124 (2014-09-08) |
