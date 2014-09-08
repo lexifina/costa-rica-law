@@ -1,0 +1,1 @@
+Artículo 13.—El pago deberá realizarse mediante la red de pagos que utiliza la Municipalidad mediante los agentes recaudadores previamente autorizados. El padre, madre o encargado(a) deberá presentar el comprobante de pago a la administración del CECUDI para verificar la cancelación del servicio.
