@@ -1,0 +1,1 @@
+Artículo 9°—Utilidad para el desarrollo. El diez por ciento de utilidad para el desarrollo que contempla la tarifa del servicio de alcantarillado pluvial, se destinará prioritariamente a impulsar la reconstrucción o remodelación de los sistemas existentes y a la construcción de nuevos proyectos.
