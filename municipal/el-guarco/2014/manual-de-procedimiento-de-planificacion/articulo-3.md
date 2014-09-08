@@ -1,0 +1,2 @@
+III.—Alcances de los procedimientos
+Inicia con el estudio de los procesos que se llevan a cabo en los diversos departamentos de la Municipalidad de El Guarco. Incluyen la identificación del encargado del proceso, cómo debe hacerse, dónde y cuándo; finaliza con la elaboración del manual de procesos independiente para cada departamento; de esta manera se logran desarrollar los procesos de una manera más eficiente.
