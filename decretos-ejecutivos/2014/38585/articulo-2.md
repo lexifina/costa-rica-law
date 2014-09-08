@@ -1,0 +1,1 @@
+Artículo 2°—Las instituciones nacionales, públicas y privadas, así como demás organizaciones y empresas, brindarán en la medida de sus posibilidades y dentro del marco jurídico respectivo, la colaboración y facilidades que estén a su alcance, para la realización del Congreso, sin menoscabo de las funciones propias.
