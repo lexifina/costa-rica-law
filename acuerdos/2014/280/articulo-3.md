@@ -1,0 +1,2 @@
+Artículo 3º—Las embarcaciones que se dediquen a la pesca comercial de carnada viva para su comercialización o venta, deberán contar con la respectiva licencia de pesca comercial otorgada por el INCOPESCA.
+No requerirán de licencia de pesca para carnada viva las embarcaciones con licencia comercial de pesca pequeña escala, pesca mediana escala, pesca avanzada y pesca turística; así como las embarcaciones o personas físicas que se dediquen a la pesca deportiva y que utilicen carnada viva, para ser utilizada en sus propias faenas de pesca.

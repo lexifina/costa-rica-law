@@ -1,0 +1,2 @@
+Artículo 7º—A las personas que a bordo de embarcaciones debidamente autorizadas al efecto realicen faenas de pesca turística y pesca deportiva, se les prohíbe colocar sobre la borda los ejemplares capturados para efectos fotográficos, así como el uso de bicheros o ganchos para arrimar los ejemplares de picudos capturados.
+No aplica la prohibición establecida en este artículo, cuando se trate de capturas que deban registrarse para efectos de récord mundiales o en torneos de pesca deportiva y turística avalados por INCOPESCA.

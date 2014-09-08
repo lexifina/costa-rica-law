@@ -1,0 +1,1 @@
+Artículo 13.—Deróguese los acuerdos reglamentarios de Junta Directiva de INCOPESCA número AJDIP/476-2008, AJDIP/090-2009 y AJDIP/081-2014, así como cualquier otra disposición anterior que se contraponga a la presente medida de ordenación.

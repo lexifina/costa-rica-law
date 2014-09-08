@@ -1,0 +1,1 @@
+Artículo 14.—Comuníquese este acuerdo al Servicio Nacional de Salud Animal, Servicio Nacional de Guardacostas, Ministerio de Ambiente y Energía y Ministerio de Seguridad Pública, para lo de sus competencias.
