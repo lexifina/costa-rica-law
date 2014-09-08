@@ -1,0 +1,1 @@
+Artículo 21.—Toda modificación al presente Reglamento es potestad exclusiva del Banco y para su aplicación deberá obtenerse la autorización de la Junta Directiva General, siendo que entrarán en vigencia luego de su aprobación por la Contraloría General de la República y su publicación en el Diario Oficial La Gaceta.
