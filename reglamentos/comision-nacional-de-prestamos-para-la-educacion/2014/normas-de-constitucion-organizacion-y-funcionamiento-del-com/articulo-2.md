@@ -1,0 +1,5 @@
+Artículo 2º—Definiciones.
+Solicitud de préstamo: Formulario impreso o digital, mediante el cual se llenan datos y se cumplen con los requisitos estipulados, para obtener, en el caso específico el financiamiento del crédito educativo.
+Consejo Directivo: máxima autoridad Jerárquica que deberá, de un modo general, velar por la realización de los fines de la institución.
+Secretario Ejecutivo: Administrador general de CONAPE nombrado por el Consejo Directivo de la institución, quien tendrá la representación judicial y extrajudicial de la Comisión.
+Actas de Comité de Crédito. Resumen de las recomendaciones sobre las solicitudes de préstamo que se elevan a conocimiento del Consejo Directivo, así como cualquier otro aspecto relevante en cuanto al análisis de créditos y otros acuerdos sobre la gestión crediticia, firmadas por el Secretario Ejecutivo de CONAPE, el Jefe del Departamento de Crédito y el Jefe del Departamento Financiero. Las actas son firmadas en un libro de actas legalizado por la Auditoría Interna.

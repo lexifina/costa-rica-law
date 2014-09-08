@@ -1,0 +1,1 @@
+Artículo 15.—La actuación del Comité en la aplicación del Reglamento de Crédito, se realiza mediante acuerdos consignados en el libro de Actas de este Comité, legalizado previamente por la Auditoría Interna.
