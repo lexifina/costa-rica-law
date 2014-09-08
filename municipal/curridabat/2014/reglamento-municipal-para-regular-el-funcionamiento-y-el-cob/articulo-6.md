@@ -1,0 +1,1 @@
+Artículo 6°—Sujeto pasivo: La tasa por el servicio de parques y obras de ornato, deberán pagarla todos los propietarios o poseedores por cualquier título de bienes inmuebles ubicados en el cantón de Curridabat.
