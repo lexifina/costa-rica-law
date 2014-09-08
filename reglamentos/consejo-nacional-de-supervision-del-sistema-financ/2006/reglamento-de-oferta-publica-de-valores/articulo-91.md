@@ -1,2 +1,2 @@
-Artículo 91.—De los mecanismos de mejora crediticia. Pueden utilizarse mecanismos de mejora crediticia con el propósito de mejorar la calificación de los valores producto de un proceso de desarrollo de obra pública. Estos mecanismos se rigen, en lo que corresponda, de conformidad con lo dispuesto en los artículos 68, 69 y 70 de este Reglamento.
+Artículo 91.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

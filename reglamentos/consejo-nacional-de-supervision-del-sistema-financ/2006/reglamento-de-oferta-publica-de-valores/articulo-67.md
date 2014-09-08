@@ -1,3 +1,1 @@
-Artículo 67.—Valores producto de la titularización. Los valores emitidos en un proceso de titularización podrán adoptar las siguientes modalidades:
-a) Valores de participación: incorporan un derecho de propiedad proporcional sobre el patrimonio del fideicomiso o el fondo de inversión. El inversionista no adquiere un valor de rendimiento fijo sino que participa en las utilidades o pérdidas que genere este patrimonio. Los valores de participación podrán prever su redención parcial o total, con antelación a la extinción del fideicomiso o el fondo de inversión, por razón de la liquidación de parte de sus activos.
-b) Valores de contenido crediticio: incorporan el derecho a percibir la cancelación del capital y de los rendimientos financieros en los términos y condiciones señalados en el valor. Los activos que integran el patrimonio autónomo respaldan el pasivo adquirido con los inversionistas.
+Artículo 67.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)

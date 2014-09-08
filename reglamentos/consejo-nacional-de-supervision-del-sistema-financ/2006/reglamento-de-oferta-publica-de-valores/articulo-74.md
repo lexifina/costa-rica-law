@@ -1,5 +1,2 @@
-Artículo 74. Definiciones. Para efectos de este capítulo, se entiende por:
-a. Administración Pública: El Poder Ejecutivo, el Poder Judicial, el Poder Legislativo, el Tribunal Supremo de Elecciones, la Contraloría General de la República, la Defensoría de los Habitantes, el sector descentralizado territorial e institucional, órganos desconcentrados, los entes públicos no estatales que brinden servicios públicos, y las entidades o empresas públicas y de servicios públicos.
-b. Obra pública: Cualquier obra o estructura que la Administración Pública requiera para brindar un servicio público o cumplir con el fin público que persigue.
-c. Proyecto: Las obras públicas prefijadas por la Administración Pública en el contrato de fideicomiso. Puede estar conformado por una o varias obras e incluir equipamiento y la prestación de servicios complementarios, relacionados con el cuidado y mantenimiento de la obra, que el fideicomiso le brinde a la Administración Pública.
+Artículo 74. (Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

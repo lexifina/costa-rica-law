@@ -1,4 +1,2 @@
-Artículo 87.—De los conflictos de interés. El fideicomitente y fiduciario deben establecer y aprobar políticas claras y auditables para la administración de los conflictos de interés, las cuales deben abarcar las actuaciones entre las distintas partes del fideicomiso, los integrantes de la unidad administradora, el comité de vigilancia, los sujetos que participen en el diseño, estructuración o colocación de la emisión de valores, las actuaciones de los directores y empleados del fideicomitente y fiduciario, así como sus relaciones con los contratistas, proveedores y otros sujetos vinculados al fideicomiso.
-La existencia de posibles conflictos de interés y las políticas generales para el control y manejo de estos se deben revelar en el prospecto.
-El fiduciario debe velar porque el fideicomiso cumpla con la normativa correspondiente según lo dispuesto en el Reglamento de gobierno corporativo.
+Artículo 87.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

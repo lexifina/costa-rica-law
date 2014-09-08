@@ -1,2 +1,1 @@
-Artículo 68.—Mecanismos de mejora crediticia. Podrán utilizarse mecanismos de mejora crediticia con el propósito de mejorar la calificación de los valores objeto de titularización.
-Estos mecanismos podrán ser internos o extemos según, se indica en los Artículos siguientes.
+Artículo 68.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)

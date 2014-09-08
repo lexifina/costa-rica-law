@@ -1,2 +1,2 @@
-Artículo 85.—Vigilancia de la conformación y actuaciones de la unidad administradora. La responsabilidad de verificar, durante la vigencia del fideicomiso, el cumplimiento de los requisitos señalados en los artículos 81, 83 y 84 de este Reglamento corresponde al fiduciario, para lo cual debe establecer los mecanismos y medios de control que considere pertinentes. La documentación utilizada como sustento para dichas verificaciones se debe mantener disponible y deberá ser suministrada a la Superintendencia General de Valores en los términos y condiciones que se requiera.
+Artículo 85.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

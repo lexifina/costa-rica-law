@@ -1,5 +1,2 @@
-Artículo 93.—Del refinanciamiento de los pasivos del fideicomiso mediante emisiones dirigidas al público en general. Los fideicomisos de desarrollo de obra pública que, una vez concluidas las fases de construcción y equipamiento, refinancien sus pasivos por medio del mercado de valores, pueden optar por inscribir emisiones de oferta pública de valores dirigida al público en general, para lo cual se requiere:
-a. Demostrar la aceptación del proyecto por parte de la Administración Pública que lo utilizará.
-b. Presentar los finiquitos formales con las empresas constructoras y proveedoras de equipo, así como cualquier otra empresa que haya prestado servicios de cualquier tipo durante la etapa constructiva.
-La posibilidad de refinanciar pasivos una vez concluido el proyecto, así como la necesidad de contar con la aceptación por parte de la Administración Pública, y la responsabilidad del fiduciario de presentar los finiquitos formales, debe constar en el contrato de fideicomiso.
+Artículo 93.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

@@ -1,5 +1,4 @@
 SECCIÓN III: FINANCIAMIENTO DE LOS FIDEICOMISOS
 DE DESARROLLO DE OBRA PÚBLICA
-Artículo 88.—De las fuentes de financiamiento. Los fideicomisos de desarrollo de obra pública que capten recursos mediante la colocación de emisiones en el mercado de valores, en los términos y condiciones que se establecen en este reglamento, podrán también obtener recursos a través de créditos bancarios o de terceros para financiar el proyecto en cualquier etapa de desarrollo, diseño o construcción y equipamiento; o refinanciar sus pasivos.
-Las distintas fuentes de financiamiento que puede utilizar el proyecto, así como la posibilidad de refinanciar sus pasivos a través del mercado de valores, se deben establecer en el contrato de fideicomiso. En el prospecto se debe revelar, en términos generales, la estructura planeada de financiamiento del proyecto, las condiciones que deben reunir las operaciones de crédito, así como la posibilidad de refinanciar pasivos y de ejecutar cláusulas de redención anticipada de las emisiones.
+Artículo 88.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

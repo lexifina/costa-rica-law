@@ -21,3 +21,4 @@ Reglamento de Oferta Pública de Valores
 | 6 | 2012-07-31 | Reglamento 986 (2012-07-31) |
 | 7 | 2012-12-04 | Reglamento 1016 (2012-12-04) |
 | 8 | 2014-04-08 | Reglamento 1101 (2014-04-08) |
+| 9 | 2014-09-08 | Reglamento 1124 (2014-09-08) |

@@ -1,8 +1,8 @@
-Artículo 4°—Presunciones sobre la existencia de un valor. Se
-presumirá, salvo prueba en contrario, que constituyen valores:
+Artículo 4°—Presunciones sobre la existencia de un valor. Se presumirá, salvo prueba en contrario, que constituyen valores:
 a) Los documentos o instrumentos representativos de contratos de inversión o emitidos en conexión directa con tales contratos. Se entiende por contrato de inversión cualquier contrato en el que concurran las características siguientes:
 i. La conjunción de un tomador de fondos y un inversionista que aporta los fondos.
 ii. El inversionista no tiene injerencia directa en la administración de la empresa o negocio a que se refiere la inversión.
 ii. Se ofrecen o emiten documentos o instrumentos múltiples, aunque no necesariamente iguales, cada uno de los cuales representa un derecho de crédito o de participación en relación con una cartera o negocio común.
 b) Los certificados que otorguen a sus tenedores derechos de participación en un patrimonio fideicometido, con exclusión de los fideicomisos testamentarios o de garantía.
-c) Los productos provenientes de procesos de titularización y otros productos estructurados, según lo dispuesto en este Reglamento.
+c) Los productos provenientes de procesos de titularización y otros productos estructurados, según lo dispuesto en la reglamentación correspondiente.”
+(Así reformado el inciso anterior mediante sesión N° 1124 del 8 de setiembre de 2014)

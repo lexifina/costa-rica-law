@@ -1,2 +1,2 @@
-Artículo 81.—De la unidad administradora de proyectos. La unidad administradora de proyectos debe estar conformada por un grupo de profesionales, con total independencia del fideicomitente, del fiduciario y su grupo vinculado, de conformidad con lo establecido en los artículos 6 y 9 del Acuerdo SUGEF-4-04 “Reglamento sobre el grupo vinculado a la entidad”. La unidad debe contar con el perfil técnico, profesional o científico, según sea el caso, necesario para la administración del proyecto y la ejecución de las obras públicas a desarrollar.
+Artículo 81.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

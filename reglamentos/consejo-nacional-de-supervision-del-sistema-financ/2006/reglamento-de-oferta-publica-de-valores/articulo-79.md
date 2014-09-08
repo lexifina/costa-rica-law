@@ -1,2 +1,2 @@
-Artículo 79.—De la terminación del fideicomiso. El contrato de fideicomiso debe establecer en forma clara las causales de terminación. Asimismo, debe incluir los mecanismos de liquidación que se aplicarán para hacer frente a las obligaciones adquiridas remanentes, incluyendo las emisiones en circulación y otras obligaciones financieras.
+Artículo 79.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

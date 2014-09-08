@@ -1,2 +1,2 @@
-Artículo 89.—Del financiamiento del desarrollo de obra pública mediante el mercado de valores. En la solicitud inicial de autorización de oferta pública, el fideicomiso puede solicitar la autorización de las emisiones que considere necesarias o bien, gestionar la inscripción de las distintas emisiones, según sus necesidades de financiamiento durante el desarrollo y construcción del proyecto.
+Artículo 89.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

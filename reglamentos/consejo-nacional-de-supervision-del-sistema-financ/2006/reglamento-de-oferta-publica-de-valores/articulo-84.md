@@ -1,2 +1,2 @@
-Artículo 84.—De la gestión de los riesgos asociados al fideicomiso. La gestión de los riesgos asociados al fideicomiso debe ser permanente durante la vigencia del contrato. Las políticas generales de gestión de riesgos deben constar en el contrato de fideicomiso. El fiduciario debe contar con políticas expresas y detalladas, las cuales deben ser reveladas en el prospecto.
+Artículo 84.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)

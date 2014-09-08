@@ -1,3 +1,2 @@
-Artículo 92.—De las otras fuentes de financiamiento. La estructura planeada de financiamiento del proyecto y las condiciones que puedan tener las operaciones de crédito que se prevean contratar deben estar reveladas en el prospecto.
-En el caso de que se llegara a contratar una operación crediticia que conlleve una modificación de las características de las emisiones o de las condiciones fundamentales de la estructura financiera, excediendo los términos en que éstas se hubieran definido en el prospecto, se debe contar con la autorización por parte de la totalidad de los inversionistas.
+Artículo 92.—(Derogado en sesión N° 1124 del 8 de setiembre de 2014)
 (Así adicionado en sesión N° 881-2010 del 17 de setiembre de 2010)
