@@ -3,7 +3,8 @@ a. Diseñar las políticas y procedimientos para la gestión de riesgos.
 b. Verificar el cumplimento de las políticas y los procedimientos una vez que hayan sido aprobados.
 c. Medir y monitorear los riesgos a los que está expuesta la entidad, de conformidad con lo indicado en el artículo 11 de este Reglamento.
 d. Medir y monitorear los riesgos a los que están expuestas las carteras individuales propiedad de clientes, que son administradas discrecionalmente por la entidad, de conformidad con las políticas que ésta defina.
-e. Medir y monitorear los riesgos a los que están expuestos los fondos de inversión administrados. Se debe considerar al menos el riesgo crediticio, de mercado, de liquidez y el riesgo operativo de la sociedad administradora, de conformidad con lo indicado en el artículo 11 de este Reglamento.
+e. Medir y monitorear los riesgos a los que están expuestos los fondos de inversión y vehículos de propósito especial administrados. Se debe considerar al menos el riesgo crediticio, de mercado, de liquidez y el riesgo operativo de la sociedad administradora, de la sociedad titularizadora y de la sociedad fiduciaria, de conformidad con lo indicado en el artículo 11 de este Reglamento.
+(Así reformado el inciso anterior en sesión N° 1124 del 8 de setiembre de 2014)
 f. Informar al menos mensualmente al Comité de gestión de riesgos y de inversiones sobre:
 i. La exposición por tipo de riesgo de la entidad y de los fondos de inversión cuando aplique, y los niveles de desviación respecto a los límites establecidos, incluyendo sus causas y las acciones correctivas.
 ii. Los resultados de desempeño obtenidos de la entidad y por los fondos de inversión cuando aplique, explicando su origen, la conexión con los riesgos asumidos y compararlos con los objetivos definidos en las políticas.

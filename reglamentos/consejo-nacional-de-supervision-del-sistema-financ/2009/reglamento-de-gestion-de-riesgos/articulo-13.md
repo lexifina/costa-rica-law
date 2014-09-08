@@ -27,7 +27,8 @@ ii. Disminución al patrimonio por valoración a precios de mercado de las inver
 iii. Pérdida acumulada de períodos anteriores.
 iv. Pérdida del periodo actual.
 c. Deducciones. Al monto que resulte de la suma del capital primario más el capital secundario, deben deducirse las siguientes partidas:
-i. El 100% de préstamos por cobrar, cuentas y productos por cobrar, comisiones por cobrar e intereses por cobrar -en este último caso, sólo cuando exista cobro dudoso o mora por parte del emisor o del custodio-.
+i. El 100% de préstamos por cobrar, cuentas y productos por cobrar, comisiones por cobrar e intereses por cobrar -en este último caso, sólo cuando exista cobro dudoso o mora por parte del emisor o del custodio-. Esta deducción no aplica en el caso de las sociedades titularizadoras.
+(Así reformado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
 ii. El 100% de activos restringidos (se excluyen los títulos dados en garantía de reporto tripartito, reporto, mercado de liquidez y los activos financieros dados como garantía de líneas de crédito de giro automático que estén destinadas exclusivamente para cubrir requerimientos de liquidez de las entidades).
 iii. El 100% de inversiones en instrumentos financieros en entidades en cesación de pagos, morosos o en litigio.
 iv. El 100% de activos diferidos y gastos pagados por anticipado.

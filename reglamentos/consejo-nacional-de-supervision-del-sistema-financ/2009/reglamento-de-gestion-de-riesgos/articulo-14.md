@@ -48,7 +48,8 @@ o. En el caso de fondos de inversión locales se considera su calificación. En 
 p. Este requerimiento de capital no aplica en el caso de inversiones en acciones.
 Las entidades pueden mantener inversiones en un mismo emisor o fondo de inversión, hasta el 20% del capital base, o del 40% en el caso de emisiones en las que el puesto de bolsa es creador de mercado. Cualquier exceso sobre estos porcentajes establecidos incrementará el requerimiento de capital por riesgo crediticio en el monto del exceso, a partir del día siguiente.
 Estos límites por concentración no aplican en el caso de títulos del Banco Central de Costa Rica, Ministerio de Hacienda de Costa Rica, bancos comerciales del estado costarricense, títulos de gobiernos con calificación soberana de grado de inversión y valores con calificación internacional AAA.
-Las emisiones que se negocien en el mercado primario local y las negociaciones en mercados internacionales, deberán cumplir con los siguientes requerimientos:
+Para el caso de los puestos de bolsa, las emisiones que se adquieran en el mercado primario local y las negociaciones en mercados internacionales, deberán cumplir con los siguientes requerimientos:
+(Así reformado el párrafo anterior en sesión N° 1124 del 8 de setiembre de 2014)
 Tiempo transcurrido a partir de la adquisición de la emisión | Requerimiento de capital sobre el exceso del 20% y hasta el 100% de capital base
 De 0 a 10 días hábiles | 0%
 De 11 a 21 días hábiles | 50%

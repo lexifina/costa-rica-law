@@ -1,6 +1,7 @@
 Artículo 11.—Gestión por tipo de riesgo. Se deben gestionar al menos los siguientes riesgos:
 a. Riesgo crediticio. El riesgo de crédito es la pérdida potencial que se puede producir por la falta de pago del emisor de un título o bien porque la calificación crediticia del título o en su defecto del emisor, se ha deteriorado. La gestión de este riesgo requiere que se considere como mínimo:
-i. Identificar los factores de riesgo. Un factor de riesgo es una variable cuyos movimientos pueden generar cambios en el patrimonio de la entidad o fondo de inversión.
+i. Identificar los factores de riesgo. Un factor de riesgo es una variable cuyos movimientos pueden generar cambios en el patrimonio de la entidad, fondo de inversión o vehículo de propósito especial administrado.
+(Así reformado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
 ii. En el caso de instrumentos que no cuenten con calificación crediticia, contar con un análisis del emisor que incluya aspectos cuantitativos o cualitativos.
 iii. Disponer de mecanismos para monitorear los factores de riesgo identificados.
 iv. Establecer medidas para mitigar la exposición a este riesgo.
@@ -13,15 +14,18 @@ c. Riesgo de mercado. El riesgo de mercado es la pérdida potencial que se puede
 i. Identificar los factores de riesgo.
 ii. Contar con análisis de mercado que permita monitorear los factores de riesgo identificados.
 iii. Evaluar las posiciones sujetas a riesgos de mercado, utilizando para tal efecto modelos que permitan medir la pérdida potencial en dichas posiciones asociadas a movimientos de precios, tasas de interés o tipos de cambio.
-iv. Llevar a cabo análisis de sensibilidad especialmente en situaciones extremas y simulación de escenarios, al menos para fondos de inversión.
+iv. Llevar a cabo análisis de sensibilidad especialmente en situaciones extremas y simulación de escenarios.
+(Así reformado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
 v. Comparar las exposiciones de riesgo de mercado estimadas con los resultados efectivamente observados.
 vi. Monitorear las brechas en las tasas de interés y moneda extranjera de las posiciones activas y pasivas, cuando aplique.
 vii. Establecer medidas para mitigar la exposición a este riesgo.
 d. Riesgo de liquidez. El riesgo de liquidez es la pérdida potencial que se puede producir por la venta anticipada o forzosa de activos a descuentos inusuales para hacer frente a sus obligaciones, o bien, por el hecho de que una posición no pueda ser oportunamente enajenada, adquirida o cubierta mediante el establecimiento de una posición contraria equivalente. La gestión de este riesgo requiere que se considere como mínimo:
 i. Identificar los factores de riesgo.
 ii. Evaluar los factores de riesgo identificados.
-iii. Determinar los niveles de liquidez de la entidad y de los fondos de inversión administrados, en función de sus necesidades de efectivo.
-iv. Evaluar la diversificación de las fuentes de fondeo de la entidad y de los fondos de inversión administrados.
+iii. Determinar los niveles de liquidez de la entidad y de los fondos de inversión o vehículos de propósito especial administrados, en función de sus necesidades de efectivo.
+(Así reformado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
+iv. Evaluar la diversificación de las fuentes de fondeo de la entidad y de los fondos de inversión o vehículos de propósito especial administrados.
+(Así reformado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
 v. Establecer medidas para mitigar la exposición a este riesgo.
 e. Riesgo operativo. El riesgo operativo es la pérdida potencial que se puede producir por fallas o deficiencias en los procesos, el personal, sistemas de información, controles internos o bien por acontecimientos externos. La gestión de este riesgo es responsabilidad de todas las unidades de negocio de la entidad y requiere que se considere como mínimo:
 i. Identificar los factores de riesgo.
