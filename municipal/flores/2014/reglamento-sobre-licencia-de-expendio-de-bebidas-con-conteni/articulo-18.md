@@ -1,0 +1,1 @@
+Artículo 18.—Las licencias temporales. Las licencias temporales son aquellas que se autorizan por acuerdo del Concejo Municipal por periodo de plazo definido, no generan los derechos de una licencia de expendio de bebidas con contenido alcohólico permanente, y se conceden por única vez sin derecho de prórroga.

@@ -1,0 +1,3 @@
+Artículo 15.—Vigencia. La licencia tendrá una vigencia de cinco años renovables por períodos iguales de forma automática siempre y cuando la solicitud de prórroga se presente un mes antes del vencimiento en el Proceso de Patentes. Al momento de la prórroga el patentado deberá cumplir con todos los requisitos legales establecidos.
+En la solicitud de prórroga se deberá adjuntar una constancia de que se encuentra al día en sus obligaciones con la Caja Costarricense del Seguro Social, que cuenta con póliza de riesgos laborales al día, estar al día en sus obligaciones con Asignaciones Familiares y con la Municipalidad de Flores.
+El solicitante estará exento de aportar los documentos aquí mencionados cuando la información esté disponible por parte de la Municipalidad.
