@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Disposiciones finales
+Artículo 18.—Propiedad y potestades municipales. El servicio de correo electrónico, chat interno e Internet es oficialmente propiedad de la Municipalidad de Esparza y se considera una herramienta de comunicación e intercambio oficial de información a disposición de las funcionarias y funcionarios. La gestión de Tecnología de Información puede solicitar el acceso a los buzones electrónicos para efectuar reparaciones en el sistema por motivos de seguridad u otros, no obstante si se requiere acceder un buzón específico se deberá tener el aval del propietario de la cuenta.

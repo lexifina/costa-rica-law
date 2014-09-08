@@ -1,0 +1,1 @@
+Artículo 19.—Imposibilidad de garantizar confidencialidad. La Municipalidad de Esparza, no podrá evitar al cien por ciento de la privacidad, seguridad e integridad de la información contenida en el correo electrónico transmitido por la red Internet, así como la llegada de correos tipo “spam”, cadenas o similares.
