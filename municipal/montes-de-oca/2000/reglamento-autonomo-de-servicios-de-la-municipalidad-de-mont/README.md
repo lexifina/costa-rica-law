@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Montes de Oca
 | --- | --- | --- |
 | 1 | 2000-11-02 | la propia norma |
 | 2 | 2013-08-28 | SINALEVI (sin norma nombrada) |
+| 3 | 2014-09-08 | Reglamento municipal 228 (2014-09-08) |
