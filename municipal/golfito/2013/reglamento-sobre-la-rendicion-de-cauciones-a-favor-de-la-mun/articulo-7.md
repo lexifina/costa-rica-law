@@ -1,0 +1,1 @@
+Artículo 7º—Caucionantes del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos el Alcalde(a), Coordinador de la Plataforma de Servicios, Coordinador del Proceso de Desarrollo Urbano y Servicios, así como el Auditor Municipal.

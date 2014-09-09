@@ -1,0 +1,1 @@
+Artículo 8º—Caucionantes del nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, todos quienes ocupen puestos de Coordinador de Subproceso y Actividad. Además el Proveedor(a), Tesorero(a), Cajero(a), Secretaria del Concejo Municipal.
