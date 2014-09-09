@@ -20,3 +20,5 @@ d) Presentar una solicitud por escrito ante FONAFIFO firmada por el representant
 5.3.4. Cobrar y retener el monto convenido a los productores.
 5.3.5. Notificar en forma inmediata a FONAFIFO, en caso de incumplimiento de alguno de los beneficiarios (as).
 5.4. No tener obligaciones pendientes con proyectos forestales, programas de financiamiento, incentivos o crédito otorgados por MINAE o alguno de sus órganos adscritos. Solo podrán ejecutar nuevos proyectos aquellas organizaciones que hayan cancelado sus obligaciones o hayan realizado un arreglo de pago.
+5.5 Que en los casos en los que se vayan a desarrollar proyectos SAF en fincas que están respondiendo como garantías de operaciones bancarias y no se tenga el visto bueno de las entidades acreedoras para el ingreso al programa de Pago por Servicios Ambientales, se acepte como garantía de cumplimiento una letra de cambio suscrita por los miembros de la Junta Directiva de la respectiva Organización.
+(Así adicionado el punto 5.5) anterior mediante sesión N° 01 del 9 de setiembre del 2014)
