@@ -14,3 +14,4 @@ Reglamento del Comité corporativo de cumplimiento del Banco Crédito Agrícola 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-20 | la propia norma |
+| 2 | 2014-09-09 | Reglamento 8779 (2014-09-09) |
