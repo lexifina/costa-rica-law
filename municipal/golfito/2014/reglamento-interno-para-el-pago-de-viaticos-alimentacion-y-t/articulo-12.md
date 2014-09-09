@@ -1,0 +1,5 @@
+Artículo 12.—Los montos a pagar por concepto de alimentación serán los siguientes: Se pagará el monto establecido en el artículo 1 8 del Reglamento de gastos de viaje y transporte para funcionarios públicos.
+Estos gastos se pagarán así:
+Desayuno: Si el regidor o el síndico debe salir del lugar de su residencia a las seis horas o antes, con el fin de estar a tiempo en una sesión matutina del Concejo o sesión de trabajo debidamente convocada y comisiones, se le reconocerá el pago de desayuno, hasta las ocho horas.
+Almuerzo: Si el regidor o el síndico debe salir del lugar de su residencia a las once horas o antes, con el fin de estar a tiempo en una sesión vespertina del Concejo o sesión de trabajo debidamente convocada y comisiones, se le reconocerá el pago de almuerzo, hasta las catorce horas.
+Cena: Si el regidor o el síndico debe salir del lugar de su residencia a las dieciséis horas antes, con el fin de estar a tiempo en una sesión vespertina del Concejo o sesión de trabajo debidamente convocada y comisiones, se le reconocerá el pago de almuerzo, hasta las veinte horas.

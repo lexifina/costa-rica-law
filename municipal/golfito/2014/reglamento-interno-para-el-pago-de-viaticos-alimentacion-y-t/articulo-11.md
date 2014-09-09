@@ -1,0 +1,1 @@
+Artículo 11.—Para el reconocimiento a los Regidores y Síndicos (Propietarios y Suplentes) de los gastos de viajes y de transporte se hará a partir de un radio de cuatro kilómetros de la Sede Central del Palacio Municipal (Corporación Municipal de Golfito), sita en Pueblo Civil, Frente a estación de bomberos.

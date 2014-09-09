@@ -1,0 +1,1 @@
+Artículo 3°—Concepto. Por viático se entenderá aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje, que la Municipalidad de Golfito reconoce a Regidores, Síndicos, propietarios y/o suplentes de la Municipalidad de Golfito.

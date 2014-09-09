@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. El presente Reglamento regula los procedimientos a que deberán someterse las erogaciones municipales por concepto de gastos de transporte, hospedaje y alimentación de los Regidores y Síndicos (Propietarios y Suplentes), en relación con el artículo 30 del Código Municipal.
