@@ -1,0 +1,1 @@
+Artículo 15.—Información complementaria. Toda variación presupuestaria deberá Incluir la información complementaria requerida en la norma 4.2.14 de las Normas Técnicas sobre Presupuesto Público, lo cual deberá ser verificado por el Tesorero de la Junta directiva del CCDRE.

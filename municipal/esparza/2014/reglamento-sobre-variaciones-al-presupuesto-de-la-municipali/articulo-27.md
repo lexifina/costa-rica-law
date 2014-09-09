@@ -1,0 +1,1 @@
+Artículo 27.—Obligatoriedad de lo establecido en este Reglamento. Lo establecido en el presente Reglamento deroga cualquier otra normativa reglamentaria que se le oponga en contrario y es de carácter vinculante para el Comité Cantonal y Recreación de Esparza.

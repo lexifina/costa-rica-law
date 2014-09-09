@@ -1,0 +1,2 @@
+Artículo 19.—Periodicidad y medio para someter las modificaciones a la aprobación de la Junta Directiva del CCDRE. Para la elaboración de las modificaciones presupuestaria el Tesorero de la Junta directiva del CCDRE, deberá elaborar el cronograma respectivo y hacerlo de conocimiento de la Junta Directiva.
+Las modificaciones presupuestarias se someterá a aprobación de la Junta directiva del CCDRE en forma impresa.

@@ -1,0 +1,1 @@
+Artículo 26.—Divulgación. La Junta Directiva del CCDRE será la encargada de divulgar el presente reglamento, así como sus variaciones, entre todos los funcionarios del CCDRE y ponerlo a disposición para consulta, tanto de usuarios internos como de personas externas.

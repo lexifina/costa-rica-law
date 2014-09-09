@@ -1,0 +1,1 @@
+Artículo 10.—Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los Presupuestos Extraordinarios y las Modificaciones Presupuestarias entrarán en vigencia una vez que sean aprobados por la Junta Directiva del CCDRE a partir de la ratificación del acta en la cual fueron aprobados o a partir de su acuerdo en firme.
