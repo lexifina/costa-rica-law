@@ -1,2 +1,0 @@
-Artículo 12.—Del control y mantenimiento de vehículos. El control y mantenimiento de los vehículos del Banco es responsabilidad de la Oficina de Transportes o del superior jerárquico de la Oficina Administrativa a la cual se le ha asignado.
-En los casos de los vehículos que hayan sido asignados a Centros de Negocios u oficinas en particular, los responsables serán los titulares de esas oficinas, debiendo coordinar lo pertinente con la Oficina de Transportes para el debido control y mantenimiento de los vehículos.

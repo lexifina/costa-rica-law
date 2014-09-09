@@ -1,1 +1,0 @@
-Artículo 9º—De los Seguros. Todos los vehículos deberán estar cubiertos por una póliza de seguro, que cubra al menos lesión o muerte de personas, daños a la propiedad de terceros, robo o hurto, colisión y vuelco.

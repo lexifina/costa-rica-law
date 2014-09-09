@@ -1,2 +1,0 @@
-Artículo 14.—Salida de los vehículos fuera del país. Cuando se requiera que un vehículo de uso administrativo circule fuera del territorio nacional, debe existir una solicitud escrita y justificada, aprobada por el Gerente General o por la Junta Directiva General.
-La Oficina de Transportes efectuará los trámites correspondientes ante las autoridades competentes, para obtener los respectivos permisos.

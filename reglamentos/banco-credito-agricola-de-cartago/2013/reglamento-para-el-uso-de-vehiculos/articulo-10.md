@@ -1,1 +1,0 @@
-Artículo 10.—Deberes y responsabilidades de la Oficina de Transportes. La Dirección de Medios definirá los deberes, responsabilidades y funciones de los funcionarios de la Unidad de Transportes, así como para el uso y mantenimiento de los vehículos por parte de los autorizados a conducir, de acuerdo a los manuales y/o descriptivos de puestos y regulaciones correspondientes.

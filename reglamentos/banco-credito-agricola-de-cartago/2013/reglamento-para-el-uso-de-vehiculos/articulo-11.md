@@ -1,1 +1,0 @@
-Artículo 11.—Deberes y responsabilidades del conductor. Será responsabilidad de todos los autorizados a conducir vehículos del Banco, conocer y aplicar todo lo establecido en la Ley de Tránsito por vías terrestres, su Reglamento y las regulaciones que tenga definidas el Banco para estos funcionarios autorizados a conducir vehículos de la Institución.
