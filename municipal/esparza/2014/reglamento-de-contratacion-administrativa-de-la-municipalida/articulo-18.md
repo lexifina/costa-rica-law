@@ -1,0 +1,3 @@
+CAPÍTULO III
+Planificación y programación de los procesos de contratación
+Artículo 18.—Programación anual de las diferentes Unidades Administrativas. Las diferentes Unidades Administrativas deberán incluir anualmente en la formulación del plan-presupuesto sus requerimientos de bienes y servicios del año correspondiente. Para tales efectos, en dicha plan, deberán determinar el tipo de bien a adquirir de acuerdo con el objeto del gasto según la clasificación establecida en el diccionario de imputaciones presupuestarias. Lo anterior, con el propósito de que la PI proceda a preparar la publicación del Programa de Adquisiciones en el Diario Oficial La Gaceta.

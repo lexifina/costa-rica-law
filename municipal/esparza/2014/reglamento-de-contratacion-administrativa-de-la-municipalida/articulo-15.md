@@ -1,0 +1,1 @@
+Artículo 15.—Recursos por exclusión del Registro de Proveedores. Contra lo resuelto cabrá recurso de revocatoria dentro de los tres días siguientes a la exclusión el cual deberá presentarse en la Proveeduría para su estudio.
