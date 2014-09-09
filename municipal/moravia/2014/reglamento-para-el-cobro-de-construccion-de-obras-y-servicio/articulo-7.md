@@ -1,0 +1,1 @@
+Artículo 7º—Costo efectivo. Para efectos de este Reglamento, el costo efectivo de la obra, es la suma de costo de los materiales, la mano de obra y el uso del equipo, más un diez por ciento de utilidad.

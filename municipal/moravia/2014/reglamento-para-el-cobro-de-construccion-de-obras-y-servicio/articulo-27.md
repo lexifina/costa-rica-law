@@ -1,0 +1,1 @@
+Artículo 27.—Actualización del valor. Los valores por metro cuadrado señalados en el artículo anterior, serán actualizados por la Dirección de Ingeniería de la Municipalidad una vez por año y esa fijación será publicada en La Gaceta.

@@ -1,0 +1,2 @@
+Artículo 16.—Pendiente. La pendiente en el sentido transversal de la acera tendrá una pendiente como máximo de 2,5% y como mínimo de 2%. En caso de acceso vehicular al predio, el desnivel entre la acera y calzada debe salvarse con rampas construidas desde el cordón de caño hasta la cara externa de la acera, y a partir de la cara interna, por lo cual la acera debe de mantener una continuidad. Queda prohibido el uso de gradas y pendientes mayores al de la vía pública según indica Ley Nº 7600 y su reglamento.
+[imagen]

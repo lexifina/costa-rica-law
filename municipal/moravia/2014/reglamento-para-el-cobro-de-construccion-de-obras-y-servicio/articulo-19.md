@@ -1,0 +1,2 @@
+Artículo 19.—Actualización del valor. El valor del metro cuadrado de construcción de aceras y de rampas se actualizará una vez por año por parte de la Unidad Técnica de Gestión Vial Municipal con base al incremento del costo de vida del año anterior. Esta fijación, será publicada en La Gaceta.
+Toda acera que supere en deterioro una tercera parte de la totalidad deberá reconstruirse totalmente. Las rampas deberán ajustarse al siguiente gráfico:

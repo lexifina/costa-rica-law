@@ -1,0 +1,1 @@
+Artículo 8º—Obligación de cumplimiento. Previo a la realización de la obra o servicio, la Municipalidad notificará al contribuyente su obligación de cumplir con lo establecido en el artículo 75 del Código Municipal, bajo el apercibimiento de que de no hacerlo, se aplicaran las multas trimestrales establecidas en los artículos 76 y 76 bis de la Ley Nº 7794.
