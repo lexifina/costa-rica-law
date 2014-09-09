@@ -1,0 +1,5 @@
+Artículo 9º—Modifíquese el artículo 14 del Decreto Ejecutivo, N° 37729-MEP, del 1 de febrero del 2013, para que se lea de la siguiente manera:
+Artículo 14.—Las funciones del Jurado Regional son:
+a. Aplicar los criterios de selección establecidos en el presente reglamento y en el respectivo Manual elaborado por el Equipo Operativo, para asegurar una selección objetiva y pertinente de las personas designadas por cada dirección regional para ser presentadas, para el Premio al Educador o Educadora del Año “Mauro Fernández Acuña”, a la Comisión de Adjudicación.
+b. Seleccionar, entre las personas candidatas debidamente inscritas, una terna para optar por el Premio al Educador o Educadora del Año “Mauro Fernández Acuña”. En caso de que no existan al menos tres candidatos o candidatas por Dirección Regional que cumplan con los requisitos para ser designados o designadas, el Jurado podrá designar al menos un candidato o una candidata.
+c. Cada jurado, tendrá la obligación de nominar al menos una persona la cual debe cumplir con los requisitos mínimos fijados por el presente reglamento y el respectivo Manual.

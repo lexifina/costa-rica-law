@@ -1,0 +1,2 @@
+Artículo 6º—Modifíquese el artículo 8 del Decreto Ejecutivo, N° 37729-MEP, del 1 de febrero del 2013, para que se lea de la siguiente manera:
+Artículo 8º—Para el pleno desarrollo del Premio al Educador o Educadora del Año “Mauro Fernández Acuña”, como apoyo operativo y logístico a la Comisión, el Ministerio de Educación Pública creará un equipo de trabajo, a continuación denominado: Equipo Operativo; y Jurados en cada Dirección Regional, a continuación denominado: Jurado Regional.
