@@ -1,0 +1,16 @@
+N° 38599-JP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+En uso de las facultades que les confieren el inciso 8) del artículo 140 de la Constitución Política, artículo 27, 47 y 48 de la Ley General de la Administración Pública, el artículo 5° de la Ley Orgánica del Ministerio de Justicia y Paz, N° 6739 y los numerales 1, 13, 14 y 15 del Reglamento Orgánico del Poder Ejecutivo, N° 34582.
+Considerando:
+I.—Que la Constitución Política en el artículo 140 inciso 8) supra mencionado, establece como reserva constitucional la potestad del Poder Ejecutivo de vigilar el buen funcionamiento de los servicios y dependencias administrativas; lo anterior conforme al interés público.
+II.—Que el Ministerio de Justicia y Paz es un órgano de gobierno complejo, con numerosas competencias a nivel central y a través de las diversas dependencias e instituciones adscritas; las cuales están a cargo de un Ministro (a), quien constituye la máxima autoridad.
+III.—Que el Ministerio de Justicia y Paz, según su Ley Orgánica N° 6739, ejercerá sus funciones por medio de la Dirección General de Adaptación Social, Dirección General del Registro Nacional, el Sistema Nacional de Promoción de la Paz Social y cualesquiera que se consideren necesarias en el futuro; correspondiéndole al Poder Ejecutivo determinar la organización y el funcionamiento interno de la institución y sus dependencias principales.
+IV.—Que mediante Decreto Ejecutivo N° 37360 del veintisiete de junio de 2012, se derogó el Decreto Ejecutivo N° 36824-JP del 24 de agosto de 2011 y se reformó el Reglamento de Órganos Jerárquicos Superiores del Ministerio de Justicia y Paz, con el fin de establecer como superiores jerárquicos, subordinados y colaboradores obligados del Ministro o Ministra de Justicia y Paz a cargo, al Viceministro/a de Paz, Viceministro/a de Asuntos Penitenciarios y al Viceministro/a de Gestión Estratégica.
+V.—Que en virtud de las diversas necesidades a las que se enfrenta el Estado costarricense, en específico en materia penitenciaria, se requiere apego a la legalidad conforme a lo establecido en la Ley Orgánica del Ministerio de Justicia y Paz N° 6739, sobre la estructura organizacional y ocupacional de las dependencias principales, las cuales actúan bajo la coordinación del Ministro/a a cargo, dicha estructura fue conocida y aprobada mediante oficio DM-560-13 del 15 de octubre del 2013, suscrito por el Sr. Roberto Gallardo Núñez, Ministro de Planificación y Política Económica, para ese entonces. Por tanto,
+Decretan:
+Artículo 1º—Reformar el artículo 2° del Reglamento de Órganos Jerárquicos Superiores del Ministerio de Justicia y Paz, Decreto Ejecutivo N° 37360-JP publicado en La Gaceta N° 207 de 26 de octubre del 2012, para que en adelante se lea de la siguiente forma:
+“Artículo 2º—El Ministerio de Justicia y Paz contará con dos Viceministros, los cuales serán superiores jerárquicos subordinados y colaboradores obligados del Ministro (a) de Justicia y Paz, a saber:
+a) Viceministro de Justicia
+b) Viceministro de Paz.
+Las competencias de ambas instancias serán las previstas en la Ley Orgánica del Ministerio de Justicia y Paz N° 6739 y sus reformas, así como en el artículo 48 de la Ley General de la Administración Pública”.
