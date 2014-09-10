@@ -14,3 +14,4 @@ Reglamento de Adquisiciones y Proveeduría Municipal de la Municipalidad de Golf
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-19 | la propia norma |
+| 2 | 2014-09-10 | Reglamento municipal 35 (2014-09-10) |
