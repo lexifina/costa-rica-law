@@ -1,1 +1,0 @@
-Artículo 2º—Liquidación. Se entenderá por liquidación la cuantificación de la obligación tributaria, del crédito, o de la sanción aplicada, más los intereses; tomando en cuenta, cuando proceda, la distinción entre los créditos originados por pagos debidos o indebidos.

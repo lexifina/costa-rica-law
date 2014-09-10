@@ -1,2 +1,0 @@
-Transitorio I.—Liquidación de resoluciones confirmatorias del Tribunal Fiscal Administrativo. Deberán ser liquidados aquellos casos que sean confirmados por el Tribunal Fiscal Administrativo, cuya resolución de primera instancia fuera dictada antes de la vigencia de esta resolución, y por tanto no incluyeran la liquidación regulada por esta resolución general.
-(Así adicionado mediante resolución DGT-18-2010 del 25 de octubre de 2010)

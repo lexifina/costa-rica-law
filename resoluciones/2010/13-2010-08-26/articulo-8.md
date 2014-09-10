@@ -1,1 +1,0 @@
-Artículo 8º—Derogatorias. Deróguese la resolución DGT-23-01 de las ocho horas del 3 agosto del 2001, la resolución DGT- 445-09 de las nueve horas del día 29 de julio del 2009; así como toda otra norma de igual o menor rango que se le oponga.
