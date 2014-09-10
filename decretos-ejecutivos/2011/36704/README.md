@@ -14,3 +14,4 @@ Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-09 | la propia norma |
+| 2 | 2014-09-10 | Decreto Ejecutivo 38729 (2014-09-10) |
