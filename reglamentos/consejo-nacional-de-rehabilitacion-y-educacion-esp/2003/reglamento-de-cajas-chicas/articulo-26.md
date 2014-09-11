@@ -1,1 +1,0 @@
-Artículo 26.—El funcionario responsable del control de los fondos de caja chica, deberá comunicar por escrito a los funcionarios encargados del manejo de las cajas chicas, de las responsabilidades establecidas en el presente Reglamento.

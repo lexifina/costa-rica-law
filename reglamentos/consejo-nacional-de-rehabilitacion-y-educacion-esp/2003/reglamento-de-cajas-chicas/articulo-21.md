@@ -1,1 +1,0 @@
-Artículo 21.—No se reintegrarán facturas con fecha anterior al último reintegro, salvo casos que se justifiquen satisfactoriamente por escrito, ante el Jefe del Departamento Administrativo Financiero y que no contravengan lo dispuesto en los artículos 7,8,9,10 y 11.
