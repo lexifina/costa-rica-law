@@ -1,0 +1,1 @@
+Artículo 4° — Se modifica la numeración de los artículos 17 y 18 de la Directriz Presidencial Nº 009-H, publicada en La Gaceta Nº 137 de 17 de julio de 2014, para que se lean artículos 16 y 17 respectivamente.
