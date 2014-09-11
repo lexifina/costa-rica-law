@@ -1,0 +1,3 @@
+Artículo 35. Medio de comunicación para remitir documentos e información.
+El medio oficial para remisión de comunicaciones, así como antecedentes e informes de una sesión de Junta Directiva, será el correo electrónico; sin embargo, dependiendo de las circunstancias y de las facilidades que existan en el lugar se podrá valorar otro medio de envió de los documentos.
+Es un deber de los Directores de Junta Directiva registrar su correo electrónico, reportar cualquier cambio ante la Secretaria de Actas. De igual forma, es un deber de los Propietarios y Suplentes revisar la correspondencia recibida y los comunicados enviados por la Secretaria de Junta Directiva al correo electrónico registrado.

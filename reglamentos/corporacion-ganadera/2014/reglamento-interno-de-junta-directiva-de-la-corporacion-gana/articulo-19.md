@@ -1,0 +1,3 @@
+Artículo 19. Mociones.
+Las peticiones o proposiciones reciben el nombre de mociones. Estas deben ser presentadas verbales o por escrito a la Junta Directiva, quien las analizara y emitirá su resolución.
+Las mociones de orden han de referirse necesariamente a aspectos de procedimiento y estas tienen prioridad en la discusión. En caso de que un director este en contra de la moción de orden, esta se someterá a debate con la participación máxima de dos directores, uno a favor y uno en contra de la moción. En la discusión la Presidencia podrá externar su criterio a favor o en contra, después de que se haya agotado el uso de la palabra.
