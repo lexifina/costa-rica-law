@@ -14,3 +14,4 @@ Reforma al Reglamento para la Evaluación y Calificación de la Calidad del Serv
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-02 | la propia norma |
+| 2 | 2014-09-11 | Decreto Ejecutivo 38603 (2014-09-11) |
