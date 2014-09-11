@@ -1,0 +1,6 @@
+Artículo 8° ̶ Naturaleza del Sistema de Costos
+El sistema de costos será de naturaleza multiestándar, de forma que para cada período se obtengan los costos de los servicios según los estándares siguientes:
+1. Contabilidad de Costos Históricos (CH) o retrospectivos, se refiere a los costos efectivamente registrados y contabilizados en los libros del operador, sin otros aditamentos, de modo que reflejan los costos efectivamente incurridos. Se basa en la asignación de la totalidad de los costos provenientes de las cuentas contables de la Contabilidad Financiera.
+2. Contabilidad de Costos Corrientes (CC): metodología que actualiza los Costos Históricos sobre la base de un uso eficiente de los recursos, que implica el empleo de la tecnología disponible más actualizada en términos económicos, de modo que el costo no represente eventuales ineficiencias del operador.
+La modelización de ambos estándares tendrá un enfoque descendente, es decir Top-Down. En este modelo se debe partir de las cuentas contables que se obtienen de la Contabilidad Financiera del operador y adaptar su base de cálculo para ajustarse al estándar de costos que se establezca. En este modelo, la red existente es la fuente de información.
+La Sutel podrá solicitar la modificación o adición de algún otro estándar cuando lo considere necesario, así como de la modelización.

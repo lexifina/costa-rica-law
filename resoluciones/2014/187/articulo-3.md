@@ -1,0 +1,2 @@
+Artículo 3° ̶ Competencia y funciones
+De acuerdo al artículo 75 inciso a), punto ii), de la Ley de la Autoridad Reguladora de los Servicios Públicos, Ley No. 7593, la Sutel podrá imponer, a los operadores y/o proveedores, la obligación de suministro de información. En particular a los operadores o proveedores importantes, la Sutel podrá imponer la obligación de mantener Contabilidades de Costos Separadas para cada servicio, según lo ordena el numeral 75 inciso b), punto ii) de la Ley No. 7593.
