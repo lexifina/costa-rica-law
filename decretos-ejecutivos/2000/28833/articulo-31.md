@@ -1,1 +1,2 @@
-Artículo 31.—Entrada en vigencia. El presente reglamento entrará en vigencia 6 meses posteriores a su publicación en el diario oficial La Gaceta.
+Artículo 31.—Entrada en vigencia. (Derogado por el artículo 1° del decreto ejecutivo N°38603 del 11 de setiembre del 2014)
+(Nota de Sinalevi: Mediante el artículo 3° del decreto ejecutivo N° 38603 del 11 de setiembre del 2014, se establece que esta norma entra a regir a partir de la publicación en el Diario Oficial La Gaceta de la presente modificación, es decir el 12 de setiembre del 2014 fecha en que fue publicado el mismo)
