@@ -1,0 +1,4 @@
+Artículo 41°.- Forma de ejecución
+Las empresas interesadas en recibir esta ayuda complementaria no reembolsable deberán presentar su propuesta de proyecto según las especificaciones detalladas en la convocatoria.
+Deberá justificarse el proyecto y definirse la(s) contraparte(s). Por contraparte entendemos: la universidad, centro de investigación y desarrollo (público o privado legalmente constituido en el país o en el extranjero), institución de cooperación internacional, instituto tecnológico, empresa privada o asociación civil de carácter productivo, que ofrecerá a la empresa beneficiaria los servicios de desarrollo tecnológico aceptados en la convocatoria y necesarios para dar cumplimiento al proyecto.
+En el caso que la contraparte esté constituida legalmente en el país deberá estar registrada en el Registro Científico Tecnológico (RCT) del CONICIT.

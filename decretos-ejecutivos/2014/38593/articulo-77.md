@@ -1,0 +1,2 @@
+Artículo 77.- Cierre de la beca
+El beneficiario deberá presentar un informe final de resultados, que incluya la referencia de publicaciones indexadas derivadas de su posgrado, en el que se debe incluir la declaración jurada administrativa. El CONICIT evaluará el informe final de resultados, emitirá un reporte de evaluación de finalización de estudios y en caso de conformidad solicitará el cierre de beca a la Unidad Ejecutora.

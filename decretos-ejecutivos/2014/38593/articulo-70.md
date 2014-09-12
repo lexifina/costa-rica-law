@@ -1,0 +1,12 @@
+Artículo 70.- Condiciones de financiamiento
+En el siguiente cuadro, se muestran los montos máximos a financiar para estudiar dentro y fuera del país según el grado académico. Para estimar los montos se utilizará la tabla oficial de viáticos de la CGR y el costo del programa.
+Cuadro 11: Montos máximos a financiar por beca, dentro y fuera del país, según grado académico.
+Id | Posgrado | Plazo de máximo de ejecución | Monto máximo de la beca $ USD
+II.1.1 | Maestría nacional | 2 años | 22.400.00
+II.1.2 | Maestría en el exterior | 2 años | 119.850.00
+II.1.3 | Doctorado nacional | 4 años | 69.925.00
+II.1.4 | Doctorado en el exterior | 4 años | 199.860.00
+Los beneficios de la beca estarán vigentes hasta el mes siguiente a la fecha del examen de grado o instancia equivalente, siempre y cuando el plazo total no exceda el plazo máximo de ejecución, contado desde el inicio del programa de estudios. En ningún caso se podrán adjudicar fondos de forma retroactiva, tampoco se financiará la repetición de materias, ni financiamiento en el periodo de reposición de la misma, en caso de ser necesario. El becario deberá cumplir estrictamente con el periodo de ejecución.
+En el caso de que el becario ya sea alumno regular de un programa de maestría o doctorado, la beca sólo se le otorgará por el tiempo restante para completar el plazo original del programa de estudios. Este plazo se calculará tomando como fecha de inicio del programa, la fecha de ingreso por parte del beneficiario al programa de estudios que desea financiar y completar.
+Cuando el programa de doctorado contenga como requisito la realización previa de un magíster dentro del mismo, deberá postular directamente a una beca de doctorado y deberá especificar esta situación en la Carta de Aceptación de la universidad de destino. Sin perjuicio de lo expuesto, la suma de los períodos de entrega de beneficios entre el programa de magíster y doctorado, no podrá superar los 5 años contados desde la fecha de ingreso del postulante al primer programa.
+Previo a la firma del contrato, el beneficiario deberá estar inscrito en la red TICOTAL (http://ticotal.cr/), servir de punto de contacto para futuros becarios de este programa durante el desarrollo de su posgrado y realizar alguna actividad de transferencia de conocimiento una vez que culmine su contrato a solicitud del MICITT. De igual manera deberá estar dispuesto a colaborar con la evaluación de pares.

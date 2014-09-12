@@ -1,0 +1,3 @@
+Artículo 39°.- Beneficiarios Potenciales
+Serán beneficiarios de los fondos de éste componente las empresas individuales y/o grupos de empresas establecidas legalmente en el país e inscritas en el registro de PYMES del MEIC y que no se encuentren imposibilitadas legalmente para implementar el proyecto propuesto. Las empresas solicitantes deberán estar al día en sus obligaciones tributarias y patronales al momento de la presentación de su solicitud ante el MICITT(*).
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 181 del 17 de setiembre del 2015. Anteriormente indicaba: "Las empresas solicitantes deberán estar al día en al menos sus obligaciones tributarias y patronales al momento de la presentación de su solicitud ante el MICITT.")
