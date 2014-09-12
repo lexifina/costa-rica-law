@@ -11,3 +11,5 @@ i. Sustituir las unidades en caso de accidentes o desperfectos mecánicos en for
 j. Acatar las disposiciones emitidas por el Consejo y la Autoridad Reguladora sobre las condiciones en que debe prestarse el servicio.
 k. Poner en funcionamiento una Contraloría Interna de Servicios encargada de dar seguimiento y solución a las quejas presentadas por los usuarios. Para ello, los operadores llevarán un Registro Diario debidamente foliado de las gestiones presentadas y su resultado. Con base en ello, la Contraloría Interna elaborará un informe de control semestral, de acuerdo con el formato establecido al efecto en el MANUAL, que remitirá a la Contraloría de Servicios del MOPT o del Consejo, según corresponda.
 l. Las demás que establezca la ley y las restantes fuentes del Derecho aplicables.
+m. Brindar un servicio con un nivel mínimo de calidad B, de acuerdo con el Modelo y el Manual.
+(Así adicionado el inciso m) por el artículo 2 del Decreto Ejecutivo N° 29760 de 20 de agosto del 2001)

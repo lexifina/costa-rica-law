@@ -14,3 +14,4 @@ Reglamento para la Evaluación y Calificación de la Calidad del Servicio Públi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-12 | la propia norma |
+| 2 | 2014-09-12 | Decreto Ejecutivo 29760 (2001-08-20) |
