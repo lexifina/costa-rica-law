@@ -1,0 +1,2 @@
+Artículo 28.—Signos distintivos de calidad. El Consejo emitirá unos distintivos de excelencia de calidad, cuyo uso autorizará a aquellos operadores que hayan obtenido calificación A en los criterios Tipo O referidos en el artículo 12, y que los acreditarán por un plazo máximo de un año como operadores con servicio de transporte público de alta calidad. Para tales efectos el Consejo llevará un registro y establecerá los procedimientos correspondientes.
+El diseño del distintivo será definido en el MANUAL.

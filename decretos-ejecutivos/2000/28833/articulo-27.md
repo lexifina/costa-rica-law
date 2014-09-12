@@ -1,0 +1,1 @@
+Artículo 27.—Comunicación de criterios Tipo A. El Consejo comunicará los resultados de los criterios Tipo A, a los órganos y entes involucrados para lo de su competencia. Se remitirá copia de tal notificación a la Defensoría de los Habitantes para lo que corresponda.

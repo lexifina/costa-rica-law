@@ -1,0 +1,1 @@
+Artículo 22.—Procedimientos por deficiencias en la calidad. Cuando la calidad del servido obtenga en la columna correspondiente a los criterios tipo O, una calificación igual o inferior a C, el Consejo iniciará los procedimientos correspondientes de conformidad con lo que al efecto establezca el contrato de concesión.

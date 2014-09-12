@@ -1,0 +1,1 @@
+Transitorio I.—En el período de 6 meses posteriores a la publicación del reglamento, el Consejo de Transporte Público se abocará al perfeccionamiento del procedimiento de confección del registro de peritos, establecido en el decreto ejecutivo Nº 27893-MOPT.

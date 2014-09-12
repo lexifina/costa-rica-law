@@ -1,0 +1,1 @@
+Artículo 7º—Evaluación de la calidad de servicio. La calidad del servicio de transporte remunerado de personas será evaluada mediante la aplicación del MODELO de acuerdo con lo establecido en este Reglamento y en el MANUAL.

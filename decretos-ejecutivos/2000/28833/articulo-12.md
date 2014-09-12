@@ -1,0 +1,8 @@
+Artículo 12.—Criterios bajo responsabilidad del operador. Los criterios que definirán y evaluarán el grado de responsabilidad de los operadores en la calidad de servicio, y que para los efectos se denominarán CRITERIOS TIPO O, serán los siguientes:
+O.1. Cumplimiento de frecuencias y horarios: evalúa el grado de cumplimiento de las frecuencias y horarios establecidos para la ruta en cuestión, considerando de forma cruzada el grado de congestión vial del recorrido.
+O.2. Nivel de ocupación: evalúa la confortabilidad con base en un índice de comodidad medido en pasajeros/m2 , según el tipo de ruta.
+O.3. Cumplimiento de las especificaciones de la flota: evalúa el grado de cumplimiento por parte del operador, de las condiciones estipuladas por el Consejo, específicamente en lo que respecta al grado de aprovechamiento de la flota y al acatamiento de disposiciones técnicas.
+O.4. Mantenimiento de las unidades: evalúa el aseo y apariencia de los vehículos así como su mantenimiento interno y de tipo mecánico.
+O.5. Capacitación: evalúa el grado de capacitación de los choferes del transporte público, con base en la cantidad de personal que ostente el nivel de técnico de la conducción.
+O.6. Información al usuario: evalúa la cantidad, tipo, actualidad, veracidad y calidad de información referente al servicio que se brinde interna y externamente en los vehículos, en las paradas y en las terminales del servicio de transporte público.
+O.7. Contraloría Interna de Servicios de los Operadores: evalúa la existencia, buen funcionamiento y grado de efectividad de una Contraloría Interna de Servidos de la empresa, en lo relacionado con el trámite y resolución oportuna de las quejas presentadas por los usuarios.

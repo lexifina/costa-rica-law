@@ -1,0 +1,1 @@
+Artículo 21.—Reconocimiento tarifario de los costos del estudio. Para efectos tarifarios, únicamente se reconocerá el costo de un estudio de calidad de servicio por año, de acuerdo con las tarifas vigentes para el pago de peritos, establecidas por el Consejo.

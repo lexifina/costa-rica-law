@@ -1,0 +1,1 @@
+Artículo 15.—Calificación Global. Para obtener la calificación global de la ruta se calculará un promedio ponderado de la calificación obtenida en los criterios referidos en el numeral anterior y el resultado de la encuesta aplicada a los usuarios del servicio en cuestión, cuyos procedimientos estarán definidos en el Manual.

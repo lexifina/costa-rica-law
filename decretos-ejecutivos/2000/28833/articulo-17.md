@@ -1,0 +1,2 @@
+Artículo 17.—Eficacia y vigencia del estudio. Para todos los efectos, el estudio será válido a partir de la fecha de su aprobación por parte del Consejo y tendrá una vigencia máxima de un año contado a partir de tal aprobación.
+Para efectos del párrafo anterior se entenderá por "APROBACIÓN" el acto administrativo que manifiesta la conformidad del estudio con los procedimientos y metodologías definidas en el MODELO y el MANUAL.

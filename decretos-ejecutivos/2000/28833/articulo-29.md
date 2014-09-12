@@ -1,0 +1,2 @@
+Artículo 29.—Comunicación de resultados de evaluación. En febrero de cada año, el Consejo, en coordinación con la Autoridad Reguladora, publicará en el Diario Oficial La Gaceta y en un diario de circulación nacional, un listado detallado que comprenda los operadores evaluados en el año inmediato anterior y sus respectivas calificaciones, así como los operadores que no cuentan con un estudio y calificación actualizado.
+El Consejo remitirá copia de este listado a la Defensoría de los Habitantes de la República para lo de su cargo.

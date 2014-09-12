@@ -1,0 +1,2 @@
+Artículo 19.—Revisiones tarifarias. Para efectos de revisiones tarifarias, según lo dispuesto por el numeral 31, inciso b), aparte 3, de la Ley Nº 3503, el operador deberá presentar el estudio de calidad vigente en los términos del numeral 13 del presente reglamento.
+En los procedimientos de revisiones tarifarias instaurados de conformidad con el inciso a) del artículo 31 de la Ley Nº 3503, el Consejo está facultado para solicitar a los operadores involucrados se sirvan aportar el estudio vigente de calidad de servicio.

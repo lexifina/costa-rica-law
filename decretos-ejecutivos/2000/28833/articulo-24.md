@@ -1,0 +1,1 @@
+Artículo 24.—Incumplimiento de correcciones. Cuando injustificadamente el operador no haya acatado tales disposiciones en el plazo otorgado, el Consejo iniciará el procedimiento administrativo correspondiente para declarar la caducidad de la concesión o la cancelación del permiso de conformidad con lo dispuesto en los artículos 2º, 17, 24, 25 y siguientes de la Ley Nº 3503.

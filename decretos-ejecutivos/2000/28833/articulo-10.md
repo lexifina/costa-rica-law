@@ -1,0 +1,1 @@
+Artículo 10.—Criterio de evaluación. Para la evaluación de los elementos señalados en el artículo anterior, se utilizarán los criterios catalogados por el ámbito de responsabilidad tanto de la Administración como de los operadores, de conformidad con lo establecido en los numerales 11 y 12 siguientes y el MANUAL.

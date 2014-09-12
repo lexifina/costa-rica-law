@@ -1,0 +1,1 @@
+Artículo 25.—Evaluación de operadores sin estudio. En octubre de cada año, el Consejo determinará cuáles operadores no han sido evaluados, tomará las medidas para su evaluación e iniciará el procedimiento de sanción si corresponde.

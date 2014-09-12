@@ -1,0 +1,13 @@
+Artículo 4º—Obligaciones específicas del operador. Sin perjuicio de las demás obligaciones establecidas por las fuentes de derecho referidas en el numeral anterior y de cualesquiera otras que se establezcan por la Administración según lo estime pertinente, son obligaciones de los operadores, las siguientes:
+a. Cumplir con los horarios y frecuencias establecidos en los contratos y en los actos administrativos de los entes y órganos públicos competentes para fijarlos y modificarlos.
+b. Respetar las paradas autorizadas y la modalidad del servicio.
+c. Respetar la capacidad máxima de pasajeros por unidad, autorizada por el órgano público competente.
+d. Mantener la limpieza y el buen estado físico y mecánico de las unidades.
+e. Cumplir con las especificaciones técnicas, mecánicas y estructurales de la flota establecidas por el órgano competente.
+f. Cobrar únicamente la tarifa autorizada por la Autoridad Reguladora.
+g. Brindar información oportuna y adecuada a los usuarios. Esta información, de conformidad con la reglamentación vigente, debe incluir como mínimo la rotulación e identificación de cada unidad, información en paradas sobre las condiciones del servicio en relación con horarios, frecuencia, cambios de paradas, y cualquier otra información que permita al usuario un mejor aprovechamiento del servicio. Asimismo, colocar en lugares visibles y de fácil acceso para los usuarios, en las unidades, paradas y terminales la información relativa a las convocatorias a audiencia pública para debatir aumentos de tarifa.
+h. Tomar las medidas necesarias para que los choferes brinden un trato respetuoso y cortés a los usuarios y que su presentación personal sea la adecuada. Asimismo, adoptar las medidas para que en la prestación del servicio se garantice la seguridad y comodidad de los usuarios.
+i. Sustituir las unidades en caso de accidentes o desperfectos mecánicos en forma expedita de manera que la continuidad del servicio sufra las menores interrupciones posibles de acuerdo con las frecuencias autorizadas.
+j. Acatar las disposiciones emitidas por el Consejo y la Autoridad Reguladora sobre las condiciones en que debe prestarse el servicio.
+k. Poner en funcionamiento una Contraloría Interna de Servicios encargada de dar seguimiento y solución a las quejas presentadas por los usuarios. Para ello, los operadores llevarán un Registro Diario debidamente foliado de las gestiones presentadas y su resultado. Con base en ello, la Contraloría Interna elaborará un informe de control semestral, de acuerdo con el formato establecido al efecto en el MANUAL, que remitirá a la Contraloría de Servicios del MOPT o del Consejo, según corresponda.
+l. Las demás que establezca la ley y las restantes fuentes del Derecho aplicables.

@@ -1,0 +1,3 @@
+Artículo 16.—Realización del estudio. Una vez contratado el profesional que realizará el estudio, de conformidad con lo establecido en el decreto ejecutivo Nº 27893-MOPT, este contará con un plazo de tres meses calendario para finalizar el estudio contratado.
+Una vez realizado el estudio, el perito deberá remitir el estudio al Consejo para su respectiva aprobación, según lo establecido en el numeral 16.
+Para tales efectos, el Consejo contará con un plazo de 30 días naturales contados a partir de la recepción del estudio, para aprobar, improbar, o bien ordenar la elaboración de un nuevo estudio.

@@ -1,0 +1,1 @@
+Artículo 3º—Fuentes de obligaciones. Los operadores quedan sometidos en todo a las fuentes normativas definidas en el inciso e) del artículo anterior, durante todo el tiempo que se mantenga vigente su derecho de concesión o permiso.
