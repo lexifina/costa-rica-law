@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión podrá sesionar extraordinariamente en cualquier otro lugar del cantón, siempre y cuando así lo decida a lo interno la Comisión por simple mayoría de votos o por acuerdo del Concejo Municipal.

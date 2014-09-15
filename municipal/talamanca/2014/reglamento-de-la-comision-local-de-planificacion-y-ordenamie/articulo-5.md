@@ -1,0 +1,1 @@
+Artículo 5º—No podrán integrar esta Comisión de Planificación: el tesorero, el auditor y el contador Municipal, así como, sus cónyuges o parientes hasta segundo grado de consanguinidad o afinidad, así como los cónyuges del Alcalde, Vicealcalde y regidores.

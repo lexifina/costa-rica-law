@@ -1,0 +1,1 @@
+Artículo 16.—Cuando se produzca alguna vacante por la destitución de un miembro de la comisión el Concejo Municipal deberá comunicar el acuerdo a la entidad representada y a la persona afectada, dando las razones que fundamentaron su decisión.

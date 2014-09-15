@@ -1,0 +1,3 @@
+Artículo 28.—Toda iniciativa presentada por regidores, el alcalde/sa o persona fiscal o jurídica para adoptar, reformar, suspender o derogar disposiciones del plan de ordenamiento territorial, deben ser remitidas a la Comisión Local de Planificación Territorial para su estudio y recomendación al Concejo Municipal. Se determinara la respuesta en 30 días hábiles según la legislación vigente.
+Aprobado en la sesión extraordinaria Nº 07 de la Comisión Local de Planificación y Ordenamiento Territorial de Talamanca el día 23 del mes junio del año 2014, Acuerdo Nº 02 y ratificada por el Concejo Municipal en sesión ordinaria Nº 202 del 18 de julio del año 2014. Rige 11 días después de su publicación.
+Ciudad de Bribrí-Talamanca, 12 de agosto de 2014.—

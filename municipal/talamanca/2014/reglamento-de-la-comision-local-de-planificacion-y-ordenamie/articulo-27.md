@@ -1,0 +1,1 @@
+Artículo 27.—La Municipalidad facilitará a la Comisión de Planificación las instalaciones municipales y las facilidades en cuanto a transporte, uso de equipo y materiales de la municipalidad para el buen funcionamiento de sus fines incluyendo funcionarios administrativos.

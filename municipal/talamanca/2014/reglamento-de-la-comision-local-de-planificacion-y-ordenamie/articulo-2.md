@@ -1,0 +1,1 @@
+Artículo 2º—Una vez conformada y juramentada la Comisión de Planificación y Ordenamiento Territorial, ésta podrá nombrar, por consenso o mayoría calificada, las subcomisiones que considere pertinentes en aras de darle participación a todos los sectores del Cantón parte de la planificación territorial.

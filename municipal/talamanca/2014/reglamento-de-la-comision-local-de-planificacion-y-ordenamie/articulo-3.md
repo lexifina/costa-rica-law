@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros de la Comisión ejercerán sus cargos por un período de cuatro años, los representantes del Concejo Municipal ostentaran el nombramiento durante el periodo por el cual fueron nombrados como regidores. Cualquiera de los miembros de la C.P.O.T podrá ser reelegido por una única vez.

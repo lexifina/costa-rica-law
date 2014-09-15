@@ -1,0 +1,1 @@
+Artículo 10.—Los miembros de la Comisión Local de Planificación, una vez electos y juramentados nombrarán una junta directiva o directorio, que estará formada por un presidente, vicepresidente, secretario, cuatro vocales.

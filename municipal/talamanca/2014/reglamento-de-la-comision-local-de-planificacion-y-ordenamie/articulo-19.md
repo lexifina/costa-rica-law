@@ -1,0 +1,1 @@
+Artículo 19.—En caso de presentar la apelación y esta no sea acogida por el Concejo Municipal, ya sea por extemporánea o por que las razones aducidas no sean lo suficiente satisfactorias, se debe dar por agotada la vía administrativa.

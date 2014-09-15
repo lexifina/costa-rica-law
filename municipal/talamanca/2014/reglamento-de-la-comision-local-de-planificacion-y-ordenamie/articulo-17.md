@@ -1,0 +1,1 @@
+Artículo 17.—La decisión de separación tendrá recurso de apelación en forma escrita y especificada las razones que tiene para oponerse a tal decisión. Para ello contara con cinco días hábiles después de haber recibido la notificación. Transcurrido ese tiempo y si no se recibe ninguna oposición el acto quedará en firme.
