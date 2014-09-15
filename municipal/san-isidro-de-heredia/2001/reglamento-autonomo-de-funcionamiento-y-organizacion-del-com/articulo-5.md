@@ -1,9 +1,10 @@
 Artículo 5°—Corresponden al Comité Cantonal las siguientes atribuciones y obligaciones:
 a. Organizar, dirigir, vigilar, capacitar, promover y estimular la actividad deportiva en todos sus aspectos, promoviendo el deporte y la recreación como consecuencia de aquella; procurando el aprovechamiento libre de sus habitantes mediante una recreación saludable y se regirá por las disposiciones del presente Reglamento.
 b. Velar por el cuidado de las instalaciones que para el deporte y la recreación tiene la Municipalidad y el ICODER, ya sean en propiedad o en administración cuando ello se le solicite, para lo cual hará las gestiones necesarias tendientes a la conservación de dichas instalaciones en el mejor estado posible.
-c. Crear los reglamentos internos del Comité Cantonal para la organización y funcionamiento de sus dependencias, así como las reformas que se promulguen a estos posteriormente.
-Todo reglamento interno que dicte el Comité Cantonal, debe sometido a consideración, análisis y aprobación del Concejo Municipal, ente que lo aprobará en forma definitiva con las modificaciones que considere convenientes.
-Cuando lo anterior no se dé, se tendrán por no válidas las disposiciones reglamentarias que se hayan dictado.
+c) Crear los reglamentos internos del Comité Cantonal para la organización y funcionamiento de sus dependencias, así como las reformas que se promulguen a éstos posteriormente.
+Todo reglamento interno que dicte el Comité Cantonal, deberá ser sometido a consideración, análisis y aprobación del Concejo Municipal, ente que lo aprobará en forma definitiva con las modificaciones que considere convenientes. Cuando lo anterior no se dé, se tendrán por no válidas las disposiciones reglamentarias que se hayan dictado.
+El Comité también podrá emitir sus propios procedimientos internos de carácter meramente administrativo, los cuales deberá necesariamente poner en conocimiento del Concejo Municipal, previo a su utilización.
+(Así reformado el inciso c) anterior mediante sesión ordinaria N° 57-2014 del 15 de setiembre del 2014)
 d. Resolver los conflictos que pudieran presentarse con motivo de la aplicación o interpretación de sus mismos reglamentos y resoluciones.
 e. Convocar al nombramiento de Comités Comunales y de las Comisiones de apoyo.
 f. Juramentar a las personas que nombre como acto previo a la toma de posesión de sus cargos.
@@ -16,7 +17,8 @@ l. Capacitar técnicamente a los colaboradores de los distritos del cantón para
 m. Divulgar e informar sobre el desarrollo de sus actividades.
 n. Nombrar y sancionar en su actividad a los empleados del Comité Cantonal conforme a las leyes laborales vigentes.
 o. Elevar a la Galería del Deporte la designación de atleta, entrenador o dirigente distinguido del cantón, para su estímulo correspondiente.
-p. Elaborará anualmente un programa de trabajo, el cual abarcara los proyectos, propósitos y acciones que el mismo desarrollara en el periodo comprendido entre el 1c de enero y 31 de diciembre de cada año. Dicho programa de trabajo justificará el presupuesto anual del Comité Cantonal, y deberá ser presentado al Concejo Municipal para su conocimiento y aprobación en el transcurso de la primera semana del mes de julio de cada año.
+p. Elaborará anualmente un programa de trabajo, el cual abarcará los proyectos, propósitos y acciones que el mismo desarrollará en el período comprendido entre el 1° de enero y 31 de diciembre de cada año. Dicho programa de trabajo justificará el presupuesto anual del Comité Cantonal, y deberá ser presentado al Concejo Municipal para su conocimiento en el transcurso de la primera semana del mes de julio de cada año.
+(Así reformado el inciso p) anterior mediante sesión ordinaria N° 57-2014 del 15 de setiembre del 2014)
 q. Presentar anualmente ante el Concejo Municipal, las tarifas a cobrar por los derechos de alquiler de las instalaciones deportivas y recreativas de lodo el cantón, así como las tarifas a cobrar por la publicidad en dichas instalaciones. El Concejo Municipal será el ente que en definitiva aprueba dichas tarifas.
 r. Deberá remitir al Concejo Municipal a más tardar el 15 de diciembre de cada año, un informe de las labores realizadas, así como un informe económico-contable de ingresos y egresos del periodo, así como la justificación de los mismos.
 s. Coordinara con la Municipalidad, lo concerniente a sus inversiones y obras en el cantón. La Municipalidad deberá proporcionarles un local que será su sede y todas las facilidades para el cabal cumplimiento de sus fines.
