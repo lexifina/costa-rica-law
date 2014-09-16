@@ -14,3 +14,4 @@ Manual de Reglamentos Administrativos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-27 | la propia norma |
+| 2 | 2014-09-16 | Reglamento 0 (2014-09-16) |
