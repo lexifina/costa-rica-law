@@ -30,3 +30,4 @@ Céd. Jur 3-008-134912
 (Modificado por el artículo 1° del decreto ejecutivo N° 38522 del 19 de junio del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38610 del 1° de agosto del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38613 del 1° de agosto del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38600 del 18 de agosto del 2014)
