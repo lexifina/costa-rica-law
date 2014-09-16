@@ -18,3 +18,4 @@ Manual de Procedimientos para el pago de Servicios Ambientales
 | 3 | 2010-03-01 | Reglamento 0 (2010-03-01) |
 | 4 | 2012-06-25 | Ley 9046 |
 | 5 | 2014-09-09 | Reglamento 1 (2014-09-09) |
+| 6 | 2014-09-16 | Reglamento 6 (2014-09-16) |
