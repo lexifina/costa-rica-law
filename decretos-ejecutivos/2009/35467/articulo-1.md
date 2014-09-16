@@ -41,6 +41,26 @@ Enmienda No. 7 con fecha 21 de setiembre. 2010 a la Carta de Entendimiento firma
 IN23CRXP - Interdicción Regional Marítima y Terrestre (en adelante, IN23CRND – Interdicción Regional Marítima y Terrestre
 Las descripciones completas y las metas del proyecto se describen en las secciones II y III a continuación. Todas las otras obligaciones, términos y condiciones incluidas en la Carta de Entendimiento con fecha 17 de junio del 2009 se mantienen en plena vigencia y efecto.
 El futuro financiamiento de estos proyectos por parte del Gobierno de Estados Unidos de América estará sujeto a la disponibilidad de fondos debidamente autorizados y asignados, al avance del satisfactorio en cuanto a las metas del proyecto y la aprobación del Departamento de Estado de los Estados Unidos de América.")
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 38699 del 16 de setiembre del 2014, se promulga teniendo como vigente para los efectos internos y externos, las enmiendas diecisiete y dieciocho a la presente Carta de Entendimiento sobre la Iniciativa Regional de Seguridad para América Central, entre el Gobierno de los Estados Unidos de América y el Gobierno de la República de Costa Rica, cuyos textos literales son los siguientes:
+MODIFICACIÓN / ENMIENDA NÚMERO DIECISIETE
+A LA CARTA DE ENTENDIMIENTO SOBRE LA
+INICIATIVA REGIONAL DE SEGURIDAD
+PARA AMÉRICA CENTRAL (CARSI)
+DE FECHA 17 DE JUNIO DEL 2009
+ENTRE
+EL GOBIERNO DE LOS ESTADOS UNIDOS DE AMÉRICA
+Y EL GOBIERNO DE LA REPÚBLICA DE COSTA RICA
+I. General. El Gobierno de los Estados Unidos de América y el Gobierno de la República de Costa Rica, (en lo sucesivo individualmente una “Parte” o, colectivamente las “Partes”) acuerdan modificar y enmendar la Carta de Entendimiento suscrita por el Gobierno de los Estados Unidos de América y el Gobierno de la República de Costa Rica, firmada el 17 de junio del 2009, (el “Acuerdo”) en el siguiente sentido:
+II. Modificación. El Gobierno de los Estados Unidos de América estará proporcionando recursos adicionales por un monto de $4,850,000 para los proyectos descritos en la Carta de Entendimiento firmada el 17 de junio del 2009 y en las enmiendas posteriores a la carta de entendimiento. La descripción y los objetivos del proyecto se mantienen tal como se describen en la Carta de Entendimiento firmada el 17 de junio del 2009 y en las enmiendas posteriores a la carta de entendimiento. Todas las demás obligaciones, términos, condiciones, mediciones de éxito, disposiciones y condiciones se mantienen en plena vigencia y efecto.
+MODIFICACIÓN / ENMIENDA NÚMERO DIECIOCHO
+A LA CARTA DE ENTENDIMIENTO SOBRE LA INICIATIVA
+REGIONAL DE SEGURIDAD PARA AMÉRICA CENTRAL
+(CARSI) DE FECHA 17 DE JUNIO DEL 2009
+ENTRE
+EL GOBIERNO DE LOS ESTADOS UNIDOS DE AMÉRICA
+Y EL GOBIERNO DE LA REPÚBLICA DE COSTA RICA
+I. General. El Gobierno de los Estados Unidos de América y el Gobierno de la República de Costa Rica, (en lo sucesivo individualmente una “Parte” o, colectivamente las “Partes”) acuerdan modificar y enmendar la Carta de Entendimiento suscrita por el Gobierno de los Estados Unidos de América y el Gobierno de la República de Costa Rica, firmada el 17 de junio del 2009, (el “Acuerdo”) en el siguiente sentido:
+II. Modificación. El Gobierno de los Estados Unidos de América estará proporcionando recursos adicionales por un monto de $3.550,000 para los proyectos descritos en la Carta de Entendimiento firmada el 17 de junio del 2009 y en las enmiendas posteriores a la carta de entendimiento. Las partes acuerdan que los fondos adicionales se pueden proporcionar para este fin, de conformidad con los mismos términos y condiciones estipulados en la Carta de Entendimiento firmada el 17 de junio del 2009, en su versión enmendada, sin mayor necesidad de modificar el acuerdo para reflejar el monto de los fondos proporcionados. El Gobierno de los Estados Unidos de América notificará al Gobierno de la República de Costa Rica el momento en el cual, los recursos adicionales se encuentren disponibles para apoyar los proyectos. La descripción y los objetivos del proyecto se mantienen tal como se describen en la Carta de Entendimiento firmada el 17 de junio del 2009 y en las enmiendas posteriores a la Carta de Entendimiento. Todas las demás obligaciones, términos, condiciones, mediciones de éxito, disposiciones y condiciones se mantienen en plena vigencia y efecto.")
 (*) II.—DESCRIPCIÓN DE LOS PROYECTOS.
 Los proyectos a desarrollar según los términos de esta Carta de Entendimiento (LOA) como parte de la Iniciativa Mérida se enumeran a continuación. El Gobierno de los Estados Unidos y el Gobierno de Costa Rica emprenderán las acciones y comprometerán los recursos cada año según lo autoricen sus respectivos procesos legislativos en apoyo a esta Carta de Entendimiento (LOA).
 Las Partes pueden aumentar, modificar o terminar los proyectos que se emprendan en conexión con esta Carta de Entendimiento (LOA) según lo acuerden las Partes por escrito. Dichas modificaciones al proyecto estarán sujetas a los términos y condiciones de esta Carta de Entendimiento (LOA).

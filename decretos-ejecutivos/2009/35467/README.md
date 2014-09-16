@@ -20,3 +20,4 @@ Promulga teniendo como vigente para los efectos internos y externos la Carta de 
 | 5 | 2011-11-29 | Decreto Ejecutivo 36987 (2011-11-29) |
 | 6 | 2012-11-19 | Decreto Ejecutivo 37490 (2012-11-19) |
 | 7 | 2013-06-17 | Decreto Ejecutivo 37816 (2013-06-17) |
+| 8 | 2014-09-16 | Decreto Ejecutivo 38699 (2014-09-16) |
