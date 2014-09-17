@@ -1,1 +1,1 @@
-Artículo 15º—Procedimiento. Para garantizar el cumplimiento de las funciones de los miembros. El comité funcionara en apego a lo estipulado en el procedimiento PR23CS01 Adquisición de Bienes o servicios.
+Artículo 15.—Procedimiento. Para garantizar el cumplimiento de las funciones de los miembros. El comité funcionará en apego a lo estipulado en el procedimiento PR23CS01 Adquisición de Bienes o servicios.

@@ -1,1 +1,1 @@
-Artículo 14º—Regulación. En lo no regulado expresamente aquí, se regirá por lo dispuesto en la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Corredora de Seguros.
+Artículo 14.—Regulación. En lo no regulado expresamente aquí, se regirá por lo dispuesto en la Ley de Contratación Administrativa y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Corredora de Seguros.
