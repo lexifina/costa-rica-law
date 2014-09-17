@@ -1,5 +1,9 @@
-Artículo 2º—Las funciones de la Comisión son las siguientes:
-a) Dar apoyo técnico al Ministerio de Salud en la definición, formulación, diseño y evaluación de las políticas orientadas a garantizar el cumplimiento de los derechos en salud sexual y reproductiva de las personas que habitan en el país.
-b) Dar lineamientos sobre contenidos y mecanismos de implementación de programas dirigidos a la atención, educación, capacitación, promoción y difusión de los derechos reproductivos y sexuales.
-c) Contribuir en la elaboración de instrumentos jurídicos en salud reproductiva y sexual.
-d) Fomentar la consolidación y funcionamiento de Consejerías en Salud y Derechos Reproductivos y Sexuales en los diferentes establecimientos de atención en salud.
+Artículo 2°—La comisión tendrá como fin, el constituirse en un espacio permanente de dialogo, toma de decisiones conjunta entre las instituciones del Estado y la sociedad civil y de rendición de cuentas vinculadas con la defensa y garantía del derecho a una sexualidad segura, informada y corresponsable, para lo cual sesionará ordinariamente, una vez al mes.
+El quórum para sesionar estará conformado por la mitad más uno de las personas integrantes. Sera convocada con al menos quince días de anticipación por el representante del Ministerio de Salud, quien la coordinará, y se sesionara de manera extraordinaria, cuando se estime necesario con al menos la tercera parte de sus integrantes.
+Además serán funciones de esta Comisión las siguientes:
+a) Contribuir a la promoción y defensa del derecho a la vivencia de una sexualidad segura, informada, corresponsable para todas las personas que habitan este país, como parte integral del derecho humano a la salud.
+b) Promover la definición, formulación, desafío y evaluación de políticas, planes programas o proyectos orientados a garantizar una atención a la salud sexual y reproductiva oportuna con equidad, calidad, calidez, seguridad, universalidad solidaridad, accesibilidad e inclusión social.
+c) Fortalecer la articulación y coordinación intersectorial en la defensa y promoción del derecho a una sexualidad integral.
+d) Analizar y hacer recomendaciones con base en la información derivada del cumplimiento de la Política Nacional de Sexualidad 2010-2021, que posibiliten mayor integralidad y coherencia en su consecución.
+e) Promover actividades para la rendición de cuentas a la ciudadanía y autoridades estatales a nivel nacional y local de las diferentes instancias vinculadas con la Política Nacional de Sexualidad, con participación de la sociedad civil.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38797 del 17 de setiembre del 2014)

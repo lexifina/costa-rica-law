@@ -12,12 +12,16 @@ Considerando:
 7º—Que en la atención de la salud o de la enfermedad se genera la obligación de fortalecer la autonomía y respetar la integridad de las personas para tomar decisiones relativas a su salud.
 8º—Que el respeto a la autonomía y a la integridad exigen en los servicios de salud, el intercambio horizontal y respetuoso de conocimientos y saberes, por medio de una verdadera educación y participación social en salud, que hacen posible una construcción solidaria y humana del derecho a la salud. Por tanto,
 Decretan:
-Artículo 1º—Créase la Comisión Interinstitucional sobre Salud y Derechos Reproductivos y Sexuales, en adelante denominada "la Comisión", la cual estará conformada así:
-a) El Ministro de Salud o su representante, quien la coordina.
-b) La Ministra de la Condición de la Mujer o su representante.
-c) El Gerente Médica de la Caja Costarricense de Seguro Social, o su representante del área técnica correspondiente.
-d) Un delegado (a) del Colegio de Médicos y Cirujanos de Costa Rica.
-e) Un delegado (a) del Colegio de Enfermeras de Costa Rica.
-f) Un delegado (a) del Colegio de Trabajadores Sociales.
-g) Dos representantes de Organismos No Gubernamentales que trabajan en el campo de la salud de las mujeres.
-h) Un representante de las instancias especializadas en estudios de género de las universidades públicas.
+Artículo 1°—Créase la “Comisión Interinstitucional sobre Salud y Derechos Reproductivos y Sexuales” en adelante denominada “La Comisión”, la cual estará conformada por un:
+a) Representante del Ministerio de Salud, quién la coordina (MS).
+b) Representante del Ministerio de Educación Pública (MEP).
+c) Representante de la Caja Costarricense de Seguro Social (CCSS).
+d) Representante del Instituto Nacional de las Mujeres (INAMU).
+e) Representante del Consejo Nacional de Rehabilitación y Educación Especial (CNREE).
+f) Representante del Patronato Nacional de la Infancia (PANI).
+g) Representante del Consejo Nacional de la Persona Adulta Mayor (CONAPAM).
+h) Representante del Consejo de la Persona Joven (PJ).
+i) Representante del Consejo Nacional de Rectores (CONARE).
+j) Cuatro (4) Representantes de la Sociedad Civil (afínes al tema y que trabajen en defensa de los derechos sexuales y reproductivos).
+El representante será nombrado por el jerarca de cada institución, y para los cuatro (4) representantes de la sociedad civil, se llevará a cabo una convocatoria abierta que hará a sus integrantes la Red de Organizaciones por los Derechos Sexuales y Reproductivos, (Red D Ser) quienes elegirán por votación los cuatro (4) representantes.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38797 del 17 de setiembre del 2014)

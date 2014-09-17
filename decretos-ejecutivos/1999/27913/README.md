@@ -14,3 +14,4 @@ Comisión de Salud Derechos Reproductivos y Sexuales (Esterilizaciones)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-06-09 | la propia norma |
+| 2 | 2014-09-17 | Decreto Ejecutivo 38797 (2014-09-17) |
