@@ -1,0 +1,1 @@
+Transitorio. Se establece un plazo de dos años a partir de la publicación de las reformas al presente reglamento para que las personas que ejerzan la función notarial se inscriban ante la Sección de Inscripciones para declarar digitalmente los matrimonios que celebren.’
