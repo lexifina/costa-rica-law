@@ -1,0 +1,1 @@
+Artículo 6º—Recorrido. El vehículo de uso semidiscrecional podrá ser utilizado por la o el Viceministro del Ministerio Comercio Exterior para trasladarse a los lugares que requiera en razón de su cargo y con motivo de sus funciones, lo que incluye el traslado desde y hacia su residencia.

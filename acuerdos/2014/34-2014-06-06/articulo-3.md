@@ -1,0 +1,1 @@
+Artículo 3º—Conducción. El vehículo de uso semidiscrecional sólo podrá ser conducido por la o el Viceministro de Comercio Exterior, el o la chofer institucional designado regularmente para su servicio o quien lo sustituya.

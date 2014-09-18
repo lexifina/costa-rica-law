@@ -1,0 +1,1 @@
+Artículo 2º—Definición y características. El vehículo de uso semidiscrecional estará destinado de forma exclusiva al servicio de la o el Viceministro del Ministerio Comercio Exterior, con la finalidad de facilitar y mejorar el desempeño de sus funciones. Este vehículo podrá portar placas particulares y no tendrá marcas visibles que lo distingan como vehículo oficial.
