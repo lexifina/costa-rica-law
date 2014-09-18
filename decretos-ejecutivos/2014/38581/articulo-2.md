@@ -1,0 +1,1 @@
+Artículo 2º—El pago de las dietas a los miembros del Consejo Nacional de Desarrollo de la Comunidad, queda sujeto al presupuesto de la Dirección Nacional de Desarrollo de la Comunidad, y a la asistencia de cada miembro a las sesiones, previo control establecido al efecto.
