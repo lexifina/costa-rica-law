@@ -1,0 +1,2 @@
+Artículo 2º—De conformidad con la Decisión de la Comisión de Libre Comercio sobre la Eliminación de Aranceles Aduaneros en el Programa de Desgravación Arancelaria de Costa Rica para el inciso Arancelario 2005.80.00 de fecha 25 de abril de 2014; dicha disposición entrará a regir treinta días después de la publicación del presente Decreto Ejecutivo en el Diario Oficial La Gaceta.
+Dado en la Presidencia de la República, San José, a los veintiséis días del mes de mayo del año dos mil catorce.
