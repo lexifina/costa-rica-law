@@ -17,3 +17,4 @@ Definición de procesos, procedimientos y disposiciones regulatorias para la imp
 | 2 | 2013-05-29 | Resolución 178 (2013-05-29) |
 | 3 | 2013-09-18 | Resolución 266 (2013-09-18) |
 | 4 | 2014-07-02 | Resolución 149 (2014-07-02) |
+| 5 | 2014-09-19 | Resolución 236 (2014-09-19) |
