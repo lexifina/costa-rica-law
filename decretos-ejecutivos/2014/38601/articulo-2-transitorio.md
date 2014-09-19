@@ -1,0 +1,1 @@
+Transitorio II.—Para la convocatoria de becas-taller que se realiza en el año 2014, el plazo para la recepción de proyectos será de un mes y medio, en las fechas que al efecto convoque la Dirección de Cultura. En todo lo demás, las disposiciones del presente reglamento se aplicarán tal y como se establece.

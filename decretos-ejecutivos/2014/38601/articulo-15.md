@@ -1,0 +1,1 @@
+Artículo 15.—Oficinas de recepción de proyectos. Los proyectos podrán presentarse en las oficinas centrales de la Dirección de Cultura o en las Oficinas de Gestión Cultural ubicadas en las provincias de Alajuela, Heredia, Cartago, San José, Limón, Guanacaste, Puntarenas, y las regiones de la Zona Norte o de la Zona Sur.

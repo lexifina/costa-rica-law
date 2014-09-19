@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones Finales
+Artículo 22.—Otorgamiento de mención y reconocimiento al Ministerio de Cultura y Juventud. En el desarrollo del proyecto, el beneficiario deberá otorgar la mención y el reconocimiento correspondientes al Ministerio de Cultura y Juventud, a la Dirección de Cultura, y al Fondo becas-taller, como entidades que financian y facilitan la ejecución de su proyecto. Esto se hará en todo material gráfico, digital, promocional, entre otros, que se utilice. Igualmente, en toda actividad pública o privada en que se lleven a cabo las tareas y acciones propias de la ejecución del proyecto, tendrá la obligación de identificarse como “beneficiario(a) del Fondo becas-taller”; para lo que el Ministerio facilitará la credencial respectiva.

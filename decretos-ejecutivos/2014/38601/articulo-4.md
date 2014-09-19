@@ -1,0 +1,2 @@
+Artículo 4º—Alcance. El Fondo becas-taller, está enfocado en financiar proyectos de creadores, intérpretes, investigadores, productores, promotores, gestores o cualquier otro trabajador de la cultura, sean personas físicas o jurídicas, que tengan como objetivo el desarrollo cultural de las comunidades o agrupaciones sociales.
+El Fondo podrá financiar proyectos que tengan contrapartes provenientes del sector privado o del sector público, siempre y cuando se cumplan todos los requisitos establecidos en el presente reglamento.

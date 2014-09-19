@@ -1,0 +1,1 @@
+Transitorio I.—Las becas-taller que estuvieren en ejecución al momento de entrar en vigencia el presente reglamento, continuarán ejecutándose conforme a la normativa vigente al momento de su otorgamiento.

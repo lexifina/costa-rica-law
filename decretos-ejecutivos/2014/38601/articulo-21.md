@@ -1,0 +1,2 @@
+Artículo 21.—Evaluación del proyecto. El becario estará en la obligación de brindar las facilidades necesarias para que su proyecto sea evaluado por la Dirección de Cultura y sus gestores regionales, por medio de informes, visitas y sesiones de análisis, que medirán el alcance de las metas y objetivos propuestos.
+Para la presentación de informes, la Dirección de Cultura pondrá a disposición del becario(a), el formulario correspondiente y determinará la periodicidad y el medio -en cada caso concreto-, en el que deberán ser presentados estos informes de ejecución.

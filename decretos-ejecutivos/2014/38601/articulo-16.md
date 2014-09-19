@@ -1,0 +1,3 @@
+Artículo 16.—Subsanación de defectos. Recibida la propuesta, se emitirá una boleta de recibido a la persona postulante. La aceptación de la solicitud no implicará en ningún caso la aprobación del proyecto.
+Si se verifica que el proyecto presentado no cumple con los requisitos establecidos, se prevendrá al postulante el subsane de éstos, otorgándole un plazo de diez días hábiles para este fin. El incumplimiento de lo requerido en estas prevenciones, podría implicar la exclusión de la propuesta presentada, bajo la exclusiva responsabilidad del postulante.
+Subsanado lo anterior, se continuará con el proceso de escogencia de los proyectos.
