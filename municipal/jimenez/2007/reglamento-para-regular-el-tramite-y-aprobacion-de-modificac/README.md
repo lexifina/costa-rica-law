@@ -14,3 +14,4 @@ Reglamento para Regular el Trámite y Aprobación de Modificaciones Presupuestar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-15 | la propia norma |
+| 2 | 2014-09-22 | Reglamento municipal 212 (2014-09-22) |
