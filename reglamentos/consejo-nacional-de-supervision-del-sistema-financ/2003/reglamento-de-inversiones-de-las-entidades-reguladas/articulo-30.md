@@ -11,10 +11,9 @@ b. Valores emitidos o garantizados en contravención a lo establecido en el art�
 c. Títulos o valores que hayan sido dados en garantía, o que sean objeto de gravámenes, embargos o anotaciones al momento de adquirirse, salvo las operaciones en recompras y reportos.
 d. Derogado.
 e. El otorgamiento de préstamos ni avales a sus afiliados o accionistas con recursos de los fondos administrados, ni con sus propios recursos. Se exceptúa el Régimen del Fondo de Pensiones del Poder Judicial en el cual los préstamos deben realizarse de conformidad con lo establecido en el artículo 238 de la Ley Orgánica del Poder Judicial.
-(*)f) Salvo lo dispuesto en leyes especiales, las entidades reguladas no podrán invertir los recursos de los fondos en:
-a. Valores emitidos o garantizados por cualquiera de las empresas del grupo de interés económico o del grupo o conglomerado financiero al que pertenezca la entidad regulada, producto de procesos de titularización de activos, independientemente del vehículo utilizado o de la separación patrimonial que pueda existir respecto de las empresas que integran el grupo de que se trate.
-b. Valores originados en emisiones en cuya estructuración haya participado cualquiera de las empresas del grupo de interés económico o del grupo o conglomerado financiero al que pertenezca la entidad regulada.
-(*)(Así adicionado el inciso anterior mediante sesión N° 814 del 23 de octubre de 2009)
+f) Salvo lo dispuesto en leyes especiales, las entidades reguladas no podrán invertir los recursos de los fondos en valores emitidos o garantizados por cualquiera de las empresas del grupo de interés económico o del grupo o conglomerado financiero al que pertenezca la entidad regulada”.
+(Así adicionado el inciso f)anterior mediante sesión N° 814 del 23 de octubre de 2009)
+(Así reformado el inciso f) anterior en sesión N° 1127 del 22 de setiembre de 2014)
 El presente artículo se aplicará al Régimen de Capitalización Colectiva de Pensiones y Jubilaciones del Magisterio Nacional cuando no se oponga a prohibiciones o autorizaciones expresas establecidas en materia de inversiones en la ley especial que lo regula.
 (Así reformado mediante sesión N°642 del 25 de abril del 2007).
 (Corrida su numeración mediante sesión N°562 del 02 de marzo del 2006, que lo pasó del anterior N°28 al N°30 actual).
