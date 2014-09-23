@@ -1,0 +1,1 @@
+Artículo 16.—Modificación de parámetros para el cálculo de la caución. A partir de la vigencia de este Reglamento, la Oficina de Recursos Humanos realizará un estudio de actualización del cálculo del monto de la garantía que deben rendir los caucionantes y proponer los ajustes que considere deben ser aplicados.

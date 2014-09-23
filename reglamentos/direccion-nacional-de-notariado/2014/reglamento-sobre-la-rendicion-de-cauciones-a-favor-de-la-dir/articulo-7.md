@@ -1,0 +1,1 @@
+Artículo 7º—Caucionantes a nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos, los Miembros del Consejo Superior Notarial propietarios y suplentes durante todo el tiempo de su nombramiento.

@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución a favor de la Dirección Nacional de Notariado se hará mediante la suscripción con cargo al peculio del funcionario obligado a rendir caución, de un seguro o póliza de fidelidad ante la entidad aseguradora del Estado.

@@ -1,0 +1,1 @@
+Artículo 10.—Caucionantes a nivel D. En este nivel deben rendir caución quienes desempeñen alguna de las funciones que se cita a continuación: encargados del área de Tesorería y Contabilidad, Presupuesto, los encargados de cajas chicas, los custodios de valores.
