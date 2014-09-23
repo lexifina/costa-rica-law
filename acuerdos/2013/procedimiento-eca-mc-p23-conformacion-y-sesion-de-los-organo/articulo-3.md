@@ -5,7 +5,6 @@
 - ECA-MC-P23-F03 Agenda
 - ECA-MC-P23-F04 Lista de asistencia
 - ECA-MC-P23-F05 Acta
-- ECA-MC-P23-F06 Evaluación del desempeño Órganos Colegiados
 - ECA-MC-P01 Confidencialidad, imparcialidad y objetividad.
 - Ley General de la Administración Pública número 6227, 02 de mayo de 1978. Capítulo III del Título II del Libro I.
 - Ley del Sistema Nacional para la Calidad número 8279, 06 de Octubre del 2004.

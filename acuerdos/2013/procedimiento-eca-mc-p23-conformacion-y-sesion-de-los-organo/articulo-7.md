@@ -9,7 +9,7 @@ c) Dirigir el debate con estricto apego a este procedimiento, la normativa aplic
 d) Presidir, suspender por causa justificada y reanudar el debate, decretar recesos y dar por terminada la sesión y/o reunión del órgano colegiado.
 e) Poner a discusión los asuntos, someter a votación las propuestas y puntos de agenda cuando las considere suficientemente discutidas y dar a conocer a los miembros del órgano colegiado el resultado de la votación.
 f) En caso de empate en la votación, ejercer doble voto.
-g) Verificar y declarar el resultado de la votación en cada caso, para lo cual podrá apoyarse en la Secretaría del Organo Colegiado Respectivo.
+g) Verificar y declarar el resultado de la votación en cada caso, para lo cual podrá apoyarse en la Secretaría del Órgano Colegiado Respectivo.
 h) Conceder la palabra en el orden que haya sido solicitada por cada miembro levantando la mano, de manera que la presidencia (O Coordinador) lo vea.
 i) Retirar la palabra cuando haya concluido el tiempo de que disponía el orador, cuando éste se desvíe del tema en discusión o cuando aluda a personas o entidades con palabras inconvenientes.
 j) Proporcionar las aclaraciones y ampliaciones solicitadas por cada miembro del órgano.
@@ -44,8 +44,7 @@ k) Firmar las resoluciones que emanen del órgano, en ausencia del Presidente o 
 7.4.1 Las deliberaciones de cada órgano colegiado se realizarán con base en informes, resoluciones, mociones, asuntos propios del orden del día, o de la agenda, o aquellos sometidos por la Presidencia (O Coordinador), con la aprobación del órgano colegiado de que se trate. Se presentarán por escrito, cuando así lo ordene la Presidencia (O Coordinador), a solicitud de la Secretaría, o cuando así lo disponga expresamente éste Reglamento.
 7.4.2. Cuando se presente a discusión algún punto de agenda o moción en la cual no puedan participar uno o varios miembros del órgano colegiado, el o los afectados deben abandonar la sala, se discute el tema y se toma la decisión; se reincorpora el miembro a la sesión; y se le informa sobre la determinación tomada sin que este pueda emitir su voto o comentario.
 7.4.3. Los acuerdos de cada órgano colegiado serán tomados por mayoría absoluta de los miembros presentes, salvo los casos en que la Ley, el Reglamento de Estructura Interna y Funcionamiento del ECA disponga mayoría diferente.
-7.4.4. El órgano colegiado podrá declarar la firmeza de cualquier acuerdo en la misma sesión, con el voto de la mayoría calificada (dos terceras partes de la totalidad que conforman el órgano).
-En caso contrario, los acuerdos tomados por los órganos colegiados quedarán en firme hasta la siguiente sesión ordinaria o extraordinaria, presencial o electrónica en la que se apruebe el acta, a menos que se interponga y prospere un recurso de revisión, conforme a lo dispuesto en el artículo siguiente.
+7.4.4. El órgano colegiado podrá declarar la firmeza de cualquier acuerdo en la misma sesión, con el voto de la mayoría calificada (dos terceras partes de la totalidad que conforman el órgano). En caso contrario, los acuerdos tomados por los órganos colegiados quedarán en firme hasta la siguiente sesión ordinaria o extraordinaria, presencial o electrónica en la que se apruebe el acta, a menos que se interponga y prospere un recurso de revisión, conforme a lo dispuesto en el artículo siguiente.
 7.5 DE LAS MOCIONES Y DE LOS RECURSOS.
 7.5.1 Cuando sea necesario, los integrantes de los órganos colegiados pueden presentar mociones, una moción es el medio para adicionar, modificar o transformar una propuesta. Las mociones pueden ser: de orden, de forma, de fondo, de revisión, de apelación y de sustitución:
 a De orden: Son las que proponen modificar el procedimiento para adoptar acuerdo, pero no el fondo de la propuesta o del asunto en debate. Todo aquel punto que no se refiera a temas de fondo, de las decisiones, se discutirá sobre la base de una moción de orden.
@@ -57,8 +56,7 @@ f De revocatoria: Es el recurso ordinario interpuesto frente a la decisión toma
 g De apelación: Son una interpelación a la Presidencia (O Coordinador) del órgano colegiado sobre una decisión que ésta ha tomado. Son similares a una moción de orden pero dirigida a quien preside, para que cambie una decisión que haya tomado.
 h De sustitución: Únicamente se presentan cuando hayan sido aceptados los recursos de revisión.
 7.5.2. La moción de enmienda tendrá por objeto lograr alguna modificación a la moción principal en discusión, pero deberá tratar sobre el mismo asunto que ésta. Podrá presentarse una moción de sustitución, la cual será tratada antes de la moción de enmienda. Las mociones que traten sobre un asunto diferente de la moción principal en discusión no podrán considerarse sino en el orden que corresponda. Por simple declaración verbal, el proponente de una moción podrá aceptar o rechazar una expresión que aumente, disminuya o modifique el texto de su moción original.
-7.5.3. Las mociones de orden han de referirse necesariamente a cuestiones de procedimientos y tienen prioridad en la discusión. CONFORMACIÓN Y SESIÓN DE LOS ÓRGANOS COLEGIADOS Código N : ECA-MC-P23 Páginas: 14 de 28 Fecha emisión: 24.09.2013 Versión: 03
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
+7.5.3. Las mociones de orden han de referirse necesariamente a cuestiones de procedimientos y tienen prioridad en la discusión.
 7.5.4. La moción de orden que pretenda cerrar el debate, será puesta en discusión cuando termine en el uso de la palabra quien en ese acto la esté ejerciendo. Si la moción de cierre del debate fuese aprobada por el órgano colegiado de que se trate, de inmediato se pasará a la votación del asunto.
 7.5.5. Los miembros de los órganos colegiados podrán presentar mociones de revisión y de revocatoria contra los acuerdos y demás disposiciones aprobadas por aquellos.
 7.5.6. La moción de revisión podrá presentarse una sola vez a solicitud de cualquier miembro del órgano colegiado, siempre que lo solicite antes de la aprobación del acta en discusión. La Presidencia (O Coordinador) someterá a consideración la solicitud de revisión. Ésta procederá si obtiene el mismo número de votos con que fue aprobada. Una vez aprobado el citado recurso, el proponente debe presentar una moción de sustitución para modificar el fondo del asunto. Para su aprobación se requiere mayoría de los miembros presentes.
@@ -88,7 +86,7 @@ i) Cada Acta debe contener los siguientes anexos:
 - ECA-MC-P23-F03 Agenda
 - ECA-MC-P23-F04 Lista de asistencia
 - Otros documentos (Ejemplo: Copia de las resoluciones tomadas, cuando aplique).
-7.6.12. Las actas de los órganos colegiados podrán ser digitales o digitalizadas, las cuales, en razón de la aplicación de las tecnologías, deben asegurar la trazabilidad en su contenido de tal manera que no ofrezcan duda alguna de su integridad y veracidad, utilizando herramientas de firma digital u otros que brinden seguridad.
+7.6.11. Las actas de los órganos colegiados podrán ser digitales o digitalizadas, las cuales, en razón de la aplicación de las tecnologías, deben asegurar la trazabilidad en su contenido de tal manera que no ofrezcan duda alguna de su integridad y veracidad, utilizando herramientas de firma digital u otros que brinden seguridad.
 7.7 CAUSALES DE IMPEDIMENTO Y RECUSACIÓN.
 7.7.1. Son causales de impedimento y recusación de los miembros de los órganos colegiados del ECA:
 a) Tener interés directo en los asuntos que se conozcan.

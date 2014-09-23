@@ -51,7 +51,7 @@ d Un representante de los otros sectores involucrados, mencionados en el artícu
 e Los coordinadores de las Secretarías de Acreditación con que cuente el ECA, según su estructura orgánica
 6.3.2 Suplencias. Los suplentes son nombrados de la misma forma que los miembros propietarios.
 - El representante suplente sólo ostentará las funciones y atribuciones del propietario, en los siguientes casos:
-a. En casos de ausencia temporal..
+a. En casos de ausencia temporal.
 b. En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél.
 6.3.3 Vigencia. Los miembros propietarios y suplentes serán nombrados por un período de seis años y podrán ser reelectos sucesivamente.
 6.3.4 Coordinador y Secretario
@@ -64,6 +64,7 @@ Para el adecuado funcionamiento del ECA, y de conformidad con las necesidades de
 - Los miembros de los Comités Asesores deben contar con experiencia mínima de 3 años en el área de calidad, conocimientos en materia de evaluación de la conformidad específica y afín al tipo de OEC para el cual se integra el Comité Asesor y grado académico mínimo de bachiller universitario. [CAs]
 - En el caso de Comités Asesores para áreas nuevas de acreditación, se permite que los miembros cuenten con experiencia mínima de un año en temas de calidad y que tengan conocimientos afines al tipo de evaluación de conformidad a realizar por el tipo de OEC para el cual se integra el Comité.
 Nota: En caso de que en áreas nuevas el requisito de experiencia no se pueda cumplir, el ECA procurará formar a los miembros con el fin de solventar o compensar las brechas de competencia identificadas.
+Los Comités Asesores están conformados de la siguiente manera: [CAs]
 a. Un integrante del sector gubernamental.
 b. Un integrante del sector empresarial.
 c. Un integrante del sector de usuarios de los servicios de acreditación.
@@ -80,10 +81,10 @@ b. En todos los otros casos de ausencia definitiva del propietario, hasta que el
 6.4.3 Vigencia. Los miembros de los Comités Asesores serán nombrados por un periodo de tres años, podrán ser reelectos sucesivamente.[CA]
 6.4.4 Coordinador y Secretario
 - Coordinador: Cada Comité Asesor será presidido por la Secretaría de Acreditación respectiva. [SA]
-- Secretario: Un miembro de la Secretaría de Acreditación respectiva será nombrado para este cargo. [SA]
+- Secretaría. Un Secretario de Acreditación del área respectiva será nombrado para este cargo. [SA]
 - Durante todo el tiempo que las Secretarías de Acreditación sean órganos unipersonales, el coordinador desempeñará también las funciones de Secretario. [SA]
-En caso de ausencia del coordinador, el Comité Asesor será presidido por el Secretario del dicho Órgano Colegiado.
-6.4.5 Votación: Cuando en las sesiones del Comité Asesor se tome cualquier decisión, el ECA participará con un voto, siendo esta responsabilidad del Secretario de Acreditación nombrado como Coordinador. [SA]
+En caso de ausencia del coordinador, el Comité Asesor será presidido por el Secretario del dicho Órgano Colegiado. [SA]
+6.4.5 Votación: Cuando en las sesiones del Comité Asesor se tome cualquier decisión, el ECA participará con un voto, siendo este responsabilidad del Secretario de Acreditación nombrado como Coordinador. [SA]
 En caso de que el Comité Asesor lo requiera, para analizar o tratar un tema en específico, puede invitar a expertos que considere necesario. Estos expertos contarán con voz, pero no con voto.
 6.5 Comités Técnicos ad hoc
 El ECA podrá conformar Comités Técnicos ad hoc que le permitan tener acceso a la pericia necesaria en el desarrollo de temas específicos (Ejemplo: Formulación de una política, elaboración de una Guía de aplicación, etc.).
@@ -101,9 +102,7 @@ La Comisión de Acreditación establecerá en cada caso, el plazo prudente y nec
 El Coordinador y Secretario se deben elegir en la sesión de instalación de su seno.
 6.6 Comité Disciplinario ad hoc
 El ECA, cuando de oficio como consecuencia de las tareas de seguimiento y fiscalización, por queja o denuncia de cualquier interesado, se conozca de un posible incumplimiento de las obligaciones del OEC o se sospeche de un quebrantamiento jurídico, conformará Comités Disciplinarios ad hoc.
-El Comité Disciplinario ad hoc es el órgano director responsable de cumplir el procedimiento de investigación de la Comisión de Acreditación para instruir y averiguar los hechos sobre CONFORMACIÓN Y SESIÓN DE LOS ÓRGANOS COLEGIADOS Código N : ECA-MC-P23 Páginas: 9 de 28 Fecha emisión: 24.09.2013 Versión: 03
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
-posibles incumplimientos de las obligaciones establecidas para los Organismos de Evaluación de la Conformidad acreditados.
+El Comité Disciplinario ad hoc es el órgano director responsable de cumplir el procedimiento de investigación de la Comisión de Acreditación para instruir y averiguar los hechos sobre posibles incumplimientos de las obligaciones establecidas para los Organismos de Evaluación de la Conformidad acreditados.
 6.6.1 Conformación
 - La Comisión de Acreditación es la encargada de nombrar los Comités Disciplinarios ad hoc.
 - El número de miembros de cada Comité Disciplinario ad hoc debe ser impar. [CA]
@@ -115,12 +114,12 @@ d Otro(s) miembro(s), si la Comisión de Acreditación considere tomando como re
 Nota: Puede convocarse a la Secretaría de Acreditación del área relacionada con el OEC sujeto del proceso administrativo, con voz pero sin voto, para que exponga técnicamente el expediente del OEC. La Secretaría acudirá a las sesiones en condición de apoyo técnico no como miembro del Comité ad hoc.
 6.6.2 Suplencias
 No aplica.
-6.6.4 Vigencia
+6.6.3 Vigencia
 La Comisión de Acreditación establecerá en cada caso, el plazo prudente y necesario para ejecutar las labores y competencias asignadas a dichos Comités Disciplinarios ad hoc de conformidad con la Ley General de Administración Pública. [CA]
-6.6.5 Coordinador y Secretario
+6.6.4 Coordinador y Secretario
 El Coordinador y Secretario se deben elegir en la sesión de instalación de su seno.
 6.7 Comité Asesor para el mantenimiento del CEE:
-El Comité Asesor para el mantenimiento del CEE (CAMCEE) fue creado para brindar apoyo a la Gestoría de Calidad y la Comisión de Acreditación en el proceso técnico administrativo relacionado al recurso humanos del cuerpo de evaluadores y expertos técnicos del ECA.
+El Comité Asesor para el mantenimiento del CEE (CAMCEE) fue creado para brindar apoyo a la Gestoría de Calidad y la Comisión de Acreditación en el proceso técnico administrativo relacionado a los recursos humanos del cuerpo de evaluadores y expertos técnicos del ECA.
 6.7.1 Conformación
 La Gestoría de Calidad, presenta a la Comisión de Acreditación para su aprobación, los candidatos a formar parte del Comité Asesor para el Mantenimiento del CEE con la competencia necesaria para realizar las funciones designadas a este comité. [GC]
 El número de miembros de este comité debe ser impar.
@@ -129,3 +128,14 @@ Los miembros deben tener competencia técnica demostrada para el objetivo de con
 Coordinador: será presidido por un miembro del CAMCEE, elegido de entre sus integrantes, por el término de un año, pudiendo ser reelegido períodos consecutivos. En caso de ausencia del coordinador, será presidida por la Gestoría de Calidad encargada de dar el apoyo administrativo. [CA]
 Secretario: El representante de la Gestoría de Calidad será nombrado para este cargo. [CA]
 6.7.3 Votación: Cuando en las sesiones del CAMCEE se tome cualquier decisión, el ECA participará con un voto, siendo esta responsabilidad del representante de la Gestoría de Calidad en el comité.
+6.8 Grupo de las Secretarías de Acreditación:
+Con el fin de revisar los informes finales de evaluación para cualquier tipo de evaluación y confirmar el estado de acreditación de los OEC acreditados o recomendar en los procesos de seguimiento, se ha establecido un Grupo de las Secretarías de Acreditación
+6.4.6 Conformación y sesión
+- El Grupo de las Secretarías será conformado por el personal de las Secretarías de Acreditación que incluyen a los coordinadores, profesionales y dirección técnica de las Secretarías de Acreditación.
+- Se definirá un listado de las personas con la competencia para votar por cada área técnica.
+- Los procesos pueden ser analizados por todos los miembros del grupo, pero la confirmación del estado de acreditación y la clasificación de las no conformidades requiere de al menos dos de las personas con la competencia técnica específica para el caso.
+6.4.7 Coordinador y Secretario
+- Coordinador: Será elegido por cada proceso analizado.
+- Secretario: El Grupo elige de entre sus integrantes un secretario, que debe ser alternado cada año.
+6.4.8 Votación: Cuando en las sesiones del Grupo se tome cualquier decisión, se requiere como mínimo dos votos y en caso de empate el Coordinador elegido tiene doble voto. No pueden votar las personas que hayan participado en el proceso de evaluación o tengan algún conflicto de interés.
+En cualquier momento, el Grupo puede invitar a expertos que los asesoren para tratar temas específicos. Estos expertos contarán con voz, pero no con voto.

@@ -1,15 +1,11 @@
 8 REQUISITOS DE FORMACION Y EXPERIENCIA DE LOS INTEGRANTES DE LOS ÓRGANOS COLEGIADOS.
 A continuación se describen los requisitos, conocimientos, obligaciones, responsabilidades, características personales de todos los integrantes de los diferentes órganos colegiados:
 8.1 Junta Directiva
-8.1.1 Autoridad y responsabilidad
+Autoridad y responsabilidad
 La Junta Directiva tiene autoridad en la toma de decisiones jerárquicas para el desarrollo óptimo de la organización. Los miembros tienen la responsabilidad de mantener informado al sector que representa y cumplir con la participación activa y permanente.
 Cargo al que reporta: Consejo Nacional para la Calidad
-Cargos que le reportan: Comité Ejecutivo
-Comisión de Acreditación
-Comités Asesores o comités especiales ad-hoc.
-Gerente
-Auditor Interno Financiero
-8.1.2 Funciones
+Cargos que le reportan: Comité Ejecutivo. Comisión de Acreditación. Comités Asesores o comités especiales ad-hoc. Gerente. Auditor Interno Financiero
+Funciones
 - Velar por el cumplimiento de la misión del ECA, las disposiciones de la Ley 8279, el Reglamento de Estructura Interna y Funcionamiento del ECA, sus propios acuerdos, resoluciones, directrices y órdenes; así como la demás normativa vigente y aplicable a esta materia.
 - Emitir la reglamentación necesaria y oportuna relativa a las políticas generales y los planes estratégicos del ECA.
 - Acordar, reformar y aprobar el reglamento interno de trabajo
@@ -32,47 +28,52 @@ Auditor Interno Financiero
 - Sesionar conforme el procedimiento establecido por ECA.
 - Cualquier otra que disponga el ordenamiento que rige sobre esta materia, incluyendo la Ley del Sistema Nacional para la Calidad, el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación y la normativa interna del ECA.
 - Representar adecuadamente los intereses del sector al que pertenece.
-8.1.3 Requisitos
+Requisitos
 Lo establecido en el artículo 23 de la Ley 8279 del Sistema Nacional para la Calidad.
-8.1.4 Experiencia
+Experiencia
 Conocimientos en temas de calidad y evaluación de conformidad.
-8.1.5 Características personales
+Características personales
 No aplica, debido a que el sector que nombra al representante tiene la autonomía para determinar dichas características.
 8.2 Comité Ejecutivo
-8.2.1 Autoridad y responsabilidad
+Autoridad y responsabilidad
 Este Comité tiene la autoridad para presentar recomendaciones ante la Junta Directiva y Gerencia sobre temas específicos y además tiene la responsabilidad de cumplir con lo que establece el Reglamento de Estructura Interna y Funcionamiento del ECA y lo que le asigne la Junta Directiva.
 Cargo al que reporta: Junta Directiva
 Cargos que le reporta: No aplica
-8.2.2 Funciones
+Funciones
 - Dar seguimiento a la adecuada ejecución del Plan Anual Operativo y el presupuesto.
 - Autorizar los permisos de salida del país y disfrute de vacaciones de la Gerencia.
 - Revisar y proponer a la Junta Directiva el nombramiento y remoción cuando sea necesario de los encargados de las Secretarías de Acreditación, conforme los procedimientos establecidos, para que la Gerencia prepare el informe correspondiente para la aprobación final por parte de la Junta Directiva.
+- Conocer y analizar los recursos de apelación que se eleven a conocimiento de la Junta Directiva y presentarlos conjuntamente con un informe resumen para conocimiento de este órgano colegiado.
+- Presentar en los plazos que se le determinen los informes sobre investigaciones y proyectos que le asigne la Junta Directiva.
+- Dar recomendaciones, hacer observaciones y entregar propuestas dentro del ámbito de la competencia propia de la Junta Directiva.
+- Elaborar propuestas de modificación sustitución o derogación del Reglamento de Estructura Interna y Funcionamiento del ECA.
+- Recomendar a la Gerencia con base en lo establecido en los planes estratégicos, las ideas prácticas y técnicas así como las mejores vías, direcciones y caminos a seguir para la adecuada implementación y gestión del ECA.
+- Adoptar acuerdos propios de su función que no sean competencia de otros órganos colegiados que componen el ECA.
 - Apoyar a la Gerencia en el análisis técnico y administrativo de situaciones que requieran la participación de directivos y en los cuales la Gerencia no pueda tomar las decisiones finales, en aras de permitir una gestión fluida y transparente. Dicho apoyo incluye la búsqueda de soluciones conjuntas para la resolución de problemas de índole técnico, operativo y político.
-8.2.3 Requisitos
+Requisitos
 Lo establecido en el artículo 23 de la Ley 8279 del Sistema Nacional para la Calidad.
-8.2.4 Experiencia
+Experiencia
 No aplica, debido a que la Junta Directiva cuando nombra este Comité pretende la presentación equilibrada de los intereses.
-8.2.5 Características personales
+Características personales
 Aplican las mismas características personales de los representantes de la Junta Directiva.
 8.3 Comisión de Acreditación
-8.3.1 Autoridad y responsabilidad
+Autoridad y responsabilidad
 La Comisión de Acreditación tiene total autoridad en la toma de decisiones referidas al proceso de evaluación y acreditación de los OEC, la integración y destitución de los integrantes del cuerpo de evaluadores y expertos técnicos del ECA.
 Cargo al que reporta: Junta Directiva
-Cargos que le reportan: Comités Asesores
-Comités Técnicos ad hoc
-8.3.2 Funciones
-- Resolver sobre las acreditaciones, ampliaciones y renovaciones, previa comprobación del cumplimiento de los requisitos respectivos.
+Cargos que le reportan: Comités Asesores y Comités Técnicos ad hoc
+Funciones
+- Resolver sobre las acreditaciones, ampliaciones y reevaluaciones (decisiones de mantener la acreditación), previa comprobación del cumplimiento de los requisitos respectivos.
 - Nombrar el órgano director encargado de realizar la investigación de los procedimientos de investigación y sancionar a los entes acreditados que incumplan la Ley 8279 y su reglamento.
 - Sancionar a los Organismos de Evaluación de la Conformidad acreditados que incumplan el ordenamiento jurídico, la Ley del Sistema Nacional para la Calidad y el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación
 - Aprobar los procesos de incorporación que cumplan con los requisitos establecidos por el ECA, así como los procesos de ampliación de área de competencia presentados, para integrar el Cuerpo de Evaluadores y Expertos Técnicos del ECA.
 - Nombrar los Comités Asesores de las Secretarías de Acreditación y cualquier otro comité técnico ad-hoc que resulte necesario, solicitar informes sobre el desarrollo de sus labores cuando lo considere necesario.
 - Cumplir con lo que indique la Ley 8279, el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación y los procedimientos de ECA.
-8.3.3 Requisitos
+Requisitos
 Licenciatura o Bachiller Universitario.
-8.3.4 Experiencia
+Experiencia
 Experiencia reconocida en el ramo así como la educación, la destreza, el conocimiento técnico para las actividades de acreditación por desarrollar.
 Para personal ECA un año de experiencia en funciones de la Secretaría de Acreditación respectiva.
-8.3.5 Características personales
+Características personales
 Visión estratégica
 Toma de decisiones bajo presión
 Facilidad de expresión oral y escrita
@@ -86,25 +87,31 @@ Empatía
 Proactivo
 Apertura al cambio
 8.4 Comités Asesores de las Secretarías de Acreditación
-8.4.1 Autoridad y responsabilidad
+Autoridad y responsabilidad
 Los Comités Asesores de las Secretarías de Acreditación tienen la autoridad de emitir criterios técnicos en cuanto a los procesos de evaluación y acreditación.
 Cargo al que reporta: Comisión de Acreditación y Secretaría de Acreditación
 Cargos que le reportan: Ninguno.
-8.4.2 Funciones
+Funciones
 - Emitir criterios técnicos en temas específicos a solicitud de la Junta Directiva, Comisión de Acreditación, Gerencia y de la Secretaría de Acreditación respectiva.
 - Elaborar e interpretar documentos técnicos de apoyo en los procesos de evaluación de la conformidad.
 - Apoyar técnicamente el funcionamiento de las Secretarías de Acreditación, en el ámbito de su competencia.
 - Analizar, sugerir o proponer modificaciones a la Gestoría de Calidad, para mejorar o actualizar los procedimientos de los esquemas de acreditación.
 - Emitir recomendaciones técnicas a solicitud de la Secretaría de Acreditación respectiva, sobre la admisibilidad de la solicitud
-- Emitir recomendaciones sobre otorgar, ampliar o denegar la acreditación.
-- Decidir sobre las opiniones divergentes del OEC respecto a las no conformidades presentadas en la reunión de cierre.
+- Emitir recomendaciones sobre:
+o Mantener para los procesos de reevaluación
+o Ampliar el alcance de acreditación
+o Otorgar la acreditación.
+o Iniciar procesos de investigación para las reevaluaciones, después de la verificación de acciones correctivas, cuando sea necesario.
+o No otorgar o no ampliar la acreditación.
+- Los Comités Asesores de Certificación y Organismos Validadores/Verificadores, deben confirmar el estado de acreditación de los OEC específicos, además revisar los informes finales de evaluación para clasificar las no conformidades para los OC y OV/V.
+- Decidir sobre las opiniones divergentes del OEC.
 - Cumplir con lo que indique la Ley 8279, el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación y los procedimientos de ECA.
-8.4.3 Requisitos
+Requisitos
 Bachiller Universitario.
-8.4.4 Experiencia:
+Experiencia:
 Tres años de experiencia en el área de calidad y Evaluación de Conformidad según aplique (laboratorios, organismos de certificación, organismos de inspección, organismos validadores verificadores).
 Para personal ECA un año de experiencia en funciones de la Secretaría de Acreditación respectiva.
-8.4.5 Características personales
+Características personales
 Toma de decisiones bajo presión
 Facilidad de expresión oral y escrita
 Capacidad de negociación
@@ -117,17 +124,17 @@ Empatía
 Proactivo
 Apertura al cambio
 8.5 Comité Técnico Ad-hoc
-8.5.1 Autoridad y responsabilidad
+Autoridad y responsabilidad
 Estos Comités tienen la autoridad de emitir criterio técnico específico a solicitud de la Comisión de Acreditación.
 Cargo al que reporta: Comisión de Acreditación
 Cargos que le reportan: Ninguno.
-8.5.2 Funciones
-- Se determinan de acuerdo a las necesidades y al tipo de solicitud de cada área de acreditación del ECA.
-8.5.3 Requisitos
+Funciones
+Se determinan de acuerdo a las necesidades y al tipo de solicitud de cada área de acreditación del ECA.
+Requisitos
 Conocimiento específico y ampliamente demostrado en temas relacionados a la actividad a desarrollar.
-8.5.4 Experiencia
+Experiencia
 Conocimientos técnicos relacionados con los temas específicos que se recomiendan para su estudio.
-8.5.5 Características personales
+Características personales
 Toma de decisiones bajo presión
 Facilidad de expresión oral y escrita
 Capacidad de negociación
@@ -140,18 +147,18 @@ Empatía
 Proactivo
 Apertura al cambio
 8.6 Comité Disciplinario ad- hoc
-8.6.1 Autoridad y responsabilidad
+Autoridad y responsabilidad
 Es el órgano director responsable del procedimiento administrativo nombrado por la Comisión de Acreditación, para instruir y averiguar los hechos sobre posibles incumplimientos de las obligaciones establecidas de los Organismos de Evaluación de la Conformidad acreditados.
 Cargo al que reporta: Comisión de Acreditación
 Cargo que le reportan: No aplica.
-8.6.2 Funciones
+Funciones
 - Investigar la verdad real de los hechos de manera objetiva con relación al incumplimiento de las obligaciones establecidas de los Organismos de Evaluación de la Conformidad acreditados.
 - Presentar informes sobre las averiguaciones realizadas a la Comisión de Acreditación.
-8.6.3 Requisitos
+Requisitos
 No aplica. La conformación de los comités disciplinarios ad hoc se establecen en el ECA-MC-P23 Conformación y sesión de los órganos colegiados.
-8.6.4 Experiencia
+Experiencia
 No aplica. La conformación de los comités disciplinarios ad hoc se establecen en el ECA-MC-P23 Conformación y sesión de los órganos colegiados
-8.6.5 Características personales
+Características personales
 Toma de decisiones bajo presión
 Facilidad de expresión oral y escrita
 Capacidad de negociación
@@ -188,3 +195,17 @@ Cargos que le reportan: No aplica
 - Toma de decisiones bajo presión
 - Facilidad de expresión oral y escrita
 - Capacidad de trabajo en equipo
+8.8 Grupo de las Secretarías de Acreditación
+8.8.1 Autoridad y responsabilidad
+El grupo de las Secretarías de Acreditación tienen la autoridad de emitir criterios técnicos en cuanto a los procesos de evaluación y acreditación.
+Cargo al que reporta: Comisión de Acreditación.
+Cargos que le reportan: Ninguno.
+8.8.2 Funciones
+- Apoyar técnicamente el funcionamiento de las Secretarías de Acreditación, en el ámbito de su competencia.
+- Analizar, sugerir o proponer modificaciones a la Gestoría de Calidad, para mejorar o actualizar los procedimientos de los esquemas de acreditación.
+- Clasifica las no conformidades de todos los tipos de procesos de evaluación.
+- Confirma el estado de acreditación para los procesos de seguimiento.
+- Recomienda a la Comisión de Acreditación, iniciar procesos de investigación, en los casos que no se pueda confirmar el estado de acreditación o en casos de incumplimientos de los criterios de acreditación que pongan en riesgo la acreditación o afectan la validez técnica de las actividades acreditadas.
+- Cumplir con lo que indique la Ley 8279, el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación y los procedimientos de ECA.
+8.8.3 Requisitos para tener derecho a voto en el Grupo de las Secretaría.
+Podrán emitir voto durante la revisión de los procesos las personas calificadas como evaluadores en la norma respectiva. Para el caso de Laboratorios Clínicos, pueden emitir voto los miembros calificados como evaluadores en 17025 y que cuenten con un curso de la norma 15189.
