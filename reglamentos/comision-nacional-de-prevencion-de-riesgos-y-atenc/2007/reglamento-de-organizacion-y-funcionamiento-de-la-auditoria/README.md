@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Comi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-14 | la propia norma |
+| 2 | 2014-09-24 | Reglamento 10 (2014-09-24) |

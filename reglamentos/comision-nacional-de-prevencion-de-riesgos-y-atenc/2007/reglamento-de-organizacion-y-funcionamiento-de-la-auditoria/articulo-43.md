@@ -8,6 +8,6 @@ f) Acatar las disposiciones y recomendaciones emanadas de la Contraloría Genera
 g) Facilitar y entregar la información solicitada por la Asamblea Legislativa, a excepción de la información considerada como confidencial, la cual se suministrará únicamente a comisiones legislativas de investigación debidamente acreditadas, observando en todo caso lo dispuesto por el artículo 6 de la Ley de Control Interno y el artículo 8 de la Ley contra la Corrupción.
 h) No ocasionar recargos, atrasos e inconvenientes excesivos a las operaciones, servicios y a la gestión de los auditados al realizar sus labores de auditoría.
 i) Ser prudentes y fundamentar con efectividad, los contenidos de las diversas comunicaciones orales y escritas que se emitan.
-j) Dar seguimiento a los reportes de bienes hechos al amparo del artículo 43 del Reglamento a la Ley contra la Corrupción.
-k) Fiscalizar el cumplimiento de las funciones encomendadas a la Unidad de Recursos Humanos en la Ley contra la Corrupción y su Reglamento, de conformidad con su plan de trabajo.
-l) Cumplir los otros deberes atinentes a su competencia.
+j) Fiscalizar el cumplimiento de las funciones encomendadas a la Unidad de Desarrollo Humano en la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, de conformidad con su plan de trabajo.
+k) Cumplir los otros deberes atinentes a su competencia. (Así reformado mediante acuerdos 242-09-2014 y 268-11-2014).
+(Así reformado en sesión N° 10-09-14 del 24 de setiembre de 2014 y sesión ordinaria N° 13-11-14 del 5 de noviembre de 2014)
