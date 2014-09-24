@@ -1,1 +1,0 @@
-Artículo 24.—Vigencia. La presente resolución rige a partir de su publicación, excepto para el modelo D.153 “Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las ventas” que rige a partir de la declaración del mes de enero del 2012.

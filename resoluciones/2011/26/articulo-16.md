@@ -1,1 +1,0 @@
-Artículo 16.—Inhabilitación de otras versiones del DECLAR@7: a partir de la vigencia de la presente resolución, quedarán inhabilitadas las versiones anteriores al programa de ayuda para la elaboración de declaraciones informativas DECLAR@7.

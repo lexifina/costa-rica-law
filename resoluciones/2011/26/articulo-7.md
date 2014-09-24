@@ -1,2 +1,0 @@
-Artículo 7º—Obligados a presentar el modelo electrónico D-157. Se encuentran obligados a presentar esta declaración, La Dirección General de Migración y Extranjería, el ente autorizado de la recaudación del tributo y el Órgano autorizado para la Administración del aeropuerto o, en su defecto, la Dirección General de Aviación Civil.
-Dichas entidades deberán suministrar información sobre todas las salidas del país vía aérea, según el detalle establecido en el artículo 4 de la resolución N° 19-03 del 30 de junio del 2003.

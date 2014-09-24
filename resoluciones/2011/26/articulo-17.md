@@ -1,1 +1,0 @@
-Artículo 17.—Declaraciones informativas de periodos anteriores: todas aquellas declaraciones pendientes de presentar de periodos anteriores a la vigencia de la presente resolución deben ser elaboradas mediante el programa de ayuda para la elaboración de declaraciones informativas -DECLAR@7, así como la que rectifique lo informado mediante los formularios o versiones anteriores.

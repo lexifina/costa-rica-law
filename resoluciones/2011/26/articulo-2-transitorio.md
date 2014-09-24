@@ -1,1 +1,0 @@
-Transitorio II.—Declaraciones informativas presentadas. Todas aquellas declaraciones informativas de los modelos D-150, D-151, D-152 y D-158 que hayan sido presentadas en fecha anterior a la publicación de la presente resolución, serán aceptadas como válidas. Sin detrimento de que en caso de requerir su rectificación lo puedan hacer mediante el programa de ayuda DECLAR@ 7.
