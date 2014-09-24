@@ -1,0 +1,1 @@
+Artículo 78.—El trámite del proceso disciplinario estará a cargo de la unidad que corresponda según el régimen de la relación de servicio al que esté adscrito el servidor y de conformidad con las disposiciones legales y reglamentarias de la institución que sean aplicables al efecto.

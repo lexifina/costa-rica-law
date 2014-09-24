@@ -1,0 +1,1 @@
+Artículo 10.—Queda totalmente prohibido a las jefaturas de cualquier Dirección o dependencia del Ministerio, como a los funcionarios en general, autorizar o en su caso desarrollar sistemas de automatización de procesos en los equipos de tecnologías de información propiedad del Ministerio, sin contar con la autorización previa de la Dirección de Tecnologías de Información.

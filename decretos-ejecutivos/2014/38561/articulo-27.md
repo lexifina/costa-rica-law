@@ -1,0 +1,2 @@
+Artículo 27.—Ningún funcionario del Ministerio podrá accesar, guardar, reproducir, observar o exhibir material pornográfico.
+Lo anterior sin perjuicio de que en razón de las funciones que se desempeñan, de conformidad con la competencia delegada, se deba tener contacto con material de ésta naturaleza. En tales supuestos se deberá solicitar la debida autorización ante la Dirección de Tecnologías de Información, y comprometerse a tratar el material de manera apropiada y con el recelo debido en atención a su naturaleza.

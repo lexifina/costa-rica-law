@@ -1,0 +1,2 @@
+Artículo 56.—Únicamente se podrá conectar con otros dispositivos móviles de sincronización, tales como agendas electrónicas, teléfonos inteligentes, tabletas u otros con los que se puedan realizar intercambios de información, si están autorizados de forma explícita por la jefatura de la unidad respectiva conjuntamente con la Dirección de Tecnologías de Información.
+La autorización solo podrá hacerse con respecto a dispositivos móviles de sincronización que provea el Ministerio, por lo que queda terminantemente prohibido el uso de dispositivos personales para este propósito.

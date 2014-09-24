@@ -1,0 +1,1 @@
+Artículo 16.—Una vez patrimonializado el equipo adquirido, la dependencia a quien corresponde la asignación del equipo, conforme la previsión hecha desde el principio del trámite, procederá a retirarlos para su uso.

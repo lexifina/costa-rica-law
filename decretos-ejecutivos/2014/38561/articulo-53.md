@@ -1,0 +1,1 @@
+Artículo 53.—No se debe conectar automáticamente a redes inalámbricas abiertas para evitar conectarse a uno falso y poner en riesgo el acceso no autorizado y la sustracción de la información que contenga. Al conectarse se debe verificar que se utiliza tecnología de seguridad con contraseña cuyos protocolos pueden ser “WEAP2”, “WPA” o “WEP”.

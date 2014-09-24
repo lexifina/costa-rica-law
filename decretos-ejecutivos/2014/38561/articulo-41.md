@@ -1,0 +1,1 @@
+Artículo 41.—Las cuentas de correo asignadas son para uso institucional y no son transferibles, no debe permitirse que terceras personas hagan uso de ella. Los funcionarios autorizados deben utilizar el correo electrónico asignado únicamente para comunicaciones cuyo fin sea lícito, ético y de provecho para el Ministerio, para efectos laborales, académicos o institucionales.

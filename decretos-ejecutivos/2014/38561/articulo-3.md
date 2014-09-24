@@ -1,0 +1,1 @@
+Artículo 3º—Todo funcionario del Ministerio de Seguridad Pública deberá respetar las políticas y lineamientos generales que se establecen en el presente cuerpo normativo, en cuanto al uso, aprovechamiento y custodia de las tecnologías de información que se facilita para el desempeño de las funciones.

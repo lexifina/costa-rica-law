@@ -1,0 +1,1 @@
+Artículo 61.—El funcionario que por motivos de aprovechamiento de incapacidad médica, disfrute de vacaciones o autorización de licencia, deba ausentarse de la oficina por más de dos días, estará en la obligación de suministrar a su Jefe inmediato, copia de la información oficial que esté contenida en el equipo asignado; así como aquella que esté en proceso de elaboración.

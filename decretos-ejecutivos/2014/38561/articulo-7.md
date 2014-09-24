@@ -1,0 +1,1 @@
+Artículo 7º—Las solicitudes de automatización que se presenten deberán indicar, con la mayor precisión, la necesidad que se requiere satisfacer, y constituirán insumo a la Dirección de Tecnologías de Información para la elaboración del plan anual operativo del periodo siguiente.

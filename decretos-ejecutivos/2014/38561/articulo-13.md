@@ -1,0 +1,1 @@
+Artículo 13.—En caso de compra de equipos de tecnologías de información se debe incluir desde el inicio del análisis técnico, la distribución que se hará de los bienes por adquirir, lo cual deberá respetarse a la hora de realizar la asignación de los equipos adquiridos a las diferentes dependencias.

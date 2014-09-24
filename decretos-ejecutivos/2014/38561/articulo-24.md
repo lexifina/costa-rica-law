@@ -1,0 +1,1 @@
+Artículo 24.—La utilización del “software” será para el desempeño de las labores habituales de los funcionarios usuarios, para el logro de los objetivos y cumplimiento de las funciones que corresponden a la dependencia en que labora.

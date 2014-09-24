@@ -1,0 +1,1 @@
+Artículo 77.—En los casos de incumplimiento en los que pudiera caber sanción de suspensión de la relación laboral, podrá disponerse adicionalmente la suspensión de las cuentas institucionales autorizadas asociadas al funcionario objeto de investigación, como medida cautelar dentro del trámite del proceso sancionatorio.

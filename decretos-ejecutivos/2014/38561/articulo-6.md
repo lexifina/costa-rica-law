@@ -1,0 +1,1 @@
+Artículo 6º—Cada Dirección o jefatura de las diferentes dependencias del Ministerio informará por escrito, en el tercer trimestre a la Dirección de Tecnologías de Información, de las necesidades de automatización de sus procesos, constituyendo el 30 de setiembre la última fecha posible de presentación y recepción de tales solicitudes

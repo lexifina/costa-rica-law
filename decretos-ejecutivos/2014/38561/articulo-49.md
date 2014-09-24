@@ -1,0 +1,1 @@
+Artículo 49.—El usuario será responsable de mantener la confidencialidad de la contraseña y de la cuenta de correo electrónico que se le asigne y será el responsable por las actividades que se realicen con su cuenta de correo.

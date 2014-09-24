@@ -1,0 +1,1 @@
+Artículo 32.—Los equipos o dispositivos de tecnologías de información del Ministerio deberán ser utilizados en labores propias del cargo y dentro de los horarios autorizados. No se deben utilizar para asuntos personales ajenos al trabajo, ni en perjuicio de las labores que deben realizarse.

@@ -1,0 +1,1 @@
+Artículo 36.—Los funcionarios del Ministerio solo podrán accesar de manera remota a los equipos de las tecnologías de información de otros funcionarios, que le hayan sido autorizados previamente, conforme los accesos realizados por la Dirección de Tecnologías de Información.

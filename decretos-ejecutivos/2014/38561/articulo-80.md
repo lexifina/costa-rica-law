@@ -1,0 +1,1 @@
+Artículo 80.—Derogaciones. Deróguese el “Reglamento Normas y Políticas de Informática del Ministerio de Seguridad Pública”: Decreto N° 28921-SP y sus reformas, que fuera publicado en La Gaceta N° 181 del 21 de setiembre del 2000.

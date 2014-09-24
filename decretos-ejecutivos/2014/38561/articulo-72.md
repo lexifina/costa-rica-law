@@ -1,0 +1,2 @@
+Artículo 72.—Todos los funcionarios del Ministerio de Seguridad Pública, en general, deberán abstenerse de utilizar los equipos de tecnología de información y demás recursos que dote el Ministerio, para accesar a sus perfiles personales en los medios de redes sociales digitales durante las horas laborales.
+Únicamente podrán hacerlo los funcionarios previamente autorizados por la Jefatura de la Dependencia de que se trate, conjuntamente con la Dirección de Tecnología de Información, para efectos estrictamente laborales.

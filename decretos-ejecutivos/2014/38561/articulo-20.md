@@ -1,0 +1,1 @@
+Artículo 20.—En el caso que los bienes donados sean para una finalidad o dependencia determinada, se procederá a su entrega según lo previsto. De lo contrario, la Dirección de Tecnologías de Información procederá a realizar un estudio de necesidades de las diferentes unidades para su asignación.

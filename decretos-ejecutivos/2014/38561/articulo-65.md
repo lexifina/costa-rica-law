@@ -1,0 +1,1 @@
+Artículo 65.—La Dirección de Tecnologías de Información en conjunto con la Jefatura de cada dependencia, designarán a las personas que fungirán como gestores del contenido de la información que se publicará y actualizará en el portal “web”.

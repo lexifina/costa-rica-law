@@ -1,0 +1,1 @@
+Artículo 30.—Ningún funcionario podrá reubicar o reconfigurar los equipos de las tecnologías de información que le han sido asignados para su desempeño laboral o de la oficina o unidad laboral donde labora, sin que medie la intervención del personal autorizado de la Dirección de Tecnologías de Información.

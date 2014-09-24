@@ -1,0 +1,1 @@
+Artículo 66.—Se contará con un gestor de contenido principal que deberá ser un funcionario de la Oficina de Prensa, quien deberá coordinar lo pertinente con los demás gestores que se designen en las diferentes dependencias y determinará la información que deberá publicarse en el portal “web” del Ministerio.

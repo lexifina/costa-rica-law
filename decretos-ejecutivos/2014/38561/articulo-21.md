@@ -1,0 +1,3 @@
+Artículo 21.—En el caso de la contratación de servicios profesionales o consultorías se aplicarán las disposiciones anteriores en lo que resulte pertinente; no obstante, en todos los casos deberá contarse con la aprobación previa de la Dirección de Tecnologías de Información.
+Se formalizará un contrato para cada consultoría conteniendo claramente los términos en los que esta habrá de desarrollarse.
+La Dirección de Tecnologías de Información establecerá los mecanismos de control necesarios para asegurar el cumplimiento de los requerimientos establecidos en los diferentes contratos formalizados.

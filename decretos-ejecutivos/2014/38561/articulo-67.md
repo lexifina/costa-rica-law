@@ -1,0 +1,1 @@
+Artículo 67.—La Dirección de Tecnologías de Información le asignará a los gestores de contenido un perfil de usuario y contraseña de uso personal, por lo que deberán adoptar las medidas necesarias para mantener su contraseña o clave de acceso en secreto, quedando como responsables por el uso que se le de a la cuenta.

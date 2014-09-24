@@ -1,0 +1,1 @@
+Artículo 17.—En todos los casos de adquisición de equipos de tecnologías de información por compra, la Intendencia del Ministerio deberá enviar oportunamente copias de las facturas y garantías a la Dirección de Tecnologías de Información.

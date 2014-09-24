@@ -1,0 +1,1 @@
+Artículo 42.—Los correos masivos se realizarán para aquellos funcionarios o instancias que por sus funciones así lo requieran. El interesado deberá presentar solicitud a la Dirección de Tecnologías de Información que se encargará de realizar el envío respectivo.

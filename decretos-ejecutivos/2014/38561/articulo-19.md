@@ -1,0 +1,1 @@
+Artículo 19.—Por aceptada la donación por parte del órgano institucional competente al efecto, la Intendencia General procederá a realizar el ingreso de los bienes y el Departamento de Control y Fiscalización de Activos se encargará de registrarlos y patrimonializarlos, así como impregnarles el código o número de patrimonio correspondiente.
