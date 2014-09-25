@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE LIBERIA
+REGLAMENTO PARA LA AUTORIZACIÓN Y EL PAGO
+DE EGRESOS DE LA MUNICIPALIDAD DE LIBERIA
+De conformidad con lo establecido en los artículos 2, 3, 13 inciso e) 17, inciso h) 101, 103, 109, 110 (siguientes y concordantes del Código Municipal Ley N° 7794, publicada en el Diario Oficial La Gaceta N° 94 del 18 de mayo de 1998 y lo dispuesto en los artículos 4 y 5 de la Ley de Contratación Administrativa N° 7494 del 3 de mayo de 1995 y su reforma al reglamento y de conformidad con lo establecido en el artículo N° 43 del Código Municipal para la aplicación del Reglamento de Autorización y Pago de Egresos de la Municipalidad de Liberia , y que se regirá por las siguientes disposiciones:
+CAPÍTULO I
+De la autorización de los egresos
+Artículo 1º—La Alcaldía Municipal autorizará y ejecutará, independientemente de su cuantía, los desembolsos correspondientes a los gastos fijos por concepto de remuneraciones y cargas sociales del personal permanente, interino u ocasional que labore en la Municipalidad, pago de intereses y comisiones, amortización por préstamos y las transferencias que por diversa normativa está obligada a realizar, tal como lo señala el artículo 17, inciso h) del Código Municipal.
+La Alcaldía Municipal podrá autorizar egresos por la adquisición de bienes y servicios, hasta por el monto que establece la legislación vigente para el procedimiento de Contratación Directa, según el Presupuesto Ordinario de la Municipalidad, pudiendo delegar la Alcaldía en la persona responsable de la Hacienda Municipal y según lo establece el artículo 17 inciso b) del citado código, la autorización de egresos y gastos fijos, la adquisición de bienes y servicios y liquidaciones de viáticos y de Caja Chica.

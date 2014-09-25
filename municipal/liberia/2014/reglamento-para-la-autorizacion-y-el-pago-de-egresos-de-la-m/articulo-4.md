@@ -1,0 +1,1 @@
+Artículo 4º—Tanto en el caso de los egresos autorizados por la Alcaldía Municipal, como de los autorizados por el Concejo Municipal, los pagos deberán ser ordenados por el Alcalde Municipal, o la persona en quien él delegue, y la persona responsable de la Hacienda Municipal.

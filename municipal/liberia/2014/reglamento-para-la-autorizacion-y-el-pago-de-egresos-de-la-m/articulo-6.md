@@ -1,0 +1,1 @@
+Artículo 6º—Todo pago que se ordene debe hacerse contra la documentación de respaldo: orden de compra u orden de pago por servicios y en ella se deberá acreditar el nombre de la persona que lo ordenó e insertar la firma del mismo como respaldo del egreso ordenado: según lo establecido en los artículos 109 y 110 del Código Municipal.
