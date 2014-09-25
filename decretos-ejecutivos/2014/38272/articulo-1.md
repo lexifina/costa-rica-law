@@ -1,0 +1,21 @@
+Nº 38272-S
+LA PRESIDENTA DE LA REPÚBLICA
+Y LA MINISTRA DE SALUD
+En uso de las facultades conferidas en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25, 27 inciso 1), 28 inciso b) y 103 inciso 1) de la Ley Nº 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”; 298, 299, 300, 301, 302 y 303 de la Ley N° 5395 del 30 de octubre de 1973 “Ley General de Salud”; 2 inciso c) de la Ley N° 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; 60 y 68 de la Ley Nº 7554 de 4 de octubre de 1995 “Ley Orgánica del Ambiente” y los artículos 5, incisos a) y b), 7, inciso b), 9, 41 y 42 de la Ley Nº 8839 del 24 de junio del 2010 “Ley para la Gestión Integral de Residuos”.
+Considerando
+1º—Que la salud de la población es un bien de interés público tutelado por el Estado, por lo que es potestad del Ministerio de Salud velar por la salud de la población y de las condiciones sanitarias y ambientales.
+2º—Que es deber del Estado adoptar las medidas que sean necesarias para prevenir o corregir la contaminación ambiental, por lo que es potestad del Ministerio de Ambiente y Energía prevenir o corregir cualquier contaminación, alteración o modificación del ambiente que pueda atentar contra los recursos naturales o afectar el ambiente en general de la Nación.
+3º—Que dentro de los objetivos de la Ley para la Gestión Integral de Residuos Nº 8839 del 24 de junio del 2010 y su reforma, está fomentar el desarrollo de mercados de subproductos, materiales valorizables y productos reciclados, reciclables y biodegradables; promover la separación en la fuente y la clasificación de los residuos; así como promover la incorporación de los productores o importadores en la búsqueda de soluciones a la problemática de los residuos.
+4º—Que dicha Ley incorpora el Principio de Responsabilidad Extendida del Productor, según el cual los productores o importadores tienen la responsabilidad del producto durante todo el ciclo de vida de este, incluyendo las fases postindustrial y post consumo. Como complemento de este principio, la Ley establece que la gestión integral de residuos es una corresponsabilidad social, que requiere la participación conjunta, coordinada y diferenciada de todos los productores, importadores, distribuidores, consumidores, gestores de residuos, tanto públicos como privados, así como de las municipalidades y otras instancias del gobierno central. La misma le indica que este principio se aplicará únicamente a los residuos de manejo especial.
+5º—Que de conformidad con el artículo 41 de la Ley para la Gestión Integral de Residuos, el Ministerio de Salud deberá declarar, vía decreto ejecutivo, los residuos de manejo especial que serán separados de la corriente normal de los residuos para ser sujetos de una gestión diferenciada y así disminuir posibles impactos al ambiente y daños a la salud.
+6º—Que en consecuencia se hace necesario dictar un reglamento en la materia, el cual ha sido elaborado con la participación de los sectores vinculados, tal como lo establece el artículo 9 de la Ley para la Gestión Integral de Residuos.
+7º—Que para la declaración de residuos como de manejo especial el Ministerio de Salud considerara los siguientes criterios: composición, necesidades de transporte, condiciones de almacenaje, formas de uso y valor de recuperación; con el fin de prevenir los riesgos significativos a la salud y degradación sistemática de la calidad del ecosistema. Por tanto,
+Decretan
+Reglamento para la Declaratoria
+de Residuos de Manejo Especial
+CAPÍTULO 1
+Disposiciones Generales
+Artículo 1º—Objetivos. Son objetivos del presente reglamento:
+a. Establecer criterios generales y el procedimiento general para la gestión de los residuos declarados como residuos de manejo especial;
+b. Establecer los diferentes niveles de responsabilidad y proponer formas de organización y participación en el manejo de los residuos de manejo especial por parte de los productores, importadores, distribuidores, comercializadores, generadores, y gestores; así como de las municipalidades.
+c. Promover a través de los Planes de Cumplimiento y los Planes Municipales de Gestión Integral de Residuos Sólidos, la reducción de los residuos de manejo especial enviados a tratamiento y a sitios de disposición final.

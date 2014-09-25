@@ -1,0 +1,1 @@
+Artículo 18.—Obligaciones de generadores y consumidores. Tanto los generadores de residuos como los consumidores, deben depositar los residuos declarados como de manejo especial en los puntos de recolección designados por las Unidades de Cumplimiento o municipalidades.

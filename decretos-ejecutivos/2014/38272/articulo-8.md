@@ -1,0 +1,1 @@
+Artículo 8º—Metas de Recuperación. Revisados los resultados del Plan de Cumplimiento del primer quinquenio con los sectores, el Ministerio de Salud valorará continuar conforme el artículo anterior o establecer metas de recuperación del residuo de manejo especial, de conformidad con el procedimiento establecido en el artículo 11° del presente reglamento.

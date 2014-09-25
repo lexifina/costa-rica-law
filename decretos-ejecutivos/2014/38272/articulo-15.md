@@ -1,0 +1,3 @@
+Artículo 15.—Del contenido del Plan de Cumplimiento. El Plan debe contener una descripción y listado de los asociados de la unidad de cumplimiento, la naturaleza y cantidad de los bienes que comercializan y que generan residuos de manejo especial, además debe contener los objetivos de recuperación, metas anuales e indicadores de cumplimiento.
+Asimismo, los ciclos de recolección, registro de puntos de recolección y los gestores de residuos de manejo especial que proveen el servicio a la unidad de cumplimiento. Además el informe de los resultados de cumplimiento del Plan anterior a partir del segundo año.
+El Plan de Cumplimiento se debe realizar según el anexo III del presente reglamento y se debe adjuntar la información en él solicitada.

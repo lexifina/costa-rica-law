@@ -1,0 +1,1 @@
+Artículo 12.—Cumplimiento de metas. Para aquellas unidades de cumplimiento que alcancen o superen las metas de recuperación establecidas en el plan de cumplimiento, el Ministerio de Salud mantendrá fija dicha meta, hasta que finalice el periodo de cinco años. No obstante, a solicitud de dicha unidad de cumplimiento, se podrán establecer nuevas metas de recuperación.
