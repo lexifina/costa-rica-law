@@ -1,0 +1,1 @@
+Artículo 11.—Obligación informativa. El presente reglamento deberá exhibirse cuando menos en dos lugares visible en la zona de ingreso de las instalaciones del prestatario de la inspección técnica vehicular, para que todos los usuarios concurrentes queden debidamente advertidos sobre estas disposiciones.
