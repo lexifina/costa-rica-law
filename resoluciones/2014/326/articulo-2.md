@@ -1,0 +1,1 @@
+II. Indicar que la aprobación de los cánones se realiza en virtud de que se observa una vinculación razonable entre el Plan Estratégico Institucional, las obligaciones legales que debe cumplir el CTP y los montos estimados por el CTP para el 2015.
