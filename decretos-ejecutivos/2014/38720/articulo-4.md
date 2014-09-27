@@ -1,0 +1,1 @@
+Artículo 4º—Se designa al señor Olman José Quirós Madrigal, con cédula de identidad Nº 7-059-511, quien es mayor, divorciado, vecino de Tibás, Decano de la Facultad de Ciencias Agroalimentarias, como miembro de la Junta Directiva del INTA, en condición de representante del Consejo Nacional de Rectores.

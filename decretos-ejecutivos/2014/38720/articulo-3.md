@@ -1,0 +1,1 @@
+Artículo 3º—Se designa al señor Juan Diego Marín Salazar, con cédula de identidad Nº 2-482-021, quien es mayor, casado, vecino de la Provincia de Alajuela como miembro de la Junta Directiva del INTA, en condición de representante de los pequeños y medianos productores agropecuarios organizados con representación nacional.

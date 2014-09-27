@@ -1,0 +1,1 @@
+Artículo 2º—Se designa a la señora Mónica Elizondo Andrade, con cédula de identidad Nº 1-966-448, quien es mayor, soltera, Tecnóloga de Alimentos, vecina de la Provincia de San José, como miembro de la Junta Directiva del INTA, en condición de representante de la Cámara de la Industria Alimentaria.
