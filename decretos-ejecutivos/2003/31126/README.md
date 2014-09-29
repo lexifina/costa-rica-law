@@ -67,3 +67,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | 52 | 2014-07-02 | Decreto Ejecutivo 38584 (2014-07-02) |
 | 53 | 2014-08-13 | Decreto Ejecutivo 38658 (2014-08-13) |
 | 54 | 2014-09-10 | Decreto Ejecutivo 38729 (2014-09-10) |
+| 55 | 2014-09-29 | Decreto Ejecutivo 38791 (2014-09-29) |
