@@ -1,0 +1,1 @@
+3. Instar a sus agremiados capacitados en la técnica de la auriculoterapia para que se agrupen entre ellos y promuevan el intercambio profesional, académico y científico de esa técnica entre los agremiados del Colegio.
