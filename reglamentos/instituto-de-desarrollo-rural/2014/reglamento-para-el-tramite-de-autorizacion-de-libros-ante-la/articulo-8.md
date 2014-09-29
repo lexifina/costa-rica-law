@@ -1,0 +1,1 @@
+Artículo 8º—Rechazo de la gestión. El incumplimiento de uno o más requisitos detallados en los Artículos 6 y 7 del presente Reglamento, podrá dar lugar, previa valoración de cada caso por parte de la Auditoría Interna, al rechazo de plano de la gestión de apertura.

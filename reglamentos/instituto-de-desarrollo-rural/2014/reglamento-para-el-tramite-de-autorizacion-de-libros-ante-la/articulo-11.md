@@ -1,0 +1,1 @@
+Artículo 11.—Retiro de libros. Los libros autorizados deberán ser solicitados y retirados por un funcionario debidamente autorizado para este trámite. Si los libros autorizados por la Auditoría Interna no son retirados en un plazo de 3 meses, serán destruidos.
