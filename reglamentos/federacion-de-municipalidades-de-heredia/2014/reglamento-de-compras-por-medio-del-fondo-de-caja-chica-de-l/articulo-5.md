@@ -1,0 +1,1 @@
+Artículo 5°—La caja chica estará organizada de tal forma que sus fondos no puedan confundirse con otros. Además, dichos fondos y comprobantes deben permanecer en la caja ubicada en la oficina del encargado del fondo, observando las medidas mínimas de seguridad.

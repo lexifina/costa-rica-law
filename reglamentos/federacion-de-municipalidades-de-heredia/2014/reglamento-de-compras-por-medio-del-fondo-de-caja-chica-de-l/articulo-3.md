@@ -1,0 +1,1 @@
+Artículo 3°—Se fija el límite máximo para la compra de bienes y servicios con dicho fondo, en la suma ¢50.000.00 (cincuenta mil colones exactos), cifra que será actualizada por la Dirección Ejecutiva, presentando y justificando propuesta ante el Consejo Directivo, el cual lo aprobará o rechazará.

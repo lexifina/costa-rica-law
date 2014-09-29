@@ -1,0 +1,2 @@
+De las liquidaciones
+Artículo 15.—Los adelantos de dinero serán liquidados durante los dos días hábiles siguientes a la fecha de entrega. De no hacerse así, se incurrirá en las sanciones que procedan según la normativa aplicable. Cuando haya atraso en la liquidación, el encargado del fondo deberá comunicarlo por medio de un memorando, a la Dirección Ejecutiva y al funcionario que recibió el adelanto. De persistir el atraso, al día siguiente, se procederá a las sanciones correspondientes, bajo el debido proceso.

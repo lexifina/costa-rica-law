@@ -1,0 +1,1 @@
+Artículo 23.—En caso de que el encargado de la caja chica no aplique las regulaciones del presente Reglamento, será acreedor de las sanciones que se establece en otra normativa aplicable, según nuestra legislación nacional.
