@@ -1,0 +1,1 @@
+2. Dejar establecido, de conformidad con lo dispuesto en la citada directriz, que para todos los efectos, el pago por concepto de canon de reserva del espectro radioeléctrico deberá realizarse en el plazo de dos meses y quince días posteriores al cierre del período fiscal para el cual fue fijado el canon.
