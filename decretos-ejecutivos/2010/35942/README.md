@@ -14,3 +14,4 @@ Declara el laboratorio del Instituto Costarricense de Investigación y Enseñanz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-21 | la propia norma |
+| 2 | 2014-09-29 | Decreto Ejecutivo 38700 (2014-09-29) |
