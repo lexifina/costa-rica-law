@@ -14,3 +14,4 @@ Suspende por el plazo de un año el otorgamiento de la disponibilidad de agua y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-01 | la propia norma |
+| 2 | 2014-09-29 | Acuerdo municipal 4 (2014-09-29) |
