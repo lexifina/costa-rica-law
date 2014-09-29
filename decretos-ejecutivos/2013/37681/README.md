@@ -14,3 +14,4 @@ Declara de Conveniencia Nacional e Interés Público la construcción del “Pro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-24 | la propia norma |
+| 2 | 2014-09-29 | Decreto Ejecutivo 38718 (2014-09-29) |
