@@ -23,3 +23,4 @@ Aprueba Plan Cuentas para Grupos y Conglomerados Financieros, Deroga Plan Cuenta
 | 8 | 2013-04-02 | Reglamento 1034 (2013-04-02) |
 | 9 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
 | 10 | 2013-09-24 | Reglamento 1064 (2013-09-24) |
+| 11 | 2014-09-29 | Reglamento 1129 (2014-09-29) |
