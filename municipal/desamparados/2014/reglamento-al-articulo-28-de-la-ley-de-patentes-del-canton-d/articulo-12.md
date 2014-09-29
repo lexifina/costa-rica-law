@@ -1,0 +1,1 @@
+Artículo 12.—Legislación de aplicación supletoria. Lo no previsto en este Reglamento se regirá por lo dispuesto en la Ley Nº 9110 y en su defecto se aplicará supletoriamente lo establecido en la legislación correspondiente según la materia.

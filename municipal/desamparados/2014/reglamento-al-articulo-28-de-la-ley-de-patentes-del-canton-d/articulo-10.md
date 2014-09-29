@@ -1,0 +1,1 @@
+Artículo 10.—Deberá el beneficiario del incentivo mantener sus obligaciones tributarias municipales al día. El cumplimiento de la anterior y esta obligación será requisito esencial para gozar de los incentivos contemplados en la ley.

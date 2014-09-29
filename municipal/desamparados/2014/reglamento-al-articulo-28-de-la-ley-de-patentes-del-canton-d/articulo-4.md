@@ -1,0 +1,1 @@
+Artículo 4°—Se entiende por activos fijos los bienes inmuebles, así como los bienes muebles sujetos a depreciación, utilizados en la operación del negocio en el cantón y cuya fecha y precio de adquisición consten debidamente en los libros contables de la empresa solicitante del incentivo.
