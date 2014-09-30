@@ -1,1 +1,0 @@
-Artículo 3º—Asesorías. El Comité podrá contar con los asesores necesarios para el cumplimiento de sus objetivos, lo cual no implica la contratación de personal o de consultorías. Estas personas podrán asistir a las sesiones con voz pero sin voto.
