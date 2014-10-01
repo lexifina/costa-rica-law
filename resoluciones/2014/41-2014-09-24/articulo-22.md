@@ -1,0 +1,1 @@
+Artículo 22.—Independencia de la obligación. El cumplimiento de las obligaciones establecidas en esta resolución es independiente a la de atender los requerimientos de información individualizados que la Administración Tributaria realice.

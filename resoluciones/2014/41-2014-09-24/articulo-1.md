@@ -1,0 +1,38 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+RESOLUCIÓN SOBRE EL SUMINISTRO GENERAL
+DE LA INFORMACIÓN PREVISIBLEMENTE PERTINENTE,
+DERIVADA DE LAS RELACIONES ECONÓMICAS,
+FINANCIERAS Y PROFESIONALES ENTRE
+OBLIGADOS TRIBUTARIOS
+N° DGT-R-041-2014.—Dirección General de Tributación.—San José, a las ocho horas cero minutos del veinticuatro de setiembre del dos mil catorce.
+Considerando:
+1º—Que el artículo 99 del Código de Normas y Procedimientos Tributarios -en adelante Código Tributario- establece la facultad a la Administración Tributaria para dictar normas generales, mediante resolución, tendientes a la correcta aplicación de las leyes tributarias, dentro de los límites que fijen las disposiciones legales y reglamentarias pertinentes.
+2º—Que el artículo 109 del Código Tributario faculta a la Dirección General de Tributación –en adelante DGT- para establecer directrices, respecto de la forma en que deberá consignarse la información tributaria que se solicitará, con carácter general, en sus actuaciones dirigidas a la obtención de información.
+3º—Que el artículo 105 del Código Tributario establece que toda persona, física o jurídica, pública o privada, estará obligada a proporcionar, a la Administración Tributaria, la información previsiblemente pertinente para efectos tributarios, deducida de sus relaciones económicas, financieras y profesionales con otras personas.
+4º—Que en cuanto a los suministros generales de información, los artículos 41 y 42 del Reglamento de Procedimiento Tributario-en adelante Reglamento Tributario- facultan a la DGT, para imponer a determinadas personas físicas, jurídicas, públicas o privadas y entidades sin personalidad jurídica, la obligación de suministrar, en forma periódica, la información previsiblemente pertinente que se halle en su poder y que derive de sus relaciones económicas, financieras y profesionales con otras personas que sean obligados tributarios actuales o potenciales.
+5º—Que mediante la Resolución DGT-R-026-2011 del 13 de setiembre del 2011, se creó la obligatoriedad de uso de los modelos electrónicos autorizados por la Administración Tributaria para la presentación de las declaraciones informativas, siendo que como se indicó en el considerando anterior, posterior a la fecha de emisión de esa resolución, se emitió el Reglamento de Procedimiento Tributario, el cual viene a ampliar el tema del suministro de información.
+6º—Que el artículo 130 del Código Tributario, así como el artículo 44 del Reglamento Tributario, establecen que el sujeto pasivo podrá rectificar sus declaraciones tributarias, en cuanto a la modificación de los registros o corrección de errores de contenido u omisiones de la información proporcionada. Se presume la exactitud de los datos en las mismas y que la información presentada con posterioridad a la inicial será considerada rectificación de la inicial o de la última modificada.
+7º—Que el artículo 103 inciso d) del Código Tributario, autoriza a la Administración Tributaria para que establezca retenciones a cuenta de los diferentes tributos que administra, las cuales, al momento de su vigencia, requieren de modelos de declaraciones informativas que permitan incluir los datos necesarios para el control y supervisión de las retenciones realizadas.
+8º—Que la Dirección General de Tributación tiene dentro de sus facultades realizar mejoras continuas del sistema tributario costarricense, procurando su equilibrio y progresividad, en armonía con los derechos y garantías ciudadanas, razón por la cual en virtud de las funciones de control, administración y fiscalización general de los tributos, resulta oportuno actualizar y mejorar el control tributario.
+9º—Que en atención a la modificación efectuada y a las normas supracitadas, así como por razones de conveniencia, mérito y oportunidad se considera necesario dejar sin efecto las resoluciones DGT-R-026-2011 de las ocho y treinta horas del trece de setiembre del dos mil once, y la DGT-R-028-11 de las diez y veinte horas del trece de setiembre del dos mil once, ambas publicadas en La Gaceta N° 188 del 30 de setiembre del 2011, de forma tal que se modifica y amplía en los aspectos relacionados con el suministro de información previsiblemente pertinente para efectos tributarios en los determinados modelos electrónicos de declaraciones, y otros.
+10.—Que en caso de incumplimiento en el suministro de información el artículo 83 del Código Tributario, establece una sanción equivalente a una multa pecuniaria proporcional del dos por ciento (2%) de la cifra de ingresos brutos del sujeto infractor, en el período del impuesto sobre las utilidades, anterior a aquel en que se produjo la infracción, con un mínimo de diez salarios base y un máximo de cien salarios base. De constatarse errores en la información suministrada, la sanción será de un uno por ciento (1%) del salario base por cada registro incorrecto, entendido como registro la información de trascendencia tributaria sobre una persona física o jurídica u otras entidades sin personalidad jurídica.
+11.—Que el artículo 4° de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos -Ley N° 8220 de 4 de marzo del 2002-, publicada en el Alcance 22 a La Gaceta N° 49 de 11 de marzo del 2002, establece que todo trámite o requisito, con independencia de su fuente normativa, para que pueda exigirse al administrado, deberá publicarse en el diario oficial La Gaceta.
+12.—Que en observancia del artículo 174 del Código Tributario se publicó la presente resolución en el sitio web http://dgt.hacienda. go.cr, en la sección “Proyectos”, antes de su dictado y entrada en vigencia, a efectos de que las entidades representativas de carácter general, corporativo o de intereses difusos tuvieran conocimiento del proyecto y pudieran oponer sus observaciones, en el plazo de diez días hábiles siguientes a la publicación del primer aviso en el Diario Oficial.
+En el presente caso, el primer y segundo avisos fueron publicados en La Gaceta N° 171 del 5 de setiembre del 2014 y en La Gaceta N° 172 del 8 de setiembre del 2014, respectivamente.
+13.—Que a la fecha de publicación de la presente resolución se recibieron y atendieron observaciones al proyecto indicado, siendo que la presente es la versión final aprobada. Por tanto,
+RESUELVE:
+RESOLUCIÓN SOBRE EL SUMINISTRO GENERAL
+DE LA INFORMACIÓN PREVISIBLEMENTE PERTINENTE,
+DERIVADA DE LAS RELACIONES ECONÓMICAS,
+FINANCIERAS Y PROFESIONALES ENTRE
+OBLIGADOS TRIBUTARIOS
+Artículo 1º—Modelos electrónicos de declaraciones informativas. Para el suministro general de información previsiblemente pertinente, derivada de las relaciones económicas, financieras o profesionales que se realicen con obligados tributarios, se establecen los siguientes modelos electrónicos de declaraciones informativas:
+a. D-150 “Declaración anual de resumen de retenciones pago a cuenta impuestos sobre las utilidades”.
+b. D-151 “Declaración anual de clientes, proveedores y gastos específicos”.
+c. D-152 “Declaración anual resumen de retenciones impuestos únicos y definitivos”.
+d. D-153 “Declaración mensual resumen de retenciones pago a cuenta impuesto sobre las ventas”.
+e. D-157 “Declaración trimestral resumen de impuesto de salida del territorio nacional”.
+f. D-158 “Declaración anual, compras y ventas subastas agropecuarias”.
+g. D-160 “Declaración trimestral resumen de impresión de facturas y otros documentos”.
+h. D-161 “Declaración trimestral de cajas registradoras”
+Cada uno de los modelos de declaración informativa, en adelante “declaración”, debe incluir la información de todas sus oficinas, agencias y sucursales de forma consolidada, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 24.—Derogatoria. A partir de la vigencia de la presente resolución se derogan en todos sus extremos, las resoluciones DGT-R-026-2011 del 13 de setiembre del 2011, y la DGT-R-028-11 de las diez y veinte horas del trece de setiembre del dos mil once, ambas publicadas en La Gaceta N° 188 del 30 de setiembre del 2011
