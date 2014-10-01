@@ -11,7 +11,7 @@ IV.—Que el Decreto Ejecutivo N° 29680-MINAE del 23 de julio del 2001, publica
 Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a los siguientes miembros:
 1. Miembro propietario:
-a. Ana Salas Araya, representante del Instituto Costarricense de Pesca y Acuicultura.
+a. (Derogado por el artículo 3° del decreto ejecutivo N° 38793 del 1° de octubre del 2014, "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 2. Miembros suplentes:
 a. (Derogado por el artículo 3° del decreto ejecutivo N° 38729 del 10 de setiembre de 2014, "Nombra miembros de la Comisión Nacional para la Gestión de la Biodiversidad")
-b. Álvaro Otárola Fallas, representante del Instituto Costarricense de Pesca y Acuicultura.
+b. (Derogado por el artículo 3° del decreto ejecutivo N° 38793 del 1° de octubre del 2014 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
