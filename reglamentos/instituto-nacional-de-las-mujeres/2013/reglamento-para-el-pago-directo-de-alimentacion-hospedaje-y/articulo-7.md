@@ -8,4 +8,5 @@ c. Gestiones legales tales como audiencias judiciales y administrativas, gestion
 d. Gestiones escolares, tales como trámites de traslado o matrícula de las hijas e hijos de las mujeres albergadas
 e. Gestiones ante instituciones públicas de interés en el proceso de atención de la mujer, sus hijas e hijos.
 f. Ingresos a los centros, egresos repentinos no programados y traslados de pertenencias.
-En el caso de las personas usuarias de otros servicios de atención directa procederá el pago de transporte únicamente en casos calificados por la correspondiente jefatura que se encuentren previstos en los incisos a.) c) y f), en lo que resulte aplicable a la particularidad de los servicios.
+En el caso de las personas usuarias de otros servicios de atención directa, procederá el pago de transporte únicamente en casos calificados. Para efectos de interpretación de “casos calificados”, se utilizará como parámetro lo dispuesto en el Artículo 13, sobre los factores de valoración.
+(Así reformado el párrafo anterior mediante acuerdo N° 4 del acta N° 31-20141 del 1° de octubre del 2014)

@@ -14,3 +14,4 @@ Reglamento para el pago directo de alimentación, hospedaje y transporte a perso
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-08 | la propia norma |
+| 2 | 2014-10-01 | Reglamento 0 (2014-10-01) |
