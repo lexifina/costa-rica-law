@@ -14,3 +14,4 @@ Definición de la georreferenciación y de las tolerancias permitidas que deben 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-16 | la propia norma |
+| 2 | 2014-10-01 | Directriz 3 (2014-10-01) |
