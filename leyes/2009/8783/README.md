@@ -1,6 +1,6 @@
 # Reforma Ley de Desarrollo Social y Asignaciones Familiares, N° 5662, Ley Pensión para Discapacitados con Dependientes N° 7636, Ley Creación del ICODER, N.º 7800, Ley Sistema Financiero Nacional para Vivienda N° 7052 y Ley Creación Fondo Nacional de Becas
 
-Ley N° 8783 del 2009-10-13. SINALEVI, ficha 66464: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66464&param2=93464&param3=1>.
+Ley N° 8783 del 2009-10-13. SINALEVI, ficha 66464: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66464&param2=98194&param3=1>.
 
 Publicada en La Gaceta N° 199 del 2009-10-14.
 
@@ -11,3 +11,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 1 de 6 | 2009-10-14 | Ley 8783 | 2009-10-13 |
 | 2 de 6 | 2009-12-30 | Ley 8793 | 2009-12-10 |
 | 3 de 6 | 2013-08-06 | Ley 9153 | 2013-07-03 |
+| 4 de 6 | 2014-10-01 | Ley 9268 | 2014-08-19 |
