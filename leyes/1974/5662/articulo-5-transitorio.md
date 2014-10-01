@@ -1,2 +1,3 @@
-TRANSITORIO V.-Durante los cinco años siguientes, contados a partir de la entrada en vigencia de esta Ley, los fondos asignados anualmente al Sistema Financiero Nacional para la Vivienda, según el artículo 4 de esta Ley, en ningún caso podrán ser menores a la totalidad del presupuesto asignado a ese Sistema en el año 2009, ajustado según el incremento del costo de vida.
+TRANSITORIO V.-Durante los diez años siguientes, contados a partir de la entrada en vigencia de esta ley, los fondos asignados anualmente al Sistema Financiero Nacional para la Vivienda, según el artículo 4 de esta ley, en ningún caso podrán ser menores a la totalidad del presupuesto asignado a ese Sistema en el año 2009, ajustado según el incremento del costo de vida.
 (Así adicionado mediante ley N° 8783 del 13 de octubre de 2009)
+(Así reformado por el artículo único de la ley N° 9268 del 19 de agosto de 2014)
