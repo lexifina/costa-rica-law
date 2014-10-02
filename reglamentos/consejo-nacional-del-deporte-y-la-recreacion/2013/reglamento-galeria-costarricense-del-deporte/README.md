@@ -15,3 +15,4 @@ Reglamento Galería Costarricense del Deporte
 | --- | --- | --- |
 | 1 | 2013-07-10 | la propia norma |
 | 2 | 2013-07-10 | Reglamento 858 (2013-07-04) |
+| 3 | 2014-10-02 | Reglamento 920 (2014-10-02) |
