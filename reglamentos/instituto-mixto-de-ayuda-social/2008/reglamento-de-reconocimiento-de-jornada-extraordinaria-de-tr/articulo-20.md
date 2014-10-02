@@ -1,1 +1,2 @@
-Artículo 20.—Solicitud para laborar tiempo extraordinario. Toda solicitud para laborar en tiempo extraordinario, será autorizada por el jefe de la unidad administrativa correspondiente y tramitado ante Recursos Humanos o la Gerencia General según corresponda.
+Artículo 20.—Solicitud para laborar tiempo extraordinario. Toda solicitud para laborar en tiempo extraordinario, será autorizada por el jefe de la unidad administrativa correspondiente y tramitado ante Recursos Humanos o la Gerencia General según corresponda, previo a que los funcionarios inicien a laborar las horas extras autorizadas.
+(Así reformado por acuerdo N° 427, artículo sexto del 2 de octubre de 2014)

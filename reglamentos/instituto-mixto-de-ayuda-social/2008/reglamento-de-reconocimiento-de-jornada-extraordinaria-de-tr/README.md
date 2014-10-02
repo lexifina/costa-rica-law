@@ -14,3 +14,4 @@ Reglamento de Reconocimiento de Jornada Extraordinaria de Trabajo del Instituto 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-03 | la propia norma |
+| 2 | 2014-10-02 | Reglamento 0 (2014-10-02) |
