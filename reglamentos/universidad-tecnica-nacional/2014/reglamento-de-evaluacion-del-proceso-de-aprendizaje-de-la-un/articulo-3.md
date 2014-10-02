@@ -1,0 +1,1 @@
+Artículo 3.- La evaluación debe ser actualizada y coherente con el proceso de aprendizaje que plantea el respectivo curso en el entendido que este último forma parte de un plan de estudios que busca el desarrollo procesual de un perfil profesional determinado.

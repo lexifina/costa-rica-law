@@ -1,0 +1,1 @@
+Artículo 6.- Los instrumentos de evaluación de cada carrera serán propiedad intelectual de la Universidad Técnica Nacional y para su elaboración, los docentes deberán tomar en cuenta lo dispuesto por la filosofía institucional, las políticas y normativas curriculares y el perfil profesional.

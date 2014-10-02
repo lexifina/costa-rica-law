@@ -1,0 +1,1 @@
+Artículo 5.- Lostipos de evaluación podrán ser: diagnóstico, formativo, sumativo, auténtica, procesual, participativay cualquier otro que responda a la filosofía, política educativa y curricular de la UTN.

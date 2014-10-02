@@ -1,0 +1,1 @@
+Artículo 44.- Para la resolución de los recursos de apelación, el Director de Carrera o Coordinador de Área, según corresponda, conformará un Tribunal de Apelaciones para el caso concreto, conformado y presidido por él mismo y dos docentes de la carrera, distintos al docente del curso.

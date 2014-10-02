@@ -1,0 +1,3 @@
+Capítulo IV
+Fraudes o Faltas
+Artículo 38.- Cuando en alguna actividad sujeta a evaluación permanente o parcial, el profesor determine, durante la actividad que un estudiante ha incurrido en fraude o intento de fraude, procederá a retirar la prueba y le ordenará la salida inmediata. En el mismo momento el docente procederá a levantar el acta correspondiente. Posteriormente, comunicará al director de la carrera lo ocurrido, en un plazo no mayor de dos días hábiles. El mismo procedimiento se aplicará cuando se constate una irregularidad similar con posterioridad a la prueba u otras actividades de evaluación.

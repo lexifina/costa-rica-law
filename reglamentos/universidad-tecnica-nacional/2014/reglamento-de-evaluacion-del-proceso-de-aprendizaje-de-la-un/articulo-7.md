@@ -1,0 +1,1 @@
+Artículo 7.- En todos los cursos que se impartan en la Institución,con excepción de las pruebas por suficiencia, el proceso de aprendizaje del estudiante durante el cuatrimestre deberá contemplar diversas actividades de evaluación.

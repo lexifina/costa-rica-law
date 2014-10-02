@@ -1,0 +1,1 @@
+Artículo 34.- La modalidad de la prueba de sustitución deberá ser la misma utilizada en la prueba original y evaluará los mismos resultados de aprendizaje correspondientes a la prueba que se sustituye.

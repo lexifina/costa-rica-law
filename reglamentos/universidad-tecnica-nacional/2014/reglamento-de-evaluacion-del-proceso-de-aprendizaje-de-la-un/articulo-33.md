@@ -1,0 +1,1 @@
+Artículo 33.- Esta prueba se aplicará una vez que haya concluido el curso, posterior a la entrega de actas ordinarias.En el acta ordinaria, el docente consignará el promedio obtenido por el estudiante antes de realizar la prueba de sustitución.

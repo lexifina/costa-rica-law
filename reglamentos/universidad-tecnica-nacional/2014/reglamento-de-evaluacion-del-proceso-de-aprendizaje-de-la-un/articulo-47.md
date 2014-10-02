@@ -1,0 +1,1 @@
+Artículo 47.- En el caso que un estudiante obtenga como resultado de un recurso de reconsideración o apelación el derecho a repetir un instrumento de evaluación o a realizar una prueba de sustitución o de reposición, esta deberá ser ejecutada en un período máximo de ocho días naturales siguientes a la resolución. La misma deberá ser aplicada por otro docente de la carrera.

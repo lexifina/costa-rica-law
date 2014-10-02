@@ -1,0 +1,1 @@
+Artículo 18.- La calificación final del curso se obtiene de la ponderación de las actividades evaluativas del proceso de aprendizaje por su respectivo valor porcentualy deberá ser entregada a los estudiantes dentro del período establecido en el calendario institucional.

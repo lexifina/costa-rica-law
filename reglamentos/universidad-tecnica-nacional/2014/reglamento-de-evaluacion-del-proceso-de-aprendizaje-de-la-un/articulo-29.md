@@ -1,0 +1,1 @@
+Artículo 29.- El examen de reposición no podrá ser planteado, en ningún caso, de la misma forma que se aplicó durante la prueba regular programada a la que el estudiante no asistió. No obstante, deberá evaluar los mismos objetivos y contenidos.

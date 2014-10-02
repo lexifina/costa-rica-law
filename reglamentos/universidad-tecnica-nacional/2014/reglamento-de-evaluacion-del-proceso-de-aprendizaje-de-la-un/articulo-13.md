@@ -1,0 +1,1 @@
+Artículo 13.- El extravío comprobado de cualquier prueba o documento de evaluación por parte del docente, sin que exista evidencia de su calificación, da derecho al estudiante a que se le aplique la prueba enfocada en los mismos objetivos y contenidos.

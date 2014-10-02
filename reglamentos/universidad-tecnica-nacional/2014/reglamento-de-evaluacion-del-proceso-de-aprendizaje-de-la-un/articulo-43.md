@@ -1,0 +1,1 @@
+Artículo 43.- Cuando el estudiante esté disconforme con el resultado del recurso de revisión podrá presentar una apelación, también en forma escrita, ante el Director de Carrera o Coordinador de Área, según corresponda,dentro de los tres días hábiles posteriores a la entrega de la resolución del docente.

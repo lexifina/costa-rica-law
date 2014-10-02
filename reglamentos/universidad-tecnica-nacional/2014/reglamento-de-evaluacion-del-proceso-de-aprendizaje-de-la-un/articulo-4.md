@@ -1,0 +1,1 @@
+Artículo 4.- Las actividades de evaluación se distribuirán a lo largo de las catorce semanas efectivas del ciclo lectivo. En ningún momento se asignará una semana de entrega de promedios durante este periodo.
