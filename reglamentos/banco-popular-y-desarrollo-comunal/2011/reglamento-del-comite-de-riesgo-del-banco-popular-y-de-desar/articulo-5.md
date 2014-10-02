@@ -1,5 +1,6 @@
 Artículo 5º—Integración. El Comité estará integrado por:
-a. Dos Directores propietarios de la Junta Directiva Nacional, uno de los cuales fungirá como presidente y el otro como vicepresidente;
+a. De dos a tres directores propietarios de la Junta Directiva Nacional, uno de los cuales fungirá como presidente y otro como vicepresidente.
+(Así reformado en sesión N° 5213 del 2 de octubre de 2014)
 b. El Gerente General Corporativo, quien podrá delegar su participación en otro representante de la alta administración, cuando así lo considere pertinente;
 c. El Director de la Dirección de Gestión de Riesgo Corporativo;
 d. Un miembro externo al Conglomerado Financiero Banco Popular, nombrado por la Junta Directiva Nacional según el procedimiento que ella estime pertinente.
