@@ -1,0 +1,4 @@
+Artículo 7º—Desinscripción de una sociedad fiduciaria. La desinscripción de la sociedad fiduciaria del RNVI debe ser autorizada por la Superintendencia. La autorización está sujeta a la presentación de la siguiente documentación:
+a. Solicitud suscrita por el representante legal de la sociedad fiduciaria.
+b. En caso de que los fideicomisos administrados por la sociedad tengan emisiones inscritas, solicitud de desinscripción según lo dispuesto en el Reglamento sobre oferta pública de valores.
+Aquellas sociedades fiduciarias que no posean fideicomisos emisores de valores de oferta pública inscritos por un periodo superior a doce meses consecutivos y no se encuentren en trámite de inscripción de nuevas vehículos de este tipo, serán desinscritas de oficio por la Superintendencia y se informará al mercado mediante un Comunicado de Hecho Relevante.
