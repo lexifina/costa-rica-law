@@ -1,0 +1,4 @@
+CAPÍTULO III
+Otras autorizaciones
+Artículo 29.—Otras Autorizaciones. Los vehículos de propósito especial, sus administradores y los patrocinadores del proyecto son los responsables de velar porque se obtengan los permisos y las autorizaciones requeridas para cada proyecto.
+En el prospecto de emisión se deben revelar las autorizaciones y permisos requeridos para el proyecto detallando los obtenidos, así como el lugar en el que la documentación de estos puede ser consultada por el público inversionista. La copia de los documentos que demuestran la obtención de los permisos y autorizaciones se puede incluir como anexo al prospecto de considerarse necesario. Adicionalmente, en el prospecto se deben especificar los permisos y autorizaciones pendientes y describir el proceso para su obtención, el estado actual de los trámites, así como los riesgos de no conseguirlos u obtenerlos parcialmente, detallando las posibles consecuencias para los inversionistas en cada caso.

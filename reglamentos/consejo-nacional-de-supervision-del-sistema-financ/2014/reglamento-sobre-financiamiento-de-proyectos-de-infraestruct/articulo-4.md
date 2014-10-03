@@ -1,0 +1,5 @@
+Artículo 4º—Condiciones de los proyectos. Los proyectos deben cumplir con las siguientes condiciones:
+a. Las características generales del proyecto a desarrollar deben ser definidas por el patrocinador del proyecto en el acto constitutivo del vehículo de propósito especial. En el prospecto se debe revelar el proyecto concreto de modo que se conozca qué obras se van a desarrollar, cuándo, cómo, dónde, si se desarrollará por etapas y si incluye equipamiento y la prestación de servicios complementarios, los cuales son de carácter accesorio.
+b. Los proyectos se pueden encontrar en cualquier etapa de avance de: diseño, desarrollo, construcción o refinanciamiento.
+c. Los proyectos pueden estar localizados dentro o fuera del territorio nacional.
+d. Una vez registrada la primera emisión de valores de oferta pública, no se pueden incorporar al vehículo nuevos proyectos o nuevas obras que no formen parte de la concepción inicial del proyecto. Las obras producto de imprevistos necesarias para el proyecto se consideran parte del concepto inicial del proyecto.

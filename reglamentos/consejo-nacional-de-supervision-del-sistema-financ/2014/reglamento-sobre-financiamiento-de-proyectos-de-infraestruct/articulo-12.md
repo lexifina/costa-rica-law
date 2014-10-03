@@ -1,0 +1,3 @@
+CAPÍTULO II
+Órganos de gestión y control
+Artículo 12.—Órganos de gestión y control. El vehículo de propósito especial debe contar con una estructura organizativa y recursos humanos y tecnológicos adecuados para su objetivo, que proporcionen un ambiente de control sobre los proyectos, sus riesgos y conflictos de interés. Dicha estructura y recursos deben ser definidos por las partes y revelarse en el prospecto de la emisión. A nivel administrativo se deben revelar las unidades de control con las que contará el vehículo, su perfil, funciones y experiencia; mientras que a nivel funcional, de manera general, las políticas aplicables, incluyendo los criterios para la contratación de profesionales o empresas a participar en el proyecto.

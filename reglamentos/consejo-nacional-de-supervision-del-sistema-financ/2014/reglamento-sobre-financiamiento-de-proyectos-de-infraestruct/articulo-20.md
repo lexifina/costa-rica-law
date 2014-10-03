@@ -1,0 +1,2 @@
+Artículo 20.—Garantías y mecanismos de mejora crediticia. Pueden utilizarse garantías o mecanismos de mejora crediticia con el propósito de respaldar las emisiones para financiar proyectos de infraestructura o mejorar su calificación de riesgo. Estos mecanismos pueden ser internos o externos, según se deriven de los flujos provenientes del proyecto o sean aportados por un tercero.
+En el prospecto se debe revelar si las emisiones poseen garantías o mecanismos de mejora crediticia, detallando en qué consiste el mecanismo y el procedimiento para su utilización.

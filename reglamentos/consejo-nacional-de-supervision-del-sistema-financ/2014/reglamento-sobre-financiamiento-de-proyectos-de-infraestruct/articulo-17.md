@@ -1,0 +1,4 @@
+TÍTULO III
+Financiamiento de los proyectos
+Artículo 17.—Plan de Inversión y estructura de financiamiento. En el prospecto de emisión se debe revelar el plan de inversión y la estructura de financiamiento del proyecto, el aporte patrimonial inicial y la justificación de dicha estructura. Asimismo, cuando se efectúe un aporte patrimonial inicial, se debe detallar si existe algún mecanismo previsto para la salida del patrocinador o los inversionistas de patrimonio inicial.
+Se deben revelar las fuentes de financiamiento alternativo a las que podría recurrir el proyecto en caso de que no se cumpla a cabalidad el plan de inversión y la estructura de financiamiento, así como las condiciones generales que deben reunir las operaciones de crédito que se formalicen con posterioridad a la autorización de oferta pública.
