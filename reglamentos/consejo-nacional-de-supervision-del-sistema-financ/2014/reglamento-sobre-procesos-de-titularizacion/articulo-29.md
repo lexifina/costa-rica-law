@@ -1,0 +1,2 @@
+Artículo 29.—Quiebra o liquidación de una sociedad titularizadora. Los procesos de quiebra y liquidación de las sociedades titularizadoras se regirán por lo dispuesto en esa materia en el Código de Comercio para las sociedades anónimas.
+En caso de quiebra o liquidación de una sociedad titularizadora, los activos subyacentes de cada uno de los vehículos de propósito especial que administra no pasarán a integrar la masa común ni podrán ser distribuidos como haber social entre los accionistas de la sociedad titularizadora.

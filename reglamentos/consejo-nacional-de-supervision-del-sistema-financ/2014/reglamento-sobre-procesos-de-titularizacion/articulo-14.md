@@ -1,0 +1,1 @@
+Artículo 14.—Disposición de los bienes remanentes de la universalidad. Una vez cancelados los valores emitidos por la universalidad, los bienes y las obligaciones que integren los activos y pasivos remanentes pasarán al patrimonio común de la sociedad titularizadora, a menos que se establezca lo contrario en el prospecto de la emisión.

@@ -1,0 +1,4 @@
+Artículo 30.—Desinscripción de una sociedad titularizadora. La desinscripción de la sociedad titularizadora debe ser autorizada por la Superintendencia. La autorización está sujeta a la presentación de la siguiente documentación:
+a. Solicitud suscrita por el representante legal de la sociedad titularizadora.
+b. En caso de que los vehículos de titularización administrados por la sociedad tengan emisiones inscritas, solicitud de desinscripción según lo dispuesto en el ROPV, o la propuesta de sustitución de la sociedad titularizadora, de acuerdo con el artículo 28. de este Reglamento.
+Aquellas sociedades titularizadoras que no posean vehículos de titularización inscritos por un periodo superior a doce meses consecutivos y no se encuentren en trámite de inscripción de nuevos vehículos de este tipo, serán desinscritas de oficio por la Superintendencia y se informará al mercado mediante un Comunicado de Hecho Relevante.

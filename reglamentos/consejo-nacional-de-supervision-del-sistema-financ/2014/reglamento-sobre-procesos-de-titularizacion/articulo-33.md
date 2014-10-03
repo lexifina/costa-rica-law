@@ -1,0 +1,1 @@
+Artículo 33.—Monto máximo a emitir. En el caso de las universalidades y de los fideicomisos de titularización que emitan valores de contenido crediticio o mixtos, el monto máximo a emitir está condicionado a que el flujo de caja, considerando las entradas y salidas de efectivo acumuladas e incluyendo el servicio de la deuda, sea mayor a cero para cada periodo.

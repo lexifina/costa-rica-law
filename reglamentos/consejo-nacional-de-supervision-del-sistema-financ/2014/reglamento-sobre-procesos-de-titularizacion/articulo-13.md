@@ -1,0 +1,5 @@
+Artículo 13.—Liquidación de las universalidades. La universalidad será objeto de liquidación en los siguientes casos:
+a. El vencimiento del plazo señalado en el prospecto.
+b. Cuando ante la quiebra, la liquidación o la cancelación de la autorización concedida a la sociedad titularizadora, no se haya podido trasladar la administración de la universalidad a otra sociedad titularizadora.
+c. Otras causales de terminación de carácter excepcional que hayan sido debidamente reveladas en el prospecto.
+En cualquier caso, el prospecto debe incluir los mecanismos de liquidación de la universalidad, incluyendo la forma de enajenación de los activos y el tratamiento que se brindará a las obligaciones adquiridas remanentes, entre estas las emisiones en circulación. Estas condiciones deben ser reveladas junto con los riesgos e implicaciones que conllevan para los inversionistas. En caso de que existan emisiones en circulación, de previo a la ejecución de la liquidación de la universalidad se debe cumplir con el correspondiente trámite de autorización previa para su desinscripción.
