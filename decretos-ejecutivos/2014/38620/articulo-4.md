@@ -1,0 +1,1 @@
+Artículo 4º—Periodicidad de las audiciones: Las audiciones se llevarán a cabo anualmente, antes del inicio de la temporada oficial de la OSN o si las circunstancias lo ameritan, en el momento del año en que sea requerido.

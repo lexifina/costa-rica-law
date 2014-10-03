@@ -1,0 +1,1 @@
+Artículo 23.—De la notificación de los resultados: Los resultados serán notificados a los participantes, como máximo dentro de los cinco días hábiles siguientes al día de realización de la audición, por medio de resolución motivada, suscrita por el Director General del CNM.

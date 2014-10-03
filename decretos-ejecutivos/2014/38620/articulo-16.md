@@ -1,0 +1,1 @@
+Artículo 16.—De la grabación de audiciones: Las audiciones serán grabadas en audio, en forma completa. Esto constituirá medio de prueba y será un apoyo para que el Jurado Calificador pueda decidir. Estas grabaciones se documentarán en el archivo del CNM, y no serán públicas.

@@ -1,0 +1,1 @@
+Artículo 20.—De la declaratoria del ganador: Se declarará ganador al concursante que obtenga el mayor puntaje en la segunda fase de la audición, para ocupar el puesto que debe ser llenado, o para conformar el registro de elegibles.

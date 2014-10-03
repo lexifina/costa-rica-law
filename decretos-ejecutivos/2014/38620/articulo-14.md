@@ -1,0 +1,1 @@
+Artículo 14.—De las decisiones del Jurado Calificador: Las decisiones del Jurado Calificador se tomarán por mayoría simple. En caso que el Director Artístico se encuentre en disconformidad con el acuerdo tomado, podrá ejercer su derecho de veto, motivándolo por escrito en el acta respectiva, generándole al Centro, la obligación de convocar a una nueva audición.

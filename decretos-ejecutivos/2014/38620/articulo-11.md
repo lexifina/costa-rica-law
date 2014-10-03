@@ -1,0 +1,1 @@
+Artículo 11.—De los Jurados Calificadores: Se establecen los Jurados Calificadores como órganos colegiados encargados de evaluar las audiciones que regulan el ingreso de nuevos músicos a la Orquesta Sinfónica Nacional, e integrar el registro de elegibles.

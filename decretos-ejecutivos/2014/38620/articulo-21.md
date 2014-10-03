@@ -1,0 +1,2 @@
+Artículo 21.—De las audiciones desiertas: Si ningún postulante obtiene la calificación mínima en la audición, el Jurado Calificador deberá declararla desierta, lo cual se consignará en el acta parcial o final según corresponda.
+En caso que no se llenara la plaza vacante, la Dirección del Centro podrá convocar a audición en el extranjero, cumpliendo el mismo procedimiento establecido en éste Reglamento o al menos utilizando un sistema análogo que garantice transparencia y objetividad en la selección del candidato.
