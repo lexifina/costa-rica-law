@@ -1,0 +1,1 @@
+Artículo 5º—Tope máximo. El tope máximo se establece en el 30% del fondo de caja chica. No se realizarán erogaciones por concepto de incremento del tope máximo, cuando se trate de servicios de alimentación y gastos de representación, salvo autorización específica del Comité del Deporte, mediante acuerdo razonado.

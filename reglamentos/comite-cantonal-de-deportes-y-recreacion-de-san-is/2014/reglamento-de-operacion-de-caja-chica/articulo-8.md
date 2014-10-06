@@ -1,0 +1,1 @@
+Artículo 8º—Administración de fondos. La administración del fondo de caja chica estará a cargo del Comité Cantonal de Deportes y Recreación, bajo la supervisión directa del Tesorero sobre Contador del Comité y del Presidente o quien ocupe su cargo en su ausencia en lo referente a los procedimientos de compra, quienes velarán por su correcto funcionamiento.

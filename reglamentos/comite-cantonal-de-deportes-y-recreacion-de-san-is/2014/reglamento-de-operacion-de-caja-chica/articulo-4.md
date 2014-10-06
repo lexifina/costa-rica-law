@@ -1,0 +1,1 @@
+Artículo 4º—Fondo fijo. La caja chica operará por medio del sistema de fondo fijo, cuyo monto se establece en la suma de ciento cincuenta mil colones (¢150.000,00). Este monto puede reformarse por acuerdo razonado del (Concejo Municipal a solicitud del Comité de Deportes y Recreación de San Isidro de Heredia).

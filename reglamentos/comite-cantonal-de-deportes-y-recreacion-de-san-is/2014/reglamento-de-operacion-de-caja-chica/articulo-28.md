@@ -1,0 +1,1 @@
+Artículo 28.—Implementación. El presente reglamento podrá ser implementado, en cuanto a trámites, procedimientos y control interno mediante instructivo debidamente aprobado por el Comité Cantonal de Deportes y Recreación de San Isidro de Heredia y ratificado por el Concejo Municipal de la Municipalidad de San Isidro de Heredia.

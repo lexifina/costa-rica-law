@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Controles y arqueos
+Artículo 25.—Arqueos. La caja chica estará sujeta a arqueos periódicos y sin previo aviso realizados por el tesorero(a) del Comité Cantonal de Deportes y por la Auditoría Interna de la Municipalidad de San Isidro cuando lo considere oportuno. Dicho arqueo constara por escrito, hora de inicio y finalización y deberá ser firmado por la persona que lo efectuó y por el encargado del fondo. Estos arqueos podrán realizarse en cualquier momento y como mínimo se deberán realizar dos semestrales. El encargado del fondo está en la obligación de suministrar toda la información requerida para estos casos.

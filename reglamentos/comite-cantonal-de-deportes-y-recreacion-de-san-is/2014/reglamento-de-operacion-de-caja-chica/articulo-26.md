@@ -1,0 +1,1 @@
+Artículo 26.—Faltantes y sobrantes de caja chica. Cualquier faltante que se produzca al momento de efectuarse el arqueo debe ser cubierto de inmediato por el responsable del fondo. En la misma forma cualquier sobrante deberá ser depositado en la cuenta corriente del Comité Cantonal de Deportes y Recreación de San Isidro de Heredia a más tardar un día hábil siguiente.
