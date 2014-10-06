@@ -1,1 +1,1 @@
-Artículo 4°—La compra de bienes y servicios necesarios para la administración de los bienes, se regirá, en lo que corresponda, por la Ley de Contratación Administrativa y su reglamento, así como por el Reglamento de la comisión de contratación administrativa del Banco de Costa Rica.
+Artículo 4º—La compra de bienes y servicios necesarios para la administración de los bienes, se regirá, en lo que corresponda, por la Ley de Contratación Administrativa y su reglamento, así como por el Reglamento de la comisión de contratación administrativa del Banco de Costa Rica.
