@@ -21,9 +21,9 @@ $18.50
 $15.00
 2.5.- Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorias nacionales y extranjeras
 $20.00
-2.6.- Cargos enviados a clientes y devueltos por dirección errónea
-$2.00
-(Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
+2.6. Cargos enviados a clientes y devueltos por dirección errónea
+$3.00
+(Así reformado el punto 2.6) anterior mediante sesión 43-14 del 6 de octubre del 2014)
 2.7.- Nota de débito generada por la devolución de un cheque defectuoso
 (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 2.22 de este mismo apartado)
 $4.00 más gastos del corresponsal.
@@ -132,33 +132,43 @@ De $0 hasta $3.000.000….............. 0.12%
 De $3.001.000 hasta $5.000.000…. 0.09%
 De $5.001.000 hasta $7.000.000…. 0.07%
 De $7.001.000 en adelante…………0.065%
-2.35.-Órdenes de pago (transferencia) a otras oficinas bancarias
+2.35.- Órdenes de pago (transferencia) a otras oficinas bancarias
 -Colones y dólares mínimo $3.00
 Montos %
 Hasta $200.00 2.0%
 Exceso $201.00 a $1.800.00 1.5%
 Exceso de $1,801.00 en adelante 0.5%
+(Así reformado el punto 2.35) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.34, pero el texto coincide con el punto 2.35))
 2.36.-Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros
-a. US $ 2.00 con un máximo de 3 fotocopias.
-b. Sobre exceso $ 0.50 por folio.
+a. US $2.00 con un máximo de 3 fotocopias.
+b. Sobre exceso $0.50 por folio.
+(Así reformado el punto 2.36) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.35) el texto coincide con el punto 2.36))
 2.37.-Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
-Se cobrara $ 2.00 por cada retiro en ventanilla
+Se cobrará $2.00 por cada retiro en ventanilla
 Nota:
 Se considera un retiro masivo a partir de 10 retiros, el cobro aplica sólo cuando el beneficiario de las sumas sean personas jurídicas.
+(Así reformado el punto 2.37) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reformaindica que es al punto 2.36) el texto coincide con el punto 2.37))
 2.38.-Nota de débito en cuenta corriente y cuenta de ahorros, para retiro de efectivo en ventanilla
-Costo de la comisión por cada nota de débito $ 5.00
+Costo de la comisión por cada nota de débito $5.00
+(Así reformado el punto 2.38) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.37) el texto coincide con el punto 2.38))
 2.39.- Comisión por planilla de empresa mediante depósitos en ventanilla
-Por cada depósito realizado a una cuenta $ 1.00
-2.40.-Comisión por mantenimiento de saldos mínimos en cuentas corrientes
-Mantener saldos promedios mensuales, de $50 ó ¢100.000 en las cuentas corrientes, con código de clase 1, que son las cuentas comunes.
+Por cada depósito realizado a una cuenta $1.00
+(Así reformado el punto 2.39) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.38) el texto coincide con el punto 2.39))
+2.40.- Comisión por mantenimiento de saldos mínimos en cuentas corrientes
+Mantener saldos promedios mensuales, de $50 o ¢100.000 en las cuentas corrientes, con código de clase 1, que son las cuentas comunes.
 La comisión por mantener un saldo promedio inferior al establecido, sería de $10.
-2.41.-Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
+(Así reformado el punto 2.40) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.39) el texto coincide con el punto 2.40))
+2.41.-Divisas depositadas por concepto de exportación en cuenta corriente / ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $10.00
+(Así reformado el punto 2.41) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.40) el texto coincide con el punto 2.41))
 2.42. Comisión por retiro anticipado de un plan de ahorro automático
 3% sobre el monto ahorrado
+(Así reformado el punto 2.42) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.41) el texto coincide con el punto 2.42))
 2.43- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
-2.44.- Pago de cheques viajero
+(Así reformado el punto 2.43) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.42) el texto coincide con el punto 2.43))
+2.44.- Pago de cheque viajero
 En colones: 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
 (Así adicionado el punto 2.44 anterior mediante sesión 24-13 del 24 de junio del 2013)
+(Así reformado el punto 2.44) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.43) el texto coincide con el punto 2.44))

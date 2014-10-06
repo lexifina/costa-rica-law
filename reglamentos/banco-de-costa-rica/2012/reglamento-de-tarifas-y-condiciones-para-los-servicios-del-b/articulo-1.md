@@ -22,11 +22,12 @@ Nota: Esta comisión no se podrá financiar agregando el monto correspondiente a
 Esta comisión aplica sólo para personas físicas y sólo para cambios de igual producto en BCR.
 (Así adicionado el punto 1.2 anterior mediante sesión 24-13 del 24 de junio del 2013)
 (*)(Así reformado el punto 1.2) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)
-1.3.- Comisión de manejo de líneas de crédito revolutivas
+1.3. Comisión de manejo de líneas de crédito revolutivas.
 Esta comisión aplica para las líneas de crédito revolutivas y se cobra al formalizar cada giro de forma anualizada.
-Colones: 1.50% anualizado al formalizar
-Dólares: 1.50% anualizado al formalizar
+Colones: 2.00% anualizado al formalizar
+Dólares: 2.00% anualizado al formalizar
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.2 al 1.3. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
+(Así reformado el punto 1.3) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
 1.4.- Comisión por pago anticipado, pago parcial o cancelación de la deuda para créditos en colones y dólares
 3% para todos excepto:
 1. Líneas de crédito revolutivas a corto plazo (12 meses)
