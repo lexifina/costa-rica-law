@@ -2,5 +2,6 @@ Artículo 49.—En los reclamos de indemnización por robo de vehículos del Pod
 a) El servidor a cargo del vehículo sustraído debe inmediatamente denunciarlo ante el Organismo de Investigación Judicial. En el caso de los vehículos de uso discrecional, la denuncia podrá ser presentada por la persona que designe el funcionario al que se le ha asignado.
 b) Dentro del plazo de cinco días hábiles, contados a partir del día siguiente del accidente, la jefatura correspondiente o encargado del vehículo debe presentar la denuncia ante el Instituto Nacional de Seguros, a través del número 800-800-8000, con el propósito de que la entidad aseguradora inicie la apertura del expediente.
 c) Se debe presentar fotocopia del documento en la Agencia del Instituto Nacional de Seguro más cercana y cumplir con las declaraciones u otras gestiones que solicite esa dependencia.
-d) Remitir nota al Departamento de Proveeduría con copia a la Dirección Ejecutiva con los documentos respectivos.
+d) Remitir nota al Departamento de Proveeduría con copia a la Dirección Ejecutiva y a la Dirección Jurídica con los documentos respectivos.
+(Así reformado el inciso anterior por el artículo 15 del Reglamento de la Dirección Jurídica del Poder Judicial, aprobado en sesión N° 47 del 6 d eoctubre de 2014)
 e) Treinta días naturales después del robo o hurto, se deberá solicitar al Organismo de Investigación Judicial, certificación de que el vehículo no apareció y presentarla a la Agencia del INS en la que se lleva el caso, con el fin de completar la documentación que permita el pago de la pérdida.

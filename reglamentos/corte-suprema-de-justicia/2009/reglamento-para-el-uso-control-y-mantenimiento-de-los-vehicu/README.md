@@ -16,3 +16,4 @@ Reglamento para el uso, control y mantenimiento de los vehículos del Poder Judi
 | 2 | 2010-02-16 | Circular 27 (2010-02-16) |
 | 3 | 2014-06-02 | Circular 124 (2014-06-02) |
 | 4 | 2014-08-19 | Circular 175 (2014-08-19) |
+| 5 | 2014-10-06 | Reglamento 47 (2014-10-06) |
