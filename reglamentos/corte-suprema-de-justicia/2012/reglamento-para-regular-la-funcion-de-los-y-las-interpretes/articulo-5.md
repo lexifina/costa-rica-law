@@ -1,6 +1,7 @@
 CAPÍTULO II
 De las personas intérpretes, traductoras y peritos
-Artículo 5º—Requisitos de inscripción para intérpretes, traductores o traductoras: Para inscribirse como intérprete, traductor o traductora se deberá cumplir con los siguientes requisitos y presentar a la Sección de Asesoría Legal de la Dirección Ejecutiva los documentos que se indicarán, según sea el caso:
+Artículo 5º—Requisitos de inscripción para intérpretes, traductores o traductoras: Para inscribirse como intérprete, traductor o traductora se deberá cumplir con los siguientes requisitos y presentar a la Dirección Ejecutiva los documentos que se indicarán, según sea el caso:
+(Así reformado el párrafo anterior por el artículo 13° del Reglamento de la Dirección Jurídica del Poder Judicial, aprobado en sesión N° 47 del 6 de octubre de 2014)
 a) Nota en la que solicita su inscripción en la Lista Oficial con indicación de la zona del país y la materia o materias en las que ofrece sus servicios. Además deberá consignar los números de teléfono, fax y dirección electrónica en los que pueda ser localizada o localizado por los despachos judiciales o la Dirección Ejecutiva. La dirección electrónica indicada será además el medio señalado para recibir notificaciones.
 b) Dos fotografías tamaño pasaporte.
 c) Hoja de vida.

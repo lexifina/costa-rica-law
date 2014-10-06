@@ -13,3 +13,4 @@ Reglamento para regular la función de los y las intérpretes, traductores, peri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-07-11 | la propia norma |
+| 2 | 2014-10-06 | Reglamento 47 (2014-10-06) |

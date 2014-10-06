@@ -1,4 +1,5 @@
-Artículo 7º—Requisitos para la inscripción de peritos y peritas. Para ser inscrito como perito o perita es necesario presentar en la Sección de Asesoría Legal de la Dirección Ejecutiva, lo siguiente:
+Artículo 7º—Requisitos para la inscripción de peritos y peritas. Para ser inscrito como perito o perita es necesario presentar en la Dirección Ejecutiva, lo siguiente:
+(Así reformado el párrafo anterior por el artículo 13° del Reglamento de la Dirección Jurídica del Poder Judicial, aprobado en sesión N° 47 del 6 de octubre de 2014)
 a) Nota en la que solicita su inscripción en la Lista Oficial con indicación de la zona del país y la materia o materias en las que ofrece sus servicios. Además deberá consignar los números de teléfono, fax y dirección electrónica en los que pueda ser localizada o localizado por los despachos judiciales o la Dirección Ejecutiva. La dirección electrónica indicada será además el medio para recibir notificaciones.
 b) Dos fotografías tamaño pasaporte.
 c) Hoja de vida.
