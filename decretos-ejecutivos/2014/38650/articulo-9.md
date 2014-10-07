@@ -1,0 +1,1 @@
+Artículo 9º—La presente intervención lo será por seis meses a partir de la entrada en vigencia de la presente norma, con la posibilidad de ser ampliada mediante Decreto Ejecutivo, posterior a recomendación del Consejo de Gobierno.
