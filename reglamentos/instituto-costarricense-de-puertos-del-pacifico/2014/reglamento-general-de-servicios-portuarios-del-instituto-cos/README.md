@@ -14,3 +14,4 @@ Reglamento General de Servicios Portuarios del Instituto Costarricense de Puerto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-24 | la propia norma |
+| 2 | 2014-10-07 | Reglamento 3909 (2014-10-07) |
