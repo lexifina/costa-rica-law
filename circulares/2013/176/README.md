@@ -13,3 +13,4 @@ Protocolo sobre el procedimiento para la solicitud y otorgamiento de permisos pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-10 | la propia norma |
+| 2 | 2014-10-08 | Circular 216 (2014-10-08) |
