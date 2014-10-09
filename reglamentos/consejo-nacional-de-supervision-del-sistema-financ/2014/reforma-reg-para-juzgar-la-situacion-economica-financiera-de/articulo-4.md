@@ -1,0 +1,3 @@
+IV. Deshabilitar descarga de archivos de SICVECA
+Solicitar a la Superintendencia General de Entidades Financieras que, del Sistema de Captura, Verificación y Carga de Datos (SICVECA), deshabilite la opción para que las entidades descarguen periódicamente un archivo con el detalle del cálculo de la suficiencia patrimonial, según el Acuerdo SUGEF 3-06, el cálculo de la suficiencia patrimonial de los grupos financieros y otros conglomerados, y el detalle de la calificación, conforme a los Acuerdos SUGEF 24-00 o SUGEF 27-00.
+Las anteriores modificaciones reglamentarias rigen a partir de su publicación en el Diario Oficial La Gaceta.
