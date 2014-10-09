@@ -1,0 +1,1 @@
+Artículo 11. El Reglamento del procedimiento para la Fijación de Precios de los Productos y Servicios del INEC establecerá la metodología para fijar el precio de cada uno de los productos del Catálogo y para la actualización de los precios.

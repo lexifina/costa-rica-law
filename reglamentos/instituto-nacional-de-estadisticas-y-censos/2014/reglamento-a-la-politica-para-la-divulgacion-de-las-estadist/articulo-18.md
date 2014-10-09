@@ -1,0 +1,3 @@
+CAPÍTULO V. Marcos Muestrales y Directorios
+Artículo 18. El INEC, a partir de sus Marcos Muestrales y Directorios, brindará el servicio de venta de muestras representativas con la información agregada de las variables estrictamente necesarias para la ubicación de las unidades de estudio. También podrá entregar los mapas correspondientes con la capa básica de información en medio digital o impreso, todo ello a partir del Marco Muestral de Viviendas, el Marco Muestral de Áreas, según Uso de la Tierra y los Directorios de Establecimientos y de Fincas Grandes Agropecuarias. Estas muestras no podrán contener estratos, dominios o listados completos de subpoblaciones.
+La solicitud se hará en el ASIDE por medio del Formulario adjunto en el Anexo 5 a este Reglamento.

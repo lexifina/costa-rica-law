@@ -1,0 +1,2 @@
+CAPÍTULO IV. Documentación y metadatos
+Artículo 15. El INEC pondrá a disposición de los usuarios, por medio del Archivo Nacional de Datos (ANDA), contenido en su página Web, la documentación metodológica de cada una de las operaciones estadísticas: marco conceptual, cuestionarios, manuales, codificaciones, procesos, estándares de calidad, variables, creación de variables, procesos de validación, imputación, ajustes y todo documento que facilite el uso e interpretación de las estadísticas. Asimismo, publicará los metadatos asociados a cada uno de los indicadores que genera.

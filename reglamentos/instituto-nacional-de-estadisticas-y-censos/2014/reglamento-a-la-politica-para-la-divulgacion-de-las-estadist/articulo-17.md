@@ -1,0 +1,1 @@
+Artículo 17. El coordinador de cada operación estadística o la persona a cargo de cada Sistema de Indicadores, será responsable de suministrar el metadato de cada indicador para incluirlo en el Sistema correspondiente, así como de mantenerlo actualizado. Dicho metadato contendrá al menos la información mostrada en el Anexo 4 al presente Reglamento.

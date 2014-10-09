@@ -1,0 +1,3 @@
+CAPÍTULO II: Divulgación de los resultados de las operaciones estadísticas
+Artículo 3. Acceso de los usuarios a las estadísticas oficiales, elaboradas por el INEC
+El INEC publicará en su página web los resultados principales de sus operaciones estadísticas el mismo día en que se dan a conocer. Adicionalmente y con no más de un mes calendario posterior a la fecha oficial de publicación, los usuarios acceden a los cuadros de resultados del Plan de Tabulados, en formato Excel u otro que les permita trabajar con los datos. Cualquier persona con acceso a Internet podrá acceder, por este medio, sin costo alguno.

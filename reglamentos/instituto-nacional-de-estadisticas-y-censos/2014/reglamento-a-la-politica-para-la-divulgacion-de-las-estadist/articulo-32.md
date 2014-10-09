@@ -1,0 +1,1 @@
+Artículo 32. El Comité de Divulgación se reunirá al menos dos veces al año de manera ordinaria, en los meses de noviembre y junio. Además, se reunirá extraordinariamente cada vez que existan demandas de archivos no anonimizados , o cuando lo solicite la Gerencia o algunos de sus miembros, para atender sus funciones.

@@ -1,0 +1,1 @@
+Artículo 28. El Archivo Institucional de Bases de Datos tendrá al menos un respaldo fuera de la institución con las medidas de seguridad que garanticen su protección y confidencialidad de la información.

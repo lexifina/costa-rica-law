@@ -1,0 +1,1 @@
+Artículo 33. Sobre los anexos al presente reglamento. Los documentos anexos al presente reglamento podrán ser modificados con solo la aprobación de la Gerencia, cuando así se requiera para mejorar su aplicación y utilización.

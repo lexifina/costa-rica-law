@@ -1,0 +1,1 @@
+Artículo 27. La UTSI será responsable de actualizar las bases de datos al formato y al lenguaje informático más actual, en el caso de que el anterior deje de utilizarse. Este aspecto debe estar considerado explícitamente en la descripción del proceso y protocolos del Archivo Institucional de Bases de Datos
