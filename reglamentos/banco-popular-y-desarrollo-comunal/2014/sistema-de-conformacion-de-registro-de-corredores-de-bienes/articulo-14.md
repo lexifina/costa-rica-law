@@ -1,0 +1,1 @@
+14.—Conformación del registro de corredores de bienes raíces. Una vez en firme la aprobación de la solicitud de inscripción, el Área Bienes Adjudicados procederá a conformar el registro de corredores, el cual será administrado por esa misma Área.
