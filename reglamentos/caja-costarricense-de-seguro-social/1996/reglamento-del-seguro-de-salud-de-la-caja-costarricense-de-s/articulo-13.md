@@ -1,2 +1,3 @@
-Artículo 13º. Del beneficio en caso de separación conyugal o de ruptura de la unión de hecho.
-En los casos de separación judicial o de hecho, cuando el cónyuge separado no tenga otra fuente de ingresos que la pensión alimenticia que le suministre el responsable, el esposo o esposa tiene el derecho a ser considerado como asegurado familiar. Igual derecho, en las mismas circunstancias, le corresponde al compañero o compañera.
+Artículo 13.—Del beneficio en caso de separación conyugal o de ruptura de la unión de hecho judicialmente reconocida.
+Cuando el cónyuge o compañero(a) separado no tenga otra fuente de ingresos más que la pensión alimentaria que le suministre el responsable, conserva el derecho a ser considerado sujeto del Beneficio Familiar.
+(Así reformado mediante sesión N° 8744 del 9 de octubre del 2014)
