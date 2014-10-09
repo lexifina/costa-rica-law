@@ -1,1 +1,0 @@
-Artículo 5°.-El Comité coordinador está presidido por el representante de la Comisión Nacional de Emergencia, quien fungirá como Director Ejecutivo y estará encargado de implementar las políticas administrativas dictadas por dicho comité.

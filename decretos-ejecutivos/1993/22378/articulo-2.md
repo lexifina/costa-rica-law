@@ -1,1 +1,0 @@
-Artículo 2°.-El SINEM atenderá las emergencias médicas de cualquier ciudadano en Costa Rica, sin distingos de raza, credo, nacionalidad o condición socioeconómica; teniendo como marco de referencia las leyes de la República y los más altos principios éticos y morales.

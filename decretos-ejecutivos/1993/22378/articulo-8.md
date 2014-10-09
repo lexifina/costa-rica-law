@@ -1,1 +1,0 @@
-Artículo 8°.-A fin de lograr, un funcionamiento eficaz, armónico e integrado, del Sistema aquí creado, se instará a las instituciones participantes, para que dentro del marco de sus funciones y competencia, se acaten los acuerdos tomados por el Comité Coordinador del SINEM.
