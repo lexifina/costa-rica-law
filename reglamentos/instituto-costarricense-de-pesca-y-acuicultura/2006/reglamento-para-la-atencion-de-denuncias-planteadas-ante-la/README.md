@@ -14,3 +14,4 @@ Reglamento para la Atención de Denuncias Planteadas ante la Auditoría Interna 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-08-29 | la propia norma |
+| 2 | 2014-10-10 | Acuerdo 359 (2014-10-10) |
