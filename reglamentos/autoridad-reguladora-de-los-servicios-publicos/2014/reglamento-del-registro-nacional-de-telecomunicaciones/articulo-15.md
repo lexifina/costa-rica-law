@@ -1,0 +1,2 @@
+Artículo 15. Del efecto de la advertencia administrativa.
+La anotación de la advertencia administrativa se efectuará de oficio por parte del RNT o a gestión de parte, previa valoración de procedencia que hará dicho Registro. La advertencia administrativa se hará a través de una nota marginal temporal, es decir, esta desaparecerá una vez que se haya subsanado lo que advierte y no impedirá la inscripción de actos posteriores con relación al asiento del que se trate.

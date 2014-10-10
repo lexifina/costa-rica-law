@@ -1,0 +1,2 @@
+Artículo 9. De las obligaciones fiscales.
+La cancelación del timbre fiscal será requisito para la inscripción de los contratos privados de acceso e interconexión, los convenios privados para el intercambio de tráfico internacional y cualquier otro acto que en el futuro disponga la SUTEL y que necesariamente deba cancelar especies fiscales de conformidad con el artículo 272 inciso 1 y el artículo 276 del Código Fiscal (Ley N° 8 y sus reformas).
