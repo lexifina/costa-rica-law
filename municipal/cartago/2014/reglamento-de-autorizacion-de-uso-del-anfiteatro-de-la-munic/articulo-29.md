@@ -1,0 +1,2 @@
+Artículo 29.—En los eventos que entreguen programas de mano, agendas o cualquier tipo de divulgación correspondiente al evento, deberá incluirse el logo oficial de la Municipalidad y del Anfiteatro. Igualmente incluir los créditos relacionados con la Municipalidad, datos que serán suministrados por la Oficina de Turismo.
+Rige a partir de su publicación en el Diario Oficial La Gaceta, según lo dispuesto en el artículo 43 del Código Municipal.

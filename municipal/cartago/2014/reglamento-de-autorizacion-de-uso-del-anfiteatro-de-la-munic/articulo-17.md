@@ -1,0 +1,1 @@
+Artículo 17.—El solicitante tendrá derecho a un ensayo en el Anfiteatro durante las horas hábiles del personal municipal del mismo, y siempre y cuando exista opción en la agenda mensual. Este ensayo no podrá exceder las tres horas desde el momento de ingreso hasta la salida de quienes participan en este ensayo.

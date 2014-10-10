@@ -1,0 +1,2 @@
+Artículo 10.—El personal del Anfiteatro está compuesto por funcionarias y funcionarios municipales, quienes no tendrán obligación alguna en tareas como vender boletos, recibirlos en las entradas, manejar dineros o recibos, o realizar montajes y desmontajes. Estos aspectos serán responsabilidad única y exclusiva de los solicitantes, ya sean éstos personas físicas o jurídicas.
+Los funcionarios del Anfiteatro solamente entregarán boletos de entrada para los eventos gratuitos abiertos al público general.

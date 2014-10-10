@@ -1,0 +1,2 @@
+Artículo 28.—Si el solicitante desea realizar fotografía y filmación profesional, deberá indicarlo en el formulario de solicitud e igualmente deberá ajustarse a las disposiciones que para tal efecto se definan por el Anfiteatro.
+La autorización al público para utilizar cualquier equipo de grabación no profesional en área de butacas durante el evento, queda sujeto a las solicitudes particulares de cada solicitante en el evento correspondiente. No se permitirá filmación profesional que no sea previamente informada por el solicitante.

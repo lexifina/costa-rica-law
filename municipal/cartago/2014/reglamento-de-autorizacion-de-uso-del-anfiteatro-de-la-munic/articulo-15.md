@@ -1,0 +1,1 @@
+Artículo 15.—El espacio concedido para la actividad solicitada no podrá cederse bajo ningún título, incluida la tolerancia, a persona u organización diferente a la solicitante. La actividad autorizada no podrá ser variada sin la aprobación previa de la Administración. De comprobarse incumplimiento de esta condición se cancelará el evento sin devolución del pago por uso.

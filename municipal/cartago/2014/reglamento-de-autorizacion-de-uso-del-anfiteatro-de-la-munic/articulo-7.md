@@ -1,0 +1,5 @@
+CAPÍTULO III
+Del uso
+Artículo 7º—Para obtener la autorización de uso de un evento en el Anfiteatro, el interesado deberá presentar formulario de solicitud y anexos en la Oficina Municipal de Turismo, al menos con un mes de anticipación a la fecha solicitada. El formulario será suministrado por la Oficina Municipal de Turismo a través de los distintos medios físicos y digitales que para tal efecto se designen.
+La firma y entrega de la solicitud a la Oficina Municipal de Turismo, implica la aceptación expresa y sin reservas de todas las condiciones establecidas en el presente reglamento, así como de las disposiciones generales del uso de las instalaciones del Anfiteatro, los cuales se le aportarán al solicitante junto con el formulario.
+Presentado el formulario en la Oficina de Turismo, se procederá inmediatamente a verificar el cumplimiento de los requisitos. En caso de aprobarse la solicitud, se hará del conocimiento del solicitante para la respectiva firma de un contrato que indicará los derechos y las obligaciones del usuario del Anfiteatro. Este contrato debe firmarse dentro de los 8 días naturales siguientes a la notificación de la aprobación de solicitud.

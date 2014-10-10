@@ -1,0 +1,1 @@
+Artículo 18.—El solicitante deberá acatar lo dispuesto por el Anfiteatro para ingreso y salida del equipo, mobiliario, artistas y personal de apoyo del evento solicitado, así como para la permanencia en el inmueble, a efectos de generar un espacio agradable y seguro, tanto para artistas y equipo de trabajo como para el público.

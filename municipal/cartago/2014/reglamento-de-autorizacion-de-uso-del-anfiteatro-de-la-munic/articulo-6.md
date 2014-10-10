@@ -1,0 +1,1 @@
+Artículo 6º—La Municipalidad podrá hacer uso libre del inmueble en ejercicio de su actividad administrativa y de gobierno local, por lo que queda a su discreción y como prioridad, el uso del mismo para los efectos de eventos artísticos gratuitos para la comunidad, organizados por la misma entidad u otras actividades propias del quehacer municipal.

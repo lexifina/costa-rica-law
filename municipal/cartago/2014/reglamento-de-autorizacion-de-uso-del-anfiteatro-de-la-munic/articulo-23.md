@@ -1,0 +1,1 @@
+Artículo 23.—Sin excepción, la cantidad total de los boletos puestos a la venta y vendidos, deberá ser congruente con la capacidad del anfiteatro, a fin de evitar una sobreventa o una ocupación mayor de lo permitido.

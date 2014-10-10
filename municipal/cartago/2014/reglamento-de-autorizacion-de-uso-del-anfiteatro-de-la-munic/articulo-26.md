@@ -1,0 +1,1 @@
+Artículo 26.—La Municipalidad podrá difundir la agenda mensual de eventos públicos en la página web de la institución, así como difundirlo a través de redes sociales, correos electrónicos que lo soliciten, medios de prensa local y nacional.
