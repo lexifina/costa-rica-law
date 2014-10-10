@@ -1,0 +1,2 @@
+Artículo 72.—Escrito de pretensiones. El escrito de pretensiones puede ser presentado por una o por ambas partes, indicando claramente al tribunal el motivo del diferendo y el o los temas específicos sobre los cuales deberá pronunciarse.
+El escrito de pretensiones deberá contener una descripción de los hechos, la controversia, los fundamentos técnicos o de derecho sobre los cuales se apoya, la prueba con que cuentan las partes y su pretensión.

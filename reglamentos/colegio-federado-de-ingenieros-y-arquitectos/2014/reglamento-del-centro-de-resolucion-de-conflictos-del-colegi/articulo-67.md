@@ -1,0 +1,2 @@
+Artículo 67.—Recursos contra el laudo. Contra el laudo dictado por el tribunal arbitral, solamente podrán interponerse los recursos de nulidad y revisión a que hace referencia la sección VI de la Ley RAC.
+En caso de interposición del recurso de nulidad la Sala Primera podrá ordenar el reenvío, y el tribunal arbitral deberá cumplir con lo ordenado por la Sala. El tribunal, entonces, recuperará la competencia para este acto y dictará nuevamente el laudo.

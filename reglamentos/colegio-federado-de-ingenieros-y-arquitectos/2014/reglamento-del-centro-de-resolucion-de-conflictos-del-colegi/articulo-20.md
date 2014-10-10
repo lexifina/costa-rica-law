@@ -1,0 +1,1 @@
+Artículo 20.—Ejecución judicial. Los acuerdos de conciliación y los laudos nacionales e internacionales emitidos por el CRC serán ejecutables por la vía de ejecución de sentencia de acuerdo con lo que establece la legislación procesal ordinaria ante los órganos jurisdiccionales.

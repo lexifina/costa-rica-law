@@ -1,0 +1,3 @@
+Artículo 33.—Secreto profesional y confidencialidad. Es absolutamente confidencial el contenido de las actividades preparatorias, conversaciones y convenios de acuerdos conciliatorios.
+Las partes no pueden relevar al conciliador del deber del secreto profesional, ni tendrá valor probatorio el testimonio o la confesión de las partes ni del conciliador sobre lo ocurrido o expresado durante la conciliación, salvo en los procesos civiles o penales en los que se discuta la posible responsabilidad del conciliador o se traten de interpretar los alcances de un acuerdo conciliatorio ya concluido.
+Cualquiera que participe en las audiencias de conciliación está igualmente obligado a guardar el deber de confidencialidad.

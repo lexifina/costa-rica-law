@@ -1,0 +1,1 @@
+Artículo 34.—Propuestas de las partes. Cada una de las partes, a iniciativa propia o a invitación del conciliador, deberá presentar propuestas que satisfagan los intereses de ambas partes para la resolución del problema.

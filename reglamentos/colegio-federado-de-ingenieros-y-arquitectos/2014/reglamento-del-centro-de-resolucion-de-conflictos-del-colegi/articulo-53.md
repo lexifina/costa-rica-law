@@ -1,0 +1,2 @@
+Artículo 53.—Recusación de árbitros. Un árbitro podrá ser recusado ante el CRC por las mismas causales que establecen las reglas de la Asociación Internacional de Abogados (IBA, por sus siglas inglés) en lo que corresponda. Si la recusación es procedente, el CRC nombrará de su lista otro árbitro que deberá ser aceptado por las partes. Este procedimiento será utilizado también en cualquier caso que sea necesario sustituir un árbitro.
+Una parte podrá recusar al árbitro nombrado por ella únicamente por causas de las que haya tenido conocimiento después de la designación.

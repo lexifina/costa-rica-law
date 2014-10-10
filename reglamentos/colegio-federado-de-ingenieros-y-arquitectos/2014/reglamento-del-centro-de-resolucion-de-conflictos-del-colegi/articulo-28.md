@@ -1,0 +1,5 @@
+Artículo 28.—Procesos abreviados. Se considerarán procesos abreviados los casos en que se celebre una única audiencia de conciliación, a criterio de la Jefatura.
+Podrán exonerarse de la tarifa correspondiente los procesos abreviados en los siguientes casos:
+a. Si la obra objeto de la controversia es una vivienda de interés social, siempre y cuando el propietario aporte fotocopia de la declaratoria correspondiente o de la certificación de exoneración;
+b. Cuando los interesados demuestren que la cuantía en disputa es menor a la suma de las tarifas por gastos administrativos a cancelar por ambas partes durante una audiencia preliminar y tres audiencias conjuntas, más un 50% de esta cifra.
+En todos los casos anteriores, si el diferendo no se resolviera en esta audiencia, las partes podrán solicitar una segunda audiencia de conciliación, para la que aplicará la tarifa establecida con base en el artículo 13, “Tarifas de conciliación” de este reglamento. No obstante, a criterio de la Jefatura, se podrá exonerar del pago de la tarifa correspondiente.

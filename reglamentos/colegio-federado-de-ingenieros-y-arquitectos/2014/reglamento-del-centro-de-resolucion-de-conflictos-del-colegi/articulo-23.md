@@ -1,0 +1,3 @@
+Artículo 23.—Designación de los conciliadores. El CRC, de su lista de conciliadores, designará al conciliador, el cual deberá ser aceptado por las partes. Al formular recomendaciones o efectuar nombramiento de personas para el cargo de conciliador, el CRC, tendrá en cuenta las características del asunto a tratar, así como las consideraciones que puedan garantizar el nombramiento de un conciliador con independencia e imparcialidad.
+Si las partes deciden escoger ellas mismas al conciliador, deberán hacerlo de común acuerdo por escrito, y de la lista de conciliadores del CRC.
+Una vez asignado el conciliador el CRC fijará hora y fecha para la audiencia preliminar de conciliación, considerándose esta fecha como de inicio del proceso de conciliación.

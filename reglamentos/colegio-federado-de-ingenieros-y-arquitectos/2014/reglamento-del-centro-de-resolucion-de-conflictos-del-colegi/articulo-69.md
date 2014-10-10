@@ -1,0 +1,1 @@
+Artículo 69.—Tribunal arbitral pericial. La actuación de los árbitros peritos se sujetará a las formalidades que acuerden las partes o, en su defecto, lo que establezcan este reglamento y la ley RAC sobre arbitraje. El tribunal arbitral podrá ser unipersonal o colegiado; en caso que las partes no lo establezcan, será tribunal unipersonal.

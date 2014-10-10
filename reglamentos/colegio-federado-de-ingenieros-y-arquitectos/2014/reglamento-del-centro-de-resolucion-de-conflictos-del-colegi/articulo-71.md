@@ -1,0 +1,1 @@
+Artículo 71.—Inicio del proceso. La o las partes que requieran someter a conocimiento de un tribunal arbitral pericial su diferencia deberán presentar al CRC un requerimiento con los extremos contenidos en el artículo 54, “Requerimiento arbitral”. Asimismo, deberá contener el escrito de pretensiones según lo establecido en el artículo 58, “Escrito de pretensiones”.

@@ -1,0 +1,1 @@
+Artículo 39.—Admisibilidad de pruebas en otros procesos. Las partes no invocarán ni propondrán como pruebas en un procesos arbitral o judicial, se relacionen éstos o no con la controversia objeto del proceso conciliatorio, los hechos reconocidos, opiniones expresadas o propuestas formuladas durante el desarrollo de la conciliación.

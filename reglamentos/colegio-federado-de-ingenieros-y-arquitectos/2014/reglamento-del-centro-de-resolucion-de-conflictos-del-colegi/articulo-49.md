@@ -1,0 +1,5 @@
+Artículo 49.—Conformación del tribunal arbitral. Si las partes convienen que sea un arbitraje colegiado, pero no han determinado el tipo de arbitraje, el arbitraje será de equidad mixto. En(*) el caso en que una de las partes fuese el Estado, el arbitraje será de derecho.
+(*) (Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 97 del 21 de mayo de 2015, página 116. La corrección es la siguiente: ““Salvo” y corríjase la siguiente palabra a efectos que inicie con mayúscula.”)
+En caso de que las partes elijan el arbitraje colegiado de equidad mixto, dos de los miembros del tribunal arbitral deberán ser miembros del CFIA. El presidente deberá ser abogado. En todos los casos deberán cumplir con los requisitos establecidos en el artículo 6, “Registro de neutrales”, pertenezcan o no a la lista de neutrales del CRC.
+En caso de que las partes elijan el arbitraje pericial, los árbitros que no son presidente deberán ser de la lista de peritos del CFIA.
+En todos los casos, el presidente del tribunal será de la lista de árbitros del CRC.

@@ -1,0 +1,3 @@
+Artículo 86.—Ley de fondo. El tribunal arbitral aplicará la ley que las partes hayan indicado como aplicable al fondo del litigio. Si las partes no indican la ley aplicable, el tribunal arbitral aplicará la ley que determinen las normas de conflicto de leyes que estime aplicables.
+El tribunal arbitral decidirá como amigable componedor, sólo si las partes lo han autorizado expresamente para ello y si la ley aplicable al proceso arbitral permite este tipo de arbitraje.
+En todos los casos, el tribunal arbitral decidirá con arreglo a las estipulaciones del contrato y tendrá en cuenta los usos mercantiles aplicables al caso.

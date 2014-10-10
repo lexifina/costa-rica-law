@@ -1,0 +1,3 @@
+Artículo 65.—Motivos de conclusión del proceso. Si antes de dictarse el laudo, las partes llegan a un arreglo sobre el fondo del asunto, así lo comunicarán al tribunal arbitral a través del CRC y el tribunal concluirá el proceso. El tribunal podrá homologar el acuerdo y darle carácter de laudo.
+Si antes de dictarse el laudo se hace innecesaria o imposible la continuación del proceso arbitral, previa justificación jurídicamente válida ante el CRC y las partes, el tribunal arbitral podrá dictar la conclusión del proceso y hacer efectivo el pago de sus honorarios.
+Se considerará razón jurídicamente válida para dar por concluido el proceso arbitral sin laudo, cuando no exista adecuación formal entre la cláusula o el acuerdo arbitral y las pretensiones de las partes.

@@ -1,0 +1,4 @@
+Artículo 100.—Custodia y conservación del expediente arbitral
+El CRC será el encargado de la custodia y conservación del expediente una vez que se encuentre en firme el laudo.
+Transcurrido un año desde la firmeza del laudo, y previo aviso a las partes para que, en un plazo de quince días puedan solicitar el desglose y la entrega de los documentos originales que hubiera aportado, cuyos gastos cubrirá el interesado, cesará la obligación del CRC de custodia y conservación del expediente y sus documentos, a excepción de una copia del laudo, de las resoluciones y comunicaciones del tribunal arbitral, que se conservarán en el archivo destinado por el CRC para tal efecto.
+Mientras esté en vigor la obligación del CRC de custodia y conservación del expediente, cualquiera de las partes podrá solicitar el desglose y entrega, a su costa, de los documentos originales que hubiera aportado.

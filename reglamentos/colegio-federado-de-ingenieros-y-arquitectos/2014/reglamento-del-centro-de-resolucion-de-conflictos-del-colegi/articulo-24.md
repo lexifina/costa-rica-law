@@ -1,0 +1,1 @@
+Artículo 24.—Cantidad de conciliadores. Se nombrará uno o más conciliadores por caso, quienes preferiblemente deberán tener conocimientos afines a la naturaleza del asunto. Cuando haya más de un conciliador, deberán, por regla general, actuar de común acuerdo; pero sólo uno será el conciliador titular.

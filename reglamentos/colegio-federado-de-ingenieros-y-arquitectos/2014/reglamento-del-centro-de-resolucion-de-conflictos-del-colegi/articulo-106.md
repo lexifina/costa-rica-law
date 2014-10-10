@@ -1,0 +1,2 @@
+Artículo 106.—Confidencialidad. Los neutrales deberán realizar los esfuerzos requeridos para no invadir innecesariamente la privacidad de las partes. No utilizarán la información obtenida durante el proceso, directa o indirectamente, para algún propósito ajeno al proceso RAC.
+Los conciliadores, una vez finalizado el proceso, destruirán las notas elaboradas; únicamente constarán en el expediente el o los acuerdos conciliatorios, si los hubiere, y los documentos administrativos correspondientes.

@@ -1,0 +1,2 @@
+Artículo 110.—Normativa aplicable. Se integran de pleno derecho a este reglamento y le será aplicable la normativa de la Ley RAC, la Ley LACI, y la normativa concordante.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 97 del 21 de mayo de 2015. Anteriormente se indicaba: “Normativa aplicable. Se integran de pleno derecho a este reglamento y le será aplicable la normativa de la Ley RAC, la Ley LACI, y la normativa concordante del Código Procesal Civil.”)

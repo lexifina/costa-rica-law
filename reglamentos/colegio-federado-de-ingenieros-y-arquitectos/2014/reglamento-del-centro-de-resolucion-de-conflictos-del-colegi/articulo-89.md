@@ -1,0 +1,9 @@
+Artículo 89.—Respuesta a la solicitud de arbitraje. En el plazo de 30, días tras la fecha de recepción de la solicitud de inicio del arbitraje, el solicitado deberá comunicar al solicitante y al CRC, su respuesta a la solicitud de inicio del arbitraje, en la que adjuntará la siguiente información:
+a) El nombre y los datos de contacto de cada parte solicitada, así como de las personas que los representan y la naturaleza de su representación;
+b) La respuesta a la información que se haya consignado en la solicitud de inicio del arbitraje.
+La respuesta a la solicitud de inicio del arbitraje podrá contener asimismo:
+a) Toda excepción de incompetencia oponible al tribunal arbitral;
+b) Una breve descripción de toda reconvención a la demanda que se vaya a presentar o de toda pretensión que se vaya a hacer valer a efectos de compensación, indicándose también, cuando proceda, las sumas reclamadas y la materia u objeto que se demandan;
+c) Una solicitud de inicio de arbitraje, en caso de que el solicitado presente una demanda contra una parte en el acuerdo de arbitraje que no sea el solicitante.
+La constitución del tribunal arbitral no se verá obstaculizada por el hecho de que el solicitado no responda a la solicitud de inicio del arbitraje, o por la respuesta incompleta o tardía que el solicitado dé a dicha notificación, lo que será finalmente resuelto por el tribunal arbitral. Si en el plazo de un mes no se presentará al inicio del arbitraje el CRC resolverá lo que corresponda.
+(Nota de Sinalevi: Mediante Fe de Erratas y publicada en La Gaceta N° 97 del 21 de mayo de 2015, página, se indicó corregir la última oración de este artículo. Al no existir la frase claramente a corregir se transcribe dicha corrección: “Artículo 89: En la última oración léase la frase “al inicio del” en lugar de “respuesta a la solicitud de inicio de”.)

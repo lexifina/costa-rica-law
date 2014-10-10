@@ -1,0 +1,5 @@
+Artículo 94.—Independencia e imparcialidad. Todo árbitro debe ser y permanecer independiente e imparcial, y no podrá mantener con las partes y sus representantes o asesores, relación personal, profesional o comercial.
+Antes de su nombramiento o confirmación, la persona propuesta como árbitro deberá suscribir una declaración de independencia e imparcialidad y comunicar por escrito al CRC cualquier circunstancia que pudiera considerarse relevante para su nombramiento y, especialmente, las que pudieran suscitar dudas justificadas acerca de su independencia o imparcialidad. El CRC dará traslado de ese escrito a las partes para que, en el plazo de diez días, formulen sus alegaciones al respecto.
+El árbitro deberá comunicar de inmediato, mediante escrito dirigido tanto al CRC como a las partes, cualesquiera circunstancias de naturaleza similar que surgieran durante el arbitraje.
+Las decisiones sobre el nombramiento, confirmación, recusación o sustitución de un árbitro serán firmes.
+El árbitro, por el hecho de aceptar su nombramiento, se obliga a desempeñar su función hasta su término con diligencia y de conformidad con lo dispuesto en este reglamento.

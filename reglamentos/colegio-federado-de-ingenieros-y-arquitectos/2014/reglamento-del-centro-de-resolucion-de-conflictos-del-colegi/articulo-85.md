@@ -1,0 +1,8 @@
+CAPÍTULO VII
+Del arbitraje internacional
+Artículo 85.—Sometimiento. Cuando las partes hayan acordado por escrito someter a arbitraje(*) una controversia que ha surgido o pueda surgir entre ellas, respecto de una determinada relación jurídica contractual o no contractual internacional, será el proceso(*) conducido de conformidad con este reglamento sobre arbitraje, salvo en lo modificado por las partes.
+(*) (Corregido el párrafo anterior mediante Fe de Erratas, y publicada en La Gaceta N° 97 del 21 de mayo de 2015, página 116. La corrección consistió en: “En la primera oración, después de la palabra “someter” léase “a arbitraje” y agréguese la frase “el proceso” antes de la frase “será conducido”)
+Se entenderá que las partes encomiendan la administración del arbitraje internacional al CRC cuando el acuerdo de arbitraje someta la resolución de sus diferencias al CFIA, al CRC o a cualquier otro centro arbitral pero interpongan su solicitud ante el CRC y la otra parte lo acepte.
+Se presumirá que las partes se han sometido al reglamento que esté en vigor en la fecha de apertura del proceso de arbitraje.
+Este capítulo regirá el arbitraje internacional, excepto cuando una de sus normas esté en conflicto con una disposición del derecho aplicable al arbitraje que las partes no puedan derogar, en cuyo, caso prevalecerá esa disposición.
+El acuerdo arbitral se aplicará a aquellos cuyo consentimiento de someterse a arbitraje, según la buena fe, se determina por su participación activa y de manera determinante en la negociación, celebración, ejecución o terminación del contrato que comprende el acuerdo arbitral o al que el acuerdo estérelacionado. Se aplicará también a quienes pretendan derivar derechos o beneficios del contrato, según sus términos.

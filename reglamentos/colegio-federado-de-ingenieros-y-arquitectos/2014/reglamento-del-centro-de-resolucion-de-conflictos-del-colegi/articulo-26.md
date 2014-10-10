@@ -1,0 +1,2 @@
+Artículo 26.—Audiencias conjuntas. El conciliador realizará audiencias conjuntas con ambas partes, y procurará que las audiencias no sobrepasen dos horas y media en un mismo día. Podrá firmarse al final un acuerdo parcial o final de conciliación. Para cada audiencia conjunta el conciliador dejará constancia de la asistencia de las partes y de sus asesores, si los hubiera.
+Una vez celebradas las audiencias preliminares el conciliador decidirá sobre la conveniencia de la realización de audiencias conjuntas o separadas.

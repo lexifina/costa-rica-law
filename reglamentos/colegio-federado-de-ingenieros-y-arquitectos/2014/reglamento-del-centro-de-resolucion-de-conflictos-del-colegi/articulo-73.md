@@ -1,0 +1,2 @@
+Artículo 73.—Contestación. En caso que solo una de las partes hubiese presentado el escrito de pretensiones, el CRC dará traslado en diez días para que la otra parte se pronuncie al respecto e indique sus alegatos sobre la controversia, haciendo referencia a los hechos, la controversia, los fundamentos técnicos o de derecho sobre los cuales se apoya, la prueba y su pretensión.
+Una vez presentadas las pretensiones de las partes, el CRC procederá con el nombramiento del tribunal, el cual se instalará e iniciará el proceso arbitral.

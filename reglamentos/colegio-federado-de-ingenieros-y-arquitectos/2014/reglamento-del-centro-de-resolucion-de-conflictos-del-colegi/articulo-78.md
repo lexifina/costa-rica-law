@@ -1,0 +1,1 @@
+Artículo 78.—Normativa aplicable. Sobre lo que no esté regulado en este capítulo, se aplicará lo dispuesto en este reglamento, y supletoriamente, las partes podrán adoptar reglas o procedimientos existentes sobre este tipo de mecanismos de solución de controversias, utilizadas por entidades tanto nacionales como internacionales.

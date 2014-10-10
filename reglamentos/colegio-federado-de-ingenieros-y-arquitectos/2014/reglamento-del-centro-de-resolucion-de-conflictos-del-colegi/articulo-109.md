@@ -1,0 +1,2 @@
+Artículo 109.—Declaración de Independencia e imparcialidad. Todos los árbitros y miembros de comité deberán ser y permanecer independientes e imparciales de las partes, firmar una declaración de independencia e imparcialidad y entregarla al CRC.
+Ante cualquier duda de independencia e imparcialidad, todos los neutrales deberán de inmediato comunicar al CRC cualesquiera hechos o circunstancias que puedan sobrevenir durante el ejercicio de sus funciones, a efecto de que pueda ser sustituido oportunamente.

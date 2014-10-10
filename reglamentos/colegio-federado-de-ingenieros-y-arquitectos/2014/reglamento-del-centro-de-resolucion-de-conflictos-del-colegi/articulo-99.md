@@ -1,0 +1,6 @@
+Artículo 99.—Provisión de fondos para costas. El CRC fijará el importe de la provisión de fondos para las costas del arbitraje.
+Durante el proceso arbitral, el CRC, de oficio o a petición del tribunal arbitral, podrá solicitar provisiones de fondos adicionales a las partes.
+En los supuestos en que, por formularse reconvención o por cualquier otra causa, fuera necesario solicitar el pago de fondos a las partes en varias ocasiones, corresponderá en exclusiva al CRC determinar la asignación provisional de los pagos.
+El pago de las costas corresponderá al solicitante y al solicitado por partes iguales. Si alguna de las partes no cumpliera su obligación, cualquiera de las otras partes podrá suplir ese pago para que continúe el proceso y sin perjuicio del reparto final que proceda.
+A falta de algún pago de costas, el CRC lo pondrá en conocimiento de las partes para que cualquiera de ellas haga el pago requerido en el plazo de diez días. Si el pago no se efectuara en ese plazo, el arbitraje dará por concluido, en cuyo caso, una vez deducida la cantidad que corresponda por gastos administrativos, el CRC reembolsará a cada parte la cantidad restante que hubiera depositado.
+Emitido el laudo, el CRC remitirá a las partes una liquidación sobre las provisiones recibidas. El saldo sin utilizar será restituido a las partes en la proporción que a cada una corresponda.

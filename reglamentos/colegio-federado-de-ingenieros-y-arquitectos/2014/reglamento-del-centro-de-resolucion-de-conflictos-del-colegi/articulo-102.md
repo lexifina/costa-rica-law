@@ -1,0 +1,1 @@
+Artículo 102.—Limitación de responsabilidad. Ni el CFIA, ni el CRC, ni su personal administrativo, ni los miembros del tribunal arbitral serán responsables frente a persona o institución alguna, por hechos, actos u omisiones relacionados con el proceso arbitral internacional de que conozcan.

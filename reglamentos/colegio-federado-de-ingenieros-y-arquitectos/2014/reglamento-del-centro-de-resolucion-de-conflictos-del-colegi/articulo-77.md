@@ -1,0 +1,1 @@
+Artículo 77.—Laudo. El tribunal arbitral decidirá con base en principios técnicos. Emitirá un laudo que deberá ser fundamentado y contener relación de los hechos, los alegatos de las partes, la fundamentación y decisión, que será vinculante para las partes, con autoridad y eficacia de cosa juzgada material.

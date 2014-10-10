@@ -1,0 +1,1 @@
+Artículo 31.—Asistencia administrativa. Con el fin de facilitar el desarrollo del proceso conciliatorio, las partes, o el conciliador de conformidad con éstas, podrán disponer de la asistencia administrativa del CRC en la solicitud de peritos u otra asesoría necesaria.

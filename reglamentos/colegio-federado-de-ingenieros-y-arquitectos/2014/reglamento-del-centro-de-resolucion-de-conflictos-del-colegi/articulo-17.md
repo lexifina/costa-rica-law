@@ -1,0 +1,2 @@
+Artículo 17.—Tarifas de arbitrajes ad-hoc. Cuando un tribunal arbitral ad-hoc solicite los servicios de administración del CRC, se cobrará la tarifa administrativa correspondiente por concepto de gastos administrativos según el artículo 15, “Tarifas de arbitrajes”, tomando como referencia para el cálculo el monto de honorarios del tribunal arbitral.
+En este caso, el proceso arbitral será administrado por el CRC y las reglas de procedimiento serán las que establezcan las partes o, en su defecto, las establecidas por el tribunal arbitral en la resolución de instalación.

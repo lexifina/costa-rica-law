@@ -1,0 +1,1 @@
+Artículo 74.—Audiencia preliminar. El tribunal arbitral convocará a las partes a más tardar en un plazo de cinco días a una audiencia preliminar en la cual se definirán con precisión los puntos sobre los cuales se pronunciará el tribunal y el plazo en el cual resolverá, que no podrá sobrepasar el mes a partir de la terminación de la etapa probatoria.

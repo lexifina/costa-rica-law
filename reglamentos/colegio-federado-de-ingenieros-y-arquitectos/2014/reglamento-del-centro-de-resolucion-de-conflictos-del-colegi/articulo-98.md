@@ -1,0 +1,1 @@
+Artículo 98.—Honorarios y gastos administrativos. El monto por concepto de honorarios del tribunal arbitral y gastos administrativos del CRC se calculará con base a la tarifa vigente al inicio del proceso.

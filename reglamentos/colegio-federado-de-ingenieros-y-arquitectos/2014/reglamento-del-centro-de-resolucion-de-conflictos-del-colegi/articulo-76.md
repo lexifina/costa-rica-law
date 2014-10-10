@@ -1,0 +1,1 @@
+Artículo 76.—Conclusiones. En cualquier momento después de la audiencia preliminar y antes del vencimiento de la fecha para laudar, el tribunal deberá convocar a las partes para que presenten sus conclusiones en forma oral o escrita.
