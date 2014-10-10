@@ -1,0 +1,1 @@
+Artículo 17.—Se deja sin efecto la resolución DGT-03-2009 dictada por esta Dirección General de Tributación, a las catorce horas cuarenta y cinco minutos del veinte de enero del dos mil nueve, denominada “Resolución sobre la renta neta presuntiva de empresas no domiciliadas con establecimiento permanente en Costa Rica dedicadas al transporte internacional”.

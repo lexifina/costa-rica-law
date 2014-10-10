@@ -1,0 +1,1 @@
+Artículo 11.—El margen de contribución tributaria que se autorice en la solicitud, según lo dispuesto por el artículo 6 de esta resolución, será el que se aplique en la determinación del sistema especial de cálculo de la renta líquida, para los tres periodos fiscales consecutivos otorgados, sobre los ingresos brutos respectivos.
