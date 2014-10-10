@@ -1,2 +1,0 @@
-Artículo 24.—Equidad de género. La designación de delegados que realice cada organización de base deberá realizarse con al menos un cincuenta por ciento de mujeres, requisito que debe ser aplicado por igual e independientemente en la designación de titulares como de suplentes.
-En caso de que a la organización le corresponda nombrar una cantidad de delegados impar, deberá integrar una delegación mayoritariamente de mujeres, a efecto de garantizar que las delegaciones sectoriales estén integradas por un cincuenta por ciento de mujeres, como mínimo.

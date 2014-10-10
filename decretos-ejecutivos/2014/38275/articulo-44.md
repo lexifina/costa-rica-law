@@ -1,1 +1,0 @@
-Artículo 44.—Derogatoria. El presente Decreto deroga los Decretos Nº 35687-MTSS publicado en Alcance uno de La Gaceta número tres del 6 de enero del 2010 y el Nº35717-MTSS publicado en Alcance dos de La Gaceta número veintiuno del 1 de febrero del 2010.

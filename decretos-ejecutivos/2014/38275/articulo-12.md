@@ -1,4 +1,0 @@
-CAPÍTULO III
-Asignación de Cuotas por Sector
-Artículo 12: Censo de ahorrantes para la determinación de cuotas por sector y organización. El Banco, por medio de su Administración en coordinación con la Comisión de la Asamblea de Trabajadores y Trabajadoras, debe levantar el censo, con corte al primer trimestre del año que inicia el cuatrienio, de todos los ahorrantes obligatorios a efectos de determinar la cantidad de delegados y delegadas que le corresponden a cada organización y a cada sector. A partir de estos resultados la Comisión procederá a levantar las listas de los delegados y delegadas, por organización y por sector. La Administración en coordinación con la Comisión efectuará una publicación, en el Diario Oficial La Gaceta y en al menos dos medios de circulación nacional, informando a los sectores y organizaciones sociales, los plazos y condiciones respectivos.
-(Así reformado por el artículo 4° del decreto ejecutivo N° 38492 del 4 de junio del 2014)

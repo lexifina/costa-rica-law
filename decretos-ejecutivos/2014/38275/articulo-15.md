@@ -1,1 +1,0 @@
-Artículo 15.—Plazo para subsanar la información pendiente. En caso de que la documentación adicional indicada en el artículo anterior presente algún vicio u omisión, la Comisión otorgará diez días hábiles a la organización respectiva, para que se corrija la situación. Si no se cumpliere en plazo, la organización no será considerada.

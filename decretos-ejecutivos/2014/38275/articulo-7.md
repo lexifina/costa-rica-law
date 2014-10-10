@@ -1,1 +1,0 @@
-Artículo 7º—Quórum para la Comisión de Integración. El quórum para sesionar válidamente será la mitad más uno de sus integrantes y los acuerdos se adoptarán con el voto de la mayoría absoluta de los asistentes. En caso de empate el Presidente ejercerá el voto de calidad.

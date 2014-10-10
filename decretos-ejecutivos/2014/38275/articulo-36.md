@@ -1,1 +1,0 @@
-Artículo 36.—Impugnación de las Asambleas de los Sectores. Salvo disposición en contrario, cualquier impugnación a los actos dictados por una Asamblea de alguno de los Sectores indicados en los artículos 29 y 32, serán resueltos por la misma Asamblea.
