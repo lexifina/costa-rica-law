@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P11 Procedimiento de evaluación in situ para Organ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-11 | la propia norma |
+| 2 | 2014-10-11 | Acuerdo 0 (2014-09-05) |
