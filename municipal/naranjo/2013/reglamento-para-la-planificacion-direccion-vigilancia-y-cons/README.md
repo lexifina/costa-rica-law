@@ -14,3 +14,4 @@ Reglamento para la planificación, dirección, vigilancia y conservación de los
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-09 | la propia norma |
+| 2 | 2014-10-13 | Reglamento municipal 41 (2014-10-13) |
