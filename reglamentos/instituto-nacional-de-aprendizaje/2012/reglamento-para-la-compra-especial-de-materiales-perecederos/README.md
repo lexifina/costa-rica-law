@@ -14,3 +14,4 @@ Reglamento para la compra especial de materiales perecederos, de alto riesgo y d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-13 | la propia norma |
+| 2 | 2014-10-13 | Reglamento 4650 (2014-10-13) |
