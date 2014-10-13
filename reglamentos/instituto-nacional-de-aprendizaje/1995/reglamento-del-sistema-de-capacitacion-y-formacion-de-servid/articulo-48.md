@@ -1,4 +1,0 @@
-Artículo 48: GARANTÍAS
-Los becarios deberán aportar una garantía que cubra el treinta por ciento estimado del beneficio concedido. Dicha garantía podrá otorgarse mediante fianza solidaria, o cualquier otro tipo de garantía admisible legalmente. Quedarán exentos de esta obligación los becarios de acciones de capacitación que no superen las cien horas. La (*) Unidad de Recursos Humanos llevará un control de las garantías rendidas por los becarios. En caso de fianza solidaria, se admitirá un límite de dos fianzas por cada fiador, que podrá ser funcionario o no de la Institución. En caso de que el fiador propuesto labore para empresas privadas, se requerirá además de la constancia salarial, copia de la orden patronal.
-La Dirección de Asesoría Legal deberá asesorar en esta materia a la Unidad de Recursos Humanos.
-(Así reformado mediante sesión N° 3332 del 11 de marzo de 1996)

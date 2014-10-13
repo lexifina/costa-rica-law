@@ -1,2 +1,0 @@
-Artículo 57: MONTO A PAGAR POR INCUMPLIMIENTO
-En caso de incumplimiento, el becario deberá pagar el monto fijado por la Comisión, la cual tomará en cuenta los beneficios concedidos. Sobre el monto adeudado, el becario deberá cubrir intereses sobre saldos calculados al tipo más bajo cobrado por el Banco Nacional de Costa Rica al momento de establecerse la obligación. En el contrato deberá incluirse una cláusula al efecto.

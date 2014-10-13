@@ -1,2 +1,0 @@
-Artículo 58: TITULO EJECUTIVO
-Establecida la responsabilidad y fijado el monto a cubrir, la Presidencia Ejecutiva o por delegación la Gerencia General, expedirá la certificación con carácter de título ejecutivo sobre dicha fijación, conforme lo disponen los Artículos 210 y 228 de la Ley General de la Administración Pública, 76 de la Ley Reguladora de la Jurisdicción Contencioso Administrativo y 438 y siguientes del Código Procesal Civil.

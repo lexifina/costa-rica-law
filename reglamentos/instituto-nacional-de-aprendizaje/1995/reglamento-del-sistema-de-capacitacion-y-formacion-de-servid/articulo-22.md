@@ -1,2 +1,0 @@
-Artículo 22: EXCUSAS Y RECUSACIONES.
-Las abstenciones y recusaciones de los miembros de la Comisión serán conocidas y resueltas por ésta, conforme a las previsiones de los artículos 230 y siguientes de la Ley General de la Administración Pública, aplicables en lo conducente. En caso de que la recusación sea declarada sin lugar, el funcionario gestionante tendrá derecho de interponer contra lo resuelto los recursos ordinarios de revocatoria y de apelación previstos en este Reglamento.

@@ -1,2 +1,0 @@
-TRANSITORIO I
-Las disposiciones de este Reglamento no serán aplicables a los funcionarios que, antes de su entrada en vigencia, ya se encuentren disfrutando alguno de los beneficios previstos en el anterior “Reglamento del Sistema de Capacitación y Formación de Servidores del Instituto Nacional de Aprendizaje”, vigencia a partir del día 13 de diciembre de 1993, y las vicisitudes que surjan con relación a esos beneficios se resolverán de conformidad con las reglas del último reglamento citado, salvo que resulte más favorable la aplicación del presente reglamento.

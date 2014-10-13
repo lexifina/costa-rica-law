@@ -1,2 +1,0 @@
-Artículo 18: NATURALEZA DE LAS SESIONES
-Las sesiones de la Comisión serán privadas. No obstante, por unanimidad de los miembros presentes, podrá acordarse que tenga acceso a ella el público en general o bien aquellas personas que hayan sido invitadas a hacerlo, y se les concederá a éstas el derecho a participar en las deliberaciones con voz pero sin voto, si así lo acuerda la mayoría absoluta de los miembros presentes.

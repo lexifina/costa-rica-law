@@ -1,2 +1,0 @@
-Artículo 41: SITUACIÓN LABORAL DEL BECARIO
-El becario al reanudar las funciones interrumpidas con motivo de los estudios, tiene derecho a que se le reintegre en el puesto, y el tiempo empleado en sus estudios se le tomará como tiempo efectivamente trabajado, en cuanto le favorezca, en lo relativo a pago de anualidades, reconocimiento de Dedicación Exclusiva, Grado Profesional y demás extremos laborales.
