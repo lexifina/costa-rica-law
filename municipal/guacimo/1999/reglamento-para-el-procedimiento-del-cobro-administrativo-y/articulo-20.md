@@ -1,6 +1,0 @@
-Artículo 20.-EI abogado deberá realizar las siguientes gestiones:
-a) Presentación de la demanda de cobro judicial conteniendo las certificaciones correspondientes debidamente firmadas por los funcionarios municipales, en un plazo no mayor de tres días hábiles, en caso de no hacerse en ese lapso, el abogado enviará una carta explicativa a la oficina respectiva, para su utilización por parte de la oficina correspondiente.
-La presentación de la demanda debe testimoniarse con el sello y la fecha del Juzgado que recibió dicha demanda, siendo requisito imprescindible para el cobro de honorarios.
-b) Los abogados quedan obligados a exigir a los Tribunales donde se trasmitan los casos, que se le sellen y firmen las copias de todos los escritos que se presenten, de los cuales deberá entregar copia a la Oficina de Cobro Administrativo.
-c) Realizar estudios de retenciones como mínimo cada tres meses en los procesos que estén bajo su sección y solicitar cuando existe sentencia firme la orden de giro correspondiente. Una vez dictada la sentencia de previo y en plazo no mayor de quince días naturales deberá presentar al Tribunal respectivo la liquidación de costos.
-d) En el escrito inicial de la demanda se realizará para notificaciones la oficina del profesional en derecho.

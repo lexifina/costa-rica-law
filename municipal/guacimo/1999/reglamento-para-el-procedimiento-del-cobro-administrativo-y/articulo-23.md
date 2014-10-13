@@ -1,1 +1,0 @@
-Artículo 23.-La Municipalidad podrá realizar los trámites administrativos respectivos contra el abogado, ante la Fiscalía del Colegio de Abogados, en aquellos casos que se demuestre negligencia o impericia en la tramitación judicial de las cuentas a cobrar.
