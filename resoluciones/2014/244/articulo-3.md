@@ -1,0 +1,1 @@
+3º—Que el código correspondiente en el Sistema TICA, para el Tratado de Libre Comercio entre los Estados de la Asociación Europea de Libre Comercio (AELC) y los Estados Centroamericanos es el número 17 (diecisiete).

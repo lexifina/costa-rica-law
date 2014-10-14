@@ -1,0 +1,1 @@
+7º—Que según lo dispuesto en el artículo 16 y 19 de la Sección IV del Anexo 1 del Acuerdo, las Pruebas de Origen se pueden recibir en los idiomas en los que se redactó el AELC (inglés o español), razón por la cual la autoridad aduanera en el ejercicio del control inmediato o a posteriori, está facultada por la normativa para exigir la traducción al idioma español.
