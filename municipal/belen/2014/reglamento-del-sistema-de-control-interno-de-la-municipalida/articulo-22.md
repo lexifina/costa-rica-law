@@ -1,0 +1,1 @@
+Artículo 22.—Participación de otros funcionarios y órganos de la Comisión de Control Interno. Los demás integrantes de la Comisión de Control Interno, deben cumplir con las responsabilidades descritas en el capítulo II del presente Reglamento.
