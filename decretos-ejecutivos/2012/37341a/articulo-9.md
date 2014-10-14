@@ -16,8 +16,5 @@ verificar en los puntos de venta el cumplimiento de lo dispuesto en este procedi
 a. Requerir, previa solicitud, la documentación que sustenta la declaración de conformidad respectiva.
 b. Tomar muestras para efectuar ensayos relativos a la evaluación de la conformidad indicados en el presente reglamento técnico.
 c. Solicitarle al productor nacional, importador o su agente o agencia de aduanas, la información de toda aquella documentación que sustentó la evaluación de conformidad de sus mercancías, sean estas de producción nacional o importadas.
-9.1.2.4. Se aceptarán como equivalentes para efectos de homologación, las Declaraciones de Cumplimientos basadas en normas ASTM A496, ASTM A615 y ASTM A706.
-En el caso de la ASTM A 615, Grado 40 y Grado 60, se deben cumplir con:
-a) El esfuerzo real de cedencia no sobrepasa el esfuerzo especificado en más de 1250 kg/cm2.
-b) La relación de la resistencia última en tracción y el esfuerzo de cedencia real no es inferior a 1,25.
-(Así reformado el punto 9.1.2.4) anterior por el artículo 1° del decreto ejecutivo N° 37932 del 6 de setiembre del 2013)
+9.1.2.4. Se aceptarán como equivalentes para efectos de homologación, las Declaraciones de Cumplimientos basadas en normas ASTM A615, ASTM A706 y ASTM A1064.
+(Así reformado el punto 9.1.2.4 anterior por el artículo 1° del decreto ejecutivo N° 39043 del 14 de octubre de 2014)
