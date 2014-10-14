@@ -1,0 +1,1 @@
+Artículo 9º—Comprobante. Una vez practicada la notificación, el funcionario encargado imprimirá el comprobante de transmisión, lo firmará y lo almacenará en el registro correspondiente, adjuntando una copia de lo enviado en el expediente respectivo.

@@ -1,0 +1,1 @@
+Artículo 10.—Interrupción del sistema. Si el proceso de transmisión en el Tribunal se interrumpe por cualquier motivo, cuando este se restablezca, el funcionario encargado de efectuar la notificación por correo electrónico, deberá verificar en la pantalla cuales notificaciones no fueron transmitidas, para proceder de inmediato a realizar su transmisión.
