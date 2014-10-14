@@ -1,0 +1,1 @@
+Artículo 57.—Dispensa para laborar en otra institución estatal. La Presidencia Ejecutiva podrá dispensar la obligación de laborar en el INA y permitir que la persona funcionaria beneficiaria cumpla la totalidad o parte de su obligación en otra entidad o empresa estatal.

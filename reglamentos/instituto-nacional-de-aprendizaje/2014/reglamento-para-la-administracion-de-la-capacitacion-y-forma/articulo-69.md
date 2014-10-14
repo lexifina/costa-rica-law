@@ -1,0 +1,1 @@
+Artículo 69.—Derogatoria. A partir de la vigencia del presente Reglamento, se deroga para todos los efectos el Reglamento denominado: “Reglamento del Sistema de Capacitación y Formación de Servidores” y sus reformas, aprobado por la Junta Directiva del INA en Sesión N° 3215, celebrada el 30 de enero de 1995 y publicado en La Gaceta N° 50 del viernes 10 de marzo de 1995.

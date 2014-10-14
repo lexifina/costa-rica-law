@@ -1,0 +1,5 @@
+Artículo 45.—Beneficios de capacitación fuera del país. Este beneficio de capacitación se solicita mediante un proyecto de cooperación internacional, diseñado al efecto por COOPEX y se debe incorporar al Plan de Capacitación.
+En dicho proyecto, aparte de la mención de la justificación, objetivo general y objetivos específicos que se pretenden cumplir con la capacitación, se deberán detallar las actividades a realizar y el costo aproximado del beneficio.
+Este documento será analizado por COOPEX, quien gestionará su aprobación ante la Presidencia Ejecutiva y su ejecución con fuentes de cooperación internacional.
+La comunicación de esta acción ante la CFC para su inclusión en el Plan y la reserva del presupuesto para la ejecución del proyecto, será responsabilidad de COOPEX.
+Para cada acción de capacitación específica que se realice, la persona funcionaria beneficiaria deberá suscribir un contrato por beneficios de estudios con el INA de conformidad con los deberes y obligaciones dispuestos en los capítulos VIII y IX de este Reglamento. Para tal fin, COOPEX elaborará el contrato correspondiente.

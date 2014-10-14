@@ -1,0 +1,2 @@
+Artículo 52.—Deber de solicitar autorización para interrupción o cambios en el programa de estudios. La persona funcionaria beneficiaria deberá solicitar a la CFC la autorización para realizar cualquier modificación o interrupción del programa de estudios. La propuesta de la persona funcionaria deberá estar autorizada por las instancias académicas donde cursa los estudios.
+Si el cambio se efectúa sin la autorización de CFC, se podrá dar por incumplido el contrato de conformidad con lo dispuesto por el capítulo IX de este Reglamento.

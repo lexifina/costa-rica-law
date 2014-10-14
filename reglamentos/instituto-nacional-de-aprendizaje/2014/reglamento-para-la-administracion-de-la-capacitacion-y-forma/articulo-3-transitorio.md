@@ -1,0 +1,1 @@
+Transitorio 3º—La modificación de los procedimientos del Sistema de Gestión de la Calidad relativos a los tópicos regulados en este cuerpo normativo, deberán ser gestionadas por las unidades administrativas competentes en un plazo no mayor a tres meses naturales contabilizados a partir de la vigencia de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 18.—Centralización de información de becas al exterior. Será obligación de todas las instancias que reciban ofrecimientos de becas en el exterior el remitirlas oportunamente a COOPEX para la divulgación que corresponda de conformidad con el Plan de Capacitación de las personas funcionarias.

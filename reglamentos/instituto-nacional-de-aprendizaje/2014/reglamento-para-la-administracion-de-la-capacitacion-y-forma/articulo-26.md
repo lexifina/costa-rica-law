@@ -1,0 +1,2 @@
+Artículo 26.—Presidencia de la CFC. La persona que ocupa el cargo de la Gerencia General presidirá las sesiones de la CFC. En su ausencia temporal o por delegación expresa para un período determinado, será sustituido por la persona que ocupa la Subgerencia Administrativa o Subgerencia Técnica, en ese orden.
+La CFC no podrá sesionar si no está presente la persona que ocupa el cargo de la Presidencia.

@@ -1,0 +1,1 @@
+Artículo 56.—Enfermedad o muerte del beneficiario. En caso de enfermedad grave o muerte de la persona funcionaria beneficiaria durante el periodo de estudios o en el periodo de cumplimiento del compromiso laboral, quedarán exentos de las obligaciones contraídas con el INA, él, sus familiares y sus fiadores.

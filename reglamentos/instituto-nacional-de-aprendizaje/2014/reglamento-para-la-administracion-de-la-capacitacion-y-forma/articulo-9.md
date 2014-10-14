@@ -1,0 +1,2 @@
+Artículo 9º—Competencia de COOPEX en la ejecución del Plan. COOPEX gestionará la transferencia tecnológica y de conocimientos proveniente de fuentes de cooperación internacional.
+Si la ejecución de un proyecto específico contempla una acción de capacitación, COOPEX coordinará con el PDRH su inclusión en el Plan, previa aprobación del proyecto específico de cooperación internacional por parte de la Presidencia Ejecutiva.

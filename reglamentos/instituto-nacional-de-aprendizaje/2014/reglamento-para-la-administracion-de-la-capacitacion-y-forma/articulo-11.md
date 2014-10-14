@@ -1,0 +1,1 @@
+Artículo 11.—Responsabilidad de las Gestiones y las Unidades Asesoras en la ejecución del Plan. Las Gestiones y Unidades Asesoras serán las responsables de suministrar la información adecuada para el diseño del Plan.

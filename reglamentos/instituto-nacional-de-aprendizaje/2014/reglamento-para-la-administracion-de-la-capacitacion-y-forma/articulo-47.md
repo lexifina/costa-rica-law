@@ -1,0 +1,1 @@
+Artículo 47.—Actividades de estudio dentro o fuera del país. En caso de acciones de formación o capacitación, las actividades de estudio relacionados con el área de especialidad en la que se concedió el beneficio, deben ser aceptados previamente por la CFC. La aceptación de estas actividades no implica compromiso de la Institución de sufragar parcial o totalmente sus costos.

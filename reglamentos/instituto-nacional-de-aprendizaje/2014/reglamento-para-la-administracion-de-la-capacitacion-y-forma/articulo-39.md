@@ -1,0 +1,6 @@
+Artículo 39.—Criterios para el otorgamiento de beneficios. Los criterios fundamentales a valorar para el otorgamiento de los beneficios mencionados en este capítulo, son los siguientes:
+a) La prioridad de la temática de capacitación o formación, de acuerdo con las políticas institucionales y nacionales y el Plan de Capacitación.
+b) La coherencia entre el campo de especialidad en que se capacitará o formará la persona funcionaria y la labor que se pretende desarrolle en la Institución, según el correspondiente Plan de Capacitación.
+c) Que la persona funcionaria beneficiaria de la capacitación se encuentre nombrado conforme a las disposiciones del Estatuto del Servicio Civil y que haya cumplido satisfactoriamente su periodo de prueba, o que esté nombrado bajo el régimen de Servicios Especiales, o interinos con más de tres meses de laborar interrumpidamente para el INA.
+d) Que la persona funcionaria beneficiaria de la formación se encuentre nombrada conforme a las disposiciones del Estatuto del Servicio Civil y que haya cumplido satisfactoriamente su periodo de prueba, o que esté nombrado bajo el régimen de Servicios Especiales, o interinos con más de dos años de laborar interrumpidamente para el INA.
+e) No haber recibido beneficios para obtención de grados académicos por parte de la Institución, salvo interés manifiesto de la Administración Superior.

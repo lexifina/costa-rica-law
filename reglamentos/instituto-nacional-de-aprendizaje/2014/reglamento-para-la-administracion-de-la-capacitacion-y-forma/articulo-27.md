@@ -1,0 +1,2 @@
+Artículo 27.—Quórum. El quórum para que la CFC sesione válidamente será el de la mayoría simple de sus miembros. Si no hubiere quórum, la CFC podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la fecha señalada para la primera.
+En casos de urgencia comprobada y así señalada en la convocatoria, la CFC podrá sesionar media hora después de la primera convocatoria. Para ello será suficiente la asistencia de la tercera parte de sus miembros.

@@ -1,0 +1,2 @@
+Artículo 7º—Contenido fundamental del Plan Anual de Capacitación de las personas funcionarias del INA: Este Plan deberá contener en detalle la cantidad y la descripción de las acciones de capacitación que se vayan a realizar en beneficio de la transferencia tecnológica y de conocimientos de las diversas unidades del INA.
+Para tal fin, el PDRH y COOPEX analizarán en conjunto cuáles de las necesidades pueden ser cubiertas en el país y cuáles de ellas deberán ser gestionadas en el exterior.

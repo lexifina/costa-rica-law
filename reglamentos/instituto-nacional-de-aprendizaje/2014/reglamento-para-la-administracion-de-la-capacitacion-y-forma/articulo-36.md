@@ -1,0 +1,3 @@
+Artículo 36.—Actas. Para la confección de las actas de la CFC se levantará un conteo en el que se harán constar las personas asistentes a la Sesión; la hora y el lugar donde se ha celebrado la misma; los tópicos principales de la deliberación; la forma y el resultado de las votaciones y el contenido de los acuerdos.
+Las actas deberán ser aprobadas en la siguiente Sesión Ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes hayan acordado darle un carácter de firmeza inmediata.
+Las actas serán firmadas por el Presidente de la CFC y los miembros que hubieren hecho constar su voto negativo.

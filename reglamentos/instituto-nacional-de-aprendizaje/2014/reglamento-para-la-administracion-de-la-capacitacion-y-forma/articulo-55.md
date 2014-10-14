@@ -1,0 +1,1 @@
+Artículo 55.—Incorporación al trabajo. Una vez que finalice sus estudios, la persona funcionaria beneficiaria deberá reintegrarse de inmediato a sus labores. Tratándose de estudios en el exterior, la reincorporación se hará después del término prudencial que la persona funcionaria requiera para regresar al país, lo cual deberá informar previamente.

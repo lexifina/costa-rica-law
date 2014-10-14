@@ -1,0 +1,1 @@
+Transitorio 4º—Para no afectar los plazos estipulados en el artículo 20, los miembros de la CFC que estén nombrados al momento de la vigencia de este reglamento permanecerán en sus cargos hasta el último día hábil del mes de diciembre del año de su aprobación.
