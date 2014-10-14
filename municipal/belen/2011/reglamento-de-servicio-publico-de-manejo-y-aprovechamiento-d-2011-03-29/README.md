@@ -14,3 +14,4 @@ Reglamento de servicio público de manejo y aprovechamiento de residuos ordinari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-29 | la propia norma |
+| 2 | 2014-10-14 | Reglamento municipal 60 (2014-10-14) |

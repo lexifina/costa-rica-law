@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE BELÉN
+(Esta norma fue derogada por el artículo 78 del Reglamento municipal para la gestión integral de los residuos sólidos del cantón de Belén, aprobado en sesión N° 60 del 14 de octubre del 2014)
 La suscrita Secretaria del Concejo Municipal de Belén, notifica el acuerdo tomado, en la sesión ordinaria Nº 20-2011, artículo 13, celebrada el veintinueve de marzo del dos mil once, que literalmente dice:
 El Concejo Municipal de la Municipalidad del cantón de Belén, conforme a las potestades conferidas por los artículos 4º inciso a), 13 incisos c) y e), y 17 incisos a) y h) del Código Municipal, Ley Nº 7794 y el artículo 170 de la Constitución Política, acuerda emitir el:
 REGLAMENTO DE SERVICIO PÚBLICO DE MANEJO
