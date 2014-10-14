@@ -1,0 +1,4 @@
+LIGA AGRÍCOLA INDUSTRIAL
+DE LA CAÑA DE AZÚZAR
+Avisa que, su Junta Directiva en sesión ordinaria Nº 488, celebrada el 23 de setiembre de 014, de conformidad con lo preceptuado en los artículos 97 y concordantes de la Ley Nº 7818, Ley Orgánica de la Agricultura e Industria de la Caña de Azúcar, 309, 316 y concordantes del Reglamento Ejecutivo de dicha Ley, fijó, para la zafra 2013/2014, un ajuste al adelanto del precio provisional por kilogramo de miel final que le entreguen los ingenios a LAICA en régimen de cuota de ¢5.00 y, para la miel contenida en la caña, que le entreguen los productores independientes a los ingenios, de ¢3.15 por kilogramo. Este ajuste se pagará a los ingenios el 24 de setiembre de 2014.
+De conformidad con el artículo 312, literal b) del Decreto Nº 28665-MAG, este ajuste deberá ser pagado a los productores independientes a más tardar el próximo lunes, 6 de octubre del 2014.
