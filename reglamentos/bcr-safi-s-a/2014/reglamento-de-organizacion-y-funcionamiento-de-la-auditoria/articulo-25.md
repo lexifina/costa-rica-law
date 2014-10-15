@@ -1,0 +1,1 @@
+Artículo 25.—El Auditor Interno establecerá la coordinación necesaria para que el responsable del control del presupuesto institucional mantenga controles asociados a la ejecución y modificaciones de los recursos presupuestarios de la Auditoría Interna.

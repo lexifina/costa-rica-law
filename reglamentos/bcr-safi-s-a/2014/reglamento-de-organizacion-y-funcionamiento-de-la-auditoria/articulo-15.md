@@ -1,0 +1,1 @@
+Artículo 15.—De conformidad con el artículo 23 de la Ley general de control interno, el Auditor Interno de BCR SAFI organizará la Auditoría Interna, considerando, entre otros, los objetivos y riesgos institucionales, los recursos disponibles, la normativa y disposiciones técnicas jurídicas y sanas prácticas correspondientes.
