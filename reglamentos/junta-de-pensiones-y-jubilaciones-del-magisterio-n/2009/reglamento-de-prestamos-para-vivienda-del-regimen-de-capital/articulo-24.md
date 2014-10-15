@@ -8,4 +8,5 @@ Glosario
 6) Plazo: Es el período de tiempo específico en el que ha de cubrirse el monto total otorgado en crédito.
 7) Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
 8) Pluses salariales permanentes: corresponden a aquellas compensaciones salariales que hayan sido percibidas por los trabajadores en los últimos dos años.
-9) Comité de Crédito: Estará conformado por el Director Ejecutivo o quién este delegue, el (la) Encargada de la Unidad de Crédito y Cobro, el (la) Oficial de Riesgos, el (la) Oficial de Cobro y el (la) oficial de crédito. Este comité, será el responsable de analizar las solicitudes de crédito de Vivienda del programa del Régimen de Capitalización Colectiva.
+9) Comité de Crédito: Estará conformado por el Analista de Vivienda, quien tendrá voz; el Coordinador de la Unidad de Crédito, el Oficial de Crédito y el Oficial de Cobro, quienes tendrán voz y voto. Este comité, será responsable de analizar las solicitudes de crédito de vivienda del programa del Régimen de Capitalización Colectiva.
+(Así reformada la definición anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)

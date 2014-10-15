@@ -1,2 +1,2 @@
-Artículo 15.—Comité de Crédito. Le corresponde a este Comité el análisis, aprobación o denegatoria de las solicitudes de crédito de vivienda. Este comité sesionará al menos una vez cada quince días y estará conformado por el Director Ejecutivo o su representante, el Coordinador de la Unidad de Crédito y Cobro , el Oficial de Riesgos y el Oficial de Crédito y el Oficial de Cobro.
-De las reuniones realizadas, se levantará un acta con los pormenores de los asuntos tratados.
+Artículo 15.—Comité de Crédito. Le corresponde a este Comité el análisis, aprobación o denegatoria de las solicitudes de crédito de vivienda. Este comité sesionará al menos una vez cada quince días y estará conformado por el Analista de Vivienda, quién tendrá voz; el Coordinador de la Unidad de Crédito, el Oficial de Crédito y el Oficial de Cobro, quienes tendrán voz y voto.
+(Así reformado mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
