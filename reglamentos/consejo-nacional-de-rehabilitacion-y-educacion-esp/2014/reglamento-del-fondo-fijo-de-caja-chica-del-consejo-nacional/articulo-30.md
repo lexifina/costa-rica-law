@@ -1,0 +1,1 @@
+Artículo 30.—Retención de justificantes de pagos. Cuando el encargado del manejo del Fondo considere necesario, podrá retener los justificantes de pagos, en el plazo que considere indispensable no mayor de un mes, con el fin de conformar un grupo de comprobantes del mismo objeto del gasto para proceder luego a su reintegro.

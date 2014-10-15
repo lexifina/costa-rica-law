@@ -1,0 +1,1 @@
+Artículo 47.—Derogatorias. El presente Reglamento deroga el Reglamento de Cajas Chicas aprobado por la Junta Directiva del Consejo Nacional de Rehabilitación y Educación Especial en sesión ordinaria N° 743, celebrada el 26 de junio del 2003, Acuerdo JD-061-03.

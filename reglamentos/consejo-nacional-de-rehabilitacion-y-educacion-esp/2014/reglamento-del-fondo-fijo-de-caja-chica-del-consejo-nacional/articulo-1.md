@@ -1,0 +1,17 @@
+CONSEJO DIRECTIVO DEL CONSEJO NACIONAL
+DE REHABILITACIÓN Y EDUCACIÓN ESPECIAL
+En uso de las facultades y atribuciones le que confieren la Ley de Creación del Consejo Nacional de Rehabilitación y Educación Especial, Ley N° 5347, el Reglamento Orgánico del Consejo Nacional de Rehabilitación y Educación Especial, Decreto N° 12848-SPPS, la Ley General de la Administración Pública, Ley N° 6227, la Ley de Administración Financiera y Presupuestos Públicos, Ley N° 8131, y el Reglamento General del Fondo de Cajas Chicas, Decreto Ejecutivo N° 32874.
+Considerando:
+I.—Que de conformidad con el artículo 185 de la Constitución Política a la Tesorería Nacional le corresponde la administración del efectivo del Estado, en cumplimiento del principio de Caja Única, con el fin de asegurar un manejo adecuado de los fondos públicos, de conformidad con la normativa vigente y en atención de las necesidades y obligaciones de cada entidad.
+II.—Que de acuerdo con lo dispuesto en el artículo 1° inciso a) de la Ley de la Administración Financiera de la República y Presupuestos Públicos, resulta indispensable que los órganos y entes administradores y custodios de los fondos públicos, cubiertos por el ámbito de aplicación de dicho texto normativo, dispongan de un fondo de recursos financieros que les permita afrontar gastos menores, indispensables y urgentes, bajo un marco normativo que establezca las reglas claras y responsables definidos en su manejo.
+III.—Que el artículo 61 inciso h) de la Ley de Administración Financiera y Presupuestos Públicos, confiere a la Tesorería Nacional, la competencia para autorizar la apertura de Cajas Chicas, para gastos menores de los entes administradores de fondos públicos.
+IV.—Que el artículo 86 del Reglamento a la Ley de Administración Financiera y Presupuestos Públicos, confiere a la Tesorería Nacional la competencia para emitir normativa y los procedimientos específicos para regular la operación de los fondos de caja chica que la legislación autorice, dentro del marco de respeto al principio de Caja Única.
+V.—Que de conformidad con el artículo 8 del Reglamento General del Fondo de Cajas Chicas, dado por Decreto N° 34874-H del 10 de noviembre de 2005, los entes adscritos al Poder Ejecutivo y otras entidades sujetas al principio de Caja Única, deberán diseñar su propio Reglamento de Caja Chica según su ámbito de competencia. Además, dicho Reglamento deberá ser aprobado por el jerarca respectivo, posterior visto bueno de la Tesorería Nacional y regirá una vez publicado en el Diario Oficial La Gaceta.
+VI.—Que mediante acuerdo CD-2799-14 de la sesión 1072 celebrada el 10 de julio de 2014, el Consejo Directivo del Consejo Nacional de Rehabilitación y Educación Especial, en su condición de máximo jerarca de la institución aprobó el presente Reglamento de Fondo Fijo de Caja Chica.
+VII.—Que la Tesorería Nacional del Ministerio de Hacienda, en su condición de dependencia rectora del subsistema de Tesorería, otorgó el visto bueno al presente Reglamento del Fondo Fijo de Caja Chica del Consejo Nacional de Rehabilitación y Educación Especial.
+REGLAMENTO DEL FONDO FIJO DE CAJA CHICA
+DEL CONSEJO NACIONAL DE REHABILITACIÓN
+Y EDUCACIÓN ESPECIAL
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1°—Ámbito de aplicación. El presente Reglamento contiene las disposiciones que regirán la adecuada organización, administración y control; del Fondo Fijo de Caja Chica del Consejo Nacional de Rehabilitación y Educación Especial (CNREE).

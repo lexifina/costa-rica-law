@@ -1,0 +1,14 @@
+Artículo 5°—Gastos menores indispensables y urgentes. Concepto. Se considerarán gastos menores indispensables y urgentes aquellos que no excedan el límite de gasto fijado de conformidad con lo indicado en el Artículo 6º del presente Reglamento, y que se requieren para cubrir una necesidad de manera rápida, cuya solución no puede esperar la dilación en tiempo y trámites que requieren otros procedimientos de compra. Dentro de los denominados Gastos Menores se consideran además, cuando sean urgentes, necesarios, o previa determinación de costo beneficio, los siguientes gastos:
+a) Gastos de viaje y transporte dentro del país a funcionarios y funcionarias del CNREE.
+b) Gastos de Transporte a Delegados y Delegadas, titulares y suplentes con discapacidad del Consejo Directivo, para asistir a las sesiones ordinarias y extraordinarias del órgano colegiado.
+c) Gastos de transporte y alimentación para personas con discapacidad, sus familiares y delegados de organizaciones de personas con discapacidad legalmente constituidas, para que asistan a actividades con participación institucional.
+d) Gastos de transporte y alimentación a Delegados y Delegadas del Consejo Directivo para asistir a actividades en representación del Consejo Nacional de Rehabilitación y Educación Especial, dentro del país.
+e) Gastos de transporte y alimentación a Delegados y Delegadas del Comité de Información de las Personas con Discapacidad (COINDIS), y que se encuentren enmarcados dentro de los fines legales del Comité. Dichos recursos deberán tener respaldo presupuestario dentro del presupuesto asignado al COINDIS de forma anual por el CNREE.
+f) Pago de encomiendas, correos certificados, compra de timbres para trámites especiales, certificaciones del registro nacional.
+g) Pago de fotocopias especiales, tipo planos por ejemplo.
+h) Pago de publicaciones en el Diario Oficial La Gaceta.
+i) Gastos menores de los vehículos institucionales.
+j) Pago de grúas.
+k) Reparaciones menores del edificio que surjan como emergencia y no de trabajos de mantenimiento normal de éste.
+En todos los casos deberá anteponerse el interés institucional orientado hacia el cumplimiento de las competencias y la consecución de los fines del CNREE, respetando los principios de razonabilidad, proporcionalidad y actuando en apego a una sana administración de los recursos públicos y a los mecanismos de control interno dispuestos en la institución.
+Queda prohibida la compra o arrendamiento con fondos de caja chica, de cualquier clase de equipo y mobiliario, pago de sueldos, jornales y servicios especiales, sujetos a regulaciones del Código de Trabajo, Caja Costarricense de Seguro Social y otras afines, servicios profesionales, así como compras de bienes y servicios por montos superiores al autorizado en un desembolso específico de caja chica.

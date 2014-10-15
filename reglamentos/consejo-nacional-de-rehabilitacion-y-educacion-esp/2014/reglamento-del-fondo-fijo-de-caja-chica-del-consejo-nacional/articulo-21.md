@@ -1,0 +1,1 @@
+Artículo 21.—Trámite de adelantos para gastos de viaje y transporte. Para tramitar adelantos de dinero para cubrir gastos de viaje en el interior del país, las Unidades del Consejo Nacional de Rehabilitación y Educación Especial deberán utilizar el comprobante denominado “Autorización para Gastos de Viaje dentro del País”.

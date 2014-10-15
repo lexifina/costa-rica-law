@@ -1,0 +1,1 @@
+Artículo 37.—Sobrantes y faltantes. Cuando se produzca un sobrante o faltante en las Cajas Auxiliares se procederá de conformidad con lo dispuesto para el Fondo Fijo de Caja Chica, según los artículos 7 y 8 del presente Reglamento.

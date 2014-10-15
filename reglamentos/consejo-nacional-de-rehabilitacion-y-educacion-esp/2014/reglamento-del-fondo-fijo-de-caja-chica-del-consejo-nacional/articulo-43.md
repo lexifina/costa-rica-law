@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 43.—Revisión y cumplimiento del sistema de control. Compete al titular de la Dirección Administrativa Financiera y al Jefe de la Unidad Financiera Contable, implantar y verificar el cumplimiento, la validez y la suficiencia del sistema de control interno del Fondo Fijo de Caja Chica, así como darle seguimiento y examinar regularmente la operación efectiva de este Fondo, sus registros, la custodia y el buen uso de los recursos. Tal disposición se desarrollará con fundamento en el presente Reglamento, en la Ley General de Control Interno, en las disposiciones que emita el Consejo Directivo del CNREE y en la demás normativa que se relacione con este proceso.

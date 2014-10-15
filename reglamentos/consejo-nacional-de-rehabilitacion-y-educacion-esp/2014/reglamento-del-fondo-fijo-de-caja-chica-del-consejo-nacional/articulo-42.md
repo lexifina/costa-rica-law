@@ -1,0 +1,1 @@
+Artículo 42.—Desembolsos por cajas auxiliares. Todo desembolso que se realice con fondos de las Cajas Auxiliares, deberá ser respaldado y regirse según se indica en el Capítulo III “De los Desembolsos” del presente Reglamento.

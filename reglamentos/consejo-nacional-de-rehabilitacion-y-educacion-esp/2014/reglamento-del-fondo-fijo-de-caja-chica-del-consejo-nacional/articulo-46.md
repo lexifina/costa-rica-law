@@ -1,0 +1,1 @@
+Artículo 46.—Régimen sancionatorio. Los funcionarios o empleados infractores de las disposiciones contenidas en el presente Reglamento, se harán acreedores a las sanciones que correspondan de conformidad con las leyes y Reglamentos vigentes en la materia.

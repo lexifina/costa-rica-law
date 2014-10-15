@@ -1,0 +1,1 @@
+Artículo 39.—Responsabilidad por pagos improcedentes. Si se incurre en un pago improcedente, de conformidad con lo establecido en el presente Reglamento, las personas involucradas, deberán reintegrar de inmediato el monto erogado.

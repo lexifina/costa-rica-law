@@ -1,0 +1,1 @@
+Artículo 34.—Responsables del manejo de las Cajas Auxiliares. El manejo de las Cajas Auxiliares estará a cargo de la persona que ostente el cargo de Rector o Rectora Regional y su supervisión corresponderá a la Dirección Administrativa Financiera.

@@ -1,0 +1,1 @@
+Artículo 38.—Prohibición de realizar transacciones distintas a las que se destinan los fondos. Los fondos de las Cajas Auxiliares no deberán servir para realizar operaciones distintas a las establecidas para dichos Fondos en el presente Reglamento.

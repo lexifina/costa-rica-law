@@ -1,0 +1,1 @@
+Artículo 29.—Medio para trámite del reintegro. Todo reintegro al Fondo Fijo de Caja Chica deberá tramitarse mediante el documento denominado “Solicitud de reintegro al Fondo Fijo de Caja Chica”, con el detalle de las subpartidas presupuestarias, casa comercial, Reserva Presupuestaria, y los respectivos montos, a la cual se deberá adjuntar los justificantes de los gastos.

@@ -1,0 +1,1 @@
+Artículo 9°—Cajas Auxiliares. El Fondo Fijo de Caja Chica del CNREE, podrá subdividirse en Cajas Auxiliares con cuenta corriente o fondos en efectivo, los cuales serán autorizados mediante directriz del Consejo Directivo del CNREE y se regirán por las disposiciones contenidas en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 12.—Objeto de Gasto. Las partidas y subpartidas presupuestarias autorizadas para realizar gastos por el Fondo Fijo de Caja Chica se establecerán atendiendo el Clasificador por Objeto del Gasto del Sector Público aprobado por la Dirección de Tesorería Nacional.

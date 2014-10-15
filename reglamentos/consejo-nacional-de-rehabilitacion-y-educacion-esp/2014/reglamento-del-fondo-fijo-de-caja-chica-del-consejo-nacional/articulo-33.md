@@ -1,0 +1,2 @@
+Artículo 33.—Autorización del monto de las Cajas Auxiliares y del monto máximo de pago. El monto de las Cajas Auxiliares será autorizado por la persona que ostente el cargo de titular de la Secretaría Ejecutiva del CNREE, a partir del estudio realizado por la Dirección Administrativa Financiera. El monto máximo de pago será establecido de acuerdo con lo dispuesto en el artículo 6° del presente Reglamento.
+Dichos montos deberán ser revisados anualmente por los funcionarios citados con el fin de mantenerlos actualizados a las necesidades de la Institución.
