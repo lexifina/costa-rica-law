@@ -1,0 +1,1 @@
+Artículo 7º—Coordinación y apoyo administrativo. La Dirección Académica es el órgano responsable de la coordinación operativa y administrativa del Curso y dentro de sus posibilidades, facilitará todos los equipos, materiales y apoyo necesarios para el adecuado desarrollo y cumplimiento de los objetivos que señala este Reglamento.

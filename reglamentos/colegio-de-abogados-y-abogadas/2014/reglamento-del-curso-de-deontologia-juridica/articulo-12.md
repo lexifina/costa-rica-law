@@ -1,0 +1,1 @@
+Artículo 12.—Ausencia a la prueba. Cuando un participante no se presente a la prueba reprobará el Curso de manera automática, salvo por motivo de Fuerza Mayor, justificado válidamente y aceptado por la Dirección Académica. En este caso tendrá derecho a realizar la prueba en la próxima fecha fijada, sin pagar nuevamente el importe correspondiente.

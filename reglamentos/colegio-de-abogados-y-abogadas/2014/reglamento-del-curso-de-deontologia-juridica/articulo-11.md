@@ -1,0 +1,1 @@
+Artículo 11.—Del mecanismo de implementación del examen. Tendrán derecho a realizar el examen todos aquellos participantes que hayan finalizado satisfactoriamente el Curso de conformidad con las estipulaciones de la Dirección Académica.

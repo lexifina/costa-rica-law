@@ -1,0 +1,3 @@
+Artículo 4º—Apertura, cupo y sedes. Todos los cursos, sin importar la modalidad, requerirán de una matrícula mínima de veinte participantes y hasta un máximo de treinta para ser impartidos.
+El Curso presencial será impartido en la sede central del Colegio en Zapote pero también podrá ser impartido en las sedes regionales del Colegio existentes en el territorio nacional, previa autorización de la Dirección Académica cuando exista disponibilidad docente y una demanda de matrícula acorde con lo previsto en este artículo.
+El Curso Bimodal y el Curso virtual serán impartidos en la oportunidad y forma en que lo indique la Dirección Académica.

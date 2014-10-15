@@ -1,0 +1,1 @@
+Artículo 19.—Resolución de la Dirección Académica. Una vez recibido el recurso, la dirección académica resolverá dentro de los quince días hábiles posteriores y en caso de ser necesario, solicitará las pruebas para mejor proveer que estime convenientes. En el procedimiento, la Dirección Académica podrá hacerse asesorar por la Dirección Jurídica del Colegio.

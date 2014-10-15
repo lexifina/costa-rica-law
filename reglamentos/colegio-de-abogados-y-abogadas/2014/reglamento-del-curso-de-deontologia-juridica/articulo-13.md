@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del procedimiento de realización de las pruebas
+Artículo 13.—De la prueba oral. La evaluación oral se realizará siempre por el profesor que imparte el Curso, salvo ausencia debidamente justificada y aceptada ante la Dirección Académica. Así como por uno o dos profesionales en Derecho, escogidos (as) de la nómina de examinadores que para estos efectos levantará la Dirección Académica. Los miembros de la Junta Directiva siempre podrán ser parte de dicha nómina, y tendrán derecho a integrar el tribunal examinador, si así se lo hacen saber a la Dirección Académica, cuya representación también podrá ser parte de la nómina.
