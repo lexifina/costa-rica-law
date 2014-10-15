@@ -1,0 +1,2 @@
+Artículo 30.—Sanciones relativas al consumo en vía pública y sitios públicos a tenor de lo establecido en el artículo 19 de la Ley. Será sancionada con una multa de medio salario base, la persona que sea sorprendida consumiendo bebidas con contenido alcohólico en vía pública y en los sitios públicos determinados por la municipalidad.
+En estos casos, la fuerza pública, la policía municipal y los inspectores municipales deberán decomisar el producto y levantar el parte correspondiente

@@ -1,0 +1,2 @@
+Artículo 29.—Sanción relativa a personas jurídicas, de conformidad con el artículo 17 de la Ley. Quien omita presentar a la municipalidad la actualización de su capital accionario, cuando se trate de personas jurídicas adjudicatarias de licencias, será sancionado con una multa de entre tres y diez salarios base.
+Para este caso se cobrará tres salarios base para la primera vez que se incumple, seis salarios base para la segunda vez de incumpliendo y diez salarios base por tres o más veces que se incumpla.
