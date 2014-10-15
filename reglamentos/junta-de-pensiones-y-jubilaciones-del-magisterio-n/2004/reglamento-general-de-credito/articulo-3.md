@@ -10,16 +10,9 @@ En los casos que corresponda, los avalúos de las propiedades y los estudios de 
 Su finalidad es dotar de recursos a las entidades sociales y financieras del Magisterio Nacional, de acuerdo con los convenios que se establezcan entre la Junta y dichas entidades, siempre y cuando el beneficiario final del plan de inversión sean los jubilados y pensionados (as) del Magisterio Nacional.
 5. Línea de Salud
 Dirigido a los afiliados (as) del Régimen, para satisfacer sus requerimientos en el área de la salud. Entendiéndose el término salud, tal como lo refiere el Organismo Mundial de la Salud: “Estado de completo bienestar físico, mental y social, y no solamente la ausencia de enfermedad o dolencia.
-6. Derecho sucesorio
-Dirigido a los beneficiarios de derechos sucesorios del Régimen de pensiones del Magisterio Nacional, siempre y cuando exista una resolución que apruebe su derecho.
-Esta línea atenderá las siguientes necesidades:
-1. Para la atención de gastos médicos en general.
-2. Atención de gastos por fallecimiento de familiares.
-3. Ayuda para la reposición de bienes que el pensionado (a) haya perdido, a causa de hurto, robo o vandalismo; para lo cual, deberá presentar la documentación probatoria correspondiente.
-4. Desastres naturales (inundaciones, temblores, terremotos, entre otros. Deberá aportar certificación emitida por la autoridad competente.
-5. Cancelación parcial o total de deudas a nombre del beneficiario. Las deudas deben haber sido contraídas con instituciones públicas o privadas del Sector Bancario Nacional, entidades financieras del Magisterio Nacional o personas físicas; para lo cual, el solicitante deberá presentar la documentación de respaldo correspondiente.
-6. Para compra de útiles escolares y pago de matrícula. Debe presentar la factura pro forma específica.
-7. Otras necesidades de carácter similar, según criterio de la Dirección Ejecutiva.
+6. Derecho Sucesorio:
+Dirigido a los beneficiarios de derechos sucesorios del Régimen de Pensiones del Magisterio Nacional, siempre y cuando exista una resolución que apruebe su derecho. / Esta línea atenderá requerimientos de índole personal.
+(Así reformado el punto anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 7. Línea de Urgencia
 Podrían acceder a esta línea, los pensionados (as) que presenten las siguientes necesidades:
 i. Cancelación parcial o total de deudas a nombre del pensionado (a), que se encuentren en estado de cobro judicial o que tengan un alto grado de atraso en el pago de las cuotas.
@@ -28,6 +21,7 @@ ii. Cancelación parcial o total de gastos médicos para tratamientos especializ
 Estos gastos, pueden ser para el pensionado (a), su cónyuge o algún pariente por consaguinidad o afinidad en primer grado.
 iii. Reposición de bienes que el pensionado (a) haya perdido, a causa de hurto, robo o vandalismo; para lo cual, deberá presentar la documentación probatoria correspondiente (copia de la denuncia ante el Organismo de Investigación Judicial).
 iv. Reposición de bienes por causa de desastres naturales (inundaciones, temblores, terremotos, etc.) en los cuales, el pensionado (a) haya perdido parcial o totalmente sus bienes. Deberá aportar certificación emitida por la autoridad competente.
-v. Cualquier otra situación, no considerada en los incisos anteriores, a criterio de la Dirección Ejecutiva previo análisis del caso por parte del Departamento Financiero Contable.
+(Eliminado el inciso v) original mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 8. Línea para Servicios Funerarios
-Dirigida a los pensionados o jubilados, que requieren cancelar los gastos funerarios de su cónyuge o algún pariente por consaguinidad o afinidad hasta el primer grado. En el caso de unión libre, podrá optarse por este crédito si hubo convivencia por lo menos durante los dos años previos al fallecimiento.
+Dirigida a los trabajadores en servicio cotizantes y a los pensionados o jubilados, que requieren cancelar gastos funerarios.
+(Así reformado el punto anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)

@@ -1,2 +1,3 @@
 Artículo 16.—Pignoración de la Póliza Mutual de la Sociedad de Seguros de Vida del Magisterio Nacional. Como garantía en el proceso de formalización del crédito, el solicitante deberá autorizar la pignoración de la póliza mutual de la Sociedad de Seguros de Vida del Magisterio Nacional por la totalidad del monto adeudado. Este proceso debe ser ejecutado en el acto del registro de la solicitud de crédito.
-De este requisito se exceptúa la línea de crédito para las Entidades Sociales y Financieras del Magisterio Nacional, a no ser que por disposición de la junta directiva, se aprueben como respaldo al crédito, garantías fiduciarias.
+De este requisito se exceptúa la línea de crédito de Derechos Sucesorios, que tomarán póliza de saldos deudores.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)

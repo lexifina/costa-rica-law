@@ -1,1 +1,2 @@
-Artículo 2º—Sujetos de crédito. Serán sujetos de crédito los afiliados (as) al Régimen del Magisterio Nacional, cotizantes activos del Régimen, en la Línea de Salud, los beneficiarios de derechos sucesorios de pensiones del Magisterio y las Entidades Financieras y Sociales del Magisterio Nacional.
+Artículo 2º—Sujetos de crédito. Serán sujetos de crédito los afiliados (as) al Régimen del Magisterio Nacional, cotizantes activos del Régimen, los beneficiarios de derechos sucesorios de pensiones del Magisterio y las Entidades Financieras y Sociales del Magisterio Nacional, según se establece en cada una de las líneas de crédito.
+(Así reformado mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)

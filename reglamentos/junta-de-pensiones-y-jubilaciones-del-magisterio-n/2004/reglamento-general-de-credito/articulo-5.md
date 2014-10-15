@@ -1,8 +1,8 @@
 Artículo 5º—Monto de financiamiento. El monto máximo de cada tipo de crédito será el siguiente:
 a) Línea de Gastos Personales:
 ¢3.000.000,00 Tres millones de colones con 00/100).
-b) Línea Pago de Deuda al Fondo de Pensión:
-¢3.000.000,00 (tres millones de colones con 00/100).
+b) Línea pago de deuda al Fondo de Pensión: ¢5.000.000,00 (cinco millones de colones con 00/100)
+(Así reformado el inciso anterior mediante sesión ordianria N° 114-2014 del 15 de octubre del 2014)
 c) Línea de Microempresa:
 ¢8.000.000,00 (ocho millones de colones con 00/100).
 d) Línea para Entidades Sociales y Financieras del Magisterio Nacional:
@@ -10,6 +10,7 @@ El monto máximo para esta línea será designado en cada caso por la Junta Dire
 El monto del crédito aprobado se regirá de acuerdo con lo establecido en el artículo N° 15 de este reglamento
 e) Línea de salud: ¢4.000.000,00 (cuatro millones de colones con 00/100)
 f) Derechos sucesorios: ¢1.000,000.00 (un millón de colones con 00/100 por beneficiario).
-g) Línea de urgencia: ¢1.000.000,00 (un millón de colones con 00/100).
-Los montos máximos autorizados para cada una de las diferentes líneas, serán revisados anualmente basándose en criterios técnicos, y podrán ser modificados únicamente por acuerdo expreso de la junta directiva de la Institución.
-h) Línea para servicios funerarios: ¢1.500.000.00 (un millón quinientos mil colones con 00/100)
+g) Línea de Urgencia: ¢2.000.000,00 (Dos millones de colones con 00/100)
+(Así reformado el inciso anterior mediante sesión ordianria N° 114-2014 del 15 de octubre del 2014)
+h) Línea para servicios funerarios: ¢2.000.000,00 (Dos millones de colones con 00/100)
+(Así reformado el inciso anterior mediante sesión ordianria N° 114-2014 del 15 de octubre del 2014)
