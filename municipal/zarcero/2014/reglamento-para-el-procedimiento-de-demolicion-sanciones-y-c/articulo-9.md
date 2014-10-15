@@ -1,0 +1,1 @@
+Artículo 9º—Facultades de los funcionarios para emitir y hacer cumplir órdenes. Los funcionarios Municipales están facultados por el ejercicio de su cargo para emitir órdenes a los administrados y velar por su fiel cumplimiento. Además están facultados para hacer cumplir las órdenes que emanan de otros funcionarios Municipales y que se les encarga de ejecutar.

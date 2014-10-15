@@ -1,0 +1,1 @@
+Artículo 25.—Instalaciones provisiones. Para colocar estructuras de cualquier tipo o hacer instalaciones de carácter provisional en las vías públicas urbanas o propiedades privadas, el interesado debe obtener la previa Licencia o autorización municipal de obra civil.

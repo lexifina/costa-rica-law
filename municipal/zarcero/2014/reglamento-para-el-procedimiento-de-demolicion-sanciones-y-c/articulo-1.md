@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE ZARCERO
+El Concejo Municipal de Zarcero en sesión ordinaria N° 37, celebrada el 17 de setiembre del 2014, acuerda de conformidad con lo que establece el artículo 43 del Código Municipal acuerda dejar en firme el Reglamento para el Procedimiento de demolición, Sanciones y Cobro de Obras Civiles en el Cantón de Zarcero, publicado en el Alcance 54 de La Gaceta N° 57 del 21 de marzo del 2013, una vez transcurrido el periodo de consulta pública y no haberse presentado recomendaciones no vinculantes por parte de administrados.
+Zarcero, 25 de setiembre del 2014.
+(Nota de Sinalevi: Tal y como se indica en el párrafo anterior el texto que se incluye corresponde al publicado en el Alcance N° 54 a La Gaceta N° 57 del 21 de marzo de 2013, y se trascribe a continuación:)
+MUNICIPALIDAD DE ZARCERO
+El Concejo Municipal de Zarcero, acuerda aprobar el Reglamento para el procedimiento de Demoliciones, Sanciones y Cobro de Obras Civiles en el Cantón de Zarcero.
+REGLAMENTO PARA EL PROCEDIMIENTO DE DEMOLICIÓN, SANCIONES
+Y COBRO DE OBRAS CIVILES EN EL CANTÓN DE ZARCERO
+CAPÍTULO I
+Artículo 1º—Obligaciones de la Municipalidad. Sin perjuicio de las facultades que las leyes conceden en esta materia a otras instituciones y organismos públicos, corresponde a la Municipalidad hacer cumplir las leyes vigentes que regulan lo referente a obras civiles así como las otras normas que tengan relación con esta materia para el ejercicio del control de la explotación de los inmuebles de manera planificada y ordenada tendiente a lograr el desarrollo del Cantón de Zarcero. También le corresponde velar porque todas las poblaciones del cantón reúnan las condiciones necesarias de seguridad, salubridad, comodidad y belleza, tanto en las vías públicas como en los edificios y construcciones en general que se ejecuten en terrenos de su jurisdicción. Para cumplir con esta obligación podrá acudir a las otras instituciones del Estado y coordinar con ellas la ejecución e implementación de lo que le impone la Ley. Estas instituciones están obligadas a prestarle ayuda en esta labor a la Municipalidad de acuerdo a lo que dispone el Ordenamiento Jurídico Nacional.

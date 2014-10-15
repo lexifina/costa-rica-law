@@ -1,0 +1,1 @@
+Artículo 3º—Empresas consultoras y constructoras. Para los efectos del presente Reglamento, sólo se consideran las empresas consultoras y constructoras que estén inscritas conforme con la Ley Orgánica y al Reglamento Interior General del Colegio Federado.

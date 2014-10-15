@@ -1,0 +1,1 @@
+Artículo 30.—Imposibilidad de recursos. Si el administrado cancelará: multa, impuesto o licencia o cualquier otro cobro por el Departamento de Construcciones, no podrá el mismo interponer algún recurso señalado en el artículo anterior debido a que con esa actuación estaría avalando el acto de la Municipalidad.

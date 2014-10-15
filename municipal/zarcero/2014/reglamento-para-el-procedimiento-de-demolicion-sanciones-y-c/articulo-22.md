@@ -1,0 +1,1 @@
+Artículo 22.—Procedimientos para aplicar sanciones administrativas. La Municipalidad en el ejercicio de su función de control y planificación del desarrollo del Cantón de Zarcero podrá aplicar cualquiera de las sanciones que describe este capítulo.

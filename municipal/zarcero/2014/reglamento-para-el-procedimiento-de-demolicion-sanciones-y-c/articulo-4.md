@@ -1,0 +1,1 @@
+Artículo 4º—Ocupación temporal de la vía pública urbana. Si en la ejecución de una obra debe ocuparse temporalmente una vía o acceso público, el subsuelo o el espacio aéreo de la misma, se deberá obtener un permiso de ocupación transitoria de vía de parte de la Municipalidad o del MOPT, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 2º—Licencia de obra civil. Para poder ejecutar una obra, sea de carácter provisional o permanente debe poseer Licencia de obra civil otorgado por la Municipalidad (y otros organismos competentes). Por lo general la licencia se hace constar sobre un plano, el cual se denomina “aprobado”.

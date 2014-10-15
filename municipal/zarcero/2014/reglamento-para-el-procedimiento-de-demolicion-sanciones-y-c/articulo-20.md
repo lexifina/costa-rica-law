@@ -1,0 +1,4 @@
+Artículo 20.—Sanciones por desobediencia a la autoridad de los funcionarios municipales. Cuando los funcionarios municipales autorizados emitan órdenes escritas a los administrados éstas serán de acatamiento obligatorio, una vez que estén firmes y de acuerdo a la ley.
+Si el administrado desobedeciere, estorbare, o ejecutare algún acto de presión para que no se ejecuten estas órdenes, en evidente confrontación con la autoridad municipal, ésta podrá acudir al Ministerio Público (fiscalía), a interponer las denuncias correspondientes por la pasible comisión de los delitos de Atentado, Resistencia, o Desobediencia a la autoridad según corresponda, de acuerdo con lo dispuesto en el Código Penal.
+Además la Municipalidad se reservará el derecho de presentar la correspondiente querella y la acción civil resarcitoria en estos casos.
+Los delitos para el caso de artículo 20 serían: Atentado artículo 304, resistencia artículo 305, artículo 307 desobediencia.
