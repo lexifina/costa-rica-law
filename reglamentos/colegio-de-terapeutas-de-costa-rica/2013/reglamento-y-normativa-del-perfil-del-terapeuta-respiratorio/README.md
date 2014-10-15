@@ -14,3 +14,4 @@ Reglamento y normativa del perfil del terapeuta respiratorio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-06 | la propia norma |
+| 2 | 2014-10-15 | Reglamento 0 (2014-10-15) |

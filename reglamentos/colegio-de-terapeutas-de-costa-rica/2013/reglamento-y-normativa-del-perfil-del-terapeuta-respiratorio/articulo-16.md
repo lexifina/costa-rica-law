@@ -1,0 +1,6 @@
+Artículo 16.—Paciente de Consulta Externa: Este usuario puede ser clasificado dentro de tres grupos:
+a- Prueba de Función Pulmonar: El Terapeuta Respiratorio puede atender a un paciente cada media hora para una espirometría basal y post broncodilatador. Así como un paciente por hora cuando requiera varios exámenes especiales, tales como DLCO, pletismografía, gases arteriales básales y post esfuerzo, caminata de 6 minutos, calorimetría indirecta y pruebas metabólicas, entre otras.
+b- Educación de pacientes dentro de algún programa que requiere un examen o procedimiento especial, en donde el Terapeuta Respiratorio pueda atender máximo uno por hora, (educación a pacientes con inhaladores de dosis medida, fíbrosis quística, etc.)
+c- Paciente domiciliar: Esto va a depender del área geográfica de los pacientes en donde el Terapeuta Respiratorio pueda atender un paciente por hora.
+Ahora bien, dentro de la división del trabajo se debe de tomar en cuenta los tiempos de aumentación y demás regulaciones según las normativas vigentes institucionales. Además tomar en cuenta la atención de emergencias, traslados e interconsultas que cada TR deba atender.
+(Así adicionado mediante acta 70, de sesión extraordinaria del 15 de octubre del 2014)
