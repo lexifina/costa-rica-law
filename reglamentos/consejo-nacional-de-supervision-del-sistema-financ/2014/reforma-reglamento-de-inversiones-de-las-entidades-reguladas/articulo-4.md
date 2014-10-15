@@ -1,0 +1,2 @@
+4. Modificar el inciso f), artículo 30, del Reglamento de inversiones de las entidades reguladas, para que se lea de la siguiente forma:
+“f. Salvo lo dispuesto en leyes especiales, las entidades reguladas no podrán invertir los recursos de los fondos en valores emitidos o garantizados por cualquiera de las empresas del grupo de interés económico o del grupo o conglomerado financiero al que pertenezca la entidad regulada”.
