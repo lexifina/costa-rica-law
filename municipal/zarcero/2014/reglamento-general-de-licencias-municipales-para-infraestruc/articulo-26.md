@@ -1,0 +1,1 @@
+Artículo 26°—En caso de ampliación o modificación de las Infraestructuras se deberá cumplir nuevamente con los trámites de Licencia de Construcción señalados en este reglamento. No se permitirá la instalación de ninguna antena que no haya obtenido su Uso de Suelo y Licencia de Construcción.

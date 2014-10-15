@@ -1,0 +1,12 @@
+Transitorio tercero. Una vez publicado este Reglamento, los propietarios de antenas y estructuras soportantes para telefonía celular ya instaladas legalmente en el Cantón, tendrán un plazo de 45 días hábiles para presentar un reporte a la Municipalidad sobre cada una de
+ellas. Esto solo es válido para la Infraestructura instalada por el ICE, previo a la Ley General de Telecomunicaciones No 8642, del 4 de junio de 2008‖ que entró a regir el 30 de junio del 2008, y su reglamento, Decreto Ejecutivo No 34765- MINAET de 22 de setiembre de 2008, publicado en La Gaceta No 186 de 26 de setiembre de 2008, aunque dicha infraestructura no cumpla con todas los requisitos establecidos en este Reglamento. La presentación de este reporte será requisito ineludible para obtener la debida Licencia Comercial, en su defecto, dicha Licencia será cancelada.
+El reporte consistirá en llenar el formulario especial llamado Solicitud de Licencia para la Instalación de Infraestructura de Telefonía Celular, señalando que se trata de Infraestructura existente. Estará firmado por el representante autorizado de las firmas operadoras, el propietario del predio, y los profesionales colegiados ante el Colegio Federado de Ingenieros y Arquitectos de Costa Rica CFIA.
+Además, aportar la siguiente información:
+- Copia de la cédula de identidad del propietario del predio, y certificación de personería jurídica cuando corresponda.
+- Copia de la cédula de identidad, y certificación de personería jurídica, de la persona o empresa que arrienda el terreno donde se asienta la obra, cuando corresponda.
+- Plano catastrado de la propiedad donde se muestre la ubicación de la estructura soportante, con sus cotas respecto a colindancias y a frentes de calle.
+- Croquis de ubicación dentro del plano catastrado, del centro de las estructura soportante de las antenas, señalando con cotas sus retiros respecto a todas las colindancias.
+- Señalar otros usos de suelo existentes en la propiedad.
+- Señalar existencia de sitios sensibles a menor distancia de la indicada en el artículo 14°. Esto con el fin de detectar eventuales casos críticos que pudieran estar afectando a la salud de la población.
+-Fotos de la infraestructura para telecomunicaciones existente en el predio, donde se puedan ver una panorámica de la estructura soportante, otra de todas las antenas existentes, y otra de la demás obras civiles correspondiente (casetas u otros).
+-Colocar en las instalaciones el rótulo según lo establecido en el artículo 21° del Capítulo IV ―Obligaciones de los Interesados‖.

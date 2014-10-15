@@ -1,0 +1,3 @@
+Artículo 12°—Lote mínimo. Los lotes o partes de lotes donde se pretendan ubicar e instalar cualquiera de las Infraestructuras de telefonía celular tendrán un área mínimo de quinientos (500) metros cuadrados, para torres de altura con una altura de sesenta metros (60) cuando no se permita la mimetización por disposición de Aviación Civil. El lote tendrá que tener un frente mínimo de dieciocho (18) metros.
+Para torres mimetizadas el área mínimo del lote será de 15 X 15, con un frente mínimo de 15 (quince) metros, independientemente de la altura de sus elementos.
+Todo lote tendrá acceso a calle pública o servidumbre de uso público la cual tendrá un máximo de 60 metros de distancia y con un ancho mínimo accesible de 04 metros, por razones de seguridad.

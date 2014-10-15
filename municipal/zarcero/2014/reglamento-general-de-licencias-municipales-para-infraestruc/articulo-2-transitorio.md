@@ -1,0 +1,1 @@
+Transitorio segundo. Las Infraestructuras existentes, legalmente establecidas, solo requerirán la debida Licencia Comercial. En caso de la modificación o ampliación de una Infraestructura existente se deberá cumplir con lo establecido en este Reglamento.

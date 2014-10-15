@@ -1,0 +1,4 @@
+Artículo 36.-El presente Reglamento rige a partir de su publicación.‖
+Por lo anterior la Comisión de Jurídicos, recomienda al Concejo Municipal, resolver como sigue:
+Con fundamento en las disposiciones de los artículos 11 y 169 de la Constitución Política, 11 y 13 de la Ley General de la Administración Pública, 13 incisos c) y p), y 43 del Código Municipal. Se acuerda: Aprobar el proyecto de REGLAMENTO GENERAL DE LICENCIAS MUNICIPALES PARA INFRAESTRUCTURA DE TELEFONÍA CELULAR, preparado, analizado, depurado y discutido y ahora presentado por la Comisión de Jurídicos al Concejo Municipal. De conformidad con las disposiciones del artículo 43 del Código Municipal, publíquese el proyecto de Reglamento en el Diario Oficial La Gaceta, sometiéndose a consulta pública no vinculante por espacio de diez días hábiles después de su publicación. Notifíquese y Publíquese. Gretel Alfaro Alvarado, Asistente Técnico del Concejo Municipal de Zarcero.
+Firma Responsable documento:
