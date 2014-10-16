@@ -1,0 +1,3 @@
+CAPÍTULO II
+Previsión presupuestaria y contenido económico
+Artículo 4º—Presupuesto anual. Para la determinación de la cantidad de horas extraordinarias que se requerirán presupuestar cada año los Jefes de programa y subprograma presupuestarios, deben tomar en cuenta los informes de gasto que elabore la Dirección de Recursos Humanos y los criterios de eficiencia y eficacia necesarios para asegurar la prestación del servicio, con el fin de evitar que se adquieran compromisos que no puedan honrar. Asimismo, deberán llevar el control del gasto para ajustarse al monto asignado a la subpartida presupuestaria correspondiente y solicitar en tiempo el traslado de fondos cuando así se requiera.

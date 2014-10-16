@@ -1,0 +1,1 @@
+Artículo 8º—Principios aplicables. Para la autorización de la jornada extraordinaria, las jefaturas deberán aplicar los principios de necesidad, inmediatez, economía, eficiencia y eficacia de la Administración Pública, así como la sana administración de los recursos públicos asignados al Ministerio.

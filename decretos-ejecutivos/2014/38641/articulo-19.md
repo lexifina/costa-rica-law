@@ -1,0 +1,1 @@
+Artículo 19.—Responsabilidad de las jefaturas. Será el jefe inmediato el responsable de fiscalizar el uso adecuado de la jornada extraordinaria, así como de respaldar las autorizaciones con los documentos probatorios exigidos en este Reglamento, mismos que será el sustento de la solicitud del pago de las horas extras.

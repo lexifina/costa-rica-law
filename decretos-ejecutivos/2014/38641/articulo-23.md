@@ -1,0 +1,1 @@
+Artículo 23.—Sanciones. El incumplimiento de las disposiciones contenidas en el presente Reglamento, será sancionado de acuerdo con las estipulaciones contenidas en los artículos 78 y 79 de la Ley General de Policía N° 7410.
