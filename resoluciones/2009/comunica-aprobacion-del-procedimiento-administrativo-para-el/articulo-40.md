@@ -1,2 +1,0 @@
-Artículo 40. Momento para dictar el acto final
-Terminada la comparecencia el asunto quedará listo para dictar el acto final, lo cual deberá hacer el órgano decidor dentro del plazo de quince días, contado a partir de la fecha de la comparecencia, salvo que exista la necesidad de incorporar nuevos hechos o completar la prueba, caso en el cual se podrá celebrar una nueva comparecencia, cuya autorización se regirá de conformidad con lo indicado en el artículo 319 de la Ley General de la Administración Pública.

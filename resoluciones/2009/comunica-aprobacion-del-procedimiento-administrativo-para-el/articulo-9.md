@@ -1,3 +1,0 @@
-Artículo 9. Verificación de los hechos
-El objetivo primordial de este procedimiento administrativo, será la verificación de la verdad real de los hechos que sirven de motivo de la denuncia sobre corrupción y enriquecimiento ilícito, en la forma más fiel y completa posible, para lo cual será necesario instruir todas las medidas probatorias pertinentes a este objetivo.
-El Órgano Instructor deberá instruir todas las medidas probatorias pertinentes a este objetivo, aun cuando sobreabunde la prueba, deberá evacuarla toda y no rechazará prueba considerándola innecesaria o sobreabundante, el Órgano Decidor, facilitará todos los medios, instrumentos, y propiciara un ambiente tendiente a la verificación de los hechos basado en la totalidad de prueba que se ofrezca.

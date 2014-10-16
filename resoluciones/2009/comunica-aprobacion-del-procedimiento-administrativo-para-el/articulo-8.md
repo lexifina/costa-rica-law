@@ -1,7 +1,0 @@
-Artículo 8. Causales en los que procede el trámite del procedimiento administrativo de denuncia sobre corrupción e enriquecimiento ilícito de funcionarios de la institución.
-El trámite de este procedimiento administrativo procederá en cualquiera de los siguientes casos:
-a) Cuando el funcionario haya hecho un requerimiento o acepte, directa o indirectamente, cualquier objeto de valor pecuniario u otros beneficios como dádivas, favores, premios, promesas o ventajas para sí mismo o para otra persona o entidad a cambio de la realización u omisión de cualquier acto en el ejercicio de sus funciones públicas bajo cualquier modalidad o denominación;
-b) Cuando dicho ofrecimiento u otorgamiento, directa o indirectamente, a un funcionario, de cualquier objeto de valor pecuniario u otros beneficios como dádivas, favores, premios, promesas o ventajas para ese funcionario o para otra persona o entidad a cambio de la realización u omisión de cualquier acto en el ejercicio de sus funciones públicas bajo cualquier modalidad o denominación;
-c) La realización por parte de un funcionario de cualquier acto u omisión en el ejercicio de sus funciones, con el fin de obtener ilícitamente beneficios para sí mismo o para un tercero;
-d) El aprovechamiento doloso u ocultación de bienes provenientes de cualquiera de los actos a los que se refiere anteriormente.
-e) Ante cualquier otra actuación u omisión del funcionario que sea contraria a la Ley contra la Corrupción y el Enriquecimiento en la Función Pública , N º 8422.

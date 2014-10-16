@@ -1,2 +1,0 @@
-Artículo 14. De los denunciantes
-Los denunciantes podrán ser cualquier persona externa a la Institución , incluyendo a los beneficiarios de los servicios del IMAS, cualquier funcionario, el Consejo Directivo, la Auditoría Interna o la Contraloría de Servicios Institucional o cualquier otra unidad institucional, la Contraloría General de la República , la Defensoría de los Habitantes, u otra instancia competente.
