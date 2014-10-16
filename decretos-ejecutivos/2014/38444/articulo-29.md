@@ -1,0 +1,7 @@
+Artículo 29.—En cumplimiento con lo indicado en los artículos 23 y 24 de la Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica N° 7221 y los artículos 35 al 38 de su reglamento, las obligaciones de las compañías o entidades consultoras o asesoras ante el Colegio son las siguientes:
+a. Mantener actualizados todos datos relacionados con la compañía o entidad consultora o asesora, sus representantes legales y profesionales acreditados en los registros oficiales del Colegio, así como el o los medios señalados para notificaciones.
+b. Acreditar debidamente a los y las regentes que asumen la responsabilidad técnica de las actividades de la empresa consultora.
+c. Velar para que los y las regentes forestales contratados bajo relación laboral que asuman la responsabilidad técnica de las actividades que realiza la empresa se encuentren al día en la entrega de los informes regenciales y el archivo de referencia.
+d. Velar para que los y las regentes que no hayan sido debidamente acreditados por la empresa consultora no ejerzan funciones regenciales asumiendo responsabilidades técnicas de la empresa consultora.
+e. Sustituir de sus funciones regenciales de manera inmediata a los y las regentes inhabilitados o suspendidos por el Colegio de Ingenieros Agrónomos, cuando la sanción haya quedado en firme y haya sido debidamente notificada a la compañía o entidad consultora o asesora.
+f. Cumplir con los requisitos y requerimientos exigidos por el Colegio para su inscripción.

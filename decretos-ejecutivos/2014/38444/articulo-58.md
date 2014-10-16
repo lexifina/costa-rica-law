@@ -1,0 +1,1 @@
+Artículo 58.—Además de los honorarios correspondientes por la actividad regencial, la empresa o persona regentada deberá pagar al o a la regente forestal los gastos por concepto de transporte, hospedaje y viáticos requeridos para la prestación del servicio, tomando como base las tablas que para estos efectos emite la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 27.—La compañía o entidad consultora o asesora será la responsable de elegir, designar, vigilar y cancelarle al o a la regente forestal el salario. También será la responsable por el cumplimiento de las obligaciones que contraiga con la empresa o persona regentada y el Colegio. La persona regente será la responsable técnica de la ejecución de las actividades regenciales.

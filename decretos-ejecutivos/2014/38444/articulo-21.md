@@ -1,0 +1,1 @@
+Artículo 21.—La Fiscalía Ejecutiva no inscribirá formularios de regencia ni proporcionará papelería oficial a los y las regentes que no tienen póliza de fidelidad vigente o que estén inhabilitados para el ejercicio de la profesión. Su incumplimiento se deriva de los registros que lleva el Colegio.

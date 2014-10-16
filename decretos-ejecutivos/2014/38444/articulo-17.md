@@ -1,0 +1,1 @@
+Artículo 17.—Es responsabilidad de la AFE y del Colegio, la tarea de definir los términos de referencia de las auditorias técnicas externas del sistema de regencias forestales y podrán contar con el apoyo de la Comisión Nacional de Sostenibilidad Forestal.

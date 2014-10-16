@@ -1,0 +1,1 @@
+Artículo 82.—En ninguna propiedad pueden haber inscritos, en forma simultánea, dos o más formularios en la misma actividad regencial y que se encuentren en la misma área. Sin embargo; los o las regentes pueden indicar por escrito al Colegio que las actividades se desarrollarán en áreas diferentes de la propiedad.

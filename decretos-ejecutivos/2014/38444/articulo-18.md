@@ -1,0 +1,1 @@
+Artículo 18.—La AFE, el Colegio, los y las regentes y las personas regentadas colaborarán a la entidad ejecutora de la auditoría, la cual será escogida en concurso externo, y definirán el procedimiento de cumplimiento de las recomendaciones de las auditorías externas.

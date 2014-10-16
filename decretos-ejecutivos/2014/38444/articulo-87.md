@@ -1,0 +1,2 @@
+Artículo 87.—La Fiscalía, por disposición administrativa, podrá emitir, disposiciones operativas, lineamientos y procedimientos que faciliten la aplicación del presente reglamento, los cuales por ser derivaciones de éste, son de acatamiento obligatorio por parte de los y las regentes. Cada disposición administrativa deberá indicar el o los artículos en que se fundamenta.
+Estas disposiciones administrativas se publicarán en la página web del Colegio y serán obligatorias a partir de su publicación, salvo que en dichas disposiciones se indique una fecha diferente de vigencia.

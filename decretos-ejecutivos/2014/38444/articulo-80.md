@@ -1,0 +1,1 @@
+Artículo 80.—Cada vez que la AFE presente denuncias por anomalías cometidas por los y las regentes, deberá comunicarlo mediante oficio al Colegio y adjuntar copia certificada del expediente correspondiente. En caso necesario; los funcionarios y funcionarias de la Fiscalía y de la AFE coordinarán las inspecciones que sean necesarias para evaluar la denuncia.

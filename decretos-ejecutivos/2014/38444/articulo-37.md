@@ -1,0 +1,4 @@
+CAPÍTULO XI
+De las visitas regenciales
+Artículo 37.—La ejecución de la regencia en sus diferentes modalidades, se efectuará por medio de visitas al lugar donde se realizan las actividades forestales objeto de la regencia. Se entiende por visita, el tiempo requerido por el o la regente forestal para la ejecución y cumplimiento de las funciones regenciales correspondientes, en la totalidad del proyecto que está regentando.
+La Junta Directiva del Colegio, mediante acuerdo y por recomendación de la Comisión Permanente de Asuntos Forestales, establecerá el número de visitas mínimas que los y las regentes forestales deberán realizar en las diferentes actividades regenciales, así como; el tiempo mínimo de duración de las visitas según la modalidad. Este acuerdo se publicará en la página web del Colegio y será obligatorio a partir de su publicación, salvo que en el acuerdo se indique una fecha diferente de vigencia.

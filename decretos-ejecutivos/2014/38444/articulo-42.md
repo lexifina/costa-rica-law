@@ -1,0 +1,1 @@
+Artículo 42.—El formato de los informes regenciales y de los certificados de origen deberá ser elaborado y aprobado de común acuerdo entre el Colegio y la AFE, y éste será el formato oficial para su presentación.

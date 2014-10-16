@@ -1,0 +1,1 @@
+Artículo 63.—La Fiscalía Ejecutiva del Colegio no inscribirá formularios de regencia forestal al o a la regente que no presente el archivo de referencia, según lo indicado en el Artículo 54 de este reglamento. Dicho impedimento se levantará hasta que cumpla con esta obligación.

@@ -1,0 +1,1 @@
+Artículo 19.—Será responsabilidad de la AFE coordinar con los demás actores y actoras del sistema de regencias y establecer los mecanismos que sean necesarios, con el fin de asegurar el financiamiento necesario para estas auditorías.

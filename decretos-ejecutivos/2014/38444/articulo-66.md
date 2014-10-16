@@ -1,0 +1,3 @@
+Artículo 66.—El o la fiscal sancionará con amonestación escrita o con suspensión de hasta dos meses como regente forestal a quien no presente los informes de regencia o que los presente de forma incompleta o quien no cumpla con los plazos establecidos para su presentación ante el Colegio, la AFE o ante la empresa o persona regentada.
+Asimismo; la Fiscalía Ejecutiva no le inscribirá formularios de regencia, ni le proporcionará papelería oficial, hasta que el o la regente forestal presente los informes de regencia pendientes ante quien corresponda.
+Esta suspensión podrá ser ampliada hasta por seis meses, si el incumplimiento sucede en la presentación de los informes regenciales de cierre.

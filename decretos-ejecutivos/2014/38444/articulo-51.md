@@ -1,0 +1,2 @@
+Artículo 51.—Toda certificación, incluidos los certificados de origen y guías de transporte deberá ser firmada y sellada por la persona regente que la extienda.
+Además la persona regente asignará un número consecutivo por año a toda certificación que expida, incluidos los certificados de origen. El número consecutivo estará compuesto por el número de certificación que corresponda y el año en que se emite.

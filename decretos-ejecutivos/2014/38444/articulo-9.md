@@ -1,0 +1,6 @@
+Artículo 9º—De acuerdo con lo indicado en la Ley Forestal N° 7575 y su reglamento, así como la Ley Orgánica del Colegio y su reglamento, será obligación del Colegio, en materia de regencias forestales, las siguientes:
+a. Realizar al menos una vez al año una actividad para la actualización de los y las profesionales que se desempeñen como regentes forestales. En este caso, gestionará los recursos necesarios para cubrir parcial o totalmente los costos de dicha actualización.
+b. Emitir circulares para la información y actualización de los y las regentes forestales.
+c. Tener oportunamente para la venta los formularios, la papelería y demás instrumentos que sean necesarios para el adecuado ejercicio de la regencia forestal.
+d. Inscribir los formularios de regencia forestal sobre la base del certificado de cumplimiento de requisitos que emita el SINAC o FONAFIFO, sin solicitar requisitos relacionados con certificaciones de propiedad, personerías jurídicas y poderes, únicamente la copia de la cédula de identidad de la persona física o del o de la representante de la persona jurídica que actuará como empresa regentada.
+e. Realizar inspecciones de campo con una mayor intensidad de muestreo a las personas regentes forestales que incumplen requisitos o cuenten con denuncias.

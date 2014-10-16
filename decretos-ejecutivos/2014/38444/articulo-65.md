@@ -1,0 +1,1 @@
+Artículo 65.—La papelería extraviada y que haya sido inhabilitada por el Colegio mediante el procedimiento que para tales efectos se establezca, no será considerada como faltante para lo indicado en el artículo anterior.

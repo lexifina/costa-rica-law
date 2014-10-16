@@ -1,0 +1,1 @@
+Artículo 25.—En caso de que alguno o alguna de los y las profesionales forestales acreditados por la compañía o entidad consultora o asesora dejen de laborar para esta, la misma deberá comunicar por escrito al Colegio esta situación en un plazo no mayor a cinco días hábiles.

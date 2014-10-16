@@ -1,0 +1,3 @@
+CAPÍTULO X
+De las funciones regenciales
+Artículo 30.—El o la regente forestal será la persona responsable de que las actividades forestales cuyo seguimiento y supervisión asume, se realicen de acuerdo con la Ley Forestal N° 7575 y su reglamento, la Ley Orgánica del Colegio de Ingenieros Agrónomos de Costa Rica N° 7221 y su reglamento, las aprobaciones que en su caso otorgue la AFE, los manuales técnico-administrativos para el pago por servicios ambientales, las leyes conexas y cualquier otra norma jurídica que se dicte al respecto. En caso de violaciones a la normativa legal vigente, el o la regente forestal deberá denunciarlas ante la AFE y el Colegio.

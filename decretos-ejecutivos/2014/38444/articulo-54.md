@@ -1,0 +1,1 @@
+Artículo 54.—La Fiscalía Ejecutiva podrá solicitar a la persona regente la presentación del archivo de referencia para su revisión en cualquier momento. La solicitud la hará por escrito y le concederá un plazo de diez días hábiles para su presentación, a partir del día hábil siguiente la fecha de su comunicación.

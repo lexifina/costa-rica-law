@@ -1,0 +1,1 @@
+Artículo 24.—En el formulario de regencia se deberán indicar la compañía o entidad consultora o asesora y la o el regente forestal asignado para ese caso por la misma. La compañía o entidad consultora o asesora será la responsable civil ante la empresa o persona regentada.

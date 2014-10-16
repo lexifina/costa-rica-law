@@ -1,0 +1,1 @@
+Artículo 28.—Las recomendaciones dadas por el o la regente forestal serán de acatamiento obligatorio para la empresa o persona regentada y para la compañía o entidad consultora o asesora para la cual labora.
