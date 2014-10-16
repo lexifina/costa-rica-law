@@ -1,0 +1,8 @@
+FONDO DE APOYO PARA EDUCACIÓN SUPERIOR
+Y TÉCNICA DEL PUNTARENENSE
+El Consejo Directivo del Fondo de Apoyo para Educación Superior y Técnica del Puntarenense, conforme a las potestades contenidas por los artículos 5º, 6º, 7º, inciso b de la Ley Nº 7667 de Creación del Fondo de Apoyo para la Educación Superior y Técnica del Puntarenense, por acuerdo que se consigna en el artículo IV, del acta de la sesión ordinaria N° 7-2014 y en razón del objetivo de regular las actuaciones del Fondo en relación con las negociaciones, arreglos de pago y conciliaciones que puedan concretar una solución extrajudicial a las demandas que se encuentren interpuestas en vía judicial entre los deudores y la entidad, ha acordado:
+Reformar los artículos 21 y 60 del Reglamento de financiamiento de becas, publicado en La Gaceta Nº 62 del 28 de marzo de 2007, para que se lea así:
+Artículo 21.—Las políticas anuales, para los arreglos de pago totales o parciales, de las obligaciones que estén en cobro administrativo o en cobro judicial, serán delimitadas por el Consejo, el cual se presentará con el Plan Anual Operativo.
+Artículo 60.—El período general de financiamiento es hasta de 25 años, el cual incluye el período de estudios, gracia y amortización. El plazo de cada uno de estos tres períodos lo establece el Consejo Directivo en el Plan Anual de Colocaciones. En caso de arreglo de pago total o parcial, el plazo máximo para autorizar es de 25 años, que corren a partir del momento en que se suscribió el contrato, cuyas políticas de aprobación, estarán a cargo del Consejo en el Plan Anual Operativo.
+Rige a partir de su publicación.
+Puntarenas, 15 de julio del 2014—
