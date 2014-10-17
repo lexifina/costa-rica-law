@@ -1,0 +1,27 @@
+MUNICIPALIDAD DE SAN PABLO DE HEREDIA
+Concejo Municipal de San Pablo de Heredia, sesión ordinaria 32-14, celebrada el 11 de agosto del 2014 a partir de las dieciocho horas con quince minutos.
+Considerando:
+I.—Oficio AT-064 recibido el 21 de julio de 2014, suscrito por el Sr. Julio Espinoza Hernández Coordinador tributario, donde remite estudio de actualización de las multas del Reglamento para el Procedimiento y Tarifas a Cobrar por Omisiones de Deberes de los Propietarios de Bienes Inmuebles del Cantón de San Pablo de Heredia.
+II.—Acuerdo Municipal CM-213-14 de la sesión ordinaria N° 29-14 celebrada el día 21 de julio de 2014, donde remite el oficio supracitado a la Comisión de Hacienda y Presupuesto, para su respectivo análisis y posterior dictamen.
+III.—Artículo 76 TER del Código Municipal que versa:
+i. “Las multas fijadas en el Artículo 76 de esta ley se actualizarán anualmente, en el mismo porcentaje que aumente el salario base establecido en el Artículo 2 de la Ley N°. 7337, de 5 de mayo de 1993.”
+ii. (Así modificado por la Ley N° 7898 del 11 de agosto de 1999, publicado en La Gaceta N° 171 de 02 de setiembre de 1999).
+IV.—Analizado el oficio AT-064 se determina lo siguiente sobre el reglamento:
+a. En el reglamento publicado en el año 2003 se transcribieron textualmente las multas dictadas en la Ley N° 7898 del 11 de agosto de 1999.
+b. El reglamento aprobado en la sesión ordinaria N° 42-13 celebrada el 21 de octubre de 2013 publicado en el Diario Oficial La Gaceta N° 48 del lunes 10 de marzo de 2014 se consignaron las multas con el aumento porcentual desde el año 2003 hasta el 2013, situación que resulto incorrecta, debido a que el cálculo siempre se debió realizar desde el año 1999.
+c. El salario base correspondiente para el año 1999, según el artículo No. 2 de la Ley N° 7337 sea de ¢95.000,00 y el salario base establecido por este numeral para el año 2014, sea de ¢399.400,00.
+d. Que la Administración Tributaria realizó el ajuste siendo el aumento porcentual de este salario de un 320.42%.
+Este concejo municipal acuerda:
+1°—Aprobar el aumento correspondiente a un 320.42% para las siguientes multas:
+a) Por no limpiar la vegetación de sus predios situados a orillas de las vías públicas ni recortar la que perjudique el paso de las personas o lo dificulte, mil doscientos sesenta y un colones con treinta céntimos (¢1.261.31) por metro lineal del frente de la propiedad.
+b) Por no cercar los lotes donde no haya construcciones o existan construcciones en estado de demolición, mil seiscientos ochenta y un colones con ochenta céntimos (¢1.681.80) por metro lineal del frente total de la propiedad.
+c) Por no separar, recolectar ni acumular, para el transporte y la disposición final, de los desechos sólidos provenientes de las actividades personales, familiares, públicas o comunales o provenientes de operaciones agrícolas, ganaderas, industriales, comerciales y turísticas solo mediante los sistemas de disposición final aprobados por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, cuatrocientos veinte colones con cincuenta céntimos (¢420.50) por metro cuadrado del área total de la propiedad.
+d) Por no construir las aceras frente a las propiedades ni darles mantenimiento, dos mil ciento dos colones con diez céntimos (¢2.102.10) por metro cuadrado del frente de la propiedad.
+e) Por no remover los objetos, materiales o similares de las aceras o los predios de su propiedad, que contaminen el ambiente u obstaculicen el paso, ochocientos cuarenta colones con ochenta céntimos (¢840.80) por metro lineal del frente total de la propiedad.
+f) Por no contar con un sistema de separación, recolección, acumulación y disposición final de los desechos sólidos, aprobado por la Dirección de Protección al Ambiente Humano del Ministerio de Salud, en las empresas agrícolas, ganaderas, industriales, comerciales y turísticas, ochocientos cuarenta colones con ochenta céntimos (¢840.80) por metro lineal del frente de la propiedad, cuando el servicio público de disposición de desechos sólidos es insuficiente o inexistente o si por la naturaleza o el volumen de los desechos, este no es aceptable sanitariamente.
+g) Por obstaculizar el paso por las aceras con gradas de acceso a viviendas, retenes, cadenas, rótulos, materiales de construcción o artefactos de seguridad en entradas de garajes, dos mil ciento dos colones con diez céntimos (¢2.102.10) por metro lineal del frente de la propiedad.
+h) Por no instalar bajantes ni canoas para recoger las aguas pluviales de las edificaciones, cuyas paredes externas colinden inmediatamente con la vía pública, tres mil trescientos sesenta y tres colones con cuarenta céntimos (¢3.363.40) por metro lineal del frente total de la propiedad.
+i) Por no ejecutar las obras de conservación de las fachadas de casas o edificios visibles desde la vía pública cuando, por motivos de interés turístico arqueológico o patrimonial, lo exija la municipalidad, dos mil ciento dos colones con diez céntimos, dos mil ciento dos colones con diez céntimos (¢2.102.10), por metro cuadrado del frente total de la propiedad.
+2°—Solicitarle a la Administración Municipal remita un informe semestral sobre la implementación y la planificación del Reglamento para el Procedimiento y Tarifas a Cobrar por Omisión de los deberes de los propietarios de Bienes Inmuebles del cantón de San Pablo de Heredia.
+Acuerdo unánime y declarado definitivamente aprobado N° 249-14.
+San Pablo de Heredia, 24 de setiembre del 2014
