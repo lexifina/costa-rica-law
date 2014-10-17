@@ -1,0 +1,1 @@
+Artículo 8°—Adjudicación. El acto de Adjudicación deberá ser dictado dentro del plazo establecido en el cartel, que no podrá ser superior al doble del plazo fijados para recibir ofertas. Dicho plazo podrá ser prorrogado por un periodo igual y por una sola vez.

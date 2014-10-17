@@ -1,0 +1,5 @@
+Artículo 13.—Procedimiento de inscripción. El procedimiento de inscripción en el Registro de Proveedores contempla los siguientes pasos:
+a) La CPCA invitará a los interesados o interesadas en integrar el Registro de Proveedores, mediante publicación en el diario oficial La Gaceta y facultativamente en un diario de circulación nacional, al menos una vez al año. No obstante lo anterior, todo interesado o interesada en ser incluido en el Registro de Proveedores, podrá solicitar su incorporación en cualquier momento, sin que exista un tiempo establecido para hacerlo.
+b) Los interesados o interesadas deben de completar el respectivo formulario el cual puede solicitarse en las oficinas de la CPCA, lugar donde debe entregarse el mismo junto con la documentación física que se señala.
+c) En aquellos casos en que la información sea defectuosa o poco clara, se prevendrá al interesado o interesada su subsanación.
+d) Si la prevención es atendida correctamente, se otorgará la inscripción; caso contrario, la solicitud se tendrá por rechazada y se notificará al interesado.
