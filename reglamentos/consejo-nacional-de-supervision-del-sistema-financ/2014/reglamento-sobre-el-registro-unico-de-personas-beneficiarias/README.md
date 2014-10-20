@@ -14,3 +14,4 @@ Reglamento sobre el Registro Único de personas beneficiarias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-27 | la propia norma |
+| 2 | 2014-10-20 | Reglamento 1130 (2014-10-20) |
