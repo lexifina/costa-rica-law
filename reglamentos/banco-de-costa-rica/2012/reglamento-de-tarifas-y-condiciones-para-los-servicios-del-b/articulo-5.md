@@ -91,15 +91,43 @@ Hasta el 1 % del tipo de cambio de negociación
 Mínimo $10.00
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.18 al 5.17. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
 5.18.- Tarifas MoneyGram
-5.18.1.- Envíos corredor Costa Rica – Nicaragua / Colombia
-De $0.01 a $100.00: $3.00
-De $100.01 en adelante: 3% del monto de envío
+(*)5.18.1.- Envíos corredor Costa Rica – Nicaragua / Colombia
+Envíos Costa Rica - Colombia MoneyGram
+| Costa Rica a Colombia |
+Desde USD | Hasta USD | Tarifa en USD
+$0.01 | $100.00 | $3.00
+$100.01 | Adicional | 3%
+Envíos Costa Rica - Nicaragua MoneyGram
+| Costa Rica a Nicaragua |
+Desde USD | Hasta USD | Tarifa en USD
+$0.01 | $100.00 | $4.00
+$100.01 | $150.00 | $4.50
+$150.01 | $200.00 | $6.00
+$200.01 | $250.00 | $8.00
+$250.01 | $350.00 | $9.00
+$350.01 | $400.00 | $10.00
+$400.01 | $450.00 | $11.00
+$450.01 | $500.00 | $13.00
+$500.01 | $600.00 | $14.00
+$600.01 | $700.00 | $16.00
+$700.01 | $800.00 | $18.00
+$800.01 | $900.00 | $20.00
+$900.01 | $1.000.00 | $22.00
+$1.000.01 | Adicional | 2.20%
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.19. al 5.18. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+(*)(Así reformado el punto 5.18.1 anterior mediante sesión 46-14 del 20 de octubre del 2014)
 5.18.2. -Envíos de Costa Rica hacia Costa Rica y el resto del mundo
 De $0.01 a $100.00: $4.00 exactos
-De $100.01 en adelante: 2% del monto de envió más $2.00
-Nota: recibos de dinero no se cobra.
+De $100.01 en adelante: 2% del monto de envío más $2.00
+Nota:
+Recibos de dinero no se cobra.
+(Así reformado el punto 5.18.2 anterior mediante sesión 46-14 del 20 de octubre del 2014)
 5.19. -Tarifas remesas a Nicaragua
 - Envíos de $1 a $500: $3.00
 - Envíos de $500.01 en adelante: $5.00
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.20 al 5.19. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+(*)5.20. Factoreo internacional de exportación
+Comisión factor importador | Spread BCR
+0.01% hasta 1% | 1.00%
+1% en adelante | 1.50%
+(*)(Así adicionado el punto 5.20 anterior mediante sesión 46-14 del 20 de octubre del 2014)

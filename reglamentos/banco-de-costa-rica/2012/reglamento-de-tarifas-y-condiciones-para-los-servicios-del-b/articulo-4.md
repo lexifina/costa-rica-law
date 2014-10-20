@@ -37,7 +37,7 @@ Solo tarjeta $24.00
 Renovación $52.00
 Cambio PIN -Desbloqueo $10.00
 Solo certificado $15.00
-(Así reformado el punto 4.80anterior mediante sesión 24-13 del 24 de junio del 2013)
+(Así reformado el punto 4.80 anterior mediante sesión 24-13 del 24 de junio del 2013)
 4.9.- Servicio Quick Pass
 Servicio | Costo
 Adquisición del dispositivo | $35.00
@@ -47,11 +47,11 @@ Remplazo por pérdida o daño | $35.00
 4.10.- Transferencia por medio de web corporativo
 - Para los débitos en tiempo real $2.00
 - Para los débitos directos $0.75
-(*) 4.11.- Bancatel Negocios
+(*) 4.11.- Bancatel negocios
 $ 2.00 Comisión fija mensual
-Nota: en este caso la comisión corresponde al derecho de uso del servicio de Bancatel Negocios, de conformidad con el contrato que se suscriba para estos efectos.
+Nota: Este costo incluye el derecho a consultar hasta 10 cheques al mes. Por cada consulta adicional (después del décimo cheque), se cobrará $0.25
 (Así adicionado el punto 4.11 anterior mediante sesión 24-13 del 24 de junio del 2013)
-(*)(Así reformado el punto 4.11) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)
+(*)(Así reformado el punto 4.11) anterior mediante sesión N° 46-14 del 20 de octubre del 2014)
 4.12. Cambio de Cheques BNCR
 $2.00 por cada cheque del BNCR que sea cambiado en efectivo en cajas BCR.
 (Así adicionado punto 4.12) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
