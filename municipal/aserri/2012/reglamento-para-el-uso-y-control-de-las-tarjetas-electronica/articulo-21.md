@@ -1,0 +1,1 @@
+Artículo 21.—Incumplimiento de disposiciones. El incumplimiento de cualquiera de las obligaciones contenidas en este reglamento será causal para apertura de un Órgano Director de conformidad a lo establecido en el art. 150 y siguientes del Código Municipal.

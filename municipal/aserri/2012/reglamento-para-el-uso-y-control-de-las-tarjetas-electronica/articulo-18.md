@@ -1,0 +1,4 @@
+Artículo 18.—Responsabilidades del Tarjeta habiente. El tarjeta habiente tendrá la responsabilidad absoluta por la compra de combustible con la tarjeta electrónica a él asignada.
+Cada vez que va a suministrar combustible a un vehículo, el tarjeta habiente deberá coordinar con la Unidad Administradora de Tarjetas, para verificar si hay saldo disponible en la cuenta maestra.
+Ningún tarjeta habiente participará de promociones, concursos o acumulación de puntos, por el uso de la tarjeta electrónica.
+Las tarjetas son de uso exclusivo para la compra de combustibles en estaciones de servicio del país para los vehículos oficiales de la Municipalidad de Aserrí, su utilización en cualquier otro vehículo que no fuere propiedad de la Municipalidad de Aserrí o comercio será rechazado. Cualquier intento de fraude por parte del tarjeta habiente será considerado como falta grave.

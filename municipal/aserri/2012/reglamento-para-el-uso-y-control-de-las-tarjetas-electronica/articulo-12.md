@@ -1,0 +1,3 @@
+Artículo 12.—Reposición de tarjetas. Cuando la tarjeta se deteriore por el uso, desgaste normal o renovación de la misma, esta no tendrá ningún costo de reposición. El tarjeta habiente deberá presentarse en la oficina de BNCR con la tarjeta deteriorada para su reposición.
+En caso de extravío, deterioro negligente (ejemplo: que se rompa, se quiebre o lave dentro de una camisa, etc.) o reposición de un voucher, el tarjeta habiente deberá pagar el costo de reposición de acuerdo a las tarifas que establece el B.N.C.R. y al tipo de cambio de venta del día.
+El uso y desgaste de la tarjeta electrónica será determinado por el banco. Los costos podrían variar según lo determine el BNCR.

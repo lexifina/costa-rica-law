@@ -1,0 +1,1 @@
+Artículo 7.—Préstamo de la tarjeta electrónica para la compra de combustible. La tarjeta otorgada a cada tarjeta habiente y la misma, es de uso exclusivo para la Unidad correspondiente, lo cual será revisado por el administrador, es personal e intransferible y su uso incorrecto será responsabilidad del tarjeta habiente.

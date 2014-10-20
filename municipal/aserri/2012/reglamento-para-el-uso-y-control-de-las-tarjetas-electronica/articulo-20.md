@@ -1,0 +1,1 @@
+Artículo 20.—Director Administrador de Tarjetas. Es la encargada de supervisar, administrar y controlar, el uso apropiado de las tarjetas electrónicas asignadas a cada centro de costo y el consumo interno de combustible en Planteles.

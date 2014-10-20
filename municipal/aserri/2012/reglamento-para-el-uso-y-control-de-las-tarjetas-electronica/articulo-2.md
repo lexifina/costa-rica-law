@@ -1,0 +1,7 @@
+Artículo 2º—Definiciones. Administrador de Tarjeta Maestra- Cuenta Maestra: unidad encargada de la administración y control de las tarjetas habientes, del uso adecuado del combustible.
+Cuenta Maestra o Tarjeta Maestra: La cuenta maestra se abre a los clientes de RECOPE de acuerdo con las necesidades de estos y la estructura de operación. A estas cuentas no se les emite plástico físico pero si se les asigna un número de tarjeta, donde se encuentran los saldos disponibles para autorizar las compras efectuadas por los tarjeta habientes o usuarios, para el manejo de estas existirán las Dependencias Municipales correspondientes.
+Parámetros: Se refiere a los horarios de uso, limite diario por tarjeta y cantidad de transacciones diarias, que delimitan la operación de la tarjeta para seguridad del usuario.
+Renovación, Reemplazo por deterioro y Reposición: Expedición de una nueva tarjeta según la circunstancia dada.
+Tarjeta de Abastecimiento de Combustible: Tarjeta para el control administrativo interno de los abastecimientos de combustible realizados mensualmente, así como el rendimiento de los vehículos y equipo especial de la Municipalidad.
+TECC: Convenio de Operación de la Tarjeta Electrónica de Compra de Combustible, suscrito entre RECOPE y BNCR. El cual incluye los sistemas informáticos de RECOPE y BNCR.
+Token: Dispositivo electrónico que le permite al Administrador de la Tarjeta Maestra realizar las gestiones a las que está permitido en el Internet Banking.

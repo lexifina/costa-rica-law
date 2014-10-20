@@ -1,0 +1,2 @@
+Artículo 23.—Distribución de los montos de consumo de combustible. La Coordinación de Egresos comunicará a cada uno de los Coordinaciones el monto disponible con que dispone cada unidad en las tarjetas electrónicas, de acuerdo al presupuesto. Así mismo, deberá brindar la información correspondiente al Director Administrador de Tarjetas.
+Todo incremento en las cuotas de combustible se solicita y justifica a través de las Coordinaciones y se comunicará al Director Administrador de Tarjetas para su correspondiente registro. La aprobación final la realiza el Alcalde Municipal.
