@@ -1,1 +1,0 @@
-Artículo 7º—Previo a la aprobación de las concesiones, el área silvestre protegida deberá contar con un instrumento técnico de planificación debidamente oficializado por el Área de Conservación respectiva, como por ejemplo el plan general de manejo, planes operativos o plan de desarrollo ecoturístico, entre otros.

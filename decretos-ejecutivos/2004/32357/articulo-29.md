@@ -1,1 +1,0 @@
-Artículo 29.—El Inspector General y el Contralor de Servicios, visitarán de manera conjunta y como mínimo una vez al mes, cada uno de los servicios adjudicados, verificando el estricto cumplimiento de este Reglamento y el Contrato de Adjudicación, en lo que respecta a la calidad en los servicios otorgados en concesión.

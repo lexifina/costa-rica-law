@@ -1,1 +1,0 @@
-Artículo 2º—Todas las actividades que regule este Reglamento, estarán sujetas en su conjunto, a los principios fundamentales del servicio público, de manera tal que aseguren su continuidad, eficiencia, calidad total del servicio, precio razonable, adaptabilidad a las necesidades de los usuarios, siempre que no contravengan la protección de los recursos naturales.

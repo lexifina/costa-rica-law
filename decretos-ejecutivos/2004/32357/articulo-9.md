@@ -1,1 +1,0 @@
-Artículo 9º—Los servicios sujetos a concesión deberán aprobarse en primera instancia por los Consejos Regionales de las Áreas de Conservación, y en forma definitiva por el Consejo Nacional de Áreas de Conservación y correspondiéndole al Ministro del Ambiente y Energía la suscripción de los contratos respectivos.

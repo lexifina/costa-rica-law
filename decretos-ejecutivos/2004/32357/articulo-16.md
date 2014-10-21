@@ -1,1 +1,0 @@
-Artículo 16.—Previo a que el adjudicatario de inicio a la prestación del servicio concesionado, se deberá elaborar una memoria técnica sobre el estado en el cual se entrega el espacio físico o la infraestructura, especificando los sistemas de ejecución de los contratos y los términos y condiciones generales para el desempeño de la actividad concedida.

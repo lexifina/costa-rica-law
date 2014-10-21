@@ -1,1 +1,0 @@
-Artículo 8º—El Sistema Nacional de Áreas de Conservación será el ente encargado de iniciar, a través del Comité Técnico del Área de Conservación respectiva, el proceso de concesiones de los servicios no esenciales.

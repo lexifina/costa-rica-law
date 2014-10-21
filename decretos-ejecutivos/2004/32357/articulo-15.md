@@ -1,1 +1,0 @@
-Artículo 15.—Los plazos de las concesiones no podrán exceder los tres años, salvo que exista una justificación que amerite ampliar el plazo. Dicho plazo podrá prorrogarse automáticamente un período de igual duración.

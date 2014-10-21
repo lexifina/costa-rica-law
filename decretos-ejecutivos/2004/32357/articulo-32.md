@@ -1,1 +1,0 @@
-Artículo 32.—En cada una de las Áreas Silvestres Protegidas donde se haya concesionado servicios no esenciales, se pondrán a disposición de los visitantes y usuarios, en un sitio visible, claramente señalado e iluminado, el Libro de Sugerencias y el Buzón de Quejas mencionado en este Reglamento.
