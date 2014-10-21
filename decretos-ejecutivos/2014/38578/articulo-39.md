@@ -1,0 +1,2 @@
+Artículo 39: Reporte de Inventarios y Evaluaciones
+El Ministerio de Obras Públicas y Transportes recolectará de modo electrónico los archivos con la información del inventario de las rutas cantonales de cada Municipalidad. Para tal efecto, establecerá formatos electrónicos que deberán ser aplicados por cada cantón para el suministro de sus inventarios y evaluaciones a pedido del MOPT. El Ministerio definirá la periodicidad de entrega de los inventarios.

@@ -1,0 +1,2 @@
+Artículo 15: Utilidad
+La información que se rescata es de gran utilidad para priorizar y asignar la categoría respectiva a la vía, para tomar en cuenta los kilómetros de la Red Vial Cantonal que se reconocerán en el cálculo de los recursos que se transferirán a las municipalidades con base en el Reglamento sobre Manejo, Normalización y Responsabilidades para la Inversión Pública en la Red Vial Cantonal y sus reformas.
