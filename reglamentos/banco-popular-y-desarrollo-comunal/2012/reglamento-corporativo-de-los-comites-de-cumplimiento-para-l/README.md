@@ -14,3 +14,4 @@ Reglamento corporativo de los comités de cumplimiento, para la prevención y co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-12 | la propia norma |
+| 2 | 2014-10-21 | Reglamento 5219 (2014-10-21) |
