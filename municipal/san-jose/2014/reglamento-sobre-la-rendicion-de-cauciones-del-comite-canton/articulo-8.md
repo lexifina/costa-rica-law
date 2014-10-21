@@ -1,0 +1,1 @@
+Artículo 8º—Caucionantes del nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, todos aquellos que ocupen puestos de Tesorero (a), Boleteros de Gimnasios y Piscinas, Encargado de Bodega, Boleteros de canchas.
