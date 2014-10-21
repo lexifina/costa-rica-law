@@ -14,3 +14,4 @@ Reglamento para el retiro de las Loterías (Nacional, Popular Tiempos impresos y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-30 | la propia norma |
+| 2 | 2014-10-21 | Reglamento 33 (2014-10-21) |
