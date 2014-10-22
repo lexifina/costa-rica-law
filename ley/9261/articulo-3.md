@@ -1,0 +1,1 @@
+ARTÍCULO 3.- El inmueble donado será destinado exclusivamente a albergar las instalaciones del salón comunal multiuso de la comunidad de barrio Las Américas. En caso de que se varíe su uso o se disuelva la persona jurídica beneficiaria, la propiedad del terreno donado volverá a ser de la Municipalidad de Pérez Zeledón.
