@@ -1,1 +1,2 @@
-ARTÍCULO 227.- Todo recurso deberá interponerse por escrito ante el organismo o autoridad que haya dictado la resolución de que se trate. Quien lo presente, tendrá derecho a que se consigne la fecha en que ha interpuesto su recurso en la copia de su escrito.
+Artículo 227.—Recurso de reposición o de reconsideración. Cuando lo impugnado emanare directamente del Consejo Universitario o del Rector o la Rectora, según corresponda, y no tuviere ulterior recurso administrativo, la persona interesada podrá interponer recurso de reposición o reconsideración en el plazo de cinco días hábiles. Para su resolución, el órgano competente contará con un plazo de diez días hábiles.
+(Así reformado en sesión N° 139 del 23 de octubre de 2014)

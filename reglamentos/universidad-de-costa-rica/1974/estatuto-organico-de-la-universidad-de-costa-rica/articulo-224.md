@@ -1,1 +1,2 @@
-ARTÍCULO 224.- Rechazado el recurso de revocatoria podrá apelarse de la decisión ante el superior, dentro de los cinco días hábiles siguientes a la comunicación respectiva.
+Artículo 224.—Principio de única instancia de apelación. Cabrá un solo recurso de apelación ante el órgano superior que corresponda.
+(Así reformado en sesión N° 139 del 23 de octubre de 2014)

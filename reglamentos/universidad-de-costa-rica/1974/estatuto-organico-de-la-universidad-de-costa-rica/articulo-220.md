@@ -1,1 +1,2 @@
-ARTÍCULO 220.- Los recursos de adición y aclaración podrán plantearse ante el órgano que tomó la resolución, dentro de los tres días hábiles que se contarán a partir del momento en que se comunique al interesado.
+Artículo 220.—Motivación de las resoluciones que resuelven los recursos administrativos. Las resoluciones que acogen o rechazan los recursos administrativos deberán estar debidamente motivadas, con indicación expresa de los fundamentos jurídicos o de otra naturaleza que las sustenten.
+(Así reformado en sesión N° 139 del 23 de octubre de 2014)

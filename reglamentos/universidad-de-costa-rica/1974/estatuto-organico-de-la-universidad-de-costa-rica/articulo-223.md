@@ -1,1 +1,2 @@
-ARTÍCULO 223.- El plazo para interponer los recursos de revocatoria y de apelación será de cinco días hábiles que se contarán a partir del momento en que se comunique la decisión correspondiente al interesado.
+Artículo 223.—Recursos ordinarios. Contra las resoluciones y acuerdos de los órganos universitarios, la parte interesada podrá interponer los recursos ordinarios de revocatoria, apelación, reposición o reconsideración, y el interno de revisión, según corresponda.
+(Así reformado en sesión N° 139 del 23 de octubre de 2014)

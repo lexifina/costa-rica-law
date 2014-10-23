@@ -1,0 +1,2 @@
+Artículo 227bis.—Recurso extraordinario para la revisión del acto final firme. Podrá plantearse el recurso para la revisión de todo acto final firme ante el Consejo Universitario. Los motivos por los cuales cabrá la revisión y los plazos para su interposición serán definidos por la normativa universitaria respectiva. Tratándose de materia laboral, corresponderá al Rector o a la Rectora el conocimiento del recurso.
+(Así adicionado en sesión N° 139 del 23 de octubre de 2014)
