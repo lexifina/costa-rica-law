@@ -14,3 +14,4 @@ Reglamento para la aprobación de variaciones presupuestarias en los presupuesto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-06 | la propia norma |
+| 2 | 2014-10-23 | Reglamento municipal 347 (2014-10-23) |
