@@ -15,3 +15,4 @@ Reglamento para la Adquisición y Recepción de Bienes, Servicios y Obras de la 
 | --- | --- | --- |
 | 1 | 2008-02-26 | la propia norma |
 | 2 | 2009-03-05 | Reglamento municipal 222 (2009-03-05) |
+| 3 | 2014-10-23 | Reglamento municipal 347 (2014-10-23) |
