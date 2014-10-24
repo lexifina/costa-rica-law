@@ -7257,3 +7257,116 @@ Pago de cancelación: Indicar los datos relacionados con el pago de cancelación
 Observaciones: Utilizar este espacio en caso que el funcionario aduanero considere señalar algún dato relevante. En caso que no se requiera utilizar esta casilla se debe anotar las siglas N/A.
 Firmas de autorización de la adjudicación: En la casilla correspondiente el funcionario responsable de la confección de este formulario y la jefatura de la Sección de Depósito deben anotar el nombre y consignar la firma.
 Recibido Conforme: El adjudicatario debe consignar su nombre y firma, así como la fecha en que está recibiendo el formulario F-DPA-5011.
+(Nota de Sinalevi: Mediante resolución N° RES- DGA-305-2014 del 24 de octubre del 2014 se adiciona al presente manual el "Procedimiento para la Eliminación de Documentos Aduaneros” que se transcribe a continuación:)
+Procedimiento para la Eliminación de Documentos Aduaneros
+A. Alcance. Este procedimiento se aplicará a las Declaraciones Aduaneras y sus documentos de respaldo que deben ser custodiados por la Administración Aduanera y los Auxiliares de la Función Pública Aduanera de conformidad con el artículo 30 incisos b) y m) de la Ley General de Aduanas y el plazo de vigencia administrativa y legal establecido por el Comité Institucional de Selección y Eliminación de Documentos.
+B. Base Legal.
+1° Ley N° 8360 de fecha 24 de junio de 2003, publicada en el Diario Oficial La Gaceta N° 130 del 08 de julio del 2003, Segundo Protocolo de Modificación del Código Aduanero Uniforme Centroamericano (CAUCA III).
+2° Ley N° 7557 del 20 de octubre de 1995, publicada en el Diario Oficial La Gaceta N° 212 del 08 de noviembre de 1995, Ley General de Aduanas y sus reformas.
+3° Decreto Ejecutivo N° 25270-H del 14 de junio de 1996, publicado en el Diario Oficial La Gaceta N° 123 del 28 de junio de 1996, Reglamento a la Ley General de Aduanas y sus reformas.
+4° Ley N° 7202 de fecha 24 de octubre de 1990, publicada en el Diario Oficial La Gaceta N° 225 del 27 de noviembre de 1990, Ley del Sistema Nacional de Archivos.
+5° Decreto Ejecutivo N° 24023 del 30 de enero de 1995 publicado en el Diario Oficial La Gaceta N° 47 del 07 de marzo de 1995, Reglamento a la Ley del Sistema Nacional de Archivos.
+6° Ley N° 8839 del 24 de junio del 2010, publicada en el Diario Oficial La Gaceta N° 135 del 13 de julio del 2010, Ley para la Gestión Integral de Residuos y sus reformas.
+7° Acta de Sesión N° 33, aprobada por el Comité Institucional de Selección y Eliminación de Documentos en fecha 15 de abril del 2010.
+C. Abreviaturas
+CNSED: Comisión Nacional de Selección y Eliminación de Documentos.
+CISED: Comité Institucional de Selección y Eliminación de Documentos del Ministerio de Hacienda.
+LGA: Ley General de Aduanas.
+RLGA: Reglamento a la Ley General de Aduanas.
+LSNA: Ley del Sistema Nacional de Archivo.
+RLSNA: Reglamento a la Ley del Sistema Nacional de Archivo.
+SNA: Servicio Nacional de Aduanas.
+Las abreviaturas no definidas en este procedimiento corresponderán a las establecidas en la resolución RES-DGA-203-2005 de fecha 22 de junio 2005, publicada en el Alcance N° 23 del Diario Oficial La Gaceta N° 143 de fecha 26 de julio de 2005 y sus modificaciones, relativa al Manual de Procedimientos Aduaneros.
+D. Definiciones
+Acta eliminación: Documento elaborado por el CISED, mediante el cual se hace constar el acto de eliminación de las declaraciones aduaneras y sus documentos de respaldo aprobados conforme a la resolución de la CNSED.
+Serio o tipo documental: Es el nombre con el que se conocen los documentos, sea porque el mismo documento trae escrito su nombre, o porque la costumbre ha llevado a nombrarlo así, como por ejemplo los documentos aduaneros.
+Documentos aduaneros: Pólizas de Desalmacenaje; declaraciones aduaneras y documentos únicos aduaneros, con sus documentos de respaldo correspondientes. Éstos pueden ser de Importación, exportación, tránsito, reimportación, ingreso a los regímenes de Zonas Francas y Perfeccionamiento Activo, ingreso de viajeros, certificado de importación temporal, entre otros.
+CISED: Es el órgano del Ministerio de Hacienda encargado de evaluar y determinar la vigencia administrativa y legal de los documentos generados por los entes productores, así como las normas de selección y eliminación para cada tipo de documento aduanero y sus respaldos que se mencionan en este procedimiento.
+CNSED: Es el órgano de la Dirección General del Archivo Nacional encargado de dictar las normas sobre selección y eliminación de documentos, de acuerdo con su valor científico-cultural y de resolver las consultas sobre eliminación de documentos de los entes productores.
+Entidad productora: Es el ente que produce el documento: puede ser de la Administración Pública, de la Privada, una familia o una persona.
+Tabla de plazos de conservación de documentos: Es un instrumento elaborado por el CISED, en el cual constan todas las series o tipos documentales producidos o recibidos por la Autoridad Aduanera o por el Auxiliar de la Función Pública Aduanera, en el cual se anotan todas sus características y se fija la vigencia administrativa y legal del documento.
+Valoración parcial de documentos: Es el proceso de evaluación y autorización efectuada tanto por el CISED como por la CNSED, a fin de determinar la procedencia de la eliminación de aquellos documentos generados como resultado de la gestión aduanera, y conservados por la autoridad aduanera o los Auxiliares de la Función Pública Aduanera, señalados en el Formulario de Solicitud de Valoración Parcial de documentos.
+Formulario de solicitud de valoración parcial de documentos: Es el documento elaborado por Dirección General del Archivo Nacional (DGAN), utilizado de manera excepcional, por la Administración Aduanera o por el Auxiliar de la Función Pública Aduanera, para solicitar la autorización de eliminación de las declaraciones aduaneras y sus documentos de respaldo contenidas en sus archivos, cuando no existan “tablas de plazos de conservación documental”, o estas se encuentren desactualizadas, para esos documentos aduaneros.
+Instructivo de llenado del formulario de solicitud de valoración parcial de documentos: Guía descriptiva de la información que debe ser incluida en el Formulario de Solicitud de Valoración Parcial de Documentos.
+Solicitud de eliminación de documentos: Es el documento elaborado por CISED, utilizado por la autoridad aduanera y los auxiliares de la función pública aduanera, para solicitar la autorización de eliminación de las declaraciones aduaneras y sus documentos de respaldo contenidas en sus archivos, cuando exista “tabla de plazos” vigente de conservación documental, para esos documentos aduaneros.
+Formulario Descriptivo de Documentos Aduaneros Sujetos a Eliminación: Documento que debe ser completado por el auxiliar de la función pública aduanera, en el cual se detallan los números de la declaración aduanera, fecha de aceptación y la aduana de control, que se adjunta al “Formulario de solicitud de Valoración Parcial de Documentos” o a la “Solicitud de Eliminación de Documentos”, según se trate.
+Vigencia Administrativa y Legal del Documento: Se refiere al plazo asignado por el CISED, que debe observar la administración aduanera y los Auxiliares de la Función Pública Aduanera, para la custodia y conservación de los tipos documentales utilizados en la gestión aduanera, que han perdido su valor administrativo y legal.
+Los enunciados utilizados que no se encuentren definidos en este procedimiento, corresponden a los establecidos en la Resolución DGA-203-2005 de fecha 22 de junio de 2005, publicada en el Alcance N° 23 del Diario Oficial La Gaceta N° 143 de fecha 26 de julio de 2005 y sus modificaciones.
+E. Procedimiento Común
+Para la eliminación de las declaraciones aduaneras, se seguirá el siguiente procedimiento común; sin perjuicio de aquellos especiales que en esta resolución o posteriores se prevean para regular determinadas situaciones operativas.
+I.—Políticas Generales
+1. La definición de tipo o serie documental se aplicará específicamente a los siguientes documentos aduaneros: Certificado de Importación Temporal, Declaraciones Aduaneras de Exportación (DAE), Declaraciones Aduaneras de Exportación Provisional (DAEP), Declaraciones Aduaneras de Importación (DAIM), Declaración Aduanera de Perfeccionamiento Activo (DAPA) y sus diferentes modalidades, Declaración Aduanera de Tránsito (DAT) y sus diferentes modalidades, Declaración aduanera de Zona Franca (DAZF) y sus diferentes modalidades, Declaración de Tránsito Internacional (DTI), Declaraciones de Oficio, Declaración Simplificada de Entrega Rápida (DSER), Declaración de Viajeros (DV), Documento Único Aduanero (DUA), Formulario Aduanero Único Centroamericano (FAUCA) y Declaración Única de Tránsito Internacional Terrestre (DUT) y aquellos otros definidos por la normativa aduanera.
+2. Cualquier referencia a documentos aduaneros, se aplicará también a los documentos de respaldo en los que se consigne datos e informaciones requeridos para cada régimen y modalidad respecto de la operación aduanera en particular.
+3. El año propuesto en la fecha extrema indicada en el “Formulario” o en la “Solicitud” de eliminación de documentos, incluirá todo el periodo calendario, del 1 de Enero al 31 de diciembre.
+4. No serán objeto de aplicación del presente procedimiento, las declaraciones aduaneras y sus respectivos documentos de respaldo que cumplan alguna de las siguientes condiciones:
+4.1. Se trate de declaraciones aduaneras que no hubieren cumplido el plazo de vigencia administrativa y legal de conservación por parte del auxiliar de la función pública aduanera.
+4.2. Cuando sean objeto de un procedimiento que hubiere sido notificado por autoridad administrativa o judicial competente. En caso que los documentos y la información respectiva, se encuentren bajo la custodia del auxiliar de la función pública aduanera, éstos deberán ser conservados hasta la finalización del proceso que se trate, según el artículo 30 inciso b) de la LGA.
+4.3. Los tipos o series documentales que el CISED no ha definido el plazo de vigencia administrativa y legal de conservación del documento.
+4.4. Las declaraciones aduaneras a las que se les aplicó una nota de exoneración de tributos.
+5. Se procederá con la eliminación de todas aquellos tipos o series documentales que han cumplido el plazo de vigencia legal y administrativo de conservación, y no se encuentren dentro de las condiciones de la política anterior.
+6. Las declaraciones aduaneras y los documentos de respaldo que no hubieren cumplido con el plazo de vigencia administrativa y legal de conservación, ubicados en los archivos y depósitos de la Autoridad Aduanera o de Auxiliares de la Función Pública Aduanera, deberán custodiarse en buen estado de conservación de conformidad con Ley del Sistema Nacional de Archivo y su Reglamento, así como clasificados por régimen aduanero, modalidad y aduana de control.
+7. Tratándose de documentos aduaneros custodiados por los Auxiliares de la Función Pública Aduanera y para los que hayan cumplido el plazo de vigencia administrativa y legal definido por el CISED, la solicitud de autorización para proceder con la eliminación de esos documentos se realizará mediante la presentación del “Formulario de solicitud de Valoración Parcial de Documentos” cuando no existan “tablas de plazo de conservación documental” o mediante la “Solicitud de Eliminación de Documentos”, cuando existan “tablas de plazo” de conservación documental. La solicitud de eliminación será presentada directamente por el Auxiliar de la Función Pública Aduanera ante el CISED con copia a la aduana de control.
+8. El CISED deberá remitir a la Aduana de control, una copia del Acta de Eliminación Documental que se hubiere levantado al efecto, a fin de que la Autoridad Aduanera lleve el registro correspondiente.
+9. Tratándose de documentos aduaneros custodiados por las autoridades aduaneras y para los que hayan cumplido el plazo de vigencia administrativa y legal definido por el CISED, la solicitud de autorización para proceder con la eliminación de esos documentos se realizará mediante la presentación del “Formulario de solicitud de Valoración Parcial de Documentos” cuando no existan “Tablas de plazo de conservación documental” o mediante la “Solicitud de Eliminación de Documentos”, cuando existan “Tablas de plazo de conservación documental”. La solicitud de eliminación será presentada directamente por la Autoridad Aduanera al CISED.
+10. Para el cálculo de los metros lineales aproximados a eliminar de una serie o tipo documental, se deberá utilizar la siguiente fórmula:
+ML = Medida en centímetros de la cantidad de documentos /100
+Ejemplo: 5000 cm de documentos /100 = 50 metros lineales
+[imagen]
+II.—De la Solicitud de Eliminación de los Documentos Aduaneros por parte de:
+A. Del Auxiliar de la Función Pública Aduanera.
+1. Presentar nota al CISED firmada, en el caso de personas jurídicas por el representante legal debidamente acreditado, a fin de solicitar la autorización para la eliminación de los documentos aduaneros, en la que se indique lo siguiente:
+1.1. Nombre y cédula física o jurídica del Auxiliar de la Función Pública Aduanera.
+1.2. Categoría y código del Auxiliar.
+1.3. Aduana de control.
+1.4. Medio de notificación conforme lo señalado por la LGA.
+2. La nota remitida al CISED, deberá ser acompañada por:
+2.1. Un Formulario de Solicitud de Valoración Parcial de Documentos debidamente completado de conformidad con su Instructivo y firmado por el Representante Legal, cuando no exista “Tabla de plazos de conservación de documentos”; o
+2.2. Una “Solicitud de Eliminación de Documentos” cuando exista “Tabla de plazos de conservación de documentos”.
+2.3. “Formulario descriptivo de documentos aduaneros sujetos a eliminación”.
+2.4. Personería jurídica del Auxiliar de la Función Pública Aduanera.
+2.5. Declaración jurada rendida ante notario público, en la cual se indique que los documentos aduaneros objeto de la solicitud de autorización de eliminación, cumplen las siguientes condiciones:
+a. Han cumplido el plazo de cinco años de conservación establecido en el artículo 30 inciso b) de la Ley General de Aduanas.
+b. No forman parte de un proceso judicial o administrativo que hubiere sido comunicado o se encuentre pendiente de resolución por la autoridad competente.
+c. Han cumplido el plazo de vigencia administrativa y legal definido por parte de las autoridades del CISED.
+d. Que no se trata de información o respaldos electrónicos atinentes a movimientos de ingreso, permanencia y salida de mercancías que pudieran encontrarse dentro de los plazos previstos en los artículos 16 inciso b) del Reglamento del Régimen de Perfeccionamiento Activo y 62 inciso l) del Reglamento a la Ley del Régimen de Zonas Francas.
+e. No se encuentren asociadas a mercancías que han gozado de una autorización de exoneración de tributos a la importación, emitidas por el Departamento de Exenciones de la Dirección General de Hacienda.
+3. Remitir copia de la Nota y los documentos adjuntos debidamente recibidos por el CISED, a la aduana de jurisdicción del lugar donde se custodian los tipos documentales.
+B. De la Autoridad Aduanera.
+1. Presenta nota ante el CISED, firmada por el superior jerárquico de la entidad productora: Aduana de Control o Dirección General de Aduanas según corresponda, a fin de solicitar la autorización para la eliminación de los documentos aduaneros, en la que se indique lo siguiente:
+1.1. Correo electrónico institucional para recibir notificaciones.
+1.2. Que se verificó que los documentos indicados en dicha solicitud, cumplen con las siguientes condiciones:
+a. Han cumplido el plazo de cinco años de conservación establecido en el artículo 30 inciso b), de la Ley General de Aduanas.
+b. Han cumplido el plazo de vigencia administrativa y legal definido por parte de las autoridades del CISED.
+c. No forman parte de un proceso judicial o administrativo que hubiere sido comunicado o se encuentre pendiente de resolución por la autoridad competente.
+d. Que no se trata de información o respaldos electrónicos atinentes a movimientos de ingreso, permanencia y salida de mercancías que pudieran encontrarse dentro de los plazos previstos en los artículos 16 inciso b) del Reglamento del Régimen de Perfeccionamiento Activo y 62 inciso l) del Reglamento a la Ley del Régimen de Zonas Francas.
+e. No se encuentren asociadas a mercancías que han gozado de una autorización de exoneración de tributos a la importación, emitidas por el Departamento de Exenciones de la Dirección General de Hacienda.
+2. La nota remita al CISED, deberá ser acompañada por:
+2.1. Formulario de Solicitud de Valoración Parcial de Documentos, debidamente lleno y firmado por el gerente de la aduana de control, cuando no exista “Tabla de plazos”; ó
+2.2. Solicitud de Eliminación De Documentos, cuando exista “Tabla de plazos”.
+III. De la recepción y aprobación de las solicitudes de eliminación de documentos.
+A. Actuaciones del CISED
+1. Recibir la nota con los documentos requeridos y verificar que éstos cumplan con la información solicitada.
+2. De proceder la solicitud de eliminación, y se trate del “Formulario de Valoración Parcial de Documentos”, una vez aprobado por el CISED, lo remite a la CNSED mediante oficio, a efectos de su aprobación.
+3. Cuando por alguna razón la CNSED devuelve el “Formulario de Valoración Parcial de Documentos” con observaciones, el CISED deberá subsanarlas inmediatamente y remitirlo nuevamente a la CNSED para su aprobación.
+4. Una vez aprobado por la CNSED el “Formulario de Valoración Parcial de Documentos”, el CISED remite al interesado un oficio donde propone fecha y hora para llevar a cabo la eliminación de los documentos autorizados para su destrucción.
+5. Cuando trate de una “Solicitud de Eliminación de Documentos”, y de proceder la misma, remite al interesado un oficio donde se proponen las fechas para llevar a cabo la eliminación de los documentos autorizados para su destrucción.
+6. En caso de no proceder con la “Solicitud de Eliminación de Documentos”, comunica al interesado los motivos y fundamentos del rechazo de la solicitud.
+B. Actuaciones del CNSED
+1. Recibir el oficio de parte del CISED, mediante el cual se le remite el “Formulario de Valoración Parcial de Documentos”, para su aprobación.
+2. En caso de aprobación del “Formulario de Valoración Parcial de Documentos”, remite el informe de valoración al CISED.
+3. De no aprobarse el “Formulario de Valoración Parcial de Documentos”, remite oficio al CISED, donde se indican los motivos del rechazo, a efectos de que sean subsanados.
+IV.—De la Eliminación de los Documentos Aduaneros.
+A. Actuaciones del CISED
+1. Cuando se trate de solicitudes de eliminación por medio de “Formularios de Valoración Parcial de Documentos”, recibe del CNSED la aprobación correspondiente, la que comunica al interesado, a efectos de coordinar todo lo relacionado con la eliminación documental, referente al lugar, fecha y hora donde se llevará a cabo la destrucción.
+2. Cuando se trate de una “Solicitud de Eliminación de Documentos”, aprobada la misma, remite al interesado un oficio donde se propone fecha y lugar para llevar a cabo la eliminación de los documentos autorizados para su destrucción.
+3. Finalizado el proceso de eliminación de documentos, confecciona el “Acta de Eliminación Documental”, y hace entrega de dos copias, una para el interesado y otra para la aduana de control cuando el interesado sea un Auxiliar de la Función Pública Aduanera.
+B. Actuaciones del Auxiliar de la Función Pública Aduanera o de la Autoridad Aduanera, según se trate.
+1. Recibe el oficio del CISED, mediante el cual le notifican la autorización para la eliminación documental.
+2. Notificada la autorización para la eliminación de documentos, de forma previa coordina con el funcionario del CISED, para proceder con la eliminación de los documentos incluidos en el “Formulario” o “Solicitud”.
+3. Procede con el traslado de los documentos aduaneros hasta el lugar coordinado previamente con el CISED para efectuar la eliminación.
+4. Una vez destruidos los documentos, recibe copia del “Acta de eliminación documental” elaborada por el CISED, como comprobante de la actuación realizada, la que deberá conservar como respaldo de lo actuado en el proceso de eliminación de los documentos.
+V.—Lo dispuesto en el presente procedimiento constituye el resultado de lo debidamente consensuado con funcionarios de la Dirección General de Aduanas y el Comité Institucional de Selección y Eliminación de Documentos.
+B. Comuníquese y publíquese en el Diario Oficial La Gaceta.
+[imagen]
+[imagen]
+[imagen]
