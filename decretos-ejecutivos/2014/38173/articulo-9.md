@@ -1,1 +1,0 @@
-Artículo 9º—Sesiones. La Junta Policial sesionará ordinariamente al menos una vez por trimestre y extraordinariamente cuando lo considere necesario, siempre dentro de la jornada ordinaria laboral y sus integrantes no devengarán dietas. Será convocada por cualquiera de sus miembros.

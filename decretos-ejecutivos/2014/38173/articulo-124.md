@@ -1,1 +1,0 @@
-Artículo 124.—Curso Básico Policial Migratorio. El Curso Básico Policial Migratorio será coordinado por la Gestión de Recursos Humanos, y podrá ser impartido por la Escuela Nacional de Policía u otra entidad educativa debidamente acreditada ante el Ministerio de Seguridad Pública o el CONESUP.

@@ -1,1 +1,0 @@
-Artículo 156.—Denuncia por la presunta comisión de un delito. Cuando la Comisión determine que los hechos denunciados puedan constituir un delito perseguible de oficio, deberá notificarlo de inmediato al Ministerio Público, de conformidad con lo previsto en el artículo 281 del Código Procesal Penal.

@@ -1,1 +1,0 @@
-Artículo 5º—Equipo policial. Para el buen desempeño de sus funciones, los funcionarios policiales de la Policía Profesional están autorizados para portar esposas, cualquier otro equipo profesional de trabajo, así como armas reglamentarias, siempre y cuando cuenten con los permisos respectivos. El uso indebido de estos bienes será falta grave a la relación de servicio.

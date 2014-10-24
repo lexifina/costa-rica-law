@@ -1,2 +1,0 @@
-Artículo 96.—Permutas. Se podrán realizar permutas cuando dos funcionarios policiales voluntariamente aceptan cambiar el lugar de trabajo, siempre y cuando el puesto y las funciones sean iguales.
-Para efectuar una permuta, cada uno de los interesados hará una solicitud por escrito al Consejo de Personal, en la que constará el visto bueno de las jefaturas inmediatas y del Director General. El Consejo de Personal comunicará a la Gestión de Recursos Humanos si acoge o deniega la gestión, asimismo, en caso de que ésta se acoja, ordenará la aplicación de la permuta.

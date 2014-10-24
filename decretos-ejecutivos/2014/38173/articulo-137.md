@@ -1,1 +1,0 @@
-Artículo 137.—Presunción de inocencia. La persona denunciada deberá ser considerada inocente en todas las etapas del procedimiento, hasta tanto no se establezca su responsabilidad disciplinaria mediante resolución final en firme.

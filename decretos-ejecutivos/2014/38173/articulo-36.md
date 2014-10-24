@@ -1,1 +1,0 @@
-Artículo 36.—Estudio de vida y costumbres. Aquellos que hubieren cumplido satisfactoriamente con las pruebas preliminares, deberán someterse a un estudio de vida y costumbres, el cual incluye cuatro tipos de entrevistas: laboral, personal, familiar, comunal, y cualquier otra prueba que se considere pertinente para demostrar la idoneidad para el cargo.

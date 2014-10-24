@@ -1,1 +1,0 @@
-Artículo 154.—Sanciones para quienes denuncien falsamente. Incurrirá en falta de naturaleza laboral o académica, que dará mérito para la aplicación del régimen disciplinario, sin perjuicio de otras acciones que personalmente lleve a cabo la persona denunciada, el funcionario o estudiante que haya interpuesto una denuncia cuya falsedad se compruebe en forma evidente y manifiesta.

@@ -1,1 +1,0 @@
-Artículo 12.—Delegados Regionales. Los Delegados Regionales se desempeñarán operativa y administrativamente, es decir, serán el superior policial de la Regional y a su vez, el superior administrativo de la Oficina Regional de la Dirección General de Migración y Extranjería. Estos funcionarios estarán amparados al Régimen de Servicio Civil.

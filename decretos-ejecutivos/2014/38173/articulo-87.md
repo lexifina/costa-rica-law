@@ -1,4 +1,0 @@
-CAPÍTULO VII
-Evaluación del Desempeño
-Artículo 87.—Sistema de evaluación del desempeño. Se establece el sistema de evaluación del desempeño del personal de la Policía con el propósito de regular su desempeño, eficiencia y mérito.
-Se entiende por evaluación del desempeño, la apreciación sistemática y continua del esfuerzo, dedicación y compromiso con que el servidor realiza sus funciones, tareas, deberes y responsabilidades propias del cargo que ocupa. Dicha evaluación debe ser llevada a cabo por parte de su superior inmediato, con el objeto de determinar el cumplimiento de sus deberes y responsabilidades, el merecimiento de estímulos o requerimiento de ayuda y capacitación específica, su potencial para ejercer un puesto de mayor nivel y para reconocer los méritos profesionales y detectar los problemas de supervisión del personal.

@@ -1,1 +1,0 @@
-Artículo 138.—Principio de especialidad. La aplicación de este capítulo estará a cargo de órganos especializados en materia de hostigamiento sexual. Para tal efecto, las y los funcionarios que los integren deben participar permanentemente en programas de sensibilización y capacitación con el objetivo de lograr una adecuada comprensión de la problemática sobre la que operan.

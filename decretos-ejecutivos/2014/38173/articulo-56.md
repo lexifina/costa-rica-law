@@ -1,1 +1,0 @@
-Artículo 56.—Acumulación de vacaciones. Las vacaciones podrán acumularse por un período, requiriéndose para ello resolución razonada de la Dirección General y que se produzca dentro de las limitaciones contempladas en el Código de Trabajo.

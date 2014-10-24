@@ -1,1 +1,0 @@
-Artículo 61.—Clasificación de las faltas. Las faltas se clasificarán en leves y graves. Las primeras se sancionarán con apercibimiento oral o escrito, y las segundas, con suspensión sin goce de salario de uno a treinta días o con el despido por causa justa.

@@ -1,2 +1,0 @@
-Artículo 88.—Manual de Evaluación del Desempeño y categorías. La evaluación anual del desempeño de los servidores se aplicará de acuerdo con el Manual de Evaluación del Desempeño que para ese efecto elabore la Gestión de Recursos Humanos. Las categorías que se utilizarán para la evaluación anual del servidor serán: deficiente, regular, bueno, muy bueno y excelente.
-La Gestión de Recursos Humanos deberá preparar y distribuir oportunamente el material de evaluación con el correspondiente instructivo, controlar su aplicación y definir el método y contenido a utilizar.

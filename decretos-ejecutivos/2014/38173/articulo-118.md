@@ -1,1 +1,0 @@
-Artículo 118.—Disponibilidad. Se otorgará un sobresueldo fijo y permanente de un 25% sobre el salario base a los funcionarios incorporados al Régimen del Estatuto Policial, por concepto de disponibilidad para el servicio, según las necesidades operacionales y a criterio del Jefe inmediato por esos motivos.

@@ -1,2 +1,0 @@
-Artículo 76.—Llegadas tardías. Se considerarán llegadas tardías, el ingreso al trabajo después de la hora exacta establecida para el comienzo de las labores en la correspondiente fracción de jornada.
-No serán calificadas como llegadas tardías u omisiones de marcas, los casos en que los funcionarios realicen labores propias del cargo fuera de la Institución, que cuenten con la previa autorización del jefe inmediato o bien, en los casos que medie prueba documental idónea de la situación acaecida, misma que será valorada por la Gestión de Recursos Humanos.

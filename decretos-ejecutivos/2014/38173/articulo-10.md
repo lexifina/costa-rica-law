@@ -1,3 +1,0 @@
-SECCIÓN II
-Organización
-Artículo 10.—Dependencias especializadas de control migratorio. Para el cumplimiento de las funciones de control migratorio estipuladas en la Ley General de Migración y Extranjería vigente, la Dirección General de Migración y Extranjería cuenta con la Dirección de la Policía Profesional de Migración, la Dirección Regional, las Delegaciones y Oficinas Regionales, a fin de desarrollar una labor eficiente, eficaz y efectiva, para lo cual, la Dirección Policial y la Dirección Regional deberán establecer canales de comunicación efectivos, abiertos, dinámicos y seguros. Asimismo, deberán, en conjunto, implementar acciones tendientes al fortalecimiento del control migratorio y la gestión institucional en materia de control y seguridad ciudadana.

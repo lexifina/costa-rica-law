@@ -1,2 +1,0 @@
-Artículo 146.—Presentación de la denuncia. La denuncia se interpondrá en forma verbal o escrita ante el Subproceso Inspección Policial y Administrativo, que deberá trasladarla a la Comisión a más tardar al día siguiente de su recepción.
-Cuando la denuncia se presente en forma verbal, de lo manifestado se levantará un acta que deberá ser suscrita por la persona denunciante y aquella que la haya recibido.

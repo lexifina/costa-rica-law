@@ -1,1 +1,0 @@
-Artículo 80.—Tardía por más de una hora o superior a media jornada. Toda llegada tardía injustificada por más de una hora de iniciada la jornada laboral ordinaria, se tendrá como ausencia injustificada de media jornada. Si la llegada tardía es superior a la media jornada, se tendrá como ausencia injustificada de jornada completa.

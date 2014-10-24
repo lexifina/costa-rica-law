@@ -1,1 +1,0 @@
-Artículo 55.—Fraccionamiento. Los servidores de la Policía gozarán, sin interrupción de su período de vacaciones. Sin embargo, por la naturaleza del servicio, podrá acordar con su superior inmediato su fraccionamiento.
