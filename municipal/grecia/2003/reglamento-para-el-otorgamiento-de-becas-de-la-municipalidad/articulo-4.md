@@ -6,4 +6,6 @@ d) Original y copia del certificado del resultado académico del periodo lectivo
 e) Constancia emitida por el centro educativo correspondiente donde se establezca que es estudiante activo para el periodo de que se trate.
 f) Señalar lugar para recibir notificaciones. Si el lugar señalado fuere impreciso o incierto las resoluciones que se dicten con relación al beneficio solicitado, se tendrán por firmes con el solo transcurso de veinticuatro horas.
 g) Constancia de estar al día en el pago de los servicios municipales.
+h) Certificación de que a la fecha no se ha recibido beca de ninguna Institución Pública o Privada.
+i) Los formularios se entregaran a los Síndicos (as), quienes a la vez se reunirán con su Consejo de Distrito, Juntas de Desarrollo, así como directores o docentes para la escogencia de los becados.
 En todo caso los miembros de la Comisión tomarán en consideración la situación socioeconómica del optante, para lo cual podrán ordenar los estudios sociales que estimen convenientes. Para mantener la beca una vez otorgada, el beneficiario deberá mantener en su récord como nota mínima la que se establezca para aprobar el curso.

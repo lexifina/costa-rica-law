@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de becas de la Municipalidad de Grecia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-03 | la propia norma |
+| 2 | 2014-10-24 | Reglamento municipal 0 (2014-10-24) |
