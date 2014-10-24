@@ -1,0 +1,16 @@
+# Acuerdo 318
+
+Tarifas por la venta de bienes y servicios que brinda y genera el INCOPESCA para el año 2015
+
+- Tipo: Acuerdo
+- Número: 318
+- Fecha: 2014-09-05
+- Ente emisor: Instituto Costarricense de Pesca y Acuicultura
+- Publicación: La Gaceta N° 205 del 2014-10-24
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=78204&param2=98467&param3=1 (ficha 78204)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2014-10-24 | la propia norma |
