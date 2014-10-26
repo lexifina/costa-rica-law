@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Disposiciones transitorias
+Transitorio I.—El procedimiento de recepción de documentos mediante correo electrónico y de notificación de actos administrativos por esta misma vía, deberá estar contenido en los Manuales de Procedimientos de las diferentes dependencias de este Ministerio.
+Hasta tanto no esté disponible en la página web del Ministerio, el “Manual del Usuario y Políticas del Uso del Correo Electrónico como Medio de Notificaciones y/o Comunicaciones para el Recibo y Envío de Información Mediante Correo Electrónico”, se podrá enviar y recibir información tanto para el usuario interno como externo, de correos electrónicos que no contengan archivos que sobrepasen en la totalidad del correo electrónico los 3 megas. Los formatos de archivos que se podrán enviar serán doc, text, docx, pdf, jpg, tiff y xps.

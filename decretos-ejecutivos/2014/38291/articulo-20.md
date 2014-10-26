@@ -1,0 +1,1 @@
+Artículo 20.—Control interno. El superior de la Dirección, Departamento, Dependencia, Oficina u Órgano Desconcentrado de este Ministerio, deberá prever los controles correspondientes, para garantizar que los funcionarios(as) responsables puedan dar el seguimiento de documentos que se reciben, notifiquen y/o comuniquen mediante correo electrónico.

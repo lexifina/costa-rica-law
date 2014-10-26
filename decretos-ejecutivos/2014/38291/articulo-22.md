@@ -1,0 +1,1 @@
+Artículo 22.—Notificación a disposición del interesado. El acto administrativo notificado, deberá estar a disposición del interesado en la respectiva Dirección, Departamento, Dependencia, Oficina y Órgano Desconcentrado de este Ministerio que lo tenga bajo custodia.

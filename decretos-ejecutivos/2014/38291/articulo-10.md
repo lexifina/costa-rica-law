@@ -1,0 +1,2 @@
+Artículo 10.—Notificación digital nula. Será nula la notificación mediante correo electrónico contraria a lo previsto en las leyes aplicables y en este Reglamento. En todo caso, la notificación se refutará como no válida cuando se le haya causado indefensión a la parte notificada a solicitud de ésta y previa comprobación de la misma.
+En el caso que la Administración haya detectado el vicio, deberá de oficio, declarar la nulidad de la notificación y realizar la respectiva notificación como en derecho corresponda.

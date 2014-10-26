@@ -1,0 +1,4 @@
+CAPÍTULO V
+Correo Electrónico Institucional
+Artículo 24.—Dirección de Correo Institucional. La dirección de correo electrónico institucional de cada funcionario(a), es válida y oficial para toda comunicación que cualquier dependencia del Ministerio le realice ante una gestión personal que como funcionario(a) de este Ministerio, interponga en resguardo de sus derechos laborales, en este caso siempre que este lo haya autorizado; con la excepción de la primera notificación en los procedimientos administrativos disciplinarios o de responsabilidad civil, la cual deberá realizarse en forma personal, así como otros procedimientos contenidos en leyes especiales.
+Lo anterior no es impedimento para que el funcionario(a) pueda aportar cualquier otra dirección de correo electrónico personal para sus trámites laborales.

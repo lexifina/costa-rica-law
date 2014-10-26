@@ -1,0 +1,1 @@
+Artículo 8º—Notificación digital. Los actos administrativos de este Ministerio podrán ser notificados mediante correo electrónico, si el(la) interesado(a) interno o externo, hubiese solicitado tal gestión por este medio. Esta solicitud podrá ser modificada en cualquier tiempo.

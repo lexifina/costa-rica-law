@@ -1,0 +1,1 @@
+Artículo 12.—Días y horas hábiles. Todos los días y las horas serán hábiles para practicar las notificaciones previstas en este reglamento, así como para la presentación de documentos por ese medio por parte del interesado(a).

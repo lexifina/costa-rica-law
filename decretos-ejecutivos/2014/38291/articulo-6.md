@@ -1,0 +1,2 @@
+Artículo 6º—Posibilidad de utilizar medios alternativos. Cualquier interesado(a) en presentar una gestión ante este Ministerio, podrá solicitar ser notificado por correo electrónico.
+El interesado(a) podrá señalar los medios legales que considere pertinentes para atender notificaciones, con un máximo de dos, con la indicación de cuál de ellos se debe utilizar como principal. Caso contrario, la Administración agotará los medios aportados. Es indispensable agotar los medios alternativos.
