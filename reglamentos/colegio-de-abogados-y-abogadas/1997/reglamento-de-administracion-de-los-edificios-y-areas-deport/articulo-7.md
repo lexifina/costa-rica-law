@@ -1,7 +1,13 @@
 Artículo VII- Casos especiales de utilización de las instalaciones.
 También podrán utilizar las instalaciones deportivas:
 a) Otros profesionales universitarios y estudiantes del último año de derecho, previa aprobación de la Junta Directiva, si pagaren la mensualidad que se fije al efecto.
-b) Los abogados extranjeros que laboren para organismos internacionales, una vez que la Junta Directiva apruebe su ingreso y fije la mensualidad correspondiente.
+(*) b) Ser cónyuge o compañero (a) de hecho o en unión de hecho según los alcances que al respecto ha estipulado la Sala Constitucional de la Corte Suprema de Justicia. Esta condición deberá actualizarse cada 2 años.
+1. Se solicitará la presentación de los siguientes requisitos:
+2. Presentación del carné al día de la persona agremiada.
+3. En caso de persona agremiada casada, se solicita la presentación de una constancia de matrimonio con máximo de 3 meses de emitida.
+4. En caso de persona agremiada que convive en unión de hecho o en unión libre, se solicita la presentación de una declaración jurada indicando que dicha unión se ha mantenido por un periodo no menor a un año, así como la presentación de constancia del estado civil de ambas personas convivientes que demuestre que ninguna se encuentra unida en matrimonio o unión de hecho reconocida judicialmente a otra persona.
+Una nota dirigida a la Junta Administradora explicando su solicitud y situación personal así como el número de fax, teléfono o correo electrónico para notificarle en un plazo no mayor a 15 días.
+(*)(Así reformado el inciso b) anterior mediante sesión ordinaria N° 40-14 del 27 de octubre del 2014)
 c) Abogados viajeros, con cuyos Colegios Profesionales existieren convenios de reciprocidad.
 d) Estudiantes extranjeros que participen en programas de intercambio estudiantil y se residan con un colegiado, previo pago de la tarifa que la Junta Directiva le fije al efecto, por periodos de tiempo, no inferiores de un mes.
 e) Para eventos especiales se permitirá el ingreso de Grupos debidamente identificados, una vez que la Dirección Ejecutiva haya dado su aprobación y cancelen la tarifa que se establezca al efecto y rindan la correspondiente garantía. Esto incluye tanto a las aulas, auditorio, salones sociales y áreas deportivas corno a las personas ya sean estudiantes, jugadores o público en general.
