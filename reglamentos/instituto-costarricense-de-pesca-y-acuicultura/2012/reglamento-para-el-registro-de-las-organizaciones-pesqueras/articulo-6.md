@@ -1,0 +1,1 @@
+Artículo 6º—El INCOPESCA dentro de su presupuesto ordinario, dispondrá de los recursos económicos necesarios para obtener en el Registro Nacional, una Certificación Literal de cada una de las organizaciones pesqueras y acuícolas para efectos de registro, archivo y control.

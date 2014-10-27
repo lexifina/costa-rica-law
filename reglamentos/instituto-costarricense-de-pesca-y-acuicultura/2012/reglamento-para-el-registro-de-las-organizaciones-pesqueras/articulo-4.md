@@ -1,0 +1,1 @@
+Artículo 4º—Sea por vencimiento del plazo de la Personería Jurídica o por el nombramiento de nuevos miembros del Directorio, las organizaciones pesqueras y acuícolas deberán de actualizar la información correspondiente.

@@ -1,0 +1,1 @@
+Artículo 2º—Las organizaciones pesqueras y acuícolas para quedar inscritas dentro del registro del INCOPESCA, deberán de aportar ante el Departamento de Extensión y Capacitación, el Formulario de Inscripción diseñado para este.
