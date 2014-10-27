@@ -14,3 +14,4 @@ Reglamento sobre seguros colectivos del Concejo Nacional de Supervisión del Sis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-17 | la propia norma |
+| 2 | 2014-10-27 | Reglamento 1131 (2014-10-27) |

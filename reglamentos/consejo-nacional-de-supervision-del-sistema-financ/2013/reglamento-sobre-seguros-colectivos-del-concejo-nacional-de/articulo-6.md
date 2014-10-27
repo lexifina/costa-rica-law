@@ -16,7 +16,8 @@ g) Descripción del objeto a asegurar en caso de que corresponda;
 h) Descripción de las coberturas adquiridas;
 i) Montos de coberturas adquiridas o modo de precisarlos;
 j) Beneficiarios de la póliza en caso que corresponda y porcentaje de participación para cada uno;
-k) En los seguros colectivos de saldos deudores, los requisitos dispuestos por el Reglamento sobre autorizaciones, registros y requisitos de funcionamiento de entidades supervisadas por la Superintendencia General de Seguros, en su Anexo 15, apartado VI, inciso 2;
+k) En los seguros colectivos de saldos deudores, los requisitos dispuestos por el Reglamento sobre Registro de Productos de Seguros.
+(Así reformado el inciso anterior en sesión N° 1131 del 27 de octubre de 2014)
 l) Lugares o dirección de página web en donde estarán a disposición del asegurado, las condiciones generales, sus modificaciones y adiciones;
 m) La siguiente leyenda: “Como asegurado, usted tiene derecho a exigir en cualquier momento a la aseguradora, copia de las condiciones generales de esta póliza colectiva, sus modificaciones y adiciones”;
 n) Cualquier otra información que el asegurador considere incluir.
