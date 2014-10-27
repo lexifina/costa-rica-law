@@ -14,3 +14,4 @@ Reglamento a la ley N° 9047 Ley para la Regulación y Comercialización de bebi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-25 | la propia norma |
+| 2 | 2014-10-27 | Reglamento municipal 43 (2014-10-27) |

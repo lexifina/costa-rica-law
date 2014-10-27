@@ -10,4 +10,5 @@ f. Aportar copia de la última declaración por concepto de Impuesto de Renta, a
 g. Haber obtenido previamente la licencia municipal comercial para desarrollar la actividad en donde se pretende comercializar bebidas con contenido alcohólico.
 h. Si se trata de una persona jurídica, deberá aportar certificación de personería jurídica con no más de un mes de haber sido extendida, copia del acta constitutiva de la empresa, acreditando su existencia, vigencia y representación legal, así como la composición de su capital accionario.
 i. Si se trata de persona física, deberá aportarse copia de la cédula de identidad.
-j. Cuando se aporten fotocopias de los documentos supra citados, deberán venir certificados por Notario Público.
+j. Cuando se aporten fotocopias de los documentos supra citados, se deberá aportar los originales para su respectiva confrontación o en su defecto, deberán venir certificados por Notario Público.
+(Así reformado el inciso anterior en sesión N° 43 del 27 de octubre de 2014)
