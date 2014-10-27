@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8852
+(Esta norma fue derogada por el artículo 3° de la ley N° 9278 del 27 de octubre de 2014, "Desafectación de un inmueble propiedad de la Municipalidad del Cantón de Barva de Heredia y autorización para que esta lo done a la Asociación de Desarrollo Específica Pro Obras varias de Puente Salas de Barva Heredia")
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
