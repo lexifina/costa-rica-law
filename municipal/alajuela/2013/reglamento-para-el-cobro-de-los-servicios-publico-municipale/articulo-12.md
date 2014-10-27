@@ -1,2 +1,1 @@
 Artículo 12.—Rige a partir de su publicación en el Diario Oficial.
-Segundo: Conforme al artículo 43 del Código Municipal se autoriza la segunda publicación del reglamento para el cobro de los servicios públicos municipales en las etapas uno y dos de Ciudad Hacienda Los Reyes, según el oficio MA-A-517-2013. Acuerdo debidamente aprobado. Comuníquese. Obtiene once votos definitivamente aprobado su publicación.

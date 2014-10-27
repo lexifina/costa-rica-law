@@ -1,1 +1,1 @@
-Artículo 4º—Que el pasado 26 de mayo del 2010, la empresa Servicios Los Reyes S. A., se transformó en la Empresa Mixta de Servicios Públicos Los Reyes S. A., en la cual la Municipalidad de Alajuela es accionista mayoritaria con un 51% de las acciones de su capital social bajo su propiedad.
+Artículo 4°—Que el pasado 26 de mayo del 2010, la empresa Servicios Los Reyes S. A., se transformó en la Empresa Mixta de Servicios Públicos Los Reyes S. A., en la cual la Municipalidad de Alajuela es accionista mayoritaria con un 51% de las acciones de su capital social bajo su propiedad.

@@ -14,3 +14,4 @@ Reglamento para el cobro de los servicios público municipales en las etapas uno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-05-28 | la propia norma |
+| 2 | 2014-10-27 | Reglamento municipal 0 (2014-10-27) |
