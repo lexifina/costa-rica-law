@@ -1,1 +1,1 @@
-Artículo 48.—Acreditación de profesionales. La entidad aseguradora deberá acreditar a los profesionales en actuariado y derecho que pueden firmar los documentos exigidos para el registro de pólizas tipo. Para ello deberá cumplir con los requisitos establecidos en el anexo 16.
+Artículo 48.—(Derogado en sesión N° 1131 del 27 de octubre de 2014)

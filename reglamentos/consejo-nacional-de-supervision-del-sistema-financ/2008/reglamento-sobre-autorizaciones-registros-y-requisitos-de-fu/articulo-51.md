@@ -1,3 +1,1 @@
-Artículo 51.—Servicios Auxiliares vinculados a la póliza
-En caso de que la póliza registrada limite los proveedores de servicios auxiliares relacionados con el producto, que brinden un servicio directo al asegurado o beneficiario, se considerará obligatorio que la entidad de seguros revele en la documentación contractual del producto, las condiciones para tener acceso a la prestación del servicio ofrecido, así como la forma en que el tomador, asegurado o beneficiario de un seguro puede obtener, en cualquier momento, información actualizada de los proveedores de servicios auxiliares.
-(Así reformado por el aparte 1) subaparte c) de la sesión N° 1043-2013 del 21 de mayo del 2013)
+Artículo 51.—(Derogado en sesión N° 1131 del 27 de octubre de 2014)
