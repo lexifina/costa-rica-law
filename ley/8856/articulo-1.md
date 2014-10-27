@@ -1,4 +1,6 @@
+(Derogado)
 N° 8856
+(Esta norma fue derogada por el artículo 3° de la ley N° 9260 del 31 de julio del 2014 "Desafectación un inmueble propiedad de la Municipalidad del Cantón de Barva de Heredia y autoriza para que esta lo done a la Asociación de Desarrollo Integral de San Pedro de Barva de Heredia")
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 DESAFECTACIÓN DE UN LOTE PROPIEDAD DE LA
