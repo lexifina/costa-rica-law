@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros de los Consejos Directivos en las instituciones de Educación Superior Parauniversitaria, salvo norma legal en contrario, sesionarán de manera ordinaria hasta un máximo de (6) veces al mes y de manera extraordinaria cuando proceda.

@@ -1,0 +1,1 @@
+Artículo 29.—Una vez concluido el plan de estudios, el estudiante deberá someterse a la evaluación final de graduación, la cual consiste en una prueba comprensiva, una práctica supervisada o un proyecto de graduación.

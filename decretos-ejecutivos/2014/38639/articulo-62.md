@@ -1,0 +1,1 @@
+Artículo 62.—La sustitución o el nombramiento de nuevo personal docente deberá ser comunicado a la Secretaría General del Consejo para su revisión. La nómina de docentes deberá ser actualizada, como mínimo una vez al año ante la misma Secretaría, durante el mes de enero de cada año.

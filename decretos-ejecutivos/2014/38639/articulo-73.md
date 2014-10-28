@@ -1,0 +1,1 @@
+Artículo 73.—Las carreras de Educación Superior Parauniversitaria Privadas se regirán supletoriamente por lo establecido para las carreras propias de las instituciones parauniversitarias públicas. La Secretaría del Consejo Superior de Educación asumirá las labores de recepción y tramitación de solicitudes, para su presentación final ante el Consejo Superior de Educación.

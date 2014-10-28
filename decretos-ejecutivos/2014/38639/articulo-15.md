@@ -1,0 +1,1 @@
+Artículo 15.—El Consejo Directivo nombrará al Decano, con base en un concurso externo, por un período de cuatro años, pudiendo ser reelecto. Los nombramientos, cambios o reelecciones deberán ser comunicados en el término de 15 días hábiles después de la elección a la Secretaría General del Consejo Superior de Educación.

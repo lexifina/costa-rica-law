@@ -1,0 +1,3 @@
+Artículo 70.—Perderán su condición de Instituciones Parauniversitarias privadas activas y se considerarán por tanto inactivas aquellas entidades que, posterior a su reconocimiento, incurran en alguna de las siguientes situaciones:
+a) Por un período mayor a un año suspendan, de manera temporal sus actividades o dejen de cumplir con el objetivo principal de la Educación Superior Parauniversitaria, conforme a lo señalado en los artículo 2 y 3 de Ley 6541 del 19 de noviembre de 1980.
+b) Incumplan con la obligación de mantener actualizadas sus carreras según lo establece el artículo 41 de este Reglamento o se incumpla con los compromisos establecidos en el inciso e del artículo 66 del presente Reglamento.
