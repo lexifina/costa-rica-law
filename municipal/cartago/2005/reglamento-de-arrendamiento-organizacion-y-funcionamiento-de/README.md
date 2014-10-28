@@ -17,3 +17,4 @@ Reglamento de Arrendamiento, Organización y Funcionamiento de Locales Fijos y V
 | 2 | 2008-05-20 | Reglamento municipal 0 (2008-05-20) |
 | 3 | 2009-08-11 | Reglamento municipal 0 (2009-08-11) |
 | 4 | 2014-05-06 | Reglamento municipal 301 (2014-05-06) |
+| 5 | 2014-10-28 | Reglamento municipal 0 (2014-10-28) |
