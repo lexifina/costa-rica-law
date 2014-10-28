@@ -14,3 +14,4 @@ Reglamento de la Comisión Técnica de Asuntos Jurídicos del Banco Popular y de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-12 | la propia norma |
+| 2 | 2014-10-28 | Reglamento 5221 (2014-10-28) |

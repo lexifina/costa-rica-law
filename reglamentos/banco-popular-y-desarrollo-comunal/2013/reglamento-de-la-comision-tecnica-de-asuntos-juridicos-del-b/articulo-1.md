@@ -1,4 +1,6 @@
+(Derogado)
 BANCO POPULAR Y DE DESARROLLO COMUNAL
+(Esta norma fue derogada por el artículo 8° del Reglamento de la Comisión de Asuntos Jurídicos del Banco Popular y de Desarrollo Comunal, aprobado mediante sesión N° 5221 del 28 de octubre del 2014)
 REGLAMENTO DE LA COMISIÓN TÉCNICA DE
 ASUNTOS JURÍDICOS DEL BANCO POPULAR
 Y DE DESARROLLO COMUNAL
