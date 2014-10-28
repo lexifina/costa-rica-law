@@ -14,3 +14,4 @@ Reglamento Autónomo de Trabajo del Colegio Universitario de Cartago
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-06 | la propia norma |
+| 2 | 2014-10-28 | Reglamento 3198 (2014-10-28) |
