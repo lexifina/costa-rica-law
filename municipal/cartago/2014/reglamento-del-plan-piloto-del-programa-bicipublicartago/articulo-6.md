@@ -1,0 +1,4 @@
+Artículo 6º—Operadores del servicio. Los operadores del servicio son las personas encargadas de atender al público cuando solicitan el préstamo de una bicicleta o tramitan la devolución. Su deber es atender las consultas, sugerencias, reclamos y quejas de los usuarios.
+Además, deben velar por el adecuado estado de las bicicletas y reportar al Departamento de Servicios Generales de la Municipalidad cuando una bicicleta presente algún daño o deterioro menor, con el objetivo de que se valore, se le comunique al usuario para su cancelación, cuando proceda, y se reparen las unidades.
+La Municipalidad procurará que la Policía Municipal mantenga dentro de sus rondas los puntos de la ciclovía de Cartago más propensos a asaltos o accidentes de tránsito.
+La Municipalidad velará porque la señalización de tránsito en la ruta de la ciclovía esté debidamente instalada. En caso contrario, deberá notificarlo al Ministerio de Obras Públicas y Transportes.
