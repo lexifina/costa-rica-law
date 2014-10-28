@@ -33,3 +33,4 @@ Reglamento a la Ley Forestal
 | 18 | 2010-05-17 | Decreto Ejecutivo 36062 (2010-05-17) |
 | 19 | 2010-11-22 | Decreto Ejecutivo 36353 (2010-11-22) |
 | 20 | 2012-06-25 | Ley 9046 |
+| 21 | 2014-10-28 | Decreto Ejecutivo 38769 (2014-10-28) |
