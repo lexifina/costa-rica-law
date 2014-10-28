@@ -1,0 +1,1 @@
+Artículo 14. Almacenamiento de programas. Salvo programas y equipos de alta sensibilidad en los que el DIT no provea de la seguridad razonable, todo software original, CD y otros medios de almacenamiento deberán ser custodiados por dicho Departamento, quien a su vez debe tener claramente especificado a qué departamento pertenece cada material.

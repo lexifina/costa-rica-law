@@ -1,0 +1,3 @@
+Sección IV
+Implementación, Mantenimiento y Desecho o Reutilización de Tecnologías de Información
+Artículo 29. Adquisición de software y servicios y su implementación: La Institución promoverá la independencia de proveedores de software, instalaciones y servicios, según su capacidad de respuesta ante la demanda de servicios solicitados. El Departamento de Informática deberá adjuntar un estudio de factibilidad, para determinar la justificación ya sea para la compra del software o servicio, o para que el mismo departamento lo implemente, en ambos casos, deberá de presentar a la Dirección Administrativa un análisis de los requerimientos junto con la propuesta y el cronograma del proyecto.

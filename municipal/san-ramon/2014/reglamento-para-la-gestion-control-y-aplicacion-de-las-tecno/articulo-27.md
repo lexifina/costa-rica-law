@@ -1,0 +1,1 @@
+Artículo 27: Uso de equipos de impresión: Por razones, técnicas, funcionales y presupuestarias el uso y la implementación de centros de impresión en el municipio será prioritario en toda solución de impresión.

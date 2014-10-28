@@ -1,0 +1,5 @@
+Artículo 35. Procedimiento para reparación de hardware. Para la reparación de equipo de cómputo, se procederá de la siguiente forma:
+a) El Jefe de cada Departamento solicitará al DIT que valore y emita un dictamen técnico sobre la necesidad de la reparación. Dicha solicitud deberá estar firmada por el usuario del equipo e indicar la falla detectada.
+b) De determinarse la procedencia de la reparación y en el supuesto que el equipo se encuentre en garantía, corresponderá al DIT comunicarse con el proveedor del equipo y velar que éste sea reparado o cambiado según corresponda.
+c) Cuando el equipo no se encuentre en garantía, el Jefe de DIT empezará por realizar la requisición a la dirección administrativa, quien a su vez verificará que exista presupuesto y dará su visto bueno para efectuar la reparación. Una vez obtenido el visto bueno, el DIT se encargará de ejecutar las acciones que correspondan para reparar el equipo.
+d) Una vez realizada la reparación, corresponderá al DIT hacer la revisión respectiva y reubicación posterior del equipo.

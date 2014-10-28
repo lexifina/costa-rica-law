@@ -1,0 +1,1 @@
+Artículo 22. Acceso a la red interna. Los funcionarios que tengan acceso al sistema de red, utilizarán las palabras clave que se le asignen para acceder a los distintos servicios de la misma. En estos casos queda prohibido compartir dicha clave a lo interno y externo de la institución y el funcionario será responsable del uso que se le dé a la misma.

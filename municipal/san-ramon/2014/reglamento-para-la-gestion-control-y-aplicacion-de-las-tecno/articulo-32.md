@@ -1,0 +1,1 @@
+Artículo 32. Licencias de software o servicios. El Departamento de Informática garantizará que todo software o servicio que se instale o acceda en las máquinas propiedad de la Municipalidad, cuenten con la licencia respectiva según las modalidades actuales en el mercado incluyendo las modalidades de licenciamiento bajo software libre.

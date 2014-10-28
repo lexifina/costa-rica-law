@@ -1,0 +1,1 @@
+Artículo 7. Informes. El encargado del DIT será el responsable de presentar los estudios y recomendaciones técnicas por escrito, con sus alternativas. Dichos documentos deberán guardar estrecha relación con lo establecido en el Plan Estratégico de TI.

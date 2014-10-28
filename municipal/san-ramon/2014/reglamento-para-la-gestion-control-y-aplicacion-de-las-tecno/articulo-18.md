@@ -1,0 +1,2 @@
+Artículo 18. De la red eléctrica y mecanismos auxiliares. El DIT velará porque exista una red eléctrica polarizada que cumpla con los requerimientos óptimos para la seguridad del equipo de cómputo, el cual deberá estar debidamente conectado a la misma.
+Asimismo, brindará las recomendaciones que considere pertinentes a la Administración, a fin de que éste implemente medidas que otorguen a la Institución mecanismos auxiliares que garanticen el suministro de energía eléctrica y respaldo de la información en caso de verse interrumpido el flujo eléctrico de la red pública.

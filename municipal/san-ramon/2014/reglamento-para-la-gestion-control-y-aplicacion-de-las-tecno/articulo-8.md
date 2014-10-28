@@ -1,0 +1,1 @@
+Artículo 8. Autorización. Será el Departamento de Informática, una vez que cuente con el aval de la alcaldía municipal, el único autorizado para desarrollar e implementar cualquier tipo de sistema de Información Digital para la Municipalidad.

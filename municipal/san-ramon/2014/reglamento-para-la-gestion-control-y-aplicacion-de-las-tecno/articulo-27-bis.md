@@ -1,0 +1,1 @@
+Artículo 27: Bis: Impresión a color: Debido a su alto costo económico la impresión a color será restringida en el municipio de tal forma que los privilegios para levantar dicha restricción de forma temporal estarán sujetos al visto bueno de la jefatura de departamento respectivo y a la notificación al DIT y a la administración municipal.

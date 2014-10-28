@@ -1,0 +1,2 @@
+Artículo 12. Del egreso del equipo de cómputo de la Municipalidad. Cuando sea requerido trasladar equipo de cómputo fuera de la Municipalidad, deberán presentar al oficial de seguridad: original y copia de la autorización del Jefe de Departamento respectivo, con el visto bueno del DIT.
+Será obligación de los oficiales de seguridad exigir la presentación de la autorización a que este artículo se refiere y guardar copia de la misma. El incumplimiento de estas disposiciones generará responsabilidad disciplinaria en los funcionarios que las incumplan.

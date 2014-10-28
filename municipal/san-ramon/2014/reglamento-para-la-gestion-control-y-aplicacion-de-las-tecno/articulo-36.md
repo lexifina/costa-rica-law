@@ -1,0 +1,2 @@
+Artículo 36. Desecho de hardware. Corresponderá al DIT determinar y emitir los informes de factibilidad correspondientes para desechar y dar de baja el equipo de cómputo; quien en última instancia requerirá de la autorización de la alcaldía para proceder a su desecho final.
+En estos casos, corresponderá al Jefe del Departamento respectivo, dirigir un memorando al Departamento de Contabilidad, reportando la salida del activo.
