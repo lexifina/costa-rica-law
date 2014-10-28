@@ -1,0 +1,1 @@
+Artículo 10.—Horario de lactancia: Cuando las niñas y niños se encuentren en periodo de lactancia, las madres coordinarán con la Coordinadora Técnica del Centro de Cuido, el horario de amamantamiento de los niños y las niñas. La Coordinación Técnica del CECUDI habilitará el espacio físico con los requerimientos pertinentes.
