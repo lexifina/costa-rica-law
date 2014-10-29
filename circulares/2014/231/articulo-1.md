@@ -1,0 +1,46 @@
+CIRCULAR N° 231-2014
+(Esta circular fue reiterada mediante sesión N° 32-2021 del 22 de abril del 2021 publicada en el Boletín Judicial N° 100 del 26 de mayo del 2021 mediante circular N° 99 del 10 de mayo del 2021)
+Asunto: Ampliación toma de denuncia (48 horas), para el caso de Delitos Sexuales y Violación.
+A LOS DESPACHOS JUDICIALES DEL PRIMER CIRCUITO
+JUDICIAL DE SAN JOSE, CIRCUITO JUDICIAL DE CARTAGO
+(TURRIALBA, TARRAZÚ, PARAÍSO, ALVARADO Y LA
+UNIÓN, CIRCUITO JUDICIAL DE LIBERIA (NICOYA,
+CAÑAS, SANTA CRUZ Y UPALA), CIRCUITO JUDICIAL
+DE PUNTARENAS (ESPARZA, MIRAMAR, CÓBANO,
+PAQUERA, AGUIRRE Y PARRITA) QUE TRAMITAN
+DELITOS SEXUALES
+SE LES HACE SABER QUE:
+El Consejo Superior en sesión N° 89-14, celebrada el 9 de octubre de 2014, artículo LXXXI, a solicitud de la Secretaría Técnica de Género, acordó comunicarles que en el marco de ejecución del “Proyecto Piloto de Equipos de Respuesta Rápida para la Atención Integral a Víctimas de Delitos Sexuales y Violación”, en las primeras 72 horas de sucedido el evento se deben tomar en consideración los siguientes aspectos para efectos de la toma de denuncia:
+El o la fiscal como directora de la investigación, de acuerdo con los artículos 16, 17, 62, 63, 67 y del Código Procesal Penal, determinará el momento oportuno para llevar a cabo la entrevista a efectos de determinar los actos de investigación urgentes para asegurar la prueba, determinar la identidad del autor del hecho entre otros, de previo a que se haya brindado los primeros auxilios a la víctima por parte del o la profesional del área psicosocial y la misma se encuentre en condición de declarar, debiendo priorizarse su integridad física y emocional.
+De conformidad con criterios expertos y científicos en torno al procesamiento de la información ante el trauma, una persona requiere dos ciclos de sueño o en su defecto 48 horas para recuperar el proceso de memoria posterior a una experiencia traumática. Por lo tanto, en el caso de víctimas de violación que son atendidas en las primeras horas de sucedido el evento, la toma de la denuncia deberá llevarse a cabo en dos momentos, salvo en excepciones, donde se requiera de dicha información con el fin de fundamentar una solicitud de medida cautelar o diligencia judicial definitiva e irreproductible:
+1. Primer momento:
+En un primer contacto al momento de reportarse la violación, que haya sucedido en un margen no mayor a las 72 horas. Se tomará la denuncia con el fin de obtener la información estrictamente necesaria para dar inicio a la investigación judicial.
+Una vez que se ha explorado la información necesaria, el o la fiscal citará a la persona para que se presente en horario hábil, salvo situaciones donde no sea viable por parte de la víctima.
+A efectos de ampliar la denuncia, se le solicitará a la persona que anote en una bitácora, que se le facilitará por parte de la institución, todos los recuerdos que lleguen a su memoria acerca de lo sucedido. Lo anterior, dependerá de la condición de desarrollo y nivel educativo de la persona, aspectos de los cuales deberá el o la profesional en trabajo social o psicología emitir criterio al o la fiscal.
+El citatorio de la Fiscalía deberá fijarse posterior a las 48 horas como mínimo, después de sucedido el evento y la víctima deberá llevar ese día la bitácora con la información que fue recopilando.
+En casos excepcionales, por ejemplo, cuando la persona deba salir del país, se deberá tomar la denuncia completa en el primer momento.
+2. Segundo momento:
+El día establecido por la Fiscalía para ampliar la denuncia, deberá explorarse en detalle la información que brinda la víctima en relación con los hechos.
+Intervención del o la Profesional del Departamento de Trabajo Social y Psicología (DTSP) o la Oficina de Atención y Protección a la Víctima (OAPVD)
+La fiscalía deberá solicitar la intervención del DTSP y/o el equipo de la OAPVD, en los dos momentos señalados con anterioridad, cuando se trate de víctimas menores de edad y personas adultas respectivamente. Ambas dependencias brindarán el servicio de asistencia y acompañamiento a todas aquellas diligencias judiciales en las que necesariamente deba participar la víctima, tanto en horario hábil y como no hábil mediante la disponibilidad.
+En el caso de DTPS, el servicio fuera de la jornada ordinaria, se brindará en los Circuitos Judiciales, donde se va a implementar la primera etapa del proyecto, a saber: Puntarenas (con atracción de Esparza, Miramar, Cóbano, Paquera, Garabito y Aguirre y Parrita), Liberia (con atracción de Nicoya, Santa Cruz y Cañas), Cartago (con atracción de Turrialba, La Unión, Tres Ríos, Tarrazú), y como contraparte urbana, San José con atracción territorial del Hospital San Juan de Dios y Hospital Nacional de Niños.
+La disponibilidad será atendida por una persona profesional de dicha oficina.
+El rol del o la profesional del Departamento y/o Oficina de Atención a la Víctima, se centra principalmente en brindar acompañamiento a las personas menores y mayores de edad víctimas de delitos sexuales, para favorecer un ambiente seguro y de confianza en aras de disminuir la revictimización, así como darle contención y orientación en situaciones de crisis, con el fin de fortalecer a la víctima durante la intervención solicitada.
+Para lo anterior, se deberán considerar los protocolos de atención a Víctimas de Violencia Doméstica y delitos Sexuales y las directrices de CONAMAJ para reducir la revictimización de las personas menores de edad en procesos penales, aprobadas por Corte Plena en sesión IXX-02, del 6 de mayo de 2002, en cuanto a:
+-Privacidad en las diligencias judiciales.
+-Creación de un ambiente tranquilo y acogedor.
+-Utilización de un lenguaje entendible para la persona menor de edad, de acuerdo con su nivel de comprensión, según sus habilidades, cultura, edad y grado académico; de esta manera, las prevenciones y preguntas que se le realicen deben ser claras, con una estructura simple.
+Se intervendrá en las siguientes situaciones:
+1. Toma de denuncia y/o ampliación de denuncia: En una primera intervención el o la profesional en trabajo social o psicología del DTSP y/o OAPVD, valorará brevemente las condiciones en las que se encuentra la persona menor o mayor de edad para brindar declaración e informará oralmente al respecto. En caso de requerirse dará intervención en crisis.
+Cuando el o la fiscal en el primer momento, establece el citatorio para la toma de denuncia, posterior a las 48 horas, coordinará el acompañamiento por parte un o una profesional del DTSP u OAPVD.
+Durante la toma de la ampliación de la denuncia, si bien es responsabilidad del o la Fiscal a cargo del caso llevarla a cabo, el o la profesional en Trabajo Social o Psicología del DTSP u OAPVD, intervendrá cuando sea necesario, para colaborar durante la entrevista replanteando las preguntas de acuerdo con el nivel de comprensión, destrezas y habilidades de la persona menor o mayor de edad; además de brindarle apoyo a ésta.
+2. Reconocimiento: el o la profesional de las oficinas indicadas, inicialmente valorará las condiciones que reúne la víctima para participar en el reconocimiento. Cuando corresponda realizar esta diligencia deberá informar a la persona referida, en qué consiste el mismo, cuáles son sus derechos, cuál es el objetivo del reconocimiento, así como indicarle cuáles personas van a participar (Fiscal, Defensor e Investigador). En caso de requerirse dará intervención en crisis.
+3. Otras intervenciones:
+Ambas dependencias brindarán el servicio de asistencia y acompañamiento a todas aquellas diligencias judiciales, en las que necesariamente deba participar la víctima a solicitud de la representación fiscal.
+La presencia del o la profesional en cualquier diligencia, deberá quedar consignada en el documento respectivo (acta, denuncia y manifestación, entre otros).
+Procedimiento para solicitar la intervención del DTSP y OAPVD
+A. Si la solicitud se presenta en horario hábil, el fiscal (a) se comunicará con la Oficina Regional del DTSP o la OAPVD respectiva, para coordinar las gestiones pertinentes.
+B. Si la solicitud se realiza en horario no hábil se procederá de la siguiente forma:
+-Cuando el fiscal(a) a cargo conoce de una situación donde una persona ha sido víctima de un delito sexual, deberá de inmediato solicitar la intervención del o la profesional en disponibilidad. La solicitud se llevará a cabo solamente por el fiscal(a) a cargo, quien contactará por los medios disponibles al profesional en el rol.
+-La intervención se efectuará por el personal de la Oficina Regional (DTSP /OAPVD) más cercana que da servicio en disponibilidad y se hará en el lugar donde indique el o la Fiscal; para tal efecto, se dará a conocer previamente a la respectiva Fiscalía el rol de disponibilidad.”
+San José, 29 de octubre de 2014.
