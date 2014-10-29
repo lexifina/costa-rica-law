@@ -21,3 +21,4 @@ Reglamento para las Operaciones Cambiarias de Contado
 | 6 | 2009-02-25 | Reglamento 5415 (2009-02-25) |
 | 7 | 2010-01-13 | Reglamento 5447 (2010-01-13) |
 | 8 | 2012-07-18 | Reglamento 5553 (2012-07-18) |
+| 9 | 2014-10-29 | Reglamento 5667 (2014-10-29) |
