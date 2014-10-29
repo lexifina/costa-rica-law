@@ -1,0 +1,2 @@
+Artículo 10°-Impugnación de acuerdos. Los acuerdos de la Comisión podrán ser impugnados por el representante legal de la organización de base antes de la acreditación del Delegado o Delegada. Posterior a la acreditación podrán ser impugnados, además, por el representante legal de la organización de base o por el delegado respectivo, dentro del plazo de tres días hábiles desde que fuese puesta formalmente en conocimiento del asunto.
+Las impugnaciones serán resueltas de conformidad con lo establecido en la Ley General de Administración Pública.

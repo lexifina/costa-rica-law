@@ -1,0 +1,2 @@
+Artículo 25°-Publicación de asignación de Delegados y Delegadas por organización y Sector.
+La asignación del número de delegados y delegadas por organización de base y por Sector deberá ser publicada por la Comisión en un diario de circulación nacional y en La Gaceta y, además, comunicada a las organizaciones al medio que hayan señalado para atender notificaciones.

@@ -1,0 +1,1 @@
+Artículo 39°-Apoyo al proceso de Integración de la Asamblea de Trabajadores y Trabajadoras. Para los efectos de la adecuada gestión y control de los asuntos propios de la Integración de la Asamblea, el Directorio contará con el apoyo logístico y operativo requerido para todo el proceso por parte del Banco.

@@ -1,0 +1,1 @@
+TRANSITORIO DOS.- Para efectos de la integración de la Asamblea de Trabajadores y Trabajadoras correspondiente al cuatrienio 2014-2018, las funciones establecidas en el presente reglamento como competencia del Directorio Nacional, serán ejercidas por esta única vez, por la Gerencia General Corporativa.

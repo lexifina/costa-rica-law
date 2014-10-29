@@ -1,0 +1,1 @@
+Artículo 42°-Derogatorias. El presente Decreto deroga en todos sus extremos y alcances los Decretos N° 38275-MTSS del 21 de marzo del 2014, publicado en La Gaceta número 62 del 28 de marzo de 2014 y N° 38492-MP publicado en Alcance 25 de La Gaceta número 109 del 9 de junio del 2014.

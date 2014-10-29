@@ -1,0 +1,2 @@
+Artículo 35°-Listas de delegados y delegadas. Una vez concluidas las asambleas de sector del artículo 31 y remitidas las listas por las organizaciones de base de los demás sectores, así como las listas de las respectivas Federaciones del Sector Comunal, la Comisión procederá a levanter las listas definitivas de los delegados y delegadas a acreditar.
+Designados los delegados y delegadas, la Comisión comunicará al Directorio Nacional que ha concluido el proceso de integración de la Asamblea.

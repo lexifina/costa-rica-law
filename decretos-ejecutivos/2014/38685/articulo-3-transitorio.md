@@ -1,0 +1,1 @@
+TRANSITORIO TRES.- Mantendrá plena eficacia y validez en todos sus extremos y alcances lo actuado y resuelto conforme a derecho, a la fecha de entrada en vigencia del presente Reglamento, por la Gerencia General y su equipo técnico en cuanto a las etapas del proceso de integración ya realizadas.

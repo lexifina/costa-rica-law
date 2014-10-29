@@ -1,0 +1,1 @@
+Artículo 17°-Determinación de Delegados y Delegadas por sector. Habiéndose resuelto en definitiva las inconsistencias y disconformidades presentadas, se procederá por medio del Sistema informático a determinar el número de copropietarios y copropietarias del Banco, afiliados o asociados a cada uno de los sectores.

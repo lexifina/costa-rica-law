@@ -1,0 +1,1 @@
+Artículo 8°-Impedimentos. Los integrantes de la Comisión no podrán participar en las discusiones o en la votación de aquellos asuntos donde se presente un interés personal, siendo aplicables en estos casos los supuestos de inhibición o recusación que señala, en lo aplicable, el Código Procesal Civil, la Ley Orgánica del Poder Judicial y Ley General de Administración Pública.

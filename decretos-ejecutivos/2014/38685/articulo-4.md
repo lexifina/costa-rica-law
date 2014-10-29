@@ -1,0 +1,2 @@
+Artículo 4°-Proporcionalidad y representación. La asignación de las personas delegadas en cada Sector deberá efectuarse en proporción al número de ahorrantes obligatorios afiliados o asociados al sector, con excepción del sector comunal quien por ley, tiene cuarenta delegados fijos. Se debe procurar la mayor participación de afiliados por Sector, garantizando en todo momento la proporcionalidad no sólo entre Sectores, sino a lo interno de cada uno de ellos, según
+los resultados del censo.

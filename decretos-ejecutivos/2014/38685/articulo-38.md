@@ -1,0 +1,1 @@
+Artículo 38°-Periodo de Nombramiento de Delegados y Delegadas. Todos los Delegados o Delegadas propietarios o propietarias y suplentes a la Asamblea serán designados por un period de cuatro años, que inicia el primero de agosto del año en el que inicia el cuatrienio y concluye el 31 de julio del año que termina el cuatrienio.

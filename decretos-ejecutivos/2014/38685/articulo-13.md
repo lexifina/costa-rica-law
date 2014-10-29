@@ -1,0 +1,1 @@
+Artículo 13°-Documentación adicional. Adicional a las listas de afiliados y afiliadas, asociados y asociadas, la organización base deberá remitir, por medio físico o electrónico, a las direcciones definidas de previo, la certificación de su personería jurídica vigente y una nota de remisión firmada por su representante legal, donde indicará lugar o medio para notificaciones.
