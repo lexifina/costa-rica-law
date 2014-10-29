@@ -1,0 +1,3 @@
+Artículo 11.—Del nombramiento y cesación del cargo del Contralor de Servicios. El Contralor de Servicios será escogido para el cargo mediante los procedimientos ordinarios del Instituto en materia de personal, pero su designación deberá elevarse previamente a conocimiento y aprobación de la Junta Directiva.
+El cargo de persona contralora de servicios no se podrá desempeñar bajo la modalidad de recargo de funciones y deberá ejercerlo, un funcionario regular de la organización y no será un puesto de confianza.
+La cesación del cargo de Contralor de Servicios, debe realizarlos el jerarca institucional que lo designó, previo cumplimiento del debido proceso, por las causales que contiene el artículo 28 de la Ley Nº 9158.

@@ -1,0 +1,1 @@
+Artículo 19.—Declaración. Cualquier entrevista necesaria para la instrucción de una gestión, tales como la recepción de prueba, debe realizarse con especial consideración a las necesidades e integridad de las personas involucradas, así como la confidencialidad que involucra y a resguardo de su identidad en sede administrativa si así lo requiere el ciudadano.

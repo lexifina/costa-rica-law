@@ -1,0 +1,1 @@
+Artículo 10.—Dependencia. La Contraloría de Servicios será un órgano adscrito al jerarca máximo, canalizador, asesor y mediador en la efectividad y continuidad de los usuarios de los servicios en el Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria (INTA); también apoya, complementa, guía, a los jerarcas o encargados de tomar las decisiones.

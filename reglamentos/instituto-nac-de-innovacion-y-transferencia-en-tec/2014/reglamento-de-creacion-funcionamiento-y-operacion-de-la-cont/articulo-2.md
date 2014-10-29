@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. Su objetivo general es impulsar mecanismos que permitan la participación ciudadana en la fiscalización de la prestación del servicio público y procesos del INTA, para garantizar la satisfacción del usuario y promover el uso racional de los recursos públicos con un máximo de eficacia y eficiencia.

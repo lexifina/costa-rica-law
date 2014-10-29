@@ -1,0 +1,1 @@
+Artículo 21.—Informes y recomendaciones. Los informes y recomendaciones que emita la Contraloría de Servicios deberán ser remitidos a la Junta Directiva, entidad facultada para tomar las acciones que en éstos se evidencien como necesarias para el mejoramiento del servicio.

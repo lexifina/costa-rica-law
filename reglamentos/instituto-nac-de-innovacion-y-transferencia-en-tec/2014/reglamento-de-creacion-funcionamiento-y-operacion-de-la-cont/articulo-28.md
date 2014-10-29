@@ -1,0 +1,1 @@
+Artículo 28.—Deber de confidencialidad y discreción. La Contraloría de Servicios garantizará la mayor discreción en el uso de la información que reciba y guardará confidencialidad respecto de la identidad de los ciudadanos que presenten denuncias antes sus oficinas

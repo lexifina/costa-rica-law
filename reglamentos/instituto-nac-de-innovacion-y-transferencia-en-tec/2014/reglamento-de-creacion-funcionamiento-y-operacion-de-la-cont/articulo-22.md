@@ -1,0 +1,1 @@
+Artículo 22.—Acumulación de denuncias. Si en relación con un mismo tema o problema se presentan denuncias que por su cantidad sobrepasa las posibilidades reales de resolución y atención individualizada, la Contraloría de Servicios acumulará y dará curso al tema en forma colectiva, y de tal circunstancia y su resultado, se informará individualmente a los denunciantes.

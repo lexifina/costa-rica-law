@@ -1,0 +1,1 @@
+Artículo 13º—De la responsabilidad. El Contralor de Servicios tendrá a su cargo tramitar toda inconformidad, reclamo, consulta, denuncia, sugerencia o felicitación respecto de la forma o contenido en la que se brinda un servicio, que se presenten por cualquier persona física o jurídica, que en forma directa o indirecta utilice los servicios del Instituto.

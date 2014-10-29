@@ -1,0 +1,1 @@
+Artículo 23.—Formulario. La gestión se planteará en una boleta que al efecto emitirá la Contraloría de Servicios y que contará con un expediente apropiado. Iniciado el procedimiento se solicitará los informes pertinentes a los funcionarios involucrados en la prestación del servicio, los cuales en plazo no mayor a tres días hábiles deberán contestar.
