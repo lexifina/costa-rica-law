@@ -16,3 +16,4 @@ Reglamento de bonificación de las Becas CONICIT-BID
 | 1 | 1989-12-18 | la propia norma |
 | 2 | 1991-12-04 | Reglamento 1049 (1991-12-04) |
 | 3 | 2014-07-29 | Reglamento 0 (2014-07-29) |
+| 4 | 2014-10-29 | Reglamento 0 (2014-10-29) |
