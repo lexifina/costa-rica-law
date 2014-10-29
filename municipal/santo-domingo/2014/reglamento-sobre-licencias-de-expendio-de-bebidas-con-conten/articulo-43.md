@@ -1,0 +1,1 @@
+Artículo 43.—Cuando converja la situación jurídica dispuesta en el artículo 16 de la Ley número 9047, respecto a la contenida en el artículo 22 de ese mismo cuerpo normativo; privará la aplicación y trámite de lo dispuesto en el artículo 22 de dicha Ley, y del artículo anterior de este reglamento.

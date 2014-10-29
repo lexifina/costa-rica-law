@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones transitorias
+Transitorio I.—Los titulares de patentes de licor adquiridas mediante la Ley número 10 mantienen el derecho de transmitirla a un tercero en los términos del derogado ordinal 17 de dicha ley hasta que expire su plazo bienal de vigencia y deba ser renovada. A partir de ese momento, quien sea titular de dicha licencia no podrá venderla, canjearla, arrendarla, transferirla, traspasarla ni enajenarla en forma alguna”, ya que deberá ajustarse a todas y cada una de las disposiciones contenidas en la nueva Ley de Licores número 9047”. Se establece el plazo bienal a partir de la promulgación de la Ley número 9047, sea el 8 de agosto del año 2012 y hasta el día 31 de diciembre del año 2014.”

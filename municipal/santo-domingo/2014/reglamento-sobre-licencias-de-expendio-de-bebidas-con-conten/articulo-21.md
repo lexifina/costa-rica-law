@@ -1,0 +1,1 @@
+Artículo 21.—Inspección y Control. Del total recaudado en virtud de la Ley 9047 y este Reglamento, por el impuesto a la Ley anualmente se destinará al menos un 15% por ciento para las funciones de inspección y control encomendadas a la Municipalidad, conforme las necesidades financieras prefijadas para cada anualidad, mediante el trámite de los presupuestos municipales.

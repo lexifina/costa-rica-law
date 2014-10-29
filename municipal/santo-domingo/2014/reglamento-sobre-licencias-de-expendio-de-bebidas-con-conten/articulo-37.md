@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las sanciones
+Artículo 37.—Cuando en un establecimiento autorizado para la venta de licores se produzca escándalo o alteración a la tranquilidad y el orden público, o cuando se violaren las disposiciones legales o reglamentarias que regulen su funcionamiento por razones transitorias o temporales, la Alcaldía Municipal por medio de sus dependencias, se encontrarán facultadas para suspender por el término de 24 horas la venta y consumo de bebidas con contenido alcohólico y ordenar el cierre del negocio, aún para el caso de comercios que cuenten con declaratoria turística sin horario de cierre. La reincidencia de este hecho dará lugar a la apertura de un procedimiento administrativo ordinario a efecto de cancelar la licencia.

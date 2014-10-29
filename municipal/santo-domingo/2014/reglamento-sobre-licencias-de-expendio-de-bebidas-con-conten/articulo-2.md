@@ -1,0 +1,1 @@
+Artículo 2º—De la aplicación. El presente reglamento aplica para todas las personas físicas, jurídicas, privadas, públicas, nacionales o extranjeras que comercialicen o expendan bebidas con contenido alcohólico; así como para aquellos que las consuman y comercialicen en vías y sitios públicos, de la Jurisdicción Territorial del cantón de Santo Domingo de Heredia.

@@ -1,0 +1,2 @@
+Artículo 15.—Los establecimientos dedicados al expendio de bebidas alcohólicas deberán permanecer cerrados, cuando la Municipalidad así lo valore y disponga mediante acuerdo del Concejo Municipal.
+Pese a lo indicado, los negocios que expendan bebidas alcohólicas sin que esa sea su actividad principal, podrán permanecer abiertos en las fechas antes indicadas, siempre y cuando cierren la sección dedicada a la venta de bebidas alcohólicas . Para lo cual las autoridades de policía administrativa coadyuvaran en el cumplimiento de lo dispuesto en este artículo.

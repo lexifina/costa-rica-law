@@ -1,0 +1,10 @@
+Artículo 32.—Las licencias podrán denegarse en los siguientes casos:
+a. Cuando la ubicación del establecimiento sea incompatible con el expendio de bebidas alcohólicas, conforme al artículo 9 de la Ley número 9047.
+b. Cuando el solicitante se encuentre atrasado en el pago de sus obligaciones con la Municipalidad, de cualquier índole que estas sean.
+c. Cuando el giro solicitado para la licencia de expendio de bebidas con contenido alcohólico sea incompatible con la actividad comercial ya autorizada para el establecimiento.
+d. Cuando la solicitud esté incompleta o defectuosa y no sea corregida dentro del plazo conferido al efecto.
+e. Cuando lo solicitado sea una licencia temporal y se den los supuestos contenidos en el párrafo tercero del artículo 7 de la Ley número 9047.
+f. Cuando la cantidad total de licencias para el expendio de bebidas con contenido alcohólico de las clases A y B, otorgadas en el distrito donde se pretenda desarrollar la actividad comercial, exceda la proporción de una licencia por cada trescientos habitantes como máximo”. Para el cálculo de la proporción de éstas categorías no se contabilizarán las patentes otorgadas al amparo de la Ley número 10.
+g. Cuando proceda la aplicación de criterios de conveniencia, oportunidad, racionalidad, proporcionalidad, razonabilidad, interés público, interés superior del menor, riesgo social y desarrollo equilibrado del cantón, que motiven tal denegatoria.
+Cuando se dé la renuncia, revocación o cancelación de una licencia de funcionamiento de licores, y las licencias existentes excedan en ese momento el máximo tolerado; la dependencia encargada de otorgar las licencias y patentes de funcionamiento, no podrá emitir nuevas licencias procurando nivelar las existentes al máximo que dé como resultado las formulas señaladas.
+h. Cuando el local o establecimiento comercial, en donde se pretenda explotar la licencia de expendio de licor en cualquier modalidad, se encuentre infringiendo disposiciones legales o reglamentarias en materia de legislación urbana o ambiental.
