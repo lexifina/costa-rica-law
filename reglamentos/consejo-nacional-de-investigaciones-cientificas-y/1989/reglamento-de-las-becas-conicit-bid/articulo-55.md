@@ -4,10 +4,12 @@ En casos especiales, cuando las becas académicas sean parcialmente financiadas 
 b) Que preste sus servicios a tiempo completo, como mínimo un período igual a dos años por cada año de estudios, en empresas del sector privado en las que el capital costarricense sea mayoritario y dedicando parte de su tiempo a la investigación o transferencia de tecnología, que se comprobará con las publicaciones que realice cada año o mediante visita de campo, en cuyo caso se le otorgará una bonificación de hasta el 50% de su préstamo.
 c) Que preste sus servicios a tiempo completo, como mínimo por un periodo igual a dos años por cada año de estudios, en empresas del sector privado en las que el capital costarricense sea minoritario y dedicando parte de su tiempo a la investigación o transferencia de tecnología, que se comprobará con las publicaciones que realice cada año o mediante visitas de campo, en cuyo caso se le otorgará una bonificación hasta el 30% de su préstamo.
 d) Que preste sus servicios a tiempo completo, como mínimo por un período igual a dos años por cada año de estudios, en organizaciones privadas, regionales o nacionales, cuyos fines constitutivos no son de lucro, y dedicando parte de su tiempo a la investigación o transferencia de tecnología, que se comprobará con las publicaciones que realice cada año o mediante visitas de campo, en cuyo caso podrá solicitar una bonificación de hasta el 80%.
-(*) Para efectos de promover e incentivar las publicaciones de exbecarios, el CONICIT reconocerá adicionalmente bonificaciones por este concepto de la siguiente manera:
-— Por cada publicación en revistas indexadas se le adjudicarán 3 puntos.
-— Por cada libro capítulo o artículo publicado en una editorial reconocida a nivel internacional con código ISBN asignado, se le adjudicarán 3 puntos.
-— Por cada libro capítulo o artículo publicado en una editorial reconocida a nivel nacional con código ISBN asignado, se le adjudicarán 2 puntos.
-— Por cada publicación en revistas no indexadas, pero que esta revista tenga comité editorial y cuente con una periodicidad constante de al menos 5 años, se le adjudicará 1 punto.
+(*) (**) Para efectos de promover e incentivar las publicaciones de ex becarios, el Conicit reconocerá adicionalmente bonificaciones por este concepto de la siguiente manera:
+i. Por cada publicación en revistas indexadas se le adjudicarán 3 puntos.
+ii. Por cada libro, capítulo o artículo publicado en una editorial reconocida a nivel internacional con código ISBN asignado, se le adjudicarán 3 puntos.
+iii. Por cada libro o artículo publicado en una editorial reconocida a nivel nacional con código ISBN asignado, se le adjudicarán 2 puntos.
+iv. Por cada publicación en revistas no indexadas, pero que esta revista tenga comité editorial y cuente con una periodicidad constante de al menos 5 años, se le adjudicará 1 punto.
+Cuando el becario acumule 4 puntos, el Consejo Director le reconocerá el equivalente a un informe de bonificación”.
 (*)(Así adicionado el párrafo anterior del inciso d) mediante publicación en La Gaceta N° 130 del 5 de julio de 2004)
+(**)(Así reformado el párrafo anterio del inciso d) anterior y publicado en La Gaceta N° 208 del 29 de octubre de 2014)
 (Así reformado mediante publicación en La Gaceta N° 144 del 29 de julio de 1994)
