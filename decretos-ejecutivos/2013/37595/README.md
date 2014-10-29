@@ -65,3 +65,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 50 | 2014-09-30 | Decreto Ejecutivo 38693 (2014-09-30) |
 | 51 | 2014-10-20 | Decreto Ejecutivo 38690 (2014-10-20) |
 | 52 | 2014-10-20 | Decreto Ejecutivo 38694 (2014-10-20) |
+| 53 | 2014-10-29 | Decreto Ejecutivo 38706 (2014-10-29) |
