@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la asignación del teléfono celular
+Artículo 3°—Funcionarios con autoridad para asignar teléfonos celulares. El Gerente General y el Subgerente General serán los responsables de la asignación de teléfonos celulares, una línea celular y los servicios adicionales a utilizar. Esta asignación deberá estar debidamente motivada y justificada y debe efectuarse en forma excepcional y restrictiva. Dicha justificación deberá ser emitida por los Gerentes de Área o Directores, Jefes de los usuarios de la línea y equipo solicitado.
+La jefatura que solicita un celular para un trabajador, deberá presentar por escrito un análisis de las características de la línea y celular de forma tal que evidencie claramente por qué es necesario y cuáles son los argumentos que justifican las características del servicio.

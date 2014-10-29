@@ -1,0 +1,1 @@
+Artículo 13.—Acceso a llamadas internacionales. El Gerente y Subgerente General, el Auditor y Subauditor Interno y los Gerentes de Área, se encuentran autorizados a utilizar el servicio de roaming cuando se encuentren fuera del país en funciones de sus cargos y de llamadas internacionales por medio del teléfono celular asignado, bajo del principio de razonabilidad y racionalidad.

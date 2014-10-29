@@ -1,0 +1,1 @@
+Artículo 14.—Sanciones. Este reglamento es de acatamiento obligatorio. El incumplimiento de las disposiciones contenidas en el mismo hará acreedor al funcionario o trabajador de las medidas disciplinarias que correspondan, sin perjuicio de otro tipo de responsabilidades que le sean aplicables, civil y/o penal.

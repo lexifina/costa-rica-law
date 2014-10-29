@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se produzca un exceso del monto indicado en el artículo anterior, según corresponda, deberá cancelarse el excedente sobre el monto del plan de manera inmediata (regulado en el contrato de asignación de teléfonos celulares).

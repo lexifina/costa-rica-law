@@ -1,0 +1,1 @@
+Artículo 6°—Responsable de tramitar la línea y el teléfono. Es responsabilidad de la Dirección Administrativa la adquisición de los teléfonos celulares y del trámite de la línea telefónica una vez recibida la autorización de la Gerencia o Subgerencia General de la Empresa.
