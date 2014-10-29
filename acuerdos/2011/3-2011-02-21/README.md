@@ -14,3 +14,4 @@ Política de Uso de los Centros de Recreo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-04 | la propia norma |
+| 2 | 2014-10-29 | Acuerdo 25 (2014-10-29) |
