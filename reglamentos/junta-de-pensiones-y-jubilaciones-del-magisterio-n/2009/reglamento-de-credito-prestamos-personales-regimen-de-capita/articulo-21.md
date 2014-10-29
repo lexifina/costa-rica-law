@@ -1,1 +1,2 @@
-Artículo 21.—Vencimiento anticipado. Las operaciones concedidas, podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito.
+Artículo 21.—Cobro administrativo y judicial. En caso de morosidad, se iniciará el trámite de cobro administrativo y judicial, de conformidad con los términos indicados en el Procedimiento de la Unidad de Cobro.
+(Así reformado mediante sesión ordianria N° 119-2014 del 29 de octubre del 2014)

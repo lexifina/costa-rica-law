@@ -1,4 +1,4 @@
-CAPÍTULO V
-Proceso de otorgamiento de créditos
-Artículo 14.—Del análisis de la solicitud de crédito. El proceso de análisis de la solicitud presentada por el interesado se iniciará cuando éste haya presentado, a satisfacción de la Unidad de Crédito y Cobro, la totalidad de los requisitos previamente definidos en este Reglamento, así como otros adicionales, solicitados en procura de salvaguardar los intereses de la Institución.
-La responsabilidad de determinar la fecha de formalización de los préstamos otorgados, le corresponde a la Unidad de Crédito y Cobro, la cual coordinará los trámites internos y externos que se requieran para los casos que así lo ameriten, tomando en consideración el flujo de efectivo y el número de solicitudes que se estén administrando simultáneamente.
+CAPÍTULO IV
+Garantías
+Artículo 14.—De los Pagarés. En los préstamos personales, se procederá además como parte del proceso de formalización de la suscripción de la póliza de saldos deudores o pignoración de la póliza según corresponda, a la firma de un pagaré, el cual representa el carácter de título ejecutivo. Este documento deberá contener las principales características de la operación crediticia que se está gestionando.
+(Así reformado mediante sesión ordinaria N° 119-2014 del 29 de octubre del 2014)

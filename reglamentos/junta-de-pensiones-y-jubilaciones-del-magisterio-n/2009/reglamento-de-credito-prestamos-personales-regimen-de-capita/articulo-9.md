@@ -7,24 +7,15 @@ Las siguientes son las condiciones de financiamiento para esta línea:
 Monto máximo: ¢6.000.000.
 Plazo máximo: 6 años.
 Tasa de interés: variable.
-Garantía: esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
-Pensionados.
-Hasta | ¢3.5000.000.00 | Sin fiador
-¢3.5000.001.00 | ¢6.000.000.00 | 1 fiador
-Activos: MEP Propiedad.
-Hasta | ¢2.000.000.00 | Sin fiador
-¢2.000.001.00 | ¢6.000.000.00 | 1 fiador
-Activos: MEP Interinos.
-Hasta | ¢1.000.000.00 | Sin fiador
-¢1.000.001.00 | ¢2.000.000.00 | 1 fiador
-¢2.000.001.00 | ¢6.000.000.00 | 2 fiadores
-Activos: Centros educativos privados, Universidades y el INA (con nombramiento en propiedad).
-Hasta | ¢500.000.00 | Sin fiador
-¢500.001.00 | ¢2.000.000.00 | 1 fiador
-¢2.000.001.00 | ¢6.000.000.00 | 2 fiadores
-Activos: Centros educativos privados, Universidades y el INA (con nombramiento interino).
-Hasta | ¢2.000.000.00 | 1 fiador
-¢2.000.001.00 | ¢6.000.000.00 | 2 fiadores
-Las personas pensionadas y jubiladas, podrán elegir entre una póliza de saldos deudores, la pignoración de la Póliza Mutual de la Sociedad de Seguros de Vida del Magisterio Nacional, o la combinación de ambas.
-Las y los afiliados activos, deberán suscribir una póliza de saldos deudores con alguna aseguradora debidamente determinada por la Institución.
-(Así reformado mediante sesión ordinaria N° 072-2014 del 26 de junio del 2014)
+Garantía: Esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
+Pensionados:
+[imagen]
+Activos: MEP, INA y Universidades con nombramiento en Propiedad.
+[imagen]
+Activos: MEP, INA y Universidades con nombramiento Interino.
+[imagen]
+Activos: Centros educativos privados con nombramiento en Propiedad.
+[imagen]
+Activos: Centros educativos privados con nombramiento interino.
+[imagen]
+(Así reformado mediante sesión ordinaria N° 119-2014 del 29 de octubre del 2014)

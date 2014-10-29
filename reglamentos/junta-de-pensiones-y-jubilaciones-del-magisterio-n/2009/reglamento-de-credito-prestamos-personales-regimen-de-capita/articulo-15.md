@@ -1,2 +1,5 @@
-Artículo 15.—De la formalización del crédito. Los créditos, podrán ser formalizados en las Oficinas Centrales de la Junta de Pensiones o en sus Oficinas Regionales.
-(Así reformado mediante sesión ordinarai N° 072-2014 del 26 de junio del 2014)
+CAPÍTULO V
+Proceso de otorgamiento de créditos
+Artículo 15.—Del análisis de la solicitud de crédito. El proceso de análisis de la solicitud presentada por el interesado se iniciará cuando éste haya presentado, a satisfacción de la Unidad de Crédito y Cobro, la totalidad de los requisitos previamente definidos en este Reglamento, así como otros adicionales, solicitados en procura de salvaguardar los intereses de la Institución.
+La responsabilidad de determinar la fecha de formalización de los préstamos otorgados, le corresponde a la Unidad de Crédito y Cobro, la cual coordinará los trámites internos y externos que se requieran para los casos que así lo ameriten, tomando en consideración el flujo de efectivo y el número de solicitudes que se estén administrando simultáneamente.
+(Así reformado mediante sesión ordinaria N° 119-2014 del 29 de octubre del 2014)
