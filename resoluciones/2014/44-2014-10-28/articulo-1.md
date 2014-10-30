@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+ADMINISTRACIÓN TRIBUTARIA
+N° DGT-R-044-2014.—San José, a las ocho horas del veintiocho de octubre de dos mil catorce.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales para la correcta aplicación de las leyes tributarias dentro de los límites que fijan las disposiciones legales y reglamentarias pertinentes.
+II.—Que de acuerdo con el artículo 23 del Código de Normas y Procedimientos Tributarios, son agentes de retención o de percepción, las personas designadas por la ley, que por sus funciones públicas o por razón de su actividad, oficio o profesión, intervengan en actos u operaciones en los cuales deban efectuar la retención o percepción del tributo correspondiente.
+III.—Que el artículo 103 inciso d) del Código de Normas y Procedimientos Tributarios, autoriza a la Administración Tributaria para que establezca retenciones a cuenta de los diferentes tributos que administra y que se deban liquidar mediante declaraciones autoliquidaciones de los sujetos pasivos. Las retenciones no podrán exceder del dos por ciento (2%) de los montos que deban pagar los agentes retenedores.
+IV.—Que mediante resolución DGT-R-036-2014 del dieciocho de agosto de 2014, publicada en La Gaceta Nº 162 del veinticinco de agosto de 2014, se dispuso, para las entidades financieras que procesen los pagos de tarjetas de crédito o débito, la obligatoriedad de efectuar una retención del dos por ciento (2%) del monto que paguen, acrediten o en cualquier otra forma, pongan a disposición de los personas físicas o jurídicas, por las transacciones realizadas.
+V.—Que algunas entidades financieras que procesan pagos de tarjetas de crédito o débito, han manifestado la necesidad de contar con un mayor plazo para realizar ajustes en sus sistemas informáticos. No obstante, se estima conveniente prorrogar, la entrada en vigencia de la resolución DGT-R-036-2014, únicamente por un mes, considerándose un plazo razonable, tomando en cuenta que esas entidades han tenido la oportunidad de tomar las previsiones con suficiente antelación desde que dicha resolución se sometió a consulta pública y posteriormente se emitió formalmente.
+VI.—Que por razones de interés público y urgencia, se prescinde de la consulta establecida en el artículo 174 del Código de Normas y Procedimientos Tributarios. Por tanto,
+RESUELVE:
+Artículo 1º—Se prorroga hasta el 1º de diciembre de 2014, la entrada en vigencia de la resolución DGT-R-036-2014.
