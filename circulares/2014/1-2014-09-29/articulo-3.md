@@ -1,0 +1,1 @@
+3º—Los estados financieros de una asociación cooperativa que elija utilizar el proceso de aplicación del superávit por revaluación a los aportes de sus asociados no podrá incluir una declaración explícita y sin reservas de cumplimiento con las NIIF.

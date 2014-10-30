@@ -1,0 +1,1 @@
+8º—El Colegio de Contadores Públicos de Costa Rica solicitará al INFOCOOP que reglamente los retiros de aportes de asociados que incluyan superávit por revaluación no realizado de forma que se mitigue el riesgo de descapitalización de las asociaciones cooperativas en virtud de lo permitido por el Artículo 80 de la ley que las ampara.

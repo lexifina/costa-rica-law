@@ -1,0 +1,1 @@
+11.—Deróguese la circular N° 001-2008, Guía sobre la capitalización del superávit por revaluación en las asociaciones cooperativas aprobada en Sesión ordinaria N° 009-2008, celebrada el 23 de mayo de 2008, mediante acuerdo Nº 415-2008.
