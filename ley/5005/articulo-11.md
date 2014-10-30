@@ -4,3 +4,7 @@ b) Admitir o no a nuevos asociados que cumplan los requisitos del artículo 2º;
 d) Dirigir las publicaciones que haga el Colegio, delegando su responsabilidad en uno o más de sus miembros y asumiendo ella la responsabilidad intelectual y económica;
 d) Examinar las cuentas de Tesorería, formular los proyectos de presupuesto y rendir informes de labores a la Asamblea General en su sesión ordinaria; y
 e) Conocer las renuncias de sus Directores o de los miembros colegiados y hacerlo del conocimiento de la Asamblea.
+f) Elaborar las modificaciones del Reglamento interno del Colegio y presentarlas a Asamblea General Extraordinaria para su ratificación.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9284 del 30 de octubre de 2014)
+g) Cumplir las demás funciones comprendidas en esta ley y sus reglamentos.
+(Así adicionado el inciso anterior por el artículo 2° de la ley N° 9284 del 30 de octubre de 2014)
