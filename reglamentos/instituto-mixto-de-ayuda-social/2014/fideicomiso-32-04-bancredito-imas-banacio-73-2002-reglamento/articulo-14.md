@@ -1,0 +1,3 @@
+Artículo 14.—De la subrogación de los derechos del crédito al fideicomiso. La subrogación de los derechos del crédito, se hará mediante nota firmada por el representante legal de FIDECOMISARIO GARANTIZADO a favor del Banco Crédito Agrícola de Cartago en calidad de Fiduciario, hasta por un monto igual a la garantía pagada por el Fideicomiso.
+Una vez subrogados los derechos de los créditos pagados, el FIDUCIARIO en coordinación con la Unidad Ejecutora, realizarán las gestiones de cobro administrativo y judicial ante los deudores, apoyándose con abogados externos y contadores públicos autorizados (CPA), contratados con cargo al Fideicomiso.
+En caso de atenderse algún arreglo de pago por parte del deudor, se contabilizará en el FIDEICOMISO como una cuenta por cobrar.
