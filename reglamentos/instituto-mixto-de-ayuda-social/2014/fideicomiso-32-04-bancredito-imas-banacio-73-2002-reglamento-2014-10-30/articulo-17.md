@@ -1,0 +1,1 @@
+Artículo 17.—De las solicitudes de pago de los servicios de apoyo. Todas las solicitudes de pago de los Servicios de Apoyo deben ser tramitadas por la Unidad Ejecutora, la cual presentará la solicitud formal de desembolso al Fiduciario. La solicitud que se le envía al Fiduciario debe indicarse el acuerdo de aprobación del Comité Director según el mecanismo de contratación.

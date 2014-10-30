@@ -1,0 +1,2 @@
+Artículo 15.—Informes periódicos. La persona física o jurídica, y/o entidad pública o privada que sea contratada para llevar a cabo un programa de capacitación o asistencia técnica al sector de la microempresa y al Fideicomiso como tal, deberán presentar el o los informe (es) requerido (os) que se estipulen en el contrato firmado para tal efecto.
+El incumplimiento de esta norma mencionada, faculta al Fideicomiso a aplicar los extremos indicados en cada contrato para esos efectos.

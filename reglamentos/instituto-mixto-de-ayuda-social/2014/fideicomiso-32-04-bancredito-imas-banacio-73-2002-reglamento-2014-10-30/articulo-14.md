@@ -1,0 +1,1 @@
+Artículo 14.—Incumplimiento de contrato. En caso de que el Contrato fuera incumplido, el prestatario deberá pagar o reembolsar al Fideicomiso, en un plazo máximo de tres meses, el monto total de los recursos girados y los intereses legales correspondientes, según el plan de desembolsos pactado con el prestatario del servicio.
