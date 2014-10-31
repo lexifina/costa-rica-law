@@ -1,0 +1,9 @@
+Artículo 19.—Funciones del COVFOM: Son funciones del Comité de Vigilancia del Fondo de Mutualidad y Subsidios.
+a) Velar por el respeto y fiel cumplimiento de las normas jurídicas que rigen esta materia, en especial de las disposiciones de este Reglamento.
+b) Vigilar por el uso adecuado de las finanzas del Fondo, aportando trimestralmente informes sobre los estados financieros y balances, así como las conciliaciones bancarias pertinentes, a la Junta Directiva del Colegio del Colegio de Enfermeras de Costa Rica.
+c) El COVFOM elaborará su proyecto de presupuesto ordinario en conjunto con él o la tesorero(a) de la Junta Directiva del Colegio de Enfermeras de Costa Rica, para el ejercicio anual el cual será sometido a conocimiento y aprobación de la Junta Directiva, quien lo incorporara al proyecto de presupuesto general del Colegio de Enfermeras de Costa Rica, será sometido a aprobación en Asamblea Ordinaria.
+d) COVFOM elaborará los presupuestos Extraordinarios, modificaciones presupuestarias o ajustes que serán sometidas a aprobación por la Junta Directiva del Colegio de Enfermeras de Costa Rica.
+e) Atender las solicitudes de los afiliados, afiliadas y familiares de los mismos, en reclamo de las ayudas económicas estipuladas en este Reglamento, así como darles el debido y oportuno trámite y respuesta a las mismas.
+f) Verificar el cumplimiento de requisitos y viabilidad de las solicitudes de beneficios del fondo de mutualidad y trasladar a Junta Directiva del Colegio de Enfermeras de Costa Rica para su análisis y respectiva aprobación.
+g) Recomendar a la Junta Directiva del Colegio de Enfermeras de Costa Rica las estrategias y acuerdos, que faciliten el trámite administrativo de las solicitudes de beneficios del fondo, así como los estudios sobre los mejores rendimientos y la protección económica de los afiliados (as), familiares y beneficiarios del Fondo.
+h) Las demás que le asigne la Junta Directiva del Colegio de Enfermeras de Costa Rica.

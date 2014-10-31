@@ -1,0 +1,3 @@
+Artículo 22.—Cese de funciones: Cesará en sus funciones aquel miembro del comité:
+a) Ausencia injustificadamente a tres sesiones consecutivas o en su defecto a cinco ausencias de manera justificada en un período de seis meses, salvo en casos de fuerza mayor o caso fortuito o enfermedad incapacitante médicamente certificada. Estas ausencias deberán ser de conocimiento ante de la Junta Directiva del Colegio de Enfermeras de Costa Rica, para que se formule la solicitud de destitución y nombramiento del nuevo miembro.
+b) Otra causa de destitución de un miembro será en el caso probado de que dicho miembro obstruya la función de este comité según reglamento.

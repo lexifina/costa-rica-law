@@ -1,0 +1,4 @@
+CAPÍTULO VII
+Del Comité de Vigilancia del Fondo
+de Mutualidad y Subsidios
+Artículo 15.—Del Comité de Vigilancia del Fondo de Mutualidad y Subsidios (COVFOM): El Comité de Vigilancia del Fondo de Mutualidad y Subsidios, es un órgano adscrito y bajo la vigilancia de la Junta Directiva del Colegio de Enfermeras de Costa Rica. Estará sujeto a todos los acuerdos tomados por la Asamblea General Extraordinaria del Colegio de Enfermeras de Costa Rica y se instituye para la vigilancia del Régimen, conforme a las funciones y obligaciones que se establecen en este Reglamento.
