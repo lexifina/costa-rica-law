@@ -1,0 +1,1 @@
+Artículo 20—Resolución de solicitudes. Verificado el cumplimiento de los requisitos formales y de las condiciones técnicas establecidas en este reglamento, el acueducto Municipal, decidirá mediante resolución si otorga el servicio o si autoriza el cambio de toma, la cual deberá ser comunicada al interesado en los próximos 10 días hábiles de recibida la solicitud.

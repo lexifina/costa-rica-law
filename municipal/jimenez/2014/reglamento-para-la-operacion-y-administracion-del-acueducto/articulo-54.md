@@ -1,0 +1,1 @@
+Artículo 54.—La Municipalidad como ente operador del acueducto tiene bajo su responsabilidad el servicio público de la red de los hidrantes, su instalación, desarrollo, operación y mantenimiento, según la Ley de Declaración del Servicio de Hidrantes como Servicio Público y Reforma de Leyes Conexas N° 8641.

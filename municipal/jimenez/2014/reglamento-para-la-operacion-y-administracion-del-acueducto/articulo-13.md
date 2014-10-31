@@ -1,0 +1,4 @@
+Artículo 13.—Otorgamiento inmediato. El administrador del acueducto procederá a sellar inmediatamente los planos catastrados o constructivos según sea el caso, sin necesidad de realizar una inspección previa, cuando medie cualquiera de las siguientes circunstancias:
+a) Exista seguridad, previa revisión documental, de que existe disponibilidad de agua potable en la zona donde se ubica el inmueble.
+b) La solicitud de disponibilidad sea para un inmueble que forme parte de una urbanización que haya sido recibida por la Municipalidad y cuyo acueducto sea administrado por esta.
+c) Cuando la solicitud de disponibilidad sea en planos constructivos, y junto con ellos, el interesado aporte el plano catastrado original de la respectiva finca en donde conste el sello de disponibilidad del acueducto Municipal.

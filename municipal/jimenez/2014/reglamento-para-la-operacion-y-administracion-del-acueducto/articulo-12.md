@@ -1,0 +1,1 @@
+Artículo 12.—Disponibilidad para servicios múltiples. Cuando se solicite la disponibilidad de agua potable para una propiedad que requiera más de 25 servicios, la solicitud deberá ser elevada a conocimiento y aprobación del Alcalde Municipal por parte del administrador del acueducto.

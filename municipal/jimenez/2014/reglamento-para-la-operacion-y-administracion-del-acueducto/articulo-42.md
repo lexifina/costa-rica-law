@@ -1,0 +1,4 @@
+Artículo 42.—Estudio de consumos y fugas. Cualquier tipo de reclamo relacionado con el monto cobrado por el servicio de agua potable deberá hacerse ante el Acueducto durante los treinta días siguientes a la puesta al cobro del recibo. Para tal efecto, el interesado debe presentar los siguientes requisitos:
+a) Solicitud debidamente llena y firmada por el abonado del servicio.
+b) Fotocopia de la cédula de identidad del abonado.
+Cuando el abonado sea una persona jurídica, deberá aportarse una certificación de personería vigente y una fotocopia de la cédula de identidad de su representante legal. La resolución dictada en referencia al reclamo presentado tendrá los recursos establecidos en el artículo 162 del Código Municipal y deberán ser presentados durante los siguientes diez días hábiles una vez recibida la notificación de la resolución, una vez finalizado dicho plazo cualquier reclamo será desestimado por extemporáneo.

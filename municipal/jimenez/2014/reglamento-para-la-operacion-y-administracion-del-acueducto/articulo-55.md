@@ -1,0 +1,1 @@
+Artículo 55.—La Municipalidad velará por el cumplimiento prioritario de la Ley General de Salud N° 5395 y el Reglamento de Calidad de Agua Potable Decreto N° 32327-S para garantizar a la población una agua de calidad apta para el consumo humano.

@@ -1,0 +1,1 @@
+Artículo 25.—Fuente pública. Salvo lo establecido en los incisos a) y b) del artículo anterior, la Municipalidad deberá dejar prevista en el mismo momento de la suspensión y si esta no existiera, una fuente pública de agua lo más cercana posible a la propiedad afectada, para que de ésta puedan abastecerse durante el tiempo que dure suspendido el servicio de agua potable.

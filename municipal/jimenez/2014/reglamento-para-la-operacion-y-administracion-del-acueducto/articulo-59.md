@@ -1,0 +1,1 @@
+Artículo 59.—Derogatoria. El presente Reglamento deroga cualquiera otra disposición interna o de igual rango que se le oponga incluido el Reglamento del Acueducto aprobado por el Concejo Municipal de Jiménez, en Sesión Extraordinaria Nº 31 del lunes 28 de febrero del 2000.

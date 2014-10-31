@@ -1,0 +1,3 @@
+CAPÍTULO X
+Disposiciones finales
+Artículo 56.—Del derecho municipal de inspecciones. El Acueducto Municipal se reserva el derecho de revisar las instalaciones domiciliares que considere pertinentes o necesarias con el fin de ayudar al usuario indicándole posibles desperfectos y recomendando las reparaciones necesarias. El acto de aceptar el abonado los servicios de la Municipalidad implica el compromiso de permitir tales inspecciones sin embargo el empleado debe estar debidamente identificado. En caso de que el usuario no permita el ingreso del funcionario municipal se utilizará para ello los medios legales pertinentes.
