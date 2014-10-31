@@ -1,0 +1,9 @@
+OPERADORA DE PLANES DE PENSIONES COMPLEMENTARIAS DEL BANCO POPULAR Y DE DESARROLLO COMUNAL S. A.
+Se da a conocer que la Junta Directiva de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal Sociedad Anónima en Sesión Ordinaria Nº Nº 442, celebrada el jueves 28 de agosto del 2014, acordó aprobar por unanimidad de los presentes, las modificaciones al Reglamento del Comité de Riesgos de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, en los siguientes términos:
+Aprobar las modificaciones al Reglamento del Comité de Riesgos de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, en los siguientes términos:
+*Artículo 6°—De la conformación del Comité. El Comité de Riesgos de la Operadora estará integrado por los siguientes miembros los cuales tendrán derecho a voz y voto:
+a) El Gerente de la Operadora, quien lo presidirá y, en caso de empate, ejercerá el doble voto, de acuerdo con la Ley General de la Administración Pública.
+b) El Encargado de la Unidad de Riesgos de Popular Pensiones OPC quien funge como enlace técnico entre la OPC y la DIRRC, será su Secretario y podrá nombrar como suplente en este cargo de secretario, a uno de los participantes mencionados en el inciso c) o d) de este artículo.
+c) El Director de Riesgo Corporativo del Banco Popular y de Desarrollo Comunal, quien podrá delegar en el Jefe de la División de Riesgo Financiero del Banco Popular y de Desarrollo Comunal.
+d) Uno de los Gestores de Riesgo del Banco Popular y de Desarrollo Comunal quien será designado por el Director de Riesgo Corporativo del Banco Popular.
+e) El miembro independiente que se especifica en el inciso b) del artículo 9° del Reglamento de Inversiones de las Entidades Reguladas.
