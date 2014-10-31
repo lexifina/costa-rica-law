@@ -14,3 +14,4 @@ Reforma Requisitos para otorgar licencias, permisos y carné de pesca, sustituci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-28 | la propia norma |
+| 2 | 2014-10-31 | Acuerdo 395 (2014-10-31) |

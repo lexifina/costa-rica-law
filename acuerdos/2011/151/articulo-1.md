@@ -15,9 +15,7 @@ Considerando:
 11.—Que considera la Junta Directiva, la necesidad jurídica de homogenizar y armonizar las diversas normas emanadas por el INCOPESCA a efecto que se establezcan las mismas condiciones reglamentarias para aquellas personas que cumpliendo las disposiciones de la Ley N° 7983, se encuentren bajo la cobertura de algún régimen de la seguridad social o por disposición expresa exentas de tal obligación. Por tanto,
 La Junta Directiva,
 ACUERDA:
-1º—Agréguese un artículo 2.Bis al Acuerdo AJDIP/238-2002, “Requisitos para otorgar licencias, permisos y carne de pesca, sustitución, inactividad y traspaso de embarcaciones, exportación e importación de productos pesqueros e insumos para la pesca y la acuicultura y descarga de productos pesqueros”, que se leerá de la siguiente manera:
-Artículo 2.Bis. Del plazo para la renovación de la licencia de pesca comercial.
-Los permisionarios de licencia de pesca comercial contarán con un plazo de dos meses calendario a partir del vencimiento de la licencia de pesca, para realizar las gestiones o solicitudes de trámites de prórrogas de renovación de la licencia de pesca comercial en forma legal ante las Oficinas y autoridades del INCOPESCA.
+1º—(Dejado sin efecto por acuerdo AJDIP/395 del 31 de octubre de 2014)
 2º—Incorporar la aplicación de la norma contenida en los Acuerdos AJDIP/015-2010 y AJDIP/085-2010, respecto a la inscripción de los regímenes de la seguridad social (independiente, voluntario, colectivo, obrero patronal, por el Estado o pensionados); con lo cual se tienen como plenamente facultados para realizar trámites de licencias y renovación de licencias aquellos permisionarios que se encuentren inscritos ante la Caja Costarricense de Seguro Social dentro de cualquiera de los regímenes de la seguridad social; independiente, voluntario, colectivo, obrero patronal, por el Estado o pensionados; éstos dos últimos únicamente para la flota pesquera artesanal en pequeña escala.
 3º—Se comisiona a la Presidencia Ejecutiva con base al Acuerdo establecido, para que realice las consultas necesarias a la Dirección Jurídica de la Caja Costarricense de Seguro Social.
 4º—Publíquese.
