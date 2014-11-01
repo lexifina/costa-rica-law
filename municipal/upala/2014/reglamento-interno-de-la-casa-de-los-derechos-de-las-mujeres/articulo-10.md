@@ -1,0 +1,1 @@
+Artículo 10°—Gastos de alimentación y vestuario: el vestuario (como la ropa de cama, paños entre otros) y de alimentación de las usuarias son financiados por las donaciones que recibe la Fundación Cenderos de la Fiscalía, sin perjuicio de que se consiga otro modo de financiación o donaciones por otra institución.

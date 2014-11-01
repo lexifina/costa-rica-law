@@ -1,0 +1,6 @@
+Artículo 13°— Tramitación del ingreso: La Coordinadora de la Casa deberá realizar las siguientes acciones a la hora de ingresar a una mujer:
+1) Rellenar una boleta de ingreso con la información personal (nombre completa, número telefónico, dirección exacta, nivel académico, número de hijos/as, situación laboral o ocupación, nacionalidad y en caso de ser extranjero/a condición migratoria, así como la información de su familia), lo anterior con el fin de valorar los recursos con que la mujer cuenta y necesidades a suplir por las instituciones.
+2) Informar a la mujer sobre las Reglas de la Casa, quién firmará un documento de compromiso de cumplimiento con las mismas.
+3) Coordinar con las instituciones correspondientes a fin de brindar un servicio integral de acuerdo a las necesidades particulares de las usuarias.
+4) Solicitar a la autoridad judicial la emisión de directriz para que los oficiales de Fuerza Pública realicen un recorrido por la Casa o custodien en los casos en los que se requiera.
+5) Notificar a la Fuerza Pública la presencia en el albergue o espacio perimetral de persona agresora con medidas cautelares o sin ellas. En caso de que el agresor intente ingresar forzadamente, notificar de inmediato y elaborar un escrito dirigido al/la Fiscal para que proceda de conformidad.

@@ -1,0 +1,6 @@
+Artículo 16º—Mecanismos de coordinación Casa-instituciones: Se establecen los siguientes mecanismos para coordinar la atención a las mujeres a través de la Casa:
+a) Todas las instituciones parte del Modelo deberán establecer una línea de teléfono directa con la Casa para poder ofrecer una respuesta rápida y articulada a la mujer usuaria.
+b) Las instituciones podrán tener un turno de atención semanal o mensual en la Casa.
+c) Los funcionarios y funcionarias de las instituciones, en especial las que no tengan un turno en la Casa, se esforzarán por citar, individual o conjuntamente con otros/as, a la mujer en la Casa, para ofrecerle las condiciones necesarias de privacidad y confidencialidad, así como evitar su re victimización.
+d) Igualmente procurarán, en la medida de lo posible, acudir a la Casa, individual o conjuntamente con otros/as, para atender a una mujer a solicitud de la Coordinadora, en especial cuando el caso requiera una atención inmediata.
+e) La persona Coordinadora de la Casa y los funcionarios y funcionarias de las instituciones podrán organizar citas agrupadas en la Casa con las mujeres, en una fecha y horario determinado, cuando se presentan varios casos que no requieren una atención inmediata.
