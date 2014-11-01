@@ -1,0 +1,1 @@
+Artículo 2°—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución N° DGT-R-28-2014 del 3 de julio del 2014, publicada en La Gaceta N° 137 del 17 de julio del 2014.
