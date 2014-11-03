@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE ACOSTA
+La Municipalidad de Acosta informa que en sesión ordinaria 39-2014 del 14 de octubre del 2014 del Concejo Municipal de Acosta, emitió el siguiente acuerdo por unanimidad. Este Consejo Municipal acuerda dispensar de trámite de comisión la moción presentado por el Alcalde Luis Durán Gamboa y acuerda modificar el plazo de arreglos de pago hasta por doce meses en los casos analizados que así lo requieran. Según el Reglamento de Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Acosta.
