@@ -1,4 +1,4 @@
-Artículo 5º.-Mercancías exentas.- De acuerdo con el artículo 4º anterior y el 9º de la ley, están exentas del pago del impuesto, las ventas de las mercancías siguientes:
+Artículo 5º.-Mercancías exentas.- De acuerdo con el artículo 4º anterior y el 9º de la Ley, están exentas del pago del impuesto, las ventas de las mercancías siguientes:
 1) Canasta básica alimentaria y de bienes esenciales para la educación(*):
 (*)(Nota de Sinalevi: Mediante resolución RES-DGA-363 del 17 de noviembre del 2010, se estableció que: “…1. En aplicación del artículo 5 del Decreto Ejecutivo Nº 14082-H,” en los incisos 1) “Canasta básica alimentaria y de bienes esenciales para la educación, se elimina el 13% del Impuesto General sobre las Ventas en el Arancel automatizado, al inciso arancelario 1902.30.00.00, por tratarse de pastas alimenticias sin rellenar…”)
 (*) 1) Canasta básica tributaria y de bienes esenciales para la educación:
@@ -57,13 +57,14 @@ Tampoco se incluyen los siguientes pescados:
 • Róbalo entero o en filet
 • Bacalao entero o en filet.
 Crustáceos y moluscos
-Los siguiente crustáceos y moluscos deben ser frescos, refrigerados o congelados xcepto los enlatados o envasados
-31-Almejas
-32.Calamares blanco y torpedo
-33.Choras
-34. Cangrejos incluyendo las jaibas
-35. Camarón de los tipos Fidel, Pink, camello, camellito y tití.
-36. Pianguas
+Los siguientes crustáceos y moluscos deben ser frescos, refrigerados o congelados excepto los enlatados o envasados.
+31. Almejas.
+32. Calamares blanco y torpedo.
+33. Choras.
+34. Cangrejos incluyendo las jaibas.
+35. Camarón de los tipos fidel, pink, camello, camellito, tití y camarón de cultivo.
+36. Pianguas.
+(Así reformado el aparte anterior correspondiente a crustáceos y moluscos por el artículo 1° del decreto ejecutivo N° 38747 del 3 de noviembre de 2014)
 Frutas
 Las siguientes frutas frescas no envasadas o enlatadas, ni deshidratadas
 37. Aguacate

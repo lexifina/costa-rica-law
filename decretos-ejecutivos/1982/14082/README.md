@@ -67,3 +67,4 @@ Reglamento de la Ley de Impuesto General sobre las Ventas
 | 52 | 2012-04-18 | Decreto Ejecutivo 37073 (2012-04-18) |
 | 53 | 2012-05-17 | Decreto Ejecutivo 37132 (2012-05-17) |
 | 54 | 2014-05-21 | Decreto Ejecutivo 38579 (2014-05-21) |
+| 55 | 2014-11-03 | Decreto Ejecutivo 38747 (2014-11-03) |
