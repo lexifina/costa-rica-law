@@ -1,0 +1,1 @@
+Artículo 3°—La modificación indicada en el artículo anterior es por un monto de treinta y tres mil cincuenta y nueve millones setecientos noventa y tres mil seiscientos ochenta y seis colones sin céntimos (¢33.059.793.686,00).
