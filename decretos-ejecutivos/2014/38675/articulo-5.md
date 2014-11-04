@@ -1,0 +1,3 @@
+Artículo 5º—Refórmese el artículo 42 del Reglamento de Uniformes y Distintivos de los Cuerpos Policiales adscritos al Ministerio de Seguridad Pública, Decreto Ejecutivo N° 37188-SP, del 8 de mayo del 2012, para que en adelante se lea de la siguiente manera:
+“Artículo 42.—Otros accesorios. En caso que el personal deba portar elementos como bolsos, mochilas, mangas protectoras de luz solar u otros, deberán ser color azul oscuro según el uniforme con que se vayan a emplear, sin leyendas ni inscripciones o motivos que perjudiquen la imagen que refleja su uso. Queda prohibido el uso de accesorios rotulados con nombres de comercios o con inscripciones comerciales.
+En el caso de la Policía Turística los cubre brazos o mangas protectoras de luz solar, serán de color blanco”.
