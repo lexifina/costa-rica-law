@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio de Economía Industria y Comerci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-15 | la propia norma |
+| 2 | 2014-11-04 | Decreto Ejecutivo 38861 (2014-11-04) |
