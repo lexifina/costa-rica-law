@@ -1,2 +1,0 @@
-Artículo 10.—Disposiciones Derogatorias: Este Reglamento fue aprobado por la Junta Directiva General en sesión N° 8495/11, artículo 14°, realizada el 14 de noviembre del 2011 y deroga Reglamento Plan Puntos para la Tarjeta de Crédito Visa Platinum y Oro, aprobado en sesión N° 8345/10, artículo 18°, celebrada el 8 de junio del 2010. Rige a partir de su publicación en el Diario Oficial La Gaceta.
-12 de diciembre del 2011.—

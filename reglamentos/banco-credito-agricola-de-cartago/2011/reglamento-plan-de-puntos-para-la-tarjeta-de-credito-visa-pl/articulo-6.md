@@ -1,6 +1,0 @@
-Artículo 6º—Prohibiciones y excepciones: En el Plan de puntos para la tarjeta de Crédito Visa Platinum y Oro, aplicará las siguientes prohibiciones o excepciones:
-A. Los puntos asignados no tendrán valor comercial, excepto para ser redimidos a través de este plan de puntos ante el Banco y/o en el Bancrédito Store. La garantía de los productos que se adquieran a través de Bancrédito Store, será respaldada por la empresa proveedora de los productos.
-B. El Banco excluirá del plan de puntos, la acumulación de éstos sobre transacciones determinadas fraudulentas y de acuerdo con lo establecido por la reglamentación de Visa Internacional.
-C. Para que el Tarjetahabiente pueda redimir los puntos acumulados, deberá estar al día con todas sus obligaciones ante el Banco.
-D. El Tarjetahabiente perderá los puntos acumulados, al dar por terminada la relación Cliente-Banco mediante la cancelación de su tarjeta de crédito, o bien por encontrarse en cobro judicial en cualquier obligación con el Banco.
-E. El Banco se reserva el derecho de cancelar la suscripción al plan de puntos, en caso de que el Tarjetahabiente incumpla alguna de las cláusulas indicadas en este Reglamento y en el contrato de la tarjeta de crédito.

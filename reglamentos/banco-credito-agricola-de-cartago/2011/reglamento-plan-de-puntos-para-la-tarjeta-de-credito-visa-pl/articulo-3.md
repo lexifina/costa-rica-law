@@ -1,1 +1,0 @@
-Artículo 3º—Responsables: Será responsabilidad del Centro de Tarjetas cumplir con este Reglamento, con el fin de mejorar la operativa y controlar los puntos que se girarán a los Tarjetahabientes de la Tarjeta de Crédito VISA Platinum y Oro.

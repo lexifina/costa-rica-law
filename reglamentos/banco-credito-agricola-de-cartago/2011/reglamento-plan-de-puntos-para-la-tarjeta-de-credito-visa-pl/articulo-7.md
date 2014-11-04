@@ -1,1 +1,0 @@
-Artículo 7º—Entes internos del proceso: La redención de puntos mediante un crédito a su tarjeta por parte del Tarjetahabiente, será un servicio prestado por las plataformas de servicio, en todas las Oficinas Comerciales del Banco. En los casos de utilizar el Bancrédito Store, la redención de puntos será por medio de la página Web.
