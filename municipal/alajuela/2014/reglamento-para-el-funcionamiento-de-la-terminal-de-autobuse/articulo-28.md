@@ -1,0 +1,1 @@
+Artículo 28.—Procedimiento de cobro. El cobro de la tarifa se realizará en forma mensual. Se le hará llegar un recibo de cobro, en los casos de no cancelar en tiempo se le enviara un aviso de cobro, de mantenerse la morosidad por dos meses se le notifica el cobro administrativo de no cancelar se procede al cobro judicial y apertura del expediente disciplinario.

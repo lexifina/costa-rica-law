@@ -1,0 +1,1 @@
+Artículo 38.—Derechos del adjudicatario de un local comercial. El adjudicatario tiene derecho a desarrollar la actividad definida para el local en cuestión y disponer de las utilidades que genere dicha actividad durante todo el plazo que se le ha concedido para hacer uso del local.

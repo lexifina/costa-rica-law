@@ -1,0 +1,1 @@
+Artículo 12.—Dependientes. Las empresas concesionarias del servicio público de transporte remunerado de personas podrán utilizar en sus operaciones dentro de la terminal, el número de trabajadores que estimen necesarios para la buena marcha del servicio que prestan, a condición de que cada uno de ellos cuente con su respectiva identificación.

@@ -1,0 +1,1 @@
+Artículo 6°—Contrato. Los concesionarios de aquellas rutas que tengan como destino la estación de autobuses distrital de Alajuela, deberán suscribir un contrato con la Municipalidad, en el cual se consignarán las obligaciones que asume de acuerdo con el presente reglamento. Al igual que los concesionarios de locales comerciales y otros servicios que se establezcan en la Estación.

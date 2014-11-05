@@ -1,0 +1,1 @@
+Artículo 31.—Mora. La mora por parte del concesionario en el pago de la tarifa de uso de la terminal, autorizará a la Municipalidad a suspenderle el uso de los andenes asignados y al cobro de intereses, según las disposiciones del Código Municipal.

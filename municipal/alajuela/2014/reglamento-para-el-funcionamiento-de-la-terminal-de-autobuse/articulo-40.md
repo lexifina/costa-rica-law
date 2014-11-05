@@ -1,0 +1,1 @@
+Artículo 40.—De las normas básicas de seguridad. La Municipalidad deberá velar porque existan las condiciones básicas de seguridad ya sea proporcionando ésta de forma directa o contratando seguridad privada, lo cual se regirá por la Ley de Contratación Administrativa y su reglamento.

@@ -1,0 +1,1 @@
+Artículo 33.—Adjudicación de los locales comerciales. Para tal efecto se utilizará la figura del remate, como aquel procedimiento ordinario de carácter concursal, al que puede recurrir la Administración para dar en uso bienes inmuebles, por resultar así más conveniente a sus intereses, contra el pago de un precio o arrendamiento.

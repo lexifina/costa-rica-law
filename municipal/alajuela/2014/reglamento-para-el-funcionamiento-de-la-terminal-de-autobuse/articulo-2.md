@@ -1,0 +1,1 @@
+Artículo 2°—Ubicación: La terminal de Autobuses de Alajuela está ubicada en inmueble propiedad de la Municipalidad de Alajuela; está inscrito en el Registro Público Nacional, bajo los números de folio real 226007-000 y 226008-000, las cuales se encuentran descritas en el plano catastrado A-0000783-1987.

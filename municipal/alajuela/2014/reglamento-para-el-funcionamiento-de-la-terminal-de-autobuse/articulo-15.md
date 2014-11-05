@@ -1,0 +1,1 @@
+Artículo 15.—El ingreso y salida de autobuses, se efectuara por los sitios autorizados y siguiendo las normas de la administración, de acuerdo a lo dispuesto por este reglamento y las normas de las autoridades competentes. (MOPT).

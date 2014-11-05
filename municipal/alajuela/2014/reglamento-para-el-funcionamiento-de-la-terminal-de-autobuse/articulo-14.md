@@ -1,0 +1,1 @@
+Artículo 14.—Tiempo de permanencia de los autobuses en el andén. Los autobuses podrán permanecer en el andén, únicamente el tiempo que sea necesario para el abordaje y des abordaje de pasajeros. No podrá ubicarse simultáneamente más de un autobús por andén.

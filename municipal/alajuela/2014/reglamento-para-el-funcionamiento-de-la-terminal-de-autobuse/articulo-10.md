@@ -1,0 +1,1 @@
+Artículo 10.—Identificación de los andenes. Cada uno de los andenes estará identificado con un rótulo en que se indique el número y nombre de la ruta y los itinerarios autorizados para la salida de autobuses.

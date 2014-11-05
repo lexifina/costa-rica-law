@@ -1,0 +1,1 @@
+Artículo 5°—Operador: Persona física o jurídica debidamente autorizada .por la autoridad competente para la explotación de una ruta de servicio público de transporte remunerado de personas, modalidad autobús.
