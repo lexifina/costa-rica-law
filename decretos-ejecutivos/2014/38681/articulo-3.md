@@ -1,0 +1,1 @@
+Artículo 3º—Se excluye del presente Decreto el área comprendida por el Parque Nacional Isla del Coco y el Área Marina de Manejo Montes Submarinos, así como cualquier otra área marina protegida establecida legalmente que se regirán por la legislación correspondiente. Así como las Áreas Marinas de Pesca Responsable, que se rigen por sus regulaciones particulares.

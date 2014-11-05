@@ -1,0 +1,1 @@
+Artículo 9º—A partir de la entrada en vigencia del presente Decreto, el Incopesca por medio de la Dirección General Técnica, implementará un programa de seguimiento de las medidas de ordenación establecidas en este Decreto. Cada dos años se realizará un proceso de evaluación participativo de los resultados de las medidas de ordenación pesquera establecidas en el presente Decreto.

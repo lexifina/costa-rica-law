@@ -1,0 +1,1 @@
+Artículo 19.—Las faltas o infracciones a las regulaciones establecidas en el presente Decreto o a las medidas y disposiciones sobre el manejo, conservación y aprovechamiento de los recursos hidrobiológicos serán sancionadas de conformidad con la Ley N° 4573, Código Penal, la Ley N° 8436, Ley de Pesca y Acuicultura y su reglamento.

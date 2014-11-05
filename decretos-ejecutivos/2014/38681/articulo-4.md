@@ -1,0 +1,1 @@
+Artículo 4º—En el área comprendida en el Artículo 2, Inciso A) del presente Decreto, se permitirá la pesca comercial Mediana Escala, pesca comercial Avanzada, la pesca Turística y la pesca comercial Semi Industrial, conforme a lo establecido en las respectivas licencias de pesca. Igualmente se incluye la pesca Deportiva. No se permitirá la pesca de atún con red de cerco.

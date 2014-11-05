@@ -1,0 +1,1 @@
+Artículo 20.—El presente Decreto tiene una vigencia de ocho años, a partir de su publicación y paralelamente a su vigencia, el Estado realizará un proceso de ordenamiento pesquero, el cual será liderado por el Incopesca con el apoyo del MAG y MINAE en el marco del Ordenamiento Espacial Marino que defina el Estado.

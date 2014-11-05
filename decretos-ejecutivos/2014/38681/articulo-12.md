@@ -1,0 +1,1 @@
+Artículo 12.—La Unidad de Monitoreo y Seguimiento Satelital del Incopesca, vigilará mediante su plataforma tecnológica, que las embarcaciones con dispositivos de seguimiento satelital cumplan con las disposiciones establecidas en el presente Decreto.

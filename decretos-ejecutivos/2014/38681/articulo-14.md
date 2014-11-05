@@ -1,0 +1,1 @@
+Artículo 14.—El otorgamiento de licencias de pesca de atún con red de cerco de bandera extranjera, se dará a aquellas embarcaciones que descarguen la totalidad de sus capturas, con el objeto de satisfacer la demanda de atún capturado en aguas nacionales para ser utilizado como materia por la industria atunera procesadora nacional, bajo condiciones de competitividad de mercado.
