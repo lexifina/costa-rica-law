@@ -9,5 +9,5 @@ III.—Que el artículo 15 de la Ley de Biodiversidad, establece la forma en que
 IV.—Que el Decreto Ejecutivo N° 29680-MINAE del 23 de julio del 2001, publicado en La Gaceta N° 150 del 7 de agosto del 2001, regula el funcionamiento de esta Comisión. Por tanto,
 Decretan:
 Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nacional para la Gestión de la Biodiversidad, a los siguientes representantes de la Unión Costarricense de Cámaras de la Empresa Privada.
-1. Miembro propietario: Fabio Vincenzi Guilá
+1. (Derogado por el artículo 3° del decreto ejeuctivo N° 38792 del 6 de noviembre del 2014 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad ")
 2. (Derogado por el artículo 2° del decreto ejecutivo N° 38658 del 13 de agosto del 2014 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
