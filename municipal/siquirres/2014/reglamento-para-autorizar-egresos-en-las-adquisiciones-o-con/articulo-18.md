@@ -1,0 +1,1 @@
+18.—EI Tesorero Municipal no hará pago alguno, sin orden escrita, o cualquier otro tipo de disposición, emitida por el órgano municipal competente que lo autorice al efecto, so pena de que se le aplique las sanciones consignadas en el artículo 110 del Código Municipal.

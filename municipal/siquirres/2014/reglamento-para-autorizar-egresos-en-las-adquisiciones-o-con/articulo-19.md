@@ -1,0 +1,2 @@
+19.—Los cheques municipales que se emitan, serán puestos a disposición de los interesados para que los retiren en un plazo de tres meses.
+Vencido dicho término, la Tesorería Municipal procederá a anularlos y ante ello, deberá el interesado gestionar nuevamente la emisión del cheque que corresponda. Este trámite podrá negarlo la Municipalidad, en caso de prescripción y según el plazo que al efecto establezca la legislación para la obligación de que se trate.

@@ -1,0 +1,1 @@
+6º—Con la salvedad de los gastos fijos señalados en el inciso e) del artículo 13 de Código Municipal, el Alcalde Municipal podrá autorizar para gastos en la adquisición o contratación de bienes y servicios, tal y como lo señala el artículo 17 inciso h) del Código Municipal hasta por un monto de ¢2.500.000 (dos millones quinientos mil colones sin céntimos), inclusive.
