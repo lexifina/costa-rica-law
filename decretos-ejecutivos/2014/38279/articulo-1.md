@@ -20,3 +20,4 @@ PARA EL AÑO 2015
 CAPÍTULO I
 Del gasto presupuestario máximo
 Artículo 1º—Estas directrices serán aplicables a las entidades públicas, ministerios y demás órganos, cubiertos por el ámbito de la AP.
+(Mediante el artículo 1° del decreto ejecutivo N° 38725 del 6 de noviembre del 2014, se amplia para la Junta Administrativa de la Imprenta Nacional (JAIN), el gasto presupuestario máximo para el año 2015, en la suma de ¢920.130.000,00 (novecientos veinte millones ciento treinta mil colones exactos), para ese período.)
