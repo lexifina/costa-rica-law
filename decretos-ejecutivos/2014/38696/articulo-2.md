@@ -1,0 +1,1 @@
+Artículo 2º—Para el período de pago del seguro obligatorio de vehículos automotores del año 2015, los propietarios de vehículos particulares categoría motocicleta y afines, deberán cancelar como aporte al Consejo de Seguridad Vial, la suma de cinco mil ciento cincuenta y ocho colones (¢5.158,00).
