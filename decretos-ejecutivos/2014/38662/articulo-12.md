@@ -1,0 +1,1 @@
+Artículo 12.—Periodicidad de las reuniones. El Consejo de Innovación y Talento Humano se reunirá ordinariamente una vez al mes y extraordinariamente cada vez que así se requiera y sea informado oportunamente a los miembros del Consejo.

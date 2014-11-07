@@ -1,0 +1,1 @@
+Artículo 5º—Periodicidad de las reuniones. El Consejo Presidencial se reunirá de forma ordinaria cada dos meses y extraordinariamente cuando así se requiera y sea debidamente comunicado a los miembros del Consejo.

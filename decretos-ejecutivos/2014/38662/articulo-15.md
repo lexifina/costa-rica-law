@@ -1,0 +1,1 @@
+Artículo 15.—Periodicidad de las reuniones. La Alianza para el Empleo y el Desarrollo Productivo se reunirá ordinariamente una vez al mes y extraordinariamente cada vez que así se requiera y sea informado oportunamente a los miembros del Consejo.

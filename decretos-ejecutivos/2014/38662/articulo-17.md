@@ -1,0 +1,1 @@
+Artículo 17.—Carácter de las reuniones. Las sesiones serán siempre privadas. Sin embargo, los Consejos y la Alianza, por mayoría absoluta de sus miembros, podrán acordar que para ciertos casos se permita el acceso a representantes de otras instituciones u organizaciones públicas o privadas cuya labor guarde relación con las labores del Consejo.

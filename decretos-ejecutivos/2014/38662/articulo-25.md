@@ -1,0 +1,1 @@
+Artículo 25.—Presupuesto y personal. La Secretaría Técnica estará adscrita presupuestariamente al Ministerio de la Presidencia. Para el adecuado ejercicio de sus funciones contará con las plazas que resulten indispensables, con sujeción a los procedimientos legales establecidos.

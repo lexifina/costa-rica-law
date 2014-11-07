@@ -1,0 +1,1 @@
+Artículo 19.—Quórum. Para que cada uno de los Consejos pueda celebrar sesiones válidas, deberá contarse con un quórum integrado por la mayoría absoluta de sus miembros. De no reunirse el quórum el día y hora señalados en la convocatoria, podrán sesionar válidamente en segunda convocatoria veinticuatro horas después.
