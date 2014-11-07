@@ -14,3 +14,4 @@ Guía para la elaboración y Remisión de prospectos de Fondos de Inversión
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-08 | la propia norma |
+| 2 | 2014-11-07 | Acuerdo 192 (2014-11-07) |
