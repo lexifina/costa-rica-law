@@ -19,3 +19,4 @@ Reglamento a la Ley N° 7302 Ley de Creación del Régimen General de Pensiones 
 | 4 | 2012-04-25 | SINALEVI (sin norma nombrada) |
 | 5 | 2013-11-22 | SINALEVI (sin norma nombrada) |
 | 6 | 2013-11-27 | SINALEVI (sin norma nombrada) |
+| 7 | 2014-11-07 | SINALEVI (sin norma nombrada) |
