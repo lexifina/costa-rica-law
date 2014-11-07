@@ -1,0 +1,1 @@
+Artículo 11.—El fraccionamiento del pago de una compra para presentarlo por caja chica, así como cualquier otra infracción al presente reglamento será motivado de sanción conforme a las disposiciones contenidas en la normativa.
