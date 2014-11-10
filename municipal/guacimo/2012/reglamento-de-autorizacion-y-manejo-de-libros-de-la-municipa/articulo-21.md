@@ -1,0 +1,1 @@
+Artículo 21.—Los dictámenes e informes de los Concejos de Distritos, en forma previa a su presentación al Concejo Municipal, deben estar aprobados por el Órgano Colegiado, el acuerdo junto con el acta respectiva de la sesión en la cual se aprobó tales dictámenes e informes deben ser transcritos en el libro de actas.

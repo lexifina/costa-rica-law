@@ -1,0 +1,1 @@
+Artículo 19.—Los libros de actas de los Concejos de Distrito deben manejarse de la misma manera que el libro de actas de sesiones del Concejo Municipal, en lo que aplique según lo estipulado en el ordenamiento jurídico vigente.
