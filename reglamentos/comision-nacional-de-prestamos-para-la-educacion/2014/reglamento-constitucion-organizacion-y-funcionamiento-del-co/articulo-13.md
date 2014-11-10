@@ -1,0 +1,1 @@
+Artículo 13.—Los cambios, adiciones y eliminaciones a los planes, programas, presupuestos y proyectos de TI, deben ser analizados por el Comité de TIC, para su recomendación ante el Consejo Directivo.

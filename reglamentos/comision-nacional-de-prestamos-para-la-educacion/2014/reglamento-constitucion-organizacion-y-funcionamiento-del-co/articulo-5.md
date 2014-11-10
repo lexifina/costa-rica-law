@@ -1,0 +1,1 @@
+Artículo 5º—La Auditoría Interna deberá designar un representante, el cual participará en las sesiones del Comité con derecho a voz y no a voto. La participación de la Auditoría Interna es en función de los servicios de asesoría que puede prestar a la Administración de CONAPE, en el ámbito de sus competencias.
