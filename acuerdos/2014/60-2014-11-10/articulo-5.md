@@ -1,0 +1,2 @@
+Artículo 5º—De las sesiones de las Comisión Ejecutiva de Precalificación y Selección.
+Para efectos de preselección y selección del Banco o Bancos Colocadores, en caso de que alguno de sus miembros no pueda presentarse físicamente a alguna reunión por circunstancias especiales que lo justifiquen, la Comisión Ejecutiva de Preselección y Selección podrá sesionar de forma virtual mediante la utilización de sistemas de videoconferencia.

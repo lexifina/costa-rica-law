@@ -1,0 +1,3 @@
+Artículo 12.—Invitación Individual.
+De forma paralela a la publicación internacional, y considerada la recomendación de la Comisión Técnica Asesora, el Ministerio de Hacienda invitará en forma directa a los potenciales oferentes para que, en caso de estar interesados, presenten sus ofertas según lo establecido en el artículo 6 inciso 4) y artículo 7 inciso 2) de la Ley número 9070 citada. Dicha invitación deberá realizarse el mismo día que se realice la publicación a que se refiere el artículo anterior.
+En la invitación se indicará la página de internet donde se pueden acceder a las bases para la selección, el lugar y plazo máximo para la recepción de ofertas y el contacto respectivo en el Ministerio para enviar la información.
