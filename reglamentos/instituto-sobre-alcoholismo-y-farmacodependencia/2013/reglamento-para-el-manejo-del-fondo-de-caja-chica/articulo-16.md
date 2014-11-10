@@ -1,0 +1,1 @@
+Artículo 16.—Transferencias electrónicas de fondos: La ejecución de las operaciones de caja chica y los trámites de reintegro se podrán realizar por medios electrónicos a través de transferencias electrónicas, así como los aumentos permanentes y/o temporales desde las cuentas bancarias de IAFA.

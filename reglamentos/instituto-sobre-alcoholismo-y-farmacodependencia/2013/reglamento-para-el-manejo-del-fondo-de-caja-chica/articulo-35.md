@@ -1,0 +1,1 @@
+Artículo 35.—Requisitos para el trámite de compras. Las compras de bienes y servicios por la Caja chica auxiliar serán realizadas por cada unidad, las cuales se harán siguiendo lo establecido en el artículo 18 de este Reglamento.

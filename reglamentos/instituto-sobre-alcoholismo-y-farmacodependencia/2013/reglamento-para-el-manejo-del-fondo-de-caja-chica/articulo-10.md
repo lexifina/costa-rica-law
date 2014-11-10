@@ -1,0 +1,6 @@
+Artículo 10.—Control y responsabilidad de la Caja Chica: El manejo y control del Fondo Caja Chica se regirá por los siguientes aspectos:
+a) El Responsable del Subproceso Financiero y de los organismos regionales serán los encargados de las cajas chicas, pero podrán delegar en un subalterno suyo el manejo de ellas sin que ello implique delegación de responsabilidad. Los encargados de las cajas chicas serán solidariamente responsables por los resultados de la operación de estas cajas.
+b) El control y la supervisión del funcionario encargado de las cajas chicas, estará bajo la responsabilidad del Responsable de la Unidad Financiera y/o del organismo regional respectivo, quien puede realizar arqueos periódicos o sorpresivos para comprobar su integridad.
+c) El Encargado de la caja podrá recibir devoluciones de dinero únicamente en efectivo.
+d) De constatarse por medio de la realización de un arqueo que existe un faltante, el encargado de la caja deberá reintegrarlo de inmediato de su propio peculio. En el evento de que se produjere un sobrante, deberá ser depositado en la cuenta corriente a nombre del Instituto, de la fuente de financiamiento correspondiente.
+e) El funcionario que revisa las liquidaciones del fondo deberá ser diferente del que efectúa su registro contable y del que opera dicho fondo.

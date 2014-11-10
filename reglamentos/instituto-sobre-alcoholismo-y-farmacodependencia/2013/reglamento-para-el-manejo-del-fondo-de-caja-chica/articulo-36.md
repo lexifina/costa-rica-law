@@ -1,0 +1,1 @@
+Artículo 36.—Presentación de comprobantes para reintegro. A fin de mes o cuando la caja chica auxiliar el monto del fondo alcance el cincuenta por ciento del total autorizado, el encargado deberá presentar los comprobantes al Responsable del Fondo de Caja Chica.

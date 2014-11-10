@@ -1,0 +1,1 @@
+Artículo 22.—Adelantos de viáticos: Los adelantos de viáticos pagados por caja chica, se regirán en sus montos que establece el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, emitido por la Contraloría General de la República.

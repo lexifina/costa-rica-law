@@ -1,0 +1,3 @@
+CAPÍTULO II
+Políticas y procedimientos de operación de la caja chica
+Artículo 14.—Límite de gasto: Para incurrir en gastos por medio del Fondo Caja Chica debidamente autorizados, se establece el límite de gasto vía directriz firmada Responsable del Subproceso Financiero cuando sea necesario. Para las compras de bienes y servicios por montos superiores al límite de gasto establecido, deberá existir autorización previa por parte de la Dirección General junto a la solicitud de pedido por parte del Responsable del programa o Responsable de oficina y con la aprobación del encargado del Subproceso Financiero del Fondo Caja Chica de la Entidad.

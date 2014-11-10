@@ -1,0 +1,1 @@
+Artículo 13.—Traslado del manejo del Fondo: Los traslados del fondo de caja chica de un encargado a otro quedarán respaldados por la autorización del Responsable de la Unidad Financiera y por un previo arqueo del fondo, debidamente firmado por ambos funcionarios.

@@ -1,0 +1,1 @@
+Artículo 23.—Liquidación del vale de caja chica: Realizada la compra del Bien o Servicio, se procede a la liquidación del “Vale de Caja Chica” con la entrega del documento comercial. Dicho documento deberá ser firmado por el Responsable de la unidad solicitante, en el que da recibido conforme el bien o servicio adquirido.

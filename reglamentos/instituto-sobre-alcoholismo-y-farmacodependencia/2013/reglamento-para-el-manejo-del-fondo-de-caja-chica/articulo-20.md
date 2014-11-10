@@ -1,0 +1,1 @@
+Artículo 20.—Información requerida en el vale provisional: El usuario del fondo deberá suministrar toda la información que se le solicita en el vale descrito en el artículo anterior, solicitud de pedido, adelanto o liquidación de viáticos, entre otros, la cual será verificada por el encargado, antes de proceder a la entrega de la suma solicitada.
