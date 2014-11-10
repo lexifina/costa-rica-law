@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento se aplicará a todas aquellas actividades que sin contar con la licencia municipal otorgada conforme la Ley Nº 7364, se desarrollan en el cantón de San Isidro de Heredia de forma ambulante, tomando en consideración lo dispuesto en el Artículo 27 del Plan Regulador.

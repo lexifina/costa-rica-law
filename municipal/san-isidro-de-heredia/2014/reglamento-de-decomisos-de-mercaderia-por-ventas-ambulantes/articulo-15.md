@@ -1,0 +1,1 @@
+Artículo 15.—Licencias otorgadas. Aquellas actividades de ventas ambulantes amparadas en licencias o patentes otorgadas antes de la entrada en vigencia del Plan Regulador del Cantón de San Isidro de Heredia, podrán seguir funcionando en los sitios autorizados hasta que se agote su periodo de vigencia.
