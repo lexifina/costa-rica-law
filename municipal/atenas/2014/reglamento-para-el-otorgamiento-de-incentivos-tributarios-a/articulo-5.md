@@ -1,0 +1,1 @@
+Artículo 5º—El incentivo será aplicado a los tributos municipales vigentes (Impuesto de Patente, Impuesto sobre Bienes Inmuebles, Servicio de Recolección de Basura, Servicio de Aseo de Vías, Servicio de Parques y Obras de Ornato y Servicio de Cementerio) solo por una única vez al año.

@@ -1,0 +1,1 @@
+Artículo 6º—La Dependencia encargada de aplicar el incentivo. El Departamento de Facturación de la Municipalidad de Atenas, será el encargado de aplicar el incentivo y de actualizar el porcentaje que se utilizará en la aplicación de éste.
