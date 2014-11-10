@@ -4,7 +4,7 @@ a) Documento en formato MS Word que contenga la solicitud que describa el tipo d
 b) Documento en formato MS Word que contenga el borrador del prospecto actualizado con la modificación de la emisión.
 c) Imagen digital escaneada de la carta de la empresa calificadora en que se valida la calificación de riesgo otorgada a partir del impacto de la modificación de la emisión.
 d) Imagen digital escaneada de la certificación notarial del acta del consejo de administración que haya acordado la modificación de la emisión que contenga las características a modificar, del órgano competente en el caso de emisores domiciliados en el exterior según la legislación del país de origen, o de la documentación donde conste la modificación de la emisión por parte de las autoridades competentes
-e) Imagen digital escaneada de la copia anulada del formato del título valor y cupón que se desea registrar, en caso de que la emisión se represente en forma física.
+e) (Derogado por acuerdo SGV-A-193 del 10 de noviembre de 2014)
 f) Imagen digital escaneada de los documentos en que consta la garantía para las emisiones, cuando aplique, según lo dispuesto en el inciso d. del artículo 4.
 g) Imagen digital escaneada de la declaración jurada original rendida ante notario público en la que el representante legal del emisor señale que no se han colocado valores de la emisión a modificar, según el contenido mínimo establecido en el artículo 16.
 El procedimiento de autorización se lleva a cabo según lo dispuesto en el último párrafo del artículo 4.

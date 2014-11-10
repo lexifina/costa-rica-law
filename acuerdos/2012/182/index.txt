@@ -1,6 +1,7 @@
 articulo-1.md
 articulo-2.md
 articulo-3.md
+articulo-3-bis.md
 articulo-4.md
 articulo-5.md
 articulo-6.md
@@ -30,3 +31,5 @@ articulo-9-anexo.md
 articulo-10-anexo.md
 articulo-11-anexo.md
 articulo-12-anexo.md
+articulo-13-anexo.md
+articulo-14-anexo.md

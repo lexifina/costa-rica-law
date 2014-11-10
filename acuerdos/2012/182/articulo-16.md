@@ -12,3 +12,7 @@ i) Anexo No. 9. Declaración jurada del representante legal de la entidad emisor
 j) Anexo No. 10. Instrucciones sobre el Comunicado de Hecho Relevante para la inscripción de emisiones.
 k) Anexo No. 11. Instrucciones sobre el Comunicado de Hecho Relevante para la modificación de emisiones.
 l) Anexo No. 12. Instrucciones sobre el Comunicado de Hecho Relevante para la desinscripción de emisiones.
+m) Anexo N° 13. Declaración jurada protocolizada rendida por el representante legal del vehículo de propósito especial o su entidad administradora, según corresponda, sobre su responsabilidad sobre los estados financieros del vehículo y el control interno.
+(Así adicionado el inciso anterior por acuerdo SGV-A-193 del 10 de noviembre de 2014)
+n) Anexo N° 14. Declaración jurada protocolizada rendida por el representante legal del estructurador, respecto al proceso de debida diligencia empleada en el trámite, cuando se hayan contratado servicios de estructuración.”
+(Así adicionado el inciso anterior por acuerdo SGV-A-193 del 10 de noviembre de 2014)

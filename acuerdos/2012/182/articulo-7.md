@@ -4,7 +4,7 @@ a) Documento en formato MS Word que contenga la solicitud en que se describa el 
 b) Documento en formato MS Word que contenga el borrador del prospecto actualizado con la modificación de la emisión.
 c) Imagen digital escaneada de la carta de la empresa calificadora en que se valida la calificación de riesgo otorgada a partir del impacto de la modificación de la emisión, en el caso de acciones preferentes que se califican como pasivo.
 d) Imagen digital escaneada de la certificación notarial del acta de asamblea extraordinaria de accionistas en la cual se acordó la modificación de la emisión o del órgano competente según la legislación del país de origen en el caso de emisores domiciliados en el exterior.
-e) Imagen digital escaneada de la copia anulada del formato del título valor que se desea registrar, en caso de que la emisión se represente en forma física.
+e) (Derogado por acuerdo SGV-A-193 del 10 de noviembre de 2014)
 f) Imagen digital escaneada de la certificación notarial del acta de la asamblea especial de socios, en caso de modificación de acciones preferentes
 g) Imagen digital escaneada de la valoración financiera realizada por perito independiente, que incorpore los fundamentos y la metodología utilizados para la determinación del precio, en caso de la recompra de las acciones.
 El procedimiento de autorización se lleva a cabo según lo dispuesto en el último párrafo del artículo 4.

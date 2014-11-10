@@ -1,0 +1,4 @@
+Artículo 3 bis. Procedimiento para la inscripción de emisiones provenientes de fideicomisos o universalidades, administrados por sociedades fiduciarias o sociedades titularizadoras, inscritas en el RNVI.
+La inscripción de emisiones de fideicomisos o universalidades, por parte de sociedades fiduciarias o sociedades titularizadoras, inscritas en el RNVI, se realiza de conformidad con lo establecido en el artículo 94 del Reglamento sobre oferta pública de valores, el Capítulo II del Título IV del Reglamento sobre financiamiento de proyectos de infraestructura o, los Capítulos II y IV del Reglamento sobre procesos de titularización, según corresponda.
+Para ello, la sociedad fiduciaria o sociedad titularizadora selecciona en la Ventanilla Virtual la opción para crear un trámite de inscripción de fideicomiso o universalidad, según corresponda y procede a ingresar la documentación respectiva.
+(Así adicionado por acuerdo SGV-A-193 del 10 de noviembre de 2014)
