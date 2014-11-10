@@ -1,0 +1,6 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 12.—En todo lo no previsto en el presente Reglamento, se aplicarán supletoriamente la Ley General de la Administración Pública, Ley de Administración Financiera de la República, el Reglamento de Viaje y de Transporte para Funcionarios Públicos y demás normativa que resulte aplicable y no se oponga a estas regulaciones.
+“.—Régimen disciplinario: Por el incumplimiento de las obligaciones y deberes establecidos en el presente reglamento se aplicará el régimen disciplinario y sancionatorio establecido en el Reglamento Autónomo de Servicio del Ministerio de Cultura, Juventud y Deportes (ahora de Cultura y Juventud)- Decreto Ejecutivo Nº 33270-C del 2 de junio de 2006 y sus reformas.
+Se aplicará también lo dispuesto por la Ley General de Control Interno-Ley Nº 8292 del 31 de julio de 2002, así como lo dispuesto por el Reglamento de gastos de viaje y de transporte para funcionarios públicos de la Contraloría General de la República-
+Resolución R-DC-111- de las ocho horas del siete de julio de dos mil once, y la Ley de Administración Financiera de la República y Presupuestos Públicos, Ley Nº 8131 del 4 de setiembre de 2001 y su Reglamento-Decreto Ejecutivo Nº 30058-H-MP-PLAN del 19 de diciembre de 2001.
