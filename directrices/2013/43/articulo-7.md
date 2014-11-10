@@ -1,1 +1,0 @@
-Artículo 7) Las entidades públicas distintas a los bancos comerciales del Estado solo podrán efectuar sus depósitos así como las operaciones en cuenta corriente y de ahorro por medio de los bancos del Estado, según lo dispuesto en los artículos 60 y 118 de la Ley Orgánica del Sistema Bancario Nacional, salvo autorización legal en contrario.

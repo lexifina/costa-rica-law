@@ -1,1 +1,0 @@
-Artículo 4) Instar al Banco Popular y de Desarrollo Comunal para que se integre en este proceso que deberán llevar a cabo los bancos comerciales del Estado. Las otras entidades bancarias estatales revisarán lo que estimen necesario directamente con el Banco Popular.

@@ -1,1 +1,0 @@
-Artículo 3) Los Bancos comerciales del Estado presentarán cada trimestre un informe al Consejo de Gobierno con copia al Banco Central de Costa Rica, detallando el avance en el cumplimiento de la presente directriz.

@@ -1,1 +1,0 @@
-Artículo 5) El Banco Central de Costa Rica coordinará con el Consejo Nacional de Supervisión del Sistema Financiero y la Superintendencia General de Entidades Financieras las disposiciones que sean necesarias para verificar el cumplimiento de esta directriz en lo que a los bancos del Estado compete.
