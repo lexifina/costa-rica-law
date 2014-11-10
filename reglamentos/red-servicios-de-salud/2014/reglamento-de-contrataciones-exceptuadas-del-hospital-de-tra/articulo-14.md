@@ -1,0 +1,1 @@
+Artículo 14.—Los contratos entre el HDT, el INS y/o cualquiera de sus sociedades anónimas, o en las que tenga una participación en su capital social (Grupo Financiero del INS). Estos contratos, cuando no se refieran a la actividad ordinaria de cada entidad, deberán contar con el visto bueno previo de la Gerencia o Junta Directiva.
