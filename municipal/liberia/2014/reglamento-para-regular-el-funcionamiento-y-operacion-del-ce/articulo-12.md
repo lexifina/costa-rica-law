@@ -1,0 +1,1 @@
+Artículo 12. De la conformación de la Comisión del Centro de Cuido de la Municipalidad de Liberia. El Concejo Municipal procederá a conformar una comisión la cual tendrá a su cargo la definición de lineamientos, análisis y recomendaciones del funcionamiento y los servicios del CECUDI, que por este reglamento se deriven.

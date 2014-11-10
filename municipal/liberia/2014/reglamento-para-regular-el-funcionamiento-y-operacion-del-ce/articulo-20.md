@@ -1,0 +1,2 @@
+Artículo 20. De las ausencias de las PME: En caso de ausencias, la familia debe justificarlas durante los tres días hábiles posteriores a la actividad. Si sus ausencias son prolongadas deberán ser justificadas por la familia apenas sea posible, con constancia médica que indique la enfermedad de las PME y, de igual manera, en caso de alguna situación especial de la familia, que amerite su ausencia.
+Si sus ausencias son prolongadas y sin justificación, esta situación facultará a la Municipalidad a cancelar la matrícula, previa notificación a su familia.
