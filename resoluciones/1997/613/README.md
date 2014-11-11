@@ -15,3 +15,4 @@ Dicta directrices para la aplicación del Reglamento a la Ley Forestal en cuanto
 | --- | --- | --- |
 | 1 | 1997-08-12 | la propia norma |
 | 2 | 2009-06-29 | Resolución 39 (2009-06-29) |
+| 3 | 2014-11-11 | Decreto Ejecutivo 38863 (2014-11-11) |
