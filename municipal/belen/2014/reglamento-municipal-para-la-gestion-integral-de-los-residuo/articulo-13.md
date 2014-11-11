@@ -1,0 +1,1 @@
+Artículo 13.—En casos calificados por la comisión, se solicitará la representación de otras áreas o unidades municipales o la participación de entidades que no conforman la estructura general de la comisión.

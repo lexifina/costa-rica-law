@@ -1,0 +1,1 @@
+Artículo 25.—Ningún gestor de residuos podrá realizar actividades en el cantón relacionadas con la recolección y transporte de residuos sólidos sin la autorización previa de la Municipalidad para este fin.
