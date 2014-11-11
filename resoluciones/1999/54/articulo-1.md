@@ -1,3 +1,0 @@
-(Derogado)
-(Esta resolución fue dejada sin efecto por el "Manual de Procedimientos para el Aprovechamiento Maderable en Terrenos de Uso Agropecuario y sin Bosque y Situaciones Especiales en Costa Rica", aprobado en sesión N° 02 del 1° de marzo de 2010.Posteriormente mediante el artículo 38 del Reglamento para trámite de permisos y control del aprovechamiento maderable en terrenos de uso agropecuario, sin bosque y situaciones especiales en Costa Rica, Oficialización de "Sistema de Información para el control del aprovechamiento forestal (SICAF), aprobado mediante decreto ejecutivo N° 38863 del 11 de noviembre de 2014, se vuelve a derogar la presente norma)
-Artículo 1.-
