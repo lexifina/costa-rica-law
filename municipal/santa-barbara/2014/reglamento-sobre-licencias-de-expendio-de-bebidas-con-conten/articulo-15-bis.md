@@ -1,0 +1,2 @@
+Artículo 15. Bis.- Pago extemporáneo. El pago extemporáneo de los derechos trimestrales, está sujeto una multa del uno por ciento (1%) mensual sobre el monto no pagado y al pago de intereses que se calcularán con la tasa que esté aplicando la Municipalidad en cumplimiento con el artículo 69 del Código Municipal y relacionado con el artículo 57 del Código de Normas y Procedimientos Tributarios.
+(Así adicionado mediante sesión ordinaria N° 237 del 11 de noviembre del 2014)
