@@ -14,3 +14,4 @@ SINAC: Directrices Entrega Empleo Guías Placas Transporte de Madera.
 | --- | --- | --- |
 | 1 | 2000-01-25 | la propia norma |
 | 2 | 2010-03-01 | Reglamento 2 (2010-03-01) |
+| 3 | 2014-11-11 | Decreto Ejecutivo 38863 (2014-11-11) |
