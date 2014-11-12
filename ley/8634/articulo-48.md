@@ -1,2 +1,2 @@
-ARTÍCULO 48.- Asociatividad
-El Consejo Rector promoverá mecanismos de cooperación bajo el principio de asociatividad para las micro, pequeñas y medianas unidades productivas definidas en el artículo 6 de esta Ley, con el objetivo de fomentar el desarrollo de ventajas competitivas conjuntas y potenciar los beneficios definidos en esta Ley. Para esta finalidad y mediante reglamento, el Consejo Rector podrá orientar, estratégicamente, la utilización de los instrumentos financieros y de desarrollo empresarial creados en esta Ley.
+ARTÍCULO 48.- Responsabilidades
+Cuando el encargado de la administración de los recursos determine que las personas responsables de la unidad productiva beneficiaria del SBD lo inducen a error o engaño para obtener los beneficios, con apego al debido proceso se les suspenderá el goce de estos; lo anterior sin perjuicio de plantear las acciones judiciales correspondientes.

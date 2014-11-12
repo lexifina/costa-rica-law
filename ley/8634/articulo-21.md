@@ -1,2 +1,2 @@
-ARTÍCULO 21.- Fiduciario
-El fiduciario será un banco público, seleccionado mediante una licitación pública que convocará el Consejo Rector. En dicha licitación, solo podrán participar los bancos públicos, a excepción del Banhvi. La remuneración del fiduciario se definirá detalladamente en el contrato de fideicomiso. Todos los servicios y gastos en que incurra el fiduciario, debido a la administración del fideicomiso, quedarán cubiertos con la comisión de administración.
+ARTÍCULO 21.- Fiduciario de Finade
+El fiduciario será un banco del Estado seleccionado por el Consejo Rector, que procederá de conformidad con lo que dispone la Ley N.° 7494, Contratación Administrativa, de 2 de mayo de 1995. La remuneración del fiduciario se definirá en el contrato de fideicomiso. Todos los servicios y gastos en que incurra el fiduciario, debido a la administración del fideicomiso, quedarán cubiertos con la comisión de administración.

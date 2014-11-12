@@ -1,2 +1,2 @@
-TRANSITORIO IV.-
-Por una única vez, a los dos años de entrar en operación el SBD, se llevará a cabo la primera evaluación, de conformidad con el artículo 49, Evaluación del Sistema de Banca para el Desarrollo, de esta Ley.
+TRANSITORIO IV.Se autoriza al Consejo Rector para que en el plazo de tres años desde la entrada en vigencia de esta ley, con cargo al patrimonio del Fideicomiso Nacional de Desarrollo (Finade), contrate el desarrollo de una plataforma tecnológica integral para el Sistema de Banca para el Desarrollo, que contribuya al cumplimiento de los fines y objetivos establecidos por la Ley N.º 8634.
+Las entidades integrantes del SBD deberán facilitar la conectividad necesaria para el desarrollo de esta plataforma y podrán donar parte o la totalidad del sistema aquí estipulado.
