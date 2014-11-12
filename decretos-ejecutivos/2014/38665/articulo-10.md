@@ -1,0 +1,1 @@
+Artículo 10.—Deróguense el Decreto Ejecutivo Nº 36008-MP-MAG-MINAET publicado en La Gaceta 98 del 21 de mayo del 2010 y el Decreto Ejecutivo 37987-MP-MINAE-PLAN-MAG, publicado en La Gaceta 207 del 28 de octubre del 2013.

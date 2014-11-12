@@ -1,0 +1,1 @@
+Artículo 7º—Los entes y órganos públicos dentro de las atribuciones que les da el Ordenamiento Jurídico darán un trato prioritario y expedito a los procesos necesarios para la implementación del Programa.

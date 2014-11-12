@@ -1,0 +1,1 @@
+Artículo 9º—Con el fin de promover la consulta y participación ciudadana en la ejecución del Programa Integral de Abastecimiento de Agua para Guanacaste se promoverán comisiones de diálogo con los diputados, gobiernos locales y sociedad civil.

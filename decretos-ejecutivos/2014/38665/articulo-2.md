@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo de la Comisión. Coordinar y apoyar la ejecución del “Programa Integral de Abastecimiento de Agua para Guanacaste (Pacífico Norte)”, el cual contará con una Secretaría Técnica para realizar todas las acciones necesarias para el cumplimiento de su objetivo.
