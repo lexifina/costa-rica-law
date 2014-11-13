@@ -1,1 +1,0 @@
-Artículo 31.—El Sistema de Emergencias 9-1-1 no incurrirá en costos adicionales más allá del salario y el tiempo extraordinario del instructor/es al momento de impartir un evento, así como el certificado se le brinda al finalizar el mismo.

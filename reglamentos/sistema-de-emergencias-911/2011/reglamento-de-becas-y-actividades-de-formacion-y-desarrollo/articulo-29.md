@@ -1,1 +1,0 @@
-Artículo 29.—Esta capacitación nunca podrá ser prioridad en relación a la capacitación interna, por ello la Unidad de Formación y Desarrollo tiene la responsabilidad de programar los eventos en el transcurso del año.

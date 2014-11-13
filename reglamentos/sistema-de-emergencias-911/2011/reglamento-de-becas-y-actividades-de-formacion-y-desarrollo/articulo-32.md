@@ -1,1 +1,0 @@
-Artículo 32.—El Área de Formación y Desarrollo deberá asegurar que las entidades beneficiadas sufraguen los costos del evento como son, alimentación, hospedaje, equipo audiovisual, útiles y materiales según cada caso en particular, antes de comprometerse a impartir el mismo.

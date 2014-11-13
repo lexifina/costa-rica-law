@@ -1,1 +1,0 @@
-Artículo 18.—La Dirección, previa recomendación no vinculante del Área de Formación y Desarrollo, podrá reintegrar, total o parcialmente, los gastos por concepto de estudios en que haya incurrido un funcionario, siempre que los mismos sean de interés y necesidad para el Sistema.

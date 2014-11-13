@@ -1,1 +1,0 @@
-Artículo 23.—El sistema de capacitación interna será gestionado por el Área de Formación y Desarrollo y podrá ser impartido por instructores internos, externos o bien, el personal instructor nombrado en la unidad.

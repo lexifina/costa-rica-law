@@ -1,1 +1,0 @@
-Artículo 2º—Para todos los efectos, cuando en este documento se haga referencia a personas físicas en género masculino, debe entenderse incluido también el género femenino, garantizándose con ello que se conserven los principios de igualdad y equidad de género.

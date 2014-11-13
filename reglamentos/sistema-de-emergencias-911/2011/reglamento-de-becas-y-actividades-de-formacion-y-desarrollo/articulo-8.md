@@ -1,1 +1,0 @@
-Artículo 8º—Toda actividad de capacitación debe estar sometida a evaluación y seguimiento por parte del Proceso correspondiente y el cumplimiento del plan será evaluado por el coordinador de Capital Humano y la Jefatura Superior de cada proceso con base en el informe que al efecto presente el Área de Formación y Desarrollo.

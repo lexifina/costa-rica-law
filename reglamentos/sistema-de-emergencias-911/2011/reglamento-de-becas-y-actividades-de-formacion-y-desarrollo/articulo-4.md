@@ -1,1 +1,0 @@
-Artículo 4º—El beneficiario de cualquiera de los sistemas de capacitación aquí regulados queda obligado a impartir a otras personas los conocimientos por él adquiridos en coordinación con el área de Formación y Desarrollo y según los requerimientos de ésta en el momento que se le solicite.
