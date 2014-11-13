@@ -18,3 +18,4 @@ Reglamento de Cuentas Corrientes
 | 3 | 2009-12-07 | Reglamento 4720 (2009-12-07) |
 | 4 | 2010-03-01 | Reglamento 4736 (2010-03-01) |
 | 5 | 2010-06-24 | Reglamento 4767 (2010-06-24) |
+| 6 | 2014-11-13 | Reglamento 5228 (2014-11-13) |
