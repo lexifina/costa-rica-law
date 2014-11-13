@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Exención de pago de impuestos para la formalización del financiamiento
+No estarán sujetos al pago de ninguna clase de impuestos, tasas, contribuciones o derechos, los documentos que se requieran para formalizar los contratos de préstamo suscritos entre la República de Costa Rica y el Banco Interamericano de Desarrollo (BID); asimismo, la inscripción de estos documentos en los registros correspondientes queda exonerada de todo tipo de pago.

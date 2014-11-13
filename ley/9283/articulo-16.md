@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Rendición de cuentas
+Una vez por semestre, a partir de la entrada en vigencia de la presente ley, el Ministerio de Obras Públicas y Transportes (MOPT) rendirá un informe detallado a la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos de la Asamblea Legislativa y a la Contraloría General de la República sobre los procesos de contratación, el nivel de ejecución, el desarrollo y los resultados obtenidos de conformidad con los objetivos del Programa de Infraestructura de Transporte (PIT), que se establece en la presente ley.
