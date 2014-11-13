@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 9º—Montos de la caución. El monto de la caución será el equivalente a seis salarios base de un oficinista 1, conforme lo definido en el artículo 2° de la Ley N° 7337 de 5 de mayo de 1993. Asimismo el Área de Capital Humano comunicará por escrito a los funcionarios del 9-1-1 caucionantes, el momento en que se deba proceder a la renovación de la caución correspondiente. Cuando exista una modificación a la cuantía de la caución los caucionantes contarán con un plazo máximo de diez días hábiles, a partir de la notificación de dicho comunicado para realizar el ajuste correspondiente.

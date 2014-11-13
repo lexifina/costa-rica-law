@@ -1,0 +1,1 @@
+Artículo 4º—Finalidad de la caución. La caución tiene como finalidad garantizar el resarcimiento de eventuales daños y perjuicios que los funcionarios de 9-1-1 responsables, en el ejercicio de sus funciones puedan producir al patrimonio del 9-1-1, sin que ello limite la responsabilidad civil, penal y administrativa, que de ello devenga.

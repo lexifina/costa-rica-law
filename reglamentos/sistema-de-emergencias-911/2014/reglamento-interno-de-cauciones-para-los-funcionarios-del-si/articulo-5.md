@@ -1,0 +1,1 @@
+Artículo 5º—Forma de rendir la caución. La caución a favor del 9-1-1, se hará mediante la suscripción de una póliza de fidelidad suscrita con cargo al peculio de los funcionarios del 9-1-1 obligados a rendir caución, ante las entidades o empresas aseguradoras autorizadas para tal fin.

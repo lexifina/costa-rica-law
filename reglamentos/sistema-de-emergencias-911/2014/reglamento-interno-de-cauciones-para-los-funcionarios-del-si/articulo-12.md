@@ -1,0 +1,5 @@
+CAPÍTULO V
+De la responsabilidad por no presentar caución
+Artículo 12.—Responsabilidad por la no presentación o renovación de la caución. La falta de presentación de la caución, así como la falta de renovación de la misma acarreará responsabilidad en los términos de la Ley de la Administración Financiera de la República y Presupuestos Públicos así como la Normativa Interna aplicable.
+En el caso de los funcionarios encargados de administrar y controlar la presentación de cauciones, constituirá un hecho generador de responsabilidad administrativa, darle posesión del cargo al servidor público obligado a rendir garantía conforme los términos de este Reglamento, sin que éste haya rendido previamente la caución respectiva, todo conforme las disposiciones contenidas en los artículos 110 inciso l) y 113 de la Ley de la Administración Financiera de la República y Presupuestos Públicos.
+El encargado del control de las garantías o cauciones que por culpa o dolo no informe cualquier anomalía será solidariamente responsable del perjuicio ocasionado.
