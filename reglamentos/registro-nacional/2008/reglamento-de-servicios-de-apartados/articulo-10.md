@@ -21,10 +21,9 @@ J566
 a- Tener por recibido el oficio DF-RN-572-2009 de fecha 24 de setiembre del 2009, suscrito por los Licenciados William Astúa Meléndez, Director Administrativo y Octavio Suárez Mayorga, Jefe del Departamento Financiero, mediante el cual presentan para valoración de los señores miembros de la Junta Administrativa, una propuesta de ajuste de tarifas a cobrar por el servicio de uso de apartados.
 b- Fijar las siguientes tarifas para el servicio de apartados del Registro Nacional:
 Tipo de servicios | Nuevo precio
-Alquiler de apartado | ¢15.000,00
-Cambio de llavín (Así reformado el apartado anterior mediante sesión ordinaria N° 47-2013 del 19 de diciembre del 2013) | ¢13.400,00 (Así reformado el apartado anterior mediante sesión ordinaria N° 47-2013 del 19 de diciembre del 2013)
-Extravío del llavero (Así reformado el apartado anterior mediante sesión ordinaria N° 47-2013 del 19 de diciembre del 2013) | ¢3.700,00 (Así reformado el apartado anterior mediante sesión ordinaria N° 47-2013 del 19 de diciembre del 2013)
-(Así reformado el cuadro anterior mediante sesión ordinaria N° 38 del 20 de setiembre de 2012)
+Alquiler de apartado (Así reformado el apartado anterior mediante sesión ordinaria N° 45-2014 del 13 de noviembre del 2014) | ¢15.000,00 (Así reformado el apartado anterior mediante sesión ordinaria N° 45-2014 del 13 de noviembre del 2014)
+Cambio de llavín (Así reformado el apartado anterior mediante sesión ordinaria N° 45-2014 del 13 de noviembre del 2014) | ¢14.100,00 (Así reformado el apartado anterior mediante sesión ordinaria N° 45-2014 del 13 de noviembre del 2014)
+Extravío del llavero (Así reformado el apartado anterior mediante sesión ordinaria N° 45-2014 del 13 de noviembre del 2014) | ¢3.900,00 (Así reformado el apartado anterior mediante sesión ordinaria N° 45-2014 del 13 de noviembre del 2014)
 c- Rige a partir del mes de enero 2013(*).
 (*)(Así reformado el punto anterior mediante sesión ordinaria N° 38 del 20 de setiembre de 2012)
 d- Publíquese en el Diario Oficial La Gaceta, y en un diario de circulación nacional

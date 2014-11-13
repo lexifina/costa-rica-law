@@ -20,3 +20,4 @@ Reglamento de Servicios de Apartados
 | 5 | 2012-09-20 | Reglamento 38 (2012-09-20) |
 | 6 | 2013-09-12 | Reglamento 35 (2013-09-12) |
 | 7 | 2013-12-19 | Reglamento 47 (2013-12-19) |
+| 8 | 2014-11-13 | Reglamento 45 (2014-11-13) |
