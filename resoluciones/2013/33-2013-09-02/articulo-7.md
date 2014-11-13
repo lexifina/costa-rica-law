@@ -1,1 +1,0 @@
-Artículo 7º—Notificación del requerimiento de cobro. En caso de no haber sido notificado previamente, la Administración Tributaria notificará al interesado del requerimiento de cobro que regula el artículo 192 del Código de Normas y Procedimientos Tributarios, como requisito previo a la resolución de facilidad de pago.
