@@ -1,0 +1,1 @@
+Artículo 54.—Será responsable el cliente por los daños que ocurrieren a su vehículo, si por inobservancia a la señalización establecida o a las instrucciones de los oficiales de seguridad, no cumple con lo estipulado en este reglamento.

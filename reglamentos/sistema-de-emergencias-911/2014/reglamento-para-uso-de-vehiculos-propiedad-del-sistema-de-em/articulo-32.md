@@ -1,0 +1,1 @@
+Artículo 32.—Los conductores no deben permitir que personas no autorizadas para la función o el servicio que se propone brindar, viajen en los vehículos del Sistema sean éstos propios, prestados o alquilados, salvo en ocasiones especiales en que medie autorización escrita previa, del Área de Servicios Generales o en casos de emergencia calificada.

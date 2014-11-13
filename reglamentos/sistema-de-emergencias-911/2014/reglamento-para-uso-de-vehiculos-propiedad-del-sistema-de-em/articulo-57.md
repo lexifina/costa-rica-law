@@ -1,0 +1,1 @@
+Artículo 57.—Los clientes o visitantes del Sistema, deberán utilizar las áreas previstas, respetando la señalización interna y las indicaciones de los oficiales de seguridad. El incumplimiento a lo estipulado, exime de responsabilidad a la Administración.

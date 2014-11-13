@@ -1,0 +1,1 @@
+Artículo 36.—Es responsabilidad exclusiva de cada conductor el cumplimiento de lo establecido en el presente capítulo, de ahí que si acata órdenes que contravengan dichas disposiciones, podría asumir las consecuencias que esa acción origine.

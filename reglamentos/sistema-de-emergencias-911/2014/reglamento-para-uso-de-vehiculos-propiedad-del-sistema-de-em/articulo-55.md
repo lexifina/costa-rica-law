@@ -1,0 +1,1 @@
+Artículo 55.—Si ocurriera un accidente de tránsito dentro de las instalaciones, se procederá a realizar las coordinaciones con los oficiales de tránsito y se procederá de acuerdo a las disposiciones del citado artículo 207 de la Ley de Tránsito por Vías Públicas y Terrestres, Ley N° 9078.

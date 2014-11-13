@@ -1,0 +1,1 @@
+Artículo 25.—El Área de Servicios Generales deberá recomendar al Coordinador del Proceso de Soporte a la Gestión la venta o canje de unidades que por alguna circunstancia han dejado de ser útiles para la Institución. Para lo anterior aplicará lo dispuesto en la Ley de Contratación Administrativa y su Reglamento.
