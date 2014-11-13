@@ -1,1 +1,0 @@
-Artículo 69.—E! Departamento de Servicios Generales y la Oficina de Transportes, Mantenimiento y Vigilancia, son las dependencias encargadas a nivel Institucional de velar porque se cumplan las disposiciones contenidas en este Reglamento, de acuerdo con las políticas dictadas por la Junta Directiva y el Regulador General al respecto.

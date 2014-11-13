@@ -1,1 +1,0 @@
-Artículo 43.—Una vez confirmados los puntos a, b, c, del Artículo 42, la Oficina de Transportes, Mantenimiento y Vigilancia le comunicará al Área de Servicios Legales para que proceda a la redacción y posterior firma del Contrato de Arrendamiento del vehículo.

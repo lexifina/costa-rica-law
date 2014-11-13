@@ -1,1 +1,0 @@
-Artículo 46.—En virtud de la relación contractual, el propietario asumirá las responsabilidades civiles y penales que pudieran surgir con motivo del contrato, en consecuencia la Institución estará relevada de las mismas en cuanto afecten a terceros.

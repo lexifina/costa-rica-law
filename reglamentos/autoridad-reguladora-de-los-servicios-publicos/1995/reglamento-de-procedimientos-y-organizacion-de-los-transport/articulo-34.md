@@ -1,1 +1,0 @@
-Artículo 34.—La Oficina de Transportes, Mantenimiento y Vigilancia para atender correctamente lo estipulado en el artículo anterior, deberá acatar lo dispuesto en el artículo 239 de la Ley de Tránsito por Vías Públicas Terrestres.

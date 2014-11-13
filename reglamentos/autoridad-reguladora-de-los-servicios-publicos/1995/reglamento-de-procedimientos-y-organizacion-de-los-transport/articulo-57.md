@@ -1,1 +1,0 @@
-Artículo 57.—La Oficina de Transportes, Mantenimiento y Vigilancia, deberá llevar al día un registro de los funcionarios que conducen los vehículos de la Institución, debiendo incluirse dentro de otras cosas: copia licencia al día, copia de cédula de identidad y toda otra documentación relevante. El costo de las copias de estos documentos correrá por cuenta de la Institución.

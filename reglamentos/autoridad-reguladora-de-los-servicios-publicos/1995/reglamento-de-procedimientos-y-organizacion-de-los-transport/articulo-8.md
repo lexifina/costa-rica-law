@@ -1,1 +1,0 @@
-Artículo 8°—Todos los vehículos de uso administrativo serán utilizados únicamente por personas autorizadas, y exclusivamente para el desempeño de funciones propias de la Institución. Es terminantemente prohibido utilizar el tiempo de trabajo y los vehículos de la Institución en servicios o usos particulares.

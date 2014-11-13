@@ -1,1 +1,0 @@
-Artículo 15.—La dirección y responsabilidad de los servicios de transporte estará a cargo de la Oficina de Transportes, Mantenimiento y Vigilancia, quien dependerá jerárquicamente del Departamento de Servicios Generales.

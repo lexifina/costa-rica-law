@@ -1,1 +1,0 @@
-Artículo 47.—La Jefatura de Transportes, Mantenimiento y Vigilancia, verificará que el kilometraje reportado en cada servicio sea congruente con lo que indica la tabla de distancias del Ministerio de Obras Públicas y Transporte. Dicha tabla será la versión más actualizada.

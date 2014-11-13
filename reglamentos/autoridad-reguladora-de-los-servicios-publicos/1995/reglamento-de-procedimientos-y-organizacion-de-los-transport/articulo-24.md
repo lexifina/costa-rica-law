@@ -1,1 +1,0 @@
-Artículo 24.—Los conductores de vehículos de uso administrativo están obligados a entregar diariamente, al terminar la gira; las copias de las facturas de combustibles y lubricantes, así como el reporte de kilometraje respectivo al Jefe de Transportes, Mantenimiento y Vigilancia.

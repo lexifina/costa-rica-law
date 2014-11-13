@@ -1,2 +1,0 @@
-Artículo 31.- En caso de accidente, ningún chofer o funcionario autorizado que conduce un vehículo de la Institución deberá aceptar arreglos extrajudiciales, por lo que se limitará a indicarle al particular que se apersone o comunique con la Oficina de Transportes, Mantenimiento y Vigilancia.
-Tampoco deberá hacer manifestaciones a ninguna otra autoridad que no sea la judicial. Queda a salvo la información que le solicite la Autoridad de Tránsito.

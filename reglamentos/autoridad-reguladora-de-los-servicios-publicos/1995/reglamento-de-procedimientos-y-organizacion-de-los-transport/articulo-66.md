@@ -1,1 +1,0 @@
-Artículo 66.—Cualquier discrepancia que pudiere presentarse en cuanto a la interpretación o aplicación de este reglamento, a las atribuciones y jurisdicción de la Jefatura de Transportes, Mantenimiento y Vigilancia, y la “Comisión de Transportes de la Autoridad Reguladora”, será resuelta en última instancia por la Junta Directiva.

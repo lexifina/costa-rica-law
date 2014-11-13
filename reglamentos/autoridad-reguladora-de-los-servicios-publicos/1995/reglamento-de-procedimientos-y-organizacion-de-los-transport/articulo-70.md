@@ -1,1 +1,0 @@
-Artículo 70.—Se deroga el Reglamento aprobado por la Junta Directiva del Servicio Nacional de Electricidad en Sesión No 1948 del día 28 de marzo de 1989, y sus reformas, así como cualquier otra disposición reglamentaria que se le opusiera.

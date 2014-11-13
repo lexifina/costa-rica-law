@@ -1,2 +1,0 @@
-Articulo 71.—Este Reglamento entrará a regir diez días hábiles después de su publicación en el Diario Oficial “La Gaceta”. Publíquese.—Lic. Leonel Fonseca Cubillo, Regulador General, Autoridad Reguladora de los Servicios Públicos.
-NOTA: La Ley 7593 “Autoridad Reguladora de los Servicios Públicos” entró en vigencia el 6 de octubre, 1996, por lo que en acatamiento al acuerdo tomado en el artículo VIII de la sesión ordinaria No 2893-95, celebrada el 10-7-95, se procede con su publicación.

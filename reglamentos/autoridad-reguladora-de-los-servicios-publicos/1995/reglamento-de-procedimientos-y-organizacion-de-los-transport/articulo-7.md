@@ -1,1 +1,0 @@
-Artículo 7°—Los vehículos de uso administrativo son todos los que se mantienen bajo la custodia y administración de la Oficina de Transportes, Mantenimiento y Vigilancia, para solventar las necesidades de transporte institucional.

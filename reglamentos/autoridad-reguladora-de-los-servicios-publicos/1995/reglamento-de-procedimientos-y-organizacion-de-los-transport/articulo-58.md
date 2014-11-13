@@ -1,1 +1,0 @@
-Artículo 58.—Para solicitar vehículos será de acatamiento obligatorio cumplir con los Artículos del Capítulo IV “De la prestación de los servicios” debiéndose indicar en el formulario diseñado para este propósito, el nombre del funcionario que guiará el vehículo, al cual, se le denominará “encargado del vehículo”.

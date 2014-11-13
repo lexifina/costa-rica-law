@@ -1,2 +1,0 @@
-Artículo 4°—Los vehículos de uso discrecional son los asignados según lo estipulado en el artículo 225 de la Ley de Tránsito por Vías Públicas Terrestres, al Regulador General.
-Estos vehículos no cuentan con restricciones en cuanto a combustible, horario de operación ni recorrido, características que asumirá, bajo su estricto criterio, el funcionario responsable de la Unidad. Estos vehículos pueden portar placas particulares y no tienen marcas visibles que los distinguen como vehículos oficiales.

@@ -1,1 +1,0 @@
-Artículo 55.—Cuando se determine que en la ejecución del contrato, el funcionario ha incurrido en violación de las disposiciones reglamentarias. Este como responsable podrá ser inhabilitado por la Institución para ser parte en la relación de arrendamiento de vehículos, sin que lo anterior excluya el despido sin responsabilidad patronal si la gravedad de la falta lo amerita.

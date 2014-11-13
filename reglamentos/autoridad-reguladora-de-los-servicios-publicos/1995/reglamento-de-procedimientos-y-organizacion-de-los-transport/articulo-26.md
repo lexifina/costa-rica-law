@@ -1,1 +1,0 @@
-Artículo 26.—La Oficina de Transportes, Mantenimiento y Vigilancia tramitará la solicitud y procederá a la prestación del servicio, conforme con las políticas dictadas y los intereses de la Institución, dependiendo de la disponibilidad de recursos que exista.

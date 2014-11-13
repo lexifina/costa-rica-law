@@ -1,1 +1,0 @@
-Artículo 64.—Todo funcionario autorizado para que conduzca vehículos de la Institución, cuya licencia le fuera suspendida temporal o definitivamente por fallo judicial, deberá informarlo de inmediato a la Oficina de Transportes, Mantenimiento y Vigilancia con copia a sus respectivas Jefaturas, para ser anotado en el “Registro de Conductores autorizados de la Institución”.

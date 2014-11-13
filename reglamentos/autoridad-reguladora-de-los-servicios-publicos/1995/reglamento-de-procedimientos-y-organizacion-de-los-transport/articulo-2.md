@@ -1,1 +1,0 @@
-Artículo 2°—Se considerarán vehículos de la Autoridad Reguladora, los que se haya adquirido y se encuentran inscritos a su nombre en el Registro de la Propiedad de Vehículos Automotores. Se regirán por las disposiciones del presente Reglamento en sus Capítulos I, II, III, IV, V, VI, VIII, y IX, excepto el Capítulo VII que rige lo correspondiente al pago de kilometraje.
