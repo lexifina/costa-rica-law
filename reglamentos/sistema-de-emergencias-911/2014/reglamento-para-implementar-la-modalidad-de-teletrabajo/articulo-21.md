@@ -1,0 +1,1 @@
+Artículo 21.—La jefatura puede requerir de la realización de actividades presenciales en las oficinas, para lo cual, el Sistema deberá acondicionar un espacio físico que disponga de conectividad y le permita al tele-trabajador hacer sus funciones de forma transitoria en dicho sitio.

@@ -1,0 +1,1 @@
+Artículo 5º—La incorporación a la modalidad de teletrabajo, es voluntaria por parte del servidor. La institución tiene la potestad para otorgar y revocar la modalidad de teletrabajo, cuando así lo considere conveniente y con fundamento en las políticas y lineamientos al efecto.

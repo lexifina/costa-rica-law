@@ -1,0 +1,1 @@
+Artículo 23.—Canalizar con la Comisión de Teletrabajo todos los aspectos y acciones de mejora relacionados con la modalidad de tele-trabajo para garantizar el cumplimiento de los objetivos del programa.

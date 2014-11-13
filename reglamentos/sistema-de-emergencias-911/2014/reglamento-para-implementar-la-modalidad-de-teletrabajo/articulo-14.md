@@ -1,0 +1,1 @@
+Artículo 14.—El Proceso de TI verificará la existencia de los inventarios de hardware y software propiedad de la institución de forma remota, asignados al tele-trabajador para el desempeño de sus funciones. En caso que se identifique alguna anomalía, se comunicará al tele-trabajador y a la jefatura directa para que tome las medidas correspondientes.

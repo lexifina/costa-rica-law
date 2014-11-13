@@ -1,0 +1,1 @@
+Artículo 19.—Evaluar las metas del tele-trabajador, según metodología definida y realizar las acciones que pertinentes para mejorar el desempeño del tele-trabajador. Para este fin, debe llevar los registros correspondientes, hacer sesiones de seguimiento de metas e informar al teletrabajador así como a la Comisión de Teletrabajo para el seguimiento del cumplimiento de las metas.

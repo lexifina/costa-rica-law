@@ -1,0 +1,1 @@
+Artículo 4º—Todas las áreas de la institución tienen la responsabilidad de apoyar en el proceso de inclusión, mantenimiento y seguimiento de los teletrabajadores al programa de teletrabajo, así mismo deberán brindar los informes que la comisión de tele-trabajo solicite en dicha materia.

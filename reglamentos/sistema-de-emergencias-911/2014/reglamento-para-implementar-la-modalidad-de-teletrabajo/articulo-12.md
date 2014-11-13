@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad del teletrabajador ante la falla de los equipos: El tele-trabajador notificará en forma inmediata y simultánea tanto al Coordinador de área o Supervisor, como al Proceso Tecnológico cualquier tipo de falla que se presente en el equipo con que cuenta en especial si la misma le imposibilita el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 16.—El Proceso de TI es el responsable en primera instancia de brindarle al tele-trabajador asistencia técnica oportuna para la resolución de los problemas de infraestructura tecnológica mediante medios remotos.

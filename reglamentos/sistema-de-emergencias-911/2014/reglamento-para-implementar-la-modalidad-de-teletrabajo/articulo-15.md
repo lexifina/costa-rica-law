@@ -1,0 +1,1 @@
+Artículo 15.—El Proceso de TI brindará soporte técnico únicamente a las herramientas de software y sistema operativo necesarios para realizar el tele-trabajo. Se excluye de cualquier solicitud de instalación, configuración o solución de problemas sobre paquetes de software que no sean requeridos para el tele-trabajo.

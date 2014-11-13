@@ -1,0 +1,1 @@
+Artículo 22.—Es responsable de que se mantenga el ambiente laboral adecuado, las retribuciones, oportunidades de desarrollo e integración social de los tele-trabajadores que participan en la modalidad de teletrabajo.
