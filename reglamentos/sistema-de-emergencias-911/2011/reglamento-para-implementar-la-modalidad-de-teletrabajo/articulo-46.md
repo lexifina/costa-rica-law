@@ -1,1 +1,0 @@
-Artículo 46.—Determinar si la información a la cual tiene acceso el tele-trabajador es de carácter confidencial y sensible a los intereses de la institución, en apego al cumplimiento con la Ley de Creación del Sistema de Emergencias 9-1-1.

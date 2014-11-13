@@ -1,1 +1,0 @@
-Artículo 24.—Responsabilidad del teletrabajador ante la falla de los recursos informáticos. El tele-trabajador notificará en forma inmediata y simultánea tanto al superior jerárquico como al Proceso Tecnológico cualquier tipo de falla que se presente en el equipo informático, en especial si la misma le imposibilita el cumplimiento de sus funciones.

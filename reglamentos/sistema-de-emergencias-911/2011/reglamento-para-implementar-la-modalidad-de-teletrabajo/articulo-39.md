@@ -1,1 +1,0 @@
-Artículo 39.—Independientemente del lugar donde se desarrollen las actividades a tele-trabajar, el funcionario debe cumplir con todas las condiciones que establezca la normativa institucional sobre esta modalidad.

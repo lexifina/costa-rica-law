@@ -1,1 +1,0 @@
-Artículo 15.—Las personas de nuevo ingreso que sean contratadas bajo esta modalidad deberán mantener las condiciones acordadas durante la relación laboral. En caso de que dichas condiciones cambien, se analizará la situación siguiendo el debido proceso por parte de la jefatura correspondiente, según lo dispuesto en el artículo anterior.

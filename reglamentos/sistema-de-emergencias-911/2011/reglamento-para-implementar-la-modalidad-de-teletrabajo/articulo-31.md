@@ -1,1 +1,0 @@
-Artículo 31.—El tele-trabajador es responsable directo de la confidencialidad y seguridad de la información que utilice y pueda acceder, evitando por todos los medios su uso inapropiado según se ha definido en la Ley de Creación del Sistema de Emergencias 9-1-1 y en el Reglamento Autónomo de Servicio.

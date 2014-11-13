@@ -1,1 +1,0 @@
-Artículo 26.—Responsabilidad en caso de daño o pérdida de los recursos informáticos. En caso de deterioro o de robo de los equipos de trabajo institucionales, los tele-trabajadores incurrirán en responsabilidad civil cuando éste se haya causado por dolo o culpa grave, previa investigación que deberá realizar el Sistema sobre la situación acaecida.

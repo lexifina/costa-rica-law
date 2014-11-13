@@ -1,1 +1,0 @@
-Artículo 40.—El tele-trabajador debe asumir los gastos de electricidad, agua y alimentación, relacionados con el desarrollo de las actividades tele-trabajables. En el caso de traslados para realizar giras o reuniones de trabajo como parte de su función aplica lo establecido en la normativa laboral vigente.

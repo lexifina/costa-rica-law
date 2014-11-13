@@ -1,1 +1,0 @@
-Artículo 7º—Todas las jefaturas y trabajadores relacionados directa o indirectamente con las personas que tele trabajen, deberán colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos que persigue y la normativa asociada.

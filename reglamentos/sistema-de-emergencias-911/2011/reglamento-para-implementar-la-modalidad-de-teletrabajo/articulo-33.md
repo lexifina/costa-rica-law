@@ -1,1 +1,0 @@
-Artículo 33.—En caso de que las actividades se realicen desde la casa de habitación, el trabajador debe acondicionar un espacio físico con las características recomendadas por el Subproceso de Salud Ocupacional y permitir el acceso para las inspecciones de condiciones ergonómicas, de seguridad e higiene en el puesto.

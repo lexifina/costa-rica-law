@@ -1,1 +1,0 @@
-Artículo 52.—Cuando se determine mediante el debido proceso ante la comisión de tele-trabajo, que las causas de incumplimiento o bajo desempeño del tele-trabajador, son atribuibles a la jefatura, la comisión de tele-trabajo coordinará las acciones correspondientes para sentar las responsabilidades del caso y actuar en consecuencia según normativa institucional.

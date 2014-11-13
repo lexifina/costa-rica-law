@@ -1,1 +1,0 @@
-Artículo 35.—El tele-trabajador es responsable de los activos institucionales que utilice en su hogar, telecentro o centro destinado para realizar sus funciones durante el tele-trabajo. En caso de daño, pérdida o deterioro, el Sistema procederá con la investigación del caso para determinar la responsabilidad o no del funcionario sobre lo ocurrido.

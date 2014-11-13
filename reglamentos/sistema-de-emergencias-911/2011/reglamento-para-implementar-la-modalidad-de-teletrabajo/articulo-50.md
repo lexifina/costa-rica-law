@@ -1,1 +1,0 @@
-Artículo 50.—Evaluar las metas del tele-trabajador, según metodología definida por la comisión de tele-trabajo y capital humano, y recomendar las acciones que permitan mejorar el desempeño del tele-trabajador. Para este fin, debe llevar los registros correspondientes, hacer sesiones de seguimiento de metas e informar a los interesados.

@@ -1,1 +1,0 @@
-Artículo 55.—Canalizar con la comisión de teletrabajo todos los aspectos y acciones de mejor relacionados con la modalidad de tele-trabajo para garantizar el cumplimiento de los objetivos del programa.

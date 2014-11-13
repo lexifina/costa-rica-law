@@ -1,1 +1,0 @@
-Artículo 13.—El Sistema de Emergencias 9-1-1 se reserva la facultad de incorporar o no a sus trabajadores en esta forma de trabajo, dependiendo de las condiciones, actividades, aprobación de pruebas psicométricas, conectividad disponible, conveniencia institucional, y otros aspectos que se estimen pertinentes.

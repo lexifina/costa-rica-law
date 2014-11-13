@@ -1,1 +1,0 @@
-Artículo 44.—En caso de que se dé por finalizado el contrato de tele-trabajo deberá devolver a la brevedad los activos que fueron facilitados para el desempeño de sus funciones a la institución, de conformidad con el procedimiento que así se establezca.

@@ -1,1 +1,0 @@
-Artículo 23.—Con el objetivo de mejorar el soporte para los tele-trabajadores el Sistema, podría asignar computadoras virtuales que simplifiquen la administración de la plataforma y centralicen la seguridad de la información.

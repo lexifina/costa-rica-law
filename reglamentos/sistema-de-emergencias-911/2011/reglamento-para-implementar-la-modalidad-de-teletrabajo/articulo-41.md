@@ -1,1 +1,0 @@
-Artículo 41.—El tele-trabajador debe brindar información verídica y oportuna en todos los procesos de investigación, evaluación del desempeño y medición a los que deba someterse. En caso de comprobarse un incumplimiento, se podría dar por finalizada su participación en el programa, sin menoscabo de aplicar las medidas disciplinarias que correspondan.
