@@ -16,3 +16,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 1 | 2014-03-27 | la propia norma |
 | 2 | 2014-11-06 | Decreto Ejecutivo 38725 (2014-11-06) |
 | 3 | 2014-11-06 | Decreto Ejecutivo 38739 (2014-11-06) |
+| 4 | 2014-11-13 | Decreto Ejecutivo 38738 (2014-11-13) |
