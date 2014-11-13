@@ -1,0 +1,1 @@
+Artículo 40.—Los funcionarios que asisten a los eventos de capacitación deberán contar con el apoyo y compromiso de su coordinador para obtener el máximo aprovechamiento de la misma, tratando así de no interrumpirle durante el tiempo en que se desarrolle el evento.

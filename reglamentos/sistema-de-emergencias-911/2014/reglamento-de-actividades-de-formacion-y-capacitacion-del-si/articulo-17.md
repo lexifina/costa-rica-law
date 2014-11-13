@@ -1,0 +1,1 @@
+Artículo 17.—Las modalidades de capacitación se realizarán tomando en cuenta el tema a desarrollar, el grupo al que va dirigido, el objetivo que se pretende lograr entre otros, para lo cual se podrán desarrollar actividades de aprovechamiento o participación como: talleres, charlas, conferencias, clases magistrales, capacitación virtual entre otros.

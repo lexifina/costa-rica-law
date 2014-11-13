@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las modalidades de formación
+Artículo 15.—La capacitación en el Sistema de Emergencias 9-1-1 estará orientada a complementar y perfeccionar las competencias de cada funcionario, así como al desarrollo de sus funciones y ampliación de sus conocimientos acorde a los perfiles de cada uno y las exigencias de éste. Las modalidades que se determinen para capacitar a los funcionarios podrán surgir: del modelo de desarrollo por competencias, del tipo de necesidad que se requiera satisfacer, del objetivo o meta que se pretenda lograr o bien de la evaluación del desempeño, siempre y cuando la institución cuente con este instrumento.

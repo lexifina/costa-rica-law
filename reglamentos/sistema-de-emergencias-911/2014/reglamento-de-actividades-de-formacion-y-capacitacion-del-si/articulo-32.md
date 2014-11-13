@@ -1,0 +1,1 @@
+Artículo 32.—Las entidades públicas o privadas que deseen obtener capacitación por parte del Sistema de Emergencias 9-1-1, podrán informarse sobre los eventos disponibles mediante la página Web del Sistema, o bien utilizando cualquier otro medio accesible para tal fin.

@@ -1,0 +1,1 @@
+Artículo 34.—El Área de Capital Humano deberá asegurarse que las entidades beneficiadas sufraguen los costos del evento como son, alimentación, hospedaje, equipo audiovisual, útiles y materiales según cada caso en particular, antes de comprometerse a impartir el mismo.

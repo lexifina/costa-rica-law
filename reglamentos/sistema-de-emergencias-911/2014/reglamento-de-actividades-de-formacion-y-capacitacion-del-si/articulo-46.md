@@ -1,0 +1,1 @@
+Artículo 46.—En caso de incumplimiento de contrato y para efectos de determinar el monto total del costo de la beca, se hará de acuerdo con la erogación real que la Institución ha hecho, considerando la suma establecida en el contrato como una estimación y además a título de indemnización se aplicará el 20% sobre el monto total de la responsabilidad económica fijada.

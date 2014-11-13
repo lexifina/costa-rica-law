@@ -1,0 +1,1 @@
+Artículo 14.—Los espacios destinados para Capacitación dentro del edificio, como laboratorio y aulas, serán administrados por el Área de Capital Humano y tendrán prioridad sobre cualquier otro evento, las actividades de capacitación previamente definidas y coordinadas con dicha instancia.

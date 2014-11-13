@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del plan de capacitación institucional
+Artículo 8º—Será responsabilidad del Área de Capital Humano realizar un plan de capacitación institucional alineado con el Plan Estratégico del Sistema de Emergencias 9-1-1 vigente, el mismo deberá mantenerse actualizado con los ajustes que se realicen al Plan Estratégico. Las áreas deberán proporcionar toda la ayuda e información correspondiente en el momento en que el Área de Capital Humano lo solicite para llevar a cabo éste plan. Dicho plan de capacitación institucional deberá ser aprobado por el Coordinador del Proceso de Soporte a la Gestión.

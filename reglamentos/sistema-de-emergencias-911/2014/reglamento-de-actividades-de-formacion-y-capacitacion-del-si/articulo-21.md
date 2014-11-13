@@ -1,0 +1,1 @@
+Artículo 21.—Los eventos de capacitación deberán ser gestionados por el Área de Capital Humano ,cumpliendo para ello los procedimientos que se dispongan con el objetivo de respetar los lineamientos de contratación administrativa y pagos que se encuentran vigentes.

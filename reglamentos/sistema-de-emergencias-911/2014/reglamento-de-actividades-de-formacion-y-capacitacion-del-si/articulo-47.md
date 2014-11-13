@@ -1,0 +1,4 @@
+Artículo 47.—De las sanciones por incumplimiento en los eventos de capacitación.
+a) Retribuir a la institución el costo total del evento, así como el tiempo otorgado o cualquier otra erogación que hubiese realizado la institución, en caso de inasistencia, no aprobación o bien abandono.
+b) Aquel funcionario que deje de asistir a un evento de capacitación, sin justa causa, podría ser sancionado por abandono de trabajo.
+c) En caso de que el evento no hubiese tenido costo alguno para la institución, pero igualmente el funcionario deje de asistir, no lo apruebe, o bien lo abandone sin causa justa, deberá retribuir al Sistema el tiempo total otorgado para la asistencia así como el pago por concepto de tiempo extraordinario si éste se dio, así como cualquier otro monto que por erogación hubiese realizado el Sistema a fin de que el funcionario asistiese al evento.

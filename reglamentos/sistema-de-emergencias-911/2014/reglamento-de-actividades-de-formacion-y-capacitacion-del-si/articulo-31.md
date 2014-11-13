@@ -1,0 +1,1 @@
+Artículo 31.—Esta capacitación nunca podrá ser prioridad en relación a la capacitación interna, por ello el Área de Capital Humano tiene la responsabilidad de programar los eventos en el transcurso del año.

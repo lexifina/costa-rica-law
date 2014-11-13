@@ -1,0 +1,3 @@
+Artículo 23.—Los eventos de formación son los considerados como becas, y podrían comprender los siguientes beneficios:
+a) El pago por el valor de los derechos de matrícula, materias, laboratorios, carné, requisitos y derechos de graduación según convenga a la institución.
+b) A los trabajadores de la Institución que sean cubiertos por este sistema de formación, cuando dichos estudios se realicen en el país y fuera del lugar donde han sido contratados para el desempeño de sus funciones, éste les podría brindar una suma para pasajes y estadía, la cual deberá estar de acuerdo con la Tabla de Viáticos, a conveniencia de la institución.

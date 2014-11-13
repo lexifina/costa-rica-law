@@ -1,0 +1,1 @@
+Artículo 20.—La aprobación definitiva del candidato para optar por un evento de formación (beca) será otorgada por el Director del Sistema, previo estudio y recomendación no vinculante elaborada por el Área de Capital Humano, con el visto bueno del Coordinador del Proceso.

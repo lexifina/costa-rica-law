@@ -1,0 +1,1 @@
+Artículo 39.—Las capacitaciones que se programen a lo interno, serán debidamente informadas al personal, utilizando para ello los medios de comunicación que se estimen convenientes, indicando el objetivo de la misma, nombre del instructor, la hora y el lugar y será responsabilidad de los coordinadores de área, el cumplimiento de la asistencia del personal subordinado.

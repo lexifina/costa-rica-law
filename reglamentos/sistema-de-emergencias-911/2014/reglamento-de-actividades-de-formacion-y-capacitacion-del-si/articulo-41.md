@@ -1,0 +1,1 @@
+Artículo 41.—Las llegadas tardías, ausencias y abandonos a los eventos de capacitación interna serán sancionadas conforme se establece el Reglamento Autónomo de Servicio. La firma de las listas de asistencia se regirán con base en el procedimiento que el Área de Capital Humano defina.
