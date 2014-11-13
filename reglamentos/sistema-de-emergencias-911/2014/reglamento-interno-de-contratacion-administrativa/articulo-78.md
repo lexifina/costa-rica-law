@@ -1,0 +1,2 @@
+Artículo 78.—El cobro de las multas y cláusulas penales, se hará con cargo a la factura pendiente de pago. En caso de que lo anterior no resulte viable, se ejecutará la garantía de cumplimiento hasta por el monto respectivo.
+La Proveeduría una vez en firme la resolución del Proceso Sumario, deberá notificar al contratista el cobro de la multa o cláusula penal y a Finanzas la retención del monto correspondiente en las facturas pendientes de pago de ese contratista.

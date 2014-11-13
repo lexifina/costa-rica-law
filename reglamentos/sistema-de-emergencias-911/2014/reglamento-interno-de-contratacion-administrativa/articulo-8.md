@@ -1,0 +1,1 @@
+Artículo 8º—Estará conformado por un Coordinador de Proceso, un representante de la Proveeduría, uno de Soporte Jurídico, y por los funcionarios de las áreas involucradas necesarias para la toma de decisiones.

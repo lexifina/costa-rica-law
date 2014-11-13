@@ -1,0 +1,3 @@
+SECCIÓN II
+Registro de Proveedores
+Artículo 14.—El Registro de Proveedores constituye un elemento esencial de consulta para los Administradores de Contratos de las dependencias del 9-1-1, que permitirá mantener actualizados los requisitos y las características de los proveedores en cuanto a bienes y servicios que éstos ofrecen. Tiene por objeto facilitar la consecución de los bienes y servicios necesarios para el 9-1-1, agilizando en lo posible los procedimientos de adquisiciones que se basen en el mismo. Por ello el interesado en registrarse se inscribirá única y exclusivamente en los bienes y servicios que esté en capacidad de suministrar. La Plataforma Mer-Link llevará un registro de las personas físicas o jurídicas que se encuentren apercibidas o inhabilitadas.

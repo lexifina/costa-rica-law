@@ -1,0 +1,1 @@
+Artículo 25.— Cuando se presente una diferencia mayor a un 10% entre el monto estimado y el monto recomendado de adjudicación, el Administrador de Contrato deberá justificar por escrito la diferencia en la respectiva recomendación de adjudicación, aportando la información suficiente.

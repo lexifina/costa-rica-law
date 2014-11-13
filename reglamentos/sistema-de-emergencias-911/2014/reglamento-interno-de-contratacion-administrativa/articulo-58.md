@@ -1,0 +1,2 @@
+Artículo 58.—Una vez presentado el recurso, la Proveeduría en un plazo máximo de dos días hábiles analizará la admisibilidad del recurso y la Proveeduría notificará al recurrente, en caso de que se declare inadmisible. En caso de inadmisibilidad del recurso, la Proveeduría podrá rechazarlo de plano.
+Cuando éste resulte admisible para su trámite, la Proveeduría notificará a la parte adjudicada que ha sido recurrida, dentro del mismo plazo señalado anteriormente, concediéndole una audiencia por el término de tres días hábiles siguientes a la notificación.

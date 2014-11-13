@@ -1,0 +1,1 @@
+Artículo 24.—En las licitaciones públicas y las abreviadas, la publicidad del concurso se hará en la Plataforma Mer-link y por medio de la Página Web de la Institución. En La Gaceta se hará de manera obligatoria para las licitaciones públicas y de manera alternativa o cuando no exista la cantidad mínima de proveedores en las licitaciones abreviadas.

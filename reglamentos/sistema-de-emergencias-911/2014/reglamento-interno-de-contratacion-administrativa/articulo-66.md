@@ -1,0 +1,1 @@
+Artículo 66.—Una vez que sean remitidos los respectivos pronunciamientos o cuando el mismo sea conjunto, la Proveeduría deberá enviar la respuesta debidamente firmada por la Administración Superior, al Órgano Contralor antes de que se cumpla el plazo concedido por éste.

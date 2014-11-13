@@ -1,0 +1,1 @@
+Artículo 54.—Corresponde a la Proveeduría integrar y enviar la respuesta, debidamente firmada por la Administración Superior, a la Contraloría General de la República dentro del plazo de la audiencia.

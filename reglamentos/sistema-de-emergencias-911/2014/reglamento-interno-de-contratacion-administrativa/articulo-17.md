@@ -1,0 +1,3 @@
+SECCIÓN III
+Disponibilidad Presupuestaria
+Artículo 17.—Las contrataciones que se realicen deberán contar con recursos suficientes al momento de dictarse la nota de decisión inicial y para el acto de adjudicación, lo cual deberá acreditarse en el expediente respectivo, lo anterior siendo responsabilidad del administrador del contrato. Podrá iniciarse la contratación sin el contenido presupuestario y asignarlo al momento de dictar el acto de adjudicación, conforme lo señala el Reglamento de la Ley de Contratación Administrativa siendo fundamental la aprobación de la Contraloría General de la República.

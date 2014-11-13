@@ -1,0 +1,1 @@
+Artículo 74.—La Dirección nombrará al Órgano Director para que dé inicio al procedimiento de rescisión de contrato, con fundamento en los motivos de interés público, caso fortuito o fuerza mayor, o mutuo acuerdo acreditados por el Administrador de Contrato.

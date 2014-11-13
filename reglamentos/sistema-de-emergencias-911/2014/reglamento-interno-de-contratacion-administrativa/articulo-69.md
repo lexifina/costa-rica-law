@@ -1,0 +1,4 @@
+SECCIÓN IV
+Recursos en otros procedimientos
+Artículo 69.—Corresponderá a la Proveeduría, notificar la sanción de apercibimiento y/o inhabilitación, resolución contractual, rescisión, ejecución de garantías, reclamos y cobros administrativos, contrataciones irregulares entre otros; así como trasladar al Jerarca los recursos de revocatoria contra los actos mencionados en relación con el contratista. La solicitud de los procedimientos anteriores será gestionada por el Administrador de Contrato.
+Los actos finales o los que dicten recursos podrán ser motivados de manera referencial, según lo establecido en el artículo 136 de la Ley General de la Administración Pública para lo cual, se deberán adjuntar los informes, dictámenes o resoluciones previas que se hayan emitido en el caso particular, no debiendo transcribir su contenido.

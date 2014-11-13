@@ -1,0 +1,1 @@
+Artículo 59.—Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Proveeduría los enviará al Administrador de Contrato y a Soporte Jurídico del 9-1-1, para que ambos se pronuncien en un plazo de tres días hábiles.

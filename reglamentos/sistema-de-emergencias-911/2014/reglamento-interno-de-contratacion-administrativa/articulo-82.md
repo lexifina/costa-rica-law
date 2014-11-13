@@ -1,0 +1,1 @@
+Artículo 82.—Cuando en el trámite de una contratación administrativa se determine que un funcionario no cumplió con las funciones y obligaciones definidas en el presente reglamento por negligencia, culpa grave o dolo, será sancionado de conformidad con base en el procedimiento que establece la Ley General de la Administración Pública y cualquier otra norma atinente.
