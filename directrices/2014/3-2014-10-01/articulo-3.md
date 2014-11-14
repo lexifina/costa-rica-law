@@ -1,0 +1,1 @@
+Tercero: señalar la ubicación geográfica, misma que debe estar referida a la cartografía oficial, con su respectiva cuadrícula referida a los valores de coordenadas a la proyección cartográfica CRTM05, indicando la escala correspondiente y los detalles del mapa básico.
