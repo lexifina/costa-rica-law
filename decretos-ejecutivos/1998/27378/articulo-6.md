@@ -1,1 +1,0 @@
-Artículo 6°—En aquellas poblaciones urbanas y rurales que generen de 20 a 40 toneladas diarias de desechos ordinarios, podrá usarse cualquiera de los tipos de relleno sanitario a que alude el artículo 3 de las presentes disposiciones, o una combinación de ambos, según lo requieran las condiciones financieras y ambientales de cada caso.

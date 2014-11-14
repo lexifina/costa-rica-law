@@ -1,1 +1,0 @@
-Artículo 9°—Toda entidad de aseo o empresa comercial o industrial, pública o privada, interesada en llevar a cabo un proyecto de relleno sanitario, deberá contar con un permiso de ubicación, emitido por la Dirección de Protección al Medio Ambiente Humano.
