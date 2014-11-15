@@ -1,0 +1,1 @@
+Artículo 3º—Del financiamiento: El contenido presupuestario para el financiamiento de este programa de otorgamiento de becas para estudio de música, se obtendrá de los recursos del presupuesto de la institución, específicamente del ingreso por patente de licores.

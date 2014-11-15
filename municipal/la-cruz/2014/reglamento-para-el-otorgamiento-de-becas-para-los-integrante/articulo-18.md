@@ -1,0 +1,1 @@
+Artículo 18.—El Director o Maestro de Música remitirá en forma trimestral a la Comisión Municipal de Becas, las calificaciones de los estudiantes con la recomendación de continuar o suspender la beca otorgada.

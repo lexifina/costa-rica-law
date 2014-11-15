@@ -1,0 +1,1 @@
+Artículo 11.—De la adjudicación: Luego de conocido el dictamen de la Comisión, el Concejo Municipal, mediante acuerdo definitivamente aprobado, será quien adjudique las becas municipales para estudio de música.

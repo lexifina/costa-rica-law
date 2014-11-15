@@ -1,0 +1,2 @@
+Artículo 12.—Del trámite posterior a la adjudicación: La secretaría del Concejo Municipal enviará el acuerdo a la Alcaldía Municipal, para proceder a coordinar las acciones con las dependencias administrativas correspondientes al área financiero-contable, a efectos de realizar las transferencias bancarias correspondientes.
+Las personas que resulten beneficiados deben de proceder a la apertura de una cuenta bancaria en una de las instituciones en donde la Municipalidad realice transferencias. Los giros se harán durante los primeros cinco días hábiles de cada mes.
