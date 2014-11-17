@@ -1,0 +1,2 @@
+Artículo 2º—El documento que contiene el Plan Nacional de Desarrollo 2015-2018 está disponible en la dirección electrónica del Ministerio de Planificación Nacional y Política Económica (http://www.mideplan.go.cr). Una versión física del Plan Nacional de Desarrollo se custodiará en el Centro de Documentación del Ministerio de Planificación Nacional y Política Económica.
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato el Plan Nacional de Desarrollo 2015-2018, puede ser consultado en la siguiente dirección: Plan Nacional de Desarrollo 2015-2018)
