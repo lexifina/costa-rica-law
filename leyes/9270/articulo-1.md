@@ -1,0 +1,7 @@
+N° 9270
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+DECLARACIÓN DE LA SEMANA
+DE LA SEGURIDAD SOCIAL
+ARTÍCULO 1.- Se declara la última semana del mes de abril como Semana de la Seguridad Social.
