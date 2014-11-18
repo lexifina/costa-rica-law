@@ -1,23 +1,21 @@
-Artículo 33.—Procedimiento. El procedimiento se ajustará a las siguientes reglas:
-1. Una vez recibida la denuncia de los posibles incumplimientos de la entidad la Unidad de Acreditación designará mediante resolución, a las personas que les corresponda fungir como Órgano Director, a quienes les corresponda la sustanciación del procedimiento.
-2. El Órgano Director del procedimiento será colegiado y estará integrado por tres personas, que sean pertenecientes a las siguientes dependencias:
-a) Unidad de Acreditación
-b) Núcleo
-c) Asesoría Legal
-3. Nombrado el Órgano Director este evaluará el mérito de los autos y determinará si la prueba aportada es suficiente para acreditar las faltas atribuidas. Caso contrario, realizará una investigación sumaria con el fin de incorporar al expediente la prueba adicional que estime necesaria para sustentar los cargos, que en ningún caso podrá prolongarse por más de quince días.
-4. Concluida esta etapa, el Órgano Director mediante resolución razonada, dispondrá el inicio del procedimiento, el cual contendrá lo siguiente:
-4.1 La fecha y hora en que se dicto ese acto.
-4.2 El detalle de los hechos que fundamentan el procedimiento y la imputación de los cargos respectivos.
-4.3 Las consideraciones fácticas jurídicas que sustentan la eventual responsabilidad, con indicación de las supuestas normas infringidas y de las eventuales sanciones que pudieran corresponderle.
-4.4 Convocatoria a la audiencia oral y privada con indicación de la fecha y hora en que se realizará la diligencia.
-4.5 Indicación de los apercibimientos a que queda sujeta la entidad.
-4.6 Mención de los recursos admisibles contra dicho acto.
-4.7 Nombre y firma de los integrantes del Órgano Director.
-5. La convocatoria a la audiencia oral y privada deberá realizarse con no menos de quince días de anticipación.
-6. La audiencia oral y privada se tramitará de acuerdo con las siguientes reglas:
-6.1 Se llevará a cabo en la fecha, hora y lugar señalados en la resolución inicial del procedimiento y sin interrupción durante las audiencias consecutivas que sean necesarias para su terminación.
-6.2 Se suspenderá únicamente cuando medie una causa suficientemente justificada, acreditada por la institución o por la entidad investigada, cuando debe resolverse una gestión que por su naturaleza afecte su continuación, cuando durante su desarrollo se produjeren alteraciones sustanciales al procedimiento que deban ser corregidas como requisito para su continuación. Cuando el Órgano Director decida la suspensión de la audiencia, en el mismo acto anunciará el día y la hora de su continuación, lo cual equivaldrá como citación para todas las partes.
-6.3 A dicha audiencia deberá comparecer el representante legal o dueño de la entidad investigada, quien podrá hacerse acompañar de uno o varios profesionales en Derecho, técnicos o personas calificadas que lo asesoren durante su desarrollo, sin que la ausencia injustificada de alguno de ellos, impida la continuación de la audiencia.
-6.4 Se levantará un acta de la comparecencia la cual se leerá a las partes una vez finalizada la diligencia. Esa acta será firmada por las personas que funjan como Órgano Director y por todas las partes.
-Terminada la audiencia, el Órgano Director prepara un informe que servirá de base para la adopción del acto final, el cual será remitido terminada la audiencia, el Órgano Director preparará un informe que servirá de base para la adopción del acto final, el cual será remitido al Consejo de Acreditación.
-7. El plazo para realizar el procedimiento será de dos meses contados a partir del nombramiento del Órgano Director, dentro del cual deberá entenderse incluidas, las etapas de descargo y evacuación de pruebas. Ese plazo solo podrá prorrogarse cuando concurran las circunstancias previstas en el artículo 263 de la Ley General de la Administración Pública y según el procedimiento establecido en esa norma.
+Artículo 33.—Sanciones. El incumplimiento de las disposiciones administrativas, de manejo o irrespeto a las disposiciones de propiedad intelectual del INA, Contrato de Transferencia Tecnológica, de uso de licencia de Diseños Curriculares del INA y licencia de uso de marca, para la Acreditación de Servicios de Capacitación y Formación Profesional, contrato del beneficio de la acreditación, los procedimientos internos o cualquier otra disposición que el INA establezca, acareará una sanción, según corresponda:
+Faltas Leves:
+Se considerarán faltas leves:
+1. Las infracciones al artículo 31 punto 3, incisos b), del presente Reglamento.
+2. Las así consideradas en otro Reglamento interno o en la Legislación especial que regule la relación de servicios.
+Las Faltas leves se sancionarán de la siguiente forma:
+a) Por una, con suspensión del uso de los logos institucionales por seis meses.
+b) Por dos o más suspensión de la acreditación por seis meses.
+Faltas Graves:
+1. Se considerarán faltas graves:
+Las infracciones al artículo 31:
+punto 1 incisos a), b), c), d), e), f).
+punto 2 inciso a), b), c), d).
+punto 3 incisos a), c), d), e), f), g), h), i) de este Reglamento.
+2. Las infracciones al artículo 32 de este Reglamento.
+3. Las así consideradas en la legislación especial que regule la relación de servicios.
+Las faltas graves del artículo 31 puntos 1 y 2, facultan al Instituto Nacional de Aprendizaje a suspender el proceso de Evaluación y rechazar la solicitud y la entidad no podrá presentar una nueva solicitud hasta haber transcurrido un período de un año.
+Las Faltas graves del artículo 31 punto 3, y del artículo 32 en su totalidad, se sancionarán de la siguiente forma:
+a) Por una, la revocación de la acreditación y ejecución de la garantía de cumplimiento.
+b) Por reincidencia la revocación de la acreditación y el no recibo de solicitudes nuevas por un período de 5 años, contados a partir de la vigencia de la sanción.
+Para catalogar la veracidad de las faltas en que se presume que incurren las personas físicas y jurídicas con Servicios de Capacitación y Formación Profesional acreditados, la Unidad de Acreditación deberá realizar una investigación para reunir la documentación respectiva y de ser necesario, trasladarla a la Presidencia para lo que corresponda. Sin embargo, para ejecutar las sanciones, ya sean de faltas leves o faltas graves, será el Concejo de Acreditación quien resuelva.

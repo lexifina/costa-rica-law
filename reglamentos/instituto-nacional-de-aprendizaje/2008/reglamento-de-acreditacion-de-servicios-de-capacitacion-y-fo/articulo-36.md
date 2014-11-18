@@ -1,2 +1,2 @@
-Artículo 36.—Recursos. Contra la resolución final que dicte el Consejo de Acreditación, será admisible el recurso de revocatoria o reposición, previsto en la Ley General de la Administración Pública, el cual se interpondrá dentro de los tres días hábiles siguientes a la notificación del acto.
-Contra los demás actos del procedimiento sólo cabrán los recursos que sean admisibles de acuerdo con la Ley General de la Administración Pública y dentro de los indicados en esa normativa.
+Artículo 36.—Aplicación de medidas cautelares. En casos muy calificados y mediante resolución razonada, se podrá dictar en cualquier etapa del procedimiento. La Presidencia Ejecutiva, por recomendación del órgano director, podrá decretar la medida que se considere pertinente y más adecuada a la situación.
+El plazo de vigencia de cualquier medida deberá ser establecido en la misma resolución que lo imponga.

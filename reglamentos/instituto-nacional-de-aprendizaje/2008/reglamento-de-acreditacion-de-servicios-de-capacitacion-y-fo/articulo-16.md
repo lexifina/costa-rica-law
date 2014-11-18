@@ -1,1 +1,1 @@
-Artículo 16.—Voto disidente. Cada integrante del Consejo de Acreditación puede hacer constar en el acta los motivos que justifiquen su voto disidente al acuerdo aprobado. En este caso debe firmar el acta correspondiente.
+Artículo 16.—Voto disidente. Cada integrante del Concejo de Acreditación puede hacer constar en el acta los motivos que justifiquen su voto disidente al acuerdo aprobado. En este caso debe firmar el acta correspondiente.

@@ -1,2 +1,2 @@
-Artículo 35.—Aplicación de medidas cautelares. En casos muy calificados y mediante resolución razonada, se podrá dictar en cualquier etapa del procedimiento, el Consejo de Acreditación, por recomendación del órgano director, podrá decretar la medida que se considere pertinente y más adecuada a la situación.
-El plazo de vigencia de cualquier medida deberá ser establecido en la misma resolución que lo imponga.
+Artículo 35.—Resolución del asunto. Concluido el procedimiento por parte del Órgano Director, la Presidencia Ejecutiva dictará la resolución final.
+Esa resolución deberá ser notificada a la persona interesada, en la forma y cualquiera de los medios permitidos por la Ley General de la Administración Pública.

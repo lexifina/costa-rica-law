@@ -1,3 +1,1 @@
-CAPÍTULO V
-Renovación
-Artículo 29.—Derecho de la renovación. La persona física o jurídica con servicios de capacitación y formación profesional acreditados podrá solicitar a la Unidad de Acreditación renovar dicho beneficio seis meses antes de su vencimiento y se regirá de acuerdo a lo tipificado en el procedimiento estipulado para dicho cometido.
+Artículo 29.—Archivo de los expedientes. Se dispondrá de un archivo de todos los trámites de acreditación realizados, en el cual se seguirá un orden lógico y se conservará por todo el tiempo necesario de acuerdo con las disposiciones legales.

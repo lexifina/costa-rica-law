@@ -15,3 +15,4 @@ Reglamento de Acreditación de Servicios de Capacitación y Formación Profesion
 | --- | --- | --- |
 | 1 | 2008-10-01 | la propia norma |
 | 2 | 2012-04-09 | Reglamento 4524 (2012-04-09) |
+| 3 | 2014-11-18 | Reglamento 4657 (2014-11-18) |
