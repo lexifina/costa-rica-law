@@ -110,6 +110,7 @@ Envío de correspondencia por correo externo | $5.00
 Constancias o certificaciones de conformidad de saldos sobre cuentas corrientes, de ahorro, certificaciones para Embajadas, Embajada Americana, para Firmas de Auditores Externas o Contadores Públicos Autorizados y otras referencias comerciales y no comerciales y certificación de cuenta cliente. | $10.00
 Órdenes de pago de cheques:
 Transferencias en el territorio nacional: | $15.00
+Consulta de saldos en cuentas corrientes y ahorro en Cajeros Automáticos propios, para cuentas con un saldo promedio mendual inferiro a $350.00. A partir de la quinta consulta (Así adicionado el servicio anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014) | US $ 0.20 (Así adicionado el monto anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014)
 Pago de planilla:
 Para acreditar en cuenta corriente o cuenta de ahorros. | 0.15% del total acreditado
 Entrega de moneda únicamente en bolsas predefinidas, cuando son montos importantes la solicitud debe hacerse con un día de anticipación: | 1% sobre monto solicitado
@@ -266,12 +267,14 @@ Crédito directo |
 - Mínimo | $0.30
 - Máximo | $1.00
 entidad de destino.siguiente forma: ¢32 c/u para el BCCR y ¢50 c/u Central de Costa Rica, es de ¢82 desglosado de la débitos directos, entrantes y salientes del Banco interbancario en lo referente al modelo de *SINPE. El costo establecido en acuerdo (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) |
+Transferencia crédito directo (24 horas) individual (Así adicionado el servicio anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014) | US$0.70 (Así adicionado el monto anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014)
 Débito directo |
 - Mínimo | $0.20
 - Máximo | $1.00
 *SINPE. El costo establecido en acuerdo interbancario en lo referente al modelo de débitos en tiempo real, entrantes y salientes del Banco Central de Costa Rica, es de ¢163 desglosado de la siguiente forma: ¢63 c/u para el BCCR y ¢100 c/u entidad de destino. (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) |
-Débito en tiempo real (DTR)
-Comisión (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011) | $1.00 (Así reformado el apartado anterior por acuerdo tomado en sesión N° 8489 del 25 de octubre de 2011)
+Transferencia en Tiempo Real (En línea) (Así reformado el servicio anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014)
+Comisión (Así reformado el servicio anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014) | US $ 1.75 (Así reformado el servicio anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014)
+Transferencia crédito Directo (24 horas) masivo empresas (Así adicionado el servicio anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014) | US$ 0.60 (Así adicionado el monto anterior mediante sesión N° 8797/14 del 18 de noviembre del 2014)
 BANCRÉDITO INTERNET
 Reimpresión de Clave | $2.00 por vez
 Sustitución de Multiclave | $5.00
