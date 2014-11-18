@@ -1,0 +1,1 @@
+Artículo 7º—Aquellos Grandes Contribuyentes Nacionales y Grandes Empresas Territoriales que se encuentran en las situaciones contempladas en los artículos 22 y 23 (inscripción, declaración y pago) del Reglamento del Impuesto sobre la Renta deberán observar esas reglas para cumplir con lo dispuesto en esta resolución.

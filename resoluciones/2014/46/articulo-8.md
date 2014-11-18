@@ -1,0 +1,1 @@
+Artículo 8º—Cuando la información presentada carezca de los elementos antes señalados, y de conformidad con las normas contables que establecen el contenido de los estados financieros auditados se considerará como incumplimiento en el suministro la información, infracción administrativa tipificada en el artículo 83 del Código Tributario.

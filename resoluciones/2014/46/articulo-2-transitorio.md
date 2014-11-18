@@ -1,0 +1,1 @@
+Transitorio 2º—Las empresas clasificadas durante el período fiscal 2014, como Grandes Contribuyentes Nacionales o Grandes Empresas Territoriales independientemente del régimen al que pertenezcan, deberán presentar los estados financieros auditados por un contador público autorizado, que sea independiente a la empresa, a partir del período fiscal mencionado.

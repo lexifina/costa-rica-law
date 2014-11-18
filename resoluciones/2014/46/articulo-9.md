@@ -1,0 +1,1 @@
+Artículo 9º—A partir de la vigencia de la presente resolución se deroga en todos su extremos, la resolución DGT-R-037-2013 de las once horas y quince minutos del veintiséis de setiembre del dos mil trece, publicada en La Gaceta N° 201 del 18 de octubre del 2013.
