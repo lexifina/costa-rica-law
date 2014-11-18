@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Durante esta semana el Ministerio de Salud y el Ministerio de Trabajo y Seguridad Social promoverán campañas, capacitaciones y actividades que impulsen la educación, formación y cultura de la seguridad social.
