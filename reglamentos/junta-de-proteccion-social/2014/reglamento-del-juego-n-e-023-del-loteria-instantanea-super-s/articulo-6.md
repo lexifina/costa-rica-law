@@ -1,0 +1,1 @@
+Artículo 6º—Mecánica de Juego: Raspar el área de juego, si una misma cantidad aparece 3 veces, gana esa cantidad. Si aparece la palabra RASPA en el área de raspado, participa directamente en el sorteo de la Rueda de la Fortuna. Raspe el área desprendible y coleccione las letras que aparecen. Si completa con ellas la palabra SUELDO, gana ¢1.250.000 mensuales por 2 años.
