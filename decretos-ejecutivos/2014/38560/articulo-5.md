@@ -1,0 +1,1 @@
+Artículo 5º—La administración, vigilancia y mantenimiento de este Refugio y el cumplimiento de las disposiciones técnicas que al efecto emita el Área de Conservación La Amistad Pacífico, serán responsabilidad de ACE LONGO MAI, SOCIEDAD DE RESPONSABILIDAD LIMITADA en su carácter de propietaria de los inmuebles afectados.

@@ -1,0 +1,1 @@
+Artículo 6º—ACE LONGO MAI, SOCIEDAD DE RESPONSABILIDAD LIMITADA deberá presentar ante el Área de Conservación La Amistad Pacífico, al menos un informe anual sobre los diferentes aspectos relacionados con los inmuebles y el estado de los recursos naturales dentro del mismo.

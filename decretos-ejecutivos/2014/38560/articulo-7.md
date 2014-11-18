@@ -1,0 +1,1 @@
+Artículo 7º—ACE LONGO MAI, SOCIEDAD DE RESPONSABILIDAD LIMITADA, gozará de los beneficios e incentivos establecidos en la Ley de Conservación de la Vida Silvestre, para lo cual el Área de Conservación La Amistad Pacífico emitirá los documentos necesarios para tales efectos.
