@@ -1,0 +1,1 @@
+Artículo Nº 8: Se aprueba el presente reglamento según acuerdo de junta directiva JD-475 correspondiente artículo VI), inciso 9), de la sesión ordinaria Nº 34-2014 celebrada el 28 de octubre del 2014.

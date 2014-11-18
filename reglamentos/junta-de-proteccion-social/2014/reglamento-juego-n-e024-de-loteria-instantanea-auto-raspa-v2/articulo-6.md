@@ -1,0 +1,1 @@
+Artículo Nº 6: Mecánica de Juego: Se debe de raspar el área de juego. Si una misma cantidad aparece 3 veces, gana esa cantidad. Si encuentra 3 símbolos de un VOLANTE, gana ¢20.000.000 o si se encuentra la palabra RASPA, en el área de raspado, participa directamente en el programa Rueda de la Fortuna.
