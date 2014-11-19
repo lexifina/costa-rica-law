@@ -1,0 +1,1 @@
+IV. Estas modificaciones al Plan de Cuentas para Entidades, Grupos y Conglomerados Financieros y al Plan de Cuentas para las Entidades de Seguros rigen a partir del 1° de enero del 2015, y el resto de las modificaciones rigen a partir de su publicación en el Diario Oficial La Gaceta.
