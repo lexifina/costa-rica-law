@@ -1,0 +1,1 @@
+Artículo 4º—Deróguese el inciso 6) del artículo 67, inciso 4) del artículo 68, y el artículo 72 del Reglamento de Organización del Ministerio de Seguridad Pública, Decreto Ejecutivo N° 36366-SP del 2 de noviembre del 2010, publicado en La Gaceta N° 21 del 31 de enero del 2011 y sus reformas.
