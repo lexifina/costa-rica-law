@@ -1,0 +1,1 @@
+Artículo 18.—Jornada. La modalidad de teletrabajo se podrá realizar uno, dos o tres días por semana, mismos que se definirán mediante acuerdo mutuo entre el teletrabajador y el titular subordinado. En los demás días el funcionario deberá desempeñar sus labores presenciales en las instalaciones del MAG o de sus órganos adscritos de desconcentración máxima y mínima.

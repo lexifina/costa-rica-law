@@ -1,0 +1,1 @@
+Artículo 10.—De la Rescisión del Contrato de Teletrabajo. El Titular Subordinado debe comunicar a la Comisión cuando deba de excluirse algún teletrabajador; sea por mutuo acuerdo, por conveniencia institucional, por decisión del teletrabajador o cuando el funcionario incumpla con las disposiciones establecidas en este Reglamento.

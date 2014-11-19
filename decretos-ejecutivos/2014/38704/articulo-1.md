@@ -1,0 +1,15 @@
+Nº 38704 -MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+Con fundamento en las facultades establecidas en el artículo 140, incisos 3), 8), 18) y 20) y en el artículo 146 de la Constitución Política, los artículos 25, 27.1, 28.2b, de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública y Decreto Ejecutivo Nº 37695 “Promoción del Teletrabajo en las Instituciones Públicas” del 11 de febrero del 2013.
+Considerando:
+I.—Que en Costa Rica se reguló por primera vez el Teletrabajo en el Sector Público en el año 2008 fecha a partir de la cual se inició la promoción, sensibilización e implementación de programas piloto de Teletrabajo en las instituciones del sector público cuyos resultados han sido de una valoración altamente positiva, que llevó al Poder Ejecutivo a emitir el Decreto Nº 37695-MP-MTSS, del 11 de febrero del 2013 “Promoción del Teletrabajo en las Instituciones Públicas”; el cual tiene por objeto promover y regular el Teletrabajo en las Instituciones del Estado, como instrumento para promover la modernización de las organizaciones, la inserción laboral, reducir el gasto en las Instituciones Públicas, incrementar la productividad del funcionario, el ahorro de combustibles, la protección del medio ambiente, y favorecer la conciliación de la vida personal, familiar y laboral, mediante la utilización de las Tecnologías de la Información y las Comunicaciones (TIC´s).
+II.—Que la figura del Teletrabajo se define como aquella modalidad de prestación de servicios de carácter no presencial, en virtud de la cual un funcionario público, puede desarrollar parte de su jornada laboral mediante el uso de medios telemáticos desde su propio domicilio, u otro lugar habilitado al efecto, siempre que las necesidades y naturaleza del servicio lo permitan, y en el marco de la política de conciliación de la vida personal, familiar y laboral de los funcionarios públicos.
+III.—Que el Ministerio de Agricultura y Ganadería, apoya dicha iniciativa del Gobierno, razón por la cual se suma a las instituciones que han decidido aplicar la técnica del teletrabajo, con la finalidad de obtener beneficios para el país colaborando en la reducción del consumo de combustible, en el impacto positivo en el medio ambiente.
+IV.—Que el artículo 15 del Decreto Ejecutivo N° 36765- MAG, denominado “Reglamento Autónomo de Servicio del Ministerio de Agricultura y Ganadería y sus Órganos Adscritos de Desconcentración Máxima y Mínima”, autoriza al MAG a aprobar un programa de teletrabajo. Por lo tanto,
+Decretan:
+Reglamento de Teletrabajo para el Ministerio
+de Agricultura y Ganadería (MAG)
+CAPÍTULO I
+De las disposiciones generales
+Artículo 1º—Objeto: El presente Decreto tiene por objeto establecer los lineamientos técnicos y administrativos necesarios para aplicar el Teletrabajo de conformidad con las nuevas tecnologías de la Información y Comunicación desarrolladas o que lleguen a serlo dentro del Ministerio de Agricultura y Ganadería, con la finalidad de mejorar la prestación de los servicios a los administrados, aumentar la productividad, reducir costos y mejorar la calidad de vida de sus funcionarios.
