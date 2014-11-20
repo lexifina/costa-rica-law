@@ -1,1 +1,1 @@
-Artículo 24.—Es terminantemente prohibido colocar o pintar rótulos en fachadas ciegas de colindancia con propiedad privada o pública. Se permitirán únicamente rótulos de funcionamiento ubicados en paredes colindantes, pertenecientes al mismo propietario del rótulo, cuando así lo autorice la Dirección de Operaciones de conformidad con lo prescrito en el presente reglamento.
+Artículo 24.— (Derogado por el artículo 76 del Reglamento para licencias municipales de la Municipalidad de Curridabat, aprobado mediante sesión ordinaria N° 238-2014 del 20 de noviembre del 2014)

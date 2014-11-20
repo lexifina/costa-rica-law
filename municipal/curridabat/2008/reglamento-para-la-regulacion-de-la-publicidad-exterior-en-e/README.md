@@ -14,3 +14,4 @@ Reglamento para la Regulación de la publicidad exterior en el cantón de Currid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-19 | la propia norma |
+| 2 | 2014-11-20 | Reglamento municipal 238 (2014-11-20) |
