@@ -1,3 +1,3 @@
 CAPÍTULO VI
 Disposiciones finales
-Artículo 30.—El encargado de caja chica y su suplente deberán rendir cada uno de su propio peculio, garantía por ¢250.000,00 (doscientos cincuenta mil colones no/100) a favor de la Institución, de conformidad con el artículo 13 de la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131.
+Artículo 30.—(Derogado por el artículo 25 aparte a) del Reglamento de rendición de cauciones a favor de la Autoridad Reguladora de los Servicios Públicos y su Órgano Desconcentrado, aprobado en sesión N° 67 del 20 de noviembre de 2014)
