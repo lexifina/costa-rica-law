@@ -1,1 +1,0 @@
-Artículo 25.—Compete a la Sección de Patentes Municipales la tramitación y resolución de todo lo relacionado con la Ley de Impuestos correspondientes a esta sección, así como velar por el fiel cumplimiento de dichas normas y de cualquier otro cuerpo normativo que regule la materia.

@@ -1,1 +1,0 @@
-Artículo 7º—Para toda solicitud de otorgamiento, traslado o traspaso de licencia comercial será requisito indispensable que los interesados estén al día en el pago de los tributos y demás obligaciones municipales.
