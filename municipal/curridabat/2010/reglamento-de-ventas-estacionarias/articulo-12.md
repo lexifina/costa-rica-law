@@ -1,1 +1,0 @@
-Artículo 12.—No podrá hacer uso de ningún tipo de mobiliario para ejercer la actividad en las vías públicas, los vendedores de lotería y chances, periódicos y lustradores de calzado; quienes deberán de hacerlo de forma pregonera en aquellos lugares donde la Municipalidad los autorice.

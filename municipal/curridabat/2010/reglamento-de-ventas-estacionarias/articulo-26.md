@@ -1,1 +1,0 @@
-Artículo 26.—La Municipalidad fomentará y colaborará en la formación de cooperativas de vendedores y a la vez iniciará los estudios necesarios coordinará junto con las otras instituciones a fin de lograr soluciones alternativas a los vendedores a través de su Dirección de Desarrollo Social.
