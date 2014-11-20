@@ -11,3 +11,5 @@ g) Poner a disposición del MEIC la información sobre la aplicación de los cas
 h) Mantener actualizado el Catálogo Nacional de Trámites.
 i) Fungir como canal oficial de comunicación en materia de simplificación de trámite, tanto a lo interno como a lo externo de la institución.
 j) Velar porque la mejora regulatoria y la simplificación de trámites que conlleve el rediseño de procesos y reorganización administrativa, se ejecuten de acuerdo con los lineamientos que para tales efectos emite el Ministerio de Planificación Nacional y Política Económica.
+k) Firmar y enviar los Formularios de Evaluación Costo Beneficio a la Dirección de Mejora Regulatoria del Ministerio de Economía, Industria y Comercio.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 38898 del 20 de noviembre de 2014)

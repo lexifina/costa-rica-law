@@ -1,4 +1,2 @@
-Artículo 57º—De los casos en que debe llenarse el formulario. El “Formulario de Análisis Costo - Beneficio” deberá completarse para los siguientes casos:
-1. Cuando la propuesta de regulación establezca nuevos trámites, requisitos y procedimientos sobre autorizaciones, licencias o permisos, modifiquen o eliminen trámites existentes.
-2. Cuando se eliminen trámites, sólo si en adición a tal eliminación se modifican o se crean nuevos trámites, requisitos y procedimientos sobre autorizaciones, licencias o permisos.
-Cuando la propuesta de regulación sea una reforma a un trámite existente, en la cual únicamente: se eliminan documentos y requisitos innecesarios, se establezcan plazos definidos, se reduzcan los plazos de resolución, o se disminuyan los procedimientos, solamente se deberán llenar la sección 1 (Información General) y el apartado 2.2 del formulario
+Artículo 57º—De los casos en que si debe llenarse la Sección II denominada Manifestación de Impacto Regulatorio: La Sección II denominada “Manifestación de Impacto Regulatorio”, deberá completarse únicamente cuando se responda de manera afirmativa a una de las preguntas que se formulan en la Sección I denominada “Control Previo de Mejora Regulatoria.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38898 del 20 de noviembre de 2014)

@@ -1,2 +1,2 @@
-Artículo 58º—De los casos en que no debe llenarse el formulario.
-El “Formulario de Análisis Costo - Beneficio” no se deberá llenar para los casos en que mediante la regulación propuesta únicamente se pretenda derogar o eliminar un trámite completo sin introducir ninguna otra reforma.
+Artículo 58º—De los casos en que no debe llenarse la Sección II denominada Manifestación de Impacto Regulatorio del Formulario: Esta sección del Formulario de Evaluación Costo Beneficio, no deberá llenarse, cuando las preguntas que se formulan en la Sección I denominada “Control Previo de Mejora Regulatoria” han sido contestadas de manera negativa por el ente proponente de la regulación. En este caso, dicha Sección deberá adjuntarse debidamente firmada por el oficial de Simplificación de Trámites, a la propuesta de regulación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38898 del 20 de noviembre de 2014)
