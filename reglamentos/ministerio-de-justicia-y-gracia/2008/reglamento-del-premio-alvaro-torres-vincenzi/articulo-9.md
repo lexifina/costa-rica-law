@@ -1,2 +1,0 @@
-Artículo 9º—El Jurado procederá al estudio y calificación de las candidaturas y rendirá su informe en sobre cerrado, para ser conocido en la Junta Administrativa, quien hará la declaratoria formal del resultado del concurso en su última sesión del mes de agosto y ordenará una comunicación en un diario de circulación nacional. La recomendación y la declaratoria formal del resultado son inapelables.
-En caso de fallecimiento del candidato seleccionado antes de recibir el Premio, éste se entregará al representante que legalmente corresponda

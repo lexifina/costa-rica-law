@@ -1,2 +1,0 @@
-Artículo 10.—La participación en el concurso implica la aceptación integral y sin reservas de todas las condiciones contenidas en el presente Reglamento. Su no cumplimiento implicará la exclusión del concurso.
-Artículo 2º—Este Reglamento deroga toda disposición que se le oponga. Rige a partir de su publicación en el Diario Oficial La Gaceta. Acuerdo firme J-067, adoptado por la Junta Administrativa del Registro Nacional de la sesión ordinaria Nº 07-2008, celebrada el día 14 de febrero del 2008.

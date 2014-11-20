@@ -1,1 +1,0 @@
-Artículo 5º—La Junta Administrativa del Registro Nacional dará la suficiente publicidad para promover la participación de interesados. En el mes de enero del año correspondiente a su otorgamiento, se hará la invitación para hacer proposiciones y la recepción vencerá el último día hábil del mes de junio. No es permitida la auto presentación.
