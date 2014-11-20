@@ -14,3 +14,4 @@ Reglamento de Tesorería de la Autoridad Reguladora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-06-19 | la propia norma |
+| 2 | 2014-11-20 | Reglamento 67 (2014-11-20) |
