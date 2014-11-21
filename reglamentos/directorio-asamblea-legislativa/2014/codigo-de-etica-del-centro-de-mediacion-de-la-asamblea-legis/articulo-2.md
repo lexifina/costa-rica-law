@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Deberes de los mediadores
+Las personas neutrales del Centro deben mantener en sus actuaciones altos estándares de profesionalismo y calidad, apegados a los principios rectores de la mediación. Para ello, deberán participar en actividades que les permitan actualizar sus conocimientos y afianzar sus destrezas, así como asistir y participar en las actividades dentro del Centro, que les permitan una realimentación con respecto al manejo de los casos y las situaciones específicas.
