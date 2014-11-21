@@ -1,0 +1,4 @@
+TRANSITORIO ÚNICO.- Para dar inicio a las labores del Centro de Mediación de la Asamblea Legislativa se incluirán como mediadores y mediadoras al grupo de funcionarios y funcionarias legislativas capacitados en la institución en esta materia y certificados como tales. Para incorporar nuevas personas, estas deberán seguir el procedimiento establecido en este reglamento.
+Rige a partir de su publicación.
+Finalmente, en cuanto al espacio requerido para la ubicación de dicho centro, se informa a los interesados que este Órgano Colegiado está realizando ingentes esfuerzos por dotar a la Asamblea Legislativa de una nueva sede, con la cual se haría frente a las necesidades que existen en la actualidad. ACUERDO FIRME, IRREVOCABLE Y DEFINITIVAMENTE APROBADO.
+San José, a los 11 días del mes de noviembre de dos mil catorce.

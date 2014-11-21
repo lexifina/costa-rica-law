@@ -1,0 +1,2 @@
+ARTÍCULO 25.- Acceso a la instancia administrativa o judicial
+Las partes tendrán el derecho de someter su controversia al conocimiento de los tribunales o en la instancia administrativa de la institución correspondiente; sin embargo, no podrán iniciar o continuar un proceso judicial o disciplinario en tanto no concluya el trámite no adversarial al que se ha sometido, salvo cuando signifique la pérdida de un derecho.

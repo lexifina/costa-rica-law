@@ -1,0 +1,4 @@
+ARTÍCULO 20.- Trámite de suspensión y exclusión
+Para la suspensión o la exclusión de una persona mediadora, la coordinación del Centro deberá presentar, por escrito, ante el Consejo directivo, una justificación motivada, donde indicará los hechos en los cuales incurrió la persona a quien se pretende suspender o excluir del Centro, a solicitud suya o de otra persona.
+El Consejo directivo estudiará la procedencia de la solicitud planteada por la coordinación del Centro. Contará con un período de cinco días hábiles para resolver. Sobre la resolución final, solo cabrá recurso de reconsideración ante el Consejo directivo.
+En caso de que se presente alguna situación regulada en la normativa sobre el régimen administrativo-disciplinario, la Dirección de Recursos Humanos deberá elevar el caso a la instancia institucional correspondiente.
