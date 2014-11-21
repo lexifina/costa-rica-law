@@ -1,0 +1,6 @@
+Artículo 15.—Funciones del editor/a externo/a. Con la persona editora externa se negociarán las siguientes funciones:
+a. Coordinar con la dirección de la revista la edición de un número o de un manuscrito.
+b. Editar la cantidad de números o manuscritos definidos en su contrato o acuerdo por escrito con periódicos informes de progreso de la edición.
+c. Cuando se le asigne la edición de un número, encargarse de la convocatoria de manuscritos entre sus contactos, la recepción y la evaluación de los manuscritos (con revisores y autores de trascendencia científica y ética entre sus contactos) de acuerdo a las normas establecidas por la revista.
+d. Coordinar con la editorial funciones técnicas del proceso interno de la revista en el manejo y documentación del doble ciego de los manuscritos y las normas editoriales (formato de cartas de y a autores/as o revisores/as, datos de autoría o recepción de los manuscritos, eventuales conflictos, proporcionar las dictaminaciones a la editorial y mantener la transparencia y confidencialidad del proceso respecto a las comunicaciones y procesos internos establecidos en la revista).
+e. Otras que el Consejo Editorial o la dirección le asignen de acuerdo a lo acordado en su contrato o acuerdo escrito.

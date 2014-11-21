@@ -1,0 +1,1 @@
+Artículo 19.—Reuniones extraordinarias. La dirección de la revista podrá convocar a sesiones extraordinarias cuando lo estime conveniente o a solicitud de la mitad más uno de los miembros del Consejo Editorial.

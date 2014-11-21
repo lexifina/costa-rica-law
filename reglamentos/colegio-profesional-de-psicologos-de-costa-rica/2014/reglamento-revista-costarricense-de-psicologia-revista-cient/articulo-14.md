@@ -1,0 +1,2 @@
+Artículo 14.—Editor/a externo/a. La dirección de la revista podrá solicitar ante la Junta Directiva del Colegio la aprobación del nombramiento de una persona editora externa o invitada (figura de renombre) para editar un número específico y así aumentar la visibilidad y los contactos de la revista.
+En caso de que la persona editora externa solicite honorarios, el/la director/a de la revista se encargará de realizar las gestiones administrativas necesarias con el Colegio para la cancelación de los servicios ofrecidos.

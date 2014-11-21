@@ -1,0 +1,1 @@
+Artículo 21.—Votaciones. Las decisiones se tomarán por mayoría simple, mediante el voto directo de los miembros del Consejo Editorial. En caso de empate se repetirá la votación y si el empate persiste, el voto del/a director/a de la revista se computará doble.

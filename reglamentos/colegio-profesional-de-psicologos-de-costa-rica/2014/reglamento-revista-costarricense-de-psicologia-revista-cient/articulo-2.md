@@ -1,0 +1,2 @@
+Artículo 2º—Periodicidad. La revista se publica semestralmente (dos números por año). La revista aparecerá como mínimo dos veces al año en los meses de junio y diciembre o con una frecuencia mayor.
+La revista podrá publicar suplementos o números extraordinarios dedicados a temas exclusivos (simposios, cursos, congresos, etc.). Los manuscritos que compongan los números extraordinarios deben seguir el mismo proceso de revisión y aprobación que los números ordinarios, no así los suplementos.
