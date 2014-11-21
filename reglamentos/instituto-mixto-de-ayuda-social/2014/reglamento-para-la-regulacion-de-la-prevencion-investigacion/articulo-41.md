@@ -1,0 +1,1 @@
+Artículo 41.—De la audiencia de carácter privado. Para garantizar la confidencialidad del proceso y de la audiencia, solo podrán comparecer las partes y sus representantes, así como los asesores jurídicos o personas de apoyo emocional designadas por las partes en el número que a criterio del órgano director considere razonable.

@@ -1,0 +1,1 @@
+Artículo 19.—De la remisión de las denuncias. Una vez formalizada la respectiva denuncia por hostigamiento sexual, la instancia receptora de la denuncia en el plazo de un día hábil, deberá ponerla en conocimiento, a la Gerencia General en el día hábil siguiente a su recepción y mediante sobre cerrado.
