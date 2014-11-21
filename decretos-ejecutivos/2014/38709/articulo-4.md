@@ -1,0 +1,1 @@
+Artículo 4º—Presidencia del Consejo. El Consejo será presidido por el viceministro que la Presidencia de la República designe, mediante acuerdo presidencial emitido para ese efecto. Tal designación se hará por el período que se indique en el acuerdo respectivo.
