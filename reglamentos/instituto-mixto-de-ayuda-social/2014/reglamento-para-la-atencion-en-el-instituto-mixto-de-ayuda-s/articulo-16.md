@@ -1,0 +1,1 @@
+Artículo 16.—De las denuncias por medios electrónicos: Toda denuncia interpuesta por medios electrónicos tendrá la misma eficacia que su equivalente en físico, siempre que cuente con la firma digital del denunciante y en casos de denuncias anónimas, no se dará curso a las investigación.

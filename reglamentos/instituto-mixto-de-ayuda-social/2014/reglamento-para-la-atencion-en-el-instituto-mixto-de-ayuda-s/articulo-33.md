@@ -1,0 +1,1 @@
+Artículo 33.—De las derogatorias: El presente reglamento deroga el Procedimiento Administrativo para el trámite de denuncias sobre corrupción y enriquecimiento ilícito, en el Instituto Mixto de Ayuda Social, publicado en La Gaceta N° 238 del 8 de diciembre del 2009.

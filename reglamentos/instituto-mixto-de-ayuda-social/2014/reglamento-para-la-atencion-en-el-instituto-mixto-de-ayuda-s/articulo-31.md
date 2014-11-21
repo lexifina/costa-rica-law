@@ -1,0 +1,1 @@
+Artículo 31.—Normativa Supletoria. Para lo que no esté expresamente establecido en este Reglamento, se aplicará lo que establece la Ley N° 8422, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, así como lo dispuesto en la Ley N° 6227, Ley General de la Administración Pública.

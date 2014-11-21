@@ -1,0 +1,1 @@
+Artículo 29.—Recursos: Contra la resolución que dicta el rechazo, archivo o desestimación de la denuncia, cabrá, por parte del denunciante, los recursos de revocatoria y apelación, dentro del plazo de tres días hábiles siguientes a la comunicación, conforme al régimen de impugnación establecido en la Ley General de la Administración Pública.
