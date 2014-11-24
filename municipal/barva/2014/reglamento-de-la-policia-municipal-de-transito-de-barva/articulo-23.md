@@ -1,0 +1,1 @@
+Artículo 23.—Los funcionarios de la Policía Municipal de Transito, en su condición de Fuerza Pública, podrán garantizar coercitivamente en cumplimiento de las leyes vigentes, a fin de garantizar la seguridad y el ordenamiento público en la circulación, empleando los medios proporcionales a las circunstancias particulares de cada caso y en la medida indispensable para sus fines.
