@@ -1,1 +1,0 @@
-Artículo 2º—Objetivo del reglamento. Establecer una práctica uniforme sobre el uso de Internet y el correo institucional de la municipalidad, con adecuado respeto a los derechos constitucionales de libertad de expresión, privacidad de las comunicaciones, propiedad intelectual y uso eficiente y eficaz que garantice el máximo aprovechamiento de esos recursos.

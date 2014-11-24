@@ -1,1 +1,0 @@
-Artículo 9º—Cuentas de las personas usuarias. Las jefaturas deberán notificar al Departamento de Cómputo cualquier movimiento que se realice en las personas usuarias a su cargo (contratación, ascenso, destitución, etc.,) con el fin de gestionar los permisos o apertura de cuentas para acceso a Internet y correo electrónico institucional.
