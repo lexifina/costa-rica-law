@@ -14,3 +14,4 @@ Gestoría oficiosa, acreditación previa de la existencia de las personas juríd
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-10 | la propia norma |
+| 2 | 2014-11-24 | Directriz 5 (2014-11-24) |
