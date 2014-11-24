@@ -14,3 +14,4 @@ Deroga resolución N° 013 del 26/08/2010 "Lineamientos para la Liquidación de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-13 | la propia norma |
+| 2 | 2014-11-24 | Resolución 52 (2014-11-24) |
