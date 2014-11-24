@@ -14,3 +14,4 @@ Declara de Conveniencia Nacional el Proyecto Hidroeléctrico Los Negros II
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-20 | la propia norma |
+| 2 | 2014-11-24 | Decreto Ejecutivo 38809 (2014-11-24) |
