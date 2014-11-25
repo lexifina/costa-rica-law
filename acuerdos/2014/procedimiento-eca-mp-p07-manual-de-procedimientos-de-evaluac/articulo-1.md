@@ -1,5 +1,6 @@
 ENTE COSTARRICENSE DE ACREDITACIÓN
 MODIFICACIÓN DE DOCUMENTOS 005-2014
+(Nota de Sinalevi: Mediante publicación en La Gaceta N° 233 del 3 de diciembre del 2014, se publica la versión 2 del presente procedimiento la cual lo reforma. No obstante mediante información suministrada por el Ente Costtirrecense de Acreditación dicha versión no fue publicada en la página web de dicho ente, razón por la cual no se puede realizar la actualización de la versión 1 existente por la versión 2)
 El Ente Costarricense de Acreditación (ECA), da a conocer las modificaciones e incorporaciones en el sistema de gestión documental; de la siguiente manera:
 Se sustituyen los procedimientos
 ECA-MC-P09 Procedimiento general de evaluación y acreditación, versión 14, publicada en La Gaceta N° 53
