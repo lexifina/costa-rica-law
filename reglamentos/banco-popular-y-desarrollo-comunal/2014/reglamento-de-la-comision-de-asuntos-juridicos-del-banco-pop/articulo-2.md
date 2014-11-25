@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. La Comisión de Asuntos Jurídicos tiene por objeto: Servir como órgano de apoyo, consulta, opinión, evaluación en asuntos jurídicos, particularmente en la definición de los reglamentos, sus reformas, así como cualquier otro asunto que sea de índole jurídico y que la Junta Directiva Nacional someta para su análisis, dentro del marco de sus competencias.

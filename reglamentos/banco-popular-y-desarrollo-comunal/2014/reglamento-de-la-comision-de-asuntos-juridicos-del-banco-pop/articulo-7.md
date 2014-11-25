@@ -1,0 +1,1 @@
+Artículo 7º—Frecuencia de las sesiones: La Comisión sesionará ordinariamente al menos una vez al mes, y extraordinariamente cuando las circunstancias así lo requieran y haya convocatoria expresa del Coordinador.
