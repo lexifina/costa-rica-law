@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de la aplicación: Podrán participar del presente plan de puntos, los tarjetahabientes de todas las tarjetas de crédito Visa y Master Card de Bancrédito. La Administración determinará cuáles tipos de tarjetas aplicarán a este plan de puntos.

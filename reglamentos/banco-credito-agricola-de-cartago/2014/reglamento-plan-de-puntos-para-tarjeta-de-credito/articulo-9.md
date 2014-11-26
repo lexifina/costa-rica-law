@@ -1,0 +1,1 @@
+Artículo 9°—Responsabilidades del tarjetahabiente. El tarjetahabiente estará obligado a conocer y cumplir todo lo indicado por el Banco, en lo correspondiente a limitaciones y disposiciones del plan de puntos establecido en el presente reglamento; de igual forma, acepta de antemano redimir sus puntos sobre las bases indicadas.
