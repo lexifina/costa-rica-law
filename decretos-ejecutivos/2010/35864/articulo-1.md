@@ -1,4 +1,6 @@
+(Revocada)
 N° 35864-J
+(Este decreto ejecutivo fue revocado y dejado sin efecto por el artículo 1° del decreto ejecutivo N° 38893 del 27 de noviembre de 2014)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE JUSTICIA
 Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes de su Reglamento.

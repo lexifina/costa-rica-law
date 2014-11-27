@@ -14,3 +14,4 @@ Declara de Utilidad Pública para los intereses del Estado la Asociación Admini
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-07 | la propia norma |
+| 2 | 2014-11-27 | Decreto Ejecutivo 38893 (2014-11-27) |
