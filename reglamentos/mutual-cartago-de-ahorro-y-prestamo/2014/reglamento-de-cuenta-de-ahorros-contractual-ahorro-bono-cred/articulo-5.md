@@ -1,0 +1,3 @@
+Artículo 5º—Análisis del ahorrante como sujeto de crédito. Antes de suscribir el contrato, Mucap efectuará una precalificación de la familia con base en una declaración jurada que para tales efectos debe firmar el ahorrante, quedando entendido que de comprobarse que dicha información no sea veraz, Mucap lo excluirá automáticamente del programa.
+Una vez que cada contrato de ahorro ABC MUTUAL madure, el ahorrante iniciará el proceso de trámite de bono y crédito vigentes a la fecha, conforme a los lineamientos vigentes.
+La relación cuota - ingreso se establecerá de acuerdo a los criterios y parámetros que para tal efecto utiliza la Dirección de Operaciones.

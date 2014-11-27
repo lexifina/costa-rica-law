@@ -1,0 +1,1 @@
+Artículo 12.—Comunicación de la tasa de interés. Mucap comunicará a todos los cuenta ahorrantes la tasa de interés vigente y las sucesivas variaciones, a través de pizarras informativas en un lugar visible en todas sus Agencias o por cualquier otro medio físico o electrónico de que se disponga.

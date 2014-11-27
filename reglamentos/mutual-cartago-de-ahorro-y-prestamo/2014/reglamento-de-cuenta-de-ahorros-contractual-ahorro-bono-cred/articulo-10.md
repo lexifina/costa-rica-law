@@ -1,0 +1,2 @@
+Artículo 10.—La garantía sobre los depósitos. Los saldos de los depósitos en las cuentas de ahorros ABC MUTUAL, tienen la garantía de la capacidad empresarial y de los activos de Mucap, además de la garantía subsidiaria e ilimitada del Estado costarricense a través del Banco Hipotecario de la Vivienda, ésta última en los términos previstos en la respectiva reglamentación.
+Esta garantía está normada en la Ley del Sistema Financiero Nacional para la Vivienda en el Artículo Nº 116, inciso c).

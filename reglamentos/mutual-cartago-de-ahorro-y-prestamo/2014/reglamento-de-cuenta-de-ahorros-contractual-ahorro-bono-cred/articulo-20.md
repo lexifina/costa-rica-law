@@ -1,0 +1,3 @@
+Artículo 20.—Reposición del estado de cuenta o la libreta de ahorros. En caso de que el cliente sufra la pérdida, sustracción, hurto o robo de un reporte de transacciones o libreta de ahorros, deberá comunicarlo de forma inmediata a la Mucap, e indicar si desea que se suspenda temporal o permanentemente la realización de transacciones sobre su cuenta de ahorros.
+La reposición del reporte, deberá ser solicitada a Mucap previo pago o débito de la tarifa establecida para el efecto.
+Adicionalmente, Mucap podrá suministrar por medios digitales la información contenida en los reportes de transacciones.

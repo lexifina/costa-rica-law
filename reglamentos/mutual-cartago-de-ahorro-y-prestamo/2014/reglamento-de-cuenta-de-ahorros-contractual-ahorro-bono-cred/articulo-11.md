@@ -1,0 +1,2 @@
+Artículo 11.—Exención de retención y pago de impuestos. De conformidad con la legislación vigente, los intereses que devengan los saldos depositados en las cuentas de ahorros, no son objeto de retención, ni del pago del impuesto único sobre la renta.
+Esta exención tributaria podría variar en caso de que una nueva legislación debidamente promulgada así lo sancione, en cuyo caso Mucap se acogería a lo dispuesto sobre la materia en el marco jurídico.

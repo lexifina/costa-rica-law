@@ -1,0 +1,2 @@
+Artículo 17.—De la actualización de la libreta o reporte de transacciones. En la libreta o reporte de transacciones de las cuentas de ahorro contractuales, se indicará el saldo y las transacciones de depósitos, notas de crédito, acreditación de intereses y notas de débito.
+La información se actualizará en el reporte o la libreta cada vez que se realice una transacción, en las oficinas de Mucap o por los medios que ésta tenga dispuestos para ese fin.

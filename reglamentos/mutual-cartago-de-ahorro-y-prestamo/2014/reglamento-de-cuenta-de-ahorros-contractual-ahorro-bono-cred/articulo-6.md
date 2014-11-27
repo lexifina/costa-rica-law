@@ -1,0 +1,2 @@
+Artículo 6º—Tipos de planes. Los contratos de ahorro se podrán comercializar en diferentes plazos de conformidad con las modalidades que al efecto disponga el Banco Hipotecario de la Vivienda.
+El ahorrante seleccionará el plan, de acuerdo al plazo que requiera. Los contratos se podrán madurar anticipadamente de conformidad con los criterios que establezca la Administración de Mucap, con base en la evaluación del programa. No obstante ningún contrato se podrá madurar en un plazo inferior a tres meses.
