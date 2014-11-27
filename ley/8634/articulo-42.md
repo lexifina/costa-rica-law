@@ -1,3 +1,2 @@
-ARTÍCULO 42.- Incubación de empresas
-El Consejo Rector podrá establecer convenios y alianzas estratégicas con las instituciones u organizaciones integrantes del SBD, con el propósito de desarrollar programas de incubadoras de empresas.
-Tendrán una especial atención, en las distintas etapas de desarrollo de la actividad productiva, los procesos que acompañen los emprendimientos de las mujeres y de los sectores prioritarios.
+ARTÍCULO 42.- Supervisión para los operadores del SBD que no realizan intermediación financiera
+Se conformará, dentro de la Secretaría Técnica del Consejo Rector del SBD, un área especializada para la supervisión de gestión de los operadores del SBD que no realizan intermediación financiera, así como para los mecanismos de acceso a recursos que promueve esta ley. El Consejo Rector del Sistema de Banca para el Desarrollo delimitará los lineamientos de supervisión que se aplicarán; la información recopilada será de carácter informativo para que el Consejo Rector del Sistema de Banca para el Desarrollo oriente sus políticas.

@@ -1,2 +1,4 @@
-ARTÍCULO 37.- No sujeción de fondos del Sistema de Banca para el Desarrollo
-Los fondos que forman parte del SBD no estarán sujetos a la aplicación de lo dispuesto en el artículo 66 de la Ley Nº 8131, Administración financiera de la República y presupuestos públicos, de 18 de setiembre de 2001, y sus reformas.
+CAPÍTULO VI
+DISPOSICIONES ESPECIALES
+ARTÍCULO 37.- Destino de los recursos para determinados proyectos
+Del financiamiento total que otorgue el SBD, al menos el cuarenta por ciento (40%) se destinará a proyectos agropecuarios, acuícolas, pesqueros, agroindustriales o comerciales asociados, excepto si no hay demanda por tales recursos. El Consejo Rector revisará, una vez al año, la colocación de los recursos y los distribuirá de acuerdo con la demanda. Dicho financiamiento se concederá tomando en cuenta los requerimientos de cada proyecto.
