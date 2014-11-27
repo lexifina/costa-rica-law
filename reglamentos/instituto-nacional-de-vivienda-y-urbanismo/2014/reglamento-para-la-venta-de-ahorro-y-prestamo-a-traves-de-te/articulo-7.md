@@ -1,0 +1,1 @@
+Artículo 7º—Toda publicidad mediante medios de comunicación o destinados al público en general, podrá ser realizada por el INVU, pero los comisionistas por su cuenta también podrán publicitar los contratos de ahorro y préstamos, siempre que su publicidad sea coherente con la del Instituto y se respete la imagen institucional.

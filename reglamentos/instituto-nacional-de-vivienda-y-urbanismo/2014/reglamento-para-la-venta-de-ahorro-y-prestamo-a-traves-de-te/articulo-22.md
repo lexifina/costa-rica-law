@@ -1,0 +1,1 @@
+Artículo 22.—De la revocación del contrato. El Instituto y el Comisionista, de mutuo acuerdo, podrán dar por terminada de forma anticipada, la relación comercial existente, siempre y cuanto haya transcurrido al menos un año del plazo convenido, y medie acuerdo escrito.

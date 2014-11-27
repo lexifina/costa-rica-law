@@ -1,0 +1,2 @@
+Transitorio 2º—Los reglamentos anteriores que rigen la colocación y venta de los productos financieros del Sistema de Ahorro y Préstamo se mantendrán vigentes, únicamente con respecto a aquellos agentes de ventas a los que no se les haya liquidado sus prestaciones por derechos laborales. En este entendido, una vez que sean liquidados los agentes de ventas, dicha reglamentación quedará, para todos los efectos, derogada.
+Rige a partir de su publicación.

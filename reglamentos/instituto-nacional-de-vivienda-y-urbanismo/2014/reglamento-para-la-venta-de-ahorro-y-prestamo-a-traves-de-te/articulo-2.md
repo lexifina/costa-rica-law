@@ -1,0 +1,1 @@
+Artículo 2º—De los Comisionistas. El INVU contratará el número de personas físicas y jurídicas que estime conveniente para que bajo su propia cuenta y riesgo, le brinden los servicios de auxiliares de comercio en la venta de los Planes de Ahorro y Préstamo de la Institución, retribuyendo esos servicios mediante el pago de una comisión según se detalla en el presente Reglamento.

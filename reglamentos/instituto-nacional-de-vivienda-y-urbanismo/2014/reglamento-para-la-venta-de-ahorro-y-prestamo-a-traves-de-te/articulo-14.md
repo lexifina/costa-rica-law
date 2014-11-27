@@ -1,0 +1,1 @@
+Artículo 14.—Los Comisionistas deberán aumentar sus esfuerzos de venta en los planes que se señalen como más convenientes al Sistema de Ahorro y Préstamo. El INVU dictará las metas mínimas de venta y la mezcla de tipo de planes por Comisionista y región. El no cumplimiento de las metas faculta al Instituto a dar por terminada la relación comercial, sin responsabilidad para este.

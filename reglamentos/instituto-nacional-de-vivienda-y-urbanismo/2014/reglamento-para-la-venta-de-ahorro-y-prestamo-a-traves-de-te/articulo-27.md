@@ -1,0 +1,1 @@
+Artículo 27.—Entiéndase como una declaración interpretativa en general del presente Reglamento que cada vez que se use la palabra “documento” se está haciendo referencia tanto a documentos físicos como electrónicos.

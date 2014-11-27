@@ -1,0 +1,1 @@
+Transitorio 1º—Que con la entrada en vigencia de este Reglamento, el INVU realizará la liquidación de los derechos laborales de los actuales agentes de ventas del Sistema de Ahorro y Préstamo, proceso el cual deberá estar concluido a más tardar el 31 de diciembre del 2014.

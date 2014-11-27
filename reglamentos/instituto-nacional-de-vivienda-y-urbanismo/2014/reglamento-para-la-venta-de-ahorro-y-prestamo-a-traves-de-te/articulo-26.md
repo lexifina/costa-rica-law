@@ -1,0 +1,1 @@
+Artículo 26.—Las condiciones del presente Reglamento sólo podrán ser modificadas sin efecto retroactivo. Si el INVU modifica alguna condición, la misma se aplicará a los nuevos comisionistas, respetando los derechos adquiridos por los Comisionistas contratados previamente.
