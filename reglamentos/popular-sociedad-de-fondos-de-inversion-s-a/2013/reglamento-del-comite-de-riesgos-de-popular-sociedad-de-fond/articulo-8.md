@@ -1,1 +1,0 @@
-Artículo 8º—Acuerdos. Los acuerdos se tomarán por mayoría absoluta de los presentes, no pudiendo abstenerse ninguno de los miembros del Comité de votar el asunto sometido a su consideración, salvo en los casos que por ley así se autorice.

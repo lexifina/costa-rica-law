@@ -1,1 +1,0 @@
-Artículo 9º—Actas. De cada sesión del Comité de Riesgo de Popular SAFI se levantará un acta que se asentará en un libro electrónico; acta donde se documentará y fundamentará todo lo actuado, siendo esta firmada por todos los miembros asistentes. Las actas deberán asentarse dentro de los 10 días hábiles siguientes de ocurrida la sesión.
