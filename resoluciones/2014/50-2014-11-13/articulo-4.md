@@ -1,0 +1,1 @@
+Artículo 4º—Requisito de pago de la prima. Será requisito previo para autorizar un fraccionamiento, el pago de la prima, el cual puede hacerse en un solo tracto o conforme al artículo anterior. No se podrá autorizar el fraccionamiento de la deuda principal y sus recargos hasta que se cancele la prima.

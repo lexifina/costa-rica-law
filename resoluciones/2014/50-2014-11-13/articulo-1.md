@@ -1,0 +1,17 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+N° DGT-R-050-2014.—San José, a las ocho horas del trece de noviembre de dos mil catorce.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios, Ley Nº 4755 de 3 de mayo de 1971 y sus reformas, faculta a la Administración Tributaria para dictar normas generales para la correcta aplicación de las leyes tributarias, dentro de los límites que fijan las disposiciones legales y reglamentarias pertinentes.
+II.—Que el artículo 38 del mismo Código de Normas y Procedimientos Tributarios, faculta a la Administración Tributaria para otorgar facilidades de pago (aplazamientos y fraccionamientos) en los casos y la forma que determine el reglamento.
+III.—Que el artículo 192 del Reglamento de Procedimiento Tributario, faculta a la Administración Tributaria para que autorice el pago de la prima del fraccionamiento de pago en fracciones.
+IV.—Que el artículo 144 del CNPT, establece que en supuestos de disconformidad total o parcial con la propuesta de regularización,…..” el ingreso respectivo deberá hacerse dentro de los treinta días siguientes, excepto si el sujeto pasivo ha rendido, dentro de ese mismo plazo, las garantías establecidas reglamentariamente, sobre la deuda y sus correspondientes intereses de demora…..”.
+V.—Que mediante Resolución DGT-R-033-2013, de fecha 2/09/2013, se norma de manera temporal, en tanto se publica el Reglamento de Procedimiento Tributario, lo referente al procedimiento para el otorgamiento de facilidades de pago (Aplazamientos y fraccionamientos), el cual se publicó en el Alcance Nº 10 a La Gaceta Nº 65 del 2 de abril de 2014 y regula las facilidades de pago en los artículos 186 a 203.
+VI.—Que al tratar de la solicitud de aplazamiento y fraccionamiento de pago de las deudas tributarias, el párrafo segundo del artículo 186 del Reglamento del Procedimiento Tributario indica que: “Dicha solicitud será tramitada y resuelta con apego a lo dispuesto en este Reglamento y a las resoluciones y directrices que emita la Administración Tributaria.” Por lo que la presente resolución regula aspectos no desarrollados en la normativa reglamentaria que deben ser aclarados para garantizar la seguridad jurídica y debido proceso.
+VII.—Que el artículo 4 de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, N° 8220 de 4 de marzo de 2002, publicada en el Alcance 22 a La Gaceta N° 49 de 11 de marzo del 2002, establece que todo trámite o requisito con independencia de su fuente normativa, deberá publicarse en el Diario Oficial La Gaceta.
+VIII.—Que en observancia del artículo 174 del Código de Normas y Procedimientos Tributarios, se publicó la presente resolución en el sitio web http://dgt.hacienda.go.cr en la sección “Proyectos”, antes de su dictado y entrada en vigencia y en el Diario Oficial La Gaceta N° 196 el 13 de octubre 2014 y en el diario La Nación el día 16 de octubre 2014.
+Que a la fecha de publicación de la presente resolución no se recibieron observaciones al proyecto indicado, siendo que la presente es la versión final aprobada. Por tanto,
+RESUELVE:
+Procedimiento para la autorización del pago de la prima en
+fracciones y el fraccionamiento para deudas por actos de
+liquidación de oficio con disconformidad
+Artículo 1º—Definiciones. Para efectos de esta resolución se deben considerar las definiciones establecidas en el artículo 2° del Decreto Ejecutivo N° 38277-H Reglamento del Procedimiento Tributario respecto a Administración Tributaria, facilidad de pago, aplazamiento y fraccionamiento de pago.
