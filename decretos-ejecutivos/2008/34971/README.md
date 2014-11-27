@@ -14,3 +14,4 @@ Reglamento del Título IV del Estatuto del Servicio Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-01-12 | la propia norma |
+| 2 | 2014-11-27 | Decreto Ejecutivo 38807 (2014-11-27) |
