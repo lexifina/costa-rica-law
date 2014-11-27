@@ -1,2 +1,2 @@
-ARTÍCULO 39.- Sistemas de información
-El Consejo Rector deberá contar con sistemas de información que le permitan tener una gestión documental institucional, entendiendo esta como el conjunto de actividades realizadas con el fin de controlar, almacenar y, posteriormente, recuperar, de modo adecuado, la información producida o recibida en instituciones, en el desarrollo de las actividades y en operaciones del SBD.
+ARTÍCULO 39.- No sujeción de gastos registrales
+Todas las operaciones que se realicen al amparo de esta ley estarán exentas del tributo que pesa sobre la inscripción de documentos o garantías en el Registro Público; el procedimiento será regulado vía reglamento.

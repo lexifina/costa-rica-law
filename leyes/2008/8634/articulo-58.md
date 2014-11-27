@@ -1,0 +1,8 @@
+ARTÍCULO 58.- Modificación de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica
+Se modifica el artículo 119 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995, y sus reformas. El texto dirá:
+"Artículo 119.- Supervisión y fiscalización de la Superintendencia
+Con el propósito de velar por la estabilidad, la solidez y el eficiente funcionamiento del Sistema Financiero Nacional, la Superintendencia ejercerá sus actividades de supervisión y fiscalización sobre todas las entidades que lleven a cabo intermediación financiera, con estricto apego a las disposiciones legales y reglamentarias, velando por que cumplan los preceptos que les sean aplicables.
+En relación con la operación propia de las entidades fiscalizadas y el registro de sus transacciones, la Superintendencia estará facultada para dictar las normas generales que sean necesarias para el establecimiento de sanas prácticas bancarias, todo en salvaguarda del interés de la colectividad.
+Para efectos de dictar y aplicar las normas de su competencia, la Superintendencia podrá establecer categorías de intermediarios financieros, en función del tipo, tamaño y grado de riesgo de esos intermediarios.
+Las normas generales y directrices dictadas por la Superintendencia serán de observancia obligatoria para las entidades fiscalizadas.
+El Conassif emitirá una regulación prudencial sobre el Sistema de Banca para el Desarrollo, basada en criterios y parámetros que tomen en cuenta las características particulares de la actividad crediticia proveniente del Sistema de Banca para el Desarrollo y que se encuentren acorde a las disposiciones internacionales.”

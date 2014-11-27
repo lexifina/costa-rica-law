@@ -1,7 +1,14 @@
-ARTÍCULO 54.- Reforma del Código Notarial, Ley Nº 7764
-Refórmase el artículo 166 del Código Notarial, Ley Nº 7764. El texto dirá:
-“Artículo 166.- Honorarios
-Los notarios públicos cobrarán honorarios según se establezca en el arancel respectivo. Corresponde al Colegio de Abogados de Costa Rica realizar las fijaciones y someterlas a la aprobación del Ministerio de (*)Justicia y Paz, que las promulgará vía decreto ejecutivo.
-(*)(Modificada su denominación por el artículo 3° de la ley N° 8771 del 14 de setiembre de 2009)
-En el caso de los servicios prestados por los notarios públicos, a las instituciones fiscalizadas por la Sugef, en lo que respecta al financiamiento de proyectos en el contexto de banca para el desarrollo, los honorarios podrán ser fijados por acuerdo entre las partes; en ningún caso, podrán ser superiores al monto resultante de aplicar el arancel a que hace referencia el párrafo anterior.
-Los notarios consulares devengarán honorarios de acuerdo con el arancel consular.”
+ARTÍCULO 54. Reforma de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica
+Se reforma el subinciso i) del inciso a) del artículo 52 de la Ley N.° 7558, Ley Orgánica del Banco Central de Costa Rica, de 3 de noviembre de 1995, y sus reformas. El texto dirá:
+"Artículo 52.-Operaciones de crédito
+El Banco Central podrá efectuar las siguientes operaciones de crédito, con sujeción estricta a las condiciones y restricciones establecidas en esta ley, sin que por ello esté obligado a realizarlas:
+a) Con el fin de salvaguardar la estabilidad del Sistema Financiero Nacional, redescontar, a las entidades financieras sujetas a la supervisión de la Superintendencia General de Entidades Financieras, los documentos de crédito que reúnan todas las formalidades exigidas por las leyes, en las siguientes condiciones:
+i) Para poder tener acceso al redescuento, las entidades financieras privadas deberán:
+1) Tener derecho de acceso a captaciones en cuentas corrientes, establecidas para los bancos privados, en las condiciones definidas en el inciso c) del artículo 162 de esta ley o alternativamente.
+2) Mantener, permanentemente, un saldo mínimo de préstamos en el banco estatal que administre el Fondo de Crédito para el Desarrollo, creado mediante la Ley del Sistema de Banca para el Desarrollo, el equivalente a un doce por ciento (12%), una vez deducido el encaje correspondiente de sus captaciones totales, a plazos de treinta días o menos, tanto en moneda nacional como extranjera. El banco del Estado que administre el Fondo de Crédito para el Desarrollo reconocerá a la banca privada, por dichos recursos, una tasa de interés igual al cincuenta por ciento (50%) de la tasa básica pasiva calculada por el Banco Central o de la tasa Libor a un mes, respectivamente. El Fondo de Crédito para el Desarrollo prestará tales recursos, acorde a las directrices emitidas por el Consejo Rector del Sistema de Banca para el Desarrollo, y se colocarán según lo establecido en el inciso i) del artículo 59 de la Ley N.° 1644, Ley Orgánica del Sistema Bancario Nacional.
+Para el cálculo de este porcentaje, se contemplarán los siguientes elementos:
+A) Se realizará con base en el promedio de las captaciones de los últimos noventa días hábiles, al final del día, con un rezago de cinco días hábiles.
+B) Además, durante todos y cada uno de los días del período de control del cumplimiento de lo dispuesto en este artículo, el saldo del día de los préstamos en el Fondo de Crédito para el Desarrollo no podrá ser menor del noventa y cinco por ciento (95%) del promedio señalado en el punto anterior.
+Para los propósitos de los requisitos señalados en el punto 1) y anteriores, el Banco Central podrá incluir cualesquiera otras cuentas del pasivo de las entidades financieras que, a su juicio, sean similares a las obligaciones constituidas como captaciones a treinta días o menos.
+El derecho al redescuento a que se refiere este inciso se adquiere tres meses después de haber cumplido, sin interrupción, lo estipulado en la alternativa escogida.
+[…].”

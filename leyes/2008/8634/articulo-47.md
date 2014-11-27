@@ -1,2 +1,2 @@
-ARTÍCULO 47.- Responsabilidades
-Cuando el encargado de la administración de los recursos determine que las personas responsables de la unidad productiva beneficiaria del SBD, lo inducen a error o engaño para obtener los beneficios, con apego al debido proceso se les suspenderá el goce de estos. Lo anterior sin perjuicio de plantear las acciones judiciales correspondientes.
+ARTÍCULO 47.-Prohibiciones
+Se prohíbe expresamente, al Consejo Rector, realizar o autorizar condonaciones o cualquier otro acto similar, a excepción de los desembolsos autorizados por esta ley, que impliquen la reducción del patrimonio del SBD. Esos actos serán absolutamente nulos y generarán responsabilidades personales y patrimoniales para los miembros del ente rector.

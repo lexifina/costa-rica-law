@@ -1,3 +1,5 @@
-ARTÍCULO 17.- Asignación de los recursos de los fondos
-El Consejo Rector definirá, periódicamente, la distribución de los recursos establecidos en el artículo anterior.
-La asignación y programación de estos recursos serán competencia exclusiva del fiduciario, que deberá ajustarse estrictamente a las disposiciones que para esos propósitos definirá el Consejo Rector.
+ARTÍCULO 17.- Recursos para la administración y operación
+El Consejo Rector del Sistema de Banca para el Desarrollo queda facultado para destinar, anualmente, hasta uno y medio por ciento (1,5%) de los recursos del Finade para cubrir los gastos administrativos y operativos. De igual forma, con estos recursos se deberán cubrir los gastos e inversiones asociados con el proceso de regionalización de los recursos del SBD, de acuerdo con lo establecido en el artículo 29 de esta ley.
+Para estos efectos, el Consejo Rector del Sistema de Banca para el Desarrollo y su Secretaría Técnica no estarán sujetos a la Ley N.° 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001, y sus reformas, excepto en lo correspondiente al trámite de aprobación de sus presupuestos, así como a lo ordenado en los artículos 57 y 94 y en el título X de dicha ley.
+Los criterios para definir la estructura de salarios y lo referente a la creación de plazas de la Secretaría Técnica serán determinados por el Consejo Rector, en el reglamento de la presente ley.
+Los superávits, si los hubiera, serán clasificados como específicos para los fines y las necesidades que defina el Consejo Rector.

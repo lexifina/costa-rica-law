@@ -1,8 +1,4 @@
-CAPÍTULO VIII
-DEROGACIONES
-ARTÍCULO 56.- Derogaciones
-Deróganse las siguientes disposiciones:
-a) Los incisos l) y m) del artículo 29, y los artículos 49 y 49 bis de la Ley orgánica del Consejo Nacional de Producción, Nº 2035, de 17 de julio de 1956, y sus reformas.
-b) El artículo 46 de la Ley Nº 7384, Creación del Instituto Costarricense de Pesca y Acuicultura (Incopesca), de 16 de marzo de 1994, y sus reformas.
-c) La Ley Nº 8147, Creación del Fideicomiso para la protección y el fomento agropecuario para pequeños y medianos productores.
-d) El primer párrafo del artículo 4, titulado Colaborador, de la Ley Nº 7742.”
+ARTÍCULO 56.- Reforma de la Ley N.° 3284, Código de Comercio
+Se reforma el artículo 460 bis de la Ley N.° 3284, Código de Comercio, de 30 de abril de 1964, y sus reformas. El texto dirá:
+“ Artíc ulo 4 6 0 bis .- La factura comercial y la factura de servicios tendrán carácter de título ejecutivo; asimismo, podrán ser transmitidas válidamente mediante endoso. A dicho endoso le serán aplicables las reglas del endoso de los títulos valores a la orden y especialmente el artículo 705.
+Las reglas anteriores serán extensibles a las facturas comerciales y de servicios que están amparadas en documentos electrónicos, en lo aplicable a los sistemas informáticos que permiten la emisión, recepción y transmisión de dichas facturas, de conformidad con la legislación o la normativa correspondiente.”

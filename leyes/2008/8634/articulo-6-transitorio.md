@@ -1,2 +1,1 @@
-TRANSITORIO VI.-
-Solo en el primer período de composición del Consejo Mixto Asesor, una de las representaciones de los bancos públicos durará en el cargo tres años. La designación de cuál representante estará en dicho período, será competencia exclusiva del Banco Central de Costa Rica.
+TRANSITORIO VI.- El Ministerio de Hacienda, en un plazo no mayor a tres meses contado a partir de la entrada en vigencia de esta ley, establecerá el procedimiento para la recaudación de los impuestos establecidos en el inciso h) del artículo 59 de la Ley N.º 7092, Ley del Impuesto sobre la Renta, de 21 de abril de 1988, y sus reformas, modificado mediante el artículo 60 de esta ley, así como para el traslado de dichos recursos al Finade.

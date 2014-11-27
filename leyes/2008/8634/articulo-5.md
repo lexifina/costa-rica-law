@@ -1,7 +1,9 @@
 ARTÍCULO 5.- Fundamentos orientadores del Sistema de Banca para el Desarrollo
-El SBD se fundamentará en lo siguiente:
-a) El desarrollo de una estrategia de acceso a fondos en condiciones acordes a cada sector productivo.
-b) Una estrategia de otorgamiento de avales y garantías.
-c) Una estrategia para el financiamiento de servicios no financieros y de desarrollo empresarial, que promueva la competitividad de las actividades productivas y el uso de tecnología de punta.
-d) Una eficiente y eficaz administración de los recursos y su sostenibilidad financiera.
-e) Una regulación diferenciada y específica para el desarrollo de proyectos viables y factibles, de conformidad con las disposiciones de la presente Ley.
+El SBD se fundamentará en los siguientes aspectos estratégicos:
+a) En el establecimiento de estrategias orientadas a promover con acciones concretas, mecanismos viables y sostenibles, de inclusión financiera e inclusión económica.
+b) El desarrollo de estrategias que promuevan mecanismos financieros y no financieros que faciliten el acceso al crédito de acuerdo con las características de cada sector productivo, riesgo y a la especificidad de cada proyecto.
+c) En el otorgamiento de avales y garantías, como instrumento que tiene como objetivo facilitar el acceso al crédito y mejorar las condiciones del financiamiento a los beneficiarios de esta ley.
+d) En el desarrollo de estrategias para el financiamiento de servicios no financieros y de desarrollo empresarial, que promuevan la competitividad de los sectores productivos, la innovación, el desarrollo científico y tecnológico, el desarrollo de mercados locales e internacionales, el uso de tecnología de punta y el acceso a espacios físicos asociativos.
+e) Una eficiente y eficaz administración de los recursos, procurando un balance entre la accesibilidad, el impacto económico y social y su sostenibilidad financiera, entendida como la capacidad de asegurar recursos financieros estables y suficientes, en el largo plazo, para asignarlos de una manera oportuna y apropiada.
+f) Una regulación prudencial, para los entes regulados por la Sugef, que tome en cuenta las características particulares de la actividad crediticia proveniente de banca para el desarrollo, todo conforme a las mejores prácticas internacionales y a los elementos señalados en el artículo 34 de esta ley.
+g) Una supervisión de gestión para los operadores de este sistema que no realizan intermediación financiera.

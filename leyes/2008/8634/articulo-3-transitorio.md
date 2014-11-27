@@ -1,1 +1,1 @@
-TRANSITORIO III.-(Derogado por el artículo único de la ley N° 9092 del 19 de octubre del 2012, "Restitución de ingresos a la Comisión Nacional de Préstamos para la Educación (CONAPE)")
+TRANSITORIO III.-Para cumplir lo referente a lo estipulado en el capítulo IV de esta ley, los bancos públicos contarán con un plazo máximo de seis meses, contado a partir de la entrada en vigencia de esta ley.

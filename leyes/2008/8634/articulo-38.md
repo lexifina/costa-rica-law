@@ -1,2 +1,2 @@
-ARTÍCULO 38.- No sujeción de gastos registrales
-Todas las operaciones que se realicen al amparo de esta Ley estarán exentas del tributo que pesa sobre la inscripción de documentos o garantías en el Registro Público.
+ARTÍCULO 38.- No sujeción de fondos del Sistema de Banca para el Desarrollo
+Los fondos que forman parte del SBD no estarán sujetos a la aplicación de lo dispuesto en el artículo 66 de la Ley N.º 8131, Ley de la Administración Financiera de la República y Presupuestos Públicos, de 18 de setiembre de 2001, y sus reformas.
