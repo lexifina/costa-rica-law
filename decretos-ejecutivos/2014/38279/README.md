@@ -21,3 +21,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 6 | 2014-11-21 | Decreto Ejecutivo 38784 (2014-11-21) |
 | 7 | 2014-11-21 | Decreto Ejecutivo 38787 (2014-11-21) |
 | 8 | 2014-11-24 | Decreto Ejecutivo 38786 (2014-11-24) |
+| 9 | 2014-11-27 | Decreto Ejecutivo 38785 (2014-11-27) |
