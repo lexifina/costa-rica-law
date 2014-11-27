@@ -1,0 +1,1 @@
+Artículo 8º—Sustitución de resoluciones anteriores y Acuerdos de Entendimiento: Esta resolución sustituye las anteriores emitidas sobre el tema de Sorteo de Lotería Fiscal. En lo que se refiere a los Acuerdos de Entendimiento suscritos con las entidades financieras, quedarán vigentes en lo no modificado por esta resolución.
