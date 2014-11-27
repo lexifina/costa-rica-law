@@ -1,0 +1,1 @@
+Artículo 27.—Cancelación anticipada del contrato individual. Para los casos en que finalice la relación contractual antes de la fecha de vencimiento, la Mutual devolverá al ahorrante el monto acumulado una vez descontadas las penalizaciones definidas por la Administración de la Mucap e incorporadas en el contrato de ahorros suscrito.

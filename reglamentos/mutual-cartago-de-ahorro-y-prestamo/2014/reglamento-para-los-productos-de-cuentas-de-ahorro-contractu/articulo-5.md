@@ -1,0 +1,1 @@
+Artículo 5º—Tipos de planes. Los contratos de ahorro se podrán comercializar en diferentes modalidades y plazos que la Administración de Mucap considere convenientes, en concordancia con las estrategias de captación de recursos.

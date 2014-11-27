@@ -1,0 +1,1 @@
+Artículo 45.—Cancelación anticipada del contrato por parte del adherente. El ahorrante adherente podrá solicitar la cancelación anticipada de su sub-contrato antes del vencimiento del plazo comunicándolo por escrito a la Mutual. En tal caso, Mucap le devolverá el monto acumulado a la fecha de la cancelación conforme se indica en el Artículo 45 del presente reglamento.

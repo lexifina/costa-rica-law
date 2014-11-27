@@ -1,0 +1,1 @@
+Artículo 38.—De la representación del adherente. El adherente será representado ante la Mutual por el gestor, mediante un contrato de mandato comercial inserto en el contrato de ahorro, por el cual el adherente entregará conforme lo indique el contrato, sumas de dinero al gestor quien las reportará y depositará a nombre del ahorrante en la Mutual.

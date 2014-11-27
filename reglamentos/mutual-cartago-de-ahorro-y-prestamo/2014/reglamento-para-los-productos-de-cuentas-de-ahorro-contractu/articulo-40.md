@@ -1,0 +1,1 @@
+Artículo 40.—Monto mínimo de los aportes periódicos. Los adherentes podrán aumentar voluntariamente el monto de su ahorro. Sin embargo, no podrán disminuir la suma a ahorrar más allá del mínimo previamente pactado.

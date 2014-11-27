@@ -1,0 +1,1 @@
+Artículo 43.—De los estados de las cuentas de ahorros colectivos. Periódicamente Mucap entregará al gestor los estados de cuentas que reflejan los movimientos transaccionales realizados durante su vigencia a efecto de que sean distribuidos entre los ahorrantes.

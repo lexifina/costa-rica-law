@@ -1,0 +1,1 @@
+Artículo 13.—Penalizaciones por retiros anticipados. Cuando el ahorrante solicite la cancelación anticipada de su contrato de ahorro, Mucap podrá establecer una penalización con respecto a los intereses acumulados o al saldo, dependiendo de la clase del contrato y del plazo que resta por vencer, conforme se indique en el respectivo contrato.

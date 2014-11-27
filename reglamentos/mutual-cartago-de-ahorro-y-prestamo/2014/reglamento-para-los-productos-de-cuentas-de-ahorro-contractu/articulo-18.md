@@ -1,0 +1,1 @@
+Artículo 18.—De la actualización de la libreta o reporte de transacciones. La información se actualizará en el reporte o la libreta cada vez que se realice una transacción, en las oficinas de Mucap o por los medios que ésta tenga dispuestos para ese fin.

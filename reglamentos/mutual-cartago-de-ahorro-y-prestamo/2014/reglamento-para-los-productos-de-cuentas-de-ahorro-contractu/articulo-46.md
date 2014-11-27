@@ -1,0 +1,2 @@
+Artículo 46.—Cancelación anticipada solicitada por medio del gestor. La solicitud de cancelación anticipada, antes del vencimiento del plazo, de los subcontratos de un grupo de adherentes, también podrá ser tramitada conforme a la cláusula anterior por medio del gestor, siempre y cuando el adherente lo autorice por escrito.
+Si un 50% o más de los adherentes solicitan su retiro, el contrato se cancelará anticipadamente para todos los restantes, aplicando las penalizaciones definidas por la Administración de Mucap

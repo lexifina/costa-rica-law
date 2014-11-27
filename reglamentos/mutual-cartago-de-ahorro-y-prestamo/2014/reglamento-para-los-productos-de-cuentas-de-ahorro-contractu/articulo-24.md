@@ -1,0 +1,5 @@
+Artículo 24.—Documentos utilizados para la apertura de un contrato de cuenta de ahorros individual
+A. Política conozca a su cliente. De conformidad con la Ley 8204. “Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo se ha implementado en Mucap el documento denominado: “Política Conozca a su Cliente” mediante el cual el ahorrante indica, bajo la fe de juramento, que lo manifestado en este documento es cierto, el cual deberá firmar de su puño y letra.
+Los requisitos de identificación tanto para personas físicas como jurídicas serán definidos en el “Manual de Cumplimiento” y sus reformas emitidas por la Oficialía de Cumplimiento de Mucap.
+B. El Contrato. El contrato es el documento donde se establecen las condiciones bajo las cuales operará la cuenta de ahorros individual.
+El contrato constará de dos originales que deberán ser firmados por el ahorrante y por un representante de Mucap.

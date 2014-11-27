@@ -1,0 +1,2 @@
+Artículo 12.—Incumplimiento o inactividad de los contratos de cuentas de ahorros. Cuando el ahorrante suspenda los depósitos acordados conforme al tipo de contrato suscrito, Mucap le otorgará un plazo de gracia similar al periodo de depósito. Si pasado el periodo de gracia, no continúa con la periodicidad establecida, el contrato podrá ser interrumpido aplicando para tal efecto las penalizaciones que se establezcan a cada tipo de plan.
+Dichas penalizaciones serán determinadas por la administración de Mucap e incorporadas en los contratos de ahorro que se suscriban.

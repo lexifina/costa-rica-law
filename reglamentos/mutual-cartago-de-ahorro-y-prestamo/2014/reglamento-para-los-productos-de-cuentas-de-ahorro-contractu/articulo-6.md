@@ -1,0 +1,1 @@
+Artículo 6º—Monto mínimo para la apertura de una cuenta de ahorros contractual. El monto mínimo para la apertura de una cuenta de ahorros contractual será determinado por la administración de Mucap, dependiendo de la clase del contrato y del tipo del plan que se suscriba.

@@ -1,0 +1,1 @@
+Artículo 7º—Pago y cálculo de intereses. La Administración de Mucap fijará la forma de cálculo y las tasas de interés pasivas de conformidad con el costo del dinero en el mercado financiero nacional para depósitos en cuenta de ahorros.
