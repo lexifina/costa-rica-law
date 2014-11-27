@@ -1,0 +1,3 @@
+Artículo 52.—De la variación en las condiciones de los servicios asociados a los contratos. Toda variación en las condiciones que regulan los servicios y tarifas que Mucap presta, regirán desde la fecha de comunicación al cuenta ahorrante por los medios que, para el contrato respectivo, determine Mucap.
+Dadas estas variaciones la continuación, por parte del cuenta ahorrante, en el uso de estos servicios significará su total aceptación de las modificaciones.
+El cuenta ahorrante podrá expresamente dar por resuelto en cualquier tiempo el contrato o los servicios asociados que se modificaron si no estuviera conforme con estas variaciones.

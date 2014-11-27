@@ -1,0 +1,1 @@
+Artículo 55.—De la suspensión del pago de intereses en cuentas inactivas. Mucap se reserva el derecho de suspender la acreditación de intereses a aquellas cuentas inactivas en las que se verifiquen las condiciones que se establezcan según lo indicado en el Artículo cincuenta y tres.

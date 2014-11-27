@@ -1,0 +1,2 @@
+Artículo 51.—De la incorporación de nuevos servicios. Mucap podrá ofrecer al cuenta ahorrante, nuevos servicios y/o productos, o variaciones a los que ya estuviere brindando, para lo cual conjuntamente con la oferta de esos nuevos servicios, proporcionará al cuenta ahorrante todos los términos, condiciones, costos y mecanismos de afiliación.
+Para la incorporación de nuevos servicios, el cuenta ahorrante deberá aceptarlos expresamente por escrito o por los medios que Mucap, de forma particular, disponga para tal fin.

@@ -1,0 +1,2 @@
+Artículo 36.—De los medios de banca electrónica. Mucap, como entidad financiera dinámica y en continuo desarrollo tecnológico, irá implementando nuevos mecanismos a fin de poner a disposición de los cuenta ahorrantes y de los terceros autorizados el servicio de transacciones de banca electrónica en operaciones de crédito, débito, consultas o similares.
+Para la realización de estas operaciones se deberá cumplir con los procedimientos y regulaciones que para el uso de tales plataformas tecnológicas se establezcan a nivel institucional o para todo el sistema financiero.

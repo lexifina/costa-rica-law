@@ -1,0 +1,3 @@
+Artículo 63.—Vigencia del reglamento. Este Reglamento rige a partir de su publicación en La Gaceta.
+A las cuentas de ahorros vigentes, se les aplicarán todos los beneficios y obligaciones que aquí se determinan, otorgándose un plazo de un mes a los actuales cuenta ahorrantes para que manifiesten su negativa, en caso de no aceptar las modificaciones que afecten sus contratos, entendiéndose que vencido este plazo, caducará de pleno derecho la acción del cuenta ahorrante para objetar la aplicación del nuevo reglamento a los contratos vigentes.
+Este Reglamento fue revisado y aprobado por la Junta Directiva de Mucap en Sesión N° 3074-2014, Artículo 8° del 29 de mayo del 2014.

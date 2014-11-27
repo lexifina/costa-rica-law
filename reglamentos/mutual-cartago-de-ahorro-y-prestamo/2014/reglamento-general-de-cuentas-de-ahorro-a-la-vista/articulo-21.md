@@ -1,0 +1,1 @@
+Artículo 21.—Constitución de la cuenta de ahorros a la vista. Los contratos de cuentas de ahorros individuales, son contratos de ahorros a la vista que se constituyen por la aceptación del ahorrante de las cláusulas que contiene el contrato, la “Política Conozca a su Cliente” y el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 29.—De los comprobantes de las transacciones. Mucap entregará al cuenta ahorrante los comprobantes y medios de registro que detallen cada transacción realizada. Ello en tanto se empleé un medio físico para realizar y registrar las transacciones.

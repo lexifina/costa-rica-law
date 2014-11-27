@@ -1,0 +1,1 @@
+Artículo 39.—Del registro de las transacciones de banca electrónica. Las transacciones realizadas mediante banca electrónica, serán registradas en el estado de cuenta individual del cuenta ahorrante y en la bitácora de movimientos que podrá ser consultada por el cuenta ahorrante mediante los medios que Mucap ponga a su disposición.

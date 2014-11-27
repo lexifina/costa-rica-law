@@ -1,0 +1,1 @@
+Artículo 17.—De la comunicación de las tasas de interés. Mucap comunicará a todos los cuenta ahorrantes, las tasas de interés vigentes y las sucesivas variaciones para cada uno de los contratos de ahorros, a través de pizarras informativas ubicadas en un lugar visible en todas las agencias de Mucap, o por cualquier otro medio físico o electrónico de que se disponga.

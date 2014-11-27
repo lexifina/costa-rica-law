@@ -1,0 +1,1 @@
+Artículo 60.—De los límites a los montos transaccionales realizados a través de banca electrónica. Mucap tiene el derecho de establecer límites para los montos y tipos de transacciones que se autoricen mediante la utilización de banca electrónica, y por lo mismo esas limitaciones no le causan responsabilidad alguna ni deriva en derecho adquirido por parte del cuenta ahorrante.

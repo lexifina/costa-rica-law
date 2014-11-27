@@ -1,0 +1,2 @@
+Artículo 4º—El cuenta ahorrante. Las personas físicas con capacidad legal para actuar, así como las personas jurídicas vigentes, podrán constituir toda clase y cantidad de contratos de ahorros a la vista, siempre y cuando lleguen a calificar para estos fines.
+El tutor de un menor de edad o el curador de un incapaz judicialmente declarado podrán constituir cuentas de ahorros a nombre de sus representados.

@@ -1,0 +1,2 @@
+Artículo 15.—De las diversas modalidades de cuentas de ahorro. Mucap podrá poner a disposición del cuenta ahorrante instrumentos de ahorro a la vista y de ahorro contractual a través de contratos que empleen ya sea medios físicos o electrónicos para la realización de transacciones.
+Los instrumentos de ahorro contractual podrán ser a plazo, a plazo con preaviso, de ahorro periódico o de ahorro colectivo.

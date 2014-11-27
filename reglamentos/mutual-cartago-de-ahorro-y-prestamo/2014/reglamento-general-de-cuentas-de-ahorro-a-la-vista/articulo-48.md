@@ -1,0 +1,2 @@
+Artículo 48.—De la validez de las transacciones. La validación de las transacciones utilizando medios electrónicos se hará mediante la comprobación de la clave personal del usuario. Cuando la transacción se lleve a cabo por medios físicos, el cliente deberá presentar el respectivo documento de identificación vigente.
+Mucap podrá, en el futuro, utilizar otros medios tecnológicos que permitan la identificación del usuario al momento de realizar sus transacciones.

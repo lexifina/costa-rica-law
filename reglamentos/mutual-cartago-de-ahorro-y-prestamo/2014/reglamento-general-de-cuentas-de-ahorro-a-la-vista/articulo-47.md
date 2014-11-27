@@ -1,0 +1,1 @@
+Artículo 47.—De la realización de transacciones combinando medios electrónicos y físicos. El cuenta ahorrante podrá realizar transacciones mixtas mediante banca electrónica y por medios físicos, las cuales quedarán reflejadas o registradas de conformidad con el medio utilizado y su bitácora, siempre y cuando así lo permitan los medios tecnológicos.

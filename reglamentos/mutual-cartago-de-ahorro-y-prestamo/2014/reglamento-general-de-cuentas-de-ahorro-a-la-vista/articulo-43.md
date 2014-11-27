@@ -1,0 +1,1 @@
+Artículo 43.—De la validez de los movimientos realizados a través de banca electrónica. Mucap dará por válida toda transacción de banca electrónica que sea realizada con el medio de identificación personal del cuenta ahorrante o del tercero autorizado, sustituyéndose así la firma personal.
