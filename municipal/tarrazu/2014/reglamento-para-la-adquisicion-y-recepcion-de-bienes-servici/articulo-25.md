@@ -1,0 +1,1 @@
+Artículo 25.—En las contrataciones directas y las abreviadas según el monto establecido por el artículo 27 de la LCA, la adjudicación será potestad del Alcalde(sa) y públicas las hará el Concejo Municipal.

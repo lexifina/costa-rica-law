@@ -1,0 +1,1 @@
+Artículo 46.—Compras mediante la plataforma de Mer- Link. Se regirán mediante el Decreto Ejecutivo número 36246-MP-PLAN, Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “Mer-Link” y sus reformas.
