@@ -1,0 +1,1 @@
+Artículo 10.—El Colegio de Terapeutas llevara un libro de Registro de los Talonarios y del profesional que adquiere el Talonario para el Diagnostico Terapéutico, libro de registro que deberá ser legalizado por el Departamento Legal del Colegio.
