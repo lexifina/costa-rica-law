@@ -1,0 +1,1 @@
+Artículo 2º—Cobertura: Los corredores debidamente inscritos en este Registro podrán participar en la gestión de venta de todos los bienes que el BNCR designe, con independencia de la zona geográfica en la cual estén ubicados y no tendrán ninguna exclusividad para la venta de bienes temporales.

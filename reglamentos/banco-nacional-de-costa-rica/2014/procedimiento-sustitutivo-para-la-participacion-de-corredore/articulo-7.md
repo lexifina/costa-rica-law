@@ -1,0 +1,4 @@
+Artículo 7º—De la revisión y rechazo de la solicitud: El Comité de Licitaciones del BNCR, tiene un plazo de 15 días hábiles para la revisión de las solicitudes de ingreso.
+En caso estar defectuosa la solicitud, por omisión de algún dato o falta de un requisito se dará al solicitante un plazo de 5 días hábiles para que realice la subsanación.
+Contra el rechazo de la solicitud de inscripción, cabrán los recursos de revocatoria con apelación en subsidio por parte del afectado; los dos recursos serán presentados ante El Comité de Licitaciones del BNCR, dentro de los 3 días hábiles siguientes a su comunicación. El primero será resuelto por El Comité de Licitaciones del BNCR en el plazo de 8 días hábiles, y el segundo por la Junta Directiva General del BNCR, en el plazo de 30 días hábiles.
+La resolución del recurso de la apelación dará por agotada la vía administrativa.
