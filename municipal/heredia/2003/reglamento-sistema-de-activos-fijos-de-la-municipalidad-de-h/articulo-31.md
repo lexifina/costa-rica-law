@@ -1,1 +1,0 @@
-Artículo 31.—Los jefes de departamento no son responsables de la pérdida, daño o depreciación que sufran los mismos, cuando provengan del deterioro natural por razón de su uso legítimo o de otra causa justificada. Por lo tanto estas personas están obligadas a velar por el correcto uso de los bienes, debiendo gestionar el mantenimiento y conservación adecuados.

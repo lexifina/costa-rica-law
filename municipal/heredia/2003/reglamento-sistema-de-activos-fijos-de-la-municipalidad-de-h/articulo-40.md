@@ -1,1 +1,0 @@
-Artículo 40.—Para efectos del control de activos que llevará la Contabilidad Municipal se utilizará el sistema informático que reúna todas las condiciones que el Departamento de Contabilidad considere necesarias para un eficiente registro y control de los activos municipales.

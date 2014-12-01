@@ -1,1 +1,0 @@
-Artículo 34.—Si al efectuarse una verificación de existencias por parte de la Auditoría Interna se encontrasen bienes sin registrar, o faltante o destruidos o en mal estado de conservación, el funcionario actuante informará al Departamento de Contabilidad para lo concerniente.

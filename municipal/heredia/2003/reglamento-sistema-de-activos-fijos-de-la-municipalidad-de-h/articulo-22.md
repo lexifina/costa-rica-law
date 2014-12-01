@@ -1,1 +1,0 @@
-Artículo 22.—Cuando el funcionario haya reparado o restituido parcial o totalmente el bien y pudiendo comprobar que no tuvo responsabilidad en la pérdida, tendrá derecho a que se le devuelva el valor que haya pagado.

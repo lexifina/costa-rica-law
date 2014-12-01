@@ -1,1 +1,0 @@
-Artículo 11.—Una vez que se halla cumplido con los artículos anteriores de este capítulo, la Proveeduría procederá a elaborar el informe de inclusión (comprobante de recibo) y lo remitirá al departamento de Contabilidad, la cual le dará trámite para que queden debidamente codificados e incorporados al inventario permanente y con su número de activo (plaqueo).
