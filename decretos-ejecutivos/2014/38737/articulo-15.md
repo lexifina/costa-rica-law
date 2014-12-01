@@ -1,0 +1,2 @@
+Artículo 15.—Rechazo de la solicitud por parte de la Unidad Ejecutora Técnica.
+En caso de que la Unidad Ejecutora Técnica, a través de la Oficina Operativa de los Afectados por el Nemagón estime que no se cumplen los requisitos fijados, rechazará la solicitud fundamentando su posición y pasará el expediente al Departamento Legal del Ministerio de Trabajo para que se pronuncie sobre la admisibilidad de la solicitud en los términos establecidos en la Ley N° 8130.

@@ -1,0 +1,1 @@
+Artículo 9º—Los miembros de la Unidad Ejecutora Técnica no devengará dietas u honorarios. La Unidad tendrá como sede las oficinas del Ministerio de Trabajo y Seguridad Social, quedando instalada desde la fecha de entrada en vigencia de este Decreto.

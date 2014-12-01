@@ -1,0 +1,17 @@
+Artículo 18.—Determinación de Daño del trabajador(a) o extrabajador(a).
+Para efectos del presente artículo, se entiende que el daño a indemnizar como efecto del uso del nematicida DBCP incluye tanto el posible daño físico debidamente comprobado, así como el daño moral objetivo que a consecuencia de este pudiese haber sufrido.
+A fin de determinar la existencia del daño físico alegado por el (la) trabajador(a) o extrabajador(a) solicitante, se atenderá a lo dispuesto para cada una de las siguientes categorías:
+18.1 Hombres Trabajadores y extrabajadores bananeros que puedan aportar muestra seminal.
+Deberán someterse al examen de laboratorio denominado Espermograma, examen básico con el cual se inician y controlan los estudios y tratamientos en el hombre.
+Este examen servirá para determinar la cantidad de espermatozoides, su volumen, motilidad y morfología, entre otros aspectos.
+La calificación de normalidad o anormalidad del esperma, será determinado por un médico especialista en medicina del trabajo que aportará el INS. La condición de esterilidad del solicitante, será determinado por este médico conforme a los parámetros establecidos por la Organización Mundial de Salud.
+En el caso de que existan espermogramas que conlleven a una duda clínica razonable, la misma será resuelta por una Comisión Técnica Médica creada para tales efectos y conformada por un profesional médico de cada una de las siguientes instituciones, a las que representarán: Caja Costarricense del Seguro Social, Ministerio de Salud y el Instituto Nacional de Seguros.
+18.2. Varones trabajadores y extrabajadores bananeros que no puedan dar muestra de espermograma y mujeres trabajadoras y extrabajadoras bananeras.
+En el caso de aquellos hombres trabajadores y extrabajadores que por diferentes causas estén imposibilitados para proporcionar la muestra necesaria destinada al espermograma, y de las mujeres trabajadoras y extrabajadoras bananeras, las indemnizaciones se reconocerán de acuerdo con el resultado de los exámenes físicos, psicológicos-sociales, de laboratorio, y el tiempo de exposición al agroquímico que se determine con los exámenes establecidos por el Instituto Nacional de Seguros. Este tipo de solicitante deberá asistir a realizarse el examen físico en el centro médico que el Instituto Nacional de Seguros determine.
+Una vez comprobado el daño físico como consecuencia de la exposición al DBCP, se procederá al pago de la indemnización correspondiente, la cual se calculará de acuerdo a tiempo de exposición al agroquímico el cual equivaldrá al periodo que el (la) trabajador(a) o extrabajador(a) estuvo expuesto (a) al uso del Nematicida DBCP y conforme a la siguiente tabla:
+Tiempo de Exposición | Porcentaje a indemnizar
+Menos de 1 año | 25%
+De 1 año a menos de 3 años | 50%
+De 3 años a menos de 5 años | 75%
+5 años o más | 100%
+Para determinar el tiempo de exposición se considerarán los períodos que el solicitante trabajó en una empresa bananera, según se compruebe mediante constancia emitida por la Caja Costarricense de Seguro Social o en su defecto por el Banco Popular y de Desarrollo Comunal. En caso de haberse presentado declaración jurada, se considerarán los períodos que declaran los testigos y que son comprobados mediante las constancias de la Caja Costarricense de Seguro Social y Banco Popular que aportan cada uno de ellos como trabajadores bananeros y compañeros del afectado(a).

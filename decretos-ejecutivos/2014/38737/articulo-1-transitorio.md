@@ -1,0 +1,1 @@
+Transitorio único.—A partir de la publicación de este Reglamento, la Unidad Ejecutora Técnica contará con el plazo de tres meses para crear el marco de evaluación integral sobre la exposición al BDCP establecido en el artículo 4 de este Reglamento.
