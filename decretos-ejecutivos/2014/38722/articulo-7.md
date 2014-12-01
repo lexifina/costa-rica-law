@@ -1,0 +1,1 @@
+Artículo 7º—Derógase el Decreto Ejecutivo número 38043-H, publicado en La Gaceta número 239 de fecha 11 de diciembre de 2013, corregido según Fe de Erratas publicada en el Alcance Digital número 132 a La Gaceta número 242 del 16 de diciembre de 2013.
