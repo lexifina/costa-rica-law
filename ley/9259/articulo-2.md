@@ -1,0 +1,1 @@
+ARTÍCULO 2.- La finca donada a la Asociación Administradora del Acueducto y Alcantarillado Rural de la Comunidad de San Isidro de León Cortés tendrá como finalidad el mejoramiento del acueducto rural y la protección de la naciente de agua, con lo cual se garantiza la conservación del área.

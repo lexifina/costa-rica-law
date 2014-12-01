@@ -1,0 +1,1 @@
+ARTÍCULO 3.- En caso de que la Asociación Administradora del Acueducto y Alcantarillado Rural de la Comunidad de San Isidro de León Cortés, donataria de este bien, llegue a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, dicho bien donado volverá de pleno derecho a ser propiedad de la Municipalidad del cantón de León Cortés de San José.
