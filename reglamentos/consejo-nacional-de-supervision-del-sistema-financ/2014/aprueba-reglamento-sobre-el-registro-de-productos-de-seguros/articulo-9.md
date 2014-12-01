@@ -1,0 +1,2 @@
+9.- Modificar el último párrafo del Artículo 2 del Reglamento sobre Comercialización de Seguros para que en adelante se lea de la siguiente forma:
+“Las solicitudes de registro, acreditación y autorización de intermediarios, operadores de seguros autoexpedibles, proveedores transfronterizos de servicios de seguros y relacionados con seguros y productos referidos en este reglamento, se tramitarán según lo dispuesto en la normativa específica emitida por el CONASSIF.”

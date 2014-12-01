@@ -1,0 +1,1 @@
+6.- Modificar el título del Capítulo II, del Reglamento sobre Autorizaciones, Registros y Requisitos de Funcionamiento de Entidades Supervisadas por la Superintendencia General de Seguros, que se denomina Registro de Pólizas y Notas Técnicas para que en adelante se lea Registro de Seguro Obligatorio.
