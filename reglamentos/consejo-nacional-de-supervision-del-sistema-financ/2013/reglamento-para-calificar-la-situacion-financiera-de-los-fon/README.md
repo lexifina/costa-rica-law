@@ -14,3 +14,4 @@ Reglamento para calificar la situación financiera de los fondos administrados p
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-19 | la propia norma |
+| 2 | 2014-12-01 | Reglamento 1140 (2014-12-01) |
