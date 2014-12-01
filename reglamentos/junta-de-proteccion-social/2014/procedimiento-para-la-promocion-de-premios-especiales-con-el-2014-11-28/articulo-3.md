@@ -1,0 +1,2 @@
+Artículo 3º—Detalle de los premios
+Los premios especiales “Sorteo Extraordinario de Navidad N° 4317”consisten en ciento setenta y cinco (175) enteros de Lotería Nacional que corresponden al “Sorteo Extraordinario de Navidad N° 4317”, que serán sorteados a través de tómbola electrónica, entre las personas que hayan efectuado la activación de este sorteo, conforme la mecánica de participación definida para este sorteo que se indica en el artículo 5) de este procedimiento.

@@ -1,0 +1,3 @@
+Artículo 6º—Mecánica de la promoción Premios Especiales “Sorteo Extraordinario de Navidad N° 4317”
+El sorteo para la selección del ganador de esta promoción se hará a través de una tómbola electrónica, la cual indicará el nombre del ganador, número de cédula, serie, número y número de emisión del entero que corresponde a la fracción activada. El sorteo se efectuará el martes 09 de diciembre, 2014 a las 3:00 p.m. en el Auditorio Institucional en presencia del grupo de fiscalizadores que designe la Junta.
+Los nombres de los ganadores serán publicados en la página electrónica de la Junta de Protección Social (www.jps.go.cr), en el sitio de la red social facebook “Junta de Protección Social (Oficial)” y en una publicación que se efectuará en prensa escrita.

@@ -1,0 +1,2 @@
+Artículo 2º—Objeto
+El objeto del presente procedimiento es el de regular los aspectos relacionados con la promoción establecida para el otorgamiento de premios especiales, con el “Sorteo Extraordinario de Navidad N° 4317”; correspondientes al año 2014 y que fue aprobada por la Junta Directiva de la Junta de Protección Social, según acuerdo JD-521, correspondiente al artículo 3), inciso 7) de la sesión ordinaria N° 37-2014 celebrada el 18 de noviembre del 2014, como parte de la estrategia de comercialización para este producto.
