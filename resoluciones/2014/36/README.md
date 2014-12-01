@@ -14,3 +14,4 @@ Retención del dos por ciento (2%) por parte de las entidades financieras que pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-01 | la propia norma |
+| 2 | 2014-12-01 | Resolución 39 (2014-09-11) |
