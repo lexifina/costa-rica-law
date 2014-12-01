@@ -1,5 +1,4 @@
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
-(Nota de Sinalevi: Mediante la resolución N° DGT-R-39-2014 del 11 de setiembre del 2014, se prorroga hasta el 1° de noviembre la entrada en vigencia de la presente resolución. No obstante la indicada norma establece que la misma empieza a regir a partir del 1° de octubre del 2014, por lo que a partir de esa fecha se realizará la respectiva reforma)
 RESOLUCIÓN SOBRE RETENCIÓN DEL DOS POR CIENTO POR
 PARTE DE LAS ENTIDADES FINANCIERAS QUE PROCESEN
 PAGOS POR MEDIO DE TARJETA DE CRÉDITO O DÉBITO
@@ -14,4 +13,5 @@ VI.—Que mediante el artículo 1º de la resolución de esta Dirección número
 VII.—Que en acatamiento del artículo 174 del Código Tributario se publicó la presente resolución en el sitio Web http:// dgt.hacienda.go.cr, en la sección “Propuestas en consulta pública”, antes de su dictado y entrada en vigencia, a efectos de que las entidades representativas de carácter general, corporativo o de intereses difusos tuvieran conocimiento del proyecto y pudieran oponer sus observaciones, en el plazo de diez días hábiles siguientes a la publicación del primer aviso en el Diario Oficial.
 En el presente caso, el aviso fue publicado por dos veces en La Gaceta número 118 del 20 de junio de 2014 y en la número 119 del 23 de junio de 2014, respectivamente. Por tanto,
 RESUELVE:
-Artículo 1º—Las entidades financieras que procesen los pagos de tarjetas de crédito o débito deben efectuar una retención del dos por ciento (2%) del monto que paguen, acrediten o en cualquier otra forma, pongan a disposición de los personas físicas o jurídicas, por las transacciones realizadas, independientemente si estos se encuentran inscritos o no ante la Administración Tributaria. La base para el cálculo de la retención es el monto que se pague o acredite sin deducción alguna.
+Artículo 1º—Las entidades financieras que procesen los pagos de tarjetas de crédito o débito deben efectuar una retención del dos por ciento (2%) del monto que paguen, acrediten o en cualquier otra forma, pongan a disposición de los personas físicas o jurídicas, por las transacciones realizadas, independientemente si estos se encuentran inscritos o no ante la Administración Tributaria. La base para el cálculo de la retención es el ochenta y ocho por ciento (88%) del monto que se pague o acredite sin considerar deducción alguna.
+(Así reformado mediante resolución N° DGT-R-040-2014 del 23 de setiembre del 2014)
