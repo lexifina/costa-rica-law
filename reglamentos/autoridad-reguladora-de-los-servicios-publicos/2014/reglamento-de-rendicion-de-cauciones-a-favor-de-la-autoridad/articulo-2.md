@@ -1,0 +1,15 @@
+Artículo 2º—Definiciones. Para los efectos del presente reglamento, los términos que a continuación se consignan, tienen el siguiente significado:
+a) Administración de fondos y valores públicos: Es un conjunto de reglas para gestionar bien los negocios, en un sentido amplio se conceptúa como aplicación de medios afines; comprende la realización oportuna, eficaz y efectiva de las funciones administrativas, entendiéndose éstas como planear, organizar, dirigir, coordinar y controlar las actividades que orientarán la organización hacia el logro de los fines establecidos.
+b) Autoridad Reguladora: Se refiere a la Autoridad Reguladora de los Servicios Públicos incluida la Superintendencia de Telecomunicaciones (Sutel).
+c) Caución: Es la garantía que presta un funcionario para asegurar el cumplimiento de los deberes y obligaciones acorde con su puesto.
+d) Caucionante o garante: Es el funcionario de la Autoridad Reguladora que administra, recauda o custodia fondos o valores públicos.
+e) Custodia de fondos y valores públicos: Guarda o tenencia de fondos públicos que se administran o recauden con cuidado y vigilancia. Ello implica preservar lo custodiado y responder por ello.
+f) Estrategia y Evaluación: Comprende a la Dirección de Estrategia y Evaluación en el caso de la Autoridad Reguladora de los Servicios Públicos y la unidad administrativa de Planificación, Presupuesto y Control Interno en el caso de la Superintendencia de Telecomunicaciones.
+g) Finanzas: Comprende la Dirección de Finanzas en el caso de la Autoridad Reguladora de los Servicios Públicos y la unidad administrativa de Finanzas en el caso de la Superintendencia de Telecomunicaciones.
+h) Fondos o valores públicos: Son los recursos, valores, bienes y derechos, propiedad del Estado, de órganos, de empresas o de entes públicos.
+i) Garantía: Fianza, prenda o documento que garantiza un compromiso.
+j) Jerarca Superior Administrativo: El Regulador General para todos los funcionarios de la Autoridad Reguladora, con las siguientes excepciones: a) En el caso del Auditor Interno, del sub auditor y de los miembros del Consejo de la Superintendencia de Telecomunicaciones, el Jerarca Superior Administrativo es la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos y; b) En el caso de los funcionarios de la Superintendencia de Telecomunicaciones, el Jerarca Superior Administrativo es el Consejo de la Superintendencia de Telecomunicaciones.
+k) Póliza o seguro de fidelidad: Documento emitido por una aseguradora debidamente legitimada, para brindar garantía a efecto de afianzar a la Autoridad Reguladora por actos dolosos o culposos del funcionario en el desempeño de su labor.
+l) Propio peculio: Conjunto de dinero y bienes que posee el servidor público.
+m) Recaudación de fondos y valores públicos: Es la cobranza de rentas públicas. Percepción de fondos públicos.
+Para efectos de este reglamento cuando se refiere al cargo, puesto o condición de una persona, se entenderá sin distinción o discriminación de género.

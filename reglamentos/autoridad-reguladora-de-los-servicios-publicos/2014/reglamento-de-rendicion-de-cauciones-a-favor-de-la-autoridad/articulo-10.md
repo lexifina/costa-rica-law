@@ -1,0 +1,1 @@
+Artículo 10.—Garantes del nivel B. En este nivel están obligados a rendir caución para el ejercicio de sus cargos, quienes ocupen los puestos de Secretario de la Junta Directiva de la Autoridad Reguladora, jefes de Departamento, oficina o equivalente.

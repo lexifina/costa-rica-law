@@ -1,0 +1,1 @@
+Artículo 9º—Garantes del nivel A. En este nivel están obligados a rendir caución para el ejercicio de sus cargos los miembros de la Junta Directiva de la Autoridad Reguladora, los miembros propietarios y suplentes del Consejo de la Sutel, el Regulador General, el Regulador General Adjunto, los intendentes, los directores generales y los directores u otro equivalente.

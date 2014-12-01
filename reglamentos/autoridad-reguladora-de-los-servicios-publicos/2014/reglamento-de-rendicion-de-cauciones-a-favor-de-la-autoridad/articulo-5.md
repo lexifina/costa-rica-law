@@ -1,0 +1,1 @@
+Artículo 5º—Forma de rendir la caución. La caución en favor de la Autoridad Reguladora solo podrá ser admitida mediante la constitución de un seguro o póliza de fidelidad suscrita con una entidad aseguradora o bancaria de la elección del caucionante.

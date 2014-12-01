@@ -1,0 +1,1 @@
+Artículo 6º—Deber de solventar la caución. Es deber del funcionario que está obligado a rendir caución de acuerdo con la naturaleza del puesto, gestionar y sufragar de su propio peculio el costo de la garantía a favor de la Autoridad Reguladora. La garantía deberá estar vigente por todo el plazo que dure su nombramiento.

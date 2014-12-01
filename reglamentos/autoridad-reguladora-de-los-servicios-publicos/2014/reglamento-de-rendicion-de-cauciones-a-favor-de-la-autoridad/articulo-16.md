@@ -1,0 +1,1 @@
+Artículo 16.—Ajuste de la caución. El funcionario que por algún motivo sea trasladado de un puesto a otro, que implique un nuevo nivel superior de responsabilidad, deberá ajustar la caución conforme a la nueva situación, para lo cual contará con un plazo de treinta días hábiles.

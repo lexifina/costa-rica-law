@@ -1,0 +1,1 @@
+Transitorio Único. Los funcionarios que al momento de entrada en vigencia de este Reglamento estén obligados a rendir caución y no lo hayan rendido, contarán con un plazo de treinta días hábiles para gestionarla y presentarla a Finanzas.

@@ -1,0 +1,1 @@
+Artículo 13.—Sustitución del titular del puesto afecto a rendir caución. Cuando el plazo de ausencia del titular del puesto supere el mes calendario, Recursos Humanos deberá notificar a los funcionarios que sustituyan temporalmente al titular del puesto sujeto a rendir caución, para que procedan a rendirla, antes de asumir la sustitución del titular.
