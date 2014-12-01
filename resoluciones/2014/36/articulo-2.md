@@ -1,0 +1,1 @@
+Artículo 2º—Estas retenciones no se aplican a las entidades no sujetas de conformidad con el artículo 3 de la Ley del Impuesto sobre la Renta y a los contribuyentes del Régimen de Tributación Simplificada. Para estos efectos la Administración Tributaria pondrá a disposición de las entidades financieras el listado respectivo.

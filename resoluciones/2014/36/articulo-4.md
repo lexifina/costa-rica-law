@@ -1,0 +1,2 @@
+Artículo 4º—De forma transitoria se establece el formulario de “Declaración Jurada de retenciones en la fuente del 2 %- impuesto a las utilidades”, como medio para que los agentes de retención, presenten y paguen, durante los primeros quince días naturales del mes siguiente a aquel en que se efectúe la retención, las sumas correspondientes.
+El sujeto pasivo podrá rectificar sus declaraciones tributarias con posterioridad a la presentación de las declaraciones iniciales, de conformidad con el artículo 130 del Código de Normas y Procedimientos Tributarios.
