@@ -1,0 +1,3 @@
+Artículo 7°—Publicación de los productos registrados. La Superintendencia mantendrá a disposición del público el Registro de Productos de Seguros, e identificará aquellos con prohibición para ser comercializados.
+Para cada producto se publicarán las condiciones generales y la solicitud de seguro vigentes y de las versiones anteriores. La Superintendencia realizará la publicación de las nuevas versiones en un plazo máximo de 5 días hábiles.
+La documentación técnica del producto es información confidencial, para uso exclusivo de la Superintendencia, para el cumplimiento de las funciones establecidas en la legislación vigente.

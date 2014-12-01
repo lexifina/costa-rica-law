@@ -1,0 +1,2 @@
+Artículo 6°—Acreditación de profesionales signatarios de la documentación. La entidad aseguradora debe registrar ante la Superintendencia, a los profesionales en actuariado y derecho que pueden firmar los documentos exigidos para el registro de pólizas, de acuerdo con los lineamientos que defina el Superintendente.
+Es responsabilidad de la entidad aseguradora evaluar el perfil profesional e idoneidad técnica de estos profesionales.

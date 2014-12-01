@@ -1,0 +1,7 @@
+CAPÍTULO II
+Procedimiento general para el registro o actualización
+de un producto de seguros
+Artículo 9°—Presentación de la solicitud. Toda solicitud de registro o actualización de producto de seguros debe presentarse ante la Superintendencia, por los medios que disponga el Superintendente mediante acuerdo general.
+La solicitud debe ser firmada por el representante legal de la entidad, o por quien ejercerá la representación de la entidad que presenta la solicitud de registro o actualización de un producto. Asimismo, se deberán completar los requisitos establecidos en la legislación y en este Reglamento.
+La solicitud de registro de un producto debe estar acompañada de una declaración del oficial de cumplimiento de la entidad que haga constar que ha realizado y documentado un análisis del riesgo de legitimación de capitales y el financiamiento al terrorismo de ese producto. Dicha declaración debe efectuarse, de forma obligatoria, cuando se solicita por primera vez el registro de un producto.
+Posteriormente, si se realizan actualizaciones que modifiquen la naturaleza del producto, deben ser consideradas como parte de la evaluación del riesgo de legitimación de capitales y el financiamiento al terrorismo que debe realizar la entidad de conformidad con el artículo 3 de la Normativa para el cumplimiento de la Ley N° 8204 al analizar el factor de riesgo de sus productos.

@@ -1,0 +1,1 @@
+Artículo 15.—Denegatoria del registro. Cuando una entidad aseguradora, habiendo sido prevenida para que complete los requisitos que deben acompañar la presentación de la solicitud, según lo dispuesto en el artículo 13 de este Reglamento, no complete la documentación según lo requerido, la Superintendencia procederá a la denegatoria del registro y el archivo de la solicitud.

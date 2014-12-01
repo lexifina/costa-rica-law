@@ -1,0 +1,1 @@
+Artículo 17.—Contrato de Reaseguro. En caso de que la entidad adopte tarifas de reasegurador, deberá mantener a disposición de la Superintendencia, para las labores de supervisión correspondientes, el contrato de reaseguro vigente y debidamente firmado.

@@ -1,0 +1,1 @@
+Artículo 8°—Informe sobre el Registro de Productos de Seguros. El Superintendente remitirá un informe trimestral al CONASSIF sobre las pólizas incluidas en el Registro de Productos de Seguros, así como las pólizas con prohibición de comercialización del período y aquellos productos que las entidades aseguradoras procedieron a desinscribir.

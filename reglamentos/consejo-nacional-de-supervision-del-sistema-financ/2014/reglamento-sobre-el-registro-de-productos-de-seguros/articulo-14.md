@@ -1,0 +1,1 @@
+Artículo 14.—Comunicación del registro. Cumplidos los requisitos de presentación, la Superintendencia asignará al producto un código de identificación único y comunicará el registro a la entidad aseguradora, por los medios establecidos por el Superintendente mediante acuerdo general.
