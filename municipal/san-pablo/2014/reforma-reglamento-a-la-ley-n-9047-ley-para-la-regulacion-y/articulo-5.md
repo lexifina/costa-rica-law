@@ -1,0 +1,2 @@
+Artículo 5º—Modifíquese el párrafo segundo del artículo 23 del Reglamento, para que en adelante se lea de la siguiente forma:
+Al otorgar las licencias para las categorías A y B (cantinas, bares, tabernas, salones de baile, discotecas) la administración municipal deberá velar por el cumplimiento de la restricción impuesta en el inciso d) del artículo 3° de la Ley N° 9047, a efectos de que no se sobrepase la proporción de las licencias Categoría A y B por cada trescientos habitantes como máximo en el cantón de San Pablo de Heredia.
