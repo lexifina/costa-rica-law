@@ -1,4 +1,5 @@
 Nº 38008-MAG
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38823 del 2 de diciembre del 2014, se prorroga la vigencia del presente decreto ejecutivo por el plazo de un año a partir del 07 de diciembre del 2014)
 LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE AGRICULTURA Y GANADERÍA
 En uso de las facultades que le confiere los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; artículo 28 inciso 2 acápite b) de la Ley General de Administración Pública, ley N° 6227 del 2 de mayo de 1978; artículo 2 inciso a) y b), artículo 5° incisos a), b), f), ñ) y el artículo 22 de la Ley de Protección Fitosanitaria, Ley N° 7664 del 8 de abril de 1997; y la Ley de Fomento a la Producción Agropecuaria y Orgánica del Ministerio de Agricultura y Ganadería, Ley N° 7064 del 29 de abril de 1987.

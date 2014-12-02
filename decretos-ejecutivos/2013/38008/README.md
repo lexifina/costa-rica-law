@@ -14,3 +14,4 @@ Declara estado de emergencia fitosanitaria nacional por la presencia de las plag
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-06 | la propia norma |
+| 2 | 2014-12-02 | Decreto Ejecutivo 38823 (2014-12-02) |
