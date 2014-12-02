@@ -1,0 +1,1 @@
+Artículo 11.—Manual de Procedimientos. La persona que ejerza la jefatura de la Unidad Financiera gestionará la confección de los Manuales de Procedimientos necesarios para el adecuado desarrollo de las actividades relacionadas con la operación del Fondo de Caja Chica y las Cajas Chicas.

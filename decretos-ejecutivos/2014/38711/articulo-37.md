@@ -1,0 +1,1 @@
+Artículo 37.—Responsabilidad por el pago de Impuesto de Ventas. Cuando un funcionario acepte y cancele una compra con fondos de una Caja Chica y la factura incluya el impuesto de ventas, deberá cubrir el importe del impuesto con su peculio personal.

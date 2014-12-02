@@ -1,0 +1,1 @@
+Artículo 13.—Ejecución del Presupuesto por Caja Chica en las Unidades Organizativas. El Responsable del Programa Presupuestario, autorizará la persona que ejerza el cargo de jefatura de la Unidad Organizativa en la cual funcione una Caja Chica, a ejecutar el presupuesto que se le desconcentre y a firmar los documentos presupuestarios que se deriven de este proceso.

@@ -1,0 +1,1 @@
+Artículo 22.—Recepción a Conformidad. En toda factura, tiquete de caja o comprobante se deberá indicar la recepción a conformidad de los bienes y servicios adquiridos, para tales efectos se incluirá: Unidad Organizativa que solicitó la compra y el nombre, número de cédula y firma del jefe de la Unidad Organizativa.

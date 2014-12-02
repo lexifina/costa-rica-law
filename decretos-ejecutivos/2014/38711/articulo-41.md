@@ -1,0 +1,1 @@
+Artículo 41.—En caso de duda en cuanto a las disposiciones contenidas en el presente reglamento, regirá lo estipulado en el Decreto Nº32874-H “Reglamento General del Fondo Cajas Chicas”, del 10 de noviembre de 2005, publicado en La Gaceta N° 22 del 31 de enero del 2006.

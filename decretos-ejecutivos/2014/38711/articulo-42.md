@@ -1,0 +1,1 @@
+Artículo 42.—Deróguese el Decreto Ejecutivo N° 18935-S, “Reglamento de Normas y Procedimientos para el Funcionamiento y Control de los Fondos para Cajas Chicas del Ministerio de Salud”, del 12 de abril de 1989, publicado en La Gaceta No.82 del 28 de abril de 1989.
