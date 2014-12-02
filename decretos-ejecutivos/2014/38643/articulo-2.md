@@ -1,1 +1,0 @@
-Artículo 2º—Derogatoria. Deróguese el Decreto Ejecutivo N° 38511-H de fecha 4 de junio del 2014, publicado en el Diario Oficial La Gaceta N° 172 de fecha 8 de setiembre del 2014, a partir de la vigencia del presente decreto.
