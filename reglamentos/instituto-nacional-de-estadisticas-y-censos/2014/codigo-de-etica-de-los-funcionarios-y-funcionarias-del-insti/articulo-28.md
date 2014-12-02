@@ -1,0 +1,2 @@
+Capítulo VI: Sanciones
+Artículo 28 Sanciones. El incumplimiento por parte de cualquier funcionario(a) del INEC de lo establecido en el presente código, hace posible la aplicación de las Sanciones previstas en el Reglamento Autónomo de Servicios del INEC, a través de la Unidad de Recursos Humanos y/o la entidad que corresponda, conforme a lo establecido en el artículo 15, literal a, y artículos 70, 71 y 72 del citado reglamento.
