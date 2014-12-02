@@ -16,11 +16,12 @@ Considerando:
 11.—Que por existir en el presente caso, razones -de interés público y de urgencia- que obligan a la publicación del decreto antes del inicio del período fiscal, sea antes del 1° de enero del dos mil catorce; no corresponde aplicar la disposición del artículo 174 del Código de Normas y Procedimientos Tributarios, que obliga a la Administración a dar audiencia por 10 días a las entidades representativas de intereses de carácter general o corporativo o de intereses difusos. Lo anterior, por cuanto podría verse afectada la publicación en el tiempo que corresponde legalmente, y por ende el cobro del impuesto, en virtud de que la redacción, revisión y aprobación del decreto inicia a partir de la determinación del índice de precios al consumidor, que el Instituto Nacional de Estadística y Censos realiza, considerando los doce meses inmediatos anteriores, correspondientes al periodo comprendido entre el 1º de diciembre del 2012 y el 30 de noviembre del 2013, razón por la cual con fundamento en el artículo citado, se prescinde de la audiencia previa a la publicación en el Diario Oficial. Por Tanto,
 Decretan:
 Artículo 1º—Actualización de los tramos de la escala. Para el período fiscal 2014, se actualizan los tramos de la escala establecida en el artículo 5 de la Ley N° 8683 de 19 de noviembre del 2008 y en el artículo 1º del Decreto Ejecutivo Nº 37444-H del 6 de diciembre del 2012 de la siguiente manera:
-| Valor | Tarifa
-a) Hasta | ¢301.000.000,00 | 0,25%
-b) Sobre el exceso de ¢301.000.000,00 y hasta | ¢604.000.000,00 | 0,30%
-c) Sobre el exceso de ¢604.000.000,00 y hasta | ¢905.000.000,00 | 0,35%
-d) Sobre el exceso de ¢905.000.000,00 y hasta | ¢1.207.000.000,00 | 0,40%
-e) Sobre el exceso de ¢1.207.000.000,00 y hasta | ¢1.508.000.000,00 | 0,45%
-f) Sobre el exceso de ¢1.508.000.000,00 y hasta | ¢1.812.000.000,00 | 0,50%
-g) Sobre el exceso de | ¢1.812.000.000,00 | 0,55%
+Valor | Tarifa
+a) Hasta | ¢319.000.000,00 | 0,25%
+b) Sobre el exceso de ¢319.000.000,00 y hasta | ¢640.000.000,00 | 0,30%
+c) Sobre el exceso de ¢640.000.000,00 y hasta | ¢958.000.000,00 | 0,35%
+d) Sobre el exceso de ¢958.000.000,00 y hasta | ¢1.278.000.000,00 | 0,40%
+e) Sobre el exceso de ¢1.278.000.000,00 y hasta | ¢1.597.000.000,00 | 0,45%
+f) Sobre el exceso de ¢1.597.000.000,00 y hasta | ¢1.919.000.000,00 | 0,50%
+g) Sobre el exceso de | ¢1.919.000.000,00 | 0,55%
+(Así modificadas las tarifas anteriores para el período fiscal 2015 por el artículo 2° del decreto ejecutivo N° 38789 del 2 de diciembre de 2014)
