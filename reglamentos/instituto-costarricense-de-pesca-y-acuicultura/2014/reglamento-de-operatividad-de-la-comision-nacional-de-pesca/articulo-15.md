@@ -1,0 +1,1 @@
+Artículo 15.—Las minutas se aprobarán en la siguiente reunión ordinaria y serán firmadas por el Coordinador y el Secretario de la CNPDT. Antes de esa aprobación, carecerán de fuerza los acuerdos tomados en la respectiva reunión, salvo que se dispongan como acuerdo firme.

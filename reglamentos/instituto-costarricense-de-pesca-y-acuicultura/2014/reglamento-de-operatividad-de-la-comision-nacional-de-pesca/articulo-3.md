@@ -1,0 +1,2 @@
+Artículo 3º—Del Coordinador, Subcoordinador y Secretario de la CNPDT. Para la consecución de sus fines y metas, la CNPDT de su seno nombrará un Coordinador, Subcoordinador y Secretario, todos éstos mediante el voto por mayoría simple de los miembros titulares, en la primera reunión del año.
+La vigencia de estos nombramientos será por un año calendario, pudiendo ser reelectos consecutivamente por períodos interrumpidos.

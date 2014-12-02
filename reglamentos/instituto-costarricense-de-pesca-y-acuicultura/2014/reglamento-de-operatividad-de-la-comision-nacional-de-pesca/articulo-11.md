@@ -1,0 +1,1 @@
+Artículo 11.—Las reuniones tanto ordinarias como extraordinarias serán privadas y se podrá invitar a otras personas o funcionarios del INCOPESCA, cuando así se requiera, para recabar opiniones expertas sobre aspectos especiales que sean del conocimiento de la CNPDT.

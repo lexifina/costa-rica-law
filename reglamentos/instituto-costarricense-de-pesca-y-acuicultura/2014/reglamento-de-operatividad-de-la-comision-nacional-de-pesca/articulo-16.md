@@ -1,0 +1,1 @@
+Artículo 16.—Los acuerdos de CNPDT serán tomados por mayoría simple. En caso de empate el Coordinador ejercerá doble voto. Para que un acuerdo quede aprobado en firme requerirá un mínimo votación favorable de las dos terceras partes de los miembros.

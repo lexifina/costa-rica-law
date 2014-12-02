@@ -1,0 +1,1 @@
+Artículo 9º—Las reuniones de CNPDT serán presididas por el Coordinador y en su ausencia por su orden la presidirá el Subcoordinador, y en el defecto de éste, por cualquiera de sus miembros, nombrado ad hoc, para ese fin.

@@ -1,0 +1,1 @@
+Artículo 21.—En los asuntos en discusión en los que un miembro de CNPDT esté relacionado en alguna forma, deberá inhibirse de conocerlo antes del inicio del debate, dejando constancia en la minuta correspondiente. Cuando hubiere motivo de abstención podrá también recusarse al miembro de CNPDT.
