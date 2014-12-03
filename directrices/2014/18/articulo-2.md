@@ -1,0 +1,2 @@
+Artículo 2º—Las Entidades Públicas sujetas a la presente directriz, solo podrán efectuar sus depósitos e inversiones financieras en la Tesorería Nacional del Ministerio de Hacienda de Costa Rica y en los bancos públicos, según lo dispuesto en los artículos 60 y 118 de la Ley Orgánica del Sistema Bancario Nacional, salvo autorización legal en contrario.
+Asimismo, las entidades públicas no podrán realizar inversiones financieras a tasas de interés superiores a las de referencia vigentes en la metodología que se indica en el siguiente artículo.

@@ -1,0 +1,1 @@
+Artículo 9º—Esta directriz modifica el Artículo número 1 de la Directriz Nº 054-H citada, en lo referente al porcentaje máximo de cartera de inversión financiera, que las entidades públicas autorizadas por ley pueden colocar en entidades financieras, estableciéndose el límite en 10% del total de su cartera de inversiones financieras.

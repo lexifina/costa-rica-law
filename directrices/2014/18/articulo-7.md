@@ -1,0 +1,1 @@
+Artículo 7º—El Consejo de Gobierno informará a la máxima autoridad de los bancos públicos y de las entidades públicas que presenten incumplimiento para efectos de tomar las acciones correctivas en aras de aplicar los lineamientos establecidos en esta directriz.
