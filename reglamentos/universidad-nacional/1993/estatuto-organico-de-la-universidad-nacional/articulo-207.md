@@ -1,4 +1,0 @@
-Artículo 207.—Asignación de presupuesto y presentación de estados financieros
-La Federación de Estudiantes de la Universidad Nacional, contará con un presupuesto correspondiente al cero punto tres por ciento (0.3%) del total del presupuesto de la Universidad Nacional, más el porcentaje correspondiente a las cuotas de Bienestar Estudiantil.
-La Federación de Estudiantes manejará sus estados financieros de acuerdo con sus órganos, Estatutos y Reglamentos. Someterá, sin embargo, un informe cuatrimestral de sus finanzas al Departamento Financiero de la Universidad, el cual deberá ser elaborado por un Contador Privado incorporado.
-La Contraloría Universitaria podrá realizar auditorajes sobre los rubros que se refieren a los fondos suministrados por los estudiantes o por la Universidad, sea por iniciativa propia o a petición de un organismo representativo estudiantil, o por gestión de un cinco por ciento (5 %), del total de los estudiantes.

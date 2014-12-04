@@ -1,2 +1,0 @@
-Artículo 158.—Evaluación del Personal Académico
-El personal académico de la Universidad Nacional será objeto de una evaluación periódica e integral de su quehacer, en la que participarán los estudiantes, cuando corresponda. La evaluación se efectuará de acuerdo con las políticas, planes y normas institucionales aprobadas por el Consejo Universitario y a las particularidades de cada Unidad Académica.

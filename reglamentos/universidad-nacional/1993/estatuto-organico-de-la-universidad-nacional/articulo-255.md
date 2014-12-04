@@ -1,2 +1,0 @@
-Artículo 255.—Apelación Subsidiaria
-Si notificada la resolución al recurrente, éste no la considera interés, dentro de un plazo de ocho días hábiles, lo manifestará así al \ órgano que resolvió su instancia, quien dentro de las cuarenta y ocho I elevará el recurso de apelación ante el superior jerárquico o ante Apelaciones según corresponda, y emplazará a las partes para que dentro de los ocho días hábiles siguientes puedan ampliar y reforzar los argumentos de su posición.

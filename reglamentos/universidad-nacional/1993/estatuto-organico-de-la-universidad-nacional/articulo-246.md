@@ -1,2 +1,0 @@
-Artículo 246.—Modificación del calendario universitario
-Cuando alguna Unidad Académica requiera variar alguna de las fechas previstas en el Calendario Universitario, deberá obtener autorización del Consejo Académico de Facultad o Centro respectivo y la aprobación del Vicerrector Académico. Si no hubiere acuerdo entre la Unidad Académica y el Vicerrector Académico, corresponderá al Rector decidir sobre el asunto. Cualquier variante deberá comunicarse a la Rectoría por lo menos con siete días naturales de anticipación.

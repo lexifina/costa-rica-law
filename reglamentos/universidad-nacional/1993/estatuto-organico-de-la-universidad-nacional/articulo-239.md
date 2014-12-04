@@ -1,2 +1,0 @@
-Artículo 239.—Requisitos para ocupar puestos de Dirección Académica
-Además de los requisitos específicos establecidos para ocupar cada puesto de dirección académica: Rector, Vicerrector Académico, Representantes Académicos y Administrativos en el Consejo Universitario, Vicerrectores, Directores de Área de la Vicerrectoría Académica, Decanos, Directores de Unidades Académicas y los miembros del Tribunal Electoral Universitario, se exigirá como mínimo tener el grado académico de Licenciado y cinco años de experiencia universitaria.

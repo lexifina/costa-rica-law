@@ -1,2 +1,0 @@
-Artículo 250.—Requisitos de admisión del recurso
-En el mismo escrito en que se presenta el recurso, se deberán aportar todas las pruebas que alegue el recurrente, si estuviere en su poder hacerlo, o precisión donde se encuentran, a efecto de que se ordene la trascripción ad efectum videndi. Agregará, asimismo, cinco pliegos de papel universitario para el trámite. Igualmente se hará una exposición de los agravios que cause la resolución impugnada, con cita de las disposiciones que se consideren lesionadas.

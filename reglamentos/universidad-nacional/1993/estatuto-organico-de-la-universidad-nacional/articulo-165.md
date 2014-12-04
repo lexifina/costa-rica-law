@@ -1,2 +1,0 @@
-Artículo 165.—Requisitos de Presentación del Plan Académico
-El Consejo Universitario definirá las pautas de presentación de los Planes Académicos, asegurando de esta manera la unidad y homogeneidad de las labores de la Universidad en todos los campos, especialmente en lo que atañe a la organización de los estudios, la determinación de los grados académicos que otorgará la Universidad, así como el desarrollo de la investigación científica, la extensión y la creación artística

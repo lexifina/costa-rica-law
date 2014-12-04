@@ -1,2 +1,0 @@
-Artículo 249.—Forma de presentación
-Los recursos deberán plantearse por escrito y en papel universitario, ante el mismo funcionario u órgano cuyo acto o resolución se impugne, dentro de los ocho días hábiles siguientes a aquel en que se comunique por escrito, la decisión correspondiente al interesado, o haya de tenerse por comunicado. Cuando se trate de materia laboral deberá tomarse en consideración lo que establece la Convención Colectiva, sobre la no obligatoriedad del trámite del recurso.

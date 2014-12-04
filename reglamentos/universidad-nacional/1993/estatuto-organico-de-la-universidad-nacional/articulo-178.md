@@ -1,3 +1,0 @@
-Artículo 178.—Asignación del académico a las unidades
-Los académicos estarán adscritos a una área específica del saber y podrían ser asignados a diversas unidades académicas. Cualquier cambio que se introduzca en la asignación a una unidad académica, se hará de mutuo acuerdo entre los Decanos y Directores respectivos y el Académico interesado.
-En caso de que no hubiere mutuo acuerdo, se respetará el área específica para la que fue contratado.

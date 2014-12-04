@@ -1,7 +1,0 @@
-Artículo 240.—Elección de La Suplencia de Las Autoridades Universitarias
-El Vicerrector Académico, los Vicedecanos y los Subdirectores de Unidades Académicas serán electos en papeleta conjunta con el Rector, el Decano y el Director respectivamente. En caso de que el Rector, el Decano o el Director de Unidad Académica sea separado de su cargo por destitución, renuncia, incapacidad o muerte, será sustituido por el Vicerrector Académico, el Vicedecano o el Subdirector respectivamente, para completar el período por el que fueron electos. En estos casos se elegirá un nuevo Vicerrector Académico, Vicedecano, o Subdirector que completará el periodo vigente.
-Transitorio a los artículos … 240
-Los actuales Decanos sustitutos asumirán las funciones que le corresponden al Vicedecano según el presente Estatuto. Durarán en sus cargos hasta la finalización del período del actual Decano.
-En caso de renuncia o de inexistencia del cargo, el Decano presentará a la Asamblea correspondiente, una terna para la elección del Vicedecano.
-Los actuales Subdirectores de Unidades Académicas, o en su defecto, los directores sustitutos, asumirán las funciones que le corresponden al Subdirector de Unidad Académica según el presente Estatuto. Durarán en sus cargos hasta la finalización del período del actual Director de Unidad Académica.
-En caso de renuncia o de inexistencia del cargo, el Director presentará a la Asamblea correspondiente, una terna para la elección del Subdirector.

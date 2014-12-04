@@ -1,2 +1,0 @@
-Artículo 37.- Ausencias Temporales del Rector
-En caso de ausencia temporal del Rector, lo sustituirá el Vicerrector Académico en calidad de Rector interino, quien tendrá temporalmente las mismas atribuciones que corresponden al titular del cargo. En ausencia de arabos, el cargo será ocupado interinamente y con las mismas atribuciones, por el miembro del Consejo Universitario que este órgano designe.

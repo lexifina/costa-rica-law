@@ -1,4 +1,0 @@
-Artículo 79.—Convocatoria y quórum para La Asamblea de Facultad o Centro
-La Asamblea de Centro o Facultad será convocada por el Decano, sea por propia iniciativa o a solicitud del Consejo Académico, o de por lo menos el diez por ciento de los miembros de la Asamblea.
-El quórum estará formado por más de la mitad de sus componentes. Si treinta minutos después de la hora fijada en la convocatoria no hay quórum, se sesionará validamente con el treinta por ciento de sus componentes, siempre que no se trate de elección o remoción de personas.
-La convocatoria deberá hacerse por lo menos con ocho días de anticipación, mediante comunicación personal escrita, que indicará con precisión los asuntos por tratar. En casos de urgencia, podrá ser convocada extraordinariamente con una antelación mínima de cuarenta y ocho hora

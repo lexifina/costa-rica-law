@@ -1,1 +1,0 @@
-Artículo 47.—Ausencia Temporal del Vicerrector Académico En caso de ausencia temporal del Vicerrector Académico, será sustituido por una persona que designe el Consejo Universitario de entre sus miembros. Este tendrá las mismas atribuciones y responsabilidades del titular.

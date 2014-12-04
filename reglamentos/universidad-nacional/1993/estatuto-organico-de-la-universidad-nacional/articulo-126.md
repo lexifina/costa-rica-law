@@ -1,3 +1,0 @@
-Artículo 126.—Asamblea de Académicos del Instituto Interdisciplinario
-La Asamblea de Académicos del Instituto Interdisciplinario estará integrada por el Consejo Académico y el personal académico adscrito al Instituto, nombrado de conformidad con el reglamento respectivo.
-El Consejo de Unidad Matriz tendrá como función adecuar o aprobar nuevos programas, dar seguimiento, evaluar y poner en ejecución sus proyectos y actividades académicas y realizar todas aquellas acciones necesarias para su buen funcionamiento dentro de las políticas y directrices institucionales y lo establecido por este Estatuto.

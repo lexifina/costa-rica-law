@@ -1,2 +1,0 @@
-Artículo 155.- Adscripción y Constitución del Sistema de Desarrollo Profesional
-El Sistema de Desarrollo Profesional estará adscrito a la Vicerrectoría Académica, la cual efectuará su coordinación general. Estará constituido por Programas que estarán bajo la responsabilidad de las instancias académicas que producen conocimiento en la especialidad respectiva y de acuerdo con el reglamente correspondiente.

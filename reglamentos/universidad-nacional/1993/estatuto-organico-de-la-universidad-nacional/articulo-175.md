@@ -1,3 +1,0 @@
-Artículo 175.—Categorías en el régimen de carrera académica
-El régimen de carrera académica contemplará la ubicación de los académicos en categorías. El tipo y número de éstas, así como los requisitos en cuanto a calificaciones profesionales, experiencia académica y profesional, producción intelectual y evaluación del desempeño académico para cada una de las categorías, serán establecidos en el reglamento respectivo.
-De los requisitos relativos a grados académicos sólo se podrá prescindir, excepcionalmente, cuando se trate de casos muy calificados de personas con gran prestigio por su producción intelectual, artística o científica.

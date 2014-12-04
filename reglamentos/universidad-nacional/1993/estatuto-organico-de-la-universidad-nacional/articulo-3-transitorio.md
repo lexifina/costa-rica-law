@@ -1,3 +1,0 @@
-Transitorio General 3°
-El Consejo Universitario creará las condiciones para la paulatina transformación de los órganos colegiados vigentes en la Universidad, con funciones institucionales específicas (entre otros, la Comisión de Carrera Académica, Tribunal Electoral, Consejo Editorial, Junta de Becas, el Sistema de Estudios de Posgrado), cuya naturaleza, funciones o conformación se vea transformada por este Estatuto Orgánico.
-Los integrantes de estos órganos cuyos cargos se suprimen con la entrada en vigencia de este Estatuto, serán indemnizados de acuerdo con la legislación común, previa solicitud expresa.

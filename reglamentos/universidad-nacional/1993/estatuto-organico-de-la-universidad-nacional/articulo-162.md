@@ -1,2 +1,0 @@
-Artículo 162.—Elaboración de Los Planes Académicos
-La elaboración de dicho Plan Académico es un proceso que involucra a profesores, estudiantes y funcionarios administrativos de la Universidad Nacional. Este proceso será coordinado por el Rector, con la colaboración de su Gabinete.

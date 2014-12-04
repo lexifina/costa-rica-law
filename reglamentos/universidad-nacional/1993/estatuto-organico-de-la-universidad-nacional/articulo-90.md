@@ -1,2 +1,0 @@
-Artículo 90.- Convocatoria a Asamblea de Administrativos de Facultad, Centro o Sede Regional
-La Asamblea de Trabajadores Administrativos de Facultad, Centro o Sede Regional se reunirá al menos una vez al año y será convocada por el Director Administrativo, sea por iniciativa propia o petición de la menos el veinticinco por ciento de sus miembros, o del Decano, del Vicerrector de Desarrollo o del Rector.

@@ -1,2 +1,0 @@
-Artículo 208.—Exención del pago de matrícula
-Los miembros del Directorio de la Federación de Estudiantes, los miembros del Tribunal de Elecciones Estudiantiles, los miembros de la Directiva del Periódico estudiantil, los miembros de los Gobiernos Estudiantiles de las Sedes y las Secciones Regionales y los miembros del Consejo de Asociaciones Estudiantiles de la Universidad Nacional, estarán exentos del pago de matrícula mientras duren en sus funciones, en la medida y forma que reglamente el Programa de Bienestar Estudiantil.

@@ -1,1 +1,0 @@
-Artículo 107.—Convocatoria a Asamblea de Unidad Académica La Asamblea de Unidad Académica se reunirá cada vez que el Director, por propia iniciativa, a petición de al menos el treinta por ciento de los miembros o de instancias superiores. La asistencia es obligatoria. El q de convocatoria se regirá por lo establecido para la Asamblea de Facultad o Centro

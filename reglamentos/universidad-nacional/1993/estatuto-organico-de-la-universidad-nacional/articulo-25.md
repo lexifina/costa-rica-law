@@ -1,4 +1,0 @@
-Artículo 25.- Ámbito de Acción de Los Miembros del Consejo Universitario: Los miembros del Consejo Universitario representarán a la comunidad universitaria y o administrativa en particular.
-Deberán abstenerse de participar en la toma de decisiones en instancias inferiores en cualquier asunto que pueda será obieto de conocimiento del Consejo.
-Además, en ningún caso deberán prevalecerse de su condición de miembros del Consejo para intervenir en los asuntos de su Unidad o de otras Unidades, con más prerrogativas de las que les corresponden a los funcionarios de su categoría. En caso de incumplimiento de estas prohibiciones el funcionario podrá perder su calidad de miembro del Consejo. Para separarlo de sus funciones se seguirá el procedimiento dispuesto en el Artículo 242 de este Estatuto.
-El ejercicio de las funciones de miembro del Consejo Universitario es incompatible con todo cargo de dirección o jefatura

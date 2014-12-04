@@ -1,2 +1,0 @@
-Artículo 252.—Calificación de las formalidades
-El funcionario u órgano ante quien se presenta el recurso, procederá los requisitos de presentación, y si es el caso, prevendrá al recurrente para que dentro de un plazo improrrogable de cinco días hábiles posteriores a la notificación, cumpla las formalidades omitidas bajo el apercibimiento de que el incumplimiento implicará el archivo del expediente.

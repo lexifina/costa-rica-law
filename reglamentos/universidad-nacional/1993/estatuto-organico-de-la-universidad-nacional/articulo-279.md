@@ -1,2 +1,0 @@
-Artículo 279.—Manejo de fondos provenientes de convenios
-El manejo de los fondos provenientes de los convenios de cooperación corresponde a la Universidad Nacional, la que los administrará con base en las disposiciones que regulan el manejo de los fondos propios. El Consejo Universitario, cuando se justifique, podrá dictar regulaciones particulares para el manejo de fondos, todo esto dentro del marco legal vigente.

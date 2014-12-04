@@ -1,3 +1,0 @@
-Artículo 15.—Convocatoria a Asamblea de Representantes
-La Asamblea de Representantes será convocada por el Rector, ya sea por iniciativa propia o a petición del Consejo Universitario, o de al menos el diez por ciento de los miembros de la Asamblea Universitaria, o de por lo menos el veinticinco por ciento de los integrantes de la Asamblea de Representantes. En estos tres últimos casos, el Rector deberá publicar la convocatoria en un plazo máximo de ocho días a partir de la fecha de recepción de la solicitud.
-La asistencia a las sesiones de Asamblea de Representantes es obligatoria para todos sus miembros. Las sanciones por ausencias injustificadas serán determinadas por el Consejo Universitario de acuerdo con el reglamento correspondiente.

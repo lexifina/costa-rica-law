@@ -1,3 +1,0 @@
-Artículo 242.—Trámite de la denuncia contra miembros del Consejo Universitario
-Cualquier denuncia o acusación que se haga en contra de uno de los miembros del Consejo, a que se refiere el artículo anterior, deberá ser conocida por el Tribunal Electoral Universitario, que, después de oír al interesado, decidirá si hay mérito o no para que la Asamblea Universitaria conozca del asunto.
-Si el Tribunal considera que hay mérito, trasladará a la Asamblea el expediente con toda la información necesaria y un proyecto de resolución para que ésta tome al menos por dos tercios de sus votos, la decisión definitiva.

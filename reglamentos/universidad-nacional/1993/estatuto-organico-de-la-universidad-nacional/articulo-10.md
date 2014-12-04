@@ -1,4 +1,0 @@
-Artículo 10.—Convocatoria a Asamblea Universitaria
-La Asamblea podrá será convocada por la Asamblea de Representantes, el Consejo Universitario, el Tribunal Electoral Universitario o por el Rector, sea por iniciativa propia o a solicitud de por lo menos el veinticinco por ciento de los miembros de la Asamblea. En este último caso, el Rector deberá publicar la convocatoria en un plazo máximo de ocho días, a partir de la fecha de la presentación de la solicitud. En todos los casos, la convocatoria indicará los temas que se conocerán y que serán sometidos a referéndum.
-La asistencia a las Asambleas Universitarias es obligatoria para todos sus miembros. Las sanciones por ausencias injustificadas serán determinadas de acuerdo con el reglamento correspondiente aprobado por el Consejo Universitario.
-La Asamblea Universitaria se conformará con al menos la mayoría absoluta de sus miembros.

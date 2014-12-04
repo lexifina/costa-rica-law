@@ -1,2 +1,0 @@
-Artículo 29.—Retribución para Los Miembros del Consejo Universitario
-Los miembros del Consejo Universitario que representan a la comunidad nacional y a la estudiantil, tendrán una retribución que fijará el mismo Consejo, en sesión a la que se excusarán de asistir los interesados. Los miembros representantes de la comunidad universitaria dedicarán al menos medio tiempo de sus labores a esa función.

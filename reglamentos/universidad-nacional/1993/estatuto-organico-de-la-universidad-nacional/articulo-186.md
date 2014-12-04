@@ -1,2 +1,0 @@
-Artículo 186.—Potestad de la asamblea de unidad académica para declarar la pérdida de la inamovilidad
-La Asamblea de Unidad Académica, previo informe elaborado de acuerdo con |o de Carrera Académica sobre el desempeño de las labores de naturaleza académica de un profesor que tenga derecho de inamovilidad, podrá decretar la pérdida de ésta por votación secreta de la mitad más uno del total de sus miembros.
