@@ -1,0 +1,1 @@
+Artículo 5º—Del plazo de presentación de la solicitud. Las solicitudes podrán presentarse en un plazo máximo de setenta y cinco días hábiles posteriores a la publicación del Decreto de Emergencia N° 37305-MP.
