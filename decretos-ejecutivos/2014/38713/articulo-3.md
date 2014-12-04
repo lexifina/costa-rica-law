@@ -1,0 +1,1 @@
+Artículo 3°—Los plaguicidas sintéticos formulados que contengan carbofurán sólo podrá distribuirse y venderse al usuario bajo receta profesional emitida y firmada por un profesional en Ciencias Agrícolas incorporado al Colegio de Ingenieros Agrónomos, para su uso en los cultivos de piña y banano.

@@ -1,0 +1,1 @@
+Artículo 8°—Los distribuidores y vendedores de plaguicidas sintéticos formulados que contengan carbofurán para su utilización en los cultivos de piña y banano deben contar con programas de custodia para la verificación del uso agronómico correcto, que garantice además la protección de la salud humana y el ambiente.

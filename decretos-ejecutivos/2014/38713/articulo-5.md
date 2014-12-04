@@ -1,0 +1,1 @@
+Artículo 5°—Se permite solamente el uso de formulaciones granuladas como se establece en el artículo 2° de este Decreto, totalmente libres de polvo, que contengan un máximo de 100 gramos de carbofurán por kilogramo de producto comercial formulado, para aquellos productos registrados que tengan autorizado su uso para piña y banano.

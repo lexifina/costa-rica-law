@@ -1,0 +1,1 @@
+Artículo 2°—Se prohíbe el uso del carbofurán en todos los cultivos y tipos de formulaciones; excepto para aquellos productos registrados que tengan autorizado su uso en formulaciones granuladas para los cultivos de piña y banano, en los cuales se autoriza su uso por un período de 24 meses, después del cual se prohibirá totalmente su uso.

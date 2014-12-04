@@ -1,0 +1,1 @@
+Artículo 6°—De acuerdo con lo señalado en el artículo 5° de este Decreto, se permitirá la comercialización de los plaguicidas sintéticos formulados que contengan carbofurán solamente en envases o empaques mayores o iguales a 10 kilogramos.

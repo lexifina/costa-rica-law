@@ -1,0 +1,1 @@
+Artículo 7°—Durante el plazo establecido en el artículo 2° de este Decreto, la aplicación de los plaguicidas sintéticos formulados que contengan carbofurán, en los cultivos de piña y banano, debe realizarse en forma directa al suelo utilizando bomba granuladora manual o mecánica.
