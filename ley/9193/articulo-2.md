@@ -38,3 +38,4 @@ Céd. Jur 3-008-134912
 (Modificado por el artículo 1° del decreto ejecutivo N° 38683 del 14 de octubre del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38688 del 17 de octubre de 2014)
 (Modificado por el artículo 1° y 2° del decreto ejecutivo N° 38695 del 23 de octubre del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38724 del 30 de octubre del 2014)
