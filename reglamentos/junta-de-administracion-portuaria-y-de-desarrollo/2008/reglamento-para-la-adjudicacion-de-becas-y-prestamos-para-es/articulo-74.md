@@ -1,2 +1,3 @@
-Artículo 74.—Los beneficiarios deberán suscribir con la Institución, un contrato de estudio que regula las cláusulas anteriores del presente Reglamento. (En caso de beneficiarios menores de edad antes de la firma del contrato el encargado de Becas convocará a una reunión para informar a los padres o encargados del mismo).
-Para la firma del contrato la Oficina de Becas convocará al beneficiario así como sus padres o encargados para que conozcan los compromisos que implican las cláusulas anteriores, quienes suscriben en forma solidaria el contrato de estudio respectivo.
+Artículo 74.—Los primeros becados serán aquellos que estén cursando el último año de enseñanza secundaria, y además podrán concursar alumnos de años anteriores en los cantones donde se encuentran desiertos los cupos por la no participación de concursantes.
+Los egresados del año anterior podrán ingresar siempre y cuando se declaren desiertos los concursantes de esos cantones de la provincia de Limón.
+(Así reformado mediante sesión ordinaria N° 26-2014 publicada en La Gaceta N° 235 del 5 de diciembre del 2014)

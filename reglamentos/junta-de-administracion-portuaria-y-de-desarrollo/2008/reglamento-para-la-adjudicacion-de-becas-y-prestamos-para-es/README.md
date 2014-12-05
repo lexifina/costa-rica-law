@@ -14,3 +14,4 @@ Reglamento para la Adjudicación de Becas y Préstamos para Estudios superiores 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-19 | la propia norma |
+| 2 | 2014-12-05 | Reglamento 26 (2014-12-05) |
