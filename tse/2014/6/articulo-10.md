@@ -1,0 +1,1 @@
+Artículo 10.—Estudio previo de la solicitud: Cada solicitud admitida se someterá a un estudio previo que consistirá en el examen de los aspectos técnicos geográficos y demográficos necesarios, a fin de establecer su viabilidad preliminar y generar insumos para los trabajos de campo.

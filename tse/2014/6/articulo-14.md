@@ -1,0 +1,1 @@
+Artículo 14.—Propuesta de actualización de la DTE: Concluidos los estudios previos y de campo y habiéndose validado la propuesta técnica, la Contraloría Electoral formulará el proyecto de actualización de la DTE y lo remitirá a la DGRE para su validación, de previo a su envío al Tribunal para su aprobación.

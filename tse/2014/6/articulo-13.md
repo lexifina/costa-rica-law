@@ -1,0 +1,4 @@
+Artículo 13.—Traslado de domicilio electoral de oficio: procedimiento mediante el cual se modifica la inscripción electoral de las personas mayores de edad, asignándoseles la circunscripción electoral más cercana a su lugar de domicilio y a un centro de votación, sin que implique variación de su domicilio físico, salvo cuando el interesado así lo declare. Existen tres tipos:
+Oficioso: Lo advierte y aplica el propio Tribunal por medio del Departamento Electoral del Registro Civil, previa verificación domiciliar a cargo de la Contraloría Electoral.
+Individual: Es oficioso y solo afecta a un elector. Surge de la constatación que hace la Contraloría Electoral de los domicilios electorales declarados por las personas, proponiendo su traslado cuando corresponda.
+Masivo: Se aplica ante la creación, reubicación, eliminación y refundición de circunscripciones administrativas y electorales; conlleva el traslado de grupos de electores entre esas circunscripciones.

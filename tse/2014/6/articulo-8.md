@@ -1,0 +1,2 @@
+Artículo 8º—Requisitos de las solicitudes internas: Se dirigirán al Contralor Electoral y deberán cumplir los requisitos referidos en los incisos b), c) y d) del artículo 7 de este reglamento.
+Asimismo, toda solicitud deberá aportar como mínimo la siguiente información: dirección física, dirección electrónica y número telefónico de al menos tres habitantes de la localidad que apoyen la modificación solicitada de la DTE.
