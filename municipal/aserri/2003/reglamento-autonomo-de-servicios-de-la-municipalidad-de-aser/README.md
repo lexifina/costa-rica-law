@@ -14,3 +14,4 @@ Reglamento autónomo de servicios de la Municipalidad de Aserrí
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-20 | la propia norma |
+| 2 | 2014-12-08 | Reglamento municipal 241 (2014-12-08) |
