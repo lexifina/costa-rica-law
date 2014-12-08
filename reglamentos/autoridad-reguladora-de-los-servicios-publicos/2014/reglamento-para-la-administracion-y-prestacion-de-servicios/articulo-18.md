@@ -1,0 +1,13 @@
+Artículo 18.—Deberes y obligaciones de los conductores. Son deberes y obligaciones de los funcionarios que conduzcan vehículos de la Aresep:
+a) Conocer y cumplir estrictamente las disposiciones del presente Reglamento y de la Ley Nº 9078.
+b) Portar debidamente al día su licencia de conducir y el carné que lo identifique como funcionario de la Aresep.
+c) Portar en el vehículo la tarjeta de derechos de circulación, el certificado de propiedad del vehículo, revisión técnica vehicular, boleta de autorización de salida del vehículo y cualquier otra documentación necesaria para la circulación de vehículos oficiales.
+d) Acatar estrictamente las indicaciones dadas en la autorización de salida. En caso de presentarse un cambio de conductor por alguna situación de emergencia, deberá consignarse en la orden de salida.
+e) Reportar a Servicios Generales cualquier infracción de tránsito cometida respecto a la Ley Nº 9078 y aportar copia del parte respectivo. Deberá así mismo remitir una copia del recibo debidamente cancelado en caso de haber sido multado. En caso contrario, la Aresep cancelará las infracciones por medio del pago del derecho de circulación con los intereses y mora incluidos, y se procederá con la gestión de cobro correspondiente y disciplinaria contra el funcionario.
+f) Comunicar inmediatamente a Servicios Generales, cualquier desperfecto que sufra el vehículo, que impida su movilización, para la coordinación de acciones en procura del traslado y resguardo del vehículo a un lugar seguro.
+g) Brindar un informe detallado por escrito y firmado a Servicios Generales, en caso de daños en el automotor, sea o no como consecuencia de un accidente de tránsito.
+h) Hacer uso adecuado de las fórmulas de control del uso de vehículos, control de recorrido y abastecimiento de combustible, proporcionados por Servicios Generales y anotar los datos pertinentes; así como entregar diariamente o al retorno de cada gira, los reportes respectivos a Servicios Generales.
+i) Estacionar los vehículos en parqueos públicos, para tal efecto la Aresep reconocerá la suma girada por ese concepto en la liquidación de viáticos o gestión de cobro respectiva.
+j) Velar porque el vehículo cuente con las condiciones necesarias para garantizar tanto su propia seguridad como la de las personas, materiales y equipos transportados.
+k) Rendir las explicaciones pertinentes cuando haya diferencia sustancial demostrada en el kilometraje reportado por el GPS.
+l) Rendir las explicaciones pertinentes cuando se haya estacionado el vehículo al frente de locales o establecimientos que por su naturaleza lesionan la buena imagen o el prestigio de la Aresep.

@@ -1,0 +1,1 @@
+Artículo 52.—Transitorio. La Administración elaborará una propuesta de procedimiento que se implementará para autorización de arrendamiento por el uso de vehículos propiedad de funcionarios, en el plazo de 45 días hábiles.

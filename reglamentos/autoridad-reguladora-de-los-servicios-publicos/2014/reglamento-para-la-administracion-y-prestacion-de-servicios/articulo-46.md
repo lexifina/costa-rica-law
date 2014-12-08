@@ -1,0 +1,1 @@
+Artículo 46.—Reporte del kilometraje. Cada vez que el vehículo ingrese o salga de gira el funcionario reportará el kilometraje a Servicios Generales quien deberá verificar y anotar la hora y el número de kilómetros recorridos.

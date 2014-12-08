@@ -1,0 +1,2 @@
+Artículo 31.—De la asesoría legal a la Aresep. En caso de accidente de tránsito, corresponderá a la Asesoría Jurídica brindar el apoyo legal requerido ante las instancias judiciales que correspondan, en representación de los intereses de la Aresep y ante las cuales tenga la legitimación correspondiente.
+Para ello, estará facultada dicha Asesoría Jurídica para reunirse con el conductor del vehículo y coordinar las acciones pertinentes.

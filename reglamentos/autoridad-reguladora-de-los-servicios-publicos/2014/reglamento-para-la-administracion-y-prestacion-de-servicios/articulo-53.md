@@ -1,0 +1,1 @@
+Artículo 53.—Derogatoria. Se deroga el Reglamento de Procedimiento y Organización de los Transportes y Pago de Kilometraje de la Autoridad Reguladora de los Servicios Públicos; publicado en el Diario Oficial La Gaceta Nº 57 del 21 de marzo del año 1997.

@@ -1,0 +1,1 @@
+Artículo 10.—De la cobertura de seguro La Aresep contará con una póliza de seguros para la protección de las unidades de transporte de su propiedad, con las mejores condiciones en cuanto a coberturas y montos asegurados, que determine y justifique la Administración de acuerdo con las condiciones de mercado, para lo cual podrá pedir asesoramiento a la aseguradora.

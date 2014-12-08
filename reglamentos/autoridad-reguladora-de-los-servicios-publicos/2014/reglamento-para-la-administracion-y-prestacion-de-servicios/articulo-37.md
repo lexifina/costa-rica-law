@@ -1,0 +1,1 @@
+Artículo 37.—Condición del vehículo. Para que sea viable el arrendamiento, se requiere que el vehículo del funcionario esté en perfectas condiciones de funcionamiento, que sea adecuado para la clase de trabajo que vaya a destinarse, que el odómetro funcione perfectamente, lo anterior según la revisión que realice Servicios Generales.

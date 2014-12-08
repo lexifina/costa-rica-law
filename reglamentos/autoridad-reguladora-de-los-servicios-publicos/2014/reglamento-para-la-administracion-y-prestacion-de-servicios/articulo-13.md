@@ -1,0 +1,1 @@
+Artículo 13.—De la autorización de salida en días no hábiles Las salidas de vehículos de uso administrativo los días sábados, domingos, asuetos y feriados sólo podrán ser autorizadas expresamente por el Regulador General, Regulador General Adjunto o por la dependencia en que se delegue o quién se designe.

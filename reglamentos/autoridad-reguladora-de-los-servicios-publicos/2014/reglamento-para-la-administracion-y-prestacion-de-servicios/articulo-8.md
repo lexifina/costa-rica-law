@@ -1,0 +1,1 @@
+Artículo 8º—Control de vehículos. Los vehículos estarán bajo el control y responsabilidad de Servicios Generales, con las salvedades propias de los vehículos de uso discrecional señalados en este reglamento.

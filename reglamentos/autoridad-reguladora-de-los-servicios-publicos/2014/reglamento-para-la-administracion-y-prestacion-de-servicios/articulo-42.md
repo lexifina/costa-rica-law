@@ -1,0 +1,1 @@
+Artículo 42.—Responsabilidad del funcionario. En virtud de la relación contractual, el funcionario asumirá las responsabilidades civiles y penales que pudieran surgir con motivo de accidentes de tránsito, lesiones o muerte de terceros en consecuencia la Aresep estará relevada de toda responsabilidad.

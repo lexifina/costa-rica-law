@@ -1,0 +1,1 @@
+Artículo 34.—De las denuncias. Todas las denuncias realizadas por terceros respecto al uso y manejo de los vehículos institucionales deberán ser canalizadas a través de Servicios Generales, el cual deberá seguir el mismo procedimiento descrito en el artículo anterior.

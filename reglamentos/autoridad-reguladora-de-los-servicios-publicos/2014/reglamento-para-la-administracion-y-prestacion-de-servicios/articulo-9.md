@@ -1,0 +1,2 @@
+Artículo 9º—De la conducción de vehículos. La conducción de los vehículos será exclusivamente para las labores de la Aresep y estará a cargo de los funcionarios contratados como choferes de la Aresep o de otros funcionarios debidamente autorizados por Servicios Generales, con las salvedades propias de los vehículos de uso discrecional ya señaladas.
+Los conductores serán los responsables directos de los vehículos y de las infracciones que cometan en su uso.

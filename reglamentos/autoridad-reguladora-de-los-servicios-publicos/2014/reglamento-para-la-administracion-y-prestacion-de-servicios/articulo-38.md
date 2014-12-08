@@ -1,0 +1,1 @@
+Artículo 38.—Aprobación para el reconocimiento del pago de la tarifa. El funcionario que quiera ser parte de la relación contractual establecida en este capítulo, deberá obtener la aprobación de su jefatura inmediata, para el reconocimiento posterior del pago por la utilización del vehículo propiedad del funcionario.

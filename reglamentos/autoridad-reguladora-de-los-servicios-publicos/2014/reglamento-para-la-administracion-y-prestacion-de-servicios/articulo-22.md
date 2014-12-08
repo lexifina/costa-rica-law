@@ -1,0 +1,2 @@
+Artículo 22.—De la solicitud de transporte. Toda solicitud de transporte dirigida a Servicios Generales, deberá realizarse en horas hábiles, debidamente autorizada por el funcionario competente y con previa antelación, a más tardar a las trece horas del día anterior a la salida o el mismo día de la salida en casos especiales sujeto a disponibilidad de vehículo.
+Dichas solicitudes podrán ser llenadas, enviadas y atendidas a través de un sistema informático.

@@ -1,0 +1,1 @@
+Artículo 33.—Debido proceso. Las sanciones derivadas de responsabilidades por conducir vehículos de la Institución, serán aplicadas a los funcionarios una vez concluido el procedimiento que establece la Ley General de la Administración Pública.

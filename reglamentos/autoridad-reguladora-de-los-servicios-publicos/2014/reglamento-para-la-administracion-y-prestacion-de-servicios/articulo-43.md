@@ -1,0 +1,1 @@
+Artículo 43.—Verificación del kilometraje. Servicios Generales, verificará que el kilometraje reportado en cada gira o salida sea congruente con lo que indica la tabla de distancias vigente del Ministerio de Obras Públicas y Transporte.

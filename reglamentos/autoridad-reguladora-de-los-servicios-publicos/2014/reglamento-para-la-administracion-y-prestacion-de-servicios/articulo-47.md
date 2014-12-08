@@ -1,0 +1,2 @@
+Artículo 47.—Liquidación por kilometraje. La liquidación de cada gira se deberá hacer dentro del término de tres días hábiles de su conclusión, salvo que se trate de salidas continuas, en cuyo caso el plazo correrá a partir de la interrupción de la continuidad. La liquidación deberá ser presentada ante Servicios Generales, debidamente firmada por el funcionario autorizado, el propietario del vehículo y la jefatura a cargo de la gira realizada.
+Si la liquidación no se lleva a cabo, no se podrá autorizar ninguna otra.

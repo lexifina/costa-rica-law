@@ -1,0 +1,3 @@
+Artículo 6º—Vehículos de uso administrativo. Los vehículos de uso administrativo son los utilizados para solventar las necesidades de transporte institucional. Se mantienen bajo la custodia y administración de Servicios Generales.
+Estos vehículos serán utilizados únicamente por funcionarios autorizados, y exclusivamente para el desempeño de funciones propias de la Aresep. Es terminantemente prohibido utilizarlos en beneficio propio o de terceros.
+Cuando los vehículos de uso administrativo no estén prestando servicios, durante las horas no hábiles y días feriados deberán permanecer en las instalaciones de la Aresep. Se exceptúan los casos en que los vehículos se encuentren de gira.

@@ -1,0 +1,4 @@
+Artículo 24.—Del trámite para la salida de vehículos. Servicios Generales aprobará la salida de los vehículos disponiendo de los controles para revisar su recorrido.
+El responsable del vehículo deberá entregar el mismo día de llegada de la gira antes de las 16 horas, o al día siguiente hábil a Servicios Generales, la información requerida para un adecuado control del uso del vehículo.
+El responsable del vehículo no podrá llegar uno o más días después de concluida la gira, salvo por fuerza mayor o cuando las circunstancias propias del trabajo lo requiera, pero con el aval de la jefatura inmediata, lo cual lo hará llegar por los medios más convenientes y diligentes a Servicios Generales. Posteriormente terminada la gira, se formalizará adecuadamente la justificación del o los días.
+Es responsabilidad de Servicios Generales indicar previo a asignar el vehículo a una nueva gira, que ha constatado que fue entregado satisfactoriamente de la gira anterior.
