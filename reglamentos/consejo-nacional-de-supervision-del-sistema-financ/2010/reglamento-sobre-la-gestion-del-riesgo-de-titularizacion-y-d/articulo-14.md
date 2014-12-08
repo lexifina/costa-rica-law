@@ -1,1 +1,0 @@
-Artículo 14. Disponibilidad de Información. La entidad deberá mantener a disposición de la SUGEF información sobre las actividades que desempeña en los diferentes procesos de titularización en que participe, cualquiera que sea la función que asume en dicho proceso.

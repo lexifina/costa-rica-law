@@ -1,3 +1,0 @@
-CAPÍTULO III
-Gestión del riesgo de Titularización
-Artículo 8. Etapas del proceso de titularización. Para los efectos de este Capítulo, el proceso de titularización se separa en tres etapas: pre titularización, ejecución del proceso y monitoreo. Si bien en la práctica las etapas pueden traslaparse, su identificación individualizada resulta necesaria para el desarrollo subsiguiente de las responsabilidades mínimas en la gestión de riesgos por parte de las entidades participantes en el proceso, según la actividad que desempeñe la entidad como originador, estructurador, administrador, cobrador, colocador, proveedor de mejoramientos crediticios o inversionista.
