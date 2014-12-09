@@ -1,0 +1,9 @@
+Artículo 3º—Denuncias, requisitos. Se entenderá por denuncias formales aquellas presentadas por escrito debidamente firmadas, en contra de miembros del Colegio, sus Órganos o personal administrativo, relacionadas con el ejercicio profesional, ya sea por supuesta mala praxis, defectos de forma y de fondo en la preparación de cualquier informe, sean dictámenes, certificaciones, aspectos de ética, u otros; o bien en relación con el cumplimiento de funciones en la administración y dirección del Colegio. A dichos efectos quien denuncia deberá como mínimo ajustarse a los siguientes requisitos:
+1) La denuncia deberá ser presentada en original y copia debidamente firmada por el denunciante.
+2) De no entregarse en forma personal, la firma del denunciante deberá venir autenticada por un abogado.
+3) La denuncia debe estar dirigida al Colegio de Contadores Públicos de Costa Rica y en preferencia que la denuncia venga con la cantidad de folios contenida.
+4) El documento de denuncia, deberá contener nombre y apellidos, número de cédula de identidad, oficio, estado civil, dirección exacta, del denunciante, correo electrónico, o fax donde atender notificaciones.
+5) La denuncia deberá indicar el nombre y apellidos completos del Contador Público Autorizado o de la persona denunciada, número de cédula de identidad o carné y otras calidades si las supiere.
+6) Detalle de los hechos denunciados, petitoria, prueba documental aportada o bien indicación del lugar donde se ubican, en caso de testigos, indicar nombre completo, cédula de identidad, y número de fax o dirección exacta donde se localizan, así como del denunciante si lo supiere.
+Fecha y firma
+La ausencia de los requisitos indicados en los numerales 3), 4), 6) obligará al rechazo y archivo de la petición, salvo que se puedan inferir claramente del escrito o de los documentos anexos.
