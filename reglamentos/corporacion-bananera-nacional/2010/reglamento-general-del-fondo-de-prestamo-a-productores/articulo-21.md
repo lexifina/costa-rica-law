@@ -1,0 +1,5 @@
+Artículo 21.—Hipoteca. La aceptación de una hipoteca se regulará por los siguientes aspectos:
+a) El bien inmueble objeto de la hipoteca será recibido por el 80% del valor definido en el avalúo realizado para este fin. Se podrán aceptar hipotecas con grados inferiores cuando el valor del inmueble lo permita en relación con el crédito solicitado.
+b) No se tomarán en garantía bienes inmuebles que tengan inscritos o pendientes de inscripción gravámenes por limitaciones, restricciones, reservas o condiciones que representen una limitante a la libre disposición de dichos bienes.
+c) No se tomarán bienes inmuebles en garantía hipotecaria cuando existan grados mayores a favor de los mismos propietarios o de compañías relacionadas, a no ser que éstos se subordinen y cedan a favor de CORBANA S. A., quedando explícitamente definido en la escritura de constitución de hipoteca.
+d) Se podrá constituir hipotecas de uso múltiple, hasta por un plazo máximo de quince años, de forma tal que el deudor pueda constituir una garantía a favor de CORBANA S. A. por un plazo mayor al plazo máximo establecido para las distintas modalidades de crédito.

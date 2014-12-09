@@ -1,0 +1,5 @@
+Artículo 36.—Competencia en la resolución de modificaciones a las operaciones crediticias activas. Para la resolución de modificaciones a operaciones de crédito activas se aplicarán los límites de resolución establecidos en el artículo Nº 6 y en el anexo Nº 4 - “Matriz de trámite y resolución crediticia” de este reglamento.
+Para determinar el órgano al cual le compete la resolución de una modificación, se deberá cuantificar el efecto económico de la modificación.
+Tanto la Gerencia General como la Subgerencia General tendrán competencia para aprobar de forma individual, un máximo de una modificación en una misma operación. El Comité de Crédito tendrá competencia para aprobar un máximo de dos modificaciones en una misma operación, y la Junta Directiva de CORBANA S. A. no tendrá límite de modificaciones en una misma operación.
+Las modificaciones al plan de inversión se regulan por el artículo 41 de este reglamento.
+La resolución de modificaciones a operaciones de crédito, en los casos en que el deudor dejó de ser productor bananero, corresponderá a la Junta Directiva de CORBANA S. A.
