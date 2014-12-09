@@ -1,8 +1,13 @@
-Anexo 6. Parámetros generales para el otorgamiento y aceptación de la garantía
-Referencia: Artículo 18. “Tipos de garantía” del Reglamento General del Fondo de Préstamos a Productores.
-A continuación se detallan los parámetros generales para el otorgamiento y aceptación de la garantía:
-Monto solicitado | Endeudamiento total (incluyendo el crédito solicitado) | Garantía1 1Las garantías referidas en el cuadro podrían sustituirse por otras autoliquidables, a juicio de CORBANA S. A., de acuerdo con el valor que esta última establezca y el solicitante acepte.
-Menor o igual a $75.000,00 o su equivalente en colones | Menor o igual a $9.000,00/ha. | Real y/o fiduciaria2 y 3 2Cuando no se ofrezca como respaldo del crédito solicitado una garantía real distinta a la prenda sobre cajas de banano que cubra en su totalidad el monto solicitado y el fiador o fiadores ofrecidos no presenten capacidad de pago, se podrá otorgar el crédito con la garantía prendaria sobre cajas de banano en el grado disponible, y con la garantía fiduciaria de los fiadores ofrecidos, adicionando a ésta, la fianza solidaria de todos los socios de la empresa solicitante, salvo que existan situaciones que imposibiliten su otorgamiento. Asimismo, en esta situación o incluso cuando el fiador o fiadores solidarios presenten capacidad de pago, a juicio de la Gerencia General y la Subgerencia General se podrá solicitar otra garantía que se haga necesaria por monto asignado o situación general del proyecto. 3La garantía fiduciaria no podrá ser aceptada como respaldo en una línea de crédito abierta.
-Mayor a $75.000,00 o su equivalente en colones | Mayor a $9.000,00/ha. | Real y/o Fideicomiso de garantía
-En aquel caso en el que el monto solicitado no esté en concordancia con el nivel de endeudamiento, prevalecerá el nivel de endeudamiento.
-El total de créditos otorgados con garantía fiduciaria, incluyendo la nueva solicitud, no podrán superar los $75.000,00 por productor. Para efectos de cuantificar estos créditos no se deberá considerar los recursos otorgados bajo las líneas de aguinaldo y para emergencias y desastres naturales.
+Anexo 6.- Conformación del Comité de Crédito
+Referencia: Artículo 7.- “Comité de Crédito”, inciso a), del Reglamento General del Fondo de Préstamos a Productores.
+El Comité de Crédito estará integrado por funcionarios que ocupan los siguientes cargos:
+Propietarios:
+a) Gerente General.
+b) Subgerente General.
+c) Subgerente de Asuntos Legales y Corporativos.
+d) Director de Asistencia Técnica.
+e) Jefe Sección de Crédito e Incentivos.
+Suplente:
+a) Asistente Ejecutivo de Gerencia
+(Así reformado mediante sesión N° 06-02-2012 del 14 de febrero del 2012)
+(Así corrida su numeración mediante sesión N° 13 del 10 de abril del 2012, que lo traspasó del antiguo anexo 5 al 6)

@@ -50,3 +50,4 @@ articulo-4-anexo.md
 articulo-5-anexo.md
 articulo-6-anexo.md
 articulo-7-anexo.md
+articulo-8-anexo.md

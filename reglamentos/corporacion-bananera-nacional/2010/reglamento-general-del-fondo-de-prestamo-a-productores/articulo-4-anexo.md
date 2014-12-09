@@ -1,9 +1,15 @@
-Anexo 4. Matriz de trámite y resolución crediticia
-Referencia: Artículo 6. “Aprobación y otorgamiento de créditos” del Reglamento General del Fondo de Préstamos a Productores.
-A continuación se presenta la matriz de trámite y resolución crediticia:
-Nivel | Órganos de resolución | Límite | Observaciones
-Nivel 1 | Junta Directiva | Más de US$500.000,00 |
-Nivel 2 | Comité de Crédito | Hasta US$500.000,00 | Toda solicitud cuyo monto sea superior debe ser analizada por este Comité y elevada a resolución al Nivel 1
-Nivel 3 | Gerencia General(1) (1) a) Proyectos entre 1 y 200 ha. En producción: hasta US$ 50.000,00. b) Proyectos de más de 200 ha. en producción: hasta US$ 75.000,00. | Hasta US$ 75.000,00 | Los créditos de aguinaldo y para emergencias y desastres naturales se excluyen de esta limitación.
-Nivel 4 | Subgerencia General(2) (2) a) Proyectos entre 1 y 200 ha. en producción: hasta US$ 25.000,00. b) Proyectos de más de 200 ha. en producción: hasta US$ 37.500,00. | Hasta US$ 37.500,00 | Los créditos de aguinaldo se excluyen de esta limitación. Aplica únicamente en ausencia de la Gerencia General.
-Escala de límites cuantitativos: Al aplicar los niveles cuantitativos de resolución se deberán tomar en cuenta los saldos de los créditos activos concedidos al solicitante por cada órgano resolutorio, de forma tal, que la nueva solicitud de crédito deberá ser resuelta por el órgano competente para ello, de acuerdo con el límite máximo de resolución asignado.
+Anexo 4.—Reglas generales para aseguramiento de bienes
+Referencia: Artículo 3. “Actividad crediticia”, inciso l) del Reglamento General del Fondo de Préstamos a Productores.
+Para definir el aseguramiento de los bienes que garanticen los créditos que otorgue CORBANA S. A., siempre y cuando estos sean susceptibles de aseguramiento, se aplicará lo siguiente:
+a) Cuando la garantía la constituye una finca bananera:
+1. Si el valor del terreno y el cultivo, aplicando el porcentaje de reserva reglamentaria, cubre el monto del crédito y se tiene como parte de los bienes sujetos de aseguramiento la infraestructura de planta empacadora y la bodega general, se asegura únicamente esta infraestructura con el fin de dar continuidad a la operación de la finca. Este seguro deberá contratarse por el valor asignado en el avalúo realizado por parte de CORBANA S. A. o por un valor que esté debidamente justificado por la entidad aseguradora.
+2. Si el valor del terreno y el cultivo, aplicando el porcentaje de reserva reglamentaria, no cubre el monto del crédito y la cobertura se completa a partir de considerar el valor de las construcciones, de tenerse como parte de los bienes sujetos de aseguramiento la infraestructura de planta empacadora, la bodega general y cualquier otra construcción necesaria para completar el valor de garantía, se debe establecer una prioridad en el aseguramiento de los bienes hasta completar este valor, la cual se aplicará de acuerdo con la siguiente lista general, asegurando estas construcciones por el valor asignado en el avalúo realizado por parte de CORBANA S. A. o por un valor inferior, siempre y cuando este valor esté debidamente justificado por la entidad aseguradora:
+i. Infraestructura de planta empacadora
+ii. Bodega general (fertilizante y otros materiales e insumos)
+iii. Casas y baches
+iv. Oficina Administrativa
+v. Otras construcciones sujetas de aseguramiento
+b) Cuando la garantía la constituye un inmueble que no forma parte de una finca bananera:
+1. Si el valor del terreno, aplicando el porcentaje de reserva reglamentaria, cubre el monto del crédito, no se requiere la constitución de una póliza sobre los bienes sujetos de aseguramiento, salvo que alguna de su infraestructura sea básica para operar el bien ofrecido en garantía.
+2. Si el valor del terreno, aplicando el porcentaje de reserva reglamentaria, no cubre el monto del crédito y la cobertura se completa a partir de considerar el valor de las construcciones, se aseguran aquellas construcciones sujetas de aseguramiento, necesarias para completar el valor de garantía, por el valor asignado en el avalúo realizado por parte de CORBANA S. A. o por un valor inferior, siempre y cuando este valor esté debidamente justificado por la entidad aseguradora.
+(Así adicionado mediante sesión N° 13 del 10 de abril del 2012)
