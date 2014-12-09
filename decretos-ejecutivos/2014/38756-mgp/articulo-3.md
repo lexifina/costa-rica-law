@@ -1,0 +1,1 @@
+Artículo 3.—El presente Reglamento, será aplicable también a las personas que ocupan la Dirección y Subdirección de la Policía Profesional de Migración y Extranjería, con excepción de la estabilidad en sus puestos.

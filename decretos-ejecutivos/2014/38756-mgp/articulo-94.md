@@ -1,0 +1,2 @@
+Artículo 94. —Licencias. La licencia es el permiso autorizado para que una persona servidora policial se ausente de sus labores por un tiempo determinado, con o sin goce de salario. De conformidad con lo establecido en el artículo 75 inciso d) de la Ley General de Policía.
+Para el otorgamiento de una licencia, salvo las que se otorguen por leyes o convenios especiales, deberá anteponerse la conveniencia y responsabilidad de la prestación del servicio público.

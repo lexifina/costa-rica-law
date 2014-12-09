@@ -1,0 +1,1 @@
+Artículo 56.—Agravantes. La sanción se agravará conforme a las circunstancias de hecho y de derecho relacionadas con la falta cometida, salvo que ella tenga una sanción específica en este Reglamento, el Código de Trabajo o normas supletorias o conexas.

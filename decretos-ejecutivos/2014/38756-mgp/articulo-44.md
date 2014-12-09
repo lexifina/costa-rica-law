@@ -1,0 +1,1 @@
+Artículo 44.—El quórum para sesionar válidamente será el de tres de sus integrantes y sus acuerdos se tomarán por mayoría absoluta de la totalidad de los miembros del órgano presentes. En caso de empate, la persona que ocupe la presidencia en ejercicio tendrá doble voto.

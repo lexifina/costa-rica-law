@@ -1,0 +1,1 @@
+Artículo 115. —Disponibilidad. Se otorgará un sobresueldo fijo y permanente de un 25% sobre el salario base a las personas funcionarias incorporadas al Régimen del Estatuto Policial, por concepto de disponibilidad para el servicio, según las necesidades operacionales y a criterio de la jefatura inmediata por esos motivos.

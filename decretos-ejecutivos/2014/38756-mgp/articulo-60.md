@@ -1,0 +1,1 @@
+Artículo 60.—Prescripción de las faltas leves. La responsabilidad disciplinaria de la persona servidora de la Policía, por faltas leves prescribirá en un mes, empezará a correr a partir del conocimiento de la falta por parte de la jefatura inmediata; y se interrumpirá cuando se inicie el procedimiento disciplinario correspondiente.

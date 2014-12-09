@@ -1,0 +1,1 @@
+Artículo 53.—Acumulación de vacaciones. Queda prohibida la acumulación de vacaciones; no obstante por razones de carácter especial que impidan la ausencia prolongada de la persona funcionaria, podrá acumularse un único período, para lo cual se requerirá una resolución razonada de la Dirección General.

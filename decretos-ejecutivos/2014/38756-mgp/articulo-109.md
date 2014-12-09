@@ -1,0 +1,1 @@
+Artículo 109. —Ascensos. Podrán optar por ascensos, las personas funcionarias que hayan realizado carrera policial y cumplan con lo que establece el Manual Descriptivo de Clases Policiales de la Policía Profesional de Migración y Extranjería.

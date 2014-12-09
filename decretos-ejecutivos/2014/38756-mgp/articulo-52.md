@@ -1,0 +1,1 @@
+Artículo 52.—Fraccionamiento. Las personas servidoras de la Policía gozarán, sin interrupción de su período de vacaciones. Sin embargo, por la naturaleza del servicio, podrá acordar con la persona superior inmediata su fraccionamiento, el cual no podrá exceder de dos tractos.

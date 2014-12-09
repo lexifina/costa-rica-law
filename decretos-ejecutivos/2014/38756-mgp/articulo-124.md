@@ -1,0 +1,1 @@
+Artículo 124. —Requisito para aprobación. Será requisito para la aprobación de los programas de capacitación y formación, haber cursado la totalidad de las materias que lo conforman, con una nota no inferior a la establecida por la entidad educativa que imparta la capacitación o la Gestión de Recursos Humanos.

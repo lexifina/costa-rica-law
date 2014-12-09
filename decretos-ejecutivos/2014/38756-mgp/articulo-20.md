@@ -1,0 +1,1 @@
+Artículo 20. — En los puestos de control migratorio, la Policía podrá exigir a las personas transportistas, conductoras o demás personal, la presentación de la lista de las personas pasajeras, sus pasaportes, salvoconductos u otros documentos, y verificar la autorización de ingreso o egreso al país, así como cualquier otro dato que se relacione con la condición migratoria.

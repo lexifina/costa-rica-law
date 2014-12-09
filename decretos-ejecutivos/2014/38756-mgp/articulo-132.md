@@ -1,0 +1,1 @@
+Artículo 132. —Protección laboral y garantías. La presunta víctima, así como las y los testigos, gozarán de la protección laboral en los términos del artículo 14 de la Ley Contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia.

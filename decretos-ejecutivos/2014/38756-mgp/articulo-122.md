@@ -1,0 +1,1 @@
+Artículo 122.—Programas especializados. Los programas especializados en materia migratoria serán coordinados por la Gestión de Recursos Humanos, tanto con instituciones educativas nacionales como internacionales.

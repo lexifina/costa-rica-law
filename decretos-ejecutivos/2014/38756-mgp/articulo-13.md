@@ -1,0 +1,1 @@
+Artículo 13. — Para el buen desempeño de sus funciones, las personas funcionarias de la Policía están autorizadas para portar armas, esposas u otro equipo especial de trabajo. El uso indebido de estos bienes será falta grave a la relación de servicio.

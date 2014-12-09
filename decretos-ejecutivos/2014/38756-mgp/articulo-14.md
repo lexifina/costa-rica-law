@@ -1,0 +1,1 @@
+Artículo 14. — La Dirección General, previo aval de la persona jerarca del Ministerio, autorizará la no rotulación con el logotipo de la Dirección General u otro distintivo de los vehículos oficiales asignados a la Policía, por razones de seguridad en el ejercicio de actividades policiales.

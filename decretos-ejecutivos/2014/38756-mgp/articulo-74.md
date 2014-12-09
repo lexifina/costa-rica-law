@@ -1,0 +1,1 @@
+Artículo 74.—Deber de informar. La persona funcionaria deberá informar o reportar a la persona superior inmediata, a más tardar al día siguiente, el motivo de la irregularidad en la asistencia. En todo caso, salvo fuerza mayor o caso fortuito, no deberá esperar hasta el segundo día de ausencia para comunicar los motivos.

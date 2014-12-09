@@ -1,0 +1,2 @@
+Artículo 87. —Acceso a la información y recursos. La persona servidora tendrá acceso a la información contenida en su evaluación de desempeño y deberá firmar si se encuentra conforme o disconforme.
+Una vez comunicado el resultado de la evaluación del desempeño a la persona colaboradora, ésta podrá recurrir el resultado en el plazo perentorio de tres días hábiles ante su superior inmediato mediante los recursos ordinarios de revocatoria y apelación contemplados en la Ley General de la Administración Pública.

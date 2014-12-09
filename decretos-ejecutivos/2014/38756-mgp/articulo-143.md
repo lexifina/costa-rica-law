@@ -1,0 +1,2 @@
+Artículo 143. —Presentación de la denuncia. La denuncia se interpondrá en forma verbal o escrita ante la Sección de Inspección Policial, que deberá trasladarla a la Comisión Investigadora a más tardar al día siguiente hábil de su recepción.
+Cuando la denuncia se presente en forma verbal, de lo manifestado se levantará un acta que deberá ser suscrita por la persona denunciante y aquella que la haya recibido.

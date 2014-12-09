@@ -1,0 +1,1 @@
+Artículo 121. —Curso Básico Policial. El Curso Básico Policial correspondiente será coordinado por la Gestión de Recursos Humanos y podrá ser impartido por la Escuela Nacional de Policía u otra entidad educativa debidamente acreditada para ese fin ante el Ministerio de Educación Pública o el CONESUP.

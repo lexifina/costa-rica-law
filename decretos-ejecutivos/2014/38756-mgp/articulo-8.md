@@ -1,0 +1,1 @@
+Artículo 8. —Sesiones. La Junta Policial sesionará ordinariamente al menos una vez por trimestre y extraordinariamente cuando lo considere necesario, siempre dentro de la jornada ordinaria laboral y sus integrantes no devengarán dietas. Será convocada por la Dirección General.

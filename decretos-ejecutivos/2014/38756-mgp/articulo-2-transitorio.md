@@ -1,0 +1,1 @@
+Transitorio II.- Incentivos. Una vez implementado el Manual Descriptivo de Clases Policiales de la Policía Profesional de Migración, la Gestión de Recursos Humanos de la Dirección General de Migración y Extranjería realizará un estudio para determinar una nueva propuesta de incentivos salariales para las personas funcionarias de la Policía Profesional de Migración y Extranjería.

@@ -1,0 +1,1 @@
+Artículo 153. —Denuncia por la presunta comisión de un delito. Cuando la Comisión Investigadora, determine que los hechos denunciados puedan constituir un delito de acción publica, deberá notificarlo de inmediato al Ministerio Público, de conformidad con lo previsto en el artículo 281 del Código Procesal Penal.

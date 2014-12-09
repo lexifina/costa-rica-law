@@ -1,0 +1,5 @@
+Artículo 97. —Licencia con goce de salario concedida por la jefatura inmediata. La jefatura inmediata podrá otorgar licencia con goce de salario a la persona servidora en los siguientes casos y plazos:
+1) Por el matrimonio de la persona funcionaria o por el fallecimiento de sus padres, hijos o hijas, hermanos o hermanas, cónyuge o pareja de hecho reconocida, siete días naturales a partir de la fecha del suceso.
+2) Por el deceso de parientes hasta el segundo grado de consanguinidad, a excepción de los hermanos y hermanas que están regulados en el inciso anterior, o afinidad, en estos casos se otorgará tres días naturales a partir de la fecha del suceso.
+3) Por nacimiento de hijos o hijas: siete días naturales a partir de la fecha de nacimiento.
+4) Para acompañar a citas médicas de sus hijos o hijas menores de edad o con discapacidad, cónyuge, madres o padres adultos o adultas mayores o con discapacidad, siempre y cuando dichas citas no puedan ser programadas fuera de la jornada laboral.

@@ -1,0 +1,1 @@
+Artículo 38.—Tiempo mínimo de prestación de servicios. Una vez aprobado el curso básico policial correspondiente, la persona servidora queda obligada a prestar servicios con la institución, por un período de al menos tres veces la duración del curso, caso contrario se procederá a cobrar el valor total del curso a la persona funcionaria.

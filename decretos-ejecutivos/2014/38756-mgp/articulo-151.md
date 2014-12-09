@@ -1,0 +1,1 @@
+Artículo 151. —Sanciones para quienes denuncien falsamente. Incurrirá en falta grave de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, sin perjuicio de otras acciones que personalmente lleve a cabo la persona denunciante, la persona funcionaria que haya interpuesto una denuncia cuya falsedad se compruebe en forma evidente y manifiesta.

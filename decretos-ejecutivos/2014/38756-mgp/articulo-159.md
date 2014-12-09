@@ -1,0 +1,1 @@
+Artículo 159.—Incompatibilidad. El cargo de integrante de la Comisión es incompatible con la persona que ha sido sancionada en los últimos diez años, por un hecho relacionado con hostigamiento sexual.

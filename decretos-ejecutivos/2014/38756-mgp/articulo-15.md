@@ -1,0 +1,1 @@
+Artículo 15.— La Policía ejercerá sus funciones en todo el territorio nacional, en cualquier momento y sin límite de horario y las personas funcionarias podrán ser destacadas por la Dirección General en las diferentes oficinas o puestos migratorios del país, para la efectiva aplicación del control migratorio.

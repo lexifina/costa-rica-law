@@ -1,0 +1,1 @@
+Artículo 24.— Toda Unidad de control de ingreso o egreso internacional de personas deberá abrir y mantener al día un libro de actas o bitácora en la que se anotarán todas las actuaciones relevantes realizadas con relación al ejercicio de su función. La persona responsable de hacer estas anotaciones es la persona coordinadora o supervisora correspondiente.

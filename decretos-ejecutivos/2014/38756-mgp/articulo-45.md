@@ -1,0 +1,1 @@
+Artículo 45.—En lo no previsto por el presente Reglamento en materia de órganos colegiados, regirá lo dispuesto por el capítulo tercero del título segundo de la Ley General de la Administración Pública.

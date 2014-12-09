@@ -1,0 +1,1 @@
+Artículo 129. —Prohibición de conciliar. Al constituir el hostigamiento sexual un tipo específico de violencia, caracterizado entre otros, por relaciones de poder de género y jerárquico, que aumentan los factores de riesgo y re-victimización de la persona hostigada, queda prohibida la aplicación de la figura de la conciliación durante todo el procedimiento.
