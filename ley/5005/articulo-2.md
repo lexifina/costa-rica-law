@@ -1,3 +1,5 @@
-Artículo 2º.- El Colegio de Secretariado Profesional lo integran:
-a) Previa aceptación de la Junta Directiva los graduados en secretariado por instituciones de enseñanza superior del país; los graduados por instituciones de enseñanza que impartan el curso de secretariado profesional, aprobados por el Consejo Superior de Educación, universidades o instituciones equivalentes en el extranjero, incorporados a él, de acuerdo con las leyes y tratados vigentes; y
-b) En caso de personas que no llenen los requisitos indicados en el inciso a) anterior, el Colegio podrá autorizar, previa calificación de méritos, conocimientos técnicos y condiciones morales, y con la aprobación del Consejo Superior de Educación, el ejercicio profesional del secretariado por parte de personas con no menos de seis años de experiencia.
+Artículo 2º.-El Colegio lo integran:
+a) Los bachilleres y licenciados en secretariado profesional o en administración de oficinas, graduados por instituciones de enseñanza superior del país públicas y privadas, reconocidas por el Estado.
+b) Los diplomados universitarios y parauniversitarios, graduados en la carrera de secretariado por instituciones de enseñanza superior del país, públicas y privadas, reconocidas por el Estado.
+c) Los graduados de universidades o instituciones equivalentes en el extranjero, de acuerdo con las leyes y los tratados vigentes.
+(Así reformado por el artículo 1° de la ley N° 9284 del 30 de octubre de 2014)
