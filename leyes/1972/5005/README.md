@@ -1,6 +1,6 @@
 # Ley de Creación del Colegio de Profesionales en Secretariado de Costa Rica
 
-Ley N° 5005 del 1972-06-15. SINALEVI, ficha 2481: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2481&param2=2636&param3=1>.
+Ley N° 5005 del 1972-06-15. SINALEVI, ficha 2481: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=2481&param2=98990&param3=1>.
 
 Publicada en La Gaceta N° 124 del 1972-06-29.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1972-06-29 | Ley 5005 | 1972-06-15 |
 | 2 de 3 | 1972-06-29 | SINALEVI | 1972-06-15 |
+| 3 de 3 | 2014-12-09 | Ley 9284 | 2014-10-30 |
