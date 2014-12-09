@@ -14,3 +14,4 @@ Reglamento General del Fondo de Préstamo a Productores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-09 | la propia norma |
+| 2 | 2014-12-09 | Reglamento 9 (2011-03-01) |
