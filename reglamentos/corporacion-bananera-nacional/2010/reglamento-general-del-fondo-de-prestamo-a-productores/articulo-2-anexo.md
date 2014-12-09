@@ -1,5 +1,5 @@
-Anexo 2. Plazos de los créditos
-Referencia: Artículo 3. “Actividad crediticia”, inciso g), del Reglamento General del Fondo de Préstamos a Productores.
+Anexo 2.- Plazos de los créditos
+Referencia: Artículo 3º—“Actividad crediticia”, inciso g), del Reglamento General del Fondo de Préstamos a Productores.
 Dependiendo de la modalidad del crédito solicitado se establecen los siguientes plazos máximos:
 a) Capital de Trabajo: hasta cinco años, con excepción del crédito de aguinaldos que tendrá un máximo de cincuenta semanas, y del crédito de Salvamento que tendrá un máximo de quince años.
 b) Desarrollo o inversión: hasta quince años.

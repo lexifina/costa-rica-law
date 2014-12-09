@@ -5,5 +5,5 @@ a) FORMA DE PAGO: Períodos de gracia, variaciones en la cuota de pago, variaci�
 b) AMPLIACIÓN DE PLAZOS: Contempla variaciones o prórrogas en el vencimiento definitivo de las operaciones, hasta un máximo de un año.
 c) ADECUACIONES: Arreglos que contemplan tanto modificación en la forma de pago como en la ampliación del plazo de una operación.
 d) REFINANCIAMIENTO: Se refiere a arreglos que requieren de la constitución de una nueva operación, tales como refundición de operaciones, consolidación de capital e intereses vencidos y sustitución de deudor.
-e) ARREGLOS DE GARANTÍA: Cualquier modificación en las garantías. Se contempla liberaciones de garantía, sustituciones y cualquier gestión que afecte el respaldo de CORBANA S. A. en una determinada operación.
+e) ARREGLOS DE GARANTÍA: Cualquier modificación en las garantías. Se contempla liberaciones de garantía, sustituciones y cualquier gestión que afecte el respaldo de CORBANA, S. A. en una determinada operación.
 f) MODIFICACIONES AL PLAN DE INVERSIÓN: Cambios en el destino de los recursos asignados.

@@ -4,10 +4,10 @@ En todos estos casos al bien sobre el cual recaerá la garantía o sobre el cual
 Bienes inmuebles | 80%
 |
 Bienes muebles |
-Maquinaria y Equipo de uso General | De 0 a 1 año: 75%
+Maquinaria y equipo de uso general | De 0 a 1 año: 75%
 Más de 1 año: 65%
 |
-Maquinaria y Equipo de uso específico | De 0 a 1 año: 65%
+Maquinaria y equipo de uso específico | De 0 a 1 año: 65%
 Más de 1 año: 55%
 Cuando el bien que se ofrezca como garantía o sobre el cual se ofrezca suscribir el contrato de garantía no pertenezca al solicitante del crédito y eventual deudor de la operación, el propietario del mismo firmará un documento que se deberá acompañar con la solicitud del crédito donde consigne su consentimiento para que el bien se otorgue como garantía o sea objeto de un contrato de fideicomiso de garantía, ello a efecto de realizar los estudios y avalúos sobre el mismo. Si por alguna razón el propietario del bien revocare su decisión de aportar el bien como garantía o para que sobre el mismo se constituya el fideicomiso referido, el solicitante deberá cancelar a CORBANA S. A. los gastos que ya hubiere realizado con sus estudios y avalúos sobre dicho objeto. En caso de que el propietario sea una persona jurídica, sus estatutos deben contemplar la facultad de rendir garantías a favor de terceros, socios o no de la empresa; de lo contrario, deberá adicionarse a dichos estatutos esa facultad e inscribirse de previo en el Registro Mercantil o presentarse la protocolización del acuerdo de Asamblea de Socios o de Junta Directiva según corresponda, en donde se autorice el otorgamiento de la garantía.
 Los títulos valores del Sistema Bancario Estatal se aceptarán al 90% de su valor de mercado, y los de Bancos Privados de Primer Orden al 80% de su valor de mercado.

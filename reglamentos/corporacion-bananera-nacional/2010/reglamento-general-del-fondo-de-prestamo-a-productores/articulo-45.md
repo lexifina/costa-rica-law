@@ -1,1 +1,1 @@
-Artículo 45.—Vigencia del Reglamento. El presente Reglamento rige a partir del día 1º de junio del 2010.
+Artículo 45.—Vigencia del reglamento. El presente Reglamento rige a partir del día 3 de junio del 2014.

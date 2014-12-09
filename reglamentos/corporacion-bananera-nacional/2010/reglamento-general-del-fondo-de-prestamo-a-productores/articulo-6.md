@@ -5,5 +5,4 @@ Nivel 1: Junta Directiva
 Nivel 2: Comité de Crédito
 Nivel 3: Gerencia General
 Nivel 4: Subgerencia General
-Los límites asignados a cada órgano de resolución se establecen en el anexo Nº 5 “Matriz de trámite y resolución crediticia.
-(Así reformado mediante sesión N° 13 del 10 de abril del 2012)
+Los límites asignados a cada órgano de resolución se establecen en el anexo Nº 5 – “Matriz de trámite y resolución crediticia”.
