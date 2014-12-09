@@ -1,7 +1,0 @@
-Artículo 4º—Funciones de la Comisión. La Comisión Diquís tendrá las siguientes funciones:
-1) Elaborar y dar seguimiento a un Plan de Trabajo de Coordinación Interinstitucional que incluirá proyectos, programas y actividades para el desarrollo de la zona Sur en el marco del Proyecto Hidroeléctrico El Diquís. Dicho Plan incluirá una referencia sobre los recursos que cada institución destinará para el cumplimiento de sus actividades.
-2) Establecer los mecanismos de coordinación interinstitucional y toma de decisiones, para la ejecución efectiva de los planes elaborados por la Comisión Diquis para el desarrollo del Proyecto Hidroeléctrico El Diquís.
-3) Dar seguimiento al cumplimiento de las responsabilidades y compromisos de cada Ministerio o Institución en los proyectos, programas y actividades a que se refiere el inciso primero.
-4) Coordinar y ejecutar la realización de un proceso de divulgación con los sectores políticos, económicos y sociales del país, en torno a los planes elaborados por la Comisión Diquís.
-5) Cada uno de los miembros, en el ejercicio de la representación de los Ministerios e Instituciones, brindará el apoyo necesario en temas estratégicos como servicios básicos de salud, educación, vivienda, y otros como cultura, deporte, esparcimiento, seguridad ciudadana, sin perjuicio de cualquier otro tema a valorarse en el seno de la Comisión Diquís, que deberán incluirse dentro del Plan de Trabajo para su análisis.
-6) Las demás funciones que la Comisión Diquís establezca según los requerimientos de su ámbito de coordinación.
