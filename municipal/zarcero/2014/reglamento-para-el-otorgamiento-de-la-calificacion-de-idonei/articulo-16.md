@@ -1,0 +1,1 @@
+Artículo 16.—De la fiscalización. La unidad de Auditoría Interna de la Municipalidad de Zarcero, de conformidad con lo previsto por la Ley General de Control Interno, N° 8292 del 31 de julio del 2002, podrá fiscalizar la actuación realizada por la Comisión especial, el Concejo Municipal y el sujeto privado en la aplicación de este Reglamento.

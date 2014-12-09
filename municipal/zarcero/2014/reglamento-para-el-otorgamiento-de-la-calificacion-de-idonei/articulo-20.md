@@ -1,0 +1,1 @@
+Artículo 20.—De la renovación de la calificación de idoneidad. El sujeto privado al que se le venza la calificación de idoneidad deberá iniciar el procedimiento previsto en este Reglamento para recibir nuevos recursos de las leyes señaladas en el artículo primero.
