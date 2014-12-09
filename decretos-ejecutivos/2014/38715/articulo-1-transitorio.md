@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: Las disposiciones establecidas en el segundo párrafo del artículo 1º y en el artículo 2º de este Decreto Ejecutivo, deberán estar implementadas a más tardar dos años a partir de su vigencia.
