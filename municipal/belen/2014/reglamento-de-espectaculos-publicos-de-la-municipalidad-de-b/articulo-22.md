@@ -1,0 +1,1 @@
+Artículo 22.—Del informe final de la inspección. La Unidad Tributaria, por medio de los Inspectores de Espectáculos Públicos y de conformidad con lo dispuesto en el artículo 11, revisarán los boletos y el informe de los contribuyentes y remitirá un informe a la Tesorería. Una vez verificados los boletos, procederá mediante un acta de incineración o destrucción de los mismos.
