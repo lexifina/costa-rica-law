@@ -19,3 +19,4 @@ Reglamento General del Fondo de Préstamo a Productores
 | 4 | 2014-12-09 | Reglamento 6 (2012-02-14) |
 | 5 | 2014-12-09 | Reglamento 13 (2012-04-10) |
 | 6 | 2014-12-09 | Reglamento 20 (2014-06-03) |
+| 7 | 2014-12-09 | Reglamento 25 (2014-07-08) |
