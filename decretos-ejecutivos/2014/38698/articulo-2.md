@@ -1,0 +1,1 @@
+Artículo 2º—Promoción y adopción. El INEC será encargado de implementar las acciones pertinentes para promover la adopción del Código de Buenas Prácticas Estadísticas de Costa Rica por parte de las instituciones del SEN. El INEC hará evaluaciones de cumplimiento periódicas que rindan cuentas de los avances alcanzados.
