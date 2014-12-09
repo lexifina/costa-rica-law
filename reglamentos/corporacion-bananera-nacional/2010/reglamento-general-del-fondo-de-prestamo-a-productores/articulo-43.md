@@ -1,7 +1,7 @@
-Artículo 43.—Sobre el proceso de cobro y la ejecución de garantías. En caso de incumplimientos de cualquiera de las condiciones contractuales del crédito, se definen las siguientes fases administrativas contadas a partir del vencimiento de la cuota pactada o del momento en que se incumplió la condición:
-1. Hasta 30 días naturales de atraso: Primera nota recordatoria.
-2. Hasta 45 días naturales de atraso: Segunda nota recordatoria.
-3. Hasta 60 días naturales de atraso: Notificación administrativa de envío a cobro judicial.
+Artículo 43.—Sobre el proceso de cobro y la ejecución de garantías. En caso de incumplimientos de cualquiera de las condiciones contractuales del contrato de préstamo, se definen las siguientes fases administrativas contadas a partir del momento en el cual se incumplió la condición:
+a) Hasta 30 días naturales de atraso: primera nota recordatoria.
+b) Hasta 45 días naturales de atraso: Segunda nota recordatoria.
+c) Hasta 60 días naturales de atraso: Notificación administrativa de envío a cobro judicial.
 La notificación administrativa de envío a cobro judicial concederá un plazo improrrogable de 8 días naturales para ponerse al día o presentar un arreglo de pago.
 En caso de presentarse un arreglo de pago, este deberá ser analizado por la Sección de Crédito e Incentivos, para su posterior presentación ante el órgano resolutorio correspondiente. De ser aprobado se procederá con la formalización del arreglo.
 En caso de no presentarse un arreglo o de no aprobarse, la Sección de Crédito e Incentivos trasladará a la Sección Legal la documentación completa, incluyendo los estados de cuenta actualizados, para que ésta en forma inmediata proceda con la ejecución o realización de los bienes en garantía, esto último en caso de fideicomisos, excepto en los casos de créditos back to back en donde se deberá instruir a la Sección de Tesorería de CORBANA S. A. para que proceda a liquidar los títulos valores. Una vez realizados cualquiera de estos procesos la Sección de Crédito e Incentivos deberá informar a la Junta Directiva de CORBANA S. A. sobre el traslado o liquidación.

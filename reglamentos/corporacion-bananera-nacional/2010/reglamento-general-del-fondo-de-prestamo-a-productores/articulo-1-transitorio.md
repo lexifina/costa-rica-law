@@ -1,0 +1,1 @@
+Transitorio I.—La modificación del Artículo 14.- De los intereses y otros costos, inciso c), en lo relacionado con el cobro de interés moratorio sobre la amortización vencida no cubierta a la fecha de pago pactada, entrará en vigencia a partir del 01 de julio del 2015.

@@ -1,1 +1,1 @@
-Artículo 2º—Normas de crédito. Corresponde a la Junta Directiva dictar y aprobar las normas generales de la Institución en materia de crédito, las cuales son de acatamiento obligatorio para todos los funcionarios de la organización.
+Artículo 2°—Normas de crédito. Corresponde a la Junta Directiva dictar y aprobar las normas generales de la Institución en materia de crédito, las cuales son de acatamiento obligatorio para todos los funcionarios de la organización.

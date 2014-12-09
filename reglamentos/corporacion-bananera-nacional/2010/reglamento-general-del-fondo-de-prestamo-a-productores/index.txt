@@ -43,6 +43,7 @@ articulo-42.md
 articulo-43.md
 articulo-44.md
 articulo-45.md
+articulo-1-transitorio.md
 articulo-1-anexo.md
 articulo-2-anexo.md
 articulo-3-anexo.md
@@ -51,3 +52,4 @@ articulo-5-anexo.md
 articulo-6-anexo.md
 articulo-7-anexo.md
 articulo-8-anexo.md
+articulo-9-anexo.md
