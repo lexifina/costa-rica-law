@@ -1,0 +1,1 @@
+Artículo 3º—Informar a los propietarios de la edificación arquitectónica, que esta declaratoria prohíbe la demolición, remodelación parcial o total de la edificación, sin la autorización previa del Centro de Investigación y Conservación del Patrimonio Cultural de esta Cartera Ministerial.
