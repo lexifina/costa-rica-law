@@ -16,3 +16,4 @@ servicios públicos prioritarios, para una mejor satisfacción del interés cole
 (Modificado por el artículo 1° del decreto ejecutivo N° 38425 del 30 de abril del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38522 del 19 de junio del 2014)
 (Modificado por el artículo 2° del decreto ejecutivo N° 38695 del 23 de octubre del 2014)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38745 del 20 de noviembre de 2014)
