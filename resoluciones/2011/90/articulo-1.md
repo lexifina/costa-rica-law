@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada mediante resolución N° RCS-319-2014 publicada en La Gaceta N° 14 del 21 de enero del 2015, "Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuarios de portabilidad numérica móvil")
 RCS-090-2011.—Resolución del Consejo de Superintendencia de Telecomunicaciones.—San José, a las 9:45 horas del 4 de mayo del 2011.
 Definición de un esquema de portabilidad numérica para su utilización en Costa Rica y aprobación de la incorporación del cargo por portabilidad como un componente de costos en las tarifas de los servicios de telecomunicaciones.
 Resultando:

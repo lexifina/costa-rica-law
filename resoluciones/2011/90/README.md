@@ -14,3 +14,4 @@ Establece utilizar el esquema de portabilidad numérica de consulta a a base de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-05-18 | la propia norma |
+| 2 | 2014-12-10 | Resolución 319 (2014-12-10) |
