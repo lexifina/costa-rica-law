@@ -1,0 +1,1 @@
+ARTÍCULO 2.-El inmueble donado será destinado a la construcción de un centro de atención al adulto mayor. En caso de que a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Municipalidad del cantón de Barva de Heredia.
