@@ -14,3 +14,4 @@ Definición del modelo para la asignación y distribución de costos para la imp
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-23 | la propia norma |
+| 2 | 2014-12-10 | Resolución 319 (2014-12-10) |

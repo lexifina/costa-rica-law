@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada mediante resolución N° RCS-319-2014 publicada en La Gaceta N° 14 del 21 de enero del 2015, "Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuarios de portabilidad numérica móvil")
 Acuerdo 008-028-2012:
 El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, Ley Nº 6227, y el inciso 10) del artículo 22 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, me permito comunicarle(s) que en sesión ordinaria Nº 028-2012 del Consejo de la Superintendencia de Telecomunicaciones, celebrada el día 9 de mayo del 2012, mediante acuerdo Nº 008-028-2012, se ha aprobado la siguiente resolución:
 RCS-140-2012
