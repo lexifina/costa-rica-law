@@ -14,3 +14,4 @@ Disposiciones regulatorias a los operadores y proveedores de servicios con recur
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-26 | la propia norma |
+| 2 | 2014-12-10 | Resolución 319 (2014-12-10) |

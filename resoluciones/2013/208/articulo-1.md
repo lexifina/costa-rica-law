@@ -1,3 +1,5 @@
+(Revocada)
+(Esta norma fue revocada mediante resolución N° RCS-319-2014 publicada en La Gaceta N° 14 del 21 de enero del 2015, "Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuarios de portabilidad numérica móvil")
 El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, Ley N° 6227, y el inciso 10) del artículo 22 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, me permito comunicarle(s) que en sesión ordinaria N° 032-2013 del Consejo de la Superintendencia de Telecomunicaciones, celebrada el 26 de junio del 2013, mediante artículo 6, acuerdo 022-032-2013, se ha aprobado la siguiente resolución:
 RCS-208-2013.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 15:00 horas del 26 de junio del 2013.
 “Disposiciones regulatorias a los operadores y proveedores de servicios con recurso numérico asignado, para la implementación de la portabilidad numérica en Costa Rica”.
