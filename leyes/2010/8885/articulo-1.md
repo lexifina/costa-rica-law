@@ -1,4 +1,6 @@
+(Derogado)
 Nº 8885
+(Esta norma fue derogada por el artículo 3° de la ley N° 9275 del 27 de octubre de 2014, "Desafectación de un inmueble y autorización a la Municipalidad del Cantón de Barva de Heredia para que lo done a la Asociación de Mujeres Barveñas para el progreso")
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
