@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada mediante resolución N° RCS-319-2014 publicada en La Gaceta N° 14 del 21 de enero del 2015, "Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuarios de portabilidad numérica móvil")
 El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, ley 6227, y el inciso 10) del artículo 22 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, me permito comunicar que en Sesión Ordinaria N 027-2013 del Consejo de la Superintendencia de Telecomunicaciones, celebrada el 29 de mayo del 2013, mediante artículo 6, acuerdo 019-027-2013, se ha aprobado la siguiente resolución:
 RCS-178-2013
 RESOLUCIÓN DEL CONSEJO DE LA

@@ -16,3 +16,4 @@ Disposiciones regulatorias complementarias sobre la implementación técnica del
 | 1 | 2013-06-12 | la propia norma |
 | 2 | 2014-07-02 | Resolución 149 (2014-07-02) |
 | 3 | 2014-09-19 | Resolución 236 (2014-09-19) |
+| 4 | 2014-12-10 | Resolución 319 (2014-12-10) |
