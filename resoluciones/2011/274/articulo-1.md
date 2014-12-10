@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada mediante resolución N° RCS-319-2014 publicada en La Gaceta N° 14 del 21 de enero del 2015, "Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuarios de portabilidad numérica móvil")
 Acuerdo 012-089-2011.—RCS-274-2011.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 10:30 horas del 14 de diciembre del 2011.
 “Definición de procesos, procedimientos y disposiciones regulatorias para la implementación de la portabilidad numérica”.
 El Consejo de la Superintendencia de Telecomunicaciones ha adoptado en el artículo 3º, acuerdo Nº 012-089-2011, acta Nº 089-2011 del 14 de diciembre del 2011, la siguiente resolución:
