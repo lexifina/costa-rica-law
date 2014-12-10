@@ -15,3 +15,4 @@ Disposiciones complementarias, técnicas, económicas y administrativas para la 
 | --- | --- | --- |
 | 1 | 2012-11-29 | la propia norma |
 | 2 | 2013-05-29 | Resolución 178 (2013-05-29) |
+| 3 | 2014-12-10 | Resolución 319 (2014-12-10) |

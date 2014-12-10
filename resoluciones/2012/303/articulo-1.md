@@ -1,5 +1,7 @@
+(Revocada)
 ACUERDO 011-061-2012
 RCS-303-2012
+(Esta norma fue revocada mediante resolución N° RCS-319-2014 publicada en La Gaceta N° 14 del 21 de enero del 2015, "Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuarios de portabilidad numérica móvil")
 RESOLUCIÓN DEL CONSEJO DE LA
 SUPERINTENDENCIA DE TELECOMUNICACIONES
 SAN JOSÉ, A LAS 10:40 HORAS DEL 10 DE OCTUBRE DEL 2012
