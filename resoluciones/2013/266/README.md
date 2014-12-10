@@ -14,3 +14,4 @@ Disposiciones regulatorias de portabiliad numérica en torno a la actualización
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-30 | la propia norma |
+| 2 | 2014-12-10 | Resolución 319 (2014-12-10) |

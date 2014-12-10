@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada mediante resolución N° RCS-319-2014 publicada en La Gaceta N° 14 del 21 de enero del 2015, "Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuarios de portabilidad numérica móvil")
 4683-SUTEL-SCS-2013.—El suscrito, Secretario del Consejo de la Superintendencia de Telecomunicaciones, en ejercicio de las competencias que le atribuye el inciso b) del artículo 50 de la Ley General de la Administración Pública, Ley N° 6227, y el artículo 35 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, me permito comunicarle(s) que en sesión ordinaria N° 050-2013, celebrada el 18 de setiembre del 2013, mediante acuerdo N° 012-050-2013, de las 14:00 horas, el Consejo de la Superintendencia de Telecomunicaciones aprobó por unanimidad, la siguiente resolución:
 RCS-266-2013
 “DISPOSICIONES REGULATORIAS DE PORTABILIDAD
