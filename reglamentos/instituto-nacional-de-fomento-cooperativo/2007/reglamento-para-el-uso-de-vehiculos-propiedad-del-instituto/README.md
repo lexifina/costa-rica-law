@@ -18,3 +18,4 @@ Reglamento para el Uso de Vehículos propiedad del Instituto Nacional de Fomento
 | 3 | 2011-06-25 | Reglamento 3831 (2011-06-25) |
 | 4 | 2013-09-26 | Reglamento 0 (2013-09-26) |
 | 5 | 2014-07-14 | Reglamento 0 (2014-07-14) |
+| 6 | 2014-12-11 | Reglamento 0 (2014-12-11) |
