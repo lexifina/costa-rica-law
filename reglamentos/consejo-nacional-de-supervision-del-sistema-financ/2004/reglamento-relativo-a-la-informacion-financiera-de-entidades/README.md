@@ -27,3 +27,4 @@ Reglamento relativo a la Información Financiera de Entidades, Grupos y Conglome
 | 12 | 2013-04-02 | Reglamento 1034 (2013-04-02) |
 | 13 | 2013-07-23 | Reglamento 1053 (2013-07-23) |
 | 14 | 2014-06-10 | Reglamento 1108 (2014-06-10) |
+| 15 | 2014-12-11 | Reglamento 1142 (2014-12-11) |
