@@ -1,0 +1,1 @@
+Artículo 2.- Deróguese a partir del 25 de abril de 2016 el Decreto Ejecutivo N° 35994-S del 19 de abril de 2010, denominado "Reglamento Técnico sobre buenas prácticas de Manufactura para la Industria Farmacéutica, Productos Farmacéuticos y Medicamentos de Uso Humano", publicado en el Diario Oficial La Gaceta N° 91 del 12 de mayo de 2010.
