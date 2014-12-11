@@ -1,1 +1,0 @@
-Artículo 14.—Lugar de realización. La realización de los servicios de apoyo al diagnóstico y tratamiento, citologías, así como farmacia serán realizados en la unidad de adscripción según el lugar de residencia del beneficiario.
