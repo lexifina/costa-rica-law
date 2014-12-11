@@ -1,0 +1,1 @@
+Artículo 4º—Una vez aportados los requerimientos establecidos en la Ley 8950 y este reglamento le corresponderá a la Dirección Nacional de Pensiones valorar y resolver de conformidad cada gestión particular promovida al amparo de la citada ley y este reglamento.
