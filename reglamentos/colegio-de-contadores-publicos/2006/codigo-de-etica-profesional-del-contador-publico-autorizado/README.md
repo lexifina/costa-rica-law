@@ -18,3 +18,4 @@ Código de Ética Profesional del Contador Público Autorizado
 | 3 | 2013-06-17 | Reglamento 15 (2013-06-17) |
 | 4 | 2013-06-17 | Reglamento 15 (2013-06-17) |
 | 5 | 2013-06-17 | Reglamento 15 (2013-06-17) |
+| 6 | 2014-12-11 | Reglamento 28 (2014-12-11) |
