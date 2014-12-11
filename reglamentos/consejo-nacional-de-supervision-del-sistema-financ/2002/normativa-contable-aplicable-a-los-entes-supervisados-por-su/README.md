@@ -21,3 +21,4 @@ Normativa contable aplicable a los entes supervisados por SUGEF, SUGEVAL, SUPEN,
 | 6 | 2013-01-29 | Reglamento 1024 (2013-01-29) |
 | 7 | 2013-04-02 | Reglamento 1034 (2013-04-02) |
 | 8 | 2013-07-23 | Reglamento 1053 (2013-07-23) |
+| 9 | 2014-12-11 | Reglamento 1142 (2014-12-11) |
