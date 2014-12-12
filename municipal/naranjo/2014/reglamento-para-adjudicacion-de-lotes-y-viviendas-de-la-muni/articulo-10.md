@@ -1,0 +1,1 @@
+Artículo 10.—En caso de matrimonio legalmente constituido o unión de hecho, la propiedad se considerará bien ganancial de acuerdo a lo señalado en el Código de Familia y así se hará constar en la correspondiente escritura.

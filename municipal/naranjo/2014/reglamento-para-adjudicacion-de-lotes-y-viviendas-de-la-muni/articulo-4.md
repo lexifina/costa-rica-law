@@ -1,0 +1,1 @@
+Artículo 4º—Los terrenos que califiquen de acuerdo a los criterios técnicos de los departamentos Municipales e Institucionales, deberán adquirirse con forme con la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,1 @@
+Artículo 9º—Se deberán aportar por parte de los interesados Constancia de Nacimiento de las personas menores de edad, Constancia de Matrimonio de los progenitores o en su defecto documento notarial (declaración Jurada de Estado o Reconocimiento de la Unión de Hecho) en que se de fe de que él o la solicitante vive en unión libre o es soltero y está a cargo de sus hijos menores.

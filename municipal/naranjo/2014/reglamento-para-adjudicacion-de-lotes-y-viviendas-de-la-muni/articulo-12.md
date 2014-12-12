@@ -1,0 +1,1 @@
+Artículo 12.—Para el estudio y la resolución, el Concejo Municipal, nombrará una Comisión Especial de Lotificación la cual contará con el apoyo de la alcaldía, el departamento de urbanismo y planificación, Departamento Legal, y el Consejo de Distrito que corresponda, a quienes se le encomiende el estudio legal, socioeconómico y técnico dictaminado por cada profesional y entidad.

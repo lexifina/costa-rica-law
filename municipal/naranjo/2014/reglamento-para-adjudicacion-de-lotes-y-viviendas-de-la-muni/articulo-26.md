@@ -1,0 +1,1 @@
+Artículo 26.—El beneficiario o beneficiaria que se atrase en más de una tres cuotas mensuales consecutivas, incurrirá en causal de rescisión del contrato, esto de conformidad con el Reglamentos y Leyes de Cobro Administrativo, Extrajudicial y Judicial vigentes y aplicables a la Municipalidad de Naranjo. (arreglo de pago)

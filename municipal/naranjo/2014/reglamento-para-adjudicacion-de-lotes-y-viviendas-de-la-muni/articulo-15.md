@@ -1,0 +1,1 @@
+Artículo 15.—Los terrenos y viviendas del plan de lotificaciones serán declarados de interés social, para facilitar la adjudicación de los lotes y la construcción de viviendas bajo la modalidad de bono por lo tanto se regirán de acuerdo a las leyes y afectaciones del BANHVI.

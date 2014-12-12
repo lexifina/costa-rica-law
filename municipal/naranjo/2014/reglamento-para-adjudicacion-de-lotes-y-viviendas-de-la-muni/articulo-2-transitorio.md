@@ -1,0 +1,3 @@
+Transitorio II: Inmediatamente después de la Aprobación de este Reglamento el Concejo Municipal, procederá con la Conformación de la Comisión Especial, de acuerdo a las normas citadas en este reglamento.
+Entrará en vigencia 10 días después de su publicación en La Gaceta.
+Acuerdo SO-31-312-2014. El Concejo Municipal aprueba el Reglamento para Adjudicación de Lotes y Viviendas de la Municipalidad de Naranjo. Rige 10 días después de su publicación en La Gaceta. Acuerdo en firme por unanimidad de la sesión ordinaria N° 31 del 04 de agosto del 2014. Se considerará el instrumento de evaluación para la selección de Beneficiario, emitido por el Departamento de Gestión Social de la Municipalidad de Naranjo.

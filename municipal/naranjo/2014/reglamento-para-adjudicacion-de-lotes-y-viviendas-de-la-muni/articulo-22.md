@@ -1,0 +1,1 @@
+Artículo 22.—El o la solicitante de la adjudicación deberá demostrar que reside en el Cantón de Naranjo desde hace más de 5 años. Para lo anterior el o la beneficiaria deberán a portar documentos públicos válidos, tales como, constancias de matrícula de escolares y colegiales, de los últimos 5 años, recibos de pago de servicios y otros, cuando corresponda.

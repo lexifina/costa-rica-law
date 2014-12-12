@@ -1,0 +1,1 @@
+Artículo 14.—El lote quedará gravado en primer grado a la Municipalidad, proporcionando la oportunidad al adjudicatario de realizar gestiones para construir con el bono de la Vivienda en Mutuales, Cooperativas u otras instituciones encargadas de la vivienda.

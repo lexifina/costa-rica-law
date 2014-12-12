@@ -1,0 +1,2 @@
+Artículo 23.—Para ser partícipe del Plan de Lotificación se tomarán en cuenta tanto a los nacionales como a los extranjeros, los extranjeros deberán demostrar que su status migratorio es legal y permanente y que cuentan con fuentes de ingreso, esto conforme con el Artículo 6 del Reglamento de Operaciones del Sistema Financiero Nacional, del Banco Hipotecario de la Vivienda.
+Los extranjeros ilegales no podrán ser beneficiarios hasta tanto no legalicen su situación migratoria.

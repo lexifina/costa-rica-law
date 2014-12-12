@@ -1,0 +1,2 @@
+Artículo 13.—Para la resolución de las solicitudes se aplicarán los instrumentos necesarios y la verificación de los requisitos de las solicitudes y las recomendaciones, para la selección de adjudicación a los beneficiarios, la cual estará a cargo del departamento de Gestión Social y a la Comisión Permanente Municipal de Asuntos Sociales.
+Al Concejo Municipal le corresponde la decisión final con amparo a lo resuelto en dictamen por la Comisión Permanente Municipal de Asuntos Sociales.
