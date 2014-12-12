@@ -1,2 +1,0 @@
-Artículo 8°—El Auditor Municipal, efectuará periódicamente arqueos a los fondos de la caja chica, sin perjuicio a que los mismos puedan ser arqueados por la Administración (Contabilidad) cuando el señor Ejecutivo así lo estime conveniente. Todo sobrante de caja deberá ser depositado en la cuenta corriente a más tardar un día hábil.
-En caso de faltante el mismo deberá ser suplido por el encargado responsable de la caja chica en el momento de concluirse el arqueo, o a más tardar dentro del día hábil siguiente.

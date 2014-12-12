@@ -1,1 +1,0 @@
-Artículo 11.—Todos los gastos que realicen por medio de la caja chica, deberán ajustarse a lo dispuesto en las leyes y reglamentos vigentes, cualquier incumplimiento a lo dispuesto por este reglamento, traerá consigo la sanción que determine el señor Ejecutivo conjuntamente con el Concejo.
