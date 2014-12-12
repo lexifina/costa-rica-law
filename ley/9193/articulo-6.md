@@ -20,3 +20,4 @@ Totales | 352,236,000,000 | 100.00%
 (Modificado por el artículo 2° del decreto ejecutivo N° 38695 del 23 de octubre del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38745 del 20 de noviembre de 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38746 del 20 de noviembre de 2014)
+(Reformado por los artículos 2° y 3° de la ley N° 9290 del 2 de diciembre de 2014)
