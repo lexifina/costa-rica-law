@@ -15,3 +15,4 @@ Reglamento del Fondo Fijo de Caja Chica del Museo Nacional de Costa Rica
 | --- | --- | --- |
 | 1 | 2007-03-27 | la propia norma |
 | 2 | 2009-09-11 | Reglamento 1063 (2009-09-11) |
+| 3 | 2014-12-12 | Reglamento 1204 (2014-12-12) |
