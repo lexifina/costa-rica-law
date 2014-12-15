@@ -1,1 +1,0 @@
-Artículo 13.—No se ofrecerán o prestarán servicios profesionales a cambio de honorarios que dependan de la eventualidad de las averiguaciones o de los resultados de tales servicios, a excepción de casos que se relacionen con impuestos nacionales, locales o de otra índole, en que las conclusiones dependan de las autoridades competentes y no del contador público.

@@ -1,1 +1,0 @@
-Artículo 6°—El contador público que desempeñe un cargo público o privado, solamente podrá firmar los estados e informes de las cuentas de la dependencia oficial o de la empresa en que preste sus servicios, indicando el carácter del puesto que desempeñe. Sin este requisito no podrá agregar a su nombre o firma, inicial o expresión alguna que denote su profesión de contador público.
