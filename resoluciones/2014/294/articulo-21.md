@@ -1,0 +1,1 @@
+21.—Contar con una base de datos de números de usuarios en modalidad prepago, que esté disponible para los operadores y proveedores de servicios de telefonía móvil y para la SUTEL, de manera que cada operador pueda verificar y actualizar únicamente la información de los números telefónicos prepago pertenecientes a su red.

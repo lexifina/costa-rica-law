@@ -1,0 +1,7 @@
+Obligaciones de los operadores para su integración a la plataforma WEB de Registro Usuarios Prepago.
+12.—Esta Superintendencia a partir de los Acuerdos que de forma unánime adoptaron los operadores y proveedores del Comité de Portabilidad Numérica (CTPN), dispone lo siguiente:
+1. Establecer el 1° de diciembre del 2014, como la fecha definitiva para la puesta en operación de la plataforma WEB para registro de usuarios prepago.
+2. Definir que a partir del 1° de diciembre del 2014, como medida inicial, los operadores y proveedores deberán incluir en sus “Reglamentos de Promociones” asociados con premios, la obligación de registro de los usuarios prepago en la plataforma WEB www.RegistroPrepago.sutel.go.cr. Asimismo, los operadores y proveedores deberán promover que los usuarios que realicen gestiones y trámites ante ellos, se registren en la plataforma indicada.
+3. Establecer como fecha tentativa el 1° de marzo del 2015, para que los “Reglamentos de Promociones” asociados con premios, dispongan el trámite de registro como requisito para la participación.
+4. Solicitar a los miembros del CTPN el establecimiento de cronogramas para definir la fecha en que la obligación del registro prepago abarque todos los tipos de promociones y ofertas.
+5. Señalar como fecha máxima e impostergable el 1° de marzo del 2015, para la inclusión como causa de rechazo de portabilidad numérica en servicios prepago la “no coincidencia de los datos de titularidad en líneas prepago”.

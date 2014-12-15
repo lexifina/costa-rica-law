@@ -1,0 +1,1 @@
+17.—Cada operador de telefonía móvil deberá ser responsable de obtener la información de sus clientes contenida en la base de datos prepago, con la finalidad de mantener un registro actualizado y confiable de la titularidad de sus clientes en sus bases de datos internas.

@@ -1,0 +1,1 @@
+10.—Los operadores y proveedores de servicios deberán velar para que sus usuarios prepago realicen de manera exitosa el proceso de registro prepago con el fin de prevenir los posibles riesgos de la suscripción y uso irregular de los servicios.

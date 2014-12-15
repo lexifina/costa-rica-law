@@ -1,0 +1,1 @@
+3º—Que la plataforma WEB para registro de usuarios prepago creada por medio de la RCS-266-2013, consiste en un sistema disponible al público, diseñado para permitir a los usuarios finales registrar a su nombre las líneas prepago que posean a través de una serie de validaciones de su identidad.

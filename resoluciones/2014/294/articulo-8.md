@@ -1,0 +1,1 @@
+8º—Para el caso de usuarios con cédula costarricense o con cédula de menor de edad (TIM), la validación de la identidad se efectúa de manera automática, mediante una consulta a la base de datos del Tribunal Supremo de Elecciones (TSE) y mediante una verificación de la fecha de caducidad de dichos documentos.

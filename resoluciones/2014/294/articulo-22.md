@@ -1,0 +1,1 @@
+22.—El sistema WEB, deberá permitir a los usuarios de manera segura conocer el operador o proveedor que brinda el servicio a un determinado número telefónico, a partir de la base de datos de números portados.

@@ -1,0 +1,1 @@
+6º—Señalar que la base de datos de usuario prepago puesta a disposición por esta Superintendencia es una plataforma de referencia y no puede ser considerada como una base de consulta pública por cuanto no genera efectos jurídicos ante terceros. No obstante, se considera una herramienta útil para brindar información adicional a los usuarios.

@@ -1,0 +1,1 @@
+5º—Que el presente procedimiento es aplicable únicamente para los usuarios de los servicios móviles en modalidad prepago, por lo que no aplica para los usuarios que reciben sus servicios en modalidad pospago.

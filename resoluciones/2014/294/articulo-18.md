@@ -1,0 +1,1 @@
+18.—Los operadores y proveedores de servicios móviles, se encuentran en la obligación de realizar bajo sus propios medios, independientemente de las campañas que realice la SUTEL; campañas publicitarias y promociones directas para la promoción del registro de sus usuarios prepago.

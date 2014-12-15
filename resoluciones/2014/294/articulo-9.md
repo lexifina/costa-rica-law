@@ -1,0 +1,1 @@
+9º—Para el caso de residentes temporales (DIMEX), extranjeros con pasaporte y cédulas de personería jurídica, se realiza una verificación manual de la copia digital de estos documentos que es cargada por los usuarios directamente al sistema.

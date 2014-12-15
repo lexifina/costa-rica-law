@@ -1,0 +1,1 @@
+16.—Durante los procesos de activación de nuevos usuarios prepago ya sea mediante trámite presencial, call center, módulo de respuesta de voz (IVR) u otros, los operadores y proveedores se encuentran en la obligación de informar y promover que sus usuarios se registren en la plataforma WEB www.RegistroPrepago. sutel.go.cr.

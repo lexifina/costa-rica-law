@@ -1,0 +1,1 @@
+11.—La SUTEL podrá fijar a los operadores y proveedores, medidas adicionales con el fin de asegurar que los usuarios de telefonía móvil prepago realicen el registro exitoso en la plataforma WEB de Registro Prepago, en la forma y plazos que ésta disponga.

@@ -1,0 +1,1 @@
+14.—Adicionalmente al proceso de validación efectuado por la ERPN, los operadores y proveedores deben confirmar si el número se encuentra activo o inactivo y verificar otras causas de rechazo vigentes.

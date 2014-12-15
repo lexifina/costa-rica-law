@@ -1,0 +1,1 @@
+19.—Los operadores y proveedores de servicios de telecomunicaciones móviles prepago, están en la obligación de poner a disposición de sus usuarios plataformas que faciliten el correcto registro de éstos.
