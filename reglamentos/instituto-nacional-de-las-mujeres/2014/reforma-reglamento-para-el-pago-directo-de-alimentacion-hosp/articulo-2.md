@@ -1,0 +1,1 @@
+Artículo 2º—Modifícase el último párrafo del artículo 7° para que diga: En el caso de las personas usuarias de otros servicios de atención directa, procederá el pago de transporte únicamente en casos calificados. Para efectos de interpretación de “casos calificados”, se utilizará como parámetro lo dispuesto en el Artículo 13, sobre los factores de valoración.
