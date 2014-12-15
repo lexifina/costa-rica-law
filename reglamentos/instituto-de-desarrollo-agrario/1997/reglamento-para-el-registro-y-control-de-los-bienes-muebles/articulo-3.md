@@ -1,9 +1,0 @@
-Artículo 3°—Para la interpretación y aplicación de este reglamento, los términos que en el mismo se incluyen, se definen de la siguiente manera:
-A. Ingreso de bienes: es la operación física y contable que registra las entradas o ingresos de bienes por compra, transferencia o donación.
-B. Adiciones al inventario: es la operación física y contable mediante la cual se registra el valor de los bienes por conceptos distintos a los contemplados en el artículo cuarto, cuyo valor no se encuentra registrado en la contabilidad y el origen o procedencia no responde a operaciones realizadas corriente o normalmente, por ejemplo: la aparición de bienes no registrados en el inventario, cuyo origen no se ha logrado establecer.
-C. Disminuciones del inventario: es la operación física y contable demostrativa del valor de los bienes que se retiran de inventario, por conceptos que implican la extinción de su valor en los registros del Instituto. La disminución del inventario tiene lugar cuando se presente alguno de los siguientes casos: venta directa, remate, destrucción, desmantelamiento, inservibilidad, desaparición, pérdidas y cualesquiera otros aspectos que extingan el valor del bien de que se trate. En estos casos, contratación y suministros informará a la contabilidad general, para que se ajusten las cuentas respectivas.
-D. El Instituto: el Instituto de Desarrollo Agrario, creado por Ley No 6735 del 29 de marzo de 1982.
-E. La contabilidad general: el área de contabilidad general del departamento - financiero del Instituto.
-F. Contratación y suministros: el área de contratación y suministros del Departamento Administrativo del Instituto.
-G. Control de Activos: Unidad que se encuentra adscrita a la jefatura del Departamento Administrativo.
-(Así reformado tácitamente este inciso por acuerdo tomado por la Junta Directiva en la sesión N° 028-02, celebrada el 15 de abril de 2002)

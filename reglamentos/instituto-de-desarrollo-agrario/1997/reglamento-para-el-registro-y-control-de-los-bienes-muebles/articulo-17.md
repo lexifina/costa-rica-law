@@ -1,1 +1,0 @@
-Artículo 17.—Efectuada la reparación del bien, se procede a la revisión a satisfacción del bien por contratación y suministros o la unidad administrativa regional, en coordinación con el usuario, para proceder a autorizar el pago correspondiente.

@@ -1,1 +1,0 @@
-Artículo 8°—Los bienes muebles serán utilizados solamente por los funcionarios del Instituto; por personas que posean una autorización por escrito emanada de la Dirección Superior, o bien, por convenios interinstitucionales debidamente formalizados.

@@ -1,1 +1,0 @@
-Artículo 16.—Cuando un bien necesite reparación o mantenimiento, el mismo se tramitará a través del área de Contratación y Suministros en oficinas centrales o la respectiva unidad administrativa en las direcciones y oficinas regionales.

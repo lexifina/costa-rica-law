@@ -1,2 +1,0 @@
-Artículo 22.—En las direcciones y oficinas regionales, las anteriores funciones serán realizadas por la unidad respectiva; de tal forma que en cada región se administre y controle los bienes muebles; conforme, a las directrices del Departamento Administrativo y la Unidad de Control de Activos, así como la Contabilidad General.
-(Así modificada denominación de este artículo por acuerdo tomado por la Junta Directiva en la sesión N° 022-02, celebrada el 18 de marzo de 2002)
