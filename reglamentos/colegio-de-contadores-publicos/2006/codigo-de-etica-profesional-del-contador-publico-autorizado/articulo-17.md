@@ -1,1 +1,0 @@
-Artículo 17.—Un Contador Público Autorizado que se desempeñe en un cargo público o privado, cuando en función de su cargo deba emitir informes financieros-contables y otros relacionados, debe dejar clara constancia al firmar, de su relación de dependencia y no debe hacer alusión ala condición de Contador Público Autorizado ni adicionar las siglas “CPA”

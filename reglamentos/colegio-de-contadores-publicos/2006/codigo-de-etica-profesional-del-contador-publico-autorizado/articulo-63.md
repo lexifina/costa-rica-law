@@ -1,1 +1,0 @@
-Artículo 63.—Cuando un Contador Público Autorizado represente al Colegio fuera del país, por designación de la Asamblea General o por la Junta Directiva, deberá participar activamente de la actividad y entregar un informe escrito ante quien lo nombra, que justifique su actuar en beneficio de la comunidad profesional.

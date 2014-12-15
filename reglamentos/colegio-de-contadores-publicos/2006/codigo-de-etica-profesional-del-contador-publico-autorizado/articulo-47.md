@@ -1,1 +1,0 @@
-Artículo 47.—La asesoría fiscal u opiniones con consecuencias importantes que se dan a un cliente o empleador, deben quedar claramente constando por escrito. En ninguna circunstancia el Contador Público Autorizado debe inducir a un cliente para resolver asuntos de carácter fiscal con comisiones para terceros.

@@ -1,1 +1,0 @@
-Artículo 24.—El Contador Público Autorizado podrá asociarse con otros colegas, o inclusive con miembros de otras profesiones, a fin de estar en posibilidad de brindar mejores servicios. Esta asociación solo podrá formarse, si el Contador Público Autorizado ostenta su responsabilidad personal e ilimitada.

@@ -1,1 +1,0 @@
-Artículo 14.—Cuando algún Contador Público Autorizado acepte un puesto incompatible con el ejercicio liberal de la profesión, deberá comunicar al Colegio el retiro temporal o definitivo del ejercicio profesional, sin perjuicio de mantenerse como miembro del Colegio.

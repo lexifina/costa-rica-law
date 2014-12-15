@@ -1,1 +1,0 @@
-Artículo 66.—Cuando un miembro de Junta Directiva, Comité Consultivo Permanente, Tribunal de Honor, miembros de otras Comisiones de Trabajo, representantes ante Organismos, concluye su puesto no debe promover su nombre o aceptar el nombramiento ante los organismos en donde está inscrito el Colegio, al menos que de previo solicite la autorización a la Junta Directiva.

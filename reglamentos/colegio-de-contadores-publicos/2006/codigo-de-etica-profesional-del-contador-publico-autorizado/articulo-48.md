@@ -1,1 +1,0 @@
-Artículo 48.—Un Contador Público Autorizado no debe relacionarse con ninguna declaración o comunicación en la cual hay evidencias de que exista falsedad o engaño, cuando se dude de la veracidad de lo informado, cuando haya omisiones o poca claridad que pueden conducir a engaño a las autoridades fiscales.

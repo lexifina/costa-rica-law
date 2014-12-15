@@ -1,1 +1,0 @@
-Artículo 46.—Debe advertirse claramente al cliente o empleador que él es el único responsable del contenido de una declaración de impuestos, y que la responsabilidad de un Contador Público Autorizado está determinada por la información que recibe.

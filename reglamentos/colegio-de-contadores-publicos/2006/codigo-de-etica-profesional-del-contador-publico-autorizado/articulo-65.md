@@ -1,1 +1,0 @@
-Artículo 65.—La actuación de los colegas integrantes de las diferentes Comisiones de Trabajo, Junta Directiva, Comité Consultivo Permanente, Tribunal de Honor, deberá estar apegada a las normas éticas y ser modelo para los colegas integrantes del Colegio.

@@ -1,1 +1,0 @@
-Artículo 31.—Es claramente deseable que el público conozca la extensión de los servicios profesionales que ofrece el Contador Público Autorizado y por ello, no hay ninguna objeción para que lo haga sobre principios de decoro, moderación, honra, prestigio.

@@ -1,1 +1,0 @@
-Artículo 32.—Cuando se trata de la obtención de premios, distinciones u otras actividades de interés nacional o internacional, se aceptará su divulgación por parte del Colegio, sin embargo, el Contador Público Autorizado no puede utilizar tales divulgaciones para ostentar mejor capacidad.

@@ -1,1 +1,0 @@
-Artículo 27.—El Contador Público Autorizado no debe permitir que se emitan informes, dictámenes, certificaciones, opiniones u otro documento, en papel con membrete de terceros ni permitirá que los clientes hagan referencia parcial o total de sus informes, sin el previo consentimiento, en cualquier presentación para efectos de la empresa o de terceros.
