@@ -1,0 +1,22 @@
+REGISTRO DE PERSONAS JURÍDICAS
+DIRECTRIZ D.R.P.J.-002-2014
+De: Dirección Registro de Personas Jurídicas
+Para: Subdirección, Asesoría Jurídica, Asesoría Técnica, Coordinación General, Coordinaciones, Registradores de Mercantil y Usuarios.
+Asunto: Cobro de derechos de registro, impuesto Ley 9024 (año 2015) y recepción continua de documentos por plataforma crearempresa.
+Fecha: 15 de diciembre del 2014
+A. Derechos de Registro, período 2015.
+I.—De conformidad con lo dispuesto en el inciso d) del artículo 2 de la Ley de Aranceles del Registro Público, N° 4564 del 29 de abril de 1970 y sus reformas, el monto por concepto del arancel del registro para los documentos que se tramitan en el Registro Mercantil, es la décima parte del salario base definido en la Ley N° 7337, de 5 de mayo de 1993.
+El artículo 2 de la citada Ley N° 7337, dispone:
+La denominación “salario base” contenida en los artículos 209, 212, 216 y 384 del Código Penal, corresponde al monto equivalente al salario base mensual del “Oficinista 1” que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República, aprobada en el mes de noviembre anterior a la fecha de consumación del delito.
+Dicho salario base regirá durante todo el año siguiente, aun cuando el salario que se toma en consideración, para la fijación, sea modificado durante ese período. En caso de que llegaren a existir, en la misma Ley de Presupuesto, diferentes salarios para ese mismo cargo, se tomará el de mayor monto para los efectos de este artículo.
+La Corte Suprema de Justicia comunicará, por medio de publicación en el Diario Oficial La Gaceta, las variaciones anuales que se produzcan en el monto del salario referido… (Suplida la negrilla).
+En cumplimiento de lo dispuesto por la norma de cita, la Secretaría General de la Corte Suprema de Justicia mediante Circular 260-2014, informa que el Consejo Superior en sesión N° 106-2014 de fecha 9 de diciembre presente, artículo XXXIV, dispuso que a partir del 1° de enero del 2015, el salario base a aplicar para definir las penas por la comisión de diversas figuras delictivas contenidas en el Código Penal y la Ley supra citada, es de cuatrocientos tres mil cuatrocientos colones.
+En razón de lo anteriormente expuesto, el monto a pagar por concepto de derechos de registro en materia mercantil para el año 2015, será la suma de ¢40.340,00 (cuarenta mil trescientos cuarenta colones).
+El monto establecido en esta Directriz se aplicará a aquellos documentos presentados por primera vez al Diario del Registro, a partir del día cinco de enero de dos mil quince.
+II.—Se les informa, que en atención a lo dispuesto en el artículo 5 del Decreto Ejecutivo N° 37593-JP-MINAE-MAG-MEIC-S, la plataforma de Gobierno Digital CrearEmpresa brindará el servicio de recepción de formularios electrónicos orientados a la inscripción de Sociedades Anónimas y de Responsabilidad Limitada de modo continuo durante lo que resta del año. El trámite de los formularios enviados a partir de las 3 p. m. del 19 de diciembre presente será el ordinario, por lo tanto desde el momento en que el formulario es recibido por el Diario se asignarán las respectivas citas de presentación. En cuanto al proceso de calificación registral, este se realizará a partir del 5 de enero próximo, fecha en que reanuda labores el Registro Nacional.
+En tal sentido y respecto al arancel del Registro y al monto por concepto del impuesto a las Personas Jurídicas, regirá el correspondiente al período 2014.
+Debe tomarse en cuenta que los formularios enviados mediante el portal, a partir del 1 de enero de 2015 deben pagar los nuevos montos estipulados.
+Se aclara que según lo establecido en el artículo 4 de la Ley Impuesto a las Personas Jurídicas -N° 9024-, las entidades inscritas producto del trámite relacionado, deberán pagar el mencionado impuesto dentro de los primeros 30 días naturales siguientes al 1° de enero, caso contrario ostentarán la condición “morosa”.
+B. Impuesto a las Personas Jurídicas, período 2015.
+Conforme a lo estipulado en el artículo 3 de la Ley N° 9024, referente a la tarifa de dicho impuesto. Para el periodo 2015, todas las entidades sujetas a este impuesto que cuenten con condición de activas deben pagar la suma de ¢201.700,00 (doscientos un mil setecientos colones), en tanto que las entidades inactivas deben cancelar un importe de ¢ 100,850,00 (cien mil ochocientos cincuenta colones).
+Rige a partir de esta fecha.
