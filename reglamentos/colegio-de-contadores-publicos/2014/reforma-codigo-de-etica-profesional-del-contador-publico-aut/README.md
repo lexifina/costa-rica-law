@@ -14,3 +14,4 @@ Reforma Código de Ética Profesional del Contador Público Autorizado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-11 | la propia norma |
+| 2 | 2014-12-15 | Reglamento 37 (2014-12-15) |
