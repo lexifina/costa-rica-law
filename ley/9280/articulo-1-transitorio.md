@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO.- Se autoriza la prórroga de los nombramientos de los integrantes actuales de las juntas de salud por un período adicional de dos años, con la finalidad de cumplir el plazo de cuatro años a que se refiere el artículo 5, el cual estará sujeto a la aceptación de cada uno de los actuales miembros, indistintamente del sector que representen. Igualmente, se autoriza a la Caja Costarricense de Seguro Social (CCSS) para que cubra las vacantes por los mecanismos de sustitución que se encuentren establecidos, con el fin de llenar los puestos que queden vacantes con la aplicación de este transitorio.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintisiete días del mes de octubre del año dos mil catorce.
