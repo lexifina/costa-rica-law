@@ -1,2 +1,3 @@
 ARTICULO 3º: Modifícanse los Artículo 2º y 6° de la Ley No. 9193, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del año 2014, publicado en el Alcance Digital No. 131 a La Gaceta No. 235 del 05 de diciembre del 2013, en la forma que se indica a continuación:
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultaAlcance digital N° 75 a La Gaceta N° 238 del 10 de diciembre de 2014, a partir de la página 19 a la 166)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38796 del 16 de diciembre de 2014)
