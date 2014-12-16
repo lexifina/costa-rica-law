@@ -1,0 +1,1 @@
+Artículo 3º—Los miembros de la Comisión serán designados por un período de 4 años, que regirán a partir del 01 de diciembre del 2014, según integración que hará el Ministro de Agricultura y Ganadería conforme a las ternas recibidas por los integrantes de esta comisión. El ejercicio de esta designación en la Comisión será ad honoren.
