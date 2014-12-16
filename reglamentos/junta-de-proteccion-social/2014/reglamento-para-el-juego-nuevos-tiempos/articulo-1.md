@@ -14,6 +14,7 @@ Sistema: Software en línea y tiempo real que administra cada una de las transac
 Terminal: Dispositivo de entrada y salida remoto de datos, producción de documentos impresos y comunicación de mensajes originados en un sistema remoto de cómputo central (dispositivo físico – equipo – utilizado para la venta y procesamiento transaccional del pago de premios de lotería electrónica).
 Premio fijo: Premio que asegura a los ganadores un monto de dinero fijo sin importar la cantidad de ganadores.
 Comprobante de transacción: Tiquete impreso por una terminal ubicada en un punto de venta autorizado en donde se indican las características de las apuestas o pago de premios realizados al jugador, incluyendo pero no limitado a, nombre del producto comprado, monto en dinero apostado, números seleccionados por el jugador, fechas, número de sorteo, entre otros.
-Jugada multi-sorteos: El jugador tendrá la oportunidad de hacer apuestas a sorteos consecutivos, tanto para mediodía, noche o ambos hacia el futuro, hasta un límite de 14 sorteos incluyendo el vigente.
-Jugadas en avance: El jugador tendrá la oportunidad de hacer apuestas en sorteos que ocurrirán en el futuro, a partir de un sorteo que ocurre después del próximo, tanto para mediodía, noche o ambos, hasta un límite determinado.
-Jugadas multi-sorteo en avance: El jugador tendrá la oportunidad de hacer apuestas consecutivas en sorteos que ocurran en el futuro.
+Jugada multi-sorteos: El jugador tendrá la oportunidad de hacer apuestas a sorteos consecutivos hasta un límite de 6 sorteos incluyendo el vigente.
+(Así reformada la definición anterior mediante sesión ordinaria N° 41-2014 del 16 de diciembre del 2014)
+Jugadas en avance: (Derogada mediante sesión ordinaria N° 41-2014 del 16 de diciembre del 2014)
+Jugadas multi-sorteo en avance: (Derogada mediante sesión ordinaria N° 41-2014 del 16 de diciembre del 2014)

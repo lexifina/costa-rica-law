@@ -14,3 +14,4 @@ Reglamento para el Juego Nuevos Tiempos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-06 | la propia norma |
+| 2 | 2014-12-16 | Reglamento 41 (2014-12-16) |
