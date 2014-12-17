@@ -42,7 +42,7 @@ BIENES ACUÍCOLAS
 | 29 | Embarcación nacional de más de 20,0 metros de eslora | licencia | dólares | 1.340,00
 | 30 | Embarcación extranjera, toda eslora (por 3 meses) | licencia | dólares | 400,00
 | | CONCEPTO | Unidad de medida | Moneda | TARIFA 2015
-LICENCIA PARA EMBARCACION NACIONAL DEDICADA A LA OBSERVACION DE CETACEOS (por año o por trámite) |
+LICENCIA PARA EMBARCACION NACIONAL DEDICADA A LA OBSERVACION DE CETACEOS (por año o por trámite) | | |
 31 | Embarcación nacional dedicada a la observación de cetáceos | licencia | dólares | 370 |
 | AUTORIZACIONES POR SERVICIOS AL SECTOR PESQUERO (por año o por trámite incluyendo las prórrogas, cuando correspondan) |
 32 | Autorización sustitución por importación, para embarcaciones que se importen | autorización | colones | 17.600,00 |
@@ -90,7 +90,7 @@ LICENCIA PARA EMBARCACION NACIONAL DEDICADA A LA OBSERVACION DE CETACEOS (por a�
 65 | Nacional, Residente o Extranjero que practica pesca subacuática continental o marina (un año) | carné | dólares | 50,00 |
 66 | Capitán, tripulante o ayudante, embarcación pesca deportiva o turística, continental o marina (un año) | carné | dólares | 15,00 |
 | CARNE DE IDENTIFICACION PARA OBSERVACION DE CETACEOS (Por año / Por trámite) |
-67 | Nacional, Residente o Extranjero que realiza observación de cetáceos (por año) | carné | colones | 30,00 |
+67 | Nacional, Residente o Extranjero que realiza observación de cetáceos (por año) | carné | (*)dólares (*)(Así modificado mediante acuerdo N° AJDIP/498 del 17 de diciembre de 2014) | 30,00 |
 68 | Nacional, Residente o Extranjero para realiza observación de cetáceos (por día) | carné | dólares | 5,00 |
 69 | Capitán, tripulante o ayudante, embarcación observación cetáceos (un año) | carné | dólares | 15,00 |
 | DOCUMENTOS INFORMATIVOS Y OTROS |
