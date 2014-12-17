@@ -16,3 +16,4 @@ Terapia Física.
 Terapia Ocupacional.
 Terapia Respiratoria.
 Terapia de Voz y Lenguaje.
+Valoración Médica de Incapacidades y Daño Corporal para la Protección Social (Así adicionada la maestría anterior en sesión 2014-12-17 del 17 de diciembre de 2014) Asimismo en dicha sesión se indica reconocer como sinónimos de esta maestría los siguientes términos: Maestría en Valoración Médica del Daño Corporal Maestría en Medicina Evaluadora y Peritaje Médico Maestría en Valoración del Daño Corporal Maestría en Evaluación del Daño Corporal Maestría en Valoración del Daño Personal y Medicina del Seguro Maestría en Valoración de la Incapacidad Laboral, del Daño Corporal y Medicina del seguro.)
