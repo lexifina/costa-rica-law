@@ -1,1 +1,0 @@
-Artículo 32.—El trabajo a realizar y la forma de hacerlo, se coordinará con el Director del Centro Educativo, Escuela, o Colegio, Asociaciones de Desarrollo, Juntas de Educación, Comités de Desarrollo, miembros del Concejo Municipal o Comisión de Becas.

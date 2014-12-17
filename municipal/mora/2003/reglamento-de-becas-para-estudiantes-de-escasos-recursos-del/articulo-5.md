@@ -1,1 +1,0 @@
-Artículo 5º—Corresponde al Concejo Municipal, quien en forma definitiva aprobará o improbará el otorgamiento de las becas, para lo cual tomará en cuenta el dictamen que en cada caso, le brinde la Comisión de Becas así como los antecedentes del interesado y la recomendación que se derive del estudio social realizado por los funcionarios del Concejo de Distrito respectivo.

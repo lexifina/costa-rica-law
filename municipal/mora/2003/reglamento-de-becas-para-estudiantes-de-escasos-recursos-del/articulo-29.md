@@ -1,1 +1,0 @@
-Artículo 29.—Los adjudicatarios de becas, sus padres o encargados de los estudiantes becados deberán están obligados a demostrar su rendimiento al finalizar cada ciclo lectivo, para lo cual deberán presentar ante el Departamento de Secretaría del Concejo, el reporte de calificaciones expedida por la Dirección del Centro Educativo donde realiza los estudios.

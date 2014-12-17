@@ -1,2 +1,0 @@
-Artículo 15.—La Comisión celebrará sesiones ordinarias una vez al mes, y de todo lo acordado se levantará un acta en un libro que al efecto suministrará, y custodiará el Departamento de la Secretaría del Concejo.
-El presidente o secretario de la Comisión podrá convocar a sesiones extraordinarias, siempre que para ello medie un lapso de por lo menos tres días hábiles. Para sesionar válidamente se requiere la presencia de la mitad más uno de sus miembros.

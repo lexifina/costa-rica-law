@@ -1,1 +1,0 @@
-Artículo 8º—La Municipalidad enviará a la Dirección Administrativa de todos los centros educativos del cantón, un comunicado para que aquellos estudiantes que cumplan los requisitos establecidos en este Reglamento y tengan interés en la beca, lo soliciten ante el Concejo de Distrito respectivo.

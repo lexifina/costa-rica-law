@@ -1,1 +1,0 @@
-Artículo 10.—El monto del fondo destinado para becas, podrá ser aumentado tomando como base la recomendación que haga la Comisión de Becas con respecto a la cantidad de estudiantes en espera y de acuerdo a los recursos disponibles por la Municipalidad.

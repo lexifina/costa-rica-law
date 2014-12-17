@@ -1,1 +1,0 @@
-Artículo 13.—La Comisión de Becas estará integrada al menos por tres miembros, dos de los cuales deberán ser escogidos de entre los regidores propietarios y suplentes. Podrán integrarlas los síndicos propietarios y suplentes; estos últimos tendrán voz y voto. Los funcionarios municipales y los particulares podrán participar en las sesiones con carácter de asesores.

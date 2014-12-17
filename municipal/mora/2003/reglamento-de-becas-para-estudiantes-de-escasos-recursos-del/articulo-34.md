@@ -1,1 +1,0 @@
-Artículo 34.—Los montos de dinero a otorgar por concepto de becas municipales serán aumentados una vez al año, a fin de procurar que el beneficio se encuentre más acorde con la realidad económica del becario y en general con el costo de la vida.

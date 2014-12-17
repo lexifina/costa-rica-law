@@ -1,1 +1,0 @@
-Artículo 25.—En todos los casos, el Alcalde, los miembros del Concejo de Distrito y de la Comisión de Becas podrán hacer visitas a los hogares de los interesados para determinar la veracidad de la información.

@@ -1,1 +1,0 @@
-Artículo 14.—Los miembros de esta Comisión podrán ser removidos por el Concejo, cuando se cuente con evidencia que compruebe fraude en el otorgamiento de las becas de acuerdo al presente Reglamento. El Concejo deberá reponer a la persona destituida, a más tardar en la próxima sesión ordinaria. De igual forma se procederá cuando medie renuncia de uno de sus miembros.
