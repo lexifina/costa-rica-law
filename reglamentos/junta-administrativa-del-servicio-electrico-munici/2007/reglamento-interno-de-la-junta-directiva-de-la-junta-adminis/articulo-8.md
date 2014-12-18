@@ -1,4 +1,4 @@
 CAPÍTULO II
 De las sesiones ordinarias y extraordinarias
-Artículo Nº 8.—Los días de sesiones ordinarias serán fijadas por año y el mismo día en que se eligen el Presidente, el Vicepresidente y al Secretario. El acuerdo respectivo deberá comunicarse al público mediante aviso en el Diario Oficial La Gaceta y regirá a partir de su publicación.
-Todas las sesiones serán privadas, excepto que la Junta acuerde declararlas públicas total o parcialmente, por acuerdo unánime de los señores directores presentes.
+Artículo Nº 8.—Los días de sesiones ordinarias serán fijadas cada año, en la primera sesión de enero, sin perjuicio de que la Junta Directiva pueda reorganizar el horario de sesiones ordinarias en cualquier momento. En esta primera sesión también se elegirán el presidente, vicepresidente y el secretario, por el plazo establecido en el presente Reglamento. En caso de sustitución de un miembro de la Junta, que dé lugar a la reconstitución del órgano, esos cargos se elegirán por lo que resto del periodo. Todas las sesiones serán privadas, excepto que la Junta acuerde declararlas públicas total o parcialmente, por acuerdo unánime de los señores directores presentes.
+(Así reformado mediante sesión extraordinaria N° 493 del 18 de diciembre del 2014)
