@@ -14,3 +14,4 @@ Directriz para la Implementación del Sistema de Mensajería de Documentos Elect
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-18 | la propia norma |
+| 2 | 2014-12-18 | Acuerdo 194 (2014-12-18) |
