@@ -1,0 +1,1 @@
+Artículo 8º—Verificación de condición. El Departamento Financiero-Contable del Colegio de Contadores Públicos recibirá por lo menos ocho horas antes de realizarse el curso del Departamento de Desarrollo Profesional la lista de las personas inscritas clasificadas como CPA y público en general, lo anterior con el fin de verificar sus obligaciones con el Colegio.
