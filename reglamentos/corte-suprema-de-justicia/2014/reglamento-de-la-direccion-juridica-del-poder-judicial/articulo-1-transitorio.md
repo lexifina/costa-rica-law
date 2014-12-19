@@ -1,0 +1,3 @@
+Disposición transitoria:
+I.—Los asuntos cuyo trámite se encuentre iniciado se terminarán de conocer por la Dirección Ejecutiva como órgano decisor, para los efectos de salvaguardar la competencia del dictado del acto final. Los asuntos que ingresen a partir de la vigencia de este reglamento y a los que habiendo ingresado, no se les haya iniciado el trámite, es decir el nombramiento del órgano director, el dictado del acto final corresponderá a la Dirección Jurídica. Esta disposición aplicará tanto a los asuntos de cobro administrativo como a los disciplinarios de peritos, ejecutores, intérpretes y traductores.”
+San José, 28 de noviembre de 2014.

@@ -1,0 +1,3 @@
+Artículo 3º—Estructura.
+La Dirección Jurídica estará a cargo de un Director o una Directora. Además, estará integrada por un Sub Director o una Sub Directora, el personal profesional y de apoyo que su función requiera.
+Contará con un Consejo Consultivo, el Área de Contratación Administrativa, el Área de Procedimientos Disciplinarios y Jurisdiccionales, el Área de Cobro Administrativo, el Área de Análisis Jurídico y con aquellas otras que demande el cumplimiento de los objetivos institucionales. Su estructura organizativa deberá responder a esos requerimientos y contará con los niveles que técnicamente se estimen necesarios, conforme se defina en el Manual de Organización y Funciones.
