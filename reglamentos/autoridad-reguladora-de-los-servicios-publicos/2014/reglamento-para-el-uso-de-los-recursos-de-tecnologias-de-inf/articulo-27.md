@@ -1,0 +1,1 @@
+Artículo 27.—Información de la Asociación Solidarista. La Asociación Solidarista de la Autoridad Reguladora está autorizada para enviar por el correo electrónico asignado información para sus asociados, sobre las ventas u otras actividades que se realicen.

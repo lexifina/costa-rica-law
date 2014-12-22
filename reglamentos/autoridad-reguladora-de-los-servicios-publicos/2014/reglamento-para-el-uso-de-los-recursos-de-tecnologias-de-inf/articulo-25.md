@@ -1,0 +1,1 @@
+Artículo 25.—Cuentas genéricas para las áreas de la Institución. Será deber de la jefatura de cada área de la Institución, nombrar al menos una persona titular y un suplente, encargados de la administración de las cuentas genéricas asignadas, quienes asumirán la responsabilidad de la utilización de dichas cuentas de correo electrónico.

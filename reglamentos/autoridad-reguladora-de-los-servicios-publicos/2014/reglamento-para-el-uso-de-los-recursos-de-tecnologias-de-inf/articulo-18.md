@@ -1,0 +1,1 @@
+Artículo 18.—Costo por la reparación o sustitución de los equipos. El costo por la reparación o sustitución de los equipos a raíz de los desperfectos causados a los mismos por falta de cuidado o intencionalmente, lo asumirá quien resultare responsable, siguiendo para ello el debido proceso.

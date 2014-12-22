@@ -1,0 +1,1 @@
+Artículo 8º—Asignación de contraseña. A cada funcionario que acceda a los recursos tecnológicos de la Autoridad Reguladora, se le asignará una identidad intransferible, compuesta por un nombre de usuario (username) y una contraseña temporal (password). Es función del funcionario colocar una contraseña secreta para el uso de acceso al equipo y sistemas.

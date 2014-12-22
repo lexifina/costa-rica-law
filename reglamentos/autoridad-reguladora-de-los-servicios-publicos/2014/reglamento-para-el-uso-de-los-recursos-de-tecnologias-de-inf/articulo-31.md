@@ -1,0 +1,1 @@
+Artículo 31.—El uso de Internet. El servicio de internet es una herramienta necesaria para el cumplimiento de los objetivos institucionales, por ello su uso debe estar limitado a asuntos estrictamente laborales y fines de la Institución.

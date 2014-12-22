@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales
+Artículo 34.—Sanciones aplicables. El incumplimiento a lo establecido en este reglamento, será sancionado según la gravedad de lo acontecido en cada caso en particular y en atención al cargo que desempeñe el funcionario. En cualquier caso, deberá respetarse el debido proceso y aplicarse la normativa vigente.

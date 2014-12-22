@@ -1,0 +1,2 @@
+Artículo 35.—Aplicación del régimen disciplinario. Las acciones disciplinarias que se deriven del incumplimiento a las disposiciones de este reglamento serán decididas por el Jerarca Superior Administrativo, a través de un procedimiento administrativo, con respeto al debido proceso y a la normativa aplicable.
+El Jerarca Superior Administrativo además informará a las autoridades competentes, cuando exista sospecha fundada de que se ha cometido algún ilícito en el uso o manejo de recursos tecnológicos o de información de la Autoridad Reguladora.

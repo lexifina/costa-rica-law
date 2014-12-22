@@ -1,0 +1,1 @@
+Artículo 15.—Desconexión. Aquellos equipos que representen un riesgo al funcionamiento de los recursos tecnológicos de la Autoridad Reguladora, serán desconectados por Tecnologías de Información sin previa comunicación al funcionario.
