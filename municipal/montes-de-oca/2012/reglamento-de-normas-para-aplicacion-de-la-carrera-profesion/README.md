@@ -14,3 +14,4 @@ Reglamento de Normas para aplicación de la carrera profesional en la Municipali
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-07-16 | la propia norma |
+| 2 | 2014-12-22 | Reglamento municipal 114 (2014-12-22) |
