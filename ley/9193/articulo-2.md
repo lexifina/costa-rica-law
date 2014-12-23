@@ -44,6 +44,6 @@ Céd. Jur 3-008-134912
 (Modificado por el artículo 1° del decreto ejecutivo N° 38723 del 17 de noviembre del 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38745 del 20 de noviembre de 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38746 del 20 de noviembre de 2014)
-(Reformado por los artículo 2° y 3° de la ley N° 9290 del 2 de diciembre de 2014)
+(Reformado por los artículo 2° y *3° de la ley N° 9290 del 2 de diciembre de 2014) *(Modificado por el artículo 1° del decreto ejecutivo N° 38796 del 16 de diciembre de 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38771 del 11 de diciembre de 2014)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38776 del 11 de diciembre de 2014)
