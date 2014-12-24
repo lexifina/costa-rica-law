@@ -1,0 +1,1 @@
+Artículo 51.—De los fondos disponibles en la cuenta de cada Comité Comunal, la Junta Directiva del Comité Cantonal podrá autorizar el funcionamiento de una caja chica conforme al reglamento municipal, para asumir gastos de menor cuantía y de carácter urgente.

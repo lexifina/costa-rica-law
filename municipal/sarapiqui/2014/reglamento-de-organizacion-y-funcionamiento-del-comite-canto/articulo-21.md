@@ -1,0 +1,1 @@
+Artículo 21.—La Junta Directiva escogerá entre sus integrantes al presidente, el vicepresidente, el secretario, al tesorero y al vocal, lo cual hará en su primera sesión. Dichos cargos se ejercerán por el período de un año, pudiendo ser reelectos mediante votación secreta.

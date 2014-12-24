@@ -1,0 +1,1 @@
+Artículo 75.—Todos los miembros de las asociaciones inscritas en el registro de asociaciones son responsables por el buen uso de los bienes entregados y tendrán la obligación de denunciar el empleo irregular de éstos.

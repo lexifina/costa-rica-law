@@ -1,0 +1,3 @@
+CAPÍTULO XVIII
+De la donación de implementos deportivos, materiales, maquinaria y equipo
+Artículo 69.—Toda organización que desee ser beneficiaria de implementos deportivos, materiales, maquinaria o equipo, inscrita dentro del registro-padrón conforme al artículo 56, deberá cumplir con todos los requisitos que se exigen en el presente reglamento, de previo a recibir cualquier tipo de beneficio. Podrán ser beneficiarios de los bienes supraindicados solo aquellas asociaciones deportivas aprobadas por el ICODER con domicilio en el cantón de Sarapiquí, que se encuentren activas y que hayan sido incorporadas en los programas deportivos o recreativos del plan operativo anual vigente del Comité Cantonal.

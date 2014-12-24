@@ -1,0 +1,14 @@
+Artículo 37.—Las funciones y naturaleza del trabajo del administrador(a) será de planificación, control, supervisión y dirección, a la vez desarrollará labores administrativas relacionadas directamente con la materia competencia del Comité. Entre otras, son funciones del administrador(a) las siguientes:
+a) Ejecutar los acuerdos que emanen de la Junta Directiva, apegados al plan operativo anual, al presupuesto institucional y las directrices emanadas por el Concejo Municipal.
+b) Planificar, controlar, dirigir y supervisar las labores técnicas, profesionales y administrativas propias del Comité.
+c) Evaluar, diagnosticar y recomendar a la Junta Directiva la organización, planeamiento y desarrollo de nuevos proyectos de ejecución en la esfera de acción del Comité Cantonal, dirigidos a la población del Cantón de Sarapiquí.
+d) Evaluar y supervisar directamente o por medio del personal que designe, la concepción y ejecución de los programas y planes de trabajo de los técnicos en deporte y recreación responsables de la conducción de las diferentes actividades del Comité.
+e) Preparar y presentar los informes técnicos ante la Junta Directiva que contemplen los avances de la gestión en las distintas áreas de acción.
+f) Planificar, ejecutar, integrar y evaluar programas y actividades que hayan sido ordenados por la Junta Directiva en el campo del deporte y la recreación.
+g) Evaluar periódicamente el impacto de los proyectos y programas e informar y recomendar a la Junta Directiva para que se incorpore de manera estratégica, las reformas y ajustes necesarios para su óptimo aprovechamiento.
+h) Asesorar a la Junta Directiva en la preparación del plan anual operativo y/o presupuesto.
+i) Asistir a reuniones, seminarios, juntas y otras actividades dentro o fuera de la institución con la finalidad de actualizar conocimientos sobre las políticas administrativas, legales y de supervisión, recibir adiestramiento y/o prestar su colaboración en asuntos de su especialidad.
+j) Velar porque los objetivos, actividades y metas de cada programa se cumplan de acuerdo a los cronogramas y planes de trabajo establecidos, proponiendo y dirigiendo las acciones y ajustes que canalicen correctamente los recursos disponibles.
+k) Velar porque los servicios sustantivos y de apoyo se efectúen con la mayor eficiencia y eficacia, de modo que se eviten pérdidas económicas originadas por atrasos, tardanzas o deficiencias de los procedimientos.
+l) Evaluar periódicamente la calidad de los resultados en la comunicación de políticas, planes y programas técnicos y administrativos y recomendar los cambios o ajustes necesarios para el logro de los objetivos.
+m)Mantener un inventario actualizado de las instalaciones deportivas y recreativas del Cantón que sean propiedad del Comité Cantonal o estén bajo su administración y realizar las acciones que le sean encomendadas por la Junta Directiva para asegurar su mantenimiento, conservación y uso equitativo.

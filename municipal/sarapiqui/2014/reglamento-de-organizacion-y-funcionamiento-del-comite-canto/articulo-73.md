@@ -1,0 +1,1 @@
+Artículo 73.—El administrador será el encargado de autorizar la salida de los bienes de la bodega del Comité cantonal una vez aprobada la donación por parte de la Junta Directiva, para lo cual dejará constancia de dicho acto mediante el acta respectiva, que será firmada por el representante de la organización.

@@ -1,0 +1,1 @@
+Artículo 71.—Las organizaciones que reciban implementos deportivos, materiales, equipo o maquinaria, deberán participar activamente en un programa o proyecto deportivo o recreativo que desarrolle el Comité Cantonal y solo podrán ser utilizados por en las actividades para los cuales fueron entregados y deben responder al programa deportivo de la organización.

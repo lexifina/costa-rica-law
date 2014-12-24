@@ -1,0 +1,1 @@
+Artículo 62.—En el uso de las instalaciones deportivas existentes, el Comité Cantonal y los Comités Comunales deberán conceder participación a todos los grupos deportivos organizados de la comunidad, debiendo tener a todos éstos debidamente registrados.

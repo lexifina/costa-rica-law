@@ -1,0 +1,1 @@
+Artículo 6º—No podrán formar parte de la Junta Directiva del Comité Cantonal: los regidores y síndicos, el alcalde, los vicealcaldes, el auditor, el tesorero, el contador; sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive, así como tampoco los miembros de los Comités Comunales.

@@ -1,0 +1,1 @@
+Artículo 39.—El presupuesto ordinario del Comité Cantonal y Comités Comunales debe reflejar estrictamente los planes propuestos y programas que se ejecutarán en el período anual al que corresponde el presupuesto. Los gastos presupuestarios no pueden exceder los ingresos probables.

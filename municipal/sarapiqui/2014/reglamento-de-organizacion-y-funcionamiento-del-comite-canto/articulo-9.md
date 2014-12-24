@@ -1,0 +1,13 @@
+Artículo 9º—Son funciones de la Junta Directiva las que se detallan a continuación:
+a) Ejecutar las políticas que en materia de deporte y recreación hayan sido aprobadas en el plan operativo anual por el Concejo Municipal.
+b) Elaborar el plan-presupuesto operativo anual y someterlo a estudio y aprobación del Concejo Municipal en el mes de julio de cada año. El Comité Cantonal, de previo a elaborar el plan operativo anual, establecerá un procedimiento para obtener información de los Comités Comunales adscritos al Comité Cantonal para determinar directamente las necesidades que cada distrito tiene en materia de deporte y recreación y procurará incluir en el plan, la ejecución de las necesidades detectadas o informadas. Con el fin de coordinar presupuestos y acciones, la Junta Directiva del Comité Cantonal deberá incorporar a las organizaciones deportivas, recreativas y comunales organizadas de los distritos a fin de no repetir acciones y que las pretensiones de todas las organizaciones se consignen en el inventario de necesidades comunales de forma priorizada.
+c) Sesionar en forma ordinaria o extraordinaria, conforme lo indica este Reglamento.
+d) Juramentar a las personas que el mismo Comité nombre para integrar alguno de sus Comités Comunales como acto previo a la toma de posesión de los cargos.
+e) Gestionar ante el Concejo Municipal con su respectiva recomendación, la aprobación de las tarifas o precios para el alquiler de las instalaciones deportivas y recreativas bajo su administración.
+f) Gestionar ante el Concejo Municipal, la obtención de recursos económicos, materiales y humanos para el desarrollo de sus programas e informar a la Municipalidad cuando provengan de liberalidades de fuentes externas.
+g) Procurar la capacitación técnica de los promotores deportivos y recreativos de los distritos del cantón para integrarlos en la organización deportiva cantonal.
+h) Divulgar e informar a la población del cantón sobre el desarrollo de sus actividades.
+i) Nombrar, sancionar y remover a los funcionarios del Comité Cantonal contratados bajo una relación de empleo público, siguiendo las normas del Código Municipal y legislación supletoria.
+j) Vigilar que los diversos procedimientos utilizados por el Comité en el desempeño de su gestión, se apegue a las disposiciones legales y reglamentarias que garantice la correcta administración de los fondos públicos asignados.
+k) Entregar semestralmente al Concejo Municipal de Sarapiquí un informe económico y de labores.
+l) Rendir cuentas de su administración una vez al año al Concejo Municipal, a la Alcaldía, Comités Comunales, así como los vecinos del cantón.

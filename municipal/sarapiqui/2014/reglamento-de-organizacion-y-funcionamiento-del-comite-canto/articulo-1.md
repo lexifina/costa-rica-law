@@ -1,0 +1,9 @@
+MUNICIPALIDAD DE SARAPIQUÍ
+(Nota de Sinalevi: La Municipalidad de Sarapiquí aprobó un nuevo Reglamento Interno para la Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación de Sarapiquí, en sesión N° 39 del 26 de setiembre de 2016)
+Acuerdo del Concejo Municipal de Sarapiquí, en sesión ordinaria N° 42-2014, celebrada el 20 de octubre del 2014, que dice:
+Se acuerda por unanimidad acoger la iniciativa de creación del Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y Recreación del Cantón de Sarapiquí y los Comités Comunales de Deportes, propuesto por el señor Alcalde Municipal Pedro Rojas Guzmán; dispensándosele del trámite de comisión; en consecuencia, el Concejo Municipal en uso de la potestades conferidas en los artículos 13 inciso c) y 169 del Código Municipal, acuerda aprobarlo en forma definitiva de la siguiente manera:
+REGLAMENTO DE ORGANIZACIÓN Y FUNCIONAMIENTO DEL COMITÉ CANTONAL DE DEPORTES Y RECREACIÓN DE SARAPIQUÍ
+CAPÍTULO I
+De la constitución
+Artículo 1º—De conformidad con los artículos 164 y siguientes y concordantes del Código Municipal, en el Cantón de Sarapiquí, existirá y funcionará un Comité Cantonal de Deportes y Recreación, cual estará adscrito a la Municipalidad de Sarapiquí y ostentará personalidad jurídica instrumental y competencias específicas para construir, administrar y mantener las instalaciones deportivas de su propiedad u otorgadas en administración bajo estricta supervisión municipal. Asimismo se organizará y funcionará al tenor de las normas contenidas en el presente Reglamento.
+El Comité Cantonal tendrá su domicilio legal en el Distrito Puerto Viejo, pudiendo variarse la sede en forma temporal y para la realización de actividades especiales, siempre dentro de la jurisdicción territorial del Cantón de Sarapiquí.
