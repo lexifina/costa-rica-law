@@ -1,0 +1,1 @@
+Artículo 30.—Responsables de verificar el cumplimiento. Los responsables de verificar el cumplimiento del Informe de Fin de Gestión por parte de los titulares subordinados, de conformidad con las Directrices vigentes sobre esta materia, son la Subdirección de Recursos Humanos.

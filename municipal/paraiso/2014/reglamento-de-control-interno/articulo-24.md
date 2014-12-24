@@ -1,0 +1,1 @@
+Artículo 24.—Procedimiento para la Implementación del Sistema Específico de Valoración del Riesgo. Una vez establecida la metodología a utilizar, la comisión de Valoración del Riesgo Institucional, enviará dicha propuesta a la Alcaldía, para su primera aprobación y la Alcaldía elevará la misma al Concejo Municipal para la aprobación final.

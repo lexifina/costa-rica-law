@@ -1,0 +1,1 @@
+Artículo 22.—Objetivo de la Valoración de Riesgos Institucional. La identificación y valoración del riesgo debe garantizar y facilitar el cumplimiento de la misión, objetivos y metas institucionales, mediante la prevención y administración de los riesgos, Para ubicar a la Institución en un nivel de riesgo aceptable, que garantice parámetros de aceptabilidad.
