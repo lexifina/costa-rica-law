@@ -1,0 +1,15 @@
+Artículo 7
+Exportación y evaluación de las exportaciones
+1. Si la exportación no está prohibida en virtud del artículo 6, cada Estado parte exportador, antes de autorizar la exportación bajo su jurisdicción de armas convencionales comprendidas en el artículo 2, párrafo 1, o de elementos comprendidos en el artículo 3 o el artículo 4, y de conformidad con su sistema nacional de control, evaluará, de manera objetiva y no discriminatoria y teniendo en cuenta los factores pertinentes, incluida la información proporcionada por el Estado importador de conformidad con el artículo 8, párrafo 1, si las armas convencionales o los elementos podrían:
+a) Contribuir a la paz y la seguridad o menoscabarlas;
+b) Utilizarse para:
+i) Cometer o facilitar una violación grave del derecho internacional humanitario;
+ii) Cometer o facilitar una violación grave del derecho internacional de los derechos humanos;
+iii) Cometer o facilitar un acto que constituya un delito en virtud de las convenciones o los protocolos internacionales relativos al terrorismo en los que sea parte el Estado exportador; o
+iv) Cometer o facilitar un acto que constituya un delito en virtud de las convenciones o los protocolos internacionales relativos a la delincuencia organizada transnacional en los que sea parte el Estado exportador.
+2. El Estado parte exportador también examinará si podrían adoptarse medidas para mitigar los riesgos mencionados en los apartados a) o b) del párrafo 1, como medidas de fomento de la confianza o programas elaborados y acordados conjuntamente por los Estados exportador e importador.
+3. Si, una vez realizada esta evaluación y examinadas las medidas de mitigación disponibles, el Estado parte exportador determina que existe un riesgo manifiesto de que se produzca alguna de las consecuencias negativas contempladas en el párrafo1, dicho Estado no autorizará la exportación.
+4. Al realizar la evaluación, el Estado parte exportador tendrá en cuenta el riesgo de que las armas convencionales comprendidas en el artículo 2, párrafo 1, o los elementos comprendidos en el artículo 3 o el artículo 4 se utilicen para cometer o facilitar actos graves de violencia por motivos de género o actos graves de violencia contra las mujeres y los niños.
+5. Cada Estado parte exportador tomará medidas para asegurar que todas las autorizaciones de exportación de armas convencionales comprendidas en el artículo 2, párrafo 1, o de elementos comprendidos en el artículo 3 o el artículo 4, se detallen y expidan antes de que se realice la exportación.
+6. Cada Estado parte exportador pondrá a disposición del Estado parte importador y de los Estados partes de tránsito o transbordo información adecuada sobre la autorización en cuestión, previa petición y de conformidad con sus leyes, prácticas o políticas nacionales.
+7. Si, después de concedida una autorización, un Estado parte exportador tiene conocimiento de nuevos datos que sean pertinentes, se alienta a dicho Estado a que reexamine la autorización tras consultar, en su caso, al Estado importador.

@@ -1,0 +1,5 @@
+Artículo 16
+Asistencia internacional
+1. A fin de aplicar el presente Tratado, cada Estado parte podrá recabar asistencia, en particular asistencia jurídica o legislativa, asistencia para el desarrollo de la capacidad institucional y asistencia técnica, material o financiera. Tal asistencia podrá incluir la gestión de las existencias, programas de desarme, desmovilización y reintegración, legislación modelo y prácticas eficaces de aplicación. Cada Estado parte que esté en condiciones de hacerlo prestará, previa petición, tal asistencia.
+2. Cada Estado parte podrá solicitar, ofrecer o recibir asistencia a través de, entre otros, las Naciones Unidas, organizaciones internacionales, regionales, subregionales o nacionales, organizaciones no gubernamentales o a través de acuerdos bilaterales.
+3. Los Estados partes establecerán un fondo fiduciario de contribuciones voluntarias para ayudar a aplicar el presente Tratado a los Estados partes que soliciten y necesiten asistencia internacional. Se alienta a cada Estado parte a que aporte recursos al fondo fiduciario.
