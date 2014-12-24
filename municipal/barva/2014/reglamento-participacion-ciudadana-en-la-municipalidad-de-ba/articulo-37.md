@@ -1,0 +1,1 @@
+Artículo 37.—La Alcaldía reforzará en recursos tanto humanos como financieros la Unidad de Planificación de tal forma que se garantice la participación ciudadana y se haga procure una rendición de cuentas transparente implementando los diferentes mecanismos para ello. Dichos recursos estarán sujetos a las posibilidades presupuestarias de la institución.

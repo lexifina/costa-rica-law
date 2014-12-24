@@ -1,0 +1,1 @@
+Artículo 33.—La Municipalidad deberá destinar recursos humanos y financieros del presupuesto anual para el proceso de acompañamiento para la implementación de los presupuestos participativos. Siempre y cuando cuente con presupuesto para tal fin.
