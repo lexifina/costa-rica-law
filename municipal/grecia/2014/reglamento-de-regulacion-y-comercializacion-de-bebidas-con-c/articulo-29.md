@@ -1,0 +1,1 @@
+Artículo 29.—Revocación de Licencia. En los supuestos del artículo 6 de la ley, el Alcalde o Vicealcalde (sa), en cada caso emitirá la Resolución correspondiente debidamente razonada bajo las reglas del Debido Proceso.

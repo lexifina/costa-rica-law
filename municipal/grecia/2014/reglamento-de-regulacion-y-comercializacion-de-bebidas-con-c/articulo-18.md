@@ -1,0 +1,3 @@
+De las licencias temporales
+Artículo 18.—De las licencias temporales. Las licencias temporales para el expendio de bebidas con contenido alcohólico se concederán únicamente por medio de acuerdo del Concejo Municipal en ocasión de la celebración de fiestas cívicas, populares, patronales, turnos, ferias y afines.
+Los interesados deberán presentar con un mes de antelación a la realización de las mismas, indicando los días en que se realizará el evento, la cual hará el traslado correspondiente a la Administración que será la responsable de verificar el cumplimiento de los requisitos solicitados y emitir el informe correspondiente al Concejo Municipal. Para todos los efectos se cumplirá a cabalidad con el numeral 7º de la Ley Nº 9047.

@@ -1,0 +1,1 @@
+Artículo 20.—De la aprobación. Le corresponde al Concejo Municipal la competencia de resolver la solicitud de licencias permanentes y temporales; las cuales en caso de ser aprobada, la Secretaria Municipal, deberá enviar copia del acuerdo correspondiente para comunicar, informar, y coordinar con la Policía Municipal, Cruz Roja y Policía de Proximidad.
