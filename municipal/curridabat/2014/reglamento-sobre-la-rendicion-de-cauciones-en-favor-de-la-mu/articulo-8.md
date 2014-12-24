@@ -1,0 +1,1 @@
+Artículo 8º—Caucionantes del nivel B. En este nivel deben rendir caución para el ejercicio de sus cargos, todos quienes ocupen puestos de Coordinadores y Jefaturas dentro de los Procesos de recaudación de ingresos, como de pago de Planillas y Proveedores.

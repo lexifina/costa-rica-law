@@ -1,0 +1,4 @@
+Artículo 10.—Revisión del listado de funcionarios obligados a caucionar. Una vez al año la Alcaldía, con la obligada colaboración del Departamento de Recursos Humanos, cuando la primera así lo requiera, revisará el listado de funcionarios obligados a caucionar referenciado en los artículos anteriores, para lo cual deberá de considerar, entre otros aspectos:
+a. La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos, valores y bienes municipales.
+b. La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada por la Administración.
+c. El nivel de la responsabilidad, el monto administrado de fondos, valores y bienes municipales, y el salario correspondiente al caucionante. Reglamento sobre la Rendición de Cauciones en favor de la Municipalidad de Curridabat.

@@ -1,0 +1,1 @@
+Artículo 7º—Caucionantes del nivel A. En este nivel deben rendir caución para el ejercicio de sus cargos el Alcalde (sa), Vicealcalde (sa), Directores (as) Municipales, Asesor Jurídico (a), así como el Auditor (a).

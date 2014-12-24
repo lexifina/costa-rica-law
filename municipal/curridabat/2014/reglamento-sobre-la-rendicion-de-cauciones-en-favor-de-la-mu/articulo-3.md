@@ -1,0 +1,1 @@
+Artículo 3º—Forma de rendir la caución. La caución en favor de la Municipalidad de Curridabat, deberá rendirse con cargo al peculio del funcionario obligado a rendir la caución. Esta se rendirá mediante la suscripción de un seguro o póliza de fidelidad ante el Instituto Nacional de Seguros, o las entidades o empresas aseguradoras autorizadas.
