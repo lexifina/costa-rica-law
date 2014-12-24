@@ -1,0 +1,1 @@
+Artículo 36.—Reconocimiento municipal al desempeño en GIRS. Una vez al año, la Municipalidad tendrá la potestad de realizar un reconocimiento a las de empresas, instituciones comercios, comunidades, hogares, personas físicas u organizaciones que realicen una labor sobresaliente en materia de protección y conservación del ambiente.

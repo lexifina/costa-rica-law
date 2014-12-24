@@ -1,0 +1,2 @@
+Artículo 4º—Propiedad de los Residuos.
+Los residuos sólidos generados en el cantón de Sarapiquí, serán propiedad y responsabilidad de la Municipalidad, en el momento de que los usuarios del servicio público, sitúan o entregan los residuos para su recolección de conformidad con el reglamento respectivo. Sin embargo, la Municipalidad podrá otorgar el derecho de la recolección y la valorización a terceros, calificados de forma previa.

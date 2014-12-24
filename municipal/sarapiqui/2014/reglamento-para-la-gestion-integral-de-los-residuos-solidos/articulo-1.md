@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SARAPIQUÍ
+REGLAMENTO PARA LA GESTIÓN INTEGRAL DE LOS RESIDUOS SÓLIDOS DE LA MUNICIPALIDAD DE SARAPIQUÍ
+La Municipalidad de Sarapiquí en uso de sus facultades legales, en especial las conferidas por los artículos: 169 de la Constitución Política, 60 inciso c) y artículo 69) de La Ley Orgánica del Ambiente Nº 7554, 10 inciso 8) de la Ley de Biodiversidad Nº 7788, La Ley de Gestión Integral de Residuos N° 8839 y el artículo 13 inciso c) del Código Municipal, elabora el presente Reglamento, para su cumplimiento en el cantón de Sarapiquí de la provincia de Heredia.
+CAPÍTULO PRIMERO.
+Generalidades
+Artículo 1º—Objetivo General. El presente Reglamento tiene como objeto establecer las regulaciones y procedimientos en la recolección, disposición y aprovechamiento de los residuos sólidos ordinarios generados en el cantón de Sarapiquí; por tanto, define las responsabilidades de los diferentes actores del cantón; regula la recolección clasificada, el transporte, almacenamiento temporal, valorización, tratamiento y disposición final adecuada de residuos sólidos; define y establece la estructura institucional y operativa necesaria para cumplir la gestión integral de residuos sólidos y complementa las regulaciones nacionales en materia de gestión de residuos.
