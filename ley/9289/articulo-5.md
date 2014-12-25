@@ -1,0 +1,9 @@
+Artículo 5°-Apruebansen los siguientes Egresos Ordinarios y Extraordinarios de la Defensoría de los Habitantes, para el Ejercicio Económico 2015.
+MISIÓN INSTITUCIONAL:
+Proteger a las habitantes y los habitantes frente a las acciones y omisiones del Sector Público, mediante un control de legalidad, justicia, y ética por medio de la prevención, defensa, promoción y divulgación de sus derechos e intereses.
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 80 a La Gaceta N° 241 del 15 de diciembre de 2014, Tomo VII página 1023 a la 1031)
+[imagen]
+MISIÓN:
+Proteger a las habitantes y los habitantes frente a las acciones y omisiones del Sector Público, mediante un control de legalidad, justicia y ética por medio de la prevención, defensa, promoción y divulgación de sus derechos e intereses.
+PRODUCTOS:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 80 a La Gaceta N° 241 del 15 de diciembre de 2014, Tomo VII página 1032 a la 1038)
