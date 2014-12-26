@@ -1,0 +1,1 @@
+Artículo 3º—Cada Comisión Permanente de Trabajo contará con un miembro de Junta Directiva quien será el Presidente, conforme se estipula en el Artículo 54 del Reglamento a la Ley 1038. El Presidente de la Comisión podrá nombrar uno de los miembros para que lo sustituya en el cargo cuando no pueda asistir a las sesiones.

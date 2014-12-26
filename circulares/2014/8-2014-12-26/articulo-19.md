@@ -1,0 +1,5 @@
+Artículo 19.—Los miembros de las Comisiones Permanentes de Trabajo deben mantener una separación deliberativa propia de los asuntos de índole de ejecución y no involucrar a ningún funcionario de la institución:
+De igual manera, no deben ejercer ningún tipo de influencia en los procesos administrativos, ni solicitar un trato especial, asimismo, es obligación de los miembros observar las disposiciones contenidas en el Código de Conducta Administrativo-Ética Institucional para apoyar la eficacia de esas disposiciones, que en nada contradicen el Código de Ética Profesional del Contador Público.
+Este Manual deroga la circular aprobada en la sesión N° 06- 96, de la Junta Directiva del 13 de febrero de 1996 y los acuerdos de Junta Directiva aprobados en la sesión N° 14-98 del 14 de abril de 1998, N° 371-2002 de la sesión ordinaria N° 22-2002 del 22 de julio del 2002, y el acuerdo sesión ordinaria N° 07-2005 celebrada el día 21 de febrero del 2005, en acuerdo firme.
+El presente Manual fue modificado mediante acuerdo N° 557- 2014 y acuerdo N° 844-2014 SO32 de Junta Directiva.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

@@ -1,0 +1,1 @@
+Artículo 16.—Los miembros que integran una comisión Permanente de Trabajo, deberán abstenerse de conocer y votar aquellos asuntos en que tengan algún interés directo o indirecto, ya sea por relación de amistad, parentesco hasta el cuarto grado de consanguinidad o afinidad, laboral o de cualquiera otra naturaleza que roce con la ética profesional.

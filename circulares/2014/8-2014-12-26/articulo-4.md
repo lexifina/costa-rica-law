@@ -1,0 +1,1 @@
+Artículo 4º—Los integrantes de las Comisiones Permanentes de Trabajo serán nombrados por un periodo de un año y podrán ser reelectos por igual término, para períodos subsiguientes a solicitud del Presidente de la misma. Corresponde al Presidente de la Junta Directiva dar su aprobación a las proposiciones de nombramiento.

@@ -1,0 +1,1 @@
+Artículo 17.—Los miembros que integran las Comisiones Permanentes de Trabajo deberán apegarse estrictamente a lo establecido en el Capítulo X del Código de Ética Profesional del Contador Público Autorizado.

@@ -1,0 +1,1 @@
+Artículo 10.—El Presidente de la Comisión Permanente de Trabajo, será el enlace entre la Junta Directiva y la Comisión. Este informará a la Junta Directiva, al menos una vez al mes, sobre el avance de los asuntos a cargo de la Comisión.

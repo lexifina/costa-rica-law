@@ -1,0 +1,1 @@
+Artículo 7º—Los miembros de las Comisiones Permanentes de Trabajo, se reunirán al menos una vez al mes, preferiblemente en la sede del Colegio, para conocer de los asuntos encargados por la Junta Directiva o en su defecto, aquellos que sean de su competencia.

@@ -1,0 +1,1 @@
+Artículo 15.—Cada Comisión Permanente de Trabajo dispondrá de un conjunto específico de disposiciones para regular su funcionamiento, el cual deberá estructurarse en armonía con el presente manual y ser aprobado por la Junta Directiva.

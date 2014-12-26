@@ -1,0 +1,1 @@
+Artículo 6º—El Presidente de la Comisión nombrará un Secretario, quien tendrá la responsabilidad de redactar y controlar las actas de las sesiones, el que contará con el apoyo administrativo para que las actas sean debidamente preparadas, firmadas por el Presidente y Secretario del Comité y enviadas a la secretaria conforme se indica en el artículo anterior.

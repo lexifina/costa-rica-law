@@ -1,0 +1,1 @@
+Artículo 9º—La ausencia injustificada de cualquiera de los miembros a tres sesiones consecutivas, dará lugar para que el Presidente de la Comisión Permanente de Trabajo solicite ante el Presidente de la Junta Directiva su sustitución, procediéndose a nombrar al suplente o a un nuevo miembro por el resto del periodo.

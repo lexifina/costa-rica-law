@@ -1,0 +1,1 @@
+Artículo 12.—En aquellos casos, en que alguna Comisión lo estime necesario, podrá solicitar el apoyo de la Fiscalía del Colegio, si se trata de asuntos relacionados con la actividad asignada a la Comisión.

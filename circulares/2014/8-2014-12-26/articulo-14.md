@@ -1,0 +1,1 @@
+Artículo 14.—El Tribunal de Honor, el Comité Consultivo Permanente, el Comité Ah-Hoc de Asamblea General, deberán también cumplir con el contenido de los artículos 5°, 6°, 7° y 11 de este Manual. Asimismo, el Comité Consultivo Permanente observará lo estipulado en el artículo 8° de este Manual.
