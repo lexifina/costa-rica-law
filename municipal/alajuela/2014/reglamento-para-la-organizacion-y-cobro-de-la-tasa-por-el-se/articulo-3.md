@@ -1,0 +1,13 @@
+Artículo 3º—Definiciones. Para los efectos de este reglamento entiéndase por:
+a) Categoría: Ubicación de un contribuyente de acuerdo a la estimación de residuos que genera por mes. Para tal efecto se utilizarán como base los estudios de generación, composición y categorización de los residuos generados en el cantón Alajuela.
+b) Generador: Persona física o jurídica, pública o privada, que genera residuos sólidos, a través del desarrollo de procesos productivos, de alquiler o arrendamiento, de servicios, de comercialización o de consumo que son de competencia municipal.
+c) Municipalidad: Municipalidad de Alajuela.
+d) Reglamento: El presente reglamento.
+e) Residuo sólido: Material sólido o semi-sólido, post-consumo cuyo generador o poseedor debe o requiere deshacerse de él.
+f) Residuo sólido de manejo especial: Son aquellos que por su composición, necesidades de transporte, condiciones de almacenaje, formas de uso o valor de recuperación o por una combinación de esos, implican riesgos significativos a la salud y degradación sistemática de la calidad del ecosistema, por lo que requieren salir de la corriente normal de residuos ordinarios.
+g) Residuo sólido ordinario: Residuo de origen principalmente domiciliario o que proviene de cualquier otra actividad comercial, de servicios, industrial, limpieza de vías y áreas públicas, que tengan características similares a los domiciliarios.
+h) Residuo sólido peligroso: Todo residuo que por su reactividad química y sus características tóxicas, explosivas, corrosivas, radioactivas, biológicas, infectocontagiosas e inflamables, o que por su tiempo de exposición puedan causar daños a la salud y al ambiente.
+i) Servicio de recolección: Recolección, carga y transporte de residuos sólidos ordinarios desde el sitio dispuesto para su colocación hasta el lugar de tratamiento o disposición final.
+j) Servicio de disposición final: Manejo sanitario de los residuos sólidos ordinarios en un relleno sanitario.
+k) Tasa del servicio de manejo de residuos sólidos ordinarios: Tributo cuya obligación tiene como hecho generador la prestación efectiva o potencial de este servicio, individualizado en el contribuyente y cuyo producto no debe tener un destino ajeno al servicio, razón de ser de la obligación.
+l) Tarifa: Denominación que se le da a la expresión matemática que representa el costo que debe cancelar el contribuyente por la prestación efectiva o potencial del servicio público de manejo de residuos sólidos ordinarios en proporción a la cantidad generada mensualmente por unidad.

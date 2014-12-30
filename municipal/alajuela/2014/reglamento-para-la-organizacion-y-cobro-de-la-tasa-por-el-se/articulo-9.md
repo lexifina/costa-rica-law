@@ -1,0 +1,1 @@
+Artículo 9º—Forma del cobro. La municipalidad realizará el cobro del servicio de manejo de residuos sólidos ordinarios en estricta relación a la cantidad y categoría de las unidades generadoras que se encuentren en todo inmueble ubicado en el cantón Alajuela.

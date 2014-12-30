@@ -1,0 +1,1 @@
+Artículo 6.—Sujeto pasivo. Es sujeto pasivo la persona obligada al cumplimiento de las prestaciones tributarias, en calidad de contribuyente, ya sea como propietario o poseedor de un terreno al cual se le presta el servicio.
