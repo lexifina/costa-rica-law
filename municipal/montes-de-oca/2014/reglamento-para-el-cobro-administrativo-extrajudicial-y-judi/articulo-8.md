@@ -1,0 +1,1 @@
+Artículo 8º—Horario de actuaciones. Los funcionarios del Departamento de Captación de Ingresos actuarán normalmente en horas y días hábiles. Sin embargo, podrán actuar fuera de esas horas y días, cuando sea necesario para lograr el cumplimiento de sus deberes y funciones. En estos casos no se requerirá la habilitación de horas.

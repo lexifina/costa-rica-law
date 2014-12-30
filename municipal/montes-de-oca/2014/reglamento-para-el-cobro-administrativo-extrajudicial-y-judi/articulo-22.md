@@ -1,0 +1,10 @@
+SECCIÓN II
+Del cobro de las obligaciones tributarias
+municipales en la etapa administrativa
+Artículo 22.—Obligaciones de los funcionarios municipales asignados al Cobro Administrativo de las obligaciones vencidas. Los funcionarios asignados al Departamento de Captación de Ingresos, en cumplimiento de su función de gestión tendrán las siguientes obligaciones:
+a. Realizar las gestiones de cobro administrativo de las cuentas atrasadas, utilizando para ello todos los recursos tecnológicos a disposición de los funcionarios municipales.
+b. Notificar administrativamente una vez en forma personal las obligaciones tributarias municipales que presenten atraso, otorgándosele al contribuyente tres días hábiles para el pago respectivo; si vencido dicho plazo el sujeto pasivo no hiciere la cancelación total de los deudos ó formalizara arreglo de pago para la cancelación de los adeudos se gestionará ejecutivamente el cobro de los mismos; remitiéndose a los abogados externos, o internos en casos calificados, el expediente que contiene toda la documentación correspondiente a efectos de proceder al cobro ejecutivo, de conformidad con lo que se indica en este Reglamento.
+La notificación indicada se realizará por los medios legales correspondientes, establecidos en el presente Reglamento.
+Se comunicará mediante aviso de cobro al sujeto pasivo que presente atraso de dos trimestres en el pago del impuesto a la licencia referida en el artículo 79 del Código Municipal, otorgándosele 3 días hábiles para efectuar la cancelación correspondiente; si una vez vencido el plazo otorgado el pago respectivo no se hizo efectivo, se procederá de conformidad con el artículo 81 bis del Código Municipal, y paralelamente se gestionará la suspensión del ejercicio efectivo y autorizado de la correspondiente patente.
+c. Ejercer las funciones de control y fiscalización sobre la actuación que ejerzan los abogados externos en la etapa ejecutiva.
+d. Rendir informes semestrales sobre el estado de las obligaciones vencidas que se encuentran en las etapas administrativa y judicial.

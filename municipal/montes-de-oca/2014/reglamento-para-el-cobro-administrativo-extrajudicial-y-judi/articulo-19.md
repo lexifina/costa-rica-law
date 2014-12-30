@@ -1,0 +1,1 @@
+Artículo 19.—Dación en pago. El procedimiento para la extinción de la obligación tributaria municipal mediante dación en pago se regirá por el Decreto Ejecutivo Nº 20870-H, del 27 de octubre, 1991, publicado en La Gaceta Nº 234 del 6 de diciembre, 1991, que reglamentó el artículo 4 de la Ley Nº 7218.

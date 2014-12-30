@@ -1,0 +1,1 @@
+Artículo 27.—Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante los Técnicos Calificados del Departamento de Captación de Ingresos mediante la suscripción del documento idóneo que tendrá dicha unidad orgánica para tales efectos.

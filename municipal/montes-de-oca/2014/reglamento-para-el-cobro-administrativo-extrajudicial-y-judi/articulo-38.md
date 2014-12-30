@@ -1,0 +1,4 @@
+SECCIÓN II
+Sobre el cobro de honorarios profesionales
+Artículo 38.—Cobro de honorarios profesionales. El cobro de honorarios profesionales lo hará directamente el abogado externo director del proceso al sujeto pasivo; en caso de que éste pretenda cancelar previo a la terminación del proceso judicial respectivo. Dicho cobro se realizará con base en el Decreto Ejecutivo de Honorarios del Colegio de Abogados de Costa Rica, no pudiendo ser ni mayor ni menor del ahí establecido.
+El Departamento de Captación de Ingresos únicamente podrá recibir la cancelación del monto adeudado por el sujeto pasivo a la Municipalidad mediante la presentación de nota del abogado externo director del proceso en la que conste que le han sido cancelados los honorarios profesionales de conformidad a lo definido por el Decreto Ejecutivo de Honorarios del Colegio de Abogados de Costa Rica y se aportará, además, copia de la factura emitida por el abogado correspondiente.

@@ -1,0 +1,4 @@
+Artículo 40.—Pago de honorarios de abogado por parte de la Municipalidad. La Municipalidad estará obligada al pago de los honorarios de cualquier abogado externo contratado para procesos de cobro judicial, únicamente en los siguientes casos:
+i) Cuando se ha asignado un proceso de cobro a un abogado externo y el mismo sea resuelto por la Municipalidad en forma total o parcial y corresponda al municipio el pago de los honorarios completos, si estos no se han cobrado al deudor al momento de finiquitar el adeudo.
+ii) La cancelación no procederá cuando la resolución del contrato sea consecuencia de aplicación de una sanción surgida por incumplimiento del abogado externo del presente reglamento.
+iii) En todo caso, se cancelarán los honorarios profesionales de acuerdo al Decreto Ejecutivo de Honorarios del Colegio de Colegio de Abogados de Costa Rica.

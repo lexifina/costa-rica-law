@@ -1,0 +1,3 @@
+Artículo 21.—Devoluciones de saldo a favor. Los sujetos pasivos que tengan saldos a favor podrán solicitar su devolución dentro del término de ley.
+Los saldos a favor que hubieren sido objeto de modificación a través del proceso de determinación oficial de los impuestos no podrán ser objeto de solicitud de compensación o devolución, hasta tanto, no se resuelva definitivamente sobre su procedencia.
+Presentada la solicitud escrita ante la unidad orgánica correspondiente, y una vez resuelta la misma, se comunicará al Jefe del Departamento de Captación de Ingresos, quien emitirá la resolución que corresponda, declarando el saldo a favor, la compensación que corresponda, el nuevo saldo a favor del sujeto pasivo y solicitará en ese mismo acto la devolución respectiva.
