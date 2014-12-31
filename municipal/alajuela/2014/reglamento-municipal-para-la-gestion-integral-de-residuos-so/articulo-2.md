@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento es de acatamiento obligatorio para todas las personas, físicas y jurídicas, públicas y privadas, generadoras de residuos sólidos ordinarios que se encuentren localizados dentro del ámbito territorial del cantón Alajuela.

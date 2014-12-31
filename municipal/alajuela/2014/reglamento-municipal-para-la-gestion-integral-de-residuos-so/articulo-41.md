@@ -1,0 +1,1 @@
+Artículo 41.—Condiciones de los residuos valorizables. El usuario deberá limpiar, secar y compactar los residuos valorizables y separarlos, evitando que se contaminen con líquidos, alimentos, sustancias bioinfecciosas, pinturas, sustancias inflamables, explosivas, corrosivas, radioactivas y materiales punzocortantes.

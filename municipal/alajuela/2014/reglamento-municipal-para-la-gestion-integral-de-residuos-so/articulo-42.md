@@ -1,0 +1,1 @@
+Artículo 42.—Sitio de almacenamiento temporal. El usuario llevará los residuos valorizables a los Centros de Recuperación de Residuos Valorizables autorizados por la Municipalidad o los dispondrá de acuerdo a las condiciones y rutas de recolección selectiva que podría establecer la Municipalidad.

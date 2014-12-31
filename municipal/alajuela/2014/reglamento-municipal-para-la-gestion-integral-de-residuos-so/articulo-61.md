@@ -1,0 +1,1 @@
+Artículo 61.—El presente reglamento regirá la Gestión Integral de Residuos Sólidos en el cantón Alajuela a partir de su publicación en el Periódico Oficial La Gaceta, sustituyendo y derogando cualquier otra norma contenida en otro reglamento que lo contradiga.

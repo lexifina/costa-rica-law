@@ -1,0 +1,1 @@
+Artículo 45.—Incumplimientos detectados. El funcionario municipal documentará adecuadamente las denuncias e inspecciones y cuando se detecten incumplimientos procederá a elaborar un informe para dar inicio a la atención del caso respectivo.

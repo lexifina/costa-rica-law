@@ -1,0 +1,1 @@
+Artículo 16.—Residuos de demolición y construcción. El servicio de Manejo de residuos no incluye la recolección de residuos provenientes de demoliciones y construcciones. El manejo de este tipo de residuos será responsabilidad del generador y se regirá conforme a las disposiciones propias del Reglamento de Construcciones (Gaceta N° 56, 22 de marzo de 1983).

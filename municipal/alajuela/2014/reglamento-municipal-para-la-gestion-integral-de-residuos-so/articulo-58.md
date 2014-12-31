@@ -1,0 +1,1 @@
+Artículo 58.—Sanción. La suspensión de un incentivo por las razones establecidas en el artículo anterior, implicará la inclusión del pendiente correspondiente a la categoría inicial en la que se ubicaba el generador, según el estudio de Categorización de los patentados del cantón Alajuela, esto desde el momento en que inició bajo el régimen de incentivos.

@@ -1,0 +1,1 @@
+Artículo 59.—Obtención del protocolo y formularios. Los generadores deberán obtener en la Municipalidad el protocolo de implementación, el formato del Programa de Gestión Integral de Residuos y la guía práctica para su elaboración, o podrán obtenerlo de la Página Web de la Municipalidad www.munialajuela.go.cr

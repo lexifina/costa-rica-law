@@ -1,0 +1,1 @@
+Artículo 28.—Empaque de residuos punzocortantes. Los residuos punzocortantes, sin excepción, tienen que ser envueltos con papel grueso y debidamente rotulado, tomando todas las medidas necesarias para evitar cualquier tipo de accidente por parte de quien manipule el residuo.

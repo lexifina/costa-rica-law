@@ -1,0 +1,2 @@
+Artículo 11.—Frecuencia y sectores de prestación del servicio de Manejo de residuos. La Municipalidad brindará el servicio de Manejo de residuos según las rutas, frecuencia y sectores publicados en el sitio web municipal, las cuales podrán estar sujetas a modificaciones, que deberán informarse oportunamente a los usuarios.
+El usuario debe apegarse de manera estricta al programa de recolección establecido y comunicado oportuna y oficialmente por la Municipalidad.
