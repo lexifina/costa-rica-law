@@ -1,0 +1,1 @@
+Artículo 48.—Las instituciones del Estado centralizadas y descentralizadas, podrán optar por la distinción de Honor Municipal, por parte del Concejo Municipal, por sus actividades en beneficio de las comunidades y el impulso que den a los procesos de participación ciudadana, pudiendo hacer uso de ella en sus documentos y propaganda.

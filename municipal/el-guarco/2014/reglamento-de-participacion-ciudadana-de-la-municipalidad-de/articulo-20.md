@@ -1,0 +1,1 @@
+Artículo 20.—Todo vecino o vecina del Cantón de El Guarco, podrá participar de las organizaciones locales, de las consultas ciudadanas y cualquier otra acción que apunte a hacer realidad del municipio y el gobierno local como el centro de intención colectiva y conjunta de los ciudadanos y las ciudadanas.

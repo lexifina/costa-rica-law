@@ -1,0 +1,1 @@
+Artículo 9º—La Municipalidad de El Guarco velará por la protección de los derechos e intereses de todos y todas los y las que tienen su domicilio en la jurisdicción territorial del cantón, respondiendo y garantizando lo establecido en el Código Municipal en su Título I, Disposiciones Generales.

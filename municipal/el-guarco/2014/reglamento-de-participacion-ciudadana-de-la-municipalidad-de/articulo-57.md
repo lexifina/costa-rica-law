@@ -1,0 +1,2 @@
+Artículo 57.—Durante el lapso en que no se halle nombrada la Junta de Asuntos Ciudadanos, corresponderá al Concejo Municipal el nombramiento de la Comisión Especial Municipal de Asuntos Ciudadanos para asumir las funciones asignadas a la primera. Ello no podrá extenderse más allá de seis meses a partir de la vigencia del presente reglamento.
+Rige a partir de su publicación. Aprobado por el Concejo Municipal mediante acuerdo Nº 779, sesión Nº 312-2014 del 3 de junio del 2014.

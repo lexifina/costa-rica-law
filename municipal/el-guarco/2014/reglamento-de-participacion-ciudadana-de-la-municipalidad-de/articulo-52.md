@@ -1,0 +1,1 @@
+Artículo 52.—El Municipio por medio de la Secretaria Municipal, abrirá un expediente de la solicitud, en el cual se sumarán si es del caso, otros documentos procedentes de las áreas de gestión municipales que vengan a apoyar la propuesta. Así como la opinión del Concejo de Distrito u otros organismos colegiados municipales a los cuales recurra el Concejo Municipal.

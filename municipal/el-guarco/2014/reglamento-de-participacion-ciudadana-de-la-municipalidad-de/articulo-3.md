@@ -1,0 +1,1 @@
+Artículo 3º—El ámbito de aplicación de las presentes normas se restringe únicamente a la jurisdicción del cantón de El Guarco y es válido para todos los(as) habitantes o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.

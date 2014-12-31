@@ -1,0 +1,1 @@
+Artículo 8º—La Municipalidad de El Guarco es el instrumento inmediato del proceso de participación ciudadana en los asuntos públicos y asimismo el municipio es ámbito territorial para el ejercicio de los derechos reconocidos en la legislación de régimen local del cantón de El Guarco.
