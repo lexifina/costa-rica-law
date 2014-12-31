@@ -1,0 +1,1 @@
+Artículo 28.—El o la trabajador(a) que no asista al centro por tres días o más durante un mismo mes, sin justificación en los términos del artículo anterior, será objeto de la sanción precisa que al respecto señala el Código de Trabajo y el Reglamento vigente.

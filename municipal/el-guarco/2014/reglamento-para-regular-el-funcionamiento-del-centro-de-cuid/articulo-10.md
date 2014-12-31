@@ -1,0 +1,1 @@
+Artículo 10.—Horario de lactancia. Cuando los niños y las niñas se encuentren en periodo de lactancia, las madres tendrán acceso en el horario previamente acordado entre la madre y la persona a cargo del menor en el centro, el cual debe ser a una hora fija, salvo que se de alguna situación especial que esté debidamente justificada.

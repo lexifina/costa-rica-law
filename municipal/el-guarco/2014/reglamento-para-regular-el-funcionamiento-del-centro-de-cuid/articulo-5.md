@@ -1,0 +1,1 @@
+Artículo 5º—Servicios mínimos de la población beneficiada. Los servicios mínimos consistirán en cuido, alimentación, estimulación oportuna y educación inicial (oferta de un proyecto educativo integral que contemple las necesidades formativas de la población beneficiada).

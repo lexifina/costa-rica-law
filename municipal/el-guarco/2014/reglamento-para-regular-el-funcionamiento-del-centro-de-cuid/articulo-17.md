@@ -1,0 +1,1 @@
+Artículo 17.—Del programa de atención. El programa de atención que se desarrolla en el centro estará basado en el Plan de Estudio del Ciclo Materno Infantil del Ministerio de Educación Pública y el Modelo de Atención, referido por la Secretaria Técnica de Red Nacional de Cuido y Desarrollo Infantil.

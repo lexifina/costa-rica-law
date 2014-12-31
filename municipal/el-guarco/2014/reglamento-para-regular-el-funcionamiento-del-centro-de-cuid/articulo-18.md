@@ -1,0 +1,1 @@
+Artículo 18.—De la evaluación de los niños y las niñas. La evaluación es un proceso de observación constante y continua que se efectuará por medio de crónicas diarias o semanales, listas de cotejo sobre las actividades realizadas que culminará con un reporte trimestral, registrado en términos cualitativos de acuerdo al logro obtenido por el menor.

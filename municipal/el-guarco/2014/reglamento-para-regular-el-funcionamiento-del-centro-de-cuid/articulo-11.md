@@ -1,0 +1,2 @@
+Artículo 11.—Espacio para la lactancia materna. El CECUDI KEWO contará con un espacio físico acogedor, que cuenta con todas las condiciones higiénicas sanitarias adecuadas, en donde la madre amamante a su bebé y/ o realice la extracción manual de la leche materna, para las tomas posteriores del día. Siempre se verificará la buena práctica del lavado de manos.
+Además se llevará un registro de asistencia de la madre, el cual deberá indicar lo siguiente: fecha, nombre de la madre, nombre de bebé, hora de entrada, hora de salida y firma.
