@@ -1,0 +1,1 @@
+Artículo 7°—Se ratifica el derecho de los pensionados y pensionadas de los diferentes regímenes de pensiones con cargo al Presupuesto Nacional, a percibir los incrementos que correspondan, conforme las regulaciones aplicables a cada régimen, de acuerdo con el incremento general por concepto de costo de vida establecido en el artículo 1 de este Decreto.

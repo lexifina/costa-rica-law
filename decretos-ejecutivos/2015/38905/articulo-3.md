@@ -1,0 +1,1 @@
+Artículo 3°—Se le recuerda a las instituciones que desde el semestre anterior otorgaron a su personal el 0,14% que mediante el presente Decreto se concede a los profesionales según el artículo 2, no incurrir en un reconocimiento doble de este porcentaje.
