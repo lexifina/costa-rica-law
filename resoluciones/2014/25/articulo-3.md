@@ -1,0 +1,1 @@
+Artículo 3º—Conformación de los registros. Los registros electrónicos de compras y ventas de mercancías, así como de servicios, estarán conformados por las compras y las ventas realizadas, gravadas o no, así como los servicios prestados o adquiridos gravados o no, se trate de operaciones en el mercado interno o de importaciones, internaciones o exportaciones.

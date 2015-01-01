@@ -1,0 +1,1 @@
+Artículo 2º—Sujetos pasivos. Todos aquellos sujetos pasivos clasificados como Grandes Contribuyentes Nacionales, sean contribuyentes o declarantes del impuesto general sobre las ventas, deberán llevar electrónicamente, los registros de Compras y Ventas de Mercancías y Servicios, a que alude el artículo 8 de la Ley de Impuesto General sobre las Ventas, y 15 de su Reglamento.
