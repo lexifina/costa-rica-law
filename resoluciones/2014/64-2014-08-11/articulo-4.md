@@ -1,0 +1,1 @@
+Artículo 4°—El incumplimiento de cualquiera de las regulaciones contenidas en las presentes Normas podrá generar la aplicación de los regímenes de responsabilidad establecidos en el ordenamiento jurídico.

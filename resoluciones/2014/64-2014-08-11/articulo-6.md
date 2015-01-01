@@ -1,0 +1,1 @@
+Artículo 6°—Las organizaciones de auditoría y las administraciones deberán diseñar e implantar las medidas y los mecanismos necesarios para poner en práctica lo regulado en esta normativa a partir de su entrada en vigencia.

@@ -1,0 +1,1 @@
+Artículo 5°—La Contraloría General de la República deberá mantener disponible las “Normas Generales de Auditoría para el Sector Público”, así como las regulaciones cuando se utilice la Auditoría de Carácter Especial para la atención de denuncias y la investigación de hechos irregulares en su sitio oficial en Internet http://www.cgr.go.cr.

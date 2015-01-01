@@ -1,0 +1,1 @@
+Artículo 3°—Las “Normas Generales de Auditoría para el Sector Público” son de carácter vinculante para los sujetos señalados en el artículo anterior, por lo que estas Normas deberán prevalecer sobre cualquier disposición en contrario que emitan las auditorías internas y la administración activa en su ámbito de aplicación.

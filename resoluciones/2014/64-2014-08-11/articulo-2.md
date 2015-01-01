@@ -1,0 +1,1 @@
+Artículo 2°—Las “Normas Generales de Auditoría para el Sector Público”, serán aplicables para la Contraloría General de la República, las auditorías internas del sector público, y los profesionales autorizados —de forma unipersonal u organizados por medio de despachos o firmas de auditoría— cuando actúan en labores de auditoría en el sector público.
