@@ -1,0 +1,1 @@
+Artículo 17.—Previsiones presupuestarias para la realización de la Asamblea. El Ministerio de Cultura y Juventud, por medio de la Comisión de Premios Nacionales, deberá hacer la respectiva previsión presupuestaria, a efecto de cubrir la logística necesaria para la realización de la Asamblea Nacional.

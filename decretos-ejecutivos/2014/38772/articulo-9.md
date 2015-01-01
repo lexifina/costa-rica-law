@@ -1,0 +1,1 @@
+Artículo 9º—Exclusiones. Estarán excluidas de ser consideradas para un Premio Nacional las personas extranjeras que se encuentren en el país con un estatus migratorio contrario a las leyes de la República.

@@ -1,0 +1,1 @@
+Artículo 20.—Elección del representante. La elección de los representantes de las asociaciones culturales, para integrar los jurados de los Premios Nacionales de Cultura se hará por mayoría simple (mitad más uno de los miembros presentes).

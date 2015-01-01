@@ -1,0 +1,1 @@
+Artículo 19.—Representación de las asociaciones culturales. En la Asamblea podrán participar un máximo de dos representantes por cada asociación cultural, pero emitirán un solo voto por organización, el cual deberá ser manifestado por su apoderado legal o por quien éste delegue por medio de poder especial.

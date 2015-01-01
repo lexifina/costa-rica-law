@@ -1,0 +1,1 @@
+Artículo 24.—Declaratorias de deserción. Los Premios Nacionales de Cultura, en cualquiera de sus modalidades y expresiones, podrán declararse desiertos, cuando a juicio del respectivo Jurado no haya candidatos idóneos que se hagan merecedores a ellos. La resolución que así lo declare, deberá cumplir con las mismas formalidades establecidas para el fallo que lo otorga.

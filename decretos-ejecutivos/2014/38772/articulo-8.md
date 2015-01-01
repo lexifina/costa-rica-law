@@ -1,0 +1,1 @@
+Artículo 8º—Postulaciones. Cualquier persona, física o jurídica, podrá presentar ante la instancia administradora, el o los nombres de las personas, grupos u organizaciones que consideren candidatos a la premiación, incluyendo el nombre, los datos de contacto –tanto del postulado como del postulante, si no se tratara de una autopostulación- y la debida justificación.

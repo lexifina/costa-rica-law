@@ -1,0 +1,1 @@
+Artículo 6º—Período de valoración de propuestas. Con el fin de permitir a los jurados un período suficiente para la valoración de propuestas y candidatos, los Premios Nacionales de Cultura contemplarán la producción cultural realizada, entre diciembre del año en que se conforman los jurados respectivos y noviembre del siguiente año.
