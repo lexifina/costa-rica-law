@@ -1,0 +1,8 @@
+Artículo 4º—Cobro a nuevos sujetos fiscalizados. Los cobros parciales de sujetos fiscalizados que se inscriban, autoricen o pasen a ser supervisados durante el año, se determinan retrotrayendo el procedimiento indicado en el artículo 2, tomando en consideración lo siguiente:
+a) Cálculo de la proporción de la contribución de cada sujeto fiscalizado:
+Para nuevos sujetos fiscalizados, el monto de los ingresos desde su autorización o inscripción hasta el último día del año se proyectará con base en el promedio de los ingresos que la entidad reporte durante los primeros tres meses completos de operación. Si la inscripción o inicio de la fiscalización ocurre en el mes de octubre o en fecha posterior, no se determinarán cobros parciales, quedando obligada para ese año, únicamente, al pago del cobro final, siguiendo el procedimiento establecido en el artículo 3.
+b) Cálculo del monto a distribuir:
+Se calcula según se indica en el inciso c) del artículo 2.
+c) Cálculo del cobro parcial mensual de cada nuevo sujeto fiscalizado:
+Se calculará según se indica en el inciso d) del artículo 2, utilizando en el denominador de la fórmula el número de meses que faltan para finalizar el año después de los primeros tres meses utilizados para la proyección del ingreso del año. La entidad estará obligada a pagar los cobros parciales a partir del cuarto mes de operación, hasta el mes de noviembre del respectivo año.
+El cálculo de los cobros parciales a nuevos sujetos fiscalizados, no implicará modificaciones a los cobros parciales determinados previamente, de conformidad con las disposiciones del artículo 2 de este reglamento.
