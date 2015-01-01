@@ -1,0 +1,1 @@
+Artículo 2º- Deróguese el Decreto Ejecutivo N° 38643-H de fecha 8 de setiembre del 2014, publicado en La Gaceta número 195 de fecha 10 de octubre del 2014, a partir de la vigencia del presente decreto.
