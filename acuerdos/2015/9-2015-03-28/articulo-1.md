@@ -1,0 +1,3 @@
+COLEGIO DE PROFESIONALES EN CIENCIAS
+POLÍTICAS Y RELACIONES INTERNACIONALES
+El Colegio de Profesionales en Ciencias Políticas y Relaciones Internacionales, domiciliada en Pinares de Curridabat, cédula jurídica N° 3-007-097564, comunica sobre el aumento de la cuota mensual, según el artículo nueve del acuerdo número nueve aprobado en la asamblea general ordinaria del 28 de marzo del 2015. Así mismo en el acuerdo se autoriza a la Junta Directiva aprobar anualmente la indexación de las cuotas a los agremiados con base al índice de inflación a partir del año 2016. Con base en lo anterior, a partir del primero de mayo del presente año, la cuota mensual será de cuatro mil colones.—San José, 15 de abril del 2015.—
