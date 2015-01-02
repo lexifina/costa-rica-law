@@ -1,0 +1,2 @@
+Transitorio III.—Las modificaciones señaladas en los artículos 4.a.3 (reportes de Emisores de Valores), 4.b (reportes de Bolsas de Valores y Centrales de Valores), 4.c.1.ii y 4.c.2 (reporte de Concentración de inversionistas de Fondos de Inversión), rigen a partir de la información con fecha de corte al 31 de marzo del 2015.
+Consulte en el sitio web de la SUGEVAL (www.sugeval. fi.cr) en su sesión de “Normativa/Acuerdos del Superintendente/ Acuerdos aplicados a Todas las entidades”, para acceder al texto del acuerdo original con todas sus reformas y anexos.
