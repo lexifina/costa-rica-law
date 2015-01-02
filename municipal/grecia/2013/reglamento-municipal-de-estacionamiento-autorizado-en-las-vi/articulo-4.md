@@ -1,0 +1,1 @@
+Artículo 4°—De la competencia. La Municipalidad por medio de la Alcaldía será la responsable del funcionamiento, fiscalización, control y administración del sistema de estacionamiento, establecerá las zonas que se destinarán al aparcamiento de vehículos dentro de las vías del Cantón de Grecia.

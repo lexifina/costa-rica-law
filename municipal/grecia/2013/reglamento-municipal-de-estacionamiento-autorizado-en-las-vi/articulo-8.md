@@ -1,0 +1,1 @@
+Artículo 8°—Demarcación de zonas. Tanto en la zona céntrica como en la no céntrica, se podrán demarcar áreas de estacionamiento de vehículos en todas aquellas vías que por sus medidas y condiciones de tránsito, sean aptas para ese fin.

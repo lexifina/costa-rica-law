@@ -1,0 +1,2 @@
+Artículo 12.—Precio público. La tarifa que deberá pagarse por la utilización de las áreas de estacionamiento, serán aquellos precios públicos fijados por la Municipalidad y publicadas en el Diario Oficial La Gaceta, las cuales deberán revisarse en forma anual.
+En ningún caso, este precio no podrá ser inferior al setenta y cinco por ciento del precio que cobren los estacionamientos privados por servicios similares según establecido el artículo 2° de la Ley N° 6852.

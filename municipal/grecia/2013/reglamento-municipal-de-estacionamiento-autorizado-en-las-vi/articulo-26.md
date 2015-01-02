@@ -1,0 +1,1 @@
+Artículo 26.—De los Parquimetristas. Corresponderá a los parquimetristas, vigilar por el adecuado cumplimiento de las disposiciones de este Reglamento y reportarlos vehículos que infrinjan la ley, así como dar seguimiento a las sanciones impuestas.
