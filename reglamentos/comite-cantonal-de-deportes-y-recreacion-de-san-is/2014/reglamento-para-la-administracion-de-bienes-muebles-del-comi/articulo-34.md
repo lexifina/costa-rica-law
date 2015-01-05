@@ -1,0 +1,1 @@
+Artículo 34.—De existir equipo dañado en una dependencia u organización, esta deberá solicitar por escrito al (la) Administrador (a) General, los servicios de reparación, junto con el activo a reparar. Dicho (a) funcionario (a), en caso de que considere procedente tal solicitud, llevará a cabo los trámites necesarios para contratar lo que respecta a la reparación del bien.

@@ -1,0 +1,1 @@
+Artículo 30.—Cuando un usuario (a) traslade un activo al Comité por estar descompuesto o cuando ya no lo requiere, debe obtener la firma del (la) Administrador (a) General (a) en el formulario correspondiente, para quedar relevado de su responsabilidad sobre el bien.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De la reparación y desecho de activos
+Artículo 33.—En los casos de activos que deban ser desechados, el (la) Administrador (a) General, remitirá a la Proveeduría de la Municipalidad, un oficio del técnico o funcionario que de fe que el artículo o bien está dañado y que no tiene reparación, o que si la tiene, su costo no es conveniente, por garantía, vida útil o relación con el precio un producto nuevo, para efectos de que ese Departamento lleve a cabo el procedimiento municipal utilizado en estos casos. Aceptada esta solicitud por parte de la Proveeduría, deberá el (la) Administrador (a) General realizar los trámites de eliminación de los controles internos, pasándolo a un control de bienes dañados y para desecho.

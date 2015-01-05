@@ -1,0 +1,1 @@
+Artículo 29.—En caso de que se produzca la desaparición de bienes por casos fortuitos como robo e incendio, los usuarios deberán comunicar al Comité, el detalle de los bienes afectados, para que el (la) Administrador (a) General proceda a realizar ante la Institución aseguradora los reclamos pertinentes y los registros correspondientes.

@@ -1,0 +1,1 @@
+Artículo 20.—El (la) Administrador (a) General deberá incluir y excluir los activos en la póliza de aseguramiento que corresponda. Corresponde a al Comité, incluir los montos suficientes en los documentos presupuestarios para la cancelación de las pólizas, el registro y el control de pagos de las pólizas.

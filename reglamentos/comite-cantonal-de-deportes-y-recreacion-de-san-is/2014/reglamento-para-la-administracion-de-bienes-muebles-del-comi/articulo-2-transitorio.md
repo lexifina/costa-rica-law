@@ -1,0 +1,1 @@
+Transitorio II.—El (la) Administrador (a) General deberá proceder al levantamiento del primer inventario de mobiliario y equipo en un plazo máximo de seis meses a partir de la entrada en vigencia del presente reglamento. Para ello, contará con la asesoría del Departamento de Proveeduría de la Municipalidad y el Departamento de Contabilidad.

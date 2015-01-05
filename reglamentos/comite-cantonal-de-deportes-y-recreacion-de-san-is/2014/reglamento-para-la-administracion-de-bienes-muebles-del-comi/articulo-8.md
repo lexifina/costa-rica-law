@@ -1,0 +1,1 @@
+Artículo 8º—El (la) usuario (a) asume la responsabilidad de hacer un uso adecuado de esos bienes y velar porque se mantengan en buen estado. La responsabilidad derivada de cualquier daño que se cause a estos por un uso inadecuado o su perdida, se regirá por lo dispuesto en el capítulo V del presente reglamento.

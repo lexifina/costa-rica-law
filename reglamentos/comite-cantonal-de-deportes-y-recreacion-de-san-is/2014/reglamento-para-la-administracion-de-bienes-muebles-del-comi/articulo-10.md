@@ -1,0 +1,1 @@
+Artículo 10.—El (la) Administrador (a) General podrá en todo momento solicitar a los usuarios, la revisión de los activos para efectos de determinar el estado en que se mantienen y si se está llevando a cabo un uso adecuado y provechoso de los mismos.

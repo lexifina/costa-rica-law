@@ -1,0 +1,1 @@
+Artículo 35.—Cuando los bienes deben salir temporalmente de las instalaciones del Comité para llevar a cabo la reparación, el (la) Administrador (a) General coordinará la respectiva salida, para lo cual deberá llenar el formulario “Salida de Activo para Reparación.”

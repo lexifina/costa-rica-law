@@ -1,0 +1,1 @@
+Artículo 15.—El (la) Administrador (a) General del Comité, una vez al año, entre los meses de octubre y diciembre, efectuará, un inventario físico para verificar que los bienes asignados a cada Departamento sean realmente los existentes y que se encuentren en adecuadas condiciones de uso.

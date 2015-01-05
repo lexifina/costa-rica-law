@@ -1,0 +1,1 @@
+Artículo 36.—Reparado el mobiliario y/o equipo, el (la) Administrador (a) General lo entregará al funcionario (a) interesado (a) o al usuario (a). Por su parte el usuario (a) firmará el original de la factura dando por recibido el equipo.

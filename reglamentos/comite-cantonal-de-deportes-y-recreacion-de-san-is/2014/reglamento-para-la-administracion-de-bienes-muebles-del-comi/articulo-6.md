@@ -1,0 +1,1 @@
+Artículo 6º—Previo acuerdo favorable de la Junta Directiva del Comité, el (la) Administrador (a) entregará los activos mediante el formulario “Entrega de Activos” o “Traslado de Activos”, según corresponda, lo cual deberá ser registrado en el inventario de activos que lleva ese Departamento.

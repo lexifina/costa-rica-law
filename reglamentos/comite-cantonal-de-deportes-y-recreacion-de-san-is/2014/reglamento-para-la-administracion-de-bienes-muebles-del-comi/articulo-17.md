@@ -1,0 +1,1 @@
+Artículo 17.—El (la) Administrador (a) General es la encargado (a) de realizar la clasificación y registro de los bienes según el departamento u usuario al que se le asigne y la clasificación existente, conforme con los principios de Contabilidad Generalmente Aceptados.

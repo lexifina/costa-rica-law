@@ -1,0 +1,1 @@
+Artículo 5º—Antes de comprar un activo, el (la) Administrador (a) General del Comité, deberá analizar la posibilidad de asignar mobiliario y equipo en desuso en otras dependencias, asegurándose que se elabore y firme el formulario de traslado de activos.

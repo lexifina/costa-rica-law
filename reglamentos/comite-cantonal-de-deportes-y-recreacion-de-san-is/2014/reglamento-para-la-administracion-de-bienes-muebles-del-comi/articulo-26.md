@@ -1,0 +1,1 @@
+Artículo 26.—Los usuarios(as), a quienes se les haya asignado los bienes, son los responsables de que éstos estén ubicados en el lugar correspondiente y deberán responder, ante el Comité, por aquellos que no sean localizados en su sitio.
