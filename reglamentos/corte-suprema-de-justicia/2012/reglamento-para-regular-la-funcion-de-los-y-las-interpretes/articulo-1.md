@@ -4,10 +4,11 @@ ASUNTO: Reglamento para regular la función de las y los intérpretes, traductor
 A TODAS LAS SERVIDORAS Y SERVIDORES JUDICIALES
 SE LES HACE SABER QUE:
 La Corte Plena, en sesión Nº 10-12 celebrada el 12 de marzo del 2012, artículo XL, acordó aprobar el siguiente reglamento que literalmente dice:
-“REGLAMENTO PARA REGULAR LA FUNCIÓN
+"REGLAMENTO PARA REGULAR LA FUNCIÓN
 DE LAS Y LOS INTÉRPRETES, TRADUCTORES,
 PERITOS Y EJECUTORES EN EL PODER
 JUDICIAL
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto en forma íntegra mediante sesión N° 47-14 del 6 de octubre del 2014, publicado en el Boletín Judicial N° 35 del 19 de febrero del 2015, mediante circular N° 2-2015 del 6 de enero del 2015, por lo que se transcribe a continuación:)
 CAPÍTULO I
-Disposiciones generales
+DISPOSICIONES GENERALES
 Artículo 1º—Ámbito de aplicación. El presente reglamento regula la labor que realizan las y los intérpretes, traductores, peritos y ejecutores en el Poder Judicial, como auxiliares de la Administración de Justicia.

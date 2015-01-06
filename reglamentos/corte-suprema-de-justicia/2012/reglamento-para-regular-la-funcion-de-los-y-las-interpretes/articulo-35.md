@@ -1,1 +1,2 @@
-Artículo 35.—Aplicación del procedimiento y sanciones a las personas curadoras procesales. El procedimiento y las sanciones señaladas en este Reglamento se aplicarán, en lo que corresponda, a las personas curadoras procesales incluidas en la Lista Oficial, cuando sean denunciadas por alguna falta en el ejercicio de sus funciones.
+Artículo 35.—Aplicación del procedimiento y sanciones a las personas curadoras procesales.
+El procedimiento y las sanciones señaladas en este Reglamento se aplicarán, en lo que corresponda, a las personas curadoras procesales incluidas en la Lista Oficial, cuando sean denunciadas por alguna falta en el ejercicio de sus funciones.

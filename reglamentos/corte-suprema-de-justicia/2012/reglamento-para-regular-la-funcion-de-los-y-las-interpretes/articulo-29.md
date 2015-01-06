@@ -1,6 +1,5 @@
 Artículo 29.—Requisitos del acta de embargo. El acta de embargo obligatoriamente deberá confeccionarse en el lugar donde se encuentre el bien o bienes a embargar, con letra legible y buena ortografía, en forma clara, en perfecto estado de limpieza y deberá contener al menos los siguientes datos:
-- Título con la denominación “ACTA DE EMBARGO PRACTICADO”.
-- Descripción del sitio donde se practicó el embargo.
+- Título con la denominación “Acta de embargo practicado”. Descripción del sitio donde se practicó el embargo.
 - Indicación de la fecha y hora en que se practicó el embargo.
 - Datos del Auxiliar Ejecutor y la presencia de dos testigos, especificando sus nombres y calidades.
 - Indicación del despacho que ordenó la práctica del embargo.
@@ -9,5 +8,5 @@ Artículo 29.—Requisitos del acta de embargo. El acta de embargo obligatoriame
 - Designación del depositario judicial de los bienes conforme a lo dispuesto por la ley, con la advertencia de cumplir con las obligaciones y responsabilidades inherentes a dicho cargo. En ese mismo acto, el Depositario deberá aceptar el cargo y ser debidamente juramentado debiendo tomar posesión de los bienes embargados.
 - Indicación de que se procedió a la lectura del acta a los presentes.
 - Firma del ejecutor o ejecutora, las o los testigos y el depositario judicial, si lo hubiere.
-Si no se pudiere practicar el embargo por razones ajenas a la voluntad el o la Auxiliar Ejecutor, deberá consignarlo, indicando las razones que se lo impidieron.
-Dentro de los tres días hábiles siguientes de practicado el embargo, el ejecutor o ejecutora deberá presentar al despacho jurisdiccional la respectiva acta.
+- Si no se pudiere practicar el embargo por razones ajenas a la voluntad el o la Auxiliar Ejecutor, deberá consignarlo, indicando las razones que se lo impidieron.
+- Dentro de los tres días hábiles siguientes de practicado el embargo, el ejecutor o ejecutora deberá presentar al despacho jurisdiccional la respectiva acta.
