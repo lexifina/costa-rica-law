@@ -1,0 +1,3 @@
+Artículo 12.—Vigencia. La licencia tendrá una vigencia de cinco años renovables por períodos iguales siempre y cuando la solicitud de prórroga se presente antes de cada vencimiento. Al momento de la prórroga el patentado deberá cumplir con todos los requisitos legales establecidos, respetándose situaciones consolidadas en ubicación geográfica.
+En la solicitud de prórroga se deberá adjuntar una constancia de que se encuentra al día en sus obligaciones obrero-patronales. Además, al momento de solicitar la prórroga el patentado deberá estar al día en sus obligaciones con la Municipalidad.
+El solicitante estará exento de aportar los documentos aquí mencionados cuando la información esté disponible de forma remota por parte de la Municipalidad.

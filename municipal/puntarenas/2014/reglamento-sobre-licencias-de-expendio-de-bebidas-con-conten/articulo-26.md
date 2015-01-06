@@ -1,0 +1,1 @@
+Artículo 26.—Cuando se autoriza la apertura de un negocio con licencia A, B y C., no podrá expender la bebida con contenido alcohólico por medio de ventanas o acceso que den a la calle pública. En caso contrario recibirá sanción de treinta días multa, sin perjuicio de la suspensión de la licencia.

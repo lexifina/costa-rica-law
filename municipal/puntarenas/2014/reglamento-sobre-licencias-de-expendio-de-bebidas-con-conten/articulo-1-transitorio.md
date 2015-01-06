@@ -1,0 +1,5 @@
+CAPÍTULO VII
+Transitorio I
+Los titulares de las licencias de licores adquiridas mediante la Ley Nº 10, Ley sobre Venta de Licores, de 07 de octubre de 1936, de conformidad con el Voto Constitucional Res. 11499-2013; mantendrán el derecho de transmitirla a un tercero en los términos del derogado ordinal 17 de la ley N 10 hasta que expire su plazo bienal de vigencia y deba ser renovada; en el caso de la Municipalidad de Puntarenas dicho plazo se computa a partir de la publicación de la ley N 9047, publicada en fecha 08 de agosto del año 2012; una vez vencido el plazo bienal, quien sea titular de dicha licencia no podrá venderla, canjearla, arrendarla, transferirla, traspasarla ni enajenarla en forma alguna, ya que deberá ajustarse a todas y cada una de las disposiciones contenidas en la ley de licores N° 9047.
+Aprobado en la Sesión Ordinaria número N°409 del Concejo Municipal del Cantón de Central de Puntarenas, el 20 de octubre 2014, en su artículo 7° inciso B.
+El anterior reglamento, entra en vigencia a partir de su publicación.”
