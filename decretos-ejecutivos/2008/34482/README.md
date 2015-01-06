@@ -14,3 +14,4 @@ Reglamento para el registro, clasificación, importación y control de equipo y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-25 | la propia norma |
+| 2 | 2015-01-06 | Decreto Ejecutivo 38869 (2015-01-06) |
