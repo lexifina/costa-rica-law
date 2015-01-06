@@ -1,1 +1,0 @@
-Artículo 8º—Gastos de representación. Los gastos de representación al exterior, del Presidente Ejecutivo o Presidenta Ejecutiva, así como de quienes integran la Junta Directiva, deberán corresponder a misiones oficiales y requerirán autorización mediante acuerdo de la Junta Directiva.

@@ -1,1 +1,0 @@
-Artículo 25.—Informe sobre dietas. La Secretaría Técnica de la Junta Directiva, informará mensualmente a las Unidades de Recursos Financieros y Humanos con copia a la Gerencia, sobre el número de sesiones que asistieron, con el fin de que se proceda al pago de las dietas correspondientes.

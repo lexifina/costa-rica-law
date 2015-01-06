@@ -1,3 +1,0 @@
-Artículo 34.—Agotamiento de la vía administrativa. Para dictar un acto que agote la vía administrativa será indispensable consultar previamente a la Asesoría Legal del INA conforme con lo establecido en el artículo 356 de la Ley General de Administración Pública.
-El acto que agota la vía administrativa deberá hacer mención expresa de la consulta y de la opinión del órgano consultado, así como, si fuera el caso, de las razones del Órgano Directivo por las cuales se aparta del dictamen.
-La consulta deberá evacuarse dentro de los seis días siguientes a su recibo, sin suspensión del término para resolver.

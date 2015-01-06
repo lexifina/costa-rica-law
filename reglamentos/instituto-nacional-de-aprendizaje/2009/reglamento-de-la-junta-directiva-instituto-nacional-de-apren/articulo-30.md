@@ -1,5 +1,0 @@
-CAPÍTULO IX
-De la Auditoría Interna
-Artículo 30.—Órgano auxiliar. La persona Auditora Interna o en su ausencia temporal la Subauditora Interna, asistirá a las sesiones ordinarias y extraordinarias de la Junta Directiva cuando se le convoque para asesorar en materia de su competencia, o cuando lo estime pertinente para el cabal cumplimiento de sus funciones.
-Su intervención tendrá carácter fundamental para la fiscalización, con independencia y objetivad, sobre la legalidad y la eficacia de los controles internos y del manejo de los recursos Institucionales, así como de los demás acuerdos y asuntos que dicte la Junta Directiva.
-Será un órgano de apoyo para la Junta Directiva dentro del marco de la independencia que rige su accionar. Sus recomendaciones, asesorías y advertencia deberán estar direccionadas a reforzar la gestión, por lo tanto deberá intervenir en los asuntos respecto de los cuales se le solicite criterio y sus opiniones podrán constar expresamente en el acta correspondiente a petición del mismo.

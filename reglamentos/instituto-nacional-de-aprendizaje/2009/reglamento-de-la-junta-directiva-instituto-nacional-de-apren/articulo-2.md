@@ -1,9 +1,0 @@
-CAPÍTULO II
-De la Junta Directiva y sus integrantes
-Artículo 2º—Integración y nombramiento. La Junta Directiva estará integrada por nueve personas de la siguiente manera:
-a. Un Presidente Ejecutivo o Presidenta Ejecutiva de reconocida experiencia y conocimientos en el campo de la actividad de la Institución. Esta persona será designada por el Consejo de Gobierno, cuya gestión se regirá por las siguientes normas:
-1. Será la persona funcionaria de mayor jerarquía para efectos de gobierno de la Institución, ostentando su representación legal, y le corresponderá fundamentalmente velar porque las decisiones tomadas por la Junta Directiva se ejecuten, así como coordinar la acción de la entidad cuya Junta preside, con la de las demás instituciones del Estado. Asimismo, asumirá las demás funciones que por ley le están reservadas a quien preside la Junta Directiva así como las otras que le asigne la propia Junta;
-2. Será una persona funcionaria de tiempo completo y de dedicación exclusiva; consecuentemente, no podrá desempeñar ningún otro cargo público, ni ejercer profesiones liberales;
-3. Podrá ser removida libremente por el Consejo de Gobierno, en cuyo caso tendrá derecho a la indemnización laboral que le corresponda por el tiempo servido en el cargo. Para la determinación de esa indemnización, se seguirán las reglas que fijan los artículos 28 y 29 del Código de Trabajo, con las limitaciones en cuanto al monto que ese articulado determina.
-b. Los Ministros o Ministras de Trabajo y Seguridad Social y de Educación Pública, ejercerán el cargo en calidad de integrantes ex oficio. Los Viceministros o Viceministras podrán suplir al titular.
-c. Tres representantes del sector empresarial, y tres representantes del sector laboral, de nombramiento del Consejo de Gobierno.

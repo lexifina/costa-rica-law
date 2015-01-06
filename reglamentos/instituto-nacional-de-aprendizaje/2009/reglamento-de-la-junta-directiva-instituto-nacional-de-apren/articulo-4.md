@@ -1,4 +1,0 @@
-Artículo 4º—De los nombramientos. A efecto de nombrar a quienes representan el sector empresarial y laboral, que señala el inciso c del artículo 2 del presente Reglamento, se seguirá el siguiente procedimiento:
-a. En relación con el sector empresarial, la Unión de Cámaras Empresariales, presentará una nómina de nueve personas candidatas, ante el Consejo de Gobierno, quien procederá a nombrar a tres de ellas, las cuales representarán los tres sectores económicos del país.
-b. En cuanto al sector laboral, serán las organizaciones más representativas de la actividad sindical, cooperativa y solidarista del país, quienes presentarán una terna ante el Consejo de Gobierno, con el fin de que se nombre una persona representante por cada uno de los sectores sociales.
-c. Quienes representan al sector empresarial y laboral permanecerán en sus cargos por todo el período, salvo si concurriera alguna de las causales dispuestas en el artículo 3 de este Reglamento.

@@ -1,2 +1,0 @@
-Artículo 12.—Quien preside. El Presidente Ejecutivo o Presidenta Ejecutiva presidirá las sesiones de la Junta Directiva, y en su ausencia temporal será sustituido por la persona a cargo de la Vicepresidencia, electa por mayoría absoluta entre sus integrantes, que durará un año en sus funciones, pudiendo ser reelecta.
-Si ambas personas estuvieren ausentes temporalmente, se nombrará un Presidente o Presidenta ad hoc, en el seno de la Junta Directiva.

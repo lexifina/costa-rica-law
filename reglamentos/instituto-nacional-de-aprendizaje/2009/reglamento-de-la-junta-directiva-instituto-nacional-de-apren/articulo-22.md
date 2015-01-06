@@ -1,1 +1,0 @@
-Artículo 22.—De la abstención y recusación. Las personas integrantes de la Junta Directiva, se abstendrán y podrán ser recusadas por los motivos que establece el artículo 230 y siguientes y concordantes de la Ley General de la Administración Pública, así como la Ley Orgánica del Poder Judicial y demás normativa vigente en la materia.

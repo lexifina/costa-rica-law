@@ -1,1 +1,0 @@
-Artículo 11.—Convocatoria a sesiones extraordinarias. Las sesiones extraordinarias serán convocadas por el Presidente Ejecutivo o Presidenta Ejecutiva de oficio o a solicitud de cuatro integrantes. En caso de ausencia temporal del Presidente Ejecutivo o Presidenta Ejecutiva, la convocatoria la hará la Gerencia General del INA.
