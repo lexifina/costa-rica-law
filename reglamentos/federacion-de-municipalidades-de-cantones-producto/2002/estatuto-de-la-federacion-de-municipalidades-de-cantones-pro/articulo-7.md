@@ -1,2 +1,2 @@
 Artículo 7º—De la Asamblea General. La Asamblea General estará compuesta por tres representantes de cada Municipalidad, que serán elegidos de los regidores propietarios o suplentes y síndicos o sindicas de sus respectivas Municipalidades, de estos dos, uno deberá ser propietario y el otro suplente del Concejo Intermunicipal. El tercer representante será el Alcalde, los regidores serán nombrados por sus respectivos Concejos Municipales por un período de 4 años, pudiendo ser reelectos.
-(Así reformado mediante sesión extraordinaria N° 1 del 18 de febrero del 2005)
+(Así reformado mediante publicación en La Gaceta N° 14 del 21 de enero del 2015)

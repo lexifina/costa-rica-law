@@ -17,3 +17,4 @@ Estatuto de la Federación de Municipalidades de cantones productores de banano 
 | 2 | 2005-02-18 | Reglamento 1 (2005-02-18) |
 | 3 | 2012-07-21 | Reglamento 1 (2012-07-21) |
 | 4 | 2013-01-29 | Reglamento 0 (2013-01-29) |
+| 5 | 2015-01-06 | Reglamento 0 (2015-01-06) |
