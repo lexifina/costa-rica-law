@@ -1,0 +1,6 @@
+Artículo 7º—Conformación de la Comisión Especial Calificadora para el estudio, otorgamiento y compra de implementos o ayudas técnicas.
+A) El otorgamiento de estos implementos o ayudas técnicas quedará estipulado en este reglamento y bajo la dirección de una Comisión Especial calificadora integrada por: Un representante de la Comisión Municipal de Accesibilidad ( COMAD), un regidor (a) en calidad de representante del Concejo Municipal_, un representante de la Caja Costarricense del Seguro Social (CCSS) un representante del Consejo Nacional de Rehabilitación, (CNR) un representante de la Comisión de Cuidados Paliativos del Hospital Monseñor Sanabria, un representante de la Comisión de Lucha contra el Cáncer y la Alcaldía Municipal.
+B) Dicha conformación lo hará el Concejo Municipal mediante su Presidente (a) Municipal, para lo cual se coordinará y se les solicitará de forma oportuna a los jerarcas institucionales correspondientes, en éste caso de la CCSS y el Consejo Nacional de Rehabilitación para que nombren a sus representantes, asimismo a las Comisiones de Cuidados Paliativos .Lucha Contra el Cáncer y la COMAD.
+C) El o la representante del Concejo Municipal será potestad del Concejo Municipal mediante el nombramiento de la Presidencia.
+D)El Alcalde o Alcaldesa en ejercicio
+Formará parte de la Comisión Especial

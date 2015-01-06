@@ -1,0 +1,1 @@
+Artículo 2º—Siendo que de conformidad con el artículo 13 del Código Municipal, le corresponde al Concejo Municipal fijar políticas y prioridades en cuanto al desarrollo del municipio, deberá este Concejo nombrar una comisión especial y calificadora que permiten clasificar a los beneficiarios de los implementos médicos o ayudas técnicas requeridas.

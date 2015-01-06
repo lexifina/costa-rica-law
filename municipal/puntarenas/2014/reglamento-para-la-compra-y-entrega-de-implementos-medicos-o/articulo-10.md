@@ -1,0 +1,2 @@
+Artículo 10.—Disposiciones de carácter financiero
+Las disposiciones que tome la Comisión deben darse dentro de los límites presupuestarios de la ley 8461. Las ayudas económicas reglamentadas en la presente norma podrán ser aprobadas únicamente cuando exista la disponibilidad presupuestaria correspondiente. La Municipalidad no podrá aprobar ayudas que no cuenten con el respaldo presupuestario comprobado.
