@@ -1,0 +1,7 @@
+INSTITUTO NACIONAL DE APRENDIZAJE
+En la sesión 658 la junta directiva, acordó aprobar el reglamento de la junta directiva del INA, según consta en el acta de esa sesión, artículo segundo, para que en adelante diga así:
+REGLAMENTO DE LA JUNTA DIRECTIVA
+INSTITUTO NACIONAL DE APRENDIZAJE
+CAPÍTULO I
+Disposición general
+Artículo 1º—Campo de aplicación. La presente Reforma Integral al Reglamento de la Junta Directiva del Instituto Nacional de Aprendizaje, publicado en La Gaceta 201 del viernes 16 de octubre 2009, constituye el ordenamiento básico que norma su funcionamiento. Encuentra su justificación en la necesidad de adaptar dicha normativa reglamentaria a importantes reformas de la legislación costarricense en materia de control interno, que han ampliado la responsabilidad de los órganos colegiados. Por otra parte, busca armonizar, en un afán hermenéutico, las distintas normas jurídicas que involucran las competencias y la organización de las Juntas Directivas, como son las normas conducentes incorporadas en la Ley Orgánica del Instituto Nacional de Aprendizaje, el Reglamento a la Ley Orgánica del Instituto Nacional de Aprendizaje, la Ley General de Control Interno, y la Ley General de la Administración Pública y la Ley de Presidencias Ejecutivas. De igual manera, la presente reforma integral recoge jurisprudencia de la Procuraduría General de la República en punto al funcionamiento de los órganos colegiados.

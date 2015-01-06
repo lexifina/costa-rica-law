@@ -1,0 +1,1 @@
+Artículo 4º—De los nombramientos. A efecto de nombrar a quienes representan el sector empresarial y laboral, que señala el inciso c del artículo 2 del presente Reglamento, se seguirá el procedimiento, desarrollado en los artículos 12 y 13 del Reglamento a la Ley Orgánica del Instituto Nacional de Aprendizaje N. 15135.

@@ -1,0 +1,1 @@
+Artículo 20.—Votos disidentes. En caso de que sea emitido un voto contrario al de mayoría, podrá hacer constar el mismo en el acta, junto con los motivos que lo justifiquen, quedando en tal caso exento de la responsabilidad que pudiera derivarse de los acuerdos. Para los efectos anteriores, deberá además firmarse el acta correspondiente.

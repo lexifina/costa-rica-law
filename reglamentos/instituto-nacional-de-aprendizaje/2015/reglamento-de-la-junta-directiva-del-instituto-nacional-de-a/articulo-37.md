@@ -1,0 +1,1 @@
+Artículo 37.—Modificaciones al Reglamento. Las reformas del presente Reglamento, se harán por el voto de las dos terceras partes de quienes integran la Junta Directiva, con observación de las formalidades dispuestas en la Ley General de la Administración Pública.
