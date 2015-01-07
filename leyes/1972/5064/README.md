@@ -1,6 +1,6 @@
 # Ley de Titulación de Tierras
 
-Ley N° 5064 del 1972-08-22. SINALEVI, ficha 1896: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1896&param2=2020&param3=1>.
+Ley N° 5064 del 1972-08-22. SINALEVI, ficha 1896: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=1896&param2=100986&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1982-03-29 | SINALEVI (1 normas) | 1972-08-22 |
 | 2 de 3 | 1982-03-29 | Sala Constitucional, resolución 5064 (1972-08-22) | 1972-08-22 |
+| 3 de 3 | 2015-01-07 | Sala Constitucional, resolución 98 (2015-01-07) | 2015-01-07 |
