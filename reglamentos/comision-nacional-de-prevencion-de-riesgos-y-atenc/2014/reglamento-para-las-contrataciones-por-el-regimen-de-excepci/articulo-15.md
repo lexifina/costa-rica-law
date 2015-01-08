@@ -1,2 +1,1 @@
-Artículo 15.—Proceso de Logística. Estructura. Este proceso tendrá a cargo la siguiente actividad:
-- Almacenamiento y distribución.
+Artículo 15.—(Eliminado mediante acuerdo N| JD CNE 183-07-14 y publicado en La Gaceta N° 5 del 8 de enero del 2015)

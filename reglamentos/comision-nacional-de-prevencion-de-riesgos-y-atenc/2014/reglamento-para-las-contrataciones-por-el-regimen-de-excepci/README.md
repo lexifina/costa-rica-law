@@ -14,3 +14,4 @@ Reglamento para las contrataciones por el Régimen de Excepción y funcionamient
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-02 | la propia norma |
+| 2 | 2015-01-08 | Reglamento 0 (2015-01-08) |
