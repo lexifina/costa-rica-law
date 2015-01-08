@@ -13,3 +13,4 @@ Cumplimiento del Protocolo para el trámite de vehículos decomisados por entida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-29 | la propia norma |
+| 2 | 2015-01-08 | Circular 7 (2015-01-08) |
