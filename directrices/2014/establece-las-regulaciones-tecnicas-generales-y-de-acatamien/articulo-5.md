@@ -1,0 +1,1 @@
+5. Formato del Tomo. Las actas deben conformarse en un libro debidamente encuadernado, entendiéndose por esta acción el efecto de unir las hojas mediante cocido y pegado y con sus respectivas cubiertas.

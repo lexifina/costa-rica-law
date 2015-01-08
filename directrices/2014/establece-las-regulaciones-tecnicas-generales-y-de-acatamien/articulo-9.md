@@ -1,0 +1,1 @@
+9. Tinta y Papel. Con relación a la calidad de papel a utilizar, así como la tinta se debe aplicar lo estipulado en la Directriz General para la producción de documentos en soporte papel de conservación permanente, publicado en La Gaceta N° 226 del 22 de noviembre de 2010.

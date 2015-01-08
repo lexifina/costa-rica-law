@@ -1,0 +1,1 @@
+6. Rotulación. Cada libro en su lomo debe indicar el número de tomo, rango de actas que contempla y fechas extremas. En su carátula se debe rotular el nombre de la Municipalidad, escudo, nombre de la oficina productora y periodo de la corporación que abarca.

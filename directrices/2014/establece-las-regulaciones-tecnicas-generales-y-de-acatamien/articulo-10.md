@@ -1,0 +1,1 @@
+10. Legalización. Según lo dispuesto en el Artículo 22, inciso e, de la Ley General de Control Interno le compete a la Auditoria Interna autorizar, mediante razón de apertura los libros de actas, entre otros, que deban llevar los órganos sujetos a su competencia institucional, que son necesarios para el fortalecimiento del sistema de control interno.

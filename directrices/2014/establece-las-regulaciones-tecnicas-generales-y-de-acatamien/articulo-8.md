@@ -1,0 +1,8 @@
+8. Numeración y sellos. Cada folio debe ir numerado en el borde superior derecho, iniciando con el número 001 consecutivamente hasta el número del último folio. En el mismo borde debe aparecer, de forma centrada, el escudo y el nombre de la municipalidad.
+Sobre el número de folio, en el mismo margen derecho a un nivel superior se colocará el sello de la Auditoria Interna o la Contraloría General de la República.
+En el borde superior izquierdo se indicará un encabezado el número de acta y la fecha. Lo anterior con el fin de evitar que habiéndose despegado una o varias páginas de un documento pueda llegar a confundirse o resulte imposible identificar su procedencia.
+Al margen izquierdo de cada folio se debe indicar el número de línea o renglón de forma consecutiva a partir de 1 hasta donde lo permita el tamaño de la hoja. Esto facilitará la anotación de correcciones en caso de ser necesario.
+Debe escogerse la opción de interlineado exacto en 23 puntos aproximadamente, de manera que cada página contenga exactamente 30 líneas o renglones.
+Se utilizará la fuente en tamaño 12, tipo Times New Roman o Arial, preferiblemente, evitando el uso de letras poco legibles o informales. Se debe utilizar siempre un mismo tipo de letra, de manera que cada página contenga treinta renglones.
+Además, si al finalizar un párrafo aún queda espacio para completar la línea o renglón, éste deberá llenarse empleando una línea como se muestra a continuación:
+…Presidente del Comité Institucional de Selección y Eliminación de Documentos de la Municipalidad y Encargado del Archivo Central”-------------------------------------------------Debe considerarse dejar un espacio prudente, en los márgenes para que faciliten su proceso de empaste y posterior manipulación.
