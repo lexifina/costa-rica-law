@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE SANTA BÁRBARA
+El Concejo Municipal de la Municipalidad de Santa Bárbara de Heredia, mediante el acuerdo Nº 6314-2014, artículo Nº 5, sesión ordinaria Nº 237, celebrada el día 14 de noviembre de 2014, procede aprobar por unanimidad la moción presentada por las regidoras Venus Gutiérrez Alfaro y Karen Fonseca Sánchez:
+SE MOCIONA PARA QUE SE ACUERDE:
+1°—Hasta que sea elaborada y puesta en práctica en la Municipalidad, la plataforma de valores que referencia el artículo 2 de la Ley de Regulaciones Especiales sobre la aplicación de la ley Nº 7509, Ley de Impuesto sobre Bienes Inmuebles, de 9 de mayo de 1995, y sus reformas, para terrenos de uso agropecuario, autorizar a la Administración para que pueda incrementar los valores existentes de las fincas de uso agropecuario hasta en un máximo de un veinte por ciento (20%) en las declaraciones realizadas de conformidad con lo dispuesto en el artículo 3 de la Ley Nº 9071.
