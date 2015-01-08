@@ -1,0 +1,2 @@
+Artículo 16
+Si durante el período en que se realiza la evaluación el servidor se encuentra haciendo uso de licencia médica, becado fuera de la Universidad, de vacaciones u otra circunstancia, en un período no mayor a seis meses, el instrumento igualmente será aplicado y su resultado se le notificará al servidor a su regreso para que ejerza su derecho de impugnación en caso de considerarlo necesario, si el período ha sido mayor al tiempo estipulado, la evaluación no será aplicada.

@@ -1,0 +1,2 @@
+Artículo 17
+En el expediente del desempeño que deberá llevar cada jefatura y en el expediente personal del servidor se registrarán todos los documentos relacionados con su desempeño, tales como: notificaciones, cartas de reconocimiento, llamadas de atención y cualquier otro incidente significativo relacionado con el trabajo realizado por el servidor. Los documentos originales se consignarán en el expediente personal, mientras que en el expediente de desempeño de cada colaborador, se mantendrá una copia actualizada de los mismos.

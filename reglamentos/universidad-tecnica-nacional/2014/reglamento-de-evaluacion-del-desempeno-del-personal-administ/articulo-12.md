@@ -1,0 +1,2 @@
+Artículo 12
+La evaluación del desempeño del servidor durante el período de prueba, debe realizarse durante los cinco días hábiles antes de concluir el plazo de los tres meses y con base en los compromisos fijados al momento de la vinculación laboral del servidor. Si el servidor obtiene la calificación de regular o deficiente será separado de la Universidad sin responsabilidad alguna, por lo que no podrá emitirse el nombramiento en propiedad.
