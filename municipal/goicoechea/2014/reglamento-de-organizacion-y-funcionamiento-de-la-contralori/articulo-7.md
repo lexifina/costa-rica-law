@@ -1,0 +1,1 @@
+Artículo 7º—Atención de quejas y denuncias. Establecerá un sistema de control, seguimiento, resolución y respuesta oportuna de las inconformidades, denuncias o sugerencias presentadas por los(as) usuarios(as).

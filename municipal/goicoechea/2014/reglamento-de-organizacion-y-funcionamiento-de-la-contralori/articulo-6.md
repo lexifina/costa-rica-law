@@ -1,0 +1,1 @@
+Artículo 6º—Mejoramiento de la Calidad de Servicios Municipales. Velará para que se desarrollen e implementen procesos de mejoramiento continuo e innovación que incrementen de forma progresiva, permanente y constante la calidad de los servicios.

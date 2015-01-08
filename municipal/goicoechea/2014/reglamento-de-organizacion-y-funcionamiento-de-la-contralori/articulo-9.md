@@ -1,0 +1,1 @@
+Artículo 9º—Medición de la percepción y satisfacción de los(as) ciudadanos(as). Elaborar y aplicar, entre los usuarios de los servicios, instrumentos para la medición de la percepción y satisfacción del usuario(a), que permita conocer la opinión de los habitantes del cantón sobre la calidad de los servicios ofrecidos por esta Municipalidad y promover la mejora de los mismos.
