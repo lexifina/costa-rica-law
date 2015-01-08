@@ -1,0 +1,55 @@
+Artículo 4º—Requisitos para la autorización para realizar el Servicio Social Obligatorio para Médicos y Cirujanos. Para que el Colegio de Médicos y Cirujanos de Costa Rica, otorgue la autorización para realizar el Servicio Social Obligatorio como Médico y Cirujano, se debe cumplir obligatoriamente con todos los siguientes requisitos:
+a) Oficio a Fiscalía: Se debe presentar solicitud mediante oficio debidamente firmado y dirigido al Fiscal General del Colegio de Médicos y Cirujanos, en el cual se le solicita autorización para realizar el Sorteo de Servicio Social Obligatorio como Médico y Cirujano.
+b) Documento de Identidad: En el caso de solicitantes nacionales, deben presentar original y fotocopia de la cédula de identidad vigente y en buen estado por ambos lados.
+En el caso de los solicitantes extranjeros, deben presentar original y fotocopia de la cédula de residente o pasaporte, vigente y en buen estado.
+c) Fotografía: Se debe adjuntar una fotografía tamaño pasaporte, reciente del solicitante, en traje formal (Hombres: camisa de vestir - corbata - saco / Mujeres: blusa de vestir - saco). En el reverso de la fotografía se debe indicar el nombre y número de cédula del solicitante.
+d) Diploma de Bachiller en Educación Media: Se debe presentar original y fotocopia del Diploma de Bachiller en Educación Media. Debe ser presentado con mínimo treinta (30) días hábiles de antelación a la fecha para la recepción de los requisitos de autorización para realizar el Servicio Social Obligatorio.
+En caso que el interesado no cuente con el diploma original, puede presentar certificación original y fotocopia, que valide la obtención del Diploma de Bachiller en Educación Media, la cual debe contar con la debida autenticación por de las dependencias correspondientes del Ministerio de Educación Pública.
+El Colegio de Médicos y Cirujanos verificará la legitimidad de dicho diploma en la base de datos del Ministerio de Educación Pública, Dirección de Gestión y Evaluación de la Calidad. En los casos en los cuales el diploma no aparezca en dicha base de datos, se solicitará certificación directamente a las dependencias del Ministerio de Educación Pública que correspondan.
+e) Certificación de reconocimiento y equiparación del Diploma de Bachiller en Educación Media: Este requisito solo debe ser presentado cuando se han realizado estudios en el extranjero. Se debe presentar original y fotocopia de la certificación. Esta certificación debe ser emitida por las dependencias correspondientes del Ministerio de Educación Pública de Costa Rica.
+El Colegio de Médicos y Cirujanos verificará la legitimidad de dicha certificación directamente con las dependencias del Ministerio de Educación Pública que correspondan.
+f) Certificación de conclusión y aprobación de la carrera de Licenciatura en Medicina y Cirugía:
+Se debe presentar original y fotocopia de la certificación. Esta documentación debe ser emitida por la institución académica formadora (Universidad) autorizada según la legislación del país.
+En dicha certificación se debe especificar la siguiente información:
+i. Materias cursadas.
+ii. Período en que realizaron los estudios.
+iii.Carga académica (por horas o créditos).
+iv. Record académico individual (notas obtenidas en cada materia).
+En el caso de estudios realizados en el extranjero, además se debe aportar certificación donde se indique el valor en carga académica del crédito (equivalencia de creditaje), utilizado en esa institución o en el país donde se realizaron los estudios.
+g) Certificación de equiparación de grado y título de Licenciatura en Medicina y Cirugía:
+Este requisito solo debe ser presentado cuando se han realizado estudios en el extranjero. Se debe presentar original y fotocopia de la certificación.
+Los solicitantes deben realizar previamente y por cuenta propia los trámites de equiparación de estudios realizados en el extranjero ante el Consejo Nacional de Rectores (CONARE), quién a su vez verificado el cumplimiento de todos los requisitos, delegara en la Universidad de Costa Rica el correspondiente trámite de equiparación.
+h) Certificación de conclusión y aprobación del Internado Rotatorio Universitario: Se debe presentar original y fotocopia de la certificación. Esta documentación debe ser emitida por la institución académica formadora (Universidad) autorizada según la legislación del país. El internado tiene una duración de 52 semanas y debe ser realizado en Hospitales adecuados para tal fin a criterio del Colegio de Médicos y Cirujanos.
+En dicha certificación se debe especificar la siguiente información:
+i. Rotaciones o bloques cursados (materias o cursos).
+ii. Período en que realizaron las rotaciones o bloques.
+iii.Record académico individualmente (notas obtenidas en cada rotación o bloque)
+iv. Nombre y categoría de los hospitales donde realizo las rotaciones o bloques del internado rotatorio
+i) Certificación de equiparación de conclusión y aprobación del Internado Rotatorio Universitario: Este requisito solo debe ser presentado cuando se han realizado estudios en el extranjero. Se debe presentar original y fotocopia de la certificación.
+Los solicitantes deben realizar previamente y por cuenta propia los trámites de reconocimiento del Internado Rotatorio Universitario ante la Facultad de Medicina de la Universidad de Costa Rica.
+j) Información Perpetua Memoria y certificación de este trámite: Debe ser presentado con mínimo treinta (30) días hábiles de antelación a la fecha para la recepción de los requisitos de autorización para realizar el Servicio Social Obligatorio.
+Este requisito también es conocido como “Ad Perpetuam Rei Memoriam” (para perpetuar el recuerdo de la cosa) o “Ad Perpetuam”. Es un trámite legal que se puede realizar en sede judicial o sede notarial.
+Una vez finalizado el trámite el promovente (solicitante) tiene que aportar copia certificada de la totalidad de piezas que componen el expediente (auto inicial, apersonamiento de fiscalía, prueba documental, prueba testimonial, auto final). La certificación debe incluir lo siguiente:
+i. Número de expediente.
+ii. Autoridad que tramitó.
+iii. Fecha de inicio y fin de la gestión.
+iv. Timbres cancelados de ley.
+v. Firma y el sello de la autoridad que certifica.
+Sin excepción no se recibirán Perpetuas Memorias con más de cinco años de expedidas.
+k) Certificación de Antecedentes Penales: Se debe presentar original de la Certificación de Antecedentes Penales emitida por el Registro Judicial, Poder Judicial de la República de Costa Rica.
+En el caso de los solicitantes extranjeros, deberán aportar además Certificación de su Antecedente Penal (criminal o legal), emitida por las autoridades correspondientes del país de origen o en el último país de residencia.
+En casos de excepción o especiales, debidamente justificadas y autorizadas a criterio de la Junta de Gobierno del Colegio de Médicos y Cirujanos, se puede presentar testimonio de declaración jurada protocolizada hecha ante Notario Público donde se indique su situación judicial, tanto del país de origen como de su último país de residencia.
+l) Certificación de Nacimiento: En el caso de los solicitantes nacionales, deben presentar original de la Certificación de Nacimiento emitida por el Registro Civil, de la República de Costa Rica.
+En el caso de los solicitantes extranjeros, deberán aportar Certificación de Nacimiento emitida por las autoridades correspondientes al país de origen.
+En casos de excepción o especiales, debidamente justificadas y autorizadas a criterio de la Junta de Gobierno del Colegio de Médicos y Cirujanos, se puede presentar testimonio de declaración jurada protocolizada hecha ante Notario Público donde se indique la fecha y lugar de nacimiento del solicitante, así como el asiento de nacimiento correspondiente.
+m) Certificación de Estado Civil: En el caso de los solicitantes nacionales, deben presentar original de la Certificación de Estado Civil emitida por el Registro Civil, de la República de Costa Rica.
+En el caso de los solicitantes extranjeros, deberán aportar Certificación de Estado Civil emitido por las autoridades correspondientes al país de origen.
+En casos de excepción o especiales, debidamente justificadas y autorizadas a criterio de la Junta de Gobierno del Colegio de Médicos y Cirujanos, se puede presentar testimonio de declaración jurada protocolizada hecha ante Notario Público donde se indique el estado civil del solicitante.
+n) Formulario de Registro: Completar el formulario de registro debidamente lleno a letra molde o escrito a máquina (se sugiere letra Arial o Times New Roman y tamaño 11 o 12). La información debe ser clara, completa y veraz. El solicitante tiene obligación de mantener actualizados estos datos.
+Este formulario, se encuentra publicado permanentemente en la página web www.medicos.cr o se podrá solicitar en la Plataforma de Servicios de este Colegio.
+o) Formulario de Autorización Cuenta Cedular: Completar el formulario de autorización para que el Colegio de Médicos y Cirujanos, pueda actualizar información según datos de la cuenta cedular del solicitante en el Registro Civil, en la en caso de ser requerido.
+p) Pago de Derechos: Cancelar el valor económico que la Junta de Gobierno estipule y que se encuentre vigente, en la fecha que se presenta la solicitud para la autorización para realizar el Servicio Social Obligatorio. Por acuerdo de Junta de Gobierno tomado en Sesión No. 2001-03-08, este pago no es reembolsable, en caso de que la solicitud no sea aceptada.
+q) Certificación de comprensión del idioma español: Este requisito solo debe ser presentado por los solicitantes extranjeros no Hispano-Parlantes, es decir cuya lengua materna no sea el idioma español. Se debe presentar original y copa de la certificación emitida por la Facultad de Letras, Universidad de Costa Rica, en la cual se comprueben que mediante examen de competencia lingüística en español como segunda lengua el solicitante tiene un nivel Intermedio Alto (este nivel corresponde al nivel B2 del Marco Común Europeo de Referencia para las Lenguas)
+r) Período de validez de las certificaciones: Todas las certificaciones sin excepción tanto nacional como extranjera, tiene una validez máxima de 3 meses, contado a partir de su fecha de emisión.
+s) Autenticaciones de documentos emitidos en el extranjero: Todos los atestados emitidos en el extranjero sin excepción, deberán ser presentados con las autenticaciones de las autoridades del país de origen, la del Cónsul o Embajador de Costa Rica en dicho país y la del Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica; o según lo establecido en el Convenio de la Haya Suprimiendo la Exigencia de Legalización de los Documentos Públicos Extranjeros del 05 de octubre de 1961 (Convenio de Apostilla) para los países firmantes.
+t) Traducción de documentos: Todo documento aportado en idioma distinto al español sin excepción, deberá venir con la traducción al español respectiva, hecha por un traductor oficial autorizado por el Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica.
