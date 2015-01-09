@@ -1,0 +1,3 @@
+CAPÍTULO II
+Del proceso de selección y aprobación del beneficio
+Artículo 7º—De la recopilación de la información. El Departamento de Recursos Humanos será la dependencia encargada de recopilar, en el tercer trimestre de cada año, la información pertinente para el análisis de las solicitudes presentadas por el personal de la institución. Para ello, facilitará al personal que así lo solicite los formularios respectivos con la información requerida y, posteriormente, realizará la validación y actualización de los datos recopilados; conformando una base de datos, con el soporte de la Unidad de Estadística, y que será el insumo fundamental para la selección de las personas beneficiarias del servicio.
