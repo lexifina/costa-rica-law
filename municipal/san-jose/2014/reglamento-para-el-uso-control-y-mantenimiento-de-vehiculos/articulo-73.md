@@ -1,0 +1,1 @@
+Artículo 73.—Derogatoria: Este reglamento deroga el Reglamento anterior, denominado: “Reglamento Interno para el Uso de Vehículos Municipales”, así como cualquier otra disposición anterior que se le oponga.

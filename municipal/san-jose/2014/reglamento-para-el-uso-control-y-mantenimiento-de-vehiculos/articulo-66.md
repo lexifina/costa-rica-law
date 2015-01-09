@@ -1,0 +1,1 @@
+Artículo 66.—La Sección de Seguridad Municipal no entregará ningún vehículo en horas no hábiles a funcionarios de la Municipalidad, sin la autorización de la Sección de Transportes, el Alcalde/sa o la Gerencia que en su caso corresponda.
