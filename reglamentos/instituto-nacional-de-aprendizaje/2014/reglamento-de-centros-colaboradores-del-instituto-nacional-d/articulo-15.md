@@ -1,0 +1,4 @@
+Artículo 15.—Aprobación de la unidad productiva
+La UCC procede a solicitarle a la Gerencia General la aprobación de la solicitud de convenio específico para establecer un CC con la correspondiente unidad productiva, para ello presenta un expediente que debe contener los documentos indicados en el Procedimiento P GG 01 de la Gerencia General.
+La Gerencia General analiza la información y decide aprobar o no la solicitud de convenio de Centro Colaborador. Para ello, puede solicitar criterio técnico a la Subgerencia Técnica y/o administrativo a la Subgerencia Administrativa.
+Si la Gerencia General aprueba la solicitud, envía un oficio a la Asesoría Legal para que proceda con el proceso de firma del Convenio. En caso de rechazar la solicitud de convenio, devuelve el expediente a la UCC con un oficio motivando su decisión e instruyéndola para que proceda a notificar a la Unidad Productiva.

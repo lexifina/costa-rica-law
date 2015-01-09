@@ -1,0 +1,2 @@
+Artículo 19.—Evaluación del convenio de centro colaborador
+El convenio será evaluado por las partes cuando lo estimen conveniente, sea en forma conjunta, o en forma individual. El INA –por medio de la Unidad de Centros Colaboradores- realizará un análisis semestral donde presentará como mínimo la siguiente información: cantidad de SCFP, cantidad de personas participantes y cantidad de horas; siguiendo los procedimientos establecidos en cada entidad para tales efectos.

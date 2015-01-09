@@ -1,0 +1,2 @@
+Artículo 25.—Archivo de los expedientes del convenio
+Los expedientes del convenio serán custodiados por la UCC. En dicho expediente se registrará toda la información referente al Unidad Productiva, desde el momento en que se efectúa la solicitud del Unidad Productiva para conformarse como CC. El ordenamiento de la información se realizará con base en lo dispuesto en la ley 7202 “Ley del sistema nacional de archivos” y su reglamento.

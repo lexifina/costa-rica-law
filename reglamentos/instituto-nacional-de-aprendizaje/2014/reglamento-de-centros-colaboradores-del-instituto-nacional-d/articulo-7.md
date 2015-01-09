@@ -1,0 +1,4 @@
+Artículo 7º—Derechos de autor
+De acuerdo con las regulaciones establecidas en la Ley de Derechos de Autor y Derechos Conexos, la propiedad del derecho patrimonial del diseño curricular sean: (programas, módulos y material didáctico) a utilizar en los SCFP, mediante los cuales se ejecutan los convenios de CC para atender los requerimientos específicos de las partes, pertenecerá, de manera exclusiva a la institución o entidad que los produce, sea al INA o el CC.
+En cuanto a la propiedad del derecho moral, este, por su naturaleza jurídica pertenece indiscutiblemente al autor del diseño curricular sean: (programas, módulos y material didáctico) elaborado.
+En los casos en que el INA autorice el uso de sus diseños curriculares, lo hará indicando claramente en el documento que puede hacer o no el autorizado con estos instrumentos.

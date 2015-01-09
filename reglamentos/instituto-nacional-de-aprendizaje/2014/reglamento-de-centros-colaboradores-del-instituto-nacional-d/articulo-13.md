@@ -1,0 +1,2 @@
+Artículo 13.—Información y divulgación
+La PECC contacta con la Unidad Productiva para realizar una visita de información y divulgación, en la cual explica a profundidad el convenio de Centro Colaborador y las características de su ejecución. Se entrega una copia del borrador del convenio existente, del oficio que la empresa debe suscribir donde aprueba las condiciones establecidas en el borrador de convenio y copia de la licencia de marca para la utilización de su logotipo en los certificados para los SCFP ejecutados en el amparo del convenio suscrito.

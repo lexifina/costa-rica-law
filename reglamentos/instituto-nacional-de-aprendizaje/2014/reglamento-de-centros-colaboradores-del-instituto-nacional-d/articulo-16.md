@@ -1,0 +1,3 @@
+Artículo 16.—Trámite de firma del convenio de centro colaborador
+La Asesoría Legal procede a solicitar la firma por parte del Centro Colaborador. Para ello, puede solicitar la colaboración a la Unidad de Centros Colaboradores, unidad que se encargará de llevar la documentación al Centro Colaborador, recolectar la firma y posteriormente, presentarla ante la Asesoría Legal.
+La Asesoría Legal solicita a la Presidencia Ejecutiva la firma del convenio. Una vez que haya sido firmado el convenio, un original se archiva en la Asesoría Legal, se envía un original al Centro Colaborador y una copia a la Unidad de Centros Colaboradores.

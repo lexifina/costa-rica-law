@@ -1,0 +1,12 @@
+Artículo 3º—Glosario de términos.
+Capacitación: Servicio técnico-metodológico que se orienta hacia el desarrollo, adquisición, mejoramiento o complementación de las competencias técnicas requeridas para mejorar el desempeño laboral de una persona.
+Centro Ejecutor: Centro de Formación Profesional del INA, establecimiento físico diseñado, construido y equipado con el fin de ejecutar servicios de formación y capacitación profesional con independencia administrativa. De acuerdo a su naturaleza se puede establecer el nivel de influencia geográfica.
+Centro Colaborador: Ente público o privado que establece un convenio de colaboración con el INA para la ejecución de servicios de formación y capacitación profesional, sin que medien fines de lucro y utilizando sus propios recursos.
+Docente: Persona profesional que posee las competencias técnicas propias de un subsector productivo o de servicios, las competencias metodológicas y la experiencia necesaria para desarrollar los procesos de formación y capacitación profesional en sus diferentes ámbitos
+Ente: persona jurídica sea de orden público o privado creada para cumplir un objetivo, con o sin ánimo de lucro, con capacidad de actuar, de adquirir derechos y obligaciones y poseer bienes.
+Formación en la empresa: Modalidad de formación o capacitación que se desarrolla directamente en la empresa utilizando su equipamiento, herramientas, materiales y planta física.
+Persona Encargada de Centro Colaborador: Persona Funcionaria de la Unidad de Centros Colaboradores designada para servir de enlace entre un Centro Colaborador específico y el INA.
+Referencia de un servicio de capacitación y formación profesional: Es el código que identifica cada servicio de capacitación y formación profesional y es asignado por un Centro Ejecutor.
+Servicios de Capacitación y Formación Profesional: Conjunto de acciones y productos técnicos, tecnológicos, metodológicos y curriculares derivados de la identificación de necesidades y requerimientos de los clientes. Por su naturaleza se clasifican en: a) planes y programas de formación b) módulos específicos de capacitación, c) Asistencia Técnica, d) Certificación de competencias laborales, e) Acreditación.
+Unidad Productiva: Entidad física de carácter técnico o tecnológico establecido para la producción de un bien o para suministrar un servicio. Esta puede ser una empresa o una organización pública o privada.
+Participantes externos: personas que no pertenecen a la organización del Centro Colaborador.
