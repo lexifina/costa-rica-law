@@ -1,0 +1,2 @@
+Artículo 37.—De las sanciones: Las sanciones al personal del Centro de Cuido serán aplicadas por el patrono respectivo, al no existir ninguna relación laboral entre la Municipalidad y el personal técnico y de servicio del Centro.
+Las faltas en que incurran los y las funcionarias del Centro o su patrono (a), facultan a la Municipalidad para resolver el contrato, todo de conformidad con el contrato de servicios de operacionalidad suscrito entre ambas partes, la Ley de Contratación Administrativa N° 7494 y el Reglamento a la Ley de Contratación Administrativa N° 33411-H.

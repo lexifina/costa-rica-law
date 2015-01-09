@@ -1,0 +1,4 @@
+Artículo 20.—De las ausencias del niño o niña: En caso de ausencia, la familia debe justificarla durante los tres días hábiles posteriores a la falta. Si sus ausencias son prolongadas deberán ser justificadas por la familia apenas sea posible, con constancia médica que indique la enfermedad del niño o niña y, de igual manera, en caso de alguna situación especial de la familia, que amerite su ausencia.
+Si sus ausencias son prolongadas y sin justificación, se procederá de la siguiente forma:
+- Si el beneficio es otorgado por el IMAS, deberá coordinarse con esta Institución a efectos de aplicar lo que corresponda, previa notificación a su familia.
+- Si el pago se realiza en la Municipalidad directamente por los padres, queda facultada la Municipalidad a cancelar la matrícula, previa notificación a su padre, madre o persona encargada.

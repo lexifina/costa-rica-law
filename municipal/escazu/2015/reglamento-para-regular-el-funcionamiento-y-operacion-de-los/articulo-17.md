@@ -1,0 +1,1 @@
+Artículo 17.—Lugar de pago: El pago deberá realizarse en las cajas municipales. El padre, madre o persona encargada, deberá presentar el comprobante de pago con el sello respectivo a la Administración del Centro en cualquier momento en que esta se lo requiera.

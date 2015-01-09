@@ -1,0 +1,2 @@
+Artículo 5°—Proceso de selección: Los niños y niñas son seleccionados por el IMAS previa aplicación de la ficha FIS, relevando a la Municipalidad de intervenir en este proceso de selección.
+Será únicamente competencia de la Municipalidad, determinar las personas menores de edad de los padres, madres o personas encargadas que cubrirán por su cuenta el pago del servicio de cuido para el niño o niña.
