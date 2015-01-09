@@ -1,0 +1,8 @@
+CAPÍTULO IV
+Atención educativa y flexibilización curricular
+ARTÍCULO 7. Atención de la población estudiantil
+El Viceministerio Académico del Ministerio de Educación Pública será el responsable de instruir a las Direcciones Regionales de Educación, acerca de las estrategias, los mecanismos y los procedimientos para la identificación, atención y seguimiento del estudiantado con alta dotación, talento y creatividad, tomando en consideración los siguientes aspectos:
+a) Implementación de metodologías y estrategias que contribuyan a potenciar el desempeño de todo el estudiantado favoreciendo su desarrollo integral, en armonía con aquellos que demuestran alta dotación, talento y creatividad.
+b) Coordinación con los Equipos Técnicos Interdisciplinarios Regionales, los Servicios de Educación Especial y los Comités existentes en los centros educativos, para la adecuada atención del estudiantado con alta dotación, talento y creatividad, desde el momento de su identificación.
+c) Formulación de planes y proyectos institucionales, talleres, clubes, seminarios, ferias, exposiciones, cursos extra clase y otras actividades que contribuyan en la atención del estudiantado, con el aval del Departamento de Asesoría Pedagógica de la Dirección Regional.
+d) Formulación de convenios de cooperación interinstitucional para capacitaciones, cursos de especialización, y otras alternativas de formación que contribuyan en la atención al estudiantado, con el aval del Departamento de Asesoría Pedagógica de la Dirección Regional y de otras dependencias en el ámbito público o privado, nacional o internacional.

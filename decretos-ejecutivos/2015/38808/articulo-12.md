@@ -1,0 +1,3 @@
+ARTÍCULO 12. Programas de formación docente
+El Viceministerio Académico coordinará con las instituciones de Educación Superior Universitaria, la inclusión de las temáticas y las estrategias metodológicas que permitan detectar, promover y desarrollar la alta dotación, el talento y la creatividad, en los programas de formación docente.
+A su vez, le corresponde al Instituto de Desarrollo Profesional Uladislao Gámez, la coordinación con las universidades públicas para el desarrollo de cursos de actualización y formación permanente en la temática de la alta dotación, talento y creatividad. De estas acciones brindara informes periódicos al Consejo Superior de Educación.
