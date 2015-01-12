@@ -1,1 +1,0 @@
-Artículo 17.—No se debe introducir agua superficial, sin tratamiento respectivo, en los sistemas de abastecimiento de agua potable. El ente operador debe asegurar la calidad sanitaria del agua dentro del sistema de almacenamiento y distribución, durante todo el año.
