@@ -1,0 +1,1 @@
+Artículo 7º—Servicios amigables. Por ningún motivo, se limitará los servicios y atención a una persona por motivo de su orientación sexual o por su identidad de género. Este aspecto se fomentará mediante procesos de capacitación que faciliten la sensibilización del personal y organizaciones gubernamentales y no gubernamentales para brindar un servicio y atención igualitaria.
