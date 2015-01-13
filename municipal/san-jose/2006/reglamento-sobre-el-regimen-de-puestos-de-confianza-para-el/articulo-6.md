@@ -1,1 +1,2 @@
-Artículo 6º—Cantidad de puestos de confianza. El número de puestos de confianza será de dos asesores y una secretaria para cada Fracción política y de un asesor, una secretaria y un chofer para la Presidencia y Vicepresidencia del Concejo Municipal.
+Artículo 6°—Cantidad de puestos de confianza. El número de puestos de confianza será de dos asesores y una secretaria para cada fracción política; dos asesores, una secretaria y un vehículo con su respectivo chofer para la presidencia y un asesor, una secretaria y un vehículo con su respectivo chofer para la vicepresidencia del Concejo Municipal.
+(Así reformado mediante sesión ordinaria N° 246 del 13 de enero del 2015)
