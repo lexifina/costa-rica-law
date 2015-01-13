@@ -1,0 +1,1 @@
+Artículo 3º—Podrán ser personas beneficiarias de una beca municipal todas aquellas personas que se encuentren cursando cualquiera de los ciclos educativos que componen el sistema educativo costarricense, o mecanismos alternativos cuando sea el caso de personas con discapacidad, y que se encuentren en condiciones de pobreza, pobreza extrema y riesgo social.

@@ -1,0 +1,1 @@
+Artículo 9º—Tesorería Municipal será el ente encargado de realizar las gestiones para que la persona becada pueda disponer del monto de su beca a más tardar el quinto día hábil de cada mes. Este proceso se realizará mediante el depósito en una cuenta bancaria a nombre de la persona beneficiaria y en caso de ser menor de edad se realizará a nombre de la persona encargada.

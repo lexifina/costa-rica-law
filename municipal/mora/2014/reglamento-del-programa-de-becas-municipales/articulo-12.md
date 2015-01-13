@@ -1,0 +1,1 @@
+Artículo 12.—El proceso de información, divulgación e identificación de los casos podrá articularse con los Consejos de Distrito, quienes serán alianzas principales para la agilización de estos procesos y para la identificación de los casos más urgentes de intervención.

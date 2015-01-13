@@ -1,0 +1,1 @@
+Artículo 5º—El que se complete la solicitud de becas no obliga a la Municipalidad de Mora a realizar el otorgamiento del beneficio. Este proceso estará sujeto a la disponibilidad de presupuesto del programa y a la realización del estudio respectivo.

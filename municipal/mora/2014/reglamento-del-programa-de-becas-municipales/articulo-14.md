@@ -1,0 +1,1 @@
+Artículo 14.—La solicitud de la beca únicamente se realizará en el periodo establecido por la Oficina de Bienestar Social y Familia, su otorgamiento dependerá de la aprobación por parte de este ente, así como de la disponibilidad de recursos existentes en el fondo de becas.

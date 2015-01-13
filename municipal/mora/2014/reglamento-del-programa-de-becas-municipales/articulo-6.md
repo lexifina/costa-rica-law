@@ -1,0 +1,1 @@
+Artículo 6º—Toda beca implicará una remuneración mensual, la cual mantendrá montos diferenciados según el nivel educativo. Estos montos se establecerán para cada ciclo lectivo, tomando en cuenta la realidad económica nacional y el aumento en el costo de la vida.

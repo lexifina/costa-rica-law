@@ -1,0 +1,1 @@
+Artículo 17.—Toda persona beneficiaria de una beca municipal deberá asistir a las convocatorias que realice la Oficina de Bienestar Social y Familia para procesos de control, seguimiento, y evaluación del beneficio asignado y del programa en general.

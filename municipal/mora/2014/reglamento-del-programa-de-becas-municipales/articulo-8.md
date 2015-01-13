@@ -1,0 +1,1 @@
+Artículo 8º—La Oficina de Bienestar Social y Familia mantendrá un expediente de cada una de las personas a las que se les asignó una beca por condición socioeconómica. La información de ese expediente será de uso exclusivo de esa oficina, esto para que exista la confidencialidad de la información y para la protección de las y los estudiantes becarios.

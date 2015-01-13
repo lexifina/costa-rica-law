@@ -1,0 +1,1 @@
+Artículo 20.—El bajo rendimiento académico no significará el cese de la beca si se demuestra que la dificultad surgida para el estudio fue producida por elementos relacionados con enfermedad o riesgo social.
