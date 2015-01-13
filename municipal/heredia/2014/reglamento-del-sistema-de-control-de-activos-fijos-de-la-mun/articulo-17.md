@@ -1,0 +1,1 @@
+Artículo 17.—Corresponde al Encargado de Activos el control de activos, levantar los inventarios de bienes, identificarlos de acuerdo con su naturaleza y características (modelo, marca, numero de motor, serial, valor, tipo y sexo, edad en caso de semovientes y tomo, folio, asiento (fecha de inscripción y número de finca o folio real en caso de inmuebles).

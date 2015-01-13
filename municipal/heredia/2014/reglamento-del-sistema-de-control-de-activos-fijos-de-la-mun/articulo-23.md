@@ -1,0 +1,1 @@
+Artículo 23.—Es obligación del Encargado de Activos, el verificar la existencia de los bienes inventariados a cargo de las distintas dependencias de la Administración Municipal e informar de inmediato al Alcalde los incumplimientos detectados de las normas de este Reglamento, para que esa autoridad ordene el procedimiento correspondiente.

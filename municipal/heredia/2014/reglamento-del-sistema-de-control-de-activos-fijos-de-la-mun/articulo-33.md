@@ -1,0 +1,7 @@
+Artículo 33.—Los bienes muebles declarados en desuso o mal estado podrán ser objeto de donación, de conformidad con lo establecido en el Código Municipal. La baja de activos por ese concepto se realizará de acuerdo con el procedimiento que a continuación se describe:
+a. El Encargado de Activos emitirá un informe a la Alcaldía Municipal con el listado de los activos fijos susceptibles de dar de baja por donación, en él deberá indicar al menos el número del activo, descripción, valor, estado, ubicación y el nombre de las posibles instituciones beneficiadas.
+b. La Alcaldía Municipal valorará el documento y, en caso de estimarlo pertinente, lo remitirá al Concejo Municipal para su aprobación.
+c. Una vez obtenido el aval del Concejo Municipal y según la naturaleza del bien, el Encargado de Activos deberá:
+1. Elaborar un documento detallado, que suscribirá el Alcalde Municipal y representante legal de la Institución que recibe la donación, en el que se motiva la donación y se hace entrega de los activos.
+2. Trasladará el expediente conformado a la Asesoría y Gestión Jurídica a efectos de que se confeccione la escritura pública respectiva.
+d. Una vez que los bienes hayan sido entregados a la institución beneficiada, el Encargado de Activos deberá excluirlos del inventario de activos fijos de la Municipalidad e incluirlos en el sistema en una lista que contenga únicamente los bienes dados de baja. La Asesoría y Gestión Jurídica deberá devolver el expediente para el Encargado de Activos lo custodie.

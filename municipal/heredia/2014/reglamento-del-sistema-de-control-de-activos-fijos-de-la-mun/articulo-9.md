@@ -1,0 +1,1 @@
+Artículo 9º—La custodia de activos que por renuncia, traslado o despido de un funcionario y que no se hayan reasignado, estará bajo la responsabilidad de la jefatura inmediata hasta tanto sea reasignados, para ello, el Encargado de Activos registrará de oficio el cambio.

@@ -1,0 +1,6 @@
+CAPÍTULO VII
+Reparaciones, retiro y traslado de activos fijos
+Artículo 28.—Los departamentos que requieran enviar activos fijos a reparación deberán:
+a. Completar el formulario de salida de activos, en el que se consignará la fecha de salida, número del activo y sus característica, nombre del funcionario encargado del bien y departamento al que pertenece, firma de la jefatura, visto bueno del Encargado de Activos y entregar el documento al Oficial de Seguridad Interna con copia al Encargado de Activos y el Departamento de Proveeduría. Por su parte, el Encargado de Activos deberá realizar una observación, respecto a la salida del bien, en el registro automatizado.
+En el caso de equipos tecnológicos, como computadoras, impresoras, escáner, entre otros, el departamento interesado deberá solicitar por escrito a la Sección de Tecnologías de Información un criterio técnico en el que se determine la procedencia de la reparación.
+b. Una vez realizada la reparación, el Departamento de Proveeduría recibirá el activo fijo al contratista e informará por escrito al Encargado de Activos, a efectos de que realice la modificación correspondiente y lo devuelva al departamento que pertenece, para ello, completará el formulario denominado entrega de activos en reparación en el que constará la entrega del bien.

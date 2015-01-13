@@ -1,0 +1,1 @@
+Artículo 2º—Alcance: El presente reglamento regulará las funciones y atribuciones de la Contabilidad Municipal, la Proveeduría Municipal, Departamento de Cómputo y demás departamentos que custodien o administren bienes de la Municipalidad de Heredia.

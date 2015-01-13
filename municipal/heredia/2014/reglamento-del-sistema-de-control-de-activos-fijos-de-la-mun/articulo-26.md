@@ -1,0 +1,1 @@
+Artículo 26.—Las jefaturas deberán emitir controles dentro de su departamento, a fin de que, al menos, trimestralmente se inventaríen los activos fijos en custodia y se documente según el número de activo, descripción, encargado, estado y fecha en que se realiza la constatación física.

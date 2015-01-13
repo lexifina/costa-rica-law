@@ -1,0 +1,1 @@
+Artículo 22.—La Administración podrá otorgar o prestar activos en administración a organizaciones no gubernamentales y otras instituciones, para los cuales deberá realizarse el correspondiente trámite de autorización y emitirse por escrito el correspondiente convenio.

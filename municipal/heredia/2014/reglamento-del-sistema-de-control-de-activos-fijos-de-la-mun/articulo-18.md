@@ -1,0 +1,1 @@
+Artículo 18.—El departamento de Contabilidad deberá calcular y registrar en el sistema integrado de información municipal la depreciación y revaluar todos los activos fijos de la institución, de conformidad con el ordenamiento jurídico vigente y las disposiciones emitidas por Contabilidad Nacional.

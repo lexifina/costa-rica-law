@@ -1,0 +1,1 @@
+Artículo 6º—El funcionario/a velará para que los activos fijos asignados conserven la placa con el número de activo, en caso de que por cualquier motivo desaparezca o sufra algún daño, deberá informarlo inmediatamente a su jefatura y ésta al Encargado de Activos.

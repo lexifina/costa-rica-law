@@ -1,0 +1,1 @@
+Artículo 12º—Los activos fijos ingresarán a la Municipalidad por concepto de compra, donaciones, expropiaciones, entre otros, y de acuerdo con el proceso establecido en el Manual de Procedimientos del Departamento de Proveeduría.
