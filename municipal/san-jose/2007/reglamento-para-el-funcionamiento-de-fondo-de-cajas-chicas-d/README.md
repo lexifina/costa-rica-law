@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento de Fondo de Cajas Chicas de la Municipalidad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-10-19 | la propia norma |
+| 2 | 2015-01-13 | Reglamento municipal 246 (2015-01-13) |
