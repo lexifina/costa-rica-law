@@ -11,4 +11,6 @@ i) Con el propósito de llevar a cabo la actividad o propósito delictivo del gr
 ii) A sabiendas de que el grupo tiene la intención de cometer el crimen;
 e) Respecto del crimen de genocidio, haga una instigación directa y pública a que se cometa;
 f) Intente cometer ese crimen mediante actos que supongan un paso importante para su ejecución, aunque el crimen no se consume debido a circunstancias ajenas a su voluntad. Sin embargo, quien desista de la comisión del crimen o impida de otra forma que se consuma no podrá ser penado de conformidad con el presente Estatuto por la tentativa si renunciare íntegra y voluntariamente al propósito delictivo.
+3 bis. Por lo que respecta al crimen de agresión, las disposiciones del presente artículo sólo se aplicarán a las personas en condiciones de controlar o dirigir efectivamente la acción política o militar de un Estado.
+(Así adicionado el párrafo 3 bis anterior por el artículo único de la ley N° 9287 del 18 de noviembre del 2014)
 4.- Nada de lo dispuesto en el presente Estatuto respecto de la responsabilidad penal de las personas naturales afectará a la responsabilidad del Estado conforme al derecho internacional.

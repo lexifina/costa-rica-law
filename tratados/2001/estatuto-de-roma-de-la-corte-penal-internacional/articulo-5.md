@@ -7,4 +7,4 @@ a) El crimen de genocidio;
 b) Los crímenes de lesa humanidad;
 c) Los crímenes de guerra;
 d) El crimen de agresión.
-2. La Corte ejercerá competencia respecto del crimen de agresión una vez que se apruebe una disposición de conformidad con los artículos 121 y 123 en que se defina el crimen y se enuncien las condiciones en las cuales lo hará. Esa disposición será compatible con las disposiciones pertinentes de la Carta de las Naciones Unidas.
+(Derogado el párrafo segundo original por el artículo único de la ley N° 9287 del 18 de noviembre del 2014)

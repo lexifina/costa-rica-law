@@ -1,6 +1,6 @@
 # Estatuto de Roma de la Corte Penal Internacional
 
-Tratados Internacionales N° 8083 del 2001-02-07. SINALEVI, ficha 46034: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46034&param2=48555&param3=1>.
+Tratados Internacionales N° 8083 del 2001-02-07. SINALEVI, ficha 46034: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=46034&param2=99257&param3=1>.
 
 Publicada en La Gaceta N° 56 del 2001-03-20.
 
@@ -9,3 +9,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | Versión | En vigor desde | Hecha por | Fecha de la versión |
 | --- | --- | --- | --- |
 | 1 de 2 | 2001-03-20 | Tratados Internacionales 8083 (2001-02-07) | 2001-02-07 |
+| 2 de 2 | 2015-01-14 | Tratados Internacionales 9287 (2014-11-18) | 2014-11-18 |

@@ -57,5 +57,11 @@ ix) Matar o herir a traición a un combatiente enemigo;
 x) Declarar que no se dará cuartel;
 xi) Someter a las personas que estén en poder de otra parte en el conflicto a mutilaciones físicas o a experimentos médicos o científicos de cualquier tipo que no estén justificados en razón del tratamiento médico, dental u hospitalario de la persona de que se trate ni se lleven a cabo en su interés, y que provoquen la muerte o pongan gravemente en peligro su salud;
 xii) Destruir o confiscar bienes del enemigo, a menos que las necesidades de la guerra lo hagan imperativo;
+xiii) Emplear veneno o armas envenenadas;
+(Así adicionado el inciso anterior por el artículo único de la ley N° 9287 del 18 de noviembre del 2014)
+xiv) Emplear gases asfixiantes, tóxicos o similares o cualquier líquido, material o dispositivo análogos;
+(Así adicionado el inciso anterior por el artículo único de la ley N° 9287 del 18 de noviembre del 2014)
+xv) Emplear balas que se ensanchan o aplastan fácilmente en el cuerpo humano, como balas de camisa dura que no recubra totalmente la parte interior o que tenga incisiones.
+(Así adicionado el inciso anterior por el artículo único de la ley N° 9287 del 18 de noviembre del 2014)
 f) El párrafo 2 e) del presente artículo se aplica a los conflictos armados que no son de índole internacional, y, por consiguiente, no se aplica a situaciones de disturbios y tensiones internas, como motines, actos aislados y esporádicos de violencia u otros actos de carácter similar. Se aplica a los conflictos armados que tienen lugar en el territorio de un Estado cuando existe un conflicto armado prolongado entre las autoridades gubernamentales y grupos armados organizados o entre tales grupos.
 3.- Nada de lo dispuesto en los párrafos 2 c) y d) afectará a la responsabilidad que incumbe a todo gobierno de mantener y restablecer el orden público en el Estado y de defender la unidad e integridad territorial del Estado por cualquier medio legítimo.
