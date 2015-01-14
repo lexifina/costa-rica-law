@@ -1,1 +1,1 @@
-Artículo 4º—En formulario suministrado por la Municipalidad las Juntas de Educación y Juntas Administrativas acordarán y presentarán los planes de inversión que se financiarán con los recursos a transferir.
+Artículo 4º— (Derogado por el artículo 23 del Reglamento de asignación de recursos a las Juntas de Educación, Juntas Administrativas y Comedores Escolares según lo dispuesto en el artículo 17 de la ley N° 5582, publicado en La Gaceta N° 9 del 14 de enero del 2015)

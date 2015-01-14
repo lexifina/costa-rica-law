@@ -23,4 +23,4 @@ CAPÍTULO I
 De la Asignación a las Juntas de Educación y Juntas Administrativas
 (Regulación de incisos a) y b) del artículo 17
 de la Ley 5582 y sus reformas)
-Artículo 1º—Del monto recaudado por la Municipalidad en los Puertos de los cantones de Puntarenas y Esparza por cada tonelada de carga movilizada, un 20% se asignará a la Juntas de Educación y Juntas Administrativas para el mantenimiento y construcción de infraestructura, compra de mobiliario, equipo y útiles; y un 10% se asignará para los comedores escolares.
+Artículo 1º— (Derogado por el artículo 23 del Reglamento de asignación de recursos a las Juntas de Educación, Juntas Administrativas y Comedores Escolares según lo dispuesto en el artículo 17 de la ley N° 5582, publicado en La Gaceta N° 9 del 14 de enero del 2015)

@@ -1,1 +1,1 @@
-Artículo 5º—Cada una de las Juntas deberá llevar un expediente donde hagan constar toda documentación que sustente las adquisiciones y las erogaciones ejecutadas durante el año.
+Artículo 5º— (Derogado por el artículo 23 del Reglamento de asignación de recursos a las Juntas de Educación, Juntas Administrativas y Comedores Escolares según lo dispuesto en el artículo 17 de la ley N° 5582, publicado en La Gaceta N° 9 del 14 de enero del 2015)
