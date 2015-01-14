@@ -14,3 +14,4 @@ Regula revaluación de activos depreciables para el período fiscal de 1997
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1997-08-29 | la propia norma |
+| 2 | 2015-01-14 | SINALEVI (sin norma nombrada) |
