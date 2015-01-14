@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del Auditor Interno
+Artículo 12.—Nombramiento del Auditor Interno. El nombramiento del Auditor Interno lo hará el Concejo Municipal por tiempo indefinido, se hará mediante concurso público, de conformidad con lo establecido en el artículo 31 de la Ley Nº 8292 y deberá satisfacer los requisitos establecidos en los Lineamientos sobre los requisitos de los cargos de Auditor Interno, y las gestiones de nombramiento en dicho cargo, emitido por la Contraloría General de la República, L-1-2006-CO-DAGJ, publicados en el Diario Oficial La Gaceta Nº 236 del 8 de diciembre del 2006.
+El Auditor deberá estar incorporado al Colegio de Profesionales en Ciencias Económicas y poseer el grado académico de Licenciatura en Contaduría Pública y deberá conocer las disposiciones legales que rigen el Régimen Municipal y la Administración Pública, y cumplir con los demás requisitos que establece el Manual Descriptivo de Puestos de la Municipalidad de La Cruz.

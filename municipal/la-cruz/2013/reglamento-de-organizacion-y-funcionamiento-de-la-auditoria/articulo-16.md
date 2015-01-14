@@ -1,0 +1,1 @@
+Artículo 16.—Salidas del trabajo. En cuanto a las salidas de la institución para el cumplimiento de sus funciones, el Auditor Interno lo podrá comunicar a la Dirección Administrativa, Alcaldía o Vice alcaldía Municipal, indicándole donde se encontrará, siempre que esta comunicación no entorpezca sus funciones e independencia.
