@@ -14,3 +14,4 @@ Crédito fiscal por adquisición de cerveza refrescos gaseosos, refrescos gaseos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1995-11-19 | la propia norma |
+| 2 | 2015-01-14 | Resolución 2 (2015-01-14) |
