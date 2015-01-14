@@ -14,3 +14,4 @@ Regula la Revaluación de Activos Depreciables para el Período Fiscal de 1996
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-08-30 | la propia norma |
+| 2 | 2015-01-14 | SINALEVI (sin norma nombrada) |
