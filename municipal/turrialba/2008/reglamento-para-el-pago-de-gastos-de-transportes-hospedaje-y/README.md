@@ -14,3 +14,4 @@ Reglamento para el pago de gastos de Transportes, Hospedaje y Alimentación a lo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-09-05 | la propia norma |
+| 2 | 2015-01-14 | Reglamento municipal 0 (2015-01-14) |
