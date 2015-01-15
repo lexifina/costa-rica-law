@@ -1,1 +1,0 @@
-Artículo 2º—Los lineamientos técnicos, presupuestarios, contables y legales específicos a que se refiere el anterior artículo serán emitidos por el Ministerio de Hacienda a más tardar en fecha 28 de febrero del 2014.
