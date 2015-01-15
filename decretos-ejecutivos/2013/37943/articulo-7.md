@@ -1,1 +1,0 @@
-Artículo 7°—Se deroga el Reglamento para la Utilización del Sistema de Compras Gubernamentales CompraRed, promulgado mediante el Decreto Ejecutivo Nº 32717, publicado en La Gaceta N° 204 del 24 de octubre del 2005.

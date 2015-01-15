@@ -1,1 +1,0 @@
-IV.—Las reformas a los numerales 7, 20 y 116 del Reglamento a la Ley de la Contratación Administrativa 33411-H que se llevan a cabo por el presente Decreto Ejecutivo, entrarán en vigencia cuando se verifiquen los requerimientos técnicos y funcionales que al efecto determine el Convenio entre el Instituto Costarricense de Electricidad y el Ministerio de Hacienda.

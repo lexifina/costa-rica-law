@@ -1,1 +1,0 @@
-Artículo 5º—A partir de la publicación del presente decreto ejecutivo, toda otra disposición reglamentaria conexa o de inferior rango que haga referencia a CompraRed, deberá leerse como Sistema Unificado Electrónico de Compras Públicas.
