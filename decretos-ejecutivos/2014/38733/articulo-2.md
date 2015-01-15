@@ -1,0 +1,1 @@
+Artículo 2°—Créase la Red Nacional de Apoyo para el Fortalecimiento Social y Económico de las Mujeres, en adelante “Red”, como un mecanismo de articulación interinstitucional, integrada por aquellas instituciones públicas u organizaciones privadas que desarrollen o puedan desarrollar acciones, programas y proyectos tendientes a mejorar la autonomía económica de las mujeres.
