@@ -1,0 +1,4 @@
+Artículo 11.—Capacitaciones en el exterior. Adicionalmente a lo indicado en lo referente a capacitación en el país indicado en este reglamento, para la capacitación en el exterior se deberá cumplir con las siguientes disposiciones:
+a. Toda actividad de capacitación en el exterior debe estar contemplada o relacionada con el Plan de Capacitación Institucional y disponer del presupuesto correspondiente para cubrir gastos del evento, así como viáticos, pasajes y otros.
+b. El financiamiento que se otorgue se ajustará a lo dispuesto por la Contraloría General de la República en su “Reglamento Gastos de Viaje y de Transporte para Servidores Públicos”
+c. Dentro de los cinco días hábiles a partir de la reincorporación del funcionario a sus labores ordinarias, deberá coordinar con la Sección de Recursos Humanos la fecha y hora en que realizará la exposición de conocimientos y destrezas adquiridos a otros colaboradores de la institución.

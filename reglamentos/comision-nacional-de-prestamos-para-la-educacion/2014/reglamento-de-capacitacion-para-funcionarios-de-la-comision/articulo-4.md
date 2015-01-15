@@ -1,0 +1,2 @@
+Artículo 4º—Planificación de actividades de capacitación. La Sección de Recursos Humanos, comunicará oportunamente a las Jefaturas involucradas, la programación de las capacitaciones por trimestre del año en curso.
+Posterior a la programación indicada, la Sección de Recursos Humanos conjuntamente con las jefaturas involucradas, establecerán las fechas idóneas para que se impartan las capacitaciones. En caso de vincularse varias Unidades Orgánicas en la actividad de capacitación, la Sección de Recursos Humanos mediará en la programación.

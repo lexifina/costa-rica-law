@@ -1,0 +1,21 @@
+Artículo 2º—Definiciones. Para efectos de este reglamento, se entiende por:
+a. Ayuda económica: Cualquier tipo de apoyo económico, para cubrir los costos directos de capacitación.
+b. Brechas de conocimiento: Es la diferencia entre el conocimiento que tiene un colaborador y el que necesita para realizar sus labores
+c. Capacitando: El funcionario de CONAPE, al que se le ha seleccionado para que reciba capacitación.
+d. Capacitación: Adquisición, desarrollo continuo y actualización de conocimientos, habilidades y destrezas, actitudes necesarios para el logro eficiente de las tareas y para la mejora continua de las competencias de los funcionarios y del clima organizacional, la cual puede ser brindada, costeada o gestionada por CONAPE. Estas actividades pueden ser en modalidad de curso, charla, seminario, taller, conferencia, entre otros, tanto presencial como virtual y podrán ser impartidas en el ámbito nacional o internacional.
+e. Contrato de Capacitación: Documento suscrito por el funcionario y CONAPE, en el que se establecen los beneficios y obligaciones de cada parte.
+f. Métodos de capacitación: La capacitación se percibe por medio de varias modalidades, dentro de las cuales se citan: presencial en donde el capacitando es guiado por un instructor o virtual utilizando medios y tecnología informática, así como pasantías, las cuales son posibles cuando dos entes en forma colaborativa, ofrecen transferencia de conocimiento en el propio lugar en donde se desarrollan los procesos de interés.
+g. Plan de Capacitación Institucional: Es una herramienta que resume las brechas de conocimiento institucionales. Su atención se produce por medio de procesos de capacitación. El Plan se sustenta o respalda el contenido presupuestario respectivo para su ejecución, por lo tanto, es parte integral de la propuesta de formulación presupuestaria de cada período económico.
+h. Viáticos: Aquellas sumas de dinero destinadas a la atención de gastos de hospedaje, alimentación y otros gastos menores que la institución reconoce a sus funcionarios cuando estos deban desplazarse dentro o fuera del país, en forma transitoria de su centro de trabajo, con el fin de cumplir con obligaciones de su cargo. Las sumas a otorgar por concepto de viáticos se regirán por lo establecido en el Reglamento de Gastos, de Viaje y Transporte para funcionarios públicos, emitido por la Contraloría General de la República.
+i. Brechas de conocimiento por cubrir fuera del Plan de Capacitación Institucional: Necesidad que no se detecta en tiempo y forma producto de una variable no controlada posterior a la elaboración del plan.
+j. Curso Modalidad aprovechamiento: Actividades de capacitación que requieran ser evaluadas mediante criterios objetivos previamente definidos por el proveedor, y en donde el capacitando demuestre su rendimiento en la asimilación de conocimientos, habilidades, actitudes aprendidas y adquiridas en el curso.
+k. Curso Modalidad participación: Actividades de capacitación en la cual se estable un plazo asistencia requerida.
+l. Capacitación abierta: Curso cuyas características o requerimientos los ofrece un determinado proveedor a todo el público en general, con el fin de atender necesidades de mercado.
+m. Capacitación cerrada: Curso cuyas características o requerimientos los ofrece un determinado proveedor, con el fin de atender requerimientos o especificidades exclusivos para CONAPE.
+n. Insoslayable: Necesidad que no se puede evitar o dejar de lado, compromiso urgente a resolver de inmediato.
+o. Riesgo: Posibilidad de que algo que suceda pueda llegar a impactar sobre el cumplimiento de los objetivos.
+p. Brecha de insoslayable necesidad: Atención urgente de una unidad orgánica que requiere que sus funcionarios se capaciten y cuya necesidad no se puede ser pospuesta para el siguiente Plan de Capacitación Institucional, ya que produciría impacto negativo en el cumplimiento de los objetivos del área; cuya no acción podría llevar a una consecuencia del error que se puede manifestar en pérdidas económicas y de imagen.
+q. Secretario Ejecutivo: Jerarca administrativo de CONAPE.
+r. CONAPE: Comisión Nacional de Préstamos para Educación.
+s. Consejo Directivo: Máxima autoridad de CONAPE que vela por la realización de sus fines.
+t. Sección de Recursos Humanos: Unidad asesora en Gestión del Talento Humano
