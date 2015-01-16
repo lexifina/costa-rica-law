@@ -1,0 +1,1 @@
+Artículo 77.—Activos: La Dirección Financiera verificará la existencia de activos propiedad del Consejo, asignados al teletrabajador para el desempeño de sus funciones. En caso que se identifiquen anomalías como son el daño, mal uso o mantenimiento inadecuado del activo por parte del funcionario, se reportará a la jefatura involucrada para que tome las medidas correspondientes.

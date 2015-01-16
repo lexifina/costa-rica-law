@@ -1,0 +1,1 @@
+Artículo 46.—Disposición del teletrabajador en la jornada laboral: El teletrabajador debe estar disponible dentro de la jornada laboral acordada, para atender asuntos de su jefatura, compañeros y usuarios ya sea por medio del correo electrónico, teléfono, videoconferencia u otro medio.

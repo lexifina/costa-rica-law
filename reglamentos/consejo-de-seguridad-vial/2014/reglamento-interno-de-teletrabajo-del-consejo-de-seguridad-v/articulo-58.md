@@ -1,0 +1,1 @@
+Artículo 58.—Solicitud de recisión contractual de la adenda: Informar y solicitar a la Comisión Institucional de Teletrabajo la recisión contractual de la adenda al Contrato de prestación de servicios bajo la modalidad de teletrabajo en aquellos casos que no cumplen con las condiciones establecidas.

@@ -1,0 +1,7 @@
+Artículo 69.—Soporte técnico: La Asesoría en Tecnología de la Información brindará el soporte técnico a los sistemas informáticos instalados en los equipos de los teletrabajadores.
+No se brindará soporte a los problemas provocados por el teletrabajador, por el mal uso de los recursos, tales como:
+1-.Saturación de disco duro por descargas o copias de música, videos, paquetes de software, fotos o cualquier elemento ajeno a las actividades teletrabajables que esté provocando dicho problema.
+2-.Detrimento del rendimiento de la PC por descarga o copia de música, videos, paquetes de software, fotos y cualquier elemento ajeno a las funciones propias del teletrabajador.
+3-.Falla de las herramientas de trabajo por la descarga de música, videos, paquetes de software o por la instalación indebida de aplicaciones no necesarias para el teletrabajo.
+4-.Falta de actualización del sistema operativo y el antivirus de la computadora con las últimas versiones aportadas por el proveedor.
+Para los casos anteriores, el teletrabajador es responsable de dar mantenimiento al equipo y velar por el buen funcionamiento del mismo, pero de previo a realizar cualquier reparación del equipo cómputo que sea realizado por su parte o terceras personas, debe informar a la Asesoría en Tecnologías de Información para que esta proceda al bloqueo del usuario utilizado por el teletrabajador de los programas propiedad del Consejo.

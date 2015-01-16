@@ -1,0 +1,1 @@
+Artículo 30.—Evaluación de resultados: Toda actividad teletrabajable deberá ser documentada y evaluada por parte de Comisión Institucional de Teletrabajo, conforme a los indicadores previamente aprobados, a efectos de determinar el rendimiento individual del teletrabajador y de la gestión.

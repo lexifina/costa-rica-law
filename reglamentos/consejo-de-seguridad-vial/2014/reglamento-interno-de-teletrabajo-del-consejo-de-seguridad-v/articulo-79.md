@@ -1,0 +1,1 @@
+Artículo 79.—Informes estadísticos: La Dirección de Proyectos es la responsable de elaboración de los informes estadísticos y de ejecución de la gestión de teletrabajo, actividad que presentará de forma bimensual para su presentación por parte de la Dirección Ejecutiva ante la Comisión Interinstitucional de Teletrabajo.

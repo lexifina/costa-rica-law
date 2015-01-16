@@ -1,0 +1,1 @@
+Artículo 68.—Asistencia técnica: La Asesoría en Tecnologías de la Información es la responsable de brindarle al teletrabajador asistencia técnica oportuna para la resolución de los problemas que se les presente con los sistemas de información del Cosevi mediante medios remotos; en caso que no se pueda dar asistencia remota, serán atendidos in situ.

@@ -1,0 +1,1 @@
+Artículo 76.—Informes financieros: La Dirección Financiera será la responsable de emitir un informe anual a la Comisión Institucional de Teletrabajo, que permita identificar, determinar y cuantificar los beneficios institucionales obtenidos y las economías producto de la gestión de teletrabajo.

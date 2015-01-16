@@ -1,0 +1,1 @@
+Artículo 70.—Videoconferencia y comunicación: Estarán a cargo de la Asesoría en Tecnologías de la Información, como parte de las acciones que comprende la implementación del teletrabajo y el logro de sus fines como la disminución en costos institucionales por concepto de viáticos, reducción de desplazamientos y ahorro en combustibles entre otros.

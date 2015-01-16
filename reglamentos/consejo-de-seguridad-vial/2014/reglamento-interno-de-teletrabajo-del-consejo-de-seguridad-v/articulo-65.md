@@ -1,0 +1,1 @@
+Artículo 65.—Requerimientos y características tecnológicas del equipo de cómputo y comunicación: Será responsabilidad de la Asesoría en Tecnologías de Información, establecer anualmente los parámetros de los requerimientos y características mínimos del equipo de cómputo y comunicación (banda de acceso a internet),

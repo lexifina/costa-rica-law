@@ -1,0 +1,1 @@
+Artículo 56.—Medición de la gestión: La jefatura deberá evaluar las metas del teletrabajador, según metodología definida por la Comisión Institucional de Teletrabajo y recomendar las acciones que permitan mejorar el desempeño del tele trabajador. Para este fin debe llevar los registros correspondientes, realizar sesiones de seguimiento de metas e informar a los interesados.

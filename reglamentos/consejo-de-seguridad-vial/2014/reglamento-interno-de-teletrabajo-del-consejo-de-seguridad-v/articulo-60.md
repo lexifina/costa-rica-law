@@ -1,0 +1,1 @@
+Artículo 60.—Disposición de área física: La jefatura puede requerir de la realización de actividades presenciales en las oficinas, para lo cual el Cosevi debe acondicionar un espacio físico que disponga de conectividad y le permita al teletrabajador hacer sus funciones de forma transitoria en los sitios destinados para tal efecto.

@@ -1,0 +1,1 @@
+Artículo 47.—Deber de cumplimiento: Independientemente del lugar donde se desarrollen las actividades a teletrabajar, el trabajador debe cumplir con todas las condiciones que establezcan los reglamentos y procedimientos aplicables a esta modalidad.
