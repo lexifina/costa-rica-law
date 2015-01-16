@@ -14,3 +14,4 @@ Reglamento de garantías o cauciones para los funcionarios del Ministerio de Rel
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-12 | la propia norma |
+| 2 | 2015-01-16 | Decreto Ejecutivo 38969 (2015-01-16) |
