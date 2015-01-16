@@ -1,0 +1,1 @@
+Artículo 49.—Cuando se descubre un error importante en la emisión de una declaración de impuestos, o la falta de presentación de una declaración, se tiene la responsabilidad de avisar oportunamente al cliente o empleador para que se haga la rectificación correspondiente ante las autoridades fiscales.

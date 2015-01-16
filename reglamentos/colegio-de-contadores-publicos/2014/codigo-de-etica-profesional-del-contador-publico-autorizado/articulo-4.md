@@ -1,0 +1,5 @@
+CAPÍTULO II
+Confidencialidad
+Artículo 4º—Los contadores públicos autorizados tienen la obligación de respetar la confidencialidad de la información acerca del cliente, o de los incidentes del empleador que surjan durante el curso de la prestación de sus servicios profesionales. Esa confidencialidad consiste en la obligación de guardar el secreto profesional y no revelarlo por ningún motivo. Esta obligación continúa aun después de que termine la relación profesional con el cliente o empleador.
+El fiel cumplimiento del principio de confidencialidad continúa incluso después de finalizar las relaciones entre el despacho de contadores públicos y el contador público autorizado, y el cliente o la entidad para la que ha trabajado.
+Cuando el contador público autorizado cambia de empleo o consigue un nuevo cliente, tiene derecho a utilizar su experiencia previa. Sin embargo, el contador público autorizado no utilizará ni revelará ninguna información confidencial conseguida o recibida como resultado de una relación profesional o empresarial.

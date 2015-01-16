@@ -1,0 +1,1 @@
+Artículo 63.—Cuando un contador público autorizado represente al Colegio fuera del país, por designación de la Asamblea General o por la Junta Directiva, deberá rendir un informe escrito, justificando su participación como miembro activo ante la entidad.

@@ -1,0 +1,7 @@
+Transitorio I
+Modificar del acuerdo Nº 728-2014 SO28 de la sesión N.º 28- 2014 del 13 de octubre de 2014 del punto de Aceptación de un cliente omitiendo las referencias de los incisos de la a hasta las del artículo 11, debiendo leerse de la siguiente manera:
+• Aceptación de un cliente
+En ninguno de los casos siguientes puede un Contador Público aceptar a un cliente, lo contrario se consideraría falta de independencia, según el artículo 11 del Código.
+Este Código de Ética profesional fue aprobado en la sesión 37-2014 mediante acuerdo de junta directiva 940- 2014 SO 37 del 15 de diciembre del 2014 y deroga los acuerdos de junta directiva N° 667-2005 de la sesión 42- 2005 del 5 de diciembre 2005 y el acuerdo N° 206-2006 de la sesión extraordinaria 02-2006, del 2 de junio del 2006, así como las normas de igual o menor rango que se opongan al presente Código.
+(Corregido el párrafo anterior mediante Fe de Erratas, y publicada en La Gaceta N° 49 del 11 de marzo de 2015, página 52. Anteriormente dicho párrafo indicaba: “Este Código de Ética Profesional fue aprobado en la sesión 37- 2014 mediante acuerdo de Junta Directiva Nº 940-2014 SO37 del 15 de diciembre de 2014 y deroga los acuerdos N° 42-2005, celebrada el 5 de diciembre de 2005 y el acuerdo N° 186-2006 de la sesión extraordinaria de Junta Directiva N° 2-2006 del 2 de junio de 2006, así como las normas de igual o menor rango que se opongan al presente Código.”)
+El presente Código de Ética entrará en vigor una vez que se publique en el Diario Oficial La Gaceta.

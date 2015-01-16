@@ -1,0 +1,1 @@
+Artículo 14.—Cuando algún contador público autorizado acepte un puesto incompatible con el ejercicio independiente de la profesión, deberá comunicar por escrito al Colegio el retiro temporal o definitivo del ejercicio profesional, sin perjuicio de mantenerse como miembro del Colegio.

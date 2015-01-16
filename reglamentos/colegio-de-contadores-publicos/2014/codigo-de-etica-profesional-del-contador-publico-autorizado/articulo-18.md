@@ -1,0 +1,1 @@
+Artículo 18.—Un Contador Público Autorizado debe abstenerse de brindar sus servicios profesionales a una entidad, cuando ocupe un cargo directivo en su Junta Directiva, pertenezca a un Comité de esta o ejerza el puesto directivo de Fiscal.

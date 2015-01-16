@@ -1,0 +1,1 @@
+Artículo 70.—Cuando un contador público autorizado sea juzgado por los Tribunales de Justicia, se encuentre culpable y se le prive de la libertad, voluntariamente deberá solicitar la desinscripción del Colegio, o en caso contrario, la Junta Directiva procederá con la sentencia en firme a la desinscripción respectiva, cumpliendo con el debido proceso.

@@ -1,0 +1,2 @@
+Artículo 21.—El contador público autorizado debe velar por su competencia profesional, por lo que es necesario que se actualice constantemente en el desarrollo de la profesión de la contaduría.
+El contador público autorizado debe mantener el conocimiento y la aptitud profesionales al nivel necesario para permitir que los clientes o la entidad para la que trabaja, reciban un servicio profesional competente, y que su actuación responda con diligencia, de conformidad con las normas técnicas y profesionales aplicables, cuando se prestan servicios profesionales.

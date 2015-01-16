@@ -1,0 +1,1 @@
+Artículo 62.—Cuando un contador público autorizado represente al Colegio en una entidad o asociación, deberá rendir un informe escrito que justifique su actuar en beneficio de la comunidad profesional que representa. No deberá pretender sacar ventaja sobre otros colegas por dicha representación.
