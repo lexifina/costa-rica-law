@@ -658,3 +658,4 @@ MISIÓN:
 Organizar y arbitrar los procesos electorales y consultivos, así como brindar el servicio de identificación de la ciudadanía, fiscalizar las asambleas de los partidos políticos y las contribuciones financieras que estos reciben, coadyuvando además en la promoción de la cultura democrática.
 PRODUCTOS:
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 80 a La Gaceta N° 241 del 15 de diciembre de 2014, Tomo VII página 974 a la 981)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38827 del 14 de enero del 2015)

@@ -29,3 +29,4 @@ MISIÓN:
 Brindar atención y protección de forma interdisciplinaria a víctimas, testigos y otros intervinientes que se encuentran en riesgo product de la tramitación de un proceso penal, para asegurar su participación activa en dicho proceso, contribuyendo al ejercicio de sus derechos y disminuyendo la revictimización (sufrimiento que se le provoca a las víctimas y testigos, como consecuencia de la narración en el proceso penal de los hechos dolorosos provocados por el delito).
 PRODUCTOS:
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 80 a La Gaceta N° 241 del 15 de diciembre de 2014, Tomo VIII página 1089 a la 1095)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38827 del 14 de enero del 2015)
