@@ -1,0 +1,1 @@
+Artículo 16.—Evaluación. Dentro del espíritu que contempla el título V, capítulo VI del Código Municipal, el Concejo Municipal evaluara al Secretario, Auditor y contador municipal para lo cual nombrará en su seno una comisión especial compuesta por regidores de todas las fracciones municipales, que dictaminará en los términos que señala el artículo 137 del mismo cuerpo legal.
