@@ -1,0 +1,1 @@
+Artículo 65.—Las convocatorias a sesiones extraordinarias se harán siempre por escrito, con una antelación mínima de 48 horas, salvo casos de urgencia en los cuales se podrá convocar con 24 horas de antelación. Con la convocatoria se acompañará un detalle de los puntos a tratar, los cuales no podrán ser modificados en el curso de la sesión extraordinaria, salvo casos de urgencia.

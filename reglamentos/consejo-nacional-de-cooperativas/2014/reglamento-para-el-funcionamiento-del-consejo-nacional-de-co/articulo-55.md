@@ -1,0 +1,3 @@
+Artículo 55.—Las actas serán firmadas por la Presidencia y la Secretaría del Directorio, o quienes los sustituyan en la sesión en que se aprueben. También deberán firmarla aquellas personas miembros que hubieren hecho constar su voto disidente.
+Los directores o directoras podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos o exentas de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.
+Las actas de las sesiones ordinarias y extraordinarias, deberán discutirse y aprobarse en la siguiente sesión ordinaria. Las correcciones de forma y de fondo a las actas, deberán estar incorporadas en el artículo de la sesión en que se aprueben.

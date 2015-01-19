@@ -1,0 +1,1 @@
+Artículo 38.—Se procederá a la votación, para lo cual cada persona delegada escribirá en las boletas que al efecto se distribuirán, el nombre del candidato o la candidata de su elección. Podrán ser candidatos o candidatas las personas delegadas propietarias que se hallen presentes al momento de elección.

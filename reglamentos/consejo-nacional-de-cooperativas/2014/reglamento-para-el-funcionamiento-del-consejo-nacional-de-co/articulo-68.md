@@ -1,0 +1,1 @@
+Artículo 68.—Las personas miembros del Plenario o Directorio podrán hacer constar en acta su voto contrario a un acuerdo y los motivos que lo justifiquen. Podrán plantear recurso de revisión, al discutirse el acta y el recurso deberá discutirse en la misma sesión, salvo que se trate de un acuerdo firme.

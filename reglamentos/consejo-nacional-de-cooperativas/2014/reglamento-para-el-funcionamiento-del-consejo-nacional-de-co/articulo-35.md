@@ -1,0 +1,1 @@
+Artículo 35.—La instalación del Directorio y la apertura de sesiones del Plenario del Consejo Nacional de Cooperativas serán comunicadas al Ministerio de Trabajo y Seguridad Social, al Instituto Nacional de Fomento Cooperativo y a los organismos en los que el Consejo Nacional de Cooperativas tenga representación.

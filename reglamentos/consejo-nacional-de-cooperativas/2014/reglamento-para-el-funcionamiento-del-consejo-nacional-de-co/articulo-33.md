@@ -1,0 +1,1 @@
+Artículo 33.—Se elegirán también tres personas suplentes, una por cada sector de los que integran el Plenario. Ningún sector de los que integran el Plenario podrá tener más de dos personas delegadas suyas como miembros del Directorio.
