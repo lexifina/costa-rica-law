@@ -1,0 +1,1 @@
+Artículo 16.—Cobro judicial. Todas aquellas cuentas que permanezcan en el sistema municipal en cobro por más de tres meses que no haya sido cancelado, se enviara a cobro judicial directamente por medio del Departamento encargado de dichos Cobros de esta Municipalidad.

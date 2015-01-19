@@ -1,0 +1,3 @@
+Artículo 22.—Sanciones por desobediencia a la autoridad de los funcionarios municipales. Cuando los funcionarios municipales autorizados emitan órdenes escritas a los administrados éstas serán de acatamiento obligatorio, una vez que estén firmes y de acuerdo a la ley.
+Si el permisionario desobedeciere estas órdenes en evidente confrontación con la autoridad municipal, ésta podrá acudir a los Tribunales de Justicia del Poder Judicial a interponer las denuncias correspondientes a los delitos de desacato o desobediencia a la autoridad como corresponda y de acuerdo al Código Penal.
+Además la Municipalidad se reservará el derecho de presentar la correspondiente querella y la acción civil resarcitoria en estos casos.
