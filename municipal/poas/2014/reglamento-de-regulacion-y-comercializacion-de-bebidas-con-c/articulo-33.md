@@ -1,0 +1,1 @@
+Artículo 33.—Procedimiento obligado. Ninguna autoridad municipal podrá imponer las sanciones establecidas en el capítulo IV de la Ley N° 9047, si previo no se ha verificado la realización de los procedimientos de la Ley General de la Administración Pública y el Código Municipal según sea el caso, atendiendo los principios del debido proceso y el derecho a la defensa.
