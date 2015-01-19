@@ -1,0 +1,2 @@
+Revisiones domiciliarias:
+Artículo 20.—El Acueducto brindará a solicitud del cliente o por reporte de nuestro lector de hidrómetros, el servicio de revisiones domiciliarias, cuando se registre consumos excesivos de agua, que hacen presumir las existencias de fugas en las tuberías del sistema interno del cliente de igual forma dará aviso al usuario cuando exista una medición anormal que presagie fugas internas y concederá un plazo de quince días para reparar la misma.

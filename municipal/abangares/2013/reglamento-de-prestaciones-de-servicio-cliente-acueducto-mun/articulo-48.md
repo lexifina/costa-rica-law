@@ -1,0 +1,1 @@
+Artículo 48.—La tarifa ordinaria se aplicará a los servicios utilizados en locales destinados a actividades comerciales o industriales, incluyendo pequeños establecimientos comerciales que no se encuentren debidamente equipados para servir a sus clientes dentro del mismo espacio físico que ocupa.

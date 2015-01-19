@@ -1,0 +1,1 @@
+Artículo 6º—El cliente por su parte, deberá respetar al funcionario público no esperar trato contario al establecido por la Legislación, de caso contrario la Municipalidad podrá utilizar los mecanismos legales pertinentes en defensa de sus funcionarios (artículo 309 del Código Penal).

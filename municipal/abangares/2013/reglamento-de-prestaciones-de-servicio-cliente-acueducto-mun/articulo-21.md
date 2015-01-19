@@ -1,0 +1,1 @@
+Artículo 21.—El trabajador del Acueducto se limitara a indicar si existe fuga o no (ya sea en la propiedad o en el hidrómetro) y dará recomendaciones de como repararla si fuera en la propiedad y esta reparación será responsabilidad del cliente, de caso contrario es obligación de Acueducto.

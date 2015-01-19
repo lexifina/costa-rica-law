@@ -1,0 +1,1 @@
+Artículo 26.—El costo por conexión de nuevos servicios, deberá ser cancelado por el cliente al presentar la solicitud con los requisitos establecidos en el artículo 24. Si en el momento de realizar la conexión se detecta diferencias de costos, se notificará al propietario de dichas diferencias que serán incluidas para su pago en el recibo que se le factura por primera vez.

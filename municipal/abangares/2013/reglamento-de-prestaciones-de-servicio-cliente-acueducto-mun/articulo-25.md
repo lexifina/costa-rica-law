@@ -1,0 +1,2 @@
+Artículo 25.—Para brindar el servicio domiciliario en el caso de poseedores y ocupantes en precario individuales o en asentamientos consolidados de más de un año de establecidos, se procederá así:
+● Se instalarán servicios provisionales en la respectiva propiedad presentando los requisitos mencionado en el artículo anterior. El servicio se prestará provisionalmente por un plazo máximo de tres meses contado a partir del día en que se hace la respectiva solicitud.

@@ -1,0 +1,1 @@
+Artículo 35.—Para el pago del servicio en la Municipalidad, podrá recibir de cualquier persona y esta deber pagar el monto respectivo de la deuda. Tratándose de inquilinos, su relación con el propietario del inmueble siendo de orden privado y ajeno a Acueducto, se regulará de conformidad con la legislación correspondiente.

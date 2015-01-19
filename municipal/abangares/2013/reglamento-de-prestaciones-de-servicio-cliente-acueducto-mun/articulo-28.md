@@ -1,0 +1,2 @@
+Artículo 28.—Durante el disfrute del servicio, el propietario podrá solicitar al Acueducto traslados de previstas, cambios de hidrómetros, retiros provisiones del servicio, cambio de clase de categorías, constancias de calidad de agua, de disponibilidad, para realizar cualquiera de los servicios antes mencionados se debe estar completamente al día en el pago de los servicios Municipales.
+Nota: Para los traslados de previstas se evaluara por parte del fontanero los costos del trabajo y se tendrán que cancelar los mismos antes de realizar el trabajo respectivo.

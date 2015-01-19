@@ -1,0 +1,1 @@
+Artículo 59.—Cuando por alguna circunstancia no se pueda leer el hidrómetro y el acueducto no tiene disponibles, los servicios serán facturados de acuerdo a su promedio de consumo mensual de los últimos tres meses.

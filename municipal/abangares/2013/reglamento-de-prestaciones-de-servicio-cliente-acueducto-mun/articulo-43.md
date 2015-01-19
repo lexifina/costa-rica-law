@@ -1,0 +1,1 @@
+Artículo 43.—En caso de reincidencia de la conexión ilícita, o de incumplimiento del cliente en la notificación de la orden. Y de continuar con sus actos violatorios a la normativa, se procederá a aplicar el debido proceso y se pasará la denuncia correspondiente al Ministerio Público.

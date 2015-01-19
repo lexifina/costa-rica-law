@@ -1,0 +1,2 @@
+Artículo 47.—La tarifa domiciliaria se aplicara para casas y apartamentos destinados exclusivamente a la habitación, en forma permanente y sin fines de lucro. En estos casos, el uso de agua potable es para satisfacer las necesidades domésticas de las familias.
+No obstante, lo anterior cuando exista en las viviendas un local comercial adjunto, si la misma cuenta con dos salidas propias de agua, se aplicará lo dispuesto por los artículos 48, 49 del presente reglamento, caso contrario se aplicará el artículo 52.

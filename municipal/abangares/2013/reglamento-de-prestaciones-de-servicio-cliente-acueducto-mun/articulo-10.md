@@ -1,0 +1,1 @@
+Artículo 10.—Las tarifas de nuevos servicios y consumo que estable el Acueducto Municipal son aprobados por el Concejo Municipal y posteriormente publicadas en el Diario Oficial La Gaceta, y estarán vigente 30 días después de su publicación.

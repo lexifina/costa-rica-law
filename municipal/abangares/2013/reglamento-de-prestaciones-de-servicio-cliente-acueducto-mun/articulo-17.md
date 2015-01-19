@@ -1,0 +1,1 @@
+Artículo 17.—Es obligación del Acueducto Municipal dotar al cliente en el límite de su propiedad de un servicio adecuado en cuanto a calidad, cantidad y continuidad salvo en caso de fuerza mayor, caso fortuito o periódicos de mantenimiento debidamente divulgados que afecten la zona donde está localizada la propiedad.

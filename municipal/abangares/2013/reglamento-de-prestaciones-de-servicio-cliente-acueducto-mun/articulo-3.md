@@ -1,0 +1,1 @@
+Artículo 3º—La Municipalidad de Abangares por medio del Departamento de Acueducto Municipal, es una institución Autónoma de derecho público encargada de la prestación del servicio público de agua potable, en aquellas comunidades del territorio del distrito 1° del cantón de Abangares, y de otros distritos a formar parte de esta administración en un futuro.

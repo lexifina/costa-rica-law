@@ -1,0 +1,1 @@
+Artículo 30.—Cuando por cambios en el volumen de consumo el propietario requiera modificar el diámetro de su conexión de agua potable, podrá hacer la solicitud correspondiente presentando la justificación necesaria. El departamento, estudiará el caso y si se amerita, procederá a hacer el cambio solicitado, previo pago de los costos que correspondan.

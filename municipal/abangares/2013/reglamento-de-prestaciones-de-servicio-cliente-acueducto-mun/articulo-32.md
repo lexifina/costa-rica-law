@@ -1,0 +1,1 @@
+Artículo 32.—Si el propietario considera que ya no es necesaria su conexión del servicio, podrá solicitar la exclusión del registro de los clientes de Acueducto, el cliente deberá realizar la solicitud de desconexión por escrito al departamento cancelando el pendiente que tenga a la fecha, y posteriormente su derecho de reconexión si lo requieren nuevamente.

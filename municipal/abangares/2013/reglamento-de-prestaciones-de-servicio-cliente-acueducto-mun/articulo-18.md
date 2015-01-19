@@ -1,0 +1,1 @@
+Artículo 18.—Cuando técnicamente sea factible, la Municipalidad garantiza el servicio en las condiciones indicadas en el artículo 17 de tal forma que supla adecuadamente aquellas instalaciones que se encuentre hasta un segundo piso.

@@ -1,0 +1,2 @@
+Artículo 64.—Cuando se compruebe mediante prueba volumétrica que el hidrómetro no registra con exactitud de acuerdo con sus especificaciones que hagan dudar del registro del hidrómetro no se cobrará los consumos facturados en exceso, solo el promedio normal de consumo del servicio. Para el cálculo de las modificaciones se podrá utilizar las proyecciones de consumo con el nuevo hidrómetro.
+Las Juntas de Abangares, 1° de diciembre del 2014.

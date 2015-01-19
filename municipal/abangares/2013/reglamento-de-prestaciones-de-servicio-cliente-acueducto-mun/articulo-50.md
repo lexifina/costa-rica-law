@@ -1,0 +1,1 @@
+Artículo 50.—Preferencial se aplicará a los servicios donde el agua potable es utilizada en instituciones educativas como escuelas públicas o privadas y colegios, instituciones benéfica (inscrita como tales y con personerías jurídicas). Esta tarifa comprende solamente a las instituciones donde se imparte o realizan actividades de interés social.

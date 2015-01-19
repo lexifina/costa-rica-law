@@ -1,0 +1,1 @@
+Artículo 52.—Cuando en una misma conexión existen unidades de consumo con diferente uso, se aplicará la tarifa más alta. Sin embargo, el propietario puede pedir a Acueducto la individualización del servicio por clase, siempre y cuando el sistema interno permita esta separación, y con previa cancelación de los derechos de servicios nuevos.

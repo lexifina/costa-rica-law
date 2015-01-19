@@ -1,0 +1,1 @@
+Artículo 12.—Los servicios de agua potable, los suministra el Acueducto hasta el límite de propiedad. Los sistemas e instalaciones internos necesarios para el disfrute del servicio, son responsabilidad del propietario y permanencia bajo su propiedad exclusiva.

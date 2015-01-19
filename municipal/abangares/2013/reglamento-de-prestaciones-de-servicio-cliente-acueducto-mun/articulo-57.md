@@ -1,0 +1,1 @@
+Artículo 57.—Cuando un cliente solicite el traslado de conexión a un lugar distinto dentro de la misma propiedad los costos de instalación dependen de la inspección que reporte el fontanero al área administrativa.

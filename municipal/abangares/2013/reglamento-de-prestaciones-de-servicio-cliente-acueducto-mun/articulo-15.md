@@ -1,0 +1,1 @@
+Artículo 15.—El Acueducto Municipal de Abangares podrá inspeccionar, en el momento que lo consideré convenientes, las instalaciones y sistemas internos de las edificaciones privadas, correspondientes a donde se prestan los servicios, con el fin de ayudar al usuario a localizar desperfectos en sus sistemas.

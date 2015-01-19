@@ -1,0 +1,1 @@
+Artículo 55.—La tasa de conexión comprende los costos en que debe incurrir Acueducto al conectar el sistema interno, propiedad del cliente, con la red principal del Acueducto, según corresponda las características de cada caso.

@@ -1,0 +1,1 @@
+Artículo 54.—La tasa de urbanismo es un monto que debe pagar toda nueva construcción (proyectos urbanísticos) para poder disfrutar de los servicios que brinda el Acueducto, comprende los costos de ampliaciones, mejoras, modificaciones y otros que debe realizar el Acueducto en sus sistemas para ofrecer sus servicios.

@@ -1,0 +1,1 @@
+Artículo 4º—Es responsabilidad del Departamento de Acueducto Municipal, establecer los trámites necesarios para la prestación de los servicios de manera más simple y confiable en beneficios de sus clientes así como cumplir con la mayor eficiencia.

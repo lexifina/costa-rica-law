@@ -1,0 +1,1 @@
+Artículo 16.—Cuando técnicamente sea factible, el Acueducto está obligado a prestar los servicios públicos de su competencia, a todos los propietarios de inmuebles edificados o por edificar, con el fin de orientarles para garantizar los servicios de la mejor manera.

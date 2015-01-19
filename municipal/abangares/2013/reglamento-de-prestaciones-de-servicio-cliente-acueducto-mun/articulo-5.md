@@ -1,0 +1,1 @@
+Artículo 5º—El funcionario del Acueducto, es un servidor público que primordialmente se debe a los clientes a quienes debe de tratar con justicia y respeto. En este sentido, debe de tener muy presente en sus actuaciones el artículo 114 de la Ley General de Administración Pública.
