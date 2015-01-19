@@ -1,0 +1,1 @@
+Artículo 5º—Normas de acatamiento general. Los miembros del Comité de Inversiones tienen el deber de conocer y respetar las leyes y Reglamentos que rigen el sistema financiero nacional y el mercado de valores costarricenses, así como el Código de Gobierno Corporativo y el Código de Ética del Conglomerado.
