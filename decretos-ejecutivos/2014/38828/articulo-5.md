@@ -1,0 +1,1 @@
+Artículo 5º—Se insta a los entes públicos no estatales, a las organizaciones no gubernamentales, a los empresarios del sector privado y a los ciudadanos a colaborar, cooperar y coadyuvar en todo aquello que les resulte posible, necesario, oportuno o conveniente respecto de la implementación de los proyectos del programa “Costa Rica desde el Caribe”.

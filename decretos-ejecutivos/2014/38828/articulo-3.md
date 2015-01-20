@@ -1,0 +1,1 @@
+Artículo 3º—Se solicita a los órganos, entes y empresas públicas que no sean responsables de los proyectos integrados en el programa “Costa Rica desde el Caribe” a colaborar, cooperar y coadyuvar en todo aquello que resulte necesario, oportuno o conveniente dentro del ejercicio de sus facultades y competencias, por medio de los requerimientos que les gire COREDES-PROLI.

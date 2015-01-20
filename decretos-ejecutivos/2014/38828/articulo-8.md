@@ -1,0 +1,1 @@
+Artículo 8º—El COREDES-PROLI presentará informes trimestrales a la Presidencia de la República sobre el avance de los proyectos integrados en el programa “Costa Rica desde el Caribe”. Asimismo, COREDES-PROLI coordinará anualmente una convocatoria ciudadana donde informará sobre los resultados del programa “Costa Rica desde el Caribe”.

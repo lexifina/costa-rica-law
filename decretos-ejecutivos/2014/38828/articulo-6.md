@@ -1,0 +1,1 @@
+Artículo 6º—Se invita a los Poderes Legislativo y Judicial, con sus respectivos órganos, a colaborar, cooperar y coadyuvar en la realización de los proyectos del programa “Costa Rica desde el Caribe”, conforme sus facultades y competencias.
