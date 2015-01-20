@@ -14,3 +14,4 @@ Reglamento para el sistema de facturación del acueducto de la Municipalidad del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-10-12 | la propia norma |
+| 2 | 2015-01-20 | Reglamento municipal 0 (2015-01-20) |
