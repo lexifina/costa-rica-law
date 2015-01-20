@@ -1,1 +1,0 @@
-Artículo 7º—La Comisión Afrocostarricense, con la aprobación del Ministerio de Relaciones Exteriores y Culto, establecerá su propio programa de trabajo en concordancia con sus objetivos y estrategias, y se organizará mediante grupos de trabajo, subcomisiones específicas, provinciales, cantonales y locales.

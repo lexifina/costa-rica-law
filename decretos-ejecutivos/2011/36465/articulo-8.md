@@ -1,1 +1,0 @@
-Artículo 8º—Constituir dos Subcomisiones Provinciales, una en Guanacaste y otra en Limón; encargadas específicamente de organizar actividades en sus respectivas provincias. Todos los nombramientos realizados en el presente decreto y los que se fundamenten en él, serán ad honorem.
