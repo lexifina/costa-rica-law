@@ -1,0 +1,1 @@
+Artículo 31.—Quórum. El quórum para que el Consejo Asesor Académico y Técnico sesione válidamente en primera convocatoria será el de la totalidad de sus miembros. Si no hubiere quórum el Consejo podrá sesionar válidamente en segunda convocatoria treinta minutos después de la sesión original, con tres de sus miembros.

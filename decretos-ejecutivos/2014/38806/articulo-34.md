@@ -1,0 +1,1 @@
+Artículo 34.—Presupuesto de operación. El Consejo Asesor Académico y Técnico contará con presupuesto asignado por el Consejo Directivo, para gastos operativos y que contemplan además, el monto para el respectivo pago de dietas a los representantes externos. El cálculo de dicha dieta será el mismo aplicado a los miembros del Consejo Directivo.

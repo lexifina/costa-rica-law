@@ -1,0 +1,1 @@
+Artículo 40.—Programas de financiamiento. En materia de tipos de programas de financiamiento, plazos, formas de pago, requisitos y demás disposiciones, será de aplicación la Ley que Crea Fondo de Apoyo para Educación Superior y Técnica del Puntarenense, Ley N° 7667 del 9 de abril de 1997 y el Reglamento de Programas de Financiamiento dictado por el Consejo Directivo de FAESUTP.

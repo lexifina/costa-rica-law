@@ -1,0 +1,7 @@
+Artículo 7º—Integración del Consejo Directivo. Según las disposiciones presentes en el artículo 6 de la Ley N° 7667, Ley que “Crea Fondo de Apoyo para Educación Superior y Técnica del Puntarenense”, el Consejo Directivo de FAESUTP estará conformado por los siguientes miembros:
+a) Tres representantes municipales de los cantones de la Provincia de Puntarenas, quienes deberán ser educadores (as) activos o pensionados, con diez años de experiencia docente como mínimo. Se elegirá un(a) representante de las Municipalidades de cada una de las siguientes regiones: Pacífico sur, Cantón Central y Pacífico Central. Esta última incluye los Cantones de Montes de Oro y Esparza, electos según las disposiciones presentes en el artículo 8 de este Reglamento.
+b) Un(a) representante del Colegio Universitario de Puntarenas.
+c) Un(a) representante del Ministerio de Educación Pública, escogido entre los director es regionales de ese Ministerio en la provincia.
+d) Un(a) representante del Instituto Nacional Aprendizaje seleccionado entre los directores de las sedes regionales en la provincia.
+e) Un(a) representante designado por el Consejo Nacional de Rectores entre los jerarcas de cada una de las sedes regionales de los centros universitarios de la provincia.
+En la elección de los representantes mencionados en los incisos b), c), d) y e), se aplicaran las disposiciones presentes en el artículo 6 de la Ley N° 7667, Ley que “Crea Fondo de Apoyo para Educación Superior y Técnica del Puntarenense”.

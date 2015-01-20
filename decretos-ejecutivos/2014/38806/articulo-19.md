@@ -1,0 +1,1 @@
+Artículo 19.—Dietas. Las personas miembros del Consejo Directivo devengarán dietas iguales a las que perciban los integrantes del Consejo Nacional de Préstamos para la Educación, pero limitadas a un máximo de dos dietas por mes.

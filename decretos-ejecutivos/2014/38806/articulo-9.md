@@ -1,0 +1,3 @@
+Artículo 9º—Plazo del nombramiento. Una vez electas las personas miembros del Consejo Directivo, estas iniciarán funciones a partir del primero de julio del año respectivo de su nombramiento.
+El o la presidenta del Consejo Directivo será nombrado (a) de entre los miembros del órgano colegiado, por la votación de mayoría simple de estos y durará en su cargo un año, pudiendo ser reelecto. A su vez, el presidente del Consejo Directivo tomará posesión de su cargo el día de su elección.
+Las personas miembros del Consejo Directivo permanecerán en sus cargos por periodos de dos años, pero podrán ser reelegidos indefinidamente al terminar cada período.

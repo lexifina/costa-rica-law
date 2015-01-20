@@ -1,0 +1,1 @@
+Artículo 36.—Normativa. Las relaciones laborales entre el personal administrativo y FAESUTP se regirán por las disposiciones del Código de Trabajo y el Reglamento Autónomo de Trabajo aprobado por el Consejo Directivo de FAESUTP.

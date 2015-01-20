@@ -1,0 +1,1 @@
+Artículo 26.—Régimen de responsabilidad. El (a) Director(a) Ejecutivo(a), cuando faltare a las obligaciones inherentes a sus funciones, podrá ser sancionado o destituido de su cargo por votación no inferior a las dos terceras partes del total de los miembros del Consejo Directivo, respetándose la normativa laboral vigente.

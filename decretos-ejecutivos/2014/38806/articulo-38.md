@@ -1,0 +1,1 @@
+Artículo 38.—Asignación de becas o financiamiento. En materia de mecanismos, controles, requisitos y disposiciones en general para la asignación de becas o financiamiento a estudiantes por parte de FAESUTP, serán de aplicación los reglamentos de becas y programas de financiamiento que dicte el Consejo Directivo de FAESUTP.

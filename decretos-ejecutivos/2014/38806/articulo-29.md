@@ -1,0 +1,2 @@
+Artículo 29.—Sesiones. El Consejo Asesor Académico y Técnico se reunirá ordinariamente una vez al mes y extraordinariamente cuando sea necesario. Las sesiones extraordinarias serán convocadas por el (la) coordinador(a) de oficio o a solicitud de tres de sus integrantes.
+Las reuniones se realizarán generalmente en la sede central principal del FAESUTP, sin embargo, podrán efectuarse en cualquier otro lugar si así lo acuerda en sesión previa el propio Consejo Asesor Académico y Técnico mediante votación por mayoría simple de los miembros presentes.

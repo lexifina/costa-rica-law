@@ -1,0 +1,1 @@
+Artículo 25.—Ausencia temporal del (la) Director(a) Ejecutivo(a). En caso de ausencia temporal del (la) Director (a) Ejecutivo (a), el Consejo Directivo nombrará en forma interina a un(a) funcionario(a) de la Institución que deberá cumplir los mismos requisitos que se exigen al Director Ejecutivo.

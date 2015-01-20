@@ -1,0 +1,1 @@
+Artículo 32.—Votaciones. Los acuerdos serán adoptados por mayoría simple de los (as) miembros presentes. En caso de que el Consejo haya sesionado en segunda convocatoria con la sola presencia de tres de sus miembros (as), podrá tomarse un acuerdo con el voto favorable de los miembros presentes.

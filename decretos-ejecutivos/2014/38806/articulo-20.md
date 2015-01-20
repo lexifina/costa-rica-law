@@ -1,0 +1,1 @@
+Artículo 20.—Asistencia a sesiones. A las personas miembros del Consejo Directivo se les cancelaran las dietas por su asistencia y permanencia en las sesiones ordinarias del Consejo Directivo. El miembro del Consejo Directivo que se ausente o llegue tarde a la hora programada de una sesión, o bien rompa el quórum, perderá la dieta de esa sesión.

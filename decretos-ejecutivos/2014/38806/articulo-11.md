@@ -1,0 +1,1 @@
+Artículo 11.—Pérdida de Credenciales. Las personas miembros del Consejo Directivo perderán su credencial por ausencia a tres sesiones consecutivas o seis alternas en ambos casos injustificadas en el período de un año.

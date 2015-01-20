@@ -1,0 +1,2 @@
+Artículo 33.—Actas. De cada sesión se levantará un acta en la que se hará constar las personas asistentes a la misma, las circunstancias de tiempo y lugar en que se ha celebrado, los puntos principales de la deliberación la forma y resultados de la votación y el contenido de los acuerdos.
+Las actas deberán ser aprobadas en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que la totalidad de los miembros del Consejo decidan aprobar acuerdos en la misma sesión.

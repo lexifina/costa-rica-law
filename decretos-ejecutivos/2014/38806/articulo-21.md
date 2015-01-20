@@ -1,0 +1,1 @@
+Artículo 21.—Pago de dietas. El pago de la dieta se hará en la primera semana del mes posterior a la realización de las sesiones, para ello la administración de FAESUTP dispondrá de los medios de pago correspondientes.
