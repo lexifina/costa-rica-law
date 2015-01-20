@@ -1,0 +1,4 @@
+Artículo 5.-Usos inadmisibles.
+Será prohibido el acceso y uso de la información contenida en La Plataforma con carácter personal o vinculante con actividades distintas reguladas en este protocolo.
+Se prohíbe prestar el usuario y clave o dejarlos disponibles para que terceros lo usen, cada usuario deberá velar porque una vez acabado el uso respectivo de los sistemas, se cierre la sesión de trabajo, igualmente quien aprovechándose del descuido por parte de una persona usuaria y accese ilegítimamente, casos en los cuales estarán expuestos a las sanciones correspondientes.
+De conformidad con el artículo 13 de la Ley Contra la Delincuencia Organizada, se impondrá pena de prisión de dos a ocho años, a quien acceda ilícitamente los datos almacenados o procesados en la PIP. Igual pena se impondrá a quien, de modo ilícito, divulgue, recopile o reproduzca dicha información.
