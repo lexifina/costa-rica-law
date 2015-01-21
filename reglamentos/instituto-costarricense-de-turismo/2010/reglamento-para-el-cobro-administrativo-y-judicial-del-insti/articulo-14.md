@@ -1,1 +1,0 @@
-Artículo 14.—Formalización del arreglo de pago. La formalización del arreglo de pago se realizará ante el Proceso de Ingresos, único competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicho Proceso para tales efectos. El título ejecutivo que se emita debe llevar el refrendo de la Asesoría Legal.

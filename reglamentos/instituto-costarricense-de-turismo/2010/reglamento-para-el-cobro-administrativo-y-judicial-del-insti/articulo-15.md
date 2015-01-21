@@ -1,1 +1,0 @@
-Artículo 15.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencida o cuando se haya retrasado treinta días hábiles en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa de cobro judicial.

@@ -1,1 +1,0 @@
-Artículo 3º—Ámbito de aplicación. Este Reglamento será de aplicación obligatoria, tanto para el Proceso de Ingresos como para la Asesoría Legal del ICT, para gestionar el cobro administrativo y judicial de las obligaciones dinerarias que se le adeuden al ICT.
