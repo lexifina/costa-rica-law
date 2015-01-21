@@ -14,3 +14,4 @@ Procedimiento para la selección de contratación del banco o bancos colocadores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-10 | la propia norma |
+| 2 | 2015-01-21 | Acuerdo 5 (2015-01-21) |
