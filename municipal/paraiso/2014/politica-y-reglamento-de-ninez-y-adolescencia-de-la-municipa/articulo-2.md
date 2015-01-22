@@ -1,0 +1,1 @@
+Artículo 2º—Esta comisión va a determinar anualmente las líneas de trabajo sobre diversos temas de la niñez y adolescencia de acuerdo con las necesidades de la comunidad procurando siempre el mayor bienestar de este sector de la comunidad.

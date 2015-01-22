@@ -1,0 +1,1 @@
+Artículo 7º—Esta comisión va a tener sesiones ordinarias y extraordinarias. Las sesiones ordinarias van a llevarse a cabo trimestralmente y las sesiones extraordinarias se van a llevar a cabo cuando alguno de los miembros lo solicite, con un máximo de una sesión por mes.

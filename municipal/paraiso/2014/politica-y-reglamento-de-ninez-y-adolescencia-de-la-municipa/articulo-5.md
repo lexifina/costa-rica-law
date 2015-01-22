@@ -1,0 +1,1 @@
+Artículo 5º—Las votaciones mediante las cuales se van a elegir a un niño, una niña y dos adolescentes que van a formar parte de la comisión de niñez y adolescencia van a ser organizadas por la municipalidad y se procurara informar y promover la participación de la mayor cantidad de niños, niñas y adolescentes de la comunidad.
