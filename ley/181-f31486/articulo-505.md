@@ -1,11 +1,12 @@
-Artículo 505.- La Sociedad de Seguros de Vida del Magisterio Nacional estará dirigida por una junta directiva, integrada por ocho miembros en la siguiente forma:
-a) Tres representantes designados por la directiva central de la Asociación Nacional de Educadores (ANDE);
-b) Dos representantes designados por la directiva central de la Asociación de Educadores Pensionados;
-c) Un representante designado por la directiva central de la Asociación de Profesores de Segunda Enseñanza;
-d) Un representante designado por la directiva de la Asociación de profesores y funcionarios de la Universidad de Costa Rica; y
-e) Un representante de los educadores reincorporados o de quienes no están afiliados a ninguna asociación, nombrados directamente por el Ministerio de Educación Pública.
-Las directivas de las asociaciones mencionadas comunicarán, en el mes de febrero que corresponda, los nombres de sus representantes al Ministerio de Educación Pública, para que se proceda a nombrar la junta directiva de la sociedad, por decreto ejecutivo.
-El nombramiento debe hacerse en la primera quincena del mes de marzo siguiente, y las personas nombradas deberán juramentarse ante el Ministro de Educación Pública, a mas tardar ocho días después de la publicación del decreto de nombramiento, para asumir sus funciones el día 1º de abril correspondiente.
-Los miembros de la junta directiva de la sociedad, desempeñaran sus cargos por períodos de tres años y podrán ser reelectos consecutivamente por una sola vez.
-Cuando se produzcan vacantes por causas que no sean la terminación del período legal, la reposición se hará por el resto del período con personas designadas en la forma que se indica en este artículo, según el caso.
-(Así reformado por el artículo 1° de la ley N° 4204 de 21 de octubre de 1968)
+Artículo 505.- La Sociedad de Seguros de Vida del Magisterio Nacional estará dirigida por una junta directiva, integrada por nueve miembros de la siguiente forma:
+a) Tres representantes designados por la Directiva Central de la Asociación Nacional de Educadores (ANDE).
+b) Dos representantes designados por la Directiva Central de la Asociación de Educadores Pensionados (ADEP).
+c) Un representante designado por la Directiva Central de la Asociación de Profesores de Segunda Enseñanza (APSE).
+d) Un representante designado por la Directiva de la Asociación de Profesores y Funcionarios de la Universidad de Costa Rica (Asprofu).
+e) Un representante de los educadores reincorporados o de quienes no están afiliados a ninguna asociación, nombrado directamente por el Ministerio de Educación Pública (MEP).
+f) Un representante designado por el Sindicato de Trabajadoras y Trabajadores de la Educación Costarricense (SEC), conforme a sus estatutos y normas internas.
+Las directivas de las organizaciones magisteriales mencionadas comunicarán, en el mes de febrero que corresponda, los nombres de los representantes al Ministerio de Educación (MEP), para que proceda a nombrar la Junta Directiva de la Sociedad por decreto ejecutivo.
+El nombramiento debe hacerse en la primera quincena del mes de marzo siguiente; las personas nombradas deberán juramentarse ante el ministro de Educación Pública (MEP), a más tardar ocho días después de la publicación del decreto de nombramiento, para asumir funciones el 1º de abril correspondiente.
+Los miembros de la Junta Directiva de la Sociedad desempeñarán sus cargos por un período de tres años y podrán ser reelegidos consecutivamente una sola vez.
+Cuando se produzcan vacantes por causas que no sean la terminación del período legal, la reposición se hará por el resto del período con personas designadas de la forma que se indica en este artículo, según sea el caso.
+(Así reformado por el artículo único de la ley N° 9281 del 27 de octubre del 2014)
