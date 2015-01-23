@@ -1,0 +1,1 @@
+Artículo 10.—De los notificadores. El (la) notificador (a) es aquel funcionario auxiliar de la Unidad de Gestión de Cobro designado por el Alcalde Municipal e investido de fe pública, para llevar a cabo la entrega a los contribuyentes morosos de los distintos avisos de cobro y documentos emitidos por el encargado de la Unidad.

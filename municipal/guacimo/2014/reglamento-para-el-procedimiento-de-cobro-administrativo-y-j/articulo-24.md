@@ -1,0 +1,1 @@
+Artículo 24.—Formalización del arreglo de pago. Se realizará ante la unidad de cobros única unidad competente para realizar esta gestión, mediante la suscripción del documento idóneo que tendrá dicha unidad para tales efectos, siempre y cuando la persona sujeta pasiva haya cumplido con los requisitos que se exija para tal gestión.

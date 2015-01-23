@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento será de aplicación obligatoria para la oficina encargada de cobro en la Municipalidad, así como para los profesionales en derecho que trabajen en forma interna o externa para tramitar en sede judicial el proceso cobratorio.

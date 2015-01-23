@@ -1,0 +1,1 @@
+Artículo 13.—Colaboración al personal de la Administración Tributaria Municipal. Los (a) contribuyentes responsables, declarantes y terceros, deben atender a los funcionarios (as) de la Administración Tributaria Municipal y prestarles la mayor colaboración en el desarrollo de sus funciones.

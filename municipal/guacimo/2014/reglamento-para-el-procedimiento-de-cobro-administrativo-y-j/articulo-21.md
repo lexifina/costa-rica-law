@@ -1,0 +1,3 @@
+SUBSECCIÓN II
+De los arreglos de pago
+Artículo 21.—Arreglos de pago. El arreglo de pago es el compromiso que adquiere la persona sujeta pasiva con la sección de cobros de la municipalidad de pagar dentro del tiempo convenido por ambos, que no podrá exceder de ocho meses y solo en casos excepcionales se dará un plazo de un año, la obligación vencida adeudada a la municipalidad. Únicamente procederá cuando el cobro se encuentre en la etapa administrativa o cuando no se compruebe el incumplimiento de un arreglo de pago. Una vez suscrito un arreglo de pago podrá realizarse otro nuevamente cuando haya trascurrido un plazo de un año. En la fase de cobro judicial podrá suscribir arreglos de pago quien no los haya incumplido.

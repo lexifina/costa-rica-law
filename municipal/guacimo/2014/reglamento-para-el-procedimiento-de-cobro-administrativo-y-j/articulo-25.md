@@ -1,0 +1,1 @@
+Artículo 25.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente mediante el pago total que realice la persona sujeta pasiva de la obligación vencida o cuando se haya retrasado dos cuotas en el cumplimiento de su obligación, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa de cobro judicial.

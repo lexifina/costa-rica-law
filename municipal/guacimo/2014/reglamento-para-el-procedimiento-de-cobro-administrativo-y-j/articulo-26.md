@@ -1,0 +1,1 @@
+Artículo 26.—Monto mínimo para realizar arreglos de pago. Únicamente procederán arreglos de pago cuando las obligaciones vencidas sean por un monto mayor a ¢ 30.000,00 colones, Salvo en casos muy calificados y únicamente con las jefaturas de cobros, se procederá a realizar el arreglo de pago en deudas inferiores a este monto.

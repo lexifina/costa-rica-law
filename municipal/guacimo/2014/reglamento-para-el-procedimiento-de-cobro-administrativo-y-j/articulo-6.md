@@ -1,0 +1,2 @@
+Artículo 6º—Composición. La Unidad de Gestión de Cobro estará conformada por un encargado (a), los colaboradores y los notificadores que resulten necesarios. Éstos últimos son las personas encargadas de llevar a cabo el acto notificador de los avisos emanados en el proceso administrativo de gestión de cobro a los contribuyentes morosos.
+El encargado (a) será el (la) responsable de la planificación y organización de la unidad, así como de la supervisión y coordinación de las labores de los notificadores.

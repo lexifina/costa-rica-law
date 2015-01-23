@@ -1,0 +1,1 @@
+Artículo 40.—Del nombramiento. Al ser nombrado como abogado del rol de cobro judicial, y una vez firmado el contrato correspondiente, la Unidad de Cobro de la Municipalidad, definirá los criterios para asignación de casos, siempre respetando los principios de igualdad y equidad entre los gestores; dichos criterios de asignación serán puestos en conocimiento de los gestores.
