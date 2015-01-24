@@ -1,0 +1,1 @@
+Artículo 5º—Concordancia. Lo dispuesto en este Reglamento será aplicado en concordancia con las disposiciones establecidas en la respectiva Reglamentación vigente, emitida por el Poder Ejecutivo para regular lo concerniente a las Juntas Educativas y Administrativas, así como a los comedores escolares.

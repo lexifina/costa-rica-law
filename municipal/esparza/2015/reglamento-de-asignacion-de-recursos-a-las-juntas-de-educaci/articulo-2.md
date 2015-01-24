@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento aplica para todas las Juntas de Educación, las Juntas Administrativas y los Comedores de las instituciones de educación pública del cantón de Esparza, según la división jurisdiccional que establezca el Ministerio de Educación Pública.

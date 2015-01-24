@@ -1,0 +1,1 @@
+Artículo 17.—Disposición de los recursos. Las Juntas no podrán gestionar o disponer el uso de estos recursos, hasta que se compruebe el depósito realizado por la Municipalidad en su respectiva cuenta.

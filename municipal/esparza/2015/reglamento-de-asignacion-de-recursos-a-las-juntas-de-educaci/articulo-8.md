@@ -1,0 +1,1 @@
+Artículo 8º—Fiscalización. La Municipalidad se encuentra debidamente facultada por Ley, para realizar la adecuada fiscalización del cobro efectivo de este tributo, por medio de los procedimientos que considere necesarios.

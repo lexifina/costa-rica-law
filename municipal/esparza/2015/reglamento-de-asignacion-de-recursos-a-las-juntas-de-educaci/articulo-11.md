@@ -1,0 +1,1 @@
+Artículo 11.—Informe oficial de matrícula. Para cumplir con lo dispuesto en el artículo anterior la Dirección Regional de Educación, en marzo de cada año, deberá comunicar a la Municipalidad, el último dato oficial de matrícula del cual disponga, para cada uno de los centros educativos de esta jurisdicción.

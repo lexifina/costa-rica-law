@@ -1,0 +1,1 @@
+Artículo 4º—Población beneficiada. Todos los niños, niñas y adolescentes que se encuentren cursando algún ciclo lectivo dentro del programa de educación pública en instituciones establecidas en la jurisdicción del cantón según la división definida por el MEP.

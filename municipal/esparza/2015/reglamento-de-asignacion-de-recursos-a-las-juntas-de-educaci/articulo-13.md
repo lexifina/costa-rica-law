@@ -1,0 +1,1 @@
+Artículo 13.—Formulario de Planes de Inversión. La Municipalidad deberá suministrar el formulario o formato por medio del cual, las Juntas de Educación y Juntas Administrativas acordarán y presentarán los planes de inversión que se financiarán con los recursos a transferir, de conformidad con el artículo anterior.

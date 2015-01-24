@@ -1,0 +1,1 @@
+Artículo 14.—Cuenta Bancaria. Cada Junta de Educación y Junta Administrativa, deberá proporcionar a la Municipalidad, un número de cuenta bancaria donde se le pueda realizar la transacción o el depósito de los montos correspondientes.
