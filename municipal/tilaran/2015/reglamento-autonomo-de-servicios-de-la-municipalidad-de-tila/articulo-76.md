@@ -1,0 +1,1 @@
+Artículo 76.—En los casos que estén debidamente justificados por presentarse alguna emergencia de tipo familiar, ante la jefatura de unidad o coordinadores facultados para otorgar el permiso correspondiente, siempre que no exceda de un día.

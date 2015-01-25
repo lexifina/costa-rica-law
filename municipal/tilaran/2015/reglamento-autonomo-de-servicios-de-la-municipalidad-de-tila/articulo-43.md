@@ -1,0 +1,1 @@
+Artículo 43.—La compensación económica por concepto de prohibición del ejercicio particular de la profesión y Disponibilidad, se regulará conforme lo indique su propio reglamento y la legislación vigente.

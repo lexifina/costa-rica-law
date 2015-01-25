@@ -1,0 +1,1 @@
+Artículo 80.—No obstante lo dispuesto en el artículo anterior, estarán obligados a prestar sus servicios hasta por 12 horas diarias, con hora y media de descanso, conforme lo dispuesto en el Código de Trabajo.

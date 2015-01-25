@@ -1,0 +1,1 @@
+Artículo 40.—En caso de recargo de funciones, el servidor devengará el salario base correspondiente a la categoría del puesto que se le recargue, todo de conformidad con lo señalado en la circular 8060 de la Contraloría General de la República, en su versión actualizada.

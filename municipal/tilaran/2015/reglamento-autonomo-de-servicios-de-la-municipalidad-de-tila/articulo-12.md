@@ -1,0 +1,1 @@
+Artículo 12.—Los expedientes del personal deberán contener todos aquellos documentos y datos que sirvan para determinar el historial de la relación de servicios y será responsabilidad del funcionario aportar la documentación que permita actualizarlo.

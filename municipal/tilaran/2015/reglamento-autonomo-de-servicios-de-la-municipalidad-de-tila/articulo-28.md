@@ -1,0 +1,1 @@
+Artículo 28.—Son servidores municipales nombrados de acuerdo con el artículo 125 del Código Municipal y que satisfacen los requisitos que establece el Manual Descriptivo de Puestos de la Municipalidad, el artículo 111 de la Ley General de la Administración Pública, y lo estipulado en el artículo 118 del Código Municipal.

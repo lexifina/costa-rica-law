@@ -1,0 +1,1 @@
+Artículo 51.—Todo funcionario municipal tendrá derecho a presentar ante la Comisión de Salud Ocupacional las quejas y propuestas tendientes a mejorar las condiciones laborales, con el propósito de que esta canalice la solución del problema a través de los medios adecuados.

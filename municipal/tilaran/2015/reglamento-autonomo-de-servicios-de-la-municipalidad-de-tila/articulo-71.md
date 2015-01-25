@@ -1,0 +1,1 @@
+Artículo 71.—Cuando un servidor haya disfrutado de un permiso sin goce de salario o haya estado incapacitado, las vacaciones se le computarán de igual manera como si hubiera estado laborando, ya que la relación de trabajo no está finiquitada. Esto para el pago de vacaciones si se termina la relación laboral o bien para su disfrute, si tal relación continúa.

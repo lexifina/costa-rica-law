@@ -1,0 +1,2 @@
+Artículo 4º—La Municipalidad propiciará la efectiva vigencia de los principios universales del Derecho Laboral y aplicará las sanciones pertinentes a los responsables por la violación de dicha normativa, atendiendo el debido proceso.
+La aplicación de este reglamento corresponde al Alcalde Municipal o al Concejo Municipal, según concierna y rige para todos los funcionarios. Cualquier ambigüedad que contenga este reglamento deberá ser interpretada o aclarada conforme a la jerarquía de las fuentes del Derecho.

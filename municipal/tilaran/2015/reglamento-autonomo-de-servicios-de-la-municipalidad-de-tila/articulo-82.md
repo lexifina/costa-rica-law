@@ -1,0 +1,1 @@
+Artículo 82.—Son días hábiles todos los días del año, excepto los feriados considerados en el Código de Trabajo. Los días que no se encuentran contemplados como feriados en el Código de Trabajo, podrán ser disfrutados por el trabajador(a) a su conveniencia, con la debida autorización del jerarca administrativo.

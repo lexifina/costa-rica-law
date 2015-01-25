@@ -1,0 +1,1 @@
+Artículo 81.—Los funcionarios de la Municipalidad desempeñarán sus funciones durante todos los días hábiles y durante las horas reglamentarias. No se podrá conceder permisos para trabajar menos horas de la jornada ordinaria, salvo por motivos de estudio, en la forma regulada, por el Reglamento de Capacitación.
