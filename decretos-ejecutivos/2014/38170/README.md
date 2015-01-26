@@ -14,3 +14,4 @@ Organización administrativa de la oficinas centrales del Ministerio de Educaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-13 | la propia norma |
+| 2 | 2015-01-26 | Decreto Ejecutivo 38926 (2015-01-26) |

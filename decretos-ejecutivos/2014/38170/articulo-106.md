@@ -6,5 +6,6 @@ d) Promover el uso de las tecnologías de la información y la comunicación (TI
 e) Elaborar y administrar instrumentos de medición para los docentes, de acuerdo con criterios técnicos para promover su desarrollo profesional y capacitación.
 f) Formular recomendaciones para el mejoramiento de la evaluación académica y la medición de competencias.
 g) Administrar un sistema de registro de resultados de las pruebas nacionales aplicadas en el sistema educativo.
-h) Realizar la certificación de títulos extranjeros.
+h) Establecer los lineamientos y procedimientos para el reconocimiento y equiparación de títulos de educación primaria y secundaria otorgados a estudiantes que cursaron sus estudios en el extranjero.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38926 del 26 de enero de 2015)
 i) Otras funciones inherentes, relacionadas con su ámbito de competencia y atribuciones, asignadas por el superior jerárquico.
