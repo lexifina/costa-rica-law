@@ -1,0 +1,1 @@
+Artículo 11.—Excedente. El usuario deberá cubrir el monto que exceda las tarifas autorizadas, para ello la Tesorería Municipal, deberá llevar un control de consumo, con la finalidad de que el funcionario responsable cancele el monto excedido, caso contrario, será deducido de planilla según la autorización establecida en el contrato.

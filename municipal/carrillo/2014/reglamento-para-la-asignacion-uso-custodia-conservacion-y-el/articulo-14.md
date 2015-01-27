@@ -1,0 +1,1 @@
+Artículo 14.—Control de pagos. La Tesorería Municipal es el departamento encargado de tramitar el pago oportuno de las facturas de los servicios de telefonía celular propiedad de la Municipalidad, quien deberá emitir un control del consumo, en forma separada, de cada uno de esos servicios e informar mensualmente a la Auditoría Interna.
