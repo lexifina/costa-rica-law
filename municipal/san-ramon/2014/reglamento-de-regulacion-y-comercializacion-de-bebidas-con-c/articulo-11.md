@@ -1,0 +1,1 @@
+Artículo 11.—Solidaridad. Los sujetos pasivos -persona física o jurídica-, con los responsables, obligados o representantes de ías personas jurídicas, ante la Hacienda Municipal serán solidariamente responsables por la no presentación de declaración cuando les sea requerido o el no pago del impuesto, diferencias, multas y demás recargos establecido en la Ley y este Reglamento.
