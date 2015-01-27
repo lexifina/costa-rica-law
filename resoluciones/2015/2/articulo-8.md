@@ -1,0 +1,2 @@
+8º—Modifíquese la disposición segunda transitoria de la resolución ACLA-P-D-193-2014, para que en adelante se lea de la siguiente manera:
+2°—En virtud de la excepción prevista en el artículo 36 del Decreto Ejecutivo número D.E. 38295-MINAE, Publicado en La Gaceta N° 82 del 30 de abril de 2014, y del contrato N° 2013-000043- 00 el monto por concepto de alojamiento por noche en el Albergue Crestones será determinado por la administración conforme a los términos del contrato.

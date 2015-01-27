@@ -1,0 +1,2 @@
+6º—Modifíquese el punto 8 de las disposiciones generales de la resolución ACLA-P- D-193-2014, para que en adelante se lea de la siguiente manera:
+8.- La administración del Parque Nacional Chirripó pondrá a disposición de los usuarios la cantidad de 364 (trescientos sesenta y cuatro) espacios por semana para permanecer en el Albergue Base Crestones, 52 (cincuenta y dos) espacios por día, los cuales serán reservados en su totalidad utilizando los medios autorizados definidos en la disposición primera del procedimiento de la presente resolución.

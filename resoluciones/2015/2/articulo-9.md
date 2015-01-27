@@ -1,0 +1,2 @@
+9º—Contra la presente resolución proceden los recursos ordinarios de revocatoria y/o apelación, de conformidad con los artículos 343 y siguientes de la Ley General de la Administración Pública, los cuales serán resueltos, el de revocatoria por el mismo órgano que lo dictó y el de apelación por el Consejo Nacional de Áreas de Conservación. Los recursos deberán interponerse ante el órgano que dicta ésta resolución dentro de los tres días posteriores a su publicación.
+Publíquese.
