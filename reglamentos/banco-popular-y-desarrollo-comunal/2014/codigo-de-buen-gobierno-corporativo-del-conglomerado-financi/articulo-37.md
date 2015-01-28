@@ -1,0 +1,1 @@
+Artículo 37.—Plan de trabajo anual. Cada Comité de Apoyo o comisión deberá elaborar un plan de trabajo anual que será aprobado por la Junta Directiva respectiva a más tardar en el mes de diciembre del año anterior a su vigencia.

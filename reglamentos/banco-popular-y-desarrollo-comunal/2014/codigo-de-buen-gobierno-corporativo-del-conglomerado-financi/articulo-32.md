@@ -1,0 +1,1 @@
+Artículo 32.—Comités de Apoyo creados por normativa externa. El Conglomerado cuenta con los Comités de Apoyo de: Auditoría Corporativo, Riesgo, Cumplimiento y Tecnología de Información y cualquier otro que llegare a determinar la normativa externa aplicable.

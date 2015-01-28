@@ -1,0 +1,3 @@
+Artículo 25.—Política sobre el trato con los copropietarios del Banco. El Banco Popular es propiedad de los trabajadores y las trabajadoras del país por partes iguales y el derecho a la copropiedad estará sujeto a que hayan tenido una cuenta de ahorro obligatorio durante un año continuo o en períodos alternos.
+Como consecuencia del principio de transparencia e igualdad que guía la actuación del Conglomerado, el Banco Popular procurará que todos sus copropietarios y copropietarias puedan tener acceso a una información correcta, veraz, oportuna y sustancialmente igual dentro del mismo espacio de tiempo.
+Tratándose de las Sociedades que integran el Conglomerado, el Banco Popular es su único accionista.
