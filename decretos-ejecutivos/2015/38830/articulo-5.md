@@ -1,0 +1,1 @@
+Artículo 5º—El Ministerio de Hacienda y RACSA celebrarán un Contrato Administrativo con posterioridad a la publicación del presente Decreto, el cual regulará entre otros, los aspectos por concepto de tarifas sobre uso de la plataforma base para el SICOP.
