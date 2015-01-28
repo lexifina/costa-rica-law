@@ -3,4 +3,4 @@ LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 IMPUESTO A LAS PERSONAS JURÍDICAS
-ARTÍCULO 1.- Creación: Establécese un impuesto sobre todas las sociedades mercantiles, así como a toda sucursal de una sociedad extranjera o su representante y empresas individuales de responsabilidad limitada que se encuentren inscritas o que en adelante se inscriban en el Registro Nacional.
+ARTÍCULO 1.- (Anulado mediante resolución de la Sala Constitucional N° 001241 del 28 de enero de 2015. Sin embargo, de conformidad con lo dispuesto por el artículo 91 de la Ley de la Jurisdicción Constitucional, se dimensionan los efectos de este pronunciamiento para que inicien a partir del período fiscal correspondiente al año 2016.)
