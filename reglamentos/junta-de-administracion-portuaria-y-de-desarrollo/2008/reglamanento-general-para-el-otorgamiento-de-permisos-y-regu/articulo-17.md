@@ -1,15 +1,1 @@
-II. De los requisitos.
-Artículo 17.—Requisitos de carácter general: Para todas las personas físicas o jurídicas que pretendan brindar servicios dentro de las instalaciones de JAPDEVA, deben presentar los requisitos que se indican.
-a) Solicitar en forma escrita ante el Depto de Servicios Generales la autorización para ofrecer el servicio dentro de las instalaciones portuarias. En dicha solicitud deberá especificarse en que consiste el servicio a realizar y manifestar su compromiso de acatar todas las disposiciones establecidas en este reglamento y en el Reglamento de Operaciones Portuarias (ROP).
-b) Certificación de cédula jurídica vigente o cédula de identidad según corresponda
-c) Certificación notarial que contenga cita de inscripción de las personas jurídicas, objeto, capital y domicilio social, nombre completo de los propietarios de las acciones y sus respectivos porcentajes, así como certificación de la personería y su representante legal, en caso de una sociedad anónima, extendida con una antelación no mayor a un mes.
-d) El solicitante deberá demostrar que no tiene deudas con la Institución, mediante una certificación extendida por el Departamento de Contabilidad de Japdeva.
-e) Cuando los permisos sean solicitados por personas jurídicas que tengan como socios a otras personas jurídicas, éstas últimas deben demostrar que no tienen deudas pendientes con la Institución.
-f) Demostrar ante Japdeva que se encuentra al día con el pago de los impuestos municipales, obligaciones tributarias y con la Caja Costarricense del Seguro Social.
-g) Declaración Jurada de que no le alcanzan las prohibiciones para contratar con la administración, contempladas en las Leyes Nº 7494 (Ley de Contratación Administrativa) y Nº 8422 (Ley Anticorrupción y enriquecimiento ilícito) y sus respectivos reglamentos.
-h) Certificación de la Hoja de Delincuencia para el solicitante y sus empleados.
-i) Permiso o patente de funcionamiento otorgado por la Municipalidad de Limón.
-j) Permiso Sanitario de funcionamiento otorgado por el Ministerio de Salud y Póliza de responsabilidad Civil por el monto que se establece para cada actividad en el Artículo 18..
-k) Póliza de riesgos de trabajo de sus empleados (INS).
-l) Las personas físicas o jurídicas que pretendan brindar los diferentes servicios regulados en este reglamento, deben aportar un contrato de prestación de servicios con el usuario del puerto.
-m) En caso de presentar copias de los documentos originales, estas deben estar certificadas por un notario público
+Artículo 17.—Cancelación de los permisos. Con el vencimiento del plazo otorgado para la prestación de un servicio particular y ante la no renovación del mismo en el periodo establecido, La Comisión dará por terminado el permiso de la empresa respectiva para la prestación de un determinado servicio. Por su parte, ante los casos contemplados en los artículos 152 y siguientes de la Ley General de la Administración Pública también se cancelará el permiso, sin que ello implique el pago de ningún tipo de resarcimiento o indemnización por parte de JAPDEVA a favor del permisionario.

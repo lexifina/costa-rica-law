@@ -1,2 +1,7 @@
-III.—Trámite de las solicitudes de los permisionarios.
-Artículo 20.—Procedimiento para las solicitudes. Todas las solicitudes de servicios tanto nuevas como las de prórroga, se presentarán ante el Depto de Servicios Generales en forma completa. Cuando para cualesquiera de los casos se verifique la falta de algún requisito formal o información necesaria para evaluar debidamente la solicitud, se le indicará en el acto o en su defecto se le notificará vía teléfono o Fax señalado, para que dentro del término improrrogable de cinco días hábiles suministre la información respectiva y corrija las omisiones señaladas; si no cumpliere con lo requerido dentro del plazo señalado se archivará sin mas trámite la solicitud.
+Artículo 20.—Identificación. Las personas autorizadas por las empresas privadas que prestan servicios dentro de las instalaciones portuarias portarán un carné de identificación para poder ingresar y trasladarse dentro de la zona portuaria. La vigencia de los carné tendrá el mismo periodo que el permiso de operación otorgado. El carné deberá incluir la siguiente información o adquirir los que JAPDEVA indique:
+a) Fotografía tamaño pasaporte del portador.
+b) Fecha de emisión.
+c) Fecha de expiración.
+d) Número de cédula de identidad del portador.
+e) Nombre del permisionario.
+f) Nombre del portador.

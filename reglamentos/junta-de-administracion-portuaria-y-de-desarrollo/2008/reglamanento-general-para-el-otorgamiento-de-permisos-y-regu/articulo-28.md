@@ -1,7 +1,3 @@
-TÍTULO II
-De la operación de descarga de desechos de los barcos
-VI.—Controles y regulaciones de las actividades de descarga de desechos de los barcos
-Artículo 28.—Control de las descargas:
-a) Le corresponderá a las respectivas Intendencias de Limón y Moín velar por el adecuado desarrollo de las operaciones de carga, descarga de productos o de servicios que realicen los permisionarios en los muelles administrados por Japdeva.
-b) La Sección de Salud Ocupacional velará porque los servicios sean brindados de acuerdo a la normativa de seguridad laboral, industrial y ambiental que regula a esas actividades.
-c) Toda extracción de desechos o de sludge dará inicio solo con la presencia del inspector de Salud Ocupacional de Japdeva y del MAG.
+Artículo 28.—Trámite de revocación: Para proceder a la revocación del permiso, la Comisión procederá de conformidad a lo establecido para tales efectos, en la Ley General de la Administración Pública.
+a) Cuando el procedimiento se inicie con fundamento en la causal del inciso a) del artículo 26 de este Reglamento, el permisionario dispondrá de un plazo de cinco días hábiles luego de recibida la notificación del inicio del procedimiento, para ponerse al día en el cumplimiento y pagar las tarifas respectivas. Transcurrido dicho plazo sin cumplirse la prevención, la Administración continuará con el procedimiento, y el pago extemporáneo no hará cesar la causal de revocatoria. En todos los demás casos el trámite será el ordinario.
+b) El incumplimiento por parte del permisionario de cualquiera de las obligaciones contempladas en este Reglamento y en las leyes que regulan la materia será causal de revocatoria del permiso.

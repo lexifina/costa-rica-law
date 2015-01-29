@@ -1,12 +1,15 @@
-V.—Revocatoria del permiso
-Artículo 26.—Sanciones y causales de revocación: Las sanciones y la revocación de los permisos procederá cuando se presente alguna de las siguientes causales:
-A los permisionarios o empleados que irrespeten las directrices emitidas por las Intendencias de Limón y Moín, Seguridad Portuaria o de Salud Ocupacional o cuando se cometa una falta considerada grave, se les sancionará por una primera vez con la suspensión del permiso por un término no mayor de treinta días naturales, y en caso de reincidencia dentro del término de un año se procederá a la resolución de su permiso por parte de la Administración, en concordancia con lo establecido en el Artículo 74 del Reglamento de Operaciones Portuarias.
-Otras causales de revocatoria son las siguientes:
-a) Después de quince días de atraso en el pago del canon por derecho de uso de las instalaciones portuarias.
-b) Atraso superior a treinta días en el pago de pólizas de seguro, pago de planillas de la Caja o del INS.
-c) Negativa injustificada a prestar el servicio a un usuario que lo solicite.
-d) Irrespetar los límites de las tarifas establecidas por la ARESEP.
-e) El incumplimiento por parte del permisionario de cualesquiera de las obligaciones contempladas en este Reglamento y en las leyes que regulan la materia.
-f) Suministrar un servicio diferente al que le fue aprobado por JAPDEVA.
-g) Incumplimiento del trámite de renovación del permiso en el periodo establecido.
-h) Caducidad o término del contrato de prestación de servicios con el usuario del puerto o por la falta de aportar un contrato alternativo.
+IV. Obligaciones del permisionario
+Artículo 26.—Obligaciones del permisionario. El permisionario deberá cumplir con las siguientes obligaciones:
+a) Prestar el servicio dentro de los más altos principios éticos y de sana competencia, bajo las óptimas condiciones de seguridad, higiene, calidad eficiencia y competitividad. Para que Japdeva pueda verificar sus condiciones, el permisionario deberá suministrar, dentro del plazo que se señale, la información que le fuere solicitada, así como permitirle realizar inspecciones en el sitio de su operación para verificar la higiene y calidad del mismo.
+b) Contratar la prestación del servicio de los usuarios, sin establecer ningún tipo de discriminación entre éstos, que atente contra los principios del servicio público.
+c) Para aquellas actividades sujetas al pago de un derecho o canon, deberán cancelarlo a JAPDEVA en forma puntual de conformidad con lo que se establezca en las condiciones de pago para cada servicio, y presentar el respectivo comprobante de pago a las Intendencias de los Puertos de Limón y Moín antes del inicio de su operación.
+d) Para aquellas actividades reguladas tarifariamente por la ARESEP, deberán cancelar el canon correspondiente a la Ley Reguladora de los Servicios Públicos, según su Ley orgánica y reglamento.
+e) Acatar todas aquellas medidas operativas que JAPDEVA disponga para optimizar las labores realizadas por los permisionarios.
+f) Cumplir y aplicar fielmente los límites tarifarios establecidos por la Autoridad Reguladora de los Servicios Públicos.
+g) Respetar rigurosamente los planes de trabajo y enmiendas que la Administración Portuaria de JAPDEVA elabore, a efecto de lograr la debida coordinación en la elaboración y ejecución de estos planes.
+h) Acatar las recomendaciones que en materia de seguridad ocupacional y ambiental indique la Sección de Salud Ocupacional de JAPDEVA.
+i) Responder por los daños y perjuicios que ocasione, tanto a los usuarios como a terceros, con motivo de sus actividades, y ante JAPDEVA por lo que cause a las instalaciones portuarias, utillaje y maquinaria. Los permisionarios no podrán establecer limitaciones a los usuarios sobre la cobertura de esta responsabilidad.
+j) Cuando se tratare de daños presentados a las instalaciones portuarias o a la zona marítima, se levantará un acta notarial del daño o de la pérdida identificada con indicación del responsable, la cual será firmada por el Supervisor de turno de JAPDEVA. Con la existencia de esta acta la situación deberá atenderse en forma inmediata, caso contrario se le suspenderá la autorización de ingreso a las instalaciones portuarias de JAPDEVA hasta que se atienda la situación de reclamo. Lo anterior sin menoscabo de otras acciones administrativas o judiciales que pueda tomar la Institución.
+k) Los permisionarios deberán cumplir con todas las obligaciones que impone el Código de Trabajo y leyes conexas e informar dentro de los tres días siguientes, sobre la cesación o cambio por cualquier causa de algún integrante de su personal.
+l) Informar por escrito a las Intendencias de Limón y Moín sobre la cancelación de contratos de servicios con los usuarios del puerto y presentar copia certificada de los nuevos contratos realizados con otros usuarios.
+m) Remitir un informe semestral al Depto. de Servicios Generales, relacionado con los servicios prestados por el permisionario, indicando los siguientes datos: números de servicios brindados, kilos o tonelaje movilizado, total de ventas en colones o dólares. Esta información será requisito para realizar el trámite de renovación del permiso e internamente será traslada al Depto. de Planificación de Japdeva para ser incluida dentro de las estadísticas portuarias.
