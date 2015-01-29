@@ -1,0 +1,15 @@
+N° 38767-MP-MTSS-MJP
+EL PRESIDENTE DE LA REPÚBLICA,
+LOS MINISTROS DE LA PRESIDENCIA, TRABAJO
+Y SEGURIDAD SOCIAL Y LA MINISTRA
+DE JUSTICIA Y PAZ
+Con fundamento en los artículos 140 incisos 3), 8) y 18) y 146 de la Constitución Política, 25, 27 y 28 inciso b) de la Ley N° 6227, Ley General de la Administración Pública, y;
+Considerando:
+I.—Que la Comisión de Expertos de la Organización Internacional del Trabajo en 1983 definió los servicios esenciales como aquellos “…cuya interrupción podría poner en peligro la vida, la seguridad o la salud de la persona en toda o parte de la población…”. Este criterio fue adoptado posteriormente por el Comité de Libertad Sindical de esa Organización, para el cual es necesario la presencia de una amenaza evidente e inminente para la vida, la seguridad o la salud de toda o parte de la población para que un servicio sea calificado como esencial (Recopilación de 1996, párrafo 540; 320.° informe, caso N° 1989, párrafo 324; 324.° informe, caso N° 2060, párrafo 517; 329.° informe, caso N° 2195, párrafo 737; 332.° informe, caso N° 2252, párrafo 883; 336.° informe, caso N° 2383, párrafo 766; 338.° informe, caso N° 2326, párrafo 446 y caso N°. 2329, párrafo 1275).
+II.—Que la Sala Constitucional de la Corte Suprema de Justicia en el voto N° 2011-017680 de las 14:51 horas del 21 de diciembre del 2011 señaló que “…el ordinal 61 de la Constitución Política, amén del derecho de los patronos al paro, consagra el derecho a la huelga de los trabajadores, el cual, sin embargo, es susceptible de limitaciones en los servicios públicos, de acuerdo con la determinación que de estos haga la ley y conforme a las regulaciones que la misma establezca. Tal limitación no comprende la totalidad de servicios públicos. Así los convenios y recomendaciones emitidos por la Organización Internacional del Trabajo, a través del Comité de Libertad Sindical y el Comité de Expertos, han ido perfilando los casos en que la huelga puede ser objeto de restricciones o incluso de prohibición y garantías compensatorias...”.
+III.—Que el artículo 375 del Código de Trabajo establece que: “No será permitida la huelga en los servicios públicos. Las diferencias que en éstos ocurran entre patronos y trabajadores, así como en todos los demás casos en que se prohíbe la huelga, se someterán obligatoriamente al conocimiento y resolución de los Tribunales de Trabajo.”
+IV.—Que el Poder Ejecutivo considera de máxima conveniencia para el resguardo de la seguridad jurídica, desarrollar lo que se entiende por servicios públicos esenciales y los mecanismos para garantizar la continuidad de estos. Por tanto,
+Decretan:
+REGLAMENTO AL ARTÍCULO 375 DEL CÓDIGO
+DE TRABAJO
+Artículo 1º—Objeto. El presente Reglamento tiene como objeto precisar el artículo 375 del Código de Trabajo, y el desarrollo que en este sentido ha realizado la Sala Constitucional, en cuanto a la definición de los servicios públicos esenciales y la actuación que debe tener la Administración frente a escenarios en donde hayan intentos fácticos de huelga que puedan venir a perjudicar la plena y sana prestación de los servicios públicos esenciales.
