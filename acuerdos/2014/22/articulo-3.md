@@ -1,0 +1,1 @@
+Artículo 3º—De las responsabilidades. Serán responsables todos los funcionarios (as) de las oficinas, departamentos, direcciones y despachos de la Presidencia de la República, citados en el artículo uno del presente acuerdo, que tengan acceso a los documentos físicos o electrónicos y que hacen uso de los mismos.

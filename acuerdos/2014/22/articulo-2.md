@@ -1,0 +1,1 @@
+Artículo 2º—De las excepciones. Se excluye del área de aplicación los entes adscritos, por la existencia de Archivos Centrales en esas instituciones que regulen los procesos archivísticos amparados a la Ley del Sistema Nacional de Archivos N° 7202 y su reglamento.
