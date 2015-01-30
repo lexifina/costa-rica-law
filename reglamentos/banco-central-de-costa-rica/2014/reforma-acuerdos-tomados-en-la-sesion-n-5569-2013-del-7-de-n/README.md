@@ -15,3 +15,4 @@ Reforma acuerdos tomados en la sesión N° 5569-2013 del 7 de noviembre del 2012
 | --- | --- | --- |
 | 1 | 2014-03-07 | la propia norma |
 | 2 | 2014-06-25 | Acuerdo 0 (2014-06-25) |
+| 3 | 2015-01-30 | Reglamento 5677 (2015-01-30) |
