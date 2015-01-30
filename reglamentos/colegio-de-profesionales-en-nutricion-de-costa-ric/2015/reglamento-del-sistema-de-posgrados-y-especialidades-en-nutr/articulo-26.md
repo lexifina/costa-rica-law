@@ -1,0 +1,1 @@
+Artículo 26.—Cuando le corresponda al Colegio integrar o, bien, postular representantes en comisiones técnicas, se deberá dar prioridad a los profesionales que se encuentren registrados como especialistas, de acuerdo con el campo en el que desarrollarán sus actividades.

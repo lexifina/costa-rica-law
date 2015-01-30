@@ -1,0 +1,1 @@
+Artículo 5º—El Colegio de Profesionales en Nutrición de Costa Rica organizará y dotará de los recursos necesarios, al Sistema de Posgrados y Especialidades en Nutrición, para el cumplimiento de sus funciones.

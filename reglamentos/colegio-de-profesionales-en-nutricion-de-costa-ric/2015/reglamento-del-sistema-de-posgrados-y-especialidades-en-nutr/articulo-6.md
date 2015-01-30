@@ -1,0 +1,1 @@
+Artículo 6º—Créase el Consejo de Posgrados y Especialidades en Nutrición como órgano del Colegio Profesional en Nutrición de Costa Rica para que implemente, controle y fiscalice el Sistema de Posgrados y Especialidades en Nutrición el cual conformará un Registro de Posgrados y Especialistas en Nutrición que se mantendrá actualizado permanentemente.

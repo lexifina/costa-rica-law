@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros del Consejo de Posgrados y Especialidades en Nutrición durarán en sus funciones cuatro años y podrán ser reelegidos para periodos iguales, en forma sucesiva. Sesionarán ordinariamente al menos dos veces al mes. La condición de miembro del Consejo se perderá cuando se incurra en 3 ausencias injustificadas continuas o alternas en un trimestre.
