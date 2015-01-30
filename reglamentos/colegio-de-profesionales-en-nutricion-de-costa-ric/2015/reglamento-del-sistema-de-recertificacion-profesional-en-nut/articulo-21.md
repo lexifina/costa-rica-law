@@ -1,0 +1,1 @@
+Artículo 21.—Los entes proveedores de actividades de educación continua en Nutrición deben presentar la solicitud de inscripción al Sistema de Recertificación Profesional en Nutrición, diseñada para tal fin, ante el Consejo Académico de Nutrición quien evaluará su capacidad técnica y administrativa para impartir la Educación Continua en Nutrición de calidad.

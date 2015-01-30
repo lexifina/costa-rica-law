@@ -1,0 +1,1 @@
+Artículo 9º—La Asamblea General dotará al Consejo Académico de Nutrición de los recursos necesarios para dar apoyo administrativo en el cumplimiento de sus funciones dentro de las posibilidades económicas del Colegio.

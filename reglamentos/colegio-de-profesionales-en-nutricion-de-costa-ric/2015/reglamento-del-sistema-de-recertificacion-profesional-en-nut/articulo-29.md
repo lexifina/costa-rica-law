@@ -1,0 +1,1 @@
+Artículo 29.—El Consejo Académico de Nutrición tiene la potestad de suspender la acreditación de un ente proveedor o de una actividad de educación continua en Nutrición, en caso de incumplimiento de requisitos o falsedad de datos a juicio del Consejo.

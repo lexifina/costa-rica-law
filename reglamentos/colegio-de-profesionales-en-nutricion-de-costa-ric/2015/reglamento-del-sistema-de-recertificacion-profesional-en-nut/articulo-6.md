@@ -1,0 +1,1 @@
+Artículo 6º—La inscripción al Sistema de Recertificación Profesional en Nutrición es voluntaria y para estar inscrito deben ser miembros activos, así como, estar al día con sus responsabilidades ante el Colegio de Profesionales en Nutrición de Costa Rica.

@@ -1,0 +1,1 @@
+Artículo 26.—Una actividad de Educación Continua en Nutrición acreditada para una fecha y sede determinadas, puede repetirse en otras fechas y en otras sedes previa notificación al Consejo Académico de Nutrición, por lo menos con 5 días hábiles de anticipación, siempre y cuando se cumpla con la descripción curricular aprobada.

@@ -1,0 +1,6 @@
+Artículo 32.—Los créditos para la recertificación profesional en Nutrición se asignarán con base en la siguiente escala:
+Tipo de Actividad | Créditos
+1. Actividades presenciales o a distancia (Cursos, talleres, jornadas, foros, paneles, seminarios, mesas redondas, congresos, conferencias, simposios, ciclos de conferencias y otros a juicio de la Consejo Académico de Nutrición) | 1 crédito /hora real de actividades de participación, 2 créditos /hora real de actividades de aprovechamiento
+2. Pasantía profesional | 1 crédito / hora real
+3. Exposición en actividades educativas presenciales | 1,5 créditos / hora real en actividades de participación. 2 créditos / hora real en actividades de aprovechamiento
+4. Publicaciones 4.1. Libro con editorial 4.2. Artículo en Revista Científica con Comité Editorial 4.3. Documentos (Folletos, antologías, documentos técnicos, manuales y otros) | 20 créditos: Los créditos se asignan dividiendo el número de créditos entre el número de autores 10 créditos: Los créditos se asignan dividiendo el número de créditos entre el número de autores Máximo 5 créditos previo estudio de la Comisión. Los créditos se asignan dividiendo el número de créditos entre el número de autores
