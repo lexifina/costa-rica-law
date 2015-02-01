@@ -1,0 +1,1 @@
+Artículo 5º—Si los vendedores o afiliados, tienen como única actividad comercial la venta de estos productos o no tienen venta de productos o servicios gravados diferentes a los indicados, no están obligados a inscribirse como contribuyentes del impuesto general sobre las ventas.

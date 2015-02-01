@@ -1,0 +1,1 @@
+Artículo 4º—Los vendedores o afiliados en esta industria, no deberán vender los productos adquiridos con el respectivo impuesto de ventas, pues los mismos tendrán la característica de ser tratados como productos exonerados en las siguientes etapas de comercialización y por consiguiente no tendrán derecho a la aplicación del crédito fiscal.

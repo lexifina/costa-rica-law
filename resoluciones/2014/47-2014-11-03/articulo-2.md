@@ -1,0 +1,1 @@
+Artículo 2º—El precio de venta estimado al consumidor final es el precio vigente pagado por el consumidor final, que establece la empresa que opera bajo la modalidad de ventas directas, por catálogos, ventas piramidales, ventas multinivel y similares.

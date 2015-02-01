@@ -1,0 +1,1 @@
+Artículo 6º—Las empresas que operan bajo la modalidad de ventas directas, por catálogos, ventas piramidales, ventas multinivel y similares, deberán emitir sus facturas con el impuesto de ventas incluido y mantener el sistema de declaración y aplicación de débitos y créditos fiscales conforme lo indica el artículo 14 de la Ley de Impuesto General sobre las Ventas.
