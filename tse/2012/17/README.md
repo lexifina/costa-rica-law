@@ -14,3 +14,4 @@ Reglamento para la fiscalización de los Procesos Electivos y Consultivos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-13 | la propia norma |
+| 2 | 2015-02-02 | Decreto TSE 5 (2015-02-02) |
