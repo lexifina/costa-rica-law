@@ -14,3 +14,4 @@ Reglamento de Préstamo, Uso y Control de aparatos y equipos relacionado con las
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-06 | la propia norma |
+| 2 | 2015-02-02 | Reglamento 5 (2015-02-02) |
