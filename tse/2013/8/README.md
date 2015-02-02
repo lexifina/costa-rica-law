@@ -14,3 +14,4 @@ División Territorial Electoral que regirá para las elecciones del 2 de febrero
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-26 | la propia norma |
+| 2 | 2015-02-02 | Decreto TSE 1 (2015-02-02) |
