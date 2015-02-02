@@ -1,1 +1,2 @@
-Artículo 19.—Momento de la notificación. Las resoluciones se tendrán por notificadas al día siguiente hábil de la exposición de su copia en estrados.
+Artículo 19.—Momento de la notificación. Las resoluciones se tendrán por notificadas al día hábil siguiente de su envío, al menos a una de las dos direcciones de correo electrónico establecidas por cada agrupación política, según se dispone en el artículo 5 del citado Decreto Nº 06-2009.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 4-2015 del 2 de febrero del 2015)

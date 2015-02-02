@@ -1,1 +1,3 @@
-Artículo 16.—Plazo para el cumplimiento de las prevenciones. Se concederá a los partidos políticos un plazo improrrogable de ocho días hábiles, contados a partir del día hábil siguiente a aquel en que se tenga por hecha la notificación, para dar cumplimiento a lo prevenido.
+Artículo 16.—Plazo para el cumplimiento de las prevenciones.- A criterio de la Dirección y según sea la naturaleza del defecto o la omisión, se concederá a los partidos políticos un plazo improrrogable de entre tres y ocho días hábiles, contados a partir del día hábil siguiente a aquel que se tenga por hecha la notificación, para dar cumplimiento a lo prevenido.
+Sin embargo, cuando se trate de falencias que, para su subsanación se requiera celebrar una asamblea partidaria, el plazo para cumplir con lo prevenido será de ocho días hábiles.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 4-2015 del 2 de febrero del 2015)
