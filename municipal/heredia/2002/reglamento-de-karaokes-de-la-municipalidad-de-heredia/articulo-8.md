@@ -1,1 +1,0 @@
-Artículo 8º—De la contaminación sónica: La actividad con karaoke, deberá respetar en todo momento los niveles autorizados de sonido conforme lo disponen los artículos 293 y 294 de la Ley General de Salud.
