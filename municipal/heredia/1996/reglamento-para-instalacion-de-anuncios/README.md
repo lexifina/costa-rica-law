@@ -14,3 +14,4 @@ Reglamento para Instalación de Anuncios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1996-05-23 | la propia norma |
+| 2 | 2015-02-02 | Reglamento municipal 467 (2015-02-02) |
