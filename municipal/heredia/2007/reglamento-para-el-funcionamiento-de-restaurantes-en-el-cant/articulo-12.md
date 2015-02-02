@@ -1,1 +1,0 @@
-Artículo 12.—La Municipalidad podrá recalificar de oficio a un establecimiento comercial, que ostente la categoría de restaurante, pero que opere como bar; para ello, realizará un procedimiento administrativo sumario garante del debido proceso.

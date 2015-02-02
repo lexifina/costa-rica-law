@@ -1,2 +1,0 @@
-Artículo 4º—El horario de funcionamiento de los restaurantes con expendio de bebidas alcohólicas será el correspondiente a la categoría “C” establecida por la ley Nº 7633, a saber de las 10:00 a.m. a las 2:30 a.m. Los restaurantes sin expendio de licor no tendrán limitaciones de horario.
-Truco

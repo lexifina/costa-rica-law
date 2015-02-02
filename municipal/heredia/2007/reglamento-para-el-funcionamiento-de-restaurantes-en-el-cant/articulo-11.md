@@ -1,1 +1,0 @@
-Artículo 11.—En caso de reincidencia de las conductas señaladas en el artículo anterior en dos oportunidades más, el Departamento de Rentas y Cobranzas será el competente para realizar el procedimiento administrativo para proceder con la cancelación de la licencia comercial y de licores del negocio y el cierre del negocio.

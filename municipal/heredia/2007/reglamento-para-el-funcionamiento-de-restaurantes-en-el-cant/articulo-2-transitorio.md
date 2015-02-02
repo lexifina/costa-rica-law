@@ -1,2 +1,0 @@
-Transitorio II.—Las empresas gastronómicas que fueren recalificadas como Bar deberán cumplir con los requisitos exigidos para bar, en cuanto a las regulaciones de distancias, contemplados en el Reglamento a la Ley de Licores, artículo 9 inciso a) Decreto Ejecutivo 17757-G del 28 de setiembre de 1987.
-De no cumplir con las distancias requeridas, se debe proceder a suspender la licencia de expendio de licores respectiva, mediante el procedimiento establecido en el Reglamento a la Ley de Licores.
