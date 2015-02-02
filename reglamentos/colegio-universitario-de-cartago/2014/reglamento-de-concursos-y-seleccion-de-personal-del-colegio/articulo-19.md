@@ -1,0 +1,1 @@
+Artículo 19.—Las entrevistas de selección de personal serán realizadas por la jefatura del Departamento de Recursos Humanos o por el funcionario designado por esta y posteriormente la Jefatura inmediata de la vacante que se concursa; las mismas se realizarán en las instalaciones del CUC.

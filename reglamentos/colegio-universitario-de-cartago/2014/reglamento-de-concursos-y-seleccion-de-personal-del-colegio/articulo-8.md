@@ -1,0 +1,1 @@
+Artículo 8º—Cuando se presente una plaza vacante en alguna dependencia institucional, la jefatura inmediata deberá tramitar la solicitud por escrito para llenar la vacante, brindando las justificaciones respectivas ante el Departamento de Recursos Humanos.

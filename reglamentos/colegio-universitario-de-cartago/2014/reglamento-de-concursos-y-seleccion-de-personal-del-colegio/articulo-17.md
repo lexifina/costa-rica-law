@@ -1,0 +1,1 @@
+Artículo 17.—Cumplido el plazo conferido para la recepción de ofertas, el Departamento de Recursos Humanos dispondrá de diez días hábiles para el análisis correspondiente de los atestados de los oferentes y así determinar si cumplen o no cumplen los requisitos del Cartel e iniciar el proceso de pruebas y/o entrevistas.

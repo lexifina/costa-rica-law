@@ -1,0 +1,1 @@
+Artículo 4º—Para la selección del personal, se requerirá del asesoramiento técnico de las jefaturas de dependencias institucionales donde existan los puestos vacantes, las cuales están en la obligación de brindarlo.

@@ -1,0 +1,1 @@
+Artículo 29.—Los factores de calificación que se tomarán en cuenta en el concurso externo, serán considerados de conformidad con el nivel que correspondiente según la siguiente clasificación: Nivel Gerencial, Nivel Profesional, Nivel Técnico-Operativo y Nivel Docente:

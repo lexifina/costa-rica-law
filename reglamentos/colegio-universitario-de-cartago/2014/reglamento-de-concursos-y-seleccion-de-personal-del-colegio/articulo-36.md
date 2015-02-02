@@ -1,0 +1,1 @@
+Artículo 36.—El Departamento de Recursos Humanos podrá declarar “desierto” el concurso por razones de conveniencia o interés institucional comprobada deberá justificar su declaración y contar con la previa autorización de la Decanatura. En tal caso, se procederá a publicar nuevamente el concurso, con las recomendaciones que para tal efecto se determinen.

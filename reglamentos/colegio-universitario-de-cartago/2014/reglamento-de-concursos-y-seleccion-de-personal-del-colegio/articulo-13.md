@@ -1,0 +1,1 @@
+Artículo 13.—Toda plaza aprobada debidamente por la Autoridad Presupuestaria, que no tenga propietario y esté ocupada interinamente, tendrá que salir a concurso interno o externo según corresponda, siempre que no afecte la estabilidad presupuestaria de la Institución.

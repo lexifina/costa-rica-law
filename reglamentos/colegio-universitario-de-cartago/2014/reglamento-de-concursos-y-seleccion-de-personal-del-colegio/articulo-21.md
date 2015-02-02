@@ -1,0 +1,1 @@
+Artículo 21.—Finalizado el proceso de pruebas y entrevistas, el Departamento de Recursos Humanos dispondrá de cinco días hábiles para la resolución del concurso, salvo que existan recursos o nulidades que resolver.

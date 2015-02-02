@@ -1,0 +1,1 @@
+Artículo 22.—Cualquier falsedad que se encuentre en la oferta será causal de nulidad y excluirá de inmediato al participante de la lista de elegibles, nómina o terna, según se trate. Únicamente se considerarán oferentes que cumplan los requisitos establecidos en el Manual de Cargos, en el procedimiento del concurso respectivo y en lo establecido en este Reglamento.

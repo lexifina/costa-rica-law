@@ -1,0 +1,1 @@
+Artículo 10.—El Departamento de Recursos Humanos procederá a elaborar el cartel de concurso en un término de diez días hábiles cuando corresponda a concursos internos y quince días hábiles cuando corresponda a concursos externos, a partir del momento en que recibe solicitud de apertura de concurso por parte de la Decanatura.

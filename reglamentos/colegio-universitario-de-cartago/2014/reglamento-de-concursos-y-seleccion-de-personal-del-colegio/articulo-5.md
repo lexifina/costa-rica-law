@@ -1,0 +1,1 @@
+Artículo 5º—El Departamento de Recursos Humanos podrá recurrir a la colaboración o contratación de especialistas para el diseño y/o calificación de pruebas específicas de conocimiento, previa autorización de la Decanatura y siguiendo los lineamientos de contratación administrativa.

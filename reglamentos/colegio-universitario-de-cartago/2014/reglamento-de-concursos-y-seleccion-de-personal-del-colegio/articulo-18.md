@@ -1,0 +1,1 @@
+Artículo 18.—El Departamento de Recursos Humanos dispondrá de diez días hábiles para coordinar la aplicación de las pruebas y entrevistas, así como realizar la convocatoria respectiva de los oferentes seleccionados.
