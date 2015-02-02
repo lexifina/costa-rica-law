@@ -19,3 +19,4 @@ Reglamento de la Junta Médica Calificadora de la Incapacidad para el Trabajo
 | 4 | 2000-05-03 | Decreto Ejecutivo 28662 (2000-05-03) |
 | 5 | 2002-08-05 | Decreto Ejecutivo 30820 (2002-08-05) |
 | 6 | 2005-09-05 | Decreto Ejecutivo 32673 (2005-09-05) |
+| 7 | 2015-02-02 | Decreto Ejecutivo 39097 (2015-02-02) |
