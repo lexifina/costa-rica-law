@@ -1,0 +1,1 @@
+Artículo 31.—Depósito del monto ofertado. Una vez dictada la resolución de adjudicación, el adjudicado tendrá un plazo máximo de dos horas para realizar el depósito del monto total ofertado, en el número de cuenta que le sea indicado por el encargado de la contratación, quien verificará dicho depósito contra la boleta del banco que le entregará el adjudicado.

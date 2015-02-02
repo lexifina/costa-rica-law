@@ -1,0 +1,2 @@
+Artículo 35.—Vigencia. La vigencia de esta normativa será por el plazo de dos años, contado a partir de la fecha de publicación en el Diario Oficial La Gaceta.
+(Corregido mediante Fe de Erratas, y publicada en La Gaceta N° 162 del 24 de agosto del 2016, página N° 32. Anteriormente se indicaba: “Vigencia. La vigencia de esta normativa será por el plazo de un año, contado a partir de la fecha de publicación en el Diario Oficial La Gaceta.”)

@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 34.—Aplicaciones supletorias. En ausencia de regulación expresa en el presente procedimiento sustitutivo de contratación, se aplicara de manera supletoria las disposiciones establecidas en la Ley de Contratación Administrativa y su Reglamento, así como en la Ley General de la Administración Pública, la Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Actividades Conexas, Legitimación de Capitales y Financiamiento al Terrorismo y la Ley Contra la Delincuencia Organizada.

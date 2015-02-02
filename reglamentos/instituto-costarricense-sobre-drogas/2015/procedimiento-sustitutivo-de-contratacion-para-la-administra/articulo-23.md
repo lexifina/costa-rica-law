@@ -1,0 +1,1 @@
+Artículo 23.—Registro de Participantes. Para participar como oferentes en los procesos de venta de bienes perecederos, los interesados deben estar inscritos en el Registro de Participantes al que se refiere el artículo 4 de este procedimiento.

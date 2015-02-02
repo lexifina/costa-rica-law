@@ -1,0 +1,1 @@
+Artículo 25.—Traslado del expediente. Recibida la autorización por la Dirección General o una vez vencido el plazo indicado en el artículo anterior, el jefe de la URA trasladará inmediatamente el expediente al encargado de la venta de los bienes, que verificará el cumplimiento de los requisitos descritos en los incisos a), b), c) y e) del artículo 10.
