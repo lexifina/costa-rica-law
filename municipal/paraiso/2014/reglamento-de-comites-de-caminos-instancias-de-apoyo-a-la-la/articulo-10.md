@@ -1,0 +1,1 @@
+Artículo 10.—Renuncia, destitución y sustitución. Los y las miembros (as) del Comité de Caminos podrán renunciar a su cargo por cualquier motivo, debiendo presentar por escrito las razones de su renuncia ante la Junta Directiva. De igual forma podrán ser sustituidos, ausencias a más de tres sesiones de trabajo consecutivas, o incumplimiento al reglamento.

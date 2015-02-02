@@ -1,0 +1,1 @@
+Artículo 8º—Investidura del Comité de Caminos. El Comité de Caminos, para su legitimación deberá ser juramentado, a partir de la presentación de la solicitud, por la alcaldía o bien el Concejo Municipal a petición del tribunal que conforme dicho comité para la elección.

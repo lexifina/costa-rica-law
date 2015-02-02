@@ -1,0 +1,1 @@
+Artículo 3º—Naturaleza de los comités de caminos. Los comités de caminos son órganos auxiliares de la municipalidad que en forma voluntaria apoyan las tareas de conservación y desarrollo vial cantonal.

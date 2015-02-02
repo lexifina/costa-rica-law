@@ -1,0 +1,1 @@
+Artículo 7º—Relaciones de dependencia. El Comité de Caminos dependencia, en primera instancia a La Unidad Técnica Vial, posteriormente a la Junta Vial Cantonal presidente el alcalde Municipal y posteriormente el Concejo Municipal.

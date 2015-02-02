@@ -1,0 +1,1 @@
+Artículo 5º—Convocatoria y elección. La convocatoria y elección será en asamblea general de vecinos y vecinas estará a cargo de los mismos la elección de la Junta directiva del comité camino. La elección será nominal y bajo las reglas de la mayoría simple; resultando electos las y los miembros que alcancen el mayor número de votos de los asambleístas.
