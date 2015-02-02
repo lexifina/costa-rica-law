@@ -14,3 +14,4 @@ Procedimiento de presupuesto participativo basado en resultados con perspectiva 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-07 | la propia norma |
+| 2 | 2015-02-02 | Acuerdo municipal 0 (2015-02-02) |

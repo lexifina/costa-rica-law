@@ -54,10 +54,11 @@ Extensión territorial 5%
 9.- Los recursos que no fueron asignados por medio de este proceso, una vez realizada la selección y priorización por parte de la comunidad, podrán ser utilizados en proyectos de interés distrital, para lo cual deberá el Concejo de Distrito confeccionar el respectivo perfil de proyecto.
 10.- Los proyectos que sean asignados por recomendación del Concejos de Distrito y que son trasladados a las Asociaciones de Desarrollo Integrales o Específicas o Juntas Administrativas y de Educación, y que por alguna situación especial se deba variar el destino del proyecto parcial o totalmente se deberá contar para poder gestionar dicho cambio con el visto bueno del Concejo de Distrito.
 11.- Todo proyecto que la comunidad presente debe contribuir a la obtención de los resultados identificados en el taller, de lo contrario no podrá participar.
-12- Para la priorización de los proyectos en la Sesión Ampliada del Concejo de Distrito se deberán valorar los siguientes criterios:
-• Grado en que el proyecto contribuye a alcanzar el resultado deseado por la comunidad.
-• Grado en que el proyecto contribuye a promover la equidad de género y la accesibilidad.
-• Grado en que el proyecto contribuye al desarrollo inclusivo del distrito.
+(*) 12. Para la priorización de los proyectos de las asociaciones en la Sesión Ampliada del Concejo de Distrito se deberán valorar los siguientes criterios, los cuales se calificarán de 1 a 4, donde 4 será el puntaje máximo:
+Grado en que el proyecto contribuye a alcanzar el resultado deseado por la comunidad (Califica delegado).
+Grado en que el proyecto contribuye a promover la equidad de género y la accesibilidad (Califica delegado).
+Grado en que el proyecto contribuye al desarrollo inclusivo del Distrito (Califica delegado).
+(*)(Así reformado el punto 12) anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
 Políticas para etapa de convocatoria y capacitación.
 1. Iniciar el proceso de Presupuesto participativo mediante una convocatoria pública.
 2. Se deberán realizar capacitaciones sobre el proceso, taller identificación resultados, formulación de proyectos con perspectiva de género y sensibilización en materia de género y Accesibilidad.
@@ -83,20 +84,28 @@ Políticas para la etapa de la asamblea asociaciones
 11. En los casos en que los proyectos sean presentados por una sola comunidad la votación será abierta en la asamblea.
 12. En la Asamblea no se podrán valorar proyectos que no cuenten con el visto bueno de Planificación Institucional, lo cual será responsabilidad de la Junta Directiva.
 13. En la asamblea se deberá de priorizar los proyectos mediante votación, cuyo resultado deberá quedar reflejado en el acta de la asamblea.
-14. Los proyectos que pueden ser presentados en la Sesión Ampliada del Concejo de Distrito serán un máximo de 10 proyectos por Asociación de Desarrollo Integral y 4 proyectos por Asociación de Desarrollo Específica, lo cual dependerá del orden establecido en la priorización realizada por la comunidad en la Asamblea.
+14. Los proyectos que pueden ser presentados en la Sesión Ampliada del Concejo de Distrito serán un máximo de 6 (*) proyectos por Asociación de Desarrollo Integral y 3 (*) proyectos por Asociación de Desarrollo Específica, lo cual dependerá del orden establecido en la priorización realizada por la comunidad en la Asamblea.
+(*)(Así reformado el punto anterior mediante sesión ordianria N° 388-2015 del 2 de febrero del 2015)
 15. En la asamblea de la organización se deberá elegir a dos representantes un hombre y una mujer, seleccionados entre todos las y los delegados que participaron de la votación en la Asamblea con el fin de que representen al sector en la Sesión Ampliada que realizará el Concejo de Distrito.
 16. Una vez realizada la Asamblea, se deberá remitir a la Oficina de Planificación en formato digital a más tardar el último día hábil del mes de mayo, la lista de proyectos priorizados por la Comunidad, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la Sesión Ampliada.
 Políticas para la etapa de aprobación proyectos juntas administrativas y de educación
-1. La Junta Administrativa o de Educación deberá llevar a cabo una reunión donde se apruebe y priorice los proyectos que van a ser presentados.
-2. Deberá quedar constancia de ese acuerdo y remitirlo con los perfiles el día de presentación, en la Sesión Ampliada del Concejo de Distrito de su sector.
-3. La Junta de Educación o Administrativa, deberá elegir a un representante para que presente los proyectos en la Sesión Ampliada del Concejo de Distrito y participe de la priorización de proyectos de las Juntas participantes.
-4. Una vez realizada la reunión la Junta Administrativa o de Educación deberá remitir a Planificación Institucional en formato digital a más tardar el último día hábil del mes de mayo, la lista de proyectos priorizados por la Junta, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la Sesión Ampliada.
+1. La Junta Administrativa o de Educación deberá llevar a cabo una reunión donde apruebe y priorice el proyecto que va a ser presentado.
+(Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
+2. Deberá quedar constancia de ese acuerdo y remitirlo con el perfil el día de presentación, en la Sesión Ampliada del Concejo de Distrito de su sector.
+(Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
+3. La Junta de Educación o Administrativa, deberá elegir a un representante para que se presente el proyecto en la Sesión Ampliada del Concejo de Distrito y participe de la priorización de proyectos de las Juntas participantes.
+(Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
+4. Una vez realizada la reunión la Junta Administrativa o de Educación deberá remitir a Planificación Institucional, en formato digital a más tardar el último día hábil del mes de mayo, el nombre del proyecto, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la Sesión Ampliada.
+(Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
+5. Las Juntas Administrativas y de Educación, podrán presentar un máximo de un proyecto en la Sesión Ampliada.
+(Así adicionado el punto 5) anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
 Políticas para la etapa de presentación proyectos al concejo de distrito
 1. Planificación Institucional coordinará una capacitación con las y los delegados de cada asociación durante la última semana de mayo para explicar el proceso de votación e indicar criterios de priorización de proyectos.
 2. Los Concejos de Distrito convocan para la primera semana del mes de junio a todas las organizaciones del distrito mediante una nota en la cual indicarán la fecha, hora y lugar donde se realizará la Sesión Ampliada.
 3. Aquellas organizaciones que al 15 de mayo de cada año tengan partidas pendientes de liquidar a la Municipalidad, no podrán presentar proyectos en la Sesión Ampliada, ni se le podrán asignar proyectos de los recomendados por los Concejos de Distrito para lo Planificación institucional facilitará la lista respectiva al Concejo de Distrito.
 4. En la Sesión Ampliada los delegados de cada organización deberán de presentar los perfiles de los proyectos priorizados con copia del acta de la Asamblea donde se demuestre el proceso de participación de la comunidad
-5. Los representantes de las Juntas Administrativas y de Educación deberán de presentar los perfiles de proyectos, adjuntando copias de las actas en donde se aprobaron y priorizaron los proyectos por parte de cada Junta.
+5. Los representantes de las Juntas Administrativas y de Educación deberán de presentar el perfil del proyecto, adjuntando copia del acta en donde se aprobó el proyecto por parte de cada Junta.
+(Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
 6. Cada organización tendrá un tiempo dentro de la Sesión Ampliada para exponer brevemente los proyectos de su comunidad.
 7. Se deberá realizar una votación entre los representantes (delegados) del distrito, en dos etapas primero los proyectos de las Juntas y luego los de las Asociaciones con el fin de determinar la prioridad de los proyectos de su distrito.
 Políticas para la etapa de aprobación de proyectos por parte del concejo de distrito
