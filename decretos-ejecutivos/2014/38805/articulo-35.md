@@ -1,0 +1,1 @@
+Artículo 35.—De la forma de interpretar e integrar el presente reglamento. Para efectos de interpretación e integración del presente reglamento, estará a lo que dispongan la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial; Ley General de la Administración Pública; así como los Principios Generales del Derecho Público.

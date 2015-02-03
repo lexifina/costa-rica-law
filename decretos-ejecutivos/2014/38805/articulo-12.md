@@ -1,0 +1,1 @@
+Artículo 12.—Inventario de vehículos: El encargado de activos de la institución realizará al menos una vez al año el inventario físico de los vehículos del MEIC, a efecto de verificar la existencia, localización, estado físico y mecánico. Los resultados de esos inventarios serán comparados con los registros que lleve la Unidad de Transportes.

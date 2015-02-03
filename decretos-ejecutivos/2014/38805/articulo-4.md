@@ -1,0 +1,4 @@
+Artículo 4º—Las clasificaciones de los vehículos. Para efectos del presente reglamento, los vehículos del MEIC, se clasifican en:
+a) Vehículo de Uso Discrecional (UD), exclusivamente a aquel destinado al servicio del Ministro (a). No cuenta con restricciones en cuanto a combustible, horario de operación, ni recorrido, características que asumirá, bajo su estricto criterio el Ministro (a); no obstante el conductor responsable de este vehículo velará por su custodia, mantenimiento, conservación y porque sean sometidos a las reparaciones necesarias.
+b) Vehículo de Uso Semidiscrecional (US), su utilización es exclusivamente para uso a los Viceministros (as). El cual estará sujeto a las limitaciones de horario, uso de combustibles y recorrido.
+c) Vehículo de Uso Administrativo (UA), son los destinados a brindar los servicios regulares de transporte a las diferentes dependencias administrativas del MEIC.

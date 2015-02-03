@@ -1,0 +1,1 @@
+Artículo 2º—Vehículos del Ministerio. Se consideran vehículos propiedad del Ministerio de Economía Industria y Comercio, todos aquellos vehículos que la Institución haya adquirido, o le hayan donado; y que se encuentren inscritos a nombre del MEIC o en trámite de inscripción ante el Registro Nacional a favor de esta Entidad.
