@@ -1,1 +1,4 @@
-Artículo 2º—Obligación de visado. Para garantizar la autenticidad y veracidad de su contenido, todos los libros que utilicen los partidos para consignar las actas relativas a las sesiones de sus órganos colegiados, deberán contar con el visado previo del Departamento de Registro de Partidos Políticos.
+Artículo 2º—Obligación de visado. Para garantizar la autenticidad y veracidad de su contenido, los libros que utilicen los partidos políticos para consignar las actas relativas a las sesiones del Comité Ejecutivo Superior y de la Asamblea Superior deberán ser legalizados mediante el visado previo del Departamento de Registro de Partidos Políticos.
+Respecto de los libros de actas de los demás órganos partidarios de carácter colegiado, el encargado de visarlos será el secretario del comité ejecutivo superior.
+Las asambleas distritales de carácter exclusivamente electivo, en el caso de aquellos partidos que las tengan previstas en sus estatutos, estarán exentas del requisito de llevar libros de actas.”
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 6-2015 del 3 de febrero del 2015)

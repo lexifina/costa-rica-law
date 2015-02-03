@@ -14,3 +14,4 @@ Reglamento para la Legalización, Manejo y Reposición de los Libros de Actas de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-22 | la propia norma |
+| 2 | 2015-02-03 | Decreto TSE 6 (2015-02-03) |
