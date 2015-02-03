@@ -1,2 +1,0 @@
-VI. ÁMBITO DE ACCIÓN
-Artículo 49.—Ámbito de acción. El ámbito de acción de la Auditoría Interna está conformado por Corporación Bananera Nacional S. A. y por los entes u órganos públicos y privados sujetos a su competencia institucional, para lo cual el auditor interno deberá definir y mantener actualizado, en el instrumento que corresponda, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna, con fundamento en lo estipulado en el artículo 22, inciso a) de la Ley General de Control Interno.

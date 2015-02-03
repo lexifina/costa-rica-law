@@ -1,1 +1,0 @@
-Artículo 41.—Presentación del presupuesto anual de la Auditoría Interna. El presupuesto anual de la Auditoría Interna será presentado oportunamente a la Gerencia General para su inclusión en el presupuesto general que será aprobado por la Junta Directiva y la Asamblea General.

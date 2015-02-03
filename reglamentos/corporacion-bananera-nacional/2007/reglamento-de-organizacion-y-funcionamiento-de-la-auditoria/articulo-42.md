@@ -1,1 +1,0 @@
-Artículo 42.—Autorizaciones y modificaciones presupuestarias. Al auditor interno le corresponderá autorizar los documentos de ejecución presupuestaria y las modificaciones presupuestarias que afecten los rubros de la unidad de Auditoría Interna. 5 Artículo 25 de la Ley Genera

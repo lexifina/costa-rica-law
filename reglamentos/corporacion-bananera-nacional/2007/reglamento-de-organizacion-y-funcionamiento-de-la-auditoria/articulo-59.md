@@ -1,1 +1,0 @@
-Artículo 59.—Servicios de la Auditoría Interna. Los servicios de fiscalización que realiza la Auditoría Interna conforme a sus competencias se clasifican en servicios de auditoría y servicios preventivos.

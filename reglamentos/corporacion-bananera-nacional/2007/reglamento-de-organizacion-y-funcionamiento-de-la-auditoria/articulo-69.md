@@ -1,1 +1,0 @@
-Artículo 69.—Programación de labores. En la ejecución de sus funciones, el personal de la Auditoría Interna procurará que sus actividades no interfieran en el normal desarrollo de las operaciones del área objeto del estudio, para lo cual deberá coordinar y convenir con el responsable del área o actividad la forma en que ambos cumplan su función de la mejor forma.
