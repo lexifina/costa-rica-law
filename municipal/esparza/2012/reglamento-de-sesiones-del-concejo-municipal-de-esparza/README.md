@@ -14,3 +14,4 @@ Reglamento de sesiones del Concejo Municipal de Esparza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-16 | la propia norma |
+| 2 | 2015-02-03 | Reglamento municipal 0 (2015-02-03) |

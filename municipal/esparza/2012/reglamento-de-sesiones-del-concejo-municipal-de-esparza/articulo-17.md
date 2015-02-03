@@ -1,12 +1,15 @@
-Artículo 17.—Se sugiere que el orden del día se confeccione con la siguiente estructura:
-1. Comprobación del quórum.
-2. Apertura de la sesión.
-3. Lectura, aprobación y firma del acta anterior, o anteriores.
-4. Asuntos de trámite urgente a juicio del Presidente.
-5. Audiencias. (Cuando corresponda).
-6. Lectura, examen y tramitación de la correspondencia.
-7. Informes, mociones e iniciativas del Alcalde.
-8. Informes de las Comisiones.
-9. Mociones e iniciativas de los Regidores.
-10. Asuntos varios.
-11. Clausura de la sesión.
+Artículo 17- El Orden del Día se confeccionará con la siguiente estructura:
+1- Comprobación de quórum
+2- Apertura de la sesión
+3- Lectura del orden del día
+4- Audiencias (atención de público y juramentaciones)
+5- Lectura y aprobación de acta anterior
+6- Lectura de correspondencia
+7- Asuntos de trámite urgente
+8- Dictámenes de comisión
+9- Informes de asesoría
+10- Mociones de los señores regidores
+11- Mociones del señor Alcalde
+12- Asuntos varios
+13- Cierre de sesión.
+(Así reformado mediante acta número cuarenta, de sesión ordinaria, celebrada el 3 de febrero del 2015)
