@@ -1,0 +1,26 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+JUNTA DIRECTIVA
+Aprobación Reglamento del Sistema Mixto
+de Atención en Salud
+La Junta Directiva de la Caja Costarricense de Seguro Social, en el artículo 3º de la sesión número 8755, celebrada el 11 de diciembre del 2014, aprobó el siguiente Reglamento del Sistema Mixto de Atención en Salud:
+REGLAMENTO DEL SISTEMA MIXTO
+DE ATENCIÓN EN SALUD
+CAPÍTULO I:
+Disposiciones Generales
+Artículo 1º—Definiciones
+a) Área de Adscripción: área geográfica definida institucionalmente que abarca un centro de salud de la CCSS (Caja Costarricense de Seguro Social), en el cual los asegurados y profesionales que residan o ubiquen sus consultorios, respectivamente, dentro de dichos límites, deben inscribirse para recibir la atención en salud correspondiente o acceder a la oferta institucional establecida dentro de este Sistema de Atención.
+b) Atención Integral de las Personas: es la forma de atención de carácter interdisciplinario e integrado que apoya a la persona, su familia y la comunidad. Es la que asegura atención continua de alta calidad, costo-efectiva y provee de guía, con una secuencia lógica de eventos, que debe ser útil para priorizar y establecer objetivos de intervenciones de creciente complejidad. Supone la provisión de servicios integrados de promoción, prevención de la enfermedad, cuidado curativo, rehabilitación, soporte físico, psicológico y social acorde con la mayoría de los problemas de salud en una población dada.
+c) Caja Costarricense de Seguro Social: en adelante denominada CCSS, es una institución de la Seguridad Social que, conforme con lo establecido en los artículos 73 y 177 de la Constitución Política, le corresponde la administración y el gobierno de los seguros sociales en los regímenes del Seguro de Salud y del Seguro de Invalidez, Vejez y Muerte.
+d) Director: profesional en Ciencias Médicas responsable de la gestión y prestación de los servicios en salud de su área de adscripción.
+e) Director Regional: profesional en Ciencias Médicas responsable de la gestión de los servicios de salud de una región o jurisdicción geográfica, previamente establecida por la Caja.
+f) Infraestructura: lugar o espacio físico, en el cual se suministran los servicios de salud demandados, propiedad del o los profesionales, persona jurídica o empresa que cumplan con lo establecido en la Ley General de Salud.
+g) Inscripción: proceso mediante el cual el profesional en salud se incorpora a este sistema de atención, lo que permitirá a la Caja Costarricense de Seguro Social (CCSS) velar por la calidad y seguridad en beneficio de los usuarios, acorde con lo que establece la normativa vigente.
+h) Oferta de Servicios: se refiere al conjunto limitado de prestaciones que brindan los servicios de salud de la CCSS dentro del marco del presente sistema de atención.
+i) Profesional: persona con educación en Ciencias de la Salud debidamente inscrito y autorizado por los respectivos Colegios Profesionales de Costa Rica. Se incluye en esta definición, para efectos reglamentarios, los médicos generales y especialistas, odontólogos, psicólogos, enfermeros y farmacéuticos.
+j) Riesgos del Trabajo: son los accidentes y las enfermedades que ocurren a los trabajadores, con ocasión o por consecuencia del trabajo que desempeñen en forma subordinada y remunerada, así como la agravación o reagravación que resulte como consecuencia directa, inmediata e indudable de esos accidentes y enfermedades. (artículo 195, Código de Trabajo).
+k) Riesgo Excluido: se trata de todas aquellas atenciones de tipo médico-quirúrgico que no se contemplan dentro del tipo de seguro que ofrece la CCSS, por saber invalidez, vejez, muerte, enfermedad y maternidad. Se consideran riesgos excluidos los riesgos del trabajo y los riesgos por seguro obligatorio automotor.
+l) Servicio: producto final de las diferentes actividades que componen el proceso de atención en salud directa a la persona.
+m)Sistema: combinación de operaciones, procesos y procedimientos que se realizan con el objeto de brindar un servicio, en este caso, la prestación de servicios de salud.
+n) Sistema Mixto de Atención en Salud: es una forma alternativa de prestación de servicios de salud que se le brinda al asegurado y que consiste en la facultad de los asegurados de contratar directamente, por su cuenta y riesgo, los servicios de atención en salud del o los profesionales en ciencias de la salud de su preferencia, en el ejercicio privado de éstos, y el derecho de recibir como beneficio, por parte de la Caja, los servicios de apoyo al diagnóstico y tratamiento, según la oferta de servicios definida. Para optar por incluirse en esta modalidad y brindar este servicio a sus pacientes, el profesional autorizado debe inscribirse y cumplir con los requisitos establecidos en este Reglamento.
+o) Unidad Responsable del Sistema de Atención: es el equipo de trabajo encargado de llevar a cabo las funciones que se designan en el presente Reglamento para el control y la mejora continua del sistema de atención, el cual debe ser designado por la Gerencia Médica de la CCSS y dado a conocer a los interesados.
+p) Caso de Urgencia: es el tipo de atención en salud que se requiera brindar de manera impostergable ante situaciones que generen un riesgo inmediato para la vida de la persona.

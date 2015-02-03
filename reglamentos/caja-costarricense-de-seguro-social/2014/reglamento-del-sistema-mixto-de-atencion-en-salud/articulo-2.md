@@ -1,0 +1,3 @@
+Artículo 2º—Del Objetivo del Sistema
+a) Ofrecer a los asegurados una modalidad alternativa de acceso a los servicios de atención en salud no urgente que brinda la CCSS, de manera que el usuario pueda elegir profesionales privados de su elección, accediendo, a través de éste, a una oferta de servicios institucionales definida.
+b) El presente Reglamento no pretende limitar la prestación de los servicios de salud que los profesionales autorizados deseen brindar en su ámbito privado sino enmarcar, específicamente, el proceso de atención en salud que llevará a cabo el profesional como parte de la alianza con la CCSS.

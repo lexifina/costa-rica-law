@@ -1,0 +1,7 @@
+CAPÍTULO V
+Oferta de Servicios
+Artículo 13.—Complejidad de la prestación de los servicios
+a) Los servicios de apoyo que brindará la Caja dentro del Sistema Mixto de Atención en Salud, deben ser homólogos a los brindados por la CCSS en el primer nivel de atención, según el modelo de atención vigente, excepto por lo así estipulado para casos específicos en el articulado de este Reglamento.
+b) El profesional médico puede referir al usuario a la red de la CCSS, mediante referencia directa en la boleta código 4-70-04-0140, a las áreas de salud tipo 1 y a las siguientes especialidades disponibles en la red: Pediatría, Medicina familiar, Psiquiatría, Medicina interna, Cirugía general y Ginecoobstetricia, en todos los casos según el lugar de residencia de la persona.
+Las referencias a especialidades de la CCSS se realizan respetando el siguiente orden ascendente: Áreas de Salud tipo 2, Áreas de Salud tipo 3, Hospital Periférico, Hospital Regional y Hospital Nacional, es decir, se referirá a la unidad institucional de menor complejidad que cuente con la especialidad requerida, según la red correspondiente al usuario.
+c) Los centros de salud de la CCSS deben asegurar el cumplimiento de lo estipulado en el inciso b) del presente artículo y para ello cuenta con los diferentes sellos definidos en el artículo 6, incisos h) y k) y con la información disponible sobre la inscripción de los profesionales.

@@ -1,0 +1,3 @@
+Transitorio:
+1. Se prevé un plazo de dos meses posterior a aprobado el presente Reglamento, de manera que los profesionales inscritos puedan adquirir y sellar la papelería con el sello establecido en el artículo 6, inciso k).
+2. Se otorga un plazo de seis meses posterior a la aprobación del presente Reglamento, de modo que los profesionales inscritos actualmente que ostentan varios consultorios en el territorio nacional puedan inscribirlos en sus correspondientes áreas de salud, de acuerdo con el artículo 4 inciso b) y quede de esa manera registro de todos los consultorios en los que podrá acceder a la medicina mixta”.
