@@ -1,0 +1,1 @@
+Artículo 22.—Las actividades específicas de la Academia serán reguladas por reglamentos que preparará el Consejo Directivo y aprobará la Asamblea General. Dichos reglamentos deberán ser aprobados por dos tercios del total de los Académicos de Número en Asamblea General convocada para tal efecto.

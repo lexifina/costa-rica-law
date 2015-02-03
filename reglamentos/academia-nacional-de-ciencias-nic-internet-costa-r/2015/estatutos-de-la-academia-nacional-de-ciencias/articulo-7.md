@@ -1,0 +1,2 @@
+Artículo 7º—El quórum de la Asamblea General de la Academia lo constituye la mitad más uno de sus miembros presentes. En caso de que a la hora fijada para una Asamblea General no haya quórum, se convocará para media hora después y el quórum lo constituirá el 20% de sus miembros activos.
+Los reglamentos de la Academia, según lo estipulado en la ley de su creación, deben ser aprobados por dos tercios de los Académicos de Número activos en Asamblea General convocada para tal efecto.

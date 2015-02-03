@@ -1,0 +1,3 @@
+Artículo 5º—Son deberes de los miembros, participar en las actividades regulares y extraordinarias de la Academia y en aquellas tareas que la Academia les encomiende.
+Todos los miembros de la Academia podrán disfrutar de permisos para ausentarse por más de dos meses, con la única obligación de solicitarlo así por escrito al Consejo Directivo. A partir del momento en que tal solicitud es conocida por el Consejo Directivo, el solicitante es excluido del quórum reglamentario para sesionar.
+Cuando un miembro actuare contrario a los fines y objetivos de la Academia, el Consejo elevaría ante la Asamblea General su separación de la Academia, la cual tendría que ser decidida por dos tercios de los miembros.

@@ -1,0 +1,1 @@
+Artículo 8º—La Asamblea General de la academia se reunirá en sesión ordinaria por lo menos dos veces por año. El presidente podrá convocar a sesión extraordinaria cuando lo crea conveniente o cuando el 25% de sus miembros activos así lo soliciten.

@@ -1,0 +1,2 @@
+Artículo 20.—El Consejo Directivo de la Academia deberá reunirse por lo menos una vez cada dos meses.
+El Consejo Directivo Podrá emitir un reglamento para implementar las reuniones de su directorio mediante medios no presenciales y que puedan sustituir en parte o totalmente la presencia física de sus integrantes, las votaciones y acuerdos así tomados tendrán la misma validez de las sesiones presenciales.
