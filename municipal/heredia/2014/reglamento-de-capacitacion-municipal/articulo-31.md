@@ -1,0 +1,1 @@
+Artículo 31.—En caso de tratarse de pasantías o capacitaciones fuera del país, la Municipalidad de Heredia, otorgará un permiso con goce de salario y podrá, según autorización de la Alcaldía Municipal, asumir los gastos de transporte, hospedaje y/o alimentación.

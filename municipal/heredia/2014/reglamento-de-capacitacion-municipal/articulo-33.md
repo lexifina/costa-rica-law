@@ -1,0 +1,1 @@
+Artículo 33.—La sección de Talento Humano deberá comunicar al personal municipal, la realización de los eventos de capacitación programados, así como las becas que se ofrezcan y condiciones para acceder a estos.

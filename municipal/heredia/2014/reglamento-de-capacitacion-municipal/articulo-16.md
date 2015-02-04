@@ -1,0 +1,1 @@
+Artículo 16.—Los Planes y Programas de Capacitación deberán ejecutarse según el Plan Anual Operativo de cada departamento o sección, o bien, cuando así lo disponga la Alcaldía Municipal, Gestor/a de Talento Humano o personas que ocupan puestos de Dirección de área.

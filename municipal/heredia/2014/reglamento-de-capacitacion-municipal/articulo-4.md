@@ -1,0 +1,1 @@
+Artículo 4º—Es responsabilidad de la sección de Talento Humano en coordinación con las Jefaturas, diagnosticar anualmente las necesidades de capacitación y formación del personal municipal que cumpla con lo establecido en el Plan de Capacitación Municipal y mantener estos diagnósticos actualizados.

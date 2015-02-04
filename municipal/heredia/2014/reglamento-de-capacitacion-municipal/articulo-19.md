@@ -1,0 +1,1 @@
+Artículo19.—La sección de Talento Humano podrá calificar a las personas participantes, a las personas instructoras, e instituciones con una ponderación de 10 puntos siendo 10 la máxima puntuación asignada de satisfacción, según el mecanismo de evaluación empleada y mantendrá el debido registro actualizado.

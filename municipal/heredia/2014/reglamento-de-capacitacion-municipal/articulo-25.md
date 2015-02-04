@@ -1,0 +1,1 @@
+Artículo 25.—El Alcalde/Alcaldesa en condición con los Directores y las Jefaturas, seleccionará al personal municipal que participará de las capacitaciones impartidas o contratadas por la institución de acuerdo a las necesidades de capacitación y formación.

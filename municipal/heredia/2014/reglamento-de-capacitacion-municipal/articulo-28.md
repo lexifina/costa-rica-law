@@ -1,0 +1,1 @@
+Artículo 28.—En todos los programas de capacitación tanto internos como abiertos que organice la Municipalidad de Heredia o la sección de Talento Humano, colaborará con las personas responsables (si así lo solicita) de atender los requerimientos de material de apoyo y equipo necesario para su realización.

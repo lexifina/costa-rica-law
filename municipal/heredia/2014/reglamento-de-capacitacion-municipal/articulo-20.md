@@ -1,0 +1,1 @@
+Artículo 20.—El seguimiento de los planes y programas de capacitación será uno de los mecanismos necesarios que implementará la sección de Talento Humano, para actualizar y registrar los resultados obtenidos.
