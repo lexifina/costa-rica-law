@@ -1,4 +1,1 @@
-ARTÍCULO 41.- Apelación
-La parte disconforme con la resolución final podrá apelar ante el Tribunal de Casación de lo Contencioso-Administrativo y Civil de Hacienda, dentro de los cinco días hábiles siguientes a la fecha de la notificación.
-Presentada la apelación y transcurrido el plazo para apelar, el juzgado elevará los autos de inmediato.
-(Así reformado por el artículo 215 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso Administrativo).
+Artículo 41.-Audiencia sobre el fondo y prueba para mejor resolver. El Tribunal de lo Contencioso-Administrativo y Civil de Hacienda concederá a las partes un plazo de cinco días hábiles para presentar los alegatos que consideren oportunos. También, podrá solicitar la prueba para mejor resolver que considere pertinente.

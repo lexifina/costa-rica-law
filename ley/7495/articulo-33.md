@@ -1,5 +1,3 @@
-ARTÍCULO 33.- Entrada en posesión.
-Si transcurridos los dos meses estipulados en el artículo 31 de esta
-Ley el inmueble no ha sido desocupado, el Juez procederá a ordenar el
-desalojo; para ello, se auxiliará con la fuerza pública y pondrá a la
-administración en posesión del bien.
+Artículo 33.- Retiro del monto del avalúo administrativo. En aquellos casos en que se hubiera iniciado el proceso especial de expropiación, de conformidad con el artículo 28 de esta ley, el expropiado podrá solicitar al juez de lo Contencioso-Administrativo y Civil de Hacienda el giro del monto del avalúo administrativo previamente depositado por la administración expropiante, sin perjuicio del derecho que le asiste para pedir su revisión en este mismo proceso, de conformidad con lo dispuesto en esta ley.
+De previo a ordenar el giro, el juez deberá tomar las previsiones para cancelar los gravámenes, las anotaciones y exacciones ordenadas en el artículo 12 de esta ley.
+La indemnización correspondiente a personas menores de edad sin representante legal se depositará en el Patronato Nacional de la Infancia (PANI), mientras esta situación continúe. Dicha entidad procurará que la suma retirada obtenga tanto rendimiento como sea posible.

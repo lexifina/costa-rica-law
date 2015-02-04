@@ -1,1 +1,1 @@
-ARTÍCULO 42.- Prueba para mejor proveer. (Derogado por el artículo 215 de la Ley N° 8508 de 28 de abril de 2006, Código Procesal Contencioso Administrativo)
+Artículo 42.- Resolución de segunda instancia. Vencido el plazo fijado en el artículo anterior o evacuada la prueba para mejor resolver, el Tribunal de lo Contencioso- Administrativo y Civil de Hacienda dictará la resolución final, dentro de los quince días hábiles siguientes.

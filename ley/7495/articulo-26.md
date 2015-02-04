@@ -1,3 +1,4 @@
-ARTÍCULO 26.- Apelación del avalúo administrativo.
-(Derogado por el artículo 1º de la ley No.7757 de 10 de marzo de
-1998)
+Artículo 26.- Arbitraje. En cualquier etapa de los procedimientos, las partes podrán someter a arbitraje sus diferencias, de conformidad con las regulaciones legales y los instrumentos vigentes del derecho internacional. Dicho arbitraje no impedirá la entrada en posesión del bien expropiado por parte de la Administración, de conformidad con lo dispuesto en esta ley. Cuando la diferencia verse sobre la determinación del precio justo y el diferendo se rija por la legislación procesal costarricense, el arbitraje será de peritos y los gastos correrán por cuenta del ente expropiador.
+Los peritos deberán ajustarse a los criterios de valoración establecidos en el artículo 22 y a los honorarios indicados en el artículo 36, ambos de esta ley.
+Cuando se recurra a mecanismos de arbitraje estipulados en instrumentos internacionales vigentes en Costa Rica, se estará a las regulaciones allí contenidas.
+Si la diferencia versa sobre la naturaleza, el contenido, la extensión o las características del derecho o bien por expropiar, la discrepancia se resolverá antes de determinar el justo precio, mediante un arbitraje de derecho, con los gastos a cargo de ambas partes.

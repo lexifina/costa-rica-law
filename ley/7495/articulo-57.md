@@ -1,9 +1,4 @@
-ARTÍCULO 57.- Indemnización por otros daños.
-Cuando, por razones graves de orden o seguridad pública, epidemias,
-inundaciones y otras calamidades deban adoptarse medidas que impliquen
-destrucción, detrimento efectivo, ocupación de bienes o de derechos
-particulares, sin las formalidades prev ias para aplicar los diversos
-tipos de expropiación que exige esta Ley, el particular perjudicado tendrá
-derecho de indemnización, de acuerdo con las normas de los preceptos
-relativos a la ocupación temporal del inmueble. La administración deberá,
-tan pronto como le sea posible, iniciar el expediente respectivo.
+CAPÍTULO V
+DISPOSICIONES FINALES
+SECCIÓN ÚNICA
+Artículo 57.- Responsabilidad de los funcionarios administrativos. Los funcionarios que intervengan en el proceso administrativo y no se sujeten a los plazos que esta ley establece responderán personalmente, ante el administrado, por los daños que su demora pueda causarle, sin perjuicio de las sanciones administrativas correspondientes ni de la responsabilidad de la Administración.

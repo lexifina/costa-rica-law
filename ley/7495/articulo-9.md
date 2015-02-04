@@ -1,5 +1,4 @@
-ARTÍCULO 9.- Intervención de la Procuraduría General de la República.
-En las diligencias de expropiación deberá tenerse como parte a la
-Procuraduría General de la República, cuando el sujeto pasivo sea una
-persona menor de edad, incapacitada, ausente o que carezca de personería
-jurídica o de capacidad para actuar.
+Artículo 9.- Intervención de la Procuraduría General de la República. Tanto en las etapas conducentes de los procedimientos administrativos de gestoría y adquisición de terrenos, como en las diligencias de expropiación, se deberá tener como parte a la Procuraduría General de la República, la cual participará de forma activa, debida y diligente, cuando el sujeto pasivo sea una persona con discapacidad, ausente o carezca de personería jurídica o de capacidad para actuar.
+La Procuraduría General de la República y, particularmente la Notaría del Estado, en lo relacionado con el despliegue de actuaciones correspondientes a los trámites de adquisición o expropiación de terrenos, queda plenamente facultada y obligada a actuar o gestionar, debiendo proceder con la mayor diligencia y rapidez para la realización y concreción de los trámites de interés.
+El Registro Nacional dará trámite preferente a la atención e inscripción de documentos emitidos por la Notaría del Estado y por notarios públicos, relativos o tendientes a la afectación o a la adquisición y el traspaso de bienes inmuebles que sean necesarios para la realización de obras públicas y que presenten la respectiva declaratoria de interés público.
+En caso de retardarse indebidamente el trámite acá indicado, se aplicarán las sanciones que correspondan.

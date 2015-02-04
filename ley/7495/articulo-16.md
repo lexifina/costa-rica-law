@@ -1,8 +1,3 @@
-ARTÍCULO 16.- Restitución.
-Transcuridos diez años desde la expropiación, el expropiador
-devolverá, a los dueños originales o a los causahabientes que lo soliciten
-por escrito, las propiedades o las partes sobrantes que no se hayan
-utilizado totalmente para el fin respectivo.
-El interesado deberá cubrir, al ente expropiador, el valor actual del
-bien, cuya valoración se determinará de acuerdo con los trámites previstos
-en esta Ley.
+Artículo 16.- Restitución. Transcurridos diez años desde la inscripción del inmueble expropiado a nombre del Estado, el expropiador podrá devolver a los dueños originales o a los causahabientes, que lo soliciten por escrito, las propiedades o las partes sobrantes que no se hayan utilizado totalmente para el fin respectivo.
+El interesado deberá cubrir, al ente expropiador, el valor actual del bien, cuya valoración se determinará de acuerdo con los trámites previstos en esta ley.
+Transcurridos los diez años establecidos en el presente artículo, los expropiados o sus causahabientes tendrán tres años para ejercer el derecho de restitución reconocido en esta norma.
