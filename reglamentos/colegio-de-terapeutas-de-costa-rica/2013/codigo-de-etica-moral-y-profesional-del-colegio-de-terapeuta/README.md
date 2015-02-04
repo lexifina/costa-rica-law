@@ -14,3 +14,4 @@ Código de Ética Moral y Profesional del Colegio de Terapeutas de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-19 | la propia norma |
+| 2 | 2015-02-04 | Acuerdo 0 (2015-02-04) |
