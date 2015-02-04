@@ -22,6 +22,7 @@ Los siguientes crustáceos y moluscos deben ser frescos, refrigerados o congelad
 32. Calamares blanco y torpedo.
 33. Choras.
 34. Cangrejos incluyendo las jaibas.
-35. Camarón de los tipos fidel, pink, camello, camellito, tití y camarón de cultivo.
+35. (*)Camarón de los tipos fidel, pink, camello, camellito, tití y camarón de cultivo.
+(*) (Nota de Sinalevi: Mediante resolución RES-DGA-032 la Dirección General de Aduanas, comunicó: "... que de acuerdo a las aperturas nacionales y modificaciones arancelarias producto del Decreto Ejecutivo Nº 38747-H “Reforma al Reglamento de la Ley de Impuesto General Sobre Las Ventas”; con el que en el Artículo 1° del referido Decreto se reforma el artículo 5° inciso 1) sub inciso I. del Reglamento de la Ley de Impuesto General sobre las Ventas, que en lo que interesa sobre Crustáceos y moluscos punto 35. “Camarón de los tipos Fidel, pink, camello, camellito, tití y camarón de cultivo” se agrega el camarón de cultivo como mercancía exenta del pago del Impuesto General Sobre las Ventas, los cambios en el arancel generados por esta modificación se detallan en el Anexo adjunto y serán incorporados en el Arancel automatizado del Servicio Nacional de Aduanas en la aplicación informática TICA con fecha de rige 03 de febrero del 2015. El anexo antes mencionado puede ser consultado en el siguiente link: El camarón de cultivo como mercancía estará exenta del pago del Impuesto General Sobre las Ventas)
 36. Pianguas.
 (…)”.

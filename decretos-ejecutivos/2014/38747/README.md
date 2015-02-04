@@ -14,3 +14,4 @@ Reforma Reglamento de la Ley de Impuesto General sobre las Ventas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-03 | la propia norma |
+| 2 | 2015-02-04 | Resolución 32 (2015-02-04) |
