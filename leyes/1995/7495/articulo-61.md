@@ -1,14 +1,2 @@
-ARTÍCULO 61.- Responsabilidad de los peritos
-Al preparar los informes, los peritos serán responsables
-personalmente por los daños y perjuicios provocados a la Administración
-cuando, mediante sentencia, se acoja un dictamen pericial cuya
-sobrevaloración se determine posteriormente. En tales casos, la
-Administración expropiante promoverá, contra los peritos, las acciones
-administrativas, civiles y penales que correspondan.
-De ocurrir sobrevaloración de peritajes, se excluirá al perito de la
-lista de la Dirección Ejecutiva del Poder Judicial, incluso si el dictamen
-fuere desestimado en sentencia.
-Los particulares podrán acudir a la vía civil para reclamar cualquier
-daño que se les cause y se origine en los informes de los peritos.
-(Así reformado por el artículo 1º de la ley No.7757 de 10 de marzo
-de 1998)
+Artículo 61.- Prescripción y caducidad. Los derechos y las acciones que se deriven de la presente ley prescriben en diez años, contados a partir del día siguiente a aquel en el que el Estado tomó posesión del bien o lo afectó.
+El reclamo, por vía administrativa, caducará y se tendrá por no interpuesto si transcurren cinco años sin que el interesado active las diligencias.

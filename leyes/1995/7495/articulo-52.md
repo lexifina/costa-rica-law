@@ -1,9 +1,5 @@
-ARTÍCULO 52.- Reubicación de Poblaciones.
-Cuando para realizar una obra de utilidad o interés público sea
-necesario trasladar poblaciones, el Poder Ejecutivo o la administración
-expropiadora coordinará la reubicación respectiva.
-Los entes y las dependencias que deban participar en la ejecución del
-respectivo proyecto incluirán, en sus presupuestos, las partidas
-complementarias requeridas para prestar sus servicios. Además, deberán
-velar porque se cumpla con las normas técnicas en la instalación y el
-funcionamiento de los servicios.
+SECCIÓN II
+INDEMNIZACIÓN POR OCUPACIÓN
+TEMPORAL Y OTROS DAÑOS
+Artículo 52.- Ocupación temporal de bienes. Cuando la Administración Pública requiera ocupar temporalmente el bien de un particular, deberá dictar una resolución motivada para declarar de necesidad pública esa ocupación.
+Esta resolución deberá razonarse en la forma debida. Se indicará expresamente el plazo, el cual no podrá exceder de cinco años, y la indemnización que proceda. Además, deberá notificarse a los afectados por la ocupación.

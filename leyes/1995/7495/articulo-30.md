@@ -1,7 +1,7 @@
-ARTÍCULO 30.- Objeto de litigio
-En el proceso especial de expropiación, solo se discutirán asuntos
-relacionados con la revisión del avalúo administrativo del bien
-expropiado, según las condiciones en que se encontraba, para fijar el
-monto final de la indemnización.
-(Así reformado por el artículo 1º de la ley No.7757 de 10 de marzo
-de 1998)
+Artículo 30.- Resolución inicial y selección del perito. Recibida la solicitud de la Administración, el Juzgado de lo Contencioso-Administrativo y Civil de Hacienda expedirá, de oficio, el mandamiento de anotación definitiva, en el registro público correspondiente, de los inmuebles y derechos por expropiar.
+En la misma resolución, el juez nombrará un perito idóneo según su especialidad y experiencia, para que revise el avalúo administrativo.
+El juez escogerá al perito de entre la lista que presenten los colegios profesionales a la Dirección Ejecutiva del Poder Judicial, que la publicará en el Boletín Judicial una vez aprobada. Para el nombramiento deberá seguirse un riguroso orden rotativo, con base en un registro que llevará el Poder Judicial.
+La Procuraduría General de la República, la institución expropiante o el expropiado podrán oponerse al nombramiento del perito que no sea idóneo. Contra lo resuelto por el juez cabrá apelación para ante el superior.
+El juez fijará también los honorarios del perito, de conformidad con lo dispuesto por el artículo 36 de la presente ley.
+En la resolución inicial, se le concederá al expropiado un plazo de quince días hábiles para desalojar el inmueble, siempre que la Administración haya depositado el monto del avalúo administrativo y que, a criterio del juez, este monto corresponda al principio de precio justo, según los precedentes para casos similares.
+De reunir las características del párrafo anterior, en esta resolución se ordenará la entrada en posesión del bien. Contra esta resolución no procederá recurso alguno.

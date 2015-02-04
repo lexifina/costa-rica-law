@@ -1,7 +1,1 @@
-ARTÍCULO 60.- Responsabilidad de los funcionarios judiciales.
-Cuando los funcionarios judiciales incumplan, injustificadamente, los
-plazos que esta Ley establece, incurrirán en responsabilidad personal, sin
-perjuicio de las sanciones administrativas correspondientes. La
-Procuraduría General de la República o el ente expropiador deberá
-enderezar las acciones que correspondan para resarcir, a la Administración
-Pública, de los perjuicios económicos que se le hayan causado.
+Artículo 60.- Especies fiscales y autenticación. Las diligencias de expropiación se tramitarán exentas del pago de especies fiscales. Las gestiones que plantee personalmente el expropiado, en la vía administrativa o judicial, no requieren autenticación.

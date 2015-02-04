@@ -1,9 +1,2 @@
-CAPITULO V
-DISPOSICIONES FINALES
-SECCION UNICA
-ARTÍCULO 59.- Responsabilidad de los funcionarios administrativos.
-Los funcionarios que intervengan en el proceso administrativo y no se
-sujeten a los plazos que esta Ley establece responderán, personalmente,
-ante el administrado por los daños que su demora pueda causarle, sin
-perjuicio de las sanciones administ rativas correspondientes ni de la
-responsabilidad de la administración
+Artículo 59.- Responsabilidad de los peritos. Al preparar los informes, los peritos serán responsables personalmente por los daños y perjuicios provocados a la Administración cuando, mediante sentencia, se acoja un dictamen pericial cuya sobrevaloración se determine posteriormente. En tales casos, la Administración expropiante promoverá, contra los peritos, las acciones administrativas, civiles y penales que correspondan.
+De ocurrir sobrevaloración de peritajes, se excluirá al perito de la lista de la Dirección Ejecutiva del Poder Judicial, incluso si el dictamen fuera desestimado en sentencia. Los particulares podrán acudir a la vía civil para reclamar cualquier daño que se les cause y se origine en los informes de los peritos.

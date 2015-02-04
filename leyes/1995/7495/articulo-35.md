@@ -1,9 +1,4 @@
-ARTÍCULO 35.- Aceptación del cargo de perito
-Notificado el perito, contará con un plazo improrrogable de ocho días
-hábiles para aceptar el cargo ante el Juzgado contencioso-administrativo
-y civil de hacienda. Vencido el plazo sin haber concurrido a aceptar el
-cargo, de oficio se le excluirá por un año de la lista de peritos si, a
-criterio del juez, no medió causa justificada para la no aceptación, y se
-nombrará a otro perito.
-(Así reformado por el artículo 1º de la ley No.7757 de 10 de marzo
-de 1998)
+Artículo 35.- Plazo para rendir el dictamen. El perito deberá rendir el dictamen original y dos copias, dentro del plazo improrrogable de un mes contado a partir de la aceptación del cargo.
+Si no cumpliera dentro del plazo, se le removerá del cargo y se le excluirá por un año de la lista de peritos. El juez procederá de inmediato a nombrar a otro perito.
+El dictamen deberá sujetarse a lo dispuesto en el artículo 22 de esta ley y su objeto será revisar el avalúo administrativo para que se ajuste al valor del bien en el momento en que fue valuado.
+Si el perito se apartara del avalúo administrativo, deberá explicar pormenorizadamente las razones por las que varía de criterio y estima que el bien tiene otro valor.

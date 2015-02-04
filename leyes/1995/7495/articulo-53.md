@@ -1,6 +1,2 @@
-ARTÍCULO 53.- Disconformidad con la reubicación.
-Cuando el administrado considere que el inmueble donde se le reubicó
-es de condición inferior al que ocupaba antes podrá recurrir al Juzgado
-Contencioso-Administrativo y Civil de Hacienda para que, se resuelvan sus
-pretensiones, siguiéndose, en cuanto sea compatible, el procedimiento que
-esta Ley establece para las diligencias judiciales de expropiación.
+Artículo 53.- Disconformidad con la indemnización. Si el administrado no está conforme con los términos de la resolución mencionada en el artículo anterior, dentro de los ocho días hábiles siguientes a la notificación respectiva, podrá recurrir ante el jerarca de la Administración e indicar, expresamente, el fundamento de su disconformidad.
+La Administración deberá resolver dentro de los dos meses siguientes, con lo cual dará por agotada la vía administrativa
