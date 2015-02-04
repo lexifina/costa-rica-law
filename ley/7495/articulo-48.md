@@ -1,5 +1,1 @@
-ARTÍCULO 48.- Depósito del justiprecio.
-Cuando el expropiado no retire el justiprecio, éste permanecerá
-depositado a la orden del juzgado que conoció de la expropiación.
-Los propietarios del justiprecio o sus representantes legales podrán
-solicitar su giro en cualquier tiempo.
+Artículo 48.- Exoneraciones. La inscripción en el Registro Nacional de los planos y las escrituras que se otorguen por la aplicación de esta ley estará exenta del pago de impuestos, timbres, derechos de registro y demás cargas fiscales.

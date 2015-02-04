@@ -1,6 +1,2 @@
-ARTÍCULO 46.- Archivo de las diligencias
-En cualquier momento, la Administración expropiante podrá solicitar
-el archivo del expediente. Cuando lo solicite en la vía judicial deberá
-cubrir las costas procesales y personales.
-(Así reformado por el artículo 1º de la ley No.7757 de 10 de marzo
-de 1998)
+Artículo 46.- Depósito del ajuste del justiprecio. Cuando el expropiado no retire el ajuste del justiprecio, este permanecerá depositado a la orden del juzgado que conoció de la expropiación.
+Los propietarios del justiprecio o sus representantes legales podrán solicitar su giro en cualquier tiempo.

@@ -1,0 +1,1 @@
+Transitorio único.- Los procesos de expropiación pendientes a la fecha de entrada en vigencia de esta ley continuarán tramitándose de conformidad con las disposiciones vigentes en el momento de iniciarlos.

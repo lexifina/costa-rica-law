@@ -1,8 +1,1 @@
-CAPITULO IV
-MODALIDADES DE INDEMNIZACION
-SECCION I
-REUBICACION
-ARTÍCULO 51.- Reubicación del expropiado.
-A título de indemnización y por así acordarlo con el expropiado, la
-administración expropiadora podrá reubicar al expropiado en condiciones
-similares a las disfrutadas antes de la expropiación.
+Artículo 51.- Disconformidad con la reubicación. Cuando el administrado considere que el inmueble donde se le reubicó es de condición inferior al que ocupaba antes, podrá recurrir al Juzgado de lo Contencioso-Administrativo y Civil de Hacienda para que se resuelvan sus pretensiones siguiéndose, en cuanto sea compatible, el procedimiento que esta ley establece para las diligencias judiciales de expropiación.

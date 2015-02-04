@@ -1,8 +1,1 @@
-ARTÍCULO 55.- Disconformidad con la indemnización.
-Si el administrado no está conforme con los términos de la resolución
-mencionada en el artículo anterior, dentro de los ocho días hábiles
-siguientes a la notificación respectiva, podrá recurrir ante el jerarca de
-la administración e indicar, expresamente, el fundamento de su
-disconformidad.
-La administración deberá resolver dentro de los dos meses siguientes,
-con lo cual dará por agotada la vía administrativa.
+Artículo 55.- Indemnización por otros daños. Cuando, por razones graves de orden o seguridad pública, epidemias, inundaciones y otras calamidades deban adoptarse medidas que impliquen destrucción, detrimento efectivo, ocupación de bienes o de derechos particulares, sin las formalidades previas para aplicar los diversos tipos de expropiación que exige esta ley, el particular perjudicado tendrá derecho de indemnización, de acuerdo con las normas de los preceptos relativos a la ocupación temporal del inmueble. La Administración deberá iniciar, tan pronto como le sea posible, el expediente respectivo.

@@ -1,9 +1,5 @@
-ARTÍCULO 12.- Exacciones y gravámenes.
-El bien expropiado se adquirirá libre de exacciones y gravámenes. No
-obstante, sobre él podrán conservarse servidumbres, siempre que resulten
-compatibles con el nuevo destino del bien y exista acuerdo entre el
-expropiador y el titular del derecho.
-Cuando sobre lo expropiado pesen gravámenes o cargas, el Juez
-separará, del monto de la indemnización, la cantidad necesaria para
-cancelarlos y girará los montos respectivos, a quien corresponda, previa
-audiencia al expropiado.
+Artículo 12.- Exacciones y gravámenes. El bien expropiado se adquirirá libre de exacciones y gravámenes. No obstante, sobre él podrán conservarse servidumbres, siempre que resulten compatibles con el nuevo destino del bien y exista acuerdo entre el expropiador y el titular del derecho de servidumbre.
+Cuando sobre lo expropiado pesen gravámenes o cargas, el juez separará, del monto de la indemnización, la cantidad necesaria para cancelarlos y girará los montos respectivos, a quien corresponda, previa audiencia al expropiado y a los terceros con interés legítimo.
+Cuando se trate de servidumbres trasladadas que existen al margen de la finca expropiada, como gravamen, pero no en la realidad física del inmueble, el notario dará fe, en la escritura pública, de que la servidumbre no existe en la materialidad y carece de interés actual, con vista en un informe técnico elaborado por la administración expropiante, lo que será suficiente para que el Registro Nacional cancele sin más trámite el asiento.
+En aquellos casos en los cuales el propietario del inmueble a expropiar acepta el avalúo administrativo y el bien inmueble soporta limitaciones impuestas por la Ley N.° 4240, Ley de Planificación Urbana, de 15 de noviembre de 1968, y sus reformas; la Ley N.° 7575, Ley Forestal, de 13 de febrero de 1996, y sus reformas; la Ley N.° 5060, Ley General de Caminos Públicos, de 22 de agosto de 1972, y sus reformas; la Ley N.° 276, Ley de Aguas, de 27 de agosto de 1942, y sus reformas; Ley N.° 139, Ley de Informaciones Posesorias, de 14 de julio de 1941, y sus reformas y la Ley N.° 2755, Ley sobre Localización de Derechos Indivisos, de 9 de junio de 1961, y sus reformas, o cualesquiera otra, la Notaría del Estado procederá a la confección de la escritura de traspaso correspondiente a favor de la administración expropiante.
+En todos estos casos el Registro Nacional, a solicitud del notario autorizante, procederá a cancelar los asientos de inscripción sobre el inmueble expropiado. Si se trata de segregaciones, la cancelación se hará únicamente sobre el lote a expropiar.
