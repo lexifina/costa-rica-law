@@ -295,6 +295,7 @@ Costo solamente del lector de firma digital: (Así adicionado el servicio anteri
 Costo de la renovación del certificado: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$10,00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Costo para la generación de nueva clave: (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | US$5,00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Cobro por concepto de comisión por el pago en ventanilla de servicios públicos que realicen las personas que no son clientes del Banco. (Así adicionado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | ¢300.00 (Así adicionado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Comisión por retiro anticipado en la Cuenta Multipropósito (Así adicionada la comisión anterior en sesión N° 8818 del 4 de febrero de 2015) | - Si un cliente retira los recursos antes de los seis meses, se cobrará una comisión del 50% sobre los ingresos generados. - Si un cliente retira los recursos entre los seis meses y antes del plazo pactado, se cobrará una comisión del 25% sobre los ingresos generados. (Así adicionado el monto anterior en sesión N° 8818 del 4 de febrero de 2015)
 Seguridad:
 Solicitud revisión de video de transacciones realizadas en ventanilla, cajeros automáticos, cajas interna. | $15.00 por video solicitado
 Custodia de Cajitas de Seguridad:
