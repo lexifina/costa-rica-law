@@ -8,6 +8,7 @@ Estimulación Temprana (Así adicionada la maestría anterior mediante sesión o
 Fonoaudilogía.
 Kinesiología.
 Medicina Social (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-03-06 del 6 de marzo del 2013)
+Medicina Fetal (Así adicionada la maestría anterior mediante sesión extraordinaria N° 2015-02-04 del 4 de febrero del 2015)
 Microbiología (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-12-11 del 11 de diciembre del 2013)
 Recreación Física y Mental.
 Registros Médicos.
