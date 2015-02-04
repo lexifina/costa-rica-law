@@ -1,0 +1,1 @@
+Artículo 2°—El CONABA estará conformado por el Director General del SENASA o quien éste designe para tales efectos y hasta por 23 integrantes adicionales, que se escogerán entre actores formales representantes del sector privado tales como asociaciones o fundaciones, jurídicamente constituidas, cuyas actividades tengan relación con el objeto de esta directriz.

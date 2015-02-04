@@ -1,0 +1,1 @@
+Artículo 8°—Los representante designados para ocupar un puesto en el CONABA en las respectivas asambleas durarán en sus cargos un plazo de 2 años. En las respectivas asambleas se designará una organización suplente, la cual asumirá propiedad en el eventual caso que la designada propietaria abandone, renuncie o sea separada del cargo.

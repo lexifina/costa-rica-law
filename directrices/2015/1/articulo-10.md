@@ -1,0 +1,1 @@
+Artículo 10.—El quórum para sesionar válidamente lo formará la mitad más uno de los integrantes formalmente instituidos, pudiendo contarse al Director General del SENASA o su representante para estos efectos. Todos los acuerdos y recomendaciones serán adoptados por mayoría simple de los presentes.

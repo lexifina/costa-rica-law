@@ -1,0 +1,1 @@
+Artículo 11.—La Organización cuyos representantes de forma injustificada no asistan a dos o más sesiones consecutivas, o tres o más intercaladas, se verán expuestos a perder su condición de miembros propietarios integrantes del Consejo. La separación de dichos miembros deberá adoptarse por medio de acuerdo del Director General del SENASA.

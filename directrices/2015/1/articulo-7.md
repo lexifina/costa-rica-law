@@ -1,0 +1,1 @@
+Artículo 7°—La Dirección Regional correspondiente convocará mediante aviso que se publicará en el Diario Oficial La Gaceta a una única Asamblea General con al menos 15 días naturales de anticipación, a todos aquellos actores formales regionales que hubiesen manifestado su interés en participar y se hayan inscrito al efecto.
