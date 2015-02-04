@@ -1,1 +1,0 @@
-Artículo 2°—Ámbito de aplicación. Este reglamento abarca la relación con los clientes, usuarios y funcionarios en temas de servicio al cliente, cuando se presenta alguna inconformidad, denuncia, sugerencia o felicitación, salvaguardando en todo momento la imagen y prestigio de la entidad.

@@ -1,1 +1,0 @@
-Artículo 12.—Régimen disciplinario. El no acatamiento del presente reglamento, será sancionado de conformidad con lo que establezca el Código de Trabajo y el capítulo sobre el régimen disciplinario del Reglamento Autónomo de Trabajo del Banco Crédito Agrícola de Cartago.
