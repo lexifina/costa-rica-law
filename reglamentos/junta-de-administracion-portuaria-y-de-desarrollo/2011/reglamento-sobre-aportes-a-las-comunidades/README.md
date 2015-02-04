@@ -14,3 +14,4 @@ Reglamento sobre aportes a las comunidades
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-22 | la propia norma |
+| 2 | 2015-02-04 | Reglamento 0 (2015-02-04) |
