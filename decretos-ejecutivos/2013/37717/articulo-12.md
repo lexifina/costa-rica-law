@@ -20,6 +20,7 @@ Gerencia de la Salud.
 Homeopatía.
 Informática Médica.
 Medicina del Deporte.
+Medicina Fetal (Así adicionada la maestría anterior mediante sesión extraordinaria N° 2015-02-04 del 4 de febrero del 2015)
 Medicina del Trabajo.
 Medicina Paliativa en Adultos.
 Medicina Paliativa Pediátrica.
