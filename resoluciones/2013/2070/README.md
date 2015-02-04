@@ -14,3 +14,4 @@ Establece que trámites serán firmados por el Gerente y/o Subgerente de la Adua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-06 | la propia norma |
+| 2 | 2015-02-04 | Resolución 250 (2015-02-04) |

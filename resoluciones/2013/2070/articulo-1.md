@@ -1,4 +1,5 @@
 SERVICIO NACIONAL DE ADUANAS
+(Nota de Sinalevi: Mediante resolución N° RES-AC-0250-2015 del 4 de febrero del 2015, se prorroga la vigencia de esta norma hasta el 6 de marzo del 2016)
 RES-AC-DN-2070-2013 Aduana Central, Goicoechea, al ser las siete horas con cuarenta minutos del día 28 de octubre del año 2013.—Conoce esta Gerencia la delegación expresa de competencias en la Subgerencia de esta Aduana, en relación a la directriz DGA-448-2013 del 18 de octubre del 2013, dictada por el Director General de Aduanas Gerardo Bolaños Alvarado, en donde emitió lineamientos de acatamiento obligatorio, respecto a las delegaciones de funciones realizadas por los Gerentes de las Aduanas.
 Resultando:
 1º—Con el oficio AC-G-90-2013 de fecha 26 de julio del año 2013, la Gerencia de la Aduana delegó, las funciones indicadas en el inciso e al b.b del artículo 35 bis del Reglamento a la Ley General de Aduanas.
