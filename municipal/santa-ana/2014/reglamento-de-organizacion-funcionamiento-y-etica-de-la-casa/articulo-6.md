@@ -1,0 +1,1 @@
+Artículo 6º—De los Mediadores: La Casa de Justicia de Santa Ana mantendrá el listado de sus Mediadores, así como los currículos actualizados de éstos, los mismos que deberán contener documentación que acredite su formación académica y su especialización en materia de mediación.

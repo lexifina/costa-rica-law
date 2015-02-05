@@ -1,0 +1,1 @@
+Artículo 26.—Las partes no deben pagar monto alguno por el servicio que se les brinda en la Casa de Justicia ni entregar ningún tipo de dádiva al Director, mediador ni ningún otro funcionario de la Casa de Justicia de Santa Ana, ni antes, ni durante, ni después de realizada la mediación.

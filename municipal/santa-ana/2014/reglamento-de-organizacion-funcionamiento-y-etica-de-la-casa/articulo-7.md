@@ -1,0 +1,1 @@
+Artículo 7º—Respaldo Legal: La Casa de Justicia de Santa Ana deberá contar con un director el cual debe ser abogado certificado como mediador, mismo que se encargará de verificar la legalidad de los acuerdos a los cuales se haya llegado en las audiencias de mediación.

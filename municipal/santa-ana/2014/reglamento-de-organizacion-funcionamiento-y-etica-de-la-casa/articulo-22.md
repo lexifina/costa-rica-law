@@ -1,0 +1,1 @@
+Artículo 22.—La Casa de Justicia invitará a las partes a la audiencia, cumpliendo con todos los principios establecidos en la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social N° 7727.

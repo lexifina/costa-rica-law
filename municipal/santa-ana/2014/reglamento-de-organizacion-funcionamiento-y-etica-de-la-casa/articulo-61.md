@@ -1,0 +1,5 @@
+Artículo 61.—Serán faltas leves las siguientes:
+a) La falta de respeto a los neutrales, partes, al Director y personal administrativo de la Casa de Justicia en el ejercicio de sus funciones, cuando no constituya infracción grave o muy grave.
+b) El incumplimiento a las Normativas internas de la Casa de Justicia.
+c) El incumplimiento leve de los deberes que su función impone, establecidos en este Reglamento y en las demás Normativas vigentes de la Casa Justicia y de la materia de Resolución Alterna de Conflictos.
+d) Ser calificado por los usuarios negativamente en dos oportunidades, de conformidad con las boletas de opinión por la calidad del servicio que lleva la Casa.
