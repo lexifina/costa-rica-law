@@ -1,0 +1,1 @@
+Artículo 2º—Las instituciones nacionales, públicas y privadas, así como demás organizaciones y empresas, brindarán en la medida de sus posibilidades y dentro del marco jurídico respectivo, la colaboración y facilidades que estén a su alcance, para la realización de la Feria, sin menoscabo de las funciones propias.
