@@ -1,7 +1,8 @@
 Artículo 4º—Plazos. El plazo máximo para financiar cada línea de crédito es el siguiente:
 a) Línea Gastos Personales 5 Años
 b) Línea Pago de Deuda de Pensión 7 Años
-c) Línea de Microempresa 10 Años
+c) Línea de Microempresa 12 Años
+(Así reformado el inciso anterior mediante sesión ordinaria N° 015-2015 del 5 de febrero del 2015)
 d) Línea para entidades sociales y financieras del Magisterio Nacional, hasta 25 años. En este caso se podrá extender el plazo según la línea de inversión y lo que determine Junta Directiva.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 e) Línea de Salud 5 Años

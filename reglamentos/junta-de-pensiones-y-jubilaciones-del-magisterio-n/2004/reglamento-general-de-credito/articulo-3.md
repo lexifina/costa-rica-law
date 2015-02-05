@@ -21,6 +21,8 @@ ii. Cancelación parcial o total de gastos médicos para tratamientos especializ
 Estos gastos, pueden ser para el pensionado (a), su cónyuge o algún pariente por consaguinidad o afinidad en primer grado.
 iii. Reposición de bienes que el pensionado (a) haya perdido, a causa de hurto, robo o vandalismo; para lo cual, deberá presentar la documentación probatoria correspondiente (copia de la denuncia ante el Organismo de Investigación Judicial).
 iv. Reposición de bienes por causa de desastres naturales (inundaciones, temblores, terremotos, etc.) en los cuales, el pensionado (a) haya perdido parcial o totalmente sus bienes. Deberá aportar certificación emitida por la autoridad competente.
+Estos gastos, pueden ser para el pensionado (a), o de quien estime conveniente.
+(Así adicionado el párrafo anterior mediante sesión ordinaria N° 015-2015 del 5 de febrero del 2015)
 (Eliminado el inciso v) original mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 8. Línea para Servicios Funerarios
 Dirigida a los trabajadores en servicio cotizantes y a los pensionados o jubilados, que requieren cancelar gastos funerarios.

@@ -4,7 +4,8 @@ a) Línea Gastos Personales
 b) Línea Pago de Deuda al Fondo de Pensión
 9% Anual fija sobre saldos
 c) Línea de Microempresa
-16% Anual fija sobre saldos
+15% Anual fija sobre saldos
+(Así reformado el inciso anterior mediante sesión ordinaria N° 015-2015 del 5 de febrero del 2015)
 d) Línea para Entidades Sociales y Financieras del Magisterio Nacional: 11% Anual Fija sobre saldos. Cualquier solicitud para cambios en las tasas de interés, presentada por la entidad solicitante debe ser avalada por la Junta Directiva, previo estudio de impacto, elaborado por el Departamento Financiero Contable.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 e) Línea de Salud

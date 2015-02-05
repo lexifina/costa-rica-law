@@ -14,13 +14,16 @@ j) Presentar factura proforma, factura cancelada o documentos que muestren los c
 k) Garantía: Esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
 • Pensionados (as):
 Hasta | ¢4.000.000,00 | Sin fiador
-• Trabajadores en Servicio: MEP, Universidades y el INA en Propiedad
-Hasta | ¢2.000.000,00 | Sin fiador
-¢2.000.001.00 | ¢4.000.000,00 | 1 fiador
-• Trabajadores en Servicio: MEP, Universidades y el INA Interinos
-Hasta | ¢1.000.000,00 | Sin fiador
-¢1.000.001,00 | ¢2.000.000,00 | 1 fiador
-¢2.000.001,00 | ¢4.000.000,00 | 2 fiadores
+• Trabajadores en Servicio: MEP, Universidades y el INA en Propiedad, o bien, interinos de estos centros educativos, con 60 cotizaciones o más, en los últimos 6 años.
+Hasta | ¢2.000.000.00 | Sin fiador
+¢2.000.001.00 | ¢4.000.000.00 | 1 fiador
+| |
+(Así reformado el cuadro anterior mediante sesión ordinaria N° 015-2015 del de febrero del 2015)
+• Trabajadores en Servicio: MEP, Universidades y el INA Interinos de estos centros educativos, con menos de 60 cotizaciones.
+Hasta | ¢1.000.000.00 | Sin fiador
+¢1.000.001.00 | ¢2.000.000.00 | 1 fiador
+¢2.000.001.00 | ¢4.000.000.00 | 2 fiadores
+(Así reformado el cuadro anterior mediante sesión ordinaria N° 015-2015 del de febrero del 2015)
 • Trabajadores en Servicio: Centros Educativos Privados, (en Propiedad e Interinos)
 Hasta | ¢2.000.000,00 | 1 fiador
 ¢2.000.001,00 | ¢4.000.000,00 | 2 fiadores

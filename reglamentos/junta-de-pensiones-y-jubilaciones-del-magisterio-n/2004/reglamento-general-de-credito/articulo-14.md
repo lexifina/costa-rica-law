@@ -19,11 +19,13 @@ i) Proporcionar satisfactoriamente los datos de contactos solicitados por la Uni
 j) que señala: En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito y Cobro, para resguardar los intereses de la institución.
 (Así adicionado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 k):• Garantía: Esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
-• Pensionados, trabajadores en servicio del MEP, las Universidades y el INA, con nombramiento en Propiedad:
+• Pensionados, trabajadores en Servicio de MEP, Universidades y el INA, con nombramiento en Propiedad, o bien, interinos de estos centros educativos, con 60 cotizaciones o más, en los últimos 6 años.
 Hasta | ¢2.000.000.00 | Sin fiador
-Trabajadores en Servicio del MEP, Universidades y el INA Interinos:
-Hasta | ¢1.000.000,00 | Sin fiador
-¢1.000.001.00 | ¢2.000.000,00 | 1 fiador
+(Así reformado el cuadro anterior mediante sesión ordinaria N° 015-2015 del 5 de febrero del 2017)
+• Trabajadores en Servicio del MEP, Universidades y el INA Interinos de estas instituciones con menos de 60 cotizaciones:
+Hasta | ¢1.000.000.00 | Sin fiador
+¢1.000.001.00 | 2.000.000.00 | 1 fiador
+(Así reformado el cuadro anterior mediante sesión ordinaria N° 015-2015 del 5 de febrero del 2017)
 Trabajadores en Servicio de Centros Educativos Privados (CEP), en Propiedad e Interinos
 Hasta | ¢2.000.000,00 | 1 fiador
 (Así adicionado el inciso k) anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
