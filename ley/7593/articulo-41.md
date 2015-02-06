@@ -1,6 +1,7 @@
 Artículo 41.- Revocatoria de concesión o permiso
 Sin perjuicio de las sanciones y responsabilidades que corresponda aplicar de acuerdo con la ley, serán causales de revocatoria de la concesión o el permiso, declarable mediante el proceso administrativo, por la Autoridad Reguladora, las siguientes:
-a) La reiteración de las conductas sancionadas en el artículo 38 de esta ley.
+a) La reiteración(*) de las conductas sancionadas en el artículo 38 de esta ley.
+(*) (Mediante resolución de la Sala Constitucional N° 1781 del 6 de febrero del 2015, se declara sin lugar la acción planteada contra el artículo 41 inciso a, en relación con el artículo 38 inciso a) de la Ley de la Autoridad Reguladora de los Servicios Públicos número 7593 y sus reformas siempre y cuando se interprete que el concepto de “reiteración” contenido en el artículo 41 inciso a) impugnado debe entenderse que se trata de la misma falta y que se demuestre en el procedimiento administrativo sancionador, la responsabilidad directa de la persona física o jurídica dueña de la concesión, en la comisión de la falta imputada.)
 b) La falta grave o la prestación deficiente del servicio, según las normas establecidas en el artículo 25 de esta ley.
 c) El incumplimiento por razones injustificadas de las condiciones generales del contrato, la concesión o el permiso.
 d) El traspaso, la cesión o el arrendamiento de la concesión o el permiso, parcial o total, sin autorización previa del ente competente.
