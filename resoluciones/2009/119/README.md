@@ -14,3 +14,4 @@ Aprueba Normas para el ejercicio de la Auditoría Interna en el Sector Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-02-10 | la propia norma |
+| 2 | 2015-02-06 | Resolución 10 (2015-02-06) |
