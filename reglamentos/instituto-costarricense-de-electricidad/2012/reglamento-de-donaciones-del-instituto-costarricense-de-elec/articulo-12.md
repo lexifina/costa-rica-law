@@ -1,1 +1,0 @@
-Artículo 12.—Cuando la donación sea de bienes muebles obsoletos, o que no estén en uso, la dependencia técnica que custodie el bien, será la responsable de remitir al Área de Licitaciones de la Proveeduría Corporativa, la declaratoria de obsolescencia o desuso de los bienes, materiales, equipos, o repuestos solicitados.
