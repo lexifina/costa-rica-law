@@ -1,14 +1,13 @@
-Artículo 18.—Obligaciones específicas del Fiscal Adjunto en calidad de Jefe de la Oficina de Defensa Civil de las Víctimas. En lo referente al control de la cuenta especial de la Oficina de Defensa Civil de las Víctimas, corresponderá al Fiscal Adjunto en calidad de Jefe de la Oficina de Defensa Civil de las Víctimas.
-1. Solicitar mediante oficio dirigido al Fiscal General de la República y debidamente fundamentada la necesidad respectiva, la autorización para la compra de bienes inmuebles según lo disponen los artículos 5 inciso a), artículos 10 y 17 inciso 4.
-2. Solicitar mediante oficio dirigido al Fiscal General de la República y debidamente fundamentada la necesidad respectiva, la autorización para la realización de los gastos previstos en este reglamento.
-3. Firmar en forma mancomunada las órdenes de giro que se emitan contra la cuenta especial de la Oficina.
-4. Velar porque la cuenta de la Oficina de Defensa Civil de las Víctimas, contenga fondos suficientes, a fin de evitar sobregiros.
-5. Revisar y firmar los informes de tesorería y los estados de conciliación bancaria.
-6. Velar por que los registros contables se mantengan al día y se realicen en forma correcta.
-7. Informar inmediatamente a la Auditoría y al Departamento Financiero Contable de cualquier anomalía o sobregiro que se presente en la cuenta especial de la Oficina.
-8. Asignar las labores de registro y control del libro de Tesorería al Profesional Administrativo II, Encargado de Tesorería, y gestionar ante la Escuela Judicial, la capacitación del servidor encargado de las citadas labores.
-9. Efectuar conjunta y periódicamente con el Profesional Admnistrativo II, Encargado de Tesorería, el inventario de caja y que la conciliación del último mes, se encuentre al día. Deberá realizar dicho inventario en caso de renuncia, traslado, permiso o cese de funciones por cualquier otro motivo del Encargado de Tesorería. Dicho inventario se remitirá a la Auditoría con copia al Departamento Financiero Contable.
-10. Supervisar las labores del Profesional Administrativo II, Encargado de Tesorería, de forma que se garantice el inmediato y correcto registro de los diferentes movimientos de depósitos y giros.
-11. Velar por que el Profesional Administrativo II, Encargado de Tesorería cumpla las órdenes emanadas de la Jefatura y las instrucciones que sobre aspectos contables imparta la Auditoría y el Departamento Financiero Contable.
-12. Informar al Fiscal General de la República, así como a la Auditoría Judicial, de cualquier anomalía que se presente en el manejo de las cuentas corrientes.
-13. Custodiar bajo llave y en lugar seguro toda la documentación de valor e importancia relacionada con la Tesorería de la Oficina de Defensa Civil de las Víctimas.
+Artículo 18.—Obligaciones específicas del personal encargado de tesorería de la ODCV.
+a) Revisar y firmar los informes de tesorería y los estados de conciliación bancaria, así como remitirlos a Auditoría y al Departamento Financiero Contable.
+b) Realizar un inventario de la cuenta en caso de renuncia, traslado o cese de funciones por cualquier motivo, y presentarlo a la jefatura de la ODCV, quien se encargará de remitirlo a Auditoría, con copia al Departamento Financiero Contable.
+c) Comprobar antes de emitir los giros, que la cuenta especial contenga fondos suficientes.
+d) Revisar y firmar las órdenes de giro en conjunto con las jefaturas de la Oficina de Defensa Civil de las Víctimas o de la Unidad Administrativa del Ministerio Público, según corresponda.
+e) Archivar en forma ordenada y segura, los documentos relativos a tesorería.
+f) Revisar el cierre mensual de los movimientos de depósitos y giros en el libro de tesorería y preparar los estados de conciliación respectivos.
+g) Revisar y firmar las solicitudes de reclamo de dineros por concepto de diferencias en depósitos judiciales ante el Departamento Financiero Contable.
+h) Velar por que el Departamento Financiero Contable efectúe el depósito de los intereses sobre los saldos diarios mensualmente previa solicitud de la Oficina de Defensa Civil de las Víctimas.
+i) Enviar a la Auditoría Judicial, a más tardar al quinto día del mes, el estado de conciliación del mes anterior.
+j) Revisar, firmar y remitir el informe mensual sobre los giros efectuados contra el Fondo de ayuda a víctimas, al Jefe de la Oficina de Defensa Civil de las Víctimas.
+k) Controlar y dar seguimiento de los recursos remitidos a caja única del Estado en coordinación con el Departamento Financiero Contable.
+1) Preparar en conjunto con la jefatura de la Oficina de Defensa Civil de las Víctimas, el proyecto de presupuesto correspondiente.

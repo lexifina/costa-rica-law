@@ -1,3 +1,1 @@
-Artículo 25.—Vigencia. El presente reglamento rige a partir de la fecha de su publicación.”
-Esta comunicación deja sin efecto la Circular N° 125-08.
-San José, 23 de marzo de 2012.
+Artículo 25.—Disposiciones disciplinarias. Cualquier infracción a las disposiciones contenidas en este reglamento, dará lugar a la aplicación del régimen disciplinario que corresponda, de conformidad con lo dispuesto en la Leyes Orgánicas del Poder Judicial y del Ministerio Público; sin perjuicio de lo dispuesto en la Ley de la Administración Financiera de la República y Presupuestos Públicos y en la Ley y el Reglamento de la Contratación Administrativa.

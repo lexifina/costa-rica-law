@@ -13,3 +13,4 @@ Reglamento de la Cuenta Especial de la Oficina de Defensa Civil de las Víctimas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-17 | la propia norma |
+| 2 | 2015-02-10 | Circular 33 (2015-02-10) |
