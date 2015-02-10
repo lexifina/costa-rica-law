@@ -14,3 +14,4 @@ Plan regulador de playa Carmen de Santa Teresa de Cóbano de Puntarenas (Reglame
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-09-13 | la propia norma |
+| 2 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |
