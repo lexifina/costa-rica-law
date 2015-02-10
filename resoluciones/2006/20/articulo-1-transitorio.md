@@ -1,1 +1,0 @@
-Transitorio único.—Las solicitudes de devolución de los créditos a que se refiere el artículo 11 de esta resolución, que se hayan presentado en las diferentes Administraciones Tributarias, continuarán siendo tramitadas por las mismas hasta la firmeza de la resolución respectiva. Publíquese.
