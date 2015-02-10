@@ -1,0 +1,1 @@
+Artículo 41.—Custodia de escrituras. Las escrituras de las propiedades, serán custodiadas por la Dirección de Asuntos Jurídicos, para lo cual debe llevar un registro físico y digital por separado, junto con copia del plano catastro respectivo.

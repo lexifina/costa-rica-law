@@ -1,0 +1,28 @@
+TÍTULO IV
+Disposiciones Complementarias
+CAPÍTULO I
+De los deberes de las Jefaturas
+Artículo 57.—Obligaciones de las jefaturas. Serán las encargadas de administrar y vigilar el uso racional de los bienes propiedad de la Institución asignados a su unidad administrativa, para lo cual están obligadas a cumplir con lo siguiente:
+Sin perjuicio de los controles que debe ejercer la dependencia encargada de administración de bienes, cada jefatura llevará un control de los bienes asignados, por funcionario, descripción, ubicación, número de identificación, fecha de recibido y reasignación, entre otras.
+a) Velar por el buen estado físico y custodia de los bienes que tenga para uso de su despacho.
+b) Hacer entrega a los funcionarios a su cargo, contra inventario, de los bienes muebles que a cada uno se le confía para su uso, servicio o custodia o que se les suministre para el desarrollo normal de su trabajo.
+c) Velar porque las solicitudes de adquisición de mobiliario, maquinaria, equipo y otros, respondan adecuadamente a las necesidades del personal asignado para el desempeño de sus funciones.
+d) Gestionar ante las dependencias correspondientes los servicios para la conservación y el mantenimiento adecuado de los bienes que administra.
+e) Gestionar ante la dependencia encargada de administración de bienes, las necesidades que surjan en cuanto al mobiliario y equipo diverso.
+f) Informar acerca de las reparaciones de los bienes que le agregaron valor a los mismos, a la dependencia encargada de administración de bienes.
+g) Realizar inventarios físicos de los bienes muebles en sus respectivas dependencias y reportar sus resultados a la dependencia encargada de administración de bienes con las observaciones que considere pertinentes, cuando así lo solicite dicha dependencia dentro del marco de sus funciones y atribuciones.
+h) Comunicar mediante el formulario específico, a la dependencia encargada de administración de bienes cualquier traslado de un bien mueble a otra unidad administrativa, de conformidad con lo establecido en la normativa.
+i) Comunicar mediante el formulario específico, a la dependencia encargada de administración de bienes que se autorizó el traslado de bienes muebles dentro de la misma unidad administrativa, de conformidad con lo establecido en la normativa.
+j) Responder por los daños de los bienes en uso y a su cargo, siempre y cuando no provengan de causas justificadas.
+k) Conforme a lo dispuesto en el artículo 149 incisos a y b del Código Municipal las jefaturas tendrán el deber de sancionar aquellas faltas de sus colaboradores que se desprendan del incumplimiento del presente reglamento, instructivos y directrices que o con relación a este emita la municipalidad.
+Aquellas faltas que se puedan catalogar como graves y muy graves, deberá reportar las al departamento de Recursos Humanos conforme a lo dispuesto en el art 126 del RAOS.
+l) Reportar y remitir, de forma inmediata a la dependencia encargada de administración de bienes los bienes que no estén siendo utilizados en su unidad administrativa, con la finalidad de que puedan ser trasladados para cubrir otras necesidades.
+m) Cumplir con las disposiciones emitidas por la dependencia encargada de administración de bienes para controlar los bienes muebles.
+n) En el caso de las áreas encargadas de realizar obras de infraestructura tales como: edificaciones, remodelaciones, cañería, calles, aceras, cordón de caño y obras en general ya sea en bienes de dominio público o privado de la Municipalidad, deberán comunicar a la dependencia encargada de administración de bienes, la conclusión de dichas obras, incluyendo el avalúo o valor actualizado de las mismas, características, vida útil y demás condiciones necesarias para el adecuado registro o actualización del mismo en el sistema respectivo.
+o) Cuando una jefatura rinde su informe final de gestión, deberá hacer entrega del inventario de su unidad administrativa a su jefe inmediato, el cual se encargará de remitirlo a la dependencia encargada de administración de bienes, indicando a cual funcionario de su misma dependencia serán asignados dichos bienes o si los mismos ya no serán utilizados.
+p) Si en el supuesto establecido en el inciso anterior, existieren diferencias en el inventario, la jefatura que entrega dejará constancia de ello y lo comunicará a su Jefe inmediato, para que se tomen las medidas del caso; el cual a su vez le comunicará de tal situación a la dependencia encargada de administración de bienes.
+q) Velar porque los bienes asignados mantengan el dispositivo de identificación que les fue colocado a los mismos, siendo que, en caso de pérdida de esta identificación gestionará ante la dependencia encargada de administración de bienes su reposición.
+r) Informar inmediatamente a la dependencia encargada de administración de bienes cuando ingrese un bien sin el dispositivo de identificación respectivo, con el fin de procesa a asignarlo y a dar de alta al mismo en el sistema.
+s) Es obligación de las jefaturas velar por el cumplimiento de los procedimientos de alta, baja y otros, de bienes muebles e inmuebles establecidos en el presente reglamento.
+t) Reportar a la dependencia encargada de administración de bienes la detección de un bien mueble ubicado en una dependencia diferente de la asignada, o a un responsable diferente al asignado, sin haber cumplido con los procedimientos establecidos para tales efectos.
+u) Atender dentro del plazo que la dependencia encargada de administración de bienes establezca, toda solicitud o gestión relacionada con el uso y controles de bienes muebles e inmuebles. Cualquier otra que se desprenda de este reglamento o normativa conexa.

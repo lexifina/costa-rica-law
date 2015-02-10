@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De la alta de bienes muebles
+Artículo 13.—Alta de bienes muebles por compra. Cuando se adquieran los bienes siguiendo procedimientos de compra, el Almacén Municipal remitirá un comunicado a la dependencia encargada de administración de bienes mediante el cual, indique el lugar de recibo de los mismos para que proceda a asignar el dato de identificación al bien y su respectivo registro en el sistema informático de administración de bienes, con la descripción, detalle de las características y responsable del mismo, lo anterior en un plazo no mayor a 10 días hábiles contados a partir de la fecha de recibido a satisfacción del bien o los bienes.
+Cuando se trate de la adquisición de vehículos municipales, deberá acatarse las disposiciones contenidas en el Reglamento Interno sobre Uso de Vehículos Municipales.

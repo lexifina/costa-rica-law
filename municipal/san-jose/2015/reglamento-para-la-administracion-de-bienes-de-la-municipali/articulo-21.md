@@ -1,0 +1,3 @@
+Artículo 21.—Requisitos para la baja de bienes. Para dar de baja bienes por cualquiera de los conceptos anteriormente citados, se debe cumplir con los siguientes requisitos:
+a) Justificación y motivo de la baja, suscrita por el responsable y jefatura a cargo de dichos bienes.
+b) Criterio técnico correspondiente, gestionado por la Jefatura a cargo del responsable del bien, en los casos que aplica.

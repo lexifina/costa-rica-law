@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Las disposiciones de este reglamento son de acatamiento obligatorio para todos los funcionarios de la Municipalidad de San José, así como para aquellos que se relacionen de manera directa o indirecta con la Administración de Bienes municipales, en los supuestos de este Reglamento.

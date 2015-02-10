@@ -1,0 +1,1 @@
+Artículo 37.—Valoración costo-beneficio. Previo al procedimiento de reparación del bien, la Jefatura responsable del mismo, deberá coordinar con el área técnica correspondiente, la viabilidad de la reparación del bien tomando en cuenta el costo/ beneficio para la Municipalidad.

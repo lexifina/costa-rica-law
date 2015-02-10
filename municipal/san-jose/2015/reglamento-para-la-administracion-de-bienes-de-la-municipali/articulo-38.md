@@ -1,0 +1,1 @@
+Artículo 38.—Recibido conforme de un bien mueble reparado. Una vez reparado el bien mueble, la jefatura responsable del mismo deberá coordinar con el área técnica el recibo conforme o la justificación de las razones por las cuales se decide no recibirlo; asimismo deberá tomar las acciones del caso con el fin de que el bien sea reparado a plena satisfacción de las partes.

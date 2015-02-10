@@ -1,0 +1,1 @@
+Artículo 25.—Baja de bienes muebles por remate. La dependencia de administración de bienes procederá a la baja de los bienes muebles que la Institución autorice rematar previo cumplimiento de lo establecido en el ordenamiento jurídico que rige la materia.

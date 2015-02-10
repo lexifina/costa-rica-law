@@ -1,0 +1,1 @@
+Artículo 32.—Entrega de los bienes a donar. La dependencia encargada de administración de bienes realizará la entrega física de los bienes cuya donación se haya autorizado y coordinará el levantamiento del acta de entrega y recibo respectiva por parte de un profesional en derecho de la Dirección de Asuntos Jurídicos.

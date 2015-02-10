@@ -1,0 +1,1 @@
+Artículo 24.—Baja de bienes muebles por donación. La dependencia de administración de bienes procederá a la baja de los bienes muebles que la Institución autorice donar previo cumplimiento de lo establecido en el ordenamiento jurídico que rige la materia.

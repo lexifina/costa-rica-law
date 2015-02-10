@@ -1,0 +1,2 @@
+Articulo 27.—Baja por sacrificio o muerte de animales. Para dar de baja animales en caso de muerte o sacrificio, la dependencia responsable del animal o animales, deberá informarlo a la dependencia encargada de administración de bienes, mediante informe que contenga, los datos del animal y posible causa de muerte. Lo anterior en un plazo no mayor a 7 días hábiles.
+El desecho de los animales se debe realizar de acuerdo con las normas ambientales existentes.
