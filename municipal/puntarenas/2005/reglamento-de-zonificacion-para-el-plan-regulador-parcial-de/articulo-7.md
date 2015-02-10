@@ -6,12 +6,11 @@ d) Usos condicionales: piscina, comercio turístico.
 e) Usos no conformes: bodegas, bar, actividades agropecuarias, pesca industrial, salón de baile, discoteca, depósito de materiales, ferretería e industria.
 f) Requisitos:
 1. Cobertura máxima: | 50%.
-2. Área de lote mínimo | 300 m
-3. Área de lote máximo | 2 000 m2
+2. Superficie mínima (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015) | 200 metros cuadrados (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+3. Superficie máxima (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015) | 4. 000 metros cuadrados (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
 4. Altura máxima en N° de plantas: | 2 pisos
 5. Altura máxima de techo: | 7 m
-6. Retiros laterales, posteriores y frontales: | 3 m
+6. Retiros laterales, posteriores y frontales: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
 7. Frente mínimo del lote: | 15 m2
 8. No se permiten Mezzanines. |
-g) Concesiones: Se darán de acuerdo al proceso establecido por la Ley
-6043.
+g) Concesiones: Se darán de acuerdo al proceso establecido por la Ley 6043.

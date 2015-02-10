@@ -6,11 +6,11 @@ d) Usos condicionales y usos no conformes: Toda instalación que no sea de cará
 e) Requisitos:
 a. Densidad máxima: | 80 habitaciones / ha.
 b. Cobertura máxima: | 50%
-c. Área de lote mínimo | 300 m2
-d. Área de lote máximo | 2 000 m2
+c. Superficie mínima (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015) | 200 metros cuadrados (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+d. Superficie máxima (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015) | 4. 000 metros cuadros (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
 e. Altura máxima en Nº de plantas: | 2 pisos
 f. Altura máxima de techo | 7 m
-g. Retiros laterales, frontales y posteriores: | 3 m
+g. Retiros laterales, frontales y posteriores: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
 h. Frente mínimo: | 15 m
 i. No se permiten Mezzanines. |
 j. La organización sin fines de lucro con interés de desarrollar esta zona, deberá presentar un anteproyecto con los requisitos indicados en el artículo 6, inciso f, acápite 14. |

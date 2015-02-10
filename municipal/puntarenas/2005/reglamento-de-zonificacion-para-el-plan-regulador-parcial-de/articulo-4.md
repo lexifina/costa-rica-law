@@ -13,8 +13,8 @@ f) Requisitos: El diseño de sitio deberá tratar de ajustarse al máximo a las 
 5. Área verde mínima: | | 60%
 6. Altura máxima en Nº de plantas: | | 2 pisos
 7. Altura máxima de techo: | | 8 m
-8. Retiro lateral y posterior mínimo: | | 3 m
-9. Retiro frontal mínimo: | | 3 m
+8. Retiro lateral y posterior mínimo: | | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+9. Retiro frontal mínimo: | | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
 10. Ancho caminos internos: | | 9 m
 11. Área recreativa mínima: | | 5%
 12. Área de equipamiento comercial: | | 0.5%
@@ -40,5 +40,4 @@ No se permiten Mezzanines. | |
 • Movimiento y tratamiento de superficie en los casos en que la conformación del terreno lo amerite, para evitar problemas de deslizamientos (específicamente en las zonas inmediatas).
 Una vez aprobado el anteproyecto por el ICT, el interesado deberá elaborar los planos constructivos de las obras de infraestructura e instalaciones, en las cuales deberá cumplir con las normas establecidas al respecto por el Instituto Nacional de Vivienda y Urbanismo, Instituto¿ Costarricense de Turismo y el Ministerio de Salud.
 Además deberá presentar la Evaluación de Impacto Ambiental aprobada por la SETENA.
-g) Concesiones: Se darán de acuerdo al proceso establecido por la Ley
-6043.
+g) Concesiones: Se darán de acuerdo al proceso establecido por la Ley 6043.

@@ -14,3 +14,4 @@ Reglamento de Zonificación para el Plan Regulador Parcial del Sector Costero Tu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-08-12 | la propia norma |
+| 2 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |
