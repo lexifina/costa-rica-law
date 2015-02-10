@@ -1,0 +1,1 @@
+Artículo 10.—Del horario de cobro. Por el uso de los espacios de estacionamiento establecidos se deberá pagar de lunes a domingo entre las 06:00 y 18:00 horas el precio fijado; con las excepciones aprobadas por el Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 23.—Plazo de arriendo. Se podrá contratar para estacionamientos para tiempos menores por el plazo convenido entre el interesado y la Corporación Municipal; el cual podrá prorrogarse existiendo acuerdo de todas las partes; este acuerdo debe manifestarse en forma expresa.

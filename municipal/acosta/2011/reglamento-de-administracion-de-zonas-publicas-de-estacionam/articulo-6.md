@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las tarifas, horarios y sistemas de cobro
+Artículo 6º—Del cobro en cada zona. Dentro de toda la zona céntrica se cobrará el precio público establecido en este Reglamento, mientras que en la zona no céntrica únicamente se cobrará en los lugares especialmente señalados para ese efecto, en el resto de esta zona el estacionamiento será gratuito.

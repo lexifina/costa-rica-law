@@ -1,0 +1,2 @@
+Artículo 12.—Del uso de las boletas. Las boletas de estacionamiento deberán colocarse en la parte inferior de la ventana que da a la acera o en el parabrisas delantero, exhibiéndose de forma fácilmente visible, indicando además en la boleta, con el uso de bolígrafo, el día, hora y minutos de llegada al lugar de estacionamiento.
+En caso de que el usuario no indique con claridad los datos de llegada al lugar de estacionamiento se tendrá como no cumplido este requisito debiendo aplicarse las multas correspondientes señaladas más adelante.

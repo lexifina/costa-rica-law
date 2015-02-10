@@ -1,0 +1,1 @@
+Artículo 5º—De las zonas destinadas al transporte colectivo y de uso oficial. La Municipalidad por medio del Alcalde y en coordinación con las autoridades del tránsito establecerá los espacios dedicados al transporte público de personas y los necesarios para zonas oficiales.

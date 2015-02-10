@@ -1,0 +1,1 @@
+Artículo 24.—Monto del arriendo. En la zona céntrica el monto por mes es del 10% del salario mínimo legal y la no céntrica el monto será del 5% del salario mínimo legal por mes. En ambos casos el pago deberá hacerse de forma anticipada por todo el plazo contratado.

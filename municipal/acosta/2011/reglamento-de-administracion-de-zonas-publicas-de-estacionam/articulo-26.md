@@ -1,0 +1,1 @@
+Artículo 26.—Trámite de la solicitud. Presentada la solicitud al Concejo Municipal de los estacionamientos se analizará su aprobación en la sesión posterior a su presentación, plazo en el cual se determinará su aprobación. La resolución que deniegue la solicitud tendrá recurso de revocatoria.
