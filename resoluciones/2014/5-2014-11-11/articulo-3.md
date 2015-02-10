@@ -1,2 +1,0 @@
-Artículo 3º—Se dejan sin efecto los montos establecidos en la Resolución N° 4-2014, publicada en La Gaceta N° 164 del 27 de agosto 2014 y corregida mediante FE DE ERRATAS publicada en La Gaceta N° 175 del 11 de setiembre 2014 mediante la cual se corregía el número de resolución debiendo leerse resolución Nº 003-2014, que actualizaron los impuestos específicos creados por los artículos 6 y 10 de la Ley 5792, para los meses de octubre, noviembre y diciembre del 2014.
-Publíquese.—Moravia, 11 de noviembre del 2014
