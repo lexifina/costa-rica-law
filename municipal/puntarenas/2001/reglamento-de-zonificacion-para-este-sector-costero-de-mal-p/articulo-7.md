@@ -9,7 +9,7 @@ f) Requisitos:
 2. Superficie máxima | 1000m2
 3 . Frente mínimo: | 10 metros
 4. Frente máximo: | 20 metros
-5. Retiro frontal, lateral y posterior | 3 metros
+5. Retiro frontal, lateral y posterior | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 6. Cobertura máxima: | 60%
 7. Altura máxima | 7 metros
 8. Número de pisos máximo: | 2 pisos

@@ -14,3 +14,4 @@ Reglamento de Zonificación para este sector costero de Mal País de Cóbano de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-20 | la propia norma |
+| 2 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |

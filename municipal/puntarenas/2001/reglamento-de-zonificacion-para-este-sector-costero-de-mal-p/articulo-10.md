@@ -6,7 +6,7 @@ d) Usos condicionales: comercio de artículos deportivos, campamento, tiendas.
 e) Usos conflictivos: Industria, ganadería, agricultura intensiva o cualquier instalación que no sea de carácter turístico y que genere ruidos, olores, humo, vibración o desechos no controlables y que no este ligada a servicio de hospedaje.
 f) Requisitos: El interesado o solicitante a concesión deberá acatar los requisitos de los artículos 54. 55 y 56 del Reglamento de la Ley 6043 y los artículos 31, 33 y 37 de la Ley No 6043. El diseño del sitio deberá tratar de ajustarse al máximo a las siguientes normas de carácter general:
 1. Densidad máxima | 60 habitantes por hectárea
-2. Retiro lateral, posterior y frontal: | 3 metros
+2. Retiro lateral, posterior y frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 3. Altura máxima de pisos: | 2 pisos
 4. Altura máxima de techo: | 7 metros
 5. Cobertura máxima: | 40%

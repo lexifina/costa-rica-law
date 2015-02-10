@@ -10,9 +10,13 @@ f) Requisitos: Los establecidos en la Ley 6043 y su Reglamento. El diseño espac
 2. Cobertura | 60%
 3. Altura máxima en número pisos: | 2 pisos
 4. Altura máxima | 7 metros (dos pisos) 10 metros para techo de paja o similares
-5. Retiro frontal posterior, latera! | 3 metros
+5. Retiro frontal posterior, latera! | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 6. Lote mínimo: | 300 metros
 7. Lote máximo: | 2 000 metros
 8. No se permiten mezzanines |
 Además, deberán cumplirse todas las normas relativas a construcción establecidas por el INVU, la Ley de Planificación Urbana y los Reglamentos de Construcciones y de Fraccionamiento y Urbanización y los dictados por la Municipalidad de Puntarenas.
+(Nota de Sinalevi: Mediante sesión N° 06 del 10 de febrero de 2015, el Concejo Municipal de Distrito de Cóbano, acordó reformar el requisito de área mínima, al no existir dicho requisito se transcribe la reforma: "Rectifíquese el Artículo 12.- Zona Residencial Local (ZRL): para modificar el requisito de retiro y área mínima, para que se lea de la siguiente manera:
+12. f.- Superficie mínima: 200 metros cuadrados
+Superficie máxima: 4.000 metros cuadrados")
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 g) Concesión: De acuerdo a lo estableado por la Ley N° 6043 y su Reglamento. No se darán concesiones y no se permitirá ningún tipo de edificación sobre los terrenos en que no esté debidamente demarcada la zona pública mediante los mojones del IGN.
