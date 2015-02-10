@@ -15,3 +15,4 @@ Reglamento Plan Regulador de Uso del Suelo "Cocal del Peñón de Santa Teresa -C
 | --- | --- | --- |
 | 1 | 2004-10-01 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |

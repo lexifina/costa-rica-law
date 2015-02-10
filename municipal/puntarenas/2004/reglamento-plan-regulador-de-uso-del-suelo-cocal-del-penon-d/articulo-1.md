@@ -73,13 +73,13 @@ D.3. Usos permitidos: Vivienda unifamiliar, áreas de deportes livianos, áreas 
 D.4. Usos condicionales: Piscinas.
 D.5. Usos conflictivos: Hoteles y cabinas, bares, discotecas, centros comerciales, depósitos de materiales, talleres, industrias, cualquier obra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 D.6. Requisitos:
-- Superficie mínima: | 600 metros cuadrados
-- Superficie máxima: | 2 000 metros cuadrados
+- Superficie mínima: | 200 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie máxima: | 4. 000 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Frente mínimo: | 15 metros
 - Frente máximo: | 30 metros
-- Retiro Frontal: | 5 metros
-- Retiro lateral: | 3 metros
-- Retiro posterior: | 5 metros
+- Retiro Frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: | 40%
 - Altura máxima: | 5 metros
 - Retiro de línea de mojones: | 5 metros
@@ -94,13 +94,13 @@ E.3. Usos permitidos: Vivienda unifamiliar, áreas de deporte livianos, proyecto
 E.4. Usos condicionales: Áreas verdes, áreas de estar.
 E.5. Usos conflictivos: Hoteles, bares, discotecas, sodas, restaurantes, ventas de artesanía y souvenir, centros comerciales, depósitos de materiales, talleres, industrias, cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 E.6. Requisitos
-- Superficie mínima: | 600 metros cuadrados
-- Superficie máxima: | 2 000 metros cuadrados
+- Superficie mínima: | 200 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie máxima: | 4. 000 metros cuadrados (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Frente mínimo: | 15 metros
 - Frente máximo: | 30 metros
-- Retiro Frontal: | 5 metros
-- Retiro lateral: | 3 metros
-- Retiro posterior: | 5 metros
+- Retiro Frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: | 25%
 - Altura máxima: | 5 metros
 - Retiro de línea de mojones: | 5 metros
@@ -128,9 +128,9 @@ F.6. Requisitos:
 - Superficie máxima: | 1000 metros cuadrados
 - Frente mínimo: | 10 metros
 - Frente máximo: | 20 metros
-- Retiro Frontal: | 5 metros
-- Retiro lateral: | 3 metros
-- Retiro posterior: | 5 metros
+- Retiro Frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: | 75%
 - Altura máxima: | 5 metros
 (Se permiten ranchos de palma de hasta 10 m de altura) |
@@ -165,10 +165,10 @@ G.6. Requisitos: El interesado o solicitante de la concesión deberá acatar los
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 - Superficie mínima: | 5000 metros cuadrados
 - Superficie máxima: | 20000 metros cuadrados
-- Retiro Frontal: | 10 metros
-- Retiro lateral: | 3 metros
+- Retiro Frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Retiro de línea de mojones: | 5 metros
-- Retiro posterior: | 10 metros
+- Retiro posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: | 50%
 - Altura máxima: 7 metros (ranchos de palma: 10 m máx.) |
 - Vías internas mínimo: | 10%
@@ -205,10 +205,10 @@ y aguas negras.
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 - Superficie mínima: | 5000 metros cuadrados
 - Superficie máxima: | 20000 metros cuadrados
-- Retiro Frontal: | 10 metros
-- Retiro lateral: | 3 metros
+- Retiro Frontal: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Retiro de línea de mojones: | 5 metros
-- Retiro posterior: | 10 metros
+- Retiro posterior: | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: | 50%
 - Altura máxima: | 7 metros (ranchos de palma: 10 m máx.)
 - Vías internas mínimo: | 10%
@@ -230,7 +230,8 @@ I.2. Localización: Se dispone de dos puntos en los extremos de los senderos pea
 I.3. Usos permitidos: Servicios sanitarios, vestidores y duchas, puesto de información turística, puesto de primeros auxilios, servicios telefónicos.
 I.4. Usos condicionales: Refresquerías y sodas, kiosco de venta de comidas ligeras. Ranchos de (pic-nic), asadores.
 I.5. Usos conflictivos: Todo edificación o actividad que no sea estrictamente de servicio para público que visita temporalmente la playa.
-I.6. Requisitos: Se deberán respetar las disposiciones de la Ley de Construcciones y de Salud, así como el tratamiento de diseño para adecuar las obras al medio natural. Su cobertura será del 50% y los retiros de 3(*),0 metros, con una altura máxima de tres metros y para ranchos de palma, una altura máxima de 7 m.
+I.6. Requisitos: Se deberán respetar las disposiciones de la Ley de Construcciones y de Salud, así como el tratamiento de diseño para adecuar las obras al medio natural. Su cobertura será del 50% y los retiros(*):toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo y para ranchos de palma, una altura máxima de 7 m.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 (*)(Corregido mediante Fe de erratas y publicada en La Gaceta N° 147 del 31 de julio de 2012, página N° 63. Anteriormente se indicaba que los retiros eran de dos metros)
 Los proyectos para esta zona deberán contar, además con la aprobación del ICT y del Ministerio de Salud.
 I.7. Concesión: De acuerdo con lo establecido por la Ley Nº 6043 y su Reglamento.
