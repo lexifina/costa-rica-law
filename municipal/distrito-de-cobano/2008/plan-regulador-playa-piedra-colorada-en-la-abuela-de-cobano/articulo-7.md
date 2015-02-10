@@ -20,11 +20,14 @@ e) Usos Conflictivos:
 • Industrias
 Cualquier otra instalación, edificación o actividad que emita ruidos, malos olores, vibraciones o contaminación de cualquier tipo.
 f) Requisitos:
-• Área mínima 500 m².
-• Área máxima 4000 m²
+• Superficie mínima 200 metros cuadrados.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+• Superficie máxima 4.0000metros cuadrados
+Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
 • Densidad máxima 80 hab/Ha
 • Frente mínimo 15 m
-• Retiros frontales, laterales y posteriores 3 m
+• Retiros frontales, laterales y posteriores: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 • Cobertura máxima 50%
 • Altura máxima 7 m
 • Altura máxima en número de plantas 2 pisos.

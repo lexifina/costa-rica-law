@@ -26,7 +26,8 @@ f) Requisitos:
 • Área máxima 10000 m2
 • Densidad máxima 50 hab/Ha
 • Frente mínimo 30 m
-• Retiros frontales, laterales y posteriores 3 m
+• Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 • Retiro frontal mínimo 3 m
 • Cobertura máxima 20%
 • .Altura máxima 8 m
