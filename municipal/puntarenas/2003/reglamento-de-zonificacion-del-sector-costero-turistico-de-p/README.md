@@ -14,3 +14,4 @@ Reglamento de Zonificación del Sector Costero Turístico de Playa Hermosa de C�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-08-08 | la propia norma |
+| 2 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |

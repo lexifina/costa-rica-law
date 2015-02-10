@@ -8,8 +8,10 @@ f. Requisitos: El interesado deberá presentar un anteproyecto de desarrollo del
 1. Altura máxima en número de plantas: 2 pisos.
 2. Cobertura máxima: 50%.
 3. Cobertura zonas verdes mínimo 50%.
-4. Retiros laterales y posterior: 3 m.
-5. Retiro frontal: 5 m.
+4. Retiros laterales y posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
+5. Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior mediante sesión N° 06 del 10 de febrero de 2015)
 6. Altura máxima de techo: 7 m / 10 m edificaciones
 con techos de paja
 7. Área máxima 4 000 m2
