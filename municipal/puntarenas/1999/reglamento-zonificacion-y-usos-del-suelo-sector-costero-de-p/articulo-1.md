@@ -71,7 +71,7 @@ ZPQ.5: En el lote 2.
 E.3. Usos permitidos: Se permite el desarrollo de proyectos comunales de reforestación y ornamentación, así como obras de infraestructura que permitan el mejoramiento de la canalización, represado y contención, previo estudio aprobado por la Dirección General Forestal.
 E.4. Usos condicionales: Se pueden desarrollar senderos peatonales y sitios aislados para estar, previo estudio aprobado por la Dirección General Forestal.
 E.5. Usos conflictivos: En esta área no deben desarrollarse actividades pesadas ni edificaciones permanentes. Tampoco se permite la tala de árboles y plantas, ni la siembra de especies exóticas.
-E.6. Concesión:Estás áreas se darán en concesión a las personas físicas o jurídicas que así lo soliciten siempre y cuando se ajusten a los requisitos citados en el presente reglamento y de acuerdo con lo establecido en la Ley N° 6043 y su Reglamento.
+E.6. Concesión: Estás áreas se darán en concesión a las personas físicas o jurídicas que así lo soliciten siempre y cuando se ajusten a los requisitos citados en el presente reglamento y de acuerdo con lo establecido en la Ley N° 6043 y su Reglamento.
 (Así REFORMADO PARCIAL Y EXPRESAMENTE por la Sesión Ordinaria N° 88 de 12 de abril de 2003, publicada en La Gaceta N° 151 de 07 de agosto de 2003.)
 F. ZONA RESIDENCIAL RECREATIVA (ZRR):
 F.1. Propósito: Permitir la recreación, esparcimiento y vivienda temporal a los adjudicatarios de los terrenos, con capacidad media de carga.
@@ -98,13 +98,18 @@ F.5 Usos conflictivos:
 - Industrias
 Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 F.6. Requisitos: De acuerdo con lo que se pretende, el INVU ha definido normas al respecto.
-- Superficie mínima: 300 metros cuadrados
-- Superficie máxima: 2 000 metros cuadrados
+- Superficie mínima: 200 metros cuadrados
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie máxima: 4. 000 metros cuadrados
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Frente mínimo: 15 metros
 - Frente máximo: 30 metros
-- Retiro frontal: 5 metros
-- Retiro lateral: 3 metros
-- Retiro posterior: 5 metros
+- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: 45 %
 - Altura máxima: 5 metros
 La zona residencial debe tener las vías de acceso secundarias y peatonales y áreas verdes como exige la Ley de Planificación Urbana en sus porcentajes mayores. No se permitirán segregaciones, sin el respectivo visto bueno del INVU y del ICT, previa presentación de planos.
@@ -141,13 +146,18 @@ G.5. Usos conflictivos:
 - Industrias
 Cualquier otra instalación, edificación o actividad que emita ruido, malos olores, vibración o contaminación en general.
 G.6. Requisitos: De acuerdo con lo que se pretende, el INVU ha definido normas al respecto.
-- Superficie mínima: 300 metros cuadrados
-- Superficie máxima: 2 000 metros cuadrados
+- Superficie mínima: 200 metros cuadrados
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Superficie máxima: 4. 000 metros cuadrados
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Frente mínimo: 15 metros
 - Frente máximo: 30 metros
-- Retiro frontal: 5 metros
-- Retiro lateral; 3 metros
-- Retiro posterior: 5 metros
+- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: 25 %
 - Altura máxima: 5 metros
 La zona residencial debe tener las vías de acceso secundarias y peatonales y áreas verdes como exige la Ley de Planificación Urbana en sus porcentajes mayores.
@@ -192,9 +202,12 @@ H.6 Requisitos:
 - Superficie máxima: 1 000 metros cuadrados
 - Frente mínimo: 10 metros
 - Frente máximo: 20 metros
-- Retiro frontal: 5 metros
-- Retiro lateral: 3 metros
-- Retiro posterior: 5 metros
+- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: 75 %
 - Altura máxima: 5 metros
 H.7. Concesión: De acuerdo a lo establecido en la Ley Nº 6043 y su reglamento. La ZC.2 no podría ser dada en concesión hasta tanto sea demarcada la zona con los mojones del IGN.
@@ -245,9 +258,12 @@ I.6. Requisitos: El interesado o solicitante a concesión deberá acatar los req
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 - Superficie mínima 5 000 metros cuadrados
 - Superficie máxima: 20 000 metros cuadrados
-- Retiro frontal: 10 metros
-- Retiro posterior: 10 metros
-- Retiro lateral : 3 metros
+- Retiro frontal:Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro posterior: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiro lateral : Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: 40 %
 - Altura máxima: 7 metros
 - Areas de zona verde mínima: 40 %
@@ -306,9 +322,12 @@ J.6. Requisitos: El interesado, deberá presentar un proyecto del área de campi
 - Estudio de abastecimiento de agua potable
 - Sistema de tratamiento de aguas negras y jabonosas
 El diseño espacial, deberá respetar las normas internacionales, para este tipo de servicios en cuanto superficies mínimas y máximas, distribución de zonas y densidad:
-- Retiro frontal: 10 metros
-- Retiros laterales: 5 metros
-- Retiros posteriores: 10 metros
+- Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiros laterales: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+- Retiros posteriores: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 - Cobertura máxima: 50 %
 - Altura máxima: 5 metros
 - Vías internas: 20 %
@@ -328,8 +347,8 @@ K.3. Usos permitidos:
 - Servicios telefónicos
 K.4. Usos condicionales: No se consideran otros usos condicionales por estar cubiertas otras necesidades en las zonas restantes.
 K.5. Usos conflictivos: Toda edificación o actividad que no sea estrictamente de servicio público.
-K.6. Requisitos: Se deberán respetar las disposiciones de la Ley de Construcciones y de Salud, así como el tratamiento de diseño para adecuar las obras al medio natural. Su cobertura será del 50% y los retiros de 2,00 metros.
-Los proyectos para esta zona deberán contar, además con la aprobación del ICT.
+K.6. Requisitos: Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 K.7. Concesión: Según lo establece la Ley Nº 6043 y su Reglamento.
 No se otorgarán concesiones a aquellas parcelas que no hayan sido eliminadas las cercas, barreras y setos de piñuelas en la zona pública.
 En el trámite de concesión debe indicarse en el plano catastrado que el acceso se da por calle pública. Estos accesos quedarán bajo control municipal.
@@ -367,4 +386,4 @@ ZPM Zona Protección del Manglar 3 791 1.73
 Total 219 148.59 100.00
 (Así AMPLIADO por la Sesión Ordinaria N° 88 de 12 de abril de 2003, publicada en La Gaceta N° 151 de 07 de agosto de 2003, la cual adicionó el punto M al presente artículo)
 Rige a partir de su publicación en el Diario Oficial y queda derogada toda disposición municipal anterior que se oponga a sus normas.
-Puntarenas, 4 de enero del 2000.—Marco A. Campos Bermúdez, Jefe a.i., del Departamento de Arriendos.—1 vez.—(13088
+Puntarenas, 4 de enero del 2000.—
