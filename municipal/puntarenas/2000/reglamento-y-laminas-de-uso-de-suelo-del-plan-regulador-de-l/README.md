@@ -15,3 +15,4 @@ Reglamento y láminas de uso de suelo del Plan Regulador de la Zona Marítimo Te
 | --- | --- | --- |
 | 1 | 2000-03-10 | la propia norma |
 | 2 | 2013-08-27 | Reglamento municipal 33 (2013-08-27) |
+| 3 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |
