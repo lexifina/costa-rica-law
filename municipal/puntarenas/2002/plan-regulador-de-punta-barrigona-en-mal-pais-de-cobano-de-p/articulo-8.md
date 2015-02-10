@@ -9,9 +9,13 @@ d. Usos condicionales. Comercio turístico a pequeña escala como artesanías, f
 Requisitos
 Superficie mínima 3000 m.
 Superficie máxima 6000 m.
-Retiro lateral 3 m.
-Retiro frontal 5 m.
-Retiro posterior 5 m.
+Retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro frontal: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro posterior:
+Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 Cobertura máxima construible 10%
 Porcentaje de zonas
 verdes y otros usos pasivos 90%

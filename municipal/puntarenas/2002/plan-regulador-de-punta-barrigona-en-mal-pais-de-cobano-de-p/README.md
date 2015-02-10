@@ -14,3 +14,4 @@ Plan Regulador de Punta Barrigona en Mal País de Cóbano de Puntarenas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-03-07 | la propia norma |
+| 2 | 2015-02-10 | Reglamento municipal 6 (2015-02-10) |

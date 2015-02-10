@@ -8,4 +8,6 @@ f. Requisitos. Plano de diseño de sitio en una escala no mayor a 1:500.
 Anteproyecto de las obras, debe presentarse en una escala 1:50.
 Un presupuesto de la obra y su posible forma de financiamiento.
 El área destinada no debe superar a la especificada en la Ley Nº 6043.
+Retiro frontal, retiro posterior, retiro lateral: Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo.
+(Así adicionado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 g. Concesiones. Los requisitos establecidos en la Ley Nº 6043 y su Reglamento.
