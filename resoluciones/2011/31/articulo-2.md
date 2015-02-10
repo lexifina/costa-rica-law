@@ -1,1 +1,0 @@
-Artículo 2º—Divulgación de los criterios institucionales. La divulgación de los criterios institucionales, se hará por medio del módulo del Digesto Tributario, apartado “Unidad de Criterio”, sitio que se localiza en la página web del Ministerio de Hacienda (www.hacienda.go.cr.).
