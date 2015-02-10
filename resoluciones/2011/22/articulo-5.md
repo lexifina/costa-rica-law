@@ -1,1 +1,0 @@
-Artículo 5º—Prevenciones. Una vez ingresada la consulta, la Administración Tributaria procederá a su estudio, y en caso de determinar la omisión de requisitos de admisibilidad, efectuará una prevención por correo electrónico al consultante, otorgándole un plazo de diez días hábiles para cumplir con la misma, de lo contrario se declarará sin derecho al trámite.

@@ -1,3 +1,0 @@
-Artículo 7º—Horario de recepción de las consultas. El buzón para la recepción de las consultas mediante correo electrónico, estará habilitado las veinticuatro horas del día, los siete días de la semana, incluyendo días feriados.
-En todos los casos, la consulta se tendrá por presentada a partir de que el consultante reciba en su buzón electrónico, el acuse de recibo remitido por la oficina encargada de la Dirección General de Tributación.
-No obstante lo anterior, el plazo de cuarenta y cinco días establecido en el artículo 119 del Código Tributario, se contará a partir del primer día hábil siguiente a la presentación de la consulta.

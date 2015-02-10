@@ -1,2 +1,0 @@
-Artículo 3º—Sobre la firma digital. Para los efectos de la presente resolución se entenderá por firma digital, el concepto establecido en el artículo 8 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos.
-Los documentos presentados deberán ser firmados digitalmente, mediante una firma digital certificada, que es aquella emitida al amparo de un certificado digital vigente, expedido por un certificador registrado.
