@@ -1,1 +1,0 @@
-Transitorio II.—Los recursos de revocatoria que hubieran sido presentados por los contribuyentes en contra de los actos administrativos a los que hace referencia el artículo 146 del Código supra citado, de previo a la vigencia de la presente resolución, deberán ser resueltos por los órganos competentes de la Administración Tributaria.
