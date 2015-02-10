@@ -1,1 +1,0 @@
-Artículo 3º—Incumplimiento: La Administración Tributaria rechazará cualquier trámite o gestión realizada por la persona física de que se trate, cuando se omita el número de DIMEX, excepto para los casos indicados en el párrafo primero del artículo 2º.
