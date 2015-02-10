@@ -8,9 +8,9 @@ f. Requisitos
 Densidad máxima | 50 habitaciones/ha
 Ocupación máxima | 40%
 Altura máxima | 7 metros (dos plantas)
-Retiro frontal | 5 metros
-Retiro lateral | 3 metros
-Retiro posterior | 3 metros
+Retiro frontal | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro lateral | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro posterior | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 Tamaño máximo de lote | 2 000 m2
 Frente mínimo | 15 metros
 Frente máximo | 30 metros

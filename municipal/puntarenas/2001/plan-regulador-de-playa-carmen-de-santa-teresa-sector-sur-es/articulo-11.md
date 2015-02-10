@@ -7,7 +7,7 @@ e. Usos conflictivos: industrias, ganadería, agricultura intensiva o cualquier 
 f. Requisitos:
 Superficie mínima | 500 m2
 Frente mínimo | 20 metros
-Retiro frontal, lateral y posterior | 3 metros
+Retiro frontal, lateral y posterior | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
 Cobertura máxima | 60%
 Altura máxima | 7 metros (2 pisos)
 g. Concesiones: Se otorgarán de acuerdo con los procedimientos que establece la Ley N° 6043 Y su Reglamento.

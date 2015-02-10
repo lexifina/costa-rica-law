@@ -20,9 +20,9 @@ Estudio de abastecimiento de agua potable
 Estudio de recolección y tratamiento de aguas servidas.
 El diseño espacial deberá respetar como mínimo las siguientes normas:
 Superficie mínima | 5 000 metros cuadrados
-Retiro frontal | 5 metros
-Retiro posterior | 3 metros
-Retiro lateral | 3 metros
+Retiro frontal | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015)
+Retiro posterior | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015).
+Retiro lateral | Toda edificación deberá cumplir con los retiros establecidos en el Reglamento de Construcciones del Instituto Nacional de Vivienda y Urbanismo. (Así reformado el requisito anterior en sesión N° 06 del 10 de febrero de 2015).
 Cobertura máxima (mojón 43-45) | 40%
 Cobertura máxima (mojón 38-42) | 20%
 Altura máxima | 7 metros (2 pisos)
