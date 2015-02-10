@@ -1,2 +1,2 @@
-Artículo 22.—Vencimiento anticipado. Las operaciones concedidas, podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito.
-(Así reformado mediante sesión ordinaria N° 119-2014 del 29 de octubre del 2014)
+Artículo 22: Vencimiento anticipado. Las operaciones concedidas, podrán declararse vencidas anticipadamente y exigibles de inmediato por parte de la Junta de Pensiones, si se comprobara en cualquier momento, falsedad en la información proporcionada por el deudor al formalizarse la operación de crédito, atraso en el pago de una cuota o bien, se observe deterioro en la garantía.
+(Así reformado mediante sesión ordinaria N° 016-2015 del 10 de febrero del 2015)
