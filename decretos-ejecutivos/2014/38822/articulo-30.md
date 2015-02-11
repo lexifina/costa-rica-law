@@ -1,0 +1,1 @@
+Artículo 30.—Sobrantes de Dinero. Los sobrantes de dinero, resultado de la realización de un arqueo, serán depositados en el Fondo General del Gobierno, a más tardar al día siguiente de detectado el sobrante, utilizando los mecanismos que al efecto se definan en los Manuales de Procedimientos del Fondo de Caja Chica y de las Cajas Chicas, de OCIS.

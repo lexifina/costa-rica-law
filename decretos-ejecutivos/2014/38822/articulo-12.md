@@ -1,0 +1,3 @@
+CAPÍTULO II
+Funcionamiento del fondo
+Artículo 12.—Solicitud de Pedido de Compra. Toda adquisición de bienes y servicios para cancelar a través del Fondo de Caja Chica de OCIS, se originará por medio de una Solicitud de Pedido de Compra, la cual debe contener una justificación de la necesidad y urgencia de realizar la compra por la Caja Chica de OCIS y una descripción clara de los bienes o servicios a adquirir. La solicitud solo podrá incluir bienes o servicios de la misma sub-partida presupuestaria y deberá ser firmada por la persona que ejerza el cargo de jefatura de la Unidad Organizativa que la realiza y autorizada por el Responsable del Programa Presupuestario de OCIS.

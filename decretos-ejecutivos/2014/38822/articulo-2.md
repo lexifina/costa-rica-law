@@ -1,0 +1,1 @@
+Artículo 2º—Naturaleza. La ejecución del gasto por medio del Fondo de Caja Chica de OCIS es un procedimiento de excepción, limitado a la atención de gastos menores indispensables y urgentes para el desarrollo de los proyectos de OCIS a que corresponde el fondo.

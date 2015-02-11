@@ -1,0 +1,1 @@
+Artículo 40.—Régimen Sancionatorio. Los funcionarios infractores de las disposiciones contenidas en el presente Reglamento, se harán acreedores a las sanciones que correspondan de conformidad con las Leyes y Reglamentos relativos al manejo y control de cajas chicas.

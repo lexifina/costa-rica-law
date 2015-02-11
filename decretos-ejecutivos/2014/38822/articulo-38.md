@@ -1,0 +1,1 @@
+Artículo 38.—Responsabilidad por el Pago de Impuesto de Ventas. Cuando un funcionario acepte y cancele una compra con fondos de una Caja Chica de OCIS y la factura incluya el impuesto de ventas, deberá cubrir el importe del impuesto con su propio peculio.

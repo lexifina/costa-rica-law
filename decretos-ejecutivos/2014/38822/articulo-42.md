@@ -1,0 +1,1 @@
+Artículo 42.—En lo no previsto en este Reglamento, se aplicará de manera supletoria lo estipulado en el Decreto Nº 32874-H del 10 de noviembre de 2005, publicado en La Gaceta N° 22 del 31 de enero del 2006 “Reglamento General del Fondo Cajas Chicas”.

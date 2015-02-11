@@ -1,0 +1,1 @@
+Artículo 7º—Monto del Fondo para las Cajas Chicas. El fondo inicial de las Cajas Chicas de OCIS, así como las variaciones que se requieran, serán autorizados por la administración, para su posterior autorización por parte de la Tesorería Nacional.
