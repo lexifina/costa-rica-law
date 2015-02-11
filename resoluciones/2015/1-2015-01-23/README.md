@@ -14,3 +14,4 @@ Emite resoluciones de la Dirección General del Servicio Civil (DG-193-2014, DG-
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-10 | la propia norma |
+| 2 | 2015-02-11 | Resolución 2 (2015-02-11) |
