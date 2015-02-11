@@ -1,1 +1,0 @@
-Artículo 8º—El acto que autorizará o denegará el uso de La Plaza de la Cultura se considerará a los efectos de la Ley General de la Administración Pública como uno de naturaleza discrecional de la Fundación.
