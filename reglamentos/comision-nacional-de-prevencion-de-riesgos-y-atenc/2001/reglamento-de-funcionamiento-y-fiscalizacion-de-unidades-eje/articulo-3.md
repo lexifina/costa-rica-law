@@ -1,1 +1,0 @@
-Artículo 3°—Dependencia de las Unidades Ejecutoras. Todas las Unidades Ejecutoras nombradas dependerán directamente de la Dirección Ejecutiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.

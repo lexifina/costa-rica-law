@@ -1,1 +1,0 @@
-Articulo 11.—Conciliación de Registros Financieros. Cada Unidad Ejecutora deberá, junto con la Dirección Administrativa Financiera y la Contraloría de Unidades Ejecutoras de la CNE , mantener permanentemente conciliados los registros financieros de ambas entidades.

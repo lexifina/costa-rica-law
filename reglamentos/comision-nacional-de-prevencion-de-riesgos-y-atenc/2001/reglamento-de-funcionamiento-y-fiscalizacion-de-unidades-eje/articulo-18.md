@@ -1,1 +1,0 @@
-Artículo 18.—Visita Pro Oferta. Es responsabilidad de la Unidad Ejecutora coordinar junto con la Contraloría de Unidades Ejecutoras y el Departamento de Proveeduría una visita pre oferta para cada uno de aquellos proyectos que así lo ameriten.

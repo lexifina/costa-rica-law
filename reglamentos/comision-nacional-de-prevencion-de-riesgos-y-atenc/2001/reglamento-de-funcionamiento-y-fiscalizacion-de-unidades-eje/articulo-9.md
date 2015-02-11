@@ -1,1 +1,0 @@
-Articulo 9°—Presentación de informes. En cualquier tipo de proyecto, independientemente del plazo de duración, las Unidades Ejecutoras deberán presentar a la Contraloría de Unidades Ejecutoras de la Comisión , informes mensuales y el respectivo informe final detallado de cumplimiento, que incluya logros obtenidos, el costo total de! proyecto y los respectivos finiquitos.
