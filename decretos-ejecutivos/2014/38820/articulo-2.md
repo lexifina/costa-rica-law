@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el inciso 6.3 del artículo 1 del Decreto Ejecutivo Nº 37700-S del 29 de enero del 2013 Reglamento de Buenas Prácticas de Almacenamiento y Distribución de Medicamentos en Droguerías, publicado en el Alcance Nº 96 en La Gaceta Nº 100 del 27 de mayo del 2013.
