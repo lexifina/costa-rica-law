@@ -1,0 +1,1 @@
+Artículo 14.—El pago deberá realizarse en la Municipalidad de Mora en una cuenta específica para este tema. El representante deberá presentar el comprobante de pago con el sello respectivo a la Administración del Centro en cualquier momento en que esta lo requiera.

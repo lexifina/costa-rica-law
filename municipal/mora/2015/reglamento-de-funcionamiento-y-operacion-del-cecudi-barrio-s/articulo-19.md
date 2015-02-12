@@ -1,0 +1,1 @@
+Artículo 19.—Del programa de Atención. El programa de atención que se desarrolla en el Centro debe tendrá como base mínima el Plan de estudio del Ciclo Materno Infantil del Ministerio de Educación Pública de Costa Rica, sin embargo el modelo educativo a implementar según decisión de esta Municipalidad será el Montessori.

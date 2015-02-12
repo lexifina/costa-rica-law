@@ -1,0 +1,1 @@
+Artículo 8º—Horario del CECUDI: El horario de atención para la población beneficiada será de las 6am a las 6pm, de lunes a viernes. Se excluyen los días feriados de ley y aquellos que sean declarados asueto de acuerdo con la normativa correspondiente.
