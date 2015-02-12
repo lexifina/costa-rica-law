@@ -1,0 +1,1 @@
+Artículo 12.—Todos aquellos reportes que no cumplan con los requisitos anteriores, y que por error sean recibidos, serán devueltos a la oficina de origen y serán procesados durante el mes subsiguiente, si son recibidos nuevamente con la información en forma clara y detallada.

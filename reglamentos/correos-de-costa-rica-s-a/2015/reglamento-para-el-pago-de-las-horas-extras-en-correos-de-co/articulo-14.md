@@ -1,0 +1,1 @@
+Artículo 14.—La Gerencia de Recursos Humanos deberá procesar en forma inmediata todos los reportes de horas extraordinarias que sean recibidos dentro del plazo establecido y que cumplan con los requisitos indicados en este reglamento, para que el trabajador reciba el pago respectivo en la quincena correspondiente.

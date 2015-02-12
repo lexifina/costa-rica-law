@@ -1,0 +1,1 @@
+Artículo 17.—El pago de horas extraordinarias se efectuará de acuerdo con el contenido presupuestario existente; los jefes que soliciten el pago de horas extra para sus subalternos, deberán verificar con su Director o Gerente de Área, que se cuenta con el contenido presupuestario correspondiente.

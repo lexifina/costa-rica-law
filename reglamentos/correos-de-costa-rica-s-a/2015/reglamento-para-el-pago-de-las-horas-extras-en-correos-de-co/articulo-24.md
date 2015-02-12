@@ -1,0 +1,1 @@
+Artículo 24.—Principios. El uso del tiempo extraordinario deberá ajustarse al principio de excepción y eventualidad, por lo tanto queda prohibido aquellas situaciones en que sólo un trabajador trabaje en forma permanente la jornada ordinaria y una extraordinaria.

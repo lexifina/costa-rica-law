@@ -1,0 +1,1 @@
+Artículo 22.—La Gerencia de Recursos Humanos no tramitará ninguna solicitud de horas extraordinarias no autorizadas por la jefatura que corresponda, que no cuente con el respectivo contenido presupuestario, y/o los requisitos establecidos en el artículo 16 del presente reglamento.

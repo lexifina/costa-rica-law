@@ -1,0 +1,1 @@
+Artículo 10.—El reporte de horas extra deberá indicar la hora de inicio y finalización, el nombre completo del trabajador, así como la fecha en que se está realizando el trabajo extraordinario y contar con la autorización del jefe respectivo, previa aprobación del director correspondiente.

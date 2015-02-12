@@ -1,0 +1,1 @@
+Artículo 8º—Para efectos del presente Reglamento, el mes se cuenta a partir del día 01 de cada mes hasta el día 30 del mismo mes. Por ello a partir del 01 del mes siguiente inicia el plazo de los diez días naturales para enviar los reportes al Departamento de Gestión de Personal.

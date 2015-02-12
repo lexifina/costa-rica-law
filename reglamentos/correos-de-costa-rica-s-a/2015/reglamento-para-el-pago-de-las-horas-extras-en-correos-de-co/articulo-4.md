@@ -1,0 +1,1 @@
+Artículo 4º—La jornada extraordinaria no podrá exigirse permanentemente. Los jefes sólo podrán ocupar a sus subalternos en labores después de la jornada ordinaria cuando la labor a realizar constituya una necesidad imprevista, imperiosa o urgente de la empresa y se le avisare al trabajador con suficiente anterioridad, cuando esto sea posible.

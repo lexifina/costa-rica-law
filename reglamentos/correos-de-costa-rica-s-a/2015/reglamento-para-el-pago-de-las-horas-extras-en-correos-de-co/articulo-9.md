@@ -1,0 +1,1 @@
+Artículo 9º—Las horas extraordinarias serán pagadas en la segunda quincena del mes en que sean reportadas las mismas, pero si el reporte respectivo se atrasare más de los diez días naturales que menciona el artículo anterior, las horas extraordinarias se pagaran hasta la segunda quincena del mes siguiente.

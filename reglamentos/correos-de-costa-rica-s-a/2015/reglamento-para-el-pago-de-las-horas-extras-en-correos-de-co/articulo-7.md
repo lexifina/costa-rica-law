@@ -1,0 +1,1 @@
+Artículo 7º—Aprobado el pago de horas extras, el jefe de la oficina enviará el reporte correspondiente de horas extraordinarias laboradas, debidamente justificadas de acuerdo al servicio, al Departamento de Gestión de Personal, en un plazo no mayor de diez días naturales después de finalizado el mes.
