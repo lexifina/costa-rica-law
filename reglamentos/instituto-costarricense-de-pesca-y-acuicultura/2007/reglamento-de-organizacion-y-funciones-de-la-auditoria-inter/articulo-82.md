@@ -1,1 +1,0 @@
-Artículo 82.—La comunicación de los resultados de los informes de la Auditoría Interna de la institución deberá ser de conformidad con lo establecido en los artículos 35, 36, 37 y 38, de la Ley General de Control Interno, Ley Nº 8292.

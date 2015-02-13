@@ -1,1 +1,0 @@
-Artículo 78.—Al jerarca o el funcionario con la competencia para iniciar el procedimiento administrativo por recomendación de la Auditoría Interna, como producto de un informe de responsabilidades de relación de hechos, deben tomar las medidas para que éste se atienda dentro de los plazos que correspondan a fin de que se interrumpa la prescripción de la responsabilidad.

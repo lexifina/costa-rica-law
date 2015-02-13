@@ -1,1 +1,0 @@
-Artículo 26.—El Auditor Interno establecerá un procedimiento de archivo a efectos de asegurar la confidencialidad estipulada en el artículo 6 de la Ley Nº 8292, “Ley General de Control Interno” y el artículo 8 de la Ley Contra la Corrupción y el Enriquecimiento Ilícito.

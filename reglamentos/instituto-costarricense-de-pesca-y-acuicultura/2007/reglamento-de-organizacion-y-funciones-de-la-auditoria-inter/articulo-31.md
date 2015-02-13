@@ -1,1 +1,0 @@
-Artículo 31.—El Auditor Interno deberá definir y mantener actualizado, en el instrumento que corresponda los órganos y entes sujetos al ámbito de acción de la Auditoría Interna con fundamento en lo estipulado en el artículo 22 inciso a) de la Ley General de Control Interno.

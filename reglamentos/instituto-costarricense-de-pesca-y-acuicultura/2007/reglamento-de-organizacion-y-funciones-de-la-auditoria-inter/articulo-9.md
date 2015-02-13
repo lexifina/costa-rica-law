@@ -1,3 +1,0 @@
-UBICACIÓN Y ESTRUCTURA ORGANIZATIVA
-Artículo 9º—En el Instituto Costarricense de Pesca y Acuicultura existirá una sola unidad de Auditoría Interna, pudiendo la misma crear sub jefaturas en las distintas áreas de la Auditoría y dependerá organizacionalmente de la Junta Directiva, para que la Auditoría Interna pueda cumplir un trabajo en forma profesional, objetiva y libre de injerencias de conformidad con lo que establece la Ley General de Control interno y de conformidad con los manuales de puesto o clases aplicados por la institución.
-El rol de la Auditoría Interna es de órgano asesor de muy alto nivel dentro de la estructura organizacional y dependerá orgánicamente del jerarca institucional.

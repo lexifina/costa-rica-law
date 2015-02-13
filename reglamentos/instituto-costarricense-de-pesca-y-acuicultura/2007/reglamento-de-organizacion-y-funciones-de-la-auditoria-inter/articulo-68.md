@@ -1,1 +1,0 @@
-Artículo 68.—Los funcionarios de la Auditoría convocarán por escrito a quienes tengan parte en los asuntos, para realizar la comunicación verbal del informe final de control interno dentro de un plazo razonable. La ausencia injustificada de parte de la administración activa se tomará como aceptados los hallazgos y se procederá con el trámite respectivo.

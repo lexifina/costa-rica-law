@@ -1,1 +1,0 @@
-Artículo 41.—La Auditoría Interna podrá realizar Auditorías o estudios especiales semestralmente a los fondos públicos, tales como fideicomisos, fondos especiales u otros que por su naturaleza sean competencia de la institución. De acuerdo con el artículo 22 de la Ley General de Control Interno.

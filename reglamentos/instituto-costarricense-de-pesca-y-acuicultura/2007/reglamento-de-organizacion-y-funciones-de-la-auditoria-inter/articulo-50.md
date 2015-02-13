@@ -1,1 +1,0 @@
-Artículo 50.—La asesoría legal, así como cualquier otra dependencia técnica estará en la obligación de brindar a la Auditoría Interna oportuna y efectivamente los estudios jurídicos o técnicos que esta solicite para establecer su mejor accionar, de conformidad con lo que establece el artículo 33, inciso c) de la Ley General de Control Interno.

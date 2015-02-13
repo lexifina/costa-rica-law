@@ -1,1 +1,0 @@
-Artículo 15.—El Auditor Interno o quien delegue la Junta Directiva, en ausencia del Auditor, deberán cumplir con idoneidad independencia, objetividad, profesionalismo, integridad y gestión asesora sus funciones, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.
