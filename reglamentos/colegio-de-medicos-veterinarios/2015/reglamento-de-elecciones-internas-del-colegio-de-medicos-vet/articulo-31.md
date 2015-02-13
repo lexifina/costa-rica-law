@@ -1,0 +1,2 @@
+Artículo 31.- Es absolutamente prohibido que los candidatos o su grupo soliciten o reciban contribuciones, de cualquier tipo de personas físicas o jurídicas ajenas al Colegio, para gastos de propaganda, movilización y en general cualquier ayuda de organizaciones políticas, fundaciones, sindicatos, entidades religiosas y empresas comerciales o privadas.
+Queda prohibida la participación de personas ajenas al Colvet en cualquier actividad del proceso electoral, salvo el personal de apoyo que requiera el TEI para cumplir sus responsabilidades.

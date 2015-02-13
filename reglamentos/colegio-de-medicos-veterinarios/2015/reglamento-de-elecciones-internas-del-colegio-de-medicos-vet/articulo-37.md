@@ -1,0 +1,1 @@
+Artículo 37.- El TEI ordenará confeccionar las papeletas y dispondrá los medios que se utilizarán para la votación. No obstante el TEI podrá autorizar el uso de medios escritos o electrónicos de votación, pero deberá vigilar por la seguridad y confiabilidad del proceso.

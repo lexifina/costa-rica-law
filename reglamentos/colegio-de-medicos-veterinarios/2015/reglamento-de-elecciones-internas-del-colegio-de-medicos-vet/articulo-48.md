@@ -1,0 +1,1 @@
+Artículo 48.- Una vez que el elector haya emitido el voto, el Presidente escribirá de su puño y letra en el margen derecho del padrón, correspondiente al renglón donde aparece inscrito el elector, la expresión: sí votó.

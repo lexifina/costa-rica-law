@@ -1,0 +1,1 @@
+Artículo 38.- Se computarán como votos válidos los votos emitidos: a) en papeletas oficiales, con los requisitos establecidos en el artículo 14, debidamente marcadas y que estén firmadas por todos los miembros de la Junta, cuya actuación conste en el padrón-registro, o b) el mecanismo que se establezca en caso de voto electrónico.

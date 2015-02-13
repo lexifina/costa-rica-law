@@ -1,0 +1,9 @@
+Artículo 24.- La inscripción podrá ser por papeleta o en forma individual y se hará ante la Secretaría del TEI y con el machote de formulario que para tal efecto suministrará el Tribunal, debiendo los solicitantes de cumplir los siguientes requisitos:
+a- Quienes aspiren a ocupar puestos en la Junta Directiva y el fiscal deberán estar al día con todas sus obligaciones económicas y financieras con el Colegio.
+b- Las propuestas de candidaturas para elecciones ordinarias, sean por papeleta o independientes, deben ser suscritas por un mínimo del 3% de colegiados activos a la fecha de la convocatoria del proceso de inscripción por parte del TEI.
+c- Deben incluir el nombre completo de cada candidato, el puesto para el que se postula, número de colegiado y número de cédula; además de la manifestación expresa de aceptación de la candidatura, firmada cada uno, e indicar expresamente que están de acuerdo en presentar la declaración de bienes a la Contraloría General de la República.
+d- En las nóminas de las papeletas se deben de presentar siguiendo los principios de equidad de género. En caso de candidaturas individuales no se aplica esta disposición.
+e- Aportar el nombre y calidades del fiscal que representará al candidato o grupo ante el TEI durante el proceso electoral, y señalar lugar o medio electrónico para atender notificaciones. Las resoluciones que tome el TEI serán notificadas al fiscal
+designado de cada grupo, en el lugar o medio señalado para notificaciones.
+f- Distintivo y colores que el grupo usará para fines propagandísticos. Queda absolutamente prohibido el uso de banderas, colores, emblemas y otros símbolos nacionales, así como el color azul y los celestes propios del Colegio u otros que la institución defina en el futuro.
+g- Toda solicitud deberá estar escrita en letra legible, indicando claramente: nombre completo, cédula y carné.

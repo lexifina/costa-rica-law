@@ -1,0 +1,2 @@
+Artículo 28.- El período para realizar propaganda electoral, al día siguiente que el TEI tenga por inscritas las candidaturas y se y concluirá el día anterior a la elección. El día de la elección solo se permitirá publicaciones y avisos invitando a los colegiados a participar en el proceso electoral.
+Durante el periodo de propaganda, los grupos inscritos o los independientes podrán enviar los mensajes por semana que determine el TEI, en los días y condiciones que para tal efecto establecerá dicho órgano.

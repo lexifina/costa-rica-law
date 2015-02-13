@@ -1,0 +1,1 @@
+Artículo 67.- Con la finalidad de promover la continuidad de las acciones de la Junta Directiva, se considerará una reelección automática por un año más de la siguiente forma: un año se reelegirán automáticamente Presidente, Secretario, Tesorero y Vocal 1 y el siguiente; Vicepresidente, Fiscal y Vocal Suplente.

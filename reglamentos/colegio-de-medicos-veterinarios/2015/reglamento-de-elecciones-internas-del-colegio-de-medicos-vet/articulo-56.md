@@ -1,0 +1,3 @@
+Artículo 56.- Al cerrarse la votación, el escrutinio de cada mesa lo realizará el delegado o auxiliar electoral y los miembros de los grupos que cierran la mesa, pudiendo intervenir el Fiscal de cada grupo con voz pero sin voto. El resultado deberá ser comunicado al TEI por el medio autorizado por éste, el día de la elección y en forma oportuna.
+Dentro de los tres días hábiles posteriores a la finalización de la votación el Presidente del recinto deberá entregar al TEI en forma personal o enviar por correo certificado, la documentación o registros utilizados en el proceso.
+Corresponde al TEI realizar el conteo final de los votos, en dicho acto participaran el pleno del Tribunal y los fiscales generales de los grupos inscritos.

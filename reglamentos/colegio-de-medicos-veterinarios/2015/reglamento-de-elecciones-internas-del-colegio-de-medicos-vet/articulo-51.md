@@ -1,0 +1,1 @@
+Artículo 51.- Las votaciones se realizarán únicamente en los lugares preestablecidos por el TEI, quien dispondrá las medidas de control que considere necesarias y oportunas para garantizar la pureza del voto.

@@ -1,0 +1,2 @@
+Artículo 13.- El TEI será el organismo encargado de organizar, regular, fiscalizar y resolver sobre el proceso eleccionario y hacer la declaratoria de los elegidos; sin perjuicio de las atribuciones que por ley o por reglamento corresponden a la Junta Directiva.
+En sus resoluciones deberá fundamentar sus decisiones citando la normativa interna, el Código Electoral o los principios de derecho aplicables.

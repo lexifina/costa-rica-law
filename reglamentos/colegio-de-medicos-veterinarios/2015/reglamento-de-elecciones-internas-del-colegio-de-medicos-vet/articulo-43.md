@@ -1,0 +1,1 @@
+Artículo 43.- El TEI dispondrá, en caso de ser necesario, la distribución de los electores en cada recinto, para lo cual se confeccionará el respectivo padrón. El control del padrón se hará según lo disponga el TEI.

@@ -1,0 +1,1 @@
+Artículo 35.- Queda prohibido que los miembros y colaboradores del TEI utilicen signos externos o indumentaria que identifique a alguna de las tendencias inscritas mientras se encuentren nombrados y en ejercicio de sus cargos. Así mismo queda prohibido a los integrantes de TEI y sus colaboradores manifestar públicamente, de manera tácita o expresa, su preferencia electoral.

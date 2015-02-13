@@ -1,0 +1,1 @@
+Artículo 44.- Cada grupo o postulante podrá además designar en los centros de votación un fiscal propietario y un suplente, quienes tendrán voz, pero no voto. Dichos fiscales deben estar inscritos ante el TEI a más tardar una semana exacta antes de la fecha de las votaciones.

@@ -1,0 +1,2 @@
+CAPÍTULO VIII: Del Voto
+Artículo 46.- El voto será secreto y personal. Se emitirá puesto por puesto, de la forma y manera que al efecto indique el TEI. En la papeleta y para efectos de identificación de las candidaturas se agruparan las propuestas de elección según los grupos inscritos, no obstante ello no podrá interpretarse como que la votación es por grupos. Se considerará como voto válido aquel que cumpla con los requisitos que establece este Reglamento y en forma supletoria se aplicarán las normas contenidas en el Código Electoral.

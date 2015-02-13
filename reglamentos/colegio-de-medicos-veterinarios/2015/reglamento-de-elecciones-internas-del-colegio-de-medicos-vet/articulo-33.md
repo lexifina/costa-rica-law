@@ -1,0 +1,1 @@
+Artículo 33.- El empleo y la orientación de la propaganda es responsabilidad de los candidatos que integran la papeleta. La propaganda debe ser dirigida a exaltar los méritos de los(as) candidatos(as) y a la exposición de programas e ideas que se propongan desarrollar en beneficio institucional.

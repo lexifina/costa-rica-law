@@ -1,0 +1,4 @@
+Artículo 49.- Podrán votar públicamente los colegiados con alguna discapacidad calificada que les imposibilite emitir su voto en forma secreta. En estos casos será el Presidente o delegado de la mesa quien, en presencia de los miembros de mesa, marcará la papeleta en el lugar solicitado por el votante o le indicará donde hacerlo, de acuerdo con la petición expresa del elector.
+Posteriormente, cuando corresponda, la depositará en la urna respectiva.
+En caso de un elector que, sin reunir las condiciones antes señaladas, después de haber votado mostrare la papeleta haciendo público su voto, el Presidente de la Junta Receptora le decomisará la papeleta consignando en ella la razón de nulidad. Una vez anulado el voto, lo depositará en la urna electoral, y hará constar en el acta lo sucedido.
+El Tribunal Electoral tomará todas las previsiones necesarias para que esta disposición se cumpla fielmente, en salvaguarda del derecho al libre ejercicio del sufragio.
