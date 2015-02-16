@@ -1,1 +1,0 @@
-Artículo 3°—Las clasificaciones de los vehículos. Para efectos del presente reglamento, los vehículos del Ministerio de Gobernación y Policía, serán utilizados bajo la siguiente clasificación: a) de Uso Discrecional, exclusivamente a aquellos destinados al servicio personal del Ministro y Viceministro y b) de Uso Administrativo todos los demás vehículos.

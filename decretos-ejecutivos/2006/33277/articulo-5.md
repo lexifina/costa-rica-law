@@ -1,1 +1,0 @@
-Artículo 5°—La unidad de transporte del Ministerio de Gobernación y Policía, será la encargada de ejecutar las medidas de conservación y Control en cuanto al uso de los vehículos. El encargado de dicha unidad velará por que las disposiciones contenidas en el presente reglamento, el Reglamento Interno de Trabajo y la Ley de Tránsito, sean debidamente acatadas.
