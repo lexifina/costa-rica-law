@@ -1,2 +1,0 @@
-Artículo 27.—Aprobación de actas: Las actas se aprobarán en la siguiente sesión ordinaria, salvo las excepciones que autorice el Consejo Directivo. Una vez aprobadas, las actas se consignarán en el Libro que al efecto se debe llevar, autorizado por la Contraloría General de la República.
-El Libro de Actas deberá ser firmado en cada sesión transcrita; por el Presidente, el Secretario y los Miembros del Consejo Directivo que hubieren hecho constar su voto disidente.

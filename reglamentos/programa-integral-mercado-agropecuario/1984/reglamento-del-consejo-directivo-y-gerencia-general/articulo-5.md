@@ -1,2 +1,0 @@
-Artículo 5°—Nombramiento de Vicepresidente: El Consejo Directivo elegirá de su seno un vicepresidente por el término de un año en votación secreta celebrada en su primera sesión anual. Para la elección se requerirá la mayoría simple de los miembros presentes.
-En caso de empate se procederá a una nueva votación en la siguiente sesión que se realizará al día siguiente, a la misma hora y lugar. Si persiste el empate la elección se decidirá por suerte.

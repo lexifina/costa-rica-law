@@ -1,2 +1,0 @@
-Articulo 9°—Ausencias - Justificaciones: En principio, los miembros del Consejo Directivo deben justificar sus ausencias a sesión por medio del Secretario. Este informará verbalmente al Consejo y anotará la referencia en el acta de la sesión que corresponda.
-En los casos de enfermedad y para efectos del pago de dieta, el directivo deberá aportar al Secretario el comprobante de incapacidad o el dictamen médico según lo establecido en el artículo 26, inciso ch.

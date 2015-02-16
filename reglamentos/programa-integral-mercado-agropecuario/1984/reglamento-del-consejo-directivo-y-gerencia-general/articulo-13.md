@@ -1,1 +1,0 @@
-Artículo 13.—Excepción a la convocatoria: El Consejo Directivo podrá sesionar válidamente cuando sin ser día y hora de sesión ordinaria, ni existir convocatoria a sesión extraordinaria, estén presentes todos sus miembros y así lo acuerden por unanimidad.

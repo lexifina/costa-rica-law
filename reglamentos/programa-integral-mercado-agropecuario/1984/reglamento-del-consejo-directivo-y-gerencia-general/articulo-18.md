@@ -1,3 +1,0 @@
-Artículo 18.—Desarrollo de la sesión: La sesión será dirigida por el Presidente quien seguirá el orden del día establecido y concederá la palabra a los miembros y asistentes en el orden que lo soliciten.
-Las propuestas deberán ser analizadas, discutidas y sometidas a votación en el orden en que hayan sido presentadas; salvo que un directivo promueva una moción de orden sobre un asunto, en cuyo caso se suspenderá la deliberación hasta que esté votada la moción.
-El Presidente eliminará de la discusión las propuestas que no se refieran al tema objeto de deliberación, y serán trasladadas al capítulo que corresponda.

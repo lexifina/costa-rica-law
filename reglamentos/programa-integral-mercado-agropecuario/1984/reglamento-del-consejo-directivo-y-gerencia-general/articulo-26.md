@@ -1,2 +1,0 @@
-Artículo 26 —Actas: De todas las sesiones que celebre el Consejo Directivo se levantará un acta que indicará el nombre de los asistentes, circunstancias de lugar y tiempo en que se han celebrado, orden del día, los puntos principales de deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
-El Secretario anotará la llegada y salida de los directores cuando ingresen después de iniciada la sesión o se retiren antes de su final.

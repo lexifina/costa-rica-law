@@ -1,3 +1,0 @@
-Artículo 4°—Nombramientos, Delegados y Representantes: Los funcionarios que integran el Consejo Directivo dejarán de formar parte de esto cuando por cualquier motivo se separen de su cargo. En este caso la respectiva Institución precederá a nombrar el sustituto.
-En el caso del MAG y del CNP, los titulares podrán nombrar un delegado que se acreditará por comunicación oficial dirigida al Consejo Directivo. Los representantes del IFAM y la Unión Nacional de Gobiernos Locales se acreditarán por comunicación oficial del acuerdo del órgano directivo correspondiente.
-El representante de la Junta Directiva del IFAM y el de la Unión Nacional de Gobiernos Locales serán nombrados por un periodo de cuatro años y podrán ser reelectos.

@@ -1,2 +1,0 @@
-Artículo 17.—Asistentes e invitados a sesión: Las sesiones del Consejo Directivo serán privadas, salvo la asistencia obligatoria del Gerente, Auditor y Administrador del CENADA, que tendrán voz pero no voto.
-El Consejo Directivo podrá acordar per unanimidad de los presentes la asistencia de uno o varios invitados especiales para tratar asuntos concretos a los cuales se les concederá voz conforme el orden que al efecto siga el Presidente. Los invitados especiales sólo podrán estar presentes durante el conocimiento del asunto para el cual fueron convocados.

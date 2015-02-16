@@ -1,3 +1,0 @@
-Artículo 23.—Revisión de acuerdos: Cualquier Miembro del Consejo Directivo podrá solicitar la revisión de un acuerdo a más tardar antes de aprobarse el acta correspondiente. El recurso deberá resolverse en la misma sesión en que se conozca el acta; salvo que por tratarse de un asunto que el Presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
-En el caso de que sea aprobada la revisión de un acuerdo que haya sido declarado firme, deberán revocarse y corregirse las comunicaciones que se hayan hecho.
-Las observaciones de forma relativas a la redacción de los acuerdos no serán consideradas como recursos de revisión.

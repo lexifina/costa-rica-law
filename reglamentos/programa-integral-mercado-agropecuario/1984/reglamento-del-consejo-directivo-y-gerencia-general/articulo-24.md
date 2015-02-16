@@ -1,3 +1,0 @@
-Artículo 24.—Dietas, Monto y Cancelación: Los miembros del Consejo Directivo devengarán dietas por cada sesión a que asistan según el monto estipulado en el artículo 2° de la ley N° 3065 del 20 de noviembre de 1962 y sus reformas. En ningún caso se remunerarán más de ocho sesiones por mes incluyendo ordinarias y extraordinarias.
-Las dietas se cancelarán mensualmente conforme los procedimientos de egresos establecidos para operaciones ordinarias del PIMA.
-El doceavo del total de dietas devengado por cada Director en el periodo de diciembre a noviembre de cada año se utilizará para el cálculo y pago del decimotercer mes (aguinaldo).

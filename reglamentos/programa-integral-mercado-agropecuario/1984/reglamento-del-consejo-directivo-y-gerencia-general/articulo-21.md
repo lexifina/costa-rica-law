@@ -1,1 +1,0 @@
-Articulo 21.—Acuerdos fuera del orden: No podrá ser objeto de acuerdo ningún asunto que no figure expresamente en el orden del día, salvo que estén presentes cuatro de los Miembros del Consejo Directivo y previamente declaren la urgencia del asunto por el voto favorable de todos ellos.

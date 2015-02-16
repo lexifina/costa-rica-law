@@ -1,1 +1,0 @@
-Artículo 33.—Secretario Suplente: En caso de ausencia del Secretario, el Consejo Directivo podrá nombrar de su seno un Secretario ad-hoc o en su defecto recargará la función en un funcionario de la Institución. Para este nombramiento se requerirá de mayoría simple.
