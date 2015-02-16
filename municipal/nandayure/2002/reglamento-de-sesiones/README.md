@@ -15,3 +15,4 @@ Reglamento de Sesiones
 | --- | --- | --- |
 | 1 | 2002-11-22 | la propia norma |
 | 2 | 2012-01-25 | Reglamento municipal 91 (2012-01-25) |
+| 3 | 2015-02-16 | Reglamento municipal 251 (2015-02-16) |
