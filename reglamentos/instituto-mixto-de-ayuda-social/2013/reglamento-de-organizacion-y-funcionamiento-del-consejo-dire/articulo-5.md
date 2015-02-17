@@ -25,3 +25,5 @@ t) Nombrar el o los órgano(s) director(es) de los procedimientos administrativo
 u) Conocer en alzada los recursos que procedan conforme al ordenamiento jurídico, contra resoluciones de la Gerencia General.
 v) Nombrar cada año un Vicepresidente, quien sustituirá al Presidente en sus ausencias temporales y a un Secretario Propietario y un Secretario Suplente quien sustituirá al Secretario en sus ausencias temporales
 w) Conocer los demás asuntos que le señalen las leyes y los reglamentos.
+x) Conocer, valorar y aprobar o denegar las solicitudes de apoyo logístico y material que realice la persona que ocupe el cargo titular del Ministerio que ejerza el sector social.
+(Así adicionado el inciso anterior mediante publicación en La Gaceta N° 33 del 17 de febrero del 2015)
