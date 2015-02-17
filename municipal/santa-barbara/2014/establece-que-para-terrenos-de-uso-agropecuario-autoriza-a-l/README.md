@@ -14,3 +14,4 @@ Establece que para terrenos de uso agropecuario autoriza a la Administración pa
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-08 | la propia norma |
+| 2 | 2015-02-17 | Acuerdo municipal 6666 (2015-02-17) |
