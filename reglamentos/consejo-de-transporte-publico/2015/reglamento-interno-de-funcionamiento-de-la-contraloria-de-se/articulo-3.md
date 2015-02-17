@@ -1,0 +1,1 @@
+Artículo 3º—La Contraloría de Servicios estará bajo la responsabilidad y dirección de un (a) Contralor (a), que cumpla con los requisitos idóneos para desempeñar el cargo, además estará integrada por el personal necesario para el cabal cumplimiento de los objetivos definidos.

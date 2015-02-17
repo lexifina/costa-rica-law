@@ -1,0 +1,1 @@
+Artículo 19.—Sobre los Informes, propuestas y/o recomendaciones. Con respecto a los informes y recomendaciones que emita la Contraloría de Servicios deberán ser remitidos al Jerarca de la Institución, para su aprobación, y resolución, a fin de que se logre tomar las acciones oportunas y necesarias.

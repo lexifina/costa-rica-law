@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos de éste Reglamento y su aplicación, todos los funcionarios del Consejo de Transporte Público deberán prestar colaboración a la Contraloría de Servicios , cuando así se requiera, a fin de cumplir con sus funciones y atribuciones establecidas, asimismo las que se deriven de su relación laboral con la Institución.

@@ -1,0 +1,2 @@
+Artículo 4º—Su finalidad consiste en contribuir en la prestación de los servicios que brinda la Institución, intercediendo a favor de los usuarios, además el detectar aquellas deficiencias que deben ser mejoradas, en procura para satisfacer de manera oportuna las demandas de los usuarios.
+Se debe brindar una orientación al usuario que facilite el contacto con la Institución, y obtenga una respuesta acorde a sus necesidades.
