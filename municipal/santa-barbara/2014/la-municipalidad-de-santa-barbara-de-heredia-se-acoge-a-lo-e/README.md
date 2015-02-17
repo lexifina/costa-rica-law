@@ -15,3 +15,4 @@ La Municipalidad de Santa Bárbara de Heredia se acoge a lo establecido en el tr
 | --- | --- | --- |
 | 1 | 2014-03-18 | la propia norma |
 | 2 | 2014-11-14 | Acuerdo municipal 6314 (2014-11-14) |
+| 3 | 2015-02-17 | Acuerdo municipal 6666 (2015-02-17) |
