@@ -1,4 +1,6 @@
+(Derogado)
 EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
+(Esta norma fue derogada por el artículo 145 del Reglamento de compras y contrataciones de la Empresa de Servicios Públicos de Heredia S.A., aprobado en sesión N° 3524 del 18 de febrero de 2015)
 MANUAL DE COMPRAS DE LA EMPRESA DE SERVICIOS
 PÚBLICOS DE HEREDIA S. A.
 CAPÍTULO I
