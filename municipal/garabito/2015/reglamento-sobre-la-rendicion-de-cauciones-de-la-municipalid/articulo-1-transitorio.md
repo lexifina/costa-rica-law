@@ -1,0 +1,1 @@
+Transitorio uno.—Los funcionarios que al momento de entrada en vigencia de este Reglamento estén obligados a caucionar, contarán con un plazo de tres meses para gestionar la caución y presentar una copia ante el Departamento de Gestión y Talento Humano.

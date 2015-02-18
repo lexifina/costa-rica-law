@@ -1,0 +1,1 @@
+Artículo 5°—Cuando hay más de una función sujeta a caución. El funcionario obligado a caucionar que ocupe más de uno de los puestos establecidos en el artículo 3° de este reglamento, lo hará una sola vez y por el monto de mayor valor.

@@ -1,0 +1,1 @@
+Artículo 6º—Ajuste de la caución. El funcionario obligado a rendir caución, que por algún motivo sea trasladado de un puesto a otro que implique la obligación de rendir una caución mayor, deberá ajustar previo a asumir el puesto rendir la garantía conforme a su nueva situación, si dicho nombramiento es igual o superior a un mes calendario.
