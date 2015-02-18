@@ -14,3 +14,4 @@ Aplicación de medida definitiva de salvaguarda sobre las importaciones de “Ar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-08 | la propia norma |
+| 2 | 2015-02-18 | Resolución 6 (2015-02-18) |
