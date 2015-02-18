@@ -13,3 +13,4 @@ Sobre el depósito judicial de embarcaciones y equipo de navegación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-29 | la propia norma |
+| 2 | 2015-02-18 | Circular 37 (2015-02-18) |
