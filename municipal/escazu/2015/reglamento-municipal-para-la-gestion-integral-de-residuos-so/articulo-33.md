@@ -1,0 +1,1 @@
+Artículo 33.—Cancelación de permisos y licencias. La Municipalidad podrá cancelar las licencias municipales otorgadas al efecto, sea comercial o de construcción, ante el incumplimiento del Reglamento y demás normativa que orienta la materia.

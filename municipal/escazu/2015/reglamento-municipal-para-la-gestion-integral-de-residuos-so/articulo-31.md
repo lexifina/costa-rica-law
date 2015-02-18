@@ -1,0 +1,2 @@
+Artículo 31.—Inspecciones. El personal municipal debidamente identificados/as, deben realizar las inspecciones de verificación, seguimiento o cumplimiento de este Reglamento, para lo cual pueden hacerse acompañar de autoridades de policía.
+Además, en el supuesto de encontrarse indicios de incumplimiento de este Reglamento, se le notificará a la persona responsable para el inicio del procedimiento respectivo.

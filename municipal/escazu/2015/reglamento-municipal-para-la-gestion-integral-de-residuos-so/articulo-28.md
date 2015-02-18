@@ -1,0 +1,1 @@
+Artículo 28.—Prohibición de mezclar residuos sólidos separados en la fuente. Se prohíbe a la entidad recolectora mezclar para su transporte residuos sólidos que han sido separados por instancias o personas generadoras y puestos para su recolección de forma separada.

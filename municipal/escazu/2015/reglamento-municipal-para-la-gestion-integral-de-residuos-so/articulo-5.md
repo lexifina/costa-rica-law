@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las atribuciones y obligaciones municipales
+Artículo 5º—Responsable de la gestión integral de residuos sólidos. Para la implementación de este Reglamento y de otra legislación nacional vigente en la materia, el Macro proceso de Ingeniería y Desarrollo Territorial por medio de los Procesos de Servicios Comunales y Contraloría Ambiental, serán responsables de la gestión de los residuos sólidos de competencia municipal en el cantón. El Concejo Municipal y el Despacho de la Alcaldía dotará a estas dependencias del personal necesario, así como del presupuesto adecuado para cumplir con estas funciones.
