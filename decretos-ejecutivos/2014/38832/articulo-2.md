@@ -1,0 +1,1 @@
+Artículo 2º—Asesoría. Un abogado representante de la Dirección de Asuntos Jurídicos del Ministerio de Salud actuará en calidad de asesor del Consejo, únicamente con derecho a voz. Asimismo, el Consejo podrá avalar la presencia de otros asesores, con voz pero sin voto, para ayudar en el análisis de los temas que se estime pertinente.
