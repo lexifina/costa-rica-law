@@ -1,0 +1,1 @@
+Artículo 3°—De conformidad con el artículo 94 de la Ley N° 8495, Ley General del Servicio Nacional de Salud Animal, autorizar a los entes autónomos para que dispongan de las partidas y de otros recursos que consideren necesarios para auxiliar al SENASA, para la atención de la presente emergencia sanitaria regional.

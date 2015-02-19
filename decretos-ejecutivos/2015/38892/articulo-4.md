@@ -1,0 +1,1 @@
+Artículo 4°—La presente declaratoria de emergencia sanitaria regional se mantendrá vigente durante el plazo que el Poder Ejecutivo disponga, según los informes que sean emitidos por el SENASA, sin detrimento de lo estipulado en el párrafo segundo del artículo 95 de la Ley N° 8495, Ley General del Servicio Nacional de Salud Animal.
