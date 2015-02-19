@@ -1,0 +1,1 @@
+Artículo 2º—Durante el desarrollo del Programa de Becas, la Federación de Representación Nacional proponente será la responsable de velar por el cumplimiento de la Planificación Deportiva Anual del becado y el ICODER a través del área de la Dirección de Deporte fiscalizará el cumplimiento de las metas propuestas.
