@@ -14,3 +14,4 @@ Reglamento para la Administración de los Cementerios de Heredia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-24 | la propia norma |
+| 2 | 2015-02-19 | Reglamento municipal 391 (2015-02-19) |
