@@ -1,4 +1,5 @@
 Nº 38541-GOB-MTSS-MAG
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 39044 del 19 de febrero de 2015, y publicado en La Gaceta N° 133 del 10 de julio de 2015, se acordó extender el plazo para el registro de patronos y empresas del sector agrícola dispuesto para la regularización extraordinaria de trabajadores y trabajadoras migrantes, dispuesto mediante este decreto, por tres meses más a partir de la publicación del decreto ejecutivo N° 39044 del 19 de febrero de 2015, es decir hasta el 10 de octubre de 2015. Por su parte de conformidad con el numeral 3° del decreto ejecutivo N° 39044 del 19 de febrero de 2015, se mantiene el plazo hasta el 31 de diciembre de 2015 para que los patronos o empresas inscritas formalicen la regularización de sus trabajadores y trabajadoras agrícolas migrantes. Durante el plazo de vigencia de este proceso extraordinario, no se aplicarán las multas dispuestas en el artículo 177 de la Ley General de Migración y Extranjería, a los patronos inscritos en este registro.)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE GOBERNACIÓN Y POLICÍA,
 EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL

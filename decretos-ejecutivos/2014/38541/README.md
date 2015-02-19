@@ -14,3 +14,4 @@ Registro y Plazo extraordinario de regularización de trabajadores y trabajadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-01 | la propia norma |
+| 2 | 2015-02-19 | Decreto Ejecutivo 39044 (2015-02-19) |
