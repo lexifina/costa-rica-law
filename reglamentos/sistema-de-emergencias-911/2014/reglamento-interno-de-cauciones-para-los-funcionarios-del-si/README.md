@@ -14,3 +14,4 @@ Reglamento interno de cauciones para los funcionarios del Sistema de Emergencias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-13 | la propia norma |
+| 2 | 2015-02-19 | Reglamento 0 (2015-02-19) |
