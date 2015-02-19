@@ -16,3 +16,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo de Curridabat
 | 1 | 2009-08-31 | la propia norma |
 | 2 | 2010-05-04 | Reglamento municipal 1 (2010-05-04) |
 | 3 | 2010-06-24 | Reglamento municipal 8 (2010-06-24) |
+| 4 | 2015-02-19 | Reglamento municipal 251 (2015-02-19) |
