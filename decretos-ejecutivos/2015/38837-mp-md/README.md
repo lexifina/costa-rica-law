@@ -14,3 +14,4 @@ Declara de interés público y nacional de la celebración de la XXXIV Edición 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-02 | la propia norma |
+| 2 | 2015-02-20 | Decreto Ejecutivo 38901 (2015-02-20) |

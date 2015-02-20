@@ -18,4 +18,5 @@ DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
 DE LA XXXIV EDICIÓN DE LOS JUEGOS DEPORTIVOS
 NACIONALES QUE SE REALIZARÁN DEL 5 AL 15 DE
 JULIO 2015 EN LA ZONA NORTE
-Artículo 1º—Se declara de interés público y nacional la celebración de la XXXIV Edición de los Juegos Deportivos Nacionales, en su Etapa Final, en los cantones de San Carlos, Guatuso, Upala y Los Chiles de la provincia de la provincia de Alajuela.
+Artículo 1º—Se declara de interés público y nacional la celebración de la XXXIV Edición de los Juegos Deportivos Nacionales, en su Etapa Final, en los cantones de San Carlos, Guatuso, Upala, Los Chiles y Zarcero de la provincia de Alajuela.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38901 del 20 de febrero del 2015)
