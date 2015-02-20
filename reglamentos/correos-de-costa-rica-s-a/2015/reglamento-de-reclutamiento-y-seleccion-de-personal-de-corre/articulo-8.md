@@ -1,0 +1,3 @@
+CAPÍTULO V
+Nombramientos
+Artículo 8º—Nombramientos por tiempo definido. Son los nombramientos por concurso en un puesto de la estructura ocupacional de Correos de Costa Rica con un plazo de conclusión de la relación laboral, y cuando los servicios a prestar son de naturaleza definida o por obra determinada. Pero si vencido el plazo para el cual esa persona fue nombrada y aún subsisten las causas que le dieron origen o si la naturaleza de los servicios se torna en permanente, se tendrá como un nombramiento de tiempo indefinido. No pudiendo nombrarse personal a plazo fijo para realizar labores permanentes de la empresa, salvo cuando se trate de permisos, vacaciones, suplencias o mientras se tramita el concurso correspondiente.

@@ -1,0 +1,1 @@
+Artículo 9º—Nombramientos por tiempo indefinido. Son los nombramientos por concurso en un puesto de la estructura ocupacional de Correos de Costa Rica, donde se establece una relación laboral sin un plazo de conclusión.

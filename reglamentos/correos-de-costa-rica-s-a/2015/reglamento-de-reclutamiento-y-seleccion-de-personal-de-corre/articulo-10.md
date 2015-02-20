@@ -1,0 +1,1 @@
+Artículo 10.—Formalidad contractual. A efectos de formalizar la relación laboral como en derecho corresponde, se deberá suscribir el correspondiente contrato de trabajo mediante firma a través de la Gerencia de Recursos Humanos de conformidad con los artículos 21, 23 y 24 del Código de Trabajo.

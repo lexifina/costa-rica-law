@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Traslados
+Artículo 17.—Traslados dentro de la estructura ocupacional. Si los puestos de cada una de las unidades que conforman la estructura ocupacional de la empresa, mismos que están claramente definidos en cada unidad, si se desea trasladar algún trabajador a un puesto diferente no contemplado en la estructura de dicha unidad, sólo podrá darse en aquellos casos en que se justifique por la necesidad de la empresa y la prestación del servicio. Todo lo anterior a solicitud de la unidad solicitante, siempre y cuando cuente con el visto bueno de la Gerencia de Recursos Humanos y la autorización final de parte de la Gerencia General.

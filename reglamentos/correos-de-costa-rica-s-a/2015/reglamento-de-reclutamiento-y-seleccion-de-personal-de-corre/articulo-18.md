@@ -1,0 +1,1 @@
+Artículo 18.—Requisitos para el traslado. Para la aplicación de cualquier traslado, se deberá contemplar lo establecido en los artículos 53 y 71 de la Convención Colectiva de Correos de Costa Rica S. A., realizándose el estudio previo y análisis de cada situación, según sea el caso.
