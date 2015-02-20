@@ -18,10 +18,12 @@ Artículo 12.- Para el cumplimiento de los objetivos y atribuciones que le encom
 12.14 Unidad de Tecnología Informática.
 12.15 Unidad de Contabilidad.
 12.16 Unidad de Tesorería.
-12.17 Unidad de Servicios Generales.
-12.18 Unidad de Recursos Humanos.
+12.17 Unidad de Servicios Administrativos.
+(Así reformado el inciso anterior mediante sesión N° 043-2015 del 20 de febrero del 2015)
+12.18 (Derogado este inciso mediante sesión N° 043-2015 del 20 de febrero del 2015)
 12.19 Unidad de Recreación.
 12.20 Unidad de Ingeniería.
-12.21 Unidad de Crédito y Cobro.
+12.21 Unidad de Crédito.
+(Así reformado el inciso anterior mediante sesión N° 043-2015 del 20 de febrero del 2015)
 12.22 Unidad de Servicios Jurídicos.
 12.23 Junta de Relaciones Laborales.
