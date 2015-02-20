@@ -1,0 +1,16 @@
+# Reglamento municipal (2014-12-10)
+
+Reforma Reglamento sobre licencias de expendio de bebidas con contenido alcohólico de la Municipalidad de Santa Bárbara
+
+- Tipo: Reglamento municipal
+- Número: 242
+- Fecha: 2014-12-10
+- Ente emisor: Municipalidad de Santa Bárbara
+- Publicación: La Gaceta N° 36 del 2015-02-20
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=78924&param2=99617&param3=1 (ficha 78924)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2015-02-20 | la propia norma |
