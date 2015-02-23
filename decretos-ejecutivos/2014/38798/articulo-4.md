@@ -1,0 +1,1 @@
+Artículo 4º—Una vez aprobadas las tablas de plazos, la institución puede eliminar los tipos documentales autorizados sin consultar nuevamente a la Comisión. Sin embargo, las Tablas de Plazos aprobadas deben someterse a una revisión, tanto del Comité Institucional, como de la Comisión Nacional, cada cinco años, para determinar si los criterios originales son aún válidos.

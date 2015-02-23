@@ -1,0 +1,2 @@
+Artículo 2º—De entre sus miembros se nombrará un presidente y un secretario, electos por mayoría absoluta, quienes durarán en el cargo un año, pudiendo ser reelectos. El Comité establecerá sus normas de trabajo y la frecuencia de las reuniones.
+Serán miembros pro tempore y en calidad de observadores, las jefaturas de las unidades administrativas de DINADECO productoras de información física o electrónica, que por la materia tratada en las respectivas sesiones del Comité, así amerite su presencia.

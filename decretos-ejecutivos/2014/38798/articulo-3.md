@@ -1,0 +1,7 @@
+Artículo 3º—El Comité de Selección y Eliminación de Documentos, tendrá las siguientes funciones:
+a. Evaluar y determinar la vigencia administrativa y legal del acervo documental físico y electrónico de la institución. Para ello promoverá la elaboración de tablas de plazos de conservación en los Archivos de Gestión y en el Archivo Central.
+b. Consultar a la Comisión Nacional de Selección y Eliminación de Documentos, cuando se deban eliminar documentos físicos o electrónicos que hayan finalizado su trámite administrativo, y no existan tablas de plazos aprobadas.
+c. Someter a la aprobación de la Comisión Nacional de Selección y Eliminación, las tablas de plazos aprobadas por el Comité Institucional. Cuando no existan éstas, se harán consultas parciales si se desea eliminar uno o varios tipos documentales que ha perdido su valor administrativo y legal. La Comisión determinará cuáles tipos documentales tiene valor científico-cultural.
+d. Los documentos que deban ser eliminados serán transformados en material no legible, utilizando diferentes técnicas como incineración, trituración y otros similares.
+e. Se levantará un acta que contenga todos los tipos documentales que se eliminen, y la conservarán en sus archivos.
+f. La resolución sobre la consulta para eliminar documentos que carezcan de valor científico-cultural se tomará por mayoría de los votos presentes. En caso de empate, decidirá el presidente con su doble voto.
