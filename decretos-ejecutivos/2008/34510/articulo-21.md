@@ -4,13 +4,13 @@ a) El Director General de Salud.
 b) El Director de Asuntos Jurídicos.
 c) El Jefe de la Unidad de Asuntos Internacionales en Salud.
 d) El Director de la División Administrativa.
-e) El Director de Desarrollo Estratégico Institucional.
+e) El Director de Planificación y Desarrollo Institucional.
 f) El Director de Atención al Cliente.
-g) Dirección de Protección al Ambiente Humano
+g) Dirección de Protección al Ambiente Humano.
 h) Dirección de Regulación de Productos de Interés Sanitario.
 i) Dirección de Promoción de la Salud.
 j) Dirección de Vigilancia de la Salud.
 k) Dirección de Planificación Estratégica y Evaluación de las Acciones en Salud.
 l) Dirección de Garantía de Acceso a Servicios de Salud.
-m) Dirección de Desarrollo Científico y Tecnológico en Salud.”
-(Así reformado por el artículo 1° del decreto ejecutivo N° 38150 del 2 de diciembre del 2013)
+m) Dirección de Desarrollo Científico y Tecnológico en Salud.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38968 del 23 de febrero de 2015)

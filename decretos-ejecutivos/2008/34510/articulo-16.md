@@ -5,5 +5,6 @@ c) El Director General de Salud.
 d) El Director de Asuntos Jurídicos.
 e) El Jefe de la Unidad de Asuntos Internacionales en Salud.
 f) El Jefe de la Contraloría de Servicios.
-g) El Jefe de la Unidad de Gestión Integral de la Información.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 38150 del 2 de diciembre del 2013)
+g) El Director del Departamento de Tecnologías de Información y Comunicación.
+h) El Director de Panificación y Desarrollo Institucional.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38968 del 23 de febrero de 2015)

@@ -3,7 +3,7 @@ Del Ministro de Salud dependen los siguientes Consejos y unidades organizativas:
 a) Consejo Nacional de Salud.
 b) Consejo Sectorial de Salud.
 c) Consejo Ministerial.
-d) Istituto Costarricense de Investigación y Enseñanza en Salud y Nutrición (INCIENSA).
+d) Instituto Costarricense de Investigación y Enseñanza en Salud y Nutrición (INCIENSA).
 e) Instituto sobre Alcoholismo y Farmacodependencia (IAFA).
 f) La Dirección Nacional de Centros de Educación y Nutrición y de Centros Infantiles de Atención Integral (Dirección de CEN CINAI).
 g) Dirección General de Salud.
@@ -11,5 +11,7 @@ h) Dirección de Asuntos Jurídicos.
 i) Dirección General de Auditoría.
 j) Unidad de Asuntos Internacionales en Salud.
 k) Contraloría de Servicios.
-l) Unidad de Gestión Integral de la Información.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 38150 del 2 de diciembre del 2013)
+l) Departamento de Tecnologías de Información y Comunicación.
+m) Planificación y Desarrollo Institucional
+n) Secretaría Técnica de Salud Mental.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 38968 del 23 de febrero de 2015)
