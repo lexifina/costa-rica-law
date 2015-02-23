@@ -15,3 +15,4 @@ Reglamento sobre el Régimen de Puestos de Confianza para el Concejo Municipal d
 | --- | --- | --- |
 | 1 | 2006-08-10 | la propia norma |
 | 2 | 2015-01-13 | Reglamento municipal 246 (2015-01-13) |
+| 3 | 2015-02-23 | Reglamento municipal 122 (2015-02-23) |
