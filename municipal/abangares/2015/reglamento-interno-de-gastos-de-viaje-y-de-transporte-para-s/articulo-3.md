@@ -1,0 +1,1 @@
+Artículo 3º—Concepto. Por viático se entenderá aquella suma destinada a la atención de gastos de transporte, alimentación u hospedaje, que la Municipalidad de Abangares, reconoce a regidores, síndicos, propietarios y/o suplentes.
