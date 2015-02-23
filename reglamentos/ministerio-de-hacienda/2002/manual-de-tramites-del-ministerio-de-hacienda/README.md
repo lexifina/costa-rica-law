@@ -16,3 +16,4 @@ Manual de Trámites del Ministerio de Hacienda
 | 1 | 2002-07-03 | la propia norma |
 | 2 | 2012-08-29 | Resolución 18 (2012-08-29) |
 | 3 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
+| 4 | 2015-02-23 | Resolución 5 (2015-02-23) |
