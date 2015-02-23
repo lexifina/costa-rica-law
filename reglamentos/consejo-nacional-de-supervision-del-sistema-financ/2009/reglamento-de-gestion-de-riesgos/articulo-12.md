@@ -8,4 +8,4 @@ RRCR: Requerimiento de capital por riesgo crediticio
 RRM: Requerimiento de capital por riesgo de mercado
 RRO: Requerimiento de capital por riesgo operativo
 El cálculo del capital base y los requerimientos de capital para cobertura de riesgos debe efectuarse de conformidad con lo indicado en este Capítulo y deben cumplirse diariamente.
-Las sociedades administradoras de fondos de inversión deben duplicar el total de requerimientos de capital cuando contraten los servicios de custodia a una entidad categoría B.
+(Derogado el último párrafo original del presente artículo por el artículo 39 del Reglamento de Custodia del Consejo Nacional de Supervisión del Sistema Financiero, aprobado mediante sesión N° 1150-2015 del 23 de febrero del 2015)

@@ -19,3 +19,4 @@ Reglamento de Gestión de Riesgos
 | 4 | 2009-07-24 | Reglamento 794 (2009-07-24) |
 | 5 | 2010-11-12 | Reglamento 890 (2010-11-12) |
 | 6 | 2014-09-08 | Reglamento 1124 (2014-09-08) |
+| 7 | 2015-02-23 | Reglamento 1150 (2015-02-23) |
