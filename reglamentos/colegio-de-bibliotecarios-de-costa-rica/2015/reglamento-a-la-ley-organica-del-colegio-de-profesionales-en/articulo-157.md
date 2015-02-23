@@ -1,0 +1,1 @@
+Artículo 157.—Serán miembros del Fondo de Mutualidad y Subsidios, con los derechos, obligaciones y beneficios que otorgará este Reglamento, todos los miembros inscritos del Colegio de Profesionales en Bibliotecología de Costa Rica que se encuentren al día en el pago de sus obligaciones.

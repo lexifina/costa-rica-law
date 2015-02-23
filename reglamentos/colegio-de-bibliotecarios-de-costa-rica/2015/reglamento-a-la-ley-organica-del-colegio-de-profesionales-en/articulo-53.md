@@ -1,0 +1,1 @@
+Artículo 53.—Las actas se aprobarán en la sesión siguiente y constarán en el libro de actas respectivo, serán firmadas por la Presidencia y Secretaría. Además, por aquellos miembros que hubieren hecho constar su voto negativo.

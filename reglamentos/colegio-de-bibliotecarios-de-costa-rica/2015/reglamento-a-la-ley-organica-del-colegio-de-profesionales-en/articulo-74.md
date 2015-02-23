@@ -1,0 +1,1 @@
+Artículo 74.—Los Comités de Trabajo deberán rendir informes mensuales ante la Junta Directiva, en los que se dirán los avances logrados y las actividades realizadas. Una vez concluido el respectivo estudio, someterá por escrito a conocimiento de la Junta Directiva sus recomendaciones.

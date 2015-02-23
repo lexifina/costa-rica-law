@@ -1,0 +1,1 @@
+Artículo 87.—Para ser miembro del Tribunal, se requiere residir en el país, tener más de cinco años en el ejercicio profesional, así como contar con un expediente administrativo libre de sanciones ante el Colegio, no tener antecedentes judiciales, ni haber sido sentenciado como culpable por los Tribunales de Justicia.

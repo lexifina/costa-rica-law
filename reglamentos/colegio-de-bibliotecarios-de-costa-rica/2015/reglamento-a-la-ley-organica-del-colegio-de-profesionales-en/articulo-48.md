@@ -1,0 +1,1 @@
+Artículo 48.—La Junta Directiva se reunirá ordinariamente una vez al mes, extraordinariamente cuando sea convocada por la Presidencia, por iniciativa propia, o petición de tres de sus miembros. La convocatoria correspondiente será hecha con al menos 24 horas de anticipación, comunicando el día, lugar y motivo de la reunión.

@@ -1,0 +1,1 @@
+Artículo 136.—En Asamblea general ordinaria se llenarán las vacantes de los miembros del Tribunal que se retiren sin concluir su período por renuncia, muerte, incapacidad permanente, aplicación de una sanción reglamentaria o que haya sido removido por tres ausencias injustificadas consecutivas.

@@ -1,0 +1,1 @@
+Artículo 88.—El cargo de miembro del Tribunal de Honor es honorario y obligatorio. Los miembros serán nombrados por dos años pudiendo ser reelectos. El miembro que se negare, sin motivo legal a servir al cargo o que dificultare el conocimiento de un asunto, será separado de su cargo por Junta Directiva, la que deberá convocar a la Asamblea General para sustituirlo.

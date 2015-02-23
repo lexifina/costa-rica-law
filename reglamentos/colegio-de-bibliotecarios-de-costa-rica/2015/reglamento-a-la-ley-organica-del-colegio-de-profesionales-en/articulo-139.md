@@ -1,0 +1,1 @@
+Artículo 139.—El Tribunal Electoral será el responsable de elaborar la normativa para reglamentar las elecciones los procesos de elección del Colegio de conformidad con lo establecido en la Ley y el presente reglamento, así como su funcionamiento interno. Los proyectos de reglamentos serán presentados en Asamblea General para su aprobación.

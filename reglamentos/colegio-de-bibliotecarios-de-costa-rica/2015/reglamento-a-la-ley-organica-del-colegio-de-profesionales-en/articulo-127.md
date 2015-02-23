@@ -1,0 +1,1 @@
+Artículo 127.—Los profesionales miembros del Tribunal Electoral durarán en su cargo dos años y podrán ser reelectos por una sola vez. En su seno el Tribunal elegirá a la presidencia, secretaría, tesorería, una primer vocalía y segunda vocalía.

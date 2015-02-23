@@ -1,0 +1,1 @@
+Artículo 118.—Una vez en firme el acto final, si se hubiera impuesto la suspensión en el ejercicio profesional, la Presidencia del Tribunal lo comunicará al Servicio Civil, institución, empresa u organización al cual pertenezca el profesional, para su debido cumplimiento, asimismo este acuerdo será remitido al expediente del profesional.

@@ -1,0 +1,1 @@
+Artículo 72.—De conformidad con el inciso d) del artículo 6 de la Ley Orgánica, los miembros designados para un Comité de Trabajo, deberán tomar con responsabilidad la tarea encomendada por la Junta Directiva a partir de la fecha en que le sea comunicado por escrito el acuerdo de nombramiento.

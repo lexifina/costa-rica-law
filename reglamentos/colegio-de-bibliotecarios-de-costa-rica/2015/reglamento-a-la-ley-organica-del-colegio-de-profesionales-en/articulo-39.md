@@ -1,0 +1,1 @@
+Artículo 39.—La Junta Directiva es el órgano ejecutivo del Colegio, integrado por un miembro en cada puesto a saber, Presidencia, Vicepresidencia, Secretaría, Prosecretaría, Fiscalía, Tesorería, y tres Vocales.

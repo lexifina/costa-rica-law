@@ -1,0 +1,1 @@
+Artículo 31.—Son atribuciones de la Asamblea las contenidas en el artículo 11 de la Ley. La Asamblea solo podrá delegar las funciones establecidas en el artículo 11 inciso c) e inciso i) de la Ley, así como la elaboración del reglamento de asambleas y de debates, previo acuerdo tomado por mayoría simple de los profesionales presentes en Asamblea.

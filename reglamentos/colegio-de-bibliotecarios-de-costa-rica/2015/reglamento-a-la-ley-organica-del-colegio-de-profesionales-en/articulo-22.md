@@ -1,0 +1,1 @@
+Artículo 22.—Miembros ausentes: Los miembros del Colegio que se ausentaren del país serán considerados como miembros de la entidad, siempre que cubran las cuotas establecidas. Los miembros que no deseen acogerse a lo anterior deberán solicitar por escrito a la Junta Directiva su retiro temporal del Colegio, mientras dure su ausencia.

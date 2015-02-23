@@ -1,0 +1,1 @@
+Artículo 83.—Los miembros del Tribunal de Honor serán elegidos por votación directa de los Profesionales en Bibliotecología afiliados al Colegio, en la forma prevista en los Artículos 40 y 41 de la Ley en Sesión Ordinaria.

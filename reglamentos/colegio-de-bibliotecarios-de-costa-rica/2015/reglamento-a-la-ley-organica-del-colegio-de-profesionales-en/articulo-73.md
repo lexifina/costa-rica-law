@@ -1,0 +1,1 @@
+Artículo 73.—Para el cabal cumplimiento de sus fines, en cada Comité, la Junta Directiva nombrará un coordinador, quien será responsable de convocar a las reuniones del mismo y de informar lo que considere conveniente sobre la marcha del trabajo encomendado.

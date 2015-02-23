@@ -1,0 +1,1 @@
+Artículo 96.—Cualquiera de los miembros del Tribunal podrá solicitar la reconsideración de lo resuelto, en la misma sesión o en la siguiente. Para su aceptación se requerirá cuando menos tres votos favorables, en cuyo caso el asunto se discutirá nuevamente y se lo aprobará o negará por mayoría de votos, en la misma sesión o en la siguiente.

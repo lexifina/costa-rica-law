@@ -1,0 +1,1 @@
+Artículo 34.—Quien presida a la Asamblea deberá dirigir la discusión, señalar el orden en que han de ser tratados los asuntos y conceder la palabra a quien por derecho le corresponde y someter a votación los acuerdos.

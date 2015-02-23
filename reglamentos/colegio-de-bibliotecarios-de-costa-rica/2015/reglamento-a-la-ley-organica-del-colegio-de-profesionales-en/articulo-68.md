@@ -1,0 +1,1 @@
+Artículo 68.—El cargo del miembro del Comité Consultivo es honorario y gratuito. Será desempeñado indefinidamente y estará sujeto a supervisión de la Junta Directiva, la que podrá revocar o reelegir al o los miembros que estime pertinente.

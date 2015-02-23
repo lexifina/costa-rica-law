@@ -1,0 +1,1 @@
+Artículo 108.—Si la denuncia no reúne los requisitos determinados en el artículo anterior, la Presidencia del Tribunal mandará que se la amplíe o complete dentro del término de tres días, bajo prevención de que de no hacerlo se la rechazará y ordenará su archivo.

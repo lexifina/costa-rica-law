@@ -1,0 +1,1 @@
+Artículo 160.—Todo miembro del Fondo de Mutualidad y Subsidios podrá sustituir en cualquier momento al o los beneficiarios designados con anticipación, mediante una comunicación escrita debidamente firmada y dirigida a la Junta.

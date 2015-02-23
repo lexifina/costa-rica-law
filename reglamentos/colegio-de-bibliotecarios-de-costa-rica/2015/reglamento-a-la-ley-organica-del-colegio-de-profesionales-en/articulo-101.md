@@ -1,0 +1,1 @@
+Artículo 101.—Cuando los miembros del Tribunal inhibidos para actuar sean más de dos, la Junta Directiva deberá convocar a Asamblea General Extraordinaria, a fin de reponerlo. Los nuevos miembros actuarán exclusivamente para el caso concreto.

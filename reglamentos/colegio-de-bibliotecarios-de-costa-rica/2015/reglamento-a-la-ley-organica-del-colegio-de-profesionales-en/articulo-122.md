@@ -1,0 +1,1 @@
+Artículo 122.—La Presidencia del Tribunal, dentro de la mayor discreción podrá realizar los esfuerzos necesarios para resolver el conflicto de previo y por una conciliación entre las partes. O bien las partes pueden conciliar en etapas más avanzadas del procedimiento.

@@ -1,0 +1,1 @@
+Artículo 105.—Cuando se presentaren discrepancias entre dos o más miembros del Colegio, cualquiera de las partes en conflicto podrá gestionar la investigación de Tribunal de Honor presentando por escrito el motivo de las mismas ante la Secretaría General, la que de inmediato notificará a la Presidencia del Tribunal.

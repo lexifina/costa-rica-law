@@ -1,0 +1,2 @@
+Artículo 99.—Cuando el Tribunal conociere un asunto que interese directamente a uno de sus miembros, a su cónyuge o a un pariente hasta tercer grado de consanguinidad o afinidad, o a personas que tengan relación laboral entre sí, dicho miembro estará inhibido para actuar y deberá solicitar su separación temporal en el procedimiento respectivo.
+Si el miembro inhibido no cumple con esta obligación, la Junta Directiva será llamada a calificar el grado de parentesco con el fin de solicitarle su separación si ésta procediere.

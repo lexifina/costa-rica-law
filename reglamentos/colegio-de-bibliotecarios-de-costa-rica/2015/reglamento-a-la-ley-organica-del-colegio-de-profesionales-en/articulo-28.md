@@ -1,0 +1,1 @@
+Artículo 28.—Cuando un miembro del Colegio quedare suspendido en el ejercicio de la profesión o cuando fuere separado de la misma por cualquier motivo, la Secretaría comunicará el acuerdo de la separación sin especificar su causa al patrono o institución donde trabaja.

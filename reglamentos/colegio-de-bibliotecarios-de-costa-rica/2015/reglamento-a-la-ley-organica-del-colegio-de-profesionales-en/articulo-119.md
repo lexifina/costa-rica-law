@@ -1,0 +1,1 @@
+Artículo 119.—De conformidad con la Ley, el Tribunal de Honor llevará un registro reservado de sanciones impuestas a los profesionales en bibliotecología. No podrá publicarse el contenido de una resolución, ni siquiera a pretexto de informe de labores, mientras no se encuentre en firme. Esta prohibición es sin perjuicio de la responsabilidad civil y penal a la que hubiera lugar.

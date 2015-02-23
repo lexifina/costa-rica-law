@@ -1,0 +1,1 @@
+Artículo 89.—Los profesionales en Bibliotecología que resultaren elegidos como miembros del Tribunal de Honor, serán puestos en posesión de su cargo en un acto especial para el que serán convocados por la Presidencia del Colegio. En este mismo acto será extendido el nombramiento que acredite el cargo conferido.

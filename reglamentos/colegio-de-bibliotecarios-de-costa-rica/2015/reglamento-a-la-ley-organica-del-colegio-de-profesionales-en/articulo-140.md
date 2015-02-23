@@ -1,0 +1,1 @@
+Artículo 140.—Los miembros del Tribunal Electoral deberán inhibirse de participar en los procesos electorales en los cuales participe algún pariente suyo por consanguinidad o afinidad hasta el primer grado. Una vez concluido el periodo de elecciones continuara en el desempeño de su cargo.

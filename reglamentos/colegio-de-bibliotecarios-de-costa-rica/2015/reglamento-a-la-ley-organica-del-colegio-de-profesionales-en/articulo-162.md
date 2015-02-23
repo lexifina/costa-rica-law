@@ -1,0 +1,2 @@
+Artículo 162.—Una vez verificados los requisitos necesarios para el pago del subsidio, y cumplidas las previsiones legales señaladas en el presente reglamento, se procederá a realizar el pago, dentro de los plazos establecidos para este fin por parte de la institución aseguradora.
+En caso de no cumplirse con los requisitos legales exigidos, la Junta Directiva resolverá conforme a derecho y comunicara al interesado.

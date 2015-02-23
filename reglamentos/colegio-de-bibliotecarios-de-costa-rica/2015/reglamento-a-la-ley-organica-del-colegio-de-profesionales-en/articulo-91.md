@@ -1,0 +1,1 @@
+Artículo 91.—El Tribunal de Honor, nombrará en su seno en la primera sesión ordinaria, a la Presidencia quien dirigirá las reuniones y a la Secretaría, quien llevará un libro de actas donde consten todas las actuaciones y resoluciones de este órgano colegiado.

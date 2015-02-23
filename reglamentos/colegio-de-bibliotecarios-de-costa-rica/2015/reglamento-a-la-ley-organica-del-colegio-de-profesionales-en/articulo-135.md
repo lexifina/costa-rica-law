@@ -1,0 +1,2 @@
+Artículo 135.—En caso de que algún miembro del Tribunal muera, renuncie, se incapacite permanentemente, o se le aplique una sanción reglamentaria, será sustituido por el secretario o el tesorero según corresponda hasta la próxima Asamblea general ordinaria convocada para estos efectos.
+En caso de renuncia, se debe presentar a la Junta Directiva a efecto de que sea incluida en la Asamblea general ordinaria su trámite de aceptación y sustitución.

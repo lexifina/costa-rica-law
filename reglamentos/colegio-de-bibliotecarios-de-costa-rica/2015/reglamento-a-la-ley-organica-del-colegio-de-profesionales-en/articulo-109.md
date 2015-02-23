@@ -1,0 +1,1 @@
+Artículo 109.—Si la denuncia reúne los requisitos señalados, la Presidencia del Tribunal trasladará la denuncia interpuesta al profesional investigado, concediéndole el término de quince días para que la conteste y previniéndole de la obligación de señalar medio para atender notificaciones.

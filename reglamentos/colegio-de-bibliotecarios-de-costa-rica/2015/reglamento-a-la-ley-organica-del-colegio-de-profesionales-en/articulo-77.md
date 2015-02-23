@@ -1,0 +1,1 @@
+Artículo 77.—La persona en quien recaiga el nombramiento de Asistente Administrativo, no podrá ser pariente por consanguinidad o afinidad, hasta el tercer grado, de cualquiera de los miembros de la Junta Directiva a la que corresponda su nombramiento.
