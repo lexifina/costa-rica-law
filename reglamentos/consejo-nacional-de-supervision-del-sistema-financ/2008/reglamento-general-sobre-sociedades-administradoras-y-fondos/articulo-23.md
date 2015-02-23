@@ -22,7 +22,8 @@ xviii. Incorporación posterior de activos subyacentes que no implique la amplia
 (Así adicionado el acápite anterior en sesión N° 1124 del 8 de setiembre de 2014)
 b. Autorización previa por el Superintendente de la modificación del prospecto, según lo dispuesto en el artículo 25 de este Reglamento, si se presenta alguna situación indicada a continuación:
 i. Modificaciones del régimen de inversión, entendido como la naturaleza del fondo (abierto o cerrado), la política de inversión, el nivel en endeudamiento autorizado para el fondo, el aumento en las comisiones de administración, entrada o salida máximas establecidas en el prospecto, la disminución de la periodicidad de distribución de los rendimientos hacia los inversionistas y el aumento en el monto autorizado de fondos cerrados.
-ii. Cambio de la entidad de custodia C a una entidad de custodia B; y lo indicado en el artículo 7 y artículo 26 cuando aplique, de este Reglamento.
+ii. Cambio de la entidad de custodia y lo indicado en el artículo 7 y artículo 26 cuando aplique, de este Reglamento.
+(Así reformado el acápite ii) anterior mediante sesión N° 1150-2015 del 23 de febrero del 2015, "Reglamento de Custodia del Consejo Nacional de Supervisión del Sistema Financiero")
 iii. Alguna otra situación distinta a las indicadas en el inciso a. de este artículo.
 Las situaciones indicadas en los puntos i. y ii. del inciso b de este artículo brindan el derecho de receso a los inversionistas en desacuerdo presentes en la asamblea, así como aquellos ausentes que manifiesten su desacuerdo.
 (Así reformado en sesión N° 1047 del 18 de junio de 2013)
