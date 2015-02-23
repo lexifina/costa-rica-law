@@ -1,3 +1,0 @@
-Transitorio VII.__ Adhesión de la CEVAL al SAC para la gestión de fideicomisos de garantías.
-Hasta el 15 de noviembre del 2008, la Central de Valores de la Bolsa Nacional de Valores S. A., puede actuar como entidad adherida al Sistema de Anotación en Cuenta para la gestión correspondiente de los valores aportados en garantía en el Mercado Interbancario y en el Sistema de Pagos, así como para la custodia de los valores anotados en cuenta que formen parte del fideicomiso de garantías de operaciones de reporto tripartito y mercado de liquidez entre puestos.
-(Así reformado mediante sesión N° 734 del 08 de agosto del 2008)

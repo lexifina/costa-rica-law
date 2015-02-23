@@ -1,3 +1,0 @@
-Artículo 13.—Existencia de órdenes. Para la realización de cualquier tipo de movimiento en relación con los valores objeto de custodia o del efectivo asociado a estos valores, la entidad de custodia debe contar con las órdenes respectivas emitidas por el titular o el ordenante.
-El ordenante es la persona autorizada expresamente por el titular para girar instrucciones a la entidad de custodia.
-En el caso de valores en copropiedad, las instrucciones deben ser giradas por todos los cotitulares, excepto que se haya designado un ordenante. Las órdenes deben ser emitidas en los soportes físicos o electrónicos que autorice el Superintendente mediante acuerdo de alcance general.

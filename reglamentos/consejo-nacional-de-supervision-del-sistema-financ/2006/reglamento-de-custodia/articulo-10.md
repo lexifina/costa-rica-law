@@ -1,2 +1,0 @@
-Artículo 10.—Supervisión y fiscalización. Las entidades de custodia así como las entidades de depósito locales están sujetas a visitas de inspección por parte de funcionarios de la Superintendencia General de Valores.
-Tratándose de entidades de custodia sujetas a la supervisión de la Superintendencia General de Entidades Financieras, los Superintendentes pueden establecer mediante acuerdo los mecanismos que atiendan de manera eficiente las labores de supervisión y fiscalización.
