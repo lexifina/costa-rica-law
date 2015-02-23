@@ -14,3 +14,4 @@ Reforma Reglamento sobre el Régimen de Puestos de Confianza para el Concejo Mun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-17 | la propia norma |
+| 2 | 2015-02-23 | Reglamento municipal 122 (2015-02-23) |
