@@ -1,0 +1,2 @@
+Artículo 9º—El estacionamiento de vehículos de dos ruedas, motocicletas o bicimotos, será en las esquinas debidamente marcadas. En caso de que parquen en las calles de la ciudad ocupando uno de los espacios que fija este reglamento para el uso de las zonas de estacionamiento autorizadas deberán adquirir las boletas de estacionómetros que al efecto emita la municipalidad.
+A estas tarifas se les debe adicionar el impuesto general sobre las ventas, su reforma y aplicación gradual cada año.

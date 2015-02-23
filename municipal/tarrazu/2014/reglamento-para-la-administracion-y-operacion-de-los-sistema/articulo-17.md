@@ -1,0 +1,1 @@
+Artículo 17.—La sección de Estacionómetros, a través de los inspectores de Estacionómetros, tendrá a su cargo el ordenamiento, regulación y vigilancia para el cantón de Tarrazú, los que están obligados a velar por la aplicación de este reglamento y a reportar los vehículos que infrinjan la ley de estacionómetros y este reglamento.

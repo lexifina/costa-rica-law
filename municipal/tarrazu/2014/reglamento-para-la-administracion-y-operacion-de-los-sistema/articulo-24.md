@@ -1,0 +1,1 @@
+Artículo 24.—Estacionamiento de motocicletas, cuadraciclos y bicicletas: Las motocicletas, los cuadraciclos y bicicletas que se estacionen en el espacio dedicado al estacionamiento autorizado para vehículos, deberán pagar las tasas respectivas y quedan sujetas a las sanciones que prevé este reglamento en su artículo 16.

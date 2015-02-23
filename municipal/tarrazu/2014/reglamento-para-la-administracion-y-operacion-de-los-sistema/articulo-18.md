@@ -1,0 +1,2 @@
+Artículo 18.—La Sección de Estacionómetros custodiará para su respectiva cancelación, el parte o aviso de cada infracción cometida, por un plazo de 5 días hábiles, a fin de que el infractor pueda cancelar dentro del plazo indicado en las cajas recaudadoras autorizadas por la municipalidad, o en la forma o lugar que la Municipalidad designe.
+El monto de cada parte será de 10 veces el valor de la tarifa por hora, según Ley Nº 6852.

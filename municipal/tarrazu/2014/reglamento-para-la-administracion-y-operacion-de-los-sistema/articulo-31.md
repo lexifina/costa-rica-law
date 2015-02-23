@@ -1,0 +1,1 @@
+Artículo 31.—Si el inspector actúa con negligencia o abuso de autoridad se ordenará la apertura del expediente disciplinario con base en el Reglamento Autónomo de La Municipalidad en contra del funcionario cuya actuación motiva la queja.

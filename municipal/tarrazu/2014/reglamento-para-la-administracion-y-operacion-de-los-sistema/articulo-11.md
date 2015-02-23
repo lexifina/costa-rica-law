@@ -1,0 +1,3 @@
+Artículo 11.—La fijación del aparcamiento se hará por medio de boletas de estacionamiento emitidas por la Municipalidad ya sea durante media hora, una hora, dos horas, todas selladas por la Tesorería Municipal.
+Cada boleta se usará con pago adelantado y por el valor total del tiempo vendido o adjudicado.
+Quien utilice una boleta sin sellos municipales, o la emplee en forma indebida o contraviniendo lo establecido anteriormente se hará acreedor de la sanción que se establece en el artículo 16 del presente reglamento. La boleta que no porte los sellos municipales será nula y se procederá a realizar el parte correspondiente.
