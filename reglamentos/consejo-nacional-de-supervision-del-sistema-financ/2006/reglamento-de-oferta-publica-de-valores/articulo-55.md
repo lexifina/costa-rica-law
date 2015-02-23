@@ -1,3 +1,1 @@
-Artículo 55.—Comunicación de las operaciones a que se refiere el Artículo 54
-Las bolsas comunicarán diariamente a la SUPEN, por medio de la SUGEVAL, la información correspondiente a las operaciones que realicen las entidades supervisadas por la SUPEN bajo lo establecido en el artículo 23 del Reglamento de Bolsas de Valores, Acuerdo SUGEVAL-50-10. Asimismo comunicarán la información relacionada con las investigaciones que se abran en relación con operaciones que involucren a esas entidades supervisadas.
-(Así reformado por el anexo 4 del "Reglamento de Bolsas de Valores," aprobado mediante sesión N° 890-2010 del 12 de noviembre de 2010)
+Artículo 55.—Comunicación de las operaciones a que se refiere el Artículo 54. (Derogado por el artículo 39 del Reglamento de Custodia del Consejo Nacional de Supervisión del Sistema Financiero, aprobado mediante sesión N° 1150-2015 del 23 de febrero del 2015)
