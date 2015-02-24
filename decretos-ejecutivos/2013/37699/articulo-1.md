@@ -34,5 +34,4 @@ XIII— Que el Tribunal Contencioso Administrativo y Civil de Hacienda, Sección
 DECRETAN:
 ELIMINACIÓN DEL ESQUEMA DE FIJACIÓN DE PRECIOS Y
 TRANSICIÓN HACIA UN MECANISMO ALTERNATIVO
-Artículo 1º— Se establece de conformidad con los Considerandos VIII y IX del presente Decreto, un precio de ¢22.604,41 por saco de granza seca y limpia de 73.6 kilogramos con 13% de humedad y 1.5% de impurezas, el cual quedará sin efecto a partir del 1° de marzo de 2015, fecha en que ha finalizado la totalidad de la cosecha del 2014 e inicio de la primera cosecha del año 2015”.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 38143 del 16 de enero del 2014)
+Artículo 1º— (Derogado por el artículo 11 del decreto ejecutivo N° 38884 del 24 de febrero de 2015, "Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas las calidades de arroz pilado que se comercilazan en el territorio nacional")

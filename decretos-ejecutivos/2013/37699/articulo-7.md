@@ -1,2 +1,2 @@
-Artículo 7º — El esquema transitorio de regulación de precios descrito en este Decreto, que fija toda la cadena de comercialización, así como el precio de compra de arroz en granza por parte del industrial al productor, empezará a regir tres días después de su publicación en el Diario Oficial La Gaceta.
+Artículo 7º —(Derogado por el artículo 11 del decreto ejecutivo N° 38884 del 24 de febrero de 2015, "Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas las calidades de arroz pilado que se comercilazan en el territorio nacional")
 Dado en la Presidencia de la República, a los quince días del mes de mayo del año dos mil trece.

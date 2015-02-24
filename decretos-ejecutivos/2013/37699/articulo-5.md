@@ -1,2 +1,1 @@
-Artículo 5º—Todo esquema de regulación de precios del arroz será eliminado a partir del 1° de marzo de 2015, de conformidad con las potestades que la Ley 7472 le brinda al Ministerio de Economía, Industria y Comercio
-(Así reformado por el artículo 1° del decreto ejecutivo N° 38143 del 16 de enero del 2014)
+Artículo 5º—(Derogado por el artículo 11 del decreto ejecutivo N° 38884 del 24 de febrero de 2015, "Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas las calidades de arroz pilado que se comercilazan en el territorio nacional")
