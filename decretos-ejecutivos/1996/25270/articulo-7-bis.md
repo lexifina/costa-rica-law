@@ -23,4 +23,18 @@ t. Solicitar, recopilar, dar seguimiento y difusión a los informes que deben pr
 u. Identificar y coordinar con el ente administrativo correspondiente las necesidades y actividades de capacitación de organismos internacionales para los funcionarios del Servicio.
 v. Realizar todas aquellas labores especiales que le delegue el Director General.
 Para la atención de sus funciones el Área de Relaciones y Asuntos Externos contará con un Jefe, que dependerá directamente del Director General.
+w. Evaluar las solicitudes de certificación PROFAC presentadas por los interesados, verificar el cumplimiento de los requisitos, emitir el informe con las respectivas recomendaciones para la Dirección General de Aduanas y preparar los proyectos de resolución correspondientes.
+(Así adicionado el inciso anterior por el artículo 22 del Reglamento del Programa de Facilitación Aduanera para el Comercio confiable en Costa Rica, aprobado mediante decreto ejecutivo N° 38998 del 24 de febrero de 2015)
+x. Ejecutar las acciones pertinentes para que la Dirección General de Aduanas inhabilite o revoque la certificación PROFAC a las empresas OEA involucradas en algunas de las causas establecidas en la normativa nacional.
+(Así adicionado el inciso anterior por el artículo 22 del Reglamento del Programa de Facilitación Aduanera para el Comercio confiable en Costa Rica, aprobado mediante decreto ejecutivo N° 38998 del 24 de febrero de 2015)
+y. Ejecutar acciones de seguimiento para verificar el cumplimiento de los requisitos y obligaciones por parte de las empresas PROFAC.
+(Así adicionado el inciso anterior por el artículo 22 del Reglamento del Programa de Facilitación Aduanera para el Comercio confiable en Costa Rica, aprobado mediante decreto ejecutivo N° 38998 del 24 de febrero de 2015)
+z. Dar seguimiento al cumplimiento de los beneficios por parte de la Autoridad Aduanera.
+(Así adicionado el inciso anterior por el artículo 22 del Reglamento del Programa de Facilitación Aduanera para el Comercio confiable en Costa Rica, aprobado mediante decreto ejecutivo N° 38998 del 24 de febrero de 2015)
+aa. Elaborar propuestas de mejora de la normativa emitida para el programa PROFAC.
+(Así adicionado el inciso anterior por el artículo 22 del Reglamento del Programa de Facilitación Aduanera para el Comercio confiable en Costa Rica, aprobado mediante decreto ejecutivo N° 38998 del 24 de febrero de 2015)
+bb. Proponer y participar en la negociación de la suscripción de Acuerdos de Reconocimiento Mutuo con Programas de Operador Económico Autorizado de otras Administraciones Aduaneras, así como alianzas estratégicas y convenios.
+(Así adicionado el inciso anterior por el artículo 22 del Reglamento del Programa de Facilitación Aduanera para el Comercio confiable en Costa Rica, aprobado mediante decreto ejecutivo N° 38998 del 24 de febrero de 2015)
+cc. Participar en la negociación de incorporaciones al programa PROFAC de otras instituciones estatales que ejercen control en frontera.
+(Así adicionado el inciso anterior por el artículo 22 del Reglamento del Programa de Facilitación Aduanera para el Comercio confiable en Costa Rica, aprobado mediante decreto ejecutivo N° 38998 del 24 de febrero de 2015)
 (Así adicionado por el artículo 1° del Decreto Ejecutivo N° 34475 de 4 de abril de 2008).

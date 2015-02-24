@@ -41,3 +41,4 @@ Reglamento a la Ley General de Aduanas
 | 26 | 2009-11-02 | Decreto Ejecutivo 35693 (2009-11-02) |
 | 27 | 2013-06-06 | Decreto Ejecutivo 37859 (2013-06-06) |
 | 28 | 2014-03-11 | Decreto Ejecutivo 38266 (2014-03-11) |
+| 29 | 2015-02-24 | Decreto Ejecutivo 38998 (2015-02-24) |
