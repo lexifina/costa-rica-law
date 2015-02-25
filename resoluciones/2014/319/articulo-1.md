@@ -102,7 +102,8 @@ vii. El número telefónico se encuentre asociado con un contrato con terminal s
 [imagen]
 a. Usuario solicita envío del NIP de portación: Como requisito obligatorio para realizar una solicitud de portabilidad numérica, el usuario deberá indicar en la solicitud de portación realizada ante al operador receptor un Número de Identificación Personal (NIP) de Portación que estará vinculado con el número telefónico a ser portado y el cual se constituirá en un requisito indispensable para autenticar la condición del usuario solicitante. Dicho NIP deberá ser solicitado por el usuario y entregado por parte del Sistema Integral de Portabilidad Numérica (SIPN) -desarrollado por Informática El Corte Inglés (IECISA)- mediante un mensaje de texto (SMS) y de manera alternativa de forma audible y gratuita a dicho usuario a través de un sistema automático del tipo IVR (Interactive Voice Response) únicamente a través del número telefónico 1599 y con cobro revertido al operador receptor. Asimismo, dicho NIP tendrá una vigencia de 12 horas.
 b. Solicitud por parte del usuario: El proceso inicia cuando el cliente presenta la documentación requerida establecida en el Por Tanto VII de la presente resolución al operador receptor, el cual tendrá la obligación de verificarla y validarla antes de iniciar un proceso de portación.
-c. Red receptora envía solicitud hacia la red donante: Una vez que el usuario haya recibido el NIP en su equipo y lo haya entregado al operador receptor al solicitar la portabilidad numérica, éste último generará una solicitud de portación que entregará a la red donante a través de una interfaz con el SI.
+c. Red receptora envía solicitud hacia la red donante: Una vez que el usuario haya recibido el NIP en su equipo y lo haya entregado al operador receptor al solicitar la portabilidad numérica, este último generará una solicitud de portación que entregará a la red donante a través de una interfaz con el SIPN.
+(Así reformado el sub inciso anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 d. Aprobación/rechazo por parte de la red donante: Una vez recibida la solicitud de la red receptora, el SIPN informará a la red donante que uno de sus usuarios ha solicitado ser portado por lo que se requiere su aprobación. El operador donante tendrá un tiempo máximo de 24 horas, para decidir si aprueba o rechaza la solicitud de portabilidad con base en las causas de rechazo establecidas en la presente resolución. Una vez transcurrido este período, si la red donante no ha rechazado la solicitud con argumentos válidos, se asume como aceptada, evitando con esto posibles retrasos en el proceso.
 e. Programación de la portación: Una vez que la red donante haya aprobado la solicitud se considera que la portación está lista para realizarse, por lo que el SIPN deberá notificar a la red receptora que puede programar la portabilidad, para lo cual contará con un plazo máximo de 48 horas.
 f. El operador receptor realizará la programación de la portabilidad dependiendo de la disponibilidad en sus sistemas o en las ventanas de portación.
@@ -110,13 +111,14 @@ g. A partir del 30 de noviembre del 2015, se analizará la reducción del plazo 
 h. En todo caso el tiempo máximo para la programación de la portación por parte de la red receptora podrá ser reducido mediante acuerdo unánime del CTPN y su posterior ratificación por parte del Consejo de la SUTEL.
 i. Portación: La portación debe garantizar que al usuario no se le interrumpa el servicio, por lo tanto el tiempo máximo de la ventana de cambio no debe superar 1 hora, y a su vez se debe asegurar no interrumpir la continuidad del servicio recibido por el usuario durante más de 30 minutos. En ese mismo sentido, la misma deberá realizarse de las 03:00 a las 04:00 horas.
 j. Difusión: Todos los días, el SIPN debe generar un único archivo con la información de los números a portarse de telefonía móvil. A partir de que se reciban todos los mensajes de portación activa de cada uno de los operadores de previo a que se efectúe la ventana de cambio, y dicho archivo deberá ser difundido a todos los operadores y proveedores. Estos están en la obligación actualizar de forma inmediata sus respectivas bases de datos y así podrán enrutar las llamadas y los mensajes a los nuevos operadores. Es importante aclarar, que el proceso de portación (donde se efectúa la activación) y el proceso de difusión son simultáneos. El SIPN recibe un mensaje de “desactivación” por parte de la red donante para finalizar la activación en la red receptora. Al mismo tiempo la información es actualizada en la base de datos y se difunde a los operadores.
-11. La solicitud de portación que genera la red receptora hacia la red donante a través de la ERPN deberá contener al menos la siguiente información:
-i. Fecha y hora de la solicitud.
+11. La solicitud de potación que genera la red receptora hacia la red donante a través de la ERPN deberá contener al menos la siguiente información:
+i. Fecha y hora de la solicitud
 ii. Número a ser portado.
 iii. Red donante.
 iv. Red receptora.
-v. Tipo de cliente.
+v. Nombre del cliente, tipo de documento de identidad y número de identificación.
 vi. NIP de confirmación.
+(Así reformado el inciso 11) anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 12. Que las siguientes formas de bloqueo del proceso de portación por parte de la red donante, no aplazará o cancelará el proceso de trámite de portabilidad numérica:
 i. Rechazos injustificados: La entidad de referencia de portabilidad numérica estará encargada de validar que la razón de rechazo aducida por la red donante es válida en concordancia con las razones señaladas en la presente resolución.
 ii. Rechazos múltiples: La red donante rechaza una portación por diferentes razones cada vez que la misma es solicitada.
@@ -200,22 +202,27 @@ Asimismo se establece que el tiempo de respuesta del operador donante (de 10 min
 Los parámetros de entrada de las consultas de prevalidación y el contenido de la respuesta que deberá enviar el operador o proveedor donante tanto hacia la ERPN como hacia el operador o proveedor receptor serán las indicadas a continuación:
 En todo caso, el estudio de prevalidación comprende un análisis integral por cada solicitud, de las diferentes causas de rechazo. De seguido se detallan los parámetros de entrada y salida de dichas consultas:
 Parámetros de entrada:
-a. Nombre
-b. Cédula
+a. Nombre del cliente
+b. Tipo de documento de identidad y número de identificación
 c. NIP
 d. Número telefónico
 e. Operador donante
+(Así reformado el aparte "parámetos de entrada", anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 Parámetros de salida:
 Proceso Automático:
 i. Se analizará si el número telefónico que desea ser portado pertenece al mismo operador receptor (Se espera una respuesta de tipo SI/NO).
 ii. Se analizará si el número telefónico no corresponde a ningún abonado. En el caso de que la solicitud haya iniciado y por lo tanto se ha recibido el NIP en el número (línea) del solicitante, ésta razón de rechazo no será válida. (Se espera una respuesta de tipo SI/NO).
 iii. Se verificará si se solicitó la portación del MSISDN mediante otra solicitud aun no cumplida (Se espera una respuesta de tipo SI/NO).
 iv. Se evaluará si el MSISDN no está activo en la red donante porque ya ha sido portado a otra red. (Se espera una respuesta de tipo SI/NO).
+v.Se evaluará el número de portación efectuadas por el usuario en el plazo de un año calendario (enero a diciembre) con el fin de evitar que se realicen más de cinco portaciones anuales.
+(Así reformado el aparte "parámetros de salida" anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 Proceso Manual:
 i. Se analizará si existe una coincidencia total entre el nombre o razón social del solicitante proporcionado por el cliente y el nombre o razón social del solicitante indicado en la cédula de identidad, el pasaporte, cédulas de residencia, o certificación de personería jurídica. Entiéndase coincidencia total, para el caso de personas físicas, como el hecho de que tanto el(los) nombre(s) como el(los) apellido(s) sean iguales a los presentados en el documento de identificación aportado. Para que exista una coincidencia total, en el caso de personas jurídicas; la razón social debe ser igual a la establecida en la certificación de personería jurídica. Lo anterior con la excepción de que esta no coincidencia total se deba a la existencia de errores de tipo ortográficos, tipográficos o de digitación, supuestos en los cuales prevalecerá la equivalencia demostrada en el número de identificación indicado en la cédula de identidad, pasaporte o certificación de persona jurídica. (Se espera una respuesta del tipo SI y en los casos negativos se indicará el nombre registrado por el operador o proveedor donante).
 En todo caso, se aplicará el siguiente orden de validación:
 Primero se evaluará la coincidencia en el número de cédula, seguidamente el primero y segundo apellido; y finalmente el primer nombre.
 ii. Se analiza si el número telefónico se encuentra suspendido por falta de pago o en liquidación contable (Se espera una respuesta de tipo SI/NO).
+iii. Se analizará si el número telefónico se encuentra asociado a un plan con terminal subsidiado (Se espera una respeusta de tipo SI/NO)
+(Así reformado el aparte "proceso manual" anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 ▪ Cancelación de la portación.
 Es el proceso mediante el cual se cancela una solicitud de portación que haya sido aceptada por el operador o proveedor donante y que aún esté pendiente de activación.
 La funcionalidad de cancelación de un proceso de portación está restringida al uso exclusivo de SUTEL. Por lo tanto, el SIPN deberá asegurar que sus sistemas permitan la funcionalidad de cancelación de una solicitud de portación y que el acceso a dicha función esté limitado exclusivamente a la SUTEL cuando sea necesario por razones de interés público.
@@ -260,19 +267,30 @@ Opción 2: Encaminamiento de tráfico local originado en servicios de telefonía
 42. Los OPS deberán firmar contratos de confidencialidad con la SUTEL de manera que se garantice la confidencialidad y propiedad de la información de la base de datos de números portados. De esta manera la ERPN seleccionada deberá conceder el acceso a la base de datos de números portados únicamente a las partes autorizadas por la SUTEL. Únicamente la SUTEL podrá conceder o retirar las autorizaciones de acceso. De esta forma, la información de la base de datos de números portados no deberá ser utilizada, vendida, prestada, alquilada, transferida ni cedida a partes no autorizadas.
 I. Otras consideraciones sobre los procesos de portabilidad numérica.
 43. La ERPN deberá generar una advertencia cuando se detecta que un mismo usuario (sea persona física o jurídica) supera una cantidad de cinco (5) portaciones en un periodo de un mes. Dicha alerta debe ser remitida vía correo electrónico tanto al operador receptor como al donante.
-44. En caso de conflicto en los trámites de portabilidad numérica los operadores y proveedores deberán utilizar el procedimiento para la atención de problemas técnicos (Grupo de Apoyo Técnico, GAT) y administrativos (Grupo de Apoyo Administrativo, GAA) en procesos de portabilidad numérica, de acuerdo con lo dispuesto por la SUTEL por medio de la RCS-344-2013.
+44. En caso de conflicto en los trámites de portabilidad numérica los operadores y proveedores deberán utilizar el procedimiento para la atención de problemas técnicos (Grupo de Apoyo Técnico, GAT) y administrativos (Grupo de Apoyo Administrativo, GAA) en procesos de portabilidad numérica, de acuerdo con lo dispuesto por la SUTEL por medio de la RCS- 334-2013.
+(Así reformado el inciso anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 45. Para los casos de trámites de portabilidad numérica, el operador o proveedor donante se encuentra obligado a mantener el servicio con el usuario, hasta el momento de la ventana de cambio. El pago de la deuda por permanencia mínima no implica necesariamente la recisión del contrato y la interrupción del servicio, de manera que los usuarios que cancelan su deuda asociada con el subsidio del terminal puedan mantenerse utilizando el servicio suscrito, para poder ejercer su derecho a la portabilidad numérica.
 46. Los operadores y proveedores miembros del CTPN deberán tomar las acciones necesarias para que cada operador bloquee las recargas dirigidas hacia números que han sido portados hacia otros operadores (port out´s).
-47. Siempre que se eleve al GAA o al GAT algún problema que restrinja la posibilidad de un usuario a ejercer su derecho a la portabilidad numérica, el operador que ocasiona la posible afectación debe presentar un reporte con los pormenores de la situación presentada.
+47. Siempre que se eleve al GAA o al GAT algún problema que restringa la posibilidad de un usuario a ejercer su derecho a la portabilidad numérica, el operador que ocasiona la posible afectación debe presentar un reporte con los pormenores de la situación presentada. Para estos efectos, el horario de funcionamiento del GAA y el GAT será desde las 8:00 horas hasta las 16:00 horas de lunes a viernes, con excepción de días feriados e inhábiles.
+(Así reformado el inciso anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 48. Se permitirá, de manera excepcional, que los clientes empresariales puedan definir la fecha en que requieren realizar la portación, considerando un plazo no mayor a 5 días hábiles después de realizada la solicitud de portación.
 49. El mensaje de notificación de cancelación de una portación debe enviarse tanto al operador o proveedor donante como al operador o proveedor receptor.
 50. Con la finalidad de solucionar la generación de bucles asociados a posibles problemas de interoperabilidad durante el proceso de portabilidad numérica, el operador o proveedor que detecte dicho inconveniente debe, a la mayor brevedad, utilizar una grabación corta estandarizada puesta a disposición por la SUTEL, para luego proceder a finalizar la llamada. El primer operador que detecte la condición de bucle utilizará la locución indicada.
 51. Definir la siguiente lista de atributos mínimos a incluir en las solicitudes dentro de los Grupos de Apoyo de los Operadores:
-[imagen]
+Grupo de Apoyo | Tipología | Número Telefónico | Fecha y hora | ID Proceso | Pantalla con mensaje de rechazo | Datos de la Identificación
+GAA | Rechazo por suspensión temporal o liquidación contable del servicio telefónico | X | X | X | X | N/A
+Rechazo por la existencia de un contrato vigente con terminal subsidiado | X | X | X | X | N/A
+Rechazo por Titularidad | X | X | X | opcional | X
+GAT | Problema en recepción de NIP | X | X | X | N/A | N/A
+Problema entre ERPN y el Sistema de Portabilidad del Operador | X | X | X | X (Pantalla de Portaflow) | N/A
+Otros | X | X | opcional | N/A | N/A
+(Así reformado la tabla anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 52. Con el fin de cumplir con lo establecido en la Ley N° 8968, Ley de Protección de la Persona Frente al Tratamiento de sus datos personas, todos los datos (números de teléfono, nombres, identificadores, y demás información) deberán ser cifrados con normas equivalentes o superiores a AES, utilizando un nivel de encriptación igual o superior a 256 bits. La ERPN debe garantizar que el cifrado de datos se utilice tanto en el contenido de las comunicaciones como en el almacenamiento de la base de datos.
 53. Con el fin de apoyar al Instituto Costarricense sobre Drogas (ICD) en el ejercicio de sus competencias y potestades legales, se le autoriza a este Instituto el acceso a la base de datos de números portados.
-54. Con el fin de facilitar la realización de los rastreos e intervenciones telefónicas, se le autoriza al Organismo de Investigación Judicial el acceso a la base de datos de números portados.
-55. No se podrá otorgar (sea con o sin costo asociado) el acceso a la Base de Datos de Números Portados a terceros distintos a los operadores y proveedores con título habilitante de telefonía en Costa Rica.
+54. Con el fin de facilitar la realización de los rastreos e intervenciones telefónicas, su autoriza a las autoridades públicas competentes en materia de intervención y rastreo de comunicaciones, el acceso a la base de datos de números portados.
+(Así reformado el inciso anterior mediante resolución RCS-033 del 25 de febrero de 2015)
+55. La Sutel valorará aquellas solicitudes realizadas por terceros distintos a los operadores y proveedores de servicios de telecomunicaciones con título habilitante de telefonía en Costa Rica, que requieran el acceso a la base de datos de los números portados.
+(Así reformado el inciso anterior mediante resolución RCS-033 del 25 de febrero de 2015)
 56. Revocar las resoluciones RCS-090-2011, RCS-274-2011, RCS-140-2012, RCS-303-2012, RCS-208-2013, RCS-265-2013, RCS-178-2013, RCS-266-2013, RCS-293-2013; con el fin de ajustar y actualizar los procedimientos de implementación y de operación del SIPN en portabilidad numérica móvil a la realidad de la portabilidad numérica del país en relación con el comportamiento que han tenido los usuarios, así como evitar que las normativas dictadas por el Consejo de la SUTEL contengan normas que resulten repetitivas o contradictorias.
 Notifíquese y publíquese.
 La anterior transcripción se realiza a efectos de comunicar el acuerdo citado adoptado por el Consejo de la Superintendencia de Telecomunicaciones.

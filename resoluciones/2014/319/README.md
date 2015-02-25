@@ -14,3 +14,4 @@ Disposiciones regulatorias unificadas para el ejercicio del derecho de los usuar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-21 | la propia norma |
+| 2 | 2015-02-25 | Resolución 33 (2015-02-25) |
