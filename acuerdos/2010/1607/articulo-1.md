@@ -1,4 +1,6 @@
+(Revocada)
 DEFENSORÍA DE LOS HABITANTES DE LA REPÚBLICA
+(Mediante acuerdo N° 00001898 del 25 de febrero de 2015, se acordó revocar la presente norma, y reafirmar la vigencia del órgano "Consejo Asesor Externo", definido en el acuerdo N° 6-DH del 27 de mayo de 1993, a fin de que el mismo sea integrado por el o la Jerarca institucional en ejercicio de sus funciones en el momento en que así lo estime procedente.)
 Nº 1607
 LA DEFENSORA DE LOS HABITANTES DE LA REPÚBLICA
 Con fundamento en el artículo 1, 2 y 11 de la Ley de la Defensoría de los Habitantes de la República, Ley N° 7319 publicada en La Gaceta N° 237 del 10 de diciembre de 1992; los artículos 3, 8, 9 inciso a), 10, 21, 22, 43 del Reglamento a dicha Ley, Decreto Ejecutivo N° 22266-J del 16 de julio de 1993; Acuerdo N° 1606-DH del 22 de noviembre de 2010.

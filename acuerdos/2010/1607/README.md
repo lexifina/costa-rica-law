@@ -14,3 +14,4 @@ Nombra miembros del Consejo Asesor Externo de la Defensoría de los Habitantes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-13 | la propia norma |
+| 2 | 2015-02-25 | Acuerdo 1898 (2015-02-25) |
