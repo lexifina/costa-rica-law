@@ -1,0 +1,1 @@
+Artículo 7º—Sanciones por incumplimiento. El incumplimiento u omisión de lo dispuesto en el presente reglamento por parte de los funcionarios del ICT, dará lugar a las responsabilidades y sanciones de la Ley de Contratación Administrativa y su Reglamento.

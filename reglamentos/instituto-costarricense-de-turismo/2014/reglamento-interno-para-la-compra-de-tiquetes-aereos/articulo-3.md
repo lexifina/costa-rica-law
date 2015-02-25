@@ -1,0 +1,1 @@
+Artículo 3º—Presupuesto. El ICT hará las previsiones presupuestarias respectivas dentro de los recursos que anualmente le sean asignados, para cubrir los gastos por compra de tiquetes aéreos. El Macroproceso contará con una partida presupuestaria para la compra de estos tiquetes.
