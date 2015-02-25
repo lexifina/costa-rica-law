@@ -1,6 +1,5 @@
-(Revocada)
 N° 6-DH
-(Nota de Sinalevi: Mediante el artículo primero del acuerdo N° 1606 del 22 d enoviembre de 2010, se acordó revocar la presente norma, en lo que concierne específicamente a las personas que conforman el Consejo Asesor Externo. Asimismo su punto segundo, indica mantener la vigencia del órgano “Consejo Asesor Externo”, a fin de que el mismo sea integrado por el o la Jerarca institucional en ejercicio de sus funciones en el momento en que así lo estime procedente.)
+(Nota de Sinalevi: Mediante acuerdo N° 00001898 del 25 de febrero de 2015, se acordó reafirmar la vigencia del órgano “Consejo Asesor Externo” definido en este acuerdo, a fin de que el mismo sea integrado por el o la Jerarca institucional en ejercicio de sus funciones en el momento en que así lo estime procedente.)
 EL DEFENSOR DE LOS HABITANTES DE LA REPUBLICA
 Con fundamento en el artículo 11 de la Ley N° 7319 del Defensor de los Habitantes de la República del 17 de noviembre de 1992, y;
 Considerando:

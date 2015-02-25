@@ -15,3 +15,4 @@ Establece Consejo Asesor de la institución encargado de asesorar al Defensor de
 | --- | --- | --- |
 | 1 | 1993-08-25 | la propia norma |
 | 2 | 2010-11-22 | Acuerdo 1606 (2010-11-22) |
+| 3 | 2015-02-25 | Acuerdo 1898 (2015-02-25) |
