@@ -14,3 +14,4 @@ Revoca acuerdo 6-DH "Establece Consejo Asesor de la institución encargado de as
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-13 | la propia norma |
+| 2 | 2015-02-25 | Acuerdo 1898 (2015-02-25) |
