@@ -1,1 +1,0 @@
-Artículo 21.—Del vencimiento del pago. El servicio de agua potable será cobrado por trimestre vencido y en un solo pago a partir de la fecha en que se ponga al cobro. Por atraso en el pago se cobrará una multa del 2 % por mes o fracción de mes, hasta un acumulativo del 50 % del total de la deuda, de conformidad con el Código Municipal.

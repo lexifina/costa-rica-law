@@ -1,1 +1,0 @@
-Artículo 41.—Del desperfecto del hidrómetro. En casos en que por cualquier circunstancia el hidrómetro sufra desperfectos que impidan el registro de los consumos de agua, al abonado se le cobrará de acuerdo con el promedio de los consumos normales de los últimos cuatro meses, asumiendo la Municipalidad en su totalidad el exceso producido.

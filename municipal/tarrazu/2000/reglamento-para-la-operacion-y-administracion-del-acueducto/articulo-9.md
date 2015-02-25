@@ -1,1 +1,0 @@
-Artículo 9º—De la renuncia al servicio. Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud por escrito ante la Municipalidad de Tarrazú, la cual le facilitará el formulario respectivo; si la misma procede se ejecutará previo pago del costo por desconexión y cualquier saldo existente en la cuenta de la propiedad en mención.

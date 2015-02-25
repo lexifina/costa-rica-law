@@ -1,2 +1,0 @@
-Artículo 14.—De los costos de conexión y reconexión del servicio de agua potable. Toda vez que a un abonado haya que realizarle una conexión o una reconexión del servicio de agua potable, éste deberá cancelar de previo a la instalación el costo de todos los materiales y la Mano de Obra que deban utilizarse en los trabajos.
-Los trabajos de conexión y/o reconexión no se realizarán hasta tanto el interesado haya cancelado el recibo respectivo.

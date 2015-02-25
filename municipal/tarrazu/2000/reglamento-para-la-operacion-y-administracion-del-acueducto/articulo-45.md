@@ -1,2 +1,0 @@
-Artículo 43.—Motivo adicional de denuncia ante el Ministerio Público. Como acción adicional a las enumeradas en el artículo 35. De este Reglamento, se establece la siguiente circunstancia como causa justificada para denuncia ante el Ministerio Público:
-a) Cuando el abonado haga algún tipo de conexión para evitar el registro en el hidrómetro correspondiente o altere de alguna forma su normal funcionamiento.
