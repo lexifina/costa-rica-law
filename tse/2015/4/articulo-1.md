@@ -1,0 +1,9 @@
+Nº 4-2015
+Con fundamento en los artículos 102 inciso 10) de la Constitución Política y 12 inciso a) del Código Electoral; Decreta
+La siguiente
+REFORMA DE LOS ARTÍCULOS 16, 18 Y 19 DEL REGLAMENTO PARA INSCRIPCIÓN DE CANDIDATURAS Y SORTEO DE LA POSICIÓN DE LOS PARTIDOS POLÍTICOS EN LAS PAPELETAS, DECRETO Nº 09-2010, PUBLICADO EN LA GACETA Nº 136 DEL 14 DE JULIO DE 2010
+Artículo 1º—Refórmanse los artículos 16, 18 y 19 del “Reglamento para la Inscripción de candidaturas y sorteo de la posición de los partidos políticos en las papeletas”, para que se lean:
+“Artículo 16.—Plazo para el cumplimiento de las prevenciones.- A criterio de la Dirección y según sea la naturaleza del defecto o la omisión, se concederá a los partidos políticos un plazo improrrogable de entre tres y ocho días hábiles, contados a partir del día hábil siguiente a aquel que se tenga por hecha la notificación, para dar cumplimiento a lo prevenido.
+Sin embargo, cuando se trate de falencias que, para su subsanación se requiera celebrar una asamblea partidaria, el plazo para cumplir con lo prevenido será de ocho días hábiles.
+Artículo 18.—Notificación de las resoluciones o autos dictados por la Dirección General del Registro Electoral y Financiamiento de Partidos Políticos. Las resoluciones que dicte la Dirección en materia de inscripción de candidaturas, serán notificadas mediante el procedimiento establecido en el Decreto número 06-2009 del 5 de junio de 2009 “Reglamento de Notificaciones a partidos políticos por correo electrónico, publicado en La Gaceta N° 117 de 18 de junio de 2009” y, cuando ordenen la inscripción, serán además inmediatamente publicadas en el sitio web del Tribunal.
+Artículo 19.—Momento de la notificación. Las resoluciones se tendrán por notificadas al día hábil siguiente de su envío, al menos a una de las dos direcciones de correo electrónico establecidas por cada agrupación política, según se dispone en el artículo 5 del citado Decreto Nº 06-2009.”.
