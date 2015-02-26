@@ -1,0 +1,1 @@
+Artículo 25.—Inspección y control. Del total recaudado anualmente en virtud de la Ley N° 9047, se destinará un diez por ciento para las funciones encomendadas a la Oficina de Patentes, Inspección y Control Municipal.

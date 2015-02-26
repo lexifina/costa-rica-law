@@ -1,0 +1,2 @@
+Artículo 19.—Las medidas cautelares serán por un máximo de veinticuatro horas. El funcionario municipal, investido para tales efectos, sólo podrá aplicarla cuando se esté afectando el interés superior del menor o cuando la vida de un ciudadano esté en peligro.
+En un plazo máximo de veinticuatro horas, deberá trasladar el caso a la Alcaldía Municipal para que se proceda a la apertura del procedimiento administrativo sancionatorio correspondiente.

@@ -1,0 +1,1 @@
+Artículo 8º—En cuanto a las prohibiciones de ubicación y horarios de funcionamiento de la licencia de expendio de bebidas con contenido alcohólico, se aplicará respectivamente lo dispuesto en los artículos 9° y 11 de la Ley N° 9047.

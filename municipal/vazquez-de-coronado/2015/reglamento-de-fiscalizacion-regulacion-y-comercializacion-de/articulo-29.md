@@ -1,0 +1,2 @@
+Artículo 29.—La dependencia encargada de otorgar las licencias y patentes de funcionamiento deberá, al menos una vez al año, corroborar ante el Instituto Costarricense de Turismo que las licencias clase E mantienen vigente la declaratoria de interés turístico.
+En caso de que este beneficio haya sido revocado por el Instituto Costarricense de Turismo, informará al Concejo Municipal, el cual, mediante un acuerdo en firme, cancelará la licencia.

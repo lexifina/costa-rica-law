@@ -1,0 +1,1 @@
+Artículo 20.—En caso de detectarse que el establecimiento no cuenta con la respectiva licencia de expendio de bebidas con contenido alcohólico, la Oficina de Patentes, a través de los inspectores municipales o la Policía Municipal, procederá al cierre inmediato del local.

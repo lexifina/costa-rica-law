@@ -1,0 +1,4 @@
+Artículo 12.—Cuando un establecimiento comercial desee contar con más de un giro, estos deberán ser compatibles entre sí y guardar completa independencia entre cada una de las áreas que se destine para cada uno de los giros.
+No se permitirá su instalación de forma conjunta en un mismo espacio. Cuando la Municipalidad detecte la unión de estas áreas para su explotación comercial de forma conjunta, la Oficina de Patentes, a través de los inspectores municipales, ordenará que se individualicen, dividan o separen completamente, con pared o construcción similar, las comunicaciones internas, físicas o visuales que pudieran tener los clientes entre los giros.
+De no contar el establecimiento con autorización municipal para la explotación de varios giros, procederá su clausura hasta que se ajuste a lo autorizado.
+En caso de aprobarse, el establecimiento deberá pagar a la Municipalidad el monto correspondiente por cada uno de los giros autorizados.

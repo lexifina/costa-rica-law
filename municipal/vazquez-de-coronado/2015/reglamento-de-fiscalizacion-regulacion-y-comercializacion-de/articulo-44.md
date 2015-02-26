@@ -1,0 +1,1 @@
+Artículo 44.—El pago extemporáneo acarreará el cargo de la multa contenida en el artículo 10 de la Ley N° 9047, así como el cargo de intereses moratorios calculados según lo establecen los artículos 57 y 58 del Código de Normas y Procedimientos Tributarios.

@@ -1,0 +1,12 @@
+Artículo 31.—Quien desee obtener una licencia temporal deberá presentar una solicitud firmada, ya sea directamente por el solicitante o por su representante con poder suficiente.
+La firma deberá estar autenticada y deberá contener al menos lo siguiente:
+a) Descripción de la actividad por realizar, con indicación de la dirección exacta, fechas y horarios en las que se realizará.
+b) En caso de personas jurídicas, una certificación que acredite la existencia y vigencia de la entidad, así como los poderes de representación del firmante.
+c) Descripción del lugar físico donde se realizará la actividad, incluyendo un croquis o plano de este, en el cual expresamente se señale el lugar o los lugares donde se tiene previsto el expendio de bebidas con contenido alcohólico.
+d) Certificación que acredite la titularidad del inmueble en el cual se desarrollará la actividad y, en caso de pertenecer a un tercero, autorización del propietario del inmueble para efectuar la actividad programada, salvo que se trate de actividades por realizarse en terrenos públicos y/o municipales, en cuyo caso deberá aportar copia del acuerdo del Concejo Municipal.
+e) En el caso de que la ubicación corresponda a un centro deportivo, estadio, gimnasio o cualquier otro lugar en el que habitualmente se desarrollan actividades deportivas, deberá aportarse una declaración jurada en la cual se acredite que no se expenderán bebidas con contenido alcohólico durante la realización de actividades deportivas.
+f) Declaración rendida bajo la fe y gravedad del juramento, en la que manifieste conocer las prohibiciones establecidas en el artículo 9° de la Ley y que se compromete a respetar está de acuerdo con las disposiciones de la Ley.
+g) Constancia de que se encuentra al día en las obligaciones con la Caja Costarricense de Seguro Social y con Asignaciones Familiares. El solicitante estará exento de aportar los documentos cuando la información esté disponible de forma remota por parte de la Municipalidad.
+h) Señalar un medio tecnológico para atender notificaciones, de conformidad con las disposiciones que establece la ley especial en dicha materia.
+Para el cumplimiento de este artículo, la Municipalidad podrá disponer el uso de un formulario en el que consigne la información pertinente que satisfaga los requerimientos indicados, el cual puede ser físico o digital.
+Es obligación del solicitante informar a la Municipalidad sobre cualquier modificación de las condiciones acreditadas mediante el formulario y la documentación antes indicados.

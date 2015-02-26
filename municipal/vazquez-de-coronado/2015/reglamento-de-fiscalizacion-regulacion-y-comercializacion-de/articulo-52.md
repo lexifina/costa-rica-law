@@ -1,0 +1,3 @@
+SECCIÓN III
+Disposiciones finales
+Artículo 52.—Las solicitudes completas deberán resolverse, con su aceptación o rechazo, en treinta días. El Departamento de Patentes apercibirá por una sola vez al interesado por la falta de requisitos y le otorgará diez días hábiles para su subsanación. Si no la completa en el plazo otorgado, se procederá a su archivo. El plazo para la subsanación suspende el plazo de los treinta días. Una vez completados los requisitos por parte del solicitante, el Departamento de Patentes entregará al alcalde o alcaldesa la propuesta de resolución, quien deberá emitir su aceptación o su negación en un máximo de ocho días hábiles.

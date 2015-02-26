@@ -1,0 +1,1 @@
+Artículo 17.—Para efectos de notificación, se cumplirá lo estatuido en el libro segundo de la Ley de Notificaciones. El patentado o licenciatario será responsable de las irregularidades que suceden en cualquier establecimiento. Las autoridades municipales, debidamente autorizadas, podrán realizar las inspecciones necesarias para garantizar el objetivo de la Ley N° 9047.

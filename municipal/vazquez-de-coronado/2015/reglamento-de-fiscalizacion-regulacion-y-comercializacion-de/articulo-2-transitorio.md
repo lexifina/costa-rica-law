@@ -1,0 +1,2 @@
+Transitorio II.—Las licencias para expendio de bebidas con contenido alcohólico autorizadas mediante la Ley de Licores N° 10 que a la entrada en vigencia de la Ley N° 9047 estén en condición de “libre de explotación” (sin explotar) deberán pagar trimestralmente un octavo del salario base. El pago que se realice no impide la revocación de la licencia cuando se dé la falta de explotación comercial por más de seis meses, en los términos del artículo 6°, inciso b), de la Ley N° 9047.
+Rige a partir de su publicación. Es todo.

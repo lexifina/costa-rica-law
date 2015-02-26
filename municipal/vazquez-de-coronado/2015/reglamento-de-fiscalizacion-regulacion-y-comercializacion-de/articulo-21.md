@@ -1,0 +1,1 @@
+Artículo 21.—Cuando el patentado o licenciatario esté atrasado en el pago del tributo, el Departamento de Patentes procederá de acuerdo con la Ley N° 9047 y el debido proceso, para que la Alcaldía Municipal establezca la sanción correspondiente.

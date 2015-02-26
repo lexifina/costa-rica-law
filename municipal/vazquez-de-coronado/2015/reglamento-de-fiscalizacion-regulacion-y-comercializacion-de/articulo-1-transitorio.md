@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Disposiciones transitorias
+Transitorio I.—Los titulares de las patentes de licor adquiridas a la luz de la Ley N° 10 (parcialmente derogada) mantienen el derecho de traspasarla a un tercero hasta que expire su plazo de dos años de vigencia. A partir de ese momento, quien sea titular de dicha licencia no podrá venderla, canjearla, arrendarla, transferirla, traspasarla ni enajenarla en forma alguna, ya que deberá ajustarse a todas y cada una de las disposiciones contenidas en la nueva Ley de Licores N° 9047. Mantendrá los derechos de acuerdo con el transitorio I de la Ley N° 9047. El computo del mencionado plazo bienal se contabilizará a partir de la segunda pública, y correspondiente vigencia del presente reglamento.
