@@ -1,0 +1,1 @@
+2. Modificar el punto N° 14 de las Políticas para la etapa de las Asambleas de Asociaciones para que el máximo de proyectos presentados por las Asociaciones de Desarrollo Integral sea de 6 y el máximo para las Asociaciones de Desarrollo Específicas sea de 3.
