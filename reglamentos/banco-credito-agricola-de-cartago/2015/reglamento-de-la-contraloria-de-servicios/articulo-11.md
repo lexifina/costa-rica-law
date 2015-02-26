@@ -1,0 +1,2 @@
+Artículo 11.—Asesoría y colaboración. Las oficinas involucradas, en atención a las inconformidades, denuncias, sugerencias y felicitaciones, deberán prestar colaboración a la Contraloría de Servicios, cuando ésta lo requiera.
+La Asesoría Jurídica, el Área de Mercadeo, Dirección de Tecnología de Información, Seguridad Bancaria, Área Comercial y de Personas, Áreas de Crédito, Seguimiento Técnico de Crédito, Servicios Generales, entre otras, como áreas especializadas del Banco, brindarán el apoyo necesario en los temas que ésta les solicite su intervención.
