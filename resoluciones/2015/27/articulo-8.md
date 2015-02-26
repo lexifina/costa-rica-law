@@ -1,0 +1,1 @@
+8. Ordenar a la administración del Sistema de Emergencias 9-1-1 entregar en la próxima solicitud tarifaria los estados financieros auditados y la carta a la gerencia emitida por los auditores externos.

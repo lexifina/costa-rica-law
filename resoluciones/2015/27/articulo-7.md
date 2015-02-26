@@ -1,0 +1,1 @@
+7. Ordenar al Sistema de Emergencias 9-1-1 informar sobre el estado del convenio de pago de la cuenta por pagar al ICE, así como los resultados del proceso de separación de esta institución, detallando acciones que se han realizado durante el periodo 2015 así como los procesos que están pendiente.

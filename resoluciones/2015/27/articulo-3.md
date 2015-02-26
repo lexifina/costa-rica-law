@@ -1,0 +1,1 @@
+3. Ordenar a la administración del Sistema de Emergencias 9-1-1 que en la información de la próxima solicitud tarifaria deberá presentar un informe indicando el seguimiento y la atención brindada a los asuntos señalados por esta Superintendencia mediante el oficio N° 8319-SUTEL-DGM-2014.

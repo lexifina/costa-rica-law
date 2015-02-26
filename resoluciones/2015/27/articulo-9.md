@@ -1,0 +1,1 @@
+9. Ordenar a la administración del Sistema de Emergencias 9-1-1 brindar un informe sobre el seguimiento y corrección de todas las observaciones que se indiquen en la carta a la gerencia emitida por los auditores externos.

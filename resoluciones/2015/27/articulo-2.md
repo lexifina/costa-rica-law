@@ -1,0 +1,1 @@
+2. Autorizar a todos los operadores de servicios de telefonía que brinden los servicios de facturación y recaudación de la tasa de financiamiento del Sistema de Emergencias 9-1-1 y cuyos usuarios tengan acceso al Sistema de Emergencias 9-1-1, a retener lo dispuesto en la Ley N7566 .
