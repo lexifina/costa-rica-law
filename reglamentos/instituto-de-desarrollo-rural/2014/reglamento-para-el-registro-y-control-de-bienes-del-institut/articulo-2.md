@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Los lineamientos establecidos en este documento serán de acatamiento obligatorio para todos los funcionarios y su incumplimiento podría acarrear las responsabilidades civiles y penales establecidas en la normativa legal que rige esta materia.

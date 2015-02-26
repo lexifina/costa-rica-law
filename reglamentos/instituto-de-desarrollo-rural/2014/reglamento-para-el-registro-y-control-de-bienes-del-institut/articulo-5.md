@@ -1,0 +1,1 @@
+Artículo 5º—Las jefaturas deberán asignar a un encargado del manejo de los bienes en cada dependencia institucional, para que sea este quien coordine con la Unidad de Registro Control de Activos lo relacionado con el alcance del presente reglamentos en lo que corresponda.
