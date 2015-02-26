@@ -10,19 +10,20 @@ Categoría | Standard & Poor´s | Moody´s | Fitch
 4 | B | | B
 6 | C | | C
 D | | D
-TABLA N° 2
-PLAZOS MÁXIMOS
-Línea crédito (SEGÚN GARANTÍA) | Meses
+(*) TABLA Nº 2
+Plazos Máximos
+Línea crédito (Según garantía) | Meses
 a) Crédito personal con garantía hipotecaria que cubra el 100% del monto del crédito | 240
-b) Crédito personal con otras garantías | 96
-c) Crédito garantizafo con valores emitidos por el Banco Popular | 360
-d) Crédito Empresarial | 240
-e) Micro empresarios | 240
-f) Pequeñps y medianos empresarios | 240
-g) Crédito Organizaciones Sociales | 240
+b) Crédito personal con otras garantías. | 96
+c) Crédito garantizado con valores emitidos por el Banco Popular. | 360
+d) Crédito Empresarial | 240, salvo cuando el plan de inversión sea Proyectos de Infraestructura de obra pública, caso en el cual el plazo máximo será de 360 meses.
+e) Micro empresarios. | 240
+f) Pequeños y medianos empresarios | 240
+g) Crédito Organizaciones Sociales | 240, salvo cuando el plan de inversión sea Proyectos de Infraestructura de Obra Pública, caso en el cual el plazo máximo será de 360 meses.
 h) Gastos médicos | 96
-i) Educación | 72
-j) Vivienda | 360
+i) Educación. | 72
+j) Vivienda. | 360
+(*)(Así reformada la tabla 2) anterior mediante sesión N° 5256 del 26 de febrero del 2015)
 [imagen]
 TABLA Nº 4
 BANCA DE PERSONAS
