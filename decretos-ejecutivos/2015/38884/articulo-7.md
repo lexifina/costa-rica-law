@@ -1,0 +1,1 @@
+Artículo 7º—En caso de comercializarse calidades no contempladas en los cuadros insertos anteriormente, deberán utilizarse las fórmulas de referencia, según el agente en la cadena de comercialización.
