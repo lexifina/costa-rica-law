@@ -1,0 +1,3 @@
+CAPÍTULO II
+De los bienes susceptibles a donación
+Artículo 10.—Para efectos del presente reglamento, no podrán ser donados los bienes afectos al fin público por disposición legal, administrativa o judicial, o los bienes que conserven la finalidad, utilidad y la importancia institucional por la cual se adquirieron, o bien, son necesarios para la prestación futura de los servicios que brinda el ICE. Para tales efectos, será la División Jurídica Corporativa quien establecerá si el bien es demanial o patrimonial, para lo cual la dependencia técnica deberá aportar la información respectiva, con el fin de determinar la procedencia de la donación.
