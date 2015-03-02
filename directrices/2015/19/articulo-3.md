@@ -1,0 +1,1 @@
+Artículo 3°—Se instruye al Ministerio de Ambiente y Energía y al Sistema Nacional de Áreas de Conservación, para que giren las instrucciones que consideren pertinentes de manera inmediata para agilizar procesos que brinden respuesta a la emergencia, en el ámbito de sus respectivas competencias.

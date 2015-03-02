@@ -1,0 +1,1 @@
+Artículo 2°—Corresponde a las instituciones objeto de la presente Directriz buscar inmediatamente los canales de comunicación efectiva para lograr una solución de emergencia al problema, tomando en consideración el interés público implícito en la necesidad de no dejar sin señal de radio y televisión a una importante población de nuestro país.

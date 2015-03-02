@@ -1,0 +1,1 @@
+Artículo 6°—Tanto la Comisión Nacional de Emergencias como el Observatorio Vulcanológico y Sismológico de Costa Rica, deberán brindar un acompañamiento logístico y prioritario en la atención de esta eventual emergencia nacional.
