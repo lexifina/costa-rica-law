@@ -17,8 +17,7 @@ I. Primera Categoría DE 1 A 10, medio salario base;
 II. Segunda Categoría DE 11 A 20, un salario base.
 Las mismas se clasificaran tomando en cuenta los siguientes aspectos:
 [imagen]
-Categoría C: Restaurantes y similares:
-Un salario base.
+Categoría C: Restaurantes y similares: (Mediante sesión N° 394 del 2 de marzo de 2015, se acordó eliminar las subcategorías C, y se establece un monto mínimo de medio salario base y transitoriamente será el monto único que pagará esta categoría, en lo que respeta al distrito 05 Vara Blanca, para la categoría C, se establece un monto mínimo de un cuarto de salario base y transitoriamente, este será el único que pagará esta categoría por trimestre)
 Categoría D1: Mini - súper:
 I. Primera Categoría DE 1 A 10, un salario base;
 II. Segunda Categoría DE 11 A 20, dos salario base.
@@ -34,9 +33,9 @@ Nota: La proporción de productos básicos deberá ser de, al menos un 70% del �
 Categoría E: Establecimientos de hospedaje declarados de interés turístico por el I.C.T.:
 Todas estas categorías están establecidas y diferenciadas en la Ley y no requieren clasificación.
 Clase E1: a las empresas de hospedaje declaradas de interés turístico por el ICT.
-Clase E1 a: empresas de hospedaje con menos de quince habitaciones, un salario base.
+Clase E1 a: empresas de hospedaje con menos de quince habitaciones, (Mediante sesión N° 394 del 2 de marzo de 2015, se acordó establecer un monto mínimo de medio salario base y transitoriamente será el monto único que pagará esta categoría, en lo que respecta al distrito 05 Vara Blanca, para la categoría C, se establece un monto mínimo de un cuarto de salario base y transitoriamente, este será el único que pagará esta categoría por trimestre)
 Clase E1 b: empresas de hospedaje con quince o más habitaciones, dos salarios base.
 Clase E2: a las marinas y atracaderos declarados de interés turístico por el ICT, tres salarios base.
 Clase E3: a las empresas gastronómicas declaradas de interés turístico por el ICT, dos salarios base.
-Clase E4: a los centros de diversión nocturna declarados de interés turístico por el ICT, tres salarios base.
+Clase E4: a los centros de diversión nocturna declarados de interés turístico por el ICT, (Mediante sesión N° 394 del 2 de marzo de 2015, se acordó establecer un monto mínimo de un salario base y transitoriamente será el monto único que pagará esta categoría, en lo que respecta al distrito 05 Vara Blanca, para la categoría C, se establece un monto mínimo de un cuarto de salario base y transitoriamente, este será el único que pagará esta categoría por trimestre).
 Clase E5: a las actividades temáticas declaradas de interés turístico por el ICT, un salario base.

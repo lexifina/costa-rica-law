@@ -14,3 +14,4 @@ Reglamento de regulación y comercialización de bebidas con contenido alcohóli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-13 | la propia norma |
+| 2 | 2015-03-02 | Reglamento municipal 394 (2015-03-02) |
