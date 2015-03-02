@@ -1,0 +1,1 @@
+Artículo 5°—Para cuantificar el crédito fiscal, los contribuyentes mencionados en el artículo anterior multiplicarán el importe de las compras de cada mes de las bebidas gaseosas efectuadas a los citados mayoristas, por el factor 0,13688935.
