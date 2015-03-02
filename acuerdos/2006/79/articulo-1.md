@@ -8,17 +8,18 @@ POR TANTO
 2. Además de las universidades y colegios universitarios públicos, únicamente podrán impartir los cursos, realizar las pruebas y extender los correspondientes títulos que acrediten el cumplimiento de los requisitos establecidos en el artículo 35 de la Ley de Protección al Trabajador los institutos parauniversitarios y las universidades privadas debidamente autorizadas y acreditadas por el Consejo Nacional de Enseñanza Superior Universitaria Privada, de conformidad con lo establecido en la Ley Nº 6693 del 27 de noviembre de 1981, el Decreto Ejecutivo Nº 25071-MEP del 26 de marzo de 1996, y normas conexas.
 3) Requisitos.
 Los centros educativos indicados en el acápite anterior deberán cumplir con los siguientes requisitos:
-a) Programa de estudios.
-El programa de estudios deberá estructurarse, como mínimo, en dos cuatrimestres. Durante cada cuatrimestre deberán impartirse, al menos, cuatro cursos con una duración mínima de 40 horas presenciales, cada uno.
-Los ocho cursos mínimos deberán comprender la siguiente temática o contenido:
+(*)a) Programa de estudios.
+El programa de estudios deberá estructurarse, como mínimo, en dos cuatrimestres. Durante cada cuatrimestre deberán impartirse, al menos, cuatro cursos con una carga académica mínima de cuarenta (40) horas. Los cursos podrán impartirse de manera presencial, virtual o semi-presencial.
+Los ocho cursos mínimos a impartir deberán comprender la siguiente temática o contenido:
 i) Introducción a la seguridad social. El sistema de pensiones de Costa Rica.
 ii) Los sistemas de capitalización colectiva y de capitalización individual. Análisis y diferencias de los riesgos de cada sistema.
-iii) Regulación y supervisión del sistema nacional de pensiones (Leyes Nº 7983 y Nº 7523).
+iii) Regulación y supervisión del sistema nacional de pensiones.
 iv) Planes de acumulación y planes de beneficio.
 v) Régimen de inversión de los fondos administrados por las operadoras de pensiones.
 vi) Gestión de riesgos de los fondos de pensiones.
-vii) Régimen sancionatorio. Responsabilidad disciplinaria administrativa, penal y civil de las operadoras y los promotores.
+vii) Responsabilidad disciplinaria administrativa, penal y civil de las operadoras de pensiones y los promotores.
 viii) Asesoría y comercialización de planes previsionales. Servicio al cliente.
+(*) (Así reformado el punto a) anterior por acuerdo SP-A-180-2015 del 2 de marzo de 2015)
 b) Pruebas.
 i) Al finalizar cada curso deberá efectuarse un examen parcial para evaluar el aprovechamiento de los educandos.
 ii) Al final de cada cuatrimestre deberá evaluarse la totalidad de la materia comprendida en cada uno de los cuatro cursos.
