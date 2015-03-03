@@ -1,0 +1,1 @@
+II.—Tener como respuesta a los opositores que participaron en la audiencia pública realizada el 13 de noviembre del 2014, lo señalado en el Considerando I de la resolución que aquí se acuerda y agradecer la valiosa participación de todos en este proceso.
