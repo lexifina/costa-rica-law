@@ -1,0 +1,1 @@
+Artículo 2º—En todo lo demás, el Decreto Ejecutivo N° 36789-C del 1° de agosto de 2011, publicado en el Diario Oficial La Gaceta N° 198 del 14 de octubre de 2011, denominado Reglamento a la Ley de Creación del Centro Nacional de la Música, permanece incólume.
