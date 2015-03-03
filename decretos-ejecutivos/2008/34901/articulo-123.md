@@ -1,1 +1,0 @@
-Artículo 123.—De la remisión al Consejo Rector: En caso de apelación, la Secretaría se limitará a remitir el expediente al Consejo Rector, sin admitir ni rechazar el recurso, acompañando un informe sobre las razones del recurso.

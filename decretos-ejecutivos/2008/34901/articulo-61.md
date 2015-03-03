@@ -1,1 +1,0 @@
-Artículo 61.—De los límites para acceder recursos de los fondos del SBD: La suma de los saldos totales adeudados por un beneficiario considerando los diferentes recursos del SBD no podrá ser mayor al monto que anualmente establezca el Consejo Rector.

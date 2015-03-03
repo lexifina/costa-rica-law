@@ -1,1 +1,0 @@
-Artículo 128.—Del recurso de revisión: El recurso de revisión, así como lo no dispuesto expresamente en este capítulo (o sección) se regirá por lo dispuesto en los artículos 353 y concordantes de la Ley General de la Administración Pública.

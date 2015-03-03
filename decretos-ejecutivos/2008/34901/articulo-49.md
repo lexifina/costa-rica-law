@@ -1,1 +1,0 @@
-Artículo 49.—De la información para valoración de programas: Los Prestadores facilitarán a la Secretaría Técnica la información necesaria para los procesos de valoración de los programas que el Consejo Rector decida realizar.

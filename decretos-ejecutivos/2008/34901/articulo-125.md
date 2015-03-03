@@ -1,1 +1,0 @@
-Artículo 125.—De la formalidad de los recursos: Los recursos no requieren una redacción ni una pretensión especiales, bastando que de su texto se infiera claramente la inconformidad del recurrente y su deseo de revisión.

@@ -1,1 +1,0 @@
-Artículo 33.—Del plazo para responder a solicitudes de acreditación: El Consejo Rector tendrá un plazo de un mes calendario, que inicia a partir del momento en que cuente con toda la documentación y requisitos contemplados en el artículo anterior, para responder a la solicitud de acreditación por parte de una entidad financiera.

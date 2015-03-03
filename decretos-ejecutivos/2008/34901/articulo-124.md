@@ -1,1 +1,0 @@
-Artículo 124.—De la interposición del recurso de apelación y el de revocatoria simultáneamente: Si se interponen ambos recursos a la vez, se tramitará la apelación una vez declarada sin lugar la revocatoria.

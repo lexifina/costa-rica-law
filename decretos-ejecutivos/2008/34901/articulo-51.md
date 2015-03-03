@@ -1,1 +1,0 @@
-Artículo 51.—De la canalización de recursos de Servicios de Desarrollo Empresarial por parte de los beneficiarios del SBD: Las solicitudes de Servicios de Desarrollo Empresarial por parte de beneficiarios del SBD, se canalizarán por medio de los operadores de Servicios de Desarrollo Empresarial previstos en el artículo siguiente del presente Reglamento.

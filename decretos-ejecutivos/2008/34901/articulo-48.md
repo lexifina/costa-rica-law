@@ -1,1 +1,0 @@
-Artículo 48.—De la representación de los Prestadores de Servicios de Desarrollo Empresarial acreditados: Los Prestadores de servicios de Desarrollo Empresarial acreditados deberán establecer un representante que actúe como enlace entre éstos y la Secretaría Técnica del Consejo Rector.

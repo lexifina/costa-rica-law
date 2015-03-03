@@ -1,1 +1,0 @@
-Artículo 126.—Del plazo para resolver: La Secretaría Técnica, así como el Consejo Rector, según corresponda, tendrán ocho días hábiles para resolver, plazo que correrá a partir del día siguiente al día de interposición del recurso correspondiente.

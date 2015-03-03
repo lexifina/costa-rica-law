@@ -1,1 +1,0 @@
-Artículo 109.—De la suspensión de entidades financieras que canalicen recursos del Fondo de Crédito para el Desarrollo: El administrador del Fondo de Crédito para el Desarrollo podrá suspender a una entidad financiera la canalización de los recursos de este fondo si esta supera los niveles de riesgo establecidos para poder operar con los mismos.

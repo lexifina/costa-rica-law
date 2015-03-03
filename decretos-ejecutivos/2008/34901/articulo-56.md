@@ -1,1 +1,0 @@
-Artículo 56.—Información para seguimiento y evaluación: Los operadores de Servicios de Desarrollo Empresarial facilitarán la información necesaria para los procedimientos de seguimiento y evaluación que establezca el Consejo Rector.

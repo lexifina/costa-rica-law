@@ -1,1 +1,0 @@
-Artículo 93.—Del procedimiento de acceso de beneficiarios a este fondo: Para tener acceso a estos servicios, el Consejo Rector establecerá los procedimientos necesarios para que los beneficiarios individualmente o en forma grupal reciban Servicios de Desarrollo Empresarial por parte de los prestadores de SDE.

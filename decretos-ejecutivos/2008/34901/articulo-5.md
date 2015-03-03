@@ -1,1 +1,0 @@
-Artículo 5º—De la votación del Consejo Rector. Los acuerdos serán adoptados por mayoría simple de los presentes, en cuyo caso quienes voten de forma negativa deberán razonar su voto y hacerlo constar en la propia acta. En caso de empate, el Presidente del Consejo tendrá doble voto.

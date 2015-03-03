@@ -1,1 +1,0 @@
-Artículo 92.—De la emisión de lineamientos y directrices por el Consejo Rector con recursos de este Fondo: El Consejo Rector establecerá las condiciones que se aplicarán para el acceso a los Servicios de Desarrollo Empresarial, considerando las actividades y sectores prioritarios y el Plan Nacional de Desarrollo.

@@ -1,1 +1,0 @@
-Artículo 38.—De la información anual sobre programas acreditados: Los operadores de recursos financieros remitirán, anualmente a más tardar en la segunda quincena de enero, al Consejo Rector la información sobre sus programas acreditados, considerando las mismas variables incluidas en la documentación presentada para obtener la acreditación.

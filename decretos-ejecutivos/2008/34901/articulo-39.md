@@ -1,1 +1,0 @@
-Artículo 39.—De la información para auditorías externas: Los operadores deberán facilitar la información para las auditorías externas que sean contratadas por el Consejo Rector para la verificación del cumplimiento de los objetivos del SBD.

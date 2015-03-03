@@ -1,1 +1,0 @@
-Artículo 68.—Del control del Fiduciario: Corresponde al fiduciario del FINADE establecer las normas operativas necesarias para el normal funcionamiento de los diferentes fondos con sujeción a lo señalado en la Ley 8634, Ley Sistema de Banca para el Desarrollo, en este Reglamento y en las instrucciones impartidas por el Consejo Rector.

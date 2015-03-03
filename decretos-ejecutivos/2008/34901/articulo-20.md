@@ -1,1 +1,0 @@
-Artículo 20.—Del quórum: Habrá quórum en una sesión del Consejo Asesor Mixto, siempre y cuando como mínimo se encuentren presentes cinco miembros, dentro de los cuales deberá estar presente el Ministro o la Ministra que lo coordina.

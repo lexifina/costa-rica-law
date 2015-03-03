@@ -1,1 +1,0 @@
-Artículo 29.—Del quórum: Habrá quórum en una reunión de la Comisión Técnica Interinstitucional de Servicios No Financieros y de Desarrollo Empresarial, siempre y cuando al menos se encuentren presentes cinco miembros.

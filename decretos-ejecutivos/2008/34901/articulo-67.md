@@ -1,1 +1,0 @@
-Artículo 67.—De la distribución de los recursos disponibles del FINADE: El Consejo Rector definirá al menos con una periodicidad anual la distribución de los recursos no comprometidos del FINADE. El fiduciario velará por el cumplimiento de estas directrices.

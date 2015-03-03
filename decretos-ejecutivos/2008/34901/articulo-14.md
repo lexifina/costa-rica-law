@@ -1,1 +1,0 @@
-Artículo 14.—De los Recursos. El Consejo Rector anualmente asignará los recursos para cubrir los gastos administrativos y operativos de la Secretaría Técnica; de conformidad con el artículo 18) de la Ley Nº 8634 Ley Sistema de Banca para el Desarrollo.

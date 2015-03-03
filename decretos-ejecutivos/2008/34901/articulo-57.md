@@ -1,1 +1,0 @@
-Artículo 57.—De la participación de CONAPE en capacitación y formación: El Consejo Rector y la Comisión Nacional de Préstamos para la Educación (CONAPE), establecerán mediante un convenio las condiciones en que esta institución pondrá a disposición de los beneficiarios del SBD, recursos para financiar programas de capacitación para el desarrollo de proyectos productivos.

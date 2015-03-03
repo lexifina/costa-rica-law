@@ -1,1 +1,0 @@
-Artículo 28.—De la participación de la Secretaría Técnica del Consejo Rector: En las reuniones de la Comisión Técnica Interinstitucional de Servicios No Financieros y de Desarrollo Empresarial podrá participar un representante de la Secretaría Técnica del Consejo Rector con voz pero sin voto. Este representante será convocado por el Coordinador de esta Comisión.

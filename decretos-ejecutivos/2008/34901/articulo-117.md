@@ -1,1 +1,0 @@
-Artículo 117.—Del manejo de los bancos en el fondo de financiamiento para el desarrollo y el fondo de avales – Los créditos concedidos por estos fondos también podrán aplicar al Fondo de Avales y Garantías del FINADE, siempre que el banco público esté acreditado para su colocación según lo establecido en el artículo 31 y siguientes del presente Reglamento.

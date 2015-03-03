@@ -1,1 +1,0 @@
-Artículo 16.—Del manual de procedimientos de la Secretaría Técnica. La Secretaría Técnica del Consejo Rector para instrumentalizar sus procesos y hacer más ágil su articulación, desarrollará un manual de procedimientos en donde se establezca ampliamente la forma en que realizará sus funciones. Este manual y sus modificaciones deberán contar con la aprobación del Consejo Rector.

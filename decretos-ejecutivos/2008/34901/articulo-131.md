@@ -1,1 +1,0 @@
-Artículo 131.—Del primer administrador del Fondo de Crédito para el Desarrollo: Por disposición del Transitorio VII de la Ley Nº 8634, durante los primeros cinco años de vigencia de esa Ley, el banco administrador del Fondo de Crédito para el Desarrollo será el Banco Crédito Agrícola de Cartago.

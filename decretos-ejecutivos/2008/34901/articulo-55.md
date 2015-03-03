@@ -1,1 +1,0 @@
-Artículo 55.—De la exclusión de operadores privados: Se podrán excluir del SBD, los operadores privados de Servicios de Desarrollo Empresarial que no cumplan con los compromisos asumidos frente al Consejo Rector.
