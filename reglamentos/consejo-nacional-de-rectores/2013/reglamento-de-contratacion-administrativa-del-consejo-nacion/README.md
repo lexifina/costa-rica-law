@@ -14,3 +14,4 @@ Reglamento de Contratación Administrativa del Consejo Nacional de Rectores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-30 | la propia norma |
+| 2 | 2015-03-03 | Reglamento 0 (2015-03-03) |
