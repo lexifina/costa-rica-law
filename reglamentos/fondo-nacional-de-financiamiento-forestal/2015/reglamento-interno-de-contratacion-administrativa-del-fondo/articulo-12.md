@@ -1,0 +1,4 @@
+Artículo 12.—Procedimiento de Contratación Administrativa. El inicio del procedimiento de contratación que corresponda, deberá ser solicitado por el Director General o por el Director de la Dirección respectiva, mediante la orden de inicio correspondiente, en el plazo dispuesto para ello por la UPSG.
+En caso de que la Dependencia solicitante presente las órdenes de inicio en fecha posterior a la definida por la UPSG, deberá acompañarse la justificación respectiva.
+Los procedimientos de contratación administrativa para adquirir bienes y servicios deben llevarse a cabo dentro del ordenamiento jurídico, atendiendo lo dispuesto para cada etapa en la Ley de Contratación Administrativa y su Reglamento.
+Asimismo, durante todo el proceso y como responsabilidad de todas las Dependencias involucradas en éste, deberá privar el interés público y aplicarse los más altos valores que rigen la contratación administrativa y la función pública.

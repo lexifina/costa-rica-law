@@ -1,0 +1,6 @@
+Artículo 7º—De la Dirección de Asuntos Jurídicos. La DAJ tendrá las mismas funciones y responsabilidades que las demás Dependencias solicitantes cuando requiera gestionar la contratación de bienes y servicios.
+Adicionalmente, en materia de contratación administrativa, tendrá las siguientes funciones y responsabilidades:
+a. Emitir los criterios jurídicos que correspondan para dar atención a los recursos, reclamos u otros de tipo legal que se presenten en los procesos de contratación administrativa, en aquellos casos que resulte necesario, por la complejidad o especificidad de la materia legal tratada.
+b. Elaborar los contratos administrativos (documento contractual) que requieran ser refrendados por la CGR.
+c. Otorgar la aprobación interna a los contratos que corresponda según los reglamentos y/o disposiciones de la CGR. Esta será otorgada mediante la firma del abogado designado por la DAJ para esta labor en el formulario remitido por la UPSG. La aprobación interna deberá otorgarse en un plazo máximo de 8 hábiles.
+d. En caso de que se requiera que la DAJ requiera el aporte de algún documento adicional, efectuar alguna observación o solicitar alguna modificación; procederá a devolver el trámite a la UPSG. En el momento que la DAJ reciba el caso otra vez, el plazo de los 5 días hábiles iniciará nuevamente.

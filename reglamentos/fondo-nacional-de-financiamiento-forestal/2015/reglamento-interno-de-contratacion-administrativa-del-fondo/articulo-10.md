@@ -1,0 +1,11 @@
+Artículo 10.—De la Comisión de Adjudicaciones.
+A la Comisión de Adjudicaciones le corresponde:
+a. Tomar la decisión final adoptar en los procedimientos de contratación administrativa, según lo siguiente:
+i. En Contrataciones Directas: Se constituirá por el proveedor institucional y la jefatura del Departamento Administrativo. En caso de compras de cuantía mayor al nivel de contrataciones directas, tramitadas por excepción, corresponderá adjudicarlas, según se hubiera tenido que realizar por la cuantía.
+ii. En Licitaciones Abreviadas: Se constituirá por la Jefatura del Departamento Administrativo, el (la) Proveedor (a) Institucional, el Titular del Programa Solicitante o su representante y el Director de la Dirección Jurídica o quien éste designe.
+iii. En Licitaciones Públicas: Se constituirá por el Director Administrativo Financiero, la Jefatura del Departamento Administrativo, el Proveedor Institucional, el Titular del Programa o su representante y el Director de la Dirección Jurídica o quien éste designe.
+b. Emitir sus actos con estricto apego a la normativa de contratación administrativa. Para poder apartarse de dicho criterio deberán mediar razones técnicas de igual naturaleza.
+c. La competencia de la Comisión de Adjudicaciones para tomar la decisión final, incluye declarar infructuoso, desierto o readjudicar un procedimiento de contratación administrativo o renglón de éste, considerando (para la conformación de la Comisión de Adjudicaciones) la cuantía como si hubiera tenido que adjudicar. Deberá tomarse en cuenta, lo dispuesto en el artículo 86 del Reglamento a la Ley de Contratación Administrativa.
+d. En otro tipo de procedimientos de contratación administrativa (remates, subasta a la baja, tipos abiertos u otros legalmente aplicables) para conformar la Comisión de Adjudicaciones se considerará la cuantía y en caso de no poder determinarse ésta, la decisión final será tomada por la Comisión de Adjudicaciones conformada como si se tratara de una Licitación Pública.
+e. Corresponderá también a la Comisión de Adjudicaciones (conformada con los mismos miembros que realizaron la adjudicación) la aprobación de modificaciones de contratos.
+f. Cualquier otra función, concordante con su competencia, que le sea asignada.

@@ -1,0 +1,2 @@
+Artículo 14.—Revisión y Reajuste de precios. LA UPSG incorporará en los carteles (cuando corresponda) la fórmula de revisión o reajuste de precios y los índices de precios que considere pertinentes para el tipo de servicio de que se trate.
+Las solicitudes de revisión y reajuste de precios las tramitará la UPSG de conformidad con lo establecido en la Ley de Contratación Administrativa y en lo que resulte procedente la jurisprudencia de la CGR y de la Sala Constitucional.

@@ -1,0 +1,1 @@
+Artículo 2º—Normativa. La compra, venta y arrendamiento de bienes, suministros, servicios y obras que realice FONAFIFO, con recursos de su presupuesto ordinario, con excepción de la actividad ordinaria; estará regulada por la Ley de Contratación Administrativa, su Reglamento, este Reglamento Interno y las demás normas o disposiciones que resulten aplicables.
