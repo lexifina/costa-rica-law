@@ -1,0 +1,24 @@
+Nº 46-14-15
+EL DIRECTORIO DE LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+En sesión ordinaria Nº 047-2015 celebrada el 3 marzo de 2015
+Se acuerda: Avalar la siguiente disposición:
+Considerando:
+1º—Que a raíz de las recomendaciones vertidas por la Auditoría Interna mediante informe Nº 15-2012, el Directorio Legislativo, realizó en su momento, una consulta al Departamento de Servicios Técnicos, en relación con la procedencia jurídica de reconocer el pago de tiempo extraordinario a los servidores que colaboran en los despachos de los miembros titulares de este Órgano Colegiado, la cual fue evacuada con oficio CON-008-2013, emitido el 6 de febrero del 2013.
+2º—Que con oficio DRH-PA-2019-2012, el Departamento de Recursos Humanos manifiesta la improcedencia de que se reconozca el tiempo extraordinario a funcionarios de los despachos de la primera y segunda prosecretarías; no obstante, no existía contundencia en relación con este reconocimiento para los asesores de los miembros titulares del Directorio Legislativo.
+3º—Que dado que se presentó una divergencia de opinión entre el criterio del Departamento de Servicios Técnicos y el de Asesoría Legal remitido con oficio As. Leg. 198-2013, el Órgano Colegiado decidió consultar a la Procuraduría General de la República mediante acuerdo tomado en el artículo 30 de la sesión Nº 170-2013, celebrada el 30 de abril del 2013−, sobre los extremos de reconocer el pago de tiempo extraordinario a los asesores del Directorio Legislativo.
+4º—Que mientras la consulta fue evacuada, en nombre de este Directorio Legislativo, sus asesores dieron seguimiento, −en conjunto con el señor Auditor−, acerca de la situación en la que se encontraban con respecto al tema.
+5º—Que la Primera Secretaría suspendió el reconocimiento de tiempo extraordinario a sus asesores desde el momento en que la Auditoría Interna envió su primera nota, en febrero del 2015.
+6º—Que los criterios bajo los cuales el Directorio Legislativo ha autorizado el tiempo extraordinario a estos servidores, fue abundantemente argumentado con base en los siguientes elementos:
+• Que los diputados que asumen la Primera y Segunda Secretarías en el Directorio Legislativo, no cuentan presupuestariamente con personal adicional para asumir las funciones propias de esos despachos, importante señalar que los legisladores deben cumplir una doble función como diputados y asumir además una gran cantidad de funciones administrativas en su
+• Que sus colaboradores, unido a las labores cotidianas en el área de fracciones políticas, tienen asignadas tareas adicionales relacionadas con el área administrativa, con lo cual se ven obligados a laborar más allá de la jornada ordinaria, cuando la demanda así lo exige.
+• Que dichas labores están relacionadas con el análisis y revisión de los temas del Directorio Legislativo, los cuales incluyen la elaboración de una serie de informes sobre temas particulares, así como la revisión y tramitación de documentos de ejecución presupuestaria.
+• Que este Directorio Legislativo considera que es de mérito reconocer el esfuerzo adicional que realizan dichos servidores, lo cual se encuentra previsto en la normativa vigente, específicamente en la descripción de las funciones contenida en el artículo 30 del Reglamento de la Asamblea Legislativa, donde se definen claramente las funciones de los secretarios.
+7º—Que los anteriores argumentos encuentran vigencia hasta el día de hoy; sin embargo, una vez evacuada la duda tanto por parte de la Procuraduría General de la República, como por parte del Departamento de Asesoría Legal, existe claridad acerca de la improcedencia de otorgar este emolumento a los funcionarios que ocupan puestos del área de fracciones políticas. Doble función de los diputados.
+8º—Que fue hasta el día 28 de febrero pasado que este Órgano Colegiado tuvo conocimiento del contenido del oficio C-407-2014, emitido por la Procuraduría General de la República.
+Por tanto; el Directorio Legislativo, en uso de las facultades que le otorga el artículo 25 del Reglamento de la Asamblea Legislativa y con base en los criterios que han sido puestos a su conocimiento, acuerda tomar las siguientes disposiciones:
+1º—Modificar el artículo 6, inciso d) del Reglamento para el Trámite y la Compensación de las Horas Extra en la Asamblea Legislativa para que se lea de la siguiente manera:
+“Artículo 6.- Prohibiciones. En cuanto al trámite y pago de horas extra en la Asamblea Legislativa, se establecen las siguientes prohibiciones:
+d) Se prohíbe el pago de tiempo extraordinario, al personal administrativo que esté prestado a fracción política o viceversa. De esta disposición se exceptúa al personal destacado en la Presidencia, Primera y Segunda Secretarías de la Asamblea Legislativa.” Publíquese.
+Lo anterior rige a partir de la presente aprobación.
+San José, a los doce días del mes de marzo de dos mil quince.
