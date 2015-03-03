@@ -1,0 +1,6 @@
+CAPÍTULO III
+Responsabilidades
+Artículo 18.—De la responsabilidad de custodia y conservación. El funcionario(a) que tenga asignado un teléfono celular es responsable de su custodia, conservación, uso correcto y racional, conforme lo dispone este Reglamento.
+En caso de extravío, robo o daños del teléfono celular, sus accesorios o ambos, el funcionario(a) responsable deberá presentar la denuncia respectiva ante el Organismo de Investigación Judicial (OIJ) y proceder a suspender el servicio mediante el servicio telefónico 1193 e informar al día siguiente hábil posterior a los hechos, por escrito, al Área de Servicios Generales.
+El Área de Servicios Generales realizará informe sobre el hecho acontecido y procederá al traslado de dicho informe a la Subgerencia de Soporte Administrativo, el cual actuara conforme lo establecido en el debido proceso.
+Lo anterior, no excluye de responsabilidad penal o civil, en la que se determine haya incurrido el funcionario(a), como consecuencia de la investigación que, al efecto, realice el Organismo de Investigación Judicial. De igual forma sucederá en caso de deterioro, cuando se compruebe que se produjo por falta de cuidado o uso anormal del teléfono.

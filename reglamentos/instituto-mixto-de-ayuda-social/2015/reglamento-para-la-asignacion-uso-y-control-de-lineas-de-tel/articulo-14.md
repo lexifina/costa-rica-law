@@ -1,0 +1,8 @@
+Artículo 14.—Del contrato. Para la asignación y uso del servicio celular propiedad del IMAS, así como, el reconocimiento de tarifa celular en teléfonos propiedad del servidor(a), cada funcionario(a) usuario(a) del servicio, deberá suscribir un contrato, el cual será proporcionado por la Asesoría Jurídica en el que se indiquen las regulaciones de uso de los mismos.
+Este contrato deberá considerar al menos, los siguientes aspectos:
+1. La tarifa básica del teléfono celular que se reconocerá, será según lo establecido en el artículo 12 de este Reglamento. Igualmente se consignará que para el cobro del excedente, el funcionario(a) deberá cancelar en las cajas de las oficinas del IMAS.
+2. El(la) funcionario(a) responsable solo podrá hacer uso del teléfono celular otorgado por la institución, para la atención de asuntos estrictamente relacionados con el ejercicio de su cargo.
+3. Cuando se asigne un teléfono celular, el funcionario(a) responsable deberá tenerlo encendido y presentarse o comunicarse, dentro del tiempo estipulado en el artículo N° 143 del Código de Trabajo.
+4. En caso de extravío, robo, daño u otra situación similar, se actuará conforme con lo establecido en el artículo 18 del presente Reglamento y el funcionario(a) responsable no estará exento(a) de responsabilidad administrativa, civil o disciplinaria.
+5. Los motivos de rescisión del contrato según se establece en el artículo 16 del presente Reglamento.
+6. Que para el caso en que la línea telefónica celular sea propiedad del funcionario(a), este se compromete en caso de ser requerido por parte del IMAS a presentar el detalle de las llamadas salientes.

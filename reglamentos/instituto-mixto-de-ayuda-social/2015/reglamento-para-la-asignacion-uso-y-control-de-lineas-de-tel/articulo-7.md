@@ -1,0 +1,5 @@
+Artículo 7º—De los principios que orientan la asignación del servicio de telefonía celular. La asignación del servicio objeto del presente reglamento se orientará, fundamentalmente, por los siguientes principios:
+1. El uso del equipo telefónico deberá guiarse bajo los más estrictos principios éticos y de racionalidad del gasto público.
+2. Los funcionarios(as) son los responsables directos(as) de la conservación, uso racional de la línea, el equipo telefónico, y los accesorios facilitados por el Instituto Mixto de Ayuda Social en calidad de instrumentos de trabajo, para su uso exclusivo y el mejor desempeño de sus funciones.
+3. Tanto la asignación de los bienes objeto de este Reglamento, como el pago de las tarifas no se considerarán como salario en especie ni dan origen a derechos adquiridos de ninguna especie, por ser meros instrumentos de trabajo de los funcionarios(as).
+4. La persona a quien se le asigne un equipo telefónico tendrá el carácter de depositario del bien, con todas las obligaciones que al efecto establece el Código Civil.
