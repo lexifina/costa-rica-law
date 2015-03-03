@@ -1,0 +1,1 @@
+Artículo 4°—Presupuesto. La COMAD fiscalizará que la Alcaldía y el Concejo Municipal incluyan el contenido presupuestario requerido para cumplir con las acciones y proyectos formulados en el Plan Anual Operativo, cuando elaboran su proyecto de presupuesto anual.

@@ -1,0 +1,1 @@
+Artículo 13.—Organización. En el seno de la Comisión, se designará entre los regidores propietarios, una presidencia y una secretaría que coordinaran las sesiones y levantarán las actas de la Comisión.
