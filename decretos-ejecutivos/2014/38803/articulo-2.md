@@ -1,0 +1,9 @@
+Artículo 2º—Las licencias con goce de salario para la elaboración de la tesis, prevista en el artículo 20 de la Convención Colectiva, se tramitarán de la siguiente forma:
+a) La persona funcionaria deberá presentar el comprobante de matrícula del proyecto de tesis extendida por la Universidad que se trate, al superior inmediato.
+b) Esta solicitud la deberá hacer con al menos quince días de anticipación a la fecha probable de inicio de la licencia, la cual se otorgará durante los tres meses previos a la presentación del proyecto de tesis.
+c) El superior inmediato deberá resolver esta solicitud en un plazo no mayor a cinco días hábiles.
+d) La persona funcionaria y el superior inmediato deberán negociar dentro de esos cinco días, el disfrute de la licencia, procurando no alterar el servicio público que se brinda, ni limitar el derecho a la persona funcionaria. Para estos efectos la persona funcionaria deberá presentar un plan de distribución del tiempo que justifique el número de horas y la forma en que se utilizarán.
+e) Esta licencia se concederá por una sola vez para la misma carrera y grado.
+f) La persona funcionaria deberá presentar a su superior inmediato, un mes después de finalizada esta licencia, el comprobante extendido por la Universidad, donde indique el resultado obtenido.
+g) El superior inmediato llevará un expediente con los documentos pertinentes.
+h) Si se presume incumplimiento de lo previsto en este artículo, el superior inmediato elevará el caso ante el órgano competente para aplicar las sanciones disciplinarias, de conformidad con lo establecido en el artículo 126 del Reglamento Autónomo de Servicio del Ministerio de Trabajo y Seguridad Social, a fin de que se proceda con el inicio de una investigación administrativa y se establezcan las sanciones disciplinarias que correspondan, de acuerdo a la legislación aplicable.

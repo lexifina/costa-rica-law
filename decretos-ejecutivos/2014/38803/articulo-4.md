@@ -1,0 +1,1 @@
+Artículo 4º—Una vez cumplidos los trámites y requisitos previstos en los artículos 2 y 3 anteriores, el superior inmediato deberá enviar al Departamento de Gestión del Capital Humano la documentación relacionada con las licencias otorgadas, en el término de un mes, contado a partir de la entrega del comprobante del resultado obtenido extendido por la Universidad.
