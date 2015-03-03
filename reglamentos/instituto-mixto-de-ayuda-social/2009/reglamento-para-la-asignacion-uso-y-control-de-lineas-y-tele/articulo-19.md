@@ -1,1 +1,0 @@
-Artículo 19.—De la devolución del equipo. En aquellos casos previstos en los artículos 15 y 16 del presente Reglamento el funcionario(a) responsable del equipo deberá devolverlo con sus accesorios de forma inmediata, quien comunicará a Gestión y Asesoría Administrativa, para la actualización de los registros y la respectiva suspensión del pago del servicio.

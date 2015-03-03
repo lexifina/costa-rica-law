@@ -1,2 +1,0 @@
-Artículo 24.—De la resolución del pago: En caso de que el servidor manifestare su disconformidad, el Coordinador del Equipo de Gestión y Asesoría Administrativa valorará los argumentos esgrimidos y mediante resolución razonada resolverá lo correspondiente.
-En contra de lo resuelto, procederá el recurso de revocatoria ante el Coordinador del Equipo de Gestión y Asesoría Administrativa con apelación en subsidio ante la Subgerencia Administrativa Financiera.

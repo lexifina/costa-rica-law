@@ -1,2 +1,0 @@
-Artículo 10.—Asignación del servicio de telefonía celular. La línea y el teléfono celular, se asignan al puesto, y estarán restringidas a una línea por funcionario.
-El funcionario que utiliza el servicio celular y es trasladado o removido de los puestos mencionados en el artículo 7, debe hacer el traspaso del servicio cuando corresponda al nuevo funcionario que ocupe el cargo, e informar por escrito y de inmediato al Coordinador del Equipo de Gestión y Asesoría Administrativa, a efecto de llevar a cabo el trámite correspondiente para la cancelación del contrato.

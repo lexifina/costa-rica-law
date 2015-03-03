@@ -1,1 +1,0 @@
-Artículo 26.—Derogaciones. A partir de la entrada en vigencia del presente Reglamento queda derogado el Reglamento publicado en el Diario Oficial La Gaceta número 167 del lunes 01 de setiembre del año dos mil tres y toda normativa interna igual o de rango inferior.

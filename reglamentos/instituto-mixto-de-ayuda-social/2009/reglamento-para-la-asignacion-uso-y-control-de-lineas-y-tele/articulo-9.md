@@ -1,4 +1,0 @@
-CAPÍTULO III
-De la asignación de los teléfonos celulares y servicio celular
-Artículo 9º—De las solicitudes para la asignación del servicio de telefonía celular. Las solicitudes para otorgar el servicio celular deben ser suscritas por el superior inmediato de los funcionarios (as) solicitantes en aquellos casos donde se demuestre una necesidad comprobada y manifiesta, de que el mismo constituya un instrumento de trabajo para facilitar el mejor desempeño de las labores del funcionario(a).
-El Equipo de Gestión y Apoyo Administrativo realizará para los incisos del a) al h) del artículo 7 la gestión de asignación y para el inciso i), las solicitudes del servicio celular deben ser presentadas ante la Gerencia General, y contener la justificación de la necesidad, según el puesto y las funciones que desempeñará el responsable del equipo, siendo este Despacho quien presentara dicha solicitud ante el Consejo Directivo
