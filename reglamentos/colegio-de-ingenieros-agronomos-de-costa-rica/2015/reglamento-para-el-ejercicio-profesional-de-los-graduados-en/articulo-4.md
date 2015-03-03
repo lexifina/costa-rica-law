@@ -1,0 +1,1 @@
+Artículo 4º—Las funciones descritas en los artículos 2 y 3 anteriores, competencia de los miembros graduados en el área ambiental, también podrán ser ejercidas por otros miembros incorporados al Colegio y que se encuentren debidamente inscritos por las instituciones competentes para ejercer en el área ambiental.
