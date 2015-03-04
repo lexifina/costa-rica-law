@@ -14,3 +14,4 @@ Normativa de Tramitación de Denuncias ante el Tribunal de Moral Médica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-01-23 | la propia norma |
+| 2 | 2015-03-04 | Reglamento 0 (2015-03-04) |
