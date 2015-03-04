@@ -1,0 +1,3 @@
+Artículo 2º—Agrégase un párrafo final a los artículos 10 y 15 del mismo Reglamento, que se leerán de la siguiente manera:
+“Artículo 10.—De lo anterior el partido político deberá informar al Departamento de Registro de Partidos Políticos.
+Artículo 15.—La Dirección General del Registro Electoral y de Financiamiento de Partidos Políticos, en casos excepcionales y con la debida justificación, podrá autorizar la legalización de un libro de actas provisional, mientras concluye el proceso de legalización o reposición del libro de actas correspondiente, con el fin de que el partido político pueda consignar durante ese periodo las actas relativas a las sesiones del Comité Ejecutivo Superior o de su Asamblea Superior durante un periodo de tiempo determinado.”
