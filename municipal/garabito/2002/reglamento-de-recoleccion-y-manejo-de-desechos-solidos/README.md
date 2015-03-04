@@ -15,3 +15,4 @@ Reglamento de Recolección y Manejo de Desechos Sólidos
 | --- | --- | --- |
 | 1 | 2002-08-30 | la propia norma |
 | 2 | 2006-05-24 | Reglamento municipal 4 (2006-05-24) |
+| 3 | 2015-03-04 | Reglamento municipal 253 (2015-03-04) |
