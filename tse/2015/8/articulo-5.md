@@ -1,0 +1,1 @@
+Artículo 5º—Notificación de las resoluciones. Las resoluciones que se dicten dentro del procedimiento regulado en el artículo anterior serán comunicadas por el Área de Notificaciones de la Secretaría del Despacho; no obstante, en casos de urgencia, se entiende habilitado al personal de apoyo directo del Tribunal para que realice las diligencias de notificación.
