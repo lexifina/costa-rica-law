@@ -1,0 +1,1 @@
+Artículo 2º—Los Ministerios de Agricultura y Ganadería; de Salud; de Ambiente y Energía; y de Trabajo y Seguridad Social en cumplimientos de sus Leyes y competencias, velarán por el cumplimiento de estas disposiciones.
