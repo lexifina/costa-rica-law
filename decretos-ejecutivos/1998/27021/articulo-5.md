@@ -1,1 +1,1 @@
-Artículo 5°—Si la fortificación del azúcar se realiza durante el proceso de producción, el nivel de fortificación con vitamina A será de 15 miligramos (49.500 U.I) de retinol por kilogramo de azúcar, con una variabilidad máxima de ± 5 miligramos por kilogramo (16.500 U.I).
+Artículo 5°—(Derogado por el artículo 2° del decreto ejecutivo N° 39020 del 4 de marzo de 2015)

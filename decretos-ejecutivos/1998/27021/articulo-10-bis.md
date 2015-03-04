@@ -1,0 +1,3 @@
+Artículo 10 bis.—El Ministerio de Salud realizará inspección física in situ de cada embarque de azúcar importada, para lo cual podrá coordinar con el Ministerio de Agricultura y Ganadería para su respectivo análisis de laboratorio, de previo al desalmacenaje.
+El Ministerio de Salud es el responsable en sus tres niveles de gestión, según sus competencias de organizar, coordinar, supervisar y fiscalizar el cumplimiento del Reglamento Técnico para la Fortificación con Vitamina A del Azúcar Blanco de Plantación para el Consumo Directo, con el objeto de presupuestar los recursos necesarios para su eficiente ejecución y rendimiento de cuentas.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39020 del 4 de marzo de 2015)
