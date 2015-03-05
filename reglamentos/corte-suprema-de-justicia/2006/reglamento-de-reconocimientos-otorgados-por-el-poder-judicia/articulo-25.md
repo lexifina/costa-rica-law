@@ -1,3 +1,4 @@
 CAPÍTULO IV
-Reconocimiento “Al Buen Profesional”
-Artículo 25.—Reconocimiento “Al Buen Profesional”. El Reconocimiento “Al Buen Profesional” se destinará a la persona que por su quehacer profesional, hubiese influido o influya en el ámbito jurídico nacional.
+Reconocimiento “Al buen profesional Luis
+Paulino Mora Mora”
+Artículo 25.—Reconocimiento al Buen o la Buena Profesional “Premio Luis Paulino Mora Mora”. El reconocimiento al “Al Buen o a la Buena Profesional”, con el nombre Luis Paulino Mora Mora, se destinará a la persona que por su quehacer profesional en cualquier área del conocimiento hubiese influido o influya en el mejoramiento de la administración de justicia, haciendo posible su eficiencia y el acceso de los (as) ciudadanos (as) al servicio de la justicia.

@@ -1,1 +1,1 @@
-Artículo 27.—Factores de evaluación. El Tribunal de Reconocimiento del Poder Judicial tomará en cuenta los aportes a la ciencia jurídica, en cuanto incidan directamente en el régimen jurídico nacional, en cualquier ámbito.
+Artículo 27.—Factores de evaluación. El Tribunal de Reconocimientos del Poder Judicial tomará en cuenta los aportes realizados para favorecer en general el acceso a la justicia y particularmente a las poblaciones en condición de vulnerabilidad, en cualquier ámbito al sistema de administración de justicia.

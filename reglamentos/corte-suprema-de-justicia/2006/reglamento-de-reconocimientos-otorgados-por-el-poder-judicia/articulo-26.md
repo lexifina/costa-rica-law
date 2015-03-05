@@ -1,3 +1,3 @@
-Artículo 26.—Requisitos para ser nominados. Los requisitos mínimos para ser nominados, son:
-a) Contar con una trayectoria jurídica nacional o internacional de relevancia.
-b) Que su obra ayudase o hubiese ayudado al desarrollo doctrinal, legal o jurisprudencial en cualquier ámbito jurídico nacional.
+Artículo 26.—Requisitos para ser nominados. Los requisitos mínimos para que una persona pueda ser nominada son:
+a.Contar con una trayectoria de relevancia en el campo del servicio de la administración de justicia, a nivel nacional o internacional.
+b.Que su obra hubiese ayudado o favorezca el adecuado desarrollo del Poder Judicial en el acceso efectivo de los (as) ciudadanos (as) y la población en condición de vulnerabilidad al sistema de administración de justicia o su eficiencia.
