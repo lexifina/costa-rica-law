@@ -1,1 +1,0 @@
-Artículo 3°—Las disposiciones del presente reglamento se aplican a todas las muertes maternas que ocurren en el país, independientemente del lugar de ocurrencia, ya sea en establecimientos públicos, privados, domiciliares y otros.
