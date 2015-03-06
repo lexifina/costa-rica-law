@@ -79,10 +79,12 @@ de carbonato de calcio (CaCO3).
 7.2 Deberán contar con archivos y registros que indiquen los valores obtenidos en las pruebas realizadas.
 7.3 En caso de cementos producidos con características especiales requeridas por parte del cliente, que no estén especificadas en este reglamento técnico o difieran de aquellas que si lo estén, se debe entregar a la Unidad de Estudios Económicos del Ministerio de Economía, Industria y Comercio, la certificación correspondiente que indique el cumplimiento de dichas características.
 7.4 La inspección y verificación de los productos, debe ejecutarse de conformidad con el Reglamento de Procedimiento para la Verificación y Control de Calidad de Cementos Hidráulicos, establecido en el respectivo decreto ejecutivo.
-7.5 Todo importador de cementos hidráulicos y componentes regulados en este decreto, deberá adjuntar al embarque un certificado de análisis oficial, extendido por la autoridad competente del país de origen, el cual haga constar en idioma español, el resultado de los análisis químicos y físicos descritos en el presente decreto ejecutivo.
+7.5 Todo importador de cementos hidráulicos y componentes regulados en este decreto, deberá contar con un certificado de calidad reconocido internacionalmente, el cual haga constar los resultados de los análisis físicos y químicos descritos en el presente decreto ejecutivo.
+(Así reformado el punto 7.5) anterior por el artículo 1° del decreto ejecutivo N° 38907 del 6 de marzo del 2015)
 8. EMPAQUE
 8.1 El empaque del cemento debe cumplir con las siguientes disposiciones:
-8.1.1 El cemento debe estar seco y ser empacado en bolsas o sacos en presentaciones que no excedan los 50 kg, por razones ergonómicas y de salud ocupacional. Los empaques deben estar hechos de papel Kraft u otro material adecuado, que tengan las indicaciones señaladas en el presente reglamento técnico.
+8.1.1 El cemento debe estar seco y ser empacado en bolsas o sacos de un material adecuado que permitan conservar las propiedades del cemento, establecidas en el presente reglamento técnico.
+(Así reformado el punto 8.1.1) anterior por el artículo 1° del decreto ejecutivo N° 38907 del 6 de marzo del 2015)
 *9. Etiquetado
 9.1 Generalidades del etiquetado:
 9.1.1 Los datos que deben aparecer en la etiqueta, en virtud de este reglamento técnico, deberán indicarse con caracteres claros, ostensiblemente visibles, indelebles y fáciles de leer por el consumidor en circunstancias normales de compra y uso. El nombre y contenido neto del producto deberán aparecer en un lugar prominente y en el mismo campo o espacio de visión.
@@ -96,11 +98,16 @@ de carbonato de calcio (CaCO3).
 9.2.3 Lista de ingredientes en orden decreciente. La cual debe ir encabezada o precedida por un título que incluya o consista de la palabra “Ingredientes”.
 9.2.4 Dirección del fabricante o importador.
 9.2.5 País de origen. Cuando el producto se someta en un segundo país a una elaboración que cambie su naturaleza, el país en el que se efectúe la elaboración deberá considerarse como país de origen para los fines del etiquetado.
-9.2.6 Fecha de empaque y envasado. (El cemento deberá ser comercializado dentro de los 45 días después de la fecha de empaque.)
+9.2.6 Fecha de empaque o envasado y fecha recomendada de uso. Se debe indicar en el empaque la fecha de empaque o envasado y la fecha recomendada de uso.
+(Así reformado el punto 9.2.6) anterior por el artículo 1° del decreto ejecutivo N° 38907 del 6 de marzo del 2015)
 9.2.7 (Derogado este acápite por el artículo 1° del decreto ejecutivo N° 38404 del 10 de marzo del 2014)
+9.2.8 Instrucciones de almacenamiento. Deberá indicarse en el empaque del producto las condiciones necesarias de almacenamiento a fin de garantizar la fecha recomendada del uso del producto.
+(Así adicionado el punto 9.2.8) anterior por el artículo 2° del decreto ejecutivo N° 38907 del 6 de marzo del 2015)
+9.2.9 En caso de que los productos importados no indiquen la información solicitada en los puntos 9.2.6 y 9.2.8, la información deberá ser colocada por el importador o empacador mediante un adhesivo o etiqueta complementaria adherida al empaque, con base en la información técnica suministrada por el fabricante, la cual deberá ser facilitada por el importador o empacador cuando el Ministerio lo solicite. En caso que esta información se encuentre en un idioma diferente al español, deberá contarse con una traducción oficial. El importador o empacador deberá entregar también una declaración jurada en la que manifieste haber recibido del fabricante la información técnica a que hace referencia este inciso.
+(Así adicionado el punto 9.2.9) anterior por el artículo 2° del decreto ejecutivo N° 38907 del 6 de marzo del 2015)
 9.3 Etiquetado de la presentación a granel.
 9.3.1 Las indicaciones arriba mencionadas deberán especificarse en un documento de referencia que se le entregue al cliente junto con la factura.
-9.3.2 El granel no tiene empaque, por lo que la fecha de comercialización no debe exceder la fecha de producción, que se deberá hacer constar en una declaración jurada de producción emitida por el productor o importador y deberá contener lo establecido en el numeral 8 de este reglamento. Esta declaración jurada aplica tanto para la producción nacional como para la importación del producto.
+9.3.2 (Derogado este punto por el artículo 3° del decreto ejecutivo N° 38907 del 6 de marzo del 2015)
 *(Así reformado mediante el artículo 1° del decreto ejecutivo N° 33229 del 26 de junio del 2006).
 10. BIBLIOGRAFÍA
 10.1 Brasil. ABNT. EB 758 Ciminto Portland pozolanico. Brasil, 1974.
@@ -126,4 +133,4 @@ NOTAS:
 (7) Esta prueba es opcional, y será aplicada bajo requisito del cliente.
 (8) Los materiales puzolánicos incluyen: puzolanas naturales, artificiales, y cenizas volantes.
 (9) Los componentes minoritarios deben ser uno o más de los componentes principales representados en la tabla.
-(Nota: por el formato de las tablas N° 1, 2, 3, 4 y 5 sirvase ver las mismas en la gaceta No. 49 del 10 de marzo del 2005, paginas 4 y 5)
+(Nota: por el formato de las tablas N° 1, 2, 3, 4 y 5 sirvase ver las mismas en la gaceta No. 49 del 10 de marzo del 2005, páginas 4 y 5)
