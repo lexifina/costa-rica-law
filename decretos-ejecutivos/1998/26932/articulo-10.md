@@ -1,2 +1,0 @@
-Artículo 10°—Se declara obligatorio el uso del "Carné perinatal" en la atención en salud de las mujeres gestantes, para lo cual deberán tomarse las previsiones del caso que aseguren su suministro, llenado y utilización en todos los servicios de salud, tanto públicos como privados y en los diferentes escalones de complejidad de la red de servicios, donde se atiendan mujeres gestantes.
-(Así reformado total y expresamente por el Decreto Ejecutivo 28118 de 30 de septiembre de 1999)

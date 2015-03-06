@@ -1,1 +1,0 @@
-Artículo 18°—Los médicos, directores, administradores y las entidades de salud pública y privada, así como la medicatura forense y otras entidades relacionadas, están obligados a suministrar la información referente a los fallecimientos de los menores de un año.
