@@ -13,3 +13,4 @@ Deber de verificar las notificaciones sobre señalamientos de audiencias y emiti
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-23 | la propia norma |
+| 2 | 2015-03-06 | Circular 42 (2015-03-06) |
