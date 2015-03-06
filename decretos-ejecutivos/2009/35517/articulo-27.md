@@ -1,1 +1,0 @@
-Artículo 27.—De la Dirección Ejecutiva. La Dirección Ejecutiva es la instancia de dirección administrativa, disciplinaria y de coordinación de toda la acción institucional y está conformada por el Director Ejecutivo, el Subdirector Ejecutivo y el Director Administrativo-Financiero, nombrados por el Comité Nacional.

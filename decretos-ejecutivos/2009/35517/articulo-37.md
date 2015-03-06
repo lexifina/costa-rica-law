@@ -1,1 +1,0 @@
-Artículo 37.—De los (as) directores de las sedes regionales de la FUNAC 4-S. Cada sede regional tendrá un director responsable de todos los programas que se lleven a cabo en el área de su atención y será nombrado por la Dirección Ejecutiva.

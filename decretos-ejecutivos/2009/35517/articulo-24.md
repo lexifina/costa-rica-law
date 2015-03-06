@@ -1,1 +1,0 @@
-Artículo 24.—De los recursos. Contra los acuerdos del Comité Nacional, cabrá el recurso de revocatoria, de conformidad con lo establecido en el artículo 58 de la Ley General de la Administración Pública.
