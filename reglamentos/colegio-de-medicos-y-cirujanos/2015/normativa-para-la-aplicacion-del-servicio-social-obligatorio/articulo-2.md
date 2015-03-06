@@ -1,0 +1,1 @@
+Artículo 2º—Todo médico que conforme a prueba documental demuestre que ya realizó en forma efectiva el año de servicio social obligatorio como acto previo a la inscripción de una especialidad médica en el Colegio, no debe realizar el servicio social obligatorio como subespecialista.

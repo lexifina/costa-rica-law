@@ -1,0 +1,1 @@
+Artículo 3º—Todo médico que conforme a prueba documental demuestre que antes del 26 de octubre del 2012 ya estaba cursando una residencia para especialidad médica o subespecialidad médica, no se les exigirá el servicio social obligatorio para especialista o para subespecialista.
