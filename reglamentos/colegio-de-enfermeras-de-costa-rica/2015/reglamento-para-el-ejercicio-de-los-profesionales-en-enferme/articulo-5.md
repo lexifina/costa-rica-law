@@ -1,0 +1,1 @@
+Artículo 5º—Anotaciones de los Profesionales en Enfermería Especialistas en Salud Mental y Psiquiatría en el expediente: deben registrar en el expediente de salud y otros documentos, la información generada en el proceso de atención terapéutica a las personas y de la participación de otros profesionales para documentar la atención brindada.
