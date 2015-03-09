@@ -1,0 +1,1 @@
+Artículo 69.—Colocación de recursos según propuesta del fiduciario del FINADE. El fiduciario podrá proponer al Consejo Rector las condiciones para la colocación de estos recursos, toda vez que considere los diferentes tipos de proyectos productivos y la sostenibilidad del FINADE.

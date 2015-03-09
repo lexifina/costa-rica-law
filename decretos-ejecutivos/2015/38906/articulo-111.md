@@ -1,0 +1,1 @@
+Artículo 111.—De la protección cambiaria. Los bancos privados que dispongan de estos recursos, podrán canalizarlos directamente en moneda extranjera, para que los sujetos de crédito final tengan protección cambiaria. Sin embargo, si no hubiera suficiente demanda para colocar todos los recursos en moneda extranjera, el banco privado podrá prestar el equivalente en moneda nacional.

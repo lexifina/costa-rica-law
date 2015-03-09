@@ -1,0 +1,2 @@
+Artículo 84.—Mecanismos de reafianzamiento o seguros. El FINADE, previa autorización del Consejo Rector del SBD, podrá contratar mecanismos de reafianzamiento o seguros, con instituciones públicas o privadas, nacionales o extranjeras, con respecto a las garantías presentes o futuras que otorgue; asimismo, pagar las comisiones o la prima en las condiciones que se le indiquen, con cargo al patrimonio del FINADE.
+También podrá participar de iniciativas regionales o internacionales orientadas a ampliar la cobertura del fondo de garantías.

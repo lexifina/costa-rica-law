@@ -1,0 +1,4 @@
+CAPÍTULO IV
+Instituto Mixto de Ayuda Social
+Artículo 57.—Del Instituto Mixto de Ayuda Social (IMAS). El Instituto Mixto de Ayuda Social (IMAS) deberá incluir, dentro de sus programas, el apoyo financiero para las personas físicas en condiciones de pobreza y pobreza extrema, quienes presenten proyectos viables y sostenibles, los cuales permitan la movilidad social y no posean hasta un veinticinco por ciento (25%) de garantía o contragarantía, para acceder al fondo de avales del SBD, con el fin de completar la garantía del crédito que solicita.
+El Consejo Rector deberá aprobar los programas que los Operadores Financieros apliquen para este propósito, los cuales deben considerar los mecanismos de seguimiento y acompañamiento necesarios; asimismo, estas garantías y avales, se suministrarán especialmente para los Operadores que, por su naturaleza, requieran de este instrumento para apoyar la inclusión financiera y económica de estos beneficiarios.

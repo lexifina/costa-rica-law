@@ -1,0 +1,2 @@
+Artículo 86.—De la participación del IMAS con aporte de garantías. Los beneficiarios del SBD que, aún con el apoyo del fondo de garantías y avales del FINADE, no puedan completar el respaldo de garantía necesario para obtener un crédito y califiquen dentro del rango de pobreza o pobreza extrema, podrán acceder a un complemento de hasta el veinticinco por ciento (25%) de garantía adicional, proporcionado por el Instituto Mixto de Ayuda Social.
+El IMAS coordinará con el Consejo Rector y el FINADE la forma en cómo operará este mecanismo de complemento de garantías.
