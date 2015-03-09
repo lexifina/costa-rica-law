@@ -1,0 +1,1 @@
+3º—Los funcionarios que laboran en esta Sede deberán procurar que la realización de visitas mensuales a comunidades alejadas de su región, de acuerdo con lo programado en el Plan Anual Operativo, sean programadas para los días miércoles.

@@ -1,0 +1,1 @@
+2º—En aras de dar una adecuada publicidad a la medida, el personal de la Oficina Regional Brunca deberá colocar un rótulo en un lugar visible donde se informe que los días miércoles no se atenderá al público, así como informar sobre los medios alternativos para la presentación de quejas, tales como números de teléfono, fax, correo electrónico, o cualquier otro medio.
