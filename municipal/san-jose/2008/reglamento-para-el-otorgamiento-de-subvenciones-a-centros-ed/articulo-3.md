@@ -1,0 +1,7 @@
+CAPÍTULO II
+Disposiciones específicas
+Artículo 3º—Solicitud del auxilio o ayuda: Las Juntas Educativas o Juntas Administrativas, según sea el caso, deberán presentar ante el Concejo Municipal, por medio del Concejo de Distrito correspondiente y antes de que finalice el mes de julio de cada año, una solicitud de subvención, la cual contendrá los siguientes requisitos:
+a) Carta de solicitud de la subvención debidamente firmada por el Presidente de la Junta Educativa o Administrativa y el Director de la institución.
+b) Acuerdo de la Junta Educativa o Administrativa aprobando la solicitud de la subvención.
+c) Certificación de Personería Jurídica y copia de la cédula jurídica.
+d) Justificación del proyecto o de la ayuda indicado: Descripción del bien, obra o servicio solicitado o en su defecto descripción de la obra que planean realizar con la ayuda económica que requieren; los objetivos y fines que se desean lograr con la misma; en el caso de las ayudas de dinero en efectivo deberán adjuntar un desglose de los bienes y servicios que se adquirirán y su valor; además un cronograma tentativo en el que se indique el tiempo estimado en que se ejecutará el bien, servicio y otra; y se adjuntarán al documento dos facturas proforma o cotizaciones por materiales y/o servicios que se requieran para ejecutar la obra; el cronograma se solicitará solamente cuando la ayuda sea dinero en efectivo para la realización obras de mutuo propio.
