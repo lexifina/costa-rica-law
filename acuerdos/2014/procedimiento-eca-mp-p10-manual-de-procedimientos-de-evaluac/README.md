@@ -14,3 +14,4 @@ Procedimiento ECA-MP-P10 Manual de procedimientos de evaluación y acreditación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-11 | la propia norma |
+| 2 | 2015-03-09 | Acuerdo 0 (2015-03-09) |

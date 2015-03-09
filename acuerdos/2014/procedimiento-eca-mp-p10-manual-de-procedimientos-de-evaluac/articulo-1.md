@@ -10,6 +10,7 @@ ECA-MP-P10 Seguimiento y reevaluación | N.A | 01 | A partir de su publicación 
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
+(Nota de Sinalevi: El texto de este procedimiento fue reformado mediante publicación en La Gaceta N° 64 del 1° de abril de 2015, el cual paso de versión 01 a versión 02 y su texto se extrajo del sitio web del Ente Costarricense de Acreditaci?n, y se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 SEGUIMIENTO Y REEVALUACIÓN ......................................................................................... 1
