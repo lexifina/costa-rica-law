@@ -1,0 +1,1 @@
+Artículo 2°—Que en razón de la presente declaratoria de interés público, se insta a las instancias administrativas coadyuvar con el Benemérito Cuerpo de Bomberos de Costa Rica en la oportuna prosecución de dichos proyectos constructivos dentro del marco legal respectivo y sin perjuicio del cumplimiento de sus propios objetivos.
