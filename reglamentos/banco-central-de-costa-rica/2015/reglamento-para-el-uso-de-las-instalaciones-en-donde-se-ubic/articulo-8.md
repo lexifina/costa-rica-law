@@ -1,0 +1,1 @@
+Artículo 8º—Será responsabilidad de la Fundación velar para que en la realización de los eventos que autorice en la Plaza de la Cultura, no se excedan los límites de peso existentes que permiten la preservación de esa estructura.

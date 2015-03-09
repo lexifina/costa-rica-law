@@ -1,0 +1,1 @@
+Artículo 10.—El incumplimiento de cualesquiera disposiciones y requisitos indicados en este reglamento y las disposiciones complementarias que dicte la Junta, dará derecho a la suspensión inmediata de la actividad, aun cuando haya sido iniciada, sin responsabilidad alguna para la Fundación o el Banco Central.

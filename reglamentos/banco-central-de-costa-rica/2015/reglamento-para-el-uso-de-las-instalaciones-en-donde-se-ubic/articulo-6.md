@@ -1,0 +1,1 @@
+Artículo 6º—El acto que autorice o deniegue el uso de las instalaciones en donde se ubica la Fundación será dictado por la Junta y se reputará de naturaleza discrecional de ella y por ende imputable solo a ese órgano colegiado.
