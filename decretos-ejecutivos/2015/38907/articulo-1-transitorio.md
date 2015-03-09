@@ -1,0 +1,1 @@
+Transitorio Único: Se concederá un plazo de tres meses a partir de la publicación de este decreto, para que los productos que se están comercializando actualmente en el mercado, ajusten su etiqueta a lo establecido en los acápites 9.2.6 y 9.2.8 de la presente reforma.

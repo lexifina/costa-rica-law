@@ -1,0 +1,1 @@
+Artículo 3°—Derogatoria. Deróguese el acápite 9.3.2 del inciso 9.3 “Etiquetado de la presentación a granel” del “Reglamento Técnico de Cementos Hidráulicos. Especificaciones”, RTCR 383:2004 del 1 de octubre de 2004, Decreto Ejecutivo N° 32253-MEIC.
