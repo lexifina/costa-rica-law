@@ -1,10 +1,1 @@
-Artículo 11.—Las cotizaciones correspondientes a la compra de bienes y servicios, bajo la modalidad de contratación directa, deberán indicar como mínimo:
-a) Nombre del proveedor.
-b) Cédula jurídica o de identidad del oferente
-c) Dirección del oferente
-d) Descripción del bien o servicio cotizado
-e) Precio unitario y total
-f) Plazo de entrega de los bienes o servicios
-g) Vigencia de las cotizaciones
-h) Garantía sobre los bienes y servicios
-i) Firma del oferente, representante legal o persona autorizada.
+Artículo 11.—Trámite para la satisfacción de necesidades particulares. Para atender una necesidad calificada o de naturaleza particular, se podrá iniciar el procedimiento de contratación sin contar con los recursos presupuestarios suficientes, previa aprobación de la CGR. Para lo pertinente, la Proveeduría, en coordinación con la unidad usuaria, determinará la necesidad de efectuar este procedimiento. En aquellos casos en que la ejecución se realice en varios periodos presupuestarios, el solicitante de la contratación deberá realizar las gestiones pertinentes ante la Coordinadora de Presupuesto para asegurar la existencia del contenido presupuestario con el propósito de garantizar el pago de las obligaciones.

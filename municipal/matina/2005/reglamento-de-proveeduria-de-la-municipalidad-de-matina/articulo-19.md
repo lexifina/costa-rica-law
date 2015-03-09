@@ -1,1 +1,1 @@
-Artículo 19.—Por Licitación Pública: Corresponderá al Departamento de Proveeduría, en coordinación con la asesoría jurídica institucional, verificar los trámites correspondientes a este tipo de contratación; de acuerdo a lo establecido en el artículo 42 de la Ley de la Contratación Administrativa.
+Artículo 19.—Normativa para regular el Registro. La Proveeduría es la responsable de recomendar al Concejo Municipal la normativa que regulará el Registro de Proveedores, para lo cual atenderá las directrices generales que sobre la materia dicte la Alcaldía Municipal.

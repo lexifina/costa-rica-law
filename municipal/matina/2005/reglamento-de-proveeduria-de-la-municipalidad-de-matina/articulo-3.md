@@ -1,5 +1,1 @@
-Artículo 3º—Con el fin de resguardar los intereses de la Municipalidad y brindar un servicio eficiente a todas sus unidades, el Departamento de Proveeduría deberá seguir el siguiente procedimiento:
-a) Verificar las existencias y determinar las necesidades de bienes y servicios.
-b) Establecer el procedimiento de contratación a seguir, para la adquisición de los bienes y servicios, de conformidad con la Ley de Contratación Administrativa, el Reglamento General de Contratación Administrativa y este reglamento.
-c) Requerir cotizaciones de los precios de los bienes y servicios solicitados, de acuerdo con los procedimientos establecidos en el Reglamento General de la Contratación Administrativa y este reglamento.
-d) Estudiar la calidad, precio, plazo de entrega y aquellas condiciones, que estime pertinente de cada oferta recibida.
+Artículo 3º—Este Reglamento será aplicable -sin excepción-, a todos los procedimientos de contratación, como en los procesos de almacenamiento y distribución o tráfico interno de bienes que promueva la Municipalidad por medio de la Proveeduría.
