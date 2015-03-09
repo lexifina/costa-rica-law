@@ -1,0 +1,2 @@
+Artículo 24.—Estado de cuenta. Las entidades de custodia deben remitir como mínimo un estado de cuenta mensual a los titulares de los valores bajo su custodia que incluya el efectivo relacionado, atendiendo a las generalidades que determine el Superintendente mediante acuerdo de alcance general.
+En el contrato de servicios deberá consignarse el medio de envío y la dirección autorizados por el titular para la remisión de los estados de cuenta.

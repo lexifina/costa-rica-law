@@ -1,0 +1,2 @@
+Transitorio II
+La Central de Valores de la Bolsa Nacional de Valores, S. A. (CEVAL) y las entidades de custodia disponen de seis meses a partir de la entrada en funcionamiento de una central de valores para gestionar el traslado de las custodias de valores internacionales mantenidas por cuenta de estos hacia entidades de custodia autorizadas para prestar este servicio, de conformidad con lo dispuesto en este Reglamento.

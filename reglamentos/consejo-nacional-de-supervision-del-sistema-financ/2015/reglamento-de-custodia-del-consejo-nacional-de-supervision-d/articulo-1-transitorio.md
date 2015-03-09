@@ -1,0 +1,2 @@
+Transitorio I
+A partir de la entrada en vigencia del presente reglamento la Central de Valores de la Bolsa Nacional de Valores, S. A. (CEVAL) únicamente podrá ofrecer el servicio de depósito para efectos de poder negociar en los mercados organizados los títulos físicos que se encuentren emitidos y depositados en esta central de depósito, y de registro de valores representados mediante macrotítulos, mientras entre en operación una central de valores.

@@ -1,0 +1,2 @@
+Artículo 16.—Órdenes de instrucción. Para la realización de cualquier tipo de movimiento en relación con los valores objeto de custodia o del efectivo asociado, la entidad de custodia debe contar previamente con las órdenes de instrucción emitidas por el titular o el ordenante.
+Las órdenes deben cumplir con los requerimientos mínimos de información y ser emitidas en soportes físicos o electrónicos, según autorice el Superintendente mediante acuerdo de alcance general.

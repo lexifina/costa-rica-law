@@ -1,0 +1,2 @@
+Artículo 32.—Requerimientos de los custodios extranjeros. Las entidades de custodia locales que contraten servicios con entidades en el extranjero deben poder acreditar que los custodios en el extranjero están legalmente inscritos, autorizados y supervisados por el órgano supervisor de su jurisdicción origen.
+Las entidades de custodia locales deben autorizar a las Superintendencias cuando así se les requiera, para que estas puedan solicitar en forma directa a las centrales de valores o custodios en el extranjero, información sobre los saldos mantenidos en ellas.

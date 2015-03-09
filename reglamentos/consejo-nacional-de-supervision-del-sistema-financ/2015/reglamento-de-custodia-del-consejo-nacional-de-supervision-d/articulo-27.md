@@ -1,0 +1,1 @@
+Artículo 27.—Conservación de la información. Las entidades de custodia deben conservar la información de sus registros y respectivos movimientos, así como la documentación probatoria pertinente por un plazo no inferior a cinco años

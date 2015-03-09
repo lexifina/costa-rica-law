@@ -1,0 +1,1 @@
+Artículo 10.—Plazo máximo para inicio de operaciones. Las entidades de custodia deben iniciar operaciones en un plazo máximo de seis meses contados a partir de la notificación de la resolución de inscripción en el Registro Nacional de Valores e Intermediarios; de lo contrario la autorización queda sin efecto.

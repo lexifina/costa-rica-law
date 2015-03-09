@@ -1,0 +1,2 @@
+Artículo 33.—Servicio de subcustodia. Las entidades de custodia locales pueden prestar el servicio de subcustodia a custodios extranjeros. Para ello, deben suscribir un contrato en el que se establezcan las obligaciones y responsabilidades de las partes.
+Se entiende por servicio de subcustodia aquel que permite la tenencia de valores en el mercado de valores costarricense a los clientes de un custodio domiciliado en el extranjero.

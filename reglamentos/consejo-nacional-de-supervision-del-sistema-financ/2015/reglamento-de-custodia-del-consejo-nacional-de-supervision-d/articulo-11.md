@@ -1,0 +1,7 @@
+Artículo 11.—Desinscripción de una entidad de custodia. La desinscripción de una entidad de custodia está sujeta a un régimen de autorización previa de la Superintendencia General de Valores, de conformidad con los siguientes requisitos:
+a) Solicitud formal de desinscripción firmada por el representante legal de la entidad, la cual debe indicar las razones que motivan la decisión de desinscripción.
+b) Certificación notarial del acuerdo de Junta Directiva, donde se acuerda la desinscripción.
+c) Plan de cierre de operaciones, de conformidad con los requerimientos establecidos por el Superintendente mediante acuerdo de alcance general. Adicionalmente, el Superintendente podrá requerir información o documentación adicional indispensable para la acreditación del adecuado traslado de los valores custodiados.
+Comprobado el cumplimiento de todos los requisitos, la Superintendencia General de Valores autorizará mediante resolución, la desinscripción de la entidad de custodia, sujeta al cumplimiento de lo establecido en dicha resolución.
+La entidad de custodia deberá indicar en cual lugar quedará depositada la información de sus registros y respectivos movimientos, así como la documentación probatoria pertinente por un plazo no inferior a cinco años y el lugar para recibir notificaciones en caso de presentarse alguna denuncia o asunto que se requiera resolver.
+Una vez que la sociedad presente tal información, la Superintendencia emitirá una carta de cumplimiento de requisitos finales.

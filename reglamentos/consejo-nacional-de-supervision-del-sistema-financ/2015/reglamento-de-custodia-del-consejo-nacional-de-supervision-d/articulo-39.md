@@ -1,0 +1,2 @@
+Artículo 39.—Derogatorias. Se deroga totalmente el Reglamento aprobado por el Consejo Nacional de Supervisión del Sistema Financiero, mediante artículo 13, del acta de la sesión 593-2006, celebrada el 27 de julio del 2006; publicado en el Diario Oficial La Gaceta Nº 156, del 15 de agosto del 2006.
+Se derogan totalmente los artículos 54, 55 y 57 del Reglamento sobre Oferta Pública de Valores y el último párrafo del artículo 12 del Reglamento de Gestión de Riesgos.
