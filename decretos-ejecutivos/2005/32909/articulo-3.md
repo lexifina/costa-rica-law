@@ -1,40 +1,40 @@
-Artículo 3º—Tarifas de honorarios profesionales autorizados. Se autorizan las siguientes tarifas mínimas de honorarios profesionales:
-I) Honorarios mínimos de Auditoría Financiera, Informática u Operacional: El cálculo de honorarios profesionales debe ser efectuado tomando en cuenta los siguientes parámetros:
-a. Independientemente del tipo, naturaleza y tamaño de la empresa contratante y de la naturaleza simple o compleja del programa de una auditoría, la tarifa mínima para ésta es de ¢11.298,51 (once mil doscientos noventa y ocho colones con cincuenta y un céntimos) por hora profesional.
+Artículo 3º—Tarifa de honorarios profesionales autorizados. Se autorizan las siguientes tarifas mínimas de honorarios profesionales:
+I) Honorarios mínimos de Auditoria Financiera, Informática u Operacional: El cálculo de honorarios profesionales debe ser efectuado tomando en cuenta los siguientes parámetros:
+a. Independientemente del tipo, naturaleza y tamaño de la empresa contratante y de la naturaleza simple o compleja del programa de una auditoría, la tarifa mínima para ésta es de ¢12.027,26 (doce mil veintisiete colones con veintiséis céntimos) por hora profesional.
 b. Toda auditoría contratada deberá cumplir con un mínimo de 80 horas profesionales. El profesional contratado, será el responsable de la calidad en la prestación del servicio y será el responsable de determinar si la auditoría convenida requiere emplear más horas del mínimo establecido en el presente decreto, en cuyo caso dichas horas serán cobradas según la tarifa establecida.
-II) Honorarios mínimos de Asesoría y Consultoría Administrativa y Financiera, Fiscal y Contable. Se aplicará una tarifa mínima para la Asesoría y Consultoría Administrativa, Financiera, Fiscal y Contable, de ¢23.351,12 (veintitrés mil trescientos cincuenta y un colones con doce céntimos) por hora profesional.
-III) Honorarios mínimos de Peritajes Extrajudiciales y Arbitrajes. Los honorarios que se originen en peritajes extrajudiciales asignados a Contadores Públicos Autorizados, solicitados por instituciones públicas, empresas privadas o particulares, para estudio o dictámenes especiales que impliquen la determinación de un valor económico, se regirán por las siguientes tarifas:
-Monto del peritaje: Tarifa
-Hasta ¢942.191,99 ¢94.219,19
-De: ¢942.191,99 hasta ¢1.883.104,86 5% adicional
-Sobre el exceso de ¢1.883.104,86 3% adicional
-IV) Honorarios mínimos en Certificaciones de Ingresos: Los honorarios mínimos por Certificaciones de Ingresos se aplicarán con base a la siguiente escala:
-a) Certificación de ingresos brutos generados en relaciones laborales se aplicará la tarifa mínima de la siguiente manera:
+II) Honorarios mínimos de Asesoría y Consultoría Administrativa y Financiera, Fiscal y Contable. Se aplicará una tarifa mínima para la Asesoría y Consultoría Administrativa, Financiera, Fiscal y Contable, de ¢24.857,27 (veinticuatro mil ochocientos cincuenta y siete colones con veintisiete céntimos) por hora profesional.
+III) Honorarios mínimos de Peritajes y Arbitrajes. Los honorarios que se origen en peritajes extrajudiciales asignados a Contadores Públicos Autorizados, solicitados por instituciones públicas, empresas privada o particulares, para estudio o dictámenes especiales que impliquen la determinación de un valor económico, se regirán por las siguientes tarifas:
+Monto del Peritaje:
+Hasta ¢1.002.963,37 ¢100.296.33
+De: ¢1.002.963,37 hasta ¢2.004.565,12 5% adicional
+Sobre el exceso de ¢2.004.565,12 3% adicional
+IV) Honorarios mínimos en Certificaciones de Ingresos. Los honorarios mínimos por Certificaciones de Ingresos se aplicarán con base a la siguiente escala:
+a) Certificación de Ingresos brutos generados en relaciones laborales se aplicará la tarifa mínima de la siguiente manera:
 Rango de ingreso mensual Tarifa
-Hasta: ¢508.437,80 ¢18.831,34
-De ¢508.437,80 a ¢764,539.48 5% adicional
-De ¢764.539,48 a ¢1.129.894,39 4% adicional
-De ¢1.129.894,39 a ¢1.883.104,86 3% adicional
-Sobre el exceso de ¢1.883.104,86 2% adicional
-b) Certificación o estudio de ingresos que implique verificación de productos, gastos, costos para establecer ingresos netos originados en operaciones comerciales, industriales, profesionales, certificaciones de lucro cesante; certificaciones de saldo deudor y otras no consideradas en el inciso siguiente, se aplicará la tarifa mínima de la siguiente forma:
+Hasta: ¢541.232,04 ¢20.046.01
+De ¢541.232,04 a ¢813.852,28 5% adicional
+De ¢813.852,28 a ¢1.202.772,58 4% adicional
+De ¢1.202.772,58 a ¢2.004.565,12 3% adicional S
+sobre el exceso de ¢2.004.565,12 2% adicional
+b) Certificación o estudio de ingresos que implique verificación de productos, gastos, costos para establecer ingresos netos originados en operaciones comerciales, industriales, profesionales, certificaciones de lucro cesante, certificaciones de saldo deudor y otras no consideradas en el inciso siguiente, se aplicará la tarifa mínima de la siguiente forma:
 Rango de ingresos netos mensuales Tarifa
-Hasta ¢659.087,28 10%
-Más de ¢659.087,28 5% adicional
+Hasta ¢701.598,41 10%
+Más de ¢701.598,41 5% adicional
 c) Certificación o estudio de ingresos brutos relacionados con alquileres, intereses, pensiones, dividendos, comisiones que no provengan de relación laboral, la tarifa mínima será:
 Rango de renta bruta mensual Tarifa
-Hasta ¢376.621,30 10%
-Superior a ¢376.621,30 5% adicional
+Hasta ¢400.913,37 10%
+Superior ¢400.913,37 5% adicional
 V) Honorarios de Estudios de Pre-factibilidad, Factibilidad y Flujos de Efectivo. La tarifa mínima para este tipo de Estudios será la siguiente:
-a) Se tomará como base de cálculo el monto total de la inversión inicial, entendiéndose como tal, el valor total del Proyecto que cubre los recursos propios y externos.
+a) Se tomará como base del cálculo el monto total de la inversión inicial, entendiéndose como tal, el valor total del Proyecto que cubre los recursos propios y externos.
 b) La fijación de los honorarios se determinará utilizando los siguientes porcentajes:
 Rango de inversión en colones Tarifa
-Hasta ¢75.324.169,09 1,5%
-Exceso de ¢75.324.169,09 hasta
-¢109.890.728,17 1,0%
-Más de ¢109.890.728,17 0,50%
+Hasta ¢80.182.578,00 1.5%
+Exceso ¢80.182.578,00 hasta ¢116.978.680,14 1.0%
+Más de ¢116.978.680,14 0.50%
 VI) Otros casos:
-a) Al solicitar la actuación de un Contador Público Autorizado para que certifique los estados financieros de una empresa en marcha, en la cual sólo se requiere verificar la concordancia de los datos suministrados por la administración de la empresa con los registros formales de la misma, se aplicará una tarifa mínima de ¢94.155,31 (noventa y cuatro mil ciento cincuenta y cinco colones con treinta y un céntimos).
-b) En los casos en que se requiera la actuación de un Contador Público Autorizado para certificar hechos concretos tales como: Certificaciones de Solvencia, de Capital Accionario, de Pasivos, de estados de cuentas corrientes y otros afines, en donde no se solicita la opinión acerca de la razonabilidad de los estados financieros, sino más bien, la entidad, contenido, registro, documentación o concordancia del hecho que habrá de hacerse constar en la certificación, se aplicará una tarifa mínima de ¢75.323,94 (setenta y cinco mil trescientos veintitrés colones con noventa y cuatro céntimos).
-c) En cuanto a las actuaciones que no tengan por objeto obtener la opinión formal del Contador Público Autorizado sobre la razonabilidad de los estados financieros de la empresa tomados en su conjunto, sino más bien referidas a los siguientes estudios especiales: revisiones, análisis o estudios especiales sobre determinadas cuentas, áreas o partes de un estado financiero, estudios o revisiones de los sistemas de control interno, estudios y análisis de carácter estadístico tendientes a plasmar la evolución económica o financiera de una empresa, o bien, de clasificación contable de estados financieros de una entidad la tarifa mínima para esta clase de servicios será de ¢11.298,51 (once mil doscientos noventa y ocho colones con cincuenta y un céntimos) hora profesional.
-d) En cualquier otra actuación profesional no considerada en los artículos anteriores se aplicará una tarifa mínima de ¢11.298,51 (once mil doscientos noventa y ocho colones con cincuenta y un céntimos) hora profesional.
-(Así reformado mediante sesión ordinaria N° 09-2014 del 28 de abril del 2014)
+a) Al solicitar la actuación de un Contador Público Autorizado para que certifique los estados financieros de una empresa en marcha, en la cual sólo se requiere verificar la concordancia de los datos suministrados por la administración de la empresa con los registros formales de la misma, se aplicará una tarifa mínima de ¢100.228,33 (cien mil doscientos veintiocho colones con treinta y tres céntimos).
+b) En los casos en que se requiera la actuación de un Contador Público Autorizado para certificar hechos concretos tales como: Certificaciones de Solvencia, de Capital Accionario, de Pasivos, de estados de cuentas corrientes y otros afines, en donde no se solicita la opinión acerca de la razonabilidad de los estados financieros, sino más bien la entidad, contenido, registro, documentación o concordancia del hecho que habrá de hacerse constar en la certificación, se aplicará una tarifa mínima de ¢80.182,33 (ochenta mil ciento ochenta y dos colones con treinta y tres céntimos).
+C. En cuanto a las actuaciones que no tengan por objeto la opinión formal del Contador Público Autorizado sobre la razonabilidad de los estados financieros de la empresa tomados en su conjunto, sino más bien referidas a los siguientes estudios especiales: revisiones, análisis o estudios especiales sobre determinadas cuentas, áreas o partes de un estado financiero, estudios o revisiones de los sistemas de control interno, estudios y análisis de carácter estadístico tendientes a plasmar la evolución económica o financiera de una empresa, o bien, de clasificación contable de estados financieros de una entidad la tarifa mínima para esta clase de servicios será de ¢12.027,26 (doce mil veintisiete colones con veintiséis céntimos) por hora profesional.
+(Corregido el inciso anterior mediante Fe de Erratas y publicada en La Gaceta N° 231 del 1° de diciembre de 2016, página 72. Anteriormente dicho inciso disponía lo siguiente: “En cuanto a las actuaciones que no tengan por objeto la opinión formal del Contador Público Autorizado sobre la razonabilidad de los estados financiero de la empresa tomados en su conjunto, sino más bien referidas a los siguientes estudios especiales: revisiones, análisis o estudios especiales sobre determinadas cuentas, áreas o partes de un estado financiero, estudios o revisiones de los sistemas de control interno, estudios y análisis de carácter estadístico tendientes a plasmar la evolución económica o financiera de una empresa, o bien, de clasificación contable de estados financieros de una entidad la tarifa mínima para esta clase de servicios será de ¢12.027,26 (doce mil veintisiete colones con veintiséis céntimos).”)
+d) En cualquier otra actuación profesionales no considerada en los artículos anteriores se aplicará una tarifa mínima de ¢12.027,26 (doce mil veintisiete colones con veintiséis céntimos) hora profesional.
+(Así reformado mediante acuerdo N° 191 de la sesión N° 10 del 9 de marzo de 2015)
