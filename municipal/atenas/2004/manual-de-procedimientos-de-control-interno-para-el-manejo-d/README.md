@@ -15,3 +15,4 @@ Manual de Procedimientos de Control Interno para el Manejo de la Caja Chica.
 | --- | --- | --- |
 | 1 | 2004-12-10 | la propia norma |
 | 2 | 2012-10-23 | Reglamento municipal 0 (2012-10-23) |
+| 3 | 2015-03-09 | Reglamento municipal 414 (2015-03-09) |
