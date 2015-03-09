@@ -30,8 +30,9 @@ El costo por reposición de llaves y cambio de llavín será asumido totalmente 
 $25.00 por examinar cada video de seguridad.
 Nota:
 Se cobra esta comisión por cada video revisado en cassette o digital.
-9.9.- Trámite de licencias y pasaporte
-$ 6.00
+9.9.- Trámite de licencias, pasaportes y Dimex
+$ 7.00
+(Así reformado el punto 9.9 anterior en sesión N° 11 del 9 de marzo de 2015)
 Aspectos generales
 1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
 2. Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
