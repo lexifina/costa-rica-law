@@ -13,3 +13,4 @@ Modificación de la circular N° 150-2004 sobre “Debida comunicación al Organ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-11 | la propia norma |
+| 2 | 2015-03-09 | Circular 44 (2015-03-09) |
