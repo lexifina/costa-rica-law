@@ -1,0 +1,1 @@
+Artículo 3º—Nombrar al señor Quince Duncan Moodie, portador de la cédula de identidad número 1-0281-0201, como Comisionado de la Presidencia de la República para Asuntos Relacionados con la Comunidad Afrocostarricense. La sede del Comisionado será la Presidencia de la República.

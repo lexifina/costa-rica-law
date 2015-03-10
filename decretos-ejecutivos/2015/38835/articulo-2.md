@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a todas las instituciones públicas y/o privadas a que, dentro de sus posibilidades y sin afectar el cumplimiento de sus propios objetivos, apoyen el trabajo que desarrollará el Comisionado.
