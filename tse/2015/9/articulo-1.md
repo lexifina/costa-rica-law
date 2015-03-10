@@ -1,0 +1,17 @@
+Nº 9-2015
+EL TRIBUNAL SUPREMO DE ELECCIONES
+Con fundamento en lo dispuesto por los artículos 99 y 102 inciso 10) de la Constitución Política y 12 inciso ñ) del Código Electoral.
+Decreta la siguiente:
+REFORMA AL ARTÍCULO 11 DEL REGLAMENTO
+AUTÓNOMO DE SERVICIOS DEL TRIBUNAL
+SUPREMO DE ELECCIONES
+Artículo 1º—Refórmase el artículo 11 del “Reglamento Autónomo de Servicios del Tribunal Supremo de Elecciones”, decreto Nº 3-1996 del 9 de setiembre de 1996, publicado en La Gaceta Nº 201 del 21 de octubre de 1996 y sus reformas, para que se lea de la siguiente manera:
+“Se exonerará de la obligación de registrar la asistencia a todo funcionario que tenga como mínimo quince años de laborar para el Tribunal Supremo de Elecciones, siempre y cuando haya sido cumplido con su asistencia y puntualidad, lo cual será verificado por el Departamento de Recursos Humanos con base en los siguientes parámetros que debe cumplir:
+a) Que no consten en su expediente personal más de tres amonestaciones escritas por año, ni sanciones de suspensión de labores por llegadas tardías, omisiones de marca, abandono de trabajo o ausencias injustificadas, durante los últimos cinco años continuos de servicio en el Tribunal y,
+b) Que el resultado de sus calificaciones anuales de servicio durante los últimos cinco años no sea inferior a “muy bueno”. También podrá otorgarse este beneficio a aquellos funcionarios que hayan servido como mínimo cinco años continuos en el Tribunal Supremo de Elecciones y diez años o más en una o varias instituciones del sector público incluyendo el mismo Tribunal y además cumplan con los parámetros dispuestos en los incisos a) y b) anteriores.
+Además, podrán obtener excepcionalmente este beneficio de forma temporal, los funcionarios que se encuentren en cualquiera de los siguientes supuestos y mientras subsista la causa:
+a) A las funcionarias de la institución durante todo el período de gestación, previa acreditación ante el Departamento de Recursos Humanos de su condición de embarazo mediante la correspondiente certificación médica emitida por las autoridades competentes de la Caja Costarricense de Seguro Social.
+b) Cuando el funcionario tenga un padecimiento de salud terminal, con base en una certificación médica extendida por la Caja Costarricense de Seguro Social, situación que el beneficiario o beneficiaria deberá acreditar al menos cada seis meses ante el Departamento de Recursos Humanos.
+El beneficio contemplado en todos los supuestos antes señalados, podrá empezar a disfrutarse a partir del día siguiente de la comunicación de otorgamiento por parte del Departamento de Recursos Humanos.
+Es obligación de las jefaturas inmediatas de las personas funcionarias a quienes se les otorgue el beneficio de exoneración del registro de asistencia, comunicar al Departamento de Recursos Humanos cualquier incumplimiento por parte de sus subalternos con respecto a sus obligaciones de asistencia y puntualidad, con el propósito de que se apliquen las sanciones correspondientes, previo desarrollo del procedimiento administrativo previsto en la Ley General de la Administración Pública. La imposición de alguna sanción como consecuencia del procedimiento citado será causal para que el Departamento de Recursos Humanos revoque el beneficio otorgado.
+Quien disfrute de este beneficio no estará exento de cumplir con la aplicación de la normativa atinente en materia de permisos, licencias y demás obligaciones laborales.”.
