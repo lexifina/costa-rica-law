@@ -1,0 +1,1 @@
+8. Artículo 14 “Pólizas del Instituto Nacional de Seguros u Otras Entidades Aseguradoras: Se agrega el siguiente texto al final del párrafo segundo: La póliza no será necesaria, cuando el 85% del valor del terreno, cubre el monto del crédito solicitado.” Acuerdo firme.
