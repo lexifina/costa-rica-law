@@ -1,0 +1,1 @@
+Artículo 15.—Fiscalización. El Fiscal y la Auditoría Interna del Colegio fiscalizarán, en el momento que lo crean oportuno, el cumplimiento de lo dispuesto en el presente Reglamento y demás ordenamiento jurídico que rige la presente materia.

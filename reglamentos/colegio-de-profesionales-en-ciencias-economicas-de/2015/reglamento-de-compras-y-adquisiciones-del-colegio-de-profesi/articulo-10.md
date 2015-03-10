@@ -1,0 +1,3 @@
+Artículo 10.—Funciones del Departamento de Tecnologías de Información. Son funciones del Departamento de Tecnologías de Información, en materia de compras y adquisiciones del Colegio, las siguientes:
+a) Proponer un plan anual de compras de acuerdo con las necesidades propias del área de tecnología, así como desarrollar y mantener programas integrados de cómputo que contribuyan al diseño, rediseño, evaluación y control del sistema de compras y adquisiciones.
+b) Asesorar y colaborar con la Dirección Ejecutiva y del Director Financiero Administrativo del Colegio en las competencias asignadas en materia de compras y adquisiciones.
