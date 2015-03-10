@@ -1,0 +1,1 @@
+Artículo 34.—La revisión y supervisión de los centros de votación la hará quien esté ejerciendo la Presidencia. Los fiscales designados por los candidatos podrán formular sus observaciones al Presidente.

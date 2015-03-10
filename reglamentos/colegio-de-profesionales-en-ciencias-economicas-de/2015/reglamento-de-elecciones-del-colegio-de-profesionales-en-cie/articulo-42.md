@@ -1,0 +1,1 @@
+Artículo 42.—Los colegiados electos a la junta directiva serán juramentados ante la asamblea general por quien preside la asamblea. En caso de que quien preside la asamblea general esté ausente al momento de la juramentación, será sustituido por el Presidente del Tribunal de Elecciones.

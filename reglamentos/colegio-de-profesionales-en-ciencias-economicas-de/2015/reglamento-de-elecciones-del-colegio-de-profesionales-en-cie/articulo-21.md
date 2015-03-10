@@ -1,0 +1,1 @@
+Artículo 21.—Queda prohibido a los miembros de la junta directiva, Consejos Directivos de las Filiales, Junta Administrativa del Fondo de Mutualidad y Subsidios, trabajadores del Colegio, Miembros de Órganos Consultivos y Comisiones realizar campaña o actos de proselitismo a favor de los candidatos en el proceso de elección.

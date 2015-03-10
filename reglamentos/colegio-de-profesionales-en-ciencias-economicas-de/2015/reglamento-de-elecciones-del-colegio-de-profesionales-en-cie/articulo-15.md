@@ -1,0 +1,1 @@
+Artículo 15.—El Padrón Electoral, estará conformado por los profesionales inscritos en este y habilitados para ejercer el voto, más los miembros incorporados a más tardar ocho días naturales antes de la fecha designada para la celebración de la asamblea general.

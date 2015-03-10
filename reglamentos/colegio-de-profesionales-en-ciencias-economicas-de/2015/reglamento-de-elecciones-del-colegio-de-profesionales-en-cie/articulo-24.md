@@ -1,0 +1,1 @@
+Artículo 24.—Los candidatos podrán realizar proselitismo y propaganda para su elección, tales como charlas, mesas redondas, reuniones, propaganda por vía electrónica, publicaciones en redes sociales y correo.

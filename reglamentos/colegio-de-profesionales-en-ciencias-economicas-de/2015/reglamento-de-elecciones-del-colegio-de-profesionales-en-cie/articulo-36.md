@@ -1,0 +1,2 @@
+Artículo 36.—Para ejercer el voto electrónico el elector deberá solicitar la clave, ingresando su número de cédula de identidad al sistema, el cual verificará sus datos en el padrón, y enviarán el código de acceso al correo electrónico.
+Para ejercer el voto en forma física cuando corresponda, el elector se presentará con su cédula de identidad, carné de colegiado u otro medio de identificación oficial ante la Junta Receptora, la cual verificará su nombre en el padrón.

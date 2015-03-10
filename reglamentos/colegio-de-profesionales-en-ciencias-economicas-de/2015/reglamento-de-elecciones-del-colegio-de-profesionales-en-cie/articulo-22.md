@@ -1,0 +1,1 @@
+Artículo 22.—Queda prohibido el día de las elecciones, mientras no haya finalizado la asamblea general, consumir bebidas alcohólicas o sustancias psicotrópicas en las sedes administrativas donde se dispongan centros de votación del Colegio.

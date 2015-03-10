@@ -1,0 +1,1 @@
+Artículo 2º—La asamblea general es el órgano máximo del Colegio de Profesionales en Ciencias Económicas de Costa Rica, y como tal le corresponde elegir a los miembros de junta directiva y a los suplentes.

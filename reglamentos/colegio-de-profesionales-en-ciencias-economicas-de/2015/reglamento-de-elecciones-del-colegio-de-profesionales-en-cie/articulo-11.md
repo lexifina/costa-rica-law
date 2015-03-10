@@ -1,0 +1,2 @@
+Artículo 11.—Los colegiados del Tribunal de Elecciones con más de tres ausencias injustificadas continuas a sesiones o cinco alternas que hayan sido debidamente convocadas, ocurridas dentro del plazo de un año, quedarán excluidos y serán sustituidos por el tiempo que le reste de su nombramiento.
+Para esos efectos la junta directiva adoptará el acuerdo correspondiente, previa audiencia al afectado.

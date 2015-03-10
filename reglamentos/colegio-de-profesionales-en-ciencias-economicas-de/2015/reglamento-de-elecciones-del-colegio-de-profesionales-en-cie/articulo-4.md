@@ -1,0 +1,1 @@
+Artículo 4º—La asamblea general ordinaria para elegir a los miembros de junta directiva, deberá realizarse en la segunda quincena de junio de cada año. En caso de separación definitiva de alguno de los miembros, la junta directiva convocará a asamblea general Extraordinaria para nombrar al sustituto.

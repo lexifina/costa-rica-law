@@ -1,0 +1,1 @@
+Artículo 29.—En los centros de votación podrán apersonarse fiscales designados por los candidatos, quienes verificarán los procedimientos y solicitarán aclaraciones o pronunciamientos tanto a los delegados como a los integrantes del Tribunal. Para tal efecto, cada candidato podrá nombrar un fiscal propietario y un suplente.

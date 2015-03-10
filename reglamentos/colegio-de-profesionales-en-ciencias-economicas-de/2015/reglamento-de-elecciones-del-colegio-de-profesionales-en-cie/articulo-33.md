@@ -1,0 +1,1 @@
+Artículo 33.—Una vez finalizada el proceso electoral, dentro del centro de votación sólo podrán permanecer los fiscales, los delegados, los miembros del Tribunal de Elecciones y el personal expresamente autorizado.

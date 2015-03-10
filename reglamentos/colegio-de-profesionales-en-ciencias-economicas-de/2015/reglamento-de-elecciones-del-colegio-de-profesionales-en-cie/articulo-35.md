@@ -1,0 +1,4 @@
+Artículo 35.—El escrutinio de los votos se hará por el Tribunal de Elecciones, extrayendo los resultados finales del sistema utilizado.
+En caso de requerirse, en las filiales y en las oficinas administrativas, el resultado deberá ser comunicado por el Presidente del centro de votación, al Tribunal de Elecciones por cualquier medio autorizado por éste, de forma inmediata y oportuna el mismo día de la elección.
+Una vez iniciado el escrutinio de los votos emitidos, no se podrá abandonar el lugar correspondiente por parte de ninguno de los presentes, salvo en casos de fuerza mayor o que se tratare de uno de los MIEMBROS del Tribunal de Elecciones. Ninguno de los presentes en el escrutinio, deberá dar información en relación con el resultado.
+Quien faltare a las disposiciones del Tribunal podrá ser denunciado ante el Tribunal de Honor.

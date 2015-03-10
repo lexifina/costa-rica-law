@@ -1,0 +1,1 @@
+Artículo 27.—El Tribunal de Elecciones dispondrá y autorizará el lugar o medio de votación tanto dentro de la sede del Colegio como en las Filiales u oficinas administrativas que se dispongan para ese efecto.

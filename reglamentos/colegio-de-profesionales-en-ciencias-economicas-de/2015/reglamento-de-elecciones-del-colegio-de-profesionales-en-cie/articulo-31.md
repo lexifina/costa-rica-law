@@ -1,0 +1,1 @@
+Artículo 31.—La votación en todos los centros dará inicio a la hora y la fecha señalada en la convocatoria. Antes de iniciarse el proceso de elección, los delegados y el Tribunal de Elecciones comprobarán que cada centro cuente con el padrón y todo el material y equipo necesario para la realización del acto.

@@ -1,0 +1,1 @@
+Artículo 6º—No podrán ser electores los colegiados que por razones justificadas no aparezcan dentro del Padrón Electoral el día de las elecciones. Lo anterior, sin perjuicio de las responsabilidades que puedan exigirse a los colegiados y funcionarios del Colegio, si se determinara la existencia de dolo o error inexcusable en la no inclusión de una persona dentro de dicho padrón.
