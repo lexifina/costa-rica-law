@@ -14,3 +14,4 @@ Instrucciones Regulatorias para la Atención y Resolución Efectiva de Reclamaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-20 | la propia norma |
+| 2 | 2015-03-11 | Resolución 38 (2015-03-11) |
