@@ -1,0 +1,1 @@
+Artículo 2°—Las organizaciones interesadas en beneficiarse de los servicios de utilidad pública deberán inscribirse ante el Registro Judicial, quien será el responsable de llevar el listado de ellas según lo dispuesto por el Consejo Superior del Poder Judicial en el artículo número LXVI de la sesión 2-13 del 10 de enero del 2013.

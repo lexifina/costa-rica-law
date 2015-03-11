@@ -1,0 +1,1 @@
+Artículo 7°—Sin perjuicio de las facultades expresamente asignadas por el artículo 56 bis del Código Penal a la Dirección General de Adaptación Social, también el defensor, el fiscal y el juez de ejecución de la pena deberán velar por el respeto de los derechos fundamentales y lo dispuesto en el Código Procesal Penal.

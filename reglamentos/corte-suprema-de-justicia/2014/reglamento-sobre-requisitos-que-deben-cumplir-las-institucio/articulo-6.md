@@ -1,0 +1,1 @@
+Artículo 6°—El control de la ejecución del servicio de utilidad pública impuesto por la persona juzgadora, le corresponde ejecutarlo a la Dirección General de Adaptación Social, función que coordinará con las entidades a cuyo favor se prestará el servicio, conforme a lo dispuesto en el artículo 56 bis del Código Penal.

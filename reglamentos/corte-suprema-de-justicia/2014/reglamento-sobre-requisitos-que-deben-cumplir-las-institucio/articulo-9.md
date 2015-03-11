@@ -1,0 +1,1 @@
+Artículo 9°—El servicio de utilidad pública que imponga el juez se prestará en los lugares, los horarios y el plazo que éste determine, según la fase en que se encuentre el proceso. El juez procurará, al establecer el horario de servicio, no interrumpir la jornada laboral habitual de la persona condenada, si posee trabajo o si asiste a un centro educativo.

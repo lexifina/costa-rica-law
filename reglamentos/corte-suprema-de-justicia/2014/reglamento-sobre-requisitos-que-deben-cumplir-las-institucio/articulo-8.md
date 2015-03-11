@@ -1,0 +1,1 @@
+Artículo 8°—Si el Juez de Ejecución de la Pena comprobare que alguna de las instituciones señaladas en el artículo 3 de este Reglamento favorecen el incumplimiento de la pena, o dificultan el control de su ejecución, informarán de esa situación al Consejo Superior para que sean excluidas del registro pertinente.
