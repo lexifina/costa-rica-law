@@ -1,2 +1,0 @@
-Artículo 19.—Registros auxiliares para cuentas corrientes: Para cada cuenta corriente habrá un registro auxiliar que servirá para llevar el control del saldo diario.
-Todos los cheques, sin excepción deberán ser registrados, incluyendo los anulados, en dichos auxiliares en el momento en que son emitidos. Lo mismo deberá hacerse con los depósitos, notas de débito y notas de crédito emitidas por los bancos.

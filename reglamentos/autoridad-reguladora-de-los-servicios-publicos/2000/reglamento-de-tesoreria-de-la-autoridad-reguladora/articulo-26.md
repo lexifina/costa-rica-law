@@ -1,1 +1,0 @@
-Artículo 26.—Remisión de pólizas de seguros a la Tesorería: Para efectos de su pago oportuno, el Departamento de Servicios Generales remitirá a la Oficina de Tesorería detalle de los documentos custodiados de pólizas de seguros, indicando el tipo de pólizas, monto asegurado, fecha de vencimiento y coberturas.

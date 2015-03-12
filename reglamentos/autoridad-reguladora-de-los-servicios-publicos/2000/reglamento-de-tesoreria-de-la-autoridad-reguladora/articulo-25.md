@@ -1,1 +1,0 @@
-Artículo 25.—Registro y control de documentos de garantía: La Tesorería llevará un registro adecuado para el control de la existencia de los documentos de garantías recibidas. Asimismo, la Oficina de Proveeduría informará a la Oficina de Tesorería, en cada licitación, de cual fue la empresa adjudicada y las empresas a las cuales se les debe devolver la garantía de participación.

@@ -1,4 +1,0 @@
-Artículo 3º—Acceso a los recintos de la Tesorería: En resguardo de la responsabilidad del Tesorero y su personal, la entrada de otros funcionarios de la Institución y particulares al área de la Tesorería se regirá por lo siguiente:
-a) Con respecto a la planta física de la Tesorería, a la misma pueden ingresar únicamente los siguientes funcionarios: El personal de la Tesorería, el mensajero o quien lo sustituya, el Jefe del Departamento de Finanzas, la Directora de la Dirección Administrativa - Financiera, el Auditor Interno o sus delegados y, funcionarios de la Contraloría General de la República.
-b) Dentro del local de caja, las terceras personas deben estar acompañadas por el cajero en turno.
-c) Dentro de la bóveda o local de la caja fuerte, las terceras personas deben estar acompañadas por el Tesorero, el Jefe del Departamento de Finanzas o la Directora de la Dirección Administrativa - Financiera.

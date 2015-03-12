@@ -1,1 +1,0 @@
-Artículo 6º—Obligación de tomar precauciones: Es obligación del Tesorero y del personal de la Tesorería, tomar las medidas necesarias para proteger los valores bajo su custodia, de los riesgos normales previsibles.

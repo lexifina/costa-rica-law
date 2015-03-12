@@ -1,1 +1,0 @@
-Artículo 17.—Comprobantes de cheques: Todos los comprobantes que amparan los cheques deberán ser marcados con un sello que diga: "Pagado con cheque Nº ....... fecha ............." (los espacios en blanco anteriores se llenarán oportunamente y antes de ser enviados los cheques a firmar).

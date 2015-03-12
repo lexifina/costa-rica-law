@@ -1,1 +1,0 @@
-Artículo 29.—Informe de fecha de vencimiento de documentos: De los controles descritos, la Tesorería informará con suficiente anticipación, a la Jefatura del Departamento de Finanzas sobre las fechas de vencimiento de los diferentes documentos, para los efectos correspondientes.

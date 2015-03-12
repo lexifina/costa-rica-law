@@ -1,2 +1,0 @@
-Artículo 9º—Encargado de la recaudación de ingresos: La recaudación de los ingresos lo hará únicamente la Tesorería por medio de la Caja General y por medio de la cuenta corriente.
-Por todo ingreso recibido en las oficinas de la Autoridad Reguladora, se emitirá un comprobante en formularios prenumerados consecutivamente y autorizados al efecto. Los recibos anulados deberán tener el visto bueno de la jefatura de la Tesorería e indicar el motivo de su anulación. El original se remitirá a la Oficina de Contabilidad y la copia se archivará en el consecutivo de la Tesorería.
