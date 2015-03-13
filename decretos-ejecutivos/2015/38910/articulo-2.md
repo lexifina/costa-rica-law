@@ -1,0 +1,2 @@
+Artículo 2º—La modificación indicada en el artículo anterior es por un monto de trescientos cinco millones de colones sin céntimos (¢305.000.000,00) y su desglose en el nivel de programa y subpartida presupuestaria estará disponible en la página electrónica del Ministerio Hacienda en la siguiente dirección: www.hacienda. go.cr (Modificaciones Presupuestarias), y en forma impresa, en los archivos que se custodian en la Dirección General de Presupuesto Nacional.
+[imagen]
