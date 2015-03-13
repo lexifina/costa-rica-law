@@ -14,3 +14,4 @@ Procedimientos para la aplicación y seguimiento de las directrices generales de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-30 | la propia norma |
+| 2 | 2015-03-13 | Decreto Ejecutivo 38916 (2015-03-13) |
