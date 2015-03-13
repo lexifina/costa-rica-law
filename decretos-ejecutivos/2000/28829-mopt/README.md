@@ -14,3 +14,4 @@ Reforma al Reglamento de la Ley Reguladora de estacionamientos Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-08-14 | la propia norma |
+| 2 | 2015-03-13 | SINALEVI (sin norma nombrada) |
