@@ -15,3 +15,4 @@ Reglamento a la Ley Reguladora de Estacionamientos Públicos
 | --- | --- | --- |
 | 1 | 1999-04-21 | la propia norma |
 | 2 | 2000-07-28 | Decreto Ejecutivo 28829 (2000-07-28) |
+| 3 | 2015-03-13 | SINALEVI (sin norma nombrada) |
