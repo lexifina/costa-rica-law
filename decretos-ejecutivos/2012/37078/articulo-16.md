@@ -1,2 +1,0 @@
-Artículo 16.—La institución deberá realizar los ajustes producto de la revisión efectuada por la STAP, los cuales deben contar con la aprobación definitiva del jerarca supremo o ejecutivo según corresponda, entendiéndose por “aprobación definitiva”, la que resulta después de finalizado el proceso de verificación por parte de la STAP.
-Terminado el proceso de verificación por parte de la STAP, la valoración derivada del manual de clases se somete a conocimiento de la AP, para que resuelva y emita el acuerdo respectivo, el cual se le comunicará a la administración activa.

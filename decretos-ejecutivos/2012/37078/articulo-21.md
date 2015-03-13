@@ -1,1 +1,0 @@
-Artículo 21.—Los incisos b), d) y f) del artículo anterior de estos Procedimientos, también serán aplicables a los puestos de confianza de los Ministerios, contenidos en el inciso f) artículo 4º del Estatuto de Servicio Civil.
