@@ -1,1 +1,0 @@
-Artículo 4º—Por tratarse de un reconocimiento que se realiza de manera regular, se autoriza la presentación semanal de las liquidaciones de viáticos correspondientes, sin que para su trámite efectivo sea requerida la presentación de facturas.
