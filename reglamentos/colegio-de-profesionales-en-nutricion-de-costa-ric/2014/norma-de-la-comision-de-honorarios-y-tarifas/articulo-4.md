@@ -1,0 +1,2 @@
+Artículo 4.
+Se entiende como “tarifas de honorarios profesionales”, el honorario que se debe cobrar por parte de los profesionales en Nutrición por los servicios profesionales que brinda. Se entiende por salario profesional el que debe percibir el profesional por la jornada laboral conforme lo señala el Código de Trabajo y no podrá ser inferior al salario mínimo establecido por el Poder Ejecutivo.

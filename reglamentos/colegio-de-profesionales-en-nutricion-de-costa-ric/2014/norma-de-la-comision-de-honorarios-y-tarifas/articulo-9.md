@@ -1,0 +1,2 @@
+Artículo 9.
+El incumplimiento de las tarifas por parte de los colegiados es violación al Código de Ética, por lo que la Fiscalía podrá actuar de oficio levantando la información correspondiente a efecto de ponerla en conocimiento de la Junta Directiva para los efectos pertinentes.
