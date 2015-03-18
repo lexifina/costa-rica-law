@@ -1,0 +1,1 @@
+Artículo 13.—Revocación. En caso que en las actividades, eventos, proyectos o productos declarados de interés cultural, se incurran o propicien las conductas descritas en los incisos del b) al i) del artículo 4 del presente reglamento, el Poder Ejecutivo revocará de inmediato la declaratoria.

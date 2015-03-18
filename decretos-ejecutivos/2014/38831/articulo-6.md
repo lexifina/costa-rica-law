@@ -1,0 +1,3 @@
+Artículo 6º—Trámite de la solicitud. Para iniciar el trámite, el solicitante deberá entregar en la Dirección de Cultura, la documentación completa indicada en el artículo anterior.
+Una vez recibida la solicitud, se procederá en un plazo máximo de cinco días hábiles, a la revisión de admisibilidad, a efecto de corroborar que cumple con los requisitos establecidos. Si no los cumpliese, se prevendrá al solicitante, el subsane de los requisitos incompletos o inexactos, otorgándole un plazo de diez días hábiles para aportar lo requerido, contados a partir del primer día hábil siguiente a la notificación de la prevención.
+En caso que el solicitante no subsane lo requerido, su solicitud será archivada, sin responsabilidad para el Ministerio de Cultura y Juventud.

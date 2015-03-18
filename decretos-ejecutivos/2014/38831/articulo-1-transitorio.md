@@ -1,0 +1,1 @@
+Transitorio único.—Las solicitudes presentadas de previo a la entrada en vigencia del presente reglamento, continuarán su trámite en la forma previamente establecida por la Dirección de Cultural, hasta su finalización.
