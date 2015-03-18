@@ -1,0 +1,1 @@
+Artículo 18.—Las Jefaturas inmediatas en coordinación con la Unidad de Salud Ocupacional, brindarán las instrucciones sobre el cuidado, uso y manipulación del uniforme y equipo que deba utilizar cada trabajador durante el desarrollo de sus funciones, con el fin de prevenir y reducir accidentes o enfermedades laborales.

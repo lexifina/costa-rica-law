@@ -1,0 +1,15 @@
+Artículo 2º—Definiciones. Para una mejor comprensión y procurar el correcto cumplimiento de las disposiciones de este Reglamento, se entenderá por:
+a. Accidente de trabajo: Se denomina accidente de trabajo a todo accidente que le suceda al trabajador como causa de la labor que ejecuta o como consecuencia de ésta, durante el tiempo que permanece bajo la dirección y dependencia del patrono o sus representantes, y que puede producirle la muerte o pérdida o reducción, temporal o permanente de la capacidad para el trabajo.
+También se clasificará de accidente de trabajo, el que ocurra al trabajador bajo las siguientes circunstancias:
+a) En el trayecto usual de su domicilio al trabajo y viceversa, cuando el recorrido que efectúa no haya sido interrumpido o variado por motivo de su interés personal, siempre que el patrono proporcione directamente o pague el transporte, igualmente cuando en el acceso al centro de trabajo deban afrontarse peligros de naturaleza especial, que se consideren inherentes al trabajo mismo. En todos los demás casos de accidente en el trayecto, cuando el recorrido que efectúe el trabajador no haya sido variado por interés personal de éste, las prestaciones que se cubran serán aquellas estipuladas en este Código y que no hayan sido otorgadas por otros regímenes de seguridad social, parcial o totalmente.
+b) En el orden de cumplimiento de órdenes del patrono o en la prestación de un servicio bajo su autoridad, aunque el accidente ocurra fuera del lugar de trabajo y después de finalizada la jornada.
+c) En el curso de una interrupción del trabajo, antes de empezarlo o después de terminarlo, si el trabajador se encontrare en el lugar de trabajo o en el local de la empresa, establecimiento o explotación, con el consentimiento expreso o tácito del patrono o de sus representantes.
+d) Al prestar los auxilios necesarios en caso de siniestro o riesgo inminente en que las personas o intereses del patrono, o algún compañero de trabajo estén en peligro.
+b. Enfermedad del trabajo: Todo estado patológico que resulte de la acción continúa de una causa que tiene su origen o motivo en el propio servicio o en el medio o condiciones en que el trabajador labora y en el que deberá establecerse que ha sido la causa de la enfermedad.
+c. Riesgos del trabajo: Accidentes y enfermedades que ocurran a los funcionarios, con ocasión o por consecuencia de la función que desempeñen en forma subordinada y remunerada, así como la agravación y reagravación que resulte como consecuencia directa, inmediata e indudable de esos accidentes y enfermedades.
+d. Salud ocupacional: Responsabilidad social, moral y legal que tiene la persona empleadora en cuanto a adoptar en el centro de trabajo actividades que conlleven a:
+1. Promover y conservar la salud de la persona trabajadora.
+2. Prevenir todo daño que las condiciones de trabajo pudieran causar a la persona trabajadora.
+3. Proteger la salud ante los riesgos nocivos que resulten de las condiciones de trabajo.
+4. Garantizar a la persona trabajadora un empleo acorde con sus capacidades fisiológicas y sicológicas.
+5. Adaptar las condiciones de la tarea a la persona trabajadora.

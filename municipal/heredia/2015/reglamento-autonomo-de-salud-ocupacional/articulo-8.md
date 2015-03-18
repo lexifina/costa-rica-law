@@ -1,0 +1,3 @@
+Artículo 8º—Las Comisiones de Salud Ocupacional se conformarán con la finalidad de que investiguen las causas de los riesgos del trabajo, recomienden las medidas para prevenirlos, vigilen que en el centro de trabajo se cumplan las disposiciones de salud ocupacional y promuevan la capacidad en esta materia a la Administración y funcionarios.
+Las labores serán desempeñadas dentro de la jornada de trabajo y excepcionalmente fuera ella cuando existan circunstancias que así lo requieran. La participación deberá darse sin menoscabo o perjuicio de ningún derecho laboral del servidor, ni de las funciones ordinarias que realiza.
+*Dictamen médico, motivo justificado a juicio técnico.

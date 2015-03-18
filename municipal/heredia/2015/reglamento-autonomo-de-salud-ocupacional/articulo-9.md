@@ -1,0 +1,1 @@
+Artículo 9º—La conformación, elección, organización y funciones de las Comisiones estarán sujetas a las disposiciones del Reglamento de Comisiones de Salud Ocupacional, Decreto Ejecutivo N° 18379-TSS.
