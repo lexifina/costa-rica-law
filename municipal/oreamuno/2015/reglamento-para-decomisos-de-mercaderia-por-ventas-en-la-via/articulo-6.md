@@ -1,0 +1,1 @@
+Artículo 6°—De la inspección municipal. La Municipalidad por medio de sus funcionarios y/o habilitadas al efecto, podrá ejercer las labores de inspección que considere oportunas, para el fiel cumplimiento del presente Reglamento y cuando sea el caso colaborar con las autoridades judiciales conforme lo establece el artículo 198 del Código Procesal Penal y siguientes concordantes.

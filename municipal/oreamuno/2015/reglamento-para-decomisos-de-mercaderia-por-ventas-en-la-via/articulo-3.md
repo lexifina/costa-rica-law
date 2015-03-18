@@ -1,0 +1,1 @@
+Artículo 3°—La Municipalidad se reserva el derecho de reubicar la feria del agricultor, cuando las condiciones del tránsito o peatones lo ameriten, o cuando la construcción de obra nueva lo requiera, por razones de seguridad, en casos de emergencia, o por cumplimiento de una norma vigente o cualquier otra causa a juicio de la Municipalidad de Oreamuno.

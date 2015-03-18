@@ -1,0 +1,1 @@
+Artículo 17.—Denuncias ante los órganos jurisdiccionales. La Municipalidad procederá a denunciar ante los órganos jurisdiccionales competentes en los casos contemplados en el artículo 13º y 14º de este Reglamento.

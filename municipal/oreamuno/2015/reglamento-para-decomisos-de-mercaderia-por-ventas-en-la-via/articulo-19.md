@@ -1,0 +1,1 @@
+Artículo 19.—Recursos. Contra los actos que emanen del decomiso de mercadería, suspensión y cancelación de patentes por parte de la Unidad Tributaria Municipal, procederán los recursos ordinarios de revocatoria y apelación, establecidos en el artículo 162 del Código Municipal.

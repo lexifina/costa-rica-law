@@ -1,0 +1,1 @@
+Artículo 8°—Coordinación. Deberá haber siempre una coordinación entre el Centro Agrícola Cantonal y la Municipalidad de Oreamuno, cada vez que se otorguen patentes para la venta de productos en la feria del agricultor, así como revisarse las mismas en conjunto, una vez al mes.
