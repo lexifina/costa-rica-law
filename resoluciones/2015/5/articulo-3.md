@@ -1,0 +1,1 @@
+Artículo 3°—Personería jurídica. Toda persona jurídica, que deba realizar un trámite de inscripción, modificación de datos y desinscripción ante la Dirección General de Tributación, debe aportar una certificación de personería jurídica, para lo cual deben considerar la vigencia de la misma, conforme se establece en el Reglamento de Procedimientos Tributarios.
