@@ -14,3 +14,4 @@ Requisitos a cumplir para el registro de oferentes de medicamentos Biotecnológi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-02 | la propia norma |
+| 2 | 2015-03-18 | Acuerdo 0 (2015-03-18) |
