@@ -1,0 +1,1 @@
+Artículo 2º—El integrante de la Junta de Gobierno o el funcionario administrativo delegado, enviará en la sesión posterior al acto de autenticación la lista de médicos y la referencia de la naturaleza del documento que cuya firma se ha autenticado.
