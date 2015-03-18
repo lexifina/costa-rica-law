@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. Toda entidad u órgano contemplada en el artículo 1 deberá remitir a esta Dirección los resultados de las auditorías externas que se realizan de los respectivos estados financieros, para efectos de disponer y analizar dicha información.

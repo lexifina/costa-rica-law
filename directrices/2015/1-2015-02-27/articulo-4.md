@@ -1,0 +1,1 @@
+Artículo 4.- Régimen de Responsabilidad. Aquellas entidades y órganos que incumplan con lo indicado en la presente directriz, estarán sujetas a la aplicación del régimen de responsabilidad establecido en el Título X de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley No. 8131.
