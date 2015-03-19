@@ -1,3 +1,1 @@
-CAPÍTULO IX
-Préstamos de documentos
-Artículo 25.—El préstamo de documentos puede hacerse consultas a los funcionados de JAPDEVA, pero no podrán salir de la Institución, salvo en caso de canje exposición requerimiento de los Tribunales de Justicia y de la Contraloría General de la República.
+Artículo 25.—Consulta de documentos: Se podrán consultar todos los documentos, con excepción de los denominados de carácter confidencial de acuerdo con la legislación vigente, a fin de obtener información de interés público y para cumplir con las funciones encomendadas a cada una de las dependencias de la institución, en el cumplimiento de sus funciones.

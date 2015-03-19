@@ -1,6 +1,1 @@
-CAPÍTULO V
-Edificio e instalaciones del Archivo Central
-Artículo 6º—El lugar destinado para el Archivo Central debe estar situado cerca del área donde se encuentran las oficinas administrativas. El archivo debe tener tres áreas bien definidas:
-a. Área Administrativo.
-b. Área de Consulta.
-c. Área de Depósito.
+Artículo 6º—El local destinado al Archivo Central, debe reunir las condiciones necesarias que garanticen la conservación óptima de los documentos. Se tendrán en cuenta: El clima, el grado de humedad relativa del aire, temperatura, polución, luz, insectos; además de adoptarse medidas técnicas para la extinción y prevención de incendios y robos.

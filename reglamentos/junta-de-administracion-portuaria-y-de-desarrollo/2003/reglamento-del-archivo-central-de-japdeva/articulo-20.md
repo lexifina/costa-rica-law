@@ -1,1 +1,1 @@
-Artículo 20.—La Comisión Institucional del Archivo Central, es el órgano encargado para resolver las consultas sobre selección y eliminación de documentos de los entes productores.
+Artículo 20.—Eliminación parcial: Cuando no existan Tablas de Plazos de Conservación de Documentos para una determinada oficina o un tipo documental, la Jefatura en coordinación con el Comité Institucional de Selección y Eliminación, solicitará y promoverán las consultas parciales si se desea eliminar uno o varios tipos documentales que han perdido su valor administrativo y legal.

@@ -14,3 +14,4 @@ Reglamento del archivo central de JAPDEVA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-12-03 | la propia norma |
+| 2 | 2015-03-19 | Reglamento 11 (2015-03-19) |

@@ -1,1 +1,1 @@
-Artículo 17.—El jefe del Archivo Central o su representante, deberá convocar a las reuniones y presidirla.
+Artículo 17.—Convocatoria y quórum: El Jefe del Archivo Central, convocará las reuniones ordinarias una vez cada 6 meses en la fecha y hora que los miembros acuerden o cuando se requiera, presidirá las sesiones, también confeccionará el orden del día. El quórum para que pueda sesionar válidamente el Comité Institucional será el de la mayoría absoluta de sus componentes.

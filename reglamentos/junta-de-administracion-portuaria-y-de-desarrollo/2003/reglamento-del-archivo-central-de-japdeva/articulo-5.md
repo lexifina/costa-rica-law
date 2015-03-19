@@ -1,1 +1,6 @@
-Artículo 5º—El Archivo Central de la Junta de Administración Portuaria y Desarrollo Económico de la Vertiente Atlántica (JAPDEVA), estará a cargo de un profesional con formación universitaria y contará con el personal capacitado, necesario para su buen funcionamiento.
+CAPÍTULO IV
+Edificio e instalaciones del Archivo Central
+Artículo 5º—El lugar destinado para el Archivo Central debe estar situado cerca del área donde se encuentran las oficinas administrativas. El archivo tendrá tres áreas bien definidas:
+a. Área Administrativa.
+b. Área de Consulta.
+c. Área de Depósito.

@@ -1,1 +1,2 @@
-Artículo 15.—Colocar las cajas en estanterías, debidamente clasificadas con números consecutivos.
+Artículo 15.—El Comité Institucional de Selección y Eliminación de Documentos (CISED), de acuerdo con el artículo 33 de la Ley Nº 7202 del Sistema Nacional de Archivos, estará integrado por el Jefe del Archivo Central, el Director Administrativo Portuario, el Asesor Legal y por recomendación del comité, el Jefe Administrativo de la Administración de Desarrollo y el Jefe del Departamento de Informática.
+El Comité Institucional de Selección y Eliminación de Documentos es el único órgano con autorización para la selección y eliminación de documentos en la institución.

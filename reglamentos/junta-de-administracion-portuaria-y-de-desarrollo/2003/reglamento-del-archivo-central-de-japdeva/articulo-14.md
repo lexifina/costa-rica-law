@@ -1,1 +1,3 @@
-Artículo 14.—A cada grupo de carpetas se le aplicará la ordenación utilizada tanto en el archivo central como de gestión (oficinas), que es cronológico, alfabético y numérico.
+CAPÍTULO VII
+Selección de documentos
+Artículo 14.—Este proceso de selección y eliminación de documentos de la institución estará a cargo del Comité Institucional de Selección y Eliminación de Documentos.

@@ -1,0 +1,1 @@
+Artículo 35.—La oficina que produce un documento por medios electrónicos, tiene la responsabilidad de producirlo y resguardarlo en el Archivo de gestión, en el momento que concluya su vida administrativa lo enviará al Archivo Central para su debida conservación.

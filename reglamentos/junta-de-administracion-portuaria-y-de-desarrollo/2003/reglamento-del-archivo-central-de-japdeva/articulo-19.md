@@ -1,1 +1,1 @@
-Artículo 19.—Toda eliminación quedará registrada en un acta que deberá llevar los siguientes datos: número de resolución, fecha, tipo de documento y debe ser firmada por el Comité Institucional.
+Artículo 19.—Tablas de plazos de conservación de documentos: El Archivo Central coordinará con cada Jefatura la elaboración del formulario Tabla de Plazos de Conservación de Documentos. En el formulario se fijará la vigencia administrativa y legal de los documentos aprobados por el Comité.

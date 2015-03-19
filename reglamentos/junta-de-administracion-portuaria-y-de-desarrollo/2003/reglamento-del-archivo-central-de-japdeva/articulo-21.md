@@ -1,1 +1,1 @@
-Artículo 21.—La Comisión Institucional es el único órgano con autorización para la selección y eliminación de documentos en la Institución.
+Artículo 21.—Actas de eliminación documental: Toda eliminación quedará registrada en un acta que deberá llevar los siguientes datos: número de resolución, fecha, tipo documental y deberá ser firmada por cada uno de los miembros del Comité.

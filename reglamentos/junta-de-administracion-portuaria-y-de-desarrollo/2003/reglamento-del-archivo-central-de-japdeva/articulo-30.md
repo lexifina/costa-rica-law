@@ -1,2 +1,1 @@
-Uso del correo electrónico
-Artículo 30.—En materia del uso del correo electrónico, JAPDEVA se regirá mediante las disposiciones reglamentarias que establece el Archivo Nacional de Costa Rica y el Departamento de Cómputo de la Institución.
+Artículo 30.—Compatibilidad y normalización de documentos: El Archivo Central coordinará con el Departamento de Informática el procedimiento para uniformar los medios informáticos para la gestión documental con la finalidad de garantizar la compatibilidad de la información en las diferentes unidades administrativas de la institución.

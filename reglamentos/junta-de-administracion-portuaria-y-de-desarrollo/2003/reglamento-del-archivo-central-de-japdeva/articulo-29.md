@@ -1,1 +1,3 @@
-Artículo 29.—Cualquier ciudadano interesado en consultar documentos lo debe realizar en el mismo Archivo con un horario de 8: 00 a 4:00 p.m. el cual debe firmar en el libro de actas que para tales casos pondrá a su disposición el Archivo, en este libro deberá constar la fecha y hora; así como el tipo de servicio brindado.
+CAPÍTULO X
+Digitalización y microfilmación
+Artículo 29.—Digitalización: La digitalización de documentos se realizará únicamente en el Archivo Central, se regirá por la “Directriz con las regulaciones técnicas generales y de acatamiento obligatorio en el Sistema Nacional de Archivos, para la gestión de documentos producidos por medios automáticos”, emitida por la Junta Administrativa del Archivo Nacional y publicada en La Gaceta Nº 61 del 28 de marzo de 2008. La microfilmación de documentos se regirá por la Ley 4278 sobre microfilmación de documentos.

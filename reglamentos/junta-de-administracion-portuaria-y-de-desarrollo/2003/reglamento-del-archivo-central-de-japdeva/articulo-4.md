@@ -1,3 +1,1 @@
-CAPÍTULO IV
-El Régimen interno del Archivo Central
-Artículo 4º—El jefe será el encargado de elaborar las normas internas y los procedimientos de organización del Archivo Central. La aplicación de las mismas se hará tanto en el Archivo Central como en los archivos de gestión, de las distintas oficinas de JAPDEVA. Es el responsable de coordinar las políticas archivísticas de la Institución.
+Artículo 4º—El Archivo Central de la Institución, estará a cargo de un profesional con formación Universitaria en Archivística o una carrera afín a lo requerido y contará con el personal capacitado, necesario para su buen funcionamiento.

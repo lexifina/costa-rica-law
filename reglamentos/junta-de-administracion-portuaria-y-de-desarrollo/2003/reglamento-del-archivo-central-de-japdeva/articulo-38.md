@@ -1,0 +1,1 @@
+Artículo 38.—Obligatoriedad de la Administración: La administración en la medida que el presupuesto lo permita dotará al Archivo Central de la Institución del recurso humano, los instrumentos y herramientas necesarias para que pueda llevar adelante su cometido, a efectos de que se pueda manipular en forma apropiada la documentación.

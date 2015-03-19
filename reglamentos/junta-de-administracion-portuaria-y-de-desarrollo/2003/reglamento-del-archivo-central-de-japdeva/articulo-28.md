@@ -1,2 +1,1 @@
-Consulta de documentos
-Artículo 28.—Todos los ciudadanos tienen acceso a la información contenida en los documentos de los archivos de JAPDEVA.
+Artículo 28.—Devolución de expediente: Si a los quince días naturales no hay devolución del expediente, ni justificación por escrito, se le realizará por escrito una prevención a la oficina o al usuario del expediente y se le otorgará un plazo de ocho días para su devolución, y de no obtenerse respuesta será remitido a la Junta de Relaciones Laboral para que se inicien los trámites del debido proceso disciplinario.
