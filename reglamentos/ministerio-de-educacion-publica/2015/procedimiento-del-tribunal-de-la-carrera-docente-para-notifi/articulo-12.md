@@ -1,0 +1,1 @@
+Artículo 12.—Deber de comunicar fallas . El funcionario encargado de efectuar las notificaciones por correo electrónico, deberá reportar y dar aviso al Departamento de Informática, cuando se hallen fallas en el sistema de envío.

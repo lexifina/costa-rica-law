@@ -1,0 +1,1 @@
+Artículo 11.—Determinación de envío. En caso de que el sistema de transmisión de envío de notificaciones por correo electrónico, se interrumpa por más de un día, el Tribunal deberá determinar si se realiza a otros medios de notificaciones señalados en el expediente.

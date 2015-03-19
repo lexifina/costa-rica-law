@@ -1,0 +1,1 @@
+Artículo 8º—Momento de notificación. La parte se tendrá por notificada el día hábil siguiente del envío de la trasmisión por correo electrónico. Lo remitido por medio de correo electrónico tendrá la validez y eficacia de documentos físicos originales.
