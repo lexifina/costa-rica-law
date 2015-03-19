@@ -1,0 +1,1 @@
+Artículo 11.—Los establecimientos comerciales que opten por una licencia Municipal obligatoriamente deberán acatar lo relativo a lo estipulado en la Ley de Construcciones y su Reglamento, además cumplir con el artículo 18 del Código de Normas y Procedimientos Tributarios.

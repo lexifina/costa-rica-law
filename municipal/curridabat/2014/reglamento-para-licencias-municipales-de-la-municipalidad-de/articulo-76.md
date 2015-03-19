@@ -1,0 +1,1 @@
+Artículo 76.—Derogatorias. Se deroga el Reglamento para Licencias Municipales de la Municipalidad de Curridabat Publicado La Gaceta Nº 190 de octubre de 2001, el Reglamento para el cobro de Impuestos y Espectáculos Públicos, Reglamento para Máquinas de Juego y el Reglamento de Ventas Estacionarias.

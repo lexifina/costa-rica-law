@@ -1,0 +1,1 @@
+Artículo 37.—La declaración jurada municipal que deben presentar los patentados ante la Municipalidad, quedará sujeta a las disposiciones especiales de los artículos 122, 123 y 130 del Código de Normas y Procedimientos Tribútanos, así como a lo que establece el Artículo 309 del Código Penal.

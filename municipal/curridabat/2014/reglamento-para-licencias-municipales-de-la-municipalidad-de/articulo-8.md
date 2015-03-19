@@ -1,0 +1,1 @@
+Artículo 8º—Para toda solicitud de otorgamiento, traslado o traspaso de licencia comercial será requisito indispensable que los interesados estén al día en el pago de los tributos y demás obligaciones municipales, de conformidad con el artículo 18 del Código de Normas y procedimientos Tributarios.

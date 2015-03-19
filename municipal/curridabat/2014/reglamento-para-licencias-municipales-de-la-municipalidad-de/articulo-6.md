@@ -1,0 +1,1 @@
+Artículo 6º—No se podrán conceder licencias Municipales para la explotación de actividades lucrativas en casas de habitación, salvo que para efectuar la actividad comercial se separen totalmente el local comercial de la casa de habitación, y que entre uno y otro no haya comunicación interna.

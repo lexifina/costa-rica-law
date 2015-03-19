@@ -1,0 +1,1 @@
+Artículo 41.—Para gravar toda actividad lucrativa recientemente establecida, la Municipalidad podrá hacer una estimación, tomando como parámetro otros negocios similares. Sin embargo, con la presentación de la primera declaración por parte del contribuyente, se precederá a recalificar el monto del impuesto respectivo.
