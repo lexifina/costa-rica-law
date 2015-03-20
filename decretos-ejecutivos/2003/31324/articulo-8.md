@@ -1,1 +1,0 @@
-Artículo 8º—Las modificaciones al Plan Nacional de Desarrollo y sus eventuales Fe de Erratas serán incorporadas mediante anexos al instrumento y serán difundidos a la ciudadanía por los medios impresos y electrónicos que se estime convenientes.
