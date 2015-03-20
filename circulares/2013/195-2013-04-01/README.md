@@ -13,3 +13,4 @@ Datos que debe llevar el oficio de solicitud de los dineros correspondientes a l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-01 | la propia norma |
+| 2 | 2015-03-20 | Circular 53 (2015-03-20) |
