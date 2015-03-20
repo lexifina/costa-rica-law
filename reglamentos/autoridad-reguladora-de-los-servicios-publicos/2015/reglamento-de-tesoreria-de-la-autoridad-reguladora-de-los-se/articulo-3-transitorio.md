@@ -1,0 +1,1 @@
+Transitorio III.—En el plazo de cuarenta y cinco días hábiles contado a partir de la publicación de este Reglamento, Finanzas deberá establecer un registro de firmas, de los involucrados en los procesos de tesorería.

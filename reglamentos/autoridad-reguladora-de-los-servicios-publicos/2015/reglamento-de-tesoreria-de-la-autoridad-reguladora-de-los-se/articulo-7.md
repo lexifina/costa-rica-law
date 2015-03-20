@@ -1,0 +1,1 @@
+Artículo 7º—Funciones de Finanzas en materia de Presupuesto: Competerá a Finanzas, las siguientes funciones en materia de Presupuesto: revisar que los pagos que deban realizarse tengan contenido económico para la erogación, de acuerdo con lo establecido en la Ley N° 8131. Deberá indicarlo en el documento que respalde la transferencia.

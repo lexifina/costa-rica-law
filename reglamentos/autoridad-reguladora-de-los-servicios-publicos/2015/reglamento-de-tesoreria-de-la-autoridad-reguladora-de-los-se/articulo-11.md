@@ -1,0 +1,1 @@
+Artículo 11.—Responsabilidad del manejo de las Cajas Chicas y General. Corresponde al cajero la responsabilidad de la Caja General y la Caja Chica. El incumplimiento de sus deberes acarreará la responsabilidad indicada en la Ley N° 8131.

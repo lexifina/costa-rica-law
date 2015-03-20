@@ -1,0 +1,1 @@
+Artículo 21.—Control de contratos: Finanzas, mediante las labores de Tesorería llevará un control de los contratos custodiados, indicando el tipo de contrato, monto del contrato, fecha de vencimiento y forma de pago. El funcionario designado por Finanzas, informará a la Dirección de Finanzas con sesenta días hábiles de anticipación, sobre el vencimiento de los contratos.

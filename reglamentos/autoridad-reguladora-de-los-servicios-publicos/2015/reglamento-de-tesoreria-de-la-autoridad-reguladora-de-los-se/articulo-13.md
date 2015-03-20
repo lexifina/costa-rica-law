@@ -1,0 +1,1 @@
+Artículo 13.—Depósito de los ingresos diarios: Los ingresos diarios que reciba el cajero, deberán ser depositados íntegramente a más tardar el día hábil siguiente de su recepción, en la cuenta corriente bancaria destinada a ese efecto.

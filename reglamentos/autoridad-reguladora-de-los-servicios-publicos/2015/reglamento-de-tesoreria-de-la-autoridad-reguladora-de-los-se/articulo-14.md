@@ -1,0 +1,1 @@
+Artículo 14.—Pagos por transferencia electrónica: Conforme a los principios de eficiencia y seguridad, todos los pagos, excepto los que corresponda hacer por caja chica y los que se autoricen realizar por cheque, se efectuarán por medio de transferencia electrónica.

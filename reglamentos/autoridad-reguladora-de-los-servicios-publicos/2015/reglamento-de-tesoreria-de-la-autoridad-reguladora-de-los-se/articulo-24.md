@@ -1,0 +1,1 @@
+Artículo 24.—Revisiones y arqueos: El Director de Finanzas o los funcionarios que esta Dirección designe y el Auditor Interno, o los funcionarios que éste designe, podrán efectuar en cualquier momento y sin previo aviso, todas aquellas revisiones o arqueos que juzguen convenientes sobre los valores y documentos en custodia de Finanzas.

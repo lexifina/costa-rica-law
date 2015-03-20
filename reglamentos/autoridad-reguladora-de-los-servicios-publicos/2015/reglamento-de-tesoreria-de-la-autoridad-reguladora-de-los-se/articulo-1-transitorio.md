@@ -1,0 +1,1 @@
+Transitorio I.—En el plazo de cuarenta y cinco días hábiles contado a partir de la publicación de este Reglamento, Finanzas actualizará los controles de documentos en custodia indicados en éste y presentará un informe con los controles actualizados al Director de Finanzas.

@@ -1,0 +1,1 @@
+Artículo 4º—Independencia de las Cajas General y Chica: La Caja General y la Caja Chica se administrarán en forma independiente, sin que se provoque confusión alguna de valores o comprobantes de cada una de ellas.

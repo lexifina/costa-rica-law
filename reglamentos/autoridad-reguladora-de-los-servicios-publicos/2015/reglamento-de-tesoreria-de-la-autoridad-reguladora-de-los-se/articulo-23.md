@@ -1,0 +1,1 @@
+Artículo 23.—Custodia de cheques: Finanzas, mediante las labores de Tesorería es la encargada de custodiar los formularios para la emisión de cheques, los cuales deberán custodiarse en el interior de la bóveda y los cheques listos para pagar, debidamente firmados, deben guardarse en la caja de seguridad que se ubica en la Autoridad Reguladora.

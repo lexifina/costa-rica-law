@@ -1,0 +1,5 @@
+Artículo 6º—Funciones de Finanzas en materia de Contabilidad: Competerá a Finanzas, las siguientes funciones en materia de Contabilidad:
+1) Revisar que los documentos que respaldan los pagos por transferencia, estén debidamente clasificados en la cuenta contable, antes de dar el visto bueno para su pago.
+2) Entregar al funcionario designado de Finanzas, quincenalmente, la planilla con el detalle de pago por funcionario, así como el detalle de las cuentas bancarias donde se deposita el salario a cada uno.
+3) Entregar al funcionario designado de Finanzas, quincenalmente, el detalle de los rebajos realizados por planilla a los funcionarios e indicar las cuentas bancarias donde se debe depositar a cada institución o beneficiario.
+4) Entregar al funcionario designado de Finanzas, quincenalmente, el detalle de rebajos realizados a los funcionarios por concepto de embargos y pensiones establecidos por orden judicial. Se debe indicar el monto del rebajo, el número de expediente judicial y el beneficiario del monto.

@@ -1,0 +1,1 @@
+Artículo 20.—Remisión de pólizas de seguros a Finanzas: Para efectos de su pago oportuno, Servicios Generales remitirá mensualmente a Finanzas detalle de los documentos custodiados de pólizas de seguros, indicando el tipo de pólizas, monto asegurado, fecha de vencimiento y coberturas.
