@@ -1,0 +1,1 @@
+Artículo 10º—El incumplimiento de requisitos de este reglamento, será causa suficiente para que el Órgano de Control no dé trámite al ingreso o permanencia en el sistema de kilometraje a quien incumple.

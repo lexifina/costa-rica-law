@@ -1,0 +1,2 @@
+Artículo 9º—El Órgano de Control llevará un expediente electrónico individualizado por cada trabajador incluido dentro del sistema, donde además de los documentos indicados en este reglamento debidamente actualizados y copia del contrato vigente.
+Los trabajadores que resuelvan retirarse del sistema, deberán de comunicarlo formalmente a su jefatura inmediata y al Órgano de Control, con al menos un mes de anticipación a la fecha en que se desea no volver a ser considerado.

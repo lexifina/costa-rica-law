@@ -1,0 +1,1 @@
+Artículo 26—En todo lo que no esté previsto expresamente en este reglamento, se aplicará lo dispuesto en la Ley de Contratación Administrativa, su Reglamento y demás normas relacionadas que resulten oportunas considerar.

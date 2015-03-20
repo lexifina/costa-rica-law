@@ -1,0 +1,1 @@
+Artículo 12.—Conforme lo previsto en este reglamento, la Agencia, a título de contraprestación, reconocerá a los trabajadores autorizados del sistema, una suma por cada kilómetro recorrido, de conformidad con las tarifas vigentes aprobadas por la Contraloría General de la República.
