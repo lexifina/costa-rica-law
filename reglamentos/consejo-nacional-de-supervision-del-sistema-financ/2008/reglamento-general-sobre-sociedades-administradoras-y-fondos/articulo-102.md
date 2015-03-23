@@ -1,15 +1,2 @@
-Artículo 102.—Límites mínimos de diversificación aplicables a los fondos de capital de riesgo
-Los fondos de capital de riesgo deben ajustarse a las siguientes reglas de diversificación:
-a. Un mínimo del 60% del total de activos debe estar invertido en valores accionarios o en valores que puedan dar derecho a la suscripción o adquisición de acciones con derecho a voto.
-b. Hasta un máximo de 20% del total de sus activos en valores emitidos por una misma empresa promovida.
-c. Hasta un máximo de 30% del total de sus activos en valores emitidos por una misma empresa admitida al mercado establecido por el artículo 24 del Reglamento de Bolsas de Valores, o en valores de oferta pública emitidos por una misma empresa.
-d. En ningún caso los valores que posea el fondo de empresas promovidas o admitidas al mercado establecido por el artículo 24 del Reglamento de Bolsas de Valores, del mismo grupo económico pueden representar más del 40% de los activos totales del fondo.
-El porcentaje establecido en el inciso a. de este artículo debe acatarse en forma inmediata. Los porcentajes establecidos en los incisos b. al d. deben alcanzarse en el plazo de veinticuatro (24) meses a partir del inicio de operaciones del fondo de inversión. Posteriormente, deben cumplirse al finalizar cada periodo anual del fondo.
-La sociedad administradora podrá solicitar la ampliación del plazo que se indica en el párrafo anterior para alcanzar los porcentajes previstos en los incisos b. al d., para ello debe acompañar la solicitud con: una copia certificada o testimonio de la protocolización del acta de la asamblea de inversionistas en la cual se aprueba la prórroga, una explicación de las razones que han impedido lograrlo, así como una indicación de las actividades a realizar, las fechas estimadas y los responsables de su ejecución, para cubrir los porcentajes de diversificación en el nuevo plazo. En atención a la situación del mercado y a la dificultad de encontrar proyectos, la Superintendencia podrá, con carácter excepcional, autorizar dicha ampliación hasta por doce (12) meses.
-Si al vencimiento de la ampliación del plazo indicado en el párrafo anterior no se han alcanzado los porcentajes, la sociedad debe proceder con la desinscripción del fondo de inversión, según lo dispuesto en el artículo 27 de este Reglamento.
-Cuando el fondo inicie la etapa de devolución de capital a los inversionistas, los porcentajes establecidos en este artículo se computan teniendo en cuenta los activos totales del fondo registrados al cierre del mes anterior al momento en que se realiza la primera devolución de capital.
-No se considera infracción el exceso sobre los límites establecidos que se deba a una de las causas que se citan a continuación, durante el plazo de veinticuatro meses posteriores a su presentación:
-a.- Cambios en la valoración de las empresas.
-b.- Desinversión en una de las empresas.
-c.- Alteraciones en la composición de los grupos económicos de las entidades.
+Artículo 102.—(Derogado mediante sesión N° 1156 del 23 de marzo de 2015)
 (Así adicionado mediante sesión N° 944-2011 del 26 de octubre del 2011)
