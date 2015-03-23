@@ -1,0 +1,1 @@
+Artículo 38.—En los centros comerciales planificados que incluyan locales de uso comercial y para oficinas, públicas y particulares, se considerarán que existe un estacionamiento por cada cincuenta metros cuadrados (50 m2), de área bruta de construcción.

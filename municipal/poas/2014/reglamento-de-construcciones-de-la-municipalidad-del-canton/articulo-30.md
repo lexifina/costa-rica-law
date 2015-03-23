@@ -1,0 +1,1 @@
+Artículo 30.—Todo edificio que se construya o reconstruya en lo sucesivo frente a vía pública deberá ajustarse al alineamiento de la Municipalidad de Poás en caso de caminos vecinales, o del Ministerio de Obras Públicas y Transportes, tratándose de ruta nacional.

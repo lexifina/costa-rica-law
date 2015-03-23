@@ -1,0 +1,1 @@
+Artículo 23.—Concluido el proceso constructivo de la obra, el Inspector Municipal emitirá una boleta, certificando que lo construido fue lo autorizado en el permiso y remitirá el mismo al Departamento de Control y Planificación Urbana.

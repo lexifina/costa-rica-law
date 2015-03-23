@@ -1,0 +1,6 @@
+Artículo 12.—Se exceptúan de presentar plano constructivo. Tratándose de obra menor conforme al presente reglamento:
+a) Cuando la obra que se solicita, no compromete la integridad y resistencia estructural del diseño original de la misma. El ente competente para realizar éste estudio es el Ministerio de Salud en coordinación con el Depto. de Control y Planificación Urbana.
+b) Análisis de la carga hidráulica que puede implicar la obra. Sea que en aquellos casos donde la obra a construir, genere o implique un aumento de aguas residuales y negras, que contempla la estructura original. El ente competente para realizar éste estudio es el Ministerio de Salud.
+c) Obras cuya cobertura máxima sea de 30 metros cuadrados o en caso de tapias perimetrales hechas con Sistema Prefabricado de Baldosas; o aquellas que utilicen un sistema constructivo liviano no mayor 60 metros lineales y que no exceda los dos metros veinte centímetros.
+d) Cuya altura máxima no exceda dos metros y veinte centímetros.
+e) En caso de los movimientos de tierra y apertura de entradas a las propiedades que no pongan en riesgos de deslizamientos o derrumbes a las propiedades colindantes y que contemple movimiento de capa Vegetal no mayor a 50 cm de corte por no más de 300 metros cuadrados de lote se le podrá excluir de la presentación de Planos ante el CFIA.

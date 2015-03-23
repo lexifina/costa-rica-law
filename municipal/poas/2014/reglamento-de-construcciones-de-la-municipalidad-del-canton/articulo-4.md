@@ -1,0 +1,5 @@
+CAPÍTULO II
+De las obras menores
+Artículo 4º—Obra menor: Se considerará obra menor todo tipo de reparación, remodelación, arreglo, ampliación, construcción o similar, avalado por el Departamento de Control y Planificación Urbana de la Municipalidad de Poás, que haya sido solicitada cumpliendo los requisitos establecidos en el presente Reglamento y que por sus características, no altere los sistemas vitales un edificio o vivienda como el estructural, eléctrico, mecánico, entre otros y que además, sea declarado de esta forma por el citado Departamento.
+El monto máximo permitido para considerar una obra como menor, será de 20 salarios mínimos de un trabajador no especializado, conforme al decreto nacional de salarios mínimos que se encuentre vigente.
+Para una obra existente que se va a reparar, remodelar o arreglar no puede excederse de 30,00 metros cuadrados sin exceder tampoco el monto máximo de 20 salarios mínimos. Para una obra nueva que se desea construir bajo este Reglamento no podrá exceder de 30,00 metros cuadrados.
