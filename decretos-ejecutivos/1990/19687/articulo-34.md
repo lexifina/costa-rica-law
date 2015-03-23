@@ -1,2 +1,0 @@
-Artículo 34.- La Asociación podrá cancelar en cualquier momento el registro de aquel animal inscrito que muestre defectos descalificantes , cuando se comprobare que para su inscripción se suministraron datos falsos, o se infringió el presente Reglamento.
-Dicha cancelación será comunicada al propietario del animal por escrito, quien dispondrá de quince días después de recibida la notificación para presentar las pruebas de descargo que lo respalden, una vez recibidas dichas pruebas la Asociación contará con un plazo de treinta días naturales para resolver.

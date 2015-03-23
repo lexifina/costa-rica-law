@@ -1,1 +1,0 @@
-Artículo 5°.- El Comité, una vez integrado, elegirá de sus miembros un presidente que desempeñará el cargo de Jefe de Registro y un vicepresidente que actuará en ausencia del primero. El quórum para las reuniones será de tres miembros y se adoptarán los acuerdos por mayoría simple.

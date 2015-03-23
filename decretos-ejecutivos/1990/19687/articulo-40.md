@@ -1,1 +1,0 @@
-Artículo 40.- Aquel criador que dificulte e imposibilitare las funciones de los inspectores o gradadores, o los ofendiese de palabra o de hecho será sancionado con la no inscripción o cancelación de los registros de aquellos animales que debieron ser inspeccionados en la visita en que se cometió la falta y además deberá pagar los gastos correspondientes de los funcionarios.

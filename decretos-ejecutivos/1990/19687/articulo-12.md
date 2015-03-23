@@ -1,1 +1,0 @@
-Artículo 12.- Aquellas hijas menores de 1 año, cuya madre es gradada y su padre sea Holstein puro registrado, no necesitará gradarse, ya que se les otorgará el grado de encaste superior al de su madre, salvo excepciones, en donde no presente las características raciales requeridas.

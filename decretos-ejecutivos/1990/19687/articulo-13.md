@@ -1,1 +1,0 @@
-Artículo 13.- Aquellas hijas menores de 1 año, cuya madre es gradada y su padre no sea Holstein registrado, necesitarán gradarse. Los mismo que las hijas mayores de 1 año, aunque sean hijas de toro Holstein registrado, deberán ser gradas al momento de la gradación del hato del ganadero.

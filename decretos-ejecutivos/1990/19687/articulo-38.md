@@ -1,1 +1,0 @@
-Artículo 38.- No se inscribirán las crías de los animales referidos en el artículo 33 de este Reglamento que nazcan después de comprobarse una gestación completa a partir de dos meses antes de descubrirse la anomalía.

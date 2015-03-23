@@ -1,1 +1,0 @@
-Artículo 19.- Todo criador debe llevar un cuaderno de inseminaciones, en el cual se debe anotar en orden cronológico fecha de inseminación y toro con el que se inseminó, anotando su código NAAB y número de registro, el número de hato y número de registro de la vaca.

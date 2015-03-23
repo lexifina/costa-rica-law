@@ -1,1 +1,0 @@
-Artículo 17°.- Corresponde al dueño de la reproductora la responsabilidad de registrar la cría. Asimismo será el responsable de la veracidad de los datos que se incluyan en la solicitud de inscripción o en cualquier otro documento exigido por el Registro. Las personas físicas o jurídicas que distribuyan semen deberán inscribir a los toros que se les practicó la extracción.

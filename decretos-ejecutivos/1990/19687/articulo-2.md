@@ -1,1 +1,0 @@
-Artículo 2°.- La Asociación es la responsable del funcionamiento del Registro y del cumplimiento del presente Reglamento. Este Registro se establece para todos los animales Holstein, que conforme con lo estipulado en este Reglamento y cumpliendo con los requisitos que establezca el Comité, puedan ser inscritos.

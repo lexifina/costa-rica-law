@@ -1,1 +1,0 @@
-Artículo 25.- Si al realizar la inspección se encontraran errores en el tatuaje o cualquier otro error, el inspector hará las notas aclaratorias del caso, las cuales constarán en el certificado de registro del animal. En caso de que el error fuera de tal magnitud que presentan dudas al inspector, será remitido un informe a la Junta Directiva, la cual resolverá la situación.

@@ -1,1 +1,0 @@
-Artículo 45.- Todo lo concerniente al Registro, la interpretación de este Reglamento, y a lo no estipulado en él será resuelto por la Junta Directiva mediante acuerdo firme notificado a los usuarios y al MAG.

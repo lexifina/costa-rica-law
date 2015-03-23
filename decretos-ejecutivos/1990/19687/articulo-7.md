@@ -1,1 +1,0 @@
-Artículo 7°.- La Asociación contará con un sistema ágil y moderno, que permita tener actualizados y ordenados los trámites del Registro y datos que sean necesarios para el correcto funcionamiento del servicio.

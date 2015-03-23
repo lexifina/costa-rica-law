@@ -1,1 +1,0 @@
-Artículo 24.- Para dar cumplimiento a lo indicado en el artículo anterior la Asociación dispondrá de los inspectores necesarios quienes visitarán al menos una vez al año las fincas de los criadores. Dentro de los quince días siguientes a la visita, el inspector debe presentar un informe a la Asociación.
