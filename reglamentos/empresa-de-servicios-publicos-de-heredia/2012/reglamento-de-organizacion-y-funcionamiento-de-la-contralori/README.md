@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Contraloría Interna de la Em
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-28 | la propia norma |
+| 2 | 2015-03-23 | Reglamento 3533 (2015-03-23) |

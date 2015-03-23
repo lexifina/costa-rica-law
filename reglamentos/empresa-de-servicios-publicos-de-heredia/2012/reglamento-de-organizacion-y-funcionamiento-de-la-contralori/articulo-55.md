@@ -7,4 +7,5 @@ ARTÍCULO 55: Archivo y desestimación de denuncias. La Contraloría Interna des
 6. Si el asunto planteado ante la Contraloría, se encuentra en conocimiento de otras instancias con competencia para realizar la investigación, ejercer el control y las potestades disciplinarias.
 7. Si la denuncia presentada fuera una reiteración o reproducción de otras denuncias similares sin aportar elementos nuevos y que ya hubieran sido resueltas con anterioridad por la Contraloría Interna o por otras instancias competentes de la ESPH, S.A.
 8. Si la denuncia es manifiestamente improcedente o infundada.
-9. Si la denuncia omite alguno de los requisitos esenciales mencionados en el artículo 44 del presente reglamento.
+9. Si la denuncia omite alguno de los requisitos esenciales mencionados en el artículo 52 del presente reglamento.
+(Así reformado el inciso anterior en sesión N° 3533 del 23 de marzo de 2015)
