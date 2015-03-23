@@ -14,3 +14,4 @@ Reglamento de Constitución y Funcionamiento de los Consejos Territoriales y Reg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-07 | la propia norma |
+| 2 | 2015-03-23 | Decreto Ejecutivo 38975 (2015-03-23) |
