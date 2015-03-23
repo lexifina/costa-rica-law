@@ -1,0 +1,12 @@
+Artículo 6º—Funciones de la Unidad de Investigación y Desarrollo. Son funciones de la Unidad de Investigación y Desarrollo las siguientes:
+a. Implementar y mantener procedimientos a lo interno de la Dirección General de Administración de Bienes y Contratación Administrativa, para realizar una adecuada disposición de los desechos sólidos, por parte de todas las unidades que la conforman, garantizando la sostenibilidad ambiental, de acuerdo con las disposiciones que emita la dependencia institucional correspondiente.
+b. Coadyuvar con las instituciones que se encuentran bajo la rectoría de la Dirección en la realización de avalúos a los bienes que desechan, para que las mismas determinen su destino final.
+c. Documentar los procedimientos internos de trabajo de la Dirección, para el Sistema de Gestión Documental (Manuales de Procedimientos).
+d. Investigar y proponer mejoras a los procesos actuales de trabajo, con el fin de optimizar los mismos.
+e. Realizar investigaciones especiales requeridas por la Dirección, relacionadas con temas de Contratación Administrativa y Administración de Bienes.
+f. Investigar y proponer a la Dirección procedimientos que estandaricen la cadena de abastecimiento de las Instituciones bajo su rectoría, con el fin de establecer mecanismos que permitan dar trazabilidad a las compras y seguir las mejores prácticas de almacenamiento y distribución.
+g. Investigar y desarrollar indicadores de gestión interna, que ayuden a la Dirección General en el cumplimiento de objetivos y la toma de decisiones.
+h. Dar seguimiento a la gestión administrativa de la Dirección General, mediante el uso de instrumentos como los indicadores de gestión y el Plan Operativo, con el propósito de identificar áreas críticas que afecten su eficacia.
+i. Administrar y dar mantenimiento al Catálogo de Mercancías de la Administración Central, estableciendo procedimientos de normalización, codificación y especificaciones técnicas de los bienes y servicios que se adquieren.
+j. Coordinar con las Direcciones competentes del Ministerio de Hacienda la creación de nuevas mercancías en el catálogo de mercancías, asociadas con el Clasificador por Objeto del Gasto.
+k. Formular, implementar y administrar el plan estratégico, planes operativos y tácticos de la Dirección General de Administración de Bienes y Contratación Administrativa, según los lineamientos del Director (a) General y Subdirector (a).
