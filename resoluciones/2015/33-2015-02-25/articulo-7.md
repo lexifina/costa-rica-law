@@ -1,0 +1,2 @@
+7º—Rectificar el error material del inciso 44) del Por Tanto I “Otras consideraciones sobre los procesos de portabilidad numérica”, para que se lea correctamente:
+“44. En caso de conflicto en los trámites de portabilidad numérica los operadores y proveedores deberán utilizar el procedimiento para la atención de problemas técnicos (Grupo de Apoyo Técnico, GAT) y administrativos (Grupo de Apoyo Administrativo, GAA) en procesos de portabilidad numérica, de acuerdo con lo dispuesto por la SUTEL por medio de la RCS- 334-2013”.

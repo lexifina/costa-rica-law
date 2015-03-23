@@ -1,0 +1,2 @@
+11.—Modificar en Por tanto “I. Otras consideraciones sobre los procesos de portabilidad numérica.”, el inciso 55), para que se lea de la siguiente manera:
+“55. La Sutel valorará aquellas solicitudes realizadas por terceros distintos a los operadores y proveedores de servicios de telecomunicaciones con título habilitante de telefonía en Costa Rica, que requieran el acceso a la base de datos de los números portados.”

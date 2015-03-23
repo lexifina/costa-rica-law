@@ -1,0 +1,2 @@
+10.—Modificar en el Por tanto “I. Otras consideraciones sobre los procesos de portabilidad numérica.”, el inciso 54, para que se lea de la siguiente manera:
+“54. Con el fin de facilitar la realización de los rastreos e intervenciones telefónicas, su autoriza a las autoridades públicas competentes en materia de intervención y rastreo de comunicaciones, el acceso a la base de datos de números portados.”

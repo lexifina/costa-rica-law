@@ -1,0 +1,2 @@
+2º—Modificar en el Por Tanto C “Condiciones operativas de la Portabilidad Numérica Móvil”, el inciso 10), sub inciso c) de la RCS-319-2014 para que se lea de la siguiente manera:
+“c. Red receptora envía solicitud hacia la red donante: Una vez que el usuario haya recibido el NIP en su equipo y lo haya entregado al operador receptor al solicitar la portabilidad numérica, este último generará una solicitud de portación que entregará a la red donante a través de una interfaz con el SIPN”.
