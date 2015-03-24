@@ -1,0 +1,1 @@
+Artículo 2°—Se insta a todas las dependencias del Sector Público y el Sector Privado para que le brinden todo su apoyo al Proyecto BA1 Prevención de la Violencia contra las Mujeres en Centroamérica, dentro del marco legal respectivo y de acuerdo con sus competencias, en la realización de las actividades relacionadas con dicho proyecto.
