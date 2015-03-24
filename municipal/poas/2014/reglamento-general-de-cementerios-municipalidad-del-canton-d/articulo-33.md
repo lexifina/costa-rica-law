@@ -1,0 +1,1 @@
+Artículo 33.—Para efectuar en una bóveda la inhumación de personas que no sean titulares de la misma, se requerirá por escrito la conformidad del actual propietario, o del beneficiario que se haya designado.

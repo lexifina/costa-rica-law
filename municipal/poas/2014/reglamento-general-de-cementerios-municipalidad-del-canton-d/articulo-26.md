@@ -1,0 +1,1 @@
+Artículo 26.—La adquisición de un derecho funerario implica la obligatoriedad de construir la bóveda, en un plazo no mayor de un año de haber adquirido el derecho, en caso contrario, automáticamente la comisión administrativa de cementerios procederá a revocar el derecho funerario.
