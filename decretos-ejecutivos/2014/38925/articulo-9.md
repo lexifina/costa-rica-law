@@ -1,0 +1,1 @@
+ARTÍCULO 9. La entrega del monto captado por concepto de 10% de servicio, deberá hacerse en el plazo máximo de 8 días naturales cuando el pago se haya efectuado en dinero en efectivo y en el plazo máximo de 1 mes calendario, cuando el pago se haya efectuado mediante cheque, tarjeta de débito o de crédito u otro medio diferente al dinero en efectivo.

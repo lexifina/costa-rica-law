@@ -1,0 +1,1 @@
+ARTÍCULO 10. El importe del 10% sobre el total del consumo que haga el cliente se cobrará directamente dentro de la misma factura, con indicación individual del importe respectivo y plenamente identificado en forma separada como “Servicio 10%”. Para estos efectos será obligación del establecimiento comercial entregar la factura a cada cliente.

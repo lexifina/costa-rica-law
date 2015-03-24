@@ -1,0 +1,1 @@
+ARTÍCULO 5. Los montos por concepto del 10% de servicio o la propina voluntaria le corresponderán igualmente a los saloneros y meseros que realicen todas o algunas de las funciones señaladas en el artículo 2 de este Reglamento, independientemente del lugar donde se preste el servicio.

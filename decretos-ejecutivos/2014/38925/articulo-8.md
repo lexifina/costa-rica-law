@@ -1,0 +1,1 @@
+ARTÍCULO 8. En ningún caso el patrono, o los representantes patronales podrán realizar retenciones o deducciones unilaterales a los montos que por concepto del 10% de servicio tengan derecho los saloneros y meseros.

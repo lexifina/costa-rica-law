@@ -1,0 +1,1 @@
+ARTÍCULO 12. Los saloneros y meseros que brinden servicios de conformidad con el artículo 2 de este Reglamento serán los únicos que tendrán derecho de percibir el importe correspondiente al 10% de servicio de mesa.

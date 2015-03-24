@@ -1,0 +1,1 @@
+ARTÍCULO 4. En ningún caso, los montos por concepto del 10% de servicio o la propina voluntaria que reciban los saloneros y meseros que presten atención y servicio de mesa serán considerados como de naturaleza salarial, motivo por el cual no se le podrán aplicar las reglas propias del salario a estos rubros.
