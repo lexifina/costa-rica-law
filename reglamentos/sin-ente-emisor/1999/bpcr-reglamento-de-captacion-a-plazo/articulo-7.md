@@ -1,1 +1,0 @@
-Artículo 7°—El interesado quedará obligado, dentro de los quince días hábiles siguientes de la comunicación a la que se refiere el artículo anterior, a presentar las diligencias útiles para que sean repuestos los valores. El Banco no asume ninguna responsabilidad en el evento de que dichas diligencias de reposición no se hayan iniciado en el plazo indicado.

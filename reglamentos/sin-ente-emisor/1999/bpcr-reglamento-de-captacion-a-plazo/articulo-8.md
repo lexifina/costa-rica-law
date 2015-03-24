@@ -1,1 +1,0 @@
-Artículo 8°—En caso de que haya que reponer un valor o sus cupones de intereses, por las causas que señala el artículo 6 del presente Reglamento, se procederá conforme lo dispuesto por el Código de Comercio en sus artículos 708, 709 y 710 cuando se trata de valores a la orden.

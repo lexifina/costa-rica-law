@@ -1,1 +1,0 @@
-Artículo 4°—Los valores devengarán la tasa de interés anual fijada por la administración del Banco de acuerdo con el plazo y el monto de los mismos al momento de la emisión. La administración deberá seguir, en la fijación de las tasas de interés, las directrices y reglamentos aprobados por la Junta Directiva.
