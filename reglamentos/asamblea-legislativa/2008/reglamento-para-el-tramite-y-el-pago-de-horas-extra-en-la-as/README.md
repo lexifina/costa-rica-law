@@ -15,3 +15,4 @@ Reglamento para el Trámite y el Pago de Horas Extra en la Asamblea Legislativa
 | --- | --- | --- |
 | 1 | 2008-09-17 | la propia norma |
 | 2 | 2015-03-03 | Acuerdo 46 (2015-03-03) |
+| 3 | 2015-03-24 | Acuerdo 51 (2015-03-24) |
