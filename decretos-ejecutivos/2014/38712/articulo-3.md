@@ -1,0 +1,1 @@
+Artículo 3º—La indemnización se fija en la suma de ¢187.170,52 que ya canceló el señor Ezzio Everardo Segnini Lamas, representante legal de la Empresa Agroturismo Brisas del Lago S. A., por medio del depósito supramencionado en el considerando sétimo anterior, propietario del fundo sirviente, según la inscripción en el Registro Público de la Propiedad ya indicada.
