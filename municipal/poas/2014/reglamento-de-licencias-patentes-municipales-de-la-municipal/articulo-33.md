@@ -1,0 +1,2 @@
+Artículo 33.—Los organizadores deberán entregar treinta días naturales, después de efectuada la actividad, una declaración jurada ante la Administración Tributaria sobre sus ingresos, egresos, y las ganancias percibidas.
+Sobre las ganancias que generó la actividad deberán los organizadores pagar a la Municipalidad por concepto de los Espectáculos Públicos un 5% (cinco por ciento); no podrá la Administración Tributaria exonerar de esta obligación a ningún organizador o entidad.

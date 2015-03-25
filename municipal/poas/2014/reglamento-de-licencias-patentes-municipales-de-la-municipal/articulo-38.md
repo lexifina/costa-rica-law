@@ -1,0 +1,1 @@
+Artículo 38.—Las solicitudes de permiso para la realización de espectáculo público deberán presentarse con quince días hábiles, de anticipación al evento, de acuerdo con lo establecido en los artículos 81 del Código Municipal y 22 y 23 de este Reglamento.

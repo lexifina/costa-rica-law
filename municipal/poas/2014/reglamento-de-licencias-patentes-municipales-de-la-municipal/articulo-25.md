@@ -1,0 +1,13 @@
+Artículo 25.—Para gestionar las licencias municipales ante la Municipalidad del cantón de Poás, se requiere la presentación de los siguientes documentos:
+Requisitos para solicitud de licencia (patente) nueva municipal, traslado y ampliación de la actividad.
+a. Formulario de solicitud de licencia, traslado o ampliación, según sea el caso: El cuál debe ser firmado por el dueño de la propiedad o local comercial y por el solicitante de la licencia. La información declarada por los firmantes en el formulario tiene carácter de declaración jurada, por lo que si los datos son falsos, la pena impuesto es de tres meses a dos años de prisión, según el artículo 311 del Código Penal y sus reformas.
+b. Copia por ambos lados de la cédula de identidad del solicitante y del propietario de local comercial o de la propiedad, del representante legal respectivo (según sea el caso) o certificación de personería jurídica si es sociedad. Si es extranjero, presentar copia de la cédula de residencia debidamente certificada y al día a efecto de verificar la condición del solicitante (vigentes).
+c. Certificado del uso de suelo: Mediante el cual se demuestre que la actividad puede ser ejercida en esa zona.
+d. Copia del contrato de arrendamiento: Suscrito entre el solicitante de la licencia municipal y el dueño del bien inmueble; en caso de sociedades el contrato deberá ser suscrito por el representante legal en representación de la sociedad. La actividad que se ha de desarrollar debe estar acorde con lo permitido en el contrato y la ley, y debe estar debidamente autenticado por un abogado. Este requisito se aplica en caso de que la propiedad donde se va a desarrollar la actividad no sea propiedad del dueño del negocio.
+e. Copia de la Póliza de Riesgos de Trabajo del Instituto Nacional de Seguros INS: en caso de tener empleados debe presentar fotocopia del contrato del INS, y recibo cancelado o en su defecto debe presentar la constancia de exoneración de la misma. (Ley Nº 6727 de Riesgos de Trabajo en su artículo 202 y sus reformas). En ambos casos (póliza o exoneración), los documentos deben ser emitidos a nombre del patentado.
+f. Copia del Permiso de funcionamiento sanitario Decreto Nº 30465-S (Actividades tipo A-B1-B2-C), extendido por el Ministerio de Salud.
+g. Timbres fiscales: Por 100 colones fiscal y 50 abogados. (Código Fiscal).
+Trámites que no deben ser aportados por el administrado, pero serán verificados internamente en el expediente existente:
+- Copia del plano catastrado.
+- Permiso de construcción en caso de que las licencias municipales funcionen en lugares de reciente construcción; por parte del Departamento de Control y Planificación Urbana.
+- Cumplir con los artículos 22 y 23 de este Reglamento.

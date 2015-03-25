@@ -1,0 +1,9 @@
+SUBSECCIÓN II
+De la venta ocasional
+Artículo 34.—Son licencias municipales otorgadas por la Administración Tributaria para el ejercicio de actividades lucrativas de carácter temporal a beneficio social, comunal, religioso, educativo, de la salud, del medio ambiente, deportivo, culturales, y a organismos debidamente autorizados para tal fin; la cual se podrá otorgar un plazo máximo hasta por noventa días; y podrán ser revocadas cuando la explotación de la actividad no sea conforme al artículo 81 del Código Municipal y a los artículos 22 y 23 de este Reglamento.
+Presentar el formulario de solicitud para ese efecto, ante la Administración Tributaria, quien a su vez recomendará ante el Alcalde Municipal lo procedente, firmada por el interesado y deberá cumplir con los siguientes requisitos:
+a. Formulario de solicitud de permiso para la venta temporal. El cual debe ser firmado por quien ejercerá la actividad. Debiéndose completar adecuadamente este formulario, en el entendido, que la información declarada por los firmantes en el formulario tiene carácter de declaración jurada, por lo que si los datos son falsos, la pena impuesto es de tres meses a dos años de prisión, según el artículo 311 del Código Penal y sus reformas.
+b. Copia por ambos lados de la cédula de identidad del solicitante y del propietario de local comercial o de la propiedad, del representante legal respectivo (según sea el caso) o certificación de personería jurídica si es sociedad. Si es extranjero, presentar copia de la cédula de residencia debidamente certificada y al día a efecto de verificar la condición del solicitante (vigentes).
+c. Copia del permiso de funcionamiento sanitario Decreto Nº 30465-S (Actividades tipo A-B1-B2-C), extendido por el Ministerio de Salud.
+d. Timbres fiscales: Por 100 colones fiscal y 50 de abogados. (Código Fiscal).
+e. Estar al día con los impuestos y servicios municipales.

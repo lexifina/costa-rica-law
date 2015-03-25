@@ -1,0 +1,1 @@
+Artículo 88.—Es absolutamente prohibido vender licor a personas que se hallen en estado avanzado de embriaguez. La infracción de esta disposición será considerada como falta grave para efectos de procedimiento.

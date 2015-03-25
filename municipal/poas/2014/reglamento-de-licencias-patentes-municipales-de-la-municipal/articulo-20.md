@@ -1,0 +1,5 @@
+Artículo 20.—Para realizar cualquier solicitud, traspaso, traslado, cambio o ampliación de la o las actividades autorizadas, se deberá cumplir con:
+a. Las actividades que requieran requisitos especiales establecidos por ley para esas actividades, se deberán de obtener ante las instancias respectivas, previo a que la Municipalidad otorgue la licencia municipal o renueve la misma. Como por ejemplo: MINAE, MINSA, MOPT, ACAM, etc.
+b. La licencia municipal que otorgue la Administración Tributaria quedará condicionada a las actividades, los requisitos y los plazos que establezcan los permisos de funcionamientos municipales; sin perjuicio de las renovaciones a que puedan ser sujetos dichos permisos.
+c. La revocatoria del permiso de funcionamiento municipal por parte de la Administración Tributaria, involucra la suspensión automática de la licencia municipal, clausura temporal del ejercicio de la actividad, hasta tanto no sea renovado el permiso de funcionamiento municipal pertinente, el cual debe presentar la Administración Tributaria para la rehabilitación de la patente.
+d. Cumplir con los artículos 22, 23, 24, 25 y 26 de este Reglamento según corresponda.

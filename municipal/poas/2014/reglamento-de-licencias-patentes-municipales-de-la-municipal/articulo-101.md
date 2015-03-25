@@ -1,0 +1,5 @@
+Artículo 101.—Del procedimiento.
+a) Presentado todos los requisitos, la Administración Tributaria procederá a realizar la inspección en el local a fin de verificar la ubicación, de acuerdo a las disposiciones de la Ley de Licores y su Reglamento, normativa supletoria y conexa y este Reglamento.
+b) La Administración Tributaria levantará un consenso vecinal tomando en consideración los aspectos relacionados con las distancias sobre iglesias católicas, instalaciones deportivas y centros de salud de todo tipo, centros infantiles de nutrición o de juegos, guarderías infantiles, escuelas, colegios y otros establecimientos educativos similares, ya sean públicos o privados, de enseñanza preescolar primaria, secundaria, universitaria, técnica y para universitaria y clubes políticos.
+c) En caso de explotación, traspaso, traslado y renuncia de la licencia (patente) de licores la Administración Tributaria una vez cumplidos todos los requisitos, se le otorgará, denegatoria o condicionará la licencia, que deberá hacerla en resolución razonada.
+d) En caso de incumplimiento, la Administración Tributaria procederá conforme a los artículos 28, 29 y 30 de este Reglamento.

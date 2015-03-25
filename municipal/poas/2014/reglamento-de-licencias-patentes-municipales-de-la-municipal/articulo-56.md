@@ -1,0 +1,1 @@
+Artículo 56.—No podrá ubicarse puestos obstruyendo ventanas, entradas, esquinas donde converjan las zonas de seguridad, frente a monumentos nacionales, ni fuera de los edificios municipales. Quedan terminantemente prohibido en ventanas de comercio establecidos cuyos dependientes y/o productos ocupen la vía pública para ejercer la actividad.
