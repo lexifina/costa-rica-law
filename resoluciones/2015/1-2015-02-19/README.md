@@ -14,3 +14,4 @@ Aprobación del contrato de conexión y procedimiento para la puesta en servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-26 | la propia norma |
+| 2 | 2015-03-25 | Resolución 176 (2015-03-25) |

@@ -75,7 +75,8 @@ Usuario: persona física o jurídica, que hace uso del Sistema eléctrico Nacion
 Acrónimos:
 IGPEAC: Instalación de generación a pequeña escala para autoconsumo
 CLÁUSULA PRIMERA: OBJETO.
-El objetivo de este Contrato es definir las condiciones técnicas, legales y comerciales que regulan la interconexión y la operación en paralelo con la red de distribución eléctrica, de las instalaciones o sistemas de generación a pequeña escala para autoconsumo, de los abonados o usuarios autorizados por el abonado para incorporar una IGPEAC en el servicio eléctrico, actuales o futuros de La Distribuidora que deseen hacerlo de conformidad con el capítulo XII de la norma técnica AR-NT-POASEN, la cual desde ya aceptan las partes como obligatoria en todos sus extremos así como en todas las modificaciones, cambios de redacción, enfoques, ampliaciones o disminuciones que la misma pudiere sufrir durante la vigencia del presente Contrato.
+El objetivo de este Contrato es definir las condiciones técnicas, legales y comerciales para la interconexión y operación en paralelo con la red de distribución eléctrica, de instalaciones o sistemas de generación a pequeña escala para autoconsumo (IGPEAC), por parte de los abonados o usuarios (autorizados por el abonado), actuales o futuros de La Distribuidora que deseen hacerlo de conformidad con el capítulo XII de la norma técnica AR-NT-POASEN, la cual desde ya aceptan las partes como obligatoria en todos sus extremos así como en todas las modificaciones, cambios de redacción, enfoques, ampliaciones o disminuciones que la misma pudiere sufrir durante la vigencia del presente Contrato.
+(Así reformada la cláusula anterior por resolución RRG-176-2015 del 25 de marzo de 2015)
 CLÁUSULA SEGUNDA: NATURALEZA ACCESORIA.
 Este es un contrato de naturaleza accesoria al contrato de suministro eléctrico que existe entre LA DISTRIBUIDORA y EL ABONADO O USUARIO; y durante su vigencia solo modifica ese contrato en cuanto a la forma de facturación mensual de los servicios que se suministra, conservándose íntegramente las demás obligaciones que en ese contrato principal se establecen; por lo que la terminación de este contrato o su incumplimiento no afecta la validez y vigencia de aquel contrato.
 CLÁUSULA TERCERA: ALCANCE.
@@ -239,11 +240,13 @@ Las conexiones de transformadores, que en conjunto con los relevadores apropiado
 terciario en delta.
 En conexiones trifásicas en donde se puedan presentar problemas de sobretensión o de ferrorresonancia, el cliente deberá contemplar en su diseño medidas que limiten la ocurrencia de estos eventos.
 En servicios trifásicos existentes servidos con transformadores con conexiones incompletas tales como deltas abiertas o estrellas abiertas de 4 hilos que por su naturaleza son desbalanceados, en los cuales se quiere conectar generación trifásica con múltiples unidades monofásicas, se debe completar la conexión trifásica del transformador.
-1.6 Medición
-La IGPEAC deberá disponer de una o más bases de medidor según el diseño para efectos de medir la producción de energía eléctrica y verificar el cumplimiento del requisito de que el abonado o usuario no intercambie con la empresa distribuidora más del 49% de la energía mensual producida. Las dimensiones de la base y sus características se establecerán por la empresa eléctrica, en el estudio de la solicitud, serán suplidas por la empresa eléctrica y formaran parte de los costos de interconexión.
-Para los sistemas con una potencia nominal mayor o igual a 10 kVA:
- El medidor bidireccional en el punto de entrega o punto de acople contará con un módulo de calidad de la energía.
- El sistema deberá incluir telemetría, que permita a la empresa distribuidora conocer remotamente el estado y la generación del sistema. Esto aplica para el medidor del punto de acople común así también como el medidor del generador.
+(*)1.6 Medición
+Los servicios con IGPEAC deberán contar con dos sistemas de medición, los cuales deberán de instalarse conforme a la norma de acometidas eléctricas AR-NT-ACO y sus reformas, emitida por la Aresep: uno de intercambio para el registro de las inyecciones y retiros al Sistema Eléctrico Nacional y otro de producción para el registro de la producción de energía eléctrica de la IGPEAC, conforme a lo establecido en la norma AT-NT-POASEN.
+El sistema de medición de intercambio será instalado por la empresa eléctrica, su costo e instalación, correrá por cuenta del abonado o usuario y tendrá además las siguientes características técnicas:
+Para las IGPEACs con una potencia nominal menor o igual a 250 kVA:
+• El sistema de medición será bidireccional e incluirá lectura remota.
+Para las IGPEACs con una potencia nominal mayor a 250 kVA:
+• El sistema de medición será bidireccional, contará con capacidad para el registro de parámetros de calidad de la energía e incluirá lectura y corta/reconexión remota.
 TABLA RESUMEN DE LOS REQUISITOS GENERALES
 Requisito | Potencia a instalar
 Menos de 10kVA | De 10kVA a menos de 50kVA | De 50kVA a menos de 250kVA | De 250kVA a 1000kVA
@@ -253,7 +256,13 @@ Tensión de operación según ARESEP | x | x | x | x
 Medio de desconexión según IEEE 1547/4.1.7 | - | x | x | x
 Conexión mediante reconectador | - | - | - | x
 Transformador Exclusivo | - | - | x | x
-Medición con módulo de calidad de energía y telemetría | - | x | x | x
+Medición de intercambio con módulo de calidad de energía | - | - | - | x
+Medición de intercambio con lectura remota | x | x | X | x
+En lo que respecta al sistema de medición de producción, su instalación y costo se regirá por las siguientes reglas:
+1. Cuando la propia IGPEAC, cuenta con medición incorporada y la misma cumple con lo establecido en la normativa de la Aresep, dicha medición podrá ser usada para efectos de registrar la producción del IGPEAC, cuando se garantice el acceso a la empresa eléctrica para su lectura y control.
+2. Cuando la IGEAPC no cuente con medición o cuando la misma no cumple con la normativa de la Aresep, o no se garantice a la empresa eléctrica el libre acceso para su lectura y control, la empresa eléctrica deberá instalar un sistema de medición, unidireccional, sin lectura remota y sin corta/reconexión remota, para el registro de la energía producida. La infraestructura para su instalación correrá por cuenta del usuario y se ajustará a la norma AR-NT-ACO emitida por la Aresep; el costo de dicho sistema de medición y su instalación correrá por cuenta de la empresa eléctrica hasta para una potencia de la IGPEAC de 250 kVA.
+3. Alternativamente para el registro de producción de la IGPEAC se podrá instalar una sistema de medición remota, cuando el usuario no desee instalarlo en el límite de propiedad conforme a lo establecido en la norma AR-NT-ACO y sus reformas, siempre y cuando el usuario cubra los costos del sistema de medición y su instalación, y garantice a la empresa el libre acceso para su control.
+(*) (Así reformado el punto 1.6 "medición" anterior por resolución RRG-176-2015 del 25 de marzo de 2015)
 II. Requisitos particulares de los sistemas fotovoltaicos a base de inversores
 2.1 Normativa aplicada
 Parámetro Norma
@@ -431,18 +440,20 @@ En el Estudio de Viabilidad Técnica la empresa distribuidora indicará cuáles 
 La empresa distribuidora procederá con la revisión de la información presentada. Si la misma cumple con los requisitos técnicos, se emitirá una aprobación de la IGEPAC para que el abonado o usuario pueda iniciar su construcción o instalación.
 4. Suscripción del contrato de conexión
 El contrato de conexión para cualquiera de las dos modalidades (medición neta sencilla o neta completa) deberá contener como mínimo lo indicado en el Artículo 133 de AR-NT-POASEN 2014.
-5. Inspección preliminar e instalación del sistema de medición
-Posterior a la suscripción del contrato y a la instalación del sistema de generación, el abonado o usuario notificará a la empresa distribuidora para que realice una inspección previa del sistema. El costo de inspección deberá cubrirlo el abonado o usuario, conforme a la tarifa de interconexión establecida por la Autoridad Reguladora
+(*)5. Inspección preliminar e instalación del sistema de medición
+Posterior a la suscripción del contrato y a la instalación del sistema de generación, el abonado o usuario notificará a la empresa distribuidora para que realice una inspección previa del sistema.
+El costo de inspección deberá cubrirlo el abonado o usuario, conforme a la tarifa de interconexión establecida por la Autoridad Reguladora. Si por motivos ajenos a la empresa eléctrica se requiere repetir la inspección preliminar, el usuario deberá correr con los costos de inspección conforme a dicha tarifa.
 Esta misma notificación servirá como inicio del trámite para la instalación del sistema de medición (de al menos dos medidores, según la topología del caso particular) que permita determinar la generación total de la IGPEAC, el consumo del inmueble donde está conectada la IGPEAC, y la inyección de excedente a la red de distribución eléctrica. Esta instalación se realizará conforme a la normativa de contadores de energía y de acometidas vigente, de la Autoridad Reguladora.
+(*) (Así reformado el punto 5 anterior por resolución RRG-176-2015 del 25 de marzo de 2015)
 6. Autorización de conexión temporal del sistema
 Una vez que se cuente con el visto bueno de la inspección, el abonado o usuario podrá solicitar a la empresa distribuidora, una autorización temporal de conexión en paralelo del sistema de generación con la red de distribución, por un máximo de 15 días naturales, con el fin de que pueda realizar pruebas preliminares y ajustes de su sistema de generación, previo a las pruebas técnicas de la empresa distribuidora. Durante este período se reconocerá el intercambio de energía generada.
 Las pruebas debe realizarlas personal calificado, bajo responsabilidad del abonado o usuario.
 Concluido este periodo, el abonado o usuario no podrá poner a funcionar el sistema de generación en paralelo con la red de distribución hasta la Puesta en Servicio Permanente.
-7. Pruebas técnicas efectuadas por la empresa distribuidora
+(*) 7. Pruebas técnicas efectuadas por la empresa distribuidora
 El abonado o usuario es responsable de asegurar que todos los sistemas de protección y telemetría, cuando aplica, estén ajustados y trabajando adecuadamente previo a la inspección de operación en paralelo y pruebas técnicas de la empresa distribuidora.
-Si existen problemas durante las pruebas, el representante de la empresa distribuidora puede elegir cancelar las pruebas y reprogramarlas.
-Las pruebas de funcionamiento deben de ser realizadas por parte del abonado o usuario y supervisadas por la empresa distribuidora. Las pruebas a realizar se detallan en el documento
-Pruebas operativas para la puesta en servicio del sistema de generación a pequeña escala para autoconsumo.
+Si existen problemas durante las pruebas, el representante de la empresa distribuidora, con fundamento técnico puede suspender las pruebas y reprogramarlas. Todas las inspecciones adicionales que se deban efectuar de previo a la puesta en operación permanente, deberá ser canceladas por el interesado conforme a la tarifa o cargo de interconexión establecida por la Autoridad Reguladora.
+Las pruebas de funcionamiento deben de ser realizadas por parte del abonado o usuario y supervisadas por la empresa distribuidora. Las pruebas a realizar se detallan en el documento Pruebas operativas para la puesta en servicio del sistema de generación a pequeña escala para autoconsumo.
+(*) (Así reformado el punto 7 anterior por resolución RRG-176-2015 del 25 de marzo de 2015)
 8. Puesta en servicio permanente de la IGEPAC y permiso de operación
 Si las pruebas técnicas que realiza la empresa distribuidora son satisfactorias, se emitirá la Puesta en Servicio Permanente, donde se especificará la fecha de inicio del intercambio de energía.
 Cualquier cambio en equipos o funcionamiento del sistema de generación por parte del abonado o usuario, debe notificarse previamente y ser aprobado por la empresa distribuidora.
