@@ -1,0 +1,2 @@
+Artículo 26.—Informe del accidente. La Persona Coordinadora de Transportes analizará todo accidente de tránsito en que participe un vehículo del INA a su cargo, del cual rendirá un informe detallado de lo sucedido, a la Jefatura de la Unidad de Recursos Materiales dentro de los dos días hábiles posteriores a la fecha de entrega del expediente de la declaración del accidente por parte de la Persona Chofer o Conductor/a.
+Una vez concluido el proceso judicial, el caso se trasladará a la Asesoría Legal para iniciar el Procedimiento de Cobro Administrativo como corresponde.

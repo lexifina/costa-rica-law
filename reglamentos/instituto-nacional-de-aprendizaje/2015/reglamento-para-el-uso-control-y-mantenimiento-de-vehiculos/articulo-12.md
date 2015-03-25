@@ -1,0 +1,1 @@
+Artículo 12.—Uso de motocicletas. Las motocicletas asignadas a las Unidades Regionales y Sede Central, podrán ser utilizadas en labores administrativas de acuerdo a las necesidades de la Unidad en la que se encuentren asignadas, siempre y cuando no afecten las labores docentes y la ejecución de los Servicios de Capacitación y Formación Profesional.

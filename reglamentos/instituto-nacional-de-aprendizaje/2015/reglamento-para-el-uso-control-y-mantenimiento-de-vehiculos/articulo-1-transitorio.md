@@ -1,0 +1,1 @@
+Transitorio I.—La Gestión de Normalización y Servicios de Apoyo en coordinación con la Unidad de Recursos Materiales deberán realizar las gestiones necesarias para tener actualizados todos los módulos del Sistema de Control Vehicular al 1 de junio de 2015.

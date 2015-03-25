@@ -1,0 +1,1 @@
+Transitorio II.—Se otorga a la Unidad de Recursos Materiales el plazo contado a partir de la publicación de este Reglamento y hasta el 31 de marzo de 2015, para la elaboración o actualización de los procedimientos y formularios que correspondan en el Sistema de Gestión de la Calidad, y su correspondiente aplicación.

@@ -1,0 +1,1 @@
+Artículo 4º—Asignación de vehículos administrativos. Los vehículos estarán asignados a la persona encargada de la Unidad de Recursos Materiales y en las Unidades Regionales a la persona funcionaria encargada de la Jefatura de la Unidad Regional.

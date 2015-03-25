@@ -1,0 +1,1 @@
+Artículo 11.—Salida de los vehículos fuera del país. En circunstancias especiales que se requiera que un vehículo circule fuera del territorio nacional, previamente debe existir autorización escrita, debidamente justificada, aprobada por la Junta Directiva.
