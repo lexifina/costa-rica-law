@@ -13,3 +13,4 @@ Tabla de honorarios de Peritos, Ejecutores, Servicios Médicos Forenses y Especi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-01 | la propia norma |
+| 2 | 2015-03-25 | Circular 34 (2015-03-25) |
