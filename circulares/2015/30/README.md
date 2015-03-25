@@ -13,3 +13,4 @@ Plazo para la remisión de pruebas documentales que deben incorporarse en los ex
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-09 | la propia norma |
+| 2 | 2015-03-25 | Circular 56 (2015-03-25) |
