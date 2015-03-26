@@ -1,0 +1,1 @@
+Artículo 2º—La alimentación autorizada cubrirá a todos los participantes de los eventos y se hará con independencia de que los mismos se realicen en las oficinas de esta institución o en cualquier otro recinto.
