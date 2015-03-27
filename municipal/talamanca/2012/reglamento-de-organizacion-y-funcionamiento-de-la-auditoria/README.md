@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-16 | la propia norma |
+| 2 | 2015-03-27 | Reglamento municipal 234 (2015-03-27) |
