@@ -1,0 +1,1 @@
+Artículo 23.—Las entidades públicas y órganos desconcentrados, procurarán cubrir con recursos propios los gastos de contrapartida local, los estudios de prefactibilidad y de perfiles, que se requieran para la ejecución de proyectos, en adición a los provenientes de fuentes externas y en especial de endeudamiento público.

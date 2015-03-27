@@ -1,0 +1,2 @@
+Artículo 18.—Las entidades públicas que tengan capacidad financiera, podrán realizar la construcción de nuevos edificios o la adquisición de inmuebles, solamente si en el mediano plazo implica un ahorro en el pago de alquileres y no repercuta en el desarrollo normal de sus actividades, previo estudio que demuestre su factibilidad económica y financiera.
+Dichos gastos deberán contar con el aval del Ministro Rector.

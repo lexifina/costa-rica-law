@@ -1,0 +1,1 @@
+Artículo 16.—Para efectos de la formulación de los presupuestos, los ministerios, entidades públicas y órganos desconcentrados solo podrán incorporar los proyectos que estén incluidos en el Banco de Proyectos de Inversión Pública del MIDEPLAN y que cumplan con los requerimientos establecidos por dicho ministerio.

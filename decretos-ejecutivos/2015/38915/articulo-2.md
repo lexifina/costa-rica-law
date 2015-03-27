@@ -1,0 +1,1 @@
+Artículo 2º—En concordancia con lo dispuesto en el artículo 23 de la Ley de la Administración Financiera de la República y Presupuestos Públicos N° 8131 y 15 de su Reglamento, es responsabilidad de la máxima autoridad de cada ministerio, órgano desconcentrado y entidad, velar por el cumplimiento de estas directrices.

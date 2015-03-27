@@ -1,0 +1,2 @@
+Artículo 11.—Los ministerios, de conformidad con el Decreto Ejecutivo N° 37485-H, deberán informar a más tardar el 31 de marzo del 2016, a la DGPN, sobre el uso de los recursos que estos asignen mediante transferencias durante el ejercicio económico anterior, a fin de ordenar la asignación de los recursos en la formulación del Presupuesto de la República del periodo económico siguiente.
+La DGPN le facilitará oportunamente el instrumento respectivo a los ministerios para la recopilación de la información.

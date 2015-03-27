@@ -1,0 +1,2 @@
+Artículo 10.—Los ministerios en la formulación de sus presupuestos deberán valorar la continuidad de la asignación de las transferencias, asignadas a sus órganos desconcentrados, mediante la realización de un estudio técnico y legal.
+Los resultados del citado estudio, así como las respectivas sugerencias y propuestas de modificaciones a la normativa que las fundamentan, deberán presentarse a más tardar el 31 de mayo del 2016 a la Dirección General de Presupuesto Nacional, en adelante DGPN, con copia a la STAP.

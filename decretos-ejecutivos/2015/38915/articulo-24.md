@@ -1,0 +1,1 @@
+Artículo 24.—En las negociaciones de créditos tanto por parte de las entidades públicas, ministerios y órganos desconcentrados, como de la Dirección de Crédito Público, se deberá procurar que la conformación de las Unidades Ejecutoras de Proyectos de Inversión, se constituyan con el recurso humano existente.

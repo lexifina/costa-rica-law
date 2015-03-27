@@ -1,0 +1,2 @@
+Artículo 5º—El gasto presupuestario de las entidades públicas y órganos desconcentrados para el año 2016, no podrá exceder el monto incorporado en el presupuesto ordinario 2015, deduciendo los gastos no recurrentes, siempre y cuando no correspondan a proyectos de inversión plurianuales, así como las transferencias que deban realizar por mandato de ley.
+Los montos del gasto presupuestario máximo resultantes, serán comunicados por la STAP a más tardar el 30 de abril de 2015.

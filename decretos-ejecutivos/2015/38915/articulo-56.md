@@ -1,0 +1,1 @@
+Artículo 56.—Las entidades públicas, ministerios y órganos desconcentrados, observarán los Procedimientos de estas directrices, que el Poder Ejecutivo establezca mediante decreto ejecutivo para su aplicación y seguimiento.

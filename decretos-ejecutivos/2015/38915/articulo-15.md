@@ -1,0 +1,1 @@
+Artículo 15.—Los ministros serán responsables de garantizar que los órganos desconcentrados incluyan en sus presupuestos, solo aquellos proyectos para los que cuenten con los recursos financieros y técnicos necesarios para su ejecución y que sean prioritarios según el Plan Nacional de Desarrollo.

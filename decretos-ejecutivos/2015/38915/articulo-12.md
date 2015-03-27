@@ -1,0 +1,2 @@
+Artículo 12.—Los ministerios, en los anteproyectos de presupuesto, deberán eliminar de su relación de puestos, aquellas plazas que no cuenten con la aprobación de la AP, aun y cuando hayan tenido contenido económico en el periodo inmediato anterior. En su defecto, la DGPN deberá realizar la eliminación de las plazas en el proceso de formulación del Presupuesto de la República, con base en el acuerdo emitido por la AP.
+Una vez eliminadas las plazas, la DGPN deberá informar a la STAP, detallando número de puesto y clasificación.

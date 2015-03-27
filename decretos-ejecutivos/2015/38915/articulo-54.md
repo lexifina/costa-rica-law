@@ -1,0 +1,1 @@
+Artículo 54.—El incumplimiento de lo dispuesto en estas directrices podrá acarrear la aplicación del régimen de responsabilidad establecido en el título X, artículos 107 y siguientes de la Ley N° 8131 ya citada.

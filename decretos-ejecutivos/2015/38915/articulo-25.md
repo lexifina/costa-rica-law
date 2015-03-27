@@ -1,0 +1,1 @@
+Artículo 25.—Las entidades públicas exceptuadas de la aplicación del “Reglamento para Gestionar la Autorización para la Contratación del Crédito Público del Gobierno de la República, Entidades Públicas y demás Órganos según corresponda”, remitirán a la Dirección de Crédito Público, cada vez que se requiera, información sobre la deuda pública contratada.

@@ -1,0 +1,1 @@
+Artículo 51.—La fecha de rige de los acuerdos tomados por la AP, en ejercicio de sus competencias, será el primer día del mes siguiente al de la aprobación del acuerdo, sin perjuicio de lo dispuesto en la normativa vigente.
