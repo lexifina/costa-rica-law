@@ -1,2 +1,0 @@
-Artículo 3º—La Autoridad Presupuestaria valorará los casos excepcionales en los que se pueda dejar de aplicar el artículo anterior, en razón de conveniencia y necesidad de la Administración. La propuesta de excepción deberá ser debidamente justificada por los respectivos ministerios, órganos desconcentrados y entidades, cubiertas por el ámbito de la Autoridad Presupuestaria.
-(Así reformado por el artículo 1° de la directriz N° 14 del 3 de setiembre del 2014)

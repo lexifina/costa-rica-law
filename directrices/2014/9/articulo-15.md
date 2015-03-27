@@ -1,2 +1,0 @@
-Artículo 15.—La Dirección General de Presupuesto Nacional del Ministerio de Hacienda preparará las modificaciones a la Ley de Presupuesto vigente, para rebajar las autorizaciones de gasto sujetas a subejecución, sumas todas que deberán contribuir al menor crecimiento de la deuda pública.
-(Así reformado y corrida su numeración por el artículo 3° de la directriz N° 14 del 3 de setiembre del 2014, que traspasó el texto del artículo 16 al 15 toda vez que se derogó el artículo 7 original)

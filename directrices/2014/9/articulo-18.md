@@ -1,1 +1,0 @@
-Artículo 18.—(El texto de este artículo debe consultarse en el numeral 17 toda vez que mediante directriz N° 14 del 3 de setiembre del 2014, se derogó el artículo 7 corriendo la numeración de todos los artículos posteriores)

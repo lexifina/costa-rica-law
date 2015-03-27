@@ -1,2 +1,0 @@
-Artículo 11.—Los salarios únicos o compuestos, según corresponda del presidente, vicepresidentes, ministros, viceministros, presidentes ejecutivos, gerentes y subgerentes del Sector Descentralizado, se mantendrán fijos, no recibiendo aumentos salariales.
-(Así reformado y corrida su numeración por el artículo 3° de la directriz N° 14 del 3 de setiembre del 2014, que traspasó el texto del artículo 12 al 11 toda vez que se derogó el artículo 7 original)
