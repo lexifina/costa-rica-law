@@ -1,0 +1,2 @@
+Artículo 3º—Adiciónese un inciso t) al artículo 20, del Decreto Ejecutivo Nº 32988, Reglamento a la Ley de la Administración Financiera de la República y Presupuestos Públicos, publicado en La Gaceta Nº 74 de 18 de abril de 2006 y sus reformas, que se leerá de la siguiente forma:
+“t) Realizar estudios a solicitud de la Autoridad Presupuestaria o de oficio, referentes a la materia presupuestaria, salarial, empleo, inversión y endeudamiento, que permitan proponer acciones y políticas que contribuyan al ordenamiento presupuestario.”
