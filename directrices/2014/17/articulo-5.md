@@ -1,1 +1,0 @@
-Artículo 5º—Instruir al Ministerio de Hacienda para que en consideración de las proyecciones correspondientes a la situación fiscal, recomiende periódicamente a la Presidencia de la República las directrices necesarias para garantizar una ejecución eficiente, austera y transparente del gasto público.
