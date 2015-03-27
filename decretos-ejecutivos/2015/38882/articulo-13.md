@@ -1,0 +1,2 @@
+Artículo 13.—Infraestructura y recursos humanos. El Estado costarricense velará por dotar al Museo Nacional de Costa Rica de los recursos necesarios para el planeamiento y construcción de la infraestructura requerida para albergar las colecciones referidas en el presente Decreto Ejecutivo.
+Igualmente deberá garantizar que se cuente con el recurso humano capacitado para el mantenimiento, conservación y desarrollo de dichas colecciones.

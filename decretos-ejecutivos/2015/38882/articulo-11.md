@@ -1,0 +1,2 @@
+Artículo 11.—Mejora y Eficiencia Administrativa. La Administración Pública Central contribuirá aplicando las reglas de simplificación de trámite, eficiencia administrativa y coordinación interinstitucional, incentivando con ello el desarrollo, fortalecimiento y expansión del Museo Nacional de Costa Rica.
+Los entes que tengan injerencia en cualquier trámite relacionado con las colecciones biológicas e información relacionada, propiedad del Estado, podrán participar y cooperar para facilitar las acciones que permitan el desarrollo de estas actividades e iniciativas.

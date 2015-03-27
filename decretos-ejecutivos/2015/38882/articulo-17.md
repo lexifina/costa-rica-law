@@ -1,0 +1,1 @@
+Artículo 17.—Excepción. La Directriz 009-H-2014, publicada en La Gaceta N° 137 del 17 de Julio de 2014 y sus modificaciones, no será aplicable al Museo Nacional de Costa Rica en lo que respecta al objeto del presente Decreto Ejecutivo.

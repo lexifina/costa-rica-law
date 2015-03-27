@@ -1,0 +1,1 @@
+Artículo 14.—Integridad. El Museo Nacional de Costa Rica, una vez recibidas las colecciones biológicas, así como la información y la donación de los activos, garantizará en todo momento la integridad de las colecciones y su material asociado, como bienes propiedad del Estado.
