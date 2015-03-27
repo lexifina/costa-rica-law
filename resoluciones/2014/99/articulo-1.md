@@ -184,9 +184,15 @@ EL INTENDENTE DE ENERGÍA
 RESUELVE:
 I. Fijar las siguientes tarifas para los generadores privados existentes (Ley 7200) que firmen un nuevo contrato de compra venta de electricidad con el Instituto Costarricense de Electricidad (ICE):
 a. Para plantas hidroeléctricas existentes ($/kWh):
-[imagen]
+Hidroeléctrica | Estación\Horario | Punta | Valle | Noche
+Alta | 0,1837 | 0,1837 | 0,1102
+Baja | 0,0735 | 0,0294 | 0,0184
+(Así reformado el punto a) anterior por resolución RIE-037-2015 del 27 de marzo de 2015)
 b. Para plantas eólicas existentes ($/kWh):
-[imagen]
+Eólico | Estación | Parámetro
+Alta | 0,1020
+Baja | 0,0408
+(Así reformado el punto a) anterior por resolución RIE-037-2015 del 27 de marzo de 2015)
 II. Indicar que de conformidad con la resolución RJD-009-2010, los generadores privados que le vendan energía eléctrica al ICE al amparo de la Ley 7200 tendrán la obligación de presentar a la ARESEP la información financiera auditada que esta disponga, especialmente lo referente a: gastos operativos y de mantenimiento, administrativos y gastos de inversión individual; así como su debida justificación, que permita al Ente Regulador disponer de la mayor y mejor cantidad de información necesaria para el ajuste del modelo a las condiciones operativas reales.
 En cumplimiento de lo que ordenan los artículos 245 y 345 de la Ley General de la Administración Pública (L. G. A. P.) se informa que contra esta resolución pueden interponerse los recursos ordinarios de revocatoria y de apelación y el extraordinario de revisión. El de revocatoria podrá interponerse ante el Intendente de Energía, a quien corresponde resolverlo y los de apelación y de revisión podrán interponerse ante la Junta Directiva, a la que corresponde resolverlos.
 De conformidad con el artículo 346 de la L. G. A. P., los recursos de revocatoria y de apelación deberán interponerse en el plazo de tres días hábiles contado a partir del día hábil siguiente al de la notificación y, el extraordinario de revisión, dentro de los plazos señalados en el artículo 354 de dicha ley.
