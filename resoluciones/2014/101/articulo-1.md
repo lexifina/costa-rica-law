@@ -168,8 +168,15 @@ III. Que de conformidad con lo señalado en los resultandos y considerandos prec
 POR TANTO
 EL INTENDENTE DE ENERGÍA
 RESUELVE:
-I. Fijar la banda tarifaria para todos los generadores privados hidroeléctricos nuevos que firmen un contrato para la venta al Instituto Costarricense de Electricidad al amparo del capítulo I de la Ley 7200, para aquellas compraventas de energía eléctrica provenientes de plantas hidroeléctricas privadas nuevas con condiciones similares a las que establece la Ley 7200, que sean jurídicamente factibles y que deban ser reguladas por ARESEP, y para aquellas compraventas de energía proveniente de plantas nuevas que produzcan con fuentes no convencionales para las cuales no exista aún una metodologías tarifaria específica aprobada por la Autoridad Reguladora, en: tarifa inferior (límite inferior) de $0,0924 por kWh, la tarifa promedio en $0,1037 por kWh y una tarifa superior (límite superior) de $0,1150 por kWh; con la siguiente estructura tarifaria ($/kWh):
-[imagen]
+I. Fijar la banda tarifaria para todos los generadores privados hidroeléctricos nuevos que firmen un contrato para la venta al Instituto Costarricense de Electricidad al amparo del capítulo I de la Ley 7200, para aquellas compraventas de energía eléctrica provenientes de plantas hidroeléctricas privadas nuevas con condiciones similares a las que establece la Ley 7200, que sean jurídicamente factibles y que deban ser reguladas por ARESEP, y para aquellas compraventas de energía proveniente de plantas nuevas que produzcan con fuentes no convencionales para las cuales no exista aún una metodologías tarifaria específica aprobada por la Autoridad Reguladora, en: tarifa inferior (límite inferior) de $0,0918 por kWh, la tarifa promedio en $0,1029 por kWh y una tarifa superior (límite superior) de $0,1141 por kWh; con la siguiente estructura tarifaria ($/kWh):
+Estación\Horario | Punta | Valle | Noche
+Alta | Mínimo | 0,2191 | 0,2191 | 0,1315
+Promedio | 0,2457 | 0,2457 | 0,1475
+Máximo | 0,2724 | 0,2724 | 0,1634
+Baja | Mínimo | 0,0876 | 0,0351 | 0,0219
+Promedio | 0,0983 | 0,0393 | 0,0246
+| Máximo | 0,1089 | 0,0436 | 0,0273
+(Así reformado el punto I) anterior y el cuadro por resolución RIE-038-2015 27 de marzo de 2015)
 II. Indicar que para aquellas compraventas de energía proveniente de plantas nuevas que produzcan con fuentes no convencionales para las cuales no exista aún una metodología tarifaria específica aprobada por la Autoridad Reguladora no les aplicable la estructura tarifaria de la recomendación anterior.
 III. Solicitar a los generadores privados hidroeléctricos a los que se apliquen las tarifas establecidas mediante esta metodología cumplir con lo que se establece en la RJD-152-2011, en cuanto a presentar anualmente a la ARESEP la información financiera auditada (incluyendo gastos operativos y de mantenimiento, administrativos y gastos de inversión individual) así como su debida justificación. Para estos efectos se deberá presentar, al menos anualmente, los estados financieros auditados de la empresa.
 En cumplimiento de lo que ordenan los artículos 245 y 345 de la Ley General de la Administración Pública (L. G. A. P.) se informa que contra esta resolución pueden interponerse los recursos ordinarios de revocatoria y de apelación y el extraordinario de revisión. El de revocatoria podrá interponerse ante el Intendente de Energía, a quien corresponde resolverlo y los de apelación y de revisión podrán interponerse ante la Junta Directiva, a la que corresponde resolverlos.
