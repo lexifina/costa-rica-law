@@ -25,6 +25,8 @@ Frecuencias de asignación no exclusiva: Corresponde a las frecuencias (bandas, 
 (Así adicionada la definición anterior por el artículo 4°; inciso 1 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 Frecuencias que requieren asignación exclusiva: Corresponde a las frecuencias (bandas, rangos, segmentos) que se asignan a un solo concesionario para el adecuado funcionamiento de los servicios de telecomunicaciones en redes públicas o privadas, cumpliendo los parámetros dispuestos en el inciso d) del artículo 13 del presente Plan.
 (Así adicionada la definición anterior por el artículo 4°; inciso 1 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+Identificación (de una banda o segmento de frecuencias): Inscripción en las notas del Artículo 19 del PNAF que manifiesta la determinación por parte de la Administración de efectuar un cambio en la utilización y atribución de un servicio radioeléctrico de una determinada banda o segmento de frecuencias, para el desarrollo de un determinado sistema aplicativo en un futuro cercano. Dicha identificación informará a los usuarios propios y futuros (mientras se mantenga la utilización y atribución original de la banda o segmento) sobre lo previsto por la Administración a fin de que dichos usuarios consideren esta identificación respecto a sus planes de inversión y expansión de red, y tendrá como finalidad el estudio de los posibles casos de reasignación (de ser necesaria). Esta definición no aplica para la designación de uso exclusivo o no exclusivo de una determinada banda de frecuencias o segmento de ésta.
+(Así adicionado el término anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 Servicios radioeléctricos
 Servicio de radiocomunicación: Servicio definido en esta sección que implica la transmisión, la emisión o la recepción de ondas radioeléctricas para fines específicos de telecomunicación. Todo servicio de radiocomunicación que se mencione en el presente PNAF, salvo indicación expresa en contrario, corresponde a una radiocomunicación terrenal.
 Servicio fijo: Servicio de radiocomunicación entre puntos fijos determinados.
@@ -378,90 +380,57 @@ Notas en la Tabla de Niveles de Potencia Máxima Permitida para Emisiones no es�
 (13) Estos niveles no se aplican a estaciones del servicio espacial, pero, los niveles de sus emisiones no esénciales se reducirán a los valores lo más bajo que sea posible, compatibles con la restricciones técnicas y económicas a las que estén sujetas los equipos.
 ADENDUM III
 Canalización y normas específicas de los servicios de radiodifusión sonora y televisiva
-Canalización de frecuencias y anchos de bandas utilizados en los enlaces de radiodifusión sonora.
-La canalización de frecuencia y el ancho de banda necesario para el transporte de señal de audio entre estudios y plantas transmisoras o repetidores para radiodifusión sonora serán las siguientes:
-(1) Canalización de las frecuencias de enlaces para radioemisoras en AM, con un ancho de banda de 100 KHz.
-420.0500 420.1500 420.2500 420.3500 420.4500 420.5500 420.6500 420.7500 420.8500 420.9500 421.0500 | 421.1500 421.2500 421.3500 421.4500 421.5500 421.6500 421.7500 421.8500 421.9500 422.0500 425.0500 | 425.1500 425.2500 425.3500 425.4500 425.5500 425.6500 425.7500 425.8500 425.9500 426.0500 450.0500 | 450.1500 450.2500 450.3500 450.4500 450.5500 450.6500 450.7500 450.8500 450.9500 451.0500 455.0500 | 455.1500 455.2500 455.3500 455.4500 455.5500 455.6500 455.7500 455.8500 455.9500 456.0500
-(2) Canalización de las Frecuencias de Enlaces para radioemisoras en FM, ancho de
-banda de 250 KHz
-920.0000 | 928.0000 | 945.0000 | 953.0000
-920.2500 | 928.2500 | 945.2500 | 953.2500
-920.5000 | 928.5000 | 945.5000 | 953.5000
-920.7500 | 928.7500 | 945.7500 | 953.7500
-921.0000 | 929.0000 | 946.0000 | 954.0000
-921.2500 | 935.0000 | 946.2500 | 954.2500
-921.5000 | 935.2500 | 946.5000 | 954.5000
-921.7500 | 935.5000 | 947.0000 | 954.7500
-922.0000 | 935.7500 | 946.7500 | 955.0000
-922.2500 | 936.0000 | 947.2500 | 955.2500
-922.5000 | 936.2500 | 947.5000 | 955.5000
-922.7500 | 936.5000 | 947.7500 | 955.7500
-923.0000 | 936.7500 | 948.0000 | 956.0000
-923.2500 | 937.0000 | 948.2500 | 956.2500
-923.5000 | 937.2500 | 948.5000 | 956.5000
-923.7500 | 937.5000 | 948.7500 | 956.7500
-924.0000 | 937.7500 | 949.0000 | 957.0000
-924.2500 | 938.0000 | 949.2500 | 957.2500
-924.5000 | 938.2500 | 949.5000 | 957.5000
-924.7500 | 938.5000 | 949.7500 | 957.7500
-925.0000 | 938.7500 | 950.0000 | 958.0000
-925.2500 | 942.2500 | 950.2500 | 958.2500
-925.5000 | 942.5000 | 950.5000 | 958.5000
-925.7500 | 942.7500 | 950.7500 | 958.7500
-926.0000 | 943.0000 | 951.0000 | 959.0000
-926.2500 | 943.2500 | 951.2500 | 959.2500
-926.5000 | 943.5000 | 951.5000 | 959.5000
-926.7500 | 943.7500 | 951.7500 | 959.7500
-927.0000 | 944.0000 | 952.0000 |
-927.2500 | 944.2500 | 952.2500 |
-927.5000 | 944.5000 | 952.5000 |
-927.7500 | 944.7500 | 952.7500 |
-La excursión máxima de frecuencia para los enlaces de 100 KHz de ancho de banda será de más menos 15 KHz y de más menos 75 KHz para los enlaces 250 KHz de ancho de banda.
-La potencia máxima será la siguiente
-Enlaces en las bandas de 400 MHz. 25 Watts.
-Enlaces en las bandas de 900 MHz. 10 Watts.
-La banda de 920 a 929.5 Mhz y la banda de 935 a 939 MHz será utilizada para enlaces entre las plantas transmisoras y las repetidoras saliendo del Volcán Irazú. Asimismo la banda de 942 a 960 MHz será utilizada para enlaces entre estudios y plantas transmisoras y podrán ser reutilizadas para enlaces entre repetidoras donde no causen interferencia.
-(3) Normas aplicables a los servicios de radiodifusión sonora.
+Canalización de frecuencias y anchos de bandas utilizados en los radioenlaces de radiodifusión sonora.
+(Así modificada la denominación del título anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015. Anteriormente se indicaba: "Canalización de frecuencias y anchos de bandas utilizados en los enlaces de radiodifusión sonora")
+(*)La canalización de frecuencia y el ancho de banda necesario para el transporte de señal de audio entre estudios y plantas transmisoras o repetidores para radiodifusión sonora, se deberá realizar en apego a lo dispuesto en las notas nacionales y estarán sujetas a los dictámenes técnicos que efectúe la SUTEL para evaluar la factibilidad técnica de los radioenlaces.
+La excursión máxima de frecuencia para los radioenlaces de 100 kHz de ancho de banda será de ± 15 kHz y para los radioenlaces de 250 kHz de ancho de banda será de ± 75 kHz.
+La potencia máxima de salida de los equipos será:
+Enlaces en las bandas de 400 MHz: 15 W
+Enlaces en las bandas de 900 MHz: 10 W
+(Así reformado el párrafo anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015.)
+(*)(1) Normas aplicables a los servicios de radiodifusión sonora.
 Toda radioemisora deberá funcionar libre de espurias y armónicas, ajustada a su frecuencia de tal modo que no cause interferencia a otros servicios, y deberá suprimir toda radiación no esencial a una atenuación de 65 dB por debajo de la portadora principal.
-El porcentaje de modulación de una estación radiodifusora no debe ser mayor del cien por ciento. Para estaciones con modulación en frecuencia entiéndase la excursión máxima permitida como el cien por ciento de modulación. (±75 KHz.).
+El porcentaje de modulación de una estación radiodifusora no debe ser mayor del cien por ciento. Para estaciones con modulación en frecuencia entiéndase la excursión máxima permitida como el cien por ciento de modulación. (±75 kHz.).
 La radiodifusión con modulación de frecuencia podrán utilizar las siguientes normas:
 Transmisiones monofónicas o estereofónicas.
-Deberán utilizar una excursión máxima de frecuencia de ± 75 KHz, y una preacentuación de 75 microsegundos (75 µs)
+Deberán utilizar una excursión máxima de frecuencia de ± 75 kHz, y una preacentuación de 75 μs.
 El servicio de radiodifusión sonora en FM podrá utilizar cualquiera de los tipos de modulación que se indican a continuación:
-1-) sistema de modulación polar
-2-) sistema de frecuencia piloto
-3-) señal múltiplex estereofónica
-4-) señal en banda base en el caso de transmisión de señales complementarias.
+1. sistema de modulación polar
+2. sistema de frecuencia piloto
+3. señal múltiplex estereofónica
+4. señal en banda base en el caso de transmisión de señales complementarias.
 En el caso que se desee transmitir además del programa estereofónico, un programa monofónico suplementario y/o señales de información suplementaria, se deberán observar las siguientes condiciones:
 La inserción del programa o de las señales complementarias en la señal en banda base, debe permitir la compatibilidad con los receptores existentes, es decir; que estas señales adicionales no deben degradar la calidad de recepción del programa principal.
 La señal de banda base deberá estar constituida por la señal múltiplex estereofónica, cuya amplitud sea al menos igual al noventa por ciento de la amplitud de la señal en banda base y las señales suplementarias, la amplitud máxima debe ser igual al diez por ciento del total del valor.
-En el caso de señales de información suplementarias la frecuencia de la subportadora adicional debe estar comprendida entre 53 y 75 KHz. Pero en ningún caso la excursión máxima de la portadora principal por la señal de base total podrá exceder de ± 75 KHz.
+En el caso de señales de información suplementarias la frecuencia de la subportadora adicional debe estar comprendida entre 53 Hz y 75 kHz. Pero en ningún caso la excursión máxima de la portadora principal por la señal de base total podrá exceder de ± 75 kHz.
 Toda estación radiodifusora debe estar equipada con instrumentos de lectura de exactitud, los cuales deberán tener como característica ser universales o estándar e indicar la potencia de salida del transmisor y la potencia reflejada.
-(4) Normas mínimas de instalación y operación en ondas Hectométricas y Decamétricas.
-Las estaciones del servicio de radiodifusión sonora en ondas hectométricas y / o decamétricas, deberán establecer las medidas de protección y señalización mínimas que garanticen la seguridad de la vida humana, e instalarse fuera del perímetro de la ciudad a una distancia que garantice la protección de la ciudadanía contra posibles descargas eléctricas, eventual caída de una torre o bien interferencias a otros servicios de radiocomunicación.
+(*) (Así reformado el punto anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015.)
+(*) (2) Normas mínimas de instalación y operación en ondas Hectométricas y Decamétricas
+Las estaciones del servicio de radiodifusión sonora en ondas hectométricas y/o decamétricas, deberán establecer las medidas de protección y señalización mínimas que garanticen la seguridad de la vida humana, e instalarse fuera del perímetro de la ciudad a una distancia que garantice la protección de la ciudadanía contra posibles descargas eléctricas, eventual caída de una torre o bien interferencias a otros servicios de radiocomunicación.
 Las estaciones que utilicen el sistema de torre irradiadora, deberán construir sus torres en un terreno totalmente plano, de forma tal que forme un ángulo de noventa grados (90º) con relación al suelo. Deberán instalarse un mínimo de ciento veinte radiales, separados a tres grados, a igual longitud de onda de la torre, no pudiendo ser menor de un octavo de onda de longitud según su frecuencia de operación.
-La intensidad de campo mínima utilizable será de cuarenta decibeles (40 dB, 100 µV/m), es decir; cien microvoltios por metro. La protección del canal adyacente será de veintiséis decibeles (26 dB).
-La zona de cobertura será determinada por la intensidad de campo mínima utilizable, no pudiendo el concesionario solicitar protección, ni mantener el derecho de explotación en zonas no cubiertas.
-Los servicios en ondas hectométricas utilizarán el tipo de emisión A3E (modulación en amplitud) y un ancho de banda de diez kilohertz (10KHz) con una separación del canal adyacente de veinte kilohertz (20KHz).
+La intensidad de campo mínima utilizable será de cuarenta decibeles (40 dB, 100 μV/m), es decir; cien microvoltios por metro. La protección del canal adyacente será de veintiséis decibeles (26 dB).
+La zona de cobertura será determinada por la intensidad de campo mínimo utilizable, no pudiendo el concesionario solicitar protección, ni mantener el derecho de explotación en zonas no cubiertas.
+Los servicios en ondas hectométricas utilizarán el tipo de emisión A3E (modulación en amplitud) y un ancho de banda de diez kilohertz (10 kHz) con una separación del canal adyacente de veinte kilohertz (20 kHz).
 De conformidad con las bandas de frecuencias atribuidas para el servicio de radiodifusión sonora en ondas decamétricas, podrán utilizar los siguientes tipos de emisión y anchos de banda:
 10A3E DBL, (doble banda lateral), con un ancho de banda de diez kilohertz,
-5R3E BLU (banda lateral única con portadora reducida un sólo canal), ancho de banda de cinco kilohertz, o bien;
-5J3E BLU (banda lateral única con portadora suprimida), ancho de banda de cinco kilohertz.
-(5) Normas mínimas de instalación y operación en ondas métricas.
-Para la operación de estaciones de radiodifusión sonora en la banda de 88 a 108 Megahertz, se establecen las siguientes normas mínimas:
+5R3E BLU (banda lateral única con portadora reducida un sólo canal), ancho de banda de cinco kilohertz, o bien 5J3E BLU (banda lateral única con portadora suprimida), ancho de banda de cinco kilohertz.
+(*) (Así reformado el punto anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015.)
+(*)(3) Normas mínimas de instalación y operación en ondas métricas
+Para la operación de estaciones de radiodifusión sonora en la banda de 88 MHz a 108 MHz, se establecen las siguientes normas mínimas:
 Las estaciones de radiodifusión que se instalen en centros múltiples de transmisión y compartan la infraestructura requerida para tales efectos con otros servicios en la misma torre o mástil, deberán instalar sus antenas a una separación mínima de media longitud de onda de cualquier otra antena en el plano vertical, y de tres longitudes de onda como mínimo en plano horizontal. En caso de que la torre por sus dimensiones impida esta separación, deberá utilizarse la tecnología de combinadores para reducir el número de antenas, y no afectar el patrón de radiación.
 Para conservar el patrón de radiación de las antenas, en todas las instalaciones de éstas, debe guardarse una separación mínima de un cuarto de onda de la torre o mástil. Además deberá utilizar línea de transmisión tipo HELLIAX-FONT, similar o mejor, cuyo diámetro será de acuerdo a la potencia, de conformidad con las normas internacionales del fabricante. Lo anterior salvo normas técnicas dictadas por el fabricante o superación tecnológica debidamente aprobada.
 Para las estaciones de servicio estereofónico:
 1. Tipo de emisión, 300 KF3EHF
-2. Ancho de banda necesario 300 KHz.
-3. Frecuencia máxima de modulación 75 KHz.
-4. Excursión máxima de la portadora de la señal de radiofrecuencia (RF), +75 KHz
+2. Ancho de banda necesario 300 kHz.
+3. Frecuencia máxima de modulación 75 kHz.
+4. Excursión máxima de la portadora de la señal de radiofrecuencia (RF), +75 kHz
 Para estaciones de servicio monoaural:
 1. Tipo de emisión, 180 F3EGN
-2. Frecuencia máxima de modulación 15 KHz
-3. Excursión máxima de la portadora de la señal de radiofrecuencia (RF), ±15 KHz.
-La intensidad de campo mínima utilizable será de 48 dBµV/m en las zonas de baja densidad de población, de 66 dBµV/m en las zonas de media y alta densidad de población.
-La relación de protección será la intensidad de campo mínima utilizable, definida ésta como el Valor mínimo de la intensidad de campo necesaria para proporcionar una recepción satisfactoria en condiciones especificadas, en presencia de ruido atmosférico, ruido artificial y de interferencia en una situación real (o resultante de un PNAF de asignación de frecuencias).
+2. Frecuencia máxima de modulación 15 kHz
+3. Excursión máxima de la portadora de la señal de radiofrecuencia (RF), ±15 kHz.
+La intensidad de campo mínima utilizable será de 48 dBμV/m en las zonas de baja densidad de población, de 66 dBμV/m en las zonas de media y alta densidad de población.
+La relación de protección será la intensidad de campo mínima utilizable, definida ésta como el Valor mínimo de la intensidad de campo necesaria para proporcionar una recepción satisfactoria en condiciones especificadas, en presencia de ruido atmosférico, ruido artificial y de interferencia en una situación real (o resultante de un plan de asignación de frecuencias).
+(*) (Así reformado el punto anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015.)
 Servicio de Radiodifusión Televisiva
 (1) Operación e instalación.
 La operación e instalación deberá ajustarse en todo a la Ley N°. 1758 y sus modificaciones, Ley de Radio, a lo que corresponda en la Ley General de Telecomunicaciones, el Reglamento General de Telecomunicaciones, a lo establecido en este PNAF y a los convenios Internacionales en la materia adoptados por Costa Rica mediante tratados o acuerdos.
@@ -861,22 +830,43 @@ Banda de 30 a 50 MHz: | | 3 MHz
 | Banda de 225 a 470 MHz: | | 5 MHz
 | Banda de 800 a 900 MHz: | | 45 MHz
 No obstante lo anterior, y siendo que ya existe en el mercado equipos que operan con tecnología digital a una separación de canales de 6.25 KHz, y que dicha separación de frecuencias entrará en vigencia en Costa Rica a partir del 1 enero del 2012, se insta a los nuevos concesionarios a considerar la existencia de la mencionada tecnología a fin de no tener que reemplazarlos cuando entre en vigencia la nueva disposición.
-SERVICIOS DE MENSAJERIA
-(Buscapersonas)
-De los servicios de Mensajería o buscapersonas.
-El servicio de Mensajería, es un sistema de señalización selectiva para la transmisión y recepción de mensajes de voz y texto.
-Bandas de frecuencias para el servicio de Mensajería o buscapersonas.
-Serán de uso exclusivo para el servicio de Mensajería o buscapersonas, las sub-bandas siguientes:
+SISTEMAS DE BUSCAPERSONAS(*)
+De los sistemas de buscapersonas.
+El sistema de buscapersonas, es un sistema de señalización selectiva para la transmisión y recepción de mensajes de voz y texto el cual estará sujeto a los dictámenes técnicos que efectúe la SUTEL para evaluar la factibilidad técnica respectiva.
+• Bandas de frecuencias para el sistema de buscapersonas
+Serán de uso exclusivo para el sistema de buscapersonas, las sub-bandas siguientes:
 Sub Banda | Servicio | Canalización | Canal
-454 a 454.300MHz | Datos | 25 KHz | De Salida
-901 a 902 MHz | Datos | 12.5 KHz | De Retorno
-929.55 a 930 MHz | Datos | 25 KHz | De Salida
-930 a 931 MHz | Voz y Datos | 50 KHz | De Salida
-931 a 932 MHz | Datos | 25 KHz | De Salida
-Además de las frecuencias en que actualmente operan los servicios autorizados a la fecha de entrada en vigencia de este PNAF.
-Para los Sistemas de Mensajería de dos vías se utilizaran los rangos de 901 a 902 MHz y de 930 a 931 MHz para la parte superior e inferior respectivamente, en su modalidad de Datos únicamente. (901-902 MHz segmento de frecuencias sujeta a migración conforme a la nota CR 061).
-En la siguiente tabla se muestra la canalización para el servicio de Mensajería o buscapersonas
-901.0125 901.0375 901.0625 901.0875 901.1125 901.1375 901.1625 901.1875 901.2125 901.2375 901.2625 901.2875 901.3125 901.3375 901.3625 901.3875 901.4125 901.4375 901.4625 901.4875 901.5125 901.5375 901.5625 | 901.5875 901.6125 901.6375 901.6625 901.6875 901.7125 901.7375 901.7625 901.7875 901.8125 901.8375 901.8625 901.8875 901.9125 901.9375 901.9625 901.9875 929.5875 929.6125 929.6375 929.6625 929.6875 929.7125 | 929.7375 929.7625 929.7875 929.8125 929.8375 929.8625 929.8875 929.9125 929.9375 929.9625 929.9875 930.0000 930.0250 930.0500 930.0750 930.1000 930.1250 930.1500 930.1750 930.2000 930.2250 930.2500 930.2750 | 930.3000 930.3250 930.3500 930.3750 930.4000 930.4250 930.4500 930.4750 930.5000 930.5250 930.5500 930.5750 930.6000 930.6250 930.6500 930.6750 930.7000 930.7250 930.7500 930.7750 930.8000 930.8250 930.8500 | 930.8750 930.9750 931.0375 931.0625 931.0875 931.1125 931.1375 931.1625 931.1875 931.2125 931.2375 931.2625 931.2875 931.3125 931.3375 931.3625 931.3875 931.4125 931.4375 931.4625 931.4875 931.5125 931.5375 | 931.5625 930.9000 930.9250 930.9500 931.5875 931.6125 931.6375 931.6625 931.6875 931.7125 931.7375 931.7625 931.7875 931.8125 931.8375 931.8625 931.8875 931.9125 931.9375 931.9625 931.9875
+De 454 MHz a 454,300 MHz | Datos | 25 kHz | De Salida
+De 921,5 MHz a 923,0 MHz | Voz y Datos | 25 kHz | De Salida/Retorno
+a) De los códigos y formatos.
+Los concesionarios de frecuencias para la explotación de sistemas de buscapersonas deberán utilizar los formatos de codificación que permitan la mayor eficiencia en la transmisión del mensaje y el mayor número de usuarios.
+b) Características técnicas
+1) Características del Transmisor
+Las estaciones bases deberán efectuar sus transmisiones usando alguna de las emisiones siguientes según corresponda:
+• Datos : 16KOF1D
+• Voz y Datos: 6K25B8E y 8K00FID
+2) Distorsión
+Para cualquier frecuencia de modulación entre 300 Hz y 3000 Hz, así como los índices de modulación del 25, 50 y 100% a la salida del sistema, no podrán presentar una distorsión superior al 10%. Se recomienda que ninguna de las dos partes principales del sistema (transmisor y equipo de audiofrecuencia) contribuya en más de la mitad de este porcentaje.
+La distorsión introducida por el transmisor deberá ser inferior al 1% con una modulación de 100% para frecuencias de 50 Hz a 3000 Hz; y las características de audiofrecuencia estará comprendido entre ± 3 Db para frecuencias de 30 Hz a 3000 Hz empleándose una curva normal de preacentuación (preénfasis).
+3) Máxima desviación de frecuencia
+La desviación máxima de frecuencia permitida en la transmisión de datos debido a la señal moduladora, será de ±4,5 kHz.
+4) Tolerancia en frecuencia
+La desviación máxima admisible entre la frecuencia asignada y la situada en el centro de la banda de frecuencias ocupada por una emisión debe ser como sigue:
+Frecuencia (MHz) | Tolerancia de frecuencia (Partes por Millón)
+De 921,5 MHz a 923,0 MHz | 1 para datos y 0,02 para voz
+5) Emisiones no esenciales
+No deberán ser superiores a –60 dB con respecto al nivel de potencia de la frecuencia portadora.
+6) Modulación
+FSK-NRZ para Datos a velocidades de 1600, 3200, 6400 y 12 800 bps y modulación en frecuencia para voz.
+7) Potencia Máxima
+La potencia máxima permitida será de 100 W en las bandas de 150 MHz, 400 MHz y 900 MHz.
+8) Tolerancia en potencia
+La potencia de salida de un transmisor debe de mantenerse dentro de la especificada en la documentación técnica autorizada y no variar en más del 10% hacia arriba o 25% hacia abajo, y en ningún caso rebasar lo establecido.
+9) Polarización
+Las antenas de las estaciones transmisoras deberán emplear una polarización vertical.
+10) Direccionalidad
+Para este tipo de servicio podrán emplearse antenas omnidireccionales, y/o direccionales siempre y cuando la zona de cobertura así lo amerite.
+(*) (Así sustituida la sección anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 De los códigos y formatos.
 Los concesionarios de frecuencias para la explotación del servicio de mensajería o buscapersonas deberán utilizar los formatos de codificación que permitan la mayor eficiencia en la transmisión del mensaje y el mayor número de usuarios.
 Características técnicas
@@ -1078,10 +1068,13 @@ ADENDUM VII
 De la Utilización de Frecuencias de Uso Libre
 Condiciones para el uso de las frecuencias atribuidas como de uso libre.
 Son las frecuencias atribuidas en el cuadro de atribución de frecuencias para la constitución de redes privadas o públicas, mediante la utilización de equipos de radiocomunicación que se caractericen por utilizar emisiones de muy baja potencia, que minimicen la posibilidad de interferencia perjudicial, posean una notable inmunidad a las interferencias provenientes de emisiones similares con métodos convencionales de modulación, y que tales características permitan mejorar considerablemente la eficiencia en el uso del espectro, y aliviar la congestión de segmentos del mismo destinando grupos de frecuencias para que operen en forma compartida o bien que compartan las frecuencias atribuidas mediante sistemas de diferentes modulación.
-(1) Consideración de las redes de telecomunicaciones que utilicen frecuencias de uso libre.
+(1) Consideración de las redes de telecomunicaciones que utilicen frecuencias de uso libre(*).
 Serán consideradas redes de telecomunicaciones constituidas mediante la utilización de frecuencias del espectro radioeléctrico de uso libre, las siguientes:
 a) Las que utilizan tecnologías digitales como OFDM, FSK Espectro Disperso y otros, en la banda de 2400 a 2483, 5150 a 5250, 5250 a 5350, 5470 a 5725 y 5725 a 5825 MHz únicamente.
-b) Todos aquellos servicios que utilicen potencias inferiores a 250 miliwatts sin antena externa o que su radio de cobertura no sea mayor de 200 metros.
+b) Aquellas que operen en la banda de 920,5 MHz a 928 MHz para aplicaciones de medidores inteligentes o sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia (FHSS) o espectro ensanchado por secuencia directa (DSSS), sujetas a las condiciones detalladas en la sección (7) de este Adendum.
+Para las restantes bandas:
+c) Todos aquellos servicios que utilicen potencias inferiores a 250 miliwatts sin antena externa o que su radio de cobertura no sea mayor de 200 metros.
+(*) (Así reformada la sección anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 (2) Condiciones generales de Operación del servicio.
 La operación de estos servicios está condicionada a no causar interferencia perjudicial a otros servicios autorizados a fecha de entrada en vigencia el presente PNAF. Así mismo debe tolerar la interferencia perjudicial proveniente de otros sistemas autorizados, contra la cual no estará prioridad.
 a) Ante una denuncia de interferencia causada por estos servicios y debidamente comprobada, deberá de suspender toda operación y no podrá reanudarse hasta que se haya subsanado la interferencia y sea debidamente comprobado la eliminación de ésta por la SUTEL.
@@ -1112,6 +1105,14 @@ Las frecuencias 462,5625; 462,5875; 462,6125; 462,6625; 462,6875; 467,5625; 467,
 1) No podrá exceder la potencia máxima de 2 watts.
 2) Solo podrá utilizarse equipos con antena incorporada (Walkie Talkie).
 3) No se permite la instalación de Bases, Repetidoras y en vehículos.
+(*)(7) Condiciones técnicas de operación para equipos en redes de medidores inteligentes y sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia (FHSS) o de espectro ensanchado por secuencia directa (DSSS).
+Se permite la operación de dispositivos en redes de medidores inteligentes y de sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia o espectro ensanchado por secuencia directa en el segmento de 920,5 MHz a 928 MHz bajo las siguientes condiciones:
+Parámetro | Valor
+Potencia máxima (PIRE) | 1 W (para todos los dispositivos en la red)
+Tipos de antena permitidos | Integral o dedicada (ambos casos antenas internas, según la Recomendación ITU-R SM.1538-2)
+Banda de frecuencias de operación | De 920,5 MHz a 928 MHz
+Protección contra interferencias | Los sistemas de medición inteligente y los sistemas que utilicen esquemas de modulación por espectro ensanchado por salto de frecuencia o espectro ensanchado por secuencia directa no podrán reclamar protección contra interferencias ni ocasionar interferencias a servicios licenciados de forma primaria que operen en esa banda de frecuencias.
+(*) (Así adicionada la sección anterior por el artículo 6° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 * (R): en rutas.
 ** (OR): fuera de rutas.
 1 1.117.1 Documento gráfico es todo soporte de información en el cual se registra de forma permanente un texto escrito o impreso o una imagen fija, y que es posible clasificar y consultar.
