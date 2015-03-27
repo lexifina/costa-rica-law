@@ -1,0 +1,1 @@
+Artículo 12.—Custodia del dinero. La caja recaudadora municipal contará una caja metálica de seguridad donde el cajero pueda custodiar el dinero y los valores que para sus funciones tenga en su poder en horas hábiles. Fuera de éstas los ingresos deben quedar en la Caja Fuerte de la Tesorería.

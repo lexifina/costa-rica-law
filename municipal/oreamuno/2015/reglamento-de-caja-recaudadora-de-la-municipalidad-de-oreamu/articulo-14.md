@@ -1,0 +1,3 @@
+Artículo 14.—Cierre de Caja. Al finalizar el día el cajero realiza el cierre de caja, posteriormente el Tesorero revisará el cierre delante del cajero.
+La tesorera revisa la liquidación, verificando los montos del listado diario de los recibos cancelados, y que la suma de los montos registrados coincida con los montos de los ingresos generados menos los depósitos efectuados como remesas parciales y el efectivo correspondiente al fondo de caja, coincidan con los ingresos del día según las operaciones del día, recibos enviados a caja y el Registro Control Diario.
+El informe de caja del día, se firmará en conjunto por el cajero y tesorero municipal.

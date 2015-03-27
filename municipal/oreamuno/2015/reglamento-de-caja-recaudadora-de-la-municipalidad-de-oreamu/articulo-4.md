@@ -1,0 +1,2 @@
+Artículo 4º—Custodia y seguridad del fondo fijo. El fondo fijo de caja será depositado en una caja metálica de seguridad, cuya copia de la llave sólo la tendrá la tesorera en la caja fuerte de Tesorería.
+El fondo fijo que mantiene la caja recaudadora debe entregarse a la Tesorería para ser guardado el último día hábil de la semana, cuando fuese feriado, fin de año y semana santa o cualquier otro caso que se presente, en la caja fuerte de Tesorería.

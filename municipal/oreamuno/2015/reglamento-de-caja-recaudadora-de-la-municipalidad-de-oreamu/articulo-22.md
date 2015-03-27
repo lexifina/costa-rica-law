@@ -1,0 +1,1 @@
+Artículo 22.—De los suplentes. Deberá existir en la municipalidad funcionarios adiestrados y que cuenten con la póliza de fidelidad otorgada por el INS o rindan una garantía fiduciaria para que suplan al cajero en su ausencia.

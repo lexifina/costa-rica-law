@@ -1,0 +1,1 @@
+Artículo 10.—Del ingreso de dinero. A la Caja recaudadora ingresará dinero en efectivo, cheques por el monto exacto de la deuda debidamente firmado al dorso con el número de cédula del endosante y su número telefónico, además de pagos por medio de tarjeta (débito o crédito) emitida por entidades financieras adscritas al Sistema Bancario.

@@ -1,0 +1,1 @@
+Artículo 23.—De los funcionarios. Los funcionarios municipales destacados en las cajas recaudadoras de la municipalidad, observarán en cumplimiento de sus funciones, las indicaciones que en materia laboral y de control de operaciones y de actividades propias de la caja dicte el Tesorero Municipal.

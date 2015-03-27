@@ -1,0 +1,2 @@
+Artículo 15.—De los faltantes. En el caso de un faltante a la hora de cierre de la caja recaudadora, el Cajero deberá cubrir ese faltante en un día hábil después, ya que es responsable directo del faltante en tanto no haya liquidado la retribución ante el tesorero.
+El tesorero notificará a la Alcaldía Municipal con copia al cajero el monto por concepto de faltantes de dinero para lo que corresponda.

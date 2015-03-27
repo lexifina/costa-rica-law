@@ -1,0 +1,1 @@
+Artículo 5º—Revisión del fondo fijo. Los saldos de fondo fijo se revisarán todos los días, sin previo aviso, por la Tesorería Municipal, quien verificará que los montos estén correctos. En caso contrario, incurrirá en falta la cual será sancionada de acuerdo con el régimen disciplinario contenido en el Reglamento Interno de la Municipalidad de Oreamuno.

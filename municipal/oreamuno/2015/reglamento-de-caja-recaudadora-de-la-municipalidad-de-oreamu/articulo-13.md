@@ -1,0 +1,1 @@
+Artículo 13.—De las remesas parciales. Cuando el monto de la recaudación supere el 50% de la póliza de fidelidad del Cajero, antes de la hora fijada para el cierre diario, el cajero debe entregar a la tesorera el dinero recaudado mediante el formulario “Remesas Parciales a Tesorería.

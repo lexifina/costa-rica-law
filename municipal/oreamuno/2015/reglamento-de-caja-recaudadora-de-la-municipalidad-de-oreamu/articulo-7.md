@@ -1,0 +1,1 @@
+Artículo 7º—De la recaudación. Recibida la información por el sistema, el cajero revisa que el número de recibo que emite el sistema coincida con el número del recibo físico. Además, debe revisar las operaciones aritméticas del comprobante, sella, recauda y entrega el recibo del interesado cancelado al contribuyente y conserva la copia con sello de cancelado para Tesorería.

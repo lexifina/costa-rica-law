@@ -1,0 +1,1 @@
+Artículo 20.—Póliza. El encargado de la caja recaudadora, deberá contar con una póliza de fidelidad, dicha póliza deber ser otorgada por el Instituto Nacional de Seguros, cuyo monto se fijará de acuerdo con sus disposiciones internas. Mientras se tramita esta ante el INS, deberá rendir una garantía fiduciaria.
