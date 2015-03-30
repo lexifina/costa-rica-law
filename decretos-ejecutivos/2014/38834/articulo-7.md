@@ -1,0 +1,1 @@
+Artículo 7º—Los Ministerios de Agricultura y Ganadería; de Salud; de Ambiente y Energía; y de Trabajo y Seguridad Social en cumplimiento de sus Leyes y competencias, velarán por el cumplimiento de estas disposiciones.

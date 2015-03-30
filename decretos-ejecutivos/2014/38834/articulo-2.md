@@ -1,0 +1,1 @@
+Artículo 2º—Se prohíbe el uso del endosulfán en todos los cultivos; excepto para el cultivo de café, en el cual se autoriza su uso por un período de 24 meses para el control de la broca del café, Hypothenemus hampei, después del cual se prohibirá totalmente su uso.

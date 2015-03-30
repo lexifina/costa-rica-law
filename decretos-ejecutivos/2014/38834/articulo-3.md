@@ -1,0 +1,1 @@
+Artículo 3º—Los plaguicidas sintéticos formulados que contengan endosulfán para su uso en el cultivo de café, sólo podrán distribuirse y venderse al usuario bajo receta profesional emitida y firmada por un profesional en Ciencias Agrícolas incorporado al Colegio de Ingenieros Agrónomos.

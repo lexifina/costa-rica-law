@@ -1,0 +1,1 @@
+Artículo 9º—Se deroga el Decreto Ejecutivo Nº 34782-S-MAG-MTSS-MINAET, “Regulación para el uso y control de materia prima o producto formulado que contengan el plaguicida agrícola endosulfán”, publicado en El Diario Oficial La Gaceta Nº 195 del 9 de octubre del 2008.
