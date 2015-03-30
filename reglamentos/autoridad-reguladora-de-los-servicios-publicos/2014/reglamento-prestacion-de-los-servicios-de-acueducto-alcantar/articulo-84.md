@@ -1,0 +1,3 @@
+Artículo 84.- Denuncias sobre la prestación de los servicios.
+Las denuncias no estarán sujetas a formalidades, por lo que pueden plantearse personalmente o por cualquier medio de comunicación que el operador habilite para este fin, siendo suficiente que el denunciante especifique la irregularidad y su ubicación.
+El prestador deberá tramitarlas de forma expedita, realizando los análisis técnicos y legales requeridos, especialmente si la situación puede crear riesgo sanitario, atentar contra a la salud pública o el ambiente. Los resultados de la misma deben comunicarse al interesado, en caso de haber indicado medio para atender notificaciones.

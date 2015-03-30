@@ -1,0 +1,2 @@
+Artículo 106.- Facturación para unidades de consumo con diferente uso.
+Cuando en una misma conexión existan unidades de consumo con diferente uso del agua, el prestador facturará los servicios con base en la tarifa que representa el 60% o más del uso. Sí se comprueba que el uso adicional es comercial o industrial, el prestador deberá notificar al abonado para que, en el plazo de 60 días independice los servicios. Si cumplido el plazo, el abonado no realiza lo solicitado, el prestador reclasificará el servicio con la tarifa aplicable.

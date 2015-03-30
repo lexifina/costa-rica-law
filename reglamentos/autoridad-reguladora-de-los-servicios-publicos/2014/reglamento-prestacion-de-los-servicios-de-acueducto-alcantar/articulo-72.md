@@ -1,0 +1,2 @@
+Artículo 72.- Independización de servicios.
+En todo inmueble en que haya más de una unidad de consumo, éstas deben tener, tanto para el servicio de acueducto como para el de alcantarillado sanitario, conexión independiente, y el servicio de acueducto debe tener su respectiva medición. Sólo se permitirá una conexión de cada servicio con varias unidades de consumo en los casos donde no sea técnicamente factible instalar conexiones independientes.

@@ -1,0 +1,3 @@
+Artículo 9.- Dictamen de disponibilidad de servicios.
+El prestador deberá emitir dictamen de la disponibilidad de los servicios contra toda solicitud de un interesado de obtener un nuevo servicio de acueducto y alcantarillado. El dictamen debe estar basado en un estudio de disponibilidad del servicio y deberá indicar las obras que, para proveer tales servicios e interconectarlos a los sistemas, debe el interesado financiar y construir.
+En ningún caso se autorizarán expansiones que comprometan el recurso hídrico existente o la capacidad del sistema de alcantarillado y su tratamiento, en perjuicio de la comunidad servida o de los habitantes de los eventuales nuevos desarrollos.

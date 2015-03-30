@@ -1,0 +1,9 @@
+Artículo 53.- Plazos para la atención de los servicios especiales.
+Para los servicios especiales definidos en este reglamento se establecen los siguientes plazos para su ejecución:
+a. Conexión de los servicios: ocho días hábiles;
+b. Desconexión del servicio por solicitud del abonado: cinco días hábiles;
+c. Instalación de fuentes públicas domiciliarias: en el momento que se retira el hidrómetro;
+d. Revisión del sistema de medición: ocho días hábiles;
+e. Traslado de prevista: 10 días hábiles; y
+f. Tratamiento de aguas y lodos residuales provenientes de sistemas individuales: en el momento en que se recibe el residuo, previa fecha de recibo establecida por el operador del sistema.
+Se inicia el cómputo de los plazos a partir del recibido a satisfacción de todos los requisitos establecidos por el prestador.

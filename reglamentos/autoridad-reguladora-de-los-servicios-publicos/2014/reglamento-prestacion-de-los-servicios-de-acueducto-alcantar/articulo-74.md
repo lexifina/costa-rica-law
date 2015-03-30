@@ -1,0 +1,2 @@
+Artículo 74.- Solicitud de desconexión del servicio por parte del abonado.
+Los prestadores están obligados a atender toda solicitud de desconexión del servicio, siempre y cuando no haya pendientes de pago ni afectación a terceros de manera directa. Esta solicitud debe atenderse en un plazo máximo de dos días hábiles contados a partir del recibido a satisfacción de todos los requisitos establecidos por el prestador.
