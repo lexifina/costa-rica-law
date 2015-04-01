@@ -1,0 +1,1 @@
+Artículo 22.—Si el servidor(a) obtuviera una nota inferior a bueno en la Evaluación del Desempeño, la Administración automáticamente suspenderá el pago del plus de disponibilidad, este solo podrá ser activado hasta que el personal mejore su nota de desempeño.

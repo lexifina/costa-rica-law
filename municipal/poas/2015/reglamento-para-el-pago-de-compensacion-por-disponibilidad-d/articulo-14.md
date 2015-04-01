@@ -1,0 +1,1 @@
+Artículo 14.—El servidor(a) se apegará al rol o turnos de labores establecido por el Alcalde en coordinación con el coordinador del departamento respectivo, en donde se establecerá los días en que el servidor(a) encuentra disponible y los que no se encuentra disponible.

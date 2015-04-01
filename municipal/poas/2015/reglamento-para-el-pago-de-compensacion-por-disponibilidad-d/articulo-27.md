@@ -1,0 +1,1 @@
+Artículo 27.—Posibilidad de asignación de turnos: La Municipalidad de Poás, podrá establecer roles o turnos que garanticen que no se afectará el servicio público en caso de necesidad o urgencia y a la vez considerar la posibilidad de que los servidores(as) que ocupan puestos que requieren de disponibilidad puedan disfrutar de días feriados o asuetos.

@@ -1,0 +1,1 @@
+Artículo 13.—El servidor(a) se comprometerá bajo juramento, a cumplir estrictamente con las estipulaciones del Reglamento que regula el contrato. El incumplimiento de éstas se considerarán como una infracción a la relación laboral y por lo tanto, se establecerán las medidas disciplinarias que correspondan.

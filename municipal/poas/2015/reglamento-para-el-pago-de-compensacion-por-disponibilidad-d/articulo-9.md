@@ -1,0 +1,2 @@
+Artículo 9º—Del periodo: El período de disponibilidad no deberá ser menor a un mes ni mayor a un año; sin embargo, podrá renovarse conforme a los requerimientos y necesidades institucionales. La Alcaldía en coordinación con el área respectiva fijará los roles correspondientes, que se deben de asumir en cada materia, cuando así proceda, armonizando la continuidad del servicio y la calidad de vida de los servidores(as) municipales
+afectos a este régimen.

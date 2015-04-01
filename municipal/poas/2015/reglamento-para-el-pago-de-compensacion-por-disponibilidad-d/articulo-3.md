@@ -1,0 +1,1 @@
+Artículo 3º—Compensación económica de la disponibilidad: A cambio de esa disponibilidad y una vez suscrito contrato entre las partes, al servidor(a) municipal se le reconocerá una compensación económica, la cual consistirá en un porcentaje que será de un 15% sobre el salario base de la clase de puesto en que se encuentre nombrado el servidor(a) disponible.

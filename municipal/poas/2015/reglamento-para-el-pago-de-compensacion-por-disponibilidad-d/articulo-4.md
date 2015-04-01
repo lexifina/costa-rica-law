@@ -1,0 +1,1 @@
+Artículo 4º—Se entenderá por porcentaje adicional sobre el salario base, la retribución que hará la Municipalidad a los servidores(as) que opten por acogerse al régimen voluntario de disponibilidad en la forma que fija este Reglamento en los artículos siguientes.

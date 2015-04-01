@@ -1,0 +1,1 @@
+Artículo 12.—La Municipalidad velará por el cumplimiento de las obligaciones que se señalan en el contrato, sin perjuicio de las facultades de Inspección que podría realizar la auditoría interna, cuando así los juzgue conveniente.
