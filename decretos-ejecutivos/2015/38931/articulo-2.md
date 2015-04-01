@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 38783- H de fecha 2 de diciembre de 2014, publicado en el Alcance Digital número 83 a La Gaceta número 246 de fecha 22 de diciembre de 2014, a partir de la vigencia del presente decreto.
