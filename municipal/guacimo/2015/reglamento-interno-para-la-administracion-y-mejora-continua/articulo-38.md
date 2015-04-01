@@ -1,0 +1,1 @@
+Artículo 38.—Cuestionario para la Autoevaluación. El diseño del cuestionario de auto evaluación podrá ser modificado y adaptado año con año de acuerdo con la realidad institucional o el interés del Máximo Jerarca Administrativo.

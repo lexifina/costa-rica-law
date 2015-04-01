@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Valoración y gestión de Riesgos
+Artículo 32.—Implementación del sistema específico de valoración de riesgos (SEVRI). La implementación del SEVRI en la Municipalidad de Guácimo, se realizará basado en una política de uso y aplicación institucional, que existirá para ese efecto. Por lo tanto, se constituye esta, en la metodología que guie a los Titulares Subordinados en la valoración y gestión de los riesgos de su área de competencia. Asimismo se definirá en la política el marco orientador del SEVRI, los elementos que dirigirán el compromiso institucional de su implementación y los parámetros básicos para valorar los riesgos de la Municipalidad de Guácimo.

@@ -1,0 +1,1 @@
+Artículo 24.—Periodicidad de las sesiones. Una vez conformada la CCIR, sesionará una vez al mes. Esto en el primer ciclo de implementación de la Política de Riesgo y Autoevaluación del Sistema de Control Interno de la Municipalidad de Guácimo. Alcanzado el primer ciclo de trabajo, se reunirá mensualmente o cuando se requiera de forma extraordinaria.

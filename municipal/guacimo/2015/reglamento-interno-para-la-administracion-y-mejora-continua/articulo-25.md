@@ -1,0 +1,1 @@
+Artículo 25.—Cantidad de miembros para sesionar. Para que haya quórum en las sesiones de la CCIR se establece el requerimiento de la presencia y votación de al menos 6 integrantes. El Presidente o su suplente (Vicepresidente) es el responsable de verificar el quórum.

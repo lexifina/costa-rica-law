@@ -1,0 +1,1 @@
+Artículo 15.—Administración operativa de la Comisión. Para la administración operativa de la CCIR la Alcaldía ocupará el cargo de Presidente y el puesto de Secretario (a), se someterá a votación con los integrantes.
