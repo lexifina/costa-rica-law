@@ -1,2 +1,0 @@
-Artículo 3º—De la integración de la Comisión de Becas. La Comisión de Becas estará conformada de la siguiente manera: un representante de cada uno de los Concejos de Distrito, con sus respectivos suplentes y dos regidores o regidoras miembros de la Comisión Permanente de Asuntos Sociales; asimismo el Director o la Directora de Cultura, Educación y Deportes participará en calidad de asesor o asesora , con voz pero si voto.
-Los miembros de la comisión designarán entre ellos un(a) coordinador(a) y un Secretario(a).

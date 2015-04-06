@@ -1,9 +1,0 @@
-Artículo 12.—De las sanciones. El beneficio de la beca se perderá por las siguientes causas:
-a) Cuando se compruebe que el o la estudiante, ha presentado datos falsos, ocultado información o, cuando no haya notificado a su debido tiempo las mejoras ocurridas en su situación socioeconómica.
-b) Incumplimiento de las obligaciones estipuladas en el artículo 11º de este Reglamento, con la salvedad del inciso c) de este artículo, en caso de que se obtengan notas inferiores al promedio solicitado debido a causas muy calificadas como enfermedad de la persona becaria o de sus padres, ausencia por accidente, desintegración familiar o abandono, abusos físicos o sexuales, muerte de alguno de los padres o casos de infortunio debidamente comprobados.
-c) Si el monto mensual girado por concepto de beca no fuere retirado en un plazo igual o mayor a tres meses, a partir de la fecha en que la persona beneficiaria deba de retirarla, excepto que por motivos de fuerza mayor o de caso fortuito, la persona beneficiaria, no haya podido retirarla. Estos motivos deberán ser constatados y aprobados por la Comisión de Becas.
-d) Cuando la institución educativa así lo solicite, mediante documento debidamente motivado en el que manifieste expresamente su no recomendación de la persona postulante para obtener el beneficio de una beca, o la solicitud de revocatoria de tal beneficio.
-e) Comprobación de que la persona becaria es beneficiaria de otra beca, excepto cuando se trate de personas con discapacidad comprobada.
-(Así reformado el inciso anterior mediante acuerdo N° 175 tomado en sesión N° 161 del 25 de mayo de 2009)
-f) Dejar de ser vecino o vecina del cantón.
-g) No asistir a uno o más de los talleres convocados en el marco del Programa de Refuerzos Educativos impartidos o programados por la Municipalidad.
