@@ -1,3 +1,4 @@
-Artículo 19.—Herencia o legado de los recursos de la cuenta individual de un afiliado o pensionado.
-Si ante la muerte de un afiliado o pensionado del ROP no existieren beneficiarios declarados por el régimen básico, ni tampoco beneficiarios debidamente acreditados como tales ante la OPC, el saldo de la cuenta individual se depositará a la orden del juzgado que tramite la sucesión.
-Si ante la muerte de un afiliado o pensionado al RVPC no existen beneficiarios designados voluntariamente en el contrato suscrito con la OPC, se procederá en la forma indicada en el párrafo anterior.
+Artículo 19.—Herencia o legado de los recursos de la cuenta individual de un afiliado o pensionado Si ante la muerte de un afiliado o pensionado del ROP no existieren beneficiarios declarados por el régimen básico, ni tampoco beneficiarios debidamente designados como tales ante la OPC, el saldo de la cuenta individual se depositará a la orden del juzgado que tramite la sucesión.
+Tratándose de procesos sucesorios notariales, los recursos del ROP se depositarán a la orden del albacea nombrado para tales efectos, con la finalidad de que en ese mismo proceso se realice la correspondiente distribución de los recursos. La condición de albacea deberá acreditarse mediante certificación Notarial en donde además conste la apertura del correspondiente proceso.
+Si ante la muerte de un afiliado o pensionado al RVPC no existen beneficiarios designados por aquel ante la OPC, se procederá en la forma prescrita en los anteriores párrafos.
+(Así reformado en sesión N° 1157 del 6 de abril de 2015)
