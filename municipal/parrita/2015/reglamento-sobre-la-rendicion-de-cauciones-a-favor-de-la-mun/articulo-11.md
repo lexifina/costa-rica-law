@@ -1,0 +1,1 @@
+Artículo 11.—Cálculo de la caución. Quienes desempeñen puestos de, Alcalde o Alcaldesa Municipal y Vicealcalde o Vicealcaldesa en ejercicio, Auditor Interno, Gestor de Hacienda Municipal, Gestor de Desarrollo Urbano, Gestor Administrativo y Gestor de Desarrollo Humano deberán de rendir una caución equivalente a cinco salarios base.

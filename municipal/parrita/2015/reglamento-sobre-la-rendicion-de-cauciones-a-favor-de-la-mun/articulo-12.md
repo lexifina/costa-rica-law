@@ -1,0 +1,1 @@
+Artículo 12.—Cálculo de la caución. Quienes desempeñen puestos de Contador municipal, Coordinador de Proveeduría, Control de Presupuesto, Director de la Unidad técnica de Gestión Vial, Perito Valorador, deberán rendir una caución equivalente a tres salarios base.

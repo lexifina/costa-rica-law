@@ -1,0 +1,1 @@
+Artículo 13.—Cálculo de la caución. Quienes desempeñen puestos de Cajeros Facturadores, Encargado de la Bodega, Encargado de la Maquinaria, Tesorero Municipal, Encargado de Cobros, Encargado de Patentes, deberán de rendir una caución equivalente a dos salarios base.
