@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-044-2014 del 2 de octubre del 2014, publicada en La Gaceta número 200 del 17 de octubre del 2014.
