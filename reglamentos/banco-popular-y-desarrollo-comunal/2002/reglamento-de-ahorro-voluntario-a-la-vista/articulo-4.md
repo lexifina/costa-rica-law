@@ -1,1 +1,0 @@
-Artículo 4º—Clasificación de las cuentas. Podrán abrirse cuentas a favor de dos o más personas físicas, debiendo determinarse claramente si actúan separada o conjuntamente. El Banco también podrá abrir cuentas a nombre de personas jurídicas, debiendo indicarse cuáles personas quedan autorizadas para utilizar separada o conjuntamente la cuenta.
