@@ -1,0 +1,1 @@
+Artículo 15.—Del plazo para resolver. Para las solicitudes descritas en el artículo 14, del presente decreto, la Administración Forestal del Estado deberá resolverlas en un plazo máximo de 30 días naturales, contados a partir del momento en que se hayan presentado todos los requisitos establecidos en el artículo 7, 11 y 14 del presente decreto, ante la Oficina correspondiente.

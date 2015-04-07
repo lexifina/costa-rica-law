@@ -1,0 +1,1 @@
+Artículo 18.—Del plazo para resolver. Para las solicitudes descritas en el artículo 16, del presente decreto la Administración Forestal del Estado tendrá un plazo no mayor de 30 días naturales, contados a partir del momento en que se presenten todos los requisitos establecidos en el presente decreto para dicho trámite.

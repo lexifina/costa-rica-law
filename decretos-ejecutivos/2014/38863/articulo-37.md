@@ -1,0 +1,1 @@
+Artículo 37.—El Sistema Nacional de Áreas de Conservación, coordinará con las instituciones públicas vinculadas con la aplicación del presente decreto para la debida inducción y transferencia de información requerida para el cumplimiento del mismo.

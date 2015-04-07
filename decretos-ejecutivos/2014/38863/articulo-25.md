@@ -1,0 +1,1 @@
+Artículo 25.—Del plazo para resolver. Para las solicitudes descritas en el artículo 24, del presente decreto, la Administración Forestal del Estado tendrá un plazo no mayor de 10 días naturales, contados a partir del momento en que se presenten todos los requisitos establecidos para dicho trámite.

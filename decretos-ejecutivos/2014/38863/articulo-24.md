@@ -1,0 +1,5 @@
+Artículo 24.—Trámite para donación de madera proveniente de corta de árboles por ampliación y o mantenimiento de las vías públicas. Para la donación de madera a favor de Juntas de Educación o Juntas Administrativas de los centros educativos del Ministerio de Educación Pública se requerirá:
+a. Solicitud firmada por el representante legal de la Junta de Educación o Junta Administrativa donde se indique que el destino o uso que pretende dársele a la madera, se ajusta a lo señalado en el artículo 65 de la Ley Forestal. La solicitud deberá cumplir con lo establecido en la Ley General de la Administración Pública y ser avalada por el director o directora de ese centro de enseñanza.
+b. Certificación original de la Personería Jurídica de la Junta de Educación en el caso de los centros educativos del I y II Ciclos o Junta Administrativa en el caso de los centros educativos del III Ciclo de la Educación General Básica y Educación Diversificada.
+c. Copia de la cédula del solicitante.
+d. Estar al día con la CCSS.

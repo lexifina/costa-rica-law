@@ -1,0 +1,1 @@
+Artículo 36.—De los Procedimientos para la aplicación. Para la correcta aplicación del presente decreto, el SINAC por medio de la Administración Forestal del Estado, establecerá vía resolución administrativa, los correspondientes procedimientos internos, los cuales serán revisados y ajustados periódicamente según las necesidades.

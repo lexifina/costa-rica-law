@@ -1,0 +1,1 @@
+Artículo 4º—De la Georeferenciación. Para efectos de georeferenciación en general en el presente decreto, se utilizará el datum oficial para Costa Rica (CR05), asociado al elipsoide del Sistema Geodésico Mundial (WGS84), y será la Proyección Transversal de Mercator para Costa Rica (CRTM05).
