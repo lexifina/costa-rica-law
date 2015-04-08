@@ -1,0 +1,1 @@
+Artículo 62.—Pericia y cuidado profesional. El personal de la Auditoría Interna debe cumplir con los requisitos de pericia y cuidado profesional establecidos en las “Normas para el ejercicio de la auditoría interna en el sector público”.

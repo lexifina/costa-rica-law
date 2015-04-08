@@ -1,0 +1,1 @@
+Artículo 9°—Comunicación del impedimento. Si la independencia y objetividad se viesen comprometidas de hecho o en apariencia, los detalles del impedimento deben darse a conocer a la Junta Directiva y demás partes que correspondan. La naturaleza de esta comunicación deberá ser por escrito.

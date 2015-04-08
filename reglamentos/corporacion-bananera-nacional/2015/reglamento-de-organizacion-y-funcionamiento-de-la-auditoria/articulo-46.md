@@ -1,0 +1,1 @@
+Artículo 46.—Causales de responsabilidad administrativa y sanciones administrativas. Son causales de responsabilidad administrativa del auditor interno y de los funcionarios de la Auditoría Interna las previstas en el artículo 40 de la Ley General de Control Interno.

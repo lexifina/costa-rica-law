@@ -1,0 +1,1 @@
+Artículo 55.—Deberes. Son deberes del auditor y del personal de la Auditoría Interna los contenidos en el artículo 32 de la Ley General de Control Interno, así como los asignados por el marco jurídico y técnico aplicable.

@@ -1,0 +1,2 @@
+Artículo 32.—Informe de fin de gestión. Al concluir su relación laboral por la causa que fuere, el auditor interno deberá presentar a la Junta Directiva un informe de fin de gestión, de acuerdo con las directrices emitidas por la Contraloría General de la República.17.
+17“Directrices que deben observar los funcionarios obligados a presentar el informe final de su gestión, según lo dispuesto en el inciso e) del artículo 12 de la Ley General de Control Interno” publicadas en La Gaceta N°131 del 07 de julio, 2005.

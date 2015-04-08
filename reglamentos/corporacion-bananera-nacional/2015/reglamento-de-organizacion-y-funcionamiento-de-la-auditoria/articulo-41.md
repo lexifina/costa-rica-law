@@ -1,0 +1,1 @@
+Artículo 41.—Autorizaciones y modificaciones presupuestarias. Al auditor interno le corresponderá autorizar los documentos de ejecución presupuestaria y las modificaciones presupuestarias que afecten los rubros de la unidad de Auditoría Interna.

@@ -1,0 +1,1 @@
+Artículo 40.—Presentación del presupuesto anual de la Auditoría Interna. El presupuesto anual de la Auditoría Interna será presentado a la administración para su inclusión en el presupuesto general, que será aprobado por la Junta Directiva y la Asamblea General.

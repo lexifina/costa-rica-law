@@ -1,0 +1,1 @@
+Artículo 30.—Pericia y cuidado profesional. El auditor interno deberá cumplir con pericia y cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio y será vigilante que su personal responda de igual manera.

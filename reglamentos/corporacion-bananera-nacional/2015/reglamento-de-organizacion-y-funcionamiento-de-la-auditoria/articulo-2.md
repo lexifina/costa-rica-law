@@ -1,0 +1,1 @@
+Artículo 2°—Responsabilidad del reglamento. El auditor interno es responsable de mantener actualizado y divulgar el presente reglamento y hacer cumplir su contenido conforme a la normativa legal y técnica pertinente.

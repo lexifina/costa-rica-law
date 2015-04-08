@@ -1,0 +1,1 @@
+Artículo 26.—Planificación estratégica. El auditor interno debe establecer una planificación estratégica congruente con su universo fiscalizable actualizado, la valoración del riesgo y los objetivos de la organización, de conformidad con el Plan Estratégico de la institución.

@@ -1,0 +1,1 @@
+Artículo 64.—Procesamiento de la información. El auditor interno emitirá las disposiciones, instrucciones y procedimientos que sean necesarios para el debido procesamiento de la información en aspectos tales como: cualidades de la información, análisis y evaluación, registros, acceso, custodia y supervisión del trabajo.

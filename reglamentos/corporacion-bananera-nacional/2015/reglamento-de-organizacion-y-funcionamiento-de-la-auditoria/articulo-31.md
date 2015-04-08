@@ -1,0 +1,3 @@
+Artículo 31.—Programa de aseguramiento de la calidad. El auditor interno deberá establecer, desarrollar, aplicar, mantener y perfeccionar un programa de aseguramiento de la calidad que cubra todos los aspectos de la actividad de Auditoría Interna. Este programa debe incluir evaluaciones de calidad externas e internas periódicas y supervisión interna continua.
+La Auditoría Interna realizará las evaluaciones de calidad internas periódicas conforme a las directrices que emita al respecto la Contraloría General de la República.16.
+16“Directrices para la autoevaluación anual y la evaluación externa de calidad de las auditorías internas del Sector Público” publicadas en La Gaceta N°147 del 31de julio, 2008.

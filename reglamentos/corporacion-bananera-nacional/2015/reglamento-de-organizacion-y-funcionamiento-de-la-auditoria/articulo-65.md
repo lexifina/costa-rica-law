@@ -1,0 +1,1 @@
+Artículo 65.—Supervisión. Los trabajos de la Auditoría Interna deben ser adecuadamente supervisados por el responsable dentro de la unidad, para asegurar el logro de los objetivos, la calidad del trabajo y el desarrollo profesional del personal.

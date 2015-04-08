@@ -1,0 +1,1 @@
+Artículo 16.—Organización interna. La Auditoría Interna se organizará y funcionará conforme lo disponga el auditor interno, de conformidad con disposiciones, normas, políticas y directrices que emita la Contraloría General de la República, que son de acatamiento obligatorio.
