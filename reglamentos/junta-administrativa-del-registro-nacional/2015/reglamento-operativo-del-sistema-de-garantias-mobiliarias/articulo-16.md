@@ -1,0 +1,1 @@
+Artículo 16.—Limitaciones los servicios de consulta y certificación: Los datos considerados sensibles por parte de la ley de protección de la persona frente al tratamiento de sus datos personales y normas futuras relacionadas con el tema, no se encontrarán disponibles al público en caso de consultas o certificaciones.

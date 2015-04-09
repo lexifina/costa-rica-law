@@ -1,0 +1,2 @@
+Artículo 4º—Oponibilidad y prelación: La prelación de una garantía mobiliaria sin desplazamiento y su oponibilidad ante terceros están determinadas por el año, mes, día, hora, minuto y segundo de la inclusión en el Sistema.
+Las garantías mobiliarias con desplazamiento en los términos indicados en la ley y otras indicadas en el artículo 14 de la ley, no requieren su inclusión en el Sistema de Garantías Mobiliarias para adquirir o conservar su prelación.

@@ -1,0 +1,2 @@
+Artículo 21.—Formulario de cancelación: En los casos en que la inscripción original y/o vigente deba extinguirse por acuerdo de las partes o por cumplimiento de la obligación u obligaciones garantizadas, por medio del formulario de cancelación se cancelarán los efectos derivados del formulario de inscripción inicial, las modificaciones y las prórrogas.
+El formulario de cancelación contendrá el número de folio electrónico del formulario de publicidad inicial y una breve descripción de la causa que motiva la cancelación.

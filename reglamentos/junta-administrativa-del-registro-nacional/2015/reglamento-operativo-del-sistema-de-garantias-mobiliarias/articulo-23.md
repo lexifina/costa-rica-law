@@ -1,0 +1,1 @@
+Artículo 23.—Ejecutoriedad del formulario: Para la ejecución judicial o extrajudicial de la garantía mobiliaria, el formulario de ejecución debidamente inscrito o el aviso registral tendrán carácter de título ejecutorio.
