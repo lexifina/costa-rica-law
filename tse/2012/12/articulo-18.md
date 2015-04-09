@@ -1,1 +1,2 @@
-Artículo 18.- Audiencia a la Procuraduría General de la República.- Allegada a los autos toda la prueba, en el trámite de naturalización por residencia la Sección de Opciones y Naturalizaciones concederá audiencia a la Procuraduría General de la República por ocho días hábiles.
+Artículo 18.- Audiencia a la Procuraduría General de la República.- Allegada a los autos toda la prueba y demás requisitos y certificaciones de ley, en el trámite de naturalización por residencia, la Sección de Opciones y Naturalizaciones concederá audiencia a la Procuraduría General de la República por ocho días hábiles.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 12 del 9 de abril de 2015)

@@ -14,3 +14,4 @@ Reglamento relativo a los trámites, requisitos y criterios de resolución en ma
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-06 | la propia norma |
+| 2 | 2015-04-09 | Decreto TSE 12 (2015-04-09) |
