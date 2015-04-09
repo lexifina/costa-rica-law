@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 38689-H de fecha 9 de octubre de 2014, publicado en La Gaceta número 210 de fecha 31 de octubre de 2014, a partir de la vigencia del presente decreto.
