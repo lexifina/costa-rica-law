@@ -14,7 +14,8 @@ I. METODOLOGÍA DE CÁLCULO DEL VALOR EN RIESGO
 Objetivo: Presentar la metodología de cálculo de valor en Riesgo (VeR) con simulación histórica.
 A. Datos requeridos:
 a) La cantidad de cada emisión que forma parte de la cartera de inversiones sujeta al cálculo del VeR a la fecha de corte, definida la emisión según el código ISIN, y de no contar la emisión con este código, definida como aquélla con igual emisor, instrumento, moneda, fecha de vencimiento, premio y periodicidad. La cantidad en el caso de títulos de deuda, certificados de inversión, etc. es igual al monto facial, en el caso de acciones, participaciones de fondos de inversión, etc. es igual a la cantidad de acciones/ participaciones.
-b) Vector de Precios para cada uno de los 521 días que intervienen en el cálculo del VeR (fuente: Bolsa Nacional de Valores (BNV), Bloomberg u otro servicio que permita acceder a la información de precios de las emisiones negociadas en mercados internacionales, que sean reconocidos por la SUGEVAL). No se consideran las emisiones para las cuales no existen cotizaciones.
+b) Precios de valoración para cada uno de los 521 días que intervienen en el cálculo del VeR (Fuente: Proveedores de precios autorizados por la Superintendencia General de Valores). No se consideran las emisiones para las cuales no existen cotizaciones.
+(Así reformado el inciso anterior por acuerdo SUGEF-R-0739 del 9 de abril de 2015)
 c) Tipo de cambio del colón en la fecha de corte con respecto a cada una de las monedas extranjeras en que están denominadas las emisiones de la cartera.
 B. Parámetros:
 a) Número de observaciones: 500 observaciones diarias de la cartera.
@@ -35,7 +36,7 @@ Donde:
 Q 1 = cantidad de participantes o acciones (instrumento de capital) o valor facial (instrumento de deuda) de la emisión i
 ME
 P I = precio de la emisión I en moneda extranjera.
-TC = tipo de cambio de referencia para la compra según el Banco Central de Costa Rica para la fecha de corte, del colón con respecto a la moneda extranjera en la cual está denominada la emisión I.
+TC = tipo de cambio de referencia para la compra según el Banco Central de Costa Rica (*) para la fecha de corte, del colón con respecto a la moneda extranjera en la cual está denominada la emisión I.
 Nota: Para calcular el tipo de cambio del colón con respecto a una moneda extranjera diferente al dólar estadounidense, se debe multiplicar el tipo de cambio de referencia para la compra del dólar estadounidense con el tipo de cambio del dólar estadounidense con respecto a la moneda extranjera en la cual está denominada la emisión I según el Banco Central de Costa Rica, todo para la fecha de corte. La unidad de Desarrollo debe tratarse como moneda extranjera para efectos de este cálculo.
 2. Identificar la serie de precios para cada emisión que conforma la cartera de inversiones. Cuando una emisión no cuenta con una serie de precios completa para las 521 observaciones, se debe completar la serie con el primer precio de la serie.
 3. Calcular la variación relativa a 21 días para cada emisión según la siguiente fórmula:
