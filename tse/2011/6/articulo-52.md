@@ -1,4 +1,4 @@
 TÍTULO X
 CAPÍTULO ÚNICO
 Disposiciones generales
-Artículo 52.—Las resoluciones que se dicten en materia de naturalizaciones serán firmadas por la Dirección General del Registro Civil y la Jefatura de la Sección de Opciones y Naturalizaciones.
+Artículo 52.—(Derogado por el artículo 2° del decreto del Tribunal Supremo de Elecciones, N° 12 del 9 de abril de 2015)
