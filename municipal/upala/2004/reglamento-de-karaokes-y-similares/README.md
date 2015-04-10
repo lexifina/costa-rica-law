@@ -14,3 +14,4 @@ Reglamento de Karaokes y similares.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-12 | la propia norma |
+| 2 | 2015-04-10 | Reglamento municipal 0 (2015-04-10) |

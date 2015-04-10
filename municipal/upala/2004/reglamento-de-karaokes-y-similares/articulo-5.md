@@ -8,6 +8,8 @@ f. Deberá adjuntar los siguientes timbres:
 - Municipalidad de Upala por la suma de doscientos colones, el cual podrá ser aumentado mediante acuerdo del Concejo Municipal.
 - Un timbre de Archivo Nacional de cinco colones.
 - Timbres Fiscales por un monto de ciento veinticinco colones.
+-Derecho de explotación: 3% del salario base establecido en el artículo 2 de la Ley 7337 y sus reformas por evento autorizado”, y otro punto donde indique lo siguiente “estar al día con los impuestos municipales.
+(Así adicionado el punto anterior por el capítulo VI según N° 15-2015 de sesión del 10 de abril de 2015)
 g. En el caso de que el Karaoke sea alquilado, el propietario del Karaoke deberá tener patente comercial en el Cantón de Upala y ajustarse a la misma. En el mismo sentido las discomóviles que se lucren del espectáculo público. Para lo cual deberán presentar la declaración de patente correspondiente por la actividad o actividades a realizadas.
 h. Que la actividad de Karaoke no se autoriza en zonas residenciales y en urbanizaciones.
 La nota de solicitud con los requisitos dichos, se debe presentar al funcionario debidamente autorizado en la Municipalidad para tramitar lo referido a patentes.
