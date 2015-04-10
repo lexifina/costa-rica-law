@@ -14,3 +14,4 @@ Delega la función de consignar y firmar razones de apertura en los tomos de pro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-09 | la propia norma |
+| 2 | 2015-04-10 | Resolución 6 (2015-04-10) |
