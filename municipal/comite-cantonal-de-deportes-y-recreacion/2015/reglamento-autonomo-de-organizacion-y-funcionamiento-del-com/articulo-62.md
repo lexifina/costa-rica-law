@@ -1,0 +1,1 @@
+Artículo 62.—La colocación de rótulos en las instalaciones deportivas debe estar autorizado por el Comité Cantonal de Deporte quien brindará su permiso previa gestiones legales ante el Concejo Municipal de Paraíso.
