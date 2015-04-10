@@ -1,0 +1,1 @@
+Artículo 3.- Autoridad Competente. COMEX será el órgano responsable de administrar y asignar los contingentes arancelarios de importación descritos en el artículo 1, de conformidad con las disposiciones de este Reglamento y bajo el principio de máxima utilización.

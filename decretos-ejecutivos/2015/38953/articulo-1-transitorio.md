@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I: Convocatoria para contingentes 2015. COMEX realizará una convocatoria dentro de los cinco días hábiles posteriores a la publicación del presente Decreto Ejecutivo en el Diario Oficial La Gaceta, a efectos de poner a disposición los contingentes disponibles para arroz en granza, arroz pilado y arroz precocido para el año 2015. La convocatoria se realizará de conformidad con las disposiciones del artículo 6 del presente Reglamento.

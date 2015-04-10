@@ -1,0 +1,1 @@
+Artículo 2.- Período de Aplicación. Para los contingentes de arroz en granza, arroz pilado y arroz precocido, la medida se aplicará por un plazo de cuatro años calendario, iniciando en el año 2015 y finalizando el 31 de diciembre de 2018; en tanto la medida de salvaguardia se mantenga vigente.

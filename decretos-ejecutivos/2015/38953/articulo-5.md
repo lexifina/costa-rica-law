@@ -1,0 +1,2 @@
+Artículo 5.- Utilización del Contingente. El contingente de importación se utilizará dentro del período comprendido entre su asignación y el 31 de diciembre del año para el cual corresponde la asignación.
+Los volúmenes de cada contingente dejados de utilizar en un año calendario determinado, serán sumados al volumen del contingente respectivo que se pondrá a disposición de todos los interesados para el año calendario siguiente. Esta norma no aplica al volumen no utilizado en el año calendario 2018.
