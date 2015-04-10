@@ -1,0 +1,1 @@
+Artículo 3º—A partir de la fecha en que sea publicada la presente resolución en el Diario Oficial La Gaceta, se deja sin efecto la tasa de interés publicada en el Diario Oficial La Gaceta Nº 182 del 23 de setiembre de 2014 (14,95%).
