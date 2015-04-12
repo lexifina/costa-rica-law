@@ -1,0 +1,1 @@
+Artículo 2°—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número DGT-010-2014 del cinco de marzo del dos mil catorce, publicada en La Gaceta N° 71 del 10 de abril del 2014.
