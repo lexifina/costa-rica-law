@@ -17,3 +17,4 @@ Requisitos y Trámites Establecidos por la Municipalidad de Sarapiquí.
 | 2 | 2006-02-14 | Acuerdo municipal 0 (2006-02-14) |
 | 3 | 2011-03-21 | Acuerdo municipal 0 (2011-03-21) |
 | 4 | 2012-05-11 | Ley 9036 |
+| 5 | 2015-04-13 | Acuerdo municipal 0 (2015-04-13) |
