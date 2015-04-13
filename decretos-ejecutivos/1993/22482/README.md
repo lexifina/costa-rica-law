@@ -16,3 +16,4 @@ Reglamento de Uso Público para el Parque Nacional Manuel Antonio
 | 1 | 1994-01-01 | la propia norma |
 | 2 | 2010-06-28 | Decreto Ejecutivo 36095 (2010-06-28) |
 | 3 | 2014-03-25 | Decreto Ejecutivo 38296 (2014-03-25) |
+| 4 | 2015-04-13 | Decreto Ejecutivo 39048 (2015-04-13) |
