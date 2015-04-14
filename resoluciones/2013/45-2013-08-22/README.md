@@ -14,3 +14,4 @@ Declara en estado de cuarentena sanitaria a los distritos de Turrúcares del Can
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-22 | la propia norma |
+| 2 | 2015-04-14 | Resolución 13 (2015-04-14) |
