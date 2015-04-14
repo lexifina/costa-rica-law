@@ -1,0 +1,2 @@
+c) Modificar el artículo 13 según el siguiente texto:
+Artículo 13.—Salida de equipo tecnológico: Los equipos tecnológicos otorgados a los beneficiarios conforme a los términos del presente reglamento, podrán salir de la institución bajo la responsabilidad de la persona que la tiene asignada, únicamente con el fin de llevar a cabo labores para la Institución. Bajo ninguna circunstancia el equipo podrá ser usado para cualquier otro fin que no sea para el Institucional para el que fue asignado, lo que se considerará falta grave a las obligaciones.
