@@ -17,3 +17,4 @@ Manual de Criterios Técnicos de la Junta de Protección Social
 | 2 | 2012-11-20 | Acuerdo 646 (2012-11-20) |
 | 3 | 2013-01-29 | Acuerdo 49 (2013-01-29) |
 | 4 | 2014-01-28 | Acuerdo 50 (2014-01-28) |
+| 5 | 2015-04-14 | Acuerdo 193 (2015-04-14) |

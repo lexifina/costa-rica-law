@@ -190,7 +190,8 @@ Dentro del equipo se incluye la compra de vehículo, el cuál solamente se podr�
 4.10. Recreación y actividades ocupacionales:
 4.10.1. Gastos por celebraciones, paseos.
 4.10.2. Materiales para actividades de mantenimiento ocupacional
-4.11. Contrataciones por servicios profesionales: Las juntas administrativas podrán utilizar hasta un 15 % de los recursos girados en el pago temporal de contrataciones por servicios profesionales del personal de atención directa, tales como fisioterapeuta, psicólogo, terapeuta ocupacional, terapeuta recreativo, intérpretes de lesco y otros necesarios para brindar un servicio de calidad. Se autoriza la contratación de servicios profesionales en los campos de salud, legal y contable, en los dos últimos casos, cuando dichas erogaciones sean necesarias para obtener apoyo económico de instituciones públicas.
+4.11. Contrataciones por servicios profesionales: Las juntas administrativas podrán utilizar hasta un (*)40 % de los recursos girados en el pago temporal de contrataciones por servicios profesionales del personal de atención directa, tales como fisioterapeuta, psicólogo, terapeuta ocupacional, terapeuta recreativo, intérpretes de lesco y otros necesarios para brindar un servicio de calidad. Se autoriza la contratación de servicios profesionales en los campos de salud, legal y contable, en los dos últimos casos, cuando dichas erogaciones sean necesarias para obtener apoyo económico de instituciones públicas.
+(*)(Así modificado el punto anterior mediante acuerdo JD-193 de sesión ordinaria N° 13-2015 del 14 de abril del 2015)
 5. Sector: Asociación Pro Hospital Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes:
 5.1. Salud:
 5.1.1. Sustancias que se usen para diagnosticar, prevenir, curar y/o modificar cualquier función fisiológica de las personas adultas mayores que reciben tratamiento en el Hospital Nacional de Geriatría y Gerontología Dr. Raúl Blanco Cervantes, que no supla la CCSS por inexistencia en el inventario o porque no lo suministra.
@@ -275,17 +276,18 @@ Dentro del equipo se incluye la compra de vehículo, el cuál solamente se podr�
 7.12. Pago de salarios y contrataciones por servicios profesionales: se autoriza el pago de salarios del personal de atención directa y contrataciones por servicios profesionales, con las siguientes restricciones:
 7.12.1. Porcentaje de los fondos que se puede destinar a salarios y servicios profesionales:
 7.12.1.1. Hogares para personas con
-VIH-SIDA: hasta un 20%
-7.12.1.2. Discapacidad: hasta un 25%
-7.12.1.3. Farmacodependencia y alcoholismo: hasta un 35%
-7.12.1.4. Menores en abandono y vulnerabilidad: hasta un 30%
-7.12.1.5. Menores privados de libertad/programas atención hijos de privados de libertad hasta un 20%
+VIH-SIDA: hasta un (*)60%
+7.12.1.2. Discapacidad: hasta un (*)60%
+7.12.1.3. Farmacodependencia y alcoholismo: hasta un (*)60%
+7.12.1.4. Menores en abandono y vulnerabilidad: hasta un (*)50%
+7.12.1.5. Menores privados de libertad/programas atención hijos de privados de libertad hasta un (*)40%
 7.12.1.6. Adulto mayor (hogares y centros diurnos): hasta un 60%
+(*)(Así modificado mediante acuerdo JD-193 de sesión ordinaria N° 13-2015 del 14 de abril del 2015)
 7.12.2. Se autoriza la contratación de servicios profesionales en los campos de salud, legal y contable, en los dos últimos casos, cuando dichas erogaciones sean necesarias para obtener apoyo económico de instituciones públicas.
 Se autoriza en el área de adulto mayor incrementar del porcentaje para pago de salarios de un 60 a un 80%.
-(Así adicionado el párrafo anterior mediante acuerdo JD-4646 tomado en sesión N° 36-2012 del 20 de noviembre del 2012)
+(Así adicionado el párrafo anterior mediante acuerdo JD-646 tomado en sesión N° 36-2012 del 20 de noviembre del 2012)
 Este incremento también se aplicará para los recursos transferidos para este año 2012.
-(Así adicionado el párrafo anterior mediante acuerdo JD-4646 tomado en sesión N° 36-2012 del 20 de noviembre del 2012)
+(Así adicionado el párrafo anterior mediante acuerdo JD-646 tomado en sesión N° 36-2012 del 20 de noviembre del 2012)
 Vigencia
 Una vez aprobadas las modificaciones efectuadas al presente manual de criterios técnicos, se procederá a su publicación en el Diario Oficial La Gaceta y se dará a conocer a las organizaciones sociales beneficiarias.
 San José, 21 de abril del 2010.
