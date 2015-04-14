@@ -14,3 +14,4 @@ Reglamento para la administración y operación de los Sistemas de Estacionamien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-07 | la propia norma |
+| 2 | 2015-04-14 | Reglamento municipal 459 (2015-04-14) |
