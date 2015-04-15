@@ -14,3 +14,4 @@ Reglamento para el uso de vehículos de la Comisión Nacional de Prevención de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-21 | la propia norma |
+| 2 | 2015-04-15 | Reglamento 3 (2015-04-15) |
