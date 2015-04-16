@@ -1,0 +1,2 @@
+Artículo 2º—Canal físico y canal lógico. El canal físico se entiende como la frecuencia real de la portadora y todos los servicios comprendidos dentro de la banda de frecuencia de 6 MHz.
+Como canal lógico se debe entender el identificador de cada servicio existente dentro de un único canal físico. El parámetro Remote_control_key_id indica el canal lógico primario, mientras que el service_type y el service_number indican el número de canal lógico secundario.
