@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. Las disposiciones del presente reglamento se aplicarán a las personas físicas y jurídicas dedicadas a la producción, multiplicación, comercialización y movilización de materiales de propagación de cítricos.

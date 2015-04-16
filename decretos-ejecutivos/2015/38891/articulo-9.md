@@ -1,0 +1,8 @@
+Artículo 9º—Certificación de material propagativo. Los bancos de germoplasma (BG), bancos de fundación (BF) bancos de multiplicación de yemas (BMY) y viveros, para certificarse deberán cumplir con lo siguiente:
+a) Condiciones de aislamiento e Infraestructura.
+b) Ubicar los materiales dentro de un ambiente protegido con malla anti insectos (incluye microinsectos) de forma tal que impida el paso de estos hacia el interior del recinto. Las estructuras deben contar en las entradas con doble puerta, que no estén en línea sino en forma de ele (L), pediluvio para la desinfección de calzado, ventilación forzada en contraposición a las puertas para minimizar la entrada de insectos vectores.
+c) Los árboles de cítricos que componen los BG y BF, BMY, y VIVEROS, deben establecerse y mantenerse en recipientes los cuales deben estar aislados del suelo.
+d) Identificar con letreros las unidades de producción y colocar en lugares visibles instrucciones sobre medidas de bioseguridad, limpieza y desinfección, así como cualquier restricción o prohibición. El acceso al BG y al BF, debe ser restringido, solo a personal autorizado.
+e) Deben contar con registros de los programas de monitoreo de plagas y las aplicaciones de agroquímicos, biológicos y afines.
+Cuando las estructuras constan de varias módulos, estos deben estar construidos a una distancia entre sí que evite el sombreo y favorezca la aireación y el movimiento de equipos. Mantener los alrededores de las naves libres de malezas y escombros.
+f) Cada unidad de producción debe contar con herramientas de uso exclusivo y un proceso de limpieza que garantice un tratamiento efectivo de desinfección.

@@ -1,0 +1,4 @@
+Artículo 7º—Importación y cuarentena de Germoplasma. (Semillas, yemas, plantones). Las personas físicas y jurídicas deben cumplir los siguientes requisitos, para la introducción de material vegetal de cítricos a territorio nacional:
+a) Provenir de sitios de producción de material propagativo certificados, registrados y diagnosticados libre de plagas, aportando la documentación emitida por parte de la ONPF del país exportador donde se acredite su condición, esto con el fin de poder dar trazabilidad al material.
+b) El material debe cumplir con los procedimientos de cuarentena pos-entrada establecidos por el SFE.
+c) Someter el material propagativo importado a un proceso de limpieza a través de microinjerto y/o termoterapia, y el SFE verificará dicho proceso mediante técnicas de diagnóstico en un laboratorio oficial.

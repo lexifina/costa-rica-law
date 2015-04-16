@@ -1,0 +1,1 @@
+Artículo16.—Contra las actuaciones o actos derivados de la aplicación de las presentes regulaciones, podrán interponerse los recursos ordinarios o extraordinarios previstos en la Ley General de la Administración Pública.

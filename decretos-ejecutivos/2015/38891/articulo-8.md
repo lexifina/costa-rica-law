@@ -1,0 +1,1 @@
+Artículo 8º—Del germoplasma local. El germoplasma de materiales locales deberá someterse a un proceso de cuarentena donde se realizarán análisis de laboratorio y un proceso de limpieza a través de microinjerto y/o termoterapia y el SFE verificará dicho proceso mediante técnicas de diagnóstico en un laboratorio oficial.

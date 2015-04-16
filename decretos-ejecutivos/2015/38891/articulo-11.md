@@ -1,0 +1,1 @@
+Artículo 11.—Inspecciones para el muestreo y diagnóstico. Los bancos de germoplasma (BG), los bancos de fundación (BF), los bancos multiplicadores de yemas (BMY), y los viveros serán fiscalizados periódicamente por técnicos del SFE, los cuales podrán tomar muestras y remitirlas al laboratorio oficial.
