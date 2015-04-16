@@ -663,4 +663,5 @@ PRODUCTOS:
 (Modificado por el artículo 1° del decreto ejecutivo N° 38858 del 2 de febrero del 2015)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38886 del 4 de febrero del 2015)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38889 del 4 de febrero del 2015)
-(Modificado por el artículo 2° de la ley N° 9294 del 13 de marzo de 2015)
+(Reformado por el artículo 2° de la ley N° 9294 del 13 de marzo de 2015)
+(Modificado por el artículo 1° del decreto ejecutivo N° 38943 del 17 de marzo de 2015)
