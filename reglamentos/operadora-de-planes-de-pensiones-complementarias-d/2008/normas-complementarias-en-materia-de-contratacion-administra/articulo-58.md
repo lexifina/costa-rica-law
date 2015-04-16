@@ -1,4 +1,4 @@
-Artículo 58.—Trámite de resolución. Una vez presentado el recurso, la Sección Administrativa, en coordinación con la Consultoría Jurídica y el Área Técnica, en un plazo máximo de tres días hábiles, analizarán la admisibilidad del recurso y la Sección Administrativa notificará al recurrente, en caso de que se declare inadmisible.
-(Así reformado el párrafo anterior mediante sesión extraordinaria N° 430 del 18 de marzo del 2014)
+Artículo 58.—Trámite de resolución. Una vez presentado el recurso, la Sección Administrativa, en coordinación con la Consultoría Jurídica y con las Áreas Usuarias y Técnicas, cuando corresponda, en un plazo máximo de tres días hábiles, analizarán la admisibilidad del recurso y la Sección Administrativa notificará al recurrente, en caso de que se declare inadmisible.
 Cuando el recurso resulte admisible para su trámite, la Sección Administrativa notificará a la parte adjudicada que ha sido recurrida, dentro del mismo plazo señalado anteriormente, concediéndole una audiencia por el término de tres días hábiles para que exprese sus alegatos.
 La Sección Administrativa podrá declarar improcedente o inadmisible un recurso, si al revisar los documentos presentados no reúne los requisitos mínimos de admisibilidad.
+(Así reformado en sesión N° 459 del 16 de abril de 2015)

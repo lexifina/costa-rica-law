@@ -1,3 +1,3 @@
-Artículo 59.—Criterio técnico y legal. Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Sección Administrativa los enviará al Área Técnica y a la Consultoría Jurídica cuando corresponda, para que ambas dependencias se pronuncien en un plazo de cinco días hábiles.
-Recibidos los criterios del Área Técnica y de la Consultoría Jurídica, la Sección Administrativa contará con un plazo máximo de tres días hábiles siguientes a la recepción de la documentación para emitir su recomendación y elevarla al órgano competente para resolver.
-(Así reformado mediante sesión extraordinaria N° 430 del 18 de marzo del 2014)
+Artículo 59.—Criterio técnico y legal. Vencida la audiencia concedida y/o recibidos los argumentos del adjudicatario recurrido, la Sección Administrativa los enviará a las Áreas Usuarias, Técnicas y a la Consultoría Jurídica, cuando corresponda, para que se pronuncien en un plazo de cinco días hábiles.
+Recibidos los criterios respectivos, la Sección Administrativa contará con un plazo máximo de tres días hábiles siguientes a la recepción de la documentación, para emitir su recomendación y elevarla al órgano competente para resolver.
+(Así reformado en sesión N° 459 del 16 de abril de 2015)

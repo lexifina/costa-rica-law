@@ -1,6 +1,9 @@
 Artículo 2º—Definiciones. Para efectos de la aplicación de este Reglamento, se definen los siguientes términos:
 Administración Superior: Estará constituida por la Junta Directiva de la Operadora y su Gerencia.
-Administrador de contrato: Es el encargado de administrar los contratos de suministro de bienes y servicios que suscriba la Operadora con particulares o terceros, con el propósito de asegurar el fiel cumplimiento del objeto de la contratación, tanto cualitativa como cuantitativamente; el cual actuará también como contraparte institucional.
+Administrador de contrato u Órgano Fiscalizador: Es el encargado de administrar los contratos de suministro de bienes y servicios que suscriba la Operadora con particulares o terceros, con el propósito de asegurar el fiel cumplimiento del objeto de la contratación, tanto cualitativa como cuantitativamente; el cual actuará también como contraparte institucional.
+(Así reformada la definición anterior en sesión N° 459 del 16 de abril de 2015)
+Área Técnica: Dependencia de la Operadora, que en la fase del proceso de contratación administrativa, apoya a las Unidades Usuarias y/o Administrador del Contrato u Órgano Fiscalizador, y que cuentan con un nivel de experticia en diferentes especialidades relacionadas con la contratación.
+(Así adicionada la definición anterior en sesión N° 459 del 16 de abril de 2015)
 Consultoría Jurídica: dependencia que brinda la asesoría jurídica y los servicios legales que en materia de contratación administrativa requiera la Operadora.
 (Así reformada la definición anterior mediante sesión extraordinaria N° 430 del 18 de marzo del 2014)
 Comité de Licitaciones: Es el Órgano competente para resolver los diferentes procedimientos y trámites de contratación administrativa de toda índole, incluyendo las adjudicaciones, declaratorias desiertas o infructuosas, recursos de revocatoria u otros, propios de su competencia, que requieran ser resueltos por dicho Comité.

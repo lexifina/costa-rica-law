@@ -1,1 +1,2 @@
-Artículo 23.—Debido proceso. Salvo cuando la exclusión se fundamente en las causas señaladas en el artículo anterior, se deberá dar audiencia al proveedor a fin de que ejercite las garantías constitucionales que le asisten, entre ellas el Debido Proceso y el Derecho de Defensa.
+Artículo 23.—Debido proceso. Salvo cuando la exclusión se fundamente en las causas señaladas en el artículo anterior, se deberá dar audiencia al proveedor a fin de que ejercite las garantías constitucionales que le asisten, entre ellas el Debido Proceso y el Derecho de Defensa de conformidad con la normativa aplicable de la Ley General de la Administración Pública y de los procedimientos internos respectivos.
+(Así reformado en sesión N° 459 del 16 de abril de 2015)

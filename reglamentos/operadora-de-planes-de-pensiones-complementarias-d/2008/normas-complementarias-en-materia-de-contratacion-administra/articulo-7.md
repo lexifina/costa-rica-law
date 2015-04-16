@@ -3,7 +3,8 @@ Artículo 7º—Funciones de la Consultoría Jurídica. La Consultoría Jurídic
 a. Revisar los carteles de las licitaciones abreviadas y públicas.
 b. Revisar las invitaciones de contrataciones directas especiales que le solicite la Sección Administrativa.
 c. Dictaminar, en caso de duda, la procedencia de las actividades no sujetas a concurso público.
-d. Asesorar en colaboración con las unidades usuarias y la Sección Administrativa en las respuestas de las impugnaciones a los carteles o a las adjudicaciones.
+d. Asesorar en colaboración con las unidades usuarias y/o área técnica y la Sección Administrativa en las respuestas de las impugnaciones a los carteles o a las adjudicaciones.
+(Así reformado el inciso anterior en sesión N° 459 del 16 de abril de 2015)
 e. Asesorar a la Operadora ante cualquier duda legal que se presente durante el proceso de contratación.
 f. Rendir dictámenes en caso de duda o sobre aspectos que requieran interpretación legal en materia de imposición de multas, sanciones, ejecuciones de garantías, modificación, ampliación o la finalización de los contratos y recursos.
 g. Servir de enlace, desde el punto de vista jurídico, con la Contraloría General de la República en materia de procedimientos de contratación administrativa, en coordinación con las dependencias que corresponda.
