@@ -14,3 +14,4 @@ Nueva dirección electrónica para el acceso a la información de interés tribu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-16 | la propia norma |
+| 2 | 2015-04-16 | Resolución 7 (2015-03-30) |
