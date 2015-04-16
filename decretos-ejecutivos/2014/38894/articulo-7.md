@@ -1,0 +1,1 @@
+Artículo 7º—Los nombramientos serán por espacio de dos años, para todos los representantes, cumplido este plazo el jerarca respectivo o a quién corresponda, definirá si prorroga o sustituye su nombramiento de acuerdo a los intereses de “La Comisión”.

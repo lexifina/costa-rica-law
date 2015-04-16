@@ -1,0 +1,1 @@
+Artículo 5º—Reuniones. “La Comisión” se reunirá una vez al mes en el día en que esta lo establezca en forma ordinaria, y extraordinaria cuando la persona que ejerza la coordinación la considere necesaria, para la cual se convocará por medio de oficio o correo electrónico. Dichas reuniones se realizarán en las oficinas centrales del Ministerio de Salud.

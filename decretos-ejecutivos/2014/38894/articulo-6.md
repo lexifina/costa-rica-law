@@ -1,0 +1,1 @@
+Artículo 6º—Cada representante titular y su suplente será nombrado por el respectivo jerarca institucional en el caso de los Ministerios, y por quién corresponda para el caso de las demás organizaciones que conforman “La Comisión” (cámaras, asociaciones, federaciones, uniones).
