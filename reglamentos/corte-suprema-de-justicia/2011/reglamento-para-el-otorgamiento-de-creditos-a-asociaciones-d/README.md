@@ -13,3 +13,4 @@ Reglamento para el Otorgamiento de Créditos a Asociaciones de Servidores Judici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-07 | la propia norma |
+| 2 | 2015-04-17 | Circular 65 (2015-04-17) |
