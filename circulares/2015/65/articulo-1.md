@@ -1,0 +1,7 @@
+N° 65-2015
+ASUNTO: Modificación del artículo 7 del “Reglamento para el Otorgamiento de Créditos a Asociaciones de Servidores Judiciales e Instituciones Bancarias del Estado con Recursos del Fondo de Jubilaciones y Pensiones Judiciales”.
+A LOS SERVIDORES Y SERVIDORAS JUDICIALES
+SE LES HACE SABER QUE:
+La Corte Plena, en sesión N° 14-2015, celebrada el 13 de abril del año en curso, artículo VIII, dispuso aprobar la modificación del artículo 7 del “Reglamento para el Otorgamiento de Créditos a Asociaciones de Servidores Judiciales e Instituciones Bancarias del Estado con Recursos del Fondo de Jubilaciones y Pensiones Judiciales”, para que en adelante se lea de la siguiente manera:
+“Artículo 7. La tasa de interés que el Fondo de Jubilaciones y Pensiones percibirá por los préstamos otorgados, será igual a la tasa promedio ponderado en la que esté invirtiendo el citado Fondo sus dineros en los últimos seis meses siempre y cuando ésta sea igual o superior a la que recibiría por inversiones en títulos valores del sector público en un plazo similar al que falta para que venza el crédito en análisis. Si la tasa promedio fuera menor se utilizaría la tasa de mercado. Esta tasa se ajustar á semestralmente por el Departamento Financiero Contable, quien lo comunicará con 10 días hábiles de antelación a la fecha de pago a las entidades financieras sujetas de crédito.”
+San José, 17 de abril de 2015.
