@@ -1,0 +1,3 @@
+SECCIÓN TERCERA
+De las operaciones avaladas
+Artículo 57.—Originación de operaciones. Criterios: El BANHVI garantizará créditos hipotecarios individuales de primer grado destinados a la adquisición de la primera vivienda, que cumplan con las condiciones contenidas en el Artículo 8 del Reglamento sobre Garantías de las Operaciones de Crédito para Vivienda y cuya prima sea aportada por el deudor o codeudor mediante depósito a su nombre en una cuenta de la Entidad Autorizada; estos recursos se mantendrán líquidos y disponibles para el deudor hasta la fecha de la formalización del crédito hipotecario, cuando se realizará el desembolso a favor del vendedor de la vivienda.

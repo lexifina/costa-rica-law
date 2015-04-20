@@ -1,0 +1,1 @@
+Artículo 27.—Dictámenes. Naturaleza jurídica: De conformidad con el artículo 303 de la Ley General de la Administración Pública, los dictámenes técnicos emitidos por la Dirección FONAVI y el Comité de Crédito constituyen actos administrativos preparatorios, de mero trámite, no vinculantes y no impugnables.

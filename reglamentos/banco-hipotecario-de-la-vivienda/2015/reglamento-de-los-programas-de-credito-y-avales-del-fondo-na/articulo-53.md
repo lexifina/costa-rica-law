@@ -1,0 +1,1 @@
+Artículo 53.—Ámbito de aplicación: El programa de avales regulado en el presente reglamento, será puesto a disposición de aquellas entidades autorizadas del SFNV que se encuentran sujetas a la supervisión de la SUGEF y en lo que se refiere a las operaciones que estén reguladas mediante la Ley de dicho Sistema.

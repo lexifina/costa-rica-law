@@ -1,0 +1,1 @@
+Artículo 19.—Bono de Vivienda: Se podrá aplicar al programa del FOFIVI el subsidio del bono familiar de vivienda únicamente en lo que se refiere a los cuatro planes de inversión antes citados. Es entendido que en ese caso, se aplicarán las otras normas legales y reglamentarias aplicables al indicado subsidio.

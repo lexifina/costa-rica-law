@@ -1,0 +1,1 @@
+Artículo 41.—Integración: El Comité de Crédito está integrado por los miembros que se detallan a continuación, quienes tendrán voz y voto en las deliberaciones y toma de decisiones: El Gerente General, el Subgerente Financiero, el Subgerente de Operaciones, el titular de la Dirección Supervisión de Entidades Autorizadas.

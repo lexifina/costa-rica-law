@@ -1,0 +1,1 @@
+Artículo 2º—Incorporación de créditos a los programas: El financiamiento que se otorgue mediante la aprobación de créditos con recursos del FONAVI por parte de la Junta Directiva del Banco Hipotecario de la Vivienda (en adelante BANHVI) deberá estar enmarcado dentro de los programas de crédito aprobados por ese órgano, y cumplir con las condiciones que en ellos se establezcan.

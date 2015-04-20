@@ -1,0 +1,3 @@
+Artículo 13.—Recursos: Para financiar los créditos del programa FOFIVI el BANHVI hará uso de los siguientes recursos:
+a) Emisión de Títulos Valores de Vivienda para Clase Media (TVCM) cuya emisión y captación será exclusivamente para financiar proyectos de vivienda de este programa. Las emisiones deberán contemplar los alcances y requisitos establecidos en la Ley Reguladora del Mercado de Valores, y los reglamentos de oferta pública vigentes y los que emita la Superintendencia General de Valores, así como cualquier otra disposición reglamentaria aplicable en la materia.
+b) Los recursos de intermediación financiera que el BANHVI, por medio de acuerdo de su Junta Directiva, decida dedicar al programa.

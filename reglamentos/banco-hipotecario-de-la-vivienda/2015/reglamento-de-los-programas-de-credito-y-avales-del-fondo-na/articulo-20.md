@@ -1,0 +1,4 @@
+TÍTULO SEGUNDO
+Normas de Procedimiento para todos los Programas
+Artículo 20.—Solicitudes: Las entidades autorizadas del SFNV deberán presentar ante el BANHVI sus solicitudes de crédito para ser financiadas con recursos del FONAVI, firmadas por su Gerente General o Subgerente General, indicando el monto total requerido y el plan de inversión asociado.
+Con base en la disponibilidad de recursos del FONAVI y en los parámetros incorporados en los Programas de Crédito aprobados por la Junta Directiva del BANHVI para el periodo correspondiente, la Dirección FONAVI comunicará las condiciones bajo las cuales podría ser otorgado el financiamiento requerido, tales como moneda, monto máximo, tasa de interés, forma de pago de amortización e intereses, plazo y garantías; asimismo, se indicará la información básica requerida para dar trámite a la solicitud de crédito.

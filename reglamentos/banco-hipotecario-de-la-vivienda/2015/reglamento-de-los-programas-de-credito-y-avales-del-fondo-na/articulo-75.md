@@ -1,0 +1,1 @@
+Artículo 75.—No reintegro de comisiones: En caso de que el aval se dé por vencido anticipadamente por cualquiera de las razones citadas, el BANHVI no estará en la obligación de rembolsar a la entidad autorizada las comisiones recibidas conforme a este reglamento y los efectos del aval quedarán extinguidos respecto de los créditos de que se trate.

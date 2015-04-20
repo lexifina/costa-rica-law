@@ -1,0 +1,1 @@
+Artículo 49.—Salvedad de voto y opinión: Cualquiera de los miembros del Comité podrá salvar justificadamente su voto en los procedimientos de votación que eventualmente tuvieran lugar en el seno del Comité. Asimismo, podrá solicitar que su opinión sea incluida expresamente en el acta de la sesión correspondiente.

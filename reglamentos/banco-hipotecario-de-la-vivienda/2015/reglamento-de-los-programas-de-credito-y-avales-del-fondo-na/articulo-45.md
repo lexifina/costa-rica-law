@@ -1,0 +1,1 @@
+Artículo 45.—Sesiones: Las sesiones del comité de crédito serán ordinarias o extraordinarias; las primeras se realizarán al menos con periodicidad trimestral, mientras que las segundas serán convocadas en casos especiales a solicitud expresa de su Presidente.

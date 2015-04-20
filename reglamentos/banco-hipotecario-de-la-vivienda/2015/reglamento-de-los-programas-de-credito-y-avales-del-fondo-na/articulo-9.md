@@ -1,0 +1,5 @@
+Artículo 9º—Población Meta: Los créditos del programa PROFIVIJO se dirigirán a deudores que cumplan con los siguientes requisitos mínimos:
+a) El deudor o al menos uno de los codeudores (cuando fueren varios) debe tener, al momento de presentar formalmente y por escrito su solicitud de crédito, una edad de entre dieciocho años cumplidos y treinta y cinco años no cumplidos, con independencia de la edad de los otros miembros del núcleo familiar.
+b) Entre el deudor o al menos uno de los codeudores (cuando fueren varios) regulados en el inciso anterior y los otros integrantes o miembros del núcleo familiar debe existir una relación familiar de hasta el tercer grado por consanguinidad, afinidad o parentesco colateral.
+c) El deudor o los codeudores (cuando fueren varios) deben calificar como sujetos de crédito de acuerdo con la normativa aplicable en la materia.
+d) Los ingresos máximos que podrá tener el núcleo familiar para recibir los beneficios del PROFIVIJO serán de hasta seis veces el salario mínimo de un obrero no especializado de la industria de la construcción previsto en la Ley del Sistema Financiero Nacional para la Vivienda.

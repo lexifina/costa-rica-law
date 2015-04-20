@@ -1,0 +1,1 @@
+Artículo 51.—Normas supletorias: En todo lo no previsto en las normas anteriores, el Comité de Crédito de regirá por las disposiciones previstas en el Libro Primero de la Ley General de la Administración Pública para los órganos públicos colegiados.

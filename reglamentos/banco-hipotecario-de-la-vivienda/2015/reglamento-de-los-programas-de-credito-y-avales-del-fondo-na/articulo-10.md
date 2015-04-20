@@ -1,0 +1,5 @@
+Artículo 10.—Planes de inversión: El financiamiento del PROFIVIJO se destinará únicamente a los siguientes planes de inversión:
+a) Compra de primera vivienda que comprende una vivienda ya construida siendo requisito que ninguno de los miembros del núcleo familiar sea propietario de otros inmuebles sin construcción, en cuyo caso debe optar por la opción indicada en el inciso c) siguiente.
+b) Compra de lote y construcción de primera vivienda, siendo necesario que ninguno de los miembros del núcleo familiar cuente con otros inmuebles.
+c) Construcción en lote propio de la primera vivienda aunque alguno o algunos de los miembros del núcleo familiar cuente con otros inmuebles sin construcciones.
+En todos los casos, el deudor o los codeudores deben postularse para adquirir su primera vivienda. Si los otros integrantes del núcleo familiar ya hubieren contado en el pasado con vivienda propia, será requisito que la hayan perdido por caso fortuito, fuerza mayor, remate judicial o entrega en dación en pago, no por compraventa, donación o traspaso voluntario fiduciario.

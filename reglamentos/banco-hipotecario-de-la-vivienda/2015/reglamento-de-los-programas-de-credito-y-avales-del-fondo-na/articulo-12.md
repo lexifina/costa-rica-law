@@ -1,0 +1,3 @@
+SECCIÓN CUARTA
+Fondo para el Financiamiento de Vivienda de Clase Media
+Artículo 12.—Objetivo: El BANHVI, por medio del FONAVI, contará con un Fondo para el Financiamiento de Vivienda para Clase Media (FOFIVI), con el fin de brindar crédito para primera solución de vivienda a la clase media. Los créditos se concederán a las entidades autorizadas del Sistema Financiero Nacional para la Vivienda, supervisadas por la Superintendencia General de Entidades Financieras (SUGEF), para que a su vez otorguen créditos de largo plazo a las personas que califiquen como beneficiarios del programa de acuerdo con la Ley de Creación del Fondo para el Financiamiento de Vivienda para Clase Media.

@@ -1,0 +1,6 @@
+SECCIÓN CUARTA
+Del otorgamiento del aval
+Artículo 61.—Incorporación de las entidades autorizadas: Las entidades autorizadas facultadas para participar en el presente programa de avales y en sus subprogramas, solicitarán a la Junta Directiva del BANHVI autorización para su incorporación, mediante oficio emitido por parte de su Gerencia General, previa autorización de su junta directiva, directorio o consejo de administración. El proceso de incorporación de las entidades autorizadas al programa y a sus subprogramas deberá contemplar los siguientes aspectos:
+a) Verificación sobre la existencia de procedimientos idóneos para el análisis y aprobación de las solicitudes de crédito, así como de administración y cobranza de la cartera crediticia. El BANHVI considerará la información de políticas y procedimientos de la entidad en materia de crédito, así como los resultados de los últimos informes sobre cartera de crédito y evaluación de la gestión, emitidos por la SUGEF.
+b) A partir de la verificación sobre los procedimientos señalados, la Administración del BANHVI emitirá la recomendación correspondiente para la incorporación de cada entidad autorizada.
+c) Aprobación o rechazo por parte de la Junta Directiva del BANHVI de la recomendación emitida por su Administración.
