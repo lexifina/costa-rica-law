@@ -1,0 +1,6 @@
+Artículo 32.—Toda entidad pública que ejecute gasto de los recursos aprobados en la subpartida Gastos Confidenciales (9.01.01), excepto los que se encuentran a disposición de los Presidentes del Poder Ejecutivo, Poder Legislativo y Poder Judicial, y los jerarcas de la Contraloría General, la Defensoría de los Habitantes, la Procuraduría General de la República y el Tribunal Supremo de Elecciones, su jerarca institucional deberá justificar la necesidad en que se origina la solicitud de gasto, así como la relación de la erogación con las funciones institucionales, con sus funciones y el beneficio para la sociedad costarricense.
+Esta disposición no se aplica para los siguientes programas:
+• 205-Ministerio de Seguridad Pública: Programa-090-01-Policía Control de Drogas.
+• 206-Ministerio de Hacienda: Programa-134-02-Gestión de Ingresos Internos, Programa-134-05-Investigaciones Fiscales.
+• 301-Poder Judicial: Programa-928-00-Servicio de Investigación Judicial, Programa-950-00-Servicio de Atención y Protección de Víctimas y Testigos.
+Tampoco aplica para los gastos confidenciales que utiliza la Policía Especial de Migración, en cuanto a investigaciones sobre Trata de Personas y Tráfico de Migrantes, de acuerdo con la ley.

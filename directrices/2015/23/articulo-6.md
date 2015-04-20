@@ -1,0 +1,3 @@
+Artículo 6º—Se instruye a la Comisión Interinstitucional conformada por el Ministerio de Hacienda y el Ministerio de Planificación Nacional y Política Económica a:
+1. Desarrollar mecanismos de seguimiento en los que se integren los avances en el cumplimiento de la programación institucional con el ejercicio presupuestario.
+2. Proponer los lineamientos técnicos-metodológicos para la formulación del Presupuesto Ordinario de la República para el ejercicio del año económico 2016 que garanticen el riguroso cumplimiento del Plan Nacional de Desarrollo 2015-2018, así como los principios presupuestarios, con énfasis en la austeridad y eficiencia en la gestión presupuestaria.

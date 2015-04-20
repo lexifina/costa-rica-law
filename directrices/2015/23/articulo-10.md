@@ -1,0 +1,1 @@
+Artículo 10.—Los salarios únicos o compuestos, según corresponda del presidente, vicepresidentes, ministros, viceministros, presidentes ejecutivos, gerentes y subgerentes del Sector Descentralizado, se mantendrán fijos, no recibiendo aumentos salariales.

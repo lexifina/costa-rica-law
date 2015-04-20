@@ -1,0 +1,1 @@
+Artículo 2º—Se instruye a los jerarcas de los entes descentralizados a reprogramar los planes operativos institucionales 2015 en estricto cumplimiento del Plan Nacional de Desarrollo 2015-2018, sus presupuestos institucionales y los principios de eficiencia, austeridad y transparencia en el gasto público.

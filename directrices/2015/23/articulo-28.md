@@ -1,0 +1,7 @@
+Artículo 28.—Toda entidad pública que ejecute las subpartidas:
+1.7.1 Actividades de capacitación,
+1.7.2 Actividades protocolarias y sociales.
+Incorporadas en los Presupuestos del año 2015, deben contar con una resolución del jerarca institucional que indique: razón de la necesidad, el personal que participará, los beneficios para la población beneficiada, proceso para seleccionar al personal, la actividad y los entes o empresas que podrían ser contratadas, distribución del gasto entre los participantes y actividades.
+Las actividades de capacitación (1.07.01) se contratarán preferentemente los centros de enseñanza superior universitaria del Estado y cuando resulte procedente con el Instituto Nacional de Aprendizaje, deberán llevarse a cabo en las instalaciones o auditorios de éstas o de las instituciones públicas. En el caso de que la contratación de dichos centros no se pueda hacer con las instituciones referidas, antes de la contratación con otras personas físicas o jurídicas, debe tenerse la aprobación de los jerarcas respectivos.
+Las instituciones públicas podrán establecer entre ellas acuerdos o programas de cooperación, que les permita utilizar sus instalaciones y su capital humano para llevar a cabo las actividades de capacitación.
+Las actividades protocolarias y sociales (1.07.02) deberán efectuarse en las instalaciones o auditorios de las instituciones y universidades públicas.
