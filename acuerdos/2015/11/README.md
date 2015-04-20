@@ -14,3 +14,4 @@ Nombra comisión de baja de bienes por donación, delegación de firma de resolu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-20 | la propia norma |
+| 2 | 2015-04-20 | Acuerdo 20 (2015-04-20) |
