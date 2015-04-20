@@ -1,2 +1,2 @@
-Artículo 2º—La administración del Refugio aquí declarado le corresponde al Ministerio de Ambiente y Energía(*), y en él regirán las disposiciones establecidas para esta categoría de área silvestre protegida en la legislación Nacional.
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
+Artículo 2º—“La administración del Refugio corresponde al Ministerio del Ambiente y Energía a través del Sistema Nacional de Áreas de Conservación y en él se aplicarán las disposiciones establecidas para la categoría de área protegida en la legislación nacional y en el respectivo Plan de Manejo.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 39093 del 20 de abril del 2015)
