@@ -1,0 +1,1 @@
+Artículo 12.- Este procedimiento rige a partir del aviso a los proveedores de que el mismo puede ser accesado en la página web de la Institución. Dicha publicación se realizará, por una sola vez, en el periódico oficial La Gaceta y en un medio de circulación nacional.
