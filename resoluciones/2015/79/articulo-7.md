@@ -1,0 +1,1 @@
+7°—El registro de conductores costarricenses para el Tránsito Internacional Terrestre, es de acatamiento obligatorio para los transportistas internacionales terrestres dado que será incorporada su validación en el Sistema informático TICA y por consiguiente en el sistema informático TIM (Tránsito Internacional de Mercancías).

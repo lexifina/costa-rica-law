@@ -1,0 +1,1 @@
+2°—Habilitar el registro de conductores para el tránsito internacional terrestre mediante la página WEB del Sistema de Información para el control Aduanero TICA en la dirección http:// www.hacienda.go.cr/tica/consultas.
