@@ -1,3 +1,2 @@
 Artículo 14.—Información requerida por la normativa prudencial. La SUGEF debe poner a disposición de las entidades en forma oportuna la información de dominio público sobre sus deudores y fiadores necesaria para cumplir con la normativa prudencial vigente, según el Anexo.
-Asimismo, la SUGEF debe poner a disposición de las entidades archivos descargables con información sobre el nivel de comportamiento de pago histórico de sus clientes, a más tardar el decimosexto día hábil de cada mes
-(Así adicionado el párrafo anterior mediante sesión N° 650 del 4 de junio de 2007)
+Asimismo, la SUGEF debe poner a disposición de las entidades archivos descargables con información sobre el nivel de comportamiento de pago histórico de sus clientes, a más tardar el decimosexto día hábil de cada mes.
