@@ -28,14 +28,7 @@ Departamento Tecnologías de la Información sus objetivos son:
 · Evaluar las licitaciones, adquisiciones y compras en materia de recursos informáticos y otras tecnologías convergentes.
 · Administrar la plataforma tecnológica institucional (servidores, enrutadores, dispositivos de filtrado, enlaces externos y enlaces a Internet así como toda la red de datos y telefonía) necesarios para el desempeño de las actividades de los funcionarios.
 · Dirección Gestión Presidencial su objetivo es coordinar, facilitar y promover una mayor eficacia y eficiencia en las actividades orientadas a fortalecer la gestión presidencial de acuerdo con las instrucciones dadas por el Presidente (a) de la República y facilitar las acciones de la Unidad de Planificación Institucional, está compuesta por las siguientes unidades organizacionales:
-Departamento Apoyo Social sus objetivos son:
-· Crear alianzas estratégicas, públicas y privadas para la gestión de proyectos tendientes a lograr cambios significativos en las poblaciones vulnerables.
-· Facilitar y gestionar iniciativas públicas y privadas para promover la participación activa y solidaria en los procesos de desarrollo comunitario.
-· Garantizar una propuesta efectiva a las necesidades específicas de las poblaciones vulnerables mediante la gestión para el acceso a los programas sociales de las instituciones u organizaciones no gubernamentales.
-· Impulsar acciones que incrementen la organización solidaria de las poblaciones vulnerables a través de actividades y programas coordinados con otras organizaciones especializadas.
-· Desarrollo de una Red de Alianzas Estratégicas con organizaciones nacionales e internacionales, para la generación y transformación de conocimientos e implementación de programas de mejoramiento social.
-· Coadyuvar con el diseño y ejecución de actividades que favorezcan a las poblaciones vulnerables.
-·Canalizar ayudas de empresas y Organizaciones No Gubernamentales, en beneficio de los sectores vulnerables.
+Departamento Apoyo Social. (Eliminado este departamento por el artículo 2° del decreto ejecutivo N° 38977 del 21 de abril de 2015)
 Departamento Protocolo dirige, coordina, interpreta y ejecuta las normas de protocolo y ceremonial del Estado, salvo las competencias propias de la Dirección General de Protocolo y Ceremonial del Estado del Ministerio de Relaciones Exteriores y Culto.
 Departamento de Giras da seguimiento de las agendas de las giras dentro del territorio nacional del señor (a) Presidente (a) de la República. Este Departamento es el enlace con las Instituciones Estatales, Gobiernos Locales y representantes del Poder Legislativo en los temas concernientes a la zona a visitar, con el fin de garantizar el buen desarrollo de los programas y actividades a realizarse durante la gira presidencial.
 Departamento de Leyes y Decretos sus objetivos son:
