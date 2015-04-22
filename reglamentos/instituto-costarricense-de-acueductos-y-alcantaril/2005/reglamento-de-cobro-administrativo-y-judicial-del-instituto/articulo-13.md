@@ -1,2 +1,0 @@
-Artículo 13.—Incumplimiento de arreglos de pago. En el caso que se produzca el atraso en el pago de 3 cuotas consecutivas, el arreglo de pago se anulará. Igualmente, quedará anulado cuando se presenten dos o menos cuotas vencidas, al cumplir 90 días naturales después de su emisión sin que existiere pago de las mismas. Las facturas y multas provenientes del arreglo de pago anulado, se registrarán en su estado original y se procederá con la gestión de cobro administrativo y judicial.
-(Así reformado mediante publicación en La Gaceta N° 67 del 8 de abril del 2013)
