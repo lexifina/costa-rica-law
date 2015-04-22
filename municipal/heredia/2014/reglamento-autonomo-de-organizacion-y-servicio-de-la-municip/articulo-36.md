@@ -1,0 +1,1 @@
+Artículo 36.—Excepciones de vestimenta. Los lineamientos mencionados en el artículo anterior podrán exceptuarse cuando se realicen inspecciones o diligencias que requieran trabajo en el campo, para ello se podrá utilizar camiseta, pantalones de mezclilla y zapato apto para la actividad por realizar.

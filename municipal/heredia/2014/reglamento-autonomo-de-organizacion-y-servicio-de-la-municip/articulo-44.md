@@ -1,0 +1,3 @@
+Artículo 44.—Incapacidades. Las incapacidades serán pagas según las disposiciones que se detallan a continuación:
+a. CCSS: Los primeros tres días únicamente la Municipalidad le reconocerá un cincuenta por ciento (50%) del salario. A partir del cuarto día el Municipio suspende el pago y la CCSS otorga un subsidio del sesenta por ciento (60%) de la remuneración.
+b. INS: Los primeros tres días la Municipalidad pagará un cuarenta por ciento (40%) del salario y el INS el sesenta por ciento (60%) restante. A partir del cuarto día la Municipalidad suspende el pago y el INS otorga el subsidio correspondiente.

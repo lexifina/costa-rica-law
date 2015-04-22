@@ -1,0 +1,1 @@
+Artículo 10.—Salud Ocupacional. Las disposiciones para procurar el bienestar físico, mental y social de los funcionarios y funcionarias estarán contenidas en el Reglamento de Salud Ocupacional de la Municipalidad del Cantón de Heredia.

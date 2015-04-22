@@ -1,0 +1,1 @@
+Artículo 23.—Es deber de las jefaturas enviar copia al expediente personal de los funcionarios y funcionarias la documentación que, dentro de su ámbito de competencia, pueden generar actos jurídico-administrativos.

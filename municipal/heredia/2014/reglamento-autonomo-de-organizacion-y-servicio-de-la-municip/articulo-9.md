@@ -1,0 +1,1 @@
+Artículo 9º—Hostigamiento sexual. El acoso y hostigamiento sexual es una conducta prohibida y sancionada de conformidad con la Ley Contra el Hostigamiento Sexual en el Empleo y la Docencia y el Reglamento para Prevenir, Investigar y Sancionar en Casos de Hostigamiento Sexual en la Municipalidad del Cantón Central de Heredia.

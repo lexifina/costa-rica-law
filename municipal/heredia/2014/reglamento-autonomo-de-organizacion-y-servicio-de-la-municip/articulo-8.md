@@ -1,0 +1,1 @@
+Artículo 8º—Personas con discapacidad. La Municipalidad garantiza la posibilidad de selección a las personas con discapacidad y el derecho a un empleo adecuado a sus condiciones y necesidades personales, de conformidad con la Ley de Igualdad de Oportunidades para las Personas con Discapacidad y su Reglamento.

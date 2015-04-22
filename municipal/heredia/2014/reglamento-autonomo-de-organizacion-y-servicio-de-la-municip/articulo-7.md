@@ -1,0 +1,1 @@
+Artículo 7º—Menores de edad, adolescentes y mujeres. El trabajo de los menores de edad, adolescentes y mujeres se regirá, además de lo dispuesto en este Reglamento, por la normativa del Código de Trabajo, Código de la Niñez y la Adolescencia y demás disposiciones que regulen los derechos y deberes de estas personas.

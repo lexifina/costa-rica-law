@@ -1,0 +1,4 @@
+Artículo 57.—La suspensión de trabajo sin goce de salario hasta por quince días se aplicará en las circunstancias que a continuación se detallan y una vez escuchada la persona trabajadora y los compañeros o compañeras de trabajo que ella indique:
+a. Cuando la persona trabajadora, después de haber sido amonestada por escrito, incurra de nuevo en la falta que motivó la amonestación.
+b. Cuando la persona trabajadora viole alguna de las prohibiciones de los Códigos Municipal y de Trabajo y este Reglamento, salvo que la falta de mérito para el despido o esté sancionada por otra disposición de este Reglamento y aquellos instrumentos reglamentarios que de forma conexa regulen la relación de empleo.
+c. Cuando la persona trabajadora cometa alguna falta de cierta gravedad que no dé mérito para el despido, excepto si está sancionada de manera especial por otra disposición de este Reglamento.

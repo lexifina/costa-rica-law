@@ -1,0 +1,1 @@
+Artículo 11.—Uso de Internet. El uso de Internet y correo electrónico institucional será regulado de conformidad con el Reglamento para el uso de Internet y correo electrónico institucional de la Municipalidad del Cantón Central de Heredia.

@@ -1,0 +1,2 @@
+Artículo 52.—El salario será pagado por períodos mensuales y en tractos bisemanales, los cuales se determinarán multiplicando por doce (meses del año) el salario mensual y dividiendo ese resultado entre veintiséis (bisemanas al año).
+Se pagará los viernes cada dos semanas mediante transferencia bancaria a una cuenta de débito del funcionario o funcionaria municipal y de la entidad bancaria que determine la Administración.

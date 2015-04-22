@@ -1,0 +1,2 @@
+Artículo 67.—Este Reglamento será puesto en conocimiento de los servidores y servidoras municipales después de haber sido aprobado por el Concejo Municipal, para lo cual se deberá haber escuchado de previo (de forma escrita) a las organizaciones gremiales y sindicales debidamente organizadas en la Municipalidad de Heredia.
+La Municipalidad distribuirá entre todo el personal, ya sea por medios electrónicos o impresos, una copia de este Reglamento.
