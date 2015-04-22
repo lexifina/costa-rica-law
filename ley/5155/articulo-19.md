@@ -1,3 +1,4 @@
 Artículo 19.- Todo funcionario judicial debe ser costarricense, ciudadano en ejercicio y del estado seglar.
 Los secretarios, prosecretarios, notificadores, oficinistas y los demás servidores que señale el Manual Descriptivo de Puestos, deberán haber aprobado por lo menos la enseñanza media; pero en caso de inopia podrán ser nombrados los que no reúnan ese requisito.
 Transitorio.- La condición a que se refiere el párrafo segundo no se exigirá en cuanto a los actuales servidores; pero los que desempeñen puestos de categoría inferior a la de oficinista y no hubieren aprobado la enseñanza media, no podrán ser ascendidos a ninguno de los cargos que se indican en dicho párrafo, salvo que hubiesen aprobado los cursos de capacitación.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 5614 del 22 de abril del 2015, se declaró inconstitucional el inciso a) del artículo 19 del Estatuto de Servicio Judicial. No obstante el numeral 19 no contiene inciso a))
