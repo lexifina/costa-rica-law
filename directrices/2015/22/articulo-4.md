@@ -1,0 +1,1 @@
+Artículo 4º—Los órganos del Gobierno Central y entes descentralizados brindarán, en el rango de su competencia, las facilidades que sean necesarias para cumplir con los objetivos regionales e internacionales que establece el “Programa de actividades del Decenio Internacional para los Afrodescendientes”.
