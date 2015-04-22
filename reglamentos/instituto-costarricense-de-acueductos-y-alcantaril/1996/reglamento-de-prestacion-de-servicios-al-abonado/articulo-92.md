@@ -1,1 +1,0 @@
-Artículo 92.—En los casos en los que el cliente solicite un arreglo de pago con AyA. este se tramitará de conformidad con lo establecido en el Reglamento de Suspensión de Servicios Cobro Administrativo y Cobro Judicial.

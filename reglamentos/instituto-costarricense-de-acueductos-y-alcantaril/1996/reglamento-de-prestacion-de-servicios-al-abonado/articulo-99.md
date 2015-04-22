@@ -1,2 +1,0 @@
-Artículo 99.—Cuando se compruebe mediante prueba volumétrica que el hidrómetro no registra con exactitud de acuerdo con las especificaciones o cuando exista un criterio técnico del laboratorio de medición que haga dudar del registro del hidrómetro, no se cobraran los consumos facturados en exceso, del promedio normal de consumo del servicio. Para el cálculo de las modificaciones se podrá utilizar la proyección de consumo con el nuevo hidrómetro
-(Así reformado mediante sesión ordinaria N° 324 de 10 de setiembre de 2002.)

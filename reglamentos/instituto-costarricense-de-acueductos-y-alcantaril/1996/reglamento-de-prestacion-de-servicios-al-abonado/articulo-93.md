@@ -1,1 +1,0 @@
-Artículo 93.—Si por alguna razón al cliente no le llegara el recibo mensual de su cuenta, deberá notificarlo AyA a fin de normalizar la situación. En caso de morosidad AyA realizará la gestión cobratoria correspondiente.

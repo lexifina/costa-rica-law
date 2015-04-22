@@ -1,1 +1,0 @@
-Artículo 25.—Cuando el nivel posible de salida de las aguas residuales de una propiedad no permita la descarga por gravedad al sistema publico, y el cliente desea hacer uso de dicho sistema, deberá incluir dentro de su propio sistema una instalación de bombeo adecuada, en el lugar que AyA señale y darle el mantenimiento necesario para su correcto funcionamiento.

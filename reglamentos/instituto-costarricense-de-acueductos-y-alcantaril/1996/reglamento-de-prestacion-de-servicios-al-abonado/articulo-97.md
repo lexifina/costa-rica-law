@@ -1,2 +1,0 @@
-Artículo 97.—En los servicios en que no se cuente con registros, o no sea posible establecer que permitan calcular el consumo promedio normal, se aplicará un volumen por mes por servicio igual al "consumo promedio normal", utilizado en el estudio tarifario que haya servido de base a la resolución que sustenta las tarifas vigentes, para cada una de las categorías.
-(Así reformado mediante sesión ordinaria N° 442 del 13 de febrero de 2004.)

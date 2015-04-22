@@ -1,2 +1,0 @@
-Artículo 39.—Cuando una persona física o jurídica, adquiera un derecho de propiedad sobre un inmueble que ya cuenta con los servicios de AyA. debe solicitar el cambio de nombre de la cuenta. La solicitud debe acompañarse con atestados que demuestren que el solicitante es el dueño legítimo de la propiedad en cuestión.
-El AyA puede de oficio proceder al cambio de nombre de los servicios cuando se entere de novación de propietarios mediante prueba pertinente.

@@ -1,1 +1,0 @@
-Artículo 44.—Cuando el uso de los servicios sea modificado por el cliente, según se detalla en el capítulo V del presente Reglamento, éste deberá notificarlo así a AyA, por medio de una solicitud de cambio de clase. El AyA verificara la situación y si corresponde, hará el cambio necesario. AyA podrá también realizar de oficio el cambio de clase respectiva.

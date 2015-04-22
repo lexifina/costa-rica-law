@@ -1,2 +1,0 @@
-Sistemas propios
-Artículo 57.—No obstante la obligación legal de los propietarios de inmuebles habitados, de conectarse a los sistemas públicos de agua potable y alcantarillado sanitario, éstos podrán proveerse de un sistema propio. En estos casos adicionalmente a los permisos que correspondan de las autoridades pertinentes, el cliente debe proceder de conformidad con los artis. 58, 59,y 60 del presente Reglamento, según el caso.

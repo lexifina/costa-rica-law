@@ -1,1 +1,0 @@
-Artículo 73.—La tarifa Ordinaria se aplicará a los servicios utilizados en locales destinados a actividades comerciales o industriales, pero cuyo uso es principalmente el de aseo, incluyendo pequeños establecimientos comerciales que no se encuentren debidamente equipados para servir a sus clientes dentro del mismo espacio físico que ocupan.

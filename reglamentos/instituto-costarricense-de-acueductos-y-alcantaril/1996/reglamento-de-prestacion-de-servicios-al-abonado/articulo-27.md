@@ -1,1 +1,0 @@
-Artículo 27.—En el trabajo específico de detección de fugas de agua en tuberías ocultas. AyA está sujeto a la relativa exactitud de los aparatos detectores en cuanto a la localización exacta de la fuga. Por tanto, AyA no se puede hacer responsable de las consecuencias de posibles fallas en tal localización, aunque desplegará toda su pericia para evitarlas.

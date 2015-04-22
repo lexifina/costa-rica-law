@@ -1,2 +1,0 @@
-Artículo 55.—En la etapa de construcción, la conexión será calificada en tarifa reproductiva. El cliente debe notificar a AyA de la terminación de la obra, para que el servicio sea clasificado en la tarifa que corresponda según su uso.
-Para la construcción de unidades habitacionales no comprendidas en el artículo 54 y que no se encuentren afectadas por las regulaciones a la propiedad horizontal, se aplicará la tarifa domiciliar.

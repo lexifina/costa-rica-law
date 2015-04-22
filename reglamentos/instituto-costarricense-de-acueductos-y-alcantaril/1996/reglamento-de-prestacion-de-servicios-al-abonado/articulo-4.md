@@ -1,1 +1,0 @@
-Artículo 4°—Es responsabilidad de AyA establecer los trámites necesarios para la prestación de los servicios de la manera más simple y confiable posible en beneficio de sus clientes, así como cumplirlos o hacerlos cumplir con la mayor celeridad y eficiencia.

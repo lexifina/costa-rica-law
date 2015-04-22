@@ -1,1 +1,0 @@
-Artículo 77.—Cuando en una misma conexión existen unidades de consumo con diferente uso, se aplicará la tarifa más alta. Sin embargo, el propietario puede pedir al AyA la individualización del servicio por clase, siempre y cuando el sistema interno permita esta separación y se cumpla con el artículo 38 del presente Reglamento.

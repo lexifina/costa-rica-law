@@ -1,1 +1,0 @@
-Artículo 6°—El cliente, por su parte, deberá respetar al funcionario de AyA, no esperar ni demandar de él trato contrario al establecido por la legislación vigente o la ética, facilitarle en lo posible su labor y cumplir con los trámites y requisitos que correspondan, en caso contrario AyA podrá utilizar los mecanismos legales pertinentes en defensa de sus funcionarios.

@@ -1,1 +1,0 @@
-Artículo 23.—Independientemente de las condiciones consideradas en el art. 22, AyA podrá exigir en los casos que considere necesario, la instalación de interceptores de grasas o aceites o de materiales arenosos. Como parte del sistema interno privado, el cliente queda obligado a darle el mantenimiento necesario a dichas instalaciones.

@@ -1,2 +1,0 @@
-Revisiones domiciliarias
-Artículo 26.—No obstante ser las redes internas propiedad exclusiva del propietario y ser éste y el usuario los responsables directos de su apropiado funcionamiento. AyA brindará a solicitud de parte, el servicio de revisiones domiciliarias en beneficio de sus clientes cuando se registren consumos excesivos de agua, que hacen presumir la existencia de fugas en las tuberías del sistema interno.

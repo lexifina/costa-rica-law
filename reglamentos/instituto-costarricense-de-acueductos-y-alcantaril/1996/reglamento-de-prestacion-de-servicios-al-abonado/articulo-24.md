@@ -1,1 +1,0 @@
-Artículo 24.—Los sistemas internos de alcantarillado sanitario y de desagües pluviales son sistemas independientes. Queda terminantemente prohibido verter aguas de lluvia, superficiales, friáticas o de drenajes al sistema de alcantarillado sanitario y viceversa. Su violación será sancionada conforme a la Ley No 276 del 27-08-42 y sus reformas (Ley de Aguas)

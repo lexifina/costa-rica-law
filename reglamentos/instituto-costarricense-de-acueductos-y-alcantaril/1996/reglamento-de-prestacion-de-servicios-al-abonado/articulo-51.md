@@ -1,1 +1,0 @@
-Artículo 51.—Si transcurrido un plazo de 5 días hábiles después de suspendido el servicio, no se ha cancelado la deuda o normalizado la situación del mismo. AyA podrá pasar la cuenta respectiva a cobro judicial, ejerciendo los mecanismos legales correspondientes.

@@ -1,2 +1,0 @@
-Artículo 43.—Si el propietario considera que ya no son necesaria sus conexiones a los servicios, podrá solicitar la exclusión del registro clientes de AyA. Si la petición procede, previa corroboración de que el servicio no es necesario, AyA la ejecutará, previo pago del derecho de desconexión y de cualquier saldo existente en la cuenta de la propiedad en cuestión.
-(Así reformado mediante sesión ordinaria N° 176 celebrada el 17 de julio de 1997.)

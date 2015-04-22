@@ -1,1 +1,0 @@
-Artículo 68.—El sistema tarifario de AyA establece tres niveles de tarifas; Metropolitano, Urbano y Rural, las que se aplicarán a los servicios en función de las características que se establecen para su asignación.

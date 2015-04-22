@@ -1,3 +1,0 @@
-Artículo 46.—El propietario podrá convenir con el Agente Recaudador autorizado, que sus recibos sean cargados en forma automática a su cuenta comente o de ahorros en el Sistema Bancario Nacional y también a tarjetas de crédito.
-Para su aplicación el propietario deberá autorizar al agente recaudador mediante fórmula única especial diseñada para esos efectos y además estar al día en sus obligaciones con AyA.
-AyA hará llegar periódicamente los recibos o cargos a la entidad señalada sin ningún recargo por este concepto. El hecho de cancelar en esta forma su cuenta, no le impide al cliente hacer posteriormente cualquier reclamo a que crea tener derecho, dentro de los plazos establecidos en este Reglamento.

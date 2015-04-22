@@ -1,1 +1,0 @@
-Artículo 80.—La tasa de conexión comprende los costos en que debe incurrir AyA al conectar el sistema interno, propiedad del cliente, con la red principal de AyA, ya sea de acueducto y/o alcantarillado sanitario. según correspondan las características de cada caso.

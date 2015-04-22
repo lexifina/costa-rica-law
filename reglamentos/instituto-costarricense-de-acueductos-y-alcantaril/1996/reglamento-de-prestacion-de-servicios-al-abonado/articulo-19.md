@@ -1,1 +1,0 @@
-Artículo 19.—Cuando técnicamente sea factible. AyA garantizara el servicio en las condiciones indicadas en el Art. 18 de tal forma que supla adecuadamente aquellas instalaciones que se encuentran hasta un segundo piso. (5m sobre el nivel de la calle donde está la red del sistema público).

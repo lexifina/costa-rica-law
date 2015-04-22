@@ -1,1 +1,0 @@
-Artículo 59.—Cuando se trate de un sistema propio de agua industrial no potable, el propietario lo podrá instalar si la red de distribución interna es totalmente independiente de la utilizada para el agua potable proveniente del sistema público.

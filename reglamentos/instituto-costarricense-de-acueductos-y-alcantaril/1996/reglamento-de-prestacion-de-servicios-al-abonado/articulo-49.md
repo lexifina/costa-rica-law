@@ -1,1 +1,0 @@
-Artículo 49.—Para el pago de los servicios de agua potable y alcantarillado sanitario. AyA podrá recibir de cualquier persona el monto respectivo. Tratándose de inquilinos, su relación con el propietario del inmueble, siendo de orden privado y ajena a AyA, se regulara de conformidad con la legislación correspondiente.
