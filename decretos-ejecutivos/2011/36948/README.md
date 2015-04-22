@@ -15,3 +15,4 @@ Reglamento general sobre legislación contra el narcotráfico, actividades conex
 | --- | --- | --- |
 | 1 | 2012-01-17 | la propia norma |
 | 2 | 2012-06-18 | Decreto Ejecutivo 37248 (2012-06-18) |
+| 3 | 2015-04-22 | Decreto Ejecutivo 39000 (2015-04-22) |

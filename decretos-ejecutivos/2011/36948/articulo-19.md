@@ -1,2 +1,3 @@
-Artículo 19.- Actualización de la información: La información del cliente deberá actualizarse
-periódicamente, de acuerdo a los parámetros que establezca el CONASSIF.
+Artículo 19.—Actualización de la información. La información del cliente deberá actualizarse periódicamente, de acuerdo a los parámetros que establezca el CONASSIF.
+En los casos en que los sujetos obligados detecten cambios significativos en la actividad transaccional de una Cuenta de Expediente Simplificado (en adelante CES), aun y cuando se mantenga dentro del umbral de riesgo previsto para dichas cuentas, su titular deberá suministrar la información adicional que la entidad financiera le requiera para efectos de justificar los cambios en su situación particular y su perfil real de ingresos. Dicha actualización deberá formar parte del expediente del cliente.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39000 del 22 de abril de 2015)
