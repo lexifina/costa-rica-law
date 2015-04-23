@@ -1,0 +1,26 @@
+Artículo 5°—Disposiciones comunes que deben observarse en el trámite de formulación, aprobación y ejecución de las modificaciones presupuestarias. El procedimiento de formulación, aprobación y ejecución de cualquier tipo de modificaciones presupuestarias reguladas en este reglamento, deberá sujetarse a las siguientes disposiciones:
+5.1. Durante el ejercicio económico anual el Concejo Municipal podrá variar el presupuesto institucional mediante la elaboración de 12 modificaciones presupuestarias.
+5.2. Las modificaciones presupuestarias no podrán variar el Presupuesto Institucional en más de un 25% según lo indicado en la Norma 4.3.11 de las Normas Técnicas Sobre Presupuesto Público.
+5.3. Las modificaciones de cualquier tipo se formularán respetando la estructura presupuestaria y el clasificador de gastos establecida por la Contraloría y se presentarán según el programa, partida, grupo y subpartida correspondiente.
+5.4. Los traslados de asignaciones presupuestarias entre programas, así como el rebajo o aumento de estos, deberán vincularse cuando corresponda, con los objetivos y metas establecidos. En tales casos, la modificación deberá acompañarse del ajuste respectivo al plan operativo anual de la municipalidad.
+5.5. Toda modificación deberá indicar, al menos sucintamente, la razón que la justifica, y deberá reflejar claramente los rubros presupuestarios afectados ya sean por aumento o disminución.
+5.6. Las modificaciones presupuestarias deberán ser presentadas por el Alcalde ante el Concejo Municipal de Golfito (El Alcalde podrá delegar al subordinado que él considere pertinente, realizar la exposición de la modificación en el seno del Concejo) y deberán ser aprobadas previo dictamen de comisión, salvo expresa exención de ese trámite, en los términos previstos en el Código Municipal.
+5.7. La comisión de Hacienda y Presupuesto dará un trámite expedito a las modificaciones sometidas a su consideración.
+5.8. Toda modificación deberá transcribirse íntegramente en el acta correspondiente a la sesión en que fue aprobada.
+5.9. Las Modificaciones que sean improbadas por el Concejo Municipal por razones formales, podrán ser presentadas nuevamente a su conocimiento, por medio de un nuevo documento en el que hayan sido corregidas las causas de su rechazo o improbación.
+5.10. En tales casos, ambos documentos se considerarán uno solo para los efectos del inciso 6.1. de este artículo.
+5.11. De toda modificación presupuestaria se levantará un expediente que estará bajo custodia del Encargado de Presupuesto, en el que se incluirá el documento correspondiente junto con el acuerdo del acta de aprobación respectiva, debiendo constar al menos las siguientes especificaciones:
+a) Nombre, cargo y firma de los responsables que intervinieron en el proceso.
+b) Acuerdo del Concejo Municipal.
+c) Toda modificación presupuestaria deberá ser numerada en orden cronológico y numérico consecutivo, iniciando con el número uno seguido del mes y el año correspondiente.
+d) Acuse de recibo de toda la documentación por parte del encargado de la custodia del expediente.
+e) Cuadros del POA (Programa Operativo Anual) ajustado, cuando las modificaciones afecten los objetivos y metas propuestos.
+f) Documentos de justificación de las variaciones presupuestarias y su valoración de la razonabilidad de lo aplicado.
+g) Incluir en el expediente toda evidencia documental que respalde la formulación y retroalimentación del proceso. (Convenios, relación de puestos, indicadores de gestión ajustados, sentencias, etc.).
+5.12. La aplicación de fondos que por ley tienen destino específico, sólo podrán modificarse para cubrir gastos contemplados dentro del destino previsto por la ley.
+5.13. No podrán rebajarse los montos asignados para hacer frente a compromisos legales o contractuales, salvo que se acredite que estos ya han sido atendidos.
+5.14. Las modificaciones presupuestarias de cualquier tipo, sólo podrán efectuarse cuando los programas, proyectos, partidas o subpartidas que se rebajen, tengan el contenido presupuestario necesario.
+5.15. No se podrán efectuar modificaciones presupuestarias para aumentar partidas o subpartidas, con el fin de dar contenido o cubrir gastos ya ejecutados.
+5.16. No podrá ejecutarse ninguna modificación presupuestaria, si previamente, esta no ha sido aprobada por el órgano competente, según las disposiciones de este reglamento.
+5.17. El cumplimiento de las limitaciones establecidas en el presente reglamento, deberán hacerse constar en todos los casos en el documento que contenga la respectiva modificación y deberá acreditarse cuando corresponda, mediante constancia que emita el Encargado de Presupuesto.
+5.18. Las modificaciones presupuestarias que afecten compromisos futuros, de cualquier tipo, incluyendo aquellas que incorporen recursos para ajustes salariales, creación de plazas, incorporación de nuevos beneficios o cambios en los ya existentes por variación de la metodología de cálculo o en la base legal; deberán tener el respaldo de un dictamen dado por el gerente municipal, o el Alcalde, en conjunto con el área financiero-contable del municipio, que asegure el financiamiento futuro de tales egresos, acorde con lo estipulado en la Norma 4.3.13 incido d).

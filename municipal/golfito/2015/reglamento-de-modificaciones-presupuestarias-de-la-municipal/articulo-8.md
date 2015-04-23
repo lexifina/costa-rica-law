@@ -1,0 +1,1 @@
+Artículo 8°—Registro de modificaciones. La Administración deberá mantener actualizado en el Sistema Integrado de Presupuestos Públicos la inclusión y validación de las modificaciones debidamente aprobadas que afecten el presupuesto de la institución.

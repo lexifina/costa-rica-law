@@ -1,0 +1,1 @@
+Artículo 4º—Niveles de aprobación. Todas las modificaciones, sin importar el nivel al que correspondan, de conformidad con las disposiciones contenidas en el artículo 4º precedente, deberán ser debidamente conocidas y aprobadas por el Concejo Municipal.
