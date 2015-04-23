@@ -14,5 +14,7 @@ l) Participar en actividades político-partidistas.
 m) Fumar dentro del recinto de la Institución, fuera de las áreas previstas para tales efectos y dentro de los vehículos oficiales, según la Ley N° 7501.
 n) La exhibición de material pornográfico en cualquier lugar de la institución
 o) Utilizar el equipo de computo y los servicios de comunicación de la institución para acceder, observar o reproducir material pornográfico.
+p) Conocer, resolver o tramitar asuntos que el funcionario o funcionaria haya resuelto durante el tiempo que disfrutó de una licencia sin goce de salario para trabajar en otra institución del sector público, y que pudieran generar conflicto de intereses respecto a las funciones que lleva adelante en la Defensoría.
+(Así adicionado el inciso anterior por acuerdo N° 00001913 del 23 de abril de 2015)
 El incumplimiento de las obligaciones y prohibiciones contenidas en el presente capítulo, se sancionarán de conformidad con la gravedad de la falta, según lo establecido en el capítulo de sanciones.
 La violación debidamente comprobada a los incisos o) y p), se consideraran para todos los efectos como faltas graves.
