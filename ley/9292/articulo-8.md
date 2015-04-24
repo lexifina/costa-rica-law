@@ -1,0 +1,6 @@
+ARTÍCULO 8.- Tasa de peaje regente. La estructura tarifaria y sus parámetros de ajuste, así como de evaluación de calidad del servicio, se incorporarán en el contrato de fideicomiso, los cuales deberán ser consultados ante la Autoridad Reguladora de Servicios Públicos (Aresep). Dicha institución tendrá un plazo máximo de diez días hábiles para rendir su criterio, el cual será vinculante. Transcurrido este plazo sin recibir respuesta, se interpretará que la Aresep no tiene objeciones.
+La estructura tarifaria y sus parámetros de ajuste deberán garantizar el criterio de servicio al costo, según lo que establezca la Aresep para tal efecto.
+Durante el plazo de vigencia del contrato de fideicomiso las tasas de peaje serán fijadas por el fideicomitente a solicitud del fiduciario.
+Los reajustes de las tarifas y sus metodologías de revisión se fijarán en el contrato de fideicomiso.
+Para los efectos de esta ley se aplicará lo dispuesto en el artículo 233, Exención de pago de peajes, de la Ley N.° 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, de 4 de octubre de 2012.
+Salvo para lo dispuesto en este artículo, se excluye el contrato de fideicomiso de la Ley N.° 7593, Ley de la Autoridad Reguladora de los Servicios Públicos (Aresep), de 9 de agosto de 1996, y sus reformas.
