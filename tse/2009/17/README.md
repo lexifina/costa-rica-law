@@ -17,3 +17,4 @@ Reglamento sobre el Financiamiento de los Partidos Políticos
 | 2 | 2009-11-25 | Decreto TSE 25 (2009-11-25) |
 | 3 | 2012-02-23 | Resolución 1677 (2012-02-23) |
 | 4 | 2013-07-31 | Decreto TSE 9 (2013-07-31) |
+| 5 | 2015-04-24 | Decreto TSE 13 (2015-04-24) |
