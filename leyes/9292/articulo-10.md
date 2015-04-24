@@ -1,0 +1,5 @@
+ARTÍCULO 10.- Partes. En el contrato de fideicomiso fungirán como partes:
+a) El Poder Ejecutivo por medio del Ministerio de Obras Públicas y Transportes (MOPT), y el Consejo Nacional de Vialidad (Conavi), que serán fideicomitentes.
+b) Un banco del Sistema Bancario Nacional sujeto a la supervisión de la Superintendencia General de Entidades Financieras (Sugef), que fungirá como fiduciario.
+c) El Ministerio de Obras Públicas y Transportes (MOPT), el Consejo Nacional de Vialidad (Conavi), así como entidades crediticias e inversionistas tenedores de valores emitidos por el fideicomiso, que serán fideicomisarios.
+Una vez finalizado el plazo del fideicomiso o cancelada la deuda, el Poder Ejecutivo recibirá el retorno efectivo de los flujos por tasas de peaje, que serán previamente readecuados en sus tarifas, de modo que mantenga provisión para otorgar mantenimiento a la carretera. También, recibirá la administración del corredor vial. El corredor vial deberá entregarse al Poder Ejecutivo en condiciones óptimas, para lo cual el contrato de fideicomiso deberá definir los requisitos técnicos para su recepción definitiva.
