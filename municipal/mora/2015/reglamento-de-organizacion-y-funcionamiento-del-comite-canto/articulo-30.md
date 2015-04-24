@@ -1,0 +1,1 @@
+Artículo 30.—El nombramiento de los miembros de las juntas directivas de los Comités Vecinales de Deportes se realizará de manera directa por la junta directiva del comité cantonal y estas de su seno nombrarán un presidente, un vicepresidente, un secretario, un tesorero y un vocal.

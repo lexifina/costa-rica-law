@@ -1,0 +1,1 @@
+Artículo 35.—El quórum para sesionar es de 3 integrantes. Los acuerdos se tomará por mayoría simple de los votos presentes, salvo si el reglamento u otra forma conexa señala un número mayor de voto. En caso de empate en una votación, se repetirá la votación en la siguiente sesión ordinaria y en caso de que persista el empate se dará por rechazado.
