@@ -1,0 +1,3 @@
+Artículo N° 2. Ámbito de aplicación.
+El presente reglamento de dispositivos de seguridad y control temporal de tránsito para la ejecución de trabajos en las vías, será de necesaria aplicación en toda obra que se realice en las vías públicas o en sus zonas adyacentes, así como en los casos de obras complementarias,
+entendidas estas últimas como la remoción de obstáculos y derrumbes, el desyerbe o limpieza de las vías, los acueductos y alcantarillados, la demarcación del pavimento, y toda otra situación en donde se requiera utilizar las vías públicas con el fin de efectuar trabajos de diversa índole.

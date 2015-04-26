@@ -1,0 +1,2 @@
+Artículo N° 42. Manual Técnico de Dispositivos de Seguridad y Control Temporal de Tránsito para la ejecución de Trabajos en las Vías.
+Se oficializa el uso del Manual Técnico de Dispositivos de Seguridad y Control Temporal de Tránsito para la ejecución de Trabajos en las Vías, como instrumento de aplicación y observancia obligatoria para toda persona física o jurídica que requiera efectuar trabajos en las vías públicas y sus zonas adyacentes, el cual se publica como anexo al presente Decreto Ejecutivo.

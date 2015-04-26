@@ -1,0 +1,2 @@
+Artículo N° 25. Dispositivos de Canalización.
+El objetivo de los dispositivos de canalización es prevenir y alertar a los conductores de las condiciones creadas por el área de trabajo provisional, proteger a los trabajadores dentro del área de control temporal de tránsito y guiar a los conductores y peatones con seguridad. Los dispositivos de canalización incluyen pero no están limitados a: conos, marcadores tubulares, paneles verticales, barriles o estañones, barricadas de protección e indicadores de alineamiento.

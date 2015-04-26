@@ -1,0 +1,4 @@
+Artículo N° 33. Indicadores de obstáculos.
+33.1 Se emplearán en las bifurcaciones y frente a los obstáculos que representen un peligro para los usuarios de la vía
+33.2 Un indicador de obstáculos consistirá en un tablero de 20 cm. x 122 cm. colocado en posición vertical, con franjas alternas en colores naranja y blanco retroreflectivos, de diez centímetros de ancho, inclinados a cuarenta y cinco grados descendiendo a la derecha, cuando se ubiquen a la derecha del tránsito, y la inclinación bajando hacia la izquierda cuando se ubicare a la izquierda del tránsito.
+33.3 En las bifurcaciones se utilizará un tablero de 61 cm. x 122 cm., con franjas alternas en colores naranja y blanco retroreflectivos, de diez centímetros de ancho, inclinados a cuarenta y cinco grados, subiendo en la dirección del tránsito, a partir del eje vertical de simetría del tablero

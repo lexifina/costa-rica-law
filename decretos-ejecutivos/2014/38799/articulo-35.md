@@ -1,0 +1,9 @@
+Artículo N° 35. Procedimiento de señalamiento con banderas.
+35.1 Para atender el tránsito el abanderado estará de frente a los vehículos automotores, en un lugar apropiado dentro de la calzada y ubicado en una posición estacionaria, de forma tal que la bandera sea visible debajo del asta, y para dar un énfasis mayor, la mano libre podrá levantarse con la palma de frente al tránsito que se aproxima.
+35.2 Cuando el tránsito pueda proseguir, el abanderado se detendrá paralelamente al movimiento del tránsito, y con la bandera y el brazo debajo de la línea visual del conductor, indicará a los vehículos que prosigan, moviendo su mano libre.
+35.3 En ningún caso se utilizarán las banderas para indicar a los vehículos que pueden proseguir circulando.
+35.4 Cuando se pretenda alertar al tránsito para que circule con mayor lentitud, el abanderado estará de frente a los vehículos automotores, ubicado en una posición adecuada dentro de la calzada, y moverá la bandera despacio, en un movimiento hacia arriba y hacia abajo, con el brazo extendido desde el nivel del hombro hacia abajo, sin levantar el brazo sobre una posición horizontal.
+35.5 Se utilizará bandera reflectorizante e iluminación cuando las obras se ejecuten en horas de la noche o en condición de deficiente visibilidad, y en lo restante se acudirá al procedimiento usado durante el día.
+35.6 Siempre que sea posible el abanderado indicará a los conductores la razón de la demora y el periodo de tiempo aproximado en que el tránsito se verá detenido.
+35.7 En todo caso, los abanderados y operadores del equipo de construcción deberán hacer el máximo esfuerzo para que en el menor tiempo posible puedan establecerse las condiciones de seguridad que permitan la fluidez del tránsito y que no se incurra en demoras excesivas o innecesarias.
+35.8 Los sistemas de comunicación logran una mayor eficiencia en esta actividad.

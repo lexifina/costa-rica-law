@@ -1,0 +1,1 @@
+Artículo N° 43. Autenticidad de documentos (certificados de calidad) Los certificados de calidad expedidos en el extranjero, deberán aportarse debidamente apostillados o legalizados y con la traducción oficial al español si se encuentran redactados en otro idioma.

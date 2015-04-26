@@ -1,0 +1,7 @@
+Artículo N° 27. Conos.
+27.1 Los conos deberán ser de color anaranjado, rojo anaranjado fluorescente o amarillo anaranjado fluorescente.
+27.2 Los conos son dispositivos con forma de cono truncado y con la base de sustentación cuadrada, fabricados con material resistente al impacto, de tal manera que no se deterioren ni causen daño a los vehículos, y sus dimensiones dependerán de la velocidad de operación de la carretera, según se especifica en el Manual Técnico de Dispositivos de Seguridad y Control Temporal de Tránsito para la Ejecución de Trabajos en las Vías.
+27.3 Para uso nocturno los conos deberán ser retroreflectivos o estar equipados con una cinta de material retroreflectivo que cumpla con la norma ASTM E-810. El material utilizado debe tener certificados de calidad que permita la verificación por parte del MOPT de las especificaciones del mismo y su cumplimiento con respecto a la norma.
+27.4 Los conos se colocarán en serie sobre superficies uniformes para delimitar las zonas de los trabajos y dirigir el tránsito hacia el carril adecuado, y su número y ubicación dependerá del tipo de vía y de la obra que se esté realizando.
+27.5 No obstante lo anterior, en todo caso la colocación de los conos reflectivos deberá guardar una distribución mínima, según las disposiciones del Manual Técnico de Dispositivos de Seguridad y Control Temporal de Tránsito para la Ejecución de Trabajos en las Vías.
+27.6 Los responsables de la obra deben garantizar que los conos no sean movidos y volteados.

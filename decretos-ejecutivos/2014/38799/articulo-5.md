@@ -1,0 +1,2 @@
+Artículo N°5. Decisión administrativa.
+La Dirección General de Ingeniería de Tránsito por medio de las dependencias competentes, gozará de un plazo no mayor a diez días hábiles a partir de la presentación de la solicitud con la totalidad de los requisitos que se señalan en el artículo anterior, para emitir el acto autorizativo que corresponda o la denegatoria, pero en este último caso deberá justificar y motivar debidamente dicha decisión.

@@ -1,0 +1,3 @@
+Artículo N° 37. Control del abanderado.
+37.1 Cuando la sección de un solo carril sea lo suficientemente corta, de tal manera que los extremos se vean entre sí, el tránsito podrá ser controlado por dos abanderados, ubicados, cada uno en el respectivo extremo, uno de los cuales será designado como el abanderado principal a los efectos de lograr una adecuada coordinación de los movimientos.
+37.2 Si los extremos de una sección de un carril no fueren visibles entre sí, los abanderados mantendrán contacto continuo mediante radio o teléfono, con el fin de poder saber con certeza la forma en que debe ordenarse el tránsito en la respectiva sección.

@@ -1,0 +1,9 @@
+Artículo N° 21. Ubicación.
+21.1 En las vías públicas las señales informativas se colocarán dentro del área de influencia de la obra o construcción de que se trate.
+21.2 Dichas señales deberán colocarse antes de la zona de trabajo, en el área donde se están realizando las obras y al final de la construcción.
+21.3 La distancia a la que deberán colocarse las señales previas dependerá de las condiciones geométricas y topográficas de la zona donde se ubique la obra o construcción, así como de las velocidades de operación, pero en ningún caso a una distancia inferior a ciento cincuenta metros del inicio de la obra o construcción, tratándose de áreas rurales, o de ochenta metros en áreas urbanas.
+21.4 Las señales decisivas se colocarán en el lugar donde el usuario deberá efectuar la maniobra de desviación o aquella otra que resultare procedente.
+21.5 Las señales confirmativas se colocarán después de la zona de construcción o de realización de obras, a una distancia que no resulte inferior a cien metros después del sitio de la obra.
+21.6 La colocación lateral de todo tipo de señal informativa se hará de forma que no obstaculice la circulación de los vehículos y el borde inferior del tablero deberá quedar a una distancia no inferior a cincuenta centímetros de la proyección vertical de la orilla del carril, en zonas rurales, y de treinta centímetros en el caso de zonas urbanas.
+21.7 En las zonas urbanas, la altura del tablero se instalará de tal manera que su parte inferior esté a dos metros sobre la superficie de rodamiento, y fuera de dichas zonas, a un metro con cincuenta centímetros. Si hubiere equipo de construcción, materiales u otros obstáculos, sin embargo, dicha altura podrá aumentarse hasta dos metros con cincuenta centímetros.
+21.8 Toda señal informativa deberá quedar siempre en posición vertical, con un ángulo de noventa grados con respecto al sentido del tránsito.
