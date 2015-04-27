@@ -1,1 +1,0 @@
-Artículo 2°—Para garantizar el fin público que se refiere el artículo anterior, estas donaciones se otorgarán a las comunidades y personas que por sus escasos recursos económicos, así lo requieran, de acuerdo con el Plan de Trabajo del Despacho de Apoyo Social de la Presidencia de la República.
