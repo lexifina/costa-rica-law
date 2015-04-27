@@ -1,1 +1,0 @@
-Artículo 2º—El costo de los servicios que genere la aplicación del presente Reglamento, de conformidad con lo dispuesto en el artículo 62 de la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor y el artículo 93 del Reglamento a esta Ley, Decreto Ejecutivo Nº 25234-MEIC y sus reformas, los deberá cubrir el infractor.
