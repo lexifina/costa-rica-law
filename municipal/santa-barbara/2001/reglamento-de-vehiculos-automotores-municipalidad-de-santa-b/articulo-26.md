@@ -1,1 +1,2 @@
-Artículo 26.- Todo caso de accidente de tránsito será dilucidado en los Tribunales de Justifica y ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales en caso de accidentes con vehículos municipales, esto corresponderá al Alcalde como representante quien en coordinación con el Departamento Legal de la Municipalidad podrá efectuar las gestiones correspondientes.
+Artículo 26.-Todo caso de accidente de tránsito será dilucidado en los Tribunales de Justifico y ningún conductor de la Municipalidad está autorizado para efectuar arreglos extrajudiciales en caso de accidentes con vehículos municipales.
+(Así reformado en sesión N° 257 del 27 de abril de 2015)

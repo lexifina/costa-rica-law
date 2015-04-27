@@ -14,3 +14,4 @@ Reglamento de Vehículos Automotores Municipalidad de Santa Bárbara
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-25 | la propia norma |
+| 2 | 2015-04-27 | Reglamento municipal 257 (2015-04-27) |
