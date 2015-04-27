@@ -14,3 +14,4 @@ Publica Resolución N° 338-2014 (COMIECO-EX) de fecha 17 de enero de 2014 y su 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-17 | la propia norma |
+| 2 | 2015-04-27 | Decreto Ejecutivo 39028 (2015-04-27) |
