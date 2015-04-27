@@ -1,8 +1,9 @@
 MUNICIPALIDAD DE SANTA BÁRBARA
 El Concejo Municipal de Santa Bárbara de Heredia mediante acuerdo Nº 179-2010, artículo Nº 3, de la sesión ordinaria Nº 7, celebrada el día martes 18 de junio del año 2010, por votación unánime acuerda aprobar el Manual de Administración de la Flotilla Vehicular Procedimiento Interno como sigue:
 Introducción
-Con base a los artículos 4 inciso a), 17 inciso a) del Código Municipal, artículo 2 del Reglamento de Vehículos Automotores Municipalidad de Santa Bárbara de Heredia, publicado en el Alcance 36 de La Gaceta Nº 100 del 25 de mayo de 2001, y del Punto 2,a) desinforme-SM-IF-60-2009 de la Contraloría General de la República se emite el siguiente Manual de Procedimiento Interno, sobre la administración de la flotilla vehicular municipal.
-Este manual describe los pasos necesarios para la administración de los bienes de la Municipalidad de Santa Bárbara de Heredia cuando estos tienen la particularidad de ser vehículos automotores para el uso administrativo (no discrecional) como los de uso d discrecional. [1]. Dada esta particularidad, su administración requiere de algunas instrucciones específicas tanto para su operación como para la gestión del recurso en las unidades organizativas. El presente manual describe estas instrucciones.
+Con base a los artículos 4 inciso a), 17 inciso a) del Código Municipal, Reglamento de Vehículos Automotores Municipalidad de Santa Bárbara de Heredia, Publicado en el Alcance 36 de la Gaceta N° 100 del 25 de mayo de 2001, y sus reformas y Punto 2,a) del informe-SM-IF-60-2009 de la Contraloría General de la República se emite el siguiente Manual de Procedimiento Interno, sobre la administración de la flotilla vehicular municipal.
+Este manual describe los pasos necesarios para la administración de los bienes de la Municipalidad de Santa Bárbara de Heredia cuando estos tienen la particularidad de ser vehículos automotores para el uso administrativo. Dada esta particularidad, su administración requiere de algunas instrucciones específicas tanto para su operación como para la gestión del recurso en las unidades organizativas. El presente manual describe estas instrucciones.
+(Así reformada la parte introductora anterior en sesión N° 257 del 27 de abril de 2015)
 1 Artículo 2 del Reglamento de vehículos automotores Municipalidad de Santa Barbara de Heredia
 Objetivo
 Garantizar que la gestión de los recursos municipales institucionales de transporte se realice de forma eficaz, eficiente, oportuna y en apego al marco legal y normativo que regula la materia, con el fin de optimizar el uso de este recurso.
@@ -13,10 +14,9 @@ Para mayor comprensión de este procedimiento se debe hacer referencia a los sig
 Operador de equipo móvil.
 Asignación de vehículos
 Referencias
-Ley Nº 7494 Ley de Contratación Administrativa.
-Reglamento Ley de Administración Financiera, Decreto Ejecutivo Nº 33411-H.
-Reglamento a la Ley de Contratación Administrativa, Decreto Ejecutivo Nº 33411-H.
-Reglamento de vehículos automotores Municipalidad de Santa Bárbara de Heredia (La Gaceta Nº 100 de 25 de mayo de 2001).
+Ley número 9078. Ley de Transito por Vías Públicas Terrestres y Seguridad Vial. Ley número 7494. Ley de Contratación Administrativa Reglamento Ley de Administración Financiera, decreto ejecutivo Nº 33411- H. Reglamento a la Ley de Contratación Administrativa., Decreto Ejecutivo Nº 33411-H.
+Reglamento de vehículos automotores Municipalidad de Santa Bárbara de Heredia (Gaceta N° 100 de 25 de mayo de 2001) y sus reformas.
+(Así reformada la parte referencias anterior en sesión N° 257 del 27 de abril de 2015)
 Responsables
 El responsable del proceso es la Alcaldía o a quien éste delegue según las facultades del artículo 89 de la Ley General de Administración Pública, asimismo la Tesorería, pero además ambos deben velar por la ejecución de los lineamientos descritos en este procedimiento: el encargado del Transporte Municipal, los encargados de transporte de las unidades organizativas, Jefaturas de la Municipalidad que tengan vehículos automotores destinados al cumplimiento de sus funciones.
 Procedimiento
@@ -33,11 +33,13 @@ Asignar vehículos automotores
 Todo vehículo automotor debe estar asignado a un funcionario de la Institución Municipal, el cual es el responsable por su uso dentro del horario establecido para tal efecto, sea este ordinario o extraordinario. El Equipo de Transporte Municipal es el encargado de asignar y desasignar los vehículos oficiales a su cargo. Para ello deben utilizar los formularios que se muestran en el Anexo 1 de este manual, tanto para vehículos de cuatro o más ruedas como para motocicletas. El original de dicho documento debe permanecer en la unidad organizativa respectiva, en un expediente exclusivo del vehículo en cuestión y la copia quedará en poder del operador del equipo.
 Dar autorización de transporte
 La circulación de vehículos automotores debe ser autorizada por el jefe de la unidad organizativa respectiva por medio de un documento llamado autorización de transporte (Ver Anexo 2), el cual faculta al conductor y sus acompañantes a utilizar el vehículo dentro de la jornada ordinaria de trabajo.
-Cuando sea necesario y para la realización de labores no postergables o la atención de emergencias, los jefes de las unidades organizativas tienen la potestad de autorizar la circulación en días y horas fuera de la jornada ordinaria. Para ello se debe utilizar el formato especificado en el Anexo 2 de este manual. Los jefes de estas unidades son a su vez responsables de velar por el correcto uso de estas autorizaciones.
+Cuando sea necesario y para la realización de labores no postergables o la atención de emergencias, el Alcalde podrá delegar en los jefes de las unidades organizativas la potestad de autorizar la circulación en días y horas fuera de la jornada ordinaria. Para ello se debe utilizar el formato especificado en el Anexo 2 de este manual. Los jefes de estas unidades son a su vez responsables de velar por el correcto uso de estas autorizaciones.
+(Así reformado el párrafo anterior en sesión N° 257 del 27 de abril de 2015)
 Las unidades organizativas deben numerar, de manera consecutiva, cada uno de los dos tipos de autorizaciones que confeccionen y llevarán registros escritos de las mismas. Este registro deberá tener, cuando menos, anotación de fecha y hora de la autorización, nombre del conductor y motivo del viaje. Todo lo anterior sin detrimento de la posibilidad de contar con registros digitales que por el momento no deben sustituir el registro escrito.
 Operar el vehículo
 La operación de vehículos de la Municipalidad debe estar a cargo de funcionarios de la Institución debidamente autorizados.
-Los vehículos deben operar acatando lo dispuesto en el Reglamento de vehículos automotores de la Municipalidad de Santa Bárbara en sus artículos 1 al 6 y 7 al 15, así como del 16 al 36. Los usuarios de este servicio deben acatar lo dispuesto en dicho reglamento.
+Los vehículos deben operar acatando lo dispuesto en el Reglamento de vehículos automotores de la Municipalidad de Santa Bárbara. Los usuarios de este servicio deben acatar lo dispuesto en dicho reglamento, así como la Ley 9078.
+(Así reformado el párrafo anterior en sesión N° 257 del 27 de abril de 2015)
 Si producto de la operación de los vehículos estos presentan algún tipo de defecto mecánico, este debe ser reportado al jefe inmediato por medio del formulario Informe Sobre Defectos Mecánicos (ISDM-MSB-T1) que se presenta en el Anexo 3. Las necesidades de mantenimiento preventivo y correctivo se presentan también por medio de este formato.
 Confeccionar informes de operación del vehículo
 Los funcionarios de la Institución Municipal que tienen a su cargo un vehículo asignado deben confeccionar, al final de cada mes, un informe de operación y mantenimiento de vehículos en el formato respectivo, para lo cual deben utilizar los formatos especificados en el Anexo 4. Dicho documento debe estar firmado tanto por el operador como por su jefe inmediato y debe ser enviado a la dirección de la unidad organizativa respectiva. A este se adjuntan las facturas que sustentan el gasto de combustible realizado.
