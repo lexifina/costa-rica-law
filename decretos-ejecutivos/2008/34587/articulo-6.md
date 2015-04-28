@@ -1,3 +1,0 @@
-Artículo 6º—Conformación del SISTEMA. El SISTEMA estará integrado por:
-a) El Ministerio de Planificación Nacional y Política Económica (MIDEPLAN), que fungirá como órgano facilitador especializado y tendrá a su cargo la Secretaría Técnica del SISTEMA.
-b) Las Contralorías de Servicios de los órganos y entes que conforman la Administración Pública, y aquellas Contralorías de Servicios pertenecientes a los Poderes Legislativo y Judicial, Tribunal Supremo de Elecciones, sus dependencias y órganos auxiliares, así como de las municipalidades, universidades estatales y la Caja Costarricense de Seguro Social, que se integren al Sistema con la aprobación de los jerarcas respectivos.

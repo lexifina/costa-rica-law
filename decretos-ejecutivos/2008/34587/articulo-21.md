@@ -1,2 +1,0 @@
-Artículo 21.—Régimen disciplinario. Las violaciones a los deberes impuestos por este reglamento serán sancionadas de conformidad con lo regulado en el Estatuto del Servicio Civil y su Reglamento, Código de Trabajo, reglamentos interiores de trabajo y demás normas concomitantes.
-En el caso de las instancias políticas las sanciones serán impuestas por el Presidente de la República, Consejos o Juntas Directivas respectivas, Contraloría General de la República o Procuraduría de la Ética Pública según corresponda.

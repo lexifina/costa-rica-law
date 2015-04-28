@@ -1,2 +1,0 @@
-Artículo 16.—Manuales de servicio al cliente. Las Contralorías de Servicios pondrán a disposición de la institución respectiva un manual de servicio al cliente, que establezca las condiciones que deben cumplir sus funcionarios al atender a un usuario. Esas condiciones deben ser de actitud (valorar al usuario como persona) y aptitud (conocer el servicio que se ofrece).
-A partir de la publicación de este decreto se concede un plazo de tres meses para su elaboración, en aquellas Contralorías de Servicio que no los tengan.

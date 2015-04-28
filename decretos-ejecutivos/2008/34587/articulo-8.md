@@ -1,1 +1,0 @@
-Artículo 8º—De la asignación presupuestaria. MIDEPLAN deberá contemplar dentro de su presupuesto los recursos necesarios para el funcionamiento de la Secretaría Técnica, incluida la dotación de recursos humanos.
