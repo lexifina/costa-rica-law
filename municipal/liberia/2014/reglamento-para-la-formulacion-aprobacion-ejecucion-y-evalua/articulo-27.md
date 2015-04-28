@@ -1,0 +1,1 @@
+Artículo 27.—Le corresponde a la Unidad de Servicios Generales solicitar los recursos financieros necesarios para el pago de los seguros de los vehículos e instalaciones municipales, pago de marchamos y revisión técnica.

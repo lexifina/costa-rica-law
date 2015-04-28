@@ -1,0 +1,1 @@
+Artículo 60.—Proveeduría remitirá a Planificación Institucional cada trimestre durante los cinco días hábiles del mes siguiente, un informe de las contrataciones realizadas y su estado, con indicación de los principales problemas presentados en los procesos de contratación.

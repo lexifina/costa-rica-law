@@ -1,0 +1,1 @@
+Artículo 57.—Para la adquisición de bienes y servicios las unidades municipales deberán cumplir con los procedimientos establecidos por las unidades que autorizan gastos y adquieren los bienes y servicios para la Municipalidad.

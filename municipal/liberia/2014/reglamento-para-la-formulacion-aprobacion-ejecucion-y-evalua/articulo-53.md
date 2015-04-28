@@ -1,0 +1,1 @@
+Artículo 53.—Los jornales ocasionales, y las plazas por servicios especiales sólo podrán nombrarse por el número de meses indicados en el Plan-Presupuesto, y sin que superen los 12 meses. Dichas subpartidas solo podrán incrementarse por medio de un presupuesto extraordinario.

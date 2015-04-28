@@ -1,0 +1,1 @@
+Artículo 25.—Los equipos de cómputo serán solicitados por las unidades municipales cumpliendo con lo dispuesto en el Reglamento de Organización y Servicios de la Municipalidad de Liberia, y las políticas informáticas aprobadas por el Concejo Municipal.

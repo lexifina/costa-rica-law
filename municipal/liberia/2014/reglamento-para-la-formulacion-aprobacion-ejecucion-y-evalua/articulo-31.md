@@ -1,0 +1,1 @@
+Artículo 31.—La Unidad de Recursos Humanos solicitará los recursos financieros para los uniformes del personal municipal de la Administración General, según el capítulo XXVII del Reglamento Autónomo de Organización y Servicios de la Municipalidad de Liberia, el resto de unidades deberán solicitar los recursos que requieren para ese propósito.

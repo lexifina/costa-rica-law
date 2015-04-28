@@ -1,0 +1,1 @@
+Artículo 30.—La Unidad de Recursos Humanos, solicitará los recursos financieros para la implementación del programa de salud ocupacional, de conformidad con el capítulo XVIII del Reglamento Autónomo de Organización y Servicios de la Municipalidad de Liberia, para lo que presentará el programa de trabajo propuesto.

@@ -1,0 +1,3 @@
+Artículo 65.—La Unidad de Presupuesto, realizará la liquidación de los compromisos del año anterior, al 30 de junio. Los recursos financieros no utilizados se sumarán al superávit o déficit de dicho año.
+Por medio de oficio de la Alcaldía se remitirá la liquidación de los compromisos, a la Contraloría General de la República, quince días hábiles después de la fecha mencionada y con las explicaciones pertinentes.
+Realizada la liquidación al 30 de junio, los compromisos presupuestarios que aún permanecieren pendientes, podrán cubrirse con cargo a los saldos de las partidas correspondientes del Plan- Presupuesto en ejecución.
