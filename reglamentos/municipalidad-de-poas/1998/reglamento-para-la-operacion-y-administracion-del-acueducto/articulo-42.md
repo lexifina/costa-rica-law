@@ -1,9 +1,0 @@
-CAPÍTULO IX
-Sanciones
-(Así reformado el capítulo anterior por acuerdo tomado en sesión N° 51 del 14 de abril del 2011 y definitivamente aprobado en sesión N° 58 del 7 de junio del 2011)
-Artículo 42.—A quien contravenga las disposiciones contempladas en el capítulo VIII, artículo 39 de éste reglamento se le impondrán las siguientes sanciones:
-a) A quien transgreda los incisos 1. a) y c) y en los inciso 3) y 4) todos artículo 39, le ha de corresponder al infractor previamente presentar los permisos constructivos al día, pagar la paja de agua, pagar el estimado o aproximado, por el gasto consumo ilícito de agua y por los daños ocasionados al Acueducto Municipal (materiales, mano de obra, daños a terceros).
-b) A quien violente los incisos 1. b) y d) e inciso 5) y 7) ambos del ordinal 39, deberá el infractor además de corregir y reparar daños que hubiese ocasionado daños a la infraestructura municipal y cancelar el equivalente a medio salario base del monto que haya sido tasado o establecido por Ley.
-c) A quien irrespeto el inciso 2. ordinal 39 citado, le ha de corresponder al infractor o abonado respetar la normativa establecida en la Ley de Aguas, Ley Forestal vigentes, así como lo contenido en el voto 1923-.2004 de la Sala Constitucional y el Plan Regular vigente al momento, para garantizar un ambiente sano y ecológicamente equilibrado, y deberá la Alcaldía Municipal trasladar la denuncia ante las Autoridades administrativas o judiciales respectivas.
-En todos los anteriores incisos del presente artículo procederá de inmediato la desconexión del servicio de agua potable y cargará el importe del costo de la desconexión al abonado, o al infractor en sus recibos. En caso de reincidencia a cualquiera de las anteriores sanciones, se cobrará el doble de las multas indicadas en éste artículo.
-(Así reformado por acuerdo tomado en sesión N° 51 del 14 de abril del 2011 y definitivamente aprobado en sesión N° 58 del 7 de junio del 2011)

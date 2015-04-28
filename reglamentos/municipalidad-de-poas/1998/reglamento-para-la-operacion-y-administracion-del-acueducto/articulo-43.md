@@ -1,2 +1,0 @@
-Artículo 43.—De la capacitación de servidores municipales.
-La Municipalidad procurará la capacitación de su personal para el mejoramiento del servicio de agua potable, en todos sus aspectos, para lo cual realizara las gestiones necesarias para ello, en las instituciones especializadas, privadas o públicas, nacionales o internacionales, para la consecución de este fin.

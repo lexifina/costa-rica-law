@@ -1,2 +1,0 @@
-Articulo 25.—De la rectificación del cobro.
-Aceptado un reclamo se corregirá el consumo facturado anexando la documentación que demuestre la causa que lo justifique e indicando el monto correcto por lo que debe emitirse el recibo mediante la resolución razonada correspondiente. En el caso que se haya cancelado el recibo y deba corregirse se procederá mediante el procedimiento de compensación establecido en el artículo 45 y siguientes del Código de Normas y Procedimientos Tributarios, acreditando el exceso en el próximo recibo.

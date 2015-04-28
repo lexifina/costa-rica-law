@@ -1,3 +1,0 @@
-Artículo 26.—De las responsabilidades del abonado o usuario y a municipalidad.
-Es responsabilidad y acción absoluta del abonado mantener en buenas condiciones de funcionamiento los sistemas e instalaciones domiciliarias. La Municipalidad no asume responsabilidad alguna sobre el mal funcionamiento del sistema domiciliar.
-Por su parte la Municipalidad aparte de las obligaciones indicadas en este reglamento esta obligada de hacer las reparaciones que requiera el acueducto municipal, incluyendo las pajas de agua que son parte del sistema. Las instalaciones domiciliares defectuosas deben ser reparadas por el propietario del inmueble.

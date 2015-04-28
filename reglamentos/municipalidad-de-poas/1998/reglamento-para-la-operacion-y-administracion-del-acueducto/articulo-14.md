@@ -1,2 +1,0 @@
-Artículo 14.—De la lectura del hidrómetro. La lectura de los hidrómetros se hará mensualmente y se cobrará mensualmente conforme al metraje cúbico registrado durante el mes y al valor del mismo. Se autoriza al Coordinador del Acueducto Municipal a modificar el rol de lectura, según las necesidades municipales, siempre y cuando no cause perjuicio a los intereses de los administrados.
-(Así reformado por acuerdo tomado en sesión N°51 del 14 de abril del 2011 y definitivamente aprobado en sesión N°58 del 7 de junio del 2011)

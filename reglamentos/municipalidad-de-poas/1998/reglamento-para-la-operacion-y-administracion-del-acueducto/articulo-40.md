@@ -1,2 +1,0 @@
-Artículo 40.—De la denuncia al Ministerio Público. El Departamento de Acueducto de la Municipalidad de Poás, emplazará al abonado para corregir la irregularidad existente dentro del quinto día a partir de la notificación de corregir las anomalías, o en su defecto, se trasladará el informe la Alcaldía Municipal a efectos de que se entable la denuncia ante el Ministerio Público
-(Así reformado por acuerdo tomado en sesión N°51 del 14 de abril del 2011 y definitivamente aprobado en sesión N°58 del 7 de junio del 2011)

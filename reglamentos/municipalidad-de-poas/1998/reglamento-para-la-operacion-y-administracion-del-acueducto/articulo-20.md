@@ -1,2 +1,0 @@
-Articulo 20.—De la hipoteca legal.
-La deuda por servicios de agua potable impone hipoteca legal sobre el bien o bienes inmuebles en quien o quienes recae la obligación de pagarla. De conformidad con el artículo 70 del Código Municipal, por lo tanto la propiedad responde directamente sobre el valor adeudado del servicio que no se cancele.

@@ -1,3 +1,0 @@
-Artículo 24.—De las fugas domiciliarias.
-En el caso de que, conforme al resultado de la inspección previa de funcionarios municipales, se determinasen fugas no visibles dentro de la propiedad que ocasione consumos anormales, al abonado se le cobrará con el promedio de los consumos normales de los últimos seis meses conforme lo establezca el medidor. Para que el abonado se pueda ver beneficiado deberá comprobarse que las fugas internas, no le sean imputables y aportarse informe escrito del inspector encargado del caso. Asimismo deberá estar al día con los restantes tributos municipales. Comprobando cada supuesto, el exceso de cobro será asumido por la Municipalidad.
-(Asi reformado mediante sesión ordinaria N° 146 del 01 de marzo del 2005)

@@ -1,2 +1,0 @@
-Artículo 23.—Del desperfecto del hidrómetro.
-En el caso de que por cualquier circunstancia el hidrómetro sufra desperfectos que impidan el registro de los consumos de agua. al abonado se le cobrará de acuerdo con el promedio de los consumos normales de los últimos seis meses , asumiendo la municipalidad la totalidad del exceso producido.

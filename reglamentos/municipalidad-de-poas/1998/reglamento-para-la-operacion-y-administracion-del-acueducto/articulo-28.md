@@ -1,2 +1,0 @@
-Artículo 28.—De la responsabilidad del abonado.
-El abonado o el usuario de las instalaciones domiciliares tiene la plena responsabilidad sobre el manejo del servicio de agua potable dentro de su propiedad y por ende no cabra ningún reclamo contra la Municipalidad por los daños y perjuicios a personas o bienes, ocasionados directa o indirectamente por el usuario o propietario por el mal uso y evacuación del agua potable.

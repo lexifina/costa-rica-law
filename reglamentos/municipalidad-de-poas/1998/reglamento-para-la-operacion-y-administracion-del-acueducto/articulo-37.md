@@ -1,2 +1,0 @@
-Artículo 37.—De la reunión de fincas.
-El propietario de una finca que tenga servicio de agua y adquiera otra propiedad colindante que carezca del servicio, no podrá extender a la segunda el servicio de la primera sin el consentimiento municipal y el pago de los derechos correspondientes mientras ésta permanezca individualizada En el caso de que las reúna bajo una sola matricula de folio real podrá hacerlo, previa comunicación a la Municipalidad.
