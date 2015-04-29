@@ -1,0 +1,1 @@
+5º—El alcance del presente acto se realiza sin perjuicio de la delegación que para temas, proyectos o aspectos específicos de la función sustantiva institucional la Defensora de los Habitantes acuerde en el Defensor Adjunto.
