@@ -14,3 +14,4 @@ Crea Programa Nacional de Humedales y Comité Nacional de Humedales como Órgano
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-28 | la propia norma |
+| 2 | 2015-04-29 | Decreto Ejecutivo 39161 (2015-04-29) |
