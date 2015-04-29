@@ -1,0 +1,1 @@
+Artículo 46—Finiquitos: La UE deberá suscribir el finiquito del proyecto dentro de los doce meses posteriores a la recepción definitiva de las obras. El documento debe ser suscrito por el supervisor de obra de la UE, por el jerarca de la UE, por el contratista, por el Ingeniero Fiscalizador de la UGPR y por quien ocupe la presidencia de la CNE.

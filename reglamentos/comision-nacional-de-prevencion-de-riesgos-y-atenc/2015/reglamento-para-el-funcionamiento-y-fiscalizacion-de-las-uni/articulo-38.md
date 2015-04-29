@@ -1,0 +1,1 @@
+Artículo 38.—Ejecución de la orden de modificación: No podrán tomarse las acciones contempladas en la orden de modificación hasta tanto no se encuentren aprobadas y comunicadas, a partir de la fecha de reinicio se ejecutarán las obras contempladas en la OM.

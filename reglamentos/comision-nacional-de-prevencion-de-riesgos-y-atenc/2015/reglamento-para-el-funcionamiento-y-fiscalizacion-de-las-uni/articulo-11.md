@@ -1,0 +1,1 @@
+Artículo 11.—Dependencia: Las Unidades Ejecutoras dependerán directamente de las directrices y/o recomendaciones que emita la Unidad de Gestión de Procesos de Reconstrucción de la CNE (UGPR), como órgano inmediato, fiscalizador de inversión del proyecto.

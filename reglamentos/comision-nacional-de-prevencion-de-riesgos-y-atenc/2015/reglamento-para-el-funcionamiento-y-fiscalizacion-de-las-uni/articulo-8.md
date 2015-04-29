@@ -1,0 +1,1 @@
+Artículo 8º—Carta compromiso. Una vez nombrada la Unidad Ejecutora por la Junta Directiva, deberá suscribir carta de compromiso previo a la ejecución del proyecto, el formato de la carta compromiso le será suministrado por el funcionario designado por la Unidad de Gestión de Procesos de Reconstrucción para la fiscalización de las obras.

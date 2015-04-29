@@ -1,0 +1,1 @@
+Artículo 47.—Entrega de expediente: Concretado el finiquito, la Unidad Ejecutora deberá entregar a la UGPR una copia del expediente completo del proyecto en perfecto estado de orden, limpieza y correspondiente foliatura, dentro de los cinco días posteriores a la suscripción del finiquito; a su vez la UGPR remitirá copia del finiquito a la proveeduría de la CNE.

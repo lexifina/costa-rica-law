@@ -1,0 +1,1 @@
+Artículo 49°—El presente Reglamento deroga el anterior, el cual fue publicado en el Diario Oficial La Gaceta Nº 105 del viernes 01 de junio del 2001, así como cualquier otra regulación que se le oponga.

@@ -1,0 +1,1 @@
+Artículo 45.—Presentación de Informe Final: Las Unidades Ejecutoras deberán presentar a la UGPR informe final que incluya logros obtenidos, costo total del proyecto y cualquier otro aspecto relevante a la terminación del proyecto, dentro de los diez días posteriores a la recepción definitiva.
