@@ -1,0 +1,1 @@
+Artículo 2º—Documentos anexos. El consultante podrá remitir documentos anexos, los cuales pueden ser en formato: Word, Excel, html, imágenes, y otros similares. Dichos documentos deberán ser firmados digitalmente por quien corresponda, en el caso de que tal requisito sea exigido para la validez del documento de que se trate.

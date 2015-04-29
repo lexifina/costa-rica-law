@@ -1,0 +1,1 @@
+Artículo 6º—Consulta y copia del expediente. Las consultas remitidas por medios electrónicos serán administradas mediante un expediente administrativo debidamente identificado, foliado, completo y en estricto orden cronológico.

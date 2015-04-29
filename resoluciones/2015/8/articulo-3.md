@@ -1,0 +1,1 @@
+Artículo 3º—Confirmación de recepción. La recepción de la consulta será comprobada por la fecha y hora en que la misma ingrese al servidor del Ministerio de Hacienda. Una vez recibida, se generará un acuse de recibo donde se indicará esa fecha y hora, así como el número de control asignado a la misma.
