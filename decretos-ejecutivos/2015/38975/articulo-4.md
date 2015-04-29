@@ -1,0 +1,1 @@
+Artículo 4°.- Aplicación de los principios generales de la Ley: Los principios y objetivos de la Ley 9036, o en caso de duda los de la Ley 2825, serán de aplicación obligatoria para el Sector Público, cuya dirección política corresponde al Presidente de la República y al Ministro Rector del Sector de Desarrollo Agropecuario y Rural, y al Inder su ejecución.

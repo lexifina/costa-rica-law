@@ -1,0 +1,2 @@
+Artículo 66°.- Extinguidas las causas que motivaron el permiso temporal: las personas asignatarias o arrendatarias deben de reintegrarse al inmueble y continuar con la explotación o uso del mismo. En caso de no hacerlo, sin que exista una justificación válida, la Oficina Territorial procederá a iniciar el respectivo procedimiento de resolución del contrato de dotación de tierra.
+En caso de que la causa que motivó el permiso sea permanente, el beneficiario deberá renunciar al derecho y remitir el inmueble a la institución.

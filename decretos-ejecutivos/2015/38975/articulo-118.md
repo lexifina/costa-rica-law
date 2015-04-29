@@ -1,0 +1,1 @@
+Artículo 118°.- Ausencia de CTDR y PTDR en territorios: En aquellos territorios que a la entrada en vigencia del presente reglamento no se hubiese constituido el CTDR o preparado el PTDR, la priorización de acciones de los Fondos de Tierras y de Desarrollo Rural deben considerar las necesidades establecidas por las instancias de coordinación existentes en el territorio.

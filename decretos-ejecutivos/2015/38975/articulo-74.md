@@ -1,0 +1,1 @@
+Artículo 74°.- Vigencia del acuerdo: El acuerdo que autorice el traspaso tendrá una vigencia de un año, transcurrido este sin que el mismo se ejecute, las partes deberán realizar nuevamente todo el trámite de autorización, esta circunstancia conforme lo dispone el Artículo 145 de la LGAP, deberá quedar plasmada en el acuerdo correspondiente.

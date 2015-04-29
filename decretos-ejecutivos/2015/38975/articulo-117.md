@@ -1,0 +1,3 @@
+Artículo 117°.- Responsabilidad y ética en la aplicación del reglamento: Los funcionarios del Inder, actuarán apegados al Principio de Legalidad, a los más altos principios éticos encaminados a la transparencia y a la búsqueda del bien común.
+En toda decisión deberán contar con elementos de juicio suficientes, incluyendo los estudios sociales y técnicos, que les permitan una correcta y fundamentada decisión.
+Los miembros de los órganos con facultades de decisión, deben resolver los asuntos asignados en forma eficaz y eficiente en los plazos establecidos y serán personalmente responsables por los daños y perjuicios que puedan causar al Inder y a los administrados cuando medie culpa grave o dolo.

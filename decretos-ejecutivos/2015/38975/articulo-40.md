@@ -1,0 +1,4 @@
+Artículo 40°.- Etapas para la Dotación de Tierras: La dotación de tierras deberá cumplir en forma sucesiva y en el orden que aquí se establece, con las siguientes etapas:
+a) Declaratoria de idoneidad de los beneficiarios: para lo cual previamente se deberá cumplir con los estudios técnicos y actos preparatorios correspondientes que establezca la Junta Directiva;
+b) Acuerdo de dotación del inmueble correspondiente: que deberá adoptar la Junta Directiva, el cual ha de cumplir con lo establecido en los Artículos 46 y 60 de la Ley 9036 y estar precedido y fundamentado en todos los actos preparatorios que legal y técnicamente sean necesarios para dictar dicho acto.
+Todo ello sin perjuicio que la Junta Directiva, mediando justificación técnica resuelva en un solo acto lo correspondiente a las etapas a) y b), descritas.

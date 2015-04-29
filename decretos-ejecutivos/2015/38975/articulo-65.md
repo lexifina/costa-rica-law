@@ -1,0 +1,5 @@
+SECCION IX
+DE LOS PERMISOS Y LA RENUNCIA
+Artículo 65°.- Permisos: En caso de que la imposibilidad para atender el inmueble sea temporal, las personas asignatarias o arrendatarias, deberán realizar la solicitud de permiso a la Oficina Territorial correspondiente mediante justificación fundamentada, a fin de que ésta pueda otorgarlo por medio de la jefatura territorial respectiva y en los casos en que sea procedente.
+El permiso inicial podrá será otorgado por un plazo de hasta 3 meses, que podrá ser ampliado, siempre y cuando ello se justifique técnicamente por la institución, atendiendo la naturaleza de la situación que origina y motiva la solicitud de permiso, para que a su vez el Inder tome las previsiones del caso en lo concerniente a la fiscalización agraria del inmueble.
+Podrá incluso haber autorización para que se trabaje el predio a través de un tercero, previo estudio de la oficina territorial, por un plazo de hasta tres meses, prorrogables, y bajo responsabilidad del beneficiario.

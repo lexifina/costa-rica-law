@@ -1,0 +1,1 @@
+Artículo 22°.- Ámbito de acción: Los Fondos de Tierras y de Desarrollo Rural, operarán en los territorios rurales con prioridad, en los de mayor rezago social y económico; según lo estipulado en el Artículo 5, inciso b) de la Ley 9036.

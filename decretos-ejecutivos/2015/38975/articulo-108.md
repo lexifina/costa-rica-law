@@ -1,0 +1,18 @@
+Artículo 108°.- Requisitos para Personas Físicas con Garantía Hipotecaria:
+a) Llenar en forma completa el formulario de solicitud de crédito.
+b) Fotocopia de la cédula de identidad, vigente y legible, por ambos lados, de los solicitantes.
+c) En caso de que la propiedad ofrecida en garantía no sea de los solicitantes, deberá aportar fotocopia de las cédulas de los propietarios y estos deben firmar la autorización para imponer el gravamen, incluida en la solicitud de crédito.
+d) Carta de intención de compra-venta del producto con no más de 2 meses de extendida o carné de afiliación a la feria del agricultor al día, cuando se requiera
+e) Aportar el perfil de la actividad o proyecto a financiar o en su defecto plan de inversión o factura proforma, según corresponda.
+f) Avalúo de la propiedad cuando corresponda.
+g) Para compra de equipo, menaje y productos: factura proforma del equipo, artefacto, producto o mobiliario a comprar.
+h) Para compra de maquinaria y vehículo: Revisión Técnica Vehicular (RTV) y marchamo al día, sin infracciones pendientes de pago en Consejo de Seguridad Vial (COSEVI), libre de gravámenes, anotaciones e infracciones, opción de venta o factura proforma, en donde se estipule, como mínimo, un mes de plazo de vigencia de dicho documento, que el modelo no sea inferior a 10 años. Cuando se trate de camiones, se debe aportar el permiso de pesos y dimensiones al día.
+i) Para construcción: presupuesto detallado de la obra (mano de obra y materiales), fotocopia del permiso de construcción de la municipalidad. Si no se requiriere el permiso de construcción, se debe presentar carta emitida por el Municipio, en donde se indique que no es necesario este permiso, fotocopia del plano catastrado, fotocopia del permiso de ubicación del proyecto del Ministerio de Salud. Cuando existan limitaciones en el lugar donde se desarrollará la actividad (reserva, refugio, parque nacional u otro o el recurso natural a utilizar es flora o fauna silvestre) se exigirá un documento de autorización por parte del MINAE o de no oposición a la actividad a desarrollar o la entidad que corresponda.
+j) Para actividades en operación: fotocopia de la patente municipal, fotocopia del permiso sanitario de funcionamiento del Ministerio de Salud. Cuando existan limitaciones en el lugar donde se desarrolla la actividad (reserva, refugio, parque nacional u otro o el recurso natural a utilizar es flora o fauna silvestre) se exigirá un documento de autorización por parte del MINAE o de no oposición a la actividad a desarrollar o la entidad que corresponda.
+k) Para comercio: fotocopia de la patente municipal al día, permiso de operación del Ministerio de Salud al día, detalle del plan de inversión, factura proforma con no más de 1 mes de emitida, al momento del llenado de la solicitud.
+l) Para agroindustria o industria: fotocopia de la patente municipal, permiso de operación o de ubicación del Ministerio de Salud y plan de inversión.
+m) Para granjas agropecuarias de todo tipo: certificado veterinario de operación (CVO) al día, expedido por SENASA, o los requisitos para obtenerlo y que cubra tácitamente la actividad a desarrollar.
+n) Transporte público de personas o materiales: permisos correspondientes del Consejo Transporte Público o la institución responsable.
+o) Pesca artesanal maricultura o acuacultura: permisos correspondientes del INCOPESCA o la institución responsable
+p) Perforación de pozos o aprovechamiento de recursos hídricos: concesión administrativa o autorización para aprovechamientos del agua, por parte del MINAE o de la Institución encargada, y que el canon correspondiente este al día.
+q) Cualquier otro requisito, que exijan leyes o normativas de otras instituciones.

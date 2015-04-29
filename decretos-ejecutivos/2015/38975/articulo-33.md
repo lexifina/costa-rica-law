@@ -1,0 +1,1 @@
+Artículo 33°.- Excepciones al estudio de idoneidad: Se exceptúan del procedimiento de estudio resolutorio de idoneidad cuando se trate de instituciones del Estado o los proyectos que sean para desarrollo de bien social y/o comunal.

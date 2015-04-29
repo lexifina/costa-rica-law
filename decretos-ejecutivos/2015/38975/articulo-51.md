@@ -1,0 +1,4 @@
+SECCION VI
+FISCALIZACIÓN DE TIERRAS Y REVOCATORIA DE DERECHOS
+Artículo 51°.- De las inspecciones de campo: El Inder deberá efectuar inspecciones periódicas en los inmuebles que forman parte del Fondo de Tierras, para verificar que su tenencia y uso sea acorde a los fines de la Ley 2825 o Ley 9036 y se cumpla con las obligaciones legales y contractuales asumidas por las personas asignatarios o arrendatarios según sea el caso.
+El funcionario que realice las labores de fiscalización de tierras, acorde con el inciso f) del Artículo 17 de la Ley 9036, y Artículo 97 de la Ley 2825, tendrá derecho de ingresar a los inmuebles para realizar las inspecciones de campo correspondientes, sin necesidad de dar aviso previo. Podrá utilizar cualquier equipo que lo pueda coadyuvar con su informe tales como cámaras fotográficas, GPS y de ser necesario se hará acompañar de la Fuerza Pública a la inspección de campo.

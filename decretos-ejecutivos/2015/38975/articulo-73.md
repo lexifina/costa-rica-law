@@ -1,0 +1,1 @@
+Artículo 73°.- Recurso: Contra el acuerdo de la Junta Directiva que deniegue la solicitud, cabrá recurso de revocatoria. El recurso deberá interponerse en cualquier oficina del Instituto, quien lo elevará a Junta Directiva en un plazo máximo de cinco días hábiles.

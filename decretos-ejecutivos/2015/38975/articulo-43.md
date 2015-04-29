@@ -1,0 +1,3 @@
+SECCIÓN IV
+DOTACIÓN POR ARRENDAMIENTO
+Artículo 43°.- Dotación por Arrendamiento: Para los efectos de la aplicación de las secciones III y IV del Capítulo IV de la Ley 9036, se entenderá por arrendamiento, al contrato suscrito entre el Inder y una persona física o jurídica, esta última sin fines de lucro, en virtud del cual el Inder otorga por un determinado plazo a aquella, el derecho de uso y goce de un bien inmueble y, por su parte, la persona física o jurídica se obliga a desarrollar la actividad o actividades específicas para las cuales dicho bien le sea otorgado y a pagar el canon que fije el Inder.

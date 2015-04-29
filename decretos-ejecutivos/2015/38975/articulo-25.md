@@ -1,0 +1,2 @@
+Artículo 25°.- Servicios de los Fondos: Para el cumplimiento de sus objetivos, los Fondos de Tierras y de Desarrollo Rural, brindarán los servicios establecidos en el Artículo 39 de la Ley 9036, que satisfagan los fines establecidos en la misma.
+El Fondo de Tierras recomendará a la Junta Directiva, la adquisición, asignación, arrendamiento, gravamen, donación y la enajenación de bienes relacionados con la tierra. El Fondo de Desarrollo Rural podrá adquirir bienes y servicios que complementen y promuevan el desarrollo integral de los territorios rurales.
