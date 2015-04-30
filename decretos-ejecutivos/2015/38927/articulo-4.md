@@ -1,0 +1,3 @@
+ARTÍCULO IV
+Aportaciones de las partes
+Para la implementación del “Marco de Acción Regional para el Abordaje Integral del Delito de la Trata de Personas en Centroamérica y República Dominicana”, las Coaliciones, Comisiones y Consejos Nacionales, aportarán recursos humanos, movilizarán recursos financieros conforme a sus asignaciones presupuestarias, y gestionarán fuentes de cooperación internacional que permitan la implementación y el eficaz cumplimiento de los compromisos derivados del presente instrumento, fortaleciendo así el trabajo de articulación de la Coalición Regional Contra la Trata de Personas.
