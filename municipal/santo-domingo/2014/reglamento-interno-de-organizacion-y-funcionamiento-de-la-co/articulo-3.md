@@ -1,0 +1,5 @@
+Artículo 3°—Objetivos. Para efecto de las funciones generales que el Concejo Municipal le asigne; la comisión tendrá como objetivo entre otros los siguientes:
+A) La incorporación de la perspectiva de género en todo el quehacer municipal, con base en la aplicabilidad de la Política y el Plan de Acción para la Igualdad y Equidad de Género de la Municipalidad de Santo Domingo, a través del cumplimiento efectivo de las funciones que se le asigne y cualquier otra que corresponda a su competencia que le sea asignada por el Código Municipal, los reglamentos que se dicten al efecto y cualquier Ley vigente.
+B) La adopción de las directrices que en políticas de género emanen del Instituto Nacional de las Mujeres (INAMU), e impulsar los proyectos que en este campo se requieran.
+C)Que en el Plan de Desarrollo Municipal presentado por el Alcalde o Alcaldesa Municipal, se incorpore la perspectiva de género y se promuevan los derechos de las mujeres.
+D)Vigilar y garantizar el cumplimiento de la Política y Plan de Acción de Igualdad y Equidad de Género de la Municipalidad, así como cualquier otra normativa interna sobre igualdad y equidad de género.

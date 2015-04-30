@@ -1,0 +1,3 @@
+CAPÍTULO V
+De las obligaciones de las personas integrantes de la comisión
+Artículo 11.—Asistir puntualmente a las sesiones para los que fuere convocada/o. Si alguna de las personas integrantes faltare a una sesión, debe justificarla ante la presidencia de la comisión y si incurriere en tres ausencias consecutivas sin justificación; Presidenta (e) de la Comisión lo comunicará a la Presidencia del Concejo Municipal, para que proceda a su sustitución; esto si lo amerita. El quórum estará formado por la mitad más una o uno de quienes integran la comisión. Igual quórum se requiere para la toma de los acuerdos y emisión de dictámenes u informes de mayoría.
