@@ -1,0 +1,1 @@
+Artículo 2º—Objeto de procedimiento. Este manual tiene como propósito establecer el procedimiento para otorgar concesiones en la zona restringida de la ZMT del Cantón de Aguirre, ante la igual de condiciones o múltiples traslapes de las solicitudes de concesión.

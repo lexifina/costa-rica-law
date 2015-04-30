@@ -1,0 +1,29 @@
+Artículo 3º—Para una adecuada distribución de la tierra y equidad de las actividades comerciales se propone lo siguiente:
+▪ En el Área Planificada para el Desarrollo Turístico se darán prioridades a aquellas solicitudes de concesión que se soliciten por más de una hectárea para el desarrollo de proyectos turísticos que sean innovadores y con políticas de conservación ambiental donde se utilicen energías alternativas, las cuales son consideradas por muchos especialistas como las energías del futuro, ya que estas tecnologías permiten un aprovechamiento cada vez más eficiente del poder de viento o el sol, que es limpio, renovable y abundante en todo el planeta. Permitiendo así que se desarrolle un tipo de turismo verde al minimizar eventuales daños ambientales e impacto visual por las líneas eléctricas de alta tensión.
+▪ El Área Mixta para Turismo y Comunidad ubicada al este de Playa Linda en las coordenadas CRTM 05 507053,214 - 1028895,634 a las coordenadas 507461,369 - 1028681,201 se han de preferir todas aquellas solicitudes de concesión que soliciten un área igual o superior a los 1000 m2 y que sean para actividades comerciales de atracción y diversión nocturna.
+[imagen]
+▪ El Área Mixta para Turismo y Comunidad ubicada en Playa Linda entre el mojón 503 y la coordenada CRTM 05 506071,26 - 1029510,70 y el polígono de Área Mixta para Turismo y Comunidad ubicado en Playa Matapalo entre las coordenadas 504931,45 - 1030393,14 y 504572,3 - 1030467,99; se dará prioridad a todas aquellas solicitudes de concesión que soliciten para realizar actividades comerciales de artesanías y productos similares con el objetivo de lograr el desarrollo integral de conocimientos, habilidades y actitudes conducentes a un desempeño adecuado y responsable de los artesanos de la zona para potencializar los productos o servicios artesanales locales con el fin de una adecuada comercialización de los mismos para con los diferentes turísticas que visitaran la zona.
+[imagen]
+[imagen]
+▪ El Área Mixta para Turismo y Comunidad ubicada en Playa Linda con referencia a los mojones 505, 506, 507, 508 y 512, 513, 514, 515, se dará prioridad a las solicitudes de concesión que se presente por un área igual o superior a los 5000 m2 y que sean para desarrollo de todas aquellas actividades hospedaje o uso turístico u aquellas solicitudes de que sean mayores a los 3000 m2 para residencial de alquiler.
+[imagen]
+▪ El Área Mixta para Turismo y Comunidad ubicada en Playa Linda con referencia a los mojones 535, 536, 721, 720, 719, 718, se dará prioridad a las solicitudes de concesión que se presenten por un área igual o superior a los 5000 m2 para hospedaje o uso turístico.
+[imagen]
+▪ El Área Mixta para Turismo y Comunidad ubicada en Playa Linda con referencia a los mojones 711, 712, 713 y el polígono de Área Mixta para Turismo y Comunidad con referencia a los mojones 700, 701, se dará prioridad a las solicitudes de concesión que se presenten por un área igual o superior a los 500 m2 para uso residencial de recreo.
+[imagen]
+▪ El Área Mixta para Turismo y Comunidad ubicada en Playa Linda con referencia a los mojones del 711 al 702 se dará prioridad a las solicitudes de concesión que se presenten por un área igual o superior a los 2000 m2 para uso residencial de alquiler.
+[imagen]
+▪ El Área Núcleo para Atracciones Turísticas (3= Comerciales Turísticas), ubicada en Playa Linda ubicada en frente del mojón 527 y los polígonos ubicados en Playa Matapalo ubicados en frente de los mojones 188 - 189 y el ubicado en las coordenadas CRTM05 503276,075 - 1031014,4 y 503204,72 - 1031046,032; han de preferirse todas aquellas solicitudes de concesión que soliciten al área total del polígono y que sean para actividades comerciales de atracción y diversión nocturna.
+[imagen]
+[imagen]
+[imagen]
+[imagen]
+▪ El polígono de El Área Mixta para Turismo y Comunidad ubicada en Playa Matapalo con referencia al mojón 182 y que se extiende paralela a la zona de protección hasta el límite con el Área para Desarrollo Futuro y los otros dos polígonos de El Área Mixta para Turismo y Comunidad ubicados entre los mojones del 184 al 188, han de preferirse aquellas solicitudes de concesión que se presenten por un área igual o superior a los 5000 m2 para hospedaje o uso turístico.
+[imagen]
+▪ Todos los polígonos de El Área Mixta para Turismo y Comunidad ubicada en Playa Matapalo, frente a playa han de preferirse las solicitudes de concesión que se presente por un área igual o superior a los 1000 m2 y que sean para desarrollo de todas aquellas actividades comerciales permitidas en el Reglamento del Plan Regulador como Área Núcleo para Atracciones Turísticas (3= Comerciales Turísticas).
+▪ El Área Mixta para Turismo y Comunidad ubicada en Playa Matapalo que se extiende desde el Área de Cooperativas hasta el Refugio de Vida Silvestre de Portalón, se dará prioridad a las solicitudes de concesión que se presenten por un área igual o superior a los 5000 m2 y que sean para desarrollo de todas aquellas actividades hospedaje o uso turístico.
+[imagen]
+▪ El Área Mixta para Turismo y Comunidad ubicada en Playa Matapalo que se extiende desde Área de Cooperativas hasta el Estacionamiento Público y que no está frente a Playa, han de preferirse todas aquellas solicitudes de concesión que sean igual o mayor a los 500 m2 y que sean para residencias de alquiler.
+▪ En Área de Cooperativas se dará prioridad a solicitudes de concesión que sean mayores a los 1000 m2.
+Acuerdo N° 04: El Concejo Acuerda: Acoger en todos sus términos el dictamen de la Comisión Municipal de Zona Marítimo Terrestre, Por Tanto: Aprobar y publicar en el Diario Oficial La Gaceta el manual para la selección de las solicitudes de concesión de la Municipalidad de Aguirre. Se acuerda lo anterior por unanimidad (cinco votos).”
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
