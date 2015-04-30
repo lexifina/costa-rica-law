@@ -1,0 +1,1 @@
+Artículo 14.—En caso de que un plano no se pueda registrar por situaciones o eventos de difícil previsión, como nuevas regulaciones posteriores a la contratación del servicio, se dará por concluido el trabajo no reintegrándose el monto cancelado.

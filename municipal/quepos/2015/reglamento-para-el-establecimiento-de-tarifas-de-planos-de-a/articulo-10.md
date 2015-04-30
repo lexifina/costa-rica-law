@@ -1,0 +1,1 @@
+Artículo 10.—Aprobada la gestión por el Departamento de Topografía de esta Municipalidad, el usuario deberá realizar el pago respectivo y firmar el correspondiente contrato de servicios profesionales para la agrimensura en la plataforma de servicios, para que se le brinde el servicio solicitado.

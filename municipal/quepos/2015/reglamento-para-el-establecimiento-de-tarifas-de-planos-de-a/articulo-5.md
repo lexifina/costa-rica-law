@@ -1,0 +1,1 @@
+Artículo 5º—Las tarifas a cobrar por los servicios citados serán las aprobadas por el Decreto Ejecutivo N° 17481-MOPT, Reglamento de Tarifas de Honorarios para los Profesionales de Agrimensura, Topografía e Ingeniería Topográfica.

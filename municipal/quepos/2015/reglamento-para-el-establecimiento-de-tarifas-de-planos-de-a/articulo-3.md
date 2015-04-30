@@ -1,0 +1,1 @@
+Artículo 3º—Las tarifas cobradas se cancelarán por única vez en el momento que se solicite el servicio, cuyo pago será por adelantado y para una sola ubicación; si el interesado manifiesta cambiar el lugar de medida, este se tomara como un nuevo trámite debiendo cancelar la tarifa correspondiente.
