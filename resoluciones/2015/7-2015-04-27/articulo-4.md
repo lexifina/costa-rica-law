@@ -1,0 +1,1 @@
+Artículo 4º—En todos los demás casos, se aplicarán las disposiciones establecidas por la Contraloría General de la República en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, Resolución Nº R-DC-111-2011 del 7 de julio del 2011 y sus modificaciones.
