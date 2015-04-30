@@ -1,0 +1,1 @@
+Artículo 16.- “La Comisión” está facultada para hacer consultas a expertos cuando se requiera, asimismo, para emitir criterios técnicos en materia de nutrición y alimentación cuando así lo requieran las autoridades competentes.

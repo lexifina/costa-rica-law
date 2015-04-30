@@ -1,0 +1,1 @@
+Artículo 10.- En lo no dispuesto expresamente en este Decreto se aplicarán las disposiciones del Título II, Capítulo III del Libro Primero de la Ley General de la Administración Pública, denominado: “De los Órganos Colegiados”.

@@ -1,0 +1,1 @@
+Artículo 14.- Los acuerdos serán tomados y aprobados por mayoría simple. En caso de empate el presidente tendrá voto de calidad, y en caso de que cualquiera de los miembros de “La disienta del criterio de la mayoría, podrá salvar su voto, dejando constancia de los motivos en que se fundamenta para ello.

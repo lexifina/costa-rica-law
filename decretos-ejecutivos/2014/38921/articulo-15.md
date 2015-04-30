@@ -1,0 +1,1 @@
+Artículo 15.- Si el representante o suplente no justifica su ausencia a tres reunions ordinarias consecutivas, o cuatro alternas en un periodo de seis meses, se comunicará la situación a la respectiva Institución a que éste representa, para que se designe a otro representante, sea titular o suplente.

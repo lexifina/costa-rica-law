@@ -1,0 +1,1 @@
+Artículo 7.- En caso de ausencia o de enfermedad y en general, cuando concurra una causa que motive su ausencia, el presidente de “La Comisión”, será sustituido por el Vicepresidente, en cuyo caso tendrá todos los derechos y facultades que le competen al primero.
