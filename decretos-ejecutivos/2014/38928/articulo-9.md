@@ -1,0 +1,1 @@
+Artículo 9°— El sistema de tratamiento de lixiviados del relleno sanitario deberá tramitarse conforme al Decreto Ejecutivo Nº 31545-S-MINAE “Reglamento de Aprobación y Operación de Sistemas de Tratamiento de Aguas Residuales” publicado en el Diario Oficial “La Gaceta” Nº 246 del 22 de diciembre de 2003.

@@ -1,0 +1,1 @@
+Artículo 30º— En caso de que la recirculación o inyección de líquidos lixiviados previamente tratados, contemplada en el proyecto cause problemas de afloramientos y la emisión de malos olores que sean causa de riesgo inmediato a la seguridad de la operación y graves molestias a la comunidad, se debe suspender dicha actividad.

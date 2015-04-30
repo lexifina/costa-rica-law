@@ -1,0 +1,1 @@
+Artículo 40º— El Ministerio de Salud podrá realizar cuando lo considere conveniente muestreos y análisis, tanto del efluente del sistema de tratamiento de lixiviados como de su cuerpo receptor, de los pozos de monitoreo de las aguas subterráneas y de las emanaciones de gases, como control cruzado.

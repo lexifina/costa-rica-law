@@ -1,0 +1,1 @@
+Artículo 17º— En caso de que el sitio se encuentre cercano a un aeropuerto nacional o internacional, o pistas de aterrizaje privadas el solicitante debe realizar las consultas previas ante la Dirección General de Aviación Civil.

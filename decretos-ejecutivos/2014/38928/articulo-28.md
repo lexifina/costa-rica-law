@@ -1,0 +1,1 @@
+Artículo 28º— Todo relleno sanitario que no cuente con material de cobertura para extraer del sitio en donde se encuentra instalado, debe mantener un acopio de este material en cantidad suficiente para aplicar cobertura diaria a los residuos por 15 días hábiles.

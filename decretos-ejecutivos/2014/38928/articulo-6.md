@@ -1,0 +1,1 @@
+Artículo 6°— En aquellas poblaciones que generen 40 o menos toneladas diarias de residuos, podrá usarse cualquiera de los tipos de relleno sanitario anotados en el artículo 4º de las presentes disposiciones.

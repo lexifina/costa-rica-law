@@ -1,0 +1,1 @@
+Artículo 23º— Todo Relleno Sanitario que opere en horario nocturno, debe contar con iluminación que permita trabajar sin riesgos en el frente de trabajo, así como en cualquier otro sector o dependencia de la instalación que opere en dicho horario.
