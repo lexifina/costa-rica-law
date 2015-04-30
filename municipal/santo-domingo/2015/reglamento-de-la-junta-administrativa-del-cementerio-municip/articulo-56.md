@@ -1,0 +1,1 @@
+Artículo 56.—La pintura a utilizar en la conservación de las bóvedas. Deberá ser de color blanco, solo se considerarán variaciones de color en casos calificados: mosaicos, placas, u otros que no cambien la fisonomía y apariencia de las bóvedas. Se deberá respetar las especificaciones de la calidad de la pintura la cual será de la mejor calidad posible.

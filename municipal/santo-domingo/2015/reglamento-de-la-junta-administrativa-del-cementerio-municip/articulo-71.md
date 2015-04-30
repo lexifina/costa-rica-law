@@ -1,0 +1,1 @@
+Artículo 71.—Responsabilidad de los restos a partir de que los restos han salido de la bóveda y entregados al interesado o solicitante, la junta administración o municipalidad, no es responsable por el uso o lugar de disposición final de los restos.

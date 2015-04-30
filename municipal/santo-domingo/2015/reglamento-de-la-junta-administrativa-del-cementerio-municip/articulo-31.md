@@ -1,0 +1,1 @@
+Artículo 31.—Del monto a pagar por los arrendamientos: el monto a pagar por el derecho de arrendamiento de derecho de cementerio será definido conforme a estudio justificado por la Junta Administrativa, ratificado por el Concejo Municipal y publicado por una vez en el Diario Oficial La Gaceta, con aplicación inmediata conforme lo determinado en el Código Municipal.

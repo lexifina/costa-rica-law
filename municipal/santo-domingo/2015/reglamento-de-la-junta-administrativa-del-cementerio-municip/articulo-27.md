@@ -1,0 +1,1 @@
+Artículo 27.—De los requisitos adicionales de cesión de derechos a terceros: para el traspaso de derecho de arrendamiento a terceros previo cumplimiento de los artículos anteriores y concordantes, se debe de garantizar que el derecho no posee restos de fallecidos, o bien que la persona fallecida es familiar del nuevo posible arrendatario.

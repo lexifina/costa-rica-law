@@ -1,0 +1,1 @@
+Artículo 18.—De las Funciones de Fiscales: El Concejo Municipal o Junta podrá nombrar fiscales con las obligaciones y derechos que le confiera el Código de Comercio u otra Legislación General vinculante.

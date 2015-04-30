@@ -1,0 +1,1 @@
+Artículo 33.—Del destino de los recursos obtenidos por arrendamiento de derechos y/o bóvedas: los recursos deberán ser incorporados en un fondo especial para el desarrollo del camposanto, obras de infraestructura o nuevos desarrollos, conforme a valoración de necesidades y proyecciones de la Junta.

@@ -1,0 +1,1 @@
+Artículo 70.—Las exhumaciones ordinarias por interés particular solo se efectuarán en la jomada ordinaria del cementerio, previo pago de los derechos correspondientes. Y Coordinación con al menos cinco días de anticipación salvo casos especiales.

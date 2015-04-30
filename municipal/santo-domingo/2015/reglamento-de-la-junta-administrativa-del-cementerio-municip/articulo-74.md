@@ -1,0 +1,1 @@
+Artículo 74.—Los funcionarios del camposanto y de la administración, deberán respetar las disposiciones del presente reglamento y de todas aquellas disposiciones que como acuerdo se disponga por la Junta Administrativa de forma complementaria o aclarativa para el correcto funcionamiento del camposanto

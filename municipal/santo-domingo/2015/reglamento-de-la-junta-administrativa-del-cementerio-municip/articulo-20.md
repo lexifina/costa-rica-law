@@ -1,0 +1,1 @@
+Artículo 20.—De la Propiedad del derecho de Arrendamiento: por corresponder a un arrendamiento la propiedad del derecho de cementerio se mantiene en manos del propietario registral total del bien inmueble destinado a uso como Cementerio y Obras Complementarias (Municipalidad) y será administrado conforme a las disposiciones del presente reglamento y de la Junta Administrativa.

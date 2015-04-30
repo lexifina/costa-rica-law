@@ -1,0 +1,1 @@
+Artículo 63.—Se debe establecer obligatoriamente, un registro de inhumaciones en orden alfabético y cronológico con los requisitos del caso. Para lo que se establece el registro en Libro de Control en custodia y bajo responsabilidad del funcionario que defina la Junta o Administración.

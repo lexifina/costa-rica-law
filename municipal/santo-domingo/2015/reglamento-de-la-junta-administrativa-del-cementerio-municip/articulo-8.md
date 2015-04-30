@@ -1,0 +1,1 @@
+Artículo 8°—Del quórum: estará establecido por la mitad más uno de los integrantes activos de la Junta Administrativa, el cual no podrá estar conformado por menos de tres integrantes. Se considera integrante activo aquel que mantenga una regularidad de asistencia al menos de una sesión por mes.

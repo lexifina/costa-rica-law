@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los derechos de arrendamiento y traspasos
+Artículo 19.—Definición de Derecho en Arrendamiento: se entiende como Derecho en Arrendamiento del Cementerio Municipal el espacio que se ceda a un interesado para efectos de que disponga del mismo para la construcción de bóveda conforme a los lineamientos establecidos para el camposanto y que obligará al pago de las cuotas de mantenimiento conforme lo disponga el presente reglamento y publicaciones relacionadas. Así, como el cumplimiento del total de disposiciones establecidas por la vía reglamentaria o directrices de la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 10.—Comisiones de trabajo: La Junta Administrativa podrá designar y nombrar comisiones de trabajo para que contribuyan con la ejecución y seguimiento de labores especiales de: ordenamiento, aseo, actividades especiales, representación de la Junta y otros; a potestad de la Junta Administrativa.

@@ -1,0 +1,1 @@
+Artículo 75.—Los arrendatarios que se encuentren establecidos en el Cementerio, con anterioridad a la publicación de este Reglamento, estarán obligados a acogerse a lo estipulado en él, sin perjuicio para la Junta Administrativa por los derechos adquiridos.

@@ -1,0 +1,1 @@
+Artículo 42.—De impedimento para traslado de restos. Los nichos de alquiler no podrán ser utilizados para el traslado de restos o momias de otra bóveda o cementerio. Salvo casos muy justificados ante la Junta Administrativa la cual bajo criterio definirá al respecto, no obstante, la Junta Administrativa no se obliga a definición positiva.

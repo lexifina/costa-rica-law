@@ -1,0 +1,1 @@
+Artículo 66.—La exhumación solo podrá ser solicita por ascendientes, descendientes, cónyuges, hermanos, tíos o sobrinos del fallecido, o por sus cuñados, tíos y sobrinos políticos y yernos; por orden de autoridad competente. De existir otros casos deberán ser autorizados y solicitados por la persona responsable de la inhumación.

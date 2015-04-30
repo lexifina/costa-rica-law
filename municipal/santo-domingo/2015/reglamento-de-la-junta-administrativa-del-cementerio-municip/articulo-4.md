@@ -1,0 +1,1 @@
+Artículo 4°—Del período del nombramiento: El nombramiento de la Junta, será por el periodo mínimo de dos años a partir de la fecha de su juramentación y será ad honoren. No obstante el Concejo podrá nombrar por períodos distintos debidamente justificados mediante acuerdo en firme de este.

@@ -1,0 +1,1 @@
+Artículo 9°—De la efectividad de los acuerdos: los acuerdos tomados por la Junta Administrativa serán tomados para su efectividad por al menos dos terceras partes de los integrantes presentes de la Junta Administrativa; de igual forma se podrán tomar acuerdos de efectividad inmediata mediante acuerdos por unanimidad definitivamente aprobados.

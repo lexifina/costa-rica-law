@@ -1,0 +1,1 @@
+Artículo 59.—El costo a pagar por inhumación será fijado conforme a la fijación de las tarifas y publicación en el Diario Oficial La Gaceta. La Junta y Concejo Municipal. Para lo que se podrán establecer tarifas preferenciales, ordinarias, y extraordinarias para casos de exhumaciones en tiempo extraordinario. Estas serán ajustadas cada vez que se estime necesario.
