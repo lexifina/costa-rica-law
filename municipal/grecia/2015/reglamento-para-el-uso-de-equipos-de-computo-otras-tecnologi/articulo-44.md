@@ -1,0 +1,2 @@
+Artículo 44.—Las actividades en línea serán controladas, a solicitud de la jefatura respectiva, cuando se tenga conocimiento de que un funcionario está desacatando alguna de las anteriores disposiciones. De llegarse a comprobar una falta, concluido el procedimiento disciplinario respectivo, la Administración cancelará el acceso al servicio al servicio al funcionario responsable.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 136 del 15 de julio de 2015. Anteriormente se indicaba: “Artículo 24”)

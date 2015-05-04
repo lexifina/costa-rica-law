@@ -1,0 +1,2 @@
+Artículo 45.—Servicios Informáticos dará seguimiento al empleo que se dé al servicio de Internet por parte de los usuarios, y tendrá la facultad de emitir informes de los sitios visitados por los usuarios o bloquear accesos no permitidos, entendidos como aquellos que no guarden relación con aspectos de trabajo o que pongan en riesgo la seguridad de los recursos informáticos.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 136 del 15 de julio de 2015. Anteriormente se indicaba: “Artículo 25”)

@@ -1,0 +1,1 @@
+Artículo 28.—El Coordinador de Servicios Informáticos o a quien este designe, será responsable de velar para que los bienes a ellos asignados, reciban la atención, mantenimiento y reparación que requieran. Asimismo, los Encargados de cada dependencia municipal serán responsables por los bienes asignados a sus respectivas dependencias.

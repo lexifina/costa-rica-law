@@ -1,0 +1,1 @@
+Artículo 32.—La entrega, puesta en funcionamiento y cambio de equipo entre las diferentes oficinas de la Institución, la efectuará el Departamento de SI. Todo traslado interno requerirá el visto bueno del Coordinador de Informática.

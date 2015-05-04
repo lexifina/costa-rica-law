@@ -1,0 +1,1 @@
+Artículo 10.—Será responsabilidad del usuario final tener un respaldo de la información propia de cada oficina que resida en el disco duro de la computadora que se le haya asignado para ejecutar sus labores.

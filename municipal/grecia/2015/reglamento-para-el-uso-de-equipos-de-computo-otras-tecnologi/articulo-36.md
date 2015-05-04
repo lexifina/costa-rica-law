@@ -1,0 +1,2 @@
+Artículo 36.—Será responsabilidad de cada coordinador o gerente de área, solicitar a Servicios Informáticos la creación, suspensión y eliminación de los privilegios sobre el acceso a los servidores y el uso de las tecnologías de información para los usuarios de su área.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 136 del 15 de julio de 2015. Anteriormente se indicaba: “Artículo 34”)

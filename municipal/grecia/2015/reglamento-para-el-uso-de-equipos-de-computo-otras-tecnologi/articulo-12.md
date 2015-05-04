@@ -1,0 +1,1 @@
+Artículo 12.—Los daños o atrasos ocasionados por la pérdida de información, serán responsabilidad absoluta del usuario. Cuando el equipo en caso especial sea compartido, el jefe respectivo dará la autorización al funcionario que lo requiera.

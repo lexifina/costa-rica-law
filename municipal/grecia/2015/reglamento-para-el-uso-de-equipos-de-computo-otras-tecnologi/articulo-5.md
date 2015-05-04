@@ -1,0 +1,1 @@
+Artículo 5º—La entrega, puesta en funcionamiento y cambio de equipo entre las diferentes oficinas de la Institución, la efectuará la oficina encargada, en coordinación con el Departamento de Servicios Informáticos.

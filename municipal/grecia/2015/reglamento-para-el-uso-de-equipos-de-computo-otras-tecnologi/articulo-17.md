@@ -1,0 +1,3 @@
+Políticas de Seguridad
+Lineamientos Generales
+Artículo 17.—El Departamento de Servicios Informáticos deberá contar con un plan de contingencias para cada una de sus funciones, a saber, desarrollo de sistemas, administración de bases de datos, página Web, redes, soporte técnico. Este plan debe ser una descripción formal y detallada de las acciones por tomar, los recursos necesarios, los procedimientos por cumplir por Servicios Informáticos, antes, durante y después de un siniestro en la tecnología de informática-telecomunicaciones, con el fin de restablecer sus servicios, total o parcialmente, en forma confiable y en el menor tiempo posible.

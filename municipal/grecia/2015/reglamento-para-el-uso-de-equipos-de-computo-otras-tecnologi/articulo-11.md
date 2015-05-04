@@ -1,0 +1,1 @@
+Artículo 11.—El usuario final puede solicitarle en cualquier momento al Coordinador de Servicios Informáticos un respaldo específico de sus datos y solicitarle enviarlo al sitio externo establecido por la Municipalidad para Respaldos.

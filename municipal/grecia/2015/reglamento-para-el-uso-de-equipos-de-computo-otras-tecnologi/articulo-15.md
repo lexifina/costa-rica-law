@@ -1,0 +1,4 @@
+Artículo 15.—El o los usuarios directos del equipo de cómputo o tecnologías relacionadas deben usarlas adecuadamente y brindarle el debido cuidado. Con este fin se tendrá en cuenta, entre otras cosas, lo siguiente:
+a. Evitar la contaminación por virus informáticos en los equipos, para lo cual no se utilizarán disquetes u otros medios de almacenamiento externo de desconocida procedencia. En todo caso, es obligación del funcionario revisar previamente su estado, independientemente de donde provenga el medio de respaldo externo (disquete, CD, DVD, etc.). El Departamento de Servicios Informáticos procesará el control de virus en forma centralizada.
+b. No se deberán ingerir alimentos o bebidas mientras se esté utilizando el equipo de cómputo.
+c. Todos los monitores de los equipos instalados en la Institución deberán utilizar como fondo de pantalla imágenes autorizadas oficialmente, excepto los monitores de cámaras de seguridad.

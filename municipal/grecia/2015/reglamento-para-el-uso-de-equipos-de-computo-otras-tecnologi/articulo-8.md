@@ -1,0 +1,1 @@
+Artículo 8º—Solo podrán residir en el disco duro de cada computadora de la Municipalidad de Grecia, los programas informáticos instalados por el Departamento de Servicios Informáticos con la debida licencia.

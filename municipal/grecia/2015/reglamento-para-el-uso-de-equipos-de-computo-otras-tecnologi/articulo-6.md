@@ -1,0 +1,1 @@
+Artículo 6º—Todo traslado interno de equipo o tecnologías relacionadas requerirá el visto bueno de los jefes de las oficinas involucradas y deberá ser comunicado al Departamento de Servicios Informáticos, quien realizará el traslado físico del equipo.

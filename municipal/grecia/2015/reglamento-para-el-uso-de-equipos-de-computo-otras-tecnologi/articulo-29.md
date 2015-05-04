@@ -1,0 +1,1 @@
+Artículo 29.—El Coordinador de Servicios Informáticos en coordinación con funcionarios de la Contabilidad Municipal realizará inventarios de los equipos Informáticos de toda la Municipalidad, al menos cada seis meses.

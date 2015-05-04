@@ -1,0 +1,2 @@
+Artículo 56.—En el caso de fallas técnicas del equipo de cómputo municipal, SI realizará un diagnóstico preliminar, con el objetivo de procurar la solución, o en su defecto, gestionar los trámites para su recuperación. Los equipos de cómputo no podrán ser cambiados, abiertos reparados o sufrir algún cambio en alguno de sus componentes por funcionarios municipales que no pertenezcan a dicha dependencia.
+(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 136 del 15 de julio de 2015. Anteriormente se indicaba: “Artículo 36”)

@@ -1,0 +1,1 @@
+Artículo 7º—Los equipos de cómputo o tecnologías relacionadas no podrán ser trasladados a oficinas ajenas a la Municipalidad de Grecia, así como los programas informáticos, sean estos propiedad o no de la Municipalidad, exceptuando el equipo portátil municipal que por su naturaleza es específico para dicha función.

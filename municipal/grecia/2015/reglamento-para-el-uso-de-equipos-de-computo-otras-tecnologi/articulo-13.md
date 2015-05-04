@@ -1,0 +1,1 @@
+Artículo 13.—Ningún funcionario excepto el Coordinador de Servicios Informáticos puede trasladar la información respaldada en las Computadoras de la Municipalidad de Grecia a sitios fuera de la institución.

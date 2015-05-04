@@ -1,0 +1,1 @@
+Artículo 14.—Los funcionarios de la Institución por ningún motivo podrán instalar en los discos duros de las computadoras, programas informáticos no autorizados, tales como: juegos, procesadores de palabras, hojas de cálculo electrónicas que la instalación de software sea controlada en forma centralizada, bloqueando la instalación de computadoras individuales.

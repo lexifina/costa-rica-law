@@ -1,0 +1,1 @@
+Artículo 21.—Únicamente, el Coordinador del Departamento de Servicios Informáticos y los funcionarios a quien éste designe tendrán bajo su responsabilidad las llaves de las instalaciones de los Cuartos de Comunicaciones y de las oficinas del Departamento de Servicios Informáticos.
