@@ -1,0 +1,2 @@
+Artículo 8°—Autorización previa del viaje. Una vez analizados los documentos anteriores, y la oportunidad institucional de realizar o no el viaje propuesto, el Ministro podrá firmar el Formulario de Solicitud de Oficialización de Viaje, autorizando o denegando la solicitud. El Despacho no recibirá formularios incompletos.
+En ningún caso se autorizará un nuevo viaje, ni se podrá girar adelanto alguno al funcionario que tuviere pendiente la liquidación y su informe del viaje anterior.

@@ -1,0 +1,4 @@
+Artículo 5°—Tipos de viaje. Los viajes que realicen los funcionarios del Ministerio y sus Órganos Desconcentrados al exterior del país, deberán clasificarse de la siguiente manera:
+a) Viajes amparados en una Contratación Administrativa: Los generados por una contratación administrativa, que contenga dentro de los requisitos a cumplir por parte del oferente, el proveer entrenamiento a los funcionarios ligados directamente con el bien o servicio objeto de la contratación.
+b) Viajes en representación del país, del Ministerio y/o del Órgano Desconcentrado: Son aquellos que se realizan para participar en reuniones, seminarios, congresos, invitaciones de organizaciones públicas y en donde el funcionario representa a la Institución y/o al país.
+c) Viajes para capacitación en general: Son aquellos que se realizan en atención de una beca, especialización o pasantías, debidamente aprobadas según la normativa vigente.

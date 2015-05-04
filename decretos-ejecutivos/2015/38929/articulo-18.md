@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones Finales
+Artículo 18.—Normativa aplicable. En lo que no resuelva el presente Reglamento, prevalece lo expresamente normado en la Ley de Contratación Administrativa y su Reglamento; en la Ley Reguladora del Otorgamiento de Pasaporte Diplomático y de Servicio; en el Reglamento de Becas y Facilidades de Capacitación y Desarrollo del Recurso Humano del Ministerio de Cultura y Juventud; en el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República; en la Ley de Exoneración de Impuestos de Salida del País; y en la Directriz Nº 7 del Presidente de la República, suscrita a los 12 días del mes de noviembre de 1991, publicada en La Gaceta del 29 de noviembre de ese mismo año.

@@ -1,0 +1,1 @@
+Artículo 12.—Cancelaciones o anulaciones de los acuerdos de viaje. El funcionario que por alguna razón no pueda viajar debe presentar ante el DCI, o ante el EO correspondiente, una nota firmada por él y por su jefe inmediato, donde se indiquen las razones de por qué no se realiza el viaje.

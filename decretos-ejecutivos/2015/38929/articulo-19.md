@@ -1,0 +1,1 @@
+Artículo 19.—Incumplimiento. En caso de incumplimiento de las disposiciones contenidas en este Reglamento, se procederá de conformidad con lo dispuesto en la normativa aplicable a cada falta cometida, según lo indicado en el Decreto Ejecutivo N°33270-C, “Reglamento Autónomo de Servicio del Ministerio de Cultura y Juventud” y normativa vigente.
