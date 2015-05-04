@@ -1,1 +1,0 @@
-Artículo 10.—Condominios. El Adjudicatario debe utilizar y verificar el factor de proporcionalidad que indica el acta constitutiva del condominio, para el cálculo de la parte proporcional de terreno y de obras complementarias, que sumadas al valor de Área Privativa, darán el valor del inmueble sometido al Régimen de Propiedad Horizontal.
