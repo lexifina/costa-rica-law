@@ -1,0 +1,1 @@
+Artículo 5°—Inembargabilidad. Los valores y sus intereses son inembargables excepto por pensión alimentaria, conforme lo dispone el artículo 43 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal.

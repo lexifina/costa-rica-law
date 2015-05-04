@@ -1,0 +1,1 @@
+Artículo 4°—Tasas de interés. Los valores emitidos devengarán la tasa de interés anual que con base en las políticas, directrices y lineamientos aprobados por la Junta Directiva Nacional determine la Gerencia General Corporativa.
