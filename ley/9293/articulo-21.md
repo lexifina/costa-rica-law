@@ -1,0 +1,3 @@
+ARTÍCULO 21.- Ingreso y permanencia temporales
+El ingreso y la permanencia en Costa Rica de la totalidad de personas extranjeras ligadas al Proyecto de Diseño, Rehabilitación y Ampliación de la Ruta Nacional N.° 32, Carretera Braulio Carrillo, Sección Intersección Ruta Nacional N.° 4 (Cruce Sarapiquí) - Limón, será de forma temporal y se regirá por lo establecido en la Ley N.º 8764, Ley General de Migración y Extranjería, de 19 de agosto de 2009, publicada en el diario oficial La Gaceta N.º 170, de 1 de setiembre de 2009, y sus reglamentos.
+La Dirección General de Migración y Extranjería orientará a la empresa contratista en los trámites migratorios respectivos y aplicará los procesos más expeditos contenidos en la legislación migratoria.
