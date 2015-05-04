@@ -1,0 +1,1 @@
+Artículo 3°—Será responsabilidad de cada entidad de la Administración Central llevar a cabo el trámite registral respectivo con el propósito de trasladar el dominio o en su caso desinscribir, los bienes muebles que no formen parte de su flotilla activa.

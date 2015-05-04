@@ -1,0 +1,1 @@
+Artículo 2°—Los bienes muebles que no formen parte de la flotilla activa –o en uso- de la Administración Central, deberán ser reparados, rematados, donados o destruidos según corresponda, antes de presentar el siguiente reporte anual.
