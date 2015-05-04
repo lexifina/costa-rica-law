@@ -1,6 +1,6 @@
-Artículo 75.—A todos los sorteos deben asistir el Gerente de la Junta, el Auditor Interno y el Director de Producción y Ventas, los cuales pueden ser sustituidos en cualquier caso por el representante que designen.
-En calidad de fiscalizador puede asistir un Funcionario Judicial o en su ausencia un Notario de la Institución, según lo determine la Junta Directiva.
-Todos los funcionarios fiscalizadores de la Junta de Protección Social, y el Funcionario Judicial o el Notario, deben presentarse a los sorteos por lo menos treinta minutos antes de su inicio.
-En caso de que a la hora establecida para el inicio del sorteo, no esté presente alguno de los funcionarios fiscalizadores, le corresponde al Gerente o en su ausencia al Subgerente, designar al sustituto, con la excepción del Auditor Interno, quien tiene la responsabilidad de nombrar a su propio representante.
-La remuneración por la asistencia a los sorteos debe ser fijada por la Junta Directiva.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 32739 del 9 de agosto del 2005)
+Artículo 75.—A todos los sorteos deberá asistir el Gerente General, el Gerente de Producción y Comercialización, el Gerente de Operaciones, o sus representantes. Los sorteos de loterías serán ejecutados por los funcionarios fiscalizadores de la Administración Activa.
+La Auditoría Interna fiscalizará de forma independiente la realización de los sorteos en sitio, de conformidad con las competencias asignadas en el artículo Nº 22 de la Ley General de Control Interno Nº 8292, la valoración del riesgo y su Plan Anual de Trabajo. La Auditoría Interna dejará constancia de su fiscalización, mediante documento que será anexado al Libro Auxiliar de los Sorteos.
+En calidad de fiscalizador podrá asistir un Funcionario Judicial o un Notario Público, según lo determine la Junta Directiva.
+Todos los funcionarios fiscalizadores de la Administración Activa de la Junta de Protección Social, y el Funcionario Judicial o el Notario Público, deberán presentarse a los sorteos al menos treinta minutos antes de su inicio. En caso de que a la hora establecida para el inicio del sorteo, no esté presente alguno de ellos, le corresponde al Gerente General o a su representante designar al sustituto.
+La remuneración por la asistencia a los sorteos deberá ser fijada por la Junta Directiva.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39051 del 4 de mayo de 2015)
