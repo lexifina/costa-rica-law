@@ -1,0 +1,1 @@
+Artículo 2º—Reconocer dentro del concepto de viáticos, las cenas de los choferes que laboran en el Ministerio de Cultura y Juventud, cuando éstos en razón de sus funciones, deban laborar dentro del Área Metropolitana después de las diecinueve horas.

@@ -1,0 +1,1 @@
+Artículo 5º—No se reconocerá ningún otro viático a los choferes por los servicios que presten en el Área Metropolitana, fuera de la excepción contemplada en el presente reglamento, salvo aquellas situaciones especiales en que, a criterio razonado de la Administración, se justifique el reconocimiento y pago de estas sumas.
