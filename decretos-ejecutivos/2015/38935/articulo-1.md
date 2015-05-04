@@ -1,0 +1,11 @@
+N° 38935-JP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta número 96 del 21 de mayo del 2001.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones Número 218 de 08-08-39 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación de Padres de Personas Discapacitadas de los Cantones de Orotina, San Mateo, Garabito, cédula de persona jurídica número: 3-002-123802, se inscribió en el Registro de Asociaciones del Registro Público desde el día 14 de enero de 2005, bajo el tomo N° 388, asiento 17192, Expediente N° 4718.
+III.—Que los fines que persigue la Asociación, según el artículo cuarto de sus estatutos, son: “… Artículo cuarto: Los fines de la Asociación son los siguientes: A) Promover la rehabilitación Integral de personas discapacitadas en los Cantones de Orotina, San Mateo y Garabito, mediante el apoyo de los programas en las áreas educativas, profesional y social, a fin de integrarlos como personas útiles a sí mismo y a la comunidad, b) Promover la participación activa de las familias, las personas discapacitadas y la comunidad en general en los programas que desarrolle la Asociación en el área de rehabilitación integral, dirigidos a lograr la incorporación de las personas con necesidades especiales a su contexto, c) Orientar y capacitar a los padres de familia y a la comunidad en general sobre la deficiencia, discapacidad y problemática de las personas con limitaciones especiales…”
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+Decretan:
+Artículo 1°—Declárese de Utilidad Pública para los intereses del Estado la Asociación de Padres de Personas Discapacitadas de los Cantones de Orotina, San Mateo, Garabito, cédula de persona jurídica número: 3-002-123802.
