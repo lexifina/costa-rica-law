@@ -1,0 +1,2 @@
+ARTÍCULO 24.- Elaboración de instrumentos
+El Ministerio de Obras Públicas y Transportes (MOPT) elaborará todos los instrumentos necesarios para una correcta y eficiente planeación, administración y ejecución de las tareas y obras a cargo del Estado en el menor plazo posible, entre ellos la determinación de la ruta crítica, diagramas de Gantt y diagrama Pert. Mantendrá actualizada una bitácora en la que dé cuenta del avance en la ejecución y se puedan determinar las causas y las responsabilidades de los atrasos e inconvenientes.

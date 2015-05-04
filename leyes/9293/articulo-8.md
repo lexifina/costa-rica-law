@@ -1,0 +1,3 @@
+ARTÍCULO 8.- Constitución de la sociedad anónima nacional
+1.- El contratista designado para la ejecución de la obra, según las condiciones dispuestas en los contratos de financiamiento, quedará obligado a crear o utilizar una sociedad anónima domiciliada en la República de Costa Rica, cuyo capital social le pertenecerá en un ciento por ciento (100%), con la cual el contratante suscribirá el contrato comercial. A partir de dicha suscripción se considerará que la empresa nacional será el contratista del proyecto; no obstante, ambas empresas contratistas serán responsables solidariamente en el proyecto y ante el contratante.
+2.- Esta sociedad tendrá como objeto la ejecución del proyecto y le será aplicable el ordenamiento jurídico costarricense.

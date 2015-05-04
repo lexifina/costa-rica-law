@@ -1,0 +1,2 @@
+ARTÍCULO 16.- Contratación de personas y empresas nacionales
+El contratista deberá contratar al menos un cincuenta por ciento (50%) de mano de obra nacional como promedio durante toda la vida del proyecto. En condiciones de igualdad se le dará preferencia a residentes de la provincia de Limón en la medida de lo posible. Asimismo, en caso de acudir a la figura de la subcontratación deberá contratarse a empresas nacionales.
