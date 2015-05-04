@@ -1,0 +1,1 @@
+Artículo 50.—Los funcionarios de la Auditoría una vez finalizado el estudio de control interno y previo a la comunicación oficial del informe, deberán realizar la comunicación verbal para exponer los resultados del estudio ante quienes tengan parte en los asuntos. No procede la comunicación previa de los resultados cuando se trate de informes de Relaciones de hechos.

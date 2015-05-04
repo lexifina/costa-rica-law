@@ -1,0 +1,1 @@
+Artículo 24.—El Auditor Interno presentará ante la Junta Directiva un informe anual de labores conforme lo establecen las normas para el ejercicio de la Auditoría del sector público dictadas por la Contraloría General de la Republica.

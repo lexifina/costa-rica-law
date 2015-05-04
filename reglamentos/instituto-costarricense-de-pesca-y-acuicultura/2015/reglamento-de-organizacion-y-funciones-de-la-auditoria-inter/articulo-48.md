@@ -1,0 +1,1 @@
+Artículo 48.—Las Relaciones de Hechos y las denuncias penales se ajustarán en su contenido a las directrices que promulgue la Contraloría General de la República, de acuerdo con los resultados se comunicarán a la instancia correspondiente para resolver sea el vía administrativa, o judicial.

@@ -1,0 +1,1 @@
+Artículo 53.—Los funcionarios de la Auditoría deberán levantar un acta de discusión del informe, sobre la comunicación verbal, donde se indique fecha, funcionarios presentes y las observaciones realizadas al informe.

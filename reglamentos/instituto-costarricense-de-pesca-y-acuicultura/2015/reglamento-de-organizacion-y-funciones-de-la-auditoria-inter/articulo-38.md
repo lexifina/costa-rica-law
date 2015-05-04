@@ -1,0 +1,1 @@
+Artículo 38.—La Auditoría Interna podrá contar con el apoyo de profesionales o técnicos de diferentes disciplinas sean estos funcionarios o no de la institución, con el objetivo de que lleven a cabo labores de su especialidad en apoyo a las Auditorías que realice la Auditora Interna.

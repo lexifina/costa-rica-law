@@ -1,0 +1,1 @@
+Artículo 51.—Los funcionarios de la Auditoría convocarán por escrito a quienes tengan parte en los asuntos, para realizar la comunicación verbal del informe final de control interno dentro de un plazo razonable.

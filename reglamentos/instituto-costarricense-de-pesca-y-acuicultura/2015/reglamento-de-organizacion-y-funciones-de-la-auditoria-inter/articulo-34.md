@@ -1,0 +1,1 @@
+Artículo 34.—Cuando el Auditor Interno por razones de interés institucional tenga que comunicar al jerarca situaciones respecto a la fiscalización institucional y otros, el jerarca deberá de atenderlo, con la prontitud del caso.

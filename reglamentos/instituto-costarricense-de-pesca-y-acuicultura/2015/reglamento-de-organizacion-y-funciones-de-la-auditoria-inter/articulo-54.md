@@ -1,0 +1,1 @@
+Artículo 54.—Los funcionarios de la Auditoría recibirán las denuncias las cuales pueden ser por escrito o verbales una vez valoradas de acuerdo con su criterio podrán ser atendidas por la Auditoría o tramitadas a la administración para su atención. De acuerdo con lo establecido en el Reglamento de Atención de Denuncia de la Auditoría Interna.

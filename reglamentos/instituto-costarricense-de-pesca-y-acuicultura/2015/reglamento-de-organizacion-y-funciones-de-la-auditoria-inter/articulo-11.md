@@ -1,0 +1,2 @@
+Del auditor interno
+Artículo 11.—Al Auditor Interno le corresponderá la dirección superior y administración de la unidad de Auditoría Interna, quien ejercerá las funciones de jefe del personal, debiendo dictar los lineamientos, directrices, políticas e instrucciones pertinentes, según la normativa jurídica y técnica. Aplicará criterios adecuados en el ejercicio de las competencias y en las relaciones con los sujetos pasivos. Todo lo anterior de conformidad con lo que establecen los artículos 24 y 28 de la Ley Nº 8292 “Ley General de Control Interno”

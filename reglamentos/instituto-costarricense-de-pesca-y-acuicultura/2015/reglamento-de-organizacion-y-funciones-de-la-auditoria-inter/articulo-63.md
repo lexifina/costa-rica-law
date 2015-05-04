@@ -1,0 +1,1 @@
+Artículo 63.—Dejar sin efecto el acuerdo AJDIP/386-2014, del 17/10/2014, que aprueba las modificaciones al Reglamento de organización y funciones de la Auditoría interna del Instituto Costarricense de Pesca y Acuicultura.

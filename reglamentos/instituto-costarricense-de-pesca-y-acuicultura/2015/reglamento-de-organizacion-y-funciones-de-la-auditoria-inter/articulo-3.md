@@ -1,0 +1,1 @@
+Artículo 3°—Les corresponderá al Auditor y al personal de la Auditoría Interna mantener actualizada la misión y visión del departamento de la Auditoría de acuerdo con los cambios institucionales, la cual deberá ser revisada al menos cada tres años.

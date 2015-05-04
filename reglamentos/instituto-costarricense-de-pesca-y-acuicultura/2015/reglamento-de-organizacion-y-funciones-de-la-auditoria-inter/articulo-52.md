@@ -1,0 +1,1 @@
+Artículo 52.—Luego de la comunicación verbal de los resultados del informe de control interno la administración tendrá un plazo de 5 días hábiles para remitir las observaciones previo a emitir el informe oficial.

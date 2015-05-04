@@ -1,0 +1,1 @@
+Artículo 10.—Corresponderá al Auditor Interno presentar a la Junta Directiva, las modificaciones que considere prudentes y de acuerdo con las necesidades actuales, de la estructura organizativa de la unidad de Auditoría Interna de acuerdo con la normativa aplicable y vigente.

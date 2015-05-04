@@ -1,0 +1,1 @@
+Artículo 45.—Para el cabal cumplimiento en el plan anual de trabajo el Auditor Interno propondrá al jerarca en forma oportuna los requerimientos de recursos para poder desarrollar el plan de trabajo dichos recursos serán debidamente justificados e incluirán las necesidades administrativas de la unidad.

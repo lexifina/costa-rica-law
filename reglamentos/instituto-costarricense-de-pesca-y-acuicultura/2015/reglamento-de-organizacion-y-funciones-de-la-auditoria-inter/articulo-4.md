@@ -1,0 +1,1 @@
+Artículo 4°—El Auditor Interno y el personal de la Auditoría estarán obligados a conducirse en sus distintas relaciones internas y externas con el más estricto apego a los códigos éticos, establecidos y aplicables al ejercicio de la Auditoría, así como cualquier otro código ético profesional.

@@ -1,0 +1,1 @@
+Artículo 21.—El Auditor Interno deberá establecer políticas, procedimientos en cuanto al acceso y custodia de la documentación de la Auditoría. Dichas políticas y procedimientos deberán ser actualizados periódicamente.

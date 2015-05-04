@@ -1,0 +1,1 @@
+Artículo 13.—El Auditor Interno responderá por su gestión ante el jerarca y, en lo conducente, ante la Contraloría General de la República. En caso de ausencia temporal del Auditor Interno el sustituto será nombrado de conformidad con los Lineamientos sobre los requisitos de los cargos de Auditor Interno, emitidos por la Contraloría General de la Republica y sus modificaciones.

@@ -1,0 +1,1 @@
+Artículo 46.—La Auditoría Interna deberá comunicar mediante informes los resultados de las Auditorías o estudios especiales sean estos de control interno o de relación de Hechos a los entes competentes según sea el caso, conforme la normativa para el ejercicio de la Auditoría.

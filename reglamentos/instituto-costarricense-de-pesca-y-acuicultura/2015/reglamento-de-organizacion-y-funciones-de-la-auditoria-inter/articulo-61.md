@@ -1,0 +1,1 @@
+Artículo 61.—El Auditor Interno definirá las necesidades de capacitación y los requerimientos de otros recursos que considere necesarios para llevar a cabo la gestión de la Auditoría, las cuales deben ser atendidas por el jerarca.

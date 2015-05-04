@@ -1,0 +1,1 @@
+Artículo 42.—Los funcionarios de la Auditoría Interna deberán mantener dentro y fuera de la institución los valores éticos y morales, que contribuyan con el cumplimiento de las ideas rectoras de la Auditoría Interna, así como todas que demande su posición de funcionario de fiscalización.

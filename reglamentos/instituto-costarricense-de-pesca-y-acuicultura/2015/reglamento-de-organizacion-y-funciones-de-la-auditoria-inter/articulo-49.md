@@ -1,0 +1,1 @@
+Artículo 49.—Los funcionarios de la Auditoría Interna podrán comunicar verbalmente en el transcurso del estudio de control interno para que se corrijan sobre la marcha asuntos que la Auditoría Interna informaría luego por escrito.

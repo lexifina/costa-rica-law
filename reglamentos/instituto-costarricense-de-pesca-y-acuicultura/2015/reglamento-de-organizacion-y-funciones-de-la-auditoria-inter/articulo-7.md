@@ -1,0 +1,2 @@
+Artículo 7°—El Auditor Interno, y el personal de la Auditoría no integrarán grupos de trabajo o comisiones que ejerzan función propia de la administración activa o formar parte de un órgano director de un procedimiento administrativo dentro de la institución.
+En caso de solicitud expresa por parte del Jerarca la participación del Auditor o su personal en grupos de trabajo o comisiones será exclusivamente en función de asesor, relacionada en asuntos de su competencia y no podrá ser con carácter permanente.

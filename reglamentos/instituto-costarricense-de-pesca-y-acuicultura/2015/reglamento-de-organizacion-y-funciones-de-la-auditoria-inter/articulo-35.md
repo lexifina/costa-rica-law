@@ -1,0 +1,1 @@
+Artículo 35.—El Auditor Interno tendrá la plena libertad de suministrar e intercambiar información con la Contraloría General de la República, así como con otros entes y órganos de control que conforme a la Ley correspondan. Sin perjuicio de la coordinación que al respecto deba darse, sin que ello implique limitación al respecto.
