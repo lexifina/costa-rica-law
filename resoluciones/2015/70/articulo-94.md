@@ -1,0 +1,2 @@
+Artículo 94. Derogación de las normas AR-NT-CSV y AR-NT-CSE y del lineamiento ARMT-CVS
+Se derogan las normas AR-NT-CSV “Calidad del suministro eléctrico”, promulgada mediante la resolución RRG-2441-2001 del 21 de diciembre de 2001 y la norma AR-NT-CSE “Calidad de la continuidad del suministro eléctrico”, promulgada mediante la resolución RRG-2442 del 21 de diciembre de 2001. Se deroga el lineamiento técnico AR-MT-CVS “Metodología para la evaluación de la calidad del voltaje de suministro”, emitido mediante la resolución RRG-2709-2002 del 14 de agosto de 2002.

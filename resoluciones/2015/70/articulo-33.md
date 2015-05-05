@@ -1,0 +1,2 @@
+Artículo 33. Estudios de evaluación por parte de la Autoridad Reguladora
+La Autoridad Reguladora efectuará, directamente por su cuenta o mediante contratación de terceros, estudios evaluativos de las condiciones de tensión brindada por las empresas distribuidoras en sus áreas de concesión. También, si lo considerase pertinente podrá hacer uso de equipo y personal técnico de las empresas reguladas, para efectos de la auditoría de los estudios de tensión efectuados por ellas.

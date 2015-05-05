@@ -1,0 +1,2 @@
+Artículo 83. Condiciones de tensión exentas de ser compensadas económicamente
+Las condiciones de tensión de suministro fuera de los rangos permitidos que las empresas eléctricas demuestren ante la Autoridad Reguladora, conforme al procedimiento que esta establezca, que no son de su responsabilidad por ser caso fortuito o fuerza mayor, no serán sujetas a compensación económica. La solicitud de exención debe presentarse en un plazo no mayor de 5 días hábiles, después de detectarse la situación de deficiencia en la tensión de suministro.

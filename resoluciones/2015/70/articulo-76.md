@@ -1,0 +1,2 @@
+Artículo 76. Interrupciones exentas de ser compensadas económicamente
+Las interrupciones que las empresas eléctricas demuestren ante la Autoridad Reguladora y conforme al procedimiento que esta establezca, que no son de su responsabilidad por ser caso fortuito o fuerza mayor, no serán sujetas a compensación económica. La solicitud de exención debe presentarse en un plazo no mayor de 5 días hábiles, a partir del momento en que ocurrió la interrupción.

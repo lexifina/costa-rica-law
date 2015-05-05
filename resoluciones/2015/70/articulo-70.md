@@ -1,0 +1,5 @@
+Artículo 70. Causas externas de las averías
+Corresponde a la interacción o influencia sobre la red del medio ambiente, la actividad humana o de instalaciones eléctricas externas, de acuerdo con la siguiente clasificación:
+a) Influencias medioambientales: por la interacción de la naturaleza con la red: viento, flora, fauna, lluvia, inundaciones, deslizamientos y tormenta eléctrica (rayería), tornados, huracanes, actividad volcánica (lluvia ácida, cenizas), sismos, terremotos, maremotos, incendios forestales y contaminación salina.
+b) Influencias de la actividad humana: por la interacción del hombre con la red: excavaciones, vandalismo, hurto de electricidad, trabajos en edificaciones y exteriores, trabajos de mantenimiento ajenos a la red eléctrica de la empresa, colisión de vehículos, e incendio.
+c) Influencias de instalaciones o redes eléctricas externas: por la interacción de una red sobre otra o por interacción de instalaciones o equipamiento final con la red (sobrecargas de corta o larga duración) y daño o maniobras operativas en instalaciones de abonados u otras empresas eléctricas.

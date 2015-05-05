@@ -1,0 +1,2 @@
+Artículo 84. Estimación del periodo para la compensación económica
+Las condiciones de suministro con condiciones de tensión fuera de las permisibles deberán ser compensadas para las facturaciones correspondientes a los tres meses anteriores a la determinación de la condición deficiente y durante los meses inmediatos siguientes hasta tanto la empresa eléctrica no demuestre haber corregido la situación.

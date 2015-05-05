@@ -1,0 +1,2 @@
+Artículo 35. Auditoria de los programas de medición
+La Autoridad Reguladora en el ejercicio de sus facultades legales podrá por si misma o mediante la contratación de terceros, y cuando lo considere oportuno, auditar los estudios de evaluación de la calidad de la tensión de servicio ejecutados por las empresas distribuidoras. Para efectos de auditoría, las empresas eléctricas deberán contar con toda la información pertinente de conformidad con los artículos: 29, 30, y 32 de la presente norma.

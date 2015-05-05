@@ -1,0 +1,2 @@
+Artículo 90. Registro y tratamiento de perturbaciones
+Semestralmente, conforme a la periodicidad, formato, contenido y estructura de la información establecida por la Autoridad Reguladora, las empresas distribuidoras deberán remitir, un informe del tratamiento de las perturbaciones ocurridas en sus redes de distribución, durante el semestre inmediato anterior. Dicho informe deberá incluir un apartado que abarque los aspectos contemplados en el artículo 73.

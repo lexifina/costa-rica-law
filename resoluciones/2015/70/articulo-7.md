@@ -1,0 +1,2 @@
+Artículo 7. Amplitud de la tensión nominal en baja tensión
+La amplitud de la tensión nominal normalizada (Vn) para las redes de distribución de baja tensión en el punto de entrega se establece en el artículo 8. Los valores de tensión expresados en dichos artículos corresponden a los valores de tensión nominal (Vn), sobre los cuales la empresa distribuidora debe diseñar y operar su sistema de distribución y el interesado debe tomar como base para el diseño de su instalación interna.

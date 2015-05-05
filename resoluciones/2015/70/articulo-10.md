@@ -1,0 +1,4 @@
+Artículo 10. Variaciones de tensión de servicio
+En condiciones normales de explotación, para cada período de una semana (7 días consecutivos), el 95% de los valores eficaces de la tensión de servicio (Vs), promediados en diez minutos, deben situarse en el intervalo normal indicado en el artículo 9.
+Para efectos de evaluación de la calidad de la tensión de suministro, los valores de tensión promediados en diez minutos, que se registren, dadas las características del equipo de medición y registro, como fuera del rango tolerable a consecuencia de interrupciones del servicio, no se contabilizarán.
+Se permitirá que durante el 5% del tiempo restante, los valores promedio de la tensión de servicio Vs estén fuera del rango tolerable, siempre y cuando no se presenten valores fuera del mismo en registros consecutivos y los valores de amplitud de la tensión de servicio, en dichos periodos consecutivos, no sean inferiores al 87% o superiores al 113% de la tensión nominal.
