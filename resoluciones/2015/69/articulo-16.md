@@ -1,0 +1,3 @@
+Artículo 16. Comprobación de las características técnicas de los modelos sujetos a inscripción
+Recibida la solicitud de inscripción de modelo, la Autoridad Reguladora analizará la información suministrada con la solicitud de inscripción y verificará que los modelos de los sistemas de medición posean las características eléctricas, mecánicas, constructivas y tecnológicas adecuadas para su utilización en el país, y que cumplan con los niveles de error establecidos en la normativa ANSI correspondiente.
+La aprobación o rechazo de la inscripción de los modelos se hará en un plazo máximo de 30 días hábiles contados a partir de la fecha de recibo de la solicitud completa, de acuerdo con el procedimiento que establezca la Autoridad Reguladora.

@@ -1,0 +1,3 @@
+Artículo 27. Sello de seguridad de los equipos de prueba
+Los patrones e instrumentos que posean los equipos de prueba para la verificación y calibración de los sistemas de medición no podrán ser manipulados, modificados o alterados en ninguna forma. El mantenimiento preventivo (limpieza, sustitución de piezas dañadas) se realizará siempre y cuando cumplan con las características originales de construcción y garantice las condiciones que tenían originalmente.
+Los patrones deberán poseer un sello de calibración, instalado por el fabricante, o de la entidad certificadora que efectúe las pruebas de contraste y calibración estipuladas en el artículo 28 de esta norma.

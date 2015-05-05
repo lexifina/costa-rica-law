@@ -1,0 +1,3 @@
+Artículo 8. Instalación y ubicación del sistema de medición
+Los sistemas de medición serán instalados de acuerdo con las características del servicio, tomando en cuenta para ello: la seguridad y protección tanto de la instalación eléctrica del abonado como de la empresa; el acceso y facilidades para la instalación y mantenimiento.
+Los sistemas de medición serán ubicados de acuerdo con lo establecido en las normas técnicas “Supervisión de la instalación y equipamiento de acometidas eléctricas (AR-SUINAC)", y “Supervisión de la comercialización del suministro eléctrico en baja y media tensión” (AR-NT-SUCOM) vigentes.

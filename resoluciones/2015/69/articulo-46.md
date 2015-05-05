@@ -1,0 +1,2 @@
+Artículo 46. Determinación del factor de potencia
+Para determinar el factor de potencia, las empresas eléctricas instalarán medidores que determinen el factor de potencia promedio para cada tarifa horaria (pico, valle y nocturno) del periodo a facturar. Para determinar la compensación por bajo factor de potencia se calculará con base en el factor de potencia promedio y la máxima demanda para cada tarifa horaria (pico, valle y nocturno) del periodo a facturar.

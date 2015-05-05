@@ -1,0 +1,2 @@
+Artículo 51. Arquitectura del sistema de medición remota
+Para efectos de seguridad en la lectura en sitio y la comunicación de los datos y el costo, se deberá desarrollar una arquitectura del sistema de medición del tipo distribuido. Otros tipos de arquitecturas podrán ser utilizados, previo estudio técnico-económico por parte de las eléctricas y con previo conocimiento y aprobación por parte de la Autoridad Reguladora.

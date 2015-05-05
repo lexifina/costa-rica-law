@@ -1,0 +1,2 @@
+Artículo 42. Sello de garantía
+Todo medidor al que se le haya retirado el sello de garantía instalado por el fabricante, según lo indicado en el artículo 21 de esta norma, ya sea por haberle realizado pruebas de laboratorio por control estadístico, queja por alto consumo o uso ilícito de energía, reparación o calibración, deberá ser sellado nuevamente, previa verificación del buen funcionamiento del mismo, por un laboratorio de calibración y ensayo o unidad de verificación.

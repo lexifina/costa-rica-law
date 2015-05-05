@@ -1,0 +1,2 @@
+Artículo 34. Indicación de la constante de medición
+En los sistemas de medición con transformadores de instrumento, las empresas eléctricas deberán indicar las razones de transformación y la constante total de medición, en un lugar visible, pero que no obstruya la visibilidad de la placa de características del contador ni la pantalla del mismo. Dichas indicaciones deben ser resistentes a la humedad y a los rayos solares.

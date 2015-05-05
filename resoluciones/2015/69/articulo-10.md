@@ -1,0 +1,2 @@
+Artículo 10. Mantenimiento de los sistemas de medición
+Las empresas distribuidoras, transmisoras y generadoras están en la obligación de mantener en buen estado de funcionamiento los sistemas de medición, utilizando para ello los procedimientos y controles pertinentes, y realizando a sus sistemas de medición las pruebas técnicas y estadísticas establecidas en esta norma, y siguiendo los protocolos establecidos por el Operador del Sistema y aprobados por la Autoridad Reguladora, en salvaguardia de la seguridad operativa del SEN.

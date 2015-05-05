@@ -1,0 +1,2 @@
+Artículo 48. Establecimiento de protocolos y procedimientos
+Los laboratorios de calibración elaborarán y mantendrán actualizados los procedimientos y protocolos de examen a utilizarse en las diferentes pruebas y controles estadísticos establecidos en la presente norma técnica, los cuales deberán ser remitidos a la Autoridad Reguladora para su aprobación cada dos años o cuando la técnica lo amerite y el laboratorio lo considere necesario.

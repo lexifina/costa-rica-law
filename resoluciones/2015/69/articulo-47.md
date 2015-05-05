@@ -1,0 +1,2 @@
+Artículo 47. Ajuste del reloj en medidores multitarifa
+Las empresas eléctricas ajustarán el reloj de los medidores multitarifa, utilizando un equipo electrónico remoto o portátil que mantenga su reloj sincronizado de acuerdo con la hora oficial del servicio telefónico 1112. Sin embargo, en caso de presentarse controversia respecto de la hora, se tendrá como hora oficial la establecida por el Instituto Meteorológico Nacional, entidad encargada de fijarla, de acuerdo con el Decreto Ejecutivo Nº 30 del 22 de mayo de 1954, publicado en La Gaceta Nº 120 del 30 de mayo de 1954.

@@ -1,0 +1,2 @@
+Artículo 58. Vigencia
+Esta disposición rige a partir de su publicación en el diario oficial La Gaceta.

@@ -1,0 +1,2 @@
+Artículo 52. Seguridad y medios de comunicación
+Las empresas deben establecer los medios de comunicación y el equipamiento necesario para asegurar la calidad y seguridad en la recolección de datos, su transmisión a los centros de control y su procesamiento, conforme a la normativa internacional y en concordancia con la norma ANSI C12.22 “Protocol specification for interfacing to data communication networks”.

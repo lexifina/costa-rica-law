@@ -1,0 +1,2 @@
+Artículo 29. Realización de auditorías técnicas por parte de la Autoridad Reguladora
+Los laboratorios de medición deberán someterse a las auditorías establecidas por la norma ISO-17025. No obstante ello, la Autoridad Reguladora en el ejercicio de sus facultades y cuando lo considere pertinente, efectuará auditorias técnicas para verificar que los laboratorios de medición y sus dispositivos cumplan con las condiciones especificadas en esta norma técnica.

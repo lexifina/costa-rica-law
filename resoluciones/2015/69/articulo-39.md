@@ -1,0 +1,7 @@
+Artículo 39. Criterio de aprobación o rechazo a medidores en uso
+El procedimiento de muestreo de los lotes de medidores en uso se realizará estadísticamente, según el lote de medidores instalados en el año en estudio, de la siguiente manera:
+Lotes de medidores instalados menores a diez mil unidades: La Aresep seleccionará aleatoriamente una muestra de cuarenta medidores (40) a los cuales se les realizarán todas las pruebas de exactitud. El lote será aceptado si de la muestra un único medidor no supera las pruebas requeridas. La totalidad del lote instalado ese año será revisado cuando cinco o más de ellos no superen las pruebas.
+Cuando sean dos, tres o hasta cuatro medidores que no cumplan las pruebas requeridas, se procederá a extraer de ese mismo lote una segunda muestra de cuarenta medidores (40), para un tamaño de muestra acumulada de ochenta unidades (80).
+El lote será aceptado en su totalidad cuando de esa muestra acumulada cuatro medidores no superen las pruebas. La totalidad del lote instalado ese año será revisado cuando cinco o más contadores de
+la muestra acumulada no superen las pruebas. Y se realizarán las sustituciones necesarias.
+Lotes de medidores instalados mayores a diez mil unidades: Se aplicará el mismo procedimiento con los valores establecidos en la Tabla Nº 1. En los casos de los contadores que no superen las pruebas, las empresas eléctricas realizarán las sustituciones necesarias.
