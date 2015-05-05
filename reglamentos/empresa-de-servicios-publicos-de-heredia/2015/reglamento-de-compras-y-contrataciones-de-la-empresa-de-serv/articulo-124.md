@@ -1,0 +1,1 @@
+124.—Se elaborará un contrato para cada una de las adquisiciones de obras y servicios que contraiga la ESPH S. A., con terceros, cuando así lo establezca las condiciones del cartel, o lo requieran las partes.

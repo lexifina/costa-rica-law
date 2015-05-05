@@ -1,0 +1,1 @@
+44.—En el caso de las Compras Directas, (establecido en el inciso a) puntos III., IV. y V., Artículo 28) de obras o servicios; los requerimientos se harán por escrito en la invitación a participar. La presentación de las ofertas se realizará por escrito y entregadas en la Unidad de Adquisiciones hasta la hora y fecha fijada previamente.

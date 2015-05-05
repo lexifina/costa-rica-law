@@ -1,0 +1,1 @@
+93.—El Proceso o Unidad solicitante de un servicio técnico y/o profesional designará un funcionario de su dependencia, el cual realizará la función de fiscalizador de la contratación en la ejecución y de los resultados de los servicios contratados, así como de comunicar a la Unidad de Adquisiciones sobre cualquier situación que se presente y afecte los intereses de la ESPH S. A.

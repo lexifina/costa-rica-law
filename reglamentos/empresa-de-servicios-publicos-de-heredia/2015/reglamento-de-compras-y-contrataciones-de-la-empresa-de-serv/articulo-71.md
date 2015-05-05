@@ -1,0 +1,1 @@
+71.—Tratándose de contrataciones de servicios recurrentes, en el Cartel se deberá establecer el plazo del contrato el cual no podrá ser superior a tres años (3 años). La Gerencia General, cuando convenga a los intereses de la ESPH S.A, podrá prorrogarlo por un plazo que no sea superior a un año (1 año).

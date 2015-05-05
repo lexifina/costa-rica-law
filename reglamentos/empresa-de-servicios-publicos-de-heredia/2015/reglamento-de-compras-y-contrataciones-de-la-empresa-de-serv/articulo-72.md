@@ -1,0 +1,1 @@
+72.—Solamente se autorizarán prórrogas para la ejecución del contrato, por razones de fuerza mayor o caso fortuito, o a conveniencia de las partes debidamente acreditada por el contratista o por demoras ocasionadas por la propia administración.

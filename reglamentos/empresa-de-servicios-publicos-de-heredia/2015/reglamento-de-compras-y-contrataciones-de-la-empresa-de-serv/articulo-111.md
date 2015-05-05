@@ -1,0 +1,1 @@
+111.—La ESPH S. A., suspenderá por dos años al proveedor que entregue dádivas, comisiones o regalías a cualquier funcionario de la ESPH S. A., para obtener ventaja en alguna contratación de bienes y/o servicios.

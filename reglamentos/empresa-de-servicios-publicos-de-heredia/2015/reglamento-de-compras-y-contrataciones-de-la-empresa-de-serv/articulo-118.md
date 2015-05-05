@@ -1,0 +1,1 @@
+118.—Se podrán realizar ventas directas de bienes, materiales y equipos de uso normal y ordinario a las subsidiarias de la ESPH S. A., instituciones o empresas afines con la actividad de ésta, lo anterior considerando los precios de mercado y con la aprobación de la Junta Directiva.

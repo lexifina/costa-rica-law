@@ -1,0 +1,1 @@
+140.—Una vez firmado el contrato por las partes interesadas, la Dirección de Asesoría Jurídica tendrá dos días hábiles para remitir a la Unidad de Adquisiciones el documento original, junto con las especies fiscales respectivas según corresponda a cada contrato.

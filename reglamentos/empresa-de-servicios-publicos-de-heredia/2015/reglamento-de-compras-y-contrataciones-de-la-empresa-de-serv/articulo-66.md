@@ -1,0 +1,1 @@
+66.—Cuando se demuestre que un recurso de revocatoria es evidentemente improcedente por fundamentación errónea o falta de esta, la administración archivará el recurso sin mayor trámite que la comunicación al interesado del porqué de dicha decisión.

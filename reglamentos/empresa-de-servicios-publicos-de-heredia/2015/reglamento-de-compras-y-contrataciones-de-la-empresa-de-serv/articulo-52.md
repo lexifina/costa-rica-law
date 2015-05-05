@@ -1,0 +1,1 @@
+52.—En caso que por alguna de las razones establecidas en la normativa, un concurso se declare o resulte desierto o infructuoso, deberá constar una resolución razonada en el expediente, por parte de la Unidad Interesada, sin esta resolución no podrá iniciarse nuevamente el proceso de contratación.

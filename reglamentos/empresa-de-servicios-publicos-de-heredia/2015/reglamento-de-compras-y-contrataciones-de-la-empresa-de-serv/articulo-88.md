@@ -1,0 +1,1 @@
+88.—El Encargado del Almacén, tendrá la obligación de verificar que los artículos que está recibiendo estén de acuerdo con los requisitos y características señaladas en la orden de compra y la factura respectiva.

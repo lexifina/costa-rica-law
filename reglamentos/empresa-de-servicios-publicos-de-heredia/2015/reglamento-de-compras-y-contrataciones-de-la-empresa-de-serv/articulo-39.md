@@ -1,0 +1,1 @@
+39.—Si los carteles mencionan normas de calidad que deban ajustarse al equipo o los materiales, las especificaciones deben indicar también que serán aceptables bienes que cumplan con otros estándares bien conocidos, que aseguren calidad igual o superior a las normas mencionadas.

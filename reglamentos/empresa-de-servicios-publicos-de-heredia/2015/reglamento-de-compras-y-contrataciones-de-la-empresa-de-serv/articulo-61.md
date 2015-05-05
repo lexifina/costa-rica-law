@@ -1,0 +1,1 @@
+61.—Dentro de los cinco días hábiles siguientes a la notificación de la adjudicación, el concursante favorecido debe presentar la garantía de cumplimiento, pudiendo ampliarse este plazo si existiere una causal justificada por parte del administrador de contrato.

@@ -1,0 +1,1 @@
+144.—Todo addendum o ajuste que se realice a un contrato de bienes y/o servicios que ha sido refrendado, será tramitado para su refrendo contralor igual que el principal, siguiendo los mismos plazos y aprobaciones internas.

@@ -1,0 +1,1 @@
+51.—Un concurso será declarado desierto, si ninguna de las ofertas cumple con lo establecido en el cartel, y/o no resulten aptas para la satisfacción del interés general de la ESPH S. A. La Unidad Interesada, enviará un dictamen a la Unidad de Adquisiciones y éste lo elevara a la Comisión Asesora, para su conocimiento y posterior comunicación a los participantes.

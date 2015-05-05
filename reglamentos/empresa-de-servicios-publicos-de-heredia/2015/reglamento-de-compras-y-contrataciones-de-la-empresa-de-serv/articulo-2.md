@@ -1,0 +1,1 @@
+2º—Los plazos y términos establecidos en el presente Reglamento de compras y contrataciones de la ESPH S. A., son de acatamiento general y se entenderán como días hábiles. Por conveniencia u oportunidad se podrán ampliar, sin responsabilidad alguna para la ESPH S. A.

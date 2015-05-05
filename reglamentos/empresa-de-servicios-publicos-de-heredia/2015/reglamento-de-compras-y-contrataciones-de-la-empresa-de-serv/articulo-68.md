@@ -1,0 +1,1 @@
+68.—En los contratos de ejecución de obras o de compras especiales que lo ameriten, la ESPH S. A., podrá incorporar en el cartel una cláusula de reajuste de precios para compensar a los eventuales adjudicatarios las diferencias derivadas de la variación en los índices de precios, así como la fórmula matemática aplicable o la referencia respectiva.

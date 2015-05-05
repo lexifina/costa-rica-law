@@ -1,0 +1,1 @@
+117.—Tales bienes podrán ser vendidos mediante el procedimiento de remate, subasta a la baja o cualquier otro procedimiento de contratación que establezca el presente Reglamento, siempre que se haya cumplido por lo dispuesto en los artículos 107 y 108.

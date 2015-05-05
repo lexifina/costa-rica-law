@@ -1,0 +1,1 @@
+10.—Adicionalmente participarán en la C.A.C. con voz pero sin voto, cualquier funcionario de la ESPH S. A., cuando se considere oportuno a criterio de la Comisión y deberán consignarse en el Acta, todos los participantes incluso aquellos que no tengan voto.

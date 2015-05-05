@@ -1,0 +1,1 @@
+133.—En los casos que aplique, la Unidad de Adquisiciones una vez que reciba el contrato en el que conste la rúbrica de las partes contratantes, así como el expediente administrativo completo, procederá al término de tres días hábiles máximo a ordenar la remisión del contrato a la Contraloría General de la República para su refrendo cuando corresponda.

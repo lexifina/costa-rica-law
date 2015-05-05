@@ -1,0 +1,1 @@
+143.—Luego de recibir el refrendo contralor es responsabilidad del área de Adquisiciones, comunicar a las Unidades Interesadas dicha aprobación. Asimismo, remitirá para su custodia un original del contrato refrendado a la Dirección de Asesoría Jurídica, así como fotocopia del mismo al área o áreas interesadas.

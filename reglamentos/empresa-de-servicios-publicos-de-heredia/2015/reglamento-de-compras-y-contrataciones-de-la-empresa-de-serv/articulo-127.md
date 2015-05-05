@@ -1,0 +1,1 @@
+127.—La Dirección de Asesoría Jurídica redactará únicamente contratos que se firmen e inicien su ejecución en fecha posterior a la emisión de la Autorización de Compra respectiva, no será admisible solicitudes de elaboración de contrato cuando las obras se hubiesen iniciado o el servicio hubiese sido recibido.

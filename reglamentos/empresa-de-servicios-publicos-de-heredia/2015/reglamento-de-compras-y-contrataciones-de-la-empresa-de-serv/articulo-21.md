@@ -1,0 +1,1 @@
+21.—La ESPH S.A, se reservará el derecho de ampliar en cualquier momento, el Registro de Proveedores o de excluir de éste a aquellos oferentes que no reúnan las condiciones reglamentarias, que se encuentren afectos a las prohibiciones y restricciones que en él se contemplan o que por el historial de participación se establezca que no convenga a los intereses de la ESPH S. A.
