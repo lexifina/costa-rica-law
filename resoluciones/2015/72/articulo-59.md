@@ -1,0 +1,3 @@
+Artículo 59. Daños al sistema de medición
+La empresa eléctrica aportará el sistema de medición y brindará el mantenimiento preventivo y correctivo a sus contadores eléctricos y demás equipos. Que el abonado por su parte velará por el buen estado del sistema de medición colocado en sus instalaciones y deberá informar de inmediato a la empresa sobre cualquier daño físico observado que se le haya ocasionado al equipo.
+De probar la empresa eléctrica, que los daños a los equipos son atribuibles al abonado, deberá efectuar el debido proceso a fin de que asuma los costos correspondientes a su reparación o reposición.

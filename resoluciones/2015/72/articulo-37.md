@@ -1,0 +1,2 @@
+Artículo 37. Reubicación de contador o conductores de acometida
+Cuando a solicitud del abonado o usuario o por causas imputables a éste, se requieran reubicar el contador, los conductores de acometida o ambos, los costos en los que se incurra correrán por cuenta del abonado o usuario. En ambos casos el medidor debe ubicarse tal y como lo establece la Norma Técnica “Supervisión de la Instalación y equipamiento de acometidas eléctricas" (AR-NT-SUINAC) vigente.

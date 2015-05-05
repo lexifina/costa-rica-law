@@ -1,0 +1,2 @@
+Artículo 55. Remisión de información sobre quejas. Indicadores
+Las empresas eléctricas deberán remitir a la ARESEP un informe semestral sobre las quejas o reclamos que los abonados o usuarios formulen, así como otros indicadores del desempeño de la gestión comercial de la empresa eléctrica (Capítulo XII). Dicho informe deberá presentarse con el formato, periodicidad y fechas que indique la ARESEP oportunamente.

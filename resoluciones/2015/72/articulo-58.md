@@ -1,0 +1,3 @@
+Artículo 58. Disconformidad en la facturación
+Cuando un abonado o usuario presente una queja por alto consumo, antes del vencimiento del recibo, mientras se resuelve la misma, la empresa eléctrica podrá cobrar el importe promedio de las últimas seis facturaciones reales. Los estudios pertinentes deberán realizarse en un plazo no mayor que 15 días hábiles.
+De resultar correcta la facturación emitida en su oportunidad, la empresa eléctrica incluirá en una facturación extraordinaria la diferencia pendiente de cancelar por el abonado o usuario. Si el abonado o usuario no está conforme con lo resuelto por la empresa eléctrica, podrá presentar las impugnaciones señaladas en la Ley General de la Administración Publica o acudir a la ARESEP a plantear la queja correspondiente.

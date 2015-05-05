@@ -1,0 +1,2 @@
+Artículo 30. Autorización
+Que el abonado o usuario permitirá la entrada, en horas hábiles, a los empleados identificados de la empresa para cualquier fin relacionado con el servicio eléctrico suministrado a la edificación. Si fuera necesario el ingreso en horas no hábiles se deberá coordinar, previo a la visita, con el abonado o usuario. Si no permite el ingreso a sus instalaciones se le notificará, siguiendo el debido proceso, de la situación por la que se solicita el ingreso y las consecuencias de su no autorización.

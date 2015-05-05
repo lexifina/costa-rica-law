@@ -1,0 +1,2 @@
+Artículo 103. Indicadores de quejas por otros aspectos
+Los indicadores de quejas por otros aspectos miden la gestión de la empresa en lo que respecta a la atención expedita, oportuna y eficiente de quejas presentadas por los abonados y usuarios en áreas diferentes a las de facturación, medición y problemas en la calidad de la energía eléctrica de acuerdo con lo indicado en el artículo 72. Son los estipulados en los artículos del 104 al 107.

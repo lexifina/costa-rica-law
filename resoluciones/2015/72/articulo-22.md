@@ -1,0 +1,4 @@
+Artículo 22. Inspección
+La empresa tiene el derecho, pero no la obligación, de inspeccionar en cualquier momento la instalación eléctrica de la edificación del abonado o usuario y podrá negarse a conectar o podrá suspender un servicio según corresponda, en una edificación cuya instalación no esté conforme con la normativa vigente.
+La inspección que realice la empresa eléctrica no corresponde a la verificación de la instalación interna establecida en el artículo 5 del “Reglamento de oficialización del Código Que eléctrico de Costa Rica para la seguridad de la vida y de la propiedad”, Decreto Ejecutivo N° 36979-MEIC.
+Que el hecho de efectuar o no tal inspección, no hará responsable a la empresa ni a sus empleados de cualquier pérdida, daño o accidente que resultare por defectos de la instalación eléctrica de la edificación o equipo del abonado o usuario.

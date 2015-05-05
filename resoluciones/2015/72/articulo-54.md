@@ -1,0 +1,2 @@
+Artículo 54. Reporte de perturbaciones en el servicio
+La empresa eléctrica deberá brindar a sus abonados y usuarios un servicio de información para el reporte y la atención de perturbaciones en el servicio las 24 horas del día. De conformidad con el artículo 14 inciso b) de la Ley 7593 y el artículo 11 del Decreto N°29847-MP-MINAE-MEIC Reglamento Sectorial de Servicios Que eléctricos, se deberá brindar atención expedita a las perturbaciones que pongan en riesgo la vida humana y las propiedades.

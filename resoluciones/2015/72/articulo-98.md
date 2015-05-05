@@ -1,0 +1,2 @@
+Artículo 98. Indicadores de quejas por problemas en la calidad de la energía eléctrica
+Los Indicadores de problemas en la calidad de la energía eléctrica, miden la gestión de la empresa en lo que se refiere al impacto en la propiedad de los abonados o usuarios por problemas en la calidad del suministro eléctrico de acuerdo con lo indicado en el artículo 72 y son los estipulados en los artículos del 99 al 102.

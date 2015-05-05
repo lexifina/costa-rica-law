@@ -1,0 +1,2 @@
+Artículo 110. Cálculo de los indicadores de gestión técnica y comercial
+Los indicadores de gestión técnica y comercial se calcularán semestralmente y deberán ser reportados a la Autoridad Reguladora en el formato electrónico editable y con las respectivas formulas y enlaces correspondientes, por el medio y en las fechas que establezca oportunamente la Autoridad Reguladora. Además el informe presentado deberá incluir un análisis crítico sobre las razones que originan las quejas de mayor incidencia y las medidas correctivas a implementar por la empresa eléctrica.

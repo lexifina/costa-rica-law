@@ -1,0 +1,4 @@
+Artículo 113. Red interna del condominio: su operación y mantenimiento
+En los condominios servidos a media tensión el costo, instalación, mantenimiento de la red eléctrica a media y baja tensión (incluyendo el equipo de transformación, de monitoreo y protección), de uso común de los condóminos, para la distribución interna del servicios de electricidad, correrá por cuenta del administrador del condominio.
+Sobre la red eléctrica interna de uso común de los condominios, deberá de constituirse servidumbre a favor de la empresa distribuidora para efectos de la actividad de comercialización de la energía para uso final.
+Correrá por cuenta también del condominio, los costos de operación de la red interna del condominio, salvo lo referente a la operación asociada a la comercialización de la energía (instalación, retiro y lectura de contadores eléctricos; corta y reconexión de servicios).

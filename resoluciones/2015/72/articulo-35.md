@@ -1,0 +1,2 @@
+Artículo 35. Instalación y ubicación del sistema de medición
+Que el sistema de medición tiene que ser instalado en lugares accesibles, que faciliten su lectura, inspección, reparación, reemplazo y análisis de la calidad del suministro, por parte de los funcionarios de la empresa distribuidora o comercializadora o de la Autoridad Reguladora, según se establece en la norma “Supervisión de la Instalación y equipamiento de acometidas eléctricas" (AR-NT-SUINAC), la presente norma y en las demás disposiciones que la ARESEP emita al respecto.

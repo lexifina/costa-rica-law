@@ -1,0 +1,12 @@
+CAPÍTULO XV
+EXTENSIONES Y ADECUACIONES DE RED
+Artículo 123. Extensiones de líneas mayores a un kilómetro
+Cuando para otorgar un servicio eléctrico se requiera una extensión de la red a media tensión de la empresa sobre vía pública, el abonado o usuario deberá correr con los gastos de la construcción de dicha extensión, de acuerdo con las siguientes reglas:
+a) Si éstas no están dentro de los planes de expansión a corto plazo, ni en los programas de inversión de la empresa y además, no son rentables técnica y económicamente para ella, el costo de la obra correrá por cuenta del interesado o abonado.
+b) Si éstas no están dentro de los planes de expansión de la empresa ni dentro de los programas de inversión, pero son rentables técnica y económicamente para ella, el costo de la obra correrá por cuenta de la empresa, previo un “aporte reembolsable” del interesado.
+La empresa le reintegrará al interesado dicho aporte dentro de un plazo razonable que no superará los cinco años, empleando un mecanismo (elaborado por la empresa y sometido a aprobación de la Autoridad Reguladora), que considere, entre otras cosas: los ingresos que la operación de esta obra genere, la depreciación y la garantía de la utilización del servicio que permita la recuperación de lo invertido por la empresa.
+c) Si están dentro de los planes de expansión a corto plazo de la empresa y dentro de los programas de inversión, independientemente de su rentabilidad técnica y económica para ella, el costo de la obra le corresponderá a ésta, por cuanto ya están incluidas dentro de su base tarifaria.
+No obstante, si el interesado requiere el servicio antes de lo previsto en el plan de inversiones, éste deberá efectuar un “aporte reembolsable”, a efectos de que no se alteren los programas de la empresa.
+d) En el caso de urbanizaciones, el costo de las extensiones o adecuaciones correrán por cuenta del urbanizador.
+e) Para obras de bien social o de emergencia, la empresa eléctrica deberá contar con un fondo, del cual pueda disponer dineros para las ejecuciones respectivas dentro de los plazos que estime deben realizarse.
+f) Para toda construcción o adecuación de red en el ámbito de media o baja tensión, que se efectúe dentro de propiedad privada, el costo correrá por cuenta del interesado, salvo aquellos casos en que la empresa eléctrica solicite servidumbre para el paso de sus redes por dichas propiedades, el cual correrá por cuenta de la empresa eléctrica.

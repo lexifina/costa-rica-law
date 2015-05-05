@@ -1,0 +1,3 @@
+Artículo 112. Tensión de suministro y punto de entrega de la energía
+La tensión de suministro en condominios será en media tensión, por tanto el punto de entrega de la energía será en los terminales de carga del medio de desconexión que instale la empresa eléctrica en la acometida.
+No obstante lo anterior, en condominios residenciales, comerciales o generales con una cantidad de servicios menor o igual a seis, y cuya demanda agregada de diseño no supere 50 kVA monofásicos, la tensión de suministro podrá ser a baja tensión, siendo el punto de entrega de la energía los terminales de carga del medidor de energía eléctrica de cada servicio.

@@ -1,0 +1,3 @@
+Artículo 47. Cargo por cancelación tardía y reconexión
+Cuando el abonado o usuario cancele la factura correspondiente al consumo de su servicio en fecha posterior a la indicada para su vencimiento, deberá pagar un importe adicional del 3% sobre el monto de la factura, correspondiente a energía y demanda, según corresponda. Dicho recargo podrá incorporarse en la factura correspondiente al periodo siguiente.
+Por la reconexión del servicio eléctrico suspendido por falta de pago, el abonado o usuario deberá cancelar la suma que haya fijado la ARESEP para cubrir el costo de la reconexión, además del importe adicional por cancelación tardía y las cuentas pendientes por el servicio suspendido.

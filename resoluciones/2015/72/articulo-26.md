@@ -1,0 +1,29 @@
+Artículo 26. Clasificación de servicios
+Para efectos de clasificación se establecen, en función de la tensión de suministro de energía eléctrica, de conformidad con lo estipulado en la norma técnica AR-NT-SUCAL “Supervisión de la calidad del suministro eléctrico en baja y media tensión” vigente, los siguientes tipos de servicios:
+Monofásico a baja tensión: Para cargas declaradas iguales y menores a 50kVA
+B1: Tensión nominal de suministro: 120 V, bifilar (solo para servicios existentes, no se permite la instalación de nuevos servicios bajo esta categoría, salvo para servicios sin medición tales como, semáforos, teléfonos públicos, vallas publicitarias, amplificadores de señal de televisión e internet por cable).
+B2: Tensión nominal de suministro: 120/240 V, monofásico trifilar.
+Medición: Un único sistema, compuesto por un medidor monofásico trifilar o monofásico bifilar según corresponda.
+Alimentación: Desde las redes de baja tensión de la empresa eléctrica, hacia los terminales de carga del contador de energía eléctrica en la acometida del servicio o hasta los terminales de entrada del interruptor en servicios servidos sin medidor.
+Trifásico a baja tensión: Para cargas declaradas menores o iguales a 150 kVA.
+B3: Tensión nominal de suministro: 120/208 V, cuatro hilos, conexión estrella.
+B4: Tensión nominal de suministro: 120/208 V, tres hilos (Network), conexión estrella.
+B5: Tensión nominal de suministro: 277/480 V, cuatro hilos, conexión estrella.
+B6: Tensión nominal de suministro 240 V, tres o cuatro hilos, conexión delta.
+B7: Tensión nominal de suministro, 480 V, tres o cuatro hilos, conexión delta.
+Medición: Un único sistema de medición a baja tensión, con medidor network o medidor trifásico, tres o cuatro hilos, según corresponda. Para servicios en donde se facture energía y potencia, el sistema de medición debe contar con registro de máxima demanda y factor de potencia. En el caso de servicios industriales, con consumos mensuales mayores a 3000 kWh, además deberá registrar los parámetros de calidad (tiempos de interrupción de servicio y variaciones de tensión) por lo que deberá estar ajustado para verificar las condiciones de suministro de tensión establecidas en la norma técnica AR-NT-SUCAL “Supervisión de la calidad del suministro eléctrico en baja y media tensión” vigente. En todos los casos el sistema de medición debe ajustarse a los tiempos de integración y registro correspondientes a la tarifa aplicable y a lo establecido en la norma técnica AR-NT SUMEL “Supervisión del uso, funcionamiento y control de medidores de energía eléctrica”, vigente.
+Alimentación: Desde las redes de baja tensión de la empresa eléctrica, hacia los terminales de carga del medidor o hacia los terminales del lado de la carga del medio de desconexión que instala la empresa en la acometida, según corresponda.
+Monofásico a media tensión: Para cargas declaradas superiores a 50 kVA y menores o iguales que 150 kVA
+M5: Tensión nominal de suministro 2 400 V, dos hilos.
+M6: Tensión nominal de suministro 7 960 V, dos hilos.
+M7: Tensión nominal de suministro 14 400 V, dos hilos.
+M8: Tensión nominal de suministro 19 920 V, dos hilos.
+Medición: Un único sistema de medición a media tensión, con medidor monofásico tres o cuatro hilos, según corresponda. Para servicios en donde se facture energía y potencia, el sistema de medición debe contar con registro de máxima demanda, factor de potencia y en el caso servicios de industriales además deberá registrar los parámetros de calidad (tiempos de interrupción de servicio y variaciones de tensión) por lo que deberá estar ajustado para verificar las condiciones de suministro de tensión establecidas en la norma técnica AR-NT-SUCAL “Supervisión de la calidad del suministro eléctrico en baja y media tensión” vigente. En todos los casos el sistema de medición debe ajustarse a los tiempos de integración y registro correspondientes a la tarifa aplicable y a lo establecido en la norma técnica AR-NT SUMEL “Supervisión del uso, funcionamiento y control de medidores de energía eléctrica”, vigente.
+Alimentación: Desde las redes de media tensión de la empresa eléctrica, hacia las terminales de carga del medio de desconexión que instala la empresa eléctrica en la acometida.
+Trifásico a media tensión: Para cargas declaradas superiores a 150 kVA.
+M1: Tensión nominal de suministro: 4 160 V, cuatro hilos, conexión estrella.
+M2: Tensión nominal de suministro: 13 800 V, cuatro hilos, conexión estrella.
+M3: Tensión nominal de suministro: 24 940 V, cuatro hilos, conexión estrella.
+M4: Tensión nominal de suministro: 34 500 V, cuatro hilos, conexión estrella.
+Medición: Un único sistema de medición a media tensión, con medidor trifásico, tres o cuatro hilos, según corresponda. Para servicios en donde se facture energía y potencia, el sistema de medición debe contar con registro de máxima demanda, factor de potencia y en el caso de servicios industriales además deberá registrar los parámetros de calidad (tiempos de interrupción de servicio y variaciones de tensión, distorsión armónica de tensión y corriente) por lo que deberá estar ajustado para verificar las condiciones de suministro de tensión establecidas en la norma técnica AR-NT-SUCAL “Supervisión de la calidad del suministro eléctrico en baja y media tensión” vigente. En todos los casos el sistema de medición debe ajustarse a los tiempos de integración y registro correspondientes a la tarifa aplicable y a lo establecido en la norma técnica AR-NT SUMEL “Supervisión del uso, funcionamiento y control de medidores de energía eléctrica”, vigente.
+Alimentación: Desde las redes de media tensión de la empresa eléctrica, hacia las terminales de carga del medio de desconexión que instala la empresa eléctrica en la acometida.

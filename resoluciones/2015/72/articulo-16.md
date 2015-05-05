@@ -1,0 +1,2 @@
+Artículo 16. Uso de plantas de emergencia
+Los abonados o usuarios que posean y operen plantas de emergencia deberán garantizar que bajo ninguna circunstancia operarán en paralelo con la red eléctrica y deberán dotar a los grupos electrógenos de las protecciones necesarias y pertinentes de tal forma que se garantice la desconexión, inmediata en caso de operación en paralelo. Que el incumplimiento de esta disposición obligará a que el abonado o usuario asuma los daños y perjuicios que ocasione.
