@@ -1,0 +1,1 @@
+Artículo 34.—El titular subordinado será el responsable por el cumplimiento de las funciones de la Unidad de control sobre uso, asignación y mantenimiento de vehículos y maquinaria, o de su correspondiente supervisión en caso de asignación de dichas funciones.

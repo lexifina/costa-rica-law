@@ -1,0 +1,1 @@
+Artículo 17.—Será labor de la administración realizar supervisión y evaluación permanente de los procedimientos que se están ejecutando y cerciorarse que estos se cumplan como se ha establecido. Asimismo pasar el informe correspondiente de dichos procesos al Concejo en los meses de agosto y febrero.
