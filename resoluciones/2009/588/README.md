@@ -14,3 +14,4 @@ Revocación parcial de oficio de la Resolución N° 016 del 11 de marzo de 2009,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-12-17 | la propia norma |
+| 2 | 2015-05-06 | Resolución 78 (2015-05-06) |

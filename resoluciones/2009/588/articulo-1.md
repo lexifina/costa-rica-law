@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENCIA DE TELECOMUNICACIONES
+(Esta norma fue revocada por el punto 1 de la resolución N° RCS-078 del 6 de mayo de 2015, "Actualización de los requisitos para presentar una solicitud de autorización e información que debe incluirse en la notificación de ampliación de servicios y zonas de cobertura")
 RCS-588-2009.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 2:25 horas del 30 de noviembre de 2009.
 “Revocación parcial de oficio de la Resolución RSC-016-2009 de las 14:00 horas del 11 de marzo del 2009”
 Resultando:
