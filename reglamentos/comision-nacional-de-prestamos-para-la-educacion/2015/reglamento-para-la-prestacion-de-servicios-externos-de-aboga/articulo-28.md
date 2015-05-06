@@ -1,0 +1,1 @@
+Artículo 28.—Sobre los giros emitidos por autoridad judicial. Los giros emitidos por autoridad judicial en favor de CONAPE producto del proceso de cobro judicial dado al contratista, se distribuirán a través de la Sección de Cobro de Conape para lo cual contará con el criterio de la unidad competente.

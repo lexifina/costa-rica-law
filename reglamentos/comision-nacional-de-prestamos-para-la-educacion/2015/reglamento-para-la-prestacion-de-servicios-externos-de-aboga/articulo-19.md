@@ -1,0 +1,1 @@
+Artículo 19.—Distribución del trabajo y revisión preliminar. Le corresponde a la Sección de Cobro, la asignación, entrega y seguimiento del trabajo a los contratistas respetando para ello un riguroso turno conforme al artículo 14 de este Reglamento, mediante la entrega del caso o asunto judicial por los medios que CONAPE determine formalmente.

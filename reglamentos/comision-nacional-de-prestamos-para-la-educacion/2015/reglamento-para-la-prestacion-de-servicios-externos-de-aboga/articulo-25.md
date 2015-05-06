@@ -1,0 +1,1 @@
+Artículo 25.—Arancel para el cálculo de honorarios. Los honorarios por los servicios contratados se calcularán con base en el arancel respectivo, vigente para la fecha en que se tramita el asunto asignado.

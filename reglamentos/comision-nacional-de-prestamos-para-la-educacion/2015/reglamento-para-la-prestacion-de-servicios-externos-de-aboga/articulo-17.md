@@ -1,0 +1,1 @@
+Artículo 17.—Reportes de trabajos asignados. La Sección de Cobro, confeccionará cada dos meses un reporte de los casos asignados a los contratistas, el cual someterá al conocimiento del Comité de Cobro, para su seguimiento y control.

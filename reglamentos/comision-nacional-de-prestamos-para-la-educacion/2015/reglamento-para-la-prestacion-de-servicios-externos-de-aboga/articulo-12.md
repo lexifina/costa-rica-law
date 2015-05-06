@@ -1,0 +1,1 @@
+Artículo 12.—Ausencias injustificadas. Las ausencias injustificadas, así como la inasistencia a las audiencias, remates y otras diligencias judiciales conforme a la naturaleza del asunto que se trate, facultarán a CONAPE para resolver la contratación de pleno derecho.

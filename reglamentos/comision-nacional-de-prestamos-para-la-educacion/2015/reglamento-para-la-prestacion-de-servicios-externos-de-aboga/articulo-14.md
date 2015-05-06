@@ -1,0 +1,1 @@
+Artículo 14.—Supervisión en la aplicación del rol. CONAPE, será el responsable de llevar el control y distribución del rol, velando porque exista imparcialidad y transparencia en la incorporación de las solicitudes al sistema de asignación del rol.
