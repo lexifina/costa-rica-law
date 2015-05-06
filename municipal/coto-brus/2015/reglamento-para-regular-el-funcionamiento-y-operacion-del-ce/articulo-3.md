@@ -1,0 +1,12 @@
+CAPÍTULO II
+Operación y funcionamiento de los CECUDI
+Artículo 3°—Población beneficiada. Serán admitidos niños y niñas entre los 0 y los 7 años cumplidos como prioridad, en la cantidad que se determine técnicamente de conformidad con las Normas de Habilitación de los Centros de Atención Integral y, así sea establecido por el Consejo de Atención Integral, quien emitirá la respectiva habilitación del Centro.
+Además, se atenderá de manera prioritaria a la población infantil que provenga de comunidades y zonas aledañas a la ubicación geográfica los CECUDI y que se encuentre en una situación de riesgo y/o vulnerabilidad social.
+as y los beneficiarios del servicio serán seleccionados de acuerdo a los criterios técnicos que emplea el Instituto Mixto de Ayuda Social (IMAS).
+Para efectos de la selección de las personas menores de edad, se tomarán en consideración de manera prioritaria, los siguientes grupos de población:
+a) Niños y niñas de familias que se ubican en los niveles uno, dos y tres de pobreza, en condiciones de riesgo o vulnerabilidad, según los parámetros del Instituto Mixto de Ayuda Social. De esta forma se determinará al menos el 60% de la totalidad de la matrícula del centro.
+b) Niños y niñas de familias en grupo 4 que asuman el porcentaje de diferencia entre el subsidio y el costo de atención.
+c) Niños y niñas de familias que puedan costear, por sus propios medios, la totalidad del costo del servicio.
+Los montos de referencia del costo del servicio, serán los establecidos por la Secretaria Técnica de la Red Nacional de Cuido y Desarrollo Infantil, del IMAS.
+Adicionalmente, se considerará que la población provenga de hogares donde los padres o madres de familia se encuentran realizando alguna actividad productiva, asalariados, o se encuentran insertos en el sistema educativo formal o informal. Y que exista interés real y efectivo de los padres y madres de familia en participar en capacitaciones, actividades, cursos y demás acciones, que tiendan a mejorar las relaciones padres/madres e hijos(as), y el bienestar general de sus hijos(as) y familia.
+Las y los beneficiarios del servicio serán seleccionados de acuerdo a los criterios técnicos que emplea el Instituto Mixto de Ayuda Social (IMAS), de la matrícula total de niños o niñas, como mínimo el 60% deberán ser subsidiados por el IMAS, el subsidio será determinado según los grupos de pobreza en que se encuentren (1, 2, 3 o 4) los cuales serán determinados por las trabajadoras sociales de dicha Institución.

@@ -1,0 +1,1 @@
+Artículo 17.—Transferencias y pagos de dineros. Las transferencias y pagos de dineros por los servicios brindados por el operador del CECUDI se harán de acuerdo con la normativa técnica que regula la municipalidad.
