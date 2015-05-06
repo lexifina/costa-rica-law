@@ -1,0 +1,28 @@
+Artículo 19.—Disposiciones comunes que deben observarse en el trámite de formulación, aprobación y ejecución de las MP. El procedimiento de formulación, aprobación y ejecución de cualquier MP regulada en este reglamento, deberá sujetarse a lo siguiente:
+a. La cantidad de MP anuales será de 15 (quince), cuya programación deberá ser elaborada por la UP, avalada por la ASA y comunicada a la Administración Activa a más tardar quince días hábiles posteriores a la entrada en vigencia del Ejercicio Económico correspondiente. La sumatoria de los movimientos no podrán superar el 25% (veinticinco por ciento) de los recursos incorporados en el PO y los PE, menos los recursos provenientes del Fondo de Simplificación y Eficiencia Tributaria, Ley N° 8114.
+b. Los recursos presupuestarios correspondientes al Fondo de Simplificación y Eficiencia Tributaria, Ley N° 8114, podrán ser variados hasta un máximo de 8 (ocho) veces por año y la sumatoria de los movimientos no podrán sobrepasar el 25% (veinticinco por ciento) de los recursos presupuestarios incorporados y asignados por dicha Ley en el PO y los PE.
+c. Toda MP deberá ser numerada en forma consecutiva, iniciando con el número cero uno, seguido del año correspondiente y deberán estar acompañadas por el ajuste al POA si los movimientos presupuestarios afectarán el logro de las metas y objetivos institucionales propuestos.
+d. La jefatura de cada Departamento o Unidad Municipal, por medio de documento escrito u oficio, solicitará la MP a la jefatura de la UP, cuya solicitud expresamente deberá contener el visto bueno y aprobación por parte de la ASA.
+e. La solicitud sobre MP deberá indicar claramente los siguientes aspectos:
+- El código presupuestario que se requiere reforzar, el monto, así como la justificación correspondiente.
+- El código presupuestario de donde se realizará el rebajo, el monto, así como la justificación correspondiente.
+- El objetivo y la meta que será afectada del POA, el monto presupuestario asignado y el periodo en que se ejecutará (si corresponde).
+- El objetivo y la meta que se está creando, para la incorporación al POA, el monto presupuestario asignado y el periodo en que se ejecutará (si corresponde).
+- Haber verificado y coordinado con la dependencia a cargo del control presupuestario, la existencia de los recursos económicos y presupuestarios disponibles para realizar los movimientos solicitados.
+- Que las MP solicitadas cumplan con el bloque de legalidad vigente.
+- Que no se están desviando recursos que tiene un fin específico.
+- Que no se están desviando recursos comprometidos por leyes.
+- Que no se están afectando recursos comprometidos por licitaciones y/o contratos.
+Para los efectos de establecer los saldos de los renglones a rebajar y aumentar la persona a cargo del Proceso Presupuestario, mediante oficio, solicitará al Departamento de Tesorería, la certificación de los saldos correspondientes, los cuales deberán estás libres de compromisos por licitaciones y/o contratos, de los que formalmente así se le haya informado. Asimismo podrán solicitar la asesoría de la jefatura de los Departamentos o Unidades de Contabilidad y Presupuesto, respecto a los recursos con fines específicos o comprometidos por leyes,
+f. Los traslados de asignaciones presupuestarias entre programas, así como el rebajo o aumento de estos, deberán vincularse cuando corresponda, con los objetivos y metas establecidos. En tales casos, las MP deberán acompañarse del ajuste respectivo al POA institucional.
+g. La UP, preparará las MP, atendiendo el nivel de detalle establecido en el presente artículo e indicando el número de la misma conforme lo establece el Artículo 19º inciso c) del presente Reglamento.
+h. La jefatura de la UP, remitirá a la ASA mediante documento formal, toda la información que dio origen a las MP, con el fin de que sea analizada y oficialmente sea remitida o presentada ante el Jerarca, para el trámite correspondiente de acuerdo a sus competencias.
+i. La ASA deberá remitir al Jerarca, para la aprobación de las MP lo siguiente:
+- Oficio de remisión de la MP.
+- Copia íntegra del expediente de la MP.
+j. Las MP que sean improbadas totalmente por el Jerarca por razones formales, técnicas y/o legales debidamente justificadas, podrán ser presentadas nuevamente a su conocimiento, por medio de un nuevo documento en el que hayan sido corregidas las causas de su rechazo o improbación. En tales casos, ambos documentos se consideraran uno solo para los efectos del inciso a) y b) del presente Artículo
+k. De todas las MP se levantará un expediente que estará a cargo de la UP, cuyo expediente contendrá toda la información vinculante con la misma. Estos expedientes serán accesibles a la Auditoría Interna, Jerarca y a la CGR, para el cumplimiento de sus funciones de fiscalización posterior.
+l. No se podrán efectuar MP para aumentar partidas o sub-partidas, con el fin de dar contenido o cubrir gastos ya ejecutados.
+m. No podrá ejecutarse ninguna MP si previamente esta no ha sido aprobada por el órgano competente, según las disposiciones de este Reglamento.
+n. El Jerarca con acuerdo de mayoría simple, le comunicara a la ASA, el interés de modificar partidas presupuestarias que considere pertinentes.
+o. Una vez alcanzada la cantidad de MP, según lo dispuesto en el Inciso a) y b) del presente Artículo, el Jerarca con acuerdo de mayoría absoluta de las personas que conforman el órgano colegiado podrá autorizar a la ASA, a presentar MP, siempre y cuando no se haya alcanzado modificar el 25% del total del Presupuesto Municipal y sea por emergencias o por razones fortuitas debidamente justificadas.

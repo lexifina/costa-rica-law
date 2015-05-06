@@ -1,0 +1,1 @@
+Artículo 9°—Vigencia legal de los PE y las MP. Los PE entrarán en vigencia una vez que sea aprobado por la CGR. Las MP tendrán efecto legal en el presupuesto a partir de la ratificación del acta en la cual fueron aprobadas o a partir de su acuerdo en firme por parte del Jerarca.
