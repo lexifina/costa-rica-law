@@ -1,0 +1,2 @@
+Artículo 27.—Uso de un sistema de contratación electrónica público. En caso de que la Contraloría General de la República opte por la utilización de un sistema público de contratación electrónica y, de contener el mismo tareas asignadas internamente a la USP, prevalecerá el uso de los mecanismo del sistema seleccionado, aún cuando la normativa interna señale como responsable a dicha unidad.
+(Así adicionado en sesión N° 040 del 6 de mayo de 2015)

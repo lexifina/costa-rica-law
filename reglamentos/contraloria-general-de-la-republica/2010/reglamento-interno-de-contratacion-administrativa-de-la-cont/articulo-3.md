@@ -1,6 +1,7 @@
 CAPÍTULO II
 De las Unidades Internas participantes en los procesos de contratación administrativa
-Artículo 3.- De la Unidad de Gestión Administrativa. Corresponde a la UGA la conducción de los procedimientos de contratación administrativa de la institución. Para ello, cuenta al menos con los siguientes deberes y obligaciones:
+Artículo 3.- De la Unidad de Servicios de Proveeduría(*). Corresponde a la USP(*) la conducción de los procedimientos de contratación administrativa de la institución. Para ello, cuenta al menos con los siguientes deberes y obligaciones:
+(*) (Así modificada su denominación en sesión N° 040 del 6 de mayo de 2015. Anteriormente se indicaba: "Unidad de Gestión Administrativa" y "UGA")
 1.- Asesorar a lo interno de la CGR sobre los trámites que deben de ser cumplidos en relación con los distintos procedimientos de adquisición de bienes y servicios no personales.
 2.- Consolidar y publicar en el primer mes de cada período presupuestario, la información referente al programa de adquisiciones interno de la CGR.
 3.- Elaborar en el último trimestre de cada año, un cronograma de las compras más relevantes del próximo período presupuestario, al cual brindará el control y seguimiento respectivo.

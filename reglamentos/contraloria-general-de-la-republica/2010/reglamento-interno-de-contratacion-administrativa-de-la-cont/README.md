@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa de la Contraloría General de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-01 | la propia norma |
+| 2 | 2015-05-06 | Reglamento 40 (2015-05-06) |

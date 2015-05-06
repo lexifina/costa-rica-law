@@ -10,16 +10,19 @@ Considerando:
 6. Que es necesario actualizar el marco normativo interno de esta Contraloría General, en materia de contratación administrativa con el fin de adecuarlo a las exigencias de la Ley de Contratación Administrativa y su Reglamento.
 Por tanto,
 RESUELVE:
-Primero.—Aprobar y promulgar el documento denominado “Reglamento interno de contratación administrativa de la Contraloría General de la República”, el cual fuera remitido al Despacho Contralor mediante oficio DGA-UGA-914 de catorce de setiembre de dos mil diez y que se encuentra estructurado de la siguiente manera:
+Primero.—Aprobar y promulgar el documento denominado “Reglamento interno de contratación administrativa de la Contraloría General de la República”, el cual fuera remitido al Despacho Contralor mediante oficio DGA-USP(*)-914 de catorce de setiembre de dos mil diez y que se encuentra estructurado de la siguiente manera:
+(*) (Así modificada su denominación en sesión N° 040 del 6 de mayo de 2015. Anteriormente se indicaba: "UGA")
 REGLAMENTO INTERNO DE CONTRATACIÓN ADMINISTRATIVA DE LA CONTRALORIA GENERAL DE LA REPUBLICA
-R-1-2010-DC-DGA-UGA
+R-1-2010-DC-DGA-USP(*)
+(*) (Así modificada su denominación en sesión N° 040 del 6 de mayo de 2015. Anteriormente se indicaba: "UGA")
 CAPITULO I
 Disposiciones Generales
 Artículo 1.- Alcances.
 Artículo 2.- Abreviaturas y definiciones.
 CAPÍTULO II
 De las Unidades Internas participantes en los procesos de contratación administrativa
-Artículo 3.- De la Unidad de Gestión Administrativa.
+Artículo 3.- De la Unidad de Servicios de Proveeduría(*).
+(*) (Así modificada su denominación en sesión N° 040 del 6 de mayo de 2015. Anteriormente se indicaba: " Unidad de Gestión Administrativa")
 Artículo 4.- De la Unidad Jurídica Interna.
 Artículo 5.- De la Unidad Técnica.
 Artículo 6.- De la Unidad Solicitante.

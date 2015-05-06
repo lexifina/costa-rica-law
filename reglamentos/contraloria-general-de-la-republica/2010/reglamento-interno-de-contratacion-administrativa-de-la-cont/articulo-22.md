@@ -1,4 +1,5 @@
-Artículo 22. Rotación. La UGA deberá de garantizar una rotación de los proveedores inscritos en el Registro de Proveedores, en las invitaciones a los procedimientos de contratación de licitación abreviada y las contrataciones directas por escasa cuantía no referidas a Caja Chica o a otras excepciones.
+Artículo 22. Rotación. La UPS(*) deberá de garantizar una rotación de los proveedores inscritos en el Registro de Proveedores, en las invitaciones a los procedimientos de contratación de licitación abreviada y las contrataciones directas por escasa cuantía no referidas a Caja Chica o a otras excepciones.
+(*) (Así modificada su denominación en sesión N° 040 del 6 de mayo de 2015. Anteriormente se indicaba: "UGA")
 La rotación se realizará conforme con las siguientes regulaciones:
 a) Los proveedores se invitarán en estricto orden cronológico, empezando por los proveedores más antiguos según la fecha de inscripción en el registro.
 b) El número de proveedores a invitar por cada procedimiento dependerá de las cantidades máxima y mínima establecidas para cada tipo de contratación, de acuerdo con la LCA y su Reglamento.

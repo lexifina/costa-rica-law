@@ -1,4 +1,5 @@
-Artículo 21. Actualización de la información. Los proveedores incluidos en el Registro de Proveedores de la CGR, están en la obligación de comunicar a la UGA los cambios que se produzcan en su información, respecto del:
+Artículo 21. Actualización de la información. Los proveedores incluidos en el Registro de Proveedores de la CGR, están en la obligación de comunicar a la USP(*) los cambios que se produzcan en su información, respecto del:
+(*) (Así modificada su denominación en sesión N° 040 del 6 de mayo de 2015. Anteriormente se indicaba: "UGA")
 a. Nombre o razón social.
 b. Sustitución del apoderado, apoderada o representante legal.
 c. Dirección, teléfono, número de fax, correo electrónico.
