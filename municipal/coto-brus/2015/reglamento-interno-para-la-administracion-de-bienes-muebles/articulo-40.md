@@ -1,0 +1,1 @@
+Artículo 40.—Recuentos Físicos: La Unidad de Proveeduría, cuando lo estime conveniente y sin previo aviso, podrá realizar recuentos físicos en las diferentes dependencias de la Municipalidad de Coto Brus para verificar que el buen estado y uso de los activos y que los bienes asignados a cada Unidad sean realmente los existentes.

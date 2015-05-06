@@ -1,0 +1,1 @@
+Artículo 7°—Identificación de bienes. Todo bien que ingrese a la Municipalidad de Coto Brus deberá ser identificado por el Departamento de Proveeduría mediante un sistema de rotulado (sistema se seguridad con número consecutivo), utilizando para ello placa.

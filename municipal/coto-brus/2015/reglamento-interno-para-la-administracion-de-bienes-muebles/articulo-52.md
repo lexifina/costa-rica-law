@@ -1,0 +1,1 @@
+Artículo 52.—Proceso para reparación: De existir equipo dañado en un departamento y se requiera su reparación, la jefatura interesada deberá solicitar, por escrito, esos servicios a la Unidad de Proveeduría, siempre y cuando exista el contenido presupuestario existente para tal caso.
