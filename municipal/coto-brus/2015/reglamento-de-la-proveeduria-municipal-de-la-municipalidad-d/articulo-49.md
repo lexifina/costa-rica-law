@@ -1,0 +1,1 @@
+Artículo 49.—Forma de pago. Los pagos a proveedores y a los arrendatarios se harán contra la prestación del servicio, recepción de bienes o avance de la obra, a entera satisfacción de la Municipalidad de Coto Brus, resultando absolutamente nula cualquier estipulación en contrario.

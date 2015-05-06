@@ -1,0 +1,2 @@
+Artículo 50.—Trámite de pago. Los bienes en plaza se pagarán en los 10 días hábiles posteriores a la presentación para el cobro de la factura en la Proveeduría.
+Para servicios o contratación de obra, se cancelará mediante pagos parciales, de acuerdo con cálculos basados en el progreso semanal del trabajo terminado y del equipo y materiales suplidos conforme lo presente el contratista y lo apruebe la unidad gestionante. Estos pagos parciales se harán efectivos dentro de los ocho 10 días hábiles después de la aprobación de la unidad gestionante.

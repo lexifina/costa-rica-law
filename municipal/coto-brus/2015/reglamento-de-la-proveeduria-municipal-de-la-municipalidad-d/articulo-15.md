@@ -1,0 +1,5 @@
+Artículo 15.—Plan de adquisiciones.
+15.1 Los programas de adquisiciones de cada año, deberán ser confeccionados conjuntamente con el Plan Operativo Anual y el Presupuesto, todo de acuerdo a los lineamientos que establezca al respecto la CGR.
+15.2 La Proveeduría, coordinará la recepción del Plan de Adquisiciones y verificara la información recibida, a fin de que sea publicado en el diario oficial La Gaceta, en el primer mes de cada periodo presupuestario según indica el artículo 7º del RLCA.
+15.3 Cualquier modificación al programa de adquisiciones, deberá remitirse al Departamento de Proveeduría, mediante solicitud formal autorizada por el funcionario encargado de cada área, en la que consten las razones que motivan la modificación.
+15.4 La Proveeduría, no tramitará las necesidades no incluidas en el programa de adquisiciones y sus modificaciones, en todo caso, los funcionarios que promuevan un trámite de contratación sin que la necesidad estuviere contemplada en el programa de adquisiciones quedarán sujetos al régimen disciplinario respectivo.

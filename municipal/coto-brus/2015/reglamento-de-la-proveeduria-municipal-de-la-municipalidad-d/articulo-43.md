@@ -1,0 +1,1 @@
+Artículo 43.—Finiquito. Los procesos de Licitación que hayan sido perfeccionados mediante contrato una vez finalizado el objeto Contractual generará la confección de un finiquito del mismo por parte de la Unidad gestionante entiéndase Departamento de Unidad Técnica de Gestión Vial Municipal o Administración General según el caso.
