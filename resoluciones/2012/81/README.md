@@ -14,3 +14,4 @@ Revoca resoluciones RSC-016-2009 del 11/3/2009 y RSC-236-2011 del 2/11/2011 y es
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-27 | la propia norma |
+| 2 | 2015-05-06 | Resolución 78 (2015-05-06) |
