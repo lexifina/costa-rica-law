@@ -1,0 +1,2 @@
+Artículo 16.—Reportes de trabajos asignados. La Unidad Orgánica respectiva de CONAPE, confeccionará cada dos meses un reporte de los expedientes de crédito asignados a los contratistas,
+el cual someterá al conocimiento de la Auditoría Interna y de la Secretaría Ejecutiva de CONAPE. El control deberá ser ejercido por el área a cargo del proceso de asignación; siendo que la Auditoría actuará en el ámbito de su competencia.

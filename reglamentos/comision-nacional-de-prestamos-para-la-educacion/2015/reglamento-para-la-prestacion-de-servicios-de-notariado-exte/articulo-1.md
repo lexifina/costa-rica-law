@@ -1,0 +1,8 @@
+COMISIÓN NACIONAL DE PRÉSTAMOS
+PARA EDUCACIÓN
+ASESORÍA LEGAL
+Comunica que en la sesión ordinaria del Consejo Directivo Nº 45-01-2015 y 13-3-2015, artículos IV y V, celebrada el 05 de enero y 30 de marzo del dos mil quince, acordó aprobar el Reglamento para la Prestación de Servicios de Notariado Externo de la Comisión Nacional de Préstamos para Educación (CONAPE), el que se leerá:
+REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS
+DE NOTARIADO PARA LA COMISIÓN DE PRÉSTAMOS
+PARA EDUCACIÓN (CONAPE)
+Artículo 1°—Ámbito de aplicación. El presente Reglamento tiene como objeto regular las relaciones entre COMISIÓN NACIONAL DE PRÉSTAMOS PARA EDUCACIÓN -en adelante CONAPE- y los Notarios Públicos Externos -en adelante contratistas-, que en virtud de un concurso con apego a la Ley de Contratación Administrativa, resulten adjudicatarios prestándole en virtud del mismo su servicio como “notarios públicos externos”, sin que exista subordinación jurídico laboral de tipo alguno, para el otorgamiento de escrituras en las que figure CONAPE como acreedor. Los servicios de notariado externo consistirán en el desempeño de todas las labores notariales requeridas para la constitución, formalización e inscripción de garantías para créditos o facilidades crediticias en que CONAPE figure como acreedor y comprenderá todas aquellas labores y responsabilidades que se especifican en el presente reglamento. El servicio de notariado comprenderá la confección del instrumento original, asesoría para el caso y la expedición del correspondiente testimonio de escritura, certificación o reproducción que deba entregarse así como todos los trámites necesarios para la inscripción en el Registro Nacional, la corrección de defectos atribuibles al notario y demás normativa que le sea de acato.

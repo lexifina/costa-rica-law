@@ -1,0 +1,3 @@
+Disposiciones Transitorias
+En tanto finaliza el proceso de la contratación de servicios de notariado para CONAPE, se autoriza a la Secretaria Ejecutiva del CONAPE, mediante resolución debidamente razonada continuar con la prestación de los servicios de notariado de la forma en que se han venido realizando, en el entendido de que los mismos cesarán cuando se firmen los contratos y sean entregadas las respectivas órdenes de compra o contrato.
+Siendo que el convenio vigente de prestación de servicios de notariado rige hasta el 23 de setiembre del 2015, para esa fecha los casos pendientes deberán haber sido formalmente entregados a CONAPE, siendo que se cancelarán los honorarios conforme el estado de cada caso conforme a los aranceles respectivos.

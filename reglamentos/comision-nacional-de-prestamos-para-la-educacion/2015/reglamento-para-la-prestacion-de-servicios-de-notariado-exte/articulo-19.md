@@ -1,0 +1,5 @@
+Artículo 19.—Plazo para otorgar las escrituras. Luego de que la Unidad Orgánica respectiva de CONAPE asigna una operación de crédito, el Notario Público Externo contará con un plazo de tres días hábiles para cada una de las siguientes actividades:
+1) Retirar impresos los documentos que contienen los antecedentes para la constitución de la hipoteca de forma personalmente o a través del medio tecnológico definido.
+2) Confeccionar la escritura y recoger firmas.
+3) Entregar una copia del testimonio, detalle de gastos y honorarios, ante la Sección de Desembolsos y Control de Crédito de CONAPE.
+Los plazos antes indicados deberán ser contados a partir de la comunicación respectiva, vía correo electrónico, facsímile, u otro; siendo responsabilidad del contratista comunicar oportunamente a la Unidad Orgánica respectiva de CONAPE, cuando dichos instrumentos de comunicación por alguna situación se encuentren deshabilitados. El incumplimiento de lo anterior facultará a CONAPE para reasignar al día hábil siguiente el caso al notario público externo que le corresponda en el rol, perdiendo el notario público externo original el turno respectivo.

@@ -1,0 +1,1 @@
+Artículo 27.—Composición de la Comisión. La Comisión de Servicios Notariales estará integrada por el Secretario Ejecutivo, Asesor Legal, la Jefatura del Departamento de Crédito y la Jefatura Sección de Desembolsos y Control de Crédito.
