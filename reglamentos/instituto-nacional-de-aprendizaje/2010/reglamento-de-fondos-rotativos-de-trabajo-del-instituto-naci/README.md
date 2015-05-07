@@ -16,3 +16,4 @@ Reglamento de Fondos Rotativos de Trabajo del Instituto Nacional de Aprendizaje
 | 1 | 2014-02-07 | la propia norma |
 | 2 | 2014-02-07 | Reglamento 4489 (2011-06-20) |
 | 3 | 2014-02-07 | Acuerdo 0 (2013-02-07) |
+| 4 | 2015-05-07 | Reglamento 4683 (2015-05-07) |
