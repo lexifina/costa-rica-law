@@ -1,0 +1,6 @@
+Artículo 6º—Fines. Son fines del presente Reglamento:
+a) Promover la capacitación y la formación de los(as) funcionarios(as) del CONAVI, para fomentar la motivación, la eficiencia, la eficacia, la excelencia de la función pública, desarrollar sus conocimientos, habilidades, destrezas, actitudes y valores, en relación con el quehacer institucional, con el fin de contribuir al logro de la misión, visión, objetivos y metas del CONAVI.
+b) Promover la participación de los(as) funcionarios(as) del CONAVI en becas auspiciadas por el CONAVI o por organismos nacionales e internacionales, en los términos y condiciones que se establezcan, como apoyo al desarrollo de las funciones de la institución, en congruencia con los valores y compromiso del CONAVI con la sociedad costarricense.
+c) Establecer un sistema de igualdad y libre concurrencia en el proceso de participación, selección y adjudicación de becas y facilidades para los(as) funcionarios(as) del CONAVI.
+d) Establecer las instancias, el procedimiento de selección y presentación de candidatos(as) ante los organismos patrocinadores de las becas o facilidades.
+e) Establecer las instancias y el procedimiento de selección para la adjudicación de becas y facilidades otorgadas por el CONAVI.

@@ -1,0 +1,1 @@
+Artículo 7º—El financiamiento. El financiamiento total o parcial de la participación de los(as) funcionarios(as) del CONAVI, en las facilidades otorgadas en el presente reglamento, que se lleven a cabo en el país o en el extranjero, queda sujeto a que existan las disponibilidades presupuestarias necesarias.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Del procedimiento en general
+Artículo 34.—Del Concurso por oposición. Las becas o facilidades para participar en programas de capacitación y formación académica o para realizar estudios en el país o en el extranjero, serán objeto de concurso por oposición, el cual será ampliamente difundido por el Proceso de Capacitación, salvo aquellas becas difundidas por los Colegios Profesionales u otros organismos que utilicen medios de comunicación colectiva. En los avisos, de apertura del concurso se estipularán las condiciones para el otorgamiento de la beca, las cuales se tendrán por aceptadas, por parte de los interesados (as), con la sola presentación de las solicitudes de participación.

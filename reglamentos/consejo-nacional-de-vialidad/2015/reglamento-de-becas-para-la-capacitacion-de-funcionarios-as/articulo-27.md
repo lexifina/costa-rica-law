@@ -1,0 +1,1 @@
+Artículo 27.—De la garantía laboral para el (la) beneficiario(a). Conforme al artículo 6 de la Ley de Licencias, el CONAVI garantiza la relación laboral al(a) beneficiario(a) que esté realizando estudios amparado al presente reglamento.

@@ -1,0 +1,3 @@
+CAPÍTULO IX
+Del contrato
+Artículo 44.—De la necesidad de un contrato. El (La) funcionario(a) seleccionado(a) con la adjudicación de una facilidad superior a tres meses, está obligado(a), a suscribir un contrato con el (la) representante del CONAVI, de acuerdo a lo que establece el artículo 4 de la ley de Licencias. Los términos del contrato se establecerán en cada caso, por común acuerdo del(a) funcionario(a) y el CONAVI, sin perjuicio de las obligaciones que prescribe la Ley de Licencias y el presente Reglamento. Las condiciones estipuladas en el pliego de condiciones que sacan a concurso una beca, se entienden aceptadas por el (la) funcionario(a) y por lo tanto incorporadas al contrato.

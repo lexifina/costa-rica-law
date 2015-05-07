@@ -1,0 +1,3 @@
+CAPÍTULO X
+De la responsabilidad civil de los(as) beneficiarios(as)
+Artículo 47.—De la responsabilidad civil de los(as) funcionarios(as): El (La) beneficiario(a) que durante el periodo de disfrute de una beca, renuncie a ésta sin justa causa, queda obligado(a) a indemnizar al CONAVI, por los gastos en que haya incurrido con motivo de la beca, así como por los posibles daños y perjuicios que en forma directa o indirecta, puedan derivarse de su actuar. Para el trámite de la determinación, se aplicará mediante Procedimiento Administrativo Ordinario y según las formalidades establecidas por la Ley General de la Administración Pública. Igual procedimiento se seguirá con el (la) beneficiario (a) que no cumple con el mínimo del plan de estudios solicitado.

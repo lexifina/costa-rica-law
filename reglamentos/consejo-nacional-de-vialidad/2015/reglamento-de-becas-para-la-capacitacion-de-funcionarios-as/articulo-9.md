@@ -1,0 +1,1 @@
+Artículo 9º—De la competencia de la Unidad de Recursos Humanos. La capacitación de los(as) funcionarios(as) del CONAVI, se canalizará a través de la Unidad de Recursos Humanos por medio del Proceso de Capacitación y con estricta observancia del procedimiento establecido en este reglamento.

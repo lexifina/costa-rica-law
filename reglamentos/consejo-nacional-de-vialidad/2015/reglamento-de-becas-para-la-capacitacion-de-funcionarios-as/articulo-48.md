@@ -1,0 +1,1 @@
+Artículo 48.—De la exención de los(as) funcionarios(as). El (La) funcionario(a) no estará en la obligación de retribuir a la Administración al dejar de trabajar para ella, cuando sea cesado por parte de la Administración dentro de un programa de movilidad laboral, o por cualquier otra causa no imputable al(a) funcionario(a).

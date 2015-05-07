@@ -1,0 +1,1 @@
+Artículo 33.—Del funcionamiento de la Comisión. El informe de la beca o facilidad, será adoptada por un mínimo de tres votos de los miembros de la Comisión; en caso de empate el (la) Presidente de la Comisión de Becas (El (La) encargado(a) del Proceso de Capacitación o representante de la Unidad de Recursos Humanos) tendrá voto de calidad.

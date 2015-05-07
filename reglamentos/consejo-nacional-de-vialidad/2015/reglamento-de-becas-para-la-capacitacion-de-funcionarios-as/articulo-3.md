@@ -1,0 +1,1 @@
+Artículo 3º—Principios. Los principios que rigen el procedimiento de adjudicación de becas o facilidades del Consejo Nacional de Vialidad son los de eficiencia, igualdad, libre competencia, publicidad y democratización del acceso a becas o facilidades por parte de todos(as) sus funcionarios(as).

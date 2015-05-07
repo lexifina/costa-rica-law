@@ -1,0 +1,1 @@
+Artículo 45.—Requisitos del contrato. Cuando corresponda, en el contrato respectivo se establecerá las condiciones referentes a las obligaciones del (la) funcionario(a) y de la Institución, sin perjuicio de las que prescriben la Ley de Licencias y Disposiciones Conexas.

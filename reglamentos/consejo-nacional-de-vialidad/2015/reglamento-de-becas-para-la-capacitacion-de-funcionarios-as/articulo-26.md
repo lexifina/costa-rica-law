@@ -1,0 +1,1 @@
+Artículo 26.—Del limitante económico. El financiamiento total o parcial otorgado al(a) beneficiario(a) del CONAVI en la adjudicación de una beca que regula este reglamento, quedará sujeto a que existan las disponibilidades presupuestarias.

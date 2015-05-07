@@ -1,0 +1,1 @@
+Artículo 43.—De las responsabilidades de los jefes inmediatos. Los jefes inmediatos y el Proceso de Capacitación, serán responsables de exigir el cumplimiento de las anteriores normas y no podrán autorizar nueva licencia para estudio sin antes verificar que el (la) funcionario(a) se haya hecho acreedor(a) a la misma, de conformidad con las prescripciones establecidas.

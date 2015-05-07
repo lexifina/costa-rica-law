@@ -1,0 +1,1 @@
+Artículo 46.—Modificaciones al contrato. Cuando dentro del Programa de la Beca sea necesario variar alguna circunstancia de las establecidas en el contrato, previo señalamiento del Proceso de Capacitación, se adicionará el contrato para normar en forma distinta las circunstancias establecidas dentro de éste.

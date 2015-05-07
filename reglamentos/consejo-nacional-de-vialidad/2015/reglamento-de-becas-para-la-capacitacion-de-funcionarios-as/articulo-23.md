@@ -1,0 +1,1 @@
+Artículo 23.—Traslado de un(a) funcionario(a) a otra Institución. El (La) beneficiario(a) que se traslade a otra Institución Pública, sin haber satisfecho su compromiso, deberá convenir para que preste esos servicios en esa otra Institución Pública, según los términos del artículo 8 de la Ley de Licencias.
