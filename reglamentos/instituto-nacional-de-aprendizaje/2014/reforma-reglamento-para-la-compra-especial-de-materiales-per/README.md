@@ -14,3 +14,4 @@ Reforma Reglamento para la compra especial de materiales perecederos, de alto ri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-27 | la propia norma |
+| 2 | 2015-05-07 | Reglamento 4683 (2015-05-07) |
