@@ -1,0 +1,1 @@
+Artículo 5º—Con la finalidad de agilizar los trámites que se autorizan en este Reglamento, cuando se trate de contratos físicos, se deberá contar con la debida certificación del mismo por parte de la Secretaría General de la Junta Directiva del Instituto de Desarrollo Rural, o bien, del o los funcionarios que al efecto autorice la Junta Directiva para ello.
