@@ -1,0 +1,4 @@
+Sección I
+De las Compensaciones
+Artículo 101.—Compensación. Los munícipes o responsables que tengan a su favor créditos líquidos y exigibles por concepto de tributos o precisos y sus accesorios, podrán solicitar por escrito ante la Plataforma de Servicios Municipal, la compensación con deudas tributarias de igual o diferente naturaleza, sus accesorios y que sean administradas por la Municipalidad de Cartago, a periodos no prescritos, para lo cual deberán determinar a cuál de sus deudas deben imputarse los créditos que soliciten compensar.
+Los Departamentos que componen el Área Tributaria y de Recaudación de la Municipalidad, están facultados para realizar compensaciones de oficio. Se aplicarán para la compensación de oficio las reglas del artículo 44 del Código de Normas y Procedimientos Tributarios. La compensación, de practicarse de oficio, se hará respecto de los tributos o precios que la Administración Tributaria Municipal disponga.

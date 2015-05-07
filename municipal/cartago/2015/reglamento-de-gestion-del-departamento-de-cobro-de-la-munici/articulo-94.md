@@ -1,0 +1,7 @@
+Artículo 94.—Resolución del contrato de servicios profesionales. Se resolverá el contrato por servicios profesionales cuando se den las siguientes causales:
+1. El abogado externo que realice cualquier acción judicial o administrativa contra la Municipalidad.
+2. Cuando se pierda un incidente, proceso, recurso u otro debido al vencimiento del plazo para aportar algún documento o gestión, ordenada por la autoridad judicial.
+3. Por negligencia o impericia demostrada en la atención de los casos asignados.
+4. Cuando revele bajo cualquier forma o título, gratuito u oneroso la información confidencial o sensible contenida en los expedientes asignados, o cuando empleé dicha información en forma distinta a los fines de su contratación.
+5. Por cobro de honorarios profesionales mayores a lo estipulado en el Arancel de Horarios vigente.
+6. Por acuerdo de las partes, cuando existan aspectos de importancia y donde medie solicitud expresa, estudio y resolución integral del asunto. En ninguno de los casos expuestos, una vez concluido la relación con los abogados externos sobre las cuentas efectivamente gestionadas por estos y no resueltas o canceladas producto de la gestión judicial, se verificará el estado en que quedan los casos y se determinará si le corresponde el pago de algún porcentaje por honorarios profesionales o por el contrario si el porcentaje cancelado debe restituirse a la Municipalidad.

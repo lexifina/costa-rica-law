@@ -1,0 +1,10 @@
+Artículo 68.—De la solicitud de Fraccionamiento. Para obtener el beneficio del fraccionamiento de pago, se requiere de solicitud expresa del deudor, ante el Departamento de Cobro, única instancia competente para tal fin.
+La solicitud de fraccionamiento debe cumplir con los siguientes requisitos:
+a) Presentar solicitud suscrita por el obligado o su representante legal, con los requisitos y por los medios que se establecen en el presente Reglamento.
+b) Justificar la causal que incide en la situación económico-financiera y que le impide transitoriamente pagar la deuda en el plazo de ley, aportando de proceder la prueba documental que respalde la causal indicada.
+c) Indicar expresamente que se da por enterado y que reconoce todas las deudas que mantiene con la Municipalidad.
+d) Certificación de personería jurídica en caso de sociedades, en donde indique el vencimiento del plazo social, con no más de un mes de expedida.
+e) Copia de cédula de identidad del solicitante y en caso de personas jurídicas copia de la cédula de identidad del representante legal.
+f) Cuando el trámite requiera ser realizado por persona distinta al titular de la deuda, deberá aportarse autorización suficiente, donde conste el poder o autorización para el caso. En el supuesto de que el obligado sea una persona jurídica, la solicitud podrá ser efectuada directamente por sus representantes legales, o por personas a quienes éstos hayan otorgado autorización suficiente para tal fin.
+g) Indicar lugar o medio para recibir notificaciones, cuando corresponda.
+El ejecutivo de atención al público, deberá en todos los casos, confirmar el domicilio del deudor, teléfonos y demás datos identificativos, de proceder deberá actualizarlos, revisar las bases de datos corroborando si presenta algún incumplimiento de sus deberes con la institución, de ser así se le recuerda que de no cumplir con esos deberes, se le podrá revocar el fraccionamiento solicitado.

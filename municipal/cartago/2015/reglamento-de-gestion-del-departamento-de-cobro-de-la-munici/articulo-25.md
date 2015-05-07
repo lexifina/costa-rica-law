@@ -1,0 +1,3 @@
+Artículo 25.—Imputación de pagos. La deuda correspondiente a cada tributo o precio será independiente de las demás obligaciones a cargo del deudor. Al efectuar el pago, el deudor de varias deudas podrá imputarlo a aquella o aquellas que libremente determine.
+En los casos en que el deudor no indique a que deuda imputa el pago, la Administración Tributaria Municipal deberá establecerla por orden de antigüedad de los débitos, determinados éstos por la fecha de vencimiento del plazo para el pago de cada uno.
+En todos los casos, la imputación de pagos se hará primero a las sanciones, luego a los intereses y por último a la obligación principal. Esta regla será aplicable a todos los medios de extinción de las obligaciones tributarias.

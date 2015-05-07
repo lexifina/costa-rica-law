@@ -1,0 +1,1 @@
+Artículo 27.—Confusión. Habrá lugar a la extinción de la deuda por confusión, cuando el sujeto activo, como consecuencia de la transmisión de los bienes o derechos afectos al tributo o precio quede colocado en la situación del deudor.

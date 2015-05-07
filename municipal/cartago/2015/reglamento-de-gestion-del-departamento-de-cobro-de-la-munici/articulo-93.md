@@ -1,0 +1,4 @@
+Artículo 93.—De la suspensión del traslado de expedientes a los Abogados externos. Se suspenderá la remisión de expedientes a los Abogados Externos, para el Cobro Judicial, cuando se incurra en las siguientes causales:
+1. A los abogados que incumplan con su obligación de presentar el informe de gestión dentro del plazo establecido en el artículo 87- inciso 5. de este Reglamento.
+2. Incumplir con su obligación de remitir al Departamento de Cobro comprobante de presentación de la demanda ante la Autoridad Judicial, respectiva.
+3. Cuando habiendo acaecido el remate, no comunique sobre el resultado del mismo al Departamento de Cobro, en el plazo de 5 días hábiles siguientes a aquel en que el mismo se efectuó, así mismo queda obligado a informar a la Municipalidad el señalamiento de las horas y fechas de los remates con una antelación no menor de diez días hábiles a su realización, con la misma sanción de no remisión en caso de incumplimiento.

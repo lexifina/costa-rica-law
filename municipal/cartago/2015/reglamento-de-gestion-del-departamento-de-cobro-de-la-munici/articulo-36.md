@@ -1,0 +1,3 @@
+Artículo 36.—Obligación de comunicar el cambio de domicilio fiscal. Los obligados deben comunicar a la Administración Tributaria Municipal el cambio del domicilio fiscal y surtirá efectos a partir del momento de efectuada la comunicación.
+El cambio de domicilio fiscal no impide que los procedimientos que se hayan iniciado de oficio antes de la notificación de dicho cambio, puedan continuar tramitándose por el órgano competente que lo inició, siempre que las notificaciones derivadas de estos procedimientos se realicen de acuerdo con lo previsto en la ley.
+El cambio de domicilio fiscal que se realice sin observar la forma y los medios que la Administración Tributaria Municipal ha dispuesto, no surtirá efectos jurídicos.

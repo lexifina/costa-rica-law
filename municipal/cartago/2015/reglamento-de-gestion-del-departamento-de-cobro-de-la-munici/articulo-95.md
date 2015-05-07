@@ -1,0 +1,1 @@
+Artículo 95.—Obligaciones de los abogados al finalizar la contratación. Al finalizar por cualquier motivo la contratación, el abogado respectivo, deberá remitir la totalidad de los expedientes judiciales al Departamento de Cobro, con un informe detallado del estado en que se encuentran los expedientes a la fecha de entrega.

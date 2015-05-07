@@ -1,0 +1,1 @@
+Artículo 9°—De la función de cobranza. La cobranza es el conjunto de actividades que realiza el Departamento de Cobro, destinadas a percibir efectivamente el pago de todas las obligaciones por parte de los sujetos pasivos, disminuyendo la cartera morosa.

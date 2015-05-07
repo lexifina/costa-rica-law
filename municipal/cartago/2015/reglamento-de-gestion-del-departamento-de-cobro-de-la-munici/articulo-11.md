@@ -1,0 +1,1 @@
+Artículo 11.—Horario de actuaciones. Los funcionarios del Departamento de Cobro actuarán normalmente en horas y días hábiles. A criterio de la jefatura podrán actuar fuera de esas horas y días, cuando sea necesario para lograr el cumplimiento de sus responsabilidades.

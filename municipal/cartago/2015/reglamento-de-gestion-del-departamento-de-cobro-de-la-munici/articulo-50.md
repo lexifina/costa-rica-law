@@ -1,0 +1,4 @@
+Sección IV
+Notificación correo electrónico
+Artículo 50.—Correo electrónico o digital. Las partes pueden fijar como medio de notificación un correo electrónico o un medio digital, siempre que tal medio permita la confirmación de la recepción de las notificaciones. En todo caso, la seguridad y confiabilidad de la cuenta seleccionada es responsabilidad del interesado.
+La notificación por correo electrónico debe contener una portada diseñada al efecto con el número, hora y fecha de la resolución a notificar, el nombre de la oficina que tramita el caso, el nombre de la parte notificada, la oficina o despacho al que se notifica; la indicación expresa de haberse practicado la notificación por medio de correo electrónico, el correo electrónico al que se transmite y en forma destacada, el número de páginas que componen el documento que se comunica. La notificación se acredita con el comprobante de transmisión emitido por el correo electrónico o con el respaldo informático.

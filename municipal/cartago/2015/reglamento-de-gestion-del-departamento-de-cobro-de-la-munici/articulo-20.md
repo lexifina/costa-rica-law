@@ -1,0 +1,4 @@
+Artículo 20.—Pago mediante cheque. Cuando los pagos se efectúen mediante cheque, éstos deberán reunir, además de los requisitos legales exigidos por la legislación mercantil, los siguientes:
+a) Ser nominativo a favor de la Municipalidad de Cartago.
+b) Expresar claramente el nombre o razón social del contribuyente o responsable cuya deuda cancela, su número de cédula, número telefónico, el tributo o precio que se cancela y, en su caso, los períodos.
+La entrega del cheque no liberará al deudor por el importe consignado sino hasta que éste se haga efectivo. La deuda no satisfecha por la emisión de un cheque cuyo pago se rechace continuará generando los intereses y sanciones de conformidad con la ley. Corresponderá al Área Financiera Municipal determinar las acciones pertinentes y el procedimiento a seguir en caso de libramiento de cheques sin fondos suficientes y cualquier otra irregularidad que impida hacerlo efectivo.

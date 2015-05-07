@@ -1,0 +1,1 @@
+Artículo 54.—Del comprobante. El funcionario encargado de trasmitir el correo electrónico deberá imprimir la diligencia e incorporarla al respectivo expediente. Quien transmite no necesariamente debe estar nombrado como notificador. El comprobante no requiere la firma de quien transmite, basta con indicar su nombre para su identificación.

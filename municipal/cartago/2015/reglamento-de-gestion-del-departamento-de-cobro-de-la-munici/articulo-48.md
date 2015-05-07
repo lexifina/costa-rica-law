@@ -1,0 +1,7 @@
+Sección III
+Notificaciones por medio señalado
+Artículo 48.—Medio para recibir notificaciones. Los medios para recibir notificaciones son el correo electrónico o digital, el fax; así como otros medios electrónicos similares, siempre que permitan confirmar la recepción.
+Los obligados tributarios deben indicar un medio electrónico para recibir notificaciones en el primer escrito que presenten o en respuesta a la primera audiencia concedida por la Administración Tributaria Municipal.
+Asimismo, en todo acto o resolución que se le notifique a un obligado, se le debe prevenir por única vez, que debe señalar un medio electrónico para recibir notificaciones.
+El medio fijado por el obligado para recibir notificaciones en un procedimiento o diligencia, será válido y surtirá efectos jurídicos, para toda notificación que se le haga dentro del procedimiento o trámite que se le sigue ante la Administración Tributaria Municipal.
+No obstante, si el obligado manifiesta que carece de la posibilidad de ser notificado por un medio electrónico, las notificaciones se practicarán de conformidad con el artículo 40- de este Reglamento. Pero si constara a la Administración Tributaria Municipal que el obligado utiliza medios electrónicos para sus actividades económicas, la Administración podrá notificar el resto de las actuaciones del procedimiento de que se trate, a través de dichos medios, aplicando supletoriamente la Ley de Notificaciones Judiciales.

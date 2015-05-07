@@ -1,0 +1,2 @@
+Artículo 53.—Verificación de la transmisión. Para notificar por este medio se harán hasta cinco intentos para enviar al correo electrónico señalado, con intervalos de al menos treinta minutos; esos intentos se harán tres el primer día y dos el siguiente, estos dos últimos intentos deben producirse en día hábil y después de las ocho horas del día.
+De resultar negativos todos ellos así se hará constar en el comprobante que emite el sistema. En dicho comprobante se consignará el correo electrónico, la fecha y la hora de cada intento.

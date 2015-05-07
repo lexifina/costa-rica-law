@@ -1,0 +1,1 @@
+Artículo 86.—De la ausencia temporal. Cuando un abogado deba ausentarse de su oficina por más de ocho días hábiles, deberá comunicarlo al Departamento de Cobro, de previo y en forma escrita, indicando el profesional que queda a cargo de los casos que le fueron asignados.

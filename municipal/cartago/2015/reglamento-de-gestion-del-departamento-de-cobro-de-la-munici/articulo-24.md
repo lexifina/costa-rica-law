@@ -1,0 +1,1 @@
+Artículo 24.—Comprobantes de pago. Comprobante de pago, es todo aquel documento, físico o de transmisión electrónica, que demuestra que el pago de la deuda se ha llevado a cabo, sea de forma total o parcial. Los comprobantes de pago deberán ser autorizados por la Municipalidad, con los requisitos que ésta determine.

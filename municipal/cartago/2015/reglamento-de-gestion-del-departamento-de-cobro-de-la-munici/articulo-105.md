@@ -1,0 +1,3 @@
+Sección II
+De las Devoluciones
+Artículo 105.—Devolución de saldos acreedores. La Administración Tributaria Municipal puede disponer de oficio la devolución de saldos acreedores. La devolución de saldos acreedores supone la práctica previa de las compensaciones de oficio que deriven de los registros municipales, así como de cualquier otra que deba solicitar el munícipe. En caso de que un munícipe reciba una devolución de oficio respecto de la que procediere una compensación previa, este deberá comunicarlo dentro de los cinco días hábiles siguientes y restituir el saldo deudor que corresponda dentro del mismo plazo.

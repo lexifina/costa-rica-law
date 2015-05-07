@@ -1,0 +1,4 @@
+Sección I
+De los abogados externos
+Artículo 83.—De la designación. La Municipalidad podrá nombrar abogados externos para la gestión judicial de sus cuentas, sin perjuicio de encomendar tales labores a abogados de planta que tendrán como funciones propias y ordinarias dicha gestión. Las disposiciones que regulan a los abogados externos serán aplicables a los abogados internos o de planta que se les asigne el cobro judicial como función propia y en lo conducente.
+Los abogados externos serán designados en cumplimiento de la normativa en materia de Contratación Administrativa y su contratación no establece ninguna obligación laboral con la Municipalidad. El número de abogados externos a contratar dependerá de la cartera morosa que será remitida a la etapa ejecutiva, los casos, los montos y su cantidad será determinada por la Jefatura del Departamento de Cobro.

@@ -1,0 +1,3 @@
+Artículo 112.—Departamento que dicta resolución y atiende recursos contra la misma. Cuando se determine el saldo acreedor en virtud de los actos de instrucción desarrollados y en consecuencia sea procedente la devolución, corresponde a los jefes de los departamentos de Bienes Inmuebles, Patentes, Comercial,
+Comercial, Urbanismo, Mercado, Estacionómetros, según el caso, emitir la resolución de devolución, en la que se liquidará tanto principal como intereses.
+Contra la resolución que deniegue la solicitud de devolución del saldo acreedor, los interesados pueden interponer los recursos ordinarios previstos en la legislación.
