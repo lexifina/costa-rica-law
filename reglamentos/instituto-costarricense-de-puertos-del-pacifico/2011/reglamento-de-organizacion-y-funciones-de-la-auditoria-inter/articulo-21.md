@@ -1,1 +1,0 @@
-Artículo 21.—Del comportamiento de los servidores de Auditoría. Los funcionarios de Auditoría General desempeñarán sus funciones de modo que su labor sea medio de mejoramiento, funcionamiento y consecución en general, del logro de los objetivos institucionales.

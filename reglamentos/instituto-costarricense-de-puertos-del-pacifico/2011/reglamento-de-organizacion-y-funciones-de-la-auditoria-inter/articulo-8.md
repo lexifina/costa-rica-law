@@ -1,1 +1,0 @@
-Artículo 8º—Visión. Seremos una Unidad asesora, evaluadora y fiscalizadora, que ayude al mejoramiento de los sistemas de control del INCOP, mediante servicios de calidad, manteniendo una cobertura de fiscalización apropiada con relación al universo fiscalizable, generando confianza con su aporte a la valoración del riesgo, controles y procesos de dirección del INCOP.

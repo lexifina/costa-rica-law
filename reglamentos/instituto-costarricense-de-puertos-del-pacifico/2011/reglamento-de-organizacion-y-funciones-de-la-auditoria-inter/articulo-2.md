@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Reglamento es de acatamiento obligatorio para el personal de la Auditoría Interna, así como para el resto de los funcionarios de la Administración Activa del Instituto Costarricense de Puertos del Pacífico, por tanto deberán cumplir con lo aquí establecido en la materia que a cada uno concierne.

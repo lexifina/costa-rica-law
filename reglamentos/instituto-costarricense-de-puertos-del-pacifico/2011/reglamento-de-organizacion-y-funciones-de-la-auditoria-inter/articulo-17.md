@@ -1,4 +1,0 @@
-Artículo 17.—Organización por Procesos. La Auditoría General se organizará bajo un enfoque de organización por procesos y subprocesos para propósitos de garantizar razonablemente la efectividad en el cumplimiento de sus competencias. Estos procesos se conformarán según la siguiente estructura:
-Proceso Gerencial. Subprocesos: Plan Estratégico de la Auditoría, Plan Anual Trabajo, Plan Operativo Institucional Auditoría, Sistema Específico de Valoración de Riesgo Auditoría, Auto-Evaluación de la Calidad, Presupuesto, Seguimiento Plan de Mejora, Informe de Labores, Capital Intelectual, Gestión Archivo Correspondencia, Control Activos.
-Proceso Fiscalización. Subproceso: Servicios Auditoría, Subproceso: Servicios Preventivos, Subproceso: Seguimientos.
-Asimismo el Auditor General debe instaurar y velar por la aplicación de los procesos necesarios para el aseguramiento de la calidad en el ejercicio de la auditoría interna, mediante evaluaciones internas y externas.
