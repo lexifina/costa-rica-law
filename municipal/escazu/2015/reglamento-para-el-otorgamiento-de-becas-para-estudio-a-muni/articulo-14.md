@@ -1,0 +1,4 @@
+II CAPÍTULO
+Programa de refuerzo y apoyo educativo
+Artículo 14º—De la naturaleza del Programa de Refuerzo y Apoyo Educativo. La Municipalidad de Escazú, con el fin de brindar soporte a aquellas personas becadas que presenten algún tipo de dificultad académica y que se vea reflejada en sus calificaciones, ofrecerá un Programa de Refuerzo y Apoyo Educativo que permita brindar las herramientas necesarias para poder superar las limitaciones u obstáculos que se presentan.
+Por lo anterior, el Macroproceso de Desarrollo Humano, específicamente la persona profesional en trabajo social encargada del Programa de Becas, podrá coordinar y gestionar actividades académicas dirigidas a un grupo de personas becadas seleccionadas, según disponibilidad presupuestaria o en su defecto podrá coordinar con los Centros Educativos que cuenten con los servicios de apoyo educativo.
