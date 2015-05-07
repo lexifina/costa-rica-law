@@ -1,7 +1,2 @@
-Artículo 20º—Con el fin de resolver casos no previstos en el presente Reglamento, se nombrará una Comisión de Zonaje e Incentivo por Regionalización, la cual estará integrada de la siguiente manera:
-a) El Director General Técnico o su representante.
-b) El Director de Organización Pesquera y Acuícola o su representante.
-c) El Director General Administrativo o su representante.
-d) El Jefe de la Sección de Recursos Humanos o su representante
-e) Dos representantes nombrados por la Organización de Trabajadores que represente a la mayoría de los funcionarios de la Institución.
-Los dos representantes nombrados por los trabajadores durarán en sus cargos dos años.
+Artículo 20º—El INCOPESCA, a través de las instancias representadas en la Comisión y la respectiva Organización de Trabajadores podrá remover, sustituir y reelegir libremente a sus representantes. La Administración concederá licencia con goce de salario a los miembros de la Comisión, durante el tiempo que se requiera para cumplir sus funciones.
+(Así reformado por acuerdo AJDIP/193 del 7 de mayo de 2015)

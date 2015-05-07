@@ -1,1 +1,2 @@
-Artículo 26º—Las infracciones a lo establecido en el presente Reglamento, se reputarán como faltas disciplinarias y se sancionarán conforme al ordenamiento jurídico laboral administrativo que regula las relaciones de servicio de los funcionarios del INCOPESCA.
+Artículo 26º—Todo funcionario que considere que les asiste algún derecho, a tenor de las disposiciones contenidas en el presente Reglamento, o que han variado las condiciones que originaron su aprobación, deberá solicitar a la Sección de Recursos Humanos su reconocimiento o modificación y empezará a regir el primer día del mes posterior a su solicitud, siempre y cuando sea procedente y exista contenido presupuestario.
+(Así reformado por acuerdo AJDIP/193 del 7 de mayo de 2015)

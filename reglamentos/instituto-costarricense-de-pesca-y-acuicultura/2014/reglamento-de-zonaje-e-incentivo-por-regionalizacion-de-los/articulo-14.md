@@ -1,6 +1,3 @@
-Artículo 14º—El funcionario no perderá el derecho a devengar el zonaje o el incentivo por regionalización si tuviere que regresar a su domicilio legal y/o sede de trabajo, en los siguientes casos, siempre y cuando el periodo de regreso no exceda de un mes:
-a) Por motivo de licencia con goce de sueldo.
-b) Por motivo de incapacidad, enfermedad, embarazo o riesgo profesional.
-c) Por disfrute de cursos de capacitación, becas o pasantías.
-d) Por disfrute de vacaciones.
-e) Por trasladarse para cumplir funciones propias de su cargo, a una zona en la que no se paga zonaje o incentivo por regionalización.
+Artículo 14º—Cuando por alguna razón el INCOPESCA con fundamento en lo establecido en el presente Reglamento, resuelva suspender el pago de zonaje, ningún funcionario, podrá alegar derecho adquirido, en virtud de que el zonaje no constituye una prestación obligatoria e invariable y de que éste se fundamenta en circunstancias especiales, que al variar, hacen insuficiente la causa de su pago.
+En ese sentido, el pago de zonaje se suspenderá cuando se modifiquen las circunstancias que motivaron su autorización, en tal caso debe comunicársele al funcionario por lo menos con treinta días de anticipación a la fecha en que se hará efectiva la medida.
+(Así reformado por acuerdo AJDIP/193 del 7 de mayo de 2015)

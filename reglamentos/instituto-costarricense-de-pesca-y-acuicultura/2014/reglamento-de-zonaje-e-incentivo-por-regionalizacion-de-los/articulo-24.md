@@ -1,1 +1,2 @@
-Artículo 24º—La Comisión deberá emitir una decisión dentro de los treinta días naturales siguientes a la fecha en que se le someta el conocimiento de un asunto en la sesión respectiva. En el caso de que se requiera un tiempo mayor deberá comunicarlo a las partes, con ocho días de anticipación, pudiendo prorrogarse dicho plazo por una sola vez a decisión de la Comisión por un máximo de 15 días naturales.
+Artículo 24º—Las infracciones a lo establecido en el presente Reglamento, se reputarán como faltas disciplinarias y se sancionarán conforme al ordenamiento jurídico laboral administrativo que regula las relaciones de servicio de los funcionarios del INCOPESCA.
+(Así reformado por acuerdo AJDIP/193 del 7 de mayo de 2015)

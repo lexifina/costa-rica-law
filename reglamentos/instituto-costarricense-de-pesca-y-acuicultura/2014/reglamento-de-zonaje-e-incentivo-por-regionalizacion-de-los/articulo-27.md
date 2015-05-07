@@ -1,1 +1,2 @@
-Artículo 27º—La Sección de Recursos Humanos estará obligada a solicitarle a todos los funcionarios que devengan zonaje o incentivo por regionalización, en el transcurso del primer trimestre de cada año, declaración jurada en la que se estipule claramente su domicilio legal actual.
+Artículo 27º—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(Así reformado por acuerdo AJDIP/193 del 7 de mayo de 2015)

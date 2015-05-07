@@ -14,3 +14,4 @@ Reglamento de zonaje e incentivo por regionalización de los funcionarios del In
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-18 | la propia norma |
+| 2 | 2015-05-07 | Acuerdo 193 (2015-05-07) |
