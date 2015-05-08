@@ -1,4 +1,5 @@
 DEFENSORÍA DE LOS HABITANTES DE LA REPÚBLICA
+(Nota de Sinalevi: Mediante el punto 5 del acuerdo N° 00001921 del 8 de mayo de 2015, “Ratifica la delegación en la Dirección de Admisibilidad y Atención Inmediata, las Direcciones de Defensa y Sedes Regionales, de las funciones de defensa, según las particularidades de sus ámbitos temáticos y el alcance de sus competencias” se indicó reformar en forma tácita únicamente las disposiciones del presente procedimiento que se le opongan.)
 N° 00001815.—La Defensora de los Habitantes, con fundamento en el artículo 1º de la Ley de la Defensoría de los Habitantes de la República de Costa Rica, Nº 7319 del 17 de noviembre de 1992 y de conformidad con lo que establecen los artículos 1, 2, 6, 7 y 9 del Reglamento de la Defensoría de los Habitantes de la República, Decreto Ejecutivo Nº 22266-J del 15 de junio de 1993; y,
 Considerando que:
 1º—Que los procesos y actividades institucionales que realiza la Defensoría de los Habitantes deben regirse por reglas y procedimientos uniformes y oficiales que se deben estar ajustando a las necesidades de los y las habitantes.

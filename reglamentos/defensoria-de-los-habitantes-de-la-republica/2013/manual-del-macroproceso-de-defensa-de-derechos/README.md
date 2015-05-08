@@ -14,3 +14,4 @@ Manual del Macroproceso de defensa de derechos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-05 | la propia norma |
+| 2 | 2015-05-08 | Acuerdo 1921 (2015-05-08) |
