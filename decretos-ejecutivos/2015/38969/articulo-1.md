@@ -1,0 +1,29 @@
+N° 38969-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+En uso de las facultades que les confieren los artículos 130, 140 incisos 3), 18) y 20) y artículo 146 de la Constitución Política, 25.1, 27.1, 28 1. 2. b) 103.1 y 198 de la Ley General de la Administración Pública (Nº 6227 de 2 de mayo de 1978).
+Considerando:
+I.—Que en el diario oficial La Gaceta del día doce de marzo del año 2014, se publicó el “Reglamento de Garantías o Cauciones para los funcionarios del Ministerio de Relaciones Exteriores y Culto”, Decreto Ejecutivo número 38219-RE del 15 de enero de 2014.
+II.—Que para su correcta aplicación dicho Reglamento requiere la incorporación de algunas modificaciones.
+III.—Que según certificación N° CERT-228-2014 emitida por la Secretaria del Consejo de Gobierno de fecha 19 de marzo del 2014, el 8 de julio del 2014 era la fecha de rige del cese de varios funcionarios a los que les corresponde suscribir la póliza, que en su mayoría se trata de Embajadores, por lo que como un criterio de conveniencia, racionalidad y oportunidad, se hace necesario cambiar la fecha que se indica en las Disposiciones Transitorias del Decreto Ejecutivo Nº 38219-RE. Por tanto,
+Decretan:
+Artículo 1°—Modificar los artículos 2, 4, 6, 7, 12 y las Disposiciones Transitorias del Reglamento número 38219-RE, denominado “Reglamento de Garantías o Cauciones para los funcionarios del Ministerio de Relaciones Exteriores y Culto” publicado en el diario oficial La Gaceta del día doce de marzo del año 2014 , para que en adelante se lean de la siguiente manera:
+“ Artículo 2.- Funcionarios que deben rendir garantía
+Todos aquellos funcionarios que realicen las funciones descritas en el artículo 1 del presente Reglamento deben rendir la garantía y se dividen en tres categorías: Alto, Medio y Bajo, ya sea que ostenten un nombramiento interino o en propiedad en comisión o de carrera; los rangos se definen así:
+Alto: Ministro, Viceministro, Directores, Embajadores, Encargados de negocios, cuando corresponda en razón de su cargo; Cónsules Generales y Cónsules unipersonales.
+Medio: Representantes administrativos, tal como se definen en el artículo 5 del Reglamento Autónomo de servicio y organización del Ministerio de Relaciones Exteriores y Culto.
+Bajo: Todos aquellos funcionarios autorizados para desempeñar las funciones descritas en el artículo 1 del presente Reglamento por las Jefaturas institucionales y por los Jefes de las misiones diplomáticas destacados en el exterior.
+Artículo 4.- Unidad Responsable y montos
+Le corresponde al Departamento Proceso de Recursos Humanos la responsabilidad de supervisar que todos los funcionarios del Ministerio obligados a rendir la garantía respectiva, lo hagan dentro de los primeros quince días del mes de enero de cada año. Para ello, cada diciembre, así como en el momento en que se produzcan cambios en los cargos correspondientes, la Dirección General de Servicio Exterior y las demás jefaturas institucionales deberán remitir al Proceso de Recursos Humanos una lista detallada de los funcionarios obligados a rendir la garantía regulada en el presente reglamento.
+De acuerdo con lo anterior, el Departamento Proceso de Recursos Humanos, en el mes de enero de cada año procederá con la revisión de los montos de las cauciones con el fin de determinar si las garantías que ofrecen los funcionarios cubren la totalidad de los montos a caucionar, si son seguras y satisfactorias para el Ministerio, y si se adaptan al fin propuesto en el artículo trece de la Ley de Administración Financiera de la República y Presupuestos Públicos. A su vez, este Departamento procederá a la actualización anual automática de los montos de las cauciones, la cual será comunicada a los funcionarios oportunamente.
+Artículo 6: Del plazo de las garantías.
+Los funcionarios públicos deberán rendir la garantía dentro de un plazo de 30 días hábiles siguientes al rige del respectivo nombramiento. Las garantías ofrecidas deberán mantenerse vigentes mientras ocupen sus cargos y/o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios en el que sean parte.
+Artículo 7.- Del control.
+En cumplimiento de las disposiciones del presente reglamento, corresponderá al Departamento Proceso de Recursos Humanos comunicar oportunamente a los funcionarios nombrados o por nombrar en alguno de los cargos que se indican en el artículo 2° de este reglamento, la obligación de rendir la garantía correspondiente.
+Los funcionarios deberán presentar el original y la copia del documento que plasme las garantías prestadas, con el fin de que se verifique la efectividad y ejecutoriedad del documento ante el Departamento Proceso de Recursos Humanos para incorporarlo al expediente respectivo.
+El Departamento Proceso de Recursos Humanos iniciará los trámites de ejecución de las garantías, cuando proceda, o las cancelará, cuando el funcionario cese el nombramiento en el cargo que lo obliga a rendirla.
+Las pólizas originales entregadas por los funcionarios al Departamento Proceso Recursos Humanos a favor del Ministerio quedarán bajo custodia del Departamento Financiero.
+Artículo 12.- Sanción del funcionario que incumple su deber de rendir caución.
+El funcionario obligado a rendir la garantía que no lo hiciere o no la tuviere vigente durante el período en que está obligado, incurrirá en falta grave produciendo el cese inmediato del cargo sin responsabilidad patronal, todo de conformidad con lo dispuesto en el artículo 120 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, siguiendo para ello las reglas y los principios constitucionales del debido proceso.
+Disposiciones Transitorias
+Transitorio I. Los funcionarios obligados a rendir la garantía que se regula en el presente reglamento, deberán suscribir la póliza de fidelidad a favor del Ministerio de Relaciones Exteriores y Culto, a más tardar el día treinta de abril del 2015.”
