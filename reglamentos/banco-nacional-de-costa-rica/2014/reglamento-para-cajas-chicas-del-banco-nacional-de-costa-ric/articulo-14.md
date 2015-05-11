@@ -1,2 +1,0 @@
-Artículo 14.—Contabilización de facturas. A fin de que los desembolsos queden debidamente contabilizados en las respectivas cuentas deudoras, el encargado de la Caja Chica presentará a la Dirección Logística de Recursos Materiales los justificantes respectivos.
-El registro de todas las facturas y reintegros deberán realizarse en SIPRO, lo anterior siguiendo los lineamientos establecidos en el procedimiento PR177RM01 “Procedimiento para retiro y reintegro de la caja chica (vale provisional).

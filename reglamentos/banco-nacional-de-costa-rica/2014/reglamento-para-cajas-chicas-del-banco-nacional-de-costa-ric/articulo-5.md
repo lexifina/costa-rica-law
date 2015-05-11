@@ -1,1 +1,0 @@
-Artículo 5º—Compras por Caja Chica: Por este mecanismo se podrán adquirir aquellos bienes o servicios que por su naturaleza se contabilicen como un gasto menor, indispensable y que su ejecución sea de carácter excepcional, según el artículo 133 del Reglamento a la Ley de Contratación Administrativa, según lo descrito en el artículo 2 de este Reglamento.

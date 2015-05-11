@@ -1,2 +1,0 @@
-Artículo 17.—Arqueo de Caja Chica. En toda caja chica, debe haber correspondencia entre el fondo autorizado, el efectivo y los comprobantes en poder del encargado. Si al realizarse arqueos se establece un faltante, éste tiene que ser cubierto por el encargado del fondo fijo. Mientras que en caso de sobrantes se contabilizará a favor del Banco.
-El encargado de control interno, la jefatura inmediata o el funcionario establecido a lo interno de cada oficina debe realiza arqueos de la caja chica una vez al mes como mínimo y dejar evidencia de dicha revisión.
