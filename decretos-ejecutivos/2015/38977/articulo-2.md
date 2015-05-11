@@ -1,0 +1,1 @@
+Artículo 2º—Refórmese el artículo 167 del Decreto Ejecutivo N° 32300 del 6 de junio del 2014, Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y Ministerio de la Presidencia para que de los órganos adscritos a la Dirección de Gestión Presidencial se elimine el Departamento de Apoyo Social.
