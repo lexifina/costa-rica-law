@@ -1,0 +1,1 @@
+Artículo 2º—A las disposiciones del presente Reglamento están sujetos la Vicealcaldía, Directores, Titulares de los diferentes Departamentos del Municipio, Secretaría del Concejo Municipal, Auditoría Interna y demás funcionarios de la Municipalidad. El incumplimiento a sus disposiciones acarreará responsabilidad administrativa, civil o penal, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 12.—Para el proceso de pago de las actividades de Alimentación, se deberá presentar por escrito ante el Alcalde o el Director que corresponda según su área un informe comparativo entre la cantidad de comida contratada y los asistentes a la actividad (listados de asistentes) esto con el fin de controlar el desperdicio y mejorar la planificación de las actividades.
