@@ -1,0 +1,1 @@
+Artículo 5º—La Oficina de Programas Sociales del Despacho de la Primera Dama, deberá llevar un inventario permanente de los bienes exonerados para donación, que muestre al menos inscripción, naturaleza o características del bien, cantidad ingresada y fecha de ingreso, cantidad disponible para donar, las cantidades donadas y fecha de salida.

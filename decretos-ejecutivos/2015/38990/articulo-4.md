@@ -1,0 +1,1 @@
+Artículo 4º—La Oficina de Programas Sociales del Despacho de la Primera Dama será responsable del control, el uso y el destino de los bienes donados, adquiridos con exención tributaria, con el fin de garantizar el cumplimiento de los fines públicos estatales de bienestar social, que establece la Constitución Política.
