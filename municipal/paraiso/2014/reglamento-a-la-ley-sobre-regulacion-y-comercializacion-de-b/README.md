@@ -15,3 +15,4 @@ Reglamento a la Ley sobre regulación y Comercialización de bebidas con conteni
 | --- | --- | --- |
 | 1 | 2014-06-16 | la propia norma |
 | 2 | 2015-03-10 | Reglamento municipal 379 (2015-03-10) |
+| 3 | 2015-05-12 | Reglamento municipal 392 (2015-05-12) |
