@@ -1,1 +1,0 @@
-Artículo 36: No obstante lo dispuesto en el artículo anterior dejará de imponerse la sanción disciplinara al que por error marcó en el mecanismo de control existente sin informar del hecho a quien corresponda a más tardar en el curso de la jornada de trabajo siguiente a aquella en la que el hecho sucedió.

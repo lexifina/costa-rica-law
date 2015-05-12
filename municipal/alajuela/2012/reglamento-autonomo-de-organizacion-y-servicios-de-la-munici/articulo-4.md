@@ -1,1 +1,0 @@
-Artículo 4: La aplicación del presente Reglamento, corresponde al Alcalde (sa) Municipal y a los representantes patronales para los empleados a cargo de la Administración Municipal y respecto a los servidores que pertenecen al Concejo Municipal dicho órgano determinará su propio régimen, pudiendo aplicar las normas del presente Reglamento de forma supletoria.

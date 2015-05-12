@@ -1,1 +1,0 @@
-Artículo 57: La Municipalidad deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo del trabajo que le ocurra a sus servidores dentro del término de ocho días hábiles a partir de su acaecimiento.
