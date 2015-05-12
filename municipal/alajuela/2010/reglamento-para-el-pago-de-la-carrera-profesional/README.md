@@ -14,3 +14,4 @@ Reglamento para el pago de la Carrera Profesional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-06 | la propia norma |
+| 2 | 2015-05-12 | Reglamento municipal 19 (2015-05-12) |
