@@ -1,2 +1,4 @@
 Artículo 5º—La Dirección General del SENASA, por medio del Programa Nacional Símbolo de Sanidad, mediante resolución administrativa razonada, otorgará el correspondiente Símbolo antes mencionado, para lo cual el PSS custodiará el expediente administrativo y la DIPOA levantará, auditará y será la encargada de administrar y darle el debido seguimiento, informando al PSS en todo momento.
+Igualmente por resolución administrativa razonada se podrá diferenciar un símbolo de sanidad para sectores productivos en particular y para cuya obtención los diferentes establecimientos interesados deberán ajustarse en lo particular a las condiciones y requisitos que en dicha resolución se establecerán.
+(Así adicionado el párrafo anterior por el punto 2) de la directriz SENASA-DG-D002 del 12 de mayo de 2015)
 (Así reformado mediante directriz N° SENASA-DG-D003-2014 del 11 de febrero del 2014)

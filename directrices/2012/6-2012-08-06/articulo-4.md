@@ -13,4 +13,5 @@ k) Contar con un historial de al menos tres auditorías realizadas por el SENASA
 l) Contar con un Sistema de gestión ambiental que garantice que la producción es acorde y respetuosa del ambiente.
 m) Contar con un Procedimiento de Rastreabilidad.
 n) Contar con un Procedimiento de Retiro de Producto del Mercado.
-o) Realizar el pago de la tarifa anual establecida en el Decreto Nº 27763-MAG del 10 de marzo de 1999 y sus reformas.
+o) Realizar el pago de la tarifa establecida en el Decreto Nº 27763-MAG del 10 de marzo de 1999 y sus reformas.
+(Así reformado el inciso anterior por el punto 1) de la directriz SENASA-DG-D-002 del 12 de mayo de 2015)

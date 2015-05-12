@@ -15,3 +15,4 @@ Establece el "Símbolo de Sanidad" para aquellos operadores que han demostrado a
 | --- | --- | --- |
 | 1 | 2012-08-24 | la propia norma |
 | 2 | 2014-02-11 | Directriz 3 (2014-02-11) |
+| 3 | 2015-05-12 | Directriz 2 (2015-05-12) |
