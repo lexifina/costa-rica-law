@@ -1,0 +1,1 @@
+Artículo 4º—En la resolución que emita la Administración Tributaria, se debe motivar el acto de autorización o denegación de la solicitud, y se debe indicar al solicitante que tiene derecho a presentar el recurso de apelación ante el Tribunal Fiscal Administrativo, según lo dispuesto en el artículo 156 del Código Normas y Procedimientos Tributarios.

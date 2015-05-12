@@ -1,0 +1,1 @@
+Artículo 3º—Si el solicitante no cumple con alguno de los requisitos establecidos en el artículo anterior, la Administración Tributaria le debe realizar la prevención para el cumplimiento de este, de conformidad con lo dispuesto en el artículo 59 del Reglamento de Procedimiento Tributario.

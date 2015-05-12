@@ -1,0 +1,1 @@
+Artículo 5º—De ser aprobada la solicitud para registrar como gasto los activos fijos con valores superiores al 25% de un salario base, el contribuyente debe registrar en su contabilidad una cuenta de gastos denominada “Gastos deducibles autorizados por compra de activos fijos aprobados”, en donde se debe registrar el monto aprobado, a efectos de control tributario.

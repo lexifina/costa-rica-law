@@ -1,0 +1,1 @@
+Artículo 2º—Para poder presentar la solicitud de autorización para registrar como gasto los activos fijos con valores superiores al 25% de un salario base, el solicitante no debe haber recibido el beneficio de aprobación de un procedimiento de depreciación acelerada en el período fiscal en el que se está presentado la petición.
