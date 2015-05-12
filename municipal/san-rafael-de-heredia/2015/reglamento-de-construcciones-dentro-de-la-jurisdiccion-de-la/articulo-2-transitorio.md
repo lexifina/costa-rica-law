@@ -1,0 +1,1 @@
+Transitorio II.—En cuanto a la solicitud de licencias municipales se permitirá, dentro de los 45 días siguientes a la publicación de este Reglamento en el Diario Oficial, la presentación de la documentación correspondiente en forma física. Pasado este tiempo solo se permitirá el ingreso de solicitudes conforme lo establece este reglamento.

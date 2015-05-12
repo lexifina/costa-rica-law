@@ -1,0 +1,10 @@
+Artículo 47.—Número máximo de viviendas por lote (densidad). El número de viviendas que puede admitir un lote depende de que éste se encuentre en una urbanización tradicional, o en un conjunto habitacional (condominios o apartamentos); y de que, en cualquiera de ambos casos, haya o no servicio de cloacas. El número máximo es el de cociente de dividir el área total del terreno entre el área tributaria asignada a cada vivienda según el número de dormitorios.
+| Urbanización tradicional | conjunto habitacional
+Área tributaria en m2 | Área tributaria en m2
+N° de dormitorios | Sin cloaca | Sin cloaca | Sin cloaca | Con cloaca
+3 | 150 | 96 | 120 | 60
+2 | 125 | 80 | 105 | 45
+1 | 120 | 65 | 90 | 30
+Si no hubiere colector de aguas negras en funcionamiento, el número máximo de viviendas que se podrá construir en un lote estará sujeto al área libre requerida para ubicar el sistema de drenaje en la longitud y área que resulten de la prueba de infiltración, la cual deberá realizarse de conformidad con el instructivo que al respecto tiene A y A. En todo caso el área resultante no podrá ser inferior a seis metros cuadrados por persona. Para definir el número de habitantes por vivienda se considerarán dos personas por dormitorio. En caso de existir duda sobre el uso indicado para un aposento se presumirá que éste puede tener carácter de dormitorio a los efectos del cálculo del área de drenaje.
+En los predios que se ubiquen en zona especial de protección definido por el Decreto N°25902-MIVAH-MP-MINAE se permitirá únicamente una vivienda por finca. La Municipalidad podrá denegar cualquier solicitud de Licencia de Construcción en la se evidencie claramente la construcción de más una unidad habitacional en esta zona.
+En los proyectos de ampliación de vivienda en segunda planta las escaleras de acceso a dicha área deberán ubicarse dentro de la primera planta de la construcción existente (excepto en cocheras o corredores), con el fin de no generar unidades habitacionales independientes que sobrepasen la densidad permitida.

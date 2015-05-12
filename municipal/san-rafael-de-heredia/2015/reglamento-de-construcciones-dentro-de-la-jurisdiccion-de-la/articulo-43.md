@@ -1,0 +1,1 @@
+Artículo 43.—Accesibilidad. Toda construcción de uso no residencial tendrá que cumplir con lo estipulado en la Ley 7600 y cualquier normativa afín, sin embargo, en los predios que se ubiquen en urbanizaciones o condominios que se dejaron para personas con alguna discapacidad deberán construir conforme a las normas que regulan el tema de la accesibilidad.

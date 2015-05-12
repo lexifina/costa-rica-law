@@ -1,0 +1,1 @@
+Artículo 25.—Inspección preliminar. De previo al otorgamiento del permiso respectivo, el Departamento de Control Constructivo por medio de los Inspectores Municipales realizará una inspección en el campo a fin de verificar el cumplimiento y veracidad de los requisitos aportados por el interesado.

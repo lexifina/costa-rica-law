@@ -1,0 +1,1 @@
+Artículo 50.—Antejardín. Toda obra deberá respetar una zona de antejardín mínimo de dos metros de ancho, con excepción de obras relacionadas con locales o centros comerciales, los cuales únicamente deberán respetar la previsión vial correspondiente, conforme el artículo 35 del presente reglamento.

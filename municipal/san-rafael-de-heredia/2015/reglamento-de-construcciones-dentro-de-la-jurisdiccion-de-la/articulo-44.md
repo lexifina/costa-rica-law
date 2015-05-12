@@ -1,0 +1,1 @@
+Artículo 44.—Aceras. Es obligación del propietario reparar, reconstruir o construir la acera ubicada al frente de su propiedad, para lo cual deberá solicitar las especificaciones técnicas correspondiente a la Municipalidad.

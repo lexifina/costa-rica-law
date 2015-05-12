@@ -1,0 +1,1 @@
+Artículo 9°—Licencia. Una vez aprobado el permiso de construcción, el Departamento de Control Constructivo o departamento encargado emitirá la licencia correspondiente y el interesado deberá colocarla en el sitio de la obra en un lugar visible. El incumplimiento de este artículo podrá sancionarse de conformidad con este Reglamento.

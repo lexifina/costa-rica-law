@@ -1,0 +1,3 @@
+CAPÍTULO XIV
+Disposiciones finales y transitorias
+Artículo 80.—Responsabilidad municipal. Los funcionarios municipales están obligados a hacer cumplir las leyes vigentes que regulan lo referente a obras civiles así como las otras normas que tengan relación con esta materia para el ejercicio del control de la explotación de los inmuebles de manera planificada y ordenada tendiente a lograr el desarrollo del cantón. Para cumplir con esta obligación podrá acudir a otras instituciones del Estado y coordinar con ellas la ejecución e implementación de lo que lo impone el ordenamiento jurídico nacional.

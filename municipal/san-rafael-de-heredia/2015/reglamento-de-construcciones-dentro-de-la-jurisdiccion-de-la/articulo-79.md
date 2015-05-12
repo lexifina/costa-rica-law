@@ -1,0 +1,1 @@
+Artículo 79.—Todo propietario, profesional responsable o administrado en general, podrá solucionar su situación en cualquier momento del proceso, para cual deberá cumplir con los requisitos correspondientes, de acuerdo a lo expuesto en este Reglamento como en el ordenamiento jurídico vigente.
