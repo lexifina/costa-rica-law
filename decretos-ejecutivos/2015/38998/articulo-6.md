@@ -1,0 +1,1 @@
+Artículo 6º—Divulgación de normativa, manuales, formularios e instructivos. La autoridad aduanera mantendrá actualizado el sitio WEB del Ministerio de Hacienda, con la normativa vigente, los requisitos, las obligaciones, los formularios, instructivos y demás documentos vigentes para optar y mantener la condición de Operador Económico Autorizado en el PROFAC.

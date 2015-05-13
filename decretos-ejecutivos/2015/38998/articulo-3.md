@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de Aplicación. El Decreto resulta aplicable a todas aquellas personas físicas o jurídicas, que voluntariamente se sometan al Programa de Facilitación Aduanera para el Comercio Confiable, de conformidad con cada una de las etapas de implementación que al efecto establezca la Dirección General de Aduanas.

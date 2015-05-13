@@ -1,0 +1,3 @@
+Artículo 4º—Certificación. La certificación como Operador Económico Autorizado en el Programa de Facilitación Aduanera para el Comercio Confiable es otorgada por la Dirección General de Aduanas, y tendrá como vigencia un período de cuatro años.
+De previo a finalizar el período de los cuatro años, el OEA podrá gestionar nuevamente la Solicitud de Certificación PROFAC; en cuyo caso deberá ser presentada ante el Área de Relaciones y Asuntos Externos de la Dirección General de Aduanas, seis meses antes del vencimiento de la certificación.
+Todo lo anterior, sin perjuicio del cumplimiento de las obligaciones y eventuales consecuencias tras posibles incumplimientos.

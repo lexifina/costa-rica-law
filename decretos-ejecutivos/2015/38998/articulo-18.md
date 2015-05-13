@@ -1,0 +1,3 @@
+Artículo 18.—Desestimiento o renuncia. Cuando el interesado decida no continuar con el proceso de solicitud de certificación PROFAC o cuando el OEA decida renunciar al Programa de Facilitación Aduanera para el Comercio Confiable, podrá comunicar por escrito al Área de Relaciones y Asuntos Externos su intención de no continuar con las gestiones pendientes o su certificación; en cuyo caso se procederá a emitir el acto resolutivo que resuelve la renuncia.
+El acto administrativo será notificado en el lugar y forma que hubiere comunicado el interesado.
+Resuelta la renuncia, el interesado no podrá gestionar una nueva solicitud de certificación PROFAC hasta tanto no hubiere transcurrido el plazo de tres años desde el acto resolutivo que resuelve la renuncia.

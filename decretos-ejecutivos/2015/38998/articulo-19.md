@@ -1,0 +1,7 @@
+CAPÍTULO IV
+Inhabilitación y revocatoria del Operador
+Económico Autorizado
+Artículo 19.—Inhabilitación. Procederá la inhabilitación de la condición como Operador Económico Autorizado en aquellos casos en los que exista incumplimientos de las obligaciones requeridas para mantener la certificación como Operador Económico Autorizado, conforme las disposiciones del presente Reglamento, y las demás normas que lo modifiquen o adicionen; siempre y cuando los incumplimientos puedan ser subsanados por el Operador Económico Autorizado y no se encuentren previstas como causales de revocatoria.
+Una vez que se verifique el incumplimiento, la Dirección General de Aduanas dentro del plazo de quince días hábiles procederá a emitir el acto resolutivo sobre la inhabilitación del Operador Económico Autorizado, el cual deberá ser notificado en el lugar o medio señalado.
+Dicho acto administrativo tendrá por efecto la suspensión de los beneficios otorgados por un período máximo de tres meses, plazo en el cual el interesado deberá aportar las pruebas necesarias para demostrar a la autoridad aduanera que ha subsanado el incumplimiento por el que fue inhabilitado.
+Si posterior al acto administrativo que ordena la inhabilitación del Operador Económico Autorizado transcurrieran tres meses sin que se hubieren subsanados los incumplimientos, la Dirección General de Aduanas dentro del plazo de quince días hábiles, emitirá una resolución ordenando la revocatoria de la condición de Operador Económico Autorizado.

@@ -1,0 +1,1 @@
+Artículo 5º—Confidencialidad. El Servicio Nacional de Aduanas mantendrá estricta confidencialidad de la información obtenida directamente del interesado conforme a este Decreto y la legislación vigente; y se utilizará únicamente para los efectos del Programa de Facilitación Aduanera para el Comercio Confiable.

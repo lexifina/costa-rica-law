@@ -1,0 +1,1 @@
+Artículo 17.—Comprobación de la certificación. En el ejercicio de sus funciones y cuando así lo considere pertinente, el Área de Relaciones y Asuntos Externos podrá realizar inspecciones en las instalaciones del Operador Económico Autorizado, previa comunicación al interesado.

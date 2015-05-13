@@ -1,0 +1,4 @@
+CAPÍTULO III
+Proceso de certificación del Operador Económico Autorizado
+Artículo 11.—Solicitud. La persona física o jurídica que voluntariamente requiera certificarse como Operador Económico Autorizado en el Programa de Facilitación Aduanera para el Comercio Confiable, debe presentar ante el Área de Relaciones y Asuntos Externos, el Formulario de Solicitud de Certificación PROFAC establecido a tal efecto mediante resolución de alcance general, aportando en el acto los documentos adjuntos y el cuestionario de autoevaluación de la empresa establecido a tal efecto mediante resolución de alcance general. Tanto el formulario de solicitud como el cuestionario de autoevaluación deberán ser complementados y firmados por la persona con capacidad y facultad legal para actuar y contraer obligaciones en nombre propio o de la empresa.
+La gestión de solicitud para optar por la certificación PROFAC ante la Dirección General de Aduanas es gratuita.
