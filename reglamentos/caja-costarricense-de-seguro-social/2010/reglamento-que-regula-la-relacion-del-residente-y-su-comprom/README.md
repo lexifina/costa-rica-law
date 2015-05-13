@@ -14,3 +14,4 @@ Reglamento que regula la relación del Residente y su compromiso como especialis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-16 | la propia norma |
+| 2 | 2015-05-13 | SINALEVI (sin norma nombrada) |
