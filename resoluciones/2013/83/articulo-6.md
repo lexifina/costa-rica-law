@@ -1,5 +1,0 @@
-VI. Notificar la presente resolución tanto a la empresa Claro CR Telecomunicaciones S. A. como al Instituto Costarricense de Electricidad y publicar el Por tanto de la presente resolución en el Diario Oficial La Gaceta, así como publicar un extracto en un periódico de circulación nacional y en su totalidad esta resolución en la página electrónica institucional.
-Se hace saber que el texto íntegro de la citada resolución puede consultarse en la dirección electrónica: www.sutel.go.cr/mercados/consultapublica, así como en el Expediente SUTEL- OT- 090-2012, en las instalaciones de la SUTEL.
-ACUERDO FIRME.
-NOTIFÍQUESE Y PUBLÍQUESE
-El presente acto de comunicación adicionalmente certifica que la anterior resolución, se encuentra aprobada mediante acuerdo firme, y se expide al amparo de lo previsto en el artículo 65, párrafo 2 de la Ley General de la Administración Pública, y en inciso 9) del citado artículo 22 del Reglamento interno de organización y funciones de la Autoridad Reguladora de los Servicios Públicos y sus órganos desconcentrados, con posterioridad a la aprobación del Acta de la sesión correspondiente.

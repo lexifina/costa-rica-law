@@ -1,1 +1,0 @@
-III. Advertir que la eliminación de dicha frase supone que en los procesos de revisión, análisis y definición de operadores con poder significativo de mercado, se analizará el acceso privilegiado a recursos financieros o de otra naturaleza de manera general, esto debido a que es lo que la normativa permite en el caso de regulación ex ante.
