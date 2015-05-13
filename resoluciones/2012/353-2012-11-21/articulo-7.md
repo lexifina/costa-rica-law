@@ -1,1 +1,0 @@
-7. En consecuencia, se otorga a los interesados, entiéndase personas físicas y/o jurídicas que puedan verse afectadas por lo dispuesto en la presente resolución, un plazo de diez días hábiles, contados a partir del día siguiente a la publicación del Por Tanto de la presente resolución en el Diario Oficial La Gaceta, a efecto de referirse a los lineamientos aquí fijados.

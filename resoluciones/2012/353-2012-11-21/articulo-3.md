@@ -1,1 +1,0 @@
-3. Los citados lineamientos, en la medida en que constituyen criterios y técnicas internacionalmente reconocidas, se entienden incorporadas al ordenamiento jurídico costarricense y deberán considerarse en adición y como complemento a todos los parámetros establecidos en las leyes y reglamentos que rigen la materia.
