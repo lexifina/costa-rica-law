@@ -1,0 +1,1 @@
+Artículo 18.—Depósitos. La transferencia electrónica de fondos que emita el Departamento Financiero Contable, producto del acuerdo de pago por concepto de reintegro al fondo, será depositada o acreditada en la cuenta bancaria respectiva.

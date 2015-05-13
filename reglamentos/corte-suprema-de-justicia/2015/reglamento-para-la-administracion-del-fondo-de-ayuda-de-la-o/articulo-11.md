@@ -1,0 +1,1 @@
+Artículo 11.—Autorización de Anticipos. Los adelantos de dinero que se tramiten por medio de la Oficina de Defensa Civil de las Víctimas, deberán ser aprobados por el Jefe de la Oficina respectiva o quien se haya designado para tales efectos.

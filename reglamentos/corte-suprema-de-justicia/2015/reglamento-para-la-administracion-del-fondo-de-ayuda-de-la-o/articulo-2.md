@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El objetivo del fondo es facilitar y agilizar la adquisición de bienes y servicios que por sus características son indispensables, urgentes o que por su cuantía no conviene recurrir a procedimientos de contratación más complejos.

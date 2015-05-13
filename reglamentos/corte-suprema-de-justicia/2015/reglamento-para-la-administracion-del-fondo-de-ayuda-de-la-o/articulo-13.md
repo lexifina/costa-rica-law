@@ -1,0 +1,1 @@
+Artículo 13.—Fecha límite para liquidación de anticipos. La liquidación correspondiente a los adelantos de dinero, deberá presentarse dentro de los siete días hábiles siguientes a la adquisición del bien, servicio, material o suministro.

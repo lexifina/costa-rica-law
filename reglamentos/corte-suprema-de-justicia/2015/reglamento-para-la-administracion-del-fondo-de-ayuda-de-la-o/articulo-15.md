@@ -1,0 +1,1 @@
+Artículo 15.—Arqueo e informe. La Oficina de Defensa Civil de las Víctimas de Delito, deberá rendir mensualmente al Departamento Financiero Contable con copia a la Auditoria Judicial y a la Administración del Ministerio Público, un arqueo e informe específico del fondo.

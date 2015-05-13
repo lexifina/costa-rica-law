@@ -1,0 +1,1 @@
+Artículo 3º—Administración. El control y seguimiento de las ayudas estará a cargo de la Oficina de Defensa Civil de las Víctimas y el pago a través de ésta y/o las instancias administrativas del Poder Judicial. La Auditoria Judicial, efectuará periódicamente y sin previo aviso, arqueos y conciliaciones de este fondo.

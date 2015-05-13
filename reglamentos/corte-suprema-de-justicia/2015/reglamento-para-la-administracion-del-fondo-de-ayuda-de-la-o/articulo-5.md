@@ -1,0 +1,2 @@
+Artículo 5º—Monto máximo del Fondo. El monto máximo del Fondo será de ¢10,000.000,00 (diez millones de colones exactos), los que deberán gestionarse vía corriente presupuestaria para los gastos indicados en el inciso c) del artículo 5 del reglamento de la cuenta especial de la ODCV.
+El contenido económico para su constitución provendrá del presupuesto ordinario y extraordinario aprobado para la Oficina de Defensa Civil de las Victimas de Delito, dentro del programa 929.
