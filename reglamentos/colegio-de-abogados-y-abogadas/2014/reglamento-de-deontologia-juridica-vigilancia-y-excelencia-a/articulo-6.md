@@ -1,0 +1,2 @@
+Artículo 6º—Apertura, cupo y sedes. Todos los cursos para ser impartidos requieren de una matrícula mínima de veinte participantes y hasta un máximo de treinta.
+El curso presencial se imparte en la sede central del Colegio en Zapote y sus sedes regionales, previa autorización de la Dirección Académica, cuando exista disponibilidad docente y una demanda de matrícula acorde con lo previsto en este artículo y las condiciones necesarias para ofrecer el curso.

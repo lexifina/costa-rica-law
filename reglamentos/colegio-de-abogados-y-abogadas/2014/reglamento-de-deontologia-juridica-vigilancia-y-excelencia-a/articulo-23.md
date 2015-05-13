@@ -1,0 +1,1 @@
+Artículo 23.—Notificación. Las resoluciones y resultados individuales serán comunicadas a los interesados, de conformidad con lo dispuesto en la Ley de Notificaciones Judiciales, ley Nº 8687 del 4 de diciembre de 2008, publicada en el Diario Oficial La Gaceta Nº 20 del 29 de enero de 2009.

@@ -1,0 +1,1 @@
+Artículo 5º—Modalidades del curso y duración. El curso se puede impartir mediante tres modalidades: presencial, bimodal o virtual. Cualquier modalidad comprende un total de treinta horas. La Dirección Académica es el órgano responsable de la coordinación operativa y administrativa del curso.

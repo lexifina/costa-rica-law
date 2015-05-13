@@ -1,0 +1,3 @@
+Artículo 17.—Del resultado del examen. El resultado del examen se calificará mediante un sistema de puntuación del 0 al 100. La nota mínima para aprobar será de 80. La calificación del examen se hará por el Comité nombrado para la realización de éste o por medios tecnológicos tales como una lectora óptica, según lo defina el Comité.
+Las notas serán comunicadas a los participantes por medio del correo electrónico reportado a la Dirección Académica a la hora de hacer su matrícula en un plazo máximo de un mes a partir del día siguiente de su realización.
+En caso de no aprobar el examen podrán matricularlo y realizarlo las veces que sea necesario de acuerdo con la calendarización anual establecida.
