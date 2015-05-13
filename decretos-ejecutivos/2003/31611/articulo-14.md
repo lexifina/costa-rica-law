@@ -1,0 +1,2 @@
+Artículo 14.—Excepción. En los casos en que por fuerza mayor, causa fortuita o cualquier otro motivo que afecte el desempeño del Sistema EXONET, se podrá exceptuar su uso obligatorio, permitiendo al beneficiario realizar el trámite correspondiente de manera documental, mientras persistan tales circunstancias.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39037 del 13 de mayo de 2015)

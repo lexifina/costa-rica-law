@@ -1,0 +1,2 @@
+Artículo 12.—Uso del Quiosco Tributario. Los beneficiarios de exención que carezcan de medios tecnológicos o destrezas suficientes en informática, como para gestionar autónomamente sus solicitudes de exención, deberán utilizar el Quiosco Tributario que estará a su disposición en las instalaciones del Departamento de Gestión de Exenciones de la División de Incentivos Fiscales de la Dirección General de Hacienda del Ministerio de Hacienda.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39037 del 13 de mayo de 2015)

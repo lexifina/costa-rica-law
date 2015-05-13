@@ -14,3 +14,4 @@ Autoriza al Departamento de Exenciones de la Dirección General de Hacienda, par
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-01-29 | la propia norma |
+| 2 | 2015-05-13 | Decreto Ejecutivo 39037 (2015-05-13) |

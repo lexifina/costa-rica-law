@@ -1,0 +1,2 @@
+Artículo 10.—Beneficiarios de otros regímenes de exención. Los beneficiarios de los regímenes de exención diferentes a los indicados en el artículo precedente, deberán obligatoriamente tramitar sus solicitudes de exención en formato digital por medio del Sistema EXONET, a más tardar seis meses después de publicado el presente decreto.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39037 del 13 de mayo de 2015)
