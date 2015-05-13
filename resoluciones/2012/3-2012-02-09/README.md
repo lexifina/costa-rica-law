@@ -14,3 +14,4 @@ Comunica emisión de resoluciones de la Dirección General de Servicio Civil (DG
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-02 | la propia norma |
+| 2 | 2015-05-13 | Resolución 7 (2015-05-13) |
