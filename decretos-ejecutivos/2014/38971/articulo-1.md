@@ -1,0 +1,11 @@
+N° 38971-JP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones del 8 de agosto de 1939 y los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones N° 29496-J, publicado en La Gaceta N° 96 del 21 de mayo del 2001.
+Considerando:
+I.—Que el artículo 32 de la Ley de Asociaciones N° 218 de 08-08-39 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de utilidad pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II.—Que la Asociación Hogar de Ancianos San Jorge y Obras Parroquiales de Abangares, cédula de persona jurídica número 3-002-045463, se inscribió en el Registro de Asociaciones del Registro Público desde el día 13 de setiembre del 2004, bajo el tomo N° 1, asiento 45.
+III.—Que los fines que persigue la Asociación, según el artículo tercero de sus estatutos, son: “… Artículo tercero: Los fines primordiales de la Asociación son los siguientes: A. Proporcionar al adulto mayor mediante servicios adecuados y profesionales una calidad de vida dentro de la Asociación. B. Facilitar a los adultos mayores en riesgo social, indigentes y persona adulta mayor con necesidad y que este sola, brindar apoyo espiritual, un ambiente de hogar donde encuentre paz, seguridad y felicidad, brindando un lugar adecuado en la Asociación para la población adulta mayor. C. Realizar atención integral digna a personas adultas mayores. D. Ofrecer atención a personas adultas mayores sin desligarse de su familia y la comunidad. E. Crear programas de prevención social. F. Promover y capacitar el desempeño social e intelectual del adulto mayor. G. Mantener y fortalecer los vínculos afectivos entre el adulto mayor y sus familiares”. (Folios 147-148).
+IV.—Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+Decretan:
+Artículo 1º—Declárese de utilidad pública para los intereses del Estado la Asociación Hogar de Ancianos San Jorge y Obras Parroquiales de Abangares, cédula de persona jurídica N° 3-002-045463.
