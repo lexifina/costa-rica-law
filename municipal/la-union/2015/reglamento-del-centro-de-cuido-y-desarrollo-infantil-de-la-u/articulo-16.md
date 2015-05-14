@@ -1,0 +1,1 @@
+Artículo 16.—El pago deberá realizarse en las cajas municipales. El representante legal de la persona menor de edad deberá presentar el comprobante de pago con el sello de la Municipalidad de La Unión a la Administración del Centro en cualquier momento en que esta se lo requiera.

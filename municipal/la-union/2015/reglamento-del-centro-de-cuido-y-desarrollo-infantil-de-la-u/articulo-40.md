@@ -1,0 +1,5 @@
+Artículo 40.—De las sanciones: Las sanciones se aplicarán a través de acciones preventivas y correctivas, según la gravedad de la falta, respetando el debido proceso, las cuales seguirán el siguiente orden:
+a) Llamada de atención verbal de la persona que cometió la falta leve a juicio de las personas facultadas para imponer las sanciones.
+b) Amonestación escrita, en caso de que el trabajador o trabajadora haya merecido dos o más advertencias orales durante un mismo mes calendario o cuando las leyes de trabajo exijan que se le aperciba por escrito antes del despido.
+c) Suspensión de trabajo con goce de salario hasta por un máximo de un mes, cuando la conducta sea de cierta gravedad contra los deberes impuestos por el contrato de trabajo. Se aplicará lo dispuesto al efecto en el artículo 150 del Código Municipal.
+d) Despido sin responsabilidad patronal cuando la conducta del funcionario contraria a derecho, la moral y las buenas costumbres. Se aplicará lo dispuesto al efecto en el artículo 150 del Código Municipal.

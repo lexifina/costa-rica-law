@@ -1,0 +1,1 @@
+Artículo 29.—Deberes del personal de servicios generales de apoyo. El personal de servicios generales de apoyo estará a las órdenes y disposición de la Coordinación del Centro y de la Municipalidad de La Unión, específicamente con el área de Desarrollo Socioeconómico y deberá ejecutar las actividades propias de la naturaleza del cargo.
