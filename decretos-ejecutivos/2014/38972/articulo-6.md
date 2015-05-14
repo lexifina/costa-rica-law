@@ -1,0 +1,1 @@
+Artículo 6º—Los miembros de la Junta Directiva desempeñarán sus funciones con absoluta independencia y serán responsables de la violación de leyes, decretos o reglamentos aplicables a la institución quedando exentos de la misma quienes hicieron constar en actas su voto negativo.

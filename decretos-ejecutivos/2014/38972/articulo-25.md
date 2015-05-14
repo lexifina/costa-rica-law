@@ -1,0 +1,1 @@
+Artículo 25.—El Director Ejecutivo será el superior jerárquico en todas las dependencias de la Oficina Nacional de Semillas y responsable ante la Junta Directiva, del eficiente funcionamiento de la Institución.

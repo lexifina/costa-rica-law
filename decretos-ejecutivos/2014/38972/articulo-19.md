@@ -1,0 +1,1 @@
+Artículo 19.—Los miembros de la Junta Directiva podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que los justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

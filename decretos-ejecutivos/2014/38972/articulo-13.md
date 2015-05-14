@@ -1,0 +1,1 @@
+Artículo 13.—En caso de ausencia o de enfermedad y, en general cuando concurra alguna causa justa, el Presidente y el Secretario de la Junta Directiva serán sustituidos por el Vicepresidente ad hoc, y un Secretario suplente, respectivamente.

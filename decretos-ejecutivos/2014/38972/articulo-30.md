@@ -1,0 +1,1 @@
+Artículo 30.—El ejercicio financiero de la Oficina Nacional de Semillas comprenderá del 1° de enero al 31 de diciembre de cada año, al final del cual hará los cierres correspondientes y los pondrá a disposición de las entidades fiscalizadoras.

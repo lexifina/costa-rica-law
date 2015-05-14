@@ -1,0 +1,1 @@
+Artículo 24.—No podrá ser nombrado Director Ejecutivo el que esté vinculado por parentesco o relación comercial con personas físicas o jurídicas dedicadas a la producción, o comercialización de semillas.

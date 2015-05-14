@@ -1,0 +1,2 @@
+Artículo 16.—Las sesiones de la Junta Directiva serán siempre privadas, pero la Junta Directiva podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tenga acceso a ella el público en general o bien ciertas personas concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
+No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros de la Junta Directiva y sea declarada la urgencia del asunto por el voto favorable de todos ellos.

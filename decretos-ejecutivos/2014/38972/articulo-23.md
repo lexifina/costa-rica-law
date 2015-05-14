@@ -1,0 +1,1 @@
+Artículo 23.—El Director Ejecutivo quedará sujeto a las mismas disposiciones, que para los miembros de la Junta Directiva establece la ley y el presente reglamento. Tendrá voz pero no voto en la Junta Directiva.
