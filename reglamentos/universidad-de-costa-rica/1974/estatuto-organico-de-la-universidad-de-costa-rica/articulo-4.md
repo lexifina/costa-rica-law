@@ -6,6 +6,6 @@ d) Respeto a la diversidad de etnias y culturas: Reconocer el carácter pluriét
 e) Respeto a las personas y a la libre expresión: Garantizar dentro del ámbito universitario el diálogo y la libre expresión de las ideas y opiniones, así como la coexistencia de las diferentes visiones del mundo y corrientes de pensamiento sin otra limitación que el respeto mutuo.
 f) Compromiso con el medio ambiente: Fomentar el mejoramiento de la relación ser humano-ambiente y el conocimiento, el respeto, la conservación y el uso sostenible de los recursos ambientales, así como una mejor calidad del ambiente.
 g) Acción universitaria planificada: Desarrollar una acción universitaria planificada en pro de mejoramiento continuo para contribuir a elevar el desarrollo humano y la calidad de vida de los habitantes del país.
-h) Derecho a la resolución alterna de conflictos: Favorecer la solución de controversias en la vida universitaria, por medio de la mediación, la conciliación y el arbitraje.
+h. Derecho a la resolución alterna de conflictos: favorecer la solución de controversias en la vida universitaria, por medio de la mediación, la conciliación y el arbitraje.
 (Así adicionado el inciso anterior en sesión N° 140 del 14 de mayo de 2015)
-(Así reformado en sesión N° 121 y publicado en La Gaceta N° 117 del 19 de junio de 2006)
+(Así reformado el inciso anterior en sesión N° 140 del 14 de mayo de 2015)
