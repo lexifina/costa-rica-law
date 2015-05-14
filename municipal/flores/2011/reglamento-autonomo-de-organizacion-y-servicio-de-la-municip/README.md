@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Flores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-09 | la propia norma |
+| 2 | 2015-05-14 | Reglamento municipal 0 (2015-05-14) |
