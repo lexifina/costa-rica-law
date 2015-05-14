@@ -1,1 +1,0 @@
-Artículo 27.—Si producto del arqueo resultare una diferencia, esta deberá justificarla el encargado del fondo y deberá depositar el sobrante o faltante correspondiente a más tardar el día siguiente, respetándose lo dispuesto en el articulo 12 de este reglamento.
