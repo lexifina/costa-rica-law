@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE VALVERDE VEGA
+La Municipalidad de Valverde Vega comunica que mediante el artículo VI, inciso d) de la Sesión Ordinaria N° 254, celebrada por el Concejo Municipal el día 07 de abril del 2015, acordó adherirse a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicado en Alcance 19 de La Gaceta N° 57 del día 23 de marzo de 2015 por el Órgano de Normalización Técnica del Ministerio de Hacienda.
