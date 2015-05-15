@@ -1,0 +1,4 @@
+INSTITUTO DE FOMENTO Y ASESORÍA MUNICIPAL
+La Junta Directiva del Instituto de Fomento y Asesoría Municipal (IFAM), mediante acuerdo vigésimo tercero, artículo diecisiete de la sesión ordinaria N° 4345 celebrada el día 15 de abril del 2015, aprobó la modificación al artículo cuatro del Reglamento para el Trámite y Pago de Horas Extras, para que se lea así:
+“No se podrá autorizar jornada extraordinaria a un mismo servidor(a) en forma sucesiva durante más de tres meses en virtud de que desnaturaliza el carácter extraordinario de este tipo de jornada. Lo anterior con excepción de aquellos funcionarios que por la índole de sus labores brinden sus servicios directamente a los jerarcas de la institución de manera permanente, entendiéndose ésta como horas fuera de su jornada ordinaria, tal es el caso de choferes, secretarias, asesores o cualquier otro funcionario que sea llamado a brindar sus servicios dentro de estos supuestos”.
+Moravia, 4 de mayo del 2015.
