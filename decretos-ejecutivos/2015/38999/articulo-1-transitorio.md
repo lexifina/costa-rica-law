@@ -1,0 +1,1 @@
+Transitorio único.—Durante el periodo constitucional comprendido entre el 2014 al 2018 se designa a la Segunda Vicepresidenta de la República y a la Viceministra de la Presidencia en Asuntos Políticos y Diálogo Ciudadano velar por lo establecido en el artículo 6° de este Decreto.

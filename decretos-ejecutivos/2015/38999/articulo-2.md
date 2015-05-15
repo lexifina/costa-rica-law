@@ -1,0 +1,1 @@
+Artículo 2º—Esta política es de acatamiento obligatorio. El desarrollo de la misma tendrá alcance tanto para las personas usuarias de los servicios de cada órgano, como frente a quienes laboran en el Poder Ejecutivo.

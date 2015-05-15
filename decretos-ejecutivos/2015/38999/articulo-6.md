@@ -1,0 +1,1 @@
+Artículo 6º—Los órganos del Poder Ejecutivo deberán presentar a la Presidencia de la República informes periódicos sobre el cumplimiento delas disposiciones contenidas en el presente Decreto Ejecutivo.
