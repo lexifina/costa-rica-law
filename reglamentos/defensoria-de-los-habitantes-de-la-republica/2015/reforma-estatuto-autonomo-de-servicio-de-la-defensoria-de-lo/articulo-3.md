@@ -1,0 +1,2 @@
+3º—Adicionar al artículo 45 del Estatuto de Servicio de la Defensoría de los Habitantes, mismo que refiere a las prohibiciones, un nuevo inciso p) que se leerá de la siguiente forma:
+p) Conocer, resolver o tramitar asuntos que el funcionario o funcionaria haya resuelto durante el tiempo que disfrutó de una licencia sin goce de salario para trabajar en otra institución del sector público, y que pudieran generar conflicto de intereses respecto a las funciones que lleva adelante en la Defensoría.
