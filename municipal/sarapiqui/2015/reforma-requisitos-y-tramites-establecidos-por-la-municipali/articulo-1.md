@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SARAPIQUÍ
+Acuerdo tomado por el Concejo Municipal de Sarapiquí
+en sesión ordinaria N° 15-2015, artículo 5,
+celebrada el lunes 13 de abril de 2015
+Moción presentada por los Regidores Carlos Bejarano Rodríguez, Fabián Víquez Salazar, León Santana Méndez, Carlos Peraza Bustos, Ana Grett Ortega Cordero y Eliécer Guillen Duran, que dice:
+En el caso de visados con servidumbres de paso se declara lo siguiente: En lo concerniente a los servicios públicos, deberán contar con los servicios mínimos existentes en la zona. Con respecto a su uso para fraccionar, sólo se aceptaran en terrenos con frente máximo 50 metros a vía pública, permitiéndose sólo una servidumbre por folio real. Rige a partir de su publicación. Se adiciona a los requisitos y trámites aprobados por esta municipalidad mediante acuerdo del Concejo Municipal dictado en sesión ordinaria N° 20-2003 de fecha 19 de mayo de 2003. Se dispensa del trámite de Comisión. Acuerdo definitivamente aprobado con seis votos a favor de los Regidores Carlos Bejarano Rodríguez, Fabián Víquez Salazar, León Santana Méndez, Carlos Peraza Bustos, Ana Grett Ortega Cordero y Eliécer Guillen Duran y un voto en contra de la Regidora Aracelly Vargas Rodríguez.
