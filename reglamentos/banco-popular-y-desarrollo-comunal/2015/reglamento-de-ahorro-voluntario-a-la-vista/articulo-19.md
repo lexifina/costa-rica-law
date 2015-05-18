@@ -1,0 +1,6 @@
+Artículo 19.—Bloqueo, inactivación y cierre de las cuentas por la no actualización de datos. En caso de que el cliente no haya actualizado o completado sus datos, así como justificado el origen de los recursos de conformidad con la “Política Conozca a su Cliente” de acuerdo con lo establecido en la Ley 8204, sus reglamentos y demás disposiciones aplicables, el Banco bloqueará, desactivará o cerrará la cuenta según las siguiente condiciones:
+1. Se podrá bloquear la cuenta del cliente solo para depósitos, quedando habilitada para realizar todos los retiros de dinero que se encuentren depositados. Una vez que el cliente haya actualizado sus datos y justificado el origen de sus recursos, se podrán habilitar nuevos depósitos.
+2. Se podrá inactivar la cuenta, tanto para retiros como para depósitos, cuando está presente durante los últimos tres meses saldo cero. Una vez que el cliente haya actualizado sus datos y justificado el origen de sus recursos, se podrá habilitar el uso de la cuenta en condiciones normales.
+3. Se podrá cerrar la cuenta en cualquiera de los siguiente casos:
+a) Cuando esta reporte un saldo cero durante seis meses consecutivos.
+b) Cuando el cliente haya sido llamado a actualizar datos y se negare a hacerlo en un plazo de diez días hábiles después de haber sido informado.

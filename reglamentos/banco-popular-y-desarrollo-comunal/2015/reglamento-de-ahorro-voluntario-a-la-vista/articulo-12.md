@@ -1,0 +1,1 @@
+Artículo 12.—De los depósitos de salarios y pensiones en cuentas de ahorro. El Banco utilizará las cuentas de ahorro voluntario a la vista como medio para el depósito de salarios y pensiones. Para ello, el patrono o la entidad administradora de pensiones enviarán las planillas o las aplicarán, indicando el monto que corresponde pagarle a cada interesado.

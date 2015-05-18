@@ -1,0 +1,1 @@
+Artículo 13.—Del servicio interbancario de negociación y pagos electrónicos (SINPE). Los débitos o créditos que se realicen producto del Sistema Interbancario de Negociación y Pagos Electrónicos -de ahora en adelante SINPE-, estarán sujetos a la reglamentación y horarios que para tales efectos establezca la entidad pública que regule el servicio.

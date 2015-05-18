@@ -1,0 +1,1 @@
+Artículo 18.—Responsabilidad. El Banco no asumirá responsabilidad cuando la persona ahorrante no pueda realizar sus operaciones por causa de fallas o desperfectos en el sistema, en el fluido eléctrico o en cualquier caso en el que concurra caso fortuito, fuerza mayor, dolo, culpa de la persona ahorrante o de un tercero.

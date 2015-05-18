@@ -1,0 +1,4 @@
+Artículo 20.—Tarifas y comisiones. El Banco definirá tarifas o comisiones por concepto de servicios brindados relacionados con las cuentas de ahorro voluntario a la vista, las cuales estarán definidas en el apartado de Ahorro voluntario del Reglamento de Tarifas y Comisiones de los Productos de Captación del Banco Popular y de Desarrollo Comunal.
+En el evento de que las tarifas sean modificadas, el Banco notificará a los clientes por el medio que considere más eficiente, como medios físicos, en las ventanillas de las oficinas del Banco, a través de la página web u otros canales o medios que el Banco defina.
+El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el Reglamento de Ahorro Voluntario a la Vista, aprobado por la Junta Directiva Nacional en sesión N° 4017 del 25 de julio de 2002 y publicado en La Gaceta N° 134 del 12 de julio de 2002.
+San José, 30 de abril del 2015.
