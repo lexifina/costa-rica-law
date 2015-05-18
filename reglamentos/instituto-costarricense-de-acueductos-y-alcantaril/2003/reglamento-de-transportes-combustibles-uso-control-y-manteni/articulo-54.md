@@ -1,1 +1,0 @@
-Artículo 54.—La entrega de la nueva cuota la realizará el mismo Encargado de Combustible, inmediatamente después de efectuada la liquidación. La distribución de cupones de combustible se hace de acuerdo a las cuotas establecidas.
