@@ -15,3 +15,4 @@ Procedimiento para los contratos de cesiones de los derechos del pago en AyA
 | --- | --- | --- |
 | 1 | 2011-11-16 | la propia norma |
 | 2 | 2015-04-20 | Acuerdo 142 (2015-04-20) |
+| 3 | 2015-05-19 | Acuerdo 0 (2015-05-19) |
