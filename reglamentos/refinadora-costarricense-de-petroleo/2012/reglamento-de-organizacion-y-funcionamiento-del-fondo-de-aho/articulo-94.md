@@ -12,7 +12,7 @@ Artículo 94.- Son deberes y atribuciones de la secretaría de actas:
 94.9. Comunicar los acuerdos que se tomen a la Gerencia General y a la Auditoría Interna, cuando corresponda.
 94.10. Mantener actualizado el sistema de acuerdos.
 94.11. Mantener los archivos de documentos, correspondencia, expedientes y otros de carácter confidencial, debidamente ordenados y actualizados.
-94.12. Presentar en la primera sesión de cada mes el seguimiento de los acuerdos de Junta.
+94.12. (Derogado este inciso mediante sesión N° 01-2015 del 19 de mayo del 2015)
 94.13. Rendir informes a la Junta cuando se lo soliciten.
 94.14. Tendrá acceso a la documentación analizada en Junta.
 94.15. Realizar otras labores propias del cargo, o aquellas que le sean asignadas por la Junta y en coordinación con la Gerencia General.
