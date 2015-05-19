@@ -1,1 +1,7 @@
-Artículo 24.—Consejos Cantonales de Coordinación Institucional: Se integran a la organización de los sectores en las regiones la normativa que regula los Consejos Cantonales de Coordinación Institucional como órganos colegiados de coordinación y consulta de los órganos, entes y empresas públicas con los gobiernos locales respecto de las políticas públicas necesarias para gestionar el desarrollo integrado y sostenible de cada cantón, así como respecto de las acciones para ejecutar el proceso de descentralización previsto en el artículo 170 de la Constitución Política. Los diversos sectores e instituciones deberán participar de manera activa y permanente en el cumplimiento de los objetivos de los Consejos Cantonales de Coordinación Institucional, según las atribuciones establecidas en el artículo 17 del Reglamento a la Ley General de Transferencia de Competencias del Poder Ejecutivo a las Municipalidades (Decreto Ejecutivo Nº36004-PLAN de 5 de mayo de 2010).
+Artículo 24.—Coordinación de los Comités Intersectoriales Regionales. Las coordinaciones serán ejercidas por las siguientes instituciones:
+a) Social: Instituto Mixto de Ayuda Social
+b) Empleo y Crecimiento Económico: Ministerio de Agricultura y Ganadería.
+c) Ambiental: Ministerio de Ambiente y Energía.
+d) Infraestructura: Ministerio de Obras Públicas y Transportes
+e) Identidad, Cultura y Deportes: Ministerio de Cultura
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 38997 del 19 de mayo de 2015)

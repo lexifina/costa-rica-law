@@ -10,6 +10,11 @@ h) Cultura y Juventud;
 i) Transporte e Infraestructura;
 j) Seguridad Ciudadana y Justicia;
 k) Ciencia, Tecnología y Telecomunicaciones;
-l) Economía, Industria, Comercio y Turismo;
+l) Economía, Industria y Comercio.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38997 del 19 de mayo de 2015)
 m) Política Internacional, y
 n) Vivienda y Asentamientos Humanos.
+ñ) Comercio Exterior; y
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 38997 del 19 de mayo de 2015)
+o) Turismo.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 38997 del 19 de mayo de 2015)

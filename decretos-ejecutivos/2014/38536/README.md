@@ -14,3 +14,4 @@ Reglamento Orgánico del Poder Ejecutivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-20 | la propia norma |
+| 2 | 2015-05-19 | Decreto Ejecutivo 38997 (2015-05-19) |

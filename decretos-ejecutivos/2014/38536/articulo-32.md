@@ -1,2 +1,2 @@
-Artículo 32.—Vigencia. Rige a partir de su publicación.
-Dado en la Provincia de Guanacaste, veinticinco de julio del dos mil catorce.
+Artículo 32.—Medidas de Cooperación Interinstitucional. Las instituciones públicas de cada sector, conforme sus respectivos marcos legales, podrán facilitar a las respectivas Secretarías de Planificación Sectorial los bienes y servicios, con inclusión de recursos humanos, físicos y demás insumos, necesarios para el cumplimiento adecuado y oportuno de sus funciones. Para ello, se emitirán los respectivos acuerdos y convenios de cooperación interinstitucional.
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 38997 del 19 de mayo de 2015, que lo traspaso del artículo 28 al 32)
