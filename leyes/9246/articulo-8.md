@@ -1,0 +1,4 @@
+ARTÍCULO 8.- Inscripción en registro especial
+Cuando los bienes dados en garantía estén sujetos a inscripción en un registro especial, dichos bienes podrán ser dados en garantía por las personas mencionadas en el artículo 7 de esta ley y por quien aparezca como titular en dicho registro especial, siempre y cuando los bienes sobre los que recaiga la garantía sean de los que se encuentran dentro del ámbito de aplicación de la presente ley.
+Los registros especiales deberán advertir, de forma clara, que todo bien que pueda otorgarse en garantía mobiliaria también deberá ser consultado y su garantía inscrita en el Sistema de Garantías Mobiliarias. La comunicación entre un registro especial y el Sistema de Garantías Mobiliarias estará regulada en el reglamento del Sistema de Garantías Mobiliarias.
+La garantía mobiliaria deberá inscribirse en el Sistema de Garantías Mobiliarias para establecer su prelación con respecto a otros acreedores garantizados.

@@ -1,0 +1,2 @@
+ARTÍCULO 28.- Renuncia de excepciones
+El deudor del crédito cedido podrá acordar con el deudor garante o cedente, o con el acreedor garantizado que renuncia oponer, en contra del acreedor garantizado, excepciones y derechos de compensación que el deudor del crédito cedido podría oponer, siempre y cuando estas se hayan documentado con fecha anterior a la cesión. Dicho acuerdo impide que el deudor del crédito cedido oponga dichas excepciones y derechos de compensación.

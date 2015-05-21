@@ -1,0 +1,11 @@
+CAPÍTULO V
+TÍTULOS VALORES Y TÍTULOS REPRESENTATIVOS DE MERCADERÍAS
+ARTÍCULO 33.- Publicidad de las garantías sobre títulos valores y títulos representativos de mercaderías
+Las garantías mobiliarias pueden recaer sobre títulos valores o sobre títulos representativos de mercaderías que puedan ser emitidos tanto en papel como de forma electrónica sujetas a las siguientes disposiciones:
+1) Garantías sobre títulos valores y títulos representativos de mercaderías negociables emitidos en papel: la garantía mobiliaria sobre un título valor o un título representativo de mercaderías negociables emitidos en papel se constituirá y se le dará publicidad por medio de su endoso y entrega en posesión al acreedor garantizado. A la garantía mobiliaria sobre títulos valores y títulos representativos de mercaderías emitidos en papel también se le puede dar publicidad por medio de su inscripción en el Sistema de Garantías Mobiliarias.
+2) Garantías sobre títulos representativos de mercaderías negociables emitidos de forma electrónica: para la publicidad de la garantía mobiliaria que se crea sobre títulos representativos de mercaderías negociables emitidos de forma electrónica, se observará el siguiente procedimiento:
+a) El emisor del título representativo señalará, entre otros datos, el nombre y número de identificación del remitente o depositante.
+b) A solicitud del remitente o depositante de los bienes, el transportista o almacén general de depósito emitirá electrónicamente el título representativo en garantía a nombre del acreedor garantizado.
+c) Una vez hecha esta designación, el transportista o almacén general de depósito retendrá este título en su banco de datos electrónicos, con carácter de depositario de este, y el título emitido será transferible exclusivamente por medio de la transferencia en el banco de datos del emisor del título representativo.
+d) El título podrá ser inspeccionado en el banco de datos del emisor, por cualquier parte interesada en comprar o prestar dinero con la garantía de los títulos o bienes representados por estos.
+Posteriormente, el acreedor garantizado registrará la comunicación electrónica en la que conste la constitución de la garantía en un formulario de inscripción aprobado por el Sistema de Garantías Mobiliarias.

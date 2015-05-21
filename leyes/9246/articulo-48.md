@@ -1,0 +1,3 @@
+ARTÍCULO 48.- Acceso al Sistema de Garantías Mobiliarias
+Para la inscripción, búsqueda de información, el Sistema de Garantías Mobiliarias permitirá el acceso a usuarios nacionales y extranjeros. En el reglamento del Sistema de Garantías Mobiliarias se regularán los requisitos para acceder al Sistema, por personas nacionales y extranjeras, radiquen o no en el territorio nacional.
+Cualquier persona puede tener acceso al Sistema de Garantías Mobiliarias cumpliendo los requisitos tecnológicos y de seguridad requeridos por el reglamento y por la Ley N.º 8968, Protección de la Persona Frente al Tratamiento de sus Datos Personales, de 5 de setiembre de 2011. También, podrá solicitar la emisión de certificaciones.

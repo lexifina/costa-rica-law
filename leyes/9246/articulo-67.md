@@ -1,0 +1,2 @@
+ARTÍCULO 67.- Suspensión del derecho de venta o transferencia de bienes dados en garantía
+El derecho del deudor garante de vender o de transferir bienes en garantía en el curso normal de sus negocios queda suspendido desde el momento de inscripción del formulario de ejecución y el aviso de comunicación de este al deudor garante. Dicha suspensión continuará hasta que la ejecución haya terminado, salvo que el acreedor garantizado autorice lo contrario.

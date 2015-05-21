@@ -1,0 +1,3 @@
+ARTÍCULO 47.- Administración del registro y tasas de inscripción en dicho Sistema
+El Sistema de Garantías Mobiliarias será administrado por la Dirección de Registro de Propiedad Mueble.
+Los costos de inscripción serán financiados mediante una tasa, cuya tarifa se fijará tomando en consideración el costo del servicio. Para la determinación de la tarifa de la tasa se tomarán en consideración los gastos directos e indirectos que contribuyen a la formación del coste total del servicio y bajo un criterio de razonabilidad y menor costo posible la Junta Administrativa del Registro Nacional fijará la tasa, la cual podrá ser revisada periódicamente a efectos de cubrir el mantenimiento del Sistema y asegurar el funcionamiento y actualización de este.

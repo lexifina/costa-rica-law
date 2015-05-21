@@ -1,0 +1,2 @@
+ARTÍCULO 39.- Publicidad de la garantía sobre propiedad intelectual
+Podrá constituirse por medio de un contrato de garantía mobiliaria un gravamen sobre derechos de propiedad intelectual incluyendo, entre otros, secretos comerciales, derechos de autor, patentes, marcas, nombres comerciales y otros bienes derivados o atribuibles a estos. La garantía mobiliaria sobre propiedad intelectual deberá inscribirse en el Sistema de Garantías Mobiliarias para que surta efectos contra terceros.

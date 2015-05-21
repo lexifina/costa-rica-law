@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Derecho real sobre los bienes originalmente dados en garantía y los bienes derivados o atribuibles
+Salvo pacto en contrario, la garantía mobiliaria constituida sobre el bien en garantía se extenderá de forma automática a todos los bienes derivados o atribuibles dados en garantía, de conformidad con lo establecido en el inciso 4) del artículo 5 de esta ley. Los efectos y la prelación de la garantía mobiliaria frente a terceros se establecerá de conformidad con las disposiciones de los títulos tercero y quinto de la presente ley.
