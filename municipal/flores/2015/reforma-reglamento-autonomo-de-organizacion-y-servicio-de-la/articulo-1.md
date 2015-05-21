@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE FLORES
+RECURSOS HUMANOS
+La Municipalidad de Flores comunica la siguiente Modificación al Reglamento de Organización y Servicios según el siguiente detalle:
+“Artículo 124.—La Municipalidad reconocerá las ausencias al trabajo de la persona servidora motivadas por incapacidad para trabajar, ya sea por enfermedad, maternidad o riesgo profesional, y se sujetará a las siguientes disposiciones:
+1) Por visitas al médico, tanto de INS como CCSS, la Municipalidad pagará el tiempo necesario, siempre que sea justificado.
+2) Por incapacidad de la CCSS de menos de 3 días, tercer día inclusive, la Municipalidad pagará al trabajador el 50% del salario.
+3) Por incapacidades de la CCSS, a partir del cuarto día consecutivo la Municipalidad pagará al trabajador el porcentaje restante para completar el 100% del salario, todo de conformidad con lo que al efecto establecen, tanto el Reglamento del Seguro de Salud de la CCSS y la normativa conexa.
+4) Tratándose de incapacidad para trabajar por riesgo profesional se tomará lo dispuesto en el artículo 236 de la Ley sobre Riesgo del Trabajo, número 6727 del 4 de marzo de 1982 y sus reformas. Para ello, la Municipalidad pagará a la persona trabajadora el porcentaje necesario para completar el 100% del salario durante el tiempo que permanezca la incapacidad.
+Dado a que la naturaleza jurídica del pago que se haga por parte de la CCSS y el patrono durante la vigencia de una incapacidad, es de subsidio, la Administración Municipal no realizará el pago de las cargas sociales correspondientes al periodo con licencia vigente. Por lo anterior, los pagos que se realicen por concepto de subsidio complementario, no serán tomados en cuenta para el cálculo de pago de aguinaldo, vacaciones, salario escolar, y prestaciones laborales.
+En todo lo que no se encuentre aquí expresamente regulado respecto de las incapacidades, se considerarán disposiciones supletorias del presente reglamento, el Reglamento para la Extensión de Incapacidades a las Personas Trabajadoras Beneficiarías del Régimen de Enfermedad y Maternidad; Reglamento General de Riesgo de Trabajo y; las interpretaciones que de los mismos expida la Caja Costarricense de Seguro Social.”
+Heredia, 14 de mayo del 2015.
