@@ -1,1 +1,1 @@
-Artículo 543.- Cuando se trate de frutos o productos de cualquier naturaleza, el privilegio a que se refiere el artículo anterior durará sólo un año, sin perjuicio de prorrogarlo por convenio de partes, pero esta prórroga no perjudicará a los acreedores anotantes anteriores a la presentación de la solicitud de prórroga al Registro.
+Artículo 543.-(Derogado por el artículo 80 de la Ley de Garantías Mobiliarias, N° 9246 del 7 de mayo de 2014)

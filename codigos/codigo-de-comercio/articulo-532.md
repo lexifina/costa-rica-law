@@ -1,1 +1,1 @@
-Artículo 532.- No pueden ser objeto de prenda los bienes no susceptibles de embargo o de persecución judicial. Se exceptúan los indicados en los incisos 3), 4) y 5) del artículo 984 del Código Civil, en cuanto a la obligación que se contraiga por el precio de adquisición de los artículos que en esa disposición se expresen, siempre que la venta se efectúe a plazo.
+Artículo 532.-(Derogado por el artículo 80 de la Ley de Garantías Mobiliarias, N° 9246 del 7 de mayo de 2014)

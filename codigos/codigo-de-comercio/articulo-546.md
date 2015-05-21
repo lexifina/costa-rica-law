@@ -1,1 +1,1 @@
-Artículo 546.- Las sumas que entregare un banco a los prestatarios y que estuvieren garantizadas con prendas de futuras cosechas, mejoras por hacer o bienes muebles a cuya adquisición, producción o construcción se hubiere destinado el préstamo, serán inembargables.
+Artículo 546.-(Derogado por el artículo 80 de la Ley de Garantías Mobiliarias, N° 9246 del 7 de mayo de 2014)
