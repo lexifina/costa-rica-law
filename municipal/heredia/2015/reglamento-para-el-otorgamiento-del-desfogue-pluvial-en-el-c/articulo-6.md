@@ -1,0 +1,1 @@
+Artículo 6°—Áreas de protección. Los proyectos constructivos que colinden con ríos, quebradas o arroyos no podrán realizar ningún tipo de obra dentro de la zona de protección establecida en la Ley Forestal.

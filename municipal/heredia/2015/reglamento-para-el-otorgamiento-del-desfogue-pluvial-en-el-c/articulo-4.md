@@ -1,0 +1,1 @@
+Artículo 4°—Procedencia del desfogue pluvial. Todo propietario que pretenda desarrollar huellas constructivas mayores a 500 m2, sean proyectos habitacionales o comerciales, deberán solicitar al municipio autorización de desfogue pluvial, siendo la medida de mitigación de escorrentía la primera obra ingenieril que debe realizarse.

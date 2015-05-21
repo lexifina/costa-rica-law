@@ -1,0 +1,1 @@
+Artículo 18.—Objeto del estudio. El estudio pretende que el sistema de retención pluvial existente con medida de mitigación no genere un caudal mayor del 50% del generado por la finca en verde; es decir, deberá almacenar el 50% del caudal que se genere en verde, más el producido por la impermeabilización del terreno.

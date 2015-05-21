@@ -1,0 +1,1 @@
+Artículo 12.—Vía pública. Las obras de conducción de aguas pluviales que requieran atravesar vías públicas deberán contar con autorización del Ministerio de Obras Públicas y Transportes cuando correspondan a rutas nacionales y a la Municipalidad cuando sean cantonales, para ello el propietario deberá adjuntar el permiso con la solicitud de licencia de construcción.

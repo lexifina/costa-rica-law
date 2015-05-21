@@ -1,0 +1,1 @@
+Artículo 16.—Ejecución de garantía. Con base en el debido proceso, la garantía depositada será ejecutada total o parcialmente hasta el monto necesario cuando, una vez finalizado el proyecto, el municipio detecte mala praxis constructiva, incumplimientos en el diámetro de salida, volumen o geometría y anomalías en la operación del sistema de retención.

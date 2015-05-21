@@ -1,0 +1,2 @@
+Artículo 15.—Devolución de garantía. Una vez finalizada la construcción del proyecto, el propietario del inmueble o profesional responsable deberán comunicarlo al municipio a efectos de que el Departamento de Desarrollo Territorial realice una inspección y verifique el adecuado funcionamiento del sistema de retención pluvial.
+Si el desfogue no presenta irregularidades, el Departamento de Desarrollo Territorial solicitará a la Tesorería Municipal la devolución de la garantía, caso contrario, deberá iniciarse con el procedimiento de ejecución.

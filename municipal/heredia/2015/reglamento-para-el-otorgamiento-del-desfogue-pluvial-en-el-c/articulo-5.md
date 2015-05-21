@@ -1,0 +1,1 @@
+Artículo 5°—Autorización del MOPT. Las construcciones que pretendan encauzar las aguas hacia un sistema de alcantarillado pluvial situado en rutas nacionales, además de obtener el desfogue pluvial por parte del municipio, deberán contar con la aprobación del Ministerio de Obras Públicas y Transportes.
