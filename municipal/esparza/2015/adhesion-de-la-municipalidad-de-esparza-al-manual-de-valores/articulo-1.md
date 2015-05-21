@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE ESPARZA
+OFICINA DE VALORACIÓN
+PROCESO DE DECALARACION Y VALORACIÓN MASIVO 2015
+El Concejo Municipal de Esparza, en acta N° cincuenta y tres-2015 de sesión ordinaria efectuada el lunes cuatro de mayo de dos mil quince, artículo número uno, inciso dos, aprobó definitivamente por unanimidad:
+1- Aprobar incondicionalmente la adhesión al Manual de Valores Bases Unitario por Tipología Constructiva publicado por el Órgano de Normalización Técnica del Ministerios de Hacienda en el periódico oficial La Gaceta N° 57, Alcance Digital N° 19, del 23 de marzo del 2015, en lo referente a valoración de construcciones y edificaciones fijas.
+2- Declarar omisos a todos los propietarios de terrenos e instalaciones fijas en el cantón de Esparza, que no presentaron su declaración de bienes inmuebles o la tienen vencida a la fecha.
+3- Aprobar un Proceso de Declaración Masivo por un lapso de un 1 mes para el cantón de Esparza, que inicia el lunes 1° de junio del 2015 y se cierra el martes 30 de junio del mismo año.
+4- Aprobar el inicio del Proceso de Valoración Masiva una vez concluido el proceso de Declaración Masiva. Se realizará la valoración a todos aquellos propietarios considerados omisos y que no acudieron al proceso de declaración; y sus bienes inmuebles serán objeto de un avalúo por parte de la administración, utilizando las herramientas para valorar terrenos y construcciones, La Plataforma de Valores por Zonas Homogéneas la cual fue publicada en el Diario Oficial La Gaceta N° 237 del lunes 7 de diciembre del 2009, y el Manual de Valores Bases Unitario por Tipología Constructiva publicado por el Órgano de Normalización Técnica del Ministerios de Hacienda en el periódico oficial La Gaceta N° 57, Alcance Digital N° 19, del 23 de marzo del 2015, en lo referente a valoración de construcciones y edificaciones fijas, respectivamente.
+5- Autorizar a la Administración para que gestione ante los diferentes medios de comunicación todo tipo de publicidad.
+Acuerdo definitivamente aprobado por unanimidad.
