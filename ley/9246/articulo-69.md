@@ -1,0 +1,2 @@
+ARTÍCULO 69.- Compra en subasta y subsistencia de gravámenes
+Una persona que compra un bien en garantía en una venta o subasta con motivo de una ejecución recibirá la propiedad sujeta a los gravámenes que recaigan sobre esta, a excepción del gravamen correspondiente al acreedor garantizado que vendió la propiedad para realizar sus derechos y de las garantías mobiliarias y otros gravámenes sobre los cuales este tenga prelación.

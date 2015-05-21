@@ -1,0 +1,3 @@
+ARTÍCULO 7.- Posesión y derecho de posesión del deudor garante
+Las garantías mobiliarias pueden constituirse por aquella persona física o jurídica que tenga su posesión legítima, o quien tenga un derecho a tal posesión, o el derecho a transferir o transmitir los bienes dados en garantía o, en el caso de bienes incorporales, por quien tenga el derecho a transferir o transmitir estos.
+Para efectos de la constitución de garantías mobiliarias sobre bienes muebles que no sean susceptibles de ser inscritos en un registro especial, la posesión del deudor garante del bien dado en garantía equivale a su título y su transferencia al acreedor garantizado constituye la garantía mobiliaria.

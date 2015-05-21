@@ -1,0 +1,3 @@
+ARTÍCULO 37.- Constitución de la garantía mobiliaria sobre depósitos en cuentas con intermediarios financieros autorizados o cuentas de inversión
+La garantía mobiliaria sobre depósitos en cuentas con instituciones financieras autorizadas o cuentas de inversión se constituye y se hace efectiva mediante la adquisición del control por parte del acreedor garantizado. El control se adquiere de conformidad con lo dispuesto en el inciso 9) del artículo 5 de esta ley.
+Nada de lo dispuesto en este capítulo impide que la institución depositaria ejerza su derecho a compensación. Asimismo, la institución depositaria no estará obligada a suscribir un contrato de control, aun cuando así lo solicite el depositante.

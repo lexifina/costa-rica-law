@@ -1,0 +1,2 @@
+ARTÍCULO 50.- Prelación y otros derechos
+La prelación de la garantía mobiliaria publicitada es superior a la de una sentencia judicial sobre los mismos bienes dados en garantía que carezca de publicidad o cuya fecha de registro sea posterior a la de la garantía mobiliaria. Lo mismo se aplica a los gravámenes administrativos y a otras relaciones no contractuales publicitadas posteriormente. En el caso de procesos concursales, la prelación de los acreedores singularmente privilegiados se establece conforme a la normativa especial sobre la materia concursal.

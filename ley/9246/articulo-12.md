@@ -1,0 +1,3 @@
+ARTÍCULO 12.- Información por escrito
+Cuando la presente ley requiera que la información conste por escrito, ese requisito quedará satisfecho con un mensaje de datos o documento electrónico, si la información que este contiene es accesible y autenticable para su ulterior consulta, conforme a lo previsto en la legislación aplicable al comercio electrónico.
+El documento en el que conste la garantía mobiliaria podrá documentarse a través de cualquier medio tangible o por medio de comunicación electrónica fehaciente que deje constancia permanente del consentimiento de las partes en la constitución de la garantía, conforme a lo previsto en la legislación aplicable al comercio electrónico.
