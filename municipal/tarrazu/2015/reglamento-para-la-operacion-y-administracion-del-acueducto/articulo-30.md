@@ -1,0 +1,1 @@
+Artículo 30°---Del plazo de la reconexión. La Municipalidad reinstalará el servicio de agua potable dentro del plazo mínimo de 24 horas hábiles a la cancelación de lo adecuado o de suscrito de arreglo de pago.

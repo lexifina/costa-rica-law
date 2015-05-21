@@ -1,0 +1,1 @@
+Artículo 2º—Alcance del presente reglamento. Este reglamento regulará la organización y funcionamiento del Acueducto Municipal de Tarrazú en cuento a la prestación, facturación, registro y cobro del servicio de agua potable que brinda la Municipalidad de Tarrazú; y para establecer los derechos y obligaciones de los abonados y usuarios de ese servicio.

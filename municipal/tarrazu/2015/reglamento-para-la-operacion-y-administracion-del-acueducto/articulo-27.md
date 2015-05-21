@@ -1,0 +1,1 @@
+Artículo 27.—Del cobro administrativo. Será competencia del Departamento de Administración Tributaria de la Municipalidad de Tarrazú, y se aplicará el procedimiento establecido en el Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Tarrazú.

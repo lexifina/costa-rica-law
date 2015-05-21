@@ -1,0 +1,1 @@
+Artículo 25.—De la eliminación del servicio. Cuando la suspensión temporal del servicio pase de los seis meses este se considerará eliminado y la Municipalidad podrá levantar la paja de agua. Notificando la eliminación quince días hábiles previos a la eliminación, y cumpliendo con el artículo 26.

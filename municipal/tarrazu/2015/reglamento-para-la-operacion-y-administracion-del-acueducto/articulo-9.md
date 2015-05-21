@@ -1,0 +1,1 @@
+Artículo 9º—De la renuncia al servicio. Si el abonado considera que ya no es necesario el servicio de agua, deberá hacer la respectiva solicitud por escrito ante el Departamento de Acueducto Municipal, si la misma procede deberá estar al día en el pago del servicio y cualquier saldo existente en la cuenta del abonado.

@@ -1,0 +1,1 @@
+Artículo 11.—Del registro y la facturación. La Unidad de Administración Tributaria, una vez autorizada la paja de agua, de oficio registrará la conexión realizada a partir del día de su instalación. El departamento de Contabilidad será el encargado de facturar la conexión. Dicha conexión será por tiempo indefinido pero sujeta a las obligaciones establecidas en este reglamento.

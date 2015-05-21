@@ -1,0 +1,1 @@
+Artículo 20.—Del vencimiento del pago. El servicio de agua potable se facturará mensualmente y será cobrado por periodo vencido y en un solo pago a partir de la fecha en que se ponga al cobro. El atraso en el pago generará el cobro de multas e intereses que se calcularán según el Código de Normas y Procedimientos Tributarios artículos 57 y 76, Código Municipal.
