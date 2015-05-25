@@ -15,3 +15,4 @@ Reglamento para el uso y control de líneas, dispositivos y accesorios de telefo
 | --- | --- | --- |
 | 1 | 2013-10-30 | la propia norma |
 | 2 | 2014-08-04 | Reglamento 4638 (2014-08-04) |
+| 3 | 2015-05-25 | Reglamento 4685 (2015-05-25) |
