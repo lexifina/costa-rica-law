@@ -1,1 +1,0 @@
-Artículo 8º—Obligación de pago e intereses por incumplimiento. El cliente está en la obligación de cancelar los honorarios en forma oportuna. En caso de incumplimiento el profesional tendrá derecho a percibir intereses moratorios de un dos por ciento (2%) mensual, calculados sobre el monto adeudado a partir del momento en que se incurrió en atraso.

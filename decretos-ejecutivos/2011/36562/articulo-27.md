@@ -1,1 +1,0 @@
-Artículo 27.—Otros procesos. En cualesquiera otros procesos, actos o diligencias, no regulados expresamente en este Arancel, los honorarios serán la mitad de la tarifa general del presente Arancel, pero en ningún caso serán inferiores a cien mil colones. Con la presentación del proceso se pagará el cien por ciento (100%) de los honorarios

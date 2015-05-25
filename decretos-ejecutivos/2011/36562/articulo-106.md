@@ -1,1 +1,0 @@
-Artículo 106.—Falta de pago del timbre. Cuando el timbre no se pagare en todo o en parte, se procederá de conformidad con lo establecido en los artículos 4º y 7º de la Ley Nº 3245 del 3 de diciembre de 1963 y sus reformas.

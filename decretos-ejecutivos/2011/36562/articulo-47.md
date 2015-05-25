@@ -1,1 +1,0 @@
-Artículo 47.—Recurso de Hábeas Corpus. Por el estudio, análisis, redacción y tramitación del recurso de hábeas corpus, el profesional devengará honorarios mínimos de ciento cincuenta mil colones y su totalidad se pagara con la presentación de la acción.

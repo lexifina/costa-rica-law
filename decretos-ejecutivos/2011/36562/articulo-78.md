@@ -1,1 +1,0 @@
-Artículo 78.—Arrendamientos y subarrendamientos. Si los arrendamientos y subarrendamientos de inmuebles se formalizan en escritura pública, los honorarios de acuerdo a la tarifa general serán calculados sobre el valor del arrendamiento de un año, con un mínimo de cincuenta mil colones.

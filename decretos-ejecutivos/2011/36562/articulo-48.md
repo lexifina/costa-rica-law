@@ -1,3 +1,0 @@
-CAPÍTULO X
-Derecho de familia
-Artículo 48.—Separación judicial o divorcio por mutuo acuerdo: En procesos de separación judicial o de divorcio por mutuo acuerdo, independientemente de los honorarios notariales por el respectivo convenio, conforme lo establece el artículo 70, los honorarios mínimos serán de ciento cincuenta mil colones por el proceso judicial correspondiente y el trámite de inscripción de la ejecutoria de la sentencia en el Registro Civil y otros registros si procediere. La forma de pago será con la presentación. El pago de los honorarios se cancelará el cincuenta por ciento (50%) con la presentación de la homologación y el otro cincuenta por ciento (50%) con la comprobación de la inscripción de la ejecutoria en los registros correspondientes

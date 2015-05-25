@@ -1,1 +1,0 @@
-Artículo 86.—Protocolización de localización de derecho indiviso. La adjudicación de lote proveniente de un derecho indiviso localizado, devengará los honorarios notariales establecidos en la tarifa general, con un mínimo de cincuenta mil colones por cada lote.
