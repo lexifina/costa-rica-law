@@ -84,7 +84,7 @@ Consejo Nacional de la Persona Adulta Mayor (CONAPAM) | 626,3 | H
 Consejo Nacional de Política Pública de la Persona Joven | 396,2 | H
 Consejo Nacional de Producción (CNP) | 27.888,7 | C
 Consejo Nacional de Rectores (CONARE) | 4.200,9 | E
-Consejo Nacional de Rehabilitación y Educación Especial (CNREE) | 1.545,8 | F
+Consejo Nacional de Personas con Discapacidad(*) (*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)") | 1.545,8 | F
 Consejo Rector Sistema Banca de Desarrollo | 307,0 | H
 Consejo Salud Ocupacional | 185,2 | I
 Consejo Superior de Educación | 11,5 | J

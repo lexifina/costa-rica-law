@@ -14,3 +14,4 @@ Actualiza límites económicos que establece el artículo 27 de la Ley de Contra
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-27 | la propia norma |
+| 2 | 2015-05-26 | Ley 9303 |
