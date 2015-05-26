@@ -3,8 +3,8 @@ Requisitos
 Artículo 7°—De los requisitos de los préstamos para vivienda.
 a) Completar la solicitud de crédito.
 b) El solicitante deberá aportar una constancia emitida por su patrono, donde se detallen los salarios nominales y líquidos de los últimos tres meses, así como el tipo de nombramiento. Solo se considerará el ingreso fijo que reporte el patrono como servidor del Magisterio Nacional. Para efectos de análisis de capacidad de pago, no se considerarán los “plus salariales” que no sean permanentes. En el caso de los jubilados y pensionados, la constancia será emitida por la Junta de Pensiones, así como en los casos de trabajadores del Ministerio de Educación Pública, cuando se tenga acceso a esa información.
-c) El solicitante debe tener un ingreso líquido estimado, tal que la restarle el 30% de ese monto, pueda cubrir la cuta estresada. En caso de codeudores se tomará como líquido estimado la suma de lo percibido y al total se le restará el 30% a efectos de calcular la liquidez necesaria para cubrir la cuota.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+c) El solicitante debe tener un ingreso líquido estimado, tal que al restarle el 30% de ese monto, pueda cubrir la cuota estresada. En caso de codeudores se tomará como liquido estimado la suma de lo percibido y al total se le restará el 30% a efectos de calcular la liquidez necesaria para cubrir la cuota estresada.
+(Así reformado el inciso anterior en sesión ordinaria N° 058 del 26 de mayo de 2015)
 d) Presentar el Reporte de Calificación Crediticia de la Superintendencia General de Entidades Financieras, emitido por alguna de las entidades supervisadas, con el fin de evaluar el comportamiento de pago histórico del solicitante.
 e) Presentar fotocopia de la cédula de identidad vigente (por ambos lados).
 f) Para los casos que lo requieran, se debe aportar la cuenta cliente mediante documento idóneo de la institución financiera correspondiente donde se le podría realizar el depósito del monto otorgado. No aplica para jubilados (as) y pensionados (as).
