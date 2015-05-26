@@ -3,7 +3,8 @@ Deberes y prohibiciones para las funcionarias
 y funcionarios usuarias de los servicios de transporte
 Artículo 39.—Son deberes de las funcionarias y funcionarios, los siguientes:
 1. Conocer los alcances de las disposiciones establecidas en el presente Reglamento, así como cumplirlas a cabalidad.
-2. Portar el carné que las y los identifica como funcionarias y funcionarios del CNREE.
+2. Portar el carné que las y los identifica como funcionarias y funcionarios del CONAPDIS(*).
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")
 3. Utilizar los servicios de transporte únicamente en razón del cumplimiento de los objetivos, fines y metas institucionales y/o en situaciones plenamente justificadas, de acuerdo a lo establecido en el presente Reglamento.
 4. Mantener una actitud de respeto y también acorde a los principios éticos institucionales para con la persona designada como chofer o conductora, los demás pasajeros y/o las personas que transitan por las calles.
 5. Utilizar el cinturón de seguridad.

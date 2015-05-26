@@ -1,1 +1,2 @@
-Artículo 45.—Modificación al Reglamento. Cualquier modificación al presente Reglamento deberá ser aprobada y acordada por el Consejo Directivo del CNREE.
+Artículo 45.—Modificación al Reglamento. Cualquier modificación al presente Reglamento deberá ser aprobada y acordada por el Consejo Directivo del CONAPDIS(*).
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")

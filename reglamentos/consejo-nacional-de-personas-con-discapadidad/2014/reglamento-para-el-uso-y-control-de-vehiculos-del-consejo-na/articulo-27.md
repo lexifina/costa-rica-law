@@ -4,7 +4,8 @@ Artículo 27.—Deberes. Son deberes de todo chofer o persona conductora, los si
 3. Portar la licencia de conducir vigente, que le acredite para operar el tipo de vehículo que conduce.
 4. Antes de conducir el vehículo, verificar que éste se encuentre en condiciones apropiadas para garantizar su seguridad y de aquellos que transporte; y reportar a la persona Encargada de Transportes cualquier anomalía o daño que detecte.
 5. Cumplir con las condiciones establecidas en cuanto a capacidad de carga útil y capacidad de pasajeros o pasajeras.
-6. Portar el carné que le identifique como funcionario o funcionaria del CNREE.
+6. Portar el carné que le identifique como funcionario o funcionaria del CONAPDIS(*)
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")
 7. Conducir de manera responsable, prudente y no temeraria, de forma que no ponga en riesgo su vida, así como la de personas pajeras y/o de terceros.
 8. Observar un comportamiento respetuoso y acorde con los principios éticos institucionales.
 9. Mantener el vehículo limpio.

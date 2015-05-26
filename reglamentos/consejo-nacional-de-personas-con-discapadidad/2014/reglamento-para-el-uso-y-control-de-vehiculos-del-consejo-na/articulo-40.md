@@ -2,7 +2,8 @@ Artículo 40.—Es prohibido para las funcionarias y funcionarios:
 1. Obligar a la persona designada como chofer o conductora, continuar con el trayecto contemplado para la gira, cuando las condiciones climáticas o un desperfecto mecánico le obliguen a detenerse.
 2. Exigir a la persona designada como chofer o conductora que transite por rutas o destinos diferentes a los establecidos en la boleta de autorización o que pongan en riesgo la integridad física de las personas que prestan y usan el servicio de transporte o la seguridad del vehículo.
 3. Exigir a la persona designada como chofer o conductora que conduzca de forma contraria a la establecida en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078.
-4. Pernoctar en los vehículos del CNREE.
+4. Pernoctar en los vehículos del CONAPDIS(*).
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")
 5. Realizar actos contrarios a la ética y los valores institucionales.
 6. Consumir bebidas alcohólicas, drogas y/o sustancias enervantes durante las giras.
 7. Fumar en el vehículo durante la gira o diligencia.

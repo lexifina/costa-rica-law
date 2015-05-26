@@ -1,1 +1,2 @@
-Artículo 44.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinaria, civil y penalmente, de acuerdo con lo establecido en el Reglamento Interno de Trabajo del CNREE y el ordenamiento jurídico nacional atinente.
+Artículo 44.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinaria, civil y penalmente, de acuerdo con lo establecido en el Reglamento Interno de Trabajo del CONAPDIS(*) y el ordenamiento jurídico nacional atinente.
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")

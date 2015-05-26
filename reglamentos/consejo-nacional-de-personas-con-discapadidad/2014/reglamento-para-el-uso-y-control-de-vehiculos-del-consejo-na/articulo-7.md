@@ -1,8 +1,10 @@
-Artículo 7º—Prohibiciones. Queda prohibido utilizar los vehículos del CNREE para:
+Artículo 7º—Prohibiciones. Queda prohibido utilizar los vehículos del CONAPDIS(*) para:
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")
 a) Actividades de proselitismo político.
 b) Es prohibido también que los vehículos circulen sin dispositivos de seguridad, sin llanta de repuesto y/o con las luces en mal estado, así como incumpliendo disposiciones reguladas en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial (Ley N°9078) y/o directrices del Ministerio de Seguridad Vial.
 c) Transportar a personas ajenas a la Institución, entendidas éstas como las que no hayan sido debidamente autorizadas e identificadas, según el procedimiento establecido a los efectos por la Unidad de Servicios Generales.
-d) Transportar a familiares y/o amigos o amigas de las personas funcionarias del CNREE.
+d) Transportar a familiares y/o amigos o amigas de las personas funcionarias del CONAPDIS(*).
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")
 e) Circular en horas días y rutas diferentes, a los que estén debidamente autorizadas.
 f) Actividades ajenas a las propias de la Institución o que no sean relativas a su naturaleza, objetivos y metas.
 Los supuestos de hecho contenidos en los incisos c), d), e) y f), serán consideradas como prohibiciones, salvo en situaciones de emergencia, caso fortuito o fuerza mayor, supuesto en el cual la persona funcionaria al que se le haya asignado el vehículo, deberá rendir un informe por escrito a quien funja como encargado de transportes, dentro de los tres días hábiles siguientes a que haya acontecido la aparente situación de emergencia. Éste último valorará objetivamente si los hechos aludidos representan o no una emergencia, caso fortuito o fuerza mayor. En el caso de que la situación no sea considerada como una emergencia, en el plazo de 3 días naturales, así lo deberá informar a la Secretaria Ejecutiva para que tome las acciones correspondientes con miras de la averiguación de la verdad real de los hechos u omisiones.
