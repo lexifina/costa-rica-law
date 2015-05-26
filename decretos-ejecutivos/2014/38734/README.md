@@ -14,3 +14,4 @@ Convoca a Sesiones Extraordinarias a la Asamblea Legislativa, a partir del 1° d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-27 | la propia norma |
+| 2 | 2015-05-26 | Ley 9303 |
