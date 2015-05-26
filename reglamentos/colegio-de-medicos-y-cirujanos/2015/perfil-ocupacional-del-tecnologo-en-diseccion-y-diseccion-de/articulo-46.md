@@ -1,0 +1,1 @@
+Artículo 46.—No reclamo de cadáveres. Informar a la Dirección del establecimiento y a Trabajo Social cuando un cadáver no ha sido reclamado en los plazos establecidos por ley. De igual manera, deberá colaborar con depositar los restos de cuerpos en féretros y colaborar en el traslado al cementerio.

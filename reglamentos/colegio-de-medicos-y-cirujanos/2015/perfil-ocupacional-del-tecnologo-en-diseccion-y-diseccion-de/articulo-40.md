@@ -1,0 +1,1 @@
+Artículo 40.—Recibo y entrega de cadáveres. Recibir y examinar los documentos pertinentes al recibido y entrega de las personas fallecidas. Así mismo, deberá constatar que están completos, que son adecuados de acuerdo con las normativas o legislación vigente, que estén llenos y autorizados por el médico responsable.

@@ -1,0 +1,1 @@
+Artículo 16.—Proceso de fijación de órganos. De acuerdo con las indicaciones del médico, realizará la incisión o cortes en tórax y extremidades. Asistirá al médico en el proceso de la fijación de los órganos como cerebro y otras piezas anatómicas.

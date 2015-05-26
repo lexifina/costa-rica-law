@@ -1,0 +1,1 @@
+Artículo 15.—Proceso de disección de vísceras. Asistir al Médico Patólogo durante la disección de las vísceras, incluyendo la toma de peso de los órganos, la toma de fotografía macroscópica para evidenciar la presencia o no de patologías y/o lesiones.

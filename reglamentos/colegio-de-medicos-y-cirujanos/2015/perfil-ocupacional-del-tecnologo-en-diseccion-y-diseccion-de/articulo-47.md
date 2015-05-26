@@ -1,0 +1,3 @@
+CAPÍTULO 8
+Sanciones
+Artículo 47.—Se establecen de acuerdo con el Código de Ética Médica y Normativas específicas.

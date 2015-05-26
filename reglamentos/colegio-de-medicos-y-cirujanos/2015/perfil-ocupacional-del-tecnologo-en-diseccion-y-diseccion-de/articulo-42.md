@@ -1,0 +1,1 @@
+Artículo 42.—Preparación de órganos con fines didácticos. De acuerdo con la legislación vigente, podrá asistir al médico a cargo, en la preparación de órganos para su empleo en sesiones anatomopatológicas, enseñanza o investigación una vez que el fin primario de la autopsia se haya cumplido (causa y manera de muerte).

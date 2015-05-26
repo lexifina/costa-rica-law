@@ -1,0 +1,1 @@
+Artículo 11.—Protocolo de autopsias. Colaborar con el Médico Patólogo y/o Forense a fin de identificar las características de los cadáveres y recopilar los datos necesarios para llenar el “Protocolo de Autopsias” correspondiente.

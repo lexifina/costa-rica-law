@@ -1,0 +1,1 @@
+Artículo 13.—Proceso de embalsamo o de autopsia. Asistir al Médico Especialista en la realización del procedimiento de embalsamo o de autopsia, en el corte y extracción completa de las vísceras en bloque, de acuerdo con lo que la técnica establece y lo que el Médico Especialista defina al respecto.

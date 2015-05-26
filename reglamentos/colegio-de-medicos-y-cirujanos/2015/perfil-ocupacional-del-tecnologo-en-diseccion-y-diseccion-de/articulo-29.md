@@ -1,0 +1,1 @@
+Artículo 29.—Deber de seguridad. Debe utilizar el equipo básico de protección personal y herramientas específicas disponibles para su trabajo. Debe preparar los líquidos fijadores y otros químicos necesarios para la sala de autopsia y verificar su existencia.

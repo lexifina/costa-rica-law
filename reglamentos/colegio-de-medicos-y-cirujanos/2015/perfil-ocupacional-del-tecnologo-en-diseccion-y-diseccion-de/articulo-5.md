@@ -1,0 +1,5 @@
+Artículo 5º—Embalsamo de Cadáveres Humanos (con o sin manipulación de vísceras):
+a. En cumplimiento con lo establecido en la Ley General de Salud, esta actividad puede ser efectuada únicamente por un Médico Patólogo y/o Forense debidamente inscrito en el Colegio de Médicos. El Tecnólogo podrá asistirlo, sólo si el médico lo indica y si se encuentra bajo su supervisión.
+b. Consiste en inyectar un producto conservador (conservante) por una arteria gruesa o cualquier otra parte del cuerpo de un ser humano fallecido.
+c. Esta actividad se efectúa únicamente en aquellas instalaciones sanitarias que cumplan con todos los requisitos legales vigentes y que son autorizadas legalmente por el Ministerio de Salud de la República de Costa Rica.
+d. En caso de requerirse el uso de inyecciones de formalina, sustancias fijadoras o preservantes, deberá ser el Médico Especialista en Anatomía Patológica, Medicina Legal o Patología Forense, el encargado de efectuar dicho procedimiento, ya que esta actividad se considera embalsamar. El Tecnólogo podrá asistirlo, sólo si el médico lo indica y si se encuentra bajo su supervisión.

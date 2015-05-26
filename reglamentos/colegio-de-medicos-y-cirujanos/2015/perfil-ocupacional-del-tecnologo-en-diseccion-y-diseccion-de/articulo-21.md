@@ -1,0 +1,1 @@
+Artículo 21.—Entrega del cadáver. Preparar a la persona fallecida, limpiar interna y externamente el cuerpo (suturar alguna región que se haya intervenido, limpiar el cadáver con agua, rellenarlo, secarlo, vestir y maquillar en forma correcta) para ser entregado o bien, colocarlo en la cámara de refrigeración según corresponda.

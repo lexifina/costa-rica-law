@@ -1,0 +1,4 @@
+Artículo 14.—Toma de muestras patológicas:
+a. Asistir y tomar las muestras de tejidos y fluidos corporales, que el Médico Patólogo y/o Forense considere pertinente.
+b. Colaborar con el médico en la toma de muestras bacteriológicas, de acuerdo con las normas establecidas, tales como hemocultivos, contenido de abscesos, exudados meníngeos, neumonías, cultivo por piógenos y bacilos tuberculosos, sangre, líquido cefalorraquídeo, humor vítreo.
+c. En casos hospitalarios donde se encuentren hallazgos y/o información clínica adicional durante la necropsia que haga sospechar que se trate de un caso Médico Legal, deberá suspender el acto y hacerlo saber de inmediato al Médico Patólogo que indicó la autopsia para lo que corresponda, si no hubiera Médico Especialista dejar constancia escrita en la bitácora, de los hallazgos y las acciones realizadas con respecto al caso.

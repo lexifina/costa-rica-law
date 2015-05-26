@@ -1,0 +1,1 @@
+Artículo 39.—Registro de solicitudes. Debe llevar registros de las solicitudes atendidas, trabajos realizados, mantener el orden numérico de las necropsias estudiadas y por estudiar y otros archivos similares.

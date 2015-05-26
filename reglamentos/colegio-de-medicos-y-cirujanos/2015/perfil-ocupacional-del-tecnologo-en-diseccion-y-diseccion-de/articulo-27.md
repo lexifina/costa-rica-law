@@ -1,0 +1,1 @@
+Artículo 27.—Deber para con el cadáver. En relación con el cadáver, debe mantener una conducta de respeto absoluto, discreción y confidencialidad y mantenerse vigilante de que esto se cumpla. Prohibiéndosele la toma de fotografías, reproducción de imágenes, videos, audio o uso de otros medios de divulgación.

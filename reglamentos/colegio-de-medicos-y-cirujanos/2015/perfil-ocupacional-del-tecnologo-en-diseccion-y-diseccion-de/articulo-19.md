@@ -1,0 +1,1 @@
+Artículo 19.—Trabajo de campo. Participar en las comisiones de desastres naturales que ocurran en el país y que le sean encomendadas por la Jefatura Médica, Ministerio de Salud o Ministerio de Justicia.
