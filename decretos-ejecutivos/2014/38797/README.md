@@ -14,3 +14,4 @@ Reforma decreto ejecutivo N° 27913 "Comisión de Salud Derechos Reproductivos y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-11 | la propia norma |
+| 2 | 2015-05-26 | Ley 9303 |

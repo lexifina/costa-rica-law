@@ -21,7 +21,8 @@ a) Representante del Ministerio de Salud, quién la coordina (MS).
 b) Representante del Ministerio de Educación Pública (MEP).
 c) Representante de la Caja Costarricense de Seguro Social (CCSS).
 d) Representante del Instituto Nacional de las Mujeres (INAMU).
-e) Representante del Consejo Nacional de Rehabilitación y Educación Especial (CNREE).
+e) Representante del Consejo Nacional de Personas con Discapacidad(*)
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)").
 f) Representante del Patronato Nacional de la Infancia (PANI).
 g) Representante del Consejo Nacional de la Persona Adulta Mayor (CONAPAM).
 h) Representante del Consejo de la Persona Joven (PJ).
