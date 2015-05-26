@@ -14,3 +14,4 @@ Amplia convocatoria a sesiones extraordinarias de la Asamblea Legislativa para c
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-18 | la propia norma |
+| 2 | 2015-05-26 | Ley 9303 |

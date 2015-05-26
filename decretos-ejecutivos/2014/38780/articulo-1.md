@@ -6,7 +6,8 @@ Decretan:
 Artículo 1º—Amplíase la convocatoria a Sesiones Extraordinarias a la Asamblea Legislativa, hecha por el Decreto Ejecutivo N° 38734-MP a fin de que se conozcan los siguientes proyectos de Ley:
 Expediente N° 17.150: Reforma constitucional del artículo 1 para establecer el carácter multiétnico y pluricultural de Costa Rica.
 Expediente Nº 18945: Aprobación del financiamiento al proyecto rehabilitación y extensión de la ruta nacional Nº 32 sección cruce ruta 4- Limón.
-Expediente Nº 18547: Ley de Creación del Consejo Nacional de Discapacidad (originalmente denominado): Reforma Integral a la Ley de Creación del Consejo Nacional de Rehabilitación y Educación Especial, Nº 5347 del 3 de setiembre de 1973 y sus reformas.
+Expediente Nº 18547: Ley de Creación del Consejo Nacional de Discapacidad (originalmente denominado): Reforma Integral a la Ley de Creación del Consejo Nacional de Personas con Discapacidad(*), Nº 5347 del 3 de setiembre de 1973 y sus reformas.
+(*) (Así modificada su denominación por el transitorio I de la Ley N° 9303 del 26 de mayo de 2015, "Creación del Consejo Nacional de Personas con Discapacidad". Anteriormente se indicaba: " Consejo Nacional de Rehabilitación y Educación Especial (CNREE)")
 Expediente Nº 18.936: Ley General de los Programas Estatales de Alimentación y Nutrición de la Niñez y Adolescencia.
 Expediente Nº 18.252: Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y promoción del tren eléctrico inter urbano de la Gran Área Metropolitana.
 Expediente Nº 19.010: Reforma al artículo 52 inciso ñ), o), p) y artículo 96 de la Ley Nº 8765, código electoral, para una efectiva incorporación de la perspectiva de género en los partidos políticos.
