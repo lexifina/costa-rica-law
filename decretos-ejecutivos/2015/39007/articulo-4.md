@@ -1,0 +1,1 @@
+Artículo 4º—Apoyo del proyecto. El Poder Ejecutivo, consciente de la necesidad de articular esfuerzos públicos y privados para promover acciones tendientes a la protección del ambiente y paralelo a ello, el ahorro y contención del gasto público, apoyará este tipo de iniciativas, estableciendo las alianzas que sean necesarias para el desarrollo óptimo del proyecto.
