@@ -14,3 +14,4 @@ Reglamento de organización de las áreas que dependen de Viceministro (a) de Te
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-11 | la propia norma |
+| 2 | 2015-05-26 | Decreto Ejecutivo 39094 (2015-05-26) |

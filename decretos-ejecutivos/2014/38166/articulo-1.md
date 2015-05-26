@@ -19,8 +19,11 @@ VIII.—Que en virtud de lo indicado, el Ministerio de Ciencia, Tecnología y Te
 IX.—Que por lo tanto la reorganización establecida mediante este Decreto se constituye en el instrumento que permitirá que el Ministerio de Ciencia, Tecnología y Telecomunicaciones brinde sus servicios de manera más eficiente y oportuna en la gestión de las competencias y obligaciones dispuestas legalmente para la Rectoría de Telecomunicaciones, así como en cuanto a los objetivos y metas indicados en los instrumentos de planificación que se aplican al Sector.
 X.—Que el presente Decreto fue debidamente remitido al Ministerio de Planificación Nacional y Política Económica (MIDEPLAN) para su conocimiento y registro. Por tanto,
 Decretan:
-REGLAMENTO DE ORGANIZACIÓN DEL VICEMINISTERIO
-DE TELECOMUNICACIONES
+Reglamento de organización de las áreas que dependen de Viceministro (a) de Telecomunicaciones del Ministerio de Ciencia, Tecnología y Telecomunicaciones
+(Así modificada su denominación por el artículo 4° del Reglamento de Organización de las Áreas que dependen del Viceministro de Ciencia y
+Tecnología y Unidades Staff que dependen del Ministro de Ciencia, Tecnología y Telecomunicaciones,
+aprobado mediante decreto ejecutivo N° 39094 del 26 de mayo del 2015.
+Anteriormente se indicaba " REGLAMENTO DE ORGANIZACIÓN DEL VICEMINISTERIO DE TELECOMUNICACIONES")
 CAPÍTULO I
 Objetivo
 SECCIÓN ÚNICA

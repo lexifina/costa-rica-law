@@ -1,0 +1,2 @@
+Artículo 38.—Deróguese el Decreto Ejecutivo N° 34997-MINAET, publicado en el Diario Oficial La Gaceta N° 16 de 23 de enero de 2009.
+(Corrida su numeración por el artículo 3° del Reglamento de Organización de las Áreas que dependen del Viceministro de Ciencia y Tecnología y Unidades Staff que dependen del Ministro de Ciencia, Tecnología y Telecomunicaciones aprobado mediante decreto ejecutivo N° 39094 del 26 de mayo del 2015, que lo traspasó del artículo 36 al 38)
