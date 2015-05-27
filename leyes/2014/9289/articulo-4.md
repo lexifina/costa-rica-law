@@ -7,3 +7,4 @@ MISIÓN:
 Fiscalizar el uso de los fondos públicos que reciben las instituciones del Estado, para mejorar la gestión de la Hacienda Pública y contribuir al control político y ciudadano.
 PRODUCTOS:
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 80 a La Gaceta N° 241 del 15 de diciembre de 2014, Tomo VII página 1017 a la 1021)
+(Modificado por el artículo 1° del decreto ejecutivo N° 39029 del 13 de mayo de 2015)
