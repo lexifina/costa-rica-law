@@ -1,0 +1,7 @@
+Artículo 2º—Se establecen como sus objetivos específicos:
+1. Consolidar un respeto absoluto a los bienes que conforman el patrimonio histórico, cultural, arquitectónico y ambiental del cantón, manteniendo la Municipalidad su responsabilidad de resguardo de estos valores, sin ningún límite y condicionamiento.
+2. Asegurarse de que las Obras Constructivas sean realizadas de conformidad con las especificaciones técnicas bajo las cuales fueron autorizadas.
+3. Propiciar razonablemente la minimización del impacto visual y ambiental sin perjuicio de la legislación nacional vigente para lo cual se autorizará la construcción únicamente de la infraestructura necesaria para lograr la cobertura y calidad del servicio que requiere la población en el ámbito de las telecomunicaciones, rechazando toda gestión que no forme parte de este principio.
+4. Asegurarse de que las actividades desplegadas se enmarquen dentro de las regulaciones existentes en materia de patentes, de acuerdo al artículo 79 del Código Municipal y la Ley de Patentes de la Municipalidad.
+5. Asegurarse de que las obras, estructuras e instalaciones para Redes y Sistemas de Telecomunicaciones, sean realizadas de conformidad con las especificaciones técnicas bajo las cuáles fueron autorizadas.
+6. Minimizar el posible impacto a la salud que las emisiones electromagnéticas puedan generar de acuerdo al principio precautorio y la normativa del Ministerio de Salud sobre la materia.

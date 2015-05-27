@@ -1,0 +1,1 @@
+Artículo 14.— El lote que contenga la estructura, se limitará de las propiedades vecinas con un muro de no menos de 2,50 metros de altura y 12 centímetros de espesor mínimo de material incombustible con un coeficiente retardatorio al fuego de no menos de tres horas.

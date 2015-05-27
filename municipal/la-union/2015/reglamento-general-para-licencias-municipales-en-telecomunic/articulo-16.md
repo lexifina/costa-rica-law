@@ -1,0 +1,1 @@
+Artículo 16.—Se permitirá la instalación de antenas sobre techos en edificios de tres pisos o más. Se deberá presentar estudio estructural que certifique la resistencia y soporte para el peso e instalación de la antena.

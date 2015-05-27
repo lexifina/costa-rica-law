@@ -1,0 +1,1 @@
+Artículo 13.—Se deberá mantener una franja de amortiguamiento mínima alrededor de una Obra Constructiva del veinte por ciento (20%) de la altura de la torre de telecomunicaciones, medida desde el centro de la base de la misma. Se establece además, que la torre de telecomunicaciones sea colocada en el centro del lote por lo que en el mismo no deberá existir construcción alguna.

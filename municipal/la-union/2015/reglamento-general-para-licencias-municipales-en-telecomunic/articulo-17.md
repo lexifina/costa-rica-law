@@ -1,0 +1,1 @@
+Artículo 17.—Una vez presentada la solicitud de certificación de uso del suelo ante la Municipalidad la administración tendrá un plazo máximo de diez días hábiles para emitir este documento (Ley 8220), contando el interesado con la posibilidad de impugnarlo mediante los recursos previstos en el Código Municipal, en el plazo de cinco días hábiles.
