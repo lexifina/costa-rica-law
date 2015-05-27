@@ -1,0 +1,3 @@
+Artículo 17.—Ecocardiograma Transesofágico:
+a. Prepara los equipos requeridos para el procedimiento (televisión, equipo de video, eco cardiógrafo, insumos y otros). Durante el estudio se encarga de vigilar la posición del paciente e indicar al médico la posición en centímetros del transductor, de igual manera, colabora con el personal de Enfermería en la vigilancia de los signos vitales del usuario. Cuando sea necesario, colabora en la preparación del equipo que utiliza el médico para pasar el medio de contraste.
+b. Ordena y equipa el área para ser utilizada por el siguiente usuario y tramita el envío, entrega o archivo del reporte.

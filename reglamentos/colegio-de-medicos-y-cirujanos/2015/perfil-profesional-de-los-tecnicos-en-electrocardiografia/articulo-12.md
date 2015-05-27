@@ -1,0 +1,4 @@
+Artículo 12.—Atención al usuario:
+a. Recibe al usuario en el servicio donde se efectuará el estudio y verifica la información del mismo, para consignarla en todas las fórmulas de reporte que se requieran. Verifica la existencia del consentimiento informado, el cual debe encontrarse completo y debidamente firmado.
+b. Procede a pesar y tallar al usuario.
+c. Instruye al paciente y/o a sus familiares sobre el estudio que se llevará a cabo, brinda orientación sobre la técnica a desarrollar antes, durante y después del estudio y prepara al paciente de acuerdo con el estudio que se realizará.

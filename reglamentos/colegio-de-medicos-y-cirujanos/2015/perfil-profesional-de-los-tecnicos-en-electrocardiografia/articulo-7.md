@@ -1,0 +1,1 @@
+Artículo 7º—Dentro del marco legal relacionado y de acuerdo con los alcances de su Tecnología, podrán participar en las tareas de investigación cardiológica. Esto, como parte del Equipo en Salud encargado de dicha investigación.
