@@ -1,0 +1,3 @@
+Artículo 6º—Se insta a todas las instituciones públicas, así como las organizaciones no gubernamentales e iniciativas privadas, involucradas en este proceso a:
+a) Comprometerse a la búsqueda de los recursos económicos para el cumplimiento de las medidas propuestas. Lo anterior, como un ejemplo de alianza público-privado.
+b) Desarrollar un modelo de reconversión productiva para aquellas embarcaciones para las cuales expire la licencia en este periodo (2015-2016), como una experiencia modelo y una alternativa que garantice el derecho al trabajo, el cual pueda ser replicado en otras embarcaciones a futuro.
