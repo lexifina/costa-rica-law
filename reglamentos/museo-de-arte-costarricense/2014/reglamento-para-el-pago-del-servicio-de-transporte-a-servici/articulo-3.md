@@ -1,0 +1,5 @@
+Artículo 3°—Alcance: Cuando el funcionario necesite utilizar los servicios de transporte público colectivo, el reconocimiento de ese pago se hará de acuerdo con la tarifa autorizada por el organismo regulador correspondiente.
+Excepcionalmente y por razones de economía y eficiencia, corresponderá el pago de servicio de taxi en horas diurnas, para atender asuntos propios de sus funciones, siempre y cuando el vehículo de la Institución no esté disponible para prestar el traslado de los funcionarios.
+El pago de servicio de taxi en horas nocturnas, procederá si la prestación del servicio se extiende más allá de las veintiún horas; o bien cuando la actividad termine antes de la hora indicada, pero por el lugar de residencia del funcionario ya no se esté prestando el servicio de transporte colectivo. Es responsabilidad del funcionario justificar y comprobar el hecho anterior.
+El monto a pagar, corresponderá al transporte del servidor desde las instalaciones donde se preste el servicio o sus programas, hasta el lugar de su residencia habitual.
+Bajo ningún concepto, este monto podrá ser considerado como parte de su salario.
