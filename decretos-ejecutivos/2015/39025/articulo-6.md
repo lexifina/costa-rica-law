@@ -1,0 +1,1 @@
+Artículo 6°—Disponibilidad de volumen. Los NPA estarán disponibles hasta que se agoten. COMEX pondrá a disposición en su Sitio Web www.comex.go.cr la información relativa a los volúmenes disponibles y actualizará la indicada información periódicamente. En caso de que el volumen se agote, COMEX lo indicará en forma inmediata.

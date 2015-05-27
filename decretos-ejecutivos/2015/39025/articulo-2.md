@@ -1,0 +1,8 @@
+Artículo 2°—Definiciones. Para los efectos del presente Reglamento, se entiende por:
+• Arancel preferencial: El arancel aduanero de importación aplicable de conformidad con el Anexo III.3.1 denominado “Eliminación Arancelaria” del Tratado.
+• Certificado de Elegibilidad: El certificado de elegibilidad emitido por la División de Control de Comercio del Ministerio de Relaciones Exteriores, Comercio y Desarrollo de Canadá.
+• COMEX: El Ministerio de Comercio Exterior, creado mediante Ley N° 7638 del 30 de octubre de 1996; Ley de Creación del Ministerio de Comercio Exterior y de la Promotora del Comercio Exterior de Costa Rica.
+• Mercancías textiles y del vestido no originarias: Las mercancías comprendidas en el Apéndice III.1.1.1 denominado “Lista de las Mercancías cubiertas por el Anexo III.1” del Tratado, que no cumplen con las reglas de origen establecidas en el Anexo IV.1 denominado “Reglas de Origen Específicas”.
+• Metros cuadrados equivalentes o MCE: La unidad de medida obtenida de convertir unidades primarias de medida como unidad, docena o kilogramo al utilizar los factores establecidos en el Apéndice III.1.6.2 denominado “Factores de Conversión” del Tratado.
+• Nivel de preferencia arancelaria o NPA: El mecanismo que establece la aplicación de una tasa arancelaria preferencial a las importaciones de mercancías no originarias de Canadá establecidas en el Apéndice III.1.6.1 denominado “Disposiciones Especiales: Tratamiento Arancelario Preferencial para Mercancías no originarias de la otra Parte”, hasta una cantidad especificada.
+• Tratado: El Tratado de Libre Comercio entre el Gobierno de la República de Costa Rica y el Gobierno de Canadá, Ley de Aprobación N° 8300 del 10 de setiembre de 2002.

@@ -1,0 +1,11 @@
+Artículo 4°—Solicitud de autorización para el uso de la preferencia. El interesado en gozar de la preferencia al amparo del NPA deberá presentar ante COMEX la solicitud de autorización en los formularios disponibles al efecto, junto con el Certificado de Elegibilidad, con base en el que se ampara la solicitud de autorización.
+En dicha solicitud deberá indicarse expresamente:
+a) El nombre o la razón social del importador.
+b) El número de identificación del importador.
+c) En el caso de personas jurídicas, deberá presentarse certificación de personería que acredite la facultad de actuar de quien gestiona la autorización, con no más de tres meses de haber sido expedida.
+d) El volumen a utilizar en kilogramos.
+e) El correo electrónico o fax designado para recibir notificaciones.
+La omisión de los requisitos anteriores deberá ser subsanada por el solicitante, previo requerimiento por parte de COMEX, en un plazo no mayor de diez días hábiles a partir de la respectiva notificación. Toda información suministrada por los solicitantes estará sujeta a verificación por parte de COMEX, quien rechazará la información que fuere presentada de manera incompleta o fuera del plazo legal otorgado
+COMEX rechazará las solicitudes que contengan errores u omisiones graves. Se entenderá por errores u omisiones graves, la no subsanación de los errores, inconsistencias u omisiones consignadas en la solicitud e indicados por COMEX; la no presentación o presentación extemporánea de cualquiera de los requisitos e información indicados en los incisos a), b), c) o d) del presente artículo, según corresponda.
+Asimismo, se rechazará la solicitud de autorización para el uso del NPA cuando la importación de las mercaderías se haya efectuado antes de contar con la autorización respectiva o que dicha importación se encuentre fuera del período para el cual fue asignado.
+No se autorizará la importación dentro del NPA y, por ende, se rechazará dicha solicitud de autorización, si no se cuenta con un Certificado de Exportación válido, emitido por las autoridades de Canadá. COMEX gestionará la solicitud de autorización para el uso del NPA, hasta que sean cumplidos todos los requisitos establecidos en el presente artículo.

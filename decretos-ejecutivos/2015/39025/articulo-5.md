@@ -1,0 +1,1 @@
+Artículo 5°—Autorización. COMEX dará respuesta al interesado en gozar de la preferencia al amparo del NPA, en un plazo no mayor a tres días hábiles, a partir de la recepción de la documentación completa. Las solicitudes serán tramitadas bajo el criterio de “primer llegado, primer servido” según el orden diario de presentación.
