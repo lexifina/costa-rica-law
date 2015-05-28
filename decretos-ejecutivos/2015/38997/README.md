@@ -14,3 +14,4 @@ Reforma Reglamento Orgánico del Poder Ejecutivo y Reglamento a la Ley General d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-28 | la propia norma |
+| 2 | 2015-05-28 | Ley 9303 |
