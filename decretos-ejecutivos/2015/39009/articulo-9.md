@@ -1,0 +1,1 @@
+Artículo 9º—La declaratoria de cada fallecimiento se debe realizar en los siguientes siete días hábiles posterior a la defunción, de acuerdo con el Decreto Ejecutivo N° 37306-S, “Reglamento de Vigilancia de la Salud”, artículo 33 Grupo D.

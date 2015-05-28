@@ -1,0 +1,1 @@
+Artículo 17.—La Comisión se reunirá una vez al mes de forma ordinaria y extraordinariamente cuando así lo requiera. El cronograma de reuniones anual quedará establecido en la última reunión del año para el año siguiente.

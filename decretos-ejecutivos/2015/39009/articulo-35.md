@@ -1,0 +1,1 @@
+Artículo 35.—De la Coordinación de la Comisión Hospitalaria. La coordinación de las comisiones hospitalarias puede ser rotativa entre sus integrantes, con una duración de dos años y con posibilidades de ser reelectos.

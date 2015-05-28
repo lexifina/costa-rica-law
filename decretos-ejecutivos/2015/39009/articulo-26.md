@@ -1,0 +1,6 @@
+Artículo 26.—De las Comisiones Regionales. Las Comisiones Regionales, para efectos del funcionamiento del Sistema Nacional de Evaluación de Mortalidad Materna, Perinatal e Infantil, estará conformada por:
+1) Un representante nombrado por el Director Regional de la Dirección Regional de Rectoría de la Salud del Ministerio de Salud, el que debe ser especialista en gineco-obstetricia (médico o enfermera) quien será el que dirige y coordina.
+2) Un representante nombrado por el Director Médico Regional de la Dirección de Servicios de Salud Regional de la Caja Costarricense de Seguro Social.
+3) Un representante nombrado por la autoridad correspondiente, de cada una de las siguientes instituciones CEN CINAI, PANI, IMAS, que su profesión éste relacionada con el tema y que cuente con representación en el nivel regional.
+4) Cuando lo amerite pueden ser apoyados por: el epidemiólogo del Ministerio de Salud, así como por el personal de registros médicos, y por cualquier otro profesional que de acuerdo al caso específico pueda ser llamado como perito o asesor según sea el caso.
+5) Los miembros de la Comisión contarán con un suplente. Todos los representantes designados en esta Comisión serán personas con conocimientos en el campo materno, perinatal e infantil.

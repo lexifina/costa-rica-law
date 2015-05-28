@@ -1,0 +1,1 @@
+Artículo 15.—La sede y el o la coordinadora de la Secretaría Técnica de la Comisión Nacional será designada por el o la jerarca ministerial del Ministerio de Salud por medio de oficio en el cual notificará a la jefatura de la Unidad Organizativa en la cual estará ubicada.

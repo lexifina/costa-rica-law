@@ -1,0 +1,1 @@
+Artículo 10.—Los responsables de los Establecimientos de Salud Público y Privado, así como la Medicatura Forense y otras entidades relacionadas, están obligados a suministrar al Ministerio de Salud la información referente a los fallecimientos, de conformidad con el Decreto Ejecutivo N° 37306-S, “Reglamento de Vigilancia de la Salud”, artículo 29 inciso 1).
