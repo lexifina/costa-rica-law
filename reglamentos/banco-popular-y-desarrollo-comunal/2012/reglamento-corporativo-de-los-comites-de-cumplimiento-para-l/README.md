@@ -15,3 +15,4 @@ Reglamento corporativo de los comités de cumplimiento, para la prevención y co
 | --- | --- | --- |
 | 1 | 2013-02-12 | la propia norma |
 | 2 | 2014-10-21 | Reglamento 5219 (2014-10-21) |
+| 3 | 2015-05-28 | Reglamento 5280 (2015-05-28) |
