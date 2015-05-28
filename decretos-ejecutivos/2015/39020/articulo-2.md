@@ -1,0 +1,1 @@
+Artículo 2º—Deróguense el artículo 3 inciso b) y 5 del Decreto Ejecutivo N° 27021-S, del 30 de abril de 1998 publicado en el Diario Oficial La Gaceta N° 108 del 5 de junio de 1998, “Reglamento Técnico para la Fortificación con Vitamina A del Azúcar Blanco de Plantación para el Consumo Directo”,
