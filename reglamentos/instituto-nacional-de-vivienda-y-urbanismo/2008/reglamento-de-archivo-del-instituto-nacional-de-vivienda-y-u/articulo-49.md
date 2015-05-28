@@ -1,1 +1,0 @@
-Artículo 49.—Lo no previsto en la presente normativa será resuelto por la Gerencia General en primera instancia, de persistir el conflicto debe de elevarse ante la Junta Directiva a efectos de resolverlo en forma precisa o mediante la modificación o adición a este reglamento.

@@ -1,1 +1,0 @@
-Artículo 4º—El Archivo Central como ente rector de la actividad archivística del Instituto, estará bajo la responsabilidad de un Jefe, quien deberá ser un profesional en Archivística o que tenga capacitación en esta materia, con amplia experiencia en el campo y prestará sus servicios de acuerdo con el Reglamento Autónomo de Organización y Servicios.

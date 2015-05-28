@@ -1,1 +1,0 @@
-Artículo 38.—Todo aquel usuario del Archivo Central o funcionario del INVU a quien se le comprobare, que por descuido o intención, dañe, elimine, altere, sustraiga, oculte o disponga de cualquier uso de los documentos que interfiera con la accesibilidad de la información, se sancionará según la normativa citada del presente reglamento.

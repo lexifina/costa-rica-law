@@ -1,1 +1,0 @@
-Artículo 15.—La eliminación de documentos se hará de acuerdo con las tablas de plazo de conservación de documentos previamente autorizadas, tanto por el Comité Institucional, como por la Comisión Nacional de Selección y Eliminación de Documentos.

@@ -1,1 +1,0 @@
-Artículo 33.—Las jefaturas y los encargados de las unidades de los archivos de Gestión, serán los responsables de levantar la información requerida en el formulario de las tablas de plazos de conservación, todo esto con la asesoría del Archivo Central.

@@ -1,1 +1,0 @@
-Transitorio segundo.—En un plazo de ocho meses después de la vigencia de la presente normativa, la Administración del INVU deberá de adoptar las medidas presupuestarias necesarias para adquirir los instrumentos tecnológicos que permitan el buen desempeño y el cumplimiento de la presente normativa, Ley Nº 7202, Ley del Sistema Nacional de Archivos y su Reglamento.

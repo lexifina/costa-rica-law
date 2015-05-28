@@ -1,1 +1,0 @@
-Artículo 21.—Si un documento no ha sido devuelto en el lapso de cinco días hábiles después de la fecha de vencimiento consignada en la respectiva Boleta de Préstamo de Documentos, se solicitará al prestatario por escrito su devolución inmediata, haciendo la situación del conocimiento del Jefe inmediato del usuario para los efectos correspondientes.

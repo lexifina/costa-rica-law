@@ -1,1 +1,0 @@
-Artículo 20.—La documentación con valor científico-cultural, podrá ser exhibida en salas de exposiciones, en tiempos de aniversario o en actividades específicas de la institución, tomando en cuenta todas las previsiones de seguridad y conservación de los documentos.

@@ -1,1 +1,0 @@
-Artículo 11.—Una vez que se han cotejado las listas contra la documentación, si todo está correcto, se devolverá una copia a la dependencia remitente, como indicación de que los documentos han sido recibidos en el Archivo Central, si por el contrario se detectan errores, se devolverá la lista con la documentación, para que se hagan las correcciones necesarias.

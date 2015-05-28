@@ -1,1 +1,0 @@
-Artículo 43.—El encargado del Archivo Central en coordinación con el Área de informática deberá desarrollar un plan para la automatización de los instrumentos descriptivos, con el objetivo de agilizar la búsqueda de la información y tener un mejor control de la documentación que se custodie en el Archivo Central.

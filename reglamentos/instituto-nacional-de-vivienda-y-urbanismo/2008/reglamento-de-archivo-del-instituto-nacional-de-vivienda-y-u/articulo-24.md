@@ -1,1 +1,0 @@
-Artículo 24.—Los investigadores que utilicen información del Archivo Central estarán obligados a entregar una copia del trabajo realizado, cuando a juicio del Jefe del Archivo Central este lo considere como un aporte importante para el interés institucional.

@@ -1,1 +1,0 @@
-Artículo 10.—Las transferencias de documentos deben realizarse por medio de la lista de remisión de documentos en original y dos copias. El Archivo Central debe cotejar que las listas de remisión correspondan con la documentación que se está recibiendo.

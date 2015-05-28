@@ -1,1 +1,0 @@
-Artículo 25.—Se podrán hacer reproducciones de los documentos mientras el Instituto Nacional de Vivienda y Urbanismo no haya declarado lo contrario, o mientras el Jefe del Archivo Central no indique oposición a favor de la conservación de los mismos. En el caso de particulares este deberá cubrir el costo en su totalidad.
