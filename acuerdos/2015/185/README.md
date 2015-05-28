@@ -14,3 +14,4 @@ Establece veda total área comprendida por una línea recta imaginaria que va de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-15 | la propia norma |
+| 2 | 2015-05-28 | Acuerdo 0 (2015-05-28) |

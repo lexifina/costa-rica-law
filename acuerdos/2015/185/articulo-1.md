@@ -17,3 +17,6 @@ Durante el periodo de veda antes indicado, se permite la pesca de sardina con re
 4º—Autorizar la realización de torneos de pesca deportiva y turística en el área de veda, que cuenten con la autorización de la Junta Directiva del INCOPESCA.
 5º—Se adjunta con fines ilustrativos el mapa de referencia.
 6º—Acuerdo firme.
+Mapa de Referencia de la zona de VEDA en el Golfo de Nicoya 2015.
+[imagen]
+(Así adicionado el mapa anterior y publicada en La Gaceta N° 102 del 28 de mayo de 2015)
