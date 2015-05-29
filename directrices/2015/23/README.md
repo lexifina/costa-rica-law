@@ -14,3 +14,4 @@ Sobre la Eficencia, Eficacia y Transparencia en la Gestión Presupuestaria de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-20 | la propia norma |
+| 2 | 2015-05-29 | Directriz 27 (2015-05-29) |
