@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a que el desarrollo de esta política tenga alcance tanto para las personas usuarias de los servicios de cada institución, como frente a quienes laboran en los diferentes entes públicos.

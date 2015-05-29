@@ -1,0 +1,1 @@
+Artículo 6º—Los entes públicos deberán presentar a la Presidencia de la República informes semestrales sobre el cumplimiento delas disposiciones contenidas en la presente Directriz, a partir de la entrada en vigencia del mismo.
