@@ -1,0 +1,60 @@
+4°—Establecer que los requisitos de admisibilidad para las solicitudes de autorizaciones para prestar servicios de Internet en la modalidad de “Café Internet” los siguientes:
+1) Presentarse en idioma español o con su debida traducción oficial, y conforme al Sistema Internacional de Unidades de Medidas (Ley 5292 del 9 de agosto de 1973 y su reglamento).
+2) Contener el nombre y apellidos del solicitante, razón social de la empresa, número de identificación física o jurídica, domicilio, lugar y/o medio para recibir notificaciones del solicitante y en su caso de quien lo representa. Asimismo, se deberá indicar el nombre comercial del establecimiento.
+3) Indicar con detalle y claridad su pretensión. Para ello deberá indicar/incluir, como mínimo, lo siguiente:
+a. La descripción detallada de los servicios de telecomunicaciones para los cuales se solicita la autorización. En este sentido, deberá indicar si se pretende brindar únicamente servicios de café Internet, o bien, si pretende brindar servicios de café Internet y telefonía IP.
+b. Detallar la ubicación exacta de cada local, por provincia, cantón y distrito. Preferiblemente aportar las coordenadas geográficas de local (formato decimal WGS84).
+4) Acreditar la capacidad técnica relacionada con los servicios que se pretende autorizar. Para ello deberá indicar:
+a. El número de computadoras con las que pretende prestar el servicio.
+b. Número de terminales telefónicos en caso de brindar servicios de telefonía IP. En este caso, deberá indicar el operador de telefonía IP debidamente autorizado por la SUTEL al cual le estarían contratando los servicios.
+c. Ancho de banda del servicio de Internet (en Mbps, tanto para el envío como descarga de información).
+d. El número de computadoras que cuentan con programas o filtros instalados.
+e. Descripción técnica del tipo de filtro o programa instalado en las computadoras para bloquear el acceso a sitios y comunicaciones cuyo contenido incluya:
+i. Sitios que muestren o promuevan la pornografía en general y la infantil.
+ii. Sitios que promuevan el lenguaje obsceno.
+iii. Sitios que promuevan la agresión y la violencia física, sexual y emocional.
+iv. Sitios que promuevan la construcción de armas o explosivos.
+v. Sitios que promuevan e inciten el uso de drogas de uso no autorizado.
+vi. Sitios que promuevan actividades bélicas.
+vii. Sitios que promuevan el racismo, la xenofobia o cualquier otra forma de discriminación contraria a la dignidad humana, de conformidad con el artículo 33 de la Constitución Política y los instrumentos internacionales de derechos humanos vigentes en Costa Rica.
+viii. Los programas o la información que puedan ser usados para mirar, descargar, distribuir, adquirir e intercambiar pornografía en general e infantil, en particular.
+f. Documento que acredite que cuentan con las licencias del software y/o hardware de los filtros o programas instalados, y su vigencia.
+g. Copia o fotografía de los rótulos que serán expuestos en el local del café Internet con el fin de advertir a las personas menores de edad acerca de los peligros a que se exponen cuando dan información privada y personal en chats, foros virtuales, redes sociales o cualquier otro medio electrónico similar, que puedan afectar su integridad física y moral.
+5) Acreditar la capacidad financiera relacionada con los servicios que se pretende autorizar. Para ello deberá estar inscrito como contribuyente ante la Dirección de Tributación Directa.
+6) En caso de considerarlo necesario, solicitar expresamente que se declare la confidencialidad de la información aportada. Para ello debe:
+a. Identificar con claridad la información que se desea se declare confidencial,
+b. Describir las razones que motivan su solicitud y por las cuales se considera que la revelación de la información podría resultar en un perjuicio competitivo sustancial para el solicitante,
+c. Indicación del plazo durante el cual se requiere perdure la declaratoria de confidencialidad de la información.
+En caso de no solicitarse la declaratoria de confidencialidad de información, se entenderá que toda la información presentada es pública
+7) Estar firmada por el solicitante, el representante legal y/o apoderado con facultades suficientes para representarlo. Dicha firma debe ser debidamente autenticada por un Notario Público.
+8) Aportar copia de la cédula de identidad o pasaporte del solicitante. En caso de ser persona jurídica, copia de la cédula de identidad o pasaporte del representante legal y/o apoderado solicitante.
+9) En el caso que el solicitante sea una persona jurídica, aportar certificación registral o notarial de su personería, en la que acredite su vigencia y las facultades de su(s) representante(s). Dicha certificación no podrá tener más de tres meses de expedida.
+10) Adjuntar copia de los respectivos contratos de servicios de telecomunicaciones suscritos con los proveedores del servicio de acceso a Internet, y en caso de brindar servicios de telefonía IP, presentar el contrato de servicios de telecomunicaciones de éstos. Los contratos de servicios de telecomunicaciones deben estar en idioma español o debidamente traducidos por un intérprete oficial. En caso de no tener alguno de los contratos de servicios de telecomunicaciones con los proveedores de servicios de acceso a Internet y/o telefonía IP, presentar la copia de la última facturación del servicio. Los operadores con los cuales se contraten los servicios de telecomunicaciones (acceso a Internet y/o telefonía IP) deben contar con el respectivo título habilitante.
+11) Aportar declaración jurada en donde el interesado, advertido de las penas con que la ley sanciona el delito de falso testimonio, señale que: (i) conoce las condiciones establecidas para la operación y explotación de redes y la prestación de los servicios de telecomunicaciones, (ii) conoce y se compromete expresamente a cumplir con el ordenamiento jurídico, regulaciones, directrices, normativa y demás legislación aplicable en materia de telecomunicaciones, (iii) el local del café Internet se encuentra acondicionado según lo dispuesto en el artículo 3 de la Ley de Protección de la niñez y la adolescencia frente al contenido nocivo de Internet y otros medios electrónicos, ley número 8934, y (iv) al menos el 80% de las computadoras cuentan con los programas y filtros de seguridad señalados en el artículo 2 de la Ley 8934. La declaración jurada deberá ser autenticada por un Notario Público.
+12) De conformidad con el artículo 76 de la Ley 7593 y 4 de la Ley 8934, la SUTEL realizará las inspecciones, control y fiscalización que considere necesarias con el fin de verificar la condición del local del café Internet y la efectiva instalación de los filtros.
+13) Estar inscrito como patrono, trabajador independiente o ambas modalidades, según corresponda, ante la Caja Costarricense del Seguro Social. Asimismo, deberá encontrarse al día en el pago de las respectivas obligaciones (Ley N° 17 del 22 de octubre de 1943).
+14) Presentar su solicitud y documentos anexos en original y dos copias (una para recibido).
+15) Establecer como requisitos para tramitar un certificado como un local de café Internet libre de pornografía y contenidos nocivos, según los establece el inciso b) del artículo 4 de la Ley de Protección de la niñez y la adolescencia frente al contenido nocivo de Internet y otros medios electrónicos, Ley número 8934, los siguientes:
+1. Presentar la solicitud de certificación en idioma español o con su debida traducción oficial, y conforme al Sistema Internacional de Unidades de Medidas (Ley 5292 del 9 de agosto de 1973 y su reglamento).
+2. Estar firmada por el solicitante, el representante legal y/o apoderado con facultades suficientes para representarlo. Dicha firma debe ser debidamente autenticada por un Notario Público.
+3. Aportar copia de la cédula de identidad o pasaporte del solicitante. En caso de ser persona jurídica, copia de la cédula de identidad o pasaporte del representante legal y/o apoderado solicitante.
+4. En el caso que el solicitante sea una persona jurídica, deberá aportar certificación registral o notarial de su personería, en la que acredite su vigencia y las facultades de su(s) representante(s). Dicha certificación no podrá tener más de tres meses de expedida.
+5. Contener el nombre y apellidos, número de identificación, domicilio, lugar y/o medio para recibir notificaciones, del solicitante y en su caso de quien lo representa.
+6. Descripción técnica del tipo de filtro o programa instalado en las computadoras para bloquear el acceso a sitios y comunicaciones cuyo contenido incluya:
+a. Sitios que muestren o promuevan la pornografía en general y la infantil.
+b. Sitios que promuevan el lenguaje obsceno.
+c. Sitios que promuevan la agresión y la violencia física, sexual y emocional.
+d. Sitios que promuevan la construcción de armas o explosivos.
+e. Sitios que promuevan e inciten el uso de drogas de uso no autorizado.
+f. Sitios que promuevan actividades bélicas.
+g. Sitios que promuevan el racismo, la xenofobia o cualquier otra forma de discriminación contraria a la dignidad humana, de conformidad con el artículo 33 de la Constitución Política y los instrumentos internacionales de derechos humanos vigentes en Costa Rica.
+h. Los programas o la información que puedan ser usados para mirar, descargar, distribuir, adquirir e intercambiar pornografía en general e infantil, en particular.
+7. Aportar documento que acredite que cuentan con las licencias del software y/o hardware de los filtros o programas instalados, y su vigencia.
+8. Aportar declaración jurada en donde el interesado, advertido de las penas con que la ley sanciona el delito de falso testimonio, señale que el 100% de las computadoras del café Internet cuentan con los programas y filtros de seguridad instalados, según lo dispuesto en el artículo 2 de la Ley de Protección de la niñez y la adolescencia frente al contenido nocivo de Internet y otros medios electrónicos, ley número 8934. La declaración jurada debe ser autenticada por un Notario Público.
+9. De conformidad con el artículo 76 de la Ley 7593 y 4 de la Ley 8934, la SUTEL realizará las inspecciones, control y fiscalización que considere necesarias con el fin de verificar la condición del local del café Internet y la efectiva instalación de los filtros.
+10. Estar inscrito al día en el pago de las respectivas obligaciones con la Caja Costarricense del Seguro Social (Ley N° 17 del 22 de octubre de 1943).
+16) Establecer que los requisitos para la debida inscripción en el Registro Nacional de Telecomunicaciones de las notificaciones de ampliación de servicios y ampliación de zonas de cobertura serán los establecidos en el “por tanto” II de la parte dispositiva de la presente resolución del Consejo de la Superintendencia de Telecomunicaciones, exceptuando los puntos 5 y 11. Adicionalmente, se deberá presentar: (i) En los casos de ampliación de zonas de cobertura, el solicitante deberá presentar copia del acuerdo del Consejo de Sutel mediante el cual se homologa el contrato de usuario final: (ii) En cuanto a las ampliaciones de servicios o de zonas de coberturas que involucren acceso a internet mediante banda libre, se deberá aportar copia del certificado de homologación del terminal: (iii) Se deberá presentar una actualización de los representantes, accionistas y lugar de notificaciones.
+17) Publíquese en el diario oficial La Gaceta. Téngase esta resolución a disposición del público en el expediente GCO-NRE-RCS-00552-2015 y en la página web de la Institución.
+En cumplimiento de lo que ordena el artículo 345 de la Ley General de la Administración Pública, se indica que contra esta resolución cabe el recurso ordinario de revocatoria o reposición ante el Consejo de la Superintendencia de Telecomunicaciones, a quien corresponde resolverlo y deberá interponerse en el plazo de tres días hábiles, contados a partir del día siguiente a la publicación de la presente resolución.
+Notifíquese.
+La anterior transcripción se realiza a efectos de comunicar el acuerdo citado adoptado por el Consejo de la Superintendencia de Telecomunicaciones.
