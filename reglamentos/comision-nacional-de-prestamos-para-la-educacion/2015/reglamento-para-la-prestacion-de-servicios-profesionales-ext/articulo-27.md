@@ -1,0 +1,1 @@
+Artículo 27.—Disposiciones derogadas: El presente Reglamento deroga cualquier otra disposición anterior, aprobada por el Consejo Directivo del CONAPE, que contradiga tácita o implícitamente lo dispuesto en la presente normativa.

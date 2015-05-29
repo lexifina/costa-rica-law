@@ -1,0 +1,1 @@
+Artículo 25.—Deber de rendir garantía de cumplimiento. Los contratistas deberán rendir la respectiva garantía de cumplimiento por el porcentaje y plazo que se establecerá en el respectivo procedimiento de contratación.

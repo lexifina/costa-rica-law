@@ -1,0 +1,1 @@
+Artículo 21.—Lugar para entrega de informes. Concluido el informe de peritaje o avalúo según corresponda, el mismo deberá ser entregado en CONAPE. Para todos los efectos se tendrá que la vigencia del avalúo o peritaje es de dos años contados a partir de la fecha de su emisión.

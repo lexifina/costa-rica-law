@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio único.—En tanto se concreta el proceso de la contratación de servicios de avalúo y peritaje, se autoriza a la Secretaria Ejecutiva del CONAPE, mediante resolución debidamente razonada continuar con la prestación de los servicios, en el entendido de que los mismos cesarán cuando se firmen los contratos y sean entregadas las respectivas órdenes de compra o contrato.

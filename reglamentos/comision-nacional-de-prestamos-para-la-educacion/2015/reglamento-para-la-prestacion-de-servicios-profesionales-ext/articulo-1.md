@@ -1,0 +1,9 @@
+COMISIÓN NACIONAL DE PRÉSTAMOS
+PARA LA EDUCACIÓN
+Comunica que en la sesión de Consejo Directivo N° 18-05- 2015 artículo V, celebrada el cuatro de mayo del año dos mil quince, acordó aprobar el “Reglamento para la Prestación de Servicios Profesionales Externos para la Elaboración de Avalúos a Bienes Inmuebles ofrecidos en garantía de los Créditos Otorgados por CONAPE”, el que se leerá:
+REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS
+PROFESIONALES EXTERNOS PARA LA ELABORACIÓN
+DE AVALÚOS A BIENES INMUEBLES OFRECIDOS EN
+GARANTÍA DE LOS CRÉDITOS OTORGADOS POR LA
+COMISION DE PRÉSTAMOS PARA EDUCACIÓN (CONAPE)
+Artículo 1º—Ámbito de aplicación. El presente Reglamento tiene como objeto regular las relaciones entre Comisión Nacional de Préstamos para Educación -en adelante CONAPE- y los adjudicatarios –empresa físicas o jurídicas-, que en virtud de un concurso con apego a la Ley de Contratación Administrativa, resulten adjudicatarios prestándole en virtud del mismo sus servicios profesionales para la elaboración de peritajes o avalúos sobre bienes inmuebles ofrecidos en garantía de los créditos otorgados por CONAPE. Los servicios contratados consistirán en el desempeño de todas las labores requeridas para la generación del peritaje o avalúo y comprenderá todas aquellas tareas, actividades y responsabilidades que se especifican en el presente reglamento y las que se deriven del respectivo ejercicio profesional, sea las derivadas del Colegio de Ingenieros y Arquitectos de Costa Rica, sus principios éticos y profesionales así como los aranceles y pagos establecidos por dicho grupo gremial. Para todos los efectos legales, la presente contratación de servicios generada por CONAPE y los contratistas corre a nombre y cuenta del solicitante, sin que CONAPE asuma ninguna obligación civil, comercial, laboral ni administrativa con el contratista.

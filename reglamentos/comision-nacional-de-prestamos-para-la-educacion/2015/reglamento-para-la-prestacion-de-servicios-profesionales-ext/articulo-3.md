@@ -1,0 +1,1 @@
+Artículo 3º—Plazo de la contratación. La vigencia del contrato se hará por un año, prorrogable hasta por tres años adicionales, hasta completar un total de cuatro años, a juicio de CONAPE, siempre y cuando el servicio se hubiere prestado a entera satisfacción de la institución.

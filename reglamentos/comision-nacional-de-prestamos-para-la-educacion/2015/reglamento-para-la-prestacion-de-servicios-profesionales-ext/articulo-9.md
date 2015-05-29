@@ -1,0 +1,1 @@
+Artículo 9º—Supervisión en la aplicación del rol. La Sección de Análisis y Gestión de Crédito; será la responsable de llevar el control y distribución de los casos asignados, de conformidad con lo ordenado en el artículo 8 de la Ley General de Control Interno.
