@@ -14,3 +14,4 @@ Reglamento Orgánico y Operativo del Tribunal Administrativo de la Seguridad Soc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-07 | la propia norma |
+| 2 | 2015-05-29 | Decreto Ejecutivo 39086 (2015-05-29) |
