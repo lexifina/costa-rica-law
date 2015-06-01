@@ -12,7 +12,9 @@ Objetivo general:
 Regular todo lo relacionado con la administración del fondo de caja chica general.
 Objetivos específicos:
 - Mantener una adecuada rotación de los fondos, con el propósito de garantizar que permanentemente haya efectivo en caja chica para satisfacer en forma oportuna la adquisición de bienes y servicios que la municipalidad requiera.
-- La creación de este fondo es para efectuar compras urgentes por sumas menores, bienes o artículos perecederos (en sentido amplio: gastos de alimentación, materiales y equipo que no represente un activo fijo “capitalizable” y servicios) en forma ágil y expedita, puesto que esas adquisiciones, por sus características especiales, no es conveniente ejecutarlas mediante el procedimiento ordinario de requisición que concluye en una compra o contrato por medio de la Proveeduría, o bien que no haya existencia en la Municipalidad.
+- La creación de este fondo es para efectuar compras urgentes por sumas menores, en las partidas de Servicios y Materiales y Suministros en forma ágil y expedita, puesto que esas adquisiciones, por sus características especiales, no es conveniente ejecutarlas mediante el procedimiento ordinario de requisición que concluye en una compra o contrato por medio de la Proveeduría.
+(Así reformado el párrafo anterior en acta N° 57 del 1 de junio de 2015)
 CAPÍTULO PRIMERO
 Disposiciones generales
-Artículo 1º—Del carácter de las disposiciones. Las disposiciones establecidas son de carácter general y se aplicarán en todas las operaciones de caja chica definidas en este Reglamento y las que a futuro se establezcan a juicio de la Dirección Financiera y Tributaria, con la aprobación del Alcalde y el Concejo Municipal.
+Artículo 1º—Del carácter de las disposiciones. Las disposiciones establecidas son de carácter general y se aplicarán en todas las operaciones de caja chica definidas en este Reglamento y las que a futuro se establezcan a juicio de la Gestión Financiera, con la aprobación del Alcalde y el Concejo Municipal.
+(Así reformado en acta N° 57 del 1 de junio de 2015)

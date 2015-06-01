@@ -9,5 +9,5 @@ f) Especificación detallada de los artículos comprados o servicios adquiridos 
 g) Las facturas deberán ser nítidas, sin borrones ni tachaduras o alteraciones que hagan dudar de su legitimidad.
 h) Al dorso de la factura deberá consignarse el recibido conforme de quien recibió el bien o el servicio.
 j) No se dará trámite a ninguna factura que con anterioridad no haya efectuado el respectivo vale provisional de caja chica. Exceptuando aquellas que por su naturaleza o urgencia resulte imposible cumplir con este requisito.
-k) Cuando el valor de un artículo adquirido supere los ¢25.000,00, la Contabilidad determinará, de conformidad con la naturaleza de los bienes, la asignación de la placa de activo o de vale de herramientas.
-l) El Tesorero deberá anotar en el Vale de Caja Chica, el monto del vale provisional, lo gastado y la diferencia si la hubiere. Al liquidar el vale provisional, el Tesorero recibirá cualquier saldo que hubiera a favor de la Municipalidad.
+k) El Tesorero deberá anotar en el Vale de Caja Chica, el monto del vale provisional, lo gastado y la diferencia si la hubiere. Al liquidar el vale provisional, el Tesorero recibirá cualquier saldo que hubiera a favor de la Municipalidad.
+(Corrida la numeración del inciso anterior en acta N° 57 del 1 de junio de 2015, que lo traspaso del inciso l) al k, lo anterior ya que en dicha acta se ordenó eliminar el inciso k) original y correr la numeración del inciso l)
