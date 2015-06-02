@@ -1,2 +1,3 @@
-Artículo 18.—El Departamento de Auditoría de Sistemas. El
-Departamento de Auditoría de Sistemas estará encargado de efectuar estudios especiales sobre todos los sistemas informáticos del Ministerio, dar asesoría y apoyo especializado a los otros departamentos y brindar el soporte necesario a los equipos y programas de la Auditoría Interna.
+Artículo 18.—El Departamento de Auditoría de Sistemas. El Departamento de Auditoría de Sistemas estará encargado de efectuar los estudios de auditoría que se establezcan en el plan anual de trabajo de la Auditoría Interna, relacionados con los sistemas informáticos y tecnologías de información del Ministerio, así como atender las peticiones de estudios que soliciten el Ministro o la Contraloría General de la República, relacionadas con ese tema.
+También dará asesoría y apoyo especializado a los otros departamentos de la Dirección y brindará el soporte técnico necesario a los equipos y programas de la Auditoría Interna.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39194 del 2 de junio de 2015)
