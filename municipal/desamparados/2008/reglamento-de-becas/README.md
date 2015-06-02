@@ -15,3 +15,4 @@ Reglamento de Becas
 | --- | --- | --- |
 | 1 | 2008-02-08 | la propia norma |
 | 2 | 2010-11-16 | Reglamento municipal 67 (2010-11-16) |
+| 3 | 2015-06-02 | Reglamento municipal 32 (2015-06-02) |
