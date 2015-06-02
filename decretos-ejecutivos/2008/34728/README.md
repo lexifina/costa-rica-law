@@ -20,3 +20,4 @@ Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Minist
 | 5 | 2012-04-16 | Decreto Ejecutivo 37153 (2012-04-16) |
 | 6 | 2012-06-26 | Decreto Ejecutivo 37185 (2012-06-26) |
 | 7 | 2012-11-02 | Decreto Ejecutivo 37567 (2012-11-02) |
+| 8 | 2015-06-02 | Decreto Ejecutivo 39251 (2015-06-02) |
