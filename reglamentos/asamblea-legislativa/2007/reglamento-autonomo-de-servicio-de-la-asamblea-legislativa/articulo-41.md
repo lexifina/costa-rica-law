@@ -1,2 +1,2 @@
-Artículo 41.— Los permisos que se concedan de acuerdo con el artículo anterior quedan a juicio de quien corresponda otorgarlos con goce o sin goce de salario; no obstante, en el caso de los funcionarios nombrados en puestos no cubiertos por el régimen de Servicio Civil (fracciones políticas e interinos), podrán otorgarse siempre y cuando sean por periodos inferiores a un mes calendario y la solicitud cuente con el visto bueno del superior inmediato.
-(Así reformado mediante acuerdo N° 17-13-14 tomado en sesión ordinaria N° 177-2013 del 11 de junio del 2013)
+Artículo 41.- Los permisos que se concedan de acuerdo con el artículo anterior en su inciso 3) numerales a) y b) queda a juicio de quién corresponda otorgarlos, el concederlos con goce o sin goce de sueldo.
+(Así reformado mediante acuerdo N° 01-15-16 tomado en sesión ordinaria N° 67-2015 del 2 de junio del 2015)

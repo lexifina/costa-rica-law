@@ -22,3 +22,4 @@ Reglamento Autónomo de Servicio de la Asamblea Legislativa
 | 7 | 2012-01-23 | Acuerdo 41 (2012-01-23) |
 | 8 | 2013-04-24 | Acuerdo 5 (2013-04-24) |
 | 9 | 2013-06-11 | Acuerdo 17 (2013-06-11) |
+| 10 | 2015-06-02 | Acuerdo 1 (2015-06-02) |
