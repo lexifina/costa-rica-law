@@ -1,0 +1,1 @@
+Artículo 37.—Velar por el buen estado, funcionamiento y mantenimiento esencial del equipo y del instrumental necesario para el cumplimiento de sus actividades (equipos de tinción, balanzas, centrífugas, microscopios y otros).

@@ -1,0 +1,1 @@
+Artículo 12.—De acuerdo a su criterio emitir un informe con su recomendación en los casos de muestras sospechosas, dudosas o positivas, en cuyo caso deberá someterlo de inmediato al criterio del Médico Especialista en Anatomía Patológica para diagnóstico definitivo.

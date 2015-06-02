@@ -1,0 +1,1 @@
+Artículo 19.—Deber para con superiores, compañeros y público: Deberá cuidar las relaciones con superiores, compañeros y público en general, atendiéndolos con respeto, tacto y discreción absoluta conforme a los principios éticos.

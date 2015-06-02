@@ -1,0 +1,3 @@
+Artículo 16.—Trabaja siempre bajo la supervisión del Médico Especialista en Anatomía Patológica, dentro su ámbito de acción.
+En casos excepcionales y dentro del ámbito institucional público, la supervisión hacia el Tecnólogo puede ser delegada a un Residente en Anatomía Patológica, siempre bajo la supervisión del Médico Especialista. Cuando no haya posibilidad de contar con el Médico Especialista respectivo, la supervisión la dará otro médico especialista relacionado con su consulta o bien un Médico y Cirujano.
+(Corregido mediante Fe de Erratas publicada en La Gaceta N° 97 del 20 de mayo del 2016, página N° 52. Anteriormente indicaba “ Artículo 16.—Trabaja siempre bajo la supervisión del Médico Especialista en Anatomía Patológica, dentro de su ámbito de acción.”)
