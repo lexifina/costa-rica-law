@@ -1,1 +1,0 @@
-Artículo 13.—Corresponderá al Departamento de Proveeduría encauzar y dirigir los trámites internos para la obtención de los informes técnicos, jurídicos y otros necesarios en relación con las contrataciones que deban someterse al conocimiento de la Comisión de Contratación Administrativa.

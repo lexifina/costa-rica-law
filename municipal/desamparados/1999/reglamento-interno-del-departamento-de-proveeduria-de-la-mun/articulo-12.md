@@ -1,1 +1,0 @@
-Artículo 12.—la Comisión de Contratación Administrativa tendrá a su cargo el estudio, análisis y recomendación de las licitaciones públicas, las licitaciones por registro, las licitaciones restringidas y aquellas contrataciones previamente autorizadas por la Contraloría General de la República y otras modalidades que promueva la Municipalidad.

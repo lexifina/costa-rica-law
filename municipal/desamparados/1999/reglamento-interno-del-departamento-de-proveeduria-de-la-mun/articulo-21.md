@@ -1,1 +1,0 @@
-Artículo 21.—Una vez recibido el bien o servicio la dependencia encargada de recibir conforme, trasladará la factura al Departamento de Proveeduría, para que éste proceda a remitirla al Departamento de Tesorería con la copia de la orden de compra respectiva para su trámite de pago, el cual será autorizado de conformidad con lo que establece el Código Municipal.
