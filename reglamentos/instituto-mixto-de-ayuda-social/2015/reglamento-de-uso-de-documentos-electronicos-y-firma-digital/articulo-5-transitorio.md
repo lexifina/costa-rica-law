@@ -1,0 +1,1 @@
+Transitorio V.— Se faculta a la Gerencia General para que determine la fecha de implementación de los aspectos previstos en el artículo 6° inciso 5) del presente Reglamento previendo que existan las condiciones de infraestructura tecnológica y manuales de procedimiento necesarios para su eficacia.

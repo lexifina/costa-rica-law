@@ -1,0 +1,2 @@
+CAPÍTULO III: GESTIONES DE PARTES EN PROCESOS ANTE EL IMAS PORMEDIOS ELECTRÓNICOS, INFORMÁTICOS, TELEMÁTICOS O SEMEJANTES.
+Artículo 16 º.— Medios telemáticos. La utilización de dispositivos inalámbricos de transmisión de datos y otros medios similares, conforme avance la tecnología, serán válidos siempre y cuando sean autorizados por T.I. y los mismos garanticen de forma razonable los niveles de seguridad, protección e integridad de la información.

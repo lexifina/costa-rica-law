@@ -1,0 +1,1 @@
+Transitorio III.— Se concede un plazo de hasta ocho meses al Área de Servicios Generales para que elabore las propuestas de políticas, manuales de procedimientos y demás instrumentos necesarios para regular y controlar la gestión documental en medios electrónicos.

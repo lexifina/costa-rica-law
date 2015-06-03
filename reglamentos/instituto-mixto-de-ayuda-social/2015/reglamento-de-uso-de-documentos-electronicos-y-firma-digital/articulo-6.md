@@ -1,0 +1,6 @@
+Artículo 6º—Comunicaciones oficiales.
+1) Se faculta y autoriza el uso de la firma digital en todas las comunicaciones oficiales a lo interno de la Institución que se realicen por medio de oficios, correos electrónicos, software de compras de la Proveeduría, Declaraciones Juradas de Bienes ante la Contraloría General de la República, salvo para las personas trabajadoras exceptuadas en el artículo 3° de este Reglamento.
+2) A nivel externo de la Institución se deberán realizar las comunicaciones indicadas en el inciso anterior, en el tanto las condiciones tecnológicas lo permitan.
+3) La aprobación digital que se realicen en los sistemas Sistema de Desarrollo Humano, Sistema Informático de Transportes (SITRA), Sistema de Administración Financiera, tendrá la misma validez y eficacia jurídica de la firma manuscrita en cualquier documento.
+4) La Institución dará trámite a toda solicitud externa que se presente con firma digital.
+5) La Gerencia General está facultada a comunicar mediante directriz los cambios o ajustes que en materia de procesos digitales se realicen en la institución, el uso de la firma digital o la aprobación digital en los documentos, actos administrativos, formularios u otro tipo de trámites y procesos digitales de uso Institucional que ésta disponga.

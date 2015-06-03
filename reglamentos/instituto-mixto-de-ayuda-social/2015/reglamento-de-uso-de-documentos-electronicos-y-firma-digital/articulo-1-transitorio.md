@@ -1,0 +1,1 @@
+Transitorio I: — Se concede un plazo de un año a las unidades administrativas del IMAS a efectos de que procedan a tomar las medidas correctivas de forma que la normativa específica sea acorde con lo dispuesto en el presente Reglamento.

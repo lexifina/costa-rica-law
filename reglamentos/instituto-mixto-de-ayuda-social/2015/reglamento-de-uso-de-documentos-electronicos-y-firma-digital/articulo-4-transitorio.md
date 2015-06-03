@@ -1,0 +1,1 @@
+Transitorio IV.— La Proveeduría Institucional deberá proceder en coordinación con T.I. a adquirir los equipos necesarios para la implementación del presente reglamento, en el plazo de ocho meses año, a partir de la entrada en vigencia del presente Reglamento.

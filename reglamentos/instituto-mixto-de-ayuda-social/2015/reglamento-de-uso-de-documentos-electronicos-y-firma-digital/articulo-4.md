@@ -1,0 +1,1 @@
+Artículo 4º—Concordancia de la normativa: Lo estipulado en el presente Reglamento prevalecerá sobre otras normas de igual o menor rango que regulen el uso de medios electrónicos; por lo tanto, las jefaturas inmediatas de las distintas unidades administrativas del IMAS deberán velar porque su normativa específica sea acorde con lo dispuesto en el presente Reglamento

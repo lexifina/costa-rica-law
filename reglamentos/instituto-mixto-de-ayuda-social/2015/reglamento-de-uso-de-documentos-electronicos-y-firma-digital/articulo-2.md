@@ -1,0 +1,2 @@
+Artículo 2º—Alcance. Este Reglamento se aplicará a toda clase de transacciones, actos técnicos o jurídicos, públicos, privados o mixtos relacionados con los trámites internos o externos del Instituto, gestionados ante y por cualquier persona funcionaria del IMAS.
+Es obligación de la persona funcionaria cumplir a cabalidad lo tipificado en el presente reglamento, caso contrario la administración puede proceder según como lo estipula el artículo 32 del presente Reglamento.

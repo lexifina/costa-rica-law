@@ -1,0 +1,1 @@
+Artículo 29 º.—Integración normativa. Los aspectos no regulados por este Reglamento o en su caso por los respectivos formularios de suscripción para el uso de las firmas digitales se regularán por los que dispone la Ley Nº 8454 y Reglamento, y demás normas legales y reglamentarias conexas y deberá interpretarse sin contradecir esa Ley.

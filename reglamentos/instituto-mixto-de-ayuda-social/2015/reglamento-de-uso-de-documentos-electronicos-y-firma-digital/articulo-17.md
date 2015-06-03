@@ -1,0 +1,1 @@
+Artículo 17 º.—Gestión institucional sin soporte de papel. Las alteraciones que afecten la autenticidad o integridad de los soportes electrónicos, informáticos, magnéticos, ópticos, telemáticos y los producidos por nuevas tecnologías, utilizados por las partes, causarán la pérdida de la validez y eficacia de los mismos.

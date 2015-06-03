@@ -1,0 +1,3 @@
+Artículo 30º.—Fax. Los documentos remitidos por fax se consideran válidos sin la necesidad de presentar el original (soporte papel). La persona usuaria, la persona trabajadora o unidad administrativa deberá custodiar el original, para los casos en que se alegare su falsedad o irregularidad, para el respectivo cotejo, en el momento en que sea requerido.
+Lo anterior siempre que se cumplan los procedimientos establecidos para garantizar su autenticidad, su integridad y su seguridad.
+El documento original (soporte papel) será eliminado según los plazos establecidos en la Tabla de Plazos de conservación documental de la dependencia.

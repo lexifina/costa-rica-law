@@ -1,0 +1,1 @@
+Artículo 7º—Homologación funcional de las comunicaciones. Las comunicaciones electrónicas firmadas digitalmente o las aprobaciones digitales que realicen las personas funcionarias del IMAS, que posibiliten el acceso integral de transmisión de documentos digitales o documentos electrónicos, serán equivalentes a las presenciales para todos los efectos legales.

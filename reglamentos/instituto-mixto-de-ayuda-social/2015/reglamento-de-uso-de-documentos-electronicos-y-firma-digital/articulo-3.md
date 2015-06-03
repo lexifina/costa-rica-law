@@ -1,0 +1,1 @@
+Artículo 3º— Suministro de la firma digital: El IMAS proporcionará a todas las personas trabajadoras la firma digital y pagará su renovación en el tanto se mantenga la condición de persona funcionaria, salvo los nombramientos efectuados a plazo determinado o personal sustituto cuyo plazo de nombramiento no supere los cuatro meses.
