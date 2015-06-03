@@ -1,0 +1,1 @@
+Artículo 19.—Compra de bienes y servicios: La compra de bienes y servicios se tramitará por caja chica bajo la responsabilidad de la jefatura del Departamento de Proveeduría, solamente cuando en la bodega no haya existencia del bien que se solicita y exista contenido en la partida presupuestaria correspondiente.

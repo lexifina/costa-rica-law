@@ -1,0 +1,2 @@
+Artículo 4º—Monto de caja chica: El fondo de caja chica será por un monto en colones, equivalente a $2.000,00 (dos mil dólares), que se actualizará con el tipo de cambio vigente del Banco Central, cada seis meses y se aplicará en la adquisición de bienes y servicios de menor cuantía, cuyos límites se definen en el artículo 6.
+El monto del fondo de caja chica podrá ser variado por el Regulador General, a solicitud de la Dirección de Finanzas, la cual deberá respaldarlo con un estudio adecuado.

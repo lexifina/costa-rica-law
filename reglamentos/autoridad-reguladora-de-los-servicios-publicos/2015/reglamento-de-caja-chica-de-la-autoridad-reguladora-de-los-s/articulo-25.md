@@ -1,0 +1,1 @@
+Artículo 25.—Diferencias: Si producto del arqueo resultare una diferencia, esta deberá justificarla el encargado del fondo y deberá depositar el sobrante o faltante correspondiente a más tardar el día siguiente, respetándose lo dispuesto en el artículo 12 de este reglamento.

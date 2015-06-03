@@ -1,0 +1,1 @@
+Artículo 22.—Exceso de lo gastado: Si el monto de lo gastado excede la cantidad autorizada en el vale de caja chica, deberán presentarse los comprobantes que justifiquen la diferencia, además se debe contar con el visto bueno de presupuesto que confirme el contenido presupuestario para liquidar el vale.

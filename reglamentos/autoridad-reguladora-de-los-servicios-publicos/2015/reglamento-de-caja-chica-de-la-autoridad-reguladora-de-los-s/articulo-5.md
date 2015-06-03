@@ -1,0 +1,1 @@
+Artículo 5º—Monto asignado: La caja chica contendrá siempre el total del monto asignado, el cual, según el caso, estará integrado de la siguiente forma: dinero en efectivo, vales liquidados y vales en trámite de reintegro con sus comprobantes de respaldo. En ningún momento podrán sustituirse estos valores por otros de índole diferente a la naturaleza de la caja chica.

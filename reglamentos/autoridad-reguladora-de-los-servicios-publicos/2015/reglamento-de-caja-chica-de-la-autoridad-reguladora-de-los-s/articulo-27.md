@@ -1,0 +1,1 @@
+Artículo 27.—Jefaturas: Estarán sujetos a la misma clase de sanciones que se especifican en el artículo anterior, los funcionarios o jefaturas según corresponda, que soliciten o autoricen vales sin justificación, así como el Departamento de Proveeduría.

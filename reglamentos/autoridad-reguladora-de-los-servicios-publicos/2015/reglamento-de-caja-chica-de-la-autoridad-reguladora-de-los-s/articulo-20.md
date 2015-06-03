@@ -1,0 +1,2 @@
+Artículo 20.—Liquidación: Los vales deben liquidarse a más tardar el día hábil siguiente al retiro del dinero, en caso de que el vale se emita viernes o un día anterior a un feriado debe liquidarse el mismo día.
+Cuando la liquidación se realice con posterioridad al plazo fijado, deberá justificarse ante la Dirección de Finanzas, la cual evaluará si las razones del atraso proceden. Si no es así se actuará conforme lo dispuesto en el artículo 26 de este reglamento.

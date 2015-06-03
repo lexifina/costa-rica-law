@@ -1,0 +1,3 @@
+Artículo 18.—Reintegros: El reintegro de caja chica deberá realizarse cuando se haya desembolsado al menos el 20% del total del fondo, y se ajustarán al siguiente trámite:
+a) El encargado de la caja chica presentará al coordinador de Tesorería o su suplente, el resumen del reintegro confeccionado mediante la fórmula “Reintegro de Caja Chica”, adjuntando los comprobantes que lo amparan para su revisión.
+b) El coordinador de Tesorería hará la revisión pertinente y autorizará la emisión del cheque de reintegro a nombre del encargado del fondo de caja chica. El cheque y comprobantes de respaldo serán remitidos a los funcionarios autorizados para firmar cheques y trámite siguiente.
