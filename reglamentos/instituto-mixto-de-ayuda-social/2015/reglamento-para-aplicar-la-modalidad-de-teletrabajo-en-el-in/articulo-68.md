@@ -1,0 +1,22 @@
+Artículo 68 º-: Corresponde a las Jefaturas Serán responsabilidades de las Jefaturas las siguientes actividades:
+a) Planificar y establecer los objetivos, metas y actividades por las cuales se evaluará el desempeño de la persona teletrabajadora.
+b) Determinar en cuál de las opciones de teletrabajo se puede ubicar al funcionario o funcionaria de su dependencia que desea acogerse al teletrabajo, según lo definido en el artículo 22 de este Reglamento.
+c) Evaluar y dar seguimiento a las metas propuestas en los planes de trabajo de la persona teletrabajadora utilizando el instrumento definido para dicha evaluación.
+d) Apoyar el proceso de capacitación e inducción de teletrabajo que se brindará a las personas teletrabajadoras.
+e) Recibir y aprobar el curso de inducción de teletrabajo.
+f) Mantener actualizadas las actividades y puestos que son factibles de incorporar a la modalidad de teletrabajo, en coordinación con el Área Desarrollo Humano.
+g) Determinar si la información a la cual tiene acceso la persona teletrabajadora es de carácter confidencial y sensible a los intereses del IMAS, en apego al cumplimiento de todas las disposiciones establecidas.
+h) Realizar el procedimiento respectivo en caso de que la persona teletrabajadora desee incorporarse a la modalidad presencial, atendiendo lo estipulado en este Reglamento.
+i) Promover el uso de las tecnologías de información y comunicación entre todo el personal de su área para el desarrollo de una gestión integral de la modalidad de teletrabajo.
+j) Propiciar un ambiente laboral adecuado, las retribuciones, oportunidades de desarrollo e integración social de los funcionarios y las funcionarias que participan en la modalidad de teletrabajo.
+k) Mantener un espacio físico en la oficina que disponga de conectividad y le permita a la persona teletrabajadora laborar presencialmente, según los días que lo requiera.
+l) Gestionar ante el Área de Desarrollo Humano todos los aspectos y acciones de mejora relacionados con la modalidad de teletrabajo.
+m) Consentir en que el funcionario o funcionaria, proceda a la firma del convenio, mediante el cual se está acogiendo a la modalidad de teletrabajo, de conformidad con este reglamento. Caso contrario, razonar la negativa del caso.
+n) Llevar los registros de la información relativa al teletrabajo y emitir informes de carácter periódico sobre los resultados y desempeño del teletrabajo en su dependencia y hacer llegar un original de éstos al Área de Planificación Institucional y al Área de Desarrollo Humano.
+o) Verificar la existencia de los inventarios de hardware y software propiedad de la Institución de forma remota, asignados a la persona teletrabajadora para el desempeño de sus funciones. En caso que se identifique alguna anomalía, se comunicará a la persona teletrabajadora, a la Proveeduría y al Área de T.I para que tome las medidas correspondientes.
+p) Facilitar la aclaración de dudas y solución de conflictos o contratiempos que se puedan presentar en el desarrollo de las actividades bajo esta modalidad.
+q) Velar porque se mantenga el ambiente laboral adecuado, las retribuciones, oportunidades de desarrollo e integración social de las personas teletrabajadoras que participan en la modalidad de teletrabajo.
+r) Informar al Área de Desarrollo Humano las actividades y puestos que a su criterio son factibles de incorporar al programa de Teletrabajo.
+s) Cuando el rendimiento de las personas teletrabajadoras no cumpla con los parámetros programados, según se haya definido en el convenio, la superiora o el superior jerárquico debe realizar un análisis de las causas que condujeron a esa situación y formular las recomendaciones que corresponda, con el fin de mejorar el desempeño. En caso de determinarse que las causas de bajo rendimiento son atribuibles a la persona teletrabajadora, podrá aplicársele el régimen disciplinario dispuesto en Reglamento Autónomo de Servicios y el artículo 35 de este Reglamento y comunicarlo al Área de Desarrollo Humano para que se tomen las acciones correctivas correspondientes.
+t) Establecer un mecanismo que permita una comunicación efectiva con la persona teletrabajadora, a través de los medios telemáticos, tales como: teléfono fijo, telefonía móvil, Intranet/Internet, videoconferencia y correo electrónico, entre otros.
+u) Presentar informes bimensuales de gestión al Área de Desarrollo Humano, para su estudio por parte de la Comisión Institucional de Teletrabajo, que deberán cumplir con los parámetros pre establecidos por esta.

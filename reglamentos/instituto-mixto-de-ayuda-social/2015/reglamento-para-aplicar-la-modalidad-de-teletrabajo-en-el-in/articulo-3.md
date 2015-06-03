@@ -1,0 +1,1 @@
+Artículo 3º- Instancia responsable de la gestión de la modalidad de teletrabajo La gestión de la modalidad de teletrabajo estará a cargo de la o el Gerente General quien será responsable de implementar y de coordinar con las instancias institucionales o no, todas las acciones correspondientes, para su puesta en marcha y seguimiento.

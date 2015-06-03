@@ -1,0 +1,1 @@
+Artículo 11 º-: De las votaciones Los acuerdos serán adoptados por mayoría absoluta de las y los integrantes presentes. El Coordinador o la Coordinadora tendrá derecho a voto de calidad en caso de empate.

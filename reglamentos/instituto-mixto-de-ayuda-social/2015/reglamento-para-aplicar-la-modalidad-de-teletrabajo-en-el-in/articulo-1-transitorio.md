@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+Transitorio I.- Dentro del mes siguiente de la entrada en vigencia de este reglamento, Salud Ocupacional deberá tener debidamente aprobadas las condiciones sobre los espacios físicos, según el reglamento y las propuestas de las formas, para eventualmente hacer verificaciones, para lo cual se deben considerar las herramientas básicas a suministrar por la Comisión Nacional de Teletrabajo.

@@ -1,0 +1,1 @@
+Artículo 25º-. Inducción y Capacitación: El funcionario o funcionaria que haya cumplido con lo dispuesto en el artículo anterior, deberá aprobar el proceso de inducción y capacitación sobre teletrabajo.
