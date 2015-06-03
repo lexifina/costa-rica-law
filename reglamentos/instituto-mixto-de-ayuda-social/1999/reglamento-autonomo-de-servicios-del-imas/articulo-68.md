@@ -1,3 +1,6 @@
-Artículo 68.—Toda ausencia por enfermedad hasta por dos días se podrá justificar mediante dictamen médico particular, no así para efectos de pago. En caso de que dicha ausencia sea justificada mediante documento de incapacidad emitido por la Caja Costarricense del Seguro Social o el Instituto Nacional de Seguros, se deberá reconocer el pago de los días correspondientes.
-En caso de que la ausencia por enfermedad fuere por tres días o más, ésta sólo podrá justificarse mediante la correspondiente boleta de incapacidad emitida por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.
-En ningún caso la sola constancia de haber sido atendido por un médico servirá para justificar la ausencia. En todo caso, para efectos de su justificación salarial y disciplinaria, el correspondiente certificado deberá ser presentado a conocimiento del equipo técnico de recursos humanos dentro de los cinco días hábiles siguientes a su expedición.
+Artículo 68.— El abandono de trabajo se sancionará de la siguiente forma:
+a) la primera vez, una amonestación escrita.
+b) Por dos, suspensión sin goce de salario por cinco días.
+c) Por tres, despido sin responsabilidad patronal.
+Dichas faltas se computarán y acumularán para efectos de reincidencia en el plazo de seis meses.
+(Así reformado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

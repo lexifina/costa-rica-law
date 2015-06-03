@@ -1,10 +1,8 @@
-Artículo 65.-Se considerará como llegada tardía el ingreso injustificado a la unidad administrativa en donde ejerce funciones después de cinco minutos de la hora señalada para el comienzo de labores, o el tomar más tiempo para descanso que el establecido en el artículo 48 del presente reglamento.
-Toda llegada tardía superior a treinta minutos contados a partir de la hora de ingreso, impedirá al servidor a laborar en la respectiva fracción de jornada y se computará para efectos salariales y de sanción como media ausencia.
-Las llegadas tardías inferiores a treinta minutos, serán sancionadas de la siguiente manera:
-a) Hasta por dos, amonestación verbal.
-b) Hasta por tres, amonestación por escrito.
-c) De cuatro a nueve, suspención sin goce de salario de cuatro a nueve días, según la proporcionalidad de las faltas.
-d) Más de nueve, despido del trabajo sin responsabilidad patronal.
-Para efectos de aplicar la escala de sanciones que antecede, las llegadas tardías serán computadas en un mismo mes calendario.
-En casos muy calificados, el servidor podrá justificar la llegada tardía dentro de los dos días hábiles siguientes a su acaecimiento ante su superior jerárquico, quien lo hará de conocimiento del equipo técnico de Recursos Humanos dentro de las veinticuatro horas siguientes a su presentación.
-(Así reformado en sesión N° 11 del 12 de enero de 2000)
+Artículo 65: Las ausencias injustificadas se sancionarán de la siguiente manera:
+a) Por media ausencia, amonestación escrita
+b) Por una ausencia, o dos medias ausencias dentro de un mismo mes calendario, suspensión sin goce de salario por tres días.
+c) Por una y media ausencias o tres medias ausencias dentro del mismo mes calendario, suspensión sin goce de salario por cinco días.
+d) Por dos ausencias alternas o cuatro medias ausencias consecutivas o alternas en el mismo mes calendario, suspensión por ocho días sin goce de salario.
+e) Por cinco medias ausencias consecutivas o alternas en el mismo mes calendario, suspensión hasta por quince días sin goce de salario.
+f) Por dos ausencias consecutivas, tres alternas o seis medias ausencias consecutivas o alternas dentro del mismo mes calendario, despido sin responsabilidad patronal.
+(Así reformado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

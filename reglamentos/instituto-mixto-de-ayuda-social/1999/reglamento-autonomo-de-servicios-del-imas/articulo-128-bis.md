@@ -1,0 +1,3 @@
+Artículo 128-BIS: La resolución de las sanciones mayores a ocho días hábiles, los despidos sin responsabilidad patronal o cualquier otra de similar gravedad, serán de competencia de la Gerencia General, quién ordenará la apertura del procedimiento administrativo y resolverá el acto final, en observancia al debido proceso.
+Las acciones disciplinarias declaradas en firme por la Gerencia General serán comunicadas a Recursos Humanos a efectos de que se materialice la sanción, se realice la respectiva acción de personal y se archive en el expediente personal de la persona trabajadora.
+(Así adicionado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

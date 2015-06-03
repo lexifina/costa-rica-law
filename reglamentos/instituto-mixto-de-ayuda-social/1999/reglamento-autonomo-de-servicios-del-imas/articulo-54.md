@@ -1,1 +1,3 @@
-Artículo 54.—Las disposiciones del presente capítulo no se aplicarán a los cajeros, vendedores, y administradores de las Tiendas Libres.
+Artículo 54- No se reconocerá el trabajo extraordinario ejecutado sin la autorización previa y expresa de la jefatura inmediata correspondiente, de acuerdo con las políticas institucionales y el Reglamento de reconocimiento de jornada extraordinaria de trabajo del Instituto Mixto de Ayuda Social.
+La omisión de la autorización no afectará a la persona funcionaria que hubiere laborado de buena fe y podrá dar lugar a responsabilidad civil y administrativa a la respectiva jefatura, conforme a la Ley General de la Administración Pública.
+(Así reformado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

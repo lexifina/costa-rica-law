@@ -1,0 +1,2 @@
+Artículo 51-Bis: El horario ordinario de atención al público en Oficinas Centrales del IMAS será de lunes a viernes de las siete hasta las quince horas en forma continúa. Adicionalmente, la Gerencia General podrá establecer, mediante un acto administrativo, horarios de atención al público en las Oficinas Desconcentradas, según la capacidad institucional y las necesidades particulares de cada unidad administrativa.
+(Así adicionado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

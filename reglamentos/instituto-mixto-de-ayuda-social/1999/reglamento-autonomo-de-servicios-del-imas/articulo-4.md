@@ -11,6 +11,8 @@ PLAZA DE NIVEL INICIAL: Plazas cuyos requisitos exigidos son del nivel académic
 PREDICTOR DE SELECCION: Conjunto de pruebas de idoneidad con su respectiva ponderación, en función de los cuales se seleccionan a los candidatos para los distintos cargos de la Institución.
 PUESTOS DE DIRECCION SUPERIOR: Son los cargos de Presidente Ejecutivo, Gerentes, Subgerentes, creados mediante Leyes o decretos.
 RECARGO DE FUNCIONES: Adicionar a las labores propias del puesto permanente del servidor, funciones y responsabilidades de un cargo de mayor categoría, en forma temporal.
+RECURSOS HUMANOS: Es el Área de Desarrollo Humano, definida como unidad Asesora (Staff) en la Estructura Organizacional del IMAS.
+(Así adicionada la definición anterior y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)
 RECLUTAMIENTO DE PERSONAL: Proceso que se sigue con el objeto de atraer candidatos aptos para el desempeño del puesto.
 REPRESENTANTE DE LA INSTITUCION: Los Gerentes, Subgerentes, Gerentes Regionales, Coordinadores, y en general, toda aquella persona que en virtud de ejercer funciones de dirección o jerarquía, vinculan y obligan a la Administración como si ésta personalmente hubiera realizado el acto o actos que se trate.
 SALARIO: La contraprestación que recibe el servidor a cambio de sus servicios y que le podrá ser pagada por cualquier medio físico o electrónico que garantice su fácil conversión en moneda de curso legal, sin perjuicio de lo dispuesto por el artículo 166 del Código de Trabajo.

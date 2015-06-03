@@ -1,0 +1,2 @@
+Artículo 49- Bis: Recursos Humanos en el ámbito de sus competencias, podrá en cualquier momento corroborar el fiel cumplimiento de la asistencia y puntualidad al trabajo de las personas trabajadoras, el cumplimiento de la normativa vigente y de utilizar otros medios de control que estime convenientes y que permitan las tecnologías de Información y Comunicación, tales como: cámaras, vídeos, protocolos, visitas de campo, declaraciones, informes de Contraloría de Servicios.
+(Así adicionado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

@@ -1,4 +1,2 @@
-Artículo 64.—Salvo fuerza mayor debidamente demostrada los servidores que no comuniquen su ausencia el mismo día, así como aquellos que emitieren argumentos falsos debidamente comprobados para ausentarse de su trabajo, serán sancionados de la siguiente forma:
-a) La primera vez, suspensión sin goce de salario por dos días.
-b) La segunda vez, suspensión sin goce de salario por ocho días.
-c) La tercera vez, despido sin responsabilidad patronal.
+Artículo 64.— Se considerará como ausencia la inasistencia injustificada al trabajo durante la jornada laboral completa. La inasistencia injustificada durante una fracción de la jornada laboral se computará como la mitad de una ausencia. En todo caso, no se pagará el salario que corresponde a las ausencias injustificadas o a las ausencias justificadas no para efectos de pago.
+(Así reformado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

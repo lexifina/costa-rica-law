@@ -1,3 +1,2 @@
-CAPITULO VIII
-Del control de la asistencia y puntualidad de los servidores del IMAS
-Artículo 55.—Recursos Humanos será la unidad administrativa encargada de determinar los medios y formas para controlar el registro de asistencia y puntualidad de los funcionarios de la Institución.
+Artículo 55.—Las personas trabajadoras podrán ausentarse de su lugar de trabajo en situaciones debidamente calificadas, justificadas, de urgente necesidad o impostergables, si cuentan previamente con la autorización de su jefatura inmediata. En los casos en que deba mediar el registro de la entrada o salida y ésta se omita, deberá tramitarse la correspondiente boleta de justificación.
+(Así reformado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)

@@ -1,3 +1,4 @@
 CAPITULO IX
 Descanso semanal, días feriados y asuetos
-Artículo 70.—Cuando se halla cumplido la jornada semanal conforme al artículo 48, los servidores tendrán los sábados y domingos como días de descanso semanal, con excepción de aquellos funcionarios que ocupen puestos que por su naturaleza y conveniencia deben trabajar en esos días de las semana, según comunicación previa, oportuna y en forma escrita que hará el superior jerárquico al funcionario y al equipo técnico de recursos humanos.
+Artículo 70.—Las personas trabajadoras disfrutarán los sábados y domingos como días de descanso semanal, salvo en aquellos casos en que por la naturaleza del puesto resulte necesario fijar días distintos a los indicados. En esta situación, tales días se disfrutarán en forma consecutiva después de cinco días de trabajo continuo.
+(Así reformado y publicado en el Alcance digital N° 40 a La Gaceta N° 106 del 3 de junio de 2015)
