@@ -1,0 +1,1 @@
+ARTÍCULO 5°.- La dirección política de la Estrategia Puente al Desarrollo estará a cargo del Consejo Presidencial Social, bajo la coordinación de la Segunda Vicepresidencia de la República y el Ministro de Desarrollo Humano e Inclusión Social.

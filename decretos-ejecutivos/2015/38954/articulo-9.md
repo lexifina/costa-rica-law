@@ -1,0 +1,1 @@
+ARTÍCULO 9°.- Los Enlaces Sectoriales del Ministerio de Planificación Nacional y Política Económica participarán en la labor de seguimiento y evaluación de la Estrategia Puente al Desarrollo y trabajarán de manera coordinada con el Área de Seguimiento y Evaluación del Consejo Presidencial Social.

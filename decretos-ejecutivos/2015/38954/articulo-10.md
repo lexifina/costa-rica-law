@@ -1,0 +1,1 @@
+ARTÍCULO 10°.- La Estrategia Puente al Desarrollo contará con una Unidad Coordinadora y un Equipo Técnico Interinstitucional, conformado por funcionarios de las instituciones que tienen compromisos en la parte operativa. Para el efectivo cumplimiento se podrá utilizar la figura de convenios de cooperación interinstitucional que permitan la movilidad de los funcionarios.

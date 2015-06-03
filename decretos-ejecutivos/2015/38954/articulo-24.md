@@ -1,0 +1,1 @@
+ARTÍCULO 24°.- El IMAS remitirá la información de estas 27 300 familias a las instituciones participantes en la Estrategia Puente al Desarrollo, las cuales deberán atenderlas de manera obligatoria con su oferta programática.

@@ -1,0 +1,1 @@
+ARTÍCULO 11°.- La Unidad Coordinadora tendrá un liderazgo operacional en el conjunto de las intervenciones que se llevarán a cabo en coordinación con los jerarcas del Área Social para la Estrategia Puente al Desarrollo, con competencias para resolver problemas de acción colectiva que se generan cuando existen multiplicidad de actores, que atienden metas y objetivos sectoriales.

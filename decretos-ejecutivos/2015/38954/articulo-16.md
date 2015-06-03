@@ -1,0 +1,1 @@
+ARTÍCULO 16°.- Los cogestores sociales actuarán como enlace entre las familias en pobreza extrema y la oferta programática estatal. Adicionalmente brindarán acompañamiento y atención integral partiendo del principio de corresponsabilidad.

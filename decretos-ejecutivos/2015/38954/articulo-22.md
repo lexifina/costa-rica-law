@@ -1,0 +1,1 @@
+ARTÍCULO 22°.- Las instituciones señaladas en el artículo anterior, respetando su autonomía o independencia funcional, deberán participar de la Estrategia Puente al Desarrollo dándole prioridad en la asignación de recursos políticos, económicos e institucionales y a cooperar con diligencia, de manera que se alcancen los objetivos propuestos.

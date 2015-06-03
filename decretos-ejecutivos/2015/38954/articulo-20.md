@@ -1,0 +1,1 @@
+ARTÍCULO 20°.- Se insta al Ministerio de Hacienda a incluir dentro sus lineamientos presupuestarios anuales, la priorización de la asignación presupuestaria por parte de las instituciones públicas, los recursos para garantizar el cumplimiento de los objetivos de la Estrategia Puente al Desarrollo.
