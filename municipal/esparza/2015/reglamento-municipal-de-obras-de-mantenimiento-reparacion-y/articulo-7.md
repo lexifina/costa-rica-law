@@ -1,0 +1,4 @@
+CAPÍTULO II
+Construcción de obras de mantenimiento,
+reparación y ampliación
+Artículo 7º—Calificación de las obras de mantenimiento, reparación y ampliación. Se considerarán obras de mantenimiento, reparación y ampliación, todo tipo de reparación, remodelación, arreglo, construcción, o similar avalada por la Gestión de Ordenamiento Territorial, que por sus características no altere los sistemas vitales de una casa o edificio, como el estructural, eléctrico, mecánico, datos y telefonía, cubiertas o similares y que además, sea declarado de esta forma por la Municipalidad. El monto máximo permitido como construcción obras de mantenimiento, reparación y ampliación será de 10 Salarios Base, entendiéndose el salario base como el establecido en el artículo 2 de la Ley Nº 7337, de 5 de mayo de 1993 y sus reformas.

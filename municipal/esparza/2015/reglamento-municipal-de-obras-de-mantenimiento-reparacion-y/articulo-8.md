@@ -1,0 +1,1 @@
+Artículo 8º—Actualización del monto de salarios mínimos. La Gestión de Recursos Humanos de la Municipalidad de Esparza, deberá entregar cada vez que dicho mínimo sea modificado por decreto, una certificación del monto del salario base establecido en el artículo 2 de la Ley Nº, el cual será colocado en lugar visible para que los vecinos del cantón conozcan el tributo.
