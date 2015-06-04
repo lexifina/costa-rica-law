@@ -1,2 +1,4 @@
-Artículo 132. Costo de acceso a la red.
-En ambas modalidades de régimen contractual, tanto en el caso de excedentes de producción como en el caso en que el consumo iguale a la producción, el generador a pequeña escala deberá cancelar mensualmente a la empresa, el costo de acceso a la red de distribución de acuerdo con el pliego tarifario vigente.
+Artículo 132. Costo de interconexión y de acceso a la red
+En ambas modalidades de régimen contractual el generador a pequeña escala deberá cancelar a la empresa eléctrica los costos asociados a la interconexión, incluyendo los costos asociados al sistema de medición necesario. El costo de interconexión podrá cancelarse a la empresa en tractos mensuales a convenir entre las partes.
+Adicionalmente el generador a pequeña escala deberá cancelar mensualmente a la empresa eléctrica, el costo de acceso a la red de distribución de acuerdo con el pliego tarifario vigente, asociado a los costos fijos en que incurre la empresa eléctrica y a la disponibilidad de la energía y potencia a suplir en caso de salidas de operación del generador a pequeña escala.
+(Así reformado mediante sesión ordinaria N° 24-2015 del 4 de junio del 2015)

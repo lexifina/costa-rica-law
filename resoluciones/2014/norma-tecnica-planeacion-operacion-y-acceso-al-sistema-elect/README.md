@@ -14,3 +14,4 @@ Norma Técnica: Planeación, Operación y Acceso, al Sistema Eléctrico Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-08 | la propia norma |
+| 2 | 2015-06-04 | Reglamento 24 (2015-06-04) |

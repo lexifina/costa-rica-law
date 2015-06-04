@@ -4,47 +4,60 @@ Abonado: Persona física o jurídica que ha suscrito uno o más contratos para e
 Abonado en alta tensión: Persona física o jurídica que ha suscrito uno o más contratos para el aprovechamiento de la energía eléctrica en alta tensión.
 Abonado en baja tensión: Persona física o jurídica que ha suscrito uno o más contratos para el aprovechamiento de la energía eléctrica en baja tensión.
 Abonado en media tensión: Persona física o jurídica que ha suscrito uno o más contratos para el aprovechamiento de la energía eléctrica en media tensión.
-Alta tensión: Tensión utilizada para el suministro eléctrico, cuyo valor nominal eficaz (rms) es igual o superior a 100 kV.
+Alta tensión (abreviatura: AT): nivel de tensión igual o superior a 100kV e igual o menor de 230 kV.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Arranque en negro: Capacidad de una unidad generadora de alcanzar una condición operativa a partir de un paro total sin la ayuda de la red eléctrica externa, es decir, cuando la barra de media tensión a la que se conecta el generador se encuentra sin energía (no tiene alimentación externa para el servicio propio)
 Área de distribución eléctrica: Área territorial, dentro del área de concesión administrativa en la cual la empresa distribuidora posee redes de distribución eléctrica.
 Autoridad Reguladora: Autoridad Reguladora de los Servicios Públicos. Ente Regulador.
-Baja tensión: Tensión utilizada para el suministro eléctrico, cuyo valor nominal eficaz (rms) es igual o menor a 1000 Volt.
-Bajo nivel de tensión: Condición de tensión inferior al valor mínimo permitido para un valor de tensión nominal declarado, con una duración superior a un minuto.
+Baja Tensión (abreviatura BT): nivel de tensión igual o menor de 1kV.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
+Bajo nivel de tensión: condición de tensión inferior al valor mínimo de operación normal permitido respecto del valor de tensión nominal, con una duración superior a un minuto.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Calidad del suministro eléctrico: Comprende las características de amplitud, frecuencia y forma de onda de la tensión utilizada para la entrega de la energía a los abonados o usuarios.
 Cargabilidad: Medida de la utilización de un elemento o sistema con respecto a su capacidad nominal, máxima u otra.
-Caso fortuito: Acciones de la mano del hombre tales como: huelgas, vandalismo, conmoción civil, revolución, sabotaje y otras que estén fuera de control de la empresa eléctrica, las cuales deben ser demostradas y que afecten de tal manera que sobrepasen las condiciones que debieron considerarse en el diseño óptimo, civil, mecánico o eléctrico en aras de un servicio continuo y de calidad.
-Concesión: Es la autorización otorgada por el Estado para operar, explotar y prestar el servicio de generación, transmisión, distribución o comercialización de energía eléctrica. Título habilitante.
+Caso fortuito: acciones de la mano del hombre tales como: huelgas, vandalismo, conmoción civil, revolución, sabotaje y otras que estén fuera de control de la empresa eléctrica, las cuales deben ser demostradas y que afecten de tal manera que sobrepasen las condiciones que debieron considerarse en el diseño civil, mecánico y eléctrico, en aras de un servicio eficiente (técnico y económico), continuo y de calidad.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
+Concesión: es la autorización que el Estado otorga para operar, explotar y prestar el servicio de generación, transmisión, distribución o comercialización de energía eléctrica.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Condición normal: Estado de un sistema de potencia que se encuentra operando dentro de los parámetros de calidad y seguridad exigidos y sin déficit de energía, exceptuando las interrupciones por mantenimiento programados.
 Condición o estado de emergencia: Estado cuando un sistema de potencia no se encuentra operando dentro de sus parámetros de calidad y seguridad normales o existe riesgo de que se produzca una situación que afecte dichos niveles.
 Confiabilidad: Es la capacidad de un sistema eléctrico de seguir abasteciendo energía a una área, ante la presencia de cambios temporales en su topología o estructura (salida de líneas de transmisión y distribución, subestaciones, centrales eléctricas, etc.).
 Consumo neto: Es la diferencia entre el consumo mensual del servicio eléctrico en el que se encuentra instalado el micro o mini generador y la energía producida y entregada a la empresa distribuidora por parte del generador. Es positivo, cuando el consumo es mayor que lo producido por el micro o mini generador; es cero, cuando la energía producida iguala el consumo; y negativo, cuando existe un excedente de producción con respecto al consumo.
 Contingencia: Es la salida de operación o desconexión de uno o más componentes del Sistema Eléctrico Nacional, tal como la salida de operación de un generador, una línea de transmisión, un interruptor u otro elemento eléctrico.
 Continuidad del suministro eléctrico: Medida de la continuidad (libre de interrupciones) con la que se brinda la energía, para su utilización.
-Contrato de conexión: Acto administrativo suscrito entre el ICE, la empresa de transmisión o la empresa distribuidora con un interesado (generador, una empresa de transmisión, una empresa distribuidora, un abonado o usuario en alta tensión, o un abonado o usuario en baja o media tensión con generación a pequeña escala para autoconsumo), en donde se establecen las condiciones y requisitos técnicos y comerciales bajo los cuales se brindará el acceso, supervisión y operación integrada con el Sistema Eléctrico Nacional, así como las obligaciones, derechos y deberes a que se comprometen las partes.
+Contrato o convenio de conexión: Acto administrativo suscrito entre el ICE, la empresa de transmisión o la empresa distribuidora con un interesado (generador, una empresa de transmisión, una empresa distribuidora, un abonado o usuario en alta tensión, o un abonado o usuario en baja o media tensión con generación a pequeña escala para autoconsumo), en donde se establecen las condiciones y requisitos técnicos y comerciales bajo los cuales se brindará el acceso, supervisión y operación integrada con el Sistema Eléctrico Nacional, así como las obligaciones, derechos y deberes a que se comprometen las partes.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Condición de operación aceptable de estado estable: Condición de un sistema de potencia en el cual, tras una contingencia, sus parámetros de tensión y frecuencia se encuentran iguales o por encima de los límites tolerables, tanto si se operada íntegramente o en islas.
 Criterio de estabilidad de estado estacionario: Un sistema de potencia es estable en estado estacionario para una condición de operación, si después de una pequeña perturbación o disturbio, alcanza una condición de operación de estado estacionario semejante a la condición existente antes del disturbio.
 Criterio de estabilidad transitoria: Un sistema de potencia es transitoriamente estable si para una condición de operación en estado estable y para un disturbio en particular alcanza una condición de operación aceptable de estado estable, después del disturbio.
 Criterios de seguridad operativa: Conjunto de definiciones y reglas nacionales y regionales que establecen cómo se debe desempeñar el Sistema Eléctrico Nacional, tanto en condiciones normales de operación como durante contingencias.
 Criticidad de un elemento del SEN: Un elemento del SEN presenta criticidad si ante su desconexión (sea programada o forzada) se pueden presentar condiciones de operación del SEN fuera de los parámetros establecidos por esta norma.
 Déficit de potencia o energía: Condición en la cual hay insuficiencia en la oferta de potencia o energía para satisfacer la demanda requerida por el Sistema Eléctrico Nacional.
-Demanda máxima: Valor más alto de la demanda en un período dado para una instalación, elemento de red o dispositivo eléctrico.
-Demanda: Valor de la potencia requerida por una instalación eléctrica, elemento de red o dispositivo eléctrico en un instante dado.
+Demanda máxima: valor más alto de la demanda en un período dado.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
+Demanda: valor de la potencia medida en kVA o en kW requerida por una instalación eléctrica, elemento de red, dispositivo o aparato eléctrico en un instante de tiempo dado.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Disponibilidad: Condición de un elemento o sistema para estar en situación de cumplir con su función requerida en un instante o durante un intervalo dado.
 Empresa de transmisión: Persona jurídica concesionaria que suministra el servicio eléctrico en la etapa de transmisión.
-Empresa distribuidora: Persona jurídica concesionaria que suministra el servicio eléctrico en la etapa de distribución.
-Empresa eléctrica: Persona jurídica concesionaria que suministra el servicio eléctrico en cualquiera de sus etapas definidas en el inciso a) del artículo 5 de la Ley N°7593 y sus reformas.
+Empresa distribuidora: empresa cuya actividad consiste en la distribución de la energía eléctrica para su uso final en el área concesionada.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
+Empresa eléctrica: persona jurídica concesionaria que suministra el servicio eléctrico en cualquiera de sus etapas.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Empresa generadora: Persona jurídica concesionaria que suministra el servicio eléctrico en la etapa de generación.
 Energía renovable: Cualquier energía que es generada en un corto periodo de tiempo y obtenida directamente del Sol (Solar Térmica, Fotoquímica o Fotoeléctrica), indirectamente del Sol (como el viento, hidroeléctrica, fotosintética obtenida de la biomasa, incluyendo el biogás y la conversión por plasma) o por algún otro movimiento natural y mecanismos del ambiente (como geotérmica o de mareas). Las energías renovables no incluyen las derivadas de combustibles fósiles, de desechos de combustibles fósiles o de desechos de origen inorgánico.
 Estado operativo de emergencia: Cualquier condición anormal de operación del SEN que resulta de una contingencia a nivel nacional o regional, durante la cual el sistema opera fuera de los límites establecidos en los criterios de calidad, seguridad y desempeño, representando peligro para la vida de las personas o para las instalaciones. Situación en la que no se puede satisfacer la demanda nacional de energía eléctrica.
 Estatismo: Variación porcentual de la frecuencia por cada unidad de variación porcentual de la carga de un generador.
 Falla: Cese de la capacidad o aptitud de un elemento o sistema para realizar la función para la que fue concebido.
-Frecuencia de la tensión: Tasa de repetición de la componente fundamental de la tensión, medida durante un intervalo de tiempo dado.
-Fuerza mayor: Acciones de la naturaleza tales como huracanes, terremotos, inundaciones, tormentas eléctricas, etc., que sobrepasen las condiciones que debieron considerarse en el diseño óptimo, civil, mecánico o eléctrico en aras de un servicio continuo y de calidad.
+Frecuencia de la tensión: tasa de repetición de la componente fundamental de la tensión, medida durante un segundo, expresada en Hertz (Hz).
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
+Fuerza mayor: hechos de la naturaleza, tales como huracanes, tornados, terremotos, maremotos, inundaciones y tormentas eléctricas, que sobrepasen las condiciones que debieron considerarse en el diseño civil, mecánico y eléctrico en aras de un servicio eficiente (técnico y económico), continuo y de calidad.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Función de transmisión: Trasiego, transferencia o transporte de energía eléctrica desde los puntos de producción hasta los puntos de transformación o retiro sin que haya distribución intermedia.
 Generación a pequeña escala para autoconsumo: Generación de energía eléctrica en instalaciones con potencias menores o iguales a 1000 kVA, realizada a partir de fuentes renovables, y en el sitio de consumo, con el fin de satisfacer las necesidades energéticas propias del abonado-usuario interactuando con la red de distribución, con la opción de comprar-vender, al precio que determine la Autoridad Reguladora, o intercambiar excedentes de producción con la empresa distribuidora, de hasta un 49 % de la energía mensual producida, en cualquiera de los dos casos, con la red de distribución eléctrica.
 Generador privado: Empresa de capital privado o persona física que se dedica a generar energía eléctrica para su venta a una empresa que brinda el servicio público de electricidad en la etapa de distribución.
 Generador: Empresa generadora de energía eléctrica. Abonado o usuario que dispone de un sistema de generación de energía eléctrica para autoconsumo integrado a la red de distribución nacional.
-Hueco de tensión (Sag): Disminución del valor eficaz (rms) de tensión entre un 10 %y un 90 % del valor de tensión nominal a la frecuencia fundamental de la red de distribución, con una duración entre medio ciclo (8,33 milisegundos) y un minuto.
+Hueco de tensión (Sag): disminución del valor eficaz (rms), de tensión a 90 % hasta 10 % con respecto del valor de tensión nominal a frecuencia nominal, con una duración desde medio ciclo (8,33 ms), hasta un minuto.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Indisponibilidad de una unidad de generación: Estado operativo de una unidad de generación, en el cual no se encuentra disponible para producir electricidad, debido a algún evento directamente asociado con ella; es decir, es incapaz de mantenerse en servicio en el Sistema Eléctrico Nacional, entrar en servicio o de mantenerse en reserva ya sea por un evento fortuito, programado o no programado.
 Indisponibilidad forzada de una unidad de generación: Estado operativo de una unidad de
 generación en el cual no se encuentra disponible para producir electricidad como consecuencia de condiciones de emergencia, asociadas con la falla de algún componente o equipo de la unidad de generación, o por error humano, que provoca que la unidad salga de operación o sea incapaz de interconectarse y operar en sincronismo con el Sistema Eléctrico Nacional.
@@ -54,7 +67,8 @@ Indisponibilidad: Condición que impide o restringe que un elemento o sistema es
 Interesado: Persona física o jurídica que gestiona la interconexión y operación en paralelo con el Sistema Eléctrico Nacional.
 Línea de distribución: Disposición de apoyos, ductos, conductores, aisladores y accesorios para distribuir electricidad, en forma aérea o subterránea, para su uso final, en media y baja tensión.
 Línea de transmisión: Disposición de estructuras, conductores, aisladores y accesorios para transportar electricidad a alta tensión, entre dos nodos de un sistema de potencia eléctrica.
-Media tensión: Tensión utilizada para el suministro eléctrico, cuyo valor nominal eficaz (rms) es mayor a 1000 Volt y menor que 100 kV.
+Media tensión (abreviatura: MT): nivel de tensión mayor a 1 Kv, pero menor o igual a 100 kV.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Micro generador: Generadores de energía eléctrica con una potencia de generación inferior o igual a 100 kVA.
 Mini generador: Generadores de energía eléctrica con una potencia de generación superior a 100 kVA e inferior o igual a 1000 kVA.
 Norma técnica: Precepto obligatorio conformado por un conjunto de especificaciones, parámetros e indicadores que definen las condiciones de calidad, confiabilidad, continuidad, oportunidad y prestación óptima con que deben suministrarse los servicios eléctricos.
@@ -64,20 +78,24 @@ Operación integrada: Es la forma de operación de un sistema de potencia en la 
 Operación restrictiva: Condición de un elemento o sistema en la cual éste es operado o utilizado en condiciones limitadas con respecto a su capacidad o funcionalidad, como consecuencia de limitaciones técnicas ajenas a él.
 Operación segura: Condición de operación integral de un sistema de potencia en la que no existe la posibilidad de que, ante una eventual falla de uno o varios elementos predefinidos en los Criterios de Seguridad Operativa, se produzca una salida total de operación del sistema o una condición que provoque deficiencias en la calidad y continuidad del transporte de energía.
 Operador del Sistema: Unidad técnica que tiene la responsabilidad de dirigir y coordinar la operación del Sistema Eléctrico Nacional y del Mercado Eléctrico Nacional para satisfacer la demanda eléctrica del país, así como la coordinación y ejecución del trasiego de energía a nivel regional.
-Parpadeo (Flicker): Impresión de inestabilidad de la sensación visual debida a un estímulo luminoso en el cual la luminosidad o la distribución espectral fluctúan en el tiempo.
+Parpadeo (Flicker): impresión de irregularidad de la sensación visual, debida a un estímulo luminoso cuya luminosidad o distribución espectral, fluctúa en el tiempo.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Participantes/agentes del SEN: Participantes de la industria eléctrica: Empresas generadoras, transmisoras, distribuidoras y abonados o usuarios en alta tensión.
 Perturbación: La perturbación describe el total acontecimiento que comienza con una falla y termina con el restablecimiento de las condiciones previas de calidad y confiabilidad en el suministro eléctrico.
-Pico de tensión (Swell): Aumento del valor eficaz (rms) de tensión entre un 10% y un 80 % del valor de tensión nominal a la frecuencia fundamental de la red de distribución, con una duración entre medio ciclo y un minuto.
+Pico de tensión (Swell): aumento del valor eficaz (rms) de tensión a un valor comprendido entre el 110 % y 180 % de la tensión nominal a frecuencia nominal, con una duración desde medio ciclo (8,33 ms) hasta un minuto.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Planta de generación. Central eléctrica: Conjunto de obras civiles y equipamiento eléctrico y mecánico utilizado para la producción de energía eléctrica.
 Potencia de falla: Es la potencia dejada de generar en una unidad de generación debido a situaciones ajenas a su operación.
 Punto de conexión: Lugar topológico donde se enlaza la red del usuario con el Sistema Eléctrico Nacional.
 Punto de entrega o Punto de acople común: El punto de entrega es el sistema de barras de la subestación donde se conecta el generador o usuario con la red de transmisión nacional o el punto en la red de distribución en donde se conecta el generador. En el caso de generadores de pequeña escala para autoconsumo el punto de entrega es el definido en la normativa técnica aplicable a acometidas.
 Punto de Medición: El punto de medición es nodo de la red de transmisión o distribución donde instala el sistema de medición.
 Racionamiento eléctrico: Condiciones de explotación del sistema eléctrico nacional, en las cuales, no es posible satisfacer, momento a momento y en forma total, la demanda de potencia y energía, debido a un déficit en la potencia, la energía o a condiciones de seguridad operativa del SEN. El racionamiento eléctrico implica la interrupción programada y ordenada del suministro eléctrico a los abonados y usuarios.
-Red de distribución eléctrica: Parte de la red eléctrica conformada por: barras a media tensión de las subestaciones reductoras, subestaciones de maniobra o patios de interruptores, conductores de media y baja tensión, y los equipos de transformación, control, monitoreo y protección asociados, para la utilización final de la energía.
+Red de distribución: es la etapa de la red eléctrica conformada por: las barras a media tensión de las subestaciones reductoras (alta/media tensión), subestaciones de maniobra o patios de interruptores, conductores a media y baja tensión, y los equipos de transformación, control, monitoreo, seccionamiento y protección asociados, para la utilización final de la energía.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Red de transmisión eléctrica: Parte de la red eléctrica conformada por: las líneas de transmisión, subestaciones elevadoras (media/alta tensión), subestaciones reductoras (barras de alta y media tensión), subestaciones de maniobra o patios de interruptores y los equipos de transformación, control, monitoreo y protección asociados, que cumple con la función de transmisión y está delimitada por los puntos de conexión de los agentes que inyectan o retiran energía.
 Red de transmisión nacional: Toda la infraestructura de transmisión instalada y operada en el territorio nacional.
-Red eléctrica: Conjunto de dispositivos, en un sistema de potencia, mediante el cual se transporta y distribuye la energía eléctrica a los abonados o usuarios, con las características técnicas apropiadas para su utilización.
+Red eléctrica: conjunto de elementos, en un sistema de potencia, mediante el cual se transporta la energía eléctrica desde los centros de producción y se distribuye a los abonados y usuarios.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
 Red nacional de distribución eléctrica: La conformada por las líneas de distribución eléctrica de las diferentes empresas distribuidoras de energía eléctrica.
 Regulación primaria de frecuencia: Variación automática de la potencia entregada por la unidad de generación como respuesta a cambios de frecuencia en el sistema al ocurrir desbalances carga generación.
 Regulación secundaria de frecuencia: Es el ajuste fino que ejecuta el Control Automático de Generación (AGC) de la potencia del generador para restablecer el equilibro carga-generación y los intercambios de potencia entre áreas de control.
@@ -94,4 +112,5 @@ Subestación: Parte de un sistema eléctrico de potencia, donde pueden converger
 Transmisión: Transporte de energía a través de redes eléctricas de alta tensión.
 Usuario en alta tensión: Persona física o jurídica conectado al Sistema Eléctrico Nacional en alta tensión y que es consumidor final de energía en ese punto de conexión.
 Usuario: Persona física o jurídica que hace uso del Sistema Eléctrico Nacional.
-Valor eficaz (Rms): Raíz cuadrada del valor medio de los cuadrados de los valores instantáneos alcanzados durante un ciclo completo.
+Valor eficaz (rms): raíz cuadrada del valor medio de la suma de los cuadrados de los valores instantáneos alcanzados durante un ciclo completo de la onda de tensión o de corriente.
+(Así reformada la definición anterior mediante sesión ordinaria N° 24-2015 del 4 de junio de 2015)
