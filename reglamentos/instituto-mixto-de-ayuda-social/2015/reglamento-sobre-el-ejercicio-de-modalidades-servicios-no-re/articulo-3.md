@@ -1,0 +1,7 @@
+Capítulo II. De las modalidades y responsabilidades de los actores.
+Artículo 3. Modalidades de servicio. Sin perjuicio de que el Consejo Directivo autorice otros tipos de modalidades no remuneradas de servicio, a las que serían aplicables estas regulaciones en lo que fuere procedente, se autorizan las siguientes modalidades:
+a. Práctica supervisada (PS): Corresponde a la práctica de conocimientos adquiridos durante el proceso de estudio, que deben realizar las y los
+estudiantes o personas egresadas de colegios técnicos o instituciones de educación superior parauniversitarias, con motivo de obtener su grado académico de técnico medio o diplomado.
+b. Trabajo comunal universitario (TCU): Corresponde a una cantidad determinada de horas de servicio que debe brindar a una persona estudiante con el objetivo de hacer un aporte a la sociedad sin ningún costo monetario, según su especialidad de estudio. Y es un requisito para optar a un grado profesional de bachillerato o de licenciatura, según corresponda al plan de estudios de la institución educativa.
+c. Práctica profesional (PP): Es un ejercicio guiado y supervisado donde la persona estudiante de nivel universitario, debe poner en práctica los conocimientos adquiridos en el proceso formativo, y la aprobación es requisito para optar por un grado académico.
+d. Trabajos Finales de Investigación Aplicada o Trabajos Finales de Graduación: Documento escrito tesis de graduación, memoria de seminario, informe de proyecto.

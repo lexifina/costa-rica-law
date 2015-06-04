@@ -1,0 +1,1 @@
+Artículo 12. Solicitud múltiple. Las Instituciones educativas que tengan interés en que sus estudiantes o personas egresadas realicen modalidades no remuneradas de servicio en el IMAS, podrán hacer la solicitud en nombre de varios estudiantes en un mismo trámite ante Desarrollo Humano, cumpliendo con los requisitos anteriormente descritos.

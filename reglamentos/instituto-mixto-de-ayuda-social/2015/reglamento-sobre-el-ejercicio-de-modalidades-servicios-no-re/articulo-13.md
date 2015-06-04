@@ -1,0 +1,1 @@
+Artículo 13. Utilización de formularios. Desarrollo Humano, con el fin de facilitar el proceso de solicitud, podrá establecer el uso de formularios en forma digital que contemplen el cumplimiento de uno o varios de los requisitos del trámite y presentarlos para su aprobación a la Gerencia General y publicarlos en la página web institucional para su debido conocimiento.
