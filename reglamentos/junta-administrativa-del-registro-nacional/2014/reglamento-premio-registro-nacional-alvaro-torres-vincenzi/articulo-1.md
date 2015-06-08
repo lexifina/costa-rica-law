@@ -1,0 +1,14 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+REGLAMENTO PREMIO REGISTRO NACIONAL
+ÁLVARO TORRES VINCENZI
+Con fundamento en el artículo 3 inciso e) de la Ley de Creación del Registro Nacional, Nº 5695 de 28 de mayo de 1975 y sus reformas.
+Considerando:
+I.—Que la Junta Administrativa del Registro Nacional, Mediante Acuerdo J-848, de la Sesión 50-99, en su sesión de 14 de octubre de 1999, creó el Reglamento Premio Álvaro Torres Vincenzi, como un reconocimiento a personas físicas y/o jurídicas, organismos nacionales o internacionales, al funcionario (a) del Registro Nacional, Abogado (a), Notario (a) que se destaque por su aporte y colaboración al Registro Nacional.
+II.—Que mediante Acuerdo Firme Nº J-067 de la Sesión Ordinaria Nº 07-2008, celebrada el día 14 de febrero de 2008, celebrado por la Junta Administrativa del Registro Nacional, se reformó integralmente el Reglamento de marras.
+III.—Que los méritos y valores que sirvieron para establecer este premio, para reconocer y emular la forma y enseñanza de don Álvaro, con fiel apego a los principios éticos y morales, de toda una vida dedicada a fortalecer y engrandecer el Registro Nacional, siguen presentes hoy, máxime en estos momentos en que nuestra sociedad se ve afectada precisamente por el irrespeto a los valores fundamentales que rigen la convivencia humana.
+IV.—Que por esta razón, la Junta Administrativa del Registro Nacional, desea retomar este premio y darle la importancia que le corresponde, para que su otorgamiento reconozca y premie a personas físicas y/o jurídicas, organismos nacionales o internacionales, al funcionario (a) del Registro Nacional, Abogado (a), Notario (a), Topógrafo (a), que aporten a la labor registral, con la perspectiva de don Álvaro.
+V.—Que en Sesión Ordinaria Nº 46-2014, celebrada el 20 de noviembre de 2014, la Junta Administrativa del Registro Nacional, mediante Acuerdo Firme Nº J-495, en forma unánime y firme aprobó la reforma integral al “Reglamento Premio Registro Nacional Álvaro Torres Vincenzi”. Por tanto,
+Refórmese de manera integral el Reglamento del Premio Álvaro Torres Vincenzi, aprobado por la Junta Administrativa del Registro Nacional, mediante Acuerdo Firme Nº J-067 de la Sesión Ordinaria Nº 07-2008, celebrada el día 14 de febrero de 2008, el cual en lo sucesivo se leerá así:
+REGLAMENTO PREMIO REGISTRO NACIONAL
+ALVARO TORRES VINCENZI
+Artículo 1º—Créase el Premio Registro Nacional Álvaro Torres Vincenzi para reconocer, estimular y exaltar la trayectoria de las personas físicas y/o jurídicas, organismos nacionales o internacionales, al funcionario (a) del Registro Nacional, Abogado (a), Notario (a), Topógrafo (a), que se hayan distinguido por sus aportes y contribuciones en defensa y realce de la labor registral, por sus cualidades éticas en sus actuaciones y con ello, haber enriquecido y fortalecido los objetivos, la misión, la visión, los planes y proyectos del Registro Nacional.

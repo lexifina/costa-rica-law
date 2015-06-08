@@ -1,0 +1,2 @@
+Artículo 6º—La decisión que tome el jurado para conceder el o los premios, será por mayoría calificada que deberá contener el voto favorable de por lo menos cuatro de sus miembros. Será comunicada a la Junta Administrativa del Registro Nacional como recomendación para que ésta disponga en definitiva la asignación del premio o premios.
+El jurado podrá declarar desierto la designación del premio en todas o en algunas de sus categorías, si no existieren, a su juicio, personas idóneas para su otorgamiento.

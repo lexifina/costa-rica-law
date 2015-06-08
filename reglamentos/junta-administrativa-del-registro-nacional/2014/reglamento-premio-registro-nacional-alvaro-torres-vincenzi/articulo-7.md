@@ -1,0 +1,1 @@
+Artículo 7º—En los meses de enero y febrero del año correspondiente a su otorgamiento, la Junta Administrativa del Registro Nacional, hará la publicidad para promover la participación y proposición de interesados. No es permitida la auto postulación.

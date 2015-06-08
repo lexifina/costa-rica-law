@@ -1,0 +1,2 @@
+Artículo 9º—En la primera sesión del mes de julio, del año correspondiente al otorgamiento del premio, la Junta Administrativa del Registro Nacional designará el jurado y le entregará los sobres cerrados recibidos. Los miembros del jurado no podrán ser postulados para recibir el premio. Esta prohibición se extiende a sus parientes hasta el segundo grado de consanguinidad o afinidad.
+Si en el momento de la apertura de los sobres apareciere como candidato un miembro del jurado o pariente, deberá ser sustituido a la brevedad.

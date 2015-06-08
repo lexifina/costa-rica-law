@@ -1,0 +1,1 @@
+Artículo 12.—La participación en el concurso implica la aceptación integral y sin reservas de todas las condiciones contenidas en el presente reglamento. Su incumplimiento implicará la exclusión del concurso.
