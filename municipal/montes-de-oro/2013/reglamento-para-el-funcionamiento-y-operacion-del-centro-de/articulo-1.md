@@ -16,7 +16,11 @@ Operación y funcionamiento de los CECUDI
 Artículo 1°—Población beneficiada: Serán admitidos niños y niñas en la cantidad que se determine técnicamente de conformidad con las Normas de Habilitación de los Centros de Atención Integral, se atenderá de manera prioritaria a la población infantil que provenga de comunidades del Cantón de Montes de Oro.
 Las y los beneficiarios del servicio serán seleccionados de acuerdo a los criterios técnicos que emplea el Instituto Mixto de Ayuda Social (IMAS).
 Para efectos de la selección de las personas menores de edad, se tomarán en consideración de manera prioritaria, los siguientes grupos de población:
-a) Niños y niñas de familias que se ubican en los niveles uno, dos y tres de pobreza, en condiciones de riesgo o vulnerabilidad, según los parámetros del Instituto Mixto de Ayuda Social. De esta forma se determinará al menos el 80% de la totalidad de la matrícula del Centro.
-b) Niños y niñas de familias en grupo 4 que asuman el porcentaje de diferencia entre el subsidio y el costo de atención,
-c) Niños y niñas de familias que puedan costear, por sus propios medios, la totalidad del costo del servicio.
+(Así reformado el párrafo anterior en sesión N° 18 del 4 de mayo de 2015, y definitivamente aprobado en sesión N° 23 del 8 de junio de 2015)
+a) Un 75% al menos, de niños y niñas, provenientes de familias que se ubican en los niveles uno y dos de pobreza, en condiciones de riesgo o vulnerabilidad, según los parámetros del Instituto Mixto de Ayuda Social.
+(Así reformado el inciso anterior en sesión N° 18 del 4 de mayo de 2015, y definitivamente aprobado en sesión N° 23 del 8 de junio de 2015)
+b) Del porcentaje restante de la capacidad total del CECUDI, que no se completó con la matrícula de niños y niñas provenientes de familias de la categoría uno y dos, se completará con un sesenta por ciento al menos, de niños y niñas de familias en las categorías 3 y 4, que asuman de manera parcial el costo de la atención.
+(Así reformado el inciso anterior en sesión N° 18 del 4 de mayo de 2015, y definitivamente aprobado en sesión N° 23 del 8 de junio de 2015)
+c) Del porcentaje restante de la capacidad total de la matrícula del CECUDI, que no se completó con niños y niñas provenientes de las familias de las categorías tres y cuatro, se completará con un 40% de niños y niñas de familias que puedan costear, por sus propios medios, la totalidad del costo del servicio.
+(Así reformado el inciso anterior en sesión N° 18 del 4 de mayo de 2015, y definitivamente aprobado en sesión N° 23 del 8 de junio de 2015)
 Los montos de referencia del costo del servicio, serán los establecidos por la Secretaria Técnica de la Red Nacional de Cuido y Desarrollo Infantil del IMAS.
