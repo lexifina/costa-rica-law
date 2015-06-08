@@ -1,0 +1,1 @@
+Artículo 14.—La Dirección de Tecnologías de Información remite al Departamento de Presupuesto de acuerdo al cronograma establecido, el presupuesto sobre compra y arrendamiento de equipo de cómputo, programas, licencias, repuestos, mantenimiento y reparación.
