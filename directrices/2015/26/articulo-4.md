@@ -1,0 +1,1 @@
+Artículo 4°—Las juntas directivas de los bancos objeto de esta directriz, deberán tomar los acuerdos respectivos para implementar lo establecido en los artículos anteriores en el plazo de dos meses, a partir de la publicación de la presente Directriz.

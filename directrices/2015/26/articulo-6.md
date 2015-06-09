@@ -1,0 +1,1 @@
+Artículo 6°—Deróguese la Directriz N° 25 del 14 de octubre de 1997, denominada “Aval a la iniciativa de los Bancos Comerciales del Estado para establecer nuevas políticas salariales en pro de sus funcionarios”.
