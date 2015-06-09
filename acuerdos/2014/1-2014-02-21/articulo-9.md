@@ -1,0 +1,4 @@
+Compromiso con la Competencia.
+Art. 9.- La máxima autoridad, los demás niveles gerenciales y de jefatura deben realizar las acciones que conduzcan a que todo el personal sea competente, es decir, que posea habilidades, actitudes y conocimientos que les permita llevar a cabo los deberes asignados y entender la importancia de establecer y llevar a la práctica adecuados controles internos.
+Comentario:
+Cada Órgano e Institución del SICA, debe identificar el conocimiento y las habilidades que son necesarias para todas y cada una las funciones que se deben llevar a cabo para el mejor cumplimiento de su competencia. Ello es esencial, no solo para contratar el personal que posea el nivel de preparación y experiencia que se ajuste a los requisitos del puesto, sino también proporcionarle la capacitación y adiestramiento necesario.

@@ -1,0 +1,7 @@
+CAPÍTULO V
+NORMAS RELATIVAS AL SEGUIMIENTO
+Seguimiento sobre la Marcha.
+Art. 45.- La máxima autoridad, los niveles gerenciales y de jefatura deben vigilar que los servidores realicen las actividades de control durante la ejecución de las operaciones, con el propósito de evaluar la vigencia y calidad de los controles establecidos y emprender las modificaciones que sean pertinentes para mantener su efectividad.
+Comentario:
+El control interno es un proceso integrado a todos los procesos organizacionales, se expresa en acciones de control previo, concurrente o concomitante y de manera posterior, llevado a la práctica por todos los funcionarios y subalternos durante la ejecución de sus actividades y responsabilidades; y por lo tanto, es preciso analizar cuál es su efecto sobre las diversas fases de los procesos respectivos, tomando en consideración los criterios de viabilidad y conveniencia de tales controles, así como la posibilidad de mejorar y perfeccionar el sistema de control interno.
+El seguimiento o monitoreo sobre la marcha, que se conoce como control “ongoing”, es una manera de autocontrol que efectúan sobre sus propias labores los funcionarios encargados de tareas específicas. Igualmente, los niveles gerenciales, deben poner en práctica los mecanismos más apropiados para verificar de forma periódica y cuando se estime conveniente, evaluaciones sobre las medidas de control llevadas a la practica en tiempo real, es decir, sobre la marcha.

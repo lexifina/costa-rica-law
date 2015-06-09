@@ -1,0 +1,5 @@
+Responsables del Control Interno.
+Art. 5.- La responsabilidad principal por el diseño, implantación, evaluación y perfeccionamiento del control interno corresponde a la máxima autoridad de cada Órgano e Institución del SICA, los niveles gerenciales y demás jefaturas en el área de su competencia institucional. Corresponde a los demás empleados realizar las acciones necesarias para garantizar su efectivo cumplimiento.
+Comentario:
+La máxima autoridad tiene la mayor responsabilidad por el control interno de la Institución, para tal efecto, establece los criterios fundamentales de control y aprueba los mecanismos y medidas correspondientes para su puesta en práctica; los demás niveles gerenciales y de jefatura son responsables por el control interno que funciona dentro del ámbito de acción y de ejercer una supervisión directa sobre los miembros de su área para guiarlos en la observancia de los controles aplicables. El resto de los empleados deben cumplir de la mejor manera posible, con las responsabilidades que se les hayan asignado.
+La máxima autoridad generalmente está definida en el estatuto de creación de cada Órgano e Institución del SICA.

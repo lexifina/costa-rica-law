@@ -1,0 +1,6 @@
+Estructura Organizacional.
+Art. 11.- La máxima autoridad, los demás niveles gerenciales y de jefatura, deben definir una estructura organizativa que apoye efectivamente los objetivos organizacionales, que facilite la realización de los procesos, las labores y la aplicación de los controles pertinentes para el logro de los objetivos institucionales.
+La estructura organizativa debe proveer asignación de autoridad y responsabilidad, delegación de autoridad y responsabilidad, y líneas apropiadas de rendición de cuentas.
+Comentario:
+La estructura organizacional define las áreas claves de la entidad respecto de la autoridad y responsabilidad. La delegación de autoridad y la responsabilidad se relacionan con la manera en la que la autoridad y la responsabilidad son delegadas a través de la entidad. Puede no haber asignación de autoridad o una responsabilidad que no sea reportada. Por tal motivo, deben ser definidas líneas apropiadas de rendición de cuentas. En circunstancias excepcionales, otras líneas de rendición de cuentas tienen que ser posibles además de las normales, como en aquellos casos en que la gerencia está involucrada en irregularidades.
+El organigrama, que es la representación formal de la estructura de la Institución, debe estar actualizado y autorizado por la autoridad que corresponda.

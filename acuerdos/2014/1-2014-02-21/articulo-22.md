@@ -1,0 +1,5 @@
+Análisis de Riesgos Identificados.
+Art. 22.- Los factores de riesgo que han sido identificados deben ser analizados en cuanto a su impacto o significado y a la probabilidad de ocurrencia, para determinar su importancia.
+Comentario:
+Los métodos utilizados para determinar la importancia relativa de los riesgos pueden ser diversos, pero al menos se debe incluir una estimación de su probabilidad de ocurrencia y del costo de la pérdida derivada, con el objeto de priorizar, ya que todos los factores de riesgo no pueden ser administrados, por lo que siempre va a existir un riesgo residual. Por tanto, es conveniente establecer, que dada la limitación de recursos de una institución, es preciso definir cuáles riesgos merecen una atención inmediata y cuáles pueden recibir un menor esfuerzo.
+Los riesgos que se estimen como de alta probabilidad de ocurrencia y alto impacto ameritarán la atención preferente. Por el contrario, riesgos de baja probabilidad de ocurrencia y bajo impacto, no justificarán su atención.

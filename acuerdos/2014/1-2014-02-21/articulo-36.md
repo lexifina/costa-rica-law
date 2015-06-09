@@ -1,0 +1,5 @@
+Rotación del Personal.
+Art. 36.- Deberá considerarse la conveniencia de rotar sistemáticamente las labores entre quienes realizan tareas claves o funciones afines, siempre y cuando la naturaleza de tales labores permita efectuar tal medida sin afectar el normal desempeño de la función o servicio.
+Comentario:
+La rotación de personal, se orienta a que los funcionarios no tengan permanentemente el control de partes específicas de una transacción ni de los recursos utilizados en ellas, para evitar situaciones irregulares en relación con tales transacciones y recursos.
+Adicionalmente la rotación de personal constituye un mecanismo de capacitación, pues al desarrollar actividades diferentes, los servidores entran en contacto con las diversas etapas de los procesos organizacionales, y así llegan a comprender mejor su participación en el logro de los objetivos; así mismo, suministra parámetros de eficiencia mediante la comparación del desempeño de empleados distintos en la misma actividad, lo que permite descubrir más claramente las habilidades particulares de cada uno y asignarles las tareas que mejor desempeñan.

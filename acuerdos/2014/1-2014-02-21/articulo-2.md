@@ -1,0 +1,4 @@
+Definición de Control Interno.
+Art. 2.- Se entiende por control interno el conjunto de procesos continuos e interrelacionados realizados por la máxima autoridad o titular, funcionarios y empleados de los Órganos e Instituciones del SICA, diseñados para prevenir riesgos y proporcionar seguridad razonable en la consecución de sus objetivos.
+Comentario:
+El control interno es un proceso integral, dinámico, es decir que puede ser actualizado y adaptarse constantemente para adecuarse a los cambios que enfrenta la institución, estos cambios siempre de acuerdo a la naturaleza y fines de la gestión institucional; el control interno es ejecutado por la gerencia y el personal, y está diseñado para prevenir los riesgos y para dar una seguridad razonable de que en la consecución de la misión de la entidad, se alcanzarán los objetivos planteados. La gerencia y el personal de todos los niveles deben estar involucrados en este proceso.

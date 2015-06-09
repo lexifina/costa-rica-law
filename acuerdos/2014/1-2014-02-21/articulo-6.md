@@ -1,0 +1,5 @@
+Seguridad razonable.
+Art. 6.- El control interno proporciona una seguridad razonable para el cumplimiento de los objetivos institucionales.
+Comentario:
+El control interno se desarrolla con la ejecución de una serie de acciones y actividades que ocurren como parte de las operaciones de las instituciones y que son llevadas a cabo por personas, y por tanto, está sujeto a la probabilidad de ser mal entendido o mal ejecutado, por el desconocimiento o actitudes como el descuido y la apatía, estados como la fatiga o acciones como la colusión; así como la imposibilidad práctica de establecer sistemas de control interno que cubran todos los posibles riesgos que enfrente la organización. Estas situaciones provocan que el control interno solo pueda garantizar una seguridad razonable, y nunca una seguridad absoluta, acerca de los objetivos institucionales.
+Lo anterior debe ser advertido por el responsable del control interno, a quién corresponde hacer los mejores esfuerzos para superar tales limitaciones.

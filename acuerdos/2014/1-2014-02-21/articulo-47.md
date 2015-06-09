@@ -1,0 +1,4 @@
+Evaluaciones Separadas.
+Art. 47.- La Unidad de Auditoría Interna, el Consejo Fiscalizador Regional del Sistema de la Integración Centroamericana y las Firmas Privadas de Auditoría, en los casos que lo ameriten, evaluarán periódicamente la efectividad del control interno institucional.
+Comentario:
+Además del seguimiento sobre la marcha, de las autoevaluaciones descritas en las normas anteriores de este Capítulo, existe un tercer elemento que contribuye a valorar la calidad del desempeño del control interno en el tiempo, estas son las evaluaciones que pueden realizar la Unidad de Auditoría Interna, el CFR-SICA y las Firmas Privadas de Auditoría, en los casos que lo ameriten, en cumplimiento a sus planes de trabajo o por requerimiento institucional, realizarán esta labor de evaluación independiente o separada de las operaciones del control interno, siendo ésta una función muy importante para agregar calidad y eficacia al control interno institucional.

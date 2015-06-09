@@ -1,0 +1,7 @@
+Políticas y Procedimientos sobre Diseño y Uso de Documentos y Registros.
+Art. 33.- Las políticas y procedimientos para el diseño y uso de documentos y registros, deben ser establecidos por escrito. Los documentos y formularios establecidos deben ser útiles para la anotación adecuada de las transacciones y hechos significativos que se realicen en la Institución y deben ser administrados apropiadamente.
+Comentario:
+Los documentos, formularios y registros deben ser diseñados y utilizados siguiendo los procedimientos establecidos en los distintos procesos del control interno; los formularios deben ser uniformes y pre numerados.
+La documentación en general sirve para comprobar que los procesos, transacciones y decisiones generadas en la institución, están acorde a los objetivos institucionales, que la información registrada es útil para el control de las operaciones y sirve para la fiscalización de terceros.
+Las transacciones y actividades que afectan la toma de decisiones y acciones sobre los procesos y operaciones de la Institución, deben ser registradas oportunamente y clasificadas de manera tal que faciliten su comprensión y análisis.
+Los sistemas informáticos deberán considerar controles para asegurar la continuidad y secuencia respecto de los formularios virtuales que se generen en la institución, con ese propósito se debe implantar los controles de acceso a los sistemas, considerando niveles, claves y otras medidas que resulten más apropiados.

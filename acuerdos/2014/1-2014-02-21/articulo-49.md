@@ -1,0 +1,6 @@
+Rendición de Cuentas.
+Art. 49.- La máxima autoridad, los niveles gerenciales y de jefatura de los Órganos e Instituciones, están obligados a rendir cuentas de su gestión, por el uso de los recursos regionales asignados, el cumplimiento de los objetivos institucionales y el logro de los resultados esperados, para lo que se apoyarán en el control interno.
+Comentario:
+La rendición de cuentas es el deber y la obligación de la máxima autoridad, los niveles gerenciales y de jefatura, de explicar y responder por las decisiones que han tomado y las consecuencias que de éstas se generan sobre las actividades realizadas, por el uso y destino de los recursos.
+Toda institución cuenta con recursos financieros, materiales, tecnológicos y humanos y los responsables de su administración y consecución de los resultados esperados, periódicamente tienen el deber de rendir cuentas de su gestión, ante la instancia que corresponda de conformidad a las disposiciones legales establecidas para tal fin.
+El control interno debe ser el, que facilite el cumplimiento del compromiso por la rendición de cuentas, mediante un sistema de información gerencial que permita disponer de la información precisa, veraz y oportuna que demuestre fehacientemente los frutos de la gestión institucional.

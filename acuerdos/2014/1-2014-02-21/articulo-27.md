@@ -1,0 +1,6 @@
+Sistema Contable y Presupuestario.
+Art. 27.- La institución deberá establecer los sistemas contable y presupuestario, de conformidad con las disposiciones legales y técnicas o de conformidad a lo que defina el Sistema de la Integración Centroamericana, a través de la Secretaría General del SICA.
+Comentario:
+El Sistema Contable como el Presupuestario, son dos instrumentos de administración y control fundamentales para contar con un control interno exitoso. La contabilidad sistematiza y los registros generan información oportuna y confiable tanto de los recursos disponibles, como las obligaciones adquiridas por la institución; además produce conocimiento de las transacciones y estado de la situación financiera para la toma de decisiones.
+Un sistema presupuestario por su parte, aporta el plan financiero que sirve para ejecutar y evaluar los distintos planes, programas y proyectos de la institución, es uno de los instrumentos por medio del cual se puede medir el grado de eficiencia, efectividad y economía de los resultados de la gestión, en cuanto al logro de las metas y objetivos institucionales.
+Tanto el sistema contable como el presupuestario, se fundamenta en políticas y principios técnicos y legales, que deben ser cumplidos por cada institución.

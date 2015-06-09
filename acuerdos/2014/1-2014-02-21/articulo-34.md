@@ -1,0 +1,6 @@
+Políticas y Procedimientos sobre Conciliación Periódica de Registros.
+Art. 34.- Las políticas y procedimientos sobre conciliación periódica de registros, deben ser establecidos por escrito, con la finalidad de verificar la veracidad y exactitud de los mismos contra los documentos fuente respectivos, determinar errores u omisiones en el procesamiento de la información y adoptar las medidas necesarias para enmendarlas.
+Comentario:
+Cuando se habla de conciliación de registros, se refiere a todo tipo de registros y no solo a las cuentas bancarias. Las conciliaciones se dan tanto entre los registros y documentos fuente de las operaciones, como entre registros de las unidades organizativas y los registros generales de la Institución.
+El objetivo fundamental de la conciliación de registros, es verificar que la información sea exacta, en el caso del área financiera, los estados bancarios se comparan contra los registros de las cuentas corrientes para verificar la exactitud de los saldos y efectuar las correcciones que sean necesarias, incluyendo la posibilidad de solicitar ajustes o correcciones al banco.
+El período o frecuencia que debe considerarse para realizar las conciliaciones, dependerá de la naturaleza de los registros, el volumen de las operaciones y la importancia de los bienes o servicios que se registran y custodian.

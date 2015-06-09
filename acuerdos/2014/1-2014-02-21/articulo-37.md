@@ -1,0 +1,5 @@
+Garantías o Cauciones.
+Art. 37.- La máxima autoridad y demás niveles gerenciales, deberán establecer por medio de un instrumento normativo, las políticas y procedimientos, para que los funcionarios encargados de recaudar, custodiar o administrar fondos o valores propiedad de la institución, rindan de su peculio, las garantías o cauciones que procedan, a favor de la institución; considerando la razonabilidad y suficiencia que sirva de aseguramiento en el desempeño de las funciones encomendadas.
+Comentario:
+La rendición de una fianza por los administradores de bienes y valores, es una medida importante, aunque no la única, que debe implementarse para cumplir con la finalidad de garantizar el cumplimiento de las funciones asignadas, y que la institución en caso de pérdida o daño, pueda resarcir el costo de los bienes o valores patrimoniales.
+Generalmente en los países miembros del SICA, existen leyes o normas que regulan esta materia, que deben ser consultadas para establecer las medidas de control interno en la institución.
