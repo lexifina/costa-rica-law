@@ -1,0 +1,1 @@
+Artículo 4º—En relación con los funcionarios de la Dirección General de Aduanas, será el jerarca del Ministerio de Hacienda el que determine, con base en el artículo 14, párrafo 2° de la Ley General de Aduanas y mediante circular interna, si se les otorgará este permiso a los funcionarios de esa Dirección.
