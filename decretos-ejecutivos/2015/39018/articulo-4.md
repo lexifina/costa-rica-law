@@ -1,0 +1,1 @@
+Artículo 4º—Que la desarrolladora del Proyecto Eólico Campos Azules, deberá cumplir con los requerimientos de la Secretaría Técnica Nacional Ambiental, así como con las obligaciones contraídas en el Estudio de Impacto Ambiental, la Declaración Jurada de Compromisos Ambientales y las medidas ambientales de mitigación y compensación aprobadas.
