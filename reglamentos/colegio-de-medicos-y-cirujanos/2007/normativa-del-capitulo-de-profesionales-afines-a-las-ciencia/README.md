@@ -16,3 +16,4 @@ Normativa del Capítulo de Profesionales Afines a las Ciencias Médicas autoriza
 | 1 | 2008-03-11 | la propia norma |
 | 2 | 2011-02-23 | Reglamento 23 (2011-02-23) |
 | 3 | 2011-07-20 | Reglamento 0 (2011-07-20) |
+| 4 | 2015-06-10 | Reglamento 0 (2015-06-10) |
