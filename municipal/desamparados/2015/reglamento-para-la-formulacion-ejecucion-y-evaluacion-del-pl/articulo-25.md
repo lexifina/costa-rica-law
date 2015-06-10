@@ -1,0 +1,1 @@
+Artículo 25.—Una vez aprobado el PAO–Presupuesto por la CGR, la Unidad de Planificación y Presupuesto comunicará, a través del sistema que considere oportuno, los documentos del PAO a las unidades ejecutoras.

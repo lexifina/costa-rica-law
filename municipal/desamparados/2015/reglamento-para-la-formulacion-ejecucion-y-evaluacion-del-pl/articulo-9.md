@@ -1,0 +1,2 @@
+Artículo 9º—El proceso de formulación inicia en el mes de abril y finaliza en el mes de agosto del año que corresponda. Las actividades que se realicen en el proceso quedan sujetas al cronograma que define la CPP, el cual deberá ser cumplido por la Alcaldía y las Unidades Ejecutoras y de acuerdo con los lineamientos6 que se establezcan.
+6Los instrumentos a utilizar en la formulación del PAO, serán definidos dentro de los Lineamientos Generales que la CPP establezca.

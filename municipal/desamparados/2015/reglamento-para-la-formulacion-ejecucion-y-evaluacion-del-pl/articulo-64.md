@@ -1,0 +1,1 @@
+Artículo 64.—Los jerarcas y los coordinadores de las unidades ejecutoras deberán establecer los mecanismos para el adecuado cumplimiento de lo establecido en este reglamento. Lo anterior, sin perjuicio del control que debe ejercer la Unidad de Auditoría Interna y de las competencias de la CGR.

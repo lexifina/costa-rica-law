@@ -1,0 +1,1 @@
+Artículo 61.—La Unidad de Presupuesto aportará los datos referentes a la ejecución presupuestaria, que servirán como insumo a los indicadores de evaluación física y financiera, durante los primeros tres días de la tercera semana del mes de enero de cada año.

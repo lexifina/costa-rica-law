@@ -1,0 +1,1 @@
+Artículo 22.—La Unidad de Planificación y Presupuesto realizará los ajustes del PAO solicitados por el Concejo Municipal y posteriormente serán remitidos a la Comisión de Hacienda para su valoración y presentación al Concejo Municipal, a más tardar en la segunda semana de septiembre de cada año.

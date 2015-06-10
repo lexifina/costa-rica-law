@@ -1,0 +1,1 @@
+Artículo 8º—La Alcaldía definirá las prioridades anuales con base en el Plan de Desarrollo Cantonal y Estratégico y de Gobierno, las cuales deberá trasladar a la Comisión Plan Presupuesto, con el objetivo de que las unidades ejecutorias definan sus propuestas de PAO de manera vinculada con dichos instrumentos e interés del Gobierno Local.

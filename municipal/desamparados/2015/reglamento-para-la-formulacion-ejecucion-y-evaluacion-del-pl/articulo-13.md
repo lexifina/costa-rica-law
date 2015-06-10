@@ -1,0 +1,1 @@
+Artículo 13.—La CPP revisará, consultará, analizará y modificará, conjuntamente con las unidades ejecutoras, los proyectos señalados en el artículo 12 con el objetivo de verificar los requerimientos de información y formatos definidos para la formulación del PAO-Presupuesto Municipal.

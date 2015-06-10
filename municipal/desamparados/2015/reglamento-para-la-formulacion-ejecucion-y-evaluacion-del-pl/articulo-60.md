@@ -1,0 +1,1 @@
+Artículo 60.—La Unidad de Planificación deberá realizar la evaluación anual de las metas del PAO correspondiente a ese ciclo presupuestario, a más tardar la tercera semana del mes de enero del siguiente año económico, y trasladarla en formato digital y en documento impreso a la Unidad de Presupuesto para la conformación de la liquidación presupuestaria.

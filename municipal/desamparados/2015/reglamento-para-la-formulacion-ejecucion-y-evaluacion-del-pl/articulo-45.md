@@ -1,0 +1,1 @@
+Artículo 45.—El documento presupuestario debe incorporarse y remitirse en los Sistemas de Información sobre Planes y Presupuestos (SIPP), dentro de los 15 días posteriores a la aprobación del mismo por parte del Jerarca, así como también la información requerida por el ente contralor.

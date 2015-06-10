@@ -1,0 +1,1 @@
+Artículo 36.—Responsabilidades relacionadas con la aprobación presupuestaria interna. El Jerarca y la autoridad superior administrativa deberán, de manera oportuna, conocer, verificar y pronunciarse mediante acto razonado sobre el cumplimiento del bloque de legalidad aplicable a los presupuestos extraordinarios y modificaciones presupuestarias.

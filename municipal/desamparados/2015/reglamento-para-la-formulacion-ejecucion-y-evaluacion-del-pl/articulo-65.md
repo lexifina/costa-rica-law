@@ -1,0 +1,1 @@
+Artículo 65.—El incumplimiento de lo establecido en este reglamento dará lugar a la aplicación de las responsabilidades que establecen la Ley de la Administración Financiera de la República y Presupuestos Públicos, la Ley General de Control Interno, la Ley Contra la Corrupción y el Enriquecimiento Ilícito y demás disposiciones concordantes.

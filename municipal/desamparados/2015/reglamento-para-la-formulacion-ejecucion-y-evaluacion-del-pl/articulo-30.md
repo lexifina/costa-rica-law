@@ -1,0 +1,1 @@
+Artículo 30.—El Área Tributaria y la Unidad de Presupuesto realizarán evaluaciones al final del primer semestre de cada año, con el fin de hacer los ajustes pertinentes con respecto a la proyección de ingresos (aumento o disminución) y ejecución del gasto.

@@ -1,0 +1,1 @@
+Artículo 55.—La Unidad de Contabilidad deberá presentar las conciliaciones bancarias durante los primeros 10 días naturales posteriores al periodo de vacaciones de fin de año establecido por la Administración.

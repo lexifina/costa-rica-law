@@ -1,0 +1,1 @@
+Artículo 51.—Para el manejo de planillas y dietas: se establecerá el pago conforme cumplimiento a más tardar el último día hábil del mes de diciembre; para efectos de planilla y tratándose de casos especiales, se podrán confeccionar las mismas de manera proyectada al último día hábil.

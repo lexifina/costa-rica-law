@@ -1,0 +1,1 @@
+Artículo 15.—Para cada una de las metas, las Unidades Ejecutoras deberán establecer la estimación de los presupuestos requeridos considerando los grupos presupuestarios (servicios, materiales y suministros, bienes duraderos, transferencias corrientes). Para tal efecto, deberá ajustarse al clasificador del objeto del gasto.

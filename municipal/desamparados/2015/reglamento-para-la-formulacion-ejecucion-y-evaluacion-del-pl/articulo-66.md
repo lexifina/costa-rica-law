@@ -1,0 +1,1 @@
+Artículo 66.—Se derogan todas aquellas circulares, directrices y normas internas relativas al trámite y variaciones presupuestarias, anteriores y que contravengan este reglamento. Las fechas que se establecen para la formulación y evaluación del PAO son las definidas en el calendario fijado por la Comisión de Plan Presupuesto, las mismas son de carácter vinculante.

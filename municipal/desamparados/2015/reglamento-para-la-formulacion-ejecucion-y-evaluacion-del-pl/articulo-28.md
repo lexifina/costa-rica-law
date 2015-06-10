@@ -1,0 +1,1 @@
+Artículo 28.—Si al inicio del periodo presupuestario, el presupuesto ordinario de la institución está en trámite de aprobación por parte de la CGR, se tendrá como referencia el presupuesto institucional del año anterior, para autorizar los gastos necesarios para el funcionamiento normal de la institución.

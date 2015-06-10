@@ -1,0 +1,2 @@
+Artículo 54.—Para la liquidación de otros gastos: Cualquier otro gasto no contemplado en los artículos anteriores deberá ser gestionado y liquidado mediante el informe del caso a más tardar el penúltimo día hábil del ejercicio económico.
+Todos aquellos contratos de servicios que por su naturaleza respondan al principio de continuidad, se liquidarán para efectos de la gestión de egreso conforme con lo establecido en este artículo.

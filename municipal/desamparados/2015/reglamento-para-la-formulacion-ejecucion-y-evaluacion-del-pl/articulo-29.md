@@ -1,0 +1,1 @@
+Artículo 29.—No podrán reconocerse compromisos que no hayan sido adquiridos mediante la orden de compra o de servicios debidamente tramitada por la Unidad de Proveeduría. Los compromisos de presupuesto no cancelados al 31 de diciembre, se liquidarán en el primer semestre del año siguiente.

@@ -1,0 +1,1 @@
+Artículo 44.—Monto máximo a variar por modificación presupuestaria. El monto máximo que se redistribuya sumando todas las modificaciones presupuestarias, no podrá exceder el 25% del monto total del presupuesto inicial más los presupuestos extraordinarios.

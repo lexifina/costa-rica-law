@@ -1,0 +1,1 @@
+Artículo 35.—Justificación de los ajustes al presupuesto y su relación con el plan anual operativo. Las variaciones que se realicen al presupuesto, ya sea por presupuesto extraordinario o modificación, deberán estar debidamente justificadas e incorporar como parte de la información que las sustenta, los ajustes a los objetivos y metas del plan anual operativo.

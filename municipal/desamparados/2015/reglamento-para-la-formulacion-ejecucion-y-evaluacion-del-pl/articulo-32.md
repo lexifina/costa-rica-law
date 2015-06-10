@@ -1,0 +1,1 @@
+Artículo 32.—Las variaciones que se realicen al presupuesto deben estar formuladas atendiendo el nivel de detalle establecido en los clasificadores de ingresos y por objeto del gasto del sector público municipal vigentes y de conformidad con la normativa emitida por la CGR.

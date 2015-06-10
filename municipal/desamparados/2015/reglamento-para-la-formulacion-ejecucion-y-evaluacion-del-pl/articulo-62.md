@@ -1,0 +1,1 @@
+Artículo 62.—La Unidad de Planificación introducirá la información de la ejecución de las metas al SIPP, según las fases establecidas por el entre contralor; haciendo con ello de conocimiento público dicha ejecución, según la normativa dispuesta.

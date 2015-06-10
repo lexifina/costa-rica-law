@@ -1,0 +1,1 @@
+Artículo 57.—Es responsabilidad de los coordinadores de las Áreas y Unidades Administrativas brindar información clara, fidedigna y completa sobre la ejecución de las diferentes metas planteadas en el PAO. Asimismo, utilizar las herramientas de evaluación respectivas y entregar de manera oportuna el informe.
