@@ -1,0 +1,1 @@
+Artículo 3º—Por la naturaleza jurídico legal de los casos previstos en el párrafo 4° del inciso c-1) del artículo 23 de la Ley del Impuesto sobre la Renta, no se requiere el cumplimiento de los anteriores requisitos, sino únicamente su verificación con el aporte de los documentos o registros que respaldan el pago de las rentas.
