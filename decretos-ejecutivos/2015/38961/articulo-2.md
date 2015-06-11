@@ -1,0 +1,1 @@
+Artículo 2. Derogatorias. Deróguese la Guía de Trámites de la Dirección General del Archivo Nacional, publicada en La Gaceta N°195, del 10 de octubre del 2002. Deróguese la Actualización de la Guía de Trámites del Servicio Valoración Documental, publicada en La Gaceta N°179, del 18 de setiembre de 2013.
