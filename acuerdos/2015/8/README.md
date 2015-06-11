@@ -1,0 +1,16 @@
+# Acuerdo 8
+
+Sobre el ejercicio de la función notarial y sus límites
+
+- Tipo: Acuerdo
+- Número: 8
+- Fecha: 2015-02-12
+- Ente emisor: Dirección Nacional de Notariado
+- Publicación: La Gaceta N° 112 del 2015-06-11
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=79807&param2=101063&param3=1 (ficha 79807)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2015-06-11 | la propia norma |
