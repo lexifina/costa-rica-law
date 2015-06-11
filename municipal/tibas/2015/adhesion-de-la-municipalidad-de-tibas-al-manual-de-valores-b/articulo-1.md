@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE TIBÁS
+EL despacho de la alcaldía informa: la Municipalidad de Tibás con fundamento en los artículos 10, 10bis, 12 y 15 de la Ley del Impuesto de Bienes Inmuebles (Ley 7509 y sus reformas), se adhiere al Reglamento del Ministerio de Hacienda Manual de Valores Base Unitaria por Tipología Constructiva del Órgano de Normalización Técnica 215, publicado en el Alcance Digital N° 19 a La Gaceta N° 57 del 23 de marzo del 2015. Para la aplicación del proceso de valorización Administrativa y declaración de Bienes Inmuebles.
