@@ -1,0 +1,1 @@
+Artículo 4º—En materia de protección de los datos personales que contengan los archivos de referencias se acatará lo dispuesto en la Ley N° 8968 de Protección de la persona frente al tratamiento de sus datos personales, de 7 de julio de 2011.

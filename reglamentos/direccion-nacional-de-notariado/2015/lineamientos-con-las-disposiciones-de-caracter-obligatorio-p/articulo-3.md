@@ -1,0 +1,1 @@
+Artículo 3º—Los documentos digitalizados tendrán el reconocimiento de equivalencia digital, siempre que cumplan con los requisitos indicados en la Ley, Ley de Certificados, Firmas Digitales y Documentos Electrónicos N° 8454 de 30 de agosto de 2005 y su Reglamento del 20 de marzo de 2006.

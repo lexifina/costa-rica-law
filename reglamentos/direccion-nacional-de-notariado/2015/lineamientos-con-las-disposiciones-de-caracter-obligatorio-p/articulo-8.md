@@ -1,0 +1,1 @@
+Artículo 8º—A cada documento por digitalizar se le asignará un número consecutivo que en el ámbito electrónico será el equivalente al número de folio, que garantizará su consecutividad en forma permanente.

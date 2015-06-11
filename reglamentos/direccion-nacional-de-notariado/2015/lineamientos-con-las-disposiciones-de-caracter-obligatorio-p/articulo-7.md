@@ -1,0 +1,1 @@
+Artículo 7º—Para digitalizar los expedientes es requisito previo su foliación conforme a lo indicado en el artículo 7 de los Lineamientos para la organización de los archivos de referencias en soporte papel, publicados en La Gaceta Nº del 2014.
