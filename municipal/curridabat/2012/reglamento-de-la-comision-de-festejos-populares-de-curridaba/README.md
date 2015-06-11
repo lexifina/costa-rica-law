@@ -14,3 +14,4 @@ Reglamento de la Comisión de Festejos Populares de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-31 | la propia norma |
+| 2 | 2015-06-11 | Reglamento municipal 267 (2015-06-11) |

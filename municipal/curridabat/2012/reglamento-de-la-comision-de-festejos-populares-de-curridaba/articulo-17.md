@@ -1,3 +1,2 @@
-CAPÍTULO IV
-De los gastos
-Artículo 17.—Las erogaciones en que incurra la Comisión deberán corresponder, guardar relación y ser indispensables para el desarrollo de las actividades propias para las que fue nombrada la Comisión.
+Artículo 17.—Todas las erogaciones que requieran emisión de cheque serán autorizadas de previo por la Comisión y constar en actas. Asimismo, dichos egresos requerirán necesariamente de la emisión de una orden de pago.
+(Corrida su numeración en sesión ordinaria N° 267-2015 del 11 de junio del 2015, que lo traspaso del antiguo artículo 19 al 17. Lo anterior ya que en dicha sesión se ordena derogar el numeral 15 y 16 original y modificar su numeración)

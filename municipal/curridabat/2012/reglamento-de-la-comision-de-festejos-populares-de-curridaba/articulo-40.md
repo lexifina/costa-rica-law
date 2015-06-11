@@ -1,3 +1,3 @@
 CAPÍTULO XIII
 Disposiciones finales
-Artículo 40.—El presente Reglamento rige a partir de su publicación definitiva en el Diario Oficial La Gaceta.
+Artículo 40.—(El texto del presente artículo puede ser consultado en el artículo 35, ya que mediante sesión ordinaria N° 267-2015 del 11 de junio del 2015, se ordena derogar el numeral 15, 16 y 31 original y modificar su numeración)

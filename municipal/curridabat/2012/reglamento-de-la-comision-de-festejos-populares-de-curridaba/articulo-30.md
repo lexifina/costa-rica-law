@@ -1,5 +1,2 @@
-CAPÍTULO IX
-Del sistema contable
-Artículo 30.—La Comisión contará con los siguientes registros contables, que deberán ser legalizados por la Auditoría Municipal.
-a) Un mayor auxiliar de ingresos que contenga: fecha, nombre de la persona o entidad de la cual proviene el ingreso, número y fecha del comprobante de ingreso y del depósito bancario, y un detalle de las cuentas de ingresos.
-b) Un mayor auxiliar de egresos que contenga un detalle de cheque girado y de las cuentas de gastos que se afectan.
+Artículo 30.-Todas las actuaciones y los documentos relativos a los diferentes procedimientos de contratación empleados por la Comisión, desde los primeros acuerdos hasta el último acto de liquidación, se conservarán en expedientes individuales, debidamente foliados y ordenados.
+(Corrida su numeración en sesión ordinaria N° 267-2015 del 11 de junio del 2015, que lo traspaso del antiguo artículo 33 al 30. Lo anterior ya que en dicha sesión se ordena derogar el numeral 15, 16 y 31 original y modificar su numeración)

@@ -1,1 +1,2 @@
-Artículo 24.—La cuenta corriente bancaria deberá conciliarse mensualmente conforme se reciban los estados bancarios para cuyo efecto se contará con la asistencia de la contabilidad municipal.
+Artículo 24.—El monto del fondo de caja chica dependerá del movimiento económico que pudiesen generar los festejos, a criterio de la Comisión; sin embargo dicho fondo no podrá exceder la suma de ¢40.000,00. Se podrán realizar gastos hasta por la suma de ¢2.000,00 por cada desembolso que se haga con recursos de este fondo.
+(Corrida su numeración en sesión ordinaria N° 267-2015 del 11 de junio del 2015, que lo traspaso del antiguo artículo 26 al 24. Lo anterior ya que en dicha sesión se ordena derogar el numeral 15 y 16 original y modificar su numeración)

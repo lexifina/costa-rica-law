@@ -1,3 +1,2 @@
-CAPÍTULO V
-De las utilidades
-Artículo 22.—Las utilidades obtenidas en los festejos serán depositadas íntegramente por la Comisión en la Municipalidad, para que después de los trámites pertinentes, se proceda a hacer la distribución conforme con el acuerdo previamente tomado por el Concejo Municipal. Dichos fondos serán destinados únicamente para obras de bien comunal y en ningún caso para sufragar gastos administrativos ordinarios o extraordinarios de la corporación municipal.
+Artículo 22.-La cuenta corriente bancaria deberá conciliarse mensualmente conforme se reciban los estados bancarios para cuyo efecto se contará con la asistencia de la contabilidad municipal.
+(Corrida su numeración en sesión ordinaria N° 267-2015 del 11 de junio del 2015, que lo traspaso del antiguo artículo 24 al 22. Lo anterior ya que en dicha sesión se ordena derogar el numeral 15 y 16 original y modificar su numeración)

@@ -1,1 +1,4 @@
-Artículo 37.—Para la revisión y aprobación de la liquidación a que alude el Artículo anterior, el Auditor Municipal elaborarán los papeles de trabajo que consideren necesarios para sustentar el informe que sobre esa liquidación debe remitir al Concejo. Dicho informe contendrá, al menos, información sobre la integración y fines de la Comisión; detalle de los ingresos, gastos y utilidades; incumplimiento de la normativa legal aplicable y medidas de control interno; comentarios sobre cualquier irregularidad detectada; conclusiones (indicando si la liquidación presentada por la Comisión cuenta con su aprobación o no), y las recomendaciones pertinentes.
+CAPÍTULO XIII
+Disposiciones finales
+Artículo 37.-El presente Reglamento rige a partir de su publicación definitiva en el Diario Oficial La Gaceta.
+(Corrida su numeración en sesión ordinaria N° 267-2015 del 11 de junio del 2015, que lo traspaso del antiguo artículo 40 al 37. Lo anterior ya que en dicha sesión se ordena derogar el numeral 15, 16 y 31 original y modificar su numeración)

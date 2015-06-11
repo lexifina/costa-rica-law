@@ -1,3 +1,2 @@
-CAPÍTULO VII
-Del fondo de caja chica
-Artículo 25.—Mediante acuerdo de la Comisión, podrá crearse un fondo fijo reembolsable que funcionará como caja chica para la atención de gastos menores urgentes.
+Artículo 25.-La caja chica se establecerá mediante cheque que se girará a nombre del Tesorero de la Comisión, quien será el responsable de su manejo y velará porque en todo momento haya dinero disponible para la atención de las necesidades urgentes y menores de la Comisión. Su remanente se depositará en la cuenta corriente bancaria de la Comisión, previo a la liquidación.
+(Corrida su numeración en sesión ordinaria N° 267-2015 del 11 de junio del 2015, que lo traspaso del antiguo artículo 27 al 25. Lo anterior ya que en dicha sesión se ordena derogar el numeral 15 y 16 original y modificar su numeración)

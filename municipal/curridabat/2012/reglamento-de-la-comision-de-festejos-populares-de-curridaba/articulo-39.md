@@ -1,2 +1,2 @@
 CAPÍTULO XII
-Artículo 39.—Resultan aplicables y deberá la Comisión de Festejos Populares, acatar y cumplir con las Normas de Control Interno para el Sector Público, aprobadas mediante resolución número R-CO-9-2009 de la nueve horas del veintiséis de enero del dos mil nueve, de la Contraloría General de la República, y publicadas en La Gaceta número 26 del 6 de febrero del 2009.
+Artículo 39.—(El texto del presente artículo puede ser consultado en el artículo 35, ya que mediante sesión ordinaria N° 267-2015 del 11 de junio del 2015, se ordena derogar el numeral 15, 16 y 31 original y modificar su numeración)
