@@ -182,3 +182,7 @@ SECCIÓN SÉTIMA: COBRO DE LAS OBLIGACIONES DE FUNCIONARIOS Y/O EX FUNCIONARIOS 
 2- Únicamente procederán arreglos de pago cuando las obligaciones principales vencidas sean por un monto mayor a la quinta parte de un salario base, y éste deberá ser aprobado por la Gerencia General, por medio de resolución.
 3- El monto mínimo de capital para la presentación de una demanda para las obligaciones de los funcionarios del ICT, debe ser mayor a la quinta parte de un salario base.
 Rige a partir de su publicación en el Diario Oficial La Gaceta.
+(*)B) Dejar sin efecto Reglamento para el Cobro Administrativo y Judicial del Instituto Costarricense de Turismo, aprobado por esta Junta Directiva en sesión ordinaria N° 5650, artículo 5°, inciso v), celebrada el día 27 de julio del 2010 y publicado en el Diario Oficial La Gaceta N° 159 del 17 de agosto del 2010.
+(*) (Así adicionado mediante publicación en La Gaceta N° 112 del 11 de junio de 2015)
+(*)C) Dejar sin efecto la Directriz de Lineamientos de Arreglo de Pago Administrativos en el ICT, aprobado por esta Junta Directiva en sesión ordinaria N° 5285, artículo 5°, inciso i), celebrada el día 13 de enero del 2004.
+(*) (Así adicionado mediante publicación en La Gaceta N° 112 del 11 de junio de 2015)

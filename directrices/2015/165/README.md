@@ -14,3 +14,4 @@ Procedimiento de cobro administrativo y judicial del Instituto Costarricense de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-02 | la propia norma |
+| 2 | 2015-06-11 | Acuerdo 0 (2015-06-11) |
