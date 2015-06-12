@@ -1,0 +1,1 @@
+Artículo 2º—Normativa Aplicable. Para los procedimientos de contratación regulados en este Reglamento, regirán todos los principios constitucionales y legales, así como, las prohibiciones y requisitos propios de la materia en apego a la Constitución Política y a la Ley de Contratación Administrativa y su Reglamento.

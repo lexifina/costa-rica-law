@@ -1,0 +1,2 @@
+Artículo 5º—Clasificación. Las actividades a contratar, indicadas en el artículo 4°, se han establecido de acuerdo con el tipo de servicio a realizar, así como, la inversión en tiempo, equipo y personal que su ejecución requiera.
+Para las actividades 1 (Mecánica automotriz y reparaciones eléctricas de todo tipo) y 3 (Servicios afines), se incluye el Anexo N° 3, denominado “Formulario de Costos de Mano de Obra”, en el que se detalla la lista de los servicios requeridos para estas actividades.

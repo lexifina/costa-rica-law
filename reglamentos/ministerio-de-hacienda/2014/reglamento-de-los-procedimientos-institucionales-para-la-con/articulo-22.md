@@ -1,0 +1,2 @@
+Artículo 22.—Diagnóstico. Una vez que ingrese el vehículo a las instalaciones del taller, se realizará un diagnóstico completo del daño; este diagnóstico no debe de superar el plazo de dos días hábiles, excepto casos especiales, que por su complejidad lo ameriten; en cuyo caso el plazo se ampliará a un máximo de tres días hábiles.
+Una vez realizado el diagnóstico, el taller remitirá la cotización del servicio al Responsable de vehículos, quien realizará las gestiones correspondientes de razonabilidad de precio de acuerdo con lo indicado en el artículo 24°.
