@@ -14,3 +14,4 @@ Reglamento para el establecimiento de áreas marinas y continentales para la pes
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-28 | la propia norma |
+| 2 | 2015-06-12 | Acuerdo 236 (2015-06-12) |

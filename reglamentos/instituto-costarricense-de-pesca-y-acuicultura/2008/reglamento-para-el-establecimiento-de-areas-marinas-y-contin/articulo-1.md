@@ -13,11 +13,12 @@ Considerando:
 ACUERDA:
 Aprobar el siguiente,
 REGLAMENTO PARA EL ESTABLECIMIENTO DE ÁREAS
-MARINAS PARA LA PESCA RESPONSABLE
-(DE CONFORMIDAD CON EL DECRETO
-EJECUTIVO Nº 27919-MAG)
+MARINAS Y CONTINENTALES PARA LA PESCA RESPONSABLE(*)
+(*)(Así modificada su denominación por el punto 1) del acuerdo N° AJDIP/236-2015 del 12 de junio del 2015. Anteriormente indicaba "Áreas Marinas para la Pesca Responsable)
+(Así eliminada la frase "DE CONFORMIDAD CON EL DECRETO EJECUTIVO Nº 27919-MAG" del título anterior, por el punto 3) del acuerdo N° AJDIP/236-2015 del 12 de junio del 2015)
 Artículo 1º—De las definiciones. Para efectos del presente reglamento entiéndase por:
-a) Áreas Marinas para la Pesca Responsable (De conformidad con el Decreto Ejecutivo Nº 27919-MAG): áreas con características biológicas, pesqueras o socioculturales importantes, las cuales estarán delimitadas por coordenadas geográficas y otros mecanismos que permitan identificar sus límites y en las que se regula la actividad pesquera de modo particular para asegurar el aprovechamiento de los recursos pesqueros a largo plazo y en las que para su conservación, uso y manejo el INCOPESCA podrá contar con el apoyo de comunidades costeras y/o de otras instituciones.
+a) Aéreas Marinas y Continentales de Pesca Responsable: Áreas marinas y/o continentales con características biológicas, pesqueras o socioculturales importantes, las cuales estarán delimitadas por coordenadas geográficas y otros mecanismos que permitan identificar sus límites y en las que se regula la actividad pesquera de modo particular para asegurar el aprovechamiento de los recursos pesqueros a largo plazo y en las que para su conservación, uso y manejo el Incopesca podrá contar con el apoyo de comunidades costeras y/o de las cercanías a las riberas de ríos, lagos y lagunas, así como de otras instituciones.
+(Así reformado el inciso anterior por el punto 2) del acuerdo N° AJDIP/236-2015 del 12 de junio del 2015)
 b) Organización Pesquera: entidades jurídicas conformadas por pescadores, o por personas físicas o jurídicas, dedicadas a actividades afines a la pesca y la acuicultura, con personería jurídica vigente y debidamente inscritas ante el Registro de Organizaciones del INCOPESCA, que persigan un mejoramiento de la calidad de vida de sus miembros y de su comunidad.
 c) Código de Ética para la Pesca Responsable: instrumento voluntario elaborado por comunidades u organizaciones dependientes de la actividad pesquera, para el ordenamiento de dicha actividad de modo que se garantice un aprovechamiento sostenible de los recursos pesqueros.
 d) Pesca responsable: es un aprovechamiento sostenible de los recursos pesqueros en armonía con el medio ambiente; la utilización de prácticas de pescay acuicultura que no sean nocivas para los ecosistemas, los recursos o la calidad de los mismos.

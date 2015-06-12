@@ -1,1 +1,2 @@
-Artículo 9º—El establecimiento de Áreas Marinas para la Pesca Responsable (de conformidad con el Decreto Ejecutivo Nº 27919-MAG), no impedirá el libre acceso a las playas, ni actividades conexas corno el turismo entre otras, salvo que existan restricciones en el Plan de Ordenamiento Pesquero, jurídicamente sustentadas.
+Artículo 9º—El establecimiento de Áreas Marinas para la Pesca Responsable, no impedirá el libre acceso a las playas, ni actividades conexas corno el turismo entre otras, salvo que existan restricciones en el Plan de Ordenamiento Pesquero, jurídicamente sustentadas.
+(Así eliminada la frase "DE CONFORMIDAD CON EL DECRETO EJECUTIVO Nº 27919-MAG" del parrafo anterior, por el punto 3) del acuerdo N° AJDIP/236-2015 del 12 de junio del 2015)
