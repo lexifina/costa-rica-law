@@ -1,0 +1,2 @@
+Artículo 15.—Este beneficio no constituye ningún derecho adquirido y no podrá ser considerado como salario en especie.
+La Administración puede suspender su concesión en el momento en que se considere oportuno, principalmente por limitaciones presupuestarias y financieras de la institución y por disposiciones como la contención del gasto y la restricción en la ejecución de gastos, emitidas por los entes externos correspondientes o instancias superiores.

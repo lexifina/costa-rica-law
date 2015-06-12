@@ -1,0 +1,1 @@
+Artículo 17.—La Jefatura que tenga a su cargo personal que debe usar uniforme, de acuerdo a las disposiciones de este Reglamento, deberá tomar las previsiones presupuestarias del caso en su respectiva unidad ejecutora y tramitar oportunamente ante la Proveeduría Institucional, la solicitud de decisión inicial para la adquisición o confección.

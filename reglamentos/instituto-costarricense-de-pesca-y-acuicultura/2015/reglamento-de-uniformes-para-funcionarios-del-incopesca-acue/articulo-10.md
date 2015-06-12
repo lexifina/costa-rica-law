@@ -1,0 +1,1 @@
+Artículo 10.—El período de duración de estas prendas de vestir es de un año después de iniciar su uso, convirtiéndose en obligatoria su utilización dentro de la jornada laboral, ordinaria o extraordinaria. Sin embargo, cuatro meses antes de cumplido este plazo de uso, se analizará la posibilidad de cambiarlas de ser necesario.

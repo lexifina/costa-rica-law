@@ -1,0 +1,1 @@
+Artículo 19.—La Dirección General Administrativa en coordinación con la Presidencia Ejecutiva, podrá variar los colores y diseños de los uniformes, con el fin de lograr mayor vistosidad y lucidez que contribuya a mejorar la imagen de la institución y de los funcionarios; en el momento que lo considere necesario y conveniente a los intereses institucionales.

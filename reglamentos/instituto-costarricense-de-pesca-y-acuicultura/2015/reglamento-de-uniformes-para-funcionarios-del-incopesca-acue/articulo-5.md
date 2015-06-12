@@ -1,0 +1,1 @@
+Artículo 5°—El uniforme será utilizado de lunes a viernes, por los funcionarios que reciban el beneficio del uniforme, sábados y domingos para el caso de los inspectores cuando llevan a cabo funciones propias de su cargo.

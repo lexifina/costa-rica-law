@@ -1,0 +1,1 @@
+Artículo 16.—Cada funcionario deberá retirar en el Almacén de Materiales los uniformes que le fueron asignados, presentando para ello la requisición de materiales correspondiente, debidamente autorizada por la jefatura.
