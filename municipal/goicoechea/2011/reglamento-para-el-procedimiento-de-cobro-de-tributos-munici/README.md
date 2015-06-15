@@ -14,3 +14,4 @@ Reglamento para el procedimiento de cobro de tributos municipales en el cantón 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-09 | la propia norma |
+| 2 | 2015-06-15 | Reglamento municipal 24 (2015-06-15) |
