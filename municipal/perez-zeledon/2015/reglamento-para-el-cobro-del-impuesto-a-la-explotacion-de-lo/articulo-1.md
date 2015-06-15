@@ -1,0 +1,23 @@
+MUNICIPALIDAD DE PÉREZ ZELEDÓN
+CONCEJO MUNICIPAL
+La Municipalidad de Pérez Zeledón comunica que mediante acuerdo tomado por el Concejo Municipal, en sesión extraordinaria N° 109-15, punto único, inciso 1), celebrada el 8 de mayo del 2015, se aprobó la entrada en vigencia del texto correspondiente al Reglamento para el Cobro del Impuesto a la Explotación de los Recursos Mineros en el cantón de Pérez Zeledón y de Patentes de Explotación de Concesiones en Canteras, Cauces de Dominio Público, Lavaderos y Placeres, mismo que a continuación se detalla:
+- Que el Concejo Municipal, en sesión extraordinaria 104-15, punto único), inciso 6), celebrada el día 26 de febrero del 2015, acordó aprobar la propuesta de Reglamento para el Cobro del Impuesto a la Explotación de los Recursos Mineros en el cantón de Pérez Zeledón y de Patentes de explotación de concesiones en canteras, cauces de dominio público, lavaderos y placeres.
+- Que de acuerdo al artículo N° 43 del Código Municipal, este proyecto de reglamento debe de someterse a consulta previa por un periodo de diez días hábiles y trascurrido ese plazo, deberá publicarse nuevamente, con indicación de su momento de vigencia.
+- Que mediante documento OFI-076-15-PAM, suscrito por la señora Jenny Marín Valverde, Coordinadora Archivo Municipal, informa que en La Gaceta N° 69 del 10 de abril del 2015, se publicó el acuerdo del Concejo Municipal de la sesión extraordinaria 104-15, mediante el cual aprueban el Proyecto de Reglamento para el Cobro del Impuesto a la Explotación de los Recursos Mineros en el cantón de Pérez Zeledón y de Patentes de Explotación de Concesiones en Canteras, Cauces de Dominio Público, Lavaderos y Placeres, RAM-001-15. Este proyecto se somete a consulta pública por el término de diez días contados a partir de la publicación del presente proyecto.
+- Que después del plazo planteado de diez días hábiles, luego de la publicación, no se presentaron objeciones y modificaciones al texto del proyecto de reglamento citado.
+Por tanto y a tenor de los considerandos emitidos, el Concejo Municipal, acuerda:
+Dejar como definitivo el Reglamento para el Cobro del Impuesto a la Explotación de los Recursos Mineros en el cantón de Pérez Zeledón y de Patentes de Explotación de Concesiones en Canteras, Cauces de Dominio Público, Lavaderos y Placeres, RAM-001-15, reglamento que permite el cobro del impuesto a la explotación de los recursos mineros, en el cantón de Pérez Zeledón, lo anterior en virtud que no se plantearon objeciones y modificaciones dentro del plazo concedido en la publicación citada. Publíquese como corresponda.
+RAM-001-15
+REGLAMENTO PARA EL COBRO DEL IMPUESTO
+A LA EXPLOTACIÓN DE LOS RECURSOS MINEROS
+EN EL CANTÓN DE PÉREZ ZELEDÓN Y DE PATENTES
+DE EXPLOTACIÓN DE CONCESIONES EN CANTERAS,
+CAUCES DE DOMINIO PÚBLICO, LAVADEROS Y PLACERES
+Considerando:
+I.—Que los artículos 3 y 4 del Código Municipal establecen la potestad municipal de normalizar todos sus procesos y actividades así como de dotar a la institución, con base en la autonomía de los gobiernos locales, de los correspondientes reglamentos internos y externos para la consecución efectiva del servicio público.
+II.—Que la Municipalidad de Pérez Zeledón, a través del acuerdo del Concejo Municipal, en sesión ordinaria 212-14, artículo 10), inciso 6), celebrada el día 27 de mayo del 2014, giró la autorización a la señora Alcaldesa y determinó la importancia de contar con un instrumento normativo para el cobro del impuesto a la explotación de los recursos mineros en el cantón de Pérez Zeledón y de patentes de explotación de canteras, causes de dominio público, lavaderos y placeres.
+III.—Que con fundamento en lo antes expuesto es necesario dotar de un marco normativo actualizado que promueva la regulación de los procedimientos y condiciones que regirán el cobro del impuesto a la explotación de los recursos mineros en el cantón de Pérez Zeledón y de patentes de explotación de canteras, causes de dominio público, lavaderos y placeres de conformidad con el ordenamiento jurídico vigente.
+IV.—Que de conformidad con lo establecido en los artículos 38, 40 y 55 del Código de Minería, Ley N° 6797 del 22 de octubre de 1982 y sus reformas; el Código de Normas y Procedimientos Tributarios, Ley N° 4755 del 3 de mayo de 1971 y sus reformas; el artículo 4, inciso a) y d) de la Ley N° 7794, Código Municipal del 18 de mayo de 1998; la Municipalidad de Pérez Zeledón emite a consideración de los señores Regidores el presente Proyecto de Reglamento.
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Fundamentos legales. El presente Reglamento se promulga y se fundamenta en virtud de lo estipulado en los artículos 38, 40, 49 y 55 del Código de Minería y su Reglamento.

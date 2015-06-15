@@ -1,0 +1,1 @@
+Artículo 25.—Certificación de saldos adeudados. La certificación del Contador Municipal en que se indique la diferencia adeudada por el interesado en virtud de recalificación por la Dirección General de la Tributación Directa, servirá de título ejecutivo, para efectos del cobro de aquella.
