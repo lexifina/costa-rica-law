@@ -1,0 +1,9 @@
+Artículo 5º—Mecánica de participación. Para participar se debe realizar la activación de al menos una fracción de Lotería Nacional del Sorteo Extraordinario Gordito de Medio Año Nº 4346 por medio de la página web www.jps.go.cr, a partir del lunes 15 de junio, 2015 a las 12 medianoche y hasta el sábado 4 de julio, 2015 a las 4:00 p. m.
+Para la activación, los datos requeridos son los siguientes:
+Cédula de identificación o documento de identificación vigente y al día. El número de cédula de identidad debe incluirse de la misma manera como aparece en la cédula de identidad, es decir, sin guiones ni espacios, como se indica en el siguiente ejemplo 113380629. Si el documento de identificación corresponde a una cédula de residencia o pasaporte, su número debe digitarse igual como aparece en el documento de que se trate.
+Número de teléfono: el cual debe ser incluido sin guiones o espacios, como se indica en el siguiente ejemplo 22024509.
+Serie, número, número de emisión y número de fracción de la lotería que se activará. En el siguiente ejemplo se indica donde se localiza en cada fracción el número de emisión y número de fracción.
+[imagen]
+Los ganadores se eligen a través de tómbola electrónica entre las personas que hayan activado, para seleccionar a cada ganador el Gerente General o su representante establece el tiempo de duración de la tómbola electrónica. Las fechas de los sorteos se detallan en el artículo 6) de este procedimiento.
+Una persona sólo podrá realizar la activación de un máximo de 30 fracciones por sorteo a su nombre. Además una misma persona solo podrá ser seleccionada una vez por sorteo. Las activaciones no se acumulan para cada sorteo, es decir, para cada sorteo se toman en cuenta únicamente las activaciones de cada semana.
+No participan en esta promoción, los funcionarios de la Junta de Protección Social, interinos o en propiedad.
