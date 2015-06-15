@@ -1,2 +1,0 @@
-Transitorio Único.—Todos aquellos trámites relacionados con los procesos de transformación térmica que se encuentren pendientes ante la Secretaría Técnica Nacional Ambiental o el Ministerio de Salud a la fecha de publicación del presente Decreto Ejecutivo, serán suspendidos. Todo derecho adquirido antes de la publicación del presente decreto será respetado.
-Dado en la Presidencia de la República.—San José, a los once días del mes de junio del dos mil catorce.
