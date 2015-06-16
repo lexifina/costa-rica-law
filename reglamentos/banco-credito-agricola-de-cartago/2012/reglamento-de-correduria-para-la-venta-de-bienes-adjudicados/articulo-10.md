@@ -1,1 +1,0 @@
-Artículo 10.—Conformación del registro de elegibles: Aprobadas en firme las solicitudes respectivas, la Oficina de Proveeduría y Licitaciones elaborará el registro de elegibles. La lista será administrada por la Oficina de Mantenimiento y Venta de Bienes.
