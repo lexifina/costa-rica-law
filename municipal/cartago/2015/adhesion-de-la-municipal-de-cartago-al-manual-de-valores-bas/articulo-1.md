@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE CARTAGO
+La Municipalidad de Cartago avisa que el Concejo Municipal de Cartago en su sesión del día 19 de mayo del 2015, Artículo XIII del Acta N° 379-15, aprobó de forma definitiva la adhesión al nuevo “Manual de Valores Base Unitarios por Tipología Constructiva”, publicado en el Alcance Digital N° 19 a La Gaceta N° 57, de fecha 23 de marzo del 2015. Rige a partir de su publicación.
