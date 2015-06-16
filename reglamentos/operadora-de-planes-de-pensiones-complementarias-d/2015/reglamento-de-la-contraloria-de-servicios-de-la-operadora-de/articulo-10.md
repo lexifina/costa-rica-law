@@ -1,0 +1,8 @@
+Artículo 10.—Plan de Trabajo de la Contraloría de Atención al Usuario: La Contraloría de Atención al Usuario presentará ante la Gerencia General de Popular Pensiones, en la primera semana hábil del mes de enero de cada año, su Plan Anual de Trabajo. La Gerencia lo hará de su conocimiento y aprobación. Este plan deberá contemplar, al menos lo siguiente:
+a. Los informes de labores o gestión que mensualmente se presentan a la Gerencia General y/o al Comité Gerencial.
+b. El cronograma anual de evaluaciones de servicios y de percepción; así como de gestión de la Contraloría de Atención al Usuario, que permita medir la calidad de los productos y servicios prestados. Estas actividades se realizarán con los instrumentos de investigación que se consideren adecuados para este fin y serán sujetas a evaluaciones selectivas para verificar sus resultados.
+c. Los mecanismos de control, seguimiento, resolución y respuesta oportuna a las inconformidades y reclamos presentados por los clientes y usuarios.
+d. Listado de acciones para mantener un registro de control de las inconformidades o reclamos planteados y admitidos, resumiendo los resultados de su gestión. Este registro se utilizará para la elaboración del Informe trimestral que enviará a la Gerencia General donde se indicará la naturaleza y frecuencia de las inconformidades, así como las acciones acatadas o recomendadas para resolver el caso.
+El presente Reglamento podrá ser modificado por acuerdo firme de la Junta Directiva de Popular Pensiones y sus modificaciones entrarán a regir a partir de su publicación en el diario oficial La Gaceta”.
+Rige a partir de su publicación.
+San José, 4 de junio del 2015

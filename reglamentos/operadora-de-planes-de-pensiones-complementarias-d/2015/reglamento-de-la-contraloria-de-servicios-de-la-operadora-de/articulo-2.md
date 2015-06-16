@@ -1,0 +1,1 @@
+Artículo 2°—Fundamento: El presente Reglamento se dicta con fundamento en el artículo 188 del Código de Comercio N° 3284, que define la atribución de la Junta Directiva de Popular Pensiones para dictar el presente Reglamento.

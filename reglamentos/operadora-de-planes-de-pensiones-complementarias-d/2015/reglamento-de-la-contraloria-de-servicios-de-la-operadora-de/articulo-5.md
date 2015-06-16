@@ -1,0 +1,2 @@
+Artículo 5°—Apoyo Institucional: Para el cumplimiento de sus funciones, la Contraloría de Atención al Usuario recibirá el apoyo de todos las Áreas y Departamentos de Popular Pensiones. Cuando el proceso de investigación lo requiera gestionará el apoyo de la Contraloría de Servicios del Banco Popular.
+El personal que la integre deberá guardar la confidencialidad tanto de la información y documentos que le brinden las diversas áreas, como de las denuncias o inconformidades que se reciban.

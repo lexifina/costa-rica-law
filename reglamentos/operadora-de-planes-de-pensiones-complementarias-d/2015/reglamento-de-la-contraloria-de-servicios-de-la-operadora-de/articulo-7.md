@@ -1,0 +1,1 @@
+Artículo 7°—Requisitos de Nombramiento: Los requisitos de nombramiento del (la) Contralor(a) de Servicios en Popular Pensiones, serán los establecidos en la normativa interna en el Manual de Puestos respectivo.
