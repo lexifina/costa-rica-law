@@ -1,2 +1,0 @@
-Artículo 7º—Requisitos mínimos para la contratación de Abogados
-Los requisitos para la contratación de abogados externos serán establecidos en el Cartel de la Contratación Administrativa correspondiente. Sin embargo, deben cumplir con los siguientes requisitos como mínimo: al menos siete años en materia de cobro judicial, el profesional debe tener una oficina abierta en la localidad en donde esté asentado el Juzgado en el que prestará sus servicios.

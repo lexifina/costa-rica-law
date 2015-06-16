@@ -1,2 +1,0 @@
-Artículo 34.—Pago en procesos reasignados.
-Cuando el abogado externo dejare de prestar sus servicios al Banco, por cualquier motivo válido según este reglamento y su contrato, se procederá a reconocer sus honorarios hasta la fase procesal que corresponda.

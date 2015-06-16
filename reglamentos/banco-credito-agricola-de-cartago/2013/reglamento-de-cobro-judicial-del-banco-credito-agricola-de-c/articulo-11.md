@@ -1,5 +1,0 @@
-Artículo 11.—Localización de los demandados
-La Oficina de Cobro Administrativo y Judicial está obligada a brindar las direcciones actualizadas de los demandados; no obstante, en aquellos casos en que el abogado externo gestione por su propia cuenta la dirección o localización de los demandados, o bien la ubicación y captura de bienes muebles en garantía, el Banco reconocerá el costo de esta gestión. Estos gastos, así como los originados en los trámites judiciales y publicación de edictos, serán suplidos por el abogado y reintegrados por el Banco, previa presentación por parte del profesional de la factura correspondiente.
-No obstante, el abogado director está en la obligación de solicitar y aportar las nuevas direcciones con el fin de evitar posibles deserciones.
-Después de tres intentos de notificación con resultado negativo, el abogado director podrá solicitar la declaratoria de incobrabilidad, calificando como ilocalizable al deudor.
-En caso de que el proceso tenga alguna opción de recuperación, el abogado director del proceso solicitará el visto bueno para notificar a las partes por medio de Curador.

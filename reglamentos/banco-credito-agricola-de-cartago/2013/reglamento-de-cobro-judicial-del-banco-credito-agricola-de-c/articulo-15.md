@@ -1,2 +1,0 @@
-Artículo 15.—Suspensión de la asignación de nuevos casos al abogado
-Cuando se determine que el abogado no atiende con prontitud y diligencia las gestiones de cobro encomendadas, previa audiencia, se suspenderá la asignación de nuevos casos por un período de tres meses. Se deberá presentar, al término del plazo señalado, un informe a la Oficina de Cobro Administrativo y Judicial, sobre el resultado de la normalización de sus gestiones; de no presentar el informe indicado, iniciará el debido proceso para la suspensión definitiva de la prestación de sus servicios al Banco.
