@@ -1,0 +1,2 @@
+Artículo 4º—Agregar un artículo 27 al Reglamento Interno de Contratación Administrativa de la Contraloría General de la República que señale:
+“Artículo 27.—Uso de un sistema de contratación electrónica público. En caso de que la Contraloría General de la República opte por la utilización de un sistema público de contratación electrónica y, de contener el mismo tareas asignadas internamente a la USP, prevalecerá el uso de los mecanismo del sistema seleccionado, aún cuando la normativa interna señale como responsable a dicha unidad.”
