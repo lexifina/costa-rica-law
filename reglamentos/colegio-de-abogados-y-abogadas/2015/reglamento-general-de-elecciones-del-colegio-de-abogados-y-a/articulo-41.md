@@ -1,0 +1,1 @@
+Artículo 41.—Tiempo de que dispone el elector para emitir el voto. Cada persona electora dispone de dos minutos para emitir su voto. Pasado este tiempo, la presidencia de la junta receptora le comunicará que se apresure.

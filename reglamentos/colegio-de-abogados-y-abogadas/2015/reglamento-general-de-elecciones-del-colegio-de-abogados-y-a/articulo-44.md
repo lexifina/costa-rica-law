@@ -1,0 +1,1 @@
+Artículo 44.—Reposición de papeletas. En ningún caso se podrán reponer papeletas inutilizadas; éstas serán entregadas al Tribunal Electoral junto con el resto de la documentación electoral, la cual pasados tres meses será destruida.

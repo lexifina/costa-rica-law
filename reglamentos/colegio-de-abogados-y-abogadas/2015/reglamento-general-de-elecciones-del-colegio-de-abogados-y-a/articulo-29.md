@@ -1,0 +1,2 @@
+Artículo 29.—De las funciones de fiscalización. La función principal de quienes ejercen la fiscalización, tanto de carácter general como ante las juntas, es presenciar el proceso de votación y el trabajo de las juntas receptoras de votos, vigilando el correcto proceder. Les está prohibido interferir en el trabajo de la junta receptora, así como participar en sus deliberaciones.
+Los fiscales generales tienen derecho a presenciar el escrutinio de votos que efectúa el Tribunal Electoral.

@@ -1,0 +1,7 @@
+Artículo 19.—De las juntas receptoras de votos. Cada junta receptora de votos estará formada por una persona delegada del Tribunal, que será a su vez quien la presida, y una persona representante de cada partido político legalmente inscrito y su suplente para que le sustituya en caso de ausencia temporal o definitiva. La nómina de estas personas, con su respectiva aceptación, deberá entregarse al Tribunal Electoral a más tardar cinco días hábiles antes del día de las elecciones.
+De no cumplirse con lo anterior, el propio Tribunal Electoral dispondrá del nombramiento correspondiente con tal de asegurar el funcionamiento eficaz de cada junta receptora de votos.
+Tienen impedimento para participar como miembro en una junta receptora de votos:
+a) Las personas que ejerzan funciones como integrantes de la Junta Directiva y el Fiscal, así como del propio Tribunal Electoral.
+b) Las personas ligadas entre sí por vínculo de consanguinidad o afinidad de primer grado.
+A las personas que conforman las juntas receptoras de votos se les recibirá su juramento ante el Tribunal Electoral, al menos dos días antes de las elecciones, sin perjuicio de lo que se disponga, para situaciones de excepción, el día que se celebre la elección que corresponda.
+En todo caso, el quórum estructural es de un miembro y sus decisiones se tomarán por mayoría simple. En caso de empate quien ejerza la presidencia gozará del voto de calidad.

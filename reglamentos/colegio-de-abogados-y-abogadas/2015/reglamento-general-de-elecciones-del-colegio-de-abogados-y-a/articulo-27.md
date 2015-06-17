@@ -1,0 +1,1 @@
+Artículo 27.—De las fiscalías generales y fiscalías ante las juntas receptoras de votos. Los partidos políticos tienen derecho a fiscalizar el proceso electoral mediante fiscales generales y fiscales de junta receptora de votos, debidamente acreditados por el Tribunal Electoral. Quien ejerza como fiscal deberá ser a su vez elector.

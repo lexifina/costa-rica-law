@@ -1,0 +1,1 @@
+Artículo 43.—Obligación de depositar la papeleta. La persona electora depositará la papeleta en la urna electoral antes de salir del recinto de la junta receptora de votos o la entregará a los miembros de la junta según sea el caso. Bajo ningún supuesto se le permitirá abandonar el recinto con la papeleta.

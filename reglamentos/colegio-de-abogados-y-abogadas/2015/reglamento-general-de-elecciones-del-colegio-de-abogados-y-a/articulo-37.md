@@ -1,0 +1,1 @@
+Artículo 37.—Obligaciones de las juntas receptoras de votos el día de las elecciones. La junta receptora de votos deberá extender a solicitud expresa del fiscal general o de la propia junta de cualquier partido político, una certificación del número de votos emitidos hasta ese momento. Se autoriza un máximo de tres certificaciones por agrupación.

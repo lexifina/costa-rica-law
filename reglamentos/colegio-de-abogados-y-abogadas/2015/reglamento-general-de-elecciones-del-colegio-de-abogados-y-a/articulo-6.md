@@ -1,0 +1,1 @@
+Artículo 6º—Del recurso contra los acuerdos del Tribunal. Contra lo resuelto por el Tribunal Electoral cabrá únicamente recurso de reconsideración que deberá interponerse dentro del tercer día ante la secretaría del mismo.

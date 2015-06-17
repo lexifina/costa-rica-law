@@ -1,0 +1,10 @@
+Artículo 46.—Cierre de la votación. A la hora indicada según lo dispuesto, se cerrarán las juntas receptoras de votos y a continuación, en presencia del fiscal de cada partido político que concurra, la junta procederá de la siguiente manera:
+a) Se contará el número de personas que sí votaron y en el espacio respectivo del acta de cierre, anotarán la cantidad correspondiente, tanto con letras como con números.
+b) Se separarán y contarán las papeletas no usadas. De seguido se introducirán en el sobre respectivo, el cual se cerrará de manera segura; se anotará por fuera del sobre la cantidad de papeletas sobrantes consignándose asimismo la firma de todas las personas integrantes de la Junta.
+c) En presencia de los fiscales que estén presentes se abrirá la urna y quien ocupe la presidencia sacará una a una cada papeleta, desdoblándola y observando si está debidamente firmada.
+d) Se separarán y contarán las papeletas en blanco, depositándolas en un sobre rotulado EN BLANCO.
+e) Las demás papeletas se separarán por partido político; se contarán cuidadosamente los votos de cada partido y según el puesto marcado. El número finalmente obtenido se anotará en el espacio correspondiente del acta de cierre y se guardarán las papeletas en sobres rotulados y cerrados.
+f) La junta valorará cuáles votos han de considerarse nulos, de conformidad con lo dispuesto en esta reglamentación. Resuelta esta cuestión, el presidente de la junta consignará la razón de nulidad en el reverso del voto, la firmará de seguido y guardará las papeletas en el sobre respectivo.
+g) Toda la información obtenida en los incisos anteriores será anotada en el acta de cierre según corresponda.
+h) El acta de cierre será firmada por todas las personas de la junta receptora de votos y por los fiscales presentes de los partidos políticos. De ésta se dará una copia a cada una de las personas presentes.
+i) Realizada esta acción, todo el material electoral será entregado al Tribunal Electoral a la brevedad posible, el cual revisará que esté completo.

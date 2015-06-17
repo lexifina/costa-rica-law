@@ -1,0 +1,3 @@
+Artículo 22.—Requisitos de las papeletas. Las papeletas para votación deberán ser elaboradas en papel no transparente e incluir el nombre del partido, la divisa o bandera utilizada, los nombres completos de las personas colegiadas candidatas a cada uno de los puestos sometidos a elección, así como el espacio suficiente para consignar la escogencia. La persona electora deberá escribir una equis (X) o una marca similar dentro del espacio que para tal efecto aparece en la casilla de la agrupación de su preferencia y según el puesto.
+Al reverso contendrá los espacios para la firma de las personas que conforman la junta receptora de votos.
+Las papeletas tendrán además los elementos de seguridad que disponga el Tribunal Electoral.

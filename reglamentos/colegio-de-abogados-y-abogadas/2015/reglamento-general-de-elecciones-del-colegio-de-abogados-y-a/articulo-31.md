@@ -1,0 +1,1 @@
+Artículo 31.—De la cantidad de fiscales por junta receptora de votos. En el recinto o el área que ocupen las juntas receptoras de votos no se permitirá más de un fiscal, ya sea general o de la propia junta, por cada partido político. Los fiscales pueden ser sustituidos por sus respectivos suplentes.

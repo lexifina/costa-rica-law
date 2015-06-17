@@ -1,0 +1,1 @@
+Artículo 52.—Persona candidata triunfante. Resultará electa la persona candidata que obtenga la mayor cantidad de votos válidos, según el cargo por el cual se aprobó su postulación. En caso de empate quedará electa la persona colegiada candidata de más antigua colegiatura.

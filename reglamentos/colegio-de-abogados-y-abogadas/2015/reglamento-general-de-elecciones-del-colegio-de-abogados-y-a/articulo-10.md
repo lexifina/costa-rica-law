@@ -1,0 +1,1 @@
+Artículo 10.—Del plazo para la inscripción de candidaturas. Tratándose de elecciones ordinarias, el plazo para inscribir candidaturas concluirá a las dieciséis horas del último día hábil del mes de setiembre del año correspondiente.

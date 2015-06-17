@@ -1,0 +1,3 @@
+Artículo 45.—Votación de personas colegiadas con discapacidad. Las personas colegiadas a quienes por sus condiciones físicas se les dificulte votar a solas en el recinto secreto -lo cual deberá ser valorado por los integrantes de la junta- podrán optar por las siguientes alternativas de votación:
+a) Voto público: La persona electora manifestará ante la junta receptora su intención de votar públicamente, con el fin de que quien ocupa la presidencia de la misma, marque la papeleta conforme a la voluntad que le indique aquella.
+b) Voto asistido: La persona electora ingresará al recinto secreto en compañía de alguna persona de su confianza, quien le ayudará a ejercer el voto. Esa persona deberá ser mayor de edad y costarricense.

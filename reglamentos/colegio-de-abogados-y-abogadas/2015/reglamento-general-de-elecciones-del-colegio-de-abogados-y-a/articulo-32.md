@@ -1,0 +1,1 @@
+Artículo 32.—Credenciales de los fiscales. Los fiscales de los partidos políticos tendrán una credencial, elaborada por su propia agrupación, que los identifique como tales. Dicho documento será sellado y firmado por el Tribunal Electoral. La Secretaría de este organismo conservará un registro de los nombramientos hechos.

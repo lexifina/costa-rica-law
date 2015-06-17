@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Del escrutinio
+Artículo 51.—Procedimiento. El Tribunal Electoral, recibida la documentación electoral por parte de las juntas, debe iniciar de inmediato el escrutinio respectivo, entendiéndose éste como la acción de examinar y calificar las actas de cierre para rectificar o aprobar el cómputo de los votos que hayan hecho las juntas receptoras de votos. Lo anterior con el fin de dar el resultado y declaración final de las elecciones.
+Este escrutinio debe hacerse en una sola sesión de trabajo y se irá analizando junta por junta, sellando la documentación cuando haya terminado el escrutinio de cada una. Al final, se entregará al Presidente de la Junta Directiva saliente, o a quien haga sus veces, un boletín oficial del resultado de las elecciones, consignándose el resultado final en el acta que el Tribunal Electoral levantará al efecto.

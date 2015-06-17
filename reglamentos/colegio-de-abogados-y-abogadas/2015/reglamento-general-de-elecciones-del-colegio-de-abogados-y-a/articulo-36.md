@@ -1,0 +1,1 @@
+Artículo 36.—Ausencia de algún miembro de la junta receptora de votos. Si durante la votación se ausentara alguna persona de la junta, será reemplazada por su suplente. Debe anotarse todo tipo de incidencias que se realicen durante las votaciones en las respectivas hojas de incidencias suministradas al efecto.

@@ -1,0 +1,1 @@
+Artículo 26.—Del contenido de la propaganda.- El empleo y la orientación de la propaganda es responsabilidad de los candidatos que integren la papeleta. La propaganda debe ser dirigida solo a exaltar los méritos de quienes figuren en las diferentes candidaturas y a la exposición de programas e ideas que se propongan desarrollar.

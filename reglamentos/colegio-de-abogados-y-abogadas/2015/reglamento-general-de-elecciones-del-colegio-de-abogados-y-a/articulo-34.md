@@ -1,0 +1,1 @@
+Artículo 34.—Colocación de la urna electoral. La urna electoral donde se depositarán los votos, se colocará frente a la mesa de trabajo de la junta receptora de votos de tal manera que pueda ejercerse permanentemente autoridad y vigilancia sobre ella.

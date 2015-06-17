@@ -1,0 +1,1 @@
+Artículo 24.—De las actividades proselitistas.- Durante la duración de la campaña se podrán llevar a cabo actividades proselitistas de las agrupaciones en contienda donde se ejerciten los derechos políticos de información, libre agrupación y elección.
