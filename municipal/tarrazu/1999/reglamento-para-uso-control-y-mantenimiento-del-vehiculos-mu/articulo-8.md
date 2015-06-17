@@ -1,1 +1,0 @@
-Artículo 8°-El conductor de un vehículo municipal será responsable de los daños que le causen o lo que le suceda, si se comprueba: imprudencia, impericia o negligencia en su manejo. También responderá por infracciones a las leyes de tránsito, salvo caso fortuito o fuerza mayor.

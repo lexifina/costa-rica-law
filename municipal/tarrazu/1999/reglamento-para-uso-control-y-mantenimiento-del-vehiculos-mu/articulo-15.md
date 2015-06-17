@@ -1,1 +1,0 @@
-Artículo 15.-Los vehículos de uso administrativo, no poeta circular fuera del horario normal de la Institución, sólo en circunstancias especiales y con la debida autorización por escrito del Alcalde Municipal o Jefe responsable.

@@ -1,1 +1,0 @@
-Artículo 9°-Se deberán establecer controles para el consumo de combustibles, por medio de formularios que contendrán la información necesaria del consumo por unidad o vehículo. Los formularios deberán llevar numeración consecutiva para su control y archivo.

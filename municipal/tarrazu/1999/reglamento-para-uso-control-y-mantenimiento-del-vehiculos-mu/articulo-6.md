@@ -1,1 +1,0 @@
-Artículo 6°-Es obligación de la Municipalidad asegurar todos sus vehículos automotores, con las coberturas más convenientes posibles, por medio del Instituto Nacional de Seguros; las cuales deberán de mantenerse vigentes en todo momento.
