@@ -1,1 +1,0 @@
-Artículo 45.—El Tribunal de Elecciones, con la debida antelación, remitirá al delegado o auxiliar la documentación electoral. La organización del proceso y revisión del material electoral corresponderá a los representantes del Tribunal de Elecciones.
