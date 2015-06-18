@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de permisos de uso de la Zona Marítimo Terrestr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-30 | la propia norma |
+| 2 | 2015-06-18 | Reglamento municipal 917 (2015-06-18) |
