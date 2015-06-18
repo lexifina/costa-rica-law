@@ -12,7 +12,8 @@ c) Compra, ampliación o reparación de la casa.
 d) Cancelación de gravámenes que pesa sobre casa propia (este gravamen debe haberlo constituido el suscriptor, como garantía de préstamos relacionados con su vivienda).
 e) Compra de terreno (con la finalidad de construir su vivienda o de adquirir el lote donde la construyó).
 f) Adquisición de una vivienda mediante la cesión de acciones o cuotas de una Sociedad (La sociedad debe tener como único patrimonio la vivienda y estar al día en la presentación de declaraciones tributarias. Asimismo, los accionistas o representantes legales, deberán declarar bajo la fe de juramento que la misma fue constituida exclusivamente para ese fin). Los créditos hipotecarios que respalden las operaciones de las viviendas adquiridas mediante la cesión de acciones de una sociedad, se garantizarán únicamente con hipoteca de primer grado.
-(Así reformado tácitamente, el inciso anterior, en sesión No. 5360 de 17 de marzo de 2004).
-Los préstamos con sujeción a los requisitos establecidos en el Reglamento respectivo, podrán también financiar a entidades públicas o privadas, obras de urbanización de proyectos de vivienda no lucrativos, a favor de sus servidores o asociados, previo acuerdo de Junta Directiva.
+(Así reformado tácitamente, el inciso anterior, en sesión N° 5360 de 17 de marzo de 2004).
+(Derogado párrafo segundo por reforma acordada en sesión N° 6129 del 18 de junio del 2015).
 A solicitud del suscriptor, los gastos por concepto de honorarios de abogado y formalización serán financiados dentro de los créditos sobre contratos de ahorro y préstamo que ya adquirieron, la condición para avalar créditos (contratos maduros).
-(Así reformado en sesión No. 5350 de 11 de febrero de 2004)
+(Así reformado en sesión N° 5350 de 11 de febrero de 2004).
+(Así reformado mediante sesión ordianria N° 6129 del 18 de junio del 2015)
