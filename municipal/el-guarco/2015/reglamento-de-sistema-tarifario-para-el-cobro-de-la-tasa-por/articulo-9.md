@@ -1,0 +1,1 @@
+Artículo 9°—La municipalidad con base en el estudio específico, podrá cambiar de categoría a cualquier usuario del servicio comercial, si la cantidad estimada de residuos sólidos ordinarios es inferior o superior a la establecida en el rango de generación donde se clasificó originalmente.
