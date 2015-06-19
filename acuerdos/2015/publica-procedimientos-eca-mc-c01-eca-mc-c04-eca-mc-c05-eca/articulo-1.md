@@ -1,0 +1,12 @@
+MODIFICACIÓN DE DOCUMENTOS 002-2015
+El Ente Costarricense de Acreditación (ECA), da a conocer las publicaciones en el sistema de gestión documental; Los documentos enlistados en esta publicación no se habían publicado en las versiones anteriores, para fortalecer la seguridad jurídica de los usuarios acreditados y en proceso se realiza la publicación de la siguiente manera:
+Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha de entrada en vigencia en el sistema de gestión del ECA
+ECA-MC-C01Criterios para la utilización de laboratorios por los organismos de certificación de producto y organismos de inspección | 03 | 04 | A partir de su publicación en el diario oficial La Gaceta. | A partir de su publicación en el diario oficial La Gaceta.
+ECA-MC-C04 Criterios para la acreditación Transfrontera de Organismos de Certificación | 04 | 05 | A partir de su publicación en el diario oficial La Gaceta. | A partir de su publicación en el diario oficial La Gaceta.
+ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/ IEC 17021 | 09 | 10 | A partir de su publicación en el diario oficial la Gaceta. | A partir de su publicación en el diario oficial La Gaceta.
+ECA-MC-C09 Criterios para la acreditación transfrontera de laboratorios y Organismos de Inspección | 03 | 04 | A partir de su publicación en el diario oficial La Gaceta. | A partir de su publicación en el diario oficial La Gaceta.
+ECA-MC-C10 Criterios para la evaluación de la norma INTE/ISO 14065 | 04 | 05 | A partir de su publicación en el diario oficial La Gaceta. | A partir de su publicación en el diario oficial La Gaceta.
+ECA-MC-C12 Criterios para la guía de aplicación de la Norma INTE-ISO/IEC 17020:2012 | 02 | 03 | A partir de su publicación en el diario oficial La Gaceta. | A partir de su publicación en el diario oficial La Gaceta.
+Los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
+San José, 5 de junio del 2015.
+(Nota de Sinalevi: Por tener artículo propio cada procedimiento debe ser consultado en el sistema de forma independiente.)
