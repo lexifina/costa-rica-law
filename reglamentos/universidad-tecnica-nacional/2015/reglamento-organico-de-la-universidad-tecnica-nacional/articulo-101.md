@@ -1,0 +1,1 @@
+Artículo 101. Los preceptos del presente reglamento se verán integrados conforme la normativa escrita del ordenamiento jurídico administrativo de acuerdo al artículo 6 de la Ley General de la Administración Pública.

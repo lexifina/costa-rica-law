@@ -1,0 +1,5 @@
+CAPITULO V
+DEFENSORIA DE LOS ESTUDIANTES
+Artículo 44. La Defensoría de los Estudiantes es la dependencia responsable de velar por la promoción, la tutela y la defensa de los derechos y la protección de los intereses de los estudiantes de la Universidad Técnica Nacional.
+La Defensoría de los Estudiantes es un órgano adscrito a la Vicerrectoría de Vida Estudiantil; sin embargo el Defensor de los Estudiantes será nombrado por un período de cuatro añoscon base en la terna recomendada por una comisión integrada por los representantes estudiantiles ante el Consejo Universitario, y ante los Consejos de Sede, de acuerdo a los requisitos que establezca el Reglamento de la Defensoría Estudiantil.
+Transitorio I. Por una única vez, la primera elección del Defensor Estudiantil se realizará en el transcurso del año 2015, por un periodo de tres años. A partir de la segunda elección, que se realizará en el año 2018, el Defensor Estudiantil será nombrado por el período normal de cuatro años establecido en el artículo 44 anterior.

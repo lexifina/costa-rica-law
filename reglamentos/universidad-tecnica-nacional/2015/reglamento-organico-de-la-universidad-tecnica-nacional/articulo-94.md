@@ -1,0 +1,4 @@
+Artículo 94. Todo órgano colegiado se reunirá ordinariamente con la frecuencia y el día que ellos determinen a lo interno o bien conforme lo establezca la Ley General de Administración Pública, con aplicación de las siguientes reglas:
+1. Para reunirse en sesión ordinaria no hará falta convocatoria especial.
+2. Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito o bien en la forma en que el mismo órgano determine, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.
+3. No obstante, quedará válidamente constituido un órgano colegiado sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.

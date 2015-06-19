@@ -1,0 +1,1 @@
+Artículo 87. Los recursos de adición y aclaración podrán plantearse ante el órgano que tomó la resolución, dentro de los tres días hábiles que se contarán a partir del momento en que se comunique al interesado.

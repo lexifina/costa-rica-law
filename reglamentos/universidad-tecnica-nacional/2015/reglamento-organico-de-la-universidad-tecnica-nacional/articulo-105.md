@@ -1,0 +1,1 @@
+Artículo 105. Por norma específica se definirá en el Manual Descriptivo de Clases de Puestos de la Universidad, la naturaleza de la clase, las funciones, las responsabilidades, las competencias técnicas y los requisitos de los puestos establecidos en la estructura orgánica que se aprueba con el presente Reglamento.

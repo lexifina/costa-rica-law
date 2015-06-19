@@ -1,0 +1,3 @@
+Artículo 33. Los Vicerrectores son responsables de:
+1. Ejercer la dirección política y técnica superior, la coordinación general y específica, el seguimiento, la supervisión general y específica, y el control y la evaluación, que le correspondan según su área específica de gestión, mediante la emisión de las directrices y lineamientos correspondientes.
+2. Ejercer la dirección funcional en el área de gestión correspondiente a cada Vicerrectoría, en relación con los funcionarios responsables de dichas Áreas en las Sedes y Centros, para asegurar la buena gestión y el adecuado cumplimiento de las tareas y responsabilidades del área de gestión correspondiente.

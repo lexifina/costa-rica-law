@@ -1,0 +1,1 @@
+Artículo 6. La Universidad se organiza en sedes, programas, centros, escuelas, institutos, sistemas, direcciones, departamentos, unidades y otros órganos necesarios para su funcionamiento. Por norma especial se podrá ordenar la creación de las estructuras idóneas para la prestación de los servicios y el desarrollo académico.

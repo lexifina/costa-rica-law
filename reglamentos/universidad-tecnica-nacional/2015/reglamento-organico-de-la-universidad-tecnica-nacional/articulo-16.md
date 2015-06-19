@@ -1,0 +1,1 @@
+Artículo 16. El Tribunal Electoral está integrado por cinco miembros titulares con sus respectivos suplentes. Todos ellos serán nombrados por el Consejo Universitario por un periodo de cinco años, con excepción del representante estudiantil y su respectivo suplente, que serán electos por la Federación de Estudiantes de la universidad por el plazo de un año.
