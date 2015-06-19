@@ -28,3 +28,4 @@ Reglamento Autónomo de Servicios del Ministerio de Hacienda
 | 13 | 2009-06-10 | Decreto Ejecutivo 35354 (2009-06-10) |
 | 14 | 2010-12-07 | Decreto Ejecutivo 36442 (2010-12-07) |
 | 15 | 2012-03-07 | SINALEVI (sin norma nombrada) |
+| 16 | 2015-06-19 | Decreto Ejecutivo 39174 (2015-06-19) |
