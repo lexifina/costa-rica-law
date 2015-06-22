@@ -14,3 +14,4 @@ Calendario de sorteos de loterías y planes de premios 2015
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-17 | la propia norma |
+| 2 | 2015-06-22 | Acuerdo 365 (2015-06-22) |
