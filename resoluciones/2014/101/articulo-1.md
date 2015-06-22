@@ -1,4 +1,5 @@
 INTENDENCIA DE ENERGIA
+(Nota de Sinalevi: Mediante el punto II del por tanto de la resolución N° RJD-111-2015 del 22 de junio de 2015, se declaraó la nulidad parcial de esta resolución y por conexidad la de la resolución RIE-038-2015, únicamente en cuanto a la determinación del costo de explotación, en los términos señalados en el Considerando II, Apartado IV.1.a., de la resolución afectante)
 RIE-101-2014 del 18 de diciembre de 2014.
 APLICACIÓN ANUAL DE LA “METODOLOGÍA TARIFARIA DE REFERENCIA PARA PLANTAS DE GENERACIÓN PRIVADA HIDROELÉCTRICAS NUEVAS"
 ET-141-2014

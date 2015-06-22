@@ -15,3 +15,4 @@ Aplicación de la "Metodología Tarifaria de referencia para plantas de generaci
 | --- | --- | --- |
 | 1 | 2015-01-12 | la propia norma |
 | 2 | 2015-03-27 | Resolución 38 (2015-03-27) |
+| 3 | 2015-06-22 | Resolución 111 (2015-06-22) |
