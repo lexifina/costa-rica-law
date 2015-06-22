@@ -1,2 +1,0 @@
-Artículo 9°— El Consejo Asesor se reunirá ordinariamente al menos una vez cada dos meses. Cuando fuere necesario, el Presidente convocará a sesiones extraordinarias con al menos una semana de anticipación, previa comunicación de una agenda de discusión.
-Lo relativo al funcionamiento del órgano colegiado se aplicará el Título Primero, Capítulo Tercero de la Ley General de la Administración Pública.

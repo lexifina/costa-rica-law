@@ -1,4 +1,0 @@
-Transitorio II — Hasta tanto no se establezca una nueva actualización de la Clasificación Industrial Internacional Uniforme de todas las Actividades Económicas (CIIU), versión IV, se utilizará para las actividades empresariales como industriales, comerciales o de servicios, las siguientes clasificaciones:
-a) Actividad Industrial: de la partida 1010 hasta la 3320, con excepción de las partidas 2520, 3020 y 3040.
-b) Actividades Comerciales: De la partida 4510 hasta la 4799.
-c) Actividades de Servicios: de la partida 3510 a 3900; de la 4100 a la 4390; 4911 a la 5320; de la 5510 a la 5630; de la 5811 a la 6399; de la 6910 a la 7500; de la 7710 a la 7990; de la partida 8010 a la 8299; de la partida 8510 a la 8550; de la partida 8610 a la 8690; de la partida 9000 a la 9103 y de la 9200 a la 9329; de la partida 9511 a la 9603

@@ -1,1 +1,0 @@
-Artículo 34º—Las instituciones encargadas de tramitar y otorgar a la PYME los diferentes beneficios derivados de la condición PYME, deberán de verificar el cumplimiento de cualquier otro requisito adicional establecido en la legislación vigente.

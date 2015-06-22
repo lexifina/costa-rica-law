@@ -1,1 +1,0 @@
-Artículo 19° — El MEIC coordinará con una institución académica, la labor de capacitación para la formación de Gestores PYME. En este proceso podrán participar funcionarios tanto de instituciones públicas como privadas.

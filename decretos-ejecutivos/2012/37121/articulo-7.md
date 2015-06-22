@@ -1,2 +1,0 @@
-Artículo 7°—Los miembros del Consejo Asesor tendrán el carácter de propietarios por el período establecido de nombramiento o la elección del jerarca de mayor rango de la institución que representa.
-Siendo causal de sustitución de sus miembros señalado en los incisos h) y i), del artículo 4, la ausencia injustificada a tres reuniones del Consejo Asesor, en estos casos, el presidente del Consejo solicitará a la institución correspondiente el nombramiento de nuevos representantes.

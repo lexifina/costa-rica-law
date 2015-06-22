@@ -1,1 +1,0 @@
-Transitorio I— Aquellas solicitudes presentadas para obtener la condición PYME, con anterioridad a la publicación del presente reglamento, se regirán por las disposiciones establecidas en el Decreto Ejecutivo Nº 33111-MEIC del 06 de abril de 2006. Una vez que se cumpla con la vigencia de su condición PYME, deberá cumplir con lo establecido en el presente reglamento.
