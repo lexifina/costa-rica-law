@@ -1,0 +1,15 @@
+CAPÍTULO VII
+De los usuarios de los servicios de transporte:
+deberes y responsabilidades
+Artículo 18.—Son usuarios todas las personas autorizadas que se transporten en vehículos de A y A, independientemente de su relación de servicios con AyA y deben cumplir con las siguientes disposiciones:
+1)Conocer y cumplir las disposiciones establecidas en el presente reglamento.
+2)Portar el carné, orden patronal o acción de personal que lo identifica como funcionario del Instituto, de no hacerlo el conductor del vehículo estará facultado para negarle el servicio; salvo el caso de particulares cuando medien las autorizaciones correspondientes según este reglamento o la Ley de Tránsito.
+3)Las personas que laboran para la institución bajo la modalidad por contrato, podrán ser trasladadas en vehículos institucionales, pero necesariamente deberán portar una credencial extendida por la Dirección Gestión de Capital Humano.
+4)Hacer uso de los servicios de transportes que presta el AyA, en situaciones plenamente justificadas y por razón del desempeño de labores propias de la Institución.
+5)Mantener una actitud de respeto hacia el conductor quien es el encargado del vehículo y las demás personas que viajan dentro del vehículo, así como con los transeúntes, autoridades y demás conductores.
+6)Reportar al Encargado de Maquinaria y Equipo respectivo o Encargado de Transportes respectivo, cualquier irregularidad que observe durante el traslado, ya fuese en el vehículo o en el cumplimiento del presente reglamento.
+7)Ningún usuario está autorizado para:
+A. Obligar al conductor a continuar operando un vehículo cuando sea necesario detener la marcha debido a un posible desperfecto mecánico o eléctrico, así como, a las malas condiciones del clima o bien que se presenten derrumbes o desastres en la vía, al igual que cuando el conductor no se encuentre en óptimas condiciones físicas para realizar o continuar la gira. De igual manera el conductor no estará obligado a conducir cuando lo impidan otras circunstancias que pongan en riesgo la seguridad de los pasajeros, los bienes de la institución o de terceros.
+B. Obligar al conductor a conducir un vehículo en un lapso de tiempo mayor a 8 horas ininterrumpidamente, para lo cual también se deberá considerar las condiciones climatológicas y del vehículo. De igual manera, se deberá permitir al conductor descansar cuando físicamente lo requiera.
+C. Exigir la conducción del vehículo a una velocidad mayor o menor de la permitida por ley. En el primer caso no podrá aducirse urgencia en el servicio.
+D. Obligar al conductor a trasladarlo cuando éste se encuentra en estado de ebriedad o de intoxicación generada por algún tipo de droga. De igual manera queda prohibido a los pasajeros, fumar dentro del vehículo, así como, externar improperios verbal o físicamente contra cualquier persona.

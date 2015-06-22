@@ -1,0 +1,1 @@
+Artículo 32.—Cada Subgerencia de Área, Directores Nacionales, Directores Regionales o Directores de UEN o a quién delegue serán los responsables de su debido uso y distribución del presupuesto de combustible.

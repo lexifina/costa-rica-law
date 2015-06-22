@@ -1,0 +1,1 @@
+Artículo 11.—La Dirección Centro Servicios de Apoyo cuando lo considere conveniente, convocará a talleres de capacitación, trabajo y planificación, a los encargados del Área de Maquinaria y Equipo locales, a efecto de lograr una comunicación más fluida y efectiva respecto de las políticas, directrices y procedimientos en materia de transportes.

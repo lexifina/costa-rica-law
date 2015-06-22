@@ -1,0 +1,1 @@
+Artículo 31.—Cuando se requiera de un aumento en la cuota de combustible, sea temporal o fijo, deberá presentarse ante la Dirección Centro Servicios de Apoyo la debida justificación de la cantidad solicitada, para la respectiva aprobación.

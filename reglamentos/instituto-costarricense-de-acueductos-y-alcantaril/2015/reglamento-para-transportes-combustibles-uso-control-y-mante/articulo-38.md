@@ -1,0 +1,4 @@
+CAPÍTULO XIV
+Compra y disposición de vehículos, maquinaria, equipo
+especial, repuestos y accesorios
+Artículo 38.—La Dirección Centro Servicios de Apoyo a través de la Dirección de Proveeduría y/o al Área Funcional de Maquinaria y Equipo, será la única dependencia autorizada para realizar la compra y disposición de vehículos, maquinarias y equipos especiales y accesorios. Para ello se basará en Plan de Sustitución de Flota Automotora presentado a la Gerencia General, donde se clasifican los vehículos de acuerdo a la antigüedad, valor fiscal, costos de mantenimiento, rendimiento de combustible, estado de la carrocería y mecánica, así como, el Kilometraje recorrido, considerando las peticiones que en ese sentido le formulen las diferentes regiones y conforme a los recursos disponibles se presentará una propuesta con todas las opciones posibles a la Gerencia General o Subgerencia General.

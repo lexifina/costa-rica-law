@@ -1,0 +1,2 @@
+Artículo 36.—(Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo . No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo pero sin texto)
+(Nota de Sinalevi: Mediante Fe de Erratas publicada en La Gaceta N° 144 del 27 de julio de 2015, página 76, el Instituto Costarricense de Acueductos y Alcantarillados, indicó que no existe este artículo)
