@@ -1,1 +1,0 @@
-Artículo 22º—En caso de que las instituciones indicadas en el artículo anterior, determinen que los emprendedores tratan de inducir a error o engaño para obtener los beneficios respectivos, se les suspenderá el goce de estos. Lo anterior sin perjuicio de las demás acciones legales que correspondan.
