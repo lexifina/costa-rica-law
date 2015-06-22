@@ -1,1 +1,0 @@
-Artículo 7º—El Comité Cantonal en su carácter de órgano encargado del deporte y la recreación, será el único facultado para atribuir la potestad de representación del cantón de Esparza a equipos o atletas en los campeonatos o torneos nacionales o internacionales.

@@ -1,1 +1,0 @@
-Artículo 38.—El quórum para sesionar será de tres de sus miembros. Los acuerdos se tomarán por simple mayoría de votos presentes, salvo cuando se estipule en este reglamento un número mayor de votos, en caso de empate en una votación, el Presidente tendrá voto calificado (doble).

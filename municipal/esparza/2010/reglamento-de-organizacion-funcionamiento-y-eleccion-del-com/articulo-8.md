@@ -1,1 +1,0 @@
-Artículo 8º—Las Asociaciones Deportivas presentarán sus planes de trabajo al Comité Cantonal para su debida coordinación. Las Asociaciones que van a representar al Cantón así deberán hacerlo saber en su programación.

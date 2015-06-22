@@ -1,1 +1,0 @@
-Artículo 39.—Todo miembro deberá justificar por escrito, cuando proceda, las razones de su inasistencia a las sesiones a más tardar en la sesión siguiente a su ausencia. De no hacerlo, su ausencia será considerada injustificada y sancionable.

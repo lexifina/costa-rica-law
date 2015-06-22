@@ -1,1 +1,0 @@
-Artículo 50.—Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y del secretario del Comité. El Libro de actas será autorizado por la Auditoría Interna de la Municipalidad de acuerdo con la regulación establecida por dicha dependencia para estos efectos.

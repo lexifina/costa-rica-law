@@ -1,1 +1,0 @@
-Artículo 53.—Las comisiones deberán guiarse en lo que corresponda a lo estipulado en el presente Reglamento, en lo enunciado en el Código Municipal y las directrices emanadas por el Comité cantonal de Deportes.

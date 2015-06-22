@@ -1,1 +1,0 @@
-Artículo 66.—Queda terminantemente prohibido el uso de carácter personal de dineros provenientes de los ingresos de actividades deportivas ó recreativas, so pena de expulsión por incumplimiento de esta disposición, debiendo el responsable reintegrar el dinero, sin perjuicio de la responsabilidad civil y penal en que pudiera incurrir con su conducta.

@@ -1,1 +1,0 @@
-Artículo 41.—Cuando algún miembro incurra en alguna de las causales del artículo anterior, la Junta Directiva lo comunicará por escrito razonado al Concejo municipal, dicho órgano colegiado tomará las acciones administrativas correspondientes a efecto de la inmediata reposición del miembro separado.

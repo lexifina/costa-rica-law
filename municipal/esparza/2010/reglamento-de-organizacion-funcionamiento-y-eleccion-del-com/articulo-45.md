@@ -1,1 +1,0 @@
-Artículo 45.—Para que un acuerdo o fallo quede en firme se requiere, la votación favorable y así expresado de las dos terceras partes del total de los miembros del organismo o por mayoría simple de los presentes al aprobar el acta. Se requiere igual cantidad de votos con los que fue aprobado para modificar o revocar cualquier acuerdo o fallo.
