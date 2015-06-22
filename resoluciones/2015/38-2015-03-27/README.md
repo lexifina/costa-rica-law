@@ -14,3 +14,4 @@ Recurso revocatoria contra resolución RIE-101-2014 "Aplicación de la "Metodolo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-08 | la propia norma |
+| 2 | 2015-06-22 | Resolución 111 (2015-06-22) |
