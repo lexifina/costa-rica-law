@@ -1,2 +1,0 @@
-Transitorio I.—(Derogado mediante el artículo 1 del decreto ejecutivo N°33076 del 24 de marzo del 2006).
-(NOTA DE SINALEVI:La derogación a este artículo realizada por el decreto ejecutivo N° 33076 del 24 de marzo de 2006, posteriormente fue derogada por el artículo 1° del decreto ejecutivo N° 34189 del 4 de octubre de 2007.Se advierte que dicha derogación no se ha aplicado a este texto, debido a que el ente emisor no indica expresamente que como consecuencia, debe volver este al estado anterior a dicha derogación).

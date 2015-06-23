@@ -1,2 +1,0 @@
-Artículo 30.—Cuando la Dirección de Regulación de la Salud apruebe la lista de productos farmacéuticos o medicamentos multiorigen de riesgo sanitario, dicha lista será publicada en el Diario Oficial La Gaceta. La lista será revisada y actualizada cada año. La ampliación de la lista entrará a regir un año después de la publicación de los correspondientes productos de referencia.
-(Así reformado por el artículo 5° del decreto ejecutivo N° 36395 del 13 de octubre de 2010)

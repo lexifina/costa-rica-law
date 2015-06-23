@@ -1,1 +1,0 @@
-Transitorio II.—Los estudios de validación de métodos y de estabilidad a que hace referencia el artículo 27 incisos d), i), entrarán a regir seis meses después de publicada la normativa que regula los estudios correspondientes.

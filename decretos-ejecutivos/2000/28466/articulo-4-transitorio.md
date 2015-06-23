@@ -1,3 +1,0 @@
-Transitorio IV.—Las solicitudes de registro de medicamentos presentadas antes de la publicación del presente Reglamento en la (*) Dirección de Atención al Cliente del Ministerio de Salud, conteniendo todos los requisitos, se regirán por las disposiciones del Decreto Ejecutivo No 24008-S del 22 de diciembre de 1994, y sus reformas.
-(Así adicionado mediante el artículo 1 del decreto ejecutivo N°28596 del 22 de marzo del 2000)
-(*) (Así modificada su denominación por el artículo 2° del decreto ejecutivo N° 35080 del 10 de febrero del 2009)

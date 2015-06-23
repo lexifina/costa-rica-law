@@ -1,2 +1,0 @@
-Artículo 55.—Una vez vencida la protección de los datos de prueba del producto farmacéutico nuevo, el producto multiorigen que tenga un registro sanitario temporal podrá ser comercializado en el territorio nacional. Para estos efectos, el solicitante debe solicitar al Ministerio de Salud la emisión del certificado de registro sanitario, el cual mantendrá el mismo número de registro otorgado anteriormente, eliminando las siglas “temp.”
-(Así adicionado por el artículo 7° del decreto ejecutivo N° 36395 del 13 de octubre de 2010)

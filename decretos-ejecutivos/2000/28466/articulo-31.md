@@ -1,1 +1,0 @@
-Artículo 31.—Para la inscripción de alimentos dietéticos, se requiere presentar, además de lo establecido en los artículos 26 y 27 del presente reglamento, una declaración del valor nutricional del producto, según lo establecido en la norma Codex para etiquetado y declaración de propiedades para alimentos para fines medicinales especiales, Codex Stan 180-1991.
