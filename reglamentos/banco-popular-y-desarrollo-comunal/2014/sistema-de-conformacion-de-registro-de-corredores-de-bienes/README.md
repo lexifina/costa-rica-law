@@ -14,3 +14,4 @@ Sistema de conformación de registro de corredores de bienes raíces para la ven
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-09 | la propia norma |
+| 2 | 2015-06-23 | Reglamento 5287 (2015-06-23) |
