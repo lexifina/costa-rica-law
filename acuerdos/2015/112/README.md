@@ -14,3 +14,4 @@ El Director de Seguridad Privada podrá autorizar a personas para que ejerzan co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-23 | la propia norma |
+| 2 | 2015-06-23 | Acuerdo 122 (2015-06-23) |
