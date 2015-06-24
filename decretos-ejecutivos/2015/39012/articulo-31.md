@@ -1,0 +1,1 @@
+Artículo 31.—De la Dirección Ejecutiva. La Dirección Ejecutiva es la instancia de dirección administrativa y de coordinación de toda la acción institucional, y está conformada por el (la) Director(a) Ejecutivo(a), la secretaría de actas y el Director Administrativo-Financiero.

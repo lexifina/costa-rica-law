@@ -1,0 +1,8 @@
+Artículo 12.—Del nombramiento de las y los miembros del Comité Nacional. El nombramiento de las y los miembros del Comité Nacional se efectuará de la siguiente forma:
+a) Los nombramientos de las y los miembros del Comité Nacional serán efectuados, por un período de cuatro años, pudiendo ser reelectos quienes se desempeñaren en esos cargos.
+b) En el caso de instituciones estatales, se solicitará al jerarca la designación de la respectiva persona representante.
+c) En el caso de miembros de libre escogencia del Poder Ejecutivo, el nombramiento se efectuará a partir de una terna que se presentará por parte del (de la) Ministro(a) del MAG.
+d) En el caso de la representación de los Clubes 4-S, los de mujeres 4-S nombrarán la representante mujer, mayor de 18 años y de los clubes 4-S juveniles nombrarán su representante hombre, según el procedimiento para este efecto que apruebe el Comité Nacional. El CONAC 4-S presentará a la o el Ministro del MAG, una terna por Clubes de Mujeres y otra por Clubes Juveniles, las cuales serán conformadas según el procedimiento que para este efecto apruebe el Comité Nacional.
+e) Si dentro del término, de treinta días posteriores a la solicitud del CONAC 4-S, las instituciones estatales no presentaren la designación de su respectivo representante, el Poder Ejecutivo procederá de oficio, a efectuar los nombramientos correspondientes, garantizando las representaciones indicadas por ley.
+f) Cuando ocurriere una vacante, el nombramiento de la persona sustituta se hará dentro del término de un mes y la persona nombrada lo será por el resto del periodo legal.
+g) Corresponderá al CONAC-4-S, una vez constituido el Comité, informar por algún medio tecnológico de sus integrantes y vigencia de los nombramientos.

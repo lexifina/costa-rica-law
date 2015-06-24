@@ -1,0 +1,7 @@
+CAPÍTULO VI
+De las Sesiones del Comité Nacional
+Artículo 21.—De la convocatoria y periodicidad de las sesiones.
+a) El Comité Nacional se reunirá ordinariamente una vez cada dos meses y, extraordinariamente, las veces que sea necesario, cuando sea convocado por el (la) Presidente(a) del Comité Nacional o por tres o más de sus miembros y lo harán en el lugar, día y hora que el mismo determine. Para reunirse en sesión ordinaria no hará falta convocatoria especial. No obstante el orden del día a tratar debe enviarse a las y los miembros al menos tres días hábiles antes de la próxima sesión.
+b) Para reunirse en sesión extraordinaria será siempre necesaria una convocatoria por escrito, con una antelación mínima de veinticuatro horas, salvo los casos de urgencia. A la convocatoria se acompañará copia del orden del día, salvo casos de urgencia.
+c) No obstante, quedará válidamente constituido el Comité Nacional, sin cumplir todos los requisitos referentes a la convocatoria o al orden del día, cuando asistan todos sus miembros y así lo acuerden por unanimidad.
+d) La asistencia puntual de las y los miembros del Comité Nacional a las sesiones les dará derecho a cobrar dietas y estas serán las únicas remuneraciones que podrán percibir por sus servicios, en el desempeño de sus funciones. Por vía reglamentaria y conforme a las disposiciones de la Ley General de la Administración Pública y otras normas conexas, se regularán el monto y el límite de esas dietas.

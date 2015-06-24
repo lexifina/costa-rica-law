@@ -1,0 +1,1 @@
+Artículo 19.—Sustitución de presidente(a) y secretario(a). En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justificada, el Presidente(a) solo podrá ser sustituido por el (la) Ministro(a) o Viceministro(a) de Agricultura y Ganadería, según corresponda y el (la) Secretario(a) deberá ser sustituido(a) por un (una) Secretario(a) suplente.

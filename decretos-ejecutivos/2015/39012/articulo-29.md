@@ -1,0 +1,1 @@
+Artículo 29.—Aplicación de Normativa Supletoria. En lo no previsto en el presente reglamento en materia de órganos colegiados, se aplicará supletoriamente lo dispuesto en el Título II “De los Órganos de la Administración, Capítulo III “De los Órganos Colegiados” de la Ley General de la Administración Pública, del Libro I “Del Régimen Jurídico”.

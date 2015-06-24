@@ -1,0 +1,1 @@
+Artículo 39.—El Ministerio de Agricultura y Ganadería incluirá, dentro de su presupuesto anual, los recursos, humanos y materiales, necesarios asignados al Consejo para el desarrollo eficaz de sus actividades en el territorio nacional. Asimismo, le brindará el apoyo interinstitucional necesario para el adecuado cumplimiento de sus fines.
