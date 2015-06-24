@@ -1,1 +1,0 @@
-Artículo 24.—Los hornos de cremación podrán ser utilizados para reducir a cenizas cadáveres, restos orgánicos procedentes de hospitales, de salas de necropsias y laboratorios de anatomía patológica y restos que hayan sido exhumados en otros cementerios.

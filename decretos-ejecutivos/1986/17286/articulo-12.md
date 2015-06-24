@@ -1,2 +1,0 @@
-Artículo 12°—Solamente cuando se trate de huesos humanos procedentes de un osario común, en que es imposible identificar los restos de cada uno de los difuntos, el Departamento de Vigilancia Epidemiológica, podrá autorizar la cremación en conjunto, con base en la lista nominativa certificada por la Dirección del Cementerio específicamente autorizado.
-En todos los otros casos, aún cuando se trate de restos óseos, deberá efectuarse la cremación individual de los restos de cada difunto.

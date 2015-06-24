@@ -1,1 +1,0 @@
-Artículo 31.—De conformidad con lo que establece el artículo 363 de la Ley General de Salud, procederá la clausura de todo establecimiento que debiendo ser autorizado por la autoridad de saldrá funcione sin dicha autorización.

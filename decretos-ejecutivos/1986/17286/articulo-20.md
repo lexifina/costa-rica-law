@@ -1,1 +1,0 @@
-Artículo 20.—Cada cementerio específicamente autorizado deberá redactar el reglamento interno en cuanto a cremación se refiere, el cual necesariamente será autorizado por el Departamento de Vigilancia Epidemiológica e Ingeniería Sanitaria del Ministerio.

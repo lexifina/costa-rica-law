@@ -1,1 +1,0 @@
-Artículo 8°—Toda cremación de cadáveres y de restos humanos deberá ser inscrita previamente en el Registro de Cremaciones que llevará el Departamento de Vigilancia Epidemiológica del Ministerio, quien será el responsable de extender el permiso de cremación y de velar porque se cumplan las normas técnicas y administrativas del presente Reglamento.

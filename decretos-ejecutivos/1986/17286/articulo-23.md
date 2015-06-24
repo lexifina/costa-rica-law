@@ -1,1 +1,0 @@
-Artículo 23.—La evacuación de residuos de los hornos crematorios al exterior debe de estar dentro de las normas que aplica el Ministerio para emisiones atmosférica a fin de no producir contaminación ambiental. Además dichos hornos deben ser manejados por personal calificado y recibir el mantenimiento apropiado que permita el uso del mismo.

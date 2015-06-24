@@ -1,1 +1,0 @@
-Artículo 4°—Los Departamentos de Vigilancia Epidemiológica e Ingeniería Sanitaria del Ministerio, serán los responsables de normar, regular, controlar y evaluar la organización y el funcionamiento de todos los crematorios del país.

@@ -1,1 +1,0 @@
-Artículo 17.—La Administración del cementerio específicamente autorizado, deberá presentar al final de cada año natural al Departamento de Vigilancia Epidemiológica del Ministerio un informe estadístico de las cremaciones que se hubieren llevado a cabo durante el año. El plazo de presentación del informe no deberá de exceder de noventa días posteriores al término de ese año.

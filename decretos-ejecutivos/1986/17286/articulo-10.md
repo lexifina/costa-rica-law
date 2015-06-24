@@ -1,2 +1,0 @@
-Artículo 10°—Podrá efectuarse la cremación de cadáveres exhumados en cualquier fecha después del fallecimiento. Si no han transcurrido cinco ańos desde el día de la defunción, deberá obtenerse la autorización escrita de la Autoridad Judicial competente, previa al registro y permiso del Departamento de Vigilancia Epidemiológica del Ministerio.
-El transporte de los restos exhumados deberá efectuarse en bolsa plástica de material resistente debidamente sellada y contenida a su vez, en caja de madera.
