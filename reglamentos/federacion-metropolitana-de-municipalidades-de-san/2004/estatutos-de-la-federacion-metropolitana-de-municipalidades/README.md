@@ -15,3 +15,4 @@ Estatutos de la Federación Metropolitana de Municipalidades de San José, por s
 | --- | --- | --- |
 | 1 | 2005-03-21 | la propia norma |
 | 2 | 2014-06-20 | Reglamento 0 (2014-06-20) |
+| 3 | 2015-06-24 | Reglamento 11 (2015-06-24) |
