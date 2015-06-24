@@ -1,2 +1,1 @@
-Artículo 65. —Los cementerios que cuenten con permiso sanitario de funcionamiento y carecen de crematorio, pero desean instalar este servicio, deberán solicitar la autorización ante el Ministerio, para la aprobación dentro del área del cementerio, así como el visado del proyecto, planos constructivos de la obra, debiendo cumplir al efecto con lo establecido en el Decreto Nº 17286-S del 12 de noviembre de 1986.
-(Así reformado por el artículo 69 del decreto ejecutivo N° 34728 de 28 de mayo de 2008).
+Artículo 65. — (Derogado por el artículo 27 del Reglamento para la operación de hornos crematorios, aprobado mediante decreto ejecutivo N° 39087 del 24 de junio del 2015)
