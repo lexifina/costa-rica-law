@@ -1,0 +1,3 @@
+Artículo 8º—Personal: El Centro estará integrado por una persona Administradora que deberá contar como mínimo con el título de Licenciatura en Preescolar o carrera afín.
+Por cada grupo de 25 niños o niñas se deberá contar con una persona profesional docente, con el grado mínimo de bachillerato en Preescolar o carrera afín y una persona asistente con al menos noveno año de escolaridad.
+Además se deberá contar con una persona encargada de cocina que cuente con el curso de manipulación de alimentos y otra encargada del aseo de las instalaciones (Misceláneo) y un vigilante o guarda de seguridad de las instalaciones.

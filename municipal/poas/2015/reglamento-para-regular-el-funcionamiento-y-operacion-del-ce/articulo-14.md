@@ -1,0 +1,1 @@
+Artículo 14.—Nombramiento de Comisión Especial. Se formará una Comisión integrada por al menos 5 miembros, ente ellos: un miembro del Concejo Municipal, un representante de la Oficina Local del PANI de Alajuela, un representante del IMAS, un representante de la Oficina de Gestión Social Municipal, un representante del Área Rectora de Salud y un representante de Fuerza Pública.

@@ -1,0 +1,1 @@
+Artículo 39.—Del Interés Superior del Niño. En el caso, de que el proyecto del Centro de Cuido y Desarrollo Infantil, no sea contemplado dentro de los Planes Operativos de las instituciones involucradas o en los planes del Gobierno Central, se procurará que prevalezca el Interés Superior de las Personas Menores de Edad, contemplado en el Código de la Niñez y Adolescencia.
