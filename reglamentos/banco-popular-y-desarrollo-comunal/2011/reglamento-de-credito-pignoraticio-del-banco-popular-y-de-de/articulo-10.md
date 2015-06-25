@@ -1,1 +1,1 @@
-Artículo 10.—Ampliación del Plazo del crédito pignoraticio: El plazo del crédito podrá ampliarse siempre y cuando la garantía sea satisfactoria y se cumplan los demás requisitos que establecen el presente Reglamento y sus políticas.
+Artículo 10.—Derogado.

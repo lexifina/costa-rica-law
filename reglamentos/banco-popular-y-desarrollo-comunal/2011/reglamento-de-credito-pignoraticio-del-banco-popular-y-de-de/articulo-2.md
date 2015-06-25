@@ -1,2 +1,2 @@
-Artículo 2º—De los sujetos de crédito: Cualquier persona física mayor a 18 años, costarricense o ciudadano extranjero debidamente identificado, podrá ser sujeto de crédito siempre y cuando no tenga operaciones morosas, (excepto cuando sea para rescatar una operación de pignoración de varias próximas a rematar), en cobro judicial, incobrables, o adjudicadas con saldo al descubierto.
-Todo cliente podrá suscribir, en forma voluntaria, una póliza de vida para garantizar el crédito en caso de muerte.
+Artículo 2º—De las personas sujetas de crédito: Cualquier persona física mayor a 18 años, costarricense o residente debidamente identificada, podrá ser sujeta de crédito siempre y cuando no tenga operaciones morosas, en cobro judicial, incobrables, o adjudicadas con saldo al descubierto, ello sin perjuicio de las disposiciones y jurisprudencia aplicable.
+La clientela podrá suscribir, en forma voluntaria, una póliza de vida para garantizar el crédito en caso de muerte.
