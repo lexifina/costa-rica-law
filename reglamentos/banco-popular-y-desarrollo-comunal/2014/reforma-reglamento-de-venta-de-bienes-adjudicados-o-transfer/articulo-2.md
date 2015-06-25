@@ -1,7 +1,0 @@
-2. Del ‘Reglamento para el Pago de Comisiones por Venta de Bienes’:
-Artículo 1º—El presente reglamento se dicta con fundamento en los artículos 24 b) y 25 de la Ley Orgánica del Banco Popular y de Desarrollo Comunal, y regula el pago de comisiones a los promotores de venta de los siguientes bienes:
-a. Los que vayan a rematarse en procesos judiciales donde el Banco sea acreedor, siempre que circunstancias especiales, tales como el precio del bien a rematarse, las posibilidades reales de venta del bien, u otras, determinen que el mecanismo es conveniente para el Banco, según criterio de la respectiva Oficina Contralora de Cobro del Banco, y previa autorización escrita del Subgerente de Operaciones; de todo lo anterior se dejará constancia en el expediente.
-Dada la autorización, el Proceso de Bienes y Servicios comunicará a todos los promotores, vía notificación o publicación en cualquier diario de circulación nacional, el interés del Banco en sus servicios en el respectivo remate, con no menos de quince días hábiles de antelación a su celebración.
-b. Derogado en sesión de Junta Directiva Nacional Nº 5169, celebrada el 15 de mayo del 2014.
-c. Los declarados en desuso, entendiéndose por tales los no indicados en los incisos anteriores, y que a juicio motivado y por escrito del Subgerente de Operaciones, no se utilicen por haber sido sustituidos por otros, por no requerirse, o porque por su estado no estén en condiciones de prestar ningún cometido a la Institución.
-Rige a partir de su publicación en el Diario Oficial La Gaceta
