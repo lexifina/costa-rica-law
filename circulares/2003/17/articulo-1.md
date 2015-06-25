@@ -1,10 +1,10 @@
-CORTE SUPREMA DE JUSTICIA
-SECRETARIA GENERAL
 CIRCULAR 17-2003
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 165-2020 del 11 de agosto del 2020, publicada en el Boletín Judicial N° 164 del 27 de agosto del 2020)
 (Nota de Sinalevi: La presente circular fue Reiterada en virtud del acuerdo tomado por el Consejo Superior en sesión N° 95-11, celebrada el 10 de noviembre de 2011, artículo XLIV)
 ASUNTO: Deber de participación en redes implementadas por el Ministerio de Seguridad Pública contra la violencia intrafamiliar.
 A TODAS LAS AUTORIDADES JUDICIALES DEL PAÍS QUE CONOCEN MATERIAS DE FAMILIA Y VIOLENCIA DOMÉSTICA
 SE LES HACE SABER QUE:
 El Consejo Superior, en sesión No 8-03, celebrada el 6 de febrero del 2003, artículo LXIII, a solicitud de la Comisión de la Jurisdicción de Familia, Violencia Doméstica y Penal Juvenil, dispuso comunicarles que en adelante deben participar y unirse, conjuntamente a las labores de redes locales que ha implementados el Instituto Nacional de la Mujer, con el fin de combatir la violencia intrafamiliar, cuya participación puede darse personalmente o bien a través de los profesionales en Psicología y Trabajo Social de cada despacho, lo anterior por ser un asunto de interés Institucional.
 (Así aclarado por circular N° 26 de 13 de marzo de 2003).
+(Nota de Sinalevi: Mediante circular N° 107 del 25 de junio de 2015, aprobada en sesión N° 48-15 del 21 de mayo de 20015, y publicada en el Boletín Judicial N° 166 del 26 de agosto de 2015, se acordó reiterar y aclarar la presente norma en el sentido de que: "...“El Consejo Superior, en sesión Nº 08-03, celebrada el 6 de febrero del 2003, artículo LXIII, a solicitud de la comisión de la jurisdicción de familia, violencia doméstica y penal juvenil, dispuso comunicarles que en adelante deben participar y unirse, conjuntamente a las labores de redes locales que ha implementado el Instituto Nacional de la Mujer, con el fin de combatir la violencia intrafamiliar, cuya participación puede darse personalmente o bien a través de los profesiones en psicología y trabajo social de cada despacho, lo anterior por ser un asunto de interés institucional”.)
 San José, 25 de febrero del 2003.
