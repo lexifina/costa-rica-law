@@ -1,2 +1,1 @@
-Artículo 31.—Los ascensos serán recomendados por los Directores Generales correspondientes, previa información que al respecto deberán solicitar éstos a la Unidad de Recursos Humanos y serán resueltos por el Contralor General.
-Los traslados y permutas serán acordados por los Directores Generales y tramitados por la Unidad de Recursos Humanos, excepto que se trate de puestos incluidos en el inciso a) del Artículo 4, cuya autorización le compete al Contralor General.
+Artículo 31.—(Derogado por resolución R-DC-065 del 25 de junio de 2015)
