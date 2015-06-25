@@ -1,0 +1,1 @@
+Artículo 7º—Serán considerados como incorporados al dominio público del municipio una vez tomado el Acuerdo Municipal de recibimiento que será el insumo para que en el futuro cuando se realice el Plan Regulador sean incorporados todos estos terrenos municipales como parte del mapa oficial.

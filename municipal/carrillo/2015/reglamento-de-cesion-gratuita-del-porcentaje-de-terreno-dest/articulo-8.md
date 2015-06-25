@@ -1,0 +1,1 @@
+Artículo 8º—Para efectos de la gestión de cobro del impuesto sobre bienes inmuebles de aquellas propiedades trasladadas al dominio público producto del fraccionamiento, todo proceso de cobro de dicho impuesto dejará de generarse a partir de la firmeza administrativa del Acuerdo del Concejo Municipal.
