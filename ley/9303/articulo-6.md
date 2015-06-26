@@ -1,0 +1,2 @@
+ARTÍCULO 6.- La Junta Directiva del Conapdis nombrará, dentro de su seno, a una persona para que ocupe el cargo de la presidencia, a una persona para el cargo de la vicepresidencia y a una persona para el cargo de la secretaría. Estos nombramientos tendrán un período de un año y quienes los ocupen podrán ser reelegidos.
+Cuando estén ausentes la presidencia y la vicepresidencia de la Junta Directiva, esta nombrará a uno de sus miembros como presidencia ad hoc para el desempeño de sus funciones.
