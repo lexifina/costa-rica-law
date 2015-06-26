@@ -1,0 +1,2 @@
+Artículo 5º—Deberá el Servicio Fitosanitario del Estado realizar las gestiones necesarias para la adquisición de nuevos escáneres de contenedores de carga dedicados a la exportación e importación de mercancías, para que se alcance una cobertura nacional.
+Para cumplir lo dispuesto en este artículo, deberán todas las instancias del Gobierno Central y se insta a las respectivas del Sector Descentralizado para que coadyuven en todo lo que sea necesario para alcanzar el objetivo planteado.
