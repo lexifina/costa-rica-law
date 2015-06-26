@@ -1,0 +1,1 @@
+Artículo 15.—Monto mínimo de treinta y dos mil colones, este rubro incluye: Una primera consulta nutricional completa con auriculoterapia, y posteriormente tres sesiones semanales únicamente de auriculoterapia. Este arancel no podrá fraccionarse y deberá ser cancelado en la primera cita.

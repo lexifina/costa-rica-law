@@ -1,0 +1,1 @@
+Artículo 27.—Se deroga “El Arancel de Honorarios por Servicios Profesionales en Nutrición” del 22 de enero del 2012, publicado en el Diario Oficial La Gaceta N° 109 el día miércoles 6 de junio del 2012.
