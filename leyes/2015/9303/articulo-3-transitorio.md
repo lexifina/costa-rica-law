@@ -1,0 +1,1 @@
+TRANSITORIO III.- Las funcionarias y los funcionarios del Consejo Nacional de Rehabilitación y Educación Especial (CNREE), a la entrada en vigencia de la presente ley, se trasladarán de pleno derecho al Consejo Nacional de Personas con Discapacidad (Conapdis), conservando todos sus derechos.

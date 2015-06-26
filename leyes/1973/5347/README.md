@@ -1,6 +1,6 @@
 # Creación del Consejo Nacional de Rehabilitación y Educación Especial
 
-Ley N° 5347 del 1973-09-03. SINALEVI, ficha 10613: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10613&param2=11366&param3=1>.
+Ley N° 5347 del 1973-09-03. SINALEVI, ficha 10613: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=10613&param2=100851&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1973-09-03 | Ley 5347 | 1973-09-03 |
 | 2 de 3 | 1992-04-03 | Ley 7293 | 1973-09-03 |
+| 3 de 3 | 2015-06-26 | Ley 9303 | 2015-05-26 |

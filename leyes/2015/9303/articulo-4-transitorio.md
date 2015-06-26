@@ -1,0 +1,1 @@
+TRANSITORIO IV.- Todos los bienes muebles e inmuebles que pertenecen al Consejo Nacional de Rehabilitación y Educación Especial, al momento de la publicación de esta ley, pasarán a formar parte del patrimonio del Consejo Nacional de Personas con Discapacidad (Conapdis).

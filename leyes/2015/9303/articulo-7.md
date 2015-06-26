@@ -1,0 +1,4 @@
+ARTÍCULO 7.- La Junta Directiva del Conapdis se reunirá de forma ordinaria dos veces al mes y, de forma extraordinaria, cuando lo considere necesario. Las sesiones serán convocadas por escrito en formato accesible y con doce horas de anticipación por lo menos, por la presidencia o de oficio por la Dirección Ejecutiva, a solicitud de siete de sus integrantes.
+En las sesiones extraordinarias solo se conocerán los asuntos contenidos en la convocatoria oficial.
+El director o la directora ejecutivo deberá asistir a las reuniones de la Junta Directiva con derecho a voz pero sin voto.
+Las personas que ocupen cargos de suplentes asistirán a las sesiones únicamente cuando les corresponda sustituir a los respectivos titulares del cargo y lo harán con los mismos derechos y potestades que el miembro propietario.

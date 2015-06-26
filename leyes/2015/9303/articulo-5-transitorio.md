@@ -1,0 +1,1 @@
+TRANSITORIO V.- Los recursos patronales que a la fecha de vigencia de la presente ley se encuentren depositados en el fondo de cesantía que administra la Asociación Solidarista de Empleados del Consejo Nacional de Rehabilitación y Educación Especial, se mantendrán íntegramente en el fondo de cesantía de la asociación solidarista que funcione en el Conapdis.
