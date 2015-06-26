@@ -28,10 +28,11 @@ ACUERDA:
 1º—Aprobar la Creación del Área Marina de Pesca Responsable de Costa de Pájaros y su Plan de Ordenación, de conformidad con los siguientes términos y condiciones:
 Figura 1. Área Propuesta de Zonificación para el Área Marina de Pesca Responsable en Costa de Pájaros.
 [imagen]
+(Así reformado el mapa anterior mediante acuerdo N° AJDIP/250-2015 del 26 de junio del 2015)
 Propuesta técnica de medidas de manejo para el área marina
 de pesca responsable de Costa de Pájaros. El área
 mide 1056 Hectáreas Coordenadas Geográficas
-1 | 10°06´10” latitud norte | 85°00´30” longitud oeste
+1 | 10°06´32” latitud norte (Así reformada la coordenada anterior mediante acuerdo N° AJDIP/250-2015 del 26 de junio del 2015) | 85°00´19” longitud oeste (Así reformada la coordenada anterior mediante acuerdo N° AJDIP/250-2015 del 26 de junio del 2015)
 2 | 10°05´30” latitud norte | 84°59´51” longitud oeste
 3 | 10°04´32” latitud norte | 84°58´56” longitud oeste
 4 | 10°04´08” latitud norte | 84°59´18” longitud oeste

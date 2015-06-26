@@ -14,3 +14,4 @@ Creación del Área Marina de Pesca Responsable de Costa de Pájaros y su Plan d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-27 | la propia norma |
+| 2 | 2015-06-26 | Acuerdo 250 (2015-06-26) |
