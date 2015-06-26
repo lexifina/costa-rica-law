@@ -1,0 +1,12 @@
+N° 9300
+LA ASAMBLEA LEGISLATIVA
+DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN AL INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO PARA QUE DONE
+DE SU PROPIEDAD TRES TERRENOS
+A LA ASOCIACIÓN HOGAR PARA
+ANCIANOS DE SAN RAMÓN-
+ALAJUELA
+ARTÍCULO ÚNICO.- Se autoriza al Instituto Nacional de Vivienda y Urbanismo, con cédula de persona jurídica número cuatro-cero cero cero-cero cuatro dos uno tres cuatro (4-000-042134), para que done a la Asociación Hogar para Ancianos de San Ramón con cédula de persona jurídica número tres-cero cero dos-cero cinco uno uno tres cero (3-002-051130), tres terrenos de su propiedad, todos inscritos en el Registro Público de la Propiedad Inmueble, bajo el Sistema de Folio Real, partido de Alajuela, situados en San Ramón, distrito primero, San Ramón; cantón segundo, provincia de Alajuela y descritos así: primero: matrícula número cuatro dos cero cero tres cero- cero cero cero (420030-000), naturaleza: lote número doce, terreno con casa y patio; linderos: al norte, calle pública y acera en medio con frente de ocho metros noventa y siete centímetros (8,97 m); al sur, sucesión Vicente Badilla; al este, lote trece y, al oeste, lote once; mide: doscientos siete metros con cuarenta y seis decímetros cuadrados (207,46m2), según consta en el plano de Catastro A-cero nueve nueve cuatro cuatro ocho dos-dos cero cero cinco (A-0994482- 2005); segundo: matrícula número cuatro dos cero cero tres uno-cero cero cero (420031-000), naturaleza: lote número catorce, terreno con casa y patio; linderos: al norte con calle pública y acera en medio con frente de nueve metros tres centímetros (9,3m); al sur, sucesión Vicente Badilla; al este, lote quince y, al oeste, lote trece; mide doscientos siete metros con veintinueve decímetros cuadrados (207,29m2), según consta en el plano de Catastro A-cero nueve nueve dos tres tres uno-dos cero cero cinco (A-0992331-2005); tercero: matrícula número cuatro dos cero cero tres dos-cero cero cero (N.° 420032-000), naturaleza: lote número quince, terreno con casa y patio; linderos: al norte, calle pública y acera en medio; al sur, sucesión Vicente Badilla; al este, lote dieciséis y, al oeste, lote catorce; mide: doscientos cuatro metros con sesenta y cinco decímetros cuadrados (204,65m2), según consta en el plano de Catastro A-cero nueve nueve cuatro cuatro ocho uno-dos cero cero cinco (A-0994481-2005).
+Rige a partir de su publicación.
+Dado en la Presidencia de la Republica, San José, a los veintisiete días del mes de mayo del año dos mil quince.
