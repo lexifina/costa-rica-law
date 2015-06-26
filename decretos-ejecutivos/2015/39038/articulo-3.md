@@ -1,0 +1,1 @@
+Artículo 3º—De las reuniones de CONIP. El CONIP se reunirá ordinariamente una vez al mes y extraordinariamente cuando lo convoque su Presidente. Se levantará un acta de los asuntos tratados en cada sesión.
