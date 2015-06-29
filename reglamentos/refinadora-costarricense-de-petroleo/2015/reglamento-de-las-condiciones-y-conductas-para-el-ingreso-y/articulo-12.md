@@ -1,0 +1,16 @@
+Artículo 12.—Conductas del Transportista. Para la adecuada atención a los clientes durante la entrada, permanencia y salida de las instalaciones de RECOPE, el Transportista se encuentra en el deber de abstenerse de las siguientes conductas:
+a. utilizar violencia de hecho o de palabra para resolver dificultades que surjan durante la relación de servicio con los funcionarios de RECOPE o sus colegas,
+b. levantar la voz y/o pronunciar palabras o términos ofensivos en contra de los funcionarios de RECOPE o sus colegas,
+c. alterar, dañar o destruir los equipos y elementos de protección personal de seguridad en el servicio o negarse a usarlos sin motivo justificado,
+d. hacer juegos o dar bromas que pongan en peligro la vida, salud e integridad de los funcionarios de RECOPE, transportistas o terceros,
+e. presentarse a las instalaciones de RECOPE en estado de embriaguez o bajo los efectos de cualquier otra sustancia psicoactiva no autorizada,
+f. ingresar a las instalaciones de RECOPE, portando cualquier tipo de arma de fuego o elementos punzocortantes,
+g. usar el celular dentro de las instalaciones de RECOPE salvo en las áreas de Facturación,
+h. ingresar al plantel con personas no autorizadas,
+i. alejarse del vehículo mientras realiza la carga del producto,
+j. usar equipo inadecuado para realizar el trabajo,
+k. fumar dentro de las instalaciones de RECOPE y sus alrededores, cuando este se encuentre fuera del plantel en espera de su ingreso,
+l. ingresar al plantel con recipientes de plástico o metal, que no formen parte del camión,
+m. obstruir el paso de otros vehículos o unidades de socorro (Bomberos, Cruz Roja, etc.) ubicándose en doble fila en la entrada del Plantel,
+n. obstruir los portones, salidas de emergencia y áreas donde existen instalados equipos del sistema contra incendios de las instalaciones de RECOPE,
+o. manipular o trasvasar producto del cisterna a recipientes dentro del plantel o sus alrededores por motivos de seguridad.
