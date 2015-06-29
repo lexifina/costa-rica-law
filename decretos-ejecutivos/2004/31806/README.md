@@ -14,3 +14,4 @@ Designa al Instituto Costarricense sobre Drogas como Autoridad Central en cumpli
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-06-03 | la propia norma |
+| 2 | 2015-06-29 | Decreto Ejecutivo 39162 (2015-06-29) |
