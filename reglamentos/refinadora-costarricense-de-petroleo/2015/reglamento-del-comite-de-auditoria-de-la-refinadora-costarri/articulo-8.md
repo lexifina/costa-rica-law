@@ -1,0 +1,1 @@
+Artículo 8º—Los miembros debidamente nombrados por la Junta Directiva para conformar el Comité de Auditoría serán los responsables de ejecutar las actividades descritas en este Reglamento en lo correspondiente al Comité.

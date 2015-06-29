@@ -1,0 +1,1 @@
+Artículo 17.—El Comité de Auditoría deberá informar en los meses de enero y julio a la Junta Directiva, sobre las actividades desarrolladas en el semestre anterior. El informe de cierre de año deberá estar antes de que los auditores externos emitan la certificación de cumplimiento para presentar ante SUGEVAL.

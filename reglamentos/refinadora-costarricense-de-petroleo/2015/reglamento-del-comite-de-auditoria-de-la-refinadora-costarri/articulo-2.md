@@ -1,0 +1,1 @@
+Artículo 2º—La Junta Directiva será responsable de nombrar personas idóneas para que cumplan con el objetivo del Comité. Las personas que integran este Comité serán responsables de cumplir a cabalidad las funciones encomendadas por la Junta Directiva y con lo establecido en este Reglamento.

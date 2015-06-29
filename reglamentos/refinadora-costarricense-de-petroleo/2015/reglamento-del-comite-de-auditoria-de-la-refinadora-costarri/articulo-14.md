@@ -1,0 +1,1 @@
+Artículo 14.—El miembro que haga constar en acta su voto contrario al acuerdo dictado y los motivos que lo justifiquen, quedará exento de la responsabilidad que en su caso pudiera derivarse de los acuerdos.

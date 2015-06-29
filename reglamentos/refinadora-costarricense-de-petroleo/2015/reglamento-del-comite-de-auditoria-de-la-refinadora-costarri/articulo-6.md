@@ -1,0 +1,1 @@
+Artículo 6º—El Comité de Auditoría brindará informes de sus actuaciones a la Junta Directiva, además de los informes particulares que se requieran para dar cumplimiento a las funciones señaladas en este Reglamento.
