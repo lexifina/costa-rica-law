@@ -24,3 +24,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Escazú
 | 9 | 2012-05-14 | Reglamento municipal 107 (2012-05-14) |
 | 10 | 2012-05-21 | Reglamento municipal 108 (2012-05-21) |
 | 11 | 2015-05-29 | Reglamento municipal 0 (2015-05-29) |
+| 12 | 2015-06-29 | Reglamento municipal 270 (2015-06-29) |
