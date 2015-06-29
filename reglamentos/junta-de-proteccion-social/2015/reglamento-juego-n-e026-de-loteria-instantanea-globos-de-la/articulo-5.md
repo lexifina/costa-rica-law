@@ -1,0 +1,1 @@
+Artículo 5°—La Unidad de Pago de Premios, al final de cada juego de Lotería Instantánea, debe realizar un cierre de los premios convalidados de acuerdo al plan de premios aprobado por la Junta Directiva y pagados a través de los diferentes medios aprobados y debe rendir un informe al respecto ante la Gerencia General de la Junta de Protección Social.
