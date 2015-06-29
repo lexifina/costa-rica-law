@@ -1,2 +1,0 @@
-Artículo 6º—Aptitud para contratar. Sólo podrán contratar con el HDT las personas físicas o jurídicas que cuenten con plena capacidad de actuar, que no tengan impedimento por alguna de las causales de incapacidad para contratar con la Administración, y que demuestren su idoneidad, según el objeto a contratar.
-Se presume la capacidad de actuar de todo oferente, por lo que esa condición solamente deberá acreditarse por parte del adjudicatario, por el medio que se considere suficiente, pudiendo ser incluso una declaración jurada.

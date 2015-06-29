@@ -1,1 +1,0 @@
-Artículo 20.—Normativa supletoria. Los aspectos que no estén normados en el presente Reglamento y el Manual, se resolverán mediante la aplicación de los principios generales de contratación administrativa, y en su defecto, por las normas aplicables de la Ley de Contratación Administrativa y su Reglamento.

@@ -1,1 +1,0 @@
-Artículo 2º—Los procedimientos de contratación administrativa promovidos por HDT al amparo de este Reglamento, deberán adecuarse a los principios generales de contratación administrativa y gestión pública.

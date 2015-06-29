@@ -1,5 +1,0 @@
-CAPÍTULO II
-Normas específicas
-Artículo 11.—Contrataciones para la adquisición, el mantenimiento y la actualización o arrendamiento de equipos tecnológicos, hardware y software y desarrollos de sistemas informáticos. Esta excepción se aplicará, tal y como lo indica el Artículo 9 de la Ley del INS, a toda contratación que tenga como fin mediato o inmediato la adquisición, el mantenimiento, la actualización o el arrendamiento de equipos tecnológicos, hardware y software y desarrollos de sistemas informáticos.
-La Unidad Usuaria, en todos los casos, será el Área rectora en Informática, salvo que la Gerencia, o la Junta Directiva dispongan justificadamente otra Unidad Usuaria. La Proveeduría deberá aplicar los procedimientos según lo dispuesto en este Reglamento y el Manual, las disposiciones complementarias y las directrices específicas que puedan dictar la Gerencia o Junta Directiva.
-El contratista está obligado a entregar objetos actualizados, cuando el Cartel así lo haya dispuesto y bajo los términos que allí se indiquen. En lo que sea aplicable, se observará lo dispuesto en el artículo 197 del Reglamento a la Ley de Contratación Administrativa.
