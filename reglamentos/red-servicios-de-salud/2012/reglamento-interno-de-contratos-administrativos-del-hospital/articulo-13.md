@@ -1,2 +1,0 @@
-Artículo 13.—El órgano competente para declarar infructuosa, desierto o readjudicar un concurso será el mismo que, de conformidad con el artículo 12 anterior, lo hubiese sido también para adjudicar según el monto de que se trate, conforme el artículo 86 del Reglamento a la Ley de Contratación Administrativa.
-Lo anterior sin perjuicio de la avocación de competencia por parte de los órganos superiores.

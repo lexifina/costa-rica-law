@@ -1,2 +1,0 @@
-Artículo 19.—El Almacén de Existencias deberá recibir el equipo en las condiciones que lo entrega el proveedor y garantizar su conservación hasta tanto la unidad usuaria no realice las pruebas técnicas de funcionamiento, así como la verificación de que el equipo se ajusta a las condiciones del cartel respectivo.
-Por su parte, cuando por razones técnicas o por especificaciones propias del contrato, los activos sean entregados directamente en la unidad usuaria, ésta será responsable de recibir el equipo.

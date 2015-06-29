@@ -1,2 +1,0 @@
-Artículo 14.—Para que un órgano inferior a Junta Directiva adjudique la compra o venta de un inmueble, es necesario que esa instancia haya fijado previamente en cada caso las condiciones de la negociación.
-Lo anterior de conformidad los artículos 89, 90, 91 y 92 de la Ley General de la Administración Pública. No obstante lo anterior, Junta Directiva se reserva el derecho de conocer y adjudicar las licitaciones por monto inferior al señalado en este artículo, cuando así lo crea conveniente para los intereses de la Institución.

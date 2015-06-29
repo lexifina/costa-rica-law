@@ -1,1 +1,0 @@
-Artículo 25.—La ejecución de toda construcción o parte de ella, deberá realizarse de acuerdo con lo que establece el Complemento N° 1 del Manual sobre Normas Técnicas de Control Interno para la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización, relativas al control de obras públicas.
