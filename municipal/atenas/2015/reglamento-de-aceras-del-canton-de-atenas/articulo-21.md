@@ -1,0 +1,3 @@
+Artículo 21.—El costo de edificación de las aceras será el determinado por el Manual de Valores Base Unitarios por Tipología Constructiva del Ministerio de Hacienda que se encuentre vigente al momento de realizar la construcción.
+El costo de demolición de aceras será un quince por ciento (15%) menor al estipulado para costos de edificación. Dichos costos estarán sujetos a las variaciones que presente dicho manual.
+En el caso de que la Municipalidad deba realizar la contratación administrativa necesaria para adquirir los servicios de un tercero para ejecutar las obras, el costo efectivo será el que se determine del proceso de dicha contratación por los servicios necesarios devenidos del perfil del proyecto.

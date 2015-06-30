@@ -1,0 +1,3 @@
+CAPÍTULO III
+Construcción de aceras
+Artículo 11.—Con el fin de propiciar el desarrollo del Cantón Atenas, la Municipalidad promoverá la reconstrucción y construcción de aceras en todo el territorio, incluyendo los ocho distritos sin excepción de zonas, favoreciendo el establecimiento de recorridos peatonales accesibles para garantizar la seguridad, comodidad y el libre tránsito a todos los miembros de la sociedad.
