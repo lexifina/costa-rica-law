@@ -1,0 +1,1 @@
+Artículo 11.—Requisitos formales de los proyectos. Los interesados en participar en el Fondo Concursable, deberán cumplir con todos y cada uno de los requisitos y la documentación que oportunamente se solicite y publique la Unidad de Cultura, en medios escritos, página Web de la Municipalidad de Belén y otros medios a fines de información.

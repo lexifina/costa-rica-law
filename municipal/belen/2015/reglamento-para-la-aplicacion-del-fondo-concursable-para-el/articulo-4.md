@@ -1,0 +1,1 @@
+Artículo 4º—Alcance. Los Fondos Concursables Se pretende favorecer proyectos artísticos de creadores, intérpretes, investigadores, productores, promotores, gestores o cualquier otro trabajador de la cultura belemita, sean personas físicas o jurídicas, que tengan como objetivo el desarrollo artístico del cantón de Belén.
