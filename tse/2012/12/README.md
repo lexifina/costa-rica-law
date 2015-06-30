@@ -15,3 +15,4 @@ Reglamento relativo a los trámites, requisitos y criterios de resolución en ma
 | --- | --- | --- |
 | 1 | 2012-10-06 | la propia norma |
 | 2 | 2015-04-09 | Decreto TSE 12 (2015-04-09) |
+| 3 | 2015-06-30 | Decreto TSE 17 (2015-06-30) |
