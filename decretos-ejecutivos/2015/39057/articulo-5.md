@@ -1,0 +1,2 @@
+Artículo 5. Refórmese el artículo 19 del Plan Nacional de Atribución de Frecuencias, Decreto Ejecutivo Nº 35257-MINAET y sus reformas, publicado en el Diario Oficial La Gaceta N° 103 del 29 de mayo de 2009, para que se adicione una nueva nota nacional CR 070A y en adelante se lea de la siguiente manera:
+“CR 070A El rango de frecuencias de 2025 MHz a 2110 MHz está atribuido para radioenlaces fijos de estaciones transportables para el transporte de señal de audio y video del servicio de televisión.”

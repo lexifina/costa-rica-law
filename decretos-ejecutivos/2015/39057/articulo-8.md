@@ -1,0 +1,1 @@
+Artículo 8. Derogatoria. Deróguense las notas nacionales N° CR 042, CR 045, CR 048, CR 050, CR 061B, CR 061C, CR 061D, CR 061E y CR 091 dispuestas en el artículo 19 del Plan Nacional de Atribución de Frecuencias, Decreto Ejecutivo Nº 35257-MINAET, publicado en el Diario Oficial La Gaceta N° 103 del 29 de mayo del 2009 y sus reformas.
