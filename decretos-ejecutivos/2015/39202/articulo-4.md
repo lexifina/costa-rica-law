@@ -1,0 +1,1 @@
+Artículo 4º—Aquellos componentes salariales que no estén en función del salario base de las diferentes modalidades de empleo, serán incrementados en el mismo porcentaje del aumento general indicado en el artículo 1º de este Decreto, mediante Resolución que a ese efecto emita la Dirección General de Servicio Civil.

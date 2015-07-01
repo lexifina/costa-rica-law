@@ -1,0 +1,1 @@
+Artículo 5º—El incremento autorizado conforme al artículo 1º del presente decreto, se aplicará a los pensionados y pensionadas de los diferentes regímenes con cargo al Presupuesto Nacional, de acuerdo con lo que establezcan las leyes correspondientes para cada régimen.
