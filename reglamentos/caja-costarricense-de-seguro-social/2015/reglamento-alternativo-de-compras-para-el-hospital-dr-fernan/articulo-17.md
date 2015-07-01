@@ -1,0 +1,1 @@
+Artículo 17.—Normativa supletoria: En lo no previsto en el siguiente reglamento, se aplicarán de manera supletoria las disposiciones establecidas en la Ley de Contratación Administrativa, su Reglamento y Condiciones Generales para la Contratación Administrativa Institucional de Bienes y Servicios desarrollada por todas las unidades desconcentradas y no desconcentradas de la CCSS.

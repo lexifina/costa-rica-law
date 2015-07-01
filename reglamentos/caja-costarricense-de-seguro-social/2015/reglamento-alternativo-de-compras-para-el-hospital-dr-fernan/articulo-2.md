@@ -1,0 +1,1 @@
+Artículo 2º—Modalidad: Las compras que se realicen bajo las regulaciones del presente reglamento, serán desarrolladas bajo la modalidad de un registro de precalificados, al que previamente deben ingresar los oferentes interesados en contratar con el Hospital.

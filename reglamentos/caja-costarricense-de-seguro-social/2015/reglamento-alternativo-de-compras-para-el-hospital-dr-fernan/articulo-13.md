@@ -1,0 +1,2 @@
+Artículo 13.—Forma de pago: La Caja Costarricense de Seguro Social trabaja con las condiciones de crédito a 30 días, y los pagos se efectuarán mediante transferencia electrónica por medio del SINPE, por lo que los proveedores deben estar inscritos en este sistema.
+Para la ejecución del pago correspondiente, es requisito y condición ineludible el estar al día en el pago de las obligaciones con la Seguridad Social.
