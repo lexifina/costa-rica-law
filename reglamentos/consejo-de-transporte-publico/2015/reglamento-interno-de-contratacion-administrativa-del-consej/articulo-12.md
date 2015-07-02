@@ -1,0 +1,1 @@
+Artículo 12.- Límite presupuestario de las solicitudes de compras. Para que la Proveeduría Institucional inicie el trámite a la solicitud de inicio del procedimiento de contratación administrativa, esta deberá ajustarse al presupuesto ordinario y sus modificaciones, solicitadas por el Departamento Financiero y aprobados por la Junta Directiva del CTP.

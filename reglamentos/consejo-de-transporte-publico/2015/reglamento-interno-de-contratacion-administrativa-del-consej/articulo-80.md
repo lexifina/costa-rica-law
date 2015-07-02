@@ -1,0 +1,1 @@
+Artículo 80. —De los Recursos. Tratándose, de la impugnación del acto de adjudicación o recursos de revocatoria, la Proveeduría Institucional en conjunto con la Unidad solicitante, así como de la Dirección de Asuntos Jurídicos, según proceda, analizarán los mismos y procederán a resolver según corresponda.

@@ -1,0 +1,5 @@
+Artículo 65. —Plazo y competencia para dictar el acto final. El acto final se dictará dentro del plazo máximo fijado en el cartel. Ese plazo podrá prorrogarse por un período igual y por una sola vez, siempre y cuando se acrediten razones de interés público para tomar esa decisión. De dictarse el acto fuera de ese plazo se deberá iniciar la investigación preliminar que corresponda, no obstante el acto dictado será válido pese a que se dicte extemporáneamente.
+El acto final, sea de adjudicación, desierto o infructuoso, será emitido de la siguiente manera:
+Proveedor Institucional: cuando el monto sea menor o igual al cincuenta por (50%) del límite económico fijado por la Contraloría General de la República para las Contrataciones Directas.
+Director Ejecutivo: cuando el monto de la contratación Directa supere el 50% del límite económico establecido para la contratación directa y menos del 50% del límite económico establecido para la Licitación Abreviada
+Junta Directiva: sea mayor o igual al cincuenta (50%) por ciento de la Licitación Abreviada y para todas las Licitaciones Públicas.

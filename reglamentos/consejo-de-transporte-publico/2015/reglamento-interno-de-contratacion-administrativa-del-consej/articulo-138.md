@@ -1,0 +1,1 @@
+Artículo 138. —Anulación de contrato con multa. Cuando la unidad ejecutora y/o fiscalizadora determine el incumplimiento en los términos contractuales cuantificará los eventuales daños y perjuicios ocasionados de una manera razonada y trasladará la solicitud a la Dirección Ejecutiva para que inicie el procedimiento correspondiente.

@@ -1,0 +1,31 @@
+Artículo 3- Abreviaturas y definiciones. Para delimitar los alcances de este Reglamento, se establecen las siguientes abreviaturas y definiciones:
+Abreviaturas
+CTP: Consejo de Transporte Publico
+CGR: Contraloría General de la República.
+LCA: Ley de Contratación Administrativa.
+RLCA: Reglamento a la LCA.
+LGAP: Ley General de la Administración Publica
+DGBCA: Dirección General de Bienes y Contratación Administrativa
+Definiciones
+ACTA DE APERTURA: Documento donde se dejará constancia de los datos generales de las ofertas y de los asistentes al acto de apertura de los procedimientos de contratación administrativa, licitación pública y licitación abreviada que promueva el CTP.
+ACTO FINAL: Acto administrativo de adjudicación, re adjudicación, declaración de desierto o infructuoso con el cual se pone fin a un procedimiento de contratación administrativa.
+CARTEL: Documento o pliego de condiciones elaborado por la Proveeduría Institucional, en el cual se deben definir claramente los requisitos generales, legales y técnicos del objeto, servicio u obra a contratar.
+COMISION DE RECOMENDACIÓN DE ADJUDICACIONES: Encargada de emitir las recomendaciones de adjudicaciones de los procesos de licitación y contrataciones directas, mismas que serán del conocimiento del órgano competente para dictar el acto final del procedimiento de contratación administrativa, dicha Comisión estará integrada por el Proveedor Institucional , el titular del programa solicitante o el representante que el designe y un Asesor Legal de la Proveeduría Institucional o designado por el Jerarca al afecto.
+CONTRAPARTE TECNICA: Es la responsable de fiscalizar el fiel cumplimiento de la contratación administrativa que le ha sido encomendada.
+CONTRATACIÓN DIRECTA POR EXCEPCIÓN: Procedimiento de contratación que por su propia naturaleza se encuentra excluido de los procedimientos ordinarios de contratación.
+CONTRATISTA: Persona física o jurídica, que una vez presentada su oferta es seleccionada como adjudicataria para proveer un bien determinado o servicio.
+CONTRATO ADMINISTRATIVO: Instrumento escrito, suscrito por las partes contratantes, en el cual se plasman los términos, requerimientos y demás condiciones que regirán la contratación administrativa, para la ejecución de la obra, entrega de bienes o prestación de servicios, según sea el caso.
+EJECUTOR RESPONSABLE DEL PROYECTO: Funcionario o funcionaria designada a lo interno de cada unidad administrativa como titular subordinado competente para coordinar a lo interno de la propia unidad, Área o División, los procedimientos de contratación administrativa, es el responsable de la fiscalización del contrato y la solicitud y ejecución de presupuestos ordinarios o extraordinarios designados a su cuenta.
+UNIDAD SOLICITANTE: Jefe del Departamento o Director del Consejo de Transporte Publico designada a lo interno de cada unidad administrativa como titular subordinado competente para coordinar a lo interno de la propia unidad, Área o División, los procedimientos de contratación administrativa, es el responsable de la fiscalización del contrato y la solicitud y ejecución de presupuestos ordinarios o extraordinarios designados a su cuenta.
+EXPEDIENTE ADMINISTRATIVO: Legajo físico y/o archivo electrónico, con número único y consecutivo por año, que deberá contener todas las actuaciones, internas y externas en el orden cronológico correspondiente a su presentación, y relativas a un trámite de contratación administrativa específico.
+FISCALIZACIÓN: Derecho y Deber de la Comisión Contraparte/Unidad Solicitante o Ejecutor de proyecto para examinar y controlar la ejecución de un contrato.
+FRAGMENTACION ILICITA: Es aquella situación en que un mismo objeto de contratación se adquiere a través de varios procedimientos de compra, con el propósito de evadir un procedimiento más complejo, contándose con los recursos presupuestarios aprobados y disponibles.
+GARANTÍA DE CUMPLIMIENTO: Garantía porcentual obligatoria en las licitaciones públicas y abreviadas y facultativa en los demás procedimientos, entre un 5% y un 10% sobre el monto total adjudicado, que respaldará la correcta ejecución del contrato administrativo conforme a la normativa vigente.
+GARANTÍA DE PARTICIPACIÓN: Garantía porcentual facultativa en los procedimientos de contratación administrativa entre un 1% y un 5% sobre el monto total cotizado o bien un monto fijo, que garantiza la participación dentro de un determinado concurso administrativo.
+OFERENTE: Persona física o jurídica, interesada en el objeto del procedimiento de contratación administrativa que corresponda, y que por ello presente formal oferta.
+ORDEN DE COMPRA: Documento formal de ejecución presupuestaria, que sustituye el contrato cuando este no se requiere, mediante el cual se formalizan los procedimientos de contratación administrativa y que concierne a la Proveeduría Institucional su elaboración.
+PROGRAMA DE ADQUISICIONES: Proyección de las necesidades de bienes y servicios para el período presupuestario siguiente y que son solicitados por el Director (a) Ejecutivo, Director (a) Administrativo Financiero, Director (a) Técnico, Auditor (a) Interno (a) o en su defecto por ausencia temporal o definitiva de alguno de ellos, el que se establezca para su sustitución en el respectivo cargo la Junta Directiva.
+PROVEEDOR: Persona física o jurídica incluida en el Registro de Proveedores para suministrar bienes, servicios u obras a la Institución.
+PROVEEDURÍA INSTITUCIONAL: Dependencia del CTP que funge como órgano técnico institucional competente en la conducción de los procedimientos de contratación administrativa.
+REGISTRO DE PROVEEDORES: Instrumento físico y electrónico donde figuran las Personas físicas o jurídicas que han cumplido los requisitos dispuestos para ser tomados en cuenta en los procesos de contratación administrativa que Promueva el CTP, se utilizara el registro central a cargo de la Direccion General de Bienes y contratacion Administrativa.
+SOLICITUD DE COMPRA: Documento imprescindible emitido por el Ejecutor de programa autorizado, para dar inicio al procedimiento de contratación administrativa, donde se definen los requisitos y especificaciones técnicas del bien, servicio u obra por adquirir, la cual viene conjuntamente con la solicitud de bienes y servicios ( presupuesto)

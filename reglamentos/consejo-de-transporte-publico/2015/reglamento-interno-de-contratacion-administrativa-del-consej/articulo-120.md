@@ -1,0 +1,44 @@
+Artículo 120.- Fiscalización del contrato. La fiscalización del contrato estará a cargo de la Comisión de Contraparte que se conformara siempre por la Unidad Solicitando y/o Técnica pudiendo adicionarse la integración de asesores del área financiera, legal o del área que corresponda cuyo nombramiento será potestad del Director Ejecutivo. El ejecutor del programa solicitante del objeto contractual o a quien este delegue tendrá por objeto tomar oportunamente las providencias necesarias para obligar al contratista al estricto cumplimiento de las condiciones específicas y plazos establecidos o, para proceder a la ejecución de las garantías correspondientes y a la resolución del contrato, cuando estas medidas se estimen pertinentes, tanto como para impartir instrucciones respecto a técnicas y oportunidades, o sustituciones que se impongan en cuanto a materiales o planillas, fundamentalmente tratándose de contrato de obra, además de cumplir con artículo 11 del Reglamento a la Ley de Contratación Administrativa
+Las responsabilidades de la Comisión Contraparte serán las siguientes:
+• Las labores de supervisión durante la ejecución y cierre del contrato.
+• La adopción de decisiones y el dictado de instrucciones durante la ejecución del contrato.
+• El aseguramiento de la correcta realización del contrato.
+• La valoración de las propuestas para la imposición de las penalizaciones establecidas contractualmente.
+• La concurrencia a la recepción del objeto contractual.
+• La resolución de reclamos que surjan producto de la ejecución y cierre del contrato.
+• La vigilancia para que se cuente con los recursos presupuestales necesarios para realizar los trabajos ininterrumpidamente, para contratos prorrogables debe gestionar ante el Departamento Financiero del CTP la reserva presupuestaria necesaria para enfrentar periodos venideros e informar con tres meses de anticipación a vencer el contrato si procederá a solicitar prorroga o informar si han existido inconvenientes en el servicio brindado por el contratita.
+• La vigilancia para que en los contratos de obra, previamente al inicio de los trabajos, se cuente con los proyectos arquitectónicos y de ingeniería, especificaciones de calidad de los materiales y especificaciones generales y particulares de construcción, desglose de los precios con sus análisis de precios unitarios o alcance de las actividades de obra, programas de ejecución y suministros o utilización, términos de referencia y alcance de servicios.
+• La coordinación con las unidades administrativas y servidores públicos responsables de efectuar las terminaciones anticipadas o resoluciones de contratos y, cuando se justifique, las suspensiones de los trabajos.
+• La rendición de informes periódicos (mensuales, bisemanales, semanales), así como de un informe final sobre el cumplimiento del contratista en los aspectos legales, técnicos, económicos, financieros y administrativos.
+• La solicitud de autorización y trámite de las modificaciones del contrato y de los convenios necesarios para ello.
+• El levantamiento de las actas de recepción del objeto contractual y, de resultar necesario, el señalamiento de las instrucciones precisas y del plazo fijado para remediar los defectos o vicios observados.
+• La autorización y firma del finiquito del contrato.
+Por otra parte, los Jefes de Programa o la Unidad solicitante, al ser los responsables de realizar el plan de compras, al tener la inmediatez de la información de los bienes y servicios necesarios, para el periodo presupuestario y al ser a su vez los responsables de la ejecución presupuestaria del programa a su cargo; son quienes deben confeccionar las solicitudes de pedido para dar inicio a los tramites de contratación administrativa de acuerdo a las facultades a ellos concedidas, de forma que dispongan de la mejor forma del presupuesto asignado a su unidad en concordancia con los planes de trabajo establecidos para ese año.
+De igual forma son los Jefes de Programa, subprograma/ proyecto o la Unidad Solicitante los que deben indicar si previendo el plazo necesario para realizar el procedimiento de contratación y su ejecución en caso de prolongarse a otros periodos presupuestarios, contarán con la disponibilidad presupuestaria para los otros periodos, emitiéndose la respectiva certificación de fondos y así se debe indicar en la decisión inicial o de tener conocimiento en el trascurso del proceso de contratación deberá gestionar lo pertinente para contar con la disponibilidad presupuestaria o en su defecto indicar como responsables del proyecto y del presupuesto la no continuidad del proceso al Departamento de Proveeduría.
+La designación de la comisión deberá disponerla el Director Ejecutivo a más tardar 1 día hábil antes de iniciar la etapa de ejecución del contrato.
+En la etapa de Ejecución contractual la comisión Contraparte velara para que se cumpla por parte del contratista con la presentación de la Estructura de Desglose de Trabajo de la ejecución contractual, que permita identificar con claridad los distintos productos entregables del contrato, a un nivel de control tal que permita asignar la responsabilidad por el desarrollo y/o entrega de cada uno de ellos a una persona o empresa determinada, así como su programación, costeo y monitoreo respectivo.
+La elaboración de la Matriz de Roles y Responsabilidades de la ejecución y cierre contractual, que permita asignar los roles y responsabilidades de los distintos participantes en la contratación, con el fin de asegurar la entrega de los productos y así cumplir con los objetivos del proyecto
+El desarrollo de la Matriz de Comunicación de la ejecución y cierre contractual, que busque mantener informados a los involucrados claves, asegurar una comunicación efectiva y facilitar la toma oportuna de decisiones., dicha matriz debe incluir lo siguiente:
+• La lista de informes de avance de ejecución del contrato y sus contenidos.
+• Los documentos de planificación relevantes y sus contenidos
+• La lista de distribución de la información
+• La periodicidad de la información
+• El medio de distribución de la información.
+• El responsable de emitir cada informe.
+• Para efecto de las reuniones, la utilización de plantillas de las minutas, que permitan recoger los principales aspectos y acuerdos tomados en dichas reuniones.
+El desarrollo del Cronograma de la Ejecución del contrato, con el objetivo de establecer la línea base del cronograma, dar seguimiento al estado del proyecto y asegurar que el contrato se concluya, dentro del tiempo establecido según los compromisos contractuales.
+El desarrollo del Presupuesto de Costos del contrato, con la finalidad de establecer la línea base de los costos y asegurar que éste se termine dentro del presupuesto aprobado, según los compromisos contractuales, así como un Programa de Erogaciones del contrato que integra los siguientes aspectos:
+• El Presupuesto Base.
+• El Programa de Ejecución del contrato.
+• La forma de pago establecida en el contrato.
+La identificación, integración, estandarización y documentación de las lecciones aprendidas, con la finalidad de emitir recomendaciones de mejora para el proceso de ejecución y cierre contractual.
+El desarrollo del Plan de Gestión Ambiental, en caso que el objeto del contrato lo amerite, con el propósito de identificar y adoptar oportunamente las acciones dirigidas al manejo ambiental de los efectos del contrato.
+Control de la Seguridad Laboral y Seguridad Ocupacional: Para la ejecución del contrato, la Comisión Contraparte solicitara al contratista en caso de resultar pertinente un Plan de Seguridad Laboral y de Salud Ocupacional, con el propósito de monitorear su cumplimiento, en cuanto a los términos contractuales o previstos en la normativa vigente sobre esa materia.
+Cuando sea necesario el desarrollo de la Matriz de Administración de Riesgos como instrumento para prever y actuar con oportunidad para evitar los problemas potenciales, que incluya los siguientes aspectos:
+• Las amenazas y oportunidades seleccionadas
+• Las posibles respuestas.
+• El plan de acción.
+• La identificación del responsable de administrar el riesgo.
+Se debe elaborar planes de respuesta al riesgo, con la debida asignación de los responsables de gestionarlos, por parte del equipo de la gestión contractual.
+Control de manejo ambiental: De resultar pertinente y si aplica para la contratación se deberá solicitar al contratista un Plan de Manejo Ambiental durante la ejecución del contrato, que incluye las previsiones necesarias para preservar o restaurar las condiciones ambientales y los procesos ecológicos de la zona cuando pueden verse deteriorados o afectados por dicha ejecución.
+Durante la ejecución del contrato se monitorean en forma periódica las medidas o acciones adoptadas en materia ambiental, de modo que permita identificar y confirmar el trabajo realizado y compararlo con lo planeado en el Plan de Manejo Ambiental.

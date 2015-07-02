@@ -1,0 +1,10 @@
+SECCION SEXTA
+DEL ACTO DE ADJUDICACIÓN
+Artículo 67. —Actos previos a la adjudicación o declaratoria de desierto de un concurso. Una vez que se cuente con todos los informes, análisis o dictámenes solicitados y determinadas cuáles ofertas fueron admitidas a concurso y establecido cuál o cuáles de ellas son más ventajosas o convenientes a los intereses institucionales, la Proveeduría Institucional, los incluirá en el expediente, los foliará y entregará el legajo a los integrantes de la Comisión de Recomendación de Adjudicaciones para que esta analice los estudios técnicos, legales y financieros realizados a las ofertas y disponga la recomendación de adjudicación o declaratoria de desierto de un concurso; o la necesidad de ampliar o aclarar los estudios propuestos, por razones justificadas.
+Emitida la recomendación de adjudicación correspondiente, la Proveeduría Institucional remitirá a la Dirección Ejecutiva o a la Junta Directiva, según corresponda, el expediente de la contratación administrativa, para el dictado del acto final correspondiente, lo anterior, mediante oficio que tendrá el carácter de informe ejecutivo y contendrá como mínimo lo siguiente:
+1. Un resumen del objeto de la contratación y enumeración de las ofertas recibidas a concurso con indicación de las declaradas inadmisibles, ya sea, por razones técnicas, jurídicas o económicas.
+2. Una síntesis del estudio técnico, del jurídico y financiero si lo hubiere, anexándose un cuadro resumen de los resultados de la evaluación realizada con base en el sistema de comparación de ofertas establecido en el cartel.
+3. Manifestación expresa respecto a cuál o cuáles de las ofertas resultan más ventajosas para los intereses del CTP.
+4. Cualquier otro aspecto que se considere relevante respecto de los antecedentes de la contratación y la evaluación de las ofertas.
+5. Mención de la disponibilidad presupuestaria existente para afrontar la erogación.
+6. Indicación expresa de la fecha límite para adjudicar, así como la fecha en que vence la vigencia de las ofertas y la Garantía de Participación.

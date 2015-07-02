@@ -1,0 +1,2 @@
+Artículo 152.- Prohibición para invitar proveedores sancionados. La Proveeduría Institucional no cursará invitación en las Licitaciones Públicas y Abreviadas, a los proveedores que se encuentren incluidos en la lista de personas con incompatibilidad o que hayan sido sancionados con suspensión.
+En los procedimientos de contratación directa la Proveeduría dentro de las limitaciones legales procederá a seleccionar a los proveedores que no hayan sido apercibidos.

@@ -1,0 +1,4 @@
+CAPÍTULO VII
+DEL PROCEDIMIENTO DE CONTRATACION DIRECTA
+Artículo 77. —Consulta de precios. Cuando la contratación directa se encuentre fundamentada en razones que no impidan la competencia, la Proveeduría Institucional deberá efectuar consultas de precios y negociar en la forma más favorable a los intereses del CTP. Se solicitarán para ello al menos, tres cotizaciones.
+Con base en lo anterior, se tramitarán contrataciones directas para la adquisición de bienes, suministros, equipo, arrendamiento, contrataciones de servicios y obras, cuando el monto de cada negocio no supere el máximo establecido por la Contraloría General de la República para esta modalidad de contratación, o cuando concurran algunos de los supuestos contenidos en el artículo 2º de la Ley de Contratación Administrativa por lo dispuesto entre los artículos 125 a 139, ambos inclusive del Reglamento a la Ley de Contratación Administrativa.

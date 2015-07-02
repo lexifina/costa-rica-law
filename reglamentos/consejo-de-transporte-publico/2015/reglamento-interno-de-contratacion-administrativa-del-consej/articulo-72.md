@@ -1,0 +1,5 @@
+Artículo 72.- Formalización de la orden de compra. La Orden de Compra será firmada conjuntamente por los responsables autorizados para ello. Al momento de firmarse la Orden de Compra por cada funcionario competente, se deberá verificar que se adjunte al expediente de la contratación la copia del acuerdo u oficio en que conste la adopción del acto de adjudicación y que se halla depositado la garantía de cumplimiento cuando haya sido exigida ésta.
+Las potestades en cuanto a las firmas de la orden de compra serán de la siguiente manera:
+Proveedor Institucional y Jefe del Departamento Financiero: cuando el monto sea menor o igual al cincuenta por (50%) del límite económico fijado por la Contraloría General de la República para las Contrataciones Directas.
+Director Ejecutivo, Director Administrativo Financiero, Jefe del Departamento Financiero y Proveedor Institucional: cuando el monto de la contratación Directa supere el 50% del límite económico establecido para la contratación directa, y procedimientos de Licitación Abreviada y Licitación Publica
+Todo se modifica de oficio según los límites establecidos anualmente por la Contraloría General de la República.

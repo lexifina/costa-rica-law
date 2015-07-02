@@ -1,0 +1,1 @@
+Artículo 29. —Prohibiciones. El CTP aplicará el régimen de prohibiciones que se regula en la Ley de Contratación Administrativa y su Reglamento. Igual normativa se aplicará en relación con el levantamiento de tales prohibiciones.

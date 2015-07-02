@@ -1,0 +1,2 @@
+Artículo 74.- Recibo de la orden de compra y la factura. El original de la factura del Proveedor externo será admitido por la Proveeduría Institucional, al momento de recibirse de conformidad la mercadería o haberse completado el servicio a entera satisfacción.
+Estos documentos deberán sellarse y fecharse por la Proveeduría Institucional al momento de su recibo, con el entendido que para trámite de pago, será el Ejecutor de Programa, quien autoriza el respectivo pago.

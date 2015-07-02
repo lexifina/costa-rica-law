@@ -1,0 +1,1 @@
+Artículo 5.- Finalidad. La Proveeduría Institucional, proveerá los bienes y servicios necesarios a las dependencias del CTP que aquéllas requieran para la ejecución de sus funciones, la satisfacción de sus necesidades y principalmente las del servicio público que está llamado a cumplir el CTP.

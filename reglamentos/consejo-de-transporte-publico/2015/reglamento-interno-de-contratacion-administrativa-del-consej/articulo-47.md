@@ -1,0 +1,2 @@
+Artículo 47. —Publicación y contenido de la invitación al concurso. La invitación a participar para todo concurso se publicará en el Sistema de Compras autorizado para el Gobierno Central.
+El cartel y sus anexos deberán estar a disposición de cualquier interesado, al menos desde el día siguiente en que se curse la última invitación o se publique la invitación, de ser el caso. Queda facultado el CTP, para cobrar su costo de impresión o reproducción.

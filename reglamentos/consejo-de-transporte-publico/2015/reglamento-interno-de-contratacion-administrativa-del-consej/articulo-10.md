@@ -1,0 +1,1 @@
+Artículo 10.- De la relación con los proveedores. Durante el proceso de contratación administrativa, la relación con los oferentes de bienes, servicios u obras, corresponde exclusivamente a la Proveeduría Institucional quien podrá solicitar colaboración a la Contraparte Institucional.

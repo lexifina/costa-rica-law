@@ -1,0 +1,1 @@
+Artículo 42. —Prescripción. La posibilidad de cobrar multas o cláusula penal prescribirá en el plazo de tres años a partir del hecho generador, salvo que en el contrato, las partes hayan suscrito el respectivo finiquito del contrato. La omisión de cobro, ocasionará responsabilidad civil y administrativa del funcionario omiso, cuando éste fuere procedente.

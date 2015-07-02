@@ -1,0 +1,1 @@
+Artículo 66. —Plazo para comunicar el acto final. El acto final será comunicado por los mismos medios que se cursó la invitación, dentro de los tres días hábiles siguientes a su dictado. En ese caso, basta indicar el número de concurso, descripción sucinta del objeto, el adjudicatario y el monto.
