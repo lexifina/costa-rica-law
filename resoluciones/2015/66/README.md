@@ -14,3 +14,4 @@ Aplicación trimestral para III trimestre 2015 de Metodología para el ajuste ex
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-30 | la propia norma |
+| 2 | 2015-07-02 | Resolución 73 (2015-07-02) |

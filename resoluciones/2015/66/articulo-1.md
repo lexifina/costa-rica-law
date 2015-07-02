@@ -53,7 +53,6 @@ SISTEMA DE GENERACIÓN, ICE
 ESTIMACIÓN DE VENTAS DE ENERGÍA A LOS ABONADOS DIRECTOS, INGRESOS SIN
 COMBUSTIBLES Y CON COMBUSTIBLES
 III TRIMESTRE, 2015
-[imagen]
 Generación térmica e importaciones
 Es importante recalcar la baja que tenemos en la generación térmica, lo cual impacta en las tarifas finales, tanto del periodo noviembre-diciembre 2014 y enero 2015, como en las estimaciones del periodo abril, mayo y junio, esto debido a una mayor generación eléctrica con fuentes renovables y un aumento en las importaciones de energía. La primera se debe a mejores condiciones de clima y a nuevos proyectos que han empezado a inyectar energía al sistema y la segunda se debe al esfuerzo que ha hecho Aresep para que el ICE, saque el mejor provecho de las oportunidades que le brinda el Mercado Regional.
 ii. Sistema de distribución del ICE y otras empresas
@@ -74,7 +73,6 @@ ESTIMACIÓN DE COMPRAS DE ENERGÍA AL ICE GENERACION, INGRESOS SIN Y
 CON COMBUSTIBLES POR VENTA DE ENERGÍA A SUS ABONADOS
 MILLONES DE COLONES
 III TRIMESTRE, 2015
-[imagen]
 La columna Ingreso con combustible incluye el costo variable por combustibles actualizado para el año 2015 en cada una de las tarifas, utilizando el cargo trimestral indicado en el cuadro No. 8 del presente informe.
 b. Análisis de los combustibles
 Para estimar en unidades físicas la generación térmica para el III trimestre del año 2015, se tomaron las proyecciones obtenidas por ARESEP de la forma que anteriormente se detalló, esto por cuanto para este momento se han actualizado todos los mercados de las empresas distribuidoras, al contarse con información real para todas las empresas al mes de abril 2015. En estas proyecciones se consideró el monto de las importaciones de energía para el III trimestre del año 2015 reconocidas para el ICE en la RIE-017-2015 del 18 de febrero del 2015, dando una generación térmica para el tercer trimestre de 25,55 GWh.
@@ -88,7 +86,6 @@ Los precios utilizados para valorar el diésel térmico y el búnker de bajo azu
 CUADRO Nº 3
 PRECIOS DE COMBUSTIBLES PARA GENERACIÓN TÉRMICA
 COLONES POR LITRO
-[imagen]
 Para realizar los cálculos y las proyecciones, el precio del combustible total, se convierte a dólares utilizando el tipo de cambio de venta para las operaciones con el sector público no bancario de la misma fecha que la publicación de la resolución de los combustibles utilizada, en este caso, de ¢537,48 del 28 de mayo de 2015.
 Pero para calcular el gasto de combustible se utiliza el tipo de cambio promedio proyectado para el 2015.
 Dados estos precios de los combustibles y la cantidad de litros que se prevé consumir en el periodo de análisis, el gasto estimado para el III trimestre, 2015, por mes, se detalla en el siguiente cuadro:
@@ -96,7 +93,6 @@ CUADRO Nº 4
 CONSUMO DE COMBUSTIBLES PARA GENERACIÓN TÉRMICA
 MILLONES DE COLONES
 III trimestre, 2015
-[imagen]
 c. Ajuste en el sistema de generación del ICE
 El cálculo del ajuste necesario para las tarifas del sistema de generación suma los siguientes rubros:
 i. Gasto de combustibles para el segundo trimestre 2015:
@@ -109,7 +105,6 @@ CUADRO Nº 5
 AJUSTE TRIMESTRAL
 NOVIEMBRE, DICIEMBRE 2014 Y ENERO 2015
 MILLONES DE COLONES
-[imagen]
 iii. Traslado de gasto de combustible del tercer trimestre 2014
 Mediante el acuerdo 07-36-2014 de la Junta Directiva del 27 de junio de 2014, este órgano acordó “Acoger la solicitud del ICE para que en los ajustes extraordinarios para la aplicación de la “Metodología para el Ajuste Extraordinario de las Tarifas de Electricidad, Producto de Variaciones en el Costo de los Combustibles (CVC) utilizados en la generación térmica para consumo nacional” para el servicio de generación del ICE y el servicio de distribución, de la estimación de 45 696,78 millones de colones se aplique en el tercer trimestre de 2014 la suma de 24 889,96 millones de colones, en el cuarto trimestre la suma de 7 916,14 millones de colones y el remanente aplicarlo al año 2015 en cuatro tractos trimestrales.”
 Se aclara que en el Considerando I de la resolución RIE-034-2014, que hace referencia al oficio 814-IE-2014, punto iv “Ajuste total al sistema de generación” se indicó textualmente lo siguiente: “Quedando pendiente de reconocer un monto de ¢7 916,14 millones para el IV trimestre del 2014 y un monto de ¢10 890,7 millones (diferencia ¢66 444,48, y ¢47 637,64 millones y ¢7 916,14 millones) a reconocer en partes iguales para los trimestres del 2015.” Al respecto se indica que del análisis efectuado en los cálculos del monto a reconocer en el año 2015 incluida en el Considerando I de la resolución RIE-034-2014 citado en el punto anterior, existió un error en el resultado ¢10 890,7 millones; por cuanto este número resulta de la diferencia entre ¢68 444,48 millones y ¢47 637,64 millones y ¢7 916,64 millones, siendo lo correcto ¢12 890,69 millones.
@@ -120,7 +115,6 @@ CUADRO Nº 6
 MONTO A RECONOCER EN EL SEGUNDO TRIMESTRE DEL 2015
 JULIO-SETIEMBRE 2015
 MILLONES DE COLONES
-[imagen]
 El cargo se obtiene de dividir el monto total a reconocer en el tercer trimestre 2015 (-¢4 562,91 millones del Cuadro Nº 6) entre el total de ingresos estimados (sin combustibles) de este mismo trimestre (datos del Cuadro Nº 1, con usuarios directos). El monto que se va a reconocer en los meses de julio agosto y setiembre es de -¢2 073 millones por mes (ajuste sin sumar combustibles -¢9 443+¢3 222=-¢6 220/3).
 v. Tarifas para los usuarios directos del servicio de generación del ICE:
 La determinación de las tarifas competitivas para los usuarios directos del servicio de generación del ICE, tarifa T-UD se realizó de conformidad con lo definido en el Plan Nacional de Desarrollo, el Plan Nacional de Energía, la Directriz 031-MINAET, el Por Tanto I.7.h de la resolución RJD-017-2012 y las resoluciones 856- RCR-2012 del 11 de mayo de 2012, 1027 RCR-2012 del 20 de diciembre del 2012 y la RIE-019-2013 del 8 de febrero del 2013, esta última rectificada por la RIE-099- 2013 del 26 de noviembre del 2013.
@@ -134,19 +128,16 @@ MONTOS POR COMPRAS DE ENERGÍA POR EMPRESA DISTRIBUIDORA
 POR CONCEPTO DE COMBUSTIBLES
 MILLONES DE COLONES
 JULIO-SETIEMBRE 2015
-[imagen]
 Con la información de compras de energía por concepto de generación térmica y de los ingresos sin combustibles del sistema de distribución según la metodología, se procede a calcular los factores CD3 paracada una de las distribuidoras, tal y como se detalla:
 CUADRO Nº 8
 CARGO TRIMESTRAL POR EMPRESA DISTRIBUIDORA DE ENERGÍA
 JULIO-SETIEMBRE 2015
-[imagen]
 Nota: El cargo a aplicar a las tarifas de Coopeguanacaste varío después de la consulta pública, debido a la resolución RIE-064-2015 del 18 de junio del 2015 que modificó las tarifas sin combustible de esta empresa.
 Los porcentajes anteriores son los que se utilizan para calcular las tarifas finales de cada empresa.
 e. Ajuste promedio
 De acuerdo con el análisis que precede, así como con las tarifas propuestas para el III trimestre del 2015 por medio de la RIE-098-2014 del 12 de diciembre del 2014 (para Coopealfaro Ruiz y JASEC), la RIE-007-2015 para CNFL, la RIE-017-2015 y RIE-019-2015 para ICE generación y distribución, la RIE-035-2015 para ESPH, la RIE-034-2015 para Coopelesca, la RIE-041-2015 para Coopesantos y la RIE-064-2015 para Coopeguanacaste, el ajuste que procede a las tarifas correspondiente a la revisión del III trimestre del año 2015 para el sistema de generación del ICE y los sistemas de distribución del ICE y las empresas distribuidoras es: CUADRO Nº 9
 AJUSTE PROMEDIO EN LAS TARIFAS POR SERVICIO
 JULIO-SETIEMBRE, 2015
-[imagen]
 Nota: estos porcentajes de ajuste son sobre las tarifas vigentes para el III trimestre del 2015, según el detalle indicado anteriormente.
 Fuente: Intendencia de Energía
 Por otro lado, el usuario final se beneficiará con una rebaja en sus tarifas, de acuerdo a lo que pagó en su factura eléctrica durante el último mes del segundo trimestre, que corresponde al mes de junio, tal como se indica:
@@ -155,7 +146,6 @@ AJUSTE PROMEDIO EN LAS TARIFAS POR SERVICIO DE ACUERDO A LAS TARIFAS VIGENTES DE
 TRIMESTRE
 2015
 [imagen]
-[imagen] [imagen]
 (…)
 IV. REQUERIMIENTOS DE INFORMACIÓN
 De acuerdo con el análisis que antecede y las limitaciones de información encontradas a la fecha, se considera necesario que para el siguiente ajuste por costo variable de combustible se cumplan con los siguientes requerimientos:
@@ -183,8 +173,6 @@ POR TANTO
 EL INTENDENTE DE ENERGÍA
 RESUELVE:
 I. Establecer los siguientes cargos para el tercer trimestre del año 2015 por empresa, aplicables a la estructura de costos sin combustibles de cada una de ellas:
-[imagen]
-[imagen]
 II. Fijar los precios de las tarifas para el servicio de generación que presta el Instituto Costarricense de Electricidad, tal y como se detalla (¢/kWh, ¢/kW y %, según corresponda):
 I. C. E. | Estructura de Costos sin combustible | Rige del 1 julio al 30
 Servicio de generación | | Tarifa
@@ -212,6 +200,7 @@ Período valle | Por cada kWh | 0,045 | $0,042
 Período nocturno | Por cada kWh | 0,039 | $0,036
 III. Fijar los precios de las tarifas para los sistemas de distribución del ICE y de las empresas distribuidoras de electricidad, tal y como se detalla (¢/kWh, ¢/kW y %, según corresponda):
 [imagen]
+(Nota de Sinalevi: Mediante resolución RIE-073 del 2 de julio de 2015, se acordó rectificar el título de la tercer columna del cuadro anterior para que se lea de la siguiente manera: (…) Rige a partir del 01 de julio y hasta el 30 de setiembre del 2015.)
 [imagen]
 [imagen]
 [imagen]
