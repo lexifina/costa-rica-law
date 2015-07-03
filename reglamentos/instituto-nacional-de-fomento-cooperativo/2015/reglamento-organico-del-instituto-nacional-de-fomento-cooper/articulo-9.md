@@ -1,0 +1,3 @@
+SECCIÓN III
+Administración General Superior
+Artículo 9º—De la Dirección Ejecutiva. El Director(a) Ejecutivo(a) es la máxima autoridad administrativa del Instituto y depende directamente de la Junta Directiva. Ejerce la administración general del INFOCOOP, conforme a las disposiciones legales, reglamentarias, procedimentales, los acuerdos, políticas y lineamientos de la Junta Directiva. Compete a la Dirección Ejecutiva el tratamiento de los temas estratégicos y la planificación institucional. El nombramiento del Director Ejecutivo deberá recaer en persona de reconocida capacidad y probada experiencia en asuntos cooperativos.

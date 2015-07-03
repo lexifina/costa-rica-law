@@ -1,0 +1,1 @@
+Artículo 16.—De la Contraloría de Servicios. El área de Contraloría de Servicios está adscrita a la Dirección Ejecutiva y tiene por objetivo el cumplimiento de las funciones establecidas en el Decreto Ejecutivo Nº 26025, de Creación, Organización y Funcionamiento del Sistema Nacional de Contralorías Servicios y demás legislación vigente.

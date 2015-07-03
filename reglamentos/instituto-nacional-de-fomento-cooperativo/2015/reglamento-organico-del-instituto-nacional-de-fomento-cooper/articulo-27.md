@@ -1,0 +1,2 @@
+Artículo 27.—Función de coordinación. Toda Jefatura competente para resolver un asunto, deberá coordinar con las demás jefaturas del INFOCOOP que tengan alguna injerencia directa o indirecta en el asunto de que se trate, antes de pronunciarse, a efecto de que exista coherencia entre todas las decisiones o actos que emanen del Instituto.
+No se requerirá la autorización de la Administración Superior para ejercer las labores de coordinación que resulten necesarias para alcanzar un adecuado resultado de las funciones que legalmente le correspondan.

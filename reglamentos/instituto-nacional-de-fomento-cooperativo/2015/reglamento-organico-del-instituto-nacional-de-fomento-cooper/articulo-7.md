@@ -1,0 +1,1 @@
+Artículo 7º—De la Secretaría de Actas. La Junta Directiva contará con asistencia ejecutiva de la Secretaría de Actas y del personal necesario, quienes responderán por su gestión ante el Director(a) Ejecutivo(a). Tendrá bajo su responsabilidad el apoyo logístico total que requiera la Junta Directiva para el desarrollo de sus funciones.
