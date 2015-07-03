@@ -14,3 +14,4 @@ Aplica las exenciones al pago del impuesto del 8% sobre los rendimientos generad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-11 | la propia norma |
+| 2 | 2015-07-03 | Resolución 20 (2015-07-03) |
