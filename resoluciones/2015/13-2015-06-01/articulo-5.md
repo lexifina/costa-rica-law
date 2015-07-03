@@ -1,0 +1,1 @@
+Artículo 5º—De ser aprobada la solicitud de exoneración o la aplicación de tarifas reducidas, el sujeto pasivo procederá a autoliquidar la obligación tributaria en la declaración establecida bajo el formulario D-103-Retenciones en la fuente.
