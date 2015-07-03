@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-002-2015 del 19 de enero de 2015, publicada en La Gaceta N° 21 del 30 de enero de 2015.
