@@ -1,2 +1,3 @@
-Artículo 17.—En igualdad de condiciones o ajuicio del Concejo. dará preferencia a jóvenes solicitantes que pertenezcan a la Filarmonía Municipal o a cualquier entidad o asociación con fines culturales, artísticos, cívicos o que en cualquier forma contribuya al mejoramiento de la comunidad, para lo cual deberán comprobar esa calidad.
-(Así corrida su numeración, en sesión N° 10 de 8 de marzo de 2004, que adicionó un artículo 14, al capítulo II, pasando el anterior artículo 16, a ser el 17 actual)
+Artículo 17. —NOTA: en la publicación de este reglamento, no se incluyó el texto de este artículo.
+(Así corrida su numeración, en sesión N° 10 de 8 de marzo de 2004, que adicionó un artículo 14, al capítulo II, pasando el anterior artículo 15, a ser el 16 actual)
+(Corrida su numeración en acta N° 27 del 6 de julio de 2015, que lo traspaso del antiguo artículo 16 al 17)

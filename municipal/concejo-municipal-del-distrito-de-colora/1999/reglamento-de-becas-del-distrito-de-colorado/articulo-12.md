@@ -1,2 +1,2 @@
-Artículo 12.—El monto de becas será de ¢10.000,00 (diez mil colones exactos) mensuales para estudiantes de secundaria y a los estudiantes de primaria donde en su comunidad no exista una escuela y tengan que viajar a otra más alejada, también se les dará beca para el transporte; por el mismo monto anteriormente indicado.
-(Así reformado y publicado en La Gaceta N° 82 del 29 de abril de 2011)
+Artículo 12.—El monto de la beca será de 15.000 colones (quince mil colones) mensuales para estudios de secundaria y se entregará por mes vencido. Esta cantidad puede aumentarse cada año.
+(Así reformado en acta N° 27 del 6 de julio de 2015)

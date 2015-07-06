@@ -1,2 +1,3 @@
-Artículo 18.—La persona que suministre dalos falsos al hacer su solicitud, automáticamente perderá su derecho a obtener beca o a la pérdida de la misma si gozaré de ella.
-(Así corrida su numeración, en sesión N° 10 de 8 de marzo de 2004, que adicionó un artículo 14, al capítulo II, pasando el anterior artículo 17, a ser el 18 actual)
+Artículo 18.—En igualdad de condiciones o ajuicio del Concejo. dará preferencia a jóvenes solicitantes que pertenezcan a la Filarmonía Municipal o a cualquier entidad o asociación con fines culturales, artísticos, cívicos o que en cualquier forma contribuya al mejoramiento de la comunidad, para lo cual deberán comprobar esa calidad.
+(Así corrida su numeración, en sesión N° 10 de 8 de marzo de 2004, que adicionó un artículo 14, al capítulo II, pasando el anterior artículo 16, a ser el 17 actual)
+(Corrida su numeración en acta N° 27 del 6 de julio de 2015, que lo traspaso del antiguo artículo 17 al 18)

@@ -1,1 +1,2 @@
-Artículo 7°—El becario deberá presentar cada cuatro meses la tarjeta de calificaciones ante los miembros de la Comisión de Educación para que estos a su vez informen al Concejo lo que corresponde.
+Artículo 7º—El becario deberá presentar cada (dos meses, tres meses, cuatro meses o seis meses) de acuerdo al plan de estudio respectivo la tarjeta de calificaciones ante los miembros de la Comisión de Educación para que ésta a su vez informe al Concejo lo que corresponde, de lo contrario se le suspenderá dicho beneficio hasta cumplir con este requisito.
+(Así reformado en acta N° 27 del 6 de julio de 2015)
