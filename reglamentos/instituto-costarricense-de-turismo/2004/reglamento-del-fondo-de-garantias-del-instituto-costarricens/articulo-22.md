@@ -1,4 +1,5 @@
-Artículo 22.—De los préstamos a los afiliados. La Junta Administradora podrá conceder préstamos a los afiliados del Fondo, cuando ellos lo soliciten y deberán estar garantizados mediante una pagaré suscrito por los afiliados solicitantes y con el aval de al menos uno de los beneficiarios, según lo establece el Artículo 7° de este Reglamento, y hasta por la totalidad del aporte patronal, siempre que tenga como mínimo seis cuotas de aportes acumuladas, en los siguientes plazos:
+Artículo 22.—De los préstamos a los afiliados. La Junta Administradora podrá conceder préstamos a los afiliados del Fondo, los créditos deberán estar garantizados mediante un pagaré suscrito por los afiliados y hasta por la totalidad del aporte patronal, siempre que tenga como mínimo seis cuotas de aportes acumuladas, en los siguientes plazos:
+(Así reformado el párrafo anterior mediante sesión ordianria N° 5894 del 6 de julio del 2015)
 a) El afiliado que tenga entre seis meses y menos de cuatro años de pertenecer al Fondo, a un plazo máximo de amortización de cuatro años.
 b) El afiliado que tenga entre de cuatro y menos de diez años de pertenecer al Fondo, a un plazo máximo de amortización de siete años.
 c) El afiliado que tenga diez o mas años de pertenecer al Fondo, a un plazo de amortización de diez años.

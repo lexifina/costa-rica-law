@@ -18,3 +18,4 @@ Reglamento del Fondo de Garantías del Instituto Costarricense de Turismo
 | 3 | 2006-08-04 | Reglamento 10 (2006-08-04) |
 | 4 | 2008-02-28 | Reglamento 0 (2008-02-28) |
 | 5 | 2011-11-15 | Reglamento 5722 (2011-11-15) |
+| 6 | 2015-07-06 | Reglamento 5894 (2015-07-06) |
