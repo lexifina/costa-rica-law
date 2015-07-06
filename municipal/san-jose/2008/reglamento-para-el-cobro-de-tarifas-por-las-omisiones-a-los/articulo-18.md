@@ -1,1 +1,0 @@
-Artículo 18.—En las esquinas de cuadra, deberá construirse las rampas para discapacitados, adaptándose a los niveles entre acera-calle, de tal forma que permita la continuidad y fluidez de los recorridos urbanos exigidos por la Ley 7600.
