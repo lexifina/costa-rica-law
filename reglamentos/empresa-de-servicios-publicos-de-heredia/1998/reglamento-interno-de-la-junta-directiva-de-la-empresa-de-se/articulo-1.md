@@ -1,4 +1,6 @@
+(Derogado)
 EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA
+(Esta norma fue derogada por el artículo 50 del Reglamento Interno de la Junta Directiva de la Empresa de Servicios Públicos de Heredia S.A., aprobado en sesión N° 3559 del 6 de julio de 2015)
 REGLAMENTO INTERNO
 Con el objeto de actualizar y adecuar el ordenamiento reglamentario, aplicable a este órgano colegiado, a las normativas de la Ley de Transformación de la Empresa, se acuerda:
 ACUERDO JD-259-98
