@@ -1,1 +1,0 @@
-Artículo 13.—Vigencia de la multa por incumplimiento: La multa trimestral establecida en el artículo 76 y 76 bis del Código se impondrá hasta tanto no haya sido cumplida la obligación, o cancelado el costo en el caso de haber sido realizada por la Municipalidad. La notificación se hará trimestralmente por parte del Departamento de Desarrollo Catastral.

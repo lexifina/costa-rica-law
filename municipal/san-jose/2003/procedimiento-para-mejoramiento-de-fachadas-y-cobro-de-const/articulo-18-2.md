@@ -1,1 +1,0 @@
-Artículo 18.—Valor de un metro cuadrado de acera en losa de concreto: El valor del metro cuadrado por construcción de aceras en losa de concreto, es de siete mil cuatrocientos cincuenta y dos colones.

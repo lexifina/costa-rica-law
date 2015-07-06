@@ -1,1 +1,0 @@
-Artículo 7º—Costo efectivo: Para efectos de este Reglamento, el costo efectivo de la obra es la suma del costo de los materiales, la mano de obra y el uso de equipo, más un diez por ciento de utilidad. Esto último de conformidad con el artículo 74, del Código Municipal.

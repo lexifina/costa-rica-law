@@ -1,1 +1,0 @@
-Artículo 20.—Valor del metro cuadrado de acera simulando adoquín en concreto estampado: El valor del metro cuadrado por construcción de aceras simulando adoquín a través de la técnica de concreto estampado, es de diez mil seiscientos treinta y un colones con sesenta y seis céntimos.

@@ -1,1 +1,0 @@
-Artículo 17.—Rampas para discapacitados: En las esquinas de cuadra deberá construirse las rampas para discapacitados, adaptándose a los niveles entre acera-calle, de tal forma que permita la continuidad y fluidez de los recorridos urbanos, exigida por la Ley Nº 7600.
