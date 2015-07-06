@@ -18,3 +18,4 @@ En caso de colocación con no residentes, la Tesorería Nacional deberá publica
 (Modificado el inciso c) de la presente ley por el artículo 1° del decreto ejecutivo N° 38889 del 4 de febrero del 2015)
 (Modificado el inciso c) por el artículo 1° de la ley N° 9294 del 13 de marzo de 2015)
 (Modificados los incisos b) y c) por el artículo 1° del decreto ejecutivo N° 38963 del 6 de abril de 2015)
+(Reformado por el artículo 1° de la ley N° 9304 del 15 de junio de 2015)
