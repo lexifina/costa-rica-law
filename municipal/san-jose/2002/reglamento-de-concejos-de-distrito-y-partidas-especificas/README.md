@@ -14,3 +14,4 @@ Reglamento de Concejos de Distrito y Partidas Específicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-07-01 | la propia norma |
+| 2 | 2015-07-06 | Reglamento municipal 131 (2015-07-06) |

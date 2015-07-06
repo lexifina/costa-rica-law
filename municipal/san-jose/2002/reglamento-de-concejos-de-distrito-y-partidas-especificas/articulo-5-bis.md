@@ -1,0 +1,2 @@
+Artículo 5 bis.- De la Oficina de Síndicos y Concejos de Distrito. En la Sede del Concejo Municipal de San José habrá una Oficina destinada a la atención de los Síndicos y de los Concejos de Distrito, integrada por un funcionario o funcionaria que tendrá la obligación de realizar trabajos secretariales para todos los Concejos de Distrito y Síndicos del Cantón Central de San José.
+(Así adicionado mediante sesión extraordinaria N° 131 del 6 de julio del 2015)
