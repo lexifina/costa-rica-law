@@ -1,0 +1,2 @@
+Artículo 2°-Modifícanse los Artículos 2º, 3°, 4°, 5° y 6°de la Ley No. 9289, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2015, publicada en el Alcance Digital No. 80 a La Gaceta No. 241 del 15 de diciembre del 2014, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance digital N° 47 a La Gaceta N° 123 del 26 de junio de 2015, de la página 5 a la 118)

@@ -9,3 +9,4 @@ PRODUCTOS:
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 80 a La Gaceta N° 241 del 15 de diciembre de 2014, Tomo VII página 1032 a la 1038)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38943 del 17 de marzo de 2015)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39029 del 13 de mayo de 2015)
+(Reformado por el artículo 2° de la ley N° 9304 del 15 de junio de 2015)
