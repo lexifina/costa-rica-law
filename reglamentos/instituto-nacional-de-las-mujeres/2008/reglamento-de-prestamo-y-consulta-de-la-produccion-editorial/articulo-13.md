@@ -1,1 +1,0 @@
-Artículo 13.—La fecha del vencimiento del préstamo podrá ser prorrogada, siempre que la producción editorial propia o externa al INAMU no haya sido solicitada por otras usuarias o usuarios. Es indispensable la presentación del material o equipo prestado dentro del plazo establecido para su devolución, y llenar una nueva boleta de préstamo para hacer efectiva la prórroga.

@@ -1,3 +1,0 @@
-Artículo 6º—Cada vez que una persona funcionaria solicite ejemplares de la producción editorial propia o externa al INAMU en préstamo a domicilio, deberá presentarse ante la persona encargada y llenar con letra legible y con tinta los datos solicitados en la boleta dispuesta para tal fin.
-De igual forma, las personas funcionarias que soliciten equipo audiovisual deberán realizar solicitud previa, a fin de separar el equipo con antelación y llenar la boleta que para tal fin se encuentra a disposición.
-Una vez devuelto el material o el equipo, a la boleta o formulario se le pondrá el sello de devolución y permanecerá en la Unidad para la elaboración de estadísticas.

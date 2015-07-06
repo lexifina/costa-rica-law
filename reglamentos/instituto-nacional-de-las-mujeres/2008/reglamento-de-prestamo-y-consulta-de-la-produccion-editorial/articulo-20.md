@@ -1,1 +1,0 @@
-Artículo 20.—Corresponde a la Unidad de Documentación autorizar la adquisición de toda la producción editorial externa que requieran las distintas instancias institucionales con el propósito de llevar el inventario y la custodia de los activos documentales, audiovisuales y de otros formatos de la producción editorial para el INAMU.
