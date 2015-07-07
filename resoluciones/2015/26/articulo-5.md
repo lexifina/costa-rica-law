@@ -1,0 +1,1 @@
+Artículo 5º—Corresponde a la Dirección General de Hacienda remitir a solicitud de la Administración Tributaria Territorial o de la Dirección de Grandes Contribuyentes Nacionales, según corresponda, copia certificada de la autorización y del expediente que se levantó con ocasión de la solicitud realizada por el beneficiario del incentivo.

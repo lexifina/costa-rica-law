@@ -1,0 +1,2 @@
+Artículo 3º—Presentación de la solicitud. El beneficiario de la exoneración debe presentar formalmente la solicitud de liquidación de impuestos ante la Administración Tributaria, en la que se encuentre adscrito, adjuntando lo siguiente: a) la autorización para la liquidación de los tributos extendida por la Dirección General de Hacienda; b) los documentos que la respaldan y c) los requisitos establecidos en el artículo 4 de esta resolución.
+Cuando la solicitud no sea presentada de forma personal por el sujeto legitimado, deberá estar debidamente autenticada.

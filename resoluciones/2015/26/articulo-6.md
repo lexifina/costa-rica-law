@@ -1,0 +1,1 @@
+Artículo 6º—Inspección del bien. Cuando corresponda o se requiera, el valuador podrá efectuar una inspección del bien o de los bienes, levantando un acta que debe contener el detalle de la actuación realizada.
