@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE BELÉN
+La suscrita Secretaria del Concejo Municipal de Belén, le notifica el acuerdo tomado, en la sesión ordinaria N° 34-2015, artículo 7, celebrada el nueve de junio del dos mil quince, de previo a su aprobación definitiva, que literalmente dice:
+La Secretaria del Concejo Municipal Ana Patricia Murillo, informa que en La Gaceta N° 97 del jueves 21 de mayo de 2015, se publicó: El acuerdo tomado, en la sesión ordinaria N° 25-2015, Artículo 17, celebrada el veintiocho de abril del dos mil quince, para someterlo a consulta pública por un plazo de diez días hábiles a partir de esta publicación, de previo a su aprobación definitiva, que literalmente dice:
+Reformar el artículo 13 del Reglamento emitido para la Ley 9047, el siguiente texto: Refórmese el artículo 13 del Reglamento emitido para la aplicación de la Ley N° 9047, para que en adelante se lea así:
+Artículo 13.—Plazo para resolver. La Administración Tributaria Municipal bajo la jerarquía de la Dirección Financiera de la Municipalidad de Belén, será la responsable de resolver las solicitudes de Licencia que se presenten. La Unidad Tributaria deberá emitir el acto administrativo, debidamente motivado otorgando o denegando la licencia dentro de los 30 días naturales a partir de la presentación.
+Se acuerda por unanimidad: No habiendo conocido objeciones queda el mismo definitivamente aprobado y entra en vigencia a partir de esta publicación.
+San Antonio de Belén, Heredia, 22 de junio del 2015.
