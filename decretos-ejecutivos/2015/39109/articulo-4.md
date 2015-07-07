@@ -1,0 +1,2 @@
+ARTÍCULO 4
+Cuando una de las Partes expida un nuevo modelo de pasaporte ordinario o modifique los que ya están intercambiados, deberán notificar a la otra Parte sobre dichas modificaciones a través de los canales diplomáticos, treinta (30) días hábiles antes de la fecha en que el nuevo pasaporte o las modificaciones entren en vigor. La notificación deberá incluir una muestra de los documentos nuevos o modificaciones, además de la información respectiva sobre su aplicabilidad.
