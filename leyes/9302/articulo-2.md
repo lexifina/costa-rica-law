@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se autoriza a la Municipalidad de Cartago para que segregue de este terreno un cincuenta por ciento (50%) en toda su parte oeste y done a su vez a la Asociación Seres de Luz, cédula jurídica número tres-cero cero dos-seis cuatro cuatro-cinco dos uno (3-002-644-521). Conservando el Municipio la mitad del terreno donde se encuentra la naciente de agua.
