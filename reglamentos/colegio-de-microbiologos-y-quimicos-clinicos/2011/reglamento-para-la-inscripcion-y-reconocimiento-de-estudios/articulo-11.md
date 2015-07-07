@@ -11,3 +11,7 @@ i) Área de especialización de la Administración: Se incluyen estudios enfocad
 j) Área de especialización de la Epidemiología: Se incluyen estudios enfocados en la epidemiología de las enfermedades infecciosas y no infecciosas, se reconocen títulos en Epidemiología, Salud Pública, Salud Comunitaria y Salud y Saneamiento Ambiental.
 Especialidad en Bioética.
 (Así adicionada la especialidad anterior en sesión N° 26:2011-2012 del 19 de octubre del 2011)
+Especialista en Reproducción Asistida Humana, con énfasis en Manejo de Técnicas de Alta Complejidad en el Laboratorio de Reproducción Asistida.
+(Así adicionada la especialidad anterior mediante sesión N° 15:2015-2016 del 7 de julio del 2015)
+Especialista en Reproducción Asistida Humana, con énfasis en Manejo de Técnicas de Baja Complejidad en el Laboratorio de Reproducción Asistida.
+(Así adicionada la especialidad anterior mediante sesión N° 15:2015-2016 del 7 de julio del 2015)
