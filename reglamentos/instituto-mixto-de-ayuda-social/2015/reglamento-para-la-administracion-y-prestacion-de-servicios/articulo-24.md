@@ -1,0 +1,1 @@
+Artículo 24.—Designación de personas encargadas de la conducción del vehículo de uso discrecional. El funcionariado al que hace referencia el artículo Nº 20 podrá solicitar por escrito, al Área de Desarrollo Humano, la designación de chofer, presentando la motivación correspondiente.

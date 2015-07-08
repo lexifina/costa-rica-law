@@ -1,0 +1,7 @@
+Artículo 4º—De los principios que rigen el presente Reglamento. Son principios rectores del presente Reglamento, los cuales deberán orientar todas las actuaciones aquí reguladas, los siguientes:
+a. Principio de Eficiencia: Maximizar los resultados ante la escasez de fondos y recursos disponibles, para el logro de los objetivos institucionales, al menor costo posible.
+b. Principio de Eficacia: Adecuar y concretizar las políticas públicas, así como el cumplimiento de los objetivos y metas institucionales.
+c. Principio de Austeridad: La asignación, adquisición, conservación e inversión de los recursos y fondos públicos deben orientarse a la satisfacción plena del interés público y al uso racional de éstos.
+d. Principio de Transparencia: Como parte de la rendición de cuentas el cumplimiento de las funciones públicas asignadas debe hacerse de cara a los administrados (as).
+e. Principio de Probidad: La persona servidora pública está obligada a trabajar por el interés público, su gestión debe atender las necesidades prioritarias con rectitud y buena fe en el uso de las facultades que le confiere la ley y este Reglamento.
+f. Principio de Razonabilidad y Proporcionalidad: El contenido y alcance de las actuaciones y obligaciones recíprocas que se acuerden para el cumplimiento de los objetivos de este reglamento, han de ser razonablemente equivalentes entre sí y proporcionadas a la naturaleza del objeto y fines contractuales.

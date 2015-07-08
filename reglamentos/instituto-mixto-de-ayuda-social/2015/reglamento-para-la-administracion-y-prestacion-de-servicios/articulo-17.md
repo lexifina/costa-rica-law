@@ -1,0 +1,1 @@
+Artículo 17.—De la agrupación de solicitudes de transporte. Con base en criterios de razonabilidad, oportunidad y economía, la calidad en la prestación de los servicios y reducir las emisiones de gases contaminantes al ambiente, se promoverán los viajes conjuntos entre personal de diferentes dependencias institucionales para un mismo destino o ruta.
