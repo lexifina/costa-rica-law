@@ -1,5 +1,5 @@
-DECRETOS
 No 27466-S
+(Este decreto ejecutivo fue derogado por el artículo 1° del decreto ejecutivo N° 39282 del 8 de julio del 2015)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE SALUD
 En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) de la Constitución Política ; 28 de la ley No 6227 de 2 de mayo de 1978 “Ley General de la Administración Pública "; 2, inciso a) de la ley N° 5412 de 8 de noviembre de 1978 "Ley Orgánica del Ministerio de Salud"; 1, 40 y 43 de la ley No 5395 de 30 de octubre de 1973 "Ley General de Salud”.

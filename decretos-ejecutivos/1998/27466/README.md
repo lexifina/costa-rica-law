@@ -13,3 +13,4 @@ Declara Inopia de Profesionales y Técnicos en Física de Radioterapia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-10 | la propia norma |
+| 2 | 2015-07-08 | Decreto Ejecutivo 39282 (2015-07-08) |
