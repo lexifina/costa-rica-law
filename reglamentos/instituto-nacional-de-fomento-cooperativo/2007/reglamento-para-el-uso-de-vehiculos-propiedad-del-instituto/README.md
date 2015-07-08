@@ -19,3 +19,4 @@ Reglamento para el Uso de Vehículos propiedad del Instituto Nacional de Fomento
 | 4 | 2013-09-26 | Reglamento 0 (2013-09-26) |
 | 5 | 2014-07-14 | Reglamento 0 (2014-07-14) |
 | 6 | 2014-12-11 | Reglamento 0 (2014-12-11) |
+| 7 | 2015-07-08 | Reglamento 3965 (2015-07-08) |
