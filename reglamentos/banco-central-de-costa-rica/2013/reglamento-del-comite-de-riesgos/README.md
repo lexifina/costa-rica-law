@@ -15,3 +15,4 @@ Reglamento del Comité de Riesgos
 | --- | --- | --- |
 | 1 | 2013-09-09 | la propia norma |
 | 2 | 2014-04-02 | Reglamento 5643 (2014-04-02) |
+| 3 | 2015-07-08 | Reglamento 5694 (2015-07-08) |

@@ -1,2 +1,1 @@
-Artículo 7. Quórum
-El quórum de las sesiones del Comité de Riegos, ordinarias o extraordinarias, se formará con al menos tres miembros, uno de los cuales debe ser el Gerente o Subgerente. Los acuerdos se adoptarán por mayoría de votos, salvo disposición legal en contrario. En caso de empate, quien preside tendrá doble voto.
+Artículo 7º—Asistencia de la Auditoría Interna. El Comité de Riesgos podrá invitar a participar en las sesiones al Auditor Interno o Subauditor Interno: su participación será con voz pero sin voto, pudiendo hacer constar ambos, cuando lo consideren necesario y en las actas respectivas, sus opiniones sobre los asuntos que se debaten.

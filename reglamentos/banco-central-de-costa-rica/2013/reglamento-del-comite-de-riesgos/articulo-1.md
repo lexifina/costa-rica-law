@@ -1,4 +1,3 @@
-BANCO CENTRAL DE COSTA RICA
 La Junta Directiva del Banco Central de Costa Rica en los numerales 1, 2, y 3 del artículo 4 del acta de la sesión 5608-2013, celebrada el 7 de agosto del 2013,
 considerando que:
 a.- La Ley General de Control Interno, Ley 8292, publicada en el diario oficial La Gaceta 169, del 4 de setiembre del 2002, las Directrices Generales para el Establecimiento y Funcionamiento del Sistema Específico de Valoración de Riesgo Institucional (SEVRI), publicadas en el diario oficial La Gaceta 134, del 12 de julio del 2005, y las Normas de Control Interno para el Sector Público, publicadas en el diario oficial La Gaceta 26, del 6 de febrero del 2009, señalan la obligación de que las instituciones públicas dispongan de un modelo de valoración de riesgos, acorde con sus necesidades particulares que les permitan identificar el nivel de riesgo institucional y adoptar los métodos de uso continuo y sistemático, a fin de analizar y administrar el nivel de dicho riesgo.
@@ -18,6 +17,7 @@ h.- La Junta Directiva, en el artículo 7 del acta de la sesión 5604- 2013, cel
 i.- Dado el nuevo enfoque de gestión integral de riesgo y su gobernanza, se hace necesario disponer de instrumentos actualizados, que faciliten su puesta en práctica, recalcando la responsabilidad que, en lo pertinente, asumen las divisiones del Banco en esta materia.
 dispuso:
 2.- Aprobar el Reglamento del Comité de Riesgos, cuyo texto se inserta de inmediato:
-“Reglamento del Comité de Riesgos del Banco Central de Costa Rica
- Artículo 1. Creación del Comité de Riesgos.
-Créase el Comité de Riesgos, que tendrá como fin vigilar la adecuada gestión integral de riesgos.
+(Nota de Sinalevi: El texto de este reglamento fue reformado parcialmente y reproducido su texto en forma íntegra en sesión N° 5694 del 8 de julio de 2015, y publicado en La Gaceta N° 143 del 24 de julio de 2015, por lo que se transcribe a continuación:)
+REGLAMENTO DEL COMITÉ DE RIESGOS
+DEL BANCO CENTRAL DE COSTA RICA
+Artículo 1º—Creación del Comité de Riesgos. Créase el Comité de Riesgos del Banco Central de Costa Rica, que tendrá como fin asegurarse que en la Institución se aplique el marco de gestión de riesgos aprobado por la Junta Directiva conforme las políticas de alto nivel que ésta apruebe.
