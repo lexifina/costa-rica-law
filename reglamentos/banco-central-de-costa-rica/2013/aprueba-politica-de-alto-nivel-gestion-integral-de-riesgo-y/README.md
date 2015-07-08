@@ -14,3 +14,4 @@ Aprueba Política de Alto Nivel Gestión Integral de Riesgo y el Reglamento del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-09 | la propia norma |
+| 2 | 2015-07-08 | Reglamento 5694 (2015-07-08) |
