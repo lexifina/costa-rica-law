@@ -1,1 +1,0 @@
-Artículo 50.—Del informe de accidente. El Área de Servicios Generales analizará todo accidente de tránsito en que participe un vehículo del IMAS, rendirá un informe y emitirá criterio técnico a la Subgerencia de Soporte Administrativo.

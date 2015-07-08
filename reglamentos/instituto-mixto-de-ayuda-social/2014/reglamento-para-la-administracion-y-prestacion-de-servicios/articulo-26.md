@@ -1,1 +1,0 @@
-Artículo 26.—De los registros de firmas autorizadas para solicitar el servicio de transportes y registro para conducir vehículos institucionales. El Área de Servicios Generales deberá mantener un registro de firmas de aquellas personas autorizadas para solicitar servicio de transporte y un registro de las personas que se encuentran autorizadas para conducir.

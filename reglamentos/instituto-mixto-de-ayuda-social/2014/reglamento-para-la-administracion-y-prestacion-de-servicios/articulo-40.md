@@ -1,1 +1,0 @@
-Artículo 40.—Responsables en el control. Todas aquellas unidades que tengan asignadas a su dependencia un vehículo, ya sea de uso administrativo general o discrecional, serán las responsables del control sobre el uso y el rendimiento del combustible. Los (as) tarjetahabientes serán responsables por el uso correcto del combustible.

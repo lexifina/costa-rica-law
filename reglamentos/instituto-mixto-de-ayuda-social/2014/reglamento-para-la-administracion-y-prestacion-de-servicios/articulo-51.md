@@ -1,1 +1,0 @@
-Artículo 51.—De la atención. En todo caso de accidente de tránsito, corresponderá a la Unidad de Asesoría Jurídica brindar el apoyo legal suficiente ante las instancias judiciales que correspondan, en representación de los intereses del IMAS y ante las cuales tenga la legitimación correspondiente

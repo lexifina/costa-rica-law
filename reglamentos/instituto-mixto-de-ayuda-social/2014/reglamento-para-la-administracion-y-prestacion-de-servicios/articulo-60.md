@@ -1,3 +1,0 @@
-CAPÍTULO XI
-De las Responsabilidades
-Artículo 60.—Régimen Sancionatorio. El incumplimiento de la Ley N° 9078, Ley de Tránsito por vías públicas terrestres y seguridad vial, los Lineamientos Generales y específicos que hayan emitido o emitan los Entes y Órganos de Fiscalización Superior que regulen la materia, así como el presente Reglamento, dará lugar a las sanciones que establece la Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, el Reglamento Autónomo de Servicios y demás disposiciones concordantes. Lo anterior, observando el debido proceso para la investigación de las eventuales responsabilidades, conforme lo establecido en el Libro Segundo de la Ley General de la Administración Pública.

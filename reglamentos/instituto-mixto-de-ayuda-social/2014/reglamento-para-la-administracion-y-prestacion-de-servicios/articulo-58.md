@@ -1,1 +1,0 @@
-Artículo 58.—De los informes. Anualmente el Área responsable de Gestión Ambiental calculará la huella de carbono producto de las emisiones por consumo de combustible y se realizará la siembra de árboles para contrarrestar las toneladas de carbono enviadas a la atmósfera producto de las acciones institucionales.
