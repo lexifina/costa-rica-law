@@ -1,0 +1,5 @@
+ARTÍCULO 14. — DE LOS DEBERES DE LOS BENEFICIADOS CON UNA LICENCIA TEMPORAL. Los deberes de los beneficiados con una licencia temporal de comercialización de bebidas con contenido alcohólico son los siguientes:
+a) Cancelar de previo a las actividades que originan la licencia temporal los importes correspondientes a impuestos y tasas para poder llevarla a cabo.
+b) Cumplir con todas las especificaciones dadas por el Concejo Municipal en el otorgamiento de la licencia temporal.
+c) Informar posterior al evento que justificó el otorgamiento de la licencia temporal sobre cambios en la actividad, incidencias sobrevinientes durante la actividad, cumplimiento en los compromisos suscritos con la municipalidad, cumplimiento de las obligaciones adicionales que la municipalidad suscribió específicamente para las actividades, resultados generales de la actividad en cuanto a venta y consumo de bebidas con contenido alcohólico.
+d) Cancelar pendientes de pago en relación a los servicios municipales que así lo establezcan.

@@ -1,0 +1,4 @@
+ARTÍCULO 30. —DE LA VIOLACIÓN AL LOCAL ESTABLECIDO. Las licencias municipales para la comercialización de bebidas con contenido alcohólico, se otorgarán únicamente para que las actividades con esta finalidad, aprobadas por el Concejo, se desarrollen dentro del establecimiento.
+En el caso de comprobarse que la actividad de expendio o venta de bebidas con contenido alcohólico se ha extendido a la vía pública, aceras del negocio, zonas verdes del local, vehículos estacionados en el local o sus alrededores o zonas comunes en centros comerciales; se procederá de la siguiente forma:
+a) Se notificará al titular de la licencia la violación en la cual está incurriendo con su actuar para que se pronuncie al respecto y corrija su actuación.
+b) En caso de reincidencia la municipalidad deberá aplicar las sanciones que correspondan y que se establecen en el presente reglamento.

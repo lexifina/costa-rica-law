@@ -1,0 +1,2 @@
+ARTÍCULO 19. — DE LOS PLAZOS. La Oficina de Patentes deberá coordinar de manera interna todo el trámite de envió completo del expediente administrativo de la solicitud de licencias ante el Concejo en un plazo máximo de quince días hábiles a partir del día siguiente del recibo completo de los requisitos.
+El plazo máximo para resolver la aprobación o negatoria por parte del Concejo Municipal, luego de recibido el expediente administrativo de solicitud es de quince días hábiles, que se contarán a partir de la sesión Ordinaria siguiente al recibo de la documentación.

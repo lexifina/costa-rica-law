@@ -1,0 +1,2 @@
+Transitorios
+Transitorio I: En caso de existir licencias de comercialización de licor anteriores a la emisión del presente Reglamento o en trámite se resolverán y otorgarán inmediatamente después de vigente el mismo, conforme a lo establecido en la Ley 9047 y el presente reglamento. A las mismas se le entregarán los certificados que correspondan a la actividad, con indicación expresa de la fecha de otorgamiento y de la fecha en que finaliza el primer periodo quinquenal de vigencia, con el fin de determinar el periodo de vigencia y renovación de la misma.

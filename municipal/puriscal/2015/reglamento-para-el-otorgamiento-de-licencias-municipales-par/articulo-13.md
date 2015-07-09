@@ -1,0 +1,7 @@
+ARTÍCULO 13. — DE LAS RESTRICCIONES AL OTORGAMIENTO DE LICENCIAS TEMPORALES. Con la autorización dada por el Concejo para las licencias temporales se podrán imponer, por el cuerpo colegiado, restricciones específicas al uso de la licencia, dentro de las cuales se pueden incluir las siguientes:
+i. Horario,
+ii. Condiciones físicas, con la finalidad de garantizar el orden público, la integridad física y la no permanencia de menores en esos establecimientos.
+iii. Otras, que pueden referirse a la vigilancia en la aplicación de normas legales específicas.
+Las licencias temporales en ningún caso se otorgarán, para la comercialización de bebidas con contenido alcohólico dentro de centros educativos, instalaciones donde se realicen actividades religiosas que cuenten con el PSF o autorización del ente de Salud competente para el cantón, centros infantiles de nutrición, centros deportivos, estadios, gimnasios, redondeles y en lugares donde se desarrollen actividades deportivas, mientras se efectúa la actividad deportiva.
+Adicionalmente, el Concejo podrá incluir dentro de la licencia para actividades temporales, regulaciones especiales dentro del acuerdo de otorgamiento de la licencia para los días que se celebre y en la zona establecida por la Municipalidad para la comercialización de bebidas con
+contenido alcohólico y consumo de licor, que pueden incluir el consumo en vías públicas y en áreas aledañas.

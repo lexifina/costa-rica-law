@@ -1,0 +1,1 @@
+ARTÍCULO 18. — DEL TRASLADO DE LA SOLICITUD. Verificados los requisitos administrativos, las distancias correspondientes y realizada la inspección en el sitio solicitado, la Oficina de Patentes, trasladará a la Alcaldía el expediente administrativo para que se remita al Concejo para su aprobación.

@@ -1,0 +1,6 @@
+SECCIÓN III
+De la fiscalización
+ARTÍCULO 6. — DE LA FISCALIZACIÓN. La Administración a través de la Unidad de Inspecciones deberá fiscalizar la buena marcha de las actividades y uso de licencias para el expendio y comercialización de bebidas con contenido alcohólico dentro del cantón.
+La Unidad de Inspecciones está autorizada para verificar la continuidad normal de la explotación de la actividad. En caso de verificarse anomalías, se levantará un acta con los requisitos de Ley y la revocatoria de la licencia o la renovación de la misma y para la aplicación y seguimiento de las sanciones, deberá seguirse el debido proceso y principio de Legalidad en derecho Público.
+Con el fin de realizar estas labores, la Administración destinará los recursos necesarios vía presupuesto ordinario o sus modificaciones para asegurar el buen funcionamiento de las labores relacionadas a la fiscalización, dentro de los cuales, la administración podrá proveer los recursos tecnológicos, económicos y humanos necesarios que le permitan realizar esta labor.
+La labor de la Unidad de Inspecciones en esta materia será resuelta por la dependencia administrativa designada por la Alcaldía para llevar a cabo el proceso de conformación del expediente de licencia por expendio o venta de licor.

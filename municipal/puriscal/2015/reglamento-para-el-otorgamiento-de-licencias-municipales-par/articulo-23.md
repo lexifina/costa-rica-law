@@ -1,0 +1,2 @@
+ARTÍCULO 23. — DEL CERTIFICADO DE RENOVACIÓN. La Oficina de Patentes procederá a renovar los quinquenios a los licenciatarios que lo soliciten conforme se establece en el presente reglamento, mediante la emisión del certificado correspondiente, mismo que estará firmado por la persona Alcalde.
+El costo de la reposición de este certificado es de tres mil colones y aumentará anualmente conforme al índice publicado por el INEC.

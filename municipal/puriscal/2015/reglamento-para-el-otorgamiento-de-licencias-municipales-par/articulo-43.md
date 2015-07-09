@@ -1,0 +1,8 @@
+ARTÍCULO 43.- DE LA DISPOSICIÓN O MANEJO DE LOS BIENES DECOMISADOS. La Oficina de Patentes municipales dispondrá de los bienes decomisados de la siguiente forma:
+a) Destrucción total de los bienes decomisados: En caso de ser estos perecederos o manifiestamente ilegales en cuanto a su origen o elaboración se levantará un acta de los mismos y se ordenará la destrucción total conforme al tipo de bien y a las normas de manejo de desechos aplicables directamente a los mismos, las cuales se determinarán expresamente y mediante resolución razonada por la Oficina de Patentes.
+b) Remate de los bienes decomisados: En caso de ser bienes en buen estado de conservación y que puede obtenerse algún valor económico por ellos se determinará por parte de la Oficina de Patentes su posibilidad de remate conforme al siguiente procedimiento para hacerlo:
+b)1 Se levantará acta individualizada de los bienes a rematar.
+b)2 Se dictará resolución administrativa en la cual se detallen los bienes incluidos en el acta administrativa a rematar, las razones que justifique el remate y el precio base para cada uno de los bienes.
+c)3 Con la asistencia de la Auditoría Municipal se efectuará el remate, previa convocatoria público y con el acta que compruebe la ejecución del mismo.
+d)3 Los recursos económicos obtenidos por la ejecución del remate serán acumulados a los recursos provenientes de la aplicación de la Ley 9047 y del presente reglamento y serán distribuidos conforme la distribución asignada a los mismos.
+Para la custodia de los bienes decomisados se deberá disponer por la Oficina de Patentes de un sitio separado y cerrado en el cual se puedan depositar los bienes en esta condición hasta tanto se disponga de los mismos según se establece en la Ley y el presente reglamento.

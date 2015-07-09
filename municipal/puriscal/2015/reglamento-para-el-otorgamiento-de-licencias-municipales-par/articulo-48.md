@@ -1,0 +1,1 @@
+ARTÍCULO 48.—DE LAS SANCIONES DISCIPLINARIAS ADMINISTRATIVAS. Los funcionarios que violenten o permitan la trasgresión de las prohibiciones contenidas en la ley y en el presente reglamento, por acción u omisión, incurrirán en falta gravísima, conforme se establece en el Reglamento Autónomo de Organización de Servicio de la Municipalidad de Puriscal y en el Código de Trabajo.
