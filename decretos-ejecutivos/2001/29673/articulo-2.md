@@ -5,5 +5,5 @@ Artículo 2º—Funciones primordiales. Para facilitar y asegurar el cumplimient
 2.4. Efectuar las labores relacionadas con el desarrollo del factor humano de la Institución, mediante la capacitación, formación y adiestramiento y estímulos necesarios.
 2.5. Llevar a cabo las labores relacionadas con la dotación del factor humano del Ministerio, así como normar la administración de este recurso en todas sus dimensiones conforme al Ordenamiento Jurídico.
 2.6. Definir las acciones administrativas que requiera la Institución y evaluar su aplicación con el fin de tomar las medidas correctivas.
-2.7. Velar por la adecuada estructura organizativa del MOPT., asesorando y proponiendo a las autoridades superiores la estructura organizativa que mejor convenga a la institución y definiendo los niveles inferiores de dicha estructura.
+2.7. (Derogado por el artículo 13 del decreto ejecutivo N° 39173 del 9 de julio del 2015 "Reorganización estructural del Proceso de Planificación Sectorial e Institucional del Ministerio de Obras Públicas y Transportes")
 2.8. Asesorar a las unidades de apoyo administrativo-financiero de las Áreas de Obras Públicas, de Transportes y de las Regiones y garantizar el cumplimiento de las directrices, lineamientos y normativas que, en esta materia, emita la División Administrativa.

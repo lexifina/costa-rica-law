@@ -1,1 +1,1 @@
-Artículo 14.—Departamentos. Las Direcciones definidas por el presente Decreto que así lo requieran, previo estudio de la Dirección de Planeamiento Administrativo, podrán conformarse en Departamentos, de conformidad con las necesidades de cada Dirección.
+Artículo 14.—Departamentos. (Derogado por el artículo 13 del decreto ejecutivo N° 39173 del 9 de julio del 2015 "Reorganización estructural del Proceso de Planificación Sectorial e Institucional del Ministerio de Obras Públicas y Transportes")

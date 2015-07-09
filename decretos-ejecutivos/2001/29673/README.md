@@ -14,3 +14,4 @@ División Administrativa. Objeto y Ubicación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-06 | la propia norma |
+| 2 | 2015-07-09 | Decreto Ejecutivo 39173 (2015-07-09) |
