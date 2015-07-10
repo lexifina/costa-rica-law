@@ -1,0 +1,1 @@
+Artículo 4º—El Ministerio de Gobernación y Policía, por medio de la Dirección General de Migración y Extranjería, el Ministerio de Trabajo y Seguridad Social y el Ministerio de Agricultura y Ganadería continuarán coordinando los esfuerzos necesarios para llevar adelante este proceso.

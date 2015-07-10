@@ -1,0 +1,1 @@
+Artículo 2º—Aquellos patronos físicos o jurídicos que hayan presentado su solicitud de inscripción en dicho registro en la Dirección General de Migración y Extranjería después del 1° de febrero del 2015 y antes de la entrada en vigencia de la presente prórroga, serán incluidos en este proceso.
