@@ -1,1 +1,0 @@
-Artículo 28.—Prescripción. La posibilidad de interponer una denuncia contra un colegiado o una colegiada, con base en esta normativa, prescribirá en el término de un año a partir de la realización de los hechos. Este plazo se interrumpe con la presentación de la denuncia ante el Tribunal de Honor.
