@@ -27,3 +27,4 @@ Reglamento General del Colegio Licenciados y Profesores en Letras, Filosofía Ci
 | 12 | 2008-01-25 | Reglamento 111 (2008-01-25) |
 | 13 | 2009-11-06 | Reglamento 114 (2009-11-06) |
 | 14 | 2014-02-08 | Reglamento 123 (2014-02-08) |
+| 15 | 2015-07-13 | Reglamento 124 (2015-07-13) |

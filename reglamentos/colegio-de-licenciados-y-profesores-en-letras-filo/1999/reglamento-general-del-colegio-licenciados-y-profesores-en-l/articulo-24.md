@@ -10,6 +10,6 @@ f) Solicitar al Registro Judicial de Delincuencia la certificación correspondie
 g) Supervisar la labor de los fiscales de las Juntas Regionales.
 h) Todos aquellos otros asuntos que le encomiende la Junta Directiva y la Asamblea General, acordes con la Ley Orgánica y su Reglamento General.
 i) Controlar junto con el Presidente los arqueos trimestrales de caja y controlar a fin de año las cuentas presentadas por la Tesorería.
-j) Realizar el proceso de instrucción de las denuncias presentadas a la Fiscalía, para ser conocidas por el Tribunal de Honor.
+j) (Derogado por el artículo 93 del Código Deontológico del Colegio de Licenciados y Profesores en Letras, Filosofía, Ciencias y Artes, aprobado en sesión extraordinaria CXXIV del 13 de julio de 2015)
 k) Las demás atribuciones y deberes que establezca la Ley Orgánica y su Reglamento General.
 (Así reformado en Asamblea General Extraordinaria CVII del 28 de octubre de 2006)
