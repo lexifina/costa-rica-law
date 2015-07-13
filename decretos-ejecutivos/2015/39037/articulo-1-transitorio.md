@@ -1,0 +1,2 @@
+Disposiciones Transitorias
+Transitorio I.—El uso del Sistema EXONET para todos los beneficiarios, representantes legales y todos aquellos quienes se determinen como usuarios de éste, y que estén involucrados en la gestión y trámite de solicitudes de exenciones fiscales de las leyes que se mencionan en el artículo 9 del presente decreto, será obligatorio un mes después de la publicación del presente decreto.

@@ -1,0 +1,1 @@
+Transitorio II.—El uso del Sistema EXONET para todos los beneficiarios de los regímenes de exención diferentes a los indicados en el artículo 9 del presente decreto, será obligatorio para tramitar sus solicitudes de exención a más tardar seis meses después de la publicación del presente decreto.
