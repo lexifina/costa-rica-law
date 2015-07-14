@@ -1,5 +1,4 @@
 CAPÍTULO 4
-Fondo para el financiamiento de servicios
-de desarrollo empresarial
+Fondo para Servicios de Desarrollo Empresarial
 Artículo 45.—Propósito del Fondo para el Financiamiento de Servicios de Desarrollo Empresarial. Transferir recursos a entidades públicas, organizaciones cooperativas, organizaciones privadas y organizaciones no gubernamentales, como aporte no reembolsable o mediante la contratación de servicios, para apoyar el desarrollo de programas tendientes a fortalecer y desarrollar las micro, pequeñas y medianas empresas, y las empresas de economía social, en áreas tales como capacitación, asistencia técnica, innovación, investigación y transferencia tecnológica, así como realizar investigaciones en diferentes actividades productivas y sociales tendientes a diseñar un sector empresarial eficiente y competitivo.
 Asimismo, se podrá promover y facilitar la formación de micro, pequeñas y medianas empresas y empresas de economía social.

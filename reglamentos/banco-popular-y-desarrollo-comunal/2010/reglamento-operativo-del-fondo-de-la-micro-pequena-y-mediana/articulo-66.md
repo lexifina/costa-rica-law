@@ -11,10 +11,10 @@ Artículo 66.—De las funciones de la Dirección Ejecutiva. Son funciones de la
 10) Establecer convenios con organismos nacionales e internacionales para incrementar su tamaño.
 11) Fijar los requisitos mínimos de sistema de información de riesgo y la contabilidad del Fondo.
 12) Establecer los requisitos mínimos para la evaluación de los créditos, así como las políticas para el seguimiento y cobro de esas operaciones.
-13) Determinar los montos máximos de las líneas de crédito
+13) Determinar los montos máximos de las líneas de crédito.
 14) Establecer anualmente una estrategia independiente de información, promoción y mercadeo, orientada a promover al Fodemipyme como instrumento de política pública, para apoyar el acceso de las PYME al financiamiento. La misma debe incluir los nombres de las entidades operadoras con contratos vigentes para otorgar avales y deberá ser aprobada por la Junta Directiva Nacional del Banco Popular.
 15) Brindar, trimestralmente, a la Junta Directiva Nacional del Banco Popular y, anualmente, al MEIC, un informe comprensivo que cubra tanto los aspectos financieros como de desempeño.”
-16) Coordinar y fomentar la atracción de otros recursos distintos a los indicados en el artículo 8 de este Reglamento.
+16) Coordinar y fomentar la atracción de otros recursos distintos a los indicados en el artículo 8º de este Reglamento.
 17) Establecer vínculos, negociaciones, contactos y conversaciones con los jerarcas del Estado de las Instituciones Autónomas y entidades privadas, a nombre del Fodemipyme.
 18) Cumplir las disposiciones emitidas por la administración del Banco, quien estará coordinando la aplicación de políticas y normas de operación del fondo.
 19) Velar porque se cumpla con los objetivos y metas en materia de colocación y otorgamiento de garantías.
@@ -22,14 +22,14 @@ Artículo 66.—De las funciones de la Dirección Ejecutiva. Son funciones de la
 21) Respecto de las donaciones de personas, entidades públicas o privadas, nacionales e internacionales que puede recibir el Fondo, deberá vigilar los mecanismos de control establecidos en la Ley de 8204 (Ley sobre Estupefacientes, Sustancias Psicotrópicas, Drogas de Uso no Autorizado, Legitimación de Capitales y Actividades Conexas).
 22) Respecto de las donaciones de personas, entidades públicas o privadas, nacionales e internacionales que puede recibir el Fondo, deberá firmar un convenio entre el donante y Fodemipyme donde se establezcan los orígenes, usos y demás condiciones de tales recursos.
 23) Emitir las directrices sobre las cuales se otorgarán las garantías, haciendo énfasis en la viabilidad técnica y económica, el historial crediticio y la insuficiencia de garantía.
-24) Asignar los recursos del fondo de avales a distribuir entre los operadores que participen en cada subasta
+24) Asignar los recursos del fondo de avales a distribuir entre los operadores que participen en cada subasta.
 25) Establecer la periodicidad de las subastas en función de la demanda y los recursos disponibles.
 26) Enviar al MEIC y publicar al menos un medio escrito de circulación nacional, la convocatoria de la subasta, indicando el monto a subastar, el período de vigencia de la colocación de avales, los requisitos y las condiciones, la fecha límite, el lugar y hora para presentar la oferta y apertura de sobres.
 27) Firmar convenio con cada entidad operadora en el que se estipulen las condiciones de otorgamiento de los avales, incluyendo si se utilizará la modalidad de aval individual o aval de cartera, así como la(s) persona(s) autorizada(s) para firmar los contratos de avales con los clientes, en el caso de avales de cartera.
 28) Elaborar los contratos y el manual de procedimientos de uso obligatorio para los operadores, el cual formará parte del contrato firmado.
 29) Garantizar la confidencialidad con respecto a la información de los clientes solicitantes de avales y garantías y de las entidades operadoras, sin perjuicio de lo establecido en la normativa costarricense.
 30) Establecer un sistema de comisiones sobre los avales otorgados, independientes de aquellas que cobren los operadores por concepto del otorgamiento de los créditos, de conformidad con las condiciones económicas de país y bajo el principio de sostenibilidad y racionalidad. Estas comisiones serán determinadas en cada subasta.
-31) Actualizar en enero de cada año el monto máximo a garantizar en cada proyecto, según la evolución del índice de precios al consumidor calculado por el Instituto Nacional de Estadística y Censos (INEC) y publicarlo en su página Web. El valor ajustado resultante se aplicará únicamente a operaciones de avales y garantías nuevas
+31) Actualizar en enero de cada año el monto máximo a garantizar en cada proyecto, según la evolución del índice de precios al consumidor calculado por el Instituto Nacional de Estadística y Censos (INEC) y publicarlo en su página Web. El valor ajustado resultante se aplicará únicamente a operaciones de avales y garantías nuevas.
 32) Determinar los porcentajes máximos de avales que se aprobarán en cada operación en función de los resultados del modelo de calificación.
 33) Con base en los informes mensuales que los operadores deben entregar a la Unidad Técnica, esta deberá elaborar los mecanismos de monitoreo que permitan prever siniestros, suspender el otorgamiento de nuevos avales, llevar un control estadístico y asegurar el cumplimiento de los objetivos de la Ley Nº 8262 y este Reglamento.
 34) Realizar visitas de revisión y seguimiento y auditorías en cualquier momento que lo considere pertinente.
@@ -38,10 +38,10 @@ a) Cuando la mora legal de la cartera de créditos avalados con recursos del Fod
 b) Cuando en las auditorías realizadas a las entidades operadoras se identifiquen irregularidades en el otorgamiento de los créditos avalados.
 36) Autorizar nuevamente el otorgamiento de a las entidades operadoras cuando estas normalicen las condiciones que dieron origen a la suspensión.
 37) Tramitar los honramientos de los avales en forma irrevocable e incondicional conforme a la normativa establecida.
-38) Tramitar los recursos de revocatoria para ante la Junta Directiva Nacional del Banco Popular, conforme a lo indicado en el artículo 26 del Decreto Ejecutivo 34.853.
+38) Tramitar los recursos de revocatoria para ante la Junta Directiva Nacional del Banco Popular, conforme a lo indicado en el artículo 26 del Decreto Ejecutivo Nº 34.853.
 39) Establecer los mecanismos necesarios para controlar la morosidad de las operaciones de crédito, y tomar las acciones que correspondan, incluyendo la identificación y eventual otorgamiento de algún tipo de servicio no financiero, requerido por el cliente para mejorar su condición.
 40) Definir el porcentaje de fondo no reembolsable y el aporte del empresario y el porcentaje de contrapartida de los ejecutores de los proyectos de Servicios de Desarrollo Empresarial financiados con recursos de Fodemipyme.
-41) Elaborar una metodología para la formulación y evaluación de los proyectos de Servicios de Desarrollo Empresarial financiados con recursos de Fodemipyme, contemplando los elementos citados en el artículo 45 del Decreto Ejecutivo 34.853.
+41) Elaborar una metodología para la formulación y evaluación de los proyectos de Servicios de Desarrollo Empresarial financiados con recursos de Fodemipyme, contemplando los elementos citados en el artículo 45 del Decreto Ejecutivo Nº 34.853.
 42) Elaborar una recomendación técnica a la Junta Directiva Nacional del Banco Popular, la cual es la responsable de aprobar la asignación de los recursos para proyectos de Servicios de Desarrollo Empresarial financiados con recursos de Fodemipyme.
 43) Contar con los recursos necesarios para evaluar los proyectos en el orden en que sean presentados, garantizando mecanismos de agilidad, eficiencia, transparencia e idoneidad para llegar en el menor tiempo posible a las poblaciones beneficiarias; asimismo emitir un criterio sobre la razonabilidad del costo de cada proyecto. En caso de requerirse, podrá solicitar criterio de otras entidades o especialistas.
 44) Llevar un registro de los proyectos recibidos, recomendados, no recomendados, aprobados y rechazados por la Junta Directiva, con los montos de cada uno e informar cada tres meses al MEIC.
