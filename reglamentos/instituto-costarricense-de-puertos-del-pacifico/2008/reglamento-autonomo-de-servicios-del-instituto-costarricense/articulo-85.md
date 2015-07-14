@@ -1,1 +1,0 @@
-Artículo 85.—Es obligación de los funcionarios que tienen a su cargo el manejo o control de dinero, títulos, valores o documentos semejantes, rendir una póliza de fidelidad del Instituto Nacional de Seguros a favor del INCOP, según lo disponga el reglamento que para este efecto emita la Junta Directiva del Instituto Costarricense de Puertos del Pacífico.

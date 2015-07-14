@@ -1,2 +1,0 @@
-Artículo 55.—El INCOP no pagará el trabajo extraordinario que no haya sido previamente autorizado por la Gerencia General; en casos de urgencia el trabajo extraordinario que se realice, se pagará si se comprueba su justificación.
-No se considerarán horas extraordinarias de trabajo las que el trabajador ocupe en subsanar los errores imputables solo a él, cometidos durante la jornada ordinaria de trabajo.

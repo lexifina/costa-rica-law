@@ -1,1 +1,0 @@
-Artículo 99.—Para los fines del cálculo de pago de subsidios mencionados en el artículo 97, será tomado en cuenta el sistema aplicado por el Instituto Nacional de Seguros o la Caja Costarricense de Seguro Social, según corresponda.

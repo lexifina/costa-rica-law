@@ -1,1 +1,0 @@
-Artículo 28.—Para ser nombrado en cualquiera de las modalidades previstas en este reglamento, el aspirante deberá reunir los requisitos que para la clase de puesto de que se trate, especifique el Manual de Clases Anchas del Servicio Civil.

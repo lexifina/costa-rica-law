@@ -1,3 +1,0 @@
-CAPÍTULO VI
-De los ascensos y traslados
-Artículo 37.—Los ascensos de un grado, al superior inmediato en la misma línea de actividad o serie, podrán ser acordados por los jefes, tomando en cuenta en primer término la eficiencia de sus empleados evidenciadas por las calificaciones periódicas y en segundo término la antigüedad y cualesquiera otros factores, siempre que los candidatos al ascenso tengan una indiscutible idoneidad y cumplan con los requisitos académicos y legales para el puesto a que van a ser ascendidos a juicio de la Gerencia General según corresponda, para lo que deberán tomar en cuenta los informes suministrados por el Área de Administración del Capital Humano.

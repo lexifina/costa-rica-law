@@ -1,5 +1,0 @@
-Artículo 13.—El contrato individual de trabajo puede estipularse, de acuerdo con las necesidades del INCOP, en cualquiera de las siguientes formas y las que más convengan de acuerdo a la modalidad del trabajo:
-a) Por tiempo indeterminado: Cuando el trabajador preste sus servicios en labores permanentes de las que forman el objetivo de INCOP, este será el tipo de contrato general por excelencia.
-b) A tiempo fijo: Cuando el trabajador conviene en prestar sus servicios por un período determinado, cuya iniciación y finalización se conocen previamente.
-Este tipo de trabajo se usará en los casos de sustituciones, por suspensiones del contrato de trabajo del titular del puesto o para la realización de trabajos que aunque puedan considerarse dentro del objetivo propio del INCOP, son eventuales desde el punto de vista de la urgencia con que tienen que ser realizados.
-c) A destajo por unidad de obra: Cuando el trabajador conviene en prestar el servicio con independencia del tiempo invertido y tomando en cuenta únicamente la cantidad de la obra realizada.

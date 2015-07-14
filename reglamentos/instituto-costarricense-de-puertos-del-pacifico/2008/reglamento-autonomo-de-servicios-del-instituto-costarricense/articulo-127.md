@@ -1,1 +1,0 @@
-Artículo 127.—La Gerencia General deberá proceder al despido de un trabajador sin responsabilidad patronal, cuando se presente alguna de las causales establecidas en el artículo 81 del Código de Trabajo o la conducta se encuentre tipificada como causal de despido en alguna norma legal aplicable al régimen de empleo público, cuando lo recomiende la jefatura de Recursos Humanos.

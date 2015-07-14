@@ -1,5 +1,0 @@
-Artículo 61.—Para efectos de vacaciones se tomarán las siguientes consideraciones:
-a. A los servidores de INCOP que hayan laborado en otras instituciones del Sector Público, se le reconocerán los años servidos en ellas para determinar el número de días de vacaciones a que tienen derecho.
-b. El período de vacaciones se suspende si durante su disfrute el servidor es incapacitado por la Caja Costarricense de Seguro Social o el Instituto Nacional de Seguros.
-c. Dentro del mes siguiente a la fecha en que el servidor adquiere el derecho a vacaciones su jefe inmediato deberá señalar la época en que las disfrutará dentro de las quince semanas siguientes. Si dentro del plazo indicado, el jefe inmediato no fija la época del disfrute, el servidor podrá solicitar sus vacaciones al Área de Administración del Capital Humano, que resolverá en definitiva, previa consulta al jefe inmediato.
-d. No interrumpirá el derecho a vacaciones, las licencias con goce de salario, los descansos otorgados legalmente y las incapacidades debidamente justificadas.

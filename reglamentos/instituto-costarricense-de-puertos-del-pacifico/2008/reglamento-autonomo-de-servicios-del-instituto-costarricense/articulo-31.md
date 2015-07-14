@@ -1,1 +1,0 @@
-Artículo 31.—La publicación de un concurso interno deberá considerar los requisitos del puesto y los factores de selección. Se imprimirá en caracteres fácilmente legibles y se colocará en los sitios más visibles de todos los centros de trabajo del INCOP, donde se mantendrá por un plazo no inferior a ocho días hábiles.

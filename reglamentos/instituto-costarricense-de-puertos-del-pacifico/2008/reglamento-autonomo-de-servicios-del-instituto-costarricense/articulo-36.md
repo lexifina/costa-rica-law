@@ -1,1 +1,0 @@
-Artículo 36.—En el caso de las sustituciones o suplencias el nombramiento de un funcionario en forma temporal que sustituye al titular de un puesto, que se encuentra ausente por motivo de licencias, vacaciones, incapacidades u otros que impliquen el goce de salario del titular, por un periodo predefinido, implica relación laboral.

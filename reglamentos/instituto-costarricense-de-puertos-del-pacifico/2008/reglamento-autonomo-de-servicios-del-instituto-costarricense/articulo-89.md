@@ -1,2 +1,0 @@
-Artículo 89.—Es prohibido dedicarse dentro de las instalaciones del INCOP a actividades de préstamo comercial o recibir dinero en préstamo o a título gratuito de un subordinado o viceversa.
-El trabajador que infrinja esta prohibición, según la gravedad de la falta, será sancionado con amonestación escrita, suspensión hasta por ocho días o despido, de conformidad con lo establecido en el Capítulo del Régimen Disciplinario.

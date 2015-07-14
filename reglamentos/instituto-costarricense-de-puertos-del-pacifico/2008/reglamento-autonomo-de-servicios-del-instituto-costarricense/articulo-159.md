@@ -1,1 +1,0 @@
-Artículo 159.—El Instituto está en la obligación de informar sobre las denuncias de Hostigamiento Sexual que se reciban en las diferentes dependencias que lo conforman, así como el resultado del procedimiento que se realice, a la Defensoría de los Habitantes, según define la Ley Nº 7476.

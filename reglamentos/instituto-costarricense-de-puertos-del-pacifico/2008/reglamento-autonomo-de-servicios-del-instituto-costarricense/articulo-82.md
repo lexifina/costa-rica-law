@@ -1,1 +1,0 @@
-Artículo 82.—Es obligación del trabajador prestar sin remuneración adicional o especial, los auxilios necesarios en caso de siniestro o riesgo inminente cuando las personas o intereses del INCOP estén en peligro.

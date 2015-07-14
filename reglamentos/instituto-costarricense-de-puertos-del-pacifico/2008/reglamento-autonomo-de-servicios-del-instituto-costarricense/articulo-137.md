@@ -1,1 +1,0 @@
-Artículo 137.—El cometido de las subcomisiones de salud ocupacional será desempeñado dentro de la jornada de trabajo, sin perjuicio o menoscabo de ninguno de los derechos laborares de los servidores que las conforman y de las labores a él asignadas.

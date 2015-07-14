@@ -1,2 +1,0 @@
-Artículo 91.—Es prohibido al trabajador abusar del permiso que se le concede para acudir a consultas al médico o para cumplir determinadas obligaciones legales o reglamentarias.
-Al trabajador a quien se le compruebe que ha hecho mal uso de la licencia prolongada innecesariamente o empleado el tiempo en otros menesteres en perjuicio de la disciplina y buena marcha del trabajo, según la gravedad de la falta será sancionado con amonestación escrita, suspensión hasta por ocho días o despido, de conformidad con lo establecido en el Capítulo del Régimen Disciplinario.
