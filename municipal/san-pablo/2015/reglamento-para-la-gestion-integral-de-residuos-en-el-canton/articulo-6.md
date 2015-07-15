@@ -1,0 +1,1 @@
+Artículo 6º—Plan Municipal de Gestión Integral de Residuos. El instrumento de planificación orientador del proceso de gestión integral de residuos es el Plan Municipal de Gestión Integral de Residuos de San Pablo de Heredia, el cual debe contar con la aprobación del Concejo Municipal.
