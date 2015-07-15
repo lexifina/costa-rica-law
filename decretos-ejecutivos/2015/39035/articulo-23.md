@@ -1,0 +1,1 @@
+Artículo 23.—Derogatoria. Deróguese integralmente el Decreto Ejecutivo Nº 33457-C del 9 de octubre de 2006, Reglamento de la Comisión Institucional de Emergencias del Ministerio de Cultura, Juventud y Deportes (ahora de Cultura y Juventud,) publicado en el Diario Oficial La Gaceta Nº 245 del 21 de diciembre de 2006.

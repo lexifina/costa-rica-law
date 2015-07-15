@@ -1,0 +1,1 @@
+Artículo 12.—De las sesiones. Tanto la Comisión Institucional como las Comisiones Auxiliares se reunirán ordinariamente dos veces al mes, para verificar el avance de los planes de prevención y mitigación de emergencias. Podrán hacerlo extraordinariamente, las veces que lo requieran.
