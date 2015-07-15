@@ -14,3 +14,4 @@ Aplicación y Excepción de la Caducidad del Transitorio IX del Código Notarial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-10-27 | la propia norma |
+| 2 | 2015-07-15 | Directriz 1 (2015-07-15) |
