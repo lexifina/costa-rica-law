@@ -1,1 +1,0 @@
-Artículo 18.—Corresponderá al Ministro de Relaciones Exteriores y Culto decidir en cuáles unidades de la sede central del Ministerio desempeñarán funciones los aspirantes elegidos durante el período de prueba.

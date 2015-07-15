@@ -1,1 +1,0 @@
-Artículo 11.—Con excepción de los correspondientes a idioma inglés o francés y a castellano, los exámenes escritos deberán ser de respuesta única, mediante la utilización de las modalidades de selección de respuesta correcta, asociación, falso o verdadero, completar espacios en blanco u otras similares, que aseguren la objetividad en las calificaciones.
