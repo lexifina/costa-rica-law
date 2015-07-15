@@ -14,3 +14,4 @@ Declara de interés público la VII reunión de Ministros de relaciones Exterior
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-15 | la propia norma |
+| 2 | 2015-07-15 | Decreto Ejecutivo 39107 (2015-07-15) |

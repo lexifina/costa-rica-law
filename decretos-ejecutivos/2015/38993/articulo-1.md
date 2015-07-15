@@ -21,4 +21,5 @@ REUNIÓN DE MINISTROS DE RELACIONES EXTERIORES
 DEL FORO DE COOPERACIÓN DE AMÉRICA LATINA-
 ASIA DEL ESTE (FOCALAE) QUE SE LLEVARÁ A
 CABO LOS DÍAS 19 Y 20 DE AGOSTO DE 2015
-Artículo 1º—Declarar de interés público las actividades que realice el Gobierno de la República de Costa Rica para la celebración de la Reunión de Ministros de Relaciones Exteriores del Foro de Cooperación de América Latina-Asia del Este, así como todas las actividades relacionadas con la organización, preparación y ejecución de dicho evento, el cual se celebrará del 19 al 20 de agosto de 2015.
+Artículo 1º—Declarar de interés público las actividades que realice el Gobierno de la República de Costa Rica para la celebración de la Reunión de Ministros de Relaciones Exteriores del Foro de Cooperación de América Latina-Asia del Este, así como todas las actividades relacionadas con la organización, preparación y ejecución de dicho evento, el cual se celebrará del 18 al 22 de agosto de 2015, inclusive.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39107 del 15 de julio de 2015)
