@@ -1,3 +1,3 @@
 CAPÍTULO III
 Del ingreso a la carrera del Servicio Exterior
-Artículo 66.—De los requisitos. Las personas interesadas en ingresar a la Carrera del Servicio Exterior deberán cumplir con los requisitos establecidos en los artículos 13, 14 y 16 del Estatuto. Los concursos de oposición, a que se refiere el artículo 13 de Estatuto del Servicio Exterior, son procedimientos objetivos cuyo fin es comprobar la idoneidad de los aspirantes a ingresar a la carrera del Servicio Exterior. Son abiertos a todas las personas que cumplan los requisitos del artículo 14 del Estatuto del Servicio Exterior y su procedimiento será regulado por un Reglamento especial que emitirá el Poder Ejecutivo al efecto, según el artículo 15 del Estatuto.
+Artículo 66.—De los requisitos. (Derogado por el artículo 37 del Reglamento del Concurso de Oposición y el Ingreso a la Carrera del Servicio Exterior, aprobado mediante decreto ejecutivo N° 39127 del 15 de julio del 2015)
