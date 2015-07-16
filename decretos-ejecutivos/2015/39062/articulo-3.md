@@ -1,0 +1,1 @@
+Artículo 3º—De la organización. El Mecanismo Nacional de Prevención de la Tortura estará a cargo de un(a) Director(a) Ejecutivo(a) que será la máxima autoridad, y definirá los asuntos de organización, estructura y funcionamiento de éste.

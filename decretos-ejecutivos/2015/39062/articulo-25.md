@@ -1,0 +1,1 @@
+Artículo 25.—De los movimientos de las plazas del Mecanismo. Las plazas del Mecanismo Nacional de Prevención de la Tortura no podrán ser trasladadas, ni se podrá efectuar permutas con las plazas y funcionarios de la Defensoría de los Habitantes, ni con instituciones públicas, sin la autorización expresa del o la Directora Ejecutiva del Mecanismo.

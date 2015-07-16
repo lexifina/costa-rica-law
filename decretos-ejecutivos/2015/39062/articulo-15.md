@@ -1,0 +1,1 @@
+Artículo 15.—Del Estatuto Interno. Un estatuto interno definirá los ámbitos de coordinación y las relaciones de cooperación entre la Defensoría de los Habitantes de la República y el Mecanismo Nacional de Prevención contra la Tortura.

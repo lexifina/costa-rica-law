@@ -1,0 +1,2 @@
+Artículo 2º—Naturaleza jurídica. El Mecanismo Nacional de Prevención de la Tortura es un órgano con desconcentración máxima, adscrito a la Defensoría de los Habitantes de la República para efectos presupuestarios y administrativos.
+Tendrá independencia de criterio, lo que incluye sus informes y recomendaciones, e independencia funcional en sus actuaciones para monitorear los lugares de privación de libertad y establecer diálogos con las autoridades públicas sin interferencia por parte de las autoridades del Estado y de la Defensoría de los Habitantes de la República.

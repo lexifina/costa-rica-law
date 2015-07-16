@@ -1,0 +1,6 @@
+Artículo 23.—Régimen Disciplinario. Para efectos del régimen disciplinario del personal del Mecanismo Nacional de Prevención de la Tortura, se aplicará la normativa interna que rige para la Defensoría de los Habitantes de la República, sin perjuicio de que el Mecanismo establezca su propio régimen disciplinario por la vía estatutaria.
+Además, y sin perjuicio del régimen disciplinario que se aplica para todo el personal de la Defensoría de los Habitantes de la República, también serán faltas de carácter gravísimo del personal del Mecanismo Nacional de Prevención de la Tortura las siguientes:
+1. Poner en riesgo la integridad física de sus compañeros (as) mediante el incumplimiento de los procedimientos establecidos o actos indebidos durante las inspecciones en centros de detención.
+2. Incumplimiento de las directrices y procedimientos de monitoreo establecidos por la Dirección Ejecutiva.
+3. Incumplimiento de los horarios alternos de la jornada laboral para la realización del monitoreo de centros de detención establecido por la Dirección Ejecutiva o por las Coordinaciones.
+4. No guardar confidencialidad de la información objetiva durante las inspecciones, o divulgar datos personales sin el consentimiento de la persona interesada.

@@ -1,0 +1,1 @@
+Artículo 16.—Denuncias. Si durante las inspecciones de monitoreo que realice el Mecanismo Nacional de Prevención de la Tortura en los centros de detención, algún o alguna habitante plantea una denuncia, la misma será remitida a la Defensoría de los Habitantes de la República para su trámite de defensa correspondiente.

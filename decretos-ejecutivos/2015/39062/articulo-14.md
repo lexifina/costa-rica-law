@@ -1,0 +1,5 @@
+CAPÍTULO V
+De la coordinación con la Defensoría
+de los Habitantes de la República
+Artículo 14.—De la naturaleza y las competencias del Mecanismo Nacional de Prevención de la Tortura y de la Defensoría de los Habitantes de la República. De conformidad con la Convención de Naciones Unidas contra la Tortura y otros Tratos o Penas Crueles, Inhumanos o Degradantes, así como el Protocolo Facultativo a dicha Convención, el Mecanismo Nacional de Prevención de la Tortura es un órgano eminentemente preventivo, que protege los derechos humanos de las personas sometidas a cualquier forma de privación de libertad y previene actos de tortura y otros tratos o penas crueles, inhumanos o degradantes a través de inspecciones regulares a centros de aprehensión, detención o privación de libertad.
+Sin perjuicio de esa competencia, la Defensoría de los Habitantes de la República, tiene una función de protección y tutela de los derechos e intereses de las y los habitantes a través de la defensa de casos individuales y que incluye la reivindicación particular de derechos que pudieran ser lesionados.
