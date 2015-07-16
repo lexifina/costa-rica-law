@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC.P08 Procedimiento para recurrir los actos Versión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-30 | la propia norma |
+| 2 | 2015-07-16 | Acuerdo 0 (2015-07-16) |
