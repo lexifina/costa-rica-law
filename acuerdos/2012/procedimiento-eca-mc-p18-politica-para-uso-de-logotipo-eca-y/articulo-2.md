@@ -1,4 +1,3 @@
 2 ALCANCE
 El uso del símbolo del Acreditación del ECA, así como los requisitos establecidos en esta política son de acatamiento obligatorio y aplican a toda persona física, jurídica y (OEC) con acreditación vigente emitida por el ECA, al hacer uso del símbolo de acreditación del ECA.
-En el caso de personas físicas o jurídicas diferentes a los OEC acreditados que lleven a cabo congresos, foros y eventos similares, podrán utilizar el logotipo ECA por un tiempo determinado, una vez que hayan obtenido la autorización especial para dicho evento. POLÍTICA PARA USO DE LOGOTIPO ECA Y SÍMBOLO DE ACREDITACIÓN Código N° : ECA-MC-P18 Páginas: 2 de 15 Fecha emisión: 27.11.2013 Versión: 06
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
+En el caso de personas físicas o jurídicas diferentes a los OEC acreditados que lleven a cabo congresos, foros y eventos similares, podrán utilizar el logotipo ECA por un tiempo determinado, una vez que hayan obtenido la autorización especial para dicho evento.

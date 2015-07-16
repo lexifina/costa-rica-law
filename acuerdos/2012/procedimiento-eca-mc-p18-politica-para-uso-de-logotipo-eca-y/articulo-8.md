@@ -1,8 +1,9 @@
-8 USO DE LOGOTIPO ECA, AUTORIZACIÓN ESPECIAL
-8.1 Los OEC acreditados y las personas físicas o jurídicas diferentes a estos, que requieran hacer uso del logotipo ECA, con fines primordialmente informativos dentro de eventos como foros, congresos, seminarios, exposiciones y cualquier actividad similar, deben solicitar una autorización especial por escrito, dirigida a la Gestoría de Calidad del ECA. [GC]
-8.2 La solicitud debe detallar la naturaleza y propósito del evento, así como los promotores y patrocinadores de la misma. Esta debe ser presentada con por lo menos 5 días hábiles de anticipación a la fecha del evento o eventos relacionados. [GC]
-8.3 La Gestoría de Calidad lo registra en ECA-MC-P18-F01 Control de logotipo ECA y símbolo de acreditación; analiza la solicitud y en caso de rechazo notifica al interesado con las respectivas razones. [GC]
-8.4 En caso de aprobación, la Gestoría de Calidad, prepara el ECA-MC-P18-F04 Aprobación del uso de Logotipo ECA, para ser firmado por el Gerente del ECA y el representante legal o el representante ante el ECA del OEC. La firma de dicho documento por parte del OEC, significa, la aceptación de la responsabilidad personal y solidaria por cualquier daño o perjuicio que provoque al ECA o a cualquier tercero el uso indebido del logotipo. [GC] [G] [OEC]
-8.5 La aprobación para el uso del logotipo ECA se otorga por el tiempo que dure el evento o serie de eventos relacionados, una vez recibido el ECA-MC-P18-F04 debidamente firmado por parte del OEC. [GC] [OEC]
-POLÍTICA PARA USO DE LOGOTIPO ECA Y SÍMBOLO DE ACREDITACIÓN Código N° : ECA-MC-P18 Páginas: 8 de 15 Fecha emisión: 27.11.2013 Versión: 06
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
+8 SÍMBOLO DE ACREDITACIÓN DEL ECA
+a. Es responsabilidad del OEC, asegurarse de que las reproducciones que realice del símbolo de acreditación del ECA corresponden exactamente con el modelo mostrado en este capítulo.
+b. El Símbolo de acreditación del ECA debe aparecer en la primera página del documento aprobado (no se considera primera página cualquier portada que no esté claramente identificada como parte integral del documento en cuestión).
+c. El símbolo de acreditación del ECA está compuesto por el logotipo ECA según tipo de OEC, acompañado del tipo de OEC, el número de alcance de acreditación, la fecha a partir de la cual se otorga la acreditación y la leyenda Alcance disponible en www.eca.or.cr. A continuación se muestra el símbolo de acreditación:
+[imagen]
+1 Símbolo de acreditación utilizado por Organismos de la Conformidad en los cuales no se cuente con reconocimiento de acuerdo multilateral o la marca de IAF o ILAC no permita su uso de manera combinada.
+Nota: Tipo de OEC1.
+d. Debido a que el símbolo de acreditación del ECA se empleará en diversos documentos, se puede ampliar o reducir, siempre que se conserven las proporciones originales y el texto sea legible.
+e. El símbolo de acreditación debe utilizarse en su orientación horizontal.

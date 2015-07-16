@@ -1,14 +1,7 @@
-9 FORMA Y COLOR DEL LOGOTIPO ECA
-9.1 En este capítulo se muestra la forma del logotipo ECA, tal y como aparece oficialmente registrado.
-9.2 Logotipo ECA.
-[imagen]
-9.3 Descripción del logotipo ECA
-a. Colores:
-[imagen]
-Transparencia de las franjas del 100% al 0% vertical.
-Para uso en escala de grises Colores | Negro
-Letras del símbolo | 100 %
-Líneas del símbolo | 20
-b. Tipografías:
-Arial Normal
-Swiss921 BT
+9 SANCIONES
+9.1 El ECA verifica en las evaluaciones de seguimiento y reevaluación que el OEC use el símbolo de acreditación del ECA, de acuerdo con lo establecido en esta política y a la aprobación realizada. Adicionalmente en caso de descubrirse un mal uso del símbolo de
+acreditación por situaciones fortuitas, no necesariamente en las evaluaciones realizadas por el ECA, se procederá a sancionar según lo expuesto en este apartado
+9.2 Los incumplimientos a dicha política se definen según la clasificación de faltas del ECA-MC-P16 Procedimiento de Investigación, para lo cual se sigue lo establecido en el mismo. 9.3 Cuando el uso del símbolo de acreditación o del logotipo ECA por parte de cualquier persona física o jurídica, OEC con acreditación retirada o cancelada, ocasione daño o perjuicio al ECA o a cualquier tercero, el Gerente con el apoyo del Asesor Legal debe llevar a cabo todas las acciones necesarias para lograr el efectivo resarcimiento de los mismos en un plazo máximo de 15 días hábiles.
+9.4 En caso de suspensión, reducción o retiro parcial del alcance de acreditación de un OEC, este debe establecer un mecanismo para asegurar que el símbolo de acreditación y cualquier referencia a su estado de acreditación no sea utilizado para las actividades suspendidas, reducidas o retiradas.
+9.5 Cuando se haya retirado o el OEC renuncie a la acreditación para todas las actividades de su alcance, el OEC deja de ser un cliente del ECA y no puede hacer ninguna mención a su estado de acreditación o hacer uso del símbolo de acreditación.
+9.6 En caso de retiro o renuncia de la acreditación, los Organismos de Certificación deben tener medidas efectivas para el retiro de los certificados emitidos dentro del alcance de acreditación y debe informar al ECA el mecanismo de comunicación que proporcionará a sus clientes para darles la información de su estado de retiro o renuncia de la acreditación y de sus consecuencias, según M 8.3.2.1 del IAF /ILAC A5. Para esto el OEC cuenta con un máximo de 15 días hábiles.
