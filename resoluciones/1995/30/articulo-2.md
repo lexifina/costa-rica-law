@@ -13,8 +13,8 @@ Producto | Factor
 10. Pinturas y especialidades carias (resto del mundo) | 0.114717
 b) El factor aplicable del 20 de marzo de 1997 en adelante será:
 Producto | Factor
-1. Bombillos incandescentes | 0.109581
-2. Tubos fluorescentes | 0.106692
+1. Bombillos incandescentes | 0.11504 (Así reformado el factor anterior por el artículo 7° de la resolución DGT-R-22 del 16 de julio de 2015, "Determinación de base imponible en nivel de mayorista para productos de iluminación incandescentes y fluorescentes conforme lo dispuesto en el artículo 11 de la Ley de Impuesto General sobre las Ventas")
+2. Tubos fluorescentes | 0.11504 (Así reformado el factor anterior por el artículo 7° de la resolución DGT-R-22 del 16 de julio de 2015, "Determinación de base imponible en nivel de mayorista para productos de iluminación incandescentes y fluorescentes conforme lo dispuesto en el artículo 11 de la Ley de Impuesto General sobre las Ventas")
 3. Cemento corriente y mezcla Pegamiz y Concremix | 0.112459
 4. Cemento blanco | 0.10969
 5. Hierro para techo | 0.112445
