@@ -1,8 +1,0 @@
-CAPÍTULO III
-Definiciones
-Artículo 4º—Definiciones de Términos. Sin perjuicio de las definiciones contenidas en la Ley 8642, Ley General de Telecomunicaciones, para efectos de este Reglamento se utilizarán las siguientes:
-1) Costos Comunes: son los costos comunes a diferentes productos o servicios brindados por un operador.
-2) Costos Incrementales Promedio de Largo Plazo (CIPLP): Son los que surgen de la aplicación de una metodología de cálculo de precios basados en costos, en que toma en consideración únicamente los costos incrementales que la provisión de una determinada instalación esencial causalmente o de un servicio en particular, induzca en los activos y gastos del operador. Se entiende por causalmente inducidos aquellos costos adicionales en los que se incurre en la provisión de la Instalación o servicio y que por tanto, no se incurriría si esa instalación o servicio no fuera prestado. Se incluye costos directos y comunes y los costos de capital considerando una Tasa Requerida de Retorno del Capital, de acuerdo a la descripción detallada contenida en el presente Reglamento.
-3) Costos medios totales: Es la suma de los CIPLP y todos los costos comunes no considerados en el cálculo de los CIPLP, asignados estos últimos a cada servicio en proporción a los respectivos CIPLP.
-4) Factor de ajuste por eficiencia (factor X): Porcentaje anual de reducción que se aplicará a las tarifas de los servicios regulados por la Sutel, como consecuencia del incremento en la eficiencia con que se brindan tales servicios.
-5) Tasa de retorno del capital: Tasa de rentabilidad determinada por la Sutel para efectos de retribuir el capital invertido por los operadores de redes o servicios de telecomunicaciones.
