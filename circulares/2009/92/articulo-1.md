@@ -1,4 +1,5 @@
 CIRCULAR Nº 92-09
+(Nota de Sinalevi: Mediante circular N° 113 del 16 de julio de 2015, aprobada en sesión N° 24 del 22 de junio de 2015, y publicada en el Boletín Judicial N° 168 del 28 de agosto de 2015, se dispuso aclarar la presente norma para que se inlcuya la siguiente directriz: "...“De acuerdo con lo establecido en la circular 92-09 de la Secretaría General de la Corte Suprema de Justicia, mediante la cual se comunicó el Protocolo de Actuaciones para el Desempeño de los Tribunales de Juicio en Materia Penal, se recuerda a todos los Tribunales de Juicio del País que, cuando la sentencia se dicte de manera oral, la misma debe enviarse a la Dirección General de Adaptación Social, con una indicación de la hora, el minuto y segundo a partir del cual se inicia la referencia a los hechos probados; pues así se ha requerido por parte de esta instancia”.)
 Asunto: Protocolo de Actuaciones para el Desempeño de los Tribunales de Juicio en Materia Penal.
 A LOS TRIBUNALES DE JUICIO DEL PAÍS
 SE LES HACE SABER QUE:
