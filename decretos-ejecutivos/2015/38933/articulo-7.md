@@ -1,0 +1,1 @@
+Artículo 7º—Los aspectos contemplados en este Decreto Ejecutivo son de acatamiento obligatorio, aún en las instituciones que no cuenten con un Programa de Gestión Ambiental Institucional, el que deberá incorporarlos en los plazos establecidos por el Ministerio de Salud.
