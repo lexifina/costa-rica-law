@@ -1,0 +1,6 @@
+Artículo 68.—Condiciones especiales que deben verificarse para la aprobación de investigaciones en el caso de pacientes con trastornos mentales conductuales o cognoscitivos moderados o severos. Las investigaciones con pacientes con trastornos mentales conductuales o cognoscitivos moderados o severos, así como aquellas investigaciones que se realicen en los casos establecidos en el artículo 65 de la Ley Nº 9234 deben cumplir, además de lo establecido en las demás disposiciones del presente reglamento, con los siguientes requerimientos:
+a) No podrán ser contrarias a los mejores intereses del paciente.
+b) Se anticipa un beneficio terapéutico con una posibilidad razonable de superioridad sobre el tratamiento estándar.
+c) No podrán tener mayor riesgo que el propio de las condiciones del paciente y de los métodos alternativos de tratamiento.
+d) El proceso de consentimiento o asentimiento informado será instrumentado hasta el modo más razonable posible de cumplir con sus exigencias incluyendo la participación de familiares y el representante autorizado.
+e) En los casos en que el participante no sea quien otorgue el consentimiento, éste será informado tan pronto como sea posible y podrá retirarse de la investigación sin consecuencia alguna para su debida atención y cuidados.

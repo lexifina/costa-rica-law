@@ -1,0 +1,2 @@
+Artículo 51.—De la protección de expedientes. Con la finalidad de resguardar la información concerniente a la investigación por 30 años, el investigador podrá resguardarla en un servicio de guarda documentos, a partir de la finalización de la investigación. Para tal caso, se debe notificar previamente al CEC respectivo, indicando el nombre de la empresa, dirección y documentos enviados.
+De igual forma, con la finalidad de preservar dicha información, previa autorización del Conis, se permitirá además la digitalización de la información.

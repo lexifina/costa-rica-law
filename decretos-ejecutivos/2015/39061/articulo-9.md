@@ -1,0 +1,3 @@
+Artículo 9º—Del consentimiento informado en personas con discapacidad.
+a) En toda investigación en que participen personas con discapacidad visual, el investigador debe dar la información y el consentimiento informado en formatos accesibles y apropiados en común acuerdo con el participante como lectura oral, sistema braille u otros. Dichos formatos deben ser aprobados por el CEC respectivo.
+b) En toda investigación en que participen personas con discapacidad auditiva, el investigador debe dar la información y el consentimiento informado en formatos accesibles y apropiados en común acuerdo con el participante como formatos escritos, Lengua de Señas Costarricense (LESCO) u otros. Dichos formatos deben ser aprobados por el CEC respectivo.

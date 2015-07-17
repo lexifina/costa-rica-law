@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones del presente reglamento son de orden público, de interés general y de acatamiento obligatorio por ende, aplicable a toda persona física o jurídica que esté relacionado directa o indirectamente con investigaciones biomédicas en el territorio nacional.

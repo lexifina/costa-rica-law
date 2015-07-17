@@ -1,0 +1,1 @@
+Transitorio III.—Se autoriza a los CEC avalar los Cursos de Buenas Prácticas Clínicas que presentan los investigadores que tengan al menos 16 horas de capacitación, mientras el Conis defina lo correspondiente.

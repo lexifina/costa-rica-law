@@ -1,0 +1,1 @@
+Artículo 41.—De las actas. La Comités llevarán un libro con las actas de las sesiones, donde se consignarán sus resoluciones. Las actas serán firmadas por el presidente y el secretario. Los miembros de los Comités cuyo voto sea contrario al acuerdo tomado, deberá constar en el acta las razones que lo justifiquen.

@@ -1,0 +1,6 @@
+Artículo 48.—Del reclutamiento de participantes. El procedimiento de reclutamiento será sometido al CEC como parte del sometimiento inicial y contendrá los siguientes requisitos:
+a) Indicación de los medios que se utilizarán para el reclutamiento de participantes. Los CEC podrán autorizar el uso de espacios y medios informativos para el reclutamiento de participantes, sea medios de prensa televisiva, escrita o cualquier otro que el CEC considere pertinente, de acuerdo con el diseño del plan de reclutamiento propuesto en el paquete de sometimiento.
+b) Indicar si el procedimiento de reclutamiento de participantes incluye la solicitud a instituciones públicas o privadas, médicos tratantes, cualquier otro profesional de la salud, para la referencia o inclusión de pacientes, en cuyo caso, el CEC debe aprobar previamente la propuesta de reclutamiento específica para estos casos.
+c) El acceso a los expedientes médicos de los eventuales participantes requerirá de su aprobación. Esta aprobación en ningún caso sustituirá el consentimiento informado.
+d) Las disposiciones sobre reclutamiento, contempladas en los incisos anteriores, no se aplicaran a las investigaciones reguladas en el artículo 7º de la Ley Nº 9234.
+e) Quien transfiera información personal o bases de datos de posibles participantes, no podrá recibir remuneración de ningún tipo.

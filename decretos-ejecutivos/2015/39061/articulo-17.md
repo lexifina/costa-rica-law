@@ -1,0 +1,4 @@
+Artículo 17.—De las obligaciones de las personas participantes en una investigación biomédica. Además de lo establecido en el artículo 33 de la Ley Nº 9234, es obligación de los participantes en investigaciones biomédicas las siguientes:
+a) Si el participante requiere de atención médica independiente del estudio, debe informar al médico tratante de su participación en una investigación clínica a fin de no poner en riesgo su salud. En los casos de niños o personas con discapacidad será responsabilidad de sus padres o representantes legales brindar esta información.
+b) Si el participante requiere de atención médica independiente del estudio, debe informar al investigador del tratamiento que está recibiendo, a fin de no poner en riesgo su salud ni los resultados del estudio.
+c) Debe suministrar información veraz y oportuna sobre sus padecimientos previos y condiciones clínicas preexistentes.

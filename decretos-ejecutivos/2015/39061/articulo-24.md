@@ -1,0 +1,1 @@
+Artículo 24.—Del Presupuesto. El Conis por medio de la Secretaría Técnica Ejecutiva, debe establecer el procedimiento legal administrativo para la recaudación y acreditación de los fondos que prevé el artículo 45 de la Ley Nº 9234 para financiar el funcionamiento del Conis.

@@ -1,0 +1,1 @@
+Artículo 43.—Sobre los recursos. Las resoluciones que emitan los Comités, cabrá recurso de apelación ante el Conis, en los términos que señala el artículo 75 de la Ley Reguladora de Investigación Biomédica.

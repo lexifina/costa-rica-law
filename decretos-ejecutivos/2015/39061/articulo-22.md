@@ -1,0 +1,2 @@
+Artículo 22.—De las dietas. El miembro propietario del Conis o el suplente en ausencia de éste, recibirá la dieta correspondiente cuando cumpla con al menos el 75% de permanencia en la sesión sea ordinaria o extraordinaria. Los funcionarios públicos que participen en las sesiones en horas laborales no percibirán las dietas.
+Para este efecto la Secretaría Ejecutiva del Conis debe llevar un registro con la hora de entrada, salida y firma del miembro.

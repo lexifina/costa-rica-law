@@ -1,0 +1,1 @@
+Artículo 42.—Sobre la aprobación de proyectos. Los Comités deberán dictar el pronunciamiento sobre la aprobación o improbación o renovación de los proyectos de investigación biomédica que se le presenten, dentro del plazo de un mes calendario, contado a partir del día hábil siguiente de la presentación de la solicitud.

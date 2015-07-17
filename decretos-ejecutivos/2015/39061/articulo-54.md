@@ -1,0 +1,1 @@
+Artículo 54.—De la trazabilidad. Deben existir procedimientos para asegurar la trazabilidad documental de todo producto en investigación que sea importado, fabricado y distribuido en el país. Lo anterior es una responsabilidad compartida por todas las partes involucradas en la cadena de suministro hasta el sitio de investigación.
