@@ -1,0 +1,1 @@
+Artículo 8º—Después de firmado el contrato, el departamento encargado de la gestión de recursos humanos (o la Alcaldía) procederá a confeccionar la acción de personal respectiva que deberá seguir el trámite usual que rige en esta materia.

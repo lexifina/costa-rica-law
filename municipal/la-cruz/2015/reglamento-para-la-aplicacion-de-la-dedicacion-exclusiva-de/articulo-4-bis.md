@@ -1,0 +1,1 @@
+Artículo 4 Bis.―La Municipalidad, a efecto de obtener el mejor rendimiento de los profesionales se reserva el derecho de aplicar la dedicación exclusiva para la Institución del profesional contratado.

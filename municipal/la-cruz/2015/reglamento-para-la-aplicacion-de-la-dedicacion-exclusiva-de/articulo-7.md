@@ -1,0 +1,1 @@
+Artículo 7º—Una vez firmado el contrato, el servidor no podrá ejercer ninguna profesión que posea, ni realizar actividades relacionadas con éstas o con el cargo que ostente, si no es autorizado expresamente por la Municipalidad.
