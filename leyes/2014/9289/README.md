@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2015
 
-Ley N° 9289 del 2014-12-01. SINALEVI, ficha 78575: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=78575&param2=100878&param3=1>.
+Ley N° 9289 del 2014-12-01. SINALEVI, ficha 78575: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=78575&param2=101030&param3=1>.
 
 Publicada en La Gaceta N° 241 del 2014-12-15.
 
@@ -24,3 +24,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 14 de 30 | 2015-05-27 | Decreto Ejecutivo 39034 (2015-05-21) | 2015-05-21 |
 | 15 de 30 | 2015-07-02 | Decreto Ejecutivo 39041 (2015-06-09) | 2015-06-09 |
 | 16 de 30 | 2015-07-06 | Ley 9304 | 2015-06-15 |
+| 17 de 30 | 2015-07-20 | Decreto Ejecutivo 39069 (2015-06-30) | 2015-06-30 |
