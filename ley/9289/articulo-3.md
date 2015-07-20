@@ -10,3 +10,4 @@ Ejercer el mandato conferido por el pueblo, representándolo en el proceso de fo
 (Modificado por el artículo 1° del decreto ejecutivo N° 38886 del 4 de febrero del 2015)
 (Modificado por el artículo 1° del decreto ejecutivo N° 38910 del 3 de marzo de 2015)
 (Reformado por el artículo 2° de la ley N° 9304 del 15 de junio de 2015)
+(Modificado por el artículo 1° del decreto ejecutivo N° 39069 del 30 de junio de 2015)
