@@ -14,3 +14,4 @@ Reglamento de Administración, Funcionamiento y Organización del Cementerio de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-22 | la propia norma |
+| 2 | 2015-07-20 | Reglamento municipal 273 (2015-07-20) |
