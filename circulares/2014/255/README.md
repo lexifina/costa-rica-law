@@ -13,3 +13,4 @@ Deber de identificar los expedientes en los que se nombren auxiliares de la just
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-10 | la propia norma |
+| 2 | 2015-07-21 | Circular 117 (2015-07-21) |
