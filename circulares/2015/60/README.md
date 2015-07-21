@@ -14,3 +14,4 @@ Abordaje de casos de personas que se presumen cuenta con alteración mental o un
 | --- | --- | --- |
 | 1 | 2015-04-15 | la propia norma |
 | 2 | 2015-05-26 | Ley 9303 |
+| 3 | 2015-07-21 | Circular 119 (2015-07-21) |
