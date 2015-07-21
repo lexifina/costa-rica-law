@@ -14,3 +14,4 @@ Reglamento de Procedimientos para la Comisión de Festejos Cívicos y Populares 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-09 | la propia norma |
+| 2 | 2015-07-21 | Reglamento municipal 0 (2015-07-21) |
