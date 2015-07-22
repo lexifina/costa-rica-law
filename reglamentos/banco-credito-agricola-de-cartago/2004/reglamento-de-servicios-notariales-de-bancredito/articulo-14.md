@@ -1,1 +1,0 @@
-Articulo 14.—De la recepción de dineros. Es absolutamente prohibido a los notarios, recibir pagos de cualquier naturaleza de los clientes; todo pago será tramitado por medio de las oficinas del Banco.

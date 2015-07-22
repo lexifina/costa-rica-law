@@ -1,1 +1,0 @@
-Articulo 7°—Supervisión del notariado. La supervisión y control de notariado, se hará por medio de las oficinas designadas al efecto por la Gerencia General, sin perjuicio de la labor de fiscalización de la Auditoria Interna del Banco.

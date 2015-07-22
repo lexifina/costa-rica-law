@@ -1,3 +1,0 @@
-Artículo 17.—De la inscripción del documento. El notario deberá presentar el testimonio al Registro Nacional para su inscripción dentro de los dos días hábiles siguientes a la formalización del crédito, con la totalidad de los impuestos, derechos y timbres que procedan debidamente cancelados. Asimismo, deberá de aportar a la oficina encargada fotocopia de la boleta de presentación al Registro Público, dentro de los cinco días siguientes a la formalización.
-El documento deberá inscribirse a más tardar, dentro de los sesenta días naturales siguientes a la fecha de la formalización del crédito. Cualquier demora después de este plazo, deberá estar debidamente justificada por el notario a satisfacción del Banco.
-(Así reformado en sesión N° 7784 del 2 de diciembre del 2004)
