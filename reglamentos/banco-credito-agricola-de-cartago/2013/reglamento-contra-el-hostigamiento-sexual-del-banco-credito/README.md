@@ -14,3 +14,4 @@ Reglamento contra el hostigamiento sexual del Banco Crédito Agrícola de Cartag
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-23 | la propia norma |
+| 2 | 2015-07-22 | Reglamento 8862 (2015-07-22) |

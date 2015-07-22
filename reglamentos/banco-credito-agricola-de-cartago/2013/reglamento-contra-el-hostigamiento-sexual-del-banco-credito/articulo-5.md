@@ -9,3 +9,7 @@ Principio de proporcionalidad: Adecuación de la severidad de la sanción, a la 
 Principio del Debido Proceso: principio jurídico procesal según el cual toda persona tiene derecho a ciertas garantías mínimas, tendientes a asegurar un resultado justo y equitativo dentro del proceso, al permitirle tener oportunidad de ser oído y a hacer valer sus pretensiones legítimas frente al juez.
 Principio de Libertad Probatoria: Principio que otorga a las partes el derecho de presentar la prueba que consideren necesaria por cualquier medio legal permitido, sea escrito, testimonial, pericial, digital, etc.
 Principio pro víctima: Implica que en caso de duda, se interpretará a favor de la víctima.
+Prueba indiciaria: Consiste en la reunión e interpretación de una serie de hechos y circunstancias relativas a un injusto determinado que se investiga, a efectos de intentar acceder a la verdad de lo acontecido por vía indirecta.
+(Así adicionada la definición anterior en sesión N° 8862 del 22 de julio de 2015)
+Inercia administrativa: Inactividad del proceso.
+(Así adicionada la definición anterior en sesión N° 8862 del 22 de julio de 2015)

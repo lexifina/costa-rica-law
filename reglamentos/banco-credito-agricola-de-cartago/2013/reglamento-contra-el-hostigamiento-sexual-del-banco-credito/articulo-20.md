@@ -1,1 +1,2 @@
-Artículo 20.—Plazo del procedimiento. El plazo para concluir el procedimiento será de tres meses. Dicho plazo se entenderá como ordenatorio, cuyo incumplimiento genera una responsabilidad para las personas integrantes del órgano de investigación.
+Artículo 20.—Plazo del procedimiento.El plazo para concluir el procedimiento será de tres meses. Dicho plazo se entenderá como ordenatorio, cuyo incumplimiento genera una responsabilidad para las personas integrantes del órgano de investigación. Este plazo podrá ampliarse hasta por un período igual, mediante resolución debidamente motivada por el órgano a cargo del proceso.
+(Así reformado en sesión N° 8862 del 22 de julio de 2015)
