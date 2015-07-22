@@ -1,4 +1,6 @@
+(Derogado)
 Nº 33224
+(Este decreto ejecutivo fue derogado por el artículo 8 del decreto eejcutivo N° 39183 del 22 de julio del 2015, "Procedimiento para la incorporación y desincorporación presuspuestaria de las fuentes de financiamiento de crédito público externo y las autorizaciones de gastos asociadas al Presupuesto de la República")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE HACIENDA
 En uso de las facultades conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; los artículos 25, inciso 1) y 28, inciso 2) acápite b de la Ley Nº 6227 “Ley General de Administración Pública” del 2 de mayo de 1978, los artículos 46, 58, 78, 79, 80 y 85 de la Ley Nº 8131 “Ley de la Administración Financiera de la República y Presupuestos Públicos del 18 de setiembre del 2001 y su Reglamento Decreto Ejecutivo Nº 32988-H-MP-PLAN- del 31 de enero del 2006.
