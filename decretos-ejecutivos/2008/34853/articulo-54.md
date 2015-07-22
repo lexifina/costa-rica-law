@@ -1,1 +1,0 @@
-Artículo 54.—Derogaciones. Deróguese el Decreto Ejecutivo Nº 31697- MEIC del 8 de marzo del 2004, publicado en el diario oficial La Gaceta Nº 57 del 22 de marzo de 2004, y Decreto Ejecutivo Nº 33112-MEIC del 20 de marzo del 2006, publicado en diario oficial La Gaceta Nº 98 del 23 de mayo de 2006.

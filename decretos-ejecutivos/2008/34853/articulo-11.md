@@ -1,1 +1,0 @@
-Artículo 11.—Beneficiarios del Fondo de Avales y Garantías. Serán beneficiarios del Fondo de Avales y Garantías, las empresas definidas en el artículo 5º de este reglamento; que tienen una necesidad de financiamiento e insuficiencia de garantías, ante alguno de los operadores autorizados.
