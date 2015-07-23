@@ -9,8 +9,9 @@ El Instituto Costarricense de Puertos del Pacífico (INCOP), creado por la Ley N
 OBJETIVO GENERAL
 Regular los fondos de cajas chicas ubicadas en Puerto Caldera, San José, Puerto Quepos, Puntarenas y Puerto Golfito.
 OBJETIVOS ESPECIFICOS
-· Mantener una adecuada rotación de los fondos, con el propósito de garantizar que permanentemente haya efectivo en caja chica.
-· Mantener un fondo para efectuar compras urgentes por sumas menores, bienes ó artículos perecederos y que no requiera de otro trámite administrativo, o que no haya existencia en la Institución.
+· Mantener una· adecuada rotación de los fondos, con el propósito de garantizar que permanentemente haya efectivo en caja chica.
+·Mantener un· fondo para efectuar compras urgentes por sumas menores, bienes ó artículos perecederos y que no requiera de otro trámite administrativo, o que no haya existencia en la Institución.
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto en forma íntegramente mediante sesión N° 3952 del 23 de julio del 2015, publicada en La Gaceta N° 167 del 27 de agosto del 2015, por lo que se transcribe a continuación:)
 CAPITULO 1
 Disposiciones generales
 ARTICULO 1: Del carácter de las disposiciones: Las disposiciones establecidas por el Reglamento son de carácter general y se aplicarán en todas las operaciones de caja chica que serán creadas mediante este Reglamento y las que en un futuro se establezcan a juicio de la Gerencia General y con la aprobación de la Junta Directiva.

@@ -14,3 +14,4 @@ Reglamento de caja chica del Instituto Costarricense de Puertos del Pacífico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-25 | la propia norma |
+| 2 | 2015-07-23 | Reglamento 3952 (2015-07-23) |

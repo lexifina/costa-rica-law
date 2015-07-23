@@ -13,4 +13,4 @@ i) Valor en números y en letras.
 j) Aprobación del Jefe que autorizó la gira.
 k) Códigos presupuestarios, partida y meta.
 l) Número del adelanto y suma adelantada (si la hubiera).
-m) Los funcionarios podrán realizar liquidaciones de viajes de giras discontinuas en un mismo formulario para lo cual deberá especificar en la casilla de observaciones del formulario, la fecha, hora de inicio y hora de finalización de cada día que se este cobrando, así como los motivos de la gira.
+m) Los funcionarios podrán realizar liquidaciones de viajes de giras discontinuas en un mismo formulario para lo cual deberá especificar en la casilla de observaciones del formulario, la fecha, hora de inicio y hora de finalización de cada día que se esté cobrando, así como los motivos de la gira.
