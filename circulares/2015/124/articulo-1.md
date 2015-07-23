@@ -1,0 +1,10 @@
+CIRCULAR Nº 124-2015
+ASUNTO: Reiteración de la circular N° 109-15 “Impedimento para conciliar en casos de hostigamiento sexual”.
+A LOS DESPACHOS JUDICIALES QUE CONOCEN
+MATERIA DE HOSTIGAMIENTO SEXUAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 57-15, celebrada el 18 de junio de 2015, artículo LXXX, acordó reiterarles la circular Nº 109-2015, sobre “Impedimento para conciliar en casos de hostigamiento sexual”, del 25 de junio de 2015, que literalmente indica:
+“El Consejo Superior del Poder Judicial en sesión Nº 50- 15 celebrada el 28 de mayo de 2015, artículo LXXIII, con base en el comunicado de la licenciada Marcela Arroyave Sandino, Coordinadora de la Comisión contra el Hostigamiento Sexual, dispuso comunicar a los despachos judiciales del país que conocen materia relacionada con el Hostigamiento Sexual, las pautas que literalmente dicen:
+1-Se le recuerda al personal judicial que la normativa vigente no contempla etapa de conciliación en la tramitación de casos de hostigamiento sexual.
+2-Al ser el hostigamiento sexual una forma de violencia en el que se ven vulnerados los derechos humanos de las víctimas, convocar a las partes a una conciliación, expone a la víctima a la revictimización, aumenta el daño y expone a las personas denunciantes a nuevas situaciones de violencia.”
+San José, 23 de julio de 2015.
