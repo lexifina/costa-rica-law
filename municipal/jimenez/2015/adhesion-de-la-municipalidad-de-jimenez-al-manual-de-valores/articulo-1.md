@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE JIMÉNEZ
+Asunto: Transcripción del acuerdo 6° del Artículo V.
+La Municipalidad de Jiménez en sesión ordinaria N° 247 celebrada el día lunes 15 de junio del año en curso, acordó:
+Este Concejo acuerda por unanimidad; adherirse al Manual de Valores Base Unitarios por Tipología Constructiva del año 2015, emitido por el Órgano de Normalización Técnica (ONT) del Ministerio de Hacienda, conforme fue publicado en el Alcance Digital N° 19 de La Gaceta N° 57 del 23 de marzo del 2015, así como a todos los adéndums que el ONT emita con el afán de corregir y/o aclarar los contenidos de dicho manual, el cual se utilizará en el cálculo de los valores unitarios de construcciones y/o instalaciones de los predios del cantón, para estimar el monto correspondiente por concepto de impuesto sobre bienes inmuebles para su ejecución y proceder con la aplicación a los nuevos valores de las construcciones en los procesos de recepción de declaraciones y avalúos. Publíquese en el Diario Oficial La Gaceta y un periódico de circulación nacional, para lo cual se autoriza a la Alcaldía Municipal.
+Juan Viñas, 23 de junio del 2015.
