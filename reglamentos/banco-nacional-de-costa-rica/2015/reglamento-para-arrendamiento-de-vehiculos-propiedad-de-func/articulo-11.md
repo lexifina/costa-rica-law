@@ -1,0 +1,1 @@
+Artículo 11.—No existirá obligación para el Banco de garantizar un mínimo de kilómetros por recorrer y remunerar, de manera que sólo se reconocerán aquellos que hayan sido efectivamente recorridos, se encuentren debidamente justificados y documentados y se ajusten a las tablas vigentes.
