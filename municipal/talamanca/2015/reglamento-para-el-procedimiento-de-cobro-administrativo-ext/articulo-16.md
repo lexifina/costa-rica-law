@@ -1,0 +1,1 @@
+Artículo 16.—De la función de recaudación. La función de recaudación es el conjunto de actividades que realiza la administración tributaria municipal, destinadas a percibir efectivamente el pago de todas las obligaciones tributarias municipales del contribuyente.

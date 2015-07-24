@@ -1,0 +1,1 @@
+Artículo 48.—Compensación. La sección de cobros de la municipalidad compensará de oficio o a petición de parte, los créditos tributarios firmes, líquidos y exigibles, que tenga en su favor con los de igual naturaleza del sujeto pasivo, empezando con los más antiguos, sin importan que prevengan de distintos tributos y siempre que se trate de obligaciones tributarias municipales.

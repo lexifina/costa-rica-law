@@ -1,0 +1,1 @@
+Artículo 44.—Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente ante el pago total que realice el sujeto pasivo de la obligación vencido, o cuando se haya retrasado tres días hábiles en el cumplimiento de su obligación, en cuyo caso; vencido dicho plazo, se remitirán inmediatamente el expediente a cobro judicial.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento será de aplicación obligatoria tanto para la administración tributaria municipal como para los abogados externos que sean contratados por la Municipalidad de Talamanca, para gestionar el cobro administrativo, extrajudicial y/o judicial de las obligaciones dinerarias que se le adeuden a la Municipalidad.

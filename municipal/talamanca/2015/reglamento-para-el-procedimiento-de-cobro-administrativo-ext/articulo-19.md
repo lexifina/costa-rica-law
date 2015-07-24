@@ -1,0 +1,1 @@
+Artículo 19.—Definición de cobro judicial. Por cobro judicial se debe entender aquellas gestiones que se realicen en el ámbito judicial conforme a las disposiciones de la Ley de Cobro Judicial Ley Nº 8624, con el objetivo de recuperar las cuentas atrasadas mayores de seis meses.

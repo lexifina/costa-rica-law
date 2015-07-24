@@ -1,0 +1,1 @@
+Artículo 39.—Resolución de la contratación. Los abogados externos que por alguna razón profesional o personal, quieran dejar servir a la municipalidad deberán comunicar esta decisión expresamente y por escrito al alcalde municipal, con treinta días de antelación, nota de la cual remitirán copia a la oficina de la sección de cobros de la municipalidad.
