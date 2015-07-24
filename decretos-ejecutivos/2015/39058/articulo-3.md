@@ -1,0 +1,1 @@
+Artículo 3º—Los propietarios u ocupantes de áreas donde se detecte la plaga deberán colaborar con los funcionarios del Servicio Fitosanitario del Estado o quien éste designe, para la aplicación de las medidas de control recomendadas oficialmente.
