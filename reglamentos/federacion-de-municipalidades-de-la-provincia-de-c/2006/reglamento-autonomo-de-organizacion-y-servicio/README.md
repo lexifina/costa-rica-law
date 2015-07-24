@@ -14,3 +14,4 @@ Reglamento Autónomo de organización y Servicio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-14 | la propia norma |
+| 2 | 2015-07-24 | Reglamento 0 (2015-07-24) |

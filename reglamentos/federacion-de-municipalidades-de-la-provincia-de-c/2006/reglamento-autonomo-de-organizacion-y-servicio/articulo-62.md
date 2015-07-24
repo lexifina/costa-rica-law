@@ -18,6 +18,7 @@ m) Efectuar o patrocinar para terceros, trámites o gestiones administrativas, q
 n) Dirigir, administrar, patrocinar, representar o prestar servicios, remunerados o no, a personas de existencia física o jurídica, que gestionen o exploten concesiones o privilegios de la Administración o que fueren proveedores o contratistas.
 o) Solicitar servicios o recursos especiales para la Institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones.
 p) Hacer abandono o dejar de hacer las labores encomendadas sin causa justificada, o sin permiso expreso del responsable de la actividad donde se encuentre ubicado. Sin perjuicio de otros supuestos constituye abandono:
+(Así reformado el inciso p) anterior en el artículo 3, inciso 1) de 2015, celebrada el viernes 24 de julio del 2015)
 1) Distraer tiempo de sus horas de trabajo para asuntos ajenos a las labores correspondientes del cargo que desempeña.
 2) Atender en horas de trabajo, visitas y hacer llamadas telefónicas de carácter personal para asuntos ajenos a sus labores, a menos que estas sean de gravedad o de urgencia, en cuyo caso deberán ser lo más breves posibles.
 3) Visitar otras oficinas que no sean aquellas donde prestan sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones innecesarias con compañeros (as) de labores o con extraños, en perjuicio o con demora del trabajo que se está ejecutando.
@@ -33,7 +34,8 @@ p) Hacer abandono o dejar de hacer las labores encomendadas sin causa justificad
 13) Ejercer presión, hostigar, acosar, tomar represalias contra compañeros (as), para obtener provecho personal en acciones relacionadas con credos políticos, religiosos, sexuales, económicos y de cualquier otra índole.
 14) Fumar en el centro de trabajo. Salvo en el lugar destinado para ello por Ley.
 15) Hacer propaganda religiosa o contraria a las instituciones democráticas.
-16) Extraer de la institución documentos, expedientes, equipo o en general cualquier bien de la Unión Nacional de Gobiernos Locales, aunque sea para dar cumplimiento a labores de la misma, sin autorización expresa y previa de la Dirección Ejecutiva o quien este autorizado para tal fin.
+16) Extraer de la institución documentos, expedientes, equipo o en general cualquier bien de la Federación de Municipalidades de Cartago, aunque sea para dar cumplimiento a labores de la misma, sin autorización expresa y previa de la Dirección Ejecutiva o quien esté autorizado para tal fin.
+(Así reformado el subinciso 16) anterior en el artículo 3, inciso 1) de 2015, celebrada el viernes 24 de julio del 2015)
 17) Tratar de resolver por medio de la violencia de hecho o de palabras las dificultades que surjan con jefes, servidores o usuarios.
 18) Consumir café, refrigerio o comidas fuera del horario previsto para ese propósito o en los lugares designados para ello.
 19) Incurrir en prácticas labores desleales.
