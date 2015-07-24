@@ -1,1 +1,0 @@
-Artículo 28- Monitoreo. El Ministerio de Salud, podrá solicitarle a las personas físicas y jurídicas que tienen fuentes emisoras de ruido, a que instale, opere y mantenga equipo de monitoreo, así mismo proceder a la preparación y redacción de informes sobre la misma, cuando lo considere oportuno.

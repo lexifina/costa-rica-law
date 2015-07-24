@@ -1,1 +1,0 @@
-Artículo 14- De la capacidad de los inspectores. Los inspectores que se designen, deberán tener conocimientos técnicos en la materia y contar con los dispositivos técnicos adecuados para la medición de los niveles de ruido emitidos.

@@ -1,1 +1,0 @@
-Artículo 22- Ajuste por ruidos impulsivos. Para cualquier fuente emisora de ruido estacionaria que emita ruidos en ciclos variantes o repeticiones de ruidos impulsivos, los límites establecidos en la tablas deberán reducirse por 5 dB(A).
