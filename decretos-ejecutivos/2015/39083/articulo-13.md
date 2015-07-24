@@ -1,0 +1,1 @@
+Artículo 13.—En caso de que en las solicitudes presentadas se determinara la existencia de traslapes o desplazamiento entre ellas y/o con otras fincas, el FONAFIFO valorará de acuerdo a criterios técnicos y legales la aprobación o no de las solicitudes de ingreso con estas inconsistencias.

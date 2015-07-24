@@ -1,0 +1,14 @@
+Artículo 3º—Modalidad Sistemas Agroforestales. Las condiciones establecidas para el trámite de solicitudes de Sistemas Agroforestales, se detallan a continuación.
+3.1. El monto máximo a pagar por los servicios ambientales en Sistemas Agroforestales, por hectárea serán:
+a) Novecientos veintinueve colones con 00/100 (¢929) por árbol, para el pago de servicios ambientales por Reforestación integrados a Sistemas Agroforestales, desembolsados durante un período de tres años.
+b) Mil trescientos setenta y seis colones con 00/100 (¢1.376) por árbol, para el pago de servicios ambientales por Reforestación integrados a Sistemas Agroforestales estrictamente con especies nativas contenidas en los Decretos Ejecutivos N° 25663-MINAE del 8 de octubre de 1996 y N° 25700-MINAE del 15 de noviembre de 1996, desembolsados durante un período de tres años.
+3.2. Las áreas prioritarias para el trámite de las solicitudes del año 2015, para el Programa de Pago de Servicios Ambientales, en Sistemas Agroforestales serán las siguientes:
+a) Tierras con capacidad de uso I, II, III, IV, V, VI, según dispone la Metodología para la Determinación de la Capacidad de Uso de las Tierras en Costa Rica, (Decreto Ejecutivo N° 23214-MAG-MIRENEM, publicado en La Gaceta N° 107, del día 6 de junio de 1994).
+b) Áreas para el establecimiento de árboles en convenios específicos con FONAFIFO.
+c) Se dará prioridad a proyectos tramitados por organizaciones que tengan convenio vigente con el FONAFIFO.
+3.3. Los plazos de vigencia de los contratos serán los siguientes:
+a) Para los contratos en los que se desarrollan Sistemas Agroforestales, la vigencia del contrato será de cinco años a partir de su firma. En esta modalidad no se realizará la inscripción de la afectación del inmueble ante el Registro Nacional.
+b) En contratos de Sistemas Agroforestales que incorporen especies de rápido crecimiento a saber: Gmelina arborea, Acacia mangium y Vochysia hondurensis la vigencia de los contratos será de cinco años.
+c) En contratos de Sistemas Agroforestales que incorporen especies de mediano crecimiento a saber: Tectona grandis, Pinus sp, Cordia alliodora, Vochysia ferruginea, Eucalyptus sp y Cedrela odorata; la vigencia de los contratos será de cinco años.
+3.4. El pago por servicios ambientales en los contratos de Sistemas Agroforestales se hará diferido de acuerdo con las siguientes condiciones:
+a) El pago de servicios ambientales para los proyectos en los que se desarrollen Sistemas Agroforestales se hará una vez firmado el contrato con el Estado y se certifique por parte del regente forestal el establecimiento de los árboles y su fecha de plantación. El primer pago será de un 65% del monto establecido, 20% para el segundo año y un 15% para el tercer año, los mismos deberán solicitarse anualmente a partir de la fecha de establecimiento de los árboles.

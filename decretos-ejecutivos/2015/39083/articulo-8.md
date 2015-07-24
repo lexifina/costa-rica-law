@@ -1,0 +1,1 @@
+Artículo 8°—Los recursos no utilizados por el FONAFIFO y los recursos recuperados en virtud de incumplimientos contractuales, serán depositados en una cuenta bancaria que al efecto establezca el citado Fondo y serán presupuestados para la ejecución de nuevos proyectos de Pago de Servicios Ambientales.
