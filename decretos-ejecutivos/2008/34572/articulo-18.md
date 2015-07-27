@@ -1,3 +1,3 @@
-Artículo 18.—Presentación de la autoliquidación y pago. La autoliquidación y el pago deberán realizarse dentro del término previsto en la Ley Nº 7837, Ley de Creación de Corporación Ganadera, y este Reglamento en las oficinas de la Administración Tributaria o en las Agencias Bancarias de los Bancos del Sistema Bancario Nacional debidamente autorizadas para estos efectos.
-Para realizar la exportación el sujeto pasivo, deberá de adjuntar la autoliquidación de este tributo y su pago al Departamento de Cuarentena Animal del Ministerio de Agricultura y Ganadería.
+Artículo 18.—Presentación de la autoliquidación y pago. La autoliquidación y el pago deberán realizarse con base en la Declaración Única Aduanera (DUA) y se cancelará mediante el sistema informático TICA del Ministerio de Hacienda.
 De acuerdo con la ley, las autoridades aduaneras del país no podrán autorizar la exportación de animales en pie que no hayan liquidado el tributo regulado en este Reglamento.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39332 del 27 de julio de 2015)

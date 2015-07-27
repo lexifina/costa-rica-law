@@ -1,2 +1,2 @@
-Artículo 15.—Presentación de la autoliquidación y pago. La autoliquidación y el pago deberán realizarse dentro del término previsto en la Ley y este Reglamento en las oficinas de la Administración Tributaria o en las Agencias Bancarias de los Bancos del Sistema Bancario Nacional debidamente autorizadas para estos efectos.
-Para realizar la importación, el sujeto pasivo deberá de adjuntar la autoliquidación de este tributo y su pago al Departamento de Cuarentena Animal del Ministerio de Agricultura y Ganadería y cumplir con los requisitos del artículo 138 del Decreto Nº 21858-MAG.
+Artículo 15.—Presentación de la autoliquidación y pago. La autoliquidación y el pago deberán realizarse con base en la Declaración Única Aduanera (DUA) y se cancelará mediante el sistema informático TICA del Ministerio de Hacienda.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39332 del 27 de julio de 2015)
