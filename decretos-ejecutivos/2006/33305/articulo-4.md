@@ -23,3 +23,5 @@ Cuando en este Reglamento se utilice el término “Administración”, se enten
 18. Producción nacional: Son todos aquellos servicios o bienes producidos en el territorio nacional.
 19. Programa de compras de bienes y servicios del Estado: Se entiende como el programa que estimula el crecimiento y desarrollo de las Pequeñas y Medianas Empresas mediante su participación en las compras de bienes y servicios del Estado, así como fortalecer la calidad y competitividad de las PYMES nacionales.
 20. PYME: Unidad productiva de carácter permanente que disponga de recursos físicos estables y de recursos humanos, los maneje y opere, bajo la figura de persona física o persona jurídica, en actividades industriales o de servicios. Lo anterior de conformidad con los parámetros establecidos en el Decreto Ejecutivo Nº 33111 del 6 de abril del 2006 “Reglamento General a la Ley Nº 8262 del 2 de mayo del 2002”.
+21. Precio Ofertado: Es el precio cotizado en la oferta.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39296 del 27 de julio del 2015)

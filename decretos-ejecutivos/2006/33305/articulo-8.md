@@ -1,11 +1,15 @@
 Artículo 8.- Parámetros para la comparación.
-a) Para efectos de comparación de precios entre las mercancías nacionales con las extranjeras, la administración calculará el precio equivalente mediante la aplicación de la siguiente fórmula:
-Peq = PCIF (1 + % de Gastos internamiento + % Derechos arancelarios de importación + % impuesto Ley Nº 6946 y sus reformas).
-En donde:
-Peq = Precio equivalente: es decir el precio que será comparado con el precio dado por los oferentes nacionales.
-PCIF = Precio CIF de la mercancía.
-El porcentaje de gastos de internamiento establecido mediante este Reglamento es de 11,35%.
-Este porcentaje de gastos de internamiento se revisará cada año y de ser necesario será actualizado por la Dirección de Pequeña y Mediana Empresa del Ministerio de Economía, Industria y Comercio, mediante resolución, debiendo publicarse un extracto en el Diario Oficial La Gaceta , en donde deberá hacerse referencia que la resolución integral se encuentra disponible en el Sitio Web del Ministerio de Economía, Industria y Comercio.
-(Así reformado el inciso a) anterior por el arículo 1° del decreto ejecutivo N° 37438 del 6 de agosto del 2012)
-b) Para efectos de comparación de precios entre las mercancías nacionales y las mercancías provenientes de Zonas Francas instaladas dentro de Costa Rica, la Administración deberá aplicar lo que se indica en el inciso a), anterior, según sea el caso, utilizando los derechos arancelarios de importación correspondientes y vigentes.
-En los casos en que se requiera determinar el origen de las manufacturas, se aplicará lo establecido en el Decreto Ejecutivo Nº 32448-MP-MEIC-COMEX, DEL 28 de abril del 2005 “Reglamento al artículo 12 del anexo 3 de la Ley Nº 7017 “Ley de Incentivos para la Producción Industrial Anexo A del Arancel Centroamericano de Importación”.
+a) Para efectos de comparación de precios entre las mercancías nacionales con las extranjeras, la Administración calculará el precio equivalente mediante la aplicación de la siguiente fórmula, ya sea que la mercancía extranjera se entregue en el puerto de entrada o dentro del territorio nacional.
+PE = PCIF * (1+ DAI + Ley) + GI* (PCIF * (1+ DAI + Ley)) + (PO- PCIF )
+en donde:
+PE = Precio equivalente, es el precio que será comparado con el precio dado por los oferentes nacionales.
+PO = Monto del precio Ofertado.
+PCIF = Monto del precio CIF o “valor aduana” (precio ex-fábrica, costes seguro y flete) de la mercancía ajustado en todos sus extremos de conformidad con el Acuerdo relativo a la aplicación del Artículo VII del Acuerdo General sobre Aranceles y Comercio de 1994”
+GI = Porcentaje de gastos internamiento establecidos en el presente artículo.
+DAI = Derechos Arancelarios de Importación
+Ley = Tarifa fija del uno por ciento (1%) aplicable sobre el valor aduanero de las mercancías importadas según lo establecido en la Ley Nº 6946 del 13 de enero de 1984.
+El porcentaje de gastos de internamiento establecido mediante este reglamento es de 10,07%. Este porcentaje de gastos de internamiento, se revisará cada año y de ser necesario será actualizado por la Dirección de Pequeña y Mediana Empresa del Ministerio de Economía, Industria y Comercio, mediante resolución, debiendo publicarse un extracto en el Diario Oficial La Gaceta.
+El porcentaje de utilidad para efectos de comparación de precios en cada proceso de licitación de la Administración Pública, debe ser como mínimo igual a la Tasa Básica Pasiva establecida por el Banco Central de Costa Rica al momento en que se hace la comparación de precios respectiva.
+b) Para efectos de comparación de precios entre las mercancías nacionales y las mercancías provenientes de Zonas Francas instaladas dentro de Costa Rica, la Administración deberá aplicar lo que se indica en el inciso a) anterior, según sea el caso, utilizando entre otros los derechos arancelarios de importación correspondiente y vigente.
+Todo dato e información suministrado por el oferente relativo al precio CIF o al valor en aduana, debe ser verificado contra documentación existente y revisado por la Administración Pública antes de recibir el bien adjudicado. En caso de determinarse hechos falsos que alteren el precio CIF o al valor en aduana, la Administración debe hacer cumplir la legislación vigente de tal forma que la persona física o jurídica que brindó información o datos falsos está expuesta a las sanciones previstas en Código Penal y en la demás normativa nacional.
+(Así reformado por el artículo 3° del decreto ejecutivo N°39296 del 27 de julio del 2015)
