@@ -1,0 +1,2 @@
+Transitorio Único.—El Directorio de la Asamblea Legislativa contará con un plazo de tres años para implementar él o los mecanismos necesarios para el registro de votos en que se deba consignar el nombre completo del legislador o legisladora junto con su votación, en relación con todos los asuntos conocidos por el Plenario Legislativo.
+(Así adicionado mediante sesión ordinaria N° 44 del 27 de julio del 2015. La reforma no es clara en cuanto a la numeración de dicho transitorio razón por la cual siguiendo la numeración existente el mismo se adiciona como transitorio quinto)

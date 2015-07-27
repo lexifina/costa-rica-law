@@ -1,2 +1,5 @@
-ARTICULO 100.- Votación ordinaria
-En la votación ordinaria los diputados expresarán su voto afirmativo poniéndose de pie, y el negativo, permaneciendo sentados; mientras la Secretaría cuenta los votos, conservarán los votantes su respectiva posición.
+Artículo 100.—Votación ordinaria. En la votación ordinaria, los diputados expresarán su voto afirmativo poniéndose de pie, y el negativo, permaneciendo sentados; mientras la Secretaría cuenta los votos, los votantes conservarán su respectiva posición.
+En el caso especial de los asuntos definitivos que se sometan a votación, será necesario, para efectos del acta, que se consigne la aprobación o el rechazo del asunto en virtud del total de votos obtenidos, tanto a favor como en contra, y se registrará el nombre completo de cada legislador y legisladora junto con su respectiva votación individual.
+(Así reformado mediante sesión ordinaria N° 44 del 27 de julio del 2015)
+Transitorio Único.—El Directorio de la Asamblea Legislativa contará con un plazo de tres años para implementar él o los mecanismos necesarios para el registro de votos en que se deba consignar el nombre completo del legislador o legisladora junto con su votación, en relación con todos los asuntos conocidos por el Plenario Legislativo.
+(Así adicionado el transitorio anterior mediante sesión ordinaria N° 44 del 27 de julio del 2015. El mismo se incluye debajo de este artículo aunque la reforma no lo indica toda vez que se refiere al mismo tema)
