@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Mecanismos de control
+Artículo 16.—Responsable del control interno. Compete al Jefe de la Unidad Financiero Contable, implantar y verificar el cumplimiento, la validez y la suficiencia del Sistema de Control Interno, así como darle seguimiento y examinar regularmente la operación efectiva de la Caja Chica, sus registros, la custodia y el buen uso de los recursos, en concordancia con las sanas prácticas de control interno, establecidas en la Ley General de Control Interno, las Normas de Control Interno para el Sector Público emitidas por la Contraloría General de la República, en este Reglamento y en los lineamientos que al efecto emita la Junta Administrativa del Archivo Nacional.

@@ -1,0 +1,1 @@
+Artículo 17.—Encargado del Fondo Fijo-Caja Chica. El encargado del Fondo Fijo-Caja Chica es el Jefe de la Unidad Financiero Contable cajero institucional, quién velará por el cumplimiento de los requisitos mencionados en el presente Reglamento.
