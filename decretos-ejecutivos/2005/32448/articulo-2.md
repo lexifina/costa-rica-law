@@ -12,3 +12,5 @@ j) Precio FOB: Valor en dinero de una mercancía en el puerto de salida de su pa
 k) Precio CIF: Valor en dinero de una mercancía en el puerto de ingreso en Costa Rica, este precio se compone del valor FOB más el transporte desde el país de origen a Costa Rica, más gastos (seguros, descarga, entre otros) para ponerlo en el puerto de entrada en Costa Rica según la definición vigente establecida por la Cámara de Comercio Internacional para los Incoterms.
 l) Preferencia: Inclinación al decidir la compra entre dos o más mercancías con calidad equiparable, abastecimiento adecuado y precio igual o inferior, donde se seleccionará la manufactura nacional.
 m) Producto Manufacturado: Es la mercancía elaborada por la industria manufacturera a partir de un proceso productivo.
+n) Precio Ofertado: Es el precio cotizado en la oferta.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39296 del 27 de julio del 2015)
