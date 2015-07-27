@@ -1,0 +1,1 @@
+Artículo 2°—Las instituciones públicas deberán difundir ampliamente los objetivos de esta conmemoración, mediante la realización de todo tipo de campañas de difusión y actividades que se consideren convenientes.
