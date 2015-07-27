@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ZARCERO
+El suscrito Alejandro Salas Blanco, Alcalde de la Municipalidad de Zarcero, cumpliendo con lo estipulado en los artículos Nos. 3° y 12 de la Ley del Impuesto sobre Bienes Inmuebles y de conformidad con la sentencia N° 1073-2010 del 18 de marzo del 2010 del Contencioso, sección III, así como a la resolución N° 2011-003075 de la Sala Constitucional, procedo con la adhesión de este municipio, a la publicación del Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance N° 19 del Diario Oficial La Gaceta N° 57, del lunes 23 de marzo del 2015, documento emitido por el Órgano de Normalización Técnica del Ministerio de Hacienda.
+Zarcero, 18 junio del 2015.
