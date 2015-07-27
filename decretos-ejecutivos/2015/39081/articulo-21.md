@@ -1,0 +1,3 @@
+Artículo 21.—Sesiones y acuerdos. La Unidad Técnica de Apoyo sesionará ordinariamente una vez al mes y extraordinariamente cuando sea convocado por su Coordinador.
+Mediante acuerdo de la Unidad Técnica de Apoyo, se podrá invitar y convocar a sus sesiones de trabajo a representantes de otras entidades, instituciones u organizaciones públicas o privadas, cuya actividad tenga relación con las materias de su competencia y cuando su participación sea oportuna para analizar aspectos específicos.
+El funcionamiento de dicha Unidad se regirá por la normativa prevista para los órganos colegiados en la Ley General de la Administración Pública.

@@ -1,0 +1,6 @@
+Artículo 25.—Obligaciones de las empresas beneficiarias. Al amparo del presente Reglamento, las empresas beneficiarias interesadas en acceder a los incentivos regulados en el inciso a) del artículo 21 de la Ley de Régimen de Zonas Francas, tendrán las obligaciones que se indican a continuación:
+a) Presentar la documentación e información requerida en el formulario de solicitud de capacitación, entrenamiento y formación, de conformidad con los lineamientos que en esta materia defina el Comité.
+b) Informar de inmediato al Comité de cualquier cambio en la información aportada en el formulario de solicitud.
+c) Estar al día en sus obligaciones con la Caja Costarricense de Seguro Social, con el Fondo de Desarrollo para Asignaciones Familiares (FODESAF) y con las obligaciones con el INA.
+d) Estar al día en el pago del derecho por el uso del Régimen y en las demás obligaciones previstas en la Ley de Régimen de Zonas Francas y este Reglamento.
+El cumplimiento de las obligaciones previstas en los anteriores apartados c) y d), serán verificados por el propio Comité, por lo que es entendido que su incumplimiento podrá representar la denegatoria del beneficio de capacitación previsto en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 27.—Tramitación electrónica. En la medida en que las condiciones tecnológicas lo permitan, todos los trámites relacionados con la solicitud de capacitación, entrenamiento y formación podrá realizarse de forma electrónica.

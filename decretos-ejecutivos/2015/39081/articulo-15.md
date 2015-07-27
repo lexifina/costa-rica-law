@@ -1,0 +1,1 @@
+Artículo 15.—Organización. El Comité de Coordinación Interinstitucional elegirá por mayoría simple un Presidente y un secretario entre sus integrantes, quienes ocuparán tales cargos por un período de un año y podrán ser reelectos por períodos sucesivos.

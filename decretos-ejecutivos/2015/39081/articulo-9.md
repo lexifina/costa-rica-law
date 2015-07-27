@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la Coordinación Interinstitucional
+Artículo 9º—Coordinación. El presente Reglamento tendrá como parte de sus objetivos fundamentales establecer los mecanismos para la coordinación interinstitucional, los lineamientos básicos, términos y condiciones para desarrollar la planificación, administración, gestión estratégica, ejecución, seguimiento y evaluación eficiente de los programas de capacitación, entrenamiento y formación del personal requerido por las empresas beneficiarias del Régimen, todo dentro del marco del incentivo creado en el artículo 21 de la Ley del Régimen de Zonas Francas.

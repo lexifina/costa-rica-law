@@ -1,0 +1,5 @@
+CAPÍTULO V
+Solicitud de capacitación
+Artículo 24.—Solicitud de capacitación. La empresa beneficiaria del Régimen de Zonas Francas, interesada en acceder a los incentivos regulados en el inciso a) del artículo 21 de la Ley de Régimen de Zonas Francas, presentará una solicitud formal al Comité, en los formularios que este emitirá y aprobará para esos efectos; los cuales serán debidamente publicados en las páginas web de cada uno de las entidades integrantes del Comité
+La solicitud deberá indicar con claridad la cantidad de personas por capacitar, el sector productivo, el lugar de la capacitación, proyección de nuevos empleos por crear, el área técnica en la que se requiere de la capacitación, así como los elementos de relevancia que le permitan al Comité establecer el orden de prioridad correspondiente, de conformidad con lo indicado en el artículo 4 de este Reglamento.
+Asimismo, las empresas en proceso de ingresar al Régimen de Zonas Francas podrán gestionar ante PROCOMER el detalle de los servicios de capacitación, entrenamiento y formación requeridos para su operación al amparo del régimen.

@@ -1,0 +1,2 @@
+Artículo 10.—Financiamiento. Para efecto de cumplir con el objeto del presente Reglamento, se utilizarán los recursos ordinarios del INA destinados a cumplir con sus fines legales, sin perjuicio de que otras entidades públicas o privadas aporten fondos para el financiamiento de estas actividades de capacitación, entrenamiento y formación.
+Asimismo, las actividades previstas en el presente Reglamento podrán ser financiadas con fondos obtenidos de fuentes externas, en forma parcial o total, por cualquiera de las entidades mencionadas en este Decreto Ejecutivo.

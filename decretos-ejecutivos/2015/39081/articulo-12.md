@@ -1,0 +1,3 @@
+SECCIÓN I
+Comité de Coordinación Interinstitucional
+Artículo 12.—Creación del Comité de Coordinación Interinstitucional. Constitúyase el Comité de Coordinación Interinstitucional, responsable de coadyuvar en el proceso de definición de los lineamientos, términos y condiciones para una planificación, administración, gestión estratégica, ejecución, seguimiento y evaluación eficiente de los programas de capacitación, entrenamiento y formación del personal requerido por las empresas beneficiarias del Régimen de Zonas Francas al amparo del artículo 21 de la Ley de Régimen de Zonas Francas, sin perjuicio de las facultades que por ley corresponden a otras instituciones.

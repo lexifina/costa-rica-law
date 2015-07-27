@@ -1,0 +1,2 @@
+Artículo 16.—Sesiones y acuerdos. El Comité de Coordinación Interinstitucional sesionará ordinariamente de forma mensual y extraordinariamente cuando sea convocado por su Presidente o bien a solicitud de cualquiera de sus miembros, previa convocatoria del Presidente.
+El funcionamiento de dicho comité se regirá por la normativa prevista para los órganos colegiados en la Ley General de la Administración Pública.

@@ -1,0 +1,2 @@
+Artículo 7º—Lugar de la capacitación. Los servicios de capacitación, entrenamiento y formación se podrán llevar a cabo dentro del territorio aduanero nacional en el INA o directamente en las instalaciones de las empresas, en los parques de zonas francas, los talleres, laboratorios o en general en aquellos lugares en donde se encuentre la maquinaria, el equipo, el proceso o en general los recursos sobre los cuales se capacitará, entrenará o formará el recurso humano.
+Dicha capacitación, entrenamiento y formación también podrá realizarse en el exterior.
