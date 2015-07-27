@@ -7,5 +7,5 @@ b) País de origen de los productos por importar.
 c) Cantidad, tipo y descripción de los productos.
 d) Puerto y fecha de arribo, especificando la vía de transporte.
 e) La solicitud deberá ser presentada al menos con tres días hábiles de anticipación, personalmente por el interesado o por el representante legal en caso de ser una persona jurídica; en caso contrario, dicha solicitud deberá presentarse con la firma debidamente autenticada por abogado.
-f) Con la solicitud, deberá de acompañarse el formulario de “autoliquidación del TRIBUTO DE IMPORTACIÓN DE CARNE BOVINA, establecido a favor de la Corporación Ganadera mediante el artículo 7 de la Ley Nº 7837 del 5 de octubre de 1998 y sus reformas, Ley de Creación de Corporación Ganadera, presentado ante los bancos del Sistema Bancario Nacional autorizados para su recaudación y pagado el tributo ahí indicado.
-( Así adicionado el insiso anterior, mediante el artículo 56 del decreto ejecutivo 34572 del 18 de abril del 2008)
+f) (Derogado por el artículo 2° del decreto ejecutivo N° 39332 del 27 de julio de 2015)
+( Así adicionado el inciso anterior, mediante el artículo 56 del decreto ejecutivo 34572 del 18 de abril del 2008)
