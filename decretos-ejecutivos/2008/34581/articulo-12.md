@@ -1,6 +1,0 @@
-Artículo 12.—El hotel donde operará el casino, deberá cumplir con los siguientes requisitos:
-a) Contar con un mínimo de sesenta habitaciones.
-b) Estar clasificado de acuerdo con el Manual de Clasificación Hotelera del Instituto Costarricense de Turismo como un hotel de servicio completo, con una mínima categorización de tres estrellas, hecho que debe mantenerse durante el tiempo que tenga en funcionamiento el casino.
-(Nota de Sinalevi: Mediante el artículo 3 de la Ley de Impuesto a Casinos y Empresas de enlace de llamadas a apuestas electrónicas ley N° 9050 del 9 de julio de 2012 se estableció que “…solo podrán ser autorizados los casinos en los hoteles de primera categoría, con calificación igual o superior a cuatro estrellas)
-c) La actividad del casino deberá ser complementaria al servicio de hospedaje que se brinda en el hotel.
-d) El local destinado a casino deberá estar ubicado en un área no mayor al quince por ciento del área de la infraestructura total del hotel; pudiendo aumentarse en un diez por ciento esa área máxima, por cada veinte habitaciones adicionales al mínimo indicado en el inciso a) de este artículo. Además deberá estar en un sitio alejado de su recepción y de la entrada principal, sin acceso directo a calle pública, pero dentro del mismo hotel.

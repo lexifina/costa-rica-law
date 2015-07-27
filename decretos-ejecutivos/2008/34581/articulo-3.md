@@ -1,2 +1,0 @@
-Artículo 3º—Todo juego autorizado en el casino de juego, se deberá ajustar a las disposiciones legales pertinentes.
-Para los efectos de este reglamento, se entiende por juego toda actividad de entretenimiento, recreación, distracción y esparcimiento, que se desarrolle en aquellos establecimientos dedicados especialmente a la práctica de estos. Son permitidos todos aquellos juegos que autorice la Ley.

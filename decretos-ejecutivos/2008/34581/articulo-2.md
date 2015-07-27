@@ -1,1 +1,0 @@
-Artículo 2º—Se define como casino de juego, en adelante denominado “casino”, aquel local autorizado a practicar los juegos permitidos y aquellos debidamente aprobados, como servicio complementario a la actividad hotelera, según los requisitos que se establecen para su operación.

@@ -1,1 +1,0 @@
-Artículo 15.—A los casinos se les aplicará lo dispuesto en los artículos 20, 23, 24 y 25 de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, legitimación de capitales y actividades conexas, Ley Nº 7786 de 30 de abril de 1998.

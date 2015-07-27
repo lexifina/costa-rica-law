@@ -1,1 +1,0 @@
-Artículo 14.—El personal del casino está obligado a proporcionar la información que les sea solicitada por las funcionarias y los funcionarios debidamente autorizados e identificados por los Ministerios de Seguridad Pública, Turismo y Salud.

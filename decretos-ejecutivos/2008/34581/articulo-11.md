@@ -1,1 +1,0 @@
-Artículo 11.—Podrán operar diez mesas de juego y 60 máquinas tragamonedas por el mínimo de 60 habitaciones. Esta relación se podrá aumentar en proporción al número de habitaciones del hotel, a razón de una mesa de juego por cada diez habitaciones adicionales; y, una máquina por cada habitación adicional a las 60.
