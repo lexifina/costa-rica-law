@@ -1,0 +1,2 @@
+Artículo 5
+Ambos Contratantes podrán suspender de manera temporal la aplicación del presente Acuerdo, ya sea de manera total o parcial, por razones de seguridad, orden público o salud pública. El Contratante que decida suspender de manera temporal, o bien denunciar la suspensión, de la aplicación del presente Acuerdo, ya sea de manera total o parcial, procederá a informar inmediatamente al otro Contratante de tal decisión por medio de vías diplomáticas.
