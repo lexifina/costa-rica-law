@@ -1,1 +1,0 @@
-Artículo 28.—Todo inquilino tendrá el derecho de solicitar a la Administración del Mercado un cierre temporal por motivos de fuerza mayor, como enfermedades, remodelaciones, problemas de personal, que no sea mayor a treinta días calendario.
