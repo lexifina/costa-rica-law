@@ -1,2 +1,0 @@
-Artículo 20.—Pago de derechos. En caso de autorizarse la licencia temporal, cuando proceda, previo informe técnico, se prevendrá por una única vez al solicitante de realizar el pago de los derechos de dicha licencia, como condición para el otorgamiento de la misma, si en cinco días antes del evento no se ha pagado dicho monto se rechazara la solicitud.
-Este derecho se calculará por un monto correspondiente a un 25% de un salario base por cada día que dure la actividad.

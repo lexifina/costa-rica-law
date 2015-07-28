@@ -1,2 +1,0 @@
-Artículo 15.—Del total recaudado en virtud de la Ley 9047 anualmente, se destinará un porcentaje de un 40% para el Departamento de Patentes para las funciones de inspección y control encomendadas a la Municipalidad, mediante el trámite de presupuestos municipales. Así mismo de los recursos obtenidos por multas, estos se destinarán en su totalidad para éstas mismas funciones. Del 60% restante, se destinarán para programas de Bienestar Social de la Municipalidad.
-(Así reformado en sesión N° 392 del 12 de mayo de 2015)
