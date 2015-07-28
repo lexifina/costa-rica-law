@@ -1,1 +1,2 @@
-Artículo 45.—Protección. La Asamblea Legislativa es la responsable de tomar las medidas necesarias para proteger la integridad, seguridad y la confidencialidad de sus sistemas, aplicaciones, datos y cuentas del personal usuario.
+Artículo 45.—Potestad regulatoria. La Asamblea tiene derecho en todo momento a modificar estos términos y condiciones de uso. Cualquier cambio de modificación de estos términos y condiciones será comunicado al usuario antes de que este establezca una nueva conexión, si el usuario no está de acuerdo con los términos y condiciones modificados su única opción es dejar de usar el servicio.
+(Así adicionado mediante acuerdo N° 03-15-16 tomado en sesión ordianria N° 075-2015 del 28 de julio del 2015)

@@ -1,0 +1,2 @@
+Artículo 51.—Información de carácter privado. La Asamblea Legislativa no es en ningún caso responsable de los daños causados o resultantes de la falta de disponibilidad o inaccesibilidad temporal, intermitente o permanente de la Página Web y/o el Servicio. Asimismo la Asamblea Legislativa no es responsable por la integridad o pérdida de datos, mensajes o cualquier información no generada por la institución.
+(Así adicionado mediante acuerdo N° 03-15-16 tomado en sesión ordinaria N° 075-2015 del 28 de julio del 2015)

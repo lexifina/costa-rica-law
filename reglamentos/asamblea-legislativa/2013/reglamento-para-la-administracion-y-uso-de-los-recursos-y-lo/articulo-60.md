@@ -1,0 +1,2 @@
+Artículo 60.—Régimen sancionatorio. El incumplimiento de las disposiciones establecidas en este reglamento y otras emitidas sobre la administración y uso de los recursos y servicios de TI darán origen a una investigación preliminar y la apertura de un procedimiento administrativo cuando corresponda.
+(Corrida su numeración mediante acuerdo N° 03-15-16 tomado en sesión ordinaria N° 075-2015 del 28 de julio del 2015, que lo traspasó del artículo 49 al 60)

@@ -1,0 +1,2 @@
+Artículo 59.—Administración de los servidores. Si se detectan archivos de índole no institucional, tales como, fotografía, video, música o juegos en los servidores de datos, el Departamento de Informática determinará el origen y la relevancia de los datos y comunicará al usuario y a la administración superior para que se proceda a la eliminación de estos, en un plazo de 24 horas.
+(Corrida su numeración mediante acuerdo N° 03-15-16 tomado en sesión ordinaria N° 075-2015 del 28 de julio del 2015, que lo traspasó del artículo 48 al 59)
