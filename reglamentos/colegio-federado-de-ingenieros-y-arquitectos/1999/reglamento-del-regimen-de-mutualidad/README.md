@@ -20,3 +20,4 @@ Reglamento del Régimen de Mutualidad
 | 5 | 2010-05-11 | Reglamento 3 (2010-05-11) |
 | 6 | 2011-07-26 | Reglamento 39 (2011-07-26) |
 | 7 | 2012-08-21 | Reglamento 39 (2012-08-21) |
+| 8 | 2015-07-28 | Reglamento 2 (2015-07-28) |
