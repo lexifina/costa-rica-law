@@ -14,3 +14,4 @@ Manual para la elaboración de Planes Reguladores Costeros en la Zona Marítimo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-02 | la propia norma |
+| 2 | 2015-07-28 | Acuerdo 235 (2015-07-28) |
