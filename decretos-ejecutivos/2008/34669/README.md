@@ -15,3 +15,4 @@ Listado de enfermedades animales de declaración obligatoria
 | --- | --- | --- |
 | 1 | 2008-08-13 | la propia norma |
 | 2 | 2011-03-01 | Decreto Ejecutivo 36570 (2011-03-01) |
+| 3 | 2015-07-28 | Decreto Ejecutivo 39128 (2015-07-28) |

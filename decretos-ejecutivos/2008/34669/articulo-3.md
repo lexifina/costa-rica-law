@@ -26,6 +26,8 @@ Clostridium chauvoei)
 3.1.23 Rabia
 3.1.24 Triquinelosis
 3.1.25 Tularemia
+3.1.26) Virus de Schmallenberg.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39128 del 28 de julio de 2015)
 3.2. Enfermedades de los bovinos
 3.2.1 Campilobacteriosis genital bovina
 3.2.2 Cisticercosis bovina
@@ -79,6 +81,8 @@ Clostridium chauvoei)
 3.5.8 Peste porcina clásica
 3.5.9 Rinitis atrófica del cerdo
 3.5.10 Síndrome disgenésico y respiratorio porcino
+3.5.11) Diarrea Epidémica Porcina: Virus de la diarrea epidémica porcina.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39128 del 28 de julio de 2015)
 3.6. Enfermedades de las aves
 3.6.1 Bronquitis infecciosa aviar
 3.6.2 Bursitis infecciosa (enfermedad de Gumboro)
