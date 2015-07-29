@@ -1,0 +1,1 @@
+III. Agradecer a los participantes en el proceso de audiencia pública e indicarles que deben tener como respuesta a los argumentos planteados, el documento contenido en el “Análisis de Posiciones” (Anexo B, del oficio 0022-CAHMNE-2015) que se encuentra en los folios 344-418 del Expediente OT-44-2015.
