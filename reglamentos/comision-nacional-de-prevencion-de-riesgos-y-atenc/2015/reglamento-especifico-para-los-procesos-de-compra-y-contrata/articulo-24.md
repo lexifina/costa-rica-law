@@ -1,0 +1,3 @@
+Artículo 24.—Aplicación supletoria del Reglamento para las Contrataciones por el Régimen de Excepción y Funcionamiento de la Proveeduría Institucional de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, la Ley de Contratación Administrativa y su Reglamento. En lo no regulado expresamente por este Reglamento, se aplicará supletoriamente el Reglamento para el Funcionamiento de la Proveeduría Institucional de la CNE, así como la Ley de la Contratación Administrativa y su Reglamento.
+Rige a partir de su publicación.
+(Corrida su numeración mediante sesión extraordinaria N° 09-07-15 del 29 de julio del 2015, que lo trasapasó del artículo 11 al 24)

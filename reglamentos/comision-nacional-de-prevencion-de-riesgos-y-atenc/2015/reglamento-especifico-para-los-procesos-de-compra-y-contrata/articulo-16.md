@@ -1,0 +1,2 @@
+Artículo 16.—En cualquier tipo de proyecto o compra de bienes y servicios, independientemente del plazo de ejecución, las Unidades Ejecutoras deberán presentar a la Unidad de Gestión de Procesos de Reconstrucción un informe final, en el que se detallarán todos los aspectos relevantes de la contratación y posibles recomendaciones, el cual deberá presentarse en un plazo máximo de 10 días hábiles luego de la finalización del proceso de contratación.
+(Así adicionado mediante sesión extraordinaria N° 09-07-15 del 29 de julio del 2015)

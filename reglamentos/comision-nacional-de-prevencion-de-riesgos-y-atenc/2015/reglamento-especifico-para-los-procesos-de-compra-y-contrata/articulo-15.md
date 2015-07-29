@@ -1,0 +1,2 @@
+Artículo 15.—En el caso de que el contratista deba hacer correcciones o mejoras de la obra, o algún cambio cuando se trate de bienes y servicios, se le otorgará un plazo de quince días hábiles para que lo realice. Una vez finalizada esta labor y este plazo, se establecerá una nueva fecha para la recepción definitiva de la obra o de los bienes y servicios, la cual no será mayor a 10 días hábiles, para lo cual deberán repetirse los trámites establecidos en el párrafo anterior.
+(Así adicionado mediante sesión extraordinaria N° 09-07-15 del 29 de julio del 2015)

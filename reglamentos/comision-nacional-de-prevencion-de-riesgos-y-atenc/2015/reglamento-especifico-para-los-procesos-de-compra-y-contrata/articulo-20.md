@@ -1,0 +1,3 @@
+Artículo 20.—Procedimiento de entrega de expedientes a la Unidad de Gestión de Procesos de Reconstrucción: El procedimiento de entrega del expediente será el siguiente: una primera vez, deberá enviarse el expediente ORIGINAL junto con la orden de compra para la firma por parte de la Presidencia Institucional de la CNE, quien hará devolución del mismo a la Unidad Ejecutora a través de la UGPR.
+La CNE recibirá por segunda y última vez COPIA CERTIFICADA del expediente, una vez que el proceso de contratación haya finalizado y se tramite el proceso de pago ante la GPR.
+(Así adicionado mediante sesión extraordianria N° 09-07-15 del 29 de julio del 2015)

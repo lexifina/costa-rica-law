@@ -1,0 +1,2 @@
+Artículo 19.—Los montos que se cobren por concepto de ejecuciones de garantías de cumplimiento y de aplicación de multas deberán ser depositadas a las cuentas del Banco de Costa Rica en Colones N° 001-0280505-7, cuenta cliente 15201001028050574 o dólares N° 001-0276431-8, cuenta Cliente 15201001027643183; a nombre de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias.
+(Así adicionado mediante sesión extraordinaria N° 09-07-15 del 29 de julio del 2015)

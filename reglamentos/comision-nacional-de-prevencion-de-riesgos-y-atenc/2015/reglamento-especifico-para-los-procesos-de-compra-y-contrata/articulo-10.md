@@ -1,1 +1,2 @@
-Artículo 10.—El presente Reglamento quedará sin valor o efecto una vez que el Decreto N° 38642-MP-MAG sea derogado.
+Artículo 10.—Corresponde a la Unidad de Gestión de Procesos de Reconstrucción la fiscalización de la administración y el uso de los fondos aprobados para la ejecución de los Planes de Inversión, para lo cual podrá requerir en todo momento información de la Unidad Ejecutora y brindar informes y consideraciones vinculantes en relación al desarrollo de la obra siempre dentro de las especificaciones del cartel de la contratación.
+(Así adicionado mediante sesión extraordinaria N° 09-07-15 del 29 de julio del 2015)
