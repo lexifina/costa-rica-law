@@ -1,0 +1,2 @@
+Artículo 15.- Derogatoria
+La anterior modificación deroga en su totalidad, el Reglamento para la Fijación de las Bases y Condiciones para la Fijación de Precios y Tarifas, aprobado por la Junta Directiva de la Autoridad Reguladora de los Servicios Públicos, mediante acuerdo 003-23-2009, de la sesión extraordinaria 23-2009, celebrada el 26 de marzo de 2009, publicado en La Gaceta N° 82 del 29 de abril del 2009.
