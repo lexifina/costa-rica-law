@@ -1,1 +1,0 @@
-Artículo 7º—Los sujetos pasivos deberán conservar el respaldo documental y contable de las transacciones efectuadas, en los términos de los artículos 109 y el inciso a) del 104 del Código Tributario, de forma tal que puedan identificarse con claridad las remesas que contengan tarifas reducidas o se encuentren exoneradas.

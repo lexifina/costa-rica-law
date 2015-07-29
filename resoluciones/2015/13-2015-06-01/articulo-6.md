@@ -1,2 +1,0 @@
-Artículo 6º—La vigencia del reconocimiento como sujeto exonerado o beneficiado con la tarifa reducida se mantendrá siempre y cuando los sujetos contemplados en el inciso h) del artículo 59 de la Ley del Impuesto sobre la Renta, cumplan con lo establecido en dicha norma, su Reglamento así como la presente resolución.
-Los sujetos pasivos están obligados a informar a la Administración Tributaria sobre cualquier cambio que afecte el ejercicio de los beneficios tributarios aquí mencionados.
