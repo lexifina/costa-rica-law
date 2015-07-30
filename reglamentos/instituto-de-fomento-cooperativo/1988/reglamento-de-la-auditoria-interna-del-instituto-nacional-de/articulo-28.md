@@ -1,2 +1,0 @@
-Artículo 28.-Este Reglamento podrá ser modificado a solicitud del Auditor Interno o de la Junta Directiva, con el voto de por lo menos cinco miembros de la Junta Directiva. Se deroga el Reglamento anterior y aquellas disposiciones que se le opongan.
-El presente reglamento fue aprobado por la Junta Directiva del Instituto Nacional de Fomento Cooperativo, en la sesión N° 1769, artículo 2°, inciso 5.1, celebrada el 23 de junio de 1988.

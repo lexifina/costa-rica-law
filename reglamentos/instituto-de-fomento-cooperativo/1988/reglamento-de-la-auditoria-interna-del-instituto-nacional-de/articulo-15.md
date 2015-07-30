@@ -1,3 +1,0 @@
-CAPITULO IV
-De la ejecución de la Auditoría
-Artículo 15.-La Unidad de Auditoría Interna deberá ejecutar su trabajo de acuerdo con lo que establecen las normas de ejecución de la auditoría, contenidas en el "Manual sobre Normas Técnicas de Auditoría para la Contraloría General de la República y las entidades y órganos sujetos a su fiscalización", la del Colegio de Contadores Públicos y de Costa Rica en lo que sea aplicable, los lineamientos que al respecto contiene el "Manual para el ejercicio de la auditoría interna en las entidades y órganos sujetos a la fiscalización de la Contraloría General de la República", y en cualquiera otras disposiciones que dicte la Contraloría General.

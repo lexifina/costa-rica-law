@@ -1,1 +1,0 @@
-Artículo 7°-La Auditoría Interna contará con la organización y personal asistente necesario el que debe poseer suficiente conocimiento en auditoría, contabilidad, administración y de las disposiciones legales que rigen a la Administración Pública y al INFOCOOP, que lo califiquen para ejercer en forma apropiada las funciones encomendadas.

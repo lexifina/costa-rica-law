@@ -1,1 +1,0 @@
-Artículo 27.-Todos los funcionarios y empleados de la Institución han de comunicar de inmediato a la Auditoría Interna, así como a sus superiores, todo hecho o situación anormal que involucre un perjuicio para los bienes, intereses o el prestigio del instituto o su personal.

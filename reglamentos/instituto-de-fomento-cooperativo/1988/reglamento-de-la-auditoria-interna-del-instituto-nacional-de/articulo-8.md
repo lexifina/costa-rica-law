@@ -1,1 +1,0 @@
-Artículo 8°-El Auditor Interno y sus subalternos no podrán ser empleados ni ejercer funciones de ninguna otra unidad administrativa del INFOCOOP, y tampoco ser miembro de Juntas Directivas, comisiones de trabajo o similares.
