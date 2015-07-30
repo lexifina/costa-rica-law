@@ -18,3 +18,4 @@ Reglamento de préstamos para vivienda del Régimen de Capitalización Colectiva
 | 3 | 2014-06-19 | Reglamento 70 (2014-06-19) |
 | 4 | 2014-10-15 | Reglamento 114 (2014-10-15) |
 | 5 | 2015-05-26 | Reglamento 58 (2015-05-26) |
+| 6 | 2015-07-30 | Reglamento 83 (2015-07-30) |
