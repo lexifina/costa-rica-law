@@ -1,3 +1,0 @@
-Artículo 20—Relaciones y coordinaciones. El Auditor Interno gozará de total independencia cuando en el ejercicio de sus funciones deba relacionarse, coordinar o intercambiar información con la Contraloría General de la República, con la Procuraduría General de la República, con la Autoridad Presupuestaria u otros entes fiscalizadores establecidos por ley.
-En el cumplimiento de sus funciones y con el fin de atender necesidades de orden jurídico, la Auditoría Interna podrá requerir la colaboración oportuna del Proceso Asesoría Jurídica del INFOCOOP.
-El Auditor Interno dispondrá lo concerniente a relaciones y coordinaciones de los funcionarios de la Auditoría Interna, con los sujetos pasivos auditados o con entes externos.

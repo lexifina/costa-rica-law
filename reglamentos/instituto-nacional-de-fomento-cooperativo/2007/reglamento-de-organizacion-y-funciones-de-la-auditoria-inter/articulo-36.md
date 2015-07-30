@@ -1,3 +1,0 @@
-Artículo 36.—Hechos denunciados. La Auditoría Interna deberá valorar los hechos denunciados con el propósito de determinar la pertinencia, traslado o desestimación de la denuncia.
-Las Relaciones de Hechos se ajustarán en su contenido a las directrices que promulgue la Contraloría General de la República.
-El jerarca o el funcionario con la competencia para iniciar un procedimiento administrativo por recomendación de la Auditoría Interna, como producto de un informe de responsabilidades de relación de hechos, deberá tomar las medidas respectivas para que se atienda dentro de los plazos que correspondan, con el fin de que se interrumpa la prescripción de la responsabilidad.

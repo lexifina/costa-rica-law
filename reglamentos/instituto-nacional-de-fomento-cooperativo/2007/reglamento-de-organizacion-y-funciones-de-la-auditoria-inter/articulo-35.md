@@ -1,1 +1,0 @@
-Artículo 35.—Denuncia penal en contra del Jerarca. En caso de que la investigación genere la interposición de una denuncia penal en contra del Jerarca o alguno de sus miembros, la Auditoría Interna deberá interponer la denuncia ante el Ministerio Público. En los demás casos recomendará a la administración la apertura del trámite respectivo de la denuncia.

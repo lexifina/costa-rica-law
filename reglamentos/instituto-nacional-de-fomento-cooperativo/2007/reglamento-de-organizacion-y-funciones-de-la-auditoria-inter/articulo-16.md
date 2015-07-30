@@ -1,2 +1,0 @@
-Artículo 16.—Presupuesto anual de la Auditoría Interna. La Auditoría Interna elaborará un presupuesto anual en forma independiente del que elabore la Administración Activa; el mismo considerará las directrices emanadas de los entes reguladores.
-El Auditor Interno presentará el Plan Anual Operativo que justifique el presupuesto de la Auditoría Interna, el cual será estructurado con base en los lineamientos establecidos.

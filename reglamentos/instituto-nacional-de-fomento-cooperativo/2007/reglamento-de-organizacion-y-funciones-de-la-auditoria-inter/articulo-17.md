@@ -1,2 +1,0 @@
-Artículo 17.—Asignación de recursos. El Jerarca asignará el presupuesto correspondiente, una vez analizadas las necesidades de la Auditoría Interna, para lo cual indicará los recursos presupuestarios en las diferentes partidas dentro de la cuenta presupuestaria asignada a la Auditoría Interna, con el propósito de que los movimientos de ejecución y las modificaciones de dichos recursos puedan ser controlados.
-Toda modificación al presupuesto de la Auditoría Interna debe contar con la aprobación previa del Auditor Interno.

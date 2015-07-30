@@ -1,1 +1,0 @@
-Artículo 2º—Objetivo del Reglamento. La Auditoría Interna dispondrá de un Reglamento, acorde con la normativa que rige su actividad, cuyo objetivo es regular lo concerniente a su organización y funcionamiento. Será aprobado por el Junta Directiva; por la Contraloría General de la República; publicado en el Diario Oficial La Gaceta y divulgado a nivel institucional.

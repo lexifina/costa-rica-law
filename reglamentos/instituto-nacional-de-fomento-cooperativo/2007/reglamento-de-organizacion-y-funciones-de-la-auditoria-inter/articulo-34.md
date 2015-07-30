@@ -1,1 +1,0 @@
-Artículo 34.—Denuncia penal. En caso de que los hechos denunciados e investigados ameriten la interposición de una denuncia penal, se solicitará el apoyo jurídico correspondiente, para lo cual se facilitarán todos los extremos del expediente respectivo en lo que sea aplicable.

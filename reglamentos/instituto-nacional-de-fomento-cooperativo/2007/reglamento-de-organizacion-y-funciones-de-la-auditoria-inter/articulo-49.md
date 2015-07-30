@@ -1,1 +1,0 @@
-Artículo 49.—Informes sobre las evaluaciones. Los resultados de las evaluaciones internas o externas deberán documentarse. El informe respectivo será dirigido a la Junta Directiva por parte de las instancias correspondientes.

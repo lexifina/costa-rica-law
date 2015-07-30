@@ -1,2 +1,0 @@
-Artículo 9º—Conclusión de la relación de servicio. El auditor es inamovible; no obstante, podrá ser suspendido o destituido de su cargo por justa causa y por decisión emanada de la Junta Directiva, previa formación del expediente y aplicación del Debido Proceso.
-Para la suspensión o destitución del Auditor Interno se deberá contar con dictamen previo favorable de la Contraloría General de la República. (Artículo 15 de la Ley Orgánica de la Contraloría General de la República).

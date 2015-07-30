@@ -1,1 +1,0 @@
-Artículo 47.—Responsabilidad de las evaluaciones internas. La responsabilidad de las evaluaciones internas recae en el Auditor Interno quien debe revisarlas y velar porque se tomen las medidas correctivas.

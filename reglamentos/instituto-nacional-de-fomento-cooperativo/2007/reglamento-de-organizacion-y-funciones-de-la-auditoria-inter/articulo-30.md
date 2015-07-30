@@ -1,1 +1,0 @@
-Artículo 30—Papeles de trabajo. Las auditorías o estudios especiales que realice la Auditoría Interna, se soportarán con cédulas y documentos de trabajo en donde se registrarán la información, los comentarios, las observaciones, las conclusiones y las recomendaciones pertinentes.
