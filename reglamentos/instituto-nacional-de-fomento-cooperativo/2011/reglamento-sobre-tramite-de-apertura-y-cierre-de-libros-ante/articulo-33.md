@@ -1,1 +1,0 @@
-Artículo 33.—Verificaciones in situ. De conformidad con lo señalado en el artículo 22 de la Ley General de Control Interno 8292, la Auditoría Interna podrá requerir para su revisión, los Libros de Actas que se encuentren en custodia de los órganos responsables.

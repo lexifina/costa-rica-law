@@ -1,2 +1,0 @@
-Artículo 24.—Disposición del libro en uso y de los que hayan sido cerrados. El órgano solicitante deberá disponer las condiciones sobre custodia, seguridad y ubicación física del libro en uso y de los que hayan sido cerrados por la Auditoría Interna, con el fin que su localización sea ágil, que se cumpla con el ordenamiento jurídico que rige en materia archivística y que se evite la presunción de que constituyen documentos carentes de valor informativo.
-Lo dispuesto en este artículo podrá ser verificado en cualquier momento por la Auditoría Interna.

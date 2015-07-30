@@ -1,1 +1,0 @@
-Artículo 17.—Sello de cierre. La Auditoría Interna usará un sello de cierre donde conste por lo menos la siguiente información: número del tomo que finaliza, tipo de libro que se cierra, nombre del órgano solicitante, fecha de cierre y firma del funcionario de la Auditoría Interna responsable del trámite.

@@ -1,3 +1,0 @@
-Artículo 21.—Ubicación de la razón de cierre. El sello con la razón de cierre del libro no debe estamparse necesariamente en el último folio habilitado. El órgano solicitante puede decidir concluir las anotaciones varios folios antes de finalizar el Tomo en uso, con el fin de que no sufran un corte abrupto sino que comiencen en un nuevo libro que se autorice.
-En esos casos, la Auditoría Interna deberá estampar el sello de cierre inmediatamente después de la última anotación en el Libro.
-Si la dependencia solicitante llegara a utilizar la totalidad de los folios habilitados, deberá prever espacio suficiente en el último folio, de un cuarto de página como mínimo, para que la Auditoría interna estampe el sello inmediatamente después de la última anotación.

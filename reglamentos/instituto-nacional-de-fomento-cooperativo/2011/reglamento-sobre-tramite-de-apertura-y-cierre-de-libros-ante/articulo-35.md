@@ -1,1 +1,0 @@
-Artículo 35.—Modificaciones. El presente Reglamento podrá ser modificado por la Junta Directiva del INFOCOOP en lo que considere oportuno. Asimismo, por el Auditor Interno, quien elevará la solicitud al órgano director para su debido trámite y aprobación.

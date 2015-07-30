@@ -1,1 +1,0 @@
-Artículo 14.—Servicio de advertencia. Dentro de los servicios de advertencia, la Auditoría Interna podrá acompañar un informe con recomendaciones tendientes a fortalecer la operación del Sistema de Control Interno respecto de las anotaciones en el nuevo Libro, su manipulación y custodia.

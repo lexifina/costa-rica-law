@@ -1,1 +1,0 @@
-Artículo 8º—Revisión preliminar a la gestión de apertura. La Auditoría Interna evaluará preliminarmente el cumplimiento de lo dispuesto en los artículos 5, 6 y 7 anteriores, con el propósito de atender o rechazar la solicitud de apertura, para lo cual dispone de un plazo de cinco días hábiles.

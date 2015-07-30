@@ -1,2 +1,0 @@
-Artículo 13.—Retiro de libros. Los libros serán retirados por el funcionario responsable del Órgano o Gerencia solicitante, o en su defecto, podrán entregarse a un tercero debidamente autorizado por las respectivas instancias.
-Serán destruidos aquellos libros que no se retiren en un plazo de tres meses contados a partir de la fecha en que se comunicó su apertura. En forma previa se levantará un acta sobre tales hechos.

@@ -1,2 +1,0 @@
-Artículo 22.—Razón de nulidad. El último folio utilizado en cada libro llevará el sello de cierre de la Auditoría Interna, por tanto, toda anotación posterior a esa razón de cierre será completamente nula.
-De igual manera, será totalmente prohibido efectuar cambios en la encuadernación o en la foliación del libro, en forma posterior al cierre efectuado por la Auditoría Interna.
