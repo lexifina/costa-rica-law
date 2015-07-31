@@ -1,1 +1,1 @@
-Artículo 15.—Será responsabilidad de la Jefatura del (de la) trabajador (a) previo a autorizar la gira o gestión, constatar la disponibilidad presupuestaria de los recursos.
+Artículo 15.—Si la liquidación indicada en el artículo anterior no se presenta al Departamento Administrativo en el plazo establecido, los subsiguientes desplazamientos no se podrán realizar bajo este sistema, y será suficiente causa para que no se reconozca su pago.

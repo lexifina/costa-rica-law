@@ -14,3 +14,4 @@ Reglamento de kilometraje para los vehículos propiedad de los funcionarios y la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-17 | la propia norma |
+| 2 | 2015-07-31 | Reglamento 84 (2015-07-31) |

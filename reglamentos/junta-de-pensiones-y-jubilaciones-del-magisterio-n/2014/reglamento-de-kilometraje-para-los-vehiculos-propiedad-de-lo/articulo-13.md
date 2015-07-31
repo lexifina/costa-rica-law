@@ -1,2 +1,2 @@
-Artículo 13.—La liquidación mensual reflejada en el formulario y/o boleta denominado “Liquidación de Gastos de Kilometraje” debe ser presentada al Departamento Administrativo a más tardar dentro de los 5 días hábiles del mes calendario inmediato siguiente. La liquidación de gastos por kilometraje deberá ir acompañada con la totalidad de los formularios y/o boletas de “Autorización Viaje con Vehículo Particular” del mes respectivo. En lo posible se procurará que al iniciar una nueva programación de gira, se haya efectuado la liquidación de la programación anterior.
-Esta liquidación mensual debe ser firmada por el (la) encargado (a) del Departamento Administrativo.
+Artículo 13.—Para hacer efectivo el cobro por Kilometraje recorrido, cada interesado.
+(a) deberá confeccionar una liquidación en la fórmula y/o boleta denominada “Liquidación de Gastos de kilometraje”, para la cual cuenta con un mes calendario máximo finalizada la gira.

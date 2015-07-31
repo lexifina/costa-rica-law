@@ -1,1 +1,1 @@
-Artículo 4º—Cuando en el desempeño de labores propias de la Junta, no se cuente con vehículos oficiales disponibles, se podrá contratar el arrendamiento del vehículo propiedad del (de la) funcionario (a), de conformidad con la normativa presente en este reglamento.
+Artículo 4°—Cuando en el desempeño de labores propias de la Junta, no se cuente con vehículos oficiales disponibles, se podrá contratar el arrendamiento del vehículo propiedad del (de la) funcionario (a), de conformidad con la normativa presente en este reglamento.

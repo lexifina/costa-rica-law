@@ -1,1 +1,2 @@
-Artículo 12.—Para hacer efectivo el cobro por Kilometraje recorrido, cada interesado (a) deberá confeccionar una liquidación mensual, en la fórmula y/o boleta denominada “Liquidación de Gastos de kilometraje”.
+Artículo 12.—La gira efectuada sin el cumplimiento de los requisitos establecidos en el artículo anterior, será por cuenta y riesgo del (de la) propietario (a) el cual, en ningún caso podrá reclamar el reconocimiento de pago por kilometraje recorrido.
+En caso de viaje de urgencia o imprevisto, previa comunicación al (a la) jefe (a) superior, podrá presentarse la fórmula y/o boleta de autorización con 3 días hábiles máximo posterior a la realización del viaje, debidamente justificado.

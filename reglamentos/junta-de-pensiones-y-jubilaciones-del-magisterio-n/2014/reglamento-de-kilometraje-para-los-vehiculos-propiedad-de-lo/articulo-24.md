@@ -1,3 +1,2 @@
-Artículo 24.—Se establecen las siguientes prohibiciones para los (as) usuarios (as):
-a) Utilizar el vehículo arrendado para otras actividades que no sean acordes con el objetivo de la correspondiente gira.
-b) Podrán apartarse de la ruta establecida, salvo razones que lo justifiquen, pues en caso contrario no se reconocerá el pago de kilometraje.
+Artículo 24.—La Junta no se hará responsable en caso de robo del vehículo, por lo cual la póliza referida debe de tener cobertura contra robo, o en su defecto el (la) trabajador(a) deberá rendir la declaración señalada en el artículo 9 de este reglamento.
+La Junta tampoco se hará responsable de ningún daño o perjuicio que sobrevenga por robo, hurto, accidentes, o cualquier otra situación que se genere por la utilización del vehículo dentro del sistema de arrendamiento descrito.

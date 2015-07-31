@@ -1,4 +1,4 @@
-Artículo 3º—Para los efectos de la aplicación del presente Reglamento, se definen los siguientes términos:
+Artículo 3°—Para los efectos de la aplicación del presente Reglamento, se definen los siguientes términos:
 Reglamento: Conjunto de disposiciones establecidas por la Junta de Pensiones y Jubilaciones del Magisterio Nacional debidamente aprobadas por su Junta Directiva, con el propósito de normar las condiciones bajo las cuales se regirá el pago de kilometraje de los vehículos propiedad de los (de las) funcionarios (as) de la institución.
 Junta: Junta de Pensiones y Jubilaciones del Magisterio Nacional.
 Junta Directiva: Órgano colegiado y máximo jerarca de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, encargado de la dirección de la institución, mediante el dictado de políticas generales con las atribuciones que le otorga la ley.
@@ -14,3 +14,4 @@ Contrato de Arrendamiento: Documento suscrito por el (la) trabajador (a) que da 
 Formulario de Solicitud de ingreso al pago de Kilometraje a funcionarios (as) de la Junta: Documento de presentación obligatorio por medio del cual el (la) propietario (a) solicita su ingreso al Sistema de Arrendamiento.
 Formulario y/o boleta de autorización de viaje con vehículo particular: Es aquel documento o boleta por medio del cual se autoriza una gira con vehículo particular el cual debe estar inscrito en el sistema.
 Formulario y /o boleta de liquidación de gastos de kilometraje: Es el formulario o la boleta de autorización para el cobro de la totalidad de las giras realizadas en un mismo mes calendario y consta de la suma de todos los formularios y/o boletas de Autorización de Viaje de Vehículo Particular.
+Empresa aseguradora: Cualquier empresa autorizada por la Superintendencia General de Seguros (SUGESE) para desarrollar la actividad de seguros en el territorio nacional.
