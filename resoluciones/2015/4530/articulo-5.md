@@ -1,0 +1,1 @@
+5. Ordenar a todos los operadores/proveedores de servicios de televisión IP (IPTV) que deben cumplir todas las obligaciones que corresponden por el hecho de ser un servicio de telecomunicaciones, dentro del cual se encuentra la homologación de contratos de adhesión.

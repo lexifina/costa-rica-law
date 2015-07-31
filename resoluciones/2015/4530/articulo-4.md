@@ -1,0 +1,1 @@
+4. Instruir a las personas físicas y/o jurídicas que brinden el servicio de televisión de suscripción por IP o IPTV y que no se encuentren inscritas en el Registro Nacional de Telecomunicaciones como operadores/proveedores de servicios de telecomunicaciones, deberán solicitar la debida autorización ante esta Superintendencia o notificar la ampliación de servicios correspondiente.

@@ -1,0 +1,1 @@
+3. Disponer que en lo sucesivo deben exigirse las mismas obligaciones para todos los operadores y proveedores que brinden servicios de telecomunicaciones de la misma naturaleza, sea en este caso los servicios de televisión por suscripción (independientemente de la tecnología de acceso).
