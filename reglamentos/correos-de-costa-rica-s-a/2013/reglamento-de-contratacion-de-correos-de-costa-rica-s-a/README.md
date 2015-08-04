@@ -14,3 +14,4 @@ Reglamento de Contratación de Correos de Costa Rica S.A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-03-18 | la propia norma |
+| 2 | 2015-08-04 | Reglamento 1341 (2015-08-04) |
