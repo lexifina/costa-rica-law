@@ -1,0 +1,1 @@
+Artículo 28.—En el Centro Diurno para la persona adulta mayor, para el ingreso debe cumplir con los requisitos de esta en condiciones de pobreza o pobreza extrema, presentar factores de riesgo o vulnerabilidad social o psicológica, estar en condiciones físico mentales adecuadas y acorde a su edad.

@@ -1,0 +1,1 @@
+Artículo 15.—En el Centro Diurno para la atención de la persona adulta mayor, no se permite suministrar a los asistentes ya sea por iniciativa propia o a pedido de los adultos mayores, medicamentos que no estén amparados a recta médica.

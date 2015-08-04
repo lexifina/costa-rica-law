@@ -1,0 +1,1 @@
+Artículo 17.—En el Centro Diurno para la atención de la persona adulta mayor, no se permite el ingreso a personal permanente y/o voluntariado a aquellas áreas de acceso restringido, sin la autorización respectiva.

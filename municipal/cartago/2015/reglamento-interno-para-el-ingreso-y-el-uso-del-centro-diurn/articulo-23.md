@@ -1,0 +1,1 @@
+Artículo 23.—En el Centro Diurno para la atención de las personas adultas mayores, los espacios destinados para la ejecución de las diversas labores no se puedan utilizar para otros fines distintos a los autorizados previamente.

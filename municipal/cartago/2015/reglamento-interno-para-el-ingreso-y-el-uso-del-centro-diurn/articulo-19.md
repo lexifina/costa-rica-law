@@ -1,0 +1,1 @@
+Artículo 19.—En el Centro Diurno para la atención a la persona adulta mayor, debe de tener un área de cocina y contar con el espacio para la recepción, almacenamiento, preparación de los alimentos, así como el área de comer y limpieza.

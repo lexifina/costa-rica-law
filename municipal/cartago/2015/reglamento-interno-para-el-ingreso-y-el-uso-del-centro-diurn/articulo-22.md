@@ -1,0 +1,1 @@
+Artículo 22.—En el Centro Diurno para la atención a la persona adulta mayor, no se permite dañar, destruir, remover o altera la infraestructura del Centro por las personas adultas mayores y/o personal del Centro.

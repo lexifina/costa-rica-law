@@ -1,0 +1,1 @@
+Artículo 14.—En el Centro Diurno de atención a la persona adulta mayor, no se permite al personal permanente, voluntariado, ni a las personas adultas mayores que asisten, hacer ningún tipo de negocios personales ni otros asuntos de índole comercial.

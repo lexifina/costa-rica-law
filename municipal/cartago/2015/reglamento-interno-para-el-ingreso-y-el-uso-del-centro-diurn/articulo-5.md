@@ -1,0 +1,1 @@
+Artículo 5°—El Centro de Atención Diurno para la atención de la persona adulta mayor, deberá contar con una persona a cargo de la Presidencia de la Junta Directiva, que sea la responsable principal del funcionamiento y de la organización del establecimiento, quién, eventualmente, debe tener conocimientos básicos en administración y experiencia en el campo.

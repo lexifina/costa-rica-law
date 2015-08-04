@@ -1,0 +1,1 @@
+Artículo 10.—En el Centro Diurno de atención a la persona mayor, se requiere que el personal permanente, voluntariado y de apoyo utilice la vestimenta apropiada conforme a las normas del bien vestir, quedando prohibido todo tipo de vestimenta que se considere que contraviene esta disposición.

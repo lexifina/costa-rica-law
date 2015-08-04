@@ -1,0 +1,1 @@
+Artículo 33.—Que la persona adulta mayor pueda desplazarse al Centro Diurno de Atención a la persona adulta mayor por sus propios medios o que en su efecto pueda ser trasladado por algún familiar o acompañante y participar en las actividades que se desarrollen el Centro Diurno de Atención a la persona adulta mayor.

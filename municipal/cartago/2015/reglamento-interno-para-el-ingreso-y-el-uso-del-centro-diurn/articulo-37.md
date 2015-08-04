@@ -1,0 +1,1 @@
+Artículo 37.—En el Centro Diurno para la atención a las personas adultas mayores, se deben desarrollar indicadores y sistemas de información integrados que faciliten el seguimiento y monitoreo adecuado del servicio, que facilite el medir los efectos y los impactos.

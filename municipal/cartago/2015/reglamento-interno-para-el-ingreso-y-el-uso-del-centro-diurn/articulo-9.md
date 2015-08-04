@@ -1,0 +1,1 @@
+Artículo 9°—Los menús de los Centros Diurnos para la atención a la persona adulta mayor, debe de estar confeccionado por un profesional en nutrición incorporado al Colegio respectivo y contar con un o una cocinera auxiliar de cocina con el curso de manipulación de alimentos al día.

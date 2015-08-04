@@ -1,0 +1,1 @@
+Artículo 8°—El personal voluntariado de apoyo en el Centro Diurno, para la atención a la persona adulta mayor, debe tener acceso a capacitación e información tendiente al mejoramiento de las condiciones y medio ambiente del trabajo, gestionado mediante las alianzas estratégicas del Cantón.

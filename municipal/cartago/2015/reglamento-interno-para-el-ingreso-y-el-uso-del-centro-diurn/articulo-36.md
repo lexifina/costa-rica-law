@@ -1,0 +1,1 @@
+Artículo 36.—En el Centro Diurno para la atención a las personas adultas mayores, se debe implementar mecanismo de monitoreo, inspección y evaluación para asegurar la calidad de la atención de las personas adultas mayores y el apropiado uso de la calidad de la atención de las personas adultas mayores y del uso de los recursos.

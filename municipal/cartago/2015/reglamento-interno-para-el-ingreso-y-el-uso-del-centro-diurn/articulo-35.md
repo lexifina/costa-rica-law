@@ -1,0 +1,1 @@
+Artículo 35.—En el Centro Diurno para la atención de las personas adultas mayores, se debe desarrollar un sistema de garantía de acceso y calidad de la atención de carácter proactivo y no reactivo a denuncias.

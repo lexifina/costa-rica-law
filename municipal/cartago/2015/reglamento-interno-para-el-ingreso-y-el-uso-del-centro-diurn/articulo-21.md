@@ -1,0 +1,1 @@
+Artículo 21.—En el Centro Diurno, para la atención a la persona adulta mayor, no se permite portar armas de cualquier clase durante las horas de laborables, excepto en los casos especiales debidamente autorizados por disposiciones legales o cuando se trate de instrumentos punzocortantes que formen parte de las herramientas y útiles propios del trabajo.

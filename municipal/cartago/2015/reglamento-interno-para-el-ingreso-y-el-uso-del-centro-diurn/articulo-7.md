@@ -1,0 +1,1 @@
+Artículo 7°—El Centro de Atención Diurno para la persona adulta mayor, debe velar porque exista personal voluntario encargado de cocina y/o auxiliar de cocina, misceláneo para la actividad de limpieza.

@@ -1,0 +1,1 @@
+Artículo 32.—El Centro Diurno de atención a la persona adulta mayor debe contar con basureros que tenga tapa y bolas plásticas, de color y rotulación para los residuos sólidos de origen vegetal como cáscaras, semillas, componentes de plantas y sólidos de origen animal como huesos y partes de animales.
