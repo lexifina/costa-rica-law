@@ -1,0 +1,1 @@
+9. Una vez recibidas las observaciones del interesado en dicha audiencia, la SUTEL deberá remitir al MICITT, en el plazo máximo de diez (10) días hábiles la recomendación técnica para el otorgamiento de los enlaces del servicio fijo y sistemas satelitales.
