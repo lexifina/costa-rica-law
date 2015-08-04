@@ -1,0 +1,1 @@
+Artículo 5°—Competencia. La Dirección de Cultura del Ministerio de Cultura y Juventud, será la instancia competente para la aplicación del presente reglamento, y contará con el apoyo de la estructura administrativa de esta Cartera Ministerial y la posibilidad de generar procesos de colaboración con sus órganos desconcentrados para su implementación.

@@ -1,0 +1,1 @@
+Artículo 2°—Naturaleza. Puntos de Cultura es un programa de estímulo y sinergias orientado al fortalecimiento de organizaciones, redes, iniciativas colectivas y espacios socioculturales vinculados con la promoción de la diversidad cultural, la economía social solidaria y la salvaguarda del patrimonio cultural y natural, que apoyará estas iniciativas mediante un fondo concursable.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Requisitos de Postulación para el Programa Puntos de Cultura
+Artículo 13.—Postulación. Cualquier organización de las descritas en el artículo 3 del presente reglamento, que tenga interés en participar con un proyecto en el Programa Puntos de Cultura, deberá postularse virtualmente en la Sección Fomento Cultural de la página web www.dircultura.go.cr, que para tal fin, administra la Dirección de Cultura del Ministerio de Cultura y Juventud, y que contiene toda la información atinente al proceso de postulación, selección y formalización de los beneficios del programa; atendiendo lo señalado por la convocatoria que se dará a conocer por ese mismo medio.

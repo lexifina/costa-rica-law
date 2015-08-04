@@ -1,0 +1,1 @@
+Artículo 20.—Plazo. La ejecución de los proyectos beneficiarios del programa, deberá realizarse en el término planteado en su formulación, que no podrá ser inferior a seis meses, ni superior a dos años.
