@@ -1,1 +1,0 @@
-Artículo 5: Los representantes ante el Comité, deberán organizare en una Junta Directiva, la cual deberá estar conformada por un Presidente, un Vicepresidente, un Secretario de Actas, un Tesorero, un Fiscal y cuatro Vocales; procurando una integración equitativa entre las partes allí representadas.

@@ -1,1 +1,0 @@
-Artículo 15: Corresponde a la Junta Directiva del Comité, coordinar con las dependencias municipales componentes, la ejecución de las obras complementarias antes señaladas, así como las labores de mantenimiento y aseo de esas instalaciones, supervisar éstas y comunicar a la dependencia correspondiente, cualquier inconformidad al respecto.

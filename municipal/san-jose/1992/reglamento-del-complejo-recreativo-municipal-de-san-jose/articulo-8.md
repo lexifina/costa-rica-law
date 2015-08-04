@@ -1,1 +1,0 @@
-Artículo 8: Los interesados en usar las instalaciones del Complejo, deberán presentar solicitud escrita a la Junta Directiva, con un mínimo de 30 días anteriores a la actividad, salvo imprevistos que afectan a las instancias señaladas en el punto a. del Artículo 7 de este Reglamento.
