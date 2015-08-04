@@ -1,3 +1,7 @@
-Artículo 11.—Ingreso de bienes personales a la Institución propiedad de los funcionarios:
-Todo funcionario debe reportar el mobiliario y equipo de su propiedad, que ingrese a la Institución para uso personal, a los Oficiales de Seguridad; quienes deberán realizar la anotación respectiva en la bitácora de control.
-La Junta de Pensiones y Jubilaciones del Magisterio Nacional, no asumirá responsabilidad alguna, por aquellos bienes personales que se pierdan o se deterioren dentro de sus instalaciones o en actividades Institucionales.
+CAPÍTULO III
+Préstamo y venta de activos fijos
+Artículo 11.—Préstamo de Activos Fijos: El préstamo de activos fijos y equipos menores quedará sujeto al siguiente esquema de autorización:
+a) Corresponde a la Dirección Ejecutiva, brindar la autorización para el préstamo de activos fijos a otras instancias del Magisterio Nacional, o a entidades afines al quehacer magisterial.
+b) En el caso de los activos en custodia de cada Departamento, corresponde a cada Jefatura dar su autorización para el préstamo de activos a funcionarios, siempre y cuando sea para fines Institucionales y deberá comunicarlo al Departamento Administrativo.
+c) Toda entrada y salida de activos de las oficinas de la Institución, deberá comunicarse al Departamento Administrativo.
+Los daños, pérdidas y robos que presenten los activos fijos prestados, serán cubiertos por la Institución solicitante o el funcionario responsable, que retiró los mismos. En tal caso deberá cubrir cualquier reparación para que estos vuelvan a estar en óptimas condiciones. No obstante, en este supuesto también será aplicable lo referido en el artículo anterior, respecto del informe y recomendación.

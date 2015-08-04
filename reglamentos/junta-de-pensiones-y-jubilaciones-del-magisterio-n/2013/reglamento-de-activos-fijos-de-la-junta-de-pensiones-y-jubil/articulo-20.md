@@ -1,2 +1,1 @@
-Artículo 20.—Costas legales:
-Las costas legales que deban cubrirse en la venta de bienes, serán canceladas, sin excepción, por parte del comprador. Por otra parte, la Institución se compromete a entregar los activos, con el pago al día de todos los impuestos, contribuciones y servicios públicos aplicables o libre de gravámenes y anotaciones, según corresponda.
+Artículo 20.—Formalización de la venta: En los casos de venta de activos, que requieren de inscripción en el Registro Público, la venta se formalizará a través de los mecanismos legales aplicables. En los demás casos, se utilizará un formulario de venta de bienes, donde se consignará el recibido conforme de la persona u organización que adquiere el bien.

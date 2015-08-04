@@ -14,3 +14,4 @@ Reglamento de activos fijos de la Junta de Pensiones y Jubilaciones del Magister
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-10 | la propia norma |
+| 2 | 2015-08-04 | Reglamento 85 (2015-08-04) |
