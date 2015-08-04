@@ -14,3 +14,4 @@ Reglamento del Organo de Reglamentación Técnica.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-11-04 | la propia norma |
+| 2 | 2015-08-04 | Decreto Ejecutivo 39320 (2015-08-04) |

@@ -1,4 +1,3 @@
-CAPÍTULO II
-Comités Técnicos de Reglamentación Técnica
-Artículo 20.—La Constitución de Comités Técnicos. Por la complejidad de un tema, la Secretaría Técnica del ORT, tendrá la potestad de nombrar un comité técnico “ad hoc”, integrado por los sectores establecidos en el artículo 21 de este reglamento, para que estudie y analice el caso. Este Comité, a su vez deberá rendir un informe al ORT para que éste emita su decisión final, de conformidad con el artículo 13 de este reglamento.
-Cuando el Comité Técnico reciba las observaciones como resultado de la consulta pública deberá ajustarse a lo establecido en el artículo 16 de este reglamento.
+Artículo 20º Plazo del Comité Técnico y Ministerio competente para resolver observaciones: En los procesos de consulta pública nacional e internacional a OMC, señalados en los artículos 16 y 17 de este reglamento, el Ministerio competente podrá convocar al Comité Técnico, para el análisis y respuesta de las observaciones recibidas.
+Si como consecuencia de la discusión no se logra el consenso en los plazos señalados en los artículos anteriores, el Ministerio competente en su atribución de potestad de imperio, tomará la decisión en un plazo de cinco días hábiles o en su defecto descartará la propuesta. En el caso de que el Ministerio competente resuelva, deberá actuar de conformidad con el presente reglamento. Si decide descartar la propuesta deberá notificar a la Secretaría Técnica del ORT, los motivos de tal decisión.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39320 del 4 de agosto del 2015)
