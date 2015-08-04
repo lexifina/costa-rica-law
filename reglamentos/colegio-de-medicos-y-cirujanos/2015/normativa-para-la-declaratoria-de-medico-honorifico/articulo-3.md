@@ -1,0 +1,1 @@
+Artículo 3º—Para conceder tal título, el Colegio de Médicos y Cirujanos tomará en cuenta el comportamiento y disposición que haya tenido el estudiante de Medicina durante su carrera y los antecedentes en su actividad extra-universitaria, para lo cual se realizará una investigación con requerimiento de todos los elementos probatorios.
