@@ -20,3 +20,4 @@ Reglamento Autónomo de Servicios del Ministerio de Educación Pública
 | 5 | 2001-11-16 | Decreto Ejecutivo 29999 (2001-11-16) |
 | 6 | 2010-05-13 | Decreto Ejecutivo 36028 (2010-05-13) |
 | 7 | 2013-05-27 | Decreto Ejecutivo 37728 (2013-05-27) |
+| 8 | 2015-08-05 | Decreto Ejecutivo 39280 (2015-08-05) |

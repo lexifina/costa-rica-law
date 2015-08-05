@@ -22,4 +22,6 @@ n) Extralimitarse en sus funciones o deberes que les están encomendados y tomar
 o) Alterar las tarjetas o libros de asistencia, o marcar la tarjeta de otro empleado;
 p) Dejar sin cancelar deudas adquiridas por alimentación o por pasajes en aquellos lugares visitados en el desempeño de funciones derivadas de su cargo; y
 q) Utilizar durante la jornada de trabajo o fuera de ella, el equipo electrónico del Estado para observar o reproducir pornografía o exhibir material pornográfico dentro de las instalaciones del Ministerio.
+r) Realizar cualquier forma de discriminación, en razón de género, etnia, credo, orientación sexual, nacionalidad, preferencia política o condición social.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39280 del 5 de agosto del 2015)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 29999 del 16 de noviembre de 2001)
