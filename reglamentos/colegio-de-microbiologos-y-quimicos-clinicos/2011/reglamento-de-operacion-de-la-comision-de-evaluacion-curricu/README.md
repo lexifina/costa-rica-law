@@ -14,3 +14,4 @@ Reglamento de Operación de la Comisión de Evaluación Curricular
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-03 | la propia norma |
+| 2 | 2015-08-05 | Reglamento 0 (2015-08-05) |

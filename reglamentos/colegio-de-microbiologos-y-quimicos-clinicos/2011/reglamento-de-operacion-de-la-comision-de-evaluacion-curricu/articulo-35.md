@@ -1,0 +1,2 @@
+Artículo 35.—Se autoriza a la Junta Directiva del Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, para que mediante resolución fundada y a solicitud de la Comisión de Evaluación Curricular y en votación no menor a las tres cuartas partes de sus miembros; interprete o aclare aquellos términos, conceptos y/o artículos de este Reglamento que generen duda o confusión en su aplicación y que pudieran generar desacuerdo entre la CEC y algún Colegiado.
+(Así adicionado mediante publicación en La Gaceta N° 151 del 5 de agosto del 2015)
