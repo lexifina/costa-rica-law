@@ -1,0 +1,1 @@
+4. Establecer de carácter obligatorio para los Profesionales Afines a las Ciencias Médicas (PAF), que soliciten la autorización del Colegio de Médicos y Cirujanos de Costa Rica, el cumplimiento de todos los requisitos establecidos en la “Normativa del Capítulo de Profesionales Afines a las Ciencias Médicas” supramencionada y demás legislación relacionada vigente.
