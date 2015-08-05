@@ -1,0 +1,1 @@
+Artículo 15.—En caso que la muestra de orina fuera vertida en recipiente distinto a los frascos identificados con la letra “A” y “B”, el profesional en salud encargado de la prueba verterá la orina en los frascos dichos. Dicho procedimiento tiene que ser descrito en el formulario número tres.

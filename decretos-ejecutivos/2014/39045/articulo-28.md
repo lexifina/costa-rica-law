@@ -1,0 +1,4 @@
+Artículo 28.—Cuando el resultado del análisis de la muestra “B” sea positivo, el profesional en salud del Proceso Gestión del Ambiente Laboral procederá de la siguiente manera:
+a) Tratándose de un funcionario en propiedad o interino, comunicará inmediatamente la situación al Jerarca del Ministerio de Justicia y Paz, para su valoración y remisión a la Dirección Jurídica del Ministerio de Justicia y Paz, para la apertura de la respectiva causa administrativa disciplinaria, cuando corresponda.
+b) Tratándose de un funcionario nombrado de manera provisional, comunicará el resultado al Proceso de Organización y Empleo para el respectivo rechazo del mismo, por carecer de los requisitos necesarios para aspirar al puesto.
+En ambos casos deberá adjuntar el expediente médico completo con el detalle de las pruebas médicas efectuadas al funcionario.

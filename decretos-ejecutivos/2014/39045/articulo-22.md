@@ -1,0 +1,1 @@
+Artículo 22.—En caso de determinarse como resultado de la prueba la presencia de sustancias prohibidas, el Microbiólogo Químico Clínico (toxicólogo) deberá indicar en el informe si la sustancia detectada es o no susceptible de prescripción médica.

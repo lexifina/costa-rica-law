@@ -1,0 +1,1 @@
+Artículo 21.—Cuando el análisis de la muestra “A” sea negativo se procederá al archivo de las diligencias. Transcurrido un plazo de 7 días, el laboratorio respectivo, podrá eliminar la muestra “B”, mediante los procedimientos que el mismo determine, a fin de que no sea utilizada para otros análisis.

@@ -1,0 +1,1 @@
+Artículo 7º—Para la realización de la prueba, se seleccionará de forma aleatoria, a los candidatos que serán sometidos al procedimiento descrito en el presente Reglamento, excepto a los nombrados en forma provisional a quienes de forma obligatoria se les aplicará. Dicha elección será efectuada por el profesional en salud encargado de realizar el examen.

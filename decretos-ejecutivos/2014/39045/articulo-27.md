@@ -1,0 +1,1 @@
+Artículo 27.—Si el resultado del análisis de la muestra “A” fuere negativo, o si se aporta la respectiva prescripción médica de la sustancia detectada, la muestra “B” será eliminada por el mismo laboratorio en un plazo de diez días hábiles, luego de expedido el resultado.

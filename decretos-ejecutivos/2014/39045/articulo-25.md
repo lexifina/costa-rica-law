@@ -1,0 +1,1 @@
+Artículo 25.—Una vez realizados los análisis de la muestra “B”, el laboratorio designado remitirá en veinticuatro horas, en sobre cerrado al profesional en salud responsable, los informes debidamente firmados, revisados y refrendados por parte del(de la) profesional que realizó la pericia.

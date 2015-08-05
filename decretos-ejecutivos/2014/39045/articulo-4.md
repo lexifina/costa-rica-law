@@ -1,0 +1,1 @@
+Artículo 4º—Serán consideradas como sustancias prohibidas para los efectos del presente reglamento la cocaína, canabonoides, opiáceos, alcohol y anfetaminas-metanfetaminas, LSD, PCP y otras drogas de abuso sujetas a regulación, según las descripciones legales vigentes, así como la presencia de metabolitos de éstos en el organismo que indiquen su uso o abuso.

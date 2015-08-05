@@ -1,0 +1,1 @@
+Artículo 26.—Cuando se presente una prescripción médica válida para el caso, a criterio del profesional en salud, o el análisis de la muestra “B” sea negativo se procederá al archivo de las diligencias.
