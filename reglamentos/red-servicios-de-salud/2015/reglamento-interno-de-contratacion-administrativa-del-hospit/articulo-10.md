@@ -1,0 +1,1 @@
+Artículo 10.—Colaboración a la Proveeduría. Para el eficiente y eficaz cumplimiento de las funciones de la Proveeduría del Hospital del Trauma, todas las demás unidades administrativas, técnicas, jurídicas y de cualquier otro orden, están obligadas a brindarle colaboración y asesoría.

@@ -1,0 +1,1 @@
+Artículo 13.—Disponibilidad presupuestaria. De previo a la decisión de iniciar una contratación, deberá determinarse la existencia de la partida presupuestaria haciendo la reserva del caso, siendo requisito indispensable que en la Decisión Inicial se indique expresamente los recursos presupuestarios con que se atenderán las obligaciones derivadas de la contratación.

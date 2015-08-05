@@ -1,0 +1,1 @@
+Artículo 17.—Prohibición de fragmentar. No se podrá fragmentar las adquisiciones de bienes o servicios con el propósito de variar el procedimiento de contratación que procede de acuerdo con la estimación determinada para la contratación, de conformidad con el artículo 13 del Reglamento a la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 22.—Registro de Proveedores. El Hospital del Trauma utilizará el Registro de Proveedores de la plataforma de compras públicas que escoja para realizar sus adquisiciones de bienes y servicios. Mientras se elige dicha plataforma, se utilizará el registro del sistema Compra Red para identificar a los proveedores idóneos de cada objeto contractual.

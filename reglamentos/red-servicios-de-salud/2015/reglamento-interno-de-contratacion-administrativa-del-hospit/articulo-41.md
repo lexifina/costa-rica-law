@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 41.—Contrataciones electrónicas. El Hospital del Trauma podrá realizar los procedimientos de contratación administrativa que se regulan en este reglamento, mediante los sistemas de compra electrónicos autorizados en el país. Una vez elegido el sistema electrónico que se utilizará, la Gerencia General dictará las disposiciones que deberán considerar la Proveeduría y las unidades usuarias para el registro, seguimiento y control de las contrataciones.

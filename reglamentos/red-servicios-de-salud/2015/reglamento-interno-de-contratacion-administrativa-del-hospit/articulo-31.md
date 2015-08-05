@@ -1,0 +1,1 @@
+Artículo 31.—Ejecución en contratos de obra. La ejecución de las contrataciones de obra pública deberá realizarse conforme a lo establecido en el Complemento N°1 del Manual sobre Normas Técnicas de Control Interno para la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización, relativas al control de obras públicas.

@@ -1,0 +1,1 @@
+Artículo 39.—Forma de pago. La forma de pago se determinará en el cartel de la contratación y en ningún caso podrá ser superior a treinta días naturales, además aplicará lo correspondiente de acuerdo a lo que indica el artículo 34 del Reglamento a la Ley de Contratación Administrativa.
