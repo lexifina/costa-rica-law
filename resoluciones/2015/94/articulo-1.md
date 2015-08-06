@@ -1,6 +1,9 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS
+(Nota de Sinalevi: La Autoridad Reguladora de los Servicios Públicos, aprobó las nuevas Fija tarifas para los servicios aeronáuticos que brinda el Aeropuerto Internacional Juan Santamaría, mediante resolución N° 094 del 12 de agosto de 2016.)
+(Nota de Sinalevi: Sobre este tema La Autoridad Reguladora de los Servicios Públicos, había emitido anteriormente la resolución N° 071-RIT-2014 del 10 de julio del 2014 Fija tarifas para los servicios aeronáuticos que brinda el Aeropuerto Internacional Juan Santamaría)
 INTENDENCIA DE TRANSPORTES
-092-RIT-2015
+094-RIT-2015
+(Así reformado el número de la presente norma mediante resolución N° 096-RIT-2015 del 30 de julio del 2015)
 San José, a las 14:00 horas del 24 de julio de dos mil quince.
 CONOCE EL INTENDENTE DE TRANSPORTE LA SOLICITUD DE FIJACIÓN TARIFARIA PARA LOS SERVICIOS AERONÁUTICOS DEL AEROPUERTO INTERNACIONAL JUAN SANTAMARIA, PRESENTADA POR EL CONSEJO TÉCNICO DE AVIACIÓN CIVIL
 EXPEDIENTE ET-030-2015
@@ -37,9 +40,9 @@ x = Factor de eficiencia.
 i = Índice de Inflación compuesto por el promedio aritmético de los valores del Índice de Precios al Productor, excluidos los productos agrícolas, y el índice de Precios al Consumidor de los Estados Unidos de América.
 P (capex)= Costos de inversión en el desarrollo de infraestructura del campo aéreo asignados a cada tarifa.
 Según el inciso 2.4.1 del apéndice H, del Contrato de Gestión Interesada, el P (capex) para determinar las tarifas aeronáuticas del Aeropuerto Internacional Juan Santamaría, debe considerar lo siguiente:
- Los costos reales relacionados con la construcción de las mejoras contempladas en el Plan Maestro del AIJS.
- Los costos del financiamiento de dichas Mejoras y equipamiento mayor y,
- Los costos relacionados con los fondos de reservas.
+· Los costos reales relacionados con la construcción de las mejoras contempladas en el Plan Maestro del AIJS.
+· Los costos del financiamiento de dichas Mejoras y equipamiento mayor y,
+· Los costos relacionados con los fondos de reservas.
 Índices utilizados:
 Para el análisis de esta variable se tomaron los índices de inflación compuestos por el promedio aritmético de los valores del índice de Precios al Productor, excluidos los productos agrícolas, y el índice de Precios al Consumidor de los Estados Unidos de América, según lo establece el artículo 24 del RSA; además se determinó procedente la utilización de los índices los meses de diciembre de 2013 a diciembre de 2014. El índice promedio que se obtuvo fue de un -0,95%, este resultado varía con respecto con el utilizado por el CETAC en su petición tarifaria que es de -0,78%. La diferencia se presenta porque el índice de Precios al Productor empleado por el CETAC corresponde a un índice provisional publicado el 29 de enero de 2015, mientras que la ARESEP utilizó el índice definitivo el cual fue publicado el 25 de mayo de 2015, presentando éste una deflación ligeramente mayor que el utilizado por el CETAC.
 Los índices utilizados son los publicados por el BLS (Bureau of Labor Statistics) de los Estados Unidos (www.bls.gov), que constan en el Anexo N° 1 y se muestran en el siguiente cuadro:
@@ -68,7 +71,6 @@ En virtud de lo señalado anteriormente, en la presente fijación tarifaria, cor
 Evaluación de la calidad de los servicios aeronáuticos:
 De acuerdo con el procedimiento denominado “Metodología para la evaluación de la calidad del lado aéreo en el Aeropuerto Internacional Juan Santamaría (AIJS)”, aprobado mediante resolución RRG-3683-2004 del 16 de junio del 2004 y publicada en La Gaceta 124 del 25 de junio del 2004; la cual fue modificada por la resolución RRG-8268-2008 del 25 de abril del 2008 y publicada en La Gaceta 88 del 8 de mayo del 2008 se procedió a revisar la documentación aportada por el Consejo Técnico de Aviación Civil (CETAC) referente a los resultados de la evaluación de la calidad del lado aéreo en el AIJS para el periodo comprendido entre el IV trimestre del 2013 y el I, II y III trimestre del 2014 (folios 87 al 338 del ET-030-2015).
 El resultado de la evaluación obtenida de la aplicación de la metodología aprobada para cada uno de los índices de calidad relacionados con las tarifas del lado aéreo es el siguiente:
-[imagen] [imagen]
 Servicio | Indice de calidad resultante
 Estacionamiento de aeronaves | 98.57%
 Carga | 95.20%
@@ -82,13 +84,12 @@ Revisada la metodología de cálculo, el procedimiento de encuestas a los operad
 Cabe indicar que todos los índices se encuentran por encima del rango aceptable para cada servicio (rango entre el 75 y el 85 %).
 Por otra parte, dado que el factor de eficiencia para la presente solicitud es del 2% fijo, tal como quedó establecido en la adenda Nº 1 al Contrato de Gestión Interesada del AIJS y que no le son aplicables las disposiciones de los artículos 25, 26 y 27 del RSA, el índice de calidad para el año anterior a la presente solicitud no modificará el factor de eficiencia actual. Es importante señalar que el índice de calidad determina el nivel de servicio con que se prestan los servicios aeroportuarios en el AIJS, independiente de sí debe aplicarse un premio o castigo sobre las tarifas propuestas.
 Comparando los resultados de los índices presentados para el presente estudio tarifario con los del periodo anterior, se puede determinar que en la mayoría de los indicadores existe una mejoría en sus calificaciones, según se puede observar en el siguiente gráfico:
-[imagen]
 P (capex):
 El P (capex) está definido en el artículo 24 del RSA como sigue:
 “P (capex) = Costos de inversión en el desarrollo de infraestructura del campo aéreo asignados a cada tarifa.”
 El apéndice H del Contrato de Gestión Interesada, en el apartado 2.4.1 define más ampliamente los componentes del P (capex), que en resumen son los siguientes:
- Costos reales relacionados con los servicios de construcción.
- Costos reales asociados con el financiamiento de mejoras, que incluye:
+· Costos reales relacionados con los servicios de construcción.
+· Costos reales asociados con el financiamiento de mejoras, que incluye:
 i. El costo financiero, esto es el 100% de los costos de inversión en infraestructura incluyendo el pago de intereses y la amortización del principal.
 ii. El costo financiero tope se verán reflejados los costos reales de la amortización e intereses y no podrán trasladarse a las tarifas costos financieros mayores a los cotizados en la oferta.
 iii. Costos reales asociados con las reservas.
@@ -97,13 +98,12 @@ Las inversiones reconocidas por la Autoridad Reguladora, a efecto de su inclusi�
 Cuadro Nº 1
 Inversiones reconocidas por la ARESEP al CETAC en anteriores resoluciones
 Cifras en dólares
-[imagen]
 Si se analiza los montos autorizados para traslado a tarifas en las cinco últimas fijaciones tarifarias y se compara con respeto a los precios topes autorizados por el CETAC se tiene que a la fecha se ha reconocido el 90,54 % de la inversión en obras para los 4 centros de costos principales, esto de acuerdo al siguiente cuadro:
 Cuadro Nº 2
 Porcentaje de los montos trasladados a tarifas respecto al precio tope autorizado por el CETAC
 Cifras en dólares
 Período 2002-2013
-[imagen] [imagen]
+[imagen]
 Centro de costos | Montos traslalados a tarifas en resoluciones anteriores | Precio tope aprobado por el CETAC | % trasladado a tarifas
 Infraestructura | 41,483,256 | 46,468,984 | 89.27%
 Parqueo de aeronaves | 3,010,646 | 3,199,941 | 94.08%
@@ -111,7 +111,7 @@ Puentes de abordaje | 4,503,147 | 4,503,147 | 100.00%
 Carga | 1,890,209 | 2,031,810 | 93.03%
 Total | 50,887,258 | 56,203,882 | 90.54%
 El monto atribuible al P (capex) sometido a consideración de esta Autoridad Reguladora para su debido traslado a tarifas en la presente solicitud de revisión tarifaria y aprobada por el CETAC en la Sesión Extraordinaria 33-2014 del 24 de abril de 2014, Sesión Ordinaria 54- 2014 del 10 de setiembre de 2014, la Sesión Ordinaria 71-2014 del 5 de noviembre de 2014 y la Sesión Ordinaria 76-2014, del 28 de noviembre de 2014 es el siguiente:
-[imagen] [imagen]
+[imagen]
 Item | Descripción | Monto (US$) a trasladar a tarifas período 2015-2016
 MM 47-13 | Mejoras a la Infraestrucutura Eléctrica y Sistemas de Iluminación del CTRM del AIJS | 654,409.21
 Lote 77-B1 | Pago de intereses y costas personales Lote 77- B1 | 30,662.94
@@ -206,7 +206,6 @@ El dato de kilos de carga transportada utilizado por el CETAC como denominador p
 Cálculo tarifas aeronáuticas:
 El Reglamento de Servicio Aeroportuarios en su artículo 24, y el apéndice H del Contrato de Gestión Interesada, establece la fórmula para determinar las tarifas del Aeropuerto Internacional Juan Santamaría de la siguiente forma : Pr= Pf* (1+ (i-x))+Pcapex.
 Para efectos de cálculo de las tarifas aeronáuticas dicha fórmula se desagrega de la siguiente forma:
-[imagen]
 Pcapex
 Debe entenderse que para la aplicación del índice de inflación y el factor de calidad de cada año, se tomará la tarifa base del año en que se fijaron las tarifas vigentes en este caso las tarifas fijadas para el período 2014-2015, mediante la resolución 071-RIT-2014. El componente P (capex), va a contemplar el acumulado por este concepto de todos los años anteriores y su amortización se determina mediante la fórmula financiera de pago que considera la tasa integral del financiamiento y un período de amortización de diez años.
 En el anexo Nº1, se presenta un detalle del cálculo de las tarifas aeronáuticas. En el siguiente cuadro comparativo se presentan las tarifas resultantes comparadas con las tarifas vigentes autorizadas por medio de la resolución 071-RIT-2014:
@@ -284,7 +283,7 @@ Pue nte s de Abordaje | | $0,7680 | $0,8812 | $59,14 | $67,85 | 14,74%
 Infrae structura | | $3,5953 | $1,1294 | $276,84 | $122,98 | -55,58%
 Estaci onami e nto | | $0,5611 | $0,3366 | $43,20 | $28,02 | -35,15%
 Total | | | | $491,69 | $328,24 | -33,24%
-[imagen] [imagen]
+[imagen]
 AIJS: Aeropuerto Internacional Juan Santamaría
 INFORME DE OPOSICIONES Y COADYUVANCIAS Y AUDIENCIA PÚBLICA
 En el Informe de oposiciones y coadyuvancias, visible en el folio 834, y en el acta de la Audiencia Pública 057-2015 (folios 840 a 844), se admitieron las siguientes oposiciones y coayuvancias:
