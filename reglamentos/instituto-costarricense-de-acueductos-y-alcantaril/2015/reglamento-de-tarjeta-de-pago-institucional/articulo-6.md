@@ -1,0 +1,1 @@
+Artículo 6º—Cada director nacional o regional debe asignar los recursos y el funcionario responsable de suministrar oportunamente los reportes, conciliaciones y cualquier otra documentación que requiera la dirección financiera para efectuar el pago respectivo de la factura mensual al ente bancario.

@@ -1,0 +1,1 @@
+Artículo 23.—El tarjetahabiente al realizar el pago de combustible debe exigir, además del voucher, la emisión de una factura a nombre del Instituto Costarricense de Acueductos y Alcantarillados o AyA.

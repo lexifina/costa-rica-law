@@ -1,0 +1,19 @@
+CAPÍTULO V
+Faltas y régimen disciplinario
+Artículo 38.—Se sancionará a aquellos funcionarios (tarjetahabientes) y funcionarios en que se haya delegado la responsabilidad de cumplir o velar por el cumplimiento del presente reglamento, especialmente en los siguientes aspectos:
+• El funcionario (tarjetahabiente) que utilice la Tarjeta de Pago Institucional para un concepto diferente al pago de combustible; o bien sobrepase la cuota asignada mediante cupones internos de combustible.
+• El funcionario (tarjetahabiente) que al recibir su tarjeta no estampe su firma en la banda magnética al dorso de ésta.
+• El funcionario (tarjetahabiente) que no reporte al banco el robo o pérdida de su tarjeta; o bien no realice la denuncia correspondiente ante el Organismo de Investigación Judicial (OIJ).
+• El funcionario (tarjetahabiente) que se niegue a entregar, a solicitud de su jefatura inmediata, la Tarjeta de Pago Institucional (plástico).
+• El funcionario (tarjetahabiente) que estando de vacaciones, incapacitado o con permiso con goce de salario haga uso de la Tarjeta de Pago Institucional durante ese periodo.
+• Al director nacional o regional o el funcionario designado por este, que no solicite la cancelación temporal o permanente de la Tarjeta de Pago Institucional de un funcionario (tarjetahabiente) que se encuentre de vacaciones, incapacitado, permiso con goce de salario o suspendido por un periodo mayor a 30 días; o bien que se encuentre con un permiso sin goce de salario o haya sido despedido.
+• El director nacional o regional o el funcionario designado por éste, que teniendo conocimiento de un reporte de robo o pérdida de una tarjeta, no remita a la dirección financiera el formulario de “Solicitud de Cancelación de Tarjeta y/o Reemplazo”.
+• El director o el funcionario designado por éste, que no objete formalmente y por escrito, en el plazo previsto en el artículo 18 de este Reglamento, cualquier transacción que no haya sido realizada por el tarjetahabiente, cuando la tarjeta haya sido reportada como robada o extraviada.
+• El funcionario designado en la dirección financiera que no traslade al banco, en el plazo previsto en el artículo 18 de este Reglamento, la objeción de transacciones no realizadas por el tarjetahabiente en los casos de extravío o robo de la tarjeta.
+• El Director o el funcionario designado por éste, que no reporte a la dirección financiera en un plazo máximo de 5 días naturales, contados a partir del último día de cada mes, una transacción que haya sido cargada al estado de cuenta de una tarjeta de un funcionario a su cargo y que no corresponda a una operación real.
+• El funcionario o tarjetahabiente que no presente la “Liquidación de Gastos de Combustible” en el mismo mes que realizó la compra; o bien que incluya gastos que debió presentar en una liquidación anterior.
+• El funcionario o tarjetahabiente que no adjunte a la Liquidación de Gastos de Combustible, los documentos soportes (voucher y factura); o bien que éstos contengan alteraciones, tachaduras o borrones que hagan dudar de su autenticidad.
+• El funcionario designado por el director que no efectúe el registro contable del gasto de combustible en el mismo mes en que se realizó el gasto.
+• El funcionario designado por el director para realizar la conciliación del estado de cuenta de los tarjetahabientes a su cargo y el encargado del grupo que no certifique la exactitud de la cuenta por pagar al banco, antes del cierre contable de cada mes.
+• El director o funcionario designado por éste que no tome las acciones correspondientes que permita cumplir con los plazos fijados para cancelar la factura mensual emitida por el banco.
+• El Director o funcionario designado por éste que no reporte ante la dirección jurídica cualquier incumplimiento a este reglamento, procedimiento y normativa vigente relacionada.

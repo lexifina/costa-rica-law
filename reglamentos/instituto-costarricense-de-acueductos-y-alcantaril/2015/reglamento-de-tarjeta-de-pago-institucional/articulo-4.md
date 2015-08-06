@@ -1,0 +1,1 @@
+Artículo 4º—Cualquier pago que se realice con la Tarjeta de Pago Institucional por otro concepto diferente a la adquisición de combustible o bien sobrepase la cuota asignada a cada funcionario (Tarjetahabiente) para este efecto, tendrá que ser cubierto a favor de la Institución por el funcionario y sin menoscabo de la aplicación de las sanciones que se indican en este Reglamento.

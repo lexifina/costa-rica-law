@@ -1,0 +1,1 @@
+Artículo 8º—El presidente ejecutivo, auditor, gerente, subgerente, directores nacionales y directores regionales son los responsables de solicitar la emisión de la Tarjeta de Pago Institucional de los funcionarios a su cargo y se denominarán para efecto de este Reglamento, “Autorizador de Tarjeta de Pago Institucional”.

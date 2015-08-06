@@ -1,0 +1,1 @@
+Artículo 31.—El encargado revisa que la firma del funcionario que autoriza la Liquidación de Gasto de Combustible corresponda a un funcionario autorizado para este efecto. Las firmas de los funcionarios autorizados para aprobar estos documentos deben estar registrados ante el revisor mediante el formulario de “Registro de Autorizaciones”.

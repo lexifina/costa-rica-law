@@ -1,0 +1,1 @@
+Artículo 37.—La dirección financiera queda facultada para realizar el pago mensual por concepto de gasto del combustible al banco, cuando por algún incumplimiento, no se realice oportunamente el registro contable de la cuenta por pagar al banco, debiendo denunciar esta situación ante la dirección jurídica.

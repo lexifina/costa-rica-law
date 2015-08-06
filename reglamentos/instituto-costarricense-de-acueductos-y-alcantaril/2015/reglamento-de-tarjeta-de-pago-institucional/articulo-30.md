@@ -1,0 +1,1 @@
+Artículo 30.—El encargado verifica que la documentación soporte (voucher y factura) no contengan alteraciones, tachaduras, borrones o cualquier otro tipo de situación que pueda causar duda de su autenticidad.

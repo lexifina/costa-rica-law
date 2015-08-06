@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza el uso de la Tarjeta de Pago Institucional únicamente para la compra de combustibles en la categoría de negocios denominados estaciones de servicios o gasolineras y en la Refinadora Costarricense de Petróleo (RECOPE).

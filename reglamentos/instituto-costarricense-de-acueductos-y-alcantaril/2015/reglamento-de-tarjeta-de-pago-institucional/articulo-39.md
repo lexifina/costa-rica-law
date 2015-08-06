@@ -1,0 +1,1 @@
+Artículo 39.—La sanción a aplicar corresponderá de acuerdo a la gravedad de la falta, de conformidad con el Reglamento Autónomo de Trabajo del Instituto Costarricense de Acueductos y Alcantarillados y el ordenamiento jurídico vigente. La reincidencia constituirá un agravante en la valoración de la falta cometida y de la sanción a aplicar.
