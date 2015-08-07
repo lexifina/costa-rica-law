@@ -14,3 +14,4 @@ Levantamiento del Veto que existía con respecto a la ley N° 9076, Ley “Refor
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-12 | la propia norma |
+| 2 | 2015-08-07 | SINALEVI (sin norma nombrada) |
