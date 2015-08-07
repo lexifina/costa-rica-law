@@ -1,0 +1,1 @@
+Artículo 38.—Trámites. Corresponderá a la Unidad de Proveeduría encauzar y dirigir los trámites internos par la obtención de los informes técnicos, jurídicos y otros necesarios en relación con las contrataciones que deban someterse al conocimiento de la Comisión Administrativa.

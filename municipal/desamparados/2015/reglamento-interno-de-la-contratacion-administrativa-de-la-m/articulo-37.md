@@ -1,0 +1,1 @@
+Artículo 37.—Funciones de la Comisión. La Comisión de Contratación Administrativa tendrá a su cargo el estudio, análisis y recomendación de las licitaciones públicas, las licitaciones abreviadas y aquellas contrataciones previamente autorizadas por la Contraloría General de la Republica.

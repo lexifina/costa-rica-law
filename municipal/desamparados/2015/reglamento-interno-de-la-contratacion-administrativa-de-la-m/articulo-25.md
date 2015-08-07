@@ -1,0 +1,1 @@
+Artículo 25.—Invitación a participar. La Proveeduría será la encargada de dar la divulgación al cartel según el procedimiento que se trate y por los medios definidos en la Ley de Contratación Administrativa.

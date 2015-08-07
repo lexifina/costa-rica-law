@@ -1,0 +1,1 @@
+Artículo 19.—Estimación del procedimiento. Para la estimación de la contratación y determinación del procedimiento, se atenderá lo dispuesto en los artículos 27 y 31 de la Ley de Contratación Administrativa.

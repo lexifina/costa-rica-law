@@ -1,0 +1,1 @@
+Artículo 41.—La Proveeduría pasará la información correspondiente de las ofertas a la Comisión de Contratación Administrativa, para que esta dicte su informe. Dada la recomendación de este órgano. La Proveeduría elevará este dictamen al alcalde, quien lo someterá a conocimiento del Concejo Municipal para que tome la decisión.

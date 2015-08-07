@@ -1,0 +1,1 @@
+Artículo 10.—Exclusión de Registro de Proveedores: La exclusión en el Registro de Proveedores se regirá de acuerdo con la normativa vigente en materia de contratación administrativa, artículo 124 del RLCA.

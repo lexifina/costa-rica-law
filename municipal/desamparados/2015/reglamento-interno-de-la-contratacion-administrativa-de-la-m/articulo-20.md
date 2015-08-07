@@ -1,0 +1,1 @@
+Artículo 20.—Conformación de expediente. Una vez que se adopte la decisión de iniciar el procedimiento de contratación se formará un expediente, al cual se le incorporarán los estudios previos que motivaron el inicio de éstos cuando corresponda y todas las actuaciones internas relacionadas con la contratación.
