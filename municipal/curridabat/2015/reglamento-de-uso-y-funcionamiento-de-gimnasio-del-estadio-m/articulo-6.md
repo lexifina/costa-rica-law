@@ -1,0 +1,1 @@
+Artículo 6º—Horario. La determinación del horario del Gimnasio Municipal corresponderá al CCDRC; dicho horario se expondrá en lugar visible del establecimiento y del mismo se informará en las oficinas o dependencias municipales.

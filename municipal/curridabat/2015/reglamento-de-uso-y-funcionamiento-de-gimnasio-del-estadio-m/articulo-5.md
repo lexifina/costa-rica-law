@@ -1,0 +1,3 @@
+Artículo 5º—Gestión para uso de instalaciones. La solicitud del uso de la instalación se presentará en las oficinas administrativas, previamente a la utilización de la instalación. En caso de menores de edad, la solicitud se hará por los padres o tutores legales del menor.
+Al usuario/a que haya cumplido los requisitos anteriormente enumerados, se le entregará el justificante o documento acreditativo para poder acceder a la instalación por el período de tiempo que figure en el mismo.
+Si el usuario padece algún tipo de enfermedad o patología, es obligatoria la presentación de un informe médico de aptitud para el ejercicio. Y si durante el tiempo que asiste a la instalación sufre alguna enfermedad o lesión que pueda repercutir en la práctica deportiva.
