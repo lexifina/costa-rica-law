@@ -14,3 +14,4 @@ Levantamiento del Veto que existía con respecto a la ley N° 8758 "Desafectaci�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-22 | la propia norma |
+| 2 | 2015-08-07 | SINALEVI (sin norma nombrada) |
