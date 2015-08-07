@@ -1,0 +1,2 @@
+Artículo 5°—La Comisión sesionará una vez al mes en forma ordinaria y en forma extraordinaria cada vez que se requiera. El quórum de asistencia será de 4 de sus miembros. Las decisiones se tomarán por simple mayoría. En caso de un empate, el Presidente de la Comisión tendrá doble voto. Si algún miembro no estuviere conforme con lo resuelto, solicitará que se consulte la decisión a la Corte, la cual en dicho caso será obligatoria.
+Corresponderá al Presidente de la Comisión hacer la convocatoria respectiva o bien cuando dos o más de sus integrantes convoquen.
