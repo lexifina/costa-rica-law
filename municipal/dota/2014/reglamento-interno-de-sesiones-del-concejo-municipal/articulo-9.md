@@ -1,0 +1,1 @@
+Artículo 9º—Para el retiro temporal o indefinido (total) de una sesión, se deberá solicitar permiso a la Presidencia. La ausencia temporal no excederá de treinta (30) minutos.

@@ -1,0 +1,1 @@
+Artículo 8º—Los asuntos de fuerza mayor o emergencia serán atendidos en sesiones extraordinarias convocadas de urgencia, por escrito, por el Alcalde Municipal, en coordinación con la presencia del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 23.—Las sesiones ordinarias y extraordinarias se consideran de carácter solemne, por lo tanto, debe evitarse su interrupción. Se restringe el uso oral del teléfono celular durante la sesión del Concejo Municipal.

@@ -1,0 +1,1 @@
+Artículo 10.—Es competencia de la Presidencia Municipal controlar el uso correcto de la palabra, que exista el orden de acuerdo a la solicitud de la misma. Las deliberaciones sobre un tema o situación no deberán desviarse a otro.

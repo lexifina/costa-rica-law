@@ -1,0 +1,1 @@
+Artículo 5º—Las sesiones del Concejo Municipal serán públicas, según artículo 41 del Código Municipal. Esta Corporación, por medio de moción de orden, concederá el espacio o tiempo para la intervención oral de alguna persona que asista.

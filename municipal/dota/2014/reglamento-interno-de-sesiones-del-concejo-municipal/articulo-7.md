@@ -1,0 +1,1 @@
+Artículo 7º—Las actas de sesiones anteriores que se someterán a probación, deberán colocarse en las curules dos horas antes de la hora de inicio de la sesión, de esta forma no será necesario darles lectura.

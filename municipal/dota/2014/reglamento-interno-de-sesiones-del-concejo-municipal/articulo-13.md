@@ -1,0 +1,1 @@
+Artículo 13.—Los acuerdos del Concejo Municipal se tomarán por mayoría absoluta (la que es superada) de los regidores presentes en la sesión. Existen excepciones que se indican en el artículo 42 del Código Municipal.

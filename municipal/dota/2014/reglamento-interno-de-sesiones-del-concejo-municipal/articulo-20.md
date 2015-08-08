@@ -1,0 +1,1 @@
+Artículo 20.—El artículo 17 del Código Municipal dicta la asistencia del Alcalde (esa) o su representación, a las sesiones del Concejo Municipal. Para su informe se le concederá un espacio de treinta (30) a cuarenta (40) minutos. Por moción de orden se extenderá el tiempo para el informe del Alcalde Municipal, si es urgente.

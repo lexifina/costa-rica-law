@@ -1,0 +1,1 @@
+Artículo 16.—Para la presentación de mociones escritas se utilizará una hoja, la cual debe contener: número de sesión, nombre del regidor o Alcalde que presenta la moción, espacio para los considerandos y el por lo tanto; además la firma de uno o más regidores propietarios.

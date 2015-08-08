@@ -1,0 +1,1 @@
+Artículo 22.—Cada regidor razonará su voto negativo, lo cual constará en el acta. Para el voto a favor se debe levantar la mano a una altura superior a la cabeza. Esto mismo califica para solicitar el uso de la palabra.
