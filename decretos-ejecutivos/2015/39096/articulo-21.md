@@ -1,0 +1,3 @@
+Artículo 21.—Potestades del CONTRALOR. Además de las indicadas en el artículo 23 de la LEY, el CONTRALOR tendrá las siguientes potestades:
+1. En concordancia con el artículo 23 inciso 1) y 2) de la LEY, podrá solicitar a cualquier instancia interna de la organización, la información necesaria para el cumplimiento de sus funciones. En caso de que no se atienda la solicitud se aplicará lo establecido en el artículo 44 de la LEY.
+2. Requerir por parte de los diferentes órganos y unidades administrativas de la organización, la colaboración, el asesoramiento y las facilidades necesarias para el cumplimiento cabal de sus funciones.

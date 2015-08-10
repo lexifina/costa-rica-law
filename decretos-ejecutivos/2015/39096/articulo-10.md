@@ -1,0 +1,1 @@
+Artículo 10.—Independencia de la CONTRALORÍA. Los jerarcas de las instituciones que cuenten con la CONTRALORÍA de conformidad con la LEY, no podrán tomar o ejecutar acciones de ningún tipo, tendientes a influir o hacer cambiar el criterio de la o el CONTRALOR en el ejercicio de sus funciones.

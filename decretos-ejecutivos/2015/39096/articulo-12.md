@@ -1,0 +1,1 @@
+Artículo 12.—Justificación por ausencia de aval al Informe anual de labores. El jerarca institucional deberá justificar ante la SECRETARÍA TÉCNICA las razones por las cuales no avala el Informe anual presentado por la CONTRALORÍA; para lo cual contará con un plazo de 15 días, a partir de la fecha en que dicho informe le fue presentado.

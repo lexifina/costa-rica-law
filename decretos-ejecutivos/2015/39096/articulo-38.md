@@ -1,0 +1,1 @@
+Artículo 38.—Traslado de gestiones. Las gestiones que se presenten ante la CONTRALORÍA que luego de un análisis previo y/o acto motivado, no correspondan a las funciones y atribuciones propias de ésta, conforme a lo dispuesto en el artículo 15 de la LEY, serán trasladadas para su atención a las instancias internas o externas correspondientes.

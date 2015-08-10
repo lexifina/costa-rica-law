@@ -1,0 +1,1 @@
+Artículo 39.—Plazos para el trámite de gestiones en la CONTRALORÍA. En cuanto a la atención de plazos la institución diligenciará la petición de la PERSONA USUARIA a la mayor brevedad posible, de acuerdo con el contexto de la situación planteada, sin perjuicio de lo establecido por el artículo 43 de la LEY.

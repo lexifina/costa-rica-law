@@ -1,0 +1,1 @@
+Artículo 29.—Procesos de mejoramiento continuo e innovación de los servicios. Para los procesos de mejoramiento continuo de los servicios, la CONTRALORÍA, como unidad asesora del jerarca, coadyuvará en la elaboración de los instrumentos y técnicas pertinentes de gestión de calidad para la formulación de dichos procesos.

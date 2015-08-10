@@ -1,0 +1,1 @@
+Artículo 16.—Reglamento interno de funcionamiento. El reglamento interno de funcionamiento de cada CONTRALORÍA, conforme a lo dispuesto en el artículo 19 de la LEY, será emitido de acuerdo con los lineamientos dispuestos en la LEY y las Guías que al respecto emita la SECRETARÍA TÉCNICA.

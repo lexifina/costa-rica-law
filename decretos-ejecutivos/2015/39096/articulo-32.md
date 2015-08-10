@@ -1,0 +1,1 @@
+Artículo 32.—Contenido del informe elaborado por el jerarca. De acuerdo con lo establecido en el Artículo 37 de la LEY, el informe deberá hacer referencia, a las recomendaciones emitidas por la CONTRALORIA al jerarca y a los casos establecidos en el artículo 14 incisos 10) y 12) de la LEY, indicando las que no fueron avaladas y las razones que justifiquen dicha decisión.

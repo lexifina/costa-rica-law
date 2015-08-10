@@ -1,0 +1,1 @@
+Artículo 5º—Conformación del SISTEMA. El SISTEMA estará integrado por MIDEPLAN como ente rector, la SECRETARÍA TÉCNICA, las CONTRALORÍAS inscritas y aquellas que las instituciones públicas inscriban o que tengan obligación de inscribirse y las PERSONAS USUARIAS de los servicios públicos de dichas instituciones.

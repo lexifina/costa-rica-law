@@ -1,0 +1,1 @@
+Artículo 8º—Asignación de recursos. La SECRETARÍA TÉCNICA contará con el recurso humano necesario para la ejecución de las labores administrativas y profesionales, así como con los recursos económicos, materiales y tecnológicos, a fin de cumplir en forma eficiente y eficaz con sus responsabilidades de conformidad con lo establecido en el artículo 9 de la LEY.

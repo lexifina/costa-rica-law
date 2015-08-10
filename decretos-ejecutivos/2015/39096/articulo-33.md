@@ -1,0 +1,4 @@
+CAPÍTULO VIII
+Procedimientos para la presentación y atención
+de gestiones ante la Contraloría de Servicios
+Artículo 33.—Gestión de la PERSONA USUARIA ante la CONTRALORÍA. La CONTRALORÍA servirá de enlace entre la PERSONA USUARIA y la institución para buscar una solución adecuada a la gestión por ella presentada, relativa a la prestación de los servicios institucionales. Toda persona física o jurídica o su representante, en forma individual o colectiva, podrá plantear ante la CONTRALORÍA, inconformidades, reclamos, consultas, denuncias, sugerencias o felicitaciones, respecto a la prestación de los servicios que brinda la institución a las PERSONAS USUARIAS, así como sobre las actuaciones de los funcionarios en el ejercicio de sus labores, cuando se estime que afecten directa o indirectamente dichos servicios.

@@ -1,0 +1,3 @@
+Artículo 11.—Funciones de la CONTRALORÍA. Además de las indicadas en el artículo 14 de la LEY, la CONTRALORÍA tendrá las siguientes funciones:
+1. Mediar para una solución pacífica de las gestiones presentadas por las PERSONAS USUARIAS relativas a la prestación del servicio, siempre y cuando sea posible de acuerdo con la naturaleza del servicio.
+2. Tomar las acciones necesarias a los efectos de que la administración o departamento respectivo le haga llegar a la PERSONA USUARIA la información que solicite relativa a los servicios, normas, procedimientos o demás que se refieran a los servicios que presta la organización respectiva y esta no sea brindada de manera expedita, correcta, actualizada y completa de conformidad con la LEY.

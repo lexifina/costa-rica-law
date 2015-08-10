@@ -1,0 +1,1 @@
+Artículo 23.—Impedimento de nombramientos. Los nombramientos de los puestos de CONTRALOR Y SUBCONTRALOR, conforme a lo dispuesto en los artículos 20, 21, 24 y 25 de la LEY, no podrán hacerse bajo la modalidad de puestos de confianza ni por encargo o recargo de funciones.
