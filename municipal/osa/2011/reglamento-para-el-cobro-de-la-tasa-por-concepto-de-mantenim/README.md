@@ -14,3 +14,4 @@ Reglamento para el cobro de la tasa por concepto de mantenimiento de parques y z
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-07 | la propia norma |
+| 2 | 2015-08-10 | SINALEVI (sin norma nombrada) |

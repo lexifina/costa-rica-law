@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE OSA
+(Esta norma fue derogada por el artículo 14 del Reglamento para el cobro de la tasa por concepto de limpieza de vías, parques, zonas verdes y playas de la Z.M.T. del cantón de Osa, aprobado en sesión N° 16 del 10 de agosto de 2015)
 REGLAMENTO PARA EL COBRO DE LA TASA
 POR CONCEPTO DE MANTENIMIENTO DE PARQUES
 Y ZONAS VERDES DEL CANTÓN DE OSA
