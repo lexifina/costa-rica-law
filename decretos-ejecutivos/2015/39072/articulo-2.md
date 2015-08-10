@@ -1,0 +1,1 @@
+Artículo 2º—Declarar al pejibaye en sus variedades autóctonas (nativas y criollas) y a las tradiciones, prácticas agroculturales y culinarias, usos, saberes, sabores y colores asociados a este, como Patrimonio Cultural de Costa Rica.
