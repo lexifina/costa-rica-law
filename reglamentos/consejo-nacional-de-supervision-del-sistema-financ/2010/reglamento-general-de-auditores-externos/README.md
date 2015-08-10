@@ -14,3 +14,4 @@ Reglamento general de auditores externos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-01 | la propia norma |
+| 2 | 2015-08-10 | Reglamento 1189 (2015-08-10) |
