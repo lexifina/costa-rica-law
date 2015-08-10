@@ -20,3 +20,4 @@ Plan de Cuentas para las Entidades de Seguros
 | 5 | 2013-09-24 | Reglamento 1064 (2013-09-24) |
 | 6 | 2014-09-29 | Reglamento 1129 (2014-09-29) |
 | 7 | 2014-12-11 | Reglamento 1142 (2014-12-11) |
+| 8 | 2015-08-10 | Reglamento 1189 (2015-08-10) |
