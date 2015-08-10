@@ -1,1 +1,0 @@
-Artículo 17.—Todos los vehículos oficiales de uso administrado deberán portar permanentemente placas de matrícula oficial, y al menos e ambas puertas delanteras, el distintivo que los identifique como d( Ministerio, además de la leyenda "USO OFICIAL" y su número correspondiente.

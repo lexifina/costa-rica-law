@@ -1,1 +1,0 @@
-Artículo 30.—Los Operadores de Equipo Móvil, son los únicos autorizados para conducir los vehículos del Ministerio de Salud, no podrán en ningún caso ceder la conducción de los mismos a personas particulares o a otros funcionarios no autorizados; excepto cuando ocurra alguna situación de emergencia.

@@ -1,1 +1,0 @@
-Artículo 42.—La Unidad analizará todo accidente de tránsito en que participe un vehículo del Ministerio de Salud, del dual rendirá un informe a las instancias legales que correspondan, así como a la Dirección Administrativa, la Asesoría Legal y Recursos Humanos.

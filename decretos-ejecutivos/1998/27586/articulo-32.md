@@ -1,1 +1,0 @@
-Artículo 32.—Es responsabilidad exclusiva de cada Operador de Equipo Móvil el cumplimiento de lo establecido en el presente capítulo, de ahí que si acata órdenes que contravengan dichas disposiciones, asumirá las consecuencias que esa acción origine.
