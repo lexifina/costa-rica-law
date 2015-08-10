@@ -1,0 +1,3 @@
+Artículo 29.—Forma de votar de las personas con discapacidad. A quienes se les dificulte votar por sí solos en el recinto secreto -lo cual deberá ser valorado por los integrantes de la junta receptora de votos- podrán optar por las siguientes alternativas de votación:
+a) Voto público: El votante manifestará ante los integrantes de la junta receptora de votos su intención de votar públicamente, de forma tal que el presidente marque las papeletas conforme se lo indique el elector.
+b) Voto asistido: El votante ingresará al recinto secreto en compañía de una persona de su confianza, quien deberá ser costarricense y mayor de edad, para que le ayude a ejercer el voto marcando la opción que le indique el elector.

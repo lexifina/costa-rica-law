@@ -1,0 +1,1 @@
+Artículo 25.—Cantidad de recintos. En las juntas receptoras de votos de hasta 350 electores se instalará un solo recinto de votación; en aquellas donde se exceda esa cantidad de electores, se instalarán dos recintos. El número máximo de electores por junta será de 700, sin perjuicio de que por excepción el TSE autorice una cantidad mayor.

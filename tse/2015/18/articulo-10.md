@@ -1,0 +1,3 @@
+CAPÍTULO III
+Las papeletas
+Artículo 10.—Generalidades de las papeletas. Las papeletas que se utilizarán el 7 de febrero de 2016 llevarán impresa en el reverso una trama de seguridad, en los colores correspondientes a la papeleta de cada uno de los cargos por elegir. También se incluirán leyendas en microtexto, así como el uso de gradientes en las tramas y en los textos, tanto en el anverso como en el reverso de los documentos, para aumentar su seguridad.
