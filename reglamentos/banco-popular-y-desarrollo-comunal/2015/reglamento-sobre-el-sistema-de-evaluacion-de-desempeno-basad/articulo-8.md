@@ -1,0 +1,1 @@
+Artículo 8º—Los indicadores. Los resultados en el desempeño de las dependencias y de los puestos, son medidos a través de indicadores con sus respectivas metas, siendo el aporte medido por cada uno de estos indicadores, la contribución requerida para cumplir con los objetivos establecidos para el período.

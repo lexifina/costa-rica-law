@@ -1,0 +1,1 @@
+Artículo 7º—Sobre los objetivos. Para lograr el correcto alineamiento vertical y horizontal entre los diferentes niveles organizacionales, los objetivos que se definan en los BSC y BDP deben ser de contribución, es decir, asegurar que los objetivos de los niveles inferiores apoyen el logro de los planteados para los niveles superiores.

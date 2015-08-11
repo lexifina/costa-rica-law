@@ -1,0 +1,1 @@
+Artículo 18.—Responsabilidad. Es responsabilidad de cada jefatura elaborar y presentar ante el superior inmediato, reportes de avance trimestrales y finales al cierre de cada año sobre los resultados del BDP correspondientes a los trabajadores de su dependencia.
