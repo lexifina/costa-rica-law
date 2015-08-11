@@ -1,0 +1,2 @@
+Artículo 8º—Plazo de la contratación. El plazo del contrato será de un año, prorrogable a juicio del Banco por períodos iguales hasta tres prórrogas, sujeto al resultado de la evaluación semestral; salvo que, con dos meses de anticipación al vencimiento del plazo original o cualquiera de las prórrogas, el Banco comunique la decisión de no prorrogarlo.
+La decisión de no prorrogar el contrato causaría la extinción del mismo, sin responsabilidad alguna para el Banco.

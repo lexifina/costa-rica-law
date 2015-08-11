@@ -1,0 +1,1 @@
+Artículo 19.—Cierre de Centros de Negocios. En caso de cierre de un Centro de Negocios al que se encuentra asignado un abogado externo, su plazo de nombramiento expirará, pero deberá continuar tramitando los casos que se le hayan asignado y en casos justificados, la Gerencia General podrá exonerarlo de continuar con la dirección profesional de dichos procesos.

@@ -1,0 +1,5 @@
+Artículo 23.—Terminación del Proceso de Cobro. El archivo definitivo y finalización total del juicio, por orden de la Oficina de Cobro Judicial, podrá realizarse en los siguientes casos:
+Si se cancela en su totalidad la obligación, incluyendo intereses, gastos administrativos y honorarios de abogado.
+La normalización de la obligación o la corrección total de las causas que originaron el cobro judicial.
+Si existe un arreglo extrajudicial de la obligación.
+Cuando se dé por finalizado el proceso, previo comunicado del Banco, el abogado externo o institucional, procederá con la presentación de la documentación necesaria ante el Despacho Judicial. Este documento debe ser entregado a la Oficina de Cobro Judicial, con el respectivo sello de recibido del Despacho Judicial correspondiente en un plazo máximo de cinco días hábiles. El documento de terminación del proceso de cobro, deberá contener todas aquellas gestiones que sean necesarias para proceder a levantar las anotaciones de los embargos que pesen sobre los bienes de el/los demandado(s).

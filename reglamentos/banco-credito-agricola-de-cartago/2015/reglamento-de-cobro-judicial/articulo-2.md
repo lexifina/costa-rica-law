@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este reglamento es de acatamiento obligatorio para los abogados externos e institucionales, que prestan sus servicios al Banco para el cobro judicial de los préstamos y tarjetas de crédito.
