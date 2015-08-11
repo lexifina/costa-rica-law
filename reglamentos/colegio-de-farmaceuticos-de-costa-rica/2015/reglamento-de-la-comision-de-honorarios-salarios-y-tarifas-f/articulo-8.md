@@ -1,0 +1,1 @@
+Artículo 8º—La Comisión podrá reunirse en forma extraordinaria, cuando el coordinador lo considere necesario, la Junta Directiva del Colegio así lo determine, o lo solicite tres de sus miembros. El quórum para sesionar es de tres de sus miembros.

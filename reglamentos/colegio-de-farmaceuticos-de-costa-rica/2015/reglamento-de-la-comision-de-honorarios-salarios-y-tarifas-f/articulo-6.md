@@ -1,0 +1,1 @@
+Artículo 6º—El nombramiento de los miembros de la Comisión durará cuatro años y sus miembros podrán ser reelectos indefinidamente, salvo el representante de la Junta Directiva que lo será por el periodo para el que fue electo como miembro de ésta.

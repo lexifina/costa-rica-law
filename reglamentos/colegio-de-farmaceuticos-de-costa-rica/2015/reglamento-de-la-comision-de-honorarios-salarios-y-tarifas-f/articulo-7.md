@@ -1,0 +1,2 @@
+Artículo 7º—La Comisión sesionará ordinariamente durante los meses de enero y julio de cada año el quórum para sesionar es de tres de sus miembros y sus recomendaciones serán presentadas a la Junta Directiva para su estudio, discusión, aprobación o rechazo.
+Una vez aprobadas las tarifas, la Junta Directiva procederá a publicarlas en el Diario Oficial La Gaceta, y las repartirá entre los miembros del Colegio, debiendo la Comisión supervisar esta repartición en cumplimiento de los dispuesto por el inciso 3) del artículo 3 del presente reglamento.
