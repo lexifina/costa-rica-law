@@ -1,0 +1,2 @@
+Artículo 18.—De la Prosecretaría: La prosecretaría será nombrada por el concejo directivo por un periodo de dos años y podrá ser reelecto.
+El prosecretario/a sustituirá al secretario/a por razones de ausencia o enfermedad, así mismo lo hará como secretario/a en funciones en caso de cese, dimisión, censura o fallecimiento del secretario/a, en cuyo caso debe ser convocado el Consejo Directivo en los términos establecidos por el reglamento de Régimen Interno. Además de apoyar al secretario/a en el ejercicio de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 2º—La Federación constituida se denominará FEDEMSUR y tendrá su domicilio en Río Claro de Golfito, provincia de Puntarenas. Sin embargo podrá abrir oficinas, sucursales o agencias en cualquier parte o lugar del territorio nacional o fuera de él si sus actividades futuras así lo requirieran.

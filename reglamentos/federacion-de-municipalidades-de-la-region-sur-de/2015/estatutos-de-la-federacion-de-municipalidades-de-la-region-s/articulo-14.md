@@ -1,0 +1,1 @@
+Artículo 14.—De la Presidencia. La Presidencia será electa por el consejo directivo por un periodo de dos años y podrá ser reelecto, Siempre y cuando sea delegado oficial para el nuevo periodo que designe su municipio.

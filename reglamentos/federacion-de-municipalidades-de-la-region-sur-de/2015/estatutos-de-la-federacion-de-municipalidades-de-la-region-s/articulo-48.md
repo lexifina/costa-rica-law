@@ -1,0 +1,1 @@
+Artículo 48.—El personal municipal que se traslade en forma definitiva a prestar servicios en la Federación Municipalidades del Sur conservará en ésta sus derechos adquiridos en los regímenes de pensiones o jubilaciones a que estén amparados.

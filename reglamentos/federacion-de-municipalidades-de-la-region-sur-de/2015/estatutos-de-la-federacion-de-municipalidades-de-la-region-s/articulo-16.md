@@ -1,0 +1,3 @@
+Artículo 16.—De la Vicepresidencia. La vicepresidencia será nombrada por el concejo directivo por un periodo de dos años y podrá ser reelecta
+La Vicepresidencia sustituirá al presidente/a por razones de ausencia temporal o enfermedad. Así mismo, lo hará como presidente/a en funciones en caso de cese, dimisión, censura o fallecimiento del presidente/a. De forma temporal para tal efecto se debe convocar al consejo directivo para la reorganización del puesto o los puestos en los Términos establecidos en el Reglamento de Régimen Interno.
+Además, apoyar las funciones que le corresponden al presidente.

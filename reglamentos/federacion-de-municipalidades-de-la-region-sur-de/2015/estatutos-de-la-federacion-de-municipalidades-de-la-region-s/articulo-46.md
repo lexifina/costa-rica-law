@@ -1,0 +1,1 @@
+Artículo 46.—Las normas legales propias que rigen a las Municipalidades signatarias se aplicarán a la Federación Municipalidades del Sur en lo que no fueren incompatibles con sus especiales funciones.
