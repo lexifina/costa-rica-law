@@ -1,0 +1,2 @@
+Artículo 9º—Resolución de la solicitud de inscripción y notificación. El acto de aprobación o rechazo de la solicitud de inscripción al registro de elegibles, deberá ser dictado por la Oficina de Proveeduría y Licitaciones en un plazo de 20 días hábiles, contados a partir de la fecha de recepción de los atestados, para lo cual necesitará el estudio técnico realizado por la Oficina de Mantenimiento y Venta de Bienes.
+Este acto deberá ser notificado a los solicitantes en el lugar que señalaron, dentro de los tres días hábiles siguientes a su emisión.
