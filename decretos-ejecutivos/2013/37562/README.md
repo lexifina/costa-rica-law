@@ -28,3 +28,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 13 | 2015-06-17 | Acuerdo 0 (2015-06-17) |
 | 14 | 2015-07-15 | Acuerdo 0 (2015-07-15) |
 | 15 | 2015-07-29 | Decreto Ejecutivo 39288 (2015-07-29) |
+| 16 | 2015-08-12 | Acuerdo 0 (2015-08-12) |
