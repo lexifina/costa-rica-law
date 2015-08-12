@@ -56,3 +56,4 @@ CODIGO | DESCRIPCION | GUA % | ES % | HO % | NI % | CR %
 (Modificado por Resolución N° Resolución N° 342-2014 (COMIECO-LXVII) del 25 de abril del 2014: Aprueba aperturas y modificaciones al Arancel Centroamericano de Importación", aprobada mediante decreto ejecutivo N° 38530 del 23 de junio del 2014)
 (Modificado por resolución N° 356-2014 (COMIECO-LXX) del 4 de diciembre de 2014, "Aperturas arancelarias en el Arancel Centroamericano de importación", aprobada mediante decreto ejecutivo 39026 del 27 de abril de 2015)
 (Modificado por resolución N° 357-2014 (COMIECO-LXX) del 4 de diciembre de 2014, "Modificaciones al Arancel Centroamericano de importación", aprobada mediante decreto ejecutivo 39027 del 27 de abril de 2015)
+(Modificado por resolución N° 367-2015 (COMIECO-LXXII) del 24 de junio del 2015, "Aperturas Arancelarias al Arancel Centroamericano de importación", aprobada mediante decreto ejecutivo 39131 del 30 de julio del 2015)
