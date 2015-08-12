@@ -39,3 +39,5 @@ Artículo 1º—De las definiciones. Para los efectos de la Ley 9071 y del prese
 21. Unidad productiva: Finca, predio, parcela, zonas de producción, proceso, acopio, donde se lleven a cabo actividades de producción y almacenamiento de productos agropecuarios.
 22. Uso del suelo agropecuario: Ocupación de una superficie determinada de tierra en actividades de producción primaria agropecuaria.
 23. Zona Homogénea de Valor Agropecuario: Conjunto de bienes inmuebles de uso agropecuario, con límites definidos y valor zonal determinado, que comparte características similares en su actividad agrícola y pecuaria y en recursos biofísicos.
+24. Áreas de conservación y protección: son todas aquellas partes o secciones de terrenos de un bien inmueble de uso agropecuario primario con límites definidos dedicados a la protección de los acuíferos, la protección ambiental, la regeneración natural del bosque o donde se han sembrado árboles con fines de protección.
+(Así adicionado el inciso 24) anterior por el artículo 1° del decreto ejecutivo N° 39334 del 12 agosto del 2015)

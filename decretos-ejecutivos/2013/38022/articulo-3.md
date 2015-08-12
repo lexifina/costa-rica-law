@@ -14,4 +14,6 @@ k) Palmas para consumo humano sin empacar (pipa o coco, palmito de pejibaye, etc
 l) Tabaco
 m) Pastos naturales, pastos cultivados y forrajes para consumo animal (heno, silo, etc.)
 n) Cultivos energéticos (higuerilla, jatrofa, etc.)
+o) Las áreas de conservación y protección de las fincas de uso agropecuario con bosques y plantaciones forestales que no protejan fuentes de agua.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39334 del 12 de agosto del 2015)
 Cualquier inclusión o exclusión que deba hacerse de esta lista será realizada por el ONT, de común acuerdo con el Ministerio de Agricultura y Ganadería y se publicará en el diario oficial La Gaceta.

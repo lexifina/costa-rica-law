@@ -14,3 +14,4 @@ Reglamento a la Ley de Regulaciones Especiales sobre la aplicación de la ley N�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-15 | la propia norma |
+| 2 | 2015-08-12 | Decreto Ejecutivo 39334 (2015-08-12) |
