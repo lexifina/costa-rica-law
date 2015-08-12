@@ -1,0 +1,1 @@
+Artículo 22.—Prórrogas. Compete al Coordinador del Proceso Contratar Bienes y Servicios, autorizar mediante resolución motivada, prórrogas al plazo de ejecución del contrato, todo de conformidad con lo regulado en el artículo N° 176 del Decreto N° 35148-MINAET.

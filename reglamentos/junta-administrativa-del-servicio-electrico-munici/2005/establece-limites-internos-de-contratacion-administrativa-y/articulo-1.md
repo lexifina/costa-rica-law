@@ -13,7 +13,9 @@ Licitaciones | 55.0 en adelante | | Junta Directiva
 Refrendo Interno | 5 millones a 34 millones | |
 Refrendo Contraloría | 34 millones en adelante | |
 Y consecuentemente, se modi.ca de la siguiente manera el
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y reproducido su texto de forma íntegra mediante sesión ordinaria N° 4999 del 12 de agosto del 2015, publicada en La Gaceta N° 182 del 18 de setiembre del 2015, por lo que se reproduce a continuación:)
 REGLAMENTO PARA LA APROBACIÓN DE LOS ACTOS
 DE ADJUDICACIÓN
-Artículo 1º—De conformidad con los artículos 105 y 106 de la Ley de Contratación Administrativa, corresponde al Proceso de Contratar Bienes y Servicios de la UEN de Apoyo Administrativo la conducción y coordinación de todos los procedimientos de contratación administrativa.
-Asimismo, podrá adoptar los actos que sean necesarios conforme a su competencia y requerir los informes técnicos y legales pertinentes a las diferentes dependencias con el .n de proceder con la recomendación final de adjudicación.
+CAPÍTULO I
+Artículo 1º—Fundamento legal y objeto. El establecimiento de la Junta de Adquisiciones y de su competencia funcional se fundamenta en lo establecido en el artículo 20 de la Ley 8660, denominada “Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones”
+El objeto de este reglamento es regular la actuación de la Junta de Adquisiciones de la JASEC, estableciendo la forma en que esta debe integrarse para producir válidamente los actos de adjudicación de los procedimientos de contratación administrativa y los actos que resuelven las impugnaciones. Para la gestión de los procedimientos de contratación y la preparación de los actos que deben producirse en sus diversas etapas, así como para preparar los informes de recomendación necesarios para el acto final, la Junta de Adquisiciones se apoyará en la Proveeduría Institucional, la cual tendrá a su cargo y responsabilidad la conducción de los procedimientos respectivos, al tenor de los artículos 16 y 199 del Decreto MINAET 35148.

@@ -14,3 +14,4 @@ Establece límites internos de Contratación Administrativa y Reglamento para la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-04-15 | la propia norma |
+| 2 | 2015-08-12 | Reglamento 4999 (2015-08-12) |

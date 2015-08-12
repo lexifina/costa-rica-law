@@ -1,13 +1,1 @@
-Artículo 8º—Las órdenes de compra que se emitan en los diferentes procesos licitatorios, deberán de contener al menos los siguientes aspectos:
-a) Objeto general de la licitación
-b) Alcances detallados del objeto de la licitación
-c) Plazo de entrega
-d) Forma de pago
-e) Cláusula penal
-f) Garantía de cumplimiento
-g) Garantías sobre bienes y equipos (cuando procediere)
-h) Documentos integrantes del contrato
-i) Indicación de certificación de contenido presupuestario
-j) Estimación económica.
-Publíquese en el Diario Oficial.
-Cartago, 4 de abril de 2005.—
+Artículo 8º—Obligación de Informar a la Junta Directiva. Para todo contrato cuya estimación económica supere la suma de ¢100.000.000.00 es obligación del funcionario que emita el Acta de Decisión Inicial presentar un informe ejecutivo ante la Junta Directiva en el que se describa el objeto contractual, el origen de los recursos, al proyecto que pertenece y un resumen de los aspectos técnicos del cartel que se consideren necesarios. Este informe debe presentarse de previo a la remisión del Paquete de Gestión ante la Proveeduría, a quien corresponde verificar el cumplimiento de este requisito, sin perjuicio de cualquier información adicional requerida por la Junta Directiva y cuyo monto será actualizado anualmente con base al índice de precios al consumidor o la cifra que defina la Junta Directiva de JASEC.

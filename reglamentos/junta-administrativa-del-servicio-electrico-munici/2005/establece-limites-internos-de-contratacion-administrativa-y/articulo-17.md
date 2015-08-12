@@ -1,0 +1,2 @@
+Artículo 17.—Firmas de la Orden de Compra. Las órdenes de pedido cuyo monto sea inferior al límite económico de la contratación directa, independientemente del procedimiento que les dio origen, serán firmadas por dos funcionarios del Proceso Contratar Bienes y Servicios.
+Las órdenes de pedido cuyo monto sea superior al límite económico de la contratación directa, independientemente del procedimiento que les dio origen, serán firmadas por el Coordinador del Proceso Contratar Bienes y Servicios y un Profesional Contratar Bienes y Servicios.
