@@ -1,1 +1,1 @@
-Artículo Nº 21.—Los documentos relativos a licitaciones públicas y abreviadas deberán enviarse a cada uno de los directores para su respectivo estudio por lo menos con cinco días naturales de antelación de la sesión correspondiente.
+Artículo 21.—Derogado.

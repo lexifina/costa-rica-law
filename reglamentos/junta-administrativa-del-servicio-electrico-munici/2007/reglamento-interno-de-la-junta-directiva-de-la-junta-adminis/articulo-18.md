@@ -1,3 +1,3 @@
 CAPÍTULO IV
 De la votación
-Artículo Nº 18.—Al dar por discutido un asunto, la Presidencia someterá a votación el mismo, para lo cual los señores directores deberán estar ocupando sus lugares y emitir su voto ya sea, afirmativo, negativo y abstención cuando corresponda.
+Artículo 18.—Al dar por discutido un asunto, la Presidencia someterá a votación el mismo, para lo cual los señores directores deberán estar ocupando sus lugares y emitir su voto ya sea, afirmativo, negativo y abstención cuando corresponda.

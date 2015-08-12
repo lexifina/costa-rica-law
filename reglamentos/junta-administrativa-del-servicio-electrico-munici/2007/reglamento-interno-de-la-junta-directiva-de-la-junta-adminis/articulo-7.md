@@ -1,4 +1,4 @@
-Artículo Nº 7.—Corresponden a los señores directores las siguientes atribuciones y obligaciones:
+Artículo 7º—Corresponden a los señores directores las siguientes atribuciones y obligaciones:
 a) Participar con voz y voto en las sesiones ordinarias y extraordinarias.
 b) No abandonar las sesiones sin el permiso de la Presidencia.
 c) Participar en comisiones y emitir los correspondientes informes y dictámenes en el plazo previsto.

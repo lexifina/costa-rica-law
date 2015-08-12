@@ -1,4 +1,4 @@
-Artículo Nº 4.—Sin perjuicio de las facultades otorgadas por el artículo Nº 49.3 de la Ley General de la Administración Pública, corresponde al Presidente de la Junta Directiva las siguientes atribuciones:
+Artículo 4º—Sin perjuicio de las facultades otorgadas por el artículo Nº 49.3 de la Ley General de la Administración Pública, corresponde al Presidente de la Junta Directiva las siguientes atribuciones:
 a) Presidir las sesiones, abrirlas, suspenderlas y cerrarlas.
 b) Preparar el orden del día de las sesiones.
 c) Recibir las votaciones y anunciar la aprobación o el rechazo de un asunto.
