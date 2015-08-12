@@ -51,3 +51,4 @@ a. Técnico.
 b. Diplomado.
 c. Bachiller Universitario.
 (Así reformado mediante sesión extraordinaria N° 2014-11-06 del 6 de noviembre del 2014, publicada en La Gaceta N° 226 del 24 de noviembre del 2014)
+(Nota de Sinalevi: Mediante sesión ordinaria N° 2015-08-12 del 12 de agosto del 2015 se establece lo siguiente: " Aprobar la autorización del Técnico en Nivel Medio de Salud Ocupacional de Educación Diversificada Técnica que se ofrece en décimo, undécimo y duodécimo año como Tecnólogos en Salud Ocupacional)

@@ -1,1 +1,2 @@
 Artículo 9º—Se faculta a la Junta de Gobierno, incluir en la lista Oficial reconocida por el Colegio de Médicos y Cirujanos, tecnologías distintas a las que se establecen por esta Normativa.
+(Nota de Sinalevi: Mediante sesión ordinaria N° 2015-08-12 del 12 de agosto del 2015 se establece lo siguiente: " Aprobar la autorización del Técnico en Nivel Medio de Salud Ocupacional de Educación Diversificada Técnica que se ofrece en décimo, undécimo y duodécimo año como Tecnólogos en Salud Ocupacional)
