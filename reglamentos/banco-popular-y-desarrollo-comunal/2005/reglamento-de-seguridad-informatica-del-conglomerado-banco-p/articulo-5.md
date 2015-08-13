@@ -1,3 +1,0 @@
-Artículo 5º—Desarrollo, modificación, aprobación e implementación de nuevas políticas. El desarrollo y ajuste de las políticas de seguridad informática es responsabilidad del Subproceso de Seguridad Operativa Informática, para lo cual debe utilizar un procedimiento y esquemas estándar de desarrollo de ellas.
-Toda política de seguridad informática debe estar basada en el Manual de Políticas de Seguridad Informática del Banco Popular.
-Cualquier política de seguridad o modificación que se dicte deberá ser presentada ante la Gerencia General del Conglomerado para su aprobación y puesta en efectividad.
