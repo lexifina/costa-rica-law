@@ -1,0 +1,1 @@
+Artículo 8º—Subcomisiones. La CIAD-MSP podrá conformar las subcomisiones que considere necesarias, las cuales serán presididas por algún miembro de la Comisión en conjunto con otros funcionarios del Ministerio de Seguridad Pública, en calidad de invitados, quienes colaborarán como asesores.

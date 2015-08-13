@@ -1,0 +1,1 @@
+Artículo 2º—Objeto. Será la encargada de coordinar e impulsar el cumplimiento de la normativa vigente sobre accesibilidad para personas en condición de discapacidad en el Ministerio de Seguridad Pública, y de elaborar y ejecutar una política integral en materia de discapacidad.
