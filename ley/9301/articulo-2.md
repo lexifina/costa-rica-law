@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se autoriza a la Municipalidad de Puntarenas para que done el bien inmueble, descrito en el artículo anterior, al Ministerio de Educación Pública, con el fin de que lo destine a albergar la escuela Carrizal de Chacarita.
