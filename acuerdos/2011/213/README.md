@@ -14,3 +14,4 @@ Crea Comisión Institucional en Materia de Discapacidad del Ministerio de Seguri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-09 | la propia norma |
+| 2 | 2015-08-13 | Acuerdo 76 (2015-08-13) |

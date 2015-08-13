@@ -1,4 +1,6 @@
+(Revocada)
 Nº 2011-213-MSP
+(Esta norma fue revocada por el artículo 11 del acuerdo N° 076-2015 y publicado en La Gaceta N° 157 del 13 de agosto de 2015, "Crea Comisión institucional sobre accesibilidad y discapacidad del Ministerio de Seguridad Pública (CIAD-MSP)")
 Creación de la Comisión Institucional en Materia de
 Discapacidad del Ministerio de Seguridad Pública
 (CIMAD-MSP)
