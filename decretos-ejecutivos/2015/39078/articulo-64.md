@@ -1,0 +1,1 @@
+Artículo 64.—Obligación de pago e intereses por incumplimiento. El usuario(a) está en la obligación de cancelar los honorarios en forma oportuna. En caso de incumplimiento, el Notario(a) tendrá derecho a percibir intereses por el atraso de un dos por ciento (2%) mensual, calculado sobre el monto adeudado, a partir del momento en que se incurrió en atraso.

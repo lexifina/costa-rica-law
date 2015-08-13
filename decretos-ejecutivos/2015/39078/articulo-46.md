@@ -1,0 +1,1 @@
+Artículo 46.—Recurso de Amparo. Por el estudio, análisis, redacción y tramitación del recurso de amparo, el profesional devengará honorarios mínimos de ciento sesenta y cinco mil colones y su totalidad se pagara con la presentación de la acción.

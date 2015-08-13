@@ -1,0 +1,1 @@
+Artículo 96.—Poderes. La constitución, ampliación, sustitución, renovación, cancelación de poderes, que no sean parte de otro acto o contrato, devengará honorarios mínimos de ochenta y dos mil quinientos colones.

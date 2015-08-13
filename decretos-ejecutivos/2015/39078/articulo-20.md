@@ -1,0 +1,1 @@
+Artículo 20.—Cobertura de los honorarios: Todos los honorarios anteriores incluyen las labores profesionales por los recursos ordinarios e incidentes, hasta segunda instancia. Si se formaliza Recurso de Casación los honorarios serán acordados por las partes y no podrán ser inferiores a quinientos cincuenta mil colones.

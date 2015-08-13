@@ -1,0 +1,1 @@
+Artículo 4°—Propiedad de los honorarios. Los honorarios corresponden al profesional o profesionales que han sido requeridos por el cliente. Queda prohibido al profesional compartir sus honorarios con otros profesionales que no sean abogados.

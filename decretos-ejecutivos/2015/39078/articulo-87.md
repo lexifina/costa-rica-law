@@ -1,0 +1,1 @@
+Artículo 87.—Fianzas o avales. Las fianzas o avales como actos independientes o específicos, devengarán honorarios conforme a la Tarifa General. Si se tratare de acto complementario, pagará el veinticinco por ciento (25%) de la Tarifa General.

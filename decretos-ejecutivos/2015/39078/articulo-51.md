@@ -1,0 +1,1 @@
+Artículo 51.—Incidentes sin contenido económico y casos no previstos: Tratándose de incidentes sin contenido económico o de cualquiera otra diligencia judicial o trámite no señalado en las anteriores disposiciones, los honorarios mínimos serán de ciento diez mil colones y se pagará la totalidad con la presentación.
