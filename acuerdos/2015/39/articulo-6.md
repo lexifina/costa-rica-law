@@ -1,0 +1,1 @@
+Artículo 6º—De forma simultánea al desarrollo de esta Mesa de Trabajo por Guanacaste, la Presidencia de la República estará llevando adelante un proceso de diálogo con los diferentes actores sociales integrantes del bloque de organizaciones llamado Coordinadora de Movilización Unitaria Nacional (COMUN).

@@ -1,0 +1,1 @@
+Artículo 4º—Cada uno de los Ministerios y Presidencias Ejecutivas señalados en el artículo anterior, nombrarán a un viceministro a la Mesa de Trabajo por Guanacaste, la cual sesionará una vez al mes en la provincia de Guanacaste y el jerarca correspondiente deberá participar obligatoriamente cada dos meses.

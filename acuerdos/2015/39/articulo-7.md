@@ -1,0 +1,1 @@
+Artículo 7º—La Presidencia de la República, en coordinación con el MINAE, pondrá a disposición de la Mesa de Trabajo por Guanacaste un equipo técnico y logístico para la operación, el seguimiento y monitoreo de los acuerdos.
