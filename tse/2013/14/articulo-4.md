@@ -1,1 +1,0 @@
-Artículo 4º—Asistencia a las sesiones del CEC. Será obligatoria para los integrantes, quienes solo podrán excusarse por justa causa, previa designación del sustituto, lo que se hará ante su coordinador y sin que la sustitución pueda ser permanente.
