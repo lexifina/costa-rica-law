@@ -1,0 +1,1 @@
+Transitorio I.—Los indicadores de evaluación respecto a la implementación de esta Norma, serán elaborados por la dirección de Garantía de Acceso a los Servicios de Salud, del Ministerio de Salud, en un plazo no mayor a 6 meses después de la respectiva publicación de la Norma y se aplicarán a partir de su respectiva publicación en el Diario Oficial La Gaceta.
