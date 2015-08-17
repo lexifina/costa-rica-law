@@ -1,0 +1,2 @@
+Artículo 2º—Actualizar para el 2015 el monto asignado para el pago de las dietas de este órgano colegiado en la suma de ¢48.496,32 (cuarenta y ocho mil cuatrocientos noventa y seis colones treinta y dos céntimos), por cada dieta, los cuales continuarán modificándose automáticamente cada año de acuerdo con el índice inflacionario determinado por el Banco Central.
+Solamente tendrán derecho al pago de la dieta los miembros que asistan a las sesiones respectivas. Dicho pago queda sujeto a la existencia del contenido presupuestario correspondiente.
