@@ -1,0 +1,1 @@
+Artículo 11.—Cuando se trate de materiales de construcción, deberá coordinarse con la Dirección Urbana de la Institución, a efecto de determinar las necesidades reales y fiscalizar la obra a ejecutar.
