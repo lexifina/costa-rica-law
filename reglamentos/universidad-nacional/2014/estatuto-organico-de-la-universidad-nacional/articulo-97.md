@@ -1,0 +1,4 @@
+Artículo 97.—Recursos de revocatoria y apelación subsidiaria. Contra los actos administrativos y resoluciones de funcionarios y órganos de la Universidad, pueden establecerse recursos de revocatoria y apelación subsidiaria, dentro de un plazo de ocho días hábiles siguientes a la notificación del acto o la resolución. Se exceptúan los siguientes casos:
+a. Las resoluciones de la Asamblea Universitaria, de la Asamblea de Representantes y del Tribunal Electoral Universitario, en materia de su respectiva competencia, para los cuales no procede recurso alguno.
+b. Las resoluciones del Consejo Universitario, Consejo Académico (CONSACA), consejos de facultad, asambleas de unidad académica y órganos desconcentrados, en materia de su respectiva competencia, solo admiten el recurso de reposición o reconsideración, que a su vez agota la vía administrativa.
+c. Las resoluciones y actos en el ámbito administrativo que por ley agotan la vía administrativa.

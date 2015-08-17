@@ -1,0 +1,1 @@
+Artículo 21.—De los egresados y graduados. El vínculo de los estudiantes con la Universidad no concluye con la graduación. La Universidad da seguimiento a quienes se han egresado y graduado, mediante la gestión de procesos de formación permanente que repercutan en su mejoramiento académico, profesional y humano.

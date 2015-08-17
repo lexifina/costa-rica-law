@@ -1,0 +1,1 @@
+Artículo 110.—Participación estudiantil. Los representantes estudiantiles designados ante los órganos colegiados deben estar debidamente acreditados por la instancia estudiantil competente. La falta de designación no afectará el quórum estructural para el funcionamiento de estos.

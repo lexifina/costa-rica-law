@@ -1,0 +1,1 @@
+Artículo 60.—Asamblea Plebiscitaria de Unidad Académica. Cada unidad académica contará con una asamblea plebiscitaria encargada de elegir, y por causas justificadas destituir, a quienes ejercen los cargos de director o subdirector, así como levantar requisitos según lo dispuesto en el Artículo 91.

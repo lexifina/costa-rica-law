@@ -1,0 +1,1 @@
+Artículo 100.—Nulidad de actos y de resoluciones. El órgano que dicte un acto o una resolución, o su superior, puede anular o declarar su nulidad en virtud de un recurso administrativo. Le corresponde a la instancia competente para agotar la vía administrativa, en cada caso, declarar la nulidad de los actos y resoluciones firmes en la vía administrativa.

@@ -1,0 +1,2 @@
+Artículo 15.—Derecho de inamovilidad. El derecho a la inamovilidad del personal académico de la Universidad está fundamentado en el cumplimiento cabal de sus funciones y deberes académicos.
+Cumplido el debido proceso y comprobada la ejecución de las labores académicas en forma impropia o ineficiente, corresponderá a la asamblea de académicos de unidad, centro o sede, mediante mayoría simple del total de los presentes, declarar por votación secreta la pérdida de la inamovilidad.

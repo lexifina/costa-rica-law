@@ -1,0 +1,2 @@
+Artículo 27.—ASAMBLEA DE REPRESENTANTES (*). La Asamblea de Representantes es el órgano colegiado superior universitario que define las políticas institucionales de mediano plazo. Es la instancia de rendición de cuentas de la Rectoría, del Consejo Universitario y del Consejo Académico. Está subordinada a la Asamblea Universitaria.
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 97 del 20 de mayo del 2016, página N° 51. Anteriormente indicaba “De la Asamblea de Representantes”)

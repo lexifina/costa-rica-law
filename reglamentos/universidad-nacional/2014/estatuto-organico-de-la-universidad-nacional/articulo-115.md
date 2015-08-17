@@ -1,0 +1,1 @@
+Artículo 115.—La bandera. La bandera de la Universidad Nacional es bicolor, formada por dos secciones que resultan al trazar una diagonal desde el ángulo superior próximo al asta al opuesto inferior. La sección superior es blanca y la inferior roja.

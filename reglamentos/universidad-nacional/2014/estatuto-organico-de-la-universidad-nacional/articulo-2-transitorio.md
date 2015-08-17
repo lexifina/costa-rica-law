@@ -1,0 +1,2 @@
+Transitorio General II
+Salvo disposición expresa, las instancias de apoyo y las desconcentradas existentes continuarán funcionando. El Consejo Universitario creará las condiciones idóneas para la paulatina transformación de las instancias cuya naturaleza, funciones o conformación las modifique este Estatuto. Cada una de estas deberá presentar al Consejo Universitario, en el plazo establecido por este órgano, su propuesta de modificación.

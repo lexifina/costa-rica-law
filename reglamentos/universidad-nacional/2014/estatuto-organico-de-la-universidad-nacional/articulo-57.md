@@ -1,0 +1,2 @@
+Artículo 57.—Definición del Vicedecano. El Vicedecano es el funcionario electo por la asamblea plebiscitaria de facultad, centro o sede conjuntamente con el decano. Desempeña funciones propias y aquellas que le delegue el Decano, asume con éste la corresponsabilidad del caso en la rendición de cuentas.
+Quien ocupe el puesto de Vicedecano debe cumplir con los mismos requisitos establecidos para el Decano.

@@ -1,0 +1,1 @@
+Artículo 62.—Asamblea de Unidad Académica. La asamblea de unidad académica es el órgano colegiado encargado de tomar decisiones estratégicas para el adecuado funcionamiento del quehacer académico y administrativo. Será presidida por el Director.

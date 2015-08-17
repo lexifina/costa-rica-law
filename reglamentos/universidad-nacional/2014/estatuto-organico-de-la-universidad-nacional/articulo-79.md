@@ -1,0 +1,2 @@
+Artículo 79.—TRIBUNAL ELECTORAL UNIVERSITARIO (*). El Tribunal Electoral Universitario (TEUNA) es el órgano de desconcentración máxima responsable de los aspectos relativos a la organización y ejecución de las elecciones que se efectúen en la Universidad Nacional. Su conformación, integración y funcionamiento será regulado en un reglamento calificado aprobado por el Consejo Universitario.
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 97 del 20 de mayo del 2016, página N° 51. Anteriormente indicaba “Del Tribunal Electoral Universitario”)

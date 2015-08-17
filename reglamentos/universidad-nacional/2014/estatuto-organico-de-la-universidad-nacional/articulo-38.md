@@ -1,0 +1,1 @@
+Artículo 38.—Consejo Académico. El Consejo Académico es el órgano colegiado superior responsable de aprobar la normativa en materia académica, así como de coordinar, articular y orientar el quehacer académico general en la Universidad Nacional.

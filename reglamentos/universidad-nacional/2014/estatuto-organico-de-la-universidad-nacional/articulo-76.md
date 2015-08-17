@@ -1,0 +1,2 @@
+Artículo 76.—Estructura de las sedes regionales. La estructura de las sedes regionales se establecerá, en una normativa propia, en concordancia con lo establecido en el Artículo 9 del presente Estatuto.
+Quienes ejerzan el decanato y el vicedecanato de las sedes regionales serán electos mediante el mismo procedimiento y requisitos establecidos para los decanos y vicedecanos de facultades y centros.

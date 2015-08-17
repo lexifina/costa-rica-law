@@ -1,0 +1,2 @@
+Artículo 119.—De los reglamentos calificados. Los reglamentos calificados serán aprobados por el Consejo Universitario, por el voto favorable de al menos las dos terceras partes del total de sus miembros.
+Se regulan en este tipo de reglamentos los asuntos relativos a las reformas estatutarias, la impugnación de actos, el régimen disciplinario y electoral, la estructura y formas de organización de la actividad académica y administrativa.

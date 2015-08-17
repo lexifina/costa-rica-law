@@ -1,0 +1,5 @@
+Artículo 31.—Integración del Congreso Universitario. Podrán ser integrantes del Congreso Universitario:
+a. El personal académico en propiedad y el personal académico no propietario que cuente con al menos cinco años consecutivos de laborar para la Institución en una jornada de tiempo completo. Corresponde al sesenta por ciento de la integración de la Asamblea Universitaria.
+b. El personal administrativo en propiedad y el personal administrativo no propietario que cuente con al menos cinco años consecutivos de laborar para la Institución en una jornada de tiempo completo. Corresponde al quince por ciento de la integración de la Asamblea Universitaria. Su participación se define conforme al voto universal y ponderado.
+c. La representación estudiantil corresponde al veinticinco por ciento de la integración de la Asamblea Universitaria, y será escogida por la Feuna según su propia normativa.
+Los integrantes del Congreso deben asistir obligatoriamente a las sesiones y a las reuniones de comisión de las que formen parte. La ausencia injustificada constituirá falta a los deberes del funcionario o del estudiante.

@@ -1,0 +1,1 @@
+Artículo 80.—Tribunal Universitario de Apelaciones. El Tribunal Universitario de Apelaciones (TUA) es el órgano de desconcentración máxima que resuelve los recursos de apelación en materia disciplinaria, tanto en el ámbito laboral como en el estudiantil. Su conformación, integración y funcionamiento será regulado en un reglamento calificado aprobado por el Consejo Universitario.

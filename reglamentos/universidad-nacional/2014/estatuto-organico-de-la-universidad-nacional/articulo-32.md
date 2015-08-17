@@ -1,0 +1,4 @@
+Artículo 32.—Constitución y funcionamiento del congreso. Para constituir el Congreso se requiere la inscripción de una cantidad equivalente al veinte por ciento de la integración total indicada en el Artículo anterior, considerando el valor ponderado de la participación de cada estamento.
+El quórum para que sesione válidamente será de la mayoría absoluta de los integrantes inscritos, conforme al valor ponderado de la participación de cada estamento. De no completarse el quórum a la hora de la convocatoria, se podrá sesionar treinta minutos después, con la presencia de al menos el treinta por ciento del total de los miembros inscritos.
+Las ponderaciones para efectos de votación se realizarán tomando como base la representación estudiantil y el número de académicos y administrativos inscritos, conservando la ponderación de cada estamento.
+Los acuerdos serán de conocimiento y resolución obligatoria en las instancias correspondientes, en el plazo que se fije.

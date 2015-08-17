@@ -1,0 +1,4 @@
+Artículo 25.—Integración de la Asamblea Universitaria. La Asamblea Universitaria está integrada por:
+a. El personal académico en propiedad y el personal académico no propietario con al menos cinco años consecutivos de laborar para la Institución en una jornada de tiempo completo. En conjunto corresponden al sesenta por ciento de la integración de la Asamblea.
+b. El personal administrativo en propiedad y el personal administrativo no propietario con al menos cinco años consecutivos de laborar para la Institución en una jornada de tiempo completo. En conjunto corresponden al quince por ciento de la integración de la Asamblea, mediante voto universal ponderado.
+c. La representación estudiantil correspondiente al veinticinco por ciento de la integración de la Asamblea, electa mediante el procedimiento establecido en el Estatuto de la Feuna.

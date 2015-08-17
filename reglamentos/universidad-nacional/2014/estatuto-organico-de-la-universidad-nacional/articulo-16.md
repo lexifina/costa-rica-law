@@ -1,0 +1,1 @@
+Artículo 16.—Condición de estudiante. Estudiante es la persona matriculada en un plan de estudios conducente a un título universitario. Es participante medular de la acción sustantiva, en procura de su formación integral. La Universidad establece, en la normativa correspondiente, otras categorías de estudiante, según el vínculo convenido con la Institución.

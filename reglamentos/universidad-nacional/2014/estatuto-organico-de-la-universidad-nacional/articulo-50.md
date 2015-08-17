@@ -1,0 +1,1 @@
+Artículo 50.—Asamblea de facultad, centro y sede. La asamblea de facultad, centro o sede es el órgano colegiado encargado de tomar decisiones estratégicas para el adecuado funcionamiento del quehacer académico y administrativo. Será presidida por el decano.

@@ -1,0 +1,1 @@
+Artículo 99.—Diligencias de adición y aclaración de resoluciones. Ante la autoridad o instancia que dicte una resolución, cualquier persona puede solicitar adición y aclaración, en un plazo de ocho días hábiles siguientes al de la notificación por escrito.

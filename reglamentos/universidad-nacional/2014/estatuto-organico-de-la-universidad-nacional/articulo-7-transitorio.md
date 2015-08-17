@@ -1,0 +1,3 @@
+Transitorio General VII
+Dentro del mes siguiente a la vigencia de este Estatuto, el Consejo Universitario convocará a un proceso de revisión y modificación de las actuales facultades, centros, sedes regionales, sedes interuniversitarias, unidades académicas y secciones regionales (*) con el fin de tomar decisiones, en un plazo de seis meses, sobre las instancias académicas que seguirán funcionando.
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 97 del 20 de mayo del 2016, página 51. Anteriormente indicaba “actuales facultades, sedes regionales, sedes interuniversitarias, unidades académicas y secciones regionales”)

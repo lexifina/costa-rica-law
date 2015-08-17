@@ -1,0 +1,2 @@
+Artículo 53.—Consejo de Facultad, centro o sede. El Consejo de Facultad, centro o sede es el órgano colegiado responsable de decidir integralmente sobre el desarrollo de la acción sustantiva de las unidades académicas que conforman la facultad, centro o sede.
+Está constituido por los respectivos titulares de los cargos de decano, quien preside, vicedecano, directores de unidad académica, quien ejerza la dirección ejecutiva y la representación estudiantil correspondiente.

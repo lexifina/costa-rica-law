@@ -1,0 +1,1 @@
+Artículo 117.—El escudo. El escudo de la Universidad Nacional es cortado; en jefe azur, un libro abierto argento forrado de gules con la divisa “La verdad nos hace libres”. En punta gules, un torreón herediano (o castillo) argento, con puerta y nueve ventanas en base y seis troneras en fuste. Una bordura cortada, en jefe gules y punta azur.

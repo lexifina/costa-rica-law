@@ -1,0 +1,1 @@
+Artículo 34.—Definición del Consejo Universitario. El Consejo Universitario es el órgano colegiado superior que dirige, orienta y decide la política general universitaria y es el garante de la unidad e identidad institucionales.

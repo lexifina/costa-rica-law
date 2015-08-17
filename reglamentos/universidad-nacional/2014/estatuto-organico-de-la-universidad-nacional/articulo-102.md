@@ -1,0 +1,1 @@
+Artículo 102.—Sobre la resolución alternativa de conflictos. Con el fin de promover una cultura de paz, garantizando el debido proceso, la Universidad aplicará, cuando corresponda, procedimientos de resolución alternativa de conflictos en materias disciplinaria, laboral y estudiantil.

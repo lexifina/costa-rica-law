@@ -1,0 +1,2 @@
+Artículo 74.—Definición del cargo de Subdirector de Unidad Académica. El Subdirector de Unidad Académica es el funcionario electo por la Asamblea plebiscitaria de unidad académica, conjuntamente con el director. Desempeña funciones propias y aquellas que le delegue el Director, asume con éste la corresponsabilidad en la rendición de cuentas.
+Quien ocupe el puesto de Subdirector debe cumplir con los mismos requisitos establecidos para el Sirector.

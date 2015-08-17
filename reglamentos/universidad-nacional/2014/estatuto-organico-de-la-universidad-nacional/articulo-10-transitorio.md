@@ -1,0 +1,2 @@
+Transitorio General X
+El actual representante de la comunidad nacional seguirá fungiendo como miembro del Consejo Universitario hasta cumplir el período para el que fue elegido. Concluido este, lo sustituirá un representante académico. A partir de la vigencia de este Estatuto, el Ministro de Educación dejará de integrar el Consejo Universitario, en su lugar el Teuna organizará un proceso electoral para elegir un representante académico de las sedes regionales.

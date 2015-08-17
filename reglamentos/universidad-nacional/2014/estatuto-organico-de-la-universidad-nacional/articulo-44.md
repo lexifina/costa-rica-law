@@ -1,0 +1,2 @@
+Artículo 44.—Definición del Rector Adjunto. El rector adjunto es el funcionario electo por la Asamblea Universitaria conjuntamente con el rector. Desempeña funciones ejecutivas propias y aquellas que le delegue el Rector, asume con éste la corresponsabilidad del caso en la rendición de cuentas.
+Quien ocupe el puesto de Rector Adjunto debe cumplir con los mismos requisitos establecidos para el Rector.

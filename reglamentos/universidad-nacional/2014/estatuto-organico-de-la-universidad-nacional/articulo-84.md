@@ -1,0 +1,1 @@
+Artículo 84.—Sobre el patrimonio de las sedes. El patrimonio de las sedes regionales proveniente de donaciones solo podrá ser traspasado, cedido o vendido por la Universidad, previo criterio de la asamblea de sede.

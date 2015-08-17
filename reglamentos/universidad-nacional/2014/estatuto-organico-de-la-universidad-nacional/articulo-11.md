@@ -1,0 +1,1 @@
+Artículo 11.—Personal administrativo El personal administrativo es el encargado de ofrecer servicios profesionales, técnicos y operativos óptimos y oportunos para el cumplimiento de la acción sustantiva de la Universidad. Actúa con la eficiencia, el compromiso y la disposición de servicio que imponen los procesos institucionales.

@@ -1,0 +1,1 @@
+Artículo 87.—Procuraduría de la Ética. La Procuraduría de la Ética es la instancia que, con independencia funcional y de criterio, tiene como propósito la promoción, supervisión y tutela de los valores, principios y fines de la Universidad. Constituye el referente ético de todo el quehacer institucional y se regirá por un reglamento específico.

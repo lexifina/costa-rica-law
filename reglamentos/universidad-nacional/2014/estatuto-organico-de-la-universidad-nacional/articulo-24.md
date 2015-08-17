@@ -1,0 +1,1 @@
+Artículo 24.—Asamblea Universitaria. La Asamblea Universitaria es la máxima instancia institucional. Decide por medio de referéndum y sus resoluciones son soberanas, finales y de cumplimiento obligatorio. Resuelve, de modo participativo, por votación universal y secreta, de acuerdo con los porcentajes fijados para los estamentos académico, administrativo y estudiantil.

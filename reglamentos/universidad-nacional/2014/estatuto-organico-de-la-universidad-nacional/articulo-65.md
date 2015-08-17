@@ -1,0 +1,1 @@
+Artículo 65.—Asamblea de Académicos. La asamblea de académicos es el órgano colegiado de reflexión y diálogo que orienta el desarrollo académico de la unidad. Sus acuerdos son de consideración obligada para la Asamblea de Unidad y el consejo académico. Será presidida por el Director.

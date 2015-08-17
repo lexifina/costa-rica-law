@@ -1,0 +1,3 @@
+Transitorio General XIV
+Dentro del mes siguiente a la vigencia de este Estatuto, el Consejo Universitario convocará a un proceso de análisis y modificación de los actuales órganos desconcentrados, entre ellos la Comisión de Carrera Académica y la Comisión de Carrera Administrativa. En un plazo de seis meses se deberá contar con propuestas de reforma que regulen, en lo que corresponda, la integración, funciones y medios de impugnación.
+EL PRESENTE ESTATUTO ORGÁNICO RIGE A PARTIR DEL 17 DE AGOSTO DEL 2015, SEGÚN EL ARTÍCULO TERCERO, INCISO ÚNICO DE LA SESIÓN ORDINARIA DEL CONSEJO UNIVERSITARIO CELEBRADA EL 4 DE DICIEMBRE DEL 2014, ACTA Nº 3437.

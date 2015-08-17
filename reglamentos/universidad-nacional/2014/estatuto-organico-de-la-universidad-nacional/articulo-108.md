@@ -1,0 +1,1 @@
+Artículo 108.—Participación del personal académico no propietario. El personal académico que no tiene propiedad puede formar parte de los órganos colegiados, con las excepciones establecidas en este Estatuto.

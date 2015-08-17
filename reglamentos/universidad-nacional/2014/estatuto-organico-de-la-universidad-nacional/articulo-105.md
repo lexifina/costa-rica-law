@@ -1,0 +1,1 @@
+Artículo 105.—Responsabilidad personal de los funcionarios universitarios. Todo funcionario de la Universidad Nacional que por notoria violación de las leyes, arbitrariedad o negligencia, dolo o imprudencia ocasione un perjuicio económico a la Universidad, estará obligado a responder con su propio peculio.
