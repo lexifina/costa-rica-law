@@ -1,0 +1,5 @@
+CAPITULO SEGUNDO
+Del formulario de evaluación médica
+Artículo 5° Concepto.
+Se define como: “Formulario de Evaluación Médica para Optar por la Licencia de Conducir, aquella fórmula que establece el conjunto de pruebas médicas, plasmadas en una plataforma digital, mediante las cuales, el profesional médico debidamente autorizado, puede establecer fehacientemente, con el criterio técnico respectivo, que el interesado cumple o no cumple con los requisitos médicos para optar por la licencia para la conducción de vehículos automotores dentro del territorio nacional.
+La confección de dicho Formulario, se considera un acto médico especial, el cual, cumple una función pública como requisito establecido en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial , Ley número 9078. Para su confección, el profesional en medicina, deberá acatar las disposiciones establecidas en la presente normativa, el Código de Ética Médica del Colegio de Médicos y Cirujanos de Costa Rica, los acuerdos de la Junta de Gobierno del Colegio de Médicos y demás cuerpos normativos que regulan el correcto ejercicio de la profesión médica.

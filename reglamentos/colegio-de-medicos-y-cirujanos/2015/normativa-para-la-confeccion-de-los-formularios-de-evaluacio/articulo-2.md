@@ -1,0 +1,2 @@
+Artículo 2 Ámbito de aplicación.
+Todas las personas físicas que deseen optar por la obtención, renovación o prórroga de cualesquiera de los tipos de licencia para conducir vehículos automotores o permisos de aprendizaje establecidos en la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley número 9078, deberán ser evaluados por los profesionales médicos debidamente autorizados por el Colegio de Médicos y Cirujanos de Costa Rica, de conformidad con lo establecido en la presente normativa.

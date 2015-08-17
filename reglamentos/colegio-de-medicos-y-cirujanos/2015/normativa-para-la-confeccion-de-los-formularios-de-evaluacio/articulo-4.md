@@ -1,0 +1,2 @@
+Artículo 4° Periodicidad.
+La evaluación médica será un requisito que deberá cumplir todo aspirante a la obtención por primera vez, su renovación o su prórroga, de la licencia para conducir vehículos automotores y será determinada de conformidad con el artículo 92 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, Ley número 9078 o según el criterio médico en relación con la condición de salud de la persona.

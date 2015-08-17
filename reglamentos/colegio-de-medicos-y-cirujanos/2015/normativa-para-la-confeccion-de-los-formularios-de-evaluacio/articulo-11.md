@@ -1,0 +1,2 @@
+Artículo 11° Incumplimiento.
+Serán causales de incumplimiento para ser Médico Evaluador de Conductores, las faltas comprobadas, que contravengan los requisitos exigidos en el presente reglamento para la confección del Formulario de Evaluación Médica para Optar por la Licencia de Conducir, el Código de Ética Médica y demás cuerpos normativos que regulen el correcto ejercicio de la profesión médica.

@@ -1,0 +1,8 @@
+Artículo 31°Sistema Respiratorio. |
+|
+| Conductor Profesional | Conductor No Profesional
+| A1, A2, A3, B1, B2 sin el agregado P (profesional) | B-3, B-4, C, D o E, y A-2, A-3, B-1 o B-2 con el agregado P (profesional)
+1.Disneas | No deben de existir disneas permanentes en reposo o de esfuerzo leve. | No deben existir disneas o pequeños esfuerzos ni paroxísticas de cualquier etiología
+2. Trastornos del sueño. | Los afectados de síndrome de apneas obstructivas del sueño o de trastornos relacionados con éste, requiere informe médico en el que se haga constar que están siendo sometidos a tratamiento y control de la sintomatología diurna, podrán obtener o prorrogar permiso o licencia con período de vigencia máximo de dos años. | Los afectados de síndrome de apneas obstructivas del sueño o de trastornos relacionados con éste, requiere informe médico en el que se haga constar que están siendo sometidos a tratamiento y control de la sintomatología diurna, podrán obtener o prorrogar permiso o licencia con período de vigencia máximo de un año.
+3. Otras afecciones | No deben existir trastornos pulmonares, pleurales, diafragmáticos y mediastínicos que determinen incapacidad funcional, valorándose el trastorno y la evolución de la enfermedad, teniendo especialmente en cuenta la existencia o posibilidad de aparición de crisis de disnea paroxística, dolor torácico intenso u otra alteraciones que puedan influir en la seguridad de la conducción. La obtención o prorroga del permiso o licencia queda a criterio médico. | No se permite trastornos pulmonares, pleurales, diafragmáticos y mediastínicos que determinen incapacidad funcional, que influya en la seguridad de la conducción.
+| | |

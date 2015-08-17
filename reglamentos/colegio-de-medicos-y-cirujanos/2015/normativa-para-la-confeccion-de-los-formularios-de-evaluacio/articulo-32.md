@@ -1,0 +1,11 @@
+Artículo 32° Enfermedades Metabólicas y Endocrinas. |
+|
+| Conductor Profesional | Conductor No Profesional
+| A1, A2, A3, B1, B2 sin el agregado P (profesional) | B-3, B-4, C, D o E, y A-2, A-3, B-1 o B-2 con el agregado P (profesional)
+1. Diabetes Mellitus | Siempre que sea preciso el tratamiento hipoglicemiante oral o con insulina, se deberá aportar informe médico con adecuado control, con período de vigencia como máximo, de tres años. | Siempre que sea preciso el tratamiento hipoglicemiante oral se deberá aportar informe médico con adecuado control, con período de vigencia como máximo, de tres años. Cuando que sea preciso el tratamiento con insulina deberá aportar informe médico con adecuado control, con período de vigencia como máximo, de un año.
+2. Cuadros de hipoglucemia | No deben existir, en el último año, cuadros repetidos de hipoglicemia aguda ni alteraciones metabólicas que cursen con pérdida de conciencia. | No se admiten, cuando existen cuadros de hipoglicemia en el último año.
+Conductor No Profesional | Conductor Profesional
+3. Enfermedades tiroideas | No deben existir hipertiroidismos complicados con síntomas cardíacos o neurológicos ni hipotiroidismos sintomáticos, excepto si el interesado presenta informe favorable de un especialista en endocrinología. El período de vigencia se fijará según criterio médico. | No se permite hipertiroidismos complicados con síntomas cardíacos o neurológicos ni hipotiroidismos sintomáticos.
+4. Enfermedades paratiroideas | No deben existir enfermedades paratiroideas que ocasionen incremento de excitabilidad o debilidad muscular, excepto si el interesado presenta informe favorable de un especialista en endocrinología. El período de vigencia se fijará según criterio médico. | No se permiten enfermedades paratiroideas que ocasionen incremento de excitabilidad o debilidad muscular.
+5. Enfermedades adrenales. | Los afectados de enfermedades adrenales deberán presentar un informe favorable de un especialista en endocrinología en el que conste el estricto control y tratamiento de los síntomas. El período de vigencia del permiso o licencia será como máximo de dos años. | No se permite la enfermedad de Addison, el Síndrome de Cushing y la hiperfunción medular adrenal debida a feocromocitoma.
+| | | |
