@@ -1,0 +1,2 @@
+ARTÍCULO 17: ESTABLECIMIENTO DE CUPOS
+Cada unidad académica, por medio del consejo académico de unidad, establece los cupos anuales para los postulantes de primer ingreso, así como los estudiantes regulares de la Universidad que optan por el proceso de cambio de carrera u optan por una segunda carrera. Los cupos serán avalados por el consejo de facultad y ratificados por el Vicerrector de Docencia, quien los comunica al Departamento de Registro para su ejecución.

@@ -1,0 +1,2 @@
+ARTICULO 34: ASUNTOS DE COMPETENCIA DE LA DIRECCIÓN DEL DEPARTAMENTO DE REGISTRO
+Situaciones excepcionales en el uso de las tecnologías de información o durante la ejecución del proceso, que impidan a un interesado ejecutar su proceso de admisión y matrícula, que sean responsabilidad directa de la Universidad y no del interesado deberán ser presentadas y resueltas por los funcionarios del Departamento de Registro responsables del trámite. Y en caso de disconformidad, podrán presentarse y serán resueltas por el Director del Departamento.

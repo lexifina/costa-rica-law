@@ -1,0 +1,2 @@
+ARTÍCULO 19: CRITERIOS PARA EXONERACIÓN DE PAGO DEL DERECHO DE INSCRIPCIÓN AL PROCESO DE ADMISIÓN
+Le corresponde a la Vicerrectoría de Vida Estudiantil, proponer los criterios de exoneración de pago del derecho de inscripción al proceso de admisión, para postulantes actuales y egresados de la educación diversificada, así como para estudiantes regulares de la Universidad Nacional y remitirlos para su análisis y aprobación a la Vicerrectoría de Docencia, instancia que los comunicará al Departamento de Registro para su ejecución.

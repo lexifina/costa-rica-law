@@ -1,0 +1,2 @@
+ARTICULO 8: COMPETENCIA DE LA VICERRECTORÍA DE DOCENCIA
+La Vicerrectoría de Docencia es la instancia unipersonal ejecutiva que ejerce la rectoría en materia de información, atracción, inscripción, ubicación, admisión, matrícula, seguimiento y permanencia de los estudiantes de la Universidad Nacional, en planes de estudio conducentes a un grado académico. Preside el Consejo de Gestión para la Admisión y es la instancia competente para ejecutar sus acuerdos. Tiene bajo su adscripción al Departamento de Registro.

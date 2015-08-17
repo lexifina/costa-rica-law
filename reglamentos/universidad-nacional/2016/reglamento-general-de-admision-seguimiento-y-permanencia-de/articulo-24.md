@@ -1,0 +1,2 @@
+ARTÍCULO 24: LOS ESTRATOS, NOTA ESTRATIFICADA Y FÓRMULAS DE APLICACIÓN
+Corresponderá al Consejo de Gestión para la Admisión establecer en el manual de procedimientos de este reglamento los diferentes estratos, la estratificación de notas y las fórmulas de aplicación que operacionalicen los indicadores técnico y social, y permitan una selección de los postulantes acorde con los valores y principios estatutarios y las políticas institucionales de admisión.
