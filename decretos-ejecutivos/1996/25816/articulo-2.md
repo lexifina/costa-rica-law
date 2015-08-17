@@ -1,1 +1,0 @@
-Artículo 2°-La COTASSO tiene como objetivo general, apoyar todas las acciones que tiendan a desarrollar un plan que apoye las metas nacionales de disminución de accidentes de trabajo y mejoramiento de las condiciones de salud y seguridad en el país, tomando como base la alianza estratégica interinstitucional y la sociedad civil.

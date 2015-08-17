@@ -1,1 +1,0 @@
-Artículo 5°-La Comisión se reunirá en forma periódica una vez a mes, para discutir los mecanismos de coordinación y trabajo institucional, con el fin de cumplir los objetivos propuestos. Deberá rendir un informe trimestral de labores al Consejo de Salud Ocupacional mediante el cual se indicarán los avances de los proyectos y acuerdos emitidos.

@@ -1,2 +1,0 @@
-Artículo 7°-Todas las entidades estatales de naturaleza pública que tengan dentro de sus objetivos, la puesta en práctica de campañas nacionales de Seguridad y Salud Ocupacional, deberán presentar ante la Comisión el procedimiento de ejecución de dichos actos, a efecto de lograr y coordinar un trabajo integral en esta materia.
-Dicha presentación deberá realizarse en un plazo de un mes a partir de la publicación en el Diario Oficial del presente decreto.
