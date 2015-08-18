@@ -14,3 +14,4 @@ Establece Metodología de distribución de los recursos del Fondo de Desarrollo 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-22 | la propia norma |
+| 2 | 2015-08-18 | Directriz 22 (2015-08-18) |
