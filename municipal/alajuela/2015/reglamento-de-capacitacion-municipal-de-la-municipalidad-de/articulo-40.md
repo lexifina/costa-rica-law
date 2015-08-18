@@ -1,0 +1,1 @@
+Artículo 40.—Quien considere que se le afectan sus intereses a la hora de prestación del servicio de capacitación, podrá manifestar su inconformidad a través de un oficio donde explique los inconvenientes que acontecieron en el curso.

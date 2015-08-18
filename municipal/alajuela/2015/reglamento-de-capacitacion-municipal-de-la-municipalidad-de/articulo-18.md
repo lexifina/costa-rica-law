@@ -1,0 +1,1 @@
+Artículo 18.—Unidad Responsable. Recursos Humanos es la dependencia responsable de la articulación del Sistema Integral de Capacitación, Formación y Desarrollo su gestión, administración, presupuestación y fiscalización.

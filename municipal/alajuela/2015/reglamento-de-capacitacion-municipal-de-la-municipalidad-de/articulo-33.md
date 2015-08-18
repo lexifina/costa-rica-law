@@ -1,0 +1,1 @@
+Artículo 33.—En caso de traslado para realizar la capacitación fuera del municipio, el personal tendrá derecho a pasajes y viáticos de acuerdo a la normativa vigente sea interna o de la Contraloría General de la República y no estén estipulados en el curso, sujeto a la disponibilidad de recursos.

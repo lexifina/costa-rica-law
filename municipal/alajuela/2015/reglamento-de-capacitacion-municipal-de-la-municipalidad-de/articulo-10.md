@@ -1,0 +1,1 @@
+Artículo 10.—El personal que desee capacitarse en una actividad que no tenga relación con la función que desempeña y sea éste por interés propio, deberá hacerlo fuera de la jornada laboral y no requerirá autorización de la jefatura directa. De igual forma el costo de la actividad correrá por su cuenta.

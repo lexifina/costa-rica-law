@@ -1,0 +1,1 @@
+Artículo 11.—El personal tendrá derecho a que la Municipalidad cancele aquellos cursos que tengan relación con el puesto de trabajo dentro del municipio, aún y cuando su horario sea fuera de la jornada laboral. Este pago quedará sujeto al contenido presupuestario para dichas actividades.

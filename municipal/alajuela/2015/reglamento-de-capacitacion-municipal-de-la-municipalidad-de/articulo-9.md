@@ -1,0 +1,1 @@
+Artículo 9º—A quienes se imparta capacitación y cumplan con los requisitos establecidos, tendrán derecho a recibir un certificado, cuyas características deberán especificarse en la convocatoria o invitación correspondiente.

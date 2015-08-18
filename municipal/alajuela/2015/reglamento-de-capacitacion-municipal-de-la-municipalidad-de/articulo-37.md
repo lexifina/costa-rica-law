@@ -1,0 +1,1 @@
+Artículo 37.—Convenios con Empresas Privadas. La Municipalidad de Alajuela podrá firmar convenios de cooperación, observando las normas de contratación administrativa aplicables, para la adjudicación de cursos de capacitación de interés institucional.

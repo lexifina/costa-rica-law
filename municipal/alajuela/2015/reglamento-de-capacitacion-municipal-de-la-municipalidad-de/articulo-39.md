@@ -1,0 +1,1 @@
+Artículo 39.—Corresponderá al Proceso de Servicios Jurídicos llevar el procedimiento administrativo relativo a la imposición de la posible sanción, para lo cual será aplicable el procedimiento establecido en el Libro Segundo de la Ley General de la Administración Pública.

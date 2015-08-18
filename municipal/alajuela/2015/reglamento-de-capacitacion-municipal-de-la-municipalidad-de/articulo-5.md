@@ -1,0 +1,1 @@
+Artículo 5º—El personal que preste sus servicios en la Municipalidad de Alajuela, tiene derecho a participar en la capacitación necesaria para el mejor desempeño de sus funciones, un vez que se nombre en propiedad e ingrese a la carrera administrativa municipal. La participación en los programas, quedará sujeto a contenido presupuestario para dichas actividades.

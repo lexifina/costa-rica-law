@@ -1,0 +1,1 @@
+Artículo 25.—Planes y Programas de Capacitación. Deberá basarse, invariablemente, en la detección de necesidades de capacitación y contener las actividades a realizar durante un período de un año, así como estimar el presupuesto anual de dichas actividades. Al resultado de esta acción se denominará Programa Anual de Capacitación.

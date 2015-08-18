@@ -1,0 +1,1 @@
+Artículo 22.—Conclusión de los programas. Concluidas las actividades de capacitación, formación y desarrollo, se deberá extender las constancias, certificaciones o diplomas que correspondan, conforme al cumplimiento de los requisitos establecidos.

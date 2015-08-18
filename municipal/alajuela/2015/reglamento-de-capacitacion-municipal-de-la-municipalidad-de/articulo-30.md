@@ -1,0 +1,1 @@
+Artículo 30.—Las actividades emergentes requeridas para grupos o colaboradores(as) individuales que demanden un costo superior a los ¢500.000,00 deberán ser solicitadas con un periodo de antelación de 30 días hábiles, a fin de ajustar el presupuesto o modificación interna necesaria para su realización; así como gestionar la aprobación del curso.

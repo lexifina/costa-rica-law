@@ -1,0 +1,1 @@
+Artículo 34.—Las licencias para estudio dentro de la jornada laboral, para asistir a programas de educación ya sea primaria, secundaria o universitaria será autorizada por la Alcaldía Municipal, siempre que tenga beneficio sobre los intereses municipales y siguiendo el procedimiento dispuesto para ello.

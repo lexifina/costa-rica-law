@@ -1,0 +1,1 @@
+Artículo 20.—Los planes y programas de capacitación que se establezcan deberán responder prioritariamente a las necesidades de la función del cargo desempeñado, de optimización de los servicios institucionales, seguimiento de políticas institucionales, de desarrollo personal y esparcimiento del personal.

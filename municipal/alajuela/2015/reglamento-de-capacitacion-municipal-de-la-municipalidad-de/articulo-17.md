@@ -1,0 +1,1 @@
+Artículo 17.—Siendo el proceso de Capacitación una tarea Institucional, corresponderá a las jefaturas de cada una de las dependencias administrativas apoyar la ejecución de los programas, inducir y motivar al personal de su dependencia para que participen en ellos.

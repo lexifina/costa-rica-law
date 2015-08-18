@@ -1,0 +1,1 @@
+Artículo 7º—La capacitación se deberá impartir preferiblemente fuera de la jornada laboral, salvo que, atendiendo a las necesidades de los servicios, se tenga que recibir en un horario distinto, previo memorial razonado por parte del superior inmediato.
