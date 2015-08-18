@@ -1,0 +1,1 @@
+Artículo 7º—Los contratos de trabajo o acciones de personal se harán en tres tantos uno para la Municipalidad para efectos de trámite interno, otro para la persona funcionaria interesada, y la tercera para el expediente de personal.

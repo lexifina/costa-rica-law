@@ -1,0 +1,1 @@
+Artículo 22.—El pago de las vacaciones se hará con base en el promedio de los salarios ordinarios y extraordinarios devengados por la persona trabajadora durante las cincuenta semanas de trabajo, o durante el tiempo que le otorga derecho proporcional a las mismas.

@@ -1,0 +1,2 @@
+Artículo 4º—La aplicación del presente Reglamento, corresponde al Alcalde(sa) Municipal y a los(as) representantes patronales para el personal a cargo de la Administración Municipal y respecto a los y las servidores(as) que pertenecen al Concejo Municipal dicho órgano determinará su propio régimen, pudiendo aplicar las normas del presente Reglamento de forma supletoria.
+En cuanto al régimen que regula al equipo de trabajo del Comité Cantonal de Deportes de Alajuela (CODEA), se remite a la normativa correspondiente.

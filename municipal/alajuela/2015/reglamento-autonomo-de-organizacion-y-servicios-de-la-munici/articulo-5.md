@@ -1,0 +1,1 @@
+Artículo 5º—El Alcalde(sa) Municipal en conjunto con la jefatura de Recursos Humanos controlará todo lo concerniente a nombramientos, despidos, cambios de puesto, ascensos, vacaciones, permisos mediante una acción de personal.

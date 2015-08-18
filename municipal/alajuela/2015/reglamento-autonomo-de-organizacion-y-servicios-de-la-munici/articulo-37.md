@@ -1,0 +1,1 @@
+Artículo 37.—La asistencia al Seguro Social cuando sea en horas laborales, se considerará como licencia con goce de salario, para ello la persona funcionaria deberá presentar el documento de control de asistencia que la institución aseguradora otorga para estos fines.
