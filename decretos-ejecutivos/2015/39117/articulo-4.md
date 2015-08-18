@@ -1,0 +1,2 @@
+Artículo 4º—Alcance. El Fondo cofinanciará proyectos de creadores audiovisuales y/o cinematográficos, que sean personas jurídicas debidamente inscritas y al día, que cumplan con los requisitos y formalidades establecidos en este reglamento.
+El Fondo cofinanciará proyectos que necesariamente contengan contrapartes provenientes del sector privado o del sector público. El porcentaje del aporte se fijará anualmente en las bases de participación, respetando un rango de entre el 20% y el 40% del presupuesto total del proyecto.

@@ -1,0 +1,1 @@
+Artículo 30.—Propiedad intelectual. Para la ejecución de su proyecto, es obligación del beneficiario obtener las autorizaciones correspondientes para el uso de material protegido por Propiedad Intelectual, así como cubrir su pago, cuando corresponda. El CCPC solicitará los documentos de autorización o recibos que acrediten el cumplimiento de esta obligación.

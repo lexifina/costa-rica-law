@@ -1,0 +1,1 @@
+Artículo 33.—Evaluación anual. El CCPC designará mecanismos de evaluación anuales para el Fondo, que permitan determinar las mejoras que deben hacerse en cada convocatoria y sus procesos de selección.

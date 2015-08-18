@@ -1,0 +1,2 @@
+Artículo 3º—Competencia. El CCPC será la instancia competente para la aplicación del presente reglamento y tendrá bajo su responsabilidad la administración y asignación de los recursos del Fondo, con competencia para recibir, tramitar y aprobar los proyectos beneficiarios, y fiscalizar el giro y ejecución de los recursos económicos para su realización.
+Para atender esta competencia, podrá recibir apoyo de otras instancias del Ministerio de Cultura y Juventud, según las posibilidades que establecen las leyes vigentes.

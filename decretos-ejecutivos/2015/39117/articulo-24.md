@@ -1,0 +1,2 @@
+Artículo 24.—Evaluación de la producción. El beneficiario estará en la obligación de brindar las facilidades necesarias, para que la producción sea evaluada por el CCPC; quien podrá desarrollar los mecanismos de fiscalización que considere pertinentes.
+El CCPC pondrá a disposición del beneficiario (según Anexo 4 del presente reglamento), el formulario para la rendición de informes de avance del proyecto, que serán de acatamiento obligatorio para fiscalizar el cumplimiento de lo establecido en el convenio suscrito.
