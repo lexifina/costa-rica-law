@@ -1,0 +1,1 @@
+Artículo 27.—Conservación de las condiciones laborales. Corresponderá al jefe superior inmediato mantener las condiciones de ambiente laboral, retribución, oportunidades, y capacitación a las que pueda tener derecho la persona teletrabajadora.

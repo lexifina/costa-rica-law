@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad de la persona teletrabajadora ante la falla de recursos informáticos. La persona teletrabajadora será responsable de notificar de forma inmediata a su jefatura y a la Dirección de Informática, cualquier tipo de falla que pueda presentarse con el equipo informático que le imposibilite cumplir sus funciones.

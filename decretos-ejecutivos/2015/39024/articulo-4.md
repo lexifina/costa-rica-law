@@ -1,0 +1,1 @@
+Artículo 4º—Puestos que pueden teletrabajar. Cuando un puesto tenga actividades teletrabajables, el funcionario podrá desarrollarlo desde el lugar destinado para tal fin, previa coordinación con el jefe superior inmediato y que cuente con la aprobación de la Comisión Institucional de Teletrabajo.

@@ -1,0 +1,1 @@
+Artículo 11.—Confidencialidad y responsabilidad de la información. La persona teletrabajadora será responsable por la confidencialidad y seguridad de la información a la que tenga acceso por medio de los servidores del Ministerio, ya que de comprobarse el uso distinto para el que está destinado, será sometido a la investigación respectiva.

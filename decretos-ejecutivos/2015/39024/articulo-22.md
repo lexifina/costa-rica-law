@@ -1,0 +1,1 @@
+Artículo 22.—Sobre el seguro social y los riesgos del trabajo. La persona teletrabajadora estará protegida por el seguro social de la Caja Costarricense de Seguro Social y la póliza de riesgos del trabajo del Instituto Nacional de Seguros, sin importar el lugar donde ocurran.

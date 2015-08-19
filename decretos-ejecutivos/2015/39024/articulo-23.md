@@ -1,0 +1,1 @@
+Artículo 23.—Duración de la relación de teletrabajo. La duración y jornada laboral quedará definida en el contrato respectivo. De requerirse su continuidad y acuerdo de las partes se podrá prorrogar automáticamente por igual término, acto que será comunicado por la Dirección de Recursos Humanos.

@@ -1,0 +1,1 @@
+Artículo 18.—Desplazamiento de las personas teletrabajadoras. Cuando se encuentre laborando bajo esta modalidad y se requiera su presencia en la oficina, el jefe superior inmediato será el responsable de localizarlo y otorgarle un plazo razonable para que pueda desplazarse, tomando en cuenta factores como tiempo y distancia.

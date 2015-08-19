@@ -1,0 +1,1 @@
+Artículo 15.—Compromisos y gastos. La persona teletrabajadora asumirá los compromisos en que pueda incurrir por servicios de agua, electricidad, internet, teléfono, transporte, alimentación y cualquier otro gasto relacionado con el desarrollo de las actividades teletrabajables.

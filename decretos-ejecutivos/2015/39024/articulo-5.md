@@ -1,0 +1,1 @@
+Artículo 5º—Elaboración del contrato. Estará a cargo de la Dirección de Recursos Humanos, que a su vez será el órgano encargado y responsable de informar al Departamento de Riesgos del Trabajo del Instituto Nacional de Seguros los funcionarios que estén laborando bajo la modalidad de teletrabajo. Este informe también debe remitirse a la Comisión.

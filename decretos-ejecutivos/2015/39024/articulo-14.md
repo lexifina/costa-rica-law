@@ -1,0 +1,1 @@
+Artículo 14.—Derechos y obligaciones. El funcionario que acceda a esta modalidad de trabajo, tendrá los derechos y obligaciones establecidos en el Estatuto y Reglamento de Servicio Civil, Reglamento Autónomo de Servicio del Ministerio, además de los conferidos mediante el contrato de teletrabajo.

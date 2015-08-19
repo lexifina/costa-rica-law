@@ -1,0 +1,1 @@
+Artículo 13.—Visto bueno de la jefatura. La persona que desee laborar bajo esta modalidad, deberá contar con el visto bueno del jefe superior inmediato y remitir la solicitud a la Comisión Institucional de Teletrabajo, instancia encargada de estudiar el caso y comunicar al interesado si avala o no la petición.

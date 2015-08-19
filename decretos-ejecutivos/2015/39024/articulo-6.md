@@ -1,0 +1,1 @@
+Artículo 6º—Finalización del teletrabajo. La Institución puede dejar sin efecto el teletrabajo cuando se demuestre que la persona teletrabajadora incumple las disposiciones establecidas en el contrato o por razones de conveniencia o interés institucional, acuerdo de las partes o a petición del funcionario, en cuyos casos deberá reintegrarse a su centro de trabajo.
