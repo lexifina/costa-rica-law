@@ -1,0 +1,2 @@
+Artículo 16.—Ajuste de montos de la caución. La Oficina de Gestión Institucional de Recursos Humanos actualizará los montos por caucionar para cada uno de los niveles establecidos en el artículo 9°, tomando como parámetro las modificaciones del salario base establecido en la Ley Nº 7337 de 5 de mayo de 1993.
+Dichas actualizaciones serán comunicadas por escrito a los funcionarios (as) caucionantes y se harán efectivas al momento en que el caucionante proceda a renovar la garantía correspondiente.

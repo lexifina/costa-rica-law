@@ -1,0 +1,2 @@
+Disposiciones transitorias
+Transitorio I.—Dentro del mes siguiente a la entrada en vigencia del presente Reglamento, la Oficina de Gestión Institucional de Recursos Humanos prevendrá por escrito a todos los sujetos obligados a rendir caución para que la otorguen, indicándoles el monto por el cual debe rendirse. Los obligados deberán otorgar la garantía y presentar los comprobantes respectivos ante la Oficina de Gestión Institucional de Recursos Humanos dentro de los veinte días hábiles siguientes al vencimiento de plazo arriba indicado.

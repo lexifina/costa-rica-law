@@ -1,0 +1,1 @@
+Artículo 11.—Funcionario (a) con más de un cargo. El servidor (a) de un puesto que por Decreto, Ley o disposición interna le corresponda asumir otras funciones donde se recaude, custodie, administre fondos y valores públicos, tendrá un plazo de 20 días hábiles, para que rinda una única caución por el monto que corresponda según la clasificación del artículo 9 de este reglamento.

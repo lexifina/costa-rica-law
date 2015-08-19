@@ -1,0 +1,1 @@
+Artículo 13.—Ajuste de la caución. El funcionario (a) obligado a rendir caución, que por algún motivo sea trasladado de un puesto a otro que implique una nueva ubicación en la clasificación indicada en los artículos 8 ó 9° de este reglamento, deberá ajustar la garantía conforme a la nueva situación, para lo cual contará con un plazo de veinte días hábiles.

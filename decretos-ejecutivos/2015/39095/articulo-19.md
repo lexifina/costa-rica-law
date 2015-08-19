@@ -1,0 +1,1 @@
+Artículo 19.—Supervisión y cumplimiento. La Oficina de Gestión Institucional de Recursos Humanos será la encargada de ejecutar las labores relacionadas con el control y supervisión de las garantías que deberán rendir los funcionarios de éste Ministerio en los tres niveles de gestión.

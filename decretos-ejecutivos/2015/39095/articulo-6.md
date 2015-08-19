@@ -1,0 +1,1 @@
+Artículo 6º—Deber de solventar la caución. Es deber del caucionante gestionar y sufragar de su propio peculio el costo de la garantía a favor del Ministerio de Vivienda y Asentamientos Humanos, la cual debe mantenerse vigente siempre y cuando el puesto que ocupa el funcionario (a) esté afecto a la rendición de la Declaración de Bienes ante la Contraloría General de la República.

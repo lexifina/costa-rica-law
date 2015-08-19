@@ -1,0 +1,1 @@
+Artículo 12.—Recargo de Funciones. El funcionario (a) que obligado a caucionar, se le asignen o recarguen otras funciones que generen ese mismo deber, caucionará una sola vez y por el monto de mayor valor.

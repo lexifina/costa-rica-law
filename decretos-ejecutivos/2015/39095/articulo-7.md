@@ -1,0 +1,1 @@
+Artículo 7.—Plazo de las garantías. Las garantías ofrecidas por los funcionarios (as) públicos deberán mantenerse vigentes mientras ocupen sus cargos, así como por el lapso de prescripción de la responsabilidad civil o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios.

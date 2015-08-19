@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de aplicación. El presente Reglamento se aplicará a todos los servidores (as) del Ministerio de Vivienda y Asentamientos Humanos, que estén encargados de administrar, recaudar o custodiar fondos y valores públicos, o que por la naturaleza de sus funciones deban caucionar; según lo establece el artículo 111 de la Ley General de la Administración Pública.

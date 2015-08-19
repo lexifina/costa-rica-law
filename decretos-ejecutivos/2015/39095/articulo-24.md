@@ -1,0 +1,1 @@
+Artículo 24.—Responsabilidad. El incumplimiento o inobservancia de cualquiera de las disposiciones del presente Reglamento será causal de responsabilidad disciplinaria, sin perjuicio de otras responsabilidades administrativas, penales o civiles en las que incurra el funcionario (a) de acuerdo con el ordenamiento jurídico vigente.
