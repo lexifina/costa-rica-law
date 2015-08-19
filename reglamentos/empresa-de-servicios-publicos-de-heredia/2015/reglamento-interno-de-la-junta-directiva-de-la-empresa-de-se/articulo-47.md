@@ -1,0 +1,2 @@
+Artículo 47.—Procedimiento de contratación. Las contrataciones anteriores y cualquieras quiera otras de servicios profesionales o asesorías que requiera la Junta Directiva, las realizará éstas mediante un procedimiento sumario, respetando los principios de Contratación Administrativa, y privilegiando la idoneidad de los proponentes, de manera que se obtenga servicios idóneos y de la calidad requerida.
+Dichas contrataciones podrán realizarse por plazos hasta de tres años, pudiéndose prorrogar cuando así se requiera y convenga a los intereses de la Junta Directiva.

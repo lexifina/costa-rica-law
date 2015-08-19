@@ -1,0 +1,1 @@
+Artículo 36.—Solicitud de autoridad competente. Las disposiciones anteriores sobre confidencialidad de las minutas, y cuanto adquiera el carácter de acta, no se aplicarán cuando la solicitud de certificación emane de autoridad competente.
