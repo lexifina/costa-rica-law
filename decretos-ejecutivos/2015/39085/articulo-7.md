@@ -1,0 +1,1 @@
+Artículo 7°—Potestad de consulta. La Comisión Técnica Interinstitucional de Estadísticas de Convivencia y Seguridad Ciudadana para el cumplimiento de sus objetivos, podrá consultar a representantes de diferentes instituciones y organizaciones gubernamentales de la Administración Central y Descentralizada y a sectores de la sociedad civil.
