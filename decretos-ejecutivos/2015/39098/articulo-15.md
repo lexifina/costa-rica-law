@@ -1,0 +1,2 @@
+Artículo 15.—Actualización de los montos por acarreo y custodia: Los montos establecidos en el artículo segundo del presente reglamento se deberán revisar y actualizar al menos una vez cada año, aplicando para ello el Principio de Servicio al Costo. Las nuevas tarifas regirán a partir del día siguiente a su publicación en el Diario Oficial La Gaceta.
+El Consejo de Seguridad Vial a más tardar en el mes de diciembre de cada año emitirá y publicará la tabla correspondiente con el monto de las tarifas actualizadas para el año calendario siguiente.

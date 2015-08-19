@@ -1,0 +1,1 @@
+Artículo 16.—Cálculo del monto de custodia por varios periodos: Cuando un vehículo permanezca detenido durante un plazo en el que han estado vigentes distintas tarifas por concepto de custodia, los montos a cancelar serán los que corresponden a cada periodo.

@@ -1,0 +1,1 @@
+Artículo 9º—Determinación del cobro por custodia: Para determinar la cantidad de días a cobrar por la permanencia de los vehículos en los depósitos, se acudirá a la fecha consignada en la boleta de citación (original o copia) y se contarán el número de días naturales transcurridos entre el día siguiente de la detención y el día anterior al que se solicita su devolución.

@@ -1,0 +1,1 @@
+Artículo 6º—Comprobación de acarreo del vehículo: Para determinar si el vehículo efectivamente fue acarreado por la autoridad de tránsito, mediante grúa, plataformas, “pick-up” u otro medio aportado por la autoridad administrativa; la administración podrá acudir a cualquier otra fuente adicional a la boleta de citación.

@@ -1,0 +1,1 @@
+Artículo 7º—Traslado administrativo del vehículo: Cuando un vehículo sea trasladado de un depósito a otro, por decisión de la autoridad administrativa, se cobrará únicamente el acarreo desde el lugar de la detención inicial hasta el lugar donde se depositó el vehículo por primera vez.

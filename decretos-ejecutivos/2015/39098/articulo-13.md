@@ -1,0 +1,2 @@
+Artículo 13.—Pagos no autorizados: Cualquier pago que se realice en forma distinta de la establecida y de las que llegue a autorizar el Consejo de Seguridad Vial, se tendrá por no efectuado.
+El empleado público que acepte directamente pagos de tarifas por acarreo y custodia de vehículos detenidos, sin estar formalmente autorizado para ello, incurrirá en falta grave a la relación laboral y será sancionado de conformidad con la normativa aplicable, según proceda; sin perjuicio de las sanciones civiles y/o penales que correspondan.

@@ -1,0 +1,1 @@
+Artículo 17.—Administración de los recursos: Los recursos recaudados por el acarreo y custodia de vehículos detenidos por infracciones a la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078, serán administrados de conformidad con la Ley de Administración Financiera de la República y Presupuestos Públicos Nº 8131 y sus reformas.
