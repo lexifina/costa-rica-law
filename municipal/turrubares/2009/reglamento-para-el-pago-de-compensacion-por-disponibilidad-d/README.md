@@ -14,3 +14,4 @@ Reglamento para el pago de compensación por Disponibilidad, Dedicación Exclusi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-07-31 | la propia norma |
+| 2 | 2015-08-19 | Reglamento municipal 37 (2015-08-19) |
