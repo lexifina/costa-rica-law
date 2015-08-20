@@ -1,0 +1,1 @@
+Artículo 3º—Se faculta al Ministerio de Economía, Industria y Comercio, a través del Laboratorio Costarricense de Metrología (LACOMET), para que ejecute las acciones necesarias que garanticen el cumplimiento de lo dispuesto en este reglamento.
