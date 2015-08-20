@@ -1,0 +1,1 @@
+Artículo 38.—Devolución de préstamos. Las personas funcionarias que dejen de laborar para la Institución, deberán devolver a la Unidad aquellas colecciones o equipos que se les haya facilitado en condición de préstamo y cancelar cualquier otro monto derivado de extravío, atraso o deterioro en la devolución de materiales.

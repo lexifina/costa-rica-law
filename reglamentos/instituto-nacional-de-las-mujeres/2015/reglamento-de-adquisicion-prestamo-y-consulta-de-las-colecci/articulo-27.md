@@ -1,0 +1,1 @@
+Artículo 27.—Casos fortuitos. Si por razones de fuerza mayor o caso fortuito la persona funcionaria no devuelve el material bibliográfico impreso, audiovisual o equipo en la fecha prevista, deberá presentar las razones que justifiquen su incumplimiento en la devolución para su valoración o estudio por parte de la jefatura de la Unidad.

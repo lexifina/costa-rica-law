@@ -1,0 +1,1 @@
+Artículo 31.—Notificación. La Unidad notificará a la persona usuaria morosa, el monto a pagar por concepto de multa o si corresponde el pago del valor de la colección en sus diferentes formatos, en caso de pérdida o por deterioro. La persona funcionaria dispondrá de tres días hábiles para el pago. De la notificación se remitirá una copia a la Unidad de Tesorería.

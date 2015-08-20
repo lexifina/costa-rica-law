@@ -1,0 +1,1 @@
+Artículo 35.—Reposición de colecciones. Para el caso indicado en el artículo anterior, la persona usuaria someterá a consideración de la Unidad, tres obras con un contenido similar a la extraviada y un valor económico proporcional o mayor, con el fin de obtener la aprobación respectiva de una de ellas, como último recurso, para reponer en parte el material perdido deteriorado.

@@ -1,0 +1,1 @@
+Artículo 32.—Aplicación de normativa. El incumplimiento en los plazos establecidos en el artículo anterior acarreará la aplicación de multas y sanciones disciplinarias conforme con la normativa vigente.

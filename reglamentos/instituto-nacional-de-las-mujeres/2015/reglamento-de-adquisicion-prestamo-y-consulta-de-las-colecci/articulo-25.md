@@ -1,0 +1,1 @@
+Artículo 25.—Devoluciones. La persona usuaria deberá devolver el material consultado impreso o equipos en buen estado y dentro del plazo establecido en la boleta de préstamo. Caso contrario se hará acreedor de la sanción respectiva.

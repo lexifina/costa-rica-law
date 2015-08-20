@@ -1,0 +1,1 @@
+Artículo 42.—Disposiciones finales. Derogatorias. Se deroga el Reglamento de Préstamo y Consulta de la Producción Editorial Interna, Externa y Equipos, aprobado por la Junta Directiva del INAMU y publicado en el Diario Oficial La Gaceta Número 24 del día 04 de febrero del 2009, así como cualquier disposición anterior.

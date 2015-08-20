@@ -1,0 +1,1 @@
+Artículo 41.—Responsabilidades. El incumplimiento de alguna de las disposiciones del presente reglamento acarreará responsabilidad administrativa, disciplinaria, civil y de cualquier otra índole, la cual se determinará mediante el debido proceso y en aplicación del Reglamento Autónomo de Servicios, la Convención Colectiva y la Ley de Control interno.

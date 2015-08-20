@@ -1,0 +1,1 @@
+Artículo 21.—Prórrogas. La fecha del vencimiento del préstamo podrá ser prorrogada, siempre que la colección no haya sido solicitada por otras personas usuarias. Es indispensable la presentación de los ejemplares impresos o audiovisuales dentro del plazo establecido para su devolución, y llenar una nueva boleta de préstamo para hacer efectiva la prórroga.

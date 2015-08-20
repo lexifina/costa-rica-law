@@ -1,0 +1,3 @@
+Artículo 15.—Préstamo de colecciones en sala. Para utilizar las colecciones impresas en sala la persona usuaria deberá llenar la boleta y presentar la identificación correspondiente.
+Para utilizar las colecciones digitales en sala la persona usuaria deberá inscribirse en el Sistema de gestión (SIDOC) de la Unidad. También se podrá facilitar el préstamo de documentos digitales por medio de computadoras, tabletas, lectores de documentos digitales o cualquier otro dispositivo electrónico que lo permita. Está implícito el uso de personas usuarias.
+Se prestará hasta un máximo de cinco (5) documentos impresos simultáneamente, para su uso en sala. El tiempo de préstamo es de 4 horas prorrogables con la presentación del material documental.

@@ -1,0 +1,1 @@
+Artículo 36.—Pérdida de equipo. Para el caso de pérdida del equipo de cómputo, fotográfico, audiovisual, multimedia o cualquier otro se deberá seguir el procedimiento establecido por la institución para estos efectos.

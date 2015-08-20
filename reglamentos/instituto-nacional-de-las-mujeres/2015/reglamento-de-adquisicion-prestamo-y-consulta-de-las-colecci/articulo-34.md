@@ -1,0 +1,1 @@
+Artículo 34.—Extravío de colecciones. En caso de extravío de una colección la persona usuaria deberá comprobar ante la Unidad con tres cartas de diferentes librerías nacionales o internacionales, que no se puede reponer por no existir en plaza o estar agotada su edición.

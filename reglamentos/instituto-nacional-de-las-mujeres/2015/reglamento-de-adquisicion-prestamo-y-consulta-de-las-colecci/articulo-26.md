@@ -1,0 +1,1 @@
+Artículo 26.—Deterioro de colecciones. La persona usuaria que deteriore o mutile los materiales bibliográficos impresos, audiovisuales o de cualquier otro tipo recibidos en préstamo, deberá cubrir el valor de la reparación.

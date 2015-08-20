@@ -1,0 +1,1 @@
+Artículo 7º—Transferencia de fondos. El Área Financiero Contable procederá a transferir los recursos a la Unidad en la cuenta habilitada en dólares para tales efectos para la adquisición de las colecciones. El Área Financiero Contable contará con cinco días hábiles para realizar el trámite de reserva presupuestaria y transferencia.
