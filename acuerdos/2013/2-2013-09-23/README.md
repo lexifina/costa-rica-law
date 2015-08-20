@@ -14,3 +14,4 @@ Requisitos para la postulación del bono familiar de vivienda dentro del program
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-06 | la propia norma |
+| 2 | 2015-08-20 | Acuerdo 1 (2015-08-20) |
