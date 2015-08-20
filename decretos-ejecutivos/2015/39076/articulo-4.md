@@ -1,0 +1,1 @@
+Artículo 4º—Apoyo del Proyecto. El Poder Ejecutivo, consciente de la necesidad de articular esfuerzos públicos y privados para armonizar las modalidades de transportes seguro y sostenible con el tema urbano, apoyará este tipo de iniciativas, estableciendo las alianzas que sean necesarias para el desarrollo óptimo del Congreso.

@@ -1,0 +1,1 @@
+Artículo 3º—Mejora y Eficiencia Administrativa. La Administración Pública Central y Descentralizada, contribuirá aplicando las reglas de simplificación de trámites, eficiencia administrativa y coordinación interinstitucional, agilizando todos aquellos trámites que con ocasión de la organización de dicho Congreso se gestionen.
