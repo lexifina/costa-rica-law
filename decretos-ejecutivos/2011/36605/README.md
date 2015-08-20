@@ -17,3 +17,4 @@ Publica resolución 257-2010 (COMIECO-LIX): Reglamento Técnico Centroamericano 
 | 2 | 2014-02-28 | Decreto Ejecutivo 38412 (2014-02-28) |
 | 3 | 2014-07-28 | Decreto Ejecutivo 38819 (2014-07-28) |
 | 4 | 2015-04-27 | Decreto Ejecutivo 39030 (2015-04-27) |
+| 5 | 2015-08-20 | Decreto Ejecutivo 39313 (2015-08-20) |
