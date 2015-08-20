@@ -1,0 +1,1 @@
+Artículo 25.—Registro de usuarios de CompraRed. La DGABCA es la encargada de verificar los perfiles de los usuarios del sistema y validar la documentación aportada a la gestión de registro o actualización.

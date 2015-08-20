@@ -1,0 +1,1 @@
+Transitorio II.—Las instituciones de la Administración Central que hayan iniciado procesos de contratación administrativa con anterioridad a la publicación del presente Decreto, en la plataforma tecnológica base del Sistema Unificado Electrónico de Compras Públicas, creado mediante el Decreto N° 37943-H-MICITT, deberán finalizarlos en esa plataforma.

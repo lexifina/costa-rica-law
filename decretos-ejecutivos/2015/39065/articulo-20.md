@@ -1,0 +1,1 @@
+Artículo 20.—Sobre la autenticidad del contenido del mensaje. Para todos los efectos, prevalecerá el contenido del mensaje que de acuerdo a los registros de CompraRed, se demuestre fue enviado o recibido utilizando los mecanismos de seguridad aplicados en este, como son la firma digital certificada; la encriptación, entre otros.

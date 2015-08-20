@@ -1,0 +1,1 @@
+Artículo 50.—A partir de la publicación del presente Decreto Ejecutivo, toda otra disposición reglamentaria conexa o de inferior rango que haga referencia a Sistema Unificado Electrónico de Compras Públicas, deberá leerse como Sistema de Compras Gubernamentales “CompraRed”.

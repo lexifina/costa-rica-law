@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Del administrador y seguridad del sistema
+Artículo 21.—Administrador del sistema. La administración de CompraRed estará a cargo de la DGABCA, con el apoyo técnico de la Dirección de Tecnologías de la Información y Comunicaciones, ambas dependencias del Ministerio de Hacienda, las cuales deberán velar porque el sistema cumpla con al menos los requisitos que en materia de seguridad señala el presente Reglamento; de manera tal que se garantice la identificación del emisor y receptor del mensaje mediante la verificación de la firma digital certificada y los servicios de validación de certificados, la conservación del contenido original de cada documento electrónico que se reciba y se envíe, y se permita la impresión del mismo.

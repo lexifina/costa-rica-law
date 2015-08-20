@@ -1,0 +1,1 @@
+Artículo 14.- Registro de Inhibidos. Todas las Instituciones de la Administración Pública deberán registrar y mantener actualizada en CompraRed, la información relativa al Régimen de Prohibiciones de los funcionarios que laboran en su dependencia, para lo cual deberán cumplir con los procedimientos establecidos por la DGABCA.

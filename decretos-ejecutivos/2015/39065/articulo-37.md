@@ -1,0 +1,1 @@
+Artículo 37.—De la invitación a inscribirse: La DGABCA invitará a formar parte del Registro, por lo menos una vez al año, procurando que sea en el mes de enero de cada año, o cuando lo considere conveniente para la satisfacción del interés público, mediante divulgación en el Diario Oficial, así como mediante CompraRed.
