@@ -14,3 +14,4 @@ Reglamento para la transferencia, uso, control y liquidación de los recursos gi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-30 | la propia norma |
+| 2 | 2015-08-21 | Reglamento 31 (2015-08-21) |
