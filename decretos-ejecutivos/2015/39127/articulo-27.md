@@ -1,0 +1,1 @@
+Artículo 27.—Selección. De la Lista de elegibles, el Ministro hará la selección de los candidatos que realizarán el período de prueba en consideración de la nota obtenida y las condiciones para desempeñar el puesto específico de que se trate, según los perfiles de los puestos incluidos en los manuales internos.

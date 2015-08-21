@@ -1,0 +1,1 @@
+Artículo 5º—La Subcomisión examinadora. La Comisión Ad Hoc nombrará de su seno una Subcomisión examinadora con tres de sus miembros, uno de los cuales será el representante del Ministro, para coordinar el proceso de elaboración y corrección de los exámenes, la cual será responsable por la confidencialidad de los textos y la objetividad de las calificaciones.

@@ -1,0 +1,2 @@
+Artículo 29.—Inhabilitación temporal. Las personas que por razones disciplinarias hayan sido destituidas de la carrera diplomática o separadas del servicio durante el año de prueba no podrán participar en concursos posteriores sino hasta diez años cumplidos después de su destitución o separación.
+Igualmente quedarán inhabilitados de participar en concursos de oposición hasta por diez años, aquellas personas que hubieran sido nombradas en comisión y separadas de su cargo por razones disciplinarias.

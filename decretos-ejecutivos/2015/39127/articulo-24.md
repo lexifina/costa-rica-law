@@ -1,0 +1,1 @@
+Artículo 24.—Conclusión de las fases de evaluación. Una vez concluidas las dos fases de evaluación, la Comisión Ad Hoc del Servicio Exterior determinará el puntaje final obtenido por cada concursante que haya culminado el proceso de evaluación y se lo comunicará por medio de la dirección de correo electrónico aportada.

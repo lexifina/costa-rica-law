@@ -1,0 +1,1 @@
+Artículo 12.—Código de identificación. A cada participante se le asignará un código de identificación confidencial que será utilizado durante el procedimiento de evaluación, para garantizar condiciones objetivas de participación.

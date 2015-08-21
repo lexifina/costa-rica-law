@@ -1,0 +1,5 @@
+Artículo 23.—Evaluación de atestados. Los atestados se evaluarán con un porcentaje máximo de un 5% del total de la calificación, de la siguiente forma:
+a) Dominio, debidamente comprobado a satisfacción de la Comisión, de otro idioma adicional al ya presentado para ingresar al concurso, 1 punto porcentual.
+b) Cursos de Capacitación sobre temas de Diplomacia o temas afines a razón de 0.5 punto porcentual por cada 30 horas de capacitación, lo que no podrá exceder de 1 punto porcentual.
+c) Por grados universitarios: 0.5 punto porcentual por cada bachillerato universitario, 1 punto porcentual por licenciatura. Si una persona tuviere varios grados de diferente valor en la misma carrera universitaria, de ellos solamente se tomará en cuenta el grado más alto, lo que no podrá exceder 1 punto porcentual.
+d) Por posgrados universitarios: 1 punto porcentual por especialidad, 1.5 punto porcentual por maestría, 2 puntos porcentuales por doctorado. Este rubro no podrá exceder de 2 puntos porcentuales.

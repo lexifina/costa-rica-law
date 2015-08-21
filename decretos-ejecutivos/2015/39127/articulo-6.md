@@ -1,0 +1,1 @@
+Artículo 6º—Asistencia técnica. Para la comprobación de la idoneidad y conocimientos, así como para la calificación de los concursantes, la Comisión Ad Hoc podrá solicitar la asistencia técnica y logística del Instituto del Servicio Exterior Manuel María de Peralta y de otras instituciones de enseñanza universitaria.

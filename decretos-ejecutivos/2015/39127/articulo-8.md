@@ -1,0 +1,2 @@
+Artículo 8º—Convocatoria. El Ministro ordenará la convocatoria a los concursos de oposición de ingreso a la Carrera del Servicio Exterior, para lo que girará las instrucciones correspondientes a la Comisión Ad Hoc.
+La Comisión Ad Hoc hará la convocatoria mediante avisos al público, en las sedes del Ministerio y en su página electrónica. Asimismo, el día del lanzamiento de la convocatoria, deberá publicar una invitación al público en general por medio de un aviso en un diario de circulación nacional, que incluirá un extracto de ésta.
