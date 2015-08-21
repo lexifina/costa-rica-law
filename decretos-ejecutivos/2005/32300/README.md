@@ -20,3 +20,4 @@ Reglamento Autónomo de Organización y Servicio de la Presidencia de la Repúbl
 | 5 | 2013-02-26 | Decreto Ejecutivo 37590 (2013-02-26) |
 | 6 | 2014-06-06 | Decreto Ejecutivo 38525 (2014-06-06) |
 | 7 | 2015-04-21 | Decreto Ejecutivo 38977 (2015-04-21) |
+| 8 | 2015-08-21 | Decreto Ejecutivo 39164 (2015-08-21) |

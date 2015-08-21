@@ -14,3 +14,5 @@ j) Rendir informes escritos sobre las actividades realizadas con la periodicidad
 k) Cumplir las obligaciones señaladas en el artículo 102 de la Ley General de la Administración Pública y todas las demás propias de su cargo.
 l) Mantener las normas de respeto, recíprocas y apropiadas, para lograr relaciones humanas cordiales con sus colaboradores, compañeros y superiores.
 m) Dar órdenes a sus subalternos para la ejecución de asuntos ajenos a su labor oficial.
+n) Velar por que sus subalternos no incurran en prácticas discriminatorias hacia ningún servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de tener noticia, ya sea de manera personal o por interpósita persona, de que algún subalterno incurrió en estas prácticas, instruir para el inicio del procedimiento sancionatorio correspondiente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39164 del 21 de agosto del 2015)

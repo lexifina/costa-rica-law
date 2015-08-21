@@ -4,7 +4,8 @@ Artículo 109. —El acoso psicológico y moral puede manifestarse, entre otras 
 3. Asignar un plazo irrazonable para la ejecución del trabajo.
 4. Evaluación del trabajo de manera no equitativa o de forma sesgada.
 5. Difusión de rumores o de calificativos negativos, así como generar desconfianza de sus valores morales e integridad o provocar desprestigio.
-6. Discriminación en razón de género, etnia, nacionalidad, religión, filiación política, idioma, ocupación, y edad.
+6. Discriminación en razón de género, etnia, nacionalidad, religión, filiación política, idioma, ocupación, edad, orientación sexual e identidades de género o por tener algún tipo de discapacidad.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39164 del 21 de agosto del 2015)
 7. Intervención de los medios de comunicación utilizados por el trabajador o trabajadora, tales como teléfono, fax, correos, correos electrónicos y otros.
 8. Intromisión en el ámbito privado y personal del acosado o acosada.
 9. Utilización de expresiones indebidas, como miradas despectivas, gestos de burla, entre otras manifestaciones.
