@@ -1,0 +1,1 @@
+Artículo 43.—Deber para con superiores, compañeros y público: Deberá cuidar las relaciones con superiores, compañeros y público en general, atendiéndolos con respeto, prudencia y discreción absoluta conforme a los principios éticos.

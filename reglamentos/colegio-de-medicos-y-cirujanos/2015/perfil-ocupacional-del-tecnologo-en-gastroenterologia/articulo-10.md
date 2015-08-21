@@ -1,0 +1,1 @@
+Artículo 10.—Docencia: Podrá participar como docente en la parte teórica para la formación de otros Tecnólogos en Gastroenterología. Respecto a la parte práctica de dicha formación, deberá contar en todo momento con la supervisión del médico Especialista.

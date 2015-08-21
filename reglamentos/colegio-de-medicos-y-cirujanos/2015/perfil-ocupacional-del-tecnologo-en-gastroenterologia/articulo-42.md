@@ -1,0 +1,5 @@
+Artículo 42.—Deber para con el paciente:
+a. Debe mantener una conducta de respeto absoluto, discreción y confidencialidad.
+b. Brindar al paciente, con base en sus conocimientos técnicos, toda la información relacionada con el procedimiento que se efectuará y cuidados posteriores.
+c. Respetar los intereses e integridad del paciente.
+d. Respetar todas las pautas éticas establecidas por este Colegio Profesional para el ejercicio de su Tecnicidad.

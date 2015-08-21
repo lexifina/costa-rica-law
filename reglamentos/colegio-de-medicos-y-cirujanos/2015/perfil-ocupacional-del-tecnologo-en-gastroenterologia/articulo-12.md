@@ -1,0 +1,5 @@
+Artículo 12.—Atención al usuario:
+a. Recibe al usuario en el servicio donde se efectuará el estudio y verifica la información del mismo, para consignarla en todas las fórmulas de reporte que se requieran. Verifica la existencia física del consentimiento informado, el cual debe encontrarse ya completo y debidamente firmado.
+b. Instruye al paciente y/o a sus familiares sobre el estudio que se llevará a cabo, brinda orientación sobre la técnica a desarrollar antes, durante y después del estudio y prepara al paciente de acuerdo con el estudio que se realizará.
+c. Asegurarse que el paciente cuente con una vía periférica en el brazo derecho (este procedimiento debe ser realizado por personal de enfermería, técnico o médico).
+d. Bajo la supervisión directa del médico, debe preparar al paciente con anestesia local (no invasivo) y lo trasladará a la sala respectiva para que se efectúe el estudio (endoscopía alta, colonoscopía, Colangio Pancreatografía Retrógrada Endoscópica (C.P.R.E) Rayos X, manometrías, ultrasonido endoscópico, enteroscopía, cápsula endoscópica, entre otros).

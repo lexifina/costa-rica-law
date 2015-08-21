@@ -1,0 +1,1 @@
+Artículo 5º—En conocimiento del marco legal y organizativo que regula y condiciona su actividad como Tecnólogo, desarrolla su tecnicidad con actitud ética, reflexiva, crítica, propendiendo a mejorar la calidad de vida de la persona, familia y comunidad.
