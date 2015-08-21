@@ -1,0 +1,1 @@
+4º—Notifíquese al Ministerio de Agricultura, Pecuaria y Abastecimiento (MAPA) de la República Federativa de Brasil a través de los mecanismos formales establecidos y a la Dirección de Cuarentena Animal del SENASA.
