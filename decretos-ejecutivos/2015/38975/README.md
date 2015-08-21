@@ -14,3 +14,4 @@ Reglamento a la Ley N° 9036 Transformación del IDA en el Instituto de Desarrol
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-29 | la propia norma |
+| 2 | 2015-08-21 | Decreto Ejecutivo 39158 (2015-08-21) |
