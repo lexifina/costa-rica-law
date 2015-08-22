@@ -1,0 +1,1 @@
+Artículo 18.—Recursos de revocatoria y de apelación. Las personas ofertantes pueden recurrir contra los actos dictados con base en este Reglamento, dentro de los tres días hábiles siguientes a la comunicación de dicho acto. Estos recursos, de revocatoria y de apelación, se presentan en las oficinas del Área de Bienes Adjudicados.

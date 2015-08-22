@@ -1,0 +1,1 @@
+Artículo 7º—Precio de venta. El precio de venta de los bienes se fija con base en su avalúo, salvo las excepciones dispuestas en el presente Reglamento, avalúo que debe realizarse por un/una perito designado por el Banco. La vigencia del avalúo es de un año, sin perjuicio de que el Banco realice nuevos avalúos cuando lo considere conveniente.
