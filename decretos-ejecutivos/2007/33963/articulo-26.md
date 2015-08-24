@@ -1,3 +1,0 @@
-Artículo 26.—De los Comités Asesores. Para el adecuado funcionamiento del ECA y de conformidad con las necesidades del caso particular, se podrán conformar Comités Asesores para cada una de las Secretarías de Acreditación. Cada Comité Asesor será coordinado por el Secretario de Acreditación correspondiente.
-Cada uno de sus miembros debe contar con experiencia mínima de tres años en el área de calidad y conocimientos en materia de evaluación de la conformidad.
-Los integrantes de los Comités Asesores deben conocer los procedimientos internos del ECA y suscribir un compromiso de confidencialidad.

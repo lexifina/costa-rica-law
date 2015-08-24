@@ -1,1 +1,0 @@
-Artículo 14.—De las obligaciones de los organismos de evaluación de la conformidad acreditados. Son obligaciones de los organismos de evaluación de la conformidad acreditados las establecidas en el Compromiso de Acreditación.

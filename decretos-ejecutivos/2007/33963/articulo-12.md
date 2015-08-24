@@ -1,1 +1,0 @@
-Artículo 12.—De la obligación de publicación de las acreditaciones. Cada vez que el ECA otorgue, modifique, suspenda o retire una acreditación deberá publicar dichos actos en La Gaceta. Además, podrá realizar publicaciones periódicas en los medios de su escogencia sobre las acreditaciones vigentes y sus alcances.

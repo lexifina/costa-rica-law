@@ -1,1 +1,0 @@
-Artículo 4º—De los principios rectores. Son principios rectores de la actividad de acreditación del ECA la imparcialidad, la no discriminación, la transparencia, la competencia técnica y la confidencialidad.
