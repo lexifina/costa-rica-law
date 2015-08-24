@@ -1,0 +1,1 @@
+Artículo 19.—De las acciones recursivas. En los casos en que se denegara una solicitud de licencia, o contra los demás actos administrativos relacionados con este proceso, se podrán interponer los recursos establecidos en el Código Municipal.

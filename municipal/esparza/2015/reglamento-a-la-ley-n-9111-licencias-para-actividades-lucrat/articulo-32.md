@@ -1,0 +1,1 @@
+Artículo 32.—Tipo de cambio del dólar. Para establecer el tipo de cambio del dólar estadounidense establecido en la Ley de Licencias para Actividades Lucrativas y No Lucrativas del Cantón de Esparza, Ley Nº 9111, se aplicará el tipo de cambio del día sobre el precio de venta dispuesto por el Banco Central.

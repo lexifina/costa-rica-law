@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Declaraciones juradas y otras formas de calcular el impuesto
+Artículo 20.—Sobre las declaraciones juradas y autorizaciones: Las declaraciones juradas y autorizaciones que se mencionan en el presente reglamento y que se relacionan con los requisitos generales, especiales y extraordinarios; deberán venir debidamente autenticadas por un profesional en derecho, bajo el apercibimiento de que en caso de incumplir este requisito, no se dará trámite a la solicitud planteada, hasta tanto no se subsane tal requerimiento. En los casos en que las firmas se realicen en forma personal y en presencia del funcionario municipal correspondiente no requerirán la autenticación de un profesional en derecho.

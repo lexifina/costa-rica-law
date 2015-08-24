@@ -1,0 +1,3 @@
+Artículo 12.—Requisitos para traslado, cesión y modificaciones de licencias municipales. Para estos trámites se deberá presentar el certificado original de la licencia municipal. De no presentarse tal certificado, el administrado deberá indicarlo mediante una declaración jurada en la cual se justifique el extravío. Adicionalmente el administrado deberá adjuntar:
+• Formulario de solicitud respectivo, contrato privado sobre la cesión de los derechos de la licencia, el cual debe ser confeccionado ante un profesional en Derecho con las firmas debidamente autenticadas.
+• Autorización del dueño registral de la propiedad.

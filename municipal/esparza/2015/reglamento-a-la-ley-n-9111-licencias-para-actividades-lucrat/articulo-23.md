@@ -1,0 +1,1 @@
+Artículo 23.—Para gravar las actividades establecidas por primera vez. Se aplicará el procedimiento formalmente establecido en el artículo 14 de la Ley de Licencias para Actividades Lucrativas y No Lucrativas del Cantón de Esparza, Ley Nº 9111.

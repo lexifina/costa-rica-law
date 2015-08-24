@@ -1,0 +1,1 @@
+Transitorio único: En el momento que la plataforma municipal se encuentre capacitada, la administración emitirá una directriz o una resolución en donde las declaraciones juradas del impuesto de patentes se recibirán únicamente por vía electrónica.

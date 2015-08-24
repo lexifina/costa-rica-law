@@ -1,0 +1,3 @@
+CAPÍTULO III
+Resolución de las solicitudes de licencias
+Artículo 15.—Plazo para resolver las solicitudes. La Municipalidad deberá resolver las solicitudes de licencia en un plazo máximo de treinta días naturales, contados a partir de su presentación. Vencido el término y cumplidos los requisitos en forma completa, sin respuesta alguna de la Municipalidad, el o la solicitante podrá establecer su actividad, siempre y cuando dicha actividad no sea contraria a la ley, al orden, la moral y/o las buenas costumbres, de conformidad con lo establecido en nuestro ordenamiento jurídico y reglamentación vigente.
