@@ -1,0 +1,6 @@
+Artículo 6º—Del manejo adecuado de los residuos sólidos. Los titulares de las licencias temporales, deberán encargarse del manejo adecuado de los residuos derivados de su actividad, incluyendo la colocación de recipientes identificados para los diversos tipos de residuos, con el fin de efectuar la recolección separada de los mismos y garantizar su disposición final.
+Prioritariamente deben entregarse las bolsas de residuos clasificados en las siguientes categorías: 1) Aluminio y tetrapack. 2) Envases plásticos (botellas de agua, gaseosas u otros plásticos). 3) Material orgánico y otros (material manchado con grasa, plásticos desechables o vasos, o cualquiera de los que no incluya los anteriores).
+Estos residuos deben entregarse en los siguientes centros de acopio que previamente autorice la Municipalidad.
+En caso de que las bolsas de residuos no puedan ser trasladadas al centro de acopio, se deben acomodar según tipo de residuo de forma ordenada y velar por que las mismas no interrumpan el paso de los romeros, o bien ser entregados al personal de la Municipalidad para su adecuado manejo y disposición final.
+Se deberá emplear bolsas transparentes, con el propósito de que se evidencia la buena clasificación de los residuos.
+Además, deberán asegurar que cada vez que un recipiente o bolsa se llene, sea sustituido por otro vacío.

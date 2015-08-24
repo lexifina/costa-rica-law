@@ -1,0 +1,1 @@
+Artículo 19.—Del pago del impuesto de patente y de otras tarifas municipales. Se exigirá a los solicitantes el pago del impuesto de patente comercial, lo mismo que el rubro por concepto de recolección y tratamiento de residuos sólidos de previo al otorgamiento de la licencia.
