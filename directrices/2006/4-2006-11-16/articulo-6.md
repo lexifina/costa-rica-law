@@ -1,1 +1,0 @@
-Artículo 6º—Equipos de trabajo. Para el cumplimiento de las disposiciones indicadas en esta Directriz, cada Dependencia, Tribunal u Órgano adscrito deberá organizarse internamente constituyendo equipos de trabajo.

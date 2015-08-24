@@ -1,1 +1,0 @@
-Artículo 4º—Documentación y registro del proceso de autoevaluación. Los resultados de cada proceso de autoevaluación que se realice deberán quedar documentados y se deberá instaurar un sistema de registro de información que guarde los resultados de estos procesos, a fin de dar seguimiento a las medidas que se tomen para mejorarlos.

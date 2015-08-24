@@ -1,1 +1,0 @@
-Artículo 2º—Responsabilidad por el control interno. Los Directores de Dependencias, Presidentes de Tribunales y demás titulares subordinados que coordinen Departamentos, Unidades, equipos de trabajo y órgano adscritos al Ministerio, son responsables por la difusión y aplicación de la normativa de control interno en el ámbito de su competencia.
