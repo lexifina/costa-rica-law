@@ -1,2 +1,0 @@
-Artículo 28.—De la conformación, sesiones y funcionamiento de los órganos colegiados administrativos y técnicos. La conformación, sesiones y funcionamiento de los órganos colegiados se llevan a cabo de acuerdo a los procedimientos establecidos por ECA para tal fin.
-Lo no previsto en el presente artículo se regirá por lo dispuesto en Capítulo III, De los Órganos Colegiados, Título II de la Ley General de la Administración Pública, Nº 6227.

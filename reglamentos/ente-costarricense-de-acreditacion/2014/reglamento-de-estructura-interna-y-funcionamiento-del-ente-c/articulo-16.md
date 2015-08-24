@@ -1,2 +1,0 @@
-Artículo 16.—De las denuncias o quejas. Cualquier interesado podrá presentar ante el ECA quejas fundamentadas en contra de un organismo de evaluación de la conformidad acreditado. En caso de proceder la queja o denuncia se aplicará el Procedimiento de quejas, sugerencias y observaciones; si se trata de una denuncia se aplicará el Procedimiento de Investigación.
-Cuando las pruebas aportadas sean falsas, incompletas o incorrectas, de tal manera que la denuncia resulte infundada, el costo de las visitas técnicas debe ser sufragado por el denunciante.

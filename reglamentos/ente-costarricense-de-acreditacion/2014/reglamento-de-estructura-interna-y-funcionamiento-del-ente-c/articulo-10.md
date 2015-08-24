@@ -1,1 +1,0 @@
-Artículo 10.—De las notificaciones. Para efectos de notificaciones el interesado debe fijar un medio electrónico, una dirección física o un facsímil para atender notificaciones, según lo establecido por la Ley de Notificaciones Judiciales número 8667. El ECA se regirá conforme al artículo 243 de la Ley General de la Administración Pública, Nº 6227.
