@@ -1,0 +1,2 @@
+Artículo 9º—De la responsabilidad para renovar la póliza. La responsabilidad de renovar la póliza de fidelidad corresponderá a cada funcionario, quien será notificado por el Departamento de Recursos Humanos sobre su deber de renovarla, por lo menos con un mes de antelación a su vencimiento.
+La omisión por parte del Departamento de Recursos Humanos en efectuar tal comunicación, no exime al funcionario de su deber de mantener vigente la póliza de fidelidad correspondiente, sin perjuicio de la responsabilidad que sobrevenga al referido departamento por su incumplimiento.
