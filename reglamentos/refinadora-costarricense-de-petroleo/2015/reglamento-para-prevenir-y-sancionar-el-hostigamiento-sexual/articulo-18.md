@@ -1,0 +1,1 @@
+Artículo 18.—De las sanciones. Las sanciones por hostigamiento sexual se aplicarán al personal de RECOPE, según la gravedad del hecho, podrán ser: amonestación escrita, suspensión sin goce de salario y el despido. Sin perjuicio de que las conductas también constituyan hechos delictivos que se denuncien y castiguen en la jurisdicción penal.

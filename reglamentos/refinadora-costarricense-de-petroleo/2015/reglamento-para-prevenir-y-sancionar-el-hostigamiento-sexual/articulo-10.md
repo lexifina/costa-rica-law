@@ -1,0 +1,1 @@
+Artículo 10.—Responsabilidad de la instancia competente. La instancia competente tendrá responsabilidad de acuerdo al régimen disciplinario, si pese a haber recibido la denuncia de la persona presuntamente ofendida, no cumple con lo establecido en la Ley 7476 y sus reformas y este Reglamento en todos sus extremos.

@@ -1,0 +1,10 @@
+Artículo 12.—Del trámite. Recibida la denuncia, el órgano competente en el plazo de tres días hábiles procederá a nombrar un órgano instructor, el cual procederá de conformidad, sin recurrir a la ratificación de la denuncia, ni a la investigación preliminar de los hechos.
+El órgano instructor será integrado, preferiblemente, por tres personas, en las que estén representados ambos sexos, con conocimientos en materia de hostigamiento sexual y régimen disciplinario. Dicho órgano instructor estará conformado por personal de la empresa, según el siguiente cuadro:
+Instancias competentes para tramitar las denuncias por hostigamiento sexual y conformación del órgano instructor
+Persona Denunciada | Órgano Competente | Conformación del Órgano Instructor
+Director(a) de Recursos Humanos Gerente(a) de Área | Gerente(a) General o Presidente(a) | Una persona designada por la Gerencia General Un abogado(a) de la Dirección Jurídica Una persona designado por la Presidencia
+Gerente(a) General Auditor(a) General Subauditor(a) General Contralor(a) de Servicios | Presidencia | Una persona designada por la Presidencia Un abogado(a) de la Dirección Jurídica Un miembro de la Junta Directiva designado por la Presidencia
+Presidente(a) Miembro de Junta Directiva | Gerente(a) General o en su ausencia el Gerente(a) de Administración y Finanzas. | Consejo de Gobierno
+Director(a) Jurídico Personal de la Dirección Jurídica | Director(a) de Recursos Humanos | Una persona de la Dirección de Recursos Humanos – Coordinador(a) del órgano Una persona designada por la Gerencia General Un asesor(a) legal externo
+Cualquier otra persona funcionaria de RECOPE no indicada en los puntos anteriores | Director(a) de Recursos Humanos | Una persona de la Dirección de Recursos Humanos - Coordinador(a) del órgano Una persona designada por la Gerencia General Un abogado(a) de la Dirección Jurídica
+Una vez finalizado el proceso, el órgano competente deberá notificar a la Contraloría de Servicios del resultado, con el fin de que registre el cumplimiento de los tiempos de atención e informe a la Presidencia para que proceda conforme al artículo 21 de este reglamento.
