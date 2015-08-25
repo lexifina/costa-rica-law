@@ -1,0 +1,1 @@
+Artículo 27.—Con los recursos presupuestados para Planes de Ordenamiento Territorial, por solicitud de la Comisión se podrán pagar capacitación para sus integrantes. Para tales efectos debe existir un Acuerdo de Comisión.

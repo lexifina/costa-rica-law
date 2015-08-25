@@ -1,0 +1,3 @@
+Artículo 17.—Las sesiones extraordinarias de la Comisión Local de Ordenamiento Territorial, serán convocadas por el Presidente de la Comisión. Asimismo, cualquier iniciativa debe ser presentada por escrito a modo de moción y debidamente firmada por al menos un miembro de la Comisión.
+Cualquier asunto que sea sometido a conocimiento de la Comisión podrá y deberá ser resuelto por votación de mayoría simple (la mitad más uno). Los acuerdos para que sean aprobados en firme necesitaran mayoría calificada (dos terceras partes de los integrantes).
+El quórum para sesionar será de cuatro miembros presentes.

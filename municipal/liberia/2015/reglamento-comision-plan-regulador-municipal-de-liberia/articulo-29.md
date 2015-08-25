@@ -1,0 +1,2 @@
+Artículo 29.—Toda iniciativa presentada por Regidores, el Alcalde(sa) o personas físicas o jurídicas para adoptar, reformar, suspender o derogar disposiciones del Plan de Ordenamiento Territorial, deben ser remitidas a la Comisión Local de Ordenamiento Territorial para su respectivo estudio y recomendación al Concejo Municipal. Se determinara la respuesta en treinta días hábiles según la legislación vigente.
+Liberia, 29 de abril del 2015

@@ -1,0 +1,1 @@
+Artículo 21.—Cuando se produzca alguna vacante por la destitución de un miembro de la Comisión el Concejo deberá comunicar el acuerdo por escrito y público, para la reposición del mismo y notificar a la persona destituida, dando las razones que fundamentaron su decisión.

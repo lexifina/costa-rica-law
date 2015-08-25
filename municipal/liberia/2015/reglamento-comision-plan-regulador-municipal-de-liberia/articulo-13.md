@@ -1,0 +1,1 @@
+Artículo 13.—Los miembros de la Comisión Local de Ordenamiento Territorial por el ejercicio de ese cargo no devengarán dietas ni remuneración alguna. Aquellos miembros que sean funcionarios municipales que no poseen dedicación exclusiva se les podrán pagar las horas extras. Mediante un Acuerdo de la Comisión se reportarán los tiempos a pagar al funcionario que corresponda.

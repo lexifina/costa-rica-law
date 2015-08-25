@@ -1,0 +1,1 @@
+Artículo 28.—La Municipalidad facilitará a la Comisión Local de Ordenamiento Territorial las instalaciones municipales y las facilidades en cuanto a transporte, uso de equipo y materiales de la Municipalidad para el buen funcionamiento de sus fines incluyendo funcionarios administrativos.
