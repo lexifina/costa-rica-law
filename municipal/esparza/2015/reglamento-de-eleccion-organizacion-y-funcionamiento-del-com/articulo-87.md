@@ -1,0 +1,1 @@
+Artículo 87.—Presupuestos extraordinarios y modificaciones presupuestarias. Todo la materia relativa a presupuestos extraordinarios y modificaciones presupuestarias se regirá por lo dispuesto en el Reglamento Interno sobre Variaciones al Presupuesto del Comité Cantonal de Deportes y Recreación de Esparza, publicado en La Gaceta Nº 173 del martes 09 de setiembre del 2014.

@@ -1,0 +1,1 @@
+Artículo 104.—Derogatoria. Este Reglamento deroga el actual Reglamento de Organización, Funcionamiento y Elección del Comité Cantonal de Deportes y Recreación de Esparza, publicado en La Gaceta Nº 99 del 24 de mayo del 2010, así como cualquier otra normativa reglamentaria que se le oponga.

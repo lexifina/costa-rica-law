@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El principal objetivo del presente reglamento es el de dotar al CCDRE y a la Municipalidad de Esparza, de un reglamento que garantice los correctos nombramientos, el efectivo desarrollo y el buen funcionamiento de este Comité Cantonal y demás organizaciones deportivas y recreativas, para beneficio de todos los ciudadanos del cantón.

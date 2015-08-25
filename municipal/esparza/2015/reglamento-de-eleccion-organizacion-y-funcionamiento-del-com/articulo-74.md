@@ -1,0 +1,1 @@
+Artículo 74.—Identificación. Con la finalidad de una debida identificación y en busca de una mayor transparencia en las labores, el CCDRE facilitará a los miembros de los Comités Comunales, un Carnet donde conste el nombre del miembro, puesto en la JD, vigencia y el nombre del Comité Comunal.

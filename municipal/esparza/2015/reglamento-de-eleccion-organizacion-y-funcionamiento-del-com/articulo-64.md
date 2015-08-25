@@ -1,0 +1,1 @@
+Artículo 64.—Asamblea general de nombramiento. La asamblea general estará conformada por dos representantes (un hombre y una mujer) de cada una de las organizaciones deportivas, recreativas y de desarrollo comunal existentes en el distrito y que se encuentren inscritas o adscritas al CCDRE con personería jurídica vigente.

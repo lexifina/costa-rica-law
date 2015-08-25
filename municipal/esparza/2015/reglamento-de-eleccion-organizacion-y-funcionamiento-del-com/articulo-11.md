@@ -1,0 +1,1 @@
+Artículo 11.—Organizaciones Deportivas y Recreativas. Deben encontrarse debidamente constituidas y con la personería jurídica al día para poder ser inscritas ante el CCDRE, con lo cual podrán ser tomados en cuenta por el CCDRE y por la Municipalidad, para participar en las actividades deportivas, recreativas y de elección.

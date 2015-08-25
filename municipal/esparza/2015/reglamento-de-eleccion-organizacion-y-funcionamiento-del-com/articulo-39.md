@@ -1,0 +1,1 @@
+Artículo 39.—Justificación de ausencias. Todo miembro deberá, comunicar en forma escrita, las razones de su inasistencia a las sesiones, a más tardar dentro de las veinticuatro horas siguientes de celebrada la sesión, en la oficina de la Junta Directiva del CCDRE o por correo electrónico; caso contrario, será catalogada la inasistencia como injustificada y sancionable.

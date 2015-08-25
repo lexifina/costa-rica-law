@@ -1,0 +1,1 @@
+Artículo 86.—Aprobación del presupuesto. El presupuesto ordinario del CCDRE, así como sus respectivos planes, deben ser aprobados por la Junta Directiva del Comité a más tardar en la segunda quincena del mes de junio y presentados para conocimiento del Concejo Municipal, en la primer semana del mes de julio, de conformidad con lo establecido en el Código Municipal.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De las reuniones y sesiones
+Artículo 33.—Sesiones en general. La Junta Directiva de CCDRE sesionará siempre en forma ordinaria y pública, una vez a la semana. Solo las cinco personas electas tendrán voz y voto. Asistirán a las sesiones obligatoriamente sus miembros, la Secretaría que tomará el acta y la Administración. El Encargado de la Administración (Promotor Deportivo, Gestor Administrativo o Secretaria Ejecutiva), estará presente en las sesiones para conocer las inquietudes de la JD y recibir instrucciones. Podrán estar presentes otros funcionarios cuando así sean convocados por la Junta Directiva.

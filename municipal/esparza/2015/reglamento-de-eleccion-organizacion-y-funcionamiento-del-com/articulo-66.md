@@ -1,0 +1,1 @@
+Artículo 66.—Junta Directiva de los Comités Comunales. Los Comités Comunales de Deportes los conformarán una Junta Directiva compuesta por 5 miembros: Presidente, Vicepresidente, Secretario, Tesorero y Vocal.
