@@ -211,7 +211,7 @@ Pagos en dólares | 1.5%
 - Mínimo | $15.00
 - Máximo | $75.00
 SWIFT | Según tarifa de servicio
-Venta de Giros Internacionales (Emisión) | $8.00
+Venta de Giros Internacionales (Emisión) (Así reformado el servicio anterior mediante sesión N° 8871/15 del 25 de agosto del 2015) | $13.00 (Así reformada la tarifa anterior mediante sesión N° 8871/15 del 25 de agosto del 2015)
 Detención de Pago a Giros Bancarios:
 BICSA Panamá | 1%
 - Mínimo | $5.00
