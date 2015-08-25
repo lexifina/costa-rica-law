@@ -1,0 +1,7 @@
+MUNICIPALIDAD DE JIMÉNEZ
+Asunto: Transcripción del Acuerdo 1º del artículo X.
+MODIFICACIÓN DEL REGLAMENTO SOBRE LICENCIAS
+DE EXPENDIO DE BEBIDAS CON CONTENIDO ALCOHÓLICO
+La Municipalidad de Jiménez en sesión ordinaria N° 251 celebrada el día lunes 20 de julio del año en curso, acordó:
+Este Concejo acuerda por Unanimidad; modificar el Reglamento sobre Licencias de Expendio de Bebidas con Contenido Alcohólico; agregando un artículo 25° Control y Transparencia que dirá así: Antes de la autorización de una licencia contemplada en este reglamento, el Encargado de la Administración Tributaria, trasladará el expediente respectivo a la Comisión Administrativa que se encargará, dentro de otras cosas de revisar las solicitudes de licencias permanentes y provisionales de Expendio de bebidas alcohólicas. La Comisión supra citada estará integrada por un funcionario encargado de patentes y licencias municipales, un funcionario de visado y uso de suelos y la secretaria del Concejo Municipal; comisión que será la responsable de dictaminar las solicitudes recibidas y sugerir al Encargado de Administración Tributaria, la aprobación o rechazo de las solicitudes de licencias para el expendio de licor. El encargado de la unidad de visado y uso de suelos será el que elabore el informe de distancias sobre el límite establecido por la ley para licencias clase A, B y C. Publíquese en el Diario Oficial La Gaceta.
+Ciudad de Juan Viñas, 28 de julio del 2015
