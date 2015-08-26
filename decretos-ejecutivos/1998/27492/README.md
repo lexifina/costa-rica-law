@@ -13,3 +13,4 @@ Declara Patrimonio Histórico Iglesia de San Joaquín de Flores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-12-17 | la propia norma |
+| 2 | 2015-08-26 | Decreto Ejecutivo 39287 (2015-08-26) |

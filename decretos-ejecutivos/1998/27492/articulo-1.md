@@ -8,4 +8,5 @@ Considerando:
 3°—Que en su interior posee acabados estucados de gran valor, que deben ser conservados.
 4°—Que es deber del Estado salvaguardar el Patrimonio Histórico- Arquitectónico y Artístico que nos legaron los antepasados, para transmitirlo a las futuras generaciones. Por tanto,
 DECRETAN:
-Artículo 1°—Declarar e incorporar al Patrimonio Histórico- Arquitectónico de Costa Rica, el inmueble conocido como la Iglesia de San Joaquín de Flores, inscrita en el Registro Nacional, Sección Propiedad, Partido de Heredia, matrícula de Folio Real N° 110776-000. ubicado en el distrito de San Joaquín del Cantón de Flores, de la Provincia de Heredia, propiedad de las Temporalidades de la Iglesia Católica , Diócesis de Alajuela.
+Artículo 1°—Declarar e incorporar al Patrimonio Histórico-Arquitectónico de Costa Rica, el inmueble conocido como Iglesia de San Joaquín de Flores, edificado en terreno sin inscribir con plano catastrado Nº H-618599-1986, ubicado en el distrito de San Joaquín del cantón de Flores, de la provincia de Heredia, propiedad de las Temporalidades de la Iglesia Católica, Diócesis de Alajuela.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39287 del 26 de agosto del 2015)
