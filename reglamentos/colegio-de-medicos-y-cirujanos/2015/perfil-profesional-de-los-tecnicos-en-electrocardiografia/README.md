@@ -14,3 +14,4 @@ Perfil Profesional de los Técnicos en Electrocardiografía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-27 | la propia norma |
+| 2 | 2015-08-26 | Reglamento 0 (2015-08-26) |
