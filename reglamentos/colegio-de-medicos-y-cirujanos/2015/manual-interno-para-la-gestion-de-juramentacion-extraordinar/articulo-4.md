@@ -1,0 +1,1 @@
+Artículo 4º—Del Curso del Trámite. Se dará curso a todas aquellas solicitudes en las que el trámite de inscripción que hayan sido aprobado con antelación por la Junta de Gobierno y sólo esté pendiente la juramentación y entrega del diploma.

@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este manual es de acatamiento obligatorio a nivel interno del Colegio de Médicos y Cirujanos y vinculante únicamente para quien solicite este tipo de gestión, el cual deberá ser de conocimiento para todo el personal que intervenga en el proceso de la misma.

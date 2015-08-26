@@ -1,0 +1,16 @@
+Artículo 6º—Del Texto del Juramento.
+6.1 Para las juramentaciones de Médicos y Cirujanos se utilizará el Juramento Hipocrático y el Juramento Institucional, cuyos textos son los siguientes:
+6.1.1 Juramento Hipocrático
+“Juro por Apolo el Médico y Esculapio y por Hygeia y Panacea y por todos los dioses y diosas, poniéndolas de jueces, que este mi juramento será cumplido hasta donde tengo poder y discernimiento.
+A aquel quién me enseñó este arte, lo estimaré lo mismo que a mis padres, él participará de mi mandamiento y si lo desea participará de mis bienes. Consideraré su descendencia como hermanos, enseñándole este arte sin cobrarles nada, si ellos desean aprenderlo.
+Instruiré por precepto, por discurso y en todas las formas, a mis hijos, a los hijos del que me enseñó a mí y a los discípulos unidos por juramento y estipulación de acuerdo con la ley médica, y no a otras personas.
+Llevaré delante ese régimen, el cual de acuerdo con mi poder y discernimiento será en beneficio de los enfermos y les apartará del perjuicio y el error. A nadie daré una droga mortal aun cuando me sea solicitada, ni daré consejo con este fin. De la misma manera, no daré a ninguna mujer supositorios destructores, mantendré mi vida y mi arte alejado de la culpa.
+No operaré a nadie por cálculos, dejando el camino a los que trabajan en esa práctica. A cualesquiera casa que entre, iré por el beneficio de los enfermos, absteniéndome de todo error voluntario y corrupción y de lascivia con las mujeres y hombres libres o esclavos.
+Guardaré silencio sobre todo aquello que en mi profesión, o fuera de ella, oiga o vea en la vida de los hombres y que no deba ser público, manteniendo estas cosas de manera que no pueda hablar de ellas.
+Ahora, si cumplo este juramento y no lo quebranto, que los frutos de la vida y el arte sean míos, que sea siempre honrado por todos los hombres y que lo contrario me ocurra si lo quebranto y son perjuro”.
+6.1.2 Juramento Institucional
+“¿Juráis por Dios o lo más sagrado de sus creencias y prometéis a la Patria y al Colegio de Médicos y Cirujanos de la República de Costa Rica, observar y defender la Constitución Política, las Leyes de la República, el Código de Ética Médica, la Normativa Legal de este Colegio Profesional, y cumplir fielmente los deberes de vuestro destino? –Sí juro-
+Si así lo hiciereis Dios o lo más sagrado de sus creencias os ayude y si no, Él, la Patria y el Colegio de Médicos y Cirujanos de Costa Rica os lo demanden”
+6.2 Para las juramentaciones de Médicos Especialistas, Médicos Subespecialistas, Profesionales Afines y Tecnólogos en Ciencias Médicas, se utilizará el Juramento Institucional del Colegio de Médicos y Cirujanos, cuyo texto es el siguiente:
+“¿Juráis por Dios o lo más sagrado de sus creencias y prometéis a la Patria y al Colegio de Médicos y Cirujanos de la República de Costa Rica, observar y defender la Constitución Política, las Leyes de la República, el Código de Ética Médica, la Normativa Legal de este Colegio Profesional, y cumplir fielmente los deberes de vuestro destino? –Si juro-
+Si así lo hiciereis Dios o lo más sagrado de sus creencias os ayude y si no, Él, la Patria y el Colegio de Médicos y Cirujanos de Costa Rica os lo demanden”
