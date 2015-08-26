@@ -1,0 +1,2 @@
+Artículo 21.—El Consejo Directivo de la Filial sesionará al menos una vez al mes. El cuórum para que se reúna válidamente será de al menos tres miembros y sus decisiones se tomarán con el voto de la mayoría simple de los presentes, excepto la firmeza de los acuerdos los cuales requerirán mayoría calificada de la totalidad del Consejo Directivo.
+Salvo en votaciones secretas y salvo caso de impedimento legal, ningún miembro del Consejo Directivo presente podrá excusarse de votar cualquier asunto.

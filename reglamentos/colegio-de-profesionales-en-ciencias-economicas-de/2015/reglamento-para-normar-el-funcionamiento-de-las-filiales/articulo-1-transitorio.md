@@ -1,0 +1,1 @@
+Transitorio único. En el primer año de implementación de esta reforma, así como para la constitución de nuevas Filiales, el Presidente, el Tesorero y el Vocal 1 se elegirán por un periodo de tres años; el Secretario y Vocal 2 por dos años.

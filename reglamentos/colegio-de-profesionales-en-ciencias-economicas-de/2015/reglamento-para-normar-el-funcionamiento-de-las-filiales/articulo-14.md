@@ -1,0 +1,1 @@
+Artículo 14.—Cada Consejo Directivo estará integrado por un Presidente, un Secretario, un Tesorero y dos Vocales. La Asamblea General de la Filial está obligada a procurar que estos cargos se distribuyan con equidad de género.

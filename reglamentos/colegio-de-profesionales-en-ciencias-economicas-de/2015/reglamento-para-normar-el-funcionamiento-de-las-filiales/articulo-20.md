@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos de Asamblea General se tomarán por simple mayoría de los asistentes, salvo cuando se trate de la revocatoria del nombramiento de algún directivo, en cuyo caso la decisión requerirá de votación calificada de al menos las dos terceras partes de los votos de los miembros presentes.
