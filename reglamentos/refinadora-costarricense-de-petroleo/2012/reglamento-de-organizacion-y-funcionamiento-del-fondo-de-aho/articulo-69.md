@@ -20,7 +20,8 @@ Artículo 69.- Son funciones de la Junta:
 69.19. Velar por el cumplimiento de las leyes y reglamentos aplicables al FONDO.
 69.20. Crear las comisiones que sean necesarias para el funcionamiento del FONDO.
 69.21. Conocer de los asuntos que, en casos especiales, las Comisiones hayan declinado resolver.
-69.22. Visitar, al menos una vez al año, los centros de trabajo para informar sobre las labores realizadas en el año inmediato anterior.
+69.22. Visitar, al menos una vez, durante el período de gestión de la Junta Administrativa, los centros de trabajo para informar sobre las labores realizadas.
+(Así reformado el inciso anterior mediante sesión N° 007-2015 del 26 de agosto del 2015)
 69.23. La Junta Administrativa solicitará a la Administración de RECOPE las facilidades que se requieran en el proceso electoral.
 69.24. Atender en audiencia a los beneficiarios ó terceros, que lo soliciten.
 69.25. Atender las relaciones con RECOPE y SITRAPEQUIA, en asuntos relacionados con el Fondo.
