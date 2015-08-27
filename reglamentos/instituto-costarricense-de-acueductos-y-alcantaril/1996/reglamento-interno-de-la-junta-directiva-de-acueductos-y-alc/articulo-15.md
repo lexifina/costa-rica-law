@@ -1,2 +1,0 @@
-Artículo 15.—Sesiones extraordinarias.
-Además del caso contemplado en el artículo anterior, las sesiones extraordinarias se celebrarán cada vez que sean convocadas por el Presidente Ejecutivo, por tres Directores o por el Gerente General. Para estas sesiones la convocatoria deberá hacerse por vía telegráfica, por fax o epistolar con veinticuatro horas de anticipación como mínimo y deberá indicarse el objeto de la reunión. En éstas únicamente se conocerán los asuntos contenidos en la convocatoria.

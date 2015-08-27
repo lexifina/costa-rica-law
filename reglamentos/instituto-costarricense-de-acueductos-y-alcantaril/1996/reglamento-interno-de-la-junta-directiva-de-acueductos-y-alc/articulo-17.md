@@ -1,2 +1,0 @@
-Artículo 17.—Recursos.
-Los Directores podrán interponer recurso de revisión contra los acuerdos adoptados. Este deberá ser interpuesto a más tardar al discutirse el acta de la Sesión donde se adoptó y deberá resolverse en la misma, salvo que el Presidente juzgue urgente el asunto y prefiera conocerlo en una sesión extraordinaria. Las simples observaciones de forma relativas a la redacción de los acuerdos, no serán considerados como recurso de revisión.

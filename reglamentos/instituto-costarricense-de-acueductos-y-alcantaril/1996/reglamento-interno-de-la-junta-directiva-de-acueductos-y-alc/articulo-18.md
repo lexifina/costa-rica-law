@@ -1,4 +1,0 @@
-Artículo 18.—Actas.
-De cada sesión se levantará un acta que contendrá la indicación de las personas asistentes, así como las circunstancias del lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos.
-Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por votación unánime.
-Los Directores podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando así exentos de las responsabilidades que, en el caso, pudieren derivarse de los acuerdos.

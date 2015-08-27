@@ -1,2 +1,0 @@
-Artículo 10.—Quorum de las sesiones.
-El quorum para que pueda sesionar válidamente la Junta Directiva será el de cinco de sus miembros. Si no hubiera quorum a la hora señalada, se darán quince minutos de espera para completar el mismo, pasado los cuales si no se completara éste, se podrá sesionar en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia debidamente demostrada, en los que se podrá sesionar después de media hora, siendo suficiente la asistencia de la tercera parte de los Directores.

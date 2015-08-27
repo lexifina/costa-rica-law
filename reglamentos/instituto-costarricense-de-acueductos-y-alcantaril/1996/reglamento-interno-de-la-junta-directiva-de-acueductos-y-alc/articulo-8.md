@@ -1,2 +1,0 @@
-Artículo 8°—Secretario (a)
-La Junta Directiva contará con un secretario que será un funcionario de planta de la Institución, el cual será el encargado de llevar las actas, hacer las grabaciones de las sesiones, recibir y enviar la correspondencia, preparar y enviar las agendas a los directores y miembros auxiliares y en general encargarse de los asuntos administrativos de la Junta Directiva. Dicho funcionario tendrá el deber de guardar confidencialidad sobre los asuntos tratados en el seno de la Junta Directiva.

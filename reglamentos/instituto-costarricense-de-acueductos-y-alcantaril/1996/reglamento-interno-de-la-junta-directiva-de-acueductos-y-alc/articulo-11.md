@@ -1,2 +1,0 @@
-Artículo 11.—Privacidad de las sesiones.
-Las sesiones de Junta Directiva serán privadas, pero ésta podrá disponer acordándolo así por la unanimidad de los miembros presentes, que tenga acceso a ella el público en general o bien ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
