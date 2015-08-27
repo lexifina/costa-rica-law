@@ -1,0 +1,1 @@
+Artículo 7°—Las Sesiones de la Junta Directiva serán privadas, salvo que esta disponga lo contrario, en cuyo caso se permitirá el acceso al público en general, o bien a las personas que así lo hayan solicitado. Quien presida la sesión de Junta Directiva decidirá previamente si otorga o no la palabra al público, para que expongan el asunto de su interés.

@@ -1,0 +1,1 @@
+Artículo 13.—Las mociones serán formuladas por el respectivo miembro director, la Presidencia las someterá a discusión y en caso de ser admitidas el director proponente presentará formalmente su redacción.

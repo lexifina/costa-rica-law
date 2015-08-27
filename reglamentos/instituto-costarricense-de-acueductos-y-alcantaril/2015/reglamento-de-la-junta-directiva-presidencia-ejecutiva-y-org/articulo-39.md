@@ -1,0 +1,1 @@
+Artículo 39.—La Subgerencia, asumirá las funciones de la gerencia, ante ausencias temporales de ésta y por acuerdo de la Junta Directiva, asumirá las funciones de la gerencia ante renuncia o remoción del Gerente.

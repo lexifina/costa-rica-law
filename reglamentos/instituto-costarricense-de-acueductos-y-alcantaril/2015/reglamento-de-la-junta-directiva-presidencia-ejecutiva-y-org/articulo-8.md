@@ -1,0 +1,1 @@
+Artículo 8°—A las sesiones de Junta Directiva, asistirá el Auditor o Subauditor, el Gerente y Subgerente, y el Director Jurídico, quienes a solicitud del Presidente, o de cualquiera de los Directores, deberán brindar su opinión sobre el asunto en discusión con voz pero sin voto.

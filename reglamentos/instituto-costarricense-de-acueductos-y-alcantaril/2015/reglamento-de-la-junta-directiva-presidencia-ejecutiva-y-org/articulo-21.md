@@ -1,0 +1,1 @@
+Artículo 21.—Las actas se aprobarán en la siguiente sesión ordinaria, salvo que sea acuerdo firme, antes de su aprobación carecerán de eficacia y firmeza los acuerdos adoptados en la respectiva sesión.

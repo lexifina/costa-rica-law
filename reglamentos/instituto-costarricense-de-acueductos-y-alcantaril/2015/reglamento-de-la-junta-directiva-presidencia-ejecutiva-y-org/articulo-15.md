@@ -1,0 +1,1 @@
+Artículo 15.—Las sesiones extraordinarias deberán ser convocadas con veinticuatro horas de antelación. No obstante, en sesión ordinaria la Junta Directiva podrá acordar la celebración de una sesión extraordinaria, fijando los asuntos por tratar.

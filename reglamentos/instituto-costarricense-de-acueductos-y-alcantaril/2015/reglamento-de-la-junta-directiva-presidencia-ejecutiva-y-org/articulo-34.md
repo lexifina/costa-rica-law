@@ -1,0 +1,1 @@
+Artículo 34.—La Gerencia, es el máximo órgano administrativo, y ostenta las facultades y atribuciones que al efecto establecen los artículos 12 y 25 de la Ley Constitutiva de AyA. Participará, junto con el Sugerente en las sesiones de Junta Directiva con voz pero sin voto.
