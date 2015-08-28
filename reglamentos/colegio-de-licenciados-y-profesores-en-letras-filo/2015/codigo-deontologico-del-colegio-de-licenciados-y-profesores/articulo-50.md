@@ -1,0 +1,1 @@
+Artículo 50.—Reconocimiento de la capacidad y mérito. Cuando sea el caso, reconocer la capacidad y mérito de los colegas, tanto en forma individual como en el trabajo colectivo, evitando comportamientos o conductas dirigidas a menoscabar el logro y éxito profesional de los colegas.

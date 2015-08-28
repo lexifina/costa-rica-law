@@ -1,0 +1,1 @@
+Artículo 42.—Correspondencia entre actividades y objetivos. Prestar especial atención en que las actividades de aprendizaje correspondan de forma adecuada y precisa a los objetivos de las materias o cursos impartidos.

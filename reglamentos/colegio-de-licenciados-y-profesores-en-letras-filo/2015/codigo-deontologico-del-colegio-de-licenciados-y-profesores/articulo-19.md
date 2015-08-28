@@ -1,0 +1,1 @@
+Artículo 19.—Alternativa menos invasora. En cualquier acción legítima en que la persona colegiada se vea necesitada de intervenir en el ejercicio de su cargo, y que se relacione con los derechos y privacidad de otras personas, deberá actuar de la forma menos invasora posible, tal que garantice el mínimo de interferencia a los derechos y privacidad de las personas afectadas.

@@ -1,0 +1,1 @@
+Artículo 84.—Alegatos de conclusiones. El Tribunal de Honor notificará a las partes interesadas la posibilidad de formular conclusiones sucintas en un plazo de tres días hábiles como máximo, refiriéndose a los hechos alegados, prueba recibida y fundamentos en que apoyen sus pretensiones.

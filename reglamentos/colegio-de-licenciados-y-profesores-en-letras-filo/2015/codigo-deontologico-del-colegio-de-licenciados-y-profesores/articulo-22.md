@@ -1,0 +1,1 @@
+Artículo 22.—Responsabilidad y diligencia. Implica cuidado, aplicación de las mejores técnicas, esmero, cumplimiento, oportunidad y exactitud en la ejecución de todos los actos y actividades que desarrolle la persona colegiada en el ejercicio de su profesión.

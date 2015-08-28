@@ -1,0 +1,2 @@
+Artículo 78.—Prueba para mejor resolver. Por considerarlo necesario el Tribunal de Honor podrá ordenar en cualquier momento, como prueba para mejor resolver, aquellas otras diligencias probatorias que estime necesarias y podrá solicitar certificaciones, dictámenes u otro tipo de pruebas para el esclarecimiento de la verdad real de los hechos.
+Si posterior a la comparecencia oral y privada, alguna de las partes solicita prueba para mejor resolver, es facultad del Tribunal de Honor aceptar, ordenar o evacuar la prueba solicitada.

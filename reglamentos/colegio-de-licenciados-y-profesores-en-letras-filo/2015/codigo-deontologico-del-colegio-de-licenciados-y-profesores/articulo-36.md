@@ -1,0 +1,1 @@
+Artículo 36.—Respeto a la libertad de pensamiento y expresión. Bajo ninguna circunstancia y mediante ningún medio podrá la persona colegiada coartar la libertad de pensamiento y libre expresión de las ideas de los estudiantes.

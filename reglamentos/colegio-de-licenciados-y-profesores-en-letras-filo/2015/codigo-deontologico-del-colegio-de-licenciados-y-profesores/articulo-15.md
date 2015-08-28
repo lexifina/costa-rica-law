@@ -1,0 +1,1 @@
+Artículo 15.—Vulnerabilidad. Implica la acción de defensa al más vulnerable. La protección del ser humano en condiciones de fragilidad surge de su dignidad inalterable por el hecho mismo de ser humano. Supone el reconocimiento de la finitud del ser humano y se deriva de ella el deber de cuidado, por parte de quien posee mejores condiciones o ventajas.

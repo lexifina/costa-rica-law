@@ -1,0 +1,2 @@
+Artículo 16.—Colegialidad. Consiste en el vínculo orgánico y solidario que se establece entre las personas colegiadas. Pretende proteger los intereses comunes y desarrollar el sentido de pertenencia entre el grupo de colegas.
+Este principio, bajo ninguna circunstancia, justifica la complicidad o el silencio ante el conocimiento de conductas censurables de un colega, en cuyo caso se está en el deber de informar.

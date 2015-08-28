@@ -1,0 +1,1 @@
+Artículo 77.—Traslado de cargos y derecho de defensa. Para todos los casos, el Tribunal de Honor deberá realizar el traslado de cargos a la persona denunciada y le otorgará un plazo improrrogable de diez días hábiles para que ejerza su derecho de defensa, se refiera a los hechos imputados y ofrezca la prueba de descargo.

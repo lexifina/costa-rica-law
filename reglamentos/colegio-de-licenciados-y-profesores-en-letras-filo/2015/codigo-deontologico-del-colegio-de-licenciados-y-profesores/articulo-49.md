@@ -1,0 +1,1 @@
+Artículo 49.—En relación con las necesidades, derechos y características de los colegas. Se deberán reconocer y respetar las necesidades, derechos y características personales de los colegas, evitando interferir o descalificar el trabajo de otros docentes, sin perjuicio de lo indicado en el párrafo segundo de artículo 16 respecto del principio de colegialidad.

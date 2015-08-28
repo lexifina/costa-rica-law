@@ -1,0 +1,2 @@
+Artículo 92.—Derogatoria. El presente Código Deontológico deroga las disposiciones establecidas en el anterior Código de Ética acordado en Asamblea General Extraordinaria C del 14 de febrero del 2004 y publicado en el Diario Oficial La Gaceta Nº 38 del 24 de febrero del 2004.
+Por ser el Tribunal de Honor el órgano competente para seguir en su totalidad el procedimiento administrativo disciplinario, deróguese el inciso j) del artículo 24 correspondiente a los deberes del Fiscal, del Reglamento General del Colegio.

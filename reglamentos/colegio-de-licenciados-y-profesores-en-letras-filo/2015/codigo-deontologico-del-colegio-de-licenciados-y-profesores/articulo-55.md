@@ -1,0 +1,1 @@
+Artículo 55.—Cuidado y buen uso de los recursos. El debido cuidado de las instalaciones, vigilancia en el buen uso de los recursos materiales que se proporcionan, y promover el aseo y ornato son también deberes de la persona colegiada.

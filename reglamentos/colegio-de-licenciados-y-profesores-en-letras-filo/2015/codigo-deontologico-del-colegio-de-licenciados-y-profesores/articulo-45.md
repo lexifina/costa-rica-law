@@ -1,0 +1,1 @@
+Artículo 45.—Colaboración en actividades. La persona colegiada deberá procurar involucrarse en actividades colegiadas y colaborar en equipos para el mejoramiento del Colegio, la docencia y la Educación.

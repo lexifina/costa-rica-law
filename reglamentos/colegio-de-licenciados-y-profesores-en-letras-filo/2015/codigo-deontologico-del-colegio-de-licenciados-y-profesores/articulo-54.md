@@ -1,0 +1,1 @@
+Artículo 54.—Puntualidad. Es deber de la persona colegiada, en virtud del principio de responsabilidad y diligencia, la debida puntualidad no sólo en la jornada laboral, sino en toda actividad a la que se comprometa. El deber de puntualidad es especialmente importante en relación con lo dispuesto en el artículo 6º de este Código.

@@ -1,0 +1,1 @@
+Artículo 27.—Del prestigio profesional. El prestigio profesional implica el grado de honorabilidad que le confiere la sociedad a la profesión, por lo que la persona colegiada deberá evitar cualquier tipo de conducta, dentro y fuera del lugar de trabajo, que evidentemente vaya en menoscabo de dicho prestigio, y que de forma directa o indirecta puede afectar a todo el gremio.

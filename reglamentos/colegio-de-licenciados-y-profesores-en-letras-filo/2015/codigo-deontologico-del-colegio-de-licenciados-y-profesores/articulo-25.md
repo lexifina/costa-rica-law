@@ -1,0 +1,1 @@
+Artículo 25.—Apego a los principios. En el ejercicio de la profesión, la persona colegiada habrá de actuar con estricto apego a los principios universales y sectoriales enunciados en los capítulos III y IV del Título Primero de este Código.

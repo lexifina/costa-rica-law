@@ -1,0 +1,1 @@
+Artículo 41.—Vinculación entre teoría y práctica. Promover la vinculación de la teoría con la práctica en relación con su medio social, de modo que se adquiera conciencia de la utilidad de la construcción de nuevos conocimientos.

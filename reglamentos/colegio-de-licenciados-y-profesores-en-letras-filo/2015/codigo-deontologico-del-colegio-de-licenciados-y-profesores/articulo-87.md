@@ -1,0 +1,6 @@
+Artículo 87.—Notificaciones. Las resoluciones deberán ser notificadas a ambas partes, salvo las de mero trámite que serán notificadas únicamente a la parte interesada.
+Las notificaciones se realizarán por el medio señalado por las partes, las cuales podrán indicar un medio principal y uno accesorio, siempre y cuando se señale claramente cuál es el principal. En caso de duda u omisión, la Administración podrá notificar al de su elección. Los medios para recibir notificaciones serán fax, correo electrónico o en estrados.
+Solo por una única vez y para la notificación del traslado de cargos, se notificará a la parte denunciada de manera personal. En virtud de esto, deberá señalar un medio para recibir notificaciones en su primera actuación.
+Si alguna de las partes no señalare medio para recibir notificaciones, o bien los intentos generen error una vez agotados todos los intentos, se generará la notificación automática veinticuatro horas después de emitida la resolución.
+En caso de que no se pueda notificar a la parte denunciada de manera personal por ningún medio conocido, se procederá con la notificación mediante edicto por tres veces consecutivas en el Diario Oficial La Gaceta.
+En lo no previsto en este artículo se procederá de acuerdo con la Ley de Notificaciones Judiciales vigente.

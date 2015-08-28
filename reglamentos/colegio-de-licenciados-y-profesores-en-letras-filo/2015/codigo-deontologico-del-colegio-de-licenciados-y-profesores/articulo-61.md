@@ -1,0 +1,1 @@
+Artículo 61.—Trato con los padres y madres. El trato de la persona colegiada con los padres y madres de familia debe ser cordial, abierto al diálogo; como profesional de la Educación, deber servir de guía ante posibles dudas o incertidumbre del padre o madre de familia. Debe procurarse promover una alianza en favor del éxito educativo.

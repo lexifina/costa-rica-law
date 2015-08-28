@@ -1,0 +1,1 @@
+Artículo 30.—Uso del diálogo. La persona colegiada debe hacer uso del diálogo, como recurso que sirva para la construcción y no la destrucción en las relaciones intersubjetivas, entre colegas, estudiantes, padres y demás personas con las que se relaciona. En condiciones de conflicto, bajo ninguna circunstancia se puede acudir a la violencia física o psicológica.

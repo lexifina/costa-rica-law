@@ -1,0 +1,4 @@
+Artículo 35.—Estimulación para el desarrollo humano, conciencia social y trabajo de equipo:
+a) Es deber de la persona colegiada, de acuerdo con las funciones que le corresponda en su lugar de trabajo, estimular en el alumnado el desarrollo de competencias intelectuales, deportivas y artísticas, así como el pensamiento crítico, la originalidad y la creatividad, de manera que posibilite un desarrollo humano más integral y amplio.
+b) Deberá además, incentivar una conciencia democrática y actitud social, para que el estudiante se desarrolle como un ciudadano auténtico, libre, consciente de la realidad social, comprometido e identificado con los intereses locales, regionales y nacionales.
+c) Deberá ser un agente que practique y promueva el trabajo en equipo, demostrando las ventajas que esto conlleva para la calidad, eficiencia y eficacia en los resultados.

@@ -1,0 +1,1 @@
+Artículo 34.—Información en relación con los estudiantes. El cumplimiento del principio de información es de especial importancia en relación con los estudiantes: la persona colegiada debe estar atenta ante cualquier circunstancia que pueda ir en perjuicio de ellos. Asimismo, es prioritario, en relación con los estudiantes, tener siempre presente el principio de vulnerabilidad.

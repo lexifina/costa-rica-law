@@ -1,0 +1,1 @@
+Artículo 18.—De imposibilidad. En su ejercicio profesional, habrá de tenerse presente que todos los derechos y deberes de terceros están sujetos a la condición de que sea posible cumplir con ellos, bajo las circunstancias materiales, contextuales y psicológicas en las que se exige.

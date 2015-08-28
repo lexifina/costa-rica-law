@@ -1,0 +1,3 @@
+Artículo 80.—Violación de los acuerdos conciliatorios. De llegarse a un acuerdo conciliatorio en la audiencia señalada, o bien en caso que las partes informen de un acuerdo extraprocesal, el procedimiento administrativo se suspenderá hasta el momento en que se informe el cumplimiento o no del acuerdo alcanzado.
+En caso de que la persona denunciada no cumpla con el acuerdo conciliatorio sin justificación alguna, la denunciante deberá informarlo al Tribunal, para continuar con el procedimiento, y dicho incumplimiento será un agravante en caso de aplicar la sanción.
+Cuando se informe del cumplimiento del acuerdo conciliatorio, se procederá con el archivo correspondiente del expediente disciplinario.

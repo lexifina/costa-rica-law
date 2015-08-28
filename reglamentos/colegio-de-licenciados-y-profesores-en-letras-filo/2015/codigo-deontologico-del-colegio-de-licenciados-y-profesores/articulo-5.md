@@ -1,0 +1,1 @@
+Artículo 5º—Consustancialidad social de la Educación y el educador. En la actualidad, la sociedad, entendida como sistema, no es interpretable sin la gestión educativa dentro de su dinámica histórica. De ahí que la Educación y el educador son consustanciales a la sociedad misma, dándose la construcción de uno y otro de forma recíproca.

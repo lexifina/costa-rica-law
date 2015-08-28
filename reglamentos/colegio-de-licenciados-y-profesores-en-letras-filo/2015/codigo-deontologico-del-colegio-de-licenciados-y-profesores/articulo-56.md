@@ -1,0 +1,1 @@
+Artículo 56.—Uso personal de equipo o materiales. Bajo ninguna circunstancia podrá la persona colegiada hacer uso de equipos o materiales fuera del lugar de trabajo, con propósitos o intereses personales.

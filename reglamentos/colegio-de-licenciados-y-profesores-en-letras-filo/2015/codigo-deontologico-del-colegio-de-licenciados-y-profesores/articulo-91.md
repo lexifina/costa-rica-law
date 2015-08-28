@@ -1,0 +1,1 @@
+Artículo 91.—Protección de datos personales. En las resoluciones y oficios emitidos por el Tribunal de Honor deberá aplicarse la normativa contenida en la Ley Nº 8968: Protección de la Persona Frente al Tratamiento de sus Datos Personales.

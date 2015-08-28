@@ -1,0 +1,1 @@
+Artículo 28.—Respeto a la identidad de los demás. Todo criterio técnico vertido, y en general cualquier acto en virtud del ejercicio profesional, deberá tener presente el respeto al criterio político, filosófico y religioso y a la manifestación cultural de los demás, como elementos esenciales de su identidad como persona humana.

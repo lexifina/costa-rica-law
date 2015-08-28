@@ -1,0 +1,1 @@
+Artículo 58.—Acatamiento de la normativa institucional. Es deber de la persona colegiada respetar y hacer respetar las normas de funcionamiento de la institución donde labora, y colaborar en todo momento con los distintos departamentos que conforman su organización y cualesquiera otros que se brinden.

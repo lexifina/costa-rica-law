@@ -1,0 +1,1 @@
+Artículo 39.—No aceptación de dádivas. La persona colegiada debe abstenerse de recibir cualquier tipo de obsequio, dádiva o regalo de parte de los estudiantes, especialmente cuando la intencionalidad es una retribución en el sentido de lograr favoritismos u obtener objetivos que riñan con la moral y la equidad.

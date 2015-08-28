@@ -1,0 +1,1 @@
+Artículo 85.—Resolución final. El Tribunal de Honor deberá resolver el asunto dentro del plazo prudencial de treinta días hábiles, una vez finalizado el plazo para recibir conclusiones. La resolución final deberá estar debidamente fundamentada y cumplir con las formalidades técnicas propias de un acto administrativo sancionatorio.
