@@ -1,0 +1,3 @@
+CAPÍTULO III
+De los derechos y obligaciones del Funcionario
+Artículo 5º—Derechos de los Funcionarios: Los funcionarios de la Municipalidad de Carrillo, que utilicen y sean portadores de su certificado digital, tendrán los siguientes derechos: a) Poseer un certificado digital para uso interno y para trámites personales fuera de horario laboral. b) Obtener la autorización por parte de la DTI para el uso de firma digital, previo al cumplimiento de los requisitos señalados en el manual de firma digital. c) La integridad y autenticidad de los documentos firmados digitalmente. d) Obtener soporte técnico y ayuda cuando se requiera.

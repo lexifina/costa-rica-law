@@ -1,0 +1,1 @@
+Artículo 16.—Citas de emisión y renovación de Firma Digital: Cada funcionario de la Municipalidad de Carrillo, será el encargado de gestionar las citas de reemisión y solicitud de la Firma Digital, en los plazos estipulados anteriormente. CAPÍTULO VI Disposiciones finales y transitorias

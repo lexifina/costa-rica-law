@@ -1,0 +1,1 @@
+Artículo 14.—Verificación de la validez de la Firma Digital: El DTI será el encargado de brindar soporte y asistencia para asuntos de verificación de la validez de una determinada Firma Digital, capacitación de los funcionarios o la implementación de nuevos servicios con mecanismos de Firma Digital.

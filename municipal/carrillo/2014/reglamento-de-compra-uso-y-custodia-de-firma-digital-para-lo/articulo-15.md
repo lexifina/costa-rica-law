@@ -1,0 +1,1 @@
+Artículo 15.—Nuevos sistemas informáticos: El CTI deberá ser involucrado por otras direcciones y tendrá la potestad de asesorar a los equipos de trabajo que se conformen para la conceptualización, diseño, desarrollo o implementación de nuevos sistemas informáticos en la Municipalidad de Carrillo.

@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación: Todas las direcciones, áreas o unidades y funcionarios que conforman la Municipalidad de Carrillo quedan expresamente facultados para utilizar los certificados, las firmas digitales y los documentos electrónicos dentro de sus procesos y funciones diarias, siempre y cuando no exista ningún impedimento legal que expresamente así lo establezca.
