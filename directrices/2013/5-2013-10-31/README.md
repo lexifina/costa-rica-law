@@ -14,3 +14,4 @@ Obligatoriedad de indicar el estado civil en los trámites realizados ante el Re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-09 | la propia norma |
+| 2 | 2015-08-31 | Directriz 2 (2015-08-31) |
