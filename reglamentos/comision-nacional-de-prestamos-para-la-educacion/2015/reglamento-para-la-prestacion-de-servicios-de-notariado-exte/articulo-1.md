@@ -1,7 +1,8 @@
 COMISIÓN NACIONAL DE PRÉSTAMOS
 PARA EDUCACIÓN
 ASESORÍA LEGAL
-Comunica que en la sesión ordinaria del Consejo Directivo Nº 45-01-2015 y 13-3-2015, artículos IV y V, celebrada el 05 de enero y 30 de marzo del dos mil quince, acordó aprobar el Reglamento para la Prestación de Servicios de Notariado Externo de la Comisión Nacional de Préstamos para Educación (CONAPE), el que se leerá:
+Comunica que en la sesión ordinaria del Consejo Directivo Nº 45-01-2014 y 11-3-2015(*), artículos IV y V, celebrada el 05 de enero y 30 de marzo del dos mil quince, acordó aprobar el Reglamento para la Prestación de Servicios de Notariado Externo de la Comisión Nacional de Préstamos para Educación (CONAPE), el que se leerá:
+(*) (Así reformado el número de sesión anterior mediante sesión N° 35-08-2015 del 31 de agosto del 2015)
 REGLAMENTO PARA LA PRESTACIÓN DE SERVICIOS
 DE NOTARIADO PARA LA COMISIÓN DE PRÉSTAMOS
 PARA EDUCACIÓN (CONAPE)
