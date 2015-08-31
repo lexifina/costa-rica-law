@@ -1,0 +1,1 @@
+2. Derogar el acuerdo SGV-A-154 “Registro de títulos en custodia en las entidades de depósito y centrales de anotación en cuenta locales a través de las cuentas de un puesto de bolsa”, aprobado por el Despacho del Superintendente, a las nueve horas quince minutos del dieciséis de febrero del dos mil nueve.
