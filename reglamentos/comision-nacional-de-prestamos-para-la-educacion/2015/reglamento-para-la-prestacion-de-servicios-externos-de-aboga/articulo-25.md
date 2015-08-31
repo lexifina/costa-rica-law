@@ -1,1 +1,2 @@
-Artículo 25.—Arancel para el cálculo de honorarios. Los honorarios por los servicios contratados se calcularán con base en el arancel respectivo, vigente para la fecha en que se tramita el asunto asignado.
+Artículo 25.-De la fiscalización y evaluación de los servicios de cobro judicial y otras gestiones judiciales. El Comité de Cobros o el Comité de Crédito, según corresponda se encargará de documentar los incumplimientos a sus deberes en que incurran los contratistas. Una vez documentado el incumplimiento, lo trasladará a la Sección Administrativa para que ésta proceda conforme a la Ley de Contratación Administrativa y su Reglamento.
+(Corrida su numeración mediante sesión N° 35-08-2015 del 31 de agosto del 2015, que lo traspasó del 26 al 25)

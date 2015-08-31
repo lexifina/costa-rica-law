@@ -1,1 +1,1 @@
-Artículo 30.—Vigencia. El presente reglamento entrará en vigencia a partir de la fecha de su publicación en el Diario Oficial La Gaceta.
+Artículo 30.— (Nota de Sinalevi: EL texto del presente artículo puede ser conusltado en el artículo 29, toda vez que mediante sesión N° 35-08-2015 del 31 de agosto del 2015, se corre la numeración de los artículo del presente reglamento)
