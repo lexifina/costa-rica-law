@@ -1,0 +1,1 @@
+Artículo 31.—La Dirección Ejecutiva, previo informe de la Unidad de Cobro rendido a la Jefatura Administrativa Financiera podrá realizar los trámites administrativos respectivos contra el abogado, ante la fiscalía del Colegio de Abogados, en aquellos casos en que se demuestre negligencia o impericia en la tramitación judicial de las cuentas por cobrar.

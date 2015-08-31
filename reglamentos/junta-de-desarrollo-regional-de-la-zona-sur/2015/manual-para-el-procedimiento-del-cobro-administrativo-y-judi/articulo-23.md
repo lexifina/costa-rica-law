@@ -1,0 +1,1 @@
+Artículo 23.—El abogado deberá excusarse de atender la dirección de un juicio cuando tuviere vínculos de parentesco de hasta tercer grado de consanguinidad o afinidad, lo cual comunicará por escrito a la Unidad de Cobro, dentro de las cuarenta y ocho horas siguientes al recibo de la documentación de cobro.

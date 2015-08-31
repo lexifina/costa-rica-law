@@ -1,0 +1,3 @@
+CAPÍTULO X
+Disposiciones Finales
+Artículo 45.—A las materias que son objeto del presente Manual, resultan aplicables de manera supletoria las disposiciones contenidas, sobre las mismas en el Código Civil, Código Procesal Civil, Ley de Cobro Judicial, la Ley General de la Administración Pública, el Código Procesal Contencioso Administrativo, la Ley Orgánica del Colegio de Abogados, Decreto Ejecutivo de Arancel de Honorarios por Servicios Profesionales de Abogacía y Notariado, 12 de 14 Ley de Notificaciones Judiciales, Ley General de Arrendamientos Urbanos y Suburbanos, Monitorio Arrendaticio, así como cualquier otra Norma que guarde relación con este Manual.

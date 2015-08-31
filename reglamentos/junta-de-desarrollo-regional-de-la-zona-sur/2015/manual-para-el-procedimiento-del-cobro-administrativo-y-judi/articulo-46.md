@@ -1,0 +1,1 @@
+Artículo 46.—El presente Manual una vez aprobado por Junta Directiva entra en vigencia y empieza a regir, una vez publicado en el Diario Oficial La Gaceta, dejando sin efecto cualquier manual de cobro vigente con anterioridad.

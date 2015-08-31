@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los arreglos de pago
+Artículo 15.—Los arreglos de pago serán a solicitud formal del deudor y procederán a partir del atraso en el pago de una mensualidad. Las promesas de pago o arreglos de pago deberán hacerse constar por escrito y contar con criterio de recomendación emitida por la Unidad de Cobro. En el caso de que los arreglos de pago se incumplan, a partir del vencimiento de la segunda cuota, JUDESUR iniciará de forma inmediata los trámites de cobro judicial del monto adeudado, a través de los procedimientos establecidos en este Manual y aquellos que estime pertinentes que estén conforme a derecho.

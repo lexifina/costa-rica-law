@@ -1,0 +1,5 @@
+Artículo 6°—Una vez realizados los trámites de cobro administrativo y transcurridos los tiempos perentorios señalados al deudor sin resultado en la recuperación de los recursos, la Unidad de Cobro, ejercitará lo estipulado en el capítulo VI de este Manual iniciando las gestiones de Cobro Judicial, con el siguiente orden:
+a. Traslado contable de la operación a la cuenta de financiamiento en cobro judicial.
+b. Asignará el caso al abogado contratado, de acuerdo con la normativa vigente según la Ley de Contratación Administrativa y otras normativas aplicables.
+c. Girará instrucciones al abogado asignado, indicándole proceder con la gestión cobratoria por la vía judicial, remitiéndole la documentación necesaria para la interposición del proceso judicial.
+d. Recibida la documentación por el abogado, éste procederá a presentar la demanda ante las instancias pertinentes en el plazo de cinco días hábiles, conforme a lo indicado en el Manual de Cobro Administrativo y Judicial, vigente en JUDESUR y a la legislación aplicable al cobro judicial.

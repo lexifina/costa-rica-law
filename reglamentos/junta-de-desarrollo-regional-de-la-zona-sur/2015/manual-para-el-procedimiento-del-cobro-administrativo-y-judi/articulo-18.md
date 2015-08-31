@@ -1,0 +1,3 @@
+Artículo 18.—Para amortizaciones por adelantado al principal, deberá aplicarse cualquiera de los siguientes procedimientos:
+a. Mantener la cuota de amortización y reducir el plazo de la deuda.
+b. Mantener el plazo de la deuda originalmente pactado y reducir la cuota. La cuota de abono adicional al principal podrá realizarse en cualquier momento y por cualquier monto. Para efectos de calcular una posible reducción en el plazo de la deuda o en la cuota fija de atención de la deuda, se calculará sobre la base de mensualidades completas, a partir de la fecha que en forma efectiva se acredite por JUDESUR la amortización adicional al principal.

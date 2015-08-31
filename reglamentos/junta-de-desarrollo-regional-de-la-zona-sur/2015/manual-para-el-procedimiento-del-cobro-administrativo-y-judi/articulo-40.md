@@ -1,0 +1,1 @@
+Artículo 40.—Posterior a la cancelación de la deuda de una operación crediticia, la Unidad de Cobro autorizará a la Tesorería institucional a la liberación de los gravámenes, mediante la entregar de los contratos, escrituras que en su momento fueros ofrecido como garantías.

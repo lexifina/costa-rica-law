@@ -1,0 +1,1 @@
+Artículo 30.—Los abogados que por alguna razón personal deseen dejar de servir a JUDESUR, deberán comunicar esa decisión con treinta días de antelación a la Unidad de Cobro y devolver la totalidad de los expedientes judiciales que manejan a la Unidad de Cobro.

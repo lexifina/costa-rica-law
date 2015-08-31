@@ -1,0 +1,1 @@
+Artículo 16.—Para efectos de readecuación, la Junta podrá considerar la posibilidad de aprobar las nuevas condiciones con que se regirá el crédito. En este caso, el trámite le corresponde a la Jefatura de la Unidad de Cobro, quien rendirá un informe técnico financiero al Comité Especial de Crédito y éste emitirá la recomendación positiva o negativa a La Junta.

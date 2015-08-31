@@ -1,0 +1,1 @@
+Artículo 13.—A fin de que haya la mayor equidad posible, la Unidad de Cobro hará la distribución de los casos que se asignan a cobro judicial, tomando en consideración el rol de abogados establecido. No se tomarán en cuenta aquellos abogados que se encuentran suspendidos por incumplimiento de las disposiciones de este Manual.

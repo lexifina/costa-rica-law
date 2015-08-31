@@ -1,0 +1,1 @@
+Artículo 39.—Los abogados designados no podrán suspender en forma definitiva el proceso judicial hasta tanto JUDESUR se lo manifieste por escrito, siendo responsabilidad de la Unidad de Cobro llevar a cabo la comunicación formal. CAPÍTULO XIX Cancelación de la Deuda

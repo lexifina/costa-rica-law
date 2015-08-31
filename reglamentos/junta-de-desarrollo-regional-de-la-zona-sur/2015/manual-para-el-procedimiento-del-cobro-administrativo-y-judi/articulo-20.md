@@ -1,0 +1,1 @@
+Artículo 20.—El saldo total de la deuda a cancelar se calculará a partir de la fecha del último abono recibido y al día del mes en el que se solicita la cancelación total (intereses pendientes, intereses por mora, cuotas de amortización pendiente).

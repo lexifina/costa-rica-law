@@ -1,0 +1,1 @@
+Artículo 25.—Los abogados contratados no podrán aceptar casos de litigio en contra de JUDESUR. El no cumplimiento a esta disposición hará que su contratación quede revocada automáticamente como abogado de la Institución.

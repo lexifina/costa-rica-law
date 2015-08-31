@@ -1,0 +1,1 @@
+Artículo 3°—Todas las gestiones de cobro que sobre las cuentas por cobrar que lleve la Unidad de Cobro se regirá por las disposiciones del presente Manual, sin perjuicio de que la Junta pueda recurrir a un procedimiento más acelerado, en aquellos casos que las circunstancias lo ameritan.

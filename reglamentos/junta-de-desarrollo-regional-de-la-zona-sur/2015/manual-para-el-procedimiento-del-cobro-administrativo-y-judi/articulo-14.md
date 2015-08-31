@@ -1,0 +1,1 @@
+Artículo 14.—La Unidad de Cobro rendirá informes mensuales en los primeros días 10 de cada mes o -el día hábil siguiente-, estratificada por los rangos de 0 a 30 de 31 a 60 y de 61 días en adelante, de la cartera total en estado activo a la Jefatura Administrativa Financiera, con indicación clara de las gestiones realizadas de cobro.

@@ -1,0 +1,1 @@
+Artículo 43.—La Unidad de Cobro podrá solicitar a la Unidad de Tesorería la entrega del Contrato de Crédito para Estudios y adendas al fiador o a un tercero, cuando éste efectúe directamente ante la Unidad de Cobro el trámite de cancelación de la deuda.
