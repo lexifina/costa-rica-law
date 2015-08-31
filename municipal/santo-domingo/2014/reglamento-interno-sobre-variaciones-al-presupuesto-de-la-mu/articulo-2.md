@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Este Reglamento es de carácter obligatorio para todos los funcionarios municipales y será aplicable a todos los órganos adscritos a la Municipalidad de Santo Domingo de Heredia, que la ley establezca como tales.
