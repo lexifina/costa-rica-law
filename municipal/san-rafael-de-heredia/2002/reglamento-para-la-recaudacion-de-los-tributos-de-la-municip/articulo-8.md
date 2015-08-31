@@ -1,1 +1,0 @@
-Artículo 8º—El pago efectuado voluntariamente por un tercero extinguirá la obligación tributaria y quien pague se subrogará en el crédito, sus garantías y privilegios, mas no en aquellas potestades que se deriven de la naturaleza pública del acreedor inicial.

@@ -1,6 +1,0 @@
-Artículo 32.—Previo a la ejecución de la orden de cierre la Municipalidad debe hacer un requerimiento formal al contribuyente, para que ingrese dentro del plazo de cinco días hábiles, contados a partir del día siguiente al de la notificación, las sumas adeudadas.
-El requerimiento deberá contener los siguientes requisitos:
-a) Efectuarse en forma escrita, dirigida al sujeto pasivo y firmada por el Jefe del área encargada de la recaudación del tributo.
-b) Indicar que en caso de incumplimiento se ordenará el cierre del negocio.
-c) Notificarse en el domicilio de conformidad con lo establecido en el artículo 137 del Código de Normas y Procedimientos Tributarios, con aplicación supletoria de la Ley General de la Administración Pública, Ley de Notificaciones, Citaciones y Otras Comunicaciones Judiciales y el Código Procesal Civil.
-Vencido el plazo de cinco días sin que el sujeto pasivo hubiese cancelado el tributo adeudado, acordado un arreglo de pago o demostrado la defensa de pago, la Municipalidad decretará y ejecutará la orden de cierre del negocio. Esta resolución deberá emitirla el Alcalde Municipal a más tardar dentro de los tres días siguientes al vencimiento del plazo de cinco días.
