@@ -16,3 +16,4 @@ Reglamento para el Funcionamiento de los Fondos Especiales
 | 1 | 2012-08-07 | la propia norma |
 | 2 | 2014-05-20 | Reglamento 5170 (2014-05-20) |
 | 3 | 2014-05-20 | Reglamento 5170 (2014-05-20) |
+| 4 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
