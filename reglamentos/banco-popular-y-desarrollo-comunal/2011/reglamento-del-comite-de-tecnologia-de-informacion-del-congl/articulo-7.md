@@ -1,2 +1,0 @@
-Artículo 7º—Remisión del orden del día y convocatoria. El orden del día de las sesiones ordinarias del Comité se comunicará a sus integrantes por escrito con al menos un día hábil de anticipación. Las sesiones extraordinarias deberán convocarse con un plazo mínimo de 24 horas previo a su celebración, convocatoria que será acompañada por el orden del día.
-Tanto en el caso de las sesiones ordinarias como en el de las extraordinarias, deberá remitirse la documentación correspondiente.

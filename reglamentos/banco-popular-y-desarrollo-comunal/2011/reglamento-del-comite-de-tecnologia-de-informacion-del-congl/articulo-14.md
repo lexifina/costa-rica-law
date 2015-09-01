@@ -1,1 +1,0 @@
-Artículo 14.—Asistencia de funcionarios a sesiones del Comité. Los funcionarios del Conglomerado asistirán a las sesiones del Comité a las que se les convoque, debiendo responder las interrogantes que sobre asuntos de su competencia les formulen los presentes.

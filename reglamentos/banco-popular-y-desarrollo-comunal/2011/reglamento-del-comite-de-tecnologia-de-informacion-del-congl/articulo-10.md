@@ -1,2 +1,0 @@
-Artículo 10.—De las actas. De cada sesión se deberá levantar un acta que, una vez aprobada, será firmada por el Presidente y el Secretario. El acta contendrá su desarrollo, los acuerdos emitidos y el nombre de los miembros que asistieron.
-En todos los casos, se deberá asentar en el acta los responsables de la ejecución de los acuerdos tomados, así como los plazos establecidos para su cumplimiento.
