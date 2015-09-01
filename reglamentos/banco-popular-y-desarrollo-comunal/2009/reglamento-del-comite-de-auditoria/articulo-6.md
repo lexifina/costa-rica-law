@@ -1,5 +1,0 @@
-Artículo 6º—Frecuencia de las sesiones. El Comité de Auditoría Corporativo, sesionará al menos una vez cada tres meses en forma ordinaria, y extraordinariamente cuando su Presidente convoque.
-Formarán quórum la mitad más uno de sus miembros según sea su integración de conformidad con el artículo anterior, siempre y cuando esté presente el especialista ahí indicado. Cuando se vayan a tratar asuntos que interesen a alguna o algunas de las entidades, deberá estar presente su representante indicado en el párrafo primero del artículo anterior.
-De cada reunión se levantará un acta, en el Libro de Actas debidamente legalizado por la Superintendencia General de Entidades Financieras conforme lo establecido en el Reglamento de Gobierno Corporativo emitido por el CONASSIF y la Circular Externa SUGEF-39-2005.
-El acta deberá ser aprobada en la siguiente sesión ordinaria salvo que se imposibilite por circunstancias especiales, en cuyo caso necesariamente se aprobará en la siguiente sesión ordinaria.
-(Así reformado en sesión Nº 4755 del 13 de mayo de 2010)
