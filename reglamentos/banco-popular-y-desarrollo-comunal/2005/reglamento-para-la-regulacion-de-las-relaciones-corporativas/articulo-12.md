@@ -1,10 +1,10 @@
-Artículo 12º—De los órganos corporativos. Son órganos corporativos del Grupo Corporativo:
-a. La Gerencia General Corporativa.
-b. El Comité Ejecutivo Corporativo.
-c. El Comité Corporativo de Riesgo.
-d. El Comité Gerencial Informático Corporativo.
-e. El Comité para la Prevención , Detección y Control de la Legitimación de Capitales.
-f. La Comisión de Coordinación Corporativa de Auditoría.
-g. El Comité de Auditoría Corporativo, el cual se regirá por lo dispuesto en el Reglamento del Comité de Auditoría Corporativo del Banco Popular y sus Sociedades Anónimas.
-h. La Unidad Técnica Corporativa.
-(Así reformado mediante sesión N° 4528 del 1° de noviembre de 2007).
+Artículo 12. De los órganos corporativos.
+De los órganos corporativos. Son órganos corporativos del Conglomerado:
+a) La Gerencia General Corporativa.
+b) Comisión Gerencial Ejecutiva Corporativa.
+c) La Comisión Corporativa de Riesgo.
+d) El Comité de Tecnología de Información.
+e) El Comité Corporativo de Auditoría.
+f) La Unidad Técnica Corporativa.
+g) Consejo de Sostenibilidad Corporativo.
+(Así reformado por el punto iv) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015)

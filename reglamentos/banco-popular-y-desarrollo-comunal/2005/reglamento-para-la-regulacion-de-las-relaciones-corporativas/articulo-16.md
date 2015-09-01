@@ -1,2 +1,1 @@
-Artículo 16º—Del Comité Gerencial Informático Corporativo. Se regirá por el Reglamento del Comité Gerencial Informático Corporativo aprobado por la Junta Directiva Nacional.
-(Así reformado mediante sesión N° 4528 del 1° de noviembre de 2007).
+Artículo 16º— (Derogado por el punto iv) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015)
