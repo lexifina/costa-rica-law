@@ -1,1 +1,1 @@
-Artículo 32.—Comités de Apoyo creados por normativa externa. El Conglomerado cuenta con los Comités de Apoyo de: Auditoría Corporativo, Riesgo, Cumplimiento y Tecnología de Información y cualquier otro que llegare a determinar la normativa externa aplicable.
+Artículo 32.— (Derogado por el punto x) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015)

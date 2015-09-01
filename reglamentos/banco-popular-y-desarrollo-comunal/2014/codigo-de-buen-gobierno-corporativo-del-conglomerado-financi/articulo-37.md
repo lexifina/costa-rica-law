@@ -1,1 +1,1 @@
-Artículo 37.—Plan de trabajo anual. Cada Comité de Apoyo o comisión deberá elaborar un plan de trabajo anual que será aprobado por la Junta Directiva respectiva a más tardar en el mes de diciembre del año anterior a su vigencia.
+Artículo 37.—. (Derogado por el punto x) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015)
