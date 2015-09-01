@@ -1,0 +1,11 @@
+Artículo 22º—Límite máximo de emisión para dioxinas, furanos y bifenilos policlorados. Los incineradores no deben descargar al aire dioxinas, furanos y bifenilos policlorados en concentraciones superiores a las establecidas en el Cuadro Nº 3 del presente artículo, determinadas de conformidad con el Anexo III del presente Decreto.
+Cuadro Nº 3
+Límite máximo de emisión para dioxinas, furanos y bifenilos policlorados
+Contaminante | Valor máximo permisible (1) | Método (2)
+Dioxinas, furanos y bifenilos policlorados | 0,1 ng (EQT)/m3 | EPA 23, 0023A, 8280B y 8290A o su equivalente - EPA 1668A Cromatografía de gases de alta resolución y analizados por espectrometría de masas-masas de alta resolución
+Notas al Cuadro Nº 3.
+(1) El valor límite de emisión se refiere a la concentración total de dioxinas, furanos y bifenilos policlorados calculada utilizando el concepto de equivalencia tóxica de conformidad con el Anexo I del presente reglamento.
+(2) La equivalencia de los métodos con aquellos establecidos en el cuadro No. 3 debe ser determinada previamente por el Colegio de Químicos de Costa Rica.
+Toda instalación que opere un equipo de coincineración, incluyendo cualquier otro emisor que opere un sistema de descomposición térmica y de cuyas fuentes es posible tener el ingreso de cualquier material que contenga uno o más átomos de cloro, deben cumplir con las disposiciones de este reglamento y con la incorporación de un sistema de muestreo para dioxinas, furanos y bifenilos policlorados acumulativo y continuo.
+Este sistema de muestreo continuo debe ser administrado por un tercero, el cual deberá ser o poseer un laboratorio con capacidad de instalar, muestrear y analizar las emisiones gaseosas al final de ciclos continuos de siete (7) días, veinticuatro (24) horas diarias. Al final de cada ciclo se debe retirar el adsorbente para analizarlo y de forma inmediata debe ser sustituido por nuevo adsorbente para que se reanude nuevamente un ciclo de muestreo, repitiéndose nuevamente todo el ciclo, ciclo tras ciclo de manera continua, al menos mientras la operación de descomposición térmica se esté ejecutando.
+Los entes generadores o administradores de este tipo de actividades deben cumplir con los requisitos técnicos de muestreo y análisis contenidos en el Anexo III para poder generar emisiones gaseosas.

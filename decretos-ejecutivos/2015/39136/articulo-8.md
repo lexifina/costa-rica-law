@@ -1,0 +1,3 @@
+Artículo 8º—Requisitos generales para la aprobación del Permiso de Ubicación por el Ministerio de Salud de una instalación de coincineración.
+a) Los lugares propuestos para las instalaciones de coincineración deben estar de acorde con el Ordenamiento Territorial aprobado, o en su defecto con un Uso de Suelo Conforme emitido por la Municipalidad.
+b) En el caso de que en proyecto de un relleno sanitario nuevo se pretenda incluir una instalación de coincineración, se debe cumplir adicionalmente con el Decreto Ejecutivo No. 38928-S del 14 de noviembre del 2014 “Reglamento sobre Rellenos Sanitarios”, publicado en La Gaceta N° 83 del 30 de abril del 2015.

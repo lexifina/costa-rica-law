@@ -1,0 +1,1 @@
+TRANSITORIO SEXTO: Para los establecimientos e instalaciones que incineren residuos peligrosos, se aplican los límites de emisión establecidos en el presente reglamento, hasta tanto el Estado establezca la normativa específica para la incineración de residuos peligrosos.

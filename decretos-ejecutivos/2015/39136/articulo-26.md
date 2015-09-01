@@ -1,0 +1,1 @@
+Artículo 26º—Incertidumbre. Para los análisis de las emisiones atmosféricas, caracterización de sólidos y vertidos, los laboratorios deben indicar la incertidumbre estadística en los resultados obtenidos.

@@ -1,0 +1,15 @@
+Artículo 12º—Condiciones de operación. Todas las instalaciones de coincineración deben cumplir con las siguientes condiciones para su operación:
+a) El diseño, equipamiento y la operación del tratamiento térmico deben permitir que la temperatura de los gases de combustión derivados del proceso de tratamiento de los residuos se eleve, tras la última inyección de aire de combustión, de manera controlada y homogénea, aun en las condiciones más desfavorables, hasta un mínimo de 900 °C en la cámara secundaria, durante un tiempo de residencia de los gases superior a dos (2) segundos.
+En caso de tratamiento térmico de residuos homogenizados con más de 1 % de compuestos halogenados, expresados en cloro, la temperatura de los gases de combustión debe elevarse hasta 1100 °C durante un tiempo de residencia de los gases superior a dos (2) segundos en la cámara secundaria.
+En todos los casos ambas cámaras deben operar en el régimen de flujo turbulento.
+b) Las instalaciones de coincineración de residuos deben utilizar un sistema automático que impida la alimentación de residuos en las siguientes situaciones:
+i. Durante la puesta en marcha, cuando no se hayan alcanzado las condiciones establecidas en el inciso a) de este artículo.
+ii. Cuando no se mantengan las temperaturas establecidas en el inciso a) de este artículo.
+iii. Cuando ocurra alguna perturbación o fallo en el incinerador o el equipo de control de emisiones.
+c) El incinerador debe ser operado por personal calificado en el manejo seguro del equipo. Los registros de capacitación provistos por la empresa operadora o fabricante, deberán ser verificados por el Ministerio de Salud cuando se realicen inspecciones.
+d) Los residuos a introducirse al incinerador deben cumplir con lo establecido en el artículo 15 del presente reglamento.
+e) Las cámaras se deben mantener permanentemente a una presión menor con respecto a la presión atmosférica, por medio de los ventiladores de tiro inducido o sistemas equivalentes en el circuito de gases, que impida la salida de emisiones fugitivas.
+f) El área de pretratamiento o acondicionamiento de los residuos debe diseñarse para un máximo de cuatro (4) días de capacidad de operación de la planta.
+g) El foso o área de almacenamiento de residuos se debe diseñar para almacenar entre dos (2) y cuatro (4) días de capacidad de operación de la planta. En el caso de residuos voluminosos se debe contar con un puesto de descarga especial, donde el vertido del camión se realiza sobre una tolva o similar que alimente un sistema de reducción de volumen (cizalla, molino), y los residuos una vez triturados pasen directamente al foso de residuos.
+h) La turbulencia de las mezclas de los gases de combustión debe minimizar la corrosión y el ensuciamiento de las superficies internas.
+i) Se debe instalar un precalentador de aire para garantizar el secado de los residuos con alto contenido de humedad y garantizar el poder calorífico necesario de la mezcla de residuos alimentados, de conformidad con el artículo 20 del presente reglamento.

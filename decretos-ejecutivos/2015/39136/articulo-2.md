@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación. El presente reglamento se aplica para la operación de instalaciones para coincineración fijas como medio de tratamiento de residuos ordinarios generados en el territorio nacional. Los Anexos I, II, III y IV de este reglamento son parte integral y vinculante de éste.
+Se excluye de la aplicación del presente reglamento el coprocesamiento de residuos en hornos cementeros, que se regula por normativa específica.

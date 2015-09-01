@@ -1,0 +1,2 @@
+Artículo 20º.- Características energéticas de los residuos. Los residuos a ser utilizados en el proceso de coincineración deben tener como mínimo un poder calórico inferior de 8000 kJ/kg (base seca), lo que debe ser determinado previamente mediante estudios calorimétricos realizados por el operador de la instalación de coincineración o estudios teóricos, aportando un cuadro resumen con los valores ponderados del poder calorífico inferior.
+Durante la fase de operación, dicho valor debe incluirse en los Reportes Operacionales y debe realizarse mediante un balance de energía.

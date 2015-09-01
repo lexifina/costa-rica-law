@@ -1,0 +1,1 @@
+TRANSITORIO CUARTO: SETENA no conocerá los procesos de EsIA para instalaciones de coincineración durante los primeros nueve (9) meses contados a partir de la publicación del presente reglamento en el diario oficial La Gaceta.

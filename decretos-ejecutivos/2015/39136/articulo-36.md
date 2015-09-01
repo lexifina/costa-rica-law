@@ -1,0 +1,1 @@
+Artículo 36º— Derogatorias. Deróguese el Decreto Ejecutivo No. 38500-S-MINAE del 11 de junio del 2014 “Moratoria nacional de las actividades de transformación térmica de residuos sólidos ordinarios” publicado en La Gaceta N° 122 del 26 de junio del 2014.

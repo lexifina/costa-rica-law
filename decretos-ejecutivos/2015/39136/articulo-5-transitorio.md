@@ -1,0 +1,1 @@
+TRANSITORIO QUINTO: En un plazo de un (1) año el Ministerio de Salud debe establecer los valores mínimos de materiales valorizables, que deben ser separados y recuperados de la mezcla de residuos sólidos ordinarios municipales.

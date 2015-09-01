@@ -1,0 +1,10 @@
+Artículo 33º—Incumplimiento. En caso de incumplimiento con los límites de emisión de los Cuadros No. 2 y 4 del presente reglamento, el ente operador debe adjuntar al reporte operacional Plan de Acciones Correctivas que establece el presente reglamento, y presentar un segundo reporte para seguimiento del Plan en un plazo no mayor a 20 días hábiles. Al finalizar el Plan de Acciones Correctivas el ente operador debe presentar un Reporte Operacional de verificación final. En caso de incumplimiento con la presentación del Plan, con la presentación del segundo reporte o con la implementación del Plan de Acciones Correctivas, el Ministerio debe proceder a suspender el Permiso Sanitario de Funcionamiento, siguiendo el debido proceso y de conformidad con los artículos 355, 356, 357, 363 y 364 de la Ley N° 5395 de 30 de octubre de 1973 "Ley General de Salud".
+En caso de incumplimiento con el límite establecido en el Cuadro No 3 para dioxinas y furanos se debe actuar de conformidad con el Cuadro No. 5 del presente reglamento. El Plan de Acciones Correctivas deberá presentarse al Ministerio de Salud en un plazo de cinco (5) días de haberse conocido la inconformidad por parte de la empresa.
+Cuadro No. 5
+Rangos de acción para dioxinas, furanos y bifenilos policlorados
+Equivalentes ng/m3 total (EQT) | Periodicidad del ciclo | Acción
+0,050 > EQT ≥ 0,010 | Una vez en ocho (8) ciclos | Advertencia previa a clausura de operación Presentar al Ministerio de Salud el Plan de Acciones Correctivas
+| Segunda vez en ocho (8) ciclos | Clausura temporal de operación por el Ministerio de Salud El ente operador debe presentar al Ministerio de Salud el Plan de Acciones Correctivas
+0,10>EQT ≥0,050 | Una vez en cuatro (4) ciclos | El ente operador debe presentar al Ministerio de Salud Plan de Acciones Correctivas de forma
+| Segunda vez en cuatro (4) ciclos | Clausura temporal de operación por el Ministerio de Salud El ente operador debe presentar al Ministerio de Salud el Plan de Acciones Correctivas
+EQT ≥0,10 | Cualquier Ciclo | Advertencia previa a clausura de operación Clausura temporal de operación por el Ministerio de Salud

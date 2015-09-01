@@ -1,0 +1,16 @@
+Nº 39136-S-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+Y LOS MINISTROS DE SALUD
+Y DE AMBIENTE Y ENERGÍA
+En uso de las facultades que les confieren los artículos 140 incisos 3), 18) y 146 de la Constitución Política; 25, 27 inciso 1), 28 inciso b) y 103 inciso 1) de la Ley Nº. 6227 del 2 de mayo de 1978 “Ley General de la Administración Pública”; 2, 4, 7, 37, 38, 39, 239, 240, 241, 242, 243, 252, 293, 294, 295, 296, 297, 337, 345 inciso 7), 347, 349, 355, 364, 369, y 381 y concordantes de la Ley N° 5395 de 30 de octubre de 1973 "Ley General de Salud"; 6° de la Ley N° 5412 de 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud", 2, 3, 7, 33, 34, y 35 de la Ley Nº 8839 de 24 de junio del 2010 “Ley para la Gestión Integral de Residuos” y 1, 2, 3, 4, 5, 49, 56, 57, 59, 60, 62 y 63 de la Ley Nº 7554 del 4 de octubre de 1995 “Ley Orgánica del Ambiente”.
+CONSIDERANDO
+1º––Que la salud de la población es un bien de interés público tutelado por el Estado.
+2º––Que toda persona, natural o jurídica, queda sujeta a los mandatos de la Ley General de Salud y Ley Orgánica del Ambiente, de sus reglamentos y de las órdenes generales y particulares, ordinarias y de emergencia, que las autoridades de salud y ambiente dicten en el ejercicio de sus competencias.
+3º––Que la protección a la salud de las personas y el ambiente exige de las personas físicas y jurídicas el establecimiento y mantenimiento de condiciones operativas y de requisitos técnicos rigurosos.
+4º––Que se hace necesario establecer normas para todas las instalaciones de coincineración de residuos ordinarios con el objeto de eliminar los impactos negativos a la salud pública y el ambiente.
+5º––Que se debe evitar la coincineración de residuos con un contenido superior al 1 % de compuestos halogenados expresados en cloro, por lo que ésta debe estar sujeta a determinadas operaciones de separación y control con objeto de evitar la formación de los contaminantes orgánicos, como las dioxinas, furanos y bifenilos policlorados.
+6º––Que la Ley Nº 8279 del 2 de mayo del 2002 “Sistema Nacional para la Calidad”, publicada en La Gaceta No. 96 del 21 de mayo del 2002 y la Ley Nº 8412 del 22 de abril del 2004 “Ley Orgánica del Colegio de Ingenieros Químicos y Profesionales Afines y Ley Orgánica del Colegio de Químicos de Costa Rica” en el Título II “Normativa del Colegio de Químicos de Costa Rica”, establecen que los procedimientos de muestreo y análisis pueden ser acreditados ante el Ente Costarricense de Acreditación y que deben ser refrendados por el Colegio de Químicos, respectivamente.
+POR TANTO,
+DECRETAN:
+REGLAMENTO SOBRE CONDICIONES DE OPERACIÓN Y CONTROL DE EMISIONES DE INSTALACIONES PARA COINCINERACIÓN DE RESIDUOS SÓLIDOS ORDINARIOS
+Artículo 1º—Objeto. Este reglamento tiene por objeto establecer requisitos de operación y límites máximos de emisión para las instalaciones de coincineración de residuos sólidos ordinarios y eliminar los impactos negativos a la salud de las personas y al ambiente. La coincineración debe ser la última opción, una vez cumplida la jerarquización en la gestión integral de residuos, establecida en el artículo 4 de la Ley Nº 8839 del 24 de junio del 2010 “Ley para la Gestión Integral de Residuos”, publicada en La Gaceta N° 135 del 13 de julio del 2010.

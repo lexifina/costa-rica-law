@@ -1,0 +1,1 @@
+TRANSITORIO TERCERO: En un plazo de nueve (9) meses la SETENA debe elaborar las guías y procedimientos correspondientes, para la revisión de los Estudios de Impacto Ambiental (EsIA) para incluir las instalaciones de coincineración.
