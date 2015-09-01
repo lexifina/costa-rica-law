@@ -1,1 +1,0 @@
-Artículo 15.—Asuntos no indicados en el orden del día. No podrá ser objeto de acuerdo ningún asunto que no figure en el orden del día, salvo que estén presentes los dos tercios de los miembros del órgano y sea declarada la urgencia del asunto por el voto favorable de todos ellos.
