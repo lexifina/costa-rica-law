@@ -1,0 +1,1 @@
+Artículo 8º—Se deja sin efecto la resolución Nº 426-V del 08 de abril de 1991 de la Dirección General de Tributación y cualquier otra disposición normativa que se oponga a lo establecido en esta resolución.
