@@ -1,5 +1,6 @@
 Artículo 16.—Inversiones en mercados internacionales. Las inversiones en el mercado internacional se realizarán conforme a las disposiciones normativas aprobadas por la Junta Directiva Nacional, y se podrán realizar a través de los puestos de bolsa internacionales con los que la Junta Directiva de Popular Valores haya aprobado una relación de negocios.
 Para formalizar una inversión internacional, será necesario:
-a. Contar con la aprobación del Comité de Inversiones.
+a. Contar con la aprobación del Comisión (*) de Inversiones.
+(*) (Así modificada su denominación por el punto iii) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015. Anteriormente indicaba "Comité". No obstante se debe indicar que aunque la norma dice que se reforme el Reglamento de Inversiones Financieras del Conglomerado Banco Popular y de Desarrollo Comunal publicado en La Gaceta del 16 de agosto del 2010 el mismo se encuentra derogado por lo que las modificaciones se realizaron al presente reglemento)
 b. Tomar en cuenta la tolerancia al riesgo de este tipo de fondos, así como las necesidades futuras de capital para el logro de los objetivos.
 c. Plantear una estrategia de inversión, la cual deberá ser validada con los criterios del área de riesgo, buscando un adecuado balance entre riesgo, rentabilidad y liquidez.
