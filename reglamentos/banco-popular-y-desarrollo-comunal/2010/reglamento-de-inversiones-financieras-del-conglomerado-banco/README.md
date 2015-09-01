@@ -15,3 +15,4 @@ Reglamento de Inversiones Financieras del Conglomerado Banco Popular y de Desarr
 | --- | --- | --- |
 | 1 | 2010-08-16 | la propia norma |
 | 2 | 2014-12-11 | Reglamento 5238 (2014-12-11) |
+| 3 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
