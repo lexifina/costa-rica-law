@@ -20,3 +20,4 @@ Reglamento General de Crédito del Banco Popular y de Desarrollo Comunal
 | 5 | 2013-10-31 | Reglamento 5116 (2013-10-31) |
 | 6 | 2014-08-28 | Reglamento 5205 (2014-08-28) |
 | 7 | 2015-02-26 | Reglamento 5256 (2015-02-26) |
+| 8 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
