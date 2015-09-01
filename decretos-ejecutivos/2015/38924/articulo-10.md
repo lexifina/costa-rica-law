@@ -1,0 +1,5 @@
+Artículo 10. Laboratorios y Métodos de Análisis
+a) Todo laboratorio que realice los análisis físico, químicos y microbiológicos, deben contar con permiso sanitario de funcionamiento otorgado por el Ministerio de Salud, según Decreto Ejecutivo N° 34728-S “Reglamento General para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud” del 28 de mayo del 2008 y sus reformas.
+b) Los métodos de referencia para análisis, son los indicados en la última edición de los Standard Methods for the Examination of Water and Wastewater.
+c) La recolección de muestras para los análisis físico-químicos y microbiológicos deben ser realizados por funcionarios del laboratorio contratado.
+d) Los entes operadores públicos, deben presentar los reportes de análisis emitidos por laboratorios, cuyos métodos de ensayos estén acreditados, conforme lo establece el artículo 34 de la Ley Nº 8279 de 02 de mayo del 2002, “Sistema Nacional para la Calidad” publicada en el Diario Oficial La Gaceta Nº 96 de 21 de mayo del 2002.

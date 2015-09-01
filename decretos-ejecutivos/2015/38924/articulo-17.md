@@ -1,0 +1,1 @@
+Artículo 17. Desinfección. La desinfección debe aplicarse en todos los sistemas de suministro de agua, para mantener un nivel de cloro residual libre que garantice la calidad del agua, ante eventuales contaminaciones en la red de distribución.

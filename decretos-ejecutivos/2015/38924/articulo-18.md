@@ -1,0 +1,1 @@
+Artículo 18. Toda agua superficial utilizada para suministro de agua potable, debe recibir el tratamiento previo que la haga cumplir con los VMA establecidos en el presente reglamento, de igual manera se debe garantizar la eficiencia de la desinfección.

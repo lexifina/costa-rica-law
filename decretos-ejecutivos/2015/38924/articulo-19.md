@@ -1,0 +1,1 @@
+Artículo 19. El Ministerio de Salud publicará vía decreto, los valores máximos admisibles para cualquier contaminante que no esté contemplado en el Anexo 1 del presente reglamento, basado en un análisis de riesgo y criterios técnicos y apoyado en las normas internacionales o extranjeras aplicables.

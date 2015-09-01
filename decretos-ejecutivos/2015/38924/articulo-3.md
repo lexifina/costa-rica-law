@@ -1,0 +1,1 @@
+Artículo 3. Para todos los efectos de regulaciones en la calidad del agua potable abastecida, los entes operadores se sujetarán a este reglamento y a los valores de alerta y máximos admisibles, que se establecen para los parámetros físicos, químicos y microbiológicos.

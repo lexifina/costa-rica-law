@@ -1,0 +1,1 @@
+Artículo 20. Derogatoria. El presente decreto deroga el Decreto Ejecutivo N° 32327-S del 10 de febrero del 2005 “Reglamento para la Calidad del Agua Potable”, publicado en La Gaceta No. 84 del 3 de mayo del 2005.
