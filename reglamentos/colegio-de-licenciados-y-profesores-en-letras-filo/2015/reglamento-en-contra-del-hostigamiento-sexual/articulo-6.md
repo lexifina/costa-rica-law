@@ -1,0 +1,1 @@
+Artículo 6º—El incumplimiento del procedimiento descrito en este reglamento por parte de la persona trabajadora, constituirá causa justa para terminar con responsabilidad patronal, el contrato de trabajo, tal como lo disponen los artículos 15 y 17 de la Ley Nº 7476 reformada por Ley Nº 8805 del 28 de abril del 2010.

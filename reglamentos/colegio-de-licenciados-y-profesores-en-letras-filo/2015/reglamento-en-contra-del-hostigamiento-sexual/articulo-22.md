@@ -1,0 +1,1 @@
+Artículo 22.—El presente instrumento normativo ha sido reconocido por el Ministerio de Trabajo y Seguridad Social, de conformidad con la circular emitida con motivo de la reforma introducida a la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia Nº 7476, mediante la Ley Nº 8805 de 28 de abril del 2010 publicada en La Gaceta Nº 106 del 02 de junio del 2010.

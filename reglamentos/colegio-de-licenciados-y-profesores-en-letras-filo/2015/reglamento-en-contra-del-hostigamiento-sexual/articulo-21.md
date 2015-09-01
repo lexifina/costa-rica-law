@@ -1,0 +1,1 @@
+Artículo 21.—En las contrataciones outsourcing que tenga el COLYPRO, se incluirán reglas dentro de dicha contratación con la Empresa externa que se trate, que garanticen el cumplimiento de la Ley Nº 7476 y sus reformas en caso de denuncias por hostigamiento sexual contra alguno de los empleados de esa empresa externa.
