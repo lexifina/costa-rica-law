@@ -1,2 +1,0 @@
-Artículo 9º—Responsabilidades del Gerente General Corporativo. El Gerente General Corporativo deberá informar al Comité de Riesgo cada mes, el monto total de las inversiones del Conglomerado, el monto total por cada integrante, el monto total por emisor, por emisión y por tipos de instrumentos, desglosando las inversiones por plazos, intereses o rendimientos, y por la calificación de riesgo que a ese día tengan los valores respectivos.
-Asimismo, el Comité de Riesgo, en los informes que regularmente presenta a la Junta Directiva, aportará la información correspondiente.

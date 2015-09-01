@@ -1,1 +1,0 @@
-Artículo 2º—Marco Legal. La actividad a que se refiere este Reglamento se regirá por la Ley, los reglamentos que emitan órganos externos al Conglomerado Banco Popular, los reglamentos especiales que dictare la Junta Directiva del Banco Popular, el presente Reglamento y las políticas de inversión que emitieren las Juntas Directivas de las Subsidiarias del Banco Popular.

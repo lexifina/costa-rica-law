@@ -1,1 +1,0 @@
-Artículo 14.—Inversión en Derivados Financieros. El Banco y sus sociedades, podrán colocar recursos en derivados financieros, siempre y cuando el subyacente cumpla con los parámetros y cláusulas estipuladas en los respectivos contratos y además cumplan con los objetivos establecidos en este Reglamento.

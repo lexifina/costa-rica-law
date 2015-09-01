@@ -1,1 +1,0 @@
-Artículo 17.—Valores autorizados y su custodia. Las inversiones podrán realizarse en valores representados por medio de macrotítulos desmaterializados, títulos físicos o anotaciones electrónicas en cuenta; deberán ser custodiados en el custodio autorizado, todo según lo establecido en las disposiciones indicadas en el artículo 2 de este Reglamento.
