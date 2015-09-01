@@ -14,3 +14,4 @@ Reglamento de las Juntas de Crédito Local
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-01-30 | la propia norma |
+| 2 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
