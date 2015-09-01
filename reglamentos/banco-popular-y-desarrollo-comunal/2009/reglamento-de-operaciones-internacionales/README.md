@@ -15,3 +15,4 @@ Reglamento de Operaciones Internacionales
 | --- | --- | --- |
 | 1 | 2009-09-11 | la propia norma |
 | 2 | 2010-07-05 | Reglamento 4770 (2010-07-05) |
+| 3 | 2015-09-01 | Reglamento 5306 (2015-09-01) |

@@ -1,1 +1,2 @@
-Artículo 2º—Tarifas y/o comisiones. Por el trámite de cualquiera de los servicios que el Subproceso Internacional del Banco ofrezca a sus clientes, las tarifas y/o comisiones las fijará el Comité indicado en el artículo 8º de este Reglamento.
+Artículo 2º—Tarifas y/o comisiones. Por el trámite de cualquiera de los servicios que el Subproceso Internacional del Banco ofrezca a sus clientes, las tarifas y/o comisiones las fija la Comisión indicada en el artículo 7º de este Reglamento.
+(Así reformado por el punto vii) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015)
