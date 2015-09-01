@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO: La Oficialía Mayor de este Ministerio, asumirá temporalmente las funciones de la Unidad de Transportes, mientras ésta última sea legalmente aprobada por el Ministerio de Planificación y Política Económica.

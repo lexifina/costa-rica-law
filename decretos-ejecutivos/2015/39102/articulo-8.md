@@ -1,0 +1,1 @@
+Artículo 8º—Aprovechamiento de los vehículos. Siendo que los vehículos de uso administrativo que estén a la orden de la Unidad de Transporte, y para un mejor aprovechamiento de recursos; se podrán agrupar varias solicitudes de transporte dentro de una misma ruta en un sólo trayecto.
