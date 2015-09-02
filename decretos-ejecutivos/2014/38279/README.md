@@ -33,3 +33,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 18 | 2015-06-25 | Decreto Ejecutivo 39071 (2015-06-25) |
 | 19 | 2015-06-26 | Decreto Ejecutivo 39070 (2015-06-26) |
 | 20 | 2015-06-29 | Decreto Ejecutivo 39106 (2015-06-29) |
+| 21 | 2015-09-02 | Decreto Ejecutivo 39289 (2015-09-02) |
