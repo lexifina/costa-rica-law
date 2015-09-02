@@ -14,3 +14,4 @@ Amplia para el Programa Integral de Mercadeo Agropecuario (PIMA), el gasto presu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-01 | la propia norma |
+| 2 | 2015-09-02 | Decreto Ejecutivo 39289 (2015-09-02) |
