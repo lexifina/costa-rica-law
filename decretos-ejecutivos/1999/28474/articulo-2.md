@@ -1,2 +1,0 @@
-Artículo 2°-El Plan de Manejo señalado en el articulo anterior, deberá ser presentado por los interesados en el momento de hacer la solicitud ante el SINAC, y ser elaborado por una institución científica o educativa especialista en la materia, que podrá contar con el apoyo del Área de Conservación respectiva y del Programa Nacional de Humedales.
-En la preparación y aprobación de este Plan debe darse participación al Instituto Costarricense de Pesca y Acuacultura, en lo que corresponda a sus competencias legales.

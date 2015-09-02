@@ -1,1 +1,0 @@
-Artículo 23.-En el desarrollo de proyectos turísticos, las infraestructuras de servicio y hospedaje deberán ubicarse fuera de la zona de manglar y cumplir con las normativas existentes sobre el manejo de los desechos.

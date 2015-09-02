@@ -1,2 +1,0 @@
-Artículo 9°-El MINAE también podrá otorgar permisos de uso a instituciones u organizaciones no lucrativas, para que se efectúe, proyectos con carácter de investigación, los que una vez concluida esa fase y transformado en proyecto productivo, deberá ser transferido a la organización de carácter comunal participante.
-En estos casos los Proyectos podrán ser considerados como actividades independientes y únicas o como parte de las actividades a desarrollarse dentro de un Plan de Manejo.

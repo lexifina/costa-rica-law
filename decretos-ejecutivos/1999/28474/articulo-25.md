@@ -1,1 +1,0 @@
-Artículo 25.-Se exonera del pago de canon a los grupos organizados que desarrollen proyectos productivos de moluscos al amparo del presente decreto. Los proyectos ecoturísticos cancelarán el monto del canon acorde con lo establecido en el decreto ejecutivo N° 22550 -MlRENEM, o en su defecto el decreto que regule esa materia.

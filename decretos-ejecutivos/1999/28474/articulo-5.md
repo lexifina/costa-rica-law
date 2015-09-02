@@ -1,1 +1,0 @@
-Artículo 5°-Queda prohibida la construcción de diques que eviten el flujo normal de las mareas, canales que provoquen su desecamiento, relleno o cualquier otra alteración que eventualmente afecte sostenibilidad del mismo, lo mismo que actividades no contempladas en el Plan de manejo aprobado.

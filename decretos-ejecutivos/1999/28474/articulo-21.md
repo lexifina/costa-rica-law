@@ -1,1 +1,0 @@
-Artículo 21-El permiso de uso que otorgue el MINAE describirá las actividades permitidas para el desarrollo del proyecto específico, o en su defecto remitirá al aparte del Plan de Manejo donde se establezcan las mismas.

@@ -1,2 +1,0 @@
-Artículo 12.-Para la implementación del cultivo de moluscos, se permitirá la construcción de tarimas o parques fijos para la colocación de canastas, de balsas flotantes en los canales naturales o esteros y/o el uso del sustrato o fondo natural.
-También podrá realizarse la captura y transporte de semilla para los fines de cultivo de áreas plenamente identificadas como semilleros, de alta concentración de juveniles y la utilización de colectores de semilla en áreas de reproducción, siempre y cuando se cliente con la autorización expresa del INCOPESCA.

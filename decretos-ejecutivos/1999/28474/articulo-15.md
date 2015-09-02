@@ -1,1 +1,0 @@
-Artículo 15.-La realización de inspecciones al área solicitada, tanto para analizar la solicitud de permiso de uso como para fiscalizar el desarrollo de la actividad, le corresponderá al Área de Conservación pertinente y a funcionarios del INCOPESCA, quienes en uso de sus facultades legales podrán actuar conjunta o individualmente.

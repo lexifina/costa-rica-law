@@ -1,1 +1,0 @@
-Artículo 14.- En todo caso el otorgamiento de un permiso para el desarrollo de un proyecto productivo de moluscos, le garantizará a la comunidad beneficiada exclusividad en el uso del área para los fines establecidos en el Plan de Manejo y correlativamente la obligación de proteger el recurso de la zona concedida.

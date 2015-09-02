@@ -1,1 +1,0 @@
-Artículo 22.-La realización de inspecciones al área solicitada, tanto para analizar la solicitud de permiso de uso como para fiscalizar el desarrollo de la actividad, le corresponderá al Área de Conservación pertinente.
