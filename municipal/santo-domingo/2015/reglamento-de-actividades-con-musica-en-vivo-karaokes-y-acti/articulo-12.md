@@ -1,0 +1,1 @@
+Artículo 12.—Las personas físicas o jurídicas que se dediquen a brindar servicios de karaoke, discomóviles, música en vivo, espectáculos públicos y actividades similares a los patentados de negocios en este cantón, deberán contar con una licencia comercial destinada a ese tipo de eventos de acuerdo con el artículo 79 del Código Municipal.

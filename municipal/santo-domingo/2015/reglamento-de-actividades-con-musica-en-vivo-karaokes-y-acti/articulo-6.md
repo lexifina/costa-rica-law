@@ -1,0 +1,1 @@
+Artículo 6°—En ningún caso podrá la Alcaldía autorizar el desarrollo de actividades de karaoke, o similares más allá de las veintitrés horas. A partir de esta hora se prohiben expresamente la realización de actividades de karaoke y similares. Lo anterior en resguardo del interés público.

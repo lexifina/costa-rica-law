@@ -1,0 +1,1 @@
+Artículo 8°—Los patentados deberán tomar las previsiones para que los clientes de los locales a los cuales se les autorizo su funcionamiento, no bloqueen las aceras ni vías públicas y dificulten así el libre tránsito peatonal o vehicular.

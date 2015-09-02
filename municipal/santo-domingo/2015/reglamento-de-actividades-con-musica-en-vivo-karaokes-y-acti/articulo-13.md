@@ -1,0 +1,1 @@
+Artículo 13.—En aquellos casos en que el patentado cuente con estas actividades en forma permanente en su local comercial, este deberá ajustarse, a lo dispuesto en el artículo 79 del Código Municipal y a las regulaciones estipuladas en el presente Reglamento.
