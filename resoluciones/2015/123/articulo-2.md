@@ -1,0 +1,1 @@
+Artículo 2°—Se instruye a la Oficina de Gestión Institucional de Recursos Humanos de la Dirección General de Servicio Civil, para darle el trámite correspondiente, incluyendo las gestiones relacionadas con los trámites de publicación de la presente resolución en el diario oficial La Gaceta y un extracto en un medio de prensa escrita.
