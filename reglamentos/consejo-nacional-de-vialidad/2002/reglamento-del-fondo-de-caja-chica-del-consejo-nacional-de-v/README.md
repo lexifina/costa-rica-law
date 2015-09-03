@@ -14,3 +14,4 @@ Reglamento del Fondo de Caja Chica del Consejo Nacional de Vialidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-04-03 | la propia norma |
+| 2 | 2015-09-03 | Reglamento 1241 (2015-09-03) |
