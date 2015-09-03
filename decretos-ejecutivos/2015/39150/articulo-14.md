@@ -1,0 +1,1 @@
+Artículo 14.—De los Estudios Hidrogeológicos que cuentan con el aval de SENARA. Todos aquellos Gobiernos Locales que cuentan con un estudio hidrogeológico debidamente avalado por SENARA, continuarán el trámite formal ante la SETENA para la revisión de la incorporación de la variable ambiental a la propuesta de plan regulador.

@@ -1,0 +1,1 @@
+Artículo 2º—Herramientas de agilización. Las herramientas de agilización consisten en una serie de autorizaciones y excepciones que podrán ser utilizadas por los Gobiernos Locales durante la vigencia de la transición, ante las distintas instancias nacionales competentes en materia de revisión de la variable ambiental y la aprobación de planes reguladores.
