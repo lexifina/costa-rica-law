@@ -14,3 +14,4 @@ Reglamento de funcionamiento y financiamiento del sétimo Congreso Nacional de A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-14 | la propia norma |
+| 2 | 2015-09-03 | Reglamento 1584 (2015-09-03) |
