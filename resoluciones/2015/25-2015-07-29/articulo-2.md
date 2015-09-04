@@ -1,0 +1,13 @@
+Artículo 2°—Aplicación de tarifas y beneficios tributarios. El monto pagado, acreditado o puesto a disposición, por arrendamiento de bienes de capital, comisiones, intereses y otros gastos financieros, está sujeto a la tarifa ordinaria del 15%, excepto en los siguientes casos:
+1. La persona física o jurídica domiciliada en Costa Rica, que pague o acredite a bancos extranjeros que formen parte de un conglomerado financiero costarricense regulado por el Consejo Nacional de Supervisión del Sistema Financiero, deberá aplicar una tarifa reducida del impuesto, que irá aumentando en forma progresiva, de la siguiente manera:
+a) 5,5% (cinco coma cinco por ciento), durante el primer año de vigencia de la Ley N° 9274 del 12 de noviembre de 2014.
+b) 9% (nueve por ciento), durante el segundo año de vigencia, y
+c) 13% (trece por ciento), durante el tercero año de vigencia de la Ley citada.
+A partir del cuarto año de vigencia de la Ley N° 9274, se pagará la tarifa ordinaria del 15%.
+2. Las entidades sujetas a la vigilancia e inspección de la Superintendencia General de Entidades Financieras (SUGEF) que paguen o acrediten intereses, comisiones y otros gastos financieros a entidades del extranjero que estén sujetas a un ente público con funciones similares a las que desempeña la SUGEF, deberán aplicar una tarifa impositiva del 5,5% (cinco como cinco por ciento), del monto pagado o acreditado.
+3. Están exentos del impuesto establecido en el inciso h) del artículo 59 de la Ley del Impuesto sobre la Renta, las siguientes operaciones sobre los créditos o pagos, por los conceptos que a continuación se detallan:
+a) Intereses, comisiones y otros gastos financieros que se originen en créditos otorgados por bancos multilaterales de desarrollo, que se paguen, acrediten o se pongan a disposición de los beneficiarios.
+b) Intereses, comisiones y otros gastos financieros que se originen en créditos otorgados por organismos multilaterales o bilaterales de desarrollo, que se paguen, acrediten o se pongan a disposición de los beneficiarios.
+c) Intereses, comisiones y otros gastos financieros que se originen en créditos otorgados por organizaciones sin fines de lucro que estén exoneradas o no sujetas al impuesto, que se paguen, acrediten o se pongan a disposición de los beneficiarios.
+Las personas físicas o jurídicas domiciliadas en Costa Rica, que efectúen la remesa o acrediten las rentas o beneficios gravados, deberán verificar que se cumpla con los requisitos exigidos por ley para gozar de los beneficios tributarios.
+Para efectos de los sujetos exonerados citados en los incisos a), b) y c), se aplicarán las definiciones establecidas en el Decreto Ejecutivo número 38906-MEIC-MAG-MH-MIDEPLAN del 3 de marzo de 2015.

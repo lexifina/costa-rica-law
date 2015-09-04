@@ -1,0 +1,2 @@
+Artículo 6°—Derogatorias. Se deja sin efecto la resolución número DGT-R-013-2015 de las 8:00 horas del 1° de junio de 2015, denominada “Resolución sobre las solicitudes de autorización para la aplicación de los beneficios tributarios establecidos en el inciso h) artículo 59 de la Ley del Impuesto sobre la Renta.
+Lo anterior sin perjuicio de lo establecido en el párrafo primero del artículo 5 de esta resolución.
