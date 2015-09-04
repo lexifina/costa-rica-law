@@ -1,0 +1,6 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA S. A.
+La Junta Directiva de la Empresa de Servicios Públicos de Heredia S. A., en la sesión número tres mil quinientos setenta y uno-C de fecha diecisiete de agosto del año dos mil quince, en su artículo tercero, inciso tres y mediante Acuerdo JD doscientos cinco guión dos mil quince acordó lo siguiente:
+1. Refórmese el artículo N° 94 del Reglamento Autónomo de Servicios de la Empresa de Servicios Públicos de Heredia S. A. para que se aplique de la siguiente forma:
+Artículo 94.—Las servidoras que se encuentren en época de lactancia, establecida mediante dictamen médico emanado de la Caja Costarricense de Seguro Social o certificado emitido por un médico privado, disfrutará para esos efectos, de una hora de permiso durante la jornada, por el lapso de tres meses adicionales a los tres meses posparto, en los que ha mediado incapacidad por maternidad, o en un lapso de tiempo mayor previamente certificado por el médico privado o médico de la Caja Costarricense de Seguro Social. La fijación del momento adecuado para su disfrute durante la jornada, se hará de mutuo acuerdo con el jefe respectivo, atendiendo la conveniencia del menor, tal como lo establece el artículo 95 párrafo 1° del Código de Trabajo.
+2. Publíquese en el Diario Oficial La Gaceta.
+3. Acuerdo firme
