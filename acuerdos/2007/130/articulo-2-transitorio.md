@@ -1,1 +1,0 @@
-Transitorio II.—Suscripción de contratos. Las entidades de custodia cuentan con un plazo de seis meses, contados a partir de la entrada en vigencia de este Acuerdo, para el cumplimiento de las disposiciones establecidas en el artículo 7 (Contenido mínimo de los contratos de custodia).
