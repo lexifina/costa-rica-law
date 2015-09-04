@@ -1,0 +1,1 @@
+Artículo 4°—De la protección especial. Todas las personas que denuncien situaciones de hostigamiento o acoso sexual y los testigos gozaran de la protección especial establecida en la ley contra el hostigamiento o acoso sexual en el empleo y la docencia y sus reformas.

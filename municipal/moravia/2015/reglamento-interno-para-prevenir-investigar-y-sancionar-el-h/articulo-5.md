@@ -1,0 +1,1 @@
+Artículo 5°—Denuncias falsas. Quien denuncie hostigamiento sexual falso podrá incurrir cuando así se tipifique, en cualquiera de las conductas propias de la difamación, la injuria o la calumnia, según lo establecido por el Código Penal y la acción para reclamar la responsabilidad penal es de instancia privada.
