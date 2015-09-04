@@ -1,0 +1,3 @@
+Artículo 5º—Desarrollo, modificación, aprobación e implementación de nuevas directrices. Cualquier propuesta para el desarrollo y ajuste de las directrices de Seguridad de la Información es responsabilidad de la Dirección de Gestión con el apoyo de la Dirección de Tecnología de Información del Banco o áreas equivalentes de las Sociedades, y se debe utilizar un procedimiento estándar para su desarrollo.
+Toda directriz de Seguridad de la Información debe estar basada en el Manual de Políticas Institucionales o equivalentes en las Sociedades.
+Cualquier directriz de seguridad o modificación que se proponga debe ser presentada ante la Gerencia General Corporativa para su aprobación y puesta en efectividad. Capítulo Segundo: De la Seguridad de la Información

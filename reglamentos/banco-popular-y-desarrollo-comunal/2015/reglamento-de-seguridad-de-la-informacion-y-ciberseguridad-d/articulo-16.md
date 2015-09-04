@@ -1,0 +1,2 @@
+Capítulo Sexto: De la Continuidad del Negocio
+Artículo 16.—Desarrollo de Planes de Continuidad del Negocio. Los planes de continuidad del negocio deben ser desarrollados a la medida de los requerimientos del Banco y sus Sociedades Anónimas, basarse en las funciones críticas del negocio y sus fuentes de ingresos así como tener una adecuada relación entre los costos de implementar la estrategia de recuperación y el impacto legal, financiero o de imagen de una interrupción prolongada de los servicios críticos.

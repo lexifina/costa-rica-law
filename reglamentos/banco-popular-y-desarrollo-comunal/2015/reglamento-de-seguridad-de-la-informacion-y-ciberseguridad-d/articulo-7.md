@@ -1,0 +1,3 @@
+Artículo 7º—Responsabilidades. Le corresponde a la Gerencia General Corporativa o Gerencias Generales promover la divulgación de las disposiciones de Seguridad de la Información a todos las personas usuarias, así como proveer los recursos necesarios para gestionar el Sistema de Gestión de Seguridad de la Información en todas sus fases.
+Toda persona usuaria debe cumplir con las disposiciones emitidas por Seguridad de la Información.
+Es responsabilidad directa de cada jefatura de área velar por el cumplimiento de las directrices emitidas para La Seguridad de la Información Capítulo Tercero: De la Seguridad Informática
