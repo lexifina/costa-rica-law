@@ -1,0 +1,1 @@
+Artículo 13.—Derogatorias. Se deroga totalmente el SGV-A-130 Acuerdo para la implantación del Reglamento de Custodia (con las reformas del SGV-A-137, SGV-A-144, SGV-A-149, SGV-A-160 y SGV-A-173), aprobado por el Despacho del Superintendente a las 15 horas del veintiséis de febrero del dos mil siete.

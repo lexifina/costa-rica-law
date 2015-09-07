@@ -1,0 +1,1 @@
+Transitorio III.—Las entidades de custodia, así como las centrales de valores cuentan con un plazo de 3 meses a partir de la entrada en vigencia de este Acuerdo, para cumplir con las disposiciones establecidas para la identificación de titulares de los valores y el efectivo asociado.

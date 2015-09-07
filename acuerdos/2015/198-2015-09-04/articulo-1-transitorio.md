@@ -1,0 +1,1 @@
+Transitorio I.—Las entidades de custodia cuentan con un plazo de 9 meses a partir de la entrada en vigencia de este Acuerdo para actualizar los contratos con sus clientes, si esto se requiere para que ostenten las facultades necesarias para la prestación de los servicios.

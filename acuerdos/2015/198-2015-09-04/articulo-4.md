@@ -1,0 +1,1 @@
+Artículo 4º—Requerimientos de tecnología de información. Para efectos de lo dispuesto en el Reglamento, en relación con el sistema informático de registro de los valores custodiados y del efectivo asociado, las entidades de custodia deben cumplir con lo establecido en el SGV-A-124 Acuerdo sobre requerimientos mínimos de tecnología de la información (TI).
