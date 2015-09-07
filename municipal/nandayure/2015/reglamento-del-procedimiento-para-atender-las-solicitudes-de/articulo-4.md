@@ -1,0 +1,1 @@
+Artículo 4°—La superficie de rodamiento de las vías públicas deberá ser acorde con lo que establezca la normativa relacionada con el fraccionamiento urbano y rural y por lo que dicta el artículo No 4 de la Ley General de Caminos Públicos N° 5060.

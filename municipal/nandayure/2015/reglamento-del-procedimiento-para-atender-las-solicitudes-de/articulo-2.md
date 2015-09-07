@@ -1,0 +1,1 @@
+Artículo 2°—El ancho mínimo de la vía debe ser de 14 metros según el artículo 4 Ley General de Caminos Públicos No 5060. En caso de que la Municipalidad no cuente con Plan Regulador, las medidas de las vías públicas serán las establecidas en el Reglamento para el Control Nacional de Fraccionamientos y Urbanización del Instituto Nacional de Vivienda y Urbanismo.

@@ -1,0 +1,1 @@
+Artículo 18.—En los casos muy complejos, la Alcaldía podrá nombrar un Órgano Director del debido proceso, quien deberá actuar apegado al artículo 308 y siguientes de la Ley General de la Administración Pública.

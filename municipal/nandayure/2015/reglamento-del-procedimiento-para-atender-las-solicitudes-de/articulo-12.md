@@ -1,0 +1,1 @@
+Artículo 12.—La Unidad Técnica de Gestión Vial será la encargada de certificar las calles y caminos públicos que forman parte de red vial cantonal. Dichas certificaciones deberá emitirse a solicitud de algún interesado o de la propia administración.

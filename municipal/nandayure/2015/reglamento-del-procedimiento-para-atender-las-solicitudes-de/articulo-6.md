@@ -1,0 +1,2 @@
+Artículo 6°—La Alcaldía analizará el cumplimiento de los requisitos establecidos en los artículos anteriores, confeccionará el expediente administrativo de la solicitud y lo trasladará a la Unidad Técnica de Gestión Vial. Lo anterior deberá realizarse en un plazo de ocho días hábiles.
+A dicho expediente se deberán incorporar todas los documentos relacionados con la solicitud, además deberá permanecer ordenado cronológicamente y foliado.

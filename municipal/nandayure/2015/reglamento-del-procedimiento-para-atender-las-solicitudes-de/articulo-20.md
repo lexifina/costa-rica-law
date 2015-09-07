@@ -1,0 +1,1 @@
+Artículo 20.—La Alcaldía acordará el acto final sobre la reapertura de la vía pública solicitada y lo notificará a los interesados. Dicho acto administrativo podrá recurrirse de conformidad con las disposiciones contenidas en el Código Municipal.
