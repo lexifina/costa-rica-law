@@ -3,22 +3,22 @@ El Ente Costarricense de Acreditación (ECA), da a conocer la modificación del 
 La Gerencia del Ente Costarricense de Acreditación (ECA) informa que se ha modificado el Procedimiento ECA-MC-P13 Ejecución de la evaluación Versión 05, el cual deja sin efecto el anterior procedimiento: MC-P13 Ejecución de la evaluación Versión 04.
 El Procedimiento ECA-MC-P13 Ejecución de la evaluación Versión 05 se encontrará a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/ docs.php; así mismo podrán solicitar gratuitamente una copia no contralada en la Gestoría de Calidad de las oficinas centrales del ECA ubicadas en Rormhoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas. Entra en vigencia a partir de esta publicación en el Diario Oficial La Gaceta.
 San José, 9 de setiembre del 2012.-
-(Nota de Sinalevi: El texto del presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N ° 133 del 11 de julio del 2013, donde se actualiza la versión 06 existente y se publica la versión 07, por lo que se reproduce a continuación):
+(Nota de Sinalevi: El texto del presente procedimiento fue reformado parcialmente y reproducido de forma íntegra mediante publicación en La Gaceta N ° 177 del 10 de setiembre del 2015, donde se actualiza la versión 05 existente y se publica la versión 08, por lo que se reproduce a continuación):
 [imagen]
+EJECUCIÓN DE LA EVALUACIÓN | Código N° : ECA-MC-P13 | Páginas: 1 de 19
+| Fecha emisión: | 10.09.2015 Versión: 08
 TABLA DE CONTENIDO
-1 OBJETIVO .................................................................................................................................. 1
-2 ALCANCE .................................................................................................................................. 1
-3 DOCUMENTOS DE REFERENCIA ............................................................................................ 1
-4 DEFINICIONES .......................................................................................................................... 2
-5 RESPONSABILIDADES ............................................................................................................. 2
-6 GENERALIDADES ..................................................................................................................... 2
-7 USO DE FORMULARIOS ECA DURANTE LAS EVALUACIONES. ........................................... 6
-8 EVALUACIÓN DOCUMENTAL ................................................................................................... 7
-9 PREPARACIÓN PARA LA EVALUACIÓN IN SITU. ................................................................... 9
-10 EVALUACIÓN IN SITU .......................................................................................................... 11
-11 PAUTAS GENERALES A CONSIDERAR POR EL EQUIPO EVALUADOR .......................... 15
-12 TRANSITORIO ...................................................................................................................... 17
-13 ANEXOS ............................................................................................................................... 17
-14 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 24
+1 OBJETIVO ...................................................................................................................... 1
+2 ALCANCE ....................................................................................................................... 1
+3 GENERALIDADES .......................................................................................................... 1
+4 USO DE FORMULARIOS ECA DURANTE LAS EVALUACIONES. ............................... 6
+5 EVALUACIÓN DOCUMENTAL ....................................................................................... 7
+6 PREPARACIÓN PARA LA EVALUACIÓN IN SITU. ....................................................... 9
+7 EVALUACIÓN IN SITU ................................................................................................. 10
+8 CLASIFICACIÓN DE NO CONFORMIDADES .............................................................. 13
+9 PAUTAS GENERALES A CONSIDERAR POR EL EQUIPO EVALUADOR ................. 15
+10 ANEXOS .................................................................................................................... 17
+11 TRANSITORIO ........................................................................................................... 18
+12 IDENTIFICACIÓN DE CAMBIOS ............................................................................... 18
 1 OBJETIVO
-Establecer los lineamientos para ejecutar la evaluación documental, evaluación in situ, estudio de planes de acciones correctivas y verificación de acciones correctivas por parte de los Equipos Evaluadores asignados por ECA.
+Establecer los lineamientos para ejecutar la evaluación documental y evaluación in situ, por parte de los Equipos Evaluadores asignados por ECA.
