@@ -1,8 +1,7 @@
-9 PROCESO DE EVALUACION DEL DESEMEPEÑO
-9.1. La evaluación del desempeño se aplica a los siguientes órganos colegiados del ECA: Junta Directiva, Comisión de Acreditación, Comités Asesores de las Secretarías de Acreditación y al Grupo de las Secretarías de Acreditación
-9.2. La evaluación del desempeño se realiza 1 vez al año, en los meses de noviembre o diciembre. Esta evaluación está dividida de la siguiente manera: 70 % desempeño y 30% habilidades y aptitudes.
-9.3. Los Coordinadores y los secretarios de los órganos colegiados son los encargados de aplicar las evaluaciones del desempeño de los diferentes integrantes de los órganos colegiados. En el caso de la Junta Directiva, la evaluación la realiza la Gerencia. [SA - G].
-9.4. El responsable de aplicar la evaluación debe informar el resultado de la evaluación del desempeño por correo electrónico, junto con el plan de capacitación o de mejora a ser aplicado en el siguiente año; para lo que cuenta con 5 días hábiles una vez finalizada la misma.
-9.5. La notificación de aceptación de la evaluación del desempeño se realiza por correo electrónico y se brindan 3 días hábiles para recibir la respuesta por parte del evaluado, en caso contrario se dará por aceptado el resultado.
-Nota: el evaluador debe indicar en las evaluaciones del desempeño si es necesario la realización de un plan de mejora al evaluado.
-9.6. Cada encargado del órgano colegiado debe presentar los resultados de las evaluaciones del desempeño y el seguimiento del cumplimiento del plan individual de capacitación en la segunda sesión de revisión por la dirección. [SA - G].
+9 ARCHIVO DE LA DOCUMENTACIÓN Y MANEJO DE LOS REGISTROS.
+El archivo de la documentación y registros de las evaluaciones del desempeño debe ser realizado de acuerdo con el procedimiento de Control de registros ECA-MC-P03 y a continuación se detallan las instrucciones específicas.
+Actividad | Responsable | Código | Nombre del registro | Soporte
+Directorio Órgano colegiado | Encargado del Órgano Colegiado | ECA-MC-P23-F01 | Directorio órgano colegiado | Digital
+Sesión de órganos colegiados | Secretario del Órgano Colegiado | ECA-MC-P23-F02 ECA-MC-P23-F03 ECA-MC-P23-F04 ECA-MC-P23-F05 | Convocatoria Agenda Lista de Asistencia Acta | Digital / impreso
+Evaluaciones del desempeño | Secretario del Órgano Colegiado / Gerencia | ECA-MC-P23-F06 | Evaluación del desempeño Órganos Colegiados | Digital / Impreso
+Expedientes integrantes del órgano colegiado | Encargado del Órgano Colegiado | N.A. | Compromisos, CV, Acta nombramiento, plan de capacitación, atestados, estudio de competencia y evaluación del desempeño | Digital / impreso

@@ -1,141 +1,138 @@
-6 CONFORMACIÓN DE LOS ÓRGANOS COLEGIADOS
+6 REQUISITOS DE FORMACION Y EXPERIENCIA DE LOS INTEGRANTES DE LOS ÓRGANOS COLEGIADOS.
+A continuación se describen los requisitos, conocimientos, obligaciones, responsabilidades, características personales de todos los integrantes de los diferentes órganos colegiados:
 6.1 Junta Directiva
-6.1.1 Conformación. La Junta Directiva del ECA está conformada por dieciocho miembros, los cuales deben gozar de reconocida experiencia en la materia:
-a Un representante del Ministerio de Ciencia y Tecnología (MICIT), quien preside.
-b Un representante del Ministerio de Economía, Industria y Comercio (MEIC).
-c Un representante del Ministerio de Salud (MS).
-d Un representante del Ministerio de Agricultura y Ganadería (MAG).
-e Un representante del Ministerio del Ambiente, Energía y Telecomunicaciones (MINAET).
-f Un representante del Ministerio de Obras Públicas y Transportes (MOPT).
-g El director del Laboratorio Costarricense de Metrología (LACOMET).
-h Un representante del Ente Nacional de Normalización (ENN).
-i Un representante del Consejo Superior de Educación.
-j Un representante del Consejo Nacional de Rectores (CONARE).
-k Cuatro representantes del sector privado, designados por la Unión Costarricense de Cámaras y Empresas Privadas (UCCAEP).
-l Un representante de los consumidores, designado por la Federación Nacional de Asociaciones de Consumidores (FENASCO), o por otra organización legalmente constituida.
-m Dos representantes de los entes acreditados.
-n Un representante de la Federación de Colegios Profesionales.
-- El Presidente de la Junta Directiva envía una carta a los jerarcas del sector público y privado solicitando el(los) nombre(s) de los candidatos a ser miembros del comité respectivo, acompañado de su currículum, en donde se especifica que goza de reconocida experiencia en evaluación de la conformidad. [JD]
-- Si es un representante del sector público, lo designa el Ministro del ramo correspondiente y lo comunica al Presidente del ECA, para que se ratifique el nombramiento en Consejo de Gobierno.
-- Si es un representante del sector privado, la UCCAEP debe presentar una terna para cada uno de los puestos que se vayan a nombrar, acompañada del currículum de cada uno de los candidatos. El candidato elegido, debe ser luego ratificado por el Consejo de Gobierno.
-- El Consejo de Gobierno publica los nombramientos de los miembros propietarios en el Diario Oficial La Gaceta.
-6.1.2 Suplencias. Los suplentes son nombrados de la misma forma que los miembros propietarios.
-- El representante suplente sólo ostentará las funciones y atribuciones que el ordenamiento, incluyendo la Ley y el Reglamento, le asigna al propietario, en los siguientes casos:
-a En casos de ausencia temporal.
-b En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél.
-- El ECA llevará un Registro de los miembros propietarios y suplentes de la Junta Directiva, que se actualizará cada vez que sea necesario, en el formulario ECA-MC-P23-F01.
-6.1.3 Vigencia. Los miembros propietarios y suplentes serán nombrados por un período de seis años, podrán ser reelectos sucesivamente y se renovarán en forma alterna.
-6.1.4 Presidente y Secretario
-- Presidente: la Junta Directiva será presidida por el representante del Ministerio de Ciencia y Tecnología (MICIT).
-- Secretario: La Junta Directiva debe elegir en la sesión de instalación un secretario de su seno.
+6.1.1 Autoridad y responsabilidad
+La Junta Directiva tiene autoridad en la toma de decisiones jerárquicas para el desarrollo óptimo de la organización. Los miembros tienen la responsabilidad de mantener informado al sector que representa y cumplir con la participación activa y permanente.
+Cargo al que reporta: Consejo Nacional para la Calidad
+Cargos que le reportan: Comité Ejecutivo. Comisión de Acreditación. Comités Asesores o comités especiales ad-hoc. Gerente. Auditor Interno Financiero
+6.1.2 Funciones
+- Velar por el cumplimiento de la misión del ECA, las disposiciones de la Ley 8279, el Reglamento de Estructura Interna y Funcionamiento del ECA, sus propios acuerdos, resoluciones, directrices y órdenes; así como la demás normativa vigente y aplicable a esta materia.
+- Emitir la reglamentación necesaria y oportuna relativa a las políticas generales y los planes estratégicos del ECA.
+- Acordar, reformar y aprobar el reglamento interno de trabajo
+- Emitir cualquier otro reglamento interno de operación, funcionamiento y organización.
+- Dictar los acuerdos, resoluciones, directrices y órdenes necesarios, relativos a las políticas generales y los planes estratégicos del ECA y en general, para su funcionamiento y organización.
+- A solicitud de la Gerencia, aprobar por mayoría calificada, cualquier propuesta de modificación al reglamento de estructura interna del ECA, para su tramitación ante el Poder Ejecutivo.
+- Revisar y aprobar los planes de trabajo, los presupuestos anuales y los informes anuales presentados por la Gerencia y por la Auditoría Interna Financiera.
+- Aprobar y modificar las tarifas, de conformidad con los lineamientos establecidos en el Reglamento de Estructura Interna y Funcionamiento del ECA.
+- Someter al ECA a evaluaciones periódicas ante los entes competentes, para asegurar que los servicios que brinda se ajustan a los estándares internacionales.
+- Nombrar, suspender y destituir al Gerente. Para los casos de suspensión, la Junta Directiva debe nombrar un Gerente Interino con las mismas facultades y por todo el plazo de la suspensión. Para el caso de destitución del Gerente, será necesaria una votación de al menos dos terceras partes de la totalidad de sus miembros.
+- Nombrar, suspender y destituir al Auditor Interno Financiero Interino. Para los casos de suspensión, la Junta Directiva debe nombrar un Auditor Interno Financiero Interino con las mismas facultades y por todo el plazo de la suspensión. Para el caso de destitución del Auditor Interno Financiero, será necesaria una votación de al menos dos terceras partes de la totalidad de sus miembros.
+- Aprobar la conformación de las Secretarías de Acreditación y de la Comisión de Acreditación.
+- Nombrar y remover la Secretaría de Actas de la Junta Directiva y reglamentar su funcionamiento.
+- Designar en su seno, comités especiales ad-hoc, con propósitos temporales o permanentes, para el análisis y seguimiento de temas de su interés; las que deben informar a la Junta Directiva sobre el avance de sus trabajos.
+- Otorgar a las personas que designe el acuerdo respectivo, poderes con las facultades que determine y en los casos que lo considere necesario, para la defensa de los derechos e intereses del ECA.
+- Establecer y aplicar las políticas para la resolución de recursos de apelación que se presenten contra los acuerdos y resoluciones del ECA, en lo referente al proceso de evaluación y acreditación; y al de concesión de la acreditación, así como en cualquier otra materia de su competencia.
+- Establecer la política de crecimiento económico, la política de mercadeo; así como la proyección de endeudamiento y las políticas de difusión y fortalecimiento.
+- Resolver las apelaciones siguiendo el procedimiento establecido por el ECA.
+- Cumplir los tiempos establecidos por el ECA.
+- Sesionar conforme el procedimiento establecido por ECA.
+- Cualquier otra que disponga el ordenamiento que rige sobre esta materia, incluyendo la Ley del Sistema Nacional para la Calidad, el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación y la normativa interna del ECA.
+- Representar adecuadamente los intereses del sector al que pertenece.
+6.1.3 Requisitos
+Lo establecido en el artículo 23 de la Ley 8279 del Sistema Nacional para la Calidad.
+6.1.4 Experiencia
+Conocimientos en temas de calidad y evaluación de conformidad.
 6.2 Comité Ejecutivo
-6.2.1 Conformación
-- La Junta Directiva conformará de entre sus miembros un Comité Ejecutivo, manteniendo una representación equilibrada de los intereses que lo conforman, y estará integrado por el Presidente de la Junta Directiva o a quien delegue, un representante del sector público, un representante de los entes acreditados, un representante del sector privado, un representante elegido entre los restantes intereses representados y el Gerente del ECA.
-- La principal finalidad de este Comité es servir de apoyo a las labores y actividades de la Junta Directiva y de la Gerencia, en los asuntos, temas y tópicos a él encargados; o bien en las materias que este Reglamento le establezca.
-6.2.2 Suplencias. Los suplentes son nombrados de la misma forma que los miembros propietarios.
-- El representante suplente sólo ostentará las funciones y atribuciones, que el ordenamiento, incluyendo el Reglamento, le asigna al propietario en los siguientes casos:
-b. En casos de ausencia temporal.
-c. En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél.
-6.2.3 Vigencia. Los miembros del Comité se nombrarán por periodos de dos años y podrán ser reelegidos por períodos iguales y sucesivos.
-6.2.4 Coordinador y Secretario
-Coordinador: El Comité Ejecutivo será presidido por el Presidente de la Junta Directiva o a quien éste delegue.
-- Secretario: El Comité Ejecutivo debe elegir en la sesión de instalación un secretario de su seno.
-Nota: La conformación del Comité Ejecutivo se realiza conforme la publicación en la gaceta de la modificación al reglamento 33963-MICIT N° 112 del 11 de junio del 2009.
+6.2.1 Autoridad y responsabilidad
+Este Comité tiene la autoridad para presentar recomendaciones ante la Junta Directiva y Gerencia sobre temas específicos y además tiene la responsabilidad de cumplir con lo que establece el Reglamento de Estructura Interna y Funcionamiento del ECA y lo que le asigne la Junta Directiva.
+Cargo al que reporta: Junta Directiva
+Cargos que le reporta: No aplica
+6.2.2 Funciones
+- Dar seguimiento a la adecuada ejecución del Plan Anual Operativo y el presupuesto.
+- Autorizar los permisos de salida del país y disfrute de vacaciones de la Gerencia.
+- Revisar y proponer a la Junta Directiva el nombramiento y remoción cuando sea necesario de los encargados de las Secretarías de Acreditación, conforme los procedimientos establecidos, para que la Gerencia prepare el informe correspondiente para la aprobación final por parte de la Junta Directiva.
+- Conocer y analizar los recursos de apelación que se eleven a conocimiento de la Junta Directiva y presentarlos conjuntamente con un informe resumen para conocimiento de este órgano colegiado.
+- Presentar en los plazos que se le determinen los informes sobre investigaciones y proyectos que le asigne la Junta Directiva.
+- Dar recomendaciones, hacer observaciones y entregar propuestas dentro del ámbito de la competencia propia de la Junta Directiva.
+- Elaborar propuestas de modificación sustitución o derogación del Reglamento de Estructura Interna y Funcionamiento del ECA.
+- Recomendar a la Gerencia con base en lo establecido en los planes estratégicos, las ideas prácticas y técnicas así como las mejores vías, direcciones y caminos a seguir para la adecuada implementación y gestión del ECA.
+- Adoptar acuerdos propios de su función que no sean competencia de otros órganos colegiados que componen el ECA.
+- Apoyar a la Gerencia en el análisis técnico y administrativo de situaciones que requieran la participación de directivos y en los cuales la Gerencia no pueda tomar las decisiones finales, en aras de permitir una gestión fluida y transparente. Dicho apoyo incluye la búsqueda de soluciones conjuntas para la resolución de problemas de índole técnico, operativo y político.
+6.2.3 Requisitos
+Lo establecido en el artículo 23 de la Ley 8279 del Sistema Nacional para la Calidad.
+6.2.4 Experiencia
+No aplica, debido a que la Junta Directiva cuando nombra este Comité pretende la presentación equilibrada de los intereses.
 6.3 Comisión de Acreditación
-6.3.1 Conformación.
-Los miembros de la Comisión de Acreditación serán nombrados por la Junta Directiva del ECA; deberán poseer experiencia reconocida en el ramo, así como la educación, la destreza, el conocimiento técnico y la experiencia necesaria para las actividades de acreditación por desarrollar según lo establecido en el ECA-MC-MA Manual Administrativo. La Comisión de Acreditación estará conformada de la siguiente manera: [JD]
-a Un representante del sector gubernamental
-b Un representante del sector empresarial
-c Un representante del sector de usuarios de los servicios de acreditación
-d Un representante de los otros sectores involucrados, mencionados en el artículo 23 de la Ley del Sistema Nacional para la Calidad número 8279, 21 de mayo del 2002
-e Los coordinadores de las Secretarías de Acreditación con que cuente el ECA, según su estructura orgánica
-6.3.2 Suplencias. Los suplentes son nombrados de la misma forma que los miembros propietarios.
-- El representante suplente sólo ostentará las funciones y atribuciones del propietario, en los siguientes casos:
-a. En casos de ausencia temporal.
-b. En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél.
-6.3.3 Vigencia. Los miembros propietarios y suplentes serán nombrados por un período de seis años y podrán ser reelectos sucesivamente.
-6.3.4 Coordinador y Secretario
-Coordinador. La Comisión de Acreditación será presidida por un coordinador, elegido de entre sus integrantes, por el término de un año, pudiendo ser reelegido períodos consecutivos. En caso de ausencia del coordinador, será presidida por la Secretaría de Acreditación encargada de dar el apoyo administrativo. [CA]
-Secretaría. Las Secretarías de Acreditación se turnarán por un período de un año cada una para dar apoyo administrativo y de funcionamiento a la Comisión de Acreditación.
-6.3.5 Secretarías de Acreditación del ECA: Cuando en las sesiones de la Comisión de Acreditación se tome cualquier decisión, el ECA participará con un voto dependiendo del área de competencia para la cual el OEC ha solicitado la acreditación o formando un consenso entre las secretarias de acreditación en temas de índole general, de forma que se permita resguardar la imparcialidad, objetividad y el equilibrio de los intereses, contando con el respaldo técnico respectivo para la toma de decisiones. [SA]
-6.4 Comités Asesores
-Para el adecuado funcionamiento del ECA, y de conformidad con las necesidades del caso particular, se podrán conformar Comités Asesores para cada una de las Secretarías de Acreditación.
-6.4.1 Conformación
-- Los miembros de los Comités Asesores deben contar con experiencia mínima de 3 años en el área de calidad, conocimientos en materia de evaluación de la conformidad específica y afín al tipo de OEC para el cual se integra el Comité Asesor y grado académico mínimo de bachiller universitario. [CAs]
-- En el caso de Comités Asesores para áreas nuevas de acreditación, se permite que los miembros cuenten con experiencia mínima de un año en temas de calidad y que tengan conocimientos afines al tipo de evaluación de conformidad a realizar por el tipo de OEC para el cual se integra el Comité.
-Nota: En caso de que en áreas nuevas el requisito de experiencia no se pueda cumplir, el ECA procurará formar a los miembros con el fin de solventar o compensar las brechas de competencia identificadas.
-Los Comités Asesores están conformados de la siguiente manera: [CAs]
-a. Un integrante del sector gubernamental.
-b. Un integrante del sector empresarial.
-c. Un integrante del sector de usuarios de los servicios de acreditación.
-d. Un integrante de los otros sectores involucrados, mencionados en el artículo 23 de la Ley del Sistema Nacional para la Calidad número 8279, 21 de mayo del 2002.
-e. Los representantes de la Secretaría de Acreditación del ECA respectiva.
-- La Secretaría de Acreditación presenta a la Comisión de Acreditación los candidatos propuestos, excepto para el sector de los usuarios de los servicios de acreditación. [SA]
-- La selección de los miembros propietario y suplente del sector de usuarios de los servicios de acreditación, se hace por los mismos OEC del área técnica específica, para cada comité. [OEC]
-- En el caso de áreas nuevas de acreditación donde aún no existen OEC, los candidatos para ser los integrantes del sector usuarios de los servicios de acreditación deben pertenecer a OEC que estén acreditados en otras áreas pero tengan afinidad y experiencia con el área nueva, además de interés por acreditarse en el área técnica del Comité específico.
-- La Comisión de Acreditación es la encargada de nombrar los Comités Asesores de las Secretarías de Acreditación, a partir de las propuestas que la Secretaría de Acreditación respectiva presenta y aprobar el representante de los usuarios de los servicios de acreditación. [CA]
-6.4.2 Suplencias. Los suplentes son nombrados de la misma forma que los miembros propietarios.
-- El representante suplente sólo ostentará las funciones y atribuciones del propietario, en los siguientes casos:
-a. En casos de ausencia temporal.
-b. En todos los otros casos de ausencia definitiva del propietario, hasta que el sector respectivo nombre el sustituto de aquél.
-6.4.3 Vigencia. Los miembros de los Comités Asesores serán nombrados por un periodo de tres años, podrán ser reelectos sucesivamente.[CA]
-6.4.4 Coordinador y Secretario
-- Coordinador: Cada Comité Asesor será presidido por la Secretaría de Acreditación respectiva. [SA]
-- Secretaría. Un Secretario de Acreditación del área respectiva será nombrado para este cargo. [SA]
-- Durante todo el tiempo que las Secretarías de Acreditación sean órganos unipersonales, el coordinador desempeñará también las funciones de Secretario. [SA]
-En caso de ausencia del coordinador, el Comité Asesor será presidido por el Secretario del dicho Órgano Colegiado. [SA]
-6.4.5 Votación: Cuando en las sesiones del Comité Asesor se tome cualquier decisión, el ECA participará con un voto, siendo este responsabilidad del Secretario de Acreditación nombrado como Coordinador. [SA]
-En caso de que el Comité Asesor lo requiera, para analizar o tratar un tema en específico, puede invitar a expertos que considere necesario. Estos expertos contarán con voz, pero no con voto.
-6.5 Comités Técnicos ad hoc
-El ECA podrá conformar Comités Técnicos ad hoc que le permitan tener acceso a la pericia necesaria en el desarrollo de temas específicos (Ejemplo: Formulación de una política, elaboración de una Guía de aplicación, etc.).
-6.5.1 Conformación
-- La Secretaría de Acreditación define el objetivo para el cual se va a conformar el Comité Técnico ad hoc. [SA]
-- La Secretaría de Acreditación respectiva, presenta a la Comisión de Acreditación para su aprobación, los candidatos a formar parte del Comité Técnico ad hoc con la competencia necesaria para desarrollar el tema que se les va a asignar. [SA]
-- La Comisión de Acreditación es la encargada de nombrar los Comités Técnicos ad hoc. [CA]
-- El número de miembros de cada Comité Técnico ad hoc debe ser impar.
-- Los miembros deben tener competencia técnica demostrada para el objetivo de conformación del Comité técnico.
-6.5.2 Suplencias
-No aplica, debido a que son expertos en el área específica que se requiere.
-6.5.3 Vigencia
-La Comisión de Acreditación establecerá en cada caso, el plazo prudente y necesario para ejecutar las labores y competencias asignadas a dichos Comités Técnicos ad hoc. [CA]
-6.5.4 Coordinador y Secretario
-El Coordinador y Secretario se deben elegir en la sesión de instalación de su seno.
-6.6 Comité Disciplinario ad hoc
-El ECA, cuando de oficio como consecuencia de las tareas de seguimiento y fiscalización, por queja o denuncia de cualquier interesado, se conozca de un posible incumplimiento de las obligaciones del OEC o se sospeche de un quebrantamiento jurídico, conformará Comités Disciplinarios ad hoc.
-El Comité Disciplinario ad hoc es el órgano director responsable de cumplir el procedimiento de investigación de la Comisión de Acreditación para instruir y averiguar los hechos sobre posibles incumplimientos de las obligaciones establecidas para los Organismos de Evaluación de la Conformidad acreditados.
-6.6.1 Conformación
-- La Comisión de Acreditación es la encargada de nombrar los Comités Disciplinarios ad hoc.
-- El número de miembros de cada Comité Disciplinario ad hoc debe ser impar. [CA]
-- Se conformará por:
-a Gerente.
-b Director Técnico, cuando este pueda tener un potencial conflicto, será suplido por uno de los integrantes de la Secretaría de Acreditación respectiva.
-c Asesor Legal.
-d Otro(s) miembro(s), si la Comisión de Acreditación considere tomando como referencia la competencia técnica del miembro, dependiendo del fondo de la naturaleza del caso.
-Nota: Puede convocarse a la Secretaría de Acreditación del área relacionada con el OEC sujeto del proceso administrativo, con voz pero sin voto, para que exponga técnicamente el expediente del OEC. La Secretaría acudirá a las sesiones en condición de apoyo técnico no como miembro del Comité ad hoc.
-6.6.2 Suplencias
-No aplica.
-6.6.3 Vigencia
-La Comisión de Acreditación establecerá en cada caso, el plazo prudente y necesario para ejecutar las labores y competencias asignadas a dichos Comités Disciplinarios ad hoc de conformidad con la Ley General de Administración Pública. [CA]
-6.6.4 Coordinador y Secretario
-El Coordinador y Secretario se deben elegir en la sesión de instalación de su seno.
-6.7 Comité Asesor para el mantenimiento del CEE:
-El Comité Asesor para el mantenimiento del CEE (CAMCEE) fue creado para brindar apoyo a la Gestoría de Calidad y la Comisión de Acreditación en el proceso técnico administrativo relacionado a los recursos humanos del cuerpo de evaluadores y expertos técnicos del ECA.
-6.7.1 Conformación
-La Gestoría de Calidad, presenta a la Comisión de Acreditación para su aprobación, los candidatos a formar parte del Comité Asesor para el Mantenimiento del CEE con la competencia necesaria para realizar las funciones designadas a este comité. [GC]
-El número de miembros de este comité debe ser impar.
-Los miembros deben tener competencia técnica demostrada para el objetivo de conformación del CAMCEE.
-6.7.2 Coordinador y Secretario
-Coordinador: será presidido por un miembro del CAMCEE, elegido de entre sus integrantes, por el término de un año, pudiendo ser reelegido períodos consecutivos. En caso de ausencia del coordinador, será presidida por la Gestoría de Calidad encargada de dar el apoyo administrativo. [CA]
-Secretario: El representante de la Gestoría de Calidad será nombrado para este cargo. [CA]
-6.7.3 Votación: Cuando en las sesiones del CAMCEE se tome cualquier decisión, el ECA participará con un voto, siendo esta responsabilidad del representante de la Gestoría de Calidad en el comité.
-6.8 Grupo de las Secretarías de Acreditación:
-Con el fin de revisar los informes finales de evaluación para cualquier tipo de evaluación y confirmar el estado de acreditación de los OEC acreditados o recomendar en los procesos de seguimiento, se ha establecido un Grupo de las Secretarías de Acreditación
-6.4.6 Conformación y sesión
-- El Grupo de las Secretarías será conformado por el personal de las Secretarías de Acreditación que incluyen a los coordinadores, profesionales y dirección técnica de las Secretarías de Acreditación.
-- Se definirá un listado de las personas con la competencia para votar por cada área técnica.
-- Los procesos pueden ser analizados por todos los miembros del grupo, pero la confirmación del estado de acreditación y la clasificación de las no conformidades requiere de al menos dos de las personas con la competencia técnica específica para el caso.
-6.4.7 Coordinador y Secretario
-- Coordinador: Será elegido por cada proceso analizado.
-- Secretario: El Grupo elige de entre sus integrantes un secretario, que debe ser alternado cada año.
-6.4.8 Votación: Cuando en las sesiones del Grupo se tome cualquier decisión, se requiere como mínimo dos votos y en caso de empate el Coordinador elegido tiene doble voto. No pueden votar las personas que hayan participado en el proceso de evaluación o tengan algún conflicto de interés.
-En cualquier momento, el Grupo puede invitar a expertos que los asesoren para tratar temas específicos. Estos expertos contarán con voz, pero no con voto.
+6.3.1 Autoridad y responsabilidad
+La Comisión de Acreditación tiene total autoridad en la toma de decisiones referidas al proceso de evaluación y acreditación de los OEC, la integración y destitución de los integrantes del cuerpo de evaluadores y expertos técnicos del ECA.
+Cargo al que reporta: Junta Directiva
+Cargos que le reportan: Comités Asesores y Comités Técnicos ad hoc
+6.3.2 Funciones
+- Resolver sobre las acreditaciones, ampliaciones y reevaluaciones (decisiones de mantener la acreditación), previa comprobación del cumplimiento de los requisitos respectivos.
+- Nombrar el órgano director encargado de realizar la investigación de los procedimientos de investigación y sancionar a los entes acreditados que incumplan la Ley 8279 y su reglamento.
+- Sancionar a los Organismos de Evaluación de la Conformidad acreditados que incumplan el ordenamiento jurídico, la Ley del Sistema Nacional para la Calidad y el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación
+- Aprobar los procesos de incorporación que cumplan con los requisitos establecidos por el ECA, así como los procesos de ampliación de área de competencia presentados, para integrar el Cuerpo de Evaluadores y Expertos Técnicos del ECA.
+- Nombrar los Comités Asesores de las Secretarías de Acreditación y cualquier otro comité técnico ad-hoc que resulte necesario, solicitar informes sobre el desarrollo de sus labores cuando lo considere necesario.
+- Cumplir con lo que indique la Ley 8279, el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación y los procedimientos de ECA.
+6.3.3 Requisitos
+Licenciatura o Bachiller Universitario.
+6.3.4 Experiencia
+Para miembros externos al ECA, experiencia reconocida en el ramo así como la educación, la destreza, el conocimiento técnico para las actividades de acreditación por desarrollar.
+Para personal ECA un año de experiencia en funciones de la Secretaría de Acreditación respectiva o ser evaluador en la norma de acreditación respectiva.
+Nota: Cada integrante de la Comisión de acreditación debe contar en su expediente con un estudio de competencias actualizado donde se evidencia las áreas en las cuales tiene conocimiento, la actualización de este estudio es responsabilidad de cada Secretaría de Acreditación.
+6.4 Comités Asesores de las Secretarías de Acreditación
+6.4.1 Autoridad y responsabilidad
+Los Comités Asesores de las Secretarías de Acreditación tienen la autoridad de emitir criterios técnicos en cuanto a los procesos de evaluación y acreditación.
+Cargo al que reporta: Comisión de Acreditación y Secretaría de Acreditación
+Cargos que le reportan: Ninguno.
+6.4.2 Funciones
+- Emitir criterios técnicos en temas específicos a solicitud de la Junta Directiva, Comisión de Acreditación, Gerencia y de la Secretaría de Acreditación respectiva.
+- Elaborar e interpretar documentos técnicos de apoyo en los procesos de evaluación de la conformidad.
+- Apoyar técnicamente el funcionamiento de las Secretarías de Acreditación, en el ámbito de su competencia.
+- Analizar, sugerir o proponer modificaciones a la Gestoría de Calidad, para mejorar o actualizar los procedimientos de los esquemas de acreditación.
+- Emitir recomendaciones técnicas a solicitud de la Secretaría de Acreditación respectiva, sobre la admisibilidad de la solicitud
+- Emitir recomendaciones sobre:
+- Mantener la acreditación
+- Ampliar el alcance de acreditación
+- Otorgar la acreditación.
+- Iniciar procesos de investigación, después de la verificación de acciones correctivas, cuando sea necesario.
+- No otorgar o no ampliar la acreditación.
+- Decidir sobre las opiniones divergentes del OEC.
+- Cumplir con lo que indique la Ley 8279, el Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación y los procedimientos de ECA.
+6.4.3 Requisitos
+Bachiller Universitario.
+6.4.4 Experiencia:
+Para miembros externos al ECA, tres años de experiencia en el área de calidad y Evaluación de Conformidad según aplique (laboratorios, organismos de certificación, organismos de inspección, organismos validadores verificadores).
+Para personal ECA un año de experiencia en funciones de la Secretaría de Acreditación respectiva o ser evaluador en la norma de acreditación respectiva.
+Nota: Cada integrante de del comité asesor debe contar en su expediente con un estudio de competencias actualizado donde se evidencia las áreas en las cuales tiene conocimiento, la actualización de este estudio es responsabilidad de cada Secretaría de Acreditación.
+6.5 Comité Técnico Ad-hoc
+6.5.1 Autoridad y responsabilidad
+Estos Comités tienen la autoridad de emitir criterio técnico específico a solicitud de la Comisión de Acreditación.
+Cargo al que reporta: Comisión de Acreditación
+Cargos que le reportan: Ninguno.
+6.5.2 Funciones
+Se determinan de acuerdo a las necesidades y al tipo de solicitud de cada área de acreditación del ECA.
+6.5.3 Requisitos
+Conocimiento específico y ampliamente demostrado en temas relacionados a la actividad a desarrollar.
+6.5.4 Experiencia
+Conocimientos técnicos relacionados con los temas específicos que se recomiendan para su estudio.
+6.6 Comité Disciplinario ad- hoc
+6.6.1 Autoridad y responsabilidad
+Es el órgano director responsable del procedimiento administrativo nombrado por la Comisión de Acreditación, para instruir y averiguar los hechos sobre posibles incumplimientos de las obligaciones establecidas de los Organismos de Evaluación de la Conformidad acreditados.
+Cargo al que reporta: Comisión de Acreditación
+Cargo que le reportan: No aplica.
+6.6.2 Funciones
+- Investigar la verdad real de los hechos de manera objetiva con relación al incumplimiento de las obligaciones establecidas de los Organismos de Evaluación de la Conformidad acreditados.
+- Presentar informes sobre las averiguaciones realizadas a la Comisión de Acreditación.
+6.6.3 Requisitos
+No aplica. La conformación de los comités disciplinarios ad hoc se establecen en el ECA-MC-P23 Conformación y sesión de los órganos colegiados.
+6.6.4 Experiencia
+No aplica. La conformación de los comités disciplinarios ad hoc se establecen en el ECA-MC-P23 Conformación y sesión de los órganos colegiados, apartado 4.6.1.
+6.7 Comité Asesor para el mantenimiento del CEE (CAMCEE)
+6.7.1 Autoridad y responsabilidad
+El Comité Asesor para el Mantenimiento del CEE tiene total autoridad en la gestión de los procesos relacionados al reclutamiento, la selección, la incorporación, la evaluación del desempeño y los cambios de categoría del cuerpo de evaluadores y expertos técnicos del ECA.
+Cargo al que reporta: Comisión de Acreditación, Gestoría de Calidad
+Cargos que le reportan: No aplica
+6.2.1 Funciones
+- Realizar o designar un responsable para la ejecución de la entrevista técnica de los postulantes al CEE.
+- Revisar y analizar el expediente del postulante al CEE incluyendo el informe de la evaluación de competencias y la calificación de requerimientos para los postulantes.
+- Toma de decisión sobre, mantenimiento y ascenso de categoría.
+- Recomendar a la Comisión de Acreditación la integración, ampliación y reducción del área de competencia, descenso de categoría, inactividad y exclusión.
+- Analizar el informe anual de realimentación de los integrantes del CEE presentado la Gestoría de Calidad para emitir un informe resumen a cada una de las instancias relacionadas para que se tomen las acciones respectivas cuando aplique.
+- Colaborar con la Gestoría de Calidad en la elaboración e implementación de los planes de mejora para los integrantes del CEE, en los casos que amerite.
+- Verificar el cumplimiento del procedimiento ECA-MC-P21.
+6.2.2 Requisitos
+- Licenciatura en áreas afines; dos años de experiencia en actividades relacionadas a su área de competencia o Bachiller Universitario; tres años de experiencia en actividades relacionadas a su área de competencia.
+- Se definen como áreas afines: Recursos Humanos, Psicología, Sociología, Ingeniería Industrial, Gerencia o Mejoramiento de la Calidad.
+6.2.3 Experiencia
+- Conocimiento en procesos de evaluación de conformidad, sistemas de gestión de calidad y ciencias sociales.
