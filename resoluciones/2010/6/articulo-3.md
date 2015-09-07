@@ -1,1 +1,0 @@
-Artículo 3º—Parientes por afinidad y consaguinidad: se consideran parientes por afinidad y consaguinidad hasta segundo grado, a la madre, padre, abuelo (a), esposo (a), hijos, hermanos, nietos (as), cuñados (as), suegro, yerno, nuera.

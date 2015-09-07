@@ -1,1 +1,0 @@
-Artículo 4º—Plazos para resolver: una vez recibida la solicitud, la Administración contará con el plazo establecido en el artículo 262 de la Ley General de la Administración Pública, para autorizar o denegar la solicitud planteada. Dicho plazo podrá ser suspendido por falta de requisito, en cuyo caso deberá constar esa situación en respuesta al solicitante.
