@@ -1,1 +1,2 @@
-Artículo 3º—Los funcionarios fiscalizadores y el Funcionario Judicial o Notario, deben suscribir las actas correspondientes y dar fe del resultado del sorteo; así como dejar firmadas las primeras listas que se impriman por los sistemas informatizados, las cuales quedan archivadas en su condición de listas oficiales.
+Artículo 3º—Los funcionarios fiscalizadores de la Administración Activa y el Funcionario Judicial o Notario Público, deberán suscribir las actas correspondientes y dar fe del resultado del sorteo; así como dejar firmadas las primeras listas que se impriman por los sistemas informatizados, las cuales quedan archivadas en su condición de listas oficiales.
+(Así reformado mediante sesión ordinaria N° 31-2015 del 8 de setiembre del 2015)

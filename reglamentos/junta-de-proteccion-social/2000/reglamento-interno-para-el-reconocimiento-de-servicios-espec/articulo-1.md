@@ -1,4 +1,3 @@
-REGLAMENTOS
 JUNTA DE PROTECCIÓN SOCIAL DE SAN JOSÉ
 REGLAMENTO INTERNO PARA EL RECONOCIMIENTO
 DE SERVICIOS ESPECIALES A LOS FUNCIONARIOS
@@ -11,4 +10,5 @@ Considerando:
 3º—Que el artículo Nº 75 del Reglamento a la Ley de Loterías Nº 7395 establece, que a todos los sorteos deben asistir el Gerente de la Junta, el Auditor Interno y el Director de Producción y Ventas, los cuales pueden ser sustituidos en cualquier caso por el representante que designen y que en calidad de fiscalizador puede asistir un Funcionario Judicial o en su ausencia un Notario de la Institución, según lo determine la Junta Directiva.
 4º—Que en cumplimiento de lo que dispone el punto N° 9 del oficio N°17-DOD del 13 de enero de 1983, de la Contraloría General de la República, se procede a reglamentar lo concerniente a la remuneración que percibirán los funcionarios que asisten a la realización de los sorteos y a la recepción de excedentes de lotería. Por tanto
 La Junta Directiva de la Junta de Protección Social de San José acuerda:
-Artículo 1º—Todos los funcionarios fiscalizadores de la Junta de Protección Social y el Funcionario Judicial o el Notario, deben presentarse a los sorteos por lo menos treinta minutos antes de su inicio.
+Artículo 1º—Todos los funcionarios fiscalizadores de la Administración Activa y el Funcionario Judicial o Notario Público, deberán presentarse a los sorteos por lo menos treinta minutos antes de su inicio.
+(Así reformado mediante sesión ordinaria N° 31-2015 del 8 de setiembre del 2015)

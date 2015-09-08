@@ -14,3 +14,4 @@ Reglamento Interno para el reconocimiento de servicios especiales a los funciona
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-10-23 | la propia norma |
+| 2 | 2015-09-08 | Reglamento 31 (2015-09-08) |
