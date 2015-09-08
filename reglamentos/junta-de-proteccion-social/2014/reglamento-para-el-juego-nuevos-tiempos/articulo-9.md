@@ -2,4 +2,5 @@ Artículo 9º—De la fecha y los horarios de los sorteos. Los sorteos de Nuevos
 Los Calendarios de Sorteos para Nuevos Tiempos serán valorados y aprobados por la Junta Directiva. Posteriormente serán publicados en los medios oficiales para conocimiento de los compradores.
 El día, la hora o el lugar de realización de estos sorteos podrán ser modificados por la Junta, previa información al público en general por los medios que estime más adecuados. En caso de anticipar o suprimir el sorteo, la comunicación debe hacerse con al menos 2 días hábiles de anticipación a la fecha señalada para celebrar el sorteo, siempre y cuando no se hayan capturado apuestas para el caso de supresión del sorteo y en caso de posposición, la comunicación podrá hacerse con no menos de un día hábil de anticipación a la fecha original.
 (Así reformado el párrafo anterior mediante sesión ordinaria N° 41-2014 del 16 de diciembre del 2014)
-Los sorteos serán fiscalizados conforme lo dispone el artículo 75 del Reglamento a la Ley de Loterías.
+Los sorteos serán fiscalizados por la Administración Activa, conforme lo dispone el artículo 75 del Reglamento a la Ley de Loterías. La Auditoría Interna fiscalizará estos sorteos, conforme lo establecido en esa norma reglamentaria.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 31-2015 del 8 de setiembre del 2015)
