@@ -47,9 +47,9 @@ Costo de mantenimiento de POS | $2.00
 Inactividad e incumplimiento de Contrato de Adquirencia (Inactividad 45 días calendario) | $10.00
 Cuota de Formalización tarjeta de crédito Pymes. | $10.00
 Comisión por cargo administrativo por mora en tarjetas:
-Cargo Administrativo por Mora: de 1 a 30 días. | $5.00
-Cargo Administrativo por Mora: de 31 a 60 días. | $10.00
-Cargo Administrativo por Mora: de 61 a 90 días. | $15.00
+Cargo Administrativo por Mora: de 1 a 30 días. (Así reformado el servicio anterior mediante sesión N° 8875/15 del 8 de setiembre del 2015) | $20.00 (Así reformado el monto anterior mediante sesión N° 8875/15 del 8 de setiembre del 2015)
+Cargo Administrativo por Mora: de 31 a 60 días. (Así reformado el servicio anterior mediante sesión N° 8875/15 del 8 de setiembre del 2015) | $30.00 (Así reformado el monto anterior mediante sesión N° 8875/15 del 8 de setiembre del 2015)
+Cargo Administrativo por Mora: de 61 a 90 días. (Así reformado el servicio anterior mediante sesión N° 8875/15 del 8 de setiembre del 2015) | $50.00 (Así reformado el monto anterior mediante sesión N° 8875/15 del 8 de setiembre del 2015)
 Comisiones a negocios afiliados. | Mantener lo definido en acuerdo de emisores locales VISA Internacional
 CAPTACIÓN
 Depósitos a Plazo:

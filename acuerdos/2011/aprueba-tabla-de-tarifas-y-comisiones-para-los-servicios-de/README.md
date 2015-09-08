@@ -22,3 +22,4 @@ Aprueba Tabla de Tarifas y Comisiones para los servicios de Bancrédito
 | 7 | 2015-02-04 | Acuerdo 0 (2015-02-04) |
 | 8 | 2015-08-25 | Acuerdo 0 (2015-08-25) |
 | 9 | 2015-09-08 | Acuerdo 0 (2015-09-08) |
+| 10 | 2015-09-08 | Acuerdo 0 (2015-09-08) |
