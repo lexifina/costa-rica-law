@@ -14,3 +14,4 @@ Reglamento para el Sorteo La Rueda de la Fortuna
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-12 | la propia norma |
+| 2 | 2015-09-08 | Reglamento 31 (2015-09-08) |
