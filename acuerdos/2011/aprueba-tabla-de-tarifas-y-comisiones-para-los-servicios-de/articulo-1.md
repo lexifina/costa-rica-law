@@ -237,7 +237,7 @@ Incrementar el Valor | Colones 1,25% y Dólares 1% sobre el monto del incremento
 Bono de garantía no retirado y enmiendas | $20.00
 Cobro Administrativo de Operaciones en Mora:
 TABLA TARIFAS Y COMISIONES ACTUAL
-Cobro administrativo de operaciones en mora: US10.00 mensual, mientras el crédito permanezca en mora. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
+Cobro administrativo de operaciones en mora: US20.00 mensual, mientras el crédito permanezca en mora. (Así reformado el servicio anterior mediante sesión N° 88875/15 del 8 de setiembre de 2015)
 Traspaso de Operaciones de Cobro Administrativo a Cobro Judicial:
 - Comisión | 0.5% sobre el total adeudado decada operación
 - Mínimo | $60.00
