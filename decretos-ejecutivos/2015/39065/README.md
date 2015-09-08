@@ -14,3 +14,4 @@ Reglamento para la utilización del Sistema de Compras Gubernamentales "Comprare
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-20 | la propia norma |
+| 2 | 2015-09-08 | Decreto Ejecutivo 39306 (2015-09-08) |
