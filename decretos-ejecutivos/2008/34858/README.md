@@ -14,3 +14,4 @@ Reglamento para la Intervención de la Brucelosis Bovina
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-25 | la propia norma |
+| 2 | 2015-09-08 | Decreto Ejecutivo 39538 (2015-09-08) |
