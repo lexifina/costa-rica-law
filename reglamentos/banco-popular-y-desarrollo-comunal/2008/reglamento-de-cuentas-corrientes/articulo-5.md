@@ -1,3 +1,0 @@
-Artículo 5º—Cuentas inactivas
-Toda cuenta que permanezca sin movimiento y con saldos inferiores a ¢20.000 para las cuentas en colones o de $100 para las cuentas en dólares, por dos (2) meses consecutivos cuando la modalidad sea “Popular” o tres (3) meses para las otras modalidades según lo establecido en el anexo Nº 1 de este reglamento, será considerada inactiva. Esta condición será comunicada al cuentacorrentista y se cobrará una comisión mensual según lo establecido en el reglamento de “Tarifas y Comisiones para los productos de captación” mientras la cuenta se encuentre bajo esta condición.
-(Así reformado mediante sesión Nº 4767 del 24 de junio de 2010)
