@@ -14,3 +14,4 @@ Reglamento para el juego pitazo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-31 | la propia norma |
+| 2 | 2015-09-08 | Reglamento 31 (2015-09-08) |
