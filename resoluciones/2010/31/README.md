@@ -14,3 +14,4 @@ Sobre el uso de formularios como único medio para la solicitud de servicios del
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-25 | la propia norma |
+| 2 | 2015-09-08 | Resolución 45 (2015-09-08) |
