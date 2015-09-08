@@ -1,1 +1,2 @@
-Artículo 5º—Los cambios en la clasificación de puestos surtirán sus efectos una vez acordada por el Directorio Legislativo y comunicada al interesado y al Jefe respectivo.
+Artículo 5º—El Departamento de Recursos Humanos tendrá el plazo de cuarenta y cinco días naturales para realizar los estudios técnicos de valoración y revaloración de puestos, contado a partir de la presentación de la solicitud formal junto con toda la documentación necesaria para tal fin. En caso que el funcionario encargado del proceso incumpla con este o cualesquier otro plazo dispuesto en este reglamento podrá incurrir en responsabilidad administrativa por incumplimiento de sus deberes.
+(Así adicionado por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015)

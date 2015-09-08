@@ -1,1 +1,2 @@
-Artículo 22.—La ubicación de los puestos trasladados de otras dependencias a la Asamblea Legislativa se hará por medio de asignación, y su vigencia estará determinada por la Ley de Presupuesto Nacional.
+Artículo 22.—No se podrán realizar estudios de reasignación o revaloración de puestos, cuando el código correspondiente se encuentre ubicado, presupuestariamente, en un Departamento distinto de aquel en que esté destacado el funcionario, salvo en casos que se han trasladado por el artículo 18 de la Ley de Personal y no se han consolidado presupuestariamente.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 21 al 22)

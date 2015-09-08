@@ -1,1 +1,2 @@
-Artículo 18.— Si el servidor considera que se le causa perjuicio con la disposición del artículo 17º, podrá apelar ante el jefe inmediato en un plazo de ocho días hábiles. Después de transcurrido el plazo de 60 días, podrá agotar la vía administrativa ante el Directorio de la Asamblea Legislativa.
+Artículo 18.—Por necesidades de conveniencia pública, se podrá asignar a un servidor labores correspondientes a otro puesto distinto al suyo, sin que ello signifique descenso o ascenso, por un plazo que no excederá de sesenta días, consecutivos o no, durante un año.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 17 al 18)

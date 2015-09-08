@@ -1,1 +1,2 @@
-Artículo 24.—Los casos no previstos en este Reglamento se resolverán de acuerdo con las disposiciones del Reglamento del Estatuto de Servicio Civil y de la jurisprudencia administrativa emitida por la Procuraduría General de la República sobre esta materia.
+Artículo 24.—Todo servidor trasladado con su puesto a la Asamblea Legislativa deberá solicitar, en un plazo mínimo de tres meses, el estudio de clasificación correspondiente. De lo contrario se le continuará pagando el salario correspondiente al puesto, que en cuyo caso la fecha de asignación regirá de acuerdo con lo establecido en el artículo 6 del presente Reglamento.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 23 al 24)

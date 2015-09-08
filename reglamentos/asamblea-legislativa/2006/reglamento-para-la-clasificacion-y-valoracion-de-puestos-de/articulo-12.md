@@ -1,1 +1,3 @@
-Artículo 12.—El Departamento de Recursos Humanos determinará, técnicamente, las bases de selección aplicables a cada caso, y las dará a conocer a la Comisión de Idoneidad.
+Artículo 12.—Para cumplir con las disposiciones del Artículo 7, inciso d) de la Ley Nº 4556 “Ley de Personal de la Asamblea Legislativa”, se constituye la comisión de idoneidad, la cual estaría compuesta por el Director Ejecutivo o su representante; el Director del Departamento de Recursos Humanos o su representante, un representante del Consejo de Jefes, que será nombrado por mayoría calificada, de entre los miembros del Consejo, el Jefe del Área de Gestión del Departamento de Recursos Humanos o su representante.
+Esta comisión deberá preparar, evaluar y aplicar las pruebas que se utilizarán en cada caso. También regulará su estructura y funcionamiento interno.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 11 al 12)

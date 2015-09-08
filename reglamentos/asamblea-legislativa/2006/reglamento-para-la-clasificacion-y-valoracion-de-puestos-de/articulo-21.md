@@ -1,1 +1,2 @@
-Artículo 21.—No se podrán realizar estudios de reasignación o revaloración de puestos, cuando el código correspondiente se encuentre ubicado, presupuestariamente, en un Departamento distinto de aquel en que esté destacado el funcionario, salvo en casos que se han trasladado por el artículo 18 de la Ley de Personal y no se han consolidado presupuestariamente.
+Artículo 21.—Cuando se trate de asignaciones de puestos nuevos o de reasignaciones de puestos vacantes, el período de provisionalidad comenzará a contarse a partir de la fecha en que el puesto sea ocupado.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 20 al 21)

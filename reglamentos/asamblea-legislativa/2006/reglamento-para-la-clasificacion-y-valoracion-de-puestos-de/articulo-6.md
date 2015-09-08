@@ -1,1 +1,2 @@
-Artículo 6º—La vigencia en la modificación salarial, por movimientos aprobados, regirá a partir del primero del mes siguiente a la fecha de la resolución firmada por el Directorio Legislativo, siempre y cuando no exista disposición legal que la modifique. Para ello, la Asamblea Legislativa deberá contar, cada año, con una partida presupuestaria que cubra esos conceptos.
+Artículo 6º—Los cambios en la clasificación de puestos surtirán sus efectos una vez acordada por el Directorio Legislativo y comunicada al interesado y al Jefe respectivo.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 5 al 6)

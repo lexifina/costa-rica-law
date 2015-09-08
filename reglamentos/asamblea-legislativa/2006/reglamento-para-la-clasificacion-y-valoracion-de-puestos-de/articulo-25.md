@@ -1,1 +1,2 @@
-Artículo 25.— Este Reglamento deroga el aprobado en la sesión Nº 45, artículo 22, celebrada por el Directorio Legislativo el 29 de abril de 1991.
+Artículo 25.—Los casos no previstos en este Reglamento se resolverán de acuerdo con las disposiciones del Reglamento del Estatuto de Servicio Civil y de la jurisprudencia administrativa emitida por la Procuraduría General de la República sobre esta materia.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 24 al 25)

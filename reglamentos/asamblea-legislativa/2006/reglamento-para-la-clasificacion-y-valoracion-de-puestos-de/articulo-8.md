@@ -1,4 +1,5 @@
-Artículo 8º—El Departamento de Recursos Humanos estudiará cada una de las solicitudes de reasignación y sólo las tramitará si el servidor se encuentra en alguno de los siguientes casos:
-a) Si el servidor está nombrado en propiedad.
-b) El puesto está vacante.
-c) El ocupante posee los requisitos para la clase a la que solicita la reasignación, y tiene como mínimo, seis meses de estar realizando las nuevas funciones. (Plazo establecido por el inciso a) del artículo 111 del Reglamento del Estatuto de Servicio Civil).
+Artículo 8º—Si la reasignación no procediera, o procediera de forma diferente a lo solicitado, se enviará al interesado una copia del informe realizado por el Departamento de Recursos Humanos, y se le dará un plazo de ocho días hábiles improrrogables, después de recibido el informe, para hacer las consideraciones y objeciones pertinentes ante el Departamento de Recursos Humanos, el cual a su vez tendrá un plazo de ocho días naturales para proceder a dar respuesta a dichas objeciones.
+Si en ese lapso el interesado no las hiciera, no podrá plantear nueva solicitud sino después de transcurridos seis meses, siempre y cuando se haya mantenido la clasificación original y no se le haya efectuado reasignación alguna.
+Si el Departamento de Recursos Humanos mantuviera su criterio inicial y procediera a dar respuesta negativa a dichas objeciones, el interesado podrá elevar su disconformidad ante el Directorio Legislativo dentro del plazo de tres días hábiles después de haber recibido la comunicación, el cual resolverá en definitiva en un plazo de ocho días naturales y dará por agotada la vía administrativa.
+(Así reformado por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015)
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 7 al 8)

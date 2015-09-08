@@ -1,1 +1,2 @@
-Artículo 19.—Toda asignación, reclasificación, valoración, revaloración o reasignación de puesto tendrá una provisionalidad de tres meses, y se considerará acordada en forma definitiva si, en ese período el Directorio Legislativo no lo revoca o modifica.
+Artículo 19.— Si el servidor considera que se le causa perjuicio con la disposición del artículo 17º, podrá apelar ante el jefe inmediato en un plazo de ocho días hábiles. Después de transcurrido el plazo de 60 días, podrá agotar la vía administrativa ante el Directorio de la Asamblea Legislativa.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 18 al 19)

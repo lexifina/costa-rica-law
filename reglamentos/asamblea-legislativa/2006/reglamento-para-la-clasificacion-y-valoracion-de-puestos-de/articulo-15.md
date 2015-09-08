@@ -1,1 +1,2 @@
-Artículo 15.—El Director Ejecutivo y los jefes de departamento deberán informar al Departamento de Recursos Humanos sobre los cambios en las tareas que se den en los puestos, con el propósito de que se proceda a realizar el estudio correspondiente para mantener al día el sistema de clasificación.
+Artículo 15.—El Departamento de Recursos Humanos podrá efectuar estudios de reasignación y valoración de puestos de oficio, cuando así lo considere necesario por razones de carácter técnico.
+(Corrida su numeración por acuerdo N° 05 de la sesión N° 083 del 8 de setiembre de 2015, que lo traspaso del antiguo artículo 14 al 15)

@@ -14,3 +14,4 @@ Reglamento para la Clasificación y Valoración de Puestos de la Asamblea Legisl
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-02 | la propia norma |
+| 2 | 2015-09-08 | Acuerdo 5 (2015-09-08) |
