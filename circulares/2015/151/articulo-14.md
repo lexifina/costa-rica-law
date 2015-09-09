@@ -1,0 +1,1 @@
+Artículo 14.—Solicitud o queja referida a información que ya se encuentra despersonalizada. En caso de que la información que se solicita proteger ya se encuentre protegida en el RUSJD, el encargado de la despersonalización deberá corroborar que no exista ninguna omisión o error y si lo hubiere, deberá enmendarlo y dar respuesta de acuerdo con lo establecido en este protocolo.
