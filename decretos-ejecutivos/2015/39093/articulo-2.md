@@ -1,0 +1,2 @@
+Artículo 2º—Se reforma el artículo 2 del Decreto Ejecutivo N° 29398-MINAE del 22 de enero del 2001, el cual se leerá de la siguiente manera:
+“La administración del Refugio corresponde al Ministerio del Ambiente y Energía a través del Sistema Nacional de Áreas de Conservación y en él se aplicarán las disposiciones establecidas para la categoría de área protegida en la legislación nacional y en el respectivo Plan de Manejo”.
