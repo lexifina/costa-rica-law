@@ -1,0 +1,4 @@
+COLEGIO DE MEDICOS Y CIRUJANOS DE COSTA RICA
+El Colegio de Médicos y Cirujanos de Costa Rica, comunica: con las potestades otorgadas en el artículo 10 del Decreto Ejecutivo N° 37717-S “Reglamento de Maestrías y Doctorados en Áreas de las Ciencias Médicas”, la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, en la sesión ordinaria 2015-07-29, del 29 de julio de 2015 acordó lo siguiente:
+1. Incluir la Maestría en Psicogeriatría en la lista oficial reconocida por el Colegio de Médicos y Cirujanos.
+2. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Maestría en Psicogeriatría, el cumplimiento de todos los requisitos establecidos en el Reglamento de Maestrías y Doctorados Académicos en Áreas de las Ciencias Médicas y demás legislación relacionada vigente.
