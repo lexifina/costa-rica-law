@@ -1,0 +1,1 @@
+Artículo 24.—Derogaciones. El presente reglamento deroga en su totalidad el Reglamento interno sobre el Acoso Sexual aplicado al Colegio de Enfermeras de Costa Rica, elaborado en el mes de abril del 1996.

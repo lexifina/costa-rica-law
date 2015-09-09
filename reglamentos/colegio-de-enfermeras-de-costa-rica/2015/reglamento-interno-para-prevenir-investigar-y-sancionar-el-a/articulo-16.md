@@ -1,0 +1,2 @@
+Artículo 16.—A partir de la denuncia recibida, Junta Directiva del Colegio en conjunto con el Órgano Director tendrán un plazo de dos meses para concluir todo el proceso mediante el dictado del acto final. Dicho plazo se entenderá como perentorio, cuyo incumplimiento genera una responsabilidad para las personas integrantes del órgano.
+En el caso de que él o la denunciada no ejerza su derecho de defensa, el proceso continuará hasta concluirse definitivamente con la resolución final.
