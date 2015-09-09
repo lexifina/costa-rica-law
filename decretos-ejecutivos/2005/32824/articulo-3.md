@@ -1,1 +1,0 @@
-Artículo 3º—Las entidades públicas y privadas, además de las organizaciones no gubernamentales, locales e internacionales, podrán brindar las facilidades y cooperación necesarias dentro del marco de sus competencias, para la organización y desarrollo de las actividades de la coalición.
