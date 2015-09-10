@@ -1,5 +1,6 @@
 Artículo 6º—Del otorgamiento del servicio. La Municipalidad concederá el servicio de agua potable, observando los siguientes lineamientos y definiciones:
-a) El agua potable es de uso domiciliar principalmente.
+a) El agua potable es de uso domiciliar principalmente y se autorizará sólo un servicio por unidad habitacional o comercial.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 415 del 10 de setiembre del 2015)
 b) No se concederá paja de agua para lotes que carezcan de edificaciones, excepto en los casos que sean para inicio de construcciones y siempre que existan suficientes recursos hidráulicos para disponerlo.
 c) El uso comercial se concederá en todos aquellos lugares en donde el Plan Regulador permita el establecimiento de comercios, para otorgar el mismo se procederá a hacer las modificaciones correspondientes, a través del Departamento de Acueducto.
 d) El uso preferencial se concederá a todas las entidades de educación pública, beneficencia y culto, según lo dispuesto para esta tarifa.
@@ -9,3 +10,5 @@ f) Cuando la Municipalidad de La Unión manifieste que existe disponibilidad de 
 Si el interesado no ha iniciado con la construcción de dicho proyecto en este plazo, se da por finalizado el compromiso adquirido por la Municipalidad y el interesado deberá de realizar de nuevo la solicitud.
 g) La disponibilidad de agua para los proyectos de Urbanizaciones y Condominios, Fraccionamientos, Industrias y otros similares que impliquen la autorización de un caudal de agua mayor al que consumen cuatro viviendas unifamiliares, sólo pueden ser autorizados por el Concejo Municipal por recomendación de una Comisión de Recurso Hídrico conformada por el Director de Recurso Hídrico, el Alcalde o Alcaldesa Municipal, el Presidente del Concejo Municipal, el Gestor Ambiental, y tres miembros de la población: un miembro del Movimiento Cívico el cual ellos designarán, un miembro de la UCALU que será designado por ellos, y un miembro que será designado por el Concejo Municipal tomado de la población civil. Sería importante que cada uno de estos tres miembros cuenten con algún conocimiento o título que los faculte para dar un criterio sobre los asuntos que la Comisión de Recurso Hídrico estudiará. Se solicita notificar al Movimiento Cívico y a la UCALU.
 (Así reformado el inciso anterior en sesión N° 393 del 28 de mayo de 2015)
+h) La Municipalidad dispondrá de 30 días hábiles para resolver las disponibilidades de agua que le presenten.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 415 del 10 de setiembre del 2015)

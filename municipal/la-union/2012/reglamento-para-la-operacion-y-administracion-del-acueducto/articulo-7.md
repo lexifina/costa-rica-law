@@ -20,7 +20,8 @@ b) Documento idóneo en el que demuestre ser el nuevo propietario del inmueble e
 c) Visto bueno municipal de estar al día en el pago de tasas y tributos municipales, del nuevo propietario y el anterior.
 En los casos de instalación por primera vez, los documentos deberán ser presentados en la Plataforma de Servicios, para su trámite. La aprobación de la instalación por primera vez la dará el Departamento de Acueductos, previo visto bueno de la Dirección de Urbanismo (Uso de suelo). Una vez aprobada se procederá conforme al procedimiento establecido vigente. Para los efectos del traspaso a nombre del usuario, la documentación será tramitada por el Departamento de Catastro Municipal, quién definirá lo procedente.
 Todas las solicitudes serán debidamente registradas y conferidas en forma cronológica cuando ello proceda y sean realizados los ajustes en los departamentos indicados.
-7.2 Se establecen los siguientes requisitos para la instalación de la paja de agua potable:
+7.2. Se establecen los siguientes requisitos para la instalación de la paja de agua potable:
 a) Deberá estar aprobado el permiso de construcción de una casa de habitación o un edificio. Deberá presentar copia del permiso de construcción y del recibo de pago del impuesto de construcción cancelado.
-b) Presentar recibo con la cancelación de los derechos Instalación.
-Todas las nuevas pajas se instalarán con hidrómetro ó con caja y suplemento. Sólo vía excepción se instalarán pajas fijas.
+b) Presentar recibo con la cancelación de los derechos instalación.
+Todas las nuevas pajas se instalarán con hidrómetro o con caja y suplemento. Sólo se instalarán pajas fijas cuando no haya hidrómetros o cajas de protección de hidrómetros disponibles.
+(Así reformado el inciso 7.2) anterior mediante sesión ordinaria N° 415 del 10 de setiembre del 2015)

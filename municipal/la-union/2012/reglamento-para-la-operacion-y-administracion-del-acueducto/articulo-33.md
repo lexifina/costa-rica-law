@@ -8,4 +8,5 @@ En caso de que el abonado se oponga a lo establecido en la Notificación del Dep
 a) Deberá estar firmado por el usuario.
 b) Señalar lugar para recibir notificaciones dentro del perímetro cantonal.
 2. En el caso de servicios medidos, el recibo para cobro que recibe el usuario constituye notificación, por lo que la Municipalidad queda facultada para suspender el servicio diez días hábiles después de la fecha de vencimiento del mismo.
-3. Cuando se da la suspensión de un servicio de agua; a petición del interesado la Municipalidad instalará una fuente pública. En caso de que el interesado quiera que la fuente pública este frente a sus instalaciones (fuente pública especial) deberá de previo cancelar el monto correspondiente.
+3. Cuando se da la suspensión de un servicio de agua; a petición del interesado la Municipalidad instalará una fuente pública. En caso de que el interesado quiera que la fuente pública esté frente a sus instalaciones (fuente pública especial) deberá cancelar el monto correspondiente y la misma se mantendrá por un máximo de 30 días naturales.
+(Así reformado el punto 3) anterior mediante sesión ordinaria N° 415 del 10 de setiembre del 2015)

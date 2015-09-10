@@ -29,5 +29,6 @@ t) Usuario: Es la persona física o jurídica que utiliza los servicios de agua 
 u) Revisión de hidrómetro: revisión que hace un funcionario del Servicio de Acueducto Municipal en el hidrómetro que tiene instalado el usuario, para detectar si hay o no fugas en las instalaciones del interesado.
 v) Fuente pública: instalación de una fuente de agua potable en un radio de 50 metros a partir del punto donde se suspendió un servicio.
 w) Fuente pública especial: instalación de una fuente pública al frente de la vivienda.
-x) Laboratorio: Laboratorio de Pruebas Volumétricas de la Municipalidad de La Unión.
+x) Laboratorio: Laboratorio de Hidrómetros de la Municipalidad de La Unión.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 415 del 10 de setiembre del 2015)
 y) Tasa de urbanización: monto que debe pagar el desarrollador de urbanizaciones, residenciales y condominios horizontales o verticales, por cada paja de agua o unidad habitacional o comercial tramitada, la tasa será establecida según estudio previo realizado por la Dirección.
