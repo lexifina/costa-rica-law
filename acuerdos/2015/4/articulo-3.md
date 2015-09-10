@@ -1,0 +1,1 @@
+Artículo 3º—El Ministerio de Agricultura y Ganadería, a través del Servicio Nacional de Salud Animal (SENASA) podrá supervisar y accesar el registro en cualquier momento para comprobar el correcto funcionamiento del Registro Genealógico de Ganado Ghyrolando.

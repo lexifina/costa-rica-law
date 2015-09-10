@@ -1,0 +1,1 @@
+Transitorio Único.—En un término perentorio no mayor de noventa días hábiles, contados a partir de la publicación de la presente autorización, la Asociación deberá promulgar los reglamentos necesarios que contemplen la inscripción, desinscripción, recursos administrativos y las tarifas de cobro por los servicios de registro.

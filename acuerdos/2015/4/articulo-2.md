@@ -1,0 +1,1 @@
+Artículo 2º—La Asociación de Criadores de Ganado Holstein de Costa Rica, deberá dictar los reglamentos respectivos que regulen en forma clara e idónea, los procedimientos generales de inscripción, desinscripción y recursos administrativos, así como definir las tarifas de cobro por los servicios de registro.
