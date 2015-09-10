@@ -1,0 +1,1 @@
+Artículo 4º—La Dirección de Cambio Climático del Ministerio del Ambiente y Energía será la responsable del seguimiento a la ejecución del Plan de Acción de la Estrategia Nacional de Cambio Climático en coordinación con la Secretaría Sectorial de Ambiente, Energía, Mares y Ordenamiento Territorial.
