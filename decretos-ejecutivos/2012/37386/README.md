@@ -14,3 +14,4 @@ Reglamento para la utilización de la capacidad de pesca de Atún de Cerco recon
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-21 | la propia norma |
+| 2 | 2015-09-10 | Decreto Ejecutivo 39503 (2015-09-10) |
