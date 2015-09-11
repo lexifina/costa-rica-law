@@ -225,7 +225,7 @@ Región 2 (UIT) | | Costa Rica | Nota
 156,7625 – 156,8375 MÓVIL MARÍTIMO (socorro y llamada) 5.111 5.226 | 156,7625 – 156,8375 MOVIL MARITIMO (socorro y llamada) | CR 038 CR 039
 156,8375 MHz – 335,4 Mhz
 Región 2 (UIT) | | Costa Rica | Nota
-156,8375 – 174 FIJO MÓVIL 5.226 5.230 5.231 5.232 | | 156,8375 – 174 FIJO MOVIL | CR 039 CR 033 CR 040
+156,8375 – 174 FIJO MÓVIL 5.226 5.230 5.231 5.232 (Así reformada la banda anterior por el artículo 1° del decreto ejecutivo N° 39253 del 11 de setiembre del 2015) | | 156,8375 – 174 FIJO MOVIL 5.226 5.228C 5.228D (Así reformada la banda anterior por el artículo 1° del decreto ejecutivo N° 39253 del 11 de setiembre del 2015) | CR 039 CR 033 (Así reformada la banda anterior por el artículo 1° del decreto ejecutivo N° 39253 del 11 de setiembre del 2015)
 174 – 216 RADIODIFUSIÓN Fijo Móvil 5.234 | | 174 – 216 RADIODIFUSION TELEVISIVA | CR 041
 216 – 220 FIJO MÓVIL MARÍTIMO Radiolocalización 5.241 5.242 | | 216 – 220 FIJO MOVIL MARITIMO 5.241 5.242 (Así reformado la banda anterior por el artículo 3° del decreto ejecutivo N° 39057 del 27 de marzo de 2015) | CR 039 CR 047 (Así reformado la nota anterior por el artículo 3° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 220 – 225 AFICIONADOS FIJO MÓVIL Radiolocalización 5.241 | | 220 – 225 AFICIONADOS FIJO MOVIL RADIOLOCALIZACION | CR 013

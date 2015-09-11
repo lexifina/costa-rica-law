@@ -50,8 +50,7 @@ CR 037 La administración podrá otorgar frecuencias con potencias iguales o inf
 CR 038 El rango de frecuencias 156,7625 a 156,8375 MHz es el rango internacional de socorro, seguridad y llamada del servicio móvil marítimo, por lo cual esta banda no podrá ser asignada para cualquier otro uso.
 (Así reformado el punto anterior por el artículo 3°; inciso 5 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
 CR 039 Los servicios móviles marítimos operaran sujetos a las condiciones establecidas en los apéndices 16, 17 y 18 del Reglamento de Radiocomunicaciones de la UIT-R y la CMR 97.
-CR 040 Las bandas de 160 a 163,5 MHz y 170 a 173,5 MHz se usarán para servicios de emergencia y telefonía rural en zonas de difícil cobertura. Se excluyen los rangos de frecuencia de 160,6 a 160,975 MHz y 161,475 a 162,05 MHz en conjunto con el rango 156,8375 a 157,45 MHz (CR 039) que se atribuyen en forma exclusiva para el servicio móvil marítimo.
-(Así reformado el punto anterior por el artículo 3°; inciso 6 del decreto ejecutivo N° 35866 del 7 de abril de 2010)
+CR 040 (Derogada esta nota por el artículo 2° del decreto ejecutivo N° 39253 del 11 de setiembre del 2015)
 CR 041 En el segmento de 174 MHz a 216 MHz se atribuye al servicio de radiodifusión para las emisiones de televisión de acceso libre en VHF, banda III, para los canales del 7 al 13, de conformidad con el Adendum III. Durante el período de transición a la televisión digital definido en el Decreto Ejecutivo N° 36774-MINAET y sus reformas, dichas transmisiones solo podrán ser analógicas.
 (Así reformada la nota anterior por el artículo 4° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)
 CR 042 (Derogada por el artículo 8° del decreto ejecutivo N° 39057 del 27 de marzo de 2015)

@@ -21,3 +21,4 @@ Plan Nacional de Atribución de Frecuencias (PNAF)
 | 6 | 2013-08-16 | Decreto Ejecutivo 37936 (2013-08-16) |
 | 7 | 2013-11-15 | Decreto Ejecutivo 38033 (2013-11-15) |
 | 8 | 2015-03-27 | Decreto Ejecutivo 39057 (2015-03-27) |
+| 9 | 2015-09-11 | Decreto Ejecutivo 39253 (2015-09-11) |
