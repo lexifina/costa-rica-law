@@ -14,3 +14,4 @@ Reforma Plan Nacional de Atribución de Frecuencias (PNAF)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-01 | la propia norma |
+| 2 | 2015-09-11 | Decreto Ejecutivo 39311 (2015-09-11) |
