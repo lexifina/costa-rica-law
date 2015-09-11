@@ -1,0 +1,1 @@
+Artículo 6°—Las Autoridades Públicas e Instituciones con competencias específicas en la aplicación y desarrollo de los fines, objetivos y metas de la Política, deberán incorporarla en los planes operativos institucionales y destinar los recursos presupuestarios y económicos necesarios, para atender la realización de sus acciones.
