@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección General de la Policía de Tránsito tomará las medidas necesarias para controlar el acceso al Cantón Central de Puntarenas y garantizar la seguridad de los asistentes al evento y, el derecho a la libre circulación de las y los habitantes de la localidad.
