@@ -1,0 +1,1 @@
+Transitorio I.—La obligación establecida en el artículo 14 de este reglamento, deberá entrar en pleno funcionamiento en un plazo máximo de 2 años, a partir de la publicación de este Reglamento. No obstante, cada 6 meses la Presidencia Ejecutiva de la Caja Costarricense de Seguro Social informará a la Presidencia de la República acerca del avance progresivo de dicha obligación.

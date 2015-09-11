@@ -1,0 +1,1 @@
+Artículo 18.—Donación de óvulos fecundados: La pareja o la mujer que preserve sus óvulos fecundados en caso de no poder o no querer realizar futuras transferencias de estos, podrá donar estas células a otras personas destinatarias de la FIV que así lo requieran. Para ello, deberán manifestar su consentimiento informado de donación de óvulos fecundados.

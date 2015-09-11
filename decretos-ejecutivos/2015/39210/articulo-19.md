@@ -1,0 +1,1 @@
+Artículo 19.—Régimen de prohibición: En cuanto al tratamiento de óvulos fecundados, queda absolutamente prohibido su desecho, comercialización, experimentación, selección genética, fisión, alteración genética, clonación y destrucción. Tampoco podrá darse la inseminación o transferencia post mórtem sin consentimiento informado expreso.

@@ -1,0 +1,1 @@
+Artículo 12.—Derecho a la asistencia interdisciplinaria: La mujer que se someta a la FIV tendrá derecho a recibir la adecuada atención interdisciplinaria por parte del establecimiento autorizado, que asegure su pleno estado de salud física y psicológica, así como de gozar del recinto clínico adecuado.
