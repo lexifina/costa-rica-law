@@ -1,0 +1,1 @@
+Artículo 27.—En defecto de las disposiciones propias de este Reglamento, deberá tenerse como supletorias las contenidas en el Reglamento Autónomo de Trabajo, el Manual Institucional de Clases y Cargos del CUNLIMÓN el Estatuto del Servicio Civil y demás leyes, decretos y reglamentos vigentes en materia de empleo público y laboral.

@@ -1,0 +1,2 @@
+Artículo 13.—Cumplido el plazo conferido para la recepción de ofertas, el Departamento de Recursos Humanos dispondrá de diez (10) hábiles para el análisis de los atestados. Y determinar si cumplen o no con los requisitos del concurso e iniciar el proceso de pruebas y/o entrevistas.
+El Departamento de Recursos Humanos dispondrá de diez (10) hábiles para coordinar la aplicación de las pruebas y/o entrevistas, así como realizar la convocatoria respectiva de los oferentes seleccionados.

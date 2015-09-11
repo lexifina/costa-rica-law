@@ -1,0 +1,1 @@
+Artículo 28.—Se deroga de manera expresa cualquier normativa, disposición o lineamiento que se oponga al presente Reglamento para la Selección y Nombramiento del Personal con cargo de Director del Colegio Universitario de Limón.

@@ -1,0 +1,2 @@
+Artículo 8º—Del Concurso Externo. Es el procedimiento mediante el cual se invita a participar al público en general que cumpla con los requisitos establecidos en el artículo 4 de este Reglamento y además con los requisitos establecidos en el concurso.
+Para la publicación del Concurso Externo se tomaran las disposiciones del artículo anterior y se deberá publicar al menos una vez, en un periódico de circulación nacional, con un mínimo de diez días hábiles de anticipación.

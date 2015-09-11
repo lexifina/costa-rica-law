@@ -1,0 +1,2 @@
+Artículo 17.—La clasificación final del Departamento de Recursos Humanos, será notificado a cada uno de los participantes, quienes tendrán un plazo de tres (3) días hábiles para interponer recursos. - de revocatoria ante el Departamento de Recursos Humanos y de Apelación ante la Decanatura.-
+Tanto el recurso de revocatoria como el recurso de apelación deberán ser resueltos en un plazo máximo de cinco (5) días hábiles.

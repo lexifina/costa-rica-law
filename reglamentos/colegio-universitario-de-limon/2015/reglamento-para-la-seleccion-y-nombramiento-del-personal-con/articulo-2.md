@@ -1,0 +1,11 @@
+Artículo 2º—Definiciones. Para los propósitos del presente reglamento, los términos que se emplearán tendrán los siguientes significados:
+- Directores: funcionario que realiza funciones administrativas y que son clasificados según las especificaciones de las clases de puestos establecidas en el Manual Descriptivo de Clases de la Dirección General del Servicio Civil y por el Manual de Puestos del CUNLIMON.
+- Nombramiento: Acto administrativo mediante el cual se ubica una plaza nueva en la clase correspondiente.
+- Concurso: proceso en el cual se invita a participar a las personas interesadas en el puesto de Director mediante distintos tipos de pruebas que efectúa el CUNLIMON con la finalidad de llenar plazas vacantes. Estos pueden ser internos o externos según las circunstancias que lo motiven.
+- Patrono: El Colegio Universitario de Limón, en su condición de empleador de los servicios de los funcionarios.
+- Puesto: Conjunto de deberes, responsabilidades y requisitos asignados a un funcionario para que sean atendidos durante la jornada de trabajo.
+- Relación de servicio: El conjunto de obligaciones, derechos, atribuciones, funciones y tareas que corresponden al servidor o funcionario, en relación con la institución y los administrados, de acuerdo con el ordenamiento jurídico y en virtud de un acto válido y eficaz de investidura.
+- Representante patronal: El Decano y en general todas aquellas personas que autorizadas por éste y quienes ejerzan dentro del CUNLIMON funciones de dirección, de Administración o de ambos géneros.
+- Requisitos: Conjunto de conocimientos, habilidades, experiencia y capacitación o su equivalente para el adecuado desempeño del trabajo, condiciones todas que deben poseer los candidatos a los puestos.
+- Superior jerárquico: La jefatura o superior inmediato, según la jerarquía de la respectiva área, Dirección o dependencia de que se trate.
+- Funcionario o Servidor: Toda persona física que a cambio de una remuneración y en virtud de un acto válido y eficaz de investidura, presta sus servicios materiales, intelectuales o de ambos géneros en forma personal y subordinada al CUNLIMON, en forma transitoria o permanente, como consecuencia de un contrato de trabajo escrito o tácito, individual o colectivo.

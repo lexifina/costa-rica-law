@@ -1,0 +1,1 @@
+Artículo 20.—La Decanatura podrá en razones de conveniencia y oportunidad institucional asimismo en atención a los fines estratégicos de la institución, introducir modificaciones a los criterios y factores de evaluación siempre y cuando se cumpla con los principios de divulgación e igualdad de participación para los concursantes.

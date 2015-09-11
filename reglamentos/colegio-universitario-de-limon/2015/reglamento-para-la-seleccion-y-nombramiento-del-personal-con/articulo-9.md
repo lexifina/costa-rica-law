@@ -1,0 +1,1 @@
+Artículo 9º—Para efectos de los concursos internos y externos, la calificación de las ofertas para dichos cargos se hará con base a una escala del uno al cien por ciento (01 al 100%) estableciéndose la calificación de ochenta por ciento (80%) como mínimo para resultar elegible.

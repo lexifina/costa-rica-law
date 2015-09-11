@@ -1,0 +1,1 @@
+Artículo 25.—La propiedad de las ofertas no favorecidas. Las ofertas que no fueron favorecidas con el nombramiento al cargo, pasarán a formar parte del registro de elegibles o serán devueltos al interesado si hiciere su petición formal dentro de los siguientes 8 días a partir de la fecha del nombramiento.

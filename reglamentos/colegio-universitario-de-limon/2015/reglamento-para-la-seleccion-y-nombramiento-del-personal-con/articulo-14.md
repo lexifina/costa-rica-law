@@ -1,0 +1,1 @@
+Artículo 14.—La entrevista conductual para la selección de los cargos de Director serán realizadas por la Decanatura quien a facultad de ésta, podrá hacerse acompañar por miembros del Consejo Directivo, las mismas se realizaran en las instalaciones del CUNLIMON.

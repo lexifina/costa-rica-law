@@ -1,0 +1,1 @@
+Artículo 7º—Podrán participar de los concursos internos todos aquellos funcionarios en propiedad, administrativos, administrativos-docentes y docentes. Y todos aquellos funcionarios interinos con más de seis meses de nombramiento continuo.
