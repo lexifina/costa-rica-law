@@ -1,1 +1,0 @@
-Artículo 5º—Solicitar a la Autoridad Reguladora de los Servicios Públicos, preparar la reglamentación necesaria que permita que la actividad de generación distribuida pase de una etapa piloto a programas y proyectos de alcance nacional.
