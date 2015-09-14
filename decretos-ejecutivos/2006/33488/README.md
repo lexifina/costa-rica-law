@@ -14,3 +14,4 @@ Reglamento para el Pago de Viáticos y Gastos de Transporte a los Funcionarios d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-01-04 | la propia norma |
+| 2 | 2015-09-14 | Reglamento 1245 (2015-09-14) |
