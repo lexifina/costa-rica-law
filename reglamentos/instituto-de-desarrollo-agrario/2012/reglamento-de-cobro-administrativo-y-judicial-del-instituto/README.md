@@ -14,3 +14,4 @@ Reglamento de cobro administrativo y judicial del Instituto de Desarrollo Agrari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-03-05 | la propia norma |
+| 2 | 2015-09-14 | Reglamento 33 (2015-09-14) |
