@@ -1,2 +1,0 @@
-Artículo 24.—Hipotecas abiertas: Con este tipo de hipoteca se aprueba un determinado monto de financiamiento, para desarrollar una o varias líneas de crédito, en un plazo determinado. Durante este plazo no se requerirá de nuevas aprobaciones por el Comité de Crédito o Junta Directiva cuando corresponda, siempre y cuando se encuentre al día y el monto del principal no supere el monto máximo aprobado. La forma de pago dependerá de cada actividad financiada.
-(Así reformado mediante acuerdo N° 14 de la sesión N° 027 del 3 de agosto de 2009)

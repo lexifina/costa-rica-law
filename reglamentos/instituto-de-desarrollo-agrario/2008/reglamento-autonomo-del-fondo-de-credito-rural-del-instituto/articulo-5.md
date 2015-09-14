@@ -1,1 +1,0 @@
-Artículo 5º—De las inversiones. Los recursos disponibles, que no afecten la operación del Fondo, podrán invertirse en títulos valores de acuerdo a las regulaciones que sobre el particular emita el Ministerio de Hacienda.

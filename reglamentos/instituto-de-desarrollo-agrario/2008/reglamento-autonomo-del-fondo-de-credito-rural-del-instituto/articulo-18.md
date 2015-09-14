@@ -1,1 +1,0 @@
-Artículo 18.—De los montos. El monto del préstamo que se autorizará depende del estudio técnico presentado y de la disponibilidad presupuestaria asignada a cada Subregional. Este podrá ser hasta un 100% del monto del avío de la actividad a financiar.

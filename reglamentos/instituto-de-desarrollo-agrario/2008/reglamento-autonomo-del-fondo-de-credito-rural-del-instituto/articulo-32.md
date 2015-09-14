@@ -1,1 +1,0 @@
-Artículo 32.—Cobro judicial. El cobro judicial es la gestión que realiza el Instituto ante las instancias judiciales, por incumplimiento de las obligaciones estipuladas en el Capítulo de Obligaciones de este Reglamento.

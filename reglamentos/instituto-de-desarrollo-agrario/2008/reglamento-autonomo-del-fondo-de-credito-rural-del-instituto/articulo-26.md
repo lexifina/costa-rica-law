@@ -1,1 +1,0 @@
-Artículo 26.—Arreglos de pago: Implica un acuerdo entre el deudor y el Fondo, que permite la modificación del plazo y la forma de pago del crédito, para hacerlo más adecuado a las condiciones actuales del cliente. En todos los casos es recomendable el pago de los intereses corrientes y moratorios. En caso de que existan honorarios, estos deben ser cancelados de previo.

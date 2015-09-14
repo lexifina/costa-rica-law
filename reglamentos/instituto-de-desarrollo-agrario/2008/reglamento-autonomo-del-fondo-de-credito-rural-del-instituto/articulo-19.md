@@ -1,1 +1,0 @@
-Artículo 19.—De los plazos. El plazo y la forma de pago para cancelar el crédito estarán determinados por el ciclo y/o por los ingresos que genere el proyecto, considerando un período prudencial para la comercialización. Sin menoscabo de poder otorgarle un plazo mayor, para desarrollar varios ciclos de la misma actividad.
