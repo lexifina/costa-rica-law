@@ -1,0 +1,1 @@
+Artículo 9º—Los colores, tipografías, así como los tamaños de los logos y sus diseños, cuando sean utilizados para identificación en prendas de vestir, cascos de motocicletas, maletines u otros bienes susceptibles de identificación deberán ser siempre acordes a lo estipulado en el Manual de Imagen Institucional.

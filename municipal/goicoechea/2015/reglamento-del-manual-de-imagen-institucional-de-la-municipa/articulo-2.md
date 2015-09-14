@@ -1,0 +1,1 @@
+Artículo 2º—Las características de los elementos de identidad institucional se encuentran establecidas en el Manual de Imagen Institucional, publicado en la página web de la Municipalidad de Goicoechea.

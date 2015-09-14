@@ -1,0 +1,1 @@
+Artículo 3º—Los elementos de identidad institucional permiten tener una capacidad identificadora de la documentación oficial, equipamiento, infraestructura y servicios de la institución, garantizando su solvencia y calidad, facilitando la posibilidad de publicitar y dar imagen pública a todos los productos y servicios que se generan dentro de la misma.

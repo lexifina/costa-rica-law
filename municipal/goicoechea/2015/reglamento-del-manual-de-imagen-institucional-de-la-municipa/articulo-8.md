@@ -1,0 +1,1 @@
+Artículo 8º—Rotulación vehicular. Los vehículos, motocicletas, maquinaria pesada, vagonetas, recolectoras y todo otro vehículo automotor susceptible de identificación con los colores y signos del Municipio, será rotulados de conformidad con este Reglamento y el Manual de Imagen Institucional.
