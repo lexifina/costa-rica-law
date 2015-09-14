@@ -14,3 +14,4 @@ Reglamento de Concesiones para el Servicio Público de Suministro de Energía El
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-01-15 | la propia norma |
+| 2 | 2015-09-14 | Decreto Ejecutivo 39220 (2015-09-14) |

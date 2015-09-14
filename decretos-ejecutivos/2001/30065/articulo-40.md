@@ -1,1 +1,2 @@
-Artículo 40.—Rige a partir de su publicación.
+Artículo 40.—La ARESEP será la responsable de emitir las normas técnicas, tarifas y cualquiera otra disposición necesaria aplicable a la actividad regulada asociada a la generación distribuida para autoconsumo modalidad contractual medición neta sencilla.
+(Así adicionado por el artíuclo 48 del Reglamento generación distribuida para autoconsumo con fuentes renovables modelo de contratación medición neta sencilla, aprobado mediante decreto ejecutivo N° 39220 del 14 de setiembre de 2015)
