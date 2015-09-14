@@ -1,0 +1,3 @@
+Artículo 18.—Del proceso disciplinario. De previo a aplicar las sanciones antes indicadas, el Banco procederá a realizar el procedimiento correspondiente, de conformidad con lo establecido en la Ley de Contratación Administrativa, salvo en el supuesto del inciso a) del artículo 17, de la Resolución del contrato, donde la resolución aplicará de pleno derecho.
+Inhabilitación.
+Cuando el Notario incurra en las causales de inhabilitación que prevén los artículos 100 y 100 bis de la Ley de Contratación Administrativa, una vez que esté firme esta inhabilitación cesará todos los efectos de cualquier relación contractual durante la vigencia de esta sanción.

@@ -1,0 +1,1 @@
+Artículo 13.—De la acreditación de gastos y honorarios. Las oficinas encargadas de la formalización, con base en el informe del notario de que el documento ha sido debidamente otorgado, procederán de inmediato a acreditarle en la cuenta abierta al efecto por éste, el importe de los gastos y honorarios previamente aprobados y requeridos para la inscripción del documento.
