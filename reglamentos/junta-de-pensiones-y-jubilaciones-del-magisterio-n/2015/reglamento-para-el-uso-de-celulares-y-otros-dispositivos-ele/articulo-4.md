@@ -1,0 +1,2 @@
+Del servicio y uso
+Artículo 4º—Los Directivos que conforman la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, el Director Ejecutivo, el Subdirector Ejecutivo, Abogado 2 de la Junta Directiva, Auditor Interno, Jefaturas de los diferentes departamentos, Encargado (a) del Área de Transportes y cualquier otro funcionario que así lo disponga la Junta Directiva, contarán con un aparato y su respectiva línea celular en el momento en que lo soliciten y corresponderá al Departamento Administrativo su tramitación.

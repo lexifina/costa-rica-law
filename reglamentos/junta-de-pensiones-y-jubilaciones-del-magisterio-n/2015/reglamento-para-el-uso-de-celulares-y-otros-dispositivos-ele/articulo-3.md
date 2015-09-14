@@ -1,0 +1,2 @@
+De la contratación del servicio
+Artículo 3º—Los servicios de telefonía celular serán contratados con el Instituto Costarricense de Electricidad (I.C.E.) o empresas debidamente autorizadas para suplir este servicio. Además, los aparatos serán adquiridos en locales comerciales debidamente inscritos en el Registro Público y que brinden absoluta garantía del funcionamiento y calidad en los aparatos receptores, así como poseer facilidades de taller de servicio y mantenimiento. Todos los aparatos suministrados deberán contar con los accesorios necesarios para su debida operación.

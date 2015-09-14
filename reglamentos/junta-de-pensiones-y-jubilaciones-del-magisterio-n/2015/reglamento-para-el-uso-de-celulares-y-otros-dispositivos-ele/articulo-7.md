@@ -1,0 +1,1 @@
+Artículo 7º—Así mismo y de manera permanente, la Junta contará con líneas y sus respectivos aparatos para el uso general de la misma; las cuales estarán disponibles en el Departamento Administrativo para uso temporal, en casos de giras o actividades fuera de la sede central, en donde se requiera de la comunicación efectiva y directa con la organización.

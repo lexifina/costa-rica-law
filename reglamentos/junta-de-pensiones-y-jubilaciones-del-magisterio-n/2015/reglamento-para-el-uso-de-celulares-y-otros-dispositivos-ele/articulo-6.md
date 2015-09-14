@@ -1,0 +1,1 @@
+Artículo 6º—Los miembros de Junta Directiva o funcionarios, que al ingresar a la institución, posean la línea telefónica y el aparato, podrán optar por utilizar el derecho que se establece en los artículos 10 y 13, ajustándose para ello a los términos y condiciones que señala el presente reglamento.
