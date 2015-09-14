@@ -1,1 +1,0 @@
-Artículo 7º—Telecentros: La Comisión Nacional de Teletrabajo evaluará y recomendará la utilización de telecentros en aquellas localidades donde existan las condiciones idóneas para que los teletrabajadores puedan desarrollar sus actividades, para lo cual recomendará el procedimiento y la normativa de uso de esos servicios.

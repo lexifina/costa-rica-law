@@ -1,1 +1,0 @@
-Artículo 5º—Apoyo a la Comisión Nacional de Teletrabajo: El órgano técnico ejecutor será el encargado de facilitar el cumplimiento y ejecución de las competencias y obligaciones que este Decreto le designa a la Comisión Nacional.
