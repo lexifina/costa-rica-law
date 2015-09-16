@@ -1,4 +1,6 @@
+(Derogado)
 PATRONATO NACIONAL DE LA INFANCIA
+(Esta norma fue derogada por el artículo 29 del Reglamento para la prevención, denuncia y sanción del Hostigamiento Laboral en las relaciones de empleo, aprobado en sesión N° 2015-034 del 16 de setiembre de 2015)
 JUNTA DIRECTIVA
 GLOSARIO
 Acoso laboral y psicológico (Mobbing): Se define como una forma de intimidación y hostigamiento psicológico, en el puesto de trabajo, ejercida a través de comportamientos abusivos, agresivos y ofensivos repetidos, por parte de los superiores jerárquicos o los compañeros.

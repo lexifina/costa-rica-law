@@ -14,3 +14,4 @@ Procedimiento de actuación para prevenir, investigar y sancionar el Hostigamien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-21 | la propia norma |
+| 2 | 2015-09-16 | Reglamento 34 (2015-09-16) |
