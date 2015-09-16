@@ -1,0 +1,1 @@
+Artículo 13.—Al final de cada jornada de trabajo, todos los vehículos de la Administración deben guardarse en el parqueo del Palacio Municipal. Los vehículos asignados a las dependencias de Encargado de Mantenimiento y Obras, Gestión Vial y de Aseo de Vías y Sitios Públicos les corresponde guardarlos en el Plantel Municipal ubicado al costado sur del Cementerio Central.

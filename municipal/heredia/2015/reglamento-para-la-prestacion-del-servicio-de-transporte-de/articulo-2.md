@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. El presente Reglamento regula todo vehículo usado en la institución, propiedad de la Municipalidad de Heredia, arrendado o prestado, que circulen por vías públicas y privadas de Costa Rica.

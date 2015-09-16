@@ -1,0 +1,10 @@
+Artículo 6º—Es responsabilidad de las Dependencias a las cuales se les asigne una unidad, coordinar con la Proveeduría Municipal la provisión de los insumos y servicios necesarios para el mantenimiento de los vehículos. Los titulares de esas dependencias tendrán las siguientes obligaciones:
+a) Vigilar que los vehículos municipales se utilicen adecuadamente, en la realización de los servicios para los que fueron solicitados.
+b) Velar porque los servicios de reparación, conservación y mantenimiento de todos los vehículos municipales sean realizados con la mayor eficiencia y eficacia.
+c) Realizar los trámites necesarios para la salida de operaciones de los vehículos municipales, previa solicitud de las jefaturas correspondientes.
+d) Mantener actualizada una adecuada información de control de cada automotor, efectuando para ello al menos un inventario físico anual, en conjunto con el Encargado de Activos.
+e) Velar por el cumplimiento del presente Reglamento, reportando al Alcalde cualquier violación a las normas, leyes y procedimientos que se pudieran presentar en cuanto al uso, control y mantenimiento de vehículos. Dicho reporte incluirá, cuando corresponda, las recomendaciones de la acción a seguir.
+f) Gestionar las alternativas más convenientes para el aseguramiento de la flota y hacer las recomendaciones respectivas al Alcalde.
+g) Llevar un control de los vehículos que están fuera de servicio y de operación e informar a la Alcaldía para lo que corresponda.
+h) Llevar el control diario de kilometraje y horas de uso de los vehículos. También deberán dejar constancia de un informe sobre el número de kilómetros recorridos, horas trabajadas, el objeto de los viajes y cualquier otra información que se estime conveniente a fin de que sirva de base para cualquier estudio interno y externo sobre el uso dado a los vehículos.
+i) Evaluar trimestralmente los consumos de combustible, kilometraje, llevar un control de los cambios de aceite y mantenimientos de los vehículos y estado general de los vehículos al servicio de esta Municipalidad dando un reporte por escrito a la Alcaldía.

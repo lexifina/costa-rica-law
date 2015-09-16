@@ -1,0 +1,1 @@
+Artículo 18.—El servicio de transporte utilizando vehículos municipales queda restringido al territorio nacional, salvo cuando exista autorización expresa del Alcalde, en este último caso se deberá cumplir con los trámites respectivos para la salida de vehículos del país.

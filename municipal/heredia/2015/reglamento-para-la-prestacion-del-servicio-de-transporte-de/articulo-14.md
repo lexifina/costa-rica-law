@@ -1,0 +1,1 @@
+Artículo 14.—Sobre cualquier otro vehículo no consignado en el artículo anterior se dispondrá administrativamente el sitio de su aparcamiento luego de la jornada de trabajo, lo que siempre deberá corresponder a instalaciones de la Municipalidad.

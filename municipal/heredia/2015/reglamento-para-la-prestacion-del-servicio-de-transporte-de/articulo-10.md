@@ -1,0 +1,2 @@
+Artículo 10.—Corresponde al Encargado (a) de vehículos y a las dependencias que tienen vehículos a su servicio, el mantenimiento, control y uso de las unidades y maquinaria, así como velar por el acatamiento de este Reglamento.
+Para obtener el combustible necesario deben presentar la boleta de requisición correspondiente ante la Proveeduría Municipal, con el número de placa, nombre del chofer y la firma de su superior. Ese departamento entregará una orden de compra para retirar el combustible en la estación de servicio designada.

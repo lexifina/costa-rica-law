@@ -1,0 +1,1 @@
+Artículo 20.—Los vehículos se usarán con su capacidad o tonelaje establecido prohibiéndose el recargo de los mismos. El incumplimiento de esta disposición será responsabilidad directa del conductor del vehículo.

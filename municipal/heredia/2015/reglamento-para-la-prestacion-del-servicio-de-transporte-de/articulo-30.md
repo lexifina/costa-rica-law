@@ -1,0 +1,1 @@
+Artículo 30.—En lo no especialmente previsto respecto a los incumplimientos de las disposiciones comprendidas en este reglamento, se aplicará el Reglamento Autónomo de Organización y Servicio y la Ley de Tránsito.
