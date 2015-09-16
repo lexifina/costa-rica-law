@@ -1,0 +1,1 @@
+Artículo 7°—Cooperación. Las Instituciones del Sector Público y el Sector Privado, dentro del marco legal respectivo y de acuerdo con sus competencias, podrán gestionar mecanismos de apoyo y cooperación con el programa Mi Primer Empleo. Para ello, se seguirán las estipulaciones legales y constitucionales que regulen la materia según el ordenamiento jurídico costarricense.

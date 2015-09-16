@@ -1,0 +1,1 @@
+Artículo 4°—De la inscripción. El Ministerio de Trabajo y Seguridad Social habilitará las opciones físicas y digitales necesarias para la inscripción de las empresas privadas y las personas potenciales beneficiarias en el programa. Esas alternativas deben garantizar que las empresas fuera del Gran Área Metropolitana también tengan acceso al programa.
