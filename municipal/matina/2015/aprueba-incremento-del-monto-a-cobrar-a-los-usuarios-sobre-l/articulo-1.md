@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE MATINA
+El Concejo Municipal de Matina, en atención de lo solicitado por el Despacho de la Alcaldía Municipal y Jefatura del Área Tributaria de la Municipalidad de Matina, mediante oficios MM-ELV-2015-000663 y JAC-CCR-2015-0020 respectivamente; conforme a las competencias establecidas en el inciso b) del artículo 13 del Código Municipal, acuerda aprobar el incremento del monto a cobrar a los usuarios sobre las certificaciones municipales, a un valor de ¢ 2 500.00, monto que se cobrara a partir de la debida publicación de este acuerdo en el Diario Oficial La Gaceta. Moción aprobada por unanimidad. Acuerdo firme, definitivamente aprobado.
+Matina, 25 de agosto del 2015.
