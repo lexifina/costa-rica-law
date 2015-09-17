@@ -14,3 +14,4 @@ Reforma decreto ejecutivo N° 37699 "Eliminación del esquema de fijación de pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-02 | la propia norma |
+| 2 | 2015-09-17 | SINALEVI (sin norma nombrada) |

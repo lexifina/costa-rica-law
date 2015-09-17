@@ -1,4 +1,6 @@
+(Anulada)
 N° 38093-MEIC
+(Anulado por sentencia del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta N° 145-2015-VI-bis del 17 de setiembre de 2015)
 LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE ECONOMÍA, INDUSTRIA
 Y COMERCIO
