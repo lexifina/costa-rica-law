@@ -34,4 +34,4 @@ XIII— Que el Tribunal Contencioso Administrativo y Civil de Hacienda, Sección
 DECRETAN:
 ELIMINACIÓN DEL ESQUEMA DE FIJACIÓN DE PRECIOS Y
 TRANSICIÓN HACIA UN MECANISMO ALTERNATIVO
-Artículo 1º— (Derogado por el artículo 11 del decreto ejecutivo N° 38884 del 24 de febrero de 2015, "Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas las calidades de arroz pilado que se comercilazan en el territorio nacional")
+Artículo 1º— (Derogado por el artículo 11 del decreto ejecutivo N° 38884 del 24 de febrero de 2015, "Precio de referencia del arroz en granza; y el precio máximo y mínimo de todas las calidades de arroz pilado que se comercilazan en el territorio nacional". Posteriormente por sentencia del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta N° 145-2015-VI-bis del 17 de setiembre de 2015, se anuló este numeral)

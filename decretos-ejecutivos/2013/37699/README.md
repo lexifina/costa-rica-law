@@ -17,3 +17,4 @@ Eliminación del esquema de fijación de precios y transición hacia un mecanism
 | 2 | 2013-12-20 | Decreto Ejecutivo 38093 (2013-12-20) |
 | 3 | 2014-01-16 | Decreto Ejecutivo 38143 (2014-01-16) |
 | 4 | 2015-02-24 | Decreto Ejecutivo 38884 (2015-02-24) |
+| 5 | 2015-09-17 | SINALEVI (sin norma nombrada) |
