@@ -1,3 +1,0 @@
-Artículo 6º—Dictámenes o Informes de la Comisión de Aranceles. Todos los pronunciamientos, informes o dictámenes que rinda la Comisión de Aranceles, no serán vinculantes para la Junta Directiva, pero a pesar de lo anterior, la Junta Directiva para separarse del criterio de esta Comisión, deberá fundamentar o motivar razonablemente su criterio.
-Contra las decisiones de la Junta Directiva en esta materia, solo cabrá el recurso de reconsideración, que deberá interponerse por escrito debidamente fundamentado, dentro de los tres días hábiles posteriores a la notificación o comunicación hecha al interesado.
-Firme la resolución o decisión de la Junta Directiva, esta será de acatamiento obligatorio.

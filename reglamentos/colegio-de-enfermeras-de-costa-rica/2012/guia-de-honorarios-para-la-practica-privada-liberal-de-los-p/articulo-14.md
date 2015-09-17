@@ -1,2 +1,0 @@
-Artículo 14.—Propiedad de los Honorarios: Los honorarios siempre serán propiedad del profesional que presta sus servicios de enfermería y que ha sido contratado directamente por el cliente o usuario.
-Queda prohibido al profesional participar sus honorarios con personas que no sean igualmente profesionales en enfermería. Las relaciones laborales entre el profesional y el personal a su servicio son ajenas a dicha prohibición.

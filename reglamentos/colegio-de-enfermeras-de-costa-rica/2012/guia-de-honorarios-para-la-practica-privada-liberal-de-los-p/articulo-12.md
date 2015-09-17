@@ -1,1 +1,0 @@
-Artículo 12.—Intereses. La falta de pago de los honorarios profesionales en la fecha pactada, generará intereses moratorios a favor de dicho profesional, al tipo del dos por ciento (2%) mensual. La Junta Directiva, podrá modificar esta tasa de intereses para actualizar esos réditos conforme a las normas del Sistema Bancario Nacional.
