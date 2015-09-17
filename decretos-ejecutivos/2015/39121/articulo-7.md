@@ -1,0 +1,1 @@
+Artículo 7º—Se insta a los Poderes Legislativo y Judicial, con sus respectivos órganos, a colaborar, cooperar y coadyuvar en la realización de los proyectos del programa “Territorio Norte-Norte: Construyendo Desarrollo Integral”, conforme sus facultades y competencias.

@@ -1,0 +1,1 @@
+Artículo 10.—Se insta a los alcaldes y las alcaldesas de las municipalidades de Guatuso, Upala y Los Chiles a conformar una Comisión Intermunicipal que promueva la gestión política de los proyectos y compromisos institucionales incluidos en el Programa “Territorio Norte-Norte: Construyendo Desarrollo Integral”.

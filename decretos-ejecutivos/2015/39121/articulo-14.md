@@ -1,0 +1,1 @@
+Artículo 14.—Los proyectos de incidencia local incluidos en este programa deberán ser conocidos por los respectivos CCCI, para su incorporación en los programas anuales de coordinación y contribuir en su ejecución.

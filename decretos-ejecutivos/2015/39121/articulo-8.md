@@ -1,0 +1,1 @@
+Artículo 8º—Los órganos, entes y empresas públicas responsables de los proyectos integrados en el programa “Territorio Norte-Norte: Construyendo Desarrollo Integral” deberán incluir en sus presupuestos los recursos necesarios para garantizar la ejecución efectiva de esos proyectos.

@@ -1,0 +1,1 @@
+Artículo 13.—Se insta a las autoridades de los gobiernos locales de los cantones de Guatuso, Upala y Los Chiles a incorporar en sus Planes Estratégicos Municipales y en sus Planes Anuales Operativos la asignación presupuestaria para financiar el apoyo, el acompañamiento y el seguimiento de los planes, programas y proyectos contenidos en el presente decreto.

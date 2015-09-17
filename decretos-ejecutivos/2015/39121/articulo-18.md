@@ -1,0 +1,1 @@
+Artículo 18.—Se insta a la empresa privada, al sector académico y a las organizaciones sociales y productivas a formular un plan de trabajo conjunto en el marco de las alianzas público-privadas para la generación de empleo, el desarrollo de encadenamientos locales y la elaboración de una estrategia para el desarrollo responsable en el Territorio Guatuso-Upala-Los Chiles.

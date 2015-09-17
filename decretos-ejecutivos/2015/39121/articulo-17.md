@@ -1,0 +1,14 @@
+Artículo 17.—Complementario al listado de proyectos incluido en el artículo 12 del presente decreto y a los proyectos prioritarios que propongan los gobiernos locales de los cantones de Los Chiles, Guatuso y Upala, se establecen compromisos institucionales de importancia para el programa “Territorio Norte-Norte: Construyendo Desarrollo Integral” que se detallan a continuación:
+MOPT: Mejorar y asfaltar la ruta: Birmania de Upala-Santa Cecilia de La Cruz con una longitud de aproximadamente 21 km y construir y rehabilitar los puentes de la sección: La Cruz-Santa Cecilia.
+IFAM: Asesorar a las gobiernos locales de los cantones de Guatuso, Upala y Los Chiles para fortalecer sus capacidades administrativas en procura de elevar los niveles de eficiencia, eficacia, transparencia y rendición de cuentas municipales así como contribuir al cumplimiento de la integración del enfoque de género en la labor de los gobiernos locales, para lo cual, los Consejos Municipales de cada Municipalidad remitirán al IFAM solicitudes formales con requerimientos claramente definidos.
+AYA: Construir el sistema de abastecimiento de agua potable para la Comunidad de San Rafael de Guatuso y la Comunidad de Caño Castillo y Las Delicias de Los Chiles.
+Mejorar el Sistema de Abastecimiento de Agua Potable para la Comunidad de Dos Aguas de Los Chiles de Alajuela.
+Mejorar los Sistemas de Agua Potable, con problemas en la calidad, por la presencia de arsénico en la provincia de Alajuela.
+Abastecimiento de agua en la comunidad Maleku; en San José de Upala y en Santa Fe de Guatuso.
+Abastecimiento de agua potable en Santa Fe de Los Chiles.
+Mejorar el Sistema de Abastecimiento de Agua Potable (Obras Menores): Obra Construcción Caseta de Bombeo Los Chiles.
+Optimización de la operación y distribución de agua potable: Obra de sustitución de redes de distribución de agua potable en Los Chiles de Alajuela (Frontera Norte).
+MAG y CNP: Fortalecer las acciones dirigidas al Territorio Guatuso-Upala-Los Chiles en aspectos de organización y asistencia técnica para el desarrollo del pequeño y mediano productor agropecuario, y para generar valor agregado en actividades productivas estratégicas.
+COMEX: Analizar proyección, brechas y limitaciones del Territorio Guatuso-Upala-Los Chiles para la definición de proyectos de exportación.
+MCJ: Establecer y desarrollar una estrategia interinstitucional para el desarrollo del diseño orientado a la generación y comercialización de productos culturales con identidad territorial.
+DGM: Asesorar a los gobiernos locales de los cantones de Guatuso, Upala y Los Chiles para la adecuada formulación de solicitudes de permisos especiales de explotación de materiales de canteras y cauces de dominio público así como para la solicitud de una concesión permanente de explotación de materiales para la atención de obras de infraestructura vial, y priorizar en la atención de dichas solicitudes.
