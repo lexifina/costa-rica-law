@@ -14,3 +14,4 @@ Ratifica la delegación en la Dirección de Admisibilidad y Atención Inmediata,
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-25 | la propia norma |
+| 2 | 2015-09-17 | Acuerdo 1942 (2015-09-17) |
