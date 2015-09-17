@@ -1,2 +1,0 @@
-Artículo 8º—Del nombramiento. Corresponde al Gerente de la División de Pensiones el nombramiento de la Comisión Calificadora del Estado de Invalidez, según los requisitos indicados en el artículo precedente. Asimismo, deberá indicar expresamente quién fungirá como coordinador de la Comisión. El nombramiento de los miembros de esta Comisión será por un período de cuatro años y pueden ser reelectos.
-(Así reformado mediante sesiones N° 8009 del 17 de noviembre de 2005 y N° 8019 del 15 de diciembre del 2005)
