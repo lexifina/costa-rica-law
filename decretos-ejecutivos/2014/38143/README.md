@@ -14,3 +14,4 @@ Reforma Eliminación del esquema de fijación de precios y transición hacia un 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-17 | la propia norma |
+| 2 | 2015-09-17 | SINALEVI (sin norma nombrada) |

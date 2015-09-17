@@ -1,4 +1,6 @@
+(Anulada)
 Nº 38143-MEIC
+(Anulado por sentencia del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta N° 145-2015-VI-bis del 17 de setiembre de 2015)
 LA PRESIDENTA DE LA REPÚBLICA
 Y LA MINISTRA DE ECONOMÍA, INDUSTRIA Y COMERCIO
 En el ejercicio de las facultades que les confiere los artículos 140, inciso 3) y 18) y el artículo 146 de la Constitución Política; el artículo 28, inciso 2), acápite b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; el artículo 5 de la Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley Nº 7472 del 20 de diciembre de 1994.
