@@ -1,0 +1,1 @@
+Artículo 3º—A partir de la vigencia de la presente resolución solo se autorizará el cambio a los siguientes periodos fiscales; periodo fiscal ordinario que comprende del 1 de octubre de un año al 30 de setiembre del año siguiente y el periodo fiscal natural o especial que comprende del 1 de enero al 31 de diciembre de cada año.
