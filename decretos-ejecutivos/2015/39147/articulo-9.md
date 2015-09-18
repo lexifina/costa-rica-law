@@ -1,0 +1,1 @@
+Artículo 9º—En caso de incumplimiento de las disposiciones del presente Reglamento, las autoridades de salud podrán aplicar algunas de las medidas sanitarias especiales previstas en los artículos 355 y siguientes de la Ley General de Salud, y las autoridades de trabajo podrán aplicar lo establecido en los artículos 608 y 614 ambos del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 8º—De la capacitación. En lo referente a los programas de capacitación en cómo hidratarse, la Dirección de Promoción de la Salud del Ministerio de Salud elaborará su metodología y contenidos que serán brindados por las autoridades de las Áreas Rectoras de Salud.

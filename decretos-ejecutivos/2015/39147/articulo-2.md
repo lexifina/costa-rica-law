@@ -1,0 +1,1 @@
+Artículo 2º—Competencia. Corresponde al Ministerio de Salud, por medio de sus Direcciones de Área Rectora de Salud y al Ministerio de Trabajo y Seguridad Social, por medio de la Dirección Nacional de Inspección del Trabajo, velar por el cumplimiento del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 7º—Del período de aclimatación. Las personas que inicien labores y realicen trabajo pesado, deben pasar por un proceso de aclimatación definido por las personas de planta encargadas de la salud ocupacional o una persona competente, según anexo 1 punto 7 del presente reglamento.

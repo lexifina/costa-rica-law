@@ -1,0 +1,13 @@
+Artículo3º—De las definiciones. Para efecto del presente reglamento se establecen las siguientes definiciones:
+a) Área de Sombra: Puede ser permanente o temporal, destinada para que las personas trabajadoras puedan descansar, ingerir sus alimentos y consumir agua potable, estas instalaciones pueden ser fijas o móviles, también se considerará la sombra provista por el follaje de árboles o cultivos de alto porte.
+b) Bebidas hidratantes: agua o soluciones que se administran al organismo, para prevenir o corregir la deshidratación.
+c) Deshidratación: Es el desequilibrio entre la pérdida excesiva y la reposición de agua y sales minerales de un cuerpo, causada por exceso de actividad física en un lugar con alta temperatura y humedad elevada sin una adecuada hidratación.
+d) Factor de riesgo: Es toda circunstancia o situación que aumenta las probabilidades para una persona o grupo de personas de sufrir un daño a su salud.
+e) Pruebas de función renal: son pruebas vitales para la determinación de la capacidad de operación de los riñones.
+f) Guía de procedimientos: Es la guía que se anexa en el presente reglamento, con el propósito de establecer la metodología para determinar el índice de calor, el nivel de riesgo, las medidas de prevención y protección que se pueden implementar para proteger la salud y seguridad de las personas trabajadoras.
+g) Índice de calor: Es la combinación de la temperatura en grados centígrados y la humedad relativa en un solo valor. Es una herramienta sencilla y útil para evaluar y cualificar la sensación térmica.
+h) Manifestaciones clínicas por sobrecarga térmica: Insolación, agotamiento por calor, calambres por calor, sarpullido, golpe por calor.
+i) Medidas de prevención y protección: Son aquellas que se deben tomar en cuenta en cada nivel de riesgo, para asegurar la salud y seguridad de las personas trabajadoras.
+j) Nivel de riesgo: Es el grado de probabilidad de que las personas trabajadoras puedan sufrir manifestaciones clínicas por exposición a sobrecarga térmica. Estos valores se dividen, según el Índice de calor, en cuatro niveles de riesgo: Nivel I, Nivel II, Nivel III y Nivel IV.
+k) Sobrecarga térmica: Es la respuesta fisiológica del cuerpo humano al estrés térmico por calor, que implica la cantidad del calor que ha de intercambiar el organismo con el medio ambiente, para que éste permanezca en equilibrio térmico.
+l) Estrés Térmico por calor: Corresponde a la carga neta de calor a la que los trabajadores están expuestos y que resulta de la contribución combinada de las condiciones ambientales del lugar donde trabajan, la actividad física que realizan y las características de la ropa que llevan.
