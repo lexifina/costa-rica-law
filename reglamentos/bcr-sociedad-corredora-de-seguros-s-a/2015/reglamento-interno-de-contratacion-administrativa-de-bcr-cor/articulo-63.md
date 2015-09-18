@@ -1,0 +1,1 @@
+Artículo 63.—Servidores autorizados. El gerente general de BCR Corredora de Seguros, o quien lo sustituya formalmente, quedará facultado para autorizar la realización de tales gastos de acuerdo con las atribuciones establecidas en el artículo 8 de este reglamento.

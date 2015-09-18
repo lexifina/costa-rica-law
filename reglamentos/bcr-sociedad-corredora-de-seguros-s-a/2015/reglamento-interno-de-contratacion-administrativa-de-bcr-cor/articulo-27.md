@@ -1,0 +1,1 @@
+Artículo 27.—Presunciones y responsabilidad del órgano solicitante. Queda bajo la responsabilidad de la Administración la determinación de otros aspectos no comprendidos en el dictamen de legalidad, tales como la necesidad, oportunidad y conveniencia de la contratación, lo mismo que la razonabilidad del precio adjudicado y el mecanismo para su reajuste y revisión.

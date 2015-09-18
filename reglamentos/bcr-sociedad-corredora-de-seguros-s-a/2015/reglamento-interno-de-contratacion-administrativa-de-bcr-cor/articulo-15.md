@@ -1,0 +1,6 @@
+Capítulo V
+Procedimientos de contratación
+Artículo 15.—Contratación de bienes, obras y servicios. Los bienes, obras y servicios que interese adquirir a BCR Corredora de Seguros serán contratados mediante la promoción de los procedimientos de licitación pública, licitación abreviada y contratación directa, según corresponda de acuerdo con la legislación especial en la materia.
+Asimismo, para la realización de sus distintas contrataciones BCR Corredora de Seguros podrá hacer uso de los demás procedimientos y modalidades de estos que contempla dicha legislación, como el remate, la subasta a la baja y la licitación con precalificación. En todos los casos los procedimientos que se tramiten deberán ajustarse a dicha legislación y contar para su inicio con la autorización y justificación de alguno de los órganos y servidores facultados por este Reglamento.
+En los procedimientos de contratación directa y licitación abreviada las invitaciones a participar podrán ser formuladas por medio de carta directa, fax o correo electrónico, dejando la evidencia correspondiente tanto del envío como de su recepción.
+El servidor que autorice el inicio del procedimiento respectivo será el responsable de la veracidad de la información que se incorpore al expediente.
