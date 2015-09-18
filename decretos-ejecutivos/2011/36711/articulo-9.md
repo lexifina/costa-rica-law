@@ -1,1 +1,0 @@
-Artículo 9º—Del recibido del teléfono: Previo a la asignación o entrega del aparato telefónico, el funcionario deberá leer el presente Reglamento, manifestar por escrito su consentimiento con lo dispuesto en cuanto al uso, controles y responsabilidad sobre el bien asignado y suscribir el respectivo convenio.

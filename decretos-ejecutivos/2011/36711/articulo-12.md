@@ -1,1 +1,0 @@
-Artículo 12.—De la asignación del servicio internacional: Los teléfonos con líneas autorizadas para llamadas internacionales, estarán en los Despachos de los Directores. Su asignación estará a cargo del Viceministro de Gobernación y Policía, ante el cual deberá justificarse la necesidad del servicio, debiendo dejarse constancia por escrito, en los archivos de su Despacho.
