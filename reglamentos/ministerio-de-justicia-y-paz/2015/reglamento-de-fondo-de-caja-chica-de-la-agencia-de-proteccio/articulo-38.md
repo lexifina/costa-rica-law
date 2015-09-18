@@ -1,0 +1,4 @@
+Artículo 38.—Sanciones por faltantes: Si se detectan faltantes de dinero injustificados al momento de realizar los arqueos rutinarios por parte de la Contabilidad o los arqueos de sorpresa por parte de la Auditoría Interna o Externa, se procederá de la siguiente manera:
+a) El funcionario responsable del Fondo Caja Chica deberá aportar inmediatamente de sus propios recursos el monto faltante y se enviará una amonestación por escrito al funcionario con copia al expediente en Recursos Humanos y copia a su superior.
+b) De presentarse un faltante por segunda vez, además de realizar el reintegro inmediato del faltante, se procederá a suspender al funcionario por 3 días sin goce de salario, previo a un procedimiento administrativo disciplinario.
+c) De presentarse faltantes por tercera vez, la Agencia podrá prescindir del funcionario sin responsabilidad patronal, de acuerdo a lo establecido en el Código de Trabajo previo a un procedimiento administrativo disciplinario.

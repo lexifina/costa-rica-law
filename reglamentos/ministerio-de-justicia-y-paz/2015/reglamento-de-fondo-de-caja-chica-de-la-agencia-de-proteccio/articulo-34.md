@@ -1,0 +1,1 @@
+Artículo 34.—Póliza de fidelidad: El funcionario responsable del Fondo Caja Chica deberá estar cubierto por una póliza de fidelidad, antes de asignarle el fondo. Los términos de dicha garantía deberán acatar en todos sus extremos lo establecido por la Contraloría General de la República y el Ministerio de Justicia y Paz.

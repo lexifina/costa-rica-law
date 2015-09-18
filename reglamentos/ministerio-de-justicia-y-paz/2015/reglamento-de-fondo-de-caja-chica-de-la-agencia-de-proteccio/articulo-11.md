@@ -1,0 +1,1 @@
+Artículo 11.—Compras de bienes y servicios: La unidad solicitante evalúa la necesidad y urgencia de efectuar compras de bienes y servicios, mediante el uso de Fondo de efectivo, realizando el análisis a dicha solicitud, para lo cual se debe llenar y presentar el formulario denominado: “Solicitud de pedido- Fondo de Efectivo” y presentarlo ante el funcionario encargado del Fondo.

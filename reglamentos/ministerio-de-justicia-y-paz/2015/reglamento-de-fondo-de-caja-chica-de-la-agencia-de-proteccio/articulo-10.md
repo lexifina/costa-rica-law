@@ -1,0 +1,1 @@
+Artículo 10.—Caja con llave para resguardo del Fondo: Se debe habilitar un lugar seguro en donde permanezca el dinero así como los comprobantes de gasto, guardarlos en una caja con llave para el resguardo de los mismos.

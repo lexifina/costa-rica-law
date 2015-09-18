@@ -1,0 +1,1 @@
+Artículo 25.—Llevar un archivo de los documentos, movimientos o transacciones que se produzcan en la operación del Fondo Caja Chica, estos documentos pueden ser solicitados en cualquier momento cuando se efectúen arqueos sorpresivos.

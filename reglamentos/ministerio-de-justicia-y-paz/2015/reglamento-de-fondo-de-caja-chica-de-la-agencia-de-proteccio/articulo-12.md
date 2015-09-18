@@ -1,0 +1,1 @@
+Artículo 12.—Adquisición del bien o servicio: no podrá exceder de un 15% del monto total del Fondo de efectivo, si la compra supere el 15% del Fondo de Efectivo debe contar con la aprobación del Director.

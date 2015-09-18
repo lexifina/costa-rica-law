@@ -1,0 +1,1 @@
+Artículo 20.—Arqueo Fondo Caja Chica: Los arqueos mensuales de los fondos de efectivo deben ser emitidos el último día hábil de cada mes y remitidas a más tardar el tercer día hábil del mes siguiente.

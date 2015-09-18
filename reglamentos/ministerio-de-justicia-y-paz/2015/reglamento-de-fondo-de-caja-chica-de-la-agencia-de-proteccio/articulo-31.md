@@ -1,0 +1,3 @@
+Artículo 31.—Firmas Autorizadas: Los(as) siguientes funcionarios(as) están acreditados para autorizar desembolsos aprobar liquidaciones de Caja Chica, y firmar Formularios de Solicitud de Reembolsos de Caja Chica, que sean imputables a sus respectivas áreas de responsabilidad:
+ÁREA UBICACIÓN DE CAJA CHICA | RESPONSABLE ADMINISTRACIÓN DE CAJA CHICA | AUTORIZACIÓN DE DESEMBOLSO Y DE LIQUIDACIÓN | APROBACIÓN DE REEMBOLSOS
+Agencia de Protección de Datos de los Habitantes | Asistente Administrativo | Asistente Administrativo | Departamento Administrativo, Unidad Financiera y el Director Nacional PRODHAB

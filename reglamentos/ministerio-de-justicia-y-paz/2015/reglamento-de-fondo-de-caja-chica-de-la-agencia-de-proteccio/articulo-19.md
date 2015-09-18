@@ -1,0 +1,1 @@
+Artículo 19.—Reintegro Fondo Caja Chica: Remitir el respectivo reintegro al Departamento Administrativo Financiero a más tardar 5 días hábiles posteriores de emitido el documento de reintegro; de no hacerlo en el plazo establecido deberá el encargado del Fondo Caja Chica justificar el retraso del envío del respectivo reintegro.

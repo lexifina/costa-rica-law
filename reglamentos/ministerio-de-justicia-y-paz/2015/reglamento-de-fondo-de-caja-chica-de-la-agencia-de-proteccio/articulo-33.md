@@ -1,0 +1,1 @@
+Artículo 33.—Responsable: Serán responsables de la custodia del Fondo Caja Chica, los(as) funcionarios(as) designados en el artículo 28 en la columna que textualmente indica “RESPONSABLE ADMINISTRACIÓN DE CAJA CHICA”.

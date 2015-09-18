@@ -1,0 +1,1 @@
+Artículo 35.—Ausencia del Responsable: En ausencia temporal o definitiva del funcionario responsable de la administración del Fondo Caja Chica, se procederá a asignar a un sustituto y el traspaso del Fondo se realizará mediante un arqueo el cual deberá ser efectuado por una persona independiente y ajena a su custodia y registro contable.

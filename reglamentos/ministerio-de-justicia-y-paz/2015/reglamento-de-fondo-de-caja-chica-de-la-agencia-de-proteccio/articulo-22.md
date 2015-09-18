@@ -1,0 +1,1 @@
+Artículo 22.—Presentar el arqueo mensual del Fondo de Efectivo ante el Departamento Administrativo Financiero los primeros tres días hábiles de cada mes, aclarando que dicho arqueo debe de ser emitido el último día hábil del mes.

@@ -1,0 +1,2 @@
+Artículo 16.—Sobrantes o faltantes por Redondeo en la liquidación facturas comerciales: La Dirección, analizará, establecerá, aprobará y comunicará mediante directriz la cifra máxima permitida para ajustar los sobrantes y/o faltantes por concepto de redondeo.
+En situaciones de recursos sobrantes que son determinados a consecuencia de un arqueo al Fondo; estos montos deberán ser depositados vía entero de Gobierno a la cuenta del Fondo General de Gobierno.

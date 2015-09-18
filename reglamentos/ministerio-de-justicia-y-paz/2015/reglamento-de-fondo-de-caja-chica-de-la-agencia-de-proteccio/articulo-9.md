@@ -1,0 +1,1 @@
+Artículo 9º—Emisión del cheque para el Fondo: El Director de la Agencia realiza la orden de emisión de cheque a nombre del responsable del Fondo por el monto designado para el Fondo Caja Chica, el cual tendrá que hacer efectivo el cheque y llevarlo al Fondo de Efectivo para su respectivo resguardo y de ahí se efectúen los desembolsos que sean aprobados.

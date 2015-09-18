@@ -1,0 +1,1 @@
+Artículo 8º—Monto del Fondo Caja Chica: El Departamento Administrativo Financiero realiza una transferencia en colones de la cuenta de Caja Única de la PRODHAB N° 73999999999930006 hacia la cuenta corriente del Banco de Costa Rica también de la PRODHAB N° 15201001030443001.
