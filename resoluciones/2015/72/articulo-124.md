@@ -1,5 +1,6 @@
-Artículo 124. Instalación y costos de los transformadores
-La instalación y costo de los transformadores ante la solicitud de servicio se regirá por las siguientes reglas:
-a. En el caso de que un interesado solicite un servicio a baja tensión, con una demanda estimada menor a 50 kVA monofásica o 150 kVA trifásica, bastará con que exista capacidad eléctrica en la red de la empresa distribuidora para que se le brinde el servicio. Que el interesado debe suplir el montaje requerido para albergar los transformadores, los cuales correrán por cuenta de la empresa eléctrica. Que el interesado además debe brindar acceso a la empresa eléctrica al lugar en donde se instalen los transformadores.
+Artículo 124. Instalación y costos de los transformadores. La instalación y costo de los transformadores ante la solicitud de servicio se regirá por las siguientes reglas:
+a. En el caso de que un interesado solicite un servicio a baja tensión, con una demanda estimada menor a 50 kVA monofásica o 75 kVA trifásica, bastará con que exista capacidad eléctrica en la red de la empresa distribuidora para que se le brinde el servicio.
+El interesado debe suplir el montaje requerido para albergar los transformadores, los cuales correrán por cuenta de la empresa eléctrica. El interesado además debe brindar acceso a la empresa eléctrica al lugar en donde se instalen los transformadores.
 b. Para el caso de los servicios a media tensión, el interesado deberá suministrar los transformadores, siendo además responsable de su mantenimiento. La empresa eléctrica es responsable únicamente de proveer los conductores de acometida y equipo conexo.
 En ambos casos, de no contarse con capacidad eléctrica, la empresa no está obligada a brindar el servicio, salvo que el interesado corra con los gastos de adecuación de la red de acuerdo con lo indicado en el artículo 123 de esta norma.
+(Así reformado mediante resolución RJD-208-2015 del 21 de setiembre de 2015)
