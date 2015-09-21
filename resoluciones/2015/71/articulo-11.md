@@ -1,13 +1,15 @@
 Artículo 11. Requisitos de instalación
 Las acometidas aéreas deben cumplir con los siguientes requisitos:
-a. Incluir un botagua (conduleta) que impida la entrada de agua en la canalización de los conductores de entrada (Ver Figuras N° 2 A, B, C, D, E).
-b. Las separaciones mínimas indicadas en la Figura N° 2 (A, B, C, D y E).
+a. Incluir un botagua (conduleta) que impida la entrada de agua en la canalización de los conductores de entrada (Ver Figuras N° 2 A, B, C, D, E). b. Las separaciones mínimas indicadas en la Figura N° 2 (A, B, C, D y E).
 c. Los conductores de entrada de la acometida deben tener un sobrante con longitud mínima de 0,3 m respecto a la conduleta (Ver Figura N° 8) y N° 9).
 d. Para el caso en que la canalización entre la conduleta y el medidor sea expuesta, se debe usar tubo eléctrico metálico (EMT), tubo metálico intermedio (IMC), tubo metálico rígido (RMC) u otro medio de protección que sea permitido en el artículo correspondiente del Código Eléctrico de Costa Rica.
 e. En ambientes altamente corrosivos, la canalización expuesta debe ser de material resistente a esos tipos de ambientes. La empresa distribuidora podrá indicar el tipo de material a usar, tomando en consideración las características propias de la zona.
-f. Siempre que se garantice el debido soporte a la acometida, se permite canalizar los conductores de la acometida mediante la utilización de tubería metálica flexible (Biex). Cuando esta tubería metálica flexible, se ubique en sitios fuera de la edificación, deberá contar con protección contra intemperie y cumplir con lo indicado en el artículo 32 de esta norma técnica y en lo establecido por el Código Eléctrico de Costa Rica.
+f. Siempre que se garantice el debido soporte a la acometida, se permite canalizar los conductores de la acometida mediante la utilización de tubería metálica flexible (Biex).
+Cuando esta tubería metálica flexible, se ubique en sitios fuera de la edificación, deberá contar con protección contra intemperie y cumplir con lo indicado en el artículo 27 de esta norma técnica y en lo establecido por el Código Eléctrico de Costa Rica.
 g. Cuando se requiera la fijación de los conductores de la acometida al edificio u otra estructura, deberá hacerse por debajo o por encima de la conduleta siguiendo los requisitos correspondientes a las distancias mostradas en las Figuras N° 2B, 2C y 2E.
-h. Cuando se requiera instalar el medidor y medio de desconexión en una tapia o pared lateral, estos dos equipos deben contar con protección contra intemperie (Ver Figura N° 8). En este caso el tubo embebido en el concreto de la tapia o pared debe ser de PVC y el expuesto debe ser metálico rígido (EMT, IMC o RMC).
+h. Cuando se requiera instalar el medidor y medio de desconexión en una tapia o pared lateral, estos dos equipos deben contar con protección contra intemperie (Ver Figura N° 8).
+En este caso el tubo embebido en el concreto de la tapia o pared debe ser de PVC y el expuesto debe ser metálico rígido (EMT, IMC o RMC).
 i. En aquellos casos en que se utilice una caja para la ubicación del medidor y para el interruptor o medio de desconexión (ver Figura N° 9), la canalización debe efectuarse directamente hasta el medidor, evitando dejar los conductores de entrada energizados accesibles a contactos accidentales.
 j. Los conductores de entrada de fase y neutro se instalarán en la misma canalización y sin empalmes en el interior del tubo usado como protección mecánica de los conductores.
 k. La conduleta, los accesorios y los conductores de entrada hasta el medidor (parte superior del medidor) y los conductores y accesorios, que van desde el medidor (parte inferior del mismo) hasta el medio desconexión, deben ser suplidos e instalados bajo la responsabilidad del abonado.
+(Así reformado mediante resolución N° RJD-207-2015 del 21 de setiembre del 2015)
