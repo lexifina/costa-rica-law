@@ -1,4 +1,0 @@
-Artículo 17.—Procesos de ejecución de garantía. Para la ejecución de garantías de cumplimiento se observará el proceso sumarísimo contemplado en los artículos 39 y 41 del Reglamento a la Ley de Contratación Administrativa.
-El Órgano Director lo conformará un funcionario de la Unidad de Proveeduría que, con base en los elementos probatorios que le sean enviados por la dependencia ejecutora del contrato, procederá a instruir el proceso respectivo.
-Cuando se determine que la sola ejecución de la garantía no cubre el monto total de los daños y perjuicios causados por un contratista, o bien el oferente en los casos de garantías de participación, la Dependencia usuaria del bien o servicio procederá a certificar la deuda y luego la remitirá a la Asesoría Jurídica para que ésta inicie las gestiones cobratorias administrativas o judiciales que corresponda.
-(Así adicionado mediante sesión N° 0036 del 20 de mayo del 2011)

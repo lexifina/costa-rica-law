@@ -1,2 +1,0 @@
-Artículo 31.—Control Interno en la ejecución de construcciones. La ejecución de toda construcción o parte de ella, deberá realizarse de acuerdo con lo que establece el Complemento Nº 1 del Manual sobre Normas Técnicas de Control Interno para la Contraloría General de la República y las Entidades y Órganos sujetos a su fiscalización, relativas al control de obras públicas.
-(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 26 al 31)

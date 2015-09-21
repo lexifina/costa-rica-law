@@ -1,2 +1,0 @@
-Artículo 14.—Sanciones a contratistas. Sin perjuicio de las eventuales responsabilidades de naturaleza civil y penal en las que puedan incurrir los contratistas producto de la ejecución del contrato, la sanción administrativa de éstos se ajustará a lo dispuesto en los capítulos X y XIV de la LCA y el RLCA respectivamente, así como lo señalado en el pliego de condiciones de la contratación correspondiente
-(Así adicionado mediante sesión N° 0036 del 20 de mayo del 2011)

@@ -1,2 +1,0 @@
-Artículo 25.—Responsabilidad de las unidades usuarias en la recepción. Es responsabilidad de las unidades usuarias realizar la comprobación de que el equipo recibido se ajusta a las especificaciones técnicas del cartel respectivo, así como realizar las pruebas de calidad sobre el funcionamiento del equipo.
-(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 20 al 25)

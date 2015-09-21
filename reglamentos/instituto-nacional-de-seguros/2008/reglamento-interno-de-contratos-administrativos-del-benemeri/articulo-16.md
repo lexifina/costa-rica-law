@@ -1,2 +1,0 @@
-Artículo 16.—Dictado del acto final. Luego de finalizada la investigación, el Órgano Director rendirá un informe pormenorizado a la Jefatura de la Dirección Administrativa, para que este despacho sea el encargado de dictar la resolución final. Este informe contendrá al menos, un resumen inicial, un aparte de antecedentes, uno de hechos a investigar, otro de hechos probados y no probados, un análisis fáctico, otro aparte de conclusiones y una recomendación.
-(Así adicionado mediante sesión N° 0036 del 20 de mayo del 2011)

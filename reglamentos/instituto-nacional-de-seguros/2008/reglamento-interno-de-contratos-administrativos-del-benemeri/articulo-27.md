@@ -1,3 +1,0 @@
-Artículo 27.—Acciones en caso de incongruencias en la recepción. Cuando hubiere incongruencia entre las especificaciones del respectivo Cartel y las del equipo o activo recibido, así como deficiencias de funcionamiento de éste, la unidad usuaria deberá especificarlos en forma clara y detallada en el informe a la Unidad de Proveeduría a efecto de iniciar las acciones que procedan.
-Esta Unidad tan pronto reciba el informe determinará la mejor estrategia de actuación de modo que los intereses del Cuerpo de Bomberos sean pronta y eficazmente defendidos.
-(Así corrida su numeración mediante sesión N°0036 del 20 de mayo del 2011, que lo traspasó del antiguo artículo 22 al 27)

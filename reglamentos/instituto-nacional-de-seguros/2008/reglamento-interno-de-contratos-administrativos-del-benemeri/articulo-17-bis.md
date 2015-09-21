@@ -1,2 +1,0 @@
-Artículo 17 BIS. Procedimiento para el cobro de multas y cláusula penal. De conformidad con lo dispuesto en la Resolución Nº 2013006639, de las 16:01, del 15 de mayo de 2013, de la Sala Constitucional, de previo a la aplicación de toda multa o cláusula penal, se procederá a ejecutar un procedimiento administrativo sumarísimo, en el cual se conceda al contratista la oportunidad de aportar pruebas de descargo y en general, ejercer su derecho de defensa.
-(Así adicionado mediante sesión N° 0075 publicada en La Gaceta N° 90 del 13 de mayo del 2014)
