@@ -1,0 +1,2 @@
+Artículo 65.- Invitación. Sin perjuicio de lo indicado en el artículo anterior y preferentemente durante el primer mes de cada año, la Proveeduría Institucional, mediante publicación que haga en el Diario Oficial La Gaceta y en dos diarios de circulación nacional, así como a través de los sistemas electrónicos disponibles, invitará a formar parte del Registro de Proveedores.
+Cuando así lo estime pertinente la Proveeduría, la incorporación de proveedores se podrá hacer mediante invitaciones particulares.

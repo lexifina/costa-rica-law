@@ -1,0 +1,1 @@
+Artículo 57.- Remisión. En lo no previsto en este procedimiento en relación con la notificación por correo electrónico, se aplicará supletoriamente lo dispuesto en la Ley General de la Administración Pública N° 6227 y sus reformas, así como la Ley de Notificaciones y Comunicaciones Judiciales N° 8687.

@@ -1,0 +1,2 @@
+Artículo 24.- Competencia para compra o venta de un inmueble. Para que un órgano inferior al Consejo Directivo adjudique la compra o venta de un inmueble, es necesario que esa instancia haya fijado previamente en cada caso las condiciones de la negociación.
+Lo anterior de conformidad con el artículo 8 de la Ley Nº 8228 Ley del Benemérito Cuerpo de Bomberos de Costa Rica y los artículos 89, 90, 91 y 92 de la Ley General de la Administración Pública.

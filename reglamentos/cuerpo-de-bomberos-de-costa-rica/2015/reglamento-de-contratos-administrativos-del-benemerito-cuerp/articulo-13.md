@@ -1,0 +1,1 @@
+Artículo 13.- Encargado de instar el inicio del procedimiento. Sin perjuicio de la potestad que ostenta la Proveeduría de iniciar de oficio un procedimiento administrativo sancionatorio, corresponde al Administrador del Contrato instar ante la Proveeduría el inicio del trámite para la gestión de cobros, reclamos administrativos y sanciones a los contratistas.

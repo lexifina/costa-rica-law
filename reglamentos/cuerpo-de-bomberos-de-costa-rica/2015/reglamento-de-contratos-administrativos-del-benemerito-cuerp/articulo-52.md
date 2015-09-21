@@ -1,0 +1,1 @@
+Artículo 52.- Interrupción del sistema. Si el proceso de transmisión en la Proveeduría del Cuerpo de Bomberos se interrumpe por cualquier motivo, cuando éste se restablezca, el funcionario encargado de efectuar la notificación, deberá verificar cuál información no fue transmitida para proceder de inmediato a realizar su transmisión.

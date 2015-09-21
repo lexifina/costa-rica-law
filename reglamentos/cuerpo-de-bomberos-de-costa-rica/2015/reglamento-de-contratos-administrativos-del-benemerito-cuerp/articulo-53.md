@@ -1,0 +1,1 @@
+Artículo 53.- Valoración de empleo de medios alternativos. En caso de que el sistema de transmisión de envío de notificaciones se interrumpa por más de un día, la Proveeduría podrá notificar por otros medios señalados en el expediente.

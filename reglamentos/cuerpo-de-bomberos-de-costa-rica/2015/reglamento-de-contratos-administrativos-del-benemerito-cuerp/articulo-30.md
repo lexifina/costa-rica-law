@@ -1,0 +1,2 @@
+Artículo 30.- Informe de resultados de la recepción por parte de unidades usuarias. La unidad usuaria deberá rendir informe escrito de aprobación o rechazo del equipo o activo recibido, que estará dirigido a la Unidad de Proveeduría, dentro de los cinco días hábiles siguientes al recibo del activo.
+Este plazo podrá ser ampliado exclusivamente mediante solicitud razonada de la unidad usuaria a la Unidad de Proveeduría, cuando medien razones técnicas o de excesiva complejidad.

@@ -1,0 +1,1 @@
+Artículo 54.- Deber de comunicar fallas. El funcionario encargado de efectuar las notificaciones, deberá reportar y dar aviso a la jefatura de la Proveeduría, cuando se presenten fallas en el sistema de envío.

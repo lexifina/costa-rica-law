@@ -1,0 +1,1 @@
+Artículo 69.- Casos especiales. Cuando circunstancias de mercado, como la exclusividad o unicidad generen inopia en campos estratégicos para la Administración, se admitirán ofertas de personas o empresas invitadas que no se hayan inscrito en el registro; en estos casos de requerirá la previa autorización del Director Administrativo del Cuerpo de Bomberos.

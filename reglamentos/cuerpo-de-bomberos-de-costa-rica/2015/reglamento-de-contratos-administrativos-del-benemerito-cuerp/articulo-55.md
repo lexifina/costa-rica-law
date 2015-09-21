@@ -1,0 +1,1 @@
+Artículo 55.- Dirección adicional. La parte interesada puede señalar hasta dos direcciones de correo electrónico, pero debe indicar en forma expresa, cuál de ellas se utilizará como principal. En caso de omisión, corresponde a la Proveeduría elegir cual se utilizará. Para que la notificación automática sea eficaz, es indispensable agotar el medio accesorio.

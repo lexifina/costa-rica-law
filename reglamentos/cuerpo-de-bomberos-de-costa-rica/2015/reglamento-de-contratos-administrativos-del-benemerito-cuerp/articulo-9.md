@@ -1,0 +1,1 @@
+Artículo 9.- Del Proveedor. La Unidad de Proveeduría estará a cargo de un Proveedor y un Subproveedor, en caso de ser requerido, a juicio del Director General de Bomberos. El Proveedor es responsable de la organización y buen funcionamiento de esa unidad orgánica.

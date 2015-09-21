@@ -1,0 +1,1 @@
+Artículo 7.- Determinación del procedimiento de contratación. Los montos que determinen el procedimiento de contratación a seguir serán los que disponga para tal efecto la Ley de Contratación Administrativa y su Reglamento.

@@ -1,0 +1,2 @@
+Artículo 31.- Acciones en caso de incongruencias en la recepción. Cuando hubiere incongruencia entre las especificaciones del respectivo cartel y las del equipo o activo recibido, así como deficiencias de funcionamiento de éste, la unidad usuaria deberá especificarlos en forma clara y detallada en el informe a la Unidad de Proveeduría a efecto de iniciar las acciones que procedan.
+Esta Unidad tan pronto reciba el informe determinará la mejor estrategia de actuación de modo que los intereses del Cuerpo de Bomberos sean pronta y eficazmente defendidos.

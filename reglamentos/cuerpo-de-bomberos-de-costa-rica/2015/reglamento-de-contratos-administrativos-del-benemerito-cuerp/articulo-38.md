@@ -1,0 +1,1 @@
+Artículo 38.- Refrendo de contrataciones. Los contratos que para su eficacia requieran del requisito de Refrendo Contralor, de conformidad con lo que establece el Reglamento sobre el Referendo de las Contrataciones de la Administración Pública R-CO-44-2007, deberán ser revisados por la Asesoría Jurídica de previo a su envío a la Contraloría General de la República.
