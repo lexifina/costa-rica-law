@@ -1,0 +1,1 @@
+Artículo 5º—Certificación de saldos a desincorporar. A solicitud de la Dirección General de Presupuesto Nacional, la Contabilidad Nacional procederá a emitir la certificación de saldos de fuentes de recurso externo a desincorporar, misma que remitirá a la Dirección General de Presupuesto Nacional con copia a la Dirección de Crédito Público.

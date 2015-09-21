@@ -1,0 +1,1 @@
+Artículo 2º—Para las Entidades Descentralizadas. La Entidades Descentralizadas que ejecuten créditos públicos provenientes del Presupuesto Nacional, coordinarán con los Ministerios relacionados, la información que requieran sobre los saldos de los créditos externos disponibles para su ejecución.

@@ -1,0 +1,1 @@
+Artículo 8º—Derogatorias: Deróguese el artículo 60 del Decreto Ejecutivo Nº 32988-H-MP-PLAN, publicado en La Gaceta Nº 74 de 18 de abril de 2006 y sus reformas; y el Decreto Ejecutivo N° 33224-H, publicado en La Gaceta Nº 142 de 24 de julio de 2006.
