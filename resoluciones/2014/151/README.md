@@ -14,3 +14,4 @@ Metodología para la aprobación de las tarifas de peajes administrados por el C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-22 | la propia norma |
+| 2 | 2015-09-21 | Resolución 204 (2015-09-21) |
