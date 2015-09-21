@@ -3,16 +3,15 @@ En cada prueba de la calidad de la tensión de suministro que se realice se conf
 Tabla N° 9
 Segregación de clases para la confección de gráfico de valores promedio
 Categoría de parámetro | Clases | Clase (Dm)%
-Tensión | 1 | Vn≤91
-2 | 91<Vn≤92
-3 | 92<Vn≤93
-4 | 93<Vn≤94
-5 | 94<Vn<95
-6 | 95≤Vn≤105
-7 | 105<Vn≤106
-8 | 106<Vn≤107
-| 9 | 107<Vn≤108
-| 10 | 108<Vn≤109
-| 11 | 109<Vn
+Tensión | 1 | Vn≤87
+| 2 | 87<Vn≤91
+| 3 | 91<Vn≤93
+| 4 | 93<Vn<95
+| 5 | 95≤Vn≤105
+| 6 | 105<Vn≤107
+| 7 | 107<Vn≤109
+| 8 | 109<Vn≤113
+| 9 | 113<Vn
 En donde:
 Dm: Valor medido en porcentaje con respecto al nominal
+(Así reformado mediante resolución N° RJD-205-2015 del 21 de setiembre del 2015)

@@ -5,63 +5,67 @@ Una perturbación es debidamente clasificada y descrita, cuando sobre ella se re
 a. Duración total de la perturbación, con el debido desglose de:
 . Tiempo de organización
 . Tiempo de localización
+. Tiempo de desplazamiento
 . Tiempo de reparación
 b. Tipo de perturbación, limitándose a dos categorías:
 . Condiciones no deseadas de tensión
 . Interrupción (ausencia de tensión)
 c. Causas externas de la avería (si existiese):
-Influencias ambientales: |
-| Fauna
-| Flora
-| Lluvia
-| Inundaciones
-| Deslizamientos
-| Tormenta eléctrica
-| Tornados
-| Huracanes
-| Actividad volcánica
-| Sismos, terremotos y maremotos
-| Incendios forestales
-| Contaminación salina
-Influencias de la actividad humana: | Excavaciones
-| Contaminación
-| Vandalismo
-| Hurto de electricidad
-| Trabajos en edificaciones
-| Trabajos en exteriores
-| Trabajos ajenos a la red eléctrica
-| Colisión de vehículos
-Influencias de redes eléctricas externas: |
-| Usuario: daño instalación interna
-| ICE: Falla en el SEN
-| ICE: Mantenimiento programado
-| ICE: Desconexión de carga
+Influencias ambientales: Viento
+Fauna
+Flora
+Lluvia
+Inundaciones
+Deslizamientos
+Tormenta eléctrica
+Tornados
+Huracanes
+Actividad volcánica
+Sismos, terremotos y maremotos
+Incendios forestales
+Contaminación salina
+Influencias de la actividad humana: Excavaciones
+Contaminación
+Vandalismo
+Hurto de electricidad
+Trabajos en edificaciones
+Trabajos en exteriores
+Trabajos ajenos a la red eléctrica
+Colisión de vehículos
+Incendio
+Influencias de redes eléctricas externas: Usuario: Sobrecarga
+Usuario: daño instalación interna
+ICE: Falla en el SEN
+ICE: Mantenimiento programado
+ICE: Desconexión de carga
+Trabajos de otras empresas distribuidoras
 d. Causas internas de la avería, limitándose las mismas a las siguientes:
-Operativas | Sobrecarga mecánica
-| Sobrecarga eléctrica
-| Sobrecarga térmica
-| Error humano
-| Sobrecarga eléctrica
-Envejecimiento | Desgaste
-| Corrosión
-| Fatiga
-| Falso contacto
-Mantenimiento | Error humano
-| Uso inapropiado de materiales y equipamiento
-Construcción | Errores de planeamiento y diseño
-| Equipamiento o material defectuoso o inadecuado
-| Errores de supervisión
+Operativas Sobrecarga mecánica
+Sobrecarga eléctrica
+Sobrecarga térmica
+Error humano
+Envejecimiento Desgaste
+Corrosión
+Fatiga
+Falso contacto
+Mantenimiento Error humano
+Uso inapropiado de materiales y
+equipamiento
+Construcción Errores de planeamiento y diseño
+Equipamiento o material defectuoso o
+inadecuado
+Errores de supervisión
 e. Ubicación geográfica de la perturbación
-Geográfica: | Provincia
-| Cantón
-| Distrito
+Geográfica: Provincia
+Cantón
+Distrito
 f. Ubicación topológica de la avería
-Topológica: | Subestación
-| Circuito o alimentador
-| Ramal
-| Componente fallado (Anexo I)
-| Subestación
+Topológica: Subestación
+Circuito o alimentador
+Ramal
+Componente fallado (Anexo I)
 g. Anotar los efectos de la perturbación
 Propias
 Impropias
 h. Acciones ejecutadas para eliminar la perturbación
+(Así reformado mediante resolución N° RJD-205-2015 del 21 de setiembre del 2015)

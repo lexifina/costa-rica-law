@@ -2,7 +2,8 @@ Artículo 4. Definiciones
 Para los efectos correspondientes a esta norma, se aplican las definiciones siguientes:
 Abonado: persona física o jurídica que ha suscrito o aceptado uno o más contratos para el aprovechamiento de la energía eléctrica.
 Alta tensión: tensión utilizada para el suministro eléctrico, cuyo valor nominal eficaz (rms) es superior a 100 kV.
-Área de concesión: área territorial asignada por ley o por concesión para la distribución o comercialización de la energía eléctrica.
+Área de concesión: área territorial asignada por ley o por concesión para la distribución de la energía eléctrica
+(Así reformada la definición anterior mediante resolución N° RJD-205-2015 del 21 de setiembre del 2015)
 Área de distribución: área territorial, dentro del área de concesión donde la empresa distribuidora posee redes eléctricas de distribución.
 Autoridad Reguladora (ARESEP): Autoridad Reguladora de los Servicios Públicos.
 Avería: cualquier daño, deterioro o cambio no deseado en las propiedades físicas, químicas o eléctricas de un equipo o componente de una red y que llevan hacia la pérdida o disminución de su funcionalidad.
@@ -41,6 +42,8 @@ Tensión de alimentación (Va): valor eficaz (rms) de la tensión (fase–fase o
 Tensión de servicio Vs: la tensión en valor eficaz (rms) en el punto donde se enlazan la instalación del abonado o usuario y la red general de distribución.
 Tensión mínima de una red de distribución Vmín: el valor eficaz (rms) más bajo de la tensión permisible, en condiciones normales de operación, en una red de distribución o parte de ella.
 Tensión nominal (Vn) de una red de distribución: tensión en valor eficaz (rms) que caracteriza o identifica una red de distribución o parte de ella y a la cual se hace referencia para ciertas características de operación de dicha red o porción de la misma.
+Tiempo de desplazamiento: es el intervalo de tiempo comprendido entre el aviso del operador a la cuadrilla de mantenimiento y la llegada de la cuadrilla al lugar en donde se presenta la perturbación.
+(Así adicionada la definición anterior mediante resolución N° RJD-205-2015 del 21 de setiembre del 2015)
 Tiempo de localización: intervalo de tiempo comprendido entre el momento en que la cuadrilla se ubica en el área geográfica o topológica afectada por la avería y el momento en que ésta ubica con precisión el lugar topológico y geográfico donde se localiza la avería.
 Tiempo de organización: el tiempo de organización se refiere al lapso de tiempo, entre el momento en que la empresa eléctrica tiene conocimiento de la avería y el momento en que el personal de mantenimiento se ubica en el área geográfica o topológica afectada por la avería.
 Tiempo de reparación: el tiempo de reparación se refiere al período de tiempo comprendido, entre la localización precisa de la avería y la finalización de la reparación o eliminación de la avería y consecuentemente el restablecimiento de las condiciones normales de operación.
