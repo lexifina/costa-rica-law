@@ -1,0 +1,1 @@
+Artículo 15.—Reconocimiento municipal al desempeño en GIRS. Una vez al año, la Municipalidad hará un reconocimiento a las empresas, instituciones comercios u organizaciones que realicen una labor sobresaliente en materia de protección y conservación del ambiente.
