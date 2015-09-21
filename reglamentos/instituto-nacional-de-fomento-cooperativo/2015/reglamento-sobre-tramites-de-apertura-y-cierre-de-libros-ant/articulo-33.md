@@ -1,0 +1,1 @@
+Artículo 33.—Plazo para resolver. Cumplidos los requisitos para reposición de folios, la Auditoría Interna contará con un plazo de diez días hábiles para tramitar la solicitud y emitir su resolución. Dicho plazo comenzará a regir a partir de la fecha de recibo de todos los documentos.

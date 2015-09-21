@@ -1,0 +1,2 @@
+Artículo 11.—Materialización de la apertura del libro. La autorización de apertura se materializa con el sello que la Auditoría Interna coloca en el folio inicial de cada uno de los libros que lo requieran.
+En dicho sello se hará constar el número de asiento y la fecha, el número de tomo, el total de folios que lo integran, el tipo de libro que se legaliza, la dependencia que lo utilizará, la fecha de apertura y la firma del funcionario responsable de su autorización.

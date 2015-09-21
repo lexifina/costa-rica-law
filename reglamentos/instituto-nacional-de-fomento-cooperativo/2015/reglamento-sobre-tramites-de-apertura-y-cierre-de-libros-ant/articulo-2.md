@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este Reglamento regula el trámite que por Ley General de Control Interno, artículo 22, inciso e) compete a la Auditoría Interna, de autorización de apertura y cierre de libros contables y de actas que legal o reglamentariamente deben llevar los diferentes Órganos y Gerencias del INFOCOOP.

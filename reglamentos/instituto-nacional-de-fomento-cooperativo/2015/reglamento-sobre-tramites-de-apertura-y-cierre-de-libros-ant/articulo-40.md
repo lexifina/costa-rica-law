@@ -1,0 +1,1 @@
+Artículo 40.—Modificaciones al presente Reglamento. El presente Reglamento podrá ser modificado por la Junta Directiva del INFOCOOP en lo que considere oportuno. También por el Auditor Interno, quien elevará su solicitud al órgano colegiado para el debido trámite y aprobación.

@@ -1,0 +1,1 @@
+Artículo 28.—Plazo para resolver la reposición del libro. Cumplidos los requisitos para reposición del libro, la Auditoría Interna contará con un plazo de diez días hábiles para tramitar la solicitud, que comenzará a regir a partir de la fecha de recibo de los documentos de parte del órgano interesado.

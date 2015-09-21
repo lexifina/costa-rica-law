@@ -1,0 +1,1 @@
+Artículo 8º—Revisión previa a la gestión de apertura del libro. La Auditoría Interna evaluará preliminarmente el cumplimiento de lo dispuesto en los artículos 5º, 6º y 7º anteriores, con el propósito de atender o rechazar la solicitud de apertura, para lo cual dispone de un plazo de cinco días hábiles.

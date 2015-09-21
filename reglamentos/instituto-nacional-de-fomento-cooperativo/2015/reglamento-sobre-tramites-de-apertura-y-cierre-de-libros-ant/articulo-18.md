@@ -1,0 +1,2 @@
+Artículo 18.—Cierre de libro conformado por hojas sueltas. El libro conformado por hojas sueltas deberá presentarse encuadernado; es decir, deben estar unidas mediante cosido o pegado, rotulado en el lomo o en sus respectivas cubiertas.
+En caso de que la dependencia solicitante requiera con urgencia la apertura de un nuevo Tomo para no interrumpir sus operaciones administrativas o contables, deberá proceder conforme lo dispuesto en el artículo 7º de este Reglamento.
