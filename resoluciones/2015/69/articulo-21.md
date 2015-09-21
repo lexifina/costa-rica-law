@@ -1,3 +1,3 @@
-Artículo 21. Retiro del sello en los instrumentos o sistemas de medición
-Ningún abonado, usuario, persona física o jurídica están autorizados a quitar el sello de garantía. Esta potestad es exclusiva del personal autorizado de laboratorios y unidades de verificación.
+Artículo 21. Retiro del sello en los instrumentos o sistemas de medición. Ningún abonado, usuario, persona física o jurídica están autorizados a quitar o alterar el sello de garantía. La potestad de quitar los sellos es exclusiva del personal autorizado de laboratorios y unidades de verificación.
 El personal calificado de laboratorios de medidores y unidades de verificación, solo podrán remover el sello en las instalaciones del laboratorio, o en labores de campo cuando se justifique, en caso de reparación o realización de ajustes de programación para garantizar la exactitud del sistema de medición, verificación por uso ilícito, o debido a la realización de las pruebas para atención de reclamos o control estadístico, indicadas en el Capítulo X de esta norma técnica.
+(Así reformado mediante resolución RJD-206-2015 del 21 de setiembre de 2015)

@@ -1,13 +1,2 @@
-Artículo 22. Nomenclatura de colores de sellos de garantía
-Los sellos de garantía además de su codificación y numeración establecida en el artículo 20, estarán debidamente identificados mediante colores para identificar la última intervención efectuada sobre el contador, la totalidad del sistema de medición o algún componente, de la siguiente manera:
-Código de color | Intervención
-Verde | Verificación de la certificación del fabricante
-Amarillo | Verificación por queja o estudio de consumo
-Rojo | Verificación por uso ilícito
-Café | Reparación o calibración
-Azul | Verificación por control estadístico
-|
-|
-|
-|
-|
+Artículo 22.Control de sellos. La empresa eléctrica, junto con el laboratorio de medidores, serán responsables del manejo y control de los sellos, para lo cual establecerá los procedimientos adecuados, los cuales serán aprobados y controlados por la Autoridad Reguladora.
+(Así reformado mediante resolución RJD-206-2015 del 21 de setiembre de 2015)

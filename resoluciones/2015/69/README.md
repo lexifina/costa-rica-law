@@ -14,3 +14,4 @@ Supervisión del uso, funcionamiento y control de medidores de energía eléctri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-05 | la propia norma |
+| 2 | 2015-09-21 | Resolución 206 (2015-09-21) |
