@@ -1,0 +1,1 @@
+Artículo 15.—El Auditor Interno tendrá la potestad de gestionar oportuna y debidamente justificado ante el Jerarca o a quien corresponda, lo relativo a la creación de plazas, reasignación, ascenso y servicios de apoyo que se consideren indispensables para el cumplimiento de su Plan Anual de Trabajo.

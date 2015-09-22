@@ -1,0 +1,1 @@
+Artículo 35.—La solicitud de la información como evidencia o cualquier otro requerimiento para los estudios de auditoría, estudios especiales u otros, podrán ser solicitados, coordinados y firmados por los funcionarios de la Auditoría que estén realizando el estudio correspondiente.

@@ -1,0 +1,1 @@
+Artículo 3º—Para la formulación, modificación, aprobación y promulgación del presente Reglamento se estará a lo dispuesto en los Lineamientos que sobre el particular dispone la Contraloría General de la República, así como lo dispuesto en las Normas para el Ejercicio de la Auditoría Interna en el Sector Público.

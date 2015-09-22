@@ -1,0 +1,1 @@
+Artículo 39.—La Auditoría Interna deberá comunicar mediante informes los resultados de los servicios de las auditorías o estudios especiales, sean estos de control interno o de relación de hechos, a las instancias competentes según sea el caso, conforme la normativa que regula esta materia.
