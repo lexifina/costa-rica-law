@@ -1,1 +1,0 @@
-Artículo 5º—Inhabilitación de otras versiones del EDDI: A partir de la vigencia de la presente resolución, quedarán inhabilitadas las versiones anteriores al programa de ayuda EDDI-7 y las entidades recaudadoras no recibirán declaraciones del impuesto general sobre las ventas que se presenten en formularios preimpresos -en color celeste- de ningún período.

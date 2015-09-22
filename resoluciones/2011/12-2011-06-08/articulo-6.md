@@ -1,1 +1,0 @@
-Artículo 6º—Declaraciones de períodos anteriores a julio 2011: Todas aquellas declaraciones pendientes de presentar de períodos anteriores, también deben ser confeccionadas mediante este programa de ayuda. Así como toda declaración que rectifique lo declarado mediante formulario en papel, relativo al Impuesto General sobre las Ventas.
