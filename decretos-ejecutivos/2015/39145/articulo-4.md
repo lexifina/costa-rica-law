@@ -1,0 +1,1 @@
+Artículo 4°—La Secretaría Técnica Nacional Ambiental (SETENA), brindará un tratamiento prioritario y expedito dentro del marco de la legalidad, a los trámites que así lo requieran, para la determinación de la viabilidad ambiental, así como a cualquier otro requerimiento necesario para la pronta y adecuada ejecución del Programa.

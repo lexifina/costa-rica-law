@@ -1,0 +1,1 @@
+Artículo 2°—La Administración Pública Central y Descentralizada, dentro del marco de la cooperación interinstitucional, contribuirá en forma prioritaria y efectiva, de acuerdo a las potestades que la legislación vigente les atribuye, con la disponibilidad de recurso económico, humano y de otra índole, cuando se formalicen alianzas que contribuyan con el desarrollo del PIAAG,
