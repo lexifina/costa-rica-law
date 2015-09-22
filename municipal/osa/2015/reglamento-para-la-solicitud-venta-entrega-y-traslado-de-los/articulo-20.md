@@ -1,0 +1,1 @@
+Artículo 20.—La Municipalidad deberá estar legalmente facultada, por el Ministerio de Ambiente y Energía y Telecomunicaciones con respecto a las concesiones en los cauces de dominio público otorgados en su cantón, lo anterior con el fin de garantizar la accesibilidad del material a sus usuarios.

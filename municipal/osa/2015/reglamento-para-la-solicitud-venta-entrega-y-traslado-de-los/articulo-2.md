@@ -1,0 +1,1 @@
+Artículo 2º—Este Reglamento regulará la organización y funcionamiento municipal, en cuanto a la solicitud, venta, entrega y traslado de los materiales extraídos del cauce del río Térraba, así como establecer los derechos y deberes tanto de los clientes como de la Municipalidad de Osa.

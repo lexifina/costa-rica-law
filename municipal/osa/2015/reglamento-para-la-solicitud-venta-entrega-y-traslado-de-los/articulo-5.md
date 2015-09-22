@@ -1,0 +1,1 @@
+Artículo 5º—Del pago: Los pagos por la venta de material deberán de ser cancelados únicamente y en su totalidad en las cajas recaudadoras de la Municipalidad, ubicadas en la plataforma de servicios municipal.
