@@ -6,7 +6,8 @@ Las siguientes son las condiciones de financiamiento para esta línea:
 Monto máximo: según capacidad de pago y garantía.
 Plazo máximo: 20 años.
 Tasa de interés: variable.
-Garantía: la garantía corresponde a la fianza solidaria o hipotecaria en primer grado, considerando el 85% del avalúo. Esta última también podrá aplicarse como garantía en montos inferiores a los diez millones.
+Garantía: la garantía corresponde a la fianza solidaria o hipotecaria en primer grado, considerando el 80% del avalúo. Esta última también podrá aplicarse como garantía en montos inferiores a los diez millones.
+(Así reformado el párrafo anterior en sesión N° 105 del 22 de setiembre de 2015)
 En el caso de fianza solidaria, para esta línea específica se aplicará la siguiente tabla:
 Monto ¢ | Pensionado (as) | Trabajadores del MEP, universidades e INA en propiedad
 0 a 3.000.000 | Sin fiador | 1 fiador
