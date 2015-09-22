@@ -1,0 +1,1 @@
+SEGUNDO: La Dirección Nacional de Notariado verificará la inscripción referida en el punto primero anterior y su cumplimiento, a través de los medios dispuestos por la Caja Costarricense del Seguro Social, para esos efectos.
