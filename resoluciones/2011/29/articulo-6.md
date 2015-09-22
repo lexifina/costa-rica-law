@@ -1,1 +1,0 @@
-Artículo 6°—Declaraciones de periodos anteriores al 2011: Todas aquellas declaraciones pendientes de presentar de períodos anteriores, también deben ser confeccionadas mediante este programa de ayuda. Así como toda declaración que rectifique lo declarado mediante formulario en papel, relativo al Impuesto sobre la Renta.

@@ -1,1 +1,0 @@
-Artículo 4°—Presentación de la declaración y pago del impuesto: Posterior a la impresión del respectivo formulario, el contribuyente debe presentar la declaración y pagar el impuesto correspondiente ante la entidad recaudadora autorizada.

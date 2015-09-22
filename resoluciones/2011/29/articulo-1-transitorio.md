@@ -1,1 +1,0 @@
-Transitorio único.—Para aquellos contribuyentes que han presentado la declaración del impuesto sobre la renta del periodo fiscal 2011, por los medios permitidos por la administración tributaria antes de la publicación de la presente resolución, se tiene por cumplida la obligación formal tributaria.
