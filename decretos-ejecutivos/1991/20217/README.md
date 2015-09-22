@@ -24,3 +24,4 @@ Régimen Tarifario para la Prestación de Servicios y Facilidades Aeroportuarias
 | 9 | 1995-04-21 | Decreto Ejecutivo 24203 (1995-04-21) |
 | 10 | 2008-10-09 | Decreto Ejecutivo 34821 (2008-10-09) |
 | 11 | 2009-09-30 | Decreto Ejecutivo 35620 (2009-09-30) |
+| 12 | 2015-09-22 | Decreto Ejecutivo 39430 (2015-09-22) |

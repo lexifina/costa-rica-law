@@ -11,42 +11,47 @@ Para la inscripción de contratos de arrendamiento de aeronaves y cancelaciones 
 Por emisión de certificados de matrícula se cobrará una tasa de USD$15 (Quince dólares americanos).
 b. Tarifa por certificaciones de inscripciones: Para emisión de certificaciones del registro aeronáutico se cobrará una tarifa de USD $5.
 c. Anotación de gravamen. Toda anotación de gravamen, acto o contrato que afecte temporalmente el régimen jurídico de la propiedad de la aeronave y la cancelación de la inscripción, pagarán el 50% de la tarifa de inscripción.
-d. Tarifa por Certificación de Empresas: Las Tarifas por concepto de Certificación de empresas Aeronáuticas tales como, talleres, líneas aéreas, escuelas y o cualquier otra que se necesite certificar mediante un Certificado Operativo, cancelarán previo al inicio de su solicitud de certificación una tarifa única de USD$ 6.013,00 (seis mil trece dólares americanos) mediante transferencia electrónica o depósito en la caja de las oficinas centrales de la DGAC. Esta tarifa incluye el costo por inscripción en el registro aeronáutico. Dicha tarifa no incluye los costos estipulados para el Plan de Vigilancia Aeronavegabilidad-Operaciones, ni para el concepto de la Incorporación de aeronaves al país.
+d. Tarifa por Certificación de Empresas: Las Tarifas por concepto de Certificación de empresas Aeronáuticas tales como, talleres, líneas aéreas, escuelas y o cualquier otra que se necesite certificar mediante un Certificado Operativo, cancelarán previo al inicio de su solicitud de certificación una tarifa única de USD$ 6.013,00 (seis mil trece dólares americanos) mediante transferencia electrónica o depósito en la caja de las oficinas centrales de la DGAC. Esta tarifa incluye el costo por inscripción en el registro aeronáutico. Si la tarifa es por concepto de certificación de empresa por Sistema de Aeronaves Pilotadas a Distancia (RPAS), la tarifa es de USD$ 1.874,02 (mil ochocientos setenta y cuatro dólares con dos centavos de dólares americanos) que también deberán ser cancelados de previo al inicio de su solicitud de certificación mediante transferencia electrónica o depósito en la caja de las oficinas centrales de la DGAC.
+Estas tarifas no incluyen los costos estipulados para el Plan de Vigilancia Aeronavegabilidad-Operaciones, ni para el concepto de la incorporación de aeronaves al país,
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39430 del 22 de setiembre del 2015)
 e. Para la Inscripción de poderes o constitución de empresas, se cobrará una tarifa de $11,20.
-f. Licencias aeronáuticas: Tarifas por emisión de licencias.
-LICENCIAS PARA TRIPULACIÓN DE VUELO | VALOR ($)
-Alumno piloto | 4,00
-Piloto privado | 94,00
-Piloto comercial | 94,00
-Piloto de transporte de línea aérea | 94,00
-Piloto de Aeronaves de Varios Tripulantes | 94,00
-Piloto Globo Libre | 94,00
-Navegante | 94,00
-Mecánico de a bordo/ Ingeniero de vuelo | 94,00
-Técnico de Mantenimiento Aeronaves | 94,00
-Técnico Mantenimiento Aviónica | 94,00
-Operador Estación aeronáutica | 94,00
-Auxiliares de cabina | 94,00
-Controlador de tránsito aéreo | 94,00
-Encargado de operaciones de Vuelo | 94,00
-Piloto de Ultraligeros | 94,00
-HABILITACIONES
-Navegante | 60,00
-Mecánico de a bordo | 60,00
-Ingeniero de Vuelo | 60,00
-Para vuelos por instrumento | 60,00
-Multimotores | 60,00
-Instructor de vuelo | 60,00
-Fumigación | 60,00
-Tipo para Pilotos | 60,00
-Otras habilitaciones agregadas a las licencias del personal de vuelo | 60,00
-OTROS CARGOS | VALOR ($)
-Derecho Exámenes Teórico-Prácticos | 61,00
-Certificaciones | 30,00
-Convalidaciones | 30,00
-Reposiciones | 4,00
+f. Licencias Aeronáuticas: Tarifas por emisión de licencias.
+Licencias para tripulación de vuelo | Valor ($)
+Alumno piloto | 4.00
+Piloto privado | 94.00
+Piloto comercial | 94.00
+Piloto de transporte de línea aérea | 94.00
+Piloto de Aeronaves de Varios Tripulantes | 94.00
+Piloto Globo Libre | 94.00
+Navegante | 94.00
+Mecánico de a bordo/ Ingeniero de vuelo | 94.00
+Técnico de Mantenimiento Aeronaves | 94.00
+Técnico Mantenimiento Aviónica | 94.00
+Operador Estación aeronáutica | 94.00
+Auxiliares de cabina | 94.00
+Controlador de tránsito aéreo | 94.00
+Encargado de operaciones de Vuelo | 94.00
+Piloto de Ultraligeros | 94.00
+Piloto RPAS | 94.00
+HABILITACIONES |
+Navegante | 60.00
+Mecánico de a bordo | 60.00
+Ingeniero de Vuelo | 60.00
+Para vuelos por instrumento | 60.00
+Multimotores | 60.00
+Instructor de vuelo | 60.00
+Fumigación | 60.00
+Tipo para Pilotos | 60.00
+Otras habilitaciones agregadas a las licencias del personal de vuelo | 60.00
+Otros cargos | Valor ($)
+Derecho Exámenes Teórico-Prácticos | 61.00
+Certificaciones | 30.00
+Licencias para tripulación de vuelo | Valor ($)
+Convalidaciones | 30.00
+Reposiciones | 4.00
 Revalidaciones | 60% del valor de la emisión de la licencia original.
 Reproducción de certificados de validez de licencia | 25% de la emisión de la licencia original
+(Así reformado el inciso f) anterior por el artículo 1° del decreto ejecutivo N° 39430 del 22 de setiembre del 2015)
 g. Estudios y certificación de aeródromos.
 PREFACTIBILIDAD TÉCNICA | VALOR ($)
 Aeródromos | 708,00
