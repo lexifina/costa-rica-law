@@ -1,0 +1,1 @@
+Artículo 49.—Dictámenes divergentes: Los dictámenes de las Comisiones podrán ser unánimes de mayoría o de minoría y deberán presentarse por escrito y firmados por los miembros de la comisión que lo emiten. Cuando no existiera un acuerdo unánime sobre un dictamen y uno o más miembros de la comisión no lo aprueban podrán rendir dictámenes por separado si lo estiman conveniente.

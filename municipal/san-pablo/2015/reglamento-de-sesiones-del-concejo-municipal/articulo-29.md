@@ -1,0 +1,1 @@
+Artículo 29.—No acogencia de mociones. El o la Presidente del Concejo, no dará curso o declarará fuera de orden las mociones que evidentemente resulten improcedentes o que simplemente tiendan a dilatar u obstaculizar el curso normal del debate o la resolución del asunto.

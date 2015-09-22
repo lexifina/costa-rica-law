@@ -1,0 +1,1 @@
+Artículo 28.—Acogencia de mociones. Todas las mociones presentadas ante el Concejo Municipal deben ser votadas, de manera que conste en el acta que la moción del regidor o regidora proponente es acogida o es rechazada.

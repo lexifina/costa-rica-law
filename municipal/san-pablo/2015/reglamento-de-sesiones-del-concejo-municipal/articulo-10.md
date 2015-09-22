@@ -1,0 +1,1 @@
+Artículo 10.—Quórum inicial. Pasados los quince minutos de la hora de inicio de la sesión, si no hubiese quórum, se dejará constancia en el acta y se consignará el nombre de los regidores y las regidoras presentes, a fin de acreditarles su asistencia para efecto del pago de dietas.

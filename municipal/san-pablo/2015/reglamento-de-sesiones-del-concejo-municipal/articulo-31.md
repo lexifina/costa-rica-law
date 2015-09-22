@@ -1,0 +1,1 @@
+Artículo 31.—Aprobación de los acuerdos. La norma será que los acuerdos tomados quedarán firmes al aprobarse el acta respectiva, salvo aquellos que se hubiesen declarado como definitivamente aprobados.

@@ -1,0 +1,1 @@
+Artículo 25.—Ceder la palabra. El regidor que cede su tiempo debe haber solicitado de previo el uso de la palabra. El o la Presidente del Concejo podrá pedir a los regidores y/o regidoras que se concreten al punto en debate y en caso de renuncia podrá retirar el uso de la palabra. Este artículo se aplicará de igual forma al público que tenga audiencia.

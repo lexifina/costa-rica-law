@@ -1,0 +1,1 @@
+Artículo 15.—De la Secretaría del Concejo. El Proceso de Secretaría del Concejo, estará conformado por una Secretaria o un Secretario y una asistente de secretaría o un asistente de secretaría; ambos nombrados según lo establecido en las normativas correspondientes.

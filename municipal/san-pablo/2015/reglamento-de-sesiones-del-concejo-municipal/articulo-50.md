@@ -1,0 +1,1 @@
+Artículo 50.—Dictamen a otra comisión: El Concejo Municipal podrá remitir los dictámenes de Comisión a conocimiento de otra Comisión o a alguna designada especialmente por la Presidencia, para que se pronuncie sobre un caso concreto. Los dictámenes se tomaran con el carácter de firmes y se decidirán por simple mayoría.

@@ -1,0 +1,1 @@
+Artículo 46.—Coordinación de Comisiones. El o la Presidente del Concejo nombrará a un coordinador provisional para cada comisión, de manera que el coordinador de cada Comisión convoque a la primera reunión de comisión y en ella se elija al Directorio correspondiente entre los regidores y regidoras y síndicos o sindicas que la conformen.

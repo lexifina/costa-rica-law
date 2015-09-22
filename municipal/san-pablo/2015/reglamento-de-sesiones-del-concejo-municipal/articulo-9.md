@@ -1,0 +1,1 @@
+Artículo 9º—Del quórum. El quórum de las sesiones será de la mitad más uno de los regidores y las regidoras propietarios. Este número de regidores deberá encontrarse en el local de sesiones al inicio de la sesión, durante las deliberaciones y al efectuarse las votaciones.
