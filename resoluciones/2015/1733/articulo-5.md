@@ -1,0 +1,1 @@
+5°—Finalizado dicho plazo, la realización de actividades reguladas por la Ley Reguladora del Mercado de Seguros, conllevará la imposición de medidas precautorias y sanciones que la Ley asigna, sin perjuicio de las demás responsabilidades civiles o penales que pudiesen corresponder.

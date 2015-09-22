@@ -1,0 +1,1 @@
+4°—Se aclara que la Superintendencia no está facultada para realizar labores de asesoría o coadministración a los entes supervisados por lo que no es factible, con esos fines, revisar los esquemas específicos, Dicha labor se considera propia de cada persona interesada.
