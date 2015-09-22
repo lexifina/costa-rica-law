@@ -1,0 +1,1 @@
+Artículo 13.—Derogatoria: El presente Decreto Ejecutivo, deroga los artículos 5° y 6° del Decreto N° 27917-MOPT, los artículos Nº 2° inciso 2.7, Nº 4° inciso 4.5, Nº 10°, Nº 14° del Decreto Nº 29673-MOPT, además, de los decretos Nº 38147-MOPT, así como cualquier otra disposición normativa de similar o inferior rango jerárquico en cuanto se le oponga.

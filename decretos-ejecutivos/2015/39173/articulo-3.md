@@ -1,0 +1,2 @@
+Artículo 3º—Reorganización del proceso planificador del MOPT y del Sector: créase la Secretaría de Planificación Sectorial como órgano de asesoría y apoyo técnico al Ministro (a) Rector (a) con perspectiva de género, desarrollo humano y enfoque de derechos, en su función rectora y de coordinación de las instituciones que conforman el Sector.
+Créase la Unidad de Planificación Institucional como órgano asesor y de coordinación a nivel institucional al máximo jerarca del MOPT.

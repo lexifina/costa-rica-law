@@ -1,0 +1,1 @@
+Transitorio 2º—El Ministerio de Obras Públicas y Transportes, dentro del mismo plazo indicado en el transitorio primero, gestionará lo que corresponda a efectos de dotar del recurso logístico y presupuestario necesario para el cumplimiento de las funciones dispuestas en el presente Decreto de la Secretaría de Planificación Sectorial y la Unidad de Planificación Institucional.
