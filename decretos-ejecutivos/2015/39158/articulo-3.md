@@ -1,0 +1,6 @@
+Artículo 3º—Se modifica el último párrafo del artículo 78 del Decreto Ejecutivo Nº 38975, para agregar que el INDER podrá además inscribir la segregación, el que en adelante deberá leerse de la siguiente forma:
+“Artículo 78°
+(…)
+(…)
+El procedimiento técnico mencionado se ejecutará de oficio o a solicitud de parte, pero podrá variar en cuanto a los actos preparatorios y gestiones a realizar para ello, dependiendo de la particularidad que presenten los bienes en la realidad o la formalidad, actos administrativos y negocios jurídicos que falten por cumplir, por los cuales del todo no se hayan inscrito tales bienes inmuebles, o, no se hayan inscrito correctamente. Tanto para la aplicación de los procedimientos de regularización aquí establecidos como para la ejecución de los planes de dotación el Inder, mediante resolución administrativa, una vez se cuente con los planos catastrados que individualicen cada predio, podrá realizar la división material o segregación según sea el caso e inscribir a su nombre cada predio, para lo cual la resolución deberá contener todas las formalidades que requiere el Registro Nacional de la Propiedad, para realizar la inscripción de bienes inmuebles.”
+En lo demás se mantiene incólume el artículo aquí reformado.

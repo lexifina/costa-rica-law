@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza a los órganos y entes del Sector Público y se insta al Sector Privado para que, dentro del marco jurídico-legal de sus competencias, contribuyan con recursos humanos y económicos o alternativas de colaboración y cooperación requeridas, para lograr la inscripción de los títulos de propiedad pendientes de inscripción en todo el territorio nacional.
