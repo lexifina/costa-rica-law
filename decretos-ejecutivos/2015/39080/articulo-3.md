@@ -1,0 +1,6 @@
+CAPÍTULO II
+Conformación y funcionamiento de los Comités de Apoyo
+de los programas del CONAPAM
+Artículo 3—Todo Comité creado para apoyar algún programa del CONAPAM, deberá estar integrado por al menos cinco miembros sin ningún nexo de parentesco entre sí, uno de la entidad ejecutora y el resto serán representantes de instituciones públicas, privadas, organizaciones comunales, personas adultas mayores, u otros actores. Cada miembro podrá contar con un suplente que lo sustituirá durante sus ausencias.
+Únicamente por acuerdo expreso de la Junta Rectora del CONAPAM, previa valoración y estudio exhaustivo, que evidencia la imposibilidad de conformar un Comité según lo indicado, se aceptarán Comités de Apoyo con una representación menor o cuyos miembros tengan parentesco entre sí.
+Para tal efecto, la entidad ejecutora deberá cursar las invitaciones correspondientes a las diferentes instituciones públicas o privadas, organizaciones y personas adultas mayores y en general aquellas que tengan presencia en la comunidad o afinidad con los objetivos de estos programas. Lo anterior, a efectos de contar con el mayor apoyo y articulación de la mayor cantidad de actores sociales posible a nivel comunal.

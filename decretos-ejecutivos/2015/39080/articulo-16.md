@@ -1,0 +1,1 @@
+Artículo 16.—El Comité de Apoyo deberá valorar aquellas situaciones de personas adultas mayores que le sean referidos directamente por el CONAPAM, debiendo remitir los informes correspondientes dentro del plazo solicitado.

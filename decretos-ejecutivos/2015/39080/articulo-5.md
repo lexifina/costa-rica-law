@@ -1,0 +1,4 @@
+Artículo 5—Cada Comité de Apoyo, tendrá los puestos de Coordinación, Subcoordinación y Secretaría, que serán nombrados de entre sus miembros por la mayoría absoluta de sus integrantes y durarán en su cargo un año, pudiendo ser reelectos.
+En caso de ausencia o de enfermedad y, en general, cuando concurra alguna causa justa, las personas que ocupen los puestos de Coordinación y Secretaría en el Comité de Apoyo, serán sustituidas por el (la) Subcoordinador (a), o una persona Coordinadora ad-hoc y Secretaria suplente, respectivamente.
+El Comité de Apoyo, según lo acuerde, podrá trabajar mediante subcomités o mediante la asignación de roles, puestos y funciones, claramente definidas entre todos sus integrantes.
+Su integración y estructura deberá ser comunicada formalmente a la Dirección Técnica del CONAPAM.

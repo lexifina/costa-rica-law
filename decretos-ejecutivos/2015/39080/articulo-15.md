@@ -1,0 +1,1 @@
+Artículo 15.—El Comité de Apoyo aplicará los criterios establecidos por el CONAPAM, para la identificación y selección de la población adulta mayor destinataria, así como los instrumentos de recolección de información que el CONAPAM elabore para el programa respectivo.

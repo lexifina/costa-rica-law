@@ -1,0 +1,1 @@
+Artículo 22.—El Comité de Apoyo deberá dirigir su gestión a la atención de necesidades producto de las diversas manifestaciones del proceso de envejecimiento y la etapa de la vejez, en procura de mejorar la calidad de vida de las personas adultas mayores, con enfoque integral y de derecho, reconociendo las condiciones de la población objetivo.

@@ -1,0 +1,1 @@
+Artículo 19.—El Comité de Apoyo garantizará el carácter confidencial de toda la información sobre condiciones particulares de las personas adultas mayores destinatarias, sus familias o grupos, a la que se tenga acceso como parte de la gestión. La información recopilada será única y exclusivamente para uso de los fines de la gestión que se atiende.

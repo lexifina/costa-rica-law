@@ -1,0 +1,1 @@
+Artículo 4—El CONAPAM por medio del personal designado para tal efecto, brindará la asesoría y orientación durante el proceso de conformación de los Comités de Apoyo. Además, verificará que no haya más de un Comité de Apoyo en cada distrito de cada cantón.
