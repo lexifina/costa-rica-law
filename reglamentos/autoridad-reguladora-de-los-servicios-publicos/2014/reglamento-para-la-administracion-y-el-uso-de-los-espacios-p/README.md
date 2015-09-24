@@ -14,3 +14,4 @@ Reglamento para la administración y el uso de los espacios para estacionamiento
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-01 | la propia norma |
+| 2 | 2015-09-24 | Reglamento 47 (2015-09-24) |
