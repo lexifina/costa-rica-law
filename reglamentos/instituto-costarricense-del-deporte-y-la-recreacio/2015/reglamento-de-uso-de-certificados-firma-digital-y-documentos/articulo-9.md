@@ -1,0 +1,1 @@
+Artículo 9º—Autorización. La Dirección Administrativa Financiera, será la dependencia encargada de autorizar las firmas, una vez verificados todos los requisitos que se establezcan por la vía de un manual.

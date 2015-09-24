@@ -1,0 +1,1 @@
+Artículo 22.—Manual de procedimientos. La Dirección Administrativa Financiera presentará ante la Dirección Nacional la propuesta del Manual de Procedimientos a más tardar 30 días hábiles posteriores a la aprobación de este Reglamento.

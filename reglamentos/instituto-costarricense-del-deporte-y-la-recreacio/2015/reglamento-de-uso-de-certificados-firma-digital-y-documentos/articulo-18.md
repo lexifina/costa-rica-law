@@ -1,0 +1,1 @@
+Artículo 18.—Los funcionarios del ICODER tendrán la obligación de usar la firma electrónica en los procedimientos que la Ley, su Reglamento, así como la normatividad aplicable señalen para tal efecto.

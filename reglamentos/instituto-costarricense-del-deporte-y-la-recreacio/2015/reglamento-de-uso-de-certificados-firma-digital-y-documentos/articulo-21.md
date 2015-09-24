@@ -1,0 +1,1 @@
+Artículo 21.—El ICODER inserto en las políticas de Gobierno Digital impulsará de manera oficial y paulatinamente la utilización de los medios electrónicos y forma digital en las distintas gestiones que realice con entidades públicas y privadas.
