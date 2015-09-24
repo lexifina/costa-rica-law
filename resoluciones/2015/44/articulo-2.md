@@ -1,0 +1,2 @@
+Artículo 2º—Presentación incompleta de requisitos. En caso de que la solicitud del interesado no cumpla con los requisitos requeridos, se procederá a realizar mediante oficio y en ese mismo acto la prevención correspondiente.
+También se deberá hacer la prevención, cuando el Departamento de Fiscalización obtenga por su cuenta la documentación adicional, y de su estudio se detecten inconsistencias, que requieran aclaraciones adicionales.
