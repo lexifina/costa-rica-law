@@ -1,0 +1,1 @@
+Artículo 4º—Firma de la autorización. Las autorizaciones para la Devolución de Tributos ante la Administración Aduanera serán firmadas por el(la) Jefe del Departamento de DGE o por quien sea debidamente autorizado.

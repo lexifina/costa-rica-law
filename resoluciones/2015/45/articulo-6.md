@@ -1,0 +1,5 @@
+Artículo 6º—Adición y modificación a resolución Nº DGH- 031-2010. Se adiciona un numeral al artículo 1º de la resolución Nº DGH-031-2010 de las quince horas del día diecisiete de agosto del dos mil diez, el cual tendrá como referencia 10 y dirá:
+“10. Solicitud y autorización para la devolución de tributos ante la Administración Aduanera” EXI-010.”
+Se sustituye el artículo 2º de la mencionada resolución Nº DGH-031-2010 para que se lea de la siguiente manera:
+“2º—Los formularios que se detallan en el punto anterior se encuentran disponibles para los usuarios en su versión electrónica, en la página web del Ministerio de Hacienda, www.hacienda.go.cr; o en el Departamento de Gestión de Exenciones para lo cual deberán presentar algún tipo de dispositivo para almacenamiento de información; o a través de solicitud al correo electrónico: exoneraciones@hacienda. go.cr o a cualquier otro que se determine oportunamente, indicando la dirección electrónica a la cual solicitan se les remita el archivo correspondiente.
+Rige a partir de su publicación.

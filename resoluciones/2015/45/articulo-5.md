@@ -1,0 +1,1 @@
+Artículo 5º—Gestión digital de solicitudes. Las solicitudes para la devolución de tributos se tramitarán en formato digital, cuando se desarrolle la aplicación correspondiente en los sistemas institucionales de la Dirección General de Hacienda.
