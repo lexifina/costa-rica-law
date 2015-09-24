@@ -1,1 +1,2 @@
-Artículo 28.—Planificación anual. La Auditoría Interna debe preparar el Plan anual de trabajo congruente con los lineamientos o Directrices que emita el Órgano Contralor. Este plan será enviado a la Contraloría General de la República, previo conocimiento y aprobación de la Junta Directiva.
+Artículo 28.—Planificación anual. La Auditoría Interna debe preparar el Plan anual de trabajo congruente con los lineamientos o directrices que emita el Órgano Contralor. Este plan será enviado a la Contraloría General de la República, previo conocimiento de la junta directiva y valoración e incorporación de sus aportes por dicha auditoría.
+(Así reformado en sesión N° 089 del 24 de setiembre de 2015)
