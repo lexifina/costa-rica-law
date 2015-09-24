@@ -1,3 +1,3 @@
 Atribuciones del Alcalde
-Articulo 2°—El Alcalde Municipal autorizará egresos por gastos fijos y la adquisición de bienes y servicios hasta por un monto máximo de ¢20.000.000,00 (veinte millones de colones).
-(Así reformado mediante sesión ordinaria N° 023-2010 del 7 de octubre de 2010)
+Artículo 2º—El Alcalde Municipal autorizará egresos por gastos fijos y la adquisición de bienes y servicios hasta por un máximo de ciento quince millones de colones (¢115.000.000,00).
+(Así reformado en sesión N° 282 del 24 de setiembre de 2015)
