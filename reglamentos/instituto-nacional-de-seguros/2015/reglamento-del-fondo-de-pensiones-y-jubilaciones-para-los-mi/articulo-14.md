@@ -1,0 +1,1 @@
+Artículo 14.—El derecho a la pensión por parte de la cónyuge supérstite, la exconyuge supérstite, la compañera de hecho o la excompañera de hecho, se adquiere en la fecha de fallecimiento del bombero.

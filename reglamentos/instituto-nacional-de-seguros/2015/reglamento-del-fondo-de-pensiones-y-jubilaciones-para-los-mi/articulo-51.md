@@ -1,0 +1,3 @@
+Artículo 51.—
+a. A partir de la fecha de vigencia de las modificaciones al presente Reglamento, la Junta Administradora podrá solicitar y realizar la contratación de valoraciones actuariales periódicas del Fondo, cuando menos una vez cada año, CON CORTE AL 30 DE JUNIO DE CADA AÑO.
+b. Los resultados de estas evaluaciones serán sometidas a conocimiento de la Junta Administradora, quienes de inmediato informarán a la Gerencia sobre aquellos aspectos relevantes que inciden directamente sobre la gestión actual y futura del Fondo”. Asimismo, el resultado del estudio actuarial será remitido a la SUPEN el último día hábil del mes de setiembre de cada año, según disposición del Ente Supervisor.

@@ -1,0 +1,11 @@
+INSTITUTO NACIONAL DE SEGUROS
+(Nota de Sinalevi: Sobre este tema el Instituto Nacional de Seguros, había emitido anteriormente el Reglamento del Fondo de Pensiones y Jubilaciones para los miembros del Benemérito Cuerpo de Bomberos de Costa Rica, aprobado en sesión N° 8863 del 2 de noviembre de 2007)
+DEPARTAMENTO NORMAS, PLANES Y PROYECTOS
+La Junta Directiva del INS, mediante el Acuerdo 9279-XII del 12 de agosto de 2015, aprobó la incorporación del Capítulo XIV Comité de Inversiones en el Reglamento del Fondo de Pensiones y Jubilaciones para los Miembros del Benemérito Cuerpo de Bomberos de Costa Rica.
+REGLAMENTO DEL FONDO DE PENSIONES
+Y JUBILACIONES PARA LOS MIEMBROS DEL
+BENEMERITO CUERPO DE BOMBEROS
+DE COSTA RICA
+CAPÍTULO I
+Objetivos y elegibilidad
+Artículo 1º—El Instituto Nacional de Seguros, en adelante llamado el Instituto, de conformidad con la Ley Nº 6170 del 29 de noviembre de 1977 y su interpretación mediante la Ley Nº 6284 del 3 de noviembre de 1978, establece el Fondo de Jubilaciones y Pensiones para los Miembros Permanentes del Benemérito Cuerpo de Bomberos de Costa Rica, en lo sucesivo denominado “El Fondo”, sujeto a las disposiciones del presente Reglamento.

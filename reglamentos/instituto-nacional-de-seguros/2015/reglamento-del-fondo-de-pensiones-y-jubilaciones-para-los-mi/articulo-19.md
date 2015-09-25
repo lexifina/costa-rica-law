@@ -1,0 +1,1 @@
+Artículo 19.—En los casos de separación de hecho sólo se pagará la pensión cuando el bombero satisfacía efectivamente pensión alimenticia a su cónyuge o compañera de hecho, todo a juicio de la Junta Administradora y de acuerdo con la prueba que al respecto se rinda y los resultados de la investigación que se realice.

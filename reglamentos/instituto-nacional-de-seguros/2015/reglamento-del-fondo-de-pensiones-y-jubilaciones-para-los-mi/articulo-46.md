@@ -1,0 +1,3 @@
+Artículo 46.—La Junta Administradora, será responsable de coordinar la confección de los estados financieros del Régimen de acuerdo con el Plan de Cuentas dictado por la SUPEN.
+Los estados financieros del Fondo deberán remitirse a la SUPEN de conformidad con la periodicidad y plazos establecidos por el Ente Supervisor.
+Los estados financieros con corte al cierre fiscal de cada año, deberán ser refrendados por el auditor interno del Instituto y dictaminados por auditores externos. Además deben estar disponibles para su consulta por parte de los interesados y publicarse en un medio de comunicación interno en la entidad en que se creó el Fondo.
