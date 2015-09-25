@@ -1,0 +1,16 @@
+Nº 39130-MP-MEP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE EDUCACIÓN PÚBLICA
+En uso de las facultades que les confieren los artículos 140, incisos 8) y 20) y 146 de la Constitución Política; 25, 28, párrafo 2), inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 de 02 de mayo de 1978; y la Ley Nº 8661, Aprobación de la Convención sobre los Derechos de las Personas con Discapacidad; y,
+Considerando:
+I.—Que las personas con discapacidad constituyen un sector de la sociedad costarricense que ha enfrentado y enfrenta condiciones de discriminación y exclusión, en los diferentes ámbitos de su vida, entre ellos, en el acceso a la educación como derecho fundamental en un sistema auténticamente democrático.
+II.—Que para avanzar en su inclusión y desarrollo social, las personas con discapacidad requieren que el Estado costarricense asegure el derecho a una educación inclusiva y de calidad, tal como lo establece el artículo 24 de la Convención sobre los Derechos de las Personas con Discapacidad, ratificada en setiembre del 2008 mediante la Ley Nº 8661.
+III.—Que para transitar hacia una educación inclusiva, que considere a las personas con discapacidad y favorezca su pleno acceso a todos los niveles del sistema educativo costarricense, es necesario concertar un marco conceptual sobre el cual se fundamenten todas las acciones dirigidas a este grupo de personas, valorar el avance alcanzado por nuestro país a partir de la normativa vigente en la materia y proponer orientaciones, que contribuyan a ampliar y profundizar este proceso.
+IV.—Que en abril del 2014, el Comité de Naciones Unidas que vigila el cumplimiento de la citada Convención, valoró el informe inicial sobre la implementación de este tratado, presentado por el Gobierno de la República en el año 2011 y formuló observaciones y recomendaciones, precisas y claras, en este mismo sentido.
+V.—Que en función de avanzar en este proceso, el Gobierno, las Universidades públicas y privadas, el Ministerio de Educación Pública, el Ministerio de Cultura, el Consejo Nacional sobre Personas con Discapacidad (CONAPDIS) y las organizaciones de la sociedad civil, particularmente, las organizaciones de personas con discapacidad, deben reafirmar la profunda vocación y liderazgo de la sociedad costarricense a favor de lo más avanzado en materia de derechos humanos y de una educación de calidad para todos los habitantes de la Patria.
+VI.—Que el Primer Congreso Nacional de Educación Inclusiva para Personas con Discapacidad, se constituye en un espacio necesario y estratégico para alcanzar estos propósitos, puesto que convoca a participar a todos los actores institucionales y de la sociedad civil que puedan y deben aportar a ese esfuerzo nacional. Por tanto,
+Decretan:
+“DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
+DEL CONGRESO NACIONAL DE EDUCACIÓN INCLUSIVA
+PARA LAS PERSONAS CON DISCAPACIDAD”
+Artículo 1º—Se declara de interés público y nacional el Congreso Nacional de Educación Inclusiva para las Personas con Discapacidad, que se celebrará en el Campus Liberia de la Sede Regional Chorotega de la Universidad Nacional, en la provincia de Guanacaste, los días 25, 26 y el 27 de noviembre del año en curso, así como todas las actividades relacionadas con su organización, celebración y seguimiento derivado de su realización.
