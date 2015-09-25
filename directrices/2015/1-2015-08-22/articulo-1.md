@@ -1,4 +1,5 @@
 DIRECCIÓN NACIONAL DE NOTARIADO
+(Nota de Sinalevi: Mediante sesión ordinaria del 25 de setiembre de 2015, se tomo el acuerdo 2015-026-001 que ordena suspender la ejecución de la presente directriz, por un plazo de seis meses, solamente para los notarios públicos que se encuentren activos a esta fecha, con el objeto de que puedan realizar los trámites necesarios para cumplir con las obligaciones impuestas en el artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social CCSS. Cumplido el plazo mencionado, se aplicará la directriz CSN-001- 2015 para todos los casos ahí dispuestos.)
 Que el Consejo Superior Notarial, en Sesión Ordinaria celebrada el 22 de agosto de 2015, ha tomado el siguiente Acuerdo:
 ACTA 22-2015
 DEL CONSEJO SUPERIOR NOTARIAL
