@@ -1,5 +1,1 @@
-SECCION VI
-INSTRUCCIONES PARA EL CALCE DE PLAZOS
-Artículo 16- Calce de plazos
-Los fondos de inversión abiertos que utilicen el esquema de operación dispuesto en el inciso c) del artículo 64 del Reglamento general sobre sociedades administradoras y fondos de inversión deben mantener diariamente un índice de calce de plazos a un mes mayor que una unidad (1).
-El índice de calce de plazos se obtiene del cociente de los recursos líquidos entre las obligaciones del fondo, según se define en los artículos 17 y 18 de este acuerdo.
+Artículo 16. Apertura de libro de actas en forma electrónica. Para la apertura en forma electrónica del libro de actas del comité de inversión y del comité de riesgos, la entidad debe remitir a la Superintendencia General de Valores una declaración jurada rendida ante notario público por su representante legal, en donde se indique que la entidad cuenta con un sistema electrónico para el registro de las actas en forma electrónica según lo dispuesto en este capítulo.

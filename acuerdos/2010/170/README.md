@@ -16,3 +16,4 @@ Disposiciones operativas de las Sociedades Administradoras de Fondos de Inversi√
 | 1 | 2010-06-07 | la propia norma |
 | 2 | 2012-03-15 | Acuerdo 179 (2012-03-15) |
 | 3 | 2012-12-17 | Acuerdo 183 (2012-12-17) |
+| 4 | 2015-09-25 | Acuerdo 199 (2015-09-25) |

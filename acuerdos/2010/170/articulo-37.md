@@ -1,26 +1,11 @@
-Artículo 37- Rendimientos líquidos últimos 30 días y de los últimos 12 meses
-Para el cálculo de los rendimientos líquidos de los últimos 30 días y de los últimos 12 meses para los fondos inmobiliarios, de titularización y de desarrollo inmobiliario, se deben acatar las siguientes disposiciones:
-a. Cálculo del valor de participación Ajustado:
-El rendimiento líquido del fondo se calcula a partir del valor de participación contable Ajustado, definido de la siguiente forma:
-[imagen]
-En donde:
-[imagen] Ganancia (o pérdida) no realizada por la valoración de los activos al cierre del día t
-[imagen] Valor de la participación contable ajustado del fondo al cierre del día t
-b. Cálculo del rendimiento líquido anualizado últimos 30 días
-Para la determinación del rendimiento líquido y dado que este tipo de fondos distribuye periódicamente beneficios a sus inversionistas, la fórmula a utilizar sería la siguiente:
-[imagen]
-En donde:
-[imagen] Rendimiento líquido anualizado del fondo para los últimos 30 días terminados en el día t Excluye el efecto por ganancia (o pérdida) no realizada por la valoración de los activos
-[imagen] Beneficios por participación distribuidos a los inversionistas durante el mes en consideración
-c. Cálculo del rendimiento líquido anualizado últimos 30 días para fondos con menos de un mes de operación
-Cuando un fondo tenga menos de 30 días de haber iniciado operaciones utiliza la siguiente fórmula:
-[imagen]
-En donde:
-[imagen] Rendimiento total anualizado del fondo para el período que comprende desde su inicio de operaciones hasta el día t
-d. Cálculo del rendimiento líquido últimos 12 meses
-[imagen]
-f. Cálculo del rendimiento líquido últimos 12 meses para fondos con menos de un año de operación
-Cuando un fondo tenga menos de un año de haber iniciado operaciones se utiliza la siguiente fórmula:
-[imagen]
-En donde:
-[imagen] Rendimiento líquido anualizado del fondo para el período que comprende desde su inicio de operaciones hasta el día t
+Artículo 37. Normas a aplicar en la valoración financiera. El propósito del avalúo por el profesional en finanzas es obtener una estimación del valor de los inmuebles con base en el método de flujos netos de efectivo que estos generarán, la incertidumbre asociada a esos flujos, así como la evolución esperada en éstos en el futuro. De esta forma, el valor de un inmueble será el valor presente de los flujos netos de efectivo para el inversionista.
+El informe de la valoración deberá indicar en forma clara, precisa y justificada todos los supuestos que dan fundamento a la valoración y comprender, por lo menos, los siguientes elementos:
+1) Tasa de descuento: Incluir y fundamentar en forma clara y explícita los supuestos utilizados en la determinación de la tasa o tasas de descuento, explicar cómo esta tasa refleja las evaluaciones del profesional en relación a los riesgos específicos del activo para los cuales se realizan las estimaciones de flujos de efectivo futuros. Si se utiliza para el descuento la tasa meta del fondo, ésta se debe ajustar cuando el riesgo de la inversión se separe de lo que el profesional considera como normal para esos bienes inmuebles.
+2) Plazos: incluir y fundamentar en forma clara y explícita el plazo de proyección de los flujos utilizado por el profesional.
+3) Descripción de los supuestos utilizados: mostrar en forma clara y explícita los supuestos utilizados en la determinación de los ingresos y egresos de flujos esperados asociados al inmueble, cálculo de la perpetuidad, valor terminal o residual, tasas de ocupación esperadas, así como los supuestos referentes al plazo en que comenzarán a generar rentas los inmuebles nuevos o los inmuebles que se encuentren desocupados.
+4) Descripción de las características de los contratos de arrendamiento: en caso de que los contratos hayan considerado opciones de compra, se debe revelar las condiciones de lo pactado y la forma en que esta información fue incorporada en la valoración del inmueble.
+5) Análisis de riesgos: mostrar en forma clara y explícita una descripción del efecto de cambios en las variables fundamentales de la proyección sobre el valor teórico del activo y sobre el rendimiento que se ha estimado. Se debe incluir también cualquier otro factor según el criterio del profesional, pueda incidir en el resultado de la valoración y, consecuentemente, sobre las decisiones de inversión.
+6) Historial de ocupación e ingresos: suministrar información estadística agregada sobre el comportamiento histórico del nivel de ocupación real del inmueble, para un periodo que comprenda como mínimo los dos años anteriores a la fecha de la valoración, cuando aplique.
+7) Flujo de efectivo.
+8) Resumen del proceso de valoración. Hacer referencia clara de sus alcances, limitaciones y dificultades que puedan haber incidido significativamente en los resultados, entre ellos, la existencia de opciones de compra; si las hubiese. En las valoraciones posteriores a la inicial, cuando es el mismo valorador, se debe indicar los supuestos relevantes que cambiaron respecto al periodo anterior y que afectaron significativamente el nuevo valor determinado.
+9) Revelaciones de conformidad con lo establecido en el artículo 38.

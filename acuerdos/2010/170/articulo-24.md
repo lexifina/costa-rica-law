@@ -1,4 +1,2 @@
-Artículo 24- Estados de cuenta corporativos
-El estado de cuenta de los fondos de inversión autorizados por la Superintendencia General de Valores, puede incluirse en un estado de cuenta general, si el grupo financiero al que pertenece la sociedad tiene la política de remitir un estado que incluya información de todos los productos en los que participa el inversionista.
-Si el inversionista participa en dos o más fondos de una misma sociedad administradora, esta puede elaborar un estado de cuenta que incorpore la información de cada uno de los fondos.
-En ambos casos se debe respetar el contenido mínimo establecido en el artículo anterior.
+Artículo 24. Contenido mínimo del Informe Trimestral. El informe trimestral de fondos de inversión debe incorporar el contenido mínimo definido en el Anexo III a este Acuerdo.
+Una sociedad administradora puede presentar información adicional a la requerida en este artículo, siempre y cuando se explique adecuadamente al inversionista en el documento, el significado de la información adicional que se ofrece y una descripción de cómo se obtuvo la información en el caso de incorporar cálculos o indicadores matemáticos. En todo caso se debe considerar que dicha información adicional no puede sustituir a la que por normativa debe incluirse en el informe trimestral.

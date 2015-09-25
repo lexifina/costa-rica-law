@@ -1,4 +1,15 @@
-SECCIÓN III
-INFORME TRIMESTRAL
-Artículo 29- Periodicidad del Informe Trimestral. La sociedad debe remitir a los inversionistas un informe con una periodicidad trimestral dentro del plazo de quince días hábiles posteriores al cierre del 31 de marzo, 30 de junio, 30 de setiembre y 31 de diciembre de cada año. No se requiere de la presentación de este informe en el caso de fondos de capital de riesgo.
-(Así reformado por el artículo 2° del acuerdo SGV-A-179 del 15 de marzo del 2012)
+Artículo 29. Rendimientos líquidos últimos 12 meses
+Para el cálculo de los rendimientos líquidos de los últimos 12 meses para los fondos inmobiliarios y de desarrollo inmobiliario, se deben acatar las siguientes disposiciones:
+a. Cálculo del valor de participación Ajustado:
+El rendimiento líquido del fondo se calcula a partir del valor de participación Ajustado, definido de la siguiente forma:
+[imagen]
+En donde:
+𝐺𝑃𝑡 Ganancia (o pérdida) no realizada por la valoración de los activos al cierre del día t.
+𝑉𝑃𝐿𝑡 Valor de la participación ajustado del fondo al cierre del día t.
+b. Cálculo del rendimiento líquido últimos 12 meses
+[imagen]
+c. Cálculo del rendimiento líquido últimos 12 meses para fondos con menos de un año de operación
+Cuando un fondo tenga menos de un año de haber iniciado operaciones se utiliza la siguiente fórmula:
+[imagen]
+En donde:
+𝑅𝐴𝐿∗𝑡: Rendimiento líquido anualizado del fondo para el período que comprende desde su inicio de operaciones hasta el día t.

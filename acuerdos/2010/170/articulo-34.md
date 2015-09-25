@@ -1,3 +1,7 @@
-Artículo 34- Aviso de oferta pública
-La autorización de oferta pública es comunicada mediante Comunicado de Hecho Relevante con el contenido establecido en el Anexo II. Dicho comunicado debe ser efectuado a más tardar quince días hábiles posteriores a la carta de cumplimiento de requisitos finales. En caso de que la sociedad administradora utilice otro medio de comunicación para informar sobre la autorización de oferta pública debe cumplir con el contenido indicado en el Anexo II.
-Esta disposición aplica para la comunicación de autorizaciones de sustitución de una sociedad administradora.
+Artículo 34. Plazo de permanencia de inversionistas
+El plazo de permanencia de los inversionistas muestra el plazo (en años) que en promedio los inversionistas han permanecido en el fondo de inversión, solo es aplicable para los fondos abiertos. Para el cálculo se deben acatar las siguientes disposiciones:
+[imagen]
+En donde:
+𝑃𝑃𝐼: Plazo promedio de permanencia de inversionistas para el año que termina el día t (expresado en años)
+𝑀𝑅: Monto de retiros solicitados por los inversionistas durante el año que termina el día t. No se incluyen las reinversiones, las cuales implican el reembolso de las participaciones de un inversionista con su correspondiente inversión el mismo día y fondo, por igual monto.
+𝐴𝑁̅̅̅̅: Activo neto promedio del fondo durante el año que termina el día t

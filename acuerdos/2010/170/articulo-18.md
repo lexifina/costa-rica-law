@@ -1,6 +1,2 @@
-Artículo 18- Obligaciones
-Las obligaciones a un mes corresponden a la suma de los siguientes elementos:
-a. Total de sobregiros y comisiones por pagar.
-b. Total de cuentas por pagar, excepto la partida de “sumas recibidas de inversionistas por invertir” del balance general de fondo.
-c. Porción de los préstamos de corto plazo y pasivos de largo plazo con vencimiento a un mes.
-d. Porción del activo neto que se espera sea exigida en el plazo de un mes, de conformidad con lo dispuesto en el artículo 19 de este acuerdo.
+Artículo 18. Reposición parcial o total del libro de actas físico. Cuando un libro de actas en curso y previamente legalizado por la Superintendencia, se extravíe, destruya, inutilice, sea sustraído o se deteriore, total o parcialmente, la entidad debe presentar la respectiva solicitud de reposición en donde se detallen los hechos ocurridos así como efectuar una publicación en el Diario Oficial La Gaceta o en algún diario de circulación nacional, en el que se indique: el nombre del fondo de inversión y su sociedad administradora, número de los libros o folios a reponer y mencionar que la solicitud de la reposición se está gestionando ante la Superintendencia.
+Posteriormente, debe indicar a la Superintendencia el nombre del diario, fecha de publicación y número de página, con el propósito de verificar las fechas de los avisos.

@@ -1,12 +1,5 @@
-Artículo 19- Determinación de reembolsos esperados en el activo neto
-La porción de activo neto que se espera sea exigida en los plazos de un mes se obtiene de la siguiente manera:
-[imagen]
-En donde:
-[imagen] Porción del activo neto que se espera sea exigida en el plazo de un mes en el día t.
-[imagen] Monto de retiros solicitados por los inversionistas durante el año que termina el día t. No se incluyen las reinversiones, las cuales implican el reembolso de las participaciones de un inversionista con su correspondiente inversión el mismo día y fondo, por igual monto.
-[imagen] Activo neto del fondo al cierre del día t.
-[imagen] Activo neto promedio del fondo durante el año que termina el día t.
-Un procedimiento alternativo para obtener el monto de la porción del activo neto que se espera sea exigida en los plazos de un mes consiste en aplicar la siguiente fórmula:
-[imagen]
-En donde:
-[imagen] Plazo promedio de permanencia de inversionistas para el año que termina el día t (expresado en años).
+Artículo 19. Cierre definitivo o renovación del libro de actas físico. Al finalizar el libro de actas físico debe presentarse nuevamente para su cierre oficial a la Superintendencia General de Valores, en un plazo que no puede ser superior a diez días hábiles contados a partir de la fecha de celebración de la sesión de la última acta que se incluye en el libro. Para tal efecto debe dejarse al menos la mitad del último folio del libro sin escribirse. En caso de que existieran folios en blanco, el interesado debe trazar una línea diagonal con tinta de un extremo al otro. Posterior al cierre, el libro debe permanecer en depósito en la entidad.
+En caso de que la entidad requiera renovar el libro de actas debe cumplir con lo indicado en el párrafo anterior y debe adjuntar un nuevo libro para su legalización según lo indicado en el artículo 17.
+En caso de que el libro presentado para cierre no incluya la totalidad de los folios correspondiente al tomo legalizado, debe presentarse una declaración jurada rendida ante notario público del representante legal de la entidad en donde se indique si los folios extraviados fueron utilizados, en cuyo caso debe hacer referencia al contenido de los mismos. En caso de que los folios no hayan sido utilizados debe emitirse una declaración jurada rendida ante notario público en este sentido.
+Aquellos libros presentados para cierre que no cumplan con lo establecido en los artículos 14 y 17 del presente Acuerdo o que presenten otro tipo de irregularidades, se devolverán a la entidad con el fin de que subsane los defectos que sean señalados en el oficio de devolución. Dicha situación se hará constar en la razón de cierre y de ser el caso, el Superintendente puede valorar la situación y proceder en los términos establecidos por la normativa vigente.
+En ningún caso se hará la apertura de un nuevo libro de actas sin que se haya realizado el cierre del último libro autorizado.

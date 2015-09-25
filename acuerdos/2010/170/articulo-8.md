@@ -1,5 +1,6 @@
-Artículo 8- Documentación de las suscripciones y reembolso de participaciones en los fondos abiertos
-Adicionalmente a la instrucción del cliente, la suscripción y reembolso de participaciones debe acompañarse de la documentación de su ejecución, que debe incluir como mínimo:
-a. Suscripción de participaciones: código y nombre del cliente, fecha y hora de la orden, fondo en el cual invierte, monto invertido, número de participaciones adquiridas, el precio de participación y descripción de los valores recibidos.
-b. Reembolso de participaciones: código y nombre del cliente, fecha y hora de la orden, fondo del cual se solicitó la liquidación, monto reembolsado, número de participaciones reembolsadas, el precio de participación, y cuando aplique monto de la comisión de salida y monto de la compensación por reembolso anticipado.
-Una vez ejecutada la orden de suscripción o reembolso de participaciones, la sociedad administradora o entidad comercializadora debe remitir dicha información a la dirección electrónica que el inversionista haya consignado en el expediente o, en su defecto, remitirla a la dirección física. Se debe mantener evidencia del envío de esta información al inversionista por al menos un año.
+Artículo 8. Gestión de la cartera de activos de los fondos de inversión. En la gestión de portafolios se cumplen los lineamientos establecidos en la normativa vigente, el prospecto y por el Comité de Inversión. Al respecto existen actividades de control para:
+a. Verificar el cumplimiento de la estrategia de inversión definida para cada fondo de inversión.
+b. Documentar las decisiones de inversión que se dirigen a los intermediarios que ejecutan las transacciones.
+c. Verifica la debida actuación del gestor de portafolios para prevenir y evitar conductas inapropiadas.
+d. Analizar la información disponible del mercado, para identificar tendencias que coadyuven en la gestión de la cartera de inversión en aras de optimizar la composición y el rendimiento del portafolio.
+e. Gestionar los potenciales conflictos de interés que surgen de las transacciones del fondo de inversión.

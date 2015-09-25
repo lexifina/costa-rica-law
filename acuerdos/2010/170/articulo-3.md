@@ -1,4 +1,6 @@
-Artículo 3- Contratación de servicios
-La sociedad puede subcontratar a un tercero la prestación de servicios operativos y servicios administrativos. En tal caso, se deben firmar los contratos correspondientes que incluyan un desglose de los servicios contratados, los deberes y obligaciones de cada una de las partes, y los costos respectivos, velando por el cumplimiento de lo establecido en la normativa.
-La sociedad debe tomar las previsiones del caso para garantizar la confidencialidad de la información, tanto de la entidad como de los inversionistas, así como el cumplimiento de los deberes y obligaciones de los servicios contratados
-La sociedad debe conservar la documentación relativa a los contratos incluyendo aquella que demuestre la idoneidad de la persona (física o jurídica) contratada. La contratación de entidades, no exime a la sociedad administradora de la responsabilidad establecida en el artículo 73 de la Ley Reguladora del Mercado de Valores.
+Artículo 3. Procesos clave. La administración identifica los procesos clave y sus riesgos asociados por las funciones que asume como administrador de fondos de inversión, en todas las actividades que realiza. Para estos procesos clave la administración considera:
+a. Definir Políticas y Procedimientos que le permiten gestionar los procesos claves y minimizar los riesgos que se asumen en su ejecución.
+b. Establecer una adecuada segregación de funciones y niveles de aprobación de las transacciones, así como los medios que permitan dejar evidencia documental de cada aspecto.
+c. Asegurar a través de los procedimientos establecidos, el cumplimiento de la regulación vigente, los códigos, las políticas y la planificación estratégica de la sociedad.
+d. Actualizar las Políticas y Procedimientos así como el sistema de control interno una vez que se identifiquen las áreas que requieran de mejoras o nuevos riesgos.
+e. Mantener la información documental de las Políticas y Procedimientos, su fecha de aprobación y comunicación a los responsables de aplicarlas.

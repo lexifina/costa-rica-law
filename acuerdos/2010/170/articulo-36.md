@@ -1,32 +1,12 @@
-Artículo 36- Rendimientos totales últimos 30 días y de los últimos 12 meses
-Para el cálculo de los rendimientos totales de los últimos 30 días y de los últimos 12 meses para cualquier tipo de fondo de inversión, se deben acatar las siguientes disposiciones: a. Cálculo del valor de participación:
-El rendimiento del fondo se calcula a partir del valor de participación contable, definido de la siguiente forma:
-[imagen]
-En donde:
-[imagen] Activo neto del fondo al cierre del día t
-[imagen] Participaciones al cierre del día t
-[imagen] Valor de participación contable del fondo al cierre del día t
-b. Cálculo del rendimiento total anualizado últimos 30 días
-El rendimiento anualizado de los últimos 30 días del fondo se calcula de la siguiente forma:
-[imagen]
-En donde:
-[imagen] Rendimiento total anualizado del fondo para los últimos 30 días terminados en el día t
-[imagen] Valor de participación contable del fondo al cierre del día t En el caso de los fondos que distribuyen beneficios en forma periódica, al valor de participación (VPt) se le adicionan los beneficios distribuidos por participación durante los últimos 30 días (VPt + B)
-[imagen] Valor de participación contable del fondo al cierre del día t-30. En el cálculo se considera un conteo de días naturales.
-c. Cálculo del rendimiento total anualizado últimos 30 días para fondos con menos de un mes de operación
-Cuando un fondo tenga menos de 30 días de haber iniciado operaciones utiliza la siguiente fórmula:
-[imagen]
-En donde:
-[imagen] Rendimiento total anualizado del fondo para el período que comprende desde su inicio de operaciones hasta el día t
-[imagen] Valor de participación contable calculado para el primer día de operación del fondo
-n | Número de días de operación del fondo
-d. Cálculo del rendimiento total últimos 12 meses
-El rendimiento de los últimos 12 meses del fondo se calcula de la siguiente forma:
-[imagen]
-En donde:
-[imagen] Rendimiento total del fondo para los últimos 12 meses terminados en el día t
-e. Cálculo del rendimiento total últimos 12 meses para fondos con menos de un año de operación
-Cuando un fondo tenga menos de un año de haber iniciado operaciones se utiliza la siguiente fórmula:
-[imagen]
-En donde:
-[imagen] Rendimiento total del fondo para el período que comprende desde su inicio de operaciones hasta el día t
+Artículo 36. Normas a aplicar en la práctica del avalúo. El propósito del avalúo es determinar un valor razonable del inmueble, entendiéndose éste como el valor estimado al que un activo se debe intercambiar en la fecha de valoración entre un comprador y un vendedor dispuestos en una transacción en condiciones de plena competencia, después de una comercialización adecuada donde las partes han actuado con conocimiento, prudencia y sin coacción.
+Este tipo de avalúo debe incluir aspectos necesarios para la correcta identificación y ubicación del inmueble e indicar en forma clara, precisa y justificada todos los supuestos que dan fundamento a la valoración y comprender, al menos, los siguientes elementos:
+1) Análisis de las características del inmueble, que incluya al menos
+a) Situación legal: detallar los aspectos registrales y legales del inmueble.
+b) Características físicas: descripción de los datos necesarios que permitan una correcta identificación del inmueble y se indiquen sus características generales a la fecha de valoración (estado, tipo de calidad de construcción, estructura, vida útil y edad, entre otros).
+c) Características de la zona: descripción de la zona donde se ubica el inmueble y de los servicios y otras facilidades que están disponibles.
+d) Otras características: cualquier otra característica o información sobre el inmueble que de acuerdo con el criterio del profesional pueda incidir significativamente sobre el nivel de ocupación, el valor de la propiedad o pueda ser relevante para tomar una decisión de inversión o desinversión.
+2) Análisis comparativo de mercado:
+i. Revelación de la información sobre el valor de transacciones cerradas de propiedades similares realizadas en forma reciente. El profesional debe revelar cuáles son las características y antigüedad que consideró como elementos razonables para realizar la comparación.
+ii. Si la información de mercado se obtiene únicamente de ofertas de venta y no de transacciones cerradas, se debe revelar tal limitación al alcance del estudio realizado.
+3) Resumen del proceso de valoración. Hacer referencia clara de sus alcances, limitaciones y dificultades que puedan haber incidido significativamente en los resultados. En las valoraciones posteriores a la inicial, se debe indicar los elementos relevantes que cambiaron respecto al periodo anterior y que afectaron significativamente el nuevo valor determinado.
+4) Revelaciones de conformidad con lo establecido en el artículo 38.

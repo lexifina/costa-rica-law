@@ -1,9 +1,3 @@
-Artículo 17- Recursos líquidos
-Los recursos líquidos que se consideran en el calce corresponden a la suma de los siguientes elementos:
-a. Efectivo.
-b. Inversiones en fondos del mercado de dinero.
-c. Inversiones en otros fondos de inversión de largo plazo abiertos con cuyo plazo de liquidación o reembolso no supere el plazo de reembolso mínimo establecido en el prospecto del fondo.
-d. Valores de deuda con vencimiento hasta un mes.
-e. Valores estandarizados de deuda que se ubiquen en las categorías de alta y media bursatilidad o categorías equivalentes, según el Índice de Bursatilidad de una metodología de valoración registrada ante la Superintendencia General de Valores, que le restan para el vencimiento un plazo mayor a un mes y que no se encuentren comprometidas como garantía de operaciones de reporto tripartito u otras operaciones.
-f. Valores emitidos por el Tesoro de los Estados Unidos de América, que le restan para el vencimiento un plazo mayor a un mes y que no se encuentren comprometidas como garantía de operaciones de reporto tripartito u otras operaciones.
-g. Operaciones de reporto tripartito con posición vender a plazo, que le restan para el vencimiento un plazo igual o menor a un mes.
+Artículo 17. Libro de actas físico de asamblea de inversionistas. Los libros de actas de asamblea de inversionistas de los fondos cerrados pueden ser encuadernados o de hojas sueltas pero, en ambos casos, deben contar con portada y contraportada de pasta dura, con los folios numerados de forma consecutiva iniciando por el número 1 y en perfecto estado de conservación y limpieza. Deben presentarse para su legalización por parte de la Superintendencia General de Valores, en forma previa la utilización del mismo.
+En la primera página de cada libro se consignará una razón de apertura donde conste el número del tomo del libro, los folios que contiene, la fecha, el nombre del fondo de inversión.
+Para corregir errores de escritura en la información consignada en el libro, se realizará una razón al pie del documento o al margen de éste con la indicación expresa de lo que se corrige, ratificada con la firma de quienes lo hicieron en el documento principal.

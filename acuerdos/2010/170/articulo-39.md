@@ -1,3 +1,12 @@
-Artículo 39- Otros Rendimientos en el caso de fondos cerrados
-Los fondos cerrados pueden reportar en forma adicional el rendimiento total calculado con base en el precio de las participaciones negociadas en mercado secundario. La sociedad debe revelar claramente que se trata de un cálculo de rentabilidad obtenido a partir de las observaciones de precio de las participaciones en el mercado secundario de valores.
-El cálculo de los rendimientos con base en el precio de las participaciones negociadas en mercado secundario, se realiza utilizando las fórmulas descritas en el artículo 36 de este acuerdo, para lo cual la sociedad administradora debe utilizar el precio de la participación en el mercado secundario en lugar del valor de la participación contable.
+CAPÍTULO VI
+OTRAS DISPOSICIONES
+INSTRUCCIONES SOBRE NOTAS ESTRUCTURADAS
+Artículo 39. Tipos de notas estructuradas autorizadas. Las notas estructurados son definidas como un activo financiero híbrido que combina instrumentos de tasa fija y una serie de instrumentos derivados. Al momento de evaluar estos instrumentos, previo a su incorporación a un fondo de inversión, las entidades obtienen un conocimiento suficiente de las notas estructuradas que le permita tomar una decisión de inversión fundamentada. Este conocimiento se documenta en un informe que contenga el análisis de sus características y riesgos.
+Los tipos de notas estructuradas autorizadas son aquellas cuyo desempeño depende de los cambios en:
+a. Una tasa de interés.
+b. El precio de un instrumento financiero.
+c. El precio de una materia prima cotizada.
+d. Un tipo de cambio.
+e. Un índice de precios.
+f. Una calificación o en un índice crediticio.
+g. Dos o más tipos de cambios indicadas en los incisos a) al f) anteriores.
