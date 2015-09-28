@@ -60,8 +60,11 @@ Gerente General 100%
 Subgerentes 100%
 Director de División (1) 100%
 Gerente de División (1) y (2) 100%
+Gerente local del Proyecto K 75 %
 Gerentes de zona área comercial (1) y (2) 50%
-6. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen funcionarios u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
+(Así reformado el punto 5) anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
+6. 6. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen funcionarios u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
+(Así reformado el punto 6) anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
 Notas:
 (1) Informando a superior inmediato.
 (2) Únicamente en su ámbito de acción.

@@ -164,7 +164,8 @@ Depósito cuenta en colones 1.0%, mínima $10.00
 (Así reformado el punto 2.41) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.40) el texto coincide con el punto 2.41))
 2.42. Comisión por retiro anticipado de un plan de ahorro automático
 3% sobre el monto ahorrado
-(Así reformado el punto 2.42) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.41) el texto coincide con el punto 2.42))
+Se exceptúa del cobro de esta comisión los planes de ahorro automático asociados al Proyecto K, a plazos inferiores a 12 meses.
+(Así reformado el punto 2.42) anterior mediante sesión N° 42-15 del 28 de setiembre del 2015. No obstante la reforma indica que es al punto 2.41) el texto coincide con el punto 2.42))
 2.43- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
 (Así reformado el punto 2.43) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.42) el texto coincide con el punto 2.43))

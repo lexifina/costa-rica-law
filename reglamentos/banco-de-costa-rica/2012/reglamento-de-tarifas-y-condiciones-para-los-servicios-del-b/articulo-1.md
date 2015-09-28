@@ -3,9 +3,10 @@ BANCO DE COSTA RICA
 La Junta Directiva General del Banco en sesión 47-12, artículo VI, del 12 de noviembre de 2012 aprobó la modificación del Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica:
 1. Productos de colocación
 Productos de colocación
-1.1. Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo.
-Colones y dólares: de 0.00% a un máximo del 5%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, el gerente general, subgerentes, directores comerciales y gerentes de división.
+1.1.- Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo
+Colones y dólares: de 0.00% a un máximo del 5%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, el gerente general, subgerentes, directores comerciales, gerentes de división y gerente local asignado al Proyecto K.
 Aplica para todas las modalidades de créditos directos y créditos abiertos.
+(Así reformado el producto anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
 Notas:
 1- Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas al vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
 Para créditos abiertos se cobrará cada vez que se realice una operación derivada del contrato de crédito abierto.

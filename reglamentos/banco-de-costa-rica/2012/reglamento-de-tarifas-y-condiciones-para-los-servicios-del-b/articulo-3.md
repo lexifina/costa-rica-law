@@ -3,10 +3,14 @@
 $10.00
 Nota: Para los productos de compras institucionales y BCR Distribución no pagarán comisión por reemplazo. En aquellos casos donde la sustitución de la tarjeta sea por deterioro y el mismo no pueda ser atribuido al tarjetabiente; así también por motivos de seguridad en que el Banco requiera realizar el cambio de tarjetas; no se pagará la comisión establecida en este ítem. En caso de robo, si el cliente presenta copia de la denuncia interpuesta ante el Organismo de Investigación Judicial, se le eximirá del cobro de la comisión por reemplazo.
 (Así reformado el punto 3.1) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.2.- Comisión por adelanto de efectivo
+3.2. Comisión por adelanto de efectivo
 Tarjetas de crédito
 $1.00 + 4 % por avance efectivo utilizando cualquier medio disponible.
 Por los avances de efectivo de la BCR Compras institucionales, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente a fin de mes, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente.
+(Así reformado el producto anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
+Tarjetas de crédito del Proyecto K
+$1.00 + 4 % por avance efectivo utilizando cualquier medio disponible, excepto cuando se realice mediante los ATM’s BCR y en la tienda virtual del Proyecto K.
+(Así adicionado el producto anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
 Tarjetas de débito
 • $0.25 por avance efectivo en ATM´S del BCR después del quinto retiro en el mes, solamente en las cuentas cuyo saldo promedio semestral sea inferior a los $350.00.
 • $0.50 por avances efectivo en ATM´S dentro de los convenios que tenga el BCR (ATH y BNCR) y $0.25 para las consultas.
@@ -30,7 +34,8 @@ $5.00
 Se cobra esta tarifa cuando el cliente ha olvidado el PIN, pero si se le sustituye por problemas atribuibles al Banco no se le deberá cobrar.
 Para los productos de compras institucionales del BCR, no pagarán comisión por reemplazo.
 3.7.- Comisión por servicios administrativos en tarjetas de débito
-$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, Anafa y Distribución.
+$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, Anafa, Distribución y tarjeta de débito del Proyecto K.
+(Así reformado el punto 3.7) anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
 3.8.- Comisión por solicitud de copia de voucher
 $11.50 por voucher consultado a otros procesos o emisores.
 (Así reformado el punto 3.8) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
