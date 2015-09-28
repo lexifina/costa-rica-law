@@ -1,3 +1,2 @@
-CAPÍTULO VII
-Transitorios
-Artículo 73º—Deróguese el Reglamento Interno de Sesiones y Acuerdos Municipales, publicado en La Gaceta Nº 108 del día jueves 6 de junio de 2002 e igualmente toda norma o acuerdo municipal que se le oponga al presente Reglamento.
+Artículo 73.- Las sesiones municipales podrán ser grabadas, dichas grabaciones serán de uso exclusivo del Concejo y la administración, en caso de que se necesite verificar los acuerdos tomados. Por tal razón las grabaciones se mantendrán durante veintidós días naturales para cualquier consulta, de previo a aprobar el acta respectiva. Transcurrido ese tiempo serán eliminadas.
+(Así adicionado mediante sesión ordinaria N° 260 del 28 de setiembre del 2015)
