@@ -1,0 +1,1 @@
+Artículo 51.—La Junta Directiva del Comité Comunal será designada en la sesión inaugural, tendrá iguales cargos y desempeñarán iguales funciones que para esos mismos, tiene la Junta Directiva del Comité Cantonal.

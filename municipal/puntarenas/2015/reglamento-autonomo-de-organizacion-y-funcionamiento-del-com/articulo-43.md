@@ -1,0 +1,1 @@
+Artículo 43.—Las actas aprobadas deberán llevar obligatoriamente las firmas del presidente y del secretario de la Junta Directiva del Comité. El Libro de Actas será autorizado por el Concejo Municipal y las hojas serán selladas y foliadas por éste.

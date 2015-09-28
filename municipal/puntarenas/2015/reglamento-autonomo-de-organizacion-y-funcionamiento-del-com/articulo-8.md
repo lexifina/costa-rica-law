@@ -1,0 +1,8 @@
+Artículo 9º—Los miembros de la Junta Directiva del Comité Cantonal de Deportes y Recreación de Puntarenas serán destituidos y/o removidos de sus cargos por el Concejo Municipal cuando incurran en inobservancia de cualquiera de las obligaciones y/o prohibiciones que les impone o limitaciones establecidas por la ley y el presente Reglamento.
+Para tal efecto, deberá emplear el siguiente procedimiento: una vez que el Concejo tenga conocimiento de la causal por cualquier medio, deberá iniciar el debido proceso mediante el nombramiento de tres de sus miembros, quienes deberán sustanciar el debido proceso y deberán entregar su informe final en un plazo improrrogable de un mes calendario, contado a partir del inicio de dicho procedimiento. El Concejo deberá resolver por acto final en el plazo improrrogable de dos meses, contados a partir del momento en que tuvo conocimiento de la existencia de la causal. Y el órgano conformado en caso de destitución de uno o varios de los miembros del Comité Cantonal, la sustitución de éstos se hará en las siguientes condiciones:
+a) El sustituto desempeñará el cargo correspondiente, por el tiempo que falte para completar el período en que fue nombrado el titular destituido.
+b) La sustitución de un miembro se obtendrá de una terna.
+c) La sustitución de dos miembros se hará de una nómina de cinco personas.
+d) La sustitución de tres miembros se hará de una nómina de siete personas.
+e) En caso de que sean más de tres miembros que deban sustituirse, se sigue el procedimiento correspondiente al nombramiento completo, establecido por este artículo y en el artículo 8º del presente Reglamento
+f) De acuerdo a la representación que lo escogió o de donde surgió el nombramiento inicial.

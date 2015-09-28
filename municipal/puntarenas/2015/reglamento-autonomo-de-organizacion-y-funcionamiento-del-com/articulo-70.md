@@ -1,0 +1,1 @@
+Artículo 70.—Los Subcomités de Deportes están obligados a presentar trimestralmente un informe financiero y de labores, ante el respectivo Comité Comunal, que deberá conocerlo y pronunciarse al respecto, en la sesión ordinaria o extraordinaria inmediata siguiente al recibo del mismo.

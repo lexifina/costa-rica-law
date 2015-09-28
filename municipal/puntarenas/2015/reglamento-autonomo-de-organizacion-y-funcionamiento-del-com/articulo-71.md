@@ -1,0 +1,1 @@
+Artículo 71.—Los Subcomités de Deportes están obligados a respetar las disposiciones emanadas del respectivo Comité Comunal, del Comité Cantonal y de este Reglamento en los que le fuere aplicable. El incumplimiento de esta disposición será causal de revocatoria del nombramiento.

@@ -1,0 +1,1 @@
+Artículo 99.—Todos aquellos aspectos no regulados en este Reglamento, serán resueltos por el Comité Cantonal, de conformidad con la sana crítica de sus miembros, no obstante la resolución que se dicte en tales casos, deberá ser aprobada por el Concejo, para su debida incorporación al Reglamento.

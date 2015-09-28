@@ -1,0 +1,1 @@
+Artículo 82.—Se prohíbe el uso de carácter personal de dineros provenientes de ingresos por actividades deportivas o recreativas. Quien incurra en inobservancia de esta prohibición, será expulsado del órgano correspondiente, debiendo reintegrar en un sólo tracto el dinero que hubiese utilizado.

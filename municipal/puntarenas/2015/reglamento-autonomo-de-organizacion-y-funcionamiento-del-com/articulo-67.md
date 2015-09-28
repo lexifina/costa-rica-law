@@ -1,0 +1,1 @@
+Artículo 67.—Para la realización de torneos internos del Distrito, el Comité Comunal debe confeccionar el respectivo reglamento y cuya eficacia dependerá de que sea aprobado previamente por el Comité Cantonal.

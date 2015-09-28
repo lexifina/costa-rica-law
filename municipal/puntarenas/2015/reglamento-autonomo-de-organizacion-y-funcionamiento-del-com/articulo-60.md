@@ -1,0 +1,1 @@
+Artículo 60.—Los Comités Comunales deberán llevar un registro actualizado de los nombres de los miembros de los Subcomités de Deportes, incluyendo en éste el nombre, calidades y dirección exacta. Asimismo, deberán llevar un archivo financiero y administrativo en el que consten los informes, referentes a cada uno de estos aspectos.

@@ -1,0 +1,3 @@
+Artículo 100.—Con fundamento en el artículo 43 del Código Municipal, el presente proyecto de Reglamento se someterá a consulta popular no vinculante, por el término de diez días hábiles, a través de la publicación del mismo en el Diario Oficial La Gaceta, término durante el cual los interesados deberán presentar sus manifestaciones por escrito, en memorial razonado, ante el despacho del señor Alcalde Municipal, ubicado en el edificio de la Municipalidad.
+Puntarenas 2013.—Comisión de Reglamentos. Concejo Municipal. Municipalidad de Puntarenas.
+Aprobado por el Concejo Municipal en la Sesión Ordinaria N° 471 celebrada el día 20 de julio del 2015, en su artículo 7° Inciso A).
