@@ -14,3 +14,4 @@ Reglamento al Régimen de Dedicación Exclusiva de la Municipalidad de Esparza
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-17 | la propia norma |
+| 2 | 2015-09-28 | Reglamento municipal 0 (2015-09-28) |

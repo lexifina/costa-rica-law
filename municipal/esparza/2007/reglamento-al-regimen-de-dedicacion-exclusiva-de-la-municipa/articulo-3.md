@@ -1,9 +1,10 @@
 CAPITULO II
 De los beneficiarios
-Artículo 3º—Podrán acogerse al Régimen de Dedicación Exclusiva en forma voluntaria, todos aquellos trabajadores que cumplan con los siguientes requisitos:
-a) Que sean profesionales con el grado de bachiller universitario como mínimo y que se encuentre incorporado al Colegio Profesional respectivo, si lo hubiere.
-b) Que ocupen un puesto, para el cual se requiere la condición académica mencionada en el inciso anterior.
-c) Que no estén recibiendo compensación por concepto de prohibición del ejercicio profesional
-d) Que laboren a tiempo completo con la Municipalidad de Esparza
-e) Que esté nombrado en propiedad.
+Artículo 3º-Podrán acogerse al Régimen de Dedicación Exclusiva en forma voluntaria, todos aquellos trabajadores que cumplan con los siguientes requisitos:
+a) Que sean profesionales con el grado de bachiller universitario como mínimo y que se encuentren incorporados al Colegio Profesional respectivo, si lo hubiere.
+b) Que ocupen un puesto, para el cual se requiere la condición académica mencionada en el inciso anterior y que el título académico que ostenta el funcionario sea acorde con las funciones, tareas y responsabilidades del puesto desempeñado, según el Manual Descriptivo de Puestos vigente para la Municipalidad de Esparza.
+c) Que no estén recibiendo compensación por concepto de prohibición del ejercicio profesional.
+d) Que laboren a tiempo completo con la Municipalidad de Esparza.
+e) Que estén nombrados en propiedad.
 f) Que firmen el contrato respectivo con la Municipalidad de Esparza.
+(Así reformado en acta número setenta y cuatro del 28 de setiembre de 2015)
