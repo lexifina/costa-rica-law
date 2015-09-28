@@ -14,3 +14,4 @@ Reglamento de Metodología de Fijación de Tasa Municipales del Cantón Central 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-30 | la propia norma |
+| 2 | 2015-09-28 | Reglamento municipal 488 (2015-09-28) |
