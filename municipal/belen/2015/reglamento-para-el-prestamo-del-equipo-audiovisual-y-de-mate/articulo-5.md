@@ -1,0 +1,9 @@
+CAPÍTULO SEGUNDO
+Del Procedimiento de Préstamo
+Artículo 5º—Procedimiento: Para autorizar préstamo de equipo audiovisual y material, los usuarios deberán cumplir el siguiente procedimiento:
+a) Se entenderá como usuario, aquella persona representante de alguna agrupación juvenil-sin distingo de si es religiosa, estudiantil, política, deportiva, cultural, ambiental, ecologista, activista en pro derechos humanos que se encuentre debidamente registrada como tal por la Municipalidad de Belén, avalada por el CCPJ-Belén y/o del Concejo Municipal de Belén por acuerdo.
+b) Se entenderá como representante del CCPJ-Belén, aquel miembro activo de la junta directiva vigente del período en que se realiza el trámite.
+c) No se autorizará el equipo a aquellas personas que no califiquen como usuarios. Se define como usuario a la persona joven de 18 a 35 años que forme parte de la junta directiva del CCPJ-Belén, y a personas jóvenes de organizaciones juveniles que cuenten con el aval del CCPJ-Belén y/o del Concejo Municipal de Belén.
+d) Para solicitar el préstamo del equipo deberá llenarse y entregarse personalmente en la Municipalidad de Belén, presentando su cédula de identidad, una boleta de solicitud firmada por el representante de la organización, con al menos tres días hábiles de antelación a la fecha requerida por el usuario.
+e) La persona encargada de la Municipalidad de Belén notificará de inmediato al representante del CCPJ-BELÉN para que se apersone en el menor tiempo posible a recoger la solicitud y darle trámite a la misma.
+f) En la boleta deberá indicarse, donde se utilizará el equipo y por qué plazo, además señalará un medio para recibir notificaciones, advirtiéndose que en caso contrario la solicitud será rechazada de plano y las resoluciones que en relación a la misma se dicten se tendrán por notificadas por parte del usuario solicitante con el solo transcurso de veinticuatro horas después de dictadas.

@@ -1,0 +1,1 @@
+Artículo 3º—Custodia del equipo: Con el objetivo de optimizar y ordenar el préstamo del equipo, instrumentos, mobiliario y material que estará resguardado en las instalaciones de la Municipalidad de Belén, se deberán observar las disposiciones establecidas en el presente reglamento de préstamo y uso.

@@ -1,0 +1,1 @@
+Artículo 18.—Responsabilidad por pérdida o robo: En caso de pérdida o robo la usuaria y la agrupación que representa deberá reponer el equipo y/o material por uno igual o similar, o cubrir el valor del mismo en efectivo a precio actual.

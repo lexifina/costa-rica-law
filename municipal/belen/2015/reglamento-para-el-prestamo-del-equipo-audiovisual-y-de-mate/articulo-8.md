@@ -1,0 +1,1 @@
+Artículo 8º—Equipo no retirado: A la persona se le indicará una hora determinada para recoger el equipo o material solicitado, conforme a un control de autorizaciones que al efecto llevar la persona encargada de la Municipalidad de Belén. En caso de que el equipo no sea retirado en la fecha señalada, se podrá disponer de dicho equipo para su préstamo a otra persona.

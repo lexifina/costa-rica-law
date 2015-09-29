@@ -1,0 +1,1 @@
+Artículo 6º—Identificación de la persona Usuaria: Al momento de recibir el equipo, instrumentos, mobiliario y material la persona usuaria deberá presentar su cedula de identidad y un documento idónea que acredite que ostenta la condición representante de la organización usuaria descrita en el artículo 5° inciso a) del presente reglamento.

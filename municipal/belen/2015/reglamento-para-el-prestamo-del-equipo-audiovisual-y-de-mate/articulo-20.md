@@ -1,0 +1,1 @@
+Artículo 20.—Violación a las disposiciones reglamentarias: En caso de que cualquier persona haga uso del equipo, instrumentos, o mobiliario y material, sin sujetarse a las disposiciones del presente reglamento, será expuesto a responsabilidad administrativa, civil y penal según corresponda.

@@ -1,0 +1,1 @@
+Artículo 2º—Uso del equipo: El CCPJ-BELÉN podrá hacer uso del equipo, instrumentos, mobiliario y material bajo su administración para todas aquellas actividades desarrolladas conforme a sus competencias o realizadas desde el CCPJ-BELÉN y/o por acuerdo municipal.

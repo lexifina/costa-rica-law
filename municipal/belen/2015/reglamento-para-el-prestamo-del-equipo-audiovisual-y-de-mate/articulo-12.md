@@ -1,0 +1,1 @@
+Artículo 12.—Prórroga de préstamo: Se podrá solicitar una prórroga con al menos un día de antelación al día de la devolución y quedará a criterio de la persona encargada de la Municipalidad de Belén, si la misma autoriza.

@@ -1,0 +1,1 @@
+Artículo 17.—Reparación por daños: La persona usuaria y la agrupación que representa tendrá la obligación de cubrir en su totalidad los gastos de reparación que resulten por daños, deterioro o pérdida del equipo.

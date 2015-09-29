@@ -1,0 +1,1 @@
+Artículo 11.—Plazo máximo de préstamo: El tiempo de préstamo que se autorice, dependerá del tipo de actividad para la cual se solicite el uso del equipo, en ningún caso el tiempo de préstamo excederá los tres días.

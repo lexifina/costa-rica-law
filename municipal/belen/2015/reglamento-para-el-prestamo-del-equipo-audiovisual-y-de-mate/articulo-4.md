@@ -1,0 +1,1 @@
+Artículo 4º—Consulta previa no vinculante: Para realizar modificaciones al presente reglamento, el Concejo Municipal deberá realizar de previo consulta formal no vinculante a la junta directiva del CCPJ-BELÉN.

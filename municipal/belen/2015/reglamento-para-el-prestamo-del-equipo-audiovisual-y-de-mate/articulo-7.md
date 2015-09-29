@@ -1,0 +1,1 @@
+Artículo 7º—Retiro del equipo: La persona deberá recoger y entregar el equipo personalmente y por ningún motivo se aceptará que el equipo sea recibido ni entregado por otra persona que no sea quien realizó la solicitud de préstamo.
