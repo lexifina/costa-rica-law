@@ -23,11 +23,9 @@ La reservación será confirmada hasta tanto el usuario complete los siguientes 
 4) El concesionario informa a la Administración del Parque Nacional Chirripó el pago de los derechos de alojamiento.
 5) La Administración del Parque Nacional Chirripó confirma la reservación al usuario.
 Del procedimiento:
-Primero: Las personas físicas o jurídicas que deseen obtener derechos de admisión para ingresar al Parque Nacional Chirripó, podrán hacer sus reservaciones únicamente a través de los medios autorizados y detallados en la presente resolución que son:
-1.1. Mediante la vía telefónica, a través del teléfono 2742-5083.
-1.2. Mediante la vía de reservaciones en línea, en el momento que el SINAC habilite la plataforma tecnológica correspondiente.
-1.3. De manera personal en las Oficinas Administrativas del Parque Nacional Chirripó, cuando la administración disponga de espacios que no se reservaron mediante la vía telefónica o en línea. Estos espacios solo podrán ser adquiridos el día antes o el mismo día de ingreso al parque nacional.
-(Así reformado el punto primero anterior mediante resolución N° ACLA-P-D-02-2015 del 6 de enero del 2015)
+(*)Primero: Las personas físicas o jurídicas que deseen obtener derechos de admisión para ingresar al Parque Nacional Chirripó, podrán hacer sus reservaciones únicamente a través de los medios autorizados y detallados en la presente resolución que son:
+1.1. Mediante la vía telefónica llamando al número 905-Chirrip o bien 905-2447747 para todos los usuarios a nivel Nacional y al número 506-2742-5348 para los usuarios a nivel internacional.
+(*) (Así reformado el punto primero anterior mediante resolución N° ACLA-P-D-434 del 29 de setiembre de 2015)
 Segundo: Las personas físicas o jurídicas podrán realizar una reservación para ingresar al Parque Nacional Chirripó, para un máximo de cuatro personas físicas por cualquiera de los medios autorizados. Para completar su reservación, el usuario debe aportar el nombre completo, número de cédula o pasaporte y nacionalidad de cada una de las personas que ingresarán al parque con la reservación obtenida. Así mismo, la persona que realice el trámite, debe aportar un número de teléfono y correo electrónico, a través del cual se le pueda brindar o solicitar información por parte del encargado de reservaciones.
 Tercero: Las personas físicas o jurídicas, podrán realizar las reservaciones para una estadía máxima en el Parque Nacional Chirripó de dos noches y tres días en la época seca, comprendida entre los meses de diciembre a abril, y hasta tres noches y cuatro días en la época lluviosa, comprendida entre los meses de mayo a noviembre.
 Cuarto: Los turistas que desean ingresar al parque a caminar y que no requieren pernoctar en el Albergue Crestones, deberán cancelar sus derechos de admisión conforme al trámite de reservación indicado en la presente resolución, exceptuando lo referente al proceso de cancelación del derecho de alojamiento al concesionario.

@@ -15,3 +15,4 @@ Establece el procedimiento para las reservaciones en el Parque Nacional Chirrip�
 | --- | --- | --- |
 | 1 | 2014-06-23 | la propia norma |
 | 2 | 2015-01-06 | Resolución 2 (2015-01-06) |
+| 3 | 2015-09-29 | Resolución 434 (2015-09-29) |
