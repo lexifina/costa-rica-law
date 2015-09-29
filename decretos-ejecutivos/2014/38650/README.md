@@ -15,3 +15,4 @@ Intervención a la Junta de Desarrollo Regional de la Zona Sur (JUDESUR)
 | --- | --- | --- |
 | 1 | 2014-10-07 | la propia norma |
 | 2 | 2015-03-31 | Decreto Ejecutivo 38949 (2015-03-31) |
+| 3 | 2015-09-29 | Decreto Ejecutivo 39226 (2015-09-29) |
