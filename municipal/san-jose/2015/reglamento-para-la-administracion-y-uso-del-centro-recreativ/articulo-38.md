@@ -1,0 +1,1 @@
+Artículo 38.—El canon fijado en el artículo anterior deberá ser actualizado por la Junta Directiva una vez al año en coordinación con la Dirección Financiera de la Municipalidad, previa publicación en el Diario Oficial La Gaceta.

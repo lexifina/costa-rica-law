@@ -1,0 +1,1 @@
+Artículo 22.—Los usuarios del Centro Recreativo deberán en todo momento guardar el orden, respeto y mantener un comportamiento acorde a la moral y buenas costumbres; así como hacer buen uso de las instalaciones, equipo y mobiliario que en este se encuentre bajo el principio del “buen padre de familia”.

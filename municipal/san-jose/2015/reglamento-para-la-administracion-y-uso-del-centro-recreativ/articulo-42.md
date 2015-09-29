@@ -1,0 +1,1 @@
+Artículo 42.—Para la construcción de nuevas obras complementarias en el Centro Recreativo, la Administración deberá contar con un criterio técnico que justifique la realización de la obra emitido por las dependencias técnicas y operativas relacionadas.

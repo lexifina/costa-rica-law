@@ -1,0 +1,1 @@
+Artículo 19.—La representación judicial y extrajudicial de los intereses del Centro Recreativo recaerá exclusivamente en la Administración, por lo que el Alcalde (sa) remitirá el asunto de que se trate a la Dirección de Asuntos Jurídicos para su estudio, valoración, recomendación o toma de las acciones que resulten pertinentes.

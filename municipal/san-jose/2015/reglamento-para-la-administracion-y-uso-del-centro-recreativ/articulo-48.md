@@ -1,0 +1,1 @@
+Artículo 48.—El desarrollo del procedimiento disciplinario y la ejecución de la eventual imposición de la sanción se tramitarán o ejecutarán por quién o quienes resulten competentes para ello según la normativa que rige en la municipalidad en razón a la naturaleza del nombramiento del funcionario involucrado.

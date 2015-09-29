@@ -1,0 +1,1 @@
+Artículo 25.—La Administración Municipal, a través de la Alcaldía podrá disponer del uso de las instalaciones del Centro Recreativo para la realización de actividades tendientes al desarrollo físico, mental, educativo, cultural y social de sus funcionarios, lo señalado previa coordinación con la Junta Directiva.

@@ -1,0 +1,1 @@
+Artículo 43.—Corresponde a la Junta Directiva, supervisar y coordinar con las dependencias municipales competentes, la ejecución de las obras complementarias; así como las labores de mantenimiento y aseo de las instalaciones del Centro Recreativo.

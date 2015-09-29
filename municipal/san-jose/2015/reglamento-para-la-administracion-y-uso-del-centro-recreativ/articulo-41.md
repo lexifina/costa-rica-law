@@ -1,0 +1,1 @@
+Artículo 41.—Conforme a lo señalado en el Artículo 36 incisos a.2 y a.3 de la Convención Colectiva del Trabajo, corresponde a la Municipalidad, la construcción de las obras complementarias en el Centro Recreativo y el mantenimiento de todas sus instalaciones, incluyendo equipos e implementos de aseo.

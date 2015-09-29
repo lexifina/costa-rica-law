@@ -1,0 +1,2 @@
+Transitorio III.—La Junta Directiva contará con el plazo de 10 días hábiles contados a partir de su nombramiento, para la creación de los formularios a emplearse en la solicitud de actividades; así como el correspondiente certificado de aprobación.
+Lo expuesto sin detrimento a que durante su inexistencia, los interesados suplan esta carencia, mediante memorial escrito que exponga en detalle en que consiste su gestión. Por ese mismo lapso, la Junta Directiva podrá aprobar o denegar las solicitudes mediante resolución debidamente motivada y fundamentada.

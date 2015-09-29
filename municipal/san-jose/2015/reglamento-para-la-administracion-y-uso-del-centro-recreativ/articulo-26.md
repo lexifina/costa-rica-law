@@ -1,0 +1,1 @@
+Artículo 26.—Será responsabilidad de la Junta Directiva señalar a quién solicite la realización de la actividad autorizada como responsable de velar por el orden, control y buen desempeño de cada evento que se lleve a cabo en el Centro Recreativo.

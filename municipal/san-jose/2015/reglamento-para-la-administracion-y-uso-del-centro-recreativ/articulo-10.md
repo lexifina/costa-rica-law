@@ -1,0 +1,2 @@
+Artículo 10.—Los acuerdos de Junta Directiva se tomarán para su validez y eficacia por mayoría simple (la mitad más uno de los miembros presentes que constituyan quórum).
+Cuando medien decisiones divididas de cualquier naturaleza, y se dé el empate en la votación, el voto del presidente contará doble. De igual manera aplicará esta disposición cuando el vicepresidente actúe en suplencia del presidente.

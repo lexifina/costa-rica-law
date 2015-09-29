@@ -1,0 +1,1 @@
+Artículo 32.—La autorización de uso que emita la Junta Directiva del Centro Recreativo será a título personal y de carácter intransferible, de manera que resulta absolutamente prohibido alquilar o trasladar por cualquier medio el derecho de uso.
