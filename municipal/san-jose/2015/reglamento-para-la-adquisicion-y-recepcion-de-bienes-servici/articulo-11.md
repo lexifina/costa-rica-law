@@ -1,0 +1,2 @@
+Artículo 11.—Inicio del Procedimiento. Una vez que se cuente con la solicitud de compra o pedido debidamente confeccionado, con las especificaciones técnicas o términos de referencia aprobados, el contenido presupuestario correspondiente y demás disposiciones contempladas en el RLCA, el DP dará inicio al proceso de contratación respectivo.
+Para todos los efectos, la decisión inicial deberá entenderse como la solicitud de pedido generada por la dependencia usuaria.

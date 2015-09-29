@@ -1,0 +1,1 @@
+Artículo 47.—Contratos irregulares. En caso de que el DP detecte la posible irregularidad de una contratación, inmediatamente pondrá el caso en conocimiento del Director Ejecutivo, para que éste en su condición de jerarca máximo de la Institución, ordene el levantamiento de las investigaciones que corresponda.

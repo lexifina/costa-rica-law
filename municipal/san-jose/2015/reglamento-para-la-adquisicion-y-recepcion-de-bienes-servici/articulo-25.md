@@ -1,0 +1,2 @@
+Artículo 25.—Comunicación del Acuerdo o Resolución de Adjudicación, en el caso de Licitaciones Públicas, la Secretaria del Comité deberá remitir el acuerdo firme de adjudicación para publicación en el diario oficial La Gaceta dentro de los dos días hábiles siguientes a su dictado al DP.
+En cuanto a las Licitaciones abreviadas y otros procedimientos, la Secretaria del Comité remitirá el acuerdo municipal firme de adjudicación al DP al día hábil siguiente a su dictado para la respectiva notificación.

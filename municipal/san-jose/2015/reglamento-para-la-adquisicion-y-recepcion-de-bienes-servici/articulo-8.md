@@ -1,0 +1,1 @@
+Artículo 8°—Formalidades del Pedido. La respectiva solicitud de pedido deberá contar con el nombre completo, cargo y además deberá ser autorizada por la Jefatura de la dependencia solicitante.

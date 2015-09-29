@@ -1,0 +1,1 @@
+Artículo 5°—Las dependencias administrativas de la Institución (técnico, jurídico, financiero) colaborarán con el DP, para el cumplimiento de sus cometidos, todo conforme a las competencias propias de cada dependencia.

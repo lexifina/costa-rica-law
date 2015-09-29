@@ -1,0 +1,5 @@
+Artículo 32.—Recurso de Objeción al Cartel. El recurso de objeción al cartel cuyo conocimiento corresponda al Comité , debe ser presentado ante el DP, en razón de ser este el órgano competente para resolver tanto su admisibilidad como su resolución final, para lo que contará con un plazo de 10 días hábiles, contados a partir de su presentación y siguiendo el procedimiento que indica el DP.
+La resolución se sustentará en los criterios técnicos, jurídicos o financieros que corresponda.
+El plazo para interponer el cartel es durante el primer tercio del plazo para recibir ofertas.
+El encargado de la atención de las Audiencias que confiera la Contraloría General de la República durante la tramitación de un recurso de objeción, será el DP, para lo que contará con la obligada colaboración de la parte técnica responsable del procedimiento.
+Cuando resulte necesario, el DP podrá solicitar la colaboración del Asesor Legal o cualquiera otra dependencia, todo orientado al aseguramiento de la mejor defensa de los intereses de la institución.

@@ -1,0 +1,1 @@
+Artículo 18.—Invitación a Participar. La invitación a participar la hará el DP por medio del procedimiento establecido para estos procesos de contratación, así como para las materias excluidas de esos procedimientos y tratándose de Licitaciones Públicas, se realizará por medio del diario oficial La Gaceta.
