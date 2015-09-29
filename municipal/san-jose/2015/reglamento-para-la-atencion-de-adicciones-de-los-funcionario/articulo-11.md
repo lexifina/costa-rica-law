@@ -1,0 +1,2 @@
+Sección II: Del procedimiento disciplinario por faltas relacionadas a problemas de adicción
+Artículo 11.—Los procedimientos disciplinarios relacionados de forma directa o indirecta con problemas de adicción se tramitaran según los procedimientos ordinarios y sumarios que tramita la oficina de Asuntos Laborales, según la gravedad de la supuesta falta y se complementarán con las disposiciones del presente reglamento.

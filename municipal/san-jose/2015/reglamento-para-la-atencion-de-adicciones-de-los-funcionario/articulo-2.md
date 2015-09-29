@@ -1,0 +1,2 @@
+Artículo 2º—Las normas, reglas, disposiciones y procedimientos establecidos en este reglamento resultan de carácter obligatorio para todo el personal de la Municipalidad de San José3.
+3 Se realiza simple referencia que resulta conteste con la del artículo 2 del Reglamento de Organización y Servicios de la Municipalidad de San José, con el fin de mantener una redacción similar con relación a otros instrumentos normativos municipales.

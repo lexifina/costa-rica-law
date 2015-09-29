@@ -1,0 +1,2 @@
+Artículo 18.—El funcionario que incumpla, desatienda, o rechace el Programa Prevención y Tratamiento de las Adicciones en el Medio Laboral, de incurrir en faltas laborales, podrá ser sujeto de las correcciones disciplinarias pertinentes, sin que su enfermedad adictiva sea especialmente considerada, por tal razón, factor atenuante de su conducta28 debiendo el interesado(a) asumir la responsabilidad de sus acciones.
+28 Disposición 3 actuales Regulaciones para la atención de adicciones.
