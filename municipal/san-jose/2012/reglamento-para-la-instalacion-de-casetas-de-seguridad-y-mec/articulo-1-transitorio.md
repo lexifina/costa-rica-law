@@ -1,3 +1,0 @@
-Transitorio único: Las organizaciones vecinales y comités de vecinos contarán con el plazo de tres meses para poner a derecho las casetas y los mecanismos de vigilancia que se encuentren funcionando a la fecha de publicación de este reglamento. Lo expuesto conforme al transitorio II de la ley 8892. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Se ordena su publicación como reglamento”.
-Acuerdo definitivamente aprobado. Acuerdo 6, artículo V, de la sesión ordinaria Nº 130, celebrada por el Concejo Municipal del Cantón Central de San José, el 23 de octubre de 2012.
-San José, 25 de octubre del 2012.—

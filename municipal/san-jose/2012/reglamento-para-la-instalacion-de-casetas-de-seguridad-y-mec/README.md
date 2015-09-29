@@ -14,3 +14,4 @@ Reglamento para la instalación de casetas de seguridad y mecanismos de vigilanc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-09 | la propia norma |
+| 2 | 2015-09-29 | Reglamento municipal 283 (2015-09-29) |
