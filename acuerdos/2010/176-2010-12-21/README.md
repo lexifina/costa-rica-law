@@ -14,3 +14,4 @@ Acuerdo SGV-A-176 Delegación de Competencias
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-01 | la propia norma |
+| 2 | 2015-09-29 | Acuerdo 200 (2015-09-29) |

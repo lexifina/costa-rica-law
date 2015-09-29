@@ -1,23 +1,25 @@
 3. Otorgar, para cada unidad administrativa de la Institución, las competencias para conocer, resolver y emitir los oficios sobre los asuntos que se detallan seguidamente:
-Al Director(a) del Departamento de Oferta Pública:
+(*)Al Director(a) del Departamento de Oferta Pública:
 • Cumplimiento de requisitos finales en los procesos de autorización de:
-▪ Inscripción, modificación y desinscripción de emisiones para mercado primario (públicas y privadas, deuda y acciones, incorporación de paquetes de titularización).
-▪ Inscripción, modificación y desinscripción de fondos de inversión para mercado primario (financieros y no financieros)[1][1]].
-(1) No se incluyen fideicomisos que funcionan como fondos de inversión, ya que el trámite se canaliza a través del Despacho hacia SUGEF.
-▪ Inscripción, modificación y desinscripción de participantes (sociedades administradoras de fondos de inversión, calificadoras de riesgo, custodios, sociedades de compensación y liquidación, centrales de valores)[2][2].
-(2) No se incluyen los grupos financieros por cuanto el trámite se canaliza a través del Despacho haica el consejo Nacional de Supervisión del Sistema Financiero
-▪ Inscripción y modificación de productos para mercado secundario (valores extranjeros).
-▪ Inscripción y modificación de comercialización de participaciones de fondos de inversión extranjeros.
-▪ Modificaciones de capital de sociedades administradoras de fondos de inversión.
-▪ Modificaciones de capital de grupos financieros.
-▪ Modificaciones de capital de bolsas de valores.
-▪ Modificaciones de capital de centrales de valores.
-▪ Modificaciones de capital de sociedades de compensación y liquidación.
+ü Inscripción, modificación y desinscripción de emisiones para mercado primario (públicas y privadas, deuda y acciones, incorporación de paquetes de titularización).
+ü Inscripción, modificación y desinscripción de fondos de inversión para mercado primario (financieros y no financieros). 1
+1 No se incluyen fideicomisos que funcionan como fondos de inversión, ya que el trámite se canaliza a través del Despacho hacia SUGEF.
+ü Inscripción, modificación y desinscripción de participantes (sociedades administradoras de fondos de inversión, calificadoras de riesgo, custodios, sociedades de compensación y liquidación, centrales de valores).2
+2 No se incluyen los grupos financieros por cuanto el trámite se canaliza a través del Despacho hacia el Consejo Nacional de Supervisión del Sistema Financiero.
+ü Inscripción y modificación de productos para mercado secundario (valores extranjeros).
+ü Inscripción y modificación de comercialización de participaciones de fondos de inversión extranjeros.
+ü Modificaciones de capital de sociedades administradoras de fondos de inversión.
+ü Modificaciones de capital de grupos financieros.
+ü Modificaciones de capital de bolsas de valores.
+ü Modificaciones de capital de centrales de valores.
+ü Modificaciones de capital de sociedades de compensación y liquidación.
 • Notificación de un nuevo trámite y, por ende, un nuevo cómputo de plazos, en aquellos procesos en los que se incorporan documentos adicionales.
 • Consultas relacionadas con requisitos o trámites de oferta pública.
-• Informes de observaciones y resoluciones de aprobación de aumentos de capital de sociedades administradoras de fondos de inversión y de emisores (para casos derivados de capitalización de cuentas patrimoniales).
+• Resoluciones de aprobación de aumentos de capital de sociedades administradoras de fondos de inversión y de emisores (para casos derivados de capitalización de cuentas patrimoniales).
 • Inscripción de emisiones del Ministerio de Hacienda y del Banco Central de Costa Rica.
 • Inscripción de emisiones de gobiernos extranjeros registrados para mercado secundario.
+• Informes de observaciones de solicitudes de inscripción, modificación y desinscripción de productos y de participantes.
+(*) (Así reformadas las competencias anteriores mediante acuerdo N° SGV-A-200 del 29 de setiembre del 2015)
 Al Director(a) de la División de Supervisión de Mercados e Intermediarios:
 • Comunicación de las visitas de rutina y especiales a los regulados.
 • Respuesta a las solicitudes de prórroga para inicio de visita de inspección y presentación de respuesta del informe, y para la remisión de información y de comunicados de hechos relevantes.
