@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones de este Reglamento son de aplicación y acatamiento obligatorio, para todos los funcionarios del Comité Cantonal de Deportes y Recreación de San José, que por jerarquía o delegación ejecuten funciones decisorias, resolutorias y directivas como parte de la administración y por lo tanto, se consideran titulares subordinados.

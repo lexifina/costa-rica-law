@@ -1,0 +1,2 @@
+Artículo 15.—Diseño y propuesta de las auto evaluaciones. La CCI presentará a la Junta, para su aprobación e implementación la metodología e instrumentos para la aplicación de la auto evaluación anual.
+Este deberá contener el objetivo, el enfoque y el alcance previsto según los elementos de control a evaluar, asimismo, el cuestionario diseñado para tal efecto y la calendarización o plazos para su implementación.

@@ -1,0 +1,3 @@
+Artículo 17.—Resultados de la auto evaluación. La CCI elaborará un informe de los resultados obtenidos de la autoevaluación a nivel institucional.
+El mismo deberá incluir un análisis estadístico y las conclusiones correspondientes.
+Dicho documento deberá ser presentado a la Junta Directiva, para su análisis, recomendaciones y posterior traslado al máximo jerarca administrativo.

@@ -1,0 +1,2 @@
+Artículo 8º—Sesiones de la CCI. La CCI sesionará periódicamente de conformidad a cronograma que convengan sus miembros en función de las necesidades administrativas para cumplir con el mantenimiento y fortalecimiento del SCII y del Sistema Específico de Valoración de Riesgos; así como para el seguimiento de planes de acción correspondientes.
+Estas serán convocadas por el Director Ejecutivo o su representante. En casos de excepción al cronograma, los demás miembros de la CCI podrán solicitar reuniones extraordinarias, previa aprobación del Director Ejecutivo.

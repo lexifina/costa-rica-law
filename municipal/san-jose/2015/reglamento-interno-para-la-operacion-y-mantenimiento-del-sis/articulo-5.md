@@ -1,0 +1,1 @@
+Artículo 5º—Función de la CCI. Se constituye la Comisión de Control Interno, como órgano operativo y asesor del máximo jerarca administrativo, con el propósito de que coordine a nivel institucional todas las acciones dirigidas al fortalecimiento del SCII.

@@ -1,0 +1,1 @@
+Artículo 16.—Cuestionario para la auto evaluación. El diseño del cuestionario de autoevaluación podrá ser modificado y adaptado año con año de acuerdo con la realidad Institucional o el interés del máximo jerarca administrativo.

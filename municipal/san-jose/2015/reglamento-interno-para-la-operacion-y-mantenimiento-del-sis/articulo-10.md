@@ -1,0 +1,2 @@
+Artículo 10.—Trámite de asuntos del CCI. El Director Ejecutivo en forma directa o por medio de su representante preparará para cada sesión, la agenda de asuntos a tratar. Todos los acuerdos, que se tomen en las sesiones deberán constar en las minutas que levantará el funcionario que se designe para tal efecto.
+Toda la correspondencia que emane de los acuerdos que sean tomados en las sesiones, deberán ser confeccionados y divulgada por el Director Ejecutivo y firmados por él, como máximo jerarca administrativo.

@@ -1,0 +1,1 @@
+Artículo 6º—Conformación de la CICI. La Comisión estará integrada por el Director Ejecutivo o su representante y los Directores de Área y contará con la asesoría de la Auditoria Interna cuando se considere conveniente.
