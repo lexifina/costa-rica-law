@@ -16,7 +16,7 @@ f. Emergencias Médicas.
 g. Registros Médicos.- Se reconoce como sinónimo de esta tecnología, los siguientes:
 i. Administración de Sistemas de Información en Salud.
 ii. Administración de Sistemas de Información de Salud y Registros.
-iii. Registros Médicos y Sistemas de Información en Salud.
+iii.Registros Médicos y Sistemas de Información en Salud.
 iv. Registros y Estadísticas de la Salud.
 v. Sistemas de Información en Salud.
 h. Gastroenterología.
@@ -25,7 +25,7 @@ j. Histología.- Se reconoce como sinónimo de esta tecnología, el siguiente:
 i. Histotecnología. Registros y Estadísticas de la Salud.
 k. Imágenes Médicas.- Se reconoce como sinónimo de esta tecnología, los siguientes:
 i. Imagenología Diagnóstica.
-ii. Imagenología Diagnóstica y Terapéutica.
+ii.Imagenología Diagnóstica y Terapéutica.
 iii. Imagenología Médica.
 iv. Procedimientos Radiológicos.
 v. Radiofísica.
@@ -37,7 +37,8 @@ i. Podología Clínica.
 o. Prótesis y Órtesis.
 p. Radioterapia.
 q. Salud Ambiental.
-r. Salud Ocupacional.
+r. Salud Ocupacional(*)
+(*) (Mediante sesión N° 2015-09-30 del 30 de setiembre de 2015, se acordó aprobar el Técnico Gestor en Salud Ocupacional y Ambiente como equivalente o sinónimo de la Tecnología en Salud Ocupacional dentro del Capítulo de Tecnólogos en Ciencias Médicas del Colegio de Médicos y Cirujanos.)
 s. Saneamiento Ambiental.
 t. Terapia Física.- Se reconoce como sinónimo de esta tecnología, el siguiente:
 i. Fisioterapia.
