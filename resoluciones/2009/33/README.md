@@ -14,3 +14,4 @@ Aprueba y promulga el documento denominado "Directrices para la contratación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-06-01 | la propia norma |
+| 2 | 2015-09-30 | Resolución 124 (2015-09-30) |
