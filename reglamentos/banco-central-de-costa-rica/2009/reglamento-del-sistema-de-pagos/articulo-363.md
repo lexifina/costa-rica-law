@@ -1,4 +1,0 @@
-Artículo 363.—Medida preventiva ante incumplimiento. Cuando una OR incumpla alguna de las disposiciones establecidas para su apertura y operación, su autorización de funcionamiento será suspendida por el BCCR, debiendo el participante abstenerse de realizar en la OR suspendida cualquier actividad relacionada con el servicio Firma Digital, salvo lo que estrictamente corresponda a la revocación de certificados para proteger la seguridad de sus clientes; esto último siempre y cuando la suspensión no responda a un incumplimiento en el proceso de revocación.
-Para la reapertura de la OR suspendida, el participante deberá someterse al mismo procedimiento de validación establecido por el BCCR para autorizar la apertura de una OR
-(Así adicionado en sesión N° 5462 del 26 de mayo de 2010)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 355 al 363)

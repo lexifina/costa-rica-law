@@ -1,1 +1,0 @@
-Artículo 23.—Suministro del código. El número de cuenta cliente deberá ser entregado por las entidades financieras a sus clientes sin ningún costo, al momento de la apertura de la cuenta o ante su solicitud expresa.

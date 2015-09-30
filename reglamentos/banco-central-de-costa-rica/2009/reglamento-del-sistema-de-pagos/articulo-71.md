@@ -1,2 +1,0 @@
-Artículo 71.—Principio de registro de movimientos. El registro de los movimientos sobre las cuentas de fondos se rige por el principio de buena fe registral, por el cual el BCCR reconoce que toda la información ingresada por el organizador del mercado u operador de medios de pago es legítima, exenta de fraude y de cualquier otro vicio.
-(Así adicionado mediante sesión N° 5604-2013 del 24 de julio del 2013)

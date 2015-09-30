@@ -1,5 +1,0 @@
-CAPÍTULO V
-De las responsabilidades
-Artículo 136.—Registro de pignoraciones. Las entidades de custodia deben registrar en las cuentas de valores de terceros que mantengan abiertas en el servicio, las pignoraciones y despignoraciones que ordenen las autoridades judiciales o que se deban efectuar en virtud de la constitución de una garantía. Igual responsabilidad corresponde al BCCR con las anotaciones en las cuentas propias de los participantes.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 122 al 121 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 121 al 128 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 129 pasa a ser el 128 actual)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 128 al 136)

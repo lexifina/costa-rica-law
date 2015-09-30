@@ -1,6 +1,0 @@
-CAPÍTULO VI
-De las condiciones de los valores en garantía
-Artículo 279. Características de los valores. Para constituir la garantía en valores se admitirán valores emitidos por el BCCR y el MHDA, que estén debidamente admitidos a cotización en un mercado organizado de bolsa. También podrán recibirse valores negociables de emisores no residentes que estén denominados en moneda extranjera, así como valores emitidos por las instituciones autónomas, conforme con las disposiciones que se establezcan en las normas complementarias del servicio o por el órgano administrativo designado por la Junta Directiva del BCCR.
-(Así reformado mediante sesión N° 5511 del 24 de agosto del 2011)
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 265 al 264 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 264 al 271 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 272 pasa a ser el 271 actual)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 271 al 279)

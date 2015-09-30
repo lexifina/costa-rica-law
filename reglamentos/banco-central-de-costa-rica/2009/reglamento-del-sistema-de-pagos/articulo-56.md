@@ -1,2 +1,0 @@
-Artículo 56.—Vigilancia del BCCR. La entidad representante y sus representadas deben proveer al BCCR todas las facilidades que este les requiera, con el propósito de llevar a cabo su función de vigilancia del sistema de pagos y realizar investigaciones y estudios relacionados con el cumplimiento de los principios básicos del Banco de Pagos Internacionales.
-(Así adicionado en sesión N° 5462-2010 del 26 de mayo de 2010)

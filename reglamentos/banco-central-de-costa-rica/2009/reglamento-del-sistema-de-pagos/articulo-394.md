@@ -1,5 +1,0 @@
-CAPÍTULO IV
-De las responsabilidades
-Artículo 394.—Solicitudes de información. El BCCR puede solicitar información sobre otras transacciones distintas de las efectuadas en los servicios del SINPE. Esta información la utilizará para la toma de decisiones relacionadas con el desarrollo y modernización del sistema de pagos costarricense.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 376 al 375 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 375 al 382 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 383 pasa a ser el 382 actual. Nuevamente se adicionan 4 artículos volviéndose a correr su numeración, pasando así el artículo 382 a ser el 386 actual)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 386 al 394)

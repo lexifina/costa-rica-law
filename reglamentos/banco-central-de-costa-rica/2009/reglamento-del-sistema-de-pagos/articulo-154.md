@@ -1,7 +1,0 @@
-LIBRO XIV
-Liquidación de mercados
-CAPÍTULO I
-Del servicio
-Artículo 154.—Definición del servicio. Se define Liquidación de Mercados como el servicio de liquidación de las operaciones realizadas en los mercados organizados de valores de deuda pública anotados en cuenta.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 140 al 139 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 139 al 146 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 147 pasa a ser el 146 actual)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 146 al 154)

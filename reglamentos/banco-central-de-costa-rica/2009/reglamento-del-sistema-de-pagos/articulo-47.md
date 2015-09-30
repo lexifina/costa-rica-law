@@ -1,3 +1,0 @@
-Artículo 47.—Vigilancia de los sistemas de pago. El BCCR es responsable de la vigilancia de los sistemas de pago de importancia sistémica que operen en el país y desarrollará esa labor con el propósito de promover la seguridad y eficiencia del Sistema de Pagos Costarricense.
-Las entidades que operen o participen en los sistemas de pago de importancia sistémica deberán proveer al BCCR todas las facilidades que éste les solicite, así como cumplir con las disposiciones que les establezca con fundamento en su función de vigilancia.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010., que lo traspaso del antiguo artículo 48 al 47 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración)

@@ -1,2 +1,0 @@
-Transitorio V.—Plazo para cumplir regulaciones relacionadas con la liquidación de terceros sobre cuentas de fondos. El operador de medios de pago o el organizador de un mercado que actualmente realizan alguna operativa de liquidación sobre las cuentas de fondos en el BCCR, deberán dentro de los 6 meses posteriores a la entrada en vigencia de esta regulación, cumplir con las disposiciones incorporadas al Libro II - Cuentas de Fondos, Capítulo IV “De la Liquidación de Mercados sobre Cuentas de Fondos.
-(Así adicionado mediante sesión N° 5604-2013 del 24 de julio del 2013)

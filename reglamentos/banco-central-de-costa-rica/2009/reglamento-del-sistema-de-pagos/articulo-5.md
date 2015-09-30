@@ -1,2 +1,0 @@
-Artículo 5º—Obligatoriedad de la prestación de los servicios del SINPE. Las entidades financieras que administren cuentas de fondos tienen la obligación de proveer a sus clientes todos los servicios interbancarios desarrollados por el SINPE, relacionados con la posibilidad de movilizar fondos entre su entidad y cualquiera otra entidad financiera participante en el sistema.
-Los servicios del SINPE deberán ser ofrecidos por las entidades financieras al menos por un canal de distribución y provistos con la misma eficiencia con la que prestan sus propios servicios.

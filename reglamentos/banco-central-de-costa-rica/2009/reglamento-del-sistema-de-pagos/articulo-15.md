@@ -1,2 +1,0 @@
-Artículo 15.—Responsabilidad por las comunicaciones. El boletín y el servicio de notificación constituyen medios oficiales de comunicación del SINPE, por lo que cualquier comunicación recibida a través de estos medios adquiere un carácter oficial.
-El BCCR garantiza y se responsabiliza por la entrega de la información comunicada a través del boletín. Debido a que con el servicio de notificaciones la información se envía a dispositivos cuya funcionalidad está fuera del control del BCCR, la decisión sobre su uso queda bajo la responsabilidad del asociado.

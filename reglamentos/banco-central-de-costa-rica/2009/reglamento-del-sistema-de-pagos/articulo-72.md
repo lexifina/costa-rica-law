@@ -1,2 +1,0 @@
-Artículo 72.—Responsabilidad de los participantes. El organizador del mercado u operador de medios de pago y los participantes de éste eximen de toda responsabilidad al BCCR por cualquier cargo indebido realizado, producto de esta operativa, sobre las cuentas de fondos mantenidas por los asociados al SINPE en el BCCR. La liberación de responsabilidades para el BCCR deberá quedar claramente consignada por el representante legal de la entidad participante en la nota de suscripción al servicio.
-(Así adicionado mediante sesión N° 5604-2013 del 24 de julio del 2013)

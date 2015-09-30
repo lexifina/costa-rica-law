@@ -1,2 +1,0 @@
-Artículo 70.—Requerimientos operativos. Para compensar y liquidar las operaciones del mercado respectivo, el BCCR podrá solicitar al organizador del mercado el detalle transaccional y la información inherente de todas las transacciones, las cuales le garanticen al ente emisor atender adecuadamente los riesgos asociados a tales procesos de compensación y liquidación sobre las cuentas de fondos de las entidades asociadas al SINPE.
-(Así adicionado mediante sesión N° 5604-2013 del 24 de julio del 2013)

@@ -1,2 +1,0 @@
-Artículo 68.—Aspectos a considerar en las normas. Las normas internas del organizador de un mercado u operador de medios de pago deberán propiciar eficiencia y seguridad, así como el desarrollo competitivo de los servicios que se presten. Además, estas normas internas deberán sujetarse a la autorización del BCCR, el cual verificará que éstas incorporen los aspectos definidos en el punto anterior.
-(Así adicionado mediante sesión N° 5604-2013 del 24 de julio del 2013)

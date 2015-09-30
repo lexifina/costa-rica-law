@@ -1,2 +1,0 @@
-Artículo 69.—Información al BCCR. El organizador del mercado u operador de medios de pago deberá suministrar al BCCR la información estadística sobre las transacciones tramitadas en dicho mercado u operativa de pago, así como las normas, manuales y procedimientos que lo regulan, con el propósito de verificar el cumplimiento de las normas internas, en los términos y plazos que se determine.
-(Así adicionado mediante sesión N° 5604-2013 del 24 de julio del 2013)

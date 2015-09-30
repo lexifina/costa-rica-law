@@ -1,2 +1,0 @@
-Artículo 10.—Número de referencia de las operaciones. Los asociados tendrán la responsabilidad de asignar un número de referencia a cada una de las transacciones ordenadas a través del SINPE, según el estándar definido en las normas complementarias respectivas. Dicho número deberá ser suministrado a los clientes con el propósito de que puedan identificar sus transacciones ante cualquier proceso de reclamo.
-(Así reformado mediante sesión N° 5462-2010 del 26 de mayo de 2010)

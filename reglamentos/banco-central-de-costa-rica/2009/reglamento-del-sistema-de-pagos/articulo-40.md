@@ -1,3 +1,0 @@
-Artículo 40.—Política “conozca a su cliente”. Los asociados se regirán por la política “conozca a su cliente”, conforme con las regulaciones que en esta materia emita el CONASSIF, de modo que son responsables por las operaciones incluidas en el SINPE en nombre de sus clientes.
-Es responsabilidad de los asociados verificar las calidades de los clientes en nombre de quienes realizan transacciones a través del SINPE, así como mantener una constante revisión de dichas calidades mientras se mantenga la relación comercial.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010., que lo traspaso del antiguo artículo 41 al 40 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración)

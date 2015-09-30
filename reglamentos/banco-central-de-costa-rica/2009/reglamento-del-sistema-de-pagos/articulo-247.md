@@ -1,8 +1,0 @@
-Artículo 247.—Casos especiales en las CAN. El BCCR podrá ajustar los saldos de inventario de numerario en el servicio u ordenar un débito sobre la cuenta de fondos de la entidad correspondiente por el monto total mantenido en una o todas las CAN a su cargo, cuando se presente cualquiera de las siguientes circunstancias:
-a) La entidad decida clausurar una, varias o todas las CAN que administre; situación que deberá comunicar a la División de Servicios Financieros con ocho días hábiles de anticipación.
-b) El BCCR revoque la autorización concedida a la entidad para administrar CAN.
-c) Anomalías que a juicio del BCCR atenten contra la seguridad del numerario mantenido en las CAN, o que, entre otros efectos, impidan la comunicación electrónica entre el servicio y el lugar donde se ubique la CAN.
-d) El BCCR detecte una diferencia faltante entre el monto físico depositado en la CAN y el saldo registrado en el servicio.
-e) El BCCR inactive la CAN mediante su bloqueo en el servicio, según lo establecido en el presente reglamento.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 233 al 232 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 232 al 239 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 240 pasa a ser el 239 actual)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 239 al 247)

@@ -1,4 +1,0 @@
-Artículo 201.—Plazo de las operaciones. Las operaciones diferidas de liquidez serán pactadas de contado y tendrán un plazo de negociación entre 1 y 90 días naturales.
-(Así reformado en sesión N° 5429 de 08 de julio de 2009).
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 187 al 186 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 186 al 193 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 194 pasa a ser el 193 actual)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 193 al 201)

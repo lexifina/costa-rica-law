@@ -1,1 +1,0 @@
-Artículo 8º—Atención de obligaciones financieras. Los asociados son responsables de las obligaciones financieras que se deriven de los resultados de la compensación y liquidación de las transacciones procesadas a su cargo por el SINPE, por lo cual deberán mantener en sus cuentas los fondos y valores necesarios para atender satisfactoriamente tales obligaciones.

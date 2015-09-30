@@ -1,5 +1,0 @@
-CAPÍTULO V
-De las responsabilidades
-Artículo 177.—Principios de la negociación. El BCCR deberá garantizar a los inversionistas transparencia en los procesos de captación e igualdad en las condiciones de acceso a las opciones de inversión y a la información relevante del servicio, todo ello de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 163 al 162 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 162 al 169 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 170 pasa a ser el 169 actual)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 169 al 177)

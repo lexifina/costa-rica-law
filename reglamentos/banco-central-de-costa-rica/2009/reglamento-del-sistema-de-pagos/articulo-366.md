@@ -1,8 +1,0 @@
-CAPÍTULO III
-DE LA DOMICILIACIÓN
-Artículo 366.—Naturaleza de la domiciliación. La domiciliación constituye el medio a través del cual el cliente destino autoriza a su entidad financiera (entidad destino) para que acepte y aplique un determinado débito sobre su cuenta cliente, en los mismos términos de autorización de giro que contempla el artículo 630 del Código de Comercio y las demás normas jurídicas que resulten aplicables.
-Por medio de la domiciliación el cliente destino y el cliente origen, o la entidad origen, acuerdan el mecanismo que se utilizará para transferir fondos entre cuentas cliente, extinguir una obligación financiera o pagar el consumo de un bien o servicio por parte del primero.
-La domiciliación no será requerida cuando en la transacción el cliente origen sea el mismo cliente destino.
-(Así corrida su numeración en sesión N° 5462-2010 del 26 de mayo de 2010, que lo traspaso del antiguo artículo 348 al 347 actual. Lo anterior ya que en dicha sesión se ordena derogar el numeral 32 original y modificar su numeración. Asimismo en dicha junta se adicionan 7 artículos y se corre de nuevo el orden de los mismos, por lo que este numeral pasó del anterior artículo 347 al 354 actual. Por su parte se deroga el numeral 61 corriéndose nuevamente la numeración de manera tal que el antiguo artículo 355 pasa a ser el 354 actual. Nuevamente se adicionan 4
-artículos volviéndose a correr su numeración, pasando así el artículo 354 a ser el 358 actual cuyo texto se reformó)
-(Así corrida su numeración mediante sesión N° 5604-2013 del 24 de julio del 2013, que lo traspasó del antiguo 358 al 366)

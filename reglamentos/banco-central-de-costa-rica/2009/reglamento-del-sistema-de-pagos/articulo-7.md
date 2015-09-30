@@ -1,1 +1,0 @@
-Artículo 7º—Prestación de servicios fuera del horario bancario. Las entidades financieras podrán enviar transacciones propias o de terceros en los servicios del SINPE que liquidan fuera del horario bancario (TFT y DTR), pudiendo utilizar para los efectos los saldos que mantengan disponibles en sus cuentas de fondos en el BCCR.

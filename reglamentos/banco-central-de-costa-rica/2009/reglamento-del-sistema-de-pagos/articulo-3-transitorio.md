@@ -1,2 +1,0 @@
-Transitorio III.—Cumplimiento del requerimiento mínimo de garantía. Las entidades financieras que mantengan como garantías del sistema de pagos un aporte menor a la suma que establece el artículo 256, cuentan a partir de la publicación del presente reglamento con tres meses para cumplir con el nuevo monto mínimo fijado.
-(Así corrida su numeración en sesión N° 5462 del 26 de mayo de 2010, que lo traspaso del antiguo transitorio V al transitorio III actual. Lo anterior ya que en dicha sesión se ordena derogar los transitorios I y II originales y modificar su numeración)
