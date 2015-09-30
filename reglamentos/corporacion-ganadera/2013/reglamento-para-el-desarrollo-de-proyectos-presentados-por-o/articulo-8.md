@@ -1,1 +1,0 @@
-Artículo 8°—Todo proyecto aprobado por la Junta Directiva contará con un contrato firmado entre las partes, el cual contendrá una cláusula de sanciones en caso de incumplimiento. Dicho contrato deberá estar listo para su firma quince días hábiles después de comunicado el acuerdo de la Junta Directiva.
