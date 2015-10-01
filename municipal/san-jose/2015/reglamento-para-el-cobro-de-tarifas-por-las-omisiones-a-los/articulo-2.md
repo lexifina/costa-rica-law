@@ -1,0 +1,1 @@
+Artículo 2º—Con el fin de evitar el exceso de acumulación gráfica, en el reglamento al utilizar la palabra poseedor, propietario, interesado, sujeto pasivo o similar terminología, se estará haciendo referencia tanto a hombres como mujeres, sin discriminación de género.

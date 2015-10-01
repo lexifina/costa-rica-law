@@ -1,0 +1,1 @@
+Artículo 26.—En las propiedades ubicadas en las esquinas, el contribuyente deberá construir la acera contemplado la(s) rampa(s) para personas con discapacidad, adaptándose a las disposiciones contenidas en el artículo 126 del Reglamento Ley de Igualdad de Oportunidades para Personas con Discapacidad, Decreto Nº 26831 del 23-03-1998.

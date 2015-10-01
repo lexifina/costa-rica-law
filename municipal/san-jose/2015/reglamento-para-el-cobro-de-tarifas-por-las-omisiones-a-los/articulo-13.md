@@ -1,0 +1,1 @@
+Artículo 13.—Las multas previstas en los artículos 76, 76 bis y 76 ter se actualizarán anualmente en el mismo porcentaje en que aumente el salario base establecido en el artículo 2 de la Ley Nº 7337 del 5 de mayo de 1993; para lo cual la Gerencia Financiera Administrativa a través de la dependencia correspondiente, deberá revisar y gestionar su actualización.

@@ -1,0 +1,1 @@
+Artículo 28.—Cuando en un lote exista una edificación ruinosa o inhabitable que arriesgue integridad física, patrimonio o seguridad de terceros; la Municipalidad deberá informar al Ministerio de Salud con el fin de que giren orden sanitaria de demolición o tomen las medidas pertinentes.

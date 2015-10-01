@@ -1,0 +1,2 @@
+Artículo 12.—Si la deuda no es cancelada dentro de los tres meses posteriores a su fijación, la Sección de Gestión de Cobro tramitará las acciones pertinentes a efecto de recuperar del adeudo mediante el uso de certificación emitida por el contador municipal; la cual constituye título ejecutivo con hipoteca legal preferente sobre el inmueble según lo dispone el artículo 76 ter del Código Municipal.
+En el proceso judicial correspondiente sólo podrán oponerse las excepciones de pago o prescripción de conformidad con el artículo 71 del Código Municipal.

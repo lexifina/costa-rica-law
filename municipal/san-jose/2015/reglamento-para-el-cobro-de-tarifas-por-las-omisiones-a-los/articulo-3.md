@@ -1,0 +1,1 @@
+Artículo 3º—Este reglamento rige en todo el Cantón San José, afectando a cualquier persona física, jurídica, pública o privada, propietaria o poseedora por cualquier título, de bienes inmuebles ubicados en el cantón.

@@ -1,0 +1,2 @@
+Artículo 8º—La Sección de Inspección, también deberá solicitar a la dependencia competente la incorporación de la ejecución de la obra o servicio en el plan de trabajo de la Municipalidad, a efecto de suplirla según disponibilidad de tiempo y de recursos, sin perjuicio de su posterior cobro al sujeto pasivo de la obligación.
+De previo a la ejecución de la obra, se deberá constatar que la omisión de la obra o servicio se mantenga por parte del sujeto pasivo de la obligación.

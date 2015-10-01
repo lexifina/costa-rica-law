@@ -1,0 +1,1 @@
+Artículo 19.—Cuando se ignore el lugar para recibir notificaciones, el acto será comunicado por publicación en el diario oficial La Gaceta o en un diario de circulación nacional, en cuyo caso la comunicación se tendrá por hecha transcurridos tres días hábiles posterior a su publicación. La publicación que supla la notificación indicará su contenido íntegro.

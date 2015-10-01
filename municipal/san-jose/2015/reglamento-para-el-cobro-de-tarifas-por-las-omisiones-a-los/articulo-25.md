@@ -1,0 +1,1 @@
+Artículo 25.—Las características referentes a la pendiente de las aceras y su correspondiente acceso vehicular a los predios, se regulará de conformidad a lo dispuesto en los Reglamentos de Desarrollo Urbano de San José.

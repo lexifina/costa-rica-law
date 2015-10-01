@@ -1,0 +1,1 @@
+Artículo 9º—La dependencia competente de la ejecución de la obra o servicio, una vez que haya suplido la omisión del sujeto pasivo, solicitará la inclusión del costo efectivo en la base de datos de Servicios Urbanos.

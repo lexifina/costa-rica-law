@@ -1,0 +1,1 @@
+Artículo 14.—Corresponde al Concejo Municipal, de conformidad con lo establecido en los artículos 4, 13 y 76 del Código Municipal, la aprobación y actualización de los precios que establezca el municipio a las obligaciones contenidas en el artículo 75 del Código Municipal; lo cual deberá ser publicado en el diario oficial La Gaceta.
