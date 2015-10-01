@@ -4,5 +4,6 @@ Nosotros, los Representantes del pueblo de Costa Rica, libremente elegidos Diput
 CONSTITUCION POLITICA DE LA REPUBLICA DE COSTA RICA
 TITULO I
 LA REPUBLICA
-Capítulo Unico
-ARTÍCULO 1º.- Costa Rica es una República democrática, libre e independiente.
+Capítulo Único
+ARTÍCULO 1º. Costa Rica es una República democrática, libre, independiente, multiétnica y pluricultural.
+(Así reformado por el artículo único de la Ley N° 9305 del 24 de agosto del 2015)
