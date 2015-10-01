@@ -1,2 +1,3 @@
 Artículo 4: La Universidad Técnica Nacional, podrá otorgar en la forma señalada en el artículo anterior, la compensación económica que en adelante se indicará, a favor de aquellos servidores cuya naturaleza del puesto que desempeñen corresponda al estrato profesional, correspondiendo a la Dirección de Gestión del Desarrollo Humano velar por la correcta aplicación de las normas aquí reguladas.
-Para tales efectos se otorgarán porcentajes, sobre el salario base, de un 20% para los que poseen el grado académico de Bachiller Universitario y un 55% para los que ostenten el grado de licenciatura u otro superior.
+Para tales efectos se otorgará un porcentaje sobre el salario base de un 30% para los que poseen el grado académico de licenciatura universitaria u otro superior.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 21-2015 del 1° de octubre del 2015)

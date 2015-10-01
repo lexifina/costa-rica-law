@@ -14,3 +14,4 @@ Reglamento de dedicación exclusiva para funcionarios de la Universidad Técnica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-01-16 | la propia norma |
+| 2 | 2015-10-01 | Reglamento 21 (2015-10-01) |
