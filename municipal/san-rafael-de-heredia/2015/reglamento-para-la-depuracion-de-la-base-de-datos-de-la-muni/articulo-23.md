@@ -1,0 +1,1 @@
+Artículo 23.—Se toma como tarifa doméstica, la tasa a aplicar a toda unidad habitacional ocupada o desocupada , en donde no exista o se posea una licencia para ejercer actividad lucrativa, y en donde el promedio estimado en generación de basura sea inferior a 16 kilogramos por semana. En la tarifa doméstica el factor de generación es de 1.

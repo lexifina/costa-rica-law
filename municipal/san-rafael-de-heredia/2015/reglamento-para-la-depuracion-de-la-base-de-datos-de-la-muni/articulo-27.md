@@ -1,0 +1,1 @@
+Artículo 27.—Se toma como tarifa industrial/comercial 4, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 145 kilogramos y 240 kilogramos. En la tarifa comercial 4 el factor de generación es 15.

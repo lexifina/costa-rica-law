@@ -1,0 +1,3 @@
+Artículo 29.—Se toma como tarifa institucional 1, la tasa a aplicar a todo ente de carácter estatal público o no público, que no sea privado. Para la tarifa institucional 1 se toma como factor de ponderación 1.
+Artículo 29.—Todo patentado o ente de carácter estatal público o no público que no sea privado que considere que el factor de ponderación que se le está aplicando no está de acuerdo a la cantidad de basura que está generando, podrá solicitar un estudio específico, para que se determine la cantidad de basura producida en el lugar.
+(Nota de Sinalevi: En la publicación de este reglamento aparece dos veces el artículo 29)

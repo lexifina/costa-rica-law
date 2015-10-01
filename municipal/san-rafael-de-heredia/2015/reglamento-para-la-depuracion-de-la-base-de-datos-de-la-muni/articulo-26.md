@@ -1,0 +1,1 @@
+Artículo 26.—Se toma como tarifa industrial/comercial 3, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 81 kilogramos y 144 kilogramos. En la tarifa industrial/comercial 3 el factor generación es 9.

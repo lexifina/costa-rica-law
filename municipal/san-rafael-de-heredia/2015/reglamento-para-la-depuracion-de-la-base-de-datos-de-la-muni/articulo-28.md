@@ -1,0 +1,1 @@
+Artículo 28.—Se toma como tarifa industrial/comercial 5, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que sea inferior a 288 kilogramos. En la tarifa comercial 5 el factor de generación es 18.

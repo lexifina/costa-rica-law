@@ -1,0 +1,1 @@
+Artículo 25.—Se toma como tarifa industrial/comercial 2, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 41 kilogramos y 80 kilogramos. En la tarifa comercial 2 el factor de generación es 5.

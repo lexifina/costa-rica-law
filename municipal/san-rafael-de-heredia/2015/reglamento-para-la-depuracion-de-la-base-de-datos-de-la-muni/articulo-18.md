@@ -1,0 +1,1 @@
+Artículo 18.—Todo patentado o ente público o no, que no se encuentre satisfecho por el rango de generación o ponderación en el cual se ubicó, podrá solicitar en forma escrita un estudio. En este estudio se deberán realizar cuando menos 3 muestreos durante el trimestre, sin que exista la necesidad de que el usuario se entere de la fecha en que se realizarán estos muestreos.
