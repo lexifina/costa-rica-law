@@ -1,0 +1,2 @@
+Artículo 31.—Responsable de autorizar el préstamo de activos. La autorización para los préstamos de activos de la Institución a otros entes del Estado, corresponde al Director Ejecutivo, previo acuerdo de la Junta Directiva.
+Los préstamos a que se refiere este artículo serán solicitados por escrito que suscribirá el jerarca del ente solicitante o su delegado, legalmente autorizado. Normalmente, dichos préstamos serán por un período no mayor de un año, sin embargo; la Junta Directiva, podrá autorizar préstamos por períodos mayores.

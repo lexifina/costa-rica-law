@@ -1,0 +1,1 @@
+Artículo 15.—Oficina responsable de calcular la depreciación, el registro y la revaluación de activos. Corresponde al Depto. de Contabilidad calcular la depreciación, registrar y, revaluar todos los activos de la Institución.

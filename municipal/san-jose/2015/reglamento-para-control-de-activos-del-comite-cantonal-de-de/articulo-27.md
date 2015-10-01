@@ -1,0 +1,12 @@
+CAPÍTULO V
+De la capitalización como activo y del cálculo
+del gasto de depreciación
+Artículo 27.—Definición de la capitalización de bienes. Para definir la capitalización como activo de un bien adquirido por la Institución, se tomaran en cuenta las siguientes definiciones:
+a) Activo fijo: Bienes propiedad de la institución, que se clasifican como tales de acuerdo con las normas contables, incluyendo bienes con vida útil limitada. Su costo está asignado sistemáticamente a gastos, mediante los cargos
+b) Periódicos por su depreciación, exceptuándose el caso de “software” terrenos y otros similares, no sujetos a depreciación sistemática.
+c) Adición y mejora: Comprenden tanto unidades totalmente nuevas, como ampliaciones, de las unidades antiguas y serán registradas por el Depto. de Contabilidad como activos en la cuenta respectiva, ya que amplían la vida útil. En caso de duda sobre cómo ha de registrarse el activo, el Depto. de Contabilidad consultará al área específica.
+d) Inventario: Lista ordenada de activos fijos que contienen como mínimo, el número de identificación y la descripción de los bienes asignados a una determinada área, el nombre del funcionario responsable y su ubicación.
+e) Reparación ordinaria o extraordinaria: Pueden implicar el reemplazo de partes, o sólo reparación. Para efectos contables, todas las reparaciones y el mantenimiento preventivo que se realicen a los activos, independientemente de su monto, se registrarán como gastos ocurridos en el período en que se realicen aquéllas.
+f) Sustitución: Supone el reemplazo de un bien por otro de similar calidad y características generales. El bien sustituido deberá ser retirado del registro de activos, realizando el Depto. de Contabilidad el asiento de ajuste respectivo. La nueva adquisición deberá ser registrada como activo en la cuenta correspondiente.
+g) Usuario de un activo fijo: Funcionario al cual se fe entregue en custodia mobiliario, herramienta, equipo, maquinaria o vehículos para la ejecución de sus labores, en forma permanente o temporal.
+h) Vida útil: Se considerará para la capitalización de activos, la vida útil de los bienes adquiridos. En caso que el bien tenga un costo superior, al momento indicado en el inciso inmediato anterior, pero una vida útil menor de un año, se podrá considerar su costo como un gasto, previa consulta con el Depto. de Contabilidad, o en su defecto con la Dirección Administrativa Financiera.

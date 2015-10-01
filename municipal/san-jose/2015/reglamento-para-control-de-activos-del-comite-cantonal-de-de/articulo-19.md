@@ -1,0 +1,1 @@
+Artículo 19.—Descargo contable de activos, del registro auxiliar. Comprobada la pérdida sin culpa del funcionario bajo cuya responsabilidad han estado los bienes, el Depto. de Contabilidad solicitará autorización al Director Ejecutivo para que se proceda a descargar contablemente del registro auxiliar, el bien de que se trate.

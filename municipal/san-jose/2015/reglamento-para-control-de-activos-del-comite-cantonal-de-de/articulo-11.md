@@ -1,0 +1,1 @@
+Artículo 11.—Obligación de las jefaturas de ofrecer explicaciones si faltan de activos. Cuando de un inventario resulten activos faltantes en una dependencia, corresponde a la jefatura ofrecer las explicaciones del caso, que soliciten la Auditoría Interna o la Dirección Administrativa Financiera.

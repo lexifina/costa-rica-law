@@ -1,0 +1,1 @@
+Artículo 14.—Funcionario responsable de velar por activos cuando se supriman unidades funcionales. En caso de supresión de alguna unidad funcional, el funcionario responsable de ella velará porque los activos asignados de la extinta unidad se entreguen a la Proveeduría, con copia al Depto. de Contabilidad, para que se les asigne a esos bienes el mejor uso.
