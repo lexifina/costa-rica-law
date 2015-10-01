@@ -25,3 +25,4 @@ Reglamento a Ley del Impuesto sobre la Renta
 | 10 | 2005-05-12 | Decreto Ejecutivo 32410 (2005-05-12) |
 | 11 | 2011-01-03 | Decreto Ejecutivo 36399 (2011-01-03) |
 | 12 | 2014-09-02 | Decreto Ejecutivo 38708 (2014-09-02) |
+| 13 | 2015-10-01 | Decreto Ejecutivo 39376 (2015-10-01) |

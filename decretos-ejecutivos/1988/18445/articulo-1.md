@@ -1,19 +1,20 @@
-Decreto Ejecutivo
 N° 18445- H
-NOTA DEL SINALEVI- PGR: De acuerdo a la publicación de este Decreto Ejecutivo Nº 18445 en el Alcance Nº 29 de la Gaceta Nº 181 del 23 de setiembre de 1988, se omite el Capítulo VI, pasando del Capítulo V al Capítulo VII.
+(Nota de Sinalevi: De acuerdo a la publicación de este Decreto Ejecutivo Nº 18445 en el Alcance Nº 29 de la Gaceta Nº 181 del 23 de setiembre de 1988, se omite el Capítulo VI, pasando del Capítulo V al Capítulo VII.
 Con fundamento en el artículo 140, incisos 3) y 18) de la Constitución Política y el artículo 68 de la Ley Nº 7092 del 21 de abril de 1988 y sus reformas,
 DECRETAN:
 El siguiente
 REGLAMENTO DE LA LEY DEL IMPUESTO SOBRE LA RENTA
 CAPITULO I
 DE LAS DEFINICIONES
-ARTICULO 1º.- Definiciones. Cuando en la ley y en este Reglamento se empleen los términos y expresiones siguientes, debe dárseles las acepciones y significados que se señalan a continuación:
-a) Dirección o Dirección General; Administración Tributaria o Administración: Se refieren a la Dirección General de la Tributación Directa.
+Artículo 1°—Definiciones. En los casos en que la Ley o este Reglamento utilicen los términos y expresiones siguientes, deben dárseles las acepciones y significados que se señalan a continuación:
+a) Dirección o Dirección General; Administración Tributaria o Administración: se refieren a la Dirección General de Tributación.
 b) Empresa: es toda unidad económica que tenga uno o más establecimientos permanentes en el país, dedicados a la realización de actividades o negocios de carácter lucrativo.
-c) Exportación: Es la salida del país, cumplidos los trámites legales, de mercancías nacionales o nacionalizadas, destinadas a uso o consumo definitivo en el extranjero.
-ch) Insumo: Son los bienes intermedios y finales que se incorporan al bien producido o fabricado y también aquellos que se utilizan en la producción o fabricación de éste, que no pueden imputarse directamente a su costo, tales como grasas, aceites, lubricantes, artículos de limpieza para maquinaria, cepillos, agujas, filtros, embalajes, enfardajes, etc.
-d) Ley o la ley: Se trata de la Ley del Impuesto sobre la Renta Nº 7092 del 21 de abril de 1988 y sus reformas.
-e) Patrono: Persona física o jurídica que da ocupación retribuida a los trabajadores, en relación subordinación; se denomina también así al empleador, empresario y al pagador.
-f) Tasa de interés usual de mercado: Aquella equivalente a la tasa básica pasiva calculada según los lineamientos del Banco Central de Costa Rica, más un margen de hasta quince puntos porcentuales
-con independencia de la actividad de que se trate.
-(Así adicionado este inciso por el artículo 1º del decreto ejecutivo No.25046 de 26 de marzo de 1996)
+c) Exportación: es la salida del país, cumplidos los trámites legales, de mercancías nacionales o nacionalizadas, destinadas a uso o consumo definitivo en el extranjero.
+ch) Insumos: son los bienes intermedios y finales que se incorporan al bien producido o fabricado y también aquellos que se utilizan en la producción o fabricación de este, que no pueden imputarse directamente a su costo, tales como grasas, aceites, lubricantes, artículos de limpieza para maquinaria, cepillos, agujas, filtros, embalajes, enfardajes, etc.
+d) Ley o la ley: se trata de la Ley número 7092 del 21 de abril de 1988 y sus reformas, denominada “Ley del Impuesto sobre la Renta”.
+e) Patrono: persona física o jurídica que da ocupación retribuida a los trabajadores, en relación de subordinación; se denomina también así al empleador, empresario y al pagador.
+f) Tasa de interés usual de mercado: aquella equivalente a la tasa básica pasiva calculada según los lineamientos del Banco Central de Costa Rica, más un margen de hasta quince puntos porcentuales con independencia de la actividad de que se trate.
+g) Bancos Extranjeros: Para efectos de la aplicación de los tipos impositivos reducidos previstos en el párrafo segundo del inciso h) del artículo 59 de la Ley citada, se entenderá como “Bancos Extranjeros que forman parte de un grupo o conglomerado financiero costarricense regulados por el Consejo Nacional de Supervisión del Sistema Financiero”, aquellas entidades financieras bancarias, que siendo residentes fiscales de otra jurisdicción, mantengan relaciones de vinculación económica con un grupo o conglomerado financiero costarricense que sea regulado por el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF). Este tipo de vinculaciones consisten en la gestión, el control común, funcional y de propiedad, establecidos en la normativa aplicable al efecto y que esté aprobada por el CONASSIF. La Administración Tributaria considerará como grupos o conglomerados financieros costarricenses aquellos que conformen el listado oficial de grupos y conglomerados supervisados por la Superintendencia General de Entidades Financieras (SUGEF), que es publicado en el portal electrónico de este órgano supervisor.
+h) Entidades del extranjero que estén sujetas a la vigilancia e inspección en sus correspondientes jurisdicciones: Para efectos de la aplicación del tipo impositivo previsto en el párrafo tercero del inciso h) del artículo 59 de la Ley citada, se entenderá como tales, todas aquellas entidades financieras no costarricenses, que en sus respectivos países de residencia, se encuentren sujetas a vigilancia e inspección de sus actividades financieras, por parte de algún ente público con objetivos, rangos, potestades, funciones o fines similares a los que en Costa Rica desempeña para el sistema financiero nacional, la Superintendencia General de Entidades Financieras (SUGEF).
+i) Organización sin fin de lucro: Para efectos de la exoneración del pago del impuesto prevista en el párrafo cuarto del inciso h) del artículo 59 de la Ley citada, se entenderá como tal aquella organización de derecho privado, constituida y residente en otra jurisdicción que no tiene como objetivo el lucro económico y como tal la utilidad que genere no es distribuida ni directa ni indirectamente entre sus socios, sino que esta se destina al cumplimiento de su objeto social.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39376 del 1° de octubre de 2015)
