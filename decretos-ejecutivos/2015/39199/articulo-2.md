@@ -1,0 +1,1 @@
+Artículo 2º—Todos aquellos trámites relacionados con la instalación de nuevos proyectos hidroeléctricos que se encuentren pendientes en la Dirección de Aguas, y ante la Secretaría Técnica Nacional Ambiental a la fecha de publicación del presente decreto, serán suspendidos. Todo derecho adquirido antes de la publicación del presente decreto ejecutivo, será respetado.
