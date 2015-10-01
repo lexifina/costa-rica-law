@@ -1,0 +1,3 @@
+Artículo 13.—Deberes adicionales sobre Áreas de Uso Común o Alojamientos Compartidos: Todo funcionario que cuente con alojamiento asignado con Áreas de Uso Común o Compartida deberá:
+a. Evitar ruidos innecesarios que perturben a otros moradores, particularmente después de las 9:00 p. m. incluyendo el uso de televisores, equipos de sonido o similares con volumen superior a lo moderado. En caso de televisores ubicados en las salas comunes, deberán ser apagados a más tardar a las 11:00 p. m. No se utilizarán lavadoras de ropa o secadoras después de las 9:00 p. m. por el ruido que producen.
+b. Mantener un comportamiento y vestimenta mesurados en pasillos, escaleras y áreas comunes, de tal manera que no perturbe la tranquilidad u ofenda la moral de los demás residentes.

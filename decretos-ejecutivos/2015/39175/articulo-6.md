@@ -1,0 +1,3 @@
+Artículo 6°—Forma de Asignación: Se dará prioridad en la asignación de alojamientos a la Gerencia, Subgerencia, personal de seguridad y vigilancia, Operadores de Equipo Móvil, jefaturas de Departamento, jefaturas de Sección, funcionarios del Servicio Nacional de Aduanas, y personal de la Policía de Control Fiscal en ese orden de prioridad.
+En caso de que exista solo un alojamiento disponible y solicitudes de varios funcionarios con el mismo rango de prioridad, se otorgará a quien haya presentado la solicitud primero, manteniéndose las demás en lista de espera.
+Los alojamientos pueden ser asignados a dos o más funcionarios a la vez, de acuerdo a la capacidad de los mismos, en respeto al uso racional de los bienes del Estado.

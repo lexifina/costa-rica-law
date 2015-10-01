@@ -1,0 +1,2 @@
+Artículo 20.—Comisión Organizadora: En los alojamientos en que deban convivir varios funcionarios, el Gerente o Encargado de la Dependencia, nombrará una Comisión permanente que se encargará de fiscalizar el buen uso del inmueble donde se ubiquen los alojamientos y de plantear recomendaciones para mejorar su uso y mantenimiento.
+Dicha Comisión estará integrada por tres funcionarios de la sede donde se encuentre el alojamiento y entre los cuales estará el Gerente o Subgerente de la Aduana, el enlace administrativo y alguno de los funcionarios que residen en los alojamientos.
