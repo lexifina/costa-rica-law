@@ -1,0 +1,1 @@
+Artículo 21.—Si el caso expuesto por el interesado cumple con los requerimientos establecidos en la Ley 7727, el Coordinador procederá a invitar a la contraparte y señalará la fecha y hora de la mediación.

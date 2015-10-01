@@ -1,0 +1,1 @@
+Artículo 23.—Si alguna de las partes manifiesta su inconformidad con la designación del mediador, deberá hacérselo saber al Coordinador de la Casa de Justicia de previo a la audiencia de mediación/conciliación; quién valorará la posibilidad de designar a un nuevo mediador para que lleve a cabo la audiencia.

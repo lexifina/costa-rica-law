@@ -1,0 +1,2 @@
+Artículo 8º—La recepción de las solicitudes, estará a cargo del personal designado para tal efecto. Estas solicitudes serán tramitadas por el Coordinador el mismo día de recibidas.
+El Coordinador procederá a realizar el análisis de admisibilidad y conciliabilidad respectivo de cada caso, realizará el contacto con la otra parte involucrada; y designará al mediador que se hará cargo del proceso de mediación. De igual manera las partes podrán elegir al mediador de su caso.

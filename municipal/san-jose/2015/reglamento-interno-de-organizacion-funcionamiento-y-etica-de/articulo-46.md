@@ -1,0 +1,1 @@
+Artículo 46.—Intereses de terceros no representados: Cuando el mediador advierta que existen intereses de terceras personas que las partes no han considerado, y pudieran resultar afectadas por el acuerdo, deberá hacerlo saber a los participantes y sugerir la integración de los terceros al procedimiento.

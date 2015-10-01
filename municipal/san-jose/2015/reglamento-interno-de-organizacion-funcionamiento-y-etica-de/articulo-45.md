@@ -1,0 +1,1 @@
+Artículo 45.—Control de las partes: El procedimiento de mediación pertenece a las partes, que delegan su conducción al mediador. Éste no tiene interés particular en el resultado del proceso, términos del acuerdo o sus consecuencias para las partes; pero debe velar por la integridad, viabilidad y formalidades legales del acuerdo.

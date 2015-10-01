@@ -1,0 +1,1 @@
+Artículo 29.—En caso que las partes llegaran a un acuerdo, total o parcial, el mediador dejará constancia de ello en el acta respectiva, y especificando cuando así corresponda los puntos sobre los cuales no hubo acuerdo.

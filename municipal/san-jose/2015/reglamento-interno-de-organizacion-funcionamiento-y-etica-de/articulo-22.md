@@ -1,0 +1,1 @@
+Artículo 22.—El Coordinador de la Casa de Justicia designará el mediador que tendrá a cargo la realización de dicha mediación. De igual manera las partes tienen el derecho de elegir con libertad y de mutuo acuerdo a las personas que fungirán como mediadores en sus asuntos, tal y como lo establece el artículo 5 de la Ley 7727.

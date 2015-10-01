@@ -1,0 +1,1 @@
+Artículo 19.—El mediador designado por la Casa de Justicia para hacerse cargo de un proceso de mediación, podrá ser objetado por alguna de las partes, debiendo el Coordinador de la Casa de Justicia nombrar un mediador sustituto. Esta solicitud podrá hacerse una única vez.

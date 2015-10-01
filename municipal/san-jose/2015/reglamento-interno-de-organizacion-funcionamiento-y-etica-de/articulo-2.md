@@ -1,0 +1,1 @@
+Artículo 2º—De la instrucción de la Casa de Justicia: El funcionamiento, competencia y responsabilidad de la Casa de Justicia se regirán por lo previsto en la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social (Ley N° 7727), el Reglamento a su Capítulo IV y demás normas que se dicten sobre la materia, así como por el presente reglamento.

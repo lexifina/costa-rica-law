@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del coordinador
+Artículo 12.—Definición de Coordinador: Abogado designado por el Ministerio de Justicia y Paz (en adelante Ministerio) o la Municipalidad de San José (en adelante Municipalidad) capacitado y acreditado en el manejo de los mecanismos de Resolución Alterna de Conflictos (RAC); que deberá velar por el adecuado funcionamiento y operación de la Casa de Justicia.
+Será el encargado de dirigir, organizar y propiciar un adecuado ambiente de desarrollo de tareas y funciones en la Casa de Justicia. El Coordinador, para efectos disciplinarios y manejo de personal se tendrá como encargado inmediato de los colaboradores que se encuentren destacados en la Casa de Justicia del Cantón San José, de igual manera fungirá respecto aquellos que aún y cuando de manera transitoria presten servicios en esta durante el lapso que comprenda dicha temporalidad.

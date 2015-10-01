@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los mediadores
+Artículo 14.—La Casa de Justicia mantendrá el listado actualizado de sus Mediadores, así como los currículos actualizados de éstos, los cuales deberán contener documentación que acredite su formación académica y su capacitación en materia de mediación. Se tendrá como mediador a aquel individuo con habilidades de comunicación y de resolución alterna de conflictos, que cuente con la capacidad de armonizar los intereses y presentar la verdadera motivación del conflicto a los individuos involucrados; a fin de que estos encuentren una solución satisfactoria para ambas partes.

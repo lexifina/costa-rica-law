@@ -1,0 +1,1 @@
+Artículo 6º—De las Invitaciones: La Casa de Justicia se encargará de coordinar las invitaciones correspondientes a las partes, con el fin de poner en conocimiento de éstas la fecha de audiencia para las mediaciones.

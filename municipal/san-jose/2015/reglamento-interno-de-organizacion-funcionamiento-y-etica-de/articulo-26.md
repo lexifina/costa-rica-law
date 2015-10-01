@@ -1,0 +1,1 @@
+Artículo 26.—Al iniciarse la audiencia de mediación, el mediador señalará a las partes las reglas de conducta que la regirán; e informará a las partes que, podrá realizar audiencias separadas con cada uno de los interesados en caso de considerarlo conveniente.
