@@ -1,0 +1,1 @@
+Artículo 30.—Los acuerdos de las sesiones se adoptarán por mayoría simple, es decir, la mitad más uno de los académicos presentes, sin perjuicio en los supuestos en que se exija un quórum de la mitad más uno de los académicos numerarios.

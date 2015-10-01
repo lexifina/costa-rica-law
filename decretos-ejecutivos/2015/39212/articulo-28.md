@@ -1,0 +1,1 @@
+Artículo 28.—Los académicos de número deberán asistir a las sesiones ordinarias y extraordinarias. Los académicos de honor podrán asistir a las sesiones ordinarias y extraordinarias, sin derecho a voto, y los correspondientes podrán asistir a aquellas conforme disponga el reglamento correspondiente.

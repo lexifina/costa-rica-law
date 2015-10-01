@@ -1,0 +1,1 @@
+Artículo 27.—Las sesiones extraordinarias se celebrarán cuando lo exija la urgencia o importancia de los asuntos. En la citación de estas sesiones, con tres días hábiles de antelación, se expresará el motivo. Las sesiones extraordinarias convocadas para la elección de miembros de la Academia, se realizarán en los términos establecidos en el Artículo Ocho anterior.

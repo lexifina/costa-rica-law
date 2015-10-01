@@ -1,0 +1,1 @@
+Artículo 39.—Para el mejor cumplimiento de sus fines, la Academia podrá crear fundaciones y asociaciones, así como constituir sociedades mercantiles en las que los socios no deben responder personalmente de las deudas sociales. Con el mismo objeto, la Academia podrá participar en sociedades mercantiles no personalistas.

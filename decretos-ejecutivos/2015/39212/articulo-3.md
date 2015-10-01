@@ -1,0 +1,1 @@
+Artículo 3º—Para la realización de sus trabajos de investigación, docencia y difusión, además de organizar periódicamente encuentros académicos, conferencias científicas, coloquios y seminarios, la Academia establecerá el Instituto Nacional Morista, que funcionará en estrecha dependencia de la comisión que reglamentariamente se establezca.

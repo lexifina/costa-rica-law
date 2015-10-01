@@ -1,0 +1,1 @@
+Artículo 5º—La Academia convocará cada año los premios que oficialmente establezca para fomentar y reconocer los estudios y trabajos que de manera señalada contribuyan al mejor conocimiento del legado morista.

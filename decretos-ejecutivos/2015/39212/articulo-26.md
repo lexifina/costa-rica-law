@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De las sesiones
+Artículo 26.—La Academia celebrará doce sesiones ordinarias cada año y las extraordinarias que convoque el Consejo de Dirección. En el día determinado de cada mes, se celebrará sesión ordinaria para tratar de los asuntos de su competencia e interés. La sesión de diciembre será un convivio entre sus miembros e invitados, el cual será financiado por los participantes. En ausencia del presidente y del vicepresidente, hará sus veces el académico de número más antiguo de los presentes, exceptuados el secretario, el fiscal y el tesorero. Para celebrar sesión ordinaria el quórum requerido será de un tercio de los académicos de número.

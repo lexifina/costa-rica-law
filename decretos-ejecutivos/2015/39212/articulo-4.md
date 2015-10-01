@@ -1,0 +1,1 @@
+Artículo 4º—Se instituye la Medalla de Oro de la Academia Morista Costarricense que podrá otorgarse a personas o entidades en reconocimiento a su labor de mecenazgo y especial protección de actividades e iniciativas de la Academia o de sus fondos y legados. La Academia podrá instituir otros reconocimientos con el mismo fin.

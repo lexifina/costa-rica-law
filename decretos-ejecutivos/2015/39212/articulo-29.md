@@ -1,0 +1,1 @@
+Artículo 29.—En los casos de elecciones, o cuando la materia fuere grave a juicio del presidente, no se celebrará sesión sin que preceda aviso de tres días hábiles a los académicos numerarios, ni se resolverá sin la concurrencia de la mitad más uno de los convocados. Para celebrar sesión ordinaria el quórum requerido será de un tercio de los académicos de número.

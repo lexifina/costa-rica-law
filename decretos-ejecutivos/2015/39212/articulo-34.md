@@ -1,0 +1,1 @@
+Artículo 34.—La Academia celebrará anualmente una sesión pública de solemne apertura de curso, en la cual el secretario leerá una breve memoria de actividades del periodo anterior y un académico pronunciará la oración inaugural sobre un tema morista.
