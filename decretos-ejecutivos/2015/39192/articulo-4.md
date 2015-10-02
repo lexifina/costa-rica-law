@@ -1,0 +1,1 @@
+Artículo 4º—El Consejo Nacional de Vialidad realizará un Plan de Manejo Forestal, cuyas acciones promuevan la restauración o mejora ambiental de las áreas impactadas producto del desarrollo del Proyecto, con el fin de atenuar sus efectos y minimizar los impactos en procura de la recuperación de las mismas especies desmontadas.

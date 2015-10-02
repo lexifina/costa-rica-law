@@ -1,0 +1,1 @@
+Artículo 2º—En virtud de la declaratoria de Conveniencia Nacional del proyecto antes descrito, se autoriza realizar la corta, poda o eliminación de 7 (siete) árboles, incluyendo especies declaradas en veda o en peligro de extinción, que se ubiquen en terrenos cubiertos de bosque y/o áreas de protección definidas en el artículo 33 de la Ley Forestal Nº 7575.
