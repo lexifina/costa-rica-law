@@ -1,0 +1,2 @@
+Artículo 4º—El que causare daños a los árboles, plantas, mobiliario urbano o cualquier elemento o medio existente en los indicados sitios públicos, estará obligado a su reparación, aunada la indemnización correspondiente, conforme con lo indicado en los artículos 14 y 15 de este reglamento y con la independencia de las sanciones a que hubiere lugar por contravención de la normativa contenida en este reglamento.
+Esta obligación es exigible no sólo por los actos propios, sino también por los de aquellas personas por quienes se debe responder y por los animales que se posean.

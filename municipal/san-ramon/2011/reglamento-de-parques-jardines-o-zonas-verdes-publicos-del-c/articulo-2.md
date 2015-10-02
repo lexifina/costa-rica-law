@@ -1,0 +1,3 @@
+Artículo 2º—Todos los ciudadanos tienen derecho al uso y disfrute de los parques, jardines o zonas verdes públicos, de acuerdo con lo que se establece a continuación:
+Los usuarios de los espacios públicos indicados en el artículo 1 de este reglamento, deberán cumplir las instrucciones que al respecto figuren sobre su utilización en indicadores, anuncios, rótulos y señales acerca de usos y prohibiciones.
+Además, deberán atenderse las indicaciones que formulen los oficiales de la Policía Municipal, la Fuerza Pública y de los funcionarios municipales asignados al cuidado y mantenimiento de los parque, jardines y zonas verdes públicos.

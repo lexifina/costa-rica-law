@@ -1,0 +1,12 @@
+Artículo 12.—El mobiliario urbano existente en los parques, jardines y zonas verdes en el que se encuentran comprendidos las bancas o pollos, kioscos, juegos infantiles, basureros, fuentes, señalizaciones, faroles y elementos decorativos, tales como adornos y estatuas, debe mantenerse en el más adecuado y estético estado de conservación.
+Los causantes de su deterioro o destrucción no sólo serán responsables de el resarcimiento de los daños y perjuicios producidos, sino sancionados administrativamente de conformidad con la gravedad de la falta cometida. Así mismo, serán sancionados los que haciendo un uso indebido de tales elementos perjudiquen su correcta utilización. A tal efecto y en relación con el mobiliario urbano, se establecen las siguientes limitaciones:
+1. Bancas. No se permitirá el uso de las bancas de forma contraria a su utilización o todo acto que perjudique o deteriore su conservación y, en particular arrancar, los que estén fijos o trasladarlos, realizar inscripciones, pinturas o ensuciarlas.
+2. Juegos infantiles. Su utilización se realizará por los niños con edades comprendidas en las señales que para tal efecto se establezcan, no permitiéndose su utilización por los adultos o por menores que no estén comprendidos en la edad que se indique expresamente en cada sector o juego, así como tampoco en la utilización de los juegos de forma que exista peligro para sus usuarios de modo que puedan deteriorarlos o destruirlos.
+3. Basureros.
+a) Los desperdicios o papeles deberán depositarse en los basureros para tal fin establecidos.
+b) Los usuarios deberán abstenerse de toda manipulación sobre los basureros, moverlos, incendiarlos, volcarlos y arrancarlos, así como hacer inscripciones en los mismos, adherir pegamentos u otros actos que deterioren su presentación.
+c) Sólo con permiso municipal se pintan leyendas o imágenes en los basureros.
+4. Señalizaciones, faroles, estatuas y elementos decorativos. En estos elementos de mobiliario urbano no se permitirá trepar, subirse, columpiarse o realizar cualquier acto que ensucie, perjudique y deteriore o menoscabe su uso y nadie podrá manipular la parte eléctrica sin la previa autorización escrita de la administración.
+5. Otros.
+a) Los usuarios deberán de abstenerse de realizar cualquier manipulación en las cañerías y elementos de las fuentes que no sean las propias de su funcionamiento normal.
+b) No se permitirá introducirse en sus aguas, practicar juegos o realizar cualquier tipo de manipulación, en las fuentes decorativas, surtidoras, bocas de riego o elementos análogos.
