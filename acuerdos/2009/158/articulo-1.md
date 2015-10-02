@@ -1,4 +1,5 @@
 SUPERINTENDENCIA GENERAL DE VALORES
+(Nota de Sinalevi: Mediante el artículo 1° del acuerdo N° SGV-A-201 del 2 de octubre del 2015, se reforman las secciones 6.1 y 7.4 del Anexo 1 del presente acuerdo. No obstante mediante información suministrada por la Superintendencia General de Valores, dichos anexos no fueron publicados en el Diario Oficial La Gaceta, razón por la cual la reforma no se realizó)
 La Superintendencia General de Valores de conformidad con lo establecido en la Ley 8220 “Protección del ciudadano del exceso de requisitos y trámites administrativos” pública el siguiente acuerdo.
 SGV-A-158. Superintendencia General de Valores. Despacho del superintendente. A ser las nueve horas del cuatro de junio del dos mil nueve.
 Considerando que:
