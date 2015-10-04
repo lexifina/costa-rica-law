@@ -1,0 +1,1 @@
+Artículo 26.—El programa de ayuda EDDI-7, seguirá vigente con los formularios D.116 Autoliquidación de Sanciones por Infracciones Administrativas y D.110 Recibo Oficial de Pago, formularios D120 Traspaso de Bienes Inmuebles, D121 Traspaso de vehículos automotores, embarcaciones y aeronaves.

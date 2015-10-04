@@ -1,0 +1,1 @@
+Artículo 24.—Cualquier situación no regulada en la presente resolución, referente a las medidas de contingencia, deberá aplicarse en lo que corresponda la resolución N° DGT-R-025-2013 de las quince horas del día cuatro de julio del dos mil trece, publicada en La Gaceta N°162 del 26 de agosto 2013.

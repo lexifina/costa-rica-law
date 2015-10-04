@@ -1,0 +1,5 @@
+Artículo 13.—Regulación sobre acuses de recibo y pago.
+1. En todos los casos, trátese del cumplimiento de deberes formales ante la Administración Tributaria, por medio del portal ATV, el sistema confirmará la recepción de las declaraciones, a través de un acuse de recibo, que se enviará al buzón electrónico contenido en su cuenta de usuario.
+2. El acuse de recibo que emita la Administración Tributaria no implica manifestación de su conformidad con el contenido de las declaraciones presentadas por los usuarios. La Dirección General de Tributación, se reserva los derechos contemplados en las normas tributarias respecto de sus facultades de comprobación y determinación de las obligaciones tributarias.
+3. Si el usuario no recibe el acuse de recibo inmediatamente después de su presentación, deberá considerar su declaración o solicitud como no presentada, y gestionar ante la Administración Tributaria correspondiente
+4. La responsabilidad de resguardar el acuse de recibo es únicamente del obligado tributario.
