@@ -1,1 +1,0 @@
-Artículo 18.—Recepción de declaraciones informativas. Se recibirán, las declaraciones elaboradas por los informantes que se encuentren registrados ante la Administración Tributaria en la forma, formato y extensión que se defina. Será motivo de no recibo, aquellas declaraciones que no cumplan con estos requerimientos.
