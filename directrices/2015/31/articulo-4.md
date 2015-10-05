@@ -1,0 +1,1 @@
+Artículo 4º—Es obligación de las instituciones contempladas en el Anexo I de esta directriz cumplir con los plazos establecidos en el Plan de Contingencia del Anexo II, el cual pretende facilitar el avance hacia un mejor desempeño en materia ambiental por parte de estas instancias.
