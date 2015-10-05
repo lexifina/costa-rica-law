@@ -1,0 +1,1 @@
+Artículo 3º. - Las dependencias y entidades de la Administración Pública quedan obligados a proporcionar al SENASA todo el apoyo y colaboración técnica y administrativo que requiera para controlar y manejar la plaga referida en el ámbito de sus competencias.
