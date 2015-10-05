@@ -1,0 +1,4 @@
+Artículo 2º—Definiciones. Junta: Junta de Protección Social.
+Premios especiales: Consisten en 54 premios otorgados en dinero en efectivo en el programa Rueda de la Fortuna y en un premio para las personas que asistan como espectadoras al programa Rueda de la Fortuna.
+Participantes: Toda persona física mayor de 18 años, que envíe en un sobre dos enteros del producto Tiempos Impresos para participar en el sorteo que se efectuará en el programa Rueda de la Fortuna de premios en efectivo y también las primeras 40 personas que presenten en un sobre cinco enteros del producto Tiempos Impresos podrán asistir como espectadores al programa Rueda de la Fortuna, entre las cuales se sorteará un premio en efectivo. No participarán en esta promoción los funcionarios de la Junta de Protección Social.
+Sorteo: proceso de selección al azar de los favorecidos, el cual es debidamente fiscalizado por personal de la Junta de Protección Social y de competencia judicial.

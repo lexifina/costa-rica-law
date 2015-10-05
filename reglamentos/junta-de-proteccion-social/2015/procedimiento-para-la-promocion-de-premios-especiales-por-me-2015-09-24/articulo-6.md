@@ -1,0 +1,19 @@
+Artículo 6º—Mecánica del Sorteo Premios en efectivo. Para los 54 premios indicados en el artículo 3) del presente procedimiento, se procederá a realizar once sorteos en oficinas centrales, en cada sorteo participarán todos los sobres recaudados, es decir, los sobres que se depositaron en buzones ubicados en oficinas centrales y los que ingresaron por medio de Correos de Costa Rica, según lo establecido en el artículo 3) de este procedimiento. Cada sobre extraído corresponderá a un ganador. Una misma persona solo podrá ser seleccionada una vez por sorteo.
+Los sorteos se realizarán en el programa Rueda de la Fortuna, según se indicó anteriormente. Cada sorteo se efectuará en presencia del grupo de fiscalizadores que la Junta designe.
+Los aspectos que considerarán el grupo de fiscalizadores en el momento que se efectuará el sorteo son los siguientes:
+- Se verifica la autenticidad de los enteros con el marcador de seguridad que se activa al contacto con el papel de seguridad.
+- Se verifica que los dos enteros contengan nombre completo, número de documento de identificación, número de teléfono (preferiblemente). Para los participantes nacionales, el documento de identificación se valida con el padrón electoral vigente a la fecha, de no existir coincidencia se efectuará una nueva extracción.
+- Se verifica que los dos enteros correspondan a los sorteos participantes en cada sorteo.
+- Si en el sobre se incluyeron más de dos enteros de los sorteos indicados, serán validados solamente dos enteros, en el entendido que el resto de enteros están a nombre de la misma persona.
+- Es indispensable que los datos concuerden en los enteros remitidos. Los datos deben estar legibles.
+- Si en el sobre aparte de los enteros, se incluyó algún otro objeto se debe separar, pero eso no impide que se realice la verificación de los datos.
+Los nombres de los ganadores serán publicados en la página electrónica de la Junta de Protección Social (www.jps.go.cr), en el sitio de la red social facebook “Junta de Protección Social (Oficial)” en tiempo real y en publicaciones que se efectuarán posteriormente en prensa escrita.
+Los premios serán sorteados en el orden indicado en el cuadro incluido en el artículo 3) “Detalle de los Premios”, es decir, se dará inicio con los premios de ¢75.000 y se culminará con los premios de ¢300.000.
+Participación en el programa Rueda de la Fortuna. Entre las 40 personas que depositen su sobre en un buzón según lo indicado en el artículo 5) “Mecánica de participación”, se procederá a efectuar un sorteo en vivo durante la transmisión del programa en presencia del grupo de fiscalizadores, para elegir al favorecido de un premio de ¢75.000.
+Los aspectos que considerarán el grupo de fiscalizadores en el momento que se efectuará el sorteo son los siguientes, en caso de que algún aspecto no se cumpla se elegirá otro ganador:
+- Se verifica la autenticidad de los enteros con el marcador de seguridad que se activa al contacto con el papel de seguridad.
+- Se verifica que los 5 (cinco) enteros contengan nombre completo, número de documento de identificación, número de teléfono (preferiblemente) y que los datos coincidan con el documento de identidad presentado por el participante. Para los participantes nacionales, el documento de identificación se valida con el padrón electoral vigente a la fecha, de no existir coincidencia se efectuará una nueva extracción.
+- Se verifica que los 5 (cinco) enteros correspondan a los sorteos participantes en cada sorteo.
+- Si en el sobre se incluyeron más de 5 (cinco) enteros de los sorteos indicados, serán validados solamente 5 (cinco) enteros, en el entendido que el resto de enteros están a nombre de la misma persona.
+- Es indispensable que los datos concuerden en los enteros remitidos. Los datos deben estar legibles.
+- Si en el sobre aparte de los enteros, se incluyó algún otro objeto se debe separar, pero eso no impide que se realice la verificación de los datos.
