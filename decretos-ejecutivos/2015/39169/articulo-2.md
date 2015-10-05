@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo general. El CONACUSA tiene como objetivo ser un ente asesor dependiente del Ministerio de Salud en materia financiamiento, economía y cuentas de salud, abogando por el desarrollo de procesos de análisis en cuentas de salud dirigidos a mejorar la sostenibilidad financiera del sistema de salud de Costa Rica.

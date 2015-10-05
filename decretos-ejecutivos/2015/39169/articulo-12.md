@@ -1,0 +1,1 @@
+Artículo 12.—Ámbito y competencias del CONACUSA. El CONACUSA podrá fungir como ente consultor y asesor en asuntos de economía de la salud, tanto a nivel público como privado, nacional o internacional, siguiendo las prioridades de salud establecidas por el Ministro de Salud.

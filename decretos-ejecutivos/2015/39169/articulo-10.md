@@ -1,0 +1,1 @@
+Artículo 10.—Fiscalización del CONACUSA. Las acciones del CONACUSA serán fiscalizadas por el Ministro de Salud mediante informes o presentaciones solicitadas por el jerarca en el momento que así se requiera.

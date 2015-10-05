@@ -1,0 +1,1 @@
+Artículo 13.—Representación del Ministerio de Salud del CONACUSA. La representación del Ministerio de Salud en eventos nacionales e internacionales sobre el tema de cuentas de salud, se llevará a cabo por designación del jerarca institucional.
