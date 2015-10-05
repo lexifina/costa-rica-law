@@ -10,4 +10,5 @@ El siguiente:
 Reglamento del Sistema Nacional de Farmacovigilancia
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Ámbito de aplicación. Las disposiciones del presente decreto se aplican a la farmacovigilancia de todos los medicamentos para uso humano, que estén registrados en el país y que se expenden y comercializan en todos los establecimientos de salud públicos y privados.
+Artículo 1°—Ámbito de aplicación. Las disposiciones del presente reglamento se aplican a cada uno de los agentes que conforman el Sistema Nacional de Farmacovigilancia y a todos los medicamentos de uso humano que se importan, fabrican, comercializan y utilizan en el país.
+(Así reformado por el artículo 2° del Reglamento de Buenas Prácticas de Farmacovigilancia aprobado mediante decreto ejecutivo N° 39417 del 5 de octubre del 2015)

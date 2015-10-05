@@ -14,3 +14,4 @@ Reglamento del Sistema Nacional de Farmacovigilancia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-22 | la propia norma |
+| 2 | 2015-10-05 | Decreto Ejecutivo 39417 (2015-10-05) |
