@@ -1,0 +1,1 @@
+Artículo 36.—Veracidad de la información. El teletrabajador debe brindar información veraz y oportuna en todos los procesos de investigación, evaluación del desempeño y medición a los que deba someterse.

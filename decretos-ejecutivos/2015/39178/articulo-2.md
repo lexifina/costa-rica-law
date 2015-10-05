@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este reglamento es aplicable a todos los trabajadores del Ministerio de Cultura y Juventud, o sus órganos desconcentrados, que tienen puestos con actividades que la respectiva institución para la que laboran, determine como teletrabajables y donde existan las condiciones tecnológicas requeridas.

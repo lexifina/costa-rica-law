@@ -1,0 +1,1 @@
+Artículo 26.—Requerimiento técnico del equipo. Las computadoras utilizadas para el teletrabajo deben cumplir con todas las características técnicas y de seguridad indicadas por parte del Departamento de Informática del MCJ.

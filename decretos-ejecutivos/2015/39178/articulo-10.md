@@ -1,0 +1,1 @@
+Artículo 10.—Jornada teletrabajable. El tiempo que se destinará a cada teletrabajador en esta modalidad, podrá oscilar entre 1 y 3 días por semana, previo acuerdo con su jefatura. Los días en que el funcionario teletrabajará deben ser acordados también con su jefatura, garantizando la continuidad en la prestación de los servicios presenciales, en las dependencias del MCJ.
