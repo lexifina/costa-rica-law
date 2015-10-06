@@ -14,3 +14,4 @@ Reglamento a la Ley Orgánica del Colegio Profesional de Psicólogos de Costa Ri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-20 | la propia norma |
+| 2 | 2015-10-06 | Reglamento 0 (2015-10-06) |
