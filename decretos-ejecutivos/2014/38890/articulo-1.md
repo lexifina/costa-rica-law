@@ -20,4 +20,5 @@ Artículo 1º—De la Dirección General de Administración de Bienes y Contrata
 a. Brindar asesoría a los sujetos públicos y privados que desarrollan actividades de contratación administrativa.
 b. Evaluar las políticas y los procedimientos de contratación, con la finalidad de que se ajusten constantemente a satisfacer el interés público.
 c. Tramitar en todas sus etapas incluso la de adjudicación, de los procedimientos para contratar del Poder Ejecutivo que no estén asignados a proveedurías institucionales.
-d. Ser el órgano rector en el uso de medios electrónicos en procedimientos de contratación administrativa para todo el Sector Público.
+d. Ser el órgano rector en el uso de medios electrónicos en procedimientos de contratación administrativa.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39309 del 6 de octubre del 2015)
