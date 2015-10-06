@@ -14,3 +14,4 @@ Reglamento de Organización y Funciones de la Dirección de la Policía de Contr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-13 | la propia norma |
+| 2 | 2015-10-06 | Decreto Ejecutivo 39305 (2015-10-06) |
