@@ -1,4 +1,0 @@
-Ámbito de acción de la Auditoría Interna
-Artículo 24.—Ámbito de competencia. La Auditoría Interna ejecuta sus competencias en todas las dependencias que integran la institución.
-Compete a la Auditoría Interna realizar auditorías y estudios especiales, en relación con los fondos públicos sujetos a su competencia institucional, incluidos fideicomisos, fondos especiales y otros de naturaleza similar. Asimismo, efectuar auditorías y estudios especiales sobre fondos y actividades privadas, de acuerdo con los artículos 5º y 6º de la Ley Orgánica de la Contraloría General de la República, en tanto estos se originen en transferencias efectuadas por componentes de su competencia institucional.
-Corresponde al Auditor Interno definir y mantener actualizado el ámbito de competencia del CONAVI y demás órganos sujetos al ámbito de acción de la Auditoría Interna, con fundamento en lo estipulado en el artículo 22, inciso a) de la “Ley General de Control Interno”.

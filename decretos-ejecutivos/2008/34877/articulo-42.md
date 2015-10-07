@@ -1,3 +1,0 @@
-Artículo 42.—Plazos para que la Administración acepte las Recomendaciones de la Auditoría Interna.
-a) Cuando los informes de Auditoría contengan recomendaciones dirigidas a los titulares subordinados, éstos tendrán diez días hábiles contados a partir de la fecha de recibido el informe, para ordenar su implantación, de conformidad con el artículo 36 de la “Ley General de Control Interno”.
-b) Cuando los informes de Auditoría contengan recomendaciones dirigidas al Jerarca, éste ordenará a quienes correspondan su implantación, en un plazo de treinta días hábiles contados a partir de la fecha de recibido el informe, de conformidad con el artículo 37 de la “Ley General de Control Interno”.

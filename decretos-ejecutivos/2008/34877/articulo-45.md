@@ -1,2 +1,0 @@
-De los hechos irregulares
-Artículo 45.—Presentación de hechos irregulares detectados por la Auditoría. En caso de que la Auditoría Interna determine hechos irregulares durante el cumplimiento de su función y que eventualmente, impliquen responsabilidades de distinta naturaleza sobre los funcionarios del CONAVI, se elaborará un informe de Relación de Hechos, conforme a las “Directrices sobre la comunicación de relaciones de hecho y denuncias penales”.

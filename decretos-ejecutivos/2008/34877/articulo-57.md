@@ -1,1 +1,0 @@
-Artículo 57.—Aprobación. El Consejo de Administración aprobará cualquier modificación a este Reglamento considerando de previo el criterio del Auditor Interno. Además, sus modificaciones deberán contar con la Autorización de la Contraloría General de la República, publicarse en el Diario Oficial y divulgarse en el Consejo Nacional de Vialidad.
