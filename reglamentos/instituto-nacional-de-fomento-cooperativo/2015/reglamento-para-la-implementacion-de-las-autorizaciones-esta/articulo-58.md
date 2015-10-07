@@ -1,0 +1,1 @@
+Artículo 58.—En caso de que el estudio determine que no procede otorgar el permiso para operar con no asociados se emite un oficio a la Gerencia de la cooperativa donde se explican las razones por las cuales no se otorgó y se remite copia al Consejo de Administración, el cual informará a la Asamblea.

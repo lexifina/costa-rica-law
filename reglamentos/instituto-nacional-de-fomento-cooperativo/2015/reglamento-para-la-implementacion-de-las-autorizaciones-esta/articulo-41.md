@@ -1,0 +1,1 @@
+Artículo 41.—El Gerente envía nota al INFOCOOP, indicando que de conformidad con el acuerdo de Asamblea respectivo, se solicita autorizar el cambio de Asamblea de Asociados por Asamblea de Delegados, para tal efecto debe adjuntar copia del acuerdo de asamblea.

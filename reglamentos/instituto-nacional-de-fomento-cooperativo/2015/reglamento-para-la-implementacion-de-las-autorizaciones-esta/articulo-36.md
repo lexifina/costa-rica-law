@@ -1,0 +1,1 @@
+Artículo 36.—En caso de que el estudio determine que no es procedente la disminución de capital en el monto planteado por la cooperativa, se emite un oficio a la Gerencia de la misma donde se explica las razones por las que no procede autorizar dicha disminución.

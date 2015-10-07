@@ -1,0 +1,1 @@
+Artículo 72.—En caso de que el estudio realizado determine que no procede recomendar la autorización, o bien en caso de que se haya rechazado la recomendación por parte de la Dirección Ejecutiva, se emitirá un oficio a la Gerencia de la cooperativa donde se explican las razones por las que no procede brindar dicha autorización.

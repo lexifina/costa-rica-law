@@ -1,0 +1,1 @@
+Artículo 26.—En caso de que el estudio determine que no procede la convocatoria a asamblea por parte del INFOCOOP se emite un oficio a los interesados, donde se explican las razones por las que no procede.

@@ -1,0 +1,1 @@
+Artículo 31.—Dicho artículo 69 también establece que para que la Asamblea conozca este tema, deberá realizarse una consulta previa al INFOCOOP, con tal de que éste determine que el capital no se disminuirá hasta una cifra que no ponga en peligro el funcionamiento y la estabilidad económica de la cooperativa.

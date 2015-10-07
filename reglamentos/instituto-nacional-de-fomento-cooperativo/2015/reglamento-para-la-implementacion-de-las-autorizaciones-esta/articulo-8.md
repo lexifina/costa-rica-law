@@ -1,0 +1,1 @@
+Artículo 8º—Si las entidades cooperativas en proceso de liquidación cuentan con haberes sociales suficientes para el pago de los honorarios de los integrantes de las comisiones liquidadoras, deberán hacer uso de dicho patrimonio y no del presupuesto del INFOCOOP.

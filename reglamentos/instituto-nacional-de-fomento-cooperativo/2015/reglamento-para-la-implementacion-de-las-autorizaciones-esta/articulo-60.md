@@ -1,0 +1,1 @@
+Artículo 60.—La Ley de Regulación de la Actividad de Intermediación Financiera de las Organizaciones cooperativas N° 7391, del 27 de abril de 1994, artículo 4, declara inaplicable para las cooperativas de ahorro y crédito, el artículo 9 de la LAC, en razón de lo anterior, este tipo de cooperativas no podrán operar con terceros no asociados.

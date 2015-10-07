@@ -1,0 +1,2 @@
+Artículo 73.—El presente procedimiento deberá ser finalizado por el funcionario encargado dentro del plazo de un mes calendario. Una vez vencido dicho plazo, sin haberse emitido la resolución, se aplicará el silencio positivo, conforme lo establecido por el artículo 7 de la Ley 8220 y el artículo 331 de la Ley General de Administración Pública.
+En caso de que el funcionario haya solicitado documentación que no fue aportada en tiempo por la cooperativa, deberá consignarlo en la resolución respectiva, que declarará el archivo definitivo de la licitud.

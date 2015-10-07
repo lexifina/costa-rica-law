@@ -1,0 +1,1 @@
+Artículo 56.—En caso de que la Dirección Ejecutiva acoja la recomendación emitida por esta área, emite la respectiva aprobación mediante oficio dirigido a la Gerencia de la cooperativa con copia a esta Área.

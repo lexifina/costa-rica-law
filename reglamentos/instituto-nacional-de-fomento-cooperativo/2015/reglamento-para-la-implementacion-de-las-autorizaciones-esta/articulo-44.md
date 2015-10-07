@@ -1,0 +1,1 @@
+Artículo 44.—Una vez finalizado el análisis respectivo se emite por parte de esta Área el oficio mediante el cual se recomienda a la Dirección Ejecutiva brindar la autorización para que la cooperativa continúe celebrando sus asambleas por delegados.

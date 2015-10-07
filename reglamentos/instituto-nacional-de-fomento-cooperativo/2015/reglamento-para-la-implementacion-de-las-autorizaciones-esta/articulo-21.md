@@ -1,0 +1,1 @@
+Artículo 21.—Recibida la autorización de la Dirección Ejecutiva, para la respectiva convocatoria a asamblea, el funcionario encargado coordina con los representantes de la organización cooperativa, el día, la hora y el lugar donde se efectuará la asamblea.

@@ -1,0 +1,1 @@
+Artículo 6º—Los miembros de la Junta Directiva del INFOCOOP podrán formar parte de las comisiones liquidadoras en representación del Instituto. No obstante, no podrán ser contratados por el INFOCOOP para dicho fin. (Art 22 bis inciso b) Ley de Contratación Administrativa.)

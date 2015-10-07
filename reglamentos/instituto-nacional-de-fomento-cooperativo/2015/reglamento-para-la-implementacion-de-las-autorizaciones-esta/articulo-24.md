@@ -1,0 +1,1 @@
+Artículo 24.—La Gerencia de Supervisión Cooperativa mediante oficio, traslada el acta de la asamblea para la respectiva inscripción al Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social.

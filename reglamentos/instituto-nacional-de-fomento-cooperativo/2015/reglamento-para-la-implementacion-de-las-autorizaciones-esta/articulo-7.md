@@ -1,0 +1,1 @@
+Artículo 7º—El INFOCOOP podrá contratar por servicios profesionales a su representante en las comisiones liquidadoras, siguiendo las normas establecidas en la Ley de contratación Administrativa y su Reglamento. Cuando resulte necesario, deberá solicitar para tales efectos el aval correspondiente en la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 4º—Cuando las condiciones lo hagan necesario, el INFOCOOP, a través del Área de Supervisión Cooperativa, deberá llevar a cabo una Asamblea de Acreedores, con el fin de elegir al representante de ellos en la Comisión Liquidadora. (Dicha Asamblea llamará a sus acreedores mediante un edicto que se publicará en el periódico oficial La Gaceta y uno de circulación nacional)

@@ -1,0 +1,1 @@
+Artículo 43.—El funcionario encargado, una vez recibida de conformidad toda la información solicitada en el punto 2, y una vez verificado que el organismo cooperativo se encuentra al día con la información de la base de datos, procede a hacer el análisis respectivo y prepara un informe en el cual expresa su criterio al respecto.

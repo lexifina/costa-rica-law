@@ -1,0 +1,1 @@
+Artículo 55.—Una vez finalizado dicho análisis, y si la recomendación es otorgar el permiso para operar con no asociados, se emite por parte de esta área el oficio mediante el cual se recomienda a la Dirección Ejecutiva, otorgar el permiso para operar con no asociados al organismo cooperativo.

@@ -1,0 +1,2 @@
+Artículo 35.—Una vez otorgada la correspondiente autorización, se procederá a conocer el tema en asamblea. En caso de resultar aprobada la disminución de capital, el artículo 69 de la LAC establece que la cooperativa tiene el deber de comunicar sobre la disminución del capital, a todos los asociados que no estuvieron presentes en la Asamblea que lo acordó.
+Asimismo la Cooperativa deberá publicar un aviso en el Diario Oficial, por tres veces consecutivas. La reducción del capital se hará efectiva treinta días después de la fecha de la primera publicación.

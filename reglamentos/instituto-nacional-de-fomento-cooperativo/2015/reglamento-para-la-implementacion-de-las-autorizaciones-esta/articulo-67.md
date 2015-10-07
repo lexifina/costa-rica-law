@@ -1,0 +1,1 @@
+Artículo 67.—El funcionario encargado, una vez recibida de conformidad la información indicada en el punto 3, procede a hacer el análisis respectivo y prepara un informe en el cual expresa su criterio al respecto.

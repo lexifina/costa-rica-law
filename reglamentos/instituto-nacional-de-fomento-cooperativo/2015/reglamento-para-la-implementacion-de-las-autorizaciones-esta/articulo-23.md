@@ -1,0 +1,1 @@
+Artículo 23.—El funcionario encargado organiza y dirige la asamblea. Prepara el informe de la Asamblea, redacta el acta de asamblea respectiva y las sesiones de integración de los órganos sociales, esta documentación es remitida a la Gerencia del área de Supervisión Cooperativa.

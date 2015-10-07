@@ -1,0 +1,1 @@
+Artículo 69.—En caso de que la Dirección Ejecutiva acoja la recomendación indicada por esta área, emitirá la respectiva autorización mediante oficio dirigido a la Gerencia de la cooperativa, con copia a esta Área y al Departamento de Organizaciones Sociales del Ministerio de Trabajo y Seguridad Social.

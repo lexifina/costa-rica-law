@@ -1,0 +1,1 @@
+Artículo 65.—El artículo 23 de la LAC dispone que las cooperativas de servicios que tengan por finalidad suplir necesidades en el campo de la agricultura, la ganadería y la industria, podrán asociar personas jurídicas, siempre que no usen los servicios de la cooperativa con fines de lucro y previa autorización del INFOCOOP en cada caso.
