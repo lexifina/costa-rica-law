@@ -16,9 +16,13 @@ m. Neurología Pediátrica.
 n. Oncología Médica Pediátrica.
 o. Pediatría del Desarrollo.
 p. Radioterapia Pediátrica.
-Dermatología Pediátrica:
+-Dermatología Pediátrica:
 (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2013-02-13 del 13 de febrero del 2013)
 Requisitos específicos Dermatología Pediátrica:
 a. Estar debidamente inscrito y acreditado como Especialista en Dermatología o Pediatría General, ante el Colegio de Médicos y Cirujanos de Costa Rica.
 b. Aprobación y acreditación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Dermatología Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
 (Así adicionado los requisitos anteriores mediante sesión ordinaria N° 2013-02-13 del 13 de febrero del 2013)
+(*)-Medicina Paliativa Pediátrica: Requisitos específicos:
+a) Estar debidamente inscrito como Especialista en Pediatría, en el Colegio de Médicos y Cirujanos.
+b) Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) Subespecialidad en Medicina Paliativa Pediátrica, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+(*) (Así adicionada la subespecialidad anterior en sesión N° 2015-10-07- del 7 de octubre de 2015)
