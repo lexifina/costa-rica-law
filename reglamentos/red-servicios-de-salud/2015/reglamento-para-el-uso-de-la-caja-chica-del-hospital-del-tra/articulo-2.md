@@ -1,0 +1,1 @@
+Artículo 2º—Concepto de Fondo Fijo de Caja Chica. Se entiende por Fondo Fijo de Caja Chica aquella suma de dinero fija en efectivo, asignada por la Gerencia Administrativa Financiera a un Departamento que así lo requiera, para realizar gastos menores en la adquisición de bienes y servicios que tienen carácter de indispensable y urgente.
