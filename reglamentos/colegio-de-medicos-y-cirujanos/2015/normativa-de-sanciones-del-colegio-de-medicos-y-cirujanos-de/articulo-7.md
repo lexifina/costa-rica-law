@@ -1,0 +1,8 @@
+CAPÍTULO III
+De otras medidas alternativas a la acción
+o a la sanción disciplinaria
+Artículo 7º—De la conciliación. En aplicación de los principios contenidos en Ley sobre resolución alterna de conflictos y promoción a la paz social, número 7727, se permite la conciliación en todo tipo de proceso disciplinario, siempre que se cumplan las siguientes disposiciones:
+1) Que el investigado no se haya acogido a una conciliación dentro de otro proceso disciplinario en los cuatro años anteriores, cuando se trate de denuncias en que se imputen faltas gravísimas de carácter doloso.
+2) Que en el proceso no le se impute una falta gravísima de carácter doloso, y que a criterio de la Junta de Gobierno, lesiona gravemente un principio fundamental del ejercicio de la medicina.
+Si la denuncia es instada por la parte interesada, la conciliación se hará entre estas. El órgano director del proceso se limitará a orientar a las partes sobre el alcance de esa medida, y sólo rechazará la conciliación cuando sea evidente que una las partes ha coaccionado a la otra en la imposición de la medida alterna o cuando no se cumpla las condiciones antes indicadas. En todo caso, la admisibilidad o rechazo de la conciliación será resuelta en definitiva por la Junta de Gobierno.
+Si la denuncia fue anónima o bien se trata de un proceso instado de oficio, la conciliación debe ser propuesta por el investigado o por la fiscalía. Si la Fiscalía considera procedente la conciliación elevará su solicitud para que sea resuelta por la Junta de Gobierno. Si el investigado propone conciliación y la Fiscalía se opone, el diferendo será resuelto por la Junta de Gobierno.
