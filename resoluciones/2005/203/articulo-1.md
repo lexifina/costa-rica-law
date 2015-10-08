@@ -3722,6 +3722,103 @@ C. Actuaciones del Declarante
 3º El declarante con la autorización favorable emitida por el ICAFE y el funcionario aduanero cuando haya participado, envía el mensaje de asociación de la nota técnica con el DUA de exportación y procede a imprimir la autorización del levante definitivo; siempre que haya cumplido también el proceso del certificado de exportación del MAG.
 D. Actuaciones de la Autoridades o Funcionario Aduanero
 1º Las autoridades portuarias destacadas en el portón de ingreso del puerto de embarque o el funcionario aduanero en las fronteras, terrestres, solicitarán el comprobante de autorización del levante. Deberán verificar en la aplicación informática el levante definitivo de las mercancías y la coincidencia del precinto aduanero y el número de la UT , con la información registrada en la aplicación informática.
+(Nota de Sinalevi: Mediante resolución N° RES-DGA-378-2015 del 8 de octubre del 2015 se adiciona un nuevo apartado al Capítulo III “Procedimientos Especiales”, el cual se transcribe a continuación:
+XIV. De las Nacionalizaciones de Mercancías del Régimen de Zonas Francas
+I. Ventas Locales de Zonas Francas Industrias Procesadoras categoría f) del artículo 17 de la Ley de Zonas Francas. Para la nacionalización de mercancías provenientes del Régimen de Zonas Francas por Ventas Locales de bienes que efectúen las empresas de Zonas Francas clasificadas como empresas ubicadas en un Sector Estratégico para el desarrollo del país o bien que se encuentren establecidas fuera del Gran Área Metropolitana (GAMA) y que están clasificadas como Industrias Procesadoras que procesan o ensamblan bienes independientemente de que exporte o no y que reúnen los requisitos establecidos en el artículo 21 bis de la Ley de Zonas Francas, se seguirá lo dispuesto en el apartado “Procedimiento Común” de este Manual, con las particularidades que se establecen a continuación.
+1) Políticas Generales:
+1°) Las empresas acogidas al Régimen de Zonas Francas que vendan bienes dentro del territorio aduanero nacional, quedan obligadas al pago de los tributos y al cumplimiento de todos los procedimientos aduaneros propios de cualquier importación, por lo que los respectivos DUAs de nacionalización deberán indicar como consignatario de la importación la empresa de Zonas Francas que vende y no al comprador de esos bienes ubicado en el territorio nacional.
+2°) Para la realización de estos trámites es obligatoria la intervención de un Agente de Aduanas quien actuará en representación de la empresa de Zonas Francas en la autodeterminación de los tributos aplicables.
+3°) La empresa de Zonas Francas industrias procesadoras categoría f) que vendan en el mercado local bienes producidos al amparo del régimen debe estar inscrita ante la Administración Tributaria como contribuyente o declarante del impuesto general sobre las ventas.
+4°) Para el pago de los impuestos se deberá enviar a la aplicación informática los DUAs de nacionalización que se indican a continuación:
+√ DUA 01-46: Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)
+√ DUA 01-47: Ventas Locales de producto final de empresas de Zonas Francas categoría f).
+5°) La empresa de Zonas Francas de previo a la venta local, elaborará el DUA 01-46: “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)” declarando todos los insumos, tanto nacionales como importados incorporados en el bien final. El pago respectivo de los Derechos Arancelarios a la Importación (DAI) y del 1% de la Ley 6946 (Ley 6946) se realizará únicamente sobre los insumos importados e incorporados en el producto final.
+6°) La beneficiaria del Régimen de Zonas Francas deberá sustentar el DUA 01-46 “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)” con el documento 0354 denominado “Resumen de facturas de materias primas utilizadas en la elaboración de los productos finales”, el cual debe ser declarado en el Bloque de Documentos obligatorios. No será necesario el envío de la imagen de dicho documento a la aplicación informática sin embargo deberá tenerlo a disposición de la autoridad aduanera cuando en el ejercicio de sus actuaciones de control así se requiera.
+7°) Para los casos en que la materia prima utilizada en la elaboración del producto final haya sido comprada en el mercado local, se deberán declarar en líneas separadas los insumos internados al Régimen de Zonas Francas de los insumos comprados en el mercado local. Para tal efecto en el campo CODI_LIBER se debe indicar el código 0064 y en el campo CODI_CEREX el código 64, con lo que la aplicación informática no generará talón de cobro por tales aranceles. Las empresas en esta condición deberán conservar la documentación de respaldo por la compra local y tenerlos a disposición de la autoridad aduanera cuando en el ejercicio de sus competencias de control así lo solicite.
+8°) En los DUA 01-46: Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f), como el DUA 01-47: Ventas Locales de producto final de empresas de Zonas Francas categoría f), no se deben consignar el costo por flete y seguro de las mercancías.
+9°) La empresa de Zonas Francas no requerirá de la presentación de las notas técnicas en el DUA 01-46: Liquidación de DAI y Ley 6946 de insumos por ventas locales de empresa de Zonas Francas categoría f), por cuanto fueron presentadas al momento del internamiento de los insumos al régimen. No obstante la presentación de las notas técnicas correspondientes serán obligatorias en el DUA 01-47: Ventas Locales de producto final de empresas de Zonas Francas categoría f) conforme a la clasificación arancelaria.
+10°) Para optar por la aplicación de las preferencias arancelarias a los insumos utilizados en la elaboración del producto final se debe presentar el Original del Certificado de Origen vigente de cada uno de los insumos importados incorporados en el producto final según los términos establecidos en el Tratado respectivo.
+11°) Cuando la empresa de Zonas Francas utilice un mismo Certificado de Origen en varias importaciones de mercancías por ventas locales deberá indicar en el espacio Observaciones del DUA correspondiente el saldo de la cantidad, peso y valor de las materias primas no utilizadas en desalmacenajes anteriores.
+12°) La empresa de Zonas Francas podrá efectuar la nacionalización de los bienes objeto de ventas locales desde un depositario aduanero, empresa de Servicios de Logística o bien utilizando la planta principal, planta satélite o bodega de la misma empresa de Zonas Francas, siempre que dichas instalaciones cuenten con los medios adecuados para realizar el despacho aduanero de las mercancías de conformidad con la legislación aduanera vigente. El DUA 01-46: Liquidación de DAI y Ley 6946 de insumos por ventas locales de empresa de Zonas Francas categoría f) deberá declararse como ubicación inmediata de las mercancías, la empresa de Zonas Francas autorizada como industrias procesadoras categoría f) lo cual no significa que las mercancías deban ubicarse en tales instalaciones.
+13°) En caso de realizarse ajustes al DUA 01-46 “Liquidación de DAI y Ley 6946 de insumos por ventas locales de empresa de Zonas Francas categoría f)” en el control posterior o bien a solicitud del declarante, el jefe técnico de la Aduana de Control realizará el ajuste y generará la reliquidación para que sea aceptada por el declarante del DUA y una vez aceptada, la aplicación informática le generara una alerta al funcionario aduanero para que proceda con la reliquidación del DUA 01-47 Ventas Locales de producto final de empresas de Zonas Francas categoría f)al que precede el DUA 01-46 “Liquidación de DAI y Ley 6946 de insumos por ventas locales de empresa de Zonas Francas categoría f)” previamente reliquidado.
+14°) En lo correspondiente a la venta local se deberá realizar el DUA 01-47: Ventas Locales de producto final de empresas de Zonas Francas categoría f), para el correspondiente pago de los tributos (Impuesto Selectivo de Consumo e Impuesto General sobre las Ventas) por el producto final, declarando como DUA precedente el DUA 01-46 “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)” elaborado previamente.
+2) De la Elaboración y Aceptación de la Declaración.
+A.- Actuaciones del Declarante.
+1°) La empresa de Zonas Francas por medio de su Agente Aduanero debe autoliquidar y cancelar los impuestos que afecten tanto la materia prima como del producto final, tomando en consideración el proceso de liquidación en cada caso.
+2°) Para el pago de los impuestos se deberá enviar a la aplicación informática los DUAs de nacionalización en las condiciones que se indican a continuación:
+DUA 01-46 “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)”
+1°. Las empresas de Zonas Francas deben declarar todos los insumos ingresados al amparo del régimen y utilizados en la elaboración del producto final. Por lo que en el DUA 01-46: “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)” se cobrarán los impuestos correspondientes al DAI y Ley 6946 únicamente sobre los insumos importados al régimen e incorporados en el producto final. Los insumos comprados localmente no pagarán tributo alguno por esos conceptos.
+2°. En el DUA 01-46, se deberá declarar en líneas separadas los insumos comprados en el mercado local de los insumos importados y declarar por línea de mercancía, en la casilla “Código de Liberación” el código 0064 correspondiente a “Liberación de DAI y Ley por compra local de Materias primas nacionales de empresas categoría f”, y en el campo CODI_CEREX el código 64; esto hará que la liquidación del DAI y la Ley sea con un monto 0.
+3°. El DUA 01-46 “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)”, debe tener las siguientes características:
+a). La Forma de Despacho debe ser del tipo Normal.
+b). El consignatario debe ser de la categoría 1066: “Industrias procesadoras de bienes ubicadas fuera de GAMA”.
+c). El declarante debe ser un Agente Aduanero, código 1004.
+d). La ubicación inmediata de las mercancías (campo CODI_ALMA) debe ser “H” indistintamente de que la mercancía se encuentre en cualquiera de las instalaciones autorizadas para realizar desalmacenajes.
+e). La ubicación inmediata de las mercancías (CODI_ALMA) debe estar bajo la misma jurisdicción de la aduana de control declarada en el campo CODI_ADUAN.
+f). En los campos de Tipo de Identificación y Número del Documento de Identificación de la Zonas Francas Persona Física Responsable de la Declaración, se debe indicar la empresa de Zonas Francas que vende las mercancías.
+g). Sin inventario.
+h). Se debe adjuntar como documento obligatorio el 0354 denominado “Resumen de Facturas de insumos utilizados en la elaboración de los productos finales” con la siguiente información:
+► Número y fecha de la o las facturas comerciales asociadas a los insumos utilizados.
+► Descripción de las mercancías objeto de la transacción, con especificación de su clase, cantidad, precio unitario y total.
+i). Permite la aplicación de garantía.
+j). Requiere Declaración de Valor cuando el valor sea mayor a $1000.
+k). No cobra Servicio de SENASA.
+l). No se permite la aplicación de exenciones ni compras autorizadas.
+m). Para los insumos comprados localmente deberán declararse de manera separada las líneas de los insumos internados al Régimen de Zonas Francas de los insumos comprados en el mercado local, indicando en el campo CODI_LIBER el código 0064 y en el campo CODI_CEREX el código 64.
+n). Permite la aplicación de cualquier Tratado de Libre Comercio (TLC) (Convenio) de cumplir con los requisitos aplicables en cada caso en particular, excepto FAUCA.
+4°. El DUA 01-46 Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f) se exigirá como DUA precedente del DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f”, el cual liquidará los impuestos a que se encuentre afecto el inciso arancelario correspondiente. Para tal efecto el DUA 01-46 “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)”deberá encontrarse en estado ORD y será usado en un único trámite en el DUA 01-47: “Ventas Locales de producto final de empresas de Zonas Francas categoría f”.
+5°. Una vez utilizado como precedente el DUA 01- 46 “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)”en el DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f” y este último DUA alcance el estado ORI, el DUA 01-46 mencionado cambia a estado ORI.
+6°. En el caso de que el DUA 01-47 Ventas Locales de producto final de empresas de Zonas Francas categoría f” al que precede el DUA 01-46 sea anulado, este último quedará disponible para ser utilizado en otro DUA de venta local 01-47.
+7°. El DUA 01-47 podrá tener como precedente uno o más DUAs 01-46. Cada línea de mercancías del DUA 01-47 citado debe tener asociado un DUA 01- 46.
+8°. La liquidación del DAI y LEY se deberá realizar de la siguiente manera y sobre la materia prima utilizada:
+Ejemplo del Cálculo de los Aranceles a la Importación sobre los Insumos de los Bienes a Vender Localmente:
+[imagen]
+9º. En el caso anterior se debe cancelar lo correspondiente a $1.85 que corresponde a la sumatoria del monto total del DAI y la Ley 6946 ($1,47+ $0,38) al tipo de cambio vigente de venta del dólar a la fecha de aceptación del DUA 01-46 mencionado. Este monto se debe tomar en cuenta en la liquidación de los demás tributos a que esté afecta la mercancía objeto de venta local.
+DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f”
+1°. El DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f”, debe tener las siguientes características:
+a). La Forma de Despacho debe ser del tipo Normal.
+b). El declarante debe ser un Agente Aduanero, código 1004.
+c). El consignatario debe ser de la categoría 1066 “Industrias procesadoras de bienes ubicadas fuera de GAMA” y debe coincidir con el consignatario declarado en el DUA precedente modalidad 01-46.
+d). Podrá declararse como ubicación inmediata (CODI_ ALMA) un “H” empresa de Zonas Francas o “A” Depósito Aduanero.
+e). Cuando la ubicación inmediata de las mercancías corresponda a una empresa de Zonas Francas (código H) debe pertenecer al consignatario declarado en el DUA. No obstante para los desamacenajes desde una empresa de Zonas Francas de Servicios de Logística deberá indicarse en el campo Observaciones del DUA que la mercancía se ubica físicamente en dichas instalaciones.
+f). Cuando la ubicación inmediata de las mercancías corresponda a un Depósito Aduanero (código “A”) el consignatario registrado en el movimiento de inventario debe coincidir con el consignatario declarado en le DUA 01-47. Adicionalmente el movimiento de inventario del depósito aduanero debe tener como documento de carga un DUA tipo 80-71 “Movilización de Zonas Francas a Depósito Aduanero”.
+g). La ubicación inmediata (CODI_ALMA) debe ser de la misma jurisdicción de la aduana de control declarada en el campo Código de Aduana (CODI_ADUAN).
+h). Se debe declarar Sin Inventario si las mercancías se localizan en la ubicación H (Empresa de Zonas Francas).
+i). Requiere como documentos obligatorios la Factura Comercial (imagen).
+j). Las Notas Técnicas asociadas a partidas arancelarias del producto final serán exigibles.
+k). Permite la aplicación de garantía.
+l). No aplica exenciones ni compras autorizadas.
+m). Requiere Declaración de Valor cuando el valor sea mayor a $1000.
+n). No cobra Servicio de SENASA.
+2°. La liquidación del DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f” se efectuará sobre todos los impuestos asociados al inciso arancelario del producto final.
+3°. En el resultado de la liquidación se reflejará el monto correspondiente a todos los impuestos, pero en el talón se cobrará todos los impuestos excepto DAI y LEY.
+4°. Para el cálculo de los impuestos del DUA 01-47 se deben tomar los datos del monto total del DAI y el monto total de la Ley 6946 ambos del DUA precedente (01-46) y dividirlos entre el número de líneas que conforman el DUA 01-47. Posteriormente se debe aplicar el resultado de este prorrateo del DAI y de la Ley 6946, a cada una de las líneas del DUA 01-47 y solamente a aquellos impuestos que por ley lo requieren en el cálculo de la base imponible.
+5°. El prorrateo del DAI y la Ley 6946 para el cálculo de los impuestos del DUA 01-47 mencionado según corresponda, se realizará de la siguiente manera:
+a). TOTAL DAI/N= X
+b). TOTAL LEY 6946/N=Y
+En donde:
+“N” es el número de líneas del DUA 01-47.
+X: Corresponde al total del Derecho Arancelario de Importación (DAI) prorrateado.
+Y: Corresponde al total de la Ley 6946 prorrateada.
+Ejemplo del Cálculo de Impuestos de las Mercancías sobre el Producto Final Objeto de Venta Local:
+1. Un DUA 01-47 de una sola línea y cuyo inciso arancelario esté afecto a los impuestos Selectivo de Consumo e Impuesto General Sobre las Ventas, el cálculo sería el siguiente:
+[imagen]
+Donde el 1.47 corresponde al monto total del DAI del DUA 01- 46 y el 0,38 corresponde al monto total de la Ley 6946 del DUA 01-46.
+2. Un DUA 01-47 con dos líneas cuyo incisos arancelarios estén afectos a Selectivo de Consumo e Impuesto de Ventas, el cálculo sería el siguiente:
+Monto de DAI correspondiente por línea (DUA 01-46): 1,47/2 = 0,735 por línea.
+Monto de Ley 6946 correspondiente por línea (DUA 01- 46): 0,38/2 = 0,19 por línea.
+[imagen]
+3. Un DUA 01-47 con una sola línea y cuyo inciso arancelario este afecto al Impuesto de Ventas, el cálculo sería el siguiente:
+[imagen]
+Donde el 1.47 corresponde al monto total del DAI del DUA 01-46 y el 0.38 corresponde al monto total de la Ley 6946 del DUA 01-46. En este caso el inciso estaría afecto a solo el impuesto de ventas.
+B.- Actuación de la Empresa de Zonas Francas
+1°) La empresa responsable de la venta local previo a la entrega de la mercancía, deberá consultar en la aplicación informática la Autorización del Levante de los respectivos DUAs de Venta Local.
+C.- Actuaciones de la Aduana
+1°) La aplicación informática tomando como referencia el número de identificación de la empresa de Zona Franca, validará que:
+a) Corresponda con un auxiliar de la función pública aduanera registrado ante la DGA.
+b) No se encuentre suspendida en el ejercicio de su actividad ante la autoridad aduanera.
+2°) La Aduana debe proceder a la reliquidación del DUA 01-46: “Liquidación de DAI y Ley 6946, de insumos por ventas locales de empresa de Zonas Francas categoría f)” como del DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f” cuando en el ejercicio del control inmediato y del control a posteriori se determinen ajustes en cualquiera de los elementos de la obligación tributaria aduanera. En este caso los DUAS mencionados deberán estar en el estado ORI: Autorización de Levante.
+3°) Para el intercambio de observaciones y notificaciones con el declarante, la aduana debe notificar dicha reliquidación al declarante a través del “Módulo OK Observaciones”
 CAPÍTULO III
 Procedimientos Especiales
 I.—De las Exportaciones que Deben Cumplir Notas Técnicas del MAG. En lo correspondiente a las exportaciones de mercancías, con aplicación de NT reguladas por el MAG, se seguirá el procedimiento común de exportación adicionando las siguientes directrices:
@@ -7311,7 +7408,6 @@ I.—Políticas Generales
 10. Para el cálculo de los metros lineales aproximados a eliminar de una serie o tipo documental, se deberá utilizar la siguiente fórmula:
 ML = Medida en centímetros de la cantidad de documentos /100
 Ejemplo: 5000 cm de documentos /100 = 50 metros lineales
-[imagen]
 II.—De la Solicitud de Eliminación de los Documentos Aduaneros por parte de:
 A. Del Auxiliar de la Función Pública Aduanera.
 1. Presentar nota al CISED firmada, en el caso de personas jurídicas por el representante legal debidamente acreditado, a fin de solicitar la autorización para la eliminación de los documentos aduaneros, en la que se indique lo siguiente:
@@ -7367,6 +7463,3 @@ B. Actuaciones del Auxiliar de la Función Pública Aduanera o de la Autoridad A
 4. Una vez destruidos los documentos, recibe copia del “Acta de eliminación documental” elaborada por el CISED, como comprobante de la actuación realizada, la que deberá conservar como respaldo de lo actuado en el proceso de eliminación de los documentos.
 V.—Lo dispuesto en el presente procedimiento constituye el resultado de lo debidamente consensuado con funcionarios de la Dirección General de Aduanas y el Comité Institucional de Selección y Eliminación de Documentos.
 B. Comuníquese y publíquese en el Diario Oficial La Gaceta.
-[imagen]
-[imagen]
-[imagen]
