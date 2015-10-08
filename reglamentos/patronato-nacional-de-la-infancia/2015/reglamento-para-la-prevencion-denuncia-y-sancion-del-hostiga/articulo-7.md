@@ -1,0 +1,1 @@
+Artículo 7º—Del apoyo psicológico para el (la) ofendido(a). En casos calificados, el PANI gestionará el apoyo psicológico requerido a favor del ofendido (a) durante el procedimiento administrativo, si así lo determina la Comisión como medida cautelar y los informes que puedan derivarse de dicho apoyo psicológico podrán tomarse como parte de las pruebas dentro del proceso.

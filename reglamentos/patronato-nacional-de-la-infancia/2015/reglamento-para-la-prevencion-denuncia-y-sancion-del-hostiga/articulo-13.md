@@ -1,0 +1,3 @@
+Artículo 13.—Del Deber de Confidencialidad y el acceso al expediente. Los miembros de la Comisión y en general cualquier funcionario(a) o persona que participe en el procedimiento como testigo, perito o en cualquier otra condición, quedan obligados (as) a guardar la confidencialidad absoluta en torno a los hechos, las posibles partes involucradas y cualquier otra información del caso denunciado.
+En atención al Deber de Confidencialidad, toda notificación o comunicación a cualquiera de las partes se hará de manera personal.
+Únicamente tendrán acceso al expediente administrativo los miembros de la Comisión encargados de realizar el procedimiento administrativo, así como las partes y los abogados de éstas.

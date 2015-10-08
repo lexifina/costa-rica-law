@@ -1,0 +1,1 @@
+Artículo 24.—Del Recurso de Revocatoria en contra del acto final: En contra del acto final del procedimiento cabrá el recurso de revocatoria a interponer dentro del plazo de tres días hábiles contados a partir de la fecha de su notificación. Dicho recurso será resuelto por la Presidencia Ejecutiva dentro del plazo de ley. Lo resuelto dará por agotada la vía administrativa.
