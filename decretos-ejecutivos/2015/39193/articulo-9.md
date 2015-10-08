@@ -1,0 +1,1 @@
+Artículo 9º—Implementación. Para la implementación de la Política Pública de la Persona Joven 2014-2019 y su Plan de Acción las dependencias del Sector Público podrán hacer los ajustes razonables (modificaciones y adaptaciones necesarias) que se requieran en cada caso particular para garantizar el ejercicio de los derechos de las personas jóvenes.

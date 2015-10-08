@@ -1,0 +1,1 @@
+Artículo 5º—Objetivo general. Crear oportunidades y condiciones para garantizar el ejercicio de los derechos y de la ciudadanía de las personas jóvenes, en el desarrollo de sus potencialidades y su aporte al desarrollo nacional.

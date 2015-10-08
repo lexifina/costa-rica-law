@@ -1,0 +1,1 @@
+Artículo 11.—Esta Política Pública de la Persona Joven será de acatamiento obligatorio para todas las instituciones públicas, principalmente aquellas que por su labor desarrollen programas o proyectos correspondientes a las necesidades planteadas por las juventudes en esta política.

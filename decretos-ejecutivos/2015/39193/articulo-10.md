@@ -1,0 +1,1 @@
+Artículo 10.—Plazo y Acatamiento. La Política Pública de la Persona Joven tiene una vigencia de 5 años y será de acatamiento obligatorio para todas las instituciones que desarrollan proyectos o tienen responsabilidades vinculadas a las personas jóvenes.
