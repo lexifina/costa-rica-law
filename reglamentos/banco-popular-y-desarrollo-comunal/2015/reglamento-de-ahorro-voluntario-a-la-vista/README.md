@@ -14,3 +14,4 @@ Reglamento de Ahorro Voluntario a la Vista
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-18 | la propia norma |
+| 2 | 2015-10-08 | Reglamento 5316 (2015-10-08) |
