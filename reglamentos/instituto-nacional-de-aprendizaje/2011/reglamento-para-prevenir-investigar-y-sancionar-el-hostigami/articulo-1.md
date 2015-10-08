@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO NACIONAL DE APRENDIZAJE
+(Esta norma fue derogada por el artículo 60 del Reglamento para prevenir, investigar y sancionar el Hostigamiento Sexual en el Instituto Nacional de Aprendizaje, y publicado en La Gaceta N° 196 del 8 de octubre de 2015)
 COMUNICACIÓN DE ACUERDO Nº 074-2011-JD
 Fecha: 31 de mayo de 2011.
 Asunto: Aprobar la modificación al “Reglamento para Prevenir, Investigar y Sancionar el Hostigamiento Sexual en el Instituto Nacional de Aprendizaje”.

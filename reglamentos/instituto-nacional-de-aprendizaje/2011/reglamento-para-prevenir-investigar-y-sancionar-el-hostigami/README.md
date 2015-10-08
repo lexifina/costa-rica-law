@@ -14,3 +14,4 @@ Reglamento para Prevenir, Investigar y Sancionar el Hostigamiento Sexual en el I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-06-21 | la propia norma |
+| 2 | 2015-10-08 | Reglamento 0 (2015-10-08) |
