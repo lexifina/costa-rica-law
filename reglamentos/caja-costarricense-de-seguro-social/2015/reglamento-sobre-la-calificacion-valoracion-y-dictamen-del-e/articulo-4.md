@@ -1,0 +1,1 @@
+Artículo 4º—Del dictamen o informe. El dictamen médico y el informe psicológico serán incluidos en el expediente administrativo, que luego será trasladado a la Comisión Calificadora del Estado de Invalidez para el análisis completo del caso y calificación del estado de invalidez.
