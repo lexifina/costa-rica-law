@@ -1,0 +1,1 @@
+Artículo 6º—En razón de la presente declaratoria, previa autorización del Área de Conservación correspondiente del Sistema Nacional de Áreas de Conservación, el Consejo Nacional de Vialidad, deberá implementar el Plan de Reforestación en la misma zona donde se produzca la corta y su respectivo mantenimiento, conforme lo autorice dicha entidad.
