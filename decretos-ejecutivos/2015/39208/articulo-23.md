@@ -1,0 +1,1 @@
+Artículo 23.—Sesiones de las Redes. Para el desarrollo de sus funciones, las redes sesionarán en forma ordinaria al menos una vez al mes y en forma extraordinaria, cuando así lo dispongan al menos las dos terceras partes de sus integrantes. La Secretaría Técnica convocará a las redes a reuniones regionales, mediante las facilitadoras, al menos cuatro veces al año.

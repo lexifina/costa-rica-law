@@ -1,0 +1,1 @@
+Artículo 26.—Presupuesto de las Redes. Las redes trabajarán con el presupuesto que las instituciones que la conforman hayan reservado en cumplimiento de lo dispuesto por el artículo 16 de la Ley de Creación del Sistema Nacional.

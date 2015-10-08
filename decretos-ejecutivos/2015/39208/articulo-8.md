@@ -1,0 +1,7 @@
+Artículo 8º—Funciones del Consejo. Además de las señaladas por la Ley, el Consejo tendrá las siguientes funciones:
+a. Velar por una adecuada asignación de los recursos destinados a las instituciones para que el Estado actúe con la debida eficiencia y eficacia en garantizar la integridad y protección de las personas afectadas por la violencia contra las mujeres y/o violencia intrafamiliar.
+b. Coordinar con las entidades y órganos del Estado para que cumplan las funciones que les asigna su integración al Sistema Nacional.
+c. Velar que las acciones realizadas por otros órganos y entes rectores de políticas públicas destinadas a atender la violencia contra las mujeres y la violencia intrafamiliar hacia poblaciones específicas no contravengan los principios establecidos en las normas citadas en el artículo 2 de la ley de Creación del Sistema Nacional y en el artículo 24 de la Ley contra la Violencia Doméstica.
+d. Dictar políticas que operativicen el funcionamiento del Sistema Nacional en cumplimiento de la Convención Interamericana para prevenir, sancionar y erradicar la violencia contra la mujer y los artículos 21, 22 y 23 de la Ley Contra la Violencia Doméstica.
+e. Solicitar cuando lo considere pertinente o a petición de la Comisión de Seguimiento, a la Contraloría de Servicios en Violencia los informes de acuerdo con lo establecido en el Artículo 15 de la Ley.
+f. Nombrar a la persona representantes de las organizaciones privadas y no gubernamentales en la Comisión de Seguimiento.

@@ -1,0 +1,2 @@
+Artículo 14.—Sesiones de la Comisión de Seguimiento. La Comisión de seguimiento sesionará una vez al mes, ordinariamente, y en forma extraordinaria cuando la convoque la Secretaría Técnica del Sistema Nacional o al menos la tercera parte de sus integrantes. El quórum de las sesiones estará conformado por la mitad más uno de las personas integrantes.
+Los acuerdos se aprobarán mediante mayoría absoluta de los votos de las personas presentes en la sesión.

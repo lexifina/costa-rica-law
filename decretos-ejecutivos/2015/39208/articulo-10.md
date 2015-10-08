@@ -1,0 +1,1 @@
+Artículo 10.—De las responsabilidades por incumplimiento. De incumplirse las obligaciones establecidas en el artículo precedente, se procederá a establecer las eventuales responsabilidades administrativas de acuerdo con el procedimiento interno institucional, o conforme con otras leyes del ordenamiento jurídico vigente.

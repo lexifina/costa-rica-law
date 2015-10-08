@@ -1,0 +1,1 @@
+Artículo 5º—Sesiones del Consejo. El Consejo sesionará ordinariamente, cuatro veces al año. Será convocado con al menos quince días de anticipación por la persona jerarca del Instituto Nacional de las Mujeres, quien lo presidirá.

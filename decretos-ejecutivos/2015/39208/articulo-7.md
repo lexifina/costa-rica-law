@@ -1,0 +1,1 @@
+Artículo 7º—Comisiones especiales de trabajo. El Consejo podrá constituir en su seno el funcionamiento de comisiones especiales de trabajo, permanentes o temporales, con fines específicos y participación de representantes de otros órganos y entidades públicas con igual jerarquía que quienes integran el Consejo.

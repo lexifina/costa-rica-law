@@ -1,0 +1,5 @@
+Artículo 2º—Objetivos del Sistema Nacional. Los objetivos generales del Sistema Nacional son los siguientes:
+a) Fortalecer la articulación entre las diferentes respuestas institucionales relacionadas con la prevención y atención de la violencia contra las mujeres y la violencia intrafamiliar.
+b) Vigilar que las instancias responsables brinden a las mujeres afectadas por la violencia y a las personas afectadas por la violencia intrafamiliar, atención integral que les permita mejorar su situación, así como la recuperación y la construcción de un nuevo proyecto de vida.
+c) Promover políticas públicas, planes, programas, propuestas jurídicas, proyectos o acciones que garanticen el cumplimiento de los mandatos establecidos en los diferentes instrumentos jurídicos nacionales e internacionales que protegen el derecho humano a vivir libre de violencia.
+d) Promover la asignación eficiente y eficaz de recursos tendientes a garantizar el cumplimiento de las obligaciones establecidas por la Ley De Creación del Sistema Nacional Para la Atención y Prevención de la Violencia contra las Mujeres y la Violencia Intrafamiliar
