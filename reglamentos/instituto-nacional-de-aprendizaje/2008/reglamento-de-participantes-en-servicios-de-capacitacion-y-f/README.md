@@ -14,3 +14,4 @@ Reglamento de participantes en servicios de Capacitación y Formación Profesion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-01 | la propia norma |
+| 2 | 2015-10-08 | Reglamento 0 (2015-10-08) |
