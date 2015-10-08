@@ -1,0 +1,1 @@
+Artículo 41.—Pagos de excedentes de energía. No será sujeto a ninguna retribución económica, ni de intercambio, cualquier exceso de energía depositada superior a lo establecido en el artículo 34 de este Reglamento.

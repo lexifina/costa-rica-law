@@ -1,0 +1,1 @@
+Transitorio IV.—Los contratos suscritos para la participación en algún plan piloto de generación distribuida u otro mecanismo similar, quedan vigentes en su totalidad, hasta la modificación o renovación de éstos.

@@ -1,0 +1,1 @@
+Artículo 23.—Autorización de instalación del sistema de generación distribuida para autoconsumo. El abonado debe obtener la autorización de la empresa distribuidora para instalar el sistema de generación distribuida.

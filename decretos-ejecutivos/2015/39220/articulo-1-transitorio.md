@@ -1,0 +1,1 @@
+Transitorio I.—A partir de la vigencia de este reglamento las empresas distribuidoras implementaran el artículo 12 y el Capítulo III de este reglamento en un plazo no mayor a seis meses, en concordancia con el artículo 4° de la Ley N° 8220, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos del 4 de marzo de 2002.

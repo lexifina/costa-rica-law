@@ -1,0 +1,1 @@
+Artículo 27.—Operación y mantenimiento del sistema de generación distribuida para autoconsumo. El productor-consumidor será responsable de operar, mantener y reparar su sistema de generación distribuida para que cumpla en todo momento con las normas técnicas, este reglamento y con el contrato de interconexión.

@@ -1,0 +1,1 @@
+Artículo 3º—Alcance. Este reglamento es de aplicación obligatoria para toda persona física o jurídica que instale y opere un sistema de generación distribuida para autoconsumo con fuentes renovables y para las empresas distribuidoras.

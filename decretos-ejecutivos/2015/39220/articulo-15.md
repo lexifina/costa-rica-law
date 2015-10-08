@@ -1,0 +1,1 @@
+Artículo 15.—El productor-consumidor con un sistema de generación no interconectado a la red de distribución. Persona física o jurídica que instala y opera un sistema de generación para autoconsumo que no interactúa con la red de distribución eléctrica.

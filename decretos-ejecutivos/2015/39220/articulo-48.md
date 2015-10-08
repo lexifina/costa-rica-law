@@ -1,0 +1,2 @@
+Artículo 48.—Adición. Adiciónese un artículo 40 al Reglamento de Concesiones para el Servicio Público de Suministro de Energía Eléctrica, Decreto Ejecutivo Nº 30065-MINAE, del 15 de enero de 2002, y córrase la numeración pasando el actual artículo 40 a ser el 41. Artículo 40 que se leerá de la siguiente manera:
+“Artículo 40.—La ARESEP será la responsable de emitir las normas técnicas, tarifas y cualquiera otra disposición necesaria aplicable a la actividad regulada asociada a la generación distribuida para autoconsumo modalidad contractual medición neta sencilla”.

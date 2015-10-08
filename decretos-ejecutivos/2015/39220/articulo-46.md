@@ -1,0 +1,1 @@
+Artículo 46.—Sanción. Si el productor-consumidor afecta de cualquier forma a la red de distribución, asumirá los daños y perjuicios ocasionados, mediante el pago de los mismos a la empresa distribuidora, y le serán aplicables las sanciones vigentes establecidas en las disposiciones legales y reglamentarias para la actividad de generación eléctrica.
