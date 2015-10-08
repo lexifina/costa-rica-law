@@ -1,0 +1,1 @@
+Artículo 24.—Las multas y otras penas establecidas en el presente Reglamento, podrán ser interpuestas en contra del propietario, Ingeniero Responsable, al Contratista, o a cualquier persona que infrinja el mismo.

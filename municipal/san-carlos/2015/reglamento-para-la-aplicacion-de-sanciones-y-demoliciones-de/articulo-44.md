@@ -1,0 +1,1 @@
+Artículo 44.—En caso de que al momento de emitir la Orden de Demolición por parte de la Municipalidad el bien a demoler se encuentre habitado, deberá coordinar y tramitar con el Ministerio de Seguridad Pública, Despacho del Ministro, la solicitud de Desalojo Administrativo.

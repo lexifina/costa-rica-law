@@ -1,0 +1,1 @@
+Artículo 47.—Si el infractor cancelara: multa, impuesto o licencia o cualquier otro cobro por el Departamento de Ingeniería, no podrá el mismo interponer algún recurso señalado en el artículo anterior debido a que con esa actuación estaría avalando el acto de la Municipalidad.

@@ -1,0 +1,1 @@
+Artículo 42.—Se cobrará al propietario cargándose así automáticamente al Sistema Municipal, sobre el cual aplicará la misma forma de los intereses moratorios del artículo 8º de este Reglamento. El monto lo determinará el Departamento de Ingeniería bajo un cálculo determinado de costos, al cual se le sumará una multa igual a un 50% sobre el costo calculado.

@@ -1,0 +1,1 @@
+Artículo 12.—Para la elaboración del citado Registro de Construcciones, la oficina Unidad Técnica de Informática realizara las solicitudes de previsión de presupuesto respectivo, a efecto de coordinar con la Alcaldía Municipal, su incorporación en el instrumento presupuestario correspondiente.

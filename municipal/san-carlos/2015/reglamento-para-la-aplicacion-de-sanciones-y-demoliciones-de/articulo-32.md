@@ -1,0 +1,1 @@
+Artículo 32.—Cuando los sellos de clausura puestos por la Municipalidad sean ignorados por el infractor y este continúe con la construcción, el Inspector Municipal levantará nuevamente un acta donde conste el hecho, la cual se incluirá dentro del expediente administrativo, para efectos de establecer la procedencia de una acción judicial por lo ocurrido.

@@ -1,0 +1,3 @@
+Artículo 45.—Cuando la Municipalidad emitan órdenes o prevenciones escritas a los infractores conforme a la Ley, éstas serán de acatamiento obligatorio.
+Si el permisionario desobedeciere estas órdenes en evidente confrontación con la autoridad municipal, ésta podrá acudir a los Tribunales de Justicia del Poder Judicial a interponer las denuncias correspondientes a los delitos de desacato o desobediencia a la autoridad como corresponda y de acuerdo al Código Penal.
+Además la Municipalidad se reservará el derecho de presentar la correspondiente querella y la acción civil resarcitoria en estos casos.

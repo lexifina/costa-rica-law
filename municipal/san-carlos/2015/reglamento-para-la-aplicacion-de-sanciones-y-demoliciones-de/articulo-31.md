@@ -1,0 +1,1 @@
+Artículo 31.—Si ante la clausura de su construcción, el propietario manifiesta la intención formal y verídica de cumplir con lo solicitado, se procederá conforme a lo establecido en el artículo 29 del presente Reglamento.

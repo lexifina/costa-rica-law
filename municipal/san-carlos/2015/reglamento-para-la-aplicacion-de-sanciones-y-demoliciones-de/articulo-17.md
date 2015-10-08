@@ -1,0 +1,1 @@
+Artículo 17.—La Unidad de Inspectores, elaborará un programa mensual de inspecciones, en donde establecerá las estrategias, cronograma de actividades y plazo de ejecución de las inspecciones indicadas en los artículos anteriores.

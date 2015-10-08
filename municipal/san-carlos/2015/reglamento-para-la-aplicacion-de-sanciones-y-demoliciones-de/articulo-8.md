@@ -1,0 +1,1 @@
+Artículo 8°—Facultad para realizar actas de inspección. El Concejo Municipal acuerda autorizar y facultar a los inspectores Municipales y Policía Municipal para que realicen aquellas actas de inspección, que sean necesarias para sus funciones en relación con las licencias o procesos Municipales.
