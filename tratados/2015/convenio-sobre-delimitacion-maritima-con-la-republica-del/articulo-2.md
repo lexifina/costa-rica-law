@@ -1,0 +1,2 @@
+ARTÍCULO SEGUNDO
+Se establece una zona especial de 10 millas náuticas de ancho situada a cada lado del límite marítimo señalado en el literal C) del artículo anterior, en la cual la presencia accidental de embarcaciones pesqueras de uno u otro país no será considerada como una violación a las normas pertinentes del respectivo Estado. Ello no significa reconocimiento de derecho alguno para ejecutar faenas de pesca o caza en dicha zona especial.
