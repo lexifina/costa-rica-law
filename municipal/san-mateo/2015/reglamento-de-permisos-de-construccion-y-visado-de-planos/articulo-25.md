@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De los inspectores y de los otros funcionarios municipales
+Artículo 25.—Facultación para notificar asuntos de permisos municipales de construcción.- El Concejo Municipal acuerda autorizar y facultar a los inspectores municipales y los funcionarios del Departamento de Desarrollo Urbano y Catastro, para que notifiquen todos los acuerdos, comunicados y resoluciones que sean necesarios para resolver las quejas, denuncias y solicitudes que provengan de los administrados y en relación con los permisos Municipales a los que hace referencia este Reglamento. Para estos efectos los funcionarios así señalados por el Concejo Municipal tendrán fe pública en cuanto a lo que consignen en la razón de notificación.

@@ -1,0 +1,5 @@
+Artículo 34.—Demolición de la obra. Una obra civil podrá ser demolida por parte de la Municipalidad cuando:
+a. Tenga que ser aplicado el Artículo 96 de la Ley de Construcciones.
+b. Cuando la Municipalidad demuestre que existe una obra que pone en peligro la vida de las personas o la integridad de las cosas que la rodean.
+c. Cuando la Municipalidad lo haya ordenado en resolución firme al efecto de esta manera como consecuencia de una obra civil que se haya demostrado no cuenta con los permisos de construcción correspondientes.
+Las demoliciones que realice la Municipalidad por obras construidas en contravención del ordenamiento jurídico serán cargadas a las cuentas del contribuyente.

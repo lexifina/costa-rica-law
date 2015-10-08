@@ -1,0 +1,1 @@
+Artículo 20.—Recurso de revocatoria. La resolución que deniegue o apruebe la solicitud de permiso tendrá Recurso de Revocatoria dentro del quinto día, después de notificado, para ante el Departamento de Desarrollo Urbano y Catastro. La resolución que resuelva este recurso deberá contener los mismos requisitos formales que se describen en el artículo 18 de este Reglamento.

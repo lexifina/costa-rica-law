@@ -1,0 +1,3 @@
+CAPÍTULO VIII
+Disposiciones finales y transitorias
+Artículo 36.—Legitimación para actuar en la administración. Con base en el Código Municipal, artículo 147, Inciso a) y el Principio de las facultades de la administración activa, se deberán resguardar las obligaciones inherentes al Departamento de Desarrollo Urbano y Catastro bajo el desempeño de funcionarios debidamente calificados para cumplir con tales funciones y cargos, para lo cual deberán mantener una clara separación de funciones los demás departamentos. Por lo tanto, las solicitudes y trámites relacionados con permisos de construcción, visado de planos, reparación o remodelación de obras civiles, serán atendidos, tramitados y resueltos por ese Departamento.
