@@ -1,0 +1,1 @@
+Artículo 20.—Regulación de ruido en operaciones de carga y descarga. En toda operación de carga o descarga de mercancías u objetos, que se realice en la vía pública o dentro de los límites de una propiedad, el responsable de la operación no deberá rebasar los niveles de ruido establecidos en el presente Reglamento.
