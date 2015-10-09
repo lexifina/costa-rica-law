@@ -1,10 +1,15 @@
-Artículo 113.—Al (a la) Jefe del Departamento Disciplinario Legal le corresponderán las siguientes funciones:
-1) Velar por el fiel cumplimiento de las presentes disposiciones y por el buen funcionamiento del Departamento, para lo cual debe realizar toda clase de diligencia propia de gestión administrativa como dependencia del Ministerio.
-2) Ordenar, dirigir y distribuir el trabajo entre las diferentes áreas que conforman el Departamento, así como dirigir y supervisar la labor de todos sus funcionarios.
-3) Emitir y suscribir necesariamente los actos resolutivos propiamente dichos: autos de apertura de procedimientos disciplinarios, resoluciones interlocutorias y la resolución final de recomendación que dirigirá al órgano decisorio respectivo.
-4) Velar por el mantenimiento del orden y la disciplina de los (las) funcionarios (as) del Departamento.
-5) Estimular al personal subalterno para el adecuado y eficiente cumplimiento de sus deberes y propiciar su superación personal, laboral y académica.
-6) Todas las demás que le señalen el (la) Ministro (a), el (la) Viceministro (a) y la normativa aplicable.
+Artículo 113.—La Sección de Inspección Administrativa tendrá las siguientes funciones:
+1) Recibir y valorar los informes, reportes o denuncias, remitidos por la Sección de Admisibilidad e Investigaciones Preliminares sobre faltas cometidas por los (as) funcionarios (as) administrativos, a efectos de determinar si amerita que se inicia un procedimiento disciplinario en los plazos establecidos en el Artículo 603 del Código de Trabajo, o en su defecto proceder al archivo interno por falta de interés actual, según corresponda.
+2) Recomendar al Ministro la interposición de la gestión de despido ante la Dirección de Servicio Civil, de cualquiera de los (as) servidores (as) del Ministerio que se encuentre protegido por la inamovilidad del régimen de Servicio Civil. Preparar la información correspondiente, elaborar la acción que firmará el Ministro, así como dar seguimiento a los casos y remitir la disposición final a la Dirección de Recursos Humanos, para lo de su cargo.
+3) Fungir como órgano director de procedimientos disciplinarios, en las causas incoadas en contra de los funcionarios administrativos del Ministerio de Seguridad Pública, con facultades o competencias de ordenación e instrucción y no de carácter decisorio.
+4) Conocer y recomendar, de oficio o a instancia de parte, al órgano decisor de las medidas cautelares atípicas de carácter positivo o innovador, tales como la reubicación o la suspensión con goce salarial, cuando se trata de un proceso administrativo en los que el presunto responsable es un (a) funcionario (a) administrativo del Ministerio.
+5) Dirigir la instrucción del procedimiento, resolver interlocutoriamente los recursos e incidentes que se interpongan y preparar los autos para el dictado del acto final que emitirá el órgano decisor, en las causas de los (las) funcionarios (as) administrativos que laboren en el Ministerio.
+6) Adoptar todas las medidas probatorias pertinentes y necesarias, aunque no hayan sido propuestas por las partes o en contra de su voluntad, para verificar la verdad real y el motivo del acto final, para lo cual tendrá las mismas facultades y deberes que una autoridad judicial.
+7) Conocer y resolver las excepciones de prescripción y caducidad del procedimiento que sean interpuestas a gestión de parte en cualquier etapa del procedimiento, ordenando el archivo definitivo del expediente en caso de ser procedente.
+8) Ordenar de oficio el archivo de aquellos procedimientos administrativos disciplinarios en los que opere una inactividad procesal superior a los seis meses, según lo dispuesto en el ordinal 340, inciso 1) de la Ley General de la Administración Pública.
+9) Elaborar los manuales necesarios para mejorar las prácticas y trámites realizados en este Departamento.
+10) Cualquiera otra propia de su competencia de conformidad con el ordenamiento jurídico.
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 94 al 95)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 95 al 111)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 111 al 113)
+(Así reformado por el artículo 7° del decreto ejecutivo N° 39426 del 9 de octubre del 2015)

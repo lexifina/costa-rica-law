@@ -1,12 +1,4 @@
-Artículo 148.—El Subproceso de Asuntos Internos tendrá la colaboración de funcionarios investidos de autoridad policial, los cuales realizarán las siguientes funciones:
-1) Ejecutar en estricta coordinación con las instancias judiciales competentes, operativos, detenciones, allanamiento, requisas, registros, secuestros y decomisos de pruebas, de aquellos hechos ilícitos en los que funcionarios policiales se vean involucrados.
-2) Coordinar con otros cuerpos de policía, organismos nacionales e internacionales, las investigaciones e intercambio de información, que permita la prevención y represión oportuna, eficiente y eficaz de conductas ilícitas por parte de miembros de la Fuerza Pública.
-3) Establecer las acciones pertinentes para la recepción de quejas o denuncias relacionadas con posibles faltas disciplinarias en que hayan incurrido servidores (as) de la Dirección General de la Fuerza Pública y de otras instancias policiales del Ministerio a petición del (de la) Ministro (a).
-4) Realizar las diligencias previas de la investigación y recolección de indicios, elementos probatorios con respecto a las irregularidades y faltas disciplinarias en que puedan verse involucrados los (las) servidores (as) policiales del Ministerio.
-5) Establecer los procedimientos adecuados para realizar entrevistas y recibir declaraciones a funcionarios (as) públicos (as) y personas particulares, así como levantar actas sobre inspecciones y sobre cualquier otro tipo de evidencias que se requieran en razón de la investigación que se realice.
-6) Realizar acciones dirigidas a constatar en las distintas instancias judiciales, la existencia de expedientes penales en trámite o concluidos, en contra de los (las) servidores (as) del Ministerio, y de las resoluciones que de ellos se deriven.
-7) Remitir el resultado de las investigaciones - expediente y pruebas - al Departamento Disciplinario Legal, cuando se presuma la comisión de una falta grave por parte de un servidor del Ministerio.
-8) Todas las demás relacionadas con su competencia.
+Artículo 148.—(Derogado por el artículo 13 del decreto ejecutivo N° 39426 del 9 de octubre del 2015)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 128 al 129)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 129 al 145)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38367 del 21 de febrero del 2014, que lo traspaso del antiguo artículo 145 al 146)

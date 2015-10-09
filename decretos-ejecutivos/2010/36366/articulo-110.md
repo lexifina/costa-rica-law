@@ -1,12 +1,8 @@
-Artículo 110.—Para el levantamiento de la información o instrucción respectiva, se estará a lo dispuesto para el procedimiento ordinario regulado en la Ley General de la Administración Pública.
-En cuanto a llegadas tardías y faltas leves de los servidores administrativos, que puedan derivar en sanción de amonestación por escrito, el trámite será sumario. En cuanto a las faltas leves de los servidores policiales que ameriten amonestación, se estará a lo dispuesto en la normativa legal y reglamentaria que regula la relación de servicio de los miembros de la fuerza pública.
-En todo caso, se actuará ajustándose a las garantías del debido proceso, incluyendo:
-a. Emplazamiento al interesado sobre el carácter y fines del procedimiento.
-b. Derecho de presentar argumentos y aportar las pruebas pertinentes.
-c. Amplio acceso al expediente.
-d. Derecho de hacerse representar por un abogado.
-e. Notificación de la resolución dictada por la Administración y los motivos en que se funda.
-f. Derecho de recurrir la decisión tomada.
+Artículo 110.—El Departamento Disciplinario Legal estará integrado por tres Secciones:
+1) La Sección de Admisibilidad e Investigaciones Preliminares.
+2) La Sección de Inspección Policial.
+3) La Sección de Inspección Administrativa.
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 91 al 92)
 (Así corrida su numeración por el artículo 1° del decreto ejecutivo N° 37949 del 26 de agosto de 2013, que lo traspaso del antiguo artículo 92 al 108)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 108 al 110)
+(Así reformado por el artículo 4° del decreto ejecutivo N° 39426 del 9 de octubre del 2015)

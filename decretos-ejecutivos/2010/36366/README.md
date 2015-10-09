@@ -23,3 +23,4 @@ Reglamento de Organización del Ministerio de Seguridad Pública
 | 8 | 2014-05-22 | Decreto Ejecutivo 38561 (2014-05-22) |
 | 9 | 2014-08-13 | Decreto Ejecutivo 38705 (2014-08-13) |
 | 10 | 2015-09-10 | Decreto Ejecutivo 39477 (2015-09-10) |
+| 11 | 2015-10-09 | Decreto Ejecutivo 39426 (2015-10-09) |

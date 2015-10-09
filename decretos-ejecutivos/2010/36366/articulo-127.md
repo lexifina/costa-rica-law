@@ -12,7 +12,8 @@ De conformidad con lo anterior, se consideran elementos propios de la función p
 9) La acción operativa tendiente a controlar y vigilar el uso y manejo de armas y explosivos.
 10) La acción operativa de inspección, supervisión y control de los servicios de seguridad privada.
 11) La labor de apoyo operativo que permite el adecuado desarrollo de la función policial, tal como: custodia, distribución, transporte y mantenimiento de armas y explosivos, la movilización de los (las) funcionarios (as) y sus suministros policiales.
-12) Las actividades operativas de investigación, inspección y control para el correcto desempeño de las fuerzas de policía.
+12) Las actividades operativas de investigación, inspección y control que puedan solicitar los órganos institucionales competentes en relación con el correcto desempeño de las fuerzas de policía.
+(Así reformado el inciso anterior por el artículo 11 del decreto ejecutivo N° 39426 del 9 de octubre del 2016)
 13) Las actividades orientadas a la obtención, procesamiento y difusión de la información operacional que permita la toma y adopción de decisiones oportuna, conveniente y fundamentada.
 14) Vigilar y proteger las instalaciones y vías de comunicación de interés estratégico o táctico.
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 107 al 108)

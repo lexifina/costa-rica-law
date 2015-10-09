@@ -8,7 +8,8 @@ Artículo 27.—El Consejo Superior de Oficiales tendrá las siguientes funcione
 7) Recomendar la creación de nuevas Direcciones Operativas, siguiendo lineamientos de los órganos competentes.
 8) Determinar procedimientos aplicables internamente en los casos de violación a las leyes y reglamentos por parte de funcionarios policiales en servicio, que pudieren configurar un crimen o un delito.
 9) Conocer y recomendar al Ministro (a) las propuestas de creación o modificaciones a leyes y reglamentos que afecten la función policial.
-10) Conocer y evaluar los informes del Inspector General y del Ministerio Público, en los casos en que corresponda y brindar asesoría al (a la) Jerarca sobre su proceder.
+10) Conocer y evaluar los informes del Ministerio Público, en los casos en que corresponda y brindar asesoría al (a la) Jerarca sobre su proceder.
+(Así reformado el inciso anterior por el artículo 10 del decreto ejecutivo N° 39426 del 9 de octubre del 2015)
 11) Emitir lineamientos que contribuyan a regular el uso de armas reglamentarias y servicios para los cuales se autoriza el uso de armas especiales.
 12) Revisar y realizar sugerencias sobre nuevo equipo policial, avituallamiento y tecnología a adquirir por parte del Ministerio.
 13) Solicitar a los (las) Directores (as), tanto Policiales como Administrativos, la rendición de cuentas sobre la aplicación de las políticas y lineamientos dictados por este Consejo.
