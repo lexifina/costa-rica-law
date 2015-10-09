@@ -23,3 +23,4 @@ Reglamento sobre Registro, Uso y Control de Plaguicidas Sintéticos Formulados, 
 | 8 | 2011-10-06 | Decreto Ejecutivo 37136 (2011-10-06) |
 | 9 | 2011-12-07 | SINALEVI (sin norma nombrada) |
 | 10 | 2012-06-25 | Ley 9046 |
+| 11 | 2015-10-09 | Decreto Ejecutivo 39676 (2015-10-09) |
