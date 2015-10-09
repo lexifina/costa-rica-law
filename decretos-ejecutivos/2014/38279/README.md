@@ -39,3 +39,4 @@ Directrices Generales de Política Presupuestaria para las Entidades Públicas, 
 | 24 | 2015-10-07 | Decreto Ejecutivo 39268 (2015-10-07) |
 | 25 | 2015-10-07 | Decreto Ejecutivo 39274 (2015-10-07) |
 | 26 | 2015-10-09 | Decreto Ejecutivo 39269 (2015-10-09) |
+| 27 | 2015-10-09 | Decreto Ejecutivo 39273 (2015-10-09) |
