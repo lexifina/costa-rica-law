@@ -1,0 +1,8 @@
+Artículo 2º—Definiciones. Para efectos de este reglamento, se entenderá por:
+a. Municipalidad: Municipalidad del Cantón de Santa Cruz.
+b. Permiso de Funcionamiento. Autorización que conforme a las regulaciones aplicables, deben obtener los interesados ante organismos estatales de previo al otorgamiento de la licencia para la comercialización de bebidas con contenido alcohólico.
+c. Ley: La “Ley de Regulación y Comercialización de Bebidas con Contenido Alcohólico” Nº 9047 de 25 de junio de 2012.
+d. Bebidas con contenido alcohólico: Son los productos que contienen alcohol etílico en solución y que son aptos para el consumo humano, provenientes de la fermentación, destilación, preparación o mezcla de productos alcohólicos de origen vegetal, trátese de cervezas, vinos y licores y de todo producto considerado como tal de conformidad con las disposiciones legales y reglamentarias. No se incluyen dentro de estas regulaciones las preparaciones, jarabes y los demás productos industriales no atinentes a la industria licorera, las cuales se rigen por otra normativa.
+e. Licencias: Es el acto administrativo por medio del cual se autoriza la comercialización de bebidas con contenido alcohólico, previo cumplimiento de los requisitos que establece el ordenamiento jurídico, cuyo ejercicio se limita a la categoría que tenga registrada en la Municipalidad.
+f. Salario Base: para los efectos de esta ley es el establecido en el artículo 2 de la Ley Nº 7337, del 5 de mayo de 1993, y sus reformas.
+g. Licenciatario (patentado): La persona física o jurídica a la que se le otorga una licencia para la comercialización de bebidas con contenido alcohólico.
