@@ -1,0 +1,1 @@
+Artículo 24.—Prohibición de conciliar. Al constituir el hostigamiento sexual un tipo específico de violencia caracterizada por relaciones de poder asimétricas de género, jerárquica o simbólica, que aumentan los factores de riesgo y revictimización de la persona hostigada, queda prohibida la aplicación de la figura de la conciliación durante todo el procedimiento.

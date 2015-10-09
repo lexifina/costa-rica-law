@@ -1,0 +1,1 @@
+Artículo 41.—Apertura de la audiencia. Para realizar la audiencia, el ODP se constituirá en la hora, fecha y lugar señalados en la resolución inicial. Para esos efectos, verificará la presencia de las partes y de las personas que le brinden asesoría legal, apoyo emocional, psicológico, testigos y peritos y declarará abierta la comparecencia.

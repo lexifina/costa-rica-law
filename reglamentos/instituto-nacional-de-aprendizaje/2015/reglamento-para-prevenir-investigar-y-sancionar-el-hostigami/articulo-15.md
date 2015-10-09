@@ -1,0 +1,1 @@
+Artículo 15.—Normativa supletoria para el funcionamiento de la Comisión. Para todo lo no previsto en las disposiciones anteriores, se aplicarán supletoriamente y en lo conducente, las disposiciones de la Ley General de la Administración Pública, relativas al funcionamiento de los órganos colegiados.

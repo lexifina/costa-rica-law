@@ -1,0 +1,1 @@
+Artículo 22.—Sobre la participación de la Junta de Relaciones Laborales. En los procedimientos para investigar y/o sancionar las conductas de acoso u hostigamiento sexual no se requerirá de la intervención de la Junta de Relaciones Laborales.
