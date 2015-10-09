@@ -1,0 +1,1 @@
+Artículo 37.—Aprobación de la renovación. Queda a entera discreción del Consejo Directivo la aprobación de la renovación en el registro de neutrales. La resolución denegatoria de registro únicamente contará con recurso de revocatoria.

@@ -1,0 +1,1 @@
+Artículo 49.—Prohibición de prácticas de intimidación. Los neutrales no consentirán que ninguna de las partes utilice prácticas que pretendan intimidar o presionar a su contraparte. El no cumplimiento de esta disposición por cualquiera de las partes, faculta al neutral de tomar las medidas necesarias.

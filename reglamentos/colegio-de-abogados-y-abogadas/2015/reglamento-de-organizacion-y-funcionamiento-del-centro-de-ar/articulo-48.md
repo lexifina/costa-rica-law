@@ -1,0 +1,1 @@
+Artículo 48.—Respeto al ordenamiento jurídico. Los neutrales deberán actuar dentro de los parámetros de cumplimiento de las disposiciones de orden público del ordenamiento jurídico vigente. El no cumplimiento de esta disposición por cualquiera de las partes, faculta al neutral de tomar las medidas necesarias.

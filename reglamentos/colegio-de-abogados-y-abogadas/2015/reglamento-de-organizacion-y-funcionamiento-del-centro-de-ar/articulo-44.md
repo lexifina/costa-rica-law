@@ -1,0 +1,1 @@
+Artículo 44.—Imparcialidad e independencia. Los neutrales deberán ser íntegros y actuar en forma imparcial e independiente con todas las partes y sus asesores legales durante el proceso, no debiendo incurrir en actuaciones y omisiones que generen dudas sobre el respeto a estos deberes, debiendo tratar a las partes con equidad y resguardando los derechos de todas las partes.

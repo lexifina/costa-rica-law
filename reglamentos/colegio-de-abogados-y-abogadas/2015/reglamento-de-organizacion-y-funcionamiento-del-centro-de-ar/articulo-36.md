@@ -1,0 +1,3 @@
+TÍTULO SEGUNDO
+De la Renovación del Registro de Neutrales
+Artículo 36.—De la renovación. Los neutrales del CAM-CR deberán renovar y actualizar su registro una vez al año, para lo cual deberán acreditar al menos treinta horas de capacitación anual, computadas a razón de año calendario y estar al día en la póliza de responsabilidad civil indicada en este Reglamento. También podrá acreditar la actualización de su conocimiento en mecanismos RAC y en su materia de especialidad, mediante la acreditación como docente universitario, como expositor y conferencista en charlas, seminarios o congresos nacionales o internacionales o como asesor de parte en al menos tres procesos de mecanismos RAC. No aplicará la renovación automática del registro de neutrales.

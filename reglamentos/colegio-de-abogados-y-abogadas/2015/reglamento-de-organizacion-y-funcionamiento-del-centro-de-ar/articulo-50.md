@@ -1,0 +1,1 @@
+Artículo 50.—Relación con las partes y sus asesores. Los neutrales no podrán aceptar favores u hospitalidades, ni mantener relación directa o indirecta con ninguna de las partes y sus asesores, salvo el tipo de relación, estrictamente necesaria y propia de sus funciones y responsabilidades dentro del desarrollo del proceso.

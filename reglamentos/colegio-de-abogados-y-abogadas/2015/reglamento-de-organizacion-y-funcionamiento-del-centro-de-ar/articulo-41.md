@@ -1,0 +1,2 @@
+Artículo 41.—Capacitación. Los Neutrales del CAM-CR deberán actuar de acuerdo con los más altos estándares de profesionalismo y calidad, para lo cual deberán participar en las actividades de capacitación que les permitan actualizar sus conocimientos y afianzar sus destrezas en el procedimiento que corresponda.
+Los Neutrales deberán asistir a las actividades de capacitación continua del CAM-CR con el propósito de que se mantenga el alto nivel de calidad requerido por el CAM-CR, con un mínimo de veinte horas anuales.

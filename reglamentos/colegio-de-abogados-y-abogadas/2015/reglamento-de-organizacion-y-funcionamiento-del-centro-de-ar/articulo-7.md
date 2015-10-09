@@ -1,0 +1,1 @@
+Artículo 7º—Órganos. El CAM-CR estará integrado por un Consejo Directivo, un Director/a y el personal de apoyo administrativo, financiero, informático, legal o de cualquier otra índole que se requiera para su debido funcionamiento.

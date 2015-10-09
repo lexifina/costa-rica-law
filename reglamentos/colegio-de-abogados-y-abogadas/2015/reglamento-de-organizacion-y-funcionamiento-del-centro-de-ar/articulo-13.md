@@ -1,0 +1,1 @@
+Artículo 13.—De los colaboradores. Las personas y entidades que trabajen, colaboren o presten servicios laborales, legales, académicos o de otra índole al CAM-CR, sean estos empleados, neutrales, expositores, profesores u otros, lo harán bajo el entendido de que representan al Colegio de Abogados y Abogadas de Costa Rica.

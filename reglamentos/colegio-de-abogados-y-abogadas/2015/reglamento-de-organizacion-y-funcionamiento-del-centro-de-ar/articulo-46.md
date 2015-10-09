@@ -1,0 +1,1 @@
+Artículo 46.—Conflicto de intereses. Los neutrales deben revelar a las partes y al CAM-CR aquellos motivos que puedan causar un aparente conflicto de intereses, según las disposiciones de este Reglamento.

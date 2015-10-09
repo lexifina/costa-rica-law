@@ -1,0 +1,1 @@
+Artículo 43.—Deber de diligencia. Es deber del Neutral dedicarse con diligencia y puntualidad a los asuntos que le encomiende el CAM-CR, y poner todos sus esfuerzos y conocimientos con estricto apego a las normas jurídicas, morales y éticas.

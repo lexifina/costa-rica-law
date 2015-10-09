@@ -1,0 +1,1 @@
+Artículo 58.—Los procesos arbitrales y de mediación que se encuentren en curso al entrar en vigencia el presente Reglamento, continuarán rigiéndose por el Reglamento anterior, salvo acuerdo de partes, sometiéndose al presente Reglamento.

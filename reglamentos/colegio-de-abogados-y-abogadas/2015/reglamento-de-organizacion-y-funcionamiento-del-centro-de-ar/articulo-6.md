@@ -1,0 +1,1 @@
+Artículo 6º—De la emisión de los protocolos y reglamentos procedimentales. Además de las funciones indicadas, será facultad de la Junta Directiva del Colegio, con el criterio técnico del Consejo Directivo del Centro dictar las normas de procedimiento y reglamentos de los servicios que brinda el CAM-CR.

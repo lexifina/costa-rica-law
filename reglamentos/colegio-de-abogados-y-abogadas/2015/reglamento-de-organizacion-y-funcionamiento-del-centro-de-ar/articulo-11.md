@@ -1,0 +1,1 @@
+Artículo 11.—Del Director/a del CAM-CR. El CAM-CR será dirigido por un abogado/a, nombrado por el Presidente de la Junta Directiva y deberá contar con al menos cinco años de incorporado al Colegio, y con acreditada experiencia en RAC. El Director/a del CAM-CR será personal administrativo del Colegio y como tal recibirá la remuneración que éste fije a tales efectos.

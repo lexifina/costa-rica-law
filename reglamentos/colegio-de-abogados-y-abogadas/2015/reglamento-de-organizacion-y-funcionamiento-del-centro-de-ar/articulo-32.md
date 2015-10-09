@@ -1,0 +1,4 @@
+TÍTULO QUINTO
+De los Miembros de Comités de Disputas
+Artículo 32.—De los Miembros de Comités de Disputas del CAM-CR. Podrán ser Miembros de Comités de Disputas del CAM-CR, los miembros del Colegio de reconocida solvencia moral, que tengan al menos diez años de incorporados y que acrediten suficiente capacitación en los Comités de Disputas. También podrán ser Miembros de Comités de Disputas del CAM-CR u otros profesionales incorporados al colegio respectivo.
+En caso de tratarse de Comités de Disputas de índole internacional, los profesionales en ingeniería y arquitectura u otras profesiones, que no sean costarricenses, deberán acreditar que tienen más de diez años de incorporados en la entidad correspondiente de su país de origen, y suficiente capacitación en los Comités de Disputas de índole internacional.

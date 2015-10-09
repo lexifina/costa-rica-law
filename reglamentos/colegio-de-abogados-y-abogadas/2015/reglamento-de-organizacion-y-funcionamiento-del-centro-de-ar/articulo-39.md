@@ -1,0 +1,1 @@
+Artículo 39.—Obligaciones hacia el CAM-CR. Los neutrales del CAM-CR actuarán en todo momento con respeto y profesionalismo hacia el CAM-CR, el Colegio y sus funcionarios/ as, las partes y sus asesores, absteniéndose de hacer comentarios públicos en contra de ellos.
