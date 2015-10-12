@@ -1,0 +1,2 @@
+Artículo 16-. Luego de recibida la denuncia, y específicamente a partir de nombrado el órgano director del procedimiento, CORFOGA tendrá un plazo de dos meses para concluir todo el proceso mediante el dictado del acto final. Dicho plazo se entenderá como perentorio, cuyo incumplimiento genera una responsabilidad para las personas integrantes del órgano.
+En el caso de que el o la denunciada no ejerza su derecho de defensa, el proceso continuará hasta concluirse definitivamente con la resolución final.

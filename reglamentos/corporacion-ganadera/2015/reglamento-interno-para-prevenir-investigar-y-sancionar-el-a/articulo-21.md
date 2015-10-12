@@ -1,0 +1,1 @@
+Artículo 21-. Normativa complementaria. En todos los demás aspectos no contenidos en este Reglamento, CORFOGA procederá de conformidad con lo establecido en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, la Ley General de Administración Pública y el Código de Trabajo.
