@@ -1,0 +1,2 @@
+Artículo 12.—Actividades extramuros. Dentro de la programación pedagógica, el Centro CECUDI podrá organizar actividades dentro y fuera del mismo, con el objetivo de dar respuesta a las necesidades de aprendizaje y desarrollo de los niños y las niñas.
+Los padres, madres o personas representantes legales, autorizarán por escrito, la participación de su hijo o hija en dichas actividades. Para lo cual el Director(a) docente y demás personal deberá tomar las previsiones mínimas de seguridad, higiene y cuido de las personas menores de edad, en dichos eventos o actividades.
