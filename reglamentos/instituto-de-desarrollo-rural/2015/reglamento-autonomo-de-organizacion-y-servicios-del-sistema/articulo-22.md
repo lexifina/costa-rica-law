@@ -1,0 +1,2 @@
+Artículo 22.—Requisitos para personas jurídicas: Además de los indicados en el artículo 109 del Reglamento a la Ley Nº 9036, el siguiente:
+Cuando el inmueble en donde se vaya a desarrollar la actividad, no pertenezca a los solicitantes del financiamiento; se deberá exigir un contrato de arrendamiento, cuya fecha de vencimiento debe ser superior, a la fecha de vencimiento de crédito. El mismo debe ser autenticado por un abogado.

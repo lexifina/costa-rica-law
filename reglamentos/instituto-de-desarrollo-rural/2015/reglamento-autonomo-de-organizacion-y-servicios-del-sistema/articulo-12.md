@@ -1,0 +1,1 @@
+Artículo 12.—Funciones del Comité se Crédito Central (CCC). Aprobar o improbar solicitudes de créditos, hasta por un monto de veinticinco millones de colones, el cual se actualizará anualmente, con base en la inflación medida por el índice de precios al consumidor (IPC) y las políticas institucionales en la materia.

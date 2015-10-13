@@ -1,0 +1,2 @@
+Artículo 24.—Del monto máximo a financiar por persona y por actividad:
+El monto del préstamo que se autorizará, depende del estudio técnico presentado y de la disponibilidad presupuestaria asignada a cada OSR, pero no puede sobrepasar los veinticinco millones de colones. Este monto se actualizará anualmente, con base en la inflación medida por el índice de precios al consumidor (IPC) y las políticas institucionales en la materia. El monto a financiar, puede ser, de hasta un 100% de los costos (avío) establecidos para la actividad.

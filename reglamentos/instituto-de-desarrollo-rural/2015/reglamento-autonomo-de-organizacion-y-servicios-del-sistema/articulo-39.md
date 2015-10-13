@@ -1,0 +1,1 @@
+Artículo 39.—Cobro judicial. Cuando una deuda tenga más de 90 días de atraso, en los pagos estipulados, se enviará a cobro judicial, una vez cumplida la gestión del cobro administrativo y de no haber cancelado o solicitado un arreglo de pago, aun cuando se esté realizando el proceso de revocatoria.

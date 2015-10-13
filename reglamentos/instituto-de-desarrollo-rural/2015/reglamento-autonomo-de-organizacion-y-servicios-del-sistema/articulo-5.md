@@ -1,0 +1,1 @@
+Artículo 5º—Los recursos disponibles, que no afecten la operación del Sistema, podrán invertirse en certificados de depósito, bonos o cualquier otro título valor, de acuerdo a las regulaciones que se dicten, mediante leyes, decretos ejecutivos o de la Ley de Administración Financiera de la República y Presupuestos Públicos; según decisión que tomará el Área de Crédito Rural.

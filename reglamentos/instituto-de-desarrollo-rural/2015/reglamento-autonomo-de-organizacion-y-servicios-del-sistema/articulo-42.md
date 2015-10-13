@@ -1,0 +1,2 @@
+Artículo 42.—De la contratación de abogados externos para constituir las hipotecas. Se autoriza al SCR a utilizar abogados externos, para que realicen la labor de constitución de hipotecas, sin menoscabo de que pueda ser realizada por los abogados y notarios institucionales. Se autoriza para que los costos de este servicio, puedan ser incluidos como parte del crédito o del monto adecuado, si los interesados no los pagan al momento de la formalización.
+En caso de ser realizado por abogados y notarios institucionales, se puede no cobrar dichos servicios.
