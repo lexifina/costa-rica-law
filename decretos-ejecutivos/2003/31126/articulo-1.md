@@ -49,6 +49,7 @@ k) (DEROGADO, por el artículo 2° del Decreto Ejecutivo N° 34769 de 8 de setie
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38793 del 1° de octubre del 2014, se nombra como miembro propietario de esta Comisión a la señora Lorna Marchena Sanabria como representante del Instituto Costarricense de Pesca y Acuicultura)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 38792 del 6 de noviembre del 2014, se nombra como miembro propietario de esta Comisión al señor Carlos Dengo Garrón como representante de la Unión Costarricense de Cámaras de la Empresa Privada)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 39075 del 25 de mayo de 2015, se nombra como miembro propietario de esta Comisión a la señora Fiorella Donato Calderón como representante del Consejo Nacional de Rectores)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 39410 del 13 de octubre de 2015, se nombra como miembro propietario a la señora Eva María Carazo Vargas, como representante de la Federación Costarricense para la Conservación del Ambiente.)
 2. Miembros suplentes:
 a) (Derogado este inciso por el artículo 3°, punto 1° del decreto ejecutivo N° 36113 del 28 de junio de 2010)
 b) (Derogado este inciso por el artículo 3° del decreto ejecutivo N°35427 del 2 de julio del 2009).
