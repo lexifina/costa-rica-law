@@ -1,1 +1,2 @@
-Artículo 13.— La Asamblea de Representantes aprobará en el Plan Anual de Inversiones, el monto máximo y mínimo que se puede otorgar en préstamos. La propuesta inicial sobre tasas de interés y plazos, así como sus posteriores modificaciones serán aprobadas por la Junta Directiva General previa recomendación de la Junta Administrativa.
+Artículo 13.— La Asamblea de Representantes aprobará en el Plan Anual Operativo monto máximo y mínimo que se puede otorgar en préstamos. La propuesta inicial sobre tasas de interés y plazos, así como sus posteriores modificaciones serán aprobadas por la Junta Directiva General previa recomendación de la Junta Administradora
+(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)

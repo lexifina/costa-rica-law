@@ -1,1 +1,2 @@
-Artículo 10.—Los miembros de la Junta Directiva General y de la Junta Administradora podrán ser sujetos de crédito en las mismas condiciones que los demás miembros del C.F.I.A., pero deberán abstenerse de participar como funcionarios en cualquier etapa de tramitación.
+Artículo 10.—Los miembros de la Junta Directiva General y de la Junta Administradora podrán ser sujetos de crédito en las mismas condiciones que los demás miembros del C.F.I.A., pero deberán abstenerse de participar como integrante del Comité de Crédito, Junta Administradora o Junta Directiva General, en cualquier etapa de tramitación de su solicitud.
+(Así reformado mediante sesión ordinaria N° 35-14/15 del 13 de octubre del 2015)
