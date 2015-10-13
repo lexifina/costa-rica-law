@@ -15,3 +15,4 @@ Reglamento Interno de Gastos de Gira o Viaje y de Transporte para los Funcionari
 | --- | --- | --- |
 | 1 | 2009-07-16 | la propia norma |
 | 2 | 2010-02-16 | Reglamento 5626 (2010-02-16) |
+| 3 | 2015-10-13 | Reglamento 5907 (2015-10-13) |
