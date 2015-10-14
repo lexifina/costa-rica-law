@@ -14,3 +14,4 @@ Consulta relativa a aplicación del artículo 146 Código Electoral a Funcionari
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-15 | la propia norma |
+| 2 | 2015-10-14 | SINALEVI (sin norma nombrada) |

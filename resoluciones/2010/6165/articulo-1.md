@@ -1,4 +1,6 @@
+(Anulada)
 TRIBUNAL SUPREMO DE ELECCIONES
+(Anulada mediante resolución de la Sala Constitucional N° 16070 del 14 de octubre de 2015)
 N° 6165-E8-2010.—San José, a las trece horas quince minutos del veintitrés de setiembre de dos mil diez. (Exp. 229-Z-2010).Opinión consultiva formulada por el señor Antonio Calderón Castro, Secretario General del Partido Liberación Nacional, relativa a la aplicación del artículo 146 del Código Electoral a funcionarios municipales, al porcentaje de participación femenina dentro de los Órganos Consultivos Cantonales y a la elección de las candidaturas para la elección municipal de diciembre de 2010.
 Resultando:
 1º—En escrito presentado ante la Secretaría del Tribunal el 25 de mayo de 2010 el señor Antonio Calderón Castro, Secretario General del Partido Liberación Nacional, solicita que esta Magistratura Electoral emita opinión consultiva sobre la aplicación del artículo 146 del Código Electoral a funcionarios municipales, el porcentaje de participación femenina dentro de los Órganos Consultivos Cantonales y aclare algunos aspectos atinentes a la escogencia de las candidaturas para la elección municipal de diciembre de 2010 (folios 5-6).
