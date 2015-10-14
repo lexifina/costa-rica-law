@@ -1,4 +1,6 @@
+(Derogado)
 Nº 33778
+(Este decreto ejecutivo fue derogado por el artículo 34 del Reglamento de Organización y Funcionamiento de los Consejos Regionales de Desarrollo, aprobado mediante decreto ejecutivo N° 39453 del 14 de octubre de 2015.)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE PLANIFICACIÓN
 NACIONAL Y POLÍTICA ECONÓMICA

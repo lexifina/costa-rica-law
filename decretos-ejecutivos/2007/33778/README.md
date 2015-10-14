@@ -14,3 +14,4 @@ Crea Consejo Regional para el Desarrollo de la Provincia de Limón (COREDES – 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-06-01 | la propia norma |
+| 2 | 2015-10-14 | Decreto Ejecutivo 39453 (2015-10-14) |
