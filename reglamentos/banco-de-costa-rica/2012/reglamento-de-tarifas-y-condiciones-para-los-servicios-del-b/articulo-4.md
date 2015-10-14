@@ -6,55 +6,57 @@ Transferencia de fondos a terceros:
 (Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
 4.2.- Reemplazo de clave dinámica física por pérdida o robo
 $3.00
-4.3.- Teleban
-4.3.1 Tarifa mensual
-$50.00
-4.3.2 Transferencia electrónica de fondos
-0.25 % por cada una
-Mínima $35.00 diarios siempre que se efectúe al menos una transferencia. Para el caso de instituciones cuya actividad sea bancaria, financiera o bursátil.
-4.4.- Plataforma de conectividades
-La comisión obtenida por el Banco motivo de una conectividad, debe ubicarse entre un rango de 0,25% y 10%, según la normativa que contiene los rangos de negociación de acuerdo a la categoría de conectividad y el convenio que se acuerde entre el Banco y la empresa contratante posteriormente. Esta será establecida en el documento Reglas del Negocio que deben firmar ambas partes.
-4.5.- Tesorería electrónica
-Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen sus clientes mediante el uso de este servicio.
-4.6. Créditos directos salientes Sinpe cuentas clientes
-$1.00 por transacción
-(Así reformado el punto 4.6) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-4.7.- Banca Móvil por mensaje de respuesta
+4.3.- Plataforma de conectividades. La comisión obtenida por el Banco motivo de una conectividad, debe ubicarse entre un rango de 0,25% y 10%, según la normativa que contiene los rangos de negociación de acuerdo a la categoría de conectividad y el convenio que se acuerde entre el Banco y la empresa contratante posteriormente. Esta será establecida en el documento Reglas del Negocio que deben firmar ambas partes.
+(Así reformado el punto 4.3) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.4.- Tesorería electrónica. Comisión del 2% a las empresas e instituciones sobre los pagos que les hacen sus clientes mediante el uso de este servicio.
+(Así reformado el punto 4.4) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.5.- Créditos directos salientes Sinpe cuentas clientes
+$1.00 por transacción.
+(Así reformado el punto 4.5) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.6.- Banca Móvil por mensaje de respuesta
 $0.010
-4.8. Certificados digital
+(Así reformado el punto 4.6) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.7.- Certificados Digital
 A- Clientes BCR
 Emisión $46.00 por certificado
 Solo lector $28.00
 Solo tarjeta $20.00
 Renovación $12.00
-Cambio PIN-Desbloqueo $5.00
+Cambio PIN -desbloqueo $5.00
 Solo certificado $12.00
-(Así reformado el punto inciso A) del punto 4.8) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
 B- Usuarios BCR (denominados como aquellos usuarios que no tienen ninguna relación comercial con el BCR)
 Emisión $56.00 por certificado
 Solo lector $32.00
 Solo tarjeta $24.00
 Renovación $52.00
-Cambio PIN -Desbloqueo $10.00
+Cambio PIN -desbloqueo $10.00
 Solo certificado $15.00
-(Así reformado el punto 4.80 anterior mediante sesión 24-13 del 24 de junio del 2013)
-4.9.- Servicio Quick Pass
+(Así reformado el punto 4.7) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.8.- Servicio Quick Pass
 Servicio | Costo
 Adquisición del dispositivo | $35.00
 Mantenimiento mensual | $ 1.00
 Sustitución defecto de fábrica (garantía 4 años) | $ 0.00
 Remplazo por pérdida o daño | $35.00
-4.10.- Transferencia por medio de web corporativo
+(Así reformado el punto 4.8) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.9.- Transferencia por medio de web corporativo
 - Para los débitos en tiempo real $2.00
 - Para los débitos directos $0.75
-(*) 4.11.- Bancatel negocios
+(Así reformado el punto 4.9) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.10.- Bancatel Negocios
 $ 2.00 Comisión fija mensual
-Nota: Este costo incluye el derecho a consultar hasta 10 cheques al mes. Por cada consulta adicional (después del décimo cheque), se cobrará $0.25
-(Así adicionado el punto 4.11 anterior mediante sesión 24-13 del 24 de junio del 2013)
-(*)(Así reformado el punto 4.11) anterior mediante sesión N° 46-14 del 20 de octubre del 2014)
-4.12. Cambio de Cheques BNCR
+Nota:
+Este costo incluye el derecho a consultar hasta 10 cheques al mes. Por cada consulta
+adicional (después del décimo cheque), se cobrará $0.25.
+(Así reformado el punto 4.10) anterior en sesión N° 44 del 14 de octubre de 2015)
+(*)4.11.- Cambio de Cheques BNCR
 $2.00 por cada cheque del BNCR que sea cambiado en efectivo en cajas BCR.
+(Así adicionado el punto 4.11 anterior mediante sesión 24-13 del 24 de junio del 2013)
+(Así reformado el punto 4.11) anterior en sesión N° 44 del 14 de octubre de 2015)
+4.12 Depósitos BNCR
+$2.00 por cada depósito a cuentas del BNCR realizado en cajas BCR.
 (Así adicionado punto 4.12) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Así reformado el punto 4.12) anterior en sesión N° 44 del 14 de octubre de 2015)
 4.13. Depósitos BNCR
 $2.00 por cada depósito a cuentas del BNCR realizado en cajas BCR.
 (Así adicionado punto 4.13) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
