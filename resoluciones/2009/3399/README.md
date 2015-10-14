@@ -14,3 +14,4 @@ La inscripción de candidaturas que dará inicio a partir del 1° de octubre de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-08-03 | la propia norma |
+| 2 | 2015-10-14 | Resolución 6165 (2010-09-23) |
