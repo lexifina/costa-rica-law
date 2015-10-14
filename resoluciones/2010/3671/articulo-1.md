@@ -1,4 +1,6 @@
+(Anulada)
 TRIBUNAL SUPREMO DE ELECCIONES
+(Anulada mediante resolución de la Sala Constitucional N° 16070 del 14 de octubre de 2015)
 RESOLUCIONES
 Nº 3671-E8-2010.—Tribunal Supremo de Elecciones.—San José, a las nueve horas treinta minutos del trece de mayo de dos mil diez. Exp. 074-S-2010.
 Consulta formulada sobre la aplicación de los principios de paridad y alternancia en la papeleta de alcalde y vicealcaldes.

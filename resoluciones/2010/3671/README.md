@@ -14,3 +14,4 @@ Aplicación de los principios de paridad y alternancia en la papeleta de alcalde
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-06-10 | la propia norma |
+| 2 | 2015-10-14 | SINALEVI (sin norma nombrada) |
