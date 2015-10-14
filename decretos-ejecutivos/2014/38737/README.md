@@ -14,3 +14,4 @@ Reglamento a la Ley N° 8130 denominada “Determinación de Beneficios Sociales
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-01 | la propia norma |
+| 2 | 2015-10-14 | Decreto Ejecutivo 39258 (2015-10-14) |
