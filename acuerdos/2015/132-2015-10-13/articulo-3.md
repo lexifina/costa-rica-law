@@ -1,0 +1,1 @@
+Artículo 3°—Dicho comité cuando lo amerite se hará asesorar por entes externos competentes en el campo de la prevención y atención de emergencias, como lo son el Benemérito Cuerpo de Bomberos, Benemérita Cruz Roja, Comisión Nacional de Emergencias, entre otros.
