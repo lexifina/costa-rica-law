@@ -13,3 +13,4 @@ Aprobación y control de las vacaciones solicitadas por las servidoras y servido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-14 | la propia norma |
+| 2 | 2015-10-15 | Circular 183 (2015-10-15) |
