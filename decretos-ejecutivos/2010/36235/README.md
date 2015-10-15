@@ -17,3 +17,4 @@ Reglamento Autónomo de Servicios del Ministerio de Obras Públicas y Transporte
 | 2 | 2012-06-12 | Decreto Ejecutivo 37204 (2012-06-12) |
 | 3 | 2012-09-13 | Decreto Ejecutivo 37348 (2012-09-13) |
 | 4 | 2015-03-05 | Decreto Ejecutivo 39013 (2015-03-05) |
+| 5 | 2015-10-15 | Decreto Ejecutivo 39307 (2015-10-15) |
