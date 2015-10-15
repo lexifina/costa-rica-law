@@ -14,3 +14,4 @@ Declara Parque Nacional Braulio Carrillo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1978-04-27 | la propia norma |
+| 2 | 2015-10-15 | Decreto Ejecutivo 39259 (2015-10-15) |
