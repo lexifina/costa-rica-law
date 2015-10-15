@@ -28,7 +28,8 @@ Artículo 43.—Obligaciones. Son obligaciones de los funcionarios.
 25. Laborar jornada extraordinaria hasta por el máximo legal cuando sea requerido para ello, y prestar auxilio en caso de siniestro o riesgo inminente para las personas o para las instalaciones del INA.
 26. Pagar inmediatamente, o suscribir un arreglo de pago, por las indemnizaciones que deba cubrir al Instituto, por la pérdida o deterioro de equipos.
 27. Presentar las liquidaciones correspondientes a gasto de viaje y compra de bienes y servicios por caja chica, dentro del plazo reglamentario establecido para cada caso; y reintegrar a la institución cualquier suma no utilizada en el objeto de gasto autorizado.
-28. Portar la identificación de funcionario, dentro de las instalaciones del INA y durante la jornada de trabajo.
+28. Portar en forma visible la identificación proporcionada por la institución durante toda su jornada de trabajo, tanto dentro de las instalaciones del INA como fuera de ellas, cuando se desempeñe como funcionario institucional.
+(Así reformado el inciso anterior en sesión N° 4710 del 15 de octubre de 2015)
 29. Presentar la constancia de incapacidad ante el jefe inmediato, dentro de los dos días hábiles siguientes a la fecha en que surgió el impedimento para laborar.
 30. Obtener autorización del jefe inmediato, en caso de que requiera retirarse de su centro de trabajo.
 31. Mantener al día la licencia de conducir, cuando en razón de su puesto deba cumplir con ese requisito.
