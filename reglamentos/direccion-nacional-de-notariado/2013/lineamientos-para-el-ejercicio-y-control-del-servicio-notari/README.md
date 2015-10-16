@@ -18,3 +18,4 @@ Lineamientos para el ejercicio y control del servicio notarial
 | 3 | 2013-07-31 | Acuerdo 3 (2013-07-31) |
 | 4 | 2014-02-12 | Reglamento 0 (2014-02-12) |
 | 5 | 2014-08-27 | Reglamento 16 (2014-08-27) |
+| 6 | 2015-10-16 | Acuerdo 27 (2015-10-16) |
