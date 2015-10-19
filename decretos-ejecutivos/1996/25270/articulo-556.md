@@ -1,0 +1,2 @@
+Artículo 556.—Transmisión del operador de transporte multimodal internacional en la salida. Cuando se trate de la salida de mercancías, el operador de transporte multimodal deberá comunicar a la aduana de control, los conocimientos de embarque individualizados que fueren necesarios, por medio de transmisión electrónica una vez transmitido previamente el conocimiento de embarque matriz por parte del transportista aduanero que realice el tráfico marítimo.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)

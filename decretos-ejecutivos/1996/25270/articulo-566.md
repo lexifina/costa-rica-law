@@ -1,0 +1,2 @@
+Artículo 566.—Normas supletorias. Serán de aplicación supletoria a la presente modalidad, las disposiciones relativas al ingreso, salida y tránsito de mercancías y unidades de transporte, así como las normas de importación temporal de unidades de transporte comercial y vehículo comercial de la Ley General de Aduanas y su Reglamento.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 39267 del 19 de octubre de 2015)
