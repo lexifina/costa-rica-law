@@ -3,7 +3,8 @@ a) El interesado deberá contar con un salario, pensión o jubilación líquida,
 (Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 b) No poseer operaciones con otras entidades magisteriales, ni del Sector Público o Privado, que comprometan el 60% o más del monto devengado de la pensión o jubilación. Esto califica solo para pensiones con un nominal menor al salario mínimo de la Administración Pública.
 c) Los pensionados o jubilados, deben tener disponibilidad y autorizar la pignoración de la póliza mutual de la Sociedad de Seguros de Vida del Magisterio Nacional o bien, suscribir una póliza de saldos deudores.
-d) Los trabajadores activos, deben suscribir una póliza de saldos deudores.
+d) Los trabajadores en servicio, deben suscribir una póliza de saldos deudores, así como autorizar la pignoración de la póliza de la Sociedad de Seguros de Vida del Magisterio Nacional según lo que tengan disponible, durante el período de disputabilidad de la póliza de saldos deudores. Una vez cumplido este período, la póliza será despignorada y el aseguramiento será únicamente, la póliza de saldos deudores.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 113-2015 del 19 de octubre del 2015)
 e) Los trabajadores, deben presentar el documento de calificación de riesgo de la SUGEF y deben estar al día en todas las obligaciones crediticias que posean.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
 f) Deberá firmar un pagaré a favor de la Junta de Pensiones, en el cual se especifican las condiciones en que fue otorgado el crédito.

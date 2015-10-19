@@ -7,7 +7,8 @@ Dirigida a quienes tengan declarado en su favor, el beneficio ordinario o extrao
 Dirigida a aquellos pensionados (as) que buscan complementar o desarrollar proyectos productivos, mediante la figura de financiamiento económico. Los recursos podrán ser utilizados para la compra de equipo, maquinaria, materia prima y capital de trabajo, pudiéndose destinar hasta el 25% del monto solicitado, para la cancelación total o parcial de deudas, relacionadas exclusivamente con el giro de la microempresa.
 En los casos que corresponda, los avalúos de las propiedades y los estudios de factibilidad económica, serán realizados por profesionales calificados, los cuales serán seleccionados por la Junta de Pensiones. Será la Institución la que realizará la asignación correspondiente y el interesado depositará en la Junta, de previo, el costo de tales estudios.
 4. Línea para entidades sociales y financieras del Magisterio Nacional
-Su finalidad es dotar de recursos a las entidades sociales y financieras del Magisterio Nacional, de acuerdo con los convenios que se establezcan entre la Junta y dichas entidades, siempre y cuando el beneficiario final del plan de inversión sean los jubilados y pensionados (as) del Magisterio Nacional.
+Su finalidad es dotar de recursos a las entidades sociales y financieras del Magisterio Nacional, de acuerdo con los convenios que se establezcan entre la Junta y dichas entidades, siempre y cuando el beneficiario final del plan de inversión sea la membresía.
+(Así reformado el punto anterior mediante sesión ordinaria N° 113-2015 del 19 de octubre del 2015)
 5. Línea de Salud
 Dirigido a los afiliados (as) del Régimen, para satisfacer sus requerimientos en el área de la salud. Entendiéndose el término salud, tal como lo refiere el Organismo Mundial de la Salud: “Estado de completo bienestar físico, mental y social, y no solamente la ausencia de enfermedad o dolencia.
 6. Derecho Sucesorio:

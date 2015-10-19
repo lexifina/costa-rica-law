@@ -4,8 +4,9 @@ a) El solicitante deberá tener un líquido de pensión o jubilación superior o
 b) No poseer operaciones con otras entidades magisteriales, ni del sector público o privado, que comprometan el 60% o más del monto de pensión o jubilación devengado. Esto califica solo para pensiones con un nominal menor al salario mínimo de la administración pública.
 c) Los pensionados o jubilados, deben tener disponibilidad y autorizar la pignoración de la póliza de la Sociedad de Seguros de Vida del Magisterio Nacional.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
-d) que indica: Los trabajadores activos, deben suscribir una póliza de saldos deudores.
+d) Los trabajadores en servicio, deben suscribir una póliza de saldos deudores así como autorizar la pignoración de la póliza de la Sociedad de Seguros de Vida del Magisterio Nacional según lo que tengan disponible, durante el período de disputabilidad de la póliza de saldos deudores. Una vez cumplido este período, la póliza será despignorada y el aseguramiento será únicamente, la póliza de saldos deudores.
 (Así adicionado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+(Así reformado el inciso anterior mediante sesión ordinaria N° 113-2015 del 19 de octubre del 2015)
 e) De existir compromisos crediticios con la Junta, estos deben estar completamente al día.
 (Así corrida la numeración del inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014, que lo traspasó del antiguo inciso d) al e))
 f) Presentar fotocopia de la cédula de identidad vigente (por ambos lados).

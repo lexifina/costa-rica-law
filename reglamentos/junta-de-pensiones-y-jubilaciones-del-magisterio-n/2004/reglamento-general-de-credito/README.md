@@ -33,3 +33,4 @@ Reglamento General de Crédito
 | 18 | 2014-02-24 | Reglamento 0 (2014-02-24) |
 | 19 | 2014-10-15 | Reglamento 114 (2014-10-15) |
 | 20 | 2015-02-05 | Reglamento 15 (2015-02-05) |
+| 21 | 2015-10-19 | Reglamento 113 (2015-10-19) |

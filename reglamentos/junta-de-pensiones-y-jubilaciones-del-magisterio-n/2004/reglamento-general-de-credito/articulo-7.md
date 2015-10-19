@@ -1,7 +1,7 @@
 CAPÍTULO II
 Requisitos
-Requisitos: Las solicitudes de crédito deben ser presentadas para su revisión y análisis, en la Unidad de Crédito o en las sucursales de la Junta. / Los requisitos deben ser cumplidos satisfactoriamente en cada una de las líneas vigentes, en caso de que el gestionante desee optar por una nueva línea de crédito o realizar una renovación por la Línea de Gastos Personales, deberá estar totalmente al día en sus cuotas.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+Las solicitudes de crédito deben ser presentadas para su revisión y análisis, en la Unidad de Crédito y Cobro o en las Sucursales de la Junta. Los requisitos deben ser cumplidos satisfactoriamente en cada una de las líneas vigentes, en caso de que el gestionante desee optar por una nueva línea de crédito o realizar una renovación por la Línea de Gastos Personales, deberá estar totalmente al día en sus cuotas.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 113-2015 del 19 de octubre del 2015)
 Artículo 7º—Línea Gastos Personales
 a) El solicitante deberá tener un líquido de pensión o jubilación superior o igual al monto de la cuota del crédito requerido, multiplicada por dos.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
