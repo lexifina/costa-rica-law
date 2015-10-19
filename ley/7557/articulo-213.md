@@ -1,8 +1,2 @@
-Artículo 213.—Agravantes. La pena será de cinco a nueve años de prisión y la multa equivalente a dos veces el monto del valor aduanero de las mercancías, cuando en alguna de las circunstancias expuestas en el artículo 211 de esta Ley, concurra por lo menos una de las siguientes conductas o situaciones:
-a) Se perpetre, facilite o evite su descubrimiento, mediante el empleo de violencia o intimidación.
-b) Cuando sea cometido por dos personas o más o el agente integre una organización destinada al contrabando.
-c) Se utilice un medio de transporte acondicionado o modificado en su estructura, con la finalidad de transportar mercancías eludiendo el control aduanero.
-d) Se hagan figurar como destinatarias, en los documentos referentes al despacho de las mercancías, personas naturales o jurídicas inexistentes.
-e) Intervenga, en calidad de autor, instigador o cómplice, un funcionario público en ejercicio de sus funciones, con ocasión de ellas o con abuso de su cargo.
-f) Se participe en el financiamiento, por cuenta propia o ajena, para la comisión del delito de contrabando aduanero.
-(Así reformado por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+Artículo 213.—Contrabando fraccionado. Incurre igualmente en los delitos contemplados en los tipos penales previstos en los dos artículos anteriores y será reprimido con idénticas penas, el que actuando con una misma finalidad realice actividades de contrabando de forma fraccionada, en un solo acto o en diferentes actos, respecto de mercancías con un valor aduanero inferior a los cinco mil pesos centroamericanos, de forma tal que aisladamente hubiesen sido considerados infracciones administrativas. Para determinar la modalidad de contrabando fraccionado, la autoridad judicial podrá considerar los actos realizados por el infractor en los doce meses anteriores al último acto denunciado. El hecho generador se regirá por lo establecido en el artículo 55 de esta ley, para el acto o cada uno de los actos individualmente considerados.
+(Así reformado por el artículo 1° de la Ley para mejorar la lucha contra el contrabando, N° 9328 del 19 de octubre de 2015)
