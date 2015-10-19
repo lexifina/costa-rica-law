@@ -1,1 +1,0 @@
-Artículo 4º—Contribuyentes. A los efectos de lo dispuesto en el artículo 3º, 4º y 10º de la Ley Nº 9047, son contribuyentes o sujetos pasivos de este impuesto las personas físicas o jurídicas con licencia municipal para el expendio y comercialización de bebidas con contenido alcohólico en la jurisdicción del Cantón de Grecia.

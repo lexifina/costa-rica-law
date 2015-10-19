@@ -1,2 +1,0 @@
-Artículo 21.—Vigencia de las licencias temporales. La vigencia de las licencias temporales estará definida por el término que se establezca en el respectivo acuerdo municipal. La licencia temporal únicamente puede ser explotada por el licenciatario a quién se le extienda, es decir no puede ser transferida bajo ninguna condición a terceros.
-De comprobar la administración municipal alguna infracción, quedará facultada, en forma inmediata, a cancelar la licencia, clausurar el establecimiento donde se explota y sancionar tal conducta conforme al artículo 14 de la Ley.

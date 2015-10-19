@@ -1,1 +1,0 @@
-Artículo 45.—Derogación. Este Reglamento deroga expresamente cualquier reglamento anterior que se haya emitido, para la regulación y comercialización de bebidas con contenido alcohólico. Para cumplir con la Eficacia y a lo normado a la Ejecutoriedad de los Actos.
