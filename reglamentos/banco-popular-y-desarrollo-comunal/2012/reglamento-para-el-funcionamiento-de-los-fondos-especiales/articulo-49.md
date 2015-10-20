@@ -1,1 +1,1 @@
-Artículo 49.—Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual los solicitantes u obligados deberán dar toda la información pertinente y colaboración que se les solicite.
+Artículo 49.—Es potestad del Banco supervisar los créditos en todos sus aspectos, para lo cual las personas solicitantes u obligados deberán dar toda la información pertinente y colaboración que se les solicite.

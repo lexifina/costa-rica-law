@@ -1,1 +1,1 @@
-Artículo 4º—Áreas encargadas de la administración: La Gerencia General Corporativa definirá las áreas encargadas de realizar las funciones operativas y administrativas en cada uno de los fondos especiales.
+Artículo 4°—Áreas encargadas de la administración: Para la realización de las funciones operativas y administrativas de cada uno de los fondos especiales, se establece la Dirección de Banca de Desarrollo Social.

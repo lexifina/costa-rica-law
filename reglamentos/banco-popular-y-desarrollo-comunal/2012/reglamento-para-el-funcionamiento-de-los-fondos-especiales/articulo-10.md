@@ -1,1 +1,1 @@
-Artículo 10.— Derogado por el punto ix) del artículo 38) del Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, aprobado mediante sesión N° 5306 del 1° de setiembre del 2015)
+Artículo 10.—De la inversión de recursos: La Gerencia General Corporativa emitirá los lineamientos de inversión, los cuales serán de conocimiento de la Comisión de Emprendimiento y Fondos Especiales de la Junta Directiva Nacional para ser analizados y remitidos a esta Junta Directiva Nacional para su aprobación.

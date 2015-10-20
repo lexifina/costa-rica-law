@@ -1,6 +1,8 @@
-Artículo 37.—Sobre los sujetos de crédito del FEVI. Para ser sujeto de crédito del FEVI se debe cumplir las siguientes condiciones al momento del análisis:
-a) El ingreso familiar bruto del solicitante debe ser igual o menor al equivalente a seis salarios mínimos de un obrero del sector de la construcción no especializado, pero no menor al salario mínimo embargable.
-El ingreso bruto se debe considerar como parámetro de admisibilidad, y el ingreso neto para determinar la capacidad de pago.
-b) Se podrá financiar hasta el 100% del valor según avalúo, siempre y cuando este valor no supere los 80 mil dólares Dicho monto debe permitir una cobertura de hasta el 100% del crédito.
-c) Derogado
-d) Para ser sujeto de crédito, el deudor debe contar con un núcleo familiar; excepto en caso del adulto mayor, cuyos miembros no pueden contar con propiedades a su nombre, excepto la propiedad a ser utilizada para la construcción de la vivienda; o bien propiedades que no sean aptas para vivienda, o que sea materialmente imposible su segregación o venta.
+** Artículo 37.—Sobre los sujetos de crédito del FEVI: Para ser sujeto de crédito del FEVI se debe cumplir las siguientes condiciones al momento del análisis:
+a) El ingreso familiar bruto de la persona solicitante debe ser igual o menor al equivalente a seis salarios mínimos de una persona obrera del sector de la construcción no especializado, pero no menor al salario mínimo embargable.
+b) El ingreso bruto se debe considerar como parámetro de admisibilidad, y el ingreso neto para determinar la capacidad de pago.
+c) Se podrá financiar hasta el 100% del valor según avalúo, siempre y cuando este valor no supere el monto que define la legislación del BANHVI en materia de vivienda de interés social. Dicho monto debe permitir una cobertura de hasta el 100% del crédito.
+d) Para ser sujeto de crédito, la persona deudora debe contar con un núcleo familiar (excepto en caso de la persona adulta mayor), cuyos miembros no pueden contar con propiedades a su nombre, excepto la propiedad a ser utilizada para la construcción de la vivienda o bien propiedades que no sean aptas para vivienda cuya segregación o venta sea materialmente imposible.
+e) En el caso de la planilla del Banco, esta podrá optar por recursos de este fondo solamente en caso de que no califiquen como sujetos de crédito para vivienda según lo establecido en el Reglamento General de Crédito y en el Reglamento de Crédito a empleados y empleadas del Banco Popular y de Desarrollo Comunal, lo cual deberá quedar debidamente evidenciado.
+* Este artículo fue modificado por la Junta Directiva Nacional en sesión 5170 del 20 de mayo del 2014. Publicado en La Gaceta N° 107 del 05 de junio de 2014.
+** Este artículo fue modificado por la Junta Directiva Nacional en sesión 5170 del 20 de mayo del 2014. Publicado en La Gaceta N° 134 del 14 de julio de 2014.
