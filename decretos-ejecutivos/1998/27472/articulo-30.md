@@ -1,1 +1,0 @@
-Artículo 30.—El conductor no deberá manifestar disconformidad con las determinaciones de las autoridades en el momento del accidente, pero según lo regulado, deberá informar sobre el percance al Departamento de Administración de Bienes y Servicios, con copia a la Unidad Administrativa correspondiente y a la Jefatura inmediata, en un plazo no mayor de 2 días hábiles.

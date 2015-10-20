@@ -1,1 +1,0 @@
-Artículo 22.—Los días y horas en que se solicite usar los vehículos, deberán estar acordes con el horario autorizado al conductor o a sus ocupantes mediante los respectivos carnés; caso contrario deberá gestionarse la emisión de la “autorización especial para circular fuera de jornada de trabajo” indicada en el artículo 7.

@@ -1,2 +1,0 @@
-Del uso administrativo de los vehículos
-Artículo 4°—Los vehículos de uso administrativo estarán bajo la responsabilidad y custodia del Departamento de Administración de Bienes y Servicios, que los podrá asignar por un período determinado a las unidades administrativas que así lo requieran, en razón de su ubicación, distancia y lejanía de la sede, según la normas establecidas para tal fin, llevando los registros apropiados.

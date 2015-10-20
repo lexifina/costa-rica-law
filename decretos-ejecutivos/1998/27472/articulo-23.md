@@ -1,1 +1,0 @@
-Artículo 23.—Verificada la información de la solicitud y constatada la disponibilidad de recursos, se otorgará la salida del vehículo seleccionado y se hará entrega al conductor de la respectiva autorización y de las correspondientes llaves, previa firma del conductor de conformidad con los datos del registro relativo a los implementos, accesorios y estado del vehículo.

@@ -1,1 +1,0 @@
-Artículo 28.—Los funcionarios responsables de la custodia de los vehículos de uso administrativo y discrecional, deberán velar porque se cumpla con el programa de mantenimiento preventivo y correctivo, control de abastecimiento de combustibles y lubricantes; y las diligencias en caso de accidentes de tránsito.

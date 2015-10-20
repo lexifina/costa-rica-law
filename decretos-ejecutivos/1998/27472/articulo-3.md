@@ -1,2 +1,0 @@
-Clasificación de vehículos oficiales
-Artículo 3°—Para los efectos del presente Reglamento los vehículos del M.A.G. serán utilizados bajo la siguiente clasificación: a) De uso discrecional, que son aquellos asignados al servicio del Ministro y del Viceministro, conforme lo establece y regula la Ley de Tránsito y el Manual de Control Interno relativo al Uso, Control y Mantenimiento de Vehículos emitido por la Contraloría General de la República y b) De uso administrativo, todos los demás vehículos que estén al servicio del MAG.
