@@ -14,3 +14,4 @@ Declara de interés público y nacional las actividades e iniciativas relacionad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-11 | la propia norma |
+| 2 | 2015-10-20 | Decreto Ejecutivo 39275 (2015-10-20) |

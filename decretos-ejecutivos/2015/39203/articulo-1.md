@@ -19,4 +19,5 @@ Decretan:
 DECLARATORIA DE INTERÉS PÚBLICO Y NACIONAL
 DEL EVENTO “X-AIR CHALLENGE 2015
 COSTA RICA AIR SHOW”
-Artículo 1º—Declaratoria. Se declara de interés público y nacional las actividades e iniciativas relacionadas con el evento “X-Air Challenge 2015 Costa Rica Air Show”, el cual tendrá lugar los días 2, 3 y 4 de octubre del 2015.
+Artículo 1º—Se declara de interés público y nacional las actividades e iniciativas relacionadas con el evento “X-Air Challenge 2015 Costa Rica Air Show”, el cual tendrá lugar el 27, 28 y 29 de noviembre de 2015.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39275 del 20 de octubre de 2015)
