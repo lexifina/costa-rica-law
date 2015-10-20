@@ -1,1 +1,0 @@
-Artículo 39.—El usuario que necesite habilitar el paso sobre el caño, deberá colocar una parrilla fijada al suelo con bisagras, de manera que la misma pueda moverse para realizar la labor de limpieza de vías.

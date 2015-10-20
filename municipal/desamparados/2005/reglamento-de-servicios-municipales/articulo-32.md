@@ -1,1 +1,0 @@
-Artículo 32.—Los usuarios situados en los lugares donde la Municipalidad brinda el servicio de recolección, deben depositar los desechos sólidos generados en bolsas plásticas (polietileno) y colocarlas en las vías públicas donde se preste el servicio, a partir de las cinco horas del día que corresponda recogerlos.

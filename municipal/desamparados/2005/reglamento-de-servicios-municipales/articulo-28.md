@@ -1,1 +1,0 @@
-Artículo 28.—La tarifa institucional 3 es la tasa aplicable a todos los centros penitenciarios y a cualesquiera otras instituciones de naturaleza y condiciones semejantes, que se ubiquen dentro del área de cobertura del servicio de recolección. Para esta tarifa se toma como factor de ponderación 110.
