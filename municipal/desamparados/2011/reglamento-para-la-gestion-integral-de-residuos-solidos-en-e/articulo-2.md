@@ -1,1 +1,0 @@
-Artículo 2º—Alcance. Este reglamento es de acatamiento obligatorio para todas las personas, físicas o jurídicas, públicas o privadas, generadoras de residuos sólidos de toda clase que encuentren localizados dentro del ámbito territorial del cantón de Desamparados, exceptuándose los regulados por norma especial.

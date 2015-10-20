@@ -1,1 +1,0 @@
-Artículo 11.—Educación y sensibilización. La unidad de gestión ambiental será la encargada de promover la capacitación y realizar campañas educativas de sensibilización de los habitantes del cantón respectivo para fomentar la cultura de separación en los hogares, industrias y servicios, la recolección selectiva, de limpieza de los espacios públicos y gestión integral de residuos.

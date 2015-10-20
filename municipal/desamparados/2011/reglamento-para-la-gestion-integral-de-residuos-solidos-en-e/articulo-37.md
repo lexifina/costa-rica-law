@@ -1,2 +1,0 @@
-Artículo 37.—Inspecciones. Los funcionarios del Proceso de Servicios Públicos en conjunto con Control Ambiental o Inspección, debidamente identificados, realizarán las inspecciones de verificación, seguimiento o cumplimiento de este reglamento y del Plan Municipal de Gestión Integral de Residuos Sólidos. Para ingresar a inmuebles deberán solicitar permiso a los propietarios o podrán hacerse acompañar de autoridades de policía.
-En caso de encontrarse indicios de incumplimiento de este reglamento, se le notificará al responsable para el inicio del procedimiento respectivo.
