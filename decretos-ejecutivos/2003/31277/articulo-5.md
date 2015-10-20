@@ -1,1 +1,0 @@
-Artículo 5º—En lo no contemplado en este decreto, la Comisión Interinstitucional de Desalojos (CID) se regirá por las disposiciones que regulan a los Órganos Colegiados, contenidas en los artículos 49 y siguientes de la Ley General de la Administración Pública.
