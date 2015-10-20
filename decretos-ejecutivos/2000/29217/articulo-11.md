@@ -1,1 +1,0 @@
-Artículo 11.-Todo vehículo deberá tener su expediente donde se haga constar el registro de funcionarios que lo han conducido, anotando kilometraje, combustible utilizado, lubricantes y reparaciones. Dichos expedientes serán llevados y custodiados en la unidad administrativa y financiera.
