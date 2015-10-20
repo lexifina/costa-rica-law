@@ -1,0 +1,1 @@
+Artículo 2º—La regulaciones o artículos que integran este reglamento en forma íntegra estará disponible en la página electrónica de la Presidencia de la República en la siguiente dirección: http:// presidencia.go.cr/tribunal-administrativo-del-servicio-civil/, y en forma impresa, en los archivos que se custodian en el Tribunal Administrativo de Servicio Civil.
