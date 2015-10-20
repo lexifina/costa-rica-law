@@ -1,0 +1,1 @@
+Artículo 16.—Determinación de envío en caso de interrupción. En caso de que el sistema de transmisión de envío de notificaciones por correo electrónico se interrumpa por más de un día, el Tribunal deberá determinar si se remite a otros medios de notificaciones señalados por la parte en el expediente respectivo, de conformidad con el numeral 2° de este reglamento.

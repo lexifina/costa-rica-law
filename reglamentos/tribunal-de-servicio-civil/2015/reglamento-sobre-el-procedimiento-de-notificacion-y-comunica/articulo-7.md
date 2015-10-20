@@ -1,0 +1,2 @@
+Artículo 7°.—Notificación por comisión fuera del Área Metropolitana. Si el lugar señalado queda fuera del área metropolitana, el notificador enviará por correo certificado a la guardia rural las cédulas de notificación junto con la documentación pertinente para que ellos realicen la diligencia por Comisión.
+El notificador debe darle seguimiento a la actuación de la Guardia Rural, con el fin de que el documento notificado se incorpore al expediente una vez que esa diligencia se haya realizado, o se haga constar la imposibilidad de efectuarla.

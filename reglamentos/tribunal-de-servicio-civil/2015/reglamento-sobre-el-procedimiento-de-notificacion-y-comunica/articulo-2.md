@@ -1,0 +1,2 @@
+Artículo 2°.—De los medios de notificación. Los medios de notificación serán el correo certificado, el fax, el correo electrónico, o cualquier otro medio tecnológico que se produzca en el futuro, siempre que garantice la integridad de la información remitida y la seguridad de la comunicación.
+Se tendrá por realizada la notificación, una vez que el documento notificado sea recibido por la parte o su Apoderado debidamente acreditado ante este Tribunal, según la naturaleza del procedimiento.
