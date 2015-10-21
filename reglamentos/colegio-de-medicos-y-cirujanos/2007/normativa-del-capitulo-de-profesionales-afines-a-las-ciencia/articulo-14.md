@@ -9,8 +9,10 @@ e) Certificación de materias aprobadas.
 f) Carta dirigida al Fiscal del Colegio de Médicos y Cirujanos, solicitando ser autorizado como Profesional en Ramas Dependientes de las Ciencias Médicas.
 g) Certificación original de nacimiento.
 h) Certificado original de estado civil.
-i) Certificación original de delincuencia.
-j) Información Ad-Perpetuam, de conformidad con lo señalado en el artículo 7 de a Ley Orgánica del Colegio de Médicos y Cirujanos.
+i) Certificación de Antecedentes Penales: Se debe presentar original de la Certificación de Antecedentes Penales emitida por el Registro Judicial, Poder Judicial de la República de Costa Rica, cuando el Profesional Afín haya residido en los últimos cinco años en el país.
+Cuando el solicitante tuviera más de cinco años de residir fuera del territorio nacional debe aportar una certificación de antecedentes penales emitida en su país de residencia y en caso de imposibilidad una declaración jurada protocolizada ante Notario Público, donde manifieste que ni en su país de residencia, ni en otro país ha sido condenado penalmente Conforme con los principios contenidos en la Ley 8220 (Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos) este documento exonera la presentación de la información Ad Perpetua Memoria, contenida en la Ley Orgánica del Colegio de Médicos y Cirujanos. En el caso de los solicitantes extranjeros con menos de 5 años de vivir en Costa Rica, deberán aportar además, certificación de su Antecedente Penal (crimina! o legal), emitida por las autoridades correspondientes del país de origen o del último país de residencia.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 2015-10-21 del 21 de octubre del 2015)
+j) (Derogado este inciso mediante sesión ordinaria N° 2015-10-21 del 21 de octubre del 2015)
 k) Fotocopia de cédula de identidad o fotocopia de cédula de residencia.
 l) Comprobante de pago de derechos que determine la Junta de Gobierno.
 m) Formulario de datos personales, registro de direcciones y firmas.
