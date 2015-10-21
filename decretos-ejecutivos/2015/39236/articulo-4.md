@@ -1,0 +1,1 @@
+Artículo 4º—MIDEPLAN coordinará el proceso de formulación de los Planes de Acción de la POLCI, en procura de la participación efectiva de los órganos, entes y empresas públicas que resulten directamente involucrados en acciones de cooperación internacional.

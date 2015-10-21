@@ -1,0 +1,1 @@
+Artículo 5º—El MRREE, como interlocutor oficial, tendrá a su cargo la negociación y la presentación de los planes de acción correspondientes ante los Estados y los Organismos Internacionales cooperantes.

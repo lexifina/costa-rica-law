@@ -1,0 +1,2 @@
+Artículo 3º—La POLCI se implementará mediante Planes de Acción que son instrumentos desagregados por ejes de desarrollo, donde se establecen las acciones fundamentales para su realización y los resultados esperados. Estos Planes comprenderán los plazos para ejecutar cada una de las acciones, las instituciones públicas que resulten responsables de su ejecución y los indicadores de gestión para evaluar las acciones y sus resultados.
+Los Planes de Acción tendrán coberturas conforme a los períodos gubernamentales.

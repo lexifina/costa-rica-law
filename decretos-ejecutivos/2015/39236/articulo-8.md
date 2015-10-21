@@ -1,0 +1,1 @@
+Artículo 8º—El MRREE será responsable de valorar conjuntamente con los Estados y Organismos Internacionales que corresponda, las evaluaciones de avance de los proyectos presentados por MIDEPLAN, que se ejecuten como resultado de los planes de acción de la POLCI.

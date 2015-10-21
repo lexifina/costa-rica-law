@@ -1,0 +1,1 @@
+Artículo 6º—Las instituciones públicas que según los Planes de Acción de la POLCI resulten responsables de las acciones necesarias para su ejecución deberán priorizar su realización en los instrumentos de planificación institucional y en sus respectivos presupuestos públicos.
