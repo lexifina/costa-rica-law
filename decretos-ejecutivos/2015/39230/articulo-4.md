@@ -1,0 +1,1 @@
+Artículo 4°—El Ministerio de Agricultura y Ganadería, tendrá la responsabilidad de coadyuvar a la coordinación de las actividades del Gobierno y sus instituciones que permita ejecutar las iniciativas para cumplir los fines establecidos en el presente Decreto.

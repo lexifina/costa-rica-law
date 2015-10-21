@@ -1,0 +1,1 @@
+Artículo 2°—Declarar al Cacao, en sus variedades autóctonas (nativas y criollas) y a las tradiciones, prácticas agro culturales, usos, sabores y colores asociados a éste, como Patrimonio Cultural de Costa Rica.
