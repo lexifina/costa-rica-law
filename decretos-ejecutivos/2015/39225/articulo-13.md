@@ -1,0 +1,1 @@
+Artículo 13.—Derogación: Deróguese el Decreto Ejecutivo N° 37695-MP-MTSS de Promoción del teletrabajo en las instituciones públicas, publicado en el diario oficial La Gaceta N° 98 del 23 de mayo de 2013.
