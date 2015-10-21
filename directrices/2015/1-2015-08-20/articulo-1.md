@@ -1,0 +1,13 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+DIRECTRIZ
+D.R.P.J.-01-2015
+De: Dirección Registro de Personas Jurídicas.
+Para: Subdirección, Asesoría Jurídica, Coordinación General, Coordinaciones, Registradores de Mercantil y Público en General.
+Asunto: cancelación del asiento de presentación de documentos por morosidad de los contribuyentes con el impuesto a las personas jurídicas.
+Fecha: 20 de agosto de 2015
+Con la finalidad de su debida aplicación, se les informa que mediante resolución N° 2015-012009 de las 09:05 horas del 7 de agosto presente, dictada por la Sala Constitucional de la Corte Suprema de Justicia, con ocasión de la Solicitud de adición y aclaración de la sentencia N° 1241-2015 de las 11:31 horas del 28 de enero del año en curso, planteada entre otros por el Registro Nacional, en el proceso de Acción de Inconstitucionalidad contra la Ley Impuesto a las Personas Jurídicas N° 9024, tramitado bajo el expediente N° 12-016277-0007-CO, se resolvió en lo que resulta de interés:
+“VII.- Sobre el dimensionamiento de los alcances de las sanciones y la aplicación de la ley. …esta Sala sí indicó que “todos los contribuyentes deben pagar el monto correspondiente al período fiscal 2015 y, obviamente, los anteriores si se encuentran morosos, so pena de verse sometidos a las multas, intereses y demás sanciones previstas en la ley que ahora se declara inconstitucional”, con lo cual, resulta claro que las sanciones o consecuencias por el impago se mantienen vigentes hasta que se cancele lo adeudado por los períodos fiscales vencidos que sí debieron cancelarse. …” (La cursiva subrayada no corresponde al original).
+En tal sentido, la disposición del mencionado Despacho Judicial consignada en la resolución N° 2013-004613 dictada a las 14:30 horas de fecha 10 de abril de 2013, relativa a la inaplicación de la sanción preceptuada por el ordinal 5° de la Ley N° 9024, básicamente aquella que refiere la cancelación del asiento de presentación de documentos relacionados con contribuyentes morosos con el tributo en mención, queda sin efecto.
+Por lo tanto, el asiento de presentación de los documentos pertenecientes a sociedades morosas, que sean ingresados por primera; y de documentos que se les haya indicado el defecto de sociedad morosa, presentados por ulterior vez y que sigan manteniendo dicho estado, (es decir que no hayan cancelado el impuesto) deberán ser cancelados, de conformidad con lo dispuesto en el artículo 5 de la Ley N° 9024.
+Por lo anterior, se deja sin efecto la circular administrativa D.R.P.J. 002-2013, del 19 de abril de 2013.
+Rige a partir de su publicación en el diario oficial La Gaceta.
