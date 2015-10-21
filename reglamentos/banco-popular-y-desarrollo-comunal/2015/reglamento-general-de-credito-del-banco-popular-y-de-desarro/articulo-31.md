@@ -1,0 +1,1 @@
+Artículo 31.—Sin perjuicio de lo indicado en el artículo 38 de este Reglamento, ante incumplimiento por parte de la clientela debidamente comprobado de alguna de las cláusulas del contrato, el Banco se reserva el derecho de suspender total o parcialmente los desembolsos del crédito.
