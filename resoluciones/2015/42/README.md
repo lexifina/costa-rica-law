@@ -14,3 +14,4 @@ Ajustes en aplicación informática TICA para realizar autoliquidación de impos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-19 | la propia norma |
+| 2 | 2015-10-21 | Resolución 392 (2015-10-21) |
