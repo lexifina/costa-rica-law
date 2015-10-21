@@ -1,0 +1,1 @@
+Artículo 7º—Otros cargos a cobrar en el servicio de cuentas corrientes. La Gerencia General Corporativa podrá variar los cargos indicadas en el anexo de este Reglamento, modificación que no podrá ser superior a un 80% del máximo fijado para cada caso en el semestre (de enero a junio y de julio a diciembre) anterior.

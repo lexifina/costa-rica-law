@@ -1,0 +1,2 @@
+Artículo 16.—Comunicaciones. Toda comunicación a la persona cuentacorrentista se realizará por los medios autorizados, mediante los cuales se les harán llegar los estados de cuenta o cualquier otra información pertinente.
+El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta, y deroga el Reglamento de Cuentas Corrientes del Banco Popular y de Desarrollo Comunal, aprobado por la Junta Directiva Nacional en sesión ordinaria Nº 4560, celebrada el 24 de marzo del 2008 y publicado en el Diario Oficial La Gaceta Nº 82 del 29 de abril del 2008.
