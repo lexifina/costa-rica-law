@@ -1,0 +1,2 @@
+Artículo 16.—Actas de la CCI. De cada reunión se levantará un acta en la cual se consignarán todos los acuerdos tomados. Los libros de actas serán abiertos por la Auditoría Interna según lo dispuesto en el artículo 22, inciso c) de la Ley 8292. Las actas serán firmadas por todos los miembros presentes.
+Las Actas de la Comisión de Control Interno serán públicas una vez que sean aprobadas en firme por los miembros de la Comisión, previo a esto, solamente serán de conocimiento de los funcionarios que la conforman.

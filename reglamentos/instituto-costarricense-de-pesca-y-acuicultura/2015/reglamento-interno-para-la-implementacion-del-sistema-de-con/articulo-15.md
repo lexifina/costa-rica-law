@@ -1,0 +1,2 @@
+Artículo 15.—Del quórum y votaciones. La CCI sesionará válidamente con la presencia de la mitad más uno de sus miembros. Si no hubiere quórum al momento de iniciar la sesión, transcurridos treinta minutos se podrá sesionar en segunda convocatoria siempre que se cuente con al menos tres de sus miembros.
+Los acuerdos tomados por la CCI se darán por el voto afirmativo de la mayoría simple de los miembros presentes en la sesión.
