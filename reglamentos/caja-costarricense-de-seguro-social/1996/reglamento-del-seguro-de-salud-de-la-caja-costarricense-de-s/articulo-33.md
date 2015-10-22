@@ -1,2 +1,4 @@
-Artículo 33º. De la complementariedad de las incapacidades Caja / I.N.S.
-Cuando una incapacidad otorgada por la Caja inicie o exceda a una del I.N.S., y no haya transcurrido un año desde que el asegurado dejó de cotizar por el riesgo laboral, se reconocerán los subsidios, en el entendido que el pago se inicia una vez terminada la incapacidad del I.N.S., siempre que se cumplan los plazos de espera indicados en el artículo 34º.
+ARTÍCULO 33°:
+De la complementariedad de incapacidades en casos de riesgos del trabajo
+Cuando una incapacidad por enfermedad común otorgada por la Caja, inicie o exceda a una otorgada por una aseguradora que comercializa la póliza del Seguro de Riesgos del Trabajo en razón de haberse determinado una etiología propia de ese riesgo, se reconocerá el pago de subsidio por enfermedad con cargo al seguro de salud una vez terminado el plazo de incapacidad otorgado por la aseguradora, y siempre y cuando se cumplan los plazos de calificación indicados en el artículo 34° de este reglamento.”
+(Así reformado por el artículo 40 del Reglamento de Riesgo Excluidos de la Caja Costarricense de Seguro Social y Reforma Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social, y aprobado en sesión N° 2015 del 22 de octubre del 2015)

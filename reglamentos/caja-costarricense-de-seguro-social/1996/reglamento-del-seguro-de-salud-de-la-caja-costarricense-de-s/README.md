@@ -28,3 +28,4 @@ Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social
 | 13 | 2012-08-08 | SINALEVI (sin norma nombrada) |
 | 14 | 2014-04-24 | Reglamento 8712 (2014-04-24) |
 | 15 | 2014-10-09 | Reglamento 8744 (2014-10-09) |
+| 16 | 2015-10-22 | Reglamento 2015 (2015-10-22) |

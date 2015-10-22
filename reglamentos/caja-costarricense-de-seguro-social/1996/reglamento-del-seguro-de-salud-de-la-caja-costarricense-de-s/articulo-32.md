@@ -1,3 +1,5 @@
-Artículo 32.—De las incapacidades a cargo del Instituto Nacional de Seguros (INS). No procede el pago de subsidios por enfermedad cuando se esté frente a los riesgos del trabajo o accidente de tránsito. En este último caso se actuará dentro de los límites de la póliza del Seguro Obligatorio de Vehículos, según convenio entre la Caja y el Instituto Nacional de Seguros.
-Con motivo del agotamiento de la póliza, situación que el INS deberá informar formalmente con al menos una semana de antelación y en el evento que la Caja otorgue incapacidades, éstas podrán pagarse según los plazos máximos establecidos en este Reglamento, sumando para este efecto los días pagados por el INS.
-(Así reformado mediante sesión N°8061 del 30 de mayo del 2006).
+ARTÍCULO 32°:
+De las incapacidades otorgadas por aseguradoras que comercializan pólizas del Seguro de Riesgos del Trabajo o del Seguro Obligatorio para los Vehículos Automotores.
+No procede el pago de subsidio por enfermedad cuando se esté frente un riesgo excluido conforme la definición contenida en el artículo 16° del presente reglamento.
+Tratándose de lesionados que se encuentran dentro de la cobertura de la póliza del Seguro Obligatorio para los Vehículos Automotores, el pago del subsidio a que se refiere el artículo 73° de la Ley de Tránsito, se realizará de conformidad con las regulaciones que contenga el Reglamento para el Otorgamiento de Licencias e Incapacidades a los Beneficiarios del Seguro de Salud y su respectivo instructivo.
+(Así reformado por el artículo 40 del Reglamento de Riesgo Excluidos de la Caja Costarricense de Seguro Social y Reforma Reglamento del Seguro de Salud de la Caja Costarricense de Seguro Social, y aprobado en sesión N° 2015 del 22 de octubre del 2015)
