@@ -20,3 +20,6 @@ XVIII) El funcionario tendrá derecho a que se cumpla en igual forma lo referent
 XIX) Tendrán derecho a representación proporcional en las comisiones en que se trate de asuntos que involucren al personal.
 XX) Los representantes serán preferentemente nombrados por asambleas de los trabajadores convocadas y dirigidas por éstos. En caso contrario las elegirán las organizaciones de los trabajadores ya establecidas y que tengan interés.
 XXI) Contar con el médico de empresa.
+XXII) A que no se les discrimine en su trabajo por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad, o que se les cese en sus funciones por tales razones.
+Además, tienen derecho a que se les reconozca, en todos los ámbitos de su labor, la identidad de género de acuerdo a lo solicitado por la persona funcionaria.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39425 del 22 de octubre de 2015)

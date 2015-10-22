@@ -16,3 +16,4 @@ Reglamento Autónomo de Servicio del Ministerio Ciencia y Tecnología
 | 1 | 1994-02-04 | la propia norma |
 | 2 | 2005-05-03 | Decreto Ejecutivo 32366 (2005-05-03) |
 | 3 | 2012-06-25 | Ley 9046 |
+| 4 | 2015-10-22 | Decreto Ejecutivo 39425 (2015-10-22) |
