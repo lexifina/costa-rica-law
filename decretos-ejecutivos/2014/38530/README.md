@@ -14,3 +14,4 @@ Publica Resolución N° 342-2014 (COMIECO-LXVII) del 25 de abril del 2014: Aprue
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-25 | la propia norma |
+| 2 | 2015-10-22 | Decreto Ejecutivo 39346 (2015-10-22) |

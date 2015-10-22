@@ -22,7 +22,10 @@ RESUELVE:
 1º—Aprobar las aperturas arancelarias siguientes:
 [imagen]
 2º—Aprobar la siguiente apertura y modificación arancelaria:
-[imagen]
+Código | Descripción | DAI%
+8528.7 | -Aparatos receptores de televisión, incluso con aparato receptor de radiodifusión o grabación o reproducción de sonido o imagen incorporado |
+8528.71 | --No concebidos para incorporar un dispositivo de visualización (display) o pantalla de video: |
+8528.71.20(*) (*) (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 39346 del 22 de octubre de 2015, se estableció que la tarifa del Impuesto Selectivo de Consumo en un cero por ciento (0%), a los convertidores de señales de televisión (incluso de señales digitales de audio), únicamente en señales analógicas, para la recepción de señales digitales emitidas en televisión abierta, para los aparatos receptores de televisión que no tienen incorporado un dispositivo sintonizador de televisión digital, clasificados en la posición arancelaria 8528.71.20.00. del Decreto Ejecutivo Nº 38530-COMEX de fecha 23 de junio del 2014.”) | --Convertidor de señales digitales de televisión (incluso de señales digitales de audio), únicamente en señales analógicas, para la recepción de señales digitales emitidas en televisión abierta para los aparatos receptores de televisión que no tienen incorporado un dispositivo sintonizador de televisión digital. | 0
 3º—Las aperturas arancelarias y la modificación arancelaria anteriores forman parte integrante del Arancel Centroamericano de Importación, Anexo “A” del Convenio sobre el Régimen Arancelario y Aduanero Centroamericano.
 4º—La presente Resolución entrará en vigencia treinta (30) días después de la presente fecha y será publicada por los Estados Parte.
 Tegucigalpa, Honduras, 25 de abril de 2014
