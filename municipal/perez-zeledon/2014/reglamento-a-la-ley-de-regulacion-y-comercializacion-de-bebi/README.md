@@ -14,3 +14,4 @@ Reglamento a la ley de regulación y comercialización de bebidas con contenido 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-31 | la propia norma |
+| 2 | 2015-10-23 | Reglamento municipal 120 (2015-10-23) |
