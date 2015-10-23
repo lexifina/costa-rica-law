@@ -17,3 +17,4 @@ Tarifas por la venta de bienes y servicios que brinda y genera el INCOPESCA para
 | 2 | 2014-12-17 | Acuerdo 498 (2014-12-17) |
 | 3 | 2014-12-17 | Acuerdo 499 (2014-12-17) |
 | 4 | 2015-04-23 | Acuerdo 179 (2015-04-23) |
+| 5 | 2015-10-23 | Acuerdo 434 (2015-10-23) |

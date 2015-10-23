@@ -6,6 +6,7 @@ Considerando:
 3º—Que dada la necesidad de minimizar el impacto al sector pesquero y acuícola, de manera tal que le permita a éstos sectores alcanzar el desarrollo económico suficiente que le permita enfrentar los desafíos que la sociedad demanda, tendientes a convertirse en motores del desarrollo social y económico nacional, la Junta Directiva, conciente en la responsabilidad que, como Autoridad Ejecutora de la Ley de Pesca y Acuicultura, le corresponde, en sintonía con la tutela del recurso pesquero y acuícola y la posibilidad del acceso sustentable sobre ese recurso, con fundamento en la metodología aplicada para la elaboración de la propuesta presentada para las tarifas del próximo ejercicio económico del año 2015. Por tanto,
 ACUERDA:
 1º—Dar por conocido y recibida la presentación del cuadro tarifario para el año 2015 con sus Notas Explicativas, presentado por la MBA. Betty Valverde Cordero, mediante oficio DF-063-09-2014, mismo que se acoge y aprueba en los siguientes términos y condiciones:
+(Nota de Sinalevi: Mediante acuerdo AJDIP/434-2015 del 23 de octubre de 2015, se acordó prorrogar la vigencia del Cuadro de Tarifas y sus Notas Explicativas, para el período comprendido entre el 1º de enero al 31 de diciembre del 2016.)
 | CONCEPTO | Unidad de medida | Moneda | TARIFA 2015
 BIENES ACUÍCOLAS
 1 | Alevín de carpa Coi hasta 10,0 gramos | semilla | colones | 562,00
