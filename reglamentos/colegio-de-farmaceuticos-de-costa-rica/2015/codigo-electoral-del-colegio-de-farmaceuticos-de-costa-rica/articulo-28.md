@@ -1,0 +1,9 @@
+TÍTULO V
+CAPÍTULO ÚNICO
+Convocatoria, votación, escrutinio y elección
+Artículo 28.—Convocatoria. La convocatoria a la asamblea general para la elección la efectuará la Junta Directiva del Colegio de Farmacéuticos de Costa Rica, de conformidad con lo dispuesto en los artículos 13, 14 y 19 de la Ley Orgánica del Colegio.
+La convocatoria para la inscripción de papeletas la realizará el Tribunal Electoral del Colegio de Farmacéuticos, al menos cuarenta y cinco días naturales antes de las elecciones, mediante publicación en el Diario Oficial La Gaceta y en un medio de comunicación colectiva.
+Para efectos de emitir el voto, el Tribunal Electoral efectuará una sesión simultánea a la asamblea general.
+La votación se abrirá a las 9:30 horas y se cerrará a las 14:30 horas. No se recibirá ningún voto después de la hora de cierre de la votación. De inmediato se realizará el escrutinio de los votos. Terminado el escrutinio, la asamblea conocerá el resultado de la votación, declarará electos a los ganadores y los juramentará.
+En caso de empate de alguno o varios de los candidatos, se llevará a cabo una segunda ronda de votaciones, únicamente por la(s) candidatura(s) que haya(n) quedado empatada(s). Se abrirán las urnas de votación para que los electores puedan votar, entre las 15:30 horas y hasta las 16:15 horas. En ese lapso de tiempo podrá ejercer su voto cualquier colegiado que cumpla las disposiciones del artículo 2 del presente código; no se recibirá ningún voto después de la hora de cierre de la votación de la segunda ronda. De inmediato se realizará el escrutinio de los votos. Terminado el escrutinio, la Asamblea conocerá el resultado de la votación de la segunda ronda, declarará electo(s) al (a los) ganador(es) y lo(s) juramentará.
+En caso de empate en la segunda ronda, quedará electo el candidato que tenga más tiempo de estar colegiado.

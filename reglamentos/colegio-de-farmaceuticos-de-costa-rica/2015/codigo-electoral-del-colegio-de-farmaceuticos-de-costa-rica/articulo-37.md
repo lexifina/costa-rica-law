@@ -1,0 +1,1 @@
+Artículo 37.—Recurso de revisión. Contra las resoluciones o los acuerdos del Tribunal Electoral cabrá únicamente el recurso de revisión. Se debe presentar dentro del siguiente día hábil de ser notificado, y será resuelto por el Tribunal dentro del día siguiente hábil de su presentación. La resolución que dicte el Tribunal no tendrá recurso ulterior.

@@ -1,0 +1,2 @@
+Artículo 29.—Local de votación. El local de votación estará acondicionado de modo que en él pueda establecerse la junta receptora con todas las garantías necesarias para la emisión del voto secreto.
+Cuando uno o varios de los miembros que resultaron electos no estén presentes en la asamblea general para su juramentación, esta se efectuará en fecha posterior, en una sesión del Tribunal Electoral convocada de inmediato para ese acto.

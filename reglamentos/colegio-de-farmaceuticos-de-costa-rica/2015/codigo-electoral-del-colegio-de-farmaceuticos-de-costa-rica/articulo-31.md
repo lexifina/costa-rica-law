@@ -1,0 +1,1 @@
+Artículo 31.—Convocatoria de los miembros de las juntas receptoras. Los miembros de las juntas receptoras tienen la obligación de presentarse al local asignado para la votación el día de las elecciones, una hora antes de la convocatoria a asamblea general.

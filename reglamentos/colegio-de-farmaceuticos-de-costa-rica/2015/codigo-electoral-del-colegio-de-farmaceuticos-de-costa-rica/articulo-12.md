@@ -1,0 +1,1 @@
+Artículo 12.—El acta electoral. El acta electoral es el documento donde debe consignarse la apertura, las incidencias y el cierre de la votación. Constará de un artículo de apertura, un artículo de cierre de votación, además de un artículo de conteo de votos y resultados de la elección.
