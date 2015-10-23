@@ -1,0 +1,1 @@
+Artículo 17.—Procedimiento: El recurso de apelación se iniciará con la gestión escrita del recurrente ante el Departamento de Desarrollo Profesional, en el cual aquél deberá exponer en forma clara y razonada los motivos de su disconformidad, con las pruebas pertinentes.

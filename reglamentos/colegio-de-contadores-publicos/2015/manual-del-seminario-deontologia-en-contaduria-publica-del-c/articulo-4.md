@@ -1,0 +1,2 @@
+Artículo 4º—Apertura, cupo y filiales: El Seminario Deontología en Contaduría Pública requerirá para su apertura, de una matrícula mínima de veinte participantes y hasta un máximo de ochenta para ser impartido.
+El Seminario será impartido en la sede central del Colegio de Contadores Públicos de Costa Rica que se ubica en San José, Moravia. La Junta Directiva podrá autorizar el impartir el Seminario Deontología en Contaduría Pública en las filiales, siempre que exista la disponibilidad docente y la matricula mínima prevista en este artículo.

@@ -1,0 +1,1 @@
+Artículo 22.—Notificación: La resolución será comunicada a cada participante en el medio señalado en la solicitud de admisión cuando se inscribió, de conformidad con los medios que contempla la Ley de Citaciones y Notificaciones del Poder Judicial.

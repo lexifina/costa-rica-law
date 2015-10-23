@@ -1,0 +1,1 @@
+Artículo 2º—Requisito de incorporación para recibir el Seminario Deontología en Contaduría Pública: Solamente podrá recibirlo aquel aspirante que ha completado la documentación correspondiente verificada por la Comisión de Admisión como parte del proceso de incorporación y haya sido aprobada su incorporación por acuerdo de la Junta Directiva.
