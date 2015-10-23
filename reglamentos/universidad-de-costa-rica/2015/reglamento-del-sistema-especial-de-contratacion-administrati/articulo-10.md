@@ -1,0 +1,2 @@
+Artículo 10.—Fiscalización y control. En este tipo de contrataciones el control financiero presupuestario, la autorización para la ejecución presupuestaria y la revisión del cumplimiento de los requisitos legales, para la emisión de los pagos es realizada por la Oficina de Administración Financiera, de acuerdo con los ingresos recibidos, los presupuestos aprobados y las regulaciones vigentes. Lo anterior sin perjuicio de los controles y fiscalización de los procesos de contratación administrativa que realiza la OSUM ordinariamente.
+San José, 6 de octubre del 2015.

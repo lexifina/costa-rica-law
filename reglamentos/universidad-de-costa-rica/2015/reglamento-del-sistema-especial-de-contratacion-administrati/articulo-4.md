@@ -1,0 +1,1 @@
+Artículo 4º—Del expediente. Una vez recibida la solicitud, será responsabilidad de la OSUM, los responsables de las unidades de compra especializadas o los funcionarios competentes para la suscripción de contratos de servicios profesionales o técnicos, confeccionar el expediente de la contratación, el cual deberá estar debidamente foliado y ordenado de forma cronológica.
