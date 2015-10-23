@@ -1,0 +1,1 @@
+Artículo 30.—Transporte de particulares: Es absolutamente prohibido transportar particulares en los vehículos de la Institución, salvo que estos brinden algún servicio, trabajo especial a la Institución y/o Organizaciones comunales cuando así se requiera, lo anterior mediante la autorización correspondiente emitida por la Administración o el funcionario que ésta autorice.

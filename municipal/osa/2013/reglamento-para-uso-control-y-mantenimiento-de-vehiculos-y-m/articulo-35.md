@@ -1,0 +1,1 @@
+Artículo 35.—Maquinaria que debe permanecer en una comunidad. Para que la maquinaria deba permanecer en el lugar del proyecto debe existir colaboración por parte del comité de caminos de la comunidad o Asociación de Desarrollo en el cuidado y bienestar de la maquinaria.
