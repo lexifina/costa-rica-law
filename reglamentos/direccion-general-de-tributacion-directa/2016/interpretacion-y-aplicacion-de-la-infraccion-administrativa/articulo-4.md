@@ -1,0 +1,1 @@
+Artículo 4.- Consumación de las conductas tipificadas como infracción por resistencia a las actuaciones administrativas de control. Se estima consumada la infracción contenida en el artículo 82 del Código Tributario cuando el sujeto pasivo incurra en cualquiera de las conductas descritas en el apartado anterior.
