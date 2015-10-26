@@ -1,0 +1,1 @@
+Artículo 4º—Corresponde, al superior jerárquico del funcionario que incurre en el gasto otorgar la autorización y aprobación del gasto de representación, lo cual puede ser de previo o en la liquidación respectiva. Se exceptúa de lo anterior los gastos de representación del Presidente, que no requieren ulterior autorización y aprobación.

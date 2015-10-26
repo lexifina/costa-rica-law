@@ -1,0 +1,1 @@
+Artículo 8º—Los gastos de representación en el exterior no podrán dedicarse a la atención de funcionarios, representantes o personeros del gobierno de la República de Costa Rica o de algún ente público costarricense, cualquiera que sea su cargo, rango o nacionalidad.
