@@ -1,2 +1,0 @@
-Artículo 23.—Transitorio único: el proceso de inversión que se estuviere ejecutando al amparo de norma anterior vigente a la entrada en vigencia de la presente modificación del Reglamento concluirá a la luz de la normativa original y a su vencimiento o renovación se ajustará a los preceptos normativos del presente Reglamento.
-Reglamento aprobado por el Consejo Directivo del Instituto Mixto de Ayuda Social, acta Nº 015-09, acuerdo Nº 083.09, artículo tercero, del 2 de marzo del 2009.

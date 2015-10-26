@@ -1,1 +1,0 @@
-Artículo 11.—Deberes y atribuciones del Titular Subordinado de Presupuesto: realizar las conciliaciones de las cuentas presupuestarias. Para ello, debe llevar el control de las inversiones transitorias, vencimiento y rendimientos generados. Verificar que el centro gestor y la posición presupuestaria sean correctos.

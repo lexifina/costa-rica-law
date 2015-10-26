@@ -1,1 +1,0 @@
-Artículo 22.—De la vigencia: el presente Reglamento entrará en vigencia una vez publicado en el Diario Oficial La Gaceta, previa aprobación del Consejo Directivo y derogará toda norma igual o inferior que se le oponga.

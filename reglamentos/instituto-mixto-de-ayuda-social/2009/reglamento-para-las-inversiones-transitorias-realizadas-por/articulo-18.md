@@ -1,1 +1,0 @@
-Artículo 18.—De los plazos definidos para invertir: las inversiones deben realizarse a menos de un año plazo, no requiriendo presupuestarse. Si la inversión supera el año plazo, se requiere instrucción expresa de el (la) Gerente General autorizándola y debe presupuestarse.

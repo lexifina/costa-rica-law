@@ -1,1 +1,0 @@
-Artículo 17.—De los montos a invertir: los montos a invertir serán propuestos por el Titular Subordinado de la Unidad de Tesorería y estarán sujetos a la liquidez institucional que refleje el flujo de caja al momento de la propuesta y deben ajustarse al Plan Anual de Inversiones que haya sido debidamente aprobado.

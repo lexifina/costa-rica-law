@@ -1,1 +1,0 @@
-Artículo 12.—Deberes y atribuciones de los funcionarios autorizados a firmar en las cuentas corrientes de Oficinas Centrales: les corresponde autorizar la solicitud a la Tesorería Nacional, de adquisición de valores y la solicitud de transferencia a favor del Fondo General de Gobierno, de acuerdo con las instrucciones de la Gerencia General

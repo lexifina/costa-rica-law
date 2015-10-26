@@ -1,1 +1,0 @@
-Artículo 19.—Del registro contable de los rendimientos: los intereses deben registrarse en el período que corresponde, independientemente de la fecha de vencimiento de los mismos, efectuando si es del caso, los ajustes que se requieran al cierre del período contable, para presentar la situación real de esas transacciones, en los respectivos estados financieros institucionales.
