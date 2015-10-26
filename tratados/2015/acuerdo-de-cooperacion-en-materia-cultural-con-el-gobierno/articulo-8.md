@@ -1,0 +1,3 @@
+Artículo 8
+Cada Parte se hará cargo de los costos de viaje de su delegación al otro país, mientras que el país anfitrión se hará cargo del alojamiento, transporte y atención médica de emergencia, según las regulaciones efectivas en la materia.
+La Parte delegada se hará cargo de los costos de flete internacional de sus obras artísticas, libros y otros requerimientos técnicos de las actividades culturales. También se hará cargo de los costos de transporte de sus obras artísticas y de herencia, al igual que los costos del flete terrestre y arreglos de la seguridad de dichos materiales y obras durante el periodo de la exhibición.
