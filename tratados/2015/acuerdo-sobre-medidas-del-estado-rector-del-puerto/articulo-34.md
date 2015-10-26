@@ -1,0 +1,4 @@
+Artículo 34
+Anexos
+1. Los Anexos del presente Acuerdo forman parte integrante del mismo y toda referencia al Acuerdo remitirá igualmente a los Anexos.
+2. Una enmienda a un Anexo del presente Acuerdo podrá ser adoptada por dos tercios de las Partes en el Acuerdo que estén presentes en la reunión en la que se examine la propuesta de enmienda del Anexo en cuestión. Sin embargo, se hará todo lo posible por llegar a un acuerdo por consenso sobre toda enmienda a un Anexo. La enmienda al Anexo se incorporará al presente Acuerdo y entrará en vigor para las Partes que hayan notificado su aceptación a contar de la fecha en que el Depositario reciba la notificación de aceptación por un tercio de las Partes en este Acuerdo, en función del número de las Partes en la fecha de adopción de la enmienda. La enmienda entrará posteriormente en vigor para las demás Partes cuando el Depositario reciba su aceptación.
