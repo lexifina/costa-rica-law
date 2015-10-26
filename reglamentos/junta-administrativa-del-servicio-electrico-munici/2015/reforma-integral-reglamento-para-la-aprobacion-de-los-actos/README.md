@@ -14,3 +14,4 @@ Reforma Integral Reglamento para la aprobación de los actos de adjudicación de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-18 | la propia norma |
+| 2 | 2015-10-26 | Reglamento 5025 (2015-10-26) |
