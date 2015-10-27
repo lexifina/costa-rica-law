@@ -1,0 +1,1 @@
+Artículo 2º—Reforma al artículo 19. Refórmese parcialmente el artículo 19 del Plan Nacional de Atribución de Frecuencias, Decreto Ejecutivo Nº 35257-MINAET y sus reformas, publicado en el Diario Oficial La Gaceta N° 103 del 29 de mayo del 2009, para que se elimine la nota nacional CR 040.
