@@ -27,4 +27,5 @@ De conformidad con lo dispuesto en el artículo 43 del Código Municipal, las mu
 “PROYECTO DE REGLAMENTO AL ARTÍCULO 62 DEL CÓDIGO MUNICIPAL PARA OTORGAR DONACIONES Y AYUDAS PARA REPARACIONES DE VIVIENDAS REPORTADAS A VECINOS DEL CANTÓN CON OCASIÓN
 DE LA EMERGENCIA NACIONAL DECLARADA
 POR DECRETO 37305-MP.”
-Artículo 1°—Se procede a reglamentar lo referente a donaciones y ayudas para reparaciones de viviendas e infraestructuras reportadas en la Emergencia Nacional declarada por Decreto 37305-MP, conforme lo establece la Constitución Política artículos 169 y 170, el artículo 4 inciso a), 13 inciso c), 43, 62 párrafo primero y final del Código Municipal que se regirá por las siguientes disposiciones.
+Artículo 1°—Se procede a reglamentar lo referente a donaciones y ayudas para reparaciones y reconstrucciones de viviendas reportadas en la Emergencia Nacional declarada por Decreto Nº 37305- MP, conforme lo establece la Constitución Política artículos 169 y 170, el artículo 4º inciso a), 13 inciso c), 43, 62 párrafo primero y final del Código Municipal que se regirá por las siguientes disposiciones.
+(Así reformado en sesión N° 283 del 27 de octubre de 2015)
