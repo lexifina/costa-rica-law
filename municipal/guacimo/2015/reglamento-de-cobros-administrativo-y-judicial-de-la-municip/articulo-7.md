@@ -1,0 +1,1 @@
+Artículo 7°: Toda oposición al proyecto tarifario deberá ser presentada en forma escrita ante la Secretaría del Concejo Municipal, quien las trasladará a la Comisión de Asuntos Hacendarios, para el respectivo dictamen y posterior conocimiento del Concejo Municipal.
