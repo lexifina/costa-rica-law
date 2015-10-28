@@ -14,3 +14,4 @@ Reglamento de Adquisición de Obras de Arte por parte de las Instituciones Estat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-05-17 | la propia norma |
+| 2 | 2015-10-28 | SINALEVI (sin norma nombrada) |

@@ -1,4 +1,5 @@
 Nº 29479-C
+(Mediante resolución de la Sala Constitucional N° 16810 del 28 de octubre del 2015, se interpretó esta norma en el sentido que la obligación allí impuesta no aplica a la Caja Costarricense de Seguro Social en relación con los fondos y las reservas de los seguros sociales según el artículo 73 de la Constitución Política)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE CULTURA, JUVENTUD Y DEPORTES
 Con fundamento en el artículo 25.1 de la Ley General de la Administración Pública, la Ley Nº 6091 del 23 de setiembre de 1977, publicada en el Alcance Nº 157 a La Gaceta Nº 209 del 4 de noviembre de 1977, la Ley Nº 6750 del 29 de abril de 1982, publicada en La Gaceta Nº 84 del 4 de mayo de 1982 y el Decreto Ejecutivo Nº 18215-C-H del 23 de junio de 1988, publicado en La Gaceta Nº 135 del 15 de julio del mismo año.
