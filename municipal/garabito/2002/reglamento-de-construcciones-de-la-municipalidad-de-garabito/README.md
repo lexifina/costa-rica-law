@@ -14,3 +14,4 @@ Reglamento de Construcciones de la Municipalidad de Garabito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-12-26 | la propia norma |
+| 2 | 2015-10-28 | Reglamento municipal 287 (2015-10-28) |
