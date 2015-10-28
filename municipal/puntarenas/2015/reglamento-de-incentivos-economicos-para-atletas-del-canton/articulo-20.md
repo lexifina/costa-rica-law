@@ -1,0 +1,2 @@
+Artículo 20.—La Comisión de Incentivos Económicos para Atletas del Cantón Central de Puntarenas podrá aprobar incentivo para cubrir gastos económicos en los que incurren los (as) atletas por concepto de la práctica de especialidad deportiva en la que están inscritos ante el Comité Cantonal de Deportes y Recreación de Puntarenas.
+Anualmente el fondo económico de la Ley N° 8461 determinará el presupuesto y los montos tope que se destinarán para este tipo de incentivos.

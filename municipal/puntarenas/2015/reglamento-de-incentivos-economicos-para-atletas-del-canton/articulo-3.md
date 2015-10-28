@@ -1,0 +1,1 @@
+Artículo 3º—El otorgamiento de los incentivos económicos quedará estipulado en este reglamento y bajo la dirección de una Comisión calificadora integrada por el Concejo Municipal de la Municipalidad de Puntarenas de conformidad con lo estipulado en este mismo reglamento.
