@@ -1,6 +1,6 @@
 # Ley de Estímulo a las Bellas Artes Costarricenses
 
-Ley N° 6750 del 1982-04-29. SINALEVI, ficha 37069: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37069&param2=39084&param3=1>.
+Ley N° 6750 del 1982-04-29. SINALEVI, ficha 37069: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=37069&param2=108312&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 4 | 1982-04-29 | Ley 6750 | 1982-04-29 |
 | 2 de 4 | 2000-09-13 | SINALEVI (3 normas) | 1982-04-29 |
+| 3 de 4 | 2015-10-28 | Sala Constitucional, resolución 16810 (2015-10-28) | 2015-10-28 |
