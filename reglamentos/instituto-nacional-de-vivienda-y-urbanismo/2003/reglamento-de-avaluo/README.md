@@ -15,3 +15,4 @@ Reglamento de Avalúo.
 | --- | --- | --- |
 | 1 | 2003-10-23 | la propia norma |
 | 2 | 2013-10-03 | Reglamento 6006 (2013-10-03) |
+| 3 | 2015-10-29 | Reglamento 6157 (2015-10-29) |

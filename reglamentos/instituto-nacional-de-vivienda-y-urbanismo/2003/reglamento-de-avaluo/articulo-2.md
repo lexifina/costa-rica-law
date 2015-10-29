@@ -1,6 +1,7 @@
 Artículo 2º—Definiciones:
 a) Vivienda de Interés Social: Aquella cuyo valor no sobrepasa el límite máximo del monto que para tales efectos haya acordado la Junta Directiva del Banco Hipotecario de la Vivienda con base en la metodología de cálculo aprobada y las variaciones en el salario mínimo.
-b) Avalúo: Es la determinación técnica del valor de un bien o derecho, referido a una moneda de curso legal y a una fecha determinada, y cuya vigencia será de seis meses, contados a partir de la fecha del acto de valoración.
+b) Avalúo: Es la determinación técnica del valor de un bien o derecho, referido a una moneda de curso legal y a una fecha determinada y cuya vigencia será de un año, contados a partir a partir de la fecha del acto de valoración, considerando para la disminución de ese periodo lo establecido en la Directriz DIVAL/183-2012 denominada Guía de Valoraciones.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 6157 del 29 de octubre del 2015)
 c) Peritaje: Es un análisis practicado por un especialista en la materia, con el fin de evaluar los factores y condiciones que determinan el estado y/o condición de un bien, en sus partes y en relación con el medio, y que contempla el potencial deterioro debido al uso o la influencia de factores externos.
 d) Profesional valuador o tasador: Ingeniero o Arquitecto que valúa y certifica el precio o valor de un bien, de acuerdo con los procedimientos técnicos normalmente aceptados.
 e) Comisión de Tasación: Comisión ad-hoc conformada por los funcionarios designados por la Gerencia General de la Institución, y que servirá como canal de comunicación entre el INVU y los profesionales contratados para los avalúos requeridos.
