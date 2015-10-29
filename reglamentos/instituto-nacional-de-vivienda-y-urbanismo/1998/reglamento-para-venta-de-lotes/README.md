@@ -16,3 +16,4 @@ Reglamento para Venta de Lotes
 | 1 | 1998-05-29 | la propia norma |
 | 2 | 1998-12-10 | Reglamento 4851 (1998-12-10) |
 | 3 | 2012-11-15 | Reglamento 5965 (2012-11-15) |
+| 4 | 2015-10-29 | Reglamento 6157 (2015-10-29) |

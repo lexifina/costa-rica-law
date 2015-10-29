@@ -1,2 +1,2 @@
-Artículo 8°—La vigencia del avalúo y la determinación del precio por medio del índice de Precios al Consumidor (IPC), será de hasta seis meses desde su emisión, por lo que superado dicho plazo deberá actualizarse.
-(Así reformado mediante sesión ordinaria N° 5965 del 15 de noviembre del 2012)
+Artículo 8°: La vigencia del avalúo será hasta de un año desde su emisión, por lo que superado dicho plazo deberá actualizarse, considerando para la disminución de ese periodo lo establecido en la Directriz DIVAL/183-2012 denominada Guía de Valoraciones Administrativas, en su sección 3.4.5 sobre la vigencia de los avalúos.
+(Así reformado mediante sesión ordinaria N° 6157 del 29 de octubre del 2015)
