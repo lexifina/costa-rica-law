@@ -1,0 +1,3 @@
+Artículo 2°—Determinación de la hora y fecha de las elecciones. Se convoca para la elección del representante propietario de I y II Ciclos de la Educación General Básica, el día viernes 13 de noviembre del 2015, a las 08:00 horas en primera convocatoria; de no conformarse el quórum, se realizará la segunda convocatoria a las 09:00 horas, con la que se dará inicio al proceso de elección con el número de electores concurrentes en ese momento.
+Para efectos de esta elección denomínese quórum la mitad más uno de representantes inscritos en el Padrón Electoral correspondiente.
+El Secretario (a) del Consejo Superior de Educación, asistirá a la jornada electoral, como observador del proceso.

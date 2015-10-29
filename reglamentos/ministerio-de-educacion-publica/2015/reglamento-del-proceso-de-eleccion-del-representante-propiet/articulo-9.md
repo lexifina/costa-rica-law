@@ -1,0 +1,2 @@
+Artículo 9°—Proceso de votación. Concluido el proceso de presentación de los candidatos, la Comisión Coordinadora procederá a informar acerca de la integración y organización de las mesas de votación, explicará de forma sucinta el mecanismo de votación, con el fin de que los electores puedan emitir el voto de forma libre y secreta.
+Para el desarrollo y organización del proceso electoral, la Comisión Coordinadora nombrará un equipo de fiscales, debidamente juramentados por la presidencia de la Comisión Coordinadora, que le auxiliarán en cada mesa de votación.

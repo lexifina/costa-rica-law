@@ -1,0 +1,2 @@
+Artículo 4°—Sobre la labor de proselitismo o promoción de las candidaturas. Se permite la labor de proselitismo a favor de un determinado candidato, pero se prohíbe cualquier acto intimidatorio o coaccionante, que de forma antijurídica, condicione el voto de un elector. Una vez que la persona se encuentra en la mesa de votación, no podrá dirigírsele ninguna acción propagandística.
+También queda absolutamente prohibida la encuesta de boca de urna, dentro del mismo recinto donde se encuentren funcionando las mesas de votación.

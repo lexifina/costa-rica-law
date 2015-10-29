@@ -1,0 +1,1 @@
+Artículo 3°—Determinación del lugar de las elecciones. La elección del representante propietario de I y II Ciclos de la Educación General Básica, se llevará a cabo en la Escuela Buenaventura Corrales (Escuela Metálica), que está ubicada en San José, avenida 5, calles 7 y 9, frente al Parque Morazán.
