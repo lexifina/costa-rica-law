@@ -1,0 +1,1 @@
+III. Tener como respuesta a los opositores que participaron en la audiencia pública realizada el 31 de agosto de 2015, lo señalado en el oficio 007-CAAHRecope-2015, que consta en el expediente OT-161-2015 y agradecer la valiosa participación de todos en este proceso.
