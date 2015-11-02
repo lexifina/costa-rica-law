@@ -1,1 +1,0 @@
-Artículo 9.—Relación laboral: La jornada laboral del Auditor General y del Subauditor Interno es de tiempo completo, siendo el plazo de nombramiento de ambos cargos por tiempo indefinido, de conformidad con los artículos 30 y 31 de la Ley General de Control Interno.

@@ -1,4 +1,0 @@
-CAPÍTULO IX
-Atención de denuncias
-Artículo 49.—Trámite para las denuncias: La Auditoria Interna recibirá aquellas denuncias que le sean dirigidas por parte de personas físicas o jurídicas, públicas o privadas y funcionarios (as) de la Institución, que serán canalizadas con base en las directrices y procedimiento que la propia Auditoria Interna establezca, de conformidad con “Lineamientos para la atención de denuncias planteadas ante la Contraloría General de la República” (L-2-2005-CO-DFOE), resolución R-CO-96-2005 del 28 de noviembre del 2005.
-Aquellas denuncias que luego del análisis correspondiente resulten de carácter general y carentes de información adecuada y concreta, insuficiente o sin importancia para fundamentar la posible comisión de un hecho anómalo, se archivarán, dejando constancia de lo actuado en relación con ellas.

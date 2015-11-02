@@ -1,2 +1,0 @@
-Artículo 2º—Planificación estratégica y operativa: El Auditor General, el Subauditor Interno y los directores de las áreas de fiscalización, ejecutarán un proceso de planificación estratégica y operativa, de la actividad de la Auditoría.
-El Auditor General velará para que se establezcan y actualicen la visión, misión, y los objetivos estratégicos, así como las políticas y lineamientos que regirán el accionar de la Auditoria Interna y para que todo en su conjunto sea congruente con la planeación estratégica y objetivos institucionales.

@@ -1,2 +1,0 @@
-Artículo 6º—Asistencia a las sesiones del Consejo Directivo: Cuando sea expresamente convocado, el Auditor General asistirá a las sesiones del Consejo Directivo en calidad de asesor, con derecho a voz pero sin voto. En su ausencia lo hará el Subauditor.
-El Auditor General podrá solicitar la asistencia a cualquier sesión en particular por asuntos específicos de su competencia o de su interés, según la normativa y criterios establecidos por la Contraloría General de la República al respecto, siempre en calidad de asesor, con derecho a voz pero sin voto.

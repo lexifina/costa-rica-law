@@ -1,1 +1,0 @@
-Artículo 56.—Derogatoria: El presente Reglamento deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna del Instituto Costarricense de Electricidad publicado en La Gaceta Nº 208 del 30 de octubre de 2007 y aquellas disposiciones internas que se le opongan.

@@ -1,4 +1,0 @@
-Transitorio 2º—Los servicios de la Auditoría Interna iniciados con anterioridad a la entrada en vigencia del presente reglamento, se regirán por el Reglamento de Organización y Funcionamiento de la Auditoría Interna del ICE que se deroga en el artículo 56 de la presente reglamentación.
-2º—El presente Reglamento empieza a regir en un plazo de tres meses, contados a partir de la fecha de su publicación en el Diario Oficial La Gaceta, para lo cual se encarga a la Auditoría Interna.
-3º—Solicitarle a la Auditoria Interna que defina y lleve a práctica, un plan de comunicación del presente Reglamento, que garantice que en el plazo previsto de tres meses para que entre en vigencia a partir de su publicación en el diario Oficial La Gaceta, se haga de conocimiento de los diferentes niveles formales de la administración activa.
-Acuerdo firme.

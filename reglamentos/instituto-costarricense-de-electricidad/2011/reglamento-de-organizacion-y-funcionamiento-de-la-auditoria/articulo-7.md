@@ -1,1 +1,0 @@
-Artículo 7º—Restricción de coadministración: El Auditor General, el Subauditor Interno y el personal de la Auditoria Interna no podrán ser empleados ni ejercer funciones en otra Unidad Administrativa en la Institución y tampoco ser miembros del Consejo Directivo, comisiones de trabajo o similares.

@@ -1,1 +1,0 @@
-Artículo 31.—Potestades de la Auditoría Interna: El Auditor General, el Subauditor Interno y los demás funcionarios de la Auditoria Interna tendrán las potestades establecidas en el artículo 33 de la Ley General de Control Interno.
