@@ -16,4 +16,7 @@ k) Velar porque la buena imagen del Ministerio no se deteriore ni se comprometa 
 l) Marcar el control de asistencia a la hora de entrada y salida, o registrar su asistencia por cualquier otro medio idóneo que se establezca.
 m) Acudir a laborar con la vestimenta adecuada en concordancia con las funciones que realiza y normas de decoro en la presentación y buenas costumbres.
 n) Guardar rigurosamente los secretos y las noticias confidenciales de las cuales tengan conocimiento por razón del trabajo que ejecutan, así como de los asuntos administrativos reservados, cuya divulgación pueda causar perjuicio al Ministerio.
+ñ) Evitar cualquier práctica que genere discriminación a la persona servidora o usuaria de la Institución, en razón de su edad, etnia, sexo, origen nacional o social, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad.
+En caso de tener conocimiento directo de que algún servidor de la institución incurrió en prácticas discriminatorias hacia otros compañeros o usuarios que acudan a las dependencias del Ministerio, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39329 del 3 de noviembre del 2015)
 o) Las demás obligaciones que en forma expresa establezca el presente Reglamento. El incumplimiento de estas obligaciones será sancionado de acuerdo con su gravedad.

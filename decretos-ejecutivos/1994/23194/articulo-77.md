@@ -1,5 +1,2 @@
-Artículo 77.—Sin perjuicio de lo establecido en otras disposiciones del Código de Trabajo y según su artículo 284 será obligación del Ministerio:
-a) Permitir a las autoridades competentes la inspección periódica de los centros de trabajo y la colocación de textos legales, avisos, carteles, y anuncios similares, referentes a salud ocupacional.
-b) Cumplir con las disposiciones legales y reglamentarias para la capacitación y adiestramiento de los trabajadores, en materia de salud ocupacional.
-c) Cumplir con las normas y disposiciones legales y reglamentarias sobre salud ocupacional; y
-d) Proporcionar el equipo y elemento de protección personal y de seguridad en el trabajo y asegurar su uso y funcionamiento.
+Artículo 77. -De la licencia por fase terminal. En caso de que la persona servidora solicite el beneficio de licencia por fase terminal otorgada por la Caja Costarricense del Seguro Social para su cónyuge, compañero(a) de hecho o compañero(a) y parientes de primer grado por consanguinidad, este Ministerio procederá a su aplicación, de conformidad con lo establecido en los artículos 1 y 7 de la Ley Beneficios para los Responsables de Pacientes en Fase Terminal, Nº 7756 y artículo 20 del Reglamento para el otorgamiento de incapacidades y licencias a los Beneficiarios del Seguro de Salud, Nº 7897.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 39329 del 3 de noviembre del 2015)

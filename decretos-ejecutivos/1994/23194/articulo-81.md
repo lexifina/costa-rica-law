@@ -1,11 +1,5 @@
-CAPITULO XIX
-De las condiciones de seguridad e higiene en el trabajo.
-Artículo 81.—Es deber del Ministerio adoptar las medidas necesarias para proteger eficazmente la vida, la salud, la integridad corporal, la moralidad de los . trabajadores, y mantener en buen estado lo relativo a:
-a) Edificaciones e instalaciones y condiciones ambientales.
-b) Operaciones y proceso de trabajo.
-c) Suministro y mantenimiento de los equipos de protección personal.
-d) Promover y mantener un alto grado de bienestar físico, mental y social para los servidores de la institución.
-e) Prevenir el acaecimiento de accidentes y enfermedades profesionales que puedan causar deterioro en la salud de los servidores por las condiciones en que laboran.
-f) Promover la capacitación de personal en materia de higiene y seguridad ocupacional.
-g) Investigar las causas de los accidentes de trabajo y formular las respectivas recomendaciones para su prevención.
-h) Planificar exámenes médicos, para los trabajadores que laboren en condiciones de mayor grado de peligrosidad.
+Artículo 81.—Todo servidor deberá acatar y cumplir, los términos de ley sobre riesgos del trabajo, su reglamento, los reglamentos de salud ocupacional que se promulguen y las recomendaciones que, en esta materia, les formulen las autoridades competentes. Serán obligaciones del servidor, además de las que señalan otras disposiciones de las leyes mencionadas, las siguientes:
+a) Someterse a los exámenes médicos que establezcan las autoridades competentes, de cuyos resultados deberá ser informado.
+b) Colaborar y asistir a los programas que procuren su capacitación, en materia de salud ocupacional.
+c) Participar en la elaboración, planificación y ejecución de los programas de salud ocupacional en los centros de trabajo; y ch) Utilizar, conservar y cuidar el equipo y elementos de protección personal y de seguridad en el trabajo que se le suministren.
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 39329 del 3 de noviembre del 2015, que lo traspasó del antiguo artículo 78 al 81)

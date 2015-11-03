@@ -1,7 +1,2 @@
-Artículo 79.—Ningún servidor debe, según lo prescribe el artículo 286 del Código de Trabajo:
-a) Impedir o entorpecer el cumplimiento de las medidas de salud ocupacional.
-b) Remover sin autorización, los resguardos y protecciones de las máquinas, útiles de trabajo e instalaciones.
-c) Alterar, dañar, destruir los equipos y elementos de protección personal, de seguridad en el trabajo o negarse a usarlos sin motivo justificado.
-ch) Alterar, dañar o destruir los avisos y advertencias sobre condiciones, sustancias, productos y lugares peligrosos.
-d) Hacer juegos o dar bromas que pongan en peligro la vida, salud e integridad personal de los compañeros de trabajo o de terceros; y
-e) Manejar, operar o hacer uso de equipo y herramientas de trabajo para los cuales no cuenta con autorización y conocimientos.
+Artículo 79.—De conformidad con lo establecido en el artículo 221 del Código de Trabajo, el Ministerio deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo profesional que le ocurra a sus trabajadores, dentro del término de ocho días hábiles contados a partir de su acaecimiento. Si el servidor no estuviera asegurado contra riesgos del trabajo, el Instituto le otorgará todas las prestaciones que le hubiesen correspondido de haber estado asegurado. El Instituto conservará el derecho de accionar contra el Ministerio, por el cobro de los gastos en que haya incurrido ante esa eventualidad. Los requisitos de la notificación deberán ajustarse a lo dispuesto por el artículo 222 del Código de Trabajo.
+(Corrida su numeración por el artículo 3° del decreto ejecutivo N° 39329 del 3 de noviembre del 2015, que lo traspasó del antiguo artículo 76 al 79)

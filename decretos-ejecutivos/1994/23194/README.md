@@ -16,3 +16,4 @@ Reglamento Autónomo de Servicio y Organización del Ministerio de Relaciones Ex
 | 1 | 1994-05-16 | la propia norma |
 | 2 | 2001-08-07 | Decreto Ejecutivo 29910 (2001-08-07) |
 | 3 | 2007-05-03 | Decreto Ejecutivo 33793 (2007-05-03) |
+| 4 | 2015-11-03 | Decreto Ejecutivo 39329 (2015-11-03) |

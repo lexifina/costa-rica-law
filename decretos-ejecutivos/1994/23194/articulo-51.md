@@ -12,8 +12,7 @@ h) Hacer uso indebido del cargo que desempeña para obtener ventajas de cualquie
 i) Hacer durante el trabajo propaganda político-electoral o contraria a las instituciones democráticas del país, o ejecutar cualquier otro acto que signifique coacción de las libertades que establece la Constitución Política.
 j) No se podrán realizar colectas rifas, ventas de objetos dentro de los locales donde prestan sus servicios y menos en horas de trabajo.
 k) Ausentarse del centro de trabajo sin causa justificada o sin permiso del superior.
-l) No cumplir con lo dispuesto en los reglamentos o circulares emitidos por el
-jerarca administrativo. Prolongar innecesariamente las entrevistas o demorar, el trámite de los asuntos a su cargo, sin causa justificada.
+l) No cumplir con lo dispuesto en los reglamentos o circulares emitidos por el jerarca administrativo. Prolongar innecesariamente las entrevistas o demorar, el trámite de los asuntos a su cargo, sin causa justificada.
 m) Ocasionar daño, destrucción o pérdida intencional comprobada de los objetos, máquinas, herramientas y demás útiles de uso bajo custodia del servidor para el normal desempeño de sus funciones.
 n) Divulgar el contenido de informes o documentos así como hacer público cualquier asunto de orden interno o privado del Ministerio.
 o) Tratar de resolver por medio de la violencia, de hecho o de palabra, las dificultades que surgan durante su trabajo o en la permanencia en las oficinas.
@@ -21,3 +20,7 @@ p) Extralimitarse en las funciones o deberes que le estén encomendadas y tomars
 q) Manejar los vehículos del Ministerio sin estar autorizados para ello o sin tener la licencia al día.
 r) La exhibición de material pornográfico en cualquier lugar de la institución utilizando el equipo de cómputo y/o los servicios de comunicación de la institución, asimismo el uso de equipo electrónico del Estado para observar o reproducir pornografía. El incurrir en el incumplimiento de esta normativa, acarrea una falta grave que será sancionada según las regulaciones vigentes.
 (Así Adicionado mediante el artículo 1° Decreto Ejecutivo N° 29910, del 7 de agosto del 2001)
+s) Utilizar en el desempeño de sus funciones, palabras, imágenes, sonidos o gestos humillantes y ofensivos que sean discriminatorios o contrarios a la dignidad humana por razones de edad, etnia, sexo, origen nacional o social, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad, en los lugares de trabajo.
+(Así adicionado el inciso s) anterior por el artículo 1° del decreto ejecutivo N° 39329 del 3 de noviembre del 2015)
+t) Realizar actos de violencia que atenten contra la moral, la libertad física y dañen o destruyan objetos o propiedades de la persona servidora de la institución sea compañero(a), subalterno(a), funcionario(a) o persona usuario(a) de los servicios de la institución por razones de edad, etnia, sexo, origen nacional o social, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad, que afecten su dignidad o integridad fisica.
+(Así adicionado el inciso t) anterior por el artículo 1° del decreto ejecutivo N° 39329 del 3 de noviembre del 2015)
