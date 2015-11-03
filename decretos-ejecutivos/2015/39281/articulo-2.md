@@ -1,0 +1,1 @@
+Artículo 2º—Se faculta a la Administración Pública Central, a las instituciones y empresas del Estado y se insta a las empresas privadas, para que dentro del marco de sus competencias y en estricto apego al ordenamiento jurídico, brinden las facilidades y cooperación económica, logística y técnica, entre otras, requeridas para la realización de esas actividades.
