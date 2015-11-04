@@ -1,0 +1,1 @@
+Artículo 34.—Cualquier daño o deterioro ocasionado por la construcción de la bóveda será reparado de inmediato por el interesado. En caso contrario el costo de la reparación será cargado a su cuenta y constituirá gravamen sobre el derecho respectivo, previo aviso.
