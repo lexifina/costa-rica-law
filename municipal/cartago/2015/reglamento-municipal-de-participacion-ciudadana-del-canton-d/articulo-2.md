@@ -1,0 +1,1 @@
+Artículo 2º—La Municipalidad de Cartago fomentará, por diversos medios, la incorporación de la sociedad civil a las instancias municipales participativas y propiciará las condiciones necesarias para su adecuada inserción, siempre en cumplimiento de la normativa vigente.

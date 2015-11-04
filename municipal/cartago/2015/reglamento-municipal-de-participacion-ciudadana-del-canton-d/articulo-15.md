@@ -1,0 +1,1 @@
+Artículo 15.—Las consultas se realizarán en los locales sedes del Concejo. Cuando el sitio de reuniones no reúna las condiciones requeridas se deberá realizar en un lugar adecuado que previamente se informará.

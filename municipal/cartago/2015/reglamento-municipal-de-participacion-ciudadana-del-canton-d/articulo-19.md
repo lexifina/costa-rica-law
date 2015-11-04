@@ -1,0 +1,1 @@
+Artículo 19.- El Concejo Municipal de Cartago promoverá la participación de personas particulares con conocimiento de la temática a tratar, en las Comisiones Especiales que conforme según lo dispuesto en el artículo 49 del Código Municipal.

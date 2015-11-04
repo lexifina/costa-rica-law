@@ -1,0 +1,2 @@
+Artículo 5º—De manera voluntaria las y los ciudadanos con intereses económicos o sociales en el cantón podrán aportar a la Secretaría, los datos que consideren pertinentes para ser incluidos en ese listado. Por ejemplo, domicilio, número de teléfono, personería jurídica, nómina de afiliados, perfil de la organización, síntesis de proyectos y actividades realizadas, en ejecución o en etapa de planeamiento, etc.
+Dicha información podrá ser suministrada a las dependencias municipales que así lo requieran para el cumplimiento de los fines de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 4º—Con el propósito de fortalecer la difusión de información entre las organizaciones cartaginesas, la Secretaría del Concejo Municipal levantará un registro de entidades ciudadanas (colectivas o individuales) del cantón, que contenga al menos la información necesaria para su convocatoria y notificación, que en el caso de los grupos incluirá persona de contacto.

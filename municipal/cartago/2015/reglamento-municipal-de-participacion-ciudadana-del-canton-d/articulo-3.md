@@ -1,0 +1,2 @@
+Artículo 3º—El presente reglamento establece los lineamientos básicos de las formas de participación de las y los munícipes, sea en forma individual o mediante organizaciones sociales constituidas de hecho o de derecho. Los procedimientos de participación aquí establecidos no limitarán en modo alguno las demás formas de consulta, presentación de solicitudes, quejas o denuncias, ya existentes o que se establezcan en el futuro.
+No se requerirá ser mayor de edad para ser parte de un proceso de participación ciudadana ante la Municipalidad de Cartago.
