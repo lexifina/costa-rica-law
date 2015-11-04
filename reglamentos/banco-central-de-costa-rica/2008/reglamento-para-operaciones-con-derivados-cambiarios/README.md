@@ -14,3 +14,4 @@ Reglamento para Operaciones con Derivados Cambiarios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-18 | la propia norma |
+| 2 | 2015-11-04 | Reglamento 5706 (2015-11-04) |
