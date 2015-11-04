@@ -15,3 +15,4 @@ Reglamento Técnico del Sistema Penitenciario
 | --- | --- | --- |
 | 1 | 2007-11-03 | la propia norma |
 | 2 | 2011-10-12 | SINALEVI (sin norma nombrada) |
+| 3 | 2015-11-04 | Decreto Ejecutivo 39418 (2015-11-04) |

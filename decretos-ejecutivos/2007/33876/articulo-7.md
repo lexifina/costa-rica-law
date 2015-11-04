@@ -1,1 +1,2 @@
-Artículo 7º—Instancias a las que se remiten las actas. El Consejo Técnico Interdisciplinario remitirá copia del acta al Director del Instituto Nacional de Criminología y las actas del Consejo Técnico Interdisciplinario se remitirán a la Dirección Técnica y de Programa. La remisión de la copia del acta del Consejo se realizara por medio electrónico en un plazo perentorio de diez días después de haber adquirido firmeza.
+Artículo 7º—Remisión de las actas. A solicitud del Instituto Nacional de Criminología, el Consejo Técnico Interdisciplinario deberá remitirle copia digital del acta por medio electrónico y en un plazo no mayor de 5 días hábiles a partir de la firmeza del acta.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

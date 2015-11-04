@@ -1,2 +1,4 @@
-Artículo 19.—Egreso por cambio de programa. Es el egreso de la persona privada de libertad de un Centro del Programa Institucional para ser trasladado a un Centro del Programa Semi Institucional. Deberá acompañarse de un informe técnico sobre el cumplimiento del Plan de Atención Técnica. También se remitirá el expediente médico.
-En el Centro receptor deberá realizarse un proceso de inducción a la persona privada de libertad, en el que se le informe sobre la ejecución del Plan de Atención Técnica en las condiciones propias del Programa.
+Artículo 19.—Egreso definitivo. Implica un proceso dirigido a preparar a la persona sentenciada para la libertad.
+De previo a autorizar el egreso definitivo la Dirección del Centro, o quien ésta designe deberá revisar el Sistema de Información de la Administración Penitenciaria a fin de comprobar que la persona privada de libertad no esté a la orden de una autoridad judicial competente o del Instituto Nacional de Criminología por otras causas.
+La Dirección del Centro, o quien ésta designe, registrará el egreso en el Sistema de Información de la Administración Penitenciaria de forma inmediata, así como la cancelación de la causa que descontaba.”
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)

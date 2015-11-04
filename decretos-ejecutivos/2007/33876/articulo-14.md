@@ -1,1 +1,2 @@
-Artículo 14.—De la comunicación y registro del ingreso. Del ingreso se comunicara en forma inmediata a la autoridad jurisdiccional o institucional según corresponda, así como registrar el mismo en el sistema de información.
+Artículo 14º—De la comunicación y registro del ingreso. Del ingreso de la persona privada de libertad se comunicara en forma inmediata a la autoridad jurisdiccional o institucional remitente según corresponda, y deberá registrarse en el Sistema de Información de la Administración Penitenciaria en un plazo máximo de 1 día hábil.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 34918 del 4 de noviembre del 2015)

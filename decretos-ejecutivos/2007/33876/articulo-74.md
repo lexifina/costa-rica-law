@@ -1,4 +1,7 @@
 CAPÍTULO II
 De los recursos
-Artículo 74.—Recursos ordinarios. La decisión administrativa de denegar la visita íntima, así como la de suspenderla, tendrá los recursos ordinarios de revocatoria ante la instancia que dictó el acto final y de apelación ante el Instituto Nacional de Criminología, en ambos casos dentro de los tres días hábiles contados a partir del día de la notificación respectiva.
-Para la resolución de ambos recursos, rige el plazo establecido en el artículo 111 del Reglamento Orgánico y Operativo de la Dirección General de Adaptación Social.
+Artículo 74.—Del ingreso a Centros Penales para la visita íntima. Deberá cumplirse con el siguiente procedimiento:
+a) Es requisito la presentación de documento de identidad, de residencia o pasaporte de la persona visitante.
+b) La Policía Penitenciaria en el puesto de entrada al Centro verificará en la lista de rol de visita íntima el nombre de la persona privada de libertad y de la persona autorizada, así como el número del documento de identificación de este último.
+c) Constatada la información anterior la persona autorizada registrará su firma y número de documento de identidad en el espacio respectivo, previo al ingreso al centro.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39418 del 4 de noviembre del 2015)
