@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Museo Nacional de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-11-05 | la propia norma |
+| 2 | 2015-11-04 | Decreto Ejecutivo 39825 (2015-11-04) |

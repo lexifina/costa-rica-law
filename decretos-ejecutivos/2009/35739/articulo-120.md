@@ -1,8 +1,9 @@
-Artículo 120.—Además de las obligaciones señaladas en el Artículo 119 y en otros artículos del presente Reglamento, el Director General, Auditor Interno, Jefes de Departamento y todos aquellos funcionarios que tengan responsabilidad de supervisión sobre personal, tendrán las siguientes obligaciones:
+Artículo 120.— Además de las obligaciones señaladas en el Artículo 119 y en otros artículos del presente Reglamento, el Director General, Auditor Interno, Jefes de Departamento y todos aquellos funcionarios que tengan responsabilidad de supervisión sobre personal, tendrán las siguientes obligaciones:
 1) Supervisar técnica y administrativamente, así como dirigir y organizar diligentemente a todos los funcionarios a su cargo.
 2) Informar a su superior inmediato con la debida regularidad, sobre la marcha de su respectiva área de competencia y en forma inmediata cuando ocurra un hecho relevante que requiera pronta solución o cuando así le sea requerido por su superior inmediato.
 3) Supervisar el desempeño y las actuaciones de los funcionarios bajo su cargo, velando por su correcta disciplina, responsabilidad y asistencia; informando a su superior por escrito y de forma inmediata, las irregularidades que se presenten.
-4) Mantener en el lugar de la prestación de servicios condiciones de respeto para quienes ahí permanezcan y tomar las medidas necesarias para prevenir, evitar y denunciar las conductas de acoso u hostigamiento sexual o moral.
+4) Mantener en el lugar de la prestación de servicios condiciones de respeto para quienes ahí permanezcan y tomar las medidas necesarias para prevenir, evitar y denunciar las conductas de acoso u hostigamiento sexual o moral en los términos de los artículos 44 y 46 del presente Reglamento.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39825 del 4 de noviembre de 2015)
 5) Tratar con absoluto respeto al personal a su cargo.
 6) Dictar y/o aplicar las disposiciones internas en beneficio de la buena marcha de la unidad, oficina, departamento o dirección a su cargo, con la aprobación previa del jefe inmediato.
 7) Evaluar en forma objetiva y dentro del plazo establecido para esos efectos, al personal a su cargo, mediante el instrumento oficial de “Evaluación del Desempeño”.
