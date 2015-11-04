@@ -1,0 +1,1 @@
+Artículo 63.—Servidores autorizados. El gerente de BCR Valores S. A., o quien lo sustituya formalmente, queda facultado para autorizar la realización de tales gastos de acuerdo con las atribuciones establecidas en el artículo 8 de este reglamento.

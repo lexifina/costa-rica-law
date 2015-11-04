@@ -1,0 +1,1 @@
+Artículo 61.—Registro de sanciones a particulares. BCR Valores S. A. debe elaborar y mantener actualizado un registro de sanciones a particulares, a fin que permita a BCR Valores S. A. acceder a la información y evitar la contratación con proveedores inhabilitados.
