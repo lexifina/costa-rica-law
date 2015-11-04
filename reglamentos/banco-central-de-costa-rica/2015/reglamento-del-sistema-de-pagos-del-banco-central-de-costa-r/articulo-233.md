@@ -1,0 +1,1 @@
+Artículo 233. Autenticidad. Cualquier persona física o jurídica que identifique numerario de dudosa autenticidad, deberá remitirlo al BCCR para su respectivo análisis, siguiendo el procedimiento establecido en la Norma Complementaria de Numerario.

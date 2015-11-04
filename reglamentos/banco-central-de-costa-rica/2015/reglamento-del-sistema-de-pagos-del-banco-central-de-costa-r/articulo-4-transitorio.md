@@ -1,0 +1,6 @@
+TRANSITORIO IV. Entrada en vigencia.
+a) Las modificaciones a la estructura de tarifas y comisiones rigen a partir del mes siguiente a la entrada en vigencia del presente reglamento.
+b) La obligatoriedad de comunicar a los clientes sobre cualquier movimiento de fondos efectuado sobre su cuenta rige a más tardar seis meses posterior a la entrada en vigencia de este reglamento.
+c) Estándar IBAN: Al 31 de diciembre del 2016, las entidades deberán sustituir el estándar de la Cuenta Cliente por el estándar IBAN; fecha a partir de la cual desaparecerá el concepto de la Cuenta Cliente. Al 31 de diciembre del 2018 los números de cuenta bancaria que se han venido utilizando al interior de las entidades financieras deberán ser sustituidos por el IBAN. Las entidades deberán mantener la asociación del estándar de cuenta cliente a estos productos financieros hasta que se les asocie el estándar de cuenta IBAN.
+d) Las diferentes funcionalidades a que se refiere el Libro de Firma Digital se pondrán en vigencia conforme a la secuencia de implementación que defina la División de Sistemas de Pago.
+e) Los participantes podrán iniciar con la apertura de CES a partir de la entrada en vigencia del Reglamento del Sistema de Pagos, debiendo registrar dichas cuentas en el Padrón de Cuentas una vez que éste entre en operación.

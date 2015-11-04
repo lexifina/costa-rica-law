@@ -1,0 +1,1 @@
+Artículo 354. Formalidades de las OR. Los asociados que deseen fungir como OR para la gestión de certificados de persona física deben formalizar su relación con la Autoridad Certificadora del SINPE y cumplir con las formalidades, funciones y responsabilidades establecidas en el presente reglamento y las normas complementarias del servicio.

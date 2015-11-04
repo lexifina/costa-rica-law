@@ -1,0 +1,1 @@
+Artículo 412. Interoperabilidad. Las empresas internacionales o locales propietarias de las marcas de medios de pago deberán permitir a cualquier entidad financiera nacional, siempre que cumpla con los requisitos y estándares técnicos definidos, actuar como adquirente de dicha marca en el mercado local, a fin de lograr la interoperabilidad y eficiencia de este sistema.

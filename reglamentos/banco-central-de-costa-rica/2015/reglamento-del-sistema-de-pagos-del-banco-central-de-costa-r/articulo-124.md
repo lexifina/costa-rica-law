@@ -1,0 +1,1 @@
+Artículo 124. Autorización de uso de un canal no autenticado. El cliente deberá autorizar el monto diario máximo acumulado que está dispuesto a movilizar a través de un canal no autenticado. El participante deberá habilitar en el servicio las funcionalidades necesarias para que el cliente emita dicha autorización y defina el monto por medio de un canal autenticado.

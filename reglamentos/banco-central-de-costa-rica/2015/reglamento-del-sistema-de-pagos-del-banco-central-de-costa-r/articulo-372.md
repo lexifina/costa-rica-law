@@ -1,0 +1,1 @@
+Artículo 372. Prenotificación en el SINPE. La entidad origen deberá enviar por medio del servicio ADA, una prenotificación con la información de las domiciliaciones recibidas de sus clientes. El envío de la prenotificación lo deberá hacer a la entidad destino, a más tardar el día hábil siguiente de haber recibido la domiciliación de su cliente.

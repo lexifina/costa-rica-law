@@ -1,0 +1,1 @@
+Artículo 297. Suspensión del crédito intradiario. El BCCR podrá suspender la facilidad de crédito intradiario cuando por razones de política monetaria considere necesaria la medida. También podrá retirar la facilidad a la entidad que se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme con lo dispuesto en el artículo 136 de la Ley 7558.

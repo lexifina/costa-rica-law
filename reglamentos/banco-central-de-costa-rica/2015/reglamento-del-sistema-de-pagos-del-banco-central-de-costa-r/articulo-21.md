@@ -1,0 +1,1 @@
+Artículo 21. Puesta en operación de nuevos servicios y funcionalidades. La División de Sistemas de Pago del BCCR será la responsable de determinar y comunicar oportunamente a los asociados la fecha de puesta en operación de los nuevos servicios y funcionalidades que se incorporen con cada nueva versión del Reglamento de Sistema de Pagos.

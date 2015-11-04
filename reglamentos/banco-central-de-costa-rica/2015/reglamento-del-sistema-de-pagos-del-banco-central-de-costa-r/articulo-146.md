@@ -1,0 +1,1 @@
+Artículo 146. Cierre de cuentas por inactividad. El BCCR procederá con el cierre de cuentas cuando hayan permanecido sin saldo e inactivas por más de 6 meses contados a partir de la última transacción.

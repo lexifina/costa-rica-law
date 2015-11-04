@@ -1,0 +1,1 @@
+Artículo 147. Efectos de la suspensión. La suspensión de una cuenta de valores impide movimientos que implican la salida de valores desde el momento en que la misma es ordenada, pero no impide movimientos de entrada de valores, ni la liquidación de vencimientos de los valores que se encuentren depositados en la cuenta suspendida.

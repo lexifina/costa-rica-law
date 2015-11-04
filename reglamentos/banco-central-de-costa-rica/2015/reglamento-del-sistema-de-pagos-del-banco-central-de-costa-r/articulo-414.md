@@ -1,0 +1,1 @@
+Artículo 414. Suministro de información. Las entidades emisoras y adquirentes de tarjetas de pago bancarias, en concordancia con lo establecido en la Ley 7839 del Sistema de Estadística Nacional, deberán suministrar la información transaccional que se les solicite sobre las tarjetas de pago.

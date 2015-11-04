@@ -1,0 +1,1 @@
+Artículo 240. Otros usos del numerario. El uso del numerario o su representación gráfica para fines publicitarios u otros fines no monetarios, deberá ajustarse a lo establecido en la Norma Complementaria de Numerario.

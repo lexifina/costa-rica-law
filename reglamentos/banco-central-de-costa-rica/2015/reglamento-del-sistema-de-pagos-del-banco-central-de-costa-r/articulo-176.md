@@ -1,0 +1,1 @@
+Artículo 176. Consultas de los participantes. Los participantes podrán consultar en el servicio la información de los archivos de la liquidación de mercados, la generación y liquidación de vencimientos, la devolución de impuestos retenidos y el detalle de los archivos correspondientes al cambio de la representación de valores físicos por anotados en cuenta.

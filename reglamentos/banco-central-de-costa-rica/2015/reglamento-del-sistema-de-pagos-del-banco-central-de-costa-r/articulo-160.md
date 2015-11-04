@@ -1,0 +1,1 @@
+Artículo 160. Horario de funcionamiento. El servicio Registro de Emisiones estará disponible para la administración de las emisiones durante el horario bancario, y a modo de consulta durante el horario de operación.

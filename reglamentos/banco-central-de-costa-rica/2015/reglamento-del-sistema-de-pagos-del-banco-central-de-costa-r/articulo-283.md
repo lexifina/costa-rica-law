@@ -1,0 +1,1 @@
+Artículo 283. Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para las entidades financieras, los asociados podrán aportar garantías adicionales para respaldar las obligaciones financieras que decidan asumir con su participación en los mercados de negociación organizados a través del SINPE.

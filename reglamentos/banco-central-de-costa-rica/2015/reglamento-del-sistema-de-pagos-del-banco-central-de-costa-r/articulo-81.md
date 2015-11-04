@@ -1,0 +1,1 @@
+Artículo 81. Débitos a tarjeta de crédito. Las entidades podrán habilitar a través del servicio DTR el cobro a una tarjeta de crédito, en cuyo caso, la entidad destino podrá cobrar al cliente destino una comisión por dicha transacción.

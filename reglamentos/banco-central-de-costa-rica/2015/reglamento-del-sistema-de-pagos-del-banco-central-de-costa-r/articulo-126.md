@@ -1,0 +1,1 @@
+Artículo 126. Condición de uso del servicio. Los clientes deberán asociar al menos un número de teléfono móvil a su cuenta IBAN; este número no puede ser asociado a ninguna otra cuenta IBAN en todo el sistema.

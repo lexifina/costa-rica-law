@@ -1,0 +1,1 @@
+Artículo 322. Obligatoriedad de la capacitación. La capacitación del BCCR es obligatoria para los usuarios de los servicios del SINPE. Cuando los candidatos no ostenten la condición de usuario, la capacitación se le impartirá sólo a quienes hayan sido propuestos por los propios asociados.

@@ -1,0 +1,1 @@
+Artículo 307. Condiciones para la ejecución. Con la ejecución de garantías, los valores no podrán ser negociados a través de un intermediario bursátil que mantenga relaciones de propiedad con las contrapartes involucradas en la operación incumplida.

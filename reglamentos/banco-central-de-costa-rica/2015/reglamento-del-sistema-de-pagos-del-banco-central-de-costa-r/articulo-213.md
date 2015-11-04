@@ -1,0 +1,1 @@
+Artículo 213. Información en normas complementarias. Las normas complementarias del servicio establecerán el monto mínimo y los múltiplos de las ofertas, así como las demás condiciones necesarias para facilitar los procesos de negociación.

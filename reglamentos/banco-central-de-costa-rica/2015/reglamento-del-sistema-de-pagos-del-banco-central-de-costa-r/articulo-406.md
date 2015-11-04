@@ -1,0 +1,1 @@
+Artículo 406. Tarjetas prepago para el transporte público. Los emisores podrán emitir tarjetas prepago anónimas para uso exclusivo de pago en el transporte público remunerado de personas. Dichas tarjetas deben tener asociado el estándar del IBAN.

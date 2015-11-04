@@ -1,0 +1,1 @@
+Artículo 455. Incumplimiento de disposiciones. La entidad que incumpla con las disposiciones establecidas en el esquema de tarifas y comisiones, no recibirá el pago de las comisiones que tenga a su favor durante el mes en que se dio el incumplimiento. Además, el BCCR informará del incumplimiento a los consumidores de los servicios financieros.

@@ -1,0 +1,1 @@
+Artículo 306. Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, de acuerdo con lo establecido en la norma complementaria del servicio, de modo que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.

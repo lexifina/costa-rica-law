@@ -1,0 +1,3 @@
+CAPÍTULO VI
+DE LA CUENTA IBAN
+Artículo 22. Establecimiento y uso del estándar IBAN. Las entidades financieras deberán asociar el código estándar internacional IBAN para identificar de forma única a todas las cuentas de fondos, tarjetas de crédito y operaciones crediticias que administren de sus clientes. Dicho estándar también podrá ser asociado a cualquier otro producto financiero o servicio capaz de generar transacciones de movilización de fondos de sus clientes. El IBAN deberá ser utilizado para las transacciones que realicen los clientes en una operativa tanto a nivel intrabancario como interbancario o, en transacciones nacionales o internacionales.

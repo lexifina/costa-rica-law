@@ -1,0 +1,1 @@
+Artículo 30. Responsabilidad por plazos de acreditación. La entidad origen será responsable frente a su cliente por el tiempo que consuman los trámites previos al ingreso de la transacción al SINPE. La obligatoriedad de la entidad destino en el cumplimiento de la acreditación al cliente rige desde el momento en que el SINPE recibe la transacción.

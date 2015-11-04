@@ -1,0 +1,2 @@
+Artículo 373. Domiciliación directa. El cliente destino podrá presentar la solicitud de domiciliación directamente a la entidad destino, en cuyo caso deberá realizar las gestiones necesarias ante el cliente origen para que este, a su vez, por medio de la entidad origen pueda ordenar débitos automáticos con base en dicha domiciliación.
+Con el trámite de la domiciliación directa, la entidad destino deberá entregar al cliente destino la información que este requiera para atender las gestiones que le corresponde realizar ante el cliente origen.

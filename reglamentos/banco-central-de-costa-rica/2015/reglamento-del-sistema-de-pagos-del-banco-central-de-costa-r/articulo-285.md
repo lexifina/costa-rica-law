@@ -1,0 +1,1 @@
+Artículo 285. Plazo para la restitución. Siempre que el BCCR solicite una restitución de garantía para cumplir con lo dispuesto en el presente libro, el asociado deberá rendir las garantías respectivas a más tardar a las 11:00 a.m. del día hábil siguiente al día en que el BCCR realiza la solicitud.

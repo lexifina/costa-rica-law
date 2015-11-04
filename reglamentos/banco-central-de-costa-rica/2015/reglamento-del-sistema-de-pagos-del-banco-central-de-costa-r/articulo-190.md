@@ -1,0 +1,1 @@
+Artículo 190. Suspensión de la participación. Cuando las actuaciones de algún inversionista no se ajusten a las sanas prácticas del mercado, el BCCR podrá suspender su participación en el servicio, debiendo notificar de inmediato a la SUGEVAL sobre la suspensión decretada y las causas que la justifican.

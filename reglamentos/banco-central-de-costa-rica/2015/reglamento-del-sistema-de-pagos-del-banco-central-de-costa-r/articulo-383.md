@@ -1,0 +1,1 @@
+Artículo 383. Confidencialidad de la identidad de terceros. Cada participante deberá manejar confidencialmente, la identidad de las personas inmersas en los reportes que brinda el servicio, con el propósito de no obstaculizar posibles investigaciones.

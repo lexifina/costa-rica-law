@@ -1,0 +1,1 @@
+Artículo 312. Medidas para enfrentar exclusiones. Para enfrentar situaciones que ameriten la exclusión de un asociado de un multilateral neto, así como cualquier otro problema similar que se llegue a presentar con la liquidación, los sistemas de información de los asociados deberán estar preparados para reversar las transacciones de la entidad que resulte excluida.

@@ -1,0 +1,1 @@
+Artículo 290. Funciones del BCCR. El BCCR deberá administrar con diligencia los valores traspasados por los asociados a la cuenta de garantía, exigir las reposiciones de garantía cuando así se requiera y gestionar la ejecución de los valores en garantía en caso de incumplimiento por parte de algún asociado, a efectos de liquidar al acreedor el monto incumplido.

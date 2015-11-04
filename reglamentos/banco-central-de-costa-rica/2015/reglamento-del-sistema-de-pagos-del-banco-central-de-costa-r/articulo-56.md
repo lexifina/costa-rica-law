@@ -1,0 +1,1 @@
+Artículo 56. Inembargabilidad de las cuentas. Las cuentas de fondos mantenidas por los asociados en el BCCR, de conformidad con lo establecido en la Ley 8876 Tratado sobre Sistemas de Pago y de Liquidación de Valores de Centroamérica y República Dominicana, son inembargables.

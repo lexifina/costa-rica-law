@@ -1,0 +1,1 @@
+Artículo 155. Responsabilidades civiles. Las omisiones de registro, las inexactitudes y los retrasos de las inscripciones que ocurran entre los registros del participante y el registro central administrado por el BCCR, producirán repercusiones civiles sobre la entidad responsable del problema, conforme con lo dispuesto en la Ley 7732.

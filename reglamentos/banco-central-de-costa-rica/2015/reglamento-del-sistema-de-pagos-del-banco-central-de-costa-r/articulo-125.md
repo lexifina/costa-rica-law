@@ -1,0 +1,1 @@
+Artículo 125. Tipo de transacciones habilitadas. SINPE Móvil provee a los clientes funcionalidades para realizar pagos móviles, definidos éstos pagos como movimientos de fondos que se aplican sobre la cuenta del cliente destino, utilizando como identificador de la cuenta un número de teléfono móvil.

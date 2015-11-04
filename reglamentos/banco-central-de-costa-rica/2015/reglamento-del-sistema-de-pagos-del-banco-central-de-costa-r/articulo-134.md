@@ -1,0 +1,1 @@
+Artículo 134. Registro de teléfonos móviles. Los participantes deberán registrar ante el BCCR, los números de teléfono móvil de los clientes a los cuales les active el servicio SINPE Móvil, previo a que sean habilitados para realizar transacciones interbancarias por medio del servicio y; de conformidad con lo dispuesto en la norma complementaria del servicio.

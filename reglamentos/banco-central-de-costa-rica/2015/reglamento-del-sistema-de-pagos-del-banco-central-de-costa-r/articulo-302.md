@@ -1,0 +1,1 @@
+Artículo 302. Criterio de días al vencimiento para la ejecución. En caso de ejecución de valores, se ejecutarán primero las que a la fecha de liquidación tengan la menor cantidad de días al vencimiento.

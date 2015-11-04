@@ -1,0 +1,1 @@
+Artículo 64. Participación mínima. El mercado organizado o la operativa de pago respectiva que solicite al BCCR la liquidación de sus operaciones sobre las cuentas de fondos de las entidades en el BCCR deberá contar con la participación de al menos dos entidades financieras con cuenta de fondos en el BCCR.

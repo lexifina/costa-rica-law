@@ -1,0 +1,1 @@
+Artículo 225. Calce de ofertas. Las ofertas de compra o de venta de divisas que realicen los participantes en el Monex, estarán sujetas a aceptación automática bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse la aceptación parcial de ofertas.

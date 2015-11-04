@@ -1,0 +1,1 @@
+Artículo 157. Consultas del estado de cuenta. El BCCR deberá poner facilidades de consulta a disposición de los participantes, para que puedan acceder directamente a la información de su estado de cuenta.

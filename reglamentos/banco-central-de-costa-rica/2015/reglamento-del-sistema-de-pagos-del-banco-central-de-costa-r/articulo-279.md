@@ -1,0 +1,1 @@
+Artículo 279. Adhesión a las disposiciones sobre garantías. Los asociados obligados a cumplir con los requerimientos de garantía establecidos por el presente libro deberán adherirse a las condiciones que el BCCR establezca con el administrador de las garantías, así como sujetar sus aportes de garantía a dichas condiciones.

@@ -1,0 +1,1 @@
+Artículo 295. Naturaleza del crédito intradiario. El crédito intradiario será otorgado en forma automática por el BCCR con el fin de inyectarle liquidez inmediata a la entidad financiera que, por una insuficiencia de fondos en su cuenta, no pueda cubrir los débitos presentados a su cargo por los demás asociados.

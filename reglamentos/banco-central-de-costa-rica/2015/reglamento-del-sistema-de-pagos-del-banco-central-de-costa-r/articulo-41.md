@@ -1,0 +1,1 @@
+Artículo 41. Comunicación de incumplimientos. El incumplimiento por parte de un asociado o representado de las regulaciones establecidas en el presente Reglamento y sus normas complementarias, podrá ser comunicado por el BCCR al ente supervisor que corresponda para que realice la investigación pertinente, con copia a la gerencia general de la entidad involucrada.

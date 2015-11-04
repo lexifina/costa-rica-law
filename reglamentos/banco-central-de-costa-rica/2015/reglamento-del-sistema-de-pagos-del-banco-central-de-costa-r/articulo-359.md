@@ -1,0 +1,1 @@
+Artículo 359. Información de contacto. Para obtener certificados digitales de persona jurídica, sin detrimento de otra información requerida por la CA SINPE – Persona Jurídica, el Tramitador debe registrar información de contacto por medios electrónicos.

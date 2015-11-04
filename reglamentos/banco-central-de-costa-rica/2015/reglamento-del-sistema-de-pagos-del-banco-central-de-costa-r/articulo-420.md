@@ -1,0 +1,1 @@
+Artículo 420. Alcance del reclamo de créditos no aplicados. La reclamación por créditos no aplicados se limita a una solicitud de información efectuada por la entidad origen, por lo que no implica para la entidad destino del reclamo ningún movimiento de dinero sobre su cuenta de fondos.

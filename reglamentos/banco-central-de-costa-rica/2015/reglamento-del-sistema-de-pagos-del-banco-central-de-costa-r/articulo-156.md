@@ -1,0 +1,1 @@
+Artículo 156. Emisión de constancias. El BCCR sólo emitirá constancias de titularidad para los valores registrados en las cuentas propias de los participantes, a solicitud de ellos o de una autoridad competente.

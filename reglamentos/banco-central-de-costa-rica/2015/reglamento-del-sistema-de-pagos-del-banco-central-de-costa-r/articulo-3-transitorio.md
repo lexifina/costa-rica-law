@@ -1,0 +1,1 @@
+TRANSITORIO III. Tarifas del numerario nacional. La tarifa mínima definida para cada bolsa de billete será incrementada anualmente en 10.000,0 colones y en 5.000,0 colones anualmente para cada caja de moneda, aplicable a partir del primer día calendario de cada año.

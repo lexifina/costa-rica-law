@@ -1,0 +1,1 @@
+Artículo 154. Conciliación de cuentas de valores. Los participantes son responsables de conciliar diariamente su cuenta propia y la de sus clientes, cuando corresponda, así como de comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.

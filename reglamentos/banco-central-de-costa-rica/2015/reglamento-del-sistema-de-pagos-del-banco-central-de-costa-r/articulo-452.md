@@ -1,0 +1,1 @@
+Artículo 452. Transacciones sin costo. Como un incentivo al reemplazo del uso del efectivo, el BCCR no cobrará ninguna tarifa ni comisión interbancaria por las transacciones menores o iguales a cien mil colones, en los servicios de movilización de fondos a terceros (Transferencia a Terceros, Débito en Tiempo Real, Crédito Directo, Débito Directo y SINPE Móvil).

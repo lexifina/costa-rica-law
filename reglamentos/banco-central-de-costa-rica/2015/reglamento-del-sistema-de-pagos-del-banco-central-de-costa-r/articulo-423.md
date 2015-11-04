@@ -1,0 +1,1 @@
+Artículo 423. Presentación del reclamo. Los reclamos por servicios de crédito deben ser presentados ante la entidad origen. Los que correspondan a servicios de débito deberán realizarse ante la entidad destino.

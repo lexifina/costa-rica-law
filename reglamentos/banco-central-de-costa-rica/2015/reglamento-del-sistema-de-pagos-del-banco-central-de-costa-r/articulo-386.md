@@ -1,0 +1,2 @@
+Artículo 386. Principio registral. El funcionamiento del Padrón de Cuentas se rige por el principio de buena fe registral, por lo que el BCCR asume que la información registrada por los participantes es legítima, completa y se encuentra exenta de vicios registrales.
+Las normas complementarias del servicio establecerán las características operativas del padrón de cuentas y sus condiciones de funcionamiento.

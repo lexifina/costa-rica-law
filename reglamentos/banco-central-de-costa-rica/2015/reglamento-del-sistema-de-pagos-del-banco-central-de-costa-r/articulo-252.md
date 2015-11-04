@@ -1,0 +1,1 @@
+Artículo 252. Inspección por parte del BCCR. Las entidades participantes deberán permitir a cualquier hora el ingreso expedito de los inspectores del BCCR para que efectúen su labor de inspección en las CAN, incluyendo la verificación de las grabaciones que realiza el CCTV.

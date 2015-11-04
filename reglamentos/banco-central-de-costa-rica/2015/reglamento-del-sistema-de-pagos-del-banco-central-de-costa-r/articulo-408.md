@@ -1,0 +1,1 @@
+Artículo 408. Requerimientos para las redes de cajeros automáticos. Los procesadores de las transacciones realizadas en las redes de cajeros automáticos, deberán habilitarlas con la capacidad de aceptar el protocolo EMV.

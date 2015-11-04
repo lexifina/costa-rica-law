@@ -1,0 +1,1 @@
+Artículo 49. Fallas tecnológicas. El BCCR no asumirá responsabilidad alguna por los atrasos e inconvenientes causados por una falla tecnológica del SINPE, siempre y cuando el problema no obedezca a actuaciones dolosas o negligentes de su personal. Ante situaciones imprevistas, el BCCR activará los esquemas contingentes de que dispone el sistema.

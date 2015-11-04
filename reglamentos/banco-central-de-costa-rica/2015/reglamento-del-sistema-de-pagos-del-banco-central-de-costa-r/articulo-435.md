@@ -1,0 +1,1 @@
+Artículo 435. Confidencialidad de la información. El BCCR es responsable de administrar confidencialmente la información recibida de las entidades, acatando lo establecido en la Ley 7839 del Sistema de Estadística Nacional.

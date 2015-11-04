@@ -1,0 +1,1 @@
+Artículo 255. Contingencias fuera de horario regular en BCCR. En caso de que fuera del horario regular ocurra una contingencia, además de lo que dicta la norma complementaria, la participación del BCCR se regirá por el protocolo establecido por el Departamento de Tesorería para la apertura de la bóveda principal fuera de horario.

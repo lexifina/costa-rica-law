@@ -1,0 +1,1 @@
+Artículo 382. Prohibición de divulgación de la información. Los participantes no deberán divulgar a terceros, el hecho de que se haya recopilado información por medio de este servicio, sea por iniciativa propia o por requerimiento de alguna autoridad, según lo estipulado en la Ley 8204 y su normativa conexa.

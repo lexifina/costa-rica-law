@@ -1,0 +1,1 @@
+Artículo 389. Registro de otras cuentas. Los participantes podrán registrar en el padrón cuentas de fondos distintas de las CES, por decisión propia o porque su titular o la Superintendencia General de Entidades Financieras así se los requiera. En estos casos, deberán cumplir con los requerimientos de información del artículo precedente.

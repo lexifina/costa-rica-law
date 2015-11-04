@@ -1,0 +1,1 @@
+Artículo 347. Del uso de certificados digitales. El SINPE utilizará para su operación los certificados digitales emitidos por la Autoridad Certificadora del SINPE, por lo que será responsabilidad de los asociados mantener actualizados los certificados digitales que requieran para la operación de los servicios.

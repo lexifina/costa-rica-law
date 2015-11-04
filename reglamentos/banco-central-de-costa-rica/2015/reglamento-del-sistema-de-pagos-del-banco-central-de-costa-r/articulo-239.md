@@ -1,0 +1,1 @@
+Artículo 239. Canje de numerario. Las entidades financieras a las que el BCCR entregue numerario nuevo o les reciba deteriorado, deben ofrecer el servicio de canje de numerario al público; ya sea de deteriorado por circulable, de billete por moneda o viceversa. Para tal efecto, podrán cobrar una comisión por la prestación de este servicio.

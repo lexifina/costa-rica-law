@@ -1,0 +1,1 @@
+Artículo 215. Anulación de ofertas no calzadas. Las ofertas que no hayan sido calzadas al cierre de la ventana de negociación del servicio serán anuladas, procediendo el SIL a liberar los fondos retenidos y el monto comprometido para la garantía, cuando así corresponda.

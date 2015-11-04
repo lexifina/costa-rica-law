@@ -1,0 +1,1 @@
+Artículo 208. Condiciones de las operaciones. Las operaciones diferidas de liquidez podrán negociarse con o sin garantía, siempre a conveniencia de las contrapartes. Las negociaciones se realizan por rendimiento.

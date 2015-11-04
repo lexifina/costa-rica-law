@@ -1,0 +1,1 @@
+Artículo 170. Conciliación de cuentas. El emisor, o su representante, es responsable de conciliar diariamente sus emisiones, debiendo comunicar por escrito al BCCR cualquier inconsistencia a más tardar al día hábil siguiente.

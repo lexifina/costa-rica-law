@@ -1,0 +1,1 @@
+Artículo 131. Pago de comisiones a cargo de los clientes. Será potestad del participante establecer el cobro de una comisión al cliente cuando con sus transacciones supere las sumas acumuladas que se definen en el artículo precedente. Como criterio de cobro de las comisiones, el participante decidirá si los excedentes los contabiliza por número de cuenta IBAN o por cliente.

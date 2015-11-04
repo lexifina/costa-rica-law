@@ -1,0 +1,2 @@
+Artículo 7. Cumplimiento del marco regulatorio. Con su participación en el SINPE, los asociados y representadas deben sujetarse a las disposiciones establecidas en el presente Reglamento y cumplir con los lineamientos y acuerdos definidos en los libros de la Serie de Normas y Procedimientos.
+Es responsabilidad del asociado y del representado conocer las disposiciones del marco normativo, disponible en línea a través del SINPE.

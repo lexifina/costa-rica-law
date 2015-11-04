@@ -1,0 +1,1 @@
+TRANSITORIO II. Tarifas de cheques. La tarifa definida para cada cheque será incrementada anualmente en 250 colones tanto a la entidad origen como a la entidad destino, aplicable a partir del primer día calendario de cada año.

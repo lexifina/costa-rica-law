@@ -1,0 +1,1 @@
+Artículo 410. Requerimientos para los adquirentes de transacciones con tarjetas de pago. Las entidades financieras y comerciales que acepten pagos con tarjetas deberán habilitar las terminales en los puntos de venta (POS por sus siglas en inglés) con la capacidad de aceptar el protocolo EMV y procesar pagos sin contacto.

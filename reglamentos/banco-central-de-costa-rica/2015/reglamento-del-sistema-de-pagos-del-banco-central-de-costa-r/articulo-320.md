@@ -1,0 +1,1 @@
+Artículo 320. Horario de funcionamiento de la SAO. La SAO funcionará en el mismo horario de operación del SINPE, debiendo el BCCR implementar los procedimientos administrativos que faciliten el ingreso de los usuarios a sus instalaciones.

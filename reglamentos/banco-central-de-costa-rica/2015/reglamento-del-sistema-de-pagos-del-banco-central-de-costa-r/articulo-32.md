@@ -1,0 +1,1 @@
+Artículo 32. Liberación anticipada de fondos. La responsabilidad por la liberación de fondos al cliente, antes de que finalicen las fases de compensación y liquidación sobre las cuentas de fondos, será por cuenta y riesgo de la entidad financiera que utilice dicha práctica.

@@ -1,0 +1,1 @@
+Artículo 172. Horario de funcionamiento. El servicio Liquidación de Mercados estará disponible para el envío de archivos durante el horario bancario, y a modo de consulta durante el horario de operación.

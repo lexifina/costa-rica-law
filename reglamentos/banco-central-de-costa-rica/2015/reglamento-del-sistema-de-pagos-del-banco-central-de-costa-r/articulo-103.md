@@ -1,0 +1,8 @@
+CAPÍTULO III
+DEL CICLO DEL SERVICIO
+Artículo 103. Ciclo de operación del servicio. El ciclo del servicio CCD se efectuará de conformidad con las siguientes etapas:
+a) Envío de pago: La entidad origen envía un archivo electrónico con la información detallada de todos los créditos por procesar, se valida que existan los fondos suficientes y se retiene sobre la cuenta de fondos, el monto respectivo. El SINPE no procesará los archivos de la entidad que no disponga en su cuenta de fondos de los recursos necesarios para cubrir el pago de los créditos enviados.
+Posterior al cierre de esta etapa, las transacciones se considerarán irrevocables y cada asociado recibirá un archivo con la información de los pagos tramitados por los demás asociados a través del SINPE, para ser acreditados en las cuentas localizadas en su entidad.
+b) Transmisión electrónica de devoluciones: La entidad destino envía un archivo electrónico con la información detallada de todos los créditos recibidos en las etapas anteriores del ciclo vigente, que resulten rechazados durante los procesos de consulta y verificación correspondientes. Posterior a la transmisión de devoluciones, se efectúa una compensación multilateral neta y cada asociado recibe un archivo electrónico con la información de los créditos rechazados por los demás asociados.
+c) Liquidación: El SIL efectúa la liquidación en firme utilizando el mecanismo de liquidación multilateral neta.
+d) Acreditación de fondos: Los asociados deben acreditar en las cuentas de sus clientes el monto de los créditos recibidos, a más tardar a las veintidós horas del primer día hábil del ciclo.

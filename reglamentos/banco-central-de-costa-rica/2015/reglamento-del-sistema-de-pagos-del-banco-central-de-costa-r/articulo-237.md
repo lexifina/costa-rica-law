@@ -1,0 +1,1 @@
+Artículo 237. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones según las necesidades reales de la economía, la División Sistemas de Pago definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.

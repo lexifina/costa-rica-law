@@ -1,0 +1,1 @@
+Artículo 57. Irrevocabilidad de las transacciones. Las instrucciones de pago tramitadas por medio del SINPE son irrevocables frente a sus ordenantes o terceros; el momento a partir del cual aplica dicha condición se establece en el ciclo de cada servicio.

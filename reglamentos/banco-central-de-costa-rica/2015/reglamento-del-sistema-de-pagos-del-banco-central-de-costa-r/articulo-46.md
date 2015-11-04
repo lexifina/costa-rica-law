@@ -1,0 +1,1 @@
+Artículo 46. Liquidación en el BCCR. Los sistemas reconocidos por el BCCR como de importancia sistémica podrán liquidar sobre las cuentas de fondos y/o de valores mantenidas por los participantes de ese mercado en el BCCR.

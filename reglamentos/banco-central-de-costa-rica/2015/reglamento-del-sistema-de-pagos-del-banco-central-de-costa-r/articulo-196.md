@@ -1,0 +1,1 @@
+Artículo 196. Comunicación a los inversionistas. El emisor deberá comunicar a cada inversionista el resultado de sus negociaciones, así como el detalle de las ofertas asignadas y rechazadas, el criterio de asignación utilizado y cualquier otra información de carácter relevante.

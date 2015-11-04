@@ -1,0 +1,1 @@
+Artículo 6. Código de entidad representada. Las entidades representadas dispondrán de un código de entidad para asignar cuentas IBAN a sus clientes y operar en el SINPE dentro de los términos dispuestos para su condición de representadas.

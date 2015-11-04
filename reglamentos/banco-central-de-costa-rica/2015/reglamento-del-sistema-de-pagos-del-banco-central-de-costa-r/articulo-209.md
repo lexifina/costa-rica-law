@@ -1,0 +1,1 @@
+Artículo 209. Depósito de garantías. Para captar recursos con operaciones diferidas de liquidez garantizadas, el participante deberá previamente depositar valores en una cuenta de garantía o aportar garantías líquidas mantenidas en el BCCR, en ambos casos de conformidad con las disposiciones establecidas por el servicio Gestión de Riesgos, del presente reglamento.

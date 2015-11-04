@@ -1,0 +1,1 @@
+Artículo 105. Débitos a tarjeta de crédito. Las entidades podrán habilitar por medio del servicio CDD el cobro a una tarjeta de crédito, en cuyo caso, la entidad destino podrá cobrar al cliente destino una comisión por dicha transacción.

@@ -1,0 +1,1 @@
+Artículo 378. Cumplimiento legal. Este servicio atiende a la obligación legal impuesta al BCCR por medio del Reglamento a la Ley 8204, en el sentido de facilitar un medio por el cual los actores en materia de prevención de la legitimación de capitales, puedan acceder a la información perteneciente a las transacciones que se tramitan por medio del SINPE.

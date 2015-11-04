@@ -1,0 +1,1 @@
+Artículo 232. Cambio de la familia de billetes o del cono monetario. Cada vez que el BCCR emita una nueva familia de billetes o un nuevo cono monetario, retirará de circulación la familia de billetes o el cono monetario anterior. El BCCR deberá publicar oportunamente los planes de retiro y sustitución de numerario.

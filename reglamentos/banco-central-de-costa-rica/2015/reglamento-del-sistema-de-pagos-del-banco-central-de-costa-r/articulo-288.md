@@ -1,0 +1,2 @@
+Artículo 288. Constitución de la garantía en valores. Los asociados deberán traspasar a la cuenta de garantía los valores necesarios para cumplir con sus requerimientos de garantía, conforme con las disposiciones operativas que establezcan las normas complementarias del servicio.
+Los valores que traspasen los asociados quedarán pignorados mientras se mantengan depositados en la cuenta de garantía.

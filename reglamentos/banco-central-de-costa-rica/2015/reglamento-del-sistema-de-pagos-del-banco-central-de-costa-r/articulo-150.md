@@ -1,0 +1,1 @@
+Artículo 150. Liquidación de valores pignorados. Los valores que a su fecha de vencimiento se encuentren pignorados, se liquidarán en la cuenta que corresponda para cada caso en particular, conforme con las instrucciones establecidas para la pignoración.

@@ -1,0 +1,1 @@
+Artículo 163. Registro de emisiones. Los emisores deberán registrar en el servicio las emisiones en serie inscritas en el Registro Nacional de Valores e Intermediarios emitidas en forma anotada en cuenta.

@@ -1,0 +1,1 @@
+Artículo 286. Retención de vencimientos. Cuando sea necesario liquidar vencimientos que provoquen que el requerimiento de garantía descienda por debajo de su nivel mínimo, los vencimientos se mantendrán retenidos en una cuenta de fondos en garantía y no serán girados hasta que el acreedor aporte nuevos valores que restituyan el faltante de garantía.

@@ -1,0 +1,1 @@
+Artículo 133. Principio registral. El funcionamiento del padrón móvil interbancario se rige bajo el principio de buena fe registral por lo que el BCCR asume que la información registrada por los participantes es legítima, completa y se encuentra exenta de vicios registrales.

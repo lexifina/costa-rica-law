@@ -1,0 +1,1 @@
+Artículo 197. Declaración de subasta desierta. El emisor se reserva el derecho de declarar total o parcialmente desierta una subasta, cuando considere que las ofertas no representan adecuadamente las condiciones de mercado, pudieren llegar a producir efectos inconvenientes en el mismo o se detecte colusión entre los inversionistas.

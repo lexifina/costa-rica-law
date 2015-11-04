@@ -1,0 +1,3 @@
+Artículo 274. Actividades garantizadas. Las garantías que rindan los asociados serán para respaldar las siguientes actividades:
+a) El cumplimiento de las obligaciones financieras contraídas con su participación en los mercados de negociación organizados por el BCCR, a través del SINPE.
+b) Las facilidades crediticias que, como prestamista de última instancia, les otorgue el BCCR para solventar los problemas transitorios de liquidez que enfrenten con su participación en el Sistema de Pagos. Estas facilidades estarán disponibles únicamente para las entidades financieras que participan en los servicios de liquidación multilateral neta del SINPE, con excepción del servicio de CCD y CDD.

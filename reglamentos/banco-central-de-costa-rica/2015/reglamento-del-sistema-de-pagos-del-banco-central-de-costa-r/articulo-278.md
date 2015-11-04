@@ -1,0 +1,1 @@
+Artículo 278. Delegación de funciones. El BCCR podrá delegar en un fiduciario o en una entidad de custodia, las funciones establecidas en el presente libro para la administración de las garantías del Sistema de Pagos.

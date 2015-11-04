@@ -1,0 +1,1 @@
+Artículo 325. Liberaciones de software. El BCCR procurará realizar la liberación de nuevas versiones de software del SINPE o de actualización de su plataforma tecnológica, en horarios que no afecten la operativa normal del sistema.
