@@ -1,1 +1,0 @@
-Artículo 38.—Las actividades económicas de la Federación estarán fiscalizadas por la Contraloría General de la República, de acuerdo con la Ley que rige la materia, el órgano fiscalizador conforme lo establece este estatuto y las eventuales auditorías externas que se contraten en el momento de ser requeridas.

@@ -1,1 +1,0 @@
-Artículo 21.—De la Presidencia del Concejo Directivo. La Presidencia será electa por mayoría simple de total de votos presentes, por el Concejo Directivo, por un período de dos años y podrá ser reelecta.

@@ -1,1 +1,0 @@
-Artículo 3º—Esta Federación de Municipalidades tiene personería jurídica, independiente de los municipios que la integran, con patrimonio propio, capacidad y personalidad jurídica plenas, para ejecutar todo tipo de actos y contratos necesarios para cumplir sus objetivos. Su constitución queda regulada por los artículos 9º, 10 y 11 del Código Municipal vigente, Ley 7794.

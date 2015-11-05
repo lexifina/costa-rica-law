@@ -1,2 +1,0 @@
-Artículo 46.—La autorización, disposición y ordenación de gastos corresponde a la Dirección Ejecutiva y al Concejo Directivo, debe plantearse en los términos y dentro de los límites que anualmente establezca el Presupuesto, con sujeción a lo establecido en este estatuto y a la legislación y con observación de aquello que fuere competencia del Concejo Directivo.
-El reconocimiento de obligaciones corresponde al Concejo Directivo, en lo términos establecidos por la Legislación Vigente del Régimen Municipal.

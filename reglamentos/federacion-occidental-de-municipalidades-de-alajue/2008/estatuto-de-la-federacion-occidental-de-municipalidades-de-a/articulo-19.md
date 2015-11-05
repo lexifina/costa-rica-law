@@ -1,1 +1,0 @@
-Artículo 19.—El quórum del Concejo Directivo estará formado por la mitad más uno de sus miembros, y se estimará un lapso de 30 minutos para iniciar la sesión. Sus acuerdos serán tomados por la mayoría simple, excepto los que requieran mayoría calificada según lo determine el presente Estatuto.

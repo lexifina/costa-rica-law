@@ -1,1 +1,0 @@
-Artículo 54.—El presente Estatuto podrá ser reformado por la Asamblea General, por votación de las dos terceras partes de la totalidad de los miembros, en sesión extraordinaria convocada exclusivamente para ese propósito.

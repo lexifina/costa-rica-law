@@ -1,1 +1,0 @@
-Artículo 15.—Los miembros de la Asamblea General pierden su designación automáticamente al dejar sus funciones en la municipalidad, debiendo notificarse a la Asamblea y al Concejo Directivo el nuevo nombramiento que se haga, dentro del plazo de los siguientes treinta días naturales, a partir del cese de sus funciones.

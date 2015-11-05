@@ -1,1 +1,0 @@
-Artículo 26.—De los Vocales. Corresponde a los vocales colaborar en las tareas que le sean encomendadas por parte del Concejo Directivo y sustituir en forma temporal cuando se de la ausencia de algunos de sus miembros a excepción del Presidente, que solamente será sustituido por el Vicepresidente.
