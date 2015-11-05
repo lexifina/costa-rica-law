@@ -1,6 +1,0 @@
-Artículo 5°—Vigencia
-4.1 Conforme a los términos del artículo 44 de la Ley de Tránsito por Vías Públicas Terrestres, No. 7331 del 13 de abril de 1993, el derecho de circulación tendrá una vigencia máxima de un año, el que para todos los efectos se computará a partir del primero de enero y hasta el treinta y uno de diciembre del mismo año.
-4.2 No obstante lo anterior, en el caso de los vehículos de matrícula extranjera (vehículos de turistas), así como de vehículos en tránsito o propiedad de cualesquiera otros residentes temporales, la vigencia del seguro podrá emitirse por un mínimo de tres meses, prorrogables por períodos similares.
-4.3 En e] caso de vehículos reinscritos a los que se les asignaren las placas de circulación durante el transcurso del periodo anual respectivo, el derecho de circulación deberá emitirse con vigencia hasta el vencimiento del correspondiente lapso anual.
-4.4 Cuando se tratare de vehículos importados, nuevos o usados, el documento se emitirá con una vigencia que se computará desde la fecha de ingreso al país y hasta el treinta y uno de diciembre del mismo año.
-(NOTA: A pesar de que la numeración de los incisos no coinciden con el número de artículo, se han dejado tal y como se publicó en el Diario Oficial La Gaceta).

@@ -1,4 +1,0 @@
-Artículo 14.—Cobertura máxima ordinaria del seguro obligatorio
-El seguro obligatorio para vehículos -automotores tendrá como límite máximo de cobertura ordinaria, por persona, la suma de trescientos cincuenta mil colones, excepto los casos de muerte e incapacidad total permanente, según se define en el artículo 15 de este Reglamento.
-El Instituto Nacional de Seguros podrá clasificar los vehículos según el tipo de riesgo y podrá establecer las primas diferenciales para cada uno de ellos así como sus coberturas diferenciadas. Para ese efecto, utilizará las bases técnicas, reales y actuariales; además, se fundamentará en su propia experiencia, en forma tal que se garanticen el costo de la administración y también el otorgamiento de las prestaciones en dinero, médico-sanitarias y de rehabilitación, así como la solidez financiera del régimen.
-(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 36878 del 2 de diciembre del 2011)

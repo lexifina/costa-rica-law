@@ -1,3 +1,0 @@
-Artículo 15.—Cobertura del seguro obligatorio en casos de muerte o incapacidad total y permanente
-15.1 Cuando se tratare de incapacidad total permanente igual o superior al sesenta y siete por ciento de la capacidad general orgánica-funcional, o de muerte, el límite máximo de cobertura del seguro obligatorio, por persona, asciende a la suma de quinientos mil colones.
-15.2 En tales casos, la suma que se pagare en exceso sobre el límite ordinario, se otorgará para el pago de la indemnización o para atención médico-quirúrgica, hospitalaria, farmacéutica y de rehabilitación, según lo determine el accidentado o su tutor o representante legal por los medios pertinentes.

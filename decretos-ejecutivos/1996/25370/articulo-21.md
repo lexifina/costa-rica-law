@@ -1,2 +1,0 @@
-Artículo 21.—Excepciones
-El Instituto Nacional de Seguros podrá otorgar auxilios económicos en casos muy calificados, a aquellas personas que actúen como representantes de los accidentados, cuando estos últimos por razón de la gravedad de sus lesiones, edad o condición de inhabilidad, no pudieren realizar las gestiones en forma personal y directa, pero en tales casos los representantes deberán demostrar ante el Instituto, por los medios adecuados, el menoscabo económico que implica o se origina a causa de su intervención.

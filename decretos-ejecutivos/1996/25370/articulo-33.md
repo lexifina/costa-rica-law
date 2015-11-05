@@ -1,3 +1,0 @@
-Artículo 33.—Pago a menores de edad por incapacidad permanente
-33.1 En el caso de menores de edad, el cálculo del ingreso anual para el pago de las indemnizaciones por incapacidad permanente se efectuará con base en el salario mínimo de un peón agrícola, salvo que demostraren tener ingresos superiores, conforme a lo regulado en el artículo 34 de este Reglamento.
-33.2 Cuando se tratare de personas que demuestren no ejercer actividad económica alguna o que no pudieren comprobar por los medios jurídicos apropiados que poseen otras fuentes de ingreso, les serán aplicadas las disposiciones a que se refiere el numeral 33.1 de este Reglamento.

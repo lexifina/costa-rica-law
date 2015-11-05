@@ -1,2 +1,0 @@
-Artículo 7°—Vehículos desalmacenados
-Los vehículos desalmacenados en las aduanas del país contarán con un plazo máximo de cinco días hábiles, que se computarán a partir de la fecha de salida del correspondiente vehículo de la respectiva aduana, durante el cual podrán circular sin cumplir con la totalidad de los requisitos exigidos por el artículo 40 de la Ley de Tránsito por Vías Públicas Terrestres, exclusivamente para que puedan realizar los trámites de revisión técnica e inscripción, previo pago del respectivo seguro obligatorio.
