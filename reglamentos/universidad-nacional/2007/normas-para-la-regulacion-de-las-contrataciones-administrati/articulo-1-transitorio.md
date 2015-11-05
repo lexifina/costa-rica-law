@@ -1,2 +1,0 @@
-Transitorio general:
-Las normas del presente Reglamento que rigen el tema de la rotación en orden cronológico, entrarán en vigencia a partir del 4 de enero del 2008. Durante el año 2007 la Universidad deberá tomar las previsiones para lograr la depuración del Registro y contar con sistemas informáticos que permitan el control de la rotación por fecha de inscripción del Proveedor. Durante el 2007 se seguirá escogiendo a los Proveedores de conformidad con la forma establecida durante el año 2006.
