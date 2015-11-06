@@ -1,0 +1,18 @@
+ARTICULO 8.- DECLARACIONES DEL PRESTATARIO
+Sección 8.01 Existencia y Facultades Jurídicas.
+El Prestatario declara que el Organismo Ejecutor es un órgano, entidad, unidad u oficina de carácter gubernamental legalmente creada y válidamente existente al amparo de las leyes de la República de Costa Rica y que posee las licencias, autorizaciones, conformidades, aprobaciones o registros necesarios conforme a las leyes de la República de Costa Rica, teniendo plena facultad y capacidad para ejecutar el Proyecto.
+El Prestatario declara que el monto del Préstamo solicitado está dentro de sus límites de capacidad de endeudamiento, y que los respectivos Documentos Legales de Creación están plenamente vigentes y son efectivos en la fecha de la firma de este Contrato; declara además que no ha infringido ni violado ninguna disposición o término de tales y que las personas que formalizan en nombre del Prestatario, tanto este Contrato como cualquiera de los Documentos Principales, han sido debidamente autorizadas para ello por el Prestatario.
+Sección 8.02 Efecto Vinculante.
+El Prestatario y en su caso el Organismo Ejecutor, declara que la suscripción, entrega y formalización de este Contrato y de todos los Documentos Principales ha sido debidamente autorizada y llevada a cabo, constituyendo obligaciones legales y vinculantes, ya que constituyen acuerdos válidos que le son plenamente exigibles de conformidad con la Sección 14.04 y 14.09.
+Sección 8.03 Autorización de Terceros.
+El Prestatario declara que a esta fecha cuenta con las autorizaciones administrativas y no requiere consentimiento adicional alguno por parte de terceros, ni existe dictamen alguno, requerimiento judicial, mandato, decreto, normativa o reglamento aplicable al Prestatario pendiente que le impida la suscripción, entrega y formalización de este Contrato y de todos los Documentos Principales.
+Sección 8.04 Información Completa y Veraz.
+A los efectos de este Contrato y los Documentos Principales, el Prestatario, o en su caso, el Organismo Ejecutor declara que toda la información entregada al BCIE, incluyendo la entregada con anterioridad a la fecha de éste Contrato, es veraz, exacta y completa, sin omitir hecho alguno que sea relevante para evitar que la declaración sea engañosa. El Prestatario también declara que mantendrá al BCIE libre de cualquier responsabilidad respecto de la información entregada al BCIE.
+Sección 8.05 Confiabilidad de las Declaraciones y Garantías.
+El Prestatario declara que las declaraciones contenidas en este Contrato fueron realizadas con el propósito de que el BCIE suscribiera el mismo, reconociendo además que el BCIE ha accedido a suscribir el presente Contrato en función de dichas declaraciones y confiando plenamente en cada una de las mismas.
+Sección 8.06 Responsabilidad sobre la Viabilidad del Proyecto.
+El Prestatario y en su caso el Organismo Ejecutor, declara que asume plena responsabilidad por, la ejecución y gestión del Proyecto, eximiendo de toda responsabilidad al BCIE.
+Sección 8.07 Invocación de Inmunidad.
+El Prestatario y en su caso el Organismo Ejecutor, renuncia irrevocablemente por este medio a todo reclamo de inmunidad soberana u otro, para sí mismo o sus activos, por cualquier reclamo, juicio, ejecución, proceso legal o ejecución del Prestatario de acuerdo a este Contrato con base en la inmunidad soberana, bajo cualquier ley o bajo cualquier jurisdicción.
+Sección 8.08 Vigencia de las Declaraciones.
+Las declaraciones contenidas en este Contrato continuarán vigentes después de la celebración del mismo y hasta la culminación de las operaciones en él contempladas, con excepción de cualquier modificación en dichas declaraciones que sean oportunamente aceptadas por el BCIE.
