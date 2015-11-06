@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se autoriza a la Municipalidad de Heredia para que done el bien inmueble descrito en el artículo anterior, a la Caja Costarricense de Seguro Social (CCSS), cédula jurídica número cuatro-cero cero cero-cero cuatro dos uno cuatro siete (4-000-042147), con el fin de que se destine a la construcción del ebais del Barreal de Heredia.
