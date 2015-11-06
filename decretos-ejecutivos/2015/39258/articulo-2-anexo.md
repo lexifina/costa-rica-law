@@ -1,0 +1,5 @@
+ANEXO II
+DECLARACIÓN JURADA TESTIGO
+El o la suscrita _________________, cédula de identidad __________________, nacionalidad ____________, fecha de nacimiento (dd/mm/aaaa) _____ / _____ /_____, estado civil actual_____________, profesión ___________, vecino de __________, número de teléfono _________________; advertido (a) de que el artículo 318 del Código Penal establece que “Se impondrá prisión de tres meses a dos años al que faltare a la verdad cuando la ley le impone bajo juramento o declaración jurada, la obligación de decirla con relación a hechos propios.”, declaro bajo FE DE JURAMENTO, que el señor (a) ______________________, cédula de identidad _______________; y la señora (o) ______________________, cédula de identidad _______________________, mantenían una relación de COMPAÑEROS, en forma, estable, pública, exclusiva y bajo el mismo techo, en el periodo comprendido entre ___________ y ___________. Toda la información que he brindado en esta solicitud es verídica, y como tal la ratifico con la firma.
+___________________ __________________
+Lugar y fecha Firma
