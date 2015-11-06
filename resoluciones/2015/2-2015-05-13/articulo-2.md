@@ -1,1 +1,0 @@
-Artículo 2º—Se deja sin efecto la publicación efectuada en La Gaceta N° 229 del 27 de noviembre del 2014.
