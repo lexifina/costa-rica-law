@@ -1,0 +1,9 @@
+ARTICULO 10.- OBLIGACIONES ESPECIALES DE HACER
+Además de las obligaciones generales enumeradas en el artículo anterior, el Organismo Ejecutor, se obliga a:
+a) Entregar el I-BCIE de Medio Término a más tardar tres (3) meses después de que el Proyecto haya alcanzado el cincuenta por ciento (50%) de su ejecución física y antes de que el Proyecto supere el ochenta por ciento (80%) de su ejecución física, de acuerdo con el criterio de la Supervisión del BCIE, y de conformidad con los modelos que al efecto le comunique el BCIE. En caso contrario, no podrán realizarse desembolsos posteriores.
+b) Presentar informes bimestrales de la supervisión del Proyecto, indicando el avance físico y financiero obtenido en el mismo y el cumplimiento de los planes de mitigación ambiental en relación con la ejecución del Proyecto hasta su finalización.
+c) Presentar anualmente o cuando el BCIE lo solicite, la declaración jurada relacionada con la prevención de lavado de activos y otros ilícitos de similar naturaleza, así como cualquier otra documentación relacionada solicitada por el BCIE, de conformidad con los formatos e instrucciones proporcionados por éste requeridos para el cumplimiento de la Política para la Prevención de Lavado de Activos.
+d) Entregar el I-BCIE ex post a más tardar tres (3) meses después del primer año de haber sido desembolsados la totalidad de los recursos del financiamiento del BCIE, de conformidad con los modelos que al efecto le comunique el BCIE.
+e) Mantener vigentes los permisos necesarios y requeridos para la adecuada ejecución y operación del Proyecto.
+f) Mantener la relación de aportes al proyecto de conformidad con el Plan Global de Inversiones (PGI) aprobado por el BCIE.
+g) Utilizar los recursos del Préstamo exclusivamente para la ejecución del Proyecto, conforme con el Plan Global de Inversiones (PGI) aprobado por el BCIE.

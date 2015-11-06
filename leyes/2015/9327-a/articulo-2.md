@@ -1,0 +1,4 @@
+ARTICULO 2.- DEL PROYECTO
+Sección 2.01 Breve Descripción del Proyecto. El Prestatario pretende desarrollar un Proyecto de Mercado Regional Mayorista de la Región Chorotega, de la República de Costa Rica, que consiste en la construcción, equipamiento y puesta en marcha de un mercado mayorista en la provincia de Guanacaste.
+Sección 2.02 Destino de los Fondos. Los fondos provenientes de este Contrato serán utilizados exclusivamente por el Prestatario para financiar parcialmente la ejecución del Proyecto Mercado Regional Mayorista de la Región Chorotega, localizado en la provincia de Guanacaste, República de Costa Rica, conforme con el Plan Global de Inversiones, aprobado por el Banco.
+Sección 2.03 Organismo Ejecutor. El Organismo Ejecutor del Proyecto será el Programa Integral de Mercadeo Agropecuario (PIMA).
