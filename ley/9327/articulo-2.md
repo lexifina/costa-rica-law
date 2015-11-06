@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Objetivo del proyecto. Disponer en la Región Chorotega y área de influencia del proyecto de un sistema eficiente y moderno de abastecimiento, distribución y comercialización de productos agroalimentarios, mediante la construcción y el equipamiento del mercado regional mayorista.
