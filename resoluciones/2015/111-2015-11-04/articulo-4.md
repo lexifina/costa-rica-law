@@ -1,0 +1,1 @@
+IV. Instruir al proceso de Tarifas Generación Privada y Costo Variable Combustible de la Intendencia de Energía para que actualice los costos totales del modelo al menos cada 5 años, contados a partir de la resolución final que vaya a emitirse.
