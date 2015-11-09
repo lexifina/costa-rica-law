@@ -1,4 +1,6 @@
+(Derogado)
 N° 7614
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 39351 del 9 de noviembre del 2015, Costa Rica denuncia el presente Convenio)
 APROBACION DEL CONVENIO CONSTITUTIVO DE LA
 ORGANIZACION LATINOAMERICANA DE DESARROLLO
 PESQUERO Y SUS ENMIENDAS I Y II
