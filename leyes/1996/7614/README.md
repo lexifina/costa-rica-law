@@ -1,6 +1,6 @@
 # Convenio Organización Latinoamericana de Desarrollo Pesquero OLDEPESCA
 
-Ley N° 7614 del 1996-07-24. SINALEVI, ficha 40080: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40080&param2=42241&param3=1>.
+Ley N° 7614 del 1996-07-24. SINALEVI, ficha 40080: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=40080&param2=102846&param3=1>.
 
 Publicada en La Gaceta N° 162 del 1996-08-27.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1996-08-27 | Ley 7614 | 1996-07-24 |
 | 2 de 3 | 1996-08-27 | SINALEVI | 1996-07-24 |
+| 3 de 3 | 2015-11-09 | Decreto Ejecutivo 39351 (2015-11-09) | 2015-11-09 |
