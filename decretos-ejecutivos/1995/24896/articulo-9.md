@@ -9,3 +9,5 @@ e) Estar atentos a que sus subalternos ejecuten en debida forma el trabajo que l
 f) Dictar las disposiciones necesarias para el orden y el trabajo de la dependencia bajo su cargo.
 g) Evaluar en forma objetiva el desempeño de sus subalternos.
 h) Brindar especial atención a los servidores nuevos en los aspectos propios del desempeño de sus funciones.
+i) Velar por que sus subalternos no incurran en prácticas discriminatorias hacia ningún servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de existir denuncia, interpuesta de manera personal o por interpósita persona, en contra de algún subalterno por haber incurrido en estas prácticas, instruir para el inicio del procedimiento sancionatorio correspondiente.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39326 del 9 de noviembre del 2015)

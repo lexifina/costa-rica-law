@@ -1,5 +1,6 @@
 CAPITULO XVIII
 Disposiciones finales
-Artículo 86.-Del expediente personal del servidor.
-El Ministerio, llevará para cada empleado un expediente personal, debidamente foliado, que contendrá los datos sobre estudios y títulos del servidor, detalle de trabajos anteriores, anotaciones sobre el ejercicio de las funciones, calificaciones periódicas, etc.
+Artículo 86.- El Ministerio llevará para cada servidor un expediente personal debidamente identificado, foliado y en estricto orden cronológico. Deberá contener: una fotografía del servidor, sus calidades personales, dirección del domicilio y comprobantes de los atestados académicos. Esta información deberá mantenerla actualizada el interesado cada vez que ocurran cambios que así lo requieran. Este expediente constituirá un documento personal que sólo será examinado por autoridades judiciales y administrativas mediante solicitud expresa, justificando dicha necesidad, la cual será valorada por el Director de Recursos Humanos, quien a su criterio autorizará o denegará la solicitud. En caso de que el servidor provenga de otra institución de la Administración Pública será obligación de la Dirección de Recursos Humanos solicitar copia certificada de su anterior expediente.
+En lo que respecta a la fotografía del servidor y sus calidades personales, la Dirección de Recursos Humanos deberá resguardar, según el marco de legalidad vigente, el derecho a la identidad de género, de conformidad con lo que solicite el funcionario (a).
 (Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 69 al 86 actual del artículo)
+(Así reformado por el artículo 7° del decreto ejecutivo N° 39326 del 9 de noviembre del 2015)
