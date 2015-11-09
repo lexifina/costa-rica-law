@@ -1,0 +1,1 @@
+IV. Derogar los Por Tanto VII y VIII de la resolución RIE-052-2014 del 26 de agosto de 2014, dado que corresponden a formularios de información que se sustituyen con los lineamientos establecidos en la presente resolución.

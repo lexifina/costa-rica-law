@@ -1,0 +1,1 @@
+II. Establecer a las empresas envasadoras de GLP que no permitir las inspecciones del programa de calidad de GLP o incumplir con los lineamientos antes expuestos, podrá ser considerado como un incumplimiento de las normas y principios de calidad en la prestación de los servicios públicos establecidos en la Ley N°7593 y sus reformas.
