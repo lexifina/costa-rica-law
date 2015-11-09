@@ -1,0 +1,17 @@
+Nº 39293-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+Con fundamento en las atribuciones conferidas en los artículos 140, incisos 3) y 18) y 146 de la Constitución Política de Costa Rica; Ley N° 3155 “Ley Orgánica del Ministerio de Obras Públicas y Transportes” del 05 de agosto de 1963; reformada mediante Ley N° 4786 “Crea Ministerio de Transportes en sustitución del actual Ministerio de Obras Públicas” del 5 de julio de 1971; Ley N° 9078 “Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial” del 4 de octubre de 2012; Ley N° 6324 “Ley de Administración Vial” y sus reformas, del 24 de mayo de 1979.
+Considerando:
+1°—Que es competencia del Poder Ejecutivo a través del Ministerio de Obras Públicas y Transportes, la ejecución de la Ley de Administración Vial Nº 6324 del 24 de mayo de 1979 y sus reformas.
+2°—Que de acuerdo al inciso b) del artículo 10 de la Ley de Administración Vial Nº 6324 del 24 de mayo de 1979 y sus reformas, se establece como una de las fuentes de ingresos del Fondo de Seguridad Vial, un monto fijo en beneficio del Consejo de Seguridad Vial, que deberá ser cancelado por el propietario de cada vehículo automotor particular categoría automóvil, categoría carga liviana, categoría carga pesada y categoría motocicleta, que esté obligado al pago del seguro obligatorio automotor. Dichos montos se cobrarán en conjunto con el pago seguro citado.
+3°—Que siguiendo el sistema establecido en el inciso b) del artículo 10 de la Ley de Administración Vial Nº 6324 del 24 de mayo de 1979 y sus reformas, los montos vigentes en la actualidad ascienden a la suma de diez mil trescientos diecisiete colones con cero céntimos (¢10.317,00) para los vehículos particulares categoría automóvil, categoría carga liviana y categoría carga pesada; y de cinco mil ciento cincuenta y ocho colones con cero céntimos (¢ 5.158,00) para los vehículos particulares categoría motocicleta y afines.
+4°—Que sea hace necesario reajustar dichos montos, siguiendo el parámetro del índice de precios al consumidor (IPC) establecido en la ley citada.
+5°—Que el Consejo de Seguridad Vial efectuó el estudio técnico respectivo, el cual se encuentra contenido en el oficio N° DF-465-2015 del 5 de octubre de 2015, de la Dirección Financiera, con el siguiente resultado:
+Tipo de vehículo | Montos actuales (según Decreto 38696-MOPT) | Variación porcentual IPC | Monto a aumentar | Monto Actualizado para el año 2016
+Vehículo automotor categoría automóvil, categoría carga liviana, categoría carga pesada | ¢10.317,00 | 5,65 % | ¢ 583,00 | ¢10.900,00
+Vehículo automotor categoría motocicleta | ¢5.158,00 | 5,65% | ¢292,00 | ¢5.450,00
+6°—Que la presente determinación fue aprobada por la Junta Directiva del Consejo de Seguridad Vial en el acuerdo adoptado en el artículo VII de la sesión ordinaria N° 2821-15 del 5 de octubre del año 2015. Por tanto,
+DECRETAN:
+MONTOS A CANCELAR POR LOS PROPIETARIOS DE VEHÍCULOS AUTOMOTORES PARTICULARES COMO APORTE AL CONSEJO DE SEGURIDAD VIAL EN EL PAGO DEL SEGURO OBLIGATORIO DE VEHÍCULOS PARA EL PERÍODO DEL AÑO 2016
+Artículo 1°—Para el período de pago del seguro obligatorio de vehículos automotores del año dos mil dieciséis, los propietarios de vehículos particulares categoría automóvil, categoría carga liviana y categoría carga pesada, deberán cancelar como aporte al Consejo de Seguridad Vial, la suma de diez mil novecientos colones con cero céntimos (¢10.900,00).
