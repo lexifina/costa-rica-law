@@ -16,3 +16,4 @@ Reglamento para el Reconocimiento del Pago Disponibilidad a los Funcionarios de 
 | 1 | 2008-03-10 | la propia norma |
 | 2 | 2008-03-25 | Reglamento 4247 (2008-03-25) |
 | 3 | 2012-12-07 | Reglamento 4737 (2012-12-07) |
+| 4 | 2015-11-10 | Reglamento 5031 (2015-11-10) |

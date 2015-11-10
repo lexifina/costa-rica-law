@@ -1,0 +1,2 @@
+Artículo 6Bis—En el caso de los funcionarios de Soporte Técnico de Infocomunicaciones, el primero en ser notificado para atender un evento será la persona disponible, quien contará, con un máximo de 15 minutos para responder al llamado. Una vez atendido el llamado, contará con un plazo máximo 25 minutos para diagnosticar el evento, en caso de requerir desplazamiento el disponible contactara al NOC de Infocomunicaciones para la coordinación del traslado al sitio de trabajo.
+(Así adicionado mediante sesión ordinaria N° 5031 del 10 de noviembre del 2015)
