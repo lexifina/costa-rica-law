@@ -1,2 +1,0 @@
-Artículo 3º—A toda persona que haciendo uso de este reglamento, encuentre razón sustentada para pedir su revisión, se le solicita notificarlo al (*) Laboratorio Costarricense de Metrología, sin demora, aportando, de ser posible, la información correspondiente para hacer las investigaciones necesarias y tomar las previsiones del caso.
-(*) (Modificada su denominación mediante el inciso 9 del artículo 1° del decreto ejecutivo N° 33951 del 31 de julio del 2007).
