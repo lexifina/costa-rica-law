@@ -13,3 +13,4 @@ Sobre los plazos en que deben remitir la información requerida por el Consejo S
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-27 | la propia norma |
+| 2 | 2015-11-10 | Circular 198 (2015-11-10) |
