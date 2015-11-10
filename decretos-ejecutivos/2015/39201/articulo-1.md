@@ -1,0 +1,16 @@
+N° 39201-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+Con fundamento en las atribuciones que les confieren las disposiciones contenidas en los artículos 140 incisos 3), 10), 18) y 20) y 146 de la Constitución Política, 25.1 y 27.1 de la Ley General de la Administración pública (N° 6227 de 2 de mayo de 1978) y 4 de la Ley de Creación del Ministerio de Obras Públicas y Transportes N°4786 de 5 de julio de 1971.
+Considerando:
+I.—Que la Constitución Política establece como una de las atribuciones del Poder Ejecutivo en sentido estricto, el suscribir convenios internacionales, los cuales luego de ser promulgados mediante el trámite legislativo correspondiente, deben ser implementados y ejecutados
+II.—Que de conformidad con las normas contenidas en la Ley de Creación del Ministerio de Obras Públicas y Transportes, se encuentra dentro de la esfera de competencias de esta Cartera la planificación y regulación de las actividades portuarias y el transporte marítimo.
+III.—Que Costa Rica por medio de la Ley N° 6478 del día 25 de setiembre de 1980, aprobó la adhesión a la Convención de la Organización Consultiva Marítima Intergubernamental (actual Organización Marítima Internacional), que es el organismo especializado de Naciones Unidas en el campo del transporte marítimo; siendo una de las finalidades de esta organización fomentar la adopción general de normas tan elevada como sea posible respecto de la seguridad marítima, la eficiencia de la navegación y la prevención y contención de la contaminación del mar ocasionada por los buques.
+IV.—Que Costa Rica por medio de la Ley Nº 8708 del día 26 de febrero del 2009, publicada en el Alcance Digital Nº 4 a La Gaceta Nº 249 del día 23 de diciembre del 2010, aprobó la adhesión al Convenio internacional para la seguridad de la vida humana en el mar, 1974, sus protocolos y sus enmiendas (SOLAS 74); el cual regula, entre otros, la seguridad de la vida humana en el mar y la protección marítima.
+V.—Que el Comité de Seguridad Marítima de la Organización Marítima Internacional (OMI) adoptó mediante la resolución MSC.122(75) el Código internacional de mercancías peligrosas (Código IMDG), como uno de los códigos que faculta y son normativa técnica conexa del Convenio internacional para la seguridad de la vida humana en el mar, 1974, sus protocolos y sus enmiendas (SOLAS 74), aplicable a todos los buques que transporten mercancías peligrosas, regidos por el citado convenio internacional.
+VI.—Que la realidad de nuestro país y los acontecimientos que se han presentado recientemente, hacen necesario contar con instrumento técnico que regule con detalle el transporte de mercancías peligrosas a nivel marítimo, siendo que existe normativa específica para regular este tipo de actividad en el ámbito aéreo y terrestre. Por tanto;
+Decretan:
+PUBLICACIÓN DEL CÓDIGO MARÍTIMO
+INTERNACIONAL DE MERCANCÍAS PELIGROSAS
+(CÓDIGO IMDG)
+Artículo 1º—Se publica y oficializa en forma electrónica para su vigencia, eficacia y aplicación el Código Marítimo Internacional de Mercancías Peligrosas (IMDG), adoptado por el Comité de Seguridad Marítima de la Organización Marítima Internacional mediante la resolución MSC.122(75).
