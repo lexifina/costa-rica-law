@@ -1,0 +1,1 @@
+Artículo 8º—Se aprueba el presente reglamento según acuerdo de Junta Directiva JD-631 correspondiente al artículo IV), inciso 7) de la sesión ordinaria Nº 32-2015 celebrada el 17 de setiembre del 2015.

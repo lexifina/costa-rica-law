@@ -1,0 +1,1 @@
+Artículo 4º—Caducidad. La Junta de Protección Social, no pagará premios después de los sesenta días naturales a partir de la fecha en que se declare oficialmente la finalización del respectivo juego. “El plazo de caducidad se establece de conformidad con el artículo 18 de la Ley Nº 8718”.
