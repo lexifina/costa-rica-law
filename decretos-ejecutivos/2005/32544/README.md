@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio del Ministerio de Salud
 | --- | --- | --- |
 | 1 | 2005-08-17 | la propia norma |
 | 2 | 2008-08-29 | Decreto Ejecutivo 34866 (2008-08-29) |
+| 3 | 2015-11-10 | Decreto Ejecutivo 39467 (2015-11-10) |

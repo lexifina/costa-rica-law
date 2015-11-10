@@ -32,3 +32,7 @@ y) Los servidores que padecen adicción al alcohol y/o otras drogas enervantes, 
 z) Solicitar ante el jefe inmediato, los permisos respectivos para capacitación dentro de los plazos establecidos en la normativa vigente y tramitarlos con un mínimo de un mes de antelación a la fecha de inicio.
 aa) Solicitar permiso ante el jefe inmediato o quien lo represente, para atender asuntos sindicales, cooperativos, asociaciones solidaristas, gremiales y reuniones en general de acuerdo con las condiciones pactadas entre el Ministerio y los representantes gremiales respectivos.
 bb) Es deber ineludible de los servidores apersonarse cuando sean citados a comparecencia oral y privada en procedimientos ordinarios en que el Ministerio tenga interés. Esto de acuerdo con el aparte 2 del artículo 248 de la Ley General de la Administración Pública.
+cc) Es deber ineludible de las personas servidoras la no concurrencia de acciones u omisiones que tengan carácter discriminatorio por razones de diversidad sexual.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)
+dd) Velar para que en los registros institucionales, procedimientos administrativos y de comunicación, se respete la identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)

@@ -31,3 +31,7 @@ t) Alterar documentos con el .n de obtener alguna ventaja personal en detrimento
 u) Maltratar de hecho o de palabra, corromper o tratar de corromper o abandonar a los o a las menores que asisten a recibir los servicios que el Ministerio brinda en los diferentes Centros de Nutrición y Atención Integral.
 v) Hacer uso del equipo electrónico del Ministerio para observar o reproducir pornografía, o exhibir material pornográfico dentro de las instalaciones de la Institución.
 w) Exhibir material pornográfico dentro de las instalaciones del Ministerio.
+x) Incurrir en prácticas discriminatorias hacia cualquier servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de tener noticia, ya sea de manera personal o por interpósita persona, de que algún servidor de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)
+y) Utilizar, en el desempeño de sus funciones, lenguaje que sea discriminatorio o contrario a la dignidad de personas por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)

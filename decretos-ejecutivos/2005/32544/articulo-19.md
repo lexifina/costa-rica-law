@@ -18,3 +18,5 @@ p) Guardar el debido respeto para con sus colaboradores, lo cual incluye la no c
 q) Conceder el tiempo necesario para que los servidores puedan asistir a consultas médicas de la CCSS, médico de empresa o particular, o Instituto Nacional de Seguros, según sea el caso.
 r) Asignar en forma clara las labores a los funcionarios, de acuerdo con los instrumentos clasificatorios correspondientes.
 s) Atender las sugerencias y quejas que los servidores y usuarios puedan manifestar, con el .n de brindar un mejor servicio.
+t) Velar porque sus subalternos no incurran en prácticas discriminatorias hacia ningún servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de tener denuncia, ya sea de manera personal o por interpósita persona, de que algún subalterno incurrió en estas prácticas, instruir para el inicio del procedimiento investigativo correspondiente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)

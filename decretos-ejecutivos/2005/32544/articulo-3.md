@@ -5,3 +5,5 @@ c) Servidores: toda persona física que tenga una relación de servicio con el M
 Para los efectos pertinentes considérense equivalentes los términos “funcionario público” “empleado público” “encargado del servicio público”, “agente público”.
 d) Autoridades Superiores: El Ministro de Salud, Viceministros de Salud y el Director General de Salud.
 e) Ministerio: Ministerio de Salud.
+f) Compañero (a): Persona que conviva bajo un mismo techo por un año o más, de forma pública, notoria, única y estable con una persona funcionaria de la Institución, sin diferenciación del sexo. Tanto la persona funcionaria como el compañero (a) deben ostentar la libertad de estado. Para ser beneficiarios de los derechos que les otorga este Reglamento se deberá entregar, ante la Oficina Institucional de Recursos Humanos, una Declaración Jurada por parte de ambas personas, donde hagan constar la existencia de la relación, según lo establecido anteriormente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)

@@ -1,8 +1,8 @@
 Artículo 80.—Serán considerados asimismo manifestaciones de hostigamiento o acoso laboral, entre otras lo siguiente:
-a) Interferir las posibilidades de comunicación.
-b) Disminución de contacto social.
-c) Desacreditar a la víctima.
-d) Alterar la producción.
-e) Afectar la salud física y mental de la víctima
-f) Todas aquellas otras conductas que se encuentren debidamente tipificadas en el ordenamiento jurídico como manifestaciones de acoso laboral.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 34866 del 29 de agosto del 2008)
+I. Interferir las posibilidades de comunicación.
+II. Disminución de contacto social.
+III. Desacreditar a la víctima.
+IV. Alterar la producción.
+V. Afectar la salud física y mental de la víctima.
+VI. Discriminación en razón de género, etnia, nacionalidad, religión, filiación política, idioma, ocupación, edad, orientación sexual e identidades de género o por tener algún tipo de discapacidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39467 del 10 de noviembre del 2015)
