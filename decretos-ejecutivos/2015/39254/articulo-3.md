@@ -1,0 +1,1 @@
+Artículo 3.—En todo lo demás, el Decreto Ejecutivo Nº 36789- C, Reglamento a la Ley N° 8347, Ley de Creación del Centro Nacional de la Música, del 1º de agosto de 2011, publicado en el Diario Oficial La Gaceta N° 198 del 14 de octubre de 2011, permanece incólume.
