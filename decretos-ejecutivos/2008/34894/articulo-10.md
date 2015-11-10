@@ -1,9 +1,0 @@
-Artículo 10.—Obligaciones de las UVM. Las unidades de verificación metrológica realizarán los procesos correspondientes a verificación inicial, verificación subsecuente o eventual de los instrumentos de medición, así como constatar que los mismos se encuentren debidamente calibrados.
-La Unidad de Verificación Metrológica reconocida debe colocar en cada instrumento de medición que verifica, un adhesivo (pegatina) de cumplimiento, donde se indique la siguiente información:
-a) nombre y/o código de la unidad de verificación que brindó el servicio
-b) fecha
-c) leyenda indicando si el instrumento de medición verificado es apto o no apto para su uso, de acuerdo al reglamento técnico respectivo. (Ver punto 10 del Anexo)
-La Unidad de Verificación Metrológica reconocida deberá remitir al LACOMET un reporte mensual con los resultados de los servicios brindados, indicando además el nombre de las empresas y/o establecimientos a los cuales le suministro el servicio; así como, la dirección exacta, números telefónicos y lugar para recibir notificación.
-Además, en los casos en que el instrumento de medición no esté calibrado y/o incumpla con alguno de los requisitos establecidos en el reglamento técnico respectivo, debe remitir en un plazo máximo de tres días hábiles, el certificado de verificación al LACOMET para que se inicie el proceso de denuncia ante los entes competentes según el Reglamento Técnico que se esté verificando por parte de la UVM; con el fin de que éstos establezcan las sanciones administrativas y financieras que correspondan.
-La Unidad de Verificación Metrológica debe someterse a las pruebas de aptitud respectivas que el LACOMET organice durante la vigencia del reconocimiento.
-La UVM debe utilizar los formatos establecidos por el LACOMET para la realización de las distintas actividades de verificación metrológica.

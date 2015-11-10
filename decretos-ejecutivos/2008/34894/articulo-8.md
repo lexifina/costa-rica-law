@@ -1,1 +1,0 @@
-Artículo 8º—Supervisiones posterior al reconocimiento. El LACOMET se reserva el derecho de realizar inspecciones aleatorias a empresas y/o establecimientos que las Unidades de Verificación Metrológicas reconocidas han brindado servicios, como parte de la supervisión de la labor reconocida mediante el presente reglamento.

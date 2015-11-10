@@ -1,1 +1,0 @@
-Transitorio único.—Los terceros que de buena fe solicitaron y fueron reconocidos como Unidades de Verificación Metrológica, previo a la publicación del presente Decreto Ejecutivo, conservarán incólume el reconocimiento otorgado y todos sus derechos.
