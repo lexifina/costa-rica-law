@@ -1,1 +1,0 @@
-Artículo 6º—La propietaria de la finca señalada, gozará de los beneficios e incentivos establecidos en la Ley de Conservación de la Vida Silvestre, para lo cual el Área de Conservación La Amistad Pacífico y el Área de Conservación Osa, y las dependencias ministeriales involucradas, emitirán los documentos necesarios.
