@@ -1,6 +1,4 @@
-Artículo 1º.- Establécese en la ciudad de Cartago, una escuela para
-niños sordos, dependiente del Ministerio de Educación Pública, que tendrá
-como propósito el adiestramiento de ese niños para que mediante el uso de
-las técnicas más modernas se les capacite para recibir, en la misma
-escuela, las enseñanzas de pre-primaria y primaria de los programas
-oficiales del Ministerio de Educación Pública.
+Creación de la Escuela de Diversidad Funcional de Cartago
+(Así modificada su denominación por el artículo 1° de la ley N° 9337 del 11 de noviembre del 2015. Anteriormente se indicaba: “Crea Escuela para Niños Sordos en Cartago”)
+Artículo 1.- Se establece, en la ciudad de Cartago, una escuela de diversidad funcional dependiente del Ministerio de Educación Pública, que tendrá como propósito la capacitación académica y funcional, para que, mediante el uso de las técnicas más modernas capacite para recibir en la misma institución las enseñanzas de Preescolar, Primaria y Educación Especial de los programas oficiales del Ministerio de Educación Pública.
+(Así reformado por el artículo 2° de la Ley N° 9337 del 11 de noviembre del 2015)
