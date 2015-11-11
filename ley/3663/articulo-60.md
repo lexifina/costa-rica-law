@@ -1,9 +1,4 @@
-Artículo 60.- La Junta Directiva General resolverá el asunto en una
-sesión especial por votación secreta y fallando en conciencia, dentro de
-los quince días después de recibir el informe del Tribunal de Honor.
-Antes de resolver el asunto y cuando estimare que es preciso aclarar
-cualquier punto o allegar nuevas pruebas, la Junta Directiva General podrá
-resolver que se amplíe la investigación, para lo cual dará al Director
-Ejecutivo las instrucciones del caso. La ampliación no podrá ser mayor de
-quince días para completar la investigación.
+Artículo 60.- La Junta Directiva General resolverá el asunto en una sesión especial por votación secreta y fallando en conciencia, dentro de los quince días después de recibir el informe del Tribunal de Honor.
+Antes de resolver el asunto y cuando estimare que es preciso aclarar cualquier punto o allegar nuevas pruebas, la Junta Directiva General podrá resolver que se amplíe la investigación, para lo cual dará al Director Ejecutivo las instrucciones del caso. La ampliación no podrá ser mayor de quince días para completar la investigación.
 (Así reformado por Ley Nº 5361 de 16 de octubre de 1973, artículo 1º)
+(Nota de Sinalevi: Mediante el artículo 1° de la ley N° 9333 del 11 de noviembre del 2015, se indica reformar este artículo. De conformidad con lo establecido en el transitorio 1° de la ley antes referida se indica que la entrada en vigencia de la reforma contemplada en esta ley, al artículo 60 de la Ley N° 3663, Ley Orgánica del Colegio Federado de Ingenieros y Arquitectos de Costa Rica, entrará en vigencia diez días después de publicado el reglamento correspondiente, que indica la norma. Dado lo anterior, cuando sea publicado el reglamento correspondiente dicho artículo se leerá así: “Artículo 60.—La Junta Directiva general resolverá el asunto en una sesión especial por votación secreta y fallará en el plazo establecido por el reglamento correspondiente.”)
