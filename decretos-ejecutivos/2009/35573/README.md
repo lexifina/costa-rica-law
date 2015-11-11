@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio y Organización de la Dirección General de Ser
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-11-16 | la propia norma |
+| 2 | 2015-11-11 | Decreto Ejecutivo 39478 (2015-11-11) |

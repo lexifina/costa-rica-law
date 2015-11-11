@@ -10,3 +10,5 @@ f) Igualdad de oportunidades en el ámbito laboral, académico, social y cultura
 g) Tendrán un lugar adecuado para ingerir sus alimentos y bebidas durante su tiempo de descanso, según lo dispuesto por el artículo 97 del Decreto Ejecutivo Nº 1 de 2 de enero de 1967 (Reglamento de Seguridad e Higiene en el Trabajo).
 h) Reunirse en Asamblea de afiliados o socios, dentro de las instalaciones de la Dirección General, en jornada laboral, para atender necesidades de creación o liquidación de asociaciones legalmente constituidas y tomar otros acuerdos necesarios para la debida marcha o finiquito de dichas entidades.
 i) Asistir a las citas médicas programadas, así como a los controles necesarios dispuestos por el médico institucional.
+j) Gozar de licencia en caso de enfermedad grave o fallecimiento de su compañero o compañera, la cual estará sujeta a la constancia extendida por el Centro de Salud o médico respectivo.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39478 del 11 de noviembre de 2015)

@@ -4,3 +4,5 @@ Artículo 64.—De las manifestaciones del hostigamiento: Son manifestaciones de
 3) Descrédito: Destrucción de la reputación de la víctima, por medio de rumores, falsedades, posibles defectos de la víctima o simplemente ridiculizándola públicamente.
 4) Impedir o dificultar el trabajo de la víctima: Obstaculizar el desarrollo profesional de la víctima, asignándole un volumen de trabajo imposible de ser realizado, generando horarios imposibles de ser atendidos por la víctima; ocultando herramientas o informaciones necesarias para su trabajo; o por medio del avasallamiento mediante la aplicación exagerada del régimen sancionatorio, así como por medio de la invisibilización de los logros en el trabajo.
 5) Todas aquellas conductas debidamente descritas por la jurisprudencia Constitucional y la doctrina en esta materia.
+6) Marginación o discriminación: todo acto que rechace o discrimine por razones de la orientación sexual e identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39478 del 11 de noviembre de 2015)
