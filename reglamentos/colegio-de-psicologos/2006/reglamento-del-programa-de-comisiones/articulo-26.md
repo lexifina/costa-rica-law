@@ -1,1 +1,0 @@
-Artículo 26.—Ejecución de presupuesto. La ejecución del presupuesto de las comisiones, se realizará conforme al acuerdo respectivo de Junta Directiva y en coordinación con el o la coordinadora de la comisión.
