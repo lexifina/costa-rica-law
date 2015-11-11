@@ -1,0 +1,1 @@
+Artículo 4º—En caso de que el nombramiento por realizar se vincule directamente o guarde relación con una institución financiera, será necesario verificar, con antelación, que la persona seleccionada no posea deudas en mora con la respectiva entidad financiera.

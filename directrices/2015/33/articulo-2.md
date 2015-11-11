@@ -1,0 +1,1 @@
+Artículo 2º—Las autoridades públicas encargadas de realizar el proceso de selección y nombramiento, tienen la obligación de comprobar la inexistencia de incompatibilidades para el ejercicio del puesto por nombrar.
