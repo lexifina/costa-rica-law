@@ -15,5 +15,7 @@ CAPÍTULO VII : De los beneficios y egresos del Fondo de Ayuda Mutua
 CAPÍTULO VIII: Disposiciones finales
 CAPÍTULO I
 Disposiciones generales
-Artículo 1.—El Colegio Profesional de Psicólogos de Costa Rica, acordó constituir un Fondo de Ayuda Mutua en la Asamblea General N° 30, del día viernes 16 de junio del año 2000, con el fin de atender los siguientes objetivos: Brindar ayuda económica a los beneficiarios (as) de las y los colegiados en caso de fallecimiento.
-a) Ayudar económicamente a las y los colegiados que sufran invalidez total y permanente o enfermedad terminal, debidamente comprobadas.
+Artículo 1°—El Colegio Profesional de Psicólogos de Costa Rica, acordó constituir un Fondo de Ayuda Mutua en la Asamblea General N° 30, del día viernes 16 de junio del año 2000, con el fin de atender los siguientes objetivos:
+a) Brindar ayuda económica a los beneficiario s(as) de las y los colegiados en caso de fallecimiento.
+b) Ayudar económicamente a las y los colegiados que sufran invalidez total y permanente o enfermedad terminal, debidamente comprobados.
+(Así reformado por acuerdo N° VII-09-AS-95-2015 y publicación en La Gaceta N° 230 del 26 de noviembre del 2015)
