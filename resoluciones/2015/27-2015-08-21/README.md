@@ -14,3 +14,4 @@ Establece un período fiscal especial del impuesto sobre la renta comprendido de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-18 | la propia norma |
+| 2 | 2015-11-11 | Resolución 73 (2015-11-11) |
