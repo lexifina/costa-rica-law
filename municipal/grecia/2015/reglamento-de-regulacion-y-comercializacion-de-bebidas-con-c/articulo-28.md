@@ -1,0 +1,1 @@
+Artículo 28.—Revocación de Licencia. En los supuestos del artículo 6 de la ley, la Alcaldía, en cada caso emitirá la Resolución correspondiente debidamente razonada bajo las reglas del Debido Proceso.

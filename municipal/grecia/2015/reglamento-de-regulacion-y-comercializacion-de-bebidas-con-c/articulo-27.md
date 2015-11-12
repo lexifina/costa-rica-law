@@ -1,0 +1,2 @@
+Artículo 27.—Suspensión de la licencia y cierre de establecimiento. De conformidad a la normativa vigente, la licencia para la comercialización de bebidas con contenido alcohólico, podrá suspenderse por falta de pago de dos o más trimestres, o bien por incumplimiento de los requisitos ordenados en las leyes para el desarrollo de la actividad.
+De persistir la morosidad la Administración iniciará el procedimiento de cancelación de la licencia, adicionalmente sin perjuicio de ejecutar las acciones de cobro que permitan la recuperación de la deuda.
