@@ -13,5 +13,7 @@ i) No indique a la Dirección General de Aduanas, bajo declaración jurada rendi
 (Así adicionado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
 j) Si se trata de un receptor de mercancía, no proporcione el servicio de recepción de vehículos y unidades de transporte, en los términos y las condiciones establecidos en esta Ley o sus Reglamentos.
 (Así adicionado el inciso anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
+k) En calidad de depositario aduanero preste servicios complementarios sin autorización de la autoridad aduanera.
+(Así adicionado el inciso anterior por el artículo 2° de la Ley para mejorar la lucha contra el contrabando, N° 9328 del 19 de octubre de 2015)
 En los casos de los incisos a), c), e), g), h), i) y j) de este artículo, la suspensión se extenderá hasta que cumpla las respectivas obligaciones.
 (Así reformado el párrafo anterior por el artículo 1° de la ley N° 8373 de 18 de agosto de 2003)
