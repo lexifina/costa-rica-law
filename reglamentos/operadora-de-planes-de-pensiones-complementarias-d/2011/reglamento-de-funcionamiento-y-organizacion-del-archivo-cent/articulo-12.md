@@ -1,1 +1,1 @@
-Artículo 12.—Es responsabilidad del Archivo Central la divulgación de las políticas y procedimientos en materia archivística en Popular Pensiones.
+Artículo 12.—Le corresponderá al Archivo Central capacitar a los encargados(as) de los archivos de gestión en las áreas de administración y organización de los documentos.

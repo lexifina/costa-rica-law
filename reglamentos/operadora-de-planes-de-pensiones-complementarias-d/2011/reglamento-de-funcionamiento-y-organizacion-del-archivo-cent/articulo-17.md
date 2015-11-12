@@ -1,4 +1,1 @@
-Artículo 17.—El Comité Institucional tendrá las siguientes funciones:
-a) Evaluar y determinar la vigencia administrativa y legal de los documentos de la Institución. Para ello establecerá las tablas de plazos de conservación institucional con apego a la Ley, las cuales deben ser sometidas al conocimiento de la Jefatura de la unidad administrativa correspondiente, de acuerdo con los procedimientos establecidos.
-b) Aprobar las tablas de plazos de Popular Pensiones c) Determinar cuáles documentos y con qué finalidad deben ser microfilmados, digitalizados o bien sometidos a cualquier otro proceso tecnológico presente o futuro.
-d) Proponer las políticas institucionales para la estandarización de los diferentes tipos documentales que se utilizan en Popular Pensiones S.A. así como regular la producción documental por cualquier medio que se emplee.
+Artículo 17.—En las sesiones del Comité Institucional podrán participar otras personas de conformidad con el numeral 139 del Reglamento de la Ley del Sistema Nacional de Archivos.

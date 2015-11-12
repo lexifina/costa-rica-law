@@ -1,1 +1,1 @@
-Artículo 11.—Le corresponderá al Archivo Central capacitar a los encargados(as) de los archivos de gestión en las áreas de administración y organización de los documentos.
+Artículo 11.—Tanto el Archivo Central como los archivos de gestión contarán con los recursos materiales y la infraestructura adecuada para la conservación de los documentos.

@@ -1,2 +1,1 @@
 Artículo 9º—Los archivos de gestión deben tener un encargado(a) y un(a) suplente, quien organizará, conservará, facilitará los documentos y pondrá en práctica las políticas y procedimientos emanadas por el Archivo Central, para la adecuada administración de los mismos. El nombramiento de ese encargado le corresponde establecerlo al titular subordinado del área respectiva.
-(Así reformado mediante sesión ordinaria N° 439 del 10 de julio del 2014)

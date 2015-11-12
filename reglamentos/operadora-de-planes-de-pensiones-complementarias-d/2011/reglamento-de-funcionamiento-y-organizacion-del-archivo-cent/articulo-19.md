@@ -1,5 +1,3 @@
-Artículo 19.—La documentación se microfilmará, digitalizará o bien se le aplicará cualquier otro proceso tecnológico presente o futuro, que garantice su generación, almacenamiento o disposición final con base a lo indicado en el artículo 6 de la Ley de Certificados, Firmas Digitales y Documentos Electrónicos (Gestión y Conservación de documentos electrónicos); y al menos por alguna de las siguientes razones:
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 439 del 10 de julio del 2014)
-Seguridad: se aplicará básicamente a aquellos documentos de valor permanente y los sometidos a posibles deterioros por la calidad del papel, de la tinta, del uso continuo, humedad o para prevenir la destrucción del documento por cualquier otra circunstancia.
-Complemento: para complementar los fondos documentales cuando los documentos originales relacionados con esos mismos se encuentren en otros lugares.
-Referencia: para agilizar los trámites administrativos y de investigación de las dependencias y de los archivos.
+CAPÍTULO IV
+Documentos digitales y electrónicos
+Artículo 19.—El proceso de microfilmación y digitalización de documentos estará a cargo de los Archivos de Gestión, bajo la normativa suministrada por el Archivo Central, el cual establecerá los procedimientos para tal efecto. De igual forma, cualquier otra tecnología presente o futura que afecte el manejo documental, deberá coordinarse con el Archivo Central, el cual establecerá los procedimientos respectivos.
