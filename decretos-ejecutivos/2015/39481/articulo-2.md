@@ -1,0 +1,1 @@
+Artículo 2º—Designar al Director Ejecutivo del Instituto Nacional de Innovación y Transferencia en Tecnología Agropecuaria como contraparte de la organización de este Evento Internacional para que coordine todas las acciones necesarias con los sectores que lo requieran y las diversas instituciones del Estado, a efectos de garantizar el éxito de esta actividad.
