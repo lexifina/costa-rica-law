@@ -18,3 +18,4 @@ Reglamento del Sistema de Becas y Beneficios Estudiantiles de la Universidad Té
 | 3 | 2013-11-28 | Reglamento 9 (2013-11-28) |
 | 4 | 2014-03-27 | Reglamento 4 (2014-03-27) |
 | 5 | 2014-11-27 | Reglamento 19 (2014-11-27) |
+| 6 | 2015-11-12 | Reglamento 25 (2015-11-12) |
