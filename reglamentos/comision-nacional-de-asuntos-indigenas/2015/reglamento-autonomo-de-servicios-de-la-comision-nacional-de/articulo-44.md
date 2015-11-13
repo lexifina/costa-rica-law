@@ -1,0 +1,1 @@
+Artículo 44.—El puesto del trabajador en vacaciones podrá ser atendido por otro servidor de la dependencia o departamento donde prestan sus servicios, en la forma que el Director Ejecutivo lo disponga, sin que ello implique variación alguna de sus salarios.

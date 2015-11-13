@@ -1,0 +1,1 @@
+Artículo 39.—El traslado de un servidor a otro cargo de igual categoría será por Acuerdo de Junta Directiva. Para que sea procedente y eficaz una permuta, se requerirá que los interesados así lo manifiesten por escrito, manifestando que además están de acuerdo con el salario a devengar en el puesto permutado.

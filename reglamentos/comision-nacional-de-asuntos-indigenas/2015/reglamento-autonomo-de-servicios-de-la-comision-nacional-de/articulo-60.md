@@ -1,0 +1,1 @@
+Artículo 60.—Para la atención médica, el trabajador debe acreditarlo con comprobante del centro médico donde fue atendido. Con el entendido de que se le reconocerá solo el tiempo de atención médica que recibió y el tiempo prudencial de traslado al lugar de trabajo.

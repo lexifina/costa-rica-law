@@ -1,0 +1,1 @@
+Artículo 3º—La estructura organizacional y administrativa del CONAI está constituida por las siguientes dependencias: Asamblea General, Junta Directiva, Dirección Ejecutiva, Auditoría Interna. También por los siguientes departamentos: Administrativo y Financiero, Legal, Estudios Territoriales y Operaciones Regionales los cuáles prestan servicio a la administración en general.

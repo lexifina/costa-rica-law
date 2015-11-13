@@ -1,0 +1,1 @@
+Artículo 102.—El acoso psicológico y moral en el trabajo se considera falta grave (Art. 111 Decreto Ejecutivo 32300-P del 28- 03-2005) y todo funcionario a quien se le compruebe el o los hechos denunciados, podrá ser despedido sin responsabilidad patronal (previo procedimiento administrativo).

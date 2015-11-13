@@ -1,0 +1,4 @@
+Artículo 11.—Los contratos de trabajo serán:
+a. Por tiempo indefinido: Cuando el trabajador conviene en prestar sus servicios durante un tiempo cuyo fin no puede preverse, por ser la naturaleza del trabajo inherente a las actividades normales de la Institución.
+b. Plazo fijo: Cuando el trabajador conviene en prestar sus servicios durante un período determinado, cuya iniciación y terminación se conocen previamente. Estos nombramientos se podrán efectuar para sustituir a quienes se encuentran en disfrute de vacaciones, licencias, incapacidades, etc., cumplido el plazo fenece la relación laboral sin responsabilidad para ambas partes.
+c. Por obra determinada: Cuando el trabajador conviene en prestar sus servicios para la realización de un trabajo u obra específica, en cuyo caso se conoce la fecha de inicio, pero se ignora su terminación.

@@ -1,0 +1,1 @@
+Artículo 59.—Toda servidora de la Institución que se encontrase en estado de embarazo, gozará obligatoriamente de una incapacidad por maternidad conforme a lo establecido por ley. Adicionalmente tiene derecho al período de lactancia conforme a lo establecido en la ley.

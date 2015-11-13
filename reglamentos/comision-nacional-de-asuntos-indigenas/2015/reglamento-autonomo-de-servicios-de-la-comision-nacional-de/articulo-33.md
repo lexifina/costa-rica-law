@@ -1,0 +1,1 @@
+Artículo 33.—El trabajador, caso de inconformidad con el monto recibido, monto total devengado o deducciones hechas deberá reclamar lo correspondiente ante la Dirección Administrativa y Financiera. En todo caso, las reclamaciones por parte del trabajador, sobre diferencias en el pago de salario.

@@ -1,0 +1,1 @@
+Artículo 52.—El Director Ejecutivo podrá otorgar permiso con o sin goce de salario hasta por un plazo de 2 meses y la Junta Directiva hasta por un año, lo cual es una potestad discrecional de la CONAI.

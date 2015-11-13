@@ -1,0 +1,1 @@
+Artículo 81.—El Órgano Disciplinario podrá ser colegiado o unipersonal y lo instaurará la Junta Directiva o la Dirección Ejecutiva siempre que se le haya otorgado por acuerdo de Junta Directiva la potestad disciplinaria.

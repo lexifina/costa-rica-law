@@ -1,0 +1,3 @@
+CAPÍTULO XX
+Disposiciones finales
+Artículo 104.—A falta de disposiciones en el presente Reglamento, aplicables a un caso determinado, deberán tenerse como normas supletorias la Ley General de Administración Pública, el Código de Trabajo y los convenios internacionales suscritos y ratificados en materia laboral, estatuto y reglamento del servicio civil demás leyes y reglamentos afines, que se hayan emitido o se emitan en el futuro con el objeto de regular económicamente y socialmente las relaciones obrero patronales, así como las circunstancias que emitan los representantes patronales para normar la prestación de servicios.

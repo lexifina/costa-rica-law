@@ -1,0 +1,1 @@
+Artículo 85.—La calificación de las faltas, como leves o graves, para efectos de su sanción y en los casos en que no esté específicamente indicado en este Reglamento, será a juicio de la Junta Directiva de CONAI conforme lo que establece la legislación laboral vigente.

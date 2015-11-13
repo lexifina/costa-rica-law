@@ -1,0 +1,1 @@
+Artículo 93.—La persona ofendida podrá proponer al Órgano Director su posible reubicación temporal en cualquier momento del procedimiento. El Órgano Director comendará lo pertinente al Director Ejecutivo, el cual resolverá en primera instancia y ante Junta Directiva como segunda instancia.

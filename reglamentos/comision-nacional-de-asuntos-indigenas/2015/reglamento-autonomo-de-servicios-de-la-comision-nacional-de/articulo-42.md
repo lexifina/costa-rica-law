@@ -1,0 +1,1 @@
+Artículo 42.—Una vez concedidas las vacaciones, ningún jerarca de la CONAI puede, sin el consentimiento del trabajador, suspender el disfrute de las mismas, aunque se trate de asuntos urgentes de trabajo.

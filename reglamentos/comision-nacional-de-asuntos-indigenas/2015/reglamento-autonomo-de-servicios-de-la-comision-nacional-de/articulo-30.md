@@ -1,0 +1,1 @@
+Artículo 30.—El salario comprende el pago del trabajo por jornada ordinaria de 40 horas semanales para los empleados administrativos y de 72 horas semanales para los guardas. El pago cubre los descansos semanales, feriados y asuetos que incidan y estén comprendidos en el período.

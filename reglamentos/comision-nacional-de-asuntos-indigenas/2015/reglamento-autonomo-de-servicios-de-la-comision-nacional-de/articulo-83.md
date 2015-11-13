@@ -1,0 +1,1 @@
+Artículo 83.—La amonestación escrita se aplicará: Cuando incumpla alguna de las obligaciones y responsabilidades que le imponga el contrato de trabajo, si la falta no diera mérito a una sanción mayor. En los casos especialmente previstos en este Reglamento, y cuando las leyes de trabajo exijan la amonestación escrita previo al despido.

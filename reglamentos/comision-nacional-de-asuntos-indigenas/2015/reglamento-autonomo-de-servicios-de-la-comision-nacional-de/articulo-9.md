@@ -1,0 +1,1 @@
+Artículo 9º—Los empleados que procedan de los Poderes del Estado, de sus Instituciones Autónomas, Semi-autónomas, Municipalidades y Centros de Educación Superior del Estado, que se trasladen a servir a la CONAI conservarán su antigüedad laboral, para efectos de vacaciones, preaviso, cesantía y reconocimiento salarial por ese motivo.

@@ -1,0 +1,1 @@
+Artículo 18.—La jornada que se labore fuera de los límites establecidos en el artículo 19 de este Reglamento, constituye jornada extraordinaria y deberá ser compensada en la forma prevista en el artículo siguiente, excepto la de los guardas que por la propia naturaleza de sus funciones laboran la jornada máxima legal.

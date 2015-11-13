@@ -1,0 +1,1 @@
+Artículo 12.—El trabajo de las mujeres y menores de edad se regirá, además de lo establecido en este Reglamento, por lo dispuesto en el Código de Trabajo y Legislación conexa vigente aplicable a esa materia.

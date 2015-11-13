@@ -1,0 +1,1 @@
+Artículo 28.—Se entenderá que todo salario cubre el pago mensual de la respectiva jornada de trabajo. Si se conviniere que el servidor trabaje menos tiempo del señalado en el horario oficial, devengará el sueldo proporcional a la jornada convenida. Ningún servidor regular devengará un sueldo inferior al mínimo de la respectiva categoría.

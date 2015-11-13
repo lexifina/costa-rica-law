@@ -1,0 +1,1 @@
+Artículo 97.—Quien denuncie hostigamiento sexual falso podrá incurrir, cuando así se tipifique, en cuales quiera de las conductas propias de la difamación, la injuria o la calumnia, según el Código Penal costarricense.

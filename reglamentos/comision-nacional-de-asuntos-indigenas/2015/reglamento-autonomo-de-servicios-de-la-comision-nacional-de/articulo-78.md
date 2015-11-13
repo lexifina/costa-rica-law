@@ -1,0 +1,1 @@
+Artículo 78.—Las solicitudes, peticiones, quejas o reclamos planteados por los trabajadores siguiendo los procedimientos indicados en este Capítulo y cualquiera que sea el funcionario que las atienda, serán resueltas tomando en consideración los derechos subjetivos del trabajador.

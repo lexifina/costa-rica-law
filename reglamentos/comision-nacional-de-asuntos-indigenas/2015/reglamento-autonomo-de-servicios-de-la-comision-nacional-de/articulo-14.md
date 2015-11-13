@@ -1,0 +1,1 @@
+Artículo 14.—La jornada ordinaria de trabajo para los empleados de la Institución será de ocho horas diarias, de lunes a viernes jornada continua, de las 8 horas a las 16 horas, sea cuarenta horas por semana. La jornada ordinaria de los guardas será continua de 12 horas diarias, según el turno de vigilancia que les corresponda, sea setenta y dos horas por semana.

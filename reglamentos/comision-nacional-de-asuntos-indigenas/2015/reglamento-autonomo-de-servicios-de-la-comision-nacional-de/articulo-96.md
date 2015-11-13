@@ -1,0 +1,1 @@
+Artículo 96.—Todo denunciado o testigo de un acoso sexual u hostigamiento tienen la garantía de que no sufrirá perjuicio alguno por sus declaraciones, siempre que éstas no sean difamantes, injuriosas o calumniosas.
