@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Suministros de información
+Artículo 24.—Información suministrada por la Caja Costarricense de Seguro Social. Sin perjuicio de que le sea requerida otro tipo de información por parte de la Administración Tributaria, de acuerdo con las facultades establecidas el artículo 105 del Código de Normas y Procedimientos Tributarios, la Caja Costarricense del Seguro Social deberá suministrarle, dentro de los primeros quince días naturales de cada año, el nombre y número de identificación de los empleados contratados durante el período fiscal anterior por las empresas de recepción, procesamiento y enlace de llamadas de apuestas electrónicas.

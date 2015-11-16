@@ -1,0 +1,1 @@
+Artículo 6º—Plazo de la autorización. La autorización extendida por el Ministerio de Seguridad Pública tendrá una vigencia de cinco años, no obstante podrá ser revocada si se determina que incumple con las disposiciones de la Ley Nº 9050 y de este reglamento, sin perjuicio de las sanciones que correspondan.

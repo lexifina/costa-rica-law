@@ -1,0 +1,1 @@
+Artículo 10.—Aplicación de Ley N° 7786. A los casinos se les aplicará lo dispuesto en los artículos 15 bis, 20, 23, 24 y 25 de la Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, Ley N° 7786 de 30 de abril de 1998, y sus reformas.

@@ -1,0 +1,2 @@
+Artículo 9º—Modificación del número de mesas de juego y/o máquinas tragamonedas. Todo aumento o disminución del número de mesas de juego y/o máquinas tragamonedas de un Casino en operación, debe contar con la debida autorización del Ministerio de Seguridad Pública, el cual lo comunicará a la Dirección General de Tributación.
+El Ministerio de Seguridad Pública definirá mediante resolución general, el procedimiento de autorización y los requisitos que deberá aportar el interesado.

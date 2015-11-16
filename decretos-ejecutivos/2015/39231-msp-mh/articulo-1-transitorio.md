@@ -1,0 +1,1 @@
+Transitorio I.—En tanto no existan profesionales o entidades avaladas por el Ministerio de Seguridad Pública de las indicadas en el inciso d) del artículo 4° de este Reglamento, la certificación podrá ser expedida por un profesional en Informática debidamente incorporado al Colegio Profesional respectivo.

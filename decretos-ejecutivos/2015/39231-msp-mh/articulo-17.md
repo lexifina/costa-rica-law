@@ -1,0 +1,1 @@
+Artículo 17.—Explotación sin la debida autorización. En caso de que se explote un casino, mesas de juego, o máquinas tragamonedas sin la debida autorización, o que no estén en un hotel, se gravarán por las utilidades que genere su explotación, conforme al artículo 13 del Código de Normas y Procedimientos Tributarios, sin perjuicio de las sanciones que correspondan.
