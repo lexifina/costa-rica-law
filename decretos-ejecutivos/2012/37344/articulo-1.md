@@ -13,5 +13,5 @@ Artículo 1º—Nombrar como parte de los miembros que integran la Comisión Nac
 1. Miembro propietario:
 a. (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 37935 del 29 de julio del 2013 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 2. Miembros suplentes:
-a. Eugenia Arguedas Montezuma, representante del Sistema Nacional de Áreas de Conservación.
+a. (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 39485 del 16 de noviembre del 2015 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")
 b. (Derogado este inciso por el artículo 3° del decreto ejecutivo N° 37935 del 29 de julio del 2013 "Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad")

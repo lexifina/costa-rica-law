@@ -15,3 +15,4 @@ Nombra miembro de la Comisión Nacional para la Gestión de la Biodiversidad
 | --- | --- | --- |
 | 1 | 2012-11-14 | la propia norma |
 | 2 | 2013-07-29 | Decreto Ejecutivo 37935 (2013-07-29) |
+| 3 | 2015-11-16 | Decreto Ejecutivo 39485 (2015-11-16) |
