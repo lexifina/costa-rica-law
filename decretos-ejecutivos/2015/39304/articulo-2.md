@@ -1,0 +1,1 @@
+Artículo 2°—El Poder Ejecutivo deberá negociar el establecimiento de un Convenio de Cooperación con la Junta de Administración Portuaria y de Desarrollo Económico de la Vertiente Atlántica para establecer las regulaciones de seguridad en coordinación con los miembros de la Fuerza Pública.
