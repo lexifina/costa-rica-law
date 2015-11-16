@@ -21,3 +21,4 @@ Reglamento Régimen de Pensión Complementaria.
 | 6 | 2011-02-22 | Reglamento 5939 (2011-02-22) |
 | 7 | 2013-11-18 | Reglamento 6067 (2013-11-18) |
 | 8 | 2013-11-18 | Reglamento 6067 (2013-11-18) |
+| 9 | 2015-11-16 | Reglamento 6155 (2015-11-16) |
