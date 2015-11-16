@@ -75,3 +75,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | 60 | 2015-03-10 | Decreto Ejecutivo 39014 (2015-03-10) |
 | 61 | 2015-05-25 | Decreto Ejecutivo 39075 (2015-05-25) |
 | 62 | 2015-10-13 | Decreto Ejecutivo 39410 (2015-10-13) |
+| 63 | 2015-11-16 | Decreto Ejecutivo 39485 (2015-11-16) |
