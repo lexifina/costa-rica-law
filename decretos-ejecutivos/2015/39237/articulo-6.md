@@ -1,0 +1,2 @@
+Artículo 6º—Obligatoriedad de Informar a la Contraloría. Será obligación de los funcionarios del Cosevi, atender todo requerimiento formulado por la Contraloría de Servicios según las potestades, atribuciones y funciones asignadas por el ordenamiento jurídico vigente, dentro de los tres días hábiles posteriores al recibo de la solicitud.
+Este plazo podrá prorrogarse en aquellos casos que estén debidamente justificados hasta un lapso no mayor a los diez días hábiles, a solicitud de parte.

@@ -1,0 +1,1 @@
+Artículo 8º—Continuidad de los servicios prestados. Bajo ninguna circunstancia, la solicitud que plantee el usuario podrá afectar la continuidad, eficiencia y calidad de los servicios que brinde el Cosevi.

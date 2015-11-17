@@ -1,0 +1,1 @@
+Artículo 10.—Ejecución de las recomendaciones. Si producto de las recomendaciones que emita la Contraloría existe la posibilidad de introducir mejoras en los trámites del Cosevi, lo hará del conocimiento de la Dirección Ejecutiva, para que a su vez, estudie, proponga e implemente de forma coordinada con las dependencias las mejoras del caso en los distintos trámites.
