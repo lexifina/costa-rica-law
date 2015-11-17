@@ -15,3 +15,4 @@ Resolución N° 315-2013 (COMIECO-EX) de 5 de julio de 2013 y anexo "Reglamento 
 | --- | --- | --- |
 | 1 | 2013-09-26 | la propia norma |
 | 2 | 2014-01-07 | Decreto Ejecutivo 38353 (2014-01-07) |
+| 3 | 2015-11-17 | Decreto Ejecutivo 39432 (2015-11-17) |

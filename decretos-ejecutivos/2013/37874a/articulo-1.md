@@ -45,7 +45,8 @@ Anexo 1: El Anexo que se refiere a la eliminación de Aranceles Aduaneros del Ac
 Apéndice 1: El Apéndice 1 al Anexo 1 del acuerdo en el que se establece las cuotas de importación otorgadas por la República Centroamericana para los productos originarios procedentes de la Unión Europea.
 Apéndice 2: El Apéndice 2 al Anexo 2 del acuerdo en el que se establece las cuotas de importación otorgadas por la Unión Europea para los productos originarios procedentes de Centroamérica.
 Apéndice 2 A: El Apéndice 2 al Anexo 2 del acuerdo en el que se establece el Adendum de la lista de las elaboraciones o transformaciones que deben aplicarse a los materiales no originarios para que el producto trasformado pueda obtener el carácter originario.
-Certificado de Exportación: Documento requerido en el país de importación para utilizar los contingentes establecidos en el Apéndice 2 y en el Apéndice 2 A
+Certificado de Exportación: documento requerido en el país de Importación para utilizar los contingentes establecidos en los apéndices 1, 2 Y 2A, notificados por las Partes del Acuerdo.
+(Así reformada la definición anterior por Resolución N° 348-2014 (COMIECO-LXVIII) del 27 de junio del 2014, que contienen modificaciones Reglamento Centroamericano para la Administración de contingentes regionales del acuerdo de Asociación Centroamericana, la Unión Europea, aprobado por el arrtículo 2° del decreto ejecutivo N° 39432 del 17 de noviembre del 2015)
 CN 07 o NC 07: Nomenclatura del Sistema de Clasificación Arancelaria de la Unión Europea al 2007 (Combined Nomenclature 2007)
 Contingentes de exportación regionales: los volúmenes otorgados a Centroamérica por la Unión Europea conforme con las disposiciones del Apéndice 2 y en el Apéndice 2 A.
 Contingentes de importación regionales: los volúmenes otorgados por la Unión Europea por las Repúblicas Centroamericanas, conforme con las disposiciones del Apéndice 1.
