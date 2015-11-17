@@ -1,2 +1,5 @@
 ARTÍCULO XXIII
-El Secretario Ejecutivo gozará en el territorio de cada uno de los Estados Miembros de la capacidad jurídica y los privilegios indispensables para el ejercicio de sus funciones, de conformidad con la legislación interna de cada una de las Partes.
+La Conferencia de Autoridades Audiovisuales y Cinematográficas de Iberoamérica (CAACI) podrá establecer Comisiones de Trabajo en las áreas de producción, distribución y exhibición cinematográfica u otras de interés. Las comisiones de trabajo estarán integradas por los representantes de los Estados Parte interesados y tendrán las funciones que la CAACI estime apropiadas.
+En cada una de las Partes funcionará una comisión de trabajo para la aplicación de este Convenio, la cual estará presidida por la autoridad cinematográfica designada por su respectivo gobierno.
+(Así enmendado por el artículo 16 del Tratado Internacional N° 9311 del 25 de agosto de 2015, "Protocolo de Enmienda al Convenio de Integración Cinematográfica y Audiovisual Iberoamericana")
+(Corrida su numeración por el artículo 22 del Tratado Internacional N° 9311 del 25 de agosto de 2015, "Protocolo de Enmienda al Convenio de Integración Cinematográfica y Audiovisual Iberoamericana", que lo traspaso del antiguo artículo XXII al XXIII)
