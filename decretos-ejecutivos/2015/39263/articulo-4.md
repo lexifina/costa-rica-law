@@ -1,0 +1,1 @@
+Artículo 4º—El AyA deberá cumplir con cada una de las recomendaciones y medidas de compensación que establezcan las autoridades de la Oficina Subregional de Nicoya del Área de Conservación Tempisque. Esta acción y las derivadas de la misma se resolverán en coordinación con dicha oficina, la que por su parte certificará el cumplimiento de lo anterior.

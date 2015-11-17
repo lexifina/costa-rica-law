@@ -1,0 +1,1 @@
+Artículo 3º—En virtud de la presente declaratoria, El AyA, previa autorización de la Oficina Subregional de Nicoya del Área de Conservación Tempisque, del Sistema Nacional de Áreas de Conservación, podrá proceder a la corta de árboles y al desarrollo de las obras de infraestructura, según se indica en el proyecto.
