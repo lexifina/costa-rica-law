@@ -1,0 +1,5 @@
+ARTICULO IX
+LEGISLACIÓN APLICABLE
+1. Las Leyes y Reglamentos de una Parte Contratante que regulan la entrada, permanencia y salida de su territorio de una aeronave empleada en navegación aérea internacional o vuelos de esta aeronave sobre ese territorio, deberán también aplicarse a la línea o líneas aéreas de la otra Parte Contratante.
+2. Las Leyes y Reglamentos de una Parte Contratante que regulan la entrada, la permanencia y salida de su territorio de pasajeros, tripulaciones, equipajes, carga y correo, tales como formalidades para la entrada y salida, inmigración y emigración, como también las medidas aduaneras y sanitarias, se aplicarán a pasajeros, tripulaciones, equipajes, carga y correo transportados por las aeronaves de la línea o líneas aéreas designadas de la otra Parte Contratante, mientras éstos se encuentren dentro del mencionado territorio.
+3. Los pasajeros en tránsito a través del territorio de cualquiera de las Partes Contratantes estarán sujetos, únicamente, a un control simplificado.
