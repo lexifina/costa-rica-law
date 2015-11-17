@@ -1,0 +1,3 @@
+Artículo 51.- Supervisión y control según se trate de avales individuales o de cartera. El FODEMIPYME será supervisado estrictamente por el Banco Popular, mediante los controles que establezca la Junta Directiva Nacional y por medio de la auditoría interna.
+El Fondo no estará sujeto a las regulaciones emanadas de la SUGEF o del órgano que la llegue a sustituir, toda vez que sus recursos no provienen del proceso de intermediación financiera.
+Independientemente de lo anterior, por tratarse de fondos públicos que se dan en administración, el FODEMIPYME estará sujeto a los controles emanados por la Contraloría General de la República.

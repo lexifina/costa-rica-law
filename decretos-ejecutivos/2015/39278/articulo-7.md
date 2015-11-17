@@ -1,0 +1,7 @@
+Artículo 7- Principios del Fondo de Avales y Garantías.
+a) Acceso: Este principio se relaciona con las empresas o clientes que serán atendidos, que deberán ser sólo aquellos que cuenten con proyectos viables y que requieran esta facilidad por insuficiencia de garantías.
+b) Adicionalidad: Es la cantidad de financiamiento adicional que se genera y la posibilidad de una mayor cobertura a las empresas, debido a la existencia de un sistema de garantías exitoso; cuanto más alta la adicionalidad más justificadas se encuentran su continuidad y la adopción de políticas que preserven su existencia.
+c) Beneficio de los usuarios: El fondo de garantía debe servir para brindar, como valor agregado, mejoras en las condiciones de las operaciones, tales como plazos más largos, menores requisitos de colateral y tasas de interés más bajas.
+d) Equidad: El fondo deberá implementar mecanismos que procuren la participación del mayor número de entidades operadoras, para evitar la concentración entre estas y entre sectores económicos.
+e) Sostenibilidad: Es el principio que permite que el Fondo se mantenga en el tiempo, debiendo reflejar, de manera precisa, el costo del sistema para su efectiva permanencia.
+f) Supervisión y control: Debe contemplar una serie de elementos que permitan mantener la sostenibilidad del fondo, así como acatar todos los lineamientos establecidos para el buen manejo de los fondos públicos.

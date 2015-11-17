@@ -1,0 +1,1 @@
+Artículo 3- Objetivos del FODEMIPYME. El objetivo del FODEMIPYME es fomenter y fortalecer el desarrollo de la micro, pequeña y mediana empresa (PYME), y de las empresas de la economía social económicamente viables y generadoras de puestos de trabajo.

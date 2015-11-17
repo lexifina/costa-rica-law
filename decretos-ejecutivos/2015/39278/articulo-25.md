@@ -1,0 +1,2 @@
+Artículo 25.- Monto máximo de los honramientos. El monto máximo del aval o garantía a liquidar para cada operación de crédito, se calculará como el porcentaje comprometido, sobre el saldo del principal al momento de caer en mora. El avalista no asume responsabilidad por los intereses, costos, ni otros rubros que se generen en el proceso judicial.
+Esta condición se hará constar en el contrato firmado entre el operador y la Unidad Técnica de FODEMIPYME.

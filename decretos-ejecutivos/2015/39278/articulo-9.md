@@ -1,0 +1,1 @@
+Artículo 9- Apalancamiento. La Unidad Técnica de FODEMIPYME, en busca del cumplimiento de los principios que le rigen, podrá otorgar un monto total de avales, superior al valor total del fondo, en una proporción fijada de acuerdo con criterios técnicos, estándares internacionales y el comportamiento de las operaciones avaladas.

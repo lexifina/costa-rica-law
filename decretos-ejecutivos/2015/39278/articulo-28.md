@@ -1,0 +1,1 @@
+Artículo 28.- Recuperaciones de montos honrados. De existir remanentes en la recuperación de las garantías que el cliente otorgó como respaldo de la operación, la entidad operadora deberá trasladar esos remanentes al FODEMIPYME.

@@ -1,0 +1,9 @@
+Artículo 15.- Compromisos de los operadores. Cada operador se compromete a:
+a) Mantener informada y actualizada a la Unidad Técnica del FODEMIPYME sobre las condiciones y políticas crediticias vigentes en su organización, que incluyan los bienes que por política interna no se consideren como garantía.
+b) Enviar mensualmente a la Unidad Técnica del FODEMIPYME, dentro de los primeros ocho días hábiles, un informe de los avales vigentes con las variables establecidas por la Unidad Técnica del FODEMIPYME, de manera que se puedan generar estadísticas de la incidencia del fondo de avales.
+c) Pagar mensualmente a FODEMIPYME el monto correspondiente a la comisión por otorgamiento de la garantía, independientemente de la forma de cobro que establezca con el usuario y del estatus de pago de cada operación. El monto de la comisión se calculará con base en el saldo de la cartera avalada.
+d) Aplicar un modelo de calificación según lo descrito en el artículo 8 de este reglamento, para el otorgamiento de avales crediticios.
+e) Para otorgar un aval, deberá velar por el cumplimiento de las condiciones establecidas en la Ley Nº 8262 y su reglamentación, según el siguiente detalle:
+i) Documentar que se cumple con la condición PYME o de empresa de economía social, según el Reglamento a la Ley N° 8262 y el presente reglamento.
+ii) Documentar que al momento de otorgamiento del aval, el beneficiario cumple con el requisito de insuficiencia de garantía establecido en la Ley Nº 8262 y en la definición del presente reglamento. Aportando como documento probatorio el studio de registro hecho al momento de otorgar el crédito. En caso de aparecer bienes que no se tomaron en cuenta por tener restricciones o por política restrictiva del operador, aportar la evidencia de esta situación.
+f) Informar a la Unidad Técnica del FODEMIPYME cualquier cambio en los contratos de crédito otorgados con un aval individual.

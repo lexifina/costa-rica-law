@@ -1,0 +1,6 @@
+Artículo 24.- Honramientos de avales.
+a) Para el caso de los avales crediticios, la Unidad Técnica de FODEMIPYME tramitará el pago de los avales en forma irrevocable e incondicional, luego de transcurridos setenta días naturales, conforme se establece en el numeral 09 de la Ley 8262 "Ley de Fortalecimiento a las Pequeñas y Medianas Empresas"; contados a partir del incumplimiento del deudor con el ente financiero que otorgó un crédito avalado.
+Para tales efectos, la entidad operadora presentará la solicitud en cualquier momento, luego de transcurrido el plazo antes dicho, junto con toda la documentación que demuestre que ha cumplido con la debida diligencia de las gestiones de cobro administrativo, el operador deberá enviar a la Unidad Técnica de FODEMIPYME copia del expediente.
+b) En el caso de garantías de participación y cumplimiento la Unidad Técnica de FODEMIPYME tramitará el pago de los avales, a partir del incumplimiento de los carteles de licitación y del contrato de adjudicación, respectivamente.
+Para hacer efectivo el aval, el operador deberá enviar a la Unidad Técnica de FODEMIPYME copia del expediente.
+FODEMIPYME pagará el aval a más tardar quince días naturales después de presentada la solicitud del operador.

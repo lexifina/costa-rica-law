@@ -1,0 +1,2 @@
+Artículo 48.- Pagos a los oferentes de servicios de desarrollo empresarial. Además de las disposiciones de la Unidad Técnica del FODEMIPYME, en ningún caso se desembolsará por adelantado el total del pago por concepto de los servicios de desarrollo empresarial prestados para la ejecución del proyecto o programa.
+Para los pagos parciales o finales de los servicios, los proveedores de servicios de desarrollo empresarial deberán presentar los correspondientes informes, a satisfacción de la entidad proponente.

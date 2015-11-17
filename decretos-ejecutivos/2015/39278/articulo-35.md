@@ -1,0 +1,1 @@
+Artículo 35.- Exenciones. Las operaciones que se realicen con recursos del FODEMIPYME, estarán exentas del tributo que pesa sobre la inscripción de documentos o garantías en el Registro Público; tal y como lo establece el artículo 12 de la Ley N º 8262.
