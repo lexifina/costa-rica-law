@@ -1,0 +1,1 @@
+Artículo 7º—Responsabilidad sobre el control interno. Es responsabilidad exclusiva de la Administración Activa establecer, mantener, perfeccionar y evaluar el Sistema de Control Interno. Asimismo es responsable de tomar las medidas necesarias para garantizar su efectivo funcionamiento.

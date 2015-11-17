@@ -1,0 +1,1 @@
+Artículo 9º—Objetivo de la Auditoría Interna. El objetivo de la Auditoría Interna es contribuir con el CONAVI en el cumplimiento de sus objetivos, mediante asesorías y evaluaciones apegadas al marco legal, técnico y a las sanas prácticas.

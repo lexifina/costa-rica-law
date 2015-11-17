@@ -1,0 +1,2 @@
+Artículo 16.—Estructura. La Auditoría Interna está organizada como unidad funcional por áreas conformadas en equipos de trabajo, según lo disponga el Auditor (a) Interno (a), cada una tendrá un Auditor (a) Supervisor/Coordinador (a), con el propósito de garantizar el cumplimiento de sus competencias y una administración eficaz, eficiente y económica de sus recursos y el aseguramiento de la calidad de sus productos.
+La actividad de todo el personal de la Auditoría Interna se realiza en jornada laboral de tiempo completo.

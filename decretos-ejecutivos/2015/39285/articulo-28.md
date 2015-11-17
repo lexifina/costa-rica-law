@@ -1,0 +1,1 @@
+Artículo 28.—Apoyo técnico o profesional. La Auditoría Interna tiene la facultad de incorporar profesionales o técnicos de diferentes disciplinas, funcionarios o no de la Institución, para que se lleven a cabo las labores de su especialidad en apoyo a las auditorías que realice.

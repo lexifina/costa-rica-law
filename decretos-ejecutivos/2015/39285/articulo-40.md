@@ -1,0 +1,1 @@
+Artículo 40.—Plazos: La Auditoría Interna deberá señalar a la Administración Activa, en función de la razonabilidad, complejidad, urgencia y la oportunidad, el plazo en el cual debe de suministrarse la documentación requerida. La ampliación del plazo queda a criterio de la Auditoría, previa solicitud por escrito de la Administración Activa.

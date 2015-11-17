@@ -1,0 +1,1 @@
+Artículo 49.—Confidencialidad de denuncias. Los artículos 6 de la Ley N° 8292 y el 8 de la Ley N° 8422 establecen que las auditorías internas deben guardar confidencialidad respecto de la identidad de los denunciantes, la información, la documentación y otras evidencias de las investigaciones que se efectúen.

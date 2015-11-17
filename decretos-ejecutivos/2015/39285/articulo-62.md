@@ -1,0 +1,1 @@
+Artículo 62.—Derogatoria. El presente decreto deroga el Reglamento de Organización y Funcionamiento de la Auditoría Interna, publicado, en La Gaceta Nº 226 del 21 de noviembre del 2008, mediante decreto ejecutivo Nº 34877-MOPT, así como cualquier otra disposición interna que se le oponga.

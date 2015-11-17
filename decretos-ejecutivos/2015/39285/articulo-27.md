@@ -1,0 +1,1 @@
+Artículo 27.—Asesoría General. Es obligación del Área Jurídica y de las áreas técnicas brindar asesoría a la Auditoría Interna en forma efectiva y oportuna cuando así lo requiera, a fin de establecer adecuadamente su ámbito de acción y atender las necesidades de orden jurídico y técnico conforme con el inciso c), artículo 33, de la Ley N° 8292.
