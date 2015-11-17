@@ -1,0 +1,1 @@
+Artículo 11.—Nulidad de las notificaciones. Será nula la notificación practicada en forma contraria a lo previsto en este reglamento, salvo lo dispuesto en el artículo siguiente. En todo caso, la nulidad se decretará solo cuando se le haya causado indefensión a la parte involucrada.

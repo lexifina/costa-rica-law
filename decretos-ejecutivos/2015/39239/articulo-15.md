@@ -1,0 +1,1 @@
+Artículo 15.—Interrupción del sistema. Cuando el sistema de envío electrónico de notificaciones se interrumpa por cualquier motivo, la notificación se hará una vez restablecido el sistema. El servidor encargado deberá verificar las comunicaciones no transmitidas y hacer el envío de inmediato.

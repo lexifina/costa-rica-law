@@ -1,0 +1,1 @@
+Artículo 9º—Requisitos de la notificación. Toda notificación de las Unidades de Impugnación de Boletas de Citación del Cosevi contendrá el número de expediente, la sede de la unidad de impugnación emisora, los nombres y los apellidos de quien recurre y si es el caso, del propietario registral del vehículo involucrado y la copia de la resolución que se comunica.
