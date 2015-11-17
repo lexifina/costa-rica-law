@@ -1,0 +1,1 @@
+Artículo 53. Deber de fomentar el dialogo y buscar acuerdos: El mediador deberá poner diligencia en tratar de lograr la pronta conclusión del procedimiento, sin que por ello presione a las partes para lograr acuerdos que no satisfagan los intereses de éstas.

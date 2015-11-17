@@ -1,0 +1,1 @@
+Artículo 13. Las partes evaluarán la labor del mediador al término de la audiencia de mediación. Entiéndase que la audiencia es una sola, pudiendo llevarse a cabo durante varias sesiones de mediación, según los requerimientos del caso específico.

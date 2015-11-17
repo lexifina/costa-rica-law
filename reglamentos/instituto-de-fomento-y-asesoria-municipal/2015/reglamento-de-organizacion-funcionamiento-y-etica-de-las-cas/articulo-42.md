@@ -1,0 +1,1 @@
+Artículo 42. Profesionalismo: Los neutrales deben poner a disposición de las partes todas sus habilidades y todo su esfuerzo a fin de concluir los procesos de mediación/conciliación con la mayor excelencia, profesionalismo e imparcialidad.

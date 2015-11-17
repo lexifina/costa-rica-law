@@ -1,0 +1,1 @@
+Artículo 40. Otras normas aplicables: Las normas éticas que se establecen a continuación constituyen principios generales por lo cual no son limitativas ni excluyentes de otras reglas más estrictas derivadas, de la Ley sobre Resolución Alterna de Conflictos y Promoción de la Paz Social, número 7727.

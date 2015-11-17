@@ -1,0 +1,1 @@
+Artículo 26. En caso de que se produzca un conflicto entre las partes y el coordinador, por la designación del mediador, éste último será designado por la Dirección Nacional de Resolución Alterna de Conflictos, sin que exista recurso alguno contra dicha designación.”.

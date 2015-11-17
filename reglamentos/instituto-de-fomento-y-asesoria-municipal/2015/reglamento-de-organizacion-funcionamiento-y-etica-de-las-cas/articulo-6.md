@@ -1,0 +1,1 @@
+Artículo 6. De los Mediadores: La Casa de Justicia mantendrá el listado de sus Mediadores, así como los curriculums actualizados de éstos, los mismos que deberán contener documentación que acredite su formación académica y su especialización en materia de mediación.

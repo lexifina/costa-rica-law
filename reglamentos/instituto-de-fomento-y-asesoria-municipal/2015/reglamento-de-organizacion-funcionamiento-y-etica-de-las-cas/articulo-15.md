@@ -1,0 +1,1 @@
+Artículo 15. Para ser mediador de la Casa de Justicia de Moravia, se requiere estar debidamente capacitado en métodos de Resolución Alterna de Conflictos, y autorizado por la Dirección Nacional de Resolución Alterna de Conflictos, para llevar a cabo proceso de mediación/conciliación.

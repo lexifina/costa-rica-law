@@ -1,0 +1,1 @@
+Artículo 44. Cobro de Honorarios: Ninguna persona que labore en la Casa de Justicia, de forma permanente o temporal, podrá cobrar suma alguna a los usuarios por los servicios que presta, por concepto de honorarios. Los servicios que se brindan serán totalmente gratuitos.

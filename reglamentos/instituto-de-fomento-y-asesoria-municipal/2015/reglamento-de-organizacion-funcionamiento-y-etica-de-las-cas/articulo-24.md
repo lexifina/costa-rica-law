@@ -1,0 +1,1 @@
+Artículo 24. En caso de no asistencia de una de las partes a la audiencia de mediación/conciliación, el mediador cursará nueva invitación, debiendo señalarse nueva fecha para la audiencia. Si ninguna de las partes concurriera a la audiencia de mediación/conciliación, ya sea en la primera o en la segunda invitación, el mediador dará por concluido el proceso de mediación.

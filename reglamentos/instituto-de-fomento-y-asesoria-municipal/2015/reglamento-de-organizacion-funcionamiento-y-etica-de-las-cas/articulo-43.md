@@ -1,0 +1,1 @@
+Artículo 43. Incompatibilidad: Ningún funcionario de la Casa de Justicia, ni sus mediadores podrán atender profesionalmente a alguna de las partes intervinientes en un proceso de mediación, ni asociarse con ella (s), dentro de seis meses siguientes contados a partir del momento de finalización el proceso de mediación.

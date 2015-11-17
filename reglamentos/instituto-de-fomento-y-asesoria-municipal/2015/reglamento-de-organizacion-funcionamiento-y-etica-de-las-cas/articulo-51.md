@@ -1,0 +1,1 @@
+Artículo 51. Control de las partes: El procedimiento de mediación pertenece a las partes, que delegan su conducción al mediador. Este, no tiene interés particular en el resultado o en los términos del acuerdo y sus consecuencias para las partes, pero debe velar por la integridad, viabilidad y formalidades legales del acuerdo.

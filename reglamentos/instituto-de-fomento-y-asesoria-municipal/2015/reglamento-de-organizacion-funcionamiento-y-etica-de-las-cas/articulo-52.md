@@ -1,0 +1,1 @@
+Articulo 52. Intereses no representados: Cuando el mediador advierta que existen intereses no presentes ni representados en la mediación, que las partes no han considerado y pudieran resultar afectados por el acuerdo, deberá hacerlo saber a los participantes y sugerir la integración del procedimiento con terceros.

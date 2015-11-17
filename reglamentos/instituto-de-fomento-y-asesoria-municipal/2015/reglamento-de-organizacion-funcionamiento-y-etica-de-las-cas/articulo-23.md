@@ -1,0 +1,1 @@
+Artículo 23. Si alguna de las partes no estuviera conforme con la designación del mediador, deberá ponerlo en conocimiento del Coordinador de la Casa de Justicia de previo a la audiencia de mediación/conciliación. Si hubiere mérito para ello, designará un nuevo mediador, quien llevará a cabo la audiencia.
