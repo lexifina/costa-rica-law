@@ -1,0 +1,1 @@
+Artículo 9°—Vigencia. Esta promoción tiene vigencia del 17 de noviembre del 2015 al 8 de diciembre del 2015 y la lotería participante corresponde a los sorteos de Lotería Nacional y Lotería Popular de los sorteos que se indicaron en el artículo 5) del presente procedimiento.
