@@ -1,1 +1,2 @@
-ARTÍCULO 4: Los funcionarios que tienen la Representación del CUC son el Decano y el Consejo Directivo en la figura de la Presidencia, quienes quedarán constituidos como Representante Patronal en las relaciones, actos y disposiciones de índole laboral que ejerzan sobre los demás funcionarios del CUC.
+ARTÍCULO 4: El funcionario que tiene la Representación Judicial y Extrajudicial del CUC es el Decano, quien quedará constituido como Representante Patronal en las relaciones, actos y disposiciones de índole laboral que ejerzan sobre los demás funcionarios del CUC.
+(Así reformado en sesión N° 3281 del 17 de noviembre de 2015)
