@@ -1,0 +1,4 @@
+Artículo 39.—Plazos para suministrar información a la Auditoría Interna. En cada caso, la Auditoría Interna señalará el plazo en el cual debe suministrarse la información o documentos que solicite. Este plazo se definirá considerando la importancia y urgencia que lo solicitado represente para la oportuna ejecución de las funciones.
+El incumplimiento de lo anterior deberá ser informado a la Dirección Ejecutiva por parte de la Auditoría Interna, para que ordene las medidas disciplinarias que correspondan.
+Cuando alguna unidad o funcionario no pueda suministrar la información o los documentos solicitados en el plazo establecido, deberá comunicarlo a la Auditoría Interna dentro de los dos días hábiles siguientes al recibo de la solicitud.
+En casos debidamente justificados, la Auditoría Interna podrá prorrogar el plazo originalmente establecido para el suministro de la información.

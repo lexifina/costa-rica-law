@@ -1,0 +1,3 @@
+Artículo 52.—Plazos para atender informes de auditoría y de Relaciones de Hechos. Los informes de control interno, parciales y finales, y de Relaciones de Hechos, están sujetos al trámite y plazos improrrogables previstos en los artículos del 36 al 38 de la Ley General de Control Interno, excepto aquellos que la Contraloría General de la República determine.
+El incumplimiento de lo estipulado en los artículos 36 al 38 anteriormente citados, es causal de responsabilidad administrativa conforme lo dispuesto en los artículos 39 y 40 de la precitada ley.
+Los plazos señalados en tales artículos empezarán a correr a partir del recibo del informe por parte de los titulares subordinados, o por parte de la Junta Directiva.

@@ -1,0 +1,3 @@
+Artículo 3º—Trámite del presente Reglamento:
+a) Cuando se deban introducir modificaciones al articulado, el Jerarca y el Auditor Interno deben concluir el proceso y su aprobación en firme en un plazo máximo de dos meses naturales, a partir de la fecha en que uno u otro haga la propuesta de modificación. Asimismo, las discrepancias de criterio sobre dichas modificaciones deben someterse a conocimiento de la Contraloría General de la República, la que dispondrá lo que proceda.
+b) Para efectos de aprobación por parte del órgano contralor, el Auditor Interno deberá emitir una certificación que indique que el documento aprobado por la Junta Directiva cumple con las directrices y demás normativa aplicable.

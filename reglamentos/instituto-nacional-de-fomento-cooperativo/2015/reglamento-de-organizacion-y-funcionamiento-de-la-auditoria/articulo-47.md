@@ -1,0 +1,1 @@
+Artículo 47.—Plazo para remitir información adicional a la Conferencia Final. Si lo considera necesario, la Auditoría Interna otorgará un plazo máximo de 10 días hábiles para que luego de realizar la Conferencia Final sobre los resultados de un estudio de auditoría, la Administración Activa remita información adicional de previo a emitir el informe final.

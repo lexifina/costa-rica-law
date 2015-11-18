@@ -1,0 +1,2 @@
+Artículo 8º—Independencia funcional y de criterio. El Auditor Interno y el personal de la Auditoría Interna, ejercerán sus atribuciones con total independencia funcional y de criterio respecto de la Junta Directiva y de los demás órganos de la Administración Activa del INFOCOOP.
+El Auditor Interno emitirá políticas, directrices y procedimientos formales, para controlar que la función de la Auditoría Interna no se vea limitada por actuaciones que pongan en duda o peligro su objetividad e independencia.

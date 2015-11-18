@@ -1,0 +1,1 @@
+Artículo 66.—Seguimiento de los servicios de advertencia. La Auditoría Interna verificará lo actuado por la Administración Activa respecto de las advertencias que se le hayan formulado, sin perjuicio de que como resultado del seguimiento, cuando corresponda, emita informes de control interno, o de responsabilidades, u otros pertinentes.

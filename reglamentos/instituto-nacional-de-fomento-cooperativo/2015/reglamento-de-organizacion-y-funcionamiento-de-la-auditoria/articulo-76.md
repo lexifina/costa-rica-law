@@ -1,0 +1,2 @@
+Artículo 76.—Aprobación y vigencia del Reglamento. El presente Reglamento fue aprobado por la Junta Directiva del INFOCOOP en sesión 4030 celebrada el 30 de julio del 2015 y por la Contraloría General de la República mediante oficio Nº 13588 (DFOE-PG-0426) del 22 de setiembre del 2015 y deroga cualquiera otra normativa similar publicada anteriormente por la Auditoría Interna del INFOCOOP.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.

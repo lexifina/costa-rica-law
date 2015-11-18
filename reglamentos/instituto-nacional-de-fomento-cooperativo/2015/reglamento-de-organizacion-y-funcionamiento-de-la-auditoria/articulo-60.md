@@ -1,0 +1,3 @@
+Artículo 60.—Formas de presentación de las denuncias. Las denuncias podrán presentarse en forma escrita o verbal, o por cualquiera otro medio cuando las circunstancias así lo exijan. La relación de los hechos denunciados debe ser clara, precisa y con el suficiente detalle, de modo que permitan activar una investigación.
+En caso de imprecisión de hechos, se otorgarán diez días hábiles al denunciante para que complete la información que fundamenta su denuncia.
+Lo anterior, bajo apercibimiento de que si incumple con esta prevención facultará el archivo inmediato de tal denuncia, pero sin perjuicio de que se presente posteriormente con mayores elementos, para tramitar como una nueva denuncia.
