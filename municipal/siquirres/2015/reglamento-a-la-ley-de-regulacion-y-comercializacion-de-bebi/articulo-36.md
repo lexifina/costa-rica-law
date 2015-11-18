@@ -1,0 +1,1 @@
+Artículo 36.—Verificados los requisitos administrativos, las distancias correspondientes, y la inspección del sitio, de conformidad con lo anteriormente prescrito, la dependencia encargada de tramitar las licencias en la municipalidad le remitirá al Concejo Municipal, la solicitud respectiva para lo que corresponda.

@@ -1,0 +1,2 @@
+Transitorio I
+A la entrada en vigencia del presente Reglamento , las licencias para la venta de bebidas con contenido alcohólico adquiridas mediante la Ley N° 10 del 7 de octubre de 1936 y en caso de que el titular de este tipo de licencias mantenga una licencia inactiva, deberá cancelar un cuarto del salario base en cabeceras de cantón y un octavo para las que se localicen en las demás poblaciones , o proceder a renunciarla como dimana del artículo 6 inciso a) de la ley 9047, para que a futuro, no le continúe generando una obligación con su respectivo pago.

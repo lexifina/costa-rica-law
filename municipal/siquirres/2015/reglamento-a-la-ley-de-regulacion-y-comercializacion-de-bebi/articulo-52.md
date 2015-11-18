@@ -1,0 +1,8 @@
+Artículo 52.—Sanciones de suspensión o cancelación de la licencia. Por reincidencia en las conductas tipificadas en los incisos a), b), e) y d) del artículo 52 de este reglamento se aplicará las siguientes sanciones:
+- Por el primer incumplimiento; suspensión de la licencia por quince días hábiles.
+- Por el segundo incumplimiento; suspensión de la licencia por treinta días hábiles.
+- Ante el tercer incumplimiento; suspensión de licencia por cuarenta y cinco días hábiles.
+- Ante el cuarto incumplimiento cancelación definitiva de la licencia.
+En el caso de los supuestos señalados en el inciso f) y g) del artículo 52 de este reglamento con el primer incumplimiento se suspenderá la licencia por veinte días hábiles, con el segundo incumplimiento cuarenta y cinco días hábiles y por el tercero procederá la cancelación definitiva del derecho.
+Para que se considere que existe reincidencia en los incumplimientos estos deberán ocurrir dentro del lapso de diez años. De superarse este periodo deberá iniciarse un nuevo cómputo.
+En el caso de las sanciones de suspensión o cancelación de licencias, por limitarse o extinguirse un derecho subjetivo la Municipalidad deberá sustanciar la sanción mediante procedimiento administrativo ordinario desarrollado bajo las disposiciones establecidas por la Ley General de la Administración Publica. La aplicación de la sanción será responsabilidad exclusiva del Alcalde Municipal y ser este funcionario quien designe el órgano respectivo encargado de la instrucción, instancia que concluirá actuaciones con informe de instrucciones y recomendación. Si se cancelare la licencia a un establecimiento clase E) la Municipalidad informara al Instituto Costarricense de Turismo para lo de su competencia.

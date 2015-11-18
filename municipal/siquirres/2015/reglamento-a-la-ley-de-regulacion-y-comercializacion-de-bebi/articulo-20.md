@@ -1,0 +1,1 @@
+Artículo 20.—En caso de detectarse que el establecimiento no cuenta con la respectiva licencia de expendio de bebidas con contenido alcohólico o que no cuenta con algún requisito esencial para su funcionamiento vigente, se procederá a la clausura del establecimiento hasta tanto el interesado subsane el incumplimiento.
