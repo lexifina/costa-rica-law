@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Interés superior de la persona menor de edad
+En la aplicación de la presente ley prevalecerá el interés superior de la persona menor de edad. Cada situación de desaparición o sustracción deberá ser atendida valorando sus particularidades, tales como la edad y las características de la persona menor de edad presuntamente víctima de tales hechos.
+La aplicación de este principio implicará, cuando corresponda, la realización inmediata de todas las acciones y los procedimientos articulados que permitan la pronta búsqueda, localización, recuperación y el resguardo de la integridad física y emocional de las personas menores de edad, de acuerdo con las competencias de cada institución involucrada.
