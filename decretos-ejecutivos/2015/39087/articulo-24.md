@@ -1,0 +1,1 @@
+Artículo 24.—Si la persona física o jurídica autorizada para realizar el proceso de cremación, incumpliere con lo señalado en el presente reglamento el Ministerio de Salud revocará el Permiso Sanitario de Funcionamiento otorgado para la actividad de cremación de cadáveres y restos humanos.

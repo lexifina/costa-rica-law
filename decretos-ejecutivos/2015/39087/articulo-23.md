@@ -1,0 +1,1 @@
+Artículo 23.—En caso de emergencia nacional, así declarada, por muertes masivas debidas a desastres tecnológicos, enfermedades infectocontagiosas o desastres naturales, los cremadores autorizados deberán prestar sus servicios a las Autoridades de Salud.

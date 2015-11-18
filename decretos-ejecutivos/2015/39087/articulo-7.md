@@ -1,0 +1,2 @@
+Artículo 7°—Podrá efectuarse la cremación de cadáveres humanos exhumados en cualquier fecha después del fallecimiento. Si no han transcurrido cinco años desde el día de la defunción, deberá obtenerse la autorización escrita de la Autoridad Judicial competente, previo a la aprobación de la Dirección de Área Rectora de Salud correspondiente.
+El transporte de los restos exhumados deberá efectuarse en bolsa plástica de material resistente debidamente sellada y contenida a su vez, en caja de madera.

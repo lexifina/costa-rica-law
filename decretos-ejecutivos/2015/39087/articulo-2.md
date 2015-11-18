@@ -1,0 +1,1 @@
+Artículo 2°—Los hornos crematorios podrán ser utilizados para reducir a cenizas cadáveres, restos orgánicos procedentes de hospitales, de salas de necropsias y laboratorios de anatomía patológica, restos que hayan sido exhumados en cementerios y restos de animales.

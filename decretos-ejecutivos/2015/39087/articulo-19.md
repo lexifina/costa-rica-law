@@ -1,0 +1,1 @@
+Artículo 19.—La cremación de un cadáver humano deberá efectuarse entre las veinticuatro y las treinta y seis horas, después del deceso de la persona, salvo cuando por orden de la Autoridad de Salud o Judicial deba efectuarse antes o después de dicho tiempo.
