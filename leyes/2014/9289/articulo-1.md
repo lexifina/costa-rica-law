@@ -9,7 +9,6 @@ DETALLE DE LA PROYECCIÓN DE LOS INGRESOS CORRIENTES DEL GOBIERNO DE LA REPÚBLI
 (Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar el Alcance Digital N° 80 a La Gaceta N° 241 del 15 de diciembre de 2014, de las páginas N° 1 a la 6)
 INCISO B:
 DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2015 (en colones)
-[imagen]
 Autorízase al Poder Ejecutivo para emitir hasta TRES BILLONES SETECIENTOS CINCUENTA Y OCHO MIL SETECIENTOS CINCUENTA Y DOS MILLONES QUINIENTOS VEINTINUEVE MIL COLONES 00/100 en título valores de Deuda Interna 2015.
 Parte de esas emisiones podrán realizarse en moneda extranjera.
 El Poder Ejecutivo queda autorizado para establecer vía reglamento, el plazo hasta por un máximo de cincuenta años, el tipo de interés, que podrá fijarse en una tasa máxima de 18.0% anual en colones y un 10% anual en dólares o su equivalente en monedas extranjeras y demás características de las emisiones de Títulos Valores de Deuda Interna 2015.
@@ -19,3 +18,4 @@ En caso de colocación con no residentes, la Tesorería Nacional deberá publica
 (Modificado el inciso c) por el artículo 1° de la ley N° 9294 del 13 de marzo de 2015)
 (Modificados los incisos b) y c) por el artículo 1° del decreto ejecutivo N° 38963 del 6 de abril de 2015)
 (Reformado por el artículo 1° de la ley N° 9304 del 15 de junio de 2015)
+(Modificado por el artículo 1° del decreto ejecutivo N° 39314 del 10 de noviembre del 2015)
