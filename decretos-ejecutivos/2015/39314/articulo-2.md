@@ -1,0 +1,1 @@
+Artículo 2°-Modificase el artículo 2° de la Ley No. 9289, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2015, publicada en el Alcance Digital No. 80 a La Gaceta No. 241 de 15 de diciembre de 2014, con el fin de realizar el traslado de partidas en los Órganos del Gobierno de la República aquí incluidos.
