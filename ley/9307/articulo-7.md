@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Comisión Coordinadora Nacional del Sistema de Alerta
+Se crea la Comisión Coordinadora Nacional del Sistema de Alerta para la protección integral de las personas menores de edad, en adelante denominada Conasa, cuyo objetivo es coordinar e impulsar acciones dirigidas a la prevención de la sustracción y desaparición de las personas menores de edad, así como la verificación y fiscalización del desarrollo de protocolos de actuación en resguardo de las personas menores de edad.

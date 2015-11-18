@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Definición de persona menor de edad desaparecida
+Para los efectos de la presente ley, se entenderá como persona menor de edad desaparecida o sustraída aquella cuya ausencia sea conocida por su familia o por sus tutores o encargados, o por quienes circunstancialmente pudieran tener, de manera temporal, su guardia o custodia, aun cuando no se conozca el motivo aparente de su desaparición o posible ubicación.
