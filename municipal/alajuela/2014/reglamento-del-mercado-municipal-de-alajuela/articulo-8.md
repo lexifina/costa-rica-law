@@ -1,0 +1,8 @@
+Artículo 8º—Competencia de la Alcaldía Municipal: Corresponderá a la Alcaldía Municipal:
+a. Nombrar, y remover al Administrador del Mercado Municipal de acuerdo al Código Municipal, cuando lo requiera la buena marcha del servicio.
+b. Elaborar y presentar en el mes de agosto para su aprobación por el Concejo Municipal, el Plan Anual Operativo de los servicios comunes del Mercado, que contemple, entre otros, las tareas de mantenimiento, limpieza, seguridad, conservación, reparación y revisiones periódicas tanto reglamentarias como no reglamentarias y que tendrá que contener la justificación, programación y presupuesto desglosado de ejecución que incluya la calendarización, las cuantías de las pólizas de seguros, los gastos en servicios de seguridad y las licitaciones previstas considerando para ello el informe de la Comisión de Trabajo .
+c. Aprobar los horarios de apertura y cierre al público del Mercado Municipal; de carga y descarga de mercaderías y, si se produjeren situaciones de especial demanda comercial que requieran una mayor flexibilidad de horarios, previa audiencia a los afectados, aprobar otro distinto por un plazo de hasta 30 días.
+d. Aprobar e improbar las mejoras estructurales solicitadas por los arrendatarios a sus locales, previa consulta con las dependencias técnicas correspondientes.
+e. Aplicar las sanciones derivadas de faltas graves, según los artículos 36 y 40 de este Reglamento.
+f. Conocer los recursos de apelación de los actos dictados por la Administración del Mercado Municipal.
+g. Aprobar e improbar las mejoras estructurales solicitadas por los arrendatarios a sus locales, previa consulta con las dependencias técnicas correspondientes e informe de la Comisión de Trabajo creada por este Reglamento.

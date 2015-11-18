@@ -1,0 +1,1 @@
+Artículo 15.—Del trámite por concepto de cesión. El Concejo Municipal autorizará la cesión del derecho de arrendamiento previo cumplimiento de los requisitos indicados en el artículo anterior, y la misma solamente quedará perfeccionada con la aprobación por parte del Concejo Municipal.

@@ -1,0 +1,2 @@
+Artículo 31.—De las actividades: Las actividades comerciales serán aquellas debidamente autorizadas.
+Las actividades extra comerciales como las de animación, promoción, nuevos servicios a los clientes, etc. estarán contempladas dentro del plan anual de acción comercial, formación y capacitación de los arrendatarios que será propuesto por la Asociación de Arrendatarios (inquilinos) y aprobado por la Alcaldía Municipal

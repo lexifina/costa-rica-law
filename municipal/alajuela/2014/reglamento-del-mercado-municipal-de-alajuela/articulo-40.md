@@ -1,0 +1,2 @@
+Artículo 40.—De la prescripción de las faltas y de la aplicación del procedimiento administrativo: Las faltas leves prescribirán a los tres meses, las graves y las muy graves prescribirán al año de cometidas.
+El procedimiento administrativo sancionador será aplicado por el Administrador del Mercado Municipal en cuanto a las faltas leves. Las faltas graves y muy graves serán instruidas por la Alcaldía Municipal.

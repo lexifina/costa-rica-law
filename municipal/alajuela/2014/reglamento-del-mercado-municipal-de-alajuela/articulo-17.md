@@ -1,0 +1,4 @@
+Artículo 17.—Sobre los beneficiarios. El arrendatario podrá designar uno o varios beneficiarios de su derecho en caso de defunción. Estos beneficiarios podrán solicitar el cambio de titularidad a su favor, debiendo aportar la siguiente documentación:
+a. Certificado de defunción del causante.
+b. Constancia de estar al día en el pago del arrendamiento y de los permisos municipales y cargas sociales.
+En caso de que el beneficiario no cuente con interés en el derecho del difunto, lo manifestará por escrito, quedando facultada la Administración a realizar las gestiones pertinentes para adjudicar nuevamente el local, salvo que existan herederos con mejor derecho los que tendrán un plazo de tres meses para informar a la Administración de su derecho. En caso de no hacerlo en el plazo establecido, perderá su derecho y la Municipalidad podrá disponer del local.

@@ -1,0 +1,1 @@
+Artículo 16.—Del deber de vigilancia. La Municipalidad podrá mantenerse vigilante en el ejercicio del comercio dentro del Mercado Municipal, de manera que de estimar la posible existencias de práctica monopólicas u oligopólicas, podrá plantear la denuncia ante la autoridad respectiva.

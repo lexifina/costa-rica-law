@@ -1,0 +1,1 @@
+Artículo 5º—Del acceso de las personas con necesidades especiales: Será obligación de todos los actores del Mercado Municipal garantizar la accesibilidad general a las instalaciones, los bienes y servicios del Mercado Municipal de conformidad con la Ley 7600. Ello incluye el tránsito interno, los accesos y puntos de compra.

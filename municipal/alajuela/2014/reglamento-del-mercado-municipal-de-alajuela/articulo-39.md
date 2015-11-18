@@ -1,0 +1,1 @@
+Artículo 39.—De los procedimientos sancionatorios: Para efecto de dar cumplimiento al artículo anterior para sancionar las faltas graves y muy graves se aplicará lo establecido en el artículo 308 de la Ley General de la Administración Pública y las faltas leves mediante el procedimiento establecido en el artículo 320 del mismo cuerpo legal.
