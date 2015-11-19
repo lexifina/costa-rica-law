@@ -1,0 +1,3 @@
+Artículo 25.—De las recomendaciones: La Junta deberá tomar acuerdo en un término no mayor de quince días hábiles, a partir de que el asunto sea sometido a su conocimiento. No obstante lo señalado, este plazo podrá ampliarse hasta por plazo igual, previo acuerdo justificado de la mayoría simple de sus integrantes, lo cual deberá ser comunicado a las partes.
+Una vez analizada y discutida la solicitud planteada, la Junta emitirá el informe con las recomendaciones pertinentes y no vinculantes de sus miembros, las cuales serán comunicadas a los interesados.
+En caso de que el asunto no sea conocido por la Junta en el plazo correspondiente, procede la emisión del acto final.

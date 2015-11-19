@@ -1,0 +1,2 @@
+Artículo 10.—Nombramiento de los integrantes: El Ministro nombrará a sus tres representantes propietarios y a sus tres representantes suplentes.
+Las organizaciones sindicales nombrarán a sus tres representantes propietarios y a sus tres representantes suplentes. Estos representantes deben ser escogidos de entre las organizaciones sindicales que cuenten con afiliación en el Ministerio de Hacienda, tal y como debe constar en el acuerdo respetivo tomado al efecto.

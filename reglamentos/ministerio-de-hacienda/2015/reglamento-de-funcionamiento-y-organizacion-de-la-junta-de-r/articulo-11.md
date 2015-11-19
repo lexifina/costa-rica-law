@@ -1,0 +1,12 @@
+Artículo 11.—Funcionamiento interno de la junta:
+a. Tendrá por organización un representante propietario, con derecho a voz y voto, con su respetivo suplente.
+b. El suplente se incorporará a las sesiones con plenitud de derechos en ausencia del propietario.
+c. El suplente que sustituya a un propietario habrá de manifestarlo al inicio de cada sesión para que conste en actas y se mantendrá como el titular hasta el final de la sesión.
+d. Las personas designadas podrán ser reelectas por las partes que representen, siendo su nombramiento de competencia única y exclusiva, respectivamente, del Ministro o por acuerdo entre las Organizaciones Sindicales que cuenten con afiliación en el Ministerio de Hacienda.
+e. Los integrantes de la Junta durarán en sus cargos dos años. Si por cualquier causa ocurriere una vacante, será cubierta por el respectivo suplente hasta completar el período del antecesor, en tanto la parte a la cual representan procede a llenar la vacante y/o nombrar al miembro suplente.
+En el caso de las representaciones sindicales, debe observarse el mismo procedimiento de nombramiento antes señalado, de manera que se garantice la participación de todas las organizaciones sindicales en la elección del nuevo representante.
+f. Todos (as) y cada uno de los (las) representantes nombrados deberán ser acreditados mediante comunicación escrita de la parte que representan ante la Presidencia de la Junta. Para la acreditación de los miembros de la primera Junta, bastará con la comunicación formal entre la parte patronal y los sindicatos, indicando el nombre de los representantes.
+g. Si alguno de los representantes dejare de pertenecer a la Organización Sindical o al Ministerio, deberá comunicarlo a la presidencia de la Junta, dentro de los siguientes tres días hábiles, a efectos de proceder con su sustitución.
+h. Los integrantes de la Junta podrán ser sustituidos de sus cargos en cualquier momento por quien los hubiere designado.
+i. Los miembros de la Junta, asumirán sus designaciones con seriedad y compromiso. Tendrán la obligación de asistir a todas las sesiones a las que sean convocados (as), salvo justificación suficiente, que deberá ser comunicada por escrito ante el (la) Presidente de la Junta con al menos veinticuatro horas de antelación, de lo cual se dejará constancia.
+j. Todos los miembros de la Junta deberán guardar absoluta confidencialidad de los asuntos que conozcan para resguardo del procedimiento y respeto absoluto a los derechos que asisten a las personas que demandan su intervención.

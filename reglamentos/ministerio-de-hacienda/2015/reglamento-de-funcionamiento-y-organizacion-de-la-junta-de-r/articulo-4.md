@@ -1,0 +1,3 @@
+Artículo 4º—Naturaleza, derechos y fuentes:
+a. La Junta como órgano bipartito, paritario, consultivo y permanente, se regirá por la normativa aplicable al Régimen de Servicio Civil y los Convenios con la OIT debidamente ratificados por Costa Rica.
+b. En ausencia de disposiciones específicas para cada caso aplicará en forma supletoria el Código de Trabajo. En caso de duda, en cuanto a la interpretación de estas disposiciones, se recurrirá en primer lugar a los principios del Estatuto del Servicio Civil, en segundo lugar a las disposiciones del Derecho Público aplicables a las relaciones de empleo público, a los Principios Generales del Derecho Laboral y finalmente a los principios cristianos de justicia social.

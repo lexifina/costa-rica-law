@@ -1,0 +1,1 @@
+Artículo 8º—Domicilio y lugar de operación: La Administración, a través de la coordinación de la Dirección Administrativa y Financiera, garantizará el uso de un espacio para que la Junta sesione en las oficinas centrales del Ministerio de Hacienda, en San José, así como la asignación de un espacio para el resguardo documental de la información en esa misma ubicación geográfica.
