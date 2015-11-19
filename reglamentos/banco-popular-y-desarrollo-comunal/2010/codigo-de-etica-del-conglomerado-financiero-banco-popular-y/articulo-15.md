@@ -1,1 +1,2 @@
-Artículo 15.—Evaluación del cumplimiento. La Dirección de Capital Humano definirá una metodología de evaluación sobre el cumplimiento de las disposiciones de este Código e informará el resultado al Comité Ejecutivo Gerencial al menos una vez al año, Asimismo propondrá a dicho Comité las modificaciones que estime necesarias, con el fin de mejorar su aplicación.
+Artículo 15.—Evaluación del cumplimiento. La Dirección de Capital Humano o su homóloga en las Sociedades Anónimas definirán una metodología de evaluación sobre el cumplimiento de las disposiciones de este Código e informará el resultado al Comité Ejecutivo Gerencial al menos una vez al año.
+Así mismo propondrá a dicho Comité las modificaciones que estime necesarias, con el fin de mejorar su aplicación.
