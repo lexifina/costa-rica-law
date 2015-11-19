@@ -14,3 +14,4 @@ Reglamento para regular el acceso al beneficio de servicio de cuido y desarrollo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-09 | la propia norma |
+| 2 | 2015-11-19 | Decreto TSE 24 (2015-11-19) |
