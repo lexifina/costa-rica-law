@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia. Esta promoción tiene vigencia del 20 de noviembre, 2015 al 4 de diciembre, 2015 a las 12:00 mediodía y la lotería participante corresponde al “Sorteo Extraordinario de Lotería Popular Viernes Negro N° 6083”.

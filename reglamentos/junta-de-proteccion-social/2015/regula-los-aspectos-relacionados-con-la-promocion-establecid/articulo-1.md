@@ -1,0 +1,3 @@
+JUNTA DE PROTECCIÓN SOCIAL
+La Junta de Protección Social informa, procedimiento para la promoción de premios especiales, con el “Sorteo Extraordinario de Lotería Popular Viernes Negro N° 6083” para el año 2015.
+Artículo 1º—Objeto. El objeto del presente procedimiento es el de regular los aspectos relacionados con la promoción establecida para el otorgamiento de premios especiales, con el “Sorteo Extraordinario de Lotería Popular Viernes Negro N° 6083”; correspondientes al año 2015 y que fue aprobada por la Junta Directiva de la Junta de Protección Social, según acuerdo JD-511, correspondiente al artículo II), de la sesión extraordinaria 13-2015, celebrada el 13 de agosto del 2015 como parte de la estrategia de comercialización para este producto.
