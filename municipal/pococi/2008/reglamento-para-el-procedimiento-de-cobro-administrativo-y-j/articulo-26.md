@@ -1,5 +1,0 @@
-SECCIÓN II
-Sobre el cobro de honorarios profesionales
-Artículo 26.—Cobro de honorarios profesionales.
-1. El cobro de honorarios profesionales lo hará directamente el abogado externo director del proceso, al sujeto pasivo, en caso de que este pretenda cancelar previo a la terminación del proceso judicial respectivo. Dicho cobro se realizará con base en la Tabla de Honorarios establecida en el Arancel de Profesionales en Derecho del Colegio de Abogados de Costa Rica.
-2. La municipalidad, únicamente podrá recibir la cancelación del monto adeudado por el sujeto pasivo, mediante la presentación del recibo por pago de honorarios del abogado externo director del proceso, de que le han sido cancelados de conformidad con los honorarios de abogado. Asimismo, no se solicitará dar por terminado el proceso judicial respectivo, hasta tanto la Unidad de Cobro no le indique por escrito al abogado externo director del proceso, que se ha recibido de conformidad la totalidad de la obligación vencida adeudada por el sujeto pasivo, sus intereses y multas.
