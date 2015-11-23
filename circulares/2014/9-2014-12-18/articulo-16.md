@@ -1,1 +1,0 @@
-Artículo 16.—Devolución por reprogramación. En caso de que se cancele el curso sin reprogramación de fecha, se realizará el reembolso del cien por ciento del costo del curso en un plazo no mayor a veinte días hábiles.
