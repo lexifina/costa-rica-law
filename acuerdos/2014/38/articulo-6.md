@@ -1,1 +1,0 @@
-Artículo 6°—Derogaciones: Se derogan los Acuerdos N° 197-2006-MGP, de las 13:00 horas del 29 de noviembre del 2006, publicado en La Gaceta N° 4 del 05 de enero del 2007 y N° 053- 2011-MGP del 04 de octubre del 2011.
