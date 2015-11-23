@@ -1,1 +1,0 @@
-Artículo 8º—Institución encargada del control. Para comprobar el cumplimiento de las disposiciones contenidas en el presente Reglamento, así como de aquellas que del mismo se derive, el Ministerio de Salud, a través de las Áreas Rectoras de Salud, realizará visitas de inspección a las fuentes emisoras de ruido, para la medición de ruido en el interior de los inmuebles afectados.

@@ -1,1 +1,0 @@
-Artículo 13.—Pregoneo: El pregoneo por fuentes móviles en vías públicas terrestres, será regulado por el Ministerio de Obras Públicas y Transportes, según se establece en el artículo 116 de la Ley Nº 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.

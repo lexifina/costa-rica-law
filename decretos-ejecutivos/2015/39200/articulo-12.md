@@ -1,7 +1,0 @@
-Artículo 12.—Prohibiciones específicas. Queda prohibida la instalación o uso de:
-a) Bocinas, sirenas y similares: En todo lugar excepto cuando se utiliza como señal de peligro inminente, o en casos de emergencia.
-b) Instrumentos musicales, amplificadores y artefactos similares: para la producción o reproducción de sonido, de tal forma que ocasione contaminación por ruido, en violación de los límites fijados en el presente Reglamento.
-c) Altoparlantes exteriores, megáfonos y artefactos similares: en una posición fija o movible en el exterior de cualquier estructura, que sobrepasen los niveles de ruido permitidos en el presente Reglamento. No podrán usarse dichos artefactos para fines comerciales o industriales durante el período diurno, cuando sobrepasen los límites establecidos por el presente Reglamento, y queda prohibido su uso durante el período nocturno excepto para realizar obras de emergencia.
-d) Alarmas: En exteriores e interiores de edificios a menos que tal alarma cese su operación dentro de los cinco (5) minutos luego de ser activada.
-e) Maquinaria, equipo, abanicos, acondicionador de aire: de tal forma que excedan los límites máximos de niveles de presión de sonido fijados en este Reglamento.
-f) Vibración por sonido: Ninguna persona causará o permitirá la operación de cualquier artefacto que genere vibraciones que puedan percibirse sin instrumentos o que esté sobre los límites de percepción de una persona, o más allá de los límites de cualquier propiedad contigua a la fuente generadora.
