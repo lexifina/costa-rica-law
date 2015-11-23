@@ -1,0 +1,4 @@
+CAPÍTULO II
+Procedimiento
+Artículo 6º—Conformación de expediente administrativo. En todos los casos se deberá conformar un expediente administrativo, el cuál contendrá los documentos, copias y originales, según sea el caso, que se generen desde el momento mismo en que se envía o se recibe el documento de propuesta que inicia el procedimiento hasta su ejecución y entrega.
+El expediente administrativo debe estar debidamente encuadernado que permitan son facilidad, agregar los documentos conforme arriben al expediente. Todos sus folios deberán estar numerados de manera consecutiva. La carátula estará debidamente identificada con el objeto del convenio, ubicación del proyecto a intervenir, partes intervinientes, con el número de consecutivo, el cual deberá describirse con el N° de provincia, 01, cantón de Turrubares N° 16, N° de distrito, N° de consecutivo y año.

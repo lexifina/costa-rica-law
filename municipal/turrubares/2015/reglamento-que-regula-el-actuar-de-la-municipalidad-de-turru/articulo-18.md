@@ -1,0 +1,1 @@
+Artículo 18.—Sobre la programación de actividades. Para todos los convenios, independientemente de la actividad a ejecutar, la Unidad Técnica de Gestión Vial Municipal deberá realizar un cronograma de actividades, el cual se elaborará tomando en consideración la programación anual de labores.

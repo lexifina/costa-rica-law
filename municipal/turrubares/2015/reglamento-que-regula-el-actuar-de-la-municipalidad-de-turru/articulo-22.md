@@ -1,0 +1,2 @@
+Artículo 22.—Informe final de Ejecución. El Director o Directora de la Unidad Técnica de Gestión Vial Municipal deberá confeccionar un informe de ejecución de las actividades que detallen la cuantificación de los recursos invertidos en la obra de acuerdo con los aportes suministrados durante su ejecución.
+Procede a remitir copia a la Junta Vial Cantonal a la Alcaldía, y a su archivo en el expediente original del convenio.
