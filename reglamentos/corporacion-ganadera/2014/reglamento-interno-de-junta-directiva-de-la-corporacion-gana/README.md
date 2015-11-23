@@ -14,3 +14,4 @@ Reglamento Interno de Junta directiva de la Corporación Ganadera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-11 | la propia norma |
+| 2 | 2015-11-23 | Reglamento 423 (2015-11-23) |
