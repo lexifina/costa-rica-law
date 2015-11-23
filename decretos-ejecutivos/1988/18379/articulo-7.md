@@ -1,2 +1,0 @@
-ARTICULO 7°.-Para representar a los empleadores y trabajadores en las comisiones se requiere ser mayor de edad y costarricense.
-Para representar a los trabajadores se requiere, además ser trabajador permanente del centro de trabajo y contar con una Antigüedad mínima de un año al servicio del empleador. No obstante, este último requisito no se exigirá en aquellos centros de trabajo que inicien labores o en donde la mitad de los trabajadores no tengan la antigüedad mínima requerida. En ningún caso podrán representar a los trabajadores empleados de confianza del empleador.

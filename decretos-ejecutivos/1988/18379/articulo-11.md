@@ -1,1 +1,0 @@
-ARTICULO 11.-El empleador comunicará al Consejo y a los trabajadores, los nombres de los miembros que conforman la comisión en el centro de trabajo, en un plazo no mayor de 8 días contados a partir de su integración.

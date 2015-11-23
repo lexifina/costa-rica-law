@@ -1,1 +1,0 @@
-ARTICULO 5°.-Todo empleador, que por la organización o funcionamiento de su actividad cuente con varios centros de trabajo, está obligado a considerar, con la excepción prevista en el artículo siguiente, cada uno de éstos en forma independiente para efectos de integrar las comisiones.

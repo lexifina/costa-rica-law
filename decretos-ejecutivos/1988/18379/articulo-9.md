@@ -1,2 +1,0 @@
-ARTICULO 9°.-La designación de los representantes del empleador, se realizará con no menos de quince días de anticipación a la fecha en que se inicien en sus funciones. El nombramiento se comunicará a los trabajadores mediante un mínimo de tres avisos colocados en diferentes lugares visibles del centro de trabajo.
-Cuando los nuevos representantes del empleador no hayan sido designados en los plazos previstos por este Reglamento, los anteriores continuarán en funciones durante el período inmediato siguiente.

@@ -1,1 +1,0 @@
-ARTICULO 8°.-Los miembros de las comisiones durarán en sus cargos tres años, pudiendo ser reelectos. El cargo se debe desempeñar dentro de la jornada ordinaria de trabajo, sin remuneración adicional y sin menoscabo de ninguno de los derechos laborales que corresponden al trabajador.
