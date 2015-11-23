@@ -1,2 +1,0 @@
-Artículo 12 Veracidad de las transacciones
-Las transacciones realizadas en los diferentes canales que ofrece la Banca Electrónica, por el uso de la clave de identificación o pin correcto, se reputarán para todos los efectos, como efectuadas por el cliente. Cuando ocurriere alguna situación fraudulenta, que involucre el uso de esa clave personal y secreta y del dispositivo de acceso, la responsabilidad será absolutamente del usuario.

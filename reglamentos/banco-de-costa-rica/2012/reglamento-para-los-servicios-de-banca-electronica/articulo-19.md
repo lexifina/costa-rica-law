@@ -1,2 +1,0 @@
-Artículo 19
-El ingreso a www.bancobcr.com se hará con el empleo de la clave personal y secreta de acceso y del dispositivo de seguridad, de dominio exclusivo y personal para el usuario y su uso será de su exclusiva responsabilidad. La clave personal y secreta de acceso tendrá una vigencia definida por el Banco por lo que una vez vencida al usuario para poder seguir utilizando el o los servicios deberá renovar su afiliación siguiendo los trámites establecidos en el punto anterior.
