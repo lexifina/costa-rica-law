@@ -14,3 +14,4 @@ Metodología General para la Elaboración de los estudios Hidrogeológicos para 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-16 | la propia norma |
+| 2 | 2015-11-23 | Acuerdo 5158 (2015-11-23) |
