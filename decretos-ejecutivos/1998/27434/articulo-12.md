@@ -1,1 +1,0 @@
-Artículo 12.—Los patronos o empleadores están obligados a destinar recursos humanos, financieros, físicos indispensables para el desarrollo y cumplimiento del diagnóstico y programa de salud ocupacional, participando activamente en él.

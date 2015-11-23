@@ -1,1 +1,0 @@
-Artículo 19.— La Oficina o Departamento de Salud Ocupacional será el responsable de fomentar la creación y-asesorar la Comisión de Salud Ocupacional y el jefe podrá asistir a las sesiones de aquélla cuando le sea requerida su opinión.

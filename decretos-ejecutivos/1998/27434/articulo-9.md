@@ -1,1 +1,0 @@
-Artículo 9°—Tanto el diagnóstico de las Condiciones y Medio Ambiente de Trabajo como el Programa de Salud Ocupacional referidos en el artículo anterior, deberán ser elaborados por sus encargados en coordinación con el servicio médico de la empresa, en aquellos centros de trabajo que los tengan.

@@ -1,1 +1,0 @@
-Artículo 22.—La empresa o empleador está en la obligación de registrar a la Oficina o Departamento ante el Consejo de Salud Ocupacional, para lo cual deberá recoger y llenar la boleta con toda la información requerida para tal efecto.

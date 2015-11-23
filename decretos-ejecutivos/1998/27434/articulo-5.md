@@ -1,5 +1,0 @@
-Artículo 5°—Los encargados de las Oficinas o Departamentos procurarán cumplir con los requisitos de educación formal que se determinan a continuación:
-a) Egresados del plan de estudios de Diplomado en Salud Ocupacional de aquellos centros universitarios públicos o privados, reconocidos por la Entidad Superior de Educación a la que correspondan y con experiencia en el campo de la salud ocupacional.
-b) Graduados del Plan' de estudios de Diplomado o Egresados de Bachillerato de aquéllos centros universitarios públicos o privados, reconocidos por la entidad de educación superior a la que corresponda y con experiencia en el campo de la salud ocupacional.
-c) Bachiller o egresado del plan de Licenciatura en Salud Ocupacional de aquéllos centros universitarios públicos o privados, reconocidos por la entidad superior de educación a la que correspondan.
-d) Profesionales en todas las disciplinas con cursos de especialización, post-grados, maestrías y doctorados en Áreas atinentes, a la Salud Ocupacional de aquellos centros universitarios públicos y privados nacionales o extranjeros, reconocidos por la entidad superior de educación que corresponda.
