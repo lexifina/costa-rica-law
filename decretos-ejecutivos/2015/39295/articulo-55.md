@@ -1,0 +1,9 @@
+Artículo 55.- La Red de Apoyo Pyme y Emprendedores estará conformada por:
+a. Instituciones u organizaciones con representación en el Consejo Asesor Mixto PYME, vinculadas al desarrollo y promoción de las PYME y los Emprendedores.
+b. Instituciones Bancarias Públicas que promuevan y fomenten programas de crédito diferenciados y otros, dirigidos al sector PYME y a los Emprendedores.
+c. Instituciones Bancarias y Financieras Privadas que promuevan y fomenten programas de crédito diferenciados y otros, dirigidos a las PYME y a los emprendedores que trabajen como operadores del Sistema de Banca para el Desarrollo.
+d. El Consejo Nacional de Investigación Científica y Tecnológica (CONICIT).
+e. Instituciones de la Administración Pública relacionadas con el Programa Compras del Estado.
+f. Instituciones que promuevan el comercio interno de las PYME, que fortalezcan la comercialización de los productos en el mercado interno.
+g. Centros de enseñanza universitaria privada, universidades estatales, para-universitarias, institutos técnicos y tecnológicos, que tengan programas, consultorías, asesorías y programas de investigación, vinculación, extensión docente y responsabilidad social universitarias dirigidas a fortalecer la productividad y competitividad de las PYME y los emprendedores y el desarrollo del ecosistema.
+h. Instituciones que desarrollen proyectos, programas y actividades orientadas a facilitar el acceso de las PYME y los emprendedores a los mecanismos de tutela ambiental, como el uso de tecnologías ambientales limpias, el conocimiento y cumplimiento de normas y reglamentos de protección y conservación del medio ambiente, la formación y capacitación para el uso de elementos correctivos, auditorías ambientales, las evaluaciones ambientales, las eco-etiquetas, el envase, el embalaje, el reciclaje y la producción más limpia, y medición de su huella ambiental (hídrica, de carbono, y residuos sólidos).

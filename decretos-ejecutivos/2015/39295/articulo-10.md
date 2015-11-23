@@ -1,0 +1,2 @@
+Artículo 10.- El MEIC creará un registro de gestores PYME, en donde incluirá aquellos interesados que cumplieron con los requisitos establecidos en el artículo 8 del presente Reglamento. El procedimiento de registro será establecido en un Manual Operativo.
+Una vez comprobados los requisitos señalados, el MEIC emitirá una certificación a los gestores PYME a efecto de que puedan operar en las CREAPYME.

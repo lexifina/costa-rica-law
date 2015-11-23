@@ -1,0 +1,1 @@
+Artículo 29.- En caso de que las instituciones determinen que las empresas tratan de inducir a error o que generen información parcial, tergiversada o alterada para obtener los beneficios contemplados en la Ley, se les suspenderá o limitará el goce de estos. Lo anterior, sin perjuicio de plantear las denuncias penales correspondientes ante el Ministerio Público.

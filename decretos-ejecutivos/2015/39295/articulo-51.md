@@ -1,0 +1,1 @@
+Artículo 51.- Las sesiones del órgano serán siempre privadas, pero el órgano podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tenga acceso a ella el público en general o bien ciertas personas.

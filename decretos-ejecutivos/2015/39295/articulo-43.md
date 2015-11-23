@@ -1,0 +1,1 @@
+Artículo 43.- El Consejo Asesor se reunirá ordinariamente al menos una vez cada dos meses. Cuando fuere necesario, el Presidente convocará a sesiones extraordinarias, siguiendo el procedimiento que establece el artículo 52 de la LGAP.

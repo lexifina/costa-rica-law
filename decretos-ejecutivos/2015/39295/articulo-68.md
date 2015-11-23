@@ -1,0 +1,1 @@
+Artículo 68.- En este Reglamento no se regula lo referente al sector de empresas “Agropecuarias que desarrollan actividades de agricultura orgánica”, por corresponder como ente rector al Ministerio de Agricultura y Ganadería”; no obstante esto no impide su inscripción ante el SIEC.

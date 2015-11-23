@@ -1,0 +1,1 @@
+Artículo 24.- La vigencia de la Condición PYME será de 1 año, a partir de la fecha en que se le notifica que obtiene la Condición PYME. Al término de los 12 meses deberá de renovar su condición PYME; conforme lo señala el artículo 26 de este Reglamento.

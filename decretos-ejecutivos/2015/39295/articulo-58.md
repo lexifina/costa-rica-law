@@ -1,0 +1,1 @@
+Artículo 58.- La RED para operativizar sus procesos y hacer más ágil su articulación, desarrollará un manual de procedimientos en donde se establezca ampliamente la forma en que realizará sus funciones. Este manual deberá estar publicado en la página Web del MEIC y el mismo podrá ser modificado según convenga al accionar de la RED.

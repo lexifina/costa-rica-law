@@ -1,0 +1,2 @@
+Artículo 34.- El resultado de la solicitud será comunicada al gestionante, a través de los canales de comunicación aportados en el formulario y mediante notificación automática por medio de la plataforma del SIEC.
+La vigencia de la Condición de Emprendedor será de 1 año, a partir de la fecha en que se le notifica que obtiene la Condición. Al término de los 12 meses deberá de renovar su condición de Emprendedor; conforme lo señala el artículo 35 de este Reglamento.

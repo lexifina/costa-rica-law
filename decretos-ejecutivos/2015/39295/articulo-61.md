@@ -1,0 +1,1 @@
+Artículo 61.- La notificación a la institución, se puede realizar por medio del correo electrónico, adjuntando la resolución debidamente escaneada y firmada. El original de la resolución se envía a la dirección física indicada por el solicitante, mientras dicho procedimiento no se logre realizar por medio de la firma digital.

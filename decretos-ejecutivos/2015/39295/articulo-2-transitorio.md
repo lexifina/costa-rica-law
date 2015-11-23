@@ -1,0 +1,1 @@
+Transitorio II: El Manual de Procedimientos al que se refiere el artículo 58; así como el Manual Operativo indicado en el artículo 62, ambos artículos del presente reglamento deberán estar publicados en la Web del MEIC; al cabo de los 6 meses, después de su respectiva publicación.

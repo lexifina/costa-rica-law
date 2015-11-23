@@ -1,0 +1,1 @@
+Artículo 9.- El MEIC coordinará con las instituciones académicas, la labor de capacitación para la formación de Gestores PYME. En este proceso podrán participar funcionarios tanto de instituciones públicas como privadas; el procedimiento a seguir será establecido en el Convenio que se establezca entre el MEIC y la (s) institución (es) correspondiente (s).
