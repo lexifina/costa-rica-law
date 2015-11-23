@@ -1,0 +1,3 @@
+Artículo 59.- Suscripción de Fideicomisos. La Junta Administrativa de la Dirección General de Migración y Extranjería se encuentra autorizada para suscribir y gestionar los fideicomisos operativos que le sean necesarios constituir, para el cumplimiento de los fines dispuestos en la ley que acá se reglamenta.
+En todo caso en el contrato de Fideicomiso deberán existir cláusulas que permitan un uso eficiente, eficaz, ágil y ponderado de los recursos públicos en cuanto a la razonabilidad de los fines que comprenden la materia de Trata de Personas y el Tráfico Ilícito de Migrantes, de acuerdo con la Ley.
+Todo contrato de fideicomiso se suscribirá de acuerdo con la Ley N° 9095, el presente reglamento y el bloque de legalidad que ampara este tipo de figura contractual.

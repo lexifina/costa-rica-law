@@ -1,0 +1,5 @@
+Artículo 5.- Disposiciones generales. Sin detrimento de lo que establece el artículo 2 de la Ley N° 9095,
+son disposiciones generales del presente reglamento:
+a) Intervención inmediata: El Estado debe garantizar de forma prioritaria la atención y protección preferente de la víctima de Trata de Personas y sus dependientes en todas las diligencias y gestiones propias de los procesos administrativos y judiciales.
+b) Garantía de designación y asistencia: Las y los jerarcas de las entidades representadas en la CONATT, como miembros o integrantes de Comisiones y Equipo de Respuesta Inmediata deben garantizar la oportuna designación o sustitución de sus representantes y su asistencia a todas las sesiones o reuniones.
+c) Poder de decisión: Las entidades representadas en la CONATT, sus Comisiones y el ERI, deben garantizar que las personas que designen como miembros titulares, suplentes o integrantes, tengan poder de decisión o el canal directo para lograr una decisión inmediata a los asuntos que se someten a su atención.

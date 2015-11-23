@@ -1,0 +1,2 @@
+Artículo 62.- Procedimiento general para la presentación de proyectos.- Para este fin, la Secretaría Técnica en coordinación con la Junta Administrativa de la DGME diseñará y aprobará un instrumento de presentación único de proyectos que deberá ser utilizado por todas las organizaciones interesadas y que cumplan con lo dispuesto en la Ley y el presente Reglamento.
+La presentación de proyectos formulados por las diferentes entidades se hará ante la Comisión Técnica Permanente de Gestión de Proyectos de conformidad con el instrumento diseñado.

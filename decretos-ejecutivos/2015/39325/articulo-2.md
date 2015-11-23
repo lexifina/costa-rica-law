@@ -1,0 +1,5 @@
+Artículo 2.- Objetivos. Son objetivos del presente Reglamento:
+a) Establecer las normas, procedimientos y pautas generales de actuación que posibiliten la operativización de la Ley Nº 9095 en estrecho apego a los principios rectores y objetivos que la rigen.
+b) Especificar las responsabilidades que, en el marco de su competencia y de las nuevas obligaciones creadas por la Ley Nº 9095, tienen las instituciones públicas referidas en la Ley, así como los mecanismos de control y supervisión de los mismos.
+c) Establecer los mecanismos de actuación y de organización interna de los cuerpos colegiados e interinstitucionales creados en el marco de la Ley para garantizar la detección, asistencia, atención y protección de las víctimas de Trata de Personas en el país así como víctimas nacionales en el exterior y afectados por el tráfico ilícito de migrantes, así como la prevención, investigación y sanción de dichos delitos.
+d) Conformar el mecanismo de funcionamiento del FONATT, incluyendo el acceso a los recursos generados por este fondo, la toma de decisión sobre el uso y destino de los recursos, los mecanismos de control interno y externo y de rendición de cuentas.

@@ -1,0 +1,1 @@
+Artículo 50.- Documentación víctima nacional acreditada. En caso de encontrar a una víctima nacional sin documentación, el ERI debe emitir la recomendación respectiva al Registro Civil solicitando al o la Jerarca de la institución se proceda con la debida documentación en el menor plazo posible para continuar con el proceso de acreditación.

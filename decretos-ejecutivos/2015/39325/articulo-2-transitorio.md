@@ -1,0 +1,1 @@
+TRANSITORIO II. La Comisión Técnica Permanente de Gestión de Proyectos creará un Manual de Procedimientos para el Análisis, Evaluación, Aprobación y Seguimiento de los Proyectos de la CONATT para la ejecución de los proyectos que harán uso de los recursos del FONATT en un plazo no mayor a tres meses una vez aprobado el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 16.- Representantes.- La ST enviará oficio a los miembros de la CONATT, para que señalen, por la misma vía, el nombre de la persona que los representará en caso de ausencia. El o la representante asumirá todos los derechos y deberes del miembro titular. En caso de sustitución del representante, el miembro realizará la notificación por escrito a la Secretaría Técnica.

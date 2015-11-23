@@ -1,0 +1,1 @@
+Artículo 25.-Objetivo.- La Secretaría Técnica velará por la adecuada coordinación técnica, política y administrativa de la CONATT y las comisiones técnicas tanto permanentes como especiales de acuerdo a lo que establece el artículo 15 de la Ley que se reglamenta.

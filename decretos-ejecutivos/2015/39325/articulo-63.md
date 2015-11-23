@@ -1,0 +1,2 @@
+Artículo 63.- Procedimiento general para el trámite de proyectos.-
+Cada entidad interesada en presentar un proyecto, deberá hacerlo a la Comisión Técnica Permanente de Gestión de Proyectos únicamente en las fechas que oportunamente se remitirán por la Secretaría Técnica de la CONATT, a petición de la Junta Administrativa de la Dirección General de Migración y Extranjería, según los plazos otorgados a ésta por la Contraloría General de la República. En dicha comunicación se estipularán también los tiempos de revisión, aprobación y ejecución de los mismos.

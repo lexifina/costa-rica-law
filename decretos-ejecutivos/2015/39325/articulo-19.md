@@ -1,0 +1,1 @@
+Artículo 19.- Extraordinarias. Todo miembro ante la CONATT podrá gestionar la realización de sesiones extraordinarias mediante solicitud por escrito a la ST, en razón de asuntos urgentes. La ST convocará a los demás miembros con un mínimo de veinticuatro horas de antelación.

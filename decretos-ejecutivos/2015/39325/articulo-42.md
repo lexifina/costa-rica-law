@@ -1,0 +1,1 @@
+Artículo 42.- De las sesiones. El ERI sesionará al menos una vez al mes en sesión ordinaria. Cuando se requiera analizar un caso de urgencia la Secretaría Técnica de la CONATT se encargará de convocar a sus miembros; además, debe llevar el control de asistencia, actas y acuerdos.

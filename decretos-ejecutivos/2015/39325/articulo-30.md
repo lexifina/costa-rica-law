@@ -1,0 +1,1 @@
+Artículo 30.-Funciones de las Comisiones en general. Las que establece el artículo 12 de la Ley actuando como organismos técnicos de apoyo de la CONATT y bajo la coordinación de la Secretaría Técnica.

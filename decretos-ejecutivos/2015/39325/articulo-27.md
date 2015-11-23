@@ -1,0 +1,2 @@
+Artículo 27.-Estructura.
+La Dirección General de Migración y Extranjería, con el apoyo de las demás instituciones que integran la CONATT (Artículo 8 de la Ley), aportarán a nivel técnico y operativo lo necesario para el funcionamiento adecuado de la Secretaría Técnica, de acuerdo con sus competencias respectivas (Artículo 14 de la Ley). Anualmente, en su última sesión ordinaria, la CONATT valorará, previo análisis del informe de labores, el rendimiento de la Secretaría Técnica aportando observaciones y recomendaciones para su fortalecimiento.

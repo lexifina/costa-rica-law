@@ -1,0 +1,1 @@
+Artículo 20.- Quórum: Para sesionar en derecho se deberá contar con la presencia de la mayoría simple de los miembros. Los acuerdos se tomarán por mayoría absoluta. En caso de empate el Presidente tiene voto de calidad.

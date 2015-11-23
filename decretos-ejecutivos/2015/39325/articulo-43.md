@@ -1,0 +1,1 @@
+Artículo 43.- Quórum: El quórum en el ERI se producirá con la mayoría simple de sus miembros. Los acuerdos se tomarán también por mayoría simple de los presentes. Cada una de las entidades representadas en el ERI tendrá voz y un único voto. Los asesores técnicos y cooperantes tendrán voz pero no voto.

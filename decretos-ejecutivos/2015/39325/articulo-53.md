@@ -1,0 +1,1 @@
+Artículo 53.- Protocolo de Actuación. Será responsabilidad del ERI la creación de un Protocolo de Actuación, en el cual se determinarán los detalles de operación, funcionamiento, atención y actuación que se requieren para un abordaje integral de los casos que se presenten.
