@@ -1,3 +1,0 @@
-CAPÍTULO IX
-Remisión de informes al Consejo Directivo
-Artículo 62.—Conferencia final. Previo al envío de informes al Consejo Directivo que sean de gran trascendencia institucional, o que pudieran tener cualquier tipo de responsabilidad la Auditoría Interna debe constatar que se ha cumplido con la presentación verbal del borrador a la administración y la conferencia final a los miembros que conforman el Consejo Directivo. También debe verificarse que el acta esté debidamente suscrita. Anexar al informe los argumentos y soluciones alternativos proporcionados por el responsable en casos de desacuerdo, o indicar que no fueron aportados a pesar de existir desacuerdo.

@@ -1,1 +1,0 @@
-Artículo 38.—Responsabilidades y delegación. El Auditor Interno podrá delegar autoridad y exigir responsabilidad, excepto en aquellos casos en que su intervención personal sea obligada conforme a la Ley, los reglamentos y los acuerdos del Consejo Directivo.

@@ -1,1 +1,0 @@
-Artículo 54.—Confección de acta. El funcionario de la Auditoría Interna que realizó el estudio, debe confeccionar un acta de la conferencia final, en la cual resumirá los asuntos más relevantes ocurridos en ella y fijará los compromisos asumidos. El acta será firmada por todos los asistentes a dicha conferencia.

@@ -1,1 +1,0 @@
-Artículo 31.—Pericia y debido cuidado profesional. Los trabajos deben cumplirse con pericia y con el debido cuidado profesional. Las personas asignadas a cada trabajo deberán poseer de manera individual y en conjunto, las aptitudes, conocimientos técnicos y otras competencias para desempeñar el trabajo adecuadamente.

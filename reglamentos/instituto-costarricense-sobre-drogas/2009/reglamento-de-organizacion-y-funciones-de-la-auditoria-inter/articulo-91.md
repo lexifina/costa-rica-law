@@ -1,1 +1,0 @@
-Artículo 91.—Informes sobre las evaluaciones realizadas. Los resultados de las evaluaciones internas deben constar en un informe dirigido al Consejo Directivo y Dirección General. En ese mismo informe el Auditor Interno debe presentar un plan de mejoras, si así lo requieren esos resultados. El Auditor Interno es responsable de dar seguimiento adecuado al plan de mejoras.

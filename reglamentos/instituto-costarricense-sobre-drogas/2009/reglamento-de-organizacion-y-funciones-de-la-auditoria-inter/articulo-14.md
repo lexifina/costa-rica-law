@@ -1,1 +1,0 @@
-Artículo 14.—Salidas de trabajo. En cuanto a las salidas de la institución para el cumplimento de sus funciones, el Auditor Interno lo podrá comunicar al Consejo Directivo, siempre que esta comunicación no entorpezca sus funciones e independencia.

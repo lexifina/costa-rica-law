@@ -1,1 +1,0 @@
-Artículo 71.—Componentes del plan anual de trabajo. El Auditor Interno debe establecer un plan anual de trabajo congruente con la planificación estratégica, cuyo contenido abarque todas las actividades que se deben realizar durante el año, se mantenga actualizado y se exprese adecuadamente en el presupuesto respectivo.

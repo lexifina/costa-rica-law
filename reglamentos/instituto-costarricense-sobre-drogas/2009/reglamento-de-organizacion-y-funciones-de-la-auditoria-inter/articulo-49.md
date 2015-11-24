@@ -1,1 +1,0 @@
-Artículo 49.—Comunicación escrita de los resultados. La comunicación de resultados deberá hacerse por escrito. Podrá efectuarse durante el desarrollo de la auditoría o estudio especial de la auditoría, mediante informes parciales o memorandos, y al finalizar la labor por medio del informe final.

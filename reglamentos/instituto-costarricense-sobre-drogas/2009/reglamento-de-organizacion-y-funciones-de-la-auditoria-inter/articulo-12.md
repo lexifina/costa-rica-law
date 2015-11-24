@@ -1,1 +1,0 @@
-Artículo 12.—Jerarquía. La Auditoría Interna estará bajo la responsabilidad del Auditor Interno. Deberá ser Contador Público Autorizado y estar incorporado al Colegio Profesional de Contadores Públicos y conocer además las disposiciones legales que rigen en general a la Administración Pública y específicamente las del Instituto Costarricense sobre Drogas.

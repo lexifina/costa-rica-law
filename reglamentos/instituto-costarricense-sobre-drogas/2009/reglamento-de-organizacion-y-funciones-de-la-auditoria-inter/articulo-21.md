@@ -1,1 +1,0 @@
-Artículo 21.—Creación de plazas. El Auditor Interno deberá proponer, debidamente justificado al Consejo Directivo para su aprobación, la creación de plazas y servicios que considere indispensable para el cumplimiento de su plan anual de trabajo, y en general, para el buen funcionamiento de la Auditoría Interna siguiendo los trámites que usualmente se requieren.
