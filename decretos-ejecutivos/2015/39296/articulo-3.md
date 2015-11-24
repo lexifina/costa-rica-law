@@ -1,0 +1,15 @@
+Artículo 3. Reforma de los artículos: 7 del Decreto Ejecutivo N° 32448-MP-MEIC-COMEX: “Reglamento al artículo 12 del Anexo 3 de la Ley 7017” y 8 del Decreto Ejecutivo N° 33305-MEIC-H: “Reglamento Especial para la Promoción de las PYMES en las Compras de Bienes y Servicios de la Administración”, ambos referidos a los parámetros de comparación de precios entre las mercancías nacionales con las extranjeras:
+“Parámetros para la comparación.
+a) Para efectos de comparación de precios entre las mercancías nacionales con las extranjeras, la Administración calculará el precio equivalente mediante la aplicación de la siguiente fórmula, ya sea que la mercancía extranjera se entregue en el puerto de entrada o dentro del territorio nacional.
+PE = PCIF * (1+ DAI + Ley) + GI* (PCIF * (1+ DAI + Ley)) + (PO- PCIF )
+en donde:
+PE = Precio equivalente, es el precio que será comparado con el precio dado por los oferentes nacionales.
+PO = Monto del precio Ofertado.
+PCIF = Monto del precio CIF o “valor aduana” (precio ex-fábrica, costes seguro y flete) de la mercancía ajustado en todos sus extremos de conformidad con el Acuerdo relativo a la aplicación del Artículo VII del Acuerdo General sobre Aranceles y Comercio de 1994”
+GI = Porcentaje de gastos internamiento establecidos en el presente artículo.
+DAI = Derechos Arancelarios de Importación
+Ley = Tarifa fija del uno por ciento (1%) aplicable sobre el valor aduanero de las mercancías importadas según lo establecido en la Ley Nº 6946 del 13 de enero de 1984.
+El porcentaje de gastos de internamiento establecido mediante este reglamento es de 10,07%. Este porcentaje de gastos de internamiento, se revisará cada año y de ser necesario será actualizado por la Dirección de Pequeña y Mediana Empresa del Ministerio de Economía, Industria y Comercio, mediante resolución, debiendo publicarse un extracto en el Diario Oficial La Gaceta.
+El porcentaje de utilidad para efectos de comparación de precios en cada proceso de licitación de la Administración Pública, debe ser como mínimo igual a la Tasa Básica Pasiva establecida por el Banco Central de Costa Rica al momento en que se hace la comparación de precios respectiva.
+b) Para efectos de comparación de precios entre las mercancías nacionales y las mercancías provenientes de Zonas Francas instaladas dentro de Costa Rica, la Administración deberá aplicar lo que se indica en el inciso a) anterior, según sea el caso, utilizando entre otros los derechos arancelarios de importación correspondiente y vigente.
+Todo dato e información suministrado por el oferente relativo al precio CIF o al valor en aduana, debe ser verificado contra documentación existente y revisado por la Administración Pública antes de recibir el bien adjudicado. En caso de determinarse hechos falsos que alteren el precio CIF o al valor en aduana, la Administración debe hacer cumplir la legislación vigente de tal forma que la persona física o jurídica que brindó información o datos falsos está expuesta a las sanciones previstas en Código Penal y en la demás normativa nacional”.
