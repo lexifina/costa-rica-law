@@ -1,0 +1,1 @@
+Artículo 54.—Información adicional de la denuncia. El denunciante también deberá brindar información complementaria respecto a la estimación del perjuicio económico producido a los fondos públicos en caso de conocerlo y, de ser posible, deberá hacer la indicación de los probables testigos y el lugar o medio para citarlos, así como la aportación o sugerencia de otras pruebas.

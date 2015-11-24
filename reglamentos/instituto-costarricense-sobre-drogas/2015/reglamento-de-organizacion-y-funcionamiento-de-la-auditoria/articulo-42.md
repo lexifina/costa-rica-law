@@ -1,0 +1,1 @@
+Artículo 42.—Errores y omisiones. Si una comunicación final contiene un error u omisión significativa que desvirtúe su contenido, el Auditor Interno debe comunicar, a la mayor brevedad, la información corregida a todas las partes que recibieron la comunicación original.

@@ -1,0 +1,2 @@
+Artículo 15.—Regulaciones en situaciones de impedimento. El Auditor Interno establecerá por escrito las medidas formales para controlar y administrar situaciones de impedimento, que pudieran presentarse sobre hechos o actuaciones que pongan en duda o en peligro la objetividad e independencia de criterio de la Auditoría Interna.
+Si la independencia u objetividad del Auditor Interno o demás funcionarios de la Auditoría Interna se viesen comprometidas de hecho o en apariencia, los detalles del impedimento deberán darse a conocer a las partes correspondientes.

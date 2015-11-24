@@ -1,0 +1,3 @@
+CAPÍTULO IX
+De las denuncias
+Artículo 52.—Recepción y trámite de denuncias. La Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales en relación con el uso y manejo de los recursos administrados por el ICD y su presentación podrá hacerse en forma escrita, verbal, por la vía telefónica o por cualquier otro medio. La Auditoría Interna deberá valorar los hechos denunciados con el propósito de determinar si procede atender la denuncia, trasladarla o desestimarla, observando lo dispuesto en la LGCI, la LCCEI y lo que disponga al respecto la CGR.

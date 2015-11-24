@@ -1,0 +1,1 @@
+Artículo 74.—Derogatoria. Deróguese el Reglamento de Organización y Funciones de la Auditoria Interna del ICD, publicado en La Gaceta N° 88 del 08 de mayo del 2009, así como normas de igual o menor rango que se opongan al presente reglamento.

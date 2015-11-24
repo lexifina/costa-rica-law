@@ -1,0 +1,2 @@
+Artículo 47.—Informe de relación de hechos. El informe de Relación de Hechos u otro informe elaborado por la Auditoría Interna, debe ser considerado por el Órgano Director de un procedimiento administrativo como elemento fundamental de apoyo en la investigación de hechos que pudieran ser contrarios al ordenamiento jurídico, para que éste establezca las respectivas sanciones a los funcionarios que se presuman responsables.
+Esto, sin que el Órgano Director renuncie a sus potestades legales de establecer por sus propios medios, la verdad real de los hechos.

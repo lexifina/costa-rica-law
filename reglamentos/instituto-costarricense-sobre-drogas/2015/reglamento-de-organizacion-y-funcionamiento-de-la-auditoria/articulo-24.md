@@ -1,0 +1,1 @@
+Artículo 24.—Rendición de cuentas. El Auditor Interno responderá por su gestión ante el jerarca y ante éste presentará, al menos, el informe de labores previsto en el artículo 22, inciso g) de la LGCI y otras disposiciones que dicte al respecto la CGR; sin perjuicio de que se elaboren otros informes y se presenten al jerarca cuando las circunstancias lo ameriten.

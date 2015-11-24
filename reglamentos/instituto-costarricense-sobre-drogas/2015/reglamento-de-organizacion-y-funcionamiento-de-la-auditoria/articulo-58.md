@@ -1,0 +1,1 @@
+Artículo 58.—Fundamentación del acto de desestimación y archivo de una denuncia. La desestimación y archivo de una denuncia se realizará mediante un acto debidamente motivado donde se acrediten los argumentos valorados para tomar esa decisión; todo lo cual deberá quedar debidamente especificado en los papeles de trabajo de la investigación y en la razón de archivo.

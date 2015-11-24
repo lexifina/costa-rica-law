@@ -1,0 +1,2 @@
+Artículo 25.—Pericia y debido cuidado profesional. Los funcionarios de la Auditoría Interna deberán reunir los conocimientos, las aptitudes, la experiencia y otras competencias necesarias para cumplir con sus responsabilidades individuales, observando en la ejecución del trabajo el debido cuidado profesional, conforme lo dispuesto en el MNEAI y NEAI.
+El personal de Auditoría Interna, deben de reunir u obtener los conocimientos, la experiencia y las aptitudes necesarias para cumplir con sus responsabilidades.

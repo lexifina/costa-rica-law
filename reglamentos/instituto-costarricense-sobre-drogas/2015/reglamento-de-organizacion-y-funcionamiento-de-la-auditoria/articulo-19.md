@@ -1,0 +1,1 @@
+Artículo 19.—Ausencias temporales del Auditor. Cuando se ausentare temporalmente el Auditor, le sustituirá el funcionario de la Auditoría Interna designado por el Consejo Directivo, con apego al ordenamiento legal y técnico vigente aplicable.

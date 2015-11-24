@@ -1,0 +1,1 @@
+Artículo 14.—Manifestación de salvaguarda. Es obligación de los funcionarios de la Auditoría Interna poner en conocimiento del Auditor Interno en forma escrita los detalles del impedimento, cuando su independencia de criterio y objetividad se vean comprometidas de hecho o en apariencia. Asimismo, es obligación de éste actuar de igual forma ante el jerarca, de darse esa situación.

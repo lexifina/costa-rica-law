@@ -1,0 +1,10 @@
+CAPÍTULO XII
+Otras funciones de la Auditoría Interna
+Artículo 70.—Participación del Auditor Interno en las sesiones de Consejo Directivo. Con la finalidad de mantener su objetividad e independencia de criterio, la participación del Auditor en las sesiones del Órgano Colegiado debe ser la excepción y no la regla; bajo las siguientes condiciones:
+a) Asistir a las sesiones, con derecho a voz pero no a voto, y quedará constancia de su opinión en las actas respectivas.
+b) Asistir a una sesión en especial, ya sea porque en el ejercicio de su función de auditoría, decida que la asistencia resulta de alto interés en razón de que pueda obtener información relevante que le permita ejercer con mayor eficiencia sus funciones de fiscalización, o porque estime necesario gestionar su asistencia, en calidad de asesor, ante el órgano colegiado, para la atención de un asunto propio de sus funciones.
+c) Asistir a cualquier sesión, siempre y cuando así lo estime necesario y conveniente para el desempeño de sus funciones, esto en asuntos propios de su competencia.
+d) Brindar asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+e) Posibilidad de posponer su opinión, cuando a su criterio y por la complejidad del asunto en discusión, requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente y conveniente.
+f) Ni la presencia, ni el silencio del Auditor Interno en las sesiones, releva al jerarca de la responsabilidad de respetar el ordenamiento jurídico y técnico con lo acordado. No obstante el silencio, ello no impide que el Auditor Interno emita su opinión posteriormente de manera oportuna, sea de forma verbal en otra sesión, o por escrito.
+g) No podrá, negarse asistir ya que existe deber legal e ineludible del auditor interno de asesorar al jerarca cuando este lo convoque a las sesiones del órgano colegiado, siempre y cuando la asesoría que requiera el jerarca verse siempre sobre las materias que son competencia del auditor interno.

@@ -1,0 +1,2 @@
+Artículo 6°—Enunciados éticos. El Auditor Interno y demás personal de la Auditoría Interna, deberán mantener y demostrar integridad y valores éticos en el ejercicio de sus deberes y obligaciones, entre ellos: independencia, objetividad, integridad, transparencia, imparcialidad, probidad, honestidad, lealtad, respeto, equidad, oportunidad y servicio.
+Tales valores deberán manifestarse en las actuaciones internas y externas y prevenir cualquier posibilidad de duda en la gestión.

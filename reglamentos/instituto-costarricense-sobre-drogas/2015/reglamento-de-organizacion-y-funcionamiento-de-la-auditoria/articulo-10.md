@@ -1,0 +1,1 @@
+Artículo 10.—Estructura organizativa y funcional. Corresponderá al Auditor Interno proponer la estructura organizativa y funcional para la efectividad del cumplimiento de las obligaciones legales y técnicas de la Auditoría Interna, en concordancia con la razón de ser y la normativa que regula al ICD.

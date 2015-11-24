@@ -1,0 +1,2 @@
+Artículo 73.—Licencias. Quien presida el Consejo Directivo del ICD concederá al Auditor Interno, licencia ocasional de excepción, hasta por una semana con goce de sueldo, en los siguientes casos: el matrimonio del funcionario, el fallecimiento de cualquiera de sus padres, hijos, hermanos, cónyuge o conviviente; nacimiento de hijos nacidos dentro o fuera del matrimonio legalmente reconocidos o por adopción.
+La licencia se autorizará sin necesidad de que sea conocida por el Consejo Directivo, pero la misma deberá ser informada en la sesión inmediata siguiente a que se otorgó.

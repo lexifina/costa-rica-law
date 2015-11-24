@@ -1,0 +1,1 @@
+Artículo 11.—Independencia funcional y de criterio. Los funcionarios de la Auditoría Interna ejercerán sus funciones con total Independencia funcional y de criterio, respecto del jerarca y de los demás órganos de la administración activa.

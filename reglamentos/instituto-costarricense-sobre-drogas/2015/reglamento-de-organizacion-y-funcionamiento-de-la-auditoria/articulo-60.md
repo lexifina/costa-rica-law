@@ -1,0 +1,1 @@
+Artículo 60.—Confidencialidad en el trámite de denuncias. La custodia, acceso de la información y comunicación de resultados, así como la documentación y otras evidencias de las investigaciones que se efectúen serán confidenciales, de conformidad con lo establecido en el artículo 6º de la LGCI y 8º de la LCCEI.

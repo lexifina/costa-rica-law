@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del Auditor Interno y el personal a su cargo.
+Artículo 18.—Del nombramiento, suspensión y destitución del Auditor Interno. El nombramiento le corresponderá al Consejo Directivo, mediante voto favorable de dos terceras partes de sus miembros. En el caso de la suspensión o destitución del auditor sólo procede por justa causa, y únicamente puede dictarla el Consejo Directivo en condición de órgano decisor, con la observancia de los procedimientos que garanticen el debido proceso y previa obtención del dictamen favorable de la Contraloría General de la República. Para tales efectos, debe de tramitarse el procedimiento administrativo ordinario y conformarse el expediente respectivo, otorgando al auditor interno la oportunidad suficiente de audiencia y defensa.

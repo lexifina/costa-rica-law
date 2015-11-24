@@ -1,0 +1,1 @@
+Artículo 9°—Estructura y jerarquía de la Auditoria. Un Auditor Interno que es el superior jerárquico de la Auditoría Interna y sus colaboradores. El Auditor tendrá a su cargo la dirección superior y administración de ésta y de sus colaboradores.
