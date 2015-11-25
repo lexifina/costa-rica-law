@@ -1,1 +1,0 @@
-Artículo 10.—Los estudiantes que deseen acogerse al programa de becas deberán comprobar ante la Municipalidad que no están disfrutando de otro régimen becario. Dicha comprobación se hará mediante nota emitida por la autoridad de la Institución Educativa en donde estudia. En caso contrario se le dará prioridad a aquellos estudiantes que no tienen dichos beneficios.

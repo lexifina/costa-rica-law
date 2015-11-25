@@ -1,1 +1,0 @@
-Artículo 21.—El Alcalde Municipal deberá incluir en el presupuesto anual la suma necesaria para dar cumplimiento al programa de becas municipales, de acuerdo con las posibilidades reales de recursos económicos.
