@@ -13,3 +13,4 @@ Obligación del personal judicial de mantener actualizado el Rediseño del Siste
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-21 | la propia norma |
+| 2 | 2015-11-25 | Circular 221 (2015-11-25) |
