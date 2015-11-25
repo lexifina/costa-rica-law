@@ -1,0 +1,10 @@
+INSTITUTO NACIONAL DE VIVIENDA Y URBANISMO
+MODIFICACIÓN DE REGLAMENTO DE VENTA DE LOTES
+DEL INVU Y REGLAMENTO DE AVALÚOS DEL INVU
+El Instituto Nacional de Vivienda y Urbanismo avisa al público en general que en cumplimento del acuerdo tomado por la junta directiva de este instituto, según consta en el artículo II, inciso 6) del acta de la sesión ordinaria N° 6157 del 29 de octubre del 2015 que textualmente dice:
+Con los votos a favor de la Arq. Sonia Montero Díaz, quien preside y de los directivos Lic. Alejandro Li Glau, Arq. Eugenia Solís Umaña, Arq. Ana Monge Fallas, Arq. Mauricio Mussio Vargas, Lic. Marco Vásquez Víquez y Lic. José Ernesto Bertolini Miranda, se acuerda acoger la recomendación emitida por la asesoría legal en su oficio AL-812-2015, recibida el 21 de octubre del 2015 y modificar el Reglamento de Venta de Lotes del INVU, en su artículo ocho, así como el Reglamento de Avalúos del INVU en su artículo 2, inciso b), en virtud y concordancia de la ampliación de la vigencia de los avalúos institucionales así acordado por ese Órgano Colegiado, en sesión ordinaria N° 6147, artículo II, inciso 5) de fecha 3 de setiembre de 2015, para que en adelante se lean de la siguiente manera:
+Reglamento de Venta de Lotes del INVU:
+“Artículo Octavo: La vigencia del avalúo será hasta de un año desde su emisión, por lo que superado dicho plazo deberá actualizarse, considerando para la disminución de ese periodo lo establecido en la Directriz DIVAL/183-2012 denominada Guía de Valoraciones Administrativas, en su sección 3.4.5 sobre la vigencia de los avalúos”.
+Reglamento de Avalúos del INVU:
+Artículo 2.- Inciso b): Avalúo: Es la determinación técnica del valor de un bien o derecho, referido a una moneda de curso legal y a una fecha determinada y cuya vigencia será de un año, contados a partir a partir de la fecha del acto de valoración, considerando para la disminución de ese periodo lo establecido en la Directriz DIVAL/183-2012 denominada Guía de Valoraciones.
+San José, 2 de noviembre del 2015.
