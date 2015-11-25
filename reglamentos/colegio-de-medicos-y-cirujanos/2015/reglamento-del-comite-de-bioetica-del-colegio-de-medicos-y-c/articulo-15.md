@@ -1,0 +1,2 @@
+Artículo 15.—Rendición de cuentas: Deberá rendir un informe semestral ante la Junta de Gobierno sobre su gestión, incluyendo en el mismo las propuestas que contribuyan con el mejoramiento de la formación, desarrollo e implementación de la bioética en el ámbito de la salud costarricense.
+Además debe emitir informes extraordinarios cuando así lo solicite la Junta de Gobierno, o bien, tratándose de temas, asuntos o aspectos de especial relevancia que requieran atención inmediata, urgente por su interés para este Colegio, el gremio médico y la salud costarricense.

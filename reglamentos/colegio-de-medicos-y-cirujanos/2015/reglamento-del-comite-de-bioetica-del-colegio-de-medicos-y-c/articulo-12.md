@@ -1,0 +1,2 @@
+Artículo 12.—Recursos materiales y humanos: El Comité contará con las unidades administrativas y el recurso humano necesario para el cumplimiento de sus funciones. Para dichos efectos la Junta de Gobierno les asignará los recursos pertinentes.
+Además, contará con el apoyo económico y logístico del Colegio en temas de capacitación de sus miembros, el mismo será valorado por la Junta de Gobierno conforme al presupuesto que al efecto se proyecte para cada año.

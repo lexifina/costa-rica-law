@@ -1,0 +1,3 @@
+Artículo 3°—De los objetivos:
+a) Procurar la debida aplicación y respeto de los derechos y deberes de las personas que directa o indirectamente se relacionen con los servicios de salud, públicos y privados, siempre en apego a los principios básicos de autonomía, no-maleficencia, beneficencia y justicia, y los valores fundamentales de la vida humana.
+b) Coadyuvar en el desarrollo de la doctrina y jurisprudencia costarricense, con un marco de principios y procedimientos que sirvan de guía en la formulación de legislaciones, políticas u otros instrumentos en el ámbito de la bioética, para así orientar la acción de individuos, grupos, comunidades, instituciones y empresas, públicas y privadas, y a la sociedad en general.

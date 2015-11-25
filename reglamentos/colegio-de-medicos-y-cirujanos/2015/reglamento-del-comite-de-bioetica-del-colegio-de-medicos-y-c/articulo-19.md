@@ -1,0 +1,1 @@
+Artículo 19.—Admisibilidad: El pronunciamiento sobre la admisibilidad o no del asunto sometido a su conocimiento, debe darse en un plazo máximo de 30 días, contados a partir del momento de su recepción.

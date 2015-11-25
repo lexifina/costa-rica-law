@@ -1,0 +1,1 @@
+Artículo 11.—Invitados especiales: Podrá invitarse a participar de las sesiones ordinarias y extraordinarias del Comité a otras personas invitadas con fines específicos y debidamente motivados. Deberán guardar absoluta confidencialidad en los temas que sean puestos a su conocimiento.
