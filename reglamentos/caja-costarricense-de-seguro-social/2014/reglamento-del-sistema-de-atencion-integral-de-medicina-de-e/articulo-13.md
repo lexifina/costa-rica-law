@@ -1,8 +1,0 @@
-CAPÍTULO V:
-Oferta de servicios
-Artículo 13.—Complejidad de la prestación de los servicios
-a) Sin perjuicio de la capacidad instalada del departamento de salud que disponga el centro de trabajo, los servicios de atención integral que se ofrecerán a los trabajadores en el marco de la presente Modalidad deben ser homólogos a los brindados por la CCSS en el primer nivel de atención, según el modelo de atención vigente, excepto por lo estipulado en el inciso c) del presente artículo y en el artículo 15, inciso e).
-b) Cuando el médico del centro de trabajo es médico general, el usuario ingresará a la red mediante referencia directa a las áreas de salud tipo 1 y a las especialidades definidas para las áreas de salud tipo 2, que a la fecha son Psiquiatría, Medicina Interna y Ginecoobstetricia, ambos casos según el lugar de residencia de la persona.
-c) Cuando el médico del centro de trabajo es especialista en alguna rama de la medicina podrá referir directamente a las áreas de salud tipo 1 y a las especialidades definidas para las áreas de salud tipo 2, así como al servicio médico que considere en caso que refiera sobre una patología propia de su especialidad, siempre siguiendo la red de adscripción de la persona usuaria del servicio.
-d) Tanto el médico general como especialista tendrán acceso de referencia directa a los servicios de Nutrición, Trabajo social, Psicología y Odontología en el nivel correspondiente, según la oferta de la red, siguiendo los parámetros institucionales establecidos.
-e) Los centros de salud de la CCSS deben asegurarse el cumplimiento de lo estipulado en los incisos b), c) y d) del presente artículo y para ello cuenta con los diferentes sellos definidos en el artículo 6, incisos g) y h).

@@ -1,3 +1,0 @@
-Artículo 2º—Del Objetivo de la Modalidad
-a) El objetivo de esta modalidad es mejorar el acceso a la red de servicios que brinda la CCSS a la población económicamente activa del país, de manera que se fortalezca la integralidad de la atención en salud a los trabajadores, a través de una alianza entre la Caja Costarricense de Seguro Social y el centro de trabajo.
-b) El presente Reglamento no pretende limitar la prestación de los servicios de salud, que los centros de trabajo deseen brindar, sino enmarcar específicamente la modalidad de atención en salud que se llevará a cabo como parte de la alianza con la CCSS.

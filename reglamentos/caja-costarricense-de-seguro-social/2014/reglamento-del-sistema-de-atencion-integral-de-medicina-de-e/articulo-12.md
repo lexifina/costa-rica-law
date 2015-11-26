@@ -1,3 +1,0 @@
-Artículo 12.—Asesoría técnica sobre la Modalidad
-a) La CCSS, a través de la unidad responsable de la modalidad, deberá proveer la información y la asesoría técnica respecto de la Modalidad de Atención Integral de Medicina de Empresa a las instancias institucionales y centros de trabajo que así lo requieran, de la manera más expedita posible.
-b) La asesoría técnica será ofrecida de forma escrita, presencial, telefónica o por los medios electrónicos disponibles. Podrá solicitarse en el área de salud de adscripción o directamente a la unidad responsable de la Modalidad en el Nivel Central, siguiendo el proceso establecido.
