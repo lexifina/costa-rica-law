@@ -1,0 +1,1 @@
+Artículo 21.—La Tesorería Municipal deberá dar seguimiento y evaluar las diferentes posiciones sujetas de riesgo de mercado, que afecten las tasas o tipos de cambio y realizar los análisis y recomendaciones que considere pertinentes para valoración de la Administración Tributaria y Financiera, como insumo para eventuales propuestas a la Alcaldía Municipal si corresponde.

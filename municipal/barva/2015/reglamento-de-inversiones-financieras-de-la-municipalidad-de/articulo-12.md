@@ -1,0 +1,1 @@
+Artículo12.—El/La Tesorero (a) Municipal podrá realizar inversiones o redimir las mismas antes de su vencimiento de acuerdo a las necesidades que se presenten en un momento dado en la Municipalidad, siempre y cuando estén bien sustentadas las razones para acudir a dicho proceso y se efectúe el procedimiento estipulado en el presente reglamento.

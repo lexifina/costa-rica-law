@@ -1,0 +1,4 @@
+(*)Artículo 28.—El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+El presente reglamento fue aprobado por el Concejo de la Municipalidad del Cantón de Barva como proyecto, mediante el Acuerdo Municipal número 739-2015 adoptado en la Sesión Ordinaria número 35, celebrada el 01 de Junio del año 2015, publicado en el Diario Oficial La Gaceta de este día. En virtud de lo estipulado en el artículo 43 de la Ley 7794, este proyecto de reglamento se somete a consulta pública no vinculante por un plazo de diez días hábiles. Si vencido el plazo de consulta pública no se presentasen ni aprobasen oposiciones se tendrá por aprobado definitivamente y se publicará únicamente el acuerdo respectivo que así lo establezca.
+Administradora Tributaria y Financiera
+(*) (Nota de Sinalevi: En la publicación de este reglamento se duplica la numeración del artículo 28, del análisis se deduce que en realidad corresponde al artículo 31)

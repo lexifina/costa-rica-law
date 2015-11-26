@@ -1,0 +1,1 @@
+Artículo 28.—Cuando se requiera redimir una inversión el dinero deberá ser depositado únicamente en cuentas a nombre de la Municipalidad de Barva, nunca a nombre de un (a) Funcionario (a) Municipal o un tercero.

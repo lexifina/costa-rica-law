@@ -1,0 +1,1 @@
+Artículo 26.—Si la disponibilidad de efectivo excede el monto consignado en el artículo 25 del presente reglamento, el/la Tesorero (a) debe contar con la aprobación de la Administración Tributaria y Financiera y el/la Alcalde (sa) para la realización de la inversión.

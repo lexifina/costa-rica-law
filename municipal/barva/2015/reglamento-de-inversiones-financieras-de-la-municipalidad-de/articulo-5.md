@@ -1,0 +1,1 @@
+Artículo 5º—Las inversiones que la Municipalidad de Barva deberán efectuarse bajo el menor riesgo de pérdida posible, procurando mayores utilidades y a la vez una fácil convertibilidad de la inversión en dinero efectivo de acuerdo a sus necesidades.

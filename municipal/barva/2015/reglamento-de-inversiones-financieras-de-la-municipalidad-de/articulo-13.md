@@ -1,0 +1,1 @@
+Artículo 13.—Las ordenes de inversión, reinversión, retiro etc. serán autorizadas por dos de los tres funcionarios que están autorizados a firmar en las cuentas corrientes de la Municipalidad, una de esas firmas siempre deberá ser del Tesorero Municipal.

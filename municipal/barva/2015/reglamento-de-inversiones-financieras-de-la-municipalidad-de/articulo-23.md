@@ -1,0 +1,1 @@
+Artículo 23.—La Tesorería Municipal deberá mantener un archivo de respaldo adicional de los registros e informes de las inversiones, cuando la información se mantiene en el disco duro de un computador.

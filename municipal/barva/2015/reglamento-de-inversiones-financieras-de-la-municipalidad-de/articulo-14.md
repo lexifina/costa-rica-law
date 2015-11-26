@@ -1,0 +1,1 @@
+Artículo 14.—El departamento de Tesorería deberá de mantener actualizado el registro de los rendimientos obtenidos, y estos deben estar conciliados con los registros contables mensualmente, como mínimo.

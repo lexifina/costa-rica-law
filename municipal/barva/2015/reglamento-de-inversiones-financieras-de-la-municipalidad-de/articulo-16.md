@@ -1,0 +1,1 @@
+Artículo 16.—El/La Tesorero (a) Municipal podrá solicitar a los diferentes proveedores (Puestos de Bolsa, Bancos estatales, Mutuales etc.) asesoría en el campo financiero, que coadyuven en la toma de decisiones para realizar una inversión financiera.

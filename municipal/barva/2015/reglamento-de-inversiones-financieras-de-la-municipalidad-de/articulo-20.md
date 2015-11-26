@@ -1,0 +1,1 @@
+Artículo 20.—El Departamento de Tesorería deberá determinar las pérdidas potenciales que se puedan generar en el caso de retiro de recursos antes de la fecha de vencimiento para hacer frente a situaciones originadas por factores externos a la Municipalidad de Barva.
