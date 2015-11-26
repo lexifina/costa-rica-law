@@ -1,0 +1,2 @@
+TRANSITORIO II.- El Instituto Nacional de Estadística y Censos (INEC) y el Banco Central de Costa Rica (BCCR), conforme a sus competencias, en un plazo no mayor de doce meses, contado a partir de la vigencia de la presente ley, iniciarán el proceso de adecuación de procedimientos y gestiones necesarios para planear, diseñar y definir, técnica, conceptual y metodológicamente, la encuesta de uso del tiempo.
+Dado en la Presidencia de la República, San José, a los diecinueve días del mes de octubre del año dos mil quince.
