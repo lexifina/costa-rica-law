@@ -1,0 +1,4 @@
+ARTÍCULO 4.-Ámbito de aplicación de la ley
+El Instituto Nacional de Estadística y Censos (INEC) y el Banco Central de Costa Rica (BCCR) son las autoridades responsables de coordinar el cumplimiento de lo dispuesto en la presente ley, en concordancia con lo que establecen el inciso d) del artículo 13 y el inciso d) del artículo 15 de la Ley N° 7839, Sistema de Estadística Nacional, de 15 de octubre de 1998.
+Para ello, el INEC deberá establecer los mecanismos y realizar las gestiones necesarias para planear, diseñar, aplicar y actualizar una encuesta de uso del tiempo, instrumento indispensable para obtener la información requerida para la elaboración de la cuenta satélite del trabajo doméstico no remunerado (CSTDNR).
+El BCCR será el encargado de calcular la CSTDNR a partir de la información provista por el INEC.
