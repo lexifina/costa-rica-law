@@ -1,0 +1,5 @@
+Artículo 5°—Del Contrato:
+5.1 Cuando el MEP requiera arrendar un vehículo incluido dentro del “Registro de Elegibles”, deberá el respectivo funcionario apersonarse dentro de los ocho días hábiles siguientes a la comunicación que debe hacer la Dirección de Servicios Generales para la correspondiente firma del Contrato ante esa dependencia, documento que además de recoger las obligaciones y derechos contractuales de las partes, fijará el plazo, la tarifa aplicable y otras condiciones generales y específicas de dicha contratación.
+El ministro(a) emitirá una resolución debidamente razonada sobre la delegación de la firma del contrato en quien ostente el cargo de la Dirección de Servicios Generales.
+5.2 La no presentación sin justa causa del funcionario respectivo dentro del plazo indicado determinará que se excluya el vehículo del Registro de Elegibles.
+5.3 La Dirección de Servicios Generales deberá remitir al Departamento de Tesorería de la Dirección Financiera, la copia del contrato suscrito con el servidor, con el objetivo de mantener una base de datos sobre los propietarios de los vehículos dados en arrendamiento, para el trámite de pago correspondiente.

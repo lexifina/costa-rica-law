@@ -1,0 +1,1 @@
+Artículo 17.—Control de Transportes. El Departamento de Transportes de la Dirección de Servicios Generales informará a las unidades involucradas en el proceso, respecto al ingreso y las exclusiones de vehículos que se hicieren, con el fin de que se mantenga actualizado el “Registro de Elegibles”, para los controles y trámites que correspondiere.

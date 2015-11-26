@@ -1,0 +1,4 @@
+Artículo 4°—Del Registro de Elegibles.
+4.1 Todo funcionario perteneciente a una Dirección Regional de Educación interesado en arrendar su vehículo al MEP, presentará una solicitud por escrito, indicando las características del mismo; así como cualquier otro detalle que estime de importancia, conjuntamente con la documentación que se establece en el presente Reglamento.
+4.2 El Departamento de Transportes de la Dirección de Servicios Generales, con base en dichas solicitudes, mantendrá un “Registro de Elegibles” de los funcionarios propietarios de vehículos que estuvieren dispuestos a contratar este tipo de servicio de arrendamiento con el MEP.
+4.3 Corresponderá al Departamento de Trasportes de la Dirección de Servicios Generales realizar el análisis de la solicitud, la verificación de los requisitos y llevar un “Registro de Elegibles”.

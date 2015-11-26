@@ -1,0 +1,3 @@
+Artículo 13.—Liquidación del servicio. El trámite de liquidación del servicio de arrendamiento ante la Dirección Financiera lo efectuará la Dirección de Servicios Generales, previa aprobación por parte de la Dirección de Gestión y Desarrollo Regional mediante el sistema de pago de kilometraje por mes, según se estime conveniente.
+El funcionario propietario deberá presentar una liquidación, aprobada por su jefe inmediato, de los diferentes recorridos que hubiere realizado durante el mes anterior, adjuntando las boletas de autorización.
+La Dirección de Servicios Generales, mantendrá el control de la presentación de las liquidaciones de los funcionarios dentro del plazo establecido y no autorizará una nueva gira de mantener el pendiente.

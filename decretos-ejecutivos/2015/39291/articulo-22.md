@@ -1,0 +1,3 @@
+Artículo 22.—Coordinación de giras:
+22.1 En lo posible se coordinarán los servicios de modo tal que en un mismo vehículo arrendado pudiere transportarse, además, cualquier otro funcionario de la misma dependencia, que deba efectuar el mismo recorrido, aún en el caso de que estuviese también el vehículo propiedad de este último al servicio del MEP bajo la modalidad de un contrato de arrendamiento al amparo de las estipulaciones del presente reglamento.
+22.2 La respectiva Jefatura o el superior inmediato de ambos funcionarios decidirá sobre el vehículo que efectuará la gira, cuando hubiere varios automotores disponibles.

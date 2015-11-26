@@ -1,0 +1,1 @@
+Artículo 6°—De la aprobación del superior inmediato. Los funcionarios de las Direcciones Regionales de Educación que estuviesen interesados en arrendar su vehículo a este Ministerio deberán contar con la aprobación de su superior inmediato, la cual deberá adjuntar a su solicitud.

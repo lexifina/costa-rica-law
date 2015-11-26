@@ -1,0 +1,1 @@
+Artículo 29.—Cuando se determine que en la ejecución del contrato, el funcionario propietario ha incurrido en violación de las disposiciones reglamentarias, podrá ser inhabilitado por el MEP para ser parte en la relación de arrendamiento de vehículos, sin que lo anterior excluya la aplicación del régimen sancionatorio aplicable si la gravedad de la falta lo amerita.

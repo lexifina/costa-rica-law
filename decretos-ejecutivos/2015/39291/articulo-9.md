@@ -1,0 +1,1 @@
+Artículo 9°—Incumplimiento de los requisitos del Reglamento. En ningún caso se incluirá dentro del “Registro de Elegibles”, ni se podrá contratar ni aprobar el uso de un vehículo, si de previo el propietario no ha cumplido con la totalidad de los requisitos establecidos en este reglamento.
