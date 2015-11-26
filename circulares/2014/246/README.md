@@ -13,3 +13,4 @@ Reiteración de la circular N° 111-2003, sobre Deber de hacer saber al Tribunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-13 | la propia norma |
+| 2 | 2015-11-26 | Circular 224 (2015-11-26) |
