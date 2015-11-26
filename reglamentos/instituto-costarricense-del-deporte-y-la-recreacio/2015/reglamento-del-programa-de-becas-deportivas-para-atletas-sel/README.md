@@ -14,3 +14,4 @@ Reglamento del programa de becas deportivas para atletas seleccionados nacionale
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-19 | la propia norma |
+| 2 | 2015-11-26 | Reglamento 965 (2015-11-26) |
