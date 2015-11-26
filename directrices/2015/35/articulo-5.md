@@ -1,0 +1,1 @@
+Artículo 5°—Responsabilidades. Se instruye a los directores de la banca pública estatal a implementar las medidas necesarias para alcanzar el objetivo en eficiencia y poner en práctica el plan para la mejora en la distribución del crédito, así como velar por el cumplimiento de las metas establecidas.
