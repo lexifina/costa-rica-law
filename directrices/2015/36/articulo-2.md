@@ -1,0 +1,1 @@
+Artículo 2°—Se dirige a las juntas directivas de los bancos públicos estatales a implementar, dentro de los nuevos modelos para el reconocimiento de pago de incentivos a sus funcionarios, los indicadores señalados en el artículo 1° anterior, en el plazo máximo de cuatro meses, a partir de la publicación de la presente Directriz.

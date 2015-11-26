@@ -1,0 +1,1 @@
+Artículo 3°—Se instruye a las juntas directivas de los bancos públicos estatales a presentar el plan de acción para el aprovechamiento de sinergias entre las diferentes entidades bancarias, en un plazo de hasta tres meses, a partir de la publicación de la presente Directriz.
