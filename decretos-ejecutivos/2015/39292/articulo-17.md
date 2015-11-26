@@ -1,0 +1,5 @@
+Artículo 17.—La Comisión Técnica Especializada destinará los fondos de la Ley N° 8283, a financiar cuatro clases de planes de inversión, los cuales serán:
+a) Productos de apoyo: Cualquier producto (incluyendo dispositivos, equipos, instrumentos, tecnologías y software) fabricado especialmente o disponible en el mercado para prevenir, compensar, controlar, mitigar o neutralizar deficiencias, limitaciones en la actividad y restricciones en la participación.
+b) Proyecto didáctico: Consiste en brindar recursos con la finalidad de apoyar los procesos de aprendizaje, congruentes con el plan de estudios, propiciando elementos de sostenibilidad o estrategias que conlleven a emprendimientos futuros.
+c) Proyecto de equipamiento: Radica en proporcionar mobiliario, maquinaria, herramienta y materiales para equipar los talleres y aulas académicas que faciliten el acceso a la educación y permita a los estudiantes una adecuada formación.
+d) Proyecto de infraestructura: Comprende construcción, ampliación o remodelación de la infraestructura en el servicio educativo, que optimice el acceso a la educación.

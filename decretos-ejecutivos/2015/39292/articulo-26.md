@@ -1,0 +1,1 @@
+Artículo 26.—El producto de apoyo adquirido será propiedad del estudiante que lo solicitó. Para este efecto, la Junta Administrativa deberá emitir un acta donde entrega el bien al encargado o directamente al estudiante.

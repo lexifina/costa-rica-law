@@ -1,0 +1,1 @@
+Artículo 10.—La Comisión Técnica Especializada podrá solicitar los criterios técnicos que requiera para el cumplimiento de sus funciones, a las diferentes instancias que tengan representación dentro de ésta y las diferentes Direcciones Administrativas del Nivel Asesor y Ejecutor del Ministerio de Educación Pública.

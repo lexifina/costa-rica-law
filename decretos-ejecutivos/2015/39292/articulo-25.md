@@ -1,0 +1,1 @@
+Artículo 25.—En el caso de productos de apoyo, la Comisión Técnica Especializada deberá solicitar para su aprobación, el criterio técnico especializado del Instituto de Rehabilitación y Formación Helen Keller o del Centro Nacional de Recursos para la Educación Inclusiva.

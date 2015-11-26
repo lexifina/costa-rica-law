@@ -1,0 +1,1 @@
+Artículo 27.—Ningún Centro Educativo podrá presentar un nuevo proyecto o una nueva solicitud de productos de apoyo ante la Comisión Técnica Especializada, sino cuenta con la aprobación del informe final de liquidación o acta de entrega del proyecto anterior.

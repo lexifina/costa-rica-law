@@ -1,0 +1,1 @@
+Artículo 24.—Los requisitos para la presentación de los cuatro tipos de inversión se establecen en el Manual para la Presentación y Liquidación de Proyectos y Productos de Apoyo de la Comisión Técnica Especializada.

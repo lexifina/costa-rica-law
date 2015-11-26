@@ -1,0 +1,1 @@
+Artículo 15.—Las Juntas Administrativas de los Centros Educativos beneficiados serán las responsables del manejo adecuado de los fondos ante las instituciones que lo financian y ante la Contraloría General de la República.

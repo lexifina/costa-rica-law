@@ -1,0 +1,1 @@
+Artículo 21.—El Departamento de Gestión de Juntas del MEP, enviará trimestralmente a la Comisión Técnica Especializada un informe de las transferencias giradas a las Juntas Administrativas de los Centros Educativos a los que se aprobaron proyectos o productos de apoyo.

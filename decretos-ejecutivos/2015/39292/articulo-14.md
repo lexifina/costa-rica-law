@@ -1,0 +1,1 @@
+Artículo 14.—La Comisión Técnica Especializada podrá solicitar a las Juntas Administrativas de los Centros Educativos, a los que se les ha transferido recursos de la Ley Nº8283, informes del avance, situación de los proyectos y adquisición de productos de apoyo. La Junta Administrativa tendrá 10 días hábiles para rendir el informe.

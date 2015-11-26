@@ -1,0 +1,1 @@
+Artículo 7º—La Comisión Técnica Especializada se reserva el derecho de priorizar aquellos proyectos y productos de apoyo que por situaciones especiales de fuerza mayor, emergencia o por conocimiento de causa técnica requieran atención inmediata, toda vez que cumplan con los requisitos establecidos por la misma.

@@ -1,0 +1,1 @@
+Artículo 29.—Todos los recursos asignados por la Comisión Técnica Especializada mediante los proyectos o productos de apoyo, deberán utilizarse exclusivamente para la población meta y los fines para los cuales fueron aprobados.

@@ -1,0 +1,3 @@
+CAPÍTULO II
+De los Recursos
+Artículo 16.—El Ministerio de Educación Pública (MEP), a través de la Comisión Técnica Especializada, definirá la forma oportuna en que se adjudicarán los recursos que la Ley para el Financiamiento y Desarrollo de Equipos de Apoyo para la Formación de Estudiantes con Discapacidad matriculados en III y IV Ciclos de la Educación Regular y de los servicios de III y IV Ciclos de Educación Especial, Ley N° 8283, asigna para la adquisición de los planes de inversión requeridos por los estudiantes con discapacidad del Tercer Ciclo de la Educación General Básica, de Educación Regular o Especial, y de la Educación Diversificada o Cuarto Ciclo, de la Educación Regular o Educación Especial.

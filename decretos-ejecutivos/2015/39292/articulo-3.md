@@ -1,0 +1,1 @@
+Artículo 3º—Los representantes ante la Comisión Técnica Especializada serán designados por cada una de las instancias a las que se hace referencia en el artículo 1 de este reglamento, además serán nombrados por un período de dos años y podrán ser reelectos.

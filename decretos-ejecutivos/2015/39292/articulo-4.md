@@ -1,0 +1,1 @@
+Artículo 4º—Por cada uno de los representantes ante la Comisión Técnica Especializada se nombrará un suplente, el cual será designado por cada una de las instancias que conforman la Comisión Técnica Especializada. El miembro suplente sustituirá al propietario en las sesiones de trabajo de la Comisión Técnica en caso de ausencia justificada del miembro propietario.

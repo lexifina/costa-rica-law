@@ -1,0 +1,1 @@
+Artículo 20.—La Comisión Técnica Especializada será la responsable de la emisión y envío de la planilla a la Dirección de Recursos Humanos del MEP, quienes la remitirán al Departamento de Gestión de Juntas del MEP, para que esta instancia realice la trasferencia de los fondos.

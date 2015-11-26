@@ -1,0 +1,1 @@
+Artículo 13.—Los recursos para atender los proyectos o recursos de apoyo aprobados por la Comisión Técnica Especializada serán transferidos por el Departamento de Gestión de Juntas del MEP, según las políticas vigentes del Ministerio de Hacienda.

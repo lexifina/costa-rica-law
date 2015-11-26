@@ -1,0 +1,1 @@
+Artículo 32.—Ante el incumplimiento de lo establecido en el presente reglamento, la Comisión Técnica Especializada elaborará un informe en donde detallará las razones del incumplimiento, y lo trasladará a las instancias competentes del MEP para que estas tomen las medidas administrativas y disciplinarias correspondientes.

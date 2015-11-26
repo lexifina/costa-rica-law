@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión Técnica Especializada y especialmente el (la) coordinador(a) contará para la realización de sus funciones con el apoyo técnico y administrativo del Departamento de Educación Especial del MEP, así como con el apoyo de las organizaciones representadas en la Comisión.
