@@ -1,0 +1,1 @@
+Artículo 10.—Todo pago que se autorice deberá hacerse por los medios estipulados en el artículo 5 de este reglamento, excepto aquellos que se realicen a través de Caja Chica, de acuerdo a las disposiciones contenidas en el reglamento municipal vigente, según lo consignado en el artículo 109 del Código Municipal.

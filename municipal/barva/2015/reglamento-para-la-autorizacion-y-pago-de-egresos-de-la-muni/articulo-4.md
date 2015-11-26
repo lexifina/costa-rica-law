@@ -1,0 +1,1 @@
+Artículo 4º—El monto consignado en el artículo anterior se incrementara conforme se produzcan las modificaciones a los umbrales de la contratación administrativa de conformidad con la legislación vigente y las resoluciones que al respecto emita el Ente Contralor.

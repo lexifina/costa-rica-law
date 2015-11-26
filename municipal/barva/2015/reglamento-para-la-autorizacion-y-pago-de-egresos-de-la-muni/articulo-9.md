@@ -1,0 +1,1 @@
+Artículo 9º—El/La Tesorero (a) Municipal no ejecutara pago alguno sin una orden escrita: acuerdo municipal, resolución de Alcalde (sa), orden de compra o cualquier otro tipo de disposición emitida por el órgano municipal competente que lo autorice, en apego a lo dispuesto en el artículo 110 de la Ley 7794 Código Municipal.

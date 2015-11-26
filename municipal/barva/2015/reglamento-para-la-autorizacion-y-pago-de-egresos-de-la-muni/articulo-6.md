@@ -1,0 +1,1 @@
+Artículo 6º—Todo pago que se solicite debe hacerse contra la documentación de respaldo (orden de compra u orden de pago por servicio, factura timbrada y visto bueno de pago por parte del funcionario que solicitó dicha contratación); todo como respaldo del egreso, según lo establecido en los artículos 109 y 110 del Código Municipal.
