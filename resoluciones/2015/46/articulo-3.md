@@ -1,0 +1,1 @@
+Artículo 3°—A partir de la fecha en que sea publicada la presente resolución en el Diario Oficial La Gaceta, se deja sin efecto la tasa de interés publicada en el Diario Oficial La Gaceta N° 69 del 10 de abril de 2015 (16,00%).
