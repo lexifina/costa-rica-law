@@ -1,0 +1,1 @@
+Artículo 6º—Contratos para la asignación de teléfonos celulares. Para la asignación y uso de los teléfonos celulares, cada uno de los funcionarios deberá suscribir un contrato, mismo que será proporcionado por el Departamento de Control de Activos de la Proveeduría Institucional, en el que se especificarán las normas de uso y control.

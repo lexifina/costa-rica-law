@@ -1,0 +1,1 @@
+Artículo 13.—Ajuste de procedimiento. Aquellos funcionarios que a la fecha tengan asignado una línea celular, deberán ajustar sus actuaciones al presente Reglamento, en virtud de lo cual corresponderá a las instancias competentes la confección de los contratos pertinentes para tal efecto.
