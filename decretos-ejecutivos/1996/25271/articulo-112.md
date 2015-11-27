@@ -24,3 +24,7 @@ b. Segunda vez: Despido sin responsabilidad patronal
 (Así reformado por el artículo 12 del decreto ejecutivo N° 25941 de 14 de marzo de 1997)
 a) Por primera vez: Amonestación por escrito.
 b) Por segunda vez: Despido sin responsabilidad patronal.
+7. Se considerará falta grave y aplicarán las siguientes sanciones específicas, la violación de las disposiciones de los artículos 109 inciso 38) y 107 inciso s) de este Reglamento.
+a. Primera vez: Suspensión por ocho días.
+b. Segunda vez: Despido sin responsabilidad patronal.
+(Así adicionado el inciso 7) anterior por el artículo 1° del decreto ejecutivo N° 39475 del 27 de noviembre de 2015)

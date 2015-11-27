@@ -1,6 +1,6 @@
 CAPÍTULO VI
 Prohibiciones a los funcionarios y funcionarias
-Artículo 109.—Además de lo establecido en el Código de Trabajo, la Ley General de la Administración Pública, Ley General de Aduanas, Código de Normas y Procedimientos Tributarios, Ley de Justicia Tributaria, en el Estatuto de Servicio Civil y su Reglamento y demás leyes conexas; así como otros artículos de este reglamento, queda prohibido a los funcionarios (as):
+Artículo 109.— Además de lo establecido en el Código de Trabajo, la Ley General de la Administración Pública, Ley General de Aduanas, Código de Normas y Procedimientos Tributarios, Ley de Justicia Tributaria, en el Estatuto de Servicio Civil y su Reglamento y demás leyes conexas; así como otros artículos de este reglamento, queda prohibido a los funcionarios (as):
 1) Usar el poder oficial o la influencia que surja de él, para conferir o procurar servicios especiales, nombramientos, o cualquier otro beneficio personal que implique un privilegio, a sus familiares, amigos o cualquier otra persona, medie o no remuneración.
 2) Emitir normas en su propio beneficio.
 3) Usar el título oficial, los distintivos, la papelería o el prestigio de la oficina pública para asuntos de carácter personal o privado.
@@ -15,11 +15,11 @@ No opera esta disposición cuando se pida colaboración a varias entidades para 
 11) Dirigir, administrar, patrocinar, representar o prestar servicios, remunerados o no, a personas de existencia física o jurídica, que gestionen o exploten concesiones o privilegios de la Administración, o que fueren sus proveedores o contratistas.
 12) Solicitar servicios o recursos especiales para la institución, cuando dicha aportación comprometa o condicione en alguna medida la toma de decisiones.
 13) Hacer abandono o dejar de hacer las labores encomendadas sin causa justificada, o sin permiso expreso del responsable de la actividad donde se encuentre ubicado. Sin perjuicio de otros supuestos constituye abandono:
-Distraer tiempo de sus horas de trabajo para asuntos ajenos a las labores correspondientes del cargo que desempeña.
-Atender, en horas de trabajo, visitas y hacer llamadas telefónicas de carácter personal para asuntos ajenos a sus labores, a menos que estas sean de gravedad o de urgencia, en cuyo caso deberán ser lo más breves posibles.
-Atender negocios de carácter personal, o ejecutar algún trabajo de cualquier naturaleza, ajeno a los fines de su función o del Ministerio.
-Visitar otras oficinas que no sean aquellas donde prestan sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones innecesarias con compañeros (as) de labores o con extraños, en perjuicio o con demora del trabajo que se está ejecutando.
-Distraer con cualquier clase de juegos o bromas a los compañeros (as) de trabajo o quebrantar la cordialidad y el mutuo respeto que deben ser normas en las relaciones del personal de la institución.
+a. Distraer tiempo de sus horas de trabajo para asuntos ajenos a las labores correspondientes del cargo que desempeña.
+b. Atender, en horas de trabajo, visitas y hacer llamadas telefónicas de carácter personal para asuntos ajenos a sus labores, a menos que estas sean de gravedad o de urgencia, en cuyo caso deberán ser lo más breves posibles.
+c. Atender negocios de carácter personal, o ejecutar algún trabajo de cualquier naturaleza, ajeno a los fines de su función o del Ministerio.
+d. Visitar otras oficinas que no sean aquellas donde prestan sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones innecesarias con compañeros (as) de labores o con extraños, en perjuicio o con demora del trabajo que se está ejecutando.
+e. Distraer con cualquier clase de juegos o bromas a los compañeros (as) de trabajo o quebrantar la cordialidad y el mutuo respeto que deben ser normas en las relaciones del personal de la institución.
 14) Incumplir las órdenes de los superiores jerárquicos, cuando sean propias de su competencia, salvo excepciones establecidas por ley.
 15) Ejercer dentro de la institución, actividades de propaganda político-electoral o en el desempeño de sus funciones.
 16) Tomar represalias en contra de sus colaboradores, que sean por motivo de orden político-electoral, o que impliquen violación de cualquier otro derecho que conceden las leyes.
@@ -48,3 +48,5 @@ Distraer con cualquier clase de juegos o bromas a los compañeros (as) de trabaj
 36) Aquellas otras que se estipulen por los medios administrativos y jurídicos, y las demás incluidas en la legislación existente al respecto y que no se hayan considerado en este artículo.
 37. Observar, reproducir o exhibir imágenes deshonestas u obscenas, o material pornográfico en cualquier lugar de la institución, a través del acceso de Internet, del correo electrónico, o por cualquier medio.
 (Así adicionado por el artículo 3° del decreto ejecutivo N°. 30289 de 9 de abril de 2002)
+38) Utilizar lenguaje o realizar conductas que sean discriminatorias o contrarias a la dignidad de personas por razones de raza, etnia, nacionalidad, idioma, género, orientación sexual o identidad de género hacia cualquier usuario o personal de la Institución.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39475 del 27 de noviembre de 2015)

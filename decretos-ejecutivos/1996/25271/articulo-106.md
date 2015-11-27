@@ -1,7 +1,7 @@
 TÍTULO VI
 CAPÍTULO III
 Otras obligaciones de los funcionarios y las funcionarias
-Artículo 106.—Sin perjuicio de lo que al efecto dispongan el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, la Ley General de la Administración Financiera de la República, la Ley General de Aduanas, el Código de Normas y Procedimientos Tributarios, la Ley de Justicia Tributaria, y otros cuerpos normativos que regulen la materia, son obligaciones de los funcionarios (as) del Ministerio:
+Artículo 106.— Sin perjuicio de lo que al efecto dispongan el Estatuto de Servicio Civil y su Reglamento, la Ley General de la Administración Pública, el Código de Trabajo, la Ley General de la Administración Financiera de la República, la Ley General de Aduanas, el Código de Normas y Procedimientos Tributarios, la Ley de Justicia Tributaria, y otros cuerpos normativos que regulen la materia, son obligaciones de los funcionarios (as) del Ministerio:
 a) Cumplir con las disposiciones normativas aplicables a la relación de servicio; así como con todas aquellas de orden interno, que llegaren a dictarse, sin perjuicio de que puedan hacer valer sus derechos si en alguna forma los consideran lesionados.
 b) Ejecutar las labores con la capacidad, dedicación, esmero y diligencia que el cargo requiera, aplicando todo el esfuerzo para el desempeño de sus funciones.
 c) Rehusar dádivas, obsequios o recompensas que les ofrezcan como retribución por actos inherentes a sus funciones, deberes y obligaciones y denunciar a quien se las ofrezca.
@@ -22,3 +22,6 @@ q) Al finalizar sus labores deberá desconectar los artefactos eléctricos que s
 r) Presentar las cuentas y liquidar el adelanto de gastos o viáticos que le hubiere sido girado, dentro del plazo que señale el respectivo reglamento.
 s) Dar aviso a su jefe de los riesgos del trabajo (accidente o enfermedad profesional), que sufra dentro de las cuarenta y ocho horas siguientes, contadas a partir del acaecimiento del accidente de trabajo, o de la determinación de la enfermedad profesional.
 t) Abstenerse de ingerir drogas y licor en las diversas dependencias del Ministerio.
+u) Abstenerse de utilizar lenguaje o realizar conductas que sean discriminatorias o contrarias a la dignidad de personas por razones de raza, etnia, nacionalidad, idioma, género, orientación sexual e identidades de género contra cualquier usuario o personal de la institución.
+En caso de denuncia, ya sea de manera personal o por interpósita persona, de que algún servidor de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39475 del 27 de noviembre de 2015)

@@ -1,7 +1,7 @@
 CAPÍTULO IV
 De las obligaciones de los funcionarios y funcionarias con autoridad
 administrativa, técnica o de ambos tipos
-Artículo 107.—Además de las contempladas en el Artículo 106 y en otros del presente Reglamento, los funcionarios (as) que ocupen cargos con autoridad administrativa, técnica o de ambos tipos están obligados a:
+Artículo 107.— Además de las contempladas en el Artículo 106 y en otros del presente Reglamento, los funcionarios (as) que ocupen cargos con autoridad administrativa, técnica o de ambos tipos están obligados a:
 a) Diagnosticar periódicamente en forma objetiva y veraz, las características del desempeño de todos sus colaboradores, tanto en el aspecto técnico como administrativo y brindarles o gestionar la capacidad que requieran.
 b) Preparar informes y reportes con la correspondiente periodicidad sobre la marcha de su respectiva unidad o proyecto; o en forma inmediata, sobre cualquier hecho relevante que requiera pronta solución.
 c) Observar que se cumplan las normas de disciplina y asistencia de sus colaboradores.
@@ -22,3 +22,5 @@ p) Elevar a decisión del Ministro(a) en el término improrrogable de tres días
 q) Cumplir con todas las demás obligaciones propias de su cargo.
 r) Tramitar ante quien tenga la competencia para disciplinar, la denuncia por acoso laboral presentada por un funcionario(a) a su cargo.
 (Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 36442 del 7 de diciembre de 2010)
+s) No Incurrir en prácticas discriminatorias hacia cualquier servidor o usuario de la Institución por razones raza, etnia, nacionalidad, idioma, género, orientación sexual o identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39475 del 27 de noviembre de 2015)
