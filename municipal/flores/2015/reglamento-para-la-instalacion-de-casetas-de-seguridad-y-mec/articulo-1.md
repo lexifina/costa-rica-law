@@ -1,0 +1,8 @@
+MUNICIPALIDAD DE FLORES
+El Concejo Municipal en concordancia con las competencias otorgadas en el Código Municipal, en su artículo 13, mediante el acuerdo N° 5000-15 de la sesión ordinaria 417-15 del 13 de octubre del año 2015, pública la versión aprobada y definitiva del Reglamento de Utilización de Derecho de Vía Municipal, Cortes Viales y Trámites Afines; y el Reglamento para la Instalación de Casetas de Seguridad y Mecanismos de Vigilancia para el Acceso a Urbanizaciones y Barrios Residenciales de la Municipalidad de Flores, que se transcribe así: (*)
+(*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 7 del 12 de enero del 2016, página N° 56. Anteriormente indicaba: “El Concejo Municipal en concordancia con las competencias otorgadas en el Código Municipal, en su artículo 13, mediante acuerdos Nº 4154-15 de la sesión ordinaria Nº 363 del 29 de enero del 2015, aprobó el someter a consulta pública no vinculante al amparo del artículo 43 del Código Municipal, por un plazo de 10 días hábiles el Proyecto de Reglamento para la instalación de casetas de seguridad y mecanismos de vigilancia para el acceso a urbanizaciones y barrios residenciales de la Municipalidad de Flores, que se transcribe así:”)
+REGLAMENTO PARA LA INSTALACIÓN DE CASETAS
+DE SEGURIDAD Y MECANISMOS DE VIGILANCIA PARA
+EL ACCESO A URBANIZACIONES Y BARRIOS RESIDEN-
+CIALES DE LA MUNICIPALIDAD DE FLORES
+Artículo 1º—Ámbito de aplicación. El presente Reglamento en concordancia con las normas legales que lo sustentan, tiene por finalidad normar los aspectos operativos que contempla le Ley Nº 8892, “Regulación de Mecanismos de Vigilancia del Acceso a Barrios Residenciales con el Fin de Garantizar el Derecho Fundamental a la Libertad de Tránsito”.
