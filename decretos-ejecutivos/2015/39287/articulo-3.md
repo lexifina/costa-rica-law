@@ -1,0 +1,1 @@
+Artículo 3º—En todo lo demás, el Decreto Ejecutivo Nº 27492-C, Declaratoria e Incorporación al Patrimonio Histórico- Arquitectónico de Costa Rica del inmueble conocido como Iglesia de San Joaquín de Flores, del 12 de noviembre de 1998, publicado en el Diario Oficial La Gaceta Nº 245 del 17 de diciembre de 1998, permanece incólume.
