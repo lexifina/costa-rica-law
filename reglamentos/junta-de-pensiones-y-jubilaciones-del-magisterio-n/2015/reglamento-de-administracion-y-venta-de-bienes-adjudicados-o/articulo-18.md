@@ -1,0 +1,1 @@
+Artículo 18.—Bien adjudicado como activo de JUPEMA. La Dirección Ejecutiva, mediante resolución razonada, decidirá que un bien adjudicado sea traspasado como un activo de JUPEMA cuando medien razones de conveniencia y oportunidad.

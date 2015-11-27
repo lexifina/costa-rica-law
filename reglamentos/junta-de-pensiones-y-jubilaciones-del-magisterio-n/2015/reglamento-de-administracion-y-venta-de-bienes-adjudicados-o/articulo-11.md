@@ -1,0 +1,1 @@
+Artículo 11.—De la autorización de la venta. El Jefe del Departamento Administrativo, el Jefe del Departamento Financiero- Contable y el Jefe del Departamento Legal, o quienes ellos designen, serán los encargados de autorizar la venta del bien.

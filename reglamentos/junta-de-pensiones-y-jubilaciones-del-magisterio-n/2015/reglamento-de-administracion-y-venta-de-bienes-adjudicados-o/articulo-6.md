@@ -1,0 +1,1 @@
+Artículo 6º—Precio de venta. El precio de venta de los bienes adjudicados o en dación de pago es el del avalúo, realizado por un perito designado por JUPEMA. La vigencia del avalúo es de un año, sin perjuicio de nuevos avalúos cuando se considere conveniente.

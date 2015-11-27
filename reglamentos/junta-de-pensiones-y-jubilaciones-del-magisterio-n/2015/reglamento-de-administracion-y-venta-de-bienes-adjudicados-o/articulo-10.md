@@ -1,0 +1,1 @@
+Artículo 10.—Apertura y análisis de ofertas de compra. La apertura y análisis de las ofertas se realizará conforme al procedimiento indicado en el Manual de Procedimiento de la Proveeduría de la JUPEMA.
