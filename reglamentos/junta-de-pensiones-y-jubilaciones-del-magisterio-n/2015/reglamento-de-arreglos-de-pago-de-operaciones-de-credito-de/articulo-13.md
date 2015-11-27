@@ -1,0 +1,1 @@
+Artículo 13.—Terminación o suspensión del trámite de cobro administrativo o judicial por arreglo. El arreglo de pago efectuado en los términos previstos en este Reglamento, dará por terminado o suspendido el trámite de cobro administrativo y judicial de la respectiva operación.

@@ -1,0 +1,1 @@
+Artículo 3º—Objetivo. Este Reglamento tiene como propósito dar posibilidades de recuperación total o parcial de operaciones de crédito otorgadas por la Junta y que, presenten algún grado de morosidad.

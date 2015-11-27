@@ -1,0 +1,1 @@
+Artículo 10.—Operaciones que hayan sido desvalorizadas o declaradas incobrables. Sin perjuicio de lo dispuesto en el Reglamento para la Aplicación de Estimaciones a Activos Financieros por Desvalorización o Incobrabilidad, aquellas operaciones que se encuentren en cuentas de orden podrán ser sujetas de arreglos de pago en los términos de este Reglamento.

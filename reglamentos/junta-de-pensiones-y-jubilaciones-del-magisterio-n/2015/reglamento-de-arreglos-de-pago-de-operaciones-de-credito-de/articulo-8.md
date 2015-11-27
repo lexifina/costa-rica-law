@@ -1,0 +1,3 @@
+Artículo 8º—Financiamiento por medio de un nuevo crédito. La Junta podrá otorgar financiamiento por medio de un nuevo crédito para cancelar una operación morosa o en Cobro Judicial con la Junta. Las condiciones para el nuevo crédito son las contempladas en los reglamentos respectivos.
+En el caso de que la operación objeto del financiamiento se encontrare en cobro judicial con demanda planteada y mientras no se formalice el nuevo crédito, no se dará por terminado o suspendido el trámite de cobro.
+Para el caso de nuevas operaciones crediticias, necesariamente se deberá evaluar el nivel de riesgo del deudor al amparo de lo dispuesto por el Acuerdo SUGEF 1-05.
