@@ -1,0 +1,3 @@
+Artículo 3º—Se reforma el párrafo primero del artículo 11 del Reglamento del Juego Pitazo para que se lea así:
+Primer párrafo.
+El proceso de escrutinio se realizará el día hábil siguiente al cumplimiento del programa y estará a cargo de la Gerencia General, con la participación de la Gerencia de Producción y Comercialización, unidades de apoyo y fiscalización pertinentes. La Auditoría Interna fiscalizará en sitio y de forma independiente la realización de esta actividad, de conformidad con las competencias asignadas en el artículo N° 22 de la Ley General de Control Interno N° 8292, la valoración del riesgo y su Plan Anual de Trabajo.
