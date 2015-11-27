@@ -14,3 +14,4 @@ Reglamento transitorio para la regulación de los usos de suelo y permisos de co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-28 | la propia norma |
+| 2 | 2015-11-27 | Reglamento municipal 267 (2015-11-27) |
