@@ -1,0 +1,1 @@
+II. Retrotraer el procedimiento a la etapa procesal oportuna, es decir a la elaboración de la norma técnica denominada: “Supervisión de la comercialización del suministro eléctrico en baja y media tensión” AR-NT-SUCOM, para que la Comisión Ad Hoc presente a la Junta Directiva, una propuesta de modificación a éste, en la cual deberá considerar lo señalado en esta resolución.

@@ -1,0 +1,1 @@
+III. Dimensionar los efectos de la anulación parcial de la resolución RJD-072-2015, en cuanto a los artículos 28, 37, 40, 44, 45, 46, 47, 51, 52 y 58 de la norma técnica denominada: ENT-SUCOM, manteniéndolos vigentes, hasta tanto la Junta Directiva lo modifique conforme a derecho.
