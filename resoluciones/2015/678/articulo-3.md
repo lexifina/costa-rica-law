@@ -1,0 +1,1 @@
+Artículo 3º—Para efectos de reservar este cinco por ciento (5%) de las vacantes, se aplicará lo contemplado en el artículo 5, inciso a) del Reglamento a la Ley de Inclusión y Protección Laboral de las Personas con Discapacidad en el Sector.
