@@ -1,0 +1,1 @@
+Artículo 11.—De las condiciones de ejecución de obras. Las obras deberán realizarse de manera adecuada y cumpliendo con la legislación vigente, sean leyes, reglamentos, códigos o manuales, especialmente el Manual CR-2010 del MOPT u otra normativa más reciente en la materia.

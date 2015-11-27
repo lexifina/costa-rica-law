@@ -1,0 +1,7 @@
+Artículo 13.—De la ubicación para vivienda unifamiliar y servicios profesionales. Los basureros que sean instalados en el derecho de vía municipal deberán de ubicarse detrás de la espalda del cordón de caño o cuneta según sea el caso en la zona verde u acera, cuidando siempre que la estructura no sobrepase la espalda del cordón de caño invadiendo la calzada. Se deberá de colocar el lado más largo del dispositivo paralelo a la línea de propiedad.
+Está prohibida la colocación de canastas empotradas a las fachadas de las casas de habitación o sus rejas, así como cualquier otra estructura, dispositivo o sistema para colocar los desechos ordinarios que invadan el derecho de vía que no sea el indicado en el párrafo anterior.
+Queda terminantemente prohibido la construcción o instalación de basureros donde no exista en el derecho de vía la acera correspondiente o la misma cuente con un ancho menor a un metro.
+En caso de incumplimiento de los dos párrafos anteriores, se procederá conforme el artículo 32 y 33 de la Ley General de Caminos Públicos.
+Los contribuyentes propietarios de bienes inmuebles que no cuenten con el espacio necesario para realizar la colocación del dispositivo para el depósito de basura ordinaria en el derecho de vía, deberán realizar la colocación del mismo en el antejardín de la propiedad, de forma tal que se facilite y permita la recolección de los desechos.
+La ubicación de las estructuras y/o dispositivos para la recolección de los desechos sólidos se hará de la siguiente forma, acorde a las condiciones reales del terreno:
+[imagen]

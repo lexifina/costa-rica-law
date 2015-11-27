@@ -1,0 +1,3 @@
+Artículo 21.—De las condiciones de ejecución de obras. Corresponde a la Unidad Técnica de Gestión Vial definir las condiciones de cómo deben realizarse las obras, por parte del infractor o la municipalidad.
+El día de la remoción un funcionario de la Unidad Técnica de Gestión Vial con un testigo levantará un acta, donde se detalle el no acatamiento de lo dispuesto en la notificación, la fecha y hora de la remoción, nombre de los presentes, además del sitio para la disposición del dispositivo removido.
+Artículo 22.—De la sanción: Luego de realizada la remoción del dispositivo para el depósito de basura ordinaria, se procederá por parte de este municipio a realizar el cobro de la multa correspondiente como se indica en el artículo 75 párrafo segundo.

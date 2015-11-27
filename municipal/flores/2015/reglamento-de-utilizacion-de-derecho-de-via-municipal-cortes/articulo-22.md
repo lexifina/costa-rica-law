@@ -1,0 +1,1 @@
+Artículo 22.—De la sanción: Luego de realizada la remoción del dispositivo para el depósito de basura ordinaria, se procederá por parte de este municipio a realizar el cobro de la multa correspondiente como se indica en el artículo 75 párrafo segundo.

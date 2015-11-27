@@ -1,0 +1,5 @@
+Artículo 6º—Del estudio de la solicitud. Recibida la solicitud y de contar con la totalidad de requisitos completos y adecuados para el estudio, la UTGV contará con 10 días hábiles para resolver el caso.
+De encontrarse deficiencias en la información presentada se indicará mediante oficio los documentos que deben adjuntarse a dicha solicitud o las correcciones que deben de realizarse. El solicitante contará con 10 días hábiles para subsanar la información, de lo contrario deberá realizar el trámite nuevamente (art. 6° de la ley 8220)
+La Municipalidad fiscalizará en todo momento que se resguarde las normas de la ley 7600 y su reglamento.
+Artículo 6º—Del depósito de dinero en efectivo. Para efectos del depósito en efectivo, el mismo se realizará en las cajas de la municipalidad, y será resguardado en una cuenta municipal única para dicho servicio. No se entregará la autorización si el interesado no demuestra por medio del comprobante respectivo, el depósito de garantía.
+(Nota de Sinalevi: En este reglamento se consignó dos veces el artículo N° 6)

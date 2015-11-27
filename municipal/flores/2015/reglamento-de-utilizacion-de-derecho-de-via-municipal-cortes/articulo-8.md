@@ -1,0 +1,3 @@
+Artículo 8º—De la devolución del depósito de dinero en efectivo. Concluidas los trabajos por el solicitante se realizará una inspección por la UTGV en la cual se verificará que dichos trabajos se ajusten a la solicitud realizada.
+Además se deberán de presentar pruebas de compactación del asfalto colocado, así como de la calidad de los materiales granulares utilizados para las bases y subbase, para caso de pajas de agua menores a cuatro pajas no se presentan dichas pruebas.
+Posterior a la inspección realizada por la UTGV se genera un informe de la visita a la Dirección Financiera Administrativa, donde luego de 60 días naturales y de una segunda visita de la UTGV se podrá realizar la devolución del depósito en efectivo realizado por el solicitante.

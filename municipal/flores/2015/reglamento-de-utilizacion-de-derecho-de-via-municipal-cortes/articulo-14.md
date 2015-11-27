@@ -1,0 +1,1 @@
+Artículo 14.—De la ubicación para comercio e industria. Los propietarios de bienes inmuebles de uso comercial e industrial deberán ubicar los dispositivos para el depósito de basura ordinaria dentro de la línea de propiedad cumpliendo con las dimensiones indicadas en el presente reglamento.

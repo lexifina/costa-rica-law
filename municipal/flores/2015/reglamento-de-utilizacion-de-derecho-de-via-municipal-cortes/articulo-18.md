@@ -1,0 +1,1 @@
+Artículo 18.—Seguimiento de la denuncia o queja. Corresponde a la Unidad Técnica de Gestión Vial, atender, gestionar y dar seguimiento a las quejas de los usuarios en relación con lo dispuesto por este Reglamento. Contando con un plazo de 10 días hábiles para realizar la inspección necesaria para discernir el incumpliendo.
