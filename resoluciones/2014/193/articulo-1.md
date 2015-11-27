@@ -54,8 +54,10 @@ Disposiciones Generales
 3º—En un mismo acto, la persona física o jurídica, podrá realizar la reservación para un máximo de cuatro personas en las temporadas y periodos definidos por la administración del Parque Nacional Chirripó.
 4º—En la época seca podrán realizar su reservación para un máximo de dos noches y tres días, en la época lluviosa, podrán realizar sus reservaciones para un máximo de tres noches y cuatro días en el Albergue Crestones.
 5º—Para el ingreso al Parque Nacional Chirripó, se abrirán cuatro periodos de reservaciones al año, su distribución y el inicio del periodo de reservaciones se establece de la siguiente manera;
-a) El primer periodo comprende los meses de diciembre, enero y febrero. Las reservaciones de este periodo se inician el primer lunes hábil del mes de octubre.
-b) El segundo período comprende los meses de marzo, abril y mayo. Las reservaciones de ese periodo se inician el primer lunes hábil del mes enero.
+a) Para el proceso de reservaciones durante el mes de marzo del año 2016 al Parque Nacional Chirripó, el periodo de reservaciones se inicia el lunes 4 de enero del 2016, llamando al número 905-Chirrip o bien 905-2447747 para todos los usuarios a nivel Nacional y al número 506-2742-5348 para los usuarios a nivel internacional exclusivamente.
+(Así reformado el inciso anterior mediante resolución N° ACLA-P-D-561-2015 del 27 de noviembre del 2015)
+b) Para el proceso de reservaciones durante los meses de abril y mayo del año 2016 al Parque Nacional Chirripó, el periodo de reservaciones se inicia el lunes 15 de febrero del 2016 haciendo uso del sistema en línea conforme se dirá en la resolución correspondiente.
+(Así reformado el inciso anterior mediante resolución N° ACLA-P-D-561-2015 del 27 de noviembre del 2015)
 c) El tercer período comprende los meses de junio, julio y agosto. Las reservaciones de ese periodo se inician el primer lunes hábil del mes de abril.
 d) El cuarto período comprende los meses de setiembre, octubre y noviembre. Las reservaciones de ese periodo se inician el primer lunes hábil del mes de julio.
 6º—El horario de reservaciones mediante la vía telefónica, será de lunes a viernes, de ocho de la mañana a doce medio día (8:00 a.m. a 12 md) y de una de la tarde a cuatro de la tarde (1:00 p.m. a 4:00 p.m.). Los fines de semana, días feriados establecidos por ley y asuetos declarados por el Poder Ejecutivo, no se realizarán reservaciones, exceptuando los ingresos que se realicen al parque, utilizando el punto 1.3. de la disposición primera del procedimiento.
