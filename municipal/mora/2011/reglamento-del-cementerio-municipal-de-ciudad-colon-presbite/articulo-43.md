@@ -1,1 +1,0 @@
-Artículo 43.—Las tapas provisionales y permanentes de los nichos deberán dar a los callejones de acceso. Las lápidas y placas de identificación se colocarán en el espacio de las tapas permanentes, de forma tal que denoten el nicho a que hacen referencia.

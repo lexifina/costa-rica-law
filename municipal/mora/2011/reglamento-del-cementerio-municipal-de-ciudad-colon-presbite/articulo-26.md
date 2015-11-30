@@ -1,1 +1,0 @@
-Artículo 26.—A partir del momento en que los restos de una persona han salido del cementerio, la Municipalidad y la Junta salvan su responsabilidad, la cual será asumida por el solicitante y el propietario de la bóveda que firmaran el acta correspondiente.

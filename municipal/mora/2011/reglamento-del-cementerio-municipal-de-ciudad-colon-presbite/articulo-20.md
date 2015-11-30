@@ -1,1 +1,0 @@
-Artículo 20.—En el caso de derechos cuyos propietarios los hayan abandonado, la Junta del Cementerio podrá efectuar exhumaciones ordinarias de oficio, siguiendo el procedimiento del artículo 18 de este Reglamento.

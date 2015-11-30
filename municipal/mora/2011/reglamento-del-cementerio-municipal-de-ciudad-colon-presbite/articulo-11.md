@@ -1,1 +1,0 @@
-Artículo 11.—Si la inhumación se fuere a realizar en una bóveda, deberá mediar la autorización de la persona propietaria del derecho o alguno de quienes aquella hubiere designado como responsables en el contrato de adquisición de derechos de uso en el cementerio.

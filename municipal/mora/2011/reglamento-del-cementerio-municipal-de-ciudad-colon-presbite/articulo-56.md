@@ -1,1 +1,0 @@
-Artículo 56.—En el Registro de inhumaciones se hará constar en orden cronológico: nombre, apellidos del fallecido, fecha de nacimiento, sexo, estado civil, nacionalidad, fecha de deceso y entierro, tipo y número de documento de identidad, lugar claramente identificado del sitio en que se haya sepultado, nombre y número de cédula del arrendatario del derecho donde fue sepultado.
