@@ -1,0 +1,1 @@
+Transitorio II.—Todas las personas que ejecutan labores como registradores auxiliares, deberán realizar la capacitación que para tal efecto implemente el Tribunal Supremo de Elecciones, de acuerdo con la calendarización o programación de las mismas, a partir de la publicación del presente Reglamento.

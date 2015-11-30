@@ -1,0 +1,1 @@
+Artículo 13.—De la capacitación a las personas registradoras auxiliares. El Área de Capacitación del Departamento de Recursos Humanos, en coordinación con la Sección de Inscripciones, la Coordinación de Servicios Regionales y las Oficinas Regionales según corresponda, se encargará de brindar capacitación permanente a los Registradores Auxiliares del Registro Civil.

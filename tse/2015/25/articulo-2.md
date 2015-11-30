@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Este Reglamento será de aplicación obligatoria para toda persona que por ley actúe como Registrador Auxiliar y a quienes sean formalmente investidos por la Dirección General del Registro Civil en ese carácter, en la confección, uso, custodia y devolución de los certificados de declaración de nacimiento, matrimonio y defunción.

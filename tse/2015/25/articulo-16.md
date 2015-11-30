@@ -1,0 +1,4 @@
+Artículo 16.—Custodia de los certificados de declaración. La persona registradora auxiliar tiene la obligación de custodiar los certificados de declaración asignados a su cargo a fin de evitar que sean sustraídos, alterados o destruidos, para lo cual deberá cumplir con lo siguiente:
+a) Resguardar en un lugar seguro los certificados de declaración, bajo llave, fuera del alcance de personas no autorizadas y en condiciones ambientales idóneas.
+b) Llevar un control secuencial de la asignación de los certificados de declaración a las personas autorizadas para la firma.
+c) Informar a la Dirección General del Registro Civil el extravío o sustracción de algún certificado de declaración, indicando para ello la respectiva numeración, a efecto de que ésta proceda a ajustar los controles correspondientes.

@@ -1,0 +1,2 @@
+Artículo 11.—Otorgamiento de Investidura. La investidura de la persona registradora auxiliar será otorgada mediante resolución dictada por la Dirección General del Registro Civil, cuya parte dispositiva será publicada por única vez en el Diario Oficial La Gaceta y a partir de su publicación tendrá eficacia jurídica.
+La Dirección General del Registro Civil quedará facultada para solicitarle al ente investido y en los casos en que considere oportuno, la sustitución de la persona autorizada para la confección, firma y/o custodia de los certificados de declaración.

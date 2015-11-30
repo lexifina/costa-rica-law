@@ -1,0 +1,1 @@
+Artículo 29.—Procedimiento disciplinario para los médicos en el ejercicio privado de la profesión y los notarios públicos. La Dirección General del Registro Civil comunicará a los entes disciplinarios, según corresponda, aquellos casos en que médicos en el ejercicio privado de la profesión y notarios públicos incurran en alguna falta establecida en la normativa que los rige.

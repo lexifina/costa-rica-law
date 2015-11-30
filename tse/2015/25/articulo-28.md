@@ -1,0 +1,1 @@
+Artículo 28.—Procedimiento disciplinario para las personas registradoras auxiliares institucionales La Dirección General del Registro Civil comunicará a la Inspección Electoral aquellos casos en que personas registradoras auxiliares institucionales incurran en alguna de las causas previstas en el artículo 23 de este Reglamento.

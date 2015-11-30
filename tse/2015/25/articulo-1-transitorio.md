@@ -1,0 +1,2 @@
+TRANSITORIOS
+Transitorio I.—Todas aquellas personas registradoras auxiliares que desde el mes de setiembre del 2014 y hasta la fecha de publicación del presente Reglamento, que no cuenten con movimientos en la presentación de certificados de declaración para su inscripción, serán deshabilitados del sistema y deberán actualizar su información ante la Sección de Inscripciones del Registro Civil o en cualquiera de sus sedes regionales.

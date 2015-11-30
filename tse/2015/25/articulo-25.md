@@ -1,0 +1,1 @@
+Artículo 25.—Denuncias de terceros. Presentada una denuncia por un tercero, sobre un hecho irregular que presuntamente ha cometido la persona registradora auxiliar, se remitirá a la Unidad de Investigación y Fiscalización para el estudio correspondiente y para que emita el informe respectivo a la Dirección General del Registro Civil, en el término de cinco días hábiles.

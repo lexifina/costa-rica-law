@@ -1,0 +1,1 @@
+Artículo 31.—Suspensión temporal de la persona registradora auxiliar. Cuando la entidad disciplinaria correspondiente suspenda a un médico en el ejercicio privado de su profesión o a un notario público, esta sanción implicará la suspensión por el mismo período en el ejercicio de la función registral.

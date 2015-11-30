@@ -1,0 +1,6 @@
+Artículo 24.—Dictado de la resolución final. Previo al dictado de la resolución final, la Dirección General del Registro Civil concederá audiencia por el plazo de tres días hábiles a la persona registradora auxiliar, a fin de que presente las pruebas de descargo que considere pertinentes y formule las conclusiones sucintas sobre los hechos alegados.
+Realizado el análisis de la prueba aportada por la persona registradora auxiliar y en caso de llegar a determinarse que no existen motivos para revocar la investidura, se procederá con el archivo de las diligencias.
+La Dirección General del Registro Civil procederá al análisis del informe y la prueba presentada y dictará la resolución respectiva.
+En caso de que la persona registradora auxiliar no conteste la audiencia conferida, se procederá a resolver conforme a la documentación existente en el expediente.
+Si del análisis de los hechos atribuidos se llegare a determinar la comisión de un presunto ilícito, se remitirá el expediente a la Secretaría General del Registro Civil para que realice el estudio, a fin de gestionar lo pertinente ante el Ministerio Público.
+La resolución dictada por la Dirección General del Registro Civil será recurrible de acuerdo con lo establecido en el capítulo VIII de este reglamento.

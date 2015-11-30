@@ -1,0 +1,1 @@
+Artículo 21.—Informe de la Unidad de Investigación y Fiscalización. Recibido el Informe de la Unidad de Investigación y Fiscalización, la Dirección General del Registro Civil procederá a valorarlo, a fin de determinar si se realiza el procedimiento de revocatoria de investidura contemplado en el Capítulo VI de este Reglamento.

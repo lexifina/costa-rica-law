@@ -1,0 +1,2 @@
+Artículo 12.—Entrega de certificados de declaración. La Sección de Inscripciones, la Coordinación de Servicios Regionales y las Oficinas Regionales entregarán los certificados de declaración a las personas registradoras auxiliares investidas por la Dirección General del Registro Civil.
+La Sección de Inscripciones llevará un control sobre los sellos que utilicen, así como de las firmas de quienes estén autorizados para suscribir los documentos.
