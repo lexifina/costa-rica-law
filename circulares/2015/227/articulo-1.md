@@ -1,0 +1,7 @@
+CIRCULAR Nº 227-2015
+(Nota de Sinalevi: Esta norma fue reiterada mediante circular N° 24 del 2 de marzo de 2016, y publicada en el Boletín Judicial N° 91 del 12 de mayo de 2016. Posteriormente mediante sesión N° 57-16 del 9 de junio de 2016, publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016, mediante circular N° 104-2016 del 21 de julio de 2016 se reitera nuevamente la presente circular. Seguidamente por circular N° 145 del 29 de octubre de 2018, se reitera de nuevo esta norma)
+Asunto: Sobre los procesos ordinarios por hostigamiento sexual que se deben notificar a la Defensoría de los Habitantes de la República.
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 98-15, celebrada el 5 de noviembre de 2015, artículo CII, a solicitud de la Defensoría de los Habitantes de la República, acordó comunicarles a los despachos judiciales del país que deben de realizar las acciones correspondientes a fin de garantizar que los asuntos que se notifiquen a la Defensoría de los Habitantes de la República, al amparo de las disposiciones del artículo 7 de la Ley Nº 7476 contra el Hostigamiento Sexual en el Empleo y la Docencia y lo dispuesto por el Consejo Superior en sesión Nº 59-2003 del 12 de agosto del 2003, artículo LXIV, constituyan procesos ordinarios por hostigamiento sexual.
+San José, 30 de noviembre de 2015.
