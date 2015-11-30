@@ -16,3 +16,4 @@ Reglamento para el Juego Nuevos Tiempos
 | 1 | 2014-06-06 | la propia norma |
 | 2 | 2014-12-16 | Reglamento 41 (2014-12-16) |
 | 3 | 2015-09-08 | Reglamento 31 (2015-09-08) |
+| 4 | 2015-11-30 | Reglamento 43 (2015-11-30) |
