@@ -1,2 +1,0 @@
-Artículo 22.—Para adquirir un derecho en el cementerio municipal se requiere ser vecino del cantón. Ninguna persona física podrá tener más de un derechos individual en este cementerio. Estos derechos no podrán ser de más de tres parcelas juntas, definidas éstas como espacios de 1,25 por 2,50 metros .
-Ninguna persona jurídica podrá ser adquirente de un derecho en el cementerio municipal, salvo por ejecutoria de sentencia judicial.

@@ -1,1 +1,0 @@
-Artículo 41.—La pintura para conservación de las bóvedas deberá ser de color blanco. Sólo se permitirán otros colores en los materiales no sujetos a ser pintados como piedra o mosaico que estuvieren colocados en las bóvedas construidas en la sección antigua del cementerio a la fecha de aprobación del presente reglamento.

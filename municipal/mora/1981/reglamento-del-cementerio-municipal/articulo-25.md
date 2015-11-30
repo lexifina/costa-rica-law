@@ -1,1 +1,0 @@
-Artículo 25.—Los derechos sólo se adquirirán en orden de ubicación geográfica, según lo disponga la Administración y de acuerdo con el plano regulador aprobado por el Concejo, y se hará efectiva su ubicación sólo en el momento en que el interesado diere inicio a la construcción.

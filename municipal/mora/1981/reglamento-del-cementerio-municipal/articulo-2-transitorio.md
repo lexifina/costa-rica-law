@@ -1,1 +1,0 @@
-Transitorio 2°—Los derechos serán reservables cada 5 años mediante el pago de una cuota igual al 50% del valor de la cuota establecida a la fecha tiende por derecho el uso de la parcela, no el valor o número de nichos construidos.
