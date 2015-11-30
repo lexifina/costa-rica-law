@@ -1,0 +1,2 @@
+Artículo 2°—El documento que contiene la Política Nacional de Gestión del Riesgo 2016-2030 está disponible en la dirección electrónica de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias (http://www.cne.go.cr). Una versión física de la Política Nacional de Gestión del Riesgo se custodiará en la Unidad de Desarrollo Estratégico del Sistema Nacional de Gestión del Riesgo (DESNGR) de la CNE.
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato la Política Nacional de Gestión del Riesgo 2016-2030 puede ser consultada en el siguiente: link)

@@ -1,0 +1,1 @@
+Artículo 6°—La CNE ejercerá la coordinación de la Política Nacional de Gestión del Riesgo 2016-2030, que incluye el seguimiento y monitoreo de los avances en el cumplimiento de sus objetivos y lineamientos, mediante los indicadores de gestión y resultado que se detallan en el último capítulo de la Política.
