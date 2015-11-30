@@ -15,3 +15,4 @@ Reglamento de Proveeduría Municipal
 | --- | --- | --- |
 | 1 | 2011-05-16 | la propia norma |
 | 2 | 2011-05-16 | Acuerdo municipal 0 (2011-03-21) |
+| 3 | 2015-11-30 | Reglamento municipal 502 (2015-11-30) |
