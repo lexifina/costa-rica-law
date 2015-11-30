@@ -1,1 +1,0 @@
-Artículo 22.—Los derechos solo se adjudicarán en orden de ubicación geográfica según lo disponga la Junta y de acuerdo con el plano regulador aprobado por la Junta y se hará efectiva su ubicación sólo en el momento en que el interesado diere inicio a la construcción.

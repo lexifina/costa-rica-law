@@ -1,1 +1,0 @@
-Transitorio 3°.—Todas aquellas personas que paguen derechos de defunción para sepultar en tierra sus deudos, solo tendrán derecho a cinco años y podrán convertirse en concesionarios permanentes mediante la solicitud y pago de derecho ya sea la bóveda, quedando obligados a revalidar sus derechos cada 10 años mediante el pago del 50% del valor del derecho a la fecha.

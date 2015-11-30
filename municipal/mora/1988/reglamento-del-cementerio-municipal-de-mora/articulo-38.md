@@ -1,1 +1,0 @@
-Artículo 38.—El arrendamiento de un nicho o una bóveda particular debe de hacerse en un tiempo no menor de siete años pudiendo ser renovado a criterio de la Junta o propietario por no menos de un año.

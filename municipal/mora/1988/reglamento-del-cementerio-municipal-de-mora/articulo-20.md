@@ -1,2 +1,0 @@
-Artículo 20.—Para adquirir un derecho en el cementerio municipal, se requiere ser vecino de Ciudad Colón, caseríos o barrios. Ninguna persona física podrá tener más de un derecho en este cementerio. Estos derechos no podrán ser de más de una parcela, definidas éstas como espacios de 2,50 por 1,50 m.
-Ninguna persona jurídica podrá ser adquiriente de un derecho en el cementerio municipal, salvo por ejecutoria de sentencia judicial. Excepto la Junta.

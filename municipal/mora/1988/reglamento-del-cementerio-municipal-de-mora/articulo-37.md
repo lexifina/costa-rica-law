@@ -1,1 +1,0 @@
-Artículo 37.—Los nichos propiedad de la Junta se arrendarán en adelante por un período de siete años, ampliándose dicho arrendamiento hasta un año cuando a criterio de la Junta existan circunstancias para ampliar el plazo.

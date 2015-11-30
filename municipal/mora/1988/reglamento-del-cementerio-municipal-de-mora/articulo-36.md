@@ -1,1 +1,0 @@
-Artículo 36.—La pintura para conservación de las bóvedas deberá ser color blanco. Sólo se permitirá otro color con los materiales no sujetos a ser pintados como piedras o mosaicos que estuvieren colocados en las bóvedas construidas en la sección antigua del cementerio a la fecha de aprobación del presente Reglamento.

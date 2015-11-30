@@ -1,1 +1,0 @@
-Artículo 13.—Para todos los efectos de exhumación, se consideran como interesados con derecho ante la Junta, los parientes indicados en el artículo primero del Decreto N° 704 del 7 de setiembre de 1949, pero en caso de conflicto con el propietario de la bóveda que contuviera los restos, sus derechos deberán definirse por mandamiento judicial.

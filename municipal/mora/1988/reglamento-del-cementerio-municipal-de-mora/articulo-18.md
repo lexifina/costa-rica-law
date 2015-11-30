@@ -1,2 +1,0 @@
-De la adquisición, conservación y traspaso de derechos
-Artículo 18.—La adquisición de derechos en el cementerio municipal, se llevará a cabo ante la Junta previa aprobación de la Junta, en documento extendido por aquella, en el cual se hagan constar las calidades del adquiriente, los detalles sobre ubicación física y área del derecho adquirido de acuerdo con el plano regulador del cementerio, los nombres de al menos que en orden de prioridad sean designados por el adquiriente como herederos y/o responsables y cualquier otra información a criterio de la Junta.

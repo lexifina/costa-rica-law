@@ -1,1 +1,0 @@
-Artículo 8°.—Las inhumaciones se realizarán entre las 8,00 a. m. y las 6,00 p. m., para inhumaciones fuera de este horario, se requerirá orden de la autoridad competente y en caso de orden de médico o emergencia con pleno conocimiento de la autoridad competente.
