@@ -1,0 +1,1 @@
+Artículo 34.—Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y de la Secretaría del Comité. El libro de actas será autorizado por la Auditoria Interna de la Municipalidad y las hojas serán selladas y foliadas por ésta.
