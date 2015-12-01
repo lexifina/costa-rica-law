@@ -14,3 +14,4 @@ Reglamento del Fondo para el Fomento Audiovisual y Cinematográfico El Fauno
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-18 | la propia norma |
+| 2 | 2015-12-01 | Decreto Ejecutivo 39387 (2015-12-01) |

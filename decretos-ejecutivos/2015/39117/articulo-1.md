@@ -19,4 +19,6 @@ Reglamento del Fondo para el Fomento
 Audiovisual y Cinematográfico – El Fauno
 CAPÍTULO I
 Disposiciones Generales
-Artículo 1º—Objeto. La presente normativa tiene por objeto constituir y reglamentar el funcionamiento del Fondo para el Fomento Audiovisual y Cinematográfico – EL FAUNO (en adelante denominado el Fondo), definiendo los procedimientos, requisitos y pautas que ejecutará el Centro Costarricense de Producción Cinematográfica (en adelante denominado CCPC), para cofinanciar proyectos cinematográficos y audiovisuales.
+Artículo 1º—Objeto. La presente normativa tiene por objeto constituir y reglamentar el funcionamiento del Fondo para el Fomento Audiovisual y Cinematográfico — EL FAUNO (en adelante denominado el Fondo), definiendo los procedimientos, requisitos y pautas que ejecutará el Centro Costarricense de Producción Cinematográfica (en adelante denominado CCPC), para cofinanciar proyectos cinematográficos y audiovisuales.
+Además del presupuesto ordinario que se destine a este fin, este Fondo podrá ser financiado con el superávit del CCPC, de acuerdo con la justificación presupuestaria que genere el proceso de selección de beneficiarios. Competerá a esta institución, gestionar lo correspondiente al aumento del límite de gasto presupuestario con este fin.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39387 del 1° de diciembre de 2015)
