@@ -1,0 +1,2 @@
+Artículo 20.—Políticas en cuanto a “software malicioso”. Corresponderá al Departamento de Tecnologías de Información definir las políticas de “firewall” y antivirus, que reduzcan al máximo el riesgo planteado por el “software malicioso”.
+En este sentido, se dotará al Departamento de Tecnologías de Información del apoyo presupuestario suficiente que le facilite implementar a corto, mediano y largo plazo las medidas requeridas.

@@ -1,0 +1,4 @@
+Artículo 33.—Servicios prestados por terceros. Para la contratación de consultorías externas en materia de Tecnologías de Información, el Departamento de Tecnologías de Información deberá dar el visto bueno preliminar y redactará las especificaciones técnicas necesarias para que el Departamento de Proveeduría realice el procedimiento de contratación según los parámetros establecidos en la Ley de Contratación Administrativa y su Reglamento. Se suscribirá además un contrato para cada consultoría que deberá contener como mínimo:
+a) Los términos generales en que ésta se va a desarrollar;
+b) Un plan o cronograma de trabajo
+c) Una cláusula de confidencialidad, mediante la cual se garantice que la información a la que se tenga acceso no va a ser divulgada o utilizada sin la autorización previa, expresa y por escrito del Alcalde o Alcaldesa Municipal.

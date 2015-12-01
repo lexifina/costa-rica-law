@@ -1,0 +1,1 @@
+Artículo 5º—Director de proyectos. El Departamento de Tecnologías de Información será quien dirija los proyectos en materia de Tecnologías de Información, con las responsabilidades y autoridad que esto conlleva.
