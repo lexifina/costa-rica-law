@@ -17,3 +17,4 @@ Reglamento Autónomo de Servicio del Ministerio de Planificación Nacional y Pol
 | 2 | 1995-09-29 | Decreto Ejecutivo 24710 (1995-09-29) |
 | 3 | 2001-10-12 | Decreto Ejecutivo 30297 (2001-10-12) |
 | 4 | 2011-10-24 | Decreto Ejecutivo 36860 (2011-10-24) |
+| 5 | 2015-12-01 | Decreto Ejecutivo 39404 (2015-12-01) |

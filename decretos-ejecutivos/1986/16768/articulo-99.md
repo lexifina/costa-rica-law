@@ -1,0 +1,2 @@
+Artículo 99.—La o el Ministro deberá informar a la Defensoría de los Habitantes sobre las denuncias por discriminación por razones diversidad sexual, interpuestas, para conocimiento formal de estas, acceso al expediente e intervención facultativa en los procedimientos internos administrativos. Asimismo, deberá remitirle la resolución final de los mismos.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 39404 del 1° de diciembre de 2015)

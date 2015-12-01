@@ -34,6 +34,7 @@ articulo-33.md
 articulo-34.md
 articulo-35.md
 articulo-36.md
+articulo-36-bis.md
 articulo-37.md
 articulo-38.md
 articulo-39.md
@@ -90,5 +91,15 @@ articulo-89.md
 articulo-90.md
 articulo-91.md
 articulo-92.md
+articulo-93.md
+articulo-94.md
+articulo-95.md
+articulo-96.md
+articulo-97.md
+articulo-98.md
+articulo-99.md
+articulo-100.md
+articulo-101.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
+articulo-102.md

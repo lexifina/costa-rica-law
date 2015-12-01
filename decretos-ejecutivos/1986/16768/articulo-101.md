@@ -1,0 +1,2 @@
+Artículo 101.—Toda disposición normativa deberá emplear lenguaje inclusivo para representar la composición diversa de la población, usando términos que no excluyan a ninguna persona. Toda referencia a lenguaje sexista, deberá rectificarse por lenguaje inclusivo. Los términos “servidor”, “funcionario” o acepciones similares deberán leerse como “persona servidora” o “persona funcionaria.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 39404 del 1° de diciembre de 2015)

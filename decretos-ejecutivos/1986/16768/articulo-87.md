@@ -1,4 +1,12 @@
-Artículo 87.- En un plazo no mayor de cinco días hábiles posteriores a la presentación de la denuncia, la o el Ministro procederá a integrar una Comisión Investigadora sin recurrir a la ratificación de la denuncia ni a la investigación preliminar de los hechos. La Comisión Investigadora tendrá la responsabilidad del Procedimiento Interno Administrativo y estará integrada preferiblemente por tres personas, en las que estén representados ambos géneros, con conocimientos en materia de hostigamiento sexual y régimen disciplinario.
-Una vez integrada la Comisión Investigadora, dispondrá de un término que no podrá exceder de cinco días hábiles para dictar el Auto Inicial del Procedimiento Interno Administrativo en el cual se dará traslado de la denuncia a la o el servidor denunciado, concediéndole un plazo de quince días hábiles para que se refiera a los hechos que se le imputan y ofrezca las pruebas en descargo de los mismos. Cuando fueren varios las o los servidores denunciados por los mismos hechos, podrá conocerse de ellos dentro de un mismo Procedimiento Interno Administrativo. Cuando la o el servidor denunciado no ejerciere su defensa, ello no será motivo para tener por ciertos los hechos denunciados y la Comisión Investigadora deberá continuar con el procedimiento hasta su conclusión.
+Artículo 87.- La Comisión Investigadora, previa solicitud de parte y mediante resolución fundada, podrá solicitar al Ministro las siguientes medidas cautelares:
+a) Que la o el presunto hostigador se abstenga de perturbar a la o el denunciante.
+b) Que la o el presunto hostigador se abstenga de interferir en el uso y disfrute de los instrumentos de trabajo de la persona hostigada.
+c) La reubicación laboral de la o el denunciado o de la o el denunciante.
+d) La permuta del cargo de la o el denunciado o de la o el denunciante.
+e) Excepcionalmente, la separación temporal del cargo con goce de salario, de la o el denunciado o de la o el denunciante.
+La resolución que ordene las medidas cautelares no tendrá recurso alguno.
+En la aplicación de las medidas cautelares deberán respetarse los derechos laborales de las o los obligados a la disposición preventiva, debiendo procurarse mantener la seguridad de la víctima.
+Las medidas cautelares deberán resolverse de manera prevalente y con carácter de urgencia. Su vigencia estará determinada por su prosecución del Procedimiento Interno Administrativo.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 24710 del 29 de septiembre de 1995)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 36860 del 24 de octubre del 2011)
+(Corrida la numeración del artículo anterior por el artículo 4° del decreto ejecutivo N° 39404 del 15 de diciembre de 2015, que ordenó numerar el numeral 82 como artículo 102, y correr la numeración de los restante artículos, por lo que el artículo 88 paso a ser el 87)
