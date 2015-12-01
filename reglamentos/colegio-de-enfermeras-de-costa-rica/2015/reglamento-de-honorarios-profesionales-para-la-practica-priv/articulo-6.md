@@ -1,0 +1,1 @@
+Artículo 6°—Plazo de nombramiento. Los miembros de la Comisión de Aranceles son nombrados por la Junta Directiva conforme al artículo 48 del Reglamento a la Ley Orgánica del Colegio de Enfermeras de Costa Rica, por un periodo de dos años y pueden ser removidos por la Junta Directiva cuando lo estime oportuno o conveniente.

@@ -1,0 +1,1 @@
+Artículo 14.—Responsabilidad disciplinaria. Los y las enfermeros (as) serán sancionados disciplinariamente, por el incumplimiento de la Ley, sus reglamentos, las normas y los principios de la ética profesional y las disposiciones que dicte el Colegio.

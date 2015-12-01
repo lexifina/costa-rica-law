@@ -1,0 +1,1 @@
+Artículo 18.—De la responsabilidad del profesional en la custodia y conservación del protocolo. El profesional en enfermería es el depositario y responsable de la guarda y conservación de su protocolo, así como de su adquisición y conservación.

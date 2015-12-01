@@ -1,0 +1,3 @@
+CAPÍTULO II
+Competencia y creación de la Comisión de Aranceles
+Artículo 2°—Alcances de este reglamento. Este reglamento es de acatamiento obligatorio para todas y todos los profesionales de enfermería incorporados al Colegio de Enfermeras de Costa Rica, así como para los particulares en general y los funcionarios públicos y privados, donde se aplique, sin que contra estas disposiciones relativas a honorarios profesionales y su forma u oportunidad de pago, puedan oponerse o hacer prevalecer otros acuerdos, normas o disposiciones dictadas por entidades u órganos públicos o privados en materia de honorarios profesionales. Este reglamento fija los montos de honorarios a cobrar como mínimos.

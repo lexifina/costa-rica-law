@@ -1,0 +1,1 @@
+Artículo 12.—Responsabilidad Civil. La indemnización por los daños y perjuicios ocasionados por la actuación del (a) profesional en enfermería a las y los usuarios/cliente, será cubierta una vez que lo establezca una resolución judicial firme, dictada en la jurisdicción.

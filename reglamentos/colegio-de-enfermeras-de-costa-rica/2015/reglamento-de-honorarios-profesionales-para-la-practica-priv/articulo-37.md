@@ -1,0 +1,1 @@
+Artículo 37.—Pago de viáticos. Cuando con motivo de la prestación de un servicio de enfermería a su cliente, el profesional tuviese que salir del lugar donde se encuentra habitualmente, al profesional se le cancelarán los viáticos, de acuerdo a lo establecido por la Contraloría General de la República, por gastos de traslado, hospedaje y alimentación.

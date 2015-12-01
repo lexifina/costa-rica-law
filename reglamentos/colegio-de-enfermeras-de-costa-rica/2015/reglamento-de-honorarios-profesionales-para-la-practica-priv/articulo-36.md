@@ -1,0 +1,1 @@
+Artículo 36.—Trabajos periciales. Tratándose de estudios periciales, el profesional deberá de cumplir con los requisitos establecidos en la Ley Orgánica Colegio de Enfermeras de Costa Rica. Nº 2343 y su Reglamento, establecido en el Capitulo XVII, del “Peritaje en Enfermería”.

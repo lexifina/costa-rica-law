@@ -1,0 +1,1 @@
+Artículo 29.—Servicios profesionales por retribución de honorarios. Cuando el profesional brinde servicios de enfermería mediante el pago de honorarios, para su determinación regirán las disposiciones de este Reglamento, salvo contrato escrito en el cual convenga con su cliente otros términos de referencia, los cuales no pueden ser menores a lo aquí establecido.

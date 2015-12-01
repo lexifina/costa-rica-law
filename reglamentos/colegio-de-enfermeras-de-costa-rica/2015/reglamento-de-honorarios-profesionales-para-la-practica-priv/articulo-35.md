@@ -1,0 +1,1 @@
+Artículo 35.—Charlas, capacitaciones, conferencias y talleres. Los Honorarios correspondientes por concepto de charlas, conferencias, capacitaciones y talleres, se establecerán en la tabla de honorarios adjunta a este Reglamento, las cuales incluirán el pago de horas para la preparación, investigación, análisis de presentación y exposición.

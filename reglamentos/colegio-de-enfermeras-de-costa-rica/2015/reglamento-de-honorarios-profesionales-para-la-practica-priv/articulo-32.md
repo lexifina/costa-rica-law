@@ -1,0 +1,1 @@
+Artículo 32.—Sanciones. La violación a las disposiciones del presente Reglamento por parte de los profesionales será sancionado por la Junta Directiva del Colegio de Enfermeras de Costa Rica conforme con su competencia y de acuerdo a los lineamientos y procedimientos establecidos en el Código de Ética Profesional.

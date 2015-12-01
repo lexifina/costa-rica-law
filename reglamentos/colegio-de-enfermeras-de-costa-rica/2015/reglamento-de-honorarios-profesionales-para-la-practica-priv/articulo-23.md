@@ -1,0 +1,1 @@
+Artículo 23.—Tomos inconclusos por suspensión o cese de actividad. En caso de que la enfermera (o) sea suspendida (o) en el ejercicio profesional, o solicite el cese voluntario en la actividad, deberá finalizar el tomo en el estado en que se halle en los términos indicados en el artículo 21.
