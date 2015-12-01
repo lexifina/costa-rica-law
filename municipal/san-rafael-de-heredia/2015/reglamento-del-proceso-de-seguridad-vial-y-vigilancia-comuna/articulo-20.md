@@ -1,0 +1,1 @@
+Artículo 20.—Todos los miembros de la Policía Municipal de Tránsito que vistan su uniforme en lugares públicos, se considerarán que se encuentra en el ejercicio de sus funciones y por lo tanto, están obligados a intervenir en aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que le impone el presente reglamento.

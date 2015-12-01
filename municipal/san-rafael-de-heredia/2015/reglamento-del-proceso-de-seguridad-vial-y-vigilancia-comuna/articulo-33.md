@@ -1,0 +1,1 @@
+Artículo 33.—Los Policías Municipales de Tránsito tendrán derecho a su defensa, en asuntos judiciales que provengan del cumplimiento de sus deberes, en aquellos casos que así lo disponga discrecionalmente la Dirección Jurídica de la Municipalidad.

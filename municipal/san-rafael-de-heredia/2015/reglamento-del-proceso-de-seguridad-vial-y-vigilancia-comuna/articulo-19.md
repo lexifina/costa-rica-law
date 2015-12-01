@@ -1,0 +1,1 @@
+Artículo 19.—En los casos de emergencia y desastres, los Policías Municipales de Tránsito deberán presentarse, en el menor tiempo posible, a su respectiva base a fin de brindar servicios. Estarán obligados a intervenir en todos aquellos sucesos que reclamen su presencia, cumpliendo con los deberes que Íes impone el préseme reglamento.

@@ -1,0 +1,1 @@
+Artículo 27.—Siendo la disciplina base fundamental en todo cuerpo policial, los Policías Municipales de Tránsito deberán obedecer y ejecutar las órdenes que reciban de sus superiores jerárquicos, siempre que no contradigan la legalidad vigente.

@@ -1,0 +1,1 @@
+Artículo Transitorio IV.—Los Inspectores Municipales de Tránsito, no podrán utilizar las frecuencias de radio de la Dirección General de Tránsito, siendo que las autorizadas serán las de la Policía Municipal de San Rafael de Heredia.

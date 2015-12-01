@@ -1,0 +1,1 @@
+Artículo Transitorio V.—Una vez que el presente reglamento sea aprobado por el Concejo Municipal de San Rafael de Heredia, deberá remitirse una copia certificada al Departamento de Operaciones Policiales de la Dirección General de la Policía de Tránsito.

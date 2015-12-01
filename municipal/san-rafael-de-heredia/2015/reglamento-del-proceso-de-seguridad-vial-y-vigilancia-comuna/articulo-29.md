@@ -1,0 +1,1 @@
+Artículo 29.—Los policías Municipales de tránsito de San Rafael de Heredia, no deben admitir dádivas monetarias ni en especie por los servicios que presten. Guardarán secreto o reserva de los asuntos que conozcan por razones de su cargo.
