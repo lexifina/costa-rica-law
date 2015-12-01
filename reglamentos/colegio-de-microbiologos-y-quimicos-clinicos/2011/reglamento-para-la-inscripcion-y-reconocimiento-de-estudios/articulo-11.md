@@ -15,3 +15,5 @@ Especialista en Reproducción Asistida Humana, con énfasis en Manejo de Técnic
 (Así adicionada la especialidad anterior mediante sesión N° 15:2015-2016 del 7 de julio del 2015)
 Especialista en Reproducción Asistida Humana, con énfasis en Manejo de Técnicas de Baja Complejidad en el Laboratorio de Reproducción Asistida.
 (Así adicionada la especialidad anterior mediante sesión N° 15:2015-2016 del 7 de julio del 2015)
+Bioinformática y Biología de Sistemas
+(Así adicionada la especialidad anterior mediante sesión N° 36:2015-2016 del 1° de diciembre del 2015)
