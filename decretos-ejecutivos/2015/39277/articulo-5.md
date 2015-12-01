@@ -1,0 +1,1 @@
+Artículo 5°.- Con el fin de cumplir de manera eficiente y célere con el fin conferido a la CAID, esta podrá crear subcomisiones, las cuales tendrán el objetivo de estudiar casos en específico y, posteriormente, presentar informes o recomendaciones al pleno de la Comisión sobre lo puesto a su conocimiento.

@@ -1,0 +1,2 @@
+Artículo 3°.-Se ordena a cada órgano y se insta a cada ente integrante de la CAID a poner en disposición de la misma, dentro del ámbito de su competencia, lo que lesea solicitado para cumplir con la función asignada a esta Comisión en el artículo 1° del presente Decreto Ejecutivo.
+De igual forma, se insta a todo ente y se ordena a los órgano del Poder Ejecutivo, a facilitar lo que se les solicite para el cumplimiento de las funciones de la CAID, dentro del respectivo ámbito de su competencia.

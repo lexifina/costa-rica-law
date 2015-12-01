@@ -1,0 +1,1 @@
+Artículo 6°.-En lo no contemplado en este Decreto Ejecutivo, la CAID se regirá por las disposiciones generales que en materia de órganos colegiados disponen el artículo 49 y siguientes de la Ley General de la Administración Pública.

@@ -1,0 +1,1 @@
+Artículo 14°.- Para cada desalojo administrativo en particular, la CAID contará con un plazo máximo de cuatro meses, a partir de su remisión por parte del Ministerio de Seguridad Pública, para definir el Plan de Acción que otorgue una atención integral al desalojo correspondiente.

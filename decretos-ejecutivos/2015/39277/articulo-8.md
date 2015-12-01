@@ -1,0 +1,2 @@
+Artículo 8°.- En conjunto con lo dispuesto en el artículo 50 de la Ley General de la Administración Pública, la Secretaría Técnica tendrá las funciones de analizar los casos que ingresen a la CAID y, a partir de esto, entregar los informes y recomendaciones necesarias al pleno de la Comisión, con el objetivo de que esta pueda cumplir fielmente con la función asignada a ese órgano.
+Lo dispuesto en este artículo debe ser entregado en un plazo razonable, para asegurar que la CAID pueda cumplir con el plazo establecido en el artículo 14 de este Decreto Ejecutivo.

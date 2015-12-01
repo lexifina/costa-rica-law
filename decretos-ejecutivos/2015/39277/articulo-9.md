@@ -1,0 +1,1 @@
+Artículo 9°.- Para cumplir con los fines conferidos a la Secretaría Técnica de la CAID, el coordinador convocará a sesiones cuando lo considere necesario, o a solicitud de algún miembro de esta Secretaria.
