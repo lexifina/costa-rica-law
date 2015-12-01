@@ -1,0 +1,2 @@
+Transitorio único: El proceso de inversión que se estuviere ejecutando al amparo de norma anterior vigente, a la entrada en vigencia de la presente modificación del Reglamento, concluirá a la luz de la normativa original y a su vencimiento o renovación se ajustará a los preceptos normativos del presente Reglamento.
+Reglamento aprobado por el Consejo Directivo del Instituto Mixto de Ayuda Social, Acta N° 075-10-2015, Acuerdo N° 470-10- 2015, Artículo quinto, del 26 de octubre del 2015.

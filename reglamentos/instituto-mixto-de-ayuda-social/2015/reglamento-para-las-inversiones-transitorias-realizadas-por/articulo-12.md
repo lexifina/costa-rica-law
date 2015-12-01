@@ -1,0 +1,1 @@
+Artículo 12.—Deberes y Atribuciones de los funcionarios autorizados a firmar en cuentas corrientes centralizadas de IMAS: Les corresponde autorizar la solicitud a la Tesorería Nacional, de adquisición de inversiones y la solicitud de transferencia a favor del Fondo General de Gobierno o del Banco Central de Costa Rica.

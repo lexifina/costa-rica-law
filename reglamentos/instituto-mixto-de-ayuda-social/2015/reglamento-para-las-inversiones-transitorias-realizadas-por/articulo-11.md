@@ -1,0 +1,1 @@
+Artículo 11.—Deberes y Atribuciones de la Jefatura de la Unidad de Presupuesto: Realizar las conciliaciones de las cuentas presupuestarias. Verificar que el centro gestor y la posición presupuestaria sean correctas.
