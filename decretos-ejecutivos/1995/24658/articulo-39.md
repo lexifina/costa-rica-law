@@ -1,2 +1,4 @@
-Artículo 39.—Tasas de Interés
-La tasa de interés anual sobre los saldos deudores, aplicable a los préstamos directos y subpréstamos, será del equivalente de la tasa anual básica pasiva establecida por el Banco Central de Costa Rica, vigente a la fecha de suscribirse el contrato de préstamo o subpréstamo.
+Artículo 39.—Tasas de Interés La tasa de interés anual sobre los saldos deudores, aplicable a los préstamos directos y subpréstamos, en moneda nacional, será del equivalente de la tasa anual básica pasiva establecida por el Banco Central de Costa Rica; dicha tasa de interés anual se revisará y ajustará, de existir variación, semestralmente, al 1° de enero y al 1° de Julio de cada año.
+La tasa de interés anual sobre los saldos deudores aplicable a los préstamos directos y subpréstamos, denominados en dólares de Estados Unidos de América, será la Tasa de interés efectiva (TED) establecida por el Banco Central de Costa Rica; dicha tasa será revisable y ajustable semestralmente, al 1° de enero y al 1° de julio de cada año.
+La tasa a utilizar será la vigente a la fecha de suscribirse el contrato de préstamo o un subprestamo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)

@@ -1,2 +1,2 @@
-Artículo 41.—Plazo de amortización y período de gracia
-El plazo de amortización y período de gracia de los préstamos será aprobado en cada caso con base en el estudio de la solicitud correspondiente. El plazo de amortización no podrá exceder de 10 (diez) años, dentro de los cuales se deberá incluir cuando se de, el período de gracia, el que no podrá exceder de 3 (tres) años.
+Artículo 41.-Plazo de Amortización y Período de Gracia El plazo de amortización y período de gracia de los préstamos serán aprobados en cada caso con base en el estudio de la solicitud correspondiente. El plazo de amortización no podrá exceder de 12 (doce) años, dentro de los cuales se deberá incluir cuando se dé, el período de gracia, el que no podrá exceder de 3 (tres) años.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)

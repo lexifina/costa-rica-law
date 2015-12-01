@@ -13,7 +13,8 @@ j. Detalle de la forma en que se efectuarán los desembolsos; el plazo para el d
 k. El compromiso del beneficiario de que tomará todas las medidas que sean necesarias para que los contratos de prestación de servicios se hagan tomando en cuenta factores de calidad, capacidad, eficiencia y otros que sean del caso, a un costo razonable que será generalmente el precio más bajo del mercado;
 l. Indicación del procedimiento mediante el cual se contratarán los consultores;
 m. Disposiciones relativas a los correspondientes términos de referencia;
-n. La frecuencia de los Informes de Avance de los estudios que el consultor por intermedio del beneficiario deberá rendir al FONDO;
+n) La frecuencia de los informes de los estudios que el consultor por intermedio del beneficiario deberá rendir al FONDO;
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
 o. Las normas y procedimientos a seguir en el caso de que se presente incumplimiento por parte del beneficiario, de alguna de las obligaciones establecidas en el Contrato o Convenio;
 p. La indicación de que los gastos de legalización y cargas fiscales del correspondiente Contrato o Convenio, o de las garantías otorgadas, correrán por cuenta del beneficiario;
 q. El compromiso de que en toda la publicidad relacionada con el estudio se deberá mencionar que se ha financiado con la cooperación del FONDO;

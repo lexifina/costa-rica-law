@@ -1,4 +1,3 @@
-Artículo 58.—Registro de consultores
-La DIRECCIÓN llevará un Registro de Consultores. Para inscribirse en el mismo los consultores deberán demostrar y actualizar ante la DIRECCIÓN sus condiciones profesionales, con inclusión de experiencia, habilidad y capacidad, así como cancelar los derechos de inscripción correspondientes.
-Ningún consultor podrá realizar estudios con recursos del FONDO a menos que esté debidamente inscrito en el Registro de Consultores.
-La DIRECCIÓN facilitará listados del Registro de Consultores cuando sea requerido.
+Artículo 58.—Registro de Consultores. La DIRECCIÓN llevará un Registro de Consultores. Para inscribirse en el mismo los consultores deberán demostrar y actualizar ante la DIRECCIÓN sus condiciones profesionales, con inclusión de experiencia, habilidad y capacidad, así como cancelar los derechos de inscripción correspondientes. La vigencia de cada inscripción será de tres (3)años contados a partir de su incorporación en dicho Registro Ningún consultor podrá participar en concursos financiados con recursos del FONDO, a menos que esté debidamente inscrito en el Registro de Consultores.
+La DIRECCION facilitará listados del Registro de Consultores cuando sea requerido.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39403 del 1° de diciembre de 2015)
