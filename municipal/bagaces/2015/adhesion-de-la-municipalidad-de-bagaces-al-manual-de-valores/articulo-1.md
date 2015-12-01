@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE BAGACES
+La administración tributaria de conformidad con lo que disponen los artículos N° 3 y N° 12 de la Ley del Impuesto Sobre Bienes Inmuebles N° 7509 y sus reformas y la sentencia N° 1073-2010 del Tribunal Contencioso Administrativo, sección III, en aras de dar cumplimiento a su competencias, procede a manifestar su adhesión al nuevo Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance Digital N° 19 de La Gaceta N° 57 del 23 de marzo del 2015, por el Órgano de Normalización Técnico, Dirección General de Tributación, Ministerio de Hacienda. Cualquier información al respeto, puede comunicarse con Alejandra Arley, al número 2690- 1301, al correo electrónico aarley@bagaces.go.cr.
+Bagaces, 19 de noviembre del 2015.
