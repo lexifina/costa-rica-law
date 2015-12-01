@@ -1,0 +1,16 @@
+# Reglamento (2015-11-05)
+
+Estatuto de la Federación Occidental de Municipalidades de Alajuela (FEDOMA)
+
+- Tipo: Reglamento
+- Número: 0
+- Fecha: 2015-11-05
+- Ente emisor: Federación Occidental de Municipalidades de Alajuela
+- Publicación: La Gaceta N° 233 del 2015-12-01
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=80669&param2=102465&param3=1 (ficha 80669)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2015-12-01 | la propia norma |

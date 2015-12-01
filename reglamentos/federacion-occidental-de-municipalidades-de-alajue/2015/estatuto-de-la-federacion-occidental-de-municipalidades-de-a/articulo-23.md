@@ -1,0 +1,1 @@
+Artículo 23.—De la Vicepresidencia del Consejo Directivo. La Vicepresidencia sustituirá al Presidente/a por razones de ausencia o enfermedad. Así mismo, lo hará como Presidente/a en funciones en caso de cese, dimisión, censura o fallecimiento del Presidente/a, contando con las mismas atribuciones y obligaciones establecidas por el Estatuto para el Presidente (a).
