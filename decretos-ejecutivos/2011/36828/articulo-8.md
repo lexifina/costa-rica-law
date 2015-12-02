@@ -1,1 +1,0 @@
-Artículo 8°— El (la) Ministro(a) de Agricultura y Ganadería podrá elevar al (a la) Presidente(a) de la República todos aquellos acuerdos que por su contenido resulte necesario declarar de acatamiento obligatorio para las Instituciones Públicas cuyo ámbito de competencia esté fuera del Sector Agroalimentario.

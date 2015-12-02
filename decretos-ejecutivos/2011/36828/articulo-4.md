@@ -1,1 +1,0 @@
-Artículo 4°—El Foro Nacional Mixto contará con un representante nacional escogido por los representantes del Foro Regional Mixto quien fungirá como enlace para presentar mediante una agenda los asuntos que por su complejidad tienen que ser resueltos en el ámbito nacional y a su vez, representará a su Región.

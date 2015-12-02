@@ -1,1 +1,0 @@
-Artículo 15.—Las reuniones ordinarias del Foro Regional Mixto se llevarán a cabo una vez al mes; habrá quórum siempre que se encuentren presentes la mitad más uno de sus miembros y dentro de éstos que estén presentes los representantes de la mitad más uno de las organizaciones acreditadas en las Direcciones Regionales del MAG que lo conforman.

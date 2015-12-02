@@ -1,1 +1,0 @@
-Artículo 7°—El Foro Nacional Mixto deberá reunirse ordinariamente cada dos meses, y extraordinariamente cuando sea necesario, en el sitio dispuesto en la convocatoria, con al menos 24 horas de antelación. Existirá quórum siempre que se encuentren presentes la mitad más uno de sus miembros y dentro de estos miembros estén presentes los representantes de al menos cuatro regiones.
