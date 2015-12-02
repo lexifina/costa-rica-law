@@ -1,0 +1,1 @@
+Artículo 28.—Talleres fijos. En este concluye la cadena de reparaciones. Habrán de estar capacitados para reconstruir totalmente las máquinas que necesiten una reparación general. Tanto el número, como la organización de estos talleres no pueden prefijarse apriorísticamente. Deberá existir, por lo menos, un taller central.

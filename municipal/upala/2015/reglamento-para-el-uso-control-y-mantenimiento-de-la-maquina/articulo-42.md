@@ -1,0 +1,1 @@
+Artículo 42.—Control de campo. La maquinaria para la atención de la red vial cantonal, será controlada, mediante la aplicación de formularios que tendrán como fin, el evaluar los rendimientos del mismo y que serán la base para la estimación de los costos de los proyectos futuros.

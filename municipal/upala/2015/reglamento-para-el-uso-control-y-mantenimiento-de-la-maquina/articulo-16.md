@@ -1,0 +1,11 @@
+Artículo 16.—Prohibiciones. Queda terminantemente prohibido:
+a) Consumir y/o portar bebidas alcohólicas, u otras drogas ilegales o sustancias enervantes o psicotrópicas en los vehículos municipales, conducir bajo los efectos de éstas o permitir que personas en tales condiciones viajen en el vehículo bajo su responsabilidad. Así mismo queda prohibido conducir bajo los efectos de drogas legales o medicamentos que produzcan somnolencia o que disminuyan las capacidades físicas.
+b) Transportar en los vehículos municipales personas ajenas a la Municipalidad, así como materiales u otros bienes que no sean propiedad municipal o que al menos tengan relación con los fines del quehacer municipal.
+c) Permitir el uso del vehículo a su cargo para que otras personas aprendan a conducir ni para desarrollar actividades que no sean municipales.
+d) No ceder la conducción del vehículo a personas no autorizadas, salvo casos de fuerza mayor o caso fortuito, en cuyo caso deberán informar al Alcalde Municipal de las razones y justificaciones de tal proceder.
+e) Al conductor involucrado en un accidente de tránsito con vehículos municipales se le prohíbe llegar a un arreglo extrajudicial sin la debida autorización de la Asesoría Legal.
+f) Queda prohibido estacionar los vehículos municipales frente a cantinas, bares, tabernas o similares, ni frente a locales cuya fama riña contra la moral y buenas costumbres, salvo casos de operativos de verificación de información o en coordinación con la Fuerza Pública.
+g) Realizar cualquier trabajo en la Red Vial Cantonal sin contar con la aprobación de la Unidad Técnica de Gestión Vial de la Municipalidad de Upala.
+h) Los conductores no podrán hacer intercambio de accesorios entre las unidades, si no cuentan con la aprobación previa de la Jefatura respectiva.
+i) Utilizar la maquinaria municipal en la ejecución de obras que no sea de interés público, así como el transporte de materiales no autorizados a particulares.
+j) Emplear la maquinaria municipal para hacer proselitismo.

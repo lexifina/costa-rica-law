@@ -1,0 +1,1 @@
+Artículo 21.—El mantenimiento preventivo será realizado por los operadores y choferes, revisión de aceites, agua presión de aire de las llantas, tención de cadenas en el caso de orugas, agua de baterías, y ajuste de frenos con la supervisión del encargado de maquinaria.

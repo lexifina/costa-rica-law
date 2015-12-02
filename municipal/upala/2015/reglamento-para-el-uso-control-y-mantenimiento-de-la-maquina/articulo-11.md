@@ -1,0 +1,1 @@
+Artículo 11.—Del control del kilometraje. La Municipalidad por medio de la Dirección Administrativa, llevará un control de kilometraje de cada uno de los vehículos administrativos, haciendo las anotaciones correspondientes a las salidas y a la llegada de vehículos. La Unidad Técnica de Gestión Vial deberá realizar un sistema de controles e informes semanales.
