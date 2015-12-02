@@ -1,0 +1,1 @@
+Artículo 20. Los Consejos de Distrito quedan autorizados para celebrar reuniones con los vecinos de su jurisdicción, con el fin de considerar problemas comunes y proponer las soluciones adecuadas al Concejo Municipal, entre otras cosas por medio de la elaboración de planes locales que posibiliten el desarrollo del distrito, en la forma que lo indica la Ley y este Reglamento.

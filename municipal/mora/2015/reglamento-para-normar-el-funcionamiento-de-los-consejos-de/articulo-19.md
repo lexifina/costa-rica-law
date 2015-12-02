@@ -1,0 +1,1 @@
+Artículo 19. La jurisdicción territorial del Consejo de Distrito, es el distrito y el caserío y deberá aprobar un domicilio exacto para sus reuniones y notificaciones, que comunicarán a la Municipalidad, sin perjuicio de realizar reuniones y actividades en cualquier otra dirección, previo acuerdo y conocimiento de los miembros integrantes.

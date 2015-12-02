@@ -1,0 +1,2 @@
+Artículo 22. El Consejo de Distrito deberá reunirse ordinariamente, al menos una vez al mes, pudiendo celebrar sesiones extraordinarias previa convocatoria del Síndico o cuando así lo convoquen por escrito tres de sus miembros.
+El Consejo de Distrito, deberá comunicar a la Comisión de Consejos de Distrito Municipal, el día, hora y lugar de reunión que designen para tal efecto. Serán convocados por medio de oficio del Presidente o Secretario, con mínimo dos días de anticipación.

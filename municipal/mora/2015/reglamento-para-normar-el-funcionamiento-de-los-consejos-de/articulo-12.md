@@ -1,0 +1,2 @@
+Artículo 12. Una vez que los Consejos de Distrito, presenten la documentación requerida en los plazos establecidos, le corresponderá a Hacienda Municipal y Planificación Institucional revisar y valorar la información suministrada y comunicará a la Alcaldía sobre solicitudes hechas, sugerencias y recomendaciones.
+De todos aquellos proyectos que soliciten los Consejos de Distrito y que no sea posible llevar a cabo, la Alcaldía se encargará de informar por escrito las razones por las cuáles éstos no pueden seleccionarse.

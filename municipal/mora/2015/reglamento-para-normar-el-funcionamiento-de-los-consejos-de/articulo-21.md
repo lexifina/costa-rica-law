@@ -1,0 +1,1 @@
+Artículo 21. Los acuerdos y resoluciones del Consejo de Distrito, serán ejecutados por el Síndico Propietario o su Suplente, de acuerdo a los planes de desarrollo local distrital elaborados con participación de los vecinos (as). Solamente podrán quedar firmes los acuerdos cuando así expresamente lo aprueben al menos cuatro de sus miembros.

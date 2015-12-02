@@ -1,0 +1,1 @@
+Artículo 27. Todas las sesiones del Consejo de Distrito serán públicas. Previa audiencia, cualquier persona podrá participar en las sesiones de los Consejos de Distrito (vecinos (as), en calidad de representantes de organizaciones comunales o en su calidad particular).

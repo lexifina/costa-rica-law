@@ -1,0 +1,1 @@
+Artículo 7. La Municipalidad planificara y ejecutara sus obras o servicios públicos en cada distrito, atendiendo las prioridades fijadas por el Consejo de Distrito, el cual a su vez para definirlas debe procurar la más amplia participación ciudadana de las fuerzas organizadas de su jurisdicción.

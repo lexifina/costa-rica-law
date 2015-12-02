@@ -1,0 +1,1 @@
+Artículo 10. Conforme al Artículo 4° de este Reglamento, la Municipalidad por intermedio de la Oficina de Planificación Institucional, otorgará a los Consejos todo el apoyo logístico y asesoría que sea necesario, para que los perfiles de proyectos presentados sean debidamente formulados y cuenten con evidencia de una amplia participación popular.

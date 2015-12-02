@@ -1,0 +1,3 @@
+Capítulo IV
+Organización Interna
+Artículo 14. Los Consejos de Distrito estarán integrados, como órganos colegiados, por cinco miembros propietarios y sus respectivos suplentes, todos vecinos del distrito; serán elegidos popularmente en la misma fecha de elección de los síndicos y por igual período. Asimismo, tanto los concejales propietarios como los suplentes se regirán bajo las mismas condiciones y tendrán iguales deberes y atribuciones que los regidores municipales. Uno de los miembros será el síndico propietario del distrito, quién presidirá y será sustituido por el síndico suplente. En ausencia del síndico propietario y del suplente, el concejo será presidido por el miembro propietario de mayor edad.

@@ -1,0 +1,1 @@
+Artículo 9. Para cumplir con los artículos 7° y 8° del presente, los Consejos de Distrito según lo dispuesto en el artículo 94 del Código Municipal, deberán en la primera semana del mes de julio de cada año, presentar a la Alcaldía su lista de proyectos priorizados así como requerimientos de financiamiento.

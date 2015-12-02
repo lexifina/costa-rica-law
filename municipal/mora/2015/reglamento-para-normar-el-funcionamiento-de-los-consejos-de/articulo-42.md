@@ -1,0 +1,1 @@
+Artículo 42. En consecuencia con el artículo 11° del presente, la organización interesada debe de presentar el formulario de perfil de proyecto que pretende desarrollar, con base en las herramientas y guía proporcionada para tal efecto por la Oficina de Planificación Institucional así como del Ministerio de Hacienda.

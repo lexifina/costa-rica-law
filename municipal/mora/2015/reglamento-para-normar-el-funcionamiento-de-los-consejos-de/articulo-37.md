@@ -1,0 +1,1 @@
+Artículo 37. La Comisión impulsará programas de capacitación para los miembros de los Consejos de Distrito (apoyados en los funcionarios municipales), especialmente en aspectos legales, organizativos y de planificación para la formulación y presentación de los proyectos en las distintas áreas del desarrollo.

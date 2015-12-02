@@ -1,0 +1,3 @@
+Capítulo III
+De la Participación Ciudadana
+Artículo 6. La Municipalidad servirá como referente del diálogo entre los distintos actores que intervienen en el desarrollo del cantón (Concejo Municipal, Consejos de Distrito, organizaciones comunales y ciudadanos en general), y procurará que se utilicen los mecanismos democráticos de participación que le son inherentes legalmente como las audiencias, el cabildo, el plebiscito, la consulta, la rendición de cuentas, encuentros o talleres, mesas de trabajo, otros, logrando de esta manera que las decisiones sean consensuadas entre todos y se propongan los planes, las prioridades y los presupuestos a ejecutarse sin esperar que sea el Gobierno Local quien tome las iniciativas.
