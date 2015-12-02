@@ -1,0 +1,3 @@
+CAPÍTULO III
+De la administración de los servicios de transporte
+Artículo 16—Existirá en los tres niveles de gestión, la estructura organizacional necesaria para garantizar que los procesos relacionados con la gestión de los recursos humanos, financieros, de infraestructura física y bienes y servicios se ejecuten de manera articulada, eficaz y con la calidad requerida referente al tema de la flotilla vehicular. En el nivel central, será responsabilidad directa del Área de Transportes, en el nivel regional, de la Unidad de Apoyo Logístico y Administrativo, y en el nivel local, de la Dirección del Área Rectora de Salud. Estas instancias dependerán técnicamente de la División Administrativa.

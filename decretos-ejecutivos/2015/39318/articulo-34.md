@@ -1,0 +1,1 @@
+Artículo 34 —Si la autoridad judicial declara la responsabilidad del conductor al servicio del Ministerio, éste deberá reintegrar las sumas que la Institución haya cancelado por concepto de deducible al Instituto Nacional de Seguros, así como cualquier otra suma diferencial que no sea cubierta al 100% por la póliza del INS.

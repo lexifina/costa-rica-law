@@ -1,0 +1,1 @@
+Artículo 4—Los vehículos de uso discrecional son aquellos que están asignados exclusivamente al Ministro y su regulación está establecida de conformidad a lo dispuesto en artículo 238 de la Ley de Tránsito Nº 9078 del 04 de octubre del 2012.

@@ -1,0 +1,4 @@
+Artículo 39—El Área de Transportes en el nivel central tendrá a cargo la administración de la póliza de “Seguros de Automóviles Voluntaria” y debe hacer un adecuado manejo y aprovechamiento de esta, en protección de los intereses institucionales, para lo cual debe:
+a) Mantener la documentación e información completa, exacta, actualizada y de fácil ubicación relacionada con la administración de la “Póliza de Seguro de Automóviles Voluntaria”.
+b) Ocuparse y resolver las observaciones de los peritos del Instituto Nacional de Seguros, formuladas en razón de la valoración de los vehículos para renovación de la póliza.
+c) Revisar periódicamente los límites de cobertura para los distintos riesgos asegurados, así como recomendar la actualización del nivel de cobertura o del monto económico de la póliza si ello resulta necesario para mantener la protección debida.

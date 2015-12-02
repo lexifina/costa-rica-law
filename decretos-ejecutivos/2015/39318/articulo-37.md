@@ -1,0 +1,1 @@
+Artículo 37 —Si en la resolución de la autoridad judicial de Tránsito se declara responsable a un tercero, éste deberá indemnizar al Ministerio de Salud, para lo cual la División Administrativa deberá iniciar el trámite respectivo.

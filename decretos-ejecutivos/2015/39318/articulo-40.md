@@ -1,0 +1,1 @@
+Artículo 40 —La Unidad de Apoyo Logístico y Administrativo, en el nivel regional, y la Dirección de Área Rectora de Salud, en el nivel local, deben de informar al Área de Transportes del nivel central, sobre los automotores que han sido declarados como bajas o están fuera de circulación por tiempos prolongados, o bien, desean incluirlos en la póliza para que circulen nuevamente.

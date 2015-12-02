@@ -1,0 +1,1 @@
+Artículo 14—Corresponderá al Ministro o por delegación expresa de éste, al Director Administrativo autorizar la salida del país de los vehículos de la Institución cuando las situaciones o actividades de trabajo así lo demanden.

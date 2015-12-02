@@ -1,0 +1,1 @@
+Artículo 36—En caso de un accidente, provocado por un tercero, serán responsables solidariamente el conductor y el funcionario o cualquier otro que sin justa causa y la debida autorización, permitió a otra persona conducir el vehículo que se le asignó, transgrediendo lo dispuesto en el artículo 242 de la Ley de Tránsito.

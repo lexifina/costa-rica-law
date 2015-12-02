@@ -1,0 +1,1 @@
+Artículo 43— Derogatorias: Deróguese el Decreto Ejecutivo Nº 27586-S, de 14 de diciembre de 1998, publicado en el Diario Oficial La Gaceta Nº 12 del 19 de enero de 1999, “Reglamento de Servicio de Transporte del Ministerio de Salud”.

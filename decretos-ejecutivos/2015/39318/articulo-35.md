@@ -1,0 +1,1 @@
+Artículo 35—En el caso de que el evento no sea cubierto por la póliza del INS y el conductor sea declarado culpable por parte de las instancias juridiciales, éste deberá cubrir el costo de la reparación del vehículo institucional, sin perjuicio de las acciones que la institución deba llevar a cabo ante cualquier incumplimiento.

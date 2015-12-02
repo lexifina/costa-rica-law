@@ -1,0 +1,1 @@
+Artículo 15—Corresponderá al jerarca de la Institución o a quien este formalmente delegue, el autorizar excepcionalmente, el préstamo de vehículos oficiales a otras entidades públicas, acorde con lo dispuesto en artículo 243 Ley de Tránsito por Vías Públicas y Terrestres N° 9078.

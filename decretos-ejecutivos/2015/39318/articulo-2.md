@@ -1,0 +1,1 @@
+Artículo 2—Se consideran vehículos propiedad del Ministerio de Salud todos aquellos que la Institución haya adquirido o que le hayan sido donados y que se encuentren inscritos a su nombre ante el Registro Público de la Propiedad de Vehículos del Registro Nacional.

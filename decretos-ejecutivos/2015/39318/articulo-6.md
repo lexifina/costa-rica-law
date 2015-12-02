@@ -1,0 +1,1 @@
+Artículo 6—Los vehículos de uso administrativo son todos aquellos destinados a prestar servicios regulares de transporte a las diferentes unidades organizativas del Ministerio de Salud, para el desarrollo normal de sus funciones y actividades y estarán sujetos conforme a lo dispuesto en la Ley Nº 9078, Ley de Tránsito y el presente reglamento.

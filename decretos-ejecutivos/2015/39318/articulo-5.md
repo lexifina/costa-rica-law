@@ -1,0 +1,1 @@
+Artículo 5 —Los vehículos de uso semidiscrecional son aquellos que están asignados a los Viceministros y estarán regulados conforme a lo dispuesto en la Ley Nº 9078, Ley de Tránsito y el presente reglamento.

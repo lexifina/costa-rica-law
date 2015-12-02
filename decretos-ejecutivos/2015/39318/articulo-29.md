@@ -1,0 +1,3 @@
+CAPÍTULO VI
+Accidentes de tránsito
+Artículo 29 —En caso de un accidente de tránsito y cuando el conductor se encuentre ileso para atender el percance, debe comunicarse con las autoridades de Tránsito y del Instituto Nacional de Seguros, realizar el reporte de accidente para la aplicación de la póliza voluntaria de automóviles y notificar al Área de Transportes. El conductor deberá permanecer en el sitio del evento hasta tanto las autoridades del tránsito como del Instituto Nacional de Seguros realicen los informes respectivos, salvo que exista alguna razón que imposibilite dicha diligencia o su presencia en el sitio. El conductor siempre deberá hacerse asesorar por el Área de Transportes del Ministerio de Salud
