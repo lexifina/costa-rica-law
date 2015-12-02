@@ -1,0 +1,1 @@
+Artículo 6º—Otros servidores competentes. La Gerencia General, los gerentes de área, el jefe de la oficina emitirán el acto final de adjudicación en los procedimientos, conforme a las disposiciones que contiene el artículo 10 del presente Reglamento.

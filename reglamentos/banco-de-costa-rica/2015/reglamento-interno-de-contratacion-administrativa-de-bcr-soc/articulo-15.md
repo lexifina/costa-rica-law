@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Requisitos previos de la contratación administrativa
+Artículo 15.—Programa de adquisiciones. BCR SAFI, por medio de la Oficina de Compras y Pagos del BCR, debe publicar en enero de cada año un Programa de Adquisiciones, a partir de la información que le suministren las diferentes áreas, conforme a los lineamientos que establece el artículo 7 del Reglamento a la Ley de Contratación Administrativa.
+Las contrataciones previstas en el Programa de Adquisiciones deberán contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto a inicio y adjudicación de procesos de adquisición de bienes y servicios con cargo a presupuestos futuros, según lo establecido en el artículo 9 del Reglamento a la Ley de Contratación Administrativa.
+Las contrataciones urgentes no previstas podrán ejecutarse sin necesidad de modificar el Programa de Adquisiciones, cuando se justifique en el cumplimiento de los fines de BCR SAFI, debidamente acreditado en el expediente de la contratación que al efecto se tramite.

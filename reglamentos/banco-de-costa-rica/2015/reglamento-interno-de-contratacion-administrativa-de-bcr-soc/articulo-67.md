@@ -1,0 +1,1 @@
+Artículo 67.—Servidores autorizados. El gerente general, gerentes de área, o quienes los sustituyan formalmente, quedarán facultados para autorizar conjuntamente la realización de tales gastos de acuerdo con las atribuciones establecidas en el artículo 12.

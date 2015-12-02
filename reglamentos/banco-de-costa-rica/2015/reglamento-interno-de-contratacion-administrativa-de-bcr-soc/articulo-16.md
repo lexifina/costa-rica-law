@@ -1,0 +1,1 @@
+Artículo 16.—Evaluación del Programa de Adquisiciones. Al finalizar cada período presupuestario, la Jefatura Administrativa realizará un informe de la ejecución presupuestaria del Programa de Adquisiciones de BCR SAFI pudiendo formular las recomendaciones que estime pertinentes. El informe será dirigido al gerente general de BCR SAFI.
