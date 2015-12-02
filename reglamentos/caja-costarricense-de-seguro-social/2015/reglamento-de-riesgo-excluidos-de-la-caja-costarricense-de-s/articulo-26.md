@@ -1,0 +1,3 @@
+ARTÍCULO 26°: Del lugar en que se presta el servicio
+La prestación que se demande en los servicios de consulta externa o emergencias de los establecimientos de salud, se otorgará de acuerdo con los protocolos y disposiciones establecidas institucionalmente.
+Tratándose de atenciones complementarias, el lesionado deberá presentarse ante la Dirección Médica, la Jefatura de la Consulta Externa o de Emergencias, según el nivel de atención de que se trate, para que esta verifique la corrección de la solicitud enviada por la aseguradora y pueda procederse a la prestación solicitada, lo que en todo caso deberá materializarse siguiendo las disposiciones aplicables para los asegurados del seguro de salud y las regulaciones establecidas en este reglamento.

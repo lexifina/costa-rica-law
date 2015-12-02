@@ -1,0 +1,4 @@
+ARTÍCULO 11°: De la generación de intereses y el plazo de prescripción
+Para la cancelación de las sumas cobradas por atenciones de riesgos excluidos, el deudor contará con un plazo de quince días hábiles.
+Todo cobro por atenciones brindadas en casos de riesgos excluidos generará a partir de su vencimiento, intereses legales de conformidad con lo que establece el artículo 1163 del Código Civil y 49 de la Ley Constitutiva. La aplicación de las sumas que fueren pagadas se hará de conformidad con lo que disponen los artículos 780 y 783 del Código Civil.
+La acción para cobrar las sumas derivadas de atenciones prestadas en casos de riesgos excluidos prescribe a los diez años, en aplicación de lo dispuesto en el artículo 56° de la Ley Constitutiva. De igual forma la acción para cobrar los intereses generados por las facturaciones elaboradas por riesgos excluidos prescribirá en el plazo de diez años.

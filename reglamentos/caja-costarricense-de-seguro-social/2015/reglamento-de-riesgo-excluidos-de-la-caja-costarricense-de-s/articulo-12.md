@@ -1,0 +1,2 @@
+ARTÍCULO 12°: De los acuerdos de pago en caso de morosidad
+Los patronos personas físicas o jurídicas, o los lesionados que tengan deudas derivadas de atenciones prestadas en casos de riesgos excluidos tendrán la posibilidad de acogerse, en lo que resultare aplicable, a las disposiciones reglamentarias que regulan la formalización de arreglos o convenios de pago de las contribuciones a la seguridad social.

@@ -1,0 +1,6 @@
+CAPÍTULO V
+DE LA GESTIÓN DEL PROCESO DE VALIDACIÓN Y FACTURACIÓN
+DE ATENCIONES POR RIESGOS EXCLUIDOS
+ARTÍCULO 17°: Del inicio y fin del proceso
+El proceso de Validación y Facturación por Riesgos Excluidos inicia en el momento en el que una persona lesionada se presenta a un establecimiento de salud de la Caja requiriendo la prestación de servicios de salud, y el establecimiento identifica que se está en presencia de un riesgo excluido, y finaliza, una vez que habiéndose prestado la atención requerida y encontrándose el paciente con alta médica o hemodinámicamente estable para su traslado a otro centro hospitalario, se emite la respectiva referencia médica, se genera la facturación para la recuperación de los costos en que se hubiere incurrido, y de ser necesario se ejecutan las acciones correspondientes a nivel de cobro administrativo y judicial.
+Los funcionarios que participen del proceso de validación y facturación de riesgos excluidos, están autorizados, en el ejercicio de sus funciones, para acceder a la información contenida en los expedientes de salud y formularios institucionales, siéndoles igualmente aplicables las regulaciones sobre la confidencialidad que de tal información debe guardarse.

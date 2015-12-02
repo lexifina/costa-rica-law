@@ -1,0 +1,3 @@
+ARTÍCULO 13°: De la utilización de las tecnologías de la información
+Las aseguradoras que requieran se les preste servicios por parte de la Caja, quedan sujetas a las disposiciones que fije la Caja en materia de Tecnologías de Información, Comunicaciones y Seguridad, para la consolidación, integración o validación de bases de datos que contengan información relacionada con la identificación, prestación y pago de los servicios otorgados a los consumidores de las pólizas por ellos comercializadas.
+En todo requerimiento informático, generado a lo interno de la Caja y asociado con la identificación, registro, facturación o prestación de servicios de salud, así como con el costeo y su cobro, deberá considerarse lo atinente al componente de los riesgos excluidos.

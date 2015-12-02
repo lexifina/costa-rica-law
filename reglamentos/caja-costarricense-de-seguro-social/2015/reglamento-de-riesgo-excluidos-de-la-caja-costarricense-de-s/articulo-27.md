@@ -1,0 +1,3 @@
+ARTÍCULO 27°: De las atenciones posteriores a la emisión de una referencia
+Si posterior a la emisión de la referencia a la que alude el artículo 25°, el trabajador se presenta requiriendo una nueva atención sea en la consulta externa o en el servicio de emergencias, y el profesional en medicina determina que ésta tiene su origen en la misma causa ya previamente establecida como riesgo del trabajo, procederá a explicar tal circunstancia al paciente, previo a brindarle la atención que corresponda de conformidad con las regulaciones establecidas en este reglamento.
+En la referencia que habrá de elaborarse con ocasión de la nueva atención deberá consignarse un resumen del contenido de la referencia original.

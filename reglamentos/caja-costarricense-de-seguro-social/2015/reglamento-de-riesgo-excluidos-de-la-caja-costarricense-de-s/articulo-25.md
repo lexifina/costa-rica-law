@@ -1,0 +1,3 @@
+ARTÍCULO 25°: De la emisión de referencias
+En todas las ocasiones en que se haya prestado servicios en casos identificados como un riesgo del trabajo, se deberá emitir una referencia en la que se señale de forma clara, amplia, detallada y conforme lo que se hubiere consignado en el expediente de salud o formulario de Atención de Urgencias, las consideraciones que fundan la existencia de la relación causal establecida para calificar la atención como un riesgo del trabajo, así como el detalle de las prestaciones que se le hubieren brindado al paciente.
+La referencia en cuestión será entregada al paciente o sus representantes, quienes firmaran como prueba de recibo de la misma. La copia recibida se mantendrá en custodia del establecimiento de salud.

@@ -1,0 +1,3 @@
+ARTÍCULO 9°. De las obligaciones del lesionado que sufre el riesgo excluido
+Toda persona lesionada que haya sufrido un riesgo excluido y demande atención en un establecimiento de salud de la Caja, deberá cumplir con las obligaciones que las disposiciones que rigen los riesgos en relación con los cuales ha sufrido el siniestro le imponen.
+Particularmente en caso de riesgos del trabajo, la de informar a su patrono del acaecimiento del riesgo para que éste presente la denuncia a que está obligado, y tratándose de accidentes de tránsito, la de poner en aviso a la aseguradora sobre el acaecimiento del siniestro, hecho que deberá documentar ante el establecimiento de salud de la Caja en donde estuviere recibiendo atención.

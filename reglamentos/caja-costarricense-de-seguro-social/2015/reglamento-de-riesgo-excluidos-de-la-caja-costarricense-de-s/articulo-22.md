@@ -1,0 +1,3 @@
+ARTÍCULO 22°: De la emisión de normativa en materia de riesgos excluidos
+Compete a la unidad gestora la emisión de lineamientos asociados con los aspectos operativos del manejo de los riesgos excluidos, individualmente o bien en conjunto con otras unidades institucionales, así como el someter a consideración y aprobación de las Gerencias, propuestas de circulares, manuales, protocolos o procedimientos que se estimen necesarios para la correcta gestión de los riesgos excluidos.
+En el desarrollo de su labor deberá considerar la emisión de nuevas normativas o la modificación de las existentes, por disposición legislativa, del Poder Ejecutivo de la Sala Constitucional de la Corte Suprema de Justicia o de la Superintendencia General de Seguros (SUGESE).

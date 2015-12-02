@@ -1,0 +1,7 @@
+CAPÍTULO IX
+DE OTROS RIESGOS EXCLUIDOS
+ARTÍCULO 37°: Cobro de servicios médicos por riesgos excluidos no asociados a seguros obligatorios
+Cuando para una actividad específica exista una disposición normativa de orden público y alcance general, que obligue a contar para su desarrollo con una póliza con cobertura suficiente para garantizar que se brindarán al beneficiario la totalidad de las atenciones médico, quirúrgicas y de rehabilitación que llegare a requerir hasta el efectivo restablecimiento de su estado de salud, en la prestación de servicios que la Caja otorgare a un lesionado en dicha actividad se aplicarán en lo que resulten compatibles las disposiciones del presente reglamento.
+En el supuesto del párrafo anterior, el cobro de las atenciones se realizará directamente al lesionado, mayor de edad, excepto que de un análisis jurídico de la normativa que rige la actividad se determine la procedencia de imputar el costo de tales atenciones a otra u otras personas físicas o jurídicas, o bien al lesionado y concomitantemente de forma solidaria a otra u otras personas físicas o jurídicas.
+Además, para la facturación al lesionado se aplicarán en lo que resulten compatibles las disposiciones institucionales existentes para la facturación y cobro de atenciones a pacientes No Asegurados del Seguro de Salud.
+La emisión de los procedimientos para la identificación, registro, cobro y seguimiento de los casos que se enmarquen en los supuestos de este artículo, será responsabilidad de las Gerencias Médica y Financiera.

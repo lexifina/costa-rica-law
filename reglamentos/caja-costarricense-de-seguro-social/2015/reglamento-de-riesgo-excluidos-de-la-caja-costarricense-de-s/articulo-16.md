@@ -1,0 +1,3 @@
+ARTÍCULO 16°: Del cobro y registro de atenciones relacionadas con la oposición
+Una vez interpuesto el reclamo y hasta tanto no se haya resuelto el mismo, la Dirección Médica del establecimiento de salud será la responsable de adoptar las medidas necesarias para garantizar que se suspendan las gestiones tendentes al cobro de las prestaciones objeto de reclamación.
+Adicionalmente, deberá adoptar las medidas necesarias para garantizar que se continúe con la prestación de servicios al lesionado, en resguardo de su derecho a la salud, atenciones que igualmente deberán ser registradas, pero cuya facturación y cobro quedará sujeta a la resolución final que sobre el reclamo se adopte.

@@ -1,0 +1,2 @@
+ARTÍCULO 2°. Del objeto
+El presente reglamento regula lo concerniente a la forma en la que la Caja cobra y presta servicios a personas lesionados que han sufrido siniestros, cuyo riesgo se encuentra excluido de las coberturas que ofrecen los seguros administrados por la Caja. Además, comprende lo relativo a las negociaciones que se desarrollen con las entidades autorizadas para la comercialización de las pólizas que cubren dichos riesgos, a efecto de definir los aspectos operativos de dicha prestación.
