@@ -1,0 +1,9 @@
+Artículo 21.- De los vehículos recolectores: Los vehículos recolectores deberán cumplir con las siguientes disposiciones:
+a) Portar la leyenda "TRANSPORTE EXCLUSIVO DE LODOS”.
+b) La cisterna del vehículo debe ser hermética, con el objeto de evitar fugas y derrames.
+c) Los accesorios, válvulas, tapas, mangueras, tapones, equipo de bombeo y otros deberán ser de materiales resistentes, apropiados para la actividad y deberán mantenerse en buen estado.
+d) Las operaciones de carga, transporte y descarga de lodos, deberán realizarse tomando las precauciones necesarias para evitar los derrames o fugas.
+e) Los proveedores del servicio de recolección y transporte deberán efectuar el lavado de los vehículos dentro de las instalaciones del proveedor del servicio de tratamiento de lodos. Las aguas producto del lavado deberán ser dispuestas cumpliendo con lo establecido en el Decreto Ejecutivo N° 33601 del 9 de agosto de 2006 “Reglamento de Vertido y Reuso de Aguas Residuales”.
+f) Portar la ficha de emergencia del Anexo 2 de este reglamento para el transporte de lodos la que deberá venir suscrita por el profesional responsable y autorizada por la Dirección de Protección al Ambiente Humano conforme a la normativa vigente. La ficha tendrá una vigencia de dos años.
+g) Los vehículos recolectores deberán contar con instalaciones físicas (plantel ó área) que permitan su estacionamiento y almacenamiento temporal de los lodos a fin de evitar problemas sanitarios a la población y de tránsito vehicular.
+h) La cisterna del vehículo debe contar con una única salida para la descarga de lodos ubicada en su parte trasera. Esta salida debe tener un diámetro mínimo de 75 mm y contar con un acople rápido dotado de un sistema de sello de seguridad. Este sello debe ser retirado única y exclusivamente por el proveedor del servicio de tratamiento, quién será responsable de su confección así como colocar uno nuevo posterior a la descarga.

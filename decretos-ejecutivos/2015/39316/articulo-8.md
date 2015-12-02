@@ -1,0 +1,1 @@
+Artículo 8.- Límites máximos permisibles para la disposición de biosólidos: Los límites contenidos en el presente capítulo son valores máximos permisibles y serán de acatamiento obligatorio por todo proveedor del servicio o aquellas actividades que cuenten con sistemas de tratamiento de aguas residuales y de lodos.

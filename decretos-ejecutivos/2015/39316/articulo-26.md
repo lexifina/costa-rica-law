@@ -1,0 +1,1 @@
+Artículo 26.- De la ausencia o mal uso de los sellos de seguridad. Se prohíbe el tránsito de vehículos recolectores de lodos y biosólidos que no cuenten con el respectivo sello de seguridad o que se encuentre en mal estado de conservación. En caso de destrucción o alteración de este dispositivo de seguridad se aplicarán las sanciones establecidas en la legislación vigente.

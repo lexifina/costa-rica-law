@@ -1,0 +1,1 @@
+Artículo 18.- Vigilancia Estatal. Como parte del proceso de control cruzado realizado por el Ministerio de Salud conforme al Reglamento de Vertido y Reúso de Aguas Residuales se deberá incluir dentro de los muestreos y análisis obligatorios que establece esa normativa, los correspondientes a los establecidos en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 4.- Obligación de tratar los lodos: Todo proveedor del servicio de recolección de lodos está en la obligación de tratarlos previo a su disposición final conforme a lo establecido en el presente reglamento.

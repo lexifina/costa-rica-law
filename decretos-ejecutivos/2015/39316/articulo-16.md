@@ -1,0 +1,1 @@
+Artículo 16.- Contenido del reporte de datos del manejo integral de lodos y biosólidos. Los proveedores del servicio de tratamiento deberán reportar la información que se detalla en el anexo 1 de este reglamento.

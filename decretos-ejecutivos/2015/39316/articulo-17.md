@@ -1,0 +1,1 @@
+Artículo 17.- Revisión de los reportes de datos presentados ante el Ministerio de Salud. En un plazo máximo de diez días hábiles a partir del recibo de los reportes de datos en el Ministerio de Salud el personal encargado debe efectuar su revisión, emitir las correspondientes Ordenes Sanitarias en caso de incumplimiento y brindar el seguimiento para su corrección.

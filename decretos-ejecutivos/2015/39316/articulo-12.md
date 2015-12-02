@@ -1,0 +1,3 @@
+CAPITULO III
+Muestreos y análisis.
+Artículo 12.- Toma de muestras. Los parámetros indicados en la Tabla 1 de este Reglamento para disposición en suelos y uso alterno de combustibles, deberán ser determinados en muestras de biosólidos y no en los lixiviados. En el caso de disposición de biosólidos en rellenos sanitarios los análisis deberán realizarse en el lixiviado extraído del biosólido de acuerdo con el procedimiento establecido en el “Reglamento sobre procedimiento para llevar a cabo la prueba de extracción para determinar constituyentes que hacen un residuo peligroso por su toxicidad al ambiente”.
