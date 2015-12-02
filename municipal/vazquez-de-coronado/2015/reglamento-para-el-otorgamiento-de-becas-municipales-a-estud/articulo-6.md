@@ -1,0 +1,3 @@
+Artículo 6. Sobre el proceso de análisis técnico de la recomendaciones. La Municipalidad designará a la oficina encargada del sistema, cuya asignación debe realizarse de acuerdo a la competencia técnica de los funcionarios para la realización de los estudios socioeconómicos necesarios para la concesión de los beneficios.
+Cada una de las referencias realizadas, ya sea por los centros educativos o por los Concejos de Distrito, debe ser estudiada por un profesional competente de previo al conocimiento del Concejo Municipal.
+La oficina encargada del sistema debe rendir un informe técnico que incluya las principales consideraciones de cada uno de los casos, el cual deberá comunicar al Concejo Municipal a más tardar la primera semana del mes de febrero.

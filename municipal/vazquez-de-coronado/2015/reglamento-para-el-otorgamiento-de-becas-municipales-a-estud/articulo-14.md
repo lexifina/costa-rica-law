@@ -1,0 +1,2 @@
+Artículo 14. Sobre la permanencia en el sistema educativo. La Administración Activa Municipal deberá constatar mensualmente, mediante constancia emitida por el centro educativo, la permanencia del estudiante dentro del sistema educativo. En los casos que el sistema educativo se encuentre fuera del cantón, es responsabilidad del beneficiario aportar mensualmente la correspondiente constancia.
+Para estudiantes universitarios, se deberá aportar comprobante de matrícula.

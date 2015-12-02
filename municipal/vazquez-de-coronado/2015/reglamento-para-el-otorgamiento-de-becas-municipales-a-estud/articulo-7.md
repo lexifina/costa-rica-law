@@ -1,0 +1,2 @@
+Artículo 7. Sobre la asignación formal de los beneficios. Es competencia del Concejo Municipal la designación formal de los beneficiarios. Bajo la consideración que la concesión del beneficio está sujeta a la revisión periódica por parte de la oficina encargada del sistema, la cual podrá realizar recomendaciones de revocatoria con base en criterios técnicos, en cuyo caso el propio Concejo Municipal decidirá sobre la continuidad del beneficio.
+Será posible la asignación de más de un beneficio por núcleo familiar en casos calificados y previo estudio técnico correspondiente.
