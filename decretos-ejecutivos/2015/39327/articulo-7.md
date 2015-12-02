@@ -1,0 +1,1 @@
+Artículo 7º. En razón de la presente declaratoria, se deberá implementar el Plan de Reforestación en la misma zona donde se produzca la corta y su respectivo mantenimiento, conforme las líneas de acción establecidas por el Sistema Nacional de Áreas de Conservación.

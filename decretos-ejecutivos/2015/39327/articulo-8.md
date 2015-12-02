@@ -1,0 +1,1 @@
+Artículo 8º. En la eventualidad de que la corta del recurso forestal existente sea aprovechable, deberá ser entregado al Ministerio de Educación Pública (MEP), siguiendo el procedimiento establecido en la Ley Forestal y cualquier otra norma particular referente.

@@ -1,0 +1,1 @@
+Artículo 6. La empresa contratista y el Consejo Nacional de Vialidad realizarán un Plan de Manejo Forestal, cuyas acciones promuevan la restauración o mejora ambiental de las áreas impactadas por la implementación y operación del Proyecto, con fin de atenuar sus efectos adversos y minimizar los impactos negativos, a efectos de recuperar las mismas especies desmontadas.
