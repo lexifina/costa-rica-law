@@ -1,0 +1,9 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional, en su calidad de tal y en funciones propias de la asamblea de accionistas de Popular Sociedad Administradora de Fondos de Inversión S.A., Popular Sociedad Agencia de Seguros S.A., Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A., y Popular Valores Puesto de Bolsa S.A, en sesiones 5306 y 5317 celebradas el 1 de septiembre y el 13 de octubre del 2015 respectivamente, aprobó el “Reglamento de Comités y Comisiones del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias”, el cual se leerá de la siguiente manera:
+REGLAMENTO DE COMITÉS Y COMISIONES DEL CONGLOMERADO FINANCIERO BANCO POPULAR Y DE DESARROLLO COMUNAL Y SUBSIDIARIAS
+CAPÍTULO I. DISPOSICIONES GENERALES
+Artículo 1. Fundamento y Alcance.
+Este Reglamento se emite con base en los artículos 24 incisos b) y c) y 25 de la Ley, y 23 y 25 del Reglamento de Gobierno Corporativo aprobado por CONASSIF y publicado en La Gaceta del 6 de julio del 2009 y regula la organización y funciones de los Comités y las Comisiones del Banco, y la organización de esos órganos colegiados en el caso de las Sociedades. Lo dispuesto por la Ley, la normativa externa al Conglomerado y las disposiciones especiales emitidas por la Junta Directiva Nacional prevalecen sobre este Reglamento.
+Toda regulación que en materia de organización de esos órganos colegiados emitan las Juntas Directivas de las Sociedades, está sometida a lo dispuesto en este Reglamento.
+Las disposiciones sobre la organización y funciones de los Comités de Apoyo y Comisiones, en especial las establecidas en el Capítulo III, prevalecen sobre el resto de este Reglamento.
+Este Reglamento es aplicable únicamente a los órganos colegiados creados por una Junta.

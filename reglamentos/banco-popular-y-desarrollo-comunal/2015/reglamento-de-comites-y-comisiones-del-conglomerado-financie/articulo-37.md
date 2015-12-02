@@ -1,0 +1,2 @@
+Sección X. De la Comisión de Nominación y Compensación.
+Artículo. 37. Integración y funciones. La integración y funciones de esta Comisión se rige por lo dispuesto en el artículo 24 del Reglamento sobre el Sistema de Evaluación del Desempeño basado en el Balanced Scorecard y en el Balance de Desarrollo Personal, aprobado por la Junta Directiva Nacional en sesión No. 5293 del 9 de julio de 2015 y publicado en La Gaceta del 11 de agosto del 2015.
