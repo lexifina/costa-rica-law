@@ -1,0 +1,44 @@
+N° 39312-COMEX-MAG
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO A.I. DE COMERCIO EXTERIOR Y
+EL MINISTRO DE AGRICULTURA Y GANADERÍA
+De conformidad con las facultades y atribuciones que les conceden los artículos 50, 140 incisos 3), 8),10), 18) Y 20); Y 146 de la Constitución Política; los artículos 4, 25,27 párrafo 1,28 párrafo 2 inciso b) de la Ley General de la Administración Pública, Ley N° 6227 del 02 de mayo de 1978; los artículos 1, 3, 5, 7, 15, 26, 30, 36, 37, 38, 39, 46, 52 y 55 del Protocolo al Tratado General de Integración Económica Centroamericana, Ley de Aprobación N° 7629 del 26 de septiembre de
+1996; y
+CONSIDERANDO:
+I.- Que el Consejo de Ministros de Integración Económica (COMIECO), mediante Resolución N° 338-2014 (COMIECO-EX) de fecha 17 de enero de 2014; en el marco del proceso de conformación de una Unión Aduanera Centroamericana, aprobó la "Directriz Sanitaria y Fitosanitaria para la Facilitacion del Comercio de Envíos y Mercancías Centroamericanas", en la forma en que aparece en el Anexo de dicha Resolución.
+II.- Que Costa Rica mediante el Decreto Ejecutivo N° 384) 5-COMEX-MAG de fecha 28 de febrero de 2014, publicó en el Alcance N° 20 del Diario Oficial La Gaceta N° 103 del 30 de mayo de 2014; la Resolución N° 338-2014 (COMIECO-EX) del Consejo de Ministros de Integración Económica.
+III.- Que el Consejo de Ministros de Integración Económica (COMIECO), mediante Resolución N° 361-2015 (COMIECO-LXXI) de fecha 23 de abril de 2015, aprobó modificaciones en el Anexo VI: "Listado de Productos Vegetales Categorizados" de la "Directriz Sanitaria y Fitosanitaria para la Facilitacion del Comercio de Envíos y Mercancías Centroamericanas", para cambiar la categoría de riesgo de la "Cebolla".
+IV.- Que el Consejo de Ministros de Integración Económica (COMLECO), mediante Resolución N° 364-2015 (COMTECO-LXXI) de fecha 23 de abril de 2015, aprobó modificaciones en el Anexo
+V: "Listado de Productos de Salud Animal" de la "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías Centroamericanas", para cambiar la categoría de riesgo de la "Leche UHT saborizada".
+V.- Que de acuerdo con lo anterior, es necesario modificar el Decreto Ejecutivo N° 38415- COMEX-MAG de fecha 28 de febrero de 2014; que publicó la Resolución N° 338-2014 (COMIECO-EX) de fecha 17 de enero de 2014 Y su Anexo: "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías Centroamericanas", conforme a lo dispuesto en el numeral 1 de la parte dispositiva de la Resolución N° 361-2Q 15 (COMlECO-LXXI) de fecha 23 de abril de 2015 Y el numeral 1 de la parte dispositiva de la Resolución N° 364-2015 (COMIECO-LXXI) de fecha 23 de abril de 2015, ambas del Consejo de Ministros de Integración Económica (COMIECO),
+VI.- Que en cumplimiento de lo indicado en dichas Resoluciones, se procede a su publicación, Por tanto;
+DECRETAN:
+Publicación de la Resolución N° 361-2015 (COMIECO-LXXI) de fecha 23 de abril de 2015 y
+de la Resolución N° 364-2015 (COMIECO-LXXI) de fecha 23 de abril de 2015:
+Modificaciones a la "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de
+Envíos y Mercancías Centroamericanas" emitida mediante la Resolución N° 338-2014
+(COMIECO-EX) de fecha 17 de enero de 2014.
+Artículo 1.- Publíquese la Resolución N° 361-2015 (COMIECO-LXXI) del Consejo de Ministros de Integración Económica (COMIECO), de fecha 23 de abril de 2015: Aprobación del cambio de categoría de riesgo para la "Cebolla", establecida en el Anexo VI: "Listado de Productos Vegetales Categorizados" de la "Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías Centroamericanas" emitida mediante la Resolución' N° 338-2014 (COMIECO-EX) de fecha 17 de enero de 2014; que a continuación se transcribe:
+RESOLUCION No. 361-2015 (COMIECO-LXXI)
+EL CONSEJO DE MINISTROS DE INTEGRACIÓN ECONÓMICA
+CONSIDERANDO:
+Que de conformidad con los artículos 38 y 39 del Protocolo al Tratado General de Integración Económica Centroamericana -Protocolo de Guatemala-, modificado por la Enmienda del 27 de febrero de 2002, el Consejo de Ministros de Integración Económica tiene bajo su competencia los asuntos de la Integración Económica Centroamericana y, como tal, le corresponde aprobar los actos administrativos del Subsistema Económico;
+Que de acuerdo con el artículo 15 de ese mismo instrumento jurídico regional, los Estados Parte tienen el compromiso de constituir una Unión Aduanera entre sus territorios, la que se alcanzará de manera gradual y progresiva, sobre la base de programas que se establezcan al efecto, aprobados por consenso;
+Que mediante la Resolución No. 338-2014 (COMIECO-EX) del 17 de enero de 2014, el Consejo de Ministros aprobó la Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías Centroamericanas (en adelante la Directriz), que tiene como objetivo simplificar la aplicación de las medidas sanitarias y fitosanitarias con el propósito de facilitar el comercio de envíos y mercancías, atendiendo consideraciones sobre el riesgo asociado a los mismos, así como a sistemas de producción, áreas o sitios de producción y establecimientos de transformación;
+Que la Directriz establece los criterios para la categorización de los envíos y mercancías según el nivel de riesgo, los requerimientos para la comercialización de las mismas de acuerdo con la categoría establecida, el formato del listado de mercancías, un procedimiento para la inclusión o exclusión de mercancías en el listado y para el cambio de categoría en el listado de mercancías;
+Que de conformidad con el numeral 7.1 de la Directriz, cuando la autoridad competente del Estado Parte interesado decida cambiar la categoría de un envío o mercancía, enviará la solicitud del cambio, con su respectiva justificación técnica, a las autoridades competentes de los Estados Parte para su análisis y resolución, con copia a la Secretaría Ejecutiva del Consejo Agropecuario Centroamericano (SECAC);
+Que las autoridades competentes de los Estados Parte a los que se les envía la solicitud deberán resolver y comunicar al Estado Parte solicitante en un plazo no mayor a 60 días calendario, después de recibida la solicitud, con copia a la SECAC. Si cumplido ese plazo un Estado Parte no respondiere, la solicitud de cambio de categoría se tendrá por aceptada, conforme lo establece el numeral 7.2 de la Directriz.
+Que al haberse cumplido con los requisitos que exigen los numerales 7.1 y 7.2 de la Directriz, y como resultado de los análisis correspondientes, la reunión de Viceministros elevó a este Foro la propuesta para trasladar la cebolla a otras categorías de riesgo y aclarar la descripción de dicho producto,
+POR TANTO:
+Con fundamento en lo dispuesto en los artículos 1, 3, 5, 7, 15, 36, 37, 38, 39, 46, 52 Y 55 del Protocolo al Tratado General de Integración Económica Centroamericana -Protocolo de Guatemala-; y, 19, 20, 20 Bis Y 32 del Reglamento de Organización y Funcionamiento de los Consejos: de Ministros de Integración Económica, y Sectorial de Ministros de Integración Económica,
+RESUELVE:
+1.Aprobar los cambios en el ANEXO VI LISTADO DE PRODUCTOS VEGETALES CATEGORIZADOS, de la Directriz Sanitaria y Fitosanitaria para la Facilitación del Comercio de Envíos y Mercancías Centroamericanas, de la siguiente manera:
+Código SAC | Nombre del Envío | Nombre Científico | Tipo de Presentación | Categorías
+A | B | C
+0712.20.90 | CEBOLLA | Allium Cepa | Cebolla deshidratada en hojuelas. Cebolla en polvo en envase de contenido neto inferior a 5 kg | | | X
+0703.10.11 0703.10.12 0703.10.13 0703.10.19 | CEBOLLA | Allium Cepa | Hortaliza de bulbo fresca, con o sin hojas, con o sin cáscaras exteriores frescas o secas, seleccionada y empacada para consumo. Hortaliza de bulbo seco, seleccionada, empacada para consumo. | X | |
+2. La presente Resolución entrará en vigencia 60 días después de la presente fecha y será publicada por los Estados Parte.
+3. No obstante lo establecido en el numeral anterior, la presente Resolución no entrará en vigor para Panamá, hasta que este Consejo emita el acto administrativo correspondiente.
+Guatemala, 23 de abril de 2015
+[imagen]
+La infrascrita Secretaria General de la Secretaría de Integración Económica Centroamericana (SIECA) CERTIFICA: Que la presente fotocopia y las dos (2) que le anteceden, impresas únicamente en su anverso, rubricadas y selladas con el sello de la SIECA, reproducen fielmente la Resolución No. 361-2015 (COMIECO-LXXI), adoptada por el Consejo de Ministros de Integración Económica, el veintitrés de abril de dos mil quince, de cuyos originales se reprodujeron. Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el cuatro de mayo de dos mil quince. -----------------------
