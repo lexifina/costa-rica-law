@@ -1,0 +1,1 @@
+Artículo 89.—Derechos y obligaciones no transferibles. Los derechos y obligaciones originados en el presente documento no son transferibles, negociables, ni pueden ser comerciadas o cedidas de ninguna forma.

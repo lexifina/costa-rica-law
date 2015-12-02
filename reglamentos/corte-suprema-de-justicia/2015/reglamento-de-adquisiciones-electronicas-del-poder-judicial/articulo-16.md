@@ -1,0 +1,2 @@
+Artículo 16.—Mejoras en las medidas de seguridad. La Administración de SIGA-PJ podrá introducir medidas de seguridad que considere necesarias para el uso del Sistema.
+Si alguna de estas medidas implica cambio o modificación de las condiciones normales de funcionamiento del Sistema, la Administración deberá comunicar los cambios a los proveedores registrados, con al menos cinco días hábiles de antelación a la implementación de las mejoras.

@@ -1,0 +1,1 @@
+Artículo 10.—Trazabilidad de SIGA-PJ. El sistema permite visualizar el estado en que se encuentran los procedimientos de contratación administrativa, así como los responsables en cada una de esas fases y el cumplimiento de los plazos establecidos para cada uno de ellos.

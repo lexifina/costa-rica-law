@@ -1,0 +1,1 @@
+Artículo 64.—Conflictos con terceros. El Poder Judicial no tendrá responsabilidad alguna por los inconvenientes o problemas internos propios del oferente, que se presenten en el procedimiento de envío de ofertas o bien entre el oferente y cualquier tercero autorizado por él a enviar las ofertas o documentos por medios electrónicos en cualquier parte del proceso.

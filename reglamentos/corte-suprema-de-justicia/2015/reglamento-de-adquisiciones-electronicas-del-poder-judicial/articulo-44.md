@@ -1,0 +1,1 @@
+Artículo 44.—Asistencia a los análisis y pruebas de las muestras. Todo oferente tiene derecho de asistir al acto de análisis de las muestras, cuya fecha y hora es determinada en el cartel, o bien, será comunicada de forma oportuna por la oficina que tramita.

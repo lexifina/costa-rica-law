@@ -1,0 +1,1 @@
+Artículo 74.—Renunciar al uso del sistema: En caso de que el proveedor quiera dar por terminado el uso de las adquisiciones electrónicas del Poder Judicial, deberá solicitarlo por escrito a través de su representante legal a la oficina que tramita, a fin de que se le desactiven los permisos otorgados.

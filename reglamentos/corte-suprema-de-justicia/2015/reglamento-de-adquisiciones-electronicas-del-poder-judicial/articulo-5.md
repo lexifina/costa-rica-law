@@ -1,0 +1,1 @@
+Artículo 5º—Uso de formularios y documentos electrónicos. A efectos de garantizar la agilidad, la estandarización y la simplicidad, los procedimientos se deberán llevar a cabo haciendo uso de los formularios y/o documentos electrónicos de que disponga el sistema SIGA-PJ para determinados actos.

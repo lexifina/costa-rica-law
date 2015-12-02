@@ -1,0 +1,1 @@
+Artículo 40.—Sobre la autenticidad del contenido de la oferta. Para todos los efectos, prevalecerá el contenido de la oferta y sus anexos de acuerdo a los registros en la oficina que tramita que demuestren que fue enviado o recibido utilizando los mecanismos de seguridad aplicados para los procedimientos de adquisiciones electrónicas, como son la firma digital.

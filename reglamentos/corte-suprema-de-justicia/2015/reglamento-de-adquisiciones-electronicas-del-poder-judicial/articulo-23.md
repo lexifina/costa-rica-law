@@ -1,0 +1,1 @@
+Artículo 23.—Contratación fuera de SIGA-PJ La Administración de SIGA-PJ tendrá la potestad de indicar cuales procedimientos se realizarán fuera del sistema y de ir incorporando paulatinamente los distintos tipos de procedimientos que se tramitan en la institución. Además, no será responsable de los trámites que se realicen fuera de los términos del presente Reglamento.

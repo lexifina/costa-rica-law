@@ -1,0 +1,3 @@
+CAPÍTULO X
+Obligaciones del proveedor
+Artículo 70.—Información de los proveedores registrados. Es obligación de los proveedores registrados mantener actualizada su información en el Sistema, asimismo, serán responsables de que la información que remitan al Poder Judicial y al Sistema sea veraz, completa, oportuna y exacta, todo lo anterior sin perjuicio de la responsabilidad administrativa, civil y penal que conlleve cualquier omisión o alteración en este sentido. Parte de la actualización, es seleccionar en el catálogo de bienes y servicios los artículos de los bienes o servicios de su giro comercial.

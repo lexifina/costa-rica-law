@@ -1,0 +1,2 @@
+Artículo 27.—Divulgación del cartel. El cartel, sus aclaraciones, modificaciones y prórrogas serán publicados en el portal del Departamento de Proveeduría del Poder Judicial y en La Gaceta en los casos en los que corresponda y agregados al expediente electrónico. Esto en detrimento de utilizar otros medios adicionales cuando se estime conveniente.
+Quedan excluidos de esta publicación los carteles que correspondan a procedimientos declarados confidenciales de seguridad calificada-, según la Ley de Contratación Administrativa, su Reglamento o la normativa especial aplicable.

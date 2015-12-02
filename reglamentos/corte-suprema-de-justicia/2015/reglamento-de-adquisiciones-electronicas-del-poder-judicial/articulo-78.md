@@ -1,0 +1,1 @@
+Artículo 78.—Administración del Catálogo de bienes y servicios. Corresponderá al Proceso de Administración de Bienes del Departamento de Proveeduría la administración centralizada del Catálogo de bienes y servicios. Esta función comprende la definición de políticas, procesos y garantías sobre el buen funcionamiento del Catálogo.

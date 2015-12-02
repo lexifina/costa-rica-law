@@ -1,0 +1,1 @@
+Artículo 7º—Responsable administrativo. El Departamento de Proveeduría y las Administraciones Regionales serán los responsables de administrar, mantener y actualizar la información proveniente de las adquisiciones electrónicas, con el apoyo de la Dirección de Tecnología de Información.

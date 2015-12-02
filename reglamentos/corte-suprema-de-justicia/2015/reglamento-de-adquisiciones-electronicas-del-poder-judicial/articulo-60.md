@@ -1,0 +1,1 @@
+Artículo 60.—Expediente electrónico: Se constituirá a partir de los diferentes documentos generados en el SIGA-PJ, los recibidos y enviados por medios electrónicos y para todos los efectos tendrá la misma validez jurídica y probatoria que el expediente físico tradicional.

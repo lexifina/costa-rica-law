@@ -1,0 +1,1 @@
+Artículo 28.—Requisitos de las ofertas electrónicas. Los proveedores podrán registrar sus ofertas electrónicas en el Sistema de Gestión de Proveedores a través de la página Web de la Proveeduría Judicial, siempre y cuando cumplan con los requerimientos exigidos por la normativa que regula la emisión de los certificados digitales y en el presente reglamento.

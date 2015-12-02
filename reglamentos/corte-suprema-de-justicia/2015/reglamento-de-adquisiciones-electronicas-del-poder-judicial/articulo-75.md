@@ -1,0 +1,1 @@
+Artículo 75.—Cumplimiento del Reglamento del Registro de Proveedores: Además, de lo mencionado en este Reglamento el proveedor deberá seguir acatando lo dispuesto en el Reglamento del Registro de Proveedores en lo que no se oponga al presente reglamento.

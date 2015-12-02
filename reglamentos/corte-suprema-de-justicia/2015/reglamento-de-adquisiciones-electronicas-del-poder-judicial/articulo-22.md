@@ -1,0 +1,4 @@
+CAPÍTULO V
+Responsabilidad del administrador de SIGA-PJ
+Artículo 22.—Administrador del sistema. La administración de las adquisiciones electrónicas estará a cargo del Departamento de Proveeduría, con el apoyo técnico de la Dirección de Tecnología de Información. Ambas dependencias del Poder Judicial deberán velar porque los procedimientos cumplan con todos los requisitos que en materia de seguridad señala el presente Reglamento.
+La administración de SIGA-PJ garantiza la integridad, la inalterabilidad y el registro de fecha y hora de los documentos electrónicos que se tramiten en este Sistema, así como la identidad del emisor por medio del uso de la firma digital y/o registro en la bitácora de transacciones. Así mismo, deberá establecer los mecanismos que garanticen la seguridad de los datos y la información que se gestione en el Sistema.

@@ -1,0 +1,1 @@
+Artículo 65.—Negociación fuera del Reglamento de Adquisiciones Electrónicas. El Poder Judicial no se hará responsable de ninguna negociación entre terceros fuera de los términos del presente documento y sus modificaciones para participar en un procedimiento de contratación, en demérito de los intereses de los potenciales oferentes.

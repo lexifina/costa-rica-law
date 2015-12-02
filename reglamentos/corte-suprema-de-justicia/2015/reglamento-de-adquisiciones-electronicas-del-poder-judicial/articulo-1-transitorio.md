@@ -1,0 +1,1 @@
+Transitorio primero. La Administración contará con un plazo de seis meses a partir de la publicación del presente Reglamento para finiquitar los detalles correspondientes y garantizar la consulta en la Página Web del Departamento de Proveeduría del expediente electrónico.

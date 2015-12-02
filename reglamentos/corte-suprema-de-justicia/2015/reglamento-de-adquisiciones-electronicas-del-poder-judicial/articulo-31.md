@@ -1,0 +1,1 @@
+Artículo 31.—Ingreso de la oferta. Las ofertas deberán ser presentadas dentro del plazo previsto para tal efecto en el cartel, pero permanecerán inaccesibles para la administración y para otros proveedores hasta la hora y la fecha señaladas en el cartel para la apertura de ofertas.

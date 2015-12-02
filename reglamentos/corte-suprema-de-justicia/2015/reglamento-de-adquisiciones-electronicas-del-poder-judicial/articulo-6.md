@@ -1,0 +1,2 @@
+Artículo 6º—Uso de firma digital. Todos los actos jurídicos que se realicen por medios electrónicos deben estar respaldados por una firma digital certificada, emitida al amparo de lo dispuesto en la Ley de Certificados, Firmas Digitales y Documentos Electrónicos y su Reglamento.
+Para que los oferentes puedan enviar ofertas electrónicas deberán poseer un Certificado Digital válido y vigente, así como cumplir con los requisitos y procedimiento que establece el presente reglamento.

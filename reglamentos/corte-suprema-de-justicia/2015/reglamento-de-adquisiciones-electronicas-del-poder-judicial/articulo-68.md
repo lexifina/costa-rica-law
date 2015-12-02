@@ -1,0 +1,1 @@
+Artículo 68.—Contenido de los certificados digitales. El contenido de los certificados digitales será definido por la Autoridad Certificadora y deberá responder a formatos y estándares reconocidos internacionalmente, fijados por su reglamento.

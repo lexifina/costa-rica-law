@@ -1,0 +1,2 @@
+Artículo 32.—Apertura de ofertas. Las ofertas permanecerán inaccesibles hasta la fecha y la hora señalada para el acto de apertura; solo hasta en ese momento pasarán a estar disponibles para todas las personas interesadas, una vez que el Departamento de Proveeduría registre y genere un acta o inventario (o ambas) de las ofertas recibidas.
+Para el Acto de Apertura los oferentes podrán efectuar observaciones dentro del plazo establecido en el cartel para tal efecto, estas se consignarán en el acta de apertura y serán valoradas cuando corresponda.

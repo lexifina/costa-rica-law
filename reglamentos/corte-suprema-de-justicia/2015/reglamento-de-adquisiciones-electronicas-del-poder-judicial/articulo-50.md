@@ -1,0 +1,1 @@
+Artículo 50.—Impresión de documentos y confección del expediente. Para los procedimientos de adquisiciones electrónicas, el Poder Judicial podrá hacer una impresión de todos y cada uno de los documentos que reciba por esta vía y confeccionar, con los mismos y con los que ella misma produzca, un expediente de respaldo de la respectiva contratación.

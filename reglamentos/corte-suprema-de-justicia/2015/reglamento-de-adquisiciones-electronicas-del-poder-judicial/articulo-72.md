@@ -1,0 +1,1 @@
+Artículo 72.—Autorización para enviar documentos. Se reconocerá únicamente como autorizado para enviar documentos electrónicamente en representación del oferente, aquellas personas que hayan sido así facultadas expresamente por el oferente en el Registro de Proveedores del Poder Judicial. Las acciones u omisiones del representante serán responsabilidad del proveedor.

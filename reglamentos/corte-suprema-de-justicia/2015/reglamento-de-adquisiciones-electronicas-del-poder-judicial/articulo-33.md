@@ -1,0 +1,1 @@
+Artículo 33.—Contenido de las ofertas. La información técnica o complementaria y los manuales de uso expedidos por el fabricante, así como los demás documentos que acompañan la oferta, deberán adjuntarse en forma electrónica. Cada documento no debe superar los 3 MB de tamaño.

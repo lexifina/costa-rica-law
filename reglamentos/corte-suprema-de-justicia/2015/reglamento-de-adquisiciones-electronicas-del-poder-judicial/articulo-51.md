@@ -1,0 +1,1 @@
+Artículo 51.—Registro de prohibiciones. Tanto la Administración como los proveedores, deberán registrar y mantener actualizada la información de las contrataciones y Registro de Proveedores, respecto a las personas físicas y jurídicas cubiertas por el Régimen de Prohibiciones, para lo cual deberán cumplir con los procedimientos establecidos para estos casos.

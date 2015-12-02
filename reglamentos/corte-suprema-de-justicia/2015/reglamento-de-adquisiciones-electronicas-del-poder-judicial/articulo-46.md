@@ -1,0 +1,1 @@
+Artículo 46.—Custodia de las muestras adjudicadas. Las muestras del oferente que resulte adjudicatario quedarán en custodia de la oficina que tramita para comprobar la correcta ejecución del contrato y una vez finiquitado éste a entera satisfacción, se procederá con la devolución de la forma prevista en la cláusula anterior, del presente reglamento.

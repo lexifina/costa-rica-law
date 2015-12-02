@@ -1,0 +1,1 @@
+Artículo 63.—Verificación de documentos. El Poder Judicial se reserva el derecho de corroborar la veracidad de la información y/o los documentos electrónicos aportados por el oferente o cualquier otro detalle que considere pertinente.

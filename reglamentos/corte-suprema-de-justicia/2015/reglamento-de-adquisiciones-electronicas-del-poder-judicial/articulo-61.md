@@ -1,0 +1,1 @@
+Artículo 61.—Resolución de procedimientos. Cualquier asunto que se presente en relación con la tramitación de procedimientos de contratación administrativa que no se encuentre previsto en el presente documento, será resuelto en conjunto por la jefatura del Departamento de Proveeduría y la jefatura del Proceso de Adquisiciones, en estricto apego al ordenamiento jurídico vigente.

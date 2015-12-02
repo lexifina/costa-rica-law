@@ -1,0 +1,1 @@
+Artículo 84.—Impugnaciones en vía judicial. Tratándose de impugnaciones en sede contencioso-administrativa contra los actos emitidos en los procedimientos de contratación administrativa tramitados por el Poder Judicial, los expedientes administrativos podrán ser consultados por la autoridad judicial mediante el sistema electrónico del Poder Judicial (SIGA-PJ).

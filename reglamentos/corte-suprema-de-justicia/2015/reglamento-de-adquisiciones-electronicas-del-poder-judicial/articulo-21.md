@@ -1,0 +1,1 @@
+Artículo 21.—Modificaciones realizadas al Catálogo de bienes y servicios del Poder Judicial. Los cambios realizados por el Proceso de Administración de Bienes al Catálogo de bienes y servicios del Poder Judicial, se muestran en tiempo real en el Sistema de Gestión de Proveedores.

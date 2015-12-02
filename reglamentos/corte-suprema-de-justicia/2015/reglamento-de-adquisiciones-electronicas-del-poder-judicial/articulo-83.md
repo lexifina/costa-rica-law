@@ -1,0 +1,2 @@
+Artículo 83.—Trámites presentados ante la Contraloría General de la República. Las solicitudes de autorización y los recursos de objeción al cartel y de apelación contra el acto de adjudicación cuya resolución corresponda a la Contraloría General de la República, se interpondrán y serán resueltos en los sistemas de que disponga el órgano contralor.
+El refrendo será tramitado en los sistemas de que disponga el órgano contralor.

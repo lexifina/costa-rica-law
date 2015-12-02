@@ -1,0 +1,2 @@
+Artículo 19.—Designación de servidores. La oficina que tramita deberá contar con servidores y servidoras autorizados y autorizadas para realizar las transacciones por medio electrónico, según los perfiles establecidos. Dichos servidores y servidoras serán responsables de velar por la veracidad y la confiabilidad de la información que emiten y de atender oportunamente las gestiones que se reciban por medio del Sistema.
+El Sistema registrará todas las transacciones de las gestiones electrónicas que se reciban y que emitan las personas usuarias.

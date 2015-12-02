@@ -1,0 +1,1 @@
+Artículo 53.—Cómputo de plazos. Para efectos del administrado los plazos empiezan a correr a partir del día hábil siguiente de la notificación a todas las partes o la publicación que corresponda. El oferente se tendrá por notificado en el momento en que el sistema registre la confirmación del envío.

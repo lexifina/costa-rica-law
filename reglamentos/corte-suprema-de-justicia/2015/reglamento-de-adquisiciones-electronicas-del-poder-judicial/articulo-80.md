@@ -1,0 +1,1 @@
+Artículo 80.—Pre-registro de Proveedores en Línea: Los potenciales oferentes que no estén inscritos en el Registro de Proveedores institucional, pueden realizar su preinscripción mediante la plataforma del Sistema de Gestión de Proveedores, con lo cual obtendrán la clave respectiva para el acceso al sistema y registro de sus ofertas.

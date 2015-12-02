@@ -1,0 +1,1 @@
+Artículo 14.—Requerimientos técnicos. Las personas físicas y jurídicas, así como otras instituciones que deseen hacer uso de SIGA-PJ, deberán cumplir los requerimientos técnicos que defina la Dirección de Tecnología de Información; además, serán responsables del mantenimiento de los medios que adquieran e instalen para la utilización del Sistema.

@@ -1,0 +1,2 @@
+Artículo 54.—Condiciones para ofertar mediante SIGA-PJ. Los proveedores registrados deberán aceptar las políticas de uso, disponer de los certificados de firma digital emitidos por una autoridad certificadora debidamente registrada, cumplir los requisitos que establece el presente Reglamento y realizar todas sus actuaciones únicamente por medio electrónico, salvo los casos de excepción al uso del Sistema, estipulados en el presente Reglamento.
+Será responsabilidad del proveedor registrado la obtención oportuna de la firma digital certificada y el uso adecuado de esta.

@@ -1,0 +1,3 @@
+CAPÍTULO XII
+Trámite de autorizaciones, recursos y refrendos
+Artículo 82.—Trámite de recursos interpuestos ante la oficina que tramita. Las impugnaciones que procedan contra los actos emitidos en las adquisiciones electrónicas y cuya resolución es competencia del Poder Judicial, deberán ser planteadas por el proveedor registrado, y tramitadas y resueltas por Poder Judicial utilizando los formularios electrónicos disponibles. Para ello se deben observar los procedimientos y los plazos establecidos en la Ley de Contratación Administrativa y su Reglamento, así como cualquier otra normativa especial aplicable. Lo anterior no exime a la Administración de registrar la información de forma electrónica.
