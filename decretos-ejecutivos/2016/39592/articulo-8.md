@@ -1,0 +1,1 @@
+Artículo 8. Disposiciones Generales. En general, los contenidos de todas las publicaciones, enfoques y recursos informativos que se publiquen en los sitios oficiales del Ministerio de Ciencia, Tecnología y Telecomunicaciones, serán coordinados por la Unidad de Comunicación Institucional, según lo establecido en los procedimientos existentes para estas actividades.

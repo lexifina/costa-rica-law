@@ -1,0 +1,1 @@
+Artículo 11. Implementación. La implementación de la presente política de comunicación institucional, se realizará a partir de su comunicación oficial, realizada el día 02 de diciembre de 2015. Los materiales existentes o en producción serán utilizados hasta agotar existencia.

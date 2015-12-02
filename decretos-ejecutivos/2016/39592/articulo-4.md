@@ -1,0 +1,1 @@
+Artículo 4. Definición. La presente política de comunicación institucional se define como aquellos lineamientos de comunicación pública, que durante los procesos de la gestión estratégica desarrolle el Ministerio de Ciencia, Tecnología y Telecomunicaciones, en el ámbito de sus competencias.
