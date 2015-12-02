@@ -1,4 +1,10 @@
-Artículo 127° Imágenes de Mamas
-Requisitos específicos:
-a. Estar debidamente inscrito como Especialista en Radiología e Imágenes Médicas, en el Colegio de Médicos y Cirujanos de Costa Rica.
-b. Aprobación de un (1) años en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Imágenes de Mamas, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+Artículo 127°- Subespecialidades de la Radiología e Imágenes Médicas
+Se reconocen como Subespecialidades de la Radiología e Imágenes Médicas las siguientes:
+a. Imágenes de Mamas.
+b. Neuroradiología.
+c. Oncoradiología.
+d. Osteomuscular.
+e. Radiología Intervencionista.
+f. Radiología Pediátrica.
+g. Radiología Torácica.
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 126 al 127)

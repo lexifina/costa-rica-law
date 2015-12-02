@@ -1,4 +1,5 @@
-Artículo 90°- Neurocirugía Pediátrica
-Requisitos específicos:
-a. Estar debidamente inscrito como Especialista en Neurocirugía, en el Colegio de Médicos y Cirujanos de Costa Rica.
-b. Aprobación de dos (2) años en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Neurocirugía Pediátrica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+Artículo 90°- Subespecialidades de la Neurocirugía
+Se reconocen como subespecialidades de la Neurocirugía las siguientes:
+a. Neurocirugía Pediátrica.
+b. Neuro-Oncología.
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 89 al 90)

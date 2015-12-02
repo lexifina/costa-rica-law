@@ -1,4 +1,8 @@
-Artículo 83°- Ginecología Endocrinológica
-Requisitos específicos:
-a. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, en el Colegio de Médicos y Cirujanos de Costa Rica.
-b. Aprobación de dos (2) años en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Ginecología Endocrinológica en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+Artículo 83.—Subespecialidades de la Ginecología y Obstetricia. Se reconocen como subespecialidades de la Ginecología y Obstetricia a las siguientes:
+a. Ginecología Endocrinológica.
+b. Ginecología Oncológica.
+c. Medicina Materno Fetal.
+d. Medicina Reproductiva.
+e. Ginecología Urológica.
+(Así reformado mediante sesión ordinaria N° 2015-08-12 del 12 de agosto del 2015)
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 82 al 83)

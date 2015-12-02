@@ -1,4 +1,5 @@
-Artículo 78°.- Cirugía Gastroenterológica
-Requisitos específicos:
-a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos de Costa Rica.
-b. Aprobación de dos (2) años en un programa de estudios posgrado (residencia médica) en la Especialidad de Cirugía Gastroenterológica, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio.
+Artículo 78°.- Subespecialidades de la Cirugía General
+Se reconocen como Subespecialidades de la Cirugía General las siguientes:
+a. Cirugía Gastroenterológica.
+b. Coloproctología.
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 77 al 78)

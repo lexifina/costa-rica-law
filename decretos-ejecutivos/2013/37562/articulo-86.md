@@ -1,5 +1,6 @@
-Artículo 86°- Medicina Reproductiva
+Artículo 86°- Medicina Materno Fetal
 Requisitos específicos:
-a. Se reconocen como sinónimos de esta subespecialidad los siguientes términos: Biología de la Reproducción Humana, Endocrinología Reproductiva e Infertilidad y Endocrinología Reproductiva Ginecológica e Infertilidad.
+a. Se reconoce como sinónimos de esta subespecialidad el siguiente término: Perinatología.
 b. Estar debidamente inscrito como Especialista en Ginecología y Obstetricia, ante el Colegio de Médicos y Cirujanos de Costa Rica.
-c. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Medicina Reproductiva, en un Hospital de Tercer Nivel ó Centro de Fertilización, perteneciente o adscrito a una Universidad de reconocido prestigio. Este programa debe contemplar y garantizar como mínimo aspectos clínicos en las áreas de Andrología (endocrinología e infertilidad masculina), Endocrinología, Genética, Biología Reproductiva. Además deberá contar con estudios complementarios en Cirugía Reproductiva, Ultrasonido y Consejería Psicológica.
+c. Aprobación de dos (2) años en un programa de estudios de posgrado (residencia médica) en la Subespecialidad de Medicina Materno Fetal, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio.
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 85 al 86)

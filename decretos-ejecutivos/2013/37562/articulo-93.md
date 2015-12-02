@@ -1,5 +1,9 @@
-Artículo 93°-Cirugía Oculoplástica, Vía Lagrimal y Órbita. Se reconoce como sinónimo de la Subespecialidad en Cirugía Oculoplástica, Vía Lagrimal y Órbita el siguiente término: Cirugía Plástica y Reconstructiva Oftalmológica.
-Requisitos específicos:
-a. Estar debidamente inscrito como Especialista en Oftalmología, en el Colegio de Médicos y Cirujanos de Costa Rica.
-b. Aprobación de un (1) año en un programa de estudios posgrado (residencia médica) en la Subespecialidad en Cirugía Oculoplástica, Vía Lagrimal y Órbita, en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
-(Así reformado en sesión ordinaria N° 2015-11-25 del 25 de noviembre de 2015)
+Artículo 93°- Subespecialidades de la Oftalmología
+Se reconocen como subespecialidades de la Oftalmología las siguientes:
+a. Cirugía Oculoplástica, Vía Lagrimal y Órbita.
+b. Oftalmología Pediátrica.
+c. Retina y Vítreo.
+d. Uveítis.
+e. Glaucoma
+(Así adicionada la subespecialidad anterior mediante sesión N° 2013-II-27 de 27 de noviembre de 2013)
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 92 al 93)

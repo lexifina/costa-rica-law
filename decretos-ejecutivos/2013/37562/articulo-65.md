@@ -12,7 +12,7 @@ Clínica y Terapia del Dolor.
 Subespecialidades de la Cardiología Artículo No. 73
 Cardiología Intervencionista y Hemodinamia.
 Cardiología Pediátrica.
-Electrofisiología Cardiaca.
+Electrofisiología Cardiaca. Subespecialidad de la Dermatopatología Artículo 66 (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015)
 Subespecialidades de la Cirugía General Artículo No. 77
 Cirugía Gastroenterológica. | Artículo No. 78
 Coloproctología. | Artículo No. 79
@@ -76,4 +76,5 @@ Subespecialidades de la Urología. Artículo No. 136
 Urología Pediátrica Ginecología Urológica (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2015-08-12 del 12 de agosto de 2015) | Artículo No. 137
 Subespecialidad de la Neurocirugía, Neurología y Artículo No. 138 Radiología e Imágenes Médicas.
 Neuroradiología Quirúrgica Endovascular | Artículo No. 139
+| |
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39288 del 29 de julio del 2015)

@@ -1,3 +1,6 @@
-Artículo 80°.- Subespecialidades de la Cirugía Pediátrica
-Se reconocen como Subespecialidades de la Cirugía Pediátrica las siguientes:
-a. Oncología Quirúrgica Pediátrica.
+Artículo 80°.- Coloproctología
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un (1) año en un programa de estudios posgrado (residencia medica) en la Especialidad en Coloproctología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39288 del 29 de julio del 2015)
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 79 al 80)
