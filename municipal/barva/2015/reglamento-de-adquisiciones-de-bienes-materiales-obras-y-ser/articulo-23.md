@@ -1,0 +1,1 @@
+Artículo 23.—Del registro de bienes, materiales y activos. La dependencia municipal competente procederá al registro de los bienes, materiales y activos adquiridos por la Municipalidad en los procesos de contratación administrativa, de tal manera que se tenga información veraz, oportuna y completa de los mismos.

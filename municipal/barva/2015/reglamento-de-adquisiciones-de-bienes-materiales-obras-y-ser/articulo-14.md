@@ -1,0 +1,1 @@
+Artículo 14.—Controles y custodia de documentos. La Proveeduría deberá establecer los controles de las operaciones y de los documentos relativos a compras de los bienes y servicios. De igual forma deberá mantener en custodia los documentos de las contrataciones tramitadas
