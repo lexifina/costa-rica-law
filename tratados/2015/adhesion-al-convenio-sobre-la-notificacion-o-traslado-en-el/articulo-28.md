@@ -1,0 +1,4 @@
+Artículo 28
+Todo Estado no representado en la Décima Sesión de la Conferencia de La Haya de Derecho Internacional Privado podrá adherirse a este Convenio después de su entrada en vigor conforme a lo dispuesto en el primer párrafo del Artículo 27. El instrumento de adhesión será depositado en el Ministerio de Asuntos Exteriores de los Países Bajos.
+El Convenio entrará en vigor para dicho Estado sólo si no hay oposición por parte de algún Estado que hubiera ratificado el Convenio antes de dicho depósito, notificada al Ministerio de Asuntos Exteriores de los Países Bajos en un período de seis meses a partir de la fecha cuando ese Ministerio hubiera notificado esa adhesión.
+En caso de no haber oposición, el Convenio entrará en vigor para el Estado adherente el primer día del mes que siga al vencimiento del último de los plazos que se indican en el párrafo anterior.
