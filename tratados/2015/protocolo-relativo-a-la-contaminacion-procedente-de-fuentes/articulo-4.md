@@ -1,0 +1,7 @@
+Artículo IV
+Anexos
+1. Las Partes Contratantes deberán abordar las categorías de fuentes, actividades y contaminantes asociados que son causa de preocupación numeradas en el Anexo I de este Protocolo mediante la preparación y aplicación progresiva de anexos adicionales para aquellas categorías de fuentes, actividades y contaminantes asociados que son causa de preocupación, en que las Partes Contratantes consideren adecuado adoptar medidas a nivel regional o subregional. En dichos anexos, según proceda, se incluirán entre otros:
+(a) límites de efluentes y emisiones y/o prácticas de manejo basadas en los factores identificados en el Anexo II de este Protocolo; y
+(b) plazos para el cumplimiento de los límites, las prácticas de gestión y las medidas acordados por las Partes Contratantes.
+2. De conformidad con las disposiciones de los anexos de los cuales sea parte, cada Parte Contratante adoptará las medidas necesarias para prevenir, reducir y controlar la contaminación de la zona de aplicación de la Convención procedente de las categorías de fuentes, actividades y contaminantes que se señalan en los anexos distintos a los Anexos I y II de este Protocolo.
+3. Las Partes Contratantes también podrán elaborar los anexos adicionales que consideren adecuados, incluso uno relativo a los criterios sobre la calidad del agua para ciertos contaminantes prioritarios identificados en el Anexo I de este Protocolo.

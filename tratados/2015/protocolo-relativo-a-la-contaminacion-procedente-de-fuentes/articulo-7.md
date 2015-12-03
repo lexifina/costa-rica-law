@@ -1,0 +1,6 @@
+Artículo VII
+Evaluación del impacto ambiental
+1. Las Partes Contratantes deberán formular y adoptar directrices relativas a las evaluaciones del impacto ambiental, y examinarán y actualizarán esas directrices según proceda.
+2. Cuando una Parte Contratante tenga razones fundadas para creer que una actividad terrestre prevista sobre su territorio o sujeta a su control regulatorio de conformidad con su legislación, o que una modificación prevista de dicha actividad pueda causar una contaminación sustancial o cambios importantes y nocivos en la zona de aplicación del Convenio, dicha Parte Contratante deberá examinar, en la medida de lo posible, los efectos potenciales de dicha actividad en la zona de aplicación del Convenio, recurriendo a medios como la evaluación del impacto ambiental.
+3. Las decisiones que adopten las autoridades gubernamentales competentes en relación con las actividades terrestres mencionadas en el párrafo 2 arriba mencionado, deberán tener en cuenta cualesquiera de esos exámenes.
+4. De conformidad con sus leyes y reglamentos nacionales, cada Parte Contratante velará por que las personas afectadas participen en todo proceso de examen que se lleve a cabo de acuerdo con el párrafo 2 arriba mencionado y, cuando sea factible, publicarán o difundirán la información pertinente obtenida en ese examen.
