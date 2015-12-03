@@ -22,3 +22,4 @@ Reglamento autónomo de las relaciones de servicio entre la Autoridad Regulador 
 | 7 | 2013-05-13 | Reglamento 38 (2013-05-13) |
 | 8 | 2013-08-26 | Reglamento 64 (2013-08-26) |
 | 9 | 2014-06-23 | Reglamento 35 (2014-06-23) |
+| 10 | 2015-12-03 | Reglamento 60 (2015-12-03) |
