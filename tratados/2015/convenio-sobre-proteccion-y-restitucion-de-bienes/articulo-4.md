@@ -1,0 +1,4 @@
+ARTÍCULO 4
+Cada Parte deberá informar a la otra de los robos de bienes culturales que tenga conocimiento y de la metodología empleada, cuando exista razón para creer que dichos objetos serán probablemente introducidos en el comercio internacional.
+Con ese propósito, y en base a la investigación policial realizada para tal efecto, deberá presentarse a la otra Parte suficiente información descriptiva que permita identificar los objetos e igualmente a quienes hayan participado en el robo, venta, importación/exportación ilícita y/o conductas delictivas conexas; así como esclarecer el modo operativo empleado por los delincuentes.
+Asimismo, las partes difundirán entre sus respectivas autoridades aduaneras y policiales de puertos, aeropuertos y fronteras, información relativa a los bienes culturales que hayan sido materia de robo y tráfico ilícito, con el fin de facilitar su identificación y la aplicación de las medidas cautelares y coercitivas correspondientes.
