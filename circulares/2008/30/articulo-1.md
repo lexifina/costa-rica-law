@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR Nº 030-2008
+(Esta circular fue derogada mediante sesión N° 100-15 del 12 de noviembre del 2015 aprobada mediante circular N° 231-2015 del 3 de diciembre del 2015, publicada en el Boletín Judicial N° 14 del 21 de enero del 2016)
 ASUNTO: Reiteración de la Circular Nº 001-08 sobre los alcances del Estudio para determinar buenas prácticas y otras recomendaciones con el fin de fortalecer el funcionamiento de las Unidades de Localización, Citación y Presentación de Personas, publicada en el Boletín Judicial Nº 41 del 27 de febrero de 2007.
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:

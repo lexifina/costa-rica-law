@@ -14,3 +14,4 @@ Reiteración de la Circular Nº 001-08 sobre los alcances del Estudio para deter
 | --- | --- | --- |
 | 1 | 2008-02-18 | la propia norma |
 | 2 | 2013-10-23 | Circular 184 (2013-10-23) |
+| 3 | 2015-12-03 | Circular 231 (2015-12-03) |
