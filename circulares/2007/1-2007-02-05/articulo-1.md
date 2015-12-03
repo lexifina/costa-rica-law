@@ -1,4 +1,6 @@
+(Derogado)
 CIRCULAR Nº 001-2007
+(Esta circular fue derogada mediante sesión N° 100-15 del 12 de noviembre del 2015 aprobada mediante circular N° 231-2015 del 3 de diciembre del 2015, publicada en el Boletín Judicial N° 14 del 21 de enero del 2016)
 (Esta norma fue reiterada mediante circular N° 001 -2007 del 5 de febrero del 2005 y publicada en el Boletín Judicial N° 41 del 27 de febrero del 2007)
 (Esta norma fue reiterada mediante circular N° 124 -10 del 10 de setiembre de 2010 y publicada en el Boletín Judicial N° 191 del 1 de octubre de 2010)
 (Esta circular fue reiterada mediante circular N° 020 del 27 de enero de 2010 y publicada en el Boletín Judicial N° 28 del 10 de febrero de 2010)

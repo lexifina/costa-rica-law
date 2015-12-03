@@ -13,3 +13,4 @@ Reiteración de los alcances del Estudio para determinar buenas prácticas y otr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-02-27 | la propia norma |
+| 2 | 2015-12-03 | Circular 231 (2015-12-03) |
