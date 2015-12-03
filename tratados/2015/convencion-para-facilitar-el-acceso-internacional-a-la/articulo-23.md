@@ -1,0 +1,1 @@
+Artículo 23. A menos de que los Estados interesados convinieren otra cosa, los acuerdos adicionales a los Convenios de 1905 y de 1954 celebrado por los Estados contratantes se considerarán igualmente aplicables al presente Convenio en la medida en que sean compatibles con éste.

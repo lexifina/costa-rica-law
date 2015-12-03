@@ -1,0 +1,3 @@
+CAPÍTULO II- CAUTIO JUDICATUM SOLVI Y EXEQUATUR DE LAS CONDENAS EN COSTAS
+Artículo 14. No podrá exigirse fianza ni depósito de clase alguna de las personas físicas o jurídicas que tengan su residencia habitual en uno de los Estados contratantes y que sean demandantes o intervinientes ante los tribunales de otro Estado contratante por el solo motivo de su condición de extranjero o de no estar domiciliados o ser residentes en el Estado en que se hubiere iniciado el procedimiento.
+La misma norma se aplicará a cualquier pago que pueda exigirse para garantizar las costas judiciales a los demandantes o intervinientes.

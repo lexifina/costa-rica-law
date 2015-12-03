@@ -1,0 +1,2 @@
+Artículo 3.Cada Estado Contratante designará una Autoridad Central encargada de recibir las solicitudes de asistencia judicial a la Autoridad Central competente del Estado requerido.
+Los Estados federales y los Estados en que estén en vigor varios sistemas jurídicos podrán designar varias Autoridades Centrales. En caso de no ser competente la Autoridad Central a la que se presenta la solicitud, ésta la transmitirá a la Autoridad Central competente del mismo Estado contratante.

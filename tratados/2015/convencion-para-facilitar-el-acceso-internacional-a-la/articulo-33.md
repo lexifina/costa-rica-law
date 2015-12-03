@@ -1,0 +1,2 @@
+Artículo 33. Cualquier Estado, en el momento de la firma, ratificación, aceptación, aprobación o adhesión, declara que el Convenio se extenderá a todos los territorios a los que representa en el plano internacional o a uno o varios de ellos. Esta declaración surtirá efecto en el momento en que el Convenio entre en vigor con respecto a dicho Estado.
+La declaración, así como cualquier ampliación ulterior, será notificada al Ministerio de Relaciones Exteriores del Reino de los Países Bajos.

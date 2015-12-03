@@ -1,0 +1,5 @@
+Artículo 16. Cada Estado contratante designará una o varias autoridades encargadas de transmitir las solicitudes de exequátur a que se refiere el artículo 15 a la Autoridad Central competente del Estado requerido.
+Cada Estado Contratante designará una Autoridad Central encargada de recibir las solicitudes y de realizar las diligencias pertinentes para que se adopte una decisión definitiva respecto a ellas.
+Los Estados federales y los Estados en que estén en vigor varios sistemas jurídicos podrán designar varias Autoridades Centrales. En caso de no ser competente la Autoridad Central a la que se presente la solicitud, ésta la transmitirá a la Autoridad Central competente del Estado requerido.
+Estas solicitudes se transmitirán sin intervención de otra autoridad, sin perjuicio de que pueda utilizarse la vía diplomática.
+A menos que el Estado requerido haya declarado su oposición, las disposiciones anteriores no serán obstáculo para que la persona en cuyo favor se haya dictado la condena en costas presente la solicitud de exequátur.

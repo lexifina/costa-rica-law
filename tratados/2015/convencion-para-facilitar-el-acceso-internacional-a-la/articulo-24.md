@@ -1,0 +1,1 @@
+Artículo 24.Cualquier Estado contratante podrá hacer saber, mediante una declaración, la lengua o las lenguas distintas previstas en los artículos 7 y 17 en las que podrán redactarse o a las que podrán traducirse los documentos que se dirijan a su Autoridad Central.

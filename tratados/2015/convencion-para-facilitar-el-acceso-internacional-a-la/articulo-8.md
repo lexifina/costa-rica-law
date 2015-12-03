@@ -1,0 +1,2 @@
+Artículo 8. La Autoridad Central receptora resolverá acerca de la solicitud de asistencia judicial o tomará las medidas necesarias para que se resuelva sobre la misma autoridad competente del Estado requerido.
+La Autoridad Central receptora transmitirá las peticiones de información complementaria a la autoridad encargada de la transmisión e informará de cualquier dificultad que presente el examen de la solicitud, así como de la decisión que se adopte.

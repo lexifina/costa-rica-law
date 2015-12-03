@@ -1,0 +1,2 @@
+CAPÍTULO V- DISPOSICIONES GENERALES
+Artículo 21. Sin perjuicio de lo dispuesto en el artículo 22, ninguna disposición del presente Convenio se interpretará en el sentido de restringir los derechos que pudieran reconocerse a una persona, relacionados a las materias reguladas por dicho Convenio, de conformidad con las leyes de un Estado contratante o de conformidad con cualquier otro Convenio en el que dicho Estado fuera o llegara a ser parte.

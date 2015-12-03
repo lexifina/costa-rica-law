@@ -1,0 +1,2 @@
+CAPÍTULO III- COPIAS DE ACTAS Y DE DECISIONES JUDICIALES
+Artículo 18. En materia civil o comercial, los nacionales de un Estado contratante, así como las personas que tengan su residencia habitual en un Estado contratante, pueden obtener, en otro Estado contratante y en las mismas condiciones que sus nacionales, la expedición y, en su caso, la legalización de copias o certificaciones de registros públicos o de decisiones judiciales.

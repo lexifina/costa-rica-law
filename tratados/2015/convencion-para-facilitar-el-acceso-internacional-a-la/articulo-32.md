@@ -1,0 +1,3 @@
+Artículo 32. Cualquier otro Estado podrá adherirse al Convenio.
+El instrumento de adhesión de depositará en el Ministerio de Relaciones Exteriores del Reino de los Países Bajos.
+La adhesión sólo surtirá efecto en las relaciones entre el Estado adherente y los Estados contratantes que no hubiesen formulado objeción a dicha adhesión en los doce meses siguientes a la recepción de la notificación prevista en el número 2 del artículo 36. Podrá asimismo formular una objeción al respecto cualquier Estado miembro en el momento de una ratificación, aceptación o aprobación del Convenio con posterioridad a la adhesión. Dichas objeciones serán notificadas al Ministerio de Relaciones Exteriores del Reino de los Países Bajos.

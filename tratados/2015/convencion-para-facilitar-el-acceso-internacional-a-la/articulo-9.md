@@ -1,0 +1,2 @@
+Artículo 9. Cuando el solicitante de asistencia judicial no resida en el Estado contratante, podrá cursar su solicitud por la vía consular, sin perjuicio de cualquier otra vía que pudiera utilizar para presentar su solicitud a la autoridad competente del Estado Requerido.
+Cada Estado contratante podrá declarar que su Autoridad Central receptora aceptará las solicitudes que se presente por cualquier otra vía o medio.
