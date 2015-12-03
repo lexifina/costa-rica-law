@@ -1,0 +1,1 @@
+II.—Estos lineamientos prevalecerán sobre cualquier normativa interna en contrario que emita la Administración activa y su inobservancia generará las responsabilidades que correspondan de conformidad con el marco jurídico que aplicable.
