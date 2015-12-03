@@ -1,0 +1,4 @@
+Artículo 14
+La ejecución de la Carta Rogatoria no dará lugar a ningún reembolso de tasas o gastos de cualquier índole.
+Sin embargo, el Estado de requerido tiene derecho de exigir al Estado requirente que reembolse los honorarios pagados a peritos e intérpretes y los costos incurridos por el uso de un procedimiento especial solicitado por el Estado requirente conforme al Artículo 9, párrafo 2.
+La autoridad requerida cuya ley obligue a las mismas partes a aportar pruebas y que no pudiere por si misma ejecutar la Carta Rogatoria, podrá, después de haber obtenido el consentimiento de la autoridad requirente, nombrar a una persona facultada para hacerlo. Al solicitar este consentimiento, la autoridad requerida indicará los costos aproximados que resultarían de esta intervención. Si la autoridad requirente da su consentimiento, deberá reembolsar cualquier costo en que se incurra; sin ese consentimiento, la autoridad requirente no será responsable de los costos.

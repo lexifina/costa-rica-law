@@ -1,0 +1,1 @@
+Artículo 6 Si la autoridad requerida no fuere competente para ejecutarla, la Carta Rogatoria será remitida, de oficio y sin demora, a la autoridad judicial competente del mismo Estado según las normas establecidas por la legislación de éste.

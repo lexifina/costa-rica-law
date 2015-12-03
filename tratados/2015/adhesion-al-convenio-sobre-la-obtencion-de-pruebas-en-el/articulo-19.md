@@ -1,0 +1,2 @@
+Artículo 19
+La autoridad competente, al otorgar la autorización que se establece en los Artículos 15, 16 y 17, o al otorgar la solicitud que se indica en el Artículo 18, podrá establecer las condiciones que considere apropiadas, especialmente la hora y el lugar de la obtención de las pruebas. De igual manera, podrá requerir que se le notifique, con antelación razonable, la hora, fecha y lugar mencionados; en ese caso, un representante de la autoridad tendrá derecho de estar presente durante la obtención de pruebas.

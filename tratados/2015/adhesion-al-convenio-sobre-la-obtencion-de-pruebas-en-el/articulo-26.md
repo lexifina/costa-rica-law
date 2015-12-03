@@ -1,0 +1,3 @@
+Artículo 26
+Todo Estado Contratante, si se requiere que lo haga debido a limitaciones constitucionales, podrá exigir el reembolso por parte del Estado de origen de los honorarios y costos, en relación con la ejecución de las Cartas Rogatorias, por la notificación o citación de comparecencia de una persona a presentar pruebas, los gastos por la asistencia de esas personas y los gastos del acta de la práctica de la prueba.
+Cuando un Estado haya hecho una solicitud conforme al párrafo anterior, cualquier otro Estado Contratante podrá solicitar que ese Estado reembolse honorarios y gastos similares.

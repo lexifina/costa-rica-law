@@ -1,0 +1,6 @@
+Artículo 4
+Una Carta Rogatoria debe estar redactada en el idioma de la autoridad requerida o ir acompañada de una traducción a ese idioma.
+Sin embargo, cada Estado Contratante deberá aceptar una Carta Rogatoria redactada en inglés o en francés, o que vaya acompañada de una traducción a uno de esos idiomas, a menos que hubiere formulado la reserva autorizada en el Artículo 33.
+Todo Estado Contratante que tenga más de un idioma oficial y no pudiera, por razones de derecho interno, aceptar las Cartas Rogatorias en uno de esos idiomas para la totalidad de su territorio, especificará, mediante una declaración, el idioma en el que la Carta Rogatoria debe estar redactada o traducida para su ejecución en las partes especificadas de su territorio. En caso de incumplimiento de esta declaración, sin motivo justificado, los gastos de traducción al idioma requerido serán sufragados por el Estado requirente.
+Todo Estado Contratante podrá, mediante una declaración, especificar el idioma o los idiomas distintos a los que se mencionan en los párrafos anteriores, donde una Carta Rogatoria puede enviarse a su Autoridad Central.
+Cualquier traducción que acompañe una Carta deberá ser certificada como correcta, ya sea por un funcionario diplomático o consular o por un traductor jurado o por alguna persona autorizada para hacerlo en cualquiera de los Estados.

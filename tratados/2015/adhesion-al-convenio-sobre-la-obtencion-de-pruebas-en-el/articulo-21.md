@@ -1,0 +1,6 @@
+Artículo 21
+Cuando un funcionario diplomático, consular o comisario esté autorizado conforme a los Artículos 15, 16 y 17, a obtener pruebas:
+a) podrá obtener todo tipo de pruebas que no sea incompatible con la ley del Estado donde se obtengan las pruebas o contrario a la autorización otorgada conforme a los anteriores Artículos y tendrá poder dentro de esos límites de recibir declaraciones bajo juramento o una declaración solemne sin juramento;
+b) salvo que la persona a la que concierna la obtención de pruebas fuere nacional del Estado donde se hubiere incoado el procedimiento, toda citación para comparecer o aportar pruebas estará redactada en el idioma del lugar donde se está obteniendo la prueba o acompañarse de una traducción a dicho idioma.
+c) la citación informará a la persona que puede estar representada legalmente y, en cualquier Estado que no haya presentado una declaración conforme al Artículo 18, también deberá informarle que no está obligada a comparecer ni a aportar pruebas;
+d) las pruebas podrán obtenerse en la forma que disponga la ley vigente del tribunal donde la acción está pendiente, siempre y cuando esa forma que se utilice no esté prohibida por la ley del Estado donde se vaya a practicar la prueba; e) una persona a quien se le solicite aportar pruebas podrá alegar las exenciones y prohibiciones previstas en el Artículo 11.
