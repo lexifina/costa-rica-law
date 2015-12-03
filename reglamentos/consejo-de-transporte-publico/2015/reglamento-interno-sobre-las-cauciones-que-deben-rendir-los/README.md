@@ -14,3 +14,4 @@ Reglamento interno sobre las cauciones que deben rendir los funcionarios, encarg
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-24 | la propia norma |
+| 2 | 2015-12-03 | Reglamento 60 (2015-12-03) |
