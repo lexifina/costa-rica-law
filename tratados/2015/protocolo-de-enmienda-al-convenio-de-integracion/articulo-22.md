@@ -1,0 +1,2 @@
+ARTÍCULO XXII
+Los Artículos XXII, XXIII, XXIV, XXV, XXVI, XXVII, XXVIII, XXIX, XXX, XXXI y XXXII del Convenio deberán leerse como XXIII, XXIV, XXV, XXVI, XXVII, XXVIII, XXIX, XXX, XXXI, XXXII y XXXIII, respectivamente.
