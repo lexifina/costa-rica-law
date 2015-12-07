@@ -14,3 +14,4 @@ Organización Administrativa de la Secretaría Técnica del Consejo Nacional de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-29 | la propia norma |
+| 2 | 2015-12-07 | Decreto Ejecutivo 39473 (2015-12-07) |

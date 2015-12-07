@@ -10,6 +10,7 @@ h) Revisar expedientes académicos de estudiantes según las declaraciones jurad
 i) Elaborar informes sobre los hallazgos encontrados al área de Registro de Títulos que impidan la inscripción de los diplomas que expidan las Universidades Privadas o para su respectiva inscripción.
 j) Establecer los lineamientos administrativos para verificar la información aportada por las universidades sobre la emisión de los títulos.
 k) Implementar los lineamientos administrativos en cuanto a la verificación de la información contenida en los documentos, títulos y a la inscripción de los diplomas.
-l) Establecer los lineamientos administrativos para la revisión y aprobación mediante la firma del Director Ejecutivo en cada título expedido.
+l) Establecer los lineamientos administrativos para la revisión y aprobación de la información consignada en el diploma que contiene cada título expedido, el cual deberá llevar sea la firma autógrafa o en su defecto el facsímil de la firma del Director Ejecutivo, en quien recaerá la custodia y su uso exclusivo.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39473 del 7 de diciembre del 2015)
 m) Determinar los lineamientos administrativos conjuntamente con las universidades para brindar un servicio eficiente y legal a sus estudiantes.
 n) Establecer los lineamientos administrativos para la reposición de títulos.
