@@ -1,0 +1,1 @@
+Artículo 14.- Conversión del Procedimiento. El Órgano Director del procedimiento sumario, podrá convertir el procedimiento en ordinario por razones de complejidad; para lo cual deberá fundamentar la decisión mediante resolución motivada que debe ser avalada por el superior jerárquico inmediato.
