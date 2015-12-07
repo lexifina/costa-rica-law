@@ -1,0 +1,10 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+N° DGT-R-73-2015.—San José, a las ocho horas del once de noviembre de dos mil quince.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales paro la correcta aplicación de las leyes tributarias dentro de Los límites que fijan las disposiciones legales y reglamentarias pertinentes.
+II.—Que el artículo 157 de la Ley General de la Administración Pública, aplicado supletoriamente de conformidad con el artículo 155 del Código de Normas y Procedimientos Tributarios, faculta a la Administración a rectificar los errores materiales o de hecho y los aritméticos.
+III.—Que mediante resolución DGT-R-027-2015 de las ocho horas del veintiuno de agosto del dos mil quince, publicada en La Gaceta Nº 182 del 18 de setiembre de 2015, se establece un único período fiscal especial, comprendido desde el 1° de enero hasta el 31 de diciembre de cada año, de manera que permita el ágil desarrollo de los sistemas informáticos en que se procesa la información tributaria para facilitar las actividades de control y gestión.
+IV.—Que se han presentado consultas en razón de la aplicación de la resolución DGT-R-16-1997 y la resolución DGT-R-027-2015, debido a que ambas regulan el tema de cambio de periodo fiscal, esta Dirección considera conveniente adicionar la resolución DGT-R-027-2015 citada; con el fin de unificar criterios y que los usuarios no encuentren inconvenientes para cumplir con sus obligaciones y deberes tributarios.
+V.—Que en razón de las consideraciones planteadas en el considerando anterior y por tratarse de normativa interna que regula materia de potestad exclusiva de la Administración Tributaria, esta resolución se dispensa del trámite de consulta establecido en el artículo 174 del Código de Normas y Procedimientos Tributarios. Por tanto,
+RESUELVE:
+Artículo 1°—Deróguese el artículo 13° de la resolución DGT-R-027-2015 de las ocho horas del veintiuno de agosto del dos mil quince.
