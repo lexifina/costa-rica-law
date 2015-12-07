@@ -14,3 +14,4 @@ Reglamento para el Uso de Internet y Correo Electrónico Institucional de la Mun
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-07 | la propia norma |
+| 2 | 2015-12-07 | Reglamento municipal 0 (2015-12-04) |
