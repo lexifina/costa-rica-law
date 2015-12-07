@@ -1,0 +1,3 @@
+CAPÍTULO II
+Segundo funcionamiento
+Artículo 6º—Autorización de gastos del fondo. la adquisición de bienes y servicios será de ¢25.000.000 (veinticinco millones de colones) para el Organismo de Investigación Judicial y del ¢ 15.000.000 (quince millones de colones) para la Unidad de Protección de Víctimas y Testigos, monto que anualmente mediante resolución será indexada por la dirección ejecutiva con base el índice de precios al consumidor; por razones de conveniencia y oportunidad, el trámite de ejecución de estos dineros se regirá por la guía para la administración de gastos confidenciales del Organismo de Investigación Judicial aprobada por acuerdo tomado por el consejo superior del poder judicial, en la sesión Nº 101-14 celebrada el 20 de noviembre del 2014.

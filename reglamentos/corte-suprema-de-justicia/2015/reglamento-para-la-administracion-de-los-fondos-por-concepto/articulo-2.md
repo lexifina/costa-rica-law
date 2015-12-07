@@ -1,0 +1,1 @@
+Artículo 2º—Objetivo. El objetivo del fondo es facilitar y agilizar la operación de estos gastos en sus diferentes rubros y que por sus características son indispensables, urgentes o que por su cuantía no conviene recurrir a procedimientos de contratación más gravosos.

@@ -1,0 +1,1 @@
+Artículo 13.—Arqueo e informe. La administración del Organismo de Investigación Judicial deberá rendir mensualmente un arqueo e informe del Fondo General a la Dirección General del OIJ con copia a la Auditoria Judicial y al Departamento Financiero Contable.

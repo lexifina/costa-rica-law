@@ -1,0 +1,1 @@
+Artículo 10.—Requisitos de los comprobantes y facturas comerciales. Toda factura comercial que respalde la compra de bienes y servicios por medio del fondo, deberá cumplir con el procedimiento regulado para estos fines en la guía para la administración de gastos confidenciales del Organismo de Investigación Judicial.

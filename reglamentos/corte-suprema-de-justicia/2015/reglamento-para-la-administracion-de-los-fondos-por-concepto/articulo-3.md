@@ -1,0 +1,1 @@
+Artículo 3º—Administración. El manejo, custodia y la ejecución de las compras y pagos estará a cargo de la administración del organismo, la auditoria judicial, efectuará periódicamente y sin previo aviso arqueos y conciliaciones de este fondo.

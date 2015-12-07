@@ -1,0 +1,1 @@
+Artículo 12.—Fecha límite para liquidación de anticipos. La liquidación correspondiente a los adelantos, deberá presentarse dentro de los treinta días hábiles siguientes a la adquisición del bien o servicio, esto debido a las características del trabajo policial; para el caso de la unidad de víctimas y testigos será de siete días hábiles.

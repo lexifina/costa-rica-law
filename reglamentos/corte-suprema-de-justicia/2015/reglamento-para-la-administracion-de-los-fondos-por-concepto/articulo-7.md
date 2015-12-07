@@ -1,0 +1,1 @@
+Artículo 7º—Forma de pago. Toda compra que se realice mediante este fondo especial, deberá regirse por lo estipulado en la guía para la administración de gastos confidenciales del Organismo de Investigación Judicial.

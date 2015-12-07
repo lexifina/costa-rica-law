@@ -1,0 +1,1 @@
+Artículo 21.—Directrices e instrucciones. La dirección ejecutiva y el departamento financiero contable, cuando realice arqueos periódicos, deberán establecer directrices y dictar instrucciones generales tendientes a obtener una mejor fiscalización y operación del fondo, sin perjuicio de la obligada fiscalización que le corresponde a la auditoría.

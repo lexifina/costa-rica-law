@@ -1,0 +1,1 @@
+Artículo 9º—Comprobantes autorizados. Solo se permitirán los comprobantes regulados en la guía para la administración de gastos confidenciales del Organismo de Investigación Judicial y por los cuatro conceptos únicos que esta dicta como lo son: gastos de operación, pago de informante, identificación de dinero y pre-compras.
