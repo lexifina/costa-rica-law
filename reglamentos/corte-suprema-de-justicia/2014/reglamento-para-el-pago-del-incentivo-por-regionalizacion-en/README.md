@@ -13,3 +13,4 @@ Reglamento para el Pago del Incentivo por Regionalización en el Poder Judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-14 | la propia norma |
+| 2 | 2015-12-07 | Circular 236 (2015-12-07) |

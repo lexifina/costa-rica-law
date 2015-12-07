@@ -2,9 +2,8 @@ Nº 148-2014
 ASUNTO: Reglamento para el Pago del Incentivo por Regionalización en el Poder Judicial.
 A LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
-La Corte Plena en sesión 24-14, celebrada el 2 de junio de 2014, artículo XXVII, aprobó el siguiente “Reglamento para el Pago del Incentivo por Regionalización en el Poder Judicial”, cuyo texto literalmente dice:
-“REGLAMENTO PARA EL PAGO DEL INCENTIVO POR
+La Corte Plena en sesión 24-14, celebrada el 2 de junio de 2014, artículo XXVII, aprobó el siguiente "Reglamento para el Pago del Incentivo por Regionalización en el Poder Judicial", cuyo texto literalmente dice:
+"REGLAMENTO PARA EL PAGO DEL INCENTIVO POR
 REGIONALIZACIÓN EN EL PODER JUDICIAL
-CAPÍTULO ÚNICO
-Disposiciones Generales
-Artículo 1º—El presente Reglamento regula el incentivo por regionalización como un incentivo salarial para los de puestos de la judicatura o en las zonas donde el Consejo Superior determine necesario para el buen funcionamiento de la administración de justicia.
+(Nota de Sinalevi: El presente reglamento fue reformado parcialmente y publicado su texto de forma íntegra mediante sesión N° 43-15 del 30 de noviembre del 2015 publicada en EL Boletín Judicial N° 10 del 15 de enero del 2016 mediante circular N° 236-2015 del 7 de diciembre del 2015, por lo que se transcribe a continuación:)
+Artículo 1º—El presente Reglamento regula el pago por regionalización como un incentivo salarial adicional de carácter excepcional, para los puestos de la judicatura a los que el Consejo Superior determine necesario para el buen funcionamiento de la administración de justicia.

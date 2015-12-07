@@ -1,3 +1,2 @@
-Artículo 5º—Son causas que suspenden temporalmente el pago del beneficio a la persona nombrada en el cargo:
-a. La incapacidad o licencia con goce de salario por más de un mes.
-b. Cuando al servidor o servidora se le autorice el teletrabajo por tres días o más, semanales.
+Artículo 5º—La incapacidad o licencia con goce de salario por más de un mes, salvo el caso de la licencia por maternidad, suspenderá temporalmente el pago del beneficio a la persona que disfruta de la licencia o incapacidad.
+Su reconocimiento corresponderá a quienes lleguen a ocupar ese puesto en sustitución.
