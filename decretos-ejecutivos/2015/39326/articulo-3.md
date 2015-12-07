@@ -1,0 +1,6 @@
+Artículo 3°.- Adiciónese un inciso a.a) y b.b) al artículo 10 del Reglamento Autónomo de Servicio del Ministerio de Seguridad Pública, que se leerá de la siguiente manera:
+“Artículo 10.-
+(…)
+a.a) Incurrir en prácticas discriminatorias hacia cualquier servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de existir denuncia, interpuesta de manera personal o por interpósita persona, de que algún servidor de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.
+b.b) Utilizar, en el desempeño de sus funciones, lenguaje que sea discriminatorio o contrario a la dignidad de personas por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad, o permitir que sus colaboradores incurran en este tipo de conductas.”
+Las dos situaciones anteriores constituyen falta grave, y podrían acarrear la imposición de una suspensión de uno hasta quince días sin goce de salario o el despido sin responsabilidad patronal, previo debido proceso.
