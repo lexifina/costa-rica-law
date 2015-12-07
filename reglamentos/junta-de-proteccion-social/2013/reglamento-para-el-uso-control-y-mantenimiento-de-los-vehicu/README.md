@@ -14,3 +14,4 @@ Reglamento para el uso, control y mantenimiento de los vehículos de la Junta de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-26 | la propia norma |
+| 2 | 2015-12-07 | Reglamento 44 (2015-12-07) |
