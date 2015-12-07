@@ -1,5 +1,5 @@
-TÍTULO III
-Del registro y formalización de las donaciones
-CAPÍTULO I
-Del registro contable y presupuestario
-Artículo 21.—Toda donación ya sea que se otorgue o que se reciba deberá registrarse contablemente. Para ello, la dependencia responsable de entregar el bien a donar o de recibirlo, deberá solicitar al Proceso Contabilidad su criterio, cumpliendo con el procedimiento establecido en la página web, sobre el tratamiento que deberá hacerse a la donación. La solicitud respectiva deberá indicar detalladamente el tipo de donación que se efectuará o recibirá, según el caso y acompañarla del respaldo documental suficiente y confiable, confirmando el cumplimiento de los procedimientos y reglamentos institucionales que regulan la materia. Una vez emitido el criterio por parte del Proceso Contabilidad, éste deberá adjuntarse como requisito indispensable a la documentación pertinente a remitir al órgano competente para aprobar la donación.
+Artículo 21.—La aceptación de las donaciones de bienes no podrá perjudicar de ninguna manera el interés público, en lo relativo a:
+a. La disponibilidad de frecuencias, cuando corresponda.
+b. La disponibilidad de medios de interconexión y de infraestructura.
+c. La integridad, operatividad, seguridad y buen funcionamiento de los sistemas: Nacional de Telecomunicaciones y el Eléctrico Nacional, que conduzca a deficiencias y a falta de continuidad en los servicios prestados.
+d. El desarrollo de proyectos inmediatos o de largo plazo.

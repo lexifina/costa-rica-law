@@ -1,5 +1,7 @@
-Artículo 16.—La facultad del ICE de recibir donaciones debe ser entendida dentro de un marco de razonabilidad, en virtud del cual:
-a) Debe existir una vinculación entre el bien por donar y el fin público al que responde esa entidad, de manera que el bien sea idóneo y adecuado para la satisfacción de tal fin.
-b) No podría tratarse de donaciones sujetas a condiciones.
-c) El bien además de útil, debe estar en buen estado y ser aprovechable plenamente.
-d) La dependencia que va a hacer uso del bien donado, debe asegurarse además que el donador cuente con facultad suficiente de disposición sobre el bien.
+CAPÍTULO III
+Sobre el trámite y aprobación de las donaciones
+a favor del ICE
+Artículo 16.—Las ofertas de donación a favor del ICE deberán ser suscritas y presentadas ante cualquier dependencia del ICE, por personas físicas o jurídicas, directamente o mediante su representante o persona autorizada con capacidad para donar, indicando el valor estimado del bien sujeto a donación, además del medio o lugar para notificaciones.
+La dependencia que reciba dicha solicitud, trasladará la oferta de donación a la Proveeduría Institucional, la cual confeccionará el expediente administrativo para el trámite respectivo. Esta última a su vez tendrá dos días hábiles, contados a partir de su recibo, para solicitar el criterio técnico y legal.
+La dependencia que va a hacer uso del bien donado, será la que emita el criterio técnico correspondiente, con base en justificaciones de oportunidad y conveniencia institucional y lo remitirá vía correo electrónico al Área de Licitaciones de la Proveeduría Institucional, en el plazo máximo de tres días hábiles, contados a partir del día siguiente a la comunicación de la solicitud por parte de la Proveeduría Institucional. Esta última, de acuerdo a la estimación del bien donado, deberá remitirlo a la jefatura receptora del mismo, según los topes establecidos en este reglamento, para que dicte la consecuente resolución de aprobación o rechazo, con el visto bueno previo de la Gerencia respectiva, en un plazo de tres días hábiles.
+En el caso de las donaciones al ICE, sometidas a la aprobación ya sea de la Junta de Adquisiciones ICE/Corporativa o del Consejo Directivo, la resolución se emitirá en la sesión inmediata siguiente a la remisión de la recomendación de la Proveeduría Institucional, debiéndose cumplir para ello con el procedimiento interno establecido. Dicha resolución se remitirá a la Proveeduría Institucional en el plazo máximo de dos días hábiles, contados a partir de la firmeza del acto.

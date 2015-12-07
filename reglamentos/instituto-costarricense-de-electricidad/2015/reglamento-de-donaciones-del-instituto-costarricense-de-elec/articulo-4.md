@@ -1,5 +1,13 @@
-Artículo 4º—Las solicitudes de donación deberán ser presentadas ante cualquier dependencia del ICE y remitidas al Área de Responsabilidad Social, quien será el canal oficial para valorar la conveniencia de otorgar la donación.
-Éstas deben contar con el criterio positivo de oportunidad, conveniencia, responsabilidad social y equidad, debidamente motivado por el Área de Responsabilidad Social. Las solicitudes de donación serán remitidas a la Proveeduría Institucional en el plazo máximo de tres días hábiles, contados a partir del día siguiente a la entrega de la solicitud. La Proveeduría Institucional evaluará la admisibilidad de la solicitud con base en los requisitos señalados en el artículo 3 de este reglamento.
-La Proveeduría Institucional gestionará la solicitud de donación, según la fecha del ingreso. En el plazo de tres días hábiles, contados a partir del día siguiente a la remisión de la solicitud, dicha dependencia notificará al solicitante en el caso que la solicitud no cumpla con los requisitos de admisibilidad mencionados y le otorgará seis días hábiles para su corrección. El plazo se contará a partir del día siguiente a la notificación. Transcurrido el plazo indicado sin que reingrese la solicitud con las correcciones correspondientes, se procederá a su archivo.
-Las solicitudes admitidas serán resueltas de conformidad con lo dispuesto en los artículos 6 y 7 de este reglamento.
-La Proveeduría Institucional solicitará los criterios técnico y legal en caso de requerirse, vía correo electrónico en un plazo de hasta dos días hábiles, contados a partir de la fecha en que la solicitud haya cumplido con la admisibilidad.
+TÍTULO II
+CAPÍTULO I
+Sobre el trámite y aprobación de las donaciones
+otorgadas por el ICE
+Artículo 4º—Las solicitudes deberán cumplir los siguientes requisitos:
+a. Formulario1 firmado por el representante legal.
+1 Formulario disponible en la página Web de la Proveeduría Institucional Proveeduría solicitará, vía correo electrónico, en un plazo de hasta dos días hábiles, los criterios: legal, oportunidad y conveniencia, disponibilidad, no-utilidad, obsolescencia y desuso, según corresponda.
+Cuando se trate de Órganos Colegiados deberá adjuntar certificación de personería jurídica con al menos 3 meses de vigencia, así como copia de la cédula de identidad del representante.
+Si las solicitudes son presentadas por las Municipalidades, estas deberán ser suscritas por el Alcalde o Secretario Municipal, adjuntando el acuerdo del Concejo Municipal que contenga la decisión de la solicitud de donación.
+b. Fundamento legal de la solicitud, con indicación de la ley que faculta al ICE a donar el bien solicitado y al donatario a recibir.
+c. La solicitud deberá indicar el interés público que reviste la donación, el uso y ubicación que tendrán los bienes y el medio o lugar para aclaraciones o notificaciones.
+d. Informe detallado de la cantidad y características de los bienes requeridos, utilizando las unidades de medida correspondientes, ya sea por lote, por peso o por unidad.
+En caso necesario, el formulario referido en el inciso a, de este apartado, podrá ser modificado por la Proveeduría Institucional.

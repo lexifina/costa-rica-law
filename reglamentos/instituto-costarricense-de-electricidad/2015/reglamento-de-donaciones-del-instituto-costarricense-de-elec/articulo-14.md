@@ -1,1 +1,1 @@
-Artículo 14.—Los desechos tóxicos, así declarados por el ICE o por cualquiera otra dependencia del Estado, no serán objeto de donación, salvo para efecto de su debido tratamiento, investigación y desecho, de conformidad con el ordenamiento jurídico.
+Artículo 14.—La Dirección Logística será la dependencia responsable de la custodia, clasificación y control de los materiales declarados como obsoletos y de residuos. En caso de que no se tenga los criterios correspondientes, esta Dirección solicitará a la dependencia técnica que adquirió el bien emitir dichos criterios.

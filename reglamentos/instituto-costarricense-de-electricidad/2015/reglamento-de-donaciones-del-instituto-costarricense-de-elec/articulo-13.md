@@ -1,1 +1,1 @@
-Artículo 13.—La Dirección Logística será la dependencia responsable de la custodia, clasificación y control de los materiales declarados obsoletos y de desecho.
+Artículo 13.—Cuando la donación sea de bienes muebles obsoletos, o que no estén en uso, la dependencia técnica que custodie el bien, será la responsable de remitir al Área de Licitaciones de la Proveeduría Institucional, los criterios de obsolescencia, no-utilidad o desuso de los bienes, materiales, equipos, o repuestos solicitados.

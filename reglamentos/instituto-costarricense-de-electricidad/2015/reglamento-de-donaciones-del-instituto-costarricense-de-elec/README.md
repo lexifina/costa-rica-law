@@ -14,3 +14,4 @@ Reglamento de Donaciones del Instituto Costarricense de Electricidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-02 | la propia norma |
+| 2 | 2015-12-07 | Reglamento 6158 (2015-12-07) |

@@ -1,12 +1,1 @@
-CAPÍTULO II
-De la formalización
-Artículo 25.—Las donaciones de bienes inmuebles y muebles inscribibles se formalizarán en escritura pública, para lo cual la Dirección de Notariado y Expropiaciones de la División Jurídica Corporativa coordinará lo que corresponda en el plazo de diez días hábiles y se indicará de forma expresa el fin para el cual se dona, esto a partir de la remisión de la documentación correspondiente. Ésta formalizará las escrituras de donación. Las restantes donaciones se formalizarán mediante un acta de entrega y recibido conforme.
-El funcionario del ICE que apruebe o acepte la donación suscribirá la escritura correspondiente. El Gerente, bajo cuya administración se encuentre el bien a donar, suscribirá las escrituras correspondientes a las donaciones aprobadas o aceptadas, ya sea por la Junta de Adquisiciones ICE/Corporativa o por el Consejo Directivo.
-El acta de entrega y recibido conforme será firmada por la jefatura de la dependencia depositaria del bien objeto de la donación, de conformidad con el párrafo tercero del artículo 5 de este reglamento.
-El donador o donatario, según corresponda, deberá aportar la siguiente documentación para suscribir la escritura o el acta de entrega y recibido conforme:
-a. Certificación notarial o registral de la personería jurídica de la entidad, con no más de un mes de expedida.
-b. Fotocopia del documento oficial de identidad del representante de la empresa. En el caso de personas físicas se deberá presentar fotocopia del documento oficial de identidad.
-c. Nombre de la(s) persona(s) autorizada(s) para retirar la donación y fotocopia del documento oficial de identidad.
-Adicionalmente, en la escritura o en el acta de entrega y recibido conforme de las donaciones que realiza el ICE, se consignará que el donatario o representante, según corresponda, se hace responsable por el uso adecuado de los bienes donados. Esta limitación no podrá superar el plazo definido en el artículo 292 del Código Civil.
-Los bienes solicitados para reciclaje no estarán sujetos a la limitación señalada en el párrafo anterior, siempre y cuando el beneficio del proceso de reciclaje sea utilizado directamente en el cumplimiento de los fines de la entidad solicitante.
-En la escritura pública o en el acta de entrega y recibido conforme se consignará el uso que tendrá el bien y sus características, de conformidad con el avalúo en el caso que corresponda.
+Artículo 25.—En el caso de que el ICE decida aceptar una donación, se deberá seguir el proceso normal para su internación, activación, registro u otro que se requiera según los procedimientos vigentes en la materia, con el fin de que quede oficializada la transferencia del bien o los bienes donados.

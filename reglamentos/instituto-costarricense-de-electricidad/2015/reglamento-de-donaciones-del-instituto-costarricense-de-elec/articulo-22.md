@@ -1,1 +1,5 @@
-Artículo 22.—Para efectos del registro contable de las donaciones a favor del ICE, una vez que el órgano competente haya aprobado la recepción de una donación, la dependencia responsable remitirá al Proceso Contabilidad la solicitud del registro contable mediante carta, aportando toda la documentación soporte de la transacción y considerando las cuentas financieras emitidas en el criterio contable. El Proceso Contabilidad será el responsable de realizar un registro, incrementando una cuenta contable de activos de acuerdo con la naturaleza de la donación; lo que a su vez registrará un incremento del patrimonio institucional específicamente a la cuenta de capital aportado. Este registro se realizará con la única condición que la donación recibida de terceros sea de carácter no reintegrable.
+TÍTULO III
+Del registro y formalización de las donaciones
+CAPÍTULO I
+Del registro contable y presupuestario
+Artículo 22.—Toda donación ya sea que se otorgue o que se reciba deberá registrarse contablemente. Deberá quedar debidamente estipulado el tipo de donación que se efectuará o recibirá, según el caso y acompañarse del respaldo documental suficiente y confiable, confirmando el cumplimiento de los procedimientos y reglamentos institucionales que regulan la materia.

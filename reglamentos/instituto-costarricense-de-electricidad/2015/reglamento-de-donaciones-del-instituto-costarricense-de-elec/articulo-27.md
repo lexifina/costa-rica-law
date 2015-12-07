@@ -1,2 +1,2 @@
-Artículo 27.—El ICE no cubrirá los costos de transporte y montaje de los bienes donados por el ICE, salvo por razones de mérito, oportunidad y conveniencia en los casos que señalen las Gerencias respectivas.
-El transporte y montaje se coordinará con las dependencias respectivas.
+Artículo 27.—Los bienes donados no se entregarán hasta tanto no se suscriba la escritura o el acta de entrega y recibido conforme, según corresponda.
+Tratándose de donaciones de bienes inscribibles amparadas al Título II de este reglamento, será responsabilidad del donatario asumir la totalidad de los gastos de inscripción.
