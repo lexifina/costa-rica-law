@@ -1,0 +1,24 @@
+N° 39307-MOPT
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En uso de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política, el artículo 28 de la Ley Nº 6227 del 2 de mayo de 1978, Ley General de la Administración Pública y la Ley N° 1581 del 30 de mayo de 1953, Estatuto de Servicio Civil.
+Considerando:
+I.—Que mediante el Decreto Ejecutivo N° 36235-MOPT del 5 de julio del 2010 y sus reformas, se emitió el “Reglamento Autónomo de Servicios del Ministerio de Obras Públicas y Transportes”.
+II.—Que el artículo 9 del citado cuerpo reglamentario regula el horario de servicio de los funcionarios del Ministerio de Obras Públicas y Transportes; teniéndose que en lo que respecta a los servidores que laboran para las sedes regionales, el segundo párrafo de dicho artículo establece lo siguiente: “En las sedes regionales de este ministerio, el horario será de las 6:00 a. m. a las 2:00 p. m., de lunes a viernes.”
+III.—Que el Director de la División de Obras Públicas del Ministerio de Obras Públicas y Transportes, mediante el Oficio N° 2015-0853, realizó las gestiones pertinentes ante el Departamento de Gestión de Servicios de Personal, de la Dirección de Gestión Institucional de Recursos Humanos, para modificar el horario de los servidores de las Sedes Regionales del MOPT, de manera que este aplique de las 7:00 a. m. a las 3:00 p. m.
+IV.—Que mediante el Oficio N° DOP-20151828 del 13 de mayo del 2015, dirigido al Ministro de Obras Públicas y Transportes, el Director de la División de Obras Públicas señaló que el cambio de horario solicitado permitiría una mejora en la comunicación efectiva, tanto con el Área Administrativa de las Direcciones Regionales, así como con el Área Operativa. Asimismo en dicho documento justificó tal gestión de la siguiente manera:
+“Actualmente, con el horario de 6 a. m. a 2 p. m., del personal operativo, existe un desfase de 2 horas con el horario del Plantel Central (8:00 a. m. a 4:00 p. m.), por cuanto temas que deben ser resueltos para el accionar operativo de la División y que se presenten en la franja horario de 6:00 a. m. a 8:00 a. m., deben de esperar dos horas para ser resueltos.
+Ante esta situación la División considera prudente establecer el horario de las Direcciones Regionales, tanto para los Administrativos como para los Operativos de 7:00 a. m. a 3:00 p. m., para lograr una comunicación fluida y efectiva con el plantel Central del MOPT.” -2-
+V.—Que con el fin de lograr los objetivos planteados por el Director de la División de Obras Públicas, resulta necesario modificar el artículo 9 del Reglamento Autónomo de Servicio del Ministerio de Obras Públicas y Transportes.
+VI.—Que en cumplimiento al artículo 13, inciso i) del Estatuto de Servicio Civil, la Dirección General de Servicio Civil, otorgó a la presente reforma el visto bueno mediante Oficio N° DAJ2015-3902. Por tanto,
+Decretan:
+REFORMA AL ARTÍCULO 9 DEL DECRETO EJECUTIVO
+N° 36235-MOPT DEL 5 DE JULIO DEL 2010
+Y SUS REFORMAS “REGLAMENTO
+AUTÓNOMO DE SERVICIOS DEL
+MINISTERIO DE OBRAS
+PÚBLICAS Y TRANSPORTES
+Artículo 1°—Refórmese el artículo 9 del Decreto Ejecutivo N° 36235-MOPT del 5 de julio del 2010, publicado en La Gaceta Nº 213 del 3 de noviembre del 2010 y sus reformas, denominado “Reglamento Autónomo de Servicios del Ministerio de Obras Públicas y Transportes”, para que en lo sucesivo se lea de la siguiente manera:
+“Artículo 9º—La jornada ordinaria de servicio para los servidores y servidoras del ministerio será continua de lunes a viernes, iniciará a las 8:00 a. m. y concluirá a las 4:00 p. m. Lo anterior, sin perjuicio de los ajustes que sea necesario realizar debido a la naturaleza del servicio o cuando las circunstancias muy calificadas así lo ameriten. Dentro de esta jornada los servidores disfrutarán de un descanso de quince minutos para tomar un refrigerio entre la hora de la entrada y las 9:30 a. m. y de cuarenta minutos para el almuerzo. Todas las jefaturas están obligadas a establecer los turnos de distribución del personal a su cargo, con el fin de que durante esos descansos se mantenga la continuidad y la prestación efectiva del servicio, sin excepción, durante toda la jornada, la cual por ninguna circunstancia, podrá ser mayor o menor a la indicada en este artículo.
+En las sedes regionales de este ministerio el horario será de las 7:00 a. m. a las 3:00 p. m., de lunes a viernes.
+Se exceptúan de la jornada y horario señalados los (las) oficiales de tránsito, los (las) controladores de tráfico aéreo, los (las) agentes de seguridad y vigilancia, así como otros funcionarios a quienes por la índole y naturaleza especial de sus funciones y las características propias del servicio que atienden, así lo requieran, para quienes el horario de trabajo podrá ser rotativo, cubriéndose de esta manera la jornada semanal de ley.”
