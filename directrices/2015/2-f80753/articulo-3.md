@@ -1,0 +1,1 @@
+Artículo 3º—Responsabilidad por el Control Interno. El Ministro, Viceministros y Directores de Dependencias, Presidentes de Tribunales y demás titulares subordinados que coordinen Unidades organizacionales, equipos de trabajo, son responsables por la difusión y aplicación de la normativa de control interno en el ámbito de su competencia.

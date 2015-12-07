@@ -1,0 +1,1 @@
+Artículo 23º—Equipos de trabajo. En observancia de las disposiciones indicadas en esta Directriz, cada Dependencia de este Ministerio, podrá organizarse internamente constituyendo equipos de trabajo. Asimismo, deberá nombrar un enlace con el perfil idóneo que coadyuve en la coordinación de los procesos del sistema de control interno institucional.

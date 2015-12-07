@@ -1,0 +1,3 @@
+Capítulo III
+Sobre el Sistema Específico de Valoración de Riesgo
+Artículo 15º—Objetivo del Sistema Específico de Valoración de Riesgo Institucional (SEVRI). La aplicación de este sistema tiene como objetivo garantizar y facilitar el cumplimiento de la misión, objetivo y metas institucionales, mediante la correcta administración y comunicación de los riesgos, en procura del funcionamiento y mantenimiento del Sistema de Control Interno Institucional, de conformidad con lo establecido en la Ley General de Control Interno y las directrices emitidas por la Contraloría General de la República, como órgano técnico en esta materia.

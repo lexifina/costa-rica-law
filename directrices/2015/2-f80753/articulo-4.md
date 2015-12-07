@@ -1,0 +1,1 @@
+Artículo 4º—Responsabilidad de la Dirección de Planificación Institucional. Será la encargada de la elaboración, distribución y aplicación de instrumentos en materia de Autoevaluación de Control Interno y del Sistema Específico de Valoración de Riesgo; así como, del procesamiento y divulgación de la información obtenida mediante dichos instrumentos.

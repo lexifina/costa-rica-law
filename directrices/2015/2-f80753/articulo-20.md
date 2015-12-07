@@ -1,0 +1,1 @@
+Artículo 20°—Informe consolidado del SEVRI. La Dirección de Planificación consolidará la información suministrada por el Ministro, Viceministros, Directores de dependencia, Presidentes de Tribunales y elaborará un Informe Ejecutivo comunicándolo al jerarca institucional sobre el proceso, la última semana del mes de octubre de cada año.

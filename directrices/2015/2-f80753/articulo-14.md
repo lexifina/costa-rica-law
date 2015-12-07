@@ -1,0 +1,1 @@
+Artículo 14º—Informe ejecutivo consolidado del proceso de autoevaluación de Control Interno. La Dirección de Planificación Institucional elaborará un Informe Ejecutivo de los resultados del proceso de autoevaluación de Control Interno, el cual será enviado al jerarca institucional a más tardar el 30 de mayo de cada año.

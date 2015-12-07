@@ -1,0 +1,1 @@
+Artículo 11º—Entrega de resultados proceso de autoevaluación de control interno. La Dirección de Planificación Institucional en la primera quincena del mes de abril de cada año enviará en forma virtual los resultados del proceso de autoevaluación a cada dependencia.
