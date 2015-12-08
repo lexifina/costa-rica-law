@@ -1,0 +1,7 @@
+CONSEJO NACIONAL DE VIALIDAD
+Se informa que mediante el oficio Nº ACA-01-15-0510 de fecha 4 de setiembre del 2015, la Secretaría de Actas comunicó el acuerdo del Consejo de Administración adoptado en el Artículo XII de la sesión 1241-15 de fecha 3 de setiembre del 2015, el cual aprobó una reforma del Reglamento del fondo de caja chica del Consejo Nacional de Vialidad, la cual dispone lo siguiente:
+“Artículo 32.—Todos los gastos por caja chica deben de estar respaldados por una factura comercial, tiquete o comprobante y cumplir con los siguientes requisitos para su cancelación:
+…
+c) Toda factura deberá constar con sello de cancelación y contener la siguiente información: nombre del Consejo Nacional de Vialidad, fecha, número de cédula jurídica, monto y nombre comercial de la casa proveedora e indicar si el pago se realizó en efectivo, por medio de cheque o transferencia electrónica. En caso de no contar con alguno de los requisitos antes citados, deberá adjuntarse un oficio en que se indique la razón, con el debido visto bueno de la jefatura respectiva.
+Artículo 23.—La liquidación de los anticipos para compras, efectuados mediante vales de caja chica, deberán realizarse al cuarto día hábil siguiente al del día del retiro del dinero, por medio del formulario “liquidación caja chica”. Salvo aquellos casos en que por aprobación expresa de la Dirección Ejecutiva se autorice a hacerlo en un plazo mayor o bien, hasta agotado el monto respectivo”.
+San José, 30 de noviembre del 2015.
