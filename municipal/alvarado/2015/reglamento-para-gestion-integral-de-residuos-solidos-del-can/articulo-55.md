@@ -1,0 +1,1 @@
+Artículo 55.—Cada comercio e institución se comprometen a informar a proveedores y clientes para que no obstaculicen el paso al camión recolector, para el cargado de los residuos ya que después de cinco minutos si no es removido el obstáculo, el camión continuará su ruta normalmente.

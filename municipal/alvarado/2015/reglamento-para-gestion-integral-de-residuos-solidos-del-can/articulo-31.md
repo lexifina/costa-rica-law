@@ -1,0 +1,1 @@
+Artículo 31.—En caso del incumplimiento de alguna de las obligaciones y prohibiciones establecidas en este reglamento, se multará a los contribuyentes, público en general o funcionarios municipales, con la suma que estipula la Ley de Tránsito N° 7331.

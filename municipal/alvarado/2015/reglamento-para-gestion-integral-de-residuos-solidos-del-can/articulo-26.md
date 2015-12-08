@@ -1,0 +1,1 @@
+Artículo 26.—Queda prohibido el depósito de lixiviados provenientes de los camiones recolectores, en vía pública. Para esto dentro del contrato de recolección diferenciada se estipulara la sanción por el incumplimiento de este artículo al contratista.

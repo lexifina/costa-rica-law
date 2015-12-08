@@ -1,0 +1,1 @@
+Artículo 20.—Los basureros colocados en vías públicas, espacios públicos y paradas son para uso de los peatones, no se permite depositar en ellos bolsas de basura domiciliaria, comercial o extraordinaria.

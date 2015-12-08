@@ -1,0 +1,1 @@
+Artículo 14.—Los residuos no tradicionales se entregaran una vez al mes, en el último viernes del mes, esta categoría abarca chatarra, colchones, muebles, electrónicos, aceite, plástico de juguetes y sillas, plástico de canastas u otros muebles, envases de agroquímicos con la técnica del triple lavado, plásticos de cobertura agrícola y manguera poliducto, maderas.

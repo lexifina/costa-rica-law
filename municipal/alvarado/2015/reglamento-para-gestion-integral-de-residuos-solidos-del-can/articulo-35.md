@@ -1,0 +1,1 @@
+Artículo 35.—La Municipalidad de Alvarado definirá incentivos para organizaciones, barrios o comercios que muestren un avance significativo en la GIRS a nivel de comunidad y deberá informarse y darse a conocer a la demás comunidad el esfuerzo premiado.

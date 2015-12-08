@@ -1,0 +1,1 @@
+Artículo 46.—Cada contribuyente está obligado a reportar modificaciones en su domicilio y segregaciones de sus propiedades. Para facilitar la adecuada recaudación económica por concepto de la disposición de los residuos sólidos.

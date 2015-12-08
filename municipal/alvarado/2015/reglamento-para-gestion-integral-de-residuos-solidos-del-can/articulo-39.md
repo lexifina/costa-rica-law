@@ -1,0 +1,1 @@
+Artículo 39.—La Municipalidad, a través de la Oficina de Gestión Ambiental, establecerá un registro de los centros de acopio en el cantón y fiscalizará su operación, quedando el deber de reportar a la municipalidad los pesos de los diferentes materiales que se manejen en dicho centro de acopio.

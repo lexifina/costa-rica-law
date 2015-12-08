@@ -1,0 +1,1 @@
+Artículo 17.—Los cartuchos, luminarias (bombillos y fluorescentes) y baterías serán recolectados por la municipalidad en campañas que se avisaran oportunamente a la comunidad, mientras tanto se deben almacenar las baterías en botellas de plástico, los cartuchos en bolsas y as luminaria envueltas en papel periódico para que no se quiebren y contaminen el hogar y el medio ambiente.

@@ -1,0 +1,1 @@
+Artículo 48.—Debe especificarse el cartel de licitación la obligación por parte del concesionario de apegarse a este reglamento en cuanto a la recolección, transporte y disposición final de los residuos sólidos.

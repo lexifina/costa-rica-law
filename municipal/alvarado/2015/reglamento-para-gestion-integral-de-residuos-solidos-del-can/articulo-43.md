@@ -1,0 +1,1 @@
+Artículo 43.—La Municipalidad podrá realizar estudios para la actualización de tarifas de recolección de residuos sólidos una vez al año, esos estudios deben ser de acceso comunal, informar oportunamente sobre el estudio en un leguaje claro, publicarlos en el diario oficial La Gaceta y otorgar un mes de plazo para oposiciones fundamentadas técnicamente.

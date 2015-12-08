@@ -1,0 +1,1 @@
+Artículo 34.—Cuando el propietario no responda dentro del plazo indicado en el artículo anterior, la Oficina de Gestión Ambiental procederá cobrar una multa de cinco mil colones al recibo mensual y cada vez que se reporte la situación en los meses posteriores. Las multas serán actualizadas cada cinco años y adaptadas a costos actuales.

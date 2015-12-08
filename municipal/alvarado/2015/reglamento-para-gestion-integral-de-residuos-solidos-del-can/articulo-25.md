@@ -1,0 +1,1 @@
+Artículo 25.—Residuos de cosechas y excremento de explotaciones pecuarias y excremento de mascotas domesticas no serán recolectados, el contribuyente debe transformar estos residuos en abono orgánico o hacer un hueco es su finca o lote donde los irá enterrando para su tratamiento.

@@ -1,0 +1,1 @@
+Artículo 7°—La Municipalidad coordinará programas de capacitación para los grupos meta que se definan, con Instituciones como el MINAET, SETENA, Ministerios de salud, universidades públicas y privadas, ICE, ONG´s, cooperativas, entre otros.

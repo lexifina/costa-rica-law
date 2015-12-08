@@ -1,0 +1,1 @@
+Artículo 9°—La Municipalidad realizará concientización continua a la comunidad y dentro de la misma institución, sobre la adecuada separación de los residuos sólidos, desde el lugar de origen, separados como residuos orgánicos, ordinarios, reciclables y no tradicionales.

@@ -1,0 +1,1 @@
+Artículo 41.—La Municipalidad tiene el deber de mantener los costos de operación del servicio actualizados, así como las estadísticas de pesaje de la generación de residuos, la cantidad de usuarios vigente por categoría, en un plazo de actualización de no menos de un año.

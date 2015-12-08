@@ -1,0 +1,2 @@
+Artículo 57.—Rige a partir de su publicación.”
+Sometido a consideración el reglamento, se acuerda: en forma unánime con los votos afirmativos de los regidores (as) Carlos Martínez Rodríguez, Flor Ma. Solano Quirós, Carlos Luis Cisneros Cedeño, Zaira Camacho Calvo e Isabel Cristina Ulloa Solano aprobar tal y como se presentó el proyecto de Reglamento para Gestión Integral de Residuos Sólidos. Comuníquese y Publíquese conforme lo establecido en el artículo 43 del Código Municipal.

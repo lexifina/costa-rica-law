@@ -1,0 +1,1 @@
+Artículo 18.—La municipalidad de forma anual proporcionara material impreso y digital a la comunidad con la guía de separación y los horarios establecidos para la recolección de los diferentes tipos de residuos.

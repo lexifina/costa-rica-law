@@ -1,0 +1,1 @@
+Artículo 54.—En la renovación de patentes se deberá solicitar al Departamento de Gestión Ambiental un oficio que haga constar que el establecimiento cumple con las disposiciones del presente capítulo.

@@ -1,0 +1,1 @@
+Artículo 45.—Es obligación de la Municipalidad la actualización periódica de la base de datos y la instalación de un eficiente sistema de cobro, con el fin de reducir la morosidad en el pago del servicio de recolección de residuos sólidos y garantizar así las mejoras en el servicio.

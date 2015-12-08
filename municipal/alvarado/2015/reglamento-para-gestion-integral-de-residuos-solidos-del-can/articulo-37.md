@@ -1,0 +1,1 @@
+Artículo 37.—La municipalidad reconocerá como iniciativas GIRS todas aquellas que se generen a nivel comunal, siempre y cuando sean coordinadas e informadas con el departamento de gestiona Ambiental, siendo la municipalidad la principal responsable de los residuos según la Ley 8839.
