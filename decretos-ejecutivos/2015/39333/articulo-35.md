@@ -1,0 +1,6 @@
+Artículo 35.—De la conciliación en los accidentes de tránsito. El funcionario realizará los trámites administrativos pertinentes a efecto de poder acudir ante la autoridad judicial de tránsito, con el fin de llegar a un arreglo judicial con la otra parte, siempre que no afecte intereses del Estado ni de terceros y que no se trate de un accidente de tránsito menor.
+A los efectos deberá cumplir con lo estipulado en el artículo 19, inciso p) del presente Reglamento.
+La gestión de conciliación podrá hacerse mediante escrito fundado o mediante manifestación ante el Juez de tránsito, misma que deberá constar formalizada por parte del representante de la institución pública involucrada, autorizado a los efectos.
+Si en el arreglo que se plantea está de por medio la aplicación de pólizas, la entidad aseguradora deberá autorizarlo expresamente, lo anterior en virtud de la aplicación del artículo 178 de la Ley de Tránsito.
+Se prohíbe al conductor o chofer del vehículo oficial, efectuar arreglos extrajudiciales de conformidad con lo dispuesto en el artículo 242 de la Ley de Tránsito.
+Lo aquí estipulado será aplicado sin perjuicio de la responsabilidad y el régimen disciplinario aplicables al conductor o chofer.

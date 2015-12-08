@@ -1,0 +1,2 @@
+Artículo 6º—El uso semidiscrecional de los vehículos en días no hábiles, sábados y domingos, feriados y de asueto, queda autorizado en casos en que se amerite para desarrollar las funciones inherentes al cargo de Viceministro(a) o cuando las necesidades institucionales así lo requieran.
+Cuando el vehículo no esté en uso por parte del Viceministro(a) deberá dejarse bajo la custodia del Departamento de Administración de Bienes y Servicios.

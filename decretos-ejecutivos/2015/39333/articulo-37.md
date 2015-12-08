@@ -1,0 +1,1 @@
+Artículo 37.—Una vez remitido el informe al Despacho Ministerial, corresponderá al Ministro(a) analizar el caso para iniciar el procedimiento administrativo, de ser procedente, tanto en lo relativo a la responsabilidad civil, como disciplinaria, dentro de los términos legalmente establecidos.

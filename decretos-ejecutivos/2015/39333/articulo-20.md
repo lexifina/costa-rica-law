@@ -1,0 +1,1 @@
+Artículo 20.—El conductor o chofer que con conocimiento de un daño causado al vehículo, propiedades o personas, lo oculte, o que incurra en un uso indebido, asumirá la responsabilidad legal que por ello pueda imputársele, pudiendo ser administrativa de índole disciplinario o civil o de ser procedente ante la vía penal.

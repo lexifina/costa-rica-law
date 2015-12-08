@@ -1,0 +1,22 @@
+Artículo 2º—Abreviaturas y definiciones. Para los efectos del presente Reglamento se entenderá por:
+Accidente de tránsito menor: El que se define en el artículo 2º del Decreto Ejecutivo Nº 39146-MOPT de 30 de julio del 2015.
+Asignación: Acción formal mediante la cual se distribuye los vehículos administrativos a las Unidades Administrativas y los Vehículos discrecionales al Ministro(a) y semidiscrecionales a los Viceministros (as), según lo establecido por la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.
+Conductor: Es aquel funcionario debidamente autorizado, que maneja ocasionalmente un vehículo a disposición del Ministerio o de sus Órganos Adscritos.
+Chofer: Aquel funcionario nombrado para conducir vehículos a disposición del Ministerio o sus Órganos Adscritos y que desempeña esas funciones en forma permanente.
+Carné: Autorización emitida por el MAG a los funcionarios para la conducción de vehículos destinados al uso oficial.
+Departamento de Administración de Bienes y Servicios o su equivalente en los órganos adscritos: Departamento dependiente de la Dirección Administrativa- Financiera, encargado de la administración, control, custodia, uso, y mantenimiento de los vehículos.
+Funcionario: Todo servidor que se desempeña a las órdenes de este Ministerio o de sus Órganos Adscritos, según lo prescribe el artículo 11 de la Ley General de la Administración Pública.
+Gira: Condición que se da cuando los funcionarios deben desarrollar labores en lugares distintos al de su centro habitual de trabajo, y que eventualmente por la lejanía respecto de la Unidad Administrativa, no sea factible la devolución del vehículo el mismo día en que se retira. En este caso deberá coincidir el lugar donde pernocta el vehículo con el lugar de la gira.
+Horario de operación: Días y horas habilitados en forma genérica para la operación normal de los vehículos oficiales, de acuerdo con las categorías que establece el presente reglamento.
+Jerarca: Ministro(a) de Agricultura y Ganadería.
+Ley de Tránsito: Ley Nº 9078 Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial del 04 de octubre del 2012.
+Ministerio: Ministerio de Agricultura y Ganadería.
+Órganos adscritos de desconcentración máxima y mínima: Corresponde al Instituto de Innovación y Transferencia en Tecnología Agropecuaria, el Servicio Nacional de Salud Animal, el Servicio Fitosanitario del Estado y al Consejo Nacional de Clubes 4-S.
+Reglamento: El presente conjunto de regulaciones específicas aplicables a todos los vehículos que se indican en el artículo 1º.
+Unidad: Vehículo.
+Unidad administrativa: Dirección, Departamento, Oficina o Sección Administrativa de las Instituciones, que tenga uno o más vehículos asignados.
+Vehículos de uso administrativo: Vehículos destinados para los servicios regulares de transporte para el desarrollo normal del Ministerio o de sus órganos de desconcentración máxima o mínima, sometidos a reglamentación especial respecto de horario de uso, recorridos, lugar de resguardo en horas no hábiles, entre otros.
+Vehículo de Uso Discrecional: Vehículo asignado al servicio del Ministro(a) del Ministerio de Agricultura y Ganadería. Estos vehículos no cuentan con restricciones en cuanto a combustible, horario de operación ni recorrido, características que asumirá, bajo su estricto criterio, el funcionario responsable de la unidad. Estos vehículos pueden portar placas particulares y no tendrán marcas visibles que los distingan como vehículos oficiales.
+Vehículos de Uso Semidiscrecional: Son aquellos vehículos asignados a los Viceministros. Estos vehículos estarán sujetos a limitaciones de horario, uso de combustible y recorrido, pero pueden portar placas particulares y no tendrán marcas visibles que los distingan como vehículos oficiales.
+Sistema informático vehicular: Herramienta de información utilizada para autorizar el uso de vehículos a los conductores y choferes, en cumplimiento de sus funciones.
+Sistemas de monitoreo de vehículos: Sistema informático que permite, realizar consultas dinámicas a los datos de posicionamiento de los vehículos, capturados mediante dispositivos con tecnología GPS, y almacenados en una base de datos, para realizar con ellos el control de gestión a través de la generación de reportes de consulta en línea, de su posición en un período determinado, generación de ruta óptima de viaje y control de alertas definidas para velocidad y tiempo de desplazamiento.

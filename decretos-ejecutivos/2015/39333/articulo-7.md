@@ -1,0 +1,1 @@
+Artículo 7º—Los vehículos de uso semidiscrecional podrán ser utilizados por el Viceministro(a) para trasladarse a los lugares que requiera en razón de su cargo y con motivo de sus funciones, lo que incluye el traslado desde y hacia su residencia.

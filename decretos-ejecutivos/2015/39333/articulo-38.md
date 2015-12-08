@@ -1,0 +1,1 @@
+Artículo 38.—Si el acto final del procedimiento administrativo o el fallo de la autoridad competente demuestran culpabilidad del conductor o chofer, se comunicará a la oficina de Recursos Humanos para lo correspondiente.

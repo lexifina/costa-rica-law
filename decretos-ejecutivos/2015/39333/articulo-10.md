@@ -1,0 +1,1 @@
+Artículo 10.—Lo concerniente a los deberes y obligaciones de los usuarios y conductores del vehículo de uso semidiscrecional, prohibiciones, sanciones administrativas, y del procedimiento a seguir en casos de accidente e infracciones de tránsito, se regirá por lo dispuesto en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 5º—De los vehículos de uso semidiscrecional. Los vehículos de uso semidiscrecional sólo podrán ser conducidos por el Viceministro(a) o el chofer institucional designado regularmente para su servicio o quien lo sustituya. Podrá ser utilizado en días hábiles, de lunes a viernes y en el momento que el Viceministro(a) requiera su servicio para el desempeño de sus funciones.

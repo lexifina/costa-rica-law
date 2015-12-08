@@ -1,0 +1,1 @@
+Artículo 14.—Los funcionarios que por situaciones especiales o de emergencia deban utilizar el vehículo oficial en un horario fuera del autorizado en el carnet o la boleta, deberán contar con el consentimiento del encargado de la Unidad Administrativa al menos de forma verbal, sin perjuicio de que éste conste por escrito posteriormente.

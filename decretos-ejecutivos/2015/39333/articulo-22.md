@@ -1,0 +1,1 @@
+Artículo 22.—Del uso de los vehículos. El Ministro, Viceministro, Oficial Mayor, Directores, Jefes de Departamento, acreditarán ante las unidades administrativas respectivas, a los funcionarios directamente subordinados, que podrán firmar las boletas de autorización de uso de vehículos oficiales.
