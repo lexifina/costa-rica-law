@@ -1,0 +1,1 @@
+Artículo 13.—La víctima como parte en el proceso. La víctima será expresamente reconocida como parte en el proceso, con todos los derechos inherentes a esta condición, incluyendo la posibilidad de ser asistida por un(a) profesional en derecho.

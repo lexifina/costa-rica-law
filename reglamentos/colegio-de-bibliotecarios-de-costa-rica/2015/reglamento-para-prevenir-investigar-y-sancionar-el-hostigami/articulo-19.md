@@ -1,0 +1,1 @@
+Artículo 19.—Término para dictar la resolución de fondo. Una vez concluida la audiencia de recepción de pruebas, el Órgano Instructor, gozará del término de ocho días hábiles, para dictar su informe ante la Junta Directiva

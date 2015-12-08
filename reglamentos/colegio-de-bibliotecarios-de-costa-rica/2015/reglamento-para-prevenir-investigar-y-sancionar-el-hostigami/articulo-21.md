@@ -1,0 +1,1 @@
+Artículo 21.—Recursos contra la resolución de fondo. La resolución de fondo, dictada por la Junta Directiva, tendrá el recurso de reconsideración. Podrán interponerse por cualquiera de las partes dentro de los tres días siguientes a la notificación.

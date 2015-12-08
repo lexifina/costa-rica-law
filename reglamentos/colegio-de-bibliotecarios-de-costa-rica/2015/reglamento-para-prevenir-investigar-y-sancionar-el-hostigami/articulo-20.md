@@ -1,0 +1,1 @@
+Artículo 20.—Evaluación de las pruebas y elaboración de la resolución de fondo. La Junta Directiva evaluará las pruebas de manera objetiva, con amplitud de criterio, utilizando la perspectiva de género, y en aplicación del principio pro víctima, en caso de duda, de conformidad con el artículo 18 de la Ley Nº 8805.

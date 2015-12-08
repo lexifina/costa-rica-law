@@ -1,0 +1,1 @@
+Artículo 27.—Normativa complementaria. En aspectos no contemplados en este Reglamento, el Colegio procederá de conformidad con lo establecido en la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia, la Ley General de Administración Pública y el Código de Trabajo.

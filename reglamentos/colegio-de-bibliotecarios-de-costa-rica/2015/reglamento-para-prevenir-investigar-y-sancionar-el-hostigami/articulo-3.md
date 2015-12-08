@@ -1,0 +1,1 @@
+Artículo 3º—Ámbito de cobertura. El presente reglamento regirá para todos los funcionarios y funcionarias del Colegio de Profesionales en Bibliotecología de Costa Rica, personas usuarias de los servicios, personal de contratación externa, así como miembros de Comisiones.

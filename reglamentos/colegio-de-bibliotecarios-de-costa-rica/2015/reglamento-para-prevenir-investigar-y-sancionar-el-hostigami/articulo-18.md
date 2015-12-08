@@ -1,0 +1,1 @@
+Artículo 18.—Evacuación de otras pruebas. Entre el momento de la comparecencia y aquél en que se lleve a cabo la audiencia de recepción de las pruebas, el Órgano Instructor, deberá evacuar o hacer llegar todo tipo de probanzas, admitidas a las partes y las que por iniciativa propia considere fundamentales, para el resultado de la investigación.

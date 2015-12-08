@@ -1,0 +1,1 @@
+Artículo 10.—Prohibición de Conciliación. Al constituir el Hostigamiento Sexual un tipo específico de violencia caracterizado por relaciones de poder asimétricas, de género, jerarquía, simbólica que aumentan los factores de riesgo y re victimización de la persona hostigada, queda prohibida la aplicación de la figura de la conciliación en todo el procedimiento.
