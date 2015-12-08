@@ -1,0 +1,2 @@
+Artículo 12.—Terminación o suspensión del trámite de cobro por arreglo o compromiso de pago: El arreglo de pago administrativo o extrajudicial efectuado en los términos previstos en este Reglamento, dará por terminado el trámite de cobro de la respectiva operación.
+En casos muy calificados, a criterio razonado y por escrito del nivel resolutivo correspondiente, mediante un compromiso de pago, se podrá suspender hasta por un período máximo de 2 meses el trámite de cobro de la operación, de conformidad con lo dispuesto en el artículo 202 inciso 3 del Código Procesal Civil.

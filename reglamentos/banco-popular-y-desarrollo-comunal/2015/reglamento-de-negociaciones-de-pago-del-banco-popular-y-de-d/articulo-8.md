@@ -1,0 +1,4 @@
+Artículo 8º—Dación en pago: Cuando la persona deudora de una operación de crédito no tenga capacidad de pago, el Banco y el sujeto de negociación podrán convenir la dación en pago del bien que constituye la garantía de la operación de crédito u otro bien de fácil liquidez que satisfaga los intereses del Banco, ya sea para la cancelación total o para efectuar un arreglo de pago de la deuda.
+En caso de efectuarse un arreglo de pago, en cuanto al saldo al descubierto, se procederá conforme a lo dispuesto en este Reglamento y se deberá garantizar la satisfacción del Banco.
+En cuanto a los avalúos, se deberán realizar según las normas establecidas por la Institución. El período de vigencia de dicho avalúo será de tres meses.
+La dación en pago debe ser aprobada por el nivel resolutivo correspondiente.

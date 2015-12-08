@@ -1,0 +1,6 @@
+Artículo 9º—Cancelación de Operaciones con un cobro judicial activo: Amparado en los principios de oportunidad y discrecionalidad contenidos en los artículos 15, 16 y 17 de la Ley General de la Administración Pública, en operaciones que tengan estado de cobro judicial o castigada administrativa, el Banco y el sujeto de negociación podrán acordar la cancelación de las operaciones de acuerdo con las siguientes condiciones mínimas:
+a) Procesos judiciales prendarios e hipotecarios:
+Se admite la posibilidad de cancelar la operación por un monto menor al de la deuda total, pero debe cobrarse como mínimo el valor del avalúo de las garantías o la suma del saldo, gastos, honorarios, pólizas y no menos de cuatro meses de intereses corrientes y moratorios, el que sea mayor.
+b) Procesos judiciales monitorios:
+Se admite la posibilidad de cancelar la operación por un monto menor al de la deuda total, pero debe cobrarse como mínimo la suma del saldo, gastos, honorarios, pólizas y no menos de cuatro meses de intereses corrientes y moratorios.
+De aprobarse la negociación se dará por terminado el cobro judicial.

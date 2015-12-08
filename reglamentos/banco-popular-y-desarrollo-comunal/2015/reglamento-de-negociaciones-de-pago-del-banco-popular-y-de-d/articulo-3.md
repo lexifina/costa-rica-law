@@ -1,0 +1,1 @@
+Artículo 3º—Dependencias autorizadas para tramitar negociaciones de pago: Toda negociación de pago puede ser resuelta, de conformidad con las facultades otorgadas a los niveles resolutivos, por cualquier oficina comercial en el país, sin consideración de tipo de línea crediticia o lugar donde haya sido constituido originalmente el crédito.
