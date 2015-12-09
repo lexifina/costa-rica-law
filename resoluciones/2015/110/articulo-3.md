@@ -1,1 +1,0 @@
-III. Establecer que los protocolos de inspección aprobados por la Intendencia de Energía de la Autoridad Reguladora, así como los formatos de declaraciones, reportes, solicitudes y demás citados en la presente resolución, se encontrarán disponibles en la página web: www.aresep.go.cr.
