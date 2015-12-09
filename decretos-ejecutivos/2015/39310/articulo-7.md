@@ -1,0 +1,1 @@
+ARTÍCULO 7: Será responsabilidad de los máximos jerarcas de las instituciones representadas en el Comité, el cumplimiento de los lineamientos establecidos en esta política en el ámbito de sus competencias, asimismo, todos los actores involucrados en la estrategia, deberán atenderlos.

@@ -1,0 +1,1 @@
+TRANSITORIO II- La estrategia y el Plan de Acción inicial de la Política Nacional de Compras Públicas Sustentables será elaborado por el Comité de Compras Públicas Sustentables en un plazo de 6 meses contado a partir la publicación de este decreto en el Diario Oficial La Gaceta.

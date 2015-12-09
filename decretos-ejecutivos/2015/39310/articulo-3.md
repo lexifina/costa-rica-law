@@ -1,0 +1,1 @@
+ARTÍCULO 3. El objetivo de la Política Nacional de Compras Públicas Sustentables, es propiciar, a través del poder de compra del Estado, la estimulación de la producción de bienes y servicios con innovación y el mejor desempeño económico, ambiental y socialmente responsable, por lo que se declara de interés público su implementación.

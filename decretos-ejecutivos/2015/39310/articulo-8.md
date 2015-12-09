@@ -1,0 +1,1 @@
+ARTÍCULO 8. El Comité Directivo de Compras Públicas Sustentables, estará sujeto en su organización interna y funcionamiento a las disposiciones de los Órganos Colegiados, contenidas en los artículos 49 y siguientes de la Ley General de la Administración Pública y demás normativa nacional.
