@@ -1,0 +1,1 @@
+Artículo 2º—El Comité Cantonal tendrá su domicilio legal en el distrito primero, Ciudad Cortés. Pudiendo variarse la sede en forma temporal y para la realización de actividades especiales, siempre dentro de la jurisdicción del cantón de Osa.

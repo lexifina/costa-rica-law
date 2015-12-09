@@ -1,0 +1,1 @@
+Artículo 46.—La Junta Directiva de cada Comité Comunal debe comunicar por escrito a la Junta Directiva del Comité Cantonal la conformación de ella por puestos. Deber incluir el nombre completo de cada miembro, su dirección exacta, número de cédula, número de teléfono y apartado o correo electrónico, si tiene, así como el puesto que ocupará.
