@@ -1,0 +1,1 @@
+Artículo 3º—De la Dirección. La planificación, dirección, vigilancia y conservación de los cementerios estará a cargo de la Administración Municipal, por medio del Departamento de Administración de Cementerios Municipales, dependencia especializada del Proceso de Desarrollo y Control Urbano.

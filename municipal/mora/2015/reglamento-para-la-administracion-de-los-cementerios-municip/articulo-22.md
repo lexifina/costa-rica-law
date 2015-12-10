@@ -1,0 +1,1 @@
+Artículo 22.—A partir del momento en que los restos de una persona han salido del cementerio y la Municipalidad salvan su responsabilidad, la cual será asumida por el solicitante y el propietario de la bóveda que firmarán el acta correspondiente.

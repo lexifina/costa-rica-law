@@ -1,0 +1,1 @@
+Artículo 23.—Cobro de servicios. La Municipalidad queda facultada para cobrar precios por los servicios de sepultura, inhumación, exhumación, mantenimiento, arrendamiento de lotes y nichos, así como cualquier otro servicio que en el futuro se brinde, de acuerdo con las tarifas que fije la autoridad competente.

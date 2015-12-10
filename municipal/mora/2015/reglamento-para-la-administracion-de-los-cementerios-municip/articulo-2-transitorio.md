@@ -1,0 +1,1 @@
+Transitorio II.—Los actuales arrendatarios de derechos de cementerio, contarán con un plazo de un año a partir de la publicación en el Diario Oficial La Gaceta del presente cuerpo normativo, para suscribir el contrato a que se refiere el artículo 11 del mismo. De no formalizarse el contrato en el plazo establecido, la Municipalidad dispondrá de las parcelas y nichos respectivos.

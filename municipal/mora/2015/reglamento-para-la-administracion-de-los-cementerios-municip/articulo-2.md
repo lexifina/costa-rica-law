@@ -1,0 +1,1 @@
+Artículo 2º—Demanialidad de los Cementerios Municipales. Se declara la demanialidad de los terrenos en los cuales se ubiquen Cementerios Municipales, de modo tal que el derecho funerario sobre una sepultura no constituye derecho de propiedad, ya que están construidas sobre solares o parcelas que son de dominio público y por tanto están fuera del comercio de las personas.

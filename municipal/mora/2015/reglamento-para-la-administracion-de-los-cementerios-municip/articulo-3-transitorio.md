@@ -1,0 +1,3 @@
+Transitorio III.—En las parcelas que por cualquier motivo queden en disponibilidad de la Municipalidad, y que contengan edificaciones no autorizadas por la normativa vigente y/o por el Departamento de Administración de Cementerios, la Administración Municipal queda en la ineludible obligación de demoler dichas construcciones, y erigir nuevos nichos de acuerdo a la conceptualización estructural aprobada para la uniformidad del Cementerio.
+Aprobado en la sesión del Concejo Municipal del cantón de Mora en la ciudad de Ciudad Colón, a las 19:00 horas del día 30 de noviembre del dos mil quince.
+Rige a partir de su publicación.
