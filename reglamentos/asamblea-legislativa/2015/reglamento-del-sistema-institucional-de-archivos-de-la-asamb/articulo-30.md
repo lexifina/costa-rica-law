@@ -1,0 +1,1 @@
+Artículo 30.—El préstamo de expedientes legislativos podrá prorrogarse por períodos iguales siempre que no interfiera en el trámite del asunto a que se refiere dicho documento. Además, son requisitos indispensables presentar el expediente para corroborar su buen estado y firmar nuevamente la tarjeta de préstamo.

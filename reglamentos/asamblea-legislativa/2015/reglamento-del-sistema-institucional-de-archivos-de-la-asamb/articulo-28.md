@@ -1,0 +1,1 @@
+Artículo 28.—El diputado o funcionario legislativo que extraviara o mutilara un expediente legislativo no podrá volver a solicitarlos para estudio fuera del Archivo, salvo autorización escrita del presidente o uno de los secretarios del Directorio.

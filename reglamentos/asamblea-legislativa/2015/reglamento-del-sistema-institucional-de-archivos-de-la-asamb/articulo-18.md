@@ -1,0 +1,1 @@
+Artículo 18.—Los encargados de los Archivos de Gestión deberán enviar los documentos al Archivo Administrativo debidamente organizados, numerados, acompañados de una lista de remisión y en unidades de conservación rotuladas, según se establezca en el manual de procedimiento y de acuerdo con el cronograma.

@@ -1,0 +1,1 @@
+Artículo 13.—Podrán ingresar a los depósitos del Departamento de Archivo los funcionarios de este y las personas debidamente autorizadas por el director de Archivo, o quien lo sustituya, y deberá estar acompañado por un funcionario.

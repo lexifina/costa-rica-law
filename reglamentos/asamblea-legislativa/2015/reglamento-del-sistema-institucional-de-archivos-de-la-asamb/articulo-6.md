@@ -1,0 +1,1 @@
+Artículo 6º—El Sistema Institucional de Archivos de la Asamblea Legislativa realizará las siguientes funciones: administrar, facilitar, conservar, clasificar, describir, ordenar, reunir y seleccionar el acervo documental de la Asamblea Legislativa, en los diferentes soportes.

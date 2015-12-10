@@ -1,0 +1,1 @@
+Artículo 32.—Al finalizar la legislatura para la cual fungió como presidente de una comisión, el diputado y el director del Departamento de Comisiones, que tiene en custodia los expedientes legislativos en calidad de préstamo del Departamento de Archivo, estarán obligados a remitir, por inventario, al director del Archivo los expedientes que obren en poder de la Comisión.

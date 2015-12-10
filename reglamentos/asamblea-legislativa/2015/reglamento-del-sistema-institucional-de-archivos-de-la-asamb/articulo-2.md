@@ -1,0 +1,1 @@
+Artículo 2º—Sistema Institucional de Archivos. Se denominará Sistema Institucional de Archivos de la Asamblea Legislativa al conjunto formado por los archivos de gestión de cada unidad productora y el Archivo Administrativo. El acervo documental está constituido por el conjunto de documentos generados, recibidos o reunidos por los departamentos y las unidades de la institución.

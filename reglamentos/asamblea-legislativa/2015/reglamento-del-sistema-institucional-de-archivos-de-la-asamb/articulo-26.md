@@ -1,0 +1,1 @@
+Artículo 26.—Para efectos de préstamos de la documentación fuera del Departamento, se utilizará una tarjeta debidamente firmada por el responsable, la cual deberá confeccionarse según lo estipulado en el manual de procedimientos. Cada usuario será responsable de los daños o pérdidas que sufran los expedientes que se les faciliten.

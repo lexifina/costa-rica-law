@@ -1,0 +1,1 @@
+Artículo 9º—Todas las unidades y las dependencias legislativas brindarán la colaboración que solicite el Archivo Administrativo, para que el Sistema Institucional de Archivos pueda cumplir con las disposiciones del presente Reglamento, en cuanto a la organización de los documentos.

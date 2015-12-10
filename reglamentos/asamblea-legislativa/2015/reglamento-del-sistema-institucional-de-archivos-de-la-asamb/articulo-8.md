@@ -1,0 +1,1 @@
+Artículo 8º—Los directores, las jefaturas y los colaboradores de los archivos de gestión serán los responsables de la custodia, la conservación, la ordenación, la clasificación y la organización de los documentos de sus respectivas oficinas.

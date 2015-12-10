@@ -1,0 +1,1 @@
+Artículo 31.—Las comisiones de la Asamblea Legislativa podrán tener, en calidad de préstamo, por el plazo que sea necesario y en su propia sede, los expedientes que necesiten para el trámite de sus proyectos o investigaciones. El presidente de la Comisión y el director del Departamento de Comisiones son solidariamente responsables de su custodia.

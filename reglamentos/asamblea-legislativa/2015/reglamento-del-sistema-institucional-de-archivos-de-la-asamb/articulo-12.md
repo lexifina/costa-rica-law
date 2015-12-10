@@ -1,0 +1,1 @@
+Artículo 12.—El Archivo Administrativo estará ubicado en las instalaciones de la Asamblea Legislativa y deberá contar con tres áreas físicas bien definidas: la Administrativa, de Consulta y Depósito Documental.

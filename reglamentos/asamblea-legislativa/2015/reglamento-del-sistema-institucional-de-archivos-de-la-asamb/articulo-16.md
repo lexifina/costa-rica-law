@@ -1,0 +1,1 @@
+Artículo 16.—Para la descripción de los documentos del Sistema Institucional de Archivos de la Asamblea Legislativa se utilizarán instrumentos descriptivos, tales como: inventarios, registros de documentación enviada y recibida, tablas de plazos de conservación y listas de remisión.

@@ -1,0 +1,1 @@
+Artículo 33.—Treinta días naturales antes de que los diputados finalicen el período constitucional para el que fueron electos entregarán al Archivo los expedientes que estén en su poder. Para ello, el Archivo emitirá un comunicado recordándoles el cumplimiento de dicha obligación.

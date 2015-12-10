@@ -1,0 +1,1 @@
+Artículo 36.—Los expedientes de personal de los funcionarios inactivos, en custodia del Archivo Administrativo, se prestarán únicamente al interesado, al Departamento de Recursos Humanos, a la Auditoría Interna en el cumplimiento de sus funciones, al Departamento de Asesoría Legal, cuando exista una investigación, y a los órganos judiciales, cuando así lo requieran.

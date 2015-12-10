@@ -1,0 +1,1 @@
+Artículo 42.—Los encargados de los archivos de gestión son los responsables de reunir la información requerida para elaborar las tablas de plazos de conservación con la asesoría del Archivo Administrativo, y deberán solicitar al Archivo Administrativo su actualización cada cinco años.
