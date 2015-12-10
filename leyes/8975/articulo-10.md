@@ -1,0 +1,4 @@
+ARTÍCULO 10.-Sanciones
+Las anteriores infracciones serán sancionadas con una multa de diez a cuarenta veces el salario base establecido en el artículo 2 de la Ley N.º 7337, de 5 de mayo de 1993, y la publicación de la resolución que ordena la sanción de conformidad con lo dispuesto en el artículo 60 de la Ley N.º 7472, Promoción de la Competencia y Defensa Efectiva del Consumidor, sin perjuicio de ordenar el decomiso de los productos o la suspensión de la publicidad hasta que sea adecuada con lo previsto en esta ley.
+La Comisión Nacional del Consumidor será la competente para aplicar las sanciones establecidas en esta ley, con total respeto al del debido proceso.
+El Ministerio de Salud velará por el cumplimiento de esta ley, en cuanto a la salud pública. En caso de incumplimiento que ponga en riesgo la salud de las personas, se aplicarán las disposiciones procedimentales y sancionatorias contenidas en la Ley General de Salud.
