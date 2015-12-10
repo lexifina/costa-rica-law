@@ -1,1 +1,0 @@
-Artículo 8º— Duración: La duración total del Trámite Simplificado y Coordinado de Inicio y Renovación de Empresas, incluyendo el procedimiento ante la Municipalidad y el procedimiento ante otras instituciones arriba descritos con excepción del Ministerio de Salud, que su otorgamiento es inmediato, será de siete días hábiles como máximo.
