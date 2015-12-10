@@ -1,3 +1,2 @@
-CAPITULO VI
-DISPOSICIONES FINALES
-Artículo 28: INTEGRACION DEL REGLAMENTO: Cualquier asunto relacionado con lamateria, no contemplado en el presente reglamento se entenderá regulado por la Ley de Administración Financiera y Presupuestos Públicos de la República y su Reglamento, la Ley de Contratación Administrativa y su Reglamento, y los lineamientos de control interno emitidos por la Contraloría General de la República.
+CAPITULO VI DISPOSICIONES FINALES
+Artículo 28: INTEGRACION DEL REGLAMENTO: Cualquier asunto relacionado con la materia, no contemplado en el presente reglamento se entenderá regulado por la Ley de Administración Financiera y Presupuestos Públicos de la República y su Reglamento, la Ley de Contratación Administrativa y su Reglamento, y los lineamientos de control interno emitidos por la Contraloría General de la República.

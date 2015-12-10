@@ -1,4 +1,5 @@
 Artículo 25: TRAMITES: Los reembolsos estipulados en el artículo anterior seguirán el siguiente trámite de reintegro de fondos:
 a) El encargado del fondo de caja chica enviará al área de Contabilidad la solicitud de reintegro de caja chica; junto con los respectivos comprobantes para su revisión. El mismo debe contener un listado donde se consigne el número del comprobante de pago, nombre del funcionario o proveedor a quien se le extendió el comprobante, número, fecha y monto de la factura, así como la cuenta contable y presupuestaria asignada según la autorización inicial.
-b) Una vez cumplido con lo establecido en el inciso anterior, se procederá a emitir el cheque a nombre del responsable del manejo de la Caja Chica.
-c) Una vez emitido el cheque de reintegro, se deberá sellar cada uno de los documentos que soporta el reintegro con la leyenda “Pagado con cheque Nº______”.
+b) Una vez cumplido con lo establecido en el inciso anterior, se procederá a reintegrar el dinero al responsable del fondo de Caja Chica, por el medio que la Dirección de Gestión Financiera considere pertinente.
+c) Una vez realizado el reintegro, se deberá sellar cada uno de los documentos que soporta el reintegro con el Sello respectivo para este trámite.
+(Reformado según el Acuerdo No.220 de la Sesión Ordinaria No.27 del Consejo Universitario del jueves 10 de diciembre de 2015.)
