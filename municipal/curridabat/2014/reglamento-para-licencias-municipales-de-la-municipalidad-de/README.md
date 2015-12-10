@@ -14,3 +14,4 @@ Reglamento para licencias municipales de la Municipalidad de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-19 | la propia norma |
+| 2 | 2015-12-10 | Reglamento municipal 294 (2015-12-10) |
