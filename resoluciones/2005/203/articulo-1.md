@@ -3772,7 +3772,6 @@ n). Permite la aplicación de cualquier Tratado de Libre Comercio (TLC) (Conveni
 7°. El DUA 01-47 podrá tener como precedente uno o más DUAs 01-46. Cada línea de mercancías del DUA 01-47 citado debe tener asociado un DUA 01- 46.
 8°. La liquidación del DAI y LEY se deberá realizar de la siguiente manera y sobre la materia prima utilizada:
 Ejemplo del Cálculo de los Aranceles a la Importación sobre los Insumos de los Bienes a Vender Localmente:
-[imagen]
 9º. En el caso anterior se debe cancelar lo correspondiente a $1.85 que corresponde a la sumatoria del monto total del DAI y la Ley 6946 ($1,47+ $0,38) al tipo de cambio vigente de venta del dólar a la fecha de aceptación del DUA 01-46 mencionado. Este monto se debe tomar en cuenta en la liquidación de los demás tributos a que esté afecta la mercancía objeto de venta local.
 DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f”
 1°. El DUA 01-47 “Ventas Locales de producto final de empresas de Zonas Francas categoría f”, debe tener las siguientes características:
@@ -3802,14 +3801,11 @@ X: Corresponde al total del Derecho Arancelario de Importación (DAI) prorratead
 Y: Corresponde al total de la Ley 6946 prorrateada.
 Ejemplo del Cálculo de Impuestos de las Mercancías sobre el Producto Final Objeto de Venta Local:
 1. Un DUA 01-47 de una sola línea y cuyo inciso arancelario esté afecto a los impuestos Selectivo de Consumo e Impuesto General Sobre las Ventas, el cálculo sería el siguiente:
-[imagen]
 Donde el 1.47 corresponde al monto total del DAI del DUA 01- 46 y el 0,38 corresponde al monto total de la Ley 6946 del DUA 01-46.
 2. Un DUA 01-47 con dos líneas cuyo incisos arancelarios estén afectos a Selectivo de Consumo e Impuesto de Ventas, el cálculo sería el siguiente:
 Monto de DAI correspondiente por línea (DUA 01-46): 1,47/2 = 0,735 por línea.
 Monto de Ley 6946 correspondiente por línea (DUA 01- 46): 0,38/2 = 0,19 por línea.
-[imagen]
 3. Un DUA 01-47 con una sola línea y cuyo inciso arancelario este afecto al Impuesto de Ventas, el cálculo sería el siguiente:
-[imagen]
 Donde el 1.47 corresponde al monto total del DAI del DUA 01-46 y el 0.38 corresponde al monto total de la Ley 6946 del DUA 01-46. En este caso el inciso estaría afecto a solo el impuesto de ventas.
 B.- Actuación de la Empresa de Zonas Francas
 1°) La empresa responsable de la venta local previo a la entrega de la mercancía, deberá consultar en la aplicación informática la Autorización del Levante de los respectivos DUAs de Venta Local.
@@ -4345,14 +4341,15 @@ IV.—Políticas Generales
 7) El agente o agencia de aduanas en representación del beneficiario del régimen, deberá presentar un DUA de importación bajo la modalidad que se defina para tal fin, declarando en ese DUA únicamente los insumos, envases o embalajes sujetos al régimen de devolutivo de derechos.
 8) El beneficiario, agente o agencia de aduanas que lo represente, deberá declarar en el DUA de exportación bajo la modalidad que se defina para tal fin, únicamente las mercancías en las que utilizó los insumos, envases o embalajes importados al amparo del régimen devolutivo de derechos.
 9) La exportación de las mercancías a las que se les incorporaron los insumos, envases y embalajes deberá realizarse en el plazo máximo de doce meses, contabilizados a partir de la fecha de aceptación del DUA de importación y hasta la fecha de confirmación del DUA de exportación.
-10) Todo DUA de exportación que se consigne en la solicitud de devolución de tributos deberá estar debidamente confirmado (estado ORI) por la gestión propia del declarante. Los DUAs finiquitados automáticamente por el sistema (confirmación automática) no serán aceptados para efectos de devolución.
+10) Todo DUA de exportación que se consigne en la solicitud de devolución de tributos deberá estar debidamente confirmado (estado ORI)
+(Así reformado la política anterior por resolución RES-SUB-DGA-495 del 11 de diciembre de 2015)
 11) Toda solicitud para la devolución de tributos pagados al amparo del régimen deberá ser presentada ante la Gerencia de Operaciones de PROCOMER, utilizando el formulario denominado “Formulario para Devolución de Derechos” que se encuentra disponible en el sitio web oficial de dicha entidad: www.procomer.com. Además, la solicitud debe cumplir con los requisitos establecidos en el artículo 14 del Reglamento al Régimen de Devolutivo de Derechos.
 12) De conformidad con lo que dispone el artículo 43 del Código de Normas y Procedimientos Tributarios, el beneficiario dispone de un plazo máximo de tres años, para reclamar la devolución de los tributos, contado el mismo a partir de la fecha de confirmación del DUA de exportación (40-42) denominada “Exportación con Devolutivo de Derechos”
 (Así reformado el numeral anterior mediante resolución RES-DGA-178 del 27 de julio del 2011).
 13) Las montos por concepto de tributos por devolver, serán depositados en la (*)cuenta de fondos registrada exclusivamente a nombre del beneficiario. Una vez autorizado, cualquier cambio en dicha (*) cuenta de fondos, deberá ser actualizado ante el Depto de Registro, aportando la certificación de la entidad bancaria.
 (*)(Así reformado mediante resolución DGA-366 del 23 de noviembre del 2009)
 14) Para los casos en que resulte improcedente la devolución de los tributos, una vez en firme el acto resolutivo, la aduana de control remitirá copia del mismo a la Contabilidad Nacional , a efecto de que ésta traslade los ingresos correspondientes de la cuenta de pasivos a la cuenta de ingresos, lo anterior hasta tanto se establezca un sistema electrónico para esos efectos.
-15) La aduana de control remitirá un reporte a la Contabilidad Nacional de los DUAs de importación, modalidad devolutivo de derechos, para los que transcurrido el plazo de un año desde su aceptación, no existe un DUA de exportación asociado. Dicho reporte incluirá un detalle de los fondos que deben ser trasladados a la Tesorería Nacional para su disposición.
+15) (Suprimida por resolución RES-SUB-DGA-495 del 11 de diciembre de 2015)
 16) El funcionario responsable en la aduana de control, una vez en firme acto resolutivo, deberá registrar en la casilla de observaciones de los distintos DUAs de importación, los números de las líneas del DUA a las cuales se les aplicó la devolución o la denegatoria. Dicho registro solo puede ser efectuado por el funcionario aduanero que preparó en el acto resolutivo.
 17) El beneficiario que cambie su proceso productivo, deberá actualizar por escrito en el Depto. de Registro, previo a realizar las importaciones, la lista de insumos, envases y embalajes; caso contrario no se le autorizará la devolución para esos nuevos insumos, envases y embalajes. Igualmente es responsabilidad del beneficiario actualizar en ese Departamento la información o documentación presentada originalmente.
 18) Con base en la documentación que aportan los beneficiarios del régimen para actualizar su información, el Depto de Registro deberá actualizar el expediente y remitir a COMEX, PROCOMER y a la Aduana de Control una copia de la nueva documentación.
