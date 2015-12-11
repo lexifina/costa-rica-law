@@ -1,0 +1,1 @@
+Artículo 3º—Otras acciones: La Administración del BANHVI podrá establecer otras acciones preventivas o correctivas, tendientes a mejorar la calidad del servicio que brindan las entidades autorizadas del Sistema Financiero Nacional para la Vivienda. De previo a modificar aquellas establecidas en el artículo anterior, lo someterá a conocimiento de la Junta Directiva del BANHVI.

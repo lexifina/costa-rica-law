@@ -1,0 +1,14 @@
+BANCO HIPOTECARIO DE LA VIVIENDA
+La Junta Directiva del Banco Hipotecario de la Vivienda en su sesión Nº 73-2015, del 23 de noviembre del 2015, tomó el acuerdo N° 18, que indica lo siguiente:
+“Acuerdo N° 18:
+Considerando:
+Primero: Que por medio del acuerdo N° 4 de la sesión 57-2015 del 03 de setiembre de 2015 y atendiendo lo indicado por la Contraloría General de la República en la disposición 4.3 del informe DFOE-EC-IF-12-2015, esta Junta Directiva aprobó y sometió a consulta de los interesados, un proyecto de “Reglamento de acciones correctivas en el Sistema Financiero Nacional para la Vivienda”, cuyo objetivo es normar las facultades que tiene el BANHVI para investigar las faltas u omisiones que cometan las entidades autorizadas del Sistema Financiero Nacional para la Vivienda, particularmente en el trámite de proyectos de vivienda y que hacen incurrir a este Banco en costos adicionales por la necesidad de invertir en reprocesos, de conformidad con los procedimientos administrativos o los procesos judiciales que sean aplicables y que al efecto se decida entablar de acuerdo con la legislación vigente en la materia.
+Segundo: Que una vez valoradas las observaciones que sobre dicho proyecto de reglamento han sido presentadas por entidades autorizadas y organizaciones del sector vivienda de interés social, la Gerencia General, por medio del oficio GG-ME-0925-2015 del 16 de noviembre de 2015, somete a la consideración de este Órgano Colegiado un texto definitivo de reglamentación
+Tercero: Que en cuanto a la tipificación de los diversos tipos de incumplimientos, contenida en la versión del reglamento sometida a consulta, se considera que lo pertinente es que esos temas, por tratarse de materia sancionatoria, se aborden mediante un proyecto de ley.
+Cuarto: Que conocida la propuesta de la Administración y una vez efectuadas las modificaciones que se han estimado pertinentes, lo que procede es aprobar y emitir, para su debida implementación, el respectivo reglamento de acciones correctivas en cuanto al trámite de proyectos de vivienda ante la Dirección FOSUVI.
+Por tanto, de conformidad con lo expuesto y con base en lo establecido en el artículo 112, inciso 3, de la Ley General de la Administración Pública, y el artículo 26, incisos ch) y d), de la Ley del Sistema Financiero Nacional para la Vivienda, se acuerda:
+I.—Aprobar el siguiente:
+REGLAMENTO DE ACCIONES CORRECTIVAS
+EN CUANTO AL TRÁMITE DE PROYECTOS
+DE VIVIENDA ANTE LA DIRECCIÓN FOSUVI
+Artículo 1º—Objetivo: El BANHVI pondrá en práctica acciones correctivas tendientes a mejorar sus labores y las que realizan las entidades autorizadas del Sistema Financiero Nacional para la Vivienda, vinculadas con el trámite de solicitudes de financiamiento para proyectos de vivienda y operaciones individuales de bono familiar de vivienda ante la Dirección FOSUVI.

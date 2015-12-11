@@ -1,0 +1,1 @@
+Artículo 6º—Procedimientos administrativos o judiciales: Sin perjuicio de las acciones correctivas previstas en este reglamento, cuando las circunstancias del caso lo ameriten el BANHVI podrá dar inicio a procedimientos administrativos o judiciales en relación con acciones u omisiones de una entidad autorizada, con sujeción a las disposiciones legales y reglamentarias aplicables.
