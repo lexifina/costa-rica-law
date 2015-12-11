@@ -14,3 +14,4 @@ Declara estado de emergencia la situación generada por la sequía que afecta ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-30 | la propia norma |
+| 2 | 2015-12-11 | Decreto Ejecutivo 39530 (2015-12-11) |
