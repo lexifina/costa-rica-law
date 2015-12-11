@@ -1,0 +1,1 @@
+Transitorio I.—Las plantas de proceso contarán con un plazo de seis meses calendario contados a partir de la vigencia del presente Reglamento, para cumplir con lo establecido en el artículo 16, inciso 1).

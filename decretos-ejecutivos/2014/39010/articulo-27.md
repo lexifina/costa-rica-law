@@ -1,0 +1,2 @@
+Artículo 27.—Los requisitos de manipulación serán los indicados en el presente artículo. Adicionalmente en los barcos regirán por lo establecido en el Capítulo IX del presente Reglamento.
+En el momento de su utilización, las partes del barco o los contenedores reservados para el almacenamiento y manipulación de los productos de la pesca deberán conservarse limpios y en buen estado de mantenimiento y en particular, no podrán ser contaminados por el carburante o el agua de las sentinas.
