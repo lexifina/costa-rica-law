@@ -1,0 +1,1 @@
+III.—Deróguese: R-SC-1-2007, Directrices que deben observar las auditorías internas para la verificación de las disposiciones emitidas por la Contraloría General de la República, N.°D-3-2007-CO-DFOE. Publicada en La Gaceta 126 del 02 de julio de 2007.
