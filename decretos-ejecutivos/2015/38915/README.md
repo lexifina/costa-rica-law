@@ -14,3 +14,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-27 | la propia norma |
+| 2 | 2015-12-14 | Decreto Ejecutivo 39406 (2015-12-14) |
