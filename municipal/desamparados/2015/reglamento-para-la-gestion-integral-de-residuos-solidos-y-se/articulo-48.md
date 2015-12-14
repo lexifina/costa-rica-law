@@ -1,0 +1,1 @@
+Artículo 48.—Cobro de la tasa. El cobro de la tasa por este servicio se realizará al propietario o poseedor, de acuerdo a la cantidad de unidades habitacionales, patentados o entes estatales, ubicados dentro de la propiedad.
