@@ -1,0 +1,2 @@
+JUNTA DE PROTECCIÓN SOCIAL
+Artículo 1º—Objeto. El objeto del presente procedimiento es el de regular los aspectos relacionados con la promoción establecida para el otorgamiento de premios adicionales, con motivo de la realización del Sorteo Extraordinario de Navidad del año 2015, aprobada por la Junta Directiva de la Junta de Protección Social según acuerdo JD-724, correspondiente al artículo V), inciso 5) de la sesión ordinaria N° 36-2015 celebrada el 15 de octubre, 2015, como parte de la estrategia de comercialización para este producto.
