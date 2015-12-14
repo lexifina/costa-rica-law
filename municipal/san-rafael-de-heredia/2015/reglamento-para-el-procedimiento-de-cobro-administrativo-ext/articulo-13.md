@@ -1,0 +1,1 @@
+Artículo 13.—La dirección y control, tanto de las acciones, como las gestiones de cobro judicial estarán a cargo de del Departamento de Administración Tributaria en coordinación con los asesores legales externos que se contraten y el Departamento Legal de la Municipalidad.

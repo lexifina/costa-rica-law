@@ -1,0 +1,7 @@
+CAPÍTULO III
+De los arreglos de pago
+Artículo 18.—El arreglo de pago es el compromiso que asume el contribuyente moroso de cancelar en tiempo perentorio de acuerdo con lo dispuesto en este Reglamento, la cuenta que adeuda a la Municipalidad de San Rafael de Heredia. Las personas interesadas en un arreglo, deberán presentar solicitud escrita para tales efectos. El arreglo de pago se otorgará por parte del Departamento de Cobro, el que debe contar con el Visto Bueno de la Jefatura para lo cual ésta valorará las siguientes condiciones del sujeto pasivo:
+a. Existencia y Verificación de la deuda. El Departamento de Cobro se encargará de verificar todos los datos relativos a la deuda sujeta al arreglo de pago.
+b. Interés del sujeto pasivo. El sujeto pasivo debe mostrar voluntad y compromiso para cumplir con el arreglo de pago que proceda.
+De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente; el plazo máximo para la cancelación total de la deuda vencida, será de seis meses, excepto en casos debidamente documentados a personas en estado de pobreza extrema, en los que el plazo máximo no podrá exceder los doce meses, previo análisis y resolución del Departamento de Cobro, contando con el visto bueno de la Alcaldía Municipal y del Concejo Municipal.
+En el caso de personas jurídicas, la solicitud deberá ser firmada por el representante legal o apoderado generalísimo y deberá aportar la certificación de personería jurídica correspondiente.

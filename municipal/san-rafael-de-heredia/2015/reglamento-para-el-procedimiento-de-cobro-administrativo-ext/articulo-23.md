@@ -1,0 +1,1 @@
+Artículo 23.—Toda la documentación relativa a arreglos de pago estará en custodia del Departamento de Cobro, la cual en su oportunidad y de ser necesario realizará las gestiones de cobro judicial correspondiente.
