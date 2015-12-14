@@ -1,1 +1,0 @@
-Artículo 17.—Las organizaciones beneficiadas no deberán mantener por más de un periodo partidas sin ejecutar, cuyo plazo será de un año, el cual iniciará a partir del momento en que haga retiro de los fondos.

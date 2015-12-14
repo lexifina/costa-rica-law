@@ -1,1 +1,0 @@
-Artículo 27.—Aquellas liquidaciones presentadas con errores o incompletas, la Oficina de Planificación les otorgará un plazo de 15 días naturales, luego de la notificación, para la subsanación de las mismas. En caso de omitir dicha subsanación la Municipalidad no girará más recursos, así como procederá a presentar las denuncias correspondientes.

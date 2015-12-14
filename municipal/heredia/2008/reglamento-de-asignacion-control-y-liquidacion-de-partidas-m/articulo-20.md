@@ -1,1 +1,0 @@
-Artículo 20.—Si una vez ejecutado el proyecto, quedase un saldo de la partida, podrán solicitar el cambio de destino al Concejo Municipal. El Concejo Municipal puede aprobar la solicitud planteada y comunicarlo al Departamento de Control de Presupuesto de la Contraloría General de la República, para que tomen nota del cambio realizado.

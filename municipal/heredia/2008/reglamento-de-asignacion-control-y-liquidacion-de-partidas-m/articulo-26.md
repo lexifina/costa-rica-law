@@ -1,1 +1,0 @@
-Artículo 26.—Cuando se trate de obras de infraestructura, deberán aportar un informe técnico suscrito por el profesional a cargo de la obra, detallando que la misma cumplió con las especificaciones técnicas que mediaron la aprobación del proyecto.

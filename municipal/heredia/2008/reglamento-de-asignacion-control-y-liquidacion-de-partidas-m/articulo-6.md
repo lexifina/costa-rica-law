@@ -1,1 +1,0 @@
-Artículo 6º—Las organizaciones beneficiarias, deberán considerar dentro de los costos del proyecto, los montos correspondientes a los honorarios y gastos del profesional que elaborará las especificaciones técnicas del proyecto que van a ejecutar con la partida municipal que recibirán.

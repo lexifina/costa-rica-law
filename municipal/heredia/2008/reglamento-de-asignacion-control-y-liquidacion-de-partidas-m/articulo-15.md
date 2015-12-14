@@ -1,1 +1,0 @@
-Artículo 15.—El Departamento de Ingeniería remitirá informe de avance de cada inspección realizada a cada organización con copia a la Oficina de Planificación, así como de la finalización de los proyectos.

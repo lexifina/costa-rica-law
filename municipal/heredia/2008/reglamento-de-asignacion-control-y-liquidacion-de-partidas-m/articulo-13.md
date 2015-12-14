@@ -1,1 +1,0 @@
-Artículo 13.—Una vez que el Departamento de Ingeniería esté notificado de que la obra ha sido adjudicada, coordinará con el responsable del Proyecto por parte de la Organización para que se inicie el proceso de seguimiento e inspección de los proyectos e implemente la utilización de una bitácora por cada proyecto.
