@@ -1,0 +1,11 @@
+Artículo 8º—Funciones del Síndico y del Concejo de Distrito encargado del proceso de recomendar las Becas. Serán funciones del Síndico y del Concejo de Distrito encargados del proceso de recomendar las becas, las siguientes:
+a) Realizar la campaña de divulgación para los posibles beneficiarios de una beca municipal en el tiempo previsto en este Reglamento, comunicando el proceso de becas, así como cualquiera otra información que deba ponerse en conocimiento.
+b) Distribuir el formulario de solicitud de las becas nuevas y de renovación.
+c) Realizar la valoración socioeconómica de la persona solicitante de la beca y su núcleo familiar, análisis que según con los elementos considerados permitirán emitir una recomendación en lo referente a la aprobación o desaprobación de la beca solicitada.
+d) Conformar expedientes para cada una de las personas solicitantes de una beca. Dicho expediente deberá contener el formulario de solicitud de beca, los documentos solicitados en este Reglamento y aquellos documentos que se aportaron para la aprobación y beneficio de la beca.
+e) Salvaguardar los expedientes antes de ser enviados a la Comisión Especial de Becas Municipal.
+Para garantizar esta labor se seguirán los procedimientos internos que considere cada Concejo de Distrito.
+f) Elaborar el acta y enviar copia a la Comisión Especial de Becas Municipal, se debe adjuntar la lista definitiva de las personas estudiantes recomendadas a una beca.
+g) Verificar periódicamente con los centros educativos y semestralmente con los informes de calificaciones que las personas becadas deben presentar, que el estudiante se encuentre activo en el sistema educativo.
+h) Realizar antes del inicio de cada semestre, un cruce de información con las instituciones públicas y organizaciones que brindan subsidio a estudiantes, con el fin de verificar que las personas beneficiadas por la Municipalidad con una beca no están recibiendo un subsidio para este fin.
+En caso de detectar alguna duplicidad, comunicarse con el padre, madre o persona representante del estudiante quien deberá renunciar a alguna de las dos becas y presentar documento probatorio. De no cumplir con lo anterior, procederá a enviar el reporte a la Comisión de Becas para que se proceda a suspender el otorgamiento del subsidio.
