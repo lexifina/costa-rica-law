@@ -1,0 +1,2 @@
+Artículo 3º—Ámbito de aplicación. El presente reglamento, regirá para toda la Municipalidad incluido el Concejo Municipal en pleno, los funcionarios(as), empleados(as), colaboradores municipales, tanto propietarios(as) como interinos(as), y comisiones.
+La Alcaldía Municipal deberá asegurar que en las denuncias de hostigamiento sexual, se garantice la confidencialidad y sancionar a las personas hostigadoras según los criterios existentes en la materia.
