@@ -1,7 +1,2 @@
-Artículo 2º.- La escuela impartirá los cursos necesarios para que los
-alumnos adquieran el lenguaje hablado en todas sus fases educativas,
-contando para esto con el personal necesario debidamente capacitado y con
-el equipo y materiales que tal enseñanza exija. La enseñanza pre-primaria
-y primaria de los programas oficiales del Ministerio de Educación Pública
-se da en las mismas edades en que la reciben los niños que no tienen
-defectos de audición.
+Artículo 2.- La escuela impartirá los cursos necesarios para que los alumnos adquieran las habilidades y los conocimientos necesarios en todas sus fases educativas, contando para esto con el personal necesario debidamente capacitado y con el equipo y materiales que tal enseñanza exija, según los programas oficiales del Ministerio de Educación Pública para Preescolar, Primaria y Educación Especial.
+(Así reformado por el artículo 2° de la ley N° 9337 del 11 de noviembre del 2015)

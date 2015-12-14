@@ -1,5 +1,2 @@
-Artículo 5º.- Para el buen resultado de sus actividades la escuela
-incluirá en sus programas la capacitación e instrucción sistemática de los
-padres de familia, con el fin de que los niños reciban permanentemente una
-instrucción precisa y adecuada en su hogar que prolongue los beneficios de
-la escuela.
+Artículo 5.- Para el buen resultado de sus actividades, la escuela incluirá en sus programas la capacitación e instrucción sistemática de los padres de familia, con el fin de que la población estudiantil reciba permanentemente una instrucción precisa y adecuada en su hogar, que prolongue los beneficios de la escuela.
+(Así reformado por el artículo 2° de la ley N° 9337 del 11 de noviembre del 2015)
