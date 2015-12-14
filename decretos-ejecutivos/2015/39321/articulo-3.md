@@ -1,0 +1,1 @@
+Artículo 3º—El Ministro de Trabajo y Seguridad Social, a través del Consejo de Salud Ocupacional, coordinará con las instituciones involucradas para emitir un Plan Nacional de Salud Ocupacional dentro de un plazo no mayor a los seis meses posteriores a la promulgación del presente decreto. Este Plan podrá ser revisado, para su actualización, cada cuatro años.
