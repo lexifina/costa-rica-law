@@ -1,5 +1,5 @@
-Artículo 8º—De las Unidades Técnicas Especializadas. Las Unidades Técnicas Especializadas tendrán las mismas funciones y responsabilidades que las demás Dependencias solicitantes cuando requieran gestionar la contratación de bienes y servicios.
-Adicionalmente, en virtud de su conocimiento especializado en su campo, corresponde a las Unidades Técnicas Especializadas (Unidad de Informática, Unidad de Salud Ocupacional, Unidad de Archivo, Unidad de Recursos Humanos u otra que se defina) las siguientes funciones y responsabilidades:
+Artículo 8°—De las Unidades Técnicas Especializadas. Las Unidades Técnicas Especializadas tendrán las mismas funciones, plazos y responsabilidades que las demás Dependencias solicitantes según el Artículo 6 de este Reglamento cuando requieran gestionar la contratación de bienes y servicios.
+En esos casos, deberán designar un “Encargado de Contratos” para la contratación respectiva, quien tendrá las responsabilidades establecidas en el artículo 4 de este Reglamento.
 a. Centralizar las necesidades institucionales sobre las materias que correspondan.
 b. Presupuestar los recursos necesarios para las necesidades institucionales en el área de su conocimiento.
 c. Mantener una participación activa en la definición de las necesidades de adquisición de los bienes y servicios que corresponden a su campo, lo que incluye:
@@ -7,11 +7,6 @@ i. Emitir recomendaciones al nivel jerárquico que corresponda en cuanto a tende
 ii. Implementar políticas periódicas de renovación de bienes (cuando corresponda) previo proceso de aprobación, según los procedimientos internos o externos (si fuera el caso) procedentes.
 iii. Implementar, según corresponda para el área de su conocimiento, modelos de atención para mantener los equipos y/o garantizar la prestación de servicios requeridos a nivel institucional (servicios continuos para el mantenimiento de equipos, servicios diversos u otros). Para ello deberá coordinar con las Dependencias que resulte pertinente (Departamento Administrativo, UPSG, usuarios, u otros).
 iv. Efectuar recomendaciones en el campo de su especialidad y previo a la aprobación del presupuesto respectivo, sobre aspectos que deben tener en cuenta las Dependencias solicitantes, para la adquisición de bienes y servicios que éstas realizan. Dichas recomendaciones deberán coordinarse con el Departamento Financiero Contable, con el Departamento Administrativo o con la Unidad de Proveeduría según corresponda.
-d. Otorgar el visto bueno a las órdenes de inicio de las Dependencias Solicitantes.
-e. Realizar (cuando corresponda) estudios de mercado sobre los costos de los bienes o servicios que se desean contratar.
-f. Elaborar las especificaciones técnicas de los bienes y servicios a contratar en el ámbito de su área de conocimiento, atendiendo el ordenamiento jurídico y verificando el cumplimiento de los principios de contratación administrativa. En materia propia de contratación administrativa podrá apoyarse en la UPSG.
-g. Realizar el análisis técnico de las ofertas de los bienes y servicios a contratar en el ámbito de su área de conocimiento, en el lapso dispuesto en el cronograma del procedimiento y de conformidad con lo establecido en el cartel y en general en el ordenamiento jurídico. En materia de contratación administrativa podrá apoyarse y recibir asesoría de la UPSG.
-h. Solicitar a la UPSG que se realicen las solicitudes de subsanación técnica a los oferentes, cuando corresponda.
-i. Dar recibo a conformidad a los bienes y servicios y remitirlo formalmente a la UPSG. Caso contrario, debe informar a la UPSG si se ha presentado un incumplimiento de las obligaciones contractuales a efecto de que ésta última valore las medidas a aplicar.
-j. Durante la ejecución de los contratos derivados de los procedimientos de contratación administrativa de su área de conocimiento, fungir como contraparte y velar por la correcta ejecución de cada una de las obligaciones indicadas en el cartel, la orden de compra y/o el contrato, según corresponda, es decir, debe verificar que los bienes o servicios sean entregados/prestados según los términos pactados.
-mm. Cualquier otra función, concordante con su competencia, que le sea asignada.
+d. Otorgar el visto bueno a las “Solicitudes de Contratación” de las Dependencias Solicitantes.
+b. Cualquier otra función, concordante con su competencia, que le sea asignada.
+(Así reformado mediante sesión ordinaria N° 10-2015 del 15 de diciembre del 2015)

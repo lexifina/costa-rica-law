@@ -14,3 +14,4 @@ Reglamento interno de contratación administrativa del Fondo Nacional de Financi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-03 | la propia norma |
+| 2 | 2015-12-15 | Reglamento 10 (2015-12-15) |

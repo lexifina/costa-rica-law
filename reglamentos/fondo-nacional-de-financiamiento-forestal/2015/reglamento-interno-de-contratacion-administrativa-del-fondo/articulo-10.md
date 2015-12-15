@@ -1,11 +1,15 @@
-Artículo 10.—De la Comisión de Adjudicaciones.
-A la Comisión de Adjudicaciones le corresponde:
+Artículo 10.—De la Comisión de Adjudicaciones1. A la Comisión de Adjudicaciones le corresponde:
+1 Conformada por la Junta Directiva en Acuerdo Sexto, Sesión Ordinaria No. 04-2013 del 11 de julio de 2013.
 a. Tomar la decisión final adoptar en los procedimientos de contratación administrativa, según lo siguiente:
 i. En Contrataciones Directas: Se constituirá por el proveedor institucional y la jefatura del Departamento Administrativo. En caso de compras de cuantía mayor al nivel de contrataciones directas, tramitadas por excepción, corresponderá adjudicarlas, según se hubiera tenido que realizar por la cuantía.
-ii. En Licitaciones Abreviadas: Se constituirá por la Jefatura del Departamento Administrativo, el (la) Proveedor (a) Institucional, el Titular del Programa Solicitante o su representante y el Director de la Dirección Jurídica o quien éste designe.
+ii. En Licitaciones Abreviadas: Se constituirá por la Jefatura del Departamento Administrativo, el (la) Proveedor(a) Institucional, el Titular del Programa Solicitante o su representante y el Director de la Dirección Jurídica o quien éste designe.
 iii. En Licitaciones Públicas: Se constituirá por el Director Administrativo Financiero, la Jefatura del Departamento Administrativo, el Proveedor Institucional, el Titular del Programa o su representante y el Director de la Dirección Jurídica o quien éste designe.
-b. Emitir sus actos con estricto apego a la normativa de contratación administrativa. Para poder apartarse de dicho criterio deberán mediar razones técnicas de igual naturaleza.
+b. Emitir sus actos con estricto apego a la normativa de contratación administrativa y en un plazo no mayor a 8 días hábiles. Para poder apartarse de dicho criterio deberán mediar razones técnicas de igual naturaleza.
 c. La competencia de la Comisión de Adjudicaciones para tomar la decisión final, incluye declarar infructuoso, desierto o readjudicar un procedimiento de contratación administrativo o renglón de éste, considerando (para la conformación de la Comisión de Adjudicaciones) la cuantía como si hubiera tenido que adjudicar. Deberá tomarse en cuenta, lo dispuesto en el artículo 86 del Reglamento a la Ley de Contratación Administrativa.
 d. En otro tipo de procedimientos de contratación administrativa (remates, subasta a la baja, tipos abiertos u otros legalmente aplicables) para conformar la Comisión de Adjudicaciones se considerará la cuantía y en caso de no poder determinarse ésta, la decisión final será tomada por la Comisión de Adjudicaciones conformada como si se tratara de una Licitación Pública.
 e. Corresponderá también a la Comisión de Adjudicaciones (conformada con los mismos miembros que realizaron la adjudicación) la aprobación de modificaciones de contratos.
 f. Cualquier otra función, concordante con su competencia, que le sea asignada.
+En caso de que la Dependencia solicitante presente las “Solicitudes de Contratación” en fecha posterior a la definida por la UPSG, deberá acompañarse la justificación respectiva.
+Los procedimientos de contratación administrativa para adquirir bienes y servicios deben llevarse a cabo dentro del ordenamiento jurídico, atendiendo lo dispuesto para cada etapa en la Ley de Contratación Administrativa y su Reglamento.
+Asimismo, durante todo el proceso y como responsabilidad de todas las Dependencias involucradas en éste, deberá privar el interés público y aplicarse los más altos valores que rigen la contratación administrativa y la función pública.
+(Así reformado mediante sesión ordinaria N° 10-2015 del 15 de diciembre del 2015)
