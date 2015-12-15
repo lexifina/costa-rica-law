@@ -1,0 +1,1 @@
+Artículo 26.—Control de usuarios. El Archivo Central llevará el control de los usuarios de consulta, mediante la utilización de una fórmula llamada Registro de Usuarios.
