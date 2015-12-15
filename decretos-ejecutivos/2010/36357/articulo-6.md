@@ -1,1 +1,0 @@
-Artículo 6º—El CNREE deberá difundir información de interés contenida en el RED, asegurando que la misma se divulgue en un formato accesible. Para ello deberá respetar la confidencialidad de la información ahí contenida.

@@ -1,1 +1,0 @@
-Artículo 2º—El Instituto Nacional de Estadística y Censos (INEC) será el encargado de recopilar la información necesaria para la construcción y actualización del RED, y para tal efecto se utilizará el Núcleo Básico de Discapacidad, la Boleta de Salud y cualquier otro instrumento elaborado por el CNREE para esta finalidad.

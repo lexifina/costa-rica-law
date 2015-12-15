@@ -1,1 +1,0 @@
-Artículo 3º—El CNREE y el INEC crearán una comisión encargada de coordinar la recopilación de datos para la construcción y actualización del RED, la cual deberá sesionar como mínimo una vez cada tres meses.
