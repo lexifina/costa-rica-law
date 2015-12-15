@@ -1,0 +1,5 @@
+Segundo: Adiciónese un artículo 24 bis que se leerá así:
+“Artículo 24 Bis-
+El Alcalde de la Municipalidad de Belén, deberá planificar la celebración del día del Régimen Municipal los días 31 de agosto de cada año, mediante la realización de actos cívicos y el patrocinio de ciclos de conferencias, concursos literarios y artísticos, seminarios y otros actos culturales, alusivos a la conmemoración de esta fecha.
+En estas actividades serán incorporados e invitados con la debida antelación los regidores propietarios, los regidores suplentes, los síndicos y los demás miembros de los Concejos de Distrito.
+Esta fecha no se considerará feriado y los funcionarios municipales tendrán la obligación de asistir a las actividades programadas para su celebración, salvo el caso de que aquellos que por sus funciones deban continuar laborando con el fin de garantizar la continuidad de los servicios públicos brindados por la Municipalidad.”
