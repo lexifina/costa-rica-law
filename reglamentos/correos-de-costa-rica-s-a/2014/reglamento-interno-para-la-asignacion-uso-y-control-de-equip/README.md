@@ -14,3 +14,4 @@ Reglamento interno para la asignación, uso y control de equipos de telefonía m
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-29 | la propia norma |
+| 2 | 2015-12-15 | Reglamento 2503 (2015-12-15) |
