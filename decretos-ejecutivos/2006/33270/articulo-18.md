@@ -9,3 +9,6 @@ Artículo 18.—Además de lo contemplado en el artículo anterior y en otros de
 8- Autorizar o permitir la realización de jornada extraordinaria, cuando no se haya obtenido la autorización previa, de conformidad con lo dispuesto por el Reglamento para la Autorización, Reconocimiento y Pago del Tiempo Extraordinario del Ministerio y sus Órganos Desconcentrados, Decreto Ejecutivo número 34720 del 18 de junio del 2008 publicado en el Diario Oficial La Gaceta número 167 del 29 de agosto del 2008.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35592 del 13 de julio de 2009)
 9. Realizar nombramientos de personal al margen de lo legalmente estipulado.
+10. Incurrir en prácticas discriminatorias hacia cualquier persona servidora o usuaria de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad.
+En caso de recibir alguna denuncia, ya sea de manera personal o por interpósita persona, de que algún Director o Jefe de Departamento de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.
+(Así adicionado el inciso 10) anterior por el artículo 1° del decreto ejecutivo N° 39402 del 15 de diciembre del 2015)

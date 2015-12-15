@@ -1,4 +1,4 @@
-Artículo 64.—Los Directores y Jefes inmediatos, previa comunicación al Departamento de Recursos Humanos, concederán licencia a sus subalternos, hasta por una semana con goce de salario, en caso de matrimonio del servidor, de fallecimiento de cualquiera de sus padres, hijos, hermanos o cónyuge.
-Podrá concedérsela esta licencia al servidor en el caso del nacimiento de un hijo, ya sea que haya nacido dentro o fuera del matrimonio, en este último caso solo cuando sean hijos reconocidos y en su función paternal.
-Tratándose de nupcias, la licencia será concedida a solicitud del servidor, en la fecha de su matrimonio.
-En los casos de nacimiento o de fallecimiento, la licencia debe ser solicitada por el servidor a su Jefe inmediato, dentro de lo posible en el transcurso del día en que ocurre el hecho.
+Artículo 64.-Los Directores y Jefes inmediatos, previa comunicación a la Oficina de Gestión Institucional de Recursos Humanos, concederán licencia a sus subalternos, hasta por una semana con goce de salario, en caso de matrimonio de la persona servidora, por el fallecimiento de cualquiera de sus padres, hijos, hermanos, cónyuge, compañero (a) de hecho o compañero (a).
+Podrá concedérsele esta licencia a la persona servidora en el caso del nacimiento de un hijo, ya sea que haya nacido dentro o fuera del matrimonio y de unión de hecho, nacimiento de hijo del compañero(a) o nacimiento de hijo fuera de una relación y que sea reconocido por la persona servidora.
+En los casos de nacimiento o de fallecimiento, la licencia debe ser solicitada por la persona servidora a su Jefe inmediato, dentro de lo posible en el transcurso del día en que ocurre el hecho.
+(Así reformado por el artículo 4° del decreto ejecutivo N° 39402 del 15 de diciembre del 2015)
