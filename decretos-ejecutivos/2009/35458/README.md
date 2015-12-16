@@ -15,3 +15,4 @@ Estatuto Autónomo de Servicios del Viceministerio de Telecomunicaciones
 | --- | --- | --- |
 | 1 | 2009-01-01 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2015-12-16 | Decreto Ejecutivo 39484 (2015-12-16) |

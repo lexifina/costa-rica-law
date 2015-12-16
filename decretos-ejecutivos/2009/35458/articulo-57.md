@@ -7,7 +7,8 @@ c) Asistir puntualmente a su trabajo todos los días hábiles.
 d) Registrar la entrada y la salida las veces que sea necesario para garantizar la seguridad institucional y un adecuado control de asistencia y puntualidad.
 e) Solicitar permiso al superior jerárquico inmediato antes de salir del centro de trabajo por razón de cualquier asunto oficial o personal, y reportar con exactitud el lugar en que se encontrará.
 f) Desempeñar los servicios propios de su cargo con toda diligencia, así como cualquier otra función compatible con el cargo, que sus superiores le encomienden.
-g) Tratar con respeto y cortesía a sus jefes, compañeros y público visitante.
+g) Tratar con respeto y cortesía a sus jefes, compañeros y público visitante. Esto incluye la no discriminación en su trabajo por razones de raza, sexo, género, origen étnico, discapacidad, edad, credo, ideología, orientación sexual, identidad de género, posición social, estado civil, padecimiento de salud o enfermedad, etc., así como que no se cese a los(las) funcionarios(as) de sus cargos por tales razones. Asimismo, deberá de reconocerse, en todos los ámbitos de su labor, la identidad de género de acuerdo a lo que solicite la persona funcionaria o usuaria respectiva.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39484 del 16 de diciembre de 2015)
 h) Asistir a laborar con una adecuada presentación personal.
 i) Portar el gafete de identificación como funcionario del Viceministerio mientras se encuentre en las instalaciones del Viceministerio aunque sea durante horas o días no laborables, sin que en este último caso, el cumplimiento del requisito justifique la presencia en el lugar.
 j) Cuidar el equipo, mobiliario y útiles de la propiedad o al servicio del Viceministerio y no usarlos para trabajos ajenos a los propios de ésta, e informar de cualquier pérdida, robo o desperfecto en el equipo y mobiliario mencionados.
