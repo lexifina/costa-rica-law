@@ -1,1 +1,1 @@
-Artículo 137.—El Consejo de Representantes de las Autoridades Científicas deberá sesionar por lo menos una vez al mes, en forma ordinaria y extraordinaria cuando se requiera por convocatoria de su Coordinador o a solicitud de la Autoridad Administrativa.
+Artículo 137.— (Derogado por el artículo 26 de la Regulación de la Autoridad Administrativa y Autoridades Científicas de la Convención Internacional para el Comercio de Especies Amenazadas de Flora y Fauna Silvestres (CITES), aprobadas mediante decreto ejecutivo N° 39489 del 16 de diciembre de 2015)

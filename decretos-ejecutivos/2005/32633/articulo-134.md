@@ -1,1 +1,1 @@
-Artículo 134.—Cada Autoridad Científica contara con un registro de los profesionales especialistas en los diferentes campos de la vida silvestre, a los que la Autoridad Administrativa podrá solicitar criterios técnicos según especialidades.
+Artículo 134.— (Derogado por el artículo 26 de la Regulación de la Autoridad Administrativa y Autoridades Científicas de la Convención Internacional para el Comercio de Especies Amenazadas de Flora y Fauna Silvestres (CITES), aprobadas mediante decreto ejecutivo N° 39489 del 16 de diciembre de 2015)

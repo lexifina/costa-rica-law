@@ -1,1 +1,1 @@
-Artículo 142.—Queda prohibida la importación de especies de vida silvestre, de productos y subproductos en peligro de extinción que provengan de países que no hayan ratificado CITES.
+Artículo 142.— (Derogado por el artículo 26 de la Regulación de la Autoridad Administrativa y Autoridades Científicas de la Convención Internacional para el Comercio de Especies Amenazadas de Flora y Fauna Silvestres (CITES), aprobadas mediante decreto ejecutivo N° 39489 del 16 de diciembre de 2015)

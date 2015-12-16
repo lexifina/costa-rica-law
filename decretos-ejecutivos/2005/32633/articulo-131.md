@@ -1,1 +1,1 @@
-Artículo 131.—La Autoridad Administrativa CITES estará conformada al menos por el Director del SINAC, una Autoridad en Fauna y una Autoridad en Flora y aquellas otras que sean necesarias. El Director fungirá como Coordinador, pudiendo delegar la función.
+Artículo 131.— (Derogado por el artículo 26 de la Regulación de la Autoridad Administrativa y Autoridades Científicas de la Convención Internacional para el Comercio de Especies Amenazadas de Flora y Fauna Silvestres (CITES), aprobadas mediante decreto ejecutivo N° 39489 del 16 de diciembre de 2015)

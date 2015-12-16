@@ -15,3 +15,4 @@ Reglamento a la Ley de Conservación de la Vida Silvestre para Pesca y Refugios 
 | --- | --- | --- |
 | 1 | 2005-09-20 | la propia norma |
 | 2 | 2009-10-14 | Decreto Ejecutivo 35700 (2009-10-14) |
+| 3 | 2015-12-16 | Decreto Ejecutivo 39489 (2015-12-16) |
