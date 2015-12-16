@@ -14,3 +14,4 @@ Deroga Reglamento para el registro de productores e importadores de cemento y ac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-12 | la propia norma |
+| 2 | 2015-12-16 | Decreto Ejecutivo 39414 (2015-12-16) |
