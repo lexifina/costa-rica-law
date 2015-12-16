@@ -1,0 +1,1 @@
+ARTÍCULO 8.- LOS MECANISMOS DE CONTROL Y SEGUIMIENTO. Las juntas directivas generales de los intermediarios financieros establecerán los mecanismos de control y seguimiento necesarios para el cumplimiento de los alcances de esta ley, debiendo remitir un informe anual a la Comisión de Turismo de la Asamblea Legislativa.
