@@ -14,3 +14,4 @@ RTCR 476: 2015. Materiales de la Construcción. Cementos Hidráulicos. Procedimi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-20 | la propia norma |
+| 2 | 2015-12-16 | Decreto Ejecutivo 39414 (2015-12-16) |
