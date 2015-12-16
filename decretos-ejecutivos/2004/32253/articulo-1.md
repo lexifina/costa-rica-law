@@ -1,4 +1,6 @@
+(Derogado)
 Nº 32253
+(Este decreto ejecutivo fue derogado por el artículo 4° del Reglamento Técnico RTCR 479:2015 Materiales de Construcción, Cementos Hidráulicos, aprobado mediante decreto ejecutivo N° 39414 del 16 de diciembre del 2015)
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
 En uso de las atribuciones que les confieren el artículo 140, incisos 3) y 18), artículo 146 de la Constitución Política; los artículos 27 y 28 2b de la Ley General de Administración Pública, N° 6227 del 2 de mayo de 1978; la Ley del Sistema Internacional de Unidades, N° 5292 del 9 de agosto de 1973; la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor, N° 7472 del 20 de diciembre de 1994; la Ley de Aprobación del Acta Final en que se incorporan los Resultados de la Ronda de Uruguay de Negociaciones Comerciales Multilaterales, N° 7475 del 20 de diciembre de 1994; la Ley Orgánica del Ministerio de Economía, Industria y Comercio, N° 6054 del 14 de junio de 1977 y sus reformas.
@@ -90,7 +92,8 @@ de carbonato de calcio (CaCO3).
 9.1.1 Los datos que deben aparecer en la etiqueta, en virtud de este reglamento técnico, deberán indicarse con caracteres claros, ostensiblemente visibles, indelebles y fáciles de leer por el consumidor en circunstancias normales de compra y uso. El nombre y contenido neto del producto deberán aparecer en un lugar prominente y en el mismo campo o espacio de visión.
 9.1.2 La etiqueta deberá redactarse en idioma español. Cuando el idioma en que esté redactada no sea el español, deberá emplearse una etiqueta complementaria, que contenga la información obligatoria en éste idioma.
 9.2 El etiquetado en el empaque del cemento debe contener:
-9.2.1 Los requisitos de etiquetado para productos peligrosos, establecidos en el Anexo Nº 4 del Reglamento para el Registro de Productos Peligrosos y sus reformas, Decreto Ejecutivo Nº 28113-S del 10 de setiembre de 1999.
+9.2.1 Los requisitos de etiquetado para productos peligrosos, establecidos en el Anexo Nº 4 del Reglamento para el Registro de Productos Peligrosos y sus reformas, Decreto Ejecutivo Nº 28113-S(*) del 10 de setiembre de 1999.
+(*)(Nota de Sinalevi: Mediante en artículo 2° Reglamento Técnico RTCR 478:2015 Productos Químicos. Productos Químicos Peligrosos, Registro, Importación y Control aprobado mediante decreto ejecutivo N° 40705 del 17 de agosto del 2017 se establece lo siguiente: “En lo sucesivo, en todo aquel reglamento en el que se señale el Decreto Ejecutivo No. 28113-S del 10 de setiembre de 1999 "Reglamento para el Registro de Productos Peligrosos", como referencia para algún requisito, deberá interpretarse que los mismos corresponden a lo indicado en el presente Decreto”. Dicho decreto empieza a regir a partir del 3 de mayo del 2018)
 9.2.2 Además de las disposiciones de etiquetado del apartado anterior, deberá cumplir con los siguientes requisitos:
 9.2.2.1 El nombre “CEMENTO”.
 9.2.2.2 El tipo de cemento y la modificación en alguno de sus componentes si hubiere. (Tipo IRTCR,MP-RTCR, UG-RTCR, MS-RTCR, TIPO I-RTCR/AR, MP-RTCR/AR).
