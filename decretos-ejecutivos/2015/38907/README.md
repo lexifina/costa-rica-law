@@ -14,3 +14,4 @@ Reforma Reglamento Técnico RTCR 383:2004 Cementos Hidráulicos, Especificacione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-09 | la propia norma |
+| 2 | 2015-12-16 | Decreto Ejecutivo 39414 (2015-12-16) |

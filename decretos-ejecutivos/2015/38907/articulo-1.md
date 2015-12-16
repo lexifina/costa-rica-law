@@ -5,12 +5,15 @@ En uso de las atribuciones que les confieren los artículos 11, 140, incisos 3),
 Considerando:
 I.—Que las buenas prácticas reglamentarias obligan a los gobiernos a la revisión de los reglamentos técnicos existentes, con la finalidad de que se ajusten a las condiciones y las necesidades imperantes de la economía, procurando así un equilibrio necesario, de manera que, dicha reglamentación no sea omisa ni excesiva y no propicie un obstáculo al desarrollo económico.
 II.—Que el desarrollo y los cambios que ha venido experimentado el comercio internacional, ha generado la necesidad de una revisión de la reglamentación; de manera tal que se adapte más al uso normal del comercio.
-III.—Que visto lo anterior es necesario proceder a la modificación del Decreto Ejecutivo N° 32253-MEIC, Reglamento Técnico RTCR 383:2004 Cemento Hidráulicos, Especificaciones.
+III.—Que visto lo anterior es necesario proceder a la modificación del Decreto Ejecutivo N° 32253-MEIC (*), Reglamento Técnico RTCR 383:2004 Cemento Hidráulicos, Especificaciones.
+(*)(Mediante el artículo 4° del Reglamento Técnico RTCR 479:2015 Materiales de Construcción, Cementos Hidráulicos, aprobado mediante decreto ejecutivo N° 39414 del 16 de diciembre del 2015, se deroga el Decreto Ejecutivo N° 32253-MEIC y se estableció que donde se hacía referencia a dicho decreto debe entenderse actualmente Decreto Ejecutivo N° 39414-MEIC)
 Por tanto;
 DECRETAN:
-MODIFICACIÓN AL DECRETO EJECUTIVO Nº 32253-MEIC, REGLAMENTO
+MODIFICACIÓN AL DECRETO EJECUTIVO Nº 32253-MEIC (*), REGLAMENTO
 TÉCNICO RTCR 383:2004 CEMENTO HIDRÁULICOS, ESPECIFICACIONES
-Artículo 1°—Modificaciones. Modifíquense el inciso 7.5 del apartado 7. “De la verificación o control de calidad”, el acápite 8.1.1 del inciso 8.1 “El empaque del cemento debe cumplir con las siguientes disposiciones:” y el acápite 9.2.6 del inciso 9.2 “El etiquetado en el empaque del cemento debe contener:” del “Reglamento Técnico de Cementos Hidráulicos. Especificaciones”, RTCR 383:2004 del 1 de octubre de 2004, Decreto Ejecutivo N° 32253-MEIC; para que en lo sucesivo se lean de la siguiente manera:
+(*)(Mediante el artículo 4° del Reglamento Técnico RTCR 479:2015 Materiales de Construcción, Cementos Hidráulicos, aprobado mediante decreto ejecutivo N° 39414 del 16 de diciembre del 2015, se deroga el Decreto Ejecutivo N° 32253-MEIC y se estableció que donde se hacía referencia a dicho decreto debe entenderse actualmente Decreto Ejecutivo N° 39414-MEIC)
+Artículo 1°—Modificaciones. Modifíquense el inciso 7.5 del apartado 7. “De la verificación o control de calidad”, el acápite 8.1.1 del inciso 8.1 “El empaque del cemento debe cumplir con las siguientes disposiciones:” y el acápite 9.2.6 del inciso 9.2 “El etiquetado en el empaque del cemento debe contener:” del “Reglamento Técnico de Cementos Hidráulicos. Especificaciones”, RTCR 383:2004 del 1 de octubre de 2004, Decreto Ejecutivo N° 32253-MEIC (*); para que en lo sucesivo se lean de la siguiente manera:
+(*)(Mediante el artículo 4° del Reglamento Técnico RTCR 479:2015 Materiales de Construcción, Cementos Hidráulicos, aprobado mediante decreto ejecutivo N° 39414 del 16 de diciembre del 2015, se deroga el Decreto Ejecutivo N° 32253-MEIC y se estableció que donde se hacía referencia a dicho decreto debe entenderse actualmente Decreto Ejecutivo N° 39414-MEIC)
 “7. DE LA VERIFICACIÓN O CONTROL DE CALIDAD
 (…)
 7.5 Todo importador de cementos hidráulicos y componentes regulados en este decreto, deberá contar con un certificado de calidad reconocido internacionalmente, el cual haga constar los resultados de los análisis físicos y químicos descritos en el presente decreto ejecutivo.”
