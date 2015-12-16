@@ -749,7 +749,7 @@ PROFUNDIDAD DE MODULACION: La modulación total de la portadora de audio, incluy
 Características de transmisor de vídeo
 GANANCIA DIFERENCIAL: La ganancia diferencial, expresada en decibeles, de una onda senoidal moduladora de 3.579545 MHz superpuesta sobre una señal compuesta escalonada de baja frecuencia, no deberá ser mayor de 1.5 dB para niveles promedio de imagen correspondiente a 10, 50 y 90%, con la región de máxima ganancia utilizada como referencia.
 FASE DIFERENCIAL: La fase diferencial deberá ser inferior a 7º a la frecuencia de 3.579545 MHz, cuando se emplea la región de ráfaga como referencia. Además, la fase diferencial total entre cualquiera de los dos niveles de brillantez no deberá exceder a los 10º.
-MODULACION INCIDENTAL EN FRECUENCIA: La excursión de frecuencia de la portadora de vídeo en la banda de 50 a 15000 Hz estará como mínimo 40 dB abajo de un nivel correspondiente a ± 25 KHz considerado como 0 dB.
+MODULACION INCIDENTAL EN FRECUENCIA: La excursión de frecuencia de la portadora de vídeo en la banda de 50 a 15000 Hz estará como mínimo 40 dB abajo de un nivel correspondiente a  25 KHz considerado como 0 dB.
 LINEALIDAD: La desviación de linealidad de modulación de baja frecuencia no será mayor de 1.5 dB para 10, 50 o 90% del nivel promedio de la imagen (npi)*
 *El nivel promedio de la imagen se define como el nivel promedio de la señal durante el tiempo ocupado en la exploración de la imagen (integrado sobre el período de un cuadro, excluyéndose los intervalos de supresión), expresado como un porcentaje de la diferencia entre los niveles de supresión y de blanco de referencia.
 CARACTERISTICAS DE RETARDO DE LA ENVOLVENTE CONTRA FRECUENCIA: Cuando se introduzca una onda senoidal en las terminales del transmisor por las que normalmente se alimenta la señal compuesta de imagen, se producirá una señal radiada que tenga un retardo de la envolvente relativo al retardo de la envolvente promedio entre 0.05 y 0.20 MHz de cero microsegundos hasta la frecuencia de 3 MHz y a partir de ese punto decrecerá linealmente hasta 4.18 MHz, de manera que el valor del retardo de la envolvente a la frecuencia de 3.579545 MHz será igual a - 0.17 microsegundos. La tolerancia se incrementará linealmente a ± 0.08 microsegundos desde 3.579545 MHz hasta 4.18 MHz. La precorrección de las características de propagación de grupo del receptor en la frecuencia subportadora de color tendrá el valor nominal de - 170 nanosegundos.
@@ -763,8 +763,8 @@ Las desviaciones máximas que pueden tolerarse con respecto a las característic
 Señales detectadas de color:
 2 dB | a, 0.5 MHz
 2 dB | a, 1.25 MHz
-± 2 dB | a, 3.58 MHz
-± 2 dB | de 2.1,a, 4.1 MHz (respecto a 3.58 MHz)
+ 2 dB | a, 3.58 MHz
+ 2 dB | de 2.1,a, 4.1 MHz (respecto a 3.58 MHz)
 4 dB | a, 4.18 MHz (respecto a 3.58 MHz)
 Señales detectadas monocromas:
 2 dB a | 0.5 MHz
@@ -807,15 +807,40 @@ Ganancia máxima de la antena: 6 dB en la dirección de máxima radiación.
 Características del Transmisor:
 Tipo de emisión F3E.
 Para los equipos que operen en la banda de 30 a 50 MHz en una separación de canales de 20 KHz, el ancho de Banda necesaria será 16 KHz.
-Para equipos que operen en frecuencias de 137 a 174 MHz, de 225 a 286 MHz, de 420 a 470 MHz, la separación de canales será de 12.5 KHz y el ancho de banda necesario será de 8.5 KHz.
 La tolerancia máxima de frecuencia será de 1 KHz.
 La excursión máxima de frecuencia admisible será de ± 5 KHz para una separación de canales de 20 KHz, y de ± 4 KHz para una separación de canales de 12.5 KHz.
 Las radiaciones no esenciales deben estar atenuadas a 65 dB por debajo de la potencia de la portadora.
 La radiación de la caja del equipo no debe ser superior a 25 microwatt.
 La potencia del canal adyacente debe estar atenuada al menos 60 dB por debajo de la potencia de la portadora para un ancho de banda de 8.5 KHz.
-La potencia de salida del transmisor no podrá ser mayor de 25 watt.
-La ganancia de la antena no podrá ser superior a 9 dB.
 Deberá poseer el sistema de bloqueo de transmisión cuando se está recibiendo (Busy lockout).
+(*)Características técnicas de funcionamiento para el servicio fijo y móvil terrestre
+donde se implementen redes de radiocomunicación de banda angosta
+En la siguiente tabla se establecen los parámetros permitidos en el servicio fijo y móvil terrestre para redes de radiocomunicación de banda angosta. Es importante indicar que los parámetros que se muestran son valores máximos permitidos, con excepción de la sensibilidad el cual es el valor mínimo permitido:
+Tabla 1: Parámetros técnicos máximos permitidos en redes
+de radiocomunicación de banda angosta
+Bandas de frecuencias (MHz) | | 137 a 288 | | | 422 a 470
+Tipo de emisión | Analógica | Digital | Analógica | Digital
+Sistema
+Ancho de canal (kHz) | 12,5 | 6,25/12,5 | 12,5 | 6,25/12,5
+SINAD (dB) o BER (%) típica | 12 dB | | 5% | 12 dB | 5%
+Ganancia de antena (dBd) | 9 | | | 9 | 9 | | 9
+Polarización de la antena | Vertical | Vertical | Vertical | Vertical
+Transmisor
+Potencia de salida (W) * | 25 | | | 25 | 25 | | 25
+Ancho de banda necesario (kHz) | 11 | | 5,5/8,1 | 11 | | 5,5/8,1
+Estaciones Fijas : Pérdidas totales en la línea (dB) | 7 | | | 9 | 9 | | 9
+Estaciones móviles: Pérdidas totales en la línea (dB) | 1 | | | 1 | 1 | | 1
+Receptor
+Factor de ruido (dB) | 12 | | | 12 | 12 | | 12
+Ancho de banda del filtro de FI (kHz) | 8 | | 5,5/5,5 | 8 | | 5,5/5,5
+Sensibilidad (dBm) | -120 | -120 | -120 | -120
+Estaciones Fijas : Pérdidas totales en la línea (dB) | 6 | | | 6 | 9 | | 9
+Estaciones móviles: Pérdidas totales en la línea (dB) | 1 | | | 1 | 1 | | 1
+* Esta potencia es la presente en la salida del sistema transmisor hacia la antena.
+(*) (Mediante el artículo 2° del decreto ejecutivo N° 39491 del 16 de diciembre de 2015, se reformó el Adendum IV anterior para que se sustituya el texto que indica: ““(…) Para equipos que operen en frecuencias de 137 a 174 MHz, de 225 a 286 MHz, de 420 a 470 MHz, la separación de canales será de 12.5 KHz y el ancho de banda necesario será de 8.5 KHz.
+La potencia de salida del transmisor no podrá ser mayor de 25 watt.
+La ganancia de la antena no podrá ser superior a 9 dB.(…)”
+Por la tabla antes expuesta)
 Características del Receptor:
 La sensibilidad del receptor debe ser inferior a 2 mV.
 La selectividad con relación al canal adyacente no será inferior a 60 dB.
@@ -913,7 +938,7 @@ Potencia máxima de los transceptores portátiles | 650 mW
 Potencia máxima en la etapa final del transmisor principal: | 100 watts
 Impedancia de salida: | 50 ohmios
 Emisión de espurias y armónicas: | - 60 dB
-Estabilidad de frecuencia: | ±0.0002 % (2 ppm)
+Estabilidad de frecuencia: | 0.0002 % (2 ppm)
 Modulación: | análoga o digital
 Inmunidad al ruido de F. M: | 48 dB
 Respuesta de audio: | +1, - 3 dB a 6 dB por octava
@@ -924,10 +949,10 @@ Tono piloto: | Estándar después de 3400 Hz a 3100 Hz
 b - RECEPTOR:
 Salida de potencia de audio: | 4 watts con 5 % de distorsión
 Ancho de Banda de modulación: | 3600 Hz máximo
-Estabilidad de frecuencia: | ± 0.0002 % (2 ppm)
-Sensitividad: | 12 dB de señal; 0.40 µV máximo
-Selectividad de squelch: | Portadora 0.2 µV
-CTCSS (tono de silenciamiento continuo): | 0.15 µV
+Estabilidad de frecuencia: |  0.0002 % (2 ppm)
+Sensitividad: | 12 dB de señal; 0.40 V máximo
+Selectividad de squelch: | Portadora 0.2 V
+CTCSS (tono de silenciamiento continuo): | 0.15 V
 Rechazo de espurias e imagen: | 75 dB
 Atenuación de intermodulaciones: | 70 dB
 ADENDUM V
@@ -1010,10 +1035,10 @@ Potencia máxima de 50 watt.
 Estabilidad de frecuencia mejor que 0.0005 ppm.
 Respuesta de audio entre 250 y 3000 Hz.
 Tipo de modulación 16 KOF3E.
-Desviación máxima ± 5 KHz.
+Desviación máxima  5 KHz.
 Radiación de espurias y armónicas igual o mejor que - 60 dB.
 Las características del receptor:
-Sensibilidad igual o mejor que - 0.3 µV, para 12dB de sinad.
+Sensibilidad igual o mejor que - 0.3 V, para 12dB de sinad.
 Rechazo de frecuencia imagen igual o mejor que 60 dB.
 Intermodulación en RF superior a 70 dB.
 ADENDUM VI
