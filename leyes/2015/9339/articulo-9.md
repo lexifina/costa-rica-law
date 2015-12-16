@@ -1,0 +1,1 @@
+ARTÍCULO 9.- LA DECLARACIÓN DE INTERÉS PÚBLICO. Se declara de interés público a las mipymes del sector turismo costarricense, así como al Programa de Apoyo y Reactivación creado al amparo de la presente ley; para ello, se autoriza a las instituciones públicas, para que impulsen actividades de apoyo para el desarrollo de las mipymes del sector turismo costarricense.

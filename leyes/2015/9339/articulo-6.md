@@ -1,0 +1,1 @@
+ARTÍCULO 6.- LA ELEGIBILIDAD. Para determinar la elegibilidad de la solicitud, los equipos técnicos de los bancos analizarán la viabilidad de cada uno de los proyectos dentro de los parámetros establecidos en la Ley N.° 1644, Ley Orgánica del Sistema Bancario Nacional, de 26 de setiembre de 1953, y la posibilidad real de desarrollar la actividad de forma sostenible y rentable.
