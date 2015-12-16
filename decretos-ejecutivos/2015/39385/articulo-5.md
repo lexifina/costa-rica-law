@@ -1,0 +1,2 @@
+Artículo 5º—De los suplentes y asesores. Cada uno de los Ministros que conforman la Comisión, deberá designar un representante suplente, quien en ausencia del primero, ejercerá la representación correspondiente.
+Asimismo, cada Ministro o suplente en ejercicio, podrá asistir a la sesión de la Comisión acompañado de los asesores que considere pertinentes hasta un máximo de dos, en razón de los temas que serán conocidos en sus sesiones.

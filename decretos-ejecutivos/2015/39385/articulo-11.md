@@ -1,0 +1,1 @@
+Artículo 11.—De la colaboración. Con el objetivo de cumplir con lo dispuesto en el artículo 3º del presente Reglamento, los Ministerios representados en la Comisión estarán obligados a prestar toda la colaboración requerida a la Secretaría Técnica de Apoyo.
