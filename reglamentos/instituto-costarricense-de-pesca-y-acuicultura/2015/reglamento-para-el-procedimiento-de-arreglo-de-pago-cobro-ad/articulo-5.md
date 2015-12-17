@@ -1,0 +1,4 @@
+Artículo 5º—Procedencia de los arreglos de pago. Entiéndase por arreglo de pago el compromiso que asume el INCOPESCA, previo consentimiento por parte de la jefatura de la oficina respectiva, de aceptar la propuesta de arreglo de pago, presentada según lo estipulado en artículo anterior, por parte del administrado que se encuentre en estado de morosidad.
+Solo podrá aceptar una propuesta de pago por administrado, bajo ningún concepto se permitirá más de una.
+El arreglo de pago incluirá el monto principal adeudado con sus respectivos intereses.
+La autorización de arreglo de pago no exime de la obligación de honrar los pagos inmediatos siguientes que sobrevengan, el incumplimiento de estos dará por extinguida la autorización de arreglo de pago autorizada y hará exigible la deuda total por la vía judicial.

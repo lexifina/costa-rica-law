@@ -1,0 +1,1 @@
+Artículo 9º—Condiciones para exonerar insumos pesqueros y combustible. Aquel administrado que se encuentre en condición de arreglo de pago, gozará de pleno derecho de los beneficios que la Ley le otorga para el ejercicio de la actividad pesquera y acuícola.

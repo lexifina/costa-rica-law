@@ -1,0 +1,2 @@
+Artículo 13.—Del cobro judicial. Transcurridos los plazos señalados, la asesoría legal del INCOPESCA, procederá de conformidad a lo establecido por la Ley 8624, Ley de Cobro Judicial en Costa Rica, solicitando a la autoridad jurisdiccional competente, el pago de la suma adeudada, más los intereses que correspondan.
+Para lo cual deberá la sección contabilidad remitir la certificación contable respectiva de la deuda total así como el expediente administrativo respectivo.

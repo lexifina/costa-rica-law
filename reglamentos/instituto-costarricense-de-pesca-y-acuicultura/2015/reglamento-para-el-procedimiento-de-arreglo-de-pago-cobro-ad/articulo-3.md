@@ -1,0 +1,3 @@
+CAPÍTULO II
+Organización y funcionamiento de los arreglos de pago
+Artículo 3º—Órganos Competentes. Corresponde al Departamento de Protección y Registro, en Puntarenas; Oficina Subregional de Cuajiniquil, en la Cruz Guanacaste; Dirección Regional de Guanacaste, en Playas del Coco; Oficina Subregional de Nicoya; Oficina Regional de Quepos; Oficina Regional de Golfito y Dirección Regional de Limón y cualquier otra que la junta directiva autorice en el futuro, recibir y aprobar la gestión de arreglo de pago presentada por los usuarios ante el INCOPESCA, misma que deberán remitir a la sección de contabilidad para su registro respectivo.
