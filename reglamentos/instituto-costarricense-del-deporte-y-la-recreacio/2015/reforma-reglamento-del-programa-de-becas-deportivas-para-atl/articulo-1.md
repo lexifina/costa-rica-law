@@ -1,0 +1,2 @@
+INSTITUTO COSTARRICENSE DEL DEPORTE Y LA RECREACIÓN
+El Consejo Nacional del Deporte y la Recreación en su sesión ordinaria 965-2015, celebrada el 26 de noviembre del 2015, acordó derogar el artículo 8 del Reglamento del Programa de Becas Deportivas para atletas Seleccionados Nacionales o Atletas de Proyección Deportiva hacia el Alto Rendimiento, publicado en La Gaceta Nº 35 del 19 de febrero de 2015, en el cual se establece un subsidio para el entrenador del atleta becado.
