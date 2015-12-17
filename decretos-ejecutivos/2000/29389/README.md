@@ -16,3 +16,4 @@ Reglamento para la Emisión de los Certificados de Zafarrancho
 | 1 | 2001-03-27 | la propia norma |
 | 2 | 2003-03-13 | Decreto Ejecutivo 31076 (2003-03-13) |
 | 3 | 2012-09-13 | Decreto Ejecutivo 37343 (2012-09-13) |
+| 4 | 2015-12-17 | Decreto Ejecutivo 39413 (2015-12-17) |
