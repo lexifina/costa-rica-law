@@ -14,3 +14,4 @@ Reforma al Reglamento para la Emisión de los Certificados de Zafarrancho.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-03-27 | la propia norma |
+| 2 | 2015-12-17 | Decreto Ejecutivo 39413 (2015-12-17) |
