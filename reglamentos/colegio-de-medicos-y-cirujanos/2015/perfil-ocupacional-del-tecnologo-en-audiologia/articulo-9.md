@@ -1,0 +1,1 @@
+Artículo 9°—Docencia: Podrá participar como docente en la formación teórica de otros Tecnólogos, respecto a la parte práctica de dicha formación, deberá contar en todo momento con la supervisión del médico Especialista.

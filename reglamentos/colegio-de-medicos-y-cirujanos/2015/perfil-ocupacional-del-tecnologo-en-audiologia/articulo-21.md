@@ -1,0 +1,1 @@
+Artículo 21.—Deber para con Superiores, Compañeros y Público: Deberá cuidar las relaciones con superiores, compañeros y público en general, atendiéndolos con respeto, prudencia y discreción absoluta conforme a los principios éticos.
