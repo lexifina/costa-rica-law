@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente reglamento es de aplicación para los miembros propietarios y suplentes de la Comisión de Ética y Valores del Tribunal Supremo de Elecciones y a la administración en general, en el ámbito de sus competencias.

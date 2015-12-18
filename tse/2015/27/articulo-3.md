@@ -1,0 +1,1 @@
+Artículo 3º—Marco Normativo. El marco normativo del presente reglamento se fundamenta en los Lineamientos para las Comisiones Institucionales de Ética y Valores en la Gestión Ética emitido por la Comisión Nacional de Rescate de Valores.

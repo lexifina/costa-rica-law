@@ -1,0 +1,7 @@
+Artículo 5º—Integración. La Comisión estará conformada por representantes de cada una de las direcciones institucionales que conforman la estructura organizativa del Tribunal. Cada Director o Directora designará un miembro propietario y un suplente, considerando para ello el perfil establecido en el artículo sétimo de este reglamento.
+El suplente servirá de apoyo y representará al titular en su ausencia en la CEV, para lo cual tendrá las mismas obligaciones y responsabilidades que este.
+El nombramiento de los miembros en la comisión será por un plazo de dos años, pudiendo renovarse si la persona desea continuar en el cargo y si no existen razones que ameriten su sustitución.
+La CEV contará con una persona coordinadora y una persona secretaria, quienes serán elegidos por mayoría simple entre los miembros presentes convocados formalmente y por un periodo de dos años consecutivos, pudiendo reelegirse por mutuo acuerdo y votación entre sus miembros.
+La CEV se reunirá una vez al mes en forma ordinaria y en forma extraordinaria cuando sea necesario que se convoque para tal efecto.
+En caso de que algún miembro no pueda continuar en la Comisión por situaciones justificadas a criterio de la CEV o incumpla el perfil reglamentario, deberá nombrarse el sustituto en el plazo máximo de un mes calendario a partir de que se haga efectiva su separación del cargo.
+Cada miembro será juramentado según lo establecido en el artículo once de este reglamento.
