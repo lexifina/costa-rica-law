@@ -1,0 +1,5 @@
+CAPÍTULO X. MOCIONES.
+Artículo 38: Mociones: Todo regidor propietario o suplente en propiedad, presentará sus mociones o proposiciones por escrito, con letra legible, sin tachaduras o borrones y firmadas ante el Secretario Municipal, quien le anotará la fecha y hora en que fueron presentadas y serán conocidas en estricto orden de presentación, salvo que se trate de moción de orden. El
+orden de presentación será el mismo que se seguirá para conocerlas en el Concejo, salvo que por razones de extrema urgencia se deba variar dicho orden.
+Toda moción será leída por el Secretario Municipal. Los regidores suplentes, los síndicos y cualquier vecino del cantón, pueden presentar una moción, siempre y cuando sea acogida para su trámite por un regidor propietario.
+Cualquier modificación que se haga a una moción, debe escribirse mediante nota al pie, que debe ser firmada por el proponente de la moción.
