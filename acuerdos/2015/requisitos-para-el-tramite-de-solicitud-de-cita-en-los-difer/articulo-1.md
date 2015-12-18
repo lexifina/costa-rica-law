@@ -1,0 +1,24 @@
+CAJA COSTARRICENSE DE SEGURO SOCIAL
+Trámites de la Gerencia Médica
+De conformidad con lo dispuesto en la Ley N° 8220 “Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos”, se describen a continuación los trámites que deben realizar los ciudadanos en los diferentes centros de atención, para obtener los servicios de salud que ofrece la institución.
+Trámite: Solicitud de cita (consulta externa, especialista, diagnóstico y tratamiento).
+Objetivo: Otorgar al usuario cita para la atención en salud correspondiente (consulta externa, especialista, diagnóstico y tratamiento).
+Requisitos fundamentales | Fundamento legal
+1. Documento de identificación: a) Nacional mayor de edad: Cédula identidad vigente y en buen estado. b) Extranjero: Documento de Identidad Migratorio para Extranjeros (DIMEX) o pasaporte ordinario vigente y en buen estado. | 1. Ley Orgánica del Tribunal Supremo de Elecciones. Observaciones: 1. La cita es personal e intransferible. 2. Para el trámite por terceras personas es requisito presentar documento de identidad de quien tramite y el titular de la cita (aplicable también para requisitos 2 y 3).
+2. Comprobación de derechos: a) Asegurado directo asalariado: Comprobante de aseguramiento vigente o revalidado cuando corresponda. b) Asegurado voluntario: Comprobante de aseguramiento vigente. c) Trabajador independiente: Comprobante de aseguramiento vigente. d) Beneficiario Familiar: Comprobante de aseguramiento familiar vigente. | 1. Reglamento de Seguro de Salud, Artículo 74°: "De los requisitos formales para recibir servicios de salud". 2. Manual de Adscripción y Beneficio Familiar 2014. Observaciones: Para comprobar los derechos se deberá utilizar por parte de los funcionarios institucionales la Directriz GF-48.564 referida a la Orden patronal y el Manual de Adscripción y Beneficio Familiar, que promueven la utilización de los medios alternativos (electrónicos) para la Validación de Derechos y Verificar la Información, el oficio GM-DESP-8536-15: Recordatorio sobre el uso de las herramientas informáticas que utilizan las unidades de Validación y Facturación de Servicios Médicos y el oficio GMD-6551-15: Cumplimiento a la Ley 8220 en la comprobación de los derechos de los asegurados.
+3. Carné de asegurado o beneficiario vigente. Todos los usuarios del trámite. | 1. Reglamento de Seguro de Salud, Artículo 74°: "De los requisitos formales para recibir servicios de salud". 2. Manual de Adscripción y Beneficio Familiar 2014. 3. Leyes Especiales. 4. Convenios internacionales. 5. Manual de normas y procedimientos del Seguro por el Estado, diciembre 2012.
+[imagen]
+Requisitos fundamentales | Fundamento legal
+| Observaciones: Se deberá utilizar la Directriz GF-48.564 referida a la Orden patronal y el Manual de Adscripción y Beneficio Familiar, que promueven la utilización de los medios alternativos (electrónicos) para la Validación de Derechos y Verificar la Información, el oficio GM-DESP-8536-15: Recordatorio sobre el uso de las herramientas informáticas que utilizan las unidades de Validación y Facturación de Servicios Médicos y el oficio GMD-6551-15: Cumplimiento a la Ley 8220 en la comprobación de los derechos de los asegurados.
+Requisitos adicionales | Fundamento legal
+A) Cita por primera vez con Médico Especialista u otro Profesional de Salud (Referencia a cita de especialista (Formulario 4-70-04-0140) suscrita por el profesional en salud que refiere). | 2. Reglamento del Seguro de Salud: Artículo 74°. 3. Reglamento del Expediente de Salud: Artículo 17°: "Integridad del expediente" y Artículo 18: "Inclusión de documentos". Observaciones: 3. Directrices Gerenciales específicas para la asignación de citas en especialidades médicas o disciplinas no médicas, procedimientos o tratamientos de carácter médico o quirúrgico. 4. Se deberá utilizar la Directriz GF-48.564 referida a la Orden patronal y el Manual de Adscripción y Beneficio Familiar, que promueven la utilización de los medios alternativos (electrónicos) para la Validación de Derechos y Verificar la Información, el oficio GM-DESP-8536-15: Recordatorio sobre el uso de las herramientas informáticas que utilizan las unidades de Validación y Facturación de Servicios Médicos y el oficio GMD-6551-15: Cumplimiento a la Ley 8220 en la comprobación de los derechos de los asegurados.
+B) Cita subsecuente con Médico tratante (Solicitud de cita del Médico tratante).
+C) Cita para examen de laboratorio o gabinete -examen o procedimiento diagnóstico- (Formulario de solicitud de examen de laboratorio o gabinete, suscrito por el profesional en salud, según corresponda).
+D) Cita para tratamiento (Formulario de solicitud de aplicación de tratamiento, suscrito por el profesional en salud, según corresponda).
+Dra. María Eugenia Villalta Bonilla, Gerente Médico Caja Costarricense de Seguro Social
+Firma Responsable
+[imagen]
+[imagen]
+Nombre completo Firma
+[imagen]
+Sello Gerencia Médica
