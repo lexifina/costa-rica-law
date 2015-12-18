@@ -1,4 +1,5 @@
 N° 9289
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 18537 del 25 de noviembre de 2015, se declaró con lugar las acciones acumuladas por la comisión de vicios de inconstitucionalidad esenciales por parte de la Presidencia de la Asamblea Legislativa en el procedimiento legislativo relativo a la "Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico 2015". A fin de evitar una parálisis del Estado -con las consecuentes graves dislocaciones de la seguridad, la justicia o la paz sociales que esto acarrearía- y tomando en consideración que el ejercicio presupuestario de este año ya está por vencer (un mes aproximadamente), con base en el numeral 91 de la Ley de la Jurisdicción Constitucional se dimensionan los efectos de esta sentencia, en el sentido de que esta se dicta sin perjuicio de los derechos adquiridos de buena fe y de que la citada ley mantenga su vigencia hasta la finalización de este año presupuestario.)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA
 Ley de Presupuesto Ordinario y Extraordinario de la República para el
