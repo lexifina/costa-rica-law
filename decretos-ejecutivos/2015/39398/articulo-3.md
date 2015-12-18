@@ -1,0 +1,1 @@
+Artículo 3.- Las multas establecidas en el artículo 177 de la Ley General de Migración y Extranjería, N° 8764, se encuentran vigentes conforme lo establecido en el Decreto Ejecutivo N° 37990-G del 26 de abril de 2013.
