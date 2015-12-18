@@ -11,4 +11,6 @@ Artículo 10.—La solicitud de la patente comercial deberá ser solicitada por 
 10) Dependiendo del tipo de actividad a explotar se deberán de presentar a la Municipalidad los respectivos permisos de otras entidades que tengan competencia con dicha actividad.
 11) En el caso que se pretenda expender bebidas con contenido etílico, se debe contar además, con la respectiva patente para poder expenderlas.
 12) Para la instalación de cafés internet se deberá aportar autorización otorgada por la Superintendencia de Telecomunicaciones.
+13) Aportar la autorización del uso del repertorio musical extendido por la Asociación de Compositores y Autores Musicales (ACAM).
+(Así adicionado el inciso anterior en sesión N° 295 del 18 de diciembre de 2015)
 (Así reformado mediante sesión ordinaria N° 209 del 29 de abril del 2014)

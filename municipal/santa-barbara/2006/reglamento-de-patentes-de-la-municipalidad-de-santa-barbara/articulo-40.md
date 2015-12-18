@@ -7,4 +7,6 @@ Artículo 40.—Para optar por la renovación de las patentes el interesado debe
 6) Copia de la cédula de identidad del solicitante, si es una persona física. En el caso de personas jurídicas, copia de cédula jurídica o certificación de la misma y personería jurídica vigente y no que tenga más de un mes de emitida.
 7) Constancia indicando si la persona física o la sociedad que solicita la renovación de la patente aparece registrado como patrono en la Caja Costarricense de Seguro Social, o en su defecto la exoneración correspondiente
 8) Dependiendo del tipo de actividad a explotar se deberán de presentar a la Municipalidad los respectivos permisos de otras entidades que tengan competencia con dicha actividad.
+9) Aportar la autorización del uso del repertorio musical extendido por la Asociación de Compositores y Autores Musicales (ACAM).
+(Así adicionado el inciso anterior en sesión N° 295 del 18 de diciembre de 2015)
 (Así reformado mediante sesión ordinaria N° 209 del 29 de abril del 2014)

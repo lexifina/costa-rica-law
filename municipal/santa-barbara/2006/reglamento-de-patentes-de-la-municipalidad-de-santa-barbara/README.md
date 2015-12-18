@@ -16,3 +16,4 @@ Reglamento de Patentes de la Municipalidad de Santa Bárbara
 | 1 | 2007-02-01 | la propia norma |
 | 2 | 2011-05-24 | Reglamento municipal 56 (2011-05-24) |
 | 3 | 2014-04-29 | Reglamento municipal 209 (2014-04-29) |
+| 4 | 2015-12-18 | Reglamento municipal 295 (2015-12-18) |
