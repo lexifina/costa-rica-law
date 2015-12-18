@@ -20,3 +20,4 @@ En caso de colocación con no residentes, la Tesorería Nacional deberá publica
 (Modificados los incisos b) y c) por el artículo 1° del decreto ejecutivo N° 38963 del 6 de abril de 2015)
 (Reformado por el artículo 1° de la ley N° 9304 del 15 de junio de 2015)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39314 del 10 de noviembre del 2015)
+(Reformado por el artículo 1° de la ley N° 9344 del 15 de diciembre de 2015)
