@@ -1,0 +1,1 @@
+Artículo 16.—De la firma del Acta de Asignación. Confeccionada el Acta de Asignación, la firmarán la Jefatura del Programa y la persona funcionaria a quien se le asignará el teléfono celular. El aparato y los accesorios se entregan posteriormente a la suscripción de dicha acta.

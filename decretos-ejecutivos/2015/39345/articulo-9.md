@@ -1,0 +1,1 @@
+Artículo 9º—Del recibido del teléfono. Previo a la asignación o entrega del aparato telefónico, la persona funcionaria deberá leer el presente Reglamento y suscribir el acta, expresando su consentimiento con lo dispuesto en cuanto al uso, controles y responsabilidad sobre el bien asignado.

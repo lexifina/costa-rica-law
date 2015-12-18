@@ -1,0 +1,1 @@
+Artículo 13.—De la asignación del servicio internacional. Únicamente las líneas asignadas al Ministro, Viceministros, y Oficial Mayor, estarán autorizadas para realizar llamadas internacionales. En casos excepcionales debidamente justificados, para, tal fin, el Viceministro o Viceministra de Gobernación y Policía, podrá autorizar expresamente a otras personas funcionarias.

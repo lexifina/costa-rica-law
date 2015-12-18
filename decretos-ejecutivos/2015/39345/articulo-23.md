@@ -1,0 +1,3 @@
+CAPÍTULO VI
+De las sanciones
+Artículo 23.—El incumplimiento de las disposiciones contenidas en este Reglamento, o en la respectiva acta, hará acreedora a la persona funcionaria de las sanciones disciplinarias que correspondan de conformidad con lo dispuesto en el Reglamento Autónomo de Servicio del Ministerio de Gobernación y Policía y la Ley General de la Administración Pública, el Estatuto del Servicio Civil y el Código de Trabajo, sin perjuicio de cualquier otro tipo de responsabilidad que conforme al Ordenamiento Jurídico le sean aplicables, en especial las contenidas en el Reglamento para el Registro y Control de Bienes de la Administración Central.
