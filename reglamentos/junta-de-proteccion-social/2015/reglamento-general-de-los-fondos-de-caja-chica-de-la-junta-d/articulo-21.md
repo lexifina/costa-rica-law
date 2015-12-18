@@ -1,0 +1,1 @@
+Artículo 21.—Para creación de fondos especiales de Caja Chica se requiere que el Departamento de Tesorería efectué un estudio previo en el que se evalúe la necesidad específica. Dicho estudio se remitirá a la Gerencia Administrativa Financiera para su aval y recomendación a la Gerencia General para su aprobación final.

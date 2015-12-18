@@ -1,0 +1,3 @@
+Artículo 7º—Se considerarán gastos menores aquellos que no excedan el monto máximo de ¢300.000,00 (trescientos mil colones exactos) y que se ajusten a los requisitos establecidos en el artículo 3.- de este Reglamento.
+El Departamento de Recursos Materiales quedará autorizado para conformar grupos de solicitudes por un monto total de ¢1.000.000,00 (un millón de colones exactos).
+Los montos máximos indicados se ajustarán en el mismo porcentaje en que la Contraloría General de la República actualice los límites económicos para los procedimientos de contratación administrativa, redondeando al mil inmediato superior.

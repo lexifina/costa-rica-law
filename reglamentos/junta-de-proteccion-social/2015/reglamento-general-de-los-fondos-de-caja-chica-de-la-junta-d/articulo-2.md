@@ -1,0 +1,1 @@
+Artículo 2º—Para los efectos del presente Reglamento, forman parte de los Fondos de Caja Chica, aquellos debidamente autorizados para Oficinas Centrales. Tales fondos provienen del presupuesto asignado para realizar pagos por gastos menores hasta por el monto máximo que se establezca en la presente norma.

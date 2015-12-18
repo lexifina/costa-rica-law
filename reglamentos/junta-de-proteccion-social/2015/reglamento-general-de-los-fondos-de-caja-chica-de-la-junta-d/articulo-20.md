@@ -1,0 +1,2 @@
+Artículo 20.—La Gerencia General, previo estudio y valoración y recomendación por parte de la Gerencia Administrativa Financiera, podrá ajustar los montos máximos de los gastos menores que podrán ser objeto de pago por medio de los Fondos de Caja Chica.
+Igualmente podrá autorizar el ajuste del monto máximo bajo el cual se constituye el fondo de Caja Chica. Asimismo podrá aprobar bajo circunstancias debidamente justificadas, la ampliación del plazo para presentar la liquidación correspondiente.

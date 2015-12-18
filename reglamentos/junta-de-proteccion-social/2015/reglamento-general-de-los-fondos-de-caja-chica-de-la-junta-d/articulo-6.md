@@ -1,0 +1,1 @@
+Artículo 6º—Con cargo a los fondos de caja chica se podrán realizar gastos correspondientes a las sub partidas presupuestarias consideradas para tal efecto, de conformidad con lo que establece el Clasificador por Objeto del Gasto del Sector Público.

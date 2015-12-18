@@ -1,0 +1,2 @@
+Artículo 14.—Tratándose de viáticos, el funcionario debe presentar la liquidación una vez concluida la gira, conforme al plazo establecido en el “Reglamento de gastos de viaje y de transporte para funcionarios públicos”.
+La falta de liquidación dará mérito para exigirle el reintegro de las sumas adelantadas por este concepto, sin perjuicio de otras sanciones que dispongan las leyes y reglamentos pertinentes. En ningún caso se autorizará girar adelanto alguno al funcionario que tuviera pendiente la liquidación de un adelanto anterior.

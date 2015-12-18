@@ -1,0 +1,1 @@
+Artículo 18.—Cuando el saldo en efectivo de la caja chica se aproxime a un 50% del fondo fijo, o se trate del último día hábil del año, el encargado deberá realizar en forma oportuna y diligente las gestiones correspondientes para el reembolso de las sumas gastadas, de tal forma que se evite que la caja chica se quede sin efectivo.

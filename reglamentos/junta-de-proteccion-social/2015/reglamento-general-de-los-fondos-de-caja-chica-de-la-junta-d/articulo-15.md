@@ -1,0 +1,2 @@
+Artículo 15.—El funcionario encargado de recibir y revisar las liquidaciones de viáticos, deberá gestionar ante cada funcionario que haya recibido un adelanto de dinero, el cobro respectivo antes del vencimiento del plazo, caso contrario, será responsable por su omisión.
+Así mismo, si ha habido incumplimiento por parte del funcionario que recibió el adelanto de dinero, el encargado de recibir y revisar las liquidaciones de viáticos deberá informar a su superior para que éste tome las medidas pertinentes.

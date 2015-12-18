@@ -1,0 +1,1 @@
+Artículo 19.—Con base en la solicitud de reembolso, la Unidad de Pagos Institucionales del Departamento de Tesorería, realizará el trámite de reintegro por medio de transferencia de fondos al encargado de las cajas chicas de las Oficinas Centrales.

@@ -1,0 +1,1 @@
+Artículo 4º—Los fondos de caja chica operarán mediante el esquema de fondo rotatorio, según el cual, el encargado deberá tener en todo momento, la suma total asignada, bien sea en dinero efectivo, vales de caja chica, facturas pagadas que no estén incluidas dentro del reintegro en trámite, liquidaciones de viáticos y solicitudes reintegro en trámite.
