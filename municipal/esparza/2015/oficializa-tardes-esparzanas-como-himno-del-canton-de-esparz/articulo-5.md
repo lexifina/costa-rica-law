@@ -1,0 +1,1 @@
+5- Se revise la posibilidad de entregar (si no se ha hecho previamente) mediante un homenaje póstumo al Maestro Octaviano Solano Parra alguna condecoración especial como ciudadano importante del cantón por haber aportado la canción Tardes Esparzanas como himno cantonal.

@@ -1,0 +1,1 @@
+2- Se ordene por parte de las autoridades locales su ejecución en todo evento oficial del cantón y en los actos cívicos en los centros educativos con el debido protocolo. Que el mismo no se use más para bailes típicos, por su investidura como himno cantonal y por el motivo referido de que su clasificación de pasillo bocal lo impide.
