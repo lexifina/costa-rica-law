@@ -1,5 +1,6 @@
 Artículo 8º—Según las tareas que realizan los trabajadores municipales, el uniforme será como a continuación se detalla:
-A) Para los trabajadores de Aseo de Vías, Caminos y Calles, Taller y Cementerios, los uniformes serán: pantalones de mezclilla color azul y la camisa de color gris.
+A)Para los trabajadores de aseo de vías, caminos y calles, taller y cementerios, los uniformes serán pantalón azul y camisa de color de alta visibilidad.
+(Así reformado el inciso anterior en sesión N° 461 del 21 de diciembre de 2015)
 B) Los choferes de vehículos livianos utilizarán: camisa blanca y pantalón azul.
 C) Los notificadores e inspectores utilizarán los siguientes uniformes: camisa color blanco o azul marino y pantalones color negro.
 D) Los o las conserjes, utilizarán: pantalones o falda de color negro y blusa o gabacha de color blanco.

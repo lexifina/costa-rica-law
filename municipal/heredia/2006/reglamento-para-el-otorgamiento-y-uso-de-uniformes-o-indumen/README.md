@@ -15,3 +15,4 @@ Reglamento para el otorgamiento y uso de uniformes o indumentarias de los funcio
 | --- | --- | --- |
 | 1 | 2006-12-15 | la propia norma |
 | 2 | 2010-02-22 | Reglamento municipal 346 (2010-02-22) |
+| 3 | 2015-12-21 | Reglamento municipal 461 (2015-12-21) |
