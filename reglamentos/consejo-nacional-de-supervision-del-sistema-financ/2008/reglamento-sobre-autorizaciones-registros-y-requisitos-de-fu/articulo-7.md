@@ -1,4 +1,3 @@
-Artículo 7º—Pasos para resolver la solicitud
-La Superintendencia debe emitir y comunicar la resolución sobre la solicitud, dentro del plazo de treinta días hábiles, contado a partir de la fecha de notificación del cumplimiento de la totalidad de la documentación.
-Para las solicitudes de autorización de fusiones o transferencia de cartera, el cumplimiento de requisitos considera el informe de la Comisión para la Promoción de la Competencia , definido en el artículo 27 bis de la Ley 7074.
-(Así reformado en sesión N° 805 del 11 de setiembre de 2009)
+Artículo 7º—Plazos para resolver la solicitud. La Superintendencia debe emitir y comunicar la resolución sobre la solicitud, dentro del plazo de treinta días hábiles, contado a partir de la fecha de notificación del cumplimiento de la totalidad de la documentación. Se exceptúa de lo anterior, las solicitudes de licencia y acreditación de agentes y corredores, las cuales se regirán de conformidad con lo indicado en el artículo 22.
+Para las solicitudes de autorización de fusiones o transferencia de cartera, el cumplimiento de requisitos considera el informe de la Comisión para la Promoción de la Competencia, definido en el artículo 27 bis de la Ley Nº 7074.
+(Así reformado en sesión N° 1221 del 21 de diciembre de 2015)

@@ -23,3 +23,4 @@ Reglamento sobre Autorizaciones, Registros y Requisitos de Funcionamiento de Ent
 | 8 | 2013-05-21 | Reglamento 1043 (2013-05-21) |
 | 9 | 2013-07-23 | Reglamento 1053 (2013-07-23) |
 | 10 | 2014-10-27 | Reglamento 1131 (2014-10-27) |
+| 11 | 2015-12-21 | Reglamento 1221 (2015-12-21) |
