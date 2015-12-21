@@ -1,0 +1,1 @@
+Artículo 4º—La Autoridad Aeronáutica, a través de sus inspectores o funcionarios designados al efecto, controlará y fiscalizará la correcta aplicación de la tarifa aprobada, así como el adecuado funcionamiento, en los términos del presente instrumento, de todos los servicios que quedan comprendidos en ella, en favor de los usuarios del aeropuerto.
