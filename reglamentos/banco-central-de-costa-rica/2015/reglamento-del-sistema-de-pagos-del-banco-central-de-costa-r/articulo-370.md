@@ -1,3 +1,4 @@
-Artículo 370. Entrega de la domiciliación. Cuando el cliente destino suscriba ante el cliente origen una domiciliación física, es obligación del segundo entregar al primero una copia del documento suscrito. Las normas complementarias del servicio establecen las condiciones operativas bajo las cuales se deberá realizar este trámite.
-Con la suscripción de la domiciliación, el cliente origen debe entregar el original del documento a la entidad origen, para que ésta a su vez gestione ante la entidad destino la autorización requerida para iniciar el proceso de débitos automáticos.
-Cuando la entidad origen disponga de facilidades tecnológicas para que sus clientes autoricen la domiciliación por medios electrónicos, el requisito de la entrega se tendrá por formalizado con el envío del formulario de la orden de domiciliación que realice el cliente en el sistema provisto por la entidad origen, para lo cual dicho sistema deberá contar con un mecanismo que asegure la autenticación del cliente.
+CAPÍTULO VIII
+DEL COBRO DE LOS SERVICIOS
+Artículo 370. Procedimiento de cobro. El cobro por los servicios de firma digital para personas físicas o jurídicas se realizará mediante débito automático a una cuenta IBAN del solicitante, la cual debe registrar en el proceso de trámite de emisión de su certificado. Cuando se trate de entidades asociadas al SINPE el cobro se realizará con cargo a la cuenta SINPE correspondiente.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 365 al 370)

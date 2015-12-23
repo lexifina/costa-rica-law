@@ -1,1 +1,2 @@
-Artículo 215. Anulación de ofertas no calzadas. Las ofertas que no hayan sido calzadas al cierre de la ventana de negociación del servicio serán anuladas, procediendo el SIL a liberar los fondos retenidos y el monto comprometido para la garantía, cuando así corresponda.
+Artículo 215. Plazo de las operaciones. Las operaciones diferidas de liquidez serán pactadas de contado y tendrán un plazo de negociación entre 1 y 90 días naturales.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 210 al 215)

@@ -1,2 +1,6 @@
-Artículo 373. Domiciliación directa. El cliente destino podrá presentar la solicitud de domiciliación directamente a la entidad destino, en cuyo caso deberá realizar las gestiones necesarias ante el cliente origen para que este, a su vez, por medio de la entidad origen pueda ordenar débitos automáticos con base en dicha domiciliación.
-Con el trámite de la domiciliación directa, la entidad destino deberá entregar al cliente destino la información que este requiera para atender las gestiones que le corresponde realizar ante el cliente origen.
+CAPÍTULO III
+DE LA DOMICILIACIÓN
+Artículo 373. Naturaleza de la domiciliación. La domiciliación constituye el medio a través del cual el cliente destino autoriza a su entidad financiera (entidad destino) para que acepte y aplique un determinado débito sobre su cuenta IBAN, en los mismos términos de autorización de giro que contempla el Código de Comercio y las demás normas jurídicas que resulten aplicables.
+Por medio de la domiciliación el cliente destino y el cliente origen, o la entidad origen, acuerdan el mecanismo que se utilizará para transferir fondos entre cuentas IBAN, extinguir una obligación financiera o pagar el consumo de un bien o servicio por parte del primero.
+La domiciliación no será requerida cuando en la transacción el cliente origen sea el mismo cliente destino.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 368 al 373)

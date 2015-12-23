@@ -1,1 +1,2 @@
-Artículo 237. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones según las necesidades reales de la economía, la División Sistemas de Pago definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.
+Artículo 237. Cambio de la familia de billetes o del cono monetario. Cada vez que el BCCR emita una nueva familia de billetes o un nuevo cono monetario, retirará de circulación la familia de billetes o el cono monetario anterior. El BCCR deberá publicar oportunamente los planes de retiro y sustitución de numerario.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 232 al 237)

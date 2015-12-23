@@ -1,1 +1,2 @@
-Artículo 436. Responsables de ISP. Los asociados y cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos, deberán designar un responsable de atender las solicitudes de información y consultas relacionadas.
+Artículo 436. Información de otros sistemas de compensación y pago: En su función relacionada con la vigilancia del Sistema de Pagos, el BCCR administrará la información de todos aquellos sistemas de compensación y pago distintos del SINPE, que involucren la participación de cualquier entidad financiera del país.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 431 al 436)

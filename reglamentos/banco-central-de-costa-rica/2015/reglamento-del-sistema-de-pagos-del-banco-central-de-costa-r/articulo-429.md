@@ -1,3 +1,2 @@
-CAPÍTULO III
-DEL ESQUEMA DE OPERACIÓN
-Artículo 429. Funciones del BCCR: A través del servicio ISP, el BCCR recopilará, procesará y divulgará información sobre el sistema de pagos costarricense a todos los asociados del SINPE y público en general; bajo el acatamiento de lo establecido en la Ley 7839 del Sistema de Estadística Nacional.
+Artículo 429. Reintegro de fondos. Ante un reclamo del cliente destino por la aplicación de un cobro indebido, la entidad destino es responsable de verificar la domiciliación emitida por el cliente destino y justificarle a éste el cobro efectuado. En caso de detectarse que se realizó un cobro indebido, la entidad destino deberá reintegrar inmediatamente los fondos al cliente destino, pudiendo gestionar un cobro revertido a través del servicio.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 424 al 429)

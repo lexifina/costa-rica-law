@@ -1,2 +1,7 @@
-Artículo 224. Participantes del mercado. La Junta Directiva del BCCR determinará por acuerdo el tipo de personas físicas y jurídicas que pueden participar en el Monex, además de las entidades autorizadas que lo hacen a través del SINPE.
-Las personas que no estén autorizadas por el BCCR para realizar actividades de intermediación cambiaria, podrán acceder al Monex únicamente para realizar operaciones destinadas a satisfacer sus necesidades propias de transacción de divisas.
+LIBRO XXII
+(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXI al XXII)
+MERCADO DE MONEDAS EXTRANJERAS (MONEX)
+CAPÍTULO I
+DEL SERVICIO
+Artículo 224. Definición del servicio. Se define Monex-SINPE como el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 219 al 224)

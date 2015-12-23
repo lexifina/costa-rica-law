@@ -1,3 +1,8 @@
-Artículo 371. Custodia de la domiciliación. La entidad origen deberá custodiar la orden de domiciliación física, pudiendo hacer uso de los mecanismos electrónicos de digitalización que permita la ley para mantener copia del registro original.
-La custodia del documento de domiciliación deberá extenderse por cinco años después de la fecha en que la correspondiente Autorización de Débito Automático quede inhabilitada. Este mismo plazo rige para efectos de cumplir con las obligaciones que se relacionen con la demostración de la domiciliación electrónica.
-Cuando por razones especiales la entidad destino lo solicite, la entidad origen deberá demostrar a esta la existencia de la orden de domiciliación. Dicha demostración debe realizarse en copia certificada y dentro de los tres días hábiles siguientes a la fecha de la solicitud que realice la entidad destino, de manera que le permitan a esta documentar los trámites administrativos o legales que motivan su solicitud.
+SERVICIOS DE APOYO
+LIBRO XXX
+(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXIX al XXX)
+AUTORIZACIÓN DE DÉBITO AUTOMÁTICO (ADA)
+CAPÍTULO I
+DEL SERVICIO
+Artículo 371. Definición del servicio. Se define ADA como el mecanismo que permite a los clientes de las instituciones financieras autorizar débitos automáticos con cargo a sus cuentas IBAN, producto de transacciones procesadas por medio del SINPE.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 366 al 371)

@@ -1,2 +1,3 @@
-Artículo 456. Reporte de las estructuras de comisiones. Las entidades financieras deben reportar al BCCR, en la forma y por los medios que éste determine, las estructuras de comisiones que cobran a sus clientes (cliente origen) por la prestación de los servicios interbancarios del SINPE, debiendo también reportar sus actualizaciones al BCCR antes de ponerlas en vigencia.
-La información de las comisiones tendrá que responder al costo final que las entidades cobran a sus clientes por el consumo de los servicios, por lo que deberá incluir todos los componentes que determinen los costos de transacción que finalmente deben asumir los clientes en su relación comercial.
+Artículo 456. Revisión y ajuste de las tarifas y comisiones. La estructura de tarifas y comisiones del SINPE será revisada y ajustada anualmente, con base en la metodología aprobada por la Junta Directiva.
+El ajuste de tarifas y comisiones respectivo tendrá vigencia a partir de enero de cada año.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 451 al 456)

@@ -1,3 +1,4 @@
-CAPÍTULO VII
-DE LOS SERVICIOS DE VALOR AGREGADO
-Artículo 363. Servicios de Valor Agregado. Son los servicios de validación en tiempo real de los certificados de persona física y de persona jurídica (OCSP) así como el de emisión de estampas de tiempo a través de la TSA – SINPE.
+CAPÍTULO V
+DE LOS CERTIFICADOS DE PERSONA JURIDICA
+Artículo 363. Gestión de Certificados. La validación de la identidad, el registro de los suscriptores, así como el trámite de las solicitudes de emisión, revocación, renovación y entrega de certificados digitales de persona jurídica la realiza directamente la CA SINPE – Persona Jurídica. Las obligaciones a las que se sujetan quienes obtengan un certificado de firma digital estarán consignadas en el respectivo Acuerdo de Suscriptor que deberá firmar el Tramitador de Certificados de Persona Jurídica.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 358 al 363)

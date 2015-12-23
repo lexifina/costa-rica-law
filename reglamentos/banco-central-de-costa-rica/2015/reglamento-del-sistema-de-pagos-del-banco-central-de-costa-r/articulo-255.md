@@ -1,1 +1,4 @@
-Artículo 255. Contingencias fuera de horario regular en BCCR. En caso de que fuera del horario regular ocurra una contingencia, además de lo que dicta la norma complementaria, la participación del BCCR se regirá por el protocolo establecido por el Departamento de Tesorería para la apertura de la bóveda principal fuera de horario.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES DE LAS ENTIDADES PARTICIPANTES
+Artículo 255. Responsabilidad por el numerario. Los fondos que mantienen las entidades financieras en sus cuentas de fondos, responderán como garantía por el valor monetario del numerario depositado en las CAN en la moneda correspondiente.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 250 al 255)

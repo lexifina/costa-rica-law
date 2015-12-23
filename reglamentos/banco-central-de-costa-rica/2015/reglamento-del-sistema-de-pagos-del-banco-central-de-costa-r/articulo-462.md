@@ -1,2 +1,2 @@
-Artículo 462. Vigencia del reglamento.
-El presente reglamento rige a partir de su publicación en el diario oficial La Gaceta.”
+Artículo 462. Publicación de información. Con el fin de cumplir con lo dispuesto por la Ley 7472, el BCCR actualizará y publicará periódicamente en el sitio Web del BCCR, las estructuras de comisiones, canales de distribución y horarios con los que las entidades financieras ofrecen a sus clientes los servicios interbancarios del SINPE, de manera que los usuarios del Sistema Financiero Nacional tengan acceso a la información relacionada con las condiciones de comercialización de dichos servicios.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 457 al 462)

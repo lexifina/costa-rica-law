@@ -1,1 +1,2 @@
-Artículo 359. Información de contacto. Para obtener certificados digitales de persona jurídica, sin detrimento de otra información requerida por la CA SINPE – Persona Jurídica, el Tramitador debe registrar información de contacto por medios electrónicos.
+Artículo 359. Formalidades de las OR. Los asociados que deseen fungir como OR para la gestión de certificados de persona física deben formalizar su relación con la Autoridad Certificadora del SINPE y cumplir con las formalidades, funciones y responsabilidades establecidas en el presente reglamento y las normas complementarias del servicio.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 354 al 359)

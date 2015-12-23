@@ -1,4 +1,2 @@
-RECLAMACIÓN POR CRÉDITOS NO APLICADOS
-Artículo 419. Ciclo de operación para créditos no aplicados. El ciclo del servicio REF por créditos no aplicados en los servicios TFT, CCD y Monedero Bancario, se efectuará de conformidad con las siguientes etapas:
-a) Solicitud de información: La entidad origen del reclamo solicita datos sobre una determinada transacción de crédito, indicando el número de referencia asociado a cada operación por el SINPE.
-b) Validación de la solicitud: El SINPE valida automáticamente que la transacción haya sido tramitada previamente por el sistema, que cumpla el plazo establecido para realizar el reclamo, que la transacción no haya sido rechazada y que sobre la misma no se haya realizado un reclamo previamente. En caso de verificarse la validez de la transacción, el SINPE comunica automáticamente a la entidad destino sobre la reclamación recibida.
+Artículo 419. Suministro de información. Las entidades emisoras y adquirentes de tarjetas de pago bancarias, en concordancia con lo establecido en la Ley 7839 del Sistema de Estadística Nacional, deberán suministrar la información transaccional que se les solicite sobre las tarjetas de pago.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 414 al 419)

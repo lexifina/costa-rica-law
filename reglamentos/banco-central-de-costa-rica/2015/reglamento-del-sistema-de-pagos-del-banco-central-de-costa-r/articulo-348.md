@@ -1,5 +1,2 @@
-LIBRO XXVIII
-FIRMA DIGITAL (FDI)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 348. Definición del servicio. Se define Firma Digital como el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación y verificación de certificados digitales, de conformidad con la Ley 8454 y su reglamento.
+Artículo 348. Actualización de la información en el servicio. Los RST de cada asociado deberán mantener actualizados en el servicio todos los datos relativos a los funcionarios de su entidad, a saber: Gerentes generales, gerentes financieros, gerentes de operación, tesoreros, responsable de servicios, responsable informático, auditores generales, directores informáticos, oficiales de cumplimiento y usuarios de los servicios del SINPE, así como cualquier otro grupo de usuarios que requiera el BCCR para la operación y desarrollo del sistema.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 343 al 348)

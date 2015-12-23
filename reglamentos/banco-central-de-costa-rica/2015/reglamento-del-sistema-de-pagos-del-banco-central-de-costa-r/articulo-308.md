@@ -1,3 +1,2 @@
-CAPÍTULO X
-DE LAS RESPONSABILIDADES CON RESPECTO A LAS GARANTÍAS
-Artículo 308. Sustitución de garantías. Los asociados deberán atender con la oportunidad requerida por el BCCR, las instrucciones que éste les suministre para la sustitución de garantías.
+Artículo 308. Responsabilidad sobre costos. Todos los costos derivados de la ejecución de garantías correrán por cuenta del deudor, incluidos los intereses que procedan en favor del acreedor, en razón de los eventuales atrasos que pudieran darse en la liquidación final con respecto al vencimiento de la obligación incumplida. Para estos efectos, la tasa de interés aplicable durante los días de atraso será igual a la tasa de redescuento del BCCR más 10 puntos porcentuales en caso de operaciones en colones; en el caso de moneda extranjera se aplica la tasa libor 6 meses más 10 puntos porcentuales.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 303 al 308)

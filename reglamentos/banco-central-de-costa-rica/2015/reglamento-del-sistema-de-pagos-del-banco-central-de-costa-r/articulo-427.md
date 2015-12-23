@@ -1,5 +1,4 @@
-LIBRO XXXIV
-INFORMACIÓN SOBRE EL SISTEMA DE PAGOS (ISP)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 427. Definición del servicio. Se define ISP como el servicio de recopilación, procesamiento y divulgación de información agregada de los sistemas y medios de pago ofrecidos por el Sistema Financiero Nacional; velando por el cumplimiento de principios de oportunidad, veracidad, calidad, suficiencia y comparabilidad de la información.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 427. Obligatoriedad de uso del servicio. Los asociados deberán utilizar el servicio REF para presentar todos los reclamos que realicen por concepto de débitos no autorizados o créditos no aplicados, por lo que la entidad destinataria no estará obligada a atender ningún reclamo presentado por medios ajenos al servicio.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 422 al 427)

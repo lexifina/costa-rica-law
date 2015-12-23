@@ -1,5 +1,2 @@
-Artículo 261. Procedimiento ante incumplimientos. Ante el incumplimiento de los requisitos enumerados en el artículo anterior u otras que el BCCR considere que atentan contra la seguridad del numerario, el BCCR procederá de la siguiente forma:
-a) La primera vez: comunicado del incumplimiento al responsable del servicio ante el BCCR y bloqueo de la CAN en el servicio por cinco días hábiles.
-b) La segunda vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por veinte días hábiles.
-c) La tercera vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por sesenta días hábiles. Según sea la valoración que realice el BCCR, el bloqueo aplicará a la CAN que incurra en la falta o a todas las que administra la entidad.
-La acumulación de los incumplimientos se extingue al finalizar cada año calendario.
+Artículo 261. Atención de contingencias. Ante caso fortuito, fuerza mayor o eventos como corridas bancarias, el numerario depositado en las CAN a cargo de las entidades financieras constituye el medio de provisión inmediato a la economía. La Custodia General del BCCR operará como última instancia de abastecimiento, lo cual queda sujeto a que la entidad correspondiente disponga de fondos en su cuenta y cumpla lo indicado en la norma complementaria del servicio.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 256 al 261)

@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 428. Participantes del servicio. En el servicio ISP participan todos los asociados del SINPE, así como cualquier otra institución pública o privada que administre o disponga de información sobre medios de pago y del Sistema de Pagos.
+Artículo 428. Presentación del reclamo. Los reclamos por servicios de crédito deben ser presentados ante la entidad origen. Los que correspondan a servicios de débito deberán realizarse ante la entidad destino.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 423 al 428)

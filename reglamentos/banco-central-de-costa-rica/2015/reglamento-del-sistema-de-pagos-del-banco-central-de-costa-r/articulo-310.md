@@ -1,2 +1,2 @@
-Artículo 310. Congelamiento de fondos. En el caso de que el asociado no cumpla con la restitución de la garantía faltante en las condiciones solicitadas, el BCCR procederá a congelar en su cuenta de fondos los recursos suficientes para solventar el incumplimiento.
-El congelamiento de fondos podrá hacerse en moneda nacional o extranjera, de acuerdo con lo que mejor resulte para solventar el incumplimiento.
+Artículo 310. Aplicación de sobrantes. Cuando la ejecución de una garantía produzca algún sobrante, luego de haber liquidado satisfactoriamente las obligaciones financieras incumplidas, el BCCR lo acreditará en la cuenta de fondos de la entidad titular de la garantía ejecutada.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 305 al 310)

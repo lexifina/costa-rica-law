@@ -1,3 +1,2 @@
-CAPÍTULO VI
-DEL PROCEDIMIENTO DE COBRO DE LAS TARIFAS Y COMISIONES
-Artículo 459. Casos especiales de cobro. Cuando la cuenta de fondos en colones del asociado no disponga de dinero suficiente, el cobro se realizará sobre la cuenta de fondos que mantenga en cualquier otra moneda, utilizando para ello el tipo de cambio de referencia de venta del día en que se realiza el cobro. Si la insuficiencia de fondos persiste, el BCCR intentará realizar el cobro una vez por día, hasta lograr su liquidación.
+Artículo 459. Presentación de propuestas alternas. En caso de que los asociados o sus asociaciones gremiales no estén de acuerdo con las comisiones interbancarias definidas por el BCCR, podrán presentar ante la Gerencia del BCCR su propuesta con la justificación y estudio de costos respectivo, la cual deberá resolverse de conformidad con lo que establezca la Ley 6227.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 454 al 459)

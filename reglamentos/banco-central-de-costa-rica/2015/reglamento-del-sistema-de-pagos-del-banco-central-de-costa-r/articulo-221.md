@@ -1,5 +1,4 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 221. Participantes del servicio. En el servicio Monex-SINPE participan el BCCR y las entidades autorizadas para actuar como intermediarios cambiarios, conforme con las disposiciones contenidas en el Reglamento para las Operaciones Cambiarias de Contado.
-Podrán participar también los asociados del SINPE que, no siendo entidades autorizadas, se suscriban al mismo con el propósito de satisfacer sus necesidades propias de transacción de divisas.
-Las instituciones públicas asociadas al SINPE podrán liquidar sus operaciones directamente con el BCCR.
+CAPÍTULO V
+DE LAS RESPONSABILIDADES
+Artículo 221. Suficiencia de fondos. Las entidades que capten recursos son responsables de mantener en su cuenta los fondos suficientes para cubrir en la fecha de vencimiento, el pago del principal adeudado y los respectivos intereses.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 216 al 221)

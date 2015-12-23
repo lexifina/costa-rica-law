@@ -1,1 +1,7 @@
-Artículo 204. Suficiencia de fondos. Los inversionistas son responsables de mantener en su cuenta los fondos necesarios para que el emisor pueda liquidar en tiempo y forma las colocaciones realizadas. El incumplimiento en la liquidación de una oferta implicará la suspensión automática de la condición de inversionista en el servicio, por un período de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.
+LIBRO XX
+(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XIX al XX)
+VENTANILLA DE VALORES
+CAPÍTULO I
+DEL SERVICIO
+Artículo 204. Definición del servicio. Se define Ventanilla de Valores como el servicio por medio del cual se colocan valores estandarizados por medio de ventanilla.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 199 al 204)

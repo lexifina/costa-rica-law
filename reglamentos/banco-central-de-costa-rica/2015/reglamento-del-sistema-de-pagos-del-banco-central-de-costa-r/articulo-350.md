@@ -1,3 +1,2 @@
-.CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 350. Participantes del servicio. En el servicio Firma Digital participan las entidades financieras asociadas al SINPE como OR y los suscriptores de certificados digitales como consumidores de los servicios de firma digital.
+Artículo 350. Diseño de la estructura de seguridad. Los asociados son responsables de implementar una estructura de seguridad que incorpore los elementos que contempla el servicio AES, tales como: designación de RST, designación de RSP, asignación de derechos a usuarios y demás aspectos relacionados con la seguridad del sistema. Dicha estructura deberá implementarse de conformidad con las disposiciones definidas en las normas complementarias del servicio y estar detallada en un documento oficial del asociado.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 345 al 350)

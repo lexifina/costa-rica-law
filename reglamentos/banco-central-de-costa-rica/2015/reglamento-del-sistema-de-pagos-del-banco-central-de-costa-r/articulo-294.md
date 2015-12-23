@@ -1,3 +1,2 @@
-CAPÍTULO VII
-DE LA FACILIDAD CREDITICIA INTRADIARIA
-Artículo 294. Límites de crédito. El BCCR otorgará a las entidades financieras, una facilidad crediticia intradiaria hasta por el monto de las garantías depositadas.
+Artículo 294. Salidas de la cuenta de garantía. Las salidas de los valores depositados en la cuenta de valores en garantía, deberán ser autorizadas previamente por el BCCR y estarán sujetas a que su trámite no origine un incumplimiento de los requerimientos mínimos de garantía a cargo del asociado ni deje al descubierto las obligaciones financieras que están siendo respaldadas con esas garantías.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 289 al 294)

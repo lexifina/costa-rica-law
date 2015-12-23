@@ -1,1 +1,2 @@
-Artículo 232. Cambio de la familia de billetes o del cono monetario. Cada vez que el BCCR emita una nueva familia de billetes o un nuevo cono monetario, retirará de circulación la familia de billetes o el cono monetario anterior. El BCCR deberá publicar oportunamente los planes de retiro y sustitución de numerario.
+Artículo 232. Cobro del margen de intermediación cambiaria. El BCCR cobrará diariamente, en forma automática y con cargo a la cuenta de fondos de las entidades autorizadas, el monto que por concepto de margen de intermediación cambiaria corresponda de acuerdo con el Reglamento para las Operaciones Cambiarias de Contado.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 227 al 232)

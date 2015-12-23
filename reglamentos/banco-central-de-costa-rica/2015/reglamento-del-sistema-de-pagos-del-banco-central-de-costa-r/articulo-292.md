@@ -1,1 +1,4 @@
-Artículo 292. Valoración. Los valores aportados en garantía serán valorados diariamente a precios de mercado. Por lo tanto, las emisiones que carezcan de una referencia de mercado sin que razonablemente pueda determinarse su precio por otros medios, no podrán admitirse como garantía.
+CAPÍTULO V
+DE LA GARANTÍA EN VALORES
+Artículo 292. Cuenta de valores en garantía. El BCCR podrá mantener abierta una cuenta de valores con una entidad de custodia, para administrar los valores que los asociados decidan rendir en garantía.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 287 al 292)

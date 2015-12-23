@@ -1,3 +1,7 @@
-CAPÍTULO IV
-DE LOS CERTIFICADOS DE PERSONA FISICA
-Artículo 353. Gestión de certificados. La validación presencial de la identidad y el registro de los suscriptores, así como el trámite de las solicitudes de emisión, revocación, renovación y entrega de los certificados de persona física es responsabilidad de las OR. Las obligaciones a las que se sujetan quienes obtengan un certificado de firma digital estarán consignadas en el respectivo Acuerdo de Suscriptor que deberá firmar el solicitante.
+LIBRO XXIX
+(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXVIII al XXIX)
+FIRMA DIGITAL (FDI)
+CAPÍTULO I
+DEL SERVICIO
+Artículo 353. Definición del servicio. Se define Firma Digital como el servicio por medio del cual se gestiona la solicitud, emisión, entrega, renovación, revocación y verificación de certificados digitales, de conformidad con la Ley 8454 y su reglamento.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 348 al 353)

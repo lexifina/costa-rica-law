@@ -1,1 +1,2 @@
-Artículo 320. Horario de funcionamiento de la SAO. La SAO funcionará en el mismo horario de operación del SINPE, debiendo el BCCR implementar los procedimientos administrativos que faciliten el ingreso de los usuarios a sus instalaciones.
+Artículo 320. Responsabilidad del aplazamiento. El procedimiento de aplazamiento de devoluciones opera bajo la completa responsabilidad de la entidad financiera, por lo que la entidad que lo utilice deberá suministrar las justificaciones pertinentes a sus clientes y al ente supervisor que corresponda, en virtud de la no acreditación de fondos dentro de lo establecido por las leyes vigentes.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 315 al 320)

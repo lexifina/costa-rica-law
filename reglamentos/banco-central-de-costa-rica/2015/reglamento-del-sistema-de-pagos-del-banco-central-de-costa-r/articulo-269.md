@@ -1,1 +1,7 @@
-Artículo 269. Movimientos en BCCR ante servicio MEN inoperable. Cuando el Servicio MEN se encuentre fuera de operación y una entidad requiera retirar numerario de la Custodia General, deberá disponer de los fondos suficientes en su cuenta de fondos para que el BCCR los retenga, cumplir con los procedimientos que para tal efecto establezcan las normas complementarias y registrar tales movimientos en el servicio a más tardar diez minutos después de que ha sido reestablecido. A falta de este registro, el BCCR podrá realizarlo de oficio afectando la cuenta de fondos de la entidad según corresponda.
+LIBRO XXV
+(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXIV al XXV)
+MERCADO DE NUMERARIO (MEN)
+CAPÍTULO I
+DEL SERVICIO
+Artículo 269. Definición del servicio. Se denomina servicio MEN al conjunto de procesos operativos, la logística y la plataforma electrónica mediante los cuales las entidades participantes negocian numerario entre sí, en colones o dólares.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 264 al 269)

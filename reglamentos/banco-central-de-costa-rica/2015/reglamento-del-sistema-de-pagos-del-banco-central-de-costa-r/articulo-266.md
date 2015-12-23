@@ -1,8 +1,6 @@
-CAPÍTULO III
-DEL MODELO DE OPERACIÓN
-Artículo 266. Ciclo de operación del servicio. El ciclo de negociación en el servicio MEN se efectuará de conformidad con las siguientes etapas:
-a) Activación de operaciones: la entidad oferente registra en el servicio sus ofertas con las características establecidas en la Norma Complementaria del servicio MEN.
-b) Compra de numerario: la entidad demandante evalúa las ofertas disponibles y adquiere la cantidad deseada de una oferta publicada. Adicionalmente, selecciona de las opciones establecidas por la entidad oferente, la fecha y hora para el retiro del numerario.
-c) Aviso: la entidad oferente es notificada de la compra registrada, incluyendo fecha y hora para el retiro, seleccionadas por la entidad demandante.
-d) Liquidación de la operación: en la fecha y hora seleccionadas por la entidad demandante, el SIL efectúa la liquidación en firme de la operación, utilizando el mecanismo de liquidación bilateral bruta, debitando la cuenta SINPE de la entidad demandante y acreditando la cuenta de la entidad oferente, tanto por el importe de la remesa como por el precio del suministro de numerario, notificando a ambas entidades.
-e) Entrega del numerario: la entidad oferente entrega el numerario bajo las condiciones pactadas y emite el comprobante “Recibo de Numerario” en el cual la entidad demandante da fe del retiro de la remesa.
+Artículo 266. Procedimiento ante incumplimientos. Ante el incumplimiento de los requisitos enumerados en el artículo anterior u otras que el BCCR considere que atentan contra la seguridad del numerario, el BCCR procederá de la siguiente forma:
+a) La primera vez: comunicado del incumplimiento al responsable del servicio ante el BCCR y bloqueo de la CAN en el servicio por cinco días hábiles.
+b) La segunda vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por veinte días hábiles.
+c) La tercera vez: comunicado del incumplimiento a la gerencia de la entidad y bloqueo de la CAN por sesenta días hábiles. Según sea la valoración que realice el BCCR, el bloqueo aplicará a la CAN que incurra en la falta o a todas las que administra la entidad.
+La acumulación de los incumplimientos se extingue al finalizar cada año calendario.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 261 al 266)

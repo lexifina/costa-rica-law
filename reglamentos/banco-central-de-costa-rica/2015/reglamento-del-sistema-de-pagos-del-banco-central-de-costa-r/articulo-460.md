@@ -1,1 +1,2 @@
-Artículo 460. Cobro de tarifas y comisiones ante cierre de cuentas. Con el cierre de las cuentas de fondos de un asociado, el BCCR efectuará el cobro de las tarifas y comisiones adeudadas al momento del cierre.
+Artículo 460. Incumplimiento de disposiciones. La entidad que incumpla con las disposiciones establecidas en el esquema de tarifas y comisiones, no recibirá el pago de las comisiones que tenga a su favor durante el mes en que se dio el incumplimiento. Además, el BCCR informará del incumplimiento a los consumidores de los servicios financieros.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 455 al 460)

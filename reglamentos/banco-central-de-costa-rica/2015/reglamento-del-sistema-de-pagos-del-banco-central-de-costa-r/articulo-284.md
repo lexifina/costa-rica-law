@@ -1,1 +1,2 @@
-Artículo 284. Restitución de la garantía. En el caso de que las obligaciones financieras lleguen a superar el monto de las garantías aportadas, el asociado deberá proceder con una restitución de garantía por el monto necesario para cumplir satisfactoriamente con el nivel mínimo requerido para respaldar sus obligaciones.
+Artículo 284. Adhesión a las disposiciones sobre garantías. Los asociados obligados a cumplir con los requerimientos de garantía establecidos por el presente libro deberán adherirse a las condiciones que el BCCR establezca con el administrador de las garantías, así como sujetar sus aportes de garantía a dichas condiciones.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 279 al 284)

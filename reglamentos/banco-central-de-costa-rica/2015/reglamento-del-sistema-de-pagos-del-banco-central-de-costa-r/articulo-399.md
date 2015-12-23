@@ -1,3 +1,6 @@
-CAPÍTULO VI
-DEL ESQUEMA DE OPERACIÓN DEL SERVICIO
-Artículo 399. Reportes de información transaccional. Los participantes deben reportar mensualmente al BCCR, el saldo y los montos acumulados de depósitos de cada una de las cuentas que registren en el padrón, en la forma y por los medios que se determine en la norma complementaria del servicio.
+Artículo 399. Requisitos de apertura y funcionamiento de las CES de Nivel 2.
+a) Presentación del documento de identificación del titular de la cuenta: debe corresponder a un documento emitido por una autoridad nacional y se requiere que sea validado contra las bases de datos oficiales.
+b) Canales autorizados para la apertura de la cuenta: agencias, sucursales y corresponsales bancarios.
+c) Información requerida del cliente: nombre completo, número y tipo de documento de identificación y número de teléfono móvil. El registro electrónico de estos datos sustituye el formulario conozca a su cliente.
+d) Límite máximo de depósitos en la cuenta: dos mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 394 al 399)

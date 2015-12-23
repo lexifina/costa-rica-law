@@ -1,4 +1,2 @@
-CAPÍTULO III
-DE LA INFORMACIÓN
-Artículo 440. Información consultada. Por medio del servicio los participantes pueden consultar los datos e imágenes de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones y con base en los cuales emite las cédulas de identidad como medio oficial de identificación de las personas nacionales.
-Las consultas se harán conforme con los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.
+Artículo 440. Confidencialidad de la información. El BCCR es responsable de administrar confidencialmente la información recibida de las entidades, acatando lo establecido en la Ley 7839 del Sistema de Estadística Nacional.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 435 al 440)

@@ -1,3 +1,7 @@
-CAPÍTULO III
-DE LOS PUNTOS DE VENTA (POS)
-Artículo 409. Definición. Se refiere al uso de tarjetas de pago en establecimientos comerciales minoristas (puntos de venta), donde la información de una transacción de pago es capturada por terminales electrónicas diseñadas para autenticar al usuario y transmitir datos de la tarjeta de pago y de la transacción, en línea o en un momento posterior.
+LIBRO XXXIII
+(Corrida la numeración del Libro anterior en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo Libro XXXII al XXXIII)
+INFRAESTRUCTURAS DE PAGO AL DETALLE
+CAPÍTULO I
+DE LAS TARJETAS DE PAGO
+Artículo 409. Definición. El presente apartado se refiere a las tarjetas de débito, tarjetas de crédito y tarjetas prepago emitidas por una entidad financiera o empresa comercial bajo una marca internacional o marca local para su utilización como instrumento de pago.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 404 al 409)

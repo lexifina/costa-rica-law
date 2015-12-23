@@ -1,2 +1,2 @@
-Artículo 288. Constitución de la garantía en valores. Los asociados deberán traspasar a la cuenta de garantía los valores necesarios para cumplir con sus requerimientos de garantía, conforme con las disposiciones operativas que establezcan las normas complementarias del servicio.
-Los valores que traspasen los asociados quedarán pignorados mientras se mantengan depositados en la cuenta de garantía.
+Artículo 288. Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para las entidades financieras, los asociados podrán aportar garantías adicionales para respaldar las obligaciones financieras que decidan asumir con su participación en los mercados de negociación organizados a través del SINPE.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 283 al 288)

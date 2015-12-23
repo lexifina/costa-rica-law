@@ -1,1 +1,4 @@
-Artículo 340. Contingencia del RST. Es responsabilidad de la entidad crear en su estructura de seguridad al menos a un tercer RST, para que pueda modificar a los anteriores RST en sus servicios operativos, o colaborar en las labores que dicho perfil demanda.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 340. Participantes del servicio. En el servicio AES participan los asociados del SINPE.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 335 al 340)

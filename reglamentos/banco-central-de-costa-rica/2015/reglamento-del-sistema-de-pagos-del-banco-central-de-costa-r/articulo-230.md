@@ -1,1 +1,2 @@
-Artículo 230. Familia de billetes. Conjunto de billetes emitidos por el BCCR como medio legal de pago en el país y que comparten un mismo concepto de diseño y patrón de seguridades.
+Artículo 230. Calce de ofertas. Las ofertas de compra o de venta de divisas que realicen los participantes en el Monex, estarán sujetas a aceptación automática bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse la aceptación parcial de ofertas.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 225 al 230)

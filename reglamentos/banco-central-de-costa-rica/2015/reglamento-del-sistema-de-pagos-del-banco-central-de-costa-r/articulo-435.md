@@ -1,1 +1,2 @@
-Artículo 435. Confidencialidad de la información. El BCCR es responsable de administrar confidencialmente la información recibida de las entidades, acatando lo establecido en la Ley 7839 del Sistema de Estadística Nacional.
+Artículo 435. Administración de información. El servicio ISP administrará la información de las transacciones realizadas por los asociados en todos los servicios financieros del SINPE y aquella generada a partir de los diferentes medios de pago ofrecidos por el Sistema Financiero Nacional.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 430 al 435)

@@ -1,3 +1,4 @@
 CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 189. Participantes del servicio. En el servicio Subasta de Valores participa el BCCR como emisor y los asociados del SINPE como inversionistas, de conformidad con las condiciones que la Junta Directiva del BCCR establezca para las negociaciones. Cuando así lo dispongan, el MHDA u otra institución pública también podrán participar como emisores.
+De los participantes
+Artículo 189.—Participantes del servicio. En el servicio Captación de Fondos participa el BCCR y el MHDA como receptores de las inversiones y depósitos, y podrán participar como inversionistas las entidades asociadas al SINPE, siempre de conformidad con las condiciones que el emisor respectivo establezca para las negociaciones.
+(Así adicionado en sesión N° 5707 del 23 de diciembre de 2015)

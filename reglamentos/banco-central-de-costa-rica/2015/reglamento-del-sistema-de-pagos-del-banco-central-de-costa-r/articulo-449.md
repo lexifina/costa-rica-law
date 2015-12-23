@@ -1,6 +1,2 @@
-CAPÍTULO III
-DEL ESQUEMA TARIFARIO
-Artículo 449. Esquema de tarifas y comisiones. Se establece un esquema que será utilizado para definir las tarifas del SINPE y las comisiones interbancarias aplicables a todas las transacciones procesadas por el SINPE, con las siguientes condiciones:
-a) La entidad que demanda el servicio (entidad origen) paga por cada transacción ordenada en el servicio.
-b) No se cobra comisión alguna al cliente destino.
-c) El cobro al cliente origen es libre (relación privada entidad financiera-cliente).
+Artículo 449. Responsabilidad por atrasos en la actualización de la información. El BCCR ni el Tribunal Supremo de Elecciones asumen responsabilidad alguna por los atrasos, inconvenientes o daños causados o sufridos por la prestación del servicio, cuando sean consecuencia de fallas tecnológicas propias o de terceros, caso fortuito, fuerza mayor, culpa de la víctima o hecho de un tercero, siempre y cuando dicho problema no obedezca a actuaciones dolosas o culpa grave de su personal.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 444 al 449)

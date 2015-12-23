@@ -1,2 +1,4 @@
-Artículo 356. Inspecciones por parte del BCCR. Los administradores de OR están en la obligación de permitir las inspecciones que programe el BCCR en sus OR para verificar el cumplimiento del marco regulatorio aplicable al funcionamiento de las OR. Con tales propósitos deberán suministrar al BCCR la información que les requiera, con el formato y las condiciones que este defina.
-Las mismas condiciones deberán ser provistas por los participantes a los funcionarios de la Dirección de Certificadores de Firma Digital, del Ministerio de Ciencia y Tecnología y Telecomunicaciones.
+CAPÍTULO III
+DE LAS DISPOSICIONES GENERALES
+Artículo 356. Marco Legal. Los servicios de firma digital y sus participantes se rigen conforme a lo que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº8454, el reglamento a esta ley, el presente reglamento y las normas complementarias de los servicios de firma digital.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 351 al 356)

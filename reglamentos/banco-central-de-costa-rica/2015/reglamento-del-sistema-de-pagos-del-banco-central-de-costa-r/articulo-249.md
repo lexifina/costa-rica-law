@@ -1,1 +1,4 @@
-Artículo 249. Garantía por el numerario mantenido en las CAN. El SIL efectuará sobre la cuenta de fondos de la entidad que administra la CAN, la retención de los depósitos en la CAN, así como su liberación por los retiros que efectúe la entidad, de modo que el saldo de la cuenta de fondos en la moneda correspondiente de la entidad nunca podrá ser menor que el monto del numerario mantenido en las CAN que administre la entidad. Los fondos depositados en las CAN forman parte del encaje mínimo legal, de acuerdo con la metodología de cálculo que establezca el BCCR.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 249. Participantes del servicio. En el servicio CAN deben participar el BCCR, las entidades que administren CAN y las que requieran depositar numerario en la Custodia General del BCCR.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 244 al 249)

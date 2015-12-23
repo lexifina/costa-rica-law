@@ -1,1 +1,3 @@
-Artículo 360. Nombramiento del Tramitador de Certificados. Toda Persona Jurídica interesada en obtener un certificado debe nombrar un Tramitador responsable de realizar todas las gestiones relacionadas con los certificados. La CA SINPE – Persona Jurídica validará la autenticidad de la identidad de la persona jurídica solicitante, así como la identidad de la persona física designada como “Tramitador de Persona Jurídica”.
+Artículo 360. Prestación de servicios de emisión a clientes de otros participantes. Los asociados que actúen como OR deberán prestarle los servicios de firma digital a un conjunto determinado de clientes de otro asociado del SINPE.
+Por la prestación de estos servicios, las OR recibirá en pago las comisiones establecidas en el presente Reglamento.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 355 al 360)

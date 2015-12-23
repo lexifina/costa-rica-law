@@ -1,2 +1,5 @@
-Artículo 445. Prohibiciones. Los participantes no podrán constituir bases de datos con la información que consultan a través del servicio, por lo cual estarán impedidos para almacenar, replicar, reproducir, transmitir o publicar dicha información por ningún medio, ya sea en forma parcial o total.
-Se exceptúa de esta disposición la información que el participante necesite imprimir o conservar en formato digital para dejar en sus expedientes constancia documental de la consulta realizada, cuando sus procedimientos administrativos así lo requieran por razones de control interno y siempre en el entendido de que la excepción es únicamente para cumplir con esos fines.
+CAPÍTULO III
+DE LA INFORMACIÓN
+Artículo 445. Información consultada. Por medio del servicio los participantes pueden consultar los datos e imágenes de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones y con base en los cuales emite las cédulas de identidad como medio oficial de identificación de las personas nacionales.
+Las consultas se harán conforme con los convenios de intercambio de información que suscriba el BCCR con el Tribunal Supremo de Elecciones.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 440 al 445)

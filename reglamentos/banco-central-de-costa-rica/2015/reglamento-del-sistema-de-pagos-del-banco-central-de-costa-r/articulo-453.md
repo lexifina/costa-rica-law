@@ -1,1 +1,4 @@
-Artículo 453. Cobro por uso de medios de pago. Las entidades financieras podrán cobrar a los clientes una comisión por el costo de operación correspondiente a cada medio de pago. De los recursos recaudados por este concepto, una proporción significativa debe ser destinada a la realización de campañas educativas que promuevan el uso de medios electrónicos, de modo que sea menor el uso del efectivo en la realización de transacciones, con miras a promover la eficiencia del sistema de pagos y una mayor bancarización.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 453. Participantes del servicio. En el servicio TCS participan todos los asociados del SINPE.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 448 al 453)

@@ -1,1 +1,4 @@
-Artículo 303. Responsabilidad sobre costos. Todos los costos derivados de la ejecución de garantías correrán por cuenta del deudor, incluidos los intereses que procedan en favor del acreedor, en razón de los eventuales atrasos que pudieran darse en la liquidación final con respecto al vencimiento de la obligación incumplida. Para estos efectos, la tasa de interés aplicable durante los días de atraso será igual a la tasa de redescuento del BCCR más 10 puntos porcentuales en caso de operaciones en colones; en el caso de moneda extranjera se aplica la tasa libor 6 meses más 10 puntos porcentuales.
+CAPÍTULO VIII
+DEL CRÉDITO OVERNIGHT
+Artículo 303. Formalización de créditos. Si al cierre del horario bancario una entidad financiera mantiene saldos pendientes por concepto de créditos intradiarios, y carece de los fondos necesarios para cancelarlos, el BCCR procederá a formalizar automáticamente un crédito overnight a su favor.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 298 al 303)

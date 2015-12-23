@@ -1,1 +1,4 @@
-Artículo 277. Margen por riesgo cambiario. Cuando el monto por garantizar en una moneda supere el valor de las garantías expresadas en esa misma moneda, y para efectos de determinar las necesidades mínimas de cobertura, el exceso de la exposición cambiaria se tomará por el porcentaje que establezca el órgano administrativo facultado por la Junta Directiva del BCCR para esos fines.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 277. Participantes del servicio. En el servicio Gestión de Riesgos participan los asociados que requieran o deban utilizar alguno de los mecanismos dispuestos por este mismo servicio.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 272 al 277)

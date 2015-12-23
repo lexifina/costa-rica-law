@@ -1,3 +1,2 @@
-CAPÍTULO V
-DE LA GARANTÍA EN VALORES
-Artículo 287. Cuenta de valores en garantía. El BCCR podrá mantener abierta una cuenta de valores con una entidad de custodia, para administrar los valores que los asociados decidan rendir en garantía.
+Artículo 287. Disponibilidad de garantías. El monto que las entidades financieras deban rendir como requerimiento mínimo de garantía se computará íntegramente como su disponibilidad de garantías en el Sistema de Pagos, de modo que tales entidades podrán utilizarlo para respaldar, conforme con las disposiciones del presente libro, los compromisos financieros que asuman con su participación en el SINPE y en los mercados de negociación organizados por el BCCR mediante su plataforma tecnológica.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 282 al 287)

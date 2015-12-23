@@ -1,5 +1,10 @@
-LIBRO XXI
-MERCADO DE MONEDAS EXTRANJERAS (MONEX)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 219. Definición del servicio. Se define Monex-SINPE como el servicio por medio del cual los asociados del SINPE acceden al mercado de monedas extranjeras para realizar la negociación de divisas.
+CAPÍTULO IV
+DEL CICLO DEL SERVICIO
+Artículo 219. Ciclo de operación del servicio. El ciclo del servicio MIL se efectuará de conformidad con las siguientes etapas:
+a) Ingreso de ofertas: Durante el horario de la ventana de negociación, los participantes ingresan sus ofertas de inversión o captación.
+Con las ofertas de inversión, el SIL retiene el monto de la operación en la cuenta de fondos de la entidad oferente. Para las ofertas de captación garantizadas, se pignorará el monto necesario para constituir la garantía.
+b) Calce de operaciones: Las ofertas que realicen los participantes están sujetas a calce automático bajo los principios de “mejor oferta de mercado” y de “primera en tiempo, primera en derecho”, pudiendo darse el calce parcial de ofertas cuando las contrapartes así lo establezcan para las operaciones.
+c) Liquidación de constituciones: El SIL liquida en firme las constituciones en el momento en que las operaciones resultan calzadas, utilizando el mecanismo de liquidación bilateral bruta.
+d) Liquidación de vencimientos: El SIL liquida en firme los vencimientos utilizando el mecanismo de liquidación multilateral neta, o el de liquidación bilateral neta cuando la liquidación no pudiera realizarse por medio del primer mecanismo. En todo caso, la liquidación de vencimientos se llevará a cabo en el día pactado por las partes para tales efectos y según el horario establecido en la Norma Complementaria del Servicio.
+En el caso de que la contraparte deudora no mantenga en su cuenta los fondos suficientes para cubrir el vencimiento de una operación, su liquidación se realizará parcialmente y hasta por el saldo disponible en dicha cuenta; además, la entidad deudora deberá cancelar el monto correspondiente a los intereses moratorios desde el mismo día del incumplimiento, intereses que se estimarán sobre el monto máximo de principal no acreditado por operación, según los horarios establecidos en la normativa para tales efectos. Para operaciones en moneda nacional se aplicará la tasa de redescuento más un punto porcentual para cada liquidación no exitosa y en el caso de moneda extranjera, la Tasa Libor a 6 meses más un punto porcentual por cada liquidación no exitosa.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 214 al 219)

@@ -1,5 +1,2 @@
-LIBRO XXIII
-CUSTODIA DE NUMERARIO (CAN)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 241. Definición del servicio. El servicio CAN constituye el conjunto de procesos operativos, la logística y la plataforma electrónica en la que operan las Custodias de Numerario, mediante las cuales el BCCR atiende los requerimientos de numerario de las entidades financieras y mantiene parte de su disponibilidad de numerario (colones y dólares) en las bóvedas de tales entidades bajo su absoluta responsabilidad, para usarlo según el BCCR lo determine.
+Artículo 241. Requerimiento para la circulación del numerario. Las entidades que realicen labores de procesamiento de numerario deberán cumplir los estándares que sobre el particular se establecen en la Norma Complementaria de Numerario y comprobar su autenticidad antes de ponerlo de nuevo en circulación. Además, su personal deberá poseer la certificación del BCCR que lo acredite para realizar las labores de procesamiento. Los equipos que utilicen para el procesamiento, deberán someterse a las pruebas técnicas establecidas en la citada Norma, de acuerdo con el procedimiento ahí indicado.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 236 al 241)

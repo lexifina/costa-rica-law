@@ -1,1 +1,4 @@
-Artículo 421. Prescripción del derecho de reclamo. El periodo para ejercer el derecho de reclamo prescribe a los 5 días hábiles de haber sido procesada la transacción reclamada, por lo que a partir de la expiración de este plazo la misma se considera finalizada y no podrá ser sujeta de reclamación en el futuro mediante el SINPE.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 421. Participantes del servicio. En el servicio REF podrá participar cualquier asociado del SINPE.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 416 al 421)

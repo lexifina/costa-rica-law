@@ -1,5 +1,2 @@
-LIBRO XXXVI
-TARIFAS Y COMISIONES (TCS)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 447. Definición del servicio. Se define TCS como el servicio de compensación multilateral neta, por medio del cual se cobran las tarifas por el uso de la plataforma del SINPE y las comisiones interbancarias.
+Artículo 447. Confidencialidad de la información. La información a la que acceda el participante con las consultas deberá ser tratada con un carácter confidencial, debiendo utilizarla el participante con los cuidados y controles necesarios para evitar accesos no autorizados por parte de terceros.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 442 al 447)

@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 202. Principios de la negociación. El emisor deberá garantizar a los inversionistas igualdad de condiciones de acceso a la negociación de valores, y transparencia en los procedimientos de convocatoria, la asignación de ofertas y la difusión de información de los resultados de las colocaciones, todo ello de conformidad con las condiciones que establezca para los procesos de negociación.
+Artículo 202. Declaración de subasta desierta. El emisor se reserva el derecho de declarar total o parcialmente desierta una subasta, cuando considere que las ofertas no representan adecuadamente las condiciones de mercado, pudieren llegar a producir efectos inconvenientes en el mismo o se detecte colusión entre los inversionistas.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 197 al 202)

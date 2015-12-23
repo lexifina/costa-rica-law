@@ -1,1 +1,2 @@
-Artículo 383. Confidencialidad de la identidad de terceros. Cada participante deberá manejar confidencialmente, la identidad de las personas inmersas en los reportes que brinda el servicio, con el propósito de no obstaculizar posibles investigaciones.
+Artículo 383. Cumplimiento legal. Este servicio atiende a la obligación legal impuesta al BCCR por medio del Reglamento a la Ley 8204, en el sentido de facilitar un medio por el cual los actores en materia de prevención de la legitimación de capitales, puedan acceder a la información perteneciente a las transacciones que se tramitan por medio del SINPE.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 378 al 383)

@@ -1,1 +1,2 @@
-Artículo 238. Atención de requerimientos de numerario y empaquetado. La División de Sistemas de Pago del BCCR establecerá en las normas complementarias de los servicios CAN y MEN, los criterios para la atención de los requerimientos de las entidades financieras, tanto para depósitos como para retiros de numerario; así como los estándares que deberán cumplir con el empaquetado del numerario.
+Artículo 238. Autenticidad. Cualquier persona física o jurídica que identifique numerario de dudosa autenticidad, deberá remitirlo al BCCR para su respectivo análisis, siguiendo el procedimiento establecido en la Norma Complementaria de Numerario.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 233 al 238)

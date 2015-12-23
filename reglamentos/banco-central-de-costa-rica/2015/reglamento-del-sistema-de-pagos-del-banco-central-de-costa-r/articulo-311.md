@@ -1,3 +1,2 @@
-CAPÍTULO XI
-DE LOS MECANISMOS DE EXCLUSIÓN PARA LA LIQUIDACIÓN MULTILATERAL NETA
-Artículo 311. Exclusiones por insuficiencia de fondos. Un asociado será excluido de la liquidación de un multilateral cuando no pueda pagar el débito neto calculado en su contra, o cuando siendo una entidad financiera tampoco posea garantías suficientes para que el BCCR le otorgue un crédito intradiario que le permita solventar la insuficiencia.
+Artículo 311. Transparencia de los procesos de ejecución. La ejecución de garantías deberá realizarse mediante procedimientos transparentes, de acuerdo con lo establecido en la norma complementaria del servicio, de modo que aseguren en todo momento la protección de los derechos de los asociados durante el proceso de ejecución.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 306 al 311)

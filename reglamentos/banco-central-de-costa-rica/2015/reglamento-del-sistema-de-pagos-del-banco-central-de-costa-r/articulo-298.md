@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-DEL CRÉDITO OVERNIGHT
-Artículo 298. Formalización de créditos. Si al cierre del horario bancario una entidad financiera mantiene saldos pendientes por concepto de créditos intradiarios, y carece de los fondos necesarios para cancelarlos, el BCCR procederá a formalizar automáticamente un crédito overnight a su favor.
+Artículo 298. Condiciones por moneda. Para constituir las garantías, los asociados podrán utilizar valores emitidos en una moneda distinta de la moneda de las obligaciones financieras que garantizan. Con tales propósitos, la paridad cambiaria estará determinada por el tipo de cambio de referencia para la compra de US dólares, calculado diariamente por el BCCR. Para divisas distintas del US dólar, su conversión a esa moneda se hará con base en las paridades cambiarias publicadas diariamente por el BCCR, de acuerdo con la información que le proporcione el proveedor de precios internacionales utilizado con esos fines.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 293 al 298)

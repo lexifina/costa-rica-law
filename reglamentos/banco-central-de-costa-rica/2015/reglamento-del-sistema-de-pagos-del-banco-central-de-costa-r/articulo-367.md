@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 367. Participantes del servicio. En el servicio ADA deben participar como entidad origen y destino las entidades financieras que administren cuentas de fondos, y podrán participar como entidad origen todos los asociados del SINPE.
+Artículo 367. Validación de certificados. Como parte del servicio de emisión de certificados de persona física y de persona jurídica, la Autoridad Certificadora del SINPE mantendrá publicadas las Listas de Certificados Revocados a fin de que puedan ser consultadas por cualquier interesado para determinar si debe desconfiar de un certificado debido a que este haya sido revocado.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 362 al 367)

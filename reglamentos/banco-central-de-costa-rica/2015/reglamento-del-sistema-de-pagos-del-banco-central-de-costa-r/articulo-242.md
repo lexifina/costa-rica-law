@@ -1,1 +1,2 @@
-Artículo 242. Carácter oficial del servicio. El servicio CAN es el sistema oficial de registro del inventario de numerario del BCCR, del que mantiene en su Custodia General y del custodiado por cuenta y riesgo de las entidades financieras que administran CAN.
+Artículo 242. Estructura denominativa en circulación. Con el fin de garantizar la circulación de las denominaciones según las necesidades reales de la economía, la División Sistemas de Pago definirá la proporción, las denominaciones y el período en el que el BCCR entregará y recibirá numerario.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 237 al 242)

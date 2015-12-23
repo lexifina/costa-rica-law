@@ -1,1 +1,2 @@
-Artículo 251. Seguridad de las CAN. Las entidades financieras deberán establecer medidas de seguridad y de infraestructura en sus bóvedas, según los lineamientos que sobre el particular establezca el BCCR y los que dicten las buenas prácticas en materia de seguridad bancaria. La entidad no podrá realizar movimientos de numerario en la CAN mientras el circuito cerrado de televisión (CCTV) no funcione adecuadamente, salvo casos de fuerza mayor debidamente autorizados por el BCCR.
+Artículo 251. Horario del servicio. Las entidades podrán realizar movimientos de numerario en las CAN en el horario de operación del SINPE.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 246 al 251)

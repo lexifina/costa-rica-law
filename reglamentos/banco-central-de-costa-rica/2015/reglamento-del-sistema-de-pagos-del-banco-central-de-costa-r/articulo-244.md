@@ -1,3 +1,2 @@
-CAPÍTULO II
-DE LOS PARTICIPANTES
-Artículo 244. Participantes del servicio. En el servicio CAN deben participar el BCCR, las entidades que administren CAN y las que requieran depositar numerario en la Custodia General del BCCR.
+Artículo 244. Canje de numerario. Las entidades financieras a las que el BCCR entregue numerario nuevo o les reciba deteriorado, deben ofrecer el servicio de canje de numerario al público; ya sea de deteriorado por circulable, de billete por moneda o viceversa. Para tal efecto, podrán cobrar una comisión por la prestación de este servicio.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 239 al 244)

@@ -1,3 +1,4 @@
-CAPÍTULO XII
-DE LOS APLAZAMIENTOS
-Artículo 313. Impedimento para realizar devoluciones. Cuando un participante presente algún problema que no le permita realizar el trámite de las devoluciones, deberá comunicar a los demás participantes su imposibilidad para enviar las devoluciones en el ciclo del día hábil siguiente. Dicha comunicación la deberá realizar a través del SINPE.
+CAPÍTULO X
+DE LAS RESPONSABILIDADES CON RESPECTO A LAS GARANTÍAS
+Artículo 313. Sustitución de garantías. Los asociados deberán atender con la oportunidad requerida por el BCCR, las instrucciones que éste les suministre para la sustitución de garantías.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 308 al 313)

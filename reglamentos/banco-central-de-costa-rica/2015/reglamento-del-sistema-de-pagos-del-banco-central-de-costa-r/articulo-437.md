@@ -1,5 +1,2 @@
-LIBRO XXXV
-CONSULTA DE IDENTIFICACIÓN CIUDADANA
-CAPÍTULO I
-DEL SERVICIO
-Artículo 437. Definición del servicio. Se define Consulta de Identificación Ciudadana como el servicio por medio del cual se accede a parte de la información de los ciudadanos costarricenses que administra el Tribunal Supremo de Elecciones.
+Artículo 437. Acceso a la información. Los asociados del SINPE pueden consultar en forma agregada la información que administra el servicio, de modo que podrán visualizar la posición de su entidad dentro del sector, así como tener el panorama general de todo el Sistema de Pagos. De igual forma, el BCCR podrá publicar información agregada de las transacciones procesadas por el SINPE, para conocimiento del público en general.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 432 al 437)

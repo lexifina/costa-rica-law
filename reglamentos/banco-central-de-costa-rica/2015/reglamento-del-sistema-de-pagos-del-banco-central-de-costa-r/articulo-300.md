@@ -1,3 +1,2 @@
-CAPÍTULO IX
-DE LA EJECUCIÓN DE GARANTÍAS
-Artículo 300. Autorización de la ejecución. El incumplimiento por parte de un asociado del pago de sus obligaciones financieras dentro de las condiciones de tiempo y forma pactadas, autoriza inmediatamente y de manera irrevocable al BCCR para que solicite al Fiduciario que proceda a descontar en el mercado bursátil los valores dados en garantía, conforme con lo que corresponda.
+Artículo 300. Naturaleza del crédito intradiario. El crédito intradiario será otorgado en forma automática por el BCCR con el fin de inyectarle liquidez inmediata a la entidad financiera que, por una insuficiencia de fondos en su cuenta, no pueda cubrir los débitos presentados a su cargo por los demás asociados.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 295 al 300)

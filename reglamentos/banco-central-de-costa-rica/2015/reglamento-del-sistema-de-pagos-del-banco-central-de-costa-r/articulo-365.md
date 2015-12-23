@@ -1,3 +1,2 @@
-CAPÍTULO VIII
-DEL COBRO DE LOS SERVICIOS
-Artículo 365. Procedimiento de cobro. El cobro por los servicios de firma digital para personas físicas o jurídicas se realizará mediante débito automático a una cuenta IBAN del solicitante, la cual debe registrar en el proceso de trámite de emisión de su certificado. Cuando se trate de entidades asociadas al SINPE el cobro se realizará con cargo a la cuenta SINPE correspondiente.
+Artículo 365. Nombramiento del Tramitador de Certificados. Toda Persona Jurídica interesada en obtener un certificado debe nombrar un Tramitador responsable de realizar todas las gestiones relacionadas con los certificados. La CA SINPE – Persona Jurídica validará la autenticidad de la identidad de la persona jurídica solicitante, así como la identidad de la persona física designada como “Tramitador de Persona Jurídica”.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 360 al 365)

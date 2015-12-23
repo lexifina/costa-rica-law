@@ -1,3 +1,2 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES DEL BCCR
-Artículo 257. Inspección y monitoreo. El BCCR es responsable de monitorear e inspeccionar las operaciones realizadas en las CAN y en la Custodia General. Estas funciones las realizará por medio del Centro de Control de Numerario (CCN). En el caso de las monedas extranjeras, el CCN validará la cantidad y el monto total del numerario depositado por denominación, siendo responsabilidad de la entidad financiera garantizar su autenticidad. No obstante, en caso de identificar billetes falsos, se aplicarán las mismas tarifas establecidas para la moneda nacional.
+Artículo 257. Inspección por parte del BCCR. Las entidades participantes deberán permitir a cualquier hora el ingreso expedito de los inspectores del BCCR para que efectúen su labor de inspección en las CAN, incluyendo la verificación de las grabaciones que realiza el CCTV.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 252 al 257)

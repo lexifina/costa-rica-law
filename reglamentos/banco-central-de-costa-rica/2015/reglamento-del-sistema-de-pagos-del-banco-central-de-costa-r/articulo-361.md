@@ -1,3 +1,3 @@
-CAPÍTULO VI
-DE LA REVOCACIÓN DE CERTIFICADOS
-Artículo 361. Revocación de certificados. Toda persona física o jurídica que requiera tramitar la revocación de un certificado digital debe realizar el trámite directamente ante la Autoridad Certificadora del SINPE por los medios electrónicos que ésta tenga dispuestos para este propósito. No obstante, para el caso de los certificados de persona física, las OR deben realizar el trámite de revocación, sin costo alguno, cuando sus clientes se lo soliciten.
+Artículo 361. Inspecciones por parte del BCCR. Los administradores de OR están en la obligación de permitir las inspecciones que programe el BCCR en sus OR para verificar el cumplimiento del marco regulatorio aplicable al funcionamiento de las OR. Con tales propósitos deberán suministrar al BCCR la información que les requiera, con el formato y las condiciones que este defina.
+Las mismas condiciones deberán ser provistas por los participantes a los funcionarios de la Dirección de Certificadores de Firma Digital, del Ministerio de Ciencia y Tecnología y Telecomunicaciones.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 356 al 361)

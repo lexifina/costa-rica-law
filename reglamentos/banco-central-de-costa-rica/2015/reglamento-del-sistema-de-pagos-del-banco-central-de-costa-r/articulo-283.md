@@ -1,1 +1,2 @@
-Artículo 283. Aporte adicional de garantías. Aparte del requerimiento mínimo de garantía establecido en el presente libro para las entidades financieras, los asociados podrán aportar garantías adicionales para respaldar las obligaciones financieras que decidan asumir con su participación en los mercados de negociación organizados a través del SINPE.
+Artículo 283. Delegación de funciones. El BCCR podrá delegar en un fiduciario o en una entidad de custodia, las funciones establecidas en el presente libro para la administración de las garantías del Sistema de Pagos.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 278 al 283)

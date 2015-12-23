@@ -1,6 +1,2 @@
-LIBRO XXXIII
-RECLAMACIÓN DE FONDOS (REF)
-CAPÍTULO I
-DEL SERVICIO
-Artículo 415. Definición del servicio. Se define REF como el servicio de liquidación bilateral bruta en tiempo real, por medio del cual los asociados pueden solicitar la devolución de fondos cobrados indebidamente a su cargo o a cargo de sus clientes.
-Por medio del servicio los asociados podrán solicitar información sobre las transacciones no acreditadas en los plazos definidos por el marco normativo del SINPE.
+Artículo 415. Requerimientos para los adquirentes de transacciones con tarjetas de pago. Las entidades financieras y comerciales que acepten pagos con tarjetas deberán habilitar las terminales en los puntos de venta (POS por sus siglas en inglés) con la capacidad de aceptar el protocolo EMV y procesar pagos sin contacto.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 410 al 415)

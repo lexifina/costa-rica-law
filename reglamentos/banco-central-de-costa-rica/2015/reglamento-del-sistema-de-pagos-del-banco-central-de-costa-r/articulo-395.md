@@ -1,5 +1,4 @@
-Artículo 395. Requisitos de apertura y funcionamiento de las CES de Nivel 3.
-a) Presentación del documento de identificación del titular de la cuenta: dicho documento debe corresponder a un documento emitido por una autoridad nacional y con el trámite de apertura de la cuenta se requiere que sea validado contra las bases de datos oficiales.
-b) Canales autorizados para la apertura de la cuenta: agencias y sucursales.
-c) Información requerida del cliente: el cliente deberá suscribir el documento de apertura de la cuenta especificando el nombre completo, número y tipo de documento de identificación, número de teléfono móvil y el origen de los fondos. Este documento de apertura de la cuenta sustituye el formulario conozca a su cliente.
-d) Límite máximo de depósitos en la cuenta: diez mil dólares estadounidenses o su equivalente en moneda nacional u otra divisa.
+CAPÍTULO IV
+DE LAS CUENTAS DE EXPEDIENTE SIMPLIFICADO (CES)
+Artículo 395. Definición. Se define Cuentas de Expediente Simplificado (CES), a las cuentas de fondos abiertas por los participantes a personas físicas que se encuentran clasificadas con un perfil de riesgo bajo, conforme con el modelo de categorización de riesgo que, para cumplir con los alcances de la Ley 8204 y su normativa conexa, se encuentre vigente en la entidad que apertura la cuenta.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 390 al 395)

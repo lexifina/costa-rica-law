@@ -1,1 +1,2 @@
-Artículo 302. Criterio de días al vencimiento para la ejecución. En caso de ejecución de valores, se ejecutarán primero las que a la fecha de liquidación tengan la menor cantidad de días al vencimiento.
+Artículo 302. Suspensión del crédito intradiario. El BCCR podrá suspender la facilidad de crédito intradiario cuando por razones de política monetaria considere necesaria la medida. También podrá retirar la facilidad a la entidad que se encuentre en un estado de inestabilidad o irregularidad financiera de grado tres, conforme con lo dispuesto en el artículo 136 de la Ley 7558.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 297 al 302)

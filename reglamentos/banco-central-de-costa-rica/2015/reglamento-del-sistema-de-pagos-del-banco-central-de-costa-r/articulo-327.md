@@ -1,1 +1,2 @@
-Artículo 327. Requisitos tecnológicos. Los asociados deberán cumplir con los “Requisitos tecnológicos para participar en el SINPE”, establecidos en las normas complementarias respectivas.
+Artículo 327. Obligatoriedad de la capacitación. La capacitación del BCCR es obligatoria para los usuarios de los servicios del SINPE. Cuando los candidatos no ostenten la condición de usuario, la capacitación se le impartirá sólo a quienes hayan sido propuestos por los propios asociados.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 322 al 327)

@@ -1,4 +1,2 @@
-CAPÍTULO III
-DE LA OPERATIVA DEL SERVICIO
-Artículo 417. Servicios a los que aplica la REF. El asociado que deba plantear un reclamo propio o de sus clientes, en los servicios de Compensación de Débitos Directos (CDD), Débito en Tiempo Real (DTR), Transferencia de Fondos a Terceros (TFT), Compensación de Créditos Directos (CCD) y Monedero Bancario, podrá presentarlo dentro del horario bancario.
-RECLAMACIÓN POR DEBITOS NO AUTORIZADOS
+Artículo 417. Interoperabilidad. Las empresas internacionales o locales propietarias de las marcas de medios de pago deberán permitir a cualquier entidad financiera nacional, siempre que cumpla con los requisitos y estándares técnicos definidos, actuar como adquirente de dicha marca en el mercado local, a fin de lograr la interoperabilidad y eficiencia de este sistema.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 412 al 417)

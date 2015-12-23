@@ -1,3 +1,2 @@
-CAPÍTULO III
-DE LAS DISPOSICIONES GENERALES
-Artículo 351. Marco Legal. Los servicios de firma digital y sus participantes se rigen conforme a lo que establece la Ley de Certificados, Firmas Digitales y Documentos Electrónicos Nº8454, el reglamento a esta ley, el presente reglamento y las normas complementarias de los servicios de firma digital.
+Artículo 351. Supervisión de la estructura de seguridad. El BCCR y la SUGEF, en cumplimiento de su función de vigilancia y supervisión del Sistema de Pagos, respectivamente, deberán realizar revisiones periódicas sobre la calidad y completitud del documento referido en el artículo anterior, así como de su aplicación en la operación del SINPE por parte del asociado. El BCCR comunicará los hallazgos de sus evaluaciones a la gerencia general de la entidad, con las recomendaciones pertinentes.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 346 al 351)

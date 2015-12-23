@@ -1,3 +1,2 @@
-CAPÍTULO III
-DEL REGISTRO DE CUENTAS
-Artículo 388. Registro de CES. Los participantes deben registrar las CES en el Padrón de Cuentas antes de activarlas a sus clientes. Dicho registro contiene datos tales como: tipo y número de cuenta, moneda, nombre completo, número y tipo de documento de identificación y número de teléfono móvil del titular de la cuenta, así como la demás información que establezca la norma complementaria del servicio.
+Artículo 388. Confidencialidad de la identidad de terceros. Cada participante deberá manejar confidencialmente, la identidad de las personas inmersas en los reportes que brinda el servicio, con el propósito de no obstaculizar posibles investigaciones.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 383 al 388)

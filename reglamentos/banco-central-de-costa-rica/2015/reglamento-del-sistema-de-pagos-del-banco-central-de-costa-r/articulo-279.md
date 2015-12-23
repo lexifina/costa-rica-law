@@ -1,1 +1,4 @@
-Artículo 279. Adhesión a las disposiciones sobre garantías. Los asociados obligados a cumplir con los requerimientos de garantía establecidos por el presente libro deberán adherirse a las condiciones que el BCCR establezca con el administrador de las garantías, así como sujetar sus aportes de garantía a dichas condiciones.
+Artículo 279. Actividades garantizadas. Las garantías que rindan los asociados serán para respaldar las siguientes actividades:
+a) El cumplimiento de las obligaciones financieras contraídas con su participación en los mercados de negociación organizados por el BCCR, a través del SINPE.
+b) Las facilidades crediticias que, como prestamista de última instancia, les otorgue el BCCR para solventar los problemas transitorios de liquidez que enfrenten con su participación en el Sistema de Pagos. Estas facilidades estarán disponibles únicamente para las entidades financieras que participan en los servicios de liquidación multilateral neta del SINPE, con excepción del servicio de CCD y CDD.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 274 al 279)

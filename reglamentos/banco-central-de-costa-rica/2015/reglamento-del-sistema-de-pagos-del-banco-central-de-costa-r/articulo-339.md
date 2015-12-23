@@ -1,3 +1,2 @@
-CAPÍTULO IV
-DE LAS RESPONSABILIDADES
-Artículo 339. Autorización de RST. Es responsabilidad del asociado autorizar, por medio de su representante legal, un mínimo de dos funcionarios para desempeñar la función de RST.
+Artículo 339. Uso del servicio. Cada asociado debe utilizar el servicio AES para la administración interna de los usuarios del SINPE. Por su parte, el BCCR lo utilizará para registrar a cada asociado los responsables de seguridad total autorizados, los servicios a los que tiene derecho y los nodos que utiliza la entidad para acceder al SINPE, así como cualquier otro elemento de seguridad que se defina en las normas complementarias del servicio.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 334 al 339)

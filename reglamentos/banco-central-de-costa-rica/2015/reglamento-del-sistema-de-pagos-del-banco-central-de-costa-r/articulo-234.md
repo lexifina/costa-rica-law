@@ -1,1 +1,2 @@
-Artículo 234. Procesamiento del numerario. Comprende al menos la verificación de la autenticidad, el conteo físico y la clasificación en una de las categorías establecidas en la Norma Complementaria de Numerario.
+Artículo 234. Cono Monetario. Conjunto de monedas emitidas por el BCCR como medio legal de pago en el país, que mantienen los mismos elementos de diseño y al ser colocadas una a la par de otra, definen una figura geométrica cónica que resulta del aumento proporcional en el diámetro de cada moneda. Esta estructura garantiza un mismo diámetro para cada denominación, con independencia del material, color y espesor.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 229 al 234)

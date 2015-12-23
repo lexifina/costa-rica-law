@@ -1,4 +1,6 @@
-CAPÍTULO V
-DE LAS RESPONSABILIDADES
-Artículo 226. Registro contable de las operaciones. Las entidades autorizadas a participar en el mercado cambiario deben mantener registros contables separados que permitan identificar las operaciones que realicen en el Monex, así como bases de datos centralizadas con el detalle de todas las operaciones cambiarias realizadas con el público en todas sus oficinas, agencias y sucursales, incluidas las negociadas por medios electrónicos como Internet banca telefónica o similares.
-Las entidades autorizadas también deberán suministrar diariamente al BCCR la información de su actividad cambiaria, con el detalle y en la forma que le sea requerida por éste, de conformidad con lo establecido en el Reglamento de Operaciones Cambiarias de Contado y las normas complementarias del servicio.
+CAPÍTULO II
+DE LOS PARTICIPANTES
+Artículo 226. Participantes del servicio. En el servicio Monex-SINPE participan el BCCR y las entidades autorizadas para actuar como intermediarios cambiarios, conforme con las disposiciones contenidas en el Reglamento para las Operaciones Cambiarias de Contado.
+Podrán participar también los asociados del SINPE que, no siendo entidades autorizadas, se suscriban al mismo con el propósito de satisfacer sus necesidades propias de transacción de divisas.
+Las instituciones públicas asociadas al SINPE podrán liquidar sus operaciones directamente con el BCCR.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 221 al 226)

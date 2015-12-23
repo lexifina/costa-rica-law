@@ -1,5 +1,9 @@
-LIBRO XIX
-VENTANILLA DE VALORES
-CAPÍTULO I
-DEL SERVICIO
-Artículo 199. Definición del servicio. Se define Ventanilla de Valores como el servicio por medio del cual se colocan valores estandarizados por medio de ventanilla.
+Artículo 199. Ciclo de operación de la segunda ronda. El ciclo del servicio para la segunda ronda de negociación se efectuará de conformidad con las siguientes etapas:
+a) Convocatoria de negociación: El emisor convoca a la segunda ronda inmediatamente después de haber comunicado los resultados de la primera ronda.
+b) Recepción de ofertas: Los inversionistas autorizados envían sus ofertas de negociación por medio del servicio, posterior al cierre de asignación de ofertas de la primera ronda. Dichas ofertas quedarán disponibles para que el emisor, luego de cerrado el período de recepción de ofertas, proceda con la asignación respectiva.
+El inversionista podrá modificar o eliminar sus ofertas mientras no se haya cerrado el periodo de recepción de ofertas. Una vez cerrado dicho periodo, todas las ofertas se tienen por irrevocables, aun y cuando hayan sido presentadas a nombre de un tercero que desista de las mismas.
+c) Asignación de ofertas: Las ofertas recibidas son asignadas por el emisor de conformidad con las condiciones de asignación anunciadas en la convocatoria. Se tendrá una hora límite para la asignación, así como para realizar la comunicación oficial de sus resultados, durante el día de la negociación.
+d) Distribución de ofertas: Luego de cerrado el periodo de asignación y hasta la hora establecida, los inversionistas deberán realizar la distribución del monto asignado sobre las cuentas de valores correspondientes.
+e) Liquidación de ofertas: Las ofertas que resulten asignadas serán cumplidas irrevocablemente a la hora del día acordado para la liquidación, debiendo efectuarse la misma contra las cuentas de fondos que los inversionistas mantienen en el BCCR y sobre las cuentas de valores administradas por el servicio Cuentas de Valores, mediante el mecanismo de entrega contra pago y en forma conjunta con la liquidación de la primera ronda.
+Cuando un inversionista presente una insuficiencia de fondos que le imposibilite cubrir la totalidad de sus obligaciones financieras, la asignación final se hará hasta por el monto posible de liquidación, considerando primero aquellas ofertas que tengan un menor costo financiero para el emisor, en el entendido de que para estos casos no aplica el criterio de asignación parcial de ofertas.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 194 al 199)

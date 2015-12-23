@@ -1,1 +1,8 @@
-Artículo 198. Suficiencia de fondos y valores. Los inversionistas son responsables de mantener los fondos para que el emisor pueda liquidar en tiempo y forma las negociaciones realizadas por medio de subasta. El incumplimiento en la liquidación de una oferta asignada implicará la suspensión automática de la condición de inversionista en cualquiera de los mecanismos de negociación de deuda pública organizados por el BCCR, por un período de tres meses la primera vez y de seis meses cuando incurra en una reincidencia dentro de un mismo año calendario.
+Artículo 198. Condiciones de la segunda ronda. Las siguientes son las condiciones de negociación bajo las cuales opera la segunda ronda:
+a) Participantes: Inversionistas de la primera ronda, con las restricciones de participación que el emisor establezca.
+El emisor deberá comunicar en la convocatoria el criterio de participación que utilizará para la negociación.
+b) Fecha de negociación: Mismo día en que tiene lugar la negociación de la primera ronda.
+c) Modalidad de negociación: Competitiva o no competitiva, a elección del emisor.
+d) Monto de captación: El emisor podrá establecer un monto nominal máximo de captación.
+e) Cualquier otra que el emisor determine.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 193 al 198)

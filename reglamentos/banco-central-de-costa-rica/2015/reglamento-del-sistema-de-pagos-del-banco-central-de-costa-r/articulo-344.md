@@ -1,2 +1,4 @@
-Artículo 344. Manejo de las comunicaciones. Toda comunicación de aspectos relacionados con los servicios del SINPE se efectuará a través de los medios oficiales de comunicación, tomándose como oficial la información de los funcionarios y direcciones de correo electrónico registrados en el servicio AES por los responsables de cada uno de los asociados.
-Cualquier inconveniente presentado por información no recibida debido a inconsistencias con el registro de la información de los funcionarios de la entidad, o a su desactualización, así como por falta de capacidad en los buzones de correo electrónico o falla en sus sistemas internos, será responsabilidad del asociado.
+CAPÍTULO IV
+DE LAS RESPONSABILIDADES
+Artículo 344. Autorización de RST. Es responsabilidad del asociado autorizar, por medio de su representante legal, un mínimo de dos funcionarios para desempeñar la función de RST.
+(Corrida su numeración en sesión N° 5707 del 23 de diciembre de 2015, que lo traspaso del antiguo artículo 339 al 344)
