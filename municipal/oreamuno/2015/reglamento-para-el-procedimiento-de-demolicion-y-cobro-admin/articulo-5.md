@@ -1,0 +1,1 @@
+Artículo 5º—Deber Municipal de inspeccionar obras civiles. La inspección de las obras civiles que se realicen en el territorio de cantón de Oreamuno, corresponde al departamento de Ingeniería Municipal, así como cualquier otro funcionario que se designe por parte de la Alcaldía Municipal.

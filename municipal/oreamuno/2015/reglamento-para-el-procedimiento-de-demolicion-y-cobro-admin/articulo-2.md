@@ -1,0 +1,1 @@
+Artículo 2º—Área de influencia geográfica de aplicación. La aplicación del Reglamento del Plan Regulador para el cantón de Oreamuno y Ley Nº 7600, Ley de Igualdad de Oportunidades para las Personas con Discapacidad.

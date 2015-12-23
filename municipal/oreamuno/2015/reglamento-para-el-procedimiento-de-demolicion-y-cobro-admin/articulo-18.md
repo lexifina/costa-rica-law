@@ -1,0 +1,2 @@
+Artículo 18.—Sanciones por desobediencia a la autoridad Municipal. Cuando se emitan órdenes escritas a los administrados, éstas serán de acatamiento obligatorio, una vez que estén firmes y conformes al ordenamiento jurídico.
+En caso de que el administrado no acate estas órdenes en evidente confrontación con la autoridad Municipal, ésta podrá acudir a los Tribunales de Justicia a efecto de interponer las denuncias correspondientes por el delito de Desobediencia de acuerdo al artículo Nº 307 del Código Penal.
