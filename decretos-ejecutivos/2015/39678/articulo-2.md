@@ -1,0 +1,1 @@
+Artículo 2.- Deróguese el Decreto Ejecutivo Nº 34922-MEIC-MAG-S del 03 de octubre de 2008; denominado "Reglamento Técnico RTCR 407:2007 General para Quesos", publicado en La Gaceta Nº 238 del 09 de diciembre de 2008.
