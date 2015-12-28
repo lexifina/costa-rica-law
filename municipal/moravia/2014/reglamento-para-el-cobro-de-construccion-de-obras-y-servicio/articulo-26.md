@@ -1,1 +1,2 @@
-Artículo 26.—Valor del metro lineal de instalación de canoas, bajantes y colocación de desagües en aceras. El valor del metro lineal por instalación de canoas corresponderá a un monto total de ¢12.026,52, el monto correspondiente a la instalación de bajantes es de ¢9.206,62 y por último instalación de desagües sobre las aceras tendrá un costo de ¢17.619,66.
+Artículo 26.—Valor del metro lineal de instalación de canoas, bajantes y colocación de desagües en aceras. El valor del metro lineal por instalación de canoas corresponderá a un monto total de ¢14.004,97 el monto correspondiente a la instalación de bajantes es de ¢9.855,99 y por ultimo instalación de desagües sobre las aceras tendrá un costo de ¢19.948,13.
+(Así reformado en sesión N° 296 del 28 de diciembre de 2015)

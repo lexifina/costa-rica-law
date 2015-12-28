@@ -14,3 +14,4 @@ Reglamento para el cobro de construcción de obras y servicios realizados por la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-09 | la propia norma |
+| 2 | 2015-12-28 | Reglamento municipal 296 (2015-12-28) |
