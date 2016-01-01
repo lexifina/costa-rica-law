@@ -1,0 +1,2 @@
+• Transitorio I.
+La información de los Estados financieros no auditados requeridos en el “Cuadro de Información Periódica” establecido en el artículo 2 del acuerdo SGV-A-75, de la entidad Interclear Central de Valores Sociedad Anónima, Anexo 60, que de acuerdo con la información remitida entra en operación a partir de noviembre del 2015, debe ser remita en formato físico para el corte correspondiente a diciembre del 2015. Posterior a esta fecha, debe ser remitida usando los medios de envío establecidos en el presente acuerdo.
