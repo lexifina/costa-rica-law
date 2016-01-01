@@ -1,0 +1,2 @@
+ARTÍCULO 3.- Delimitaciones sucesivas
+Las sucesivas circunscripciones de rutas cantonales nuevas o no clasificadas, así como la modificación del inventario y la catalogación de las rutas existentes a la entrada en vigencia de la presente ley, deberán ser informadas por los gobiernos locales al órgano técnico que el Ministerio de Obras Públicas y Transportes (MOPT) defina para estos efectos, a fin de mantener un registro actualizado a nivel nacional.

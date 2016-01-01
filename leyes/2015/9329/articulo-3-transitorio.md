@@ -1,0 +1,1 @@
+TRANSITORIO III.- Dentro de los seis meses siguientes a la entrada en vigencia de la presente ley, el órgano técnico que el Ministerio de Obras Públicas y Transportes (MOPT) designe efectuará el cálculo respectivo y el Ministerio de Hacienda transferirá los recursos económicos objeto de la presente ley.

@@ -1,0 +1,2 @@
+ARTÍCULO 10.- Coordinación de las direcciones regionales del Ministerio de Obras Públicas y Transportes (MOPT) y los gobiernos locales
+Las direcciones regionales de la División de Obras Públicas adscritas al Ministerio de Obras Públicas y Transportes (MOPT) o, en su defecto, el órgano que este Ministerio designe, deberán coordinar exclusivamente en temas de rectoría técnica y fiscalización sus actividades, de conformidad con lo que requieran los gobiernos locales para la implementación de la atención plena y exclusiva de la red vial cantonal.

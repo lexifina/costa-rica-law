@@ -1,0 +1,4 @@
+TRANSITORIO IV.- Dentro del plazo de nueve meses contado a partir de la entrada en vigencia de la presente ley, el Ministerio de Obras Públicas y Transportes (MOPT) deberá establecer los cambios a su estructura orgánica que sean acordes con la reducción competencial que para dicha cartera se establece en la presente ley. En virtud de lo anterior, queda autorizado para cesar y trasladar personal, ya sea a lo interno, hacia las municipalidades o hacia federaciones o confederaciones municipales, respetando el marco jurídico aplicable y los derechos laborales de los funcionarios afectados.
+Rige a partir del primero de enero posterior a su publicación.
+Dado en la Presidencia de la República. San José, a los quince días del mes de octubre del año dos mil quince.
+(Así adicionado el párrafo anterior por Fe de Erratas y publicada en La Gaceta N° 226 del 20 de noviembre de 2015, página 80)

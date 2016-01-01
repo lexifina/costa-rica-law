@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Asignación de recursos a los concejos municipales de distrito
+En aquellos cantones donde existan concejos municipales de distrito, el concejo municipal del cantón al que pertenezca, estará en la obligación de asignar y transferir la porción de recursos que le corresponda según las rutas cantonales territorialmente ubicadas en la jurisdicción de cada uno de ellos, de conformidad con lo establecido en el artículo 12 de la presente ley.

@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Gestión de recursos de la cooperación internacional
+El órgano técnico que el Ministerio de Obras Públicas y Transportes (MOPT) designe para estos efectos, a instancia de los gobiernos locales, podrá gestionar la obtención de cooperación técnica y financiera orientada a la atención plena y exclusiva de la red vial cantonal, de acuerdo con los alcances de esta ley y demás normativa conexa, pudiendo hacerlo las municipalidades directamente.
