@@ -14,3 +14,4 @@ Reglamento de Seguro Obligatorio para Vehículos Automotores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-01 | la propia norma |
+| 2 | 2016-01-01 | Decreto Ejecutivo 39323 (2015-11-18) |
