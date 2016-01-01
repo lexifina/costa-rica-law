@@ -1,0 +1,1 @@
+Artículo 3º—Este ajuste técnico autorizado conforme al artículo 1º del presente Decreto, no incluye a los pensionados y pensionadas de los diferentes regímenes con cargo al Presupuesto Nacional, por no constituir un ajuste salarial por costo de vida.
