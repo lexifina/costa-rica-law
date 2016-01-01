@@ -1,0 +1,1 @@
+Artículo 13.—Este Decreto se encuentra disponible en la página electrónica del Ministerio de Hacienda en la siguiente dirección: http://www.hacienda.go.cr/contenido/12553-directrices-y-procedimientos-presupuestarios-y-salariales
