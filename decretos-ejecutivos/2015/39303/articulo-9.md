@@ -1,0 +1,3 @@
+Artículo 9. Determinación del porcentaje de incapacidad permanente
+Para efectos de determinar el porcentaje de incapacidad permanente se seguirán las disposiciones establecidas en los artículos 223 incisos b), c), ch) y d), 224 y 226 del Código de Trabajo, Ley N° 2, que será desde el cero punto cinco por ciento (0.5%) de hasta el cien por ciento (100) de incapacidad permanente.
+Las entidades aseguradoras deberán otorgar una suma adicional a la dispuesta en los incisos a) y b) del artículo 66 de la Ley de Tránsito y equivalente hasta el límite del monto básico establecido en el artículo 4 de este Reglamento, exclusivamente, para cubrir la indemnización correspondiente por incapacidad permanente.

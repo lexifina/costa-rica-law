@@ -1,0 +1,4 @@
+Artículo 38. Suministro de información por parte del Registro Nacional
+El Registro Nacional deberá suministrar a las entidades aseguradoras autorizadas para comercializar este seguro obligatorio, a más tardar, el quinto día hábil del mes de octubre de cada año, el registro actualizado y completo de cada uno de los vehículos que deba suscribir el SOA, el cual contenga las características mínimas definidas en el artículo 10 de la Ley de Tránsito.
+La información deberá estar actualizada con corte al primer día hábil del mes de setiembre del año en curso.
+Previo al inicio del cobro de este seguro, las entidades aseguradoras deben suscribir el contrato o convenio respectivo con el Registro Nacional, para establecer el contenido de las obligaciones, la periodicidad, las condiciones, los formatos, los términos, la operatividad y cualquier aspecto indispensable que garantice el acceso y procesamiento de información.

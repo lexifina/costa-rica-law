@@ -1,0 +1,4 @@
+Artículo 39. Uso de la información
+Toda la información o bases de datos que las víctimas, el Registro Nacional, el Ministerio de Hacienda o cualquier otra persona jurídica o institución, mantenga o coloque de cualquier manera o medio a disposición de las entidades aseguradoras, o que las entidades aseguradoras lleguen a tener acceso o conocimiento en el proceso de suscripción, comercialización o ejecución del SOA; únicamente será utilizada para los fines exclusivamente fijados en la Ley de Tránsito y este Reglamento.
+La información o datos personales de la víctima se regirán por las disposiciones de la Ley de Protección de la Persona Frente al Tratamiento de sus Datos Personales N° 8968, su Reglamento y la legislación conexa.
+La información de las instituciones, entidades o personas jurídicas se regirá por el principio de confidencialidad, la normativa y las reglas aplicables en cada caso.

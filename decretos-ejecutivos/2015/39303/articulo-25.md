@@ -1,0 +1,3 @@
+Artículo 25. Vehículos de matrícula extranjera
+Los propietarios o conductores de vehículos de matrícula extranjera que ingresen provisionalmente al país o los vehículos que sean propiedad de cualquier residente temporal, deben suscribir y mantener vigente el SOA mientras el automotor permanezca en el país. En estos casos, por cada ingreso al país, el SOA tendrá una vigencia de tres meses y podrá ser prorrogado, por única vez, por un período igual de tres meses.
+Las entidades aseguradoras definirán el monto de la prima respectiva a cobrar para los casos que se ajusten a los supuestos señalados en el párrafo anterior.

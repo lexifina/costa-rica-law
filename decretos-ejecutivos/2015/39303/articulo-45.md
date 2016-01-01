@@ -1,0 +1,3 @@
+Artículo 45. Registro de Servicios Auxiliares del Seguro Obligatorio para Vehículos Automotores.
+En el caso en que la entidad aseguradora mantenga proveedores de servicios auxiliares de seguros vinculados al SOA deberá mantener los registros que exija la ley, la normativa que emite el CONASSIF y la Superintendencia, según corresponda.
+Las entidades aseguradoras deberán mantener a disposición del público, en los medios que garanticen el acceso del público, el registro actualizado de todos los proveedores de servicios auxiliares que forman parte de su red, los datos y medios de contactos de éstos y el detalle de cada uno de los costos de los servicios o bienes que suministran dichos proveedores y su horario de atención.

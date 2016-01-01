@@ -1,0 +1,4 @@
+Artículo 22. Vigencia del Seguro Obligatorio para Vehículos Automotores
+El SOA tiene una vigencia de un año calendario, que inicia el primero de enero de cada año hasta el treinta y uno de diciembre de ese mismo año, conforme el artículo 62 de la Ley de Tránsito.
+Cuando la prima de este seguro obligatorio se pague en fecha posterior al primero de enero, su vigencia será a partir de la fecha de pago y hasta el treinta y uno de diciembre de ese mismo año; excepto para el caso de vehículos de matrícula extranjera, que se regirán por el artículo 25 de este Reglamento.
+Las primas se cobrarán en forma proporcional al plazo restante para cumplir el año calendario, salvo en los casos de aseguramiento tardío, en los cuales deberá cancelarse el monto total de la prima, más el recargo indicado en el artículo 29 de este Reglamento.

@@ -1,0 +1,5 @@
+Artículo 28. Devoluciones
+Solamente procede la devolución del total de los rubros que componen el marchamo, cuando se demuestre que a un mismo vehículo le hayan pagado dos o más veces el marchamo, sea con una misma entidad aseguradora o con dos o más aseguradoras distintas.
+Cuando se presente esta situación, la entidad aseguradora que recibe el reclamo del propietario registral del vehículo, debe proceder a reintegrar el monto total del pago en exceso sin ninguna deducción, cargo o comisión pudiendo recuperar los montos de los entes a los que le fueron girados, de conformidad requisitos y plazos establecidos en los convenios suscritos.
+Las entidades aseguradoras deberán verificar, de previo al reintegro del pago indebido, que el vehículo esté asegurado con un contrato vigente de este seguro obligatorio. El propietario deberá demostrar mediante prueba fehaciente que mantiene dicho seguro.
+Cualquier otro reclamo de devolución parcial o total de lo pagado en el marchamos, será ante quien corresponda, con los términos que éste tenga establecidos para realizar devoluciones.

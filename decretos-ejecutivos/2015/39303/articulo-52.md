@@ -1,0 +1,5 @@
+Artículo 52. Contribución especial a favor de la CCSS
+Cuando el monto de la reserva de excedentes supere el veinticinco por ciento (25%) de las primas percibidas en el año, el remanente debe ser trasladado a título de contribución especial a la CCSS, según lo establecido en el artículo 56 de la Ley de Tránsito.
+El remanente deberá ser trasladado a la Caja Costarricense de Seguro Social en el plazo improrrogable de quince días hábiles, computados desde la fecha misma de finalización del lapso para la publicación de los Estados Financieros Auditados, fijada expresamente para este propósito en el Reglamento Relativo a la información Financiera de Entidades, Grupos y Conglomerados Financieros.
+El incumplimiento de este plazo por la entidad aseguradora generará a su cargo los intereses de ley.
+Las entidades aseguradoras deberán cumplir las disposiciones de la normativa contable emitida por el CONASSIF y la Superintendencia, según corresponda, para el registro contable de la reserva acumulativa y de la contribución especial a la CCSS.

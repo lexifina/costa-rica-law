@@ -1,0 +1,21 @@
+N° 39303-MOPT-H
+EL PRESIDENTE DE LA REPÚBLICA
+EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+Y EL MINISTRO DE HACIENDA
+En el ejercicio de las atribuciones y facultades que les confieren los artículos 140 incisos 3), 18) y 20 y 146 de la Constitución Política y con fundamento en lo prescrito en la Ley de Creación del Ministerio de Obras Públicas y Transportes N° 3155 del 5 de agosto de 1963, reformada por la Ley N° 4786 del 5 de julio de 1971, la Ley de Administración Vial N° 6324 del 24 de mayo de 1979 y sus reformas; las disposiciones del capítulo III del Título II de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 del 04 de octubre del 2012 y la Ley General de la Administración Pública N° 6227 del 2 de mayo de 1978 y sus reformas.
+Considerando:
+1. Que es competencia del Ministerio de Obras Públicas y Transportes todo lo referente al control, regulación y vigilancia del tránsito de vehículos automotores por las vías públicas del territorio nacional.
+2. Que el Título II, Capítulo III denominado Seguro Obligatorio para Vehículos Automotores, artículos 56 hasta el 78, de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial Ley N° 9078, dispone que le corresponde al Poder Ejecutivo dictar la normativa necesaria para el funcionamiento adecuado del Seguro Obligatorio para Vehículos Automotores.
+3. Que el Transitorio XI de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, señala que el Consejo Nacional de Supervisión del Sistema Financiero (CONASSIF) debía enviar al Poder Ejecutivo una propuesta de reglamentación del Seguro Obligatorio para Vehículos Automotores. En atención a lo dispuesto en el Transitorio citado el CONASSIF mediante oficio C.N.S. 1038/10 del 24 de abril del 2013, recibido en esa misma fecha; remitió al Ministerio de Obras Públicas y Transportes y al Consejo de Seguridad Vial, la propuesta de reglamentación aprobada por el CONASSIF, con base en el proyecto elaborado por la Superintendencia General de Seguros.
+4. Que en uso de las facultades establecidas en el artículo 361 de la Ley General de Administración Pública, Ley número 6227 y sus reformas, mediante publicación en La Gaceta No. 67 del 4 de abril del 2014, se efectuó la consulta pública del presente Reglamento de Seguro Obligatorio para Vehículos Automotores.
+5. Que se requiere adoptar el marco jurídico correspondiente para que se facilite la competencia efectiva en la oferta, suscripción, comercialización o ejecución del Seguro Obligatorio para Vehículos Automotores, y de manera ordenada y congruente con la apertura del mercado de seguros, con el fin de garantizar la protección de los derechos e intereses subjetivos, sociales y económicos de los consumidores, asegurados y sus beneficiarios de este seguro obligatorio. Además, la normativa que regule el baremo de indemnizaciones, específicamente en materia de incapacidad temporal y permanente, las disposiciones del Código de Trabajo, aplicable según lo dispuesto por la citada Ley de Tránsito y los montos que se garantiza para las prestaciones médicas y económicas que otorga la cobertura del Seguro Obligatorio para Vehículos Automotores. Por tanto,
+DECRETAN:
+Reglamento de Seguro Obligatorio para Vehículos Automotores
+TÍTULO I
+Capítulo I Disposiciones Generales
+Artículo 1. Ámbito de aplicación
+Salvo los casos de excepción previstos por el artículo 58 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078 del 4 de octubre del 2012, estarán obligados a suscribir el seguro obligatorio para vehículos automotores, en los términos definidos por dicha Ley y este Reglamento, las siguientes personas:
+I. Todas las personas físicas y jurídicas, públicas o privadas, en su condición de propietarios de vehículos automotores que circulen dentro del territorio nacional.
+II. Las personas físicas o jurídicas que se dediquen o tengan para la venta vehículos automotores, nuevos o usados, o ensamblados en la etapa de bien final.
+III. Los propietarios o conductores de vehículos de matrícula extranjera que ingresen provisionalmente al país o los vehículos que sean propiedad de cualesquier residente temporal.
+IV. Las personas físicas o jurídicas que tengan para la exhibición vehículos automotores destinados a circular dentro del territorio nacional.

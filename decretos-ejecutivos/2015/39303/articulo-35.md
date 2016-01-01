@@ -1,0 +1,2 @@
+Artículo 35. Deber de recaudación de tributos
+Las entidades aseguradoras que ofrezcan el SOA, en su condición de agentes recaudadores o perceptores, deberán recaudar y trasladar como corresponda las sumas de dinero respectivas a los diferentes tributos, impuestos, tasas, contribuciones forzosas especiales, timbres, multas, cánones y cualquier otro tributo que estrictamente forme parte del marchamo; conforme los términos definidos por las respectivas leyes y reglamentos.
