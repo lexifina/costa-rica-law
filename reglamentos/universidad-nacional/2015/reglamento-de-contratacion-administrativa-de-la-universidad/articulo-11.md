@@ -1,0 +1,19 @@
+ARTÍCULO 11. Funciones
+El Administrador de Contrato ejercerá las siguientes funciones:
+a. Preparar en conjunto con los técnicos correspondientes, la documentación y las solicitudes pertinentes en los trámites de contratación administrativa y remitírsela a la Proveeduría Institucional para el proceso que corresponda.
+Atender cualquier consulta técnica que surja durante el proceso de una contratación bajo su cargo y remitírsela a la Proveeduría Institucional para el trámite que corresponda.
+c. Remitir oportunamente a la Proveeduría Institucional las modificaciones al cartel producto de visitas al sitio, reunión preoferta o por cualquier otra razón.
+d. Elaborar los informes técnicos de las ofertas, así como participar en cualquier etapa del proceso que requiera de valoraciones técnicas para la preparación de informes y recomendación de adjudicación.
+e. Velar por la correcta ejecución de los contratos que se les asigne, respetando para ello cada una de las etapas establecidas para los procedimientos de contratación.
+f. Recibir y aceptar de los bienes y servicios dentro de los plazos y condiciones establecidas, firmando para tal efecto el acta de recepción definitiva o factura correspondiente, así como gestionar y aprobar los pagos.
+g. Coordinar y preparar lo necesario para estimar los daños y perjuicios que se deben calcular para la ejecución de la garantía de participación o cumplimiento y remitírsela a la Proveeduría Institucional para el trámite que corresponda.
+h. Colaborar con la Proveeduría Institucional, de ser necesario, en la elaboración de la respuesta de los recursos que sean de su competencia, así como remitir la información que se requiera, para la ejecución de las multas, cláusulas penales, garantías, contrataciones irregulares, cobros y reclamos administrativos, prórrogas y sanciones a los contratistas hasta la rescisión y resolución contractual, si se diera el caso.
+i. Verificar los avances de ejecución de los contratos, según se establezca en el cronograma respectivo, y remitir para pago las facturas correspondientes cuando las entregas o los avances de obra se ajusten a los requerimientos de la contratación.
+j. Preparar, en coordinación con cualquier otra área que se requiera, el informe final, acta de recepción definitiva, el contrato de finiquito cuando proceda y gestionar la firma y remitirlo a la Proveeduría.
+k. Entregar a la Proveeduría Institucional todos los documentos oficiales que se generen a lo interno de su dependencia o los que reciba del contratista en torno a una contratación específica, para su custodia e incorporación en el expediente administrativo.
+l. Incorporar el requerimiento de desglose de la estructura del precio de la oferta en los carteles, cuando así se requiera.
+m. Levantar minutas de las reuniones sostenidas con el oferente o con el contratista, según corresponda y entregarlas a la Proveeduría Institucional para su custodia e incorporación al expediente administrativo.
+n. Velar porque toda compra de materiales y equipo que se pretenda tramitar bajo su responsabilidad, no esté en existencia en los almacenes de la Institución. En caso de que exista dicho material o equipo en los almacenes, se deberá comprobar y documentar que existe una disposición que imposibilite su utilización.
+o. Verificar, durante la ejecución del contrato, que el contratista se encuentra al día con el pago de las cuotas obrero patronales a la Caja Costarricense de Seguro Social, FODESAF y cualquier otra obligación relacionada con la seguridad social, cuando corresponda y remitir dicho documento al expediente administrativo de la contratación respectiva que custodia la Proveeduría Institucional y de conformidad con los procedimientos establecidos
+por dicha instancia.
+p. Participar en aquellas audiencias previas para la confección del cartel que se realicen, así como en las reuniones preoferta y demás audiencias que se realicen cuando corresponda.

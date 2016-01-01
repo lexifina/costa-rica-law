@@ -1,0 +1,3 @@
+ARTÍCULO 20. De la constatación de requisitos
+La Proveeduría Institucional tiene la facultad y competencia para verificar y supervisar, en cualquier momento, el cumplimiento de los requisitos solicitados para la inscripción y ofrecidos por los diferentes Proveedores, a través del Supervisor designado al efecto por la Dirección de esa
+instancia, mediante resolución debidamente razonada. Con tal fin, el Supervisor de signado visitará a los diferentes Proveedores, y de lo actuado el supervisor presentará un informe a la Dirección de la Proveeduría Institucional y dejará constancia en el expediente del Proveedor respectivo.

@@ -1,0 +1,2 @@
+ARTÍCULO 63. Del dictado de la resolución final
+Una vez recibidos los descargos del contratista el área respectiva de la Proveeduría Institucional remitirá en el plazo que corresponda según el procedimiento, su recomendación al Director, para que emita la resolución final. Dicha resolución tendrá los recursos ordinarios de revocatoria y apelación, los que deberán presentarse dentro de los tres días hábiles siguientes a la notificación.

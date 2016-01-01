@@ -1,0 +1,2 @@
+ARTÍCULO 50. De la apertura del procedimiento
+La Proveeduría Institucional dará inicio al procedimiento de resolución de contrato, con fundamento en los motivos de incumplimiento acreditados por el Administrador de Contrato, dándole audiencia al contratista por el plazo que corresponda según la normativa vigente, indicando los alcances del presunto incumplimiento, la prueba en que se sustenta, así como la estimación de los daños y perjuicios, a fin de que éste atienda la audiencia y aporte la prueba respectiva.

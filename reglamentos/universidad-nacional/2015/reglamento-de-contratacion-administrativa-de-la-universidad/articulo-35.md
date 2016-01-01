@@ -1,0 +1,3 @@
+ARTÍCULO 35. De las prórrogas de contratos
+En las prórrogas del contrato, cuando contractualmente estén previstas las prórrogas en una contratación, el Administrador de Contrato solicitará formalmente a la Proveeduría Institucional con un mes de anticipación al vencimiento del plazo, la prórroga del contrato. Cuando no esté contemplada en las condiciones iniciales de la contratación o bien se hayan agotado las prórrogas previamente establecidas, el Administrador de Contrato deberá solicitar el inicio de un nuevo procedimiento de contratación.
+En los casos de prórrogas a contrataciones directas de excepción, se deberá incluir en el expediente respectivo la justificación técnica que demuestre que las condiciones de excepción que originaron la contratación se mantienen.

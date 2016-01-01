@@ -1,0 +1,2 @@
+ARTÍCULO 21. Del expediente del proveedor
+La Proveeduría, una vez aprobados los documentos de inscripción conformará un expediente debidamente foliado y codificado, en forma consecutiva, de acuerdo con la fecha de recepción. El mismo estará integrado por cada uno de los documentos aportados por el Proveedor, en forma consecutiva y que serán definidos según establecido en el artículo 16 de este Reglamento.

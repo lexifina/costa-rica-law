@@ -1,0 +1,2 @@
+ARTÍCULO 29. De las audiencias previas
+Antes de la elaboración del cartel definitivo, la Administración podrá celebrar audiencias públicas previas, ya sea presenciales o virtuales con los potenciales oferentes; en cuyo caso el Administrador de Contrato en coordinación con un representante de la Proveeduría, deberán consignar a través de una minuta en el expediente respectivo la realización de dichas audiencias, o bien dejar registro en el expediente en el caso de que se realicen por medios electrónicos.

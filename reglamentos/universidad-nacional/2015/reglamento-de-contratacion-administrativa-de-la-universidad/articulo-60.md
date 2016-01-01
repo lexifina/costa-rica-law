@@ -1,0 +1,2 @@
+ARTÍCULO 60. Del debido proceso
+La Proveeduría Institucional será la encargada de comunicar e iniciar la gestión del cobro ante el contratista. No será necesario demostrar el daño y/o perjuicio pero ello no excluye que la Universidad Nacional deba dictar un acto debidamente motivado en su decisión de cobro, previa ejecución del debido proceso de conformidad con la normativa vigente. Dicha resolución será oportunamente comunicada al contratista.

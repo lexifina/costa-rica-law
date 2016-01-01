@@ -1,0 +1,4 @@
+SECCIÓN II
+Sanciones a los funcionarios
+ARTÍCULO 65. De la individualización de la responsabilidad
+Los funcionarios de la Universidad Nacional, que tengan los insumos y la capacitación necesaria para desempeñar una labor de supervisión de los contratos en forma eficiente, serán responsables en la medida que pueda individualizarse su culpabilidad por las consecuencias provocadas a la Institución en razón de los incumplimientos de los contratistas, si pudiendo prever o denunciar a tiempo las trasgresiones contractuales, no lo hicieron o no solicitaron las sanciones, ejecuciones, multas o rescisión o resolución respectiva, o no se atienda dentro de los plazos de ley las gestiones formuladas por los contratistas o por la Proveeduría. Además de la responsabilidad administrativa podrán ser responsables laboral, penal y civilmente. según corresponda y se logre demostrar.

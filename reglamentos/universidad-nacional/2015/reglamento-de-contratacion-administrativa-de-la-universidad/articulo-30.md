@@ -1,0 +1,7 @@
+SECCIÓN I
+De los procedimientos concursales
+ARTÍCULO 30. De la decisión Inicial
+La decisión administrativa que da inicio al procedimiento de contratación será emitida según las siguientes condiciones:
+a. Para promover las contrataciones institucionales necesarias para la adquisición de materiales, equipos, bienes en general y servicios de uso común y reiterativo, la instancia competente dentro de la Universidad para emitir la decisión inicial será la Proveeduría Institucional, previa coordinación con las instancias competentes y unidades ejecutoras, según sea el caso.
+b. Para promover las contrataciones institucionales necesarias para la adquisición de materiales, equipo, sustancias químicas, bienes y servicios especiales, que no constituyen de "uso común", la instancia competente para emitir la decisión inicial será el superior jerárquico unipersonal o director de la unidad ejecutora que ostenta el contenido presupuestario. Esta decisión inicial deberá contener los requisitos establecidos por el ordenamiento jurídico y además deberá indicar con detalle el funcionario universitario competente para pronunciarse oficialmente sobre consultas en relación a las especificaciones, estimaciones, ofertas, recursos y recepción.
+c. Corresponderá a la Proveeduría Institucional definir en cada caso particular si la contratación tiene como objetivo la adquisición de bienes y servicios de "uso común". Además, deberá establecer los procedimientos internos de emisión de la decisión inicial cuando corresponda.
