@@ -1,0 +1,1 @@
+TRANSITORIO UNICO: Se dará un plazo de tres meses a partir de la publicación del presente reglamento, para que los productores e importadores de cementos hidráulicos, ajusten sus etiquetas a los requisitos establecidos de este reglamento, en los incisos 6.2.2.1, 6.2.2.2, 6.2.2.3 y 6.2.4.

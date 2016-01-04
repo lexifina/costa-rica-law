@@ -1,0 +1,1 @@
+Artículo 3°.-Reforma. Refórmese los incisos 5.4.2 y 5.6 del artículo 1 del Decreto Ejecutivo N° 39297- MEIC, RTCR 476:2015. Materiales de la Construcción. Cementos Hidráulicos. Procedimiento de Evaluación de la Conformidad, para que donde se indica "Ministerio de Economía, Industria y Comercio (MEIC)" o solamente "MEIC" se lea como "autoridad competente".

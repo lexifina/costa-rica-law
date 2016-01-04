@@ -1,0 +1,2 @@
+Artículo 6°-Costos de la verificación
+Los costos de demostración del cumplimiento de las disposiciones establecidas en el presente reglamentos son responsabilidad del fabricante o importador de cemento. Las mediciones adicionales que por su parte realicen las autoridades competentes, en el mercado, antes de la nacionalización o en fábrica, para evaluar la conformidad con el presente Reglamento, se regirá por lo dispuesto en el artículo 62 de la Ley de la Promoción de la Competencia y Defensa Efectiva del Consumidor y el artículo 142 del Reglamento a esta Ley.

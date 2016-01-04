@@ -1,0 +1,1 @@
+Artículo 4°-Derogatoria. Deróguese el Decreto Ejecutivo N° 32253-MEIC, Reglamento Técnico RTCR 383:2004. Cementos Hidráulicos. Especificaciones y sus reformas. Todas aquellas referencias hechas a este Decreto Ejecutivo en reglamentos técnicos nacionales se deberán sustituir por el presente Decreto Ejecutivo, una vez que este entre en vigencia.
