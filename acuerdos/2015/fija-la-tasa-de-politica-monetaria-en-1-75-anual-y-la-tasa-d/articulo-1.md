@@ -1,0 +1,16 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica, en el inciso II, del artículo 4, del acta de la sesión 5708-2015, celebrada el 30 de diciembre del 2015,
+Considerando que:
+A. El artículo 2 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, establece como objetivos prioritarios de esta entidad, el mantener la estabilidad interna y externa del colón y asegurar su conversión a otras monedas.
+B. El título IV, numeral 2, literales D y E, de las Regulaciones de Política Monetaria establece que, en ese orden, corresponde a la Junta Directiva del Banco Central de Costa Rica la determinación de la tasa de política monetaria (TPM) y de la tasa de interés de captación para operaciones a un día plazo.
+C. La inflación local, expresada en términos interanuales, inició un proceso de desaceleración desde diciembre del 2014, registrando incluso valores negativos en el segundo semestre del 2015. Según las estimaciones de esta entidad, dado el comportamiento previsto de los determinantes de la inflación, existe una alta probabilidad de que ésta retorne a valores positivos en el bienio 2016-17, pero que se mantenga en niveles bajos.
+D. Los determinantes de la inflación en el corto plazo señalan que hay holgura en la capacidad de producción y que las expectativas inflacionarias muestran un comportamiento decreciente, que las ubicó, en promedio, en 3,7%, en diciembre del 2015.
+E. Los agregados monetarios y crediticios, determinantes de la inflación en el largo plazo, han mostrado un comportamiento coherente con el retorno de la inflación a valores positivos y cercanos al 3% anual.
+F. Los organismos internacionales y agencias especializadas no prevén presiones alcistas en el precio internacional de las materias primas en los próximos trimestres, por lo que no se estiman choques de índole externo sobre la inflación. Si bien el Banco Central no ajusta su política monetaria ante choques de esta naturaleza, sí da seguimiento a la reacción de las expectativas inflacionarias, por eventos de este tipo.
+G. Las condiciones de liquidez sistémica en el mercado financiero nacional admiten una reducción adicional en el costo de esos recursos.
+H. Los rendimientos en el mercado secundario de valores han continuado disminuyendo, lo que valida menores expectativas de inflación a largo plazo, por parte de los participantes en este mercado.
+I. La modificación a la Tasa de Política Monetaria (TPM) y a tasa de interés bruta de los depósitos a un día plazo (DON) la realiza la Junta Directiva del Banco Central de Costa Rica actuando como funcionario de hecho, con fundamento en: i) lo establecido en el artículo 115 de la Ley General de la Administración Pública, Ley 6227, ii) en los criterios C-221- 2005 y C-100-2011, de 17 de junio del 2005 y 3 de mayo del 2011, respectivamente, emitidos por la Procuraduría General de la República, y iii) la urgencia de tramitar dichas modificaciones según lo apuntado en la parte considerativa de este acuerdo y señalado en el artículo 1 de esta acta.
+Dispuso por unanimidad y en firme:
+1. Fijar la tasa de política monetaria en 1,75% anual, a partir del 4 de enero del 2016.
+2. Fijar la tasa de interés bruta de los depósitos a un día plazo (DON) en 0,57% anual, a partir del 4 de enero del 2016.
+Publíquese en el Diario Oficial La Gaceta.
