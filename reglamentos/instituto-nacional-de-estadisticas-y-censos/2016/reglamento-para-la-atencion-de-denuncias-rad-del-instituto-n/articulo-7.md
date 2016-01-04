@@ -1,0 +1,3 @@
+Capítulo II
+Tramitación de Denuncias
+Artículo 7- Recepción de la denuncia. La Auditoría Interna recibirá las denuncias de forma física en su oficina, o bien por los medios electrónicos que la Auditoría Interna ponga a disposición para tal efecto. También de manera verbal, cuando las circunstancias así lo exijan. En este último caso, el denunciante deberá comparecer personalmente ante la Auditoría Interna y expresar de modo oral su denuncia. El Auditor Interno valorará la admisibilidad de las mismas. En todos los casos se deberá identificar al denunciante, sea mediante firma digital o con su documento de identificación.
