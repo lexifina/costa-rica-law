@@ -1,0 +1,1 @@
+Artículo 30.—Servicios de Fiscalización de la Auditoría Interna. Los servicios de fiscalización que realiza la Auditoría Interna, conforme a sus competencias, se clasifican en Servicios de Auditoría y Servicios Preventivos.

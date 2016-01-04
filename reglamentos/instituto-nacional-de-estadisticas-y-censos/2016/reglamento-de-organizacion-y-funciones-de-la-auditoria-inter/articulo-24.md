@@ -1,0 +1,1 @@
+Artículo 24.—Deberes. Los deberes del Auditor Interno y los demás funcionarios de la Auditoría Interna se encuentran plasmados en el artículo 32 de la Ley General de Control Interno y en la normativa emitida por la Contraloría General de la República. Le corresponde al Auditor Interno vigilar la correcta observancia de los mismos, por parte del personal de la Auditoría Interna.

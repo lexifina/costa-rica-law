@@ -1,0 +1,3 @@
+Artículo 19.—Solicitud de Recursos. El proyecto de presupuesto anual de la Auditoría Interna, será elaborado y presentado oportunamente, por el Auditor Interno, al Consejo Directivo para su estudio y resolución.
+El funcionario encargado del presupuesto institucional mantendrá un registro separado sobre el presupuesto asignado a la Auditoría Interna, con el detalle por objeto del gasto, de manera que se controlen la ejecución y las modificaciones de los recursos presupuestados para la Auditoría Interna.
+El control y administración del presupuesto de la Auditoría Interna, así como los bienes asignados a la misma, estarán bajo la responsabilidad del Auditor Interno.

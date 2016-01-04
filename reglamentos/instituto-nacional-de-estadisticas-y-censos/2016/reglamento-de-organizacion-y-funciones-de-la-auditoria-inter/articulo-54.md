@@ -1,0 +1,1 @@
+Artículo 54.—Otras regulaciones internas. El Auditor Interno podrá emitir disposiciones a través de circulares o lineamientos internos, con el propósito de definir, especificar, detallar y adicionar lo dispuesto en este Reglamento, siempre y cuando no se contravenga lo establecido en las leyes y demás normativa aplicable a las Auditorías Internas.

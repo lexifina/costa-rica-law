@@ -1,0 +1,1 @@
+Artículo 21.—Temas, contenido y cursos del Programa de Capacitación. El Auditor Interno seleccionará los temas, contenidos y cursos que formaran parte del programa de capacitación, incluyendo los proveedores de capacitación y formación asistida y coordinando lo pertinente con la Unidad de Proveeduría.

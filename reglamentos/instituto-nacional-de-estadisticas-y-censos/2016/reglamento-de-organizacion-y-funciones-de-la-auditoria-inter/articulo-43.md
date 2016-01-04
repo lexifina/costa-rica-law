@@ -1,0 +1,1 @@
+Artículo 43.—Estructura de los informes. La estructura de los informes de auditoría se constituirá de aquellas partes que defina el Auditor Interno en concordancia con la normativa que regula la función de la Auditoría Interna.

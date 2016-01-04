@@ -1,0 +1,2 @@
+Artículo 45.—Recomendaciones de la Auditoría Interna. Las recomendaciones que emita de la Auditoría Interna, deberán estar fundamentadas en la normativa vigente, las reglas unívocas de la ciencia y de la técnica así como en los principios elementales de justicia, lógica y conveniencia.
+La implementación de las recomendaciones de la Auditoría Interna será de la exclusiva responsabilidad de la Administración Activa.

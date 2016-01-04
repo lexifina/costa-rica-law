@@ -1,0 +1,1 @@
+Artículo 52.—Sanciones administrativas. De acuerdo a la gravedad de las faltas cometidas por los distintos funcionarios del INEC en la observancia del presente Reglamento, se aplicarán las sanciones establecidas en el artículo 41 de la Ley General de Control Interno.

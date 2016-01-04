@@ -1,0 +1,1 @@
+Artículo 39.—Supervisión. Todos los trabajos de la Auditoría Interna deben ser supervisados durante toda la ejecución por el Auditor Interno o por quién éste designe, con el propósito de asegurar el cumplimiento de los objetivos así como la calidad del trabajo.

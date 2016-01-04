@@ -1,0 +1,1 @@
+Artículo 41.—Destinatarios de los Informes de Auditoría. La Auditoría Interna comunicará los resultados de sus auditorías o estudios especiales, mediante informes objetivos dirigidos al jerarca o a los titulares subordinados, con competencia y autoridad para tomar decisiones y ordenar la implantación de las respectivas recomendaciones.

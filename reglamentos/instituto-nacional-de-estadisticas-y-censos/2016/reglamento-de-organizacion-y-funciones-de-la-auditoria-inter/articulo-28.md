@@ -1,0 +1,1 @@
+Artículo 28.—Planificación del seguimiento de los resultados del trabajo. El Plan de Trabajo Anual debe contemplar un seguimiento en forma permanente orientado a verificar las acciones ejecutadas por la Administración Activa, respecto a las recomendaciones efectuadas por la Auditoría Interna y a las disposiciones giradas por la Contraloría General de la República.

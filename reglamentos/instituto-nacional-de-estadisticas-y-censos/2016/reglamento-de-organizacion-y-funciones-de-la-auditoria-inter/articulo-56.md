@@ -1,0 +1,1 @@
+Artículo 56.—Derogatorias. Este Reglamento deja sin efecto el Reglamento de Organización y Funciones de la Auditoría Interna del Instituto Nacional de Estadística y Censos de junio de 2007, publicado en el Diario Oficial de La Gaceta N° 200 del 18 de octubre del 2007.

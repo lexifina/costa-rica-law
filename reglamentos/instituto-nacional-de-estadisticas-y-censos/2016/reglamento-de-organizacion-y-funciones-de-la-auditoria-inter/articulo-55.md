@@ -1,0 +1,1 @@
+Artículo 55.—Aprobación y Vigencia. El presente Reglamento deberá ser aprobado por el Consejo Directivo del INEC y la Contraloría General de la República y regirá a partir de que sea debidamente publicado en el Diario Oficial La Gaceta.

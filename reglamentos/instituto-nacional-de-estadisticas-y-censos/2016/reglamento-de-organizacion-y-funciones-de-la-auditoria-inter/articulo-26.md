@@ -1,0 +1,6 @@
+Artículo 26.—Prohibiciones. El artículo 34 de la Ley General de Control Interno dispone las prohibiciones que tiene todo el personal profesional que labore en la Auditoría Interna y por las cuales se les pagará un sesenta y cinco por ciento sobre el salario base de esos funcionarios. Dichas prohibiciones versan sobre lo siguiente:
+a. Realizar funciones y actuaciones de administración activa, salvo las necesarias para cumplir su competencia.
+b. Formar parte de órganos directores en procedimientos administrativos.
+c. Ejercer profesiones liberales fuera del cargo, salvo en asuntos estrictamente personales, en los de su cónyuge, sus ascendientes, descendientes y colaterales por consanguinidad y afinidad hasta tercer grado. De esta prohibición se exceptúa la docencia, siempre que sea fuera de la jornada laboral.
+d. Participar en actividades político-electorales, salvo la emisión del voto en las elecciones nacionales y municipales.
+e. Revelar información sobre las auditorías o los estudios especiales de auditoría que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de algún funcionario del INEC o de los demás órganos e instituciones de la Administración Pública.

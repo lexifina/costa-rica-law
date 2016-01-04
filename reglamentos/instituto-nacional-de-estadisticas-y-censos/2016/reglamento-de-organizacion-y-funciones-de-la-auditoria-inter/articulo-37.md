@@ -1,0 +1,1 @@
+Artículo 37.—Pericia y cuidado profesional. Los funcionarios de la Auditoría Interna están obligados a realizar su trabajo con pericia y cuidado profesional. El personal designado para la ejecución de cada trabajo deberá poseer los conocimientos, técnicas y habilidades para una adecuada realización del mismo.

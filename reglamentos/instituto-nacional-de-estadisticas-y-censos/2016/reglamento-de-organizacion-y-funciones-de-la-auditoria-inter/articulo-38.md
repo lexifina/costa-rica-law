@@ -1,0 +1,2 @@
+Artículo 38.—Sobre las evidencias. Durante la ejecución de los servicios de auditoría, se obtendrá material de evidencia suficiente, competente y pertinente por medio de inspecciones, observaciones, investigaciones, indagaciones, confirmaciones, con el objetivo de respaldar los hallazgos encontrados y fundamentar las conclusiones de los informes.
+Toda esta evidencia recolectada conformará los papeles de trabajo, ya sean en documentos físicos o de preferencia a través de medios electrónicos, debidamente elaborados por el auditor encargado.
