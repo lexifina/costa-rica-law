@@ -1,1 +1,0 @@
-Artículo 40.—Responsable de ejecutar las recomendaciones aceptadas. Es responsabilidad de la Administración la adopción de todas las medidas y acciones que aseguren y permitan la efectiva, eficiente y oportuna adopción de las recomendaciones aceptadas, emitidas por la Auditoría Interna, la Contraloría General de la República y otros entes externos competentes.

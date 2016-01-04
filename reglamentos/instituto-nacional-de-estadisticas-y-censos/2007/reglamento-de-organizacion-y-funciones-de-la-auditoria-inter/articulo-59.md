@@ -1,1 +1,0 @@
-Artículo 59.—Expediente del conflicto. El Auditor Interno, el Consejo Directivo o ambas partes deben presentar el expediente debidamente foliado, ordenado en forma cronológica, con un índice y todos los documentos pertinentes que le permitan a la Contraloría General valorar el conflicto para dictar una solución.

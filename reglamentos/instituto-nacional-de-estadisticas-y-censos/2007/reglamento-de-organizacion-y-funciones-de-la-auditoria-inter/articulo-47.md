@@ -1,1 +1,0 @@
-Artículo 47.—Admisión de denuncias anónimas. Las denuncias anónimas se atenderán en el tanto aporten todos los elementos de convicción suficientes y se encuentren sustentadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia, dejando una razón escrita de ello.

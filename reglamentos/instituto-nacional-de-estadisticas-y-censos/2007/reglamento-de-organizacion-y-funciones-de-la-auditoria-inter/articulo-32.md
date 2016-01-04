@@ -1,1 +1,0 @@
-Artículo 32.—Informes por escrito. La comunicación de resultados será por escrito. Podrá efectuarse durante el desarrollo de la auditoría, mediante memoranda y, al finalizar la labor, por medio del informe final.

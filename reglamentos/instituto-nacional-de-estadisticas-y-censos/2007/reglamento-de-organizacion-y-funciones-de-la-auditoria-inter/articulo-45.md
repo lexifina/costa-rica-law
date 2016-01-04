@@ -1,1 +1,0 @@
-Artículo 45.—Información adicional. El denunciante estimará el perjuicio producido al INEC en caso de conocerlo, la indicación de probables testigos y el lugar o medios para citarlos, así como la aportación o sugerencia de otras pruebas.

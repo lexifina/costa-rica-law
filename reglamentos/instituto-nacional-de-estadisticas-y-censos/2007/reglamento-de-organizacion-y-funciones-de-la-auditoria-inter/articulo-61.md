@@ -1,1 +1,0 @@
-Artículo 61.—Ámbito de aplicación de este reglamento. Las disposiciones de este Reglamento son de aplicación obligatoria en todas las unidades que conforman la organización del INEC, en lo que corresponda.

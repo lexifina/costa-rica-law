@@ -1,1 +1,0 @@
-Artículo 6º—Responsabilidad por el Sistema de Control Interno. Es responsabilidad exclusiva de la Administración del INEC, establecer, mantener y perfeccionar el sistema de control interno. La Gerencia del INEC está específicamente comprometida en el mismo y, ante ella, cada titular subordinado, bajo de su dirección.

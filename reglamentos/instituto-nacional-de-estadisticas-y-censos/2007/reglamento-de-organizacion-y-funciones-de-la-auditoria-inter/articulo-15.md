@@ -1,5 +1,0 @@
-Artículo 15.—Responsabilidad anterior. Para observar la independencia, la objetividad, la imparcialidad y evitar conflicto de intereses, los funcionarios de la Auditoría Interna no deben ejecutar sus competencias de asesoría y advertencia, en relación con operaciones de las cuales hayan sido previamente responsables. Ante esta situación, el Auditor Interno lo comunicará por escrito al Consejo Directivo a fin de que éste resuelva.
-a) Se realiza el estudio por el Auditor Interno y, en el informe resultante, se expresa la circunstancia.
-b) Asignar el estudio a otro funcionario de la Unidad quien lo realizará independientemente de la participación del Auditor Interno; y lo comunicará directamente al Consejo Directivo.
-c) Si el criterio y la independencia se afectan significativamente, se comunica al Consejo Directivo tal hecho con el propósito de que éste determine si la Administración ejecuta el estudio o si se contrata externamente la realización del mismo.
-d) Si se trata de un subalterno, en la Auditoría Interna, el titular determinará si el estudio lo asigna a otro funcionario de su Unidad o lo efectúa el Auditor Interno.

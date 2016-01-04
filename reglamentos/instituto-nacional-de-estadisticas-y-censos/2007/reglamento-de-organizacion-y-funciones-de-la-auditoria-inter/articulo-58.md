@@ -1,1 +1,0 @@
-Artículo 58.—Trámite ante la Contraloría General de la República. El Auditor Interno, el Consejo Directivo o ambas partes deben presentar el conflicto para la resolución de la Contraloría General dentro de los ocho días hábiles siguientes a su surgimiento, plazo en el cual no se puede ni ampliar ni interrumpirse.

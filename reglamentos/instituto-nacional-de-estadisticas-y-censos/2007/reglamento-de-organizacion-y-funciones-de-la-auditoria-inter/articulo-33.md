@@ -1,1 +1,0 @@
-Artículo 33.—Audiencia previa. Antes de emitir un memoranda o informe, en donde se determine una eventual responsabilidad personal de un funcionario, deberá, la Auditoría Interna, dar audiencia previa al interesado.

@@ -1,4 +1,0 @@
-Artículo 20.—Independencia, objetividad y discrecionalidad del personal de la Auditoría Interna. Además de lo establecido en el Reglamento Autónomo de Servicios, en el Código de Trabajo, la Ley General de Administración Pública y en las demás leyes específicas aplicables, todo funcionario de la Auditoría Interna deberá cumplir con las siguientes normas.
-a. Independencia y objetividad. Mantener una actitud independiente y objetiva en la ejecución de la auditoría, y en la preparación de los informes correspondientes.
-b. No lesionar la imagen de algún funcionario. Abstenerse de dar declaraciones, emitir juicios y expresiones que lesionen la imagen de algún funcionario del INEC.
-c. Discrecionalidad. Guardar rigurosa discreción sobre el contenido de mensajes, documentos o cualquier clase de información que, por la índole de sus funciones, llegue a su conocimiento.
