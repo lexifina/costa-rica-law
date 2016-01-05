@@ -1,0 +1,1 @@
+Artículo 2º—Cobertura. Este Reglamento se aplica a la actividad del Departamento de Transportes de Correos de Costa Rica, cuyos procedimientos de contratación son llevados a cabo por el Departamento de Compras y Contrataciones.

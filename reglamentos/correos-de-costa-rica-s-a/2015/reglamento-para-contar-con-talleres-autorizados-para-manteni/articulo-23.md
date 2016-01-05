@@ -1,0 +1,1 @@
+Artículo 23.—Participantes. Correos de Costa Rica únicamente podrá contratar los servicios bajo el amparo de este Reglamento, únicamente con las personas físicas o jurídicas que formen parte del Registro de Proveedores.

@@ -1,0 +1,3 @@
+CAPÍTULO III
+Forma de Contratar
+Artículo 16.—Objetivo del procedimiento. El procedimiento de contratación regulado en el presente reglamento, pretende un mecanismo ágil y efectivo que permita mantener la flotilla de vehículos de Correos en las mejores condiciones mecánicas posibles; obteniendo el servicio de empresas o personas físicas registradas que cumplan con los requerimientos técnicos y legales exigidos por la Administración, igualmente pretende regular la calidad de los servicios contratados, así como los repuestos e insumos utilizados en cada reparación y que son aportados por los talleres contratistas.

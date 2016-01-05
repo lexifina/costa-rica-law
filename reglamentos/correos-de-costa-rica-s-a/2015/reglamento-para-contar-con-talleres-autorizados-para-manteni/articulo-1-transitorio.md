@@ -1,0 +1,1 @@
+Transitorio I.—Respecto a la publicación de la convocatoria a que se refiere el artículo 7º de este Reglamento, una vez obtenida la aprobación por parte de la Contraloría General de la República de este Reglamento, se hará la publicación de la invitación.

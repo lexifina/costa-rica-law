@@ -1,0 +1,1 @@
+Artículo 5º—Clasificación. Los servicios han sido clasificados de acuerdo a la complejidad que su ejecución requiera o a la inversión en equipo y personal necesarios. El proveedor podrá aplicar para formar parte de cualquiera de los servicios a contratar señaladas en este reglamento.

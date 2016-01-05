@@ -1,0 +1,1 @@
+Artículo 3º—Normativa aplicable. Para el sistema de contratación regulado en este Reglamento, regirán todos los principios constitucionales y legales, así como las prohibiciones y requisitos propios de la materia de Contratación Administrativa.

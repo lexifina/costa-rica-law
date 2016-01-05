@@ -1,0 +1,3 @@
+Artículo 19.—Inicio del procedimiento de contratación. La decisión de iniciar un trámite para reparación, deberá ser dictada por la Jefatura del Departamento de Transportes máximo cinco días hábiles después de haber recibido el diagnóstico preliminar y deberá contar con el visto bueno Gerente de Operaciones.
+La Jefatura del Departamento de Transportes, debe hacer la solicitud de pedido y justificación, la cual debe contener un detalle de las especificaciones técnicas de la reparación a realizarse y el contenido presupuestario.
+La información recabada, debe ser enviada al Departamento de Transportes para la formalización del procedimiento de contratación.
