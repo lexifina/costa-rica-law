@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SANTA BÁRBARA
+El Concejo Municipal de la Municipalidad de Santa Bárbara de Heredia, mediante el dictamen de Comisión de Hacienda y Presupuesto CHP-MSB-352-2015 en su respectivo acuerdo Nº 7796-2015 del artículo IV de la sesión ordinaria Nº 290, celebrada el día 24 de noviembre del 2015, aprueba la modificación al artículo 6º del Reglamento de Caja Chica que indica:
+1º—Aprobar la modificación al Reglamento de Caja Chica de la Municipalidad de Santa Bárbara, publicado en La Gaceta Nº 07 del viernes 10 de enero de 1997, para que en el artículo 6º, en lo sucesivo se lea:
+Artículo 6º—Se establece un tope máximo de ¢40.000,00 (cuarenta mil colones) para compra de bienes y servicios. En casos que califiquen de excepcionales, el Alcalde Municipal podrá autorizar compras mayores de ¢40.000,00 (cuarenta mil colones) hasta un máximo de ¢60.000,00 (sesenta mil colones).
+2º—Instruir a la Secretaria del Concejo Municipal para que proceda a publicar en el Diario Oficial y de conformidad con el artículo 43 del Código Municipal, la modificación anteriormente señalada, para que rija a partir de su publicación. Acuerdo definitivamente aprobado.
+Santa Bárbara de Heredia, 24 de noviembre del 2015.
