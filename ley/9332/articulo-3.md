@@ -1,0 +1,3 @@
+ARTÍCULO 3.-
+Los beneficiarios destinarán al régimen de patrimonio familiar el inmueble donado que no podrá ser vendido, gravado, arrendado o cedido ni traspasado a terceros, hasta tanto no hayan transcurrido diez años desde la presente autorización.
+Se exceptúan de esta regulación las operaciones de los adjudicatarios con los entes autorizados del Sistema Financiero Nacional para la Vivienda, así como los gravámenes que las mutuales de vivienda impongan sobre los inmuebles traspasados, a favor de bienes del Estado y únicamente para financiar el mejoramiento y la reparación de las viviendas construidas en los lotes donados.
