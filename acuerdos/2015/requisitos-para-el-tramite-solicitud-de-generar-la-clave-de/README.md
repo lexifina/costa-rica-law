@@ -14,3 +14,4 @@ Requisitos para el trámite "Solicitud de generar la clave de acceso para Autoge
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-27 | la propia norma |
+| 2 | 2016-01-06 | Acuerdo 0 (2016-01-06) |
