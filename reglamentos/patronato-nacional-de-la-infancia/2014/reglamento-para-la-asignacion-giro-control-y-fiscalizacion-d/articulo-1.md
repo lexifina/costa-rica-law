@@ -1,4 +1,6 @@
+(Derogado)
 PATRONATO NACIONAL DE LA INFANCIA
+(Esta norma fue derogada por el artículo 27 del Reglamento para la Asignación, Giro, Control y Fiscalización de las Becas Educativas dirigidas a adolescentes embarazadas y/o Adolescentes Madres en condición de vulnerabilidad, aprobado mediante sesión ordinaria N° 2016-001 del 7 de enero del 2016)
 REGLAMENTO PARA LA ASIGNACIÓN, GIRO, CONTROL
 Y FISCALIZACIÓN DE LAS BECAS EDUCATIVAS
 DIRIGIDAS A ADOLESCENTES EMBARAZADAS

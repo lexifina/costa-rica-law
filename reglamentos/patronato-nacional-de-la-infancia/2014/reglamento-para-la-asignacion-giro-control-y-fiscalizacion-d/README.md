@@ -14,3 +14,4 @@ Reglamento para la asignación, giro, control y fiscalización de las becas educ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-23 | la propia norma |
+| 2 | 2016-01-07 | Reglamento 1 (2016-01-07) |
