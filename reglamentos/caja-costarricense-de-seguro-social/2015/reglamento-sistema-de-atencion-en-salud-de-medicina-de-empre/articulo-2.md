@@ -1,0 +1,3 @@
+Artículo 2°—Del Objetivo del Sistema
+a) El objetivo de este Sistema es ofrecer una modalidad alternativa de acceso no urgente a la red de servicios que brinda la CCSS, por parte de la población económicamente activa del país, de manera que se fortalezca la integralidad de la atención en salud a los trabajadores, a través de una alianza entre la CCSS y el Centro de Trabajo.
+b) El presente Reglamento no pretende limitar la prestación de los servicios de salud que los Centros de Trabajo deseen brindar, sino enmarcar específicamente el proceso de atención en salud que se llevará a cabo como parte de la alianza con la CCSS.

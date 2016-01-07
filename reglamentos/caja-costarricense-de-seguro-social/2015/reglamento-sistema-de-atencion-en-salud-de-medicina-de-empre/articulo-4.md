@@ -1,0 +1,26 @@
+CAPITULO II: DE LA INSCRIPCIÓN AL SISTEMA Y SUS REQUISITOS
+Artículo 4°—Proceso de inscripción
+a) Para ser parte del Sistema de Atención en Salud de Medicina de Empresa, el Centro de Trabajo debe contar con al menos un médico y un consultorio habilitado por el Ministerio de Salud para prestar el respectivo servicio de atención.
+b) Para ingresar a este Sistema, el Centro de Trabajo interesado deberá solicitar el Formulario “Inscripción al Sistema de Atención en Salud de Medicina de Empresa” en un Área de Salud de la CCSS o acceder al mismo en la página WEB de la Institución.
+c) El Centro de Trabajo deberá completar el formulario de inscripción del punto b) indicando en el mismo la cedula jurídica y razón social que tiene inscrita (ante la CCSS)como patrono activo de los trabajadores que serán beneficiarios de este sistema de atención y adjuntar la siguiente documentación:
+• Certificación de incorporación al Colegio de Médicos y Cirujanos de Costa Rica del médico a inscribir, con no más de 90 días de emitido, donde conste la especialidad que ostenta.
+•Fotocopia de Habilitación del Consultorio Médico vigente, expedido por el Ministerio de Salud de acuerdo con el Reglamento General para el Otorgamiento de Permisos de Funcionamiento, decreto 34728-S y a la Norma para la Habilitación de Establecimientos de Consulta Externa y Especialidades Médicas, decreto 30699-S.
+• Fotocopia de la cédula o documento de identidad del médico a inscribir.
+d) No se autorizan inscripciones en las que el horario del médico se traslape con el de otro médico inscrito para laborar en el mismo consultorio, ni que se traslape con el horario que el mismo médico a inscribir tenga reportado en otros consultorios, tanto en este Sistema como en el Sistema Mixto de Atención en Salud. Con la excepción indicada en el artículo 3 inciso c).
+e) El Centro de Trabajo deberá entregar el formulario completo y la documentación indicada al Área de Salud de la CCSS en la que le corresponde por área de adscripción, según ubicación del Centro de Trabajo, tomando en cuenta que la firma en el formulario de inscripción por parte del representante legal del Centro de Trabajo y del médico(s) implica un compromiso de cumplir con todo lo estipulado en el presente Reglamento. La firma en ambos casos debe ser la reportada en la cedula o documento de identidad.
+f)
+g) El Área de Salud correspondiente procederá a la revisión de los documentos aportados y en un plazo máximo de 5 (cinco) días hábiles deberá indicar al Centro de Trabajo si debe realizar alguna corrección en la información suministrada.
+h)
+i) El Área de Salud remitirá la información completa a la unidad responsable del Sistema en el Nivel Central de la CCSS, o en su defecto donde la entidad competente defina en sus procesos según la mejora contínua y trabajo en red, en un plazo máximo de 3 (tres) días hábiles posteriores a constatar que los requisitos entregados cumplen con la normativa, en donde se incorporará la información del Centro de Trabajo y del médico en la base de datos del Sistema.
+j)
+k) En un plazo máximo de 5 (cinco) días hábiles después de recibida la información de forma satisfactoria, la unidad responsable del Sistema en el Nivel Central de la CCSS, o en su defecto donde la entidad competente defina en sus procesos según la mejora continua, deberá comunicarle al Centro de Trabajo y al Área de Salud correspondiente por los medios disponibles que fue inscrito satisfactoriamente y que puede iniciar con la utilización de los servicios definidos.
+l)
+m) Para iniciar con la utilización de la oferta de servicios establecida en este Reglamento, todo médico oficialmente inscrito en el Sistema, debe presentarse en el Área de Salud de adscripción del Centro de Trabajo y registrar su firma donde así lo estipule el Centro de Salud. La firma debe ser la reportada en la cedula o documento de identidad.
+n)
+o) Todo Centro de Salud de la CCSS o servicios contratados por ésta, deberán disponer de un registro actualizado de firmas de los profesionales inscritos en el Sistema, correspondientes a su área de adscripción y garantizar que los diferentes servicios involucrados en la prestación de servicios cuenten con el mismo.
+p)
+q) Cuando un Centro de Trabajo inscrito en este Sistema requiera inscribir médicos adicionales, debe presentar nuevamente el formulario de inscripción completo y la documentación definida en el artículo c).
+r)
+s) El Centro de Trabajo deberá actualizar la información presentada en el Formulario “Inscripción al Sistema de Atención en Salud de Medicina de Empresa”, ante alguna de las siguientes situaciones: a) vencimiento del permiso de funcionamiento del consultorio, b) cambio de razón social o ubicación; c) cuando sea solicitado por la unidad responsable del Sistema de la CCSS.
+t)
+u) Para actualizar la información, el Centro de Trabajo deberá presentar el formulario de inscripción y copia del permiso de funcionamiento vigente del consultorio al Área de Salud de adscripción del Centro de Trabajo, en un plazo máximo de 30 (treinta) días naturales posteriores a la ocurrencia de alguna de las situaciones indicadas en el inciso anterior y ésta a su vez remitirlo a la unidad responsable del Sistema en el Nivel Central.
