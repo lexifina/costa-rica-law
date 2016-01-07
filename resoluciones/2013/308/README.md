@@ -14,3 +14,4 @@ Reforma Mensajes de Ingresos y Salidas versión 1.57 y Aprueba Mensaje de solici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-26 | la propia norma |
+| 2 | 2016-01-07 | Resolución 2 (2016-01-07) |

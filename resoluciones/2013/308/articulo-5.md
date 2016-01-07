@@ -240,3 +240,5 @@ E:\Documents and Settings\urenasl\Configuración local\Archivos temporales de In
 </ROW_TRTMOVRESPUUESTA>
 </ROWSET_TRTMOVPORTONRESP>
 </ROOT>
+(Nota de Sinalevi: Mediante resolución RES-DGA-002-2016 del 7 de enero de 2016, se modificó el documento titulado “Mensaje de Ingresos y Salidas versión 1.59”, para agregar la nueva condición de ingreso o salida del país (Multimodal, código 5), de la siguiente manera:
+[imagen] ”)
