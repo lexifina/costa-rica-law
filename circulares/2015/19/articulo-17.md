@@ -1,0 +1,2 @@
+Artículo 17.—Confidencialidad de la Información: El Colegio de Contadores Públicos de Costa Rica respeta la privacidad de sus participantes y mantiene toda la información personal no pública que recibe de los colegiados o clientes de manera confidencialidad, conforme lo estable la Ley y el Reglamento a la Ley de Protección de la persona frente al tratamiento de sus datos personales.
+San José, 16 de diciembre del 2015.

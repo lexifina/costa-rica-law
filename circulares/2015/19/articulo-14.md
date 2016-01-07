@@ -1,0 +1,1 @@
+Artículo 14.—Material de las actividades: Para las Actividades de Capacitación que el Departamento de Desarrollo Profesional organice se reserva el derecho de no poner a disposición material alguno sobre el tema que se impartirá, en el caso que lo considere pertinente lo colocará en su sitio web o por medio de correo electrónico para los participantes.

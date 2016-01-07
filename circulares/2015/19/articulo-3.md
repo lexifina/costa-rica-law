@@ -1,0 +1,1 @@
+Artículo 3º—Inscripción y cupo: Toda Actividad de Capacitación cuenta con un número de campos de participación establecidos, en consecuencia, podría ocurrir que lleguen a su tope o cupo máximo, por lo tanto, un participante tendrá la posibilidad de solicitar la inscripción siempre y cuando la actividad no haya alcanzado su cupo máximo de participación.

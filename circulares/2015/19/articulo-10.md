@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la desinscripción a las Actividades de Capacitación
+Artículo 10.—Desinscripción previa: Si un participante desea desinscribirse de la Actividad de Capacitación contratada, deberá realizarla con una anticipación de dos días hábiles al inicio del mismo, lo anterior lo hará por medio de un correo electrónico dirigido al Departamento de Desarrollo Profesional, debiendo tener en cuenta que debe recibir una confirmación por ese mismo medio.
+Si no ha recibido la confirmación de desinscripción deberá comunicarse telefónicamente para confirmar, en el caso, que se le informe que no llegó el correo electrónico sobre su cancelación a dicho curso, le recomendarán nuevamente enviarlo para efectos de aseguramiento y control, una vez realizado este trámite, el monto pagado se congela para ser utilizado en otra Actividad de Capacitación.
