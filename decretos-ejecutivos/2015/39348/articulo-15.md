@@ -1,0 +1,1 @@
+Artículo 15.—Los aspectos no contemplados por este Reglamento, se regirán por la Ley General de la Administración Financiera de la República, la Ley General de la Administración Pública, Reglamento de Gastos de Viaje y Transportes, el Reglamento de Contratación Administrativa, Ley de Control Interno y demás leyes conexas.

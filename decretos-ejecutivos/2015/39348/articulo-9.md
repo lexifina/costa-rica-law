@@ -1,0 +1,1 @@
+Artículo 9°—Asignación de recursos. El monto autorizado para el uso de transporte público, estará relacionado con las tarifas establecidas por las Autoridades Reguladoras correspondientes. Salvo los casos en que el jerarca de cada dependencia ministerial autorice montos mayores ante necesidades debidamente justificadas.

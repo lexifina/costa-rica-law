@@ -1,0 +1,1 @@
+Artículo 5°—Revisión y actualización del Reglamento. La Dirección de Asesoría Legal del Ministerio de Ambiente y Energía, es responsable de la revisión y actualización periódica del presente reglamento, según las necesidades que emerjan de su aplicación, en el marco de las disposiciones legales vigentes.

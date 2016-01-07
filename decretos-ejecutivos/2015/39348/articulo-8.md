@@ -1,0 +1,7 @@
+CAPÍTULO II
+Del uso, aprobación, funcionamiento, deberes y responsabilidades.
+Artículo 8°—Aprobación del uso del servicio de transporte público. El trámite de aprobación del uso del servicio de transporte público, será el siguiente:
+a) El reintegro del monto total por el uso de transporte público, por parte de los funcionarios, se realizará posterior a la utilización del mismo. No se realizará adelantos por concepto de gastos por uso de transporte público, excepto en las situaciones especiales que así se requiera, especialmente para la contratación de semovientes para el traslado de equipo, en lugares donde no exista acceso con la flotilla vehicular del MINAE o de los diferentes Programas.
+b) El Director General de cada Programa, será el encargado de autorizar el reintegro del monto total por la utilización de transporte público, previa presentación del formulario respectivo, por parte del funcionario solicitante.
+c) El funcionario interesado o solicitante del reintegro del monto en el uso del transporte público, deberá presentar el formulario correspondiente debidamente firmando por el JefeSuperior Inmediato, al Departamento Administrativo, donde se verificará el cumplimiento de los requisitos, para su posterior traslado a la Dirección Financiera-Contable del Ministerio de Ambiente y Energía.
+d) La Dirección Financiero-Contable del Ministerio de Ambiente y Energía, verificará el cumplimiento de requisitos formales, de contenido presupuestario y económico y procederá al reintegro de las liquidaciones que se les presente.

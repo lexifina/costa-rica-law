@@ -1,0 +1,1 @@
+Artículo 11.—Plazos para la liquidación de gastos de transporte y otros gastos en el interior del país. El funcionario está obligado a presentar la liquidación de los gastos por transportes en el interior del país, en un plazo máximo de siete días hábiles. Caso contrario, el funcionario perderá el derecho a recibir el reintegro del monto por el uso de transporte público.

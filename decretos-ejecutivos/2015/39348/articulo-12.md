@@ -1,0 +1,3 @@
+CAPÍTULO III
+De las disposiciones finales
+Artículo 12.—Gastos de viáticos en el Gran Área Metropolitana. El Ministerio cubrirá los viáticos, dentro del Gran Área Metropolitana, como una excepción contemplada en el artículo 17° del Reglamento de gastos de Viaje y Transporte para funcionarios Públicos, en aquellas situaciones especiales en que, en criterio razonado de la Administración que aplica este Reglamento, se justifique el reconocimiento y pago de viáticos, para lo cual se deberá tener en cuenta, entre otros, la importancia de la actividad a desarrollar y que el funcionario asista en representación del Ministerio de Ambiente y Energía.

@@ -1,0 +1,1 @@
+Artículo 10.—Autorización a las Jefaturas. Cada jerarca de las dependencias de este ministerio, podrá facultar a las jefaturas correspondientes, para que autoricen los diferentes egresos por el uso de Transporte Público; siendo estos, los responsables directos del buen uso de los recursos.

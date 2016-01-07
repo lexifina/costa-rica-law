@@ -1,0 +1,11 @@
+Artículo 3°—Definiciones.
+• Gasto por transporte: Gastos destinados a cubrir el uso de transporte público (taxi, autobús, tren, ferry o semovientes), durante el viaje en misión oficial dentro del territorio nacional.
+• Jerarca: Se refiere al superior jerárquico de cualquier dependencia del ministerio; que ejerce la máxima autoridad dentro del órgano o ente, unipersonal o colegiado.
+• Transporte público: Corresponde a la contratación o uso del servicio de taxi, autobús, tren, ferry o semovientes.
+• Peajes: Se asocia con la tasa o tarifa que se cobra a un medio de transporte terrestre como derecho de tránsito, para utilizar la infraestructura de la respectiva vía de comunicación. El pago por este concepto será reconocido por el ministerio, cuando los viajes se realicen en vehículo oficial.
+• Horario Especial: Se entiende como horario especial, el traslado de los funcionarios a sus lugares de trabajo, bajo condiciones de necesidad, con el fin de cubrir el servicio que se debe prestar por parte del MINAE, las 24 horas y en situaciones especiales en que, en criterio razonado de la Administración, se justifique el reconocimiento y pago de viáticos, sobre cualquier aspecto no contemplado en este Reglamento y que tales situaciones cumplan con los siguientes requisitos:
+a) Que la actividad sujeta a autorización no contravenga el orden jurídico vigente.
+b) Que la realización de la actividad sea conveniente al interés público.
+c) Que se trate de una situación que ocurre en forma esporádica o imprevista.
+d) Que la solicitud sea hecha a instancia de la autoridad superior administrativa.
+• Emergencias: Las emergencias corresponden al soporte de las diferentes actividades que realiza el ministerio y que ante un fallo imprevisto, fuera de horario normal en las diferentes dependencias, no podría posponerse la reparación ya que su ejecución debe ser continua, como lo es equipos de cómputo, estaciones automáticas y cualquier equipo periférico relacionado con Tecnologías de la Información, así como cuando se encuentre el país en cualquiera de los niveles de alerta que establezca la Comisión Nacional de Gestión del Riesgo y Atención de Emergencias (CNE) y el funcionario tenga que desplazarse para cubrir cualquier necesidad que la situación amerite.
