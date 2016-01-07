@@ -1,0 +1,1 @@
+Artículo 3º—El Proceso de Desarrollo Social, está facultado para requerir a las personas solicitantes, los documentos necesarios y pertinente que le permita valorar los casos para remitir el dictamen correspondiente al Concejo Municipal

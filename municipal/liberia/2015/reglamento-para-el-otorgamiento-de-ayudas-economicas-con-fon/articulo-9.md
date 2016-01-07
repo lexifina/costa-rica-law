@@ -1,0 +1,1 @@
+Artículo 9º—En caso que la cantidad de solicitudes sobrepase el presupuesto asignado, la Municipalidad ayudará a tantas personas solicitantes como lo permitan los recursos establecidos anualmente para tales fines, en estricto orden de recibo de las solicitudes por parte del Concejo Municipal y el dictamen favorable del Proceso de Desarrollo Social.

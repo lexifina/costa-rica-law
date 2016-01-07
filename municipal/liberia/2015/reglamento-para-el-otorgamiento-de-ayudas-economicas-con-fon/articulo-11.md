@@ -1,0 +1,1 @@
+Artículo 11.—Criterios adicionales para otorgar una ayuda. Adicionalmente a los criterios del artículo 6°, se podrá tomar como elementos de juicio para el otorgamiento de esta ayuda los siguientes: tipo de jefatura y tipo de familia, número de hijos que estudian, número de hijos menores de edad, enfermedad o edad de los progenitores o encargados y otros similares.

@@ -1,0 +1,2 @@
+Artículo 2º—Las solicitudes de ayudas económicas para personas que requieran acondicionar habitaciones para recibir tratamientos hospitalarios y/o comprar implementos médicos deberán presentarse ante el Concejo de Distrito correspondiente, según artículo 57 del Código Municipal, el cual la trasladará mediante acuerdo de aprobación al Concejo Municipal.
+El Concejo Municipal mediante acuerdo remitirá la solicitud al Proceso de Desarrollo Social para que realice el estudio pertinente y brinde el dictamen respectivo.
