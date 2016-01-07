@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P06 Verificación / aprobación de declaraciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-22 | la propia norma |
+| 2 | 2016-01-07 | Acuerdo 0 (2016-01-07) |
