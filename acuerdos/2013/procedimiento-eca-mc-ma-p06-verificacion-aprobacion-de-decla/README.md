@@ -15,3 +15,4 @@ Procedimiento ECA-MC-MA-P06 Verificación / aprobación de declaraciones de cump
 | --- | --- | --- |
 | 1 | 2013-04-08 | la propia norma |
 | 2 | 2013-11-04 | Acuerdo 0 (2013-11-04) |
+| 3 | 2016-01-07 | Acuerdo 0 (2016-01-07) |

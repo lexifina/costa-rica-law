@@ -1,7 +1,12 @@
 9 CAMBIOS
-Motivo: Modificación de Documento.
-Refiérase a la solicitud de elaboración o modificación del documento número 2013-105
+Motivo:
+Modificación de Documento.
+Refiérase a la solicitud de elaboración o modificación del documento número 2016-05
 Observaciones:
-Se incorporan las modificaciones establecidas en los Decretos Ejecutivos:
-- Decreto Ejecutivo No 37638 MEIC, Reforma y adición al Decreto Ejecutivo N° 37341- MEIC del 31 de agosto del 2012, RTCR 452: 2011 Barras y Alambres de Acero de Refuerzo para concreto. Especificaciones, publicado en el Alcance Digital 152 de La Gaceta Nº 197 del 11 de octubre del 2012.
-- Decreto Ejecutivo No 37932 MEIC, Reforma, Adición y Derogación al Decreto Ejecutivo Nº 37341-MEIC del 31 de agosto del 2012, RTCR 452: 2011 barras y alambres de acero de refuerzo para concreto. Especificaciones, publicado en el Alcance Digital 152 de La Gaceta Nº 197 del 11 de octubre del 2012.
+Se modifica el apartado de alcance del procedimiento.
+Se incorporan en el apartado de documentos de referencia
+- Decreto Ejecutivo No 37662-MEIC-H-MICIT Procedimiento para la demostración de la evaluación de la conformidad de los reglamentos técnicos.
+- Decreto Ejecutivo No 39297-MEIC RTCR 476:2015 Materiales de la construcción. Cementos hidráulicos. Procedimiento de evaluación de la conformidad.
+- Decreto Ejecutivo No 39414-MEIC-S RTCR 479:2015. Materiales de construcción. Cementos hidráulicos. Especificaciones.
+Se elimina apartado de responsabilidades
+Se subrayan las modificaciones realizadas al procedimiento.

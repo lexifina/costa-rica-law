@@ -6,8 +6,7 @@
 4.5 Evaluación de la conformidad (ECO): Demostración de que cumple los requisitos especificados en los reglamentos técnicos o normas relativos a un producto, proceso, sistema, persona u organismo.
 Nota: Los procedimientos para la evaluación de la conformidad comprenden, entre otros, los de muestreo, prueba (o ensayo) e inspección, evaluación, verificación y garantía de la conformidad; registro, acreditación y aprobación, separadamente o en distintas combinaciones.
 4.6 Foros de Acreditación Internacionales:
-- IAAC: Cooperación Interamericana de Acreditación (Interamerican Accreditation
-Cooperation).
+- IAAC: Cooperación Interamericana de Acreditación (Interamerican Accreditation Cooperation).
 - IAF: Foro Internacional de Acreditación (International Accreditation Forum).
 - PAC: Cooperación de Acreditación del Pacifico (Pacific Accreditation Cooperation)
 - EA: Cooperación Europea para la Acreditación (European Cooperation for Accreditation).
