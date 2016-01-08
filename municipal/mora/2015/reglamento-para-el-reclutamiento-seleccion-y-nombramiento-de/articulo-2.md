@@ -1,0 +1,1 @@
+Artículo 2º—Competencia para la realización del procedimiento. Corresponde al Departamento Gestión Talento Humano, llevar a cabo el procedimiento por este medio estipulado, para el proceso de reclutamiento, selección y nombramiento del puesto de Auditor.

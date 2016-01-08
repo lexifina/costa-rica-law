@@ -1,0 +1,2 @@
+Artículo 4º—Sobre los requisitos de conocimientos complementarios y habilidades. De previo a la realización del Concurso Público, el Concejo Municipal de Mora definirá, las bases de Selección, en completo apego al perfil del puesto y a los lineamientos establecidos por la Contraloría General de la República.
+El Departamento Gestión Talento Humano, gestionará la aplicación y calificación de los predictores, estableciendo un resultado para cada participante.
