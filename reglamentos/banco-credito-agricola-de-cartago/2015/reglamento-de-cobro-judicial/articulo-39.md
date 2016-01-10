@@ -1,2 +1,4 @@
-Artículo 39.—Disposición final. El presente reglamento es de acatamiento obligatorio tanto para los abogados externos que en la actualidad prestan sus servicios al Banco, como para los que en el futuro se contraten.
-Este reglamento fue aprobado por la Junta Directiva General en la sesión Nº 8852/15, artículo 35, celebrada el 16 de junio del 2015, y entrará en vigencia a partir de la fecha de su publicación en el Diario Oficial La Gaceta. Asimismo, deroga el reglamento aprobado en la sesión Nº 8689, artículo 21, celebrada el 01 de octubre del 2013 y publicado en La Gaceta Nº 14 del 21 de enero del 2014.
+Artículo 39.—Sanciones. De acuerdo a la gravedad de los hechos tenidos por demostrados, el Órgano Director recomendará las siguientes sanciones:
+1) Suspensión para la asignación de nuevos casos por un período de seis meses o más a criterio del órgano del procedimiento administrativo.
+2) Inhabilitación para contratar con el Banco de dos a diez años.
+(Así reformado mediante sesión N° 9005/17 del 10 de enero del 2016)

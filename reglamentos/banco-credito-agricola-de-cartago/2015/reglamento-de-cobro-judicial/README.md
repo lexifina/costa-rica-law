@@ -14,3 +14,4 @@ Reglamento de cobro judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-11 | la propia norma |
+| 2 | 2016-01-10 | Reglamento 9005 (2016-01-10) |

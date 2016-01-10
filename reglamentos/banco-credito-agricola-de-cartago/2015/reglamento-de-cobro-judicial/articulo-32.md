@@ -6,3 +6,5 @@ En caso de los procesos monitorios o ejecutivos simples:
 a. Para el pago del primer tracto, deberá aportar copia de la demanda debidamente sellada por el Despacho donde se presentó el proceso.
 b. Para el pago del segundo tracto, debe presentarse copia de la sentencia o resolución intimatoria en firme.
 c. Para la cancelación del tracto restante, se procederá según lo establecido en el arancel de honorarios vigente.
+En ambos casos el pago se realizará contra la presentación de la factura respectiva.
+(Así adicionado el párrafo anterior mediante sesión N° 9005/17 del 10 de enero del 2016)
