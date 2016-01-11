@@ -14,3 +14,4 @@ Reglamento para determinar las personas exentas del pago del tributo de cinco d√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-03 | la propia norma |
+| 2 | 2016-01-11 | Decreto Ejecutivo 39586 (2016-01-11) |
