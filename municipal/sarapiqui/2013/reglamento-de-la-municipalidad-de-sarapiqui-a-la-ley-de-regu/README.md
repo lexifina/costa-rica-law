@@ -15,3 +15,4 @@ Reglamento de la Municipalidad de Sarapiquí a la Ley de Regulación y Comercial
 | --- | --- | --- |
 | 1 | 2013-06-25 | la propia norma |
 | 2 | 2013-10-21 | Reglamento municipal 42 (2013-10-21) |
+| 3 | 2016-01-11 | Reglamento municipal 0 (2016-01-11) |

@@ -1,23 +1,30 @@
 Artículo 29.—Cálculo del impuesto. El impuesto que se deberá pagar a favor de la Municipalidad de Sarapiquí, se realizará de acuerdo a los siguientes parámetros:
 Licencia Tipo A (licoreras)
-Monto del impuesto a pagar en cabecera de cantón | Monto a pagar demás poblaciones
-1 salario base | 1/2 salario base
-Licencia Tipo B1 (Bares, cantinas o tabernas)
-Monto del impuesto a pagar en cabecera de cantón | Monto a pagar demás poblaciones
+Monto del impuesto a pagar en la cabecera de cantón | Monto a pagar demás poblaciones
 1/2 salario base | 1/4 de salario base
+(Así reformado el cuadro anterior mediante publicación en La Gaceta N° 29 del 11 de febrero del 2016)
+Licencia Tipo B1 (Bares, cantinas o tabernas)
+Monto del impuesto a pagar en la cabecera de cantón | Monto a pagar demás poblaciones
+1/4 de salario base | 1/8 de salario base
+(Así reformado el cuadro anterior mediante publicación en La Gaceta N° 29 del 11 de febrero del 2016)
 Licencia Tipo B2 (Discotecas, salones de baile o clubes nocturnos)
 Monto del impuesto a pagar en cabecera de cantón | Monto a pagar demás poblaciones
-1/2 salario base | 1/4 de salario base
+1/4 de salario base | 1/8 de salario base
+(Así reformado el cuadro anterior mediante publicación en La Gaceta N° 29 del 11 de febrero del 2016)
 Licencia Tipo C (Restaurantes)
-Monto del impuesto a pagar en cabecera de cantón | Monto del impuesto a pagar demás poblaciones
-1/2 salario base | 1/4 salario base
+Monto del impuesto a pagar en cabecera de cantón | Monto a pagar demás poblaciones
+1/2 salario base | 1/4 de salario base
+(Así reformado el cuadro anterior mediante publicación en La Gaceta N° 29 del 11 de febrero del 2016)
 Licencia Tipo D1 (Minisúper)
-Monto del impuesto a pagar en cabecera de cantón | Monto del impuesto a pagar demás poblaciones
-1 salario base | 1/2 salario base
+Monto del impuesto a pagar en cabecera de cantón | Monto a pagar demás poblaciones
+1/2 salario base | 1/4 de salario base
+(Así reformado el cuadro anterior mediante publicación en La Gaceta N° 29 del 11 de febrero del 2016)
 Licencia Tipo D2 (Supermercado)
-Monto del impuesto a pagar en cabecera de cantón | Monto del impuesto a pagar demás poblaciones
-1 y 1/2 salarios base | 3/4 de salario base
+Monto del impuesto a pagar en cabecera de cantón | Monto a pagar demás poblaciones
+Un salario base | 1/2 salario base
+(Así reformado el cuadro anterior mediante publicación en La Gaceta N° 29 del 11 de febrero del 2016)
 Los negocios que ostenten licencias del tipo E pagarán conforme a lo dispuesto en el inciso 5) del artículo 10 de la Ley aplicando la anterior forma de cálculo.
+(Así reformado el párrafo anterior mediante publicación en La Gaceta N° 29 del 11 de febrero del 2016)
 Para los efectos de la aplicación de las tarifas anteriores, se entenderá que la cabecera del Cantón de Sarapiquí corresponde al Distrito de Puerto Viejo conforme al Decreto Ejecutivo Nº 37559-G de 31 de enero del 2013, que comprenderá los siguientes poblados o caseríos georeferenciados al sistema nacional de coordenadas:
 Chilamate:
 Norte | Oeste
