@@ -1,1 +1,1 @@
-Artículo 35.—De la Secretaria. Los Comités Ético Científicos nombrarán un secretario entre sus miembros y durará en su cargo un año, pudiendo ser reelecto.
+Artículo 35.— (Derogado por el artículo 3° del decreto ejecutivo N° 39533 del 11 de enero de 2016)

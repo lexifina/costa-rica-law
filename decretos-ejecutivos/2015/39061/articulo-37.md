@@ -1,5 +1,1 @@
-Artículo 37.—Funciones del Presidente. Serán funciones de la persona que ejerza la presidencia, las siguientes:
-a) Presidir las sesiones.
-b) Velar por el cumplimiento de las funciones del Comité.
-c) Convocar a las sesiones ordinarias y extraordinarias y confeccionar el orden del día.
-d) Ejecutar los acuerdos del Comité
+Artículo 37.— (Derogado por el artículo 3° del decreto ejecutivo N° 39533 del 11 de enero de 2016)

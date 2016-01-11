@@ -4,3 +4,5 @@ b) Indicar si el procedimiento de reclutamiento de participantes incluye la soli
 c) El acceso a los expedientes médicos de los eventuales participantes requerirá de su aprobación. Esta aprobación en ningún caso sustituirá el consentimiento informado.
 d) Las disposiciones sobre reclutamiento, contempladas en los incisos anteriores, no se aplicaran a las investigaciones reguladas en el artículo 7º de la Ley Nº 9234.
 e) Quien transfiera información personal o bases de datos de posibles participantes, no podrá recibir remuneración de ningún tipo.
+f) Toda publicidad que se realice para los diferentes medios de comunicación con el fin de reclutar participantes para una investigación biomédica, debe ser aprobada por el CEC respectivo, el cual revisará en el sentido de que la publicidad no sea alarmante, que no genere expectativas excesivas o engañosas, que no se aproveche de la vulnerabilidad física o psicológica de las personas que podrían ser reclutadas. Esto debe ser comunicado al Conis dentro del plazo de diez días antes de su publicación.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39533 del 11 de enero de 2016)

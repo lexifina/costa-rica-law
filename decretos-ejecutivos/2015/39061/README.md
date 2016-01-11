@@ -14,3 +14,4 @@ Reglamento a la Ley Reguladora de Investigación Biomédica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-17 | la propia norma |
+| 2 | 2016-01-11 | Decreto Ejecutivo 39533 (2016-01-11) |

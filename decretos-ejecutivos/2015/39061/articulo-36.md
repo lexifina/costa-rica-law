@@ -1,1 +1,1 @@
-Artículo 36.—Quórum. El quórum para sesionar será de cuatro de sus miembros. Las resoluciones se tomarán por mayoría absoluta. En caso de empate el presidente tendrá voto de calidad.
+Artículo 36.— (Derogado por el artículo 3° del decreto ejecutivo N° 39533 del 11 de enero de 2016)

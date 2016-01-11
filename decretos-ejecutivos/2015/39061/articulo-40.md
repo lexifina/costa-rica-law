@@ -1,1 +1,1 @@
-Artículo 40.—De la Sede. Los Comités Ético Científicos tendrán su sede en las instalaciones de la entidad pública o privada donde se realicen investigaciones biomédicas.
+Artículo 40.— (Derogado por el artículo 3° del decreto ejecutivo N° 39533 del 11 de enero de 2016)

@@ -1,5 +1,6 @@
-Artículo 12.—Del transporte terrestre, marítimo o aéreo de material biológico.
-a) Todo transporte de material biológico e infeccioso debe cumplir con la Normativa UN3373, siguiendo todos los lineamientos de la categoría A para material biológico y categoría B para material infeccioso y la normativa que para estos efectos establece el Ministerio de Salud.
-b) El personal del laboratorio a cargo del transporte del material biológico debe contar con la Certificación IATA vigente.
+Artículo 12.—De los requisitos para el transporte terrestre, marítimo o aéreo de material biológico. Para el transporte terrestre, marítimo o aéreo de material biológico, se tendrá que cumplir con lo siguiente:
+a) Todo transporte de material biológico e infeccioso debe cumplir con la Normativa UN3373, siguiendo todos los lineamientos de la categoría A para material infeccioso y categoría B para material biológico y la normativa que para estos efectos establece el Ministerio de Salud.
+b) El personal del laboratorio a cargo del transporte del material biológico debe contar con una certificación válida, vigente y reconocida para el transporte de material biológico, como por ejemplo, la Certificación de IATA.
 c) Los laboratorios serán responsables de verificar que la agencia de transporte cumpla con los requisitos establecidos por el Comité de Expertos de Naciones Unidas para el transporte de muestras, y cualquier otra norma vinculante nacional o internacional.
 d) Los laboratorios que participen en investigación clínica son responsables de darle a la muestra todo el manejo y embalaje necesario para que llegue en buenas condiciones a su destino final.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39533 del 11 de enero de 2016)

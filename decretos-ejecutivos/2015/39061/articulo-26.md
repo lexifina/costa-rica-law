@@ -1,4 +1,4 @@
-Artículo 26.—De la autorización a los investigadores. Los CEC serán autorizados para su funcionamiento por el Conis, de acuerdo a lo establecido en el inciso b) del artículo 43 de la Ley Nº 9234, para lo cual deben presentar los siguientes requisitos:
+Artículo 26.—De la autorización a los investigadores. Los investigadores serán autorizados para realizar investigación biomédica por el Conis, de acuerdo a lo establecido en el inciso c) del artículo 43 de la Ley Nº 9234, para lo cual deben presentar los siguientes requisitos:
 1. Investigadores principales:
 a) Profesión acorde al tipo de investigación.
 b) Incorporación al colegio profesional respectivo.
@@ -12,7 +12,8 @@ i) Capacitación documentada en Buenas Prácticas Clínicas, renovada al menos c
 j) Compromiso firmado de cumplir con lo establecido en la Ley Nº 9234, el reglamento y las Buenas Prácticas Clínicas.
 k) Declaración de conflictos de interés.
 l) Compromiso firmado de guardar la confidencialidad.
-m) Compromiso firmado de reportar todos los eventos adversos serios o de importancia clínica significativa al CEC, en un periodo no mayor a 24 horas posterior a su conocimiento, así como los eventos adversos no serios. Relacionados de forma mensual y los eventos adversos no serios no relacionados en el informe trimestral.
+m) Reportar todos los eventos adversos serios al CEC en un periodo no mayor a 24 horas posterior a su conocimiento, así como los eventos adversos no serios relacionados de forma mensual y los eventos adversos no serios no relacionados en el informe trimestral.”
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39533 del 11 de enero de 2016)
 n) Los colegios profesionales en cada rama serán los encargados de validar las calidades profesionales solicitadas en este reglamento en el caso de investigadores extranjeros.
 2. Investigadores secundarios o subinvestigadores:
 a) Profesión acorde al tipo de investigación.

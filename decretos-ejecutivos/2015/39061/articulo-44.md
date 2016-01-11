@@ -33,7 +33,7 @@ cc) Declaración de conflictos de interés de todos los miembros del equipo de i
 dd) Certificado de habilitación y acreditación, si aplica, vigente del sitio de la investigación, laboratorios y demás instalaciones de la investigación.
 ee) Planes para tratamiento por lesiones y procedimiento de indemnización por discapacidad o muerte.
 ff) Compromiso del investigador principal de reportar los eventos adversos serios (EAS), los inesperados o clínicamente significativos al CEC correspondiente, en un plazo de 24 horas después de conocerlos y el seguimiento oportuno de los eventos. Asimismo, de reportar al CEC mensualmente los eventos adversos no serios relacionados y en el informe trimestral, los eventos adversos no serios no relacionados.
-gg) Compromiso del investigador principal de reportar los eventos adversos serios (EAS), los inesperados o clínicamente significativos por el uso de medicamentos, equipos o dispositivos médicos que estén registrados en el Ministerio de Salud.
+gg) (Derogado por el artículo 3° del decreto ejecutivo N° 39533 del 11 de enero de 2016)
 hh) Compromiso del investigador principal de presentar los informes periódicos y finales según se establece en el artículo 51 inciso p) de la Ley Nº 9234.
 ii) Compromiso del investigador principal de enviar al CEC un resumen mensual de los Reportes Internacionales de Seguridad (RIS/CIOMS).
 jj) Compromiso del patrocinador de cubrir los costos del tratamiento por lesiones relacionadas con el estudio.
