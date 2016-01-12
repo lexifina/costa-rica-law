@@ -1,0 +1,7 @@
+Artículo 8º—Pérdida del beneficio. El beneficio de exoneración tanto para el impuesto sobre la renta como para el impuesto general sobre las ventas se pierde, según la Ley 8591, por las siguientes razones:
+a) Cuando las personas físicas o jurídicas que después de cumplido el período de transición máximo de tres años no hayan certificado su producción orgánica;
+b) Cuando resulta improcedente otorgar una nueva certificación orgánica por incumplimiento de las condiciones establecidas.
+c) Cuando el MAG compruebe por cualquiera de los medios de prueba admitidos por el derecho, que los beneficios otorgados están siendo utilizados de forma diferente o irregular en relación con la forma en que fueron autorizados.
+En todos los supuestos anteriores el MAG es el encargado por disposición de la Ley N° 8591 y su Reglamento, de comunicar inmediatamente a la Dirección General de Tributación cuando se produzca alguna de las situaciones allí descritas.
+Cuando el MAG informe a la administración tributaria respectiva que se ha producido alguno de los supuestos anteriores, esa administración tributaria elaborará una resolución motivada en la que establecerá la pérdida del beneficio, amparada a los hechos que comunique el MAG y a las normas de la Ley 8591 y su reglamento violentadas.
+De igual forma, en el caso de los supuestos indicados en los artículos 5, 6 incisos c) y 7 de la presente resolución, cuando se pierda la condición de productor orgánico, la administración tributaria, de oficio, debe reclasificarlo como “contribuyente”.

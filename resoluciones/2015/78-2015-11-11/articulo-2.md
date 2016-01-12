@@ -1,0 +1,6 @@
+Artículo 2º—Deberes formales que deben cumplir los solicitantes.
+Para gozar del beneficio de la exoneración del impuesto sobre la renta y/o del impuesto general sobre las ventas, dispuestas en la Ley 8591, los interesados deberán inscribirse como declarantes de estos impuestos, tal como se indica en el artículo 4 de la presente resolución.
+En el caso de que algún interesado se encuentre previamente inscrito como contribuyente en el impuesto sobre la renta y/o en el impuesto general sobre las ventas y esté certificado como productor orgánico ante el Ministerio de Agricultura y Ganadería (MAG), puede optar por el cambio de categoría a “declarante” siempre y cuando mantenga vigente la certificación otorgada por el MAG, como productor orgánico.
+Si ejerciere una actividad no exenta y además se encuentra certificado como productor orgánico, deberá inscribirse como contribuyente.
+Además, debe estar al día en el cumplimiento de todos los demás deberes tributarios formales y materiales que le corresponde.
+De igual forma, por disposición del artículo 74 de la Ley Constitutiva de la Caja Costarricense de Seguro Social (CCSS), los interesados en gozar del beneficio aludido deben estar al día en el pago de sus obligaciones con esta institución, así como con otras contribuciones sociales que sean recaudadas por aquella.
