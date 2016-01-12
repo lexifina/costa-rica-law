@@ -14,3 +14,4 @@ Reglamento de la actividad de la minería artesanal y en pequeña escala para su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-21 | la propia norma |
+| 2 | 2016-01-12 | Decreto Ejecutivo 39436 (2016-01-12) |
