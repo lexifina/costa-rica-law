@@ -1,1 +1,0 @@
-Artículo 6º—El Ministerio de Seguridad Pública y el Ministerio de la Presidencia suscribirán un Convenio Marco para implementar el préstamo de los funcionarios que brindarán el servicio objeto de este Reglamento.

@@ -1,1 +1,0 @@
-Artículo 7º—El Ministerio de Seguridad Pública seleccionará un número razonable de funcionarios, que podrán estar capacitados en este tipo de labores, para desarrollar las funciones de protección a los miembros de los Supremos Poderes y Dignatarios que visiten el país. Estos funcionarios dependerán jerárquicamente de la Unidad Especial de Intervención.

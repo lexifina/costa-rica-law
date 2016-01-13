@@ -1,2 +1,0 @@
-Artículo 2º—La protección que se brindará consiste en la asignación de personal policial calificado para prevenir o evitar la comisión de hechos que pongan en riesgo la integridad física de las personas indicadas en el artículo 1º de este Reglamento y podrá ser de carácter temporal o permanente, según lo determine el estudio técnico previo.
-Esta protección será para las personas indicadas en el artículo 1º de este Reglamento y únicamente en lo concerniente a las labores de protección.
