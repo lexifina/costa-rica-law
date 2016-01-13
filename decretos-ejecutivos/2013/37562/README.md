@@ -34,3 +34,4 @@ Reglamento de Especialidades y Subespecialidades Médicas
 | 19 | 2015-11-04 | Acuerdo 0 (2015-11-04) |
 | 20 | 2015-11-25 | Acuerdo 0 (2015-11-25) |
 | 21 | 2015-12-02 | Acuerdo 0 (2015-12-02) |
+| 22 | 2016-01-13 | Acuerdo 0 (2016-01-13) |
