@@ -22,3 +22,4 @@ Reglamento Autónomo de Servicio del Ministerio de Justicia y Paz
 | 7 | 2009-03-31 | Decreto Ejecutivo 35314 (2009-03-31) |
 | 8 | 2009-09-14 | Ley 8771 |
 | 9 | 2014-04-21 | Decreto Ejecutivo 38400 (2014-04-21) |
+| 10 | 2016-01-13 | Decreto Ejecutivo 39655 (2016-01-13) |

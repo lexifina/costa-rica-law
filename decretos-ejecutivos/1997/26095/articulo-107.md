@@ -5,14 +5,16 @@ Artículo 107.—Conductas de hostigamiento psicológico y moral. El hostigamien
 4. Asignar plazos de ejecución irrazonables para las labores encomendadas;
 5. Evaluación del trabajo de manera no equitativa o de forma sesgada;
 6. Difusión de rumores o de calificativos negativos, así como generar desconfianza de sus valores morales e integridad o provocar desprestigio;
-7. Discriminación en razón de género, raza, nacionalidad, religión, filiación política, idioma u ocupación;
+7.Discriminación en razón de género, edad, raza, nacionalidad, religión, orientación sexual e identidad de género, filiación política, idioma u ocupación;
+(Así reformado el inciso anterior por el artículo 1° aparte f) del artículo 1° del decreto ejecutivo N° 39655 del 13 de enero del 2016)
 8. Intervención de los medios de comunicación utilizados por el trabajador o trabajadora, tales como teléfono, fax, correos, correos electrónicos y otros;
 9. Intervención del ámbito privado y personal del acosado o acosada;
 10. Ejercicio de mayor presión (presión indebida o arbitraria) por parte de los superiores;
 11. Evadir los reconocimientos a que pueda ser objeto;
 12. Utilización de gestos de desprecio (miradas despectivas, suspiros, encoger hombros, entre otras manifestaciones);
 13. Desvalorización sistemática del esfuerzo o éxito profesional o atribución a otros factores o a terceros;
-14. Rechazo por razones estéticas, de posición social o económica, relegando su capacidad o potencial humano;
+14. Rechazo por razones estéticas, de orientación sexual, identidad de género, posición social o económica, relegando su capacidad o potencial humano.
+(Así reformado el inciso anterior por el artículo 1° aparte f) del artículo 1° del decreto ejecutivo N° 39655 del 13 de enero del 2016)
 15. Agresión verbal o de cualquier otro tipo;
 16. Cualquier otro acto que atente con las condiciones de trabajo y la dignidad del trabajador.
 (Así adicionado por el artículo 1° del decreto ejecutivo N° 34972 del 4 de noviembre de 2008)

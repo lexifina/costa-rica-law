@@ -1,6 +1,6 @@
 CAPITULO V
 De las prohibiciones y restricciones de los servidores
-Artículo 9°—Además de lo dispuesto en los artículos 72 del Código de Trabajo: 40 del Estatuto de Servicio Civil. 51 de su Reglamento, Ley de h Administración Financiera de la República, otras normas del presente Reglamento y demás normativa que regule la materia, queda absolutamente prohibido a los servidores:
+Artículo 9°—Además de lo dispuesto en los artículos 72 del Código de Trabajo, 40 del Estatuto de Servicio Civil, 51 de su Reglamento, Ley de la Administración Financiera de la República, otras normas del presente Reglamento y demás normativa que regule la materia, queda absolutamente prohibido a los servidores:
 1 Ocupar tiempo dentro de las horas de trabajo para asuntos ajenos a las labores asignadas.
 2 Atender visitas o hacer uso del teléfono para asuntos personales en horas de trabajo, salvo en casos de marcada excepción.
 3 Recibir dádivas o gratificaciones, de cualquier naturaleza, por servicios prestados como trabajadores del Ministerio o que emanen de su condición de tales.
@@ -33,7 +33,10 @@ Artículo 9°—Además de lo dispuesto en los artículos 72 del Código de Trab
 27 Conforme lo establece la Ley 7501 del 8 de junio de 1995, se prohibe fumar en las oficinas y lugares que estén bajo techo y sean de uso colectivo.
 28 Ejercer presión, hostigar, acosar, tomar represalia contra servidores o subalternos para obtener provecho personal, en ocasiones relacionadas con credos políticos, religiosos, sexuales, económicos, y de cualquier otra índole.
 29 Cualesquiera otro proceder contrario a la moral y buen nombre que necesariamente debe poseer todo servidor en este Ministerio.
-30 Conforme lo establece la Ley contra el Hostigamiento Sexual en el empleo y la docencia número 7476. publicado en la Gacela No. 45 del 3 de marzo de 1995. se prohibe cualquier acción de acoso u hostigamiento sexual tanto a nivel vertical como horizontal.
+30 Conforme lo establece la Ley contra el Hostigamiento Sexual en el empleo y la docencia número 7476, publicado en La Gaceta N° 45 del 3 de marzo de 1995, se prohíbe cualquier acción de acoso u hostigamiento sexual en razón de género u orientación sexual, tanto a nivel vertical como horizontal.
+(Así reformado el inciso anterior por el artículo 1° aparte b) del decreto ejecutivo N° 39655 del 13 de enero del 2016)
 31 Establecer un trato preferencial a los privados de libertad, sus organizaciones o parientes de ellos.
 32. Propiciar o ejecutar cualquier tipo de acción o disposición que, directa o indirectamente promueva la discriminación o impida a las personas con discapacidad tener acceso a los programas y servicios de este Ministerio.
 (Decreto Ejecutivo No. 28213 de 09 de setiembre de 1999, adicionó inciso 32 de modo expreso)
+33 Se prohíbe incurrir en prácticas discriminatorias hacia la población privada de libertad y los empleados del Ministerio de Justicia y Paz por razones de género u orientación sexual. En caso de tener denuncia de manera personal o por interpósita persona de que otro servidor incurrió en estas prácticas, deberá informar a su superior inmediato.
+(Así adicionado el inciso anterior por el artículo 1° aparte b) del decreto ejecutivo N° 39655 del 13 de enero del 2016)
