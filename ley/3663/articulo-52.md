@@ -1,6 +1,3 @@
-Artículo 52.- Las empresas consultoras y constructoras nacionales y
-extranjeras, que desarrollan actividades en el país dentro de los campos de
-ingeniería y de arquitectura, deberán estar inscritas en el Colegio
-Federado y cumplir con los requisitos y pago de derechos de inscripción y
-asistencia que establezca el Reglamento de esta ley en el aspecto del
-ejercicio profesional.
+Artículo 52.—Las empresas nacionales y extranjeras que se dediquen a la construcción y a la consultoría en el país, en las áreas de la ingeniería y de la arquitectura, deberán estar inscritas en el Registro Nacional y en el Colegio Federado de Ingenieros y Arquitectos de Costa Rica. Asimismo, deberán cumplir los requisitos y los pagos de derechos de inscripción y asistencia que se fijen en esta ley y el reglamento interior general relacionado con el ejercicio profesional.
+Para esos efectos, se establece que por concepto de derecho de asistencia el límite máximo a cobrar será del 1.5 por mil sobre el valor de la obra, y por derecho de inscripción o cupón de registro el límite máximo a cobrar será de quince céntimos por cada mil colones del monto del valor tasado.
+(Así reformado por el artículo 1° de la ley N° 9333 del 11 de noviembre del 2015)

@@ -1,0 +1,1 @@
+TRANSITORIO I.- La entrada en vigencia de la reforma contemplada en esta ley, al artículo 60 de la Ley N° 3663, Ley Orgánica del Colegio Federado de Ingenieros y Arquitectos de Costa Rica, entrará en vigencia diez días después de publicado el reglamento correspondiente que indica la norma.
