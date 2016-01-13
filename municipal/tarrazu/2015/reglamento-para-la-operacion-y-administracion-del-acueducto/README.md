@@ -15,3 +15,4 @@ Reglamento para la Operación y Administración del Acueducto de la Municipalida
 | --- | --- | --- |
 | 1 | 2015-05-21 | la propia norma |
 | 2 | 2015-06-10 | Reglamento municipal 267 (2015-06-10) |
+| 3 | 2016-01-13 | Reglamento municipal 298 (2016-01-13) |
