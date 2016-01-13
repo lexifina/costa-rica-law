@@ -1,0 +1,1 @@
+Artículo 3º—Se deroga el Decreto Ejecutivo Nº 20799-TSS, publicado en La Gaceta, número 212 del 6 de noviembre de 1991, donde se declara el día 18 de setiembre de cada año, “Día Nacional de la Salud Ocupacional”.
