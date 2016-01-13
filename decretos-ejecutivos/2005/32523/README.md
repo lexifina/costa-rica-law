@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Unidad Especial de Intervenci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-07-29 | la propia norma |
+| 2 | 2016-01-13 | Decreto Ejecutivo 39449 (2016-01-13) |
