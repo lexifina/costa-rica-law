@@ -1,0 +1,3 @@
+TRANSITORIO III.- Para cumplir con el requisito establecido en la reforma contemplada en esta ley, del artículo 59 de la Ley N° 3663, Ley Orgánica del Colegio Federado de Ingenieros y Arquitectos de Costa Rica, los procesos disciplinarios que se encuentran en proceso seguirán bajo las condiciones y los plazos en que se inició el conocimiento de la causa; asimismo, seguirán siendo casos de denuncias nuevos que se reciban a partir de la publicación de esta ley en el Diario Oficial La Gaceta, se les aplicará el nuevo plazo de prescripción de cinco años para la acción disciplinaria, indicado en el artículo 59.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.—San José, a los once días del mes de noviembre del dos mil quince.
