@@ -1,0 +1,12 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+CONSEJO UNIVERSITARIO
+El Consejo Universitario de la Universidad Técnica Nacional informa de la aprobación de la siguiente normativa:
+1. Mediante acuerdo 07-17-2015 de la sesión ordinaria Nº 17- 2015, celebrada el jueves 13 de agosto del 2015, acta Nº 17- 2015, se acuerda aprobar la propuesta del Código de Deberes Éticos y Profesionales para Funcionarios de la UTN.
+2. Mediante acuerdo 09-25-2015 de la sesión ordinaria Nº 25- 2015, celebrada el jueves 12 de noviembre del 2015, acta Nº 25-2015, se acuerda aprobar la reforma al artículo N° 5 del Reglamento de Becas y Beneficios Estudiantiles.
+(Nota de Sinalevi: El presente texto se extrajo del sitio web de la Universidad Técnica Nacional, por lo que se transcribe a continuación:)
+Artículo 5 —Diferentes tipos de beca y beneficios estudiantiles.Los tipos de beca y beneficios estudiantiles que otorga el sistema a través del presente Reglamento son:
+1- Becas socioeconómicas: Consisten en la exoneración total o parcial en el pago de aranceles referidos a costos de créditos, costos de créditos por suficiencia y por tutorías, así como otros aranceles definidos por el Consejo Universitario distintos a los gastos fijos, además del otorgamiento de ayudas económicas o cualquier otro beneficio estudiantil complementario o adicional a la beca según su categoría, con el fin de favorecer las posibilidades de estudio a personas que por su condición socioeconómica tengan dificultades para hacerlo.
+2- Becas de estímulo: Consisten en la exoneración total o parcial en el pago de aranceles referidos a costos de créditos, costos de créditos por suficiencia y por tutorías, así como otros aranceles definidos por el Consejo Universitario distintos a los gastos fijos, otorgadas como estímulo a la excelencia académica, así como a la participación de los estudiantes en diversas actividades y grupos de interés institucional.
+3- Beneficio de Residencias Estudiantiles: Consiste en el alojamiento que se brinda al estudiante, sea de forma exonerada o por un bajo costo, en instalaciones de la universidad.
+Tanto el Código de Deberes Éticos y Profesionales para los Funcionarios de la UTN, así como el Reglamento de Becas y Beneficios Estudiantiles en su versión completa y actualizada se encuentran en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección “Normativa Universitaria”.
+Rige a partir de su publicación.
