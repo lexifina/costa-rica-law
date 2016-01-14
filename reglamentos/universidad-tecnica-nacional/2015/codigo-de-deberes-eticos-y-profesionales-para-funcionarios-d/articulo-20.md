@@ -1,0 +1,2 @@
+Artículo 20.
+El Código de Deberes Éticos y Profesionales de los Funcionarios de la Universidad Técnica Nacional consagra la recta aplicación del debido proceso en su calidad de principio ético y jurídico procesal, según el cual, todo funcionario tiene derecho a una gama de garantías básicas, las cuales tienden a asegurar el resultado justo y equitativo dentro de cada proceso efectuado, y a permitir a las personas la oportunidad de ser escuchadas y así validar sus pretensiones frente a cualquier autoridad universitaria o administrativa.

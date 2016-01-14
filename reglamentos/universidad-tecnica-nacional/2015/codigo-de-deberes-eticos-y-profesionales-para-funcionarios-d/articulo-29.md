@@ -1,0 +1,2 @@
+Artículo 29.
+Las buenas prácticas éticas institucionales buscan fortalecer toda la vida universitaria. En virtud de lo anterior, se desarrollarán procesos que faciliten la asimilación de nuevos conocimientos, con el fin de lograr con eficiencia los objetivos educativos previstos y también otros aprendizajes de alto valor existencial que se orientan, entre otras metas, a eliminar la deserción estudiantil, profundizar en la calidad de los aprendizajes y mejorar la atención a toda la comunidad, que requiera servicios de la Universidad Técnica Nacional.

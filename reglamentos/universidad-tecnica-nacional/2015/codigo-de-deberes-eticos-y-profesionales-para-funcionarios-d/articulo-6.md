@@ -1,0 +1,2 @@
+Artículo 6.
+En las circunstancias en las que se presenten dudas razonables relacionadas con asuntos de naturaleza ética, el funcionario de la Universidad Técnica Nacional deberá seguir el debido proceso hasta agotar la vía administrativa. El Consejo Universitario o a la entidad delegada por este ente superior puede brindar criterios de análisis ético para buscar soluciones a los potenciales conflictos. Si las situaciones trascienden la competencia institucional corresponde acudir a la vía judicial, tal como lo contempla el ordenamiento jurídico costarricense.

@@ -1,0 +1,2 @@
+Artículo 27.
+Este Código de Deberes Éticos y Profesionales de los Funcionarios de la Universidad Técnica Nacional le da preeminencia al bien común, éste es un elemento supremo de las buenas prácticas éticas institucionales; puesto que el bienestar general considera el conjunto de condiciones de la vida personal y social con las cuales los funcionarios pueden lograr, con mayor plenitud, su propio desarrollo integral.

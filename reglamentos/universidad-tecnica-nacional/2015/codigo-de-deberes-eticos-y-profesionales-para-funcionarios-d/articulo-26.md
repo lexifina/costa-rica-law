@@ -1,0 +1,2 @@
+Artículo 26.
+El principio de autonomía otorga una importancia capital al desarrollo de las personas que laboran en la Universidad Técnica Nacional, sin duda, el carácter autónomo de la personalidad resguarda las libertades fundamentales y derechos irrenunciables del funcionario, que a su vez debe ser responsable de sus actos y proactivo, así como de comportarse de conformidad al principio de legalidad, siempre en procura del bien común.

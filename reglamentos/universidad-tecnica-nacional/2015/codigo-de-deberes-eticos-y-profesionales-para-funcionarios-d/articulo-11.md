@@ -1,0 +1,13 @@
+Capítulo III
+Deberes fundamentales del personal universitario
+Artículo 11.
+Entre los deberes fundamentales del personal universitario, sin detrimento de los que puedan designar otras dependencias de la Universidad, se consignan los siguientes:
+a) Los funcionarios de la Universidad Técnica Nacional guardarán confidencialidad, oral, escrita así como a través de cualquier recurso comunicativo, de todas las acciones, omisiones e informes que por su naturaleza sean compatibles con la figura ética del secreto profesional. En este sentido, de conformidad con el ordenamiento jurídico costarricense y la normativa universitaria, se hará un uso adecuado de todos los medios de comunicación, esto incluye redes sociales y todo tipo de recursos electrónicos.
+b) Los funcionarios universitarios se abstendrán de participar en los asuntos relacionados con la toma de acuerdos que impacten a la institución, mientras tengan algún tipo de interés personal diferente al de su esfera laboral o estén vinculados por relaciones de parentesco o afinidad.
+c) Los funcionarios de la Universidad Técnica Nacional tienen el deber ético de respetar a todas las personas, sin distinción, por tanto, no deben incurrir en ninguna praxis de acoso, de cualquier naturaleza.
+d) Los procesos electorales internos deberán gestionarse con solvencia ética y jurídica, de conformidad con la regulación vigente del Tribunal Electoral interno y en pleno apego al ordenamiento jurídico costarricense.
+e) Todos los funcionarios tienen el deber ético de velar por su educación formal y no formal, de modo permanente, de tal manera que puedan desempeñar sus labores con altos estándares de excelencia, de conformidad con lo que se espera de un trabajador universitario.
+f) Los funcionarios universitarios no se valdrán de su posición para obtener ventajas personales ilícitas, directas o indirectas, materiales e inmateriales, para sí o para personas o entidades vinculadas a ellos.
+Se considerarán personas o entidades vinculadas a los funcionarios de la UTN los siguientes:
+1. El cónyuge del funcionario o la persona con análoga relación de afectividad y los ascendientes, descendientes y familiares hasta el tercer grado, por consanguinidad o afinidad.
+2. Las sociedades anónimas o asociaciones en las que el funcionario de la Universidad Técnica Nacional, o cualquiera de las personas o entidades a él vinculadas, ejerza un cargo de administración o dirección o perciba de esta recursos por cualquier causa. Además, cuando ejerza, directa o indirectamente, por sí o por otra persona, una influencia decisiva en las decisiones económicas y operativas de dichas sociedades.

@@ -1,0 +1,2 @@
+Artículo 7.
+El fenómeno de la ética, en sus fundamentos conceptuales, se asume en este Código como una vertiente de la Filosofía que se ocupa del estudio racional de la moral y sus relaciones con la virtud, el deber, la felicidad, la convivencia, la ley, el buen vivir en clave interpersonal y con la naturaleza; por tanto, la ética estudia los diversos fenómenos morales, amparada en la normativa nacional e institucional vigente. Además, se ocupa de elementos teóricos y operativos para vislumbrar cómo se ha de aplicar posteriormente en el ámbito individual y social.

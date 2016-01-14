@@ -1,0 +1,4 @@
+Artículo 13.
+Los funcionarios de la Universidad Técnica Nacional no podrán recibir ni aceptar ninguna clase de regalía u obsequio que proceda de personas físicas o jurídicas, que tengan contratos con la Universidad, algún tipo de prestación de servicios o sean proveedoras de los mismos.
+En todos los casos, sin excepción, las sanciones serán proporcionales, justas y razonables, atendiendo a la naturaleza, género, especie y gravedad de la falta cometida y teniendo en cuenta el contexto en las que tuvo lugar. Por tal razón, respetando la irretroactividad de la ley, se tendrán en cuenta los antecedentes de las personas involucradas y su desempeño profesional.
+Los procedimientos disciplinarios se llevarán a cabo de acuerdo con lo dispuesto en toda la normativa universitaria y de conformidad con el ordenamiento jurídico costarricense.
