@@ -1,0 +1,1 @@
+III.—Dejar sin efecto todo anterior requerimiento de información financiero contable que hayan sido incluidos en resoluciones previas a la presente, excepto la RIE-013-2014 y RIE-055-2015 y tomar como base única y exclusiva la presente estructura.

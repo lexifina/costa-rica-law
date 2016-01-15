@@ -1,0 +1,1 @@
+IV.—Cuando se requiera para el ejercicio de la regulación del servicio público de suministro de energía eléctrica, la IE solicitará información adicional o complementaria a la señalada en la presente resolución, la cual no deberá entenderse como información regulatoria a remitir de manera periódica salvo que así sea indicado.
