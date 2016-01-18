@@ -1,1 +1,0 @@
-Artículo 7º—Al ingresar al Depósito, todo vehículo decomisado deberá ser debidamente inventariado, con descripción minuciosa de sus características y el estado general en que se encuentra, para lo cual se utilizará la fórmula correspondiente; igual procedimiento deberá seguirse cuando lo que se decomise sean partes de vehículos o vehículos quemados.

@@ -1,2 +1,0 @@
-Artículo 10.—Salvo que el vehículo ingrese sellado, los objetos de valor hallados en su interior no podrán ingresar al Depósito de Vehículos, debiendo el investigador trasladarlos al Depósito de Objetos Decomisados mediante el procedimiento correspondiente.
-Las autoridades judiciales deberán proceder a la mayor brevedad, con la apertura de los vehículos que se encuentren en el Depósito y que tengan pendientes actos procesales.

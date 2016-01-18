@@ -1,1 +1,0 @@
-Artículo 19.—En los casos que la autoridad judicial ordene la devolución del motor o refacciones instaladas en un vehículo, el interesado deberá presentarse con un mecánico para su asistencia. Cualquier labor se realizará dentro de las instalaciones del Depósito, conforme a la cita asignada.

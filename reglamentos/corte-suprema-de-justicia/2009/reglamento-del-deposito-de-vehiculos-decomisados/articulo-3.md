@@ -1,1 +1,0 @@
-Artículo 3º—El Depósito de Vehículos Decomisados está adscrito al Departamento de Seguridad, sin perjuicio de que la Administración de la Ciudad Judicial de San Joaquín de Flores de Heredia colabore con aspectos logísticos, de recurso humano, equipo, materiales, tecnología y material.

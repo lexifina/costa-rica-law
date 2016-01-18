@@ -1,1 +1,0 @@
-Artículo 24.—De no acreditarse el interesado con justo título para retirar algún vehículo decomisado, o de partes decomisadas de algún vehículo ingresados en el Depósito, se procederá conforme a lo que se dispone en la ley número N° 6106.

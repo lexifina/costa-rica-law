@@ -1,1 +1,0 @@
-Artículo 21.—Si el vehículo hallado, presenta alteraciones en el número de chasis, VIN, motor, marco, podrá ser enviado al Depósito de Vehículos Decomisados y a la espera de que el Fiscal encargado de la investigación ordene a la brevedad, la práctica de la pericia físico química correspondiente.

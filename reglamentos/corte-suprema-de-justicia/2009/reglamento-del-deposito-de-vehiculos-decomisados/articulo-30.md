@@ -1,1 +1,0 @@
-Artículo 30.—El Juez o la autoridad judicial competente, deben informar al Encargado del Depósito las medidas que tomen sobre los vehículos decomisados a su orden y que permanezcan en custodio de esa Dependencia.

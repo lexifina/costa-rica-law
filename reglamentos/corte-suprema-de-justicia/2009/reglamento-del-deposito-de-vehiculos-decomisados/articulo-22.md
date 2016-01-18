@@ -1,2 +1,0 @@
-Artículo 22.—Realizada la pericia, el Encargado del Depósito deberá informarlo de manera inmediata a la autoridad que envió el vehículo, para que si resulta procedente disponga su depósito judicial.
-Cuando no exista ningún impedimento para realizar el depósito, la autoridad que remitió el vehículo deberá realizarlo en un plazo no mayor a quince días y caso de no hacerlo podrá resultar solidariamente responsable por los daños que se cause al automotor, según lo dispuesto en la Ley General de la Administración Pública.

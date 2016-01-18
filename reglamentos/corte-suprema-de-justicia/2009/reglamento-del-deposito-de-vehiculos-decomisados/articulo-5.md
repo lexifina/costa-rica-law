@@ -1,1 +1,0 @@
-Artículo 5º—Toda persona que ingrese al Depósito, para tratar de identificar un vehículo de su propiedad, lo hará por un período máximo de sesenta minutos. Solamente ingresará una persona por vehículo, sea el denunciante o el dueño registral, estableciéndose las medidas de seguridad correspondientes para su debido control.

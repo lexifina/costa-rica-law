@@ -1,1 +1,0 @@
-Artículo 27.—No se permitirá el ingreso al Depósito de particulares portando armas de fuego, los visitantes deberán entregarlas al guarda de seguridad para que éste las remita al oficial en la casetilla de la entrada, quien las custodiará hasta que los particulares abandonen la Ciudad Judicial de San Joaquín de Flores.

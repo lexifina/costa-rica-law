@@ -1,1 +1,0 @@
-Artículo 9º—En caso de cambio de competencia de la autoridad judicial que dispone la remisión del vehículo, el despacho que tenía a la orden el vehículo, inmediatamente deberá comunicarlo al Depósito de Vehículos Decomisados, con el fin de conservar la cadena de custodia.
