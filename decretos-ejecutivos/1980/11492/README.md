@@ -16,3 +16,4 @@ Reglamento sobre Higiene Industrial
 | 2 | 1980-05-28 | SINALEVI (sin norma nombrada) |
 | 3 | 2000-06-15 | Decreto Ejecutivo 28718 (2000-06-15) |
 | 4 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
+| 5 | 2016-01-18 | Decreto Ejecutivo 39472 (2016-01-18) |
