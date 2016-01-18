@@ -11,6 +11,5 @@ Considerando:
 DECRETAN:
 Reglamento para el Funcionamiento de Establecimientos
 o Centros de Tatuajes y Perforaciones Corporales
-Artículo 1º—Objetivo y ámbito de aplicación. El presente Reglamento rige las condiciones y requisitos mínimos que deben cumplir los establecimientos donde se realicen tatuajes por medio de procedimientos invasivos y/o perforaciones corporales, incluyendo los delineados en forma permanente que se realizan en las salas de estética, con el objetivo de lograr un servicio seguro y de calidad.
-Para su instalación y operación estos establecimientos deben cumplir con las especificaciones establecidas en este Reglamento, con el fin de obtener el permiso sanitario de funcionamiento extendido por el Ministerio de Salud, el cual tendrá una vigencia de cinco años. Estos establecimientos estarán clasificados en el Grupo B, moderado riesgo, según el “Reglamento para el Otorgamiento de Permisos de Funcionamiento del Ministerio de Salud.
-(Así reformado por el artículo 72 del decreto ejecutivo de decreto ejecutivo N°34728 del 28 de mayo de 2008).
+Artículo 1º—Objetivo y ámbito de aplicación. El presente reglamento rige las condiciones y requisitos mínimos que deben cumplir los establecimientos donde se realicen tatuajes por medio de procedimientos invasivos y/o perforaciones corporales, incluyendo los delineados en forma permanente que se realizan en las salas de estética, con el objetivo de lograr un servicio seguro y de calidad.
+(Así reformado por el artículo 51 punto 3) del Reglamento General para Autorizaciones y Permisos Sanitarios de Funcionamiento Otorgados por el Ministerio de Salud, aprobado medinate dcereto ejecutivo N° 39472 del 18 de enero de 2016)

@@ -16,3 +16,4 @@ Reglamento para el Funcionamiento de Establecimientos o Centros de Tatuajes y Pe
 | 1 | 2005-01-17 | la propia norma |
 | 2 | 2006-06-30 | Decreto Ejecutivo 33240 (2006-06-30) |
 | 3 | 2008-05-28 | Decreto Ejecutivo 34728 (2008-05-28) |
+| 4 | 2016-01-18 | Decreto Ejecutivo 39472 (2016-01-18) |
