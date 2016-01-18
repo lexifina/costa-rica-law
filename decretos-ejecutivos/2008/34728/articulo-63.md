@@ -1,3 +1,0 @@
-Artículo 63.—Modificaciones a los reglamentos que hagan referencia al permiso de ubicación otorgado por el Ministerio de Salud.
-En lo sucesivo, en todo aquel reglamento en el que se señale el trámite de permiso de ubicación, como requisito previo al otorgamiento de PSF, deberá interpretarse que el mismo corresponde al trámite de Resolución Municipal, señalado en el presente decreto. En cuanto a los permisos de ubicación por parte del Ministerio de Salud, establecidos en reglamentos específicos referidos a la construcción, le corresponderá privativamente a la autoridad de salud el otorgarlo.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35145 del 23 de enero de 2009)

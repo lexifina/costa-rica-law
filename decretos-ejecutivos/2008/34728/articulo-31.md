@@ -1,2 +1,0 @@
-Artículo 31º.- Vencimiento del Permiso Provisional:
-Vencido el plazo y verificado el cumplimiento del cronograma de ejecución de actividades, se procederá a extender el P.S.F. definitivo por el plazo establecido para la actividad en cuestión. Caso contrario, no podrá prorrogarse nuevamente el permiso, por lo que procederá a la clausura del establecimiento según lo establece la Ley General de Salud.

@@ -1,2 +1,0 @@
-Artículo 11º.- Pago del servicio:
-Para el correspondiente trámite de otorgamiento o renovación del P.S.F la persona interesada deberá cumplir con el pago del servicio que requiere el Ministerio, de acuerdo a lo indicado en el Reglamento de Registro Sanitario de Establecimientos Regulados por el Ministerio de Salud y sus reformas (Decreto Ejecutivo N° 32161-S), y de conformidad con la clasificación de riesgo designada en los Anexos N° 1 y 3 de este reglamento.

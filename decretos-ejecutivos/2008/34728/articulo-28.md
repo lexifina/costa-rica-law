@@ -1,2 +1,0 @@
-Artículo 28.—Revisión y plazo de resolución. La Dirección del A.R.S. analizará los documentos mencionados en el artículo anterior para su aprobación, considerando la evaluación realizada por el personal técnico o profesional a su cargo. Los resultados de esta evaluación deben estar claramente detallados en un informe técnico y la resolución deberá emitirse en el plazo de veintidós días naturales contado a partir de la presentación de la solicitud.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35145 del 23 de enero de 2009)

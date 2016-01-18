@@ -1,2 +1,0 @@
-Artículo 14 bis.—Por medio del presente decreto se le otorga Permiso Sanitario de Funcionamiento, a todos los establecimientos que se encuentren dentro del Grupo C, con solo la presentación de los documentos indicados en el artículo 9º del presente Reglamento, sin necesidad de la entrega del certificado correspondiente.
-(Así adicionado por el artículo 1° del decreto ejecutivo N° 36985 del 13 de enero de 2012)

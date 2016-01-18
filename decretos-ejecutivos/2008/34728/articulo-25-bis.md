@@ -1,3 +1,0 @@
-Artículo 25 bis.- Verificación en el Registro Nacional de Infractores:
-Las autoridades del A.R.S. verificarán en el Registro Nacional de Infractores, que el interesado se encuentra al día en el pago de las multas por infracción a la Ley No. 9028 del 22 de marzo del 2012 “Ley General de Control de Tabaco y sus Efectos Nocivos a la Salud”; para lo cual deberá dejar constancia en el expediente administrativo del establecimiento.
-(Así adicionado por el inciso c) del artículo 61 del Reglamento a la Ley General de Control de Tabaco y sus Efectos Nocivos en la Salud, aprobado mediante decreto ejecutivo N° 37185 de 26 de junio de 2012)

@@ -1,3 +1,0 @@
-Artículo 59º.- Emisión del Certificado:
-Las Direcciones de Áreas Rectoras de Salud del Ministerio revisarán la información suministrada en la solicitud del Permiso Sanitario de Funcionamiento y en caso de cumplir con los requisitos señalados en este Reglamento, procederán a emitir el certificado respectivo en los plazos establecidos en el presente Decreto, según corresponda. Para los establecimientos “Grupo A”, se deberá realizar una inspección previa al otorgamiento del Permiso Sanitario de Funcionamiento, ya sea por primera vez o una renovación, según lo establecido en el procedimiento para tal fin.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37153 del 16 de abril del 2012)

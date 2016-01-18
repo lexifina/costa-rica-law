@@ -1,3 +1,0 @@
-Artículo 6º.- Tabla de Clasificación:
-Para efectos del artículo anterior, el Ministerio de Salud establece en el Anexo 1 del presente Reglamento, la Tabla de Clasificación de Actividades o Establecimientos, la cual utiliza como referencia la Clasificación Internacional Industrial Uniforme (CIIU-Revisión 4). Esta incluye la clasificación por nivel de riesgo sanitario y ambiental de las actividades comerciales, industriales, de servicios y de establecimientos de salud y afines, teniendo como objetivo fortalecer los procesos de ejecución, desarrollo, evaluación y control de las actividades que requieren PSF.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39251 del 2 de junio del 2015)

@@ -1,2 +1,0 @@
-Artículo 37º.- Cambios no sustanciales:
-En los casos donde la modificación no varía sustancialmente las condiciones originales que sirvieron de sustento para el otorgamiento del P.S.F. y se mantienen las características estructurales, sanitarias y ambientales, la autoridad de salud del ARS podrá mantener el P.S.F., y únicamente le corresponderá registrar la modificación como aprobada mediante una resolución, que debe quedar debidamente archivado en el expediente del Ministerio.

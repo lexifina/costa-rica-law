@@ -1,5 +1,0 @@
-Artículo 17.—Establecimientos con varias actividades:
-En el caso de establecimientos pertenecientes a una misma persona física o jurídica, en una misma edificación, donde se llevan a cabo varias actividades principales, el Ministerio otorgará un certificado de P.S.F. para cada una de esas actividades.
-En el caso de establecimientos pertenecientes a una misma persona física o jurídica, en una misma edificación en que además realicen actividades accesorias a la actividad principal, el Ministerio otorgará un único certificado de P.S.F, el cual tendrá la vigencia que señale la actividad principal, o sea la de mayor riesgo sanitario o ambiental, a excepción de las actividades o establecimientos señalados en el Transitorio I del presente Reglamento, correspondiéndole a la autoridad de salud aplicar la norma específica correspondiente.
-Tratándose de establecimientos y actividades relacionadas con servicios de salud, se otorgará un certificado de P.S.F. según se indica en el Transitorio I del presente Reglamento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35145 del 23 de enero de 2009)

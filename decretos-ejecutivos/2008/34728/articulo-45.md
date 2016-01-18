@@ -1,2 +1,0 @@
-Artículo 45º.- Autorización sanitaria para actividades o eventos temporales en establecimientos:
-Aquellos establecimientos donde se efectúe en forma temporal eventos o actividades que impliquen la concentración de personas y que no están contemplados dentro del P.S.F., deberán tener vigente el permiso que aprueba la actividad que desarrollan de forma permanente y solicitar al Ministerio por aparte la correspondiente autorización sanitaria para llevar a cabo el evento o actividad temporal. Para ello se cumplirá con lo que establezcan los reglamentos específicos.

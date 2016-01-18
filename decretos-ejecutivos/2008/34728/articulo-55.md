@@ -1,2 +1,0 @@
-Artículo 55°-. Listado de miembros activos de los Colegios Profesionales.
-Todos los colegios profesionales en ciencias de la salud y de profesionales afines a la salud deberán entregar trimestralmente o cuando lo requiera el Ministerio el listado de los agremiados que son miembros activos, salvo que los listados actualizados se encuentren publicados en la página electrónica oficial del Colegio Profesional.

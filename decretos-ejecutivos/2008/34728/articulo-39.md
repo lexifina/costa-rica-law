@@ -1,4 +1,0 @@
-Sección III
-Del procedimiento para solicitar el cambio de calidades de un permiso de funcionamiento otorgado por el Ministerio
-Artículo 39º.- Cambio de calidades de empresa permisionaria:
-En aquellos casos en que una persona jurídica permisionaria, por distintas razones cambie sus calidades tales como la razón social, el número de cédula jurídica, el representante legal; deberá presentar ante el Ministerio, el documento en el que conste el cambio realizado y paralelamente la solicitud para la corrección en los archivos del Ministerio y la indicación en un nuevo certificado de P.S.F para lo cual deberá adjuntar el certificado original para la anulación correspondiente por parte de la autoridad de salud Para estos efectos se deberá adjuntar a la solicitud fotocopia de la cédula jurídica y personería jurídica notarial o registral vigente.
