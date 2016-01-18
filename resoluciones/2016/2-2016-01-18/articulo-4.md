@@ -1,0 +1,1 @@
+Artículo 4º—Contra el valor ajustado cabe el recurso de revocatoria en el plazo de 30 días que corre a partir del pago del impuesto. Si el pago ya fue realizado, el interesado deberá presentarse a la Administración a solicitar la devolución correspondiente. En este caso, el plazo para interponer el recurso corre a partir del día siguiente a la presentación de dicha solicitud.
