@@ -14,3 +14,4 @@ Reglamento de Gestión de Cobro Administrativo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-10-24 | la propia norma |
+| 2 | 2016-01-18 | Reglamento municipal 480 (2016-01-18) |
