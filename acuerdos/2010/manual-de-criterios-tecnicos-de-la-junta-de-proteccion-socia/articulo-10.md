@@ -116,10 +116,16 @@ Dentro del equipo se incluye la compra de vehículo, el cuál solamente se podr�
 2.11. Pago de salarios y contrataciones por servicios profesionales: AGECO podrá utilizar hasta un 40% de los recursos girados en pago de salarios y contrataciones por servicios profesionales del personal de atención directa, así como los gastos en los campos legal y contable, en estos últimos casos, cuando dicha erogación sea necesaria para obtener apoyo económico de instituciones pública
 3. Sector: Clínicas de Cuidados Paliativos (artículos 8 y 13)
 3.1. Alimentación: Alimentos, bebidas y suplementos alimentarios para las personas que se benefician del programa.
+Los suplementos alimenticios deben ser prescritos por el médico. (Ver formulario de control en anexo Nº 9)
+(Así adicionado el párrafo anterior en sesión N° 02 del 18 de enero de 2016)
 3.2. Salud:
 3.2.1. Sustancias que se usen para curar y/o modificar cualquier función fisiológica de las personas beneficiarias directas del programa.
+Los medicamentos deben ser prescritos por el médico. (ver formulario de control en anexo Nº 15)
+(Así adicionado el párrafo anterior en sesión N° 02 del 18 de enero de 2016)
 3.2.2. Pago de exámenes u honorarios profesionales que se requieran y que por motivo de urgencia o inexistencia no puedan ser adquiridos a través de la Caja Costarricense de Seguro Social.
 3.2.3. Compra y reparación de equipo ortopédico para uso en la Clínica o bien para préstamo a los pacientes tales como bastones, andaderas, sillas para baño, cojín de aire, sillas de ruedas, camas ortopédicas y colchones. Compra y reparación de equipos de soporte para uso en la Clínica o bien para préstamo a los pacientes tales como concentradores de oxígeno y aspiradores, manómetro, nebulizador, bidé, orinal, riñón.
+El préstamo de equipo ortopédico y equipo médico debe sustentarse en la recomendación del profesional competente. (ver formulario de control en anexo Nº 8).
+(Así adicionado el párrafo anterior en sesión N° 02 del 18 de enero de 2016)
 3.3. Planta Física:
 3.3.1. Mantenimiento: en inmuebles propiedad de la organización y cedidos por 99 años, de acuerdo con lo establecido en el convenio anual.
 3.3.2. Seguridad del inmueble
