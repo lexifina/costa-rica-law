@@ -14,3 +14,4 @@ Reglamento de Centros de Recuperación de Residuos Valorizables
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-05-05 | la propia norma |
+| 2 | 2016-01-18 | Decreto Ejecutivo 39472 (2016-01-18) |
