@@ -1,0 +1,9 @@
+CIRCULAR N° 16-2016
+(Esta circular fue reiterada mediante sesión N° 90-16 del 29 de setiembre del 2016, publicada en el Boletín Judicial N° 207 del 28 de octubre del 2016 mediante circular N° 174-2016 del 7 de octubre del 2016. Posteriormente se reitera nuevamente la siguiente circular mediante sesión N° 88-16 del 22 de septiembre del 2016, publicada en el Boletín Judicial N° 231 del 1° de diciembre del 2016 mediante circular N° 195-2016 del 15 de noviembre del 2016. Subsiguientemente se vuelve a reiterar la presente norma mediante sesión N° 101-16 del 3 de noviembre de 2016, publicada en el Boletín Judicial N° 7 del 10 de enero de 2017, mediante circular N° 214 del 6 de diciembre de 2016.)
+ASUNTO: Obligación de mantener debidamente actualizada la información en el Sistema de Obligados Alimentarios y Penal (SOAP).
+A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
+QUE CONOCEN MATERIA DE PENSIONES ALIMENTARIAS
+Y DESPACHOS QUE EMITEN IMPEDIMENTOS DE SALIDA
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 1-16, celebrada el 5 de enero del año 2016, aprobó la suscripción del “Convenio de Cooperación Interinstitucional entre el Poder Judicial y la Dirección General de Migración y Extranjería – DGME”. Por lo que se les recuerda a los despachos judiciales que conocen la materia de pensiones alimentarias, así como los despachos que emiten impedimentos de salida del país, su obligación de mantener debidamente actualizada la información contenida en el “Sistema de Obligados Alimentarios y Penal - SOAP”. A partir del 18 de enero de 2016, iniciará un plan piloto por lo que la fuente de consulta de la Dirección General de Migración y Extranjería será la información que consta en el SOAP, por lo que será responsabilidad de los despachos y oficinas judiciales hacer oportunamente los registros en dicho sistema y mantenerlos actualizados.
+San José, 19 de enero del 2016.
