@@ -1,0 +1,7 @@
+CIRCULAR N° 13-2016
+ASUNTO: Uso del Sistema de Información de la Administración Penitenciaria (SIAP).
+A LOS DESPACHOS JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 109-15, celebrada el 15 de diciembre del 2015, artículo XXXVIII, acordó comunicarles que este Poder de la República ha suscrito con el Ministerio de Justicia y Paz un convenio mediante el que se posibilita a los despachos que lo requieran, obtener información en el Sistema de Información de la Administración Penitenciaria (SIAP) sobre las personas privadas de libertad, y el Centro de Atención Institucional en el que se encuentran recluidas.
+En razón de lo anterior, se insta a los despachos judiciales que solicitan traslados de personas privadas de libertad para la práctica de diligencias judiciales, así como a las unidades de cárceles del país, que gestionen ante la Dirección Ejecutiva la autorización para acceder al módulo de consulta SIAP, con el fin de que consulten la ubicación de esas personas en los diferentes Centros de Atención Institucional el día previo o en el momento en que las Custodias o Custodios de Personas Detenidas se dirijan a esos Centros a realizar el traslado, con el objeto de no hacer incurrir a este personal en viajes infructuosos, gastos innecesarios de recursos y atrasos en las prácticas de las diligencias judiciales, que afecten el servicio que se brinda a la persona usuaria.
+San José, 19 de enero del 2016
