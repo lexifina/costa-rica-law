@@ -1,0 +1,1 @@
+4. De forma transitoria, en el caso de las solicitudes de licencia y acreditación de agentes y corredores de seguros que hubiesen ingresado de previo a la entrada en vigencia de estas modificaciones reglamentarias y que aún se encontraran pendientes de resolver, serán resueltas por la SUGESE, de conformidad con el procedimiento anterior para este tipo de trámite.
