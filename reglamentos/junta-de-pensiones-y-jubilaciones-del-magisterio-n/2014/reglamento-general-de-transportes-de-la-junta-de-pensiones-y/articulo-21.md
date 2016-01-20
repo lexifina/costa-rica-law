@@ -1,6 +1,7 @@
 Artículo 21.—Está prohibido a los (las) conductores (as) de vehículos:
 a) Hacer intercambios de accesorios entre las unidades, sin la aprobación del Departamento Administrativo.
-b) Permitir que personas ajenas para la función o el servicio que se brinda, viajen en los vehículos, salvo en ocasiones especiales en que medie autorización del Director(a) o del superior administrativo o en casos de urgencias comprobadas.
+b) Permitir que personas ajenas para la función o el servicio que se brinda, viajen en los vehículos, salvo en ocasiones especiales en que medie autorización del Director Ejecutivo (a) o del superior administrativo o en casos de urgencias comprobadas, dejando evidencia del objetivo Institucional.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 006-2016 del 20 de enero del 2016)
 c) Ceder la conducción a otros (as) trabajadores (as) de la Institución no autorizados (as), directivos (as) o personas particulares, salvo en circunstancias de fuerza mayor, las cuales deberán ser informadas al concluir el servicio.
 d) Estacionar los vehículos en lugares o frente a locales, donde se coloque en peligro su seguridad personal o del automotor, o que por su naturaleza y/o características, lesionen la buena imagen o prestigio de la Junta.
 e) Ocultar daños causados al vehículo, propiedades o personas, lo que le atribuirá la responsabilidad legal que por ello pueda imputársele, sin perjuicio de otras sanciones penales y administrativas.

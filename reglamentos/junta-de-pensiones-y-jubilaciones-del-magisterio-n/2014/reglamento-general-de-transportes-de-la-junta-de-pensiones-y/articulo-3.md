@@ -1,6 +1,7 @@
 CAPÍTULO II
 De la administración de los vehículos
-Artículo 3º—Corresponde al Departamento Administrativo a través de la Unidad de Transportes:
+Artículo 3º—Corresponde al Departamento Administrativo.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 006-2016 del 20 de enero del 2016)
 a) Planificar, organizar, controlar y coordinar todas las actividades relacionadas con el uso y disposición de los vehículos, conforme las políticas administrativas que al respecto se hayan dictado.
 b) Atender oportunamente, las solicitudes de transporte de las dependencias de la Junta que así lo requieran, para el adecuado cumplimiento de sus funciones, y determinar el medio más eficaz y eficiente para satisfacerlas.
 c) Vigilar que los vehículos se utilicen satisfactoriamente, en la realización de los servicios para los que fueron solicitados.

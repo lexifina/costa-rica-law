@@ -1,4 +1,5 @@
-Artículo 36.—El presente Reglamento rige a partir de su aprobación y solo podrá ser interpretado o modificado por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional, con la aprobación de no menos de cinco de sus miembros.
+Artículo 36.—El presente Reglamento rige a partir de su publicación en La Gaceta, previa aprobación por la Junta Directiva de la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+(Así reformado mediante sesión ordinaria N° 006-2016 del 20 de enero del 2016)
 Este Reglamento deroga al anterior Reglamento General de transportes y que fuese aprobado por la Junta Directiva en la sesión ordinaria Nº 064-2011, celebrada el 9 de junio de 2011.
 Glosario
 Para efectos del presente Reglamento se entenderá por:
