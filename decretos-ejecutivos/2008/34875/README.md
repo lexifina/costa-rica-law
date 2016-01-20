@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna del Instit
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-12-19 | la propia norma |
+| 2 | 2016-01-20 | Decreto Ejecutivo 39708 (2016-01-20) |

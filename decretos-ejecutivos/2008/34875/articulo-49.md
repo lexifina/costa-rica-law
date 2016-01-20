@@ -1,1 +1,2 @@
-Artículo 49.—Políticas de administración y supervisión. El Auditor General emitirá políticas para administrar y supervisar la ejecución de los estudios contenidos en los planes de trabajo, con el objeto de asegurar su conformidad con las normas de auditoría interna, las políticas y los programas de auditoría.
+Artículo 49.- Políticas de administración y supervisión. La Auditora Interna o Auditor Interno emitirá políticas para administrar y supervisar la ejecución de los estudios contenidos en los planes de trabajo, con el objeto de asegurar su conformidad con las normas de auditoría interna, las políticas y los programas de auditoría.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39708 del 20 de enero del 2016)

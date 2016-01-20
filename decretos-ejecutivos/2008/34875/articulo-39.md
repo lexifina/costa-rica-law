@@ -2,13 +2,15 @@ CAPÍTULO III
 Del funcionamiento de la auditoría interna
 SECCIÓN I
 Competencias, Deberes y Potestades de la auditoría interna
-Artículo 39.—Competencias. De conformidad con lo dispuesto en la Ley General de Control Interno, La Ley Orgánica de la Contraloría General de la República, La Ley de Creación del INCIENSA y sus reformas, compete a la auditoría interna, primordialmente lo siguiente:
+Artículo 39.- Competencias. De conformidad con lo dispuesto en la Ley General de Control Interno, La Ley Orgánica de la Contraloría General de la República, La Ley de Creación del INCIENSA y sus reformas, compete a la auditoría interna, primordialmente lo siguiente:
 a) Realizar auditorías o estudios especiales semestralmente, en relación con los fondos públicos sujetos a su competencia institucional, incluidos fideicomisos, fondos especiales y otros de naturaleza similar. Asimismo, efectuar semestralmente auditorías o estudios especiales sobre fondos y actividades privadas, de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General, en el tanto estos se originen en transferencias efectuadas por componentes de su competencia institucional.
 b) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno de su competencia institucional, informar de ello y proponer las medidas correctivas que sean pertinentes.
 c) Verificar que la administración activa tome las medidas de control interno correspondientes, en los casos de desconcentración de competencias, o bien la contratación de servicios de apoyo con terceros; asimismo, examinar regularmente la operación efectiva de los controles críticos, en esas unidades desconcentradas o en la prestación de tales servicios.
 d) Asesorar, en materia de su competencia, al Consejo Técnico; además, advertir a los órganos pasivos que fiscaliza sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
-e) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio del Auditor General, sean necesarios para el fortalecimiento del sistema de control interno.
-f) Preparar los planes de trabajo y sus modificaciones, de conformidad con los lineamientos que prescriba la Contraloría General.
+e) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que deban llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio de la Auditora Interna o Auditor interno, sean necesarios para el fortalecimiento del sistema de control interno.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39708 del 20 de enero del 2016)
+f) Preparar los planes de trabajo y sus modificaciones, de conformidad con los lineamientos que prescriba la Contraloría General de la República.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39708 del 20 de enero del 2016)
 g) Elaborar un informe anual de la ejecución de su plan de trabajo y del estado de sus recomendaciones, de la Contraloría General, de los despachos de contadores públicos y de auditorias de instituciones públicas; en los últimos tres casos, cuando sean de su conocimiento, sin perjuicio de que se elaboren informes y se presenten al Consejo Técnico cuando las circunstancias lo ameriten.
 h) Mantener debidamente actualizado el presente reglamento.
 i) Evaluar el contenido informativo, la oportunidad y confiabilidad de la información contable, financiera, administrativa y de otro tipo, producida en el INCIENSA.

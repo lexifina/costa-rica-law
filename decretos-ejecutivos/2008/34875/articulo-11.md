@@ -1,1 +1,2 @@
-Artículo 11.—Atributos del personal de la auditoría. El Auditor General, así como el resto del personal de la auditoría interna, deberán conducirse de conformidad con lo dispuesto en el capítulo I de “Normas Personales” del Manual de normas generales de auditoría para el sector público, emitido por la Contraloría General.
+Artículo 11.- Atributos del personal de la auditoría. La Auditora Interna o Auditor Interno, así como el resto del personal de la auditoría interna, deberán conducirse de conformidad con lo dispuesto en el capítulo 1 de "Normas Personales" de las Normas Generales de Auditoría para el Sector Público, emitido por la Contraloría General de la República.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39708 del 20 de enero del 2016)
