@@ -1,0 +1,1 @@
+Artículo 10.—Custodia de los vehículos. Los vehículos deben estacionarse al final de la jornada laboral, en las instalaciones de la Imprenta Nacional, salvo que se encuentren de gira, en cumplimiento de las funciones propias de la Imprenta Nacional.

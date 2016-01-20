@@ -1,0 +1,3 @@
+Artículo 6º—Solicitudes de servicio. La solicitud de servicio de transporte se hará por medio de un documento denominado “Orden de Transporte”. Esta orden deberá presentarse ante el Departamento de Servicios Generales con un día de antelación a la prestación del servicio para que este lo coordine.
+Se exceptúa de esta obligación a las dependencias que tienen algún vehículo asignado de manera especial, según lo establecido en el artículo 7º.
+Solamente la Dirección Ejecutiva y los Directores de Área pueden firmar solicitudes de servicios de transporte. En ausencia de estos, mediante comunicación escrita, la Dirección Ejecutiva informará al Departamento de Servicios Generales, cuáles otros funcionarios pueden firmar solicitudes de servicios de transporte.

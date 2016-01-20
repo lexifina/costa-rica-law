@@ -1,0 +1,1 @@
+Artículo 17.—Prohibiciones de arreglo extrajudicial. Queda prohibido al conductor efectuar arreglos extrajudiciales en casos de accidentes con vehículos de la Junta Administrativa. Deben indicar al particular que se apersone o comunique con el Jefe de Servicios Generales para efectuar las gestiones correspondientes.

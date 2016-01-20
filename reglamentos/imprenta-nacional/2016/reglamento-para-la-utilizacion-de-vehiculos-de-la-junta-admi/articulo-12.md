@@ -1,0 +1,1 @@
+Artículo 12.—Circulación de vehículos en horas y días no hábiles. Sólo será posible si media autorización suscrita por los siguientes funcionarios: el Director Ejecutivo o los Directores de cada área.

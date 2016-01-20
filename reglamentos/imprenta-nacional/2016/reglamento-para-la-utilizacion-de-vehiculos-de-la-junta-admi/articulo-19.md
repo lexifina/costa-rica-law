@@ -1,0 +1,1 @@
+Artículo 19.—Talleres de Reparación. Los talleres para realizar reparaciones resultantes de los daños ocasionados en los vehículos, serán seleccionados por la Proveeduría Institucional, siempre que cumplan con los requisitos del ente asegurador y estén inscritos en el sistema de compras del estado.

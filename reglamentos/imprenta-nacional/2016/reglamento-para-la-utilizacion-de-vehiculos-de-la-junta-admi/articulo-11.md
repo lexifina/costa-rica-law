@@ -1,0 +1,1 @@
+Artículo 11.—Conducción de vehículos. La conducción de vehículos quedará autorizada con la sola portación de la Orden de Transportes debidamente firmada por las personas autorizadas a saber Director Ejecutivo o los Directores de cada área.
