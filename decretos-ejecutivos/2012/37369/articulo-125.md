@@ -17,4 +17,8 @@ o) Gozar del período de lactancia, previa presentación del dictamen médico ex
 p) Asistir a sus citas médicas; así como a las de sus padres, cónyuge, hijos o personas dependientes del funcionario(a). Tanto en las instituciones de la Caja Costarricense del Seguro Social (CCSS), como privadas debiendo acreditarse el tiempo con el respectivo comprobante para justificar su ausencia y no rebajándose el tiempo utilizado.
 q) Realizar actividades conmemorativas, en los Días de la Madre y del Padre, así como en los días asignados a las diversas profesiones u oficios, observando siempre las normas de decoro, sin ingerir bebidas alcohólicas y preservando las instalaciones. Lo anterior previa autorización del superior jerárquico.
 r) Reunirse en Asamblea de afiliados de la Asociación Solidarista, dentro de las instalaciones del Ministerio, en jornada laboral, para atender necesidades de creación o liquidación de asociaciones legalmente constituidas y tomar otros acuerdos necesarios para la debida marcha o finiquito de dichas entidades, previa autorización del jerarca de la institución.
-s) Otros que al efecto otorgue el patrono mediante circulares internas.
+s) Gozar de las licencias especiales con goce de salario de conformidad con el artículo 137 bis.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39543 del 20 de enero de 2016)
+t) Los servidores tienen derecho a que no se les discrimine en su trabajo por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo d discapacidad, o que se les cese en sus funciones por tales razones.
+Además, tienen derecho a que se les reconozca, en todos los ámbitos de su labor, la identidad de género de acuerdo a lo solicitado por la persona funcionaria.
+(Así adicionado el inciso t) anterior por el artículo 1° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

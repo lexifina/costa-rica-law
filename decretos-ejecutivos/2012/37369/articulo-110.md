@@ -1,1 +1,1 @@
-Artículo 110. - Los días teletrabajables se establecerán mediante acuerdo mutuo entre el funcionario (a) y su Superior, el cual deberá ser avalado por la Comisión.
+Artículo 110. –(Derogado por el artículo 4° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

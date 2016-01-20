@@ -1,1 +1,1 @@
-Artículo 123. - El contrato de teletrabajo tendrá una vigencia de un año pudiendo ser prorrogable por plazos iguales previo requerimientos de las partes, de acuerdo con el artículo anterior inciso h).
+Artículo 123. - –(Derogado por el artículo 4° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

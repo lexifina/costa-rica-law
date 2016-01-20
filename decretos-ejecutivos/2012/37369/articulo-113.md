@@ -1,1 +1,1 @@
-Artículo 113. - Las regulaciones y controles de los funcionarios (as), que estarán sujetos a un tipo de jornada u horario, serán designadas en forma general por la Comisión.
+Artículo 113. - –(Derogado por el artículo 4° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

@@ -1,3 +1,4 @@
-Sección IV
+(*)Sección IV
 De los funcionarios (as)
-Artículo 119. - Las Direcciones o Jefaturas correspondientes, definirán cuales funcionarios(as) a su cargo teletrabajarán. La decisión de teletrabajar por parte del funcionario(a) es de carácter voluntario.
+(*) (Derogada esta sección por el artículo 4° del decreto ejecutivo N° 39543 del 20 de enero de 2016)
+Artículo 119. - –(Derogado por el artículo 4° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

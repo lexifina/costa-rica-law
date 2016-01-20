@@ -1,1 +1,1 @@
-Artículo 109. - La modalidad de teletrabajo se aplicará en aquellos puestos en los cuales su función se puede desarrollar parcialmente de manera no presencial. También podrán ser incluidos aquellos que no requieran para su adecuado desempeño contactos personales frecuentes o atención directa al público.
+Artículo 109. -(Derogado por el artículo 4° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

@@ -68,3 +68,11 @@ resultado lesivo para los intereses económicos del Ministerio, o el uso de mani
 62. Ejercer algún tipo de acoso u hostigamiento sexual, ya sea a sus compañeros(as) de trabajo o a sus subalternos(as).
 63. Violar la confidencialidad que debe observar con todo lo relacionado a los hechos que motivan una denuncia sobre acoso u hostigamiento sexual y con respecto a lo acontecido en el proceso llevado a cabo como consecuencia de éste.
 64. Revelar información sobre investigaciones o procedimientos administrativos, que se estén realizando y sobre aquello que determine una posible responsabilidad civil, administrativa o eventualmente penal de los funcionarios del Ministerio o de su Órgano Desconcentrado.
+65. Incurrir en prácticas discriminatorias hacia cualquier servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de tener denuncia, ya sea de manera personal o por interpósita persona, de que algún servidor de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39543 del 20 de enero de 2016)
+66. Utilizar, en el desempeño de sus funciones, lenguaje que sea discriminatorio o contrario a la dignidad de personas por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39543 del 20 de enero de 2016)
+67. Cumplir con la prescripción médica generada a partir de la orden de incapacidad dada tanto por el Instituto Nacional de Seguros o la Caja Costarricense del Seguro Social, debiendo de dar cabal cumplimiento al régimen de la CCSS.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39543 del 20 de enero de 2016)
+68. Los funcionarios que representen al Jerarca o al Ministerio en diferentes Comisiones externas deben de velar por el cumplimiento de los lineamientos dados por el Jerarca y actuar con la mayor diligencia y respeto.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

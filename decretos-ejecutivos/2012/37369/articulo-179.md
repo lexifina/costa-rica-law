@@ -12,3 +12,5 @@ Artículo 179. - Además de las contempladas en el artículo 178, los Directores
 11. Velar porque sus subalternos(as), porten de forma permanente, el carné de identificación.
 12. Dar aviso inmediato al Departamento de Recursos Humanos, de cualquier riesgo laboral ocurrido a sus subalternos(as).
 13. Velar porque se haga un adecuado uso de los elementos distintivos y la imagen corporativa de la institución de conformidad con lo establecido en el libro de marca y las directrices emitidas por los Órganos Jerárquicos Superiores.
+14. Velar porque sus subalternos no incurran en prácticas discriminatorias hacia ningún servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de tener denuncia, ya sea de manera personal o por interpósita persona, de que algún subalterno incurrió en estas prácticas, instruir para el inicio del procedimiento administrativo disciplinario correspondiente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39543 del 20 de enero de 2016)

@@ -10,3 +10,5 @@ h) Restringir las posibilidades de comunicarse, hablar o reunirse con el superio
 i) Gestos, palabras, comportamientos o actitudes que atenten, ofendan, humillen o atemoricen la integridad física o psíquica de una persona.
 j) Menospreciar, ignorar, excluir o hacer el vacío, fingir no verle o hacerle invisible.
 k) Amenazas verbales o escritas.
+l) Discriminación en razón de género, etnia, nacionalidad, religión, filiación política, idioma, ocupación, edad, orientación sexual e identidades de género o por tener algún tipo de discapacidad.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39543 del 20 de enero de 2016)
