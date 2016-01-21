@@ -1,0 +1,2 @@
+Artículo 8º—Admisión de denuncias anónimas: Las denuncias anónimas serán atendidas en el tanto aporten elementos de convicción suficientes y se encuentren soportadas en medios probatorios idóneos que permitan iniciar la investigación, de lo contrario se archivará la denuncia.
+En casos excepcionales, ante una denuncia anónima podría abrirse de oficio una investigación preliminar, cuando con ésta se reciban elementos de prueba que den mérito para ello. En caso contrario, se dispondrá su archivo sin más trámite.

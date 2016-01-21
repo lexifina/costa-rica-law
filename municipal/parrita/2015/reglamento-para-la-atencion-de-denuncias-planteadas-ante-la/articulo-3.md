@@ -1,0 +1,1 @@
+Artículo 3º—Valoración de Denuncias. (Ver anexo dos; formulario de valoración de denuncias). El Auditor Interno será el encargado de valorar, mediante formulario de valoración de denuncias, la admisibilidad de las denuncias presentadas ante este órgano fiscalizador, conforme a lo establecido en este Reglamento.
