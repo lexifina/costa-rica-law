@@ -1,0 +1,1 @@
+Artículo 33.—La Comisión de Fiestas podrá gestionar antes las instituciones públicas y empresas privadas donaciones y otros recursos, cuyo uso y especificaciones estarán siempre enmarcados en los presentes lineamientos.

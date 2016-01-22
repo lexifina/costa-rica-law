@@ -1,0 +1,1 @@
+Artículo 28.—La Municipalidad de Liberia y la Comisión de Fiestas son los responsables de promover y proyectar esta tradición con talleres de sensibilización y conversatorios alusivos como preparación a las Fiestas Cívicas.

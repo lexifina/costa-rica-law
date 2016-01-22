@@ -1,0 +1,1 @@
+Artículo 34.—Estos Lineamientos rigen para todos los topes de toros de las Fiestas Cívicas de Liberia que se realizan durante los meses de febrero y marzo de cada año, como antesala de las montaderas, principalmente, para el Tope de toros de gala, que se realiza el penúltimo día de las fiestas y/o el sábado, apuntando a la mayor concentración de jinetes.

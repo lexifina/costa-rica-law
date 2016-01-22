@@ -1,0 +1,1 @@
+Artículo 22.—La Municipalidad de Liberia, por medio de la Comisión de Fiestas, autoriza y promueve el levantamiento de enramadas de palma provisionales desde el inicio en el Puente Real, en su recorrido hasta el toril, para el cobijo de las expresiones culturales, musicales, gastronómicas y sociales.

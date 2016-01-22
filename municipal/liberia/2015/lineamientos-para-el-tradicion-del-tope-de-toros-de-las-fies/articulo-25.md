@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad de Liberia y la Comisión de Fiestas son las responsables de la adaptación real de estos lineamientos con la tradición del tope de toros, estimulando y promoviendo talleres de elaboración de aperos de cuero y crin, y coordinando capacitaciones en el oficio de la Talabartería con empresas establecidas o instituciones relacionadas.

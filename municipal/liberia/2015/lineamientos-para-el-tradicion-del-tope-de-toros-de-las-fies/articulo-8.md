@@ -1,0 +1,1 @@
+Artículo 8º—Aperos de montar propios en caballos de fiesta o calle asociados al gamonal son: albarda preferiblemente de cuero curtido, vaqueta guape troquelada y con barbas, pellón, juegos de aperos de cuchilla formada por jáquima adornada, pechera adornada y tejida en forma de cuchilla, grupera adornada y tejida en cuchilla.

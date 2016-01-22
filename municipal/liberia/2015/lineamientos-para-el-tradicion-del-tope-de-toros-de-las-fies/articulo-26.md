@@ -1,0 +1,1 @@
+Artículo 26.—La Municipalidad de Liberia y la Comisión de Fiestas son los responsables de impulsar y apoyar la composición, interpretación y grabación de música tradicional guanacasteca para la tradición del Tope de toros.

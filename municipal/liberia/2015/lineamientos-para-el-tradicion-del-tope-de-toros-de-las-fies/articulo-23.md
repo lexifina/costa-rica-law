@@ -1,0 +1,1 @@
+Artículo 23.—La Municipalidad de Liberia, por medio de la Comisión de Fiestas, estimula y apoya al comercio y vecinos del recorrido en el ornato de sus locales y fachadas con elementos propios de la zona, tales como banderas de Liberia, guirnaldas alusivas y elementos florales.

@@ -1,0 +1,1 @@
+Artículo 5º—Los jinetes que ostenten los aperos de trabajo o de fiesta hacen la guía y arreo de los toros. Los caballistas que monten caballos de paso costarricense u otras razas van al final del arreo.

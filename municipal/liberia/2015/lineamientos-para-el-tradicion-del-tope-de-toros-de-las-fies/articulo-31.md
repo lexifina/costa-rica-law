@@ -1,0 +1,1 @@
+Artículo 31.—La Municipalidad de Liberia y la Comisión de Fiestas solo autorizarán contratos vinculados con el tope de toros de Liberia, acorde con estos lineamientos, estableciéndose en la letra de los contratos el conocimiento de esta normativa y el eficaz cumplimiento de ella.

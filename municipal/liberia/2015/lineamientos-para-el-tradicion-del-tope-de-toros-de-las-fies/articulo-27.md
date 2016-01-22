@@ -1,0 +1,1 @@
+Artículo 27.—La Municipalidad de Liberia y la Comisión de Fiestas son los responsables de estimular y promover la elaboración de comidas típicas, confección de trajes típicos y producción de artes plásticas.

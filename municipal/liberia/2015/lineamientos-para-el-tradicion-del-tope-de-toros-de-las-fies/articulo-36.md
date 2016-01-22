@@ -1,0 +1,1 @@
+Artículo 36.—El Concejo de Liberia acuerda aprobar los anteriores lineamientos y ordena publicar el proyecto de reglamento y el acuerdo donde se aprueba el texto definitivo en el Diario oficial La Gaceta.

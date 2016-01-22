@@ -1,0 +1,1 @@
+Artículo 16.—Es propicio lucir por la reina, acompañantes, grupos oficiales y culturales, el traje típico de fiesta o gala de Guanacaste, entendido como traje nacional con sus seis partes básicas: enagua de seda, camisola, gola, relicario, rebozo y peinado.
