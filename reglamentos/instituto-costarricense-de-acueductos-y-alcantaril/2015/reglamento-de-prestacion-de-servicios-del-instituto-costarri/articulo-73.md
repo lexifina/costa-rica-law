@@ -1,0 +1,1 @@
+Artículo 73.—Del arreglo de pago por una sola factura. Cuando el monto de la última factura puesta al cobro supere en un 100% el promedio de los últimos seis meses, el usuario podrá solicitar un arreglo de pago en las mismas condiciones establecidas anteriormente.

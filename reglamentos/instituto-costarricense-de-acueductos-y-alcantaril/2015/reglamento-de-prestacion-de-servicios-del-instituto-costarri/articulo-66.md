@@ -1,0 +1,1 @@
+Artículo 66.—De la fuente pública. El AyA instalará una fuente pública, en el caso de servicios con tarifa domiciliar que sean suspendidos por morosidad. Si el usuario lo solicita, se instalará en frente de su propiedad, previo pago de la tarifa correspondiente.

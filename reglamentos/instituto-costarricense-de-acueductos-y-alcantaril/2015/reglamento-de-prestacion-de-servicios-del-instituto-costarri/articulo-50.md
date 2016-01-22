@@ -1,0 +1,2 @@
+Artículo 50.—De la facturación del servicio. El AyA facturará mensualmente los servicios de agua, saneamiento e hidrantes, considerando el consumo y la tarifa correspondiente. Cuando la conexión no cuente con hidrómetro se facturará el monto fijo establecido par a cada tarifa. Cuando por alguna circunstancia no sea posible leer el hidrómetro, los servicios se facturarán de acuerdo a su consumo promedio.
+El AyA informará mediante los medios disponibles autorizados, los montos facturados, consumos y fecha de vencimiento.

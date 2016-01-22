@@ -1,0 +1,4 @@
+Artículo 31.—De la independización de servicios en condominios. Para aprobar la solicitud de independización de un servicio en un condominio, se deberá contar con la factibilidad técnica, comercial y operativa. El AyA se reserva la potestad de solicitarle al interesado pruebas y estudios adicionales que sustenten esa factibilidad.
+Se permitirá la independización de forma total o parcial, siempre que se cuente con la aprobación por parte de la Asamblea de condóminos, conforme a la votación establecida en la Ley Reguladora de la Propiedad en Condominio.
+Procederá la independización parcial solo en aquellos casos en los que así lo justifiquen los usos distintos del servicio dentro de una misma finca matriz.
+Para todos los casos, el condominio debe contar con la Resolución de Aprobación y Recepción de Obras, previamente formalizada.

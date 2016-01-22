@@ -1,0 +1,1 @@
+Artículo 46.—De la facturación del servicio provisional para proyectos de desarrollos urbanísticos. El servicio provisional será facturado en forma mensual. En la etapa de construcción, la conexión será calificada en uso reproductivo. El usuario debe notificar al AyA de la terminación de la obra, para que el servicio sea calificado en la tarifa que corresponda según su uso.

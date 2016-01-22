@@ -1,0 +1,1 @@
+Artículo 72.—De las condiciones del arreglo de pago. Para los servicios con tarifa domiciliar, preferencial y gobierno la prima inicial será del 20% de la deuda total y el saldo a un plazo máximo de dieciocho meses. Para usuarios de tarifa empresarial, el pago inicial será de un 25% de la deuda total y el saldo a un plazo máximo de 12 meses.
