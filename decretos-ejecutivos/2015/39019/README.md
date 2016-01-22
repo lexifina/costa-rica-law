@@ -14,3 +14,4 @@ Reglamento para la operación del fondo fijo de caja chica de la Dirección Gene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-27 | la propia norma |
+| 2 | 2016-01-22 | Decreto Ejecutivo 39593 (2016-01-22) |
