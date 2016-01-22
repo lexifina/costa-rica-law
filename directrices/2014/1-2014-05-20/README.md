@@ -14,3 +14,4 @@ Adición a la Directriz DRPI-08-2011, Cobro de Timbre Fiscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-05 | la propia norma |
+| 2 | 2016-01-22 | Directriz 1 (2016-01-22) |
