@@ -15,3 +15,4 @@ Reforma Reglamento para la Emisión de los Certificados de Zafarrancho
 | --- | --- | --- |
 | 1 | 2015-12-23 | la propia norma |
 | 2 | 2016-01-13 | Decreto Ejecutivo 39438 (2016-01-13) |
+| 3 | 2016-01-25 | Decreto Ejecutivo 39459 (2016-01-25) |
