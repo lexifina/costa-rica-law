@@ -1,2 +1,0 @@
-Artículo 9º—Plazo del arreglo de pago. El tiempo máximo que se concede en los arreglos de pago para cancelar la deuda morosa no excederá los doce meses, contados a partir de la firma del documento de formalización de dicho convenio. En casos de extrema dificultad y de acuerdo a un estudio socio económico se podrá ampliar los meses según se convenga.
-(Así reformado en acta número noventa y tres del 6 de febrero del 2012 y definitivamente aprobado y publicado en La Gaceta N° 95 del 17 de mayo del 2012)
