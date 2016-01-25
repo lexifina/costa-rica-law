@@ -14,3 +14,4 @@ Reglamento a la Ley de Pesca y Acuicultura N° 8436
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-30 | la propia norma |
+| 2 | 2016-01-25 | Decreto Ejecutivo 39458 (2016-01-25) |
