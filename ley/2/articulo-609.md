@@ -1,3 +1,3 @@
-ARTICULO 609.- En esta materia, el juzgador apreciará la prueba, con base en las reglas de la sana crítica y en las circunstancias de hecho del respectivo proceso.
-Para los efectos de su sanción, las faltas se tendrán por cometidas desde el momento en que se produzcan.
-(Así reformado por el artículo 4º de la ley N° 7360 del 4 de noviembre de 1993)
+Artículo 609.- Si la parte actora o quien o quienes soliciten el arbitraje no cumplen con alguna prevención anterior al traslado de la demanda o con el depósito de los honorarios del arbitraje, el proceso se dará por terminado y se tendrá por no interpuesto para todo efecto, mediante resolución que dictará el centro de arbitraje.
+Cuando la parte demandada no conteste o no deposite los honorarios que le corresponden, la persona propuesta por la otra parte actuará como única integrante del órgano arbitral y el procedimiento se desarrollará con intervención de la parte requirente, si a su vez hubiera cumplido con esa carga, caso en el cual se recibirán únicamente sus pruebas. La contraparte podrá apersonarse al proceso en cualquier momento y tomar el proceso en el estado en que se hallen, y ejercer los derechos procesales que puedan hacerse valer en el momento del apersonamiento.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

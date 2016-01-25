@@ -1,3 +1,5 @@
-SECCION III
-De los Tribunales de Conciliación y de Arbitraje:
-ARTICULO 404.- La finalidad esencial de los Tribunales de Conciliación y de Arbitraje es mantener un justiciero equilibrio entre los diversos factores de la producción, armonizando los derechos del Capital y del Trabajo.
+TÍTULO OCTAVO
+(Así reformado el título anterior por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
+PROHIBICIÓN DE DISCRIMINAR
+Artículo 404.- Se prohíbe toda discriminación en el trabajo por razones de edad, etnia, sexo, religión, raza, orientación sexual, estado civil, opinión política, ascendencia nacional, origen social, filiación, discapacidad, afiliación sindical, situación económica o cualquier otra forma análoga de discriminación.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

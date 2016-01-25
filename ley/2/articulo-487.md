@@ -1,2 +1,6 @@
-ARTICULO 487.- El Juez declarará, de oficio, inevacuables las pruebas que no se reciban en las comparecencias o dentro del término improrrogable que él señale, en caso de que para su recepción se haya comisionado a otro funcionario.
-Es entendido que no podrá declararse inevacuable la prueba no recibida en tiempo por culpa del Despacho.
+SECCIÓN IV
+Acumulación de pretensiones y fuero de atracción
+Artículo 487.- La acumulación de pretensiones solo será procedente cuando se haga en el mismo acto de la demanda o mediante reconvención, siempre y cuando se den los requisitos para la procedencia de la acumulación, según la ley común; que todas las demandas sean propias de la competencia de los tribunales de trabajo o íntimamente vinculadas a las relaciones substanciales que sirven de base a las pretensiones propias de su jurisdicción, y que la vía señalada para tramitarlas sea la misma para todas.
+Si dos o más procesos, conexos entre sí, se inician por separado, la acumulación procederá únicamente si ambos radican en la jurisdicción especial de trabajo y su tramitación sea la misma para todos, siempre y cuando no se hubiera celebrado la audiencia o dictado la sentencia de primera instancia, en los casos donde no existe el trámite de audiencia.
+La acumulación podrá ordenarse de oficio, sin recurso alguno, cuando los procesos radiquen en un mismo despacho; de lo contrario, se estará al trámite de la acumulación señalado en la legislación procesal civil.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

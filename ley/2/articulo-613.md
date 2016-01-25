@@ -1,3 +1,3 @@
-ARTICULO 613.- La acción para solicitar la imposición de las sanciones establecidas en este Código, podrá interponerla cualquier persona perjudicada, su representante legal o la Inspección General del Ministerio de Trabajo y Seguridad Social.
-En materia de salud ocupacional, se estará a lo dispuesto en el artículo 316 de este Código.
-(Así reformado por el artículo 4º de la ley N° 7360 del 4 de noviembre de 1993)
+Artículo 613.- Se faculta al Colegio de Abogados para que organice centros de arbitraje laboral, siempre y cuando sea sin costo alguno para los trabajadores y las trabajadoras que se hallen en condiciones de recibir asistencia legal gratuita, según lo previsto en la sección segunda, capítulo segundo de este título. Tales centros tendrán listas propias de árbitros y árbitras, y se regirán en todo lo demás por lo dispuesto en este capítulo.
+El funcionamiento de los centros de arbitraje, en general, se establecerá por reglamento.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

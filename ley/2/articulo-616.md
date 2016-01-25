@@ -1,2 +1,2 @@
-ARTICULO 616.- Las infracciones a las normas prohibitivas de este Código o de las leyes de trabajo y seguridad social, serán sancionadas con la multa comprendida en el numeral 3 de la tabla de sanciones del artículo 614 de este Código.
-(Así adicionado por el artículo 4º de la ley No.7360 del 4 de noviembre de 1993)
+Artículo 616.- Durante el proceso de negociación de una convención colectiva de trabajo o una vez iniciado el procedimiento de conciliación o arbitraje, y durante la ejecución de una huelga legal, solo podrá suscribirse un arreglo directo con la organización o el comité responsable de la negociación o del conflicto.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

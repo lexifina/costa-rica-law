@@ -1,0 +1,5 @@
+Artículo 689.- Todas las personas trabajadoras de dicho sector tienen derecho a una solución negociada o arbitrada, salvo:
+1) Las excepcionadas en el artículo 683 de este Código.
+2) Las personas que funjan como directoras y subdirectoras generales o ejecutivas, auditoras y subauditoras, subgerentes, jerarcas de las dependencias internas encargadas de la gestión de ingresos o egresos públicos, funcionarias de asesoría y de fiscalización legal superior que participen directamente en la negociación.
+3) El personal indicado en los artículos 3, 4 y 5 del Estatuto de Servicio Civil, con la salvedad de las personas que ocupan puestos de forma interina, los maestros de enseñanza primaria interinos o aspirantes y los profesores de segunda enseñanza interinos o aspirantes y los pagados por servicios o fondos especiales contemplados en la relación de puestos de la ley de presupuesto, contratados por obra determinada, quienes sí podrán derivar derechos de las convenciones colectivas a que se refiere esta ley.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

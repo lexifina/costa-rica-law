@@ -1,1 +1,2 @@
-ARTICULO 372.- La huelga legal suspende los contratos de trabajo vigentes en la empresa, lugar o negocio en que se declare, por todo el tiempo que ella dure.
+Artículo 372.-Los titulares del derecho de huelga son los trabajadores y las trabajadoras, quienes lo ejercerán por medio de sus organizaciones sindicales o de una coalición temporal, en las empresas, las instituciones, los establecimientos o los centros de trabajo donde no hubiera personas sindicalizadas o cuando su número fuera insuficiente para constituir una organización sindical.
+(Así reformado por el artículo 1° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

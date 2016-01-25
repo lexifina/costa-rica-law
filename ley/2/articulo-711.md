@@ -1,0 +1,6 @@
+CAPÍTULO QUINTO
+Efectos de las convenciones colectivas en el sector público
+Artículo 711.- Las convenciones colectivas que se negocien y se firmen conforme a lo dispuesto en este título tendrán los efectos que señalan el artículo 62 de la Constitución Política y los artículos 54 y 55 de este Código.
+En el caso de normas que por su naturaleza y su afectación del principio de legalidad presupuestario requieran aprobación legislativa, la eficacia de lo negociado quedará sujeta a la inclusión en la respectiva ley de presupuesto general de la República o extraordinario que se promulguen. La autoridad pública no podrá utilizar sus prerrogativas en materia financiera en perjuicio de lo convenido.
+Tratándose de la administración descentralizada deberán incluirse las modificaciones presupuestarias correspondientes en el plazo de tres meses. Si este plazo es incumplido, la parte interesada podrá enviar la comunicación pertinente a la Contraloría General de la República, para que no se ejecute ningún trámite de aprobación ni modificación respecto de los presupuestos de la administración pública respectiva, hasta tanto no se incluya la partida presupuestaria correspondiente.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

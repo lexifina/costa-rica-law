@@ -1,3 +1,2 @@
-SECCION IV
-Del Tribunal Superior de Trabajo
-ARTICULO 412.- Habrá un Tribunal Superior de Trabajo, con residencia en la capital y jurisdicción en toda la República, integrado por un Juez Superior de Trabajo, quien lo presidirá en calidad de representante del Estado, y por un representante de los trabajadores y otro de los patronos.
+Artículo 412.- Los derechos provenientes de sentencia judicial prescribirán en el término de diez años, que se comenzará a contar desde el día de la firmeza de la sentencia.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,2 +1,2 @@
-ARTICULO 611.- La imposición de las sanciones establecidas en este Código corresponderá a la autoridad judicial competente.
-(Así reformado por el artículo 4º de la ley N° 7360 del 4 de noviembre de 1993)
+Artículo 611.- La sentencia arbitral, una vez firme, tendrá valor de cosa juzgada material, no requiere protocolización y será ejecutable en la forma prevista en el procedimiento de ejecución.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
