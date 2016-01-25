@@ -1,3 +1,14 @@
-ARTICULO 478.- Siempre que las partes dieren las señas exactas del lugar donde viven o trabajan los testigos, éstos serán citados por medio de las autoridades de policía o de trabajo con un día de anticipación por lo menos al señalado para su examen, bajo la prevención de que se les aplicarán, si fueren inobedientes, las disposiciones de los artículos 428 del Código de Procedimientos Penales y 139, inciso segundo, del Código de Policía.
-Dichas autoridades entregarán a cada testigo una cédula que expresará el nombre del Juez que la expide; nombre y apellidos del testigo e indicación de las señas a que alude el párrafo anterior; día, hora y lugar en que debe comparecer y la pena que se le impondrá si no lo hiciere o se negare a declarar; y la firma del Juez o la de su Secretario.
-El Secretario anotará en el expediente el día y hora en que entregue o remita las cédulas a la autoridad respectiva, quien cumplimentará la orden en seguida, y avisará por escrito al Juez el resultado de la comisión, bajo apercibimiento de corrección disciplinaria que éste impondrá con multa de diez a veinticinco colones, fuera de las demás responsabilidades en que pudieren incurrir los omisos.
+Artículo 478.- En los conflictos derivados de los contratos de trabajo, le corresponde a la parte trabajadora la prueba de la prestación personal de los servicios y, a la parte empleadora, la demostración de los hechos impeditivos que invoque y de todos aquellos que tiene la obligación de mantener debidamente documentados o registrados.
+En todo caso, le corresponderá al empleador o la empleadora probar su dicho, cuando no exista acuerdo sobre:
+1) La fecha de ingreso del trabajador o la trabajadora.
+2) La antigüedad laboral.
+3) El puesto o cargo desempeñado y la naturaleza o las características de las labores ejecutadas.
+4) Las causas de la extinción del contrato.
+5) La entrega a la persona trabajadora de la carta de despido, con indicación de las razones que motivaron la extinción de la relación laboral.
+6) El pago completo de las obligaciones salariales, incluidos sus montos y componentes, cuando así se requiera; las participaciones en utilidades, ventas o cobros; incentivos y demás pluses, convencional o legalmente establecidos.
+7) La clase y duración de la jornada de trabajo.
+8) El pago o disfrute de los días feriados, descansos, licencias, aguinaldo y vacaciones.
+9) El cumplimiento de las obligaciones correspondientes al sistema de seguridad social.
+10) La justificación de la objetividad, racionalidad y proporcionalidad de las medidas o las conductas señaladas como discriminatorias en todas las demandas relacionadas con discriminaciones.
+11) Cualquier otra situación fáctica cuya fuente probatoria le sea de más fácil acceso que al trabajador o la trabajadora.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

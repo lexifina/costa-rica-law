@@ -1,2 +1,4 @@
-ARTICULO 492.- En los demás casos, una vez evacuadas todas las pruebas o declaratorias inevacuables las que lo fueren, el Juez pronunciará sentencia, dentro de los cinco días siguientes a aquél en que estuvieren listos los autos para el fallo.
-(Así reformado por el artículo 1 de la ley No.3702 del 22 de junio de 1966)
+Artículo 492.- El arraigo se decretará sin más trámite ni garantía. Si se solicita como previo a la demanda, esta deberá presentarse dentro de los tres días siguientes a la notificación; de lo contrario, se levantará de oficio o a petición de parte y se condenará al peticionario al pago de los daños y perjuicios correspondientes. Se ejecutará de la misma forma indicada en la norma anterior.
+El arraigo consistirá en la prevención del juez al demandado de que este debe estar a derecho con el nombramiento de un representante legítimo, suficientemente instruido para sostener el proceso y comprometer a la parte representada. En ningún caso se le dará a la medida de arraigo efectos contrarios a la libertad de tránsito de las personas.
+En caso de personas jurídicas o de la Administración Pública, el arraigo solo se decretará si no existe otro apoderado o representante con poder suficiente residente en el país.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

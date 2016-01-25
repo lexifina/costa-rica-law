@@ -1,4 +1,2 @@
-ARTICULO 557.- El recurso no estará sujeto a formalidades técnicas especiales, pero necesariamente contendrá:
-Indicación de la clase de juicio, del nombre y apellidos de las partes, de la hora y fecha de la resolución recurrida y de la naturaleza de ésta;
-Las razones, claras y precisas, que ameritan la procedencia del recurso, y
-Señalamiento de casa para oír notificaciones.
+Artículo 557.- Si dentro del plazo indicado no mediara oposición, se tendrá por firme lo ordenado y será ejecutable en la vía de ejecución sentencia, y concluirá de ese modo el proceso. En el supuesto contrario, una vez contestado el traslado, el juzgado resolverá lo que corresponda dentro de los tres días siguientes, salvo que deba recabarse alguna probanza, pues entonces la cuestión se substanciará en audiencia oral que deberá programarse como máximo treinta días después de la contestación y el juzgado podrá disponer en la sentencia que se dicte la reinstalación, la reubicación o el pago de prestaciones, según proceda de acuerdo con la situación de hecho comprobada.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,5 +1,5 @@
-ARTICULO 419.- Las deliberaciones del Tribunal Superior de Trabajo serán secretas.
-La votación de los autos y sentencias se hará en el día y hora que señale por escrito el Presidente, dentro del término de ley para resolver, y la recibirá el Secretario.
-Cada miembro del Tribunal pondrá constancia en el juicio de la fecha en que lo recibe para estudio y de la fecha en que esté preparado para votar.
-Cuando en la votación no resultare mayoría de votos conformes de toda conformidad, dirimirán la discordia dos Magistrados suplentes sorteados con ese fin por la Corte Plena.
-La redacción de los autos y sentencias se hará por riguroso turno y el Presidente del Tribunal fijará siempre, por medio de una constancia que se pondrá en los autos, un término breve e improrrogable dentro del cual debe quedar redactada la resolución.
+Artículo 419.- La acción para sancionar las faltas cometidas contra las leyes de trabajo y de previsión social prescribe en dos años, contados a partir del momento en que se cometan o desde el cese de la situación, cuando se trate de hechos continuados.
+La presentación de la acusación ante los tribunales de trabajo interrumpe de forma continuada el plazo de prescripción, hasta que se dicte sentencia firme.
+La prescripción se interrumpe también por cualquier gestión judicial o por gestión extrajudicial, en los casos en que no se haya presentado un proceso judicial.
+La prescripción de la sanción impuesta en sentencia firme se regirá por lo dispuesto en el artículo 412.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

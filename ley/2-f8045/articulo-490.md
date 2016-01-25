@@ -1,4 +1,2 @@
-SECCION VIII
-De la sentencia:
-ARTICULO 490.- Si las partes estuvieren conformes en los hechos alegados el Juez procederá, sin más trámite, a dictar sentencia dentro del término de cinco días.
-(Así reformado por el artículo 1 de la ley No.3702 del 22 de junio de 1966)
+Artículo 490.- Las medidas se ordenarán a solicitud de parte y de oficio únicamente en los casos expresamente previstos en la ley. Al ponerlas en práctica los tribunales actuarán diligentemente, de manera que no se frustre el fin perseguido y estos, además de las tipologías previstas en la ley común, podrán hacer uso de cualquier otra medida, si se considera necesaria para garantizar el eventual futuro derecho.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

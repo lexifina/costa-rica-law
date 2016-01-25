@@ -1,0 +1,2 @@
+Artículo 632.- Si los delegados convinieran en someter la cuestión a arbitraje, todos los documentos, pruebas y actas que se hayan aportado o levantado durante la conciliación servirán de base para el juicio correspondiente. Si hubiera un arreglo conciliatorio parcial, el sometimiento al arbitraje procederá únicamente sobre los puntos no convenidos en el proceso de conciliación, por lo que el laudo incorporará como parte integral el arreglo conciliatorio.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

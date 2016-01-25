@@ -1,2 +1,9 @@
-ARTICULO 462.- Si la demanda se presentare por escrito y no estuviere en forma legal, el Juez, de oficio, ordenará al actor que subsane los defectos de forma y para ello le puntualizará los requisitos omitidos o no llenados como es debido. La resolución que dicte no tendrá recurso alguno y mientras no se cumpla lo que ella ordena no se dará trámite a ninguna gestión del actor.
-Caso de que el Juez no haga observación respecto de la forma de la demanda y de que la parte al oponer excepciones señale algún defecto legal, el Juez, si hallare procedente lo dicho por la parte demandada, actuará de conformidad con las disposiciones del párrafo anterior.
+CAPÍTULO QUINTO
+Actividad procesal
+SECCIÓN I
+Disposiciones varias
+Artículo 462.- Para que los actos de proposición de las partes y en general todas sus gestiones escritas tengan efecto, deberán estar firmadas por el peticionario. Si el escrito se tramita por medios tecnológicos, la firma deberá ser autenticada de la forma establecida en la ley para este tipo de documentos.
+Si la persona no supiera escribir o tuviera imposibilidad física para hacerlo, se hará constar una u otra circunstancia en el escrito y firmará a su ruego otra persona.
+No se requerirá que la firma del peticionario esté autenticada por un profesional en derecho autorizado para litigar, cuando el escrito sea presentado personalmente por aquel.
+En todo caso, con las excepciones que resulten de esta ley, las firmas serán autenticadas por la de una persona profesional en derecho autorizada para litigar. Si se omitiera el requisito, se prevendrá a la parte para que se presente a autenticarlas, dentro de un plazo de tres días naturales, bajo el apercibimiento de que, de no hacerlo, se declarará ineficaz la presentación del escrito.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

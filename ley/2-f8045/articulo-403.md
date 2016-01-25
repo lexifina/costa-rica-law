@@ -1,1 +1,2 @@
-ARTICULO 403.- Los Jueces de Trabajo podrán delegar sus funciones en los Secretarios por un lapso no mayor de ocho días, cada vez que tengan que ausentarse del lugar de residencia del Tribunal, por exigencias propias de sus cargos.
+Artículo 403.- Los individuos que participen en un conflicto colectivo, utilizando medios que alteren el carácter pacífico del movimiento, serán repelidos y expulsados del entorno donde este se desarrolla, por cualquier autoridad policial, y sancionados con una multa de cinco a diez salarios base.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

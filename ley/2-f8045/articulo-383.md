@@ -1,2 +1,2 @@
-ARTICULO 383.- Son aplicables al paro las disposiciones de los artículos 374, 375 y 376.(*)
-(*)(Nota de Sinalevi: De acuerdo con el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, se modificó la numeración de los antiguos artículos 367, 368 y 369, siendo ahora 374, 375 y 376)
+Artículo 383.- La parte o las partes empleadoras afectadas por la huelga podrán solicitar, ante la jurisdicción de trabajo, la declaratoria de ilegalidad del movimiento, cuando los trabajadores, las trabajadoras o sus organizaciones sindicales no se hubieran ajustado en el ejercicio del derecho de huelga a las previsiones y los requisitos establecidos en los artículos 371, 377 y 381 de este Código.
+(Así reformado por el artículo 1° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

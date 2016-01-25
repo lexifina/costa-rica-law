@@ -1,4 +1,2 @@
-SECCION IX
-De los recursos
-(Nota: La numeración del presente Código fue modificada por el artículo 3º de la ley No.7360 del 4 de noviembre de 1993, a partir del antiguo 364 pasa a ser el actual 371 y así sucesivamente hasta el antiguo 579, que pasa a ser ahora el 586)
-ARTICULO 499.- Salvo lo dispuesto expresamente en otros artículos de este Título, o que se trate de sentencias o de autos que pongan fin al juicio o imposibiliten su continuación, cabrá el recurso de revocatoria contra todas las resoluciones de los Tribunales de Trabajo, siempre que se interponga dentro del término de veinticuatro horas.
+Artículo 499.- La presentación de la demanda, en sí misma considerada, así como el emplazamiento, debidamente notificado, producen la interrupción de la prescripción. El emplazamiento provoca, además, una situación de pendencia, durante la cual y hasta la firmeza de la sentencia producirá efectos interruptores de la prescripción de forma continuada.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

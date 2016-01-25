@@ -1,0 +1,2 @@
+Artículo 639.- Si alguna de las partes no hiciera oportunamente la designación de la persona que arbitrará o no depositara los honorarios que se hubieran fijado para la persona por ella propuesta, cuando le corresponda asumirlos, la persona titular del juzgado de trabajo se constituirá de pleno derecho, sin necesidad de resolución expresa, en árbitro o árbitra unipersonal.
+(Así adicionado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

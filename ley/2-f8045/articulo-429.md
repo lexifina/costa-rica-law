@@ -1,4 +1,7 @@
-SECCION Vl
-De los impedimentos, de las recusaciones y de las excusas:
-ARTICULO 429.- El Título Noveno de la Ley Orgánica del Poder Judicial sobre impedimentos, recusaciones y excusas, es aplicable a los Tribunales de Trabajo.
-No obstante, se entenderá comprendido por la causal que prevé el artículo 201, inciso tercero, de la mencionada ley, al que hubiere sido en los doce meses anteriores patrono o trabajador o en cualquier forma hubiere dependido económicamente de alguna de las partes; e igualmente se asimilará, para los efectos del inciso noveno de la misma disposición, cualquier conflicto individual o colectivo de trabajo a los de carácter civil.
+SECCIÓN II
+Organización y funcionamiento
+Artículo 429.- La jurisdicción de trabajo estará a cargo de juzgados, tribunales de conciliación y arbitraje y tribunales de apelación y casación, todos especializados. Sobre su organización y funcionamiento se aplicará, en lo pertinente, además de lo dispuesto en este Código, lo que se establece en la Ley N.° 7333, Ley Orgánica del Poder Judicial, de 5 de mayo de 1993, y el Estatuto de Servicio Judicial.
+Los juzgados conocerán en primera instancia de los asuntos propios de su competencia, cualquiera que sea el valor económico de las pretensiones y servirán como base, en las circunscripciones territoriales que señale la Corte Suprema de Justicia, para la constitución de los tribunales de conciliación y arbitraje.
+Los tribunales de apelación conocerán en segunda instancia de las alzadas que procedan en los conflictos jurídicos individuales de conocimiento de los juzgados y en los procesos colectivos a que se refiere este Código; tendrán la sede y competencia territorial que les señale la Corte Suprema de Justicia. Asimismo, dichos órganos conocerán los demás asuntos que indique la ley.
+En los circuitos judiciales donde el volumen de casos lo amerite, la Corte Suprema de Justicia podrá encargar a un determinado despacho el conocimiento de los asuntos de seguridad social o de alguna otra especialidad, correspondientes al territorio que se señale.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

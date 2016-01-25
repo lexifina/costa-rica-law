@@ -1,3 +1,1 @@
-ARTICULO 320.- De inmediato que un juez de trabajo tenga noticias, por impresión propia, de haberse cometido dentro de su jurisdicción territorial alguna falta o infracción a los términos de este Título o sus reglamentos, procederá a la pronta averiguación del hecho, a fin de imponer sin demora la sanción correspondiente.
-Al efecto, podrá requerir el auxilio de las autoridades de policía o de trabajo de cada localidad, para que éstas levanten la información necesaria y le devuelvan los autos, una vez que estén listos para el fallo.
-(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)
+ARTICULO 320.- (Derogado por el artículo 4° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

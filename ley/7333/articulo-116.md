@@ -1,2 +1,2 @@
-ARTICULO 116.- En materia de trabajo, los juzgados de menor cuantía conocerán de los procesos ordinarios de trabajo, cuyo monto no exceda de la suma fijada por la Corte y de todas las infracciones a la legislación laboral; ello sin perjuicio de lo dispuesto por ley respecto de los tribunales colegiados de trabajo de menor cuantía.
-(Así reformado por el artículo 4º de la Ley de Reorganización Judicial No.7728 de 15 de diciembre de 1997)
+Artículo 116.- Los juzgados contravencionales y de menor cuantía conocerán en materia de trabajo, como juzgados de trabajo por ministerio de ley, de todos los asuntos, cualquiera sea su valor económico, correspondientes a su circunscripción territorial, excepto de los conflictos colectivos de carácter económico y social, siempre y cuando en su territorio no exista juzgado de trabajo.
+(Así reformado por el artículo 3° aparte b) de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

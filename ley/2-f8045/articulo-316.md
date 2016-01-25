@@ -1,2 +1,1 @@
-ARTICULO 316.- La gestión para solicitar la imposición de las sanciones que establece este Título, podrá pedirla cualquier persona perjudicada o quien la represente; pero la presentación de esta gestión será obligatoria para las autoridades administrativas de inspección del Ministerio de Trabajo y Seguridad Social, Instituto Nacional de Seguros y municipalidades, sin que por el ejercicio de esa obligación incurran en responsabilidad personal.
-(Así reformado por el artículo 1º de la Ley Sobre Riesgos del Trabajo, Nº 6727 de 9 de marzo de 1982)
+ARTICULO 316.- (Derogado por el artículo 4° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

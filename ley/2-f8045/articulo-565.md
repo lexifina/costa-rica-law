@@ -1,5 +1,7 @@
-ARTICULO 565.- Están obligados a denunciar, sin que por ello incurran en responsabilidad:
-Las autoridades administrativas de trabajo que en el ejercicio de sus funciones tuvieren conocimiento de alguna infracción a las leyes de trabajo o de previsión social; y
-Todos los particulares que tuvieren conocimiento de una falta cometida por infracción a alguna de las disposiciones prohibitivas de este Código.
-Los que no cumplieren con los deberes que impone este artículo, serán sancionados como coautores del hecho punible de que se trate.
-(Así reformado por el artículo 1º de la ley N° 668 de 14 de agosto de 1946 )
+SECCIÓN III
+Intereses, adecuación y salarios caídos
+Artículo 565.- Toda sentencia de condena a pagar una obligación dineraria implicará para el deudor, salvo decisión o pacto en contrario, aunque no se diga expresamente:
+1.- La obligación de cancelar intereses sobre el principal, al tipo fijado en la Ley N.° 3284, Código de Comercio, de 30 de abril de 1964, a partir de la exigibilidad del adeudo o de cada tracto cuando se integra en esa forma. Si la condena lo fuera a título de daños y perjuicios, el devengo de intereses se iniciará desde la firmeza de la sentencia. Para las obligaciones en moneda extranjera, se estará a lo dispuesto en ese mismo Código para las obligaciones en dólares de los Estados Unidos de América.
+2.- La obligación de adecuar los extremos económicos principales, actualizándolos a valor presente, en el mismo porcentaje en que haya variado el índice de precios para los consumidores del Área Metropolitana que lleve el órgano oficial encargado de determinar ese porcentaje, entre el mes anterior a la presentación de la demanda y el precedente a aquel en que efectivamente se realice el pago.
+El cálculo de intereses se hará sobre los montos condenados o resultantes después de su liquidación, antes de ser llevados a valor presente, y luego se hará la adecuación indicada en el último párrafo, únicamente sobre los extremos principales.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

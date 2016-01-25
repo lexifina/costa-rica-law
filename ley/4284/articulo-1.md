@@ -1,4 +1,6 @@
+(Derogado)
 N° 4284
+(Esta norma fue derogada por el artículo 4° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
 (Nota de Sinalevi: Mediante el artículo 2° de la ley “Crea Tribunal Segundo de Trabajo de Menor Cuantía y reforma Ley que Regula el Proceso Laboral en Negocios de menor Cuantía”, se establece que el nuevo Tribunal se regirá en todo por la ley Nº 4284 de 16 de diciembre de 1968, excepto en lo referente a sus transitorios)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:

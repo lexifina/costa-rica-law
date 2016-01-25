@@ -1,1 +1,2 @@
-ARTICULO 483.- No podrán las partes recusar a los peritos, pero el Juez podrá reponerlos en cualquier momento si llegare a tener motivo para dudar de su imparcialidad o de su falta de pericia, sea por propia convicción o por gestiones de la parte perjudicada.
+Artículo 483.- En el supuesto de atribución específica de la carga procesal a los empleadores, señalados en el inciso final del artículo 478, los tribunales tendrán facultades suficientes para requerir todas las pruebas que el caso amerite y valorarán la verosimilitud de las aserciones de la demanda con prudencia, de modo que impidan cualquier abuso derivado de esa atribución.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)

@@ -1,1 +1,6 @@
-ARTICULO 441.- Las recusaciones de los funcionarios subalternos se tramitarán y resolverán por el Tribunal de Trabajo que conozca del negocio, de acuerdo con las reglas de los artículos anteriores, en lo que fueren aplicables, y contra lo resuelto no cabrá recurso alguno.
+Artículo 441.- La competencia subjetiva se regirá por lo dispuesto en la legislación procesal civil y la Ley N.° 7333, Ley Orgánica del Poder Judicial, de 5 de mayo de 1993; pero los jueces de trabajo, además de las causales indicadas en dicha legislación, estarán sujetos a inhibitoria en los procesos contra el Estado o sus instituciones, cuando:
+a) Hubieran participado en la conducta activa u omisa objeto del proceso o se hubieran manifestado previa y públicamente respecto de ellas.
+b) Tengan parentesco, dentro del tercer grado de consanguinidad o segundo de afinidad, con las autoridades de la jerarquía administrativa que participó en la conducta sometida a su conocimiento y decisión.
+c) Se encuentre en igual relación con la autoridad o con los funcionarios que hubieran participado en la conducta sometida a proceso o informado respecto de ella.
+d) Cuando en el momento de dictarse el acto que origina el proceso hayan formado parte como titulares de la jerarquía del órgano, organización o empresa que lo dictó, o cuando formen parte de uno u otras, aunque no hayan participado en la decisión.
+(Así reformado por el artículo 2° de la ley N° 9343 del 25 de enero de 2016, “Reforma Procesal Laboral”.)
