@@ -14,3 +14,4 @@ Procedimiento sustitutivo para la participación de corredores en venta de biene
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-12-01 | la propia norma |
+| 2 | 2016-01-25 | Reglamento 12051 (2016-01-25) |
