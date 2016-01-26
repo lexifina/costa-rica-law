@@ -1,0 +1,1 @@
+Artículo 3°—Sobre Honorarios Profesionales: Los montos a cobrar por servicios profesionales dependen de factores tales como: tamaño del área del proyecto (AP), tipo de uso de suelo en el AP, magnitud del proyecto, tiempo, entre otros.

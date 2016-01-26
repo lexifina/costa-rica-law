@@ -1,0 +1,1 @@
+Artículo 7°—Hora profesional. Se establece como tarifa mínima de cobro por la hora profesional ¢ 28.000,00 (veintiocho mil colones) o el equivalente en dólares estadounidenses, que los miembros del Colegio de Biólogos de Costa Rica deberán cobrar por la prestación de servicios privados en Ciencias Biológicas.

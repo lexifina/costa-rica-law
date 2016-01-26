@@ -1,0 +1,1 @@
+Artículo 14.—Consultorías. Se establece como tarifa mínima de cobro por consultorías de un mes consultor (20 días), un monto de ¢ 1.730.000,00 (un millón setecientos treinta mil colones) o el equivalente en dólares estadounidenses, más viáticos.

@@ -1,0 +1,1 @@
+Artículo 6°—Salario del Licenciado en Biología. El profesional en biología que ostente el grado académico de licenciatura devengará un monto mínimo de ¢ 615.083,69 (seiscientos quince mil ochenta y tres colones con sesenta y nueve céntimos); dicho monto será aumentado semestralmente de conformidad con el Decreto de Salarios Mínimos del Ministerio de Trabajo y Seguridad Social.

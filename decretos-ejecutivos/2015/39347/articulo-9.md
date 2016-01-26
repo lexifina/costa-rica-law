@@ -1,0 +1,1 @@
+Artículo 9°—Publicación de la Actualización de la Hora Profesional. El monto mínimo actualizado de la hora profesional deberá ser publicado en el Diario Oficial La Gaceta por el Colegio de Biólogos de Costa Rica y regirá a partir de su publicación.
