@@ -14,3 +14,4 @@ Reglamento de la Contraloría de Servicios
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-26 | la propia norma |
+| 2 | 2016-01-26 | Reglamento 8911 (2016-01-26) |

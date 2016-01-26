@@ -11,4 +11,5 @@ f. Referencia o elemento de prueba.
 g. En el caso de peticiones colectivas, además de cumplir los requisitos anteriores, deberán ser firmadas por todos los interesados.
 En caso de denuncias, se debe de solicitar toda la información anteriormente detallada y dicho planteamiento debe de presentarse con la respectiva firma del denunciante.
 Una vez recibida toda la información, la Contraloría de Servicios procederá a abrir el caso, el cual de requerirse y por su carácter especial, se podrá hacer consulta previa a la Asesoría Jurídica o a la Oficina de Seguridad Bancaria, posteriormente se direccionará al encargado de la Oficina o departamento denunciado, en aras de que el caso sea aclarado, atendido y solucionado.
-Tanto el seguimiento del caso, como la comunicación con el denunciante serán llevados a cabo por la Contraloría de Servicios.
+Los reportes realizados sobre inconformidades, denuncias, reclamos, sugerencias o felicitaciones de los clientes y/o usuarios, serán direccionadas por la Contraloría de Servicios a los funcionarios a cargo de las oficinas reportadas, con la finalidad de que se brinde una debida y oportuna atención de los mismos.
+(Así reformado el párrafo anterior en sesión N° 8911 del 26 de enero de 2016)
