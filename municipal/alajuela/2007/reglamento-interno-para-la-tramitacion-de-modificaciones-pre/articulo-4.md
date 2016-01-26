@@ -1,2 +1,0 @@
-Artículo 4, Niveles de aprobación. La aprobación de las modificaciones al presupuesto de egresos de la. Municipalidad clasificadas como de primer orden, corresponderá al Concejo Municipal. Las modificaciones de segundo orden serán aprobadas por quien ejerza el cargo de Alcalde Municipal y las de tercer orden por el coordinador del Proceso de Hacienda Municipal.
-(Así reformado mediante sesión N° 20 del 15 de mayo de 2007).
