@@ -1,2 +1,1 @@
-Artículo 21.—Los establecimientos dedicados al expendio de bebidas alcohólicas deberán permanecer cerrados los jueves y viernes Santos, el día anterior y el siguiente al día de las elecciones convocadas por el Tribunal Supremo de Elecciones; y cuando la Municipalidad así lo valore y disponga mediante acuerdo del Concejo Municipal.
-Pese a lo indicado, los negocios que expendan bebidas alcohólicas sin que esa sea su actividad principal, podrán permanecer abiertos en las fechas antes indicadas, siempre y cuando cierren la sección dedicada a la venta. Las autoridades de policía o la Sección de Inspección obligarán a cumplir con lo dispuesto en este artículo.
+Artículo 21.— (Derogado mediante sesión ordinaria N° 300 del 26 de enero del 2016)

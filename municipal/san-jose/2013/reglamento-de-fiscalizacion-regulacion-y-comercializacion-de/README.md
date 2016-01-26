@@ -16,3 +16,4 @@ Reglamento de fiscalización, regulación y comercialización de bebidas con con
 | 1 | 2013-06-10 | la propia norma |
 | 2 | 2014-02-11 | Reglamento municipal 198 (2014-02-11) |
 | 3 | 2015-10-20 | Reglamento municipal 286 (2015-10-20) |
+| 4 | 2016-01-26 | Reglamento municipal 300 (2016-01-26) |
