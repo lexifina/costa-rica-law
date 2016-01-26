@@ -15,3 +15,4 @@ Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trám
 | --- | --- | --- |
 | 1 | 2012-03-23 | la propia norma |
 | 2 | 2014-11-20 | Decreto Ejecutivo 38898 (2014-11-20) |
+| 3 | 2016-01-26 | Decreto Ejecutivo 39460 (2016-01-26) |
