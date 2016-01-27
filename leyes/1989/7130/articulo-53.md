@@ -1,7 +1,6 @@
 Sección segunda
 Recusación
-ARTÍCULO 53.- Causas.
-Son causas para recusar a cualquier funcionario que administra justicia:
+ARTÍCULO 53.- Causas. Son causas para recusar a cualquier funcionario que administra justicia:
 1) Todas las que constituyen impedimento conforme con el artículo 49.
 2) Ser primo hermano por consanguinidad o afinidad, concuñado, tío o sobrino por afinidad de cualquiera que tenga un interés directo en el asunto, contrario al del recusante.
 3) Ser o haber sido en los doce meses anteriores, socio, compañero de oficina o de trabajo o inquilino bajo el mismo techo del funcionario; o en el espacio de tres meses atrás, comensal o dependiente suyo.
@@ -15,3 +14,4 @@ Son causas para recusar a cualquier funcionario que administra justicia:
 Las opiniones expuestas o los informes rendidos por los juzgadores, que no se refieran al asunto concreto en que sean recusados, como aquellas que den con carácter doctrinario o en virtud de requerimiento de los otros poderes, o en otros asuntos de que conozcan o hayan conocido de acuerdo con la ley, no constituyen motivo de excusa ni de recusación.
 11) Haber sido el recusado perito o testigo de la parte contraria en el mismo asunto.
 12) Haber sido revocadas por unanimidad o declaradas nulas en los tribunales superiores tres o más resoluciones del recusado contra el recusante en un mismo asunto; pero dado este caso de recusación, podrá recusarse al juez en cualquier otro proceso que tenga el recusante ante el mismo funcionario.
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 001211 del 27 de enero de 2016, se interpretó este artículo en el sentido de que las causales no son taxativas, por lo que el órgano jurisdiccional competente deberá conocer y resolver cualquiera que sea planteada, debiendo acogerse cuando violente el derecho de las partes a un juez imparcial.)
