@@ -14,3 +14,4 @@ Normativa de requisitos para la inscripción como Médicos y Cirujanos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-22 | la propia norma |
+| 2 | 2016-01-27 | Reglamento 0 (2016-01-27) |

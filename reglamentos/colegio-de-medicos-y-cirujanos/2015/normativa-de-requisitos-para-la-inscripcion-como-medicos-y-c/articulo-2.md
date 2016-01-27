@@ -13,9 +13,11 @@ En el caso de los solicitantes extranjeros con menos de 5 años de vivir en Cost
 6) Diploma: Presentar original y copia el Diploma extendido por la institución académica formadora nacional o extranjera autorizada según la legislación del país para la emisión de estos diplomas y de reconocido prestigio en Licenciatura y Doctorado en Medicina.
 7) Curso de Ética: Los solicitantes deberán presentar original y copia del diploma que se extiende a los participantes del Curso de Ética y Responsabilidad Profesional del Médico.
 8) Reciprocidad: Sin perjuicio de lo que indica la Ley Orgánica en su artículo 7 inciso e) en relación al requisito de reciprocidad, quedan exonerados del cumplimiento de este requisito:
-a) Aquellos que ostenten el estatus migratorio de Residencia Permanente de Libre Condición.
+a) Aquellos que ostenten el estatus migratorio de residencia permanente de libre condición.
 b) Aquellos extranjeros que no tengan residencia permanente, pero que ostenten una condición migratoria de refugiado.
-c) Los extranjeros que tengan dos años de estar casado con cónyuge costarricense o bien que tengan al menos tres años de convivencia en unión de hecho, cumpliendo con los requisitos que establece el artículo 242 del código de familia.
+c) Los extranjeros que tengan dos años de estar casado con cónyuge costarricense o bien que tengan al menos tres años de convivencia en unión de hecho, cumpliendo con los requisitos que establece el artículo 242 del Código de Familia.
+d) Aquellos extranjeros que hayan cursado la carrera de Medicina y Cirugía en universidades costarricenses”.
 El requisito de reciprocidad establecido en la Ley Orgánica le será aplicable a aquellos solicitantes que no estén en ninguna de las condiciones anteriores, y que su intención de ingresar a nuestro país es con fines laborales.
+(Así reformado el inciso 8) anterior en sesión ordinaria 2016-01-27 del 27 de enero de 2016)
 9) Autenticaciones de documentos emitidos en el extranjero: Todos los atestados emitidos en el extranjero sin excepción, deberán ser presentados con las autenticaciones de las autoridades del país de origen, la del Cónsul o Embajador de Costa Rica en dicho país y la del Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica; o según lo establecido en el Convenio de la Haya Suprimiendo la Exigencia de Legalización de los Documentos Públicos Extranjeros del 05 de octubre de 1961 (Convenio de Apostilla) para los países firmantes.
 10) Traducción de documentos: Todo documento aportado en idioma distinto al español sin excepción, deberá venir con la traducción al español respectiva, hecha por un traductor oficial autorizado por el Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica.
