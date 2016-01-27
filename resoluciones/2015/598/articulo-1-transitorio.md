@@ -1,0 +1,2 @@
+Transitorio I: Por única vez a partir del 15 de febrero del 2016 se reservará el derecho de admisión para ingresar al Parque Nacional Chirripó durante los meses de abril y mayo del 2016 y a partir del 15 abril del 2016 se reservará para ingresar en los meses junio, julio y agosto y a partir del 15 de junio las reservaciones se podrán realizar hasta con seis meses de antelación, iniciando desde el primero de septiembre.
+Rige a partir de su publicación.
