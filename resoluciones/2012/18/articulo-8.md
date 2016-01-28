@@ -1,1 +1,0 @@
-Artículo 8º—La presente resolución sustituye el apartado denominado “Devolución de saldos acreedores las solicitudes de devolución” del “Manual de trámites del Ministerio de Hacienda”, publicado en el Alcance Nº 47 a La Gaceta Nº 127 del 3 de julio de 2002.

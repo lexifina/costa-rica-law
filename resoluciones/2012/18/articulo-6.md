@@ -1,1 +1,0 @@
-Artículo 6°—Otros requisitos. La Administración Tributaria podrá solicitar requisitos adicionales a los establecidos en esta resolución, siempre y cuando los mismos sean atinentes según la naturaleza del crédito.

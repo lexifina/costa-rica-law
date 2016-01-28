@@ -1,1 +1,0 @@
-Transitorio II.—Los interesados podrán formular la solicitud de devolución de créditos tributarios, en el formulario pre impreso D.402 “Solicitud de devolución de impuestos” mientras haya en existencia.
