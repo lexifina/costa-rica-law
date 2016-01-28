@@ -1,0 +1,1 @@
+Artículo 5°—Toda persona empleadora que contrate o subcontrate los servicios de otra u otras empresas para la ejecución de obra o servicio a tiempo determinado, debe solicitar, como requisito de contratación, que el intermediario cuente con su propia comisión, oficina o departamento, según corresponda.

@@ -1,0 +1,1 @@
+Artículo 29.—Las actas pueden ser asentadas tanto en hojas sueltas para uso electrónico, como en libros debidamente foliados, que estarán a disposición de las autoridades competentes, cuando así lo requieran.

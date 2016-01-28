@@ -1,0 +1,1 @@
+Artículo 14.—Para ser representante de las personas trabajadoras en la comisión se debe contar con una antigüedad no menor a los tres (3) meses, en forma ininterrumpida, laborando para la empresa o institución.

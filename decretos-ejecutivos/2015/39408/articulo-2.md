@@ -1,0 +1,1 @@
+Artículo 2°—Siendo la persona empleadora el principal responsable de la Salud Ocupacional de la empresa, la oficina o departamento dependerá del nivel superior jerárquico o gerencial, sea en el sector público o en el sector privado.
