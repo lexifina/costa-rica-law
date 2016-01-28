@@ -1,0 +1,1 @@
+Artículo 39.—Las Asociaciones de Desarrollo Integral o Específicas y Juntas Administrativas y de Educación deberán presentar las liquidaciones en Planificación Institucional, dentro del plazo establecido en los artículos anteriores.

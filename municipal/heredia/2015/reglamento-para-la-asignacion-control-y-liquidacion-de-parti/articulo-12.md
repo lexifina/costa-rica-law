@@ -1,0 +1,1 @@
+Artículo 12.—Todo proyecto de obras de infraestructura que se incorpore al Presupuesto de la Municipalidad deberá contar con el visto bueno del Departamento de Desarrollo Territorial, el cual verificará los requisitos técnicos que debe cumplir el proyecto para su ejecución.

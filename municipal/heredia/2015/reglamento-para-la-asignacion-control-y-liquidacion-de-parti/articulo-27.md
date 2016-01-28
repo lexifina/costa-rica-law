@@ -1,0 +1,1 @@
+Artículo 27.—Las organizaciones beneficiadas contarán con un período de un año para ejecutar y liquidar las partidas, el cual iniciará a partir del momento en que haga el primer retiro de los fondos o la trasferencia respectiva.

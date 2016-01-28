@@ -1,0 +1,1 @@
+Artículo 41.—Para aquellos proyectos no relacionados con obras de infraestructura, como es el caso de compra de bienes, además de lo solicitado en los artículos precedentes, Planificación Institucional realizará una inspección, con el fin de verificar la existencia de los bienes para lo cual dejará constancia tanto de la inspección como fotográfica en el expediente respectivo.

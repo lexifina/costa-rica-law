@@ -1,0 +1,1 @@
+Artículo 37.—Planificación Institucional mediante matriz establecerá el grado de detalle, la cantidad y la forma de presentación de la información que a su juicio requiera para evaluar el uso del beneficio concedido.

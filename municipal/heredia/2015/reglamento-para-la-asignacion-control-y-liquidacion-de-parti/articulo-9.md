@@ -1,0 +1,1 @@
+Artículo 9º—Una vez aprobados los presupuestos por la Contraloría General de la Republica, la Municipalidad comunicará a las Asociaciones de Desarrollo Integral, Específicas o similares y las Juntas Administrativas de Colegios y Juntas de Educación de Escuelas beneficiadas el nombre y monto de las partidas asignadas.

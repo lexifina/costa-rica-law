@@ -1,0 +1,5 @@
+Artículo 8º—Para la asignación de recursos municipales en proyectos solicitados por la comunidad, independientes al proceso de presupuesto participativo, se deberán de presentar las solicitudes ante la Alcaldía Municipal, la cual se regirá por los siguientes pasos:
+a) Alcaldía Municipal, valora y remite las solicitudes al Concejo de Distrito para que analice junto con la comunidad el proyecto.
+b) Concejo de Distrito una vez analizado el proyecto con la comunidad, le solicita a la misma el Perfil del Proyecto, de acuerdo al formulario establecido por la Municipalidad, dentro del plazo que ellos establezcan y lo remite junto con el acuerdo del Concejo de Distrito al Departamento de Planificación Institucional.
+c) Planificación Institucional remite copia del perfil del proyecto a la Dirección de Inversión Pública para que ejecute el proyecto cuando se cuente con el contenido presupuestario o indique el monto que se requiere para que la Dirección Financiera Administrativa asigne los recursos.
+d) La Dirección de Inversión Pública deberá informar a Planificación el monto asignado al proyecto a fin de que se registre en el control respectivo.

@@ -1,0 +1,1 @@
+Artículo 3º—Planificación Institucional verificará los documentos aportados para determinar el cumplimiento de requisitos legales y reglamentarios. Una vez que haya cumplido con los requisitos solicitados se elevará al Concejo Municipal para que apruebe o deniegue la solicitud.

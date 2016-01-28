@@ -1,0 +1,1 @@
+Artículo 31.—En casos muy calificados se podrá solicitar al Concejo Municipal, el cambio de destino de la partida, aplicando el procedimiento vigente. Corresponde al Concejo Municipal la aprobación o rechazo de la solicitud planteada.

@@ -1,0 +1,1 @@
+Artículo 22.—Cuando los recursos hayan sido retirados por la organización el Departamento de Tesorería remitirá copia del cheque o trasferencia del primer desembolso a Planificación Institucional, con el fin de registrar el inicio del plazo de ejecución de la partida y copia de los demás desembolsos para control y seguimiento.

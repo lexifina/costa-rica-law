@@ -1,0 +1,1 @@
+Artículo 4º—La calificación de idoneidad tendrá una vigencia de dos años. No obstante los cambios de miembros de la Junta Directiva deberán comunicarse a Planificación Institucional a fin de actualizar el expediente que se tenga para este efecto.

@@ -1,0 +1,1 @@
+Artículo 25.—El Departamento de Desarrollo Territorial remitirá informe final del proyecto a cada organización con copia al Departamento de Planificación Institucional, para poder dar por liquidada la partida.

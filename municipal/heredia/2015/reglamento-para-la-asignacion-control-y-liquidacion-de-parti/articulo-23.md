@@ -1,0 +1,1 @@
+Artículo 23.—Una vez otorgado el Permiso de Construcción, el Departamento de Desarrollo Territorial coordinará con el responsable del Proyecto o de la Organización para que se inicie el proceso de seguimiento e inspección de los proyectos e implemente la utilización de una bitácora para cada proyecto, la cual debe permanecer en la obra.

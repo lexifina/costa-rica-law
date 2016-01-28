@@ -1,0 +1,1 @@
+Artículo 16.—Cuando se trate de proyectos de capacitación o contratación de servicios que implican la compra de servicios o artículos de diferente clasificación, donde no se puede realizar un solo proceso de contratación, Planificación Institucional verificará que se cumpla con el procedimiento dicho, para determinar si deben de presentar la adjudicación respectiva.

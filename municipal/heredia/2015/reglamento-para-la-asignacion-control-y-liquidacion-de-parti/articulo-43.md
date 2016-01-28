@@ -1,0 +1,1 @@
+Artículo 43.—Aquellas liquidaciones presentadas con errores o incompletas, Planificación Institucional les otorgará un plazo de 15 días naturales, luego de la notificación, para la subsanación de las mismas.

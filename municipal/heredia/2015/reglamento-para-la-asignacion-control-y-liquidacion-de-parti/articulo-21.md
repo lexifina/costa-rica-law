@@ -1,0 +1,1 @@
+Artículo 21.—Una vez que se obtenga el visto bueno por parte del Departamento de Desarrollo Territorial, se deberá solicitar el visto bueno al Departamento de Planificación Institucional para lo cual deberá dejar copia de todos los documentos y presentar la solicitud de giro al Departamento de Presupuesto para su trámite, adjuntando además copia de la personería jurídica vigente.
