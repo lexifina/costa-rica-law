@@ -1,0 +1,19 @@
+COLEGIO DE CONTADORES PÚBLICOS DE COSTA RICA
+Informa:
+MANUAL PARA EL TRÁMITE DE INSCRIPCIÓN,
+ACTUALIZACIÓN Y DESINSCRIPCIÓN DE
+DESPACHOS DE CONTADORES PÚBLICOS
+CAPÍTULO I
+De la inscripción
+Artículo 1º—El presente Manual regula el trámite de las solicitudes de inscripción de Despachos de Contadores Públicos, de conformidad con los artículos 6° de la Ley N°1038 y artículo N°7 del Reglamento a la Ley, y por así disponerlo el Tribunal de Casación de lo Contencioso Administrativo y Civil de Hacienda, a las catorce horas 19 de julio de 2013, según expediente de 10- 002168-1027-CA.
+Artículo 2º—Las solicitudes para inscripción se harán en el formulario que pone a disposición el Colegio en su página web y deberán acompañarse de la documentación que allí se señale y contemplará una declaración del representante legal del Despacho que indicará el cumplimiento de los aspectos mínimos del Control de Calidad según la Normativa Internacional aplicable, caso contrario el Despacho deberá aceptar la propuesta de Implementación de Control de Calidad del Colegio de Contadores Públicos, misma que se enfoca en estándares mínimos de la Norma Internacional de Control de Calidad N° 1. Toda solicitud de inscripción de Despachos solo la podrá realizar Contadores Públicos Autorizados debidamente al día con sus obligaciones.
+Todas aquellas solicitudes que no aporten la documentación solicitada se le otorgara un plazo de 10 días hábiles para lo correspondiente, de no cumplirse con esto se rechazará dicha solicitud.
+Artículo 3º—Las solicitudes se presentarán en las oficinas del Colegio y serán resueltas en un plazo de treinta días naturales.
+Artículo 4º—El acto final sobre la inscripción del Despacho será dictado por la junta directiva, y únicamente tendrá los recursos de revocatoria ante la junta directiva y apelación en subsidio ante la asamblea general.
+Artículo 5º—Forma de pago: Se debe cancelar por una única ocasión los derechos de inscripción, que serán de un 25% de un salario base, y, posteriormente cubrir anualmente el derecho de licencia correspondiente, comprendiendo el periodo del 1 de enero al 31 de diciembre de cada año o fracción de año a la fecha de su inscripción. El Colegio pondrá a disposición en la página web el formulario para que cada Despacho de Contadores Públicos debidamente inscrito, lo actualice anualmente a más tardar el 30 de noviembre y cancele la cuota de dicha licencia a más tardar el 28 de febrero del año siguiente. El monto por licencia que debe cancelarse al Colegio será tomando como referencia el salario base de acuerdo con lo que indica el artículo 2) de la Ley 7337; para los despachos pequeños o de reciente ingreso pagará el cincuenta por ciento del salario base; para los Despachos medianos o con una representación de Firma de Contadores Públicos local o internacional un salario base y de dos salarios base para aquellos Despachos grandes con representación de Firma extranjera o que cuenten con más de quince funcionarios directos o indirectos.
+CAPÍTULO II
+De la desinscripción
+Artículo 6º—Los despachos que se encuentren atrasados por una cuota, se procederá, mediante prevención debidamente fundada para que cancele lo adeudado, de no cumplir con el respectivo pago se procederá a su desinscripción.
+Artículo 7º—La resolución de desinscripción será dictada por la junta directiva y tendrá los recursos de revocatoria y apelación.
+Se deroga los acuerdos de junta directiva 565-2002 del 25 de noviembre de 2002 y acuerdo 545-2013 de la sesión ordinaria N° 21-2013 del 28 de octubre de 2013.
+Aprobado por junta directiva en la sesión ordinaria Nº 09- 2014, del 28 de abril del 2014, mediante acuerdo de junta directiva Nº 239-2014 y reformado por addéndum aprobado mediante acuerdo N° 480-2015 SO.23 Sesión ordinaria Nº 23-2015, celebrada el 27 de julio de 2015.
