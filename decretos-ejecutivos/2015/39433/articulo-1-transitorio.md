@@ -1,0 +1,1 @@
+Transitorio I.—Todo producto que haya solicitado un trámite de inscripción, renovación o un cambio post registro y el mismo no haya sido evaluado a la entrada en vigor del presente decreto, podrá acogerse a las presentes disposiciones.
