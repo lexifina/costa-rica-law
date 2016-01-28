@@ -1,1 +1,0 @@
-Artículo 28.—Exclusión a la excepción anterior: se excluyen del artículo anterior las vacaciones, incapacidades por maternidad, operaciones o tratamientos médicos programados con anterioridad a la fecha del Adelanto, permisos con o sin goce de salario, amonestaciones y giras programadas, o cualquier otra situación que sea previsible.

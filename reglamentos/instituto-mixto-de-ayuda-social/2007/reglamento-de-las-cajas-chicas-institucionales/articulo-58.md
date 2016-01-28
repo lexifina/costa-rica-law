@@ -1,2 +1,0 @@
-Artículo 58.—De la responsabilidad de la unidad de presupuesto: La Unidad de Presupuesto es responsable de asesorar, y fiscalizar las transacciones realizadas al amparo del presente Reglamento para verificar que se ejecuten apegadas a las disposiciones y procedimientos que en materia de ejecución presupuestaria se requieren.
-(Así reformado mediante acuerdo N° C.D. 181, acta N° 38-08, artículo cuarto de sesión celebrada el 19 de mayo de 2008)

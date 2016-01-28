@@ -1,1 +1,0 @@
-Artículo 59.—De la responsabilidad de la unidad de contabilidad: Tiene la responsabilidad de atender en tiempo y forma las acciones de su competencia para cumplir con los requerimientos que presenten las dependencias que administren Fondos de Caja Chica; así como asesorar y evacuar consultas de los funcionarios que administran Fondos de Caja Chica.

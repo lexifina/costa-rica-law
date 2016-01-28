@@ -1,2 +1,0 @@
-Artículo 61.—De los resultados de las revisiones financieras: Mediante informe escrito, se expondrá al Titular Subordinado y al Superior Jerárquico Inmediato del Administrador del Fondo de Caja Chica, los resultados del estudio. Además se emitirán las recomendaciones que se consideren pertinentes y de mutuo acuerdo, las cuales son de cumplimiento obligatorio.
-(Así reformado mediante acuerdo N° C.D. 181, acta N° 38-08, artículo cuarto de sesión celebrada el 19 de mayo de 2008)

@@ -1,1 +1,0 @@
-Artículo 42.—De la anulación de los adelantos ingresados en el SAP R/3: Al funcionario que le aparezca un adelantos de Caja Chica ingresado en el sistema SAP R/3 y el retiro de dinero no se haya realizado; previo al trámite de otro Adelanto deberá proceder a anularlo. De lo contrario no se le hará entrega del dinero solicitado.

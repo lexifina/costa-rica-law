@@ -1,1 +1,0 @@
-Artículo 35.—Del tipo de moneda: En el caso de que los Proveedores tengan los precios establecidos en otro tipo de moneda que no sea la moneda de curso legal vigente-colones costarricenses-se le debe solicitar que indiquen en la factura el tipo de cambio que está aplicando y/o el importe en colones.

@@ -1,1 +1,0 @@
-Artículo 71.—De la vigencia: El presente Reglamento, previo a su publicación deberá ser sometido a la aprobación de los Órganos internos correspondientes y su vigencia empezará a regir en el momento que salga publicado en el Diario Oficial La Gaceta.

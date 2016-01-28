@@ -1,1 +1,0 @@
-Artículo 27.—Excepciones a los plazos de liquidación: Se exceptúan del artículo anterior, aquellos casos en los que, el funcionario responsable de liquidar, le sea extendida una incapacidad médica imprevista, para tal efecto debe adjuntar fotocopia de la incapacidad en la liquidación respectiva.

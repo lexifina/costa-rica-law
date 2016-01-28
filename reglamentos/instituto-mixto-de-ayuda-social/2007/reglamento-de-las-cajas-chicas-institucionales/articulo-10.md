@@ -1,2 +1,0 @@
-Artículo 10.—Del monto máximo del adelanto: Corresponde al Coordinador(a) del Área de Apoyo y Asesoría Financiera, definir la suma máxima de dinero que se puede adelantar para realizar la adquisición de bienes y servicios o reconocimiento de viáticos y Transporte bajo la modalidad de Caja Chica.
-Dichas sumas y sus montos deberán ser sometidos a la valoración y aprobación de la Subgerencia Administrativa Financiera

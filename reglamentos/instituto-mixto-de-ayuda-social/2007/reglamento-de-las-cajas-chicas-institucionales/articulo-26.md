@@ -1,1 +1,0 @@
-Artículo 26.—De la no aceptación de liquidaciones de adelantos de caja chica fuera de plazo: El funcionario que omita presentar la liquidación en la forma, términos y plazos establecidos no se le reconocerán los gastos efectuados y el importe total del anticipo debe ser reintegrado. Además se expondrá a las sanciones disciplinarias que se determinen mediante el debido proceso.

@@ -1,1 +1,0 @@
-Artículo 41.—De la eficacia para los gastos imprevistos: Los gastos indicados en el artículo anterior quedan sujetos a que exista disponibilidad presupuestaria al momento de solicitar el reintegro para que puedan hacerse efectivos. De lo contrario la institución no podrá reconocer el gasto.

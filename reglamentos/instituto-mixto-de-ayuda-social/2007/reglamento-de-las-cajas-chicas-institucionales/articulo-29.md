@@ -1,1 +1,0 @@
-Artículo 29.—De los adelantos pendientes de liquidar: No se permitirá la realización de un nuevo Adelanto, cuando el funcionario tenga otro Adelanto pendiente de liquidar por el mismo concepto de gasto. Entendiéndose por conceptos a) viáticos, b) adquisición de bienes y servicios.
