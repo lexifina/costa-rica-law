@@ -1,0 +1,2 @@
+ARTÍCULO 35. RESOLUCIÓN Y ALCANCES.
+Una vez oficializada la denuncia, el TEUTN resolverá en forma sumaria y privilegiada. Para ello, deberá obtener los informes y ordenar la prueba que considere oportuna, dentro del plazo improrrogable de siete días hábiles. Si la recusación es aceptada, el recusado queda separado del TEUTN para ese proceso y entrará a fungir el suplente. Si la recusación se rechaza, solo cabe el recurso de reposición.

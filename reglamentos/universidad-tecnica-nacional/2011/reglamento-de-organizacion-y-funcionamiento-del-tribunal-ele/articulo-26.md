@@ -1,3 +1,2 @@
-ARTICULO 26.- Normas principales y supletorias.
-El Tribunal Electoral Universitario se regirá en todas sus actuaciones por lo que dispone el Estatuto Orgánico de la Universidad Técnica Nacional, este Reglamento, y el reglamento o reglamentos que regulen la materia electoral en la Universidad. En materia de impedimentos, excusas, abstenciones y recusaciones, se aplicarán las disposiciones contenidas en los artículos 230, siguientes y concordantes de la Ley General de la Administración Pública.
-Supletoriamente, yen general, se aplicará el Código Electoral y la Ley General de la Administración Pública, en lo que corresponda y sea compatible con la organización y funciones del Tribunal.
+ARTÍCULO 26. NORMAS PRINCIPALES Y SUPLETORIAS.
+El TEUTN Electoral Universitario se regirá en todas sus actuaciones por lo que dispone el Estatuto Orgánico de la Universidad Técnica Nacional, este Reglamento, y el reglamento o reglamentos que regulen la materia electoral en la Universidad. Supletoriamente, se aplicará el Código Electoral y la Ley General de la Administración Pública, en lo que corresponda y sea compatible con la organización y funciones del TEUTN.

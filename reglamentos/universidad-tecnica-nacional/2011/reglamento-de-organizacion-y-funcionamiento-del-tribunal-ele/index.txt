@@ -1,3 +1,11 @@
+articulo-37.md
+articulo-38.md
+articulo-39.md
+articulo-40.md
+articulo-41.md
+articulo-42.md
+articulo-43.md
+articulo-44.md
 articulo-1.md
 articulo-2.md
 articulo-3.md
@@ -25,3 +33,12 @@ articulo-24.md
 articulo-25.md
 articulo-26.md
 articulo-27.md
+articulo-28.md
+articulo-29.md
+articulo-30.md
+articulo-31.md
+articulo-32.md
+articulo-33.md
+articulo-34.md
+articulo-35.md
+articulo-36.md

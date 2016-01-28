@@ -1,0 +1,4 @@
+Artículo 40. CONFORMACIÓN DE LA COMISIÓN DISCIPLINARIA Y DE APOYO ELECTORAL
+La Comisión estará integrada por un Coordinador Delegado de cada Sede y Centro que será nombrado por el TEUTN en pleno y estará compuesto por un Representante del Sector Docente, un Representante del Sector Administrativo y un Representante del Sector Estudiantil, siendo electos por el Consejo de Sede y Consejo Técnico.
+Cada uno de estos miembros deberá tener su respectivo suplente y por lo menos uno deberá contar con conocimientos en el campo jurídico preferiblemente.
+Todos los integrantes de la Comisión serán neutrales en todas las decisiones competentes en materia electoral y quienes representen el sector administrativo y docente se nombrarán por un periodo de dos años, con excepción del estamento estudiantil que estará nombrado por un año.

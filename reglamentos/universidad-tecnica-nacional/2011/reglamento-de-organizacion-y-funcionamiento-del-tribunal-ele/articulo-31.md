@@ -1,0 +1,3 @@
+ARTÍCULO 31. OBLIGACIÓN Y PROCEDIMIENTOS PARA INHIBIRSE.
+Cuando exista una causal de impedimento por parte de un miembro del TEUTN sobre un asunto determinado, este deberá inhibirse de conocer el mismo. El incumplimiento será calificado como falta grave y será causal de remoción.
+Cuando un miembro del TEUTN estuviere impedido para conocer un asunto, conforme a las causales establecidas en este Reglamento, deberá inhibirse de inmediato. Los otros miembros titulares harán la declaratoria respectiva, para que el suplente entre en funciones. El miembro impedido podrá participar en los otros procesos en los que no exista causal de inhibición.
