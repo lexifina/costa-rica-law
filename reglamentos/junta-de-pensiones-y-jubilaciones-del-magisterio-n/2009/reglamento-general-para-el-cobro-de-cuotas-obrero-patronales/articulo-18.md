@@ -1,1 +1,2 @@
-Artículo 18.—Notificación final. La notificación de la resolución final podrá hacerse personalmente al patrono o sus representantes, o por medio de telegrama, carta certificada en la residencia, lugar de trabajo, facsímil o correo electrónico, si constan en el expediente del Centro Educativo. De igual forma, se aplicará para este acto lo indicado en el artículo 15 de este Reglamento.
+Artículo 18.—Notificación final. La notificación de la resolución final podrá hacerse por el medio señalado, de lo contrario, se procederá conforme con lo indicado en el segundo párrafo del artículo 15 de este reglamento.
+(Así reformado en sesión N° 011 del 28 de enero de 2016)
