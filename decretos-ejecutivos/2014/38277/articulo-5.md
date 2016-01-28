@@ -1,16 +1,15 @@
-Artículo 5.- Efectos de la solidaridad y procedimiento.
-1) Los efectos de la solidaridad son:
-a) La obligación puede ser exigida total o parcialmente a cualquiera de los deudores, a elección de la Administración Tributaria, de forma simultánea o sucesiva.
-b) El pago efectuado por uno de los deudores libera a los demás.
+Artículo 5.- Responsables solidarios por incumplimiento de deberes
+Son responsables solidarios los patronos, entidades u oficinas públicas o privadas que realicen los pagos cuando no ejecuten el embargo preventivo teniendo el deber de hacerlo o no depositen lo retenido, por motivo de un embargo decretado por la Oficina de Cobros del Ministerio de Hacienda para que se retenga a favor del Fisco los salarios, dietas, pensiones, jubilaciones, comisiones y cualquier otra remuneración o crédito en dinero efectivo que deba percibir o en el que fuere acreedor el deudor; sin perjuicio de la sanción establecida en el artículo 98 del Código.
+En los casos descritos en el párrafo anterior, la responsabilidad solidaria recae sobre su propio patrimonio. Esta se extiende hasta por el valor de los bienes embargados, siempre y cuando no superen el monto de las deudas tributarias de que se trate, en cuyo caso responden por el monto de la misma.
+El monto de las deudas tributarias abarca el principal más recargos a la fecha de comunicarse el decreto de embargo al responsable solidario.
+1. Los efectos de la solidaridad son:
+a) La obligación tributaria puede ser exigida total o parcialmente a cualquiera de los deudores, a elección de la Administración Tributaria, de forma simultánea o sucesiva.
+b) El pago efectuado por uno de los deudores libera a los demás de la obligación tributaria.
 c) El cumplimiento de un deber formal por parte de uno de los obligados no libera a los demás, cuando sea de utilidad para la Administración Tributaria que los otros obligados lo cumplan.
-d) La exención o remisión de la obligación libera a todos los deudores, salvo que el beneficio haya sido concedido a determinada persona. En ese caso, la Administración Tributaria puede exigir el cumplimiento a los demás con deducción de la parte proporcional del beneficiado.
+d) La exención o remisión de la obligación tributaria libera a todos los deudores, salvo que el beneficio haya sido concedido a determinada persona. En ese caso, la Administración Tributaria puede exigir el cumplimiento a los demás con deducción de la parte proporcional del beneficiado.
 e) Cualquier interrupción de la prescripción en favor o en contra de uno de los deudores, favorece o perjudica a los demás.
 f) En las relaciones privadas entre contribuyentes y responsables, la obligación se divide entre ellos y quien haya efectuado el pago puede reclamar de los demás el total o una parte proporcional, según corresponda.
 g) Si alguno fuere insolvente, su porción se debe distribuir a prorrata entre los otros.
-2) Para iniciar el procedimiento de cobro en contra de un responsable solidario por una deuda tributaria, es necesario poner en su conocimiento las actuaciones llevadas a cabo contra el deudor principal, tan pronto como la Administración Tributaria se entere de su existencia como responsable solidario, en cuyo caso le será aplicable el procedimiento previsto en el artículo 153 de este Reglamento para presentar los alegatos y pruebas que estime pertinentes, y en todo caso notificarle el acto administrativo que debe contener:
-a) El nombre del deudor.
-b) La resolución o documento de que se derive el crédito fiscal y el monto de este.
-c) Los motivos y fundamento legal por los que se le considera responsable del crédito.
-d) Para efectos del artículo 22 del Código, el monto correspondiente al valor del bien o derecho adquirido y la indicación expresa de que por esa misma cantidad deberá responder solidariamente ante la deuda líquida y exigible por la que responde solidariamente.
-e) Se entenderá como bien o derecho aquel que haya sido adquirido mediante compraventa, donación, cesión, permuta, mutuo, comodato, fideicomiso, consignación, arrendamiento, dación en pago, aportación en especie, fusión, escisión, permuta de acciones, entre otros.
-f) El plazo para el pago debe ser de quince días. Mediante resolución general se indicará el procedimiento específico para la determinación del valor del bien o derecho y los bienes y derechos adquiridos sobre los cuales se establecerá dicho valor.
+2. Previo a iniciar el procedimiento de cobro en contra de un responsable solidario de los descritos en los incisos a) y e) del artículo 4 ter de este Reglamento, es necesario que el gestor o auditor a cargo del procedimiento, ponga en conocimiento de aquél la existencia del procedimiento de determinación de oficio que se lleva a cabo contra el sujeto pasivo, a partir del momento en que la Administración Tributaria se entere de su existencia como posible responsable solidario, en cuyo caso tomará el proceso en el estado en que se encuentre y se le concederá una audiencia de diez días hábiles, a efecto de que pueda presentar los alegatos y pruebas que estime pertinentes.
+3. Una vez conocida la existencia de un deudor solidario en los supuestos del artículo 4 ter de este Reglamento, la Administración Tributaria iniciará el procedimiento de cobro en contra del responsable solidario, conforme a los artículos 192 y 195 del Código.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 39673 del 28 de enero del 2016)

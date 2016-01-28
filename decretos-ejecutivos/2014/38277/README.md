@@ -14,3 +14,4 @@ Reglamento de Procedimiento Tributario
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-02 | la propia norma |
+| 2 | 2016-01-28 | Decreto Ejecutivo 39673 (2016-01-28) |
