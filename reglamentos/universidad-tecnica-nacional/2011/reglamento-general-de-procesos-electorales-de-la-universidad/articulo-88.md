@@ -1,4 +1,3 @@
-ARTÍCULO 88. SANCIONES PARA CANDIDATOS.
-Se procederá a la cancelación de la inscripción de un candidato, y a su exclusión del proceso electoral, sin perjuicio de la aplicación del régimen disciplinario general dispuesto en este Reglamento en los siguientes casos:
-a) Cuando se compruebe falsedad en los datos, documentos o información presentada para demostrar el cumplimiento de los requisitos de inscripción como candidato, establecidos por el Estatuto Orgánico.
-b) Cuando por más de tres veces, y después de haber sido apercibido en cada oportunidad, incumpla las normas sobre propaganda electoral establecidas en este Estatuto.
+CAPÍTULO VI. OBLIGATORIEDAD DEL VOTO
+ARTÍCULO 88. OBLIGATORIEDAD DE EMITIR EL VOTO
+Es obligatorio para los electores administrativos y académicos, presentarse a emitir el voto en la elección a que fueron convocados. Para los funcionarios universitarios el incumplimiento de esta disposición se considerará ausencia injustificada a la mitad de la jornada de trabajo de ese día, por lo que el TEUTN notificará a la instancia que compete para que proceda a aplicar sanción inmediata atinente.

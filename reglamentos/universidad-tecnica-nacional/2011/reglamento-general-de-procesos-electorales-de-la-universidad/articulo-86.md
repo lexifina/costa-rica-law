@@ -1,7 +1,9 @@
-ARTÍCULO 86. SANCIONES CONTRA MIEMBROS DE ORGANISMOS ELECTORALES.
-Sin perjuicio de la aplicación del régimen sancionatorio general, establecido en este Reglamento, a los miembros del TEUTN, miembros del Cuerpo de Delegados y miembros de Juntas Receptoras de Votos, se les aplicará inhabilitación absoluta para el ejercicio de cargos en organismos electorales hasta por cuatro años cuando:
-a) Hagan campaña proselitista durante el desempeño de sus funciones.
-b) Incumplan gravemente sus funciones.
-c) Por interés personal o político, realicen actos o dicten resoluciones evidentemente parciales o injustas.
-d) Deliberadamente permitan que una persona emita el voto haciéndose pasar por otra o que una persona emita el voto sin tener tal derecho.
-e) Contabilizaren a cualquier candidato votos nulos, o dejaren de contabilizar votos válidos. f) Coaccionaren al elector para que emita su voto a favor de una candidatura específica.
+ARTÍCULO 86. SANCIONES ESPECÍFICAS PARA LOS MIEMBROS DE JUNTAS RECEPTORAS DE VOTOS
+Los miembros de las Juntas Receptoras de Votos serán amonestados por escrito si incurren en alguna de las siguientes faltas:
+a) Sin causa justificada no se hicieren presentes al desempeño de sus funciones.
+b) No firmar al dorso las papeletas electorales en el momento de entregarlas a los votantes.
+c) Sin justa causa modifiquen el procedimiento de entrega de la documentación electoral ante el TEUTN.
+d) Abran una urna antes de que concluya el proceso de votación.
+e) Al cierre de la votación, procedan de modo distinto al establecido en este Reglamento.
+f) No se presente a la juramentación, salvo causa justificada.
+Adicionalmente, los miembros de las Juntas Receptoras de Votos se harán acreedores a las sanciones establecidas en el artículo 85 de este Reglamento.

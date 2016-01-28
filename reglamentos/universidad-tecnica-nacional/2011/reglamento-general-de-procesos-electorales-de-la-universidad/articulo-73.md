@@ -1,2 +1,7 @@
-ARTÍCULO 73. RECURSOS CONTRA lOS ACTOS DE lAS JUNTAS RECEPTORAS DE VOTOS O DE lOS DELEGADOS.
-Procederá el recurso de apelación ante el TEUTN contra las resoluciones y las actuaciones de los Miembros de las Juntas Receptoras de Votos y de los Delegados, siempre por razones evidentes y manifiestas de ilegalidad. Se interpondrá directamente ante el Tribunal, dentro de las veinticuatro horas siguientes a la resolución o actuación que se impugna, salvo que se trate de actos ocurridos o resoluciones emitidas en el mismo día de la votación, en cuyo caso el interesado podrá recurrir en ese mismo momento ante el Tribunal, el que deberá resolver lo que corresponda en forma directa e inmediata, siempre y cuando tenga la posibilidad real y efectiva de hacerlo en esa forma- En los demás casos, dictará la resolución que corresponda en el plazo de cinco días.
+CAPITULO VI. NULIDADES
+ARTÍCULO 73. ACTOS NULOS.
+Son actos nulos los ocurridos bajo las siguientes circunstancias:
+a) Cuando se abran o se alteren las urnas, las papeletas, las actas o el padrón firmas durante el proceso de votación o posterior al mismo.
+b) La resolución, el acuerdo, el acto de una Junta Receptora de Votos que esté ilegalmente integrada, o que funcione en un lugar u hora diferente a los establecidos por el TEUTN.
+c) La elección que pueda recaer en una persona que no tenga la condición o los requisitos legales para ejercer el cargo, de conformidad con el Estatuto Orgánico.
+d) Los actos que estén evidentemente viciados de nulidad, de acuerdo con las causales establecidas en la Ley General de la Administración Pública.

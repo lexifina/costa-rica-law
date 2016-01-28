@@ -1,3 +1,2 @@
-ARTÍCULO 49. ACTAS DE APERTURA Y PROCEDIMIENTOS PREVIOS.
-Antes de iniciarse la votación, los miembros de las Juntas Receptoras de Votos revisarán contra lista de chequeo, previamente elaboradas y aprobadas por el TEUTN, el material electoral y consignarán el resultado del examen en el acta de apertura de las votaciones.
-Se colocarán en lugar visible para los electores, las copias de los padrones que reciban; igualmente tomarán todas las disposiciones que juzguen necesarias además de las establecidas por el Tribunal, a fin de que los electores puedan emitir su voto sin dificultad. Además deberán iniciar las votaciones a la hora indicada en la convocatoria.
+ARTICULO 49. PLAZO PARA EMITIR EL VOTO
+Cada elector dispondrá de un tiempo máximo de cuatro minutos para emitir su voto, independientemente del número de papeletas. El plazo anterior será ampliado a juicio de los miembros de mesa para el caso de las personas con algún tipo de discapacidad o condición que le impida emitir su voto en el periodo de tiempo establecido.

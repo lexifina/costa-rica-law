@@ -1,2 +1,0 @@
-TRANSITORIO SEGUNDO. DE LOS DIRECTORES EN LAS SEDES Y CENTROS DE LA UNIVERSIDAD TECNICA NACIONAL.
-Mientras no esté aprobada la estructura orgánica definitiva de la Universidad, los funcionarios de las Sedes y los centros que conserven el rango de director que ostentaban en los Colegios Universitarios y Centros fusionados, votarán conforme el artículo 9 inciso a) del Estatuto Orgánico de la Universidad.

@@ -1,4 +1,4 @@
-ARTICULO 70. APERTURA DEL ESCRUTINIO Y DECLARACIÓN OFICIAL DE LA ELECCIÓN DEL TEUTN.
-Cinco días hábiles después de efectuadas las elecciones, se realizará el escrutinio de estas y se dará la declaración oficial del resultado. La declaración será mediante resolución escrita y firmada por la totalidad de los integrantes del Tribunal.
-En caso de existir un recurso de nulidad sobre el proceso electoral, el escrutinio se realizará una vez resuelto dicho recurso. Asimismo, una vez emitida la declaración oficial del resultado de una elección, quedará firme a partir del momento mismo en que lo dicta el TEUTN. Contra este acto no cabe recurso alguno
-El comunicado oficial será entregado a los candidatos que participaron en el proceso electoral, las autoridades universitarias y, a la comunidad universitaria en general.
+CAPITULO IV. CANDIDATOS
+ARTÍCULO 70. RESPONSABILIDADES DE CANDIDATOS
+Todas las personas que puedan y participen en los procesos electorales de la UTN, deberán acogerse a las normas institucionales vigentes, así como el resto del ordenamiento costarricense.
+Los mismos podrán ser llevados a un procedimiento administrativo, el cual será realizado por la Comisión disciplinaria y de apoyo electoral, para gestionar una recomendación al TEUTN y este determine su mejor proceder.

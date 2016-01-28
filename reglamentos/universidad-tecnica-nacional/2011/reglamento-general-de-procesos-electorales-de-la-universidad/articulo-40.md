@@ -1,5 +1,3 @@
-ARTÍCULO 40. IGUALDAD DE CONDICIONES
-Para garantizar igualdad de condiciones a los candidatos el Tribunal sorteará:
-a) La ubicación del espacio físico que utilizará cada tendencia frente al recinto de votación, el día de las elecciones.
-b) La ubicación de la propaganda en los espacios generales que se ubiquen en las diferentes sedes.
-c) El orden de las fotografías de los candidatos en las papeletas, así como en los documentos informativos en general.
+ARTÍCULO 40. CIERRE DEL PERÍODO DE DIVULGACIÓN ELECTORAL
+A partir de las veinte horas del día hábil anterior a la elección, queda absolutamente prohibido cualquier tipo de divulgación electoral. El propio día de la elección la actividad de los candidatos y grupos interesados se limitará únicamente a brindar facilidades a los votantes para que ejerzan su derecho al sufragio y a incentivar el ejercicio de ese derecho.
+El día siguiente de cada elección los candidatos deberán retirar cualquier tipo de material electoral o propaganda, que se encuentre en la institución. En caso de incumplimiento de lo anterior la Administración procederá de inmediato con el retiro de la misma, sin que exista responsabilidad sobre la disposición de los bienes no despachados. Todo esto sin demérito de aplicación de otras sanciones contempladas en la normativa vigente.

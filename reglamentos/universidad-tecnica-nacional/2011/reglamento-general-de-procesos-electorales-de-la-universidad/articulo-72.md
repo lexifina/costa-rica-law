@@ -1,3 +1,3 @@
-CAPITULO III. RECURSOS
-ARTÍCULO 72. REVOCATORIA, ADICIÓN O ACLARACIÓN DE LAS RESOLUCIONES.
-Contra las declaratorias de elección emitidas por el Tribunal no cabrá recursos alguno. Contra las demás resoluciones del Tribunal, en la materia de su competencia, solo cabrá el recurso de revocatoria interpuesto dentro del plazo de veinticuatro horas y por razones evidentes y manifiestas de ilegalidad. Sin embargo, cualquier interesado podrá solicitar adición o aclaración de una resolución del Tribunal, dentro de los tres días hábiles a partir de la notificación de la resolución.
+ARTÍCULO 72. REVISIÓN DE LOS ACTOS DE LAS JUNTAS RECEPTORAS DE VOTOS O DE LOS DELEGADOS
+En los casos en que los electores difieran respecto de las actuaciones de las Juntas Receptoras de Votos y de los Delegados, dichos órganos deberán realizar de manera inmediata resguardando el derecho al voto las acciones necesarias en coordinación con las siguientes instancias: TEUTN, Registro Universitario y Dirección de Gestión del Desarrollo Humano, las cuales durante ese mismo día de la elección deberán determinar si el reclamo del elector es procedente o si se ratifica la decisión de la Junta Receptora de Votos y los Delegados.
+Para tales efectos el elector deberá acudir a la Comisión Disciplinaria y de Apoyo Electoral, la cual resolverá de forma inmediata.

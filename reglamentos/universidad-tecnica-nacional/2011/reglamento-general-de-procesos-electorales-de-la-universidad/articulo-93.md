@@ -1,3 +1,2 @@
-ARTÍCULO 93. MODIFICACIONES Al REGLAMENTO ELECTORAL.
-Par efectuar reformas totales o parciales a este Reglamento, el Consejo Universitario deberá consultar al TEUTN, de conformidad con lo establecido en el artículo 58, párrafo segundo del Estatuto Orgánico.
-El TEUTN tendrá un plazo de ocho días hábiles para pronunciarse sobre estas propuestas o las modificaciones solicitadas. Las reformas en todo caso se aplicarán a los procesos que aún no hayan sido convocados.
+ARTÍCULO 93. NORMATIVA SUPLETORIA
+En ausencia de alguna disposición expresa en el Estatuto Orgánico y en este Reglamento, se aplicarán supletoriamente en lo conducente, los principios generales y las normas concordantes del Código Electoral, la Ley General de Administración Pública y los principios generales del Derecho Electoral y de Derecho Público. La apreciación de los elementos de prueba se hará con base en las reglas de sana crítica.

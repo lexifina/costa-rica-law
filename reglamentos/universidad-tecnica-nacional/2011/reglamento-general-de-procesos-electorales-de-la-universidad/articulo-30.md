@@ -1,11 +1,3 @@
-ARTÍCULO 30. REQUISITOS PARA lAS CANDIDATURAS
-La persona interesada en presentar su candidatura para ocupar un cargo de elección, deberá cumplir con los requisitos establecidos para cargo específico en el Estatuto Orgánico de la Universidad Técnica Nacional.
-Adicionalmente, el interesado deberá presentar la siguiente documentación para formalizar su candidatura:
-a) Llenar en forma completar la boleta de inscripción del TEUTN, la que se presentará debidamente firmada por el candidato.
-b) Certificación de experiencia, cuando el cargo lo exija.
-c) Copia certificada de su título profesional, cuando no existiere en su expediente laboral, si fuere requisito para el puesto concreto.
-d) Fotografía reciente del candidato de tamaño pasaporte.
-e) Copia fotostática por ambos lados de la cédula de identidad, de residencia, del pasaporte o carné de refugiado.
-f) Declaración jurada mediante la cual el interesado se compromete a acatar y respetar estrictamente la normativa electoral.
-Para las candidaturas para representantes del Sector Productivo, ante el Consejo Universitario, los Consejos de Sede y los Consejos de Carrera, se deberá cumplir con lo establecido en el artículo 16, inciso f del Estatuto Orgánico de la Universidad Técnica Nacional y presentar la información establecida en este artículo.
-Una vez recibida la solicitud, el TEUTN verificará el cumplimiento de los requisitos de presentación de candidaturas de cada uno de los aspirantes y resolverá lo que corresponda.
+ARTÍCULO 30. RENUNCIA A UNA CANDIDATURA.
+En caso de que un candidato presente la renuncia a su postulación, deberá sufragar los gastos que su inscripción de candidatura le hayan ocasionado a la Universidad Técnica Nacional. El TEUTN determinará el monto correspondiente sumariamente y mediante resolución razonada lo comunicará a la Administración de la Universidad, para la ejecución del cobro correspondiente.
+Una vez realizada la declaratoria definitiva de candidatos, los mismos no podrán renunciar a su postulación, de realizarlo, deberán sufragar los gastos indicados en el párrafo anterior. Para lo cual, una vez obtenida la resolución cuantiosa administrativa, se le dará un plazo no mayor a 30 días para su respectiva cancelación total.

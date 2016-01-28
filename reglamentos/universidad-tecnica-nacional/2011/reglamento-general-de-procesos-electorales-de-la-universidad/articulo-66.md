@@ -1,4 +1,5 @@
-ARTÍCULO 66. CANTIDAD DE VOTOS REQUERIDOS PARA UNA ELECCIÓN
-la identificación de cual candidato resulta ganador en el proceso electoral, será efectuada bajo la jurisdicción del TEUTN y para tal efecto, se aplicarán las siguientes reglas:
-a) Será declarado ganador el candidato que obtenga el mayor número de votos, respetándose los porcentajes mínimos de elección establecidos en el Estatuto Orgánico para los diversos casos.
-b) En caso de que se trate de elegir varios cargos iguales en el mismo órgano, los candidatos que obtuvieren la mayoría de votos, respetando el principio de paridad en la representación de ambos géneros.
+ARTICULO 66. APERTURA DEL ESCRUTINIO Y DECLARACIÓN OFICIAL DE LA ELECCIÓN POR PARTE DEL TEUTN
+En un tiempo perentorio, el cual no deberá exceder de 20 días hábiles después de efectuadas las elecciones, se realizará el escrutinio de estas y se dará la declaración oficial del resultado. La declaración será mediante resolución escrita y firmada por al menos tres miembros del Tribunal.
+En caso de existir un recurso de nulidad sobre el proceso electoral, el escrutinio se realizará una vez resuelto dicho recurso. Asimismo, una vez emitida la declaración oficial del resultado de una elección, quedará firme a partir del momento mismo en que lo dicta el TEUTN. Contra este acto no cabe recurso alguno.
+El comunicado oficial será entregado a los candidatos que participaron en el proceso electoral, las autoridades universitarias y, a la comunidad universitaria en general.
+Las papeletas ubicadas en sobres, los cuales no fueron abiertos durante el proceso, se desecharán en el mismo acto del escrutinio, salvo situaciones especiales que justifiquen la custodia de las mismas.

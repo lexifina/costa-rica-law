@@ -1,2 +1,3 @@
-ARTÍCULO 77. AUDIENCIA PREVIA ANTES DE DECLARAR lA NULIDAD DE OFICIO.
-De previo a resolver cualquier solicitud de nulidad, se dará audiencia a todas las partes interesadas en la elección que se cuestiona, para que se pronuncien sobre la solicitud, y en caso de que corresponda, presenten las pruebas pertinentes dentro del plazo de cinco días hábiles.
+ARTÍCULO 77. TÉRMINOS Y PLAZOS PARA RESOLVER NULIDADES. NUMERACION…
+La solicitud de nulidad deberá resolverse a más tardar, dentro de los cinco días hábiles siguientes a la presentación de la petición. Contra la resolución que dicte el TEUTN no cabrá recurso alguno.
+Durante la elección la comisión disciplinaria de apoyo electoral puede recibir denuncias o actuar de oficio, para lo cual tendrá tres días posteriores si se presentan nulidades deberán gestarlas en un plazo no mayor a cinco días hábiles.

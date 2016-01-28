@@ -14,3 +14,4 @@ Reglamento General de Procesos Electorales de la Universidad Técnica Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-03-21 | la propia norma |
+| 2 | 2016-01-28 | Reglamento 2 (2016-01-28) |

@@ -1,2 +1,3 @@
-ARTÍCULO 18. INTEGRACIÓN DE LAS JUNTAS RECEPTORAS DE VOTOS.
-A la hora de integrar las Juntas Receptoras, el Tribunal designará al Presidente de cada una, siguiendo una secuencia rotativa entre los delegados de cada candidato.
+ARTÍCULO 18. OBLIGATORIEDAD DE EJERCER EL CARGO EN LAS JUNTAS RECEPTORAS DE VOTOS.
+Una vez realizada la juramentación de las Juntas Receptoras de Votos por parte del TEUTN o del Delegado Coordinador de la Sede o Centro, el cargo respectivo es de desempeño laboral obligatorio y el miembro no podrá renunciar, salvo por razones de fuerza mayor o caso fortuito, las cuales serán debidamente justificadas y aceptadas por el Tribunal.
+Los miembros de las Juntas Receptoras de Votos son responsables de la custodia y conservación del material electoral mientras dure el proceso correspondiente, este material será entregado al Delegado Coordinador de la Sede o Centro.

@@ -1,3 +1,3 @@
-CAPITULO II. DISPOSICIONES TRANSITORIAS
-TRANSITORIO PRIMERO. DE LOS PLAZOS PARA EL PROCESO ELECTORAL YA CONVOCADO.
-En las elecciones a efectuarse en el año 2011, el Tribunal no estará sujeto a los plazos establecidos en el reglamento para las convocatorias, los trámites y todos los procesos en general. El TEUTN podrá establecer un calendario especial para cada uno de los trámites y procesos, y regulará de modo especial cada uno de los plazos, de tal modo que se haga posible un proceso electoral ordenado y completo para la elección de Consejo Universitario y las demás autoridades de Sedes o Centros, antes del término del proceso de transición establecido en la ley.
+CAPÍTULO III. DISPOSICIONES TRANSITORIAS
+TRANSITORIO PRIMERO. DEL PROCESO ELECTORAL ESTUDIANTIL
+Considerando que todavía no está constituida la FEUTN, ni está aprobado legalmente su Estatuto, y para salvaguardar la participación estudiantil en los procesos electorales que han sido convocados, le corresponderá al TEUTN la organización y supervisión del proceso electoral estudiantil, tanto para la elección de los representantes estudiantiles como para la elección de las autoridades que corresponda. Para esos efectos, el Tribunal contará con la colaboración a las instancias que se requieran.

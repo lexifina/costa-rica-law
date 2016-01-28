@@ -1,6 +1,9 @@
-ARTÍCULO 90. PERÍODO Y CAUSALES PARA JUSTIFICAR lA NO EMISION DEL VOTO.
-Cuando se requiera justificar la ausencia de participación en un proceso electoral, el interesado deberá hacerlo por escrito ante el TEUTN antes de la elección o en los cinco días hábiles posteriores a la fecha de ésta. La justificación debe acompañarse con la prueba idónea y con la firma del jefe inmediato que avale la justificación. El TEUTN estudiará las solicitudes de excusa y determinará su validez con base en las siguientes causales:
-a) Incapacidad médica comprobada.
-b) la participación del funcionario en actividades en que ejerza la representación oficial de la Universidad, de tal modo que no pueda ausentarse de la actividad sin perjuicio para la institución.
-c) Por encontrarse de vacaciones.
-d) Justificación por motivos personales de fuerza mayor, que serán apreciados por el Tribunal con base en los principios de la sana crítica.
+CAPÍTULO VII. JURAMENTACIONES
+ARTÍCULO 90. JURAMENTACIONES
+El Tribunal Electoral Universitario realizará un acto solemne para la juramentación de los Delegados, Miembros de Mesa y los Fiscales de las diferentes tendencias, los cuales podrán ser juramentados por los Delegados Coordinadores.
+Para los Delegados Coordinadores y las Comisiones Disciplinarias de Apoyo Electoral, se gestará un acto de juramentación en las oficinas o lugar que el TEUTN designe.
+El Presidente del TEUTN juramentará al Rector en el acto de traspaso de funciones y poderes. El Rector a su vez juramentará a los miembros del Consejo Universitario, y a los Decanos de Sedes y Director de Centro, y éstos juramentarán a los miembros de los Consejos de Sede o de Centro, a los Directores de Carrera y a los miembros de los Consejos Asesores de Carrera respectivos.
+El texto de juramentación oficial será: “¿JURÁIS A DIOS Y PROMETEIS A LA PATRIA, Y A LA UNIVERSIDAD TÉCNICA NACIONAL, OBSERVAR Y DEFENDER LA CONSTITUCIÓN Y LAS LEYES DE LA REPUBLICA Y LOS PRINCIPIOS DE NUESTRO ESTATUTO ORGÁNICO, Y CUMPLIR FIELMENTE LOS DEBERES DE VUESTRO DESTINO ?
+SI, JURO.
+SI ASÍ LO HICIEREIS, QUE DIOS OS AYUDE, Y SI NO, QUE LA PATRIA Y LA UNIVERSIDAD TÉCNICA NACIONAL OS LO DEMANDEN.”
+De todo acto de juramentación deberá levantarse el acta respectiva.

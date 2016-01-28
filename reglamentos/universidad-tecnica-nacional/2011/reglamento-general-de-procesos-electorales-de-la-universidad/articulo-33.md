@@ -1,8 +1,4 @@
-ARTÍCULO 33. IDENTIFICACIÓN y FUNCIONES DE LOS FISCALES.
-Los Fiscales acreditarán su representación mediante un carné emitido por el TEUTN que consignará el nombre completo, el número de cédula, la Sede que corresponda, la naturaleza y la fecha del proceso electoral que se llevará a cabo, y el nombre del candidato que lo designa.
-Los Fiscales tienen las siguientes funciones y facultades:
-a) Formular por escrito los reclamos y los recursos que juzguen pertinentes.
-b) Permanecer en el recinto de las Juntas Receptoras de Votos.
-c) Solicitar a las Juntas Receptoras de Votos, constancias firmadas por todos sus miembros presentes, sobre el número de votos emitidos, en cualquier momento durante el proceso, o del resultado de la votación, al final de ella.
-d) Recibir copias oficiales de la declaratoria de la elección correspondiente.
-e) Estar presente con derecho a voz, en la sesión del TEUTN únicamente cuando se realice el escrutinio oficial de la elección en la que fungieron como fiscales.
+CAPÍTULO III. PROPAGANDA ELECTORAL
+ARTÍCULO 33. OBJETIVO Y DISPOSICIONES GENERALES
+El objetivo de este capítulo es brindar igualdad de condiciones de participación tanto a los electores en los procesos electorales como a los candidatos, según los principios contenidos en el artículo 4 del Estatuto Orgánico de la Universidad Técnica Nacional, en lo conducente.
+La propaganda deberá ser respetuosa de la integridad, el honor y la dignidad de las personas, y respetar igualmente los símbolos y valores de la Universidad Técnica Nacional y del país, así como los legítimos intereses públicos que debe satisfacer siempre la actividad universitaria en todos sus aspectos. En ningún caso podrá permitirse propaganda electoral que pueda causar daño a las personas o persiga la incitación a la violencia.

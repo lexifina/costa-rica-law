@@ -1,2 +1,3 @@
-ARTÍCULO 96. VIGENCIA.
-Este Reglamento rige a partir de su aprobación, y será divulgado por todos los medios posibles entre la comunidad universitaria.
+CAPITULO II.
+DISPOSICIONES VARIAS
+ARTÍCULO 96. Este reglamento deroga todas las normas establecidas anteriormente en la misma materia, que en alguna forma se opongan a lo aquí dispuesto.

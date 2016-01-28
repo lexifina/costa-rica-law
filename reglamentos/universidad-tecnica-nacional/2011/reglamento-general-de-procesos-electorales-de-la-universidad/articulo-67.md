@@ -1,2 +1,3 @@
-ARTÍCULO 67. CANDIDATO QUE NO OBTIENE LA MAYORÍA DE VOTOS REQUERIDA.
-Si ninguno de los candidatos obtuviere el mínimo de votos estatutariamente requerido, el TEUTN repetirá la elección dentro de los cinco días hábiles siguientes a la declaratoria, para lo cual se utilizará el mismo padrón electoral. Como candidatos figurarán únicamente los dos que hayan obtenido mayor número de votos.
+ARTÍCULO 67. SUSTITUCIÓN DE AUTORIDADES ELECTAS EN CASOS DE VACANTES DEFINITIVAS
+En la situación de que se produjere una vacante definitiva para el caso Titular, el suplente asumirá la titularidad hasta concluir el periodo para el cual fueron electos. La plaza del suplente quedará libre, no saldrá a elecciones, salvo que el nuevo titular dejase su plaza vacante definitivamente.
+Si el suplente dejase su vacante definitiva, el titular continuará en su labor sin suplente hasta finalizar el periodo. Si el titular dejase su vacante definitivamente, se convocará nuevamente a elección para ese único puesto por el periodo restante.

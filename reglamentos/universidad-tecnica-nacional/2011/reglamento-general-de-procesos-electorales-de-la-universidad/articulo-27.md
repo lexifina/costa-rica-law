@@ -1,2 +1,2 @@
-ARTÍCULO 27. DESIGNACIÓN DE lOS DELEGADOS POR ELECCIÓN
-Oportunamente, en cada proceso electoral, el TEUTN indicará los nombres de los Delegados que actuarán en cada recinto o centro de votación.
+ARTÍCULO 27. RESPONSABILIDAD DE LOS DELEGADOS
+Los delegados en el ejercicio de sus funciones y tareas, solo son responsables ante el TEUTN.

@@ -1,4 +1,3 @@
-TÍTULO IV. DISPOSICIONES FINALES Y TRANSITORIAS
-CAPÍTULO I. DISPOSICIONES FINALES
-ARTICULO 92. NOTIFICACIONES Y COMUNICACIONES ELECTORALES.
-Las notificaciones, y comunicaciones efectuadas por el Tribunal a la dirección de correo electrónico oficialmente asignada por la Universidad a sus trabajadores docentes o administrativos y a sus estudiantes, serán un medio plenamente válido y legalmente suficiente para notificar o comunicar sus resoluciones, acuerdos, convocatorias o informaciones electorales.
+ARTÍCULO 92. MODIFICACIONES AL REGLAMENTO ELECTORAL
+Par efectuar reformas totales o parciales a este Reglamento, el Consejo Universitario deberá consultar al TEUTN, de conformidad con lo establecido en el artículo 58, párrafo segundo del Estatuto Orgánico.
+El TEUTN tendrá un plazo de ocho días hábiles para pronunciarse sobre estas propuestas o las modificaciones solicitadas. Las reformas en todo caso se aplicarán a los procesos que aún no hayan sido convocados.

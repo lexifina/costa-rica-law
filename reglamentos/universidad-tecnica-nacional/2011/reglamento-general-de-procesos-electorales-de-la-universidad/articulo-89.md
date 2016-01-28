@@ -1,3 +1,2 @@
-CAPÍTULO VI. OBLIGATORIEDAD DEL VOTO
-ARTÍCULO 89. OBLIGATORIEDAD DE EMITIR El VOTO.
-Es obligatorio para los electores administrativos y docentes presentarse a emitir el voto en la elección a que fueron convocados. Para los funcionarios universitarios el incumplimiento de esta disposición se considerará ausencia injustificada a la jornada de trabajo de ese día, por lo que el TEUTN notificará a la instancia que compete para que proceda a aplicar sanción correspondiente.
+ARTÍCULO 89. PERÍODO Y CAUSALES PARA JUSTIFICAR LA NO EMISION DEL VOTO
+Cuando se requiera justificar la ausencia de participación en un proceso electoral, el interesado podrá hacerlo por escrito ante el TEUTN antes de la elección respectiva. En el caso de justificación posterior al día de la elección, la misma deberá presentarse dentro de los cinco días hábiles siguientes, ante la Dirección de Gestión de Desarrollo Humano.

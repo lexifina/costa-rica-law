@@ -1,2 +1,5 @@
-ARTÍCULO 47. URNAS ELECTORALES, UBICACIÓN E INFORMACIÓN PARA LOS VOTANTES
-Las urnas en donde se depositarán los votos, estarán colocadas al frente de la mesa de trabajo de la Junta Receptora de Votos, de modo que estén siempre bajo su control. El TEUTN tendrá la obligación de informar, por escrito, a cada candidato y a los miembros de la Asamblea Electoral, el lugar donde estarán ubicadas las urnas. Las unidades institucionales estarán obligadas a brindar al Tribunal la colaboración necesaria para la realización de las elecciones, tanto en infraestructura como con recurso humano.
+ARTICULO 47. REGISTRO DE VOTANTES EN EL PADRÓN DE FIRMAS.
+Para el control de votantes, se deberán seguir los siguientes pasos:
+a) De previo a entregar las papeletas al elector, la Presidencia de la Junta pasará una línea sobre el nombre del elector, quien deberá firmar en el acto. Si el elector se niega a firmar no podrá votar.
+b) Si un elector no firma, ninguna persona de la Junta podrá hacerlo en su lugar. No obstante se hará la indicación respectiva en el Registro de Acontecimientos y en el Padrón de Firmas.
+c) Si un elector firma en un espacio que no le corresponde, de inmediato se hará la anotación correspondiente en el Registro de Acontecimientos de la Junta y en el Padrón de Firmas. El elector al que le correspondería firmar en el espacio ya utilizado, deberá firmar junto a su nombre.

@@ -1,2 +1,2 @@
-ARTICULO 45. INICIO DE LA VOTACIÓN DESPUES DE LA HORA DE LA CONVOCATORIA
-Si por cualquier razón se da inicio a la votación con posterioridad a la hora oficialmente establecida por el Tribunal, la Junta deberá consignar las razones del atraso en el Registro de Acontecimientos
+ARTÍCULO 45. DE LAS PAPELETAS.
+Se efectuarán las votaciones para las Asambleas Electorales mediante el uso de papeletas, cuya confección será definida en forma exclusiva por el TEUTN. El TEUTN diseñará las papeletas de cada elección. Tanto las fotografías como los nombres de los candidatos figurarán en casillas separadas, a efecto de que el elector esté en posibilidad de consignar su voto, en forma inequívoca.

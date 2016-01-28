@@ -1,2 +1,3 @@
-ARTÍCULO 21. AUSENCIA TEMPORAL DE AlGÚN MIEMBRO DE LA JUNTA RECEPTORA DE VOTOS.
-Las ausencias temporales de los miembros de la Junta durante el proceso de votación serán suplidas por el suplente, o por un fiscal de su misma tendencia. Cada una de estas situaciones deberá ser anotada en el Registro de Acontecimientos.
+ARTÍCULO 21. INICIO DE LABORES DE LA JUNTA RECEPTORA DE VOTOS.
+La Junta Receptora de Votos iniciará sus labores a la hora señalada por el Tribunal, con cualquier número de sus miembros que se presente, si las personas designadas en la Junta receptora de Votos no estuvieran presentes para la apertura del proceso electoral, el delegado del Tribunal deberán dar inicio para lo cual harán la observación respectiva en el Acta de Apertura y en el Registro de acontecimientos, y comunicará la situación a la Presidencia del Tribunal; los materiales y equipos correspondientes estarán bajo su custodia.
+Cualquier acción realizada en las Juntas receptoras de votos, deberán ser anotadas en el Registro de Acontecimientos.

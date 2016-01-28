@@ -1,2 +1,2 @@
-ARTICULO 58. PROHIBICIÓN PARA EXTRAER PAPELETAS DE LA URNA ELECTORAL DURANTE EL TRANSCURSO DE LA VOTACIÓN
-Bajo ninguna circunstancia la urna podrá abrirse antes del cierre general de votaciones, ni tampoco extraérsele papeletas.
+ARTÍCULO 58. VOTOS EMITIDOS
+Son votos válidos emitidos a favor de cualquier candidato elegible, los que aparezcan en blanco y los votos nulos.

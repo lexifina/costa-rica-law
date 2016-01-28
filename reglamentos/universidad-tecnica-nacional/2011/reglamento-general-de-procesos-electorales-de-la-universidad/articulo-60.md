@@ -1,11 +1,9 @@
-ARTÍCULO 60. CIERRE DEL PROCESO DE VOTACIÓN Y ACTOS POSTERIORES.
-Se dará por terminada la recepción de votos y se ordenará el cierre del recinto electoral por el Presidente de la Junta Receptora de Votos, a la hora establecida por el Tribunal para el cierre de la votación. Si hubiere electores haciendo fila, que hayan llegado antes de la hora señalada como cierre de la votación, podrán emitir su voto.
-Una vez cerrada la votación, la Junta Receptora de Votos procederá de la siguiente forma:
-a) Contará las papeletas no usadas y les estampará al dorso la leyenda "sobrante".
-b) Abrirá la urna y quien ocupe la Presidencia, sacará una a una las papeletas. En este caso se verificará que dichas papeletas lleven las firmas respectivas. Posteriormente, realizará el conteo de las papeletas en ella depositada.
-c) Comprobará la totalidad de los votos emitidos.
-d) Cotejará el número de votos emitidos contra el padrón de firmas de los votantes.
-e) Separará en grupos y contará los votos nulos, los votos en blanco y los votos emitidos válidamente a favor de cada candidato.
-f) Consignará los resultados de la votación en el acta que será firmada por todos los miembros presentes de la Junta Receptora de Votos. Copia del resultado de la votación se entregará al Fiscal acreditado por cada candidato ante el TEUTN.
-g) Las papeletas usadas, el material sobrante y el acta del proceso de votación se depositarán en la urna, que debidamente cerrada, será entregada al TEUTN por los miembros presentes de la Junta Receptora de Votos.
-Para efectos del escrutinio de votos, únicamente estarán presentes los miembros de la Junta Receptora, el delegado o delegados del TEUTN, y el fiscal que lo solicitare.
+ARTÍCULO 60. VOTOS EN BLANCO Y VOTOS NULOS
+Son votos en blanco aquellos en los que no se vota por candidato alguno o se consigna en la respectiva papeleta la palabra o expresión "blanco". Los votos en blanco no se sumarán a ningún candidato.
+Son votos nulos los que tienen alguna de las siguientes características:
+a) Los votos emitidos en forma diferente a la establecida por este Reglamento, siempre y cuanto no permitan determinar con claridad indudable la voluntad del elector.
+b) Los votos emitidos a favor de más candidatos que cargos a llenar en la elección que corresponde.
+c) Los votos en los que, por cualquier razón, sea posible identificar al votante.
+d) Los votos inválidos porque al emitirse hayan sido hechos públicos por el elector.
+e) Los votos emitidos a favor de personas no inscritas para la elección en curso.
+f) Los votos depositados en una urna que se abrió antes de la hora del cierre del proceso establecida por el TEUTN.

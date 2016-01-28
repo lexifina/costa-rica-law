@@ -1,5 +1,2 @@
-ARTICULO 52. REGISTRO DE VOTANTES EN El PADRÓN DE FIRMAS.
-Para el control de votantes, se deberán seguir los siguientes pasos:
-a) De previo a entregar las papeletas al elector, la Presidencia de la Junta pasará una raya sobre el nombre del electora deberá firmar en el espacio definido para tal efecto en el padrón de firmas. Si el elector se niega a firmar no podrá votar.
-b) Si un elector no firma, ninguna persona de la Junta podrá hacerlo en su lugar. No obstante se hará la indicación respectiva en el Registro de Acontecimientos y en el Padrón de Firmas.
-c) Si un elector firma en un espacio que no le corresponde, de inmediato se hará la anotación correspondiente en el Registro de Acontecimientos de la Junta y en el Padrón de Firmas. El elector al que le correspondería firmar en el espacio ya utilizado, deberá firmar junto a su nombre.
+ARTICULO 52. ANULACIÓN DE PAPELETAS
+El TEUTN podrá anular de manera inmediata y oficiosa cualquier papeleta, voto, intención de voto u otra actividad electoral la cual, se determine por parte del Tribunal actuar malicioso del elector, candidato o terceros.

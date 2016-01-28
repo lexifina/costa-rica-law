@@ -1,10 +1,12 @@
-ARTÍCULO 83. SUSPENSION TEMPORAL DEL DERECHO Al SUFRAGIO.
-Un elector perderá temporalmente el derecho al sufragio durante el período que fije el Tribunal de acuerdo con la gravedad de la falta, y que no podrá ser superior a cuatro años, cuando:
-a) Se presente a cualquier acto electoral portando armas o en notorio estado de embriaguez o bajo los efectos de otras drogas.
-b) Pretendiere emitir el sufragio o lo emitiera más de una vez en una misma elección.
-c) Infringiera, por cualquier motivo, el secreto del voto ajeno.
-d) Obligare a otro elector, utilizando amenazas, a adherirse a determinada candidatura, o a votar en determinado sentido o abstenerse de votar,
-e) Indujera a otro elector a emitir su voto en favor de una candidatura dada, utilizando dádivas o promesas de dádivas.
-f) Deliberadamente votare sin derecho, aún cuando su nombre aparezca en el Padrón Electoral Definitivo.
-g) Injuriare, difamare o calumniare a cualquier miembro de la Comunidad Universitaria durante el proceso electoral
-El elector al que se haya sancionado con la suspensión temporal del derecho al sufragio y que incurra nuevamente en una de las faltas indicadas en el presente artículo, durante el plazo de la suspensión, se aplicará la sanción prevista en el artículo siguiente de este Reglamento.
+ARTÍCULO 83. RECOMENDACIÓN DE SUSPENSIÓN TEMPORAL, DESPIDO O EXPULSIÓN
+Sin demérito de las demás responsabilidades en que incurra el funcionario, estudiante o personas externas debidamente identificadas que participen en los procesos electorales, se recomendará a la instancia pertinente la suspensión temporal del cargo o la destitución del funcionario, así como la suspensión o expulsión del estudiante de la Universidad Técnica Nacional, por las causas siguientes:
+a) Cuando después de tres amonestaciones por escrito o suspensión del derecho electoral, incurra en causal para una cuarta sanción dentro de un plazo de 1 año a partir de la última sanción.
+b) Usare las instalaciones y recursos de la UTN, para fines electorales.
+c) Ocupando el lugar de otro, firme una hoja de adhesión, o autentique adhesiones falsas.
+d) Envíe al TEUTN, de manera oficial informes o datos falsos.
+e) Alterare o falsificare datos, firmas o cualquier documento de tal forma que pueda causar perjuicio a la Universidad o a las personas involucradas en el proceso electoral.
+f) Ejecutare actos de violencia o vandalismo contra personas, bienes de la Universidad o de terceros, durante un proceso electoral.
+g) Sustrajere, retuviere, rompiere o inutilizare la identificación personal del elector o las papeletas con las cuales éste habría de emitir su voto.
+h) Usare una identificación no autorizada por el TEUTN, alterada o que no le corresponda, o documentos falsos de cualquier tipo, para sustituir a un Fiscal o de un Miembro de Mesa.
+i) Emitiere el voto tomando el lugar de otra persona.
+Las sanciones de suspensión temporal, despido, expulsión o no aceptación en la participación de puestos de concurso público, así como de suspensión de matrícula en la UTN, se trasladarán a la Dirección de Gestión de Desarrollo Humano, Dirección General Administrativa y Vicerrectoría de Vida Estudiantil respectivamente, para que se actúe de oficio según la normativa de estas dependencias.

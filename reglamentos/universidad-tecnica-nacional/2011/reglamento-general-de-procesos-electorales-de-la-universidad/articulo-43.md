@@ -1,4 +1,2 @@
-TITULO III. PROCESOS DE VOTACIÓN.
-CAPITULO I. VOTACIONES
-ARTÍCULO 43. DEFINICIÓN
-La votación es el medio que tiene la Comunidad Universitaria para ejercer su derecho de elegir en forma libre, democrática y secreta las autoridades universitarias, quedando electas las personas que obtengan la mayoría de los votos.
+ARTICULO 43. PROHIBICION DE INTERRUPCIONES.
+Por ningún motivo podrá interrumpirse el proceso de votación, salvo casos de fuerza mayor o casos fortuitos; ni finalizarlo antes de la hora acordada, salvo que todos los asambleístas hayan ejercido su derecho al voto. Tampoco se podrá interrumpir extrayendo papeletas de la urna de votación, ni retirarse el material utilizado para este proceso mientras éste no haya concluido.

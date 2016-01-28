@@ -1,2 +1,3 @@
-ARTÍCULO 71. SUSTITUCIÓN DE AUTORIDADES ELECTAS EN CASOS DE VACANTES DEFINITIVAS.
-En caso de que se produjere una vacante definitiva ocasionada por cualquier causa entre las Autoridades Universitarias, el Tribunal Electoral Universitario convocará a elecciones en un período máximo de un mes después de la vacante. La sustitución se realizará por el resto del período del miembro faltante.
+CAPITULO V. RECURSOS
+ARTÍCULO 71. REVOCATORIA, ADICIÓN O ACLARACIÓN DE LAS RESOLUCIONES.
+Contra las declaratorias de elección emitidas por el Tribunal no cabrá recursos alguno. Contra las demás resoluciones del Tribunal, en la materia de su competencia, solo cabrá el recurso de revocatoria interpuesto dentro del plazo de veinticuatro horas y por razones evidentes y manifiestas de ilegalidad. Sin embargo, cualquier interesado podrá solicitar adición o aclaración de una resolución del Tribunal, dentro de los tres días hábiles a partir de la notificación de la resolución.

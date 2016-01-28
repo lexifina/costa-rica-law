@@ -1,2 +1,2 @@
-ARTICULO 54. PLAZO PARA EMITIR El VOTO
-Cada elector dispondrá de un tiempo máximo de cuatro minutos para emitir su voto, independientemente del número de papeletas. El plazo anterior será ampliado a juicio de los miembros de mesa para el caso de las personas con limitaciones que les impida emitir su voto en el periodo de tiempo establecido.
+ARTICULO 54. PROHIBICIÓN PARA EXTRAER PAPELETAS DE LA URNA ELECTORAL DURANTE EL TRANSCURSO DE LA VOTACIÓN
+Bajo ninguna circunstancia la urna podrá abrirse antes del cierre general de votaciones, ni tampoco podrá extraerse papeletas de la misma.

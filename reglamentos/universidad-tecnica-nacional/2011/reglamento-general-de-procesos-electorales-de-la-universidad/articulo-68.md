@@ -1,2 +1,3 @@
-ARTÍCULO 68. CASOS DE EMPATE.
-En caso de empate en el primer lugar habiéndose obtenido un porcentaje superior al exigido, se repetirá la votación dentro de los cinco días siguientes a la declaratoria de empate, con participación de los candidatos que empataron. Si persiste el empate, se realizará un nuevo proceso electoral de acuerdo con lo establecido en los artículos 13 y 35 del Estatuto Orgánico de la Universidad Técnica Nacional. En todos los casos en que se haga necesario repetir una votación se utilizará el mismo padrón electoral.
+CAPITULO III. SUPLENTES EN PUESTOS UNIPERSONALES
+ARTÍCULO 68. PUESTOS CON SUPLENTES
+Para los siguientes puestos: Decanos, Directores de Carrera y Director del CFPTE, deberán incluir en la papeleta un suplente, el cual asumirá las funciones en ausencia temporal o definitiva del titular.
