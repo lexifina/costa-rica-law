@@ -1,0 +1,1 @@
+Artículo 13.—Vehículos con altoparlantes: El ruido emitido por vehículos con altoparlantes en vías públicas terrestres, será regulado por el Ministerio de Obras Públicas y Transportes, según se establece en el artículo 116 de la Ley N° 9078, Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial.

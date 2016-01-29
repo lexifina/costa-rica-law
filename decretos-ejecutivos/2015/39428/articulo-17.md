@@ -1,0 +1,1 @@
+Artículo 17.—Tecnología aplicable a las excepciones: Las excepciones establecidas en el artículo 15 de este reglamento, no impedirán a las autoridades del Ministerio de Salud, requerir la aplicación de la mejor tecnología de control de ruido disponible en el mercado para las actividades indicadas en este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 5°—Límites aplicables en zonas que carezcan de Plan Regulador: En cantones sin un Plan Regulador, el Ministerio de Salud determinará los límites aplicables, con base en la fuente y el receptor, de conformidad con la Tabla 1 del artículo 14º del presente reglamento.

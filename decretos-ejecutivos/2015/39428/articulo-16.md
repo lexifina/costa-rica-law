@@ -1,0 +1,1 @@
+Artículo 16.—Actividades en plazas, parques y estadios: Para los eventos culturales, musicales y deportivos que se realicen en plazas, parques y estadios, los niveles de sonido aceptados en el período diurno se extenderán hasta las 22 horas. Para todos los demás eventos regirá el horario nocturno a partir de las 20 horas.
