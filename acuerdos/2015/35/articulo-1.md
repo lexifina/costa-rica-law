@@ -1,0 +1,6 @@
+DIRECCIÓN NACIONAL DE NOTARIADO
+Que el Consejo Superior Notarial, mediante acuerdo firme adoptado en Sesión Ordinaria celebrada el 17 de diciembre de 2015, dispuso lo siguiente:
+Acuerdo 2015-035-003:
+a) Tener por conocida la moción de la Doctora Roxana Sánchez Boza, quien plantea algunas dudas respecto al pago del Fondo de Garantía, con relación al aumento que empezará a regir en el mes de enero de año 2016.
+b) Por ser un tema de importancia para la comunidad notarial, el Consejo considera conveniente recordar lo que al respecto indica el Artículo 112 de los Lineamientos para el Ejercicio y Control del Servicio Notarial: “Efectos de Morosidad. El pago de la cuota mensual deberá realizarse anticipadamente al mes en que se va a ejercer la función notarial, sin perjuicio de que voluntariamente se efectúe en forma adelantada bimensual, trimestral, u otras, de conformidad con lo establecido en estos lineamientos.”. En razón de lo anterior, el aumento se empezará a cobrar una vez que el notario se presente a cancelar el monto adelantado correspondiente a enero y meses subsiguientes. Por tanto, a más tardar el último día del mes anterior, debe cancelarse la cuota del mes siguiente.
+Acuerdo firme por votación unánime.
