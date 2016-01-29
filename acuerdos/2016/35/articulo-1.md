@@ -1,0 +1,5 @@
+DIRECCIÓN NACIONAL DE NOTARIADO
+Acuerdo 2015-035-006:
+a) Tener por recibida la propuesta de revocatoria del Acuerdo 2013-014-009, respecto al tema de reposición de folios de tomos de protocolo, presentada por la Dirección Ejecutiva de la Dirección Nacional de Notariado.
+b) Modificar el inciso b) del Acuerdo 2013-014-009, para que se lea de la siguiente manera “Aprobar la determinación de la Dirección Ejecutiva de no autorizar nuevo tomo de Protocolo en los trámites de reposición de instrumentos públicos hasta tanto el notario no haya cumplido con todos los requisitos incluido el efectivo pago de la publicación, que se demostrará mediante el recibo o comprobante respectivo”, en vez del texto anterior que decía: “Aprobar la determinación de la Dirección Ejecutiva de no autorizar nuevo tomo de Protocolo en los trámites de reposición de instrumentos públicos hasta tanto el notario no haya cumplido con todos los requisitos incluida la efectiva publicación de los edictos o avisos de ley.”, como originalmente se consignó.
+Acuerdo firme por votación unánime.
