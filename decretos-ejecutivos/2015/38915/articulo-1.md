@@ -25,3 +25,4 @@ Presupuestaria, para el año 2016
 CAPÍTULO I
 Disposiciones generales
 Artículo 1º—Estas directrices serán aplicables a las entidades públicas, ministerios y órganos desconcentrados, cubiertos por el ámbito de la AP, sin perjuicio de lo establecido en otras disposiciones legales.
+(Mediante el artículo 1° del decreto ejecutivo N° 39531 del 1° febrero del 2016, se amplía para el Consejo de Seguridad Vial, el gasto presupuestario máximo para el año 2016, suma de ¢2.249.079.148,77 (dos mil doscientos cuarenta y nueve millones setenta y nueve mil ciento cuarenta y ocho colones setenta y siete céntimos), para ese período)

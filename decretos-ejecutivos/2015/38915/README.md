@@ -15,3 +15,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | --- | --- | --- |
 | 1 | 2015-03-27 | la propia norma |
 | 2 | 2015-12-14 | Decreto Ejecutivo 39406 (2015-12-14) |
+| 3 | 2016-02-01 | Decreto Ejecutivo 39531 (2016-02-01) |
