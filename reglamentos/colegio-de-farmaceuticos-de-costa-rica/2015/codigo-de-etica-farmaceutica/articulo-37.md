@@ -1,0 +1,1 @@
+ARTÍCULO 37. En la contratación de servicios profesionales entre colegas, se respetarán las regulaciones vigentes sobre condiciones salariales y laborales mínimas para la persona profesional en farmacia.

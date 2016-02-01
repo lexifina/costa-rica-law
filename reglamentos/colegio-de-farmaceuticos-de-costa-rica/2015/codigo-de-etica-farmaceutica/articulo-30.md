@@ -1,0 +1,1 @@
+ARTÍCULO 30. La persona profesional en farmacia deberá contribuir a la protección del medio ambiente y cumplir las regulaciones referentes a la disposición final de medicamentos no utilizables, materias primas y sus residuos.

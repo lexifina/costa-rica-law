@@ -1,0 +1,1 @@
+ARTÍCULO 61. La persona profesional en farmacia tendrá presente que la vida es un derecho fundamental del ser humano y, por lo tanto, deberá evitar realizar acciones conducentes a su menoscabo o a su destrucción en cualquiera de sus etapas.

@@ -1,0 +1,1 @@
+ARTÍCULO 35. La persona profesional en farmacia debe guardar consideración, respeto y colaboración hacia todos sus colegas y actuar con lealtad e integridad en sus relaciones profesionales, sea cual sea la relación jerárquica existente entre ellos.

@@ -1,0 +1,1 @@
+ARTÍCULO 6. El presente código rige y resulta de aplicación para todas aquellas conductas que infrinjan los principios éticos y morales de la deontología farmacéutica, los deberes y prohibiciones establecidos por el ordenamiento jurídico relacionados con las actividades profesionales y las disposiciones de este código.

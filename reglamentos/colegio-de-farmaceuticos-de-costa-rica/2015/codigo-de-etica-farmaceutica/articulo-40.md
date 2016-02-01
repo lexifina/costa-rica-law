@@ -1,0 +1,1 @@
+ARTÍCULO 40. La persona profesional en farmacia respetará las actuaciones de sus colegas y de otros profesionales sanitarios, y aceptará la abstención de actuar cuando alguno de los profesionales de su equipo muestre una objeción razonada de ciencia o de conciencia.

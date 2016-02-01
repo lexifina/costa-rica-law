@@ -1,0 +1,1 @@
+ARTÍCULO 102. La persona profesional en farmacia debe recibir, registrar e investigar los reclamos o quejas relacionadas con el almacenamiento, distribución y la calidad del producto, además de tomar las medidas correctivas de acuerdo con el reclamo o queja, notificar al laboratorio fabricante o su representante legal sobre el reclamo reportado y dar seguimiento al caso.

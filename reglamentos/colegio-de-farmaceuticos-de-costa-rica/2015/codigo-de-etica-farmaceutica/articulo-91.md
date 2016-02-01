@@ -1,0 +1,1 @@
+ARTÍCULO 91. La persona profesional en farmacia debe asegurarse de que los protocolos diseñados para los estudios clínicos cumplan los criterios éticos establecidos por la legislación vigente. Cuando le corresponda, debe comunicar al Ministerio cualquier cambio que se realice al protocolo durante el desarrollo del estudio clínico.

@@ -1,0 +1,1 @@
+ARTÍCULO 62. La persona profesional en farmacia debe aplicar los conocimientos científicos y técnicos en forma apropiada y de acuerdo con las circunstancias, en beneficio del paciente. Actuará en estricto apego a la lex artis farmacéutica.

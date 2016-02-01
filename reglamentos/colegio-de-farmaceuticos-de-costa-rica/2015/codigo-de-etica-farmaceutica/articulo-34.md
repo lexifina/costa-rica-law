@@ -1,0 +1,4 @@
+ARTÍCULO 34. La persona profesional en farmacia no utilizará su posición de poder, jerarquía, dirección o supervisión, en servicio o en docencia, para hostigar o acosar sexualmente a otra persona haciendo uso de palabras de naturaleza sexual, escritas u orales, que resulten hostiles, humillantes u ofensivas para quien las reciba, o por medio de acercamientos corporales u otras conductas físicas de naturaleza sexual, indeseados y ofensivos para quien los recibe. Tampoco podrá solicitar favores sexuales que impliquen:
+a) Promesa, implícita o expresa, de un trato preferencial, respecto de la situación, actual o futura, de empleo o de estudio de quien la reciba.
+b) Amenazas, implícitas o expresas, físicas o morales, de daños o castigos referidos a la situación, actual o futura, de empleo o de estudio de quien las reciba.
+c) Exigencia de una conducta cuya sujeción o rechazo sea, en forma implícita o explícita, una condición para el empleo o el estudio.

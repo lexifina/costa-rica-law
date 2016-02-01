@@ -1,0 +1,1 @@
+ARTÍCULO 18. En caso de emergencia nacional, catástrofe o peligro para la salud de la población, es deber de la persona profesional en farmacia cooperar con las autoridades competentes, en la protección de la salud y en la organización de los cuidados inmediatos y permanentes, salvo que la edad o el estado de salud se lo impidan.

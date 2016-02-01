@@ -1,0 +1,1 @@
+ARTÍCULO 106. La persona profesional en farmacia debe efectuar o coordinar las auditorías o autoinspecciones. Es responsable de garantizar el cumplimiento de las acciones correctivas identificadas a raíz del informe de auditoría.

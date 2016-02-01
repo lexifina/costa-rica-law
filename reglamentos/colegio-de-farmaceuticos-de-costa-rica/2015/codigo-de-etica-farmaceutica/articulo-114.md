@@ -1,0 +1,1 @@
+ARTÍCULO 114. La persona profesional en farmacia es responsable de la eficacia, seguridad y calidad de los medicamentos que se formulen, elaboren, manipulen, almacenen y distribuyan en el laboratorio a su cargo.

@@ -1,0 +1,1 @@
+ARTÍCULO 29. La persona profesional en farmacia contribuirá al uso eficiente de los recursos humanos, tecnológicos, terapéuticos y económicos, en especial en lo concerniente al uso de los medicamentos y otros productos de interés sanitario sometidos al régimen de financiación pública.

@@ -1,0 +1,1 @@
+ARTÍCULO 57. La persona profesional en farmacia respetará la autonomía y dignidad del paciente y protegerá el derecho de este a la confidencialidad de sus datos, salvo en el caso de que lleguen a ser requeridos por la ley o la autoridad competente.

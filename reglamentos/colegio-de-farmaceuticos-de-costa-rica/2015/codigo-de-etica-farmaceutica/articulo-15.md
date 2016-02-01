@@ -1,0 +1,1 @@
+ARTÍCULO 15. La persona profesional en farmacia evitará incurrir en prácticas, comportamientos o condiciones de trabajo que puedan perjudicar su independencia y objetividad en el correcto desarrollo de su ejercicio profesional, o que respondan a intereses meramente comerciales de terceros o personales al margen del estricto ejercicio profesional.

@@ -1,0 +1,1 @@
+ARTÍCULO 26. La persona profesional en farmacia se abstendrá de participar en todo tipo de actuaciones, estén o no relacionadas con su profesión, en las cuales sus conocimientos y habilidades sean puestas al servicio de actos que atenten contra la vida, la dignidad humana o los derechos del ser humano.

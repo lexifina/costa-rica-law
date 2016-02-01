@@ -1,0 +1,1 @@
+ARTÍCULO 78. La persona profesional en farmacia no está autorizada a divulgar información del médico o del paciente relacionada con la prescripción, ni permitir que el personal auxiliar administrativo divulgue esa información.

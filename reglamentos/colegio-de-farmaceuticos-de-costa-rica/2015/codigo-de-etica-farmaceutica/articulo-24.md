@@ -1,0 +1,1 @@
+ARTÍCULO 24. La persona profesional en farmacia deberá notificar a la autoridad sanitaria cualquier sospecha de reacción adversa de los medicamentos, así como cualquier incidente relacionado con medicamentos que pueda potencialmente afectar al paciente.

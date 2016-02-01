@@ -1,0 +1,1 @@
+ARTÍCULO 43. La persona profesional en farmacia debe abstenerse de emitir, bajo cualquier medio, comentarios despectivos sobre actos profesionales de otros profesionales en ciencias de la salud. De igual forma, debe abstenerse de divulgar cualquier información que permita identificar al profesional que prescribe un medicamento, si no media la autorización de este.

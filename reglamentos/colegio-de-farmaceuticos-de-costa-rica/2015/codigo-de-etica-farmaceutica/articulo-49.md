@@ -1,0 +1,1 @@
+ARTÍCULO 49. La persona profesional en farmacia estará obligada a denunciar, ante la Junta Directiva, cualquier hecho que a su juicio constituya un quebranto al compromiso con este código, o aquel que pueda constituir delito.

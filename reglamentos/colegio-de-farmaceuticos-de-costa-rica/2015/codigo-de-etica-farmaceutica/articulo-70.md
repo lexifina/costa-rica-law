@@ -1,0 +1,1 @@
+ARTÍCULO 70. La persona profesional en farmacia solamente deberá entregar muestras médicas a profesionales en ciencias de la salud con el exclusivo propósito de apoyar la información sobre el producto, por lo cual no debe realizar la venta directa del producto ni permitir o promover la comercialización de las muestras médicas.

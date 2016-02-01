@@ -1,0 +1,1 @@
+ARTÍCULO 130. La suspensión en el ejercicio profesional comenzará a regir un día después de su publicación en el Diario Oficial La Gaceta. Vencido el plazo de la sanción, la persona profesional en farmacia quedará habilitada para reanudar el ejercicio profesional.

@@ -1,0 +1,1 @@
+ARTÍCULO 128. En los procesos disciplinarios que no sean iniciados de oficio, las partes podrán solucionar el conflicto recurriendo a las vías alternas de resolución de conflictos establecidas en el ordenamiento jurídico.

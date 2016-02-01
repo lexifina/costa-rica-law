@@ -1,0 +1,1 @@
+ARTÍCULO 48. La persona profesional en farmacia prestará su colaboración al Colegio en el desempeño de las funciones de representación, dignificación y defensa de la profesión, y pondrá en conocimiento del Colegio todo acto que considere de intrusismo, de ejercicio irregular, así como de las situaciones de agravio que se puedan producir en el ejercicio de la profesión.

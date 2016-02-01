@@ -1,0 +1,1 @@
+ARTÍCULO 65. Cuando medie petición del paciente, la persona profesional en farmacia debe mantener el secreto, aun con los miembros de su familia, con excepción de los padres o encargados responsables de menores de edad o cuando esté involucrada la salud de terceras personas.

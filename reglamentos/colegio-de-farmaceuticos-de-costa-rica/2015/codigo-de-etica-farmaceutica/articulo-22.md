@@ -1,0 +1,1 @@
+ARTÍCULO 22. La persona profesional en farmacia no debe prestarse para abrir ni mantener establecimientos farmacéuticos donde se infrinja el ordenamiento jurídico. Además, está obligada a denunciar los malos procedimientos que puedan perjudicar la salud pública y que se realicen en el campo del ejercicio profesional donde presta sus servicios.

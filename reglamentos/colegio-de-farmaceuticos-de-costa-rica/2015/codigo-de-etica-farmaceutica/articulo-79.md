@@ -1,0 +1,1 @@
+ARTÍCULO 79. La persona profesional en farmacia estará obligada a impedir que personas no autorizadas recomienden, despachen o administren medicamentos, o cualquier otra opción terapéutica que requiera de un conocimiento propio de la profesión.

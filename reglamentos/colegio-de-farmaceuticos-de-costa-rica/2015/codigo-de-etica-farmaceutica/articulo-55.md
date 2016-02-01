@@ -1,0 +1,1 @@
+ARTÍCULO 55. La persona profesional en farmacia ejercerá su profesión con respeto a la dignidad humana y la singularidad de cada persona, sin hacer distinción alguna por razones sociales, religiosas, económicas, sexuales, culturales, de nacionalidad, características personales o naturaleza del problema de salud que la aqueje y cualquier otra que atente contra su dignidad.

@@ -1,0 +1,1 @@
+ARTÍCULO 88. La persona profesional en farmacia que se encargue de la revisión o aprobación de registros sanitarios de productos de interés sanitario debe mantener la confidencialidad de la información hasta que finalice el periodo de protección de datos de prueba.

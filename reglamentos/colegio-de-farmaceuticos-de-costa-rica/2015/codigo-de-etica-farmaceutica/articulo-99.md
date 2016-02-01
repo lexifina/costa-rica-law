@@ -1,0 +1,1 @@
+ARTÍCULO 99. La persona profesional en farmacia debe enaltecer el buen nombre de la profesión durante todas las actividades académicas a su cargo, así como promover la buena calidad y la excelencia de la enseñanza de la profesión farmacéutica, incluidos los principios éticos y deontológicos.

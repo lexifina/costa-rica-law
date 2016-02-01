@@ -1,0 +1,1 @@
+ARTÍCULO 45. La persona profesional en farmacia deberá abstenerse de cambiar el medicamento prescrito por el médico, u otro profesional sanitario facultado para ello; sin perjuicio de ofrecer al paciente, cuando lo haya, un producto de nombre genérico, con equivalencia terapéutica, salvo indicación contraria del facultativo en la receta.

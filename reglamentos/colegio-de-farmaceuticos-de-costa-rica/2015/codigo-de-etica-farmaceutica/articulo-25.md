@@ -1,0 +1,1 @@
+ARTÍCULO 25. La persona profesional en farmacia ejercerá su profesión de modo que contribuya a la dignidad, al bienestar y a la salud de los pacientes, y evitará cuantas acciones pongan en entredicho esos principios fundamentales.

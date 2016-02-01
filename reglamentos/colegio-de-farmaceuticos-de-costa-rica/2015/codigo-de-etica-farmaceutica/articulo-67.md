@@ -1,0 +1,1 @@
+ARTÍCULO 67. La persona profesional en farmacia contribuirá a la mejora de la salud y calidad de vida del paciente, promoviendo su derecho a la prevención y diagnóstico de la enfermedad y a tratamientos terapéuticos eficaces y seguros.

@@ -1,0 +1,1 @@
+ARTÍCULO 107. La persona profesional en farmacia debe revisar y aprobar los contratos establecidos con terceros, con el fin de verificar que se cumplan los requisitos de las buenas prácticas de almacenamiento y distribución vigentes.

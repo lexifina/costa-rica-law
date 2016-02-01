@@ -1,0 +1,1 @@
+ARTÍCULO 14. La persona profesional en farmacia no debe aceptar salarios menores a los fijados por las instancias competentes. Deberá respetar los montos que se determinen como tarifas mínimas de honorarios.

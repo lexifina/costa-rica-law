@@ -1,0 +1,1 @@
+ARTÍCULO 20. La persona profesional en farmacia no participará, bajo ninguna circunstancia, en la publicidad o promoción engañosa de medicamentos u otros productos de interés sanitario, a los cuales se atribuyan propiedades o bondades que no estén debidamente sustentadas en la mejor evidencia científica.

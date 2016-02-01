@@ -1,0 +1,1 @@
+ARTÍCULO 93. La persona profesional en farmacia a cargo del monitoreo de un estudio clínico debe reportar la totalidad de las reacciones adversas identificadas en las entrevistas a los pacientes y velar para que toda la información recibida del paciente se documente en el expediente correspondiente.

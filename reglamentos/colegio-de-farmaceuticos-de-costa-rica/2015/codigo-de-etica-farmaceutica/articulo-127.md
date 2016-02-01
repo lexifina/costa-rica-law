@@ -1,0 +1,1 @@
+ARTÍCULO 127. En la fijación de la sanción aplicable, deberán valorarse los eventuales daños que la actuación del profesional haya generado a terceros, a colegas, o al buen nombre de la profesión, así como los parámetros de razonabilidad y proporcionalidad para determinar la sanción.

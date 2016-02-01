@@ -1,0 +1,1 @@
+ARTÍCULO 94. La persona profesional en farmacia involucrada en un estudio clínico, cuando le corresponda, debe asegurase de que el paciente reciba la información adecuada para tomar la decisión de incluirse en el estudio o no, mediante el consentimiento válidamente informado diseñado para tal fin.

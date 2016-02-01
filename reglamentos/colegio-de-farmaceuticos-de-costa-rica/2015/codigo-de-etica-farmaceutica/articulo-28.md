@@ -1,0 +1,1 @@
+ARTÍCULO 28. La persona profesional en farmacia orientará sus actos profesionales de modo que los medicamentos y otros productos de interés sanitario y las tecnologías sanitarias puedan cumplir su función social y la población se vea beneficiada por los avances de las ciencias farmacéuticas.
