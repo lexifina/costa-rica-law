@@ -1,0 +1,3 @@
+Artículo 19. Acumulación de demandas.
+Podrán acumularse demandas arbitrales entre las mismas partes, aunque surjan de distintos contratos y aunque sean consecuencia de distintos acuerdos arbitrales, siempre y cuando dichos acuerdos arbitrales sean compatibles, o bien, se celebre un nuevo acuerdo arbitral entre todas las Partes. En ese evento, y de estimar el proceso como complejo, el Tribunal tomará las previsiones necesarias relativas al plazo del arbitraje.
+La consolidación la hará la Dirección CAM-CR en el arbitraje que inició primero, salvo acuerdo en contrario de las Partes y siempre que los Tribunales hayan sido integrados por los mismos árbitros o sea posible su sustitución, de no ser los mismos. Lo resuelto tendrá únicamente recurso de revocatoria.

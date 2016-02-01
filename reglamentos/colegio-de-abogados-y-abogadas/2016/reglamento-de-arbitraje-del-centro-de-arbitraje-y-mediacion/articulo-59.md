@@ -1,0 +1,2 @@
+Artículo 59. Dictado del laudo.
+El laudo se dictará por escrito y deberá ser firmado por todos los árbitros y contendrá la fecha en que se dictó y el lugar del arbitraje. Cuando haya tres árbitros y no firme alguno, se indicará el motivo de la ausencia de la firma. Si un árbitro decide salvar su voto, podrá consignarlo expresamente e indicar las razones en que lo fundamenta en forma simultánea con la suscripción del laudo de mayoría. Su falta de suscripción o redacción no afectará ni impedirá la ejecución del laudo.

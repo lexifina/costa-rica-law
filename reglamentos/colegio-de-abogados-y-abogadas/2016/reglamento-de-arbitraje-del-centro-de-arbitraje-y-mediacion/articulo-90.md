@@ -1,0 +1,2 @@
+Artículo 90. Pluralidad de partes.
+Cuando exista pluralidad de solicitantes y/o solicitados en las solicitudes de inicio del arbitraje o contestación, ya sea que se deba constituir un Tribunal conformado por uno o tres árbitros, tanto los solicitantes como los solicitados deberán, en sus respectivos escritos, designar de manera conjunta al árbitro conforme a las reglas establecidas en este reglamento. En el evento que no exista acuerdo en el nombramiento, será la Dirección del CAM-CR, la que efectuará el nombramiento del árbitro o árbitros en cuestión.

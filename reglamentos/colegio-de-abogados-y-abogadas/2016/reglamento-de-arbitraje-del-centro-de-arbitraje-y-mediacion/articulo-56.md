@@ -1,0 +1,7 @@
+Artículo 56. Conclusión Anticipada.
+El proceso podrá concluirse anticipadamente de conformidad con lo siguiente:
+a) Si antes de que se dicte el laudo las Partes deciden acudir a una negociación, mediación, transacción u otro proceso de solución de conflictos, el Tribunal dictará una resolución que suspenda el procedimiento. Durante la suspensión no se computará el plazo establecido para laudar.
+b) Si de este proceso alterno resultare un acuerdo total o parcial, el Tribunal lo podrá registrar en forma de laudo, en los términos convenidos por las partes.
+c) Si de éste no resultare acuerdo alguno, las partes lo informarán al Tribunal, para que dicte una resolución de continuación del procedimiento.
+d) Si antes de que se dicte el laudo se hace innecesaria o imposible la continuación del procedimiento arbitral por cualquier otra razón, el Tribunal comunicará a las partes su propósito de dictar una orden de conclusión del procedimiento. El Tribunal estará facultado para dictar dicha orden, excepto que alguna de las partes se oponga a ello, con razones fundadas a criterio del Tribunal.
+e) El Tribunal comunicará a las partes copias de la orden de conclusión del procedimiento del laudo arbitral en los términos convenidos por las partes, debidamente firmadas por los árbitros. En todo caso, deberá pronunciarse sobre los costos administrativos y honorarios arbitrales correspondientes, según sea informado por la Dirección del CAM-CR.

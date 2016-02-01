@@ -1,0 +1,2 @@
+Artículo 62. Revisión del laudo del CAM-CR.
+Previo a notificarlo a las Partes, la Dirección del CAM-CR examinará y velará por los aspectos indicados en el artículo anterior se encuentren en el laudo. En este ejercicio, la Dirección del CAMCR podrá solicitar al Tribunal que ajuste el borrador a esos requerimientos. Para estos efectos el Tribunal deberá entregar al CAM-CR el borrador del laudo al menos diez días antes del vencimiento del plazo para laudar.

@@ -1,0 +1,2 @@
+Artículo 31. Plazo de instalación de Tribunal.
+Deberá existir un plazo de cinco días como mínimo entre la notificación de la confirmación de los nombramientos y la sesión de instalación del Tribunal. Si antes de vencer dicho plazo se presenta una recusación en contra de alguno de los árbitros nombrados, corresponderá al Consejo Directivo del CAM-CR tramitar y resolver la recusación formulada, de previo a instalarse el Tribunal.

@@ -1,0 +1,6 @@
+Artículo 24. Árbitro Único.
+Las siguientes disposiciones deberán observarse al realizar el nombramiento del Tribunal Unipersonal:
+a) La Dirección del CAM-CR le otorgará a las partes un plazo de hasta cinco días para proponer el nombre de una o más personas que podrían ejercer las funciones de árbitro único. El plazo comenzará a correr a partir del día siguiente a la notificación del requerimiento de arbitraje, con la correspondiente resolución de la Dirección CAM-CR. En esa resolución, se informará a las partes que pueden designar al árbitro de común acuerdo.
+b) Si dentro de los plazos otorgados las partes eligen al árbitro de mutuo acuerdo, la Dirección CAM-CR procederá a nombrarlo mediante la resolución correspondiente.
+c) Si ninguna de las partes propone árbitros dentro del plazo indicado, o la prórroga acordada, o no llegan a un acuerdo en ese plazo, el árbitro será nombrado por la Dirección CAM-CR mediante la resolución correspondiente. Dicha resolución se notificará a la persona designada, con el fin de que éste acepte o rechace su nombramiento.
+d) El árbitro único deberá ser de lista del CAM-CR y deberá revelar todas las circunstancias que puedan dar lugar a dudas justificadas acerca de su imparcialidad o independencia.

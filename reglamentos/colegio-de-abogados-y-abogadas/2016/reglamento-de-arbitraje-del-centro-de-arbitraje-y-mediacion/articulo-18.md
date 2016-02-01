@@ -1,0 +1,2 @@
+Artículo 18. Consolidación.
+A solicitud de parte, el CAM-CR podrá consolidar dos o más procedimientos pre arbitrales que esté tramitando, siempre y cuando sean las mismas partes o la parte diferente lo acepte y exista conexidad manifiesta en el objeto, y las cláusulas arbitrales sobre las cuales se basan los procedimientos sean las mismas o idénticas. Salvo acuerdo de todas las partes, la consolidación no será posible luego de que el CAM-CR haya confirmado los nombramientos de los árbitros.

@@ -1,0 +1,2 @@
+Artículo 37. De la sustitución del Árbitro recusado.
+Si procediera la sustitución del árbitro recusado, se aplicará lo dispuesto en este Reglamento. Si la recusación surge durante el proceso arbitral, el plazo para laudar permanecerá en suspenso desde que se interpone y hasta que se sustituya al árbitro en su caso y se repitan las audiencias necesarias, salvo acuerdo contrario de las Partes, en caso de prosperar la recusación. La Dirección del CAM-CR calculará los honorarios del árbitro recusado y procederá a su pago, de ser el caso.

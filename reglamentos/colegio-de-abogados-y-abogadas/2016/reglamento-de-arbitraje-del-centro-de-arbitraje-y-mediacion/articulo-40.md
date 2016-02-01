@@ -1,0 +1,2 @@
+Artículo 40. Tramitación del arbitraje.
+El Tribunal dirigirá el arbitraje de conformidad con la normativa de este Reglamento y los principios del debido proceso arbitral, dando a cada parte suficiente oportunidad para hacer valer sus derechos. Podrá decidir la controversia tan solo sobre la base de documentos aportados al proceso, si ninguna de las partes solicita audiencia y así lo considera pertinente.

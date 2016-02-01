@@ -1,0 +1,2 @@
+Artículo 87. Falta de respuesta a la solicitud de inicio del arbitraje.
+La constitución del Tribunal no se verá obstaculizada por el hecho de que el solicitado no responda a la solicitud de inicio del arbitraje, o por la respuesta incompleta o tardía que el solicitado dé a dicha notificación, lo que será finalmente resuelto por el Tribunal Arbitral. Si en el plazo de un mes no se presentara la solicitud de inicio del arbitraje, el CAM-CR resolverá lo que corresponda.

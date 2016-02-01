@@ -1,0 +1,4 @@
+Artículo 6. Idioma.
+El idioma del arbitraje en los procesos domésticos será el español y en arbitrajes internacionales será el acordado por las partes. A falta de acuerdo, será el que determine el Tribunal.
+Salvo acuerdo contrario de las Partes o determinación distinta del Tribunal, en el caso de que cualquier documento aportado al expediente se encuentre en idioma distinto al del arbitraje, el Tribunal ordenará que sea acompañado por una traducción al idioma del arbitraje. La traducción del documento correrá por cuenta de la parte que lo aporta.
+En el caso de que para la celebración de la audiencia alguna de las partes requiera de un intérprete o traductor, podrá solicitarle al Tribunal la designación respectiva, el cual a su vez podrá solicitar la colaboración del CAM-CR. Los costos de la interpretación o traducción correrán por cuenta de la parte que la solicita.

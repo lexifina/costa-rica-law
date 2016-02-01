@@ -1,0 +1,5 @@
+Artículo 88. Conformación del Tribunal.
+El número de árbitros para resolver una controversia podrá ser uno o tres. A falta de acuerdo entre las partes sobre el número, el CAM-CR lo determinará, de acuerdo con las características del caso.
+En caso de Tribunal unipersonal, si dentro de los 30 días siguientes a la notificación de la solicitud de inicio del arbitraje las partes no hubiesen designado al árbitro, éste será nombrado por el CAMCR.
+En caso de Tribunal colegiado, el CAM-CR solo nombrará árbitros a) si una Parte omite designar árbitro dentro del plazo conferido y b) si los árbitros designados por cada parte no se ponen de acuerdo respecto del tercer árbitro, quien será el presidente, dentro del plazo otorgado por la cláusula arbitral o por el CAM-CR para ello.
+En el evento de que la controversia sea resuelta por un árbitro único, la nacionalidad de éste será distinta a la de las partes litigantes, a menos que el CAM-CR estime lo contrario, previa consulta a las partes, las cuales podrán oponerse. Lo mismo se aplicará en el caso del presidente de un Tribunal colegiado.

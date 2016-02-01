@@ -1,0 +1,2 @@
+Artículo 11. Renuncia de requisitos, impugnaciones y Reglamento.
+Se tiene por renunciado el derecho de objetar, cuando alguna parte siguiere adelante con el arbitraje a sabiendas de que no se ha cumplido alguna disposición, o requisito del presente Reglamento, sin expresar su objeción a tal incumplimiento dentro del término de cinco días contados a partir del momento en que se sepa de ese incumplimiento.
