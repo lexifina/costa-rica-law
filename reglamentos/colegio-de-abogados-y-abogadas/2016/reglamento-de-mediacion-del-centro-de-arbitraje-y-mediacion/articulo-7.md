@@ -1,0 +1,3 @@
+Artículo 7. Cantidad de mediadores.
+Podrá nombrarse uno o más mediadores/as cuando la naturaleza o la complejidad del caso lo requiera, quienes preferiblemente deberán tener conocimientos afines a la naturaleza del asunto.
+Cuando haya más de un mediador, deberán, por regla general, actuar en conjunto; pero sólo uno será el mediador titular. Los honorarios de los mediadores/as se distribuirán en porcentajes iguales según la cantidad de mediadores/as participantes. También podrán ejercer como co-mediadores los mediadores del CAM-CR que se encuentren en proceso de capacitación práctica en el CAM-CR, pero no devengarán honorario alguno.

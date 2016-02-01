@@ -1,0 +1,2 @@
+Artículo 23. Función del mediador/a en el proceso de mediación y en otros procesos.
+El mediador/a no actuará como representante ni asesor de ninguna de las partes en el proceso de mediación ni en ningún proceso arbitral o judicial relativo a una controversia que hubiera sido objeto del proceso de mediación. Asimismo, las partes no podrán llamar al mediador/a como testigo en ninguno de estos procesos, salvo que sea para aclarar únicamente los alcances del acuerdo.

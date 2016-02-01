@@ -1,0 +1,2 @@
+Artículo 11. Participación de asesores en las audiencias.
+Los asesores de las partes podrán acompañarlas durante las audiencias, pero no deberán intervenir directamente en las deliberaciones que se lleven a cabo. No obstante lo anterior, previa solicitud de la parte, la audiencia podrá suspenderse momentáneamente a efectos de que la parte pueda consultar en forma privada con su asesor. El uso de esta facultad será regulado por el mediador/a designado.

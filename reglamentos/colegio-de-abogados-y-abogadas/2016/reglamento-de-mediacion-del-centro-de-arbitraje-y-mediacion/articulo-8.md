@@ -1,0 +1,2 @@
+Artículo 8. Señalamiento de audiencia conjunta de mediación.
+Recibida la solicitud, el CAM-CR comunicará por escrito a las partes la invitación a audiencia conjunta de mediación, señalando hora, fecha y el mediador/a designado. La audiencia conjunta de mediación deberá celebrarse dentro de los quince (15) días hábiles siguientes de recibida la solicitud, salvo que la Dirección del CAM-CR o ambas partes establezcan un plazo mayor por circunstancias propias de la controversia.
