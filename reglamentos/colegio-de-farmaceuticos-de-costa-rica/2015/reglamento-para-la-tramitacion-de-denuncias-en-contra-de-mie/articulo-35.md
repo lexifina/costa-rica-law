@@ -1,0 +1,1 @@
+ARTÍCULO 35. - El plazo para rendir el informe descrito en el artículo anterior es de cinco días hábiles, que corren a partir de la conclusión del plazo para llevar a cabo la investigación preliminar o de la ampliación de este cuando corresponda. Se deberá entregar al secretario de la Junta Directiva, para que este lo ponga en conocimiento de la Junta en la siguiente sesión.

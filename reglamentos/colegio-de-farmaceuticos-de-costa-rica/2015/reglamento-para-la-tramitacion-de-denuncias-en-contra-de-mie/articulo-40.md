@@ -1,0 +1,1 @@
+ARTÍCULO 40. - El interesado que no esté de acuerdo con la resolución de la Junta Directiva de archivar la denuncia podrá interponer el recurso ordinario de revocatoria ante la Junta Directiva y el de apelación ante la Asamblea General, siguiendo la forma, el procedimiento y los plazos establecidos en el capítulo VII de este reglamento.

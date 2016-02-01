@@ -1,0 +1,1 @@
+ARTÍCULO 20. - La Junta Directiva, en caso de requerirse, ordenará a la Fiscalía llevar a cabo la investigación preliminar para que la Junta determine la pertinencia o no de la denuncia y la califique.

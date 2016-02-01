@@ -1,0 +1,1 @@
+ARTÍCULO 21. - En caso de ser pertinente la denuncia, la Junta Directiva la remitirá al Tribunal de Honor, el cual fungirá como órgano director encargado de realizar la instrucción del procedimiento administrativo, con el fin de determinar la verdad real de los hechos.

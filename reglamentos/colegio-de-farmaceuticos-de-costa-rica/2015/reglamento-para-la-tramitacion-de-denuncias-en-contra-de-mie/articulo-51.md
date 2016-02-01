@@ -1,0 +1,1 @@
+ARTÍCULO 51. - La audiencia oral y privada podrá suspenderse y continuarse en una nueva fecha cuando las partes lo soliciten y el órgano director así lo apruebe, o cuando, por lo extenso del proceso, no se pueda evacuar toda la prueba programada para la audiencia.

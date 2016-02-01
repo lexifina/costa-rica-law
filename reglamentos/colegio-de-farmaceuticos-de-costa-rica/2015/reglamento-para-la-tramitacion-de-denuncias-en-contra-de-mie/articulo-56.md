@@ -1,0 +1,1 @@
+ARTÍCULO 56. - Antes de rendir su declaración, las partes, testigos o peritos serán exhortados a declarar en apego a la verdad, y se les indicará el carácter en el cual se presentan a declarar dentro del procedimiento.

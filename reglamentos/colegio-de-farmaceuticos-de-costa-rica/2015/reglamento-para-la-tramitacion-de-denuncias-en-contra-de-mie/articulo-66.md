@@ -1,0 +1,1 @@
+ARTÍCULO 66. - Contra la resolución final emitida por la Junta Directiva, el interesado podrá interponer el recurso de revocatoria, que conocerá y resolverá la misma Junta, o recurso de apelación ante la Asamblea General. Ambos recursos pueden establecerse separada o conjuntamente, dentro del término de los ocho días hábiles siguientes a la notificación.

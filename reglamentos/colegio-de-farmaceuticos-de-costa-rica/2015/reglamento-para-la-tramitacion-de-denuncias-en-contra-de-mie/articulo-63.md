@@ -1,0 +1,1 @@
+ARTÍCULO 63. - La Junta Directiva conocerá del informe final de instrucción en la sesión inmediata siguiente a su recibo, sesión en la que emitirá la resolución final del procedimiento, y podrá acoger o separarse de la recomendación dada por el órgano director en el informe. La resolución se deberá notificar a los interesados en el lugar señalado en el expediente.

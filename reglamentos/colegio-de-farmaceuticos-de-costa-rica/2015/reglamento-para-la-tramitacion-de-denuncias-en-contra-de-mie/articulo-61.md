@@ -1,0 +1,1 @@
+ARTÍCULO 61. - El procedimiento administrativo deberá concluirse por un acto final dentro de los dos meses posteriores a la notificación de la resolución inicial del procedimiento a todas las partes, ello sin perjuicio de que, por la complejidad del proceso, este demande, en su tramitación, un plazo mayor, el cual en todo caso deberá ser razonable.

@@ -1,0 +1,2 @@
+ARTÍCULO 8. - Principio de predicción razonable
+La tipificación de infracciones y sanciones disciplinarias contenidas en este código no es exhaustiva ni agota todas las posibles infracciones a los deberes profesionales en el marco del ejercicio de la profesión de farmacia. En el ejercicio de la potestad disciplinaria, el Colegio procurará garantizar al colegiado una predicción razonable respecto de las infracciones que se persiguen y de las sanciones susceptibles de aplicación.

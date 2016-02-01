@@ -1,0 +1,1 @@
+ARTÍCULO 74. - Este reglamento deroga cualquier otra disposición normativa o reglamentaria que se le oponga, en particular el Reglamento de Procedimientos a seguir en Casos de Denuncias o Trámite de Oficio en contra de Miembros del Colegio de Farmacéuticos de Costa Rica, vigente hasta antes de la publicación del presente reglamento.

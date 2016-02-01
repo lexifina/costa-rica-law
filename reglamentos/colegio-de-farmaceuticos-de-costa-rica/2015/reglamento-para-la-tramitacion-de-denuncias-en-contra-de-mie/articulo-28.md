@@ -1,0 +1,4 @@
+CAPÍTULO V
+DE LA INVESTIGACIÓN PRELIMINAR
+ARTÍCULO 28. - El objetivo de la investigación preliminar será que la Junta Directiva, por intermedio de la Fiscalía, recabe la información necesaria acerca de lo denunciado, defina los supuestos hechos del caso, individualice al presunto o a los presuntos responsables de la falta o faltas, examine los procedimientos seguidos y establezca las posibles infracciones cometidas; para ello, no deben necesariamente seguirse las reglas del debido proceso y derecho de defensa al denunciado.
+El resultado de la investigación preliminar servirá como motivo del acto mediante el cual la Junta Directiva ordene iniciar el procedimiento administrativo, para que ordene remitir el asunto a las instancias administrativas o judiciales correspondientes, o bien, para que ordene archivar el asunto.

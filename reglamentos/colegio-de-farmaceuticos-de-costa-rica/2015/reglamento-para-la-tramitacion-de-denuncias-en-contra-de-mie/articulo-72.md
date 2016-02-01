@@ -1,0 +1,1 @@
+ARTÍCULO 72. - En lo no regulado expresamente en este reglamento, se aplicará supletoriamente la Ley Orgánica del Colegio de Farmacéuticos, su Reglamento Interno, el Código de Ética Farmacéutica, así como la Ley General de la Administración Pública.

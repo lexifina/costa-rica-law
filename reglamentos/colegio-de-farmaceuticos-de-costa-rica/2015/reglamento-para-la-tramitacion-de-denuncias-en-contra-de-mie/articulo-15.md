@@ -1,0 +1,5 @@
+ARTÍCULO 15. - Principio de juridicidad
+El Colegio, en el ejercicio de la potestad disciplinaria, actuará sometido a las normas y a los principios contenidos en los instrumentos internacionales sobre derechos humanos aplicables en Costa Rica, la Constitución y las leyes, así como a las disposiciones reglamentarias vigentes, según la escala jerárquica de las fuentes.
+Los principios recogidos en las pautas y declaraciones internacionales sobre ética en investigaciones con seres humanos o bioética serán parámetros de interpretación de las disposiciones sobre la materia contenidas en este reglamento.
+Los principios recogidos en las normas y declaraciones de organismos internacionales de farmacia serán parámetros de interpretación de las disposiciones sobre la materia contenidas en este código.
+Los órganos encargados de conocer en alzada las gestiones recursivas interpuestas por las partes en contra de los actos y resoluciones del inferior revisarán, en cada caso, la regularidad jurídica de las actuaciones de este.

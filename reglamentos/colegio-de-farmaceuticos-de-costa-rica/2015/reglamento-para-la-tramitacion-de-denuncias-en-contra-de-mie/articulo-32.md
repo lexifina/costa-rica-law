@@ -1,0 +1,5 @@
+ARTÍCULO 32. - La investigación podrá recabar la prueba testimonial, documental o de cualquier otro tipo necesaria para el análisis de la situación denunciada. Para ello, se podrá entrevistar a los presuntos involucrados o a quienes pudieran conocer algún aspecto relacionado con lo investigado. La citación que se haga para estos efectos deberá realizarse al menos dos días hábiles antes de la entrevista, salvo casos de urgencia que amerite su presencia inmediata. Esta citación deberá contener como mínimo lo siguiente:
+a) Breve indicación del motivo de la investigación.
+b) Las calidades, en caso de conocerse, de la persona que se entrevistará según lo investigado.
+c) Tratándose del denunciado, la prevención del derecho de abstenerse de declarar o de hacerlo en cualquier otro momento, en el entendido de que esa abstención no implicará una presunción sobre su culpabilidad.
+d) En las citaciones y demás documentos que se levanten en este proceso deberá indicarse siempre que se trata de una investigación preliminar.

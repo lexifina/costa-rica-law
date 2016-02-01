@@ -1,0 +1,3 @@
+CAPÍTULO III
+DE LOS ÓRGANOS QUE CONOCEN E INSTRUYEN LAS DENUNCIAS
+ARTÍCULO 19. - Corresponde a la Junta Directiva del Colegio de Farmacéuticos de Costa Rica conocer las denuncias presentadas contra miembros del Colegio, por algún hecho que vaya en desdoro de la profesión por constituir delito o tan siquiera un procedimiento torcido, o por la irregularidad de su conducta moral o por vicios que lo hagan desmerecer en el concepto público, y en general por la infracción a las disposiciones éticas, jurídicas y morales que rigen el ejercicio de la profesión farmacéutica. Demostrada la falta, corresponde a la Junta Directiva imponer las sanciones de conformidad con el artículo 19, inciso 19, de la Ley Orgánica del Colegio de Farmacéuticos de Costa Rica.

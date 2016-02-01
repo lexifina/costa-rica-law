@@ -1,0 +1,1 @@
+ARTÍCULO 47. - El órgano director deberá tramitar el expediente que le sea entregado por el secretario de la Junta Directiva, según el artículo 29 de este reglamento. Para ello, deberá agregar todas las actuaciones previas que se hayan realizado y las que se celebren en el procedimiento administrativo respectivo. Deberá continuar la foliatura que se traía previamente.

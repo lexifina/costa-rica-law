@@ -1,0 +1,1 @@
+ARTÍCULO 37. - El informe final del resultado de la investigación no tendrá recursos, por tratarse de una recomendación y no de un acto decisorio. La recomendación dada en el informe de resultado de la investigación preliminar no es vinculante para la Junta Directiva.

@@ -1,0 +1,1 @@
+ARTÍCULO 54. - Si el órgano director lo considera necesario, podrá pedir al testigo que salga de la sala para debatir algunos aspectos con las partes, y solicitará su reingreso una vez finalizada la discusión. Podrá realizar este procedimiento siempre que lo estime conveniente.

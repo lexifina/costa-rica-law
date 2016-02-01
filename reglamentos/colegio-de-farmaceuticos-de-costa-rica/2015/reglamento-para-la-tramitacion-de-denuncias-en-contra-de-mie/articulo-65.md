@@ -1,0 +1,1 @@
+ARTÍCULO 65. - Contra la resolución final del procedimiento, emitida por la Junta Directiva, que resuelva que no hay infracción o que se tiene por demostrada la infracción a las disposiciones jurídicas, éticos y morales que rigen la profesión farmacéutica, e imponga la pena o sanción correspondiente, tendrán los recursos ordinarios de revocatoria y de apelación

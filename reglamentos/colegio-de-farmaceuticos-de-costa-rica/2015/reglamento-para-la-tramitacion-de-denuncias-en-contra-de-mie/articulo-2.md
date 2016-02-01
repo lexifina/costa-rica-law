@@ -1,0 +1,1 @@
+ARTÍCULO 2. - Las denuncias interpuestas contra miembros del Colegio de Farmacéuticos de Costa Rica deberán seguir los procedimientos definidos en este reglamento, el cual deberá ser observado por los interesados, así como por los órganos, departamentos o funcionarios del Colegio que intervengan en la tramitación de las denuncias.

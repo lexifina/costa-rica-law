@@ -1,0 +1,1 @@
+ARTÍCULO 59. - Las partes del procedimiento no podrán interponer recurso alguno contra el informe final de instrucción emitido por el órgano director, en virtud de su carácter no vinculante; únicamente la Junta Directiva puede, en caso de considerarlo necesario, solicitarle aclaración o adición sobre ese informe.

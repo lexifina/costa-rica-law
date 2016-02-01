@@ -1,0 +1,1 @@
+ARTÍCULO 53. - Durante la recepción de la prueba testimonial y la prueba pericial, las partes podrán formular preguntas, las cuales deberán ser aprobadas por el órgano director antes de ser contestadas. Mientras los testigos estén declarando, las partes no pueden intervenir ni sugerirle la respuesta.
