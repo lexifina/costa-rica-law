@@ -1,5 +1,0 @@
-Artículo 16.—Servicios preventivos. Como parte de los servicios preventivos, la Auditoría brinda asesoría al Concejo. Esa asesoría puede ser verbal o escrita, sobre asuntos de competencia de la Auditoría y a solicitud expresa del Concejo.
-También la Auditoría presta servicios de advertencia, dirigidos a la Municipalidad y a los demás órganos o entes de la competencia institucional, incluidos los entes privados, que reciban fondos públicos. Este servicio será de oficio, cuando los asuntos sean de conocimiento del Auditor.
-La asesoría y la advertencia, no son vinculantes para el que las recibe; las decisiones que tome con base en ellas quedan bajo su entera responsabilidad; sin embargo, la Auditoría verificará posteriormente, lo actuado por la administración.
-Los resultados de los servicios preventivos se comunican por escrito en lo posible y por los medios que la Auditoría considere pertinentes.
-El servicio de autorización de libros lo presta la Auditoría, de conformidad con la normativa emitida por la Contraloría y con el procedimiento vigente, definido y comunicado por el Auditor Interno.

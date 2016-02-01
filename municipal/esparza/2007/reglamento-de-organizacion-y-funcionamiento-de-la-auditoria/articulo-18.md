@@ -1,1 +1,0 @@
-Artículo 18.—Atención de denuncias. El Auditor establecerá un procedimiento, para la admisibilidad y atención de denuncias y para garantizar la confidencialidad del denunciante, de conformidad con lo establecido en la legislación aplicable.

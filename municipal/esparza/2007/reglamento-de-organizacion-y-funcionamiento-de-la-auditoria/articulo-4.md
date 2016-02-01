@@ -1,3 +1,0 @@
-Artículo 4º—Ubicación y estructura organizativa. La ubicación de la Auditoría, dentro de la estructura de la Municipalidad, corresponde a la de un órgano asesor de muy alto nivel y con dependencia orgánica del Concejo, de acuerdo con directrices dadas por la Contraloría General de la República.
-Corresponde al Auditor, disponer la estructura organizativa de la Auditoría Interna, en concordancia con la razón de ser de esa unidad, según las necesidades de fiscalización y con la normativa que regula a la Municipalidad y a la Auditoría.
-La estructura de la Auditoría está conformada por el Auditor y el personal profesional y administrativo que resulte necesario para el cumplimiento de sus competencias, procesos y actividades.
