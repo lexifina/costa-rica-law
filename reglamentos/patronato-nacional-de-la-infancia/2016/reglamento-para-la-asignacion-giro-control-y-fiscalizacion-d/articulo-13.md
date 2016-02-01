@@ -1,0 +1,1 @@
+Artículo 13°.- Cuando la adolescente madre cumpla la mayoría de edad durante cualquier mes del ciclo lectivo que se encuentre cursando, se le garantizará el giro del pago mensual de la beca hasta finalizar el curso lectivo.

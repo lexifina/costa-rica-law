@@ -1,0 +1,18 @@
+Artículo 2º.- Para efectos del presente reglamento se entenderán por:
+1. Adolescente madre: aquella mujer menor de edad embarazada o que, sin distinción de estado civil, tenga al menos un hijo o una hija. (según Ley General de Protección a la Madre Adolescente. Nº 7735).
+2. Beca: Subvención económica que se entrega a la beneficiaria de esta reglamentación destinada a sufragar gastos necesarios que garanticen su reinserción y permanencia en el sistema educativo, otorgada por el plazo de un año. El subsidio debe ser empleado en las necesidades educativas de la beneficiaria y aquellos otros aspectos que, favorezcan en su desarrollo educativo, sean éstos: útiles escolares, uniformes, transporte, alimentación, cuotas escolares e implementos de necesidad personal, o en el cuido de su hijo, hija (s) mientras la adolescente madre asiste a las actividades educativas.
+3. Beneficiaria: adolescentes madres en condición de vulnerabilidad social según detalle que se señala en el reglamento.
+4. COI: Centro de Orientación e Información, unidad adscrita a la Gerencia Técnica del PANI la cual brinda información y orientación a la persona menor de edad embarazada o adolescente madre, encargados, familiares, entre otros, acerca de los requerimientos para obtener la beca y otras gestiones administrativas y de control del proceso de becas
+5. Comité evaluador: ente designado para el análisis de las solicitudes de beca de las adolescentes madres y la aprobación o no de la beca.
+6. DFC: El Departamento Financiero Contable del PANI, dependencia de la Gerencia de Administración que le competente realizar el proceso de pago de las becas.
+7. Dirección Regional: Dependencia adscrita a la Gerencia Técnica, encargada de la dirección de los asuntos técnicos y administrativos de cada región según indique la distribución geográfica nacional.
+8. Encargado: Persona mayor de edad, sea este el padre, madre, guardador (a), representante legal o persona de la comunidad quien se compromete a apoyar a la beneficiaria, asesorándola sobre el uso adecuado de la beca.
+9. Gerencia Técnica: La Gerencia Técnica del PANI, encargada de brindar el apoyo a la Presidencia Ejecutiva para el funcionamiento técnico eficiente del PANI.
+10. Gerencia de Administración: Gerencia de Administración del PANI, encargada de brindar el apoyo a la Presidencia Ejecutiva para el funcionamiento administrativo eficiente del PANI.
+11. Junta Directiva: La Junta Directiva del PANI, máximo órgano político que gestiona recursos financieros y técnicos necesarios para el logro de los fines institucionales.
+12. MEP: Ministerio de Educación Pública.
+13. Oficina Local: Dependencia del Patronato Nacional de la Infancia adscrita a una Dirección Regional, competente para recibir la solicitud de beca, orientar a la solicitante, analizar y recomendar la aprobación o no de la beca.
+14. PANI: Patronato Nacional de la Infancia.
+15. Presidencia Ejecutiva: La Presidencia Ejecutiva del PANI, que ejecuta las políticas emanadas por la Junta Directiva.
+16. Representante Legal: Funcionarios de las Oficinas Locales del PANI con representación legal para firmar los contratos de beca.
+17. Vulnerabilidad: Éste término no se refiere exclusivamente a la situación de pobreza como carencia de recursos materiales, sino también a la falta de capacidad y de organización necesaria para mejorar la calidad de vida y acceder a diferentes bienes y servicios. La situación de vulnerabilidad se vincula con la precaria situación laboral, con la fragilidad personal, institucional y con el debilitamiento o ruptura de la red de relaciones familiares, comunitarias y sociales.

@@ -1,0 +1,1 @@
+Artículo 26°.-En caso de detectarse irregularidades en la tramitología y gestión de las becas, la Presidencia Ejecutiva analizará lo procedente e instruirá sobre las medidas correctivas que deberán implementarse para enderezar el debido proceso.

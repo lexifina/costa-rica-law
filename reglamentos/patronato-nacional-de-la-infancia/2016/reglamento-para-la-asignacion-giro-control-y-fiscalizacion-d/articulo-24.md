@@ -1,0 +1,2 @@
+SECCIÓN SÉTIMA: OTRAS RESPONSABILIDADES
+Artículo 24°.- En aquellos casos en que se identifiquen giros indebidos, la instancia que realiza la detección, deberá trasladar la situación al superior inmediato, para que éste a su vez proceda a elevarla al Departamento de Asesoría Jurídica para el pronunciamiento que corresponda, según el debido proceso en estricto cumplimiento de la Ley Nº6227 y además en aras de salvaguardar en todo momento el interés superior y mejor interés de las adolescentes madres pertenecientes al Programa de Becas del PANI.

@@ -1,0 +1,2 @@
+Artículo 18º.- El Comité Evaluador tendrá la responsabilidad de analizar las solicitudes de beca, siendo que, en un plazo no mayor a diez días hábiles, a partir de que cuenta con las solicitudes de beca completas, deberá pronunciarse aprobando o denegando las mismas.
+Una vez aprobada o denegada la beca, el Comité Evaluador, por medio del encargado del Programa Adolescente, será responsable de enviar al COI en un plazo de 3 días hábiles y mediante correo electrónico, copia de la hoja del formulario donde se emite el resultado de la solicitud.

@@ -1,0 +1,1 @@
+Artículo 6°.- De la revisión. Revisión y análisis de los datos consignados en el formulario. Debe emitirse un criterio o justificación técnica por parte del profesional competente de la Oficina Local, registrándose en el apartado “Justificación de aprobación o desaprobación de la Beca” tomando en cuenta los indicadores de vulnerabilidad.

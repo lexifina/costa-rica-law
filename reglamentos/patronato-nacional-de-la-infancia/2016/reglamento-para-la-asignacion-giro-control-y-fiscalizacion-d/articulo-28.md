@@ -1,0 +1,2 @@
+Artículo 28°.- Vigencia. El presente Reglamento rige a partir de su publicación.
+SE DECLARA ACUERDO FIRME POR UNANIMIDAD DE LOS PRESENTES. LA VOTACION SE REALIZA CON CINCO MIEMBROS DE JUNTA DIRECTIVA.

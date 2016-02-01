@@ -1,0 +1,1 @@
+Artículo 27°.- Se deroga el Reglamento para la asignación, giro, control y fiscalización de las becas educativas dirigidas a adolescentes embarazadas y/o madres en condición de pobreza, pobreza extrema o de vulnerabilidad social, publicado en el Diario Oficial La Gaceta Nº98 del 23 de marzo de 2014.
