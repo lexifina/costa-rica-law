@@ -1,1 +1,0 @@
-Artículo 14.- Suspensión de servicios: cuando el lector no devuelva los libros en la fecha de vencimiento, se le enviará un memorando, y si no fuera atendido en el plazo de 3 días hábiles, le serán suspendidos los servicios de préstamo y se informará a la Unidad de Relaciones Laborales para los efectos pertinente.

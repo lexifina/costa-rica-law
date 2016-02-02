@@ -1,1 +1,0 @@
-Artículo 17.- Previo al trámite de la respectiva liquidación de beneficios laborales, la División de Recursos Humanos debe consultar a la Biblioteca si existen boletas de préstamo de libros pendientes de entrega. Con base en la información que esta última brinde, se procederá a su cobro según corresponde.

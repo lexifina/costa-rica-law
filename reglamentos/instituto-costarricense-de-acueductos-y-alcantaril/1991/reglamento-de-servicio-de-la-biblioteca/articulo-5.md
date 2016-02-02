@@ -1,1 +1,0 @@
-Artículo 5°.- La Biblioteca mantendrá un préstamo interbibliotecario sujeto a las reglamentaciones acordadas con las bibliotecas participantes, siempre y cuando no contravenga lo establecido en el presente Reglamento.

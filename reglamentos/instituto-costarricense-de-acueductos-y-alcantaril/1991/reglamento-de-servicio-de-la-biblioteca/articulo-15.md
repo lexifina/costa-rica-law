@@ -1,2 +1,0 @@
-Artículo 15.- Multa: por cada día que el prestatario se retrase en la devolución del libro (s) que se le hayan prestado, pagará una multa de ¢50.00 (cincuenta colones) diario por unidad. La Biblioteca enviará en memorando a la Dirección Financiera para la respectiva deducción.
-En la boleta del préstamo se establecerán las condiciones bajo las cuales se debe pactar con el usuario del servicio, para poder obtener el libro en calidad de préstamo, tales como: multa, autorización para deducir del salario las multas en que incurra o cualquier otra regulación al efecto.
