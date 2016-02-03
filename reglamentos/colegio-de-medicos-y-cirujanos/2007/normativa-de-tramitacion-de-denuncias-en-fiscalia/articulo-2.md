@@ -1,2 +1,0 @@
-Artículo 2º—Para el trámite de las denuncias, el Fiscal del Colegio contará con la colaboración de un Fiscal Adjunto, nombrado por la Junta de Gobierno a tiempo completo, quién deberá ser médico.
-En los casos en los cuales se denuncien hechos relacionados con Profesionales Afines o con Tecnólogos, la Fiscalía del Colegio informará al Fiscal que corresponda sobre la existencia de la denuncia, del trámite que se realice y solicitará la ayuda que considere necesaria a la Junta Directiva respectiva.

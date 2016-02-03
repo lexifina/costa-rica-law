@@ -1,2 +1,0 @@
-Artículo 6º—Una vez recibida la denuncia, la Fiscalía evaluará los hechos denunciados para determinar si es procedente realizar una investigación. En caso de determinar que no es procedente la investigación, la Fiscalía elaborará un informe en el cual se establezcan los motivos por los cuales estima que la denuncia es improcedente y lo presentará a la Junta de Gobierno solicitando el archivo del expediente.
-La decisión de la Junta de Gobierno sobre la solicitud de archivo del expediente, deberá ser comunicada por la Fiscalía al denunciante una vez que el acuerdo esté firme.

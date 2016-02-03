@@ -1,1 +1,0 @@
-Artículo 5º—La tramitación de la denuncia se suspenderá en la fase en que se encuentre, cuando mediante documento se acredite la existencia de algún proceso judicial por los mismos hechos. La suspensión se comunicará a los interesados y se mantendrá hasta que el proceso judicial finalice en forma definitiva.

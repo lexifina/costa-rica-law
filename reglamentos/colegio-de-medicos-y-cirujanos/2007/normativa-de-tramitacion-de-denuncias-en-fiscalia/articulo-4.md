@@ -1,2 +1,0 @@
-Artículo 4º—A toda denuncia que ingrese a la Fiscalía se le asignará un número de expediente, el cual estará compuesto por un consecutivo numérico, seguido por el año en el cual se inició el trámite. El consecutivo iniciará todos los años con el número uno y la Fiscalía llevará un libro de registro de los ingresos.
-El expediente estará foliado y contendrá los documentos que se presenten con la denuncia y todos los que se agreguen en la investigación.

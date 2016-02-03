@@ -1,2 +1,0 @@
-Artículo 8º—De la entrevista que se realice al denunciante, la Fiscalía establecerá si requiere otros elementos adicionales para determinar el curso de la investigación, en cuyo caso utilizará los medios que tenga a su alcance para obtenerlos; en caso de considerarlo oportuno entrevistará al denunciado, indicándole claramente que se trata de una investigación preliminar, así como el posible curso del proceso.
-La Fiscalía, elaborará un informe de todas las actuaciones que realice dentro del expediente.
