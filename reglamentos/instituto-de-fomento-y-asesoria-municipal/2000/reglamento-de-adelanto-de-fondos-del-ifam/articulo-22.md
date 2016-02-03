@@ -1,1 +1,1 @@
-Artículo 22.—En caso de que aceptada la liquidación resulten saldos a favor del funcionario responsable del Adelanto de Fondos, Administración deberá girárselos dentro de los cinco días hábiles posteriores a dicha aceptación.
+Artículo 22.—En caso de que aceptada la liquidación resulten saldos a favor del funcionario responsable del Adelanto de Fondos, la Administración deberá girárselos dentro de los cinco días hábiles posteriores a dicha aceptación.
