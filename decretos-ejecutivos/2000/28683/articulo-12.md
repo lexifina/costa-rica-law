@@ -1,1 +1,0 @@
-Artículo 12.—Cada premio se otorgará sólo una vez a cada persona o equipo de trabajo en un acto especial, según calendario de entrega de premios que establezca el Ministerio de Cultura, Juventud y Deportes.
