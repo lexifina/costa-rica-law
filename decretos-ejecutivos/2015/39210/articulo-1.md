@@ -1,4 +1,6 @@
+(Anulada)
 Nº 39210-MP-S
+(Mediante resolución de la Sala Constitucional N° 1692 del 3 de febrero de 2016, se anuló el presente decreto ejecutivo.)
 EL PRESIDENTE DE LA REPÚBLICA
 EL MINISTRO DE LA PRESIDENCIA
 Y EL MINISTRO DE SALUD
