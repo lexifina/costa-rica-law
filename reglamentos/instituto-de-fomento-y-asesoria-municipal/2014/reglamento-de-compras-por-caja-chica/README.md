@@ -15,3 +15,4 @@ Reglamento de Compras por Caja Chica
 | --- | --- | --- |
 | 1 | 2014-05-28 | la propia norma |
 | 2 | 2015-11-11 | Reglamento 4365 (2015-11-11) |
+| 3 | 2016-02-03 | Reglamento 4372 (2016-02-03) |
