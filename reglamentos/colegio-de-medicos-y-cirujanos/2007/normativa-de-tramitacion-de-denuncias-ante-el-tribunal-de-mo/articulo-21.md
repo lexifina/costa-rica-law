@@ -1,1 +1,0 @@
-Artículo 21.—En lo expresamente no regulado en esta Normativa, se aplicará supletoriamente la Ley Orgánica del Colegio de Médicos y Cirujanos y su Reglamento Ejecutivo; así como la Ley General de la Administración Pública.

@@ -1,5 +1,0 @@
-Artículo 10.—Las audiencias establecidas en la presente normativa se realizarán en presencia de por lo menos dos miembros del Tribunal de Moral y serán dirigidas por alguno de sus integrantes.
-Dentro de la audiencia, las partes podrán hacerse acompañar de un abogado o representante legal si así lo desean, quien podrá asesorar en el desarrollo de la audiencia. El colegiado que haya sido denunciado deberá estar presente en la audiencia y será quien declare y responda a las preguntas.
-Durante la recepción de la prueba testimonial y la prueba pericial, las partes podrán formular preguntas, las cuales deberán ser aprobadas por el Tribunal de Moral antes de ser contestadas. Mientras los testigos estén declarando las partes no pueden intervenir ni sugerirle la contestación.
-Si el Tribunal lo considerara necesario, podrá pedirle al testigo que salga de la sala para debatir algunos aspectos con las partes, solicitando su reingreso una vez finalizada la discusión; procedimiento que podrá realizar siempre que lo estime conveniente.
-De la audiencia o audiencias realizadas se levantará un acta, la cual podrá ser consultada por las partes.

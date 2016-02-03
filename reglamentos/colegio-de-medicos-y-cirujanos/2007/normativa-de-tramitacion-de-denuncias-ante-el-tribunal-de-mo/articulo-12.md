@@ -1,1 +1,0 @@
-Artículo 12.—Una vez evacuada toda la prueba ofrecida dentro del procedimiento, el Tribunal de Moral estudiará las actuaciones y determinará si es necesario solicitar una nueva prueba, en cuyo caso lo comunicará a las partes y convocará a una nueva audiencia.
