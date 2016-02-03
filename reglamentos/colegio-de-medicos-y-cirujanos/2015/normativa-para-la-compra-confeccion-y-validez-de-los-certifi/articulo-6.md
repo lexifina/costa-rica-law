@@ -1,0 +1,1 @@
+Artículo 6º—Tipo de papelería. Queda prohibida la emisión de Certificados Médicos Digitales mediante el uso de papelería o mecanismos de confección no avalados por el Colegio de Médicos y Cirujanos de Costa Rica. Lo anterior, de conformidad con la presente normativa y demás normas que regulan el correcto ejercicio de la profesión médica.

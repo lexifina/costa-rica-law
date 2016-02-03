@@ -1,0 +1,1 @@
+Artículo 10.—Criterio médico final. Los Certificados Médicos Digitales, deberán apegarse estrictamente a la verdad. Los mismos, podrán extenderse con base en el criterio médico objetivo, la realización de exámenes clínicos o de laboratorio, o mediante el análisis de estudios médicos efectuados al paciente o solicitante en cuestión.

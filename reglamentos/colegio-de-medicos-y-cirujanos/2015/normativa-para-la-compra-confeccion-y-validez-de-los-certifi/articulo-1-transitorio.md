@@ -1,0 +1,1 @@
+Transitorio I.—Por un plazo de seis meses a partir de la fecha de publicación de esta normativa, se podrá utilizar tanto el certificado médico impreso en papel oficial como el certificado médico digital. Vencido dicho periodo todo certificado médico deberá elaborarse mediante el proceso digital aquí establecido.
