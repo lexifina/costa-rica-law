@@ -1,2 +1,0 @@
-Artículo 2°—Adiciónese un transitorio al artículo 8 del Decreto Ejecutivo que crea los Premios Nacionales de Ciencia y Tecnología, “Clodomiro Picado Twight”, N° 28683-C-MICIT del 4 de abril del año dos mil, cuyo texto dirá:
-“Transitorio.—Para los Premios Nacionales de Ciencia y Tecnología correspondientes al año 2010 podrán ser considerados todos aquellos que hayan sido publicados a partir del 1º de octubre del 2008.”
