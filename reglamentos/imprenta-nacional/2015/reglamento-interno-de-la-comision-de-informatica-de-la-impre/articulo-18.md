@@ -1,0 +1,1 @@
+Artículo 18.—Informes. Los grupos de trabajo presentarán sus informes con ocho días de antelación, al vencimiento del plazo, vía correo electrónico, para que puedan ser valorados en el seno de la Comisión.
