@@ -1,20 +1,14 @@
-ENTE COSTARRICENSE DE ACREDITACIÓN:
-Modificación de documentos 003-2014.-El Ente Costarricense de Acreditación (ECA), da a conocer las modificaciones de los documentos códigos ECA-MC-P16, ECA-MC-P21, ECA-MC-P17, ECA-MC-P20, ECA-MC-PO01 y ECA-MC-PO02 Procedimiento de Investigación; emitidos de la siguiente manera:
-Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha de entrada en vigencia en el sistema de gestión del ECA
-ECA-MC-P16 Procedimiento de investigación | Versión 08 | Versión 09 Esta publicación versión 09, deja sin efecto el documento publicado el 13 de febrero del 2014 en La Gaceta N° 31, con la misma versión. | 24 de marzo del 2014 | Tres meses después de su publicación en el Diario Oficial La Gaceta.
-ECA-MC-P21 Procedimiento de Gestión del CEE, antes llamado: Reclutamiento, selección, incorporación, evaluación del desempeño y cambios de categoría al cuerpo de evaluadores y expertos técnicos. | Versión 05 | Versión 06. Esta publicación versión 06, deja sin efecto el documento publicado el 13 de febrero del 2014 en La Gaceta N° 31, con la misma versión. | 24 de marzo del 2014 | A partir de su publicación en el Diario Oficial La Gaceta.
-ECA-MC-P20 Política de trazabilidad mediciones | Versión 04 | Versión 05 | 18 de febrero del 2014 | Tres meses después de su publicación en el Diario Oficial La Gaceta.
-ECA-MC-P17 Política y criterios para la participación en ensayos/pruebas de aptitud y otras comparaciones para los laboratorios | Versión 03 | Versión 04 | 18 de febrero del 2014 | Seis meses después de su publicación en el Diario Oficial La Gaceta.
-Los documentos modificados se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas. Entra en vigencia según indicación descrita en esta publicación.
-San José, 24 de marzo del 2014.-
-(Nota de Sinalevi: La presente norma se extrajo del sitio web Ente Costarricense de Acreditación, por lo que se reproduce a continuación:)
-Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 169 del 31 de agosto del 2015, donde se actualiza la versión 04 y se publica la versión 05 que se reproduce a continuación:)
 ENTE COSTARRICENSE DE ACREDITACIÓN
+AVISOS
+El Ente Costarricense de Acreditación ( ECA ), da a conocer la modificación del documento código ECA -MC-P17 Criterios para la Participación en Ensayos/ Pruebas de Aptitud y Otras Comparaciones, emitido el 25 de mayo del 2012, de la siguiente manera:
+La Gerencia del Ente Costarricense de Acreditación ( ECA ) informa que se ha modificado del Procedimiento ECA -MC-P17 Criterios para la Participación en Ensayos/ Pruebas de Aptitud y Otras Comparaciones Versión 02, el cual deja sin efecto el anterior procedimiento: ECA -MC-P17 Política y Criterios para la Participación en Ensayos/Pruebas de Aptitud y Otras Comparaciones para los Laboratorios Versión 01-
+El Procedimiento ECA -MC-P17 Criterios para la Participación en Ensayos/Pruebas de Aptitud y Otras Comparaciones Versión 02 se encontrará a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo podrán solicitar gratuitamente una copia no controlada en la Gestoría de Calidad de las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del centro comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas. Entra en vigencia a partir de esta publicación en el Diario Oficial La Gaceta.-San José, 25 de mayo del 2012.-
+(Nota de Sinalevi: El presente procedimiento se extrajo del sitio Web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 45 del 4 de marzo del 2016, donde se actualiza la versión 05 y se publica la versión 06 que se reproduce a continuación:)
 [imagen]
-POLITICA PARA LA PARTICIPACIÓN EN ENSAYOS/ PRUEBAS DE APTITUD Y OTRAS COMPARACIONES | Código N : ECA-MC-P17 | Páginas: 1 de 24
-| Fecha emisión: 25.06.2015 | Versión: 05
-Modificado por: | Revisado por: | Aprobado por: | Fecha de entrada en vigencia:
-Coordinador de la Secretaría Acreditación de Laboratorios | Directora Técnica | Junta Directiva | Acuerdo N° JD- 002-2015-11 , Sesión ordinaria JD-002-2015, 25 de Junio del 2015. A partir de 31 de Agosto del 2015, publicado en el diario oficial la Gaceta #169 del 31.08.2015
+POLITICA PARA LA PARTICIPACIÓN EN ENSAYOS/ PRUEBAS DE APTITUD Y OTRAS COMPARACIONES | Código N° : ECA-MC-P17 | Páginas: 1 de 27
+| Fecha emisión: 04.03.2016 | Versión: 06
+Modificado por: Revisado por: Aprobado por: Fecha de entrada en vigencia: Comité Asesor de Laboratorios Clínicos Coordinadora de la Secretaría Acreditación de Laboratorios Clínicos Junta Directiva Acuerdo N° JD- 005-2015-06, Sesión ordinaria JD-005-2015, 20 de Noviembre del 2015. A partir de 04 de Marzo del 2016, publicado en el diario oficial la Gaceta #45 del 04.03.2016 Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 TABLA DE CONTENIDO
 1. INTRODUCCIÓN .................................................................................................................... 1
 2. OBJETIVO .............................................................................................................................. 2
@@ -25,10 +19,10 @@ TABLA DE CONTENIDO
 7 PLAN DE PARTICIPACIÓN EN INTERCOMPARACIONES .................................................. 10
 8 MONITOREO DEL DESEMPEÑO EN INTERCOMPARACIONES ........................................ 12
 9 BONO DE CONFIANZA (no aplica a organismos de inspección). ......................................... 13
-10 CRITERIOS ESPECÍFICOS PARA LA EVALUACIÓN DE PROVEEDORES DE ENSAYOS/ PRUEBAS DE APTITUD Y OTRAS COMPARACIONES PARA LOS LABORATORIOS Y ORGANISMOS DE INSPECCIÓN (cuando sea relevante para el caso de organismos de inspección) ..................................................................................................................................... 14
-11 BIBLIOGRAFIA ..................................................................................................................... 15
-12 ANEXO ................................................................................................................................. 15
-13 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 24
+10 CRITERIOS ESPECÍFICOS PARA LA EVALUACIÓN DE PROVEEDORES DE ENSAYOS/ PRUEBAS DE APTITUD Y OTRAS COMPARACIONES PARA LOS LABORATORIOS Y ORGANISMOS DE INSPECCIÓN (cuando sea relevante para el caso de organismos de inspección) ..................................................................................................................................... 16
+11 BIBLIOGRAFIA ..................................................................................................................... 17
+12 ANEXO ................................................................................................................................. 17
+13 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 26
 1. INTRODUCCIÓN
 Los laboratorios y los organismos de inspección (para estos últimos cuando sea relevante), deben poseer formas para demostrar la validez de los ensayos, calibraciones e inspecciones que realizan como parte de su control de calidad y ECA, como Organismo de Acreditación, está en la obligación de velar por su cumplimiento. De allí radica la importancia de participar en actividades de ensayo de aptitud u otras comparaciones, para asegurar la calidad de los resultados y demostrar la competencia técnica, convirtiéndose en una herramienta útil, tanto para el propio laboratorio u organismo de inspección, como para el ECA.
 ILAC, establece que con el fin de obtener y mantener los acuerdos de reconocimiento mutuo entre los sistemas de Acreditación de laboratorios, es necesario que ECA, establezca los lineamientos para la participación de los laboratorios y organismos de inspección acreditados o en proceso de Acreditación; así como las responsabilidades de los laboratorios y organismos de inspección, evaluadores y del propio ECA para asegurar las buenas prácticas en el uso de programas de ensayos de aptitud organizados en el ámbito nacional, regional o internacional.
@@ -138,7 +132,9 @@ iv. El control de los materiales que se ponen a prueba diariamente como parte de
 El uso de los datos provenientes de estas fuentes, deben seguir los mismos principios relativos al seguimiento de desempeños no satisfactorios, ver apartados 6.10, 6.11 y 6.12.
 6.10 El laboratorio u organismo de inspección (cuando sea relevante en el caso de organismos de inspección), acreditado o en proceso de acreditación, o ampliación, debe realizar un análisis crítico de los resultados provenientes de su participación en programas de ensayos de aptitud y las investigaciones de cualquier resultado no satisfactorio y cuestionable, la aplicación del control de ensayos/ calibraciones no conformes y las acciones correctivas consiguientes, así como la definición del plazo de corrección comprometido.
 6.10.1 En el caso de los laboratorios clínicos: cuando el laboratorio tenga participaciones no satisfactorias, debe demostrar el cumplimiento con su requerimiento de calidad, en caso que el resultado se encuentre fuera del requerimiento, se requiere el análisis de causas, el planteamiento de acciones correctivas necesarias y la verificación de efectividad de sus acciones correctivas aplicadas en los siguientes interlaboratoriales. El requerimiento de calidad debe proveer, tanto como sea posible desafíos clínicamente pertinentes.
-6.11 La información del análisis anterior (investigaciones de resultados no satisfactorios y cuestionables, la aplicación del control de ensayos/ calibraciones no conformes y las acciones correctivas y los plazos para su implementación) deben ser entregados a la Secretaría de Acreditación respectiva en un plazo de 30 días hábiles a partir de la fecha en que se recibieron los resultados por parte del proveedor. La Secretaría de Acreditación es responsable de dar seguimiento a la implementación de las acciones correctivas y de apoyarse en el equipo evaluador si fuera necesario.
+6.11 La información del análisis anterior (investigaciones de resultados no satisfactorios y cuestionables, la aplicación del control de ensayos/ calibraciones no conformes y las acciones correctivas y los plazos para su implementación) deben ser entregados a la Secretaría de Acreditación respectiva en un plazo de 30 días hábiles a partir de la fecha en que se recibieron los resultados por parte del proveedor.
+Los laboratorios clínicos deberán entregar a la Secretaría de Acreditación, en un plazo de 15 días hábiles a partir de la fecha en que se recibieron los resultados por parte del proveedor, los reportes del análisis del cumplimiento con su requerimiento de calidad y si el resultado se encuentre fuera del requerimiento, el análisis de causas, el planteamiento de acciones correctivas necesarias
+La Secretaría de Acreditación es responsable de dar seguimiento a la implementación de las acciones correctivas y de apoyarse en el equipo evaluador si fuera necesario.
 Nota 1: El envío de esta información puede coincidir o no con el reporte del requisito 6.13.
 Nota 2: El análisis debe ser remitido tanto por los laboratorios u organismos de inspección (cuando sea relevante en el caso de organismos de inspección) acreditados como en proceso de acreditación o ampliación.
 6.12 Solo en el caso de obtener resultados insatisfactorios, el laboratorio u organismo de inspección (cuando sea relevante en el caso de organismos de inspección), acreditado o en proceso de acreditación o ampliación, debe participar en ensayos/pruebas de aptitud u otras comparaciones subsecuentes, que estén disponibles, o cumplir con el punto 6.9 de este documento, en un plazo no mayor de seis meses de recibido el resultado no satisfactorio, para demostrar que las acciones correctivas son efectivas.
@@ -175,8 +171,7 @@ http://www.a2la.org/dirsearchnew/ptproviders.cfm
 http://www.scc.ca/en/complete-listing-palcan-directory-of-accredited-clients
 http://www.ema.org.mx/ema/ema/index.php?option=com_content&task=blogcategory&id=130&Itemid=157
 http://www.mollabs.com
-http://www.sim-metrologia.org.br/
-https://www.api-pt.com/
+http://www.sim-metrologia.org.br/https://www.api-pt.com/
 www.lgcstandards.com/
 www.fapas.com/
 www.aoac.org/proficiencytesting/proficiency.html
@@ -205,174 +200,11 @@ c) En los laboratorios clínicos, los cálculos realizados para demostrar que lo
 8.3 El laboratorio u organismo de inspección (cuando sea relevante en el caso de organismos de inspección), debe poder aportar en las evaluaciones información sobre el diseño del programa, incluyendo la frecuencia, procedimiento para establecer valores asignados, instrucciones para los participantes, tratamiento estadístico de los datos y el informe final de cada ensayo de aptitud seleccionado.
 8.4 En caso de que el laboratorio u organismo de inspección (cuando sea relevante, en el caso de organismos de inspección):
 a) No cumpla con haber participado en el número de programas de ensayos de aptitud requeridos.
-b) Obtuviera desempeños insatisfactorios consecutivos, para la misma familia
-c) En el caso de los laboratorios clínicos: cuando el laboratorio tenga 2 participaciones no satisfactorias consecutivas, debe demostrar el cumplimiento con su criterio de calidad y la efectividad de sus acciones correctivas cuando aplique; y reportar a la Secretaría de Acreditación respectiva de forma inmediata. El requerimiento de calidad debe proveer, tanto como sea posible desafíos clínicamente pertinentes.
-d) No demuestre haber tomado medidas correctivas apropiadas o éstas no hayan resultado ser efectivas;
-e) Si el laboratorio clínico no logra demostrar el cumplimiento con su requerimiento de calidad.
+b) Obtuviera desempeños insatisfactorios consecutivos, para la misma familia. Los laboratorios clínicos cuando obtenga 2 participaciones no satisfactorias consecutivas para el mismo analito y no logre demostrar el cumplimiento con su requerimiento de calidad.
+c) No demuestre haber tomado medidas correctivas apropiadas o éstas no hayan resultado ser efectivas;
 El ECA procede conforme a lo establecido en ECA-MC-P16: Procedimiento de investigación.
 9 BONO DE CONFIANZA (no aplica a organismos de inspección).
 9.1 Los laboratorios que:
 9.1.1 Como mínimo participen en ensayos de aptitud u otras comparaciones, dos veces, en un mismo ciclo de acreditación, para cada familia incluida en su alcance de acreditación, en cumplimiento de lo establecido en el anexo 1 y
-9.1.2 Presenten evidencia de esos resultados satisfactorios consecutivos para cada familia.
-No recibirán la evaluación de seguimiento más próxima. De esta forma el laboratorio recibe una extensión del periodo de fiscalización que realiza el ECA del alcance de acreditación.
-Nota: Con este beneficio se logra una extensión del plazo establecido para las evaluaciones de seguimiento. No debe entenderse que el ECA deja de evaluar alguna parte del alcance acreditado o los requisitos de gestión durante el ciclo de reevaluación.
-9.2 En los casos donde el laboratorio entregue la evidencia necesaria para optar por el bono de confianza, y la evaluación documental ya haya sido realizada, el beneficio se traslada para la evaluación de seguimiento siguiente. El beneficio no aplica para las reevaluaciones y es solo aplicable para un seguimiento por ciclo de acreditación.
-9.3 Para poder optar por este beneficio el laboratorio debe cumplir los siguientes requisitos:
-a) Contar con al menos un ciclo de acreditación completado.
-b) Durante el ciclo de acreditación, para el cual se solicita el bono de confianza, no debe tener en su expediente inicio de un proceso de investigación relacionado con potenciales incumplimientos de este documento.
-c) Contar dentro del plan de intercomparaciones con actividades formales de ensayos de aptitud o intercomparaciones, por lo que los laboratorios que únicamente puedan aplicar el requisito 6.9 de este documento no pueden optar por este beneficio, esto se debe a que dicho laboratorio no se está sometiendo a una evaluación externa adicional para aseguramiento de la competencia técnica de los ensayos o calibraciones.
-d) Evidencia de participación en ensayos de aptitud o intercomparaciones, de forma tal que al menos se duplique la frecuencia mínima solicitada por esta política (ver anexo) y con resultados satisfactorios, para todas las familias de ensayos o calibraciones que tenga acreditadas el laboratorio.
-Nota. El laboratorio que presente el plan citado en el inciso anterior cumple con el requisito 7.1 de este documento.
-e) Los resultados de las intercomparaciones satisfactorias que se presenten deben estar dentro del ciclo de reevaluación actual en que se encuentre el laboratorio, no se aceptan resultados de intercomparaciones de ciclos anteriores para optar por este beneficio.
-10 CRITERIOS ESPECÍFICOS PARA LA EVALUACIÓN DE PROVEEDORES DE ENSAYOS/ PRUEBAS DE APTITUD Y OTRAS COMPARACIONES PARA LOS LABORATORIOS Y ORGANISMOS DE INSPECCIÓN (cuando sea relevante para el caso de organismos de inspección)
-10.1 El ECA acepta los siguientes proveedores de ensayos/ pruebas de aptitud y otras comparaciones:
-a) Cualquier programa de ensayos de aptitud en el cual los OEC deseen participar, que demuestren conformidad con la norma ISO/IEC 17043, cuando sea aplicable, a través de evidencia de la acreditación del proveedor en la norma ISO/IEC 17043, o por la evaluación por pate del laboratorio al proveedor del ensayo de aptitud no acreditado. En el último caso, el laboratorio debe hacer uso de su procedimiento de compras de servicios y suministros para demostrar la conformidad del proveedor con los siguientes requisitos de la norma ISO/IEC 17043: preparación apropiada de las muestras o ítem a ensayar, homogeneidad y estabilidad de la muestra, diseño estadístico, forma de establecer el valor asignado y análisis de datos.
-b) Los programas de aptitud realizados por:
-i. Cooperación Interamericana de Acreditación (IAAC).
-ii. Asia Pacific Laboratory Accreditation Cooperation (APLAC),
-iii. European Cooperation Accreditation (EA)
-iv. Southern African Development Community Cooperation in Accreditation (SADCA),
-v. Laboratorio Costarricense de Metrología (LACOMET) o los laboratorios nacionales designados por LACOMET.
-vi. Colegio Americano de Patólogos (CAP)
-vii. Corporación Sysmex-Programa de comparación insight
-viii. Los ensayos de aptitud organizados por proveedores de ensayos de aptitud reconocidos por organismos de acreditación signatarios del MLA de IAAC y del MRA de APLAC y de ILAC.
-11 BIBLIOGRAFIA
- NT-03 Política ENAC Sobre intercomparaciones, Rev 4 julio 2011.
- MP-CA002-08 entidad mexicana de acreditación, a. c., Manual de Procedimientos, Política de Ensayos de Aptitud. fecha de emisión: 2011-07-22.
- R103a - The American Association for Laboratory Accreditation. Annex: Proficiency Testing for ISO/IEC 17025 Laboratories. Fecha de Revisión 14-05-2012
- Norma INTE-ISO/IEC 17011:2004. Evaluación de la conformidad- Requisitos Generales para los organismos de Acreditación que realizan la acreditación de organismos de evaluación de la Conformidad.
- Norma INTE-ISO/IEC 17025:2005. Requisitos Generales para la competencia de los laboratorios de ensayo y calibración.
- Norma INTE-ISO 15189:2008 Laboratorios de análisis clínicos. Requisitos Particulares para la calidad y la competencia.
- Norma INTE-ISO/IEC 17043:2010. Evaluación de la conformidad — Requisitos generales para los ensayos de aptitud.
- ILAC-P9:11/2010: ILAC Policy for Participation in Proficiency Testing Activities.
-12 ANEXO
-12.1 Anexo 1: Requisitos de participación
-12.1.1 ECA podrá modificar las frecuencias y familias con base en la importancia de los ensayos, inspecciones cuando aplique, o calibraciones, o por solicitudes de autoridades reguladoras. La lista presentada no pretende ser exhaustiva y se actualizará cuando se considere necesario por parte de los Comités Asesores respectivos.
-12.1.2 Cuando un ensayo o calibración no se encuentre dentro de alguna familia, el Comité Asesor respectivo analiza el caso y toma la decisión al respecto, para lo cual cuenta con un tiempo de 10 días hábiles.
-Laboratorios que realizan análisis clínicos acreditados con INTE-ISO/IEC 17025 o INTE-ISO 15189: Área | Frecuencia por cada ensayo |
-Bacteriología, micología, virología y Parasitología | 1 anual |
-Química Clínica Hormonas Toxicología Clínica | 3 anuales |
-Marcadores tumorales | 1 anual |
-Uroanálisis: Sedimento urinario Química urinaria | 3 anuales |
-Hematología Coagulación | 3 anuales |
-Inmunología o Serología | 3 anual |
-Biología Molecular (Incluye pruebas de paternidad) | 1 anual |
-Citogenética Genética Clínica, Genética Humana | 1 anual |
-Inmunohematología y Banco de Sangre | 3 anuales |
-Banco de Tejidos y Terapia Celular | 1 anual |
-Laboratorios que realizan análisis microbiológicos: Matriz | Microorganismos a ensayar | Requisitos de Participación |
-Agua Residual, Agua de Mar, Aguas | Salmonella spp Escherichia coli Recuento total aerobio mesófilos Coliformes totales, fecales Staphylococcus aureus Enterococos fecales Listeria spp |  1 participación cada 4 años por cada microorganismo a ensayar para cada matriz enlistada.  Cuando se tengan más de un ensayo o método acreditado para un mismo microorganismo dentro de una misma matriz deben alternarse la participación en intercomparaciones cada 4 años. |
-Agua | Salmonella spp Escherichia coli Recuento total aerobio | |
-| |
-|
-|
-Matriz | Microorganismos a ensayar Mesófilos Coliformes totales, fecales Enterococcos fecales Staphylococcus aureus Listeria spp Pseudomonas aeruginosa Legionella pneumophila | Requisitos de Participación |
-| | |
-| | |
-Alimentos (incluye alimentos, bebidas y bebidas alcohólicas) | Salmonella spp Escherichia coli Recuento total aerobio mesófilos Coliformes totales, fecales. Staphylococcus aureus Escherichia coli O157H7 Listeria spp. Recuento de hongos y levaduras | |
-Microbiología en sectores Fitosanitario y Zoosanitario | Salmonella spp Escherichia coli Escherichia coli O157H7 Recuento total aerobio mesófilos Coliformes totales, fecales Enterococos fecales Staphylococcus aureus Recuento de hongos y levaduras Listeria spp. | |
-Productos farmacéuticos, productos naturales medicinales, y dispositivos médicos | Escherichia coli Staphylococcus aureus Salmonella spp Coliformes totales, fecales Pseudomonas aeruginosa Recuento de Hongos y Levaduras Prueba LAL/Pirógenos Carga microbiana Esterilidad | |
-Laboratorios que realizan ensayos de materiales de construcción: | | |
-|
-Productos | Familia de ensayos | Requisitos de participación |
-Concretos | Incluye ensayos en concretos, mampostería y prefabricados. |  1 participación cada 4 años, por cada familia de ensayos enlistada.  Cuando se tengan más de un ensayo o método acreditado dentro de la familia, deben alternarse las intercomparaciones cada 4 años. |
-| | |
-Cementos | Incluye ensayos en cemento | |
-Agregados | Incluye ensayos en Agregados | |
-Varillas y aceros | Incluye ensayos en varillas y acero | |
-Suelos | Incluye ensayos de Suelos | |
-Asfaltos | Incluye ensayos en Mezclas Asfálticas y ligantes asfálticos. | |
-Laboratorios que realizan calibraciones: | |
-Magnitud | Familia de Equipos a calibrar | Requisitos de participación |
-Masa y cantidades relativas | Patrones de masa (pesas), e instrumentos de pesaje |  1 participación cada 4 años, por cada familia de equipos enlistada.  Si el laboratorio tiene acreditado métodos de calibración del mismo ítem con diferentes principios físicos debe alternase cada 4 años o participar en intercomparaciones en el más alto nivel metrológico con que cuenta el laboratorio, para cada disciplina, garantizando de esta forma que los niveles metrológicos inferiores se encuentran cubiertos al obtener resultados satisfactorios en intercomparaciones para los niveles metrológicos más altos. |
-| Calibración de equipo volumétrico | |
-| Calibración de densímetros Calibración de Viscosímetros Calibración de equipos por comparación (manómetros, transductores, esfigmomanómetros, entre otros equipos de medición de presión) Calibración de balanzas de presión Calibración de equipos para medición de dureza Calibración de equipos en torque Calibración de equipos para medición de fuerza Calibración de equipos para medición de flujo de líquidos Calibración de equipos para medición de flujo de gases | |
-Longitud | Calibración en frecuencia laser, calibración de bloques patrón, máquinas de coordenadas. Calibración en metrología dimensional: micrómetros, vernier, indicadores de carátula, reglas rígidas, cintas métricas, entre otros equipos | |
-Acústica, ultrasonido y vibraciones | Calibración de Sonómetros y otros equipos | |
-Termometría | Calibración de equipos por comparación (líquido en vidrio, termopares, termómetros resistencia de platino, termistores, entre otros) Calibración de equipos de temperatura por puntos fijos | |
-Humedad Relativa | Calibración de higrotermómetros y otros equipos para medición de humedad relativa | |
-Tiempo y frecuencia | Calibración de equipos para medición de tiempo y frecuencia | |
-Fotometría y radiometría | Filtros de densidad neutra, espectrofotómetros, opacímetros y otros equipos o patrones ópticos (materiales) | |
-| Calibraciones y medición en fibra óptica | |
-Radiación ionizante | Calibración de equipos de dosimetría | |
-Electricidad y Magnetismo | Calibración de equipos (AC/DC) para medición de: corriente, voltaje y resistencia Calibración de puentes de resistencia | |
-| Calibración de equipos en impedancia (inductores, capacitores) Calibración de equipos en radiofrecuencia Calibración de equipos para medición de potencia y energía Calibración o medición de campos magnéticos o materiales magnéticos | |
-pH y Conductividad | Calibración de pH metros Calibración de Conductímetros | |
-Velocidad y aceleración | Calibración de equipos para medición de velocidad Calibración de equipos para medición de aceleración | |
-Laboratorios que realizan análisis de agua potable, residual, de mar o recreacionales: | | |
-|
-Lista de Familias de Ensayos | Requisitos de Participación |
-sólidos totales sólidos suspendidos sólidos sedimentables sólidos volátiles |  1 participación cada 4 años por cada familia de ensayo enlistada.  Si el laboratorio tiene todos los ensayos acreditados de la familia debe alternar las pruebas cada 4 años |
-pH, temperatura, conductividad |
-DBO, DQO |
-Grasas y aceites (gravimétrico) |
-Sustancias activas al azul de metileno |
-Color y turbidez |
-Dureza total, dureza de calcio y dureza de magnesio. |
-Cloro total y cloro residual |
-Laboratorios que realizan análisis químicos generales: |
-Productos | Lista de Familias de Ensayos | Requisitos de participación
-Aniones Plaguicidas Hidrocarburos y compuestos volátiles Alcoholes Medicamentos y materias primas para medicamentos Otros analitos diferentes a los indicados | CROMATOGRAFIA  Cromatografía Líquida (LC, siglas en inglés);  Cromatografía Líquida de Alta Presión (HPLC, siglas en inglés);  Cromatografía de Gases (GC, siglas en ingles);  Cromatografía Gases-Masas (GC-MS)  Cromatografía Iónica (IC, siglas en inglés);  Super Critical Fluid Chromatography (SFC);  Electroforesis  Cromatografía de Capa fina (TLC, siglas en inglés); |  1 participación cada 4 años, en cada producto para la familia de ensayos enlistada.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada cuatro años o participar en el método más sensible.
-Metales, Metales Ferrosos, Metales No Ferrosos Medicamentos y materias primas para medicamentos Hidrocarburos Otros analitos diferentes a metales o hidrocarburos | ESPECTROSCOPIA:  Absorción atómica, horno de grafito, generador de hidruros, vapor en frío  Fluorescencia  Emisión por Plasma (ICP, siglas en inglés)  Ultravioleta-visible (UV/VIS)  Infrarrojo (IR/FTIR)  Espectrometría de masas (MS) |  1 participación cada 4 años, en cada producto para la familia de ensayos enlistada.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada cuatro años o participar en el método más sensible.  Para el caso de los metales y medicamentos, el laboratorio debe asegurar que durante el ciclo de reevaluación, se cubran todos los metales o medicamentos incorporados dentro del alcance acreditado.
-Alimentos | FISCIOQUÍMICOS DE ALIMENTOS:  humedad  grasa  cenizas  proteína  pH |  1 participación cada 4 años, para la familia de ensayos enlistada.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada cuatro años.
-Alimentos | Ensayos Fisicoquímicos en granos y semillas |  1 participación cada 4 años, para la familia de ensayos enlistada.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada cuatro años. 
-Casos especiales |  resonancia magnética  sensorial  enzimas  entre otros. |  1 participación cada 4 años, para la familia de ensayos enlistada.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada cuatro años.
-Otros analitos en otras matrices no especificadas | Ensayos en General  Titulaciones  Kjeldahl.  Combustión  Calorimetría |  1 participación cada 4 años, para la familia de ensayos enlistada.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada cuatro años.
-Laboratorios que realizan ensayos en el área eléctrica-electrónica, eficiencia energética: | |
-Productos | Lista de Familias de Ensayos | Requisitos de participación |
-Transformadores |  Pruebas eléctricas a Transformadores |  1 participación cada 4 años en cada familia de ensayos.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada 4 años. |
-Conductores |  Ensayos físicos en Conductores • Ensayos químicos en Conductores | |
-Productos Electrónicos de uso doméstico o en oficina |  Ensayos electrónicos o de seguridad | |
-Lavadoras electrodomésticas Refrigeradores y congeladores domésticos |  Ensayos de eficiencia energética | |
-Equipos para Telecomunicaciones |  Ensayos eléctricos o de seguridad | |
-Luminarios, balastros e iluminación |  Ensayos eléctricos y de eficiencia energética | |
-| |
-| | | | | | | | | | | | | | | | | | | | |
-Laboratorios que realizan ensayos en ambientes laborales:
-Lista de Familias de Ensayos | Requisitos de Participación |
-Mediciones de Ruido Mediciones de Vibraciones Mediciones de Iluminación Mediciones de Radiaciones ionizantes y Radiaciones no ionizantes |  1 participación cada 4 años en cada familia de ensayos.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada 4 años. |
-Laboratorios que realizan ensayos en aire o fuentes de emisión: |
-|
-|
-Lista de Familias de Ensayos | Requisitos de Participación |
-Gases (O2, CO2, CO, SO2 y óxidos de nitrógeno), Flujo, Gravimetría, Volumetría, compuestos orgánicos |  1 participación cada 4 años en cada familia de ensayos.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada 4 años.  Si los gases deben medirse en el sitio junto al muestreo no aplican rondas internacionales.  Si los gases son transportados para realizar la medición en el laboratorio como el biogas o gases fijos, entonces participar en una ronda alternando la matriz de la ronda cada 4 años. |
-Presión, Volumen, Gases, Emisiones Vehiculares Laboratorios que realizan ensayos en metal mecánica, mecánicos y físicos para diversos materiales: |
-Productos | Lista de Familias de Ensayos | Requisitos de Participación |
-Plásticos, metales y otros | Dureza |  1 participación cada 4 años en cada familia de ensayos.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada 4 años |
-Calzado, llantas, cristales, vidrios, cerámicas, cámaras de llantas, carcasas, plásticos, hules, entre otros. | ENSAYOS MECÁNICOS DESTRUCTIVOS:  Tensión,  elongación,  Compresión,  Impacto  aguante. | |
-Calzado, Válvulas de seguridad, Cristales automotrices, Llantas, Cámaras de llantas, Maderas, Gatos hidráulicos, Cinturones de Seguridad, Cascos de Seguridad, Chalecos antibalas, Condones | Ensayos de seguridad para | |
-Plásticos y Hules, Tuberías PVC, Prueba hidrostática, Prueba neumática, Recipientes a presión (Tanques, Cilindros, etc.) | Ensayos de hermeticidad | |
-Medidores de agua, inodoros, válvulas de | Otros ensayos, | |
-Productos | Lista de Familias de Ensayos | Requisitos de Participación |
-inodoros, regaderas y fluxómetros, Filtros de aire, aceite y gasolina | ensayos de desempeño | |
-Soldaduras y materiales metálicos | Ensayos no destructivos | |
-Textil y vestido | PRUEBAS FÍSICAS:  Resistencia,  tensión,  dimensión de hilos,  rasgado PRUEBAS QUÍMICAS  Solides (color),  pH,  Identificación  Contenido | |
-Papel y cartón |  Pruebas físicas y químicas | |
-Fertilizantes |  Ensayos químicos en fertilizantes | |
-Aceros, metales y materiales galvanizados |  Ensayos de Corrosión | |
-Pinturas |  Ensayos físicos en Pinturas • Ensayos químicos en pinturas | |
-Fluidos dieléctricos, aislantes o aceites de transformador | Determinación de humedad Color Densidad rigidez dieléctrica disipación dieléctrica. PCBs, aroclor Compuestos furánicos | |
-Cuero | Pruebas químicas del cuero Pruebas físicas en cuero | |
-| | |
-Polímeros no textiles | Pruebas químicas en Plásticos | |
-| |
-Laboratorios que realizan ensayos de destilados de petróleo: | |
-Lista de Familias de Ensayos | Requisitos de Participación |
-Lista de Familias de Ensayos | Requisitos de Participación |
-Ensayos fisicoquímicos (curvas de destilación, curvas de viscosidad, densidad, punto de inflamación, presión de vapor etc.) |  1 participación cada 4 años en cada familia de ensayos.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada 4 años |
-Determinación de azufre |
-Determinación de residuos de carbón |
-Índice de cetano e índice de octano |
-Otras áreas de análisis: Lista de Familias de Ensayos | Requisitos de participación |
- Ensayos de biodegradabilidad |  1 participación cada 4 años en cada familia de ensayos.  Si el laboratorio cuenta con más de un ensayo de la familia acreditado debe alternarlo cada 4 años |
- Aislamiento e identificación de microorganismos patógenos |
- Identificación de malezas y plagas |
- Determinación de nematodos y fagos por técnicas tradicionales |
- Determinación de bacterias y virus patógenos por prueba inmunoensayo (ELISA) |
- Identificación de bacterias, hongos y nematodos patógenos y viroides por reacción de la cadena de la polimerasa (PCR) y sus variantes |
- Determinación de Aflatoxinas y otras micotoxinas |
- Ensayos de toxicología oral, toxicología dérmica e irritación o corrosión ocular |
-13 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P17
-Refiérase a la solicitud de elaboración o modificación del documento número 2014-072
-Observaciones: Se actualiza respecto a la última versión vigente de la referencia del ILAC P9. Se incluye en la mayoría de los apartados en los cuales anteriormente solo se mencionaban laboratorios, a los Organismos de Inspección, esto en los casos en los que se considere pertinente. En el apartado de definiciones se indica cuando es pertinente o cuando aplica. Nota: Esto último no aplica en el Apartado 9 Bono de confianza. Se realizan mejoras en la clasificación de algunas de las familias, especialmente para calibración.
-| | | | | | | | | | | | | | |
+9.1.2 Los laboratorios clínicos que cumplan con la frecuencia mínima de participaciones establecida en la siguiente tabla:
+Área | Frecuencia mínima de participación según ECA.MC.P17 | Participación mínima satisfactoria para optar por el
