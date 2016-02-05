@@ -13,3 +13,4 @@ Reglamento para el reconocimiento de tiempo servido en el Poder Judicial, en el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-25 | la propia norma |
+| 2 | 2016-02-05 | Circular 21 (2016-02-05) |

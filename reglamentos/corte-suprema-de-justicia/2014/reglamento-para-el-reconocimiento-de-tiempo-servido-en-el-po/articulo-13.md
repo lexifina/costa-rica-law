@@ -1,13 +1,19 @@
-Artículo 13.—Valor presente y rendimiento real. Para el cálculo del valor presente a que se refiere el artículo anterior, se observará la siguiente metodología:
-La inflación acumulada, aplicada a cada cuota desde la fecha de inicio del reconocimiento, conforme la siguiente fórmula:
-(IPC final/ IPC inicial) * 100-100=X,
-Donde:
-X=Cuota*(1+X/100)
-IPC: Índice de precios al consumidor
-Para el cálculo del rendimiento mensual real, que de igual forma se menciona en el artículo 12, se observará la siguiente fórmula:
-RNR= 1+RN del plazo /1+IPC del plazo
-Donde:
-RNR: Rendimiento Nominal Real
-RN del plazo: Es el rendimiento nominal según el plazo desde la fecha de inicio.
-IPC del plazo: Es la inflación acumulada según el plazo desde la fecha de inicio.
-La sumatoria de las cuotas indexadas por la inflación acumulada más el rendimiento mensual real de las inversiones, constituyen la suma a cobrar a la persona gestionante.
+Artículo 13. Valor presente y rendimiento real.-
+Para el cálculo del valor presente a que se refiere el artículo anterior, se observará la siguiente metodología:
+Se define
+IPC: Índice de precios al consumidor.
+RNi: Rendimiento nominal del i-ésimo mes, ajustado al plazo mensual de acuerdo con los resultados obtenidos en la administración del Fondo
+RRi: Rendimiento Real del i-ésimo mes
+IPCi: Es la inflación acumulada para el i-ésimo mes
+N: número de meses por actualizar para la k-ésima cuota
+e.) Para la k-ésima cuota se procede con
+v. Para cada mes de 1...N se calcula
+IPCi = IPC final del i-ésimo mes / IPC final del (i-1)-ésimo mes
+[imagen]
+RRi= Max( (1+RNi ) / IPCi; 0) - 1
+vi. El Valor presente de la k-ésima cuota está dada por VPCuotak = Cuotak*
+[imagen]
+f.) El Monto total de la deuda está determinada por la suma de los valores presentes de la cuotas:
+Deuda total =
+[imagen]
+(Así reformado mediante sesión N° 4-16 del 1 de febrero del 2016, publicada en el Boletín Judicial N° 62 del 31 de marzo del 2016, mediante circular N° 21-2016 del 5 de febrero del 2016)
