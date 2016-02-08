@@ -230,8 +230,9 @@ a. Contrato de compraventa de energía con el ICE por parte de un generador con 
 b. Contrato de compraventa de energía entre un generador privado y cualquier otro agente distinto al ICE.
 3. PROCEDIMIENTO Y FÓRMULAS
 3.1. La Tarifa de Referencia (TR)
-La tarifa de referencia de una planta de generación de electricidad mediante el uso de agua como materia prima, está definida por la siguiente fórmula:
+Las tarifas de referencia de una planta de generación de electricidad mediante el uso de agua como materia prima, está definida por la siguiente fórmula:
 [imagen]
+(Así reformada la fórmula anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
 En esencia el modelo tarifario consta de cinco variables esenciales: la inversión unitaria promedio por kW instalado (I), los costos de explotación unitarios promedios por kW (Ca), el factor promedio de antigüedad de las plantas (Xu), el costo de capital (Ke) y el factor de planta o factor de carga (Fp). A continuación se detallan el concepto, fuente de información y método de cálculo de estas variables.
 3.2. El costo anual de explotación (Ca)
 3.2.1. Concepto:

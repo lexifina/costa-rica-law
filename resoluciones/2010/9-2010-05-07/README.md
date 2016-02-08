@@ -15,3 +15,4 @@ Metodología de Fijación de Tarifas para Generadores Privados Existentes (Ley N
 | --- | --- | --- |
 | 1 | 2010-06-07 | la propia norma |
 | 2 | 2014-03-20 | Resolución 27 (2014-03-20) |
+| 3 | 2016-02-08 | Resolución 17 (2016-02-08) |
