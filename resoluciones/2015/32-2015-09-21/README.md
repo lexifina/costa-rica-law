@@ -14,3 +14,4 @@ Elimina el cobro por concepto de multa de los impuestos de traspaso de vehículo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-01 | la propia norma |
+| 2 | 2016-02-08 | Resolución 6 (2016-02-08) |
