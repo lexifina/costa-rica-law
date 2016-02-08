@@ -1,1 +1,0 @@
-Artículo 4º—Las ausencias del Presidente serán suplidas por el Director General de Operaciones en el caso del Comité de Licitaciones y por el Director de Programación y Presupuestación de Recursos cuando se trate del Subcomité de Licitaciones.
