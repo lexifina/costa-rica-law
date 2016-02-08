@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 39468
+
+Amplia convocatoria a sesiones extraordinarias de la Asamblea Legislativa y retira del conocimiento de sesiones extraordinarias de la Asamblea Legislativa proyectos de Ley
+
+- Tipo: Decreto Ejecutivo
+- Número: 39468
+- Fecha: 2016-02-08
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 163 del 2016-08-25
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=82209&param2=105135&param3=1 (ficha 82209)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2016-02-08 | la propia norma |
