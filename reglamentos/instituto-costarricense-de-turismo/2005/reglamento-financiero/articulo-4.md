@@ -19,7 +19,8 @@ viii. Mantenimiento y reparación de mobiliario y equipo, que no requieran su de
 ix. Los pagos que se realicen bajo la aplicación del Reglamento de Facilidades de Estudio para los funcionarios de la Institución.
 x. Depósitos judiciales y los dictados por la autoridad competente.
 xi. Mantenimiento y reparaciones menores de edificios ocasionados únicamente por fuerza mayor.
-xii. Gastos de representación, recepciones y adquisición de productos alimenticios.
+xii. Gastos de representación y actividades protocolarias y sociales que incluyan además la adquisición de productos alimenticios para atención de reuniones (ver capítulo VI, artículo 74°).
+(Así reformado el sub inciso anterior en la sesión N° 5918 del 08 de febrero del 2016)
 Estos últimos deberán adquirirse con apego a principios de razonabilidad y austeridad, especialmente cuando por las situaciones excepcionales la Junta Directiva requiera reunirse por lapsos relativamente prolongados en forma continua.
 xiii. Pagos periódicos fijos y otros sujetos a contrato (pagos parciales).
 2) Solicitudes de Adelanto de Gastos. Serán gestionados mediante una Solicitud de Adelanto de Gastos (SAG), los pagos sujetos a posterior liquidación, tales como gastos de viaje y de transporte dentro y fuera del país y, los adelantos para la adquisición de productos alimenticios.
