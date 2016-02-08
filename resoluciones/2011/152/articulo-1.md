@@ -343,8 +343,20 @@ Se entiende por planta nueva, aquella cuya inversión en capital físico no ha s
 Formulación general del modelo
 Para lograr el objetivo mencionado, se ha definido un modelo tarifario que estimula la inversión privada asociada con plantas de generación hidroeléctrica con potencias iguales o menores que 20 MW, capaces de operar dentro de un rango aceptable de costos y de eficiencia operativa. Para ello, se establece una banda tarifaria que permite al ICE ofrecer precios de compra de electricidad con los cuales el oferente pueda obtener los ingresos suficientes para cubrir sus costos de operación, recuperar la inversión realizada, y obtener una rentabilidad razonable para el nivel de riesgo asociado con la actividad de generación de electricidad.
 Las tarifas por KWh estimadas mediante el modelo propuesto incluyen los costos de operación y mantenimiento, los costos financieros y la rentabilidad neta del inversionista.
-En general, se puede expresar la ecuación económica del suministro de energía eléctrica a partir de igualar los costos más la rentabilidad con los ingresos, desde la perspectiva del generador privado. De esa forma, se obtiene la siguiente ecuación:
-[imagen]
+(*) En general, se puede expresar la ecuación económica del suministro de energía eléctrica a partir de igualar los costos más la rentabilidad con los ingresos, desde la perspectiva
+del generador privado. De esa forma, se obtiene la siguiente ecuación:
+CE + CFC = IR (Ecuación 1)
+En donde:
+CE = Costos de explotación
+CFC = Costo fijo por capital, que es la suma de la recuperación de la
+inversión (RI) y la rentabilidad (r). Así, CFC = RI + r RI = Recuperación de la inversión (depreciación)
+R = Rentabilidad sobre la inversión
+IR = Ingresos requeridos, que son el resultado de multiplicar la tarifa “p” por las ventas de energía “E”, es decir, IR = p x E
+p = Tarifa de venta
+E = Ventas (cantidad de energía)
+Despejando p:
+De lo anterior se desprende que, para los efectos de este modelo, la tarifa depende de las expectativas de venta de electricidad, los costos de explotación, la recuperación del capital (depreciación) y la rentabilidad.
+(*)(Así reformada la fórmula anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
 En donde:
 CE = Costos de explotación
 CFC = Costo fijo por capital, que es la suma de la
@@ -377,7 +389,10 @@ fp = Factor de planta aplicable según la fuente
 Si bien existe un efecto de escala en las plantas de generación de electricidad, especialmente en cuanto a los costos de instalación y los costos de explotación, es posible simplificar el modelo y realizar el análisis para una planta de tamaño unitario (capacidad instalada unitaria), con lo que la fórmula anterior se reduce a:
 [imagen]
 El factor de planta (fp) de una central eléctrica se define como el cociente entre la energía real generada por la central eléctrica durante un período (generalmente de forma anual) y la energía generada si hubiera trabajado a plena carga durante ese mismo período, conforme los valores nominales de planta identificados para los diferentes equipos.
-El valor del factor de planta que se utilice en este modelo se obtendrá a partir de los datos de plantas hidroeléctricas privadas costarricenses con capacidades instaladas menores que 20 MW, sobre las cuales la ARESEP posea dicha información. Se usarán únicamente los datos de las plantas del grupo antes mencionado que generaron energía durante 10 ó más meses del respectivo año. Este valor se actualizará en cada fijación tarifaria. Con ese propósito, se utilizarán los datos del último quinquenio sobre el cual ARESEP posea información. El valor del factor de planta se calculará de la siguiente manera: para cada uno de los años del quinquenio, se estimará un promedio aritmético de los valores de cada planta individual; luego se obtendrá el promedio aritmético de los cinco valores resultantes, y el resultado es el dato de factor de planta a utilizar en la fijación tarifaria.
+El valor del factor de planta que se utilice en este modelo se obtendrá a partir de los datos de plantas hidroeléctricas privadas costarricenses con capacidades instaladas menores que 20 MW, sobre las cuales la ARESEP posea dicha información. Se usarán únicamente los datos de las plantas del grupo antes mencionado que generaron energía durante 10 ó más meses del respectivo año. Este valor se actualizará en cada fijación tarifaria. Se incluirá la información de factores de planta proveniente de los concursos realizados para adquirir energía, como un dato adicional a la información real utilizada.
+(Así reformado el párrafo anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
+Con ese propósito, se utilizarán los datos del último quinquenio sobre el cual ARESEP posea información real más los datos de las convocatorias. El valor del factor de planta se calculará de la siguiente manera: para cada uno de los años del quinquenio, se estimará un promedio aritmético de los valores de cada planta individual; luego se obtendrá el promedio aritmético de los cinco valores resultantes, y el resultado es el dato de factor de planta a utilizar en la fijación tarifaria.
+(Así reformado el párrafo anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
 Costos de explotación (CE)
 El costo de explotación incluye los costos necesarios para mantener y operar una planta en condiciones normales para nuestro país. No incluye gastos de depreciación, gastos financieros, impuestos asociados a las utilidades, o ganancias.
 Entre los costos de explotación se contemplan tanto los costos variables de operación (aquellos gastos que se presentan exclusivamente cuando se lleva a cabo el proceso productivo tales como impuestos asociados a la producción, repuestos y otros materiales consumibles durante el proceso productivo), como los costos fijos (aquellos gastos inevitables e independientes de si la planta opera o no, tales como pólizas de seguro, permisos, personal permanente, asesorías técnicas, gastos administrativos, etcétera). Es importante señalar que corresponden a gastos que impliquen erogaciones de efectivo, y por tanto, no debe incluirse la depreciación.
@@ -463,13 +478,14 @@ Dado que se trata de plantas nuevas, a esa variable se le asigna el valor de cer
 Monto de la inversión unitaria (M).
 El costo de inversión representa los costos totales necesarios para construir una planta de generación en condiciones normales para nuestro país.
 (Así reformado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
-El cálculo de este valor se efectuará a partir de los datos sobre costos de inversión de plantas hidroeléctricas con capacidades instaladas iguales o menores que 20MW, de los cuales se excluirán los valores extremos, provenientes de tres fuentes de información:
-(Así reformado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
-a) La versión más reciente del Plan Indicativo Regional de Expansión de la Generación, publicado por el Consejo de Electrificación de América Central-Grupo de Trabajo de Planificación Indicativa Regional (GTPIR) .
-(Así reformado el inciso anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
-b) Los informes realizados por la Autoridad Reguladora sobre fijaciones de precios de venta de energía al ICE proveniente de plantas hidroeléctricas privadas, en el marco de la Ley Nº 7200.
-c) Información auditada sobre costos de inversión de nuevas plantas hidroeléctricas que en el futuro vendan energía al ICE, en el marco de la Ley Nº 7200.
-d) En caso de que la fuente de información presente los datos con los intereses del período de construcción capitalizados, dicho costo se considerará ya incluido.
+(*) El cálculo de este valor se efectuará a partir de los datos sobre costos de inversión de plantas hidroeléctricas con capacidades instaladas iguales o menores que 20MW, de los cuales se excluirán los valores extremos, provenientes de cuatro fuentes de información:
+a) La versión más reciente del Plan Indicativo Regional de Expansión de la Generación, publicado por el Consejo de Electrificación de América Central-Grupo de Trabajo de
+Planificación Indicativa Regional (GTPIR).
+b) Los informes realizados por la Autoridad Reguladora sobre fijaciones de precios de venta de energía al ICE u otras empresas proveniente de plantas hidroeléctricas privadas, en el marco de la Ley Nº 7200 y la Ley Nº 8345.
+c) Información auditada sobre costos de inversión de nuevas plantas hidroeléctricas que en el futuro vendan energía al ICE u
+otras empresas, en el marco de la Ley Nº 7200 y la Ley Nº 8345.
+d) Los concursos realizados para adquirir energía de los generadores privados.
+(*)(Así reformado el párrafo anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
 (Así adicionado mediante resolución RJD-013 del 29 de febrero de 2012)
 De las dos fuentes de información mencionadas, se extraerán todos los datos disponibles sobre costos de inversión de plantas hidroeléctricas con capacidades instaladas iguales o menores que 20 MW. Posteriormente, esos datos se someterán al siguiente tratamiento:
 a) Se conformarán cinco grupos de plantas, cada uno de los cuales corresponde a un rango de 4 MW de capacidad instalada; esto es, el grupo de cero a 4 MW, el de 4,1 MW á 8 MW, el de 8,1 MW á 12 MW, el de 12,1 MW á 16 MW, y el de 16,1 MW á 20 MW.
@@ -480,12 +496,15 @@ En el cuadro 2.1 del Anexo 2 de este informe, se presenta el cálculo actual del
 La actualización del monto de inversión en activos fijos que conforman la base tarifaria, se realizará utilizando un índice de precios representativo, en caso de que los datos utilizados muestren una antigüedad superior al año. La selección del índice considerará los siguientes aspectos: que provenga de una fuente de acceso público, especializada en la generación de información técnica y con la información más reciente. La actualización del monto de inversión en activos fijos se realizará anualmente y se aplicará de manera consistente el mismo índice. En el evento de que se llegue a considerar necesario en el futuro modificar el índice a utilizar, se justificará la razón técnica que fundamente dicha decisión con base en la ciencia, técnica y lógica tal y como lo establece la Ley General de la Administración Pública.
 (*)(Así adicionado el párrafo anterior mediante resolución N° RJD-027-2014 del 20 de marzo del 2014)
 Definición de la banda tarifaria
-Se regulará el precio de venta de energía por parte de generadores privados al ICE, en el marco del capítulo I de la Ley Nº 7200, mediante una banda tarifaria.
+(*) Se regulará el precio de venta de energía por parte de generadores privados al ICE, en el marco del capítulo I de la Ley Nº 7200, mediante una banda tarifaria.
 Las principales consideraciones que se toman en cuenta al establecer un esquema de banda tarifaria son las siguientes:
 • Se calcula la desviación estándar correspondiente a todos los datos utilizados para estimar el costo de inversión promedio.
-• El límite superior se establece como el costo de producción promedio más la desviación estándar. De esa forma se abre la opción de que entre los oferentes a escoger por el ICE se encuentren algunos con costos diferentes al promedio. Esta opción se justifica, considerando que el objetivo principal de esta metodología es estimular inversiones en generación privada hídrica con costos competitivos en relación con la generación térmica.
-• Al determinarse una banda tarifaria, se reducen los riesgos de eventuales estrategias de colusión por parte de los oferentes, que pudieran ser contrarias al objetivo de contratar energía con precios que reflejen niveles razonables de eficiencia.
-• Al fijarse un límite inferior, se acota el margen de acción del ICE para establecer el precio a contratar con los oferentes de energía hidroeléctrica. Esta restricción es conveniente, tomando en consideración el fuerte poder de mercado que tiene el ICE en las condiciones asociadas con la tarifa que se está proponiendo.
+• El límite superior se establece utilizando el costo de inversión
+promedio más una desviación estándar.
+• El límite inferior de la banda consiste en utilizar para el cálculo de la tarifa el valor del costo promedio de la inversión menos el valor de tres desviaciones estándar, siempre y cuando el valor de inversión sea mayor a 0. En el caso de que el cálculo con las tres desviaciones
+propuestas indique un límite inferior de cero o menor que cero, se tomará el número natural positivo inmediato anterior de desviaciones de manera tal que el límite inferior sea mayor que cero. Es decir, si con tres desviaciones estándar el monto de inversión es cero se
+utilizan dos desviaciones estándar, si con dos desviaciones estándar el monto de la inversión es cero se utiliza una desviación estándar y si con una desviación estándar el monto de inversión es cero se utiliza el promedio.
+(*)(Así reformado el párrafo anterior mediante resolución N° RJD-17-2016 del 8 de febrero del 2016)
 Durante el proceso de diseño de la metodología que se propone en este informe, se pudo observar que no existe un modelo estándar de generación hidroeléctrica con capacidades instaladas iguales o menores que 20 MW, en Costa Rica. A pesar de que los costos de equipamiento están bien establecidos y son estándar, la diversidad de condiciones geológicas, hidrológicas y topográficas incide en que los costos de infraestructura muestren diferencias sustanciales. En consecuencia, se dificulta la opción de establecer una banda de precios con base en niveles de eficiencia. Se optó entonces por definir esa banda con criterio estadístico.
 En particular, se propone definir la banda de precios con base en la determinación de un valor máximo y uno mínimo de costo de inversión. Para ello, en primer lugar se calcula la desviación estándar correspondiente a todos los datos utilizados para estimar el costo de inversión promedio. El límite superior de la banda de precios se define como el costo de inversión promedio más la desviación estándar. Y el límite inferior, como el costo de inversión promedio menos la desviación estándar.
 En el cuadro 2.2 del Anexo 2 se presenta el cálculo de la franja de costos de inversión en la que se basa la definición de la banda tarifaria con los datos disponibles en el momento de redacción de este informe. Esta franja se actualizará en cada fijación tarifaria.
