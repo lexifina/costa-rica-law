@@ -14,3 +14,4 @@ Procedimiento para el Sistema de Reservaciones al Parque Nacional Chirripó
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-27 | la propia norma |
+| 2 | 2016-02-08 | Resolución 47 (2016-02-08) |
