@@ -42,17 +42,19 @@ $5.00 cada mes hasta su liquidación
 2.10.2 Saldos inferiores a $ 50.00 (cuentas en dólares)
 $5.00 cada mes hasta su liquidación
 (Así reformado el punto 2.10) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.11.- Buzón continuo
-Bolso $20.00
-Llave $10.00
-(Así reformado el punto 2.11) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.12.--Confección planillas ventanilla
+2.11. Buzón continúo
+Bolso $30.00
+Llave $25.00
+(Así reformado el punto 2.11) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+2.12. Confección y entrega de efectivo (diferentes nominaciones de billetes) a solicitud del cliente en ventanilla.
 2.12.1 Confección y entrega ventanilla
 2.00% sobre el monto. Mínimo $20.00
 2.12.2 Confección y envío por transportadora de valores
 $18.00 la confección
 El envío de acuerdo a la tarifa con la empresa transportadora.
-(Así reformado el punto 2.12) anterior en sesión N° 44 del 14 de octubre de 2015)
+Nota:
+Para entrega de monedas en bolsas predefinidas a solicitud del cliente, aplicará la comisión 2.18 establecida en este Reglamento.
+(Así reformado el punto 2.12) anterior en sesión 07-16 del 8 de febrero del 2016)
 2.13.- Por cada cheque que giren los intermediarios financieros. (bancos privados, empresas financieras no bancarias, cooperativas de ahorro y crédito, mutuales y puestos de bolsa)
 $4.00 suma que se cobrará el primer día hábil del mes siguiente.
 Esta tarifa será ajustada semestralmente.
@@ -159,24 +161,22 @@ Nota: Se exceptúa del pago de esta comisión a aquellas cuentas cuyo saldo prom
 2.36.- Comisión por planilla de empresa mediante depósitos en ventanilla
 El cliente podrá solicitar cuatro depósitos sin costo adicional. Las solicitudes de cinco o más depósitos se consideran una planilla, por lo que tendrá un costo de $1.00 por cada depósito realizado.
 (Así reformado el punto 2.36) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.37.- Comisión por mantenimiento de saldos mínimos en cuentas corrientes
-Aplica sólo para cuentas corrientes producto Proyecto K.
-Costo mensual por administración de la cuenta $1.00. Se exonera dicho pago si el saldo promedio mensual es superior a $50.00 o su equivalente en colones
-(Así reformado el punto 2.37) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.38.- Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
+2.37. Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $10.00
-(Así reformado el punto 2.38) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.39.- Comisión por retiro anticipado de un plan de ahorro automático
-Se cobra el 3% de comisión sobre el 100% del saldo ahorrado para plazos menores o iguales a 180 días.
-Nota: No se aplicará comisión por retiro anticipado de los planes de ahorros automáticos por plazos de 3, 4 y 5 meses.
-(Así reformado el punto 2.38) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.40.- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
+(Así reformado el punto 2.37) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+2.38. Comisión por retiro anticipado de un plan de ahorro automático
+Aplica la comisión del 3% sobre la totalidad del saldo ahorrado, para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
+(Así reformado el punto 2.38) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+2.39. Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
-(Así reformado el punto 2.40) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.41.- Pago de cheque viajero
+(Así reformado el punto 2.39) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+2.40- Pago de cheque viajero
 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
-(Así reformado el punto 2.41) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Así reformado el punto 2.40) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+2.41. Pago de servicios públicos de forma masiva en ventanilla
+El cliente podrá solicitar cuatro pagos de servicios sin costo adicional. Las solicitudes de cinco o más pagos de servicios se consideran masivos, por lo que tendrá un costo de $1.00 por cada pago de servicio adicional cancelado.
+(Así reformado el punto 2.41) anterior en sesión N° 07-16 del 8 de febrero del 2016)
 2.42. Pago de servicios públicos de forma masiva en ventanilla.
 $1.00 por cada uno a partir del quinto servicio cancelado.
 (Así reformado el punto 2.42) anterior en sesión N° 44 del 14 de octubre de 2015)

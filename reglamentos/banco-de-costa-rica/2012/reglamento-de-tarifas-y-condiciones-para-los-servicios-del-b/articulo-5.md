@@ -51,28 +51,38 @@ Modificaciones $30.00. Si cambia el monto inicial o en caso de extensión del pl
 Swift $17.00
 Pagos 1.0% cada pago, mínima $60.00, máxima $550.00
 (Así reformado el punto 5.7) anterior en sesión N° 44 del 14 de octubre de 2015)
-5.8. Órdenes de pago
+5.8. Órdenes de Pago
 5.8.1 Depósito en cuenta corriente/ ahorros, inversiones
-De $1.00 a $ 100.00 comisión $ 5.00
+De $1.00 a $100.00 comisión $5.00
 De $100.01 a $2,000.00 comisión $15.00
 De $2,000.01 a $30,000.00 comisión $25.00
 Más de $30,000.00 comisión $35.00
-5.8.2 Órdenes de pago recibidas de bancos locales
-De $1.00 a $100.00 comisión de $ 3.00
-Más de $100.00 comisión de $10.00
-Mensajes Swift:
-Swift por devolución o investigación $10.00
-Swift por confirmación de pago $ 5.00
-Otros Swift $ 8.00
-(Así reformado el punto 5.8) anterior en sesión N° 44 del 14 de octubre de 2015)
+5.8.2 Mensajes Swift:
+Mensaje Swift por trámites de órdenes de pago $10.00
+Investigaciones $5.00
+(Así reformado el punto 5.8) anterior en sesión N° 07-16 del 8 de febrero del 2016)
 5.9.- Transferencias.
 Apertura 0.35% mínima $15.00, máxima $85.00
 Swift $8,00
 5.9.1 Transferencias al exterior modalidad Pago Garantizado U.S.$30.00 adicionales
 (Así reformado el punto 5.9) anterior en sesión N° 44 del 14 de octubre de 2015)
-5.10.- Venta giros
-En dólares $12.00
-En Otras monedas $15.00
+5.10.- Venta Giros
+Venta de Giros en dólares y en otras monedas $25.00
+Aspectos generales
+1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
+2. Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
+3. Todas las tarifas incluidas en dólares se refieren a moneda de los Estados Unidos de Norteamérica.
+4. Es obligación de todo servidor del Banco, de informar al cliente el costo del producto o servicio solicitado previo a la contratación del producto o servicio.
+5. Todos los funcionarios del BCR deberán de pagar las comisiones asociadas a cualquier servicio sin excepción.
+6. Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen diferentes rangos de atribuciones para la negociación de las mismas cuando así se requiera, siendo los siguientes funcionarios los únicos en negociar tarifas y en los porcentajes señalados según el siguiente cuadro:
+Porcentaje a negociar
+Gerente General 100%
+Subgerentes 100%
+Gerencia Regional 100%
+Gerente de Área de Marca 100%
+Gerente Local 75%
+7. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen funcionarios u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
+(Así reformado el punto 5.10) anterior en sesión N° 07-16 del 8 de febrero del 2016)
 5.11.-Detención de pago a giros bancarios
 Bicsa Miami/Panamá 1,0%
 Mínimo $10.00
