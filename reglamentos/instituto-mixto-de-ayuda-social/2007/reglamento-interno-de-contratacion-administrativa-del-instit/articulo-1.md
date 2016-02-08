@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO MIXTO DE AYUDA SOCIAL
+(Esta norma fue derogada por el artículo 166 del Reglamento Interno de Contratación Administrativa del IMAS, aprobado mediante acurdo del Consejo Directivo, Nº 063-02-2016, Acta Nº 07-02-2016, de la sesión ordinaria celebrada el 8 de febrero del 2016)
 REGLAMENTO INTERNO DE CONTRATACIÓN ADMINISTRATIVA
 DEL INSTITUTO MIXTO DE AYUDA SOCIAL
 Considerando:
