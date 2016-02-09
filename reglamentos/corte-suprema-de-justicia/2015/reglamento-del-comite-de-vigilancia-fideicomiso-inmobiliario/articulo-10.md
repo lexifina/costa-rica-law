@@ -1,0 +1,1 @@
+Artículo 10.—Del enlace oficial del comité. En los procedimientos de comunicación y coordinación que se entregarán al Fiduciario o al Fideicomitente, el Comité de Vigilancia nombrará como coordinador a su presidente, salvo que por autorización expresa del Comité se designe otro representante.

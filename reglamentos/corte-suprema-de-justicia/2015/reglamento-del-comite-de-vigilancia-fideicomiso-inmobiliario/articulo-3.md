@@ -1,0 +1,1 @@
+Artículo 3°—De las definiciones. Tal y como se utilizan en este Reglamento, los términos técnicos se emplearán según lo estipulado en el Contrato de Fideicomiso Inmobiliario Poder Judicial o en la normativa vigente sobre la materia.
