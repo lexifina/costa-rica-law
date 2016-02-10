@@ -1,0 +1,1 @@
+Artículo 5º—Disponibilidad presupuestaria: Los gastos de representación no podrán exceder la suma presupuestada en el período correspondiente. No se autorizará ningún egreso por concepto de gastos de representación sin el visto bueno del Departamento Financiero-Contable, en el cual se haga constar la existencia de contenido presupuestario para tal efecto.

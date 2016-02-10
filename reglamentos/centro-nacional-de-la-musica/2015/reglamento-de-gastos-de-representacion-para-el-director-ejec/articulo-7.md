@@ -1,0 +1,1 @@
+Artículo 7º—Fiscalización: Corresponde al Departamento Financiero Contable y a la Auditoría Interna del Ministerio de Cultura y Juventud la fiscalización constante sobre el uso que hagan los funcionarios autorizados por el presente reglamento, de los gastos de representación concedidos.

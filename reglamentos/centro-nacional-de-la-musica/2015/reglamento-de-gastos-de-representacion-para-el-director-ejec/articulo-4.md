@@ -1,0 +1,1 @@
+Artículo 4º—Imposibilidad del titular del cargo: Cuando por cualquier causa debidamente justificada, los funcionarios autorizados se encuentren imposibilitados para llevar a cabo la misión encomendada, podrán delegar la representación en algún otro funcionario del Centro Nacional de la Música, bajo su responsabilidad y respetando lo dispuesto por el presente reglamento.

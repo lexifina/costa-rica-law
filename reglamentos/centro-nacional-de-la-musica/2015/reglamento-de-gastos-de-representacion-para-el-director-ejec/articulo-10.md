@@ -1,0 +1,1 @@
+Artículo 10.—Facultades de verificación: El Departamento Financiero Contable del CNM queda facultado para verificar cualquier dato relacionado con el gasto de representación que esté en trámite de pago. Igualmente, no tramitará ni realizará ningún pago cuando se incumplan los requisitos o los procedimientos señalados en este Reglamento.
