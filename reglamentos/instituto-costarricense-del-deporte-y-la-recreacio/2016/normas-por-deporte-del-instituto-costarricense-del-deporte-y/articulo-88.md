@@ -1,0 +1,8 @@
+ARTICULO 88 DE LA ETAPA FINAL
+88.1 Clasificarán a la etapa final por categoría y rama como máximo 30 atletas por cada categoría y rama (femenina y masculina). Respetando el criterio de tiempo que se establece en el siguiente punto.
+88.2 En cada categoría clasifica los atletas que ingresen a meta con un tiempo no mayor a un 30% del tiempo del primer lugar de cada categoría, en todo caso no podrá superar la cantidad de 30 atletas como máximo que se encuentren y rama en el rango del 30%. Aun cuando exista disponibilidad de campos se respetara el criterio de tiempo máximo.
+88.3 En los casos de confrontación de tiempos cuando existan más de 30 atletas por categoría, clasifican los atletas que en el correspondiente evento tuvieron la menor pérdida de tiempo con respecto al primer lugar de la misma categoría y rama.
+88.4 Clasificarán a la etapa final por categoría y rama los ocho mejores equipos que estén dentro de los treinta clasificados individuales.
+88.5 Los eventos clasificatorios son de participación obligatoria, con las excepciones que permite el Reglamento de Juegos Deportivos Nacionales como son por enfermedad y pruebas del Ministerio de Educación Pública y Centros de Enseñanza Superior.
+88.6 En caso de ausencia en uno de los eventos de clasificación, será requisito que el participante ingrese dentro de los primeros treinta en la tabla de posiciones en el evento en que participa.
+88.7 Todos los clasificados a la Etapa Final optan por su participación individual. Los participantes de los equipos serán designados por el Comité Cantonal al final de la etapa clasificatoria. Para determinar la posición final de los equipos en la tabla de clasificación se tomarán en cuenta y sumarán los tres mejores tiempos de cada equipo.

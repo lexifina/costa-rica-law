@@ -1,0 +1,4 @@
+ARTICULO 18 NORMAS DE COMPETENCIA
+18.1 Se aplicará la regla de bateador designado en categoría juvenil.
+18.2 Durante la fase clasificatoria en la categoría infantil, los juegos serán a siete entradas y se aplicará la regla del K.O. a partir de la quinta entrada completa, si la diferencia de carreras es de 10 o más; si la diferencia es de 15 carreras o más en la tercera entrada se aplica el súper nocaut. En la categoría juvenil serán juegos a nueve entradas y se aplicará la regla del K.O. a partir de la quinta entrada completa, si la diferencia de carreras es de 10 o más; si la diferencia es de 15 carreras o más en la tercera entrada se aplica el súper nocaut.
+18.3 Lo no especificado en estas Normas será tratado en el Congresillo Técnico respectivo, o en caso contrario la Federación Costarricense de Beisbol decidirá la parte técnica en última instancia.

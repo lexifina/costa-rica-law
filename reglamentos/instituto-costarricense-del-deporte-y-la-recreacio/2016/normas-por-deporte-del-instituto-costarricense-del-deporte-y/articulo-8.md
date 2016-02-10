@@ -1,0 +1,7 @@
+ARTICULO 8 DE LOS TORNEOS CLASIFICATORIOS A LA ETAPA FINAL
+8.1 La Federación o Asociación Nacional será responsable de programar un torneo clasificatorio por categoría en el periodo establecido para cada edición, donde clasificarán las 16 mejores marcas en cada prueba para una segunda eliminatoria.
+8.2 A partir del año 2016 clasificarán a la etapa final los ocho atletas por categoría, rama y prueba sin marca mínima.
+8.3 En caso de empate en la clasificación para obtener hasta los ocho clasificados, se realizará el desempate correspondiente según el reglamento de la IAAF.
+8.4 Los atletas que participen en las pruebas combinadas, también podrán participar en relevos únicamente.
+8.5 Cada Cantón o Comité Cantonal participará con un equipo de relevo en cada eliminatoria. Clasificará a la Etapa Final el que obtenga la mejor marca con sus dos suplentes. Los suplentes deberán estar clasificados en otro evento.
+8.6 En la categoría infantil B, se competirá en la modalidad de Kids’ Athletics donde se competirá por equipos mixtos de 4 personas (2 hombres y 2 mujeres), cada Comité Cantonal podrá inscribir un máximo de 3 hombres y 3 mujeres con el objetivo de que si por alguna eventualidad el día del evento uno de los titulares no puede realizarlo sea sustituido por su suplente. Entendiendo que los 4 niños (2 hombres y 2 mujeres) que inician el evento deben terminarlo. A la final asistirán los 4 niños (2 hombres y 2 mujeres) que elijan y reporten los entrenadores de los 8 equipos clasificados.

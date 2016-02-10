@@ -1,0 +1,4 @@
+ARTICULO 27 DE LA CLASIFICACION A LA ETAPA FINAL
+27.1 De los torneos clasificarán a la etapa final en la Modalidad de Ruta en Línea y contra Reloj Individual, los cuarenta mejores ciclistas por categoría y rama, tomando como base los mejores tiempos acumulados de las pruebas individuales realizadas.
+27.2 En el torneo de clasificatorio clasificaran a la etapa final en la Modalidad Ruta y Contra Reloj por Equipos los ocho mejores equipos por categoría y rama, tomando como base el equipo que obtenga el menor tiempo acumulado en las pruebas realizadas.
+27.3 Todo corredor que llegue con un retraso que sobre pase entre un 5% y un 15% (etapas planas) y entre un 5% y un 25% (etapas de montaña) del tiempo del vencedor, no será clasificado. En el Congresillo Técnico el Presidente del Colegio de Comisarios comunicará el porcentaje a aplicar.

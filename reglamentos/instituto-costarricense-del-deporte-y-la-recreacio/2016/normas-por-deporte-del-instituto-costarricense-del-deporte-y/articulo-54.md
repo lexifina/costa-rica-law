@@ -1,0 +1,12 @@
+ARTICULO 54 NORMAS DE COMPETENCIAS
+54.1 Tanto en etapa clasificatoria como en la etapa final será responsabilidad de los atletas y entrenadores, cumplir con: vestimenta, calzado, cinturón, vendaje, espadrapos, guantes, protectores de palmas, extremidades prostéticas y dispositivos electrónicos según las reglas aprobadas por la federación internacional de halterofilia.
+54.2 Tanto en la Etapa Clasificatoria como en la Etapa Final se competirá en los estilos de Arranque y Envión.
+54.3 En la etapa clasificatoria no se premiarán las modalidades de arranque, envión y total porque el objetivo de cada atleta es ingresar al listado parcial de clasificados.
+54.4 En la etapa clasificatoria si un aleta no realiza un intento valido de los tres permitidos en el estilo Arranque, será excluido de la competencia.
+54.5 En la Etapa final, atletas sin una alzada valida en Arranque no serán eliminados de la competencia. Se les permite competir en el Envión y si tienen éxito recibirán los puntos para la clasificación de su equipo de acuerdo al lugar que obtuvieron en el Envión. Estos atletas no reciben puntos en el total.
+54.6 En la Etapa Final, atletas quienes hayan tenido éxito en el Arranque pero no han tenido alzadas validas en el Envión reciben puntos para la clasificación de su equipo de acuerdo a lo que obtuvieron en Arranque, pero no reciben puntos en el total.
+54.7 El atleta que no haya realizado un solo levantamiento válido tanto en el Arranque como en el Envión queda eliminado de la competencia.
+54.8 Para la Final se otorgará el título de campeón por alzadas individuales en el Arranque, Envión y Total (el agregado del resultado del mejor Arranque y el mejor Envión). El atleta que gane, primero, segundo y tercer lugar de cada una de las dos alzadas y en total, recibe medallas de oro, plata y bronce respectivamente.
+54.9 Los factores para decidir la clasificación de los atletas en el Arranque, Envión y Total serán los aprobados por las Reglas y Reglamentos técnicos de Competencia aprobados por la Federación Internacional de Halterofilia.
+54.10 Para determinar los mejores atletas por rama, se utilizará la fórmula Sinclair aprobada por la Federación Internacional de Halterofilia.
+54.11 Tanto en la Etapa Clasificatoria como en la Etapa Final es responsabilidad absoluta de los atletas, entrenadores y asistentes cumplir los lineamientos técnicos establecidos por la Federación Internacional de Halterofilia.
