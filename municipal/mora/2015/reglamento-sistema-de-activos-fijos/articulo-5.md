@@ -1,0 +1,1 @@
+Artículo 5º—Para la compra de los activos se utilizara la boleta denominada: “Solicitud de Bienes y Servicios”; se considera como activo fijo para efectos contables cuando su valor sea igual o superior a ¢80.000,00.

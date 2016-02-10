@@ -1,0 +1,1 @@
+Artículo 30.—Cuando un funcionario cese sus funciones o sea trasladado a otro departamento tiene la obligación de devolver por escrito el inventario de lo que tiene a su cargo y por consiguiente es obligación de la jefatura, verificar con la Contabilidad el inventario individual contra las boletas de activos.

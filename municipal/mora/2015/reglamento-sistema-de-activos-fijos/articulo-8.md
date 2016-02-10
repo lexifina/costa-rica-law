@@ -1,0 +1,1 @@
+Artículo 8º—El ingreso de activos a la Municipalidad se dará por compras, traspasos o donaciones. En otros términos, el ingreso estará completo cuando se reciben los bienes y se firma la factura de recibido, traspaso.

@@ -1,0 +1,1 @@
+Artículo 47.—En el momento que el Acta esté debidamente aprobada y los activos entregados a la institución beneficiada, el departamento responsable de llevar el control de activos procederá a excluir física y contablemente los mismos del Inventario.

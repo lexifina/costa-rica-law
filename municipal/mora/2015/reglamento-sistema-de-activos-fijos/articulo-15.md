@@ -1,0 +1,1 @@
+Artículo 15.—Para efectos de los registros de las operaciones se adoptarán las cuentas debidamente establecidas por la Contabilidad. En lo que al registro de ubicación se refiere el mismo podrá ser de acuerdo al nombre de la Jefatura, Coordinación o por la Dirección, Departamento, Sección, etc., en cuyo caso el responsable será el encargado del mismo.

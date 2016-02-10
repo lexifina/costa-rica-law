@@ -1,0 +1,1 @@
+Artículo 28.—El Departamento de Contabilidad levantará un inventario de bienes por departamentos, dicho inventario deberá ser firmado por el jefe de departamento y el responsable de los activos en conformidad con lo asignado.

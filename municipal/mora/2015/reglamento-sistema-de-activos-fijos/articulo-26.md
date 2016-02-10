@@ -1,0 +1,1 @@
+Artículo 26.—Es obligación del Departamento de Contabilidad verificar la existencia de los bienes inventariados a cargo de las distintas dependencias de la Administración Municipal y exigir el cumplimiento de las normas de este Reglamento e incluso solicitar al Departamento de Gestión de Talento Humano la sanción correspondiente.

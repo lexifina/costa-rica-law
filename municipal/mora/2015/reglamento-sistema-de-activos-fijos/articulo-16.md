@@ -1,0 +1,1 @@
+Artículo 16.—Si se detectan activos a los que se les haya desprendido la placa y se conozca su número, el responsable del activo debe adherirle una colilla con el número correspondiente en un lugar visible, informando por escrito al Departamento de Contabilidad y al Departamento de Proveeduría para que proceda al reemplazo de la placa.
