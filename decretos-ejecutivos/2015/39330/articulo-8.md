@@ -1,0 +1,1 @@
+Artículo 8º—Eficiencia administrativa. Todos los entes y órganos de la Administración Pública, aplicarán las reglas de la simplificación de trámites, la eficiencia administrativa y la coordinación interinstitucional, para favorecer la resolución favorable de permisos, licencias y otras autorizaciones que requiera la ejecución de este proyecto.

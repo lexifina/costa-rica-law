@@ -1,0 +1,1 @@
+Artículo 7º—Financiamiento del Proyecto “Ciudad Gobierno, Segunda Etapa”. La Comisión Nacional de “Ciudad Gobierno” contará con el apoyo de la Dirección Nacional de Presupuesto y la Dirección de Crédito Público, ambas del Ministerio de Hacienda, para encontrar los mecanismos financieros idóneos que permitan financiar la construcción de “Ciudad Gobierno”.
