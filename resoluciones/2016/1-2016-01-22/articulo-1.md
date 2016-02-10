@@ -1,0 +1,10 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+N° SC-001-2016.—San José, 22 de enero del 2016
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-189-2015: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en las especialidades Informática en Programación, Informática en Redes de Computadoras, Informática en Soporte, Informática Empresarial, Informática Generalista y Informática en Desarrollo del Software de manera que en la sección “Atinencia Académica” se incluyan las carreras Bachillerato en Informática Empresarial de la Universidad de Costa Rica.
+DG-003-2016: Se modifica los requisitos de la clase Asesor Regional (G. de E.) y Asesor Nacional (G. de E.) del Manual Descriptivo de Clases de Puestos Docentes, creado mediante Resolución DG-021-2010 de fecha 1 de febrero del 2010.
+DG-004-2016: Se modifica el Manual de Especialidades Docentes (resolución DG-399-2010), específicamente el apartado denominado “Atinencia Académica”, e incluir las Carreras que imparte la Universidad de Turismo (UTUR) como se indica en esta resolución.
+DG-005-2016: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular las especialidades de Turismo Generalista, Turismo en Alimentos y Bebidas, Turismo Costero, Turismo Ecológico, Turismo en Hotelería y Eventos Especiales y Turismo Rural de manera que en la sección “Atinencia Académica” de las especialidades mencionadas se incluyan las carreras de la Universidad Hispanoamericana aquí mencionadas.
+DG-008-2016: Se crea la “La Comisión Técnica de Ofertas de Servicio para Personas con Discapacidad” que será la encargada de dictar los lineamientos referentes a las adecuaciones necesarias, para la evaluación de cada uno de los candidatos con Discapacidad, según el análisis del caso concreto.
+DG-011-2016: Se incrementa el porcentaje por concepto de Salario Escolar según se detalla seguidamente: a) Para el año 2016, a 8,23% (ocho coma veintitrés por ciento) b) Para el año 2017, a 8,28% (ocho coma veintiocho por ciento) c) Para el año 2018, a 8,33% (ocho coma treinta y tres por ciento).
+Publíquese.
