@@ -1,0 +1,1 @@
+ARTÍCULO 10. En todo caso, cuando así lo dicte el interés institucional, la administración universitaria podrá cancelar unilateralmente y en cualquier momento, el permiso de uso de la vivienda asignada, y solicitar al usuario que proceda a desocuparla dentro del plazo fijado para tal efecto, el que en ningún caso será superior a 30 días.

@@ -1,0 +1,1 @@
+ARTÍCULO 9. Los daños, el deterioro injustificado, así como la conducta que en el orden moral se considere inconveniente para la Universidad o en general, el incumplimiento de las obligaciones establecidas en el artículo 5º de este Reglamento, serán motivo de cancelación del permiso de uso de la vivienda y de inmediato desalojo

@@ -1,0 +1,1 @@
+ARTÍCULO 6. El permisionario que goce del beneficio de uso de vivienda familiar podrá realizar modificaciones en la vivienda previa solicitud por escrito, para ajustarla a sus requerimientos. La Decanatura de Sede será la encargada de aprobar o rechazar esas solicitudes. Por ningún motivo, los cambios a realizar serán de índole estructural.

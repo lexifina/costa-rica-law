@@ -1,0 +1,1 @@
+ARTÍCULO 11. En todo caso, para dejar sin efecto un permiso de uso, se necesitará la autorización expresa del Rector, previo estudio detallado del caso tomando en consideración el criterio del Decano de la Sede correspondiente.
