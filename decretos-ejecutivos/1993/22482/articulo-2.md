@@ -1,2 +1,4 @@
-Artículo 2º— Este Parque Nacional permanecerá abierto al público en el horario de martes a domingo, de las siete horas (7:00 a.m.) a las dieciséis horas (4:00 p.m.).
-(Así reformado por el artículo 1° del decreto ejecutivo N° 39048 del 13 de abril de 2015)
+Artículo 2°—Este Parque Nacional permanecerá abierto al público de lunes a domingo, de las siete horas (7:00 a.m.) a las dieciséis horas (4:00 p.m.). Este horario se mantendrá durante la temporada de inicio de año del 2016 en el periodo comprendido entre el primero de febrero del 2016 al treinta de junio del 2016.
+Una vez finalizada la temporada alta indicada, el Parque Nacional tendrá un horario de martes a domingo de las siete horas (7:00 a.m.) a las dieciséis horas (4:00 p.m).
+Las entradas por concepto de ingreso, podrán hacerse efectivas ante la administración del Parque Nacional para ser disfrutadas en horario de lunes a domingo durante el plazo comprendido entre el primero de febrero del 2016 al treinta de junio del 2016. Posterior a dicha fecha, las entradas por concepto de ingreso solamente podrán ser utilizadas en horario de martes a domingo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39505 del 11 de febrero de 2016)
