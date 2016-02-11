@@ -1,0 +1,1 @@
+Artículo 4º—Financiamiento de las bases estadísticas y elaboración de modelos. Los rendimientos que genere la Reserva de Previsión serán utilizados por la Corporación Ganadera para el mantenimiento de las estadísticas de mercado, estudios de mercado y del Modelo Estadístico de Comportamiento de Precios de Ganado Bovino.
