@@ -1,0 +1,1 @@
+Artículo 4°—Unidad Administradora del Proyecto. El Fiduciario contratará los servicios de una UAP, la cual es la responsable de llevar a cabo los procesos de contratación aquí regulados, debidamente coordinados con el Fideicomitente y el Fiduciario.

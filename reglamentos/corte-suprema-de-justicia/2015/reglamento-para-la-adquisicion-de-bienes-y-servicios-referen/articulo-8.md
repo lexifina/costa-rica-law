@@ -1,0 +1,9 @@
+Artículo 8°—Contratación directa. Se autoriza tramitar bajo la modalidad de contratación directa, en los siguientes casos:
+a) Cuando se determine y justifique que solo un contratista, está en condiciones de comprometerse a la misma y procederá cuando se den las siguientes situaciones:
+● La compra de artículos o productos exclusivos, que por su naturaleza sean distribuidos por una sola empresa.
+● La compra de repuestos genuinos, cuando se trate de repuestos producidos o distribuidos en forma exclusiva.
+● La compra o alquiler de un bien mueble o inmueble que en razón de su naturaleza, ubicación y condiciones se determine como el más idóneo para la finalidad propuesta.
+b) Cuando exista un interés manifiesto de colaborar con el Proyecto. Los contratos de servicios y suministros con personas físicas, organizaciones no gubernamentales o entidades privadas que evidencien su afán de ayuda desinteresada a la Administración y su ausencia de ánimo de lucrar en la respectiva operación.
+c) Ante casos de emergencia, debidamente justificados por la Gerencia de la UAP, para la adquisición reparación y mantenimiento de maquinaria, equipo y vehículos necesarios para el desarrollo del Proyecto.
+d) Cuando se den situaciones de urgencia apremiante, de imperiosa necesidad en razón de la gravedad y de la manera como se relacione con situaciones que puedan comprometer el costo total o el plazo de ejecución del proyecto, o en donde la necesidad de contratación no ha podido ser prevista, todo debidamente justificado por la Gerencia de la UAP.
+e) Cuando se presente una contratación infructuosa o desierta. Se entiende como tal aquella en que no se recibieron ofertas dentro del término señalado al efecto, o en la que habiéndose recibido, fueron desestimadas por no convenir a los intereses del Proyecto.
