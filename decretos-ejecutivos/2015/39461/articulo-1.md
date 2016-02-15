@@ -1,0 +1,20 @@
+Nº 39461-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En ejercicio de las facultades y atribuciones contenidas en los artículos 47, 50, 140, incisos 3) y 18) y 146 respectivamente de la Constitución Política; los artículos 25, 27, párrafo primero, artículo 28, inciso 2), acápite b) de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978; artículos 2°, inciso e), 5°, inciso o), 23, 24 y 30 de la Ley de Protección Fitosanitaria, Ley Nº 7664 del 8 de abril de 1997; artículos 1°, 3°, 6°, 10, 11 y13; Ley de Aprobación del Convenio de Rotterdam para la aplicación del Procedimiento de Consentimiento Fundamentado previo a ciertos Plaguicidas y Productos Químicos Peligrosos objeto de Comercio Internacional, Ley Nº 8705 del 13 de febrero de 2009; Convenio de Basilea sobre Control Fronterizo de Desechos Peligrosos y su Eliminación, Ley Nº 7438 del 6 de octubre de 1994; artículos 1 y 3 de la Ley de aprobación del Convenio de Estocolmo sobre contaminantes orgánicos persistentes, Ley N° 8538 del 23 de agosto del 2006.
+Considerando:
+1º—Que es un derecho fundamental de los habitantes de Costa Rica, gozar de un ambiente sano y ecológicamente equilibrado, así como un deber ineludible del Estado procurarlo.
+2º—Que es necesario llevar un control de las sustancias químicas que se formulen con fines exclusivos de exportación en las empresas formuladoras nacionales y en los regímenes de Perfeccionamiento Activo y Zona Franca.
+3°—Que las empresas amparadas a estos regímenes no están exentas de cumplir con las normativas y regulaciones vigentes en materia de transporte y seguridad, así como los requisitos de ambiente y salud para el funcionamiento de los establecimientos donde operan.
+4°—Que los plaguicidas químicos objeto de este reglamento, se destinarán exclusivamente a la exportación.
+5º—Que los productos formulados en estos regímenes y que serán utilizados en el territorio nacional deberán cumplir con la normativa de registro vigente para dicho fin.
+6º—Que en cumplimiento del Código de Conducta de FAO se hace necesario tener información de datos claros, concisos y actualizados de la exportación de los plaguicidas a nivel nacional, con el objetivo de asegurar que se sigan prácticas comerciales correctas en la exportación de plaguicidas.
+7º—Que nuestro país es parte de los Convenios de Basilea sobre Control Fronterizo de Desechos Peligrosos y su Eliminación, Convenio de Estocolmo sobre Contaminantes Orgánicos Persistentes y del Convenio de Rotterdam para la aplicación del Procedimiento de Consentimiento Fundamentado Previo a ciertos Plaguicidas y Productos Químicos Peligrosos objeto de Comercio Internacional, los cuales establecen una serie de derechos y obligaciones, para los países firmantes de esos convenios internacionales, en el comercio internacional de plaguicidas agrícolas. Por tanto;
+DECRETAN:
+“REGISTRO DE INGREDIENTE ACTIVO GRADO TÉCNICO IMPORTADOS AL PAÍS
+PARA LA FORMULACIÓN DE PLAGUICIDAS QUÍMICOS EN FORMULADORAS
+NACIONALES, BAJO EL RÉGIMEN DE PERFECCIONAMIENTO ACTIVO (P.A.),
+ZONA FRANCA (Z.F.) U OTROS REGÍMENES SIMILARES CON FINES EXCLUSIVOS
+DE EXPORTACIÓN Y LOS PRODUCTOS FORMULADOS EN DICHOS REGÍMENES ”
+Artículo 1º—Ámbito de aplicación:
+Este reglamento aplica a los Ingredientes Activos Grado Técnico que se utilicen en la formulación de plaguicidas químicos formulados tanto en las formuladoras nacionales como en los regímenes de perfeccionamiento activo, zona franca u otros regímenes similares, con fines exclusivos de exportación, así como a los plaguicidas químicos formulados al amparo de éstos regímenes.
