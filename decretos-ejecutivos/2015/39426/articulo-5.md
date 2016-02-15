@@ -1,0 +1,13 @@
+Artículo 5°—Modifíquese el Artículo 111 del Reglamento de Organización del Ministerio de Seguridad Pública, Decreto Ejecutivo N° 36366-SP del 2 de noviembre del 2010, publicado en el Diario Oficial La Gaceta N° 21 del 31 de enero del 2011 y sus reformas, para que se lea de la siguiente manera:
+“Artículo 111.—La Sección de Admisibilidad e Investigaciones Preliminares tendrá las siguientes funciones:
+1) Recibir y calificar legalmente los informes, reportes, denuncias, quejas y en general cualquier tipo de documentación externa o interna que ingrese a la Ventanilla Única del Departamento Disciplinario Legal, relacionada con presuntas faltas cometidas por los (las) servidores (as) policiales o administrativos de este Ministerio.
+2) Examinar y valorar la documentación recibida, para determinar si amerita investigación preliminar o si debe ser remitida directamente a las Secciones de Inspección Policial o Inspección Administrativa, según corresponda.
+3) Devolver a la oficina de origen todo informe o reporte que se encuentre incompleto, que no cumpla con los requisitos del Manual para la Presentación de Informes al Departamento Disciplinario Legal, que no tenga el visto bueno de la Dirección Policial de Apoyo Legal, que se refiera a hechos que no configuran falta grave o que no tuvieron la trascendencia necesaria ni dañaron la imagen o el patrimonio de este Ministerio.
+4) Disponer el rechazo o archivo de aquellos asuntos que así lo ameriten.
+5) Resolver los recursos de revocatoria que se interpongan contra las resoluciones de rechazo o archivo de asuntos que así lo ameriten.
+6) Emplazar a las partes recurrentes y remitir la totalidad del expediente al Superior Jerárquico, en el caso de que presenten recurso de apelación contra las resoluciones de rechazo o archivo de asuntos que así lo ameriten.
+7) Dirigir funcionalmente las investigaciones preliminares sobre las presuntas irregularidades en las que se involucren funcionarios (as) de este Ministerio.
+8) Aplicar los procedimientos adecuados para realizar entrevistas y recibir declaraciones a los (las) funcionarios (as) públicos y personas particulares, levantar actas sobre inspecciones y evidencias, así como realizar cualquier otra diligencia que se requiera.
+9) Dar seguimiento a las causas penales de cualquier naturaleza que se tramiten contra los servidores de este Ministerio, a efectos de obtener la información y documentación necesaria para la aplicación del régimen disciplinario que corresponda.
+10) Remitir los expedientes con la documentación del caso en los asuntos que así lo ameriten, a la Sección de Inspección Policial o Administrativa, según corresponda.
+11) Cualquier otra propia de su competencia o que le sea asignada por el Ministro.”

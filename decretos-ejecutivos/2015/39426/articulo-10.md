@@ -1,0 +1,2 @@
+Artículo 10.—Modifíquese el inciso 10) del Artículo 27 del Reglamento de Organización del Ministerio de Seguridad Pública, Decreto Ejecutivo N° 36366-SP del 2 de noviembre del 2010, publicado en el Diario Oficial La Gaceta N° 21 del 31 de enero del 2011 y sus reformas, para que se lea de la siguiente manera:
+“10) Conocer y evaluar los informes del Ministerio Público, en los casos en que corresponda y brindar asesoría al (a la) Jerarca sobre su proceder.”
