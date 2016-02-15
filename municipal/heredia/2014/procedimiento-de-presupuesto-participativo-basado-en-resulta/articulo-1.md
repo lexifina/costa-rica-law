@@ -87,7 +87,10 @@ Políticas para la etapa de la asamblea asociaciones
 14. Los proyectos que pueden ser presentados en la Sesión Ampliada del Concejo de Distrito serán un máximo de 6 (*) proyectos por Asociación de Desarrollo Integral y 3 (*) proyectos por Asociación de Desarrollo Específica, lo cual dependerá del orden establecido en la priorización realizada por la comunidad en la Asamblea.
 (*)(Así reformado el punto anterior mediante sesión ordianria N° 388-2015 del 2 de febrero del 2015)
 15. En la asamblea de la organización se deberá elegir a dos representantes un hombre y una mujer, seleccionados entre todos las y los delegados que participaron de la votación en la Asamblea con el fin de que representen al sector en la Sesión Ampliada que realizará el Concejo de Distrito.
-16. Una vez realizada la Asamblea, se deberá remitir a la Oficina de Planificación en formato digital a más tardar el último día hábil del mes de mayo, la lista de proyectos priorizados por la Comunidad, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la Sesión Ampliada.
+16. Una vez realizada la asamblea, se deberá remitir a la Oficina de Planificación copia del acta de la asamblea a más tardar el último día hábil del mes de mayo, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la sesión ampliada.
+(Así reformado el punto anterior mediante sesión ordinaria N° 472-2016 del 15 de febrero del 2016)
+17. Aquellas asociaciones que no hayan entregado el acta de la asamblea a planificación institucional en el plazo establecido no podrán presentar los proyectos en la sesión ampliada.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 472-2016 del 15 de febrero del 2016)
 Políticas para la etapa de aprobación proyectos juntas administrativas y de educación
 1. La Junta Administrativa o de Educación deberá llevar a cabo una reunión donde apruebe y priorice el proyecto que va a ser presentado.
 (Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
@@ -97,8 +100,11 @@ Políticas para la etapa de aprobación proyectos juntas administrativas y de ed
 (Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
 4. Una vez realizada la reunión la Junta Administrativa o de Educación deberá remitir a Planificación Institucional, en formato digital a más tardar el último día hábil del mes de mayo, el nombre del proyecto, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la Sesión Ampliada.
 (Así reformado el punto anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
-5. Las Juntas Administrativas y de Educación, podrán presentar un máximo de un proyecto en la Sesión Ampliada.
+5. Una vez realizada la reunión la Junta Administrativa o de Educación deberá remitir a planificación institucional copia del acta de la reunión a más tardar el último día hábil del mes de mayo, a fin de que se emita la lista de proyectos que se valoraran a nivel de cada distrito en la sesión ampliada.
 (Así adicionado el punto 5) anterior mediante sesión ordinaria N° 388-2015 del 2 de febrero del 2015)
+(Así reformado el punto anterior mediante sesión ordinaria N° 472-2016 del 15 de febrero del 2016)
+6. Aquellas Juntas que no hayan entregado el acta de la reunión a planificación institucional en el plazo establecido no podrán presentar los proyectos en la sesión ampliada.
+(Así adicionado el punto anterior mediante sesión ordinaria N° 472-2016 del 15 de febrero del 2016)
 Políticas para la etapa de presentación proyectos al concejo de distrito
 1. Planificación Institucional coordinará una capacitación con las y los delegados de cada asociación durante la última semana de mayo para explicar el proceso de votación e indicar criterios de priorización de proyectos.
 2. Los Concejos de Distrito convocan para la primera semana del mes de junio a todas las organizaciones del distrito mediante una nota en la cual indicarán la fecha, hora y lugar donde se realizará la Sesión Ampliada.
