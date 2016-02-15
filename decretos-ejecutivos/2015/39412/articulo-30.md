@@ -1,0 +1,1 @@
+Artículo 30.—En el Lago Cote queda absolutamente prohibido el ingreso de lanchas, motos acuáticas u otro tipo de embarcación con motor; se exceptúan las embarcaciones gubernamentales debidamente autorizadas por la Administración del área protegida.

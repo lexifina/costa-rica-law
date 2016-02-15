@@ -1,0 +1,1 @@
+Artículo 2°—Las disposiciones del presente Reglamento y las indicaciones que emitan los (as) funcionarios (as) del Parque Nacional Volcán Tenorio y la Zona Protectora Tenorio a las personas que ingresen a dichas Áreas Silvestres Protegidas, en apego a dicho instrumento y la normativa vigente, son de carácter obligatorio.

@@ -1,0 +1,1 @@
+Artículo 10.— El ingreso al PNVT y la ZPT para fines de ecoturismo deberá realizarse por la entrada oficial a dicha área protegida, mismo que se encuentra ubicado en la comunidad del Pilón, distrito Bijagua, cantón de Upala, Provincia de Alajuela.

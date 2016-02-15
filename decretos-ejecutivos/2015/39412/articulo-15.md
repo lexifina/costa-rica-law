@@ -1,0 +1,1 @@
+Artículo 15.—Los funcionarios del PNVT y la ZPT podrán denegar el acceso a personas cuando sea aparente que se encuentren bajo los efectos de algún estupefaciente, sustancia psicotrópica o droga de uso no autorizado.

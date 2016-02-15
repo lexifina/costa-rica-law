@@ -1,0 +1,1 @@
+Artículo 43.—La administración del PNVT y la ZPT podrá autorizar horarios de ingreso y salida distintos al establecido para el ejercicio del ecoturismo en el artículo 12 del presente reglamento cuando el objeto de ingreso sea filmación o investigación; ello previa solicitud debidamente justificada del permisionario.

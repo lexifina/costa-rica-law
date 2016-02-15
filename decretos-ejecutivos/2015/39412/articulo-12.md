@@ -1,0 +1,1 @@
+Artículo 12.—Toda persona física que deseen ingresar por razones de ecoturismo al PNVT y la ZPT podrá hacerlo en el siguiente horario los días que corren de lunes a domingo ingresando entre las 8:00 horas y las 14:00 horas. En todo caso la hora límite para presentarse en el sitio de salida oficial lo será las 16:00 horas.

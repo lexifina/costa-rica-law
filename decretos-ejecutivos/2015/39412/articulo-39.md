@@ -1,0 +1,1 @@
+Artículo 39.—Funcionarios del ACAT o voluntarios autorizados por el PNVT debidamente identificado, sin previo aviso, podrán acompañar a los ecoturistas, cuando lo estimen conveniente, con el fin de fiscalizar, controlar y monitorear las actividades que estos realicen. Así como para orientar y brindar información ambiental a los visitantes.

@@ -1,0 +1,1 @@
+Artículo 33.—Quedan prohibidas de forma general todas aquellas actividades que se encuentren así consideradas por la normativa ambiental vigente o que constituyan contravenciones o delitos según el ordenamiento jurídico nacional.

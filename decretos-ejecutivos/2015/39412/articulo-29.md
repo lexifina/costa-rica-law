@@ -1,0 +1,1 @@
+Artículo 29.—Dentro de los cuerpos de agua, llámese río, quebrada, laguna o aguas termales, del PNVT y la ZPT queda absolutamente prohibido el ingreso, baño y nado de los visitantes; a excepción de que se trate de una actividad como parte de un proyecto de investigación debidamente autorizado por la administración.

@@ -1,0 +1,1 @@
+Artículo 9°—El ingreso al PNVT y la ZPT está permitido únicamente para el ejercicio de las actividades permitidas y restringidas establecidas en el Capítulo IV del presente reglamento o para actividades efectuadas por la Administración en el ejercicio de sus competencias.

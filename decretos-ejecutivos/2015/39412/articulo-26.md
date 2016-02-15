@@ -1,0 +1,1 @@
+Artículo 26.—Las filmaciones de aficionados que pretendan únicamente la preservación de un recuerdo de la visita al Área Silvestre Protegida, estarán exentas de pago de tarifa según lo dispuesto en el Decreto Ejecutivo N° 38295-MINAE, con la salvedad de que las mismas no podrán ser utilizadas para fines comerciales o de lucro..

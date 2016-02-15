@@ -1,0 +1,1 @@
+Artículo 38.—El personal del PNVT, debidamente identificado, podrá cuando lo estime necesario, realizar cualquier otra inspección que la Administración considere necesaria para dar cumplimiento al presente reglamento y la normativa conexa.

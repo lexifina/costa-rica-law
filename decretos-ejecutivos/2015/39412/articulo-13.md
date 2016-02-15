@@ -1,0 +1,1 @@
+Artículo 13.—Para efectos el ingreso al PNVT y ZPT; y con el fin de demostrar su nacionalidad o lugar de procedencia, los (as) visitantes deberán mostrar a los (as) funcionarios (as) de la caseta de ingreso, la cédula de identidad, cédula de residencia o pasaporte, según corresponda y cuando se amerite.

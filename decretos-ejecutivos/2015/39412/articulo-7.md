@@ -1,0 +1,8 @@
+Artículo 7°—Para efectos del presente Reglamento se definen los siguientes términos:
+1. Acosar: Acción de acorralar, atrapar, perseguir o tratar de extraer de hábitat natural a un animal.
+2. Caza: La acción, con cualquier fin, de acosar, apresar o matar animales silvestres, así como la recolección de productos o subproductos derivados de estos.
+3. Extraer: Sacar vida silvestre, sus partes, productos o derivados.
+4. Manipular: Operar con las manos o con cualquier instrumento especies de flora o fauna silvestre.
+5. Plan General de Manejo: Es el instrumento de planificación que permite orientar la gestión del PNVT y la ZPT hacia el cumplimiento de sus objetivos de conservación a largo plazo. Se fundamenta en líneas de acción estratégicas a mediano plazo y en objetivos de manejo para los elementos naturales y culturales incluidos dentro del área, así como en la relación de estos últimos con su entorno socio ambiental. Es la base para el desarrollo de otros instrumentos de planificación y reglamentación del PNVT y la ZPT.
+6. Pesca de subsistencia: Pesca para el consumo doméstico la que se efectúa desde tierra o en embarcaciones pequeñas, únicamente mediante el uso de cañas, carretes o cuerdas de mano, sin propósito de lucro y con el único objeto de consumir el producto para la subsistencia propia o de la familia.
+7. Turismo especializado: Modalidad de turismo sostenible que proporciona al visitante un entendimiento ecológico y científico del medio ambiente natural donde el objetivo de la visita persigue el ampliar o compartir conocimientos en temas específicos de su interés. Se concibe como una modalidad de turismo de bajo impacto sobre los recursos naturales.

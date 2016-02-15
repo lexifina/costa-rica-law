@@ -1,0 +1,1 @@
+Artículo 37.—La administración del PNVT y la ZPT puede, en cualquier momento, restringir las actividades y sitios de uso público, ello siguiendo los principios que rigen en materia ambiental y los objetivos establecidos en el Plan de Manejo de ambas áreas silvestres protegidas.

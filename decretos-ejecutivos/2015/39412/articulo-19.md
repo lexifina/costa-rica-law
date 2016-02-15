@@ -1,0 +1,1 @@
+Artículo 19.—Las actividades de investigación y de colecta científica y académica están permitidas dentro de toda la zonificación geográfica del PNVT y la ZPT. Para el ejercicio de dicha actividad el interesado deberá contar con los permisos y licencias respectivas debidamente emitidas y vigentes.
