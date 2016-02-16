@@ -1,0 +1,1 @@
+Artículo 4º—El MICITT, con base en la información recopilada y analizada, elaborará las propuestas de política nacional para el abordaje de las tecnologías de información y comunicación del sector público.
