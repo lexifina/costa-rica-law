@@ -1,0 +1,3 @@
+Artículo 3º—Prueba documental. El interesado deberá presentar la prueba documental original en la que fundamenta su solicitud.
+Cuando se trate de fotocopias, éstas deberán ser legibles, completas, además de contar con la debida certificación por parte de notario público o de la autoridad competente. En su defecto, deberá aportarse junto con las fotocopias el documento original, en cuyo caso, el funcionario tributario que las recibe deberá confrontarlas y deberá firmar cada fotocopia.
+Cuando se aporten al expediente facturas de crédito sin sello de cancelación, deberán aportarse los recibos correspondientes de pago.
