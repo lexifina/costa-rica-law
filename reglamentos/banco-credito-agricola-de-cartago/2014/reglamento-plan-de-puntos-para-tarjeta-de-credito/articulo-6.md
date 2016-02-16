@@ -1,5 +1,6 @@
 Artículo 6°—Prohibiciones y excepciones. En el Plan de puntos para la tarjeta de crédito, aplicará las siguientes prohibiciones o excepciones:
-A. Los puntos asignados no tendrán valor comercial, excepto para ser redimidos a través de este plan de puntos ante el Banco y/o en el Bancrédito Store. La garantía de los productos que se adquieran a través de Bancrédito Store, será respaldada por la empresa proveedora de los productos, eximiendo al Banco de todo tipo de responsabilidad por la adquisición de los mismos.
+A. Los puntos asignados no tendrán valor comercial, excepto para ser redimidos a través de este plan de puntos ante el Banco.
+(Así reformado el inciso anterior en sesión N° 8917/16 del 16 de febrero de 2016)
 B. El Banco excluirá del plan de puntos, la acumulación de éstos sobre transacciones determinadas fraudulentas de acuerdo con lo establecido por la reglamentación de Visa Internacional y de MasterCard Worldwide.
 C. Para que el tarjetahabiente pueda redimir los puntos acumulados, deberá estar al día con todas sus obligaciones ante el Banco.
 D. El tarjetahabiente perderá los puntos acumulados, al dar por terminada la relación Cliente-Banco mediante la cancelación de su tarjeta de crédito, o bien por encontrarse en cobro judicial en cualquier obligación con el Banco.

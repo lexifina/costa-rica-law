@@ -14,3 +14,4 @@ Reglamento Plan de Puntos para tarjeta de crédito
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-26 | la propia norma |
+| 2 | 2016-02-16 | Reglamento 8917 (2016-02-16) |
