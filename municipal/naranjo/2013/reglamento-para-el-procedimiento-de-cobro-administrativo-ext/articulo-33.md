@@ -1,1 +1,0 @@
-Artículo 33.—Condonación de honorarios. Procederá únicamente la condonación de honorarios profesionales cuando así lo determine el abogado externo director del proceso, el cual lo hará constar mediante nota dirigida a la Administración Tributaria.

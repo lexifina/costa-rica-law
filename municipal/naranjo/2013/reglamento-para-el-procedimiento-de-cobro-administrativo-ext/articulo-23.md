@@ -1,1 +1,0 @@
-Artículo 23.—Novación. La novación como forma de extinción tributaria, consistirá en la transformación o sustitución de una obligación por otra. La novación se admitirá únicamente cuando se mejore las garantías a favor de la Municipalidad y ello no implique demerito de la efectividad en la recaudación.

@@ -1,1 +1,0 @@
-Artículo 37.—Otras sanciones. La Municipalidad podrán realizar los trámites administrativos y judiciales respectivos contra el profesional en derecho, en aquellos casos en que se demuestre negligencia o imprudencia en la tramitación judicial de las obligaciones vencidas. Sanciones que podrán ser administrativas, disciplinarias o indemnizatorias.
