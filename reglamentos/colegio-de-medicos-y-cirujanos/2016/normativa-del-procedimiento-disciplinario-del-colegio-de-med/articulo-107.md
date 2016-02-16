@@ -1,0 +1,4 @@
+Artículo 107.—Acto Final
+El acto final de la Junta de Gobierno, en los procesos disciplinarios, quedará en firme una vez vencido el plazo de tres días hábiles otorgado a las partes para interponer el recurso de revocatoria, luego de que el mismo se tenga por notificado.
+La resolución de la Junta de Gobierno podrá ser apelada en los términos del artículo 24 de la Ley Orgánica del Colegio de Médicos y Cirujanos de Costa Rica, en cuyo caso la parte podrá interponer dicho recurso en el termino de 5 días hábiles contados a partir de la notificación del rechazo del recurso de revocatoria y siempre y cuando no se hubiere presentado el recurso de apelación en forma concomitante.
+En caso de haberse presentado los recursos, la decisión recurrida de la Junta de Gobierno quedará en firme hasta que se resuelvan los mismos, en cuyo caso se tendrá por agotada la vía administrativa.

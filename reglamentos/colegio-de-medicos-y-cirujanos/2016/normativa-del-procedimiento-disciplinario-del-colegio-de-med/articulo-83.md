@@ -1,0 +1,4 @@
+Artículo 83.—
+El Informe Final del Tribunal de Ética Médica, se remitirá junto con el expediente a la Junta de Gobierno, con la recomendación correspondiente para la decisión final. El Informe que emita el Tribunal de Ética Médica a la Junta de Gobierno deberá indicar expresamente una relación de los hechos que el tribunal ha tenido por probados y no probados; deberá abarcar todas las consideraciones de hecho y derecho que se han debatido en el proceso por las partes, con mención de las pruebas que se han evacuado en el expediente.
+La parte resolutiva del Informe Final deberá indicar si ésta es unánime o si es por mayoría de sus integrantes. En este último caso, el miembro que disienta deberá redactar con los mismos requisitos el voto de minoría.
+De igual forma deberá consignarse la naturaleza de la falta, si es leve, grave, gravísima o amonestación, o si no hay mérito para imponer una sanción.

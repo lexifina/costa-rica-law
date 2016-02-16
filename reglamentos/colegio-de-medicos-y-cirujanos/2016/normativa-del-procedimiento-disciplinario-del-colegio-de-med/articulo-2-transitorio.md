@@ -1,0 +1,2 @@
+Transitorio II-
+Los procesos ordinarios interpuestos con anterioridad a la entrada en vigencia de este Reglamento, cualquiera que sea su estado procesal, continuarán sustanciándose, en todos sus trámites y recursos, por las normas que regían a la fecha de inicio. Para tal efecto, la Fiscalía, el Tribunal de Ética y la Junta de Gobierno continuarán con el trámite de dichos asuntos hasta su finalización.

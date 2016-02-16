@@ -1,0 +1,3 @@
+Artículo 36.—Plazo de Finalización de los Procedimientos
+El procedimiento de instrucción deberá concluirse, dentro de los seis meses calendarios posteriores a la intimación que realice el Tribunal de Ética Médica a la parte denunciada.
+Recibido el Informe Final, la Junta de Gobierno dispondrá de un plazo de dos meses para dictar el acto final. No obstante lo indicado en este inciso, si la Junta de Gobierno considera que el informe del Tribunal de Ética Médica, establecido en este reglamento, se encuentra incompleto o es confuso, se hará la remisión correspondiente al Tribunal de Ética Médica, para que en el plazo de 15 días hábiles lo aclare o lo adicione.

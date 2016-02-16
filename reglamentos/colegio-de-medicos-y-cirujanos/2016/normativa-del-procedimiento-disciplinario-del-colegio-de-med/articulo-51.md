@@ -1,0 +1,4 @@
+Artículo 51.—
+1. Toda denuncia mal interpuesta podrá ser tramitada de oficio por la autoridad correspondiente, en caso de que el Departamento de Fiscalía, o la Junta De Gobierno, consideren que se trata de un caso de interés público.
+2. Sin embargo, Fiscalía o la Junta de Gobierno no estarán sujetas al término para pronunciar su decisión al respecto, ni obligadas a hacerlo, salvo en lo que respecta a la inadmisibilidad de la denuncia.
+3. El Departamento de Fiscalía rechazará de plano las denuncias que fueren impertinentes, o evidentemente improcedentes y deberá comunicarlo a la Junta de Gobierno, contra la resolución que rechace de plano una denuncia, cabrán los mismos recursos ordinarios establecidos en este reglamento. El recurso de revocatoria ante el mismo departamento que dicta la resolución y el recurso de apelación ante la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica.

@@ -1,0 +1,4 @@
+Artículo 68.—
+1. La audiencia será oral, por lo que no habrá obligación de formular los interrogatorios o de testigos por escrito, salvo la prueba confesional.
+2. La dirección y el control de la audiencia, serán ejercidos por el presidente del Tribunal de Ética Médica. Las preguntas se harán, en primer lugar, directamente por el tribunal, quien luego permitirá las preguntas de la Fiscalía y/o la parte denunciante en caso de existir y finalmente la parte denunciada lo cual podrá ser por intermedio de sus apoderados o sus abogados.
+3. Quien tenga el turno podrá pedir aclaraciones y adiciones, así como hacer preguntas para contradecir, inmediatamente después de dadas las respuestas, sin esperar la conclusión del interrogatorio al efecto. Las preguntas no podrán ser asertivas o inducir a la respuesta.
