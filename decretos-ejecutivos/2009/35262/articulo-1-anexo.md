@@ -226,6 +226,8 @@ En la primera visita al establecimiento de salud, las personas proveedoras de lo
 La actitud del equipo de salud será la de propiciar que la embarazada y su acompañante se sientan bienvenidos, de manera que se cumpla a la atención prenatal con calidad y equidad, a la que tienen derecho todas las parejas, sin distinción alguna.
 Los proveedores de los servicios de atención prenatal, de acuerdo a lo establecido en la legislación vigente deben considerar las necesidades diferenciadas del grupo de mujeres atendidas, tales como: las embarazadas con discapacidad, embarazadas indígenas, embarazadas analfabetas, embarazadas inmigrantes, embarazadas privadas de libertad, embarazadas adolescentes, embarazadas no aseguradas y otras.
 Atención a las mujeres con sospecha de embarazo
+Por considerarse indispensable en el logro de las metas de reducción de la mortalidad materno, perinatal e infantil se debe garantizar la atención universal de las mujeres gestantes, niños y niñas menores de un año en los servicios del país, por lo que se declara de interés público nacional dar prioridad de atención a toda mujer embarazada o con sospecha de embarazo y a los menores de un año en todos los servicios de salud, independientemente de su condición de asegurado.
+(Así adicionado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 39740 del 17 de febrero del 2016)
 A la mujer que acuden a la consulta general, con sospecha de embarazo (anexo 14), se interroga, se examina y se dan indicaciones sobre:
 Ø La fecha de la última regla (FUR)
 Ø Regularidad del ciclo menstrual
@@ -248,16 +250,18 @@ Se realizan los cálculos para edad gestacional y fecha probable de parto (FPP),
 Regla de Wahl: al primer día de la última menstruación se le agregan diez días y se retroceden tres meses. (Obstetricia de Schwarcz, 2004)
 Se procede a realizar el examen físico completo y una revisión cuidadosa por sistemas, enfatizando en el examen ginecológico, obstétrico y de glándulas mamarias.
 Las usuarias que presentan sangrados vaginales en el primer trimestre deben ser referidas al nivel superior para ser valoradas por el medico gineco-obstetra.
-Laboratorio en embarazo confirmado:
-A la usuaria con embarazo confirmado, el profesional encargado de la consulta le entrega y explica las órdenes de laboratorio, de rutina en el control prenatal, y previo consentimiento informado:
+(*)Laboratorio en embarazo confirmado:
+A la usuaria con embarazo confirmado, el profesional encargado de la consulta le entrega y explica las órdenes de laboratorio, de rutina en el control prenatal, y previo de consentimiento informado:
 1. Hb y Hto
-2. Grupo y Rh (si no está registrado en el expediente de salud)
+2. Grupo Rh (si no está registrado en el expediente de salud)
 3. VDRL
 4. Examen general de orina
 5. Tamizaje de glucosa en sangre con glucómetro stat
-6. Glicemia en ayunas
-7. VIH-SIDA.
-(Al inicio de la atención son necesarias consultas mas extensas y cuando sea posible debe incorporarse exámenes de rutina – D)
+6. Glucemia por – carga
+7. VIH-SIDA
+8. Realizar a toda mujer ultrasonido entre la semana 11 y 12 de embarazo.
+9. Tamizaje por Hepatitis B
+(*)(Así reformado el apartado anterior por el artículo 1° del decreto ejecutivo N° 39740 del 17 de febrero del 2016)
 Tratamiento de rutina:
 El profesional encargado de la consulta inicia la indicación del acido fólico de rutina, con el fin de prevenir las anomalías del tubo neural, bastante frecuente en nuestro país
 (Las mujeres que desean embarazarse y aquellas mujeres embarazadas, deben saber que 400mcg de acido fólico por día antes de la concepción y hasta las 12 semanas de gestación reduce el riesgo de tener un bebé con defectos del tubo neural como anecefalia y espina bífida - A)
@@ -294,10 +298,13 @@ Valoración de riesgo integral
 A toda usuaria embarazada debe ser investigada por factores de riesgo individual, familiares y comunales para ser clasificada en bajo y alto riesgo obstétrico.
 Toma de Papanicolau
 El profesional encargado de la consulta revisa el expediente de la usuaria para ver si procede. La toma de PAP está indicada en aquellas mujeres que nunca se lo han realizado o que tienen más de dos años de realizado o con indicación especial de más frecuente. La técnica para la de PAP en mujeres embarazadas no incluye la toma de muestra del canal endocervical.
-Entrega de órdenes de laboratorio
+(*)Entrega de órdenes de laboratorio
 El profesional encargado de la consulta entrega las órdenes de laboratorio correspondientes a la segunda consulta:
-Ø Examen general de orina
-Ø Glicemia poscarga de 50 gr. de glucosa
+Hb-Hto
+Examen general de orina
+VDRL
+Glucosa post-carga
+(*)(Así reformado el apartado anterior por el artículo 1° del decreto ejecutivo N° 39740 del 17 de febrero del 2016)
 Tratamiento de rutina
 El profesional encargado de la consulta indica:
 Ø Indica el hierro y ácido fólico de rutina.
@@ -364,10 +371,12 @@ Valoración del riesgo integral
 A toda usuaria embarazada debe ser investigada por factores de riesgo individual, familiares y comunales para ser clasificada en bajo y alto riesgo obstétrico.
 Identificación de signos y síntomas de peligro:
 Toda usuaria con signos y síntomas de amenaza de parto prematuro: contracciones uterinas y modificaciones del cuello cervical, sangrado vaginal y expulsión de líquido amniótico deben ser referidas para ser valoradas por el médico gineco-obstetra en el nivel correspondiente.
-Entrega de órdenes de laboratorio
+(*)Entrega de órdenes de laboratorio
 El profesional encargado de la consulta entrega las órdenes de laboratorio correspondientes a la cuarta consulta
-Ø Hb-Hto
-Ø Examen general de orina
+Hb-Hto
+Examen general de orina
+Tamizaje de Estreptococo Agalacthi B, a toda mujer gestante entre las semanas 32-36
+(*)(Así reformado el apartado anterior por el artículo 1° del decreto ejecutivo N° 39740 del 17 de febrero del 2016)
 Tratamiento de rutina
 El profesional encargado de la consulta indica:
 Indica el hierro y ácido fólico de rutina
@@ -738,20 +747,14 @@ En China el estudio revela que las mujeres que recibieron acido fólico antes o 
 ANEXO 1
 REACCIONES COGNOSCITIVA Y EMOCIONAL
 DE LA MUJER ANTE EL EMBARAZO
-[imagen]
-[imagen]
-[imagen]
 ANEXO 3
 FLUJO DE ATENCIÓN PRENATAL
 Fuente:
-[imagen]
 ANEXO 4
 HISTORIA CLÍNICA PERINATAL.
-[imagen]
 ANEXO 5
 VALORES DE LA ALTURA UTERINA
 SEGÚN SEMANAS DE GESTACIÓN
-[imagen]
 ANEXO 6
 TAREAS MATERNAS, PREOCUPACIONES
 Y SIGNOS DE CONFLICTO
@@ -764,13 +767,10 @@ III TRIMESTRE
 Contemplar al feto como un ser individual separado que se prepara para el “allá va” a través del nacimiento. Aceptar los cambios físicos psicológicos. Prepararse para el “ser padres”. Prepararse para el parto y nacimiento y para aceptar el riesgo de “transición segura”. | Bienestar del recién nacido, factores que afectan al parto y nacimiento. Ansiedad debido a deformidades del bebé. Gastos. El proceso del parto y nacimiento. Aceptación del recién nacido por otros niños. Incomodidades presentes. | Alto nivel de ansiedad respecto a sí misma, parto. No aceptación mantenida del embarazo. Conducta que omite hábitos saludables. Ausencia de soporte familiar o del cónyuge. Ausencia de preparación para o basado en las necesidades del recién nacido.
 ANEXO 7
 DETECCIÓN DE SÍFILIS DURANTE EL EMBARAZO
-[imagen]
 ANEXO 8
 INFECCIÓN DE VÍAS URINARIAS DURANTE EL EMBARAZO
-[imagen]
 ANEXO 9
 DETECCIÓN Y TRATAMIENTO DE LA TOXOPLASMOSIS
-[imagen]
 ANEXO 10
 MANIOBRAS DE LEOPOLD1
 (1) Steven Gabbe, MD, JENNIFER Niebyl, MD, Joe Simpson, MD OBSTETRICIA, USA, 2004.
@@ -793,7 +793,6 @@ Prueba De Gant3
 Consiste en tomar la presión arterial a la embarazada después de la 20ª semana de embarazo en decúbito lateral izquierdo (15 minutos) y luego por cinco minutos decúbito dorsal. La prueba es positiva si aumenta en 20 mm de Hg en la presión diastólica, en relación al valor obtenido en decúbito lateral izquierdo. De ser positiva se realiza control de presión arterial cada semana y de orina cada mes, así como de presencia de signos hipertensivos.
 ANEXO 2
 ESQUEMA DE VACUNACIÓN ANTITETÁNICA
-[imagen]
 ANEXO 13
 CUIDADO PERSONAL PARA MALESTARES
 COMUNES EN EL EMBARAZO

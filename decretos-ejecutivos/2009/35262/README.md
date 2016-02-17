@@ -14,3 +14,4 @@ Oficialización de la “Norma Oficial Atención Integral a la Mujer durante el 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-05-29 | la propia norma |
+| 2 | 2016-02-17 | Decreto Ejecutivo 39740 (2016-02-17) |
