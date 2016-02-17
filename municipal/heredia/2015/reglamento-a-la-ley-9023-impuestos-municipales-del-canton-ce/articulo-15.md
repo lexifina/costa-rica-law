@@ -1,0 +1,1 @@
+Artículo 15.—Uso Conforme: Los establecimientos comerciales que opten por una licencia comercial deberán acreditar que cuentan con el Uso de Suelo Conforme para actividades comerciales, conforme a la normativa aplicable. Esto podrá verificarse con inspecciones oculares en coordinación con la Unidad de Control Fiscal Urbano

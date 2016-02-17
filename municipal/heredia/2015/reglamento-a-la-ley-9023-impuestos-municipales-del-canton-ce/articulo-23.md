@@ -1,0 +1,1 @@
+Artículo 23.—De la Documentación: La Municipalidad indicará a los interesados, cuales documentos o requisitos deben acompañarse con la solicitud de licencia. Únicamente se tramitarán las solicitudes que presenten todos los requisitos que se exigen.

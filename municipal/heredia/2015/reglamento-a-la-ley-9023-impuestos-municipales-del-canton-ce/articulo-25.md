@@ -1,0 +1,2 @@
+Artículo 25.—Ampliación o Cambio de Actividad: Son aplicables las disposiciones de los capítulos II, III y V de este Reglamento a toda ampliación o cambio de actividades.
+En el caso de las ampliaciones de actividades, las mismas deben ser afines a las actividades ya autorizadas por el municipio. Si se pretende establecer en la misma finca una actividad comercial que no sea a fin con la autorizada, debe solicitarse una nueva patente comercial.

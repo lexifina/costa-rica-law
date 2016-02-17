@@ -1,0 +1,1 @@
+Artículo 18.—Abandono de la Actividad: Cuando resulte totalmente evidente el abandono de la actividad aun cuando el interesado no lo haya comunicado a la Sección de Servicios Tributarios, esta procederá con la suspensión de la licencia, según lo establece el Código Municipal y gestionará el cobro del pendiente vía administrativa o judicial.

@@ -1,0 +1,2 @@
+Artículo 11.—Plazo para resolver: La sección de Servicios Tributarios deberá resolver las solicitudes de licencia dentro de los 30 días naturales contados a partir de su presentación en forma y con los requisitos completos.
+Vencido el término y cumplidos los requisitos sin respuesta alguna de la municipalidad, el solicitante podrá establecer su actividad y la Sección de Servicios Tributarios procederá con el otorgamiento de la Licencia.

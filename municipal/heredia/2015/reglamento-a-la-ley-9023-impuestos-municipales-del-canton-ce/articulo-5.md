@@ -1,0 +1,1 @@
+Artículo 5°—Plazo Comprendido: El impuesto de Patente es anual y está comprendido entre el 1° de enero y el 31 de diciembre de cada año y deberá ser cancelado por trimestres adelantados. El atraso en la cancelación además de las sanciones que se contemplan en el Código Municipal y este reglamento, generara los respectivos intereses de mora.

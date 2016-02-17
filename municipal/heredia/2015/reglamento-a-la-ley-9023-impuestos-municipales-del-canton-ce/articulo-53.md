@@ -1,0 +1,1 @@
+Artículo 53.—Licencias Municipales para Casinos. Para la instalación de casinos en el cantón, se deberá cumplir con lo establecido en el Reglamento de Casinos de la Municipalidad de Heredia, publicado en el diario oficial La Gaceta N° 92 del 2007.

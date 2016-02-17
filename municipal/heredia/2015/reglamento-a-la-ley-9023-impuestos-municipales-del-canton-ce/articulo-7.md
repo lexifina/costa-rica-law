@@ -1,0 +1,2 @@
+Artículo 7°—Actividades Conjuntas: Cuando en un mismo establecimiento dedicado a actividades lucrativas ejerzan actividades conjuntamente varias sociedades o personas jurídicas, en forma individual, deberán tramitar la respectiva licencia municipal y el monto del impuesto lo determinará según el monto declarado ante la Hacienda Pública, por imposición del municipio
+o por disposición expresa de la ley.

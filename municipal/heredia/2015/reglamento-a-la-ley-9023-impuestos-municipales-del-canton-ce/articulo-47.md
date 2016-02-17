@@ -1,0 +1,1 @@
+Artículo 47.—Fecha de pago. La administración del Cenada cancelará el impuesto por concepto de patente comercial de puestos fijos u ocasionales, durante los primeros 10 días naturales posterior al mes correspondiente de pago.

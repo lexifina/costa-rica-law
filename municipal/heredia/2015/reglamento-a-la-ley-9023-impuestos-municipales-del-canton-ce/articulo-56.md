@@ -1,0 +1,1 @@
+Artículo 56.—De los Recursos: Las resoluciones de los Inspectores municipales tendrán los recursos de revocatoria y apelación para ante la jefatura inmediata y en alzada ante el Alcalde Municipal de conformidad con el numeral 162 del Código Municipal.

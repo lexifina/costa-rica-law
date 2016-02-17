@@ -1,0 +1,1 @@
+Artículo 31.—Imposición para actividades conjuntas. Cuando en un mismo establecimiento dos o más patentados realicen actividades conjuntamente, el monto de la imposición lo determinará el monto declarado en forma separada aunque se encuentren en un mismo local comercial.
