@@ -1,2 +1,3 @@
 Artículo 8º.- Para ser profesor de la Universidad en la ciencia del Derecho, es indispensable estar inscrito como miembro del Colegio.
 Los catedráticos, así como los miembros de la Directiva, estarán exentos del servicio activo militar y de cargos concejiles mientras desempeñen sus funciones.
+(Mediante resolución de la Sala Constitucional N° 02419 del 17 de febrero de 2016, se anuló única y exclusivamente la aplicación de este artículo a los nombramientos de profesores en Derecho para el ejercicio de la docencia en las instituciones universitarias públicas.- En cuanto a los demás supuestos de aplicación, se omite pronunciamiento alguno, de manera que subsiste para ellos la validez y eficacia de la norma discutida.)
