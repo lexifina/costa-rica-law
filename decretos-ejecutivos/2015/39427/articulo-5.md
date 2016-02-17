@@ -1,0 +1,1 @@
+Artículo 5º—La solicitud para el otorgamiento del asueto en cuestión, se presentará en físico, por fax o correo electrónico al Despacho del señor Ministro o a la Dirección de Asesoría Jurídica del Ministerio de Gobernación y Policía, en ambos casos, la gestión se debe presentar al menos con dos meses de antelación al día del asueto.

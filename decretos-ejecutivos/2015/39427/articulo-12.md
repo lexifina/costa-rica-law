@@ -1,0 +1,1 @@
+Artículo 12.—En caso de existir norma del mismo rango de la Ley N° 6725 y sus reformas, que impida el asueto o bien si la procedencia del mismo debe ser determinada por la autoridad máxima de la institución interesada y así debe darlo a conocer, a efecto de incluirlo en el decreto que otorgaría el asueto.
