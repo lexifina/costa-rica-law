@@ -1,0 +1,1 @@
+Artículo 69.—Reclamos. Toda persona física o jurídica podrá presentar su respectivo reclamo si considera que el factor de ponderación que se le aplica no está acorde con el promedio de generación de residuos ordinarios mensual, si se está realizando un doble cobro sobre una propiedad de dos o más dueños o si se está realizando un cobro en una propiedad sin construcción.

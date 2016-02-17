@@ -1,0 +1,4 @@
+Artículo 76.—Protocolo de implementación. La Municipalidad de Upala implementará un protocolo para el otorgamiento de incentivos para los generadores del Cantón. Se incluirán los generadores de residuos sólidos ordinarios que no sean de manejo especial tales como comercios, instituciones públicas, industrias o asociaciones de desarrollo integral.
+El protocolo indicará el tipo de incentivo que podría ser otorgado (sellos o certificaciones ambientales y recalificación de categoría de cobro de tarifa), así como el tipo de generador que podrá aplicar a cada incentivo, ya sea de manera individual o como grupo organizado.
+El protocolo también indicará la forma en que la Municipalidad verificará que los generadores sean merecedores del respectivo incentivo y que cumplan con los requisitos correspondientes, mediante mecanismos de verificación y control.
+El protocolo establecerá el plazo de validez de cada uno de los incentivos brindados.

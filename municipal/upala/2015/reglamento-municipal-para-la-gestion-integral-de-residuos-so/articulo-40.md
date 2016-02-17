@@ -1,0 +1,1 @@
+Artículo 40.—Fomento de la educación en la gestión de los residuos sólidos. La Municipalidad pondrá en ejecución de forma continua y permanente, estrategias para incentivar la separación y clasificación de los residuos sólidos desde la fuente y, además, promoverá alianzas estratégicas que apoyen este tipo de iniciativas.

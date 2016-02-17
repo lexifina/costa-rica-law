@@ -1,0 +1,1 @@
+Artículo 22.—Sustancias químicas explosivas, inflamables y corrosivas. No se recolectará ningún tipo de sustancia química con características de alta peligrosidad. La movilización de este tipo de residuos se hará por medio de recolección especial privada y se regirá conforme lo disponga el Ministerio de Salud.

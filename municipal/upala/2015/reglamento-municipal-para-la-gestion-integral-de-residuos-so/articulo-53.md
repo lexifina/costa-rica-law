@@ -1,0 +1,1 @@
+Artículo 53.—Tarifa comercial, industrial, servicios 2 (C2). Se toma como tarifa comercial 2, la tasa a aplicar a todo aquel lugar patentado donde se estima una generación de basura por semana que oscila entre 250.1 kilogramos y 500 kilogramos. En la tarifa comercial 2 el factor de generación oscila entre 2.5 y 5. Para la tarifa comercial 2 se toma como factor de ponderación 5.

@@ -1,0 +1,2 @@
+Artículo 68.—Usuarios tarifa institucional 2 (I2). Dentro de la tarifa institucional 2 se incluyen todos los Centros Regionales de Educación, Centros Regionales de Formación del Instituto Nacional de Aprendizaje, hospitales de la Caja Costarricense del Seguro Social, y cualquier otra institución de igual naturaleza y condiciones semejantes, que se ubiquen dentro del área de cobertura del servicio de recolección.
+a) Reclamos

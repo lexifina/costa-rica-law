@@ -1,0 +1,1 @@
+Artículo 70.—Deberes del usuario antes de presentar un reclamo. Para la presentación de un reclamo de este tipo, la propiedad donde se desarrolle la actividad, debe estar al día en sus tributos municipales.

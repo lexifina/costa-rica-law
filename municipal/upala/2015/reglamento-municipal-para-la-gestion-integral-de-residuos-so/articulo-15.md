@@ -1,0 +1,1 @@
+Artículo 15.—Residuos de jardín. El servicio de recolección de residuos sólidos ordinarios no incluye la recolección de residuos de jardín, por lo que todo generador debe gestionarlos adecuadamente bajo su propia responsabilidad y costo.

@@ -1,0 +1,1 @@
+Artículo 19.—Baterías ácidas de plomo. El servicio de recolección de residuos sólidos ordinarios no incluye la recolección de baterías ácidas de plomo (de uso vehicular) dentro de la ruta ordinaria. El generador deberá entregarlas al distribuidor autorizado para que proceda a su eliminación o reutilización.

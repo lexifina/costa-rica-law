@@ -1,0 +1,1 @@
+Artículo 14.—Restos de animales. La Municipalidad proveerá el manejo sanitario de animales muertos de especies menores que se encuentren en la vía pública a excepción de los animales domésticos que le pertenezcan a una o más personas. El dueño tendrá que gestionar el animal muerto adecuadamente bajo su responsabilidad y costo.

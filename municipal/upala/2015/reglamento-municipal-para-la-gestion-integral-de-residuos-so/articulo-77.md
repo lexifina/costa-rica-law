@@ -1,0 +1,1 @@
+Artículo 77.—Programa de Gestión Integral de Residuos por parte de los generadores. La presentación de este programa y su debido seguimiento por parte del generador será un requisito para optar por cualquier incentivo regulado por este Reglamento. La Municipalidad facilitará un formato de dicho programa y una guía práctica para su elaboración.

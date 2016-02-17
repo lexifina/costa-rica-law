@@ -1,0 +1,1 @@
+Artículo 52.—Tarifa comercial, industrial, servicios 1 (C1). Se toma como tarifa comercial 1, la tasa a aplicar a todo aquel lugar patentado donde el promedio estimado en generación de basura sea inferior a 250 kilogramos por mes. En la tarifa comercial 1 el factor de generación oscila entre 1 y 2.5. Para la tarifa comercial 1 se toma como factor de ponderación 2.5.

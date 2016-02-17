@@ -1,0 +1,1 @@
+Artículo 59.— Estudio de factor de ponderación por parte de la Municipalidad. La Municipalidad podrá realizar un estudio específico para todo usuario que se considere que el factor de ponderación que se le está aplicando no está de acuerdo con la cantidad de residuos sólidos ordinarios que está generando.
