@@ -15,3 +15,4 @@ Reglamento de Asignación, Uso y Subvención de pago de los Teléfonos Celulares
 | --- | --- | --- |
 | 1 | 2013-07-29 | la propia norma |
 | 2 | 2014-04-03 | Reglamento 900 (2014-04-03) |
+| 3 | 2016-02-18 | Reglamento 974 (2016-02-18) |
