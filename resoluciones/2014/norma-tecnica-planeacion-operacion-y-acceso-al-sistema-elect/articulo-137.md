@@ -1,7 +1,5 @@
-Artículo 137. Regulación de la tensión
-En concordancia con la norma emitida por la Autoridad Reguladora AR-NT-SUCAL “Supervisión de la calidad del suministro eléctrico en baja y media tensión” y sus reformas, y el estándar IEEE-1547, los micros y mini generadores que se operen en paralelo con la red de distribución nacional, tendrán los impedimentos siguientes:
-a. Regular la tensión en el punto de interconexión con la red de distribución.
-b. Causar sobre niveles de tensión o bajo niveles de tensión en la red de distribución, diferentes a los límites permisibles, según corresponda.
-c. Producir variaciones mayores al cinco por ciento (5%) de la tensión nominal de la red de distribución, al sincronizarse.
-d. Producir en la red de la distribuidora, huecos o picos de tensión con duraciones y magnitudes fuera de los rangos establecidos en la norma AR-NT-SUCAL “Supervisión de la calidad del suministro eléctrico en baja y media tensión”.
-(Así reformado mediante sesión ordinaria N° 24-2015 del 4 de junio del 2015)
+Artículo 137. Frecuencia y duración de los períodos de racionamiento. Es responsabilidad y potestativo de las empresas distribuidoras, de acuerdo con lo que a ese efecto le señale el Operador del Sistema programar los racionamientos de acuerdo con la topología de distribución en su área de concesión.
+La facultad potestativa de las empresas distribuidoras, comprende la selección de alimentadores u abonados-usuarios, de conformidad con el impacto que el racionamiento les cause en términos de la duración y frecuencia, salvo requerimiento expreso del Operador del Sistema por condiciones de seguridad y estabilidad del Sistema Eléctrico Nacional.
+La participación de cada empresa distribuidora en los programas de racionamiento, en términos de magnitud y duración, se establecerá conforme a lo estipulado en el artículo 165(*).
+(*)(Entiéndase artículo 134)
+(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 168 pasó a ser el 137)

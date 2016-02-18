@@ -1,11 +1,4 @@
-Artículo 146. Protecciones a requerir.
-Dentro de las posibles protecciones que la empresa eléctrica podrá requerir para la interconexión y operación paralela de un micro o mini generador, estarán las que a continuación se indican, de acuerdo con la capacidad del generador y su impacto en la red de distribución, según los estudios indicado en los artículos 125 y 126 de esta norma:
-a. Interruptor manual con bloqueo.
-b. Disparo por sobre tensión.
-c. Disparo por baja tensión.
-d. Disparo por sobre/baja frecuencia.
-e. Sincronismo (Automático o manual).
-f. Sobre corriente a tierra.
-g. Disparo por telemetría.
-h. Regulador automático de tensión.
-i. Otras de acuerdo con las necesidades específicas.
+CAPÍTULO XIV.
+DISPOSICIONES FINALES.
+Artículo 146. Intervención de la Autoridad Reguladora. Cualquier usuario del Sistema Eléctrico Nacional, disconforme con la interpretación y aplicación de esta norma, podrá solicitar aclaración a la Autoridad Reguladora, la que resolverá sobre lo consultado.
+(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 177 pasó a ser el 146)

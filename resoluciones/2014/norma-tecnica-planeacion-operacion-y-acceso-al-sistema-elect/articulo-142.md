@@ -1,2 +1,2 @@
-Artículo 142. Comportamiento ante salidas operativas.
-Los micros o mini generadores dejarán de alimentar a la red de distribución ante una salida de operación de la red de distribución.
+Artículo 142. Responsabilidad de abonados y usuarios. Medidas propias. Los usuarios y abonados serán responsables de tomar las previsiones que consideren pertinentes, en la medida que los racionamientos de energía debidamente programados e informados, les afecten.
+(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 173 pasó a ser el 142)

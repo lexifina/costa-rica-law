@@ -1,3 +1,1 @@
-Artículo 170. Condiciones de calidad de la tensión de suministro
-Durante los racionamientos, las condiciones de calidad y frecuencia de tensión de suministro, establecidas en la norma AR-NT-SUCAL “Supervisión de la calidad del suministro eléctrico en baja y media tensión”, rigen en su totalidad, por lo que las empresas distribuidoras tomarán las medidas pertinentes de tal forma que la distribución topológica de los racionamientos no interfieran en la calidad de la tensión de suministro.
-(Así reformado mediante sesión ordianria N° 24-2015 del 4 de junio del 2015)
+Artículo 170. (Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el texto de este artículo se ser consultado en el numeral 139)

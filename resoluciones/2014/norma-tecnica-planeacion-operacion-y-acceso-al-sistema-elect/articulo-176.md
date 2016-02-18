@@ -1,2 +1,1 @@
-Artículo 176. Información hacia los abonados y usuarios.
-Las empresas distribuidoras deben informar por medio de los periódicos de mayor circulación nacional o regional, radio y televisión, a sus abonados y usuarios, sobre la duración, frecuencia y ubicación de los racionamientos programados en su área de distribución, al menos ocho días naturales de antelación.
+Artículo 176. (Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el texto de este artículo se ser consultado en el numeral 145)

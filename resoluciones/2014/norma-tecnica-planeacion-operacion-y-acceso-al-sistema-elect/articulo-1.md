@@ -863,6 +863,6 @@ I. Aprobar la norma técnica denominada Planeación, Operación y Acceso, al Sis
 (AR-NT-POASEN-2014)
 CAPÍTULO I.
 GENERALIDADES.
-Artículo 1. Campo de aplicación.
-Esta norma establece las condiciones técnicas generales bajo las cuales se planeará, desarrollará y se operará el Sistema Eléctrico Nacional y las condiciones técnicas, contractuales, comerciales y tarifarias con las cuales se brindará acceso a los diferentes interesados en interconectarse con el Sistema Eléctrico Nacional.
-Su aplicación es de obligatoriedad, en lo que les corresponda, para todos los abonados o usuarios en alta tensión, empresas de generación, transmisión y distribución de energía eléctrica, y abonados o usuarios en baja y media tensión con generación a pequeña escala para autoconsumo, que se encuentren establecidos en el país o que llegasen a establecerse bajo régimen de concesión, de conformidad con las leyes correspondientes.
+Artículo 1. Campo de aplicación. Esta norma establece las condiciones técnicas generales bajo las cuales se planeará, desarrollará y se operará el Sistema Eléctrico Nacional y las condiciones técnicas, contractuales, comerciales y tarifarias con las cuales se brindará acceso y operación en paralelo a los diferentes interesados en interconectarse con el Sistema Eléctrico Nacional.
+Su aplicación es obligatoria, en lo que les corresponda, para todos los interesados, abonados o usuarios en alta tensión, empresas de generación, transmisión, distribución de energía eléctrica y abonado-productor, que se encuentren establecidos en el país o que llegasen a establecerse bajo régimen de concesión, de conformidad con las leyes correspondientes.
+(Así reformado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

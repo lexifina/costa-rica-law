@@ -1,7 +1,2 @@
-Artículo 150. Obligaciones de las empresas distribuidoras.
-Será responsabilidad de las empresas distribuidoras:
-a. Cumplir con las disposiciones técnicas establecidas en esta norma que les correspondan.
-b. Efectuar los estudios indicados en los artículos 125 y 126 de esta norma.
-c. Suscribir y formalizar el “Contrato de Conexión” que regula las condiciones técnicas, administrativas y comerciales y someter el formato y prototipo de contrato a aprobación de la Autoridad Reguladora, debiendo implementar en él, las modificaciones que indique el Ente Regulador.
-d. Adecuar la red de distribución en baja tensión para la interconexión y operación en paralelo de los micro generadores.
-e. Informar a los usuarios de los requisitos técnicos que deben cumplir los equipos de generación e instalaciones de interconexión y equipo asociado.
+Artículo 150. Vigencia. Esta disposición rige a partir de su publicación en el diario oficial.
+(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 181 pasó a ser el 150)

@@ -1,2 +1,1 @@
-Artículo 156. Precios para la compensación de excedentes.
-El precio aplicable para la compensación económica de los excedentes de producción, en el régimen contractual “Medición neta completa, con liquidación anual”, será el correspondiente al precio y estructura tarifaria que establezca la Autoridad Reguladora oportunamente.
+Artículo 156. (Derogado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

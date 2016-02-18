@@ -1,12 +1,4 @@
-Artículo 133. Cláusulas contractuales mínimas.
-El contrato para la conexión y operación de un micro o mini generador en paralelo con la red de la empresa distribuidora deberá contemplar al menos las cláusulas siguientes:
-a. Definición de la terminología utilizada y la forma como debe interpretarse en el contrato.
-b. Objeto y alcance contractuales incluyendo obligaciones que se impongan a las partes.
-c. Normas jurídicas que forman parte del contrato y rige para su aplicación y alcances, con mención al menos de la Ley 7593 y sus reformas, los reglamentos y las leyes conexas, así como las normativas técnicas y económicas emitidas por la Autoridad Regulatoria, específicamente la presente norma.
-d. Régimen contractual elegido por el abonado-usuario, de acuerdo con el artículo 131 de esta norma.
-e. Obras y equipos que forman parte de la conexión así como los límites físicos de propiedad y responsabilidad.
-f. Los aspectos operacionales de la conexión y operación del generador en condiciones normal y de contingencia.
-g. Convenio de responsabilidad y de condiciones técnicas de operación y mantenimiento.
-h. Derechos y condiciones de acceso de personal de la empresa distribuidora a las instalaciones del generador.
-i. Especificaciones de duración, terminación, modificaciones y cancelaciones del contrato.
-j. Cualquier otro aspecto importante que regulen los deberes y derechos de las partes.
+Artículo 133. Disponibilidad de plantas. Salvo caso fortuito o fuerza mayor, los generadores privados y las empresas distribuidoras mantendrán en óptimo funcionamiento sus plantas de generación, de acuerdo con los niveles de capacidad de la fuente primaria existente al momento.
+El Operador del Sistema, deberá ejercer una observancia constante, en tiempo real, de los embalses y de los caudales, así como establecer las proyecciones de los niveles de que pueda disponer, según tendencias y aportes de acuerdo con las condiciones hídricas existentes. Igual observancia deberá tener sobre cualquier otro recurso energético primario disponible.
+La Autoridad Reguladora podrá directamente o por medio de terceros, verificar el grado de disponibilidad de las plantas que conforman el Sistema Eléctrico Nacional.
+(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 164 pasó a ser el 133)

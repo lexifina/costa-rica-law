@@ -1,3 +1,1 @@
-Artículo 178. Principio de transparencia
-Todo estudio de planeación operativa o de expansión del Sistema Eléctrico Nacional será de carácter público para cualquier usuario del Sistema Eléctrico Nacional. Son de carácter público también las bases de datos para los estudios de planeación operativa y de expansión del Sistema Eléctrico Nacional.
-(Así reformado mediante sesión ordianria N° 24-2015 del 4 de junio del 2015)
+Artículo 178.- (Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el texto de este artículo se ser consultado en el numeral 147)

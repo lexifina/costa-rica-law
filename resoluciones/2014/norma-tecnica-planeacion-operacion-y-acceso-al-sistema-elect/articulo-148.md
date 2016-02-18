@@ -1,7 +1,3 @@
-Artículo 148. Causales para la desconexión.
-Las empresas podrán desconectar las instalaciones del generador a pequeña escala para autoconsumo, previo aviso de al menos 24 horas de antelación, en las siguientes situaciones:
-a. Por mantenimiento programado o no programado (no rige el pre aviso) de la red de distribución.
-b. Por fallas en la red de distribución provocadas por el generador.
-c. Por incumplimiento del generador a lo establecido en esta norma o en el contrato.
-d. A solicitud del generador.
-e. A solicitud de Autoridad Judicial.
+Artículo 148. Transferencia de información. Semestralmente, el Operador del Sistema deberá remitir a la Autoridad Reguladora, en las fechas y medios que ésta oportunamente comunique, los valores de los indicadores de desempeño de la red de transmisión nacional y del parque de generación nacional, con el análisis correspondiente en función de los principio de confiabilidad, estabilidad y selectividad, establecidos en el artículo 15 del Reglamento Sectorial de Servicios Eléctricos (Decreto Ejecutivo N° 29847-MP-MINAE-MEIC).
+Se establece un plazo de seis meses contados a partir de la puesta en vigencia de esta norma para que el Operador del Sistema desarrolle los procesos informáticos y de coordinación con los usuarios del Sistema Eléctrico Nacional, para el cálculo de los indicadores establecidos en esta norma.
+(Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el artículo 179 pasó a ser el 148)

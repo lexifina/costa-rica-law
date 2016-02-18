@@ -1,2 +1,1 @@
-Artículo 161. Responsabilidad.
-Es responsabilidad del Operador del Sistema, asegurar la debida participación de las empresas y abonados usuarios en los racionamientos programados, de acuerdo con las características propias de cada empresa eléctrica y abonados-usuarios, en cuanto a demanda de potencia y energía y al uso de la misma.
+Artículo 161. (Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el texto de este artículo se ser consultado en el numeral 130)

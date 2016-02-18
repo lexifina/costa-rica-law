@@ -1,2 +1,5 @@
-Artículo 124. Interconexiones autorizadas.
-Se autoriza la interconexión y operación en paralelo de micro generadores con la red de distribución a baja tensión y la de mini generadores a la red de distribución de media tensión a través de un transformador exclusivo cuya capacidad será mínimo un 10% superior a la capacidad del mini generador.
+Artículo 124. Modalidades de generación distribuida para autoconsumo con fuentes renovables interconectadas a la red.
+La actividad de generación distribuida para autoconsumo con fuentes renovables interconectadas a la red se desarrollará y operará bajo las siguientes modalidades:
+a. Neta sencilla: alternativa para que los abonados generen electricidad mediante fuentes renovables con el propósito de satisfacer sus necesidades, funcionando en paralelo con la red de distribución eléctrica, bajo el concepto de depósito y devolución de energía.
+b. Neta completa (venta de excedentes): alternativa para que los abonados generen electricidad mediante fuentes renovables con el propósito de satisfacer sus necesidades, funcionando en paralelo con la red de distribución eléctrica, bajo el concepto de venta de excedentes de energía.
+(Así reformado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

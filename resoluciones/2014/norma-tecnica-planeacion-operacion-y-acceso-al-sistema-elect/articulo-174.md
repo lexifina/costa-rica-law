@@ -1,3 +1,1 @@
-Artículo 174. Información del Operador del Sistema hacia la Autoridad Reguladora.
-Durante el periodo de racionamiento, el Operador del Sistema, deberá informar semanalmente a la Autoridad Reguladora sobre la disponibilidad de todas las plantas que conforman el Sistema Eléctrico Nacional, indicando las causas de las indisponibilidades que se presenten.
-De igual forma deberá de presentar un balance de la generación programada versus la efectuada, con la debida explicación de las desviaciones, así como de los cambios en las proyecciones que pudiesen suscitarse.
+Artículo 174. (Mediante resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”, se derogó los numerales del 129 al 159 y correr la numeración de los restantes artículos a partir del capítulo XIII, por lo que el texto de este artículo se ser consultado en el numeral 143)
