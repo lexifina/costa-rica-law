@@ -16,3 +16,4 @@ Supervisión de la comercialización del suministro eléctrico en baja y media t
 | 1 | 2015-05-05 | la propia norma |
 | 2 | 2015-09-21 | Resolución 208 (2015-09-21) |
 | 3 | 2015-10-08 | Resolución 222 (2015-10-08) |
+| 4 | 2016-02-18 | Resolución 30 (2016-02-18) |

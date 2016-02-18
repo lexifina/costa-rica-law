@@ -1,11 +1,10 @@
-Artículo 40. Facturación del servicio
-La empresa eléctrica facturará al abonado o usuario lo correspondiente al consumo de energía o energía y potencia según corresponda, así como lo relativo a impuestos de ley y otros afines al servicio, de acuerdo con el pliego tarifario, reglamentos y disposiciones vigentes aprobadas por ARESEP o disposiciones legales. No se deberán incluir en la factura, rubros ajenos a las actividades de distribución y comercialización.
+Artículo 40. Facturación del servicio. La empresa eléctrica facturará al abonado o usuario lo correspondiente al consumo de energía o energía y potencia según corresponda, así como lo relativo a impuestos de ley y otros afines al servicio, de acuerdo con el pliego tarifario, reglamentos y disposiciones vigentes aprobadas por ARESEP o disposiciones legales. No se deberán incluir en la factura, rubros ajenos a las actividades de distribución y comercialización.
 La palabra mes y mensual para los efectos de la facturación significan el intervalo comprendido entre dos lecturas regulares del contador, que serán tomadas en el mismo día de cada mes o días próximos. Todas las facturaciones o recibos por energía eléctrica deben contener como mínimo la siguiente información:
 a. Nombre del abonado.
 b. Localización geográfica y topológica.
 c. Dirección exacta.
 d. Número de medidor.
-e. Tarifa aplicada.
+e. Tarifa aplicada y monto a cancelar desglosado de conformidad con la estructura tarifaria vigente.
 f. Fecha de lecturas de los registros de energía, potencia y factor de potencia. Estos dos últimos cuando corresponda.
 g. Lecturas de los registros de energía y potencia (actual y anterior).
 h. Consumo de kWh (indicar si es leído o estimado).
@@ -28,4 +27,4 @@ u. Otros tales como:
 4- Justificación o razón para estimar lecturas.
 5- Número telefónico de atención de quejas de la empresa.
 6- Cualquier otra información a criterio de la empresa o de la ARESEP.
-(Mediante resolución N° RJD-222-2015 del 8 de octubre del 2015 se establece lo siguiente: "Declarar la nulidad parcial de la resolución RJD-072-2015 mediante la cual se aprobó la norma técnica denominada: “Supervisión de la comercialización del suministro eléctrico en baja y media tensión” AR-NT-SUCOM, en cuanto a los artículos 37, 28, 40, 44, 45, 46, 47, 51, 52 y 58. El artículo 37, en el sentido específico de que, no incluyó un plazo ni una sanción al abonado referente a la reubicación de los conductores de acometida. En cuanto a los artículos 28, 40, 44, 45, 46, 47, 51, 52 y 58, en el sentido específico, de que se establecen asuntos relativos a la facturación, depósito en garantía y pago o cobro del servicio, contra el abonado o usuario, siendo que, tales obligaciones corresponden exclusivamente al abonado.")
+(Así reformado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

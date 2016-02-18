@@ -1,0 +1,3 @@
+Artículo 131. Punto de interconexión. El punto de interconexión, para efectos comerciales, técnicos y de límites de responsabilidad, del abonado productor con la red de distribución, lo será el punto de entrega, de conformidad con lo establecido en el artículo 15 de esta norma técnica regulatoria.
+La habilitación de todo servicio para una abonado productor, requiere la verificación establecida en la norma técnica regulatoria AR-NT-SUINAC “Supervisión de la instalación y equipamiento de acometidas eléctricas” vigente.
+(Así adicionado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

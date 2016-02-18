@@ -1,2 +1,2 @@
-Artículo 127. Implementación de indicadores
-Las empresas eléctricas tendrán un plazo de un año para la implementación de la logística necesaria para el cálculo de los indicadores establecidos en al capítulo XII de esta norma.
+Artículo 127. Requisito para la interconexión de generadores a la red de distribución. Cualquier abonado o usuario actual o futuro, puede constituirse como abonado o usuario productor, mediante la firma de un “Contrato de interconexión para abonados productores”
+(Así adicionado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

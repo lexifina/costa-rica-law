@@ -1,2 +1,2 @@
-Artículo 128. Vigencia
-Esta disposición rige a partir de su publicación en el diario oficial.
+Artículo 128. Capacidad de acceso. Las empresas eléctricas efectuarán los estudios técnicos necesarios para cuantificar la capacidad de sus redes de distribución para la operación en paralelo de abonados productores, según lo establecido en el Reglamento de Generación Distribuida para Autoconsumo con Fuentes Renovables Modelo de Contratación Medición Neta Sencilla , garantizando que la operación de sus generadores para autoconsumo no interfieran con la calidad, cantidad, confiabilidad, continuidad, oportunidad y prestación óptima del suministro eléctrico, de conformidad con las normas técnicas regulatorias emitidas por la Autoridad Reguladora.
+(Así adicionado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)

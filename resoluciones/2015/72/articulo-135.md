@@ -1,0 +1,2 @@
+Artículo 135. Facturación del alumbrado público. Los productores consumidores pagarán el alumbrado público sobre el total de la energía retirada de la red, la cual se entenderá como la sumatoria de la energía retirada del consumo diferido asociado a la generación para autoconsumo en su modalidad contractual medición neta sencilla y la energía vendida por la empresa distribuidora.
+(Así adicionado por resolución RJD-030 del 18 de febrero de 2016, “Metodología Fijación de tarifa de acceso a las redes de distribución por parte del productor-consumidor”)
