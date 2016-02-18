@@ -11,18 +11,23 @@ Del resultado de cada sorteo se levanta un acta que da origen a la Lista Oficial
 El horario de celebración de los sorteos es el siguiente:
 LOTERÍA NACIONAL:
 Sorteos Ordinarios-Extraordinarios
-Se efectúan los domingos a las 7:00 p.m.
+Se efectúan los domingos a las 7:30 p.m.
+(Así reformado el horario anterior mediante acuerdo N° JD-141 tomado en sesión extraordinaria N° 05-2016 del 18 de febrero del 2016)
 LOTERÍA POPULAR:
 Sorteos Ordinarios (martes y viernes)
 Súper Extraordinario (Viernes Negro)
-Se efectúan los martes y viernes a las 6:55 p.m.
+Se efectúan los martes y viernes a las 7:30 p.m.
+(Así reformado el horario anterior mediante acuerdo N° JD-141 tomado en sesión extraordinaria N° 05-2016 del 18 de febrero del 2016)
 LOTERÍA TIEMPOS: (Impresos)
 Se efectúan los martes y viernes a las 6:55 p.m.
 Domingos a las 7:00 p.m.
 LOTERÍA NUEVOS TIEMPOS
-Se realizarán de Lunes a Domingo conforme al Calendario de Sorteos aprobado por la Junta Directiva en el horario y frecuencia que esta lo determine.
+Se realizarán de Lunes a sábados a 7:30pm
+Domingo 7:30 pm
+(Así reformado el horario anterior mediante acuerdo N° JD-141 tomado en sesión extraordinaria N° 05-2016 del 18 de febrero del 2016)
 LOTERÍA LOTTO
-Se efectúa los miércoles y sábados a las 6:55pm
+Se efectúa los miércoles y sábados a las 7:30pm
+(Así reformado el horario anterior mediante acuerdo N° JD-141 tomado en sesión extraordinaria N° 05-2016 del 18 de febrero del 2016)
 RUEDA DE LA FORTUNA
 Se efectúa los sábados a las 5:00 pm.
 PRECIO DE LOS BILLETES Y FRACCIONES AL PÚBLICO Y SU
