@@ -1,0 +1,2 @@
+Artículo 5º—Compromisos. El nombramiento de Miembro Honorario facultará a su poseedor a usar tal honor en forma adecuada conforme los usos y costumbres del Colegio además conforme a los principios éticos y deontológicos que rigen el ejercicio de la medicina.
+Cuando se demuestre que la persona a quien se le ha conferido el título haya incurrido en una conducta incompatible con dichos principios, la Junta de Gobierno tendrá la potestad de revocar tal distinción, respetando el derecho constitucional de defensa que garantiza el debido proceso.

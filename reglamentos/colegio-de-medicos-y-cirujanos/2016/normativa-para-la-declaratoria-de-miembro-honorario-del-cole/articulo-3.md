@@ -1,0 +1,4 @@
+Artículo 3º—Procedimiento de Nombramiento. Admitida la solicitud, corresponderá a la Junta de Gobierno nombrar una comisión conformada por dos miembros con el fin de estudien la propuesta y recomienden o no el reconocimiento del título solicitado.
+La comisión analizará los atestados presentados y rendirá un informe de recomendación a la Junta de Gobierno en pleno, aceptando o rechazando el nombramiento en el término de un mes.
+En el caso de que la persona que se propone reúne las condiciones que señala el párrafo segundo del artículo primero de manera pública y notoria, la Junta de Gobierno podrá exonerar del trámite de la designación de dicha comisión, además podrá prescindir de la exigencia de los atestados que respalden la solicitud y resolver de inmediato.
+De previo a la declaratoria del título honorífico la Junta de Gobierno dará traslado a la persona propuesta con la finalidad de conocer su aceptación.
