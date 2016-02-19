@@ -1,0 +1,1 @@
+Artículo 21.—Cuando se comprobare plenamente que el dependiente acreditado es en realidad el cesionario del puesto, tanto éste como el adjudicatario perderán el derecho al puesto, el cual quedará disponible para ser adjudicado nuevamente.

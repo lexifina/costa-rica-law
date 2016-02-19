@@ -1,0 +1,1 @@
+Artículo 4°—La Municipalidad coordinará y resolverá todos los asuntos pertinentes, a través del Administrador del Mercado, el cual está adscrito a la Dirección de Desarrollo Urbano o bien, al departamento que ésta última determine.

@@ -1,0 +1,2 @@
+Artículo 27.—Todo inquilino del Mercado Municipal del Distrito Primero está en la obligación de solicitar permiso de construcción, de conformidad con el artículo 37° del Reglamento y su reforma a la Ley N° 7555 de Patrimonio Histórico Arquitectónico de Costa Rica.
+Toda mejora que introduzca se tendrá por incorporada al inmueble respectivo a la terminación del contrato por cualquier causa, sin que la Municipalidad tenga que pagar el costo de la misma.

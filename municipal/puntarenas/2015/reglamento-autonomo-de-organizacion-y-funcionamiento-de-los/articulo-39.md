@@ -1,0 +1,1 @@
+Artículo 39.—La Municipalidad, deberá observar lo establecido en la Ley 7027 “Ley sobre Arrendamientos de locales Municipales”, para establecer la tarifa para prorrogar el arrendamiento de locales, tramos o puestos en el Mercado Municipal.

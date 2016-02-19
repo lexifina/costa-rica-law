@@ -1,0 +1,1 @@
+Artículo 19.—Es estrictamente prohibido que inquilino alguno tenga más de uno derecho o locales inscritos a su nombre, y no permitirá en forma alguna la cesión del tramo así como el subarriendo o traspaso subrepticio del mismo, los cuales se consideran como causales para la rescisión del contrato y desalojo inmediato del tramo.

@@ -1,0 +1,1 @@
+Artículo 57.—Por cualquier ausencia temporal del Administrador del Mercado, las funciones que competen a este funcionario corresponderán a su superior jerárquico, o quien este designe; igualmente en caso de ausencia definitiva, hasta que sea nombrado el nuevo administrador.

@@ -1,0 +1,1 @@
+Artículo 47.—Ningún inquilino podrá hacer uso para sus necesidades personales o las de su negocio, de fogones, cocinas de leña, anafres de leña o carbón, o cualquier otro combustible. La Administración podrá autorizar el uso de cocinas o calentadores eléctricos, previamente revisadas por electricista competente.

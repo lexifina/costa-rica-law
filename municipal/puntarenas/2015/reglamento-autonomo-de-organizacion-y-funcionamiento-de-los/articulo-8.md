@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del Administrador
+Artículo 8°—El Administrador del Mercado Municipal es la máxima autoridad de este centro comercial. Su autoridad debe ser respetada conforme al reglamento. Es el jefe inmediato de los demás empleados municipales del Mercado y como tal, controlará el cumplimiento de las obligaciones laborales que a estos corresponde.
