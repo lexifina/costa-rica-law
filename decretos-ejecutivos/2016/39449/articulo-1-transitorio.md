@@ -1,0 +1,2 @@
+Transitorio único.—Los convenios de préstamo suscritos al amparo del Decreto N° 30544-MP-SP del 20 de junio del 2002, continuarán ejecutándose por un plazo máximo de 3 meses a partir de la entrada en vigencia de este Decreto. Luego de este plazo, deberán actualizarse y adecuarse a lo estipulado en este Reglamento.
+Dado en la Presidencia de la República.—San José, a los trece días del mes de enero del dos mil dieciséis.

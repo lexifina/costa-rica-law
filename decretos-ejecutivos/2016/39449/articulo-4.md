@@ -1,0 +1,2 @@
+Artículo 4º—Protección. La protección que se brindará consiste en la asignación de personal calificado para prevenir o evitar la comisión de hechos que pongan en riesgo la integridad física de las personas indicadas en el artículo 2 de este Reglamento y podrá ser de carácter temporal o permanente, según lo determine el estudio técnico previo que realizará la UPP.
+Esta protección será para las personas indicadas en el artículo 2º de este Reglamento y únicamente en lo concerniente a las labores de protección.

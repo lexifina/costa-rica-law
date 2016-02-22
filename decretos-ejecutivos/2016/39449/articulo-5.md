@@ -1,0 +1,1 @@
+Artículo 5º—Préstamo de funcionarios de la Dirección General de la Fuerza Pública. La UPP podrá solicitar a la Dirección General de Fuerza Pública, el préstamo de los funcionarios que requiera para cumplir los fines de este Reglamento.

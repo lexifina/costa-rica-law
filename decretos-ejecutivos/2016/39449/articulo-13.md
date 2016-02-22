@@ -1,0 +1,1 @@
+Artículo 13.—Guardia Presidencial. La Guardia Presidencial, para cumplir las funciones del artículo 150 del Reglamento de Organización del Ministerio de Seguridad Pública, deberá coordinar sus labores con la Jefatura de la UPP.

@@ -1,0 +1,2 @@
+Artículo 10.—Funcionarios en préstamo. Los funcionarios en préstamo asignados para cumplir lo dispuesto en este Reglamento continuarán con el régimen laboral de la institución que realiza el préstamo, por lo que esta institución deberá asumir los pagos correspondientes a horas extra, combustible, viáticos y vestimenta. Sin embargo, quedarán sujetos al horario laboral que estipule la UPP.
+La Jefatura de la UPP se encargará del control de marcas de entradas y salidas de los funcionarios en préstamo.

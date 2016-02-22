@@ -1,0 +1,1 @@
+Artículo 3º—Unidad de Protección Presidencial (UPP). Créase la Unidad de Protección Presidencial (UPP) como dependencia de la Unidad Especial de Intervención (UEI). La UPP estará encargada de garantizar la protección personal de los jerarcas del Poder Ejecutivo y los dignatarios que se encuentren de visita en nuestro país, y las instalaciones en donde los mismos se encuentren.
