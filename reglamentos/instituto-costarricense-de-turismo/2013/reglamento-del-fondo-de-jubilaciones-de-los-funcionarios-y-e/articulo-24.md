@@ -1,1 +1,2 @@
-Artículo 24.—Del Quórum. La asistencia a las sesiones de la Junta Administradora de cuatro de sus miembros, constituye quórum y los acuerdos deben tomarse por mayoría de los miembros presentes. En caso de empate, después de una segunda votación, el (la) Presidente ejercerá el voto de calidad.
+Artículo 24. Del quórum. La asistencia a las sesiones de la Junta Administradora de cuatro de sus miembros, constituye quórum y los acuerdos deben tomarse por mayoría de los miembros presentes. En caso de empate, después de una segunda votación, el (la) Presidente ejercerá el voto de calidad, o el vicepresidente (a) en sustitución parcial o permanente de éste (a).
+(Así reformado mediante sesión ordinaria N° 5921 del 22 de febrero del 2016)

@@ -14,3 +14,4 @@ Reglamento del fondo de jubilaciones de los funcionarios y empleados del Institu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-05 | la propia norma |
+| 2 | 2016-02-22 | Reglamento 5921 (2016-02-22) |
