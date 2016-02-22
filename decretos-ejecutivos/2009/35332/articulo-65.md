@@ -1,1 +1,0 @@
-Artículo 65.—Constituye falta grave del médico, delegar en otros profesionales no médicos, actos o atribuciones que competen a él como médico en ejercicio, con excepción de estudiantes de medicina en práctica supervisada directamente por el médico responsable.

@@ -1,1 +1,0 @@
-Artículo 133.—Los artículos y conferencias para el público se limitarán a divulgar la información acreditada por la comunidad médica. Se consignará únicamente el nombre y condición profesional del autor.

@@ -1,1 +1,0 @@
-Artículo 103.—Todo documento médico debe apegarse estrictamente a la verdad. Los certificados médicos solo podrán extenderse con base en exámenes clínicos, de laboratorio u otros estudios médicos efectuados, o por haber sido el médico testigo de la enfermedad.

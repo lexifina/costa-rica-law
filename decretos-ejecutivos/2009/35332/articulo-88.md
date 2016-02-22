@@ -1,1 +1,0 @@
-Artículo 88.—El médico que, por habérsele llamado, haya ido oportunamente al lugar donde está el enfermo, tiene derecho a cobrar honorarios; aunque, por alguna causa ajena a él no haya podido prestar asistencia alguna.

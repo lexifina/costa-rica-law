@@ -1,1 +1,0 @@
-Artículo 48.—El médico puede sustituir en la asistencia de enfermos, al colega incapacitado, ausente o en situación de urgencia. Cesará en esa función al regreso de ese, a quien informará en detalle sobre la atención brindada a esos pacientes.

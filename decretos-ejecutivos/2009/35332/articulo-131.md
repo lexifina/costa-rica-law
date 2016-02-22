@@ -1,1 +1,0 @@
-Artículo 131.—El médico puede participar en la divulgación de asuntos médicos a través de los medios de comunicación colectiva cuando se evidencie un propósito de información y educación para la colectividad, guardando los preceptos de este Código.

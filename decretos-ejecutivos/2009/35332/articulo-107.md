@@ -1,1 +1,0 @@
-Artículo 107.—El certificado de defunción, en los casos de muertes violentas o en circunstancias dudosas, así como las restantes de corte médico legal, solo será extendido por los médicos funcionarios con competencia, de acuerdo con la norma jurídica.

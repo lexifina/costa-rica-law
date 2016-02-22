@@ -1,1 +1,0 @@
-Artículo 132.—El médico podrá aconsejar en forma general sobre algún padecimiento, pero no debe diagnosticar ni prescribir en forma especifica a través de ningún medio de comunicación colectiva o masiva. Se exceptúan los casos en que medie autorización extendida por la autoridad competente.

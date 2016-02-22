@@ -1,1 +1,0 @@
-Artículo 137.—El médico no debe utilizar datos, información sin referencia del autor o sin su autorización expresa. Tampoco debe presentar como propias u originales, ideas o descubrimientos cuya autoría es ajena.

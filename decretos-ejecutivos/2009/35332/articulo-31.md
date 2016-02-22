@@ -1,1 +1,0 @@
-Artículo 31.—El médico debe informar al paciente o a su representante legal, con base en sus conocimientos, las opciones diagnósticas y terapéuticas que considera adecuadas para el manejo del paciente, observar las prácticas reconocidas y aceptadas, además, respetar las normas legales vigentes en el país.

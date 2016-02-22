@@ -1,1 +1,0 @@
-Transitorio I.—Todas las denuncias interpuestas ante la Fiscalía del Colegio de Médicos, así como todos los procesos ante el Tribunal de Moral Médica, que hayan sido iniciados antes del 16 de junio del 2008, serán resueltos con base en el Decreto Ejecutivo N° 13032 P-SPPS.

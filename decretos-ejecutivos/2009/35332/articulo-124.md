@@ -1,1 +1,0 @@
-Artículo 124.—El médico no debe usar experimentalmente ningún tipo de terapéutica aún no registrada para ese uso en el país, sin la debida autorización de los órganos competentes y sin el consentimiento informado del paciente o de su responsable legal.

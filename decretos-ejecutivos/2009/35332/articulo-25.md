@@ -1,1 +1,0 @@
-Artículo 25.—El médico debe responsabilizarse plenamente de los cargos gremiales o científicos que se le confíen. Su responsabilidad en asuntos gremiales, no deberá exceder el límite que se le ha fijado.

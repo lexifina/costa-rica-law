@@ -1,1 +1,0 @@
-Artículo 42.—El médico debe aportar toda información pertinente al paciente, al momento de transferirlo para fines de continuidad del tratamiento, al finalizar la relación médico - paciente o si el paciente lo solicita.

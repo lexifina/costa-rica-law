@@ -1,1 +1,0 @@
-Transitorio II.—Todas las denuncias interpuestas ante la Fiscalía del Colegio de Médicos, que hayan sido iniciadas del 16 de junio del 2008 y hasta el 24 de agosto del 2008, serán resueltos con base en el Decreto Ejecutivo N° 34561 -S.
