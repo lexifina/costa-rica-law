@@ -2,7 +2,8 @@ V Parte: Programa Atención de proyectos
 La Junta destina un porcentaje de los recursos disponibles en cada área de atención para el financiamiento de necesidades específicas, de acuerdo con las demandas de las organizaciones, las necesidades detectadas en la supervisión, políticas de Junta Directiva y los lineamientos emitidos por el ente rector en el área correspondiente.
 a. Sobre los proyectos a beneficiar:
 1. Prioridad del ente rector.
-1.1. De acuerdo con los lineamientos definidos por cada ente rector en el área correspondiente, la Junta atenderá en primera instancia los proyectos que este indique.
+1.1 De acuerdo con los lineamientos definidos por cada ente rector en el área correspondiente, la Junta atenderá en primera instancia los proyectos que este indique. En el área de Cuidados Paliativos, de previo a la convocatoria para presentación de proyectos, se solicitarán los lineamientos de atención al Ministerio de Salud. Con el fin de que las solicitudes que se presenten por parte de las organizaciones, correspondan a la directriz que dicte el ente rector. Recibidas las iniciativas de las organizaciones, las mismas serán presentadas al Ministerio de Salud para que brinde el aval correspondiente y se defina la prioridad de atención si los recursos proyectados fueran insuficientes para la atención de la totalidad en el período presupuestario.
+(Así reformado el punto anterior en sesión N° 06 del 22 de febrero de 2016)
 1.2. Con fundamento en el Protocolo de coordinación que se firme con cada ente rector, se definirá la prioridad para cada periodo presupuestario, tomando en cuenta las necesidades de los programas y el criterio técnico pertinente.
 2. Zona Geográfica.
 2.1. Se da primacía a la atención de necesidades de las organizaciones e instituciones ubicadas en las áreas geográficas prioritarias que se definen en el Plan Nacional de Desarrollo.
@@ -17,7 +18,8 @@ Se apoyarán prioritariamente los proyectos dirigidos a:
 4.3. Compra de equipo de cómputo para uso administrativo de las organizaciones que reciben recursos para apoyo a la gestión, por cuanto el mismo se considera herramienta indispensable para el control del presupuesto y las liquidaciones que de conformidad con la normativa actual, deben presentarse semestralmente ante la Institución.
 4.4. Compra de vehículo, siempre y cuando existan recursos disponibles posteriores a la atención de las solicitudes prioritarias. Se atenderán en primer orden las organizaciones que:
 4.4.1. no lo posean y cuyos beneficiarios residan permanentemente en el programa.
-4.4.2. apoyan las unidades de cuidados paliativos, que no cuentan con vehículo para que el equipo interdisciplinario efectúe las visitas domiciliarias al paciente.
+4.4.2.De conformidad con los lineamientos de atención y prioridad establecida por el Ministerio de Salud, podrán apoyarse compra de vehículo para las unidades de cuidados paliativos, que no cuentan con medio de transporte o que el medio de trasporte con el que se cuenta sea insuficiente o inadecuado para que el equipo interdisciplinario efectúe las visitas domiciliarias al paciente.
+(Así reformado el punto anterior en sesión N° 06 del 22 de febrero de 2016)
 4.4.3. cuenten con programas de atención diurna de población adulta mayor y con discapacidad, que no dispongan de medio de transporte y requieran de este medio para brindar condiciones de mayor seguridad durante el traslado diario de los beneficiarios.
 Para el financiamiento de un segundo vehículo, deben haber transcurrido mínimo 8 años de la compra del anterior, y en casos calificados, 5 años. El monto máximo a financiar se define por Junta Directiva.
 4.5. Proyectos de autogestión que demuestren rentabilidad económica.
@@ -84,9 +86,11 @@ Se considerarán los proyectos dirigidos a la compra de equipo médico especiali
 - Cuando la compra del equipo no pueda ser atendida con presupuesto de la unidad de salud o bien de la CCSS.
 Se atenderán solicitudes presentadas por otras entidades públicas que brinden servicios complementarios a Hospitales y Clínicas de la CCSS, mediante la realización de estudios de laboratorio que permitan la verificación de diagnósticos.
 No se tendrán en cuenta proyectos de entidades privadas que venden servicios a la CCSS, entre ellas las cooperativas de autogestión que tienen a cargo algunos servicios de salud.
-6.10. Sector Prevención y Atención de Cáncer:
-Se atenderán solicitudes de compra del equipo requerido para la detección temprana del cáncer. Asimismo los que busquen mejorar las condiciones de las unidades que brindan tratamiento a los pacientes de cáncer, así como lo necesario en este campo, para que la Unidades de cuidados paliativos obtengan la acreditación.
-Serán objeto de financiamiento los proyectos de capacitación cuyos fines sean crear conciencia en la población sobre hábitos de vida saludable, como una forma de prevención del cáncer.
+6.10. Sector Prevención y Atención de Cáncer: Se atenderán solicitudes de compra del equipo requerido para la detección temprana y tratamiento del cáncer.
+Serán objeto de financiamiento los proyectos de capacitación cuyos fines sean crear conciencia en la población sobre hábitos de vida saludable, y otros que contribuyan a la prevención del cáncer.
+(Así reformado el punto 6.10) anterior en sesión N° 06 del 22 de febrero de 2016)
+6.11 Sector Cuidados Paliativos: De conformidad los lineamientos de atención que defina el Ministerio de Salud en cada período presupuestario, se atenderán proyectos y necesidades específicas que busquen mejorar las condiciones de las unidades de cuidados paliativos.
+(Así adicionado el punto anterior en sesión N° 06 del 22 de febrero de 2016)
 b. Periodos de recepción
 Anualmente, el Área de Acción Social define el o los períodos de entrega de formularios y recepción de proyectos. La disposición se hará de conocimiento de la población en general, mediante la metodología que se considere oportuna para llegar al mayor número de organizaciones. Se atenderán casos de excepción a solicitud del ente rector, cuando se trate de proyectos de conveniencia para el sector o por situaciones de emergencia.
 c. Requisitos para la recepción de proyectos
