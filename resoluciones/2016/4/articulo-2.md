@@ -1,0 +1,2 @@
+Artículo 2°—Los informes financieros indicados en el artículo anterior, deben estar firmados por el obligado tributario o su representante legal y el contador, los cuales deben estar debidamente certificados por un Contador Público Autorizado. En el caso de las Entidades Bancarias, estas podrán aportar la certificación emitida por el Departamento de Contabilidad Institucional.
+Asimismo deberá contener la metodología que se siguió para determinar los resultados contenidos en los estados financieros proyectados.
