@@ -1,0 +1,1 @@
+Artículo 2°—Se entenderá el aprovechamiento racional de los recursos acuáticos como la acción de cultivo, repoblamiento y extracción racional de moluscos, crustáceos y poliquetos, que genere o pueda generar algún provecho, beneficio, ventaja, utilidad o ganancia para la persona que la realiza o para quien esta representa.

@@ -1,0 +1,2 @@
+Artículo 9°—Se prohíbe las actividades orientadas a interrumpir los ciclos naturales de los ecosistemas de humedal, como la construcción de diques que eviten el flujo normal de las mareas, canales que provoquen el desecamiento, relleno o cualquier otra alteración que afecte la sostenibilidad de los manglares, en su condición de ecosistemas de humedal estuarino.
+Particularmente, se prohíben todas las actividades no contempladas en el plan de manejo conjunto que sea aprobado.

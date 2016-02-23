@@ -1,0 +1,1 @@
+Artículo 10.—Las concesiones, permisos de uso, autorizaciones, licencias o cualquier otra gestión administrativa, serán tramitados por los interesados conforme los procedimientos y requisitos establecidos en la normativa vigente.

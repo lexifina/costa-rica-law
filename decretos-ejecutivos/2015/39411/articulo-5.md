@@ -1,0 +1,1 @@
+Artículo 5°—El MINAE-SINAC e INCOPESCA podrán priorizar, de común acuerdo, áreas de manglar en su condición humedal estuarino, en el proceso de elaboración de los planes de manejo conjunto enunciados en el artículo anterior.

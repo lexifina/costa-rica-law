@@ -1,0 +1,1 @@
+Artículo 3°—El aprovechamiento de los recursos pesqueros y acuícolas en los manglares como áreas silvestres protegidas, y como ecosistemas de humedal estuarino, se entenderá restringido, y sólo podrá ser realizado cuando existan planes generales de manejo, sustentados en estudios técnicos y científicos que los respalden.

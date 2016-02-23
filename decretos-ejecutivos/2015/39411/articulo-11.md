@@ -1,0 +1,1 @@
+Artículo 11.—Las asociaciones y cooperativas interesadas en desarrollar actividades de aprovechamiento racional de los recursos acuáticos de los humedales, conforme se establecen en este reglamento, quedaran exonerados del pago del canon por los permisos de usos asignados.
