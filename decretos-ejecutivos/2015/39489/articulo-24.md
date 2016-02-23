@@ -1,0 +1,1 @@
+Artículo 24.—Sesión para la conformación del Consejo de Representantes del Autoridades Científicas CITES. La Autoridad Administrativa tendrá un plazo de 30 días hábiles posteriores a las designaciones de los enlaces indicada en el numeral 22 de este decreto, para convocar a la sesión de conformación del Consejo de Representantes del Autoridades Científicas CITES.

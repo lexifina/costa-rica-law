@@ -1,0 +1,4 @@
+Artículo 13.—Quórum y Acuerdos del Consejo de Representantes de Autoridades Científicas CITES. El quorum para que el Consejo de Representantes de Autoridades Científicas CITES se reúna válidamente, será de mitad más uno de los miembros. Si no hubiere quórum se levantará el acta respectiva donde constará las personas presentes y la fecha y hora de la segunda convocatoria que deberá realizarse en los siguientes 8 días hábiles.
+El Consejo de Representantes de Autoridades Científicas CITES podrá además asesorarse con especialistas para analizar temas complejos o aspectos específicos de la función encomendada.
+Los acuerdos del Consejo de Representantes de Autoridades Científicas CITES se tomarán por mayoría simple de los miembros presentes.
+Los acuerdos tomados Consejo de Representantes de Autoridades Científicas CITES tendrán carácter vinculante para la Autoridad Administrativa y deberán ser comunicados formalmente dentro del plazo indicado en el artículo siguiente.

@@ -1,0 +1,2 @@
+Artículo 21.—Acuerdos de la Comisión Especial no permanente de Autoridades Científicas CITES. Los informes técnicos de las Comisiones Especiales no permanentes de Autoridades Científicas CITES deberán ser remitidos al Consejo de Representantes de Autoridades Científicas CITES.
+El Consejo de Representantes de Autoridades Científicas CITES podrá realizar observaciones de carácter técnico previo a su aprobación definitiva.

@@ -1,0 +1,1 @@
+Artículo 23.—Convocatoria sector productivo y organizaciones no gubernamentales. La Autoridad Administrativa tendrá un plazo de 20 días hábiles posteriores a la publicación de este decreto ejecutivo para realizar la convocatoria al sector productivo y organizaciones no gubernamentales, según lo indicado en el artículo 8 del presente decreto.

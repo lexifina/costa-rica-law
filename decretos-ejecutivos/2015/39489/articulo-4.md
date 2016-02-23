@@ -1,0 +1,1 @@
+Artículo 4°—Plazo de Aprobación o denegación de permisos. La Autoridad Administrativa aprobará o denegará las solicitudes de permisos de importación, exportación y reexportación de la flora y la fauna silvestre, para lo cual tendrá un plazo máximo de 30 días naturales contados a partir del recibo de la solicitud, debiendo notificar su decisión al administrado.

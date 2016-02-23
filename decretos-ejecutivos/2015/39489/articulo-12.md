@@ -1,0 +1,1 @@
+Artículo 12.—Sesiones del Consejo de Representantes de Autoridades Científicas CITES. El Consejo de Representantes de Autoridades Científicas CITES se reunirá por convocatoria escrita de su Secretario o a solicitud de la Autoridad Administrativa con una antelación de al menos 8 días hábiles.

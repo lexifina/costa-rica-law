@@ -1,0 +1,1 @@
+Artículo 2°—Coordinación. La Autoridad Administrativa CITES estará representada por el Director Ejecutivo del Sistema Nacional de Áreas de Conservación (SINAC), quien podrá delegar la función en un funcionario del SINAC.
