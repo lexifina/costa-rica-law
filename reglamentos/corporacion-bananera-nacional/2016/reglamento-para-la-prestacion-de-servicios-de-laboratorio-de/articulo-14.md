@@ -1,0 +1,2 @@
+Artículo 14.—Facturación de contratos de investigación. El profesional a cargo de cada investigación contratada tendrá la responsabilidad de solicitar la emisión de las respectivas facturas, de acuerdo con las condiciones pactadas y estipuladas en el contrato firmado previamente.
+La Jefatura Administrativa enviará a los Coordinadores de área en forma mensual, copia del informe emitido por la sección de Ingresos y Egresos, relacionado al control de avances de contratos de investigación, con el fin de que verifiquen el cumplimiento de pago de la contraparte.

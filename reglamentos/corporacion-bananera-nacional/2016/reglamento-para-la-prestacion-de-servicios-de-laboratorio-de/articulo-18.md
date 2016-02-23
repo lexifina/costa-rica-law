@@ -1,0 +1,1 @@
+Artículo 18.—Vigencia. Este reglamento rige a partir de su aprobación por parte la Junta Directiva de CORBANA en la Sesión Nº 07-02-16, del 23 de febrero de 2016, ratificada en la Sesión Nº 08-03-2016 del 1 de marzo de 2016.
