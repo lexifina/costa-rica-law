@@ -1,0 +1,1 @@
+Transitorio II: Para las frecuencias definidas en la nota CR 033 para redes de comunicación de banda angosta en tecnología digital, los títulos habilitantes que hayan sido otorgados antes del 01 de enero del 2016, podrán continuar siendo explotados bajo las condiciones técnicas y el plazo establecidos en los mismos.
