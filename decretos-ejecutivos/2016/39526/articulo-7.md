@@ -1,0 +1,1 @@
+Artículo 7°—La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, para la atención de esta Emergencia, podrá utilizar fondos remanentes no comprometidos de otras emergencias finiquitadas o vigentes, según disponga la Junta Directiva de ese órgano.
