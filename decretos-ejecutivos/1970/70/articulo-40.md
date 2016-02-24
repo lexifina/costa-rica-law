@@ -1,1 +1,0 @@
-Artículo 40-Para determinar el área de terreno asegurable, sólo se computarán las manzanas o hectáreas debidamente sembradas con una población visiblemente nacida o arraigada igual por lo menos al setenta y cinco por ciento (75%) de la normal.

@@ -1,2 +1,0 @@
-Artículo 54.-Los avisos respecto de circunstancias que agraven substancialmente el riesgo, deben darse dentro de las 24 horas siguientes al momento de que se conocieron.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982, que lo traspasó del anterior artículo 53 al 54 actual).

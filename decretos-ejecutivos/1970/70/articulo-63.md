@@ -1,2 +1,0 @@
-Artículo 63.-Los avisos a que se refiere el artículo anterior indicarán además de los datos que corresponden a los avisos de siniestro y de recolección la extensión de la superficie cosechada hasta el momento de ocurrir el siniestro y el tanto de la cosecha levantada.
-(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982, que lo traspasó del anterior artículo 62 al 63 actual).

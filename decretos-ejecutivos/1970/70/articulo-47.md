@@ -1,1 +1,0 @@
-Artículo 47.-Se entiende por "Asegurado" al agricultor propietario de los cultivos objeto del contrato, haya o no solicitado el seguro; y por "Beneficiario" a la persona física o jurídica, solicitante o no del seguro, designada por el solicitante para cobrar la indemnización en caso de siniestro, siempre que tenga interés legítimo en ello.

@@ -1,2 +1,0 @@
-Artículo 70. -Si el siniestro se produce durante el ciclo agrícola del cultivo y da posibilidad para una re siembra o para que se inicie otro cultivo, el Asegurada estará obligado a efectuar lo uno o lo otro y el Instituto abonará los gasto; que demande la resiembra o la iniciación de otro cultivo.
-(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 69 al 70 actual).

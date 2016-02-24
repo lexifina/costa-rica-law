@@ -1,2 +1,0 @@
-Artículo 6°-Para la formación de la Reserva Técnica de Contingencias del Seguro de Cosechas, los Bancos Comerciales girarán directamente al Instituto, los aportes previstos en el articulo 6° de la ley que estableció dicho Seguro. El aporte que conforme al citado articulo 6° y para el mismo fin corresponde al Instituto, será hecho por éste de acuerdo con sus sistemas internos
-(Así reformado por el artículo 1° del decreto ejecutivo N° 5521 del 02 de diciembre de 1975).

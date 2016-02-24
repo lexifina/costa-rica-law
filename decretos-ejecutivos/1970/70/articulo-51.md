@@ -1,2 +1,0 @@
-Artículo 51.-El Asegurado, su representante o la Institución financiera interesada, deberán dar al Instituto oportunamente los avisos de siniestro y de recolección, así como hacer de su conocimiento cualquier circunstancia que agrave substancialmente el riesgo.
-(Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982, que lo traspasó del anterior artículo 50 al 51 actual).

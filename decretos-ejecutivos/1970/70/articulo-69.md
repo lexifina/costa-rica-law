@@ -1,2 +1,0 @@
-Artículo 69. -Se considerará como siniestro total el que ocurrido, obliga a realizar inversiones para levantar la cosecha de monto mayor al propio valor de tal cosecha.
-(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 68 al 69 actual).

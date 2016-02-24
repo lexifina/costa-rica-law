@@ -1,2 +1,0 @@
-Artículo 73. -La indemnización por pérdidas aseguradas en cultivos perennes, se hará de conformidad con los principios técnicos particulares relativos a esos cultivos.
-(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 72 al 73 actual).

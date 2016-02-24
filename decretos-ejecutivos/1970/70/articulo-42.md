@@ -1,1 +1,0 @@
-Artículo 42.-La póliza será expedida con base en los datos constatados la inspección previa, sin perjuicio de lo que se convenga en el particular dentro los convenios que suscribe el Instituto con los Bancos del Sistema Bancario Nacional y las demás Instituciones nacionales de crédito.

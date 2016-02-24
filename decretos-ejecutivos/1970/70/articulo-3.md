@@ -1,1 +1,0 @@
-Artículo 3°-Los miembros del Sistema Bancario Nacional y las demás instituciones públicas de crédito agrícola procurarán que sus solicitantes de crédito para habilitación o avío, tomen una Póliza de Seguro de Cosechas sobre las explotaciones agrícolas que recibirán la inversión de los financiamientos pedidos.

@@ -1,2 +1,0 @@
-Artículo 71. -Cuando el daño sufrido es de tal magnitud que el Asegurado estime conveniente proseguir las labores del cultivo, podrá suspenderlas previa conformidad del Instituto. En este caso la indemnización será equivalente a los gastos efectuados y se regulará por la tabla o escala incluida en la Póliza.
-(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 70 al 71 actual).

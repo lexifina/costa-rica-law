@@ -1,1 +1,0 @@
-Artículo 15.-El Instituto queda facultado para determinar, establecer y revisar con anterioridad a cada ciclo agrícola, la cobertura por manzana o hectárea, el monto de cada especie, la variedad y el tipo de cultivo, así como las tarifas de primas correspondientes. La tabla de distribución de la cobertura se formulará por meses, labores y productos.

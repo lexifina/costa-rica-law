@@ -1,2 +1,0 @@
-Artículo 78.-El Instituto tendrá la facultad de resolver el contrato de seguro en cualquier momento, una vez que se cerciore de actos u omisiones del Asegurado que impliquen agravación substancial del riesgo. El Instituto notificará la resolución del contrato a los interesados en la forma y términos establecidos por este Reglamento.
-(Así corrida su numeración mediante artículo 2° del decreto ejecutivo N° 13962 del 11 de octubre de 1982 y por el artículo 2° del decreto ejecutivo N° 14053 del 11 de octubre de 1982 , que lo traspasó del anterior artículo 77 al 78 actual).
