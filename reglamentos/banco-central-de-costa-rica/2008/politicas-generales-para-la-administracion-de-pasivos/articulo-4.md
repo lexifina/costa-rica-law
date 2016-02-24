@@ -11,4 +11,6 @@ i) Aprobar, desde ahora y en firme, toda nueva emisión o incremento en los sald
 En el caso de las nuevas emisiones, la forma de representación será anotaciones en cuenta electrónica, debiendo indicarse las demás características de las emisiones como plazo, fecha de emisión, tasa de cupón, factor de cálculo de intereses, etc.
 Las medidas adoptadas conforme a lo indicado en este apartado serán comunicadas inmediatamente a cada uno de los directores del Banco, así como al pleno de la Junta Directiva del Banco Central en la siguiente sesión que se celebre luego de ejercida esta potestad.
 j) Activar la participación del BCCR en el mercado secundario organizado, mediante la compra de emisiones estandarizadas emitidas por el mismo BCCR. Cuando esto ocurra la Comisión definirá el marco de actuación de la Administración, dentro de los parámetros autorizados por la Junta Directiva del Banco Central.
+k. Conocer las propuestas de modificación a la “Metodología para fijar las tasas de colocación de los pasivos”.
+(Así adicionado el inciso anterior mediante sesión N° 5712-2016 del 24 de febrero del 2016)
 (Así reformado en sesión N° 5703 del 13 de octubre de 2015)
