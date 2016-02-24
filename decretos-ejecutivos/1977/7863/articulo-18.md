@@ -1,2 +1,0 @@
-Artículo 18.—Los bienes y derechos del PIMA serán utilizados exclusivamente en la realización de sus fines, pero el Consejo Directivo podrá acordar la inversión de los fondos temporalmente disponibles en operaciones de corto plazo y productores de rentas, las cuales deberán destinarse a reforzar los ingresos del PIMA.
-Estas inversiones deberán hacerse en las mejores condiciones de garantía, rentabilidad y liquidez.

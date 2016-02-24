@@ -1,2 +1,0 @@
-Artículo 7°—Los miembros del Consejo Directivo devengarán dietas, según lo establecido en el artículo 2° de la ley número 3065 del 20 de noviembre de 1962 y sus reformas, celebrarán cuatro sesiones ordinarias mensuales y las extraordinarias que fueren necesarias. En ningún caso se remunerarán más de ocho sesiones por mes incluyendo ordinarias y extraordinarias.
-(Así reformado mediante el artículo 1° del decreto ejecutivo N° 15064 del 30 de noviembre de 1983).

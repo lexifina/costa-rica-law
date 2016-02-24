@@ -1,1 +1,0 @@
-Artículo 3°—El Consejo, en su primera sesión anual elegirá de su seno, en votación secreta un Vicepresidente, el que podrá ser reelecto. Para tal elección basta la mayoría relativa de votos. Si hubiere empate, se procederá a una nueva votación, en sesión que se realizará al día siguiente, a la misma hora y lugar. En caso de que persista este resultado la suerte lo decidirá.

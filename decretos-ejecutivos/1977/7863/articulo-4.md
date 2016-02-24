@@ -1,1 +1,0 @@
-Artículo 4°—Los funcionarios que integran el Consejo Directivo dejaran de formar parte de éste cuando por cualquier motivo se separen de su cargo. En este caso, la respectiva institución procederá de inmediato a nombrar al sustituto.

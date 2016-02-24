@@ -1,1 +1,0 @@
-Transitorio 4°—Durante el período de construcción todas las contrataciones, así como la compra de bienes y servicios hechas por el procedimiento de licitaciones públicas o privadas, requerirán aprobación del IFAM.
