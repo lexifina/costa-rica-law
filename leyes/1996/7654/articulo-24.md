@@ -1,1 +1,2 @@
-Artículo 24.- Apremio corporal. De incumplirse el deber alimentario, podrá librarse orden de apremio corporal contra el deudor moroso, salvo que sea menor de quince años o mayor de setenta y uno.
+Artículo 24.- Apremio corporal. De incumplirse el deber alimentario, podrá librarse orden de apremio corporal contra el deudor moroso, salvo que sea menor o mayor de setenta y uno.
+(Así modificado por resolución de la Sala Constitucional N° 002781 del 24 de febrero de 2016. Asimismo la Sala Constitucional indicó en esta resolución que debe entenderse que "menor" se refiere a persona menor de 18 años de edad.)
