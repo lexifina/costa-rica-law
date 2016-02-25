@@ -1,0 +1,1 @@
+Artículo 13.—Las recomendaciones de los Consejos de Distrito, así como de la Comisión Municipal de Becas pueden ser cuestionadas por cualquier munícipe del cantón. Los acuerdos del Consejo Municipal que otorguen las becas, serán impugnables conforme lo dispuesto por el Código Municipal.

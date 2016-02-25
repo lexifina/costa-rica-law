@@ -1,0 +1,1 @@
+Artículo 8°—La Comisión de Becas Municipales, será la encargada de analizar la información presentada y hacer las recomendaciones respectivas al Consejo Municipal, para que éste apruebe, quienes tendrán el derecho a una beca.

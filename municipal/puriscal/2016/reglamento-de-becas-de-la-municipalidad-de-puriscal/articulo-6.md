@@ -1,0 +1,1 @@
+Artículo 6°—Durante el proceso de entrega de formularios de solicitud de becas, los y las encargados de este proceso, deberán aclarar a los y las solicitantes, que el llenar la solicitud, no les da automáticamente el derecho a obtener la beca. Esta declaración debe estar contenida en los formularios que se pongan a disposición de público.

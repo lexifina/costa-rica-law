@@ -1,0 +1,1 @@
+Artículo 4°—La cantidad de becas a ser otorgadas tendrá relación directa con los recursos presupuestarios, aprobados por el Consejo Municipal para cada año. El Consejo Municipal de acuerdo con los petentes beneficiarios, determinará el monto de las becas, en relación directa con los recursos presupuestarios disponibles.
