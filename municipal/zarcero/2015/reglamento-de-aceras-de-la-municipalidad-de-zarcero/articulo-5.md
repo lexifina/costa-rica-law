@@ -1,0 +1,1 @@
+Artículo 5º—Corresponde al Departamento de Servicios Públicos y la Unidad Técnica de Gestión Vial Municipal (UTGVM) atender, gestionar y dar seguimiento al presente Reglamento, así como las quejas de los usuarios en relación a lo dispuesto.

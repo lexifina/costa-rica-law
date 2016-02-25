@@ -1,0 +1,1 @@
+Artículo 4º—La Municipalidad de Zarcero velará por el cumplimiento de las disposiciones de este Reglamento, iniciando el procedimiento sancionatorio correspondiente en aquellos casos en los cuales se detecte un infractor a las disposiciones de este Reglamento, para lo cual deberá cumplir con el debido proceso.
