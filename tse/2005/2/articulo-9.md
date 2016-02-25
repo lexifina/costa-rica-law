@@ -1,4 +1,5 @@
-Artículo 9º—Son funciones de los Jefes de Servicios Generales y Seguridad y Vigilancia:
+Artículo 9º—Son funciones de los Jefes de Servicios Generales, de Ingeniería y Arquitectura y de Seguridad Integral:
+(Así reformado el párrafo anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 2 del 25 de febrero de 2016)
 a) Proponer al Comité la realización de los diferentes tipos de simulacros (prácticas supervisadas dirigidas), según los lineamientos y normas del Instituto Nacional de Seguros y la Comisión Nacional de Emergencias.
 b) Organizar y coordinar, con la colaboración de todos los miembros del Comité, la ejecución de simulacros, previa autorización del Tribunal.
 c) Evaluar las características de las instalaciones institucionales y proponer al Comité las medidas correctivas para eliminar los peligros detectados.
