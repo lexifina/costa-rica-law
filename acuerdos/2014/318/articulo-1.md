@@ -33,7 +33,7 @@ BIENES ACUÍCOLAS
 | 20 | Licencia Pesca Comercial Avanzada o semiindustrial- embarcación inactiva | licencia inactiva | colones | 78.700,00
 | 21 | Licencia Extracción de Moluscos (con embarcación) | licencia | colones | 15.300,00
 | 22 | Licencia Pesca Subacuática comercial (con embarcación) | licencia | colones | 23.700,00
-| 23 | Duplicado de licencia de pesca o autorización | duplicado | colones | 8.000,00
+| 23 | Duplicado a nombre del mismo permisionario o bien por motivo de traspaso de la licencia de pesca o autorización (Así reformado el ítem anterior por acuerdo AJDIP/077-2016 del 25 de febrero de 2016) | duplicado | colones | 8.000,00
 | 24 | Licencia pesca de atún, embarcación Nacional | licencia | colones | 424.200,00
 | 25 | Emisión y prórroga, licencia pesca de atún, embarcación extranjera | licencia | colones | 424.200,00
 | | LICENCIA PARA EMBARCACION DEPORTIVA O TURISTICA, NACIONAL O EXTRANJERA, MARINA O CONTINENTAL (por año o por trámite)
