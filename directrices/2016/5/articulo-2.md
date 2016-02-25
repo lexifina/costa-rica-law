@@ -1,0 +1,1 @@
+2°—Objeto: La presente Norma Técnica de Información Geográfica tiene por objeto establecer las disposiciones mínimas que se deben considerar para desarrollar servicios Web de información geográfica, así como los nodos del Sistema Nacional de Información Territorial, que garanticen la interoperabilidad de la información y las plataformas que le dan soporte.

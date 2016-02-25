@@ -1,0 +1,1 @@
+8°—Vigencia: La Norma Técnica de Información Geográfica denominada NTIG_CR05_01.2016: Estándares para la Publicación Web de Información Geográfica de Costa Rica rige a partir de su publicación en el Diario Oficial La Gaceta.
