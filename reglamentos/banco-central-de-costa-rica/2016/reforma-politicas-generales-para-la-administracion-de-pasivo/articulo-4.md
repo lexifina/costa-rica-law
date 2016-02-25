@@ -1,0 +1,3 @@
+4. Modificar el Artículo 20. Estructura de vencimientos, de las Políticas Generales para la Administración de Pasivos para que se lea como sigue:
+Artículo 20. Estructura de vencimientos
+Las captaciones que se efectúen como parte del Tramo de Deuda serán programadas por la División Gestión de Activos y Pasivos de tal forma que el plazo de colocación sea de 2 años en promedio para el periodo anual contemplado en la estrategia. Se considerará el plazo promedio ponderado del monto que se coloque en cada fecha de subasta del período mencionado. Se admitirán desviaciones de +/- 6 meses alrededor de dicha meta.
