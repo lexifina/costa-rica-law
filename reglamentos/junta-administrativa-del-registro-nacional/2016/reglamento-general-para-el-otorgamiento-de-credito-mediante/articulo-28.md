@@ -1,0 +1,3 @@
+ARTÍCULO 28: De la adjudicación del bien
+En caso de que el Fidecomiso se vea obligado a adjudicarse el bien puesto en garantía, el fiduciario deberá velar porque este se mantenga en las mejores condiciones para su venta para lo cual utilizará los recursos del Fideicomiso, contando con la aprobación de la Comisión de Crédito.
+El Fiduciario deberá procurar la venta del bien, eligiendo los medios que estén a disposición en el mercado, procurando las mejores condiciones de tiempo y costo, utilizando para ello los recursos del fideicomiso en caso de ser necesario y contando con la aprobación de la Comisión de Crédito.

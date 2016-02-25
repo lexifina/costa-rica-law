@@ -1,0 +1,11 @@
+ARTÍCULO 8: Requisitos del codeudor
+a. Podrá ser codeudor la persona con una relación de primer grado de afinidad y hasta segundo grado de consanguinidad, del funcionario solicitante, así como la persona conviviente en unión libre con el solicitante.
+b. Copia del documento de identidad vigente y en buen estado.
+c. Constancia de ingresos la cual podrá ser: constancia salarial donde se refleje el salario bruto y el neto, así como el tiempo que tiene de laborar para empresa, el cual no podrá ser inferior a los 12 meses consecutivos. O bien, certificación de ingresos emitida por un Contador Público Autorizado que no supere el mes de emitida y acompañada por un estado de cuenta bancario de los últimos 12 meses, cuando no sea asalariado.
+d. Índice de persona física de bienes inmuebles, para demostrar que no posee vivienda propia en caso de créditos para compra de vivienda, construcción de vivienda en lote propio, compra de lote, o compra de lote y construcción de vivienda.
+e. Declaración jurada con la información de las deudas vigentes al momento de la presentación de la solicitud y Reporte crediticio SUGEF que no supere los 30 días naturales de emitido.
+f. Estados de cuenta de los últimos tres meses de las tarjetas de crédito y demás obligaciones declaradas en el inciso anterior.
+g. Tener una calificación en SUGEF de 1.
+h. En caso de que el codeudor sea la persona conviviente en unión libre con el funcionario del Registro Nacional, deberá aportar declaración jurada donde ambos manifiesten que cumplen con los requisitos del artículo 242 del Código de Familia, respecto a la unión de hecho.
+La recepción de la solicitud de crédito no implica su aprobación. Asimismo cuando se compruebe que un deudor ha suministrado información falsa se denegará la solicitud de crédito, en caso de que esta comprobación se efectúe una vez que el crédito haya sido desembolsado, el Fideicomiso podrá hacer exigible la deuda de forma inmediata, previa autorización de la Comisión de Crédito.
+La aprobación de los créditos queda sujeta a la disponibilidad de los recursos del Fideicomiso para el financiamiento de vivienda a los funcionarios del Registro Nacional, teniendo prioridad los funcionarios que hagan entrega de los requisitos completos, para ello ASOREN, llevará un control bitácora de la recepción de solicitudes.

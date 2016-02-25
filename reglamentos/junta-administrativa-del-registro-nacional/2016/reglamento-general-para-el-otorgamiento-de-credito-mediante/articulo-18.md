@@ -1,0 +1,5 @@
+ARTÍCULO 18: Forma de pago
+El cobro de los créditos se realizará con periodicidad mensual y se utilizará la fórmula de cuota niveladaantes descrita que consiste en el pago mensual a lo largo del período del préstamo, variable conforme las fluctuaciones que experimente la Tasa Básica Pasiva.
+Los pagos realizados por los deudores serán aplicados en el siguiente orden: primero a primas de pólizas vencidas, segundo a intereses moratorios, tercero a intereses corrientes y finalmente al capital adeudado.
+Los préstamos serán pagados mediante deducciones directas de los salarios de los servidores del Registro Nacional, que se harán a través de la Tesorería Nacional, de la Oficina de Planillas del Registro Nacional, o por cualquier otro medio que sea procedente.
+Todo deudor deberá comprometerse a realizar el pago del préstamo en las cajas, por lo medios electrónicos, oficinas o cualquier otro medio que el Fiduciario ponga a su disposición cuando por cualquier circunstancia no le sea aplicada la deducción salarial sobre la cuota de su crédito en la fecha de pago correspondiente.

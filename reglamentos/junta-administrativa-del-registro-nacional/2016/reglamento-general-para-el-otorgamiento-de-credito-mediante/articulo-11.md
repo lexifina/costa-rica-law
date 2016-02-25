@@ -1,0 +1,2 @@
+ARTÍCULO 11: Afectación del inmueble familiar
+En caso de que el bien que se dará en garantía se encuentre destinado a habitación familiar, constando así en el Registro Público, se deberá requerir previa autorización formal de los miembros que cuenten con el beneficio o bien autorización judicial según corresponda, previo a otorgar el crédito, atendiendo lo estipulado en el artículo 42 del Código de Familia.

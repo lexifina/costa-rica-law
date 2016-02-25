@@ -1,0 +1,3 @@
+ARTÍCULO 10: Copropiedad
+En los casos en que el gravamen a constituir sobre el bien dado en garantía sea sobre varios derechos, el solicitante para efectos de aprobación, deberá presentar la autorización escrita y formal de los otros co-propietarios del inmueble, aunque no participen como deudores y estos en la escritura a otorgar deberán consentir la constitución del gravamen en los mismos términos que lo haga la parte deudora.
+Cuando alguno de los derechos sobre el bien pertenezca a un menor de edad o adulto declarado en estado de interdicción deberá obtener la correspondiente autorización judicial o administrativa correspondiente.
