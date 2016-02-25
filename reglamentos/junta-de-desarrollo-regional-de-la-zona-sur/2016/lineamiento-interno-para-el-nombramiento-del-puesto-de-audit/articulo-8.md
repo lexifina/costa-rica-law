@@ -1,0 +1,1 @@
+Artículo 8º—Metodología y Evaluación. De la metodología utilizada para la evaluación de los participantes, le competerá a la Unidad de Recursos Humanos establecer la metodología de evaluación por ejemplo: exámenes, entrevistas, test psicológico o cualquiera que sea necesaria para su correcta valoración, la cual debe ser objetiva.

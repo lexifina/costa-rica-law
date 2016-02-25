@@ -1,0 +1,1 @@
+Artículo 12.—Subauditor interno. En caso de que se cuente con la autorización de las instancias del Gobierno, para la creación de la plaza de subauditor interno, su nombramiento se normará por este mismo Lineamiento.
