@@ -1,0 +1,1 @@
+Artículo 5°—La autorización para el uso de cualquiera de los signos distintivos del Colegio de Médicos y Cirujanos de Costa Rica, deberá respetar siempre el Código de marcas establecido en el Manual de identidad Corporativa del Colegio de Médicos Y Cirujanos de Costa Rica.

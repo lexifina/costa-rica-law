@@ -1,0 +1,1 @@
+Artículo 3°—Las asociaciones reconocidas por el Colegio de Médicos y Cirujanos de Costa Rica, se encuentran autorizados para utilizar el nombre, el logotipo y demás signos distintivos, siempre que sea en funciones patrocinadas por el Colegio de Médicos y Cirujanos de Costa Rica.
