@@ -1,0 +1,1 @@
+ARTÍCULO 2. Reformar el Manual descriptico de Clases, según el contenido del decreto ejecutivo N° 18981-P del 30 de mayo de 1989, suprimiéndose las clases de Microbiólogo 1 y de Veterinario 1, 2, 3, 4, 5, 6 y 7.
