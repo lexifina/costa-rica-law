@@ -14,3 +14,4 @@ Simplificación de requerimientos de información en materia de inversiones para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-13 | la propia norma |
+| 2 | 2016-02-25 | Resolución 19 (2016-02-25) |

@@ -25,17 +25,23 @@ RESUELVE:
 I.—Solicitar a los operadores públicos, empresas municipales y cooperativas de electrificación rural, que prestan servicios de generación, transmisión, distribución y alumbrado público, presentar a la Intendencia de Energía los requerimientos específicos de información regulatoria en materia de inversiones en los plazos y formatos establecidos en los anexos de la presente resolución. Los apéndices y anexos indicados corresponden a lo siguiente:
 Requerimientos de información periódica:
 Apéndice 1. Macroinversiones
+(Nota de Sinalevi: Mediante el punto II) resolución RIE-019-2016 del 26 de febrero de 2016, se establece lo siguiente: " Aclarar y adicionar de oficio la resolución RIE-130-2015 del 18 de diciembre de 2015, así como los anexos 4 “IE-RE-7794” y 8 “IE-RE-7798” y los Apéndices 1 “Macro Inversiones” y 2 “Microinversiones”, en los términos indicados en el Considerando I, sección IV, puntos 1, 2, 3, 4, 5, 6, 7 y 8 de la norma antes referida")
 Apéndice 2 Microinversiones
+(Nota de Sinalevi: Mediante el punto II) resolución RIE-019-2016 del 26 de febrero de 2016, se establece lo siguiente: " Aclarar y adicionar de oficio la resolución RIE-130-2015 del 18 de diciembre de 2015, así como los anexos 4 “IE-RE-7794” y 8 “IE-RE-7798” y los Apéndices 1 “Macro Inversiones” y 2 “Microinversiones”, en los términos indicados en el Considerando I, sección IV, puntos 1, 2, 3, 4, 5, 6, 7 y 8 de la norma antes referida")
+(Nota de Sinalevi: Mediante el punto II) resolución RIE-019-2016 del 26 de febrero de 2016, se establece lo siguiente: " Aclarar y adicionar de oficio la resolución RIE-130-2015 del 18 de diciembre de 2015, así como los anexos 4 “IE-RE-7794” y 8 “IE-RE-7798” y los Apéndices 1 “Macro Inversiones” y 2 “Microinversiones”, en los términos indicados en el Considerando I, sección IV, puntos 1, 2, 3, 4, 5, 6, 7 y 8 de la norma antes referida")
 Formularios de Macroinversiones:
 Anexo 1. IE-RE-7791. Registro de macroinversiones información general y justificación técnica de proyectos fase de planeamiento.
+(Nota de Sinalevi: Mediante el punto II) resolución RIE-019-2016 del 26 de febrero de 2016, se establece lo siguiente: " Aclarar y adicionar de oficio la resolución RIE-130-2015 del 18 de diciembre de 2015, así como los anexos 4 “IE-RE-7794” y 8 “IE-RE-7798” y los Apéndices 1 “Macro Inversiones” y 2 “Microinversiones”, en los términos indicados en el Considerando I, sección IV, puntos 1, 2, 3, 4, 5, 6, 7 y 8 de la norma antes referida")
 Anexo 2. IE-RE-7792. Registro de macroinversiones información general y justificación técnica de proyectos fase de ejecución.
 Anexo 3. IE-RE-7793. Registro de macroinversiones información general y justificación técnica de proyectos por capitalizar.
 Anexo 4. IE-RE-7794. Registro de macroinversiones. Formularios de retiro de activos, índices macroeconómicos y porcentajes de ejecución.
+(Nota de Sinalevi: Mediante el punto II) resolución RIE-019-2016 del 26 de febrero de 2016, se establece lo siguiente: " Aclarar y adicionar de oficio la resolución RIE-130-2015 del 18 de diciembre de 2015, así como los anexos 4 “IE-RE-7794” y 8 “IE-RE-7798” y los Apéndices 1 “Macro Inversiones” y 2 “Microinversiones”, en los términos indicados en el Considerando I, sección IV, puntos 1, 2, 3, 4, 5, 6, 7 y 8 de la norma antes referida")
 Anexo 5. IE-RE-7795. Registro de macroinversiones estructura de costos de proyectos, fase de planeamiento.
 Anexo 6. IE-RE-7796. Registro de macroinversiones estructura de costos de proyectos, fase de ejecución.
 Anexo 7. IE-RE-7797. Registro de macroinversiones estructura de costos de proyectos por capitalizar.
 Formularios de microinversiones
 Anexo 8. IE-RE-7798. Registro de microinversiones. Sistema de generación.
+(Nota de Sinalevi: Mediante el punto II) resolución RIE-019-2016 del 26 de febrero de 2016, se establece lo siguiente: " Aclarar y adicionar de oficio la resolución RIE-130-2015 del 18 de diciembre de 2015, así como los anexos 4 “IE-RE-7794” y 8 “IE-RE-7798” y los Apéndices 1 “Macro Inversiones” y 2 “Microinversiones”, en los términos indicados en el Considerando I, sección IV, puntos 1, 2, 3, 4, 5, 6, 7 y 8 de la norma antes referida")
 Anexo 9. IE-RE-7799. Registro de microinversiones. Sistema de transmisión.
 Anexo 10. IE-RE-7800. Registro de microinversiones. Sistema de distribución.
 Anexo 11. IE-RE-7801. Registro de microinversiones. Alumbrado público.
