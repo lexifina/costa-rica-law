@@ -1,0 +1,1 @@
+8°—Vigencia: La Norma Técnica de Información Geográfica denominada NTIG_CR06_01.2016: Especificaciones Cartográficas para Mapa Topográfico Escala 1:25.000 rige a partir de su publicación en el Diario Oficial La Gaceta.
