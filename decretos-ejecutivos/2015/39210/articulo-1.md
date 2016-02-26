@@ -1,6 +1,5 @@
-(Anulada)
 Nº 39210-MP-S
-(Mediante resolución de la Sala Constitucional N° 1692 del 3 de febrero de 2016, se anuló el presente decreto ejecutivo.)
+(Nota de Sinalevi: Mediante resolución de la Corte Interamericana de Derechos Humanos del 26 de febrero de 2016, se resolvió que el presente decreto ejecutivo debe mantener su vigencia.)
 EL PRESIDENTE DE LA REPÚBLICA
 EL MINISTRO DE LA PRESIDENCIA
 Y EL MINISTRO DE SALUD

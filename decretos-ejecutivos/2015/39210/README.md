@@ -15,3 +15,4 @@ Autorización para la realización de la técnica de reproducción asistida de F
 | --- | --- | --- |
 | 1 | 2015-09-11 | la propia norma |
 | 2 | 2016-02-03 | SINALEVI (sin norma nombrada) |
+| 3 | 2016-02-26 | Resolución 0 (2016-02-26) |
