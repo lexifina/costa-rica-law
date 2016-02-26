@@ -14,3 +14,4 @@ Simplificación de Requerimientos de Información Financiero- Contable para las 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-15 | la propia norma |
+| 2 | 2016-02-26 | Resolución 21 (2016-02-26) |
