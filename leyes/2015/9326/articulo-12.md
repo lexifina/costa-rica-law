@@ -1,0 +1,4 @@
+ARTÍCULO 12.- Normativa supletoria
+En lo no dispuesto en esta ley se aplicará, supletoriamente, la Ley N.°4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y sus reformas.
+Para esos efectos, el Instituto Mixto de Ayuda Social (IMAS), en su condición de administración tributaria, tendrá las facultades establecidas en dicho Código. En cuanto a ilícitos tributarios, el IMAS tendrá las facultades establecidas en el título III de dicho Código, en lo que se refiere a infracciones y sanciones administrativas. Cuando el IMAS, en la fase de fiscalización de los tributos que administra, tenga noticia de que se ha cometido un delito procederá a denunciarlo al Ministerio Público.
+Para cumplir lo previsto en esta norma contará con la colaboración obligada de la Dirección General de Tributación y de los demás entes públicos.
