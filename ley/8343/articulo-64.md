@@ -1,1 +1,1 @@
-Artículo 64.—Multa. El IMAS tiene la obligación de inscribir los negocios a los que se les cobrará el impuesto. La evasión de dichos impuestos será castigada de acuerdo con la normativa tributaria existente.
+Artículo 64.—(Derogado por el artículo 14 de la ley N° 9326 del 19 de octubre del 2015 "Ley de Impuesto a los moteles y Lugares Afines")

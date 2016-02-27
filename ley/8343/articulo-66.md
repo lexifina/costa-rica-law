@@ -1,1 +1,1 @@
-Artículo 66.—Verificación y control de las declaraciones juradas. Para la verificación y el control de las declaraciones juradas, del número de habitaciones y de la liquidación del impuesto y el ministro de Hacienda, el Instituto Costarricense de Turismo y el IMAS podrán establecer controles cruzados; y la información suministrada ante cualquiera de ellos podrá usarse como plena prueba para efectos de pago de ese impuesto.
+Artículo 66.—(Derogado por el artículo 14 de la ley N° 9326 del 19 de octubre del 2015 "Ley de Impuesto a los moteles y Lugares Afines")

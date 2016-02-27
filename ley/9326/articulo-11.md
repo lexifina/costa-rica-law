@@ -1,0 +1,3 @@
+ARTÍCULO 11.- Sanciones e intereses
+A los sujetos pasivos que incumplan las obligaciones establecidas en esta ley e incurran en las infracciones establecidas en los artículos 79, 80, 80 bis y 81 de la Ley N.°4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y sus reformas, se les aplicarán las sanciones establecidas en dichos artículos. Igualmente, serán aplicables las reducciones del artículo 88 de ese cuerpo normativo.
+El cobro de intereses a cargo del sujeto pasivo se aplicará de conformidad con el artículo 57 del Código de Normas y Procedimientos Tributarios.
