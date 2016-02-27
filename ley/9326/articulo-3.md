@@ -1,0 +1,3 @@
+ARTÍCULO 3.- Sujeto pasivo
+Serán sujetos pasivos de este impuesto, a título de contribuyentes, los propietarios, titulares o quienes ejerzan la actividad empresarial referida a los establecimientos mencionados en el artículo 1 de esta ley.
+De conformidad con este artículo, la definición del sujeto pasivo no prejuzga sobre la titularidad del bien inmueble sujeto a imposición. En caso de conflicto, la obligación tributaria se exigirá al sujeto que, de acuerdo con el Registro Nacional, conserve el usufructo del bien inmueble o quien explote la actividad empresarial de los establecimientos señalados en el artículo 1 de esta ley.

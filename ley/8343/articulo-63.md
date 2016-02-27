@@ -1,1 +1,1 @@
-Artículo 63.—Pago. Las entidades o personas dueñas de los negocios sujetos a este impuesto deberán depositarlo en la primera semana de cada mes, en el IMAS o en el banco que este designe, en las cabeceras de la provincia y en los cantones fuera del área metropolitana.
+Artículo 63.—(Derogado por el artículo 14 de la ley N° 9326 del 19 de octubre del 2015 "Ley de Impuesto a los moteles y Lugares Afines")

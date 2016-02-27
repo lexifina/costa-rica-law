@@ -1,0 +1,2 @@
+ARTÍCULO 9.- Incumplimiento o pago tardío
+En los casos de incumplimiento o pago tardío, la administración exigirá el pago del impuesto, junto con los intereses y las sanciones correspondientes, de conformidad con todas las regulaciones que establece la Ley N.°4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y sus reformas, para los hechos ilícitos, sanciones e infracciones administrativas, aun cuando la Administración Tributaria del Instituto Mixto de Ayuda Social (IMAS) no esté adscrita al Ministerio de Hacienda.
