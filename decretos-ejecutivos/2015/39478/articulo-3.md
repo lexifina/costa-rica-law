@@ -1,0 +1,1 @@
+Artículo 3°—Corríjase la numeración de los actuales artículos números 80 y 81 del Decreto Ejecutivo N° 35573-MP, Reglamento Autónomo de Servicio y Organización de la Dirección General de Servicio Civil, para que en lo sucesivo sean los artículos números 84 y 85.
