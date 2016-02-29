@@ -1,0 +1,1 @@
+Artículo 3º—Para la verificación, recomendación de cambios y actualizaciones que requiera el Manual MCV-2015, una vez vigente se aplicará lo dispuesto en el Decreto N° 37016-MOPT “Reglamento al artículo 6° de la Ley de Simplificación y Eficiencia Tributaria N° 8114”.
