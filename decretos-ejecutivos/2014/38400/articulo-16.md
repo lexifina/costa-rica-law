@@ -1,5 +1,5 @@
-Artículo 16.—Prohibiciones a los funcionarios. Además de lo dispuesto en los artículos 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento, artículo 72 del Código de Trabajo, Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito y demás normativa relativa, son prohibiciones a funcionarios del Registro Nacional:
-1) Privilegiar o discriminar por motivo de género, filiación política, credo, raza, condición socioeconómica, parentesco u otros criterios que sean incompatibles con los derechos humanos y con el mérito personal.
+Artículo 16. -Prohibiciones a los funcionarios. Además de lo dispuesto en los artículos 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento, artículo 72 del Código de Trabajo, Ley General de Control Interno, Ley contra la Corrupción y el Enriquecimiento Ilícito y demás normativa relativa, son prohibiciones a funcionarios del Registro Nacional:
+1) Privilegiar o discriminar por motivo de género, preferencia sexual, identidad sexual, filiación política, credo, raza, condición socioeconómica, parentesco u otros criterios que sean incompatibles con los derechos humanos y con el mérito personal.
 2) Ocupar tiempo dentro de la jornada laboral para asuntos ajenos a las funciones, actividades y tareas asignadas.
 3) Atender visitas, presentarse en otras oficinas que no sean aquellas en donde debe prestar sus servicios, hacer uso del teléfono o medios de comunicación electrónica para atender asuntos personales, salvo previa autorización por escrito del Superior Jerárquico Inmediato.
 4) Recibir dádivas o gratificaciones por servicios prestados como funcionarios del Registro Nacional.
@@ -29,6 +29,8 @@ Artículo 16.—Prohibiciones a los funcionarios. Además de lo dispuesto en los
 28) Cualquier proceder contrario a la moral y buenas costumbres que debe poseer todo funcionario de esta Institución.
 29) Ver, exhibir o difundir material pornográfico en cualquier lugar de la Institución.
 30) Deteriorar y comprometer con comportamientos inmorales o inadecuados, aún fuera de las horas del trabajo, la buena imagen del Registro Nacional.
-31) Incurrir en conductas o comportamientos de acoso u hostigamiento sexual o laboral.
+31) Incurrir en conductas O comportamientos de acoso u hostigamiento sexual o laboral.
 32) Consignar en documento en que conste la fe pública registral, información diferente de la que conste en el Registro respectivo.
-33) Violentar las disposiciones que las Direcciones del Registro respectivo establezcan en cuanto al contacto del funcionario con el público, y a las consultas que las partes interesadas formulen a los servidores.
+33) Violentar las disposiciones que las Direcciones del Registro respectivo establezcan en cuanto al contacto del funcionario con el público, Y a las consultas que las partes interesadas formulen a los servidores.
+34) Negarse a atender o realizarlo de manera inadecuada a usuarios del Registro Nacional por pertenecer los mismos a una población sexual mente diversa.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39656 del 29 de febrero del 2016)

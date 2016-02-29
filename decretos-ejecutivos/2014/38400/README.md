@@ -14,3 +14,4 @@ Reglamento autónomo de servicio del Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-15 | la propia norma |
+| 2 | 2016-02-29 | Decreto Ejecutivo 39656 (2016-02-29) |

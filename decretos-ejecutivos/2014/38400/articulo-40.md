@@ -1,7 +1,7 @@
 SECCIÓN TERCERA
 De Las licencias
-Artículo 40.—Licencias con goce salario. Los funcionarios del Registro Nacional podrán disfrutar excepcionalmente de licencias con goce de salario, en las circunstancias y en los casos calificados conforme lo estipulado por el artículo 33 del Reglamento del Estatuto de Servicio Civil.
-A. Motivos de orden familiar: por matrimonio del Trabajador, por nacimiento de cada hijo, por fallecimiento de los padres, hijos, hermanos y cónyuge, la Jefatura otorgará una semana.
+Artículo 40. -Licencias con goce salario. Los funcionarios del Registro Nacional podrán disfrutar excepcionalmente de licencias con goce de salario, en las circunstancias y en los casos calificados conforme lo estipulado por el artículo 33 del Reglamento del Estatuto de Servicio Civil.
+A. Motivos de orden familiar: por matrimonio del Trabajador, por nacimiento de cada hijo, por fallecimiento de los padres, hijos, hermanos y cónyuge o compañero, la Jefatura otorgará una semana.
 B. Casos de familiares en fase terminal: el otorgamiento esta licencia, se regirá de conformidad con lo siguiente:
 Requisitos:
 1) Solicitar por escrito el otorgamiento de esta licencia, ante el Director General, aportando dictamen extendido por el médico tratante del paciente en el cual se determine la fase terminal;
@@ -20,3 +20,4 @@ El Máximo Jerarca de la Institución podrá también otorgar licencia con goce 
 2) Los permisos para que los servidores asistan a invitaciones de Gobiernos o de Organismos Internacionales y participen en seminarios y congresos internacionales o actividades similares en el exterior, todas relacionadas con la gestión del Registro Nacional, serán concedidos por el Máximo Jerarca de la Institución, siempre que no excedan de tres meses con fundamento en el artículo 40 del Reglamento de Estatuto de Servicio Civil. Para su trámite, deberán solicitarlo con un mínimo de cinco días de anticipación ante el Departamento de Gestión Institucional, con los vistos buenos del Superior Jerárquico Inmediato y el Director General.
 Todos los demás permisos con goce de sueldo, que de acuerdo con las disposiciones reglamentarias internas procedan, podrán ser deducidos del período de vacaciones, sin que el número de días de la licencia exceda el número de días de vacaciones que correspondan al funcionario al momento de otorgarse el permiso.
 En todos los casos previstos en este artículo deberá aportarse el respectivo comprobante ante el Departamento de Gestión Institucional de Recursos Humanos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39656 del 29 de febrero del 2016)
