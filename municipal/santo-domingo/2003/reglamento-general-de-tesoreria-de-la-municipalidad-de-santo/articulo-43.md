@@ -1,1 +1,0 @@
-Artículo 43.—Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno, variar el monto establecido para el fondo de Caja Chica y el monto máximo para la adquisición de bienes y servicios, según solicitud escrita y justificada que le haga el Departamento de Tesorería o la Dirección Financiera.

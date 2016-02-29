@@ -1,1 +1,0 @@
-Artículo 45.—La Caja Chica, mantendrá siempre el total del monto asignado, el cual estará integrado de dinero en efectivo, vales liquidados, vales pendientes de liquidación y vales en trámite de reintegro. En ningún momento ni por motivo alguno, se podrán sustituir esos valores por otros de naturaleza distinta al de Caja Chica.

@@ -1,1 +1,0 @@
-Artículo 28.—Los cheques debidamente prenumerados en forma consecutiva, serán emitidos por el Departamento de Contabilidad, en estricto orden numérico, previa revisión y codificación de la documentación por parte del contador encargado.

@@ -1,1 +1,0 @@
-Artículo 25.—Los ingresos diarios que reciba la Tesorería, deben ser depositados al final del día de su recepción, en la(s) cuenta(s) bancaria(s) correspondiente; salvo situaciones justificadas que constarán en acta al respecto, donde se procederá con el depósito el día hábil siguiente.

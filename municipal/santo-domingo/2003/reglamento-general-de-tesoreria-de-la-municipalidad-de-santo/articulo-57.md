@@ -1,1 +1,0 @@
-Artículo 57.—Si realizado un arqueo, resulta una diferencia, ésta debe ser justificada por el responsable de caja chica, quien además deberá en forma inmediata depositar el sobrante o reintegrar el faltante, según corresponda.

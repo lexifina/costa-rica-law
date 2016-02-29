@@ -1,1 +1,0 @@
-Artículo 32.—Para la firma de cheques siempre se requiere el concurso del Tesorero(a) y el Alcalde Municipal o en su defecto de cualquier otro funcionario debidamente autorizado mediante acuerdo de Concejo Municipal.

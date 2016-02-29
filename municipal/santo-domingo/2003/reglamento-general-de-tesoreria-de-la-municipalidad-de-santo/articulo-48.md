@@ -1,1 +1,0 @@
-Artículo 48.—El vale de caja chica debe emitirse en original y copia en formulario prenumerado en forma consecutiva que será suministrado a las jefaturas de las dependencias municipales, por el Departamento de Proveeduría de la Municipalidad.

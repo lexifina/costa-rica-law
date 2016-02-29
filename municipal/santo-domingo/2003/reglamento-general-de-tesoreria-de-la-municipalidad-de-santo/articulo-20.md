@@ -1,1 +1,0 @@
-Artículo 20.—Todo pago realizado con cheque quedará sujeto a que el Banco gire contra la presentación del cheque; en el caso de devolución del cheque por falta de fondos, errores u omisiones, el Tesorero(a) procederá de inmediato con la anulación del pago.

@@ -1,1 +1,0 @@
-Artículo 56.—Es responsabilidad de la Auditoría realizar arqueos en forma sorpresiva al fondo fijo de caja chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de Auditoría vigentes y de las sanas prácticas de la Administración.

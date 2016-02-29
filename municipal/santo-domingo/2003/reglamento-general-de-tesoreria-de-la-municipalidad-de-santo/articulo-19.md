@@ -1,1 +1,0 @@
-Artículo 19.—Cuando el pago se realice con cheque, el mismo se emitirá a nombre de la Municipalidad por el total exacto del recibo, en el dorso el cajero asentará, el número de comprobante de ingreso, el número de cédula y el número de teléfono del emisor, así como cualquier otro dato que se considere relevante.

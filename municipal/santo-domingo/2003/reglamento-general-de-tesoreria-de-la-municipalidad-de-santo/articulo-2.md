@@ -1,1 +1,0 @@
-Artículo 2º—La Tesorería de la Municipalidad está bajo la responsabilidad del Tesorero(a). En las ausencias del Tesorero(a) sea por vacaciones, incapacidad etc., la Alcaldía Municipal, designará un sustituto quien asumirá los deberes, obligaciones y responsabilidades del Tesorero(a) titular.
