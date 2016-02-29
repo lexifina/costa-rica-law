@@ -14,3 +14,4 @@ Reforma Autorización para el uso de factura electrónica y documentos electrón
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-09 | la propia norma |
+| 2 | 2016-02-29 | Resolución 14 (2016-02-29) |
