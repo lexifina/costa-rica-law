@@ -1105,7 +1105,8 @@ Poblados: Abelardo Rojas, Alto Alemania, Atirro, Balalaica, Buenos Aires, Canad�
 305 03 PERALTA: Villa ALTITUD: 390 m.
 Poblado: El Seis.
 305 04 SANTA CRUZ: Villa: ALTITUD: 1 475 m.
-Poblados: Bajos de Bonilla, Bolsón (parte), Bonilla, Buenos Aires, Calle Vargas, Carmen (parte), Esperanza, Guayabo Arriba, La Central, La Fuente, Pastora, Picada, Raicero, Reunión, San Antonio, San Diego, Torito (parte).
+Poblados: Bajos de Bonilla, Bolsón (parte), Bonilla, Buenos Aires, Calle Vargas, Carmen (parte), Esperanza, Guayabo Arriba, La Central, La Fuente, Pastora, Picada, Raicero, Reunión, San Antonio, San Diego, Torito (parte). San Rafael(*)
+(*) (Mediante acuerdo N° 006 del 29 de febrero de 2016, el poblado de San Rafael, pasó a formar parte del distrito de Santa Cruz. Asimismo los límites para este poblado pueden ser consultados en el artículo 2° del acuerdo antes mencionado.)
 305 05 SANTA TERESITA: Lajas. Villa: ALTITUD: 480 m.
 Barrio: Cooperativa.
 Poblados: Bonilla Arriba, Buenavista, Cas, Cimarrones, Colonia Guayabo, Colonia San Ramón, Corralón, Dulce Nombre, El Dos, Fuente, Guayabo (parte), Líbano, Nueva Flor, Palomo, Pradera, Sandoval, Santa Tecla, Sauce, Torito (parte), Torito (sur).
@@ -1117,7 +1118,8 @@ Poblados: Alto Surtubal, Ángeles, Bajo Pacuare (norte), Cabeza de Buey, Cien Ma
 305 08 TAYUTIC: Platanillo. Villa: ALTITUD: 870 m.
 Poblados: Bajo Pacuare (sur), Dos Amigos, Dulce Nombre, Guineal, Jicotea, Mina, Morado, Quebradas, San Martín, San Rafael, Tacotal.
 305 09 SANTA ROSA: Villa: ALTITUD: 810 m.
-Poblados: Aquiares, Bolsón (parte), Carmen (parte), Río Claro, San Rafael, Verbena Norte, Verbena Sur.
+Poblados: Aquiares, Bolsón (parte), Carmen (parte), Río Claro, San Rafael(*), Verbena Norte, Verbena Sur.
+(*) (Mediante acuerdo N° 006 del 29 de febrero de 2016, el poblado de San Rafael, pasó a formar parte del distrito de Santa Cruz.)
 305 10 TRES EQUIS: Villa: ALTITUD: 630 m.
 Poblados: Alto June, Corozal, Flor, Guanacasteca, Isla Bonita(parte), Pilón de Azúcar, San Pablo, Sol.
 305 11 LA ISABEL: El Mora. Villa: ALTITUD: 630 m.
