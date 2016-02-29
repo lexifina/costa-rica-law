@@ -1,0 +1,1 @@
+Artículo 10.—Quórum de la Asamblea. En primera convocatoria el quórum requerido para sesionar será la mayoría absoluta, es decir, la mitad más uno de la totalidad de los miembros que la conforman. En caso de no existir quórum en la primera convocatoria, podrá sesionarse en segunda convocatoria con al menos una tercera parte de la totalidad de los miembros de la Asamblea.
