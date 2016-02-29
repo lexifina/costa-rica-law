@@ -1,0 +1,29 @@
+N° 39416-RE
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE RELACIONES EXTERIORES Y CULTO
+Con fundamento en el artículo 140, incisos 3) ,8), 12) y 20) y el artículo 146 de la Constitución Política.
+POR CUANTO:
+En la ciudad de Madrid, España, el día dos de octubre de dos mil quince, se suscribió el Memorando de Entendimiento sobre Cooperación entre el Gobierno de la República de Costa Rica y la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura (OEI), firmando por el Gobierno de la República de Costa Rica, la señora Doris Osterlof Obregón, Embajadora de Costa Rica en el Reino de España, con Plenos Poderes, para tales efectos.
+Considerando:
+1°—Que el artículo 3 del Estatuto de la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura (OEI) suscrito en la ciudad de Panamá, el 2 de diciembre de 1985, establece que para el cumplimiento de sus fines, la OEI podrá celebrar Acuerdos con los Gobiernos Iberoamericanos.
+2°—Que los fines de la OEI, según el artículo 2 de sus Estatutos son, entre otros, promover y cooperar con los Estados Miembros en las actividades orientadas a la elevación de los niveles educativo, científico, tecnológico y cultural; el fomentar la educación como alternativa válida y viable para la construcción de la paz, mediante la preparación del ser humano para el ejercicio de los derechos humanos y los cambios que posibiliten sociedades más justas para Iberoamérica en la realización de sus planes educativos, científicos-tecnológicos y culturales.
+3°—Que el presente Memorando tiene como fundamento jurídico el mencionado Estatuto, el cual fue aprobado mediante Ley número 9119 del 7 de febrero de 2013, publicada el 5 de marzo de 2013 en el Alcance 42 de La Gaceta número 45. Por tanto,
+En uso de las facultades conferidas por el artículo 140, incisos 10) y 12) de la Constitución Política.
+DECRETAN:
+Artículo 1.- Promulgar teniendo como vigente para los efectos internos y externos, el Memorando de Entendimiento sobre Cooperación entre el Gobierno de la República de Costa Rica y la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura (OEI), cuyo texto literal es el siguiente:
+MEMORANDO DE ENTENDIMIENTO SOBRE COOPERACIÓN ENTRE
+EL GOBIERNO DE LA REPÚBLICA DE COSTA RICA Y LA ORGANIZACIÓN
+DE ESTADOS IBEROAMERICANOS PARA LA EDUCACIÓN,
+LA CIENCIA Y LA CULTURA (OEI)
+El Gobierno de la República de Costa Rica, en adelante “el Gobierno” y la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura (OEI), en adelante “la OEI”,
+CONSIDERANDO
+I. Que la Organización de Estados Iberoamericanos para la Educación, Ciencia y la Cultura es un organismo internacional de carácter gubernamental para la cooperación entre países de Iberoamérica.
+II. Que mediante Ley número 9119 del 7 de febrero de 2013, la Asamblea Legislativa aprueba los Estatutos y el Reglamento Orgánico de la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura, suscritos en la ciudad de Panamá, el 2 de diciembre de 1985 y el 3 de diciembre de 1985, respectivamente.
+III. Que el artículo 2 del Capítulo 1 de los estatutos de la Organización de Estados Iberoamericanos para la Educación, Ciencia y la Cultura se establece que el propósito fundamental es el desarrollo y el intercambio educativo, científico, tecnológico y cultural de los Estados Miembros, con el objetivo de contribuir a elevar el nivel cultural de sus habitantes como personas, formarlos integralmente para la vida productiva y para las tareas que requiera el desarrollo integral y fortalecer los sentimientos de paz, democracia y justicia social.
+IV. Que los fines de la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura, según consta en el artículo 2 del Capítulo I de sus Estatutos son, entre otros, promover y cooperar con los Estados Miembros en las actividades orientadas a la elevación de los niveles educativo, científico, tecnológico y cultural; el fomentar la educación como alternativa válida y viable para la construcción de la paz, mediante la preparación del ser humano para el ejercicio de los derechos humanos y los cambios que posibiliten sociedades más justas para Iberoamérica en la realización de sus planes educativos, científicos-tecnológicos y culturales, y colaborar especialmente en el perfeccionamiento y coordinación de sus servicios técnicos.
+V. Que el artículo 3 del Estatuto de la OEI, establece que” para el cumplimiento de sus fines, la Organización de Estados Iberoamericanos para la Educación, la Ciencia y la Cultura podrá celebrar acuerdos y suscribir convenios y demás instrumentos legales con los Gobiernos Iberoamericanos, con otros Gobiernos, con Organizaciones Internacionales y con instituciones, centros y demás entidades educativas científicas y culturales”.
+VI. Que en septiembre de 2010, en Buenos Aires (Argentina), los Ministros de Educación Iberoamericanos aprobaron y ratificaron la iniciativa “Metas Educativas 2021: La Educación que queremos para la generación de los Bicentenarios” cuyo objetivo estratégico es hacer frente a los retos pendientes del siglo XX, sobre todo en el campo de la alfabetización y la educación básica de jóvenes y adultos, del acceso a la educación y de la calidad de la enseñanza, del aumento de la oferta en la educación inicial y el uso de las tecnologías de la comunicación en el proceso de enseñanza y aprendizaje.
+Han convenido suscribir el presente Memorando de Entendimiento sobre cooperación (en adelante, el “Memorando”):
+Artículo 1
+OBJETIVO
+El presente Memorando de Entendimiento tiene como objetivo establecer mecanismos de cooperación interinstitucional entre las partes, mediante la realización de actividades, proyectos y programas de cooperación considerados de interés mutuo y con carácter preferente, para asegurar el derecho a una educación de calidad de todos los costarricenses.

@@ -1,0 +1,6 @@
+Artículo 3
+ÁREAS DE COOPERACIÓN
+Para la consecución del objetivo del presente Memorando, las Partes podrán llevar a cabo acciones de cooperación en las siguientes áreas:
+a) Educación. Sistemas educativos que cumplan el triple cometido humanista, desarrollando la formación ética, integral y armónica de las nuevas generaciones: social y de democratización, asegurando la igualdad de oportunidades educativas; y productivo, preparando la vida del trabajo. Igualmente fomentando la educación como alternativa válida y viable para la construcción de la paz, mediante la preparación del ser humano para el ejercicio responsable de la libertad, la solidaridad, la defensa de los derechos humanos y los cambios que posibiliten una sociedad mas justa para Iberoamérica.
+b) Ciencia y Tecnología. En el marco del desarrollo e intercambio de conocimiento entre los Estados Miembros con el objeto de contribuir a elevar el nivel de formación integral para la vida productiva y para las tareas que requiere el desarrollo integral y fortalecer la paz, democracia y justicia.
+d) Cultura. Preservando y conservación de la identidad cultural de los pueblos de Iberoamérica expresada en el plurilingüismo de su cultura, así como la preservación y conservación en las minorías culturales residentes en otros países.

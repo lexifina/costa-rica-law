@@ -1,0 +1,3 @@
+Artículo 5
+CONVENIOS ESPECÍFICOS
+El presente Memorando no establece compromisos financieros para ninguna de las Partes. Para las acciones concretas, el Gobierno y la OEI podrán elaborar, por parte de los ministerios o instituciones involucradas, convenios específicos de cooperación y/o programas/proyectos específicos en los que se identificará el área responsable de la ejecución y los recursos disponibles y/o fuente de financiamiento, el calendario de duración y los alcances de la responsabilidad de cada institución. Dichos programas/proyectos y convenios específicos serán suscritos por las autoridades competentes de cada institución, sujeto a disponibilidad presupuestaria y deberán observar las normas y procedimientos que establece la legislación nacional.
