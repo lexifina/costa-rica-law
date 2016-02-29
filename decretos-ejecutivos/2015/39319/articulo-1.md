@@ -1,0 +1,14 @@
+Nº 39319-MAG
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE AGRICULTURA Y GANADERÍA
+En uso de las facultades conferidas por los artículos 140, incisos 3), 8), 18) y 20) y 146) de la Constitución Política y los artículos 25, 27.1, 28.2b de la Ley 6227 del 2 de mayo de 1978, Ley General de la Administración Pública, la Ley Nº 7138 del 16 de noviembre de 1989, la Ley Nº 7384 del 16 de marzo de 1994, Ley de Creación del Instituto Costarricense de Pesca y Acuicultura y la Ley Nº 8436 del 1º de marzo del 2005, Ley de Pesca y Acuicultura.
+Considerando:
+1º—Que el artículo 60 de la Ley Nº 7138 de 16 de noviembre de 1989, establece la potestad del Poder Ejecutivo de remunerar las dietas de los miembros de las Juntas Directivas, de las Instituciones Autónomas y demás Junta Directivas nombradas por el Poder Ejecutivo, de conformidad con el índice de inflación que determine el Banco Central de Costa Rica.
+2º—Que las dietas a los miembros de la Junta Directiva del Instituto Costarricense de Pesca y Acuicultura, no se les ha aplicado los aumentos anuales de los periodos 2011, 2012, 2013 y 2014.
+3°—Que según las disposiciones normativas aplicables, en relación con los montos de variación acumulada correspondiente a los índices de inflación, (índice de precios al consumidor), a diciembre de los años 2011, 2012, 2013 y 2014; datos que fueron suministrados por la Sección de Estadísticas del Banco Central de Costa Rica y por el Instituto Nacional de Estadísticas y Censos (INEC); y en apego a los principios de lógica y conveniencia, se hace necesario ajustar las dietas a los miembros de la Junta Directiva del INCOPESCA, en aras de compensar el aumento en el costo de vida y la inflación, por lo que deberán de fijarse las mismas en la suma de ¢50.475,00 (cincuenta mil cuatrocientos setenta y cinco colones exactos), suma que incluye la inflación de los períodos 2011, 2012, 2013 y 2014 citados.
+4º—Que el rige del aumento a las dietas establecido en el presente Decreto, será a partir de su publicación, para lo cual el INCOPESCA cuenta con los recursos presupuestarios necesarios y aprobados, para atender el pago de las mismas.
+5°—Que se procedió a llenar el Formulario de Evaluación Costo Beneficio en la Sección I denominada Control Previo de Mejora Regulatoria, siendo que el mismo dio resultado negativo y que la propuesta no contiene trámites ni requisitos. Por tanto,
+DECRETAN:
+FIJACIÓN DEL MONTO DE LAS DIETAS PARA MIEMBROS
+DE LA JUNTA DIRECTIVA DE INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+Artículo 1º—Se fija como monto de las dietas para los miembros de la Junta Directiva del Instituto Costarricense de Pesca y Acuicultura (INCOPESCA), por concepto de su asistencia a las sesiones correspondientes, de conformidad con lo dispuesto en la Ley Nº 7384, por cada dieta la suma de ¢50.475,00 (cincuenta mil cuatrocientos setenta y cinco colones exactos).
