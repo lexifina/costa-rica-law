@@ -1,0 +1,1 @@
+Artículo 70.—Saldo al descubierto. Si con el monto de adjudicación no se cancela el total adeudado, el abogado encargado del proceso de cobro solicitará al Juzgado emitir la resolución que fije el saldo al descubierto, con la finalidad de proceder a perseguir otros bienes de los demandados y hacer efectivo ese saldo.

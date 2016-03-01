@@ -1,0 +1,1 @@
+Artículo 64.—Condiciones crediticias aplicables. Las condiciones crediticias que se den en este tipo de arreglo, se ajustarán a lo establecido en el “Reglamento General de Crédito del INFOCOOP para los Recursos: Propios, CRICODAP, Diferencial Cambiario, Juveniles y PL 480”.

@@ -1,0 +1,2 @@
+Artículo 6°—De la elaboración y solicitud de financiamiento.
+Para el trámite de financiamiento ante el INFOCOOP, el Organismo Cooperativo deberá presentar ante el Área de Financiamiento la respectiva solicitud de crédito. El formulario que se anexa a este reglamento (anexo # 1), deberá adjuntar toda la información y documentos requeridos para realizar el trámite de análisis respectivo, en el cual se debe velar para que el Organismo Cooperativo cumpla con las condiciones establecidas por el BCIE para cada tipo de programa de crédito.

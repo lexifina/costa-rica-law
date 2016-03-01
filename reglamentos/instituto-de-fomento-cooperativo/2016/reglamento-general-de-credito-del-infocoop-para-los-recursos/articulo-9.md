@@ -1,0 +1,1 @@
+Artículo 9°—Formalización y desembolso. Una vez aprobado el crédito por la Junta Directiva de INFOCOOP, corresponderá al Área de Financiamiento la formalización y constitución de las correspondientes garantías.

@@ -1,0 +1,1 @@
+Artículo 71.—Adjudicación a INFOCOOP. Cuando el bien fuere adjudicado al INFOCOOP en remate, el abogado encargado del proceso de cobro solicitará a la autoridad judicial competente la aprobación del mismo, y procederá a comunicar de inmediato, de forma escrita al Área de Financiamiento.

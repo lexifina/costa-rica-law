@@ -1,0 +1,1 @@
+Artículo 57.—Presentación de informe trimestral. Trimestralmente, el Área de Financiamiento presentará a la Dirección Ejecutiva un informe individualizado de cada cobro judicial pendiente, conjuntamente con el informe de cartera.

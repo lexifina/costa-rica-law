@@ -1,0 +1,2 @@
+Artículo 33.—Asistencia técnica y otros. Los prestatarios deberán sujetarse a las recomendaciones técnicas o de otra naturaleza que eventualmente brinde el INFOCOOP o el BCIE en el ámbito de su competencia y de conformidad con lo establecido en el contrato de financiamiento.
+Los Organismos Cooperativos que en virtud de mejor criterio técnico no acepten las recomendaciones propuestas, quedarán obligados a presentar una solución alterna razonable para lo cual deberá ser aprobada por el INFOCOOP o el BCIE.

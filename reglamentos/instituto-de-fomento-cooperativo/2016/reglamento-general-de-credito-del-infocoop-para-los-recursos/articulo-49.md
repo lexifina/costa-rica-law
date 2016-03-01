@@ -1,0 +1,1 @@
+Artículo 49.—Traslado del expediente. El Área de Financiamiento preparará y trasladará al abogado encargado de cobro judicial un expediente que contendrá toda la información necesaria para el inicio de la acción judicial. Asimismo, girará las instrucciones escritas, claras y precisas que estime conveniente.

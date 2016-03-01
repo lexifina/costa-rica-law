@@ -1,0 +1,1 @@
+Artículo 38.—Pagos en Día Inhábil. Todo pago o cualquier otro acto que de acuerdo con la Línea Global de Crédito del BCIE debiera llevarse a cabo en sábado, domingo o en día feriado, o en día inhábil bancario según el lugar de pago que el INFOCOOP haya comunicado, podrá ser válidamente realizado el día hábil bancario posterior.

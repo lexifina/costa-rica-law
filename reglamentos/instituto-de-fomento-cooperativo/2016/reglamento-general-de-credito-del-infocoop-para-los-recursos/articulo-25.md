@@ -1,0 +1,1 @@
+Artículo 25.—Errores materiales: En caso de errores materiales, serán resueltos por el Área de Financiamiento, con la autorización del Director Ejecutivo, quien posteriormente presentara un resumen ejecutivo a la Junta Directiva de las modificaciones realizadas.

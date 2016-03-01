@@ -1,0 +1,1 @@
+Artículo 5°—Información. El Área de Financiamiento proporcionará al Organismo Cooperativo la información relativa a las condiciones y requisitos establecidos por el INFOCOOP conforme a los programas del BCIE.

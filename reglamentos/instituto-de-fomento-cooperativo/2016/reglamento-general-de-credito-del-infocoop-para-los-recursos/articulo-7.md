@@ -1,0 +1,1 @@
+Artículo 7°—Identificación de la cartera en garantía al BCIE. El INFOCOOP a través del Área de Financiamiento mantendrá en todo momento la cartera dada en garantía al BCIE, adecuadamente identificada como tal, para lo cual utilizará un sello que indique “Cartera en Garantía del Banco Centroamericano de Integración Económica.
