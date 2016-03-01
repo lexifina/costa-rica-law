@@ -1,0 +1,2 @@
+Artículo 23: Participación de la Auditoría Interna, Gerencia General o Director Jurídico en las Sesiones de la Junta Directiva:
+A las sesiones de Junta Directiva podrán asistir a solicitud del Presidente o de cualquier Director con vos pero sin voto el Auditor General o el Sub Auditor General o ambos, el Gerente General y el Director Jurídico quienes deberán evacuar son sus opiniones cualquier tema que esté en discusión.

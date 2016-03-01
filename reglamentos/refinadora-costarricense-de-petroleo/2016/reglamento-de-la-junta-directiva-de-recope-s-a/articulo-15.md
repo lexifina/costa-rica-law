@@ -1,0 +1,2 @@
+Artículo 15: Del deber de Imparcialidad, Objetividad, Discreción de la Administración y Fiscalización Superior:
+Los miembros de la Junta Directiva, el Presidente, el Gerente General, Gerentes de Área, Asesores, Apoderados, deben evitar que con su actuar se ponga en entredicho la imparcialidad y la objetividad de sus actos, velando primordialmente por la confidencialidad, la discreción y tomando en cuenta las restricciones por el uso de información privilegiada de la Empresa a la cual tienen acceso.

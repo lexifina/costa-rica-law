@@ -1,0 +1,2 @@
+Artículo 10: Ausencia o Impedimento Temporal del Secretario:
+El Secretario de la Junta Directiva, será reemplazado en su ausencia o impedimento temporal, por el primer vocal el cual tendrá las mismas facultades de aquel. En ausencia de éste último desempeñará sus funciones el segundo vocal y en su ausencia el tercer vocal.
