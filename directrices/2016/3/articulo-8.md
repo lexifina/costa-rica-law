@@ -1,0 +1,1 @@
+8. Vigencia: La Norma Técnica de Información Geográfica denominada NTIG_CR03_01.2016: Modelo de Datos Geográficos de Costa Rica, Escalas 1:1.000, 1:5.000 y 1:25.000 rige a partir de su publicación en el Diario Oficial La Gaceta.
