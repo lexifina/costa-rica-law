@@ -1,5 +1,5 @@
 Artículo 42. - El servidor (a) tiene derecho a:
-a) Carrera administrativa en la Institución, la que significa que debe preferirse en igualdad de condiciones y requisitos en cada plaza vacante a los servidores (as) regulares más antiguos que por su capacidad y responsabilidad resulten idóneos para el cargo, conforme con los procedimientos establecidos.
+a) (Derogado por el artículo 23 del Estatuto de Selección, Nombramientos en Propiedad Interinos y Ascensos, aprobado mediante acuerdo N° 1978 y publicado en La Gaceta N° 49 del 10 de marzo del 2016)
 b) Los medios necesarios y facilidades para que pueda efectuar las labores a su cargo con el alto grado de eficiencia que se le pide.
 c) La información necesaria para comprender las actividades que se realizan y los objetivos que se buscan.
 d) Las instrucciones y explicaciones adecuadas para definir las responsabilidades y la posición de cada uno dentro de la organización funcional del Defensor (a).
