@@ -1,0 +1,2 @@
+Artículo 10: Requisitos para el préstamo
+La solicitud de préstamo de cualquier material bibliográfico debe ser realizada personalmente por el usuario interesado, mediante la presentación del respectivo documento de identificación y registro en el sistema del CEDI. Los usuarios internos que no cuenten con su carné institucional, solo tendrán derecho a préstamo para sala, previa presentación de una identificación con fotografía.

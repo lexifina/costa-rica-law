@@ -1,0 +1,5 @@
+Artículo 2: Objetivos del CEDI
+a. Implementar un servicio técnico de información respetando estándares internacionales que acompañen los procesos de investigación derivados de las funciones propias del CEDI, utilizando las nuevas tecnologías de información entre ellas Internet y otras herramientas que faciliten el acceso y la difusión de información del quehacer institucional.
+b. Desarrollar y mejorar continuamente el acervo bibliográfico constituido por diferentes tipos de materiales inherentes a las áreas de gestión institucional y mantenerlas actualizadas de acuerdo a las necesidades de los usuarios.
+c. Facilitar un proceso de capacitación continua de los usuarios que garantice el uso racional de los recursos disponibles y permita mejorar constantemente los vínculos con organizaciones similares que satisfagan las necesidades de los usuarios en esta materia.
+d. Propiciar alianzas estratégicas con redes y servicios de información especializadas en los campos de cobertura temática que potencien los servicios que presta el CEDI y faciliten el enriquecimiento del acervo bibliográfico.

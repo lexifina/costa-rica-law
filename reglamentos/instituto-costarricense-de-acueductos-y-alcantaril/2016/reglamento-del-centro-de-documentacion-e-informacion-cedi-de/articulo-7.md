@@ -1,0 +1,2 @@
+Artículo 7: Cese de derechos
+El o Los(as) Funcionarios(as) que por renuncia, pensión, despido con o sin responsabilidad patronal o cese de funciones, dejará de ser prestatario del CEDI y los materiales que tengan en préstamo, deberá devolverlo al menos con ocho días de anticipación antes de su retiro definitivo. Para ello la Dirección Gestión Capital Humano notificará e informará obligatoriamente, en forma inmediata, por escrito al CEDI lo que corresponda, en cuanto al capital humano institucional.

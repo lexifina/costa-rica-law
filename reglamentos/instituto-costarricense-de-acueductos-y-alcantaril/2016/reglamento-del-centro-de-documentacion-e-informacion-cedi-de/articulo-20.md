@@ -1,0 +1,9 @@
+CAPÍTULO V
+De las sanciones
+Artículo 20: Sanciones
+El incumplimiento a las disposiciones de este Reglamento ameritará, según la falta, la aplicación de las siguientes sanciones:
+a. El cobro del valor del daño causado al material bibliográfico, se determinará con base en el costo del bien o activo según la depreciación, al momento del hecho.
+b. En el caso de usuarios internos que tengan alguna deuda con el CEDI por morosidad, CEDI procederá a notificar formalmente al interesado o interesada acerca de la cancelación de la deuda y la multa correspondiente, la cual se deberá cancelar dentro del plazo estipulado en la notificación, por medio de un comprobante de ingreso ante la Dirección Financiera de la institución.
+c. Cuando el daño o pérdida sea producto de un accidente imprevisto, el CEDI determinará bajo su criterio técnico, el costo y el beneficio, la incobrabilidad del bien. Si el daño es ocasionado a un recurso bibliográfico producto de un préstamo interbibliotecario , el usuario deberá reponer el bien o cubrir el costo del mismo estimado por la entidad que originalmente lo prestó al CEDI, previa notificación realizada por el CEDI al usuario conforme al debido proceso.
+d. Cuando ocurriere la pérdida de material bibliográfico solicitado, el usuario lo reportará por escrito al CEDI. Para tal efecto le concederá un plazo máximo de 10 días hábiles, para la reposición del material. Pasado dicho lapso, El CEDI iniciará el proceso cobratorio o de reposición del mismo conforme al debido proceso, según el valor del activo.
+e. El usuario que solicita materiales bibliográficos en préstamo se hará responsable de los daños o pérdidas que éstos sufran, cuando los mismos sean ocasionados por descuido o negligencia de su parte, durante el tiempo que estén bajo su responsabilidad, conforme al debido proceso por parte del CEDI.
