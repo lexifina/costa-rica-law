@@ -14,3 +14,4 @@ Reglamento general de la proveeduría municipal de la Municipalidad de Santa Cru
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-16 | la propia norma |
+| 2 | 2016-03-01 | Reglamento municipal 9 (2016-03-01) |

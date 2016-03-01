@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE SANTA CRUZ
+(Esta norma fue derogada por el artículo 105 del Reglamento de contratación administrativa de la Municipalidad de Santa Cruz, aprobado en sesión N° 09 del 1° de marzo de 2016.)
 REGLAMENTO GENERAL DE LA
 PROVEEDURÍA MUNICIPAL
 CAPÍTULO I
