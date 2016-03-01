@@ -1,1 +1,0 @@
-Artículo 151.—Restricción. La Proveeduría institucional no cursará invitación a aquellos proveedores que se encuentren incluidos en la lista de personas con incompatibilidades o que hayan sido sancionados con suspensión, durante el plazo de la sanción interpuesta.

@@ -1,1 +1,0 @@
-Artículo 23.—Declaratoria de desierto o infructuoso. El órgano competente para declarar desierto o infructuoso un concurso o licitación por razones debidamente fundamentadas, será el órgano competente para adjudicar. Se aplicará lo que al efecto establece el artículo 15 del Reglamento.

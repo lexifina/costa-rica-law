@@ -1,8 +1,0 @@
-CAPÍTULO QUINTO
-Formación de la voluntad administrativa
-Artículo 21.—Programa Anual de Adquisiciones.
-1. Todas las unidades administrativas del IMAS deberán planificar sus necesidades de bienes y servicios, incluyendo posibles arrendamientos de equipo o inmuebles.
-2. La Proveeduría integrará toda la información, basada en las previsiones contenidas en el presupuesto anual asignado y publicará el Programa Anual de Adquisiciones de la Institución, en el Diario Oficial, en el primer mes de cada periodo presupuestario.
-3. El programa de adquisiciones deberá contener la siguiente información: a) Tipo de bien, servicio u obra a contratar, b) Proyecto o programa para el cual se realizará la contratación, c) Monto estimado de la contratación, d) Periodo estimado de inicio de los procedimientos de contratación, e) Fuente de financiamiento, f) Cualquier otra información complementaria que contribuya a la identificación del bien o servicio.
-4. En el primer mes de cada periodo presupuestario, debe darse a conocer el Programa de adquisiciones, para lo cual podrá publicarse en el Diario Oficial o en otros medios electrónicos, En este último caso, la Proveeduría, deberá informarlo en el Diario Oficial o en dos diarios de circulación nacional. Cualquier modificación al Programa Anual de Adquisiciones por parte de alguna unidad administrativa, deberá remitirse mediante solicitud formal autorizada por la Gerencia General, en la que conste el motivo de la modificación. La Proveeduría procederá a la publicación de la modificación en el Diario Oficial.
-5. Se excluye de la obligación de publicación las contrataciones efectuadas con prescindencia de los procedimientos ordinarios y las efectuadas con fundamento en los supuestos de urgencia.

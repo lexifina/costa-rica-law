@@ -1,4 +1,0 @@
-Artículo 131.—Pagos por contrataciones irregulares. Cuando se presente una contratación irregular en los términos del artículo 210 del Reglamento a la Ley de Contratación Administrativa, se procederá de la siguiente forma:
-a) Las Unidades Administrativas que detecten una contratación irregular deberán informar a la Gerencia General sobre tal situación.
-b) La Gerencia General solicitará a la Asesoría Jurídica el criterio correspondiente, adjuntando un informe de lo acontecido. Igualmente podrá solicitar informes a otras Unidades Administrativas, que considere pertinente.
-c) La Gerencia General, con base en los informes recibidos, preparará una resolución administrativa procediendo al reconocimiento del pago y/o indemnización correspondiente, estableciendo las retenciones respectivas y ordenará la apertura del procedimiento administrativo a los funcionarios responsables, con plena garantía del debido proceso.

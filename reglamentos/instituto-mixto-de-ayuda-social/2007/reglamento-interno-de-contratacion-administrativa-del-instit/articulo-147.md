@@ -1,1 +1,0 @@
-Artículo 147.—Adquisición de otros bienes y servicios. La adquisición o contratación de los demás bienes y servicios que requieran las Empresas Comerciales del IMAS, para su operación, se regirá por los procedimientos formales de la Ley de Contratación Administrativa y su Reglamento.

@@ -1,1 +1,0 @@
-Artículo 46.—Registro de Control de Garantías. La Proveeduría deberá llevar un Registro de Control de las Garantías de Participación y de Cumplimiento y será su responsabilidad mantener a derecho las garantías rendidas, en cuanto a su vigencia, monto, devolución o ejecución.

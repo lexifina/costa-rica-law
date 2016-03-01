@@ -1,1 +1,0 @@
-Artículo 59.—Recepción de ofertas. Llegada la hora y fecha límites fijadas en las bases de la contratación, se tendrá por cerrado el plazo de recepción de ofertas. Para el control de la hora límite se utilizará el reloj marcador de la Proveeduría.

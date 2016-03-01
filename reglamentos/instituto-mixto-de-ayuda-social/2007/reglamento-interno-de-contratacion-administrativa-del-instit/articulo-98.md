@@ -1,1 +1,0 @@
-Artículo 98.—Plazos y forma para recibir ofertas. El plazo para recibir ofertas en la Contratación Directa se fijará de acuerdo con la naturaleza del bien o servicio solicitado, no pudiendo ser menor a tres días hábiles. En todo caso, no se considerarán ofertas recibidas posteriormente a la hora y fecha que se haya indicado en las Peticiones de Ofertas.

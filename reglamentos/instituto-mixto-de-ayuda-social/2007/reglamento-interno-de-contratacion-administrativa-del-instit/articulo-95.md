@@ -1,1 +1,0 @@
-Artículo 95.—Apertura de Expediente. La Proveeduría iniciará el procedimiento de Contratación Directa con la apertura de un expediente debidamente numerado, foliado e identificado, donde constarán todas las actuaciones administrativas.

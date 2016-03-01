@@ -1,1 +1,0 @@
-Artículo 31.—Agrupación de Pedidos para evitar fraccionamientos. La Proveeduría procurará reunir las Solicitudes de Pedido de las diferentes unidades solicitantes que versen sobre bienes o servicios de la misma naturaleza, siempre que las circunstancias concurrentes lo permitan, con el objeto de obtener las mejores condiciones contractuales y de evitar un fraccionamiento ilícito.

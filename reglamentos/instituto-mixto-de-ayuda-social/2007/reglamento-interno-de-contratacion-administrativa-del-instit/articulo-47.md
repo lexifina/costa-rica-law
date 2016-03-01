@@ -1,2 +1,0 @@
-Artículo 47.—Monto y plazo de las Garantías. El monto y plazo mínimo de las Garantías de Participación y de Cumplimiento para cada contratación lo determinará la Proveeduría, de acuerdo con lo establecido en la Ley y su Reglamento.
-Se considerará los siguientes parámetros: monto estimado de la contratación, tipo de concurso, disponibilidad de oferentes en el Registro de Proveedores, monto de las multas que se cobrarán por incumplimientos de contrato, tiempo de ejecución y complejidad del contrato.

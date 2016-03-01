@@ -1,1 +1,0 @@
-Artículo 87.—Declaratoria sin lugar del recurso de apelación. Si la Contraloría General de la República declara sin lugar el recurso, el acto de adjudicación se tendrá como firme, se producirá el agotamiento de la vía administrativa y se proseguirá con los trámites necesarios para iniciar la formalización del contrato.

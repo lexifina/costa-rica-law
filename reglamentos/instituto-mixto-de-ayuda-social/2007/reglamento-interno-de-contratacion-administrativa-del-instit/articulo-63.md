@@ -1,9 +1,0 @@
-CAPÍTULO DÉCIMO TERCERO
-Estudio, selección y adjudicación de las ofertas
-Artículo 63.—Solicitud de estudio y evaluación de ofertas. Concluido el acto de apertura, las ofertas originales y sus complementos, junto con una copia del acta respectiva, serán incorporadas al expediente administrativo de la contratación y serán foliadas. A más tardar dentro de los tres días hábiles siguientes al acto de apertura de ofertas, el expediente de la contratación será remitido a la Asesoría Jurídica, para el análisis del ajuste de las ofertas a las exigencias legales del cartel y para que se pronuncie sobre la elegibilidad legal de las mismas. En el documento de traslado se indicará el plazo máximo con que cuenta la Asesoría, para rendir su informe y enviarlo de vuelta junto con el expediente a la Proveeduría.
-Un legajo con una copia de cada una de las ofertas, sus complementos, y el cartel y sus modificaciones, se remitirá dentro del mismo plazo al Funcionario Responsable Asignado o a la unidad técnica competente, para que esta dependencia, dentro del plazo máximo que indique la Proveeduría en su nota de remisión, estudien y valoren las ofertas en relación con las condiciones y especificaciones técnicas del cartel y las normas técnicas reguladoras de la materia, e indique cuales ofertas resultan técnicamente elegibles. Otro legajo similar se remitirá al Área de Gestión y Asesoría Financiera, para el estudio financiero de las ofertas.
-El plazo que se confiera a las indicadas instancias se deberá determinar atendiendo al menos lo siguiente:
-1. El plazo con que cuenta la Administración para adjudicar,
-2. El número de ofertas,
-3. La naturaleza, complejidad y características del objeto de la contratación,
-4. La posibilidad de requerir al oferente aclaraciones o subsanaciones y el plazo para ser satisfechas.

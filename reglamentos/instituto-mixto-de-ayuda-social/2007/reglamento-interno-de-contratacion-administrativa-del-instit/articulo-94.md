@@ -1,3 +1,0 @@
-CAPÍTULO DÉCIMO OCTAVO
-La contratación directa
-Artículo 94.—Procedencia de la contratación directa. La Contratación Directa es un trámite de excepción de los procedimientos ordinarios de contratación administrativa para la adquisición de bienes y servicios, que opera cuando el monto estimado de la contratación no alcanza el límite económico inferior establecido para la licitación abreviada, de forma que el principio de eficiencia se cumple en mejores condiciones por este medio. Procede también la contratación directa en los supuestos que se regulan en los artículos 2 y 2 bis) de la Ley de Contratación Administrativa y el Capítulo IX del Reglamento.

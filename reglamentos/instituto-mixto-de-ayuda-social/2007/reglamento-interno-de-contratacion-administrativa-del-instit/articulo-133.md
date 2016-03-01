@@ -1,4 +1,0 @@
-SECCIÓN V
-Control y fiscalización del contrato
-Artículo 133.—Derecho de Fiscalización. El contratista se encuentra obligado a ofrecer al IMAS las facilidades necesarias para la adecuada fiscalización del contrato.
-Para el efectivo ejercicio de este derecho, al inicio de la contratación, la unidad solicitante del bien o servicio contratado propondrá el funcionario y unidad responsable, técnicamente competentes, para asumir la obligación de tomar oportunamente las previsiones necesarias para que el contratista se ajuste al estricto cumplimiento de las condiciones, especificaciones y plazos establecidos en el contrato y a las demás obligaciones implícitas en éste. La Gerencia General designará mediante Resolución motivada, al Funcionario Propuesto como Funcionario Responsable de la Fiscalización contractual. Dicha Resolución le será notificada al Funcionario Responsable, junto con la copia del contrato u orden de Pedido; una vez firme el acto de adjudicación.

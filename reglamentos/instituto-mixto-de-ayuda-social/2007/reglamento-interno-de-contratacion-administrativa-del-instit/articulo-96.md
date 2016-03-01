@@ -1,1 +1,0 @@
-Artículo 96.—Invitación. Para toda contratación directa debe consultarse el Registro de Proveedores, e invitarse mediante el sistema de “Petición de Ofertas”, que debe contar al menos con la invitación de tres proveedores, sin perjuicio de que se pueda publicar en medios de circulación nacional cuando la cantidad de oferentes sea insuficiente.

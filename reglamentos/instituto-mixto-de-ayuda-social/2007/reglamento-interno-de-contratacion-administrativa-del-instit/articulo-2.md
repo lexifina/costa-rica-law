@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. Las disposiciones del presente Reglamento serán aplicables a todos los procedimientos de contratación administrativa que promueva el IMAS, a través de la Proveeduría.

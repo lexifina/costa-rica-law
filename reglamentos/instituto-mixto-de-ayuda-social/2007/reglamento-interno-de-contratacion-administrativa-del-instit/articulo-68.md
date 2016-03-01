@@ -1,3 +1,0 @@
-CAPÍTULO DÉCIMO CUARTO
-Comisión de recomendación de adjudicaciones
-Artículo 68.—Naturaleza. La Comisión de Recomendación de Adjudicaciones será un órgano de asesoría y recomendación para la toma de decisiones de la instancia competente de la Administración Superior, en materia de adjudicaciones de los procesos de licitación Públicas y Abreviadas que promueva el IMAS. Tendrá carácter permanente. Las recomendaciones que emita dicha Comisión por su naturaleza asesora, no serán vinculantes, pero para apartarse de ellas el órgano competente para adjudicar, deberá fundamentar ampliamente las razones por las que no acepta la respectiva recomendación, asumiendo en tal caso la responsabilidad total de dicho acto.

@@ -1,1 +1,0 @@
-Artículo 84.—Trámite del recurso. Si el recurso de objeción al cartel es declarado con lugar, la Proveeduría se encargará de efectuar las modificaciones y de comunicarlas o publicarlas por los mismos medios utilizados para la invitación al concurso.
