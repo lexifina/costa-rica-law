@@ -1,2 +1,0 @@
-Artículo 19.—El Departamento de Mercados y el Ejecutivo Municipal podrán autorizar el cambio de destino del puesto para expendio de artículos o mercaderías distintas a las autorizadas.
-Para lo anterior el interesado deberá dirigir una solicitud al Departamento de Mercados, escrita en papel sellado de un colón, agregando timbre municipal de un colón indicando claramente el número de puesto, el mercado en donde está ubicado, los artículos o mercaderías que actualmente expende y los que aspira a vender.

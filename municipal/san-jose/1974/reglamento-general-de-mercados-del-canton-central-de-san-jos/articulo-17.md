@@ -1,4 +1,0 @@
-Artículo 17.—Los inquilinos de puestos permanentes no podrán entregar o dar el puesto a ningún título a otra persona.
-Se exceptúa de lo anterior los casos de cesiones previamente autorizadas con el lleno de los requisitos exigidos.
-El adjudicatario no podrá separarse de la atención personal del local, salvo que por enfermedad comprobada, fuerza mayor, caso fortuito u otra causa calificada de grave, a juicio del Departamento de Mercados, se le autorice licencia para hacerlo hasta por un plazo no mayor de tres meses.
-La presencia ocasional del adjudicatario en el negocio, no es suficiente para demostrar la atención del mismo y cualquier intento para demostrar lo contrario simulando condiciones que no se tienen y sin el respectivo permiso, será motivo suficiente para que la Municipalidad resuelva el contrato de pleno derecho.

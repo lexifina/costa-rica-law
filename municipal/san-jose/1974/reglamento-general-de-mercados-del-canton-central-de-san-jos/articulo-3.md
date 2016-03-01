@@ -1,2 +1,0 @@
-Artículo 3°—Todo mercado se organizará internamente en zonas o sectores comerciales destinados a la venta de artículos similares.
-Quedan exceptuados de la anterior disposición los mercados que actualmente están funcionando. Sin embargo la Administración correspondiente velará para que en el futuro, se observe estrictamente esta limitación siempre y cuando no se causen perjuicios a los negocios establecidos.
