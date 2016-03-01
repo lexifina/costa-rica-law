@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento del Comité Cantonal de Deportes y 
 | --- | --- | --- |
 | 1 | 2007-10-22 | la propia norma |
 | 2 | 2014-10-14 | Reglamento municipal 233 (2014-10-14) |
+| 3 | 2016-03-01 | Reglamento municipal 305 (2016-03-01) |

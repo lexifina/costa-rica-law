@@ -1,4 +1,5 @@
 CAPÍTULO VIII
 De la organización y funcionamiento del Comité Cantonal
 de Deportes y Recreación de San José
-Artículo 37.—El superior jerárquico de la administración será el Director Ejecutivo, y de éste lo será la Junta Directiva del Comité Cantonal. El puesto de Director Ejecutivo, es un cargo de confianza y será de nombramiento de la Junta Directiva, por mayoría simple de votos y será escogido de entre los candidatos que hayan respondido a un concurso público, que en cada caso promoverá la Junta Directiva, mediante una publicación en un diario de circulación nacional, y elaborado por la Dirección de Recursos Humanos de la Municipalidad de San José, previa consulta al Comité Cantonal de Deportes y Recreación de San José.
+Artículo 37.—El director ejecutivo, será el superior jerárquico de la administración y su nombramiento será de competencia de la junta directiva, y solo podrá ser destituido por justa causa, por votación calificada de la junta directiva previo procedimiento administrativo según las leyes laborales vigentes.
+(Así reformado mediante sesión ordinaria N° 305 del 1° de marzo del 2016)

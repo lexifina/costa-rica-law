@@ -8,7 +8,8 @@ f) Gestionar ante el Concejo Municipal el otorgamiento de permisos, con su respe
 g) Gestionar e informar al Concejo Municipal, la consecución de recursos económicos, materiales y humanos para el desarrollo de sus programas.
 h) Procurar la capacitación técnica de los promotores deportivos y recreativos de los distritos del cantón para integrarlos en la organización deportiva cantonal.
 i) Divulgar e informar sobre el desarrollo de sus actividades.
-j) Nombrar, sancionar y remover en su oportunidad, al Director Ejecutivo y la (el) secretaria (o) de Junta Directiva, conforme con las leyes laborales vigentes.
+j) Nombrar al director ejecutivo y la (el) secretaria(o) de junta directiva, conforme con las leyes laborales vigentes.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 305 del 1° de marzo del 2016)
 k) Vigilar que el Director Ejecutivo y la secretaria cumplan con sus funciones, en la forma dispuesta en la Ley y los reglamentos, e informar a la Junta Directiva, sobre sus observaciones, para que esta adopte las decisiones oportunas.
 l) Evaluar una vez al año al Director Ejecutivo.
 m) Nombrar los miembros de las Juntas Administradoras de instalaciones deportivas, previa consulta al Concejo Municipal y a los Concejos de Distrito.

@@ -1,4 +1,4 @@
-Artículo 40.—Serán causales de destitución del Director Ejecutivo sin responsabilidad laboral, las siguientes:
-a) La violación grave de la normativa vigente y de la específica del Comité Cantonal.
-b) Incurrir en las causales de despido dispuestas en el código municipal y en el régimen de empleo público municipal. En todos los casos, la destitución deberá acordarse por mayoría simple del total de los miembros directivos y con la causal de pérdida de confianza. Se entenderá por pérdida de confianza
-c) Realizar contrataciones por servicios profesionales, sin la autorización de la Junta Directiva del Comité y del Concejo Municipal.
+Artículo 40.—Será causales de destitución del director ejecutivo las siguientes:
+a) La violación grave de la normativa vigente y de la específica del Comité Cantonal de Deportes y Recreación de San José.
+b) Incurrir en las causales de despido dispuestas en el código municipal y en el régimen de empleo público municipal. En todos los casos, la destitución deberá realizarse previo procedimiento administrativo.
+(Así reformado mediante sesión ordinaria N° 305 del 1° de marzo del 2016)
