@@ -1,0 +1,12 @@
+DIRECCIÓN GENERAL DE TRIBUTACIÓN
+N° DGT-R-006-2016.—San José, a las ocho horas del ocho de febrero de dos mil dieciséis.
+Considerando:
+I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria, para dictar normas generales para la correcta aplicación de las leyes tributarias dentro de los límites que fijan las disposiciones legales y reglamentarias pertinentes.
+II.—Que el artículo 157 de la Ley General de la Administración Pública, aplicado supletoriamente de conformidad con el artículo 155 del Código de Normas y Procedimientos Tributarios, faculta a la Administración a rectificar los errores materiales o de hecho y los aritméticos.
+III.—Que mediante resolución DGT-R-032-2015 de las ocho horas del veintiuno de agosto del dos mil quince, publicada en La Gaceta N° 190 del 130 de setiembre de 2015, se establece como plazo para pagar los impuestos de traspaso de vehículos, 30 días hábiles después de la fecha de otorgamiento de la escritura, de conformidad con lo estipulado en el artículo 13 de la Ley 7088, Ley al Traspaso de Vehículos (Exonerados).
+Asimismo, se determina aplicar la sanción estipulada en el artículo 80 bis del Código de Normas y Procedimientos Tributarios, en razón de considerarse una infracción a un deber formal, sea, la presentación tardía de la escritura.
+IV.—Que se han presentado diversas consultas en razón de la interpretación de la norma en cuanto al deber incumplido y por consiguiente en cuanto a la aplicación del artículo 80 bis citado, esta Dirección considera conveniente modificar la resolución DGT-R-032-2015 citada; con el fin de unificar criterios y que los usuarios no encuentren inconvenientes para cumplir con sus obligaciones y deberes tributarios.
+V.—Que en razón de lo expuesto en el considerando anterior y por tratarse de normativa interna que regula materia de potestad exclusiva de la Administración Tributaria, esta resolución se dispensa del trámite de consulta establecido en el artículo 174 del Código de Normas y Procedimientos Tributarios. Por tanto,
+RESUELVE:
+Artículo 1º—Modifíquese el considerando 5° de la resolución DGT-R-032-2015 de las ocho horas del veintiuno de setiembre de dos mil quince, para que se lea así:
+“5º—Que las multas indicadas en los considerandos 3 y 4 corresponden al deber material, sea el atraso en el pago del impuesto de traspaso para su inscripción ante el Registro Nacional”.
