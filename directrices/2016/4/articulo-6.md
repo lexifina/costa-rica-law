@@ -1,0 +1,1 @@
+6. Publicación: La Norma Técnica de Información Geográfica denominada NTIG_CR04_01.2016: Perfil Oficial de Metadatos Geográficos de Costa Rica está disponible completa para acceso público a través de la página web oficial del Sistema Nacional de Información Territorial (SNIT): www.snitcr.go.cr

@@ -1,0 +1,1 @@
+8. Vigencia: La Norma Técnica de Información Geográfica denominada NTIG_CR04_01.2016: Perfil Oficial de Metadatos Geográficos de Costa Rica rige a partir de su publicación en el Diario Oficial La Gaceta.
