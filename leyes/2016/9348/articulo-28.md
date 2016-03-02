@@ -1,0 +1,3 @@
+ARTÍCULO 28.- Resolución y registro
+Cumplidos los requisitos establecidos en el artículo 27, el Área de Conservación Tempisque, mediante resolución razonada, determinará lo procedente conforme a derecho y al Plan general de manejo del Refugio. Dicho acto administrativo deberá contener, al menos, un detalle del plazo, prórroga o renovación, revocatoria, cancelación y demás aspectos necesarios para el debido otorgamiento de los permisos de uso, los cuales deberán regularse en el reglamento que al efecto deberá promulgarse.
+El Área de Conservación Tempisque mantendrá un registro actualizado de cada uno de los permisos otorgados y toda la documentación que sirvió de respaldo para su resolución.

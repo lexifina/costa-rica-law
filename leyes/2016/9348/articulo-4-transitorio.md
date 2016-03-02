@@ -1,0 +1,1 @@
+TRANSITORIO IV.- El Consejo Nacional de Áreas de Conservación deberá aprobar el Plan de Manejo del Refugio Nacional de Vida Silvestre Ostional dentro de los tres meses posteriores a la remisión por el Área de Conservación del Tempisque.

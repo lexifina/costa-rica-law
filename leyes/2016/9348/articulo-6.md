@@ -1,0 +1,4 @@
+ARTÍCULO 6.- Administración del Refugio
+El Refugio será administrado por el Área de Conservación Tempisque del Sistema Nacional de Áreas de Conservación del Ministerio de Ambiente y Energía (Sinac).
+En razón de lo anterior, el Área de Conservación emitirá el Plan general de manejo y los instrumentos de planificación que sean necesarios. También definirá, mediante reglamento, las normas técnicas a las cuales deberán someterse los usos y las actividades que se autoricen y, en general, ejercerá labores de vigilancia, sancionadoras y de toda índole, en tanto sea necesario para velar por el cumplimiento de los objetivos de conservación del Refugio.
+Asimismo, el Área de Conservación llevará un registro debidamente actualizado de las concesiones otorgadas por el Área de Conservación Tempisque y un expediente individual para cada una de ellas.

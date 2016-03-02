@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Naturaleza
+El Refugio será de naturaleza mixta y estará conformado por terrenos propiedad del Estado o demás entes públicos, y también por terrenos propiedad de particulares que hayan sido inscritos en el registro respectivo, siempre que ambas formas de propiedad sean sometidas a usos compatibles con sus objetivos de conservación y protección ambiental, bajo un enfoque integral de conservación.

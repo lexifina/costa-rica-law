@@ -1,0 +1,3 @@
+ARTÍCULO 4.- Conservación y protección ambiental
+Las concesiones y actividades permitidas en el Refugio deben estar dirigidas a un enfoque integral de conservación y protección ambiental, y al cumplimiento de condiciones y regulaciones de salvaguarda y protección de los bienes naturales del Estado, de conformidad con el ordenamiento jurídico.
+Fundamentalmente deben estar sustentadas en la conservación de las tortugas marinas y la protección de su hábitat de reproducción, la protección de los ecosistemas marinos, incluidos los manglares y los esteros, y el uso sostenible de los recursos naturales por parte de las comunidades locales organizadas y los habitantes del Refugio.
