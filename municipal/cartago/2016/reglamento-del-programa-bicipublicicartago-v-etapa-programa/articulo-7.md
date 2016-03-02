@@ -1,0 +1,2 @@
+Artículo 7º—Operadores del servicio. Los operadores del servicio son las personas encargadas de atender al público cuando solicitan el préstamo de una bicicleta o tramitan su devolución. Su deber es atender las consultas, sugerencias, reclamos y quejas de los usuarios.
+Además, deben velar por el adecuado estado de las bicicletas y reportar al Departamento de Mantenimiento de la Municipalidad cuando una bicicleta presente algún daño o deterioro menor, con el objetivo de que se valore y se reparen las unidades.

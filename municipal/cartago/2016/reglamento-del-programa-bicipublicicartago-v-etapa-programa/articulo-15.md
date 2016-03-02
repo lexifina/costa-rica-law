@@ -1,0 +1,2 @@
+Artículo 15.—Cambios en el servicio. Durante esta etapa de Plan Piloto, el sistema BicipubliCartago podrá en cualquier momento ser modificado, cambiado, co-administrado, automatizado y/o eliminado, todo ello, con respecto a los servicios y mejores prácticas que sean ajustados al sistema, casos en que el usuario afiliado será informado con anticipación, por diferentes medios de comunicación.
+Rige a partir de su publicación.

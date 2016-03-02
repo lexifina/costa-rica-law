@@ -1,0 +1,3 @@
+Artículo 13.—Horario del servicio. En esta etapa Piloto, el servicio tendrá un horario de funcionamiento y operación de lunes a viernes, de las 6:30 a las 17:30 horas, los días sábados de las 6:30 a las 16:00 horas, y los días domingos de las 8:00 a las 12:00 horas.
+Esto, de conformidad con el estudio de mercado y pre factibilidad de horarios requeridos por la muestra de población consultada e interesada en el servicio.
+La Municipalidad, durante esta Etapa, se reservará el derecho y/o potestad, de realizar futuros cambios en este horario, cuando así lo considere pertinente, todo ello, acorde al comportamiento y la capacidad del servicio, así como nuevas necesidades identificadas durante el Plan Piloto.
