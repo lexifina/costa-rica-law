@@ -14,3 +14,4 @@ Restricciones de uso del suelo en los alrededores del Volcán Arenal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-11 | la propia norma |
+| 2 | 2016-03-02 | Acuerdo 40 (2016-03-02) |

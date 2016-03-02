@@ -1,5 +1,6 @@
 COMISIÓN NACIONAL DE PREVENCIÓN DE RIESGOS Y
 ATENCIÓN DE EMERGENCIAS
+(Nota de Sinalevi: Mediante sesión N° 04 del 2 de marzo de 2016, la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, recomendó mantener la restricción en el uso de los suelos establecidas en la presente resolución para las siguientes zonas: Zona de restricción 1 (R 1), Zona de restricción 2 (R 2), Zona de restricción 3 (R 3), Zona de restricción 4 (R 4), y en el radio de 5, 5 km alrededor del carácter activo del volcán Arenal. Dichas recomendaciones pueden ser consultadas aquí)
 ArtículoV.-Uso de suelos en los alrededores del Volcán Arenal.
 La Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, se avoca al estudio de los informes elaborados por los señores Eduardo Malavassi Vargas en representación del OVSICORI, Sergio Paniagua Pérez de la Red Sismológica Nacional, Guillermo Alvarado Induni del Observatorio Sismológico y Vulcanológico del Arenal y Miravalles y el Instituto Costarricense de Electricidad y Lidier Esquivel Val verde de la CNE, que trata sobre las restricciones para el uso del suelo en los alrededores del Volcán Arenal, el cual viene acompañado de mapas con el detalle respectivo así como restricciones para la visita y el libre tránsito de personas.
 El señor Presidente informa a los señores Directores que con ocasión de los sucesos que han ocurrido en el sector del Volcán Arenal, que lamentablemente ocasionaron la muerte de dos personas y pérdidas materiales y en el ejercicio de las potestades asignadas a la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias por la Ley Nacional de Emergencia, N° 79l4 del 28 de setiembre de 1999, se procuró una acción conjunta de la Comisión con aquellos organismos de investigación volcánica a efecto de lograr estudios técnicos-científicos, que permitan llevar a cabo acciones tendientes a salvaguardar la vida y bienes de los habitantes de la zona, de empresarios y turistas.
@@ -76,5 +77,3 @@ f. Al Instituto Costarricense de Turismo: i) Establecer las normas para que los 
 g. Al Colegio Federado de Ingenieros y de Arquitectos: Difundir la presente resolución vinculante entre sus colegiados.
 Quinto: Notificar esta Resolución Vinculante a todas las personas fisicas y jurídicas ubicadas en la zona de los 5.5 Km. ya sean residentes, establecimientos comercilaes, establecimientos turísticos y establecimientos agropecuarios.
 Sexto: Publicar la presente Resolución Vinculante en el Diario Oficial La Gaceta.
-[imagen]
-[imagen]
