@@ -1,0 +1,2 @@
+ARTÍCULO 31.- Autorización al Banhvi
+Se autoriza al Banco Hipotecario de la Vivienda (Banhvi) para que otorgue bonos de vivienda a los concesionarios, siempre que cumplan con los requisitos dispuestos en la Ley N.° 7052, Ley del Sistema Financiero Nacional para la Vivienda y Creación del Banhvi, de 13 de noviembre de 1986, y sus reformas, y demás normativa que le resulte aplicable, y el Plan general de manejo.

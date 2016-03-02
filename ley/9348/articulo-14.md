@@ -1,0 +1,3 @@
+ARTÍCULO 14.- Trámite para la solicitud de la concesión
+El Área de Conservación Tempisque recibirá la solicitud de concesión y la documentación correspondiente, conforme a las condiciones establecidas en esta ley y su reglamento, y las revisará contra sus registros de ocupación. Realizará una inspección de campo para corroborar ubicación, usos actuales y condiciones del sitio.
+Las concesiones que proceden se inscribirán en un registro que para tal fin se abrirá en la Dirección del Área y se emitirá la respectiva resolución de aprobación. Las solicitudes que no procedan deberán notificarse vía resolución y se archivará el expediente.

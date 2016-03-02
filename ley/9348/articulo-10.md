@@ -1,0 +1,3 @@
+ARTÍCULO 10.- Permisos de uso de suelo a entidades privadas
+El Área de Conservación Tempisque podrá otorgar permisos de uso de suelo dentro del Refugio a universidades privadas, centros o institutos de investigación y organizaciones comunales locales, para investigación y desarrollo de proyectos comunales y de acuerdo con el reglamento que al efecto se promulgará. Dichos usos deben ser conformes con los objetivos de conservación del Refugio y otorgados con estricto apego al Plan general de manejo.
+Todo lo relativo a plazos, prórrogas, requisitos, condiciones y demás aspectos relevantes para la regulación de los permisos de uso se estipularán en el respectivo reglamento.

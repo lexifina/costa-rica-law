@@ -1,0 +1,1 @@
+TRANSITORIO VI.- A partir de la fecha de publicación del Plan general de manejo, los ocupantes del Refugio tendrán un plazo de seis meses para presentar la solicitud de concesión, junto con todos los requisitos exigidos por esta ley y su reglamento, ante la administración del Refugio.
