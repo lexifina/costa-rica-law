@@ -14,3 +14,4 @@ Reglamento al régimen de dedicación exclusiva para el sector profesional de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-14 | la propia norma |
+| 2 | 2016-03-02 | Reglamento municipal 305 (2016-03-02) |
