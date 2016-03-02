@@ -1,0 +1,1 @@
+TRANSITORIO II.- La Comisión Plenaria de la Secretaría Técnica Nacional Ambiental (Setena) deberá establecer, en el plazo de seis meses posteriores a la publicación de la presente ley, vía decreto ejecutivo los parámetros que permitan la valoración ambiental del Plan de Manejo del Refugio Nacional de Vida Silvestre Ostional.

@@ -1,0 +1,1 @@
+TRANSITORIO V.- El Área de Conservación tendrá el plazo de seis meses, a partir de la fecha de vigencia de esta ley, para oficializar los censos de tierras y el Plan general de manejo y demás instrumentos técnicos que sean necesarios para el otorgamiento de las concesiones dentro del Refugio.

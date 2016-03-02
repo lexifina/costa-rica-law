@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Plazo y prórrogas
+Las concesiones se otorgarán por un plazo de veinticinco años, prorrogable por períodos iguales, siempre que el concesionario, o tratándose de personas físicas, su núcleo familiar, continúen habitando, ejecutando la actividad económica o el uso que haya sido autorizado, de forma permanente y estable en el Refugio y cumplan las obligaciones establecidas en esta ley y en el Plan general de manejo.
