@@ -1,0 +1,2 @@
+Artículo 57. Ingreso a la Tienda Virtual
+El ingreso a la Tienda Virtual se hará con el empleo de un código de ingreso y la clave de acceso personal, secreta y del dispositivo de seguridad definido por el Banco, de dominio exclusivo y personal de la cliente y su uso será de su exclusiva responsabilidad. La clave personal y secreta de acceso tendrá una vigencia definida por el Banco, por lo que una vez vencida la usuaria para poder seguir utilizando el o los servicios deberá cambiar su clave siguiendo los trámites establecidos.

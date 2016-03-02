@@ -1,0 +1,2 @@
+Artículo 40. Afiliación de número de teléfono celular
+Dentro del módulo transaccional de la página para personas se ubicará una opción denominada Banca Móvil. Mediante esta opción el cliente podrá realizar la afiliación de su número de teléfono celular. Si en el momento de realizar este acto el Banco no tiene comunicación con el proveedor de servicio el sistema no permitirá llevar a cabo el siguiente paso.

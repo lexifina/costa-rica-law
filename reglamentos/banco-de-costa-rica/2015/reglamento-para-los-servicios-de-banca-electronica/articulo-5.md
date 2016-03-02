@@ -1,0 +1,5 @@
+Artículo 5. Entrega de clave secreta a personas jurídicas
+El sistema que el Banco ha diseñado para la entrega de la clave secreta, o PIN a personas jurídicas, es el siguiente:
+a) Si las cuentas están relacionadas con cuentas cuyas firmas son dos o más personas con facultades de representación individual de su titular, el Banco queda expresamente autorizado para entregar una clave secreta a cada una de ellas, para operar los servicios electrónicos a ella asociados.
+b) Cuando el servicio de cuentas estuviere relacionado con cuentas en las que dos o más personas tienen facultades de representación conjunta de su titular, el Banco procederá a entregar la clave a todos estos representantes debidamente acreditados.
+En ambos casos, le corresponde a los autorizados receptores de la clave, controlar su utilización en relación con las facultades de que dispongan, de modo que el banco presume que la consulta, operación, o transacción que se efectúe utilizando la clave secreta, ha sido aprobada y aceptada por todas las personas que deban concurrir a tomar la decisión.

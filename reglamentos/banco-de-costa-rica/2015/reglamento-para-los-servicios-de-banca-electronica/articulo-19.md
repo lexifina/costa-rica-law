@@ -1,0 +1,2 @@
+Artículo 19. Dispositivo de Seguridad
+El ingreso a www.bancobcr.com se hará con el empleo de la clave de acceso personal y secreta junto con el uso del dispositivo de seguridad, este es de dominio personal para el usuario y el uso será de su exclusiva responsabilidad. La clave personal y secreta de acceso tendrá una vigencia definida por el Banco por lo que una vez vencida al usuario deberá cambiar la clave de ingreso para poder seguir utilizando el o los servicios de la página.

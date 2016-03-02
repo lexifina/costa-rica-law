@@ -1,0 +1,2 @@
+Artículo 58. Ejecución de transacciones electrónicas
+Todas las regulaciones del servicio tramitadas por los medios electrónicos que tiene dispuesto el Banco, sus derechos, deberes, obligaciones, condiciones, particularidades, responsabilidades, claves, seguridades de acceso, y cualquier otra necesaria para realizar cualquier transacción electrónicamente, se aplicarán con fundamento en este reglamento.

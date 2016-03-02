@@ -1,0 +1,2 @@
+Artículo 53. Usuario administrador
+El usuario administrador de la empresa, será el encargado de incluir a los demás usuarios que tendrán acceso al sistema de BCR comercial, así como la creación de perfiles y esquema de firmas que serán utilizados por estos. Dicha creación será de total responsabilidad del usuario administrador, así como las transacciones que se deriven de dicha creación. Se relevará al Banco de todo tipo de responsabilidad si los usuarios utilizan de forma incorrecta los perfiles y atribuciones asignadas.

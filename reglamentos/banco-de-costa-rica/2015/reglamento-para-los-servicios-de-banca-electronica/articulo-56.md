@@ -1,0 +1,2 @@
+Artículo 56. Aceptación del servicio
+La aceptación será almacenada electrónicamente por parte del Banco, quien lo tendrá como prueba de la voluntad manifiesta y expresa de la cliente de haber sido informada de manera clara, oportuna y suficiente y que con esa información conscientemente ha aceptado en su totalidad las condiciones y regulaciones contempladas en dicho reglamento y particularidades de este servicio, asumiendo sus deberes y obligaciones frente al Banco.

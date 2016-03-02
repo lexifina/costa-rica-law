@@ -1,0 +1,2 @@
+Artículo 44. Servicios
+Mediante la opción Servicios el cliente podrá realizar la matrícula de las conectividades que el Banco establezca en este apartado. Se debe seleccionar el tipo de servicio, la empresa proveedora del mismo y al igual que en los dos puntos anteriores se debe asignar un alias al tipo de servicio a matricular. Cabe destacar que es necesario para realizar los pagos tener registrada una cuenta de la opción de Mis negocios matriculada.

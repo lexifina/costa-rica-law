@@ -1,0 +1,2 @@
+Artículo 51. Ingreso al servicio
+El ingreso a www.bcrcomercial.bancobcr.com se hará con el empleo del código de usuario, se selecciona la imagen de seguridad y la clave personal secreta de acceso, así como el dispositivo de seguridad de dominio exclusivo y personal para el usuario y su uso será de su exclusiva responsabilidad. La clave personal y secreta de acceso tendrá una vigencia definida por el Banco por lo que una vez vencida al usuario para poder seguir utilizando el o los servicios deberá renovar su afiliación siguiendo los trámites establecidos en el punto anterior.

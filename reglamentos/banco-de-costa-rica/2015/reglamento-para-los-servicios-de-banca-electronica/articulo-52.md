@@ -1,0 +1,2 @@
+Artículo 52. Aspectos de seguridad
+Por seguridad, la clave personal y secreta de acceso se desactivará automáticamente cuando se realizaren tres intentos fallidos para el ingreso a BCR comercial. En estos casos, el usuario deberá marcar la opción de ¿No puede ingresar al sistema?, el sistema le solicitará el número de cédula y le enviará al correo matriculado un nuevo código de afiliación con el cual deberá matricularse nuevamente siguiendo todos los pasos que originalmente le fueron requeridos para su primer ingreso.
