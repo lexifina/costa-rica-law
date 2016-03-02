@@ -1,0 +1,2 @@
+Artículo 31
+Los activos que la Municipalidad disponga donar, deberán permanecer en custodia del Almacén Municipal, estar registrados en el inventario, ser identificados como “activos para donar”. Se les dará la salida correspondiente y la baja en el sistema únicamente con la autorización de la persona asignada por la Alcaldía para dichos efectos.

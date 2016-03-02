@@ -1,0 +1,2 @@
+TRANSITORIO II
+Para la elaboración del Acta de Inventario Inicial, el Departamento de Contabilidad deberá levantar en un plazo no mayor a un año de la entrada en vigencia de este Reglamento, en conjunto con los Departamentos y entidades que los poseen en préstamo, un inventario físico exhaustivo de los activos asignados a ellos; y realizar en conjunto con el Almacén Municipal, el plaqueo respectivo cuando se requiera.

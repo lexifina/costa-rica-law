@@ -1,0 +1,2 @@
+Artículo 3
+Las disposiciones de este Reglamento son de acatamiento obligatorio para todas las dependencias de la Municipalidad de Cartago, y para las personas funcionarias de la Municipalidad que se beneficien del uso y servicio de los activos fijos propiedad de la Institución. Además son de acatamiento obligatorio para los Centro de Cuido de personas menores y personas adultas mayores, así como para cualquier organización o entidad que reciba en calidad de préstamo bienes propiedad de la Municipalidad.

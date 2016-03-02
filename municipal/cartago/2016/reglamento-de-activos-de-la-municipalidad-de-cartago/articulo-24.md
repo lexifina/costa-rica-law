@@ -1,0 +1,2 @@
+Artículo 24
+En caso de cese o despido, traslado planificado de una persona que ocupa una Jefatura, su superior jerárquico comunicará a la Unidad de Activos, a efecto de que se practique el inventario de los bienes y la verificación de los registros de control de los activos. Será obligación del superior jerárquico dar por recibido conforme el Acta Final del inventario realizado. En caso de muerte o cese imprevisto, la Unidad de Activos efectuará de oficio el inventario de bienes.

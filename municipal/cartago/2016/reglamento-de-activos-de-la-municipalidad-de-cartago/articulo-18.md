@@ -1,0 +1,2 @@
+Artículo 18
+En el caso que los custodios necesiten salir de las instalaciones municipales con algún activo, que la naturaleza de su función sea para uso dentro de las instalaciones municipales, debe contar con el visto bueno de la Jefatura, al mismo tiempo debe informar al Oficial de Seguridad para que realice la anotación respectiva en la bitácora, anotando el tipo de activo, número de placa, estado en que se encuentra y tiempo que durará fuera de la institución, además de notificar al Oficial de su devolución.

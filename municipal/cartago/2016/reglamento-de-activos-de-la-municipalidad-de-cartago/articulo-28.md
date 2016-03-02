@@ -1,0 +1,2 @@
+Artículo 28
+Una vez concluida la investigación de la pérdida o robo de un activo, el Departamento de Seguridad Municipal deberá comunicar por escrito a la persona que ocupe el cargo de superior jerárquico respectivo, sobre los resultados obtenidos. Así mismo, comunicará al Departamento Contable a fin de efectuar el registro contable correspondiente a activos en investigación y a la Alcaldía, para que se establezcan las acciones disciplinarias correspondientes.

@@ -1,0 +1,2 @@
+Artículo 16
+En el caso de que las personas funcionarias encargadas ingresen activos de su propiedad a la Municipalidad deberán notificar al ingreso al oficial a cargo, para que el mismo realice la anotación en la bitácora de seguridad. Esta anotación deberá indicar al menos el tipo de bien, marca y número de serie, si los activos personales son para uso permanente dentro de la institución deberán informar a la Unidad de Activos.

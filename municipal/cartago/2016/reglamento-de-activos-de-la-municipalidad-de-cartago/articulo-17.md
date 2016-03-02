@@ -1,0 +1,4 @@
+Artículo 17
+Corresponde a la Jefatura de cada Departamento, asignar a las personas funcionarias encargadas de su dependencia, los activos correspondientes para el normal cumplimiento de sus funciones.
+Para efectos de este Reglamento al funcionario se le denominará “custodio” y está obligado a acatar la normativa vigente, haciéndose acreedor tanto de las prerrogativas en el uso del activo como de las responsabilidades y sanciones que se generen de la aplicación de este Reglamento, de la Ley de Administración Pública y de la Ley de Administración Financiera.
+La prerrogativa o facultad de uso detallada en el párrafo anterior, se limita al uso requerido para el cumplimiento de las funciones propias del cargo, nunca para el uso o beneficio personal del trabajador municipal.

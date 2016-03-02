@@ -1,0 +1,2 @@
+Artículo 26
+El superior jerárquico es el responsable de efectuar los trámites e informar a las instancias correspondientes para que se abra el proceso administrativo contra la persona funcionaria responsable o custodio del activo por el supuesto mal uso, sustracción, deterioro o pérdida del mismo, según lo estipula la Ley de la Administración Financiera de la República, la Ley de Administración Pública, Ley No. 6227.
