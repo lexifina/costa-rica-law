@@ -1,0 +1,2 @@
+7º—Se modifica el punto 10º de las Disposiciones Generales para que en adelante se lea así:
+“10º.—La Administración del Parque Nacional Chirripó dispondrá de 10 espacios diarios para los visitantes que deseen ingresar al parque solo por un día, por el sendero principal y que no requieren alojamiento en el Albergue Base Crestones, los cuales deberán desarrollar el procedimiento de reservaciones previo a su ingreso y de registro ante la Administración conforme a esta resolución.”

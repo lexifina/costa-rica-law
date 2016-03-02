@@ -1,0 +1,2 @@
+4º—Se modifica el punto 4º de las Disposiciones Generales para que en adelante se lea así:
+“4º—Cuando el turista encontrándose en Base Crestones y existiendo disponibilidad de espacio desee permanecer en el área protegida y alojarse por más tiempo, podrá desarrollar el procedimiento de reservaciones, siempre y cuando no exceda los intervalos de tiempo establecido para cada temporada (alta y baja). En este caso deberá realizar el registro de permanencia ante el funcionario del SINAC destacado en Base Crestones y el Concesionario.”

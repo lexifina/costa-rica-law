@@ -1,0 +1,2 @@
+8º—Se modifica el punto 14º de las Disposiciones Generales para que en adelante se lea así:
+“14º.—El usuario deberá pagar al Concesionario los derechos correspondientes al alojamiento en un plazo máximo de diez días naturales posteriores a la reservación, de lo contrario se cancelará la reservación de la admisión y el usuario deberá proceder a realizar la solicitud de reembolso del dinero pagado por derecho de admisión, dentro del plazo establecido según el decreto de tarifas.”

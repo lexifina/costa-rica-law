@@ -1,0 +1,1 @@
+TRANSITORIO I: Por única vez, a partir del 15 de febrero del 2016, los interesados podrán realizar su reservación para ingresar al Parque Nacional Chirripó durante los meses de abril, mayo y junio del 2016 haciendo uso del sistema auxiliar por la vía telefónica.

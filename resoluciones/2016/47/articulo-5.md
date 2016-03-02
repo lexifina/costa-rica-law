@@ -1,0 +1,3 @@
+5º—Se modifica el punto 5º de las Disposiciones Generales para que en adelante se lea así:
+“5º—Para las reservaciones al Parque Nacional Chirripó, el turista podrá adquirir su derecho de admisión hasta con seis meses de antelación, siempre y cuando desarrolle el procedimiento en su totalidad incluyendo el trámite de cancelación de los servicios de hospedaje ante el Concesionario o de actividades ecoturísticas en los casos de permisos de uso vigentes.
+Este plazo de seis meses de antelación no opera en los casos en que entre en funcionamiento el sistema auxiliar de reservaciones mediante la vía telefónica”.

@@ -1,0 +1,2 @@
+6º—Se modifica el punto 8º de las Disposiciones Generales para que en adelante se lea así:
+“8º—La administración del Parque Nacional Chirripó pondrá a disposición de los usuarios la cantidad de 52 (cincuenta y dos) espacios por día para permanecer en el Albergue Base Crestones de lunes a domingo, los cuales podrán ser reservados en su totalidad para las rutas autorizadas mediante el sistema de reservaciones.”
