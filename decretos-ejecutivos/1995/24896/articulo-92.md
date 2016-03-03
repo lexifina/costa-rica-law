@@ -1,0 +1,2 @@
+Artículo 92.- Solicitud de Medidas Cautelares. Se podrán aplicar las medidas cautelares como en cualquier otro procedimiento ordinario. En la aplicación de las mismas deberán respetarse los derechos laborales de los obligados a la disposición preventiva, pudiendo ser aplicadas a ambas partes de la relación procesal, debiendo procurarse mantener la seguridad de la víctima, fundamentalmente.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 39716 del 3 de marzo de 2016)

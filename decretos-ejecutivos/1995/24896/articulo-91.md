@@ -1,0 +1,6 @@
+Artículo 91.- Competencia y atribuciones. El Departamento Disciplinario Legal o la Asesoría Jurídica, serán constituidos como Órgano Director de Procedimiento administrativos disciplinarios, y tendrán las siguientes atribuciones:
+a) Recibida la denuncia, el órgano director valorará la necesidad de realizar una investigación preliminar o en su defecto iniciar el procedimiento disciplinario de conformidad con lo dispuesto en el artículo 308 de la Ley General de la Administración Pública.
+b) Recomendar de oficio la aplicación de las medidas cautelares cuando resulten necesarias para garantizar el objeto del procedimiento.
+c) Remitir a la persona denunciante de acoso laboral a la Unidad de Psicología del Ministerio cuando así lo solicite de forma expresa, a efectos de que se realice una valoración para determinar la existencia de algún grado de afectación emocional. Dicha valoración podrá ser remitida al órgano director de procedimiento igualmente si así lo solicita el denunciante.
+d) Durante el procedimiento se garantizarán los principios de debido proceso, proporcionalidad, y la libertad probatoria.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 39716 del 3 de marzo de 2016)

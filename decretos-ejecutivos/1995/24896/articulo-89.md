@@ -1,3 +1,2 @@
-Artículo 89.-Rige a partir de su publicación.
-(Así corrida su numeración por el artículo 2º del decreto ejecutivo N° 33649 del 9 de febrero de 2007, que lo traspasó del antiguo 72 al 89 actual del artículo) .
-Dado en la Presidencia de la República.-San José, a los treinta y un día del mes de agosto de mil novecientos noventa y cinco.
+Artículo 89.—Política de divulgación. La política de prevención del hostigamiento laboral y la divulgación del presente Capítulo del Reglamento, corresponderá a la Dirección de Recursos Humanos y la Oficina de Igualdad y Equidad de Género. Podrá solicitarse además, la colaboración y participación de otras instancias para coadyuvar en el proceso de difusión.
+(Así adicionado por el artículo 5° del decreto ejecutivo N° 39716 del 3 de marzo de 2016)
