@@ -1,1 +1,0 @@
-Artículo 27.—Obligación de remitir planos de edificios a la Dirección Administrativa – Financiera: Cuando se amplíe un edificio, se alquile, adquiera o, construya uno nuevo, el área encargada remitirá a la Dirección Administrativa -Financiera, un juego de los planos utilizados en la licitación y que forma parte de la contratación.

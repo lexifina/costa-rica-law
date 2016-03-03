@@ -1,1 +1,0 @@
-Artículo 9—Obligación de las jefaturas respecto de solicitudes de activos: Las jefaturas velarán porque las solicitudes de adquisición de mobiliario y equipos que autorizan, correspondan a lo que realmente requiere el personal a su cargo para el desempeño de sus funciones.

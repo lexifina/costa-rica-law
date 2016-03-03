@@ -1,1 +1,0 @@
-Artículo 3°—Oficina responsable de coordinar las actividades relativas al control de activos: La Oficina de Contabilidad es el área responsable de coordinar todas las actividades relacionadas con el control de activos y, de mantener un registro auxiliar que concilie permanentemente con la cuenta central de los bienes muebles e inmuebles de la Institución.

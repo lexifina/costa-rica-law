@@ -1,2 +1,0 @@
-Artículo 23.—Obligación de ejecutar inventario permanente de libros institucionales: Existirá un inventario permanente de los libros institucionales. Cada aumento o disminución ser comunicará de inmediato a la Oficina de Contabilidad, para que afecte los registros correspondientes.
-Es responsabilidad del Centro Documental de la Institución, la custodia de los registros, excepción hecha de aquellos que con autorización superior se asignen a otras áreas específicas, en cuyo caso la jefatura correspondiente asumirá la responsabilidad por la custodia de esos registros.

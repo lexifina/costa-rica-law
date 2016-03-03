@@ -1,1 +1,0 @@
-Artículo 36.—Control de ingreso y salida de activos de las instalaciones de la Institución: El ingreso y la salida de bienes propiedad de los funcionarios, a las instalaciones de la Institución, se consignará en el formulario correspondiente, de lo contrario dueño no podrá retirarlos de la Institución, a menos que demuestre que efectivamente que no son de su propiedad.

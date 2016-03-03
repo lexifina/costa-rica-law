@@ -1,1 +1,0 @@
-Artículo 19.—Descargo contable de activos, del registro auxiliar: Comprobada la pérdida sin culpa del funcionario bajo cuya responsabilidad han estado los bienes, la oficina de Contabilidad solicitará autorización al Regulador General para que se proceda a descargar contablemente del registro auxiliar, el cien de que se trate.

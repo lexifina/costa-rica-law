@@ -1,1 +1,0 @@
-Artículo 47.—Requisitos para la donación de activos: Se podrán donar activos fijos cuando el Regulador General, por medio de la oficina correspondiente, determine de manera fundada, que esos bienes no son de utilidad para la Institución.

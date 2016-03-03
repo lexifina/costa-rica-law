@@ -1,1 +1,0 @@
-Articuló 40.—Obligación de fijar placas a los activos: La Oficina de Proveeduría está obligada en todas las circunstancias a fijar las placas de cada activo, antes de proceder a entregarlos al funcionario que lo requiera.

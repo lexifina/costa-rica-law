@@ -1,1 +1,0 @@
-Artículo 44.—Responsabilidad por daños a bienes de la Institución: Será responsable el funcionario que por descuido, mal uso, o cumpla, dañe bienes de la Institución, en cuyo caso tendrá que pagar el activo de la forma descrita en el artículo anterior.

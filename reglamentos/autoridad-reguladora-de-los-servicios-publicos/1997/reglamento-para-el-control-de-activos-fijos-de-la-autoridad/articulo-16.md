@@ -1,1 +1,0 @@
-Artículo 16.—Obligación de llevar registro de activos por dependencia y por funcionario: Para el control correspondiente, la Oficina de Contabilidad mantendrá un registro computarizado por dependencia y por funcionario, con información del activo que permita su debida identificación.

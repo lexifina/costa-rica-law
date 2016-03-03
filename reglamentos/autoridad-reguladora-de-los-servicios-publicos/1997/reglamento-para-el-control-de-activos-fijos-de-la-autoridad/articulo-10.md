@@ -1,1 +1,0 @@
-Artículo 10.—Custodia de activos cuando medie traslado, renuncia o despido: La custodia de activos que por renuncia, traslado o despido de un funcionario no se hayan reasignado, estará bajo la responsabilidad del jefe inmediato hasta que se reasignen aquéllos.

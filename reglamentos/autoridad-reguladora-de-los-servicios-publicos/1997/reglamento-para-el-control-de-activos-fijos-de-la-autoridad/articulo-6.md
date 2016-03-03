@@ -1,1 +1,0 @@
-Artículo 6°—Obligación de velar porque los equipos mantengan su placa de identificación: El funcionario velará para que los activos a él asignados, mantengan la placa de identificación en su lugar y, si por cualquier motivo la placa desapareciera b sufriera algún daño, el funcionario informará de ello a las Oficinas de Proveeduría y, de Contabilidad.
