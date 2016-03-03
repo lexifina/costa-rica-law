@@ -1,0 +1,2 @@
+Artículo N° 45. Promoción Sociocultural.
+La Unidad de Cultura y Turismo promoverá un programa de actividades con personas físicas o/y jurídicas para impartir o realizar cursos, talleres, seminarios, conferencias, foros, simposios, visitas guiadas, presentaciones artísticas, o actividades tendientes al desarrollo personal o colectivo en el campo de la cultura, la salud, la educación, la ciencia, la recreación o el turismo.

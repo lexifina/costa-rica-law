@@ -1,0 +1,2 @@
+Artículo N° 51. Ensayos en las instalaciones culturales.
+La Unidad de Cultura y Turismo en su afán de dar acceso a la cultura y fortalecer las manifestaciones culturales, así como impulsar la diversidad cultural, podrá facilitar las instalaciones culturales a grupos artísticos para realizar ensayos, en los periodos en que la agenda de actividades lo permita. Se debe contemplar el uso proporcional y balanceado del tiempo de parte de las agrupaciones. Se utilizará la iluminación diseñada para ensayos.

@@ -1,0 +1,2 @@
+Artículo N° 46. Elección de instructores, guías y/o directores artísticos.
+Para la elección de las personas a cargo de las actividades detalladas en el artículo anterior se conformará una comisión integrada por los siguientes funcionarios: Coordinador del Área Sociocultural, Coordinador de la Unidad de Cultura y Turismo, Administrador de la Instalación o, en su defecto, si no existiera este puesto, por un profesional del Área Sociocultural de la Municipalidad designado por el Coordinador del Área. Esta comisión definirá los parámetros para la elección.

@@ -1,0 +1,2 @@
+Artículo N° 8. Establecimiento del precio por uso de las instalaciones.
+La Dirección Financiera y la Administración Tributaria serán los responsables de realizar los estudios de costos para el establecimiento de los precios por el uso de las instalaciones culturales municipales y mantendrá un incremento mínimo anual de lo establecido por el BCCR del IPC. Los precios establecidos serán aprobados por el Concejo Municipal y revisados anualmente.

@@ -1,0 +1,2 @@
+Artículo N° 44. Cafeterías y restaurantes.
+El Teatro Municipal La Villa y el Museo Nacional de la Carreta, cuentan con un espacio destinado a cafetería y restaurante respectivamente. Estos espacios y cualquier otro similar se concesionarán según cartel de licitación pública elaborado al efecto y deben cumplir con las reglas contempladas en este reglamento y la normativa vigente para su funcionamiento.
