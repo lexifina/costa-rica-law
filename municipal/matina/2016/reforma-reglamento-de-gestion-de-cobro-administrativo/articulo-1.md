@@ -1,0 +1,22 @@
+MUNICIPALIDAD DE MATINA
+Rode Ramírez Dawvison
+Secretaria Municipal
+Certifica;
+La suscrita en calidad de Secretaria del Concejo Municipal, certifico el acuerdo adoptado por el Concejo Municipal de Matina, según el artículo noveno de la sesión ordinaria número cuatrocientos ochenta (480), celebrada el día 18 de enero del año 2016, que dice:
+El Concejo Municipal de Matina, una vez visto el dictamen 053-2015, de la Comisión de Asuntos Jurídicos del Concejo Municipal de Matina, en atención del oficio MM-ELV-2015-000563, mediante el cual el Despacho de la Alcaldía remite a conocimiento del Concejo, la propuesta de modificación al Reglamento de Gestión de Cobro Administrativo de la Municipalidad de Matina, publicado en el Diario Oficial La Gaceta 220 de fecha 14 de noviembre de 2002, la cual fue elaborada por la Encargada del Departamento de Cobro de esta Municipalidad; por lo que, procedemos acordar lo siguiente:
+Considerando:
+Primero.—Mediante oficio MM-DCA-014-2015, la señora Elvira Padilla Jiménez, en su condición de Encargada del Departamento de Cobros de la Municipalidad de Matina, elaboro su propuesta de actualización del Reglamento de Gestión Cobro Administrativo, requerido en la disposición 4.13 del informe N° DFOE_DL-IF-10-2014.
+Segundo.—La Encargada de Cobro, propuso modificar el contenido del artículo 9°, derogar el texto del actual artículo 11, modificar el contenido del artículo 12; variar el contenido del artículo 28 e incluir un nuevo articulado con las regulaciones y definiciones sobre las formas de extinción de la obligación Tributaria Municipal.
+Tercero.—Considera este Concejo, dado que se propone la eliminación del contenido del actual artículo 11 del Reglamento de Gestión de Cobro Administrativo de la Municipalidad de Matina, resulta oportuno el que se incorpore como nuevo contenido de este, la propuesta hecha por la Encargada de Cobro, con relación a las formas de extinción de la obligación tributaria, siendo que en el mismo artículo se puede incluir el concepto de cada una de esas formas.
+Cuarto.—Finalmente se denota la conveniencia de agregar como un artículo final al reglamento existente, la propuesta sobre Devoluciones de saldo a favor.
+Por tanto,
+ACUERDO N° 7
+El Concejo Municipal de Matina, una vez cumplido y vencido el plazo de consulta pública, sobre el proyecto de reforma parcial al Reglamento de Gestión de Cobro Administrativo de la Municipalidad de Matina, que remitiera el Despacho de la Alcaldía Municipal y la Jefa del Departamento de Cobros, se procede aprobar en todas sus partes el contenido de dichas modificaciones, cuyo contenido es el siguiente:
+Se aprueba la modificación parcial al Reglamento de Gestión de Cobro Administrativo de la Municipalidad de Matina, publicado en el Diario Oficial La Gaceta 220 del 14 de noviembre de 2002 en los siguientes términos:
+1°—Modifíquese el contenido del artículo 9°, para que se lea en adelante así:
+Artículo 9°—
+El cobro deberá ser gestionado por la Unidad de Gestión Cobratoria de la Municipalidad de Matina, de la siguiente manera:
+A. Este se iniciará un mes calendario después de haberse vencido el plazo para el pago de la obligación vencida respectiva, y las acciones consistirán en avisos, llamadas telefónicas, publicaciones generales u otros.
+B. Las obligaciones tributarias que tengan un atraso de dos trimestres serán notificados una sola vez administrativamente, otorgándose al contribuyente 15 días hábiles para el pago respectivo, si vencido este plazo después de la notificación no se hiciere presente el sujeto pasivo a cancelar, se remitirá a los abogados externos, o internos en casos clasificados, el expediente que contiene toda la documentación que corresponda para el efecto de proceder al cobro judicial, de conformidad con lo que se indica en este Reglamento. La notificación indicada se realizará los medios legales correspondientes. En caso de que el atraso de dos o más s trimestres corresponda a la obligación del pago de impuestos a la licencia referida en el artículo 79 del Código Municipal, si vencido el plazo de tres días hábiles y el pago respectivo no se hizo efectivo, se procederá legalmente a suspender la licencia de conformidad con el artículo 81 bis del Código Municipal.
+C. Ejercer las funciones de control y fiscalización sobre la actuación que ejerza los abogados externos en etapa ejecutiva.
+D. Rendir informes trimestrales sobre el estado de las obligaciones vencidas que se encuentran en las etapas administrativa y judicial.
