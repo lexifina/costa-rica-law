@@ -1,0 +1,2 @@
+Artículo 16.—Formulación del cartel.
+La Proveeduría elaborará los carteles de los procedimientos de contratación, cuando fuere pertinente, para lo cual requerirá, de ser necesario y a su criterio, la participación de las unidades usuaria, técnica, financiera u otras según corresponda. La Proveeduría, en todos los casos, deberá obtener el visado de la versión final del cartel, que será extendido por la Dirección Ejecutiva o la Junta Directiva según corresponda.

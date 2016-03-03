@@ -1,0 +1,3 @@
+Artículo 21.—Ejecución de la garantía de cumplimiento.
+En la etapa de ejecución contractual, una vez que el órgano fiscalizador de la contratación determine la existencia de un eventual incumplimiento de las obligaciones por parte del contratista, y que dicho incumplimiento pueda haber irrogado daños y perjuicios a la Administración, lo informará a la Proveeduría recomendando la ejecución de la garantía y para ello indicará el monto estimado de esos daños y perjuicios, así como la forma o metodología empleada para calcularlos.
+La Proveeduría, previa audiencia al contratista, determinará si procede o no dicha ejecución mediante resolución razonada.

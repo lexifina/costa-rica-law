@@ -1,0 +1,2 @@
+Artículo 11.—Necesidades no programadas.
+La Proveeduría no dará trámite a aquellas adquisiciones que no estén amparadas en el Programa de Adquisiciones Proyectado Anual, salvo que se trate de una necesidad imprevista o urgente, que cuente con el aval de la Dirección Ejecutiva, que previamente valorará el impacto que ello tendría en los tiempos de los procedimientos de contratación ya iniciados o programados, así como en su repercusión presupuestaria.

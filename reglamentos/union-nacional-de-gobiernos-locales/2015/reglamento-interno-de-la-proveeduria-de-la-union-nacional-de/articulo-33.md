@@ -1,0 +1,2 @@
+Artículo 33.—Apoyo técnico.
+Para la correcta atención de los recursos antes citados, tanto la Proveeduría como el área legal podrán solicitar la colaboración de las instancias técnicas que se requieran, las cuales deberán brindar su apoyo sin dilación alguna, dentro del plazo conferido. El incumplimiento a este deber de colaboración, dará lugar a responsabilidad por parte del funcionario omiso, según la legislación que rige la materia.

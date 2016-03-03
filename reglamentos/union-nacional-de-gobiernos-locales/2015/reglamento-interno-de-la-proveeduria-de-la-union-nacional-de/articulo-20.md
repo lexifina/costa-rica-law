@@ -1,0 +1,3 @@
+Artículo 20.—Del trámite y ejecución de garantías.
+La Proveeduría realizará el trámite tendiente a la ejecución de la garantía correspondiente, lo cual se hará siguiendo el debido proceso y en proporción al incumplimiento, atendiendo al objeto contratado, al plazo de entrega ofrecido y a los daños y perjuicios ocasionados a la UNGL.
+Habiéndose determinado la procedencia de ejecutar las garantías que se hubieren rendido, la Proveeduría lo comunicará directamente a la Contaduría para que proceda a su ejecución efectiva y, de existir un saldo en descubierto, intime al contratista su cancelación y, en caso de renuencia, remita la documentación a la Dirección Ejecutiva para que instruya las acciones jurídicas que se estimen procedentes.
