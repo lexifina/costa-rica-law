@@ -1,0 +1,2 @@
+Artículo 8°—La persona secretaria de la Junta de Planificación Cantonal, se ocupará de llevar el acta de las sesiones, firmarlas en conjunto con el coordinador y hacerlas llegar a los miembros al menos con tres días antelación a la sesión en que serán aprobadas.
+En el mismo sentido, en conjunto con el coordinador, redactará los dictámenes de mayoría o minoría, con base en las discusiones que se den en el seno de las sesiones. Estos serán revisados por los integrantes de la Junta de Planificación Cantonal, antes de ser remitidos al Concejo Municipal.

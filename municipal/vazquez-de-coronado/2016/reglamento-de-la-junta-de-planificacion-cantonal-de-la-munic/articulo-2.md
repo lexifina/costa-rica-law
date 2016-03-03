@@ -1,0 +1,2 @@
+Artículo 2°—La Junta de Planificación Cantonal, es un organismo de supervisión, control, apoyo y asesoría al fiel cumplimiento y ejecución de la normativa urbanística del cantón de Vázquez de Coronado.
+Además de esto el Concejo Municipal, en su condición de órgano rector de la planificación local, podría encomendarle a la Junta otras tareas de planificación urbanística, siempre y cuando no interfieran a aquellas competencias que sean propias del Concejo o de la Administración Municipal.

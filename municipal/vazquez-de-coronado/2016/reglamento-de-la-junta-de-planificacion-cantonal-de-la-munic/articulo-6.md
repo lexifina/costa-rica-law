@@ -1,0 +1,1 @@
+Artículo 6°—LaJunta de Planificación Cantonal, nombrará a su interno, un coordinador (a) y un secretario (a) y sus respectivos suplentes. Quienes se elegirán por la mayoría simple de sus miembros presentes, en la primera sesión que se realice con posterioridad a su nombramiento.

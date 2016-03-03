@@ -1,0 +1,1 @@
+Artículo 11.—Las sesiones, así como las actas, de la Junta de Planificación Cantonal serán públicas, y de libre acceso para cualquier ciudadano interesado. La coordinación y la secretaría establecerán los procedimientos para la intervención de la ciudadanía en las sesiones del órgano, así como lo relativo a la disposición de las actas de sus sesiones.

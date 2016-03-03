@@ -1,0 +1,1 @@
+Artículo 13.—Cuandoalguno de los integrantes de la Junta elegidos porla Municipalidad, sea removido, renuncie o por cualquier otra causa se vea impedido para seguir desempeñando su cargo, el Concejo Municipal procederá a sustituirlo de inmediato.

@@ -1,0 +1,1 @@
+Artículo 9°—El Plan Anual Operativo de la Junta de Planificación Cantonal se elaborará y será presentado para ser aprobado por el Concejo Municipal en el mes de diciembre de cada año, a fin de ser aplicable en el calendario del año inmediato siguiente.

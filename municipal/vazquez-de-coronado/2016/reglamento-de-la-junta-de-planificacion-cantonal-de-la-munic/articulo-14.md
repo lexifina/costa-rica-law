@@ -1,0 +1,1 @@
+Artículo 14.—Previa gestión interna, al menos una vez por semestre, el coordinador de la Junta deberá rendir ante el pleno, un informe sobre los trabajos realizados por el órgano, así como el avance en la ejecución de los acuerdos. De este informe se remitirá copia al Concejo Municipal, así como a la ciudadanía.
