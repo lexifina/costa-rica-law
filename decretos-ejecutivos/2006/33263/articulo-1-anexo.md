@@ -219,9 +219,12 @@ CAPÍTULO 22: BEBIDAS, LÍQUIDOS ALCÓHOLICOS Y VINAGRE
 2202.10 - Un cambio a la subpartida 2202.10 desde cualquier otro capítulo, excepto del capítulo 17.
 2202.90 - Un cambio a la subpartida 2202.90 desde cualquier otro capítulo, excepto del capítulo 4.
 22.03 - 22.07 - Un cambio a la partida 22.03 a 22.07 desde cualquier otro capítulo.
+22.07- Un cambio a la partida 22.07 desde cualquier otro capítulo, excepto de la partida 17.03.
+(Mediante Resolución N° 370-2015 (COMIECO-LXXIII) del 22 de octubre de 2015 y sus Anexos I (Modificación Anexo al Reglamento Centroamericano sobre el Origen de las Mercancías) y II (Modificación por corrección técnica del texto de la Reglas de Origen)”, aprobada mediante decreto ejecutivo N° 39679 del 3 de marzo del 2016, se adicionó la partida anterior)
 2208.20 - Un cambio a la subpartida 2208.20 desde cualquier otra partida, incluso a partir del concentrado de grado alcohólico volumétrico superior o igual a 60% vol.
 2208.30 - Un cambio a la subpartida 2208.30 desde cualquier otra subpartida, incluso a partir del concentrado de grado alcohólico volumétrico superior o igual a 60% vol.
-2208.40 - Un cambio a la subpartida 2208.40 desde cualquier otro capítulo, excepto de la partida 17.01, 17.03, 22.07 o las preparaciones compuestas para elaboración de bebidas de la subpartida 2106.90.
+2208.40 - - Un cambio a la subpartida 2208.40 desde cualquier otro capítulo, excepto de la partida 17.01 o 17.03 o las preparaciones compuestas para elaboración de bebidas de la subpartida 21 06.90.
+(Mediante Resolución N° 370-2015 (COMIECO-LXXIII) del 22 de octubre de 2015 y sus Anexos I (Modificación Anexo al Reglamento Centroamericano sobre el Origen de las Mercancías) y II (Modificación por corrección técnica del texto de la Reglas de Origen)”, aprobada mediante decreto ejecutivo N° 39679 del 3 de marzo del 2016 se reforma la partida anterior)
 2208.50 - 2208.90 - Un cambio a la subpartida 2208.50 a 2208.90 desde cualquier otra partida, excepto de la partida 22.07.
 22.09 - Un cambio a la partida 22.09 desde cualquier otra partida, excepto de la subpartida 2915.21.
 (Nota de Sinalevi: Mediante resolución Resolución N° 345-2014 (COMIECO-LXVII) del 25 de abril del 2014 y su anexo: Adopción de Panamá de las reglas de origen específicas del anexo al Reglamento Centroamericano sobre el origen de las mercancías, aprobada mediante decreto ejecutivo N° 38531 del 23 de junio del 2014 la República de Panamá adopta la regla de origen anterior)
@@ -410,7 +413,8 @@ YESO FRAGUABLE
 3401.11 - 3401.20 - Un cambio a la subpartida 3401.11 a 3401.20 desde cualquier otra partida.
 3401.30 - Un cambio a la subpartida 3401.30 desde cualquier otra subpartida, excepto de la partida 34.02.
 3402.11 - 3402.19 - Un cambio a la subpartida 3402.11 a 3402.19 desde cualquier otra subpartida.
-3402.20 - Un cambio a la subpartida 3402.20 desde cualquier otra partida.
+3402.20 - - Un cambio a la subpartida 3402.20 desde cualquier otra subpartida, excepto de la subpartida 3402.90 o de sales hidrosolubles de ácidos alquilarilsulfónicos de la subpartida 3402.11.
+(Mediante Resolución N° 370-2015 (COMIECO-LXXIII) del 22 de octubre de 2015 y sus Anexos I (Modificación Anexo al Reglamento Centroamericano sobre el Origen de las Mercancías) y II (Modificación por corrección técnica del texto de la Reglas de Origen)”, aprobada mediante decreto ejecutivo N° 39679 del 3 de marzo del 2016 se reforma la partida anterior)
 3402.90 - Un cambio a la subpartida 3402.90 desde cualquier otra subpartida.
 34.03 - 34.04 - Un cambio a la partida 34.03 a 34.04 desde cualquier otra partida.
 3405.10 - 3405.90 - Un cambio a la subpartida 3405.10 a 3405.90 desde cualquier otra subpartida.
@@ -603,7 +607,7 @@ EXCEPTO LOS DE PUNTO
 a/ Para las mercancías comprendidas en estas posiciones arancelarias se mantendrá el estado actual de libre comercio en tanto se acuerdan las reglas de origen de las mismas.
 CAPÍTULO 63: LOS DEMÁS ARTÍCULOS TEXTILES CONFECCIONADOS;
 JUEGOS; PRENDERÍA Y TRAPOS
-63.01 - 63.10 a/
+1. - 63.10 a/
 a/ Para las mercancías comprendidas en estas posiciones arancelarias se mantendrá el estado actual de libre comercio en tanto se acuerdan las reglas de origen de las mismas.
 SECCIÓN XII
 CALZADO, SOMBREROS Y DEMÁS TOCADOS, PARAGUAS, QUITASOLES,
@@ -791,7 +795,9 @@ Y ARTEFACTOS MECÁNICOS; PARTES DE ESTAS MÁQUINAS O APARATOS
 8416.90 - Un cambio a la subpartida 8416.90 desde cualquier otra partida.
 8417.10 - 8417.80 - Un cambio a la subpartida 8417.10 a 8417.80 desde cualquier otra subpartida.
 8417.90 - Un cambio a la subpartida 8417.90 desde cualquier otra partida.
-8418.10 - 8418.69 - Un cambio a la subpartida 8418.10 a 8418.69 desde cualquier otra subpartida.
+8418.10 - 8418.69 - - Un cambio a los congeladores verticales u horizontales de la subpartida 8418.10 a 8418.69 desde cualquier otra subpartida fuera de este grupo, excepto de la subpartida 8418.91; o
+Un cambio a cualquier otra mercancía de la subpartida 8418.1 O a 8418.69 desde cualquier otra subpartida.
+(Mediante Resolución N° 370-2015 (COMIECO-LXXIII) del 22 de octubre de 2015 y sus Anexos I (Modificación Anexo al Reglamento Centroamericano sobre el Origen de las Mercancías) y II (Modificación por corrección técnica del texto de la Reglas de Origen)”, aprobada mediante decreto ejecutivo N° 39679 del 3 de marzo del 2016 se reforma la partida anterior)
 8418.91 - 8418.99 - Un cambio a la subpartida 8418.91 a 8418.99 desde cualquier otra partida.
 8419.11 - 8419.89 - Un cambio a la subpartida 8419.11 a 8419.89 desde cualquier otra subpartida.
 8419.90 - Un cambio a la subpartida 8419.90 desde cualquier otra partida.
