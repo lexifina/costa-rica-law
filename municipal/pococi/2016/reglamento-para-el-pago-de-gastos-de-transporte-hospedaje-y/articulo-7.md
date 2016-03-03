@@ -1,0 +1,1 @@
+Artículo 7°—Corresponde al Alcalde Municipal autorizar el pago de transporte, alimentación y hospedaje y crear la partida presupuestaria para darle contenido económico a este tipo de gastos, que no podrán considerarse viáticos. Conforme lo establecen las tablas del Reglamento de gastos, viajes y transporte para funcionarios públicos.

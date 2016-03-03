@@ -1,0 +1,3 @@
+Artículo 15.—Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Por mayoría de 8 votos a favor y 1 en contra, SE ACUERDA: Aprobar el Proyecto de Reglamento para el pago de gastos de transporte, hospedaje y alimentación a los regidores y síndicos propietarios y suplentes de la Municipalidad de Pococí, que se publique en el Diario Oficial La Gaceta, y en la segunda publicación se hacen las correcciones que sean necesarias. Se Dispensa del Trámite de Comisión Acuerdo Definitivamente Aprobado. La regidora Silvia Rodríguez Cerdas vota en contra.
+Guápiles, 9 de febrero 2016.

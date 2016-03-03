@@ -1,0 +1,1 @@
+Artículo 14.—Cuando se comisione a los regidores o los síndicos para realizar giras oficiales fuera del cantón de Pococí, será de aplicación plena el “Reglamento de Gastos de Viajes y de Transporte para Funcionarios Públicos N°R-DC-111-2011, emitido por la Contraloría General de la Republica, de fecha siete de julio de dos mil once.”

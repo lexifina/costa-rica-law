@@ -1,0 +1,1 @@
+Artículo 9°—Si se brindara el transporte requerido para que los señores Regidores y Síndicos, Puedan asistir sin problemas a las sesiones del Concejo, estos en ningún caso pueden solicitar el reconocimiento de transporte.

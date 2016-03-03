@@ -1,0 +1,1 @@
+Artículo 3°—Los Regidores y Síndicos, que podrán hacer uso de estos beneficios, son aquellos que habiten a (DEFINIR EL LIMITE MINIMO) o más kilómetros de la Sede Municipal y zonas de difícil acceso (transporte público) y que deban trasladarse para asistir a las sesiones especialmente por la dificultad del transporte público de buses.
