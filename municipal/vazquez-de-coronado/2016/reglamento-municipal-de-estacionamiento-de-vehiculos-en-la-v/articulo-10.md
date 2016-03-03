@@ -1,0 +1,1 @@
+Artículo 10.—Horario de operación del sistema de Estacionamiento con boleta. La Municipalidad, por medio de la Administración Activa Municipal, definirá el horario en que funcionará el sistema de Estacionamiento con boleta, el cual deberá ser publicado en el Diario Oficial La Gacetapara su validez.

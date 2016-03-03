@@ -1,0 +1,1 @@
+Artículo 22.—Prohibición de recibir dádivas.Queda absolutamente prohibido a los Inspectores solicitar o recibir contribuciones de los usuarios. El irrespeto a esta prohibición será causa justa para dar por terminado el contrato de trabajo del Inspector, sin responsabilidad patronal.

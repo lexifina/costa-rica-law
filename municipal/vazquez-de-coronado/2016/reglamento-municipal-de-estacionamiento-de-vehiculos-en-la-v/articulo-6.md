@@ -1,0 +1,1 @@
+Artículo 6°—Financiamiento del sistema de Estacionamiento con boleta.El sistema de Estacionamiento con boleta, será financiado con los recursos que se obtengan por la venta de boletas, importe de las multas que se impongan por infracciones y otros recursos que leyes especiales o el presupuesto municipal destinen al efecto.

@@ -1,0 +1,1 @@
+Artículo 29.—Apelación.Las infracciones que se impongan basados con la actual reglamentación, tendrán únicamente el Recurso de Apelación durante los primeros cinco días hábiles ante el Alcalde, órgano administrativo que con su resolución agotará la vía administrativa.
