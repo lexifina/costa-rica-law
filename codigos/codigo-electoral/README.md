@@ -1,6 +1,6 @@
 # Código Electoral
 
-Ley N° 8765 del 2009-08-19. SINALEVI, ficha 66148: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66148&param2=107035&param3=1>.
+Ley N° 8765 del 2009-08-19. SINALEVI, ficha 66148: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=66148&param2=103443&param3=1>.
 
 Publicada en La Gaceta N° 171 del 2009-09-02.
 
@@ -25,3 +25,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 15 de 46 | 2013-11-20 | Sala Constitucional, resolución 15343 (2013-11-20) | 2013-11-20 |
 | 16 de 46 | 2014-01-23 | Resolución 5274 (2013-12-03) | 2013-12-03 |
 | 17 de 46 | 2015-10-14 | Sala Constitucional, resolución 16070 (2015-10-14) | 2015-10-14 |
+| 18 de 46 | 2016-03-03 | Resolución 7231 (2015-11-10) | 2015-11-10 |
