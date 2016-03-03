@@ -1,0 +1,1 @@
+Artículo 65.—Derogaciones. Este Reglamento deroga cualquier otra disposición administrativa, o reglamentaria que se contraponga a lo aquí regulado. Principalmente el Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Esparza de 28/05/2007 y sus reformas.

@@ -1,0 +1,4 @@
+CAPÍTULO X
+Disposiciones finales
+Artículo 63.—Recursos. Contra las decisiones de los funcionarios que dependan del Alcalde tendrán los recursos de revocatoria ante el órgano que lo dictó y apelación para ante la Alcaldía municipal, los cuales deberán interponerse dentro del quinto día; podrán fundamentarse en motivos de ilegalidad o inoportunidad y suspenderán la ejecución del acto.
+Cualquier decisión de la Alcaldía municipal, emitida directamente o conocida en alzada, contra lo resuelto, por algún órgano municipal jerárquicamente inferior, estará sujeta a los recursos de revocatoria ante la misma Alcaldía y apelación para ante el Tribunal Contencioso-Administrativo, los cuales deberán interponerse dentro del quinto día; podrán fundamentarse en motivos de ilegalidad y no suspenderán la ejecución del acto, sin perjuicio de que el superior o el mismo órgano que lo dictó pueda disponer la implementación de alguna medida cautelar.

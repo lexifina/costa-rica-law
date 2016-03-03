@@ -1,0 +1,6 @@
+Artículo 25.—Modificación del arreglo de pago. Adelantamiento de cuotas o abonos extraordinarios.
+El obligado tributario podrá adelantar cuotas, gestionándolo previamente ante el Encargado de Cobros, para que realice las previsiones necesarias, según el sistema de pago que se utilice.
+Con base en abonos extraordinarios se readecuará automáticamente la deuda, disminuyendo el plazo o el monto de las cuotas, según lo indique el interesado.
+Solo en caso que la situación económica-financiera transitoria haya empeorado, el obligado tributario podrá solicitar la adecuación de pagos o plazos, debiendo aportar los comprobantes pertinentes.
+La adecuación de plazos puede ser hasta por un cincuenta por ciento (50%) del establecido originalmente, aunque el mismo supere el plazo máximo establecido en el Artículo 20 del presente reglamento. La instancia que aprobó el arreglo de pago inicial comunicará, mediante oficio, el rechazo o aceptación de la solicitud de adecuación de pagos o de plazos.
+No obstante, lo dicho anteriormente, cuando aún con el plazo establecido en la adecuación no pudiere hacer frente a la cuota establecida, se autoriza al señor Alcalde Municipal para que, de manera discrecional, pueda modificar el arreglo de pago existente hasta por un plazo máximo de 36 meses.

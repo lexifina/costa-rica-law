@@ -1,0 +1,2 @@
+Artículo 21.—Cuotas de los arreglos de pago. Para establecer los montos de las cuotas, las deudas tributarias incluidas en el arreglo de pago se fundirán en una sola. El saldo de la deuda se dividirá en tantas cuotas como meses contemplados hallan en la facilidad de pago, por lo que el número de cuotas a cancelar será igual a los meses concedidos.
+La fecha de vencimiento de cada cuota será la que se fije para el pago de la prima y cada cuota devengará los intereses de ley desde la fecha de vencimiento.

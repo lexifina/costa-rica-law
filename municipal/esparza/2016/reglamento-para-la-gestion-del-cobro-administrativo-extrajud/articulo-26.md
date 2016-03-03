@@ -1,0 +1,1 @@
+Artículo 26.—Sobre la documentación relacionada con las facilidades de pago. Toda la documentación que haya sido requerida por el Proceso de Cobros y la Administración Tributaria de la Municipalidad para la suscripción de la facilidad de pago, así como dicho documento, será agregada al expediente y debidamente foliado, para su conservación.

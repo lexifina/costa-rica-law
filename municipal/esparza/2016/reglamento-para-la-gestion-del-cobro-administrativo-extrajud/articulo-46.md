@@ -1,0 +1,1 @@
+Artículo 46.—Pago de honorarios por parte de la Municipalidad. En ningún caso la Municipalidad pagará honorarios al profesional encargado del cobro judicial, salvo aquellos casos donde haya adjudicación de bienes por parte de la Municipalidad.

@@ -1,0 +1,4 @@
+CAPÍTULO IV
+De las facilidades de pago
+Artículo 14.—Condiciones para otorgar facilidades de pago. El requisito esencial para la solicitud de facilidades de pago, ya sea un aplazamiento o un arreglo de pago, es que el obligado tributario esté afrontando una situación económico-financiera que le impida transitoriamente pagar la deuda tributaria en el plazo de ley, siendo a este a quien le corresponda probar tal situación.
+La Administración Tributaria podrá calificar situaciones específicas comunes a actividades o zonas geográficas, que expongan a un grupo de obligados tributarios a una situación económico-financiera que les impida transitoriamente hacer frente al pago en tiempo, de los impuestos a su cargo. Con base en el resultado del estudio podrá definir el plazo de la situación, a efectos de ser considerado en la aprobación de solicitudes de aplazamientos o arreglos de pago.

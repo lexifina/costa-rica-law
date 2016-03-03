@@ -1,0 +1,1 @@
+Artículo 62.—El día hábil siguiente al remate el abogado deberá informar por escrito a la Administración Tributaria el resultado del remate, si pasado un lapso de ocho días no cumpliera con lo anterior, esa Administración Tributaria le enviará una nota solicitando el informe, remitiendo copia al Alcalde para que se proceda de conformidad con el artículo 43 de este Reglamento.

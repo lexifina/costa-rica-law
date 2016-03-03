@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de aplicación. Este reglamento será de aplicación obligatoria para todo el personal municipal que se encuentre relacionado con lo establecido en este reglamento, así como para los abogados externos que sean contratados para gestionar el cobro extrajudicial y judicial de dichas cuentas morosas

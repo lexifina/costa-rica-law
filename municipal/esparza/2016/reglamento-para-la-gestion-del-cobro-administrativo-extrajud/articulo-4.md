@@ -1,0 +1,19 @@
+Artículo 4°—Definiciones. Para los efectos del presente Reglamento, se entenderá por:
+a) Abogados y abogadas Externos: Los profesionales licenciados en Derecho que habiendo cumplido con los requisitos que la municipalidad exige y habiendo concursado para ofrecer sus servicios profesionales a la institución; y que en apego a la normativa de este Reglamento realicen la gestión de cobro judicial respectiva para la recuperación de las obligaciones vencidas. Sin que esto llegue a significar subordinación laboral alguna.
+b) Administración Tributaria: Corresponde a la parte de la Administración Tributaria de la Municipalidad de Esparza, la cual se encarga de gestionar, percibir, administrar y fiscalizar los tributos municipales.
+c) Aplazamiento de pago: Facilidad de pago que otorga la instancia autorizada en el presente reglamento al obligado tributario, para hacer el pago de una deuda tributaria y sus intereses, a más tardar dentro del mes siguiente al vencimiento del plazo para el pago establecido por Ley.
+d) Arreglo de pago: Facilidad de pago que otorga la instancia autorizada en el presente reglamento al obligado tributario, para hacer pago en varios tractos, de una deuda tributaria líquida y exigible. Es el compromiso que asume el contribuyente moroso, con la Municipalidad, de pagar la deuda y los periodos posteriores puestos al cobro en un tiempo perentorio, de acuerdo con lo dispuesto en este Reglamento.
+e) Cobro Administrativo: Las acciones que se realizan administrativamente por parte de la Administración Tributaria a través del Encargado de Cobros, para que las cuentas vencidas y no vencidas sean canceladas por parte de los sujetos pasivos.
+f) Cobro Extrajudicial: Las acciones realizadas extrajudicialmente por los abogados externos, para la cancelación de las cuentas morosas trasladadas a éstos para su respectivo cobro, previo a iniciar la gestión judicial correspondiente.
+g) Cobro Judicial: Las acciones que se realicen por parte de los abogados externos, en vía judicial, en aras de obtener la recuperación de las cuentas morosas trasladadas a éstos para su respectivo cobro.
+h) Contribuyentes: Todas aquellas personas respecto de las cuales se verifica el hecho generador de la obligación tributaria, sean personas físicas o jurídicas.
+i) Cuentas morosas (obligaciones vencidas): Los créditos exigibles de plazo vencido a favor de la Municipalidad, por concepto de tributos municipales, cánones, arrendamientos o cualquier crédito existente de plazo.
+j) Facilidad de Pago: Nombre genérico para referirse al aplazamiento o arreglo de pago.
+k) Monto exiguo: Es aquel que no representa un monto con relevancia económica para la Municipalidad y que al tratar de hacer efectivo no guarda relación entre el costo incurrido y el beneficio recuperado.
+l) Municipalidad: La Municipalidad del Cantón Esparza.
+m) Obligaciones tributarias municipales: Corresponderán a todas aquellas prestaciones en dinero adeudadas por los contribuyentes o responsables a la Municipalidad, como consecuencia de impuestos municipales, o de administración municipal, tasas o contribuciones especiales.
+n) Registro de contribuyentes: Base de datos que contiene la información identificativa de los obligados tributarios por deber formal y el detalle de sus obligaciones.
+o) Reglamento: El Reglamento para la gestión del cobro administrativo, extrajudicial y judicial, la fiscalización y la recaudación tributaria de la Municipalidad de Esparza.
+p) Salario Base: Monto equivalente al salario base mensual del “Oficinista 1” que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República, de conformidad con el artículo 2 de la Ley 7337.
+q) Sujeto activo: Es el sujeto activo de la relación jurídica, es el ente acreedor del tributo, la Municipalidad.
+r) Sujeto Pasivo: La persona obligada al cumplimiento de la cuenta morosa (obligación vencida), sea en calidad de contribuyente, responsable o deudor de la Municipalidad.

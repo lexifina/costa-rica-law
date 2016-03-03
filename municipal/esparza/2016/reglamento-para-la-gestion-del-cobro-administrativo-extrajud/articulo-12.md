@@ -1,0 +1,4 @@
+Artículo 12.—Notificación por edicto. La notificación por edicto se hará mediante un solo edicto publicado en el Diario Oficial La Gaceta cuando no se conozca el domicilio del interesado o, tratándose de personas no domiciliadas en el país, y que no sea del conocimiento de la Administración la existencia de un apoderado en la República.
+En el expediente se dejará constancia de las notificaciones infructuosas que se hayan realizado, de previo a notificar por edicto.
+Es nula la notificación efectuada por edicto, cuando exista un lugar para notificar al obligado tributario que sea notorio y evidente.
+Las notificaciones por edicto válidamente realizadas surten los mismos efectos jurídicos que las demás formas de notificación establecidas en este Reglamento. En estos casos se considera notificado el interesado a partir del tercer día hábil siguiente a la fecha de publicación del edicto.
