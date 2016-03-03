@@ -1,0 +1,3 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 10.—Caución mínima. El monto mínimo de la garantía a favor de la Unión Nacional de Gobiernos Locales será de quinientos mil colones. Anualmente, al Gestión Administrativa Financiera actualizará para cada puesto el monto por caucionar tomando como parámetro el salario base establecido en la Ley N° 7337 del 5 de mayo de 1993. Dicha actualización será comunicada por escrito tanto a los funcionarios caucionantes como a la Unidad de Recursos Humanos. Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, contarán para ello con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicha comunicación.
