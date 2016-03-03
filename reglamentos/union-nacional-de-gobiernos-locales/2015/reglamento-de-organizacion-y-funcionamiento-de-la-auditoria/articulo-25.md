@@ -1,0 +1,4 @@
+SECCIÓN V
+Relaciones y coordinaciones
+Artículo 25.—Relaciones y coordinaciones. En la realización de su gestión, el Auditor Interno deberá mantener relaciones armoniosas y respetuosas con las diversas instancias de la organización, la CGR y otras instituciones de control y fiscalización, Comisiones Legislativas, Ministerio Público, Procuraduría General de la República, denunciantes, entre otros. En relación con los plazos, prórrogas, condiciones y otros relativos al suministro, intercambio, acceso y custodia de información y otros, las partes actuarán con diligencia en aras de no ocasionarse recargos, atrasos e inconvenientes excesivos, todo dentro de criterios de razonabilidad.
+Corresponde al Auditor Interno establecer y regular a lo interno de la auditoría las pautas principales que regirán las relaciones y coordinaciones de los funcionarios a su cargo con los auditados, a fin de que se desarrollen de conformidad con el ordenamiento jurídico y técnico aplicable.

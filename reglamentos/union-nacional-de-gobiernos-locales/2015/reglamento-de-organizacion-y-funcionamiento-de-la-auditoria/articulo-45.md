@@ -1,0 +1,1 @@
+Artículo45.—Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará a criterio del Auditor Interno, a quien corresponde definir el contenido y la forma de presentación de los informes, oficios u otros medios de comunicación, de conformidad con la naturaleza de los asuntos a que se refiera y en atención a su criterio profesional.

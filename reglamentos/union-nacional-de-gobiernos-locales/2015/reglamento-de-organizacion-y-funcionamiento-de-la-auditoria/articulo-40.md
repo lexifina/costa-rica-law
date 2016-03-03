@@ -1,0 +1,1 @@
+Artículo 40.—Procesamiento de información. El Auditor Interno deberá identificar, analizar, evaluar y registrar suficiente información, de tal manera que les permita cumplir con los objetivos del trabajo. Además, deben identificar la información suficiente, confiable, relevante y útil para fundamentar los hallazgos, conclusiones, recomendaciones y demás resultados del trabajo.

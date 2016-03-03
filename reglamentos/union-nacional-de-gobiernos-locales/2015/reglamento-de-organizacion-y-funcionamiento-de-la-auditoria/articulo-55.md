@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Disposiciones finales
+Artículo 55.—De las responsabilidades y sanciones. El incumplimiento injustificado de las regulaciones contenidas en el presente reglamento será causal de responsabilidad administrativa para el Auditor Interno, el Consejo Directivo, titulares subordinados, de conformidad con lo establecido en el Capítulo V de la Ley General de Control Interno y en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento. La determinación de la responsabilidad y aplicación de las sanciones administrativas corresponde al órgano competente y se regirá por la normativa establecida al efecto.

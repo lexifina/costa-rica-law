@@ -1,0 +1,1 @@
+Artículo 17.—Jornada laboral del Auditor. La jornada laboral del Auditor Interno será de tiempo completo. El jerarca se obliga a que las medidas administrativas que adopte para ambos cargos sean equitativas respecto de los puestos que dependen de este, así como en asuntos como el trámite de vacaciones y similares.

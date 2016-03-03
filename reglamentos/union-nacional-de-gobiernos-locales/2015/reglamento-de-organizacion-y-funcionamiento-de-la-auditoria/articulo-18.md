@@ -1,0 +1,3 @@
+SECCIÓN IV
+Del personal de la Auditoría Interna
+Artículo 18.—Del personal. El personal de la Auditoría Interna deberá poseer suficiente conocimiento en auditoría, contabilidad, administración, riesgo y control de tecnología de sistemas de información y comunicaciones, razonable conocimiento sobre indicadores de fraude y corrupción, así como del marco legal que rige el accionar de la Administración Pública y a la UNGL, que lo califique para ejercer en forma apropiada las funciones encomendadas, así como reunir u obtener en conjunto las aptitudes y competencias necesarias para cumplir con sus responsabilidades, de conformidad con las disposiciones internas de la Institución.

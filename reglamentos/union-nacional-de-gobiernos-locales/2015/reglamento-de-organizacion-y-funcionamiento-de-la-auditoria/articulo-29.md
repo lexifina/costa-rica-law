@@ -1,0 +1,1 @@
+Artículo 29.—Obligación de brindar asesoría legal. El Área Legal de la UNGL brindará en forma oportuna y efectiva, los servicios de asesoría legal que requiera la Auditoría Interna para atender sus necesidades de orden jurídico en el ejercicio de sus competencias.

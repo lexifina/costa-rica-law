@@ -1,0 +1,1 @@
+Artículo 56.—Derogatoria. El presente Reglamento de la Auditoría Interna de la Unión Nacional de Gobiernos Locales es aprobado por el Consejo Directivo en Sesión 25-2015, celebrada el 20 de agosto de 2015.

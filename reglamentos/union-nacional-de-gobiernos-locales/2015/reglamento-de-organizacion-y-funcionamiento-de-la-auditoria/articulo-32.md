@@ -1,0 +1,1 @@
+Artículo32.—Administración de los recursos. El Auditor Interno organizará el uso de los recursos materiales, tecnológicos y de otra naturaleza de su dependencia, de tal manera que dichos recursos se utilicen de conformidad con los estándares de calidad, eficiencia, efectividad, legalidad, transparencia y economía, para el logro de las metas y objetivos de la Auditoría Interna.
