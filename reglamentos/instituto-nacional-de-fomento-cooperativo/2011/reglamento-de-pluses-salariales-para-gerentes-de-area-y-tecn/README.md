@@ -14,3 +14,4 @@ Reglamento de pluses salariales para gerentes de área y técnicos licenciados d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-22 | la propia norma |
+| 2 | 2016-03-03 | Reglamento 4064 (2016-03-03) |
