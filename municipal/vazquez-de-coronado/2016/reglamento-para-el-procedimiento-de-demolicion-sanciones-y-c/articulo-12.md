@@ -1,0 +1,2 @@
+Artículo 12.—Sanciones por desobediencia a la autoridad municipal. Cuando los funcionarios municipales autorizados emitan órdenes escritas a los contribuyentes, éstas serán de acatamiento obligatorio, una vez que estén firmes y de acuerdo a la ley.
+Si el contribuyente desobedeciere estas órdenes en evidente confrontación con la autoridad municipal, la Administración podrá acudir a los Tribunales de Justicia a efecto de interponer las denuncias correspondientes por el delito de Desobediencia de acuerdo al artículo 314 del Código Penal.
