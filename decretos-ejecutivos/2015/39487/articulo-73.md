@@ -1,0 +1,1 @@
+Artículo 73.—La Unidad Financiera, será la dependencia responsable de llevar el control presupuestario y de informar a la Unidad de Recursos Humanos sobre cualquier modificación efectuada a la partida presupuestaria de remuneraciones, con el fin de asegurar el contenido económico en cada una de las partidas y subpartidas presupuestarias.

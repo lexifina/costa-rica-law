@@ -1,0 +1,3 @@
+CAPÍTULO XVI
+Sobre salud ocupacional
+Artículo 50.—Corresponde a la Dirección Nacional de CEN-CINAI, adoptar en los lugares de trabajo, las medidas para garantizar la salud ocupacional de los trabajadores, conforme a los términos del Código de Trabajo y su reforma Ley 6727, Ley sobre Riesgos del Trabajo, de 09 de marzo de 1982, que reforma el Título IV “De la Protección de los Trabajadores durante el ejercicio del trabajo”, el presente Reglamento autónomo de servicio, los reglamentos de salud ocupacional que se promulguen y las recomendaciones que, en esta materia, formule tanto el Consejo de Salud Ocupacional, como las autoridades de inspección del Ministerio de Trabajo y Seguridad Social, Ministerio de Salud e Instituto Nacional de Seguros.

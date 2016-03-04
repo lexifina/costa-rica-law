@@ -1,0 +1,1 @@
+Artículo 45.—En cuanto a los servidores interinos o eventuales, gozarán como mínimo de las garantías contempladas en el ordenamiento jurídico cuando así les corresponda, a excepción de los incisos b, c y d, del artículo anterior, en virtud de que tales numerales solo aplican para los funcionarios regulares.

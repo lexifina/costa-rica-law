@@ -1,0 +1,1 @@
+Artículo 16.—Cuando el servicio público lo exija, podrán asignarse a un servidor tareas correspondientes de otro puesto distinto al suyo, por un plazo que no debe exceder de sesenta días consecutivos o no, durante un año.

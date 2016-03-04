@@ -1,0 +1,9 @@
+CAPÍTULO IV
+Sobre los valores institucionales
+Artículo 11.—Son Valores institucionales:
+a) Sensibilidad social: capacidad de percibir las necesidades individuales y colectivas de los clientes y personas beneficiarias. Se trabaja a partir del conocimiento de esa realidad, estableciendo relaciones de confianza y respeto, garantizando la inclusión de los niños, niñas, mujeres embarazadas o en periodo de lactancia más vulnerables de la población para favorecer su acceso a los servicios.
+b) Solidaridad: funcionarios y funcionarias con espíritu de servicio al cliente, que asumen con entusiasmo los desafíos para lograr trabajar por el bien común de las comunidades, promoviendo alianzas estratégicas y uniendo esfuerzos con diferentes actores sociales, para favorecer la salud de la población infantil.
+c) Equidad: la provisión de servicios se establece siguiendo el debido balance, de manera que se dé prioridad a la población más vulnerable con criterios de justicia.
+d) Compromiso: se emplean todas las capacidades y competencias en ejecutar las acciones requeridas para cumplir con todas las responsabilidades, buscando siempre resultados superiores a los esperados y asumiendo con responsabilidad las consecuencias de los actos y decisiones.
+e) Respeto: se aceptan y valoran los intereses y necesidades de los demás, de sí mismos y el entorno que nos rodea al reconocer que el respeto al derecho ajeno es la paz.
+f) Efectividad: se desarrollan las actividades cotidianas enfocándose en el logro de los objetivos de salud definidos a nivel nacional e institucional. Hay responsabilidad por la calidad e impacto del trabajo y por el uso eficiente de los recursos. Se estimula la creatividad, la innovación, la mejora continua y la orientación a los resultados, como medio para superar día con día la productividad.

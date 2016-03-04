@@ -1,0 +1,1 @@
+Artículo 55.—El Programa de Salud Ocupacional debe brindar la asesoría técnica que en materia de salud ocupacional requiera la máxima autoridad y cualquier otra unidad organizativa de la Dirección Nacional de CEN-CINAI, con el propósito de establecer un accionar proactivo.

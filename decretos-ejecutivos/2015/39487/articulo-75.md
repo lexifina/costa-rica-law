@@ -1,0 +1,1 @@
+Artículo 75.—La compensación económica por concepto de Prohibición del Ejercicio liberal de la Profesión, se regulará conforme con las disposiciones de la Ley N° 5867 “Ley de Compensación por pago de Prohibición”, del 15 de diciembre de 1975 sus reformas, y su Reglamento Decreto Ejecutivo N° 22614-H del 22 de octubre de 1993, cuando así corresponda.

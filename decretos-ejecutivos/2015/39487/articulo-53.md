@@ -1,0 +1,1 @@
+Artículo 53.—La Dirección Nacional de CEN CINAI conjuntamente con la Dirección de Gestión, deben definir los lineamientos de ejecución para lograr el desarrollo del Programa de Salud Ocupacional, destinando recursos humanos, financieros, físicos indispensables para el desarrollo y cumplimiento del diagnóstico y programa de Salud Ocupacional.

@@ -1,0 +1,1 @@
+Artículo 72.—La Dirección General de Gestión, a través de la Unidad de Recursos Humanos será la dependencia de la Dirección que tendrá a cargo la aplicación del pago de salarios y los ajustes necesarios en coordinación con la Unidad Financiera.

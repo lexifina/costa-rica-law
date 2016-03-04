@@ -1,0 +1,5 @@
+Artículo 125.—La aplicación de las correcciones disciplinarias en general quedará sujeta a las siguientes reglas:
+a) Podrán imponer sanciones disciplinarias, cuando las faltas cometidas por los servidores sean leves o de mediana gravedad.
+b) También podrá aplicar sanciones hasta por 15 días de suspensión sin goce de salario de acuerdo con los supuestos que se establecen en el presente Reglamento.
+c) De todo lo actuado se deberá remitir copia a la Unidad de Recursos Humanos, con el fin de anexarlo al expediente administrativo del servidor, que se llevará para esos efectos.
+d) En caso de faltas graves que ameriten gestiones de despido, el expediente personal y administrativo deberá ser remitido a la Unidad de Recursos Humanos, con el fin de que en esta instancia se actualice el expediente personal y se eleve al Despacho del Ministro para que decida sobre el trámite a seguir. Si decidiere tramitar el despido sin responsabilidad patronal, pasará el expediente a la Dirección de Asuntos Jurídicos para que se elabore el respectivo escrito que se enviará a la Dirección General de Servicio Civil, para que en esa instancia se proceda al trámite correspondiente.

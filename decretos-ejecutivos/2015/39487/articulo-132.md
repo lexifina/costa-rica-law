@@ -1,0 +1,1 @@
+Artículo 132.—Las sanciones disciplinarias a que se refieren los Artículos 128 y 129, del presente Reglamento, y que se presenten dentro de un mismo mes calendario, se aplicarán independiente una de otra.

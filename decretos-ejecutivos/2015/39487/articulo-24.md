@@ -1,0 +1,1 @@
+Artículo 24.—Para aquellos servidores que laboran jornada acumulativa, el pago de tiempo extraordinario los días sábado, domingo, feriados y asuetos será doble después de cumplida la jornada ordinaria, de acuerdo con la normativa promulgada sobre el tema.

@@ -1,0 +1,1 @@
+Artículo 137.—Cuando a un funcionario se le adeude diferencias salariales por concepto de pago de viáticos deberá interponer el reclamo administrativo ante la Unidad Financiera. Cuando se trate de diferencias salariales por otros conceptos distintos a los descritos anteriormente, deberá interponer dicho reclamo ante la Unidad de Recursos Humanos.

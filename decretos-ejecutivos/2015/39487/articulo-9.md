@@ -1,0 +1,3 @@
+CAPÍTULO III
+Principios y deberes éticos de la función pública y del servidor público de la salud
+Artículo 9°—Dada la importancia que redunda para la sociedad, el servicio público de la salud se deberá regir por los más elementales principios y deberes éticos. El servicio público de la salud llevado a cabo en estricta observancia de dichos principios y deberes, contribuyen a promover el bienestar de la niñez mediante servicios de nutrición y desarrollo infantil, incorporando activa y responsablemente a las familias y comunidades para que a través de la adopción de valores, conocimientos, actitudes y prácticas que determinan la salud se establezcan mejores condiciones para la calidad de vida de la población infantil.

@@ -1,0 +1,2 @@
+Artículo 38.—Sólo se pagarán vacaciones cuando concluya la relación de servicios del funcionario con la Dirección Nacional de CEN-CINAI y existan saldos pendientes de disfrutar.
+Los funcionarios que ingresen a laborar con la Dirección nacional de CEN CINAI y que hayan trabajado con el estado y dispongan de saldo de vacaciones, podrán solicitar a la Unidad de Recursos Humanos el reconocimiento de estas, mediante la presentación de certificación.

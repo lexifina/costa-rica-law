@@ -1,0 +1,1 @@
+Artículo 25.—Para que el pago de horas extras proceda, debe existir previa autorización de la Dirección Nacional de CEN-CINAI. Asimismo, el funcionario que lo solicite debe presentar ante la autoridad competente el informe mensual con la debida autorización y justificación del superior inmediato, para esto debe cumplir con las directrices administrativas que al efecto se emitan.

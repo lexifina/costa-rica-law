@@ -1,0 +1,4 @@
+Artículo 127.—El despido lo tramitará la Dirección Nacional de CEN-CINAI ante el despacho Ministerial en los siguientes casos:
+a) Cuando al servidor se le imponga en dos ocasiones una sanción disciplinaria por incurrir en falta de mediana gravedad, e incurra en causal para la tercera sanción por el mismo concepto, aunque no tenga relación con las anteriores, dentro de un período de tres meses consecutivos, ya que se considerará la repetición de infracciones como conducta reincidente y contraria a las obligaciones de la relación de servicio.
+b) En los casos especialmente previstos en este Reglamento.
+c) Cuando el servidor incurra en alguna de las causales de despido contempladas en el presente Reglamento, en el Estatuto de Servicio Civil y en su Reglamento, falta grave de acuerdo con el Código de Trabajo y sus incisos y otras leyes conexas.

@@ -1,0 +1,3 @@
+CAPÍTULO XIX
+De los movimientos de personal
+Artículo 68.—Ascensos. Se dará prioridad a la promoción interna del personal de la institución vía ascenso directo o por concurso interno, para ocupar cargos vacantes. En tales casos la selección de los servidores que se asciendan, deberá efectuarse en estricto apego a criterios técnicos, mediante lo cual los seleccionados deberán ser escogidos de la respectiva nómina elaborada a lo interno de la Dirección Nacional de CEN-CINAI. Esto de acuerdo con las disposiciones contenidas en la Resolución DG-035-2014, y lo establecido en la normativa promulgada por la Dirección General de Servicio Civil.

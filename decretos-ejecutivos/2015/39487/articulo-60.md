@@ -1,0 +1,1 @@
+Artículo 60.—Los Directores y Jefes deben dar seguimiento a las acciones preventivas tendientes a preservar, mantener y mejorar la salud individual y colectiva de los servidores en sus respectivas unidades organizativas, con el fin de que sus actividades sean desarrolladas en sus sitios de trabajo en forma integral e interdisciplinaria.

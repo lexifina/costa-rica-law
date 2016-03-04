@@ -1,0 +1,1 @@
+Artículo 56.—El Programa de Salud Ocupacional debe brindar la información necesaria y asesorar para que en el nivel regional y local se conformen las Comisiones cuando corresponda. Un centro de trabajo debe contar con una Comisión cuando cuente con 10 o más trabajadores permanentes y con un mínimo de un año de antigüedad laboral.

@@ -1,0 +1,1 @@
+Artículo 121.—Las sanciones disciplinarias por acoso u hostigamiento laboral, se aplicarán de acuerdo con la gravedad de los hechos, de acuerdo con lo establecido en el Capítulo XXVII “Del régimen disciplinario y su procedimiento de aplicación”, del presente Reglamento.

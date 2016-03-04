@@ -1,0 +1,1 @@
+Artículo 70.—Traslados y reubicaciones de funciones se regirán según lo dispuesto en el artículo 22 bis del Decreto Ejecutivo N° 21 de 14 de diciembre de 1954, Reglamento del Estatuto de Servicio Civil y demás normativa emitida por la Dirección General de Servicio Civil.

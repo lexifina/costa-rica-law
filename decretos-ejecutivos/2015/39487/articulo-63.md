@@ -1,0 +1,3 @@
+CAPÍTULO XVII
+De las becas y licencias para estudio
+Artículo 63.—La materia relativa a la concesión de becas y a la capacitación de los funcionarios de la Dirección Nacional de CEN-CINAI, estará regulada por la normativa especial que respecto a esta materia esté vigente, sean Ley N° 3009, Reforma Ley de Licencias de Adiestramiento de Servidores Públicos, de fecha 18 de julio de 1962 y Decreto Ejecutivo N° 17339-P, Reglamento a la Ley de Licencias de Adiestramiento de Servidores Públicos, de fecha 2 de diciembre de 1986, así como las disposiciones que al efecto emita la Dirección General de Servicio Civil.

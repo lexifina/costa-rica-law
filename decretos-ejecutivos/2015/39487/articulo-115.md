@@ -1,0 +1,4 @@
+Artículo 115.—Sanciones. Las sanciones disciplinarias por hostigamiento u acoso laboral, se aplicarán de acuerdo con la gravedad de los hechos, amonestación escrita cuando la falta sea leve, suspensión sin goce de salario en caso de falta de mediana gravedad y el despido sin responsabilidad patronal cuando se trate de falta grave.
+En caso de que la denuncia de hostigamiento u acoso laboral sea contra del Director Nacional de CEN-CINAI, será el Ministro quién ejecutará las medidas disciplinarias correspondientes.
+El Órgano decisor tendrá un plazo de un mes a partir del informe final o de la firmeza del acto final que resuelva los recursos administrativos, para decretar la sanción aplicable.
+En lo no previsto en este capítulo, se aplicará lo establecido en la Ley General de la Administración Pública Nº 6227 y el Código de Trabajo.

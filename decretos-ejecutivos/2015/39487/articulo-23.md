@@ -1,0 +1,1 @@
+Artículo 23.—La jornada ordinaria sumada a la extraordinaria, no debe exceder las doce horas, salvo que por riesgo inminente peligre la salud de la población en general o de una zona geográfica determinada y que, sin evidente perjuicio, no puedan sustituirse los servidores o suspenderse las labores de los que están trabajando.

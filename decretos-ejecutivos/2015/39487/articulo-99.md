@@ -1,0 +1,1 @@
+Artículo 99.—Resolución de la Medida Cautelar. En caso de que la Comisión Investigadora recomiende una medida cautelar, será la Dirección Nacional de CEN-CINAI, la que resolverá en única instancia su procedencia. Dicha medida carece de recurso de revocatoria o de apelación, no obstante cabrá adición o aclaración.

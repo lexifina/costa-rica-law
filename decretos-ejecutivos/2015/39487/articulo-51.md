@@ -1,0 +1,1 @@
+Artículo 51.—Con el fin de consolidar la política de prevención laboral, se garantizará la participación activa y el compromiso de integrar a los servidores de todos los niveles de la organización, de manera tal que se logre alcanzar así, una mejor calidad de vida de todos los servidores de la Dirección Nacional de CEN-CINAI.

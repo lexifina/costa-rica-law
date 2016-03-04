@@ -1,0 +1,1 @@
+Artículo 126.— Para todo tipo de sanción disciplinaria que se imponga a los servidores, sea del nivel central, regional o local, se debe llevar el procedimiento correspondiente en apego a los principios constitucionales rectores de la garantía constitucional del debido proceso.

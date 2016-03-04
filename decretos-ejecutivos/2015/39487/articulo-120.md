@@ -1,0 +1,1 @@
+Artículo 120.—El superior jerárquico que no procediere conforme a la solicitud del órgano director en cuanto a la reubicación de la víctima o del supuesto acosador, incurrirá en incumplimiento de las obligaciones señaladas en el Articulo 48, inciso u) de este Reglamento.

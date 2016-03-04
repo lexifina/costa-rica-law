@@ -1,0 +1,1 @@
+Artículo 29.—La presentación al sitio de trabajo posterior a los tiempos de descanso en la mañana, al medio día y en la tarde, que sobrepasen los tiempos estipulados en el Artículo 21° también se considerarán llegadas tardías.

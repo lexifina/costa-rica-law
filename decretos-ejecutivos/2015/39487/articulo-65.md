@@ -1,0 +1,1 @@
+Artículo 65.—Todas las servidoras en estado de gravidez, tendrán derecho a licencia con goce de sueldo conforme a las estipulaciones contempladas en el Decreto Ejecutivo N° 21 del 14 de diciembre de 1954 “Reglamento del Estatuto de Servicio Civil”.
