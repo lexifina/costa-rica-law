@@ -1,0 +1,2 @@
+Artículo 2º—Exoneración.
+De conformidad con lo dispuesto en los artículos 9 de la Ley del Impuesto General sobre las Ventas - Ley N° 6826 de 8 de noviembre de 1982 y sus reformas- y 4 y 5 del Reglamento a esa ley - Decreto Ejecutivo N° 14082-H de 29 de noviembre de 1982 y sus reformas-, se consideran exentos del pago del impuesto sobre las ventas los uniformes que cumplan estrictamente con las características descritas en los incisos a), b), c) y d) del artículo anterior.
