@@ -1,0 +1,2 @@
+Artículo 73º- La transgresión a las anteriores prohibiciones podrá ser denunciada, en forma oral o escrita, ante la Oficialía Mayor, debiendo levantar, en caso de denuncia oral, un acta en la que hará constar los hechos denunciados. En este mismo acto la persona denunciante deberá proponer las pruebas que en forma preliminar está en posibilidad de presentar.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 39677 del 4 de marzo del 2016, que lo traspasó del antiguo artículo 46 al 73)

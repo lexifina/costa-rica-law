@@ -1,4 +1,2 @@
-Artículo 65º- Los servidores que se encuentren bajo el Régimen de
-Servicio Civil presentarán sus reclamos conforme con los artículos 88 y
-89 del Estatuto. Aquellos que no se encuentren amparados a dicho Régimen
-se regirán por la ley ordinaria.
+Artículo 65.- Deber de informar a la Defensoría de los Habitantes de la República. Conforme a lo establecido por el artículo 7 de la Ley Nº 7476 del 03 de febrero de 1995, el Ministro de Comercio Exterior informará a la Defensoría de los Habitantes de la República, sobre las denuncias de hostigamiento sexual interpuestas, con el objeto de que tenga conocimiento formal de estas, acceso al expediente e intervención facultativa en los procedimientos, para efectos de que pueda ejercer la función asesora y contra/ora de legalidad. Asimismo, deberá remitirle la resolución final de los procedimientos administrativos que por ese motivo se realicen en la institución.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

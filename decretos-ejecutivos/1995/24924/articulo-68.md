@@ -1,1 +1,2 @@
-Artículo 68º- Rige a partir de su publicación en el Diario Oficial.
+Artículo 68.- Derechos de los servidores. En aquellos casos en que, dentro del ambiente laboral se den acciones discriminatorias contra algún funcionario por razones de orientación sexual, identidad o expresión de género, según la gravedad de la falta, se aplicarán las siguientes sanciones: amonestación escrita, suspensión sin goce de salario hasta por ocho días y despido sin responsabilidad patronal. Lo anterior sin perjuicio de las acciones que en vía judicial pudieran proceder.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

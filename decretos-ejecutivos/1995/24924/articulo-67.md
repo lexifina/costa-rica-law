@@ -1,4 +1,2 @@
-Artículo 67º- Este Reglamento no perjudica los derechos
-jurídicamente adquiridos por los funcionarios del Ministerio. Se
-presumirá de conocimiento de éstos y será de observancia obligatoria para
-todos desde el día de su vigencia.
+Artículo 67.- Reconocimiento de la unión. Los servidores que convivan en unión libre, ya sea en una relación homosexual o heterosexual, tendrán los mismos derechos contemplados en el presente Reglamento, que aquellos funcionarios que se encuentren bajo la condición del matrimonio o del reconocimiento de la unión de hecho. En todo momento y bajo cualquier circunstancia, se consentirá y respetará el calificativo de compañera o compañero de la misma forma que el de cónyuge o el conviviente de hecho.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

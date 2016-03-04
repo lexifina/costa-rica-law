@@ -1,0 +1,2 @@
+Artículo 77º- Finalizadas la o las comparecencias, dentro del plazo de cinco días hábiles, el órgano director procederá a emitir el informe respectivo que deberá contener las recomendaciones disciplinarias y que trasladará al jerarca, quien deberá resolver dentro de un plazo igual.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 39677 del 4 de marzo del 2016, que lo traspasó del antiguo artículo 50 al 77)

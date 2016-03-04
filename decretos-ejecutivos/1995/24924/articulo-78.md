@@ -1,0 +1,2 @@
+Artículo 78º- Las sanciones aplicables, según la gravedad de la falta y de conformidad con lo establecido en la Ley Nº 7476 antes citada, son las siguientes: advertencia escrita, suspensión sin goce de salario hasta por ocho días y despido sin responsabilidad patronal. Lo anterior sin perjuicio de las acciones que en vía judicial pudieran proceder.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 39677 del 4 de marzo del 2016, que lo traspasó del antiguo artículo 51 al 78)

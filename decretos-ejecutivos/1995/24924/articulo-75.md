@@ -1,0 +1,2 @@
+Artículo 75º- En caso de que haya suficientes elementos para considerar procedente el inicio del procedimiento administrativo, la Oficialía Mayor y la Dirección de Asesoría Legal, constituidos como órgano director del procedimiento, procederán a citar al denunciante y al denunciado a una comparecencia oral y privada que se realizará en un plazo de quince días hábiles posteriores a su notificación.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 39677 del 4 de marzo del 2016, que lo traspasó del antiguo artículo 48 al 75)

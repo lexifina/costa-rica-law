@@ -1,9 +1,2 @@
-CAPITULO XVII
-Expedientes Personales
-Artículo 63º- Le corresponderá al Departamento de Recursos Humanos
-la atención de todos los asuntos inherentes a esta materia.
-Este Departamento llevará un expediente personal de cada servidor
-del Ministerio, debidamente foliado, en el cual se archivarán los
-documentos relativos a su empleo y las constancias de todos aquellos
-datos que sirvan para mantener un historial de sus servicios lo más
-exacto posible.
+Artículo 63.- Despido de servidores regulares. Concluido el procedimiento y comprobada la comisión de faltas graves atribuidas a servidores regulares amparados por el Régimen Estatutario del Servicio Civil, corresponderá al Ministro de Con1ercio Exterior interponer oportunamente ante la Dirección General de Servicio Civil, la respectiva gestión de despido, conforme a lo dispuesto por el Estatuto de Servicio Civil y su Reglamento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

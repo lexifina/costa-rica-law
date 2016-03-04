@@ -1,3 +1,4 @@
-Artículo 52º- Contra el acto final podrán interponerse los recursos
-ordinarios contemplados en los artículos 342 y siguientes de la Ley
-General de la Administración Pública.
+Artículo 52.- Órganos competentes para atender y tramitar las denuncias. La instancia para recibir la denuncia por hostigamiento sexual por parte del personal del Ministerio de Comercio Exterior, incluidos Mh1istro o Viceministro, e-s el Departamento de Recursos Humanos.
+Cuando la denuncia sea recibida por el Departamento de Recursos Humanos, éste deberá ponerla en conocimiento del Ministro. Si el funcionario denunciado fuera el Ministro de Comercio Exterior, el Departamento de Recursos Humanos, deberá comunicar dicha denuncia al Presidente de la República. Si el funcionario denunciado fuera el Viceministro de Comercio Exterior, corresponderá al Departamento de Recursos Humanos hacerla de conocimiento del Ministro.
+Cuando el denunciado sea alguno de los funcionarios del Departamento de Recursos Humanos, la denuncia será presentada directamente ante el jerarca de la institución.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

@@ -1,6 +1,5 @@
-Artículo 57º- La advertencia oral se aplicará en los siguientes
-casos:
-a) Cuando el servidor cometa alguna falta leve a las obligaciones
-expresas o tácitas que le impone su relación de servicio y
-este Reglamento.
-b) En los demás casos especialmente previstos en este Reglamento.
+Artículo 57.- Conformación Comisión Investigadora. Dentro de los tres días hábiles siguientes a la recepción de la comunicación del Departamento de Recursos Humanos, el Ministro de Comercio Exterior procederá conformar una Comisión Investigadora.
+Dicha Comisión estará integrada por tres funcionarios de la institución, preferiblemente con conocimientos en materia de hostigamiento sexual. Al menos uno de los integrantes designados por el jerarca, será un funcionario de la Dirección de Asesoría Legal. En la conformación de la Comisión, siempre se respetará la representación de ambos sexos.
+La Comisión Investigadora tramitará la denuncia sin recurrir a la ratificación de ésta ni a la investigación preliminar de los hechos denunciados. La denuncia se tramitará con la mayor confidencialidad, resguardando la identidad e imagen de Zas personas involucradas. La violación de la confidencialidad de todo lo relacionado con los hechos que motivaron la denuncia y de lo acontecido en el procedimiento, por parte del o los funcionarios vinculados directa o indirectamente con éste, será considerada una falta grave y se sancionará de conformidad con lo dispuesto en el presente Reglamento.
+Para lo no contemplado en la presente Sección para el funcionamiento de la Comisión Investigadora, dicho órgano se regirá por el Capítulo Tercero: De los Órganos Colegiados del Título Segundo del Libro Primero de la Ley General de la Administración Pública.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

@@ -1,4 +1,2 @@
-Artículo 55º- Durante los tres primeros días de incapacidad, el
-Ministerio pagará la totalidad del salario que corresponda. En todo lo
-demás se estará a lo dispuesto en los artículos 34, 35 y 36 del
-Reglamento del Estatuto de Servicio Civil.
+Artículo 55.- Plazo para interponer la denuncia y prescripción. El plazo para interponer la denuncia es de dos años y se computará a partir del último hecho consecuencia del hostigamiento sexual o a partir de que cesó la causa justificada que impidió denunciar. El plazo de prescripción se computará de conformidad con el artículo 603 del Código de Trabajo.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

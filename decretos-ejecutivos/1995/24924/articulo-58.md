@@ -1,8 +1,4 @@
-Artículo 58º- La advertencia escrita se aplicará:
-a) Cuando se haya advertido al servidor en los términos del artículo
-anterior e incurra nuevamente en la misma falta en un periodo
-de tres meses, si la falta no diere mérito a una sanción
-mayor.
-b) Cuando las leyes exijan advertencia o apercibimiento escrito
-antes del despido.
-c) En los demás casos especialmente previstos en este reglamento.
+Artículo 58.- Competencias de la Comisión Investigadora. La Comisión Investigadora procurará averiguar la verdad real de los hechos denunciados, observando los principios generales del debido proceso, la proporcionalidad y la libertad probatoria, la confidencialidad y el principio pro víctima, el cual implica que en caso de duda se inte1pretará a favor de la víctima y no podrá considerarse los antecedentes de la persona denunciante, particularmente en lo relativo al ejercicio de su sexualidad.
+Asimismo, las pruebas serán valoradas de conformidad con las reglas de la sana crítica, la lógica y la experiencia; ante la ausencia de prueba directa se deberá valorar la prueba indiciaria y todas las otras fuentes del derecho común, atendiendo los principios especiales que rigen en materia de hostigamiento sexual.
+Las partes, por cuenta propia, podrán contar con patrocinio letrado y hacerse acompañar de apoyo emocional o psicológico de su confianza, durante todo el procedimiento.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

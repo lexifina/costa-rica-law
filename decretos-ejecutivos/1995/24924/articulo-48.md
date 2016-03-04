@@ -1,6 +1,2 @@
-Artículo 48º- En caso de que haya suficientes elementos para
-considerar procedente el inicio del procedimiento administrativo, la
-Oficialía Mayor y la Dirección de Asesoría Legal, constituidos como
-órgano director del procedimiento, procederán a citar al denunciante y al
-denunciado a una comparecencia oral y privada que se realizará en un
-plazo de quince días hábiles posteriores a su notificación.
+Artículo 48.- Órgano responsable de la divulgación y prevención. La labor de divulgación de la Ley Nº 7476 del 03 de febrero de 1995 y de la presente Sección, así como de las políticas de prevención contra el hostigamiento o acoso sexual en el empleo, será responsabilidad del Departamento de Recursos Humanos del Ministerio de Comercio Exterior. Para cumplir con esta función, dicho Departamento deberá coordinar acciones con los jerarcas del Ministerio de Comercio Exterior.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)

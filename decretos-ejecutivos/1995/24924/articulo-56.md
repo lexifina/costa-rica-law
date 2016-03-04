@@ -1,12 +1,5 @@
-CAPITULO XVI
-Régimen Disciplinario
-Artículo 56º- Las faltas en que incurran los servidores serán
-sancionadas, según su gravedad, con las siguientes medidas
-disciplinarias:
-a) Advertencia oral.
-b) Advertencia escrita.
-c) Suspensión sin goce de salario hasta por quince días.
-d) Despido sin responsabilidad patronal.
-Las sanciones se aplicarán atendiendo no estrictamente al orden aquí
-señalado, sino a lo regulado en cada caso, según lo amerite la gravedad
-de la falta.
+Articulo 56.- Requisitos para presentar las denuncias. Las denuncias podrán hacerse en forma oral o escrita y deberán, al menos, indicar el nombre completo del denunciante y su número de cédula, el nombre completo del denunciado, una indicación o descripción de los hechos o las conductas de hostigamiento sexual que sufrió o está sufriendo el denunciante, la fecha aproximada a partir de la cual fue o ha sido sujeto de dicho acoso, el nombre completo y número de cédula de las personas que puedan atestiguar sobre los hechos denunciados y la presentación o indicación de cualquier otra prueba que considere sirva para la comprobación del hostigamiento sexual.
+El Departamento de Recursos Humanos, elaborará y pondrá a disposición de todos los funcionarios y usuarios del Ministerio de Comercio Exterior, un formato para la atención de denuncias de acoso sexual que cumpla con todos los requisitos mínimos antes señalados.
+Asimismo, toda denuncia presentada de forma oral o escrita deberá ser firmada por el denunciante. Cuando la denuncia se presente de forma oral, la jefatura del Departamento de Recursos Humanos, deberá concurrir con !afirma de dicha denuncia.
+El Departamento de Recursos Humanos, a más tardar, el día hábil siguiente de presentada la denuncia, comunicará la misma al Ministro de Comercio Exterior.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39677 del 4 de marzo del 2016)
