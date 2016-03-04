@@ -1,0 +1,9 @@
+Artículo 6º—El Comité de Seguimiento estará integrado de la siguiente forma:
+1. El Ministro de Agricultura y Ganadería o el viceministro que este designe;
+2. El Ministro de Ambiente y Energía o el viceministro que este designe;
+3. El Ministro de Salud o el viceministro que este designe;
+4. El Ministro Trabajo y Seguridad Social o el viceministro que este designe;
+5. Una persona representante de las cámaras o asociaciones de productores de piña y su respectivo suplente, nombradas por las agremiaciones que hayan manifestado su interés de participar por escrito a la presidencia de este Comité, quien a su vez fijará los mecanismos de selección de las personas representantes, acorde a lo estipulado en el Artículo 8 inciso 6) del presente reglamento.
+6. Una persona representante de los grandes productores de piña y su respectivo suplente, nombradas por las organizaciones que hayan manifestado su interés de participar por escrito a la presidencia de este Comité, quien a su vez fijará los mecanismos de selección de las personas representantes, acorde a lo estipulado en el Artículo 8 inciso 6) del presente reglamento.
+7. Una persona representante de pequeños y medianos productores y su respectivo suplente, nombradas por las organizaciones que hayan manifestado su interés de participar por escrito a la presidencia de este Comité, quien a su vez fijará los mecanismos de selección de las personas representantes, acorde a lo estipulado en el Artículo 8 inciso 6) del presente reglamento.
+8. Dos personas representantes de las Organizaciones Comunitarias u ONG y sus respectivos suplentes, nombradas por las organizaciones que hayan manifestado su interés de participar por escrito a la presidencia de este Comité, quien a su vez fijará los mecanismos de selección de las personas representantes, acorde a lo estipulado en el Artículo 8 inciso 6) del presente reglamento.

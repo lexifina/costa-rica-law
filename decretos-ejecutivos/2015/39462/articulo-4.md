@@ -1,0 +1,1 @@
+Artículo 4°—Oficialícense las líneas de acción y tareas lideradas por el Estado representado por el MAG, MINAE, M.T.S.S y M.S, y contenidas en el Plan de Acción y que se consignan en el anexo del presente Decreto Ejecutivo, el cual forma parte integral de éste.
