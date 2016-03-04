@@ -1,1 +1,0 @@
-5º—Informar que de conformidad con la resolución RES-DGA-313-2012 de fecha 1° de octubre del 2012, el funcionario aduanero responsable de verificar en la Unidad de Control de Ingresos de la Tesorería Nacional el depósito del pago voluntario de intereses, debe enviar un correo a la dirección de correo ingresos@hacienda.go.cr y llamar a los teléfonos 2284-5268 ó 2284-5317.

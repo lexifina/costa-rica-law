@@ -1,1 +1,0 @@
-4º—Comunicar que de conformidad con los artículos 101 del CAUCA, 62, 231, 233 y 233 bis de la Ley General de Aduanas, la facultad de la autoridad aduanera para sancionar las infracciones reguladas en el capítulo de Infracciones Administrativa y Tributarias Aduaneras, prescribe en seis años contados a partir de la comisión de las infracciones.

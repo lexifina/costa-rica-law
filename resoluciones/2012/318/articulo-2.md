@@ -1,1 +1,0 @@
-2º—Que a partir de la vigencia de esta resolución y mientras se realiza el ajuste al sistema informático TICA, la autoliquidación de las multas establecida en el penúltimo párrafo del artículo 233 de la Ley General de Aduanas y sus reformas se realizará en forma manual.
