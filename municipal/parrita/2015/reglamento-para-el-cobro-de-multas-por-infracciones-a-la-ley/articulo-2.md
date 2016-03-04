@@ -1,0 +1,1 @@
+Artículo 2º—La inspección de las obras civiles que se realicen en la jurisdicción del Cantón de Parrita, corresponde su responsabilidad al Departamento de Desarrollo Urbano y Social o mediante los inspectores designados y calificados para el efecto, también quedará facultado cualquier otro funcionario que se designe por parte del Departamento de Desarrollo Urbano y Social.
