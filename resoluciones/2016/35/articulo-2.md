@@ -1,0 +1,1 @@
+II. Tener como respuesta a los opositores que participaron en la audiencia pública realizada el 14 de diciembre de 2015, lo señalado en los oficios 003-CMTB-2016 y 006-CMTB-2016, que constan en el expediente OT-230-2015 y agradecer la valiosa participación de todos en este proceso.

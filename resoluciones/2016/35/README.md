@@ -1,0 +1,16 @@
+# Resolución 35
+
+Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado de Personas Modalidad Autobús
+
+- Tipo: Resolución
+- Número: 35
+- Fecha: 2016-02-25
+- Ente emisor: Autoridad Reguladora de los Servicios Públicos
+- Publicación: La Gaceta N° 46 del 2016-03-07, Alcance 35
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=81222&param2=103479&param3=1 (ficha 81222)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2016-03-07 | la propia norma |
