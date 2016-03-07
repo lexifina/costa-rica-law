@@ -48,7 +48,6 @@ SISTEMA DE GENERACIÓN, ICE
 ESTIMACIÓN DE VENTAS DE ENERGÍA A LOS ABONADOS DIRECTOS, INGRESOS SIN
 COMBUSTIBLES Y CON COMBUSTIBLES
 TRIMESTRAL, 2016
-[imagen]
 Generación térmica e importaciones
 Es importante recalcar la baja que se tiene en la generación térmica del año 2015 y el poco consumo de combustibles estimado para 2016, lo cual impacta las tarifas finales, esto debido a una mayor generación eléctrica con fuentes renovables y un aumento en las importaciones de energía. La primera se debe a mejores condiciones de clima y a nuevos proyectos que han empezado a inyectar energía al sistema y la segunda se debe al esfuerzo que ha venido realizando la Intendencia de Energía para que el Mercado Eléctrico Nacional se beneficie de las oportunidades que le brinda el Mercado Eléctrico Regional.
 ii. Sistema de distribución del ICE y otras empresas
@@ -70,7 +69,6 @@ ESTIMACIÓN DE COMPRAS DE ENERGÍA AL ICE GENERACION, INGRESOS SIN Y
 CON COMBUSTIBLES POR VENTA DE ENERGÍA A SUS ABONADOS
 MILLONES DE COLONES
 AÑO 2016
-[imagen]
 La columna: “Ingreso con combustible” incluye el costo variable por combustibles actualizado para el año 2016 en cada una de las tarifas, utilizando el cargo trimestral indicado en el cuadro No. 8 del presente informe.
 b. Análisis de los combustibles
 Para estimar en unidades físicas la generación térmica para el año 2016, se tomaron las proyecciones obtenidas por ARESEP de la forma que anteriormente se detalló, esto por cuanto para este momento se han actualizado todos los mercados de las distribuidoras, al contarse con información real para todas las empresas al mes de octubre 2015. Con base en esta información, la generación térmica estimada por ARESEP para el primer trimestre es de 48,5 GWh, para el segundo trimestre de 48,9 GWh, para el tercer trimestre de 0 GWh, al igual que para el cuarto trimestre de 0 GWh. Por su parte, el ICE estimó una generación térmica para el primer trimestre de 105 GWh, para el segundo trimestre de 68 GWh, mientras que para el tercer y cuarto trimestre se esperan 0 GWh.
@@ -84,15 +82,12 @@ Los precios utilizados para valorar el diésel térmico y el búnker de bajo azu
 CUADRO Nº 3
 PRECIOS DE COMBUSTIBLES PARA GENERACIÓN TÉRMICA
 COLONES POR LITRO
-[imagen]
-[imagen]
 Para realizar los cálculos y las proyecciones, el precio del combustible total, se convierte a dólares utilizando el tipo de cambio de venta para las operaciones con el sector público no bancario de la misma fecha que la publicación de la resolución de los combustibles utilizada, en este caso, de ¢536,5 del 06 de noviembre de 2015. Pero para calcular el gasto de combustible se utiliza el tipo de cambio promedio anual proyectado para el 2016 de ¢540,43.
 Dados estos precios de los combustibles y la cantidad de litros que se prevé consumir en el periodo de análisis, el gasto estimado para el año 2016, por mes, se detalla en el siguiente cuadro:
 CUADRO Nº 4
 CONSUMO DE COMBUSTIBLES PARA GENERACIÓN TÉRMICA
 MILLONES DE COLONES
 AÑO 2016
-[imagen]
 c. Ajuste en el sistema de generación del ICE
 El cálculo del ajuste necesario para las tarifas del sistema de generación suma los siguientes rubros:
 i. Gasto de combustibles para el año 2016:
@@ -106,14 +101,12 @@ CUADRO Nº 5
 AJUSTE TRIMESTRAL
 AGOSTO, SETIEMBRE Y OCTUBRE 2015
 MILLONES DE COLONES
-[imagen]
 iii. Ajuste total al sistema de generación
 De los cálculos anteriores, resulta que en el primero, segundo, tercero y cuarto trimestre del 2016 el monto total a reconocer por concepto de combustibles para generación térmica, ajuste trimestral y por el traslado de gastos del tercer trimestre 2015, es de ¢ 4 447,91 millones para el 1er trimestre del 2015, siendo el cargo (C1) total del 5,08%, de ¢2 601,43 para el 2º trimestre y un cargo (C2) de 2,37%, así como de ¢0 y 0%, para el tercer y cuarto trimestre; los cuales deben ser reflejados en las tarifas finales del sistema de generación y las compras en el sistema de distribución para el periodo de interés. El resumen del monto reconocido en el primer trimestre del 2016 es el siguiente, según cada uno de sus componentes:
 CUADRO Nº 6
 MONTO A RECONOCER EN EL PRIMER TRIMESTRE
 ENERO-MARZO 2016
 MILLONES DE COLONES
-[imagen]
 El cargo se obtiene de dividir el monto total a reconocer en el primer trimestre 2016 (¢4 447,91 millones del Cuadro Nº 6) entre el total de ingresos estimados (sin combustibles) de este mismo trimestre (datos del Cuadro Nº 1, con usuarios directos)
 iv. Tarifas para los usuarios directos del servicio de generación del ICE:
 La determinación de las tarifas competitivas para los usuarios directos del servicio de generación del ICE, tarifa T-UD se realizó de conformidad con lo definido en el Plan Nacional de Desarrollo, el Plan Nacional de Energía, la Directriz 031-MINAET, el Por Tanto I.7.h de la resolución RJD-017-2012 y las resoluciones 856-RCR-2012 del 11 de mayo de 2012, 1027-RCR-2012 del 20 de diciembre del 2012 y la RIE-019-2013 del 8 de febrero del 2013, esta última rectificada por la RIE-099- 2013 del 26 de noviembre del 2013.
@@ -127,12 +120,10 @@ MONTOS POR COMPRAS DE ENERGÍA POR EMPRESA DISTRIBUIDORA
 POR CONCEPTO DE COMBUSTIBLES
 MILLONES DE COLONES
 AÑO 2016
-[imagen]
 Con la información de compras de energía por concepto de generación térmica y de los ingresos sin combustibles del sistema de distribución según la metodología, se procede a calcular los factores CD1, CD2, CD3 y CD4 para cada una de las distribuidoras, tal y como se detalla:
 CUADRO Nº 8
 CARGO TRIMESTRAL POR EMPRESA DISTRIBUIDORA DE ENERGÍA
 AÑO 2016
-[imagen]
 Los porcentajes anteriores son los que se utilizan para calcular las tarifas finales de cada empresa.
 2. Estructura tarifaria
 En este informe se incluyen las descripciones de las aplicaciones de cada una de las tarifas de los pliegos tarifarios, ya que de conformidad con la resolución RIE-127-2015 se modifica la aplicación de la tarifa TMT-b de conformidad con lo establecido en el Plan Nacional de Energía 2015-2030; por lo que se considera oportuno mantener en una misma resolución la totalidad de las descripciones para ubicar con mayor facilidad a los prestadores de servicios públicos y los usuarios.
@@ -164,9 +155,7 @@ POR TANTO
 EL INTENDENTE DE ENERGÍA
 RESUELVE:
 I. Establecer los siguientes cargos trimestrales por empresa para el año 2016 aplicables a la estructura de costos sin combustibles de cada una de ellas:
-[imagen]
 II. Fijar los precios de las tarifas para el servicio de generación que presta el Instituto Costarricense de Electricidad, tal y como se detalla (¢/kWh, ¢/kW y %, según corresponda):
-[imagen]
 Tarifa T-CB Ventas a ICE distribución y CNFL, S.A.
 A. Aplicación: Aplicable a la Compañía Nacional de Fuerza y Luz S.A. y al servicio de distribución del Instituto Costarricense de Electricidad.
 B. Características del servicio:
@@ -209,7 +198,7 @@ En caso de que el cliente no cumpla con estos requisitos, para el cargo por pote
 El cliente debe aportar al ICE una línea telefónica o troncal de las que posee para la aplicación de la interrogación remota del equipo de medición, durante un intervalo máximo de aproximadamente 30 minutos al mes, previo aviso de parte del ICE. El cliente hará la instalación de la línea telefónica hasta donde se encuentre el equipo de medición. La conexión respectiva la efectuará el ICE.
 Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público, el impuesto de venta, ni el tributo a bomberos.
 III. Fijar los precios de las tarifas para los sistemas de distribución del ICE y de las empresas distribuidoras de electricidad, tal y como se detalla (¢/kWh, ¢/kW y %, según corresponda):
-[imagen]
+(*) (Mediante el por tanto II resolución N° RIE-028-2016. A las 14:43 horas del 7 de marzo de 2016, se indicó lo siguiente: “ … II. Ajustar el pliego tarifario definido en el Por Tanto I de la resolución RIE-127-2015 y por conexidad el pliego tarifario de ICE distribución incluido en el Por Tanto III de la resolución RIE 129-2015 del 15 de diciembre de 2015, para que se excluya de ambas resoluciones, el cargo fijo de los clientes con consumo de energía y potencia por los primeros 3000 kWh para las tarifas T-GE y T-CS.”)
 Tarifa T-RE Residencial
 A. Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 Tarifa T-GE General
@@ -257,7 +246,6 @@ La operación de este tipo de generación en las instalaciones del cliente no de
 En caso de que el cliente no cumpla con estos requisitos, para el cargo por potencia se le aplicarán los precios del periodo punta de la máxima demanda registrada durante el mes.
 El cliente debe aportar al ICE una línea telefónica o troncal de las que posee para la aplicación de la interrogación remota del equipo de medición, durante un intervalo máximo de aproximadamente 30 minutos al mes, previo aviso de parte del ICE. El cliente hará la instalación de la línea telefónica hasta donde se encuentre el equipo de medición. La conexión respectiva la efectuará el ICE.
 Los precios anteriores no incluyen la tarifa por transmisión, la de alumbrado público o el impuesto de ventas.
-[imagen]
 Tarifa T-RE: Residencial
 A. Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 T-ReH: Residencial horaria
@@ -298,7 +286,6 @@ v. Cantidad, duración, magnitud de los huecos y picos de tensión. Curva SEMI F
 Período punta: Período comprendido entre las 10:01 y las 12:30 horas y entre las 17:31 y las 20:00 horas, es decir, 5 horas del día. Se facturará la máxima medición de potencia registrada durante el mes, exceptuando la registrada los sábados y domingos.
 Período valle: Período comprendido entre las 6:01 y las 10:00 horas y entre las 12:31 y las 17:30 horas, es decir, 9 horas del día. Se facturará la máxima medición de potencia registrada durante el mes.
 Período nocturno: Período comprendido entre las 20:01 y las 6:00 horas del día siguiente, es decir, 10 horas del día. Se facturará la máxima medición de potencia registrada durante el mes.
-[imagen]
 Tarifa T-RE: Residencial
 A. Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 Tarifa T-GE: General
@@ -327,7 +314,6 @@ Período punta: Se define como período punta al comprendido entre las 10:01 y l
 Período valle: Se define como período valle al comprendido entre las 6:01 y las 10:00 horas y entre las 12:31 y las 17:30 horas, es decir, 9 horas del día.
 Período nocturno: Se define como período nocturno al comprendido entre las 20:01 y las 6:00 horas del día siguiente, es decir, 10 horas del día.
 Para cada periodo horario se facturará la máxima medición de potencia registrada durante el mes.
-[imagen]
 Tarifa T-RE: Residencial
 A. Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 Tarifa T-GE: General
@@ -356,7 +342,6 @@ Período punta: Se define como período punta al comprendido entre las 10:01 y l
 Período valle: Se define como período valle al comprendido entre las 6:01 y las 10:00 horas y entre las 12:31 y las 17:30 horas, es decir, 9 horas del día.
 Período nocturno: Se define como período nocturno al comprendido entre las 20:01 y las 6:00 horas del día siguiente, es decir, 10 horas del día.
 Para cada periodo horario se facturará la máxima medición de potencia registrada durante el mes.
-[imagen]
 Tarifa T-RE: Residencial
 A. Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 Tarifa T-GE: General
@@ -378,7 +363,6 @@ ii. El porcentaje total del voltaje fuera y dentro del rango permitido según no
 iii. El porcentaje total dentro y fuera de norma de la distorsión armónica total de tensión y corriente.
 iv. El factor de potencia
 En los servicios que se brinden a hoteles con edificaciones horizontales o verticales de ocupación múltiple, la empresa eléctrica optativamente podrá efectuar y entregar al abonado, un registro de la cantidad, duración y magnitud de los huecos de tensión de suministro (Curva SEMI F47-0706 o equivalente actualizada).
-[imagen]
 Tarifa T-RE: Residencial
 Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 Características del servicio:
@@ -414,7 +398,6 @@ DISPOSICIONES GENERALES:
 4.- Definición horario temporada.
 Período punta: Se define como período punta al comprendido entre las 10:01 y las 12:30 horas y entre las 17:31 y las 20:00 horas, es decir, 5 horas del día. Se facturará la máxima medición de potencia registrada durante el mes, exceptuando la registrada los sábados y domingos.
 Período valle: Se define como período valle al comprendido entre las 6:01 y las 10:00 horas y entre las 12:31 y las 17:30 horas, es decir, 9 horas del día. Se facturará la máxima medición de potencia registrada durante el mes.
-[imagen]
 Tarifa T-RE Residencial
 Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 Tarifa T-GE: General
@@ -430,7 +413,6 @@ DISPOSICIONES GENERALES
 Período punta: período comprendido entre las 10:01 y las 12:30 horas y entre las 17:31 y las 20:00 horas, es decir, 5 horas del día. Se facturará la máxima medición de potencia registrada durante el mes, exceptuando la registrada los sábados y domingos.
 Período valle: período comprendido entre las 6:01 y las 10:00 horas y entre las 12:31 y las 17:30 horas, es decir, 9 horas del día. Se facturará la máxima medición de potencia registrada durante el mes.
 Período nocturno: período comprendido entre las 20:01 y las 6:00 horas del día siguiente, es decir, 10 horas del día. Se facturará la máxima medición de potencia registrada durante el mes.
-[imagen]
 Tarifa T-RE Residencial
 Aplicación: Se entiende por consumo residencial el servicio para casas y apartamentos de habitación que sirven exclusivamente de alojamiento permanente. No incluye áreas comunes de condominios, áreas de recreo, moteles, hoteles, cabinas de recreo, hospitales, hospicios, servicios combinados residencia – negocio, edificios de apartamentos servidos por un solo medidor, ni establecimientos relacionados con actividades lucrativas.
 Características del servicio:

@@ -15,3 +15,4 @@ Aplicación anual para el 2016 "Metodología ajuste extraordinario de las tarifa
 | --- | --- | --- |
 | 1 | 2015-12-21 | la propia norma |
 | 2 | 2016-01-05 | Resolución 3 (2016-01-05) |
+| 3 | 2016-03-07 | Resolución 28 (2016-03-07) |
