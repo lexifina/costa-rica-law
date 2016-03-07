@@ -1,1 +1,0 @@
-Artículo 2º—Ámbito de aplicación. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditora Interna, funcionarios de la administración activa y para los integrantes del Concejo Municipal, en lo que les resulte aplicable.

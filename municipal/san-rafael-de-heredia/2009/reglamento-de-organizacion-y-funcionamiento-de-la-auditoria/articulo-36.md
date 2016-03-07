@@ -1,1 +1,0 @@
-Artículo 36.—Archivo Permanente de Regulaciones que Competen a la Auditoría Interna. La Auditoría Interna mantendrá un archivo permanente de las regulaciones que afectan su gestión, en especial de la normativa y directrices que promulgue la Contraloría General de la República para las Auditorías Internas y la administración.
