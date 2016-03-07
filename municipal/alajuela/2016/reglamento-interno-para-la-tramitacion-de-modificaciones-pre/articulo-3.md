@@ -1,0 +1,1 @@
+Artículo 3°—Competencia. La aprobación de las modificaciones al presupuesto de egresos de la Municipalidad corresponderá al Concejo Municipal. Cuando la modificación implique variaciones de un programa presupuestario a otro, el acuerdo deberá tomarse con la votación de dos terceras partes de los integrantes del Concejo.

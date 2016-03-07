@@ -1,0 +1,3 @@
+Artículo 10.—Vigencia. El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+El presente Reglamento deja sin efecto el Reglamento Interno para la Tramitación de Modificaciones Presupuestarias de la Municipalidad de Alajuela, publicado en el periódico oficial La Gaceta N° 64 del viernes 30 de marzo de 2007”.
+POR TANTO: Esta comisión acuerda: Recomendar al Honorable Concejo Municipal: 1-Aprobar el Reglamento Interno para Modificaciones Presupuestarias de la Municipalidad de Alajuela. 2-Trasladar el presente documento a la Administración para su respectiva publicación en el Diario Oficial La Gaceta. OBTIENE 03 VOTOS POSITIVOS: MSC. ANA CECILIA RODRÍGUEZ QUESADA, SR. RANDALL BARQUERO PIEDRA Y EL LICDO. ROBERTO CAMPOS SÁNCHEZ.
