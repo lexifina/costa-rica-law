@@ -14,3 +14,4 @@ Reglamento para la Administración de los Cementerios Municipales del Cantón de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-10 | la propia norma |
+| 2 | 2016-03-07 | Reglamento municipal 62 (2016-03-07) |
