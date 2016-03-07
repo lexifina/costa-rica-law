@@ -1,0 +1,1 @@
+Artículo 78.—Probabilidad de errores e irregularidades. El funcionario (a) de la Auditoría deberá considerar la posibilidad de errores, irregularidades, incumplimientos y otras exposiciones al desarrollar los objetivos del estudio
