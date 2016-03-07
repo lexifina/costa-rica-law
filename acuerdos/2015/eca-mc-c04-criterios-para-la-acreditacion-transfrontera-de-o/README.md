@@ -14,3 +14,4 @@ ECA-MC-C04 Criterios para la acreditación Transfrontera de Organismos de Certif
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-19 | la propia norma |
+| 2 | 2016-03-07 | Acuerdo 0 (2016-03-07) |
