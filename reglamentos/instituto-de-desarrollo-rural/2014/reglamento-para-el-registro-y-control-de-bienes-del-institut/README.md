@@ -14,3 +14,4 @@ Reglamento para el registro y control de bienes del Instituto de Desarrollo Rura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-26 | la propia norma |
+| 2 | 2016-03-07 | Reglamento 8 (2016-03-07) |
