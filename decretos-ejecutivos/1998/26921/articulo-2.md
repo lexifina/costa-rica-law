@@ -10,6 +10,9 @@ Artículo 2- De las definiciones. Para los efectos del presente reglamento, así
 - Análisis biológico: Ensayos que se realizan para determinar el contenido de sustancias biológicas.
 - Análisis de identidad y calidad: Análisis para caracterizar el tipo de sustancias químicas, biológicas,bioquímicas y afines de uso en la agricultura, y sus propiedades físicas, químiias y biológicas en la formulación.
 - Análisis de Riesgo de Plagas (ARP)- Evaluación del riesgo de plagas y manejo del riesgo de plagas.
+-Análisis de residuos: el procedimiento analítico para determinar la presencia de residuos de plaguicidas en productos para el consumo humano o animal.
+Queda excluido de esta categoría todo producto de origen vegetal que por su naturaleza no pueda ser consumido por humanos ni animales en su estado natural y por lo tanto ser de uso exclusivo para procesos industriales que degraden eventuales residuos de plaguicidas.
+(Así adicionada la definición anterior por el artículo 2° del decreto ejecutivo N° 39565 del 7 de marzo de 2016)
 - Aplicaciones certificadas: Son todos aquellos tratamientos con plaguicidas de uso restringido, que son aplicados o supervisados por un aplicador certificado en el control de plagas y enfermedades agrícolas.
 - Aplicador certificado: Persona física o jurídica calificada para aplicar o supervisar tratamientos con plaguicidas de uso restringido, el cual debe estar autorizado por la Dirección.
 - Area: Un país determinado, parte de un país,países completos o partes de diversos países, que se han definido oficialmente.
@@ -81,7 +84,8 @@ Artículo 2- De las definiciones. Para los efectos del presente reglamento, así
 - Finca en transición: Finca que se encuentra en un período de pasar de otros sistemas de producción al sistema orgánico, de acuerdo con un plan de transformación debidamente establecido.
 - Gen: Unidad básica hereditaria, que se localiza en los cromosomas de las células y se duplica durante cada división celular; este mecanismo permite la transmisión de los caracteres hereditarios del organismo progenitor a sus descendientes.
 - Germoplasma: Conjunto formado por el total del material hereditario -o banco genético- que contiene todas las posibles variaciones que presentan una o varias especies, poblaciones y grupos, entre otros.
-- Granos básicos: Frijoles, arroz, maíz, soya y sorgo.
+- Granos básicos: Frijoles, arroz, maíz y sorgo.
+(Así reformada la definición anterior por el artículo 1° del decreto ejecutivo N° 39565 del 7 de marzo de 2016)
 - Huésped, Hospedante u Hospedero: Vegetales, agentes de control biológico y otros organismos usados en la agricultura que son invadidos por un organismo parásito y de los cuales éste obtiene sus nutrientes.
 - Importador: Persona física o jurídica que introduce al país vegetales, organismos, sustancias químicas, biológicas y afines, equipo de aplicación de uso en la agricultura.
 - Ingeniería genética: Conjunto de técnicas de manipulación de ácido desoxirribonucleico y ácido ribonucleico recombinante "in vitro" o bajo condiciones especiales de laboratorio.
