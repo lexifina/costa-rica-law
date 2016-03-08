@@ -1,0 +1,2 @@
+Artículo 6º—Rige el día 8 de marzo de 2016.
+Dado en la Presidencia de la República, San José, a las diez horas del día tres de febrero del año dos mil dieciséis.
