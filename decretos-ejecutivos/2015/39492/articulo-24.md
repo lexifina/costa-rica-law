@@ -1,0 +1,7 @@
+Artículo 24.—Requisitos para mantener el financiamiento de Estudios Universitarios y Becas de Educación Superior: Conservarán su condición de beneficiario, quienes cumplan los siguientes requisitos:
+a.Aprueben las materias cursadas con una calificación igual o superior al mínimo exigido por el centroeducativo en que se encuentren matriculados y que demuestren un aprovechamiento académicosatisfactorio. Se entiende como rendimiento académico satisfactorio cuando el estudiante apruebetodas las materias matriculadas en cada bloque.
+b.Los beneficiarios de beca de Educación Superior deberán aprobar los cursos con una nota superior oigual a 85 en cada curso lectivo.
+c.Presenten los informes oficiales de calificaciones de cada período, según la modalidad del plan deestudios determinado por el centro educativo correspondiente, conforme lo determine elDepartamento de Becas.
+d.Emplear el recurso destinado exclusivamente para los fines que le fue otorgado, para lo cual deberápresentar ante el Departamento de Becas de JUDESUR las facturas proforma en las solicitudes degiro de recursos, así como los comprobantes originales de pago que así lo demuestren.
+e.Proporcionar al Departamento de Becas de JUDESUR todos los datos relacionados con su situaciónsocioeconómica o académica, que le sea solicitada.
+f.Firmar las adendas necesarias al respectivo Contrato para Estudios Superiores con JUDESUR, en lascuales se establecerán las obligaciones y nuevas condiciones del Financiamiento.

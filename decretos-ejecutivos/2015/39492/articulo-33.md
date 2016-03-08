@@ -1,0 +1,13 @@
+CAPÍTULO VII
+Recuperación de los financiamientos universitarios
+Artículo 33.—Recuperación de los recursos. En los casos de los financiamientos 100% reembolsables para estudios superiores, los beneficiarios tendrán un período de gracia de hasta dieciocho meses luego de concluidos sus estudios para iniciar el pago del préstamo siempre y cuando cumplan con el plan de estudios establecido en el Contrato De Crédito. Durante este período de gracia, los beneficiarios podrán, amortizar el principal y cancelar intereses del financiamiento.
+Una vez concluido el período de gracia, el plazo de recuperación y la forma de pago se regirán por el Contrato de Crédito para Estudios y las respectivas Políticas de Cobro.
+Tanto el comienzo del plazo de gracia como el de inicio del pago del principal e intereses serán definidos en el contrato de financiamiento de estudios, y las recuperaciones obtenidas pasarán a formar parte de un fondo acumulativo que se utilizará con el objeto de ampliar los alcances del Programa de Becas.
+El beneficiario puede ser favorecido en el período de pago con una refundición crediticia para financiar otros estudios, cuando su operación sea trasladada a la Fase de Cobro en calidad de cumplimiento y se encuentre al día en los pagos, lo cual dependerá de la disponibilidad presupuestaria del Programa de Becas para tales efectos.
+El Departamento de Becas puede aprobar las solicitudes de prórroga al período de amortización por causas debidamente justificadas, siempre y cuando la prórroga acumulada, en conjunto no exceda de seis meses, y un máximo de dos prórrogas para un mismo beneficiario durante la vigencia del crédito siempre y cuando su operación cuente con saldo disponible para cubrir los intereses de la prórroga solicitada, quedan excluidos de esta opción los estudiantes que hayan incumplido con el Contrato de Crédito de Estudios Superiores.
+Los préstamos en condición de “Incumplimiento” del Contrato de Crédito para Estudios, serán trasladados a la fase de cobro.
+El beneficiario que encontrándose disfrutando del financiamiento para estudios superiores, abandone los estudios o renuncie a la conclusión de sus estudios, queda obligado a devolver a JUDESUR la totalidad de los dineros girados a la fecha de su renuncia, junto con los intereses generados de conformidad con la tasa de interés vigente para el programa de Becas. El plazo para la recuperación de estos recursos se determinará de acuerdo al monto utilizado, de la siguiente manera:
+Monto utilizado (en colones) | Plazo en meses
+De 0 a 1.000.000,00 | 36 meses
+De 1.000.001,00 a 5.000.000,00 | 60 meses
+De 5.000.001,00 en adelante | 96 meses
