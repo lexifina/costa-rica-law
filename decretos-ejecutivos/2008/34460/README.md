@@ -16,3 +16,4 @@ Principios de Contabilidad Aplicables al Sector Público Costarricense
 | 1 | 2008-04-29 | la propia norma |
 | 2 | 2008-11-19 | Decreto Ejecutivo 34918 (2008-11-19) |
 | 3 | 2011-12-09 | Decreto Ejecutivo 36961 (2011-12-09) |
+| 4 | 2016-03-08 | Decreto Ejecutivo 39665 (2016-03-08) |
