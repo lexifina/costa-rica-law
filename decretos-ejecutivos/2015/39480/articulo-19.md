@@ -1,0 +1,1 @@
+Artículo 19.—Deróguese el Decreto ejecutivo Nº 34894-MEIC del 4 de agosto de 2008 Reglamento para el reconocimiento de unidades de verificación metrológica, publicado en el Diario Oficial La Gaceta N° 242 del 15 de diciembre de 2008.

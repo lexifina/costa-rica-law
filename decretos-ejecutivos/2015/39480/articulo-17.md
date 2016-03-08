@@ -1,0 +1,3 @@
+Artículo 17.—Coordinación con otras entidades.
+Cuando el solicitante para ser reconocido como UVM ha realizado trámites ante otras entidades estatales y sean afines a la naturaleza del proceso, este deberá notificarlo al LACOMET, quién solicitará a la entidad pertinente la documentación requerida.
+Dicha solicitud debe realizarse en estricto apego a las disposiciones normativas tuteladas en el artículo 8° de la Ley 8220, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y el artículo 6° del Decreto Ejecutivo N° 37045-MP-MEIC, Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos.

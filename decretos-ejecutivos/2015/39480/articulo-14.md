@@ -1,0 +1,4 @@
+Artículo 14.—Generalidades.
+El Departamento de Metrología Legal del LACOMET será el ente encargado de coordinar las actividades de Reconocimiento, Control y Seguimiento de Unidades de Verificación Metrológica.
+La Comisión de Metrología tendrá la responsabilidad de aprobar, mediante acuerdo firme, el reconocimiento al solicitante como UVM.
+El LACOMET, por medio de la página web (www.lacomet.go.cr), publicará el listado actualizado de las UVM reconocidas con el alcance y el personal autorizado, así como la documentación pertinente al proceso de Reconocimiento, Evaluación, Control y Seguimiento de Unidades de Verificación Metrológica; la estadística del estado verificación de los instrumentos de medida, así como toda la información pertinente a los instrumentos de medición sujetos a verificación para la ciudadanía en general.

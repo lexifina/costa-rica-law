@@ -1,0 +1,4 @@
+Artículo 16.—Uso de Logotipo del LACOMET, Identificación y marcado de los equipos.
+Los certificados de verificación periódica o de verificación después de reparación deben tener el logotipo de LACOMET, que los identifica como autoridad reconocida para la realización de las funciones encomendadas por ley a LACOMET.
+Las confección de las etiquetas de identificación del marcado de verificación acorde con los requisitos del o los reglamentos técnicos para los que fue reconocido, deben ser solicitadas a LACOMET, con al menos un mes de anticipación a su uso, indicando la cantidad y tipo de instrumentos de medida a verificar.
+Cuando sea necesario el uso de marchamo, la UVM deberá solicitar a LACOMET la confección, con al menos un mes de anticipación a su uso, indicando la cantidad y tipo de instrumentos de medida a verificar.

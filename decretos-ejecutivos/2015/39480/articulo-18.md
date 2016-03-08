@@ -1,0 +1,2 @@
+Artículo 18.—Costo del reconocimiento y evaluación.
+La Comisión de Metrología fijará el costo del Reconocimiento, Control y Seguimiento de Unidades de Verificación Metrológica, diferenciado para las UVM que cuenten con alcance acreditado y las UVM que no lo tengan, el uso del logotipo LACOMET; así como de los marchamos y las etiquetas de identificación de verificación; con fundamento en las estipulaciones legales, los cuales se publicarán en el Diario Oficial La Gaceta para su formalización.
