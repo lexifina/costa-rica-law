@@ -15,3 +15,4 @@ Adopción e Implementación de las Normas Internacionales de Contabilidad del Se
 | --- | --- | --- |
 | 1 | 2008-12-09 | la propia norma |
 | 2 | 2011-12-09 | Decreto Ejecutivo 36961 (2011-12-09) |
+| 3 | 2016-03-08 | Decreto Ejecutivo 39665 (2016-03-08) |
