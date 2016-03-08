@@ -15,3 +15,4 @@ Adopción e Implementación de las Normas Internacionales de Información Financ
 | --- | --- | --- |
 | 1 | 2009-12-02 | la propia norma |
 | 2 | 2013-10-25 | Decreto Ejecutivo 38069 (2013-10-25) |
+| 3 | 2016-03-08 | Decreto Ejecutivo 39665 (2016-03-08) |
