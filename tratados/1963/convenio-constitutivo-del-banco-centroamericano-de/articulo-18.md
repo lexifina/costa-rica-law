@@ -1,2 +1,3 @@
-Artículo 18.- Los Directores trabajarán para el Banco a tiempo completo. El cargo de Director es incompatible con cualquier otro, excepto los docentes, siempre que éstos no interfieran con sus obligaciones como Director.
-(Así reformado por el artículo 1° de la ley N° 7258 del 9 de octubre de 1991)
+Artículo 18. Los Directores trabajarán para el Banco a tiempo completo. El cargo de Director es incompatible con cualquier otro, excepto los docentes, siempre que estos no interfieran con sus obligaciones como Director.
+También se exceptúan otros cargos en los cuales concurran necesariamente las siguientes cuatro circunstancias: que se trate de cargos que no conlleven remuneración alguna en efectivo o en especie, que no impliquen superposición horaria en relación con la jornada laboral de tiempo completo del Director, que no generen un conflicto de interés con las funciones propias del Director y que no implique ningún gasto para el Banco. La interpretación de la disposición contenida en este artículo solo podrá ser realizada por la Asamblea de Gobernadores.
+(Así reformado por el artículo único de la ley N° 9350 del 16 de febrero del 2016)

@@ -10,4 +10,5 @@ CONVENIO CONSTITUTIVO DEL BANCO CENTROAMERICANO DE INTEGRACION ECONOMICA
 Los Gobierno de las Repúblicas de Guatemala, El Salvador, Honduras y Nicaragua, crean mediante el presente Convenio, el Banco Centroamericano de Integración Económica, de conformidad con las siguientes cláusulas:
 Capítulo I
 NATURALEZA, OBJETO Y SEDE
-Artículo 1.- El Banco Centroamericano de Integración Económica, es una persona jurídica, de carácter internacional, que ejercerá sus funciones conforme al presente Convenio Constitutivo y sus Reglamentos.
+Artículo 1. El Banco Centroamericano de Integración Económica es una institución financiera multilateral de desarrollo, de carácter internacional, con personalidad jurídica, que se regirá por las disposiciones contenidas en el presente Convenio Constitutivo y en sus reglamentos.
+(Así reformado por el artículo único de la ley N° 9350 del 16 de febrero del 2016)

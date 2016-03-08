@@ -1,4 +1,4 @@
-Artículo 17.—Los Directores continuarán en sus cargos hasta que sea efectiva la elección de sus sucesores. Cuando el cargo de Director por un estado fundador quede vacante, los Gobernadores de los estados fundadores procederán a elegir un sustituto para el resto del período, a propuesta del estado respectivo.
-En caso de ausencia temporal justificada del Director de cualquiera de los estados fundadores, éste será sustituido, durante su ausencia, por la persona que, reuniendo los requisitos del caso, sea designada por el Gobernador del estado respectivo.
+Artículo 17. Los Directores podrán continuar en sus funciones hasta que sea efectiva la elección de sus sucesores y estos tomen posesión de sus respectivos cargos, todo de acuerdo con la reglamentación respectiva. Cuando el cargo de Director por un estado fundador o de un socio regional no fundador quede vacante, los Gobernadores correspondientes procederán a elegir un sustituto para el resto del período, a propuesta del estado respectivo.
+En caso de ausencia temporal justificada de un Director que no tenga suplente, este será sustituido, durante su ausencia, por la persona que, reuniendo los requisitos del caso, sea designada por el Gobernador del estado respectivo.
 Cuando el cargo de un Director por un socio extrarregional quede vacante, los Gobernadores de los socios que lo eligieron procederán a elegir un nuevo Director.
-(Así reformado por el artículo 1° de la ley N° 8223 del 7 de marzo del 2002)
+(Así reformado por el artículo único de la ley N° 9350 del 16 de febrero del 2016)
