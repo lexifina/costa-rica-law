@@ -1,0 +1,1 @@
+III. Corregir de oficio los anexos 1 “IE-RE-7791” y 4 “IE-RE-7794” y el Apéndice 2 “Micro inversiones”, a la resolución RIE-130-2015 del 18 de diciembre de 2015, en los términos señalados en el Considerando I, sección IV, puntos 9, 10 y 11 de la presente resolución.

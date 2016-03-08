@@ -1,0 +1,1 @@
+II. Aclarar y adicionar de oficio la resolución RIE-130-2015 del 18 de diciembre de 2015, así como los anexos 4 “IE-RE-7794” y 8 “IE-RE-7798” y los Apéndices 1 “Macro Inversiones” y 2 “Microinversiones”, en los términos indicados en el Considerando I, sección IV, puntos 1, 2, 3, 4, 5, 6, 7 y 8de la presente resolución.
