@@ -1,0 +1,1 @@
+Artículo 18.—Derogatoria. Deróguese el Reglamento Oficialización del Trámite Simplificado y Coordinado de Inicio y Renovación de Empresas en la Región Brunca y Pérez Zeledón, Decreto Ejecutivo N° 37026-MEIC-MAG-S del 9 de marzo de 2012, publicado en el Diario Oficial La Gaceta N° 87, Alcance Digital N° 59 del siete de mayo del 2012.
