@@ -1,0 +1,1 @@
+Artículo 46.— Clausura del establecimiento: Si producto de la inspección realizada por la Autoridad de Salud, determina que un establecimiento incumple con las condiciones sanitarias o requisitos fijados en el presente reglamento, se procederá conforme a lo establecido en el artículo 363 de la la Ley N º 5395 del 30 de octubre de 1973 “Ley General de Salud”.

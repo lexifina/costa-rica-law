@@ -1,0 +1,1 @@
+TRANSITORIO III.—Las actividades reguladas en el artículo 13, inciso 2) del presente Reglamento, deberán cumplir con el requisito de presentación del certificado de verificación de las instalaciones eléctricas, a partir del 16 de agosto del 2017.

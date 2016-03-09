@@ -1,0 +1,1 @@
+Artículo 23.—Vigencia del Permiso Provisional. Los PSF provisionales no podrán emitirse por un plazo superior al aprobado en el cronograma del plan de acciones correctivas. El PSF Provisional sólo podrá ser otorgado por una vez y durante su vigencia, el permisionario deberá poner a derecho su establecimiento, cumpliendo con el cronograma de mejoras.

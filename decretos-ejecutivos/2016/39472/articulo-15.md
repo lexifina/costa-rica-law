@@ -1,0 +1,3 @@
+CAPÍTULO III
+Disposiciones específicas
+Artículo 15.—Actividades desarrolladas en casas de habitación. Aquellas actividades que sean desarrolladas en categoría de microempresas podrán realizarse en casas de habitación, siempre y cuando en el proceso productivo no se incorporen al producto materias primas o sustancias peligrosas ni se generen residuos peligrosos. La categorización de microempresa se realizará de acuerdo a la clasificación otorgada por el Ministerio de Economía, Industria y Comercio, de acuerdo con lo establecido en el Decreto Nº 39295 publicado en la Gaceta Nº 227 el 22 de noviembre del 2015, en el Alcance Digital 99, “Reglamento a la Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, Ley N° 8262 del 2 de mayo de 2002”.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De los permisos provisionales
+Artículo 20.—Permiso Sanitario de Funcionamiento Provisional: Cuando exista incumplimiento de la regulación por parte de un establecimiento, la DARS podrá otorgar el PSF provisional por un tiempo definido, girando Orden Sanitaria para su cumplimiento y condicionado a la presentación de un plan de acciones correctivas que permita el funcionamiento provisional del establecimiento de forma controlada, con el fin de que éste llegue a cumplir todos los requisitos establecidos por el MS, siempre y cuando el mismo no represente un riesgo inminente para la salud de los trabajadores, de terceros o del ambiente.

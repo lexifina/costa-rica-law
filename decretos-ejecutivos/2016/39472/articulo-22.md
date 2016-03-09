@@ -1,0 +1,1 @@
+Artículo 22.—Emisión de orden sanitaria. Todo PSF provisional debe ser respaldado mediante la emisión de una orden sanitaria, a fin de que el permisionario cumpla con los requerimientos que fueron determinados, en el cronograma de ejecución de las actividades del plan de acciones correctivas.
