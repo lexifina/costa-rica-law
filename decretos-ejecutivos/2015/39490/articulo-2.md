@@ -1,0 +1,1 @@
+Artículo 2º—Autoridad Administrativa de la CITES. Entiéndase por Autoridad Administrativa de la Convención CITES, el Sistema Nacional de Áreas de Conservación (SINAC) del Ministerio de Ambiente y Energía, según dispone el artículo 71 de la Ley de Conservación de la Vida Silvestre Nº 7317.

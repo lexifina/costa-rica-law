@@ -1,0 +1,10 @@
+Artículo 3º—Abreviaturas. En el presente reglamento se utilizarán las siguientes abreviaturas:
+ Convención sobre el Comercio Internacional de Especies Amenazadas de Fauna y Flora Silvestres (Convención CITES)
+ Ley de Conservación de la Vida Silvestre (LCVS)
+ Servicio Fitosanitario del Estado (SFE)
+ Servicio Nacional de Salud Animal (SENASA)
+ Sistema Nacional de Áreas de Conservación (SINAC)
+ Ministerio de Agricultura y Ganadería (MAG)
+ Ministerio de Ambiente y Energía (MINAE)
+ Ministerio de Hacienda (MH)
+ Dirección General de Aduanas (DGA)

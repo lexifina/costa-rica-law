@@ -1,0 +1,1 @@
+Artículo 11.—Copias del formulario CITES. Tanto el SFE y el SENASA deberán remitir mensualmente copia de los permisos CITES de exportación, importación, reexportación y tránsito autorizados por dichas dependencias a la Autoridad Administrativa CITES, para ser incluidos en el informe anual.

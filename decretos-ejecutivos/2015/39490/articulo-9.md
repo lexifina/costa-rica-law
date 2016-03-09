@@ -1,0 +1,1 @@
+Artículo 9°—Inscripción de sitios productores. Todos los sitios que reproduzcan artificialmente especies de flora incluidas en el Apéndice II de la Convención CITES para la exportación, deberán estar inscritos ante la Autoridad Administrativa CITES, cumpliendo lo establecido en el Reglamento a la Ley de Conservación de la Vida Silvestre y ante el SFE.
