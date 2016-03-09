@@ -1,0 +1,1 @@
+Artículo 2°—Las dependencias del Sector Público y del Sector Privado, dentro del marco legal respectivo, podrán contribuir con recurso humano y económico, en la medida de sus posibilidades y sin perjuicio del cumplimiento de sus propios objetivos con el Congreso antes indicado.
