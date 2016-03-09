@@ -1,0 +1,1 @@
+Artículo 6º—El Foro Nacional Mixto deberá reunirse ordinariamente cada dos meses, y extraordinariamente, cuando sea necesario, en el sitio dispuesto en la convocatoria, con al menos 24 horas de antelación. El quórum y la convocatoria se regirán por lo dispuesto en la Ley General de Administración Pública.

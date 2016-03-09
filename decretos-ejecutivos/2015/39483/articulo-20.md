@@ -1,0 +1,1 @@
+Artículo 20.—La elección se realizara por mayoría simple de votos y en caso de que ningún candidato alcance dicha mayoría se procederá a celebrar una segunda ronda con los dos candidatos que alcanzaron el mayor número de votos. Los votos nulos, en blanco y las abstenciones se sumarán al candidato que tenga mayor cantidad de votos.

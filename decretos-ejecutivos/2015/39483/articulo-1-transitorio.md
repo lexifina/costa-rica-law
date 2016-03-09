@@ -1,0 +1,1 @@
+Transitorio I.—El período de vigencia de los representantes del foro mixto regional nombrado en las Asambleas Regionales del año 2015, rige por cuatro años contados a partir de la firma de este decreto.

@@ -1,0 +1,1 @@
+Artículo 25.—A lo interno del Foro Nacional, se establecerá una Comisión encargada de llevar a cabo el Congreso Nacional así como la consecución de fondos para la realización del mismo. Se gestionara ante el Consejo Nacional Sectorial Agropecuario el aporte de recursos por parte de las instituciones del sector.

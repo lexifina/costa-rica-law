@@ -1,0 +1,1 @@
+Artículo 4°—El Foro Nacional Mixto contará con un Coordinador Nacional, escogido por los representantes de los Foros Regionales Mixtos que conforman el Foro Nacional. Este presentara mediante una agenda los asuntos de interés a tratar en el ámbito nacional, así como los temas de interés prioritario de cada uno de los representantes regionales.

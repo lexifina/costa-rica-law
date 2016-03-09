@@ -1,0 +1,1 @@
+Artículo 7°—El Foro Nacional Mixto y el Consejo Nacional Sectorial Agropecuario (CAN), deberán reunirse una vez al año, para analizar y revisar el avance en cuanto al cumplimiento de la agenda nacional del Foro y sus dificultades, para recibir retroalimentación y orientaciones acerca del sector.

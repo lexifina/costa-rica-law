@@ -1,0 +1,1 @@
+Articulo 18.—Para la celebración de la Asamblea, habrá quórum siempre que se encuentren la mitad mas uno de las organizaciones inscritas. En caso de no presentarse el porcentaje indicado quedarán convocados automáticamente para una segunda convocatoria una hora después, donde el quórum operará con los representantes de las organizaciones presentes.
