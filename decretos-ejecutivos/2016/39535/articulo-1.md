@@ -1,0 +1,22 @@
+N° 39535-MEIC
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE ECONOMÍA, INDUSTRIA Y COMERCIO
+En uso de las atribuciones que les confieren los artículos 140, incisos 3) y 18), y 146 de la Constitución Política; los artículos 27 y 28, acápite 2, inciso b) de la Ley General de Administración Pública, Ley N° 6227 del 2 de mayo de 1978; Ley del Sistema Internacional de Unidades, Ley N° 5292 del 9 de agosto de 1973; Ley Orgánica del Ministerio Economía, Industria y Comercio, Ley N° 6054 del 14 de junio de 1977; Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor, Ley N° 7472 del 20 de diciembre de 1994; Ley de Aprobación del Acta Final en el que se incorporan los Resultados de la Ronda Uruguay de Negociaciones Comerciales Multilaterales, Ley N° 7475 del 20 de diciembre de 1994; Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Ley N° 8220 del 4 de marzo del 2002 y Ley del Sistema Nacional para la Calidad, Ley N° 8279 del 2 de mayo del 2002; y
+Considerando:
+I.—Que la Ley del Sistema Nacional para la Calidad, Ley Nº 8279, como Ley marco para las actividades vinculadas al desarrollo y la prestación de servicios, establece entre sus objetivos, coordinar la gestión pública y privada que deben realizar las entidades competentes para proteger entre otros, la seguridad y la vida de las personas y sus bienes, contribuyendo a elevar el grado de bienestar general de la población del país.
+II.—Que mediante Decreto Ejecutivo Nº 39377-MEIC de fecha 28 de setiembre de 2015, se emitió el Reglamento Técnico RTCR 475:2015 Productos eléctricos. Conductores y Extensiones Eléctricas. Especificaciones, el cual salió publicado en La Gaceta Nº 16 del 25 de enero de 2016.
+III.—Que por omisión involuntaria, en el inciso 7.4 del artículo 1 del Decreto Ejecutivo Nº 39377-MEIC del 28 de setiembre de 2015, Reglamento Técnico RTCR 475:2015 Productos eléctricos. Conductores y Extensiones Eléctricas. Especificaciones, publicado en la Gaceta Nº 16 del 25 de enero de 2016, Alcance N° 6, no se incluyó dentro de las prioridades de selección de laboratorios, la condición de utilizar en primera instancia los laboratorios acreditados bajo la norma ISO/IEC 17025.
+IV.—Que la referida condición formó parte de las versiones del proyecto de reglamento técnico, que fue objeto de consulta pública nacional y la consulta internacional ante la Organización Mundial del Comercio (OMC).
+V.—Que las buenas prácticas reglamentarias obligan a los gobiernos a revisar los reglamentos técnicos existentes a fin de que se ajusten a las condiciones y las necesidades imperantes, procurando así un equilibrio necesario, de manera que dicha reglamentación no sea omisa ni excesiva y no propicie un obstáculo al desarrollo económico; por lo que se hace necesario proceder a modificar el inciso 7.4 del artículo 1 del Decreto Ejecutivo Nº 39377-MEIC del 28 de setiembre de 2015, Reglamento Técnico RTCR 475:2015 Productos eléctricos. Conductores y Extensiones Eléctricas. Por tanto;
+DECRETAN:
+REFORMA AL DECRETO EJECUTIVO Nº 39377-MEIC, “RTCR 475:2015 PRODUCTOS
+ELÉCTRICOS. CONDUCTORES Y EXTENSIONES ELÉCTRICAS. ESPECIFICACIONES”
+Artículo 1.—Reformas. Refórmese el inciso 7.4 de la sección 7 “Evaluación de Conformidad”, del Artículo 1º, del Decreto Ejecutivo Nº 39377-MEIC del 28 de setiembre de 2015, Reglamento Técnico RTCR 475:2015 Productos eléctricos. Conductores y Extensiones Eléctricas. Especificaciones, publicado en La Gaceta Nº 16 del 25 de enero de 2016, Alcance N° 6, para que en adelante se lea de la siguiente manera:
+“[…]
+7. EVALUACIÓN DE CONFORMIDAD
+[…]
+7.4 Los Organismos de Certificación, deben seguir el siguiente orden de prioridad para la selección del laboratorio en el país donde se realicen los ensayos de evaluación de la conformidad:
+7.4.1 Laboratorios acreditados bajo la norma ISO/IEC 17025, para los ensayos específicos solicitados por el reglamento, por el ECA o por un organismo de acreditación signatario del MRA de ILAC.
+7.4.2 Laboratorios de tercera parte no acreditados para el alcance específico, el organismo de certificación, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025 por parte del laboratorio.
+7.4.3 Laboratorios de primera parte no acreditados para el alcance específico, el organismo de certificación, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025 por parte del laboratorio.
+[…]”.
