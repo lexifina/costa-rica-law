@@ -12,7 +12,7 @@ Clínica y Terapia del Dolor.
 Subespecialidades de la Cardiología Artículo No. 73
 Cardiología Intervencionista y Hemodinamia.
 Cardiología Pediátrica.
-Electrofisiología Cardiaca. Subespecialidad de la Dermatopatología Artículo 66 (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015)
+Electrofisiología Cardiaca. Subespecialidad de la Dermatopatología Artículo 66 (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015) Subespecialidades de la Dermatología Artículo 67 (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015) Cirugía Dermatológica (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015)
 Subespecialidades de la Cirugía General Artículo No. 77
 Cirugía Gastroenterológica. | Artículo No. 78
 Coloproctología. | Artículo No. 79

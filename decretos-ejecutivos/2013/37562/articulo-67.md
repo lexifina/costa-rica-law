@@ -1,7 +1,9 @@
 Artículo 67.—Subespecialidades de la Dermatología.
 Se reconocen como subespecialidades de la Dermatología a las siguientes:
-a) Dermatología Pediátrica
-b) Dermatopatología.
+a. Dermatología Pediátrica
+b. Dermatopatología.
+c. Cirugía Dermatológica.
+(Así reformado el párrafo anterior en sesión ordinaria 2016-03-09 del 9 de marzo de 2016)
 2) Establecer los siguientes requisitos específicos para la inscripción en la Subespecialidad en Dermatopatología.
 Requisitos específicos:
 a) Estar debidamente inscrito y acreditado como Especialista en Anatomía Patológica o como Especialista en Dermatología, ante el Colegio de Médicos y Cirujanos de Costa Rica.
