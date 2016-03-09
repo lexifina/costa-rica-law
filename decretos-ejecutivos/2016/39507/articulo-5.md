@@ -1,0 +1,1 @@
+Artículo 5°—Deróguese el Decreto Ejecutivo N° 38153-COMEX del 6 de enero de 2014; denominado “Ajuste de los umbrales establecidos en el Anexo 9.1.2. (b) (i) del Capítulo 9 del Tratado de Libre Comercio República Dominicana-Centroamérica-Estados Unidos”, publicado en el Diario Oficial La Gaceta N° 31 del 13 de febrero de 2014.
