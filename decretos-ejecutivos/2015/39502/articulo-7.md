@@ -1,0 +1,1 @@
+Artículo 7°—La CNE ejercerá la coordinación de la NORMA DE PLANES DE PREPARATIVOS Y RESPUESTA ANTE EMERGENCIAS PARA CENTROS LABORALES O DE OCUPACIÓN PÚBLICA. REQUISITOS, que incluye el seguimiento y monitoreo de los avances en el cumplimiento de sus objetivos y lineamientos, mediante los indicadores de gestión y resultado que se detallan en dicha normativa.

@@ -1,0 +1,1 @@
+Artículo 2°—La norma completa y autorizada por la Junta Directiva podrá ser ubicada en la dirección electrónica www.cne.go.cr, adicionalmente en caso de que se requiera, el documento físico de la Norma podrá ser consultado en la sede principal de la CNE en las siguientes Unidades: Normalización y Asesoría, Asesoría Legal y en el Centro de Documentación.

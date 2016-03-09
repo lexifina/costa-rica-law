@@ -1,0 +1,1 @@
+Artículo 5°—El campo de aplicación de la norma es a todos los centros laborales y de ocupación pública tales como sitios para reuniones públicas, residencial, hoteles, centros educativos, cuidado de la salud, industriales, negocios, mercantil, centros comerciales, almacenamiento, servicio, albergues, guarderías, centros diurnos y centros de acogida, detención y correccionales.
