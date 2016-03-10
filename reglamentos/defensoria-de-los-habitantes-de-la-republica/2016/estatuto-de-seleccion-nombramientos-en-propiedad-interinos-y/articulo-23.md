@@ -1,0 +1,1 @@
+Artículo 23.—Derogatoria. Se deroga el inciso a) del artículo 42 y el artículo 54 del Estatuto Autónomo de Servicios de la Defensoría de los Habitantes de la República, así como toda norma que se oponga a lo establecido en el presente estatuto

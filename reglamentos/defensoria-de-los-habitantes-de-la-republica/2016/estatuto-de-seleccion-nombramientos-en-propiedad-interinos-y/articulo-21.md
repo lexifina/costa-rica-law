@@ -1,0 +1,3 @@
+Artículo 21.—Del período de prueba
+Todo nombramiento o ascenso efectuado por los procedimientos precedentes estará sujeto a período de prueba de hasta tres meses acorde con lo establecido en el Estatuto Autónomo de Servicio vigente. En caso de que sea un o una funcionaria de la institución la persona designada para ocupar en propiedad una plaza, dentro de ese lapso conservará los derechos de la plaza de la cual proviene dentro de la Defensoría de los Habitantes.
+Si el funcionario(a) no logra aprobar el período de prueba, la nueva terna o nómina para el nombramiento o el ascenso deberá integrarse con los candidatos mejor calificados que participaron en el proceso y que fueron seleccionados acorde con los criterios definidos en el presente estatuto.

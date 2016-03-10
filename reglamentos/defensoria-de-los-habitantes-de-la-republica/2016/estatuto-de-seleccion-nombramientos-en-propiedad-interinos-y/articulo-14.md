@@ -1,0 +1,3 @@
+Artículo 14.—Del período de recepción de ofertas
+Durante el período de recepción de las ofertas, el Departamento de Recursos Humanos estudiará las ofertas y aquellas que no cumplan con los requisitos las rechazará mediante acto motivado, e informará a las personas que no satisfagan los requisitos establecidos en el Manual Descriptivo de Clases de Puestos y los criterios de selección definidos en el concurso.
+En caso de que no se presenten candidatos (as) o que éstos (as) no satisfagan las características del puesto vacante, el Departamento de Recursos Humanos lo declarará desierto y solicitará al Defensor (a) de los Habitantes la apertura de un nuevo concurso público, el cual se regirá por el presente Estatuto.

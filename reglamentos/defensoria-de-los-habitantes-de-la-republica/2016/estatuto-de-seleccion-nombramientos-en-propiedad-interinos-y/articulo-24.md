@@ -1,0 +1,1 @@
+Artículo 24.—Reformas tácitas. Cualquier norma estatutaria interna que haga referencia al Estatuto Autónomo de Selección Ascensos y nombramientos, deberá entenderse que se refiere al nuevo Estatuto de Selección, nombramientos en propiedad e interinos de la Defensoría de los Habitantes.

@@ -1,0 +1,2 @@
+Artículo 4°—De las plazas vacantes temporales
+Al producirse una vacante de manera temporal, ya sea porque su propietario está ascendido transitoriamente o porque se encuentra fuera de la institución al amparo de un permiso sin goce de sueldo, el nombramiento interino del sustituto se realizará a través de un concurso interno sumario, de conformidad con la potestad que le otorga al Defensor o Defensora de los Habitantes, la Ley de la Defensoría de los Habitantes y el procedimiento dispuesto en el artículo 17 del presente Estatuto.

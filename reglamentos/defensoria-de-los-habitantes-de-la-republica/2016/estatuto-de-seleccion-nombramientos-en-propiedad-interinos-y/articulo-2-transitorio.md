@@ -1,0 +1,1 @@
+Segunda.—En el primer semestre del año 2017 el Departamento de Recursos Humanos presentará una propuesta para que la Defensoría de los Habitantes cuente con un sistema de ingreso a la institución que permita priorizar criterios técnicos y de experiencia de manera tal que se pueda llegar a constituir una carrera en defensa y promoción en derechos humanos.

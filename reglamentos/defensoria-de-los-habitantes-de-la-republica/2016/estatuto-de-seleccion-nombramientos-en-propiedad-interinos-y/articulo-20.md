@@ -1,0 +1,3 @@
+Artículo 20.—De los recursos contra el acuerdo de nombramiento
+Las personas oferentes que se sientan perjudicados por el acuerdo de nombramiento que se emita al final del concurso interno, podrán presentar formal recurso de revocatoria ante el Defensor(a) de los Habitantes, en un plazo de tres días hábiles luego de notificado el resultado. El Defensor(a) de los Habitantes contará con un plazo de ocho días hábiles para resolver dicho recurso. Dicha resolución dará por agotada la vía administrativa.
+En todo caso, de conformidad con el artículo 7.- inciso n) del presente Estatuto, el Departamento de Recursos Humanos comunicará los resultados de los concursos en forma directa a los participantes.

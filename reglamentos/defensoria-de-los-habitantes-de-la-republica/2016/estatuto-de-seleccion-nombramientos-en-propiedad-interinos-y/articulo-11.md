@@ -1,0 +1,7 @@
+CAPÍTULO IV
+De los concursos públicos
+Artículo 11.—De los concursos públicos
+La apertura de un concurso público se hará por acto motivado del Defensor (a) de los Habitantes y el mismo se regirá por el procedimiento establecido en este Estatuto; y supletoriamente en aplicación de lo dispuesto en los artículos 7 y 9 de la Ley General de la Administración Pública, por lo que al respecto se establece en la normativa interna de las demás instituciones adscritas al Poder Legislativo.
+Para la selección del personal que se nombrará en propiedad en la Defensoría de los Habitantes, se convocará a un concurso público mediante el cual se invitará a todas aquellas personas interesadas en participar para que presenten sus atestados. A tal efecto, se promoverá la más amplia difusión del concurso por todos los medios de comunicación posibles, incluidos los digitales y regionales. En todo caso, deberá realizarse al menos una publicación en un medio escrito de circulación nacional, y regional en el caso de las vacantes de las oficinas regionales de la DHR.
+Se invitará especialmente a personas pertenecientes a las poblaciones indígenas, afrodescendiente, personas con discapacidad y personas trans.
+Los funcionarios o funcionarias de la Defensoría de los Habitantes que ostentan una plaza en propiedad en una unidad distinta a la que pertenece la plaza que saldrá a concurso, podrán participar en igualdad de condiciones con respecto a las y los demás participantes.

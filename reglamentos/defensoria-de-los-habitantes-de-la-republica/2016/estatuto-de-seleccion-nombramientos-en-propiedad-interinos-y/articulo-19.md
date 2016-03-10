@@ -1,0 +1,5 @@
+CAPÍTULO VII
+De los Recursos
+Artículo 19.—De los Recursos en los procesos de selección
+Las personas oferentes que consideren afectados sus derechos o intereses legítimos por las bases del concurso, el procedimiento para la evaluación de las ofertas o postulaciones recibidas dentro del concurso o los resultados de un proceso de selección y nombramiento, podrán presentar formal recurso de revocatoria con apelación en subsidio ante el Departamento de Recursos Humanos y el o la Defensora de los Habitantes, según el caso, en un plazo de tres días hábiles a partir de la respectiva notificación. El Defensor(a) de los Habitantes contará con un plazo de ocho días hábiles para resolver el recurso. Dicha resolución dará por agotada la vía administrativa.
+Si no se presentaran recursos dentro del plazo fijado, los resultados o actuaciones quedarán en firme con preclusión del derecho de impugnación y sin posibilidad de retrotraer fases del proceso ya consolidadas, con excepción de la posibilidad de revisión de los vicios de nulidad absoluta, evidente y manifiesta que se aleguen.
