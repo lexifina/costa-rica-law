@@ -1,0 +1,1 @@
+TRANSITORIO II. Las compras que se realicen utilizando el sistema de compras públicas Mer-Link, deben además del presente Reglamento, considerar el Reglamento para la Utilización del Sistema Electrónico de Compras Públicas Mercado en Línea “Mer-Link” publicado en el Diario Oficial La Gaceta N° 221 del 15 de noviembre de 2010.

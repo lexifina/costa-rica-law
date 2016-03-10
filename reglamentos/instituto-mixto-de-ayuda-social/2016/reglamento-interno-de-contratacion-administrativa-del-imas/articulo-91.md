@@ -1,0 +1,2 @@
+Artículo 91. Solicitud de verificación de ofertas. El Área de Proveeduría Institucional, solicitará a las unidades competentes, en forma paralela el estudio técnico, legal y financiero de las ofertas con el objetivo de que constituyan la fundamentación para la toma de decisión final.
+Dicha solicitud debe indicar el plazo en el que debe atenderse el Estudio de Ofertas, en acatamiento a Directriz institucional y con fundamento en los plazos estipulados en la Ley de Contratación Administrativa y el Reglamento a la Ley.

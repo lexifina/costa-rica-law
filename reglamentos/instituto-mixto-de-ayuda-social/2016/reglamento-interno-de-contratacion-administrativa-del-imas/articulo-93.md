@@ -1,0 +1,12 @@
+Artículo 93. Verificación técnica de ofertas. Las verificaciones técnicas deben realizar una valoración de las especificaciones técnicas establecidas en el cartel de la contratación y determinar la elegibilidad de la oferta. Igualmente podrá advertirse cualquier incumplimiento en aspectos formales o de otra índole. Cumplida la etapa de subsanación de ofertas y si la unidad técnica requiere subsanar otros requisitos de la oferta, debe justificarse la razón para hacer la prevención al oferente.
+En caso de ser necesario se puede acudir a otras instancias dentro de la institución siendo que están obligados a colaborar con el objetivo de hacer la valoración técnica de las ofertas que han sido sometidas a conocimiento de la administración.
+Se definen las siguientes instancias técnicas, a quienes les corresponde realizar acompañamiento en la definición de requisitos técnicos de los Términos de Referencia, realizar los estudios de ofertas, recomendar la adjudicación, emitir criterios técnicos y participar en la Comisión de Recomendación de Licitaciones si así se requiere:
+a) Tecnologías de Información: equipos de cómputo, sistemas informáticos, equipos de comunicación, centrales telefónicas, equipo de impresión.
+b) Área de Servicios Generales:
+i. Contrato de servicios administrativos; como son seguridad, limpieza, fumigación, mensajería, mantenimiento de edificios y jardinería, y otros relacionados con la conservación y mantenimiento de edificios.
+ii. Equipos de aire acondicionado, plantas eléctricas, equipos relacionados con seguridad, como son: cámaras, alarmas y detectores de metales.
+iii. Infraestructura institucional: consultoría para construcción, remodelación y mantenimiento de edificios, construcciones y remodelaciones, así como sistemas de muebles modulares, consultorías en sistemas eléctricos, mecánicos de edificios.
+iv. Transportes: mantenimiento preventivo y correctivo de vehículos, adquisición de vehículos.
+c) Proceso de Comunicación y Proyección Institucional: Asuntos de imagen institucional y corporativa, publicidad, avisos, redacción de memoria, organización de eventos institucionales, seminarios, actividades protocolarias.
+d) Desarrollo Humano: aspectos relacionados a la integridad física del recurso humano, capacitación, salud ocupacional, equipos médicos y de laboratorio.
+e) Subgerencia de Desarrollo Social: contratación de servicios relacionados con la actividad ordinaria institucional.

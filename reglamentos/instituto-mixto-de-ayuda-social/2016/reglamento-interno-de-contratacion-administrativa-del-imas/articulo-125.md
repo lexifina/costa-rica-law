@@ -1,0 +1,1 @@
+Artículo 125. Archivo y custodia de los contratos. Los contratos tendrán una numeración consecutiva asignada por el Sistema Electrónico de Compras Públicas, y todo contrato será electrónico de acuerdo a las regulaciones establecidas en el sistema, por lo que para la fiscalización, pagos y consultas debe realizarse directamente en el expediente electrónico.

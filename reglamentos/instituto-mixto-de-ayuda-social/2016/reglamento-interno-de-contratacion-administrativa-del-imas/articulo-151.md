@@ -1,0 +1,4 @@
+Artículo 151. Pagos por contrataciones irregulares. Cuando se presente una contratación irregular en los términos del Artículo 210 del Reglamento a la Ley de Contratación Administrativa, se procederá de la siguiente forma:
+a) El funcionariado que detecte una contratación irregular deberán informar a la Gerencia General sobre tal situación.
+b) La Gerencia General ordenará una investigación previa y solicitará a la Asesoría Jurídica el criterio correspondiente. Igualmente podrá solicitar informes a otras Unidades Administrativas, que considere pertinente.
+c) La Gerencia General, con base en los informes recibidos, preparará una resolución administrativa procediendo al reconocimiento del pago y/o indemnización correspondiente, estableciendo las retenciones respectivas y ordenará la apertura del procedimiento administrativo a los funcionarios. responsables, con plena garantía del debido proceso.

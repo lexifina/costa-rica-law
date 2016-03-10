@@ -1,0 +1,2 @@
+Artículo 77. Subasta a la baja. Podrá utilizarse este procedimiento para la adquisición de productos genéricos, entendidos como suministros, equipos, o bienes de uso común, cuya fabricación obedezca a reglas estandarizadas. Se promoverá el concurso que por estimación económica corresponda, estableciendo en el cartel un detalle de los bienes y las condiciones aplicables, advirtiendo que la adjudicación será por subasta a la baja.
+Se procederá de conformidad con los requisitos establecidos en el Artículo 106 al 114 del Reglamento a la Ley de Contratación Administrativa.

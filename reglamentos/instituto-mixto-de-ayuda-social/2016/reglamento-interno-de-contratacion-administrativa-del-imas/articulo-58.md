@@ -1,0 +1,3 @@
+Artículo 58. Devolución de Garantías. La devolución de las Garantías de Participación y Cumplimiento se realizará de acuerdo al procedimiento establecido en el Sistema Electrónico de Compras Públicas.
+Para la devolución de las Garantías depositadas mediante documento, se requiere únicamente la autorización de la jefatura de la Proveeduría Institucional. La devolución de garantías depositadas en efectivo, requiere de la aprobación de la persona que ejerza como encargada de la Unidad de Contabilidad y un funcionario que cuente con autorización para realizar movimientos en las cuentas corrientes de la institución.
+Para devolver las garantías de cumplimiento siempre se requiere la autorización de la persona Administradora de Contrato.

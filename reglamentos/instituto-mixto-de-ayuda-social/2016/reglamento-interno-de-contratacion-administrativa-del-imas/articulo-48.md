@@ -1,0 +1,2 @@
+Artículo 48 Plazo recepción ofertas. Los plazos para recibir ofertas, se definen según lo indicado en el artículo 58 del Reglamento a la Ley de Contratación Administrativa. Cualquier modificación a los plazos para recibir ofertas debe realizarse mediante acto motivado por parte del Proveedor Institucional fundamentando las razones para ello.
+Antes de recibir ofertas por razones de interés público o institucional, la Administración podrá dejar sin efecto el respectivo concurso, para lo cual debe mediar acto motivado de parte de la Gerencia General.

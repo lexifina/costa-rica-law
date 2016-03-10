@@ -1,0 +1,1 @@
+Artículo 37. Prohibición de fragmentar. No se podrán fragmentar las adquisiciones de bienes y servicios con el propósito de variar el procedimiento de contratación administrativa, de conformidad con el artículo 37 de la Ley de Contratación Administrativa y el artículo 13 del Reglamento a la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+Artículo 68. Aclaración y subsanación de ofertas. De ser necesario aclaración o subsanación de ofertas, la prevención debe hacerla al Área de Proveeduría Institucional, por medio del Sistema Electrónico de Compras Públicas. Igualmente el oferente debe usar ese medio para atender la aclaración o subsanación de su oferta.

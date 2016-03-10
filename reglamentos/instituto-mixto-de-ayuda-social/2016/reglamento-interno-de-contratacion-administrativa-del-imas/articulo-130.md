@@ -1,0 +1,1 @@
+Artículo 130. De la obligación a la ejecución y posibilidad de prórrogas. La persona Administradora de Contrato, tiene la obligación de ejecutar plenamente y sin obstáculo la verificación, supervisión, fiscalización y coordinación necesaria para que se cumpla con la correcta ejecución de lo acordado.

@@ -1,0 +1,1 @@
+Artículo 111. Comunicación de adjudicación de licitaciones. Una vez adjudicada la licitación o contratación, el funcionariado Profesional en Proveeduría procederá a comunicar por el Sistema Electrónico de Compras Públicas, de conformidad con lo indicado en el Artículo 88 del Reglamento a la Ley de Contratación Administrativa.

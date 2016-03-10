@@ -1,0 +1,2 @@
+Artículo 41. Elaboración del cartel. El cartel de cada contratación, será elaborado por la persona Profesional en Proveeduría, con base en los términos de referencia aprobados con la decisión inicial y que constan en la Solicitud de Contratación.
+El Área de Proveeduría Institucional, podrá solicitar la colaboración y asesoría de instancias técnicas, legales o administrativas, que tengan conocimiento especializado o tendrán participación en la ejecución, supervisión o verificación de la contratación.

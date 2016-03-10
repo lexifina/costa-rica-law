@@ -1,0 +1,1 @@
+Artículo 19. Exclusión de proveedores que ofrecen mercancía para venta en Tiendas Libres de Derechos del IMAS. Para excluir a aquellos proveedores que deban ser sancionados se considerarán las causales establecidas en el Artículo 124 del Reglamento a la Ley de Contratación Administrativa.

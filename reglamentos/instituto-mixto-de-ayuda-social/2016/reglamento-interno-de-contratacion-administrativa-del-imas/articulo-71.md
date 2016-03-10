@@ -1,0 +1,3 @@
+Artículo 71. Estructura mínima Licitación Pública: En la Licitación Pública, se procederá con la invitación electrónica a todos los proveedores del bien o servicio que se esté tramitando. Para ello se utilizará el Registro Electrónico de Proveedores del Sistema Electrónico de Compras Públicas.
+La Licitación Pública se regirá por los plazos estipulados en la Sección Primera del Reglamento a la Ley de Contratación Administrativa.
+El acto de adjudicación deberá dictarse dentro del plazo establecido en el cartel, que no podrá ser superior al doble del fijado para recibir ofertas. Los actos recursivos que se presenten durante el proceso deben ser resueltos por el órgano competente para adjudicar.

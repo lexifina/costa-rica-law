@@ -1,0 +1,1 @@
+Artículo 22. Procedimientos sustitutivos a los ordinarios. De ser necesario y con el objetivo de satisfacer el interés público, el IMAS podrá hacer uso de los procedimientos de excepción establecidos en el Capítulo IX del Reglamento a la Ley de Contratación Administrativa.

@@ -1,0 +1,3 @@
+Artículo 61. Otras garantías y retenciones. Con el objetivo de asegurar una correcta ejecución contractual, el IMAS podrá recibir otro tipo de garantías.
+Para ello podrá recibir garantías colaterales, cuando existan adelantos de pago y ello resulte viable. Esa garantía debe ser por todo el monto que se vaya a girar. Para la recepción de garantías colaterales aplicará lo establecido en el artículo 44 del presente reglamento.
+Queda facultada la Administración para incorporar en el cartel cláusulas de retención porcentual de las sumas pagadas, el cual tendrá como monto máximo un 10% de los pagos a realizar.

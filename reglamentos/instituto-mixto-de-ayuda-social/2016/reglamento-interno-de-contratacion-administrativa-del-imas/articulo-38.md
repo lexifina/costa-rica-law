@@ -1,0 +1,3 @@
+Artículo 38. Expediente administrativo electrónico del procedimiento de contratación administrativa.
+El expediente electrónico del procedimiento de contratación puede ser consultado en línea por medio de Internet Explorer por parte de cualquier persona interesada.
+Se deberá comunicar al Área de Proveeduría Institucional, mediante acto razonado por el Encargado del Programa Presupuestario y aprobado por la Gerencia General, los documentos calificados como confidenciales, secreto comercial, industrial o económico, de oficio o a solicitud de la parte interesada, según lo regulado por la normativa especial aplicable al IMAS, serán de acceso restringido.

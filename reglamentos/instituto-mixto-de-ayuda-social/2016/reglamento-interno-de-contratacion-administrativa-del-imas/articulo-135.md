@@ -1,0 +1,1 @@
+Artículo 135. Recibo de servicios técnico-profesionales. Además de lo contemplado en los artículos 194 y 195 del Reglamento a la Ley de Contratación Administrativa, la persona Administradora de Contrato verificará el cumplimiento de lo establecido en el respectivo contrato.

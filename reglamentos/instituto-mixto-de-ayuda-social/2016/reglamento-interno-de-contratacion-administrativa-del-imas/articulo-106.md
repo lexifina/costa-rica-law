@@ -1,0 +1,2 @@
+Artículo 106. Convocatoria y quórum a la Comisión. Se convocará a sesión una vez que se hayan realizado las verificaciones técnicas, legales y financieras y se haya realizado la calificación de las ofertas. El quórum para sesionar lo formarán cinco miembros siempre que tengan voto.
+Las ausencias en razón de vacaciones, incapacidad, o sustitución en el puesto de cualquiera de los miembros permanentes, serán suplidas por el funcionariado que ostente el cargo en el momento de la convocatoria.

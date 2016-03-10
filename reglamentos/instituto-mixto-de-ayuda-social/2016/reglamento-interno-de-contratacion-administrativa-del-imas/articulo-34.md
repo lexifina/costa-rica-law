@@ -1,0 +1,1 @@
+Artículo 34. Trámite posterior a la decisión inicial. Una vez adoptada la decisión inicial y cumplidos los requisitos previos, le corresponderá al Área de Proveeduría Institucional realizar el procedimiento de contratación administrativa, de conformidad con las funciones que detalla el artículo 10 del Reglamento a la Ley de Contratación Administrativa.

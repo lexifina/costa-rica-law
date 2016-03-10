@@ -1,0 +1,5 @@
+Artículo 33. Decisión de iniciar el procedimiento de contratación administrativa. El procedimiento de contratación se iniciará con la decisión administrativa de promover el concurso, emitida por la instancia competente, según lo siguiente:
+Por quién ejerza el puesto de Gerente General, Auditor General o Subgerentes de Área, y se materializa con la liberación final de la Solicitud de Contratación.
+En las contrataciones que corresponda realizarse por medio de Licitación Pública según los supuestos establecidos en el artículo 92 del Reglamento a la Ley de Contratación Administrativa, la Decisión inicial será dada por el Consejo Directivo.
+El acto de aprobación equivale al otorgamiento de la autorización del gasto y del inicio de procedimiento de contratación administrativa, de conformidad con la competencia y autoridad que ostentan cada una de las personas usuarias consideradas en la Estrategia de Liberación del SAP y en el Sistema Electrónico de Compras Públicas.
+Para emitir el acto de decisión inicial, la instancia competente debe considerar los requisitos establecidos en el artículo 8) del Reglamento a la Ley de Contratación Administrativa.

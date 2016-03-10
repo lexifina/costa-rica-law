@@ -1,0 +1,2 @@
+Artículo 2. Responsabilidad de aplicación del Reglamento. Las disposiciones del presente Reglamento serán aplicables a todos los procedimientos de Contratación Administrativa que promueva el IMAS, por medio del Área de Proveeduría Institucional.
+El Área de Proveeduría Institucional se encargará de velar por el cumplimiento del presente Reglamento. Asimismo, se indica las responsabilidades de las unidades administrativas y funcionariado que intervienen en cada una de las actividades administrativas necesarias para el cumplimiento del objeto del procedimiento.

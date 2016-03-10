@@ -1,0 +1,1 @@
+Artículo 12. Aplicación del procedimiento para registro de Proveedores. Todo proveedor interesado en ofrecer bienes o servicios al IMAS debe inscribirse en el Registro Electrónico de proveedores del Sistema Electrónico de Compras Públicas, para lo cual debe de cumplir con los requisitos que el sistema defina.

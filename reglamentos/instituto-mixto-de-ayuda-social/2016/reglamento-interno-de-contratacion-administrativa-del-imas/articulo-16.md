@@ -1,0 +1,1 @@
+Artículo 16. Registros Auxiliares de Proveedores. Los proveedores interesados en ofrecer mercancía para venta en las Tiendas Libres de Derechos del IMAS, deben remitir al Área de Proveeduría Institucional la información y documentación necesaria para llevar el registro correspondiente. En forma excepcional será el único registro físico de proveedores que mantendrá el IMAS.

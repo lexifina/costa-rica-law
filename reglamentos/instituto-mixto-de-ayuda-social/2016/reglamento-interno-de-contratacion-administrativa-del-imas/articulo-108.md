@@ -1,0 +1,5 @@
+CAPÍTULO XIII
+EL ACTO DE ADJUDICACION EN LICITACIONES
+Artículo 108. Acto de adjudicación. El acto de adjudicación deberá ser debidamente motivado y dictado dentro del plazo establecido en el Reglamento a la Ley de Contratación Administrativa, según corresponda al procedimiento.
+Dicho plazo podrá ser prorrogado por un periodo igual y por una sola vez, mediante acto motivado suscrito por la persona que ejerce como Proveedor Institucional en el cual se acrediten razones de interés público e institucional que así lo justifiquen, de conformidad con lo establecido en el Artículo 95 del Reglamento a la Ley de Contratación Administrativa.
+Vencido el plazo señalado en el párrafo anterior, sin haberse dictado el acto de adjudicación, los oferentes tendrán derecho a dejar sin efecto su propuesta, así como a que se les devuelva la Garantía de Participación, sin que les resulte aplicable sanción alguna. Asimismo, los funcionarios responsables del no dictado oportuno del acto de adjudicación, estarán sujetos a las sanciones previstas en los Artículos 96 y 96 bis de la Ley de Contratación Administrativa, por incumplimiento general de plazos establecidos en la Ley indicada.

@@ -1,0 +1,1 @@
+Artículo 128. De la notificación del contrato. Una vez realizada la verificación de condiciones y contado con las aprobaciones solicitadas el Profesional en Proveeduría, realizará la notificación del contrato al adjudicado.

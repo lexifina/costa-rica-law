@@ -1,0 +1,1 @@
+Artículo 65. Plazo para recibir ofertas. Para la recepción de ofertas, la publicación en los medios electrónicos, debe establecer el plazo, con indicación de la hora y fecha de vencimiento, de conformidad con el Artículo 58 del Reglamento a la Ley de Contratación Administrativa.

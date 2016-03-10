@@ -1,0 +1,1 @@
+Artículo 167. De la vigencia: Rige a partir de su publicación en el Diario Oficial La Gaceta. El presente Reglamento fue aprobado por acuerdo firme de Consejo Directivo, Nº 063-02-2016, Acta Nº 07-02-2016, de la sesión ordinaria celebrada el 8 de febrero del 2016.

@@ -1,0 +1,1 @@
+Artículo 165. Impedimento a participar en procedimientos de Contratación Administrativa promovidos por el IMAS: El Área de Proveeduría Institucional no cursará invitación a aquellos proveedores que se encuentren incluidos en la lista de personas con incompatibilidades o que hayan sido sancionados con suspensión, durante el plazo de la sanción interpuesta.

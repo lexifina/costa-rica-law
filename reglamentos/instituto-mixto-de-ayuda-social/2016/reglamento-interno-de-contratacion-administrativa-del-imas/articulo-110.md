@@ -1,0 +1,2 @@
+Artículo 110. Formalidades, motivación. El acto de adjudicación, deberá estar debidamente razonado y motivado por el órgano competente para dictarlo, con base en la recomendación de la Comisión de Recomendación de Adjudicación de Licitaciones o considerando la recomendación de la persona Profesional en Proveeduria, en el caso de las contrataciones de Escasa Cuantía.
+El órgano que emite el acto de adjudicación, será el encargado de remitirlo oportunamente al Área de Proveeduría Institucional, para los trámites siguientes.

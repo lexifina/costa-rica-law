@@ -1,0 +1,1 @@
+Artículo 13. Requisitos de Inscripción al Registro de Proveedores. Las solicitudes de inscripción al Registro de Proveedores interesados en ofrecer bienes y servicios al IMAS corresponden a los indicados en el artículo 18 y 19 del Reglamento para la utilización del Sistema Mer-Link o del que se defina en el Sistema Electrónico de Compras Públicas que utilice la institución.

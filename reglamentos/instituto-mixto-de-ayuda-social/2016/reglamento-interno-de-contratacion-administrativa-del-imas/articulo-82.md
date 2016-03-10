@@ -1,0 +1,1 @@
+Artículo 82. Apertura de Expediente. El Área de Proveeduría Institucional, iniciará el procedimiento de Contratación Directa por Escasa Cuantía con la apertura de un expediente electrónico, donde constarán todas las actuaciones administrativas.

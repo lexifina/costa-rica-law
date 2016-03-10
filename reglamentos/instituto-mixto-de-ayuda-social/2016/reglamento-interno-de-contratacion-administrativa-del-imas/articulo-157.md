@@ -1,0 +1,1 @@
+Artículo 157. Procedimiento de rescisión del contrato. En acatamiento del Artículo 208 del Reglamento a la Ley de Contratación Administrativa y verificada la causal por la cual procede declarar la rescisión contractual, corresponde al Área de Proveeduría Institucional, gestionar el Debido proceso.

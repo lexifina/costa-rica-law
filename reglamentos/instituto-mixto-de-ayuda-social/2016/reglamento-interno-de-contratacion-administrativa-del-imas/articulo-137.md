@@ -1,0 +1,2 @@
+Artículo 137. Incumplimiento de las condiciones contractuales. Cuando la persona Administradora de Contrato advierta un incumplimiento por parte del contratista, lo emplazará para que se ajuste a los términos pactados.
+Si la contratista no atendiese en debida forma el emplazamiento conferido, se dispondrá lo pertinente a efecto de iniciar el procedimiento administrativo que se requiera, para adoptar la decisión que corresponda, según la naturaleza del incumplimiento. La resolución final será adoptada por la Gerencia General, siguiendo el Debido Proceso.

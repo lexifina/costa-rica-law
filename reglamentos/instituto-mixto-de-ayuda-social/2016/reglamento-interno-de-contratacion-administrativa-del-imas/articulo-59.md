@@ -1,0 +1,1 @@
+Artículo 59. Ampliación de vigencia y ampliación de monto de garantías. La persona Administrador de Contrato designado, deberá remitir al Área de Proveeduría Institucional con la debida antelación, toda solicitud de ampliación de la vigencia o monto de las garantías, según se establece en el Procedimiento de Fiscalización de Contratos.

@@ -1,0 +1,1 @@
+Artículo 20. Sistema de Evaluación de Proveedores: Corresponderá a la persona Administradora de Contrato, realizar la evaluación del proveedor una vez recibidos los bienes y/o servicios, para ello debe realizarlo en el Sistema Electrónico de Compras Públicas en el apartado contrato electrónico, confección de contrato, evaluación de proveedores.

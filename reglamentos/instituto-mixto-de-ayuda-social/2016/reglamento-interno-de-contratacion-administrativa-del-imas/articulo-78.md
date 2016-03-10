@@ -1,0 +1,3 @@
+Artículo 78. Convenio Marco. Queda facultado el IMAS para realizar convenios marcos para la contratación de determinados bienes o servicios, por un plazo de hasta cuatro años, ya sea que los promocione o que se adhiera a un Convenio Marco existente. .
+Este procedimiento se debe realizar por medio de licitación pública, licitación abreviada o contratación directa y será realizada por una sola entidad y cubrirá tantas compras como necesidades específicas surjan de los integrantes. Para ello se debe considerar el monto de acuerdo a los límites de contratación vigentes en el periodo presupuestario en el que se realice la contratación.
+Se procederá de conformidad con los requisitos establecidos en el Artículo 115 del Reglamento a la Ley de Contratación Administrativa.

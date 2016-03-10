@@ -1,0 +1,2 @@
+Artículo 47. Publicación del Cartel. El Área de Proveeduría Institucional deberá publicar en el Sistema Electrónico de Compras Públicas, todo cartel de procedimientos de Contratación Administrativa que promueve el IMAS.
+Queda autorizada el Área de Proveeduría Institucional, para publicar en el Diario Oficial La Gaceta, o en diarios de circulación nacional, cualquier aviso e invitación a participar en contrataciones, con el objetivo de lograr la mayor participación posible de oferentes en cumplimiento del Principio de Publicidad.

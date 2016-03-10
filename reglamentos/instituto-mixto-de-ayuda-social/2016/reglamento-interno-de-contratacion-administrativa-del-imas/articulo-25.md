@@ -1,0 +1,1 @@
+Artículo 25 Exclusión del Procedimientos ordinario de Contratación Administrativa del IMAS: Se excluye del procedimiento de contratación administrativa, los procedimientos de compras de mercancías para ventas en las Tiendas Libres de Derechos del IMAS. Esta actividad se regirá por el “Reglamento para la Compra de Mercadería de Tiendas Libres”.

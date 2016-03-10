@@ -1,0 +1,2 @@
+Artículo 139. Responsabilidad del contratista. La contratista será responsable de los daños y perjuicios originados por el incumplimiento de sus obligaciones, por el término correspondiente de cinco años, contados a partir del recibo, a satisfacción del IMAS, del servicio, el suministro o la obra.
+Si se trata de obras públicas el término para reclamar la indemnización por vicios ocultos será de diez años, contados a partir del recibo definitivo de la obra.
