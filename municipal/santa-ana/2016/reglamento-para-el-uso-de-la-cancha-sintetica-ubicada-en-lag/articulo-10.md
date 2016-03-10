@@ -1,0 +1,1 @@
+Artículo 10.—La administración no se hace responsable por olvidos o pérdidas de objetos personales. Así mismo, está prohibido encargar el cuidado de cualquier objeto o pertenencia al administrador de la cancha sintética.

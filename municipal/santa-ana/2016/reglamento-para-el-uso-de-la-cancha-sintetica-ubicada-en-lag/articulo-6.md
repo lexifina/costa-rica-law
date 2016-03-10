@@ -1,0 +1,1 @@
+Artículo 6º—El valor que ingrese por el cobro del uso del campo de juego de la cancha sintética, el administrador lo distribuirá de la siguiente manera: a) pago del consumo servicios públicos; b) reposición de implementos deportivos; y, e) limpieza y mantenimiento diario de las instalaciones.

@@ -1,0 +1,1 @@
+Artículo 4º—Los usuarios pagarán obligatoriamente por su uso del campo de juego de la cancha sintética, con excepción de aquellos casos que el CCDRSA o el Comité Comunal de Lindora mediante acuerdo de la Junta Directiva resuelvan exonerarlo o en donde se promuevan programas promovidos por el CCDRSA.

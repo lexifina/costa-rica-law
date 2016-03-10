@@ -1,0 +1,1 @@
+Artículo 5º—Las instalaciones deberán entregarse tal y como se faciliten en el momento del uso. La reserva incluirá el uso de las instalaciones por el horario establecido el cual se ha fijado de acuerdo a lo siguiente: Lunes a viernes de 3:00 p.m. a 9:00 p.m. sábados y domingos de 12:00 m.d. a 9:00 p.m.
