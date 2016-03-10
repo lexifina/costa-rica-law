@@ -1,0 +1,1 @@
+Artículo 10.—DEL CONTROL Y SUPERVISIÓN SOBRE LAS CUENTAS CORRIENTES DONDE SE ADMINISTRA LOS FONDOS FIJOS. Es responsabilidad de la Persona Titular Subordinada de cada Unidad donde se administre un Fondo Fijo, controlar y supervisar las transacciones y el saldo de la cuenta corriente destinada al Fondo Fijo, asegurando el cumplimiento de lo que establece el presente Reglamento.

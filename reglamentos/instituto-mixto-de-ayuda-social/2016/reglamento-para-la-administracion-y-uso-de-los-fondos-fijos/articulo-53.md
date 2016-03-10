@@ -1,0 +1,1 @@
+Artículo 53.—DE LAS OBLIGACIONES DEL RESPALDO DOCUMENTAL DE LOS ARQUEOS. Para los arqueos que se practican a los Fondos Fijos se debe dejar documento formal firmado por la o el Titular Subordinado o a quien designe y la persona Administradora del Fondo Fijo Cuando corresponda se debe indicar los hallazgos detectados.

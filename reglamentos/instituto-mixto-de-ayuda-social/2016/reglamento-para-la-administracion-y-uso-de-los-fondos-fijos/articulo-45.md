@@ -1,0 +1,2 @@
+Artículo 45.—DE LA CUSTODIA DE LOS DOCUMENTOS QUE RESPALDAN LOS REINTEGROS. Toda la documentación que respalda una solicitud de reposición de Fondos debe ser custodiada por la Unidad que administra el Fondo. Asimismo, dichos documentos deberán estar a disposición de las dependencias fiscalizadoras que así lo requieran.
+En Oficinas Centrales y las Empresas Comerciales, luego de realizado el reintegro, los documentos respaldo, con la copia del cheque o transferencia deben ser custodiados por las respectivas Unidades de Contabilidad.

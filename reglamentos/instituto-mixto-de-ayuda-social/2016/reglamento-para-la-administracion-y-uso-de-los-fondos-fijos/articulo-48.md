@@ -1,0 +1,4 @@
+Artículo 48.—DE LOS TIEMPOS REQUERIDOS POR LAS UNIDADES RESPONSABLES DE REALIZAR LOS REINTEGROS.
+a) Reintegros de Oficinas Centrales Para la reposición de los Fondos de Oficinas centrales, la Unidad de Contabilidad contará con cinco días hábiles para realizar las acciones de su competencia en el trámite de reposición de los Fondos Fijos que solicite la Unidad de Tesorería.
+b) Reintegros en Áreas Regionales de Desarrollo Social. La Unidad de Contabilidad cuenta con dos días hábiles para realizar las acciones de su competencia en el trámite de reposición de los Fondos Fijos. Mientras que la Unidad de Tesorería girará el efectivo, conforme se establezca en el calendario de pagos.
+c) Reintegros para las Empresas Comerciales. El Área de Finanzas tendrá cinco días hábiles para realizar las acciones su competencia en el trámite de reposición de los Fondos Fijos. La Unidad de Tesorería girará el efectivo, conforme se establezca en el calendario de pagos.

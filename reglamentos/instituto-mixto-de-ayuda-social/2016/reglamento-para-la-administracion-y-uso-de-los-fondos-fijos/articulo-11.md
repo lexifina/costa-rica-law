@@ -1,0 +1,2 @@
+Artículo 11.—DE LAS AUSENCIAS PREVISTAS DE LA PERSONA ADMINISTRADORA DEL FONDO FIJO. Por tratarse de una ausencia prevista, se deberá hacer un arqueo, de forma previa, en donde estén presente la persona administradora del Fondo (Titular), la persona funcionaria designada para dicha sustitución y el Titular Subordinado, en ese momento se firma el arqueo y se realiza la entrega de documentos.
+La persona funcionaria designada asume las mismas responsabilidades del Titular del Puesto

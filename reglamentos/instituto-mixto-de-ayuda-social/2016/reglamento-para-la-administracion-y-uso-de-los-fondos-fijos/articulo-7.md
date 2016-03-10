@@ -1,0 +1,1 @@
+Artículo 7º— DE LA METODOLOGÍA DEL GIRO. Corresponde a la Jefatura del Área de Administración Financiera definir la metodología de giro que se utilizará para la entrega del dinero por concepto de Adelantos de Efectivo para Gastos por Caja Chica a las personas funcionarias, para tal fin aprovechará los avances tecnológicos del momento.

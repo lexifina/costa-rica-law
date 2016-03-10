@@ -1,0 +1,2 @@
+Artículo 61.—DE LAS AUTORIZACIONES TÉCNICAS. La Subgerencia de Soporte Administrativo deberá emitir anualmente una resolución administrativa comunicando a la comunidad institucional, la lista de bienes y servicios que, previo a su adquisición requieren de autorizaciones técnicas y las Unidades especialidades que deben autorizar.
+Será responsabilidad de las Unidades que administran Fondos Fijos, verificar que se cumplan estos requisitos antes de transferir el efectivo.
