@@ -1,4 +1,3 @@
-Artículo 114.- Financiamiento de las extensiones de los sistemas.
-Los prestadores no están en la obligación de financiar las extensiones de los sistemas, cuando no estén contemplados dentro del PMYES. Estas obras podrán financiarse:
-a. Por terceros interesados. El financiamiento debe ser para la infraestructura propia del proyecto, las extensiones de red y las obras de ampliación; y
-b. Conjuntamente entre el prestador y un tercero interesado, exclusivamente para proyectos urbanísticos siempre que el interés público lo justifique, según lo determinen los estudios técnicos correspondientes que respalden la viabilidad y necesidad de la extensión de red, sin que ello comprometa el recurso hídrico existente en perjuicio de la comunidad presente o de los habitantes de los eventuales nuevos desarrollos.
+Artículo 114.- Financiamiento de las extensiones de los sistemas y fuentes de abastecimiento
+Los prestadores no están en la obligación de financiar la ampliación de los sistemas de acueductos y alcantarillado sanitario, incluidas las fuentes de abastecimiento, si dichos proyectos no están contemplados en el PMYES. Para esos efectos, podrán recurrir a la participación de la inversión privada siempre que así lo determinen los estudios técnicos correspondientes que respalden su factibilidad, sin que con ello se comprometa la demanda de los abonados actuales, ni se atente contra el interés público.
+(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)

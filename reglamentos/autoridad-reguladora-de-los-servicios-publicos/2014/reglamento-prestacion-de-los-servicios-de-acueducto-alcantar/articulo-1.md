@@ -1,4 +1,5 @@
 AUTORIDAD REGULADORA DE LOS SERVICIOS PUBLICOS
+(Nota de Sinalevi: Mediante sesión ordinaria N° 33-2018 y publicado en La Gaceta N° 161 del 4 de setiembre del 2018, la Municipalidad de Barva, acordó lo siguiente: “aplicar en lo conducente el reglamento que publicó la autoridad reguladora de los servicios públicos prestación de los servicios de acueducto, alcantarillado sanitario e hidrantes, AR-PSAYA-2015, denominado Reglamento Técnico: “Prestación de los Servicios de Acueducto, Alcantarillado Sanitario e Hidrantes (AR-PSAYA-2015)” y (reformado por la junta directiva de la ARESEP, según resolución N° RJD-053-2016, publicada en Alcance 55, La Gaceta N° 69 del 12 de abril de 2016) )
 RESOLUCIÓN RJD-101-2014
 San José, a las quince horas del veintidós de setiembre de dos mil catorce
 REGLAMENTO TÉCNICO DENOMINADO: “PRESTACIÓN DE LOS SERVICIOS DE
@@ -736,9 +737,5 @@ CAPÍTULO I
 OBJETIVO, ÁMBITO DE APLICACIÓN Y ALCANCE
 SECCIÓN ÚNICA
 Artículo 1.- Objetivo
-Reglamentar la prestación de los servicios de acueducto, alcantarillado sanitario e hidrantes y las relaciones entre los prestadores regulados por la ARESEP y los abonados de estos servicios, para lo cual específicamente se establecen:
-a. Las condiciones de prestación;
-b. La gestión de servicios;
-c. Las responsabilidades de los prestadores;
-d. Los derechos y deberes de los abonados; y
-e. Los procedimientos generales para los trámites relacionados con la prestación de los servicios.
+Reglamentar las condiciones de prestación de los servicios de acueducto, alcantarillado sanitario e hidrantes y las relaciones entre los prestadores regulados por la ARESEP y los abonados de estos servicios; estableciendo las medidas regulatorias necesarias para que estos servicios públicos se brinden en forma óptima.
+(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)

@@ -1,4 +1,3 @@
 Transitorio VII.
-Los prestadores deberán presentar a la Autoridad Reguladora un “Plan de implementación de este reglamento” en un plazo de cinco meses a partir de su vigencia. El Instituto Costarricense de Acueductos y Alcantarillados deberá presentar el plan de implementación para las ASADAS.
-De conformidad con el artículo 346 de la Ley General de Administración Pública, los recursos de revocatoria y el de apelación deberán interponerse en el plazo de tres días contados a partir del día hábil siguiente al de notificación, y el extraordinario de revisión, dentro de los plazos señalados en el artículo 354 de la citada Ley.
-NOTIFÍQUESE Y PUBLÍQUESE.
+Los prestadores deben remitir a la Autoridad Reguladora el formato del documento “Condiciones de la prestación de los servicios de acueducto, alcantarillado sanitario e hidrantes” en un plazo de seis meses a partir de la publicación de esta reforma. El AYA deberá remitir el documento de las tres categorías de ASADAS en un plazo de ocho meses.
+(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)

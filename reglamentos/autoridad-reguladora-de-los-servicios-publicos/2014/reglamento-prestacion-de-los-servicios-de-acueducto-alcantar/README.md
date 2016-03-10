@@ -14,3 +14,4 @@ Reglamento prestación de los servicios de Acueducto, Alcantarillado Sanitario e
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-30 | la propia norma |
+| 2 | 2016-03-10 | Reglamento 15 (2016-03-10) |

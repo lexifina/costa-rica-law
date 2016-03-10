@@ -1,2 +1,3 @@
 Transitorio V.
-Los prestadores deberán cumplir con la “Verificación de los sistemas de medición o conteo” un plazo de 18 meses a partir de la fecha de vigencia de este reglamento.
+Los prestadores que posean laboratorios para verificar sistemas de medición o conteo deben estar acreditados ante el ECA o la autoridad competente en un plazo de veinticuatro meses a partir de la publicación de esta reforma.
+(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)

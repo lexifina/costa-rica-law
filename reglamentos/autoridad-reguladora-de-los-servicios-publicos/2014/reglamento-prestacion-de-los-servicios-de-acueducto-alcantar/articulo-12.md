@@ -1,2 +1,3 @@
 Artículo 12.- Balance entre los servicios de acueducto y alcantarillado sanitario.
-En las áreas urbanas, es obligación de los prestadores lograr el balance en la cobertura entre los servicios de acueducto y de alcantarillado sanitario, de tal manera que conforme se amplíe el primero, se provea paralelamente el segundo.
+En las áreas urbanas, los prestadores deberán garantizar el balance en la cobertura entre los servicios de acueducto y de alcantarillado sanitario, de tal manera que conforme se amplíe el primero, se provea paralelamente el segundo. Se exceptúa de este balance, aquellos casos en que no exista un colector cercano en operación al cual sea factible conectarse. En estos casos podrá utilizarse otro tipo de sistema de disposición de aguas residuales e incluso dejar prevista la instalación del alcantarillado sanitario para en un futuro cercano realizar la conexión.
+(Así reformado mediante sesión ordinaria N° 15-2016 del 10 de marzo del 2016)
