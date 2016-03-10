@@ -15,3 +15,4 @@ Establece que para mantenerse habilitado en el ejercicio del notariado el Notari
 | --- | --- | --- |
 | 1 | 2015-09-22 | la propia norma |
 | 2 | 2015-09-25 | Acuerdo 26 (2015-09-25) |
+| 3 | 2016-03-10 | Acuerdo 5 (2016-03-10) |
