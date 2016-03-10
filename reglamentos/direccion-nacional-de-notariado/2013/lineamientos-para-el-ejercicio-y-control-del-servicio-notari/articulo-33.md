@@ -1,1 +1,2 @@
-Artículo 33. Firma y sello blanco. El sello debe contener el nombre completo y apellidos sin abreviaturas, número de carné de profesional, la frase “Notario Público” y al igual que la firma, estar registrados ante la Dirección Nacional de Notariado y las demás instituciones públicas que así lo requieran.
+Artículo 33. Firma y sellos. Los sellos, tanto de tinta como blanco, deben contener el nombre completo y apellidos del Notario, sin abreviaturas, el número de carné profesional, y las frases “Notario Público” y “Costa Rica”, exclusivamente. Los sellos y la firma deberán estar registrados ante la Dirección Nacional de Notariado y las demás instituciones públicas que así lo requieran.
+(Así reformado en sesión N° 006 del 10 de marzo de 2016)
