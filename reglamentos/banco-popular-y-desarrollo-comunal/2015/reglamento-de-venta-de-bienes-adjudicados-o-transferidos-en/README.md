@@ -14,3 +14,4 @@ Reglamento de venta de bienes adjudicados o transferidos en pago de obligaciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-22 | la propia norma |
+| 2 | 2016-03-10 | Reglamento 5354 (2016-03-10) |
