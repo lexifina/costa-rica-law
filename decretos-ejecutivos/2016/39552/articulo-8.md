@@ -1,0 +1,7 @@
+Artículo 8°—Proceso de postulación. Para postular por las menciones a, b, c, d, e y f del artículo 3°, los interesados deberán presentar:
+a) El formulario de postulación.
+b) Declaración jurada de cumplimiento de normativa aplicable.
+c) Toda aquella documentación pertinente para acreditar las calidades del postulante para esa designación.
+Las postulaciones deberán ser presentadas en el período comprendido entre el 15 de enero y el 31 de marzo de cada año. Dicha documentación se podrá presentar en físico o en digital. Para efectos de la presentación en físico, los interesados deberán presentarlas ante las instancias indicadas en el artículo 9° (según sea la mención a su cargo), o en las Oficinas Regionales del Sistema Nacional de Áreas de Conservación (SINAC), quienes deberán remitir la información recibida a cada una las instancias indicadas en el artículo 9° a más tardar el 10 de abril de cada año para el proceso de revisión correspondiente.
+Para efectos de la presentación de la documentación en digital, esta se podrá realizar siempre que se utilice firma digital y deberá ser remitida al correo electrónico premioguayacan@minae.go.cr.
+No se tramitarán postulaciones con documentación incompleta. En caso de postulaciones con documentación incompleta, el MINAE solicitará al interesado por una única vez la presentación de la información faltante. De no completarse la solicitud en un plazo de 10 días hábiles, el MINAE procederá al archivo de ésta.

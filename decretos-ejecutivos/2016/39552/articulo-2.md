@@ -1,0 +1,1 @@
+Artículo 2°—Alcance. Podrá ser acreedora del Premio Guayacán en sus distintas menciones cualquier persona física o jurídica, pública o privada, nacional o extranjera, cuya labor haya contribuido en forma efectiva a la protección, conservación y mejoramiento del ambiente.

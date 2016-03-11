@@ -1,0 +1,1 @@
+Artículo 16.—Derogatorias. Deróguese el Decreto Ejecutivo Nº 25083-MINAE que “Regula procedimientos para otorgamiento y entrega de premios Guayacán” del 15 de marzo de 1996, publicado en La Gaceta Nº 80 del 24 de abril de 1996.

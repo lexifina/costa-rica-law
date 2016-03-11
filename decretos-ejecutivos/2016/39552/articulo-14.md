@@ -1,0 +1,1 @@
+Artículo 14.—Sobre el distintivo. El Premio Guayacán consistirá en una medalla de oro con un guayacán grabado, como símbolo de la lucha persistente por el mejoramiento del medio ambiente. La Oficialía Mayor del MINAE será la responsable de incluir en el presupuesto anual los costos correspondientes para la emisión y entrega del Premio Guayacán en sus distintas menciones.

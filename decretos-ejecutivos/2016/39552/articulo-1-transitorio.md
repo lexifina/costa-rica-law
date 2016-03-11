@@ -1,0 +1,1 @@
+Transitorio I.—La Comisión Coordinadora del Premio Guayacán dispondrá de un plazo de 6 meses contados a partir de la publicación del presente decreto en el Diario Oficial La Gaceta para elaborar los instrumentos indicados en el artículo 6° que son aplicables para las menciones a, b, c, d, e y f del artículo 3°.

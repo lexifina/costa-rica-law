@@ -1,0 +1,1 @@
+Artículo 11.—Comunicación de resultados. El Despacho del Ministro de Ambiente y Energía comunicará oficialmente a los postulantes del Premio Guayacán los resultados del proceso de evaluación, dicha comunicación la realizará antes del 31 de mayo. Los nombres y calidades de los aspirantes no elegidos se mantendrán confidenciales.
