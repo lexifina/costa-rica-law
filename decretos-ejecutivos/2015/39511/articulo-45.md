@@ -1,0 +1,1 @@
+Artículo 45.—Divergencias: Las discrepancias o diferencias de criterio que surjan en la aplicación de este Reglamento, con la Unidad de Transportes, serán resueltas por la Oficialía Mayor y Dirección General Administrativa; o en su defecto, por la instancia que se designe el Ministro.

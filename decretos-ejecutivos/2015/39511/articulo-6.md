@@ -1,0 +1,1 @@
+Artículo 6º—Uso de emblema y placas oficiales en vehículos: Excepto los vehículos de uso discrecional y semidiscrecional, todos los vehículos deberán portar permanentemente placas de matrícula oficial, el distintivo que los identifique con el emblema del Ministerio en ambas puertas laterales y la leyenda “USO OFICIAL”.

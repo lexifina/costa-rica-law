@@ -1,0 +1,1 @@
+Artículo 20.—Responsabilidad e informe de alteración de ruta: Cualquier alteración de la ruta programada que se presente en el transcurso de un viaje o gira, será responsabilidad absoluta del funcionario que utilice el servicio. El chofer o conductor deberá informar al Jefe de la Unidad de Transportes tal situación al finalizar la gira.

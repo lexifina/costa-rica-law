@@ -1,0 +1,16 @@
+Artículo 23.—Deberes de los choferes y conductores: Además de los consignados en la Ley de Tránsito, en el Reglamento Autónomo de Servicio y en otras disposiciones de este Reglamento, todo chofer y conductor del Ministerio tiene los siguientes deberes y obligaciones:
+a) Conocer y cumplir estrictamente la Ley de Tránsito, así como las disposiciones que establece este reglamento.
+b) Portar la licencia de conducir actualizada; la cual debe ser acorde con el tipo de vehículo que conduce, de conformidad con los artículos del 86 al 90 de la Ley de Tránsito.
+c) Revisar el vehículo antes de iniciar su conducción, verificar que se encuentra en condiciones mecánicas óptimas, corroborando el aceite, agua, numeración de las llantas, triángulos, extintor, llave de rana, barrillas y los documentos correspondientes del vehículo asignado, para garantizar tanto su propia seguridad como la de las personas, materiales y equipos transportados.
+d) Cumplir con los procedimientos de registro de entrada y salida de vehículos de las instalaciones del Ministerio y portando la autorización de ruedo respectiva.
+e) Reportar oportunamente a su Jefe inmediato y a la Unidad de Transportes cualquier daño que se detecte, ya sea antes del inicio de la conducción del vehículo o una vez iniciada ésta.
+f) Cumplir estrictamente los programas de mantenimiento establecidos para cada unidad.
+g) Conducir el vehículo acatando estrictamente las condiciones establecidas en cuanto a capacidad de carga y cantidad de pasajeros.
+h) Conducir en forma responsable y prudente, de manera que no ponga en peligro su seguridad e integridad física o la de otras personas y la unidad que conduce, así como de otros vehículos y bienes.
+i) Seguir la ruta lógica establecida entre los puntos de salida y de destino de cada servicio, sin apartarse de ella por cuestiones de interés personal o particular.
+j) Acatar rigurosamente lo dispuesto en el artículo 19 de este Reglamento.
+k) Asumir, en caso de accidentes, el pago de las multas por infracciones a la Ley de Tránsito que estén contenidos en sentencia firme que le atribuya al operador del equipo móvil la responsabilidad por dichos actos; las restantes multas deberán ser canceladas por el funcionario responsable oportunamente a efecto de que no sean consideradas en el cobro del derecho de circulación de los vehículos institucionales. En todo caso, el chofer o conductor de que se trate deberá remitir oportunamente a la Unidad de Transportes la copia del recibo debidamente cancelado; en su defecto, dicha Unidad procederá a gestionar las acciones cobratorias y disciplinarias correspondientes.
+l) Cuidar que el vehículo que guía esté limpio y en buenas condiciones; para lo cual realizará las labores que considere necesarias.
+m) Estar a la orden de la persona a cuya responsabilidad se autorizó el servicio, durante el tiempo que éste deba realizarse e informar al Jefe de la Unidad Transportes del Departamento de Servicios Generales, cualquier anomalía o inconsistencia que se presente en la ejecución de su trabajo.
+n) Guardar la más estricta discreción de los asuntos oficiales o privados que se discuten en su presencia; excepto que se trate de un caso en que esté obligado a denunciar.
+o) Cumplir con las normas y procedimientos de control interno que se establezcan para un uso adecuado y protección de los recursos asignados.

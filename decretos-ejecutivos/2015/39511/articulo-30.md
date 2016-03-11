@@ -1,0 +1,1 @@
+Artículo 30.—Uniformidad y seguridad de los vehículos: Para que los vehículos del Ministerio circulen dentro de las normas apropiadas de seguridad y ofrezcan una apariencia uniforme, se debe evitar colocar adornos, tanto en su interior como en su exterior. Así mismo se prohíbe mantener objetos en el panel de instrumentos, que afecten la fácil conducción del vehículo.

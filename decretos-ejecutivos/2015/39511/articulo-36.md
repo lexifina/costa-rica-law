@@ -1,0 +1,2 @@
+Artículo 36.—Declaración del conductor: Además de la declaración ante los Tribunales de Justicia, el chofer o conductor deberá brindar una declaración por escrito ante la Unidad de Transportes o su Jefe inmediato sobre lo sucedido; la cual deberá ser objetiva y clara.
+Además, debe realizar los trámites correspondientes ante el Instituto Nacional de Seguros, brindando toda la información que se le solicite al efecto.

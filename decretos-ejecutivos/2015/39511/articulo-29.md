@@ -1,0 +1,1 @@
+Artículo 29.—Seguridad en el estacionamiento de vehículos: Los vehículos del Ministerio deben dejarse estacionados en lugares donde se resguarde su seguridad, la de sus accesorios, de sus materiales y de los equipos que transporta.

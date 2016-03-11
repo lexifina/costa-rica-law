@@ -1,0 +1,1 @@
+Artículo 31.—Prohibición de estacionamiento: Se prohíbe el estacionamiento de los vehículos del Ministerio de Trabajo frente a cantinas o tabernas. Se exceptúan los casos en que se realicen labores propias de la Inspección de Trabajo, en cuyo caso deberá presentar una autorización del Director Nacional de Inspección del Trabajo.

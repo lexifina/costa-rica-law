@@ -1,0 +1,1 @@
+Artículo 47.—Responsabilidad por cumplimiento de normativa reglamentaria: Es responsabilidad exclusiva de cada chofer o conductor y del Jefe de la Unidad de Transportes, en lo que corresponda a cada uno, observar el debido cumplimiento de lo establecido en este Reglamento.

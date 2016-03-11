@@ -1,0 +1,4 @@
+CAPÍTULO II
+De la custodia, control, administración y mantenimiento de los vehículos
+Artículo 7º—Custodia, control y mantenimiento de vehículos: La custodia, control, mantenimiento y buen uso de los vehículos de uso administrativo general están a cargo de la Unidad de Transportes; la cual está obligada a prestar el servicio de transporte a los funcionarios que lo requieran en el desempeño de sus funciones, de acuerdo con la disponibilidad de las unidades y las normas que dicte la Oficialía Mayor y Dirección General Administrativa.
+La custodia, control, mantenimiento y buen uso de los vehículos de uso administrativo general que se asignen a las Direcciones Regionales o a la Auditoría Interna serán responsabilidad de la máxima autoridad del órgano respectivo, sin perjuicio de la información que sea requerida por la Unidad de Transportes cuyo suministro se torna obligatorio.

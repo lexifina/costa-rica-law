@@ -1,0 +1,1 @@
+Artículo 27.—Prohibición de ceder el manejo del vehículo: Está absolutamente prohibido a todos los choferes y conductores ceder la conducción del vehículo a otras personas, salvo por razones muy calificadas, en cuyo caso, una vez finalizada la gira, deberán informar los motivos que obligaron a hacerlo.

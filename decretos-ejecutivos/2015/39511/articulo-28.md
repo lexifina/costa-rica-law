@@ -1,0 +1,1 @@
+Artículo 28.—Prohibición de intercambiar accesorios: Los choferes y conductores de vehículos del Ministerio no podrán hacer intercambios de accesorios entre las unidades, si no cuentan con la aprobación de la Unidad de Transportes; la cual, en todo caso, hará la consignación respectiva en las fórmulas que se establezcan al efecto.
