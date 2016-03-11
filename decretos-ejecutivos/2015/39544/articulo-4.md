@@ -1,0 +1,2 @@
+Artículo 4°—Disposición de vehículos altamente deteriorados.
+En virtud de lo dispuesto en el artículo 192 del Reglamento a la Ley General de Aduanas y dado que en el país no existe un lugar autorizado para la destrucción de vehículos, todos aquellos vehículos caídos en abandono y que se encuentren altamente deteriorados, serán donados como chatarra por medio del Instituto Mixto de Ayuda Social (IMAS). Para tal efecto dicho Instituto deberá remitir un reporte a la Aduana de Jurisdicción sobre el destino final que se le dará a los vehículos.
