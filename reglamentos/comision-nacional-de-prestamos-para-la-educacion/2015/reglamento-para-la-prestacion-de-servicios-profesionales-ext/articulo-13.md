@@ -2,7 +2,7 @@ Artículo 13.— Evaluación de los servicios de peritaje-valuación en fase de 
 COMPONENTES DE EVALUACIÓN DEL DESEMPEÑO
 Cada uno de los componentes genéricos de desempeño representa un 50% de la nota total. La suma obtenida de las notas en ambos componentes determinará el resultado de la tabla de puntuación final.
 COMPONENTE DEL DESEMPEÑO | DIMENSIÓN DEL DESEMPEÑO | CONCEPTUALIZACIÓN
-Servicio al usuario(a) y al ciudadano(a) | Orientación al Usuario | Implica satisfacer las necesidades a las y los usuarios (internos y externos) y resolver los problemas del usuario. Este componente será calificado mediante la realización de encuestas al cliente interno y externo, con calificación del 0 a 100%.
+Servicio al usuario(a) y al ciudadano(a) | Orientación al Usuario | Cumplimiento de los plazos establecidos en el Reglamento para cada una de las actividades. Este componente será calificado con base en los registros del administrador del contrato: 0 sanciones 100% 1-2 sanciones 85% Más de 2 sanciones 0% (Así reformado el párrafo anterior en sesión 10-3-2016 del 14 de marzo del 2016)
 (Así reformada la tabla anterior en sesión N° 10 del 14 de marzo de 2016)
 Obtenida la sumatoria de ambas puntuaciones se procederá a aplicar los siguientes criterios:
 Puntuación | Criterio
