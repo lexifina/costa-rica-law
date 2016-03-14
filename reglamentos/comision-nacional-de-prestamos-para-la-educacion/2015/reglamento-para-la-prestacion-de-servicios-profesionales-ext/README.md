@@ -14,3 +14,4 @@ Reglamento para la prestación de servicios profesionales externos para la elabo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-29 | la propia norma |
+| 2 | 2016-03-14 | Reglamento 10 (2016-03-14) |

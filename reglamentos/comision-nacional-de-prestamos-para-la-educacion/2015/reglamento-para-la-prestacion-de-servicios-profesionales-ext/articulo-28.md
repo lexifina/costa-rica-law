@@ -1,1 +1,1 @@
-Artículo 28.—Vigencia. El presente reglamento entrará en vigencia a partir de la fecha de su publicación en el Diario Oficial La Gaceta.
+Artículo 28.— (El texto de este artículo puede ser consultado en el numeral 27. Lo anterior porque en sesión N° 10 del 14 de marzo de 2016, se ordenó eliminar el artículo 9 y correr la numeración de los restantes artículos.)
