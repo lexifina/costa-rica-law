@@ -1,2 +1,3 @@
-Artículo 14.—Préstamo de vehículos. Se autoriza el préstamo de vehículos entre las Unidades Regionales y estas con la Sede Central, siempre que no se vean afectadas las metas de la dependencia que presta el vehículo.
-En caso de actividades de interés institucional declaradas así por la Presidencia Ejecutiva o la Gerencia General, el préstamo es obligatorio y prioritario a cualquier otra actividad institucional.
+CAPÍTULO III
+De la administración de vehículos
+Artículo 14.—Uso, control y mantenimiento de vehículos. El uso, control y mantenimiento de los vehículos administrativos de la Institución es responsabilidad tanto en la Sede Central como en las Unidades Regionales, de la Persona Coordinadora de Transportes.

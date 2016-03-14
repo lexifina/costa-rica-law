@@ -1,1 +1,1 @@
-Artículo 30.—Divulgación del Reglamento. La Unidad de Recursos Materiales velará por la debida divulgación de este Reglamento, mediante el uso de las tecnologías de la información, comunicación, entre otros.
+Artículo 30.—Sanciones. Las infracciones al presente Reglamento serán sancionadas disciplinariamente de acuerdo con lo establecido en los artículos 47, 48 y 49 del Reglamento Autónomo de Servicios.

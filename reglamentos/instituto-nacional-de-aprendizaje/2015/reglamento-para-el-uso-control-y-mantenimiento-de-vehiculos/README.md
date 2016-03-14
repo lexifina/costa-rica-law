@@ -14,3 +14,4 @@ Reglamento para el uso control y mantenimiento de vehículos del Instituto Nacio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-25 | la propia norma |
+| 2 | 2016-03-14 | Reglamento 4735 (2016-03-14) |

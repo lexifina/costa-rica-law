@@ -1,1 +1,2 @@
-Artículo 13.—Convenios. Para el préstamo de los vehículos de la institución y sus respectivos choferes, deberá procederse a formalizar la situación mediante un convenio, de conformidad con el procedimiento de convenios vigente, en el Sistema de Gestión de Calidad, salvo en el caso de que exista un decreto que se pueda aplicar al caso en particular.
+Artículo 13.—Préstamo de vehículos. Se autoriza el préstamo de vehículos entre las Unidades Regionales y estas con la Sede Central, siempre que no se vean afectadas las metas de la dependencia que presta el vehículo.
+En caso de actividades de interés institucional declaradas así por la Presidencia Ejecutiva o la Gerencia General, el préstamo es obligatorio y prioritario a cualquier otra actividad institucional.

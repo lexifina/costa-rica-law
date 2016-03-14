@@ -1,3 +1,1 @@
-CAPÍTULO VII
-Disposiciones finales
-Artículo 29.—Definición de controles internos. La Jefatura de la Unidad de Recursos Materiales deberá crear los procedimientos internos en el Sistema de Gestión de la Calidad que sean necesarios tendientes a lograr un adecuado uso de los vehículos del INA.
+Artículo 29.—Divulgación del Reglamento. La Unidad de Recursos Materiales velará por la debida divulgación de este Reglamento, mediante el uso de las tecnologías de la información, comunicación, entre otros.

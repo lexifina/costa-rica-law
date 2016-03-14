@@ -1,4 +1,1 @@
-CAPÍTULO IV
-De las personas choferes y conductores
-Artículo 17.—Personas autorizadas para conducir vehículos. Únicamente están autorizadas para conducir vehículos de uso administrativo del INA las personas funcionarias que ocupen el puesto de chofer, y aquellas autorizadas por la Jefatura de la Unidad de Recursos Materiales en conjunto con la Gestión de Normalización y Servicios de Apoyo, o bien por la Jefatura de la Unidad de Recursos Materiales y la persona que ejerce la jefatura de la Subgerencia Administrativa.
-En el caso del vehículo de uso discrecional solo podrá ser conducido por la persona que lo tiene asignado o por la Persona Chofer o Conductor/a debidamente acreditada y autorizada por la persona que tiene asignado el vehículo.
+Artículo 17.—Jornada de las personas choferes. Con el fin de dar cumplimiento a lo dispuesto en el artículo 140 del Código de Trabajo, la jornada ordinaria más la extraordinaria de las personas choferes no puede ser superior a las doce horas, por lo que esta situación debe ser prevista a la hora de asignar las giras y quienes les acompañen estarán obligados a respetar esta disposición al regresar.
