@@ -1,0 +1,1 @@
+Artículo 14.—Etapas posteriores del proceso. La Comisión Interinstitucional acordará, de forma conjunta con los pueblos indígenas, las etapas y cronogramas que se consideren necesarios para la construcción del Mecanismo de Consulta a Pueblos Indígenas.

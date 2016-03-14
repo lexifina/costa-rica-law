@@ -1,0 +1,1 @@
+Artículo 15.—Recursos para la realización del proceso. El Gobierno de la República garantizará la disponibilidad de recursos humanos, económicos e institucionales para la realización del proceso de Construcción del Mecanismo de Consulta a Pueblos Indígenas; en caso de ser necesario, solicitará asistencia a las instituciones públicas del sector descentralizado

@@ -1,0 +1,1 @@
+Artículo 3º—Construcción del Mecanismo de Consulta a Pueblos Indígenas. Es el proceso mediante el cual se construirá, de forma conjunta y exclusiva entre el Gobierno de la República y los pueblos de los veinticuatro territorios indígenas, el Mecanismo de Consulta a Pueblos Indígenas.

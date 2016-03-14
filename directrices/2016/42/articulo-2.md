@@ -1,0 +1,1 @@
+Artículo 2º—Finalidad de la consulta. La finalidad del proceso de consulta a pueblos indígenas es llegar a un acuerdo o lograr el consentimiento libre, previo e informado acerca de las medidas propuestas.

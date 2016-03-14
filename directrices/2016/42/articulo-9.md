@@ -1,0 +1,1 @@
+Artículo 9º—Observadores del proceso. La Comisión acordará, de forma conjunta con los pueblos indígenas, la invitación de observadores al proceso. Los mismos se podrán incorporar en todas las etapas y podrán emitir recomendaciones cuando lo estimen oportuno.

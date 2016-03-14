@@ -1,0 +1,3 @@
+CAPÍTULO III
+Encuentros territoriales
+Artículo 12.—Convocatoria a encuentros territoriales. La Comisión Interinstitucional hará una convocatoria a un primer encuentro territorial en cada uno de los veinticuatro territorios indígenas, a saber: Abrojo de Montezuma, Altos de San Antonio, Alto Laguna, Bajo Chirripó, Boruca, Bribrí de Talamanca, Cabagra, Cabecar de Talamanca, Cabecar de Chirripó, China Kichá, Conte Burica, Coto Brus, Guatuso, Kekoldi, Matambú, Nairi-Awari, Quitirrisí, Rey Curré, Salitre, Tayní, Telire, Térraba, Ujarrás y Zapatón. En los casos donde sea necesario más de un encuentro territorial, en razón de la demografía o geografía, la Comisión considerará dicha posibilidad.
