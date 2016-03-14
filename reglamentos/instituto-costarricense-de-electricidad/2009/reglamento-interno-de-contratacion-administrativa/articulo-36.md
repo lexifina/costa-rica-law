@@ -1,1 +1,0 @@
-Artículo 36.—Cuando se presente una diferencia mayor a un 30% entre el monto estimado y el monto recomendado de adjudicación, deberá justificarse por escrito la diferencia en la respectiva recomendación de adjudicación, aportando la información suficiente. Igual aplica para los demás procedimientos de compra.

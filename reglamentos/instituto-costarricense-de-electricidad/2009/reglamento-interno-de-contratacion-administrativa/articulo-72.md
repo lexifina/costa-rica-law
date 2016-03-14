@@ -1,1 +1,0 @@
-Artículo 72.— La Proveeduría en coordinación con la dependencia que promueve la contratación velará también por que se encuentre adjunta la valoración de mercado por parte de un puesto de bolsa de los bonos y certificados dados en garantía, según lo establecido en el Reglamento a la Ley de Contratación Administrativa.

@@ -1,2 +1,0 @@
-Artículo 105.—La Proveeduría, otorgará una audiencia al contratista por un plazo de diez días hábiles. En caso de que el contratista solicite una liquidación, la Proveeduría solicitará al AC que rinda un informe de la misma la cual deberá ser evaluada por la División Operaciones Financieras quien deberá pronunciarse al respecto emitiendo una recomendación final sobre el monto a liquidar y remitirla a la Proveeduría.
-(Así reformado mediante sesión N° 6102 del 4 de agosto del 2014)

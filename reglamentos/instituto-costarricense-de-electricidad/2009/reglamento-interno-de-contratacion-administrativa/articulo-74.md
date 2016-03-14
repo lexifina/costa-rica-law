@@ -1,1 +1,0 @@
-Artículo 74.—Será responsabilidad del AC en coordinación con el CCA, mantener a derecho las garantías, por ejemplo, en lo referente a la vigencia, monto, así como ordenar la devolución o ejecución en los casos que procedan.

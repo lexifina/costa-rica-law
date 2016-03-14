@@ -1,1 +1,0 @@
-Artículo 115.—Una vez recibidos los descargos del contratista, los mismos serán remitidos al AC para que en coordinación con el CCA en lo que le corresponda, se pronuncien con respecto a dichas pruebas, en un plazo de 5 días hábiles.

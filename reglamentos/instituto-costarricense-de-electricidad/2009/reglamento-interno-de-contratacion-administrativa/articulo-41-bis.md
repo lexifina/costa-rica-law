@@ -1,4 +1,0 @@
-SECCIÓN III
-Remate
-Artículo 41 bis.—El remate es el procedimiento ordinario al que puede recurrir alternativamente la Administración para vender o arrendar bienes muebles o inmuebles, cuando así resulte más conveniente a sus intereses. Deberá respetarse para esos efectos lo establecido sobre este procedimiento en el Reglamento a la Ley 8660.
-Artículo 41 Bis Bis.—Los funcionarios que presidirán los remates, así como el Secretario y el pregonero que lo asiste, serán designados por la Gerencia respectiva, o Gerencia General, según corresponda. El funcionario que presida tendrá la competencia para adjudicar el remate correspondiente y demás actuaciones según la normativa aplicable. La Gerencia General definirá, mediante circular, el límite correspondiente para la adjudicación del remate. En los casos de remate electrónico, los funcionarios que participen en el remate serán los encargados de monitorear el trámite durante el tiempo en que esté abierto el concurso.

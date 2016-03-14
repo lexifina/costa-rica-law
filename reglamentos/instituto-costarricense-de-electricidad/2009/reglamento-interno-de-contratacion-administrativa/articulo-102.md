@@ -1,1 +1,0 @@
-Artículo 102.—Vencido ese plazo, la Proveeduría en coordinación con el AC cuenta con cinco días hábiles para determinar si requiere prueba adicional, o bien valorar la prueba aportada por el contratista.
