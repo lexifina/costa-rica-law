@@ -1,3 +1,0 @@
-SECCIÓN II
-Requisitos previos
-Artículo 5º—Capacidad para Contratar. Las Empresas tienen plena capacidad para realizar todo tipo de contratos de orden lícito, típico o atípico, con el propósito de comprar, enajenar o arrendar bienes y servicios, constituir fideicomisos y en general, cualquier otro tipo contractual que resulte necesario para el debido cumplimiento de sus fines. La modalidad de contrato se establecerá en el requerimiento de la adquisición.

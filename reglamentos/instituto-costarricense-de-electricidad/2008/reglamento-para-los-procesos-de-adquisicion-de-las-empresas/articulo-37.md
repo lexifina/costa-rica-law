@@ -1,1 +1,0 @@
-Artículo 37.—Presentación de la solicitud. La solicitud de revisión deberá presentarse ante la Proveeduría, dentro del plazo de tres días hábiles después de comunicada la adjudicación. Para tal fin se podrán utilizarse medios electrónicos.

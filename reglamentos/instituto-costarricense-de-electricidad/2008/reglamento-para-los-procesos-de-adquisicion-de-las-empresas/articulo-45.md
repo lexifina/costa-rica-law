@@ -1,1 +1,0 @@
-Artículo 45.—Derogatorias. El presente Reglamento deja sin efecto el Reglamento General para la Contratación de Bienes y Servicios de la Compañía Nacional de Fuerza y Luz S.A. y Radiográfica de Costarricense S.A. o norma en contrario.

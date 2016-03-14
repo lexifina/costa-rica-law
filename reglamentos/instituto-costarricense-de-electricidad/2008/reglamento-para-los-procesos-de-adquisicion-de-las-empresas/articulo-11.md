@@ -1,1 +1,0 @@
-Artículo 11.—Acceso a la Información. El expediente de la adquisición podrá ser consultado únicamente por los concursantes después de la notificación de la adjudicación, salvo los documentos calificados como confidenciales, cuando así se determine.

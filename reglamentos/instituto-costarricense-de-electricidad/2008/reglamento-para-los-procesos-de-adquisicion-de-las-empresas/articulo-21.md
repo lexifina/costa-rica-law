@@ -1,1 +1,0 @@
-Artículo 21.—Medio, moneda y forma de pago. En el requerimiento de adquisición se establecerá el medio, la moneda y el plazo de pago. Además, podrán convenirse pagos por anticipado cuando ello obedezca a una costumbre o uso derivado de la práctica comercial, para lo cual se deberá solicitar una garantía colateral.

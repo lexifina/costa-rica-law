@@ -1,1 +1,0 @@
-Artículo 26.—Estudios preliminares: Las Empresas podrán recurrir al mercado respectivo antes de elaborar los requerimientos de adquisición definitivos para realizar los estudios pertinentes. La invitación se realizará mediante publicación en la prensa escrita, sitio Web u otros medios.

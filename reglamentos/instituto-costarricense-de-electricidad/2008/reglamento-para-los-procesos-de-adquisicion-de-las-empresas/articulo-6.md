@@ -1,1 +1,0 @@
-Artículo 6º—Actualización Económica. Los montos establecidos en el presente reglamento serán actualizados cada año, según el índice de precios al productor industrial establecido por el Banco Central para el año anterior y serán ajustados por la Proveeduría de cada Empresa, en el primer mes de cada año.

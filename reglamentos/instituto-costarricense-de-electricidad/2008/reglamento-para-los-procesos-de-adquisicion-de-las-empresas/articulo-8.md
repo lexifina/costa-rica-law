@@ -1,1 +1,0 @@
-Artículo 8º—Registro de Proveedores. Durante el primer trimestre de cada año, las Proveedurías de las Empresas invitarán a todos los interesados a formar parte del Registro de Proveedores, mediante la publicación en un diario de circulación nacional y/o en su sitio web.

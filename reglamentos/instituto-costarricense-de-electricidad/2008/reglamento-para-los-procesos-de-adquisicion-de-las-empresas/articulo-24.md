@@ -1,5 +1,0 @@
-SECCIÓN V
-Multas y cláusula penal
-Artículo 24.—Concepto. En los requerimientos de adquisición se podrán establecer el pago de multas por defectos en la ejecución del contrato y cláusulas penales por ejecución tardía o prematura de las obligaciones contractuales. En ambos casos, el cobro no podrá exceder del 25% del valor total del contrato.
-En caso de que el objeto esté compuesto por líneas distintas, el monto máximo para su cobro se considerará sobre el mayor valor de cada una y no sobre la totalidad del contrato, siempre que el incumplimiento de una línea no afecte el resto de las obligaciones.
-El cobro podrá hacerse con cargo a las retenciones del precio que se hubieran practicado y los saldos pendientes de pago. En caso de que ninguna de esas dos alternativas resulte viable, se podrá ejecutar la garantía de cumplimiento hasta por el monto respectivo, sin ser necesario demostrar la existencia del daño o perjuicio.

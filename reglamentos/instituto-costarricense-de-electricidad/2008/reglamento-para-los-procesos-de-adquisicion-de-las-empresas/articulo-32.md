@@ -1,1 +1,0 @@
-Artículo 32.—Declaratoria de desierto. Por razones de interés empresarial, debidamente razonado, la Unidad que tiene la competencia para adjudicar podrá declarar desierto el procedimiento de adquisición, quedando facultadas las Empresas a realizar un procedimiento de adquisición directa.

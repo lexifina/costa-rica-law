@@ -1,1 +1,0 @@
-Artículo 28.—Compras verdes. Cuando por su naturaleza corresponda, en el sistema de evaluación de ofertas se podrá establecer hasta un 20% de puntuación a los oferentes que, en igualdad de condiciones, demuestren que los productos ofrecidos incorporan criterios de gestión de residuos, cuya responsabilidad debe ser asumida por el proveedor.
