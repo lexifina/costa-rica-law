@@ -1,2 +1,0 @@
-Transitorios
-Transitorio I.—Todos los procedimientos internos deberán ser adaptados a las disposiciones del presente Reglamento y la Directriz con las regulaciones técnicas sobre la administración de los documentos producidos por medios automáticos, emitida en enero de 2008, por la Junta Administrativa del Archivo Nacional, en el plazo de seis meses, a partir de la publicación de este Reglamento en el diario oficial La Gaceta.
