@@ -1,4 +1,2 @@
-ARTICULO 47.- Las penas de los incisos c) y d), sólo se impondrán a
-los reincidentes y las señaladas en los incisos a) y b) quedan al
-prudente criterio del Tribunal, según la gravedad de la falta cometida y
-las circunstancias.
+Artículo 47.- Las infracciones de los incisos c) y d) solo se impondrán a los reincidentes; las señaladas en los incisos a) y b) quedan sujetas al criterio prudente del Tribunal, según la gravedad de la falta cometida y las circunstancias. La multa se depositará a la orden del Colegio de Geólogos.
+(Así reformado por el artículo único de la ley N° 9330 del 19 de noviembre de 2015)
