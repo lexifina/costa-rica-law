@@ -1,0 +1,1 @@
+Artículo 3°- Ámbito de aplicación. El sistema de CEE se establece como el mecanismo electrónico de mensajería interna y externa, con el fin de brindar una comunicación ágil, eficiente, oportuna entre el personal de las diferentes dependencias de la empresa y personas externas para el flujo de información relacionada con las labores propias asignadas por RECOPE a cada funcionario.
