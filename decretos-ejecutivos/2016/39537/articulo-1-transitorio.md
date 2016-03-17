@@ -1,0 +1,1 @@
+Transitorio único.—Los Contadores Públicos Autorizados que tengan libros legalizados en uso, los pueden utilizar hasta dentro del plazo de un año a partir de la publicación de la presente reforma reglamentaria. Posteriormente, solo se puede llevar el Libro de Servicios Profesionales de manera digital.
