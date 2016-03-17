@@ -12,7 +12,8 @@ h) Publicidad y Propaganda, excepto la publicidad para promocionar a Costa Rica 
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37101 del 29 de marzo del 2012)
 i) Suplencias.
 j) Becas a funcionarios.
-k) Becas a terceras personas.
+k) Becas a terceras personas, excepto las becas concedidas por el Fondo Nacional de Becas (FONABE) que de conformidad con la legislación vigente, se adjudican a estudiantes de bajos recursos económicos para que cursen estudios en cualquiera de los ciclos educativos, dentro o fuera del país, con base en el mérito personal, las condiciones socio-económicas y el rendimiento académico de los beneficiarios.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39685-H del 22 de junio del 2016)
 l) Alimentos y bebidas, salvo para aquellas entidades y órganos que tengan a cargo el cuidado de segmentos desprotegidos de la población y que por esa condición deban suministrarles alimentos y bebidas.
 m) Combustibles y lubricantes, excepto para atender situaciones de emergencia por parte de la Comisión Nacional de Emergencias y aquellas que tengan que ver con la atención directa de las personas menores de edad a través del Patronato Nacional de la Infancia.
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 37101 del 29 de marzo del 2012)
