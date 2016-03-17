@@ -1,1 +1,0 @@
-Artículo 2º—La Dirección verificará mediante inspección de los medicamentos en los diferentes establecimientos, los requisitos solicitados para la aprobación de su registro sanitario, tales como etiquetado, inserto u otras condiciones.
