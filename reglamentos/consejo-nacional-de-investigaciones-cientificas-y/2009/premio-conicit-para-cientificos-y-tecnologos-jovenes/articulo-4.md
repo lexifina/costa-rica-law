@@ -1,1 +1,0 @@
-Artículo 4º—Los candidatos (as) a este premio podrán ser postulados por el Consejo Director, o personas físicas y/o jurídicas según los términos de la convocatoria que para tal efecto se divulgará. Los candidatos deberán ser menores de treinta años cumplidos al 31 de diciembre del año de la edición correspondiente. El premio se otorgará sólo una vez a una misma persona.
