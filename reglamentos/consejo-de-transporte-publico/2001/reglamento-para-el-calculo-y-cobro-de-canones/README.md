@@ -14,3 +14,4 @@ Reglamento para el Cálculo y Cobro de Cánones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-01-01 | la propia norma |
+| 2 | 2016-03-17 | Reglamento 0 (2016-03-17) |
