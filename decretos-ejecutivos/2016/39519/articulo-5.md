@@ -1,0 +1,1 @@
+Artículo 5º—El modelo de gobernanza responderá a los objetivos de conservación del área silvestre protegida y debe ser adoptado con miras a su efectiva protección, garantizando una amplia y equitativa participación de los diferentes actores y sectores sociales; junto a una distribución justa y equitativa de los beneficios que genere.
