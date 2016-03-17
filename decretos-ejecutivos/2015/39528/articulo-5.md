@@ -1,0 +1,1 @@
+Artículo 5º—Corresponderá a la Dirección de Planeamiento y Desarrollo Turístico, mediante el Departamento de Desarrollo Turístico, elaborar, ejecutar y evaluar los programas y proyectos de turismo social para las poblaciones beneficiarias.

@@ -1,0 +1,1 @@
+Artículo 2º—Para efectos de este reglamento, se concibe el Turismo Social, como un derecho universal, mediante el cual se garantiza el acceso al descanso, recreación, ocio, tiempo libre, por parte de segmentos de población en vulnerabilidad social y económica, en condiciones adecuadas de economía, accesibilidad, seguridad, comodidad y calidad.

@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá a las Direcciones de Planeamiento y Desarrollo Turístico y Mercadeo, en coordinación con la Gerencia General, el asignar recursos para desarrollar y promocionar programas, proyectos, alianzas y acciones tendientes a generar alternativas de recreación y turismo para las poblaciones beneficiarias.
