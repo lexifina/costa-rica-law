@@ -1,1 +1,0 @@
-Artículo 17.—A partir del momento en que los restos de una persona han salido del Cementerio Municipal, la Junta Administrativa salva su responsabilidad, la cual será asumida por el solicitante y el propietario de la bóveda que firmarán el acta correspondiente.

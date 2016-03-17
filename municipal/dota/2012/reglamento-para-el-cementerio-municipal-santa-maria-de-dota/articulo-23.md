@@ -1,1 +1,0 @@
-Artículo 23.—Ninguna persona física podrá tener más de dos derechos individuales en este Cementerio. (Derecho=2.9m). Estos derechos no podrán ser de más de dos parcelas juntas, definidas estas como espacios de 1 m por 2.9m.

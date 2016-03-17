@@ -1,1 +1,0 @@
-Artículo 27.—Todo propietario de derechos se compromete en el acto mismo al pago de la cuota correspondiente, la cual será fijada por el Concejo Municipal, el no pago de la misma significará el retiro del derecho.

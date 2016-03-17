@@ -1,1 +1,0 @@
-Artículo 26.—Los derechos solo se adjudicarán en orden de ubicación geográfica, según lo disponga la Administración y de acuerdo con el plan regulador del cementerio. Se hará efectiva su ubicación solo en el momento en que el interesado diere inicio a la construcción.
