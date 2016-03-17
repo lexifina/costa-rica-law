@@ -1,0 +1,1 @@
+Artículo 14.—No se permitirán las inhumaciones directamente en la tierra, en cajas de metal y otro material que impida la fácil descomposición de los restos. Excepcionalmente, a criterio del órgano administrador, se permitirá la inhumación en tierra, para lo dial se apartará un espacio exclusivo para ese fin.

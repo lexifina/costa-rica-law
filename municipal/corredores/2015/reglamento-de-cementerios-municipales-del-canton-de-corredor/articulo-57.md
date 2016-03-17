@@ -1,0 +1,1 @@
+Artículo 57.—Vencido el lazo de rada de tres meses sin operarse la prórroga, se procederá a la exhumación de los restos que contenga la sepultura y su traslado al osario general. Durante el término de gracia, no se autorizará ninguna inhumación sin previo pago de la tasa pendiente.

@@ -1,0 +1,1 @@
+Artículo 46.—La excavación de la fosa es responsabilidad del titular del derecho funerario, quien deberá remover la tierra, y de dejar libre de suciedad sus alrededores. La administración del cementerio únicamente velará por la ubicación de los puntos que delimitarán el área de excavación, sin incurrir en gastos.

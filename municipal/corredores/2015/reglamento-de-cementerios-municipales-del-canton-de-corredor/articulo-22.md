@@ -1,0 +1,1 @@
+Artículo 22.—Para todos los efectos de exhumación, se considerarán como interesados con derecho ante el órgano administrador, los parientes indicados en el artículo 1 del Decreto N° 704. En caso de conflicto con el propietario de la bóveda que contuviere los restos, sus derechos deberán definirse por mandamiento judicial.

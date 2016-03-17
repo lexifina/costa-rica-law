@@ -1,0 +1,1 @@
+Artículo 41.—La Municipalidad o Junta Administradora dispondrá de un sector para entierro de niños, hasta doce años de edad, en el caso en que sus' familias o parientes no dispongan de bóveda. El tamaño de los nichos serán proporcionales al del(a) fallecido(a), y se regirán por las mismas normas que para adultos.

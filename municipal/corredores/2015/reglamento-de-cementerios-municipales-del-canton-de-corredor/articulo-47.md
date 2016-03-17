@@ -1,0 +1,1 @@
+Artículo 47.—El propietario de un derecho funerario que decida realizar una inhumación en tierra, deberá una vez hecha, colocar una cruz, placa o pequeño monumento que identifique a la persona sepultada en ese lugar, y fecha de inhumación.

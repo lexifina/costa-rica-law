@@ -1,0 +1,1 @@
+Artículo 69.—La bóveda será declarada en ruina y/o abandono por el órgano administrador, cuando hayan transcurrido tres años sin renovar la pintura y sin hacer reparaciones necesarias, o las condiciones de esta, sean evidentemente deplorables.

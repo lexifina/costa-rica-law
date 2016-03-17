@@ -1,0 +1,1 @@
+Artículo 48.—La adquisición de un derecho funerario implica la obligatoriedad de construir la bóveda, en un plazo no mayor de cinco años de haber adquirido el derecho, en caso contrario, podrá el órgano administrador proceder a revocar el derecho funerario, si necesita el espacio.

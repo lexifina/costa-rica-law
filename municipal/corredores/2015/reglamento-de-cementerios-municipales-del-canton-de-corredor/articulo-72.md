@@ -1,0 +1,1 @@
+Artículo 72.—En el libro de registro de exhumaciones, se consignará la anotación diaria de las exhumaciones que se practiquen, la autorización con que Se practica y el destino que se les dio a los restos en caso de traslado.

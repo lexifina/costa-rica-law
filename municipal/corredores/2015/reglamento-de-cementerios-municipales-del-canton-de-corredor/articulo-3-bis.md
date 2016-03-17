@@ -1,0 +1,1 @@
+Artículo 3º bis.—La elección de los miembros de la junta Administrativa deberá realizarse en la segunda quincena del mes de abril cada dos años, debiendo iniciar en el año 2016, los miembros electos entraran en posesión de sus cargos el día treinta de mayo del mismo año de elección.

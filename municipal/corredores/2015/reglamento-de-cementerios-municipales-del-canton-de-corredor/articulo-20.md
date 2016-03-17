@@ -1,0 +1,1 @@
+Artículo 20.—En el caso de derechos cuyos propietarios los hayan abandonado, el órgano administrador podrá efectuar exhumaciones ordinarias de oficio, siguiendo) el procedimiento del artículo 18 de este Reglamento.

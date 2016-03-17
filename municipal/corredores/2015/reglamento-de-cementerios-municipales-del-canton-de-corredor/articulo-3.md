@@ -1,0 +1,2 @@
+Artículo 3º—La Junta Administradora estará integrada por cinco miembros debidamente aprobados y juramentados por el Concejo municipal y un miembro nombrado por el Ministerio de Salud. Estos durarán en el cargo dos años, pudiendo ser reelectos.
+Para operar, la Junta deberá suscribir con la Municipalidad, un convenio de administración del cementerio. El funcionamiento de la Junta Administradora se regirá en lo conducente por el Libro Primero, Título Segundo, Capítulo Tercero de la Ley General de la Administración Pública y sus reformas, N° 6227.

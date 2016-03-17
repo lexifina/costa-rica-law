@@ -1,0 +1,1 @@
+Artículo 64.—Las Juntas Administrativas de Cementerios estará conformada por miembros de reconocida capacidad moral y ética, preferiblemente con conocimientos básicos en administración o experiencia en actividad comunal.

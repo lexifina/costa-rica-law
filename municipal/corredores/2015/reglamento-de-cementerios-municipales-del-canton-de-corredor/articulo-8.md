@@ -1,0 +1,1 @@
+Artículo 8º—La administración del cementerio deberá contar con un botiquín de primeros auxilios en un lugar apropiado dentro de las instalaciones. Asimismo deberá contar con un plan de manejo de artrópodos y roedores.

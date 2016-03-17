@@ -1,0 +1,1 @@
+Artículo 7º—Se permite en los cementerios la práctica de servicios religiosos o ceremonias laicas, discursos y/u oraciones fúnebres, así como el acompañamiento musical de las exequias, siempre que no contravenga la normativa existente, la moral vio las buenas costumbres.

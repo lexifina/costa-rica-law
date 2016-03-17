@@ -1,0 +1,1 @@
+Artículo 54.—La Municipalidad, o bien en su caso, la Junta Administradora nombrada, deberá contar con un registro de concesionarios de derecho funerario cuál acreditará mediante un título que entregará al arrendatario.

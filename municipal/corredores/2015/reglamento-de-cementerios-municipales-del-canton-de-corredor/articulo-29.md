@@ -1,0 +1,1 @@
+Artículo 29.—En el mes de enero de cada año, la municipalidad deberá comunicar los costos de arrendamientos y de más servicios que brinde el cementerio. Además se podrán recibir donaciones y partidas específicas.

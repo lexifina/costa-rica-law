@@ -1,0 +1,1 @@
+Artículo 74.—Si al realizar la exhumación prevista anteriormente, se determina que el cuerpo no está lo suficientemente descompuesto para su extracción, el órgano" administrador está obligado a dar hasta r- dos años más de tiempo para que el cuerpo siga el proceso de descomposición.

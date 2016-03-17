@@ -1,0 +1,1 @@
+Artículo 19.—Las exhumaciones ordinarias por interés de particulares solo se podrán efectuar en los meses de verano de diciembre a abril de cada año, dentro de la jornada ordinaria de los empleados del cementerio, quedando sujetas al pago de los derechos oportunamente establecidos. En casos especiales serán autorizados por él órgano administrador.

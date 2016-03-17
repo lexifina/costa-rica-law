@@ -1,0 +1,1 @@
+Artículo 34.—Los nichos deberán ser construidos en bloques de cemento o ladrillo, de concreto reforzado o de elementos de concreto prefabricados que resistan las fuerzas adyacentes, debiendo permitir la infiltración de los productos acuosos de la descorrí posición de los cadáveres.

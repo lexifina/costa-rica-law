@@ -1,0 +1,1 @@
+Artículo 38.—Para garantizar los posibles daños que le pudieran ocasionar a las bóvedas vecinas, el propietario de la que se construya deberá hacer un depósito de garantía de un 5% del costo total de la obra en efectivo. Una vez concluida la bóveda y recibida mediante un acta en conformidad, por el administrador del cementerio, se autorizará el retiro de dicha garantía.

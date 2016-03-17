@@ -1,0 +1,1 @@
+Artículo 23.—Los restos óseos o cadavéricos que se encuentren al hacer las exhumaciones ordinarias, serán recogidos cuidadosamente y depositados en el osario general, siempre que los deudos interesados no los reclamen para depositarlos en osarios Privados, que posean dentro del mismo cementerio.

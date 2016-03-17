@@ -1,0 +1,1 @@
+Artículo 80.—La Municipalidad y el administrador del cementerio, serán responsables de velar por que se respeten y acaten las disposiciones de este Reglamento. En consecuencia, los propietarios de derechos se obligan a cumplirlas íntegramente, y así lo harán constar en el contrato respectivo.

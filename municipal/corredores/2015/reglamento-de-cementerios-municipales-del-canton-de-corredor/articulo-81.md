@@ -1,0 +1,1 @@
+Artículo 81.—Este Reglamento se informa de los acuerdos que dicte el Concejo en esta materia. Los asuntos no previstos en el mismo, serán regulados de manera supletorios por la legislación vigente y aplicable en la materia.

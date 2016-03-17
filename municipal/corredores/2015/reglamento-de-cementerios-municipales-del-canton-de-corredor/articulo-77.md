@@ -1,0 +1,1 @@
+Artículo 77.—La Municipalidad podrá ejecutar todo tipo de obras constructivas que se requiera en Las instalaciones, así como de reparación y mantenimiento, que incluirán las de los derechos ya vendidos. El traspaso de derechos se hará con tales limitaciones.
