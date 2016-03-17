@@ -1,1 +1,0 @@
-Artículo 16.—Responsabilidad. Cada funcionario que apruebe una compra en el ejercicio de su competencia, es plenamente responsable por dicho acto y sus consecuencias. 1.a aprobación lleva implícita la revisión del cumplimiento efectivo del procedimiento en cuanto a forma y fondo.

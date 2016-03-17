@@ -1,2 +1,0 @@
-Artículo 8º—De la comisión evaluadora de ofertas. En los casos en que por la naturaleza del bien o servicio a contratar, así lo requiera el Director General o el Proveedor Institucional, estos ordenarán la conformación de una Comisión Evaluadora de Ofertas; la cual será responsable de analizar y recomendar lo pertinente con relación al estudio de las ofertas recibidas en el procedimiento de contratación respectivo.
-(Así reformado mediante sesión ordinaria N° 26-2013 del 18 de julio del 2013)

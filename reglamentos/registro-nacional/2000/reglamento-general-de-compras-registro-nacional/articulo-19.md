@@ -1,1 +1,0 @@
-Artículo 19.—Suspensión temporal de atribuciones y competencias. Mientras se realiza una investigación o auditoria, queda a criterio de la Junta, suspenderle temporalmente al funcionario investigado o auditado, su potestad de autorizar nuevas compras, pudiendo en ese caso designar un sustituto.

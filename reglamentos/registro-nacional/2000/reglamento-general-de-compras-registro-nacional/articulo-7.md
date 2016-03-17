@@ -1,2 +1,0 @@
-Artículo 7°—Contratación en proyectos catastrales. Di
-conformidad con el artículo 39 del Reglamento a la ley del Catastro Nacional, Decreto Ejecutivo No 13607-.I del 24 de abril de 1982, el cartel en se saque a licitación o concurso la contratación de un proyecto catastro deberá ser aprobado previamente por la Comisión Asesora de Catastro Deberá dicha Comisión emitir una resolución en la que se consignen los requisitos mínimos que deben cumplirse en dichos contratos.
