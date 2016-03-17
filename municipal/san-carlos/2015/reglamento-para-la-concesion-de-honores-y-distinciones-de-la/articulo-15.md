@@ -1,0 +1,1 @@
+Artículo 15.—El diseño y confección de las medallas, fotografías y certificados estará bajo responsabilidad del Departamento de Relaciones Públicas, para lo cual deberá comunicársele formalmente al encargado con al menos un mes de anticipación.

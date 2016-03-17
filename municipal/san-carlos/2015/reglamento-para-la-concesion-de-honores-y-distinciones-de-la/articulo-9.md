@@ -1,0 +1,1 @@
+Artículo 9°—Tanto el nombramiento de Hijo(a) Predilecto(a) como el de Hijo(a) Adoptivo(a) podrán concederse a título póstumo, a quienes reúnan las condiciones y merecimientos mencionados, en el entendido de que hijo predilecto se otorgará a personas nacidas en el cantón e hijo adoptivo a personas nacidas fuera de San Carlos, pero que cumplan con los requisitos.

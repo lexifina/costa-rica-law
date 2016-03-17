@@ -1,0 +1,1 @@
+Artículo 12.—El nombramiento se entregará en un solemne acto oficial, en la forma que el Concejo Municipal disponga, acompañado del correspondiente diploma y se coordinará la impresión de la fotografía correspondiente para su inclusión en el mural de hijos predilectos del cantón de San Carlos, que se ubicará en el Salón de Sesiones del Palacio Municipal.

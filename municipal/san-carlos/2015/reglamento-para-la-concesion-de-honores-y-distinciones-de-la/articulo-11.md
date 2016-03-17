@@ -1,0 +1,1 @@
+Artículo 11.—Toda aquella persona que en el cumplimiento de su deber como servidor público de Fuerza Pública, Bomberos, Cruz Roja, Organismo de Investigación Judicial, Servidor Municipal, ofrende su vida en el servicio al pueblo sancarleño, el Concejo Municipal podrá otorgarle el título de Hijo Predilecto, en un homenaje póstumo.
