@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las ayudas por situaciones de desgracia o infortunio.
+Artículo 4º—La Municipalidad de Pérez Zeledón otorgará ayudas temporales a los vecinos del cantón que enfrenten situaciones debidamente comprobadas de desgracia o infortunio provocadas especialmente por caso fortuito o fuerza mayor, para lo cual deberá disponer anualmente, del contenido presupuestario destinado para cubrir este rubro de conformidad con la disponibilidad económica de la institución y las necesidades que hayan sido detectadas por el Gobierno Local o hayan sido puestas en conocimiento de la municipalidad por parte de terceros.

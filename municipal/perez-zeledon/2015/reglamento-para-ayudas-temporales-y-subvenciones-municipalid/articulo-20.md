@@ -1,0 +1,1 @@
+Artículo 20.—Fuera del plazo establecido en el artículo anterior, la Administración Municipal podrá, en casos calificados, recomendar subvenciones para que sean consideradas por el Concejo Municipal, en “Presupuestos Extraordinarios” o en “Modificaciones Presupuestarias”, según las posibilidades financieras de la Municipalidad.

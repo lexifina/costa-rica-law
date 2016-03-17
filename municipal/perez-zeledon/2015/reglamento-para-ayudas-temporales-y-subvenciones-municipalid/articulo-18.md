@@ -1,0 +1,1 @@
+Artículo 18.—Los centros educativos a través de sus Juntas de Educación o Administrativas, las organizaciones de beneficencia o bienestar social del cantón, ambiental y las Fundaciones, que requieran de una subvención de la Municipalidad, deberán solicitarlo por escrito y reunir los siguientes requisitos contemplados en el artículo tres de este reglamento.

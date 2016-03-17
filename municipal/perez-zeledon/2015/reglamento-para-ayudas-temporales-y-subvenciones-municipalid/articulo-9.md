@@ -1,0 +1,4 @@
+Artículo 9º—Podrá otorgarse esta clase de ayudas a aquellas personas que cumplan con los siguientes requisitos:
+a. Presentar en la Alcaldía Municipal, solicitud por escrito debidamente justificada, dentro del plazo de ocho días hábiles contados a partir del acaecimiento de la desgracia o infortunio, aportando los documentos probatorios e indicando un lugar o medio idóneo para atender notificaciones y poder recibir la resolución final de la solicitud.
+b. Ser mayor de edad, con domicilio en el cantón de Pérez Zeledón, cuando se trate de menores de edad que sufran del infortunio, se requerirá la intervención de un adulto para poder darle trámite a la solicitud.
+c. No encontrarse gozando de algún subsidio de otra institución o grupo de beneficencia o bienestar social, para atender el mismo hecho.

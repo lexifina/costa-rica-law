@@ -1,0 +1,1 @@
+Artículo 13.—Cuando se trate de obras de construcción, se girarán los recursos hasta que se cuente con el Permiso de Construcción. De ser necesario, la Municipalidad eximirá al solicitante del pago económico por concepto del permiso de construcción, no obstante esta exención no incluye los trámites y la formalización del respectivo permiso para construir.

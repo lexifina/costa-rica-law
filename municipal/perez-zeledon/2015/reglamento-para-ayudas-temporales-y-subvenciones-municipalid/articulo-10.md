@@ -1,0 +1,1 @@
+Artículo 10.—La Administración dispondrá de un plazo de diez días hábiles, prorrogables por un plazo igual en casos muy calificados, a juicio de la administración por medio del ente social que se encuentre conociendo del caso específico, para la emisión de la recomendación final.

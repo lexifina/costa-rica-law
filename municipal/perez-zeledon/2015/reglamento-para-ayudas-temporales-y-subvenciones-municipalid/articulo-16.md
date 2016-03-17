@@ -1,0 +1,1 @@
+Artículo 16.—Para otorgar esta clase de subvenciones, la Municipalidad de Pérez Zeledón podrá incluir cada año, en las partidas presupuestarias correspondientes, el suficiente contenido para hacer frente a las necesidades, debidamente demostradas, de las entidades y organizaciones descritas en el artículo siguiente.

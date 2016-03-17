@@ -1,0 +1,1 @@
+Artículo 12.—Las ayudas que concederá la Municipalidad de Pérez Zeledón podrán ser en dinero según lo indicado en el artículo 3 de este cuerpo normativo, en materiales o en víveres, según la recomendación que, de acuerdo con lo establecido en el Artículo 5 anterior, realizará el ente encargado del estudio social.
