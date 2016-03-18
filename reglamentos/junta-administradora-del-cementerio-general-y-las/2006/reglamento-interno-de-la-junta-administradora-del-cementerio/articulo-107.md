@@ -1,1 +1,0 @@
-Artículo 107.—Es permitido en los cementerios la práctica de ceremonia religiosa, pronunciar discursos y oraciones fúnebres alusivas al fallecido y el acompañamiento musical de las exequias, siempre que no contravenga la ley, la moral o las buenas costumbres.

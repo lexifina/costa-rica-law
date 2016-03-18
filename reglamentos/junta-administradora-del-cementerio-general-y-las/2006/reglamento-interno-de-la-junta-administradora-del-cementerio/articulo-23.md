@@ -1,1 +1,0 @@
-Artículo 23.—La Junta, dispondrá de un plazo de 30 días hábiles a partir de la presentación de cualquier tipo de solicitud para resolver sobre ella. Asimismo podrá hacer comparecer al interesado para aclarar aspectos relacionados con la misma.

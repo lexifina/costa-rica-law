@@ -1,1 +1,0 @@
-Artículo 27.—El arrendamiento de derecho se otorgará por un lapso no mayor de cincuenta años ni menor a cinco; y el valor por el arriendo de derecho o de nicho para inhumación lo fijará discrecionalmente la Junta Administradora del Cementerio General y Las Rosas de Alajuela.

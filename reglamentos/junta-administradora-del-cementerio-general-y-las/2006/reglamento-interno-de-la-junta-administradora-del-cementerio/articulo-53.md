@@ -1,1 +1,0 @@
-Artículo 53.—El material a utilizar en los enchapes de las bóvedas, lo serán mármol, granito, azulejo o cerámica; cualquier otro tipo de material debe ser autorizado por la administración del cementerio, reservándose el derecho de admitir o denegar el uso. Los colores autorizados lo son el blanco, gris, negro o jaspeado entre esos tres colores únicamente.

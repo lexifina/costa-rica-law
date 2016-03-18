@@ -1,1 +1,0 @@
-Artículo 41.—La Junta Administradora del Cementerio General y Las Rosas de Alajuela, tendrá una lista de no menos tres constructores debidamente autorizados por ésta, mediante documento de pacto entre las partes, para que los arrendatarios cuenten con opciones para contratar.

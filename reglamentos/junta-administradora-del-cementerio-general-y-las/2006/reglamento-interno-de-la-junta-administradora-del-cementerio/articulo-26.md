@@ -1,1 +1,0 @@
-Artículo 26.—Cuando una persona haya adquirido un derecho de arrendamiento a pagos y se atrasa en los mismos, la Junta Administradora del Cementerio General y Las Rosas de Alajuela, queda facultada para rescindir unilateralmente el contrato.

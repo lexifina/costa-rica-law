@@ -1,1 +1,0 @@
-Artículo 103.—Para el pintado de la bóveda o mausoleos el arrendatario deberá presentarse en la oficina de la Junta para solicitar el permiso y éste deberá firmar el documento que especifique el trabajo a realizar ya sea por él mismo, un constructor autorizado por la Junta o autorizar a un particular.

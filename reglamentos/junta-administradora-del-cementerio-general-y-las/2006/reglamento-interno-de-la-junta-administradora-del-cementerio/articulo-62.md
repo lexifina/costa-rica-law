@@ -1,1 +1,0 @@
-Artículo 62.—Los traspasos legalmente permitidos, se harán en la oficina central de la Junta Administradora del Cementerio General y Las Rosas de Alajuela, mediante la presentación de escritura pública o ejecutoria de sentencia judicial, éstas deberán ser refrendadas por el asesor legal que tenga designado en ese momento la Junta y aprobados por la Junta Directiva de la Junta.

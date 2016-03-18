@@ -1,2 +1,0 @@
-Artículo 105.—Queda totalmente prohibida la colocación de adornos, macetas, jardineras, imágenes, pintar o enchapar los núcleos de nichos de alquiler. Únicamente será permitido la colocación de placas de tamaño regular, con nombre del difunto, fecha de nacimiento y muerte únicamente y éstas serán colocadas únicamente por el personal de la Junta.
-Si se encontrase cualquier elemento de lo anteriormente expuesto, la Junta queda facultada para eliminar o demoler, sin perjuicio alguno.

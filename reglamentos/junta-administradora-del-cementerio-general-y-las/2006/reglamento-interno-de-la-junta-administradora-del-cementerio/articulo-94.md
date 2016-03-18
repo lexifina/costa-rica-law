@@ -1,1 +1,0 @@
-Artículo 94.—Desde el momento en que los restos de un cuerpo han salido de los cementerios a cargo de esta Junta, ésta no tiene ninguna responsabilidad civil o penal, siendo responsabilidad exclusiva del solicitante, las autoridades de salud o judiciales que soliciten el traslado.

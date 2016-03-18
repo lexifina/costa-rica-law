@@ -1,1 +1,0 @@
-Artículo 64.—Si el arrendador del derecho falleciera sin haber realizado traspaso alguno, y no hubiese dejado testamento donde estipule ello, se admitirá únicamente la resolución judicial o notarial si no hay menores de por medio, producto de un proceso sucesorio en donde se defina quienes son los herederos del causante.

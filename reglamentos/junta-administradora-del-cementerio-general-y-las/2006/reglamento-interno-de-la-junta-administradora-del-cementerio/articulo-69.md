@@ -1,1 +1,0 @@
-Artículo 69.—Cuando falleciere un coarrendatario, mientras sus sucesores no presenten a la oficina central de la Junta, documentos que acrediten su condición, la adjudicación quedará suspendida, mientras tanto, los demás coarrendatarios ejercerán su derecho en igualdad de condiciones.

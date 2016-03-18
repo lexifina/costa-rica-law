@@ -1,1 +1,0 @@
-Artículo 47.—La Junta Administradora del Cementerio General y Las Rosas de Alajuela no se hace responsable por el incumplimiento de contratos celebrados entre los constructores y arrendatarios de derechos ya que eso es una relación entre las partes contratantes.

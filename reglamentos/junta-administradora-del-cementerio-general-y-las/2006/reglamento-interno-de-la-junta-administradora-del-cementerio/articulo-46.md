@@ -1,1 +1,0 @@
-Artículo 46.—Cualquier construcción o reparación llevada a cabo sin autorización de la Junta, con inobservancia de las anteriores disposiciones, facultará a la Junta a rescindir el contrato de arrendamiento y disponer del derecho y en el acto realizar cualquier arreglo o reparación para corregir la irregularidad.
