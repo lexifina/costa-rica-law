@@ -14,3 +14,4 @@ Establece normas de acatamiento obligatorio para las Instituciones que conforman
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-08 | la propia norma |
+| 2 | 2016-03-18 | Resolución 1 (2016-03-18) |
