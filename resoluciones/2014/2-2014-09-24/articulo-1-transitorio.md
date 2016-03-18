@@ -1,1 +1,2 @@
-Transitorio. Las presentes normas rigen para los documentos producidos a partir de su publicación. En el caso de que existan documentos que fueron declarados con valor científico cultural, con criterios diferentes a los establecidos en la presente resolución, y existan dudas sobre cómo proceder, se debe elevar la consulta por escrito a la Comisión Nacional de Selección y Eliminación de Documentos, que resolverá las consultas en estricto orden de llegada. Comuníquese
+Transitorio. Las presentes normas serán aplicables para todas las series documentales incluidas en esta resolución, producidas antes y después de su publicación.
+(Así reformado mediante el transitorio 2 de la resolución 01-2016 del 18 de marzo de 2016)
