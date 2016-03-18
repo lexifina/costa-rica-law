@@ -15,3 +15,4 @@ Emite normas sobre valoración documental cuyo cumplimiento resulta obligatorio 
 | --- | --- | --- |
 | 1 | 2009-05-27 | la propia norma |
 | 2 | 2014-09-24 | Resolución 2 (2014-09-24) |
+| 3 | 2016-03-18 | Resolución 1 (2016-03-18) |
