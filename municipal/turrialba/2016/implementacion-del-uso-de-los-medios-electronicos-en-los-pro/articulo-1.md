@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE TURRIALBA
+La Municipalidad de Turrialba informa que de conformidad con lo dispuesto en la Ley de Contratación Administrativa N° 7494 y su Reglamento, así como la Ley N° 8220 de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, se ha implementado el uso de los medios electrónicos en los procesos de Contratación Administrativa, con el fin de brindar mayor comodidad a los potenciales proveedores, y agilizar dichos procesos.
+Para lo cual se ha habilitado el correo electrónico proveeduria@muniturrialba.go.cr, para que sirva como medio electrónico de comunicación donde se puedan recibir y enviar todo tipo de documentación relacionada con dichos procesos. Lo anterior rige a partir de su publicación.
