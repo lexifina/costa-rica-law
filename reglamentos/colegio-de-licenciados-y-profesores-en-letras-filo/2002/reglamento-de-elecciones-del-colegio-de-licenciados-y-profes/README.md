@@ -17,3 +17,4 @@ Reglamento de Elecciones del Colegio de Licenciados y Profesores en Letras, Filo
 | 2 | 2003-02-08 | Reglamento 97 (2003-02-08) |
 | 3 | 2003-12-06 | Reglamento 98 (2003-12-06) |
 | 4 | 2004-02-14 | Reglamento 0 (2004-02-24) |
+| 5 | 2016-03-19 | Reglamento 108 (2016-03-19) |
