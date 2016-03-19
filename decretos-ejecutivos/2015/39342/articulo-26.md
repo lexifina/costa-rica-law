@@ -1,0 +1,1 @@
+Artículo 26.—Reporte inmediato. En caso de presentarse un evento o incidente adverso serio con los equipos o materiales biomédicos para uso en humanos, debe realizarse el reporte en el término de 24 horas de acontecido el evento o incidente o a partir del momento que se tiene conocimiento.

@@ -1,0 +1,14 @@
+Artículo 19.—Obligaciones de los fabricantes, importadores y distribuidores de equipos y materiales biomédicos de uso en humanos dentro del Sistema Nacional de Tecnovigilancia.
+a) Diseñar e implementar una Unidad Institucional o Empresarial de Tecnovigilancia, que asegure un permanente seguimiento de los eventos e incidentes adversos que puedan generar los equipos y materiales biomédicos durante su uso, de forma que les permita identificar, registrar, evaluar y gestionar los reportes de eventos e incidentes adversos asociados al uso de los equipos y materiales biomédicos que comercializan en el país.
+b) Designar un profesional de la salud, capacitado y con competencia técnica en tecnovigilancia, como responsable de la Unidad Institucional o Empresarial de Tecnovigilancia ante el CNTV.
+b.1) El profesional designado deberá ser capacitado, incorporado, autorizado y formado en el tema.
+b.2) Deberá contar dentro de la institución o la empresa, con la autoridad que el ejercicio de la función requiera, para garantizar que se apliquen las buenas prácticas de tecnovigilancia.
+c) Comunicar la ocurrencia de eventos e incidentes adversos en las Direcciones de las Áreas Rectoras de Salud en el nivel local, la Dirección Regional de Rectoría de la Salud en el nivel regional o ante el CNTV en el nivel central, todos del Ministerio de Salud.
+d) Tomar las acciones preventivas y correctivas que sean requeridas y las que le sean exigidas por el CNTV para la atención de fallas de funcionamiento o defectos de calidad detectados a través de la tecnovigilancia que puedan llevar a las personas al deterioro de su salud o la muerte.
+e) Comunicar al CNTV las alertas internacionales que estén asociadas a los equipos y materiales biomédicos que comercializa o comercializó en el país y que puedan encontrarse en uso, así como las acciones ejecutadas como respuesta a las mismas.
+f) Cooperar y responder a cualquier petición del CNTV, sobre la seguridad de los equipos y materiales biomédicos que comercializan.
+g) Elaborar y enviar los informes periódicos de seguridad de equipo y material biomédico al Centro Nacional de Tecnovigilancia, de la siguiente manera:
+i. Cada 6 meses, durante los 2 primeros años de comercialización del EMB en el país.
+ii. Cada año, a partir del segundo año y hasta el quinto año de comercialización del EMB en el país.
+iii. Cada 5 años, a partir del quinto año de comercialización del EMB en el país.
+h) Implementar un sistema de trazabilidad que permita dar seguimiento al EMB con especial énfasis en los implantables a lo largo de su cadena de comercialización, suministro y uso. Este sistema debe estar disponible para consulta por parte del CNTV cuando así se requiera. Para el caso de los EMB implantables, deben contar con un sistema que garantice el llenado y registro del formulario de trazabilidad, de manera que se pueda identificar el EMB, implantado en la persona a lo largo de su vida.

@@ -1,0 +1,1 @@
+Artículo 12.—Periodo de duración. Los miembros de la Comisión durarán en sus cargos dos años, pudiendo ser reelectos por periodos iguales, los representantes del Ministerio de Salud cesarán en sus cargos cuando dejen de ser funcionarios de la institución o cuando la autoridad superior así lo decida.

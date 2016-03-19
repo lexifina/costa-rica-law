@@ -1,0 +1,17 @@
+Nº 39342 - S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las atribuciones que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; 25, inciso 1); 27, inciso 1); 28, inciso 2), acápite b) de la Ley N° 6227 del 2 de mayo de 1978, “Ley General de la Administración Pública”; 1°, 2°, 4°, 7°, 49, 142, 143, 144 y 145 de la Ley N° 5395 del 30 de octubre de 1973 “Ley General de Salud”; 1°, 2° y 6° de la Ley Nº 5412 del 8 de noviembre de 1973 “Ley Orgánica del Ministerio de Salud”; Ley N° 8220 del 4 de marzo de 2002 “Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos” y el Decreto Ejecutivo N° 34482-S del 3 de marzo del 2008 “Reglamento para el Registro, Clasificación, Importación y Control de Equipo y Material Biomédico”.
+Considerando:
+1°—Que en la actualidad la salud se interpreta como el resultado de un proceso en que el Estado realiza esfuerzos y aproximaciones hacia un nivel de bienestar general deseado.
+2°—Que los equipos y materiales biomédicos son de mucha importancia para la detección y el tratamiento de las enfermedades y que su buen funcionamiento es vital para obtener de ellos el resultado esperado a efecto de favorecer la salud de las personas.
+3°—Que en la Producción Social de la Salud, cada cual debe asumir su responsabilidad; en este caso, el fabricante, distribuidor o vendedor es el responsable de garantizar al usuario la seguridad y eficacia del equipo y material biomédico, para que brinde, durante su vida útil, los resultados para el propósito para el que fue diseñado y el Estado es garante de verificar que estos productos y sus responsables cumplan con la normativa vigente.
+4°—Que los esfuerzos para garantizar la seguridad de los equipos y materiales biomédicos serían inútiles si no se partiera de un esfuerzo sistemático y del establecimiento de requisitos basados en los más modernos y eficaces controles.
+5°—Que es preciso adoptar las medidas destinadas a garantizar y vigilar la calidad y la seguridad sanitaria de los equipos y materiales biomédicos sin afectar la libre circulación de mercancías ni el abastecimiento de los productos a nivel nacional.
+6°—Que existe una amplia gama de equipos y materiales biomédicos que son herramientas requeridas para la prevención, atención, tratamiento y rehabilitación de las personas y que de uno u otro modo pueden representar un riesgo de incidentes o de eventos adversos en su utilización.
+7°—Que compete al Ministerio de Salud, por sus facultades delegadas por el Estado, la obligación de, proponer y aplicar medidas de salud pública y mantener informados a los usuarios, a los profesionales de la salud, a las autoridades sanitarias y a la población en general sobre el desempeño y riesgos de dichos equipos a través de un Centro Nacional de Tecnovigilancia. Por tanto,
+DECRETAN:
+Reglamento del Sistema Nacional de Tecnovigilancia
+CAPÍTULO I
+Disposiciones generales
+Artículo 1º—Objetivo. Establecer los lineamientos del Sistema Nacional de Tecnovigilancia de todo equipo y material biomédico que se utilice en el país, para garantizar la seguridad, eficacia, calidad y verificar su debido uso, manejo o aplicación con el fin de darles el seguimiento continuo, en aras de realizar intervenciones, la toma decisiones, mejoras y prevención de los riesgos que de ello se generen.

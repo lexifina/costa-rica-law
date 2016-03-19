@@ -1,0 +1,3 @@
+Artículo 13.—Quórum y votaciones. En tanto esté integrado el quórum estructural, el quórum para sesionar válidamente será la mayoría absoluta de sus integrantes y los acuerdos serán adoptados por mayoría absoluta de los miembros presentes. En caso de empate el Presidente tendrá voto de calidad.
+Si no hubiere quórum, la Comisión podrá sesionar válidamente en segunda convocatoria una hora después de la señalada para la primera, en casos de urgencia, podrá sesionar después de media hora y para ello será suficiente la asistencia de tres de sus miembros.
+Entiéndase como quórum estructural, el órgano colegiado válidamente conformado o integrado, es decir, aquel en que todos los miembros que le componen se encuentren debidamente nombrados.

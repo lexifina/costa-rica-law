@@ -1,0 +1,12 @@
+Artículo 20.—Obligaciones de las personas físicas o jurídicas de Establecimientos de salud y afines y de los profesionales independientes.
+a) Conocer y verificar las especificaciones de desempeño, calidad y seguridad de los equipos y materiales biomédicos previos a su uso.
+b) Estar atentos y vigilantes del desempeño, calidad, higiene y seguridad de los equipos y materiales biomédicos durante su uso. Llevando una bitácora del desempeño y mantenimiento preventivo y correctivo de los EMB, por parte del personal capacitado.
+c) Informar, divulgar y aplicar las prácticas adecuadas de utilización de los equipos y materiales biomédicos.
+d) Diseñar e implementar un Programa Institucional de Tecnovigilancia, que asegure un permanente seguimiento de los eventos e incidentes adversos que puedan causar los equipos y materiales biomédicos durante su uso y que les permita identificar, registrar, evaluar y gestionar los reportes de eventos e incidentes adversos con los equipos y materiales biomédicos que usen en las personas y que les puedan causar deterioro de su salud o hasta la muerte.
+e) Designar un profesional responsable del Programa Institucional de Tecnovigilancia ante el CNTV. Para el caso de los profesionales independientes el responsable será el mismo profesional.
+f) Tomar las acciones preventivas y correctivas que sean requeridas y las que le sean exigidas por el CNTV.
+g) Notificar la ocurrencia de eventos e incidentes adversos, en las Direcciones de las Áreas Rectoras de Salud en el nivel local, en las Direcciones Regionales de Rectoría de la Salud en el nivel regional o ante el CNTV en el nivel central, todos del Ministerio de Salud.
+En el caso de los profesionales que pertenezcan a una institución u organización prestadora de servicios de salud, deberán enviar sus reportes al Responsable del Programa Institucional de Tecnovigilancia del Área Rectora de Salud competente, quien a su vez lo comunicará al CNTV.
+h) Comunicar al fabricante, importador y distribuidor del equipo y material biomédico correspondiente, la ocurrencia del evento o incidente adverso.
+i) Desarrollar actividades de promoción y formación con los profesionales de la salud de la institución, en relación a la identificación y reporte de los incidentes y eventos adversos con los equipos y materiales biomédicos.
+j) Cooperar y responder a cualquier petición del CNTV, sobre la seguridad de los equipos y materiales biomédicos que utilizan.

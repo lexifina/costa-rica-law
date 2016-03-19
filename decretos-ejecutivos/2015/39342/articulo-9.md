@@ -1,0 +1,1 @@
+Artículo 9°—Sobre la información. La información tendrá carácter confidencial y su uso se limitará exclusivamente al análisis y gestión del riesgo del equipo y material biomédico de uso en humanos. Esta información debe ser enviada al Centro Nacional de Tecnovigilancia quien podrá solicitar ampliación de la misma.
