@@ -1,0 +1,2 @@
+Artículo 56.—Inclusión de oportunidades de mejora en el sistema de información y control
+La Auditoría Interna, realizada la comunicación oficial de resultados, incluirá las oportunidades de mejora recomendadas en el sistema de información y control dispuesto por la Administración; de igual forma, la Administración deberá incluir oportunamente las acciones a implementar en cumplimiento de lo recomendado por la Auditoría Interna, los responsables, los plazos requeridos para completar la solución, así como los correspondientes informes de avance.

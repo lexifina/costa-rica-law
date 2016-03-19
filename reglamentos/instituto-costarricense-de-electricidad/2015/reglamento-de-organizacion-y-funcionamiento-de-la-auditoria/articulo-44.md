@@ -1,0 +1,2 @@
+Artículo 44.—Plazo para la comunicación final del informe
+Los funcionarios designados por el auditor general como responsables de cada área o proceso de fiscalización de la Auditoría Interna, deberán comunicar oficialmente los resultados de los servicios de la Auditoría Interna mediante los correspondientes informes, en plazos razonables, a efecto de que no se pierda la vigencia y oportunidad en los hallazgos, las conclusiones y recomendaciones de la Auditoría Interna, plazos que serán definidos mediante directrices internas de carácter obligatorio.

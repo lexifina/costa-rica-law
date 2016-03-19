@@ -1,0 +1,4 @@
+Artículo 3°—Valores éticos
+El auditor general establecerá un Código de Ética que promueva una cultura ética en la profesión y práctica de auditoría interna, sustentada en sus cuatro principios fundamentales: Integridad, objetividad, confidencialidad y competencia y que oriente sobre la independencia e imparcialidad en la actividad de auditoría interna, el que deberá estar debidamente alineado al código de ética de los distintos colegios profesionales a los que pertenecen sus funcionarios.
+Los funcionarios de la Auditoría Interna deberán conducirse en sus distintas relaciones, internas y externas, cumpliendo en todo momento con el Código de Ética de la Auditoría Interna, así como el de la Institución.
+También deben atender en todos sus extremos la Declaración de Principios Éticos del ICE y sus empresas subsidiarias, aprobada por el Consejo Directivo.

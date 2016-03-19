@@ -1,0 +1,2 @@
+Transitorio 2º—Los servicios de la Auditoría Interna iniciados con anterioridad a la entrada en vigencia del presente Reglamento, se regirán por el Reglamento de Organización y Funcionamiento de la Auditoría Interna del ICE que se deroga en el artículo 63 de la presente reglamentación.
+2. Solicitar a la Auditoría Interna las gestiones pertinentes para que las modificaciones a este reglamento sean aprobadas por la Contraloría General de la República y publicadas en el Diario Oficial La Gaceta. Acuerdo firme.”

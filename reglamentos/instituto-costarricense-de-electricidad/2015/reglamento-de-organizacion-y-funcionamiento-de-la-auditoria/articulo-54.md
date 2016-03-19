@@ -1,0 +1,2 @@
+Artículo 54.—Establecimiento del plazo para implementar las recomendaciones
+La Auditoría, de conformidad con lo establecido en el artículo 57, calificará las recomendaciones como de relevancia extrema o de relevancia normal. Para las de relevancia extrema, la Auditoría establecerá en el oficio de remisión del informe, el plazo de implementación; para las de relevancia normal, el plazo de implementación será definido por el destinatario, atendiendo el plazo máximo de doce meses establecido en el artículo 58.
