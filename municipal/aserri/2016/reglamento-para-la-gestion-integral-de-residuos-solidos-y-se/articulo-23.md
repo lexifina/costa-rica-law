@@ -1,0 +1,1 @@
+Artículo 23.—Nueva clase de contribuyente. Cualquier clase nueva de contribuyente, ente de carácter estatal u otro tipo de organización privada, que apareciera luego de publicado este reglamento, se clasificará de acuerdo a las características del mismo y al criterio de la Dirección Tributaria y Área de Servicios.

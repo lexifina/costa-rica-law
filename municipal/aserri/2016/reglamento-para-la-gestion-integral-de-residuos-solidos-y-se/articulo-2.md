@@ -1,0 +1,2 @@
+Artículo 2º—Alcance. Este reglamento es de acatamiento obligatorio para todas las personas, físicas o jurídicas, públicas o privadas, generadoras de residuos sólidos ordinarios que encuentren localizados dentro del ámbito territorial del cantón de Aserrí.
+Los residuos peligrosos y de manejo especial deben ser tratados por el generador de acuerdo a la legislación específica existente o de acuerdo a las iniciativas que la Municipalidad lidere por cuenta propia.

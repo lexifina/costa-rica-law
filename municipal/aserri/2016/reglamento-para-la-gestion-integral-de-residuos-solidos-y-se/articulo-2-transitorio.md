@@ -1,0 +1,1 @@
+Transitorio II.—La Municipalidad de Aserrí iniciará con la prestación de los servicios de Mantenimiento de Zonas Verdes; y Limpieza y Mantenimiento de Alcantarillado Pluvial una vez se tengan identificados los sectores donde se prestará en servicio así como los radios de afectación y finalmente la información incluida en la base de datos municipal para su respectivo cobro.

@@ -1,0 +1,1 @@
+Artículo 19.—Aplicación del cobro. Todo cobro, ya sea residencial, comercial o industrial, aplica si la ruta de recolección pasa a 500 metros de su propiedad. En el caso que se demuestre que el contribuyente hace uso del servicio en días y rutas diferentes, se cobrara por cada servicio independiente.
