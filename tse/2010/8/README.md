@@ -14,3 +14,4 @@ Reglamento de Fotografías para la Cédula de Identidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-07-01 | la propia norma |
+| 2 | 2016-03-28 | Decreto TSE 3 (2016-03-28) |
