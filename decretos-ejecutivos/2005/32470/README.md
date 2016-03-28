@@ -18,3 +18,4 @@ Reglamento para el registro sanitario de los medicamentos que requieren demostra
 | 3 | 2007-10-04 | Decreto Ejecutivo 34189 (2007-10-04) |
 | 4 | 2010-06-08 | Decreto Ejecutivo 36068 (2010-06-08) |
 | 5 | 2011-08-08 | Decreto Ejecutivo 36734 (2011-08-08) |
+| 6 | 2016-03-28 | Resolución 1038 (2016-03-28) |
