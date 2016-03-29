@@ -1,15 +1,42 @@
-Artículo 2º—Marco estratégico del Ministerio de Salud. El siguiente es el marco estratégico del Ministerio de Salud:
-a) Como ente rector de la salud:
-a.1) Misión. Garantizar la protección y el mejoramiento del estado de salud de la población, mediante el ejercicio efectivo de la rectoría y el liderazgo institucional, con enfoque de promoción de la salud y participación social inteligente, bajo los principios de transparencia, equidad, solidaridad y universalidad.
-a.2) Visión. El Ministerio de Salud será una institución desconcentrada, articulada internamente, coherente en su capacidad resolutiva, con una cultura caracterizada por la orientación a los resultados y a la rendición de cuentas, con funcionarios debidamente calificados, apropiados de su papel y proactivos. Por su estilo de liderazgo, su capacidad técnica y el mejoramiento logrado en el estado de salud de la población, será una institución con alta credibilidad a nivel nacional e internacional, la población lo percibirá como garante de su salud y los actores sociales sujetos y clientes directos de la rectoría lo sentirá como su aliado.
-a.3) Valores institucionales:
-a.3.1) Salud como cultura de vida y de trabajo. La salud es parte integral de la cultura de vida y de trabajo de los funcionarios de la institución; una vocación que se traduce en una visión colectiva que abarca los niveles personal, familiar y social, donde se reconoce que es por medio de hábitos y prácticas saludables que se puede alcanzar el desarrollo personal, abarcando integralmente las dimensiones socioeconómica, ecológica, biológica.
-a.3.2) Liderazgo. Los funcionarios del Ministerio conquistan la voluntad de los actores sociales a los que dirigen y conducen para el logro de objetivos comunes, mediante la concertación, la participación y el convencimiento, impulsando las decisiones y las acciones de todos los involucrados, en procura de la protección y mejoramiento del estado de salud de la población nacional.
-a.3.3) Compromiso. Los funcionarios de la institución emplean todas sus capacidades y energías para ejecutar las acciones requeridas para cumplir con todo aquello que se les ha encomendado y en lo que han empeñado su palabra, buscando siempre resultados superiores a los esperados y asumiendo con responsabilidad las consecuencias de sus actos y decisiones.
-a.3.4) Efectividad. Desarrollan las actividades cotidianas en el logro de los objetivos de salud definidos a nivel nacional e institucional. Se responsabilizan por la calidad e impacto de su trabajo y por el uso eficiente de los recursos. Estimulan la creatividad, la innovación, la mejora continua y la orientación a los resultados, como medio para superar día con día la productividad.
-a.4) Estrategia maestra. Avanzar de la atención de la enfermedad hacia la promoción de la salud, posicionando la salud como valor social y dirigiendo y conduciendo las intervenciones de los actores sociales hacia la vigilancia y el control de los determinantes de la salud, basados en evidencia y con equidad.
-a.5) Objetivos estratégicos.
-a.5.1) Incrementar las habilidades y las capacidades de la población en general y de los actores clave en específico, hacia la incorporación de estilos de vida saludable y al desarrollo de los determinantes positivos de la salud.
-a.5.2) Dirigir y conducir a los actores sociales que intervienen en el proceso de la producción social de la salud, orientando sus acciones hacia la protección y el mejoramiento constante del nivel de salud de la población con equidad.
-a.5.3) Desarrollar organizacionalmente al Ministerio de Salud para cumplir de manera efectiva sus funciones de rectoría de la producción social de la salud, alineando su gestión institucional con su misión.
-b) (Derogado por el artículo 67 del Reglamento Orgánico de la Dirección Nacional de Centros de Educación y Nutrición de Centros Infantiles de Atención Integral, aprobado mediante decreto ejecutivo N° 37270 del 27 de junio de 2012)
+Artículo 2º—Marco Estratégico del Ministerio de Salud. El siguiente es el marco estratégico del Ministerio de Salud:
+MISIÓN: Somos la institución que dirige y conduce a los actores sociales para el desarrollo de acciones que protejan y mejoren el estado de salud físico, mental y social de los habitantes, mediante el ejercicio de la rectoría del Sistema Nacional de Salud, con enfoque de promoción de la salud y prevención de la enfermedad, propiciando un ambiente humano sano y equilibrado, bajo los principios de equidad, ética, eficiencia, calidad, transparencia y respeto a la diversidad.
+VISIÓN: Seremos la autoridad sanitaria respetada a nivel nacional e internacional, que ejerce la rectoría del Sistema Nacional de Salud con capacidad técnica y resolutiva, liderazgo y participación social.
+a) Liderazgo.
+b) Transparencia.
+c) Compromiso.
+d) Respeto.
+e) Empatía.
+f) Trabajo en equipo.
+g) Excelencia.
+h) Asertividad.
+i) Lealtad.
+j) Ética.
+OBJETIVOS ESTRATÉGICOS INSTITUCIONALES Y SUS OBJETIVOS ESPECÍFICOS
+1) Dirigir y conducir a las instituciones del sector y otros actores sociales, que intervienen en el proceso salud-enfermedad-muerte, con el fin de mejorar el estado de salud de la población.
+1.1. Consolidar el derecho a la salud, como un derecho humano de la población, bajo los principios de equidad, calidad, oportunidad y participación social, mediante el ejercicio de las funciones rectoras.
+1.2. Formular, implementar y dar seguimiento a proyectos, con el fin de contribuir al cumplimiento de los objetivos institucionales, desde el abordaje de los determinantes de la salud y participación social.
+1.3. Fortalecer el desarrollo de las prácticas de vida saludable, mediante la participación de las instituciones, los actores sociales y la población, para el mejoramiento del estado de salud.
+1.4. Desarrollar estrategias de negociación y concertación con instituciones, actores sociales y la población, a fin de crear las condiciones que favorezcan las prácticas saludables.
+1.5. Desarrollar la planificación estratégica y operativa a corto, mediano y largo plazo, basados en gestión por resultados, para el cumplimiento de las funciones en forma eficiente y eficaz.
+1.6. Promover una cultura institucional sustentada en la calidad, mediante el desarrollo de un sistema de gestión de calidad, que permita la mejora continua de los procesos y actividades en los tres niveles de gestión.
+1.7. Fortalecer la cooperación internacional y nacional en salud, mediante el desarrollo de alianzas estratégicas con instituciones, organismos y otros actores dentro y fuera del país, a fin de mejorar el ejercicio de las funciones rectoras.
+1.8. Fortalecer el área de los recursos humanos en salud, así como del gasto y financiamiento en salud, mediante el análisis de situación, para la toma de decisiones.
+2) Ejercer la regulación y el control de servicios, establecimientos, productos de interés sanitario, eventos, ambiente humano e investigaciones y tecnologías en salud, con el fin de proteger y mejorar el estado de salud de la población.
+2.1. Fortalecer el registro y control de productos de interés sanitario, con el fin de garantizar su seguridad eficacia y calidad, mediante la aplicación de la normativa vigente.
+2.2. Fortalecer la regulación de servicios, establecimientos y eventos mediante la aplicación de la normativa vigente, con el fin de proteger y mejorar la salud de la población.
+2.3. Fortalecer la regulación de eventos e investigaciones en salud mediante la aplicación de la normativa vigente, con el fin de proteger y mejorar la salud de la población.
+2.4. Fortalecer los procesos de generación y utilización del conocimiento científico y tecnológico en salud, como base para la toma de decisiones basada en evidencia.
+3) Fortalecer la vigilancia de los determinantes de la salud (salutogénicos y patogénicos) con el fin de promover la salud y disminuir los riesgos y daños a la salud de la población y el ambiente humano.
+3.1. Fortalecer la vigilancia activa de eventos y factores de riesgo en salud, mediante el registro y análisis de información e intervenciones, para la toma de decisiones en salud oportuna y de calidad.
+3.2. Fortalecer el control de vectores y el saneamiento básico, mediante la prestación de los servicios eficientes y oportunos, con el fin de mejorar el estado de salud de la población.
+4) Fortalecer el rol rector del Ministerio de Salud, mediante el desarrollo de las condiciones y capacidades institucionales necesarias para el ejercicio eficiente y eficaz de sus funciones.
+4.1. Lograr que los recursos financieros se asignen de acuerdo con la planificación estratégica y operativa, a fin de que respondan a las necesidades de la institución y de acuerdo con las directrices de gobierno, mediante la articulación de las unidades organizativas correspondientes en los tres niveles de gestión.
+4.2. Fortalecer los procesos de adquisición de bienes y servicios, a fin de que los mismos respondan en cantidad, calidad y en forma oportuna a las necesidades de la institución.
+4.3. Dotar a la institución de la infraestructura y servicios en general requeridos para el desarrollo de las funciones rectoras, a fin de responder a las necesidades de la población.
+4.4. Reducir la brecha tecnológica tanto a lo interno como externo de la institución mediante el fortalecimiento de las tecnologías de información y comunicación, a fin de desarrollar las funciones rectoras en salud.
+4.5. Contar con el recurso humano idóneo y necesario, para la gestión institucional y el ejercicio de la rectoría.
+4.6. Desarrollar procesos de rendición de cuentas, mediante la fiscalización permanente y continua del quehacer institucional, a fin de identificar oportunidades de mejora.
+4.7. Fortalecer la atención al cliente externo e interno mediante servicios simplificados, oportunos y de calidad, a fin de lograr la satisfacción de los usuarios.
+4.8. Fortalecer el proceso de soporte jurídico, mediante el desarrollo de intervenciones oportunas y de calidad, como base para la toma de decisiones de las autoridades institucionales.
+4.9. Desarrollar la ética y comunicación estratégica institucional en los tres niveles de gestión mediante tácticas específicas, a fin de fortalecer la imagen institucional interna y externa”.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39654 del 29 de marzo del 2016)
