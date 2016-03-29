@@ -14,3 +14,4 @@ Reglamento de Tarifas para Análisis Químicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-07 | la propia norma |
+| 2 | 2016-03-29 | Reglamento 3 (2016-03-29) |
