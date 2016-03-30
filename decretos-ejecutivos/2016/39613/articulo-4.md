@@ -1,0 +1,1 @@
+Artículo 4° - La gestión orientada a resultados para el desarrollo, constituirá el marco orientador en el proceso de planificación y presupuestación de las entidades públicas, ministerios y órganos desconcentrados.

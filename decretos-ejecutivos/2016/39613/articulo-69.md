@@ -1,0 +1,1 @@
+Artículo 69·-El incumplimiento de lo dispuesto en estas directrices podrá acarrear la aplicación del régimen de responsabilidad establecido en el titulo X, artículos 107 Y siguientes de la Ley N° 8131 ya citada.

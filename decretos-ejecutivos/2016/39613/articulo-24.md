@@ -1,0 +1,1 @@
+Artículo 24--Los ministerios deberán verificar que sus órganos desconcentrados incorporen en el presupuesto ordinario los recursos provenientes de superávit acumulado, asignándolos en los gastos donde la normativa lo permita, con el objetivo de lograr un uso eficiente de dichos recursos.

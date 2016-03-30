@@ -1,0 +1,2 @@
+Artículo 18- Los ministerios en la formulación de sus presupuestos deberán valorar la continuidad de la asignación de las transferencias, asignadas a sus órganos desconcentrados, mediante la realización de un estudio técnico y legal.
+Los resultados del estudio técnico y legal, así como las respectivas sugerencias y propuestas de modificaciones a la normativa que las fundamenta, deberán presentarse a más tardar el 16 de enero del 2017 a la Dirección General de Presupuesto Nacional, en adelante DGPN, con copia a la STAP.

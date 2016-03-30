@@ -1,0 +1,1 @@
+Artículo 70-La STAP, cuando corresponda, divulgará en la página electrónica del Ministerio de Hacienda los requerimientos de información sobre las solicitudes que presenten las entidades públicas, ministerios y órganos desconcentrados.

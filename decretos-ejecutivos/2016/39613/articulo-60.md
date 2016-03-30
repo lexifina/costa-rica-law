@@ -1,0 +1,1 @@
+Artículo 60-Para cualquier movimiento de personal, la administración activa es la responsable de garantizar que los funcionarios cumplan con los requisitos académicos, legales y de experiencia que exigen los correspondientes manuales institucionales de clases y cargos vigentes.

@@ -1,0 +1,1 @@
+Artículo 28-Las entidades públicas y órganos desconcentrados que se financien con recursos provenientes de transferencias del Presupuesto de la República y que tienen capacidad legal para cobrar por los servicios que prestan, podrán establecer precios y tarifas que contribuyan a reducir gradualmente su dependencia del Presupuesto de la República.

@@ -1,0 +1,1 @@
+Artículo 61-Las entidades públicas y ministerios en lo relativo a puestos de confianza subalternos deberán cumplir con lo dispuesto en el Reglamento de Puestos de Empleados de Confianza Subalternos del Sector Público vigente.

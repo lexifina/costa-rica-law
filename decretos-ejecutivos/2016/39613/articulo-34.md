@@ -1,0 +1,1 @@
+Artículo 34-Las entidades públicas y órganos desconcentrados, procurarán cubrir con recursos propios los gastos de contrapartida local, los estudios de perfiles, prefactibilidad y factibilidad, que se requieran para la ejecución de proyectos financiados con endeudamiento.

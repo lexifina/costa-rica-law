@@ -1,0 +1,1 @@
+Artículo 8°- Los ministerios e instituciones y órganos desconcentrados deberán presentar al Ministerio de Hacienda, informes sobre evaluación, de acuerdo con el artículo 55 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, No.8131.

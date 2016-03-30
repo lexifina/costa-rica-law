@@ -1,0 +1,1 @@
+Artículo 33- Los ministerios, entidades públicas y órganos desconcentrados deberán velar porque los proyectos de inversión a financiarse con endeudamiento público estén contemplados en el Plan Nacional de Inversión Publica elaborado por MIDEPLAN, así como en el Banco de Proyectos de Inversión Pública.

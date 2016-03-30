@@ -1,0 +1,1 @@
+Artículo 21- Los ministros rectores y ministerios concedentes de recursos y transferencias deberán considerar lo solicitado por la DGPN en la Directrices Técnicas y Metodológicas para la Formulación del Presupuesto vigentes, en relación con la medición de la vigilancia y seguimiento de los recursos que transfieren los ministerios.

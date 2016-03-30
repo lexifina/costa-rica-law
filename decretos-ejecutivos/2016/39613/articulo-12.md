@@ -1,0 +1,3 @@
+Artículo 12- Para las entidades públicas y órganos desconcentrados, el gasto presupuestario máximo del año 2017, se establecerá con base en la proyección de ingresos totales (corrientes, capital y financiamiento) 2017, definida por las entidades públicas y órganos des concentrados en coordinación con la STAP.
+Para tal efecto, la STAP utilizará como insumo la serie histórica de ingresos del periodo 2013 - 2015, así como la estimación de ingresos para los años 2016 y 2017 que suministren las entidades y órganos desconcentrados a más tardar el último día del mes de marzo del año 2016.
+Los montos del gasto presupuestario máximo resultantes, serán comunicados por la STAP a más tardar el 30 de abril de 2016 .

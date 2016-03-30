@@ -1,0 +1,1 @@
+Artículo 64 -Toda estructura organizacional, así como sus modificaciones, deberá contar con la aprobación del MIDEPLAN, de conformidad con el Decreto Ejecutivo N° 26893- MTSS-PLAN de 6 de enero de 1998 y sus reformas.

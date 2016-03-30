@@ -1,0 +1,1 @@
+Artículo 39-Los incrementos salariales que disponga el Poder Ejecutivo, podrán ser aplicados a los puestos excluidos del Régimen de Servicio Civil, una vez que se hagan extensivos por parte de la AP.
