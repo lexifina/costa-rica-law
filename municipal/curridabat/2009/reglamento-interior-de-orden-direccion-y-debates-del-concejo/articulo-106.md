@@ -1,1 +1,0 @@
-Artículo 106.—Cuando en el intervalo de clausura y apertura de sesiones ordinarias, quedasen asuntos pendientes de un periodo a otro, deberán conocerse en el siguiente periodo, en el mismo orden que traían.

@@ -1,1 +1,0 @@
-Artículo 88.—Durante los días en que se discuta el Presupuesto Ordinario en el Concejo, no se realizarán sesiones de Comisión, con el fin de que los regidores y síndicos puedan estudiar y analizar el proyecto de presupuesto con detenimiento.

@@ -1,2 +1,0 @@
-Artículo 67.—Los informes o dictámenes de comisión serán entregados en formato electrónico antes de las 16:00 horas del día en que se celebrará la sesión del Concejo, con el fin de que se pongan en conocimiento de todos los miembros del cuerpo colegiado y se incorporen en el Orden del Día, salvo en el caso de aquellos que no tengan acceso a un medio electrónico, a quienes se les entregará una copia física si así lo hacen saber.
-(Así reformado mediante sesión Nº 008 del 24 de junio de 2010)

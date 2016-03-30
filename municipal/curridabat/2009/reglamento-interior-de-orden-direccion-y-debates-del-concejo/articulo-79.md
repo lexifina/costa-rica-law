@@ -1,1 +1,0 @@
-Artículo 79.—Al inicio de cada trimestre, los secretarios de comisión enviarán los documentos de los asuntos resueltos a la Secretaría Municipal, la cual una vez recibidos y revisados, los enviará al archivo municipal, en acatamiento de las disposiciones de la Ley de Archivos Nacionales de la República.

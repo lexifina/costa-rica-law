@@ -1,8 +1,0 @@
-Artículo 82.—Los presidentes de comisión tendrán, entre otras, las siguientes funciones:
-a) Convocar, presidir, abrir y cerrar las sesiones y dirigir los debates.
-b) Recibir todos los documentos relacionados con su comisión y previamente conocerlos junto con el secretario de la comisión.
-c) Conceder la palabra en el orden en que la soliciten, a los miembros de la comisión, los asesores y los regidores y síndicos que, sin ser miembros de la comisión, asistan a la misma. Para las mociones de orden, se atenderá a lo dispuesto para estas en las sesiones de Concejo.
-d) Firmar con el secretario las actas y demás documentos aprobados por la comisión.
-e) Conceder permiso a los miembros de la comisión, para retirarse de las sesiones.
-f) Someter a conocimiento de la Comisión las excusas y recusaciones que se presenten.
-g) Las demás que señala este Reglamento.

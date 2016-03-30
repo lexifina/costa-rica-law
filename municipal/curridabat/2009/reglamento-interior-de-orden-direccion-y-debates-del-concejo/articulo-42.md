@@ -1,1 +1,0 @@
-Artículo 42.—La Presidencia Municipal podrá conceder permiso a personas u organizaciones privadas o nacionales o extranjeras, para que realicen actividades, en cumplimiento de sus objetivos, instalaciones del edificio municipal.

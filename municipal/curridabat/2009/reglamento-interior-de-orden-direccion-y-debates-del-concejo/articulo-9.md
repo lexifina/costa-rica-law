@@ -1,2 +1,0 @@
-Artículo 9º—El Concejo celebrará una sesión ordinaria por semana los días jueves a las 19:00 horas en el salón de sesiones “José Figueres Ferrer” y las sesiones extraordinarias que sean necesarias para el buen funcionamiento del Gobierno Municipal y el cumplimiento de sus fines y objetivos, no obstante sólo será remunerada una sesión ordinaria por semana y dos sesiones extraordinarias por mes.
-(Así reformado en sesión Nº 001 del 4 de mayo de 2010)

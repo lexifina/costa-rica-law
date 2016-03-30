@@ -1,1 +1,0 @@
-Artículo 59.—El Presidente del Concejo podrá pasar a conocimiento de una comisión permanente, un dictamen que pese a haber sido conocido y dictaminado previamente dos veces por otra, no fue aprobado por el Concejo igual número de veces.
