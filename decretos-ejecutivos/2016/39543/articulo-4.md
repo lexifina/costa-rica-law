@@ -1,0 +1,1 @@
+Artículo 4º—Derogatorias. Deróguese el acápite 2.3 del artículo 2, denominado “Definiciones para el Capítulo de Teletrabajo”; y el Capítulo IX, del Título III, denominado “Del teletrabajo”; del Decreto Ejecutivo N° 37369-MEIC, Reglamento Autónomo de Servicio del Ministerio de Economía, Industria y Comercio.
