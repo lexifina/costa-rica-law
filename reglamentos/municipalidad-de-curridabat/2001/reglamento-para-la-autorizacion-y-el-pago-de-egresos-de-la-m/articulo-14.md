@@ -1,2 +1,2 @@
-Artículo 14.—Rige a partir de su publicación.
-Curridabat, 29 de mayo del 2001.
+Articulo 14—Este Reglamento deroga cualquier otro anterior.
+(Corrida su numeración mediante sesión extraordinaria N° 143-2016 del 30 de marzo del 2016 que lo traspasó del antiguo 13 al 14)

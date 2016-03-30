@@ -18,3 +18,4 @@ Reglamento para la autorización y el pago de egresos de la Municipalidad de Cur
 | 3 | 2008-06-17 | Reglamento municipal 112 (2008-06-17) |
 | 4 | 2010-10-07 | Reglamento municipal 23 (2010-10-07) |
 | 5 | 2015-09-24 | Reglamento municipal 282 (2015-09-24) |
+| 6 | 2016-03-30 | Reglamento municipal 143 (2016-03-30) |
