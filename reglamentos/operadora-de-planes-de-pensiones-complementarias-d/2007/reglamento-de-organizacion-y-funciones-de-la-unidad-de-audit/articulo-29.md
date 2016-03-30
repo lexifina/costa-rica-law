@@ -1,3 +1,1 @@
-CAPÍTULO IV
-De la ejecución de la Auditoría
-Artículo 29.—Aplicación de normas. La Auditoría Interna deberá ejecutar su trabajo de conformidad con lo que establecen las Normas Internacionales de Auditoría, Ley 8292, las normas aprobadas y publicadas por el Colegio de Contadores Públicos de Costa Rica; otras normas generalmente aceptadas en la práctica profesional de la Auditoría Interna así como cualesquiera otras disposiciones que dicte la Contraloría General de la República.
+ARTÍCULO 29: Manual de Procedimientos de Auditoría Interna. El Auditor Interno o Auditora Interna deberá preparar, mantener actualizado y en uso por los trabajadores de la Auditoría Interna, de un 'Manual de Procedimientos de Auditoria Interna', con el objeto de tener un instrumento que, entre otras cosas, defina las políticas, responsabilidades, objetivos y funciones de sus subalternos, así como las características y procedimientos de Auditoría que éstos deben aplicar en Popular Pensiones.
