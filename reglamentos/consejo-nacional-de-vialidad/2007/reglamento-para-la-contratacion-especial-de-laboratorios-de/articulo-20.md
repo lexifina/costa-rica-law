@@ -1,4 +1,4 @@
-Artículo 20.—Deber de comunicar. Los Organismos de Ensayo que suministran servicios de verificación de la calidad inscritos en el Registro de Elegibles, están obligados a comunicar a la Proveeduría del CONAVI los cambios que se produzcan, tales como:
+Artículo 20°: Deber de comunicar. Los Organismos de Ensayo que suministran servicios de verificación de la calidad inscritos en el Registro de Elegibles, están obligados a comunicar de manera inmediata a la Proveeduría del CONAVI los cambios que se produzcan, tales como:
 a. Cambio de nombre o razón social del Organismo de Ensayo.
 b. Sustitución del apoderado o representante legal.
 c. Cambios en la dirección, teléfono, faxsímil o en la línea comercial.

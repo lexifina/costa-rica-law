@@ -1,3 +1,1 @@
-CAPÍTULO X
-Disposiciones transitorias
-Artículo 64.—Normas supletorias aplicable. Para el sistema de contratación regulado en este Reglamento, regirán todos los principios constitucionales y legales en materia de contratación administrativa, así como las prohibiciones y requisitos de ley.
+Artículo 64°: Control sobre la vigencia de las inscripciones en el Registro: La Proveeduría será el responsable de verificar periódicamente la vigencia de las inscripciones en el Registro de Organismos de Ensayo de los servicios de verificación de la calidad, así como de implementar un sistema de control sobre la vigencia de los documentos legales aportados, con el fin de dotar de seguridad jurídica a la Administración respecto de la información ahí consignada. Además de vigilar el cumplimiento de lo indicado en el artículo 37° de este Reglamento.

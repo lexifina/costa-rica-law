@@ -1,1 +1,11 @@
-Artículo 62.—Control sobre la vigencia de las inscripciones en el Registro: La Proveeduría será el responsable de verificar periódicamente la vigencia de las inscripciones en el Registro de Organismos de Ensayo de los servicios de verificación de la calidad, así como de implementar un sistema de control sobre la vigencia de los documentos legales aportados, con el fin de dotar de seguridad jurídica a la Administración respecto de la información ahí consignada. Además de garantizar la rotación en el Registro.
+Artículo 62: Evaluación del Desempeño. El desempeño se evaluará por parte de la unidad encargada de verificar el cumplimiento contractual cada tres meses (a partir del inicio de los servicios).
+Dicha evaluación comprenderá los aspectos establecidos en el cuadro mostrado y deberá ser incorporada en el expediente respectivo en el transcurso del mes siguiente a la entrega del último informe de servicios que deba ser incluido dentro del periodo trimestral de evaluación.
+EVALUACIÓN DEL DESEMPEÑOS
+Categoría | Aspectos a considerar | Resultado de la Evaluación
+| | Cumple | No cumple
+Informes mensuales de verificación de calidad | Puntualidad en la entrega | |
+| Contenido de la información requerida | |
+| Calidad de la información requerida | |
+Calidad del servicio brindado | Eficacia y eficiencia de la prestación brindada | |
+Resultados de auditorías, fiscalizaciones y evaluaciones | Las no conformidades detectadas son menores y no ponen en riesgo el sistema de gestión de la calidad | |
+RESULTADO DE LA EVALUACIÓN DEL DESEMPEÑO

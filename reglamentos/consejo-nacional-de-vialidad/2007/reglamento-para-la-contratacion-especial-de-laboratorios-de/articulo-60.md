@@ -1,10 +1,4 @@
-Artículo 60.—Evaluación del Desempeño. El desempeño se evaluará cada tres meses. Dicha evaluación comprenderá los siguientes aspectos y será realizada por la unidad encargada de verificar el cumplimiento contractual, según se establece en el cuadro siguiente:
-Evaluación del Desempeño
-| Aspectos a considerar | Resultado de la Evaluación
-Cumple | No cumple
-Aspectos a valorar | Informes mensuales de verificación de la calidad | Puntualidad en la entrega | |
-Contenido de la información requerida | |
-Calidad de la información requerida | |
-Calidad del servicio brindado | Eficacia y eficiencia de la prestación brindada | |
-Resultados de auditorias, fiscalizaciones y evaluaciones | Las no conformidades detectadas son menores y no ponen en riesgo el sistema de gestión de la calidad | |
-Resultado de la Evaluación del Desempeño
+Artículo 60°: Servicios especiales. En el caso de que se requieran servicios complementarios a las actividades ordinarias de los Organismos de Ensayo, la Administración podrá solicitar cotizaciones que estarán sujetas a análisis de razonabilidad de precios.
+Estos servicios se ejecutarán solamente bajo autorización de la Administración mediante Orden de Servicio debidamente fundamentada, la cual debe incluir una breve y concisa descripción del trabajo que se deba realizar y la base para-el pago de los servicios.
+En caso de que el Organismo de Ensayo deban subcontratar estos servicios especiales, deberán presentar –en la medida de lo posible y acorde al nivel de especialización de los trabajos requeridos- hasta 3 (tres) cotizaciones -, las cuales estarán sujetas a análisis de razonabilidad de precios y análisis técnico de la Unidad de Inspección. Para los servicios subcontratados se acatará lo dispuesto en el Artículo N° 69 del RLCA. Previo a la ejecución de los servicios el Organismo de Ensayo deberá aportar el listado y la documentación enunciada en el Artículo N° 149 del RLCA.
+En ningún caso la subcontratación relevará de responsabilidad al Organismo de Ensayo de cumplir con sus obligaciones. Para el pago de los servicios será responsabilidad del Organismo de Ensayo aportar certificaciones de la CCSS y de FODESAF de la (s) empresa (s) subcontratada (s).

@@ -64,3 +64,7 @@ articulo-63.md
 articulo-64.md
 articulo-65.md
 articulo-66.md
+articulo-67.md
+articulo-68.md
+articulo-1-transitorio.md
+articulo-1-anexo.md

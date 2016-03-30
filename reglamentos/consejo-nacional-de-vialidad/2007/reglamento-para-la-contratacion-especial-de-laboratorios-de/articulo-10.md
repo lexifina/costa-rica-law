@@ -1,4 +1,3 @@
-CAPÍTULO III
+CAPITULO III
 Organización del Registro
-Artículo 10.—Órgano responsable del Registro. La Proveeduría es la Unidad de CONAVI responsable de tramitar las solicitudes de ingreso al Registro de Elegibles, así como de su custodia, actualización y aplicación del procedimiento de exclusión.
-Con tal fin, implantará la organización que estime necesaria para lograr el objetivo de conformar y administrar el Registro de Elegibles, haciendo uso de los medios tecnológicos y demás recursos que coadyuven a satisfacer dicho propósito.
+Artículo 10°: Órgano responsable del Registro. La Proveeduría Institucional es la responsable ante el CONAVI de tramitar las solicitudes de ingreso al Registro de Elegibles, así como de su custodia, actualización y aplicación del procedimiento de exclusión.

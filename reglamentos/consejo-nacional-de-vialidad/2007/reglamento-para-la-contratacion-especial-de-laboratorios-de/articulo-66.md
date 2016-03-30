@@ -1,2 +1,3 @@
-Artículo 66.—Rige a partir de su (*)publicación y por el plazo de doce meses pudiéndose prorrogar previo al cumplimiento de lo establecido en los artículos 6 y 65 de este Reglamento.
-(*)(El Texto corregido de este reglamento fue publicado mediante FE DE ERRATAS en La Gaceta N° 80 de 27 de abril del 2009)
+CAPITULO X
+Disposiciones transitorias
+Artículo 66°: Normas supletorias aplicable. Para el sistema de contratación regulado en este reglamento, regirán todos los principios constitucionales y legales en materia de contratación administrativa, así como las prohibiciones y requisitos de ley.

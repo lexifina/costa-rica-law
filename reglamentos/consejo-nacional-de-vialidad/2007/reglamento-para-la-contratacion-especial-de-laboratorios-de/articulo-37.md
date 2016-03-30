@@ -1,75 +1,39 @@
-Artículo 37.—Criterios de Selección. La selección y asignación de los servicios de verificación de la calidad se realizará 10 días hábiles después de su publicación.
-Se establece el siguiente rol para la selección del eventual adjudicatario de las contrataciones directas. El rol se regirá por lo siguiente:
-a) La Base de Batos de Organismos de Ensayo que suministran servicios de verificación de la calidad asigna a cada Organismo de Ensayo un número consecutivo en función de la fecha de presentación de la Solicitud de Inscripción en dicho Registro y su aceptación en este.
-b) La selección del Organismo de Ensayo de servicios de verificación de la calidad se basa en las plantas productoras de MAC que suplirán las diferentes zonas. El Organismo de Ensayo seleccionado para realizar la verificación de la calidad de una planta productora de MAC será el encargado de realizar la verificación de la calidad de cada zona abastecida por dicha planta productora de MAC asignada, así como de las zonas circunvecinas del contrato de conservación de rutas nacionales en lastre y tierra.
-c) A continuación se establecen las zonas del Programa de Conservación de Rutas Nacionales Pavimentadas en orden numeral:
-Número | Zona | Región | Provincia
-1 | 1-1 | Central | San José
-2 | 1-2
-3 | 1-3
-4 | 1-4 | Alajuela
-5 | 1-5
-6 | 1-6
-7 | 1-7 | Cartago
-8 | 1-8
-9 | 1-9 | Heredia
-10 | 2-1 | Chorotega | Guanacaste
-11 | 2-2
-12 | 2-3
-13 | 2-4
-14 | 3-1 | Pacífico Central | Puntarenas
-15 | 3-2
-16 | 4-1 | Brunca | San José – Puntarenas
-17 | 4-2
-18 | 4-3
-19 | 5-1 | Huetar Atlántica | Limón
-20 | 5-2
-21 | 6-1 | Huetar Norte | Alajuela
-22 | 6-2
-d) A continuación se establecen las zonas del Programa de Conservación de Rutas Nacionales en Lastre y Tierra en orden numeral:
-Número | Zona | Región | Provincia
-1 | 1-1 | Central | San José
-2 | 1-2A
-3 | 1-2B
-4 | 1-3A | Alajuela
-5 | 1-3B
-6 | 1-4A
-7 | 1-4B
-8 | 2-1 | Chorotega | Guanacaste
-9 | 2-2A
-10 | 2-2B
-11 | 2-3A
-12 | 2-3B
-13 | 2-4A
-14 | 2-4B
-15 | 2-5A
-16 | 2-5B
-17 | 2-6A
-18 | 2-6B
-19 | 2-7A
-20 | 2-7B
-21 | 3-1A | Pacífico Central | Puntarenas
-22 | 3-1B
-23 | 3-2
-24 | 4-1A | Brunca | San José - Puntarenas
-25 | 4-1B
-26 | 4-2A
-27 | 4-2B
-28 | 4-3
-29 | 5-1 | Huetar Atlántica | Limón
-30 | 5-2A
-31 | 5-2B
-32 | 5-3
-33 | 6-1A | Huetar Norte | Alajuela
-34 | 6-1B
-35 | 6- 1C
-36 | 6-2A
-37 | 6-2B
-38 | 6- 2C
-e) El número consecutivo de registro asociado a las zonas del Programa de Conservación para Rutas Nacionales Pavimentadas con diferente planta productora de MAC, ordenadas en forma numeral como se muestra en la viñeta c) y el número consecutivo de registro asociado a las zonas del Programa de Conservación para Rutas Nacionales en Lastre y Tierra, ordenadas en forma numeral como se muestra en la viñeta d) será la base para determinar la asignación anual.
-f) Se establecen en orden numeral, las zonas que tienen diferentes plantas productoras de MAC propuestas.
-g) Se asignan a cada planta productora de MAC, los Organismos de Ensayo aceptados y que puedan brindar servicios de verificación de la calidad de dichas plantas productoras de MAC. No les deben alcanzar las prohibiciones contenidas en los requisitos técnicos. Los Organismos de Ensayo se asignan en orden numeral según el número consecutivo de registro.
-h) Se inicia la asignación de los organismos de ensayo de aquellos casos donde solo se tenga un solo Organismo de Ensayo, el cual será seleccionado y asignado no solo para verificar la calidad de la planta productora de MAC sin también las zonas asociadas a dicha planta productora, tanto para conservación de la Red Vial Nacional pavimentada como de la Red Vial Nacional en lastre y tierra.
-i) Se continúa con la asignación de aquellos casos donde se tenga más de un Organismo de Ensayo asignado, en el orden numeral correspondiente. Se seleccionará el Organismo de Ensayo que tengan el menor número de plantas asignado, en el orden del número consecutivo de registro, iniciando con el que tiene menor cantidad de plantas asignadas y haya ingresado primero al registro (menor número de registro asignado). En estos casos se asignará el número de plantas productoras de MAC hasta que se alcance el mismo número de plantas asignadas, que aquel otro Organismo de Ensayo que tenga mayor número asignado.
-j) Para la asignación de los servicios de verificación de la calidad de las plantas productoras de MAC, prevalece el principio de máxima equidad posible, respetando el orden de Ingreso al registro de Elegibles, según el número consecutivo de registro asignado.
-k) Para la asignación de los servicios de verificación de calidad para los programas de conservación de rutas nacionales en lastre y tierra se procurará igualmente la máxima equidad posible, respetando el orden de Ingreso al registro de Elegibles, según el número consecutivo de registro asignado.
+Artículo 37°: Criterios de Selección. La selección y asignación de los Organismos de Ensayo para brindar los servicios de verificación de la calidad se basa en las plantas productoras de MAC que suplirán las diferentes zonas del programa de Conservación Vial de la Red Vial Nacional Pavimentada.
+El acto de adjudicación se dictará en un plazo máximo de diez días hábiles, contados a partir de la 'fecha límite establecida y solicitada por la Administración para la presentación, por parte de los Organismos de Ensayo, de la anuencia para celebrar contrato.
+El Organismo de Ensayo seleccionado para realizar la verificación de la calidad de una planta productora de MAC será el encargado de realizar la verificación de la calidad de cada zona abastecida por dicha planta productora de MAC, así como de las zonas circunvecinas del contrato de conservación de rutas nacionales en lastre y tierra.
+La asignación de los servicios de Verificación de la Calidad se revisará con cada nueva contratación de los Organismos de Ensayo y será modificada toda vez que se den variaciones en la adjudicación de los contratistas de Conservación Vial o varíen las plantas productoras de MAC para la atención de la Red Vial Nacional Pavimentada. Cuando aumentare la cantidad de Organismos de Ensayo dentro del Registro de Elegibles, sin que existiera alguna modificación en las plantas productoras de N/AC, la asignación de servicios para los nuevos miembros del Registro de Elegibles se regirá por el principio de máxima equidad posible.
+Se establece el siguiente método para la selección del eventual adjudicatario de las contrataciones directas:
+a) La Base de Datos de Organismos de Ensayo que suministran servicios de verificación de la calidad asigna a cada Organismo de Ensayo un número consecutivo en función de la fecha de presentación de la Solicitud de Inscripción en dicho Registro y su aceptación en este.
+b) Se establecen en orden numeral, las plantas productoras de MAC propuestas, según la cantidad de zonas del Programa de Conservación de la Red Vial Nacional Pavimentada que abastecerían, las cuales se muestran a continuación:
+ZONA AREA GEOGRAFICA
+1-1 San José
+1-2 Puriscal
+1-3 Los Santos
+1-4 Alajuela Sur
+1-5 Alajuela Norte
+1-6 San Ramón
+1-7 Cartago
+1-8 Turrialba
+1-9 Heredia
+2-1 Liberia
+2-2 Cañas - Upala
+ZONA AREA GEOGRAFICA I
+2-3 Santa Cruz
+2-4 Nicoya
+3-1 Puntarenas
+3-2 Ouepos
+4-1 Pérez Zeledón
+4-2 Buenos Aires - Coto Brus
+4-3 Golfito - Corredores
+5-1 Guápiles
+5-2 Urnón
+6-1 San Carlos - Sarapiquí
+6-2 Los Chiles - Guatuso
+c) Se asignan a cada planta productora de MAC, los Organismos de Ensayo aceptados y que puedan brindar servicios de verificación de la calidad de dichas plantas productoras de MAC. Los Organismos de Ensayo se asignan en orden numeral según el número consecutivo de registro, siempre y cuando no les alcancen las prohibiciones contenidas en los requisitos técnicos (Artículo 15°de este Reglamento).
+d) Se seleccionará el Organismo de Ensayo que tengan el menor número de plantas asignado, en el orden del número consecutivo de registro, iniciando con el que tiene menor cantidad de plantas asignadas y haya ingresado primero al registro (menor número de registro asignado). En estos casos se asignará una planta productora de MAC hasta que se alcance el mismo número de plantas asignadas, que aquel otro Organismo de Ensayo que tenga mayor número asignado.
+e) Para la asignación de los servicios de verificación de la calidad de las plantas productoras de MAC, prevalece el principio de máxima equidad posible, respetando el orden de Ingreso al Registro de Elegibles, según el número consecutivo de registro asignado.
+f) Para la asignación de los servicios de verificación de calidad para los programas de conservación de rutas nacionales en lastre y tierra se procurará igualmente la máxima equidad posible, respetando la coincidencia geográfica que tengan las zonas de Conservación de la Red Vial Nacional Pavimentada ya asignadas al Organismo de Ensayo, con las zonas del Programa de Conservación de las Rutas Nacionales en Lastre y Tierra. No les deben alcanzar las prohibiciones contenidas en los requisitos técnicos.
+Será responsabilidad del Organismo de Ensayo corroborar las rutas y secciones de control de cada Zona de Conservación Vial asignada, según los términos de la licitación para atención de la Red Vial Nacional, ya sea con superficie de ruedo pavimentada, en lastre o tierra.
+Los Organismos de Ensayo podrán mantenerse activos dentro del Registro de Elegibles pero sin que esa condición les genere derecho alguno si resulta que:
+1. Es imposible asignarle servicios a causa de las prohibiciones indicadas en el artículo 15° de este Reglamento.
+2. El Organismo de Ensayo no está dispuesto a brindar servicios en las PMAC y zonas que le sean asignadas de acuerdo al procedimiento descrito previamente en este mismo artículo.
