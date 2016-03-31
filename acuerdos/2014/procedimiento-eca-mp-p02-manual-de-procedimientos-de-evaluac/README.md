@@ -14,3 +14,4 @@ Procedimiento ECA-MP-P02 Manual de procedimientos de evaluacion y acreditacion (
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-11 | la propia norma |
+| 2 | 2016-03-31 | Acuerdo 4 (2016-03-31) |

@@ -1,18 +1,40 @@
-2 PROCEDIMIENTOS Y CRITERIOS ECA APLICABLES POR TIPO DE OEC
-2.1 Adicional a los documentos normativos el OEC, debe conocer y demostrar el cumplimiento de las políticas, procedimientos y criterios del ECA descritas en el cuadro 2: [OEC]
-Cuadro 2: Procedimientos, políticas y criterios de aplicación por parte de los OEC. Procedimiento, Política o Criterio | Laboratorios | Organismos de Inspección | Organismos de Certificación | Organismos Validadores/Verificadores de Gases de efecto Invernadero
-ECA-MC-P11: Procedimiento de evaluación in situ para OC y OV/V | Aplica | Aplica
-ECA-MC-P17 Política y criterios para la participación en ensayos / pruebas de aptitud y otras comparaciones para los laboratorios | Aplica | Aplica
-ECA-MC-P18 Política para uso del logotipo ECA y símbolo de acreditación. | Aplica | Aplica | Aplica | Aplica
-ECA-MC-P20 Política de trazabilidad. | Aplica | Aplica | Aplica (para Organismos de certificación de producto)
-ECA-MC-PO01 Política de validación de métodos. | Aplica
-ECA-MC-PO02 Política de incertidumbre de las mediciones | Aplica
-ECA-MC-C01: Uso de laboratorios por parte de organismos de inspección y organismos de certificación. | Aplica | Aplica (para Organismos de certificación de producto)
-ECA-MC-C04: Criterios para la acreditación transfrontera de OC | Aplica
-ECA-MC-C05: Criterios para la evaluación de la norma INTE-ISO/IEC 17021 | Aplica (Organismos de certificación de Sistemas)
-ECA-MC-C09: Criterios para la acreditación transfrontera de laboratorios y organismos de inspección | Aplica | Aplica
-ECA-MC-C10: Criterios para la evaluación de la norma INTE/ISO 14065 | Aplica
-Procedimiento, Política o Criterio | Laboratorios | Organismos de Inspección | Organismos de Certificación | Organismos Validadores/Verificadores de Gases de efecto Invernadero
-ECA-MC-C11: Criterios para la evaluación de los OEC sin contratos activos | Aplica | Aplica | Aplica
-ECA-MC-C12: Criterios para la aplicación de la norma INTE/ISO 17020:2012 | Aplica
-| | | | | | | | |
+2 REQUISITOS GENERALES PARA LA ACREDITACIÓN DE CUALQUIER TIPO DE OEC
+2.1 Haber realizado al menos una auditoría interna a todo su sistema de gestión, antes de entregar la solicitud de acreditación inicial, que incluya todas las actividades dentro del alcance a acreditar. Para el caso de procesos de ampliación, la auditoría debe contener como mínimo la verificación y evaluación de los requisitos técnicos aplicables al tipo de actividad y que se auditen todas las actividades para las cuales se solicita la ampliación.
+2.2 Los OEC acreditados deben considerar como parte de su proceso de auditoría los siguientes criterios:
+2.3 Las auditorías deben realizarse como mínimo una al año y de forma tal que no se excedan 12 meses a partir de la auditoría anterior. Si el OEC realiza auditorías de manera fraccionada, la siguiente auditoría no debe exceder 12 meses a partir de la realización de la actividad de auditoría anterior.
+2.3.1 Debe documentarse en el informe de auditoría las actividades dentro del alcance de acreditación que fueron auditadas.
+2.3.2 El OEC debe auditar todas las actividades del alcance acreditado, para lo cual deben distribuirse las mismas para que al menos una vez en el ciclo de reevaluación todas las actividades acreditadas hayan sido auditadas.
+2.4 Haber realizado al menos una revisión por la dirección de todo su sistema, antes de entregar la solicitud de acreditación.
+2.5 Las revisiones por la dirección deben realizarse como mínimo una al año y de forma tal que no se excedan 12 meses a partir de la revisión por la dirección anterior. Si el OEC realiza revisiones por la dirección de manera fraccionada debe completarse en 12 meses.
+2.6 Los documentos presentados ante el ECA, con las solicitudes o para las evaluaciones de seguimiento y reevaluación, deben presentarse sin protección contra cambios e impresión y sin clave de acceso, de lo contrario se considera incompleta la información entregada.
+2.7 Si por causas imputables al OEC, el ECA no puede realizar la admisibilidad de la solicitud, en los plazos indicados en el manual de procedimientos, se procede al archivo del expediente del proceso inicial o ampliación.
+2.8 Los cambios de ingreso o salida que ocurran en el personal del OEC, deben informarse al ECA utilizando, los siguientes formularios:
+a) ECA-MP-P02-F01 Cambios de personal, para organismos de inspección y laboratorios.
+b) ECA-MP-P02-F02 Listado de personal para organismos de certificación de sistemas.
+c) ECA-MP-P02-F03 Listado de personal para organismos de certificación de producto.
+d) ECA-MP-P02-F04 Listado de personal para organismos de certificación de personas.
+e) ECA-MP-P02-F05 Listado de personal para organismos validadores/verificadores.
+Estos registros se consideran documentos controlados; por lo que deben actualizarse cada vez que ocurra una variación.
+Nota: El OEC puede utilizar un formato diferente para informar de los cambios que ocurran en el personal, siempre y cuando se cumpla con indicar el nombre del personal, el grado académico, el puesto, las actividades dentro del alcance en las cuales el personal está autorizado y la sede donde se ejecuta la actividad.
+2.9 Cuando el OEC requiera realizar un cambio significativo, por ejemplo: cambio de ubicación de las instalaciones, cambio de personal o equipos dentro del alcance de acreditación (responsables de ejecutar las actividades de evaluación de la conformidad, responsable técnico o gestor de calidad) o cambios en el criterio de independencia para Organismos de Inspección, el OEC debe comunicarlo a la Unidad de Logística.
+2.10 La Unidad de Logística debe informar a la Secretaría de Acreditación respectiva para que valore si el cambio significativo requiere una evaluación documental y/o in situ, cuyo costo debe ser cubierto por el OEC.
+2.11 Todo cambio en la lista de personal relacionado con el alcance debe ser informado por el OEC durante la realización de la evaluación documental y antes de la definición del plan de evaluación.
+2.12 Si por causa de fuerza mayor debe realizarse un cambio de las personas a testificar durante la evaluación in situ, la selección de la persona a testificar, es exclusiva del equipo evaluador, con apoyo de la Secretaría de Acreditación respectiva y se selecciona de la información descrita en los formularios de listado de personal o el equivalente dentro del sistema de gestión del OEC.
+2.13 Si el OEC presenta versiones nuevas de los documentos ante el ECA, después de la evaluación documental, el Evaluador Líder acepta la documentación si los cambios en los documentos son de fondo, producto de una acción correctiva de una auditoría interna, revisión por la dirección, una no conformidad de una evaluación documental o a solicitud de una autoridad reguladora. Si los cambios responden a las condiciones indicadas, el plan de evaluación se extenderá para la revisión de la nueva documentación y el costo debe ser cubierto por el OEC.
+2.14 Se permite al OEC realizar el cambio de fechas de evaluación propuestas por una única vez, siempre que lo solicite por escrito a la Unidad de Logística y ésta lo aprueba, según disponibilidad del Equipo Evaluador. En el expediente del OEC debe quedar el registro de la solicitud y la aprobación de la Unidad de Logística. En el caso de evaluaciones iniciales, el inicio de la evaluación in situ puede realizarse como máximo 4 meses después de notificado el equipo Evaluador. De solicitarse una segunda prórroga o, de no poder coordinar la evaluación in situ por causas imputables al OEC, el proceso de evaluación y acreditación se cancela, por lo que se debe archivar definitivamente el expediente. Para el caso de evaluaciones de seguimiento y reevaluaciones, aplica lo establecido en ECA-MP-P10 Seguimiento y reevaluación.
+Nota: De querer continuar con el proceso el OEC debe presentar una nueva solicitud de acreditación e iniciar un nuevo proceso, una vez archivado el expediente.
+2.15 Si el OEC incluye dentro de su alcance de acreditación, normas y/o reglamentos técnicos, debe aportar una copia de los documentos adicionales, ejemplo ASTM, ASSHTO, API, reglamentos y otros.
+2.16 Si en un período de 60 días hábiles el OEC pierde comunicación total con el ECA o no entrega la documentación adicional solicitada durante el proceso de acreditación y evaluación, en los plazos establecidos por los procedimientos de ECA, se procede de la siguiente manera:
+a) Para los OEC acreditados, se inicia un proceso de investigación (ECA-MC-P16).
+b) Para los OEC en proceso de acreditación inicial o ampliación, se archiva definitivamente el expediente.
+2.17 El OEC debe ofrecer alojamiento, transporte, alimentación y la cooperación que sea necesaria para que el ECA verifique el cumplimiento de los requisitos de la acreditación. Es responsabilidad del OEC organizar todos los arreglos necesarios para la ejecución de las evaluaciones y las testificaciones, dicha responsabilidad no puede ser trasladada al ECA.
+2.18 Si no es posible ejecutar una evaluación o testificación por causas imputables al OEC, la actividad se suspende y el OEC debe cancelar los honorarios del Equipo Evaluador conforme a lo indicado en el plan de evaluación; se debe proceder de la siguiente forma: [OEC]
+a) En un proceso inicial, se archiva el expediente si la evaluación completa no puede ser ejecutada.
+b) En un proceso inicial o de ampliación se excluyen del alcance las actividades que no pudieron ser testificadas.
+c) Si un proceso de evaluación completo de seguimiento o reevaluación no puede ser realizado se procede a iniciar el proceso de investigación conforme al Procedimiento ECA-MC-P16. El equipo evaluador o la Secretaría de Acreditación respectiva, debe documentar las razones por las cuales no se ejecutaron las actividades.
+d) En procesos de evaluación de seguimiento o reevaluación, la actividad que no pueda ser testificada, se traslada a la evaluación de seguimiento o reevaluación siguiente. De no ser posible la testificación del 100% del alcance acreditado durante el ciclo de reevaluación se inicia un proceso de investigación conforme al ECA-MC-P16. Una vez concluido el proceso de investigación, las actividades no testificadas deben ser excluidas del alcance de acreditación. Para los organismos de certificación de sistemas aplica lo establecido en el ECA-MC-P11 Procedimiento de evaluación in situ para OC y OV/V.
+Nota 1: El OEC puede solicitar que se realicen las testificaciones antes de la evaluación de oficina.
+Nota 2: En los casos en que el OEC suspenda la evaluación o testificación con menos de 5 días hábiles respecto a su realización, se debe considerar el pago del 50% de los honorarios del equipo evaluador. Si ECA es quien suspende la evaluación o testificación no se cobrará el 50% del costo de los honorarios del equipo evaluador.
+Nota 3: Si la suspensión de la evaluación o testificación se realiza antes de que se haya elaborado el plan de evaluación o plan de testificación y si el equipo evaluador ha elaborado su evaluación documental, el OEC es responsable del pago de las horas de evaluación documental.
+2.19 La reunión de cierre de la evaluación in situ debe realizarse en un período máximo de 40 días hábiles a partir de la fecha de ejecución de la reunión de apertura.
+2.20 Durante una evaluación in situ, no se puede ampliar el alcance de acreditación solicitado o acreditado.
