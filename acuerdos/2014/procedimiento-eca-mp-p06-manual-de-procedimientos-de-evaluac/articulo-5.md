@@ -7,7 +7,7 @@ a) Cuando la evaluación en oficina se lleva a cabo en conjunto con la testifica
  Informe de Testificación (cuando el equipo considere necesario)
  Propuesta de acciones por parte del OEC y verificación por parte del ECA
  Informe Administrativo
-b) Cuando el proceso de evaluación en oficina, se lleva a cabo como un subproceso por aparte de la testificación, adicional a los documentos mencionados anteriormente para la evaluación en oficina, la testificación tendrá asociado su propio:
+b) Cuando el proceso de testificación, se lleva a cabo como un subproceso aparte, adicional a los documentos mencionados anteriormente, la testificación tendrá lo siguiente:
  Plan de Testificación
  Informe de Testificación (cuando el equipo considere necesario)
  Propuesta de acciones por parte del OEC y verificación por parte del ECA
