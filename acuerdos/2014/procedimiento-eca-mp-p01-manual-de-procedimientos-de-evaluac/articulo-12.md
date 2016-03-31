@@ -1,4 +1,2 @@
-12 DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS
-12.1 El OEC que solicite acreditación ante el ECA debe conocer la Ley No. 8279 Ley del Sistema Nacional para la Calidad, Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación; y los procedimientos, criterios y políticas emitidos por el ECA, los cuales se incluyen dentro del paquete informativo que se brinda a los OEC solicitantes y que se encuentra disponible en www.eca.or.cr. [OEC]
-12.2 Los derechos y obligaciones del OEC acreditado están definidos, según corresponda, en MP-P09-F02 Compromiso de Acreditación, documento que el OEC firma en el momento en que recibe el certificado de acreditación. [OEC]
-12.3 El cumplimiento de las obligaciones del OEC se verifica en las visitas de seguimiento y reevaluación. [OEC]
+12 CONFIDENCIALIDAD
+12.1 Toda la información suministrada al ECA es tratada de manera confidencial. Las solicitudes que se presenten se mantienen resguardadas de forma segura y no se divulga el nombre de ningún OEC en proceso de acreditación, excepto los casos contemplados en el procedimiento ECA-MC-P01 Confidencialidad, imparcialidad y objetividad.

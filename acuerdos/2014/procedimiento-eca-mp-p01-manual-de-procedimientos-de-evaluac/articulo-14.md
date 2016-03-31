@@ -1,2 +1,3 @@
-14 CONFIDENCIALIDAD
-14.1 Toda la información suministrada al ECA es tratada de manera confidencial. Las solicitudes que se presenten se mantienen resguardadas de forma segura y no se divulga el nombre de ningún OEC en proceso de acreditación, excepto los casos contemplados en el procedimiento ECA-MC-P01 Confidencialidad, imparcialidad y objetividad.
+14 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P01
+Refiérase a la solicitud de elaboración o modificación del documento 2016 – 058
+Observaciones: Se elimina apartado de documentos de referencia y responsabilidades Se elimina nota 9.2 Nota: Las solicitudes de ampliación que se reciban en un plazo menor a los 3 meses de la fecha del seguimiento, serán coordinadas en la medida de lo posible, de manera conjunta con la evaluación de seguimiento, sin embargo, ECA no se responsabiliza si no es posible que se lleven a cabo de esta manera, si no se cumple el punto anterior

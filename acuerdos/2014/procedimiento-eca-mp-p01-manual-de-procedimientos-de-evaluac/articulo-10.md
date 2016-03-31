@@ -1,8 +1,4 @@
-10 REDUCCIÓN DEL ALCANCE DE ACREDITACIÓN O RENUNCIA A LA ACREDITACIÓN
-10.1 El OEC acreditado puede solicitar la reducción del alcance de su acreditación o la renuncia, por medio escrito informando las razones que le motivan a tomar esta decisión a la Unidad de Logistica. [OEC]
-10.2 En los casos de renuncia, la Unidad de Logística informa al Área Financiera-Contable para que esta revise el estado de cuenta del OEC y aquella lo presenta a la Comisión de Acreditación. [LOG] [AFC]
-Nota: En caso de que el OEC presente atraso en los pagos el Área Financiera-Contable le solicita efectuarlos.
-10.3 La Comisión de Acreditación revisa la renuncia y la información presentada por el Área Financiera-Contable y le solicita a la Unidad de Logística proceder. Para estos casos el OEC debe devolver la documentación oficial entrega por ECA: ECA-MP-P09-F02 Compromiso de Acreditación, ECA-MP-P09-F01 Certificado de Acreditación y Alcance. [CA] [LOG] [OEC]
-10.4 La Unidad de Logística excluye la acreditación o modifica el alcance de acreditación del OEC en: El ECA-MP-P09-F03 Directorio de OEC acreditado, la página web (www.eca.or.cr) y solicita a la Gestoría de Calidad elaborar el texto a publicar en el Diario Oficial La Gaceta para aprobación. [LOG] [GC]
-10.5 La Gestoría de Calidad gestiona la publicación del texto aprobado en la Gaceta. [GC]
-10.6 Cuando un Organismo de Certificación renuncie a su acreditación, el ECA debe notificar a la Secretaría de IAF. La Secretaría de IAF notificará lo anterior todos los miembros de IAF.
+10 DERECHOS Y OBLIGACIONES DE LOS OEC ACREDITADOS
+10.1 El OEC que solicite acreditación ante el ECA debe conocer la Ley No. 8279 Ley del Sistema Nacional para la Calidad, Reglamento de Estructura Interna y Funcionamiento del Ente Costarricense de Acreditación; y los procedimientos, criterios y políticas emitidos por el ECA, los cuales se incluyen dentro del paquete informativo que se brinda a los OEC solicitantes y que se encuentra disponible en www.eca.or.cr.
+10.2 Los derechos y obligaciones del OEC acreditado están definidos, según corresponda, en ECA-MP-P09-F02 Compromiso de Acreditación, documento que el OEC firma en el momento en que recibe el certificado de acreditación.
+10.3 El cumplimiento de las obligaciones del OEC se verifica en las visitas de seguimiento y reevaluación.
