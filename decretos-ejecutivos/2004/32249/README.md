@@ -14,3 +14,4 @@ Reglamento de organización, funciones y procedimientos del Tribunal Fiscal Admi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-09 | la propia norma |
+| 2 | 2016-03-31 | Decreto Ejecutivo 39697 (2016-03-31) |
