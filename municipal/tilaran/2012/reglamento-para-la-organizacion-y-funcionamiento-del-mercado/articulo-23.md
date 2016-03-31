@@ -1,1 +1,0 @@
-Artículo 23°—No podrán los inquilinos guardar o almacenar en sus locales por ningún motivo sustancias explosivas o inflamable, solo aquellas que sean acordes para el funcionamiento de la actividad autorizada para el local.

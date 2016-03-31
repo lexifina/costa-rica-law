@@ -1,1 +1,0 @@
-Artículo 2°—El mercado se organizará internamente, dentro de lo posible, en zonas o sectores comerciales destinados al servicio del Cantón en el suministro de artículos de consumo de alimentos y servicios similares.
