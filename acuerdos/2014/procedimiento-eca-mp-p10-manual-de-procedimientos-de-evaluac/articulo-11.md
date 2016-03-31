@@ -1,4 +1,2 @@
-11 IDENTIFICACIÓN DE CAMBIOS
-Motivo: | Modificación del procedimiento ECA-MP-P10
-Refiérase a la solicitud de elaboración o modificación del documento 2015-022
-Observaciones: 1. Se modifica el apartado 5 para que las actividades posteriores a la evaluación estén de acuerdo a lo establecido en el procedimiento ECA-MP-P07 Actividades posteriores a la evaluación. 2. Se modifica el anexo 3. Temas a cubrir durante las evaluaciones de seguimiento y reevaluación para organismos de inspección, según la norma INTE-ISO/IEC 17020:2012, en los siguientes aspectos: a. Se agregan algunas notas aclaratorias en los apartados 6.1, 6.2, 7.1, 7.2, 7.3 y 7.4, las cuales deben ser tomadas en cuenta durante la evaluación. b. Se realizó una distribución más general de los aspectos a evaluar y además se modificó la distribución de algunos de los requisitos a evaluar en los diferentes tipos de evaluación.
+11 TRANSITORIO
+Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento.

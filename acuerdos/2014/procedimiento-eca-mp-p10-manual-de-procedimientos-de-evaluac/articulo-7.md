@@ -6,4 +6,4 @@ b) Segunda visita de seguimiento: Se realiza al segundo aniversario del otorgami
 c) Tercera visita de seguimiento: Se realiza durante el tercer aniversario del otorgamiento de la acreditación hasta un máximo de 39 meses desde el mes del otorgamiento.
 Nota 1: Los seguimientos pueden realizarse antes del mes de aniversario si fuera necesario por razones de proceso productivo u organización de trabajo, previo acuerdo entre el OEC y el equipo evaluador o por condición de alguna decisión por parte de la Comisión de Acreditación.
 Nota 2: En el caso de los OEC que realizaron el antiguo proceso de renovación, la fecha de los seguimientos y las reevaluaciones se establece a partir de la última decisión de renovar realizada.
-7.3 Si por causas imputables al OEC no es posible realizar una evaluación de seguimiento o reevaluación se inicia un proceso de investigación (ECA-MC-P16). [OEC].
+7.3 Si por causas imputables al OEC no es posible realizar una evaluación de seguimiento o reevaluación se inicia un proceso de investigación (ECA-MC-P16).
