@@ -14,3 +14,4 @@ Reforma Manual de procedimientos para la evaluación y acreditación ECA-MP-P10 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-01 | la propia norma |
+| 2 | 2016-03-31 | Acuerdo 4 (2016-03-31) |
