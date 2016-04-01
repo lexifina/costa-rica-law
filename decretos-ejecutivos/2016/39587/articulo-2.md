@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo número 39400-H de fecha 7 de diciembre de 2015, publicado en La Gaceta N° 247 de fecha 21 de diciembre de 2015, a partir de la vigencia del presente decreto.
