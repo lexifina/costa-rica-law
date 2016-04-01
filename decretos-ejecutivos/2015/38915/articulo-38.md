@@ -1,1 +1,1 @@
-Artículo 38.—La AP comunicará cada año, a las entidades públicas, ministerios y órganos desconcentrados, la cantidad de puestos autorizados, así como sus modificaciones.
+Artículo 39.—En aquellos casos en que exista contenido presupuestario en la Ley de Presupuesto de la República, para financiar posibles nuevas plazas para los ministerios y órganos desconcentrados, únicamente podrán utilizarse hasta que cuenten con la aprobación respectiva por parte de la AP.

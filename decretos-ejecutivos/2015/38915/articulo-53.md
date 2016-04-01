@@ -1,1 +1,1 @@
-Artículo 53.—Las entidades públicas, ministerios y órganos desconcentrados, en aras de cumplir el principio de publicidad del presupuesto, deberán divulgar en sus páginas web los presupuestos, su programación de metas y resultados de cada periodo ante la sociedad civil.
+Artículo 54.—El incumplimiento de lo dispuesto en estas directrices podrá acarrear la aplicación del régimen de responsabilidad establecido en el título X, artículos 107 y siguientes de la Ley N° 8131 ya citada.

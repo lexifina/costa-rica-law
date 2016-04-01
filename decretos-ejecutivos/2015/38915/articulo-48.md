@@ -1,1 +1,1 @@
-Artículo 48.—Las entidades públicas y ministerios en lo relativo a puestos de confianza subalternos deberán cumplir con lo dispuesto en el Reglamento de Puestos de Empleados de Confianza Subalternos del Sector Público vigente.
+Artículo 49.—Toda estructura organizacional, así como sus modificaciones, deberá contar con la aprobación del MIDEPLAN, de conformidad con el Decreto Ejecutivo N° 26893-MTSS-PLAN de 6 de enero de 1998 y sus reformas.

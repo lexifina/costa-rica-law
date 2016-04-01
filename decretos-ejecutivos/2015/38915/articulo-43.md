@@ -1,1 +1,2 @@
-Artículo 43.—No procede el traslado de plazas del sector descentralizado a entidades u órganos que dependen presupuestariamente de manera directa o indirecta del Presupuesto de la República.
+Artículo 44.—No se podrá contratar personal con carácter permanente por las subpartidas de jornales y de servicios especiales.
+Los jerarcas de las entidades públicas serán los responsables de dar cumplimiento a esta disposición.

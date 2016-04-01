@@ -1,3 +1,2 @@
-CAPÍTULO VI
-Sobre empleo
-Artículo 36.—No se autorizará la creación de plazas. La AP conocerá y valorará únicamente casos excepcionales.
+Artículo 37.—Las plazas por servicios especiales, no se podrán convertir a plazas por cargos fijos.
+No se le podrá variar la naturaleza a las plazas de confianza. Además, deberán estar acorde con la estructura organizacional aprobada por el MIDEPLAN. En el caso de una reestructuración organizacional donde se elimine la unidad administrativa en que se ubican, los puestos de confianza deberán ser eliminados.

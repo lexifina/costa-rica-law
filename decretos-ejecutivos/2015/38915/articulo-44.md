@@ -1,2 +1,3 @@
-Artículo 44.—No se podrá contratar personal con carácter permanente por las subpartidas de jornales y de servicios especiales.
-Los jerarcas de las entidades públicas serán los responsables de dar cumplimiento a esta disposición.
+Artículo 45.—Las entidades públicas, ministerios y órganos desconcentrados solo podrán realizar las reasignaciones de puestos ocupados en propiedad y vacantes (excepto por movilidad laboral o por reestructuración), estrictamente indispensables para el cumplimiento de los objetivos institucionales, garantizando que se cumpla con todos los requisitos y factores contemplados en el respectivo Manual Institucional de Clases de Puestos.
+La reasignación procederá si han transcurrido como mínimo seis meses de que el funcionario esté realizando las nuevas actividades y responsabilidades del puesto. Además, para efectuar otra reasignación al mismo puesto deberá haber transcurrido como mínimo un año desde la última reasignación.
+La fecha de vigencia de las reasignaciones será el primer día del mes siguiente, en que se emita la aprobación respectiva del jerarca supremo.

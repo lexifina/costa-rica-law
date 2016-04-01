@@ -18,3 +18,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 3 | 2016-02-01 | Decreto Ejecutivo 39531 (2016-02-01) |
 | 4 | 2016-02-02 | Decreto Ejecutivo 39532 (2016-02-02) |
 | 5 | 2016-02-22 | Decreto Ejecutivo 39591 (2016-02-22) |
+| 6 | 2016-04-01 | Decreto Ejecutivo 39686 (2016-04-01) |

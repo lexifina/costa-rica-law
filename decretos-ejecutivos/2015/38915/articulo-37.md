@@ -1,2 +1,1 @@
-Artículo 37.—Las plazas por servicios especiales, no se podrán convertir a plazas por cargos fijos.
-No se le podrá variar la naturaleza a las plazas de confianza. Además, deberán estar acorde con la estructura organizacional aprobada por el MIDEPLAN. En el caso de una reestructuración organizacional donde se elimine la unidad administrativa en que se ubican, los puestos de confianza deberán ser eliminados.
+Artículo 38.—La AP comunicará cada año, a las entidades públicas, ministerios y órganos desconcentrados, la cantidad de puestos autorizados, así como sus modificaciones.

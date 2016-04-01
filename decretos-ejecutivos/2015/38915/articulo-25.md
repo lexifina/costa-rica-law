@@ -1,1 +1,3 @@
-Artículo 25.—Las entidades públicas exceptuadas de la aplicación del “Reglamento para Gestionar la Autorización para la Contratación del Crédito Público del Gobierno de la República, Entidades Públicas y demás Órganos según corresponda”, remitirán a la Dirección de Crédito Público, cada vez que se requiera, información sobre la deuda pública contratada.
+CAPÍTULO V
+Sobre materia salarial
+Artículo 26.—Los puestos excluidos del Régimen de Servicio Civil, de las entidades cubiertas por el ámbito de la AP, serán valorados por este Órgano Colegiado.

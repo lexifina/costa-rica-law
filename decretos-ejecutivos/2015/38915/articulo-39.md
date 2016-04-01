@@ -1,1 +1,1 @@
-Artículo 39.—En aquellos casos en que exista contenido presupuestario en la Ley de Presupuesto de la República, para financiar posibles nuevas plazas para los ministerios y órganos desconcentrados, únicamente podrán utilizarse hasta que cuenten con la aprobación respectiva por parte de la AP.
+Artículo 40.—Las entidades públicas que cuentan con plazas docentes y policiales, no podrán utilizarlas para otro fin.

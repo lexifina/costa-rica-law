@@ -1,2 +1,4 @@
-Artículo 19.—Las entidades públicas y órganos desconcentrados que se financien con recursos provenientes de transferencias del Presupuesto de la República y que tienen capacidad legal para cobrar por los servicios que prestan, deberán establecer precios y tarifas que contribuyan a reducir gradualmente su dependencia del Presupuesto de la República.
-Para verificar el cumplimiento de lo indicado en el párrafo anterior, deberán remitir a la STAP dentro de los diez días hábiles posteriores a la finalización de cada semestre, un informe sobre las acciones realizadas para disminuir la dependencia de recursos provenientes de transferencia del Presupuesto de la República. Los requerimientos del informe serán comunicados por la STAP mediante circular.
+CAPÍTULO III
+Sobre inversiones financieras
+Artículo 20.—Las entidades públicas deberán cumplir con las Políticas Generales de Captación establecidas por la Tesorería Nacional para la adquisición de títulos de Gobierno, incluyendo las garantías judiciales y otras cauciones ordenadas por el Poder Judicial, así como las garantías requeridas a las entidades como las ambientales, entre otras.
+Para la adquisición de cualquier otro tipo de activo financiero, se deberá contar con la autorización previa de la Tesorería Nacional.

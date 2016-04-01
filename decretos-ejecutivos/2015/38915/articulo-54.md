@@ -1,1 +1,1 @@
-Artículo 54.—El incumplimiento de lo dispuesto en estas directrices podrá acarrear la aplicación del régimen de responsabilidad establecido en el título X, artículos 107 y siguientes de la Ley N° 8131 ya citada.
+Artículo 55.—La STAP, cuando corresponda, divulgará en la página electrónica del Ministerio de Hacienda los requerimientos de información sobre las solicitudes que presenten las entidades públicas, ministerios y órganos desconcentrados.

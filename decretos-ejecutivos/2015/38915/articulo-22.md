@@ -1,4 +1,1 @@
-CAPÍTULO IV
-Sobre endeudamiento público
-Artículo 22.—La Dirección de Crédito Público deberá presentar ante la AP para su conocimiento, la propuesta de la Política de Endeudamiento y reducción de la deuda pública tanto interna como externa, para el corto, mediano y largo plazo, para aprobación del Presidente de la República.
-La Dirección de Crédito Público, a más tardar el 1º de marzo de cada año, deberá presentar a la AP la revisión y actualización de la Política de Endeudamiento y reducción de la deuda pública y un estudio sobre el comportamiento y composición del endeudamiento del Sector Público no Financiero.
+Artículo 23.—Las entidades públicas y órganos desconcentrados, procurarán cubrir con recursos propios los gastos de contrapartida local, los estudios de prefactibilidad y de perfiles, que se requieran para la ejecución de proyectos, en adición a los provenientes de fuentes externas y en especial de endeudamiento público.

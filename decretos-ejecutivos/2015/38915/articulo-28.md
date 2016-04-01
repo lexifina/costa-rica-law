@@ -1,1 +1,1 @@
-Artículo 28.—Las revaloraciones, modificaciones de escala, otros conceptos salariales, ajustes y aspectos técnicos, emitidos por la Dirección General de Servicio Civil, cuando corresponda, podrán hacerse extensivos por parte de la AP, a las entidades homologadas y no homologadas, previa presentación a la STAP, del estudio técnico correspondiente, para el dictamen del Órgano Colegiado.
+Artículo 29.—El pago de los salarios de los servidores de las entidades públicas, ministerios y órganos desconcentrados, será mensual y se hará efectivo por quincena vencida.

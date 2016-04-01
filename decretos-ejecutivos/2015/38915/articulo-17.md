@@ -1,4 +1,2 @@
-Artículo 17.—Las entidades públicas, ministerios y órganos desconcentrados, en la planeación, programación, presupuestación y ejecución del gasto de inversión en obras de infraestructura y servicios relacionados, de conformidad con la política de Gobierno y lo establecido por el MIDEPLAN, deberán dar prioridad en su orden, a lo siguiente:
-• Las obras en proceso.
-• Las obras nuevas que cuenten con estudios de factibilidad.
-• Estudios y proyectos nuevos.
+Artículo 18.—Las entidades públicas que tengan capacidad financiera, podrán realizar la construcción de nuevos edificios o la adquisición de inmuebles, solamente si en el mediano plazo implica un ahorro en el pago de alquileres y no repercuta en el desarrollo normal de sus actividades, previo estudio que demuestre su factibilidad económica y financiera.
+Dichos gastos deberán contar con el aval del Ministro Rector.

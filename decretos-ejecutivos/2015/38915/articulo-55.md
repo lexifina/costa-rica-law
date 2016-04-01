@@ -1,1 +1,1 @@
-Artículo 55.—La STAP, cuando corresponda, divulgará en la página electrónica del Ministerio de Hacienda los requerimientos de información sobre las solicitudes que presenten las entidades públicas, ministerios y órganos desconcentrados.
+Artículo 56.—Las entidades públicas, ministerios y órganos desconcentrados, observarán los Procedimientos de estas directrices, que el Poder Ejecutivo establezca mediante decreto ejecutivo para su aplicación y seguimiento.

@@ -1,1 +1,4 @@
-Artículo 16.—Para efectos de la formulación de los presupuestos, los ministerios, entidades públicas y órganos desconcentrados solo podrán incorporar los proyectos que estén incluidos en el Banco de Proyectos de Inversión Pública del MIDEPLAN y que cumplan con los requerimientos establecidos por dicho ministerio.
+Artículo 17.—Las entidades públicas, ministerios y órganos desconcentrados, en la planeación, programación, presupuestación y ejecución del gasto de inversión en obras de infraestructura y servicios relacionados, de conformidad con la política de Gobierno y lo establecido por el MIDEPLAN, deberán dar prioridad en su orden, a lo siguiente:
+• Las obras en proceso.
+• Las obras nuevas que cuenten con estudios de factibilidad.
+• Estudios y proyectos nuevos.

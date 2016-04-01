@@ -1,1 +1,1 @@
-Artículo 51.—La fecha de rige de los acuerdos tomados por la AP, en ejercicio de sus competencias, será el primer día del mes siguiente al de la aprobación del acuerdo, sin perjuicio de lo dispuesto en la normativa vigente.
+Artículo 52.—En caso de que las fechas establecidas para la remisión de información no correspondan a días hábiles, será presentada el día hábil inmediato siguiente.

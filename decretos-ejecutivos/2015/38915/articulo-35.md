@@ -1,1 +1,3 @@
-Artículo 35.—A los puestos de servicios especiales se les aplicará el mismo sistema de clasificación y valoración utilizado para los puestos de cargos fijos.
+CAPÍTULO VI
+Sobre empleo
+Artículo 36.—No se autorizará la creación de plazas. La AP conocerá y valorará únicamente casos excepcionales.

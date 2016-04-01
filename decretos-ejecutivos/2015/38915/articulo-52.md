@@ -1,1 +1,1 @@
-Artículo 52.—En caso de que las fechas establecidas para la remisión de información no correspondan a días hábiles, será presentada el día hábil inmediato siguiente.
+Artículo 53.—Las entidades públicas, ministerios y órganos desconcentrados, en aras de cumplir el principio de publicidad del presupuesto, deberán divulgar en sus páginas web los presupuestos, su programación de metas y resultados de cada periodo ante la sociedad civil.
