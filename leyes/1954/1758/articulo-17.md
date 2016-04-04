@@ -1,9 +1,9 @@
 Artículo 17.- Es absolutamente prohibido:
 a) La trasmisión y recepción de correspondencia privada, salvo expresa autorización del autor o la divulgación del contenido o de la existencia de dicha correspondencia, en caso de llegarse a interceptar;
-b) La trasmisión o circulación de noticias falsas, señales o llamadas de alarma sin fundamento;
+b) (Derogado por el artículo único de la ley N° 9347 del 21 de enero del 2016)
 c) La retransmisión de programas de radiodifusión provenientes de otras estaciones sin el consentimiento expreso de los interesados;
-ch) El uso de lenguaje vulgar o contrario a las buenas costumbres;
-d) Usar lenguaje injurioso que perjudique el honor e interés personales;
+ch) (Derogado por el artículo único de la ley N° 9347 del 21 de enero del 2016);
+d) (Derogado por el artículo único de la ley N° 9347 del 21 de enero del 2016);
 e) Hacer funcionar una estación sin autorización legal;
 f) Traspasar o enajenar el derecho a una frecuencia sin la previa autorización del Ministerio de Ciencia Tecnología y Telecomunicaciones(*)
 (Así reformado el inciso anterior por el artículo 76 aparte a) de la Ley N° 8642 del 4 de junio de 2008).
