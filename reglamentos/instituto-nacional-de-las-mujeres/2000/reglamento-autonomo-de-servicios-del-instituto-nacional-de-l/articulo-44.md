@@ -1,7 +1,8 @@
 Artículo 44.—Son obligaciones de los y las funcionarios/as, entre otras, las siguientes:
 a) Servir a la comunidad y promover la protección de todas las personas contra actos ilegales, especialmente aquellos que implican discriminación contra la mujer y su familia.
 b) Prestar orientación inmediata a mujeres y sus familias que por razones de violación de sus derechos lo necesitan.
-c) Respetar y proteger la dignidad y los derechos humanos de todas las personas.
+c) Respetar y proteger la dignidad y los derechos humanos de todas las personas, tanto funcionarias como usuarias. Se considerará falta grave la discriminación en razón de sexo o género, edad, etnia, nacionalidad, religión, filiación política, idioma, ocupación, orientación sexual e identidades de género o por tener alguna condición de discapacidad.
+(Así reformado el inciso anterior en sesión N° 8 del 04 de abril del 2016)
 d) Mantener en secreto los asuntos de carácter confidencial de que se tenga conocimiento en el ejercicio de las funciones, especialmente las calidades personales de las afectadas/os, a menos que el cumplimiento del deber, la necesidad de la justicia y la protección de los derechos humanos exijan estrictamente lo contrario. Podrán realizar consultas sobre ello a su jefatura inmediata.
 e) Representar al Instituto y a sus autoridades en los medios de comunicación masiva, eventos nacionales e internacionales, salvo que cuente con autorización expresa de las mismas para tales actos.
 f) Respetar la ley y oponerse rigurosamente a su incumplimiento.

@@ -19,3 +19,4 @@ Reglamento Autónomo de Servicios del Instituto Nacional de la Mujer
 | 4 | 2007-02-15 | Acuerdo 4 (2007-02-15) |
 | 5 | 2011-03-09 | Reglamento 9 (2011-03-09) |
 | 6 | 2012-04-25 | Reglamento 11 (2012-04-25) |
+| 7 | 2016-04-04 | Reglamento 8 (2016-04-04) |
