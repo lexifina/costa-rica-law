@@ -14,3 +14,4 @@ Normativa del Procedimiento Disciplinario del Colegio de Médicos y Cirujanos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-16 | la propia norma |
+| 2 | 2016-04-06 | Reglamento 0 (2016-04-06) |
