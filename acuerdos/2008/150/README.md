@@ -14,3 +14,4 @@ Guía para la Elaboración de la Adenda de Proyectos para Fondos de Desarrollo I
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-20 | la propia norma |
+| 2 | 2016-04-07 | Acuerdo 208 (2016-04-07) |
