@@ -14,3 +14,4 @@ Contenido Mínimo del Prospecto Simplificado y del Comunicado de Hecho Relevante
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-02-23 | la propia norma |
+| 2 | 2016-04-07 | Acuerdo 209 (2016-04-07) |
