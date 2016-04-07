@@ -1,1 +1,0 @@
-Artículo 2º—Deróguese el Decreto Ejecutivo número 39272-H de fecha 14 de octubre de 2015, publicado en La Gaceta número 211 de fecha 30 de octubre de 2015, a partir de la vigencia del presente decreto.
