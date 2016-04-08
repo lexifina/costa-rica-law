@@ -8,5 +8,7 @@ f) Gestionar la ayuda técnica de expertos para la preparación de los Informes 
 g) Coordinar la ayuda de expertos para el asesoramiento en el tema de humedales a través del Coordinador Nacional GECT, para la preparación de documentos técnicos sobre diversos aspectos relacionados con la materia.
 h) Colaborar con el Sistema Nacional de Áreas de Conservación y el Programa Nacional de Humedales mediante los mecanismos de justificación y el Procedimiento de Orientación para la Gestión, en el caso de inclusión o exclusión de sitios Ramsar en el registro Montreux, al presentarse cambios en las características ecológicas, el cual debe ser comunicado a la Convención por la Autoridad Administrativa,
 i) Dar seguimiento a la aplicación de las Resoluciones y Recomendaciones adoptadas por la Conferencia de las Partes Contratantes de Ramsar.
-j) Los demás que sobre la materia le señale el Ministro(a) de Ambiente y Energía
+j) Los demás que sobre la materia le señale el Ministro(a) de Ambiente y Energía.
+k) Colaborar y asesorar en la implementación de la Política Nacional de Humedales.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39700 del 08 de abril del 2016)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39161 del 29 de abril del 2015)
