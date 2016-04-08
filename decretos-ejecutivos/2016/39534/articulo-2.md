@@ -1,0 +1,1 @@
+Artículo 2º—El Ministro de Agricultura y Ganadería podrá solicitar de oficio la colaboración de los Ministros respectivos de Gobierno, o de la Presidencia Ejecutiva del INCOPESCA, para que, ante un tema técnico agendado por la CIAT, puedan designar a un funcionario de nivel técnico como parte de la delegación de Costa Rica, en apoyo de la labor de los Comisionados.
