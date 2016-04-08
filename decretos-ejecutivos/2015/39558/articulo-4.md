@@ -1,0 +1,1 @@
+Artículo 4º—Vencido el plazo de doce meses la Junta Directiva de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias deberá solicitar la derogatoria definitiva del Decreto de Emergencia de conformidad con lo establecido en el artículo 37 de Ley Nacional de Emergencias y Prevención del Riesgo número 8488.
