@@ -19,3 +19,7 @@ b) Segunda vez: Despido sin responsabilidad patronal
 a) Primera vez: Suspensión por ocho días hábiles.
 b) Segunda vez: Despido sin responsabilidad patronal.
 5- Conductas definidas en el artículo 105 como causa justa o falta grave: Despido sin responsabilidad para el Ministerio.
+6. Se considerará falta grave, la violación de las disposiciones de los artículos 22 inciso v), 23 incisos), 24 inciso 35) y 26 inciso t) de este Reglamento.
+a. Primera vez: Suspensión sin goce de salario, hasta por quince días.
+b. Segunda vez: Despido sin responsabilidad patronal.
+(Así adicionado el inciso 6) anterior por el artículo 1° del decreto ejecutivo N° 39723 del 8 de abril de 2016)

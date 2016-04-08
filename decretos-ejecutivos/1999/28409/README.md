@@ -16,3 +16,4 @@ Reglamento Autónomo de Servicios del Ministerio del Ambiente y Energía
 | 1 | 2000-02-17 | la propia norma |
 | 2 | 2006-02-27 | Decreto Ejecutivo 33030 (2006-02-27) |
 | 3 | 2012-06-25 | Ley 9046 |
+| 4 | 2016-04-08 | Decreto Ejecutivo 39723 (2016-04-08) |

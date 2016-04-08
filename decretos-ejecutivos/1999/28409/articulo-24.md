@@ -1,4 +1,4 @@
-Articulo 24.—Además de lo establecido en el Código de Trabajo, la Ley General de la Administración Pública, el Estatuto de Servicio Civil y su Reglamento y demás leyes conexas; así como de lo indicado en este reglamento, queda prohibido a los funcionarios (as):
+Articulo 24.—Además de lo establecido en el Código de Trabajo, la Ley General de la Administración Pública, el Estatuto de Servicio Civil y su Reglamento y demás leyes conexas; así como de lo indicado en este Reglamento, queda prohibido a los funcionarios (as):
 1- Valerse de un puesto o la influencia que surja de él. para conferir o procurar servicios o trámites espaciales, nombramientos, o cualquier otro beneficio personal que implique un privilegio, a sus familiares, amigos o cualquier oirá persona, medie o no remuneración.
 2- Emitir normas en su propio beneficio.
 3- Usar el título oficial, los distintivos, la papelería o el prestigio de cualquier dependencia dei Ministerio para asuntos de carácter personal o privado.
@@ -33,3 +33,5 @@ Articulo 24.—Además de lo establecido en el Código de Trabajo, la Ley Genera
 32- Realizar actos de acoso laboral, entendiendo como tales aquellas acciones u omisiones tendientes a obstaculizar el normal desempeño de la labores a cualquier funcionario del Ministerio.
 33- Aquellas otras prohibiciones que se estipulen por los medios administrativos y jurídicos pertinentes, y las demás incluidas en la legislación existente al respecto
 34- Efectuar un registro o marca de asistencia que no sea el suyo, o consienta o solicite a otro que le registre su marca de asistencia.
+35) Utilizar lenguaje o realizar conductas que sean discriminatorias o contrarias a la dignidad de personas por razones de raza, etnia, nacionalidad, idioma, género, orientación sexual o identidad de género hacia cualquier usuario o personal de la Institución.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39723 del 8 de abril de 2016)

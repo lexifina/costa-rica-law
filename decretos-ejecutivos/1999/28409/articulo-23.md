@@ -1,4 +1,4 @@
-Articulo 23.—Además de las contempladas en oíros Artículos del présenle Reglamento, los funcionarios (as) que ocupen cargos con autoridad administrativa, técnica o de ambos tipos están obligados a:
+Articulo 23.— Además de las contempladas en otros artículos del présenle Reglamento, los funcionarios ( as) que ocupen cargos con autoridad administrativa, técnica o de ambos tipos están obligados a:
 a) Diagnosticar periódicamente en forma objetiva y veraz, las características del desempeño de todos sus colaboradores, tanto en el aspecto técnico como administrativo, y procurar en la medida de sus posibilidades, gestionar la capacitación que requieran para el mejor desempeño de sus labores.
 b) Preparar informes y reportes sobre la marcha de su respectiva unidad, programa o proyecto; y en forma inmediata, sobre cualquier hecho relevante que requiera pronta solución.
 c) Hacer cumplir las normas de disciplina y asistencia de sus colaboradores.
@@ -18,3 +18,5 @@ o) Cumplir sus funciones sin sujeción de los limites de la jornada establecida 
 p) Elevar a decisión del Ministerio (a) en el término improrrogable de tres días a partir del que tuvo conocimiento, las faltas graves en que incurrieron los servidores (as).
 q) Divulgar por los medios respectivos y hacer cumplir la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia.
 r) Cumplir con todas las demás obligaciones propias de su cargo.
+s) No incurrir en prácticas discriminatorias hacia cualquier servidor o usuario de la Institución por razones de raza, etnia, nacionalidad, idioma, género, orientación sexual o identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39723 del 8 de abril de 2016)
