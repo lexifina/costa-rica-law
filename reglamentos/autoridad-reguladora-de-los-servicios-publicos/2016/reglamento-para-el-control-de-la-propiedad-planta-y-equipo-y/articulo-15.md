@@ -1,0 +1,1 @@
+Artículo 15- Cálculo de gastos por depreciación y amortización. Para el cálculo del gasto por depreciación y amortización, Finanzas utilizará la normativa contable vigente, las tablas autorizadas por la Dirección General de Tributación Directa del Ministerio de Hacienda y el método que se defina en las políticas contables institucionales.

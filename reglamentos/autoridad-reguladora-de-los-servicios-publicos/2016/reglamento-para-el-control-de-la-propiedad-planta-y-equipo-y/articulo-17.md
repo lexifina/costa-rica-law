@@ -1,0 +1,1 @@
+Artículo 17- Trámite para determinar equipo de cómputo para desechar o donar. Cuando se vaya a desechar o donar equipo de cómputo, Tecnologías de Información debe certificar que el equipo se encuentra en mal estado y no tiene reparación o que es obsoleto, por lo que deberá entregarlo a Proveeduría para lo que proceda.

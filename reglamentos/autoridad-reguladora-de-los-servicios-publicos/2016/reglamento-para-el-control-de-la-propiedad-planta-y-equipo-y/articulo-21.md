@@ -1,0 +1,1 @@
+Artículo 21- Derogatoria. Se deroga el “Reglamento para el Control de Activos Fijos de la Autoridad Reguladora de los Servicios Públicos.”, publicado en el Alcance 60 de La Gaceta 241 del 15 de diciembre de 1997 y sus reformas.

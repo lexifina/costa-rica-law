@@ -1,0 +1,17 @@
+Artículo 6- Funciones de Servicios Generales. Competerá a Servicios Generales:
+1) Realizar una vez al año, a más tardar el 30 de setiembre, un inventario de la propiedad planta y equipo y activos intangibles de la Institución, y remitir a Finanzas, un informe sobre el inventario para efectos de comprobar la existencia, responsable del activo, localización y su condición, así como verificar que tengan fijada la placa en los casos que corresponde.
+2) Velar porque los procedimientos necesarios para el orden, localización y control del movimiento (asignación, reasignación, préstamo, traslado, salida, ingreso, devolución y baja) de los activos, así como para el ingreso y salida de bienes propiedad de los funcionarios o de los usuarios de la Institución, y cualquier otro afín con el cumplimiento de este Reglamento, sean revisados y actualizados.
+3) Revisar los activos tangibles exceptuando equipo de cómputo, que sean reportados como dañados y recomendar al custodio del activo la reparación, o la baja por obsolescencia o desecho según corresponda, para que inicie el procedimiento.
+4) Velar por la conservación adecuada de la propiedad, planta y equipo, exceptuando equipo de cómputo e intangibles, para lo que deberá promover el mantenimiento preventivo, correctivo y sistemático, según corresponda.
+5) Informar a Finanzas de las asignaciones, reasignaciones, préstamos, traslados entre edificios, bodegas e instituciones, y donaciones de activos para su debido registro contable.
+6) Realizar, en el caso de la Aresep, los trámites respectivos para la donación y desecho de activos, de conformidad con el ordenamiento jurídico vigente.
+7) Trasladar, en coordinación con Proveeduría, los activos que se clasifiquen como desecho, de las oficinas de la Institución a las bodegas destinadas al efecto.
+9) En el caso de la Aresep, notificar a la jefatura inmediata los faltantes de activos que se identifiquen mediante los resultados de inventarios de activos, para que se eleve a las instancias que correspondan y se inicien los debidos procesos.
+8) Preparar las actas de destrucción y donaciones de activos.
+9) Desechar y realizar las donaciones de los activos indicados por Proveeduría, previamente aprobadas por el Jerarca Superior Administrativo, y de conformidad con el ordenamiento jurídico vigente. Así como informar a Finanzas para que proceda a dar de baja en los casos respectivos.
+10) Controlar el ingreso y la salida de activos de las instalaciones de la Institución.
+11) Realizar las gestiones ante quien corresponda para llevar a cabo el avalúo de la propiedad, planta y equipo, y presentar un informe con el valor actual de mercado a Finanzas para su registro contable.
+12) Realizar los trámites pertinentes para adquirir pólizas de seguro para los activos que lo requieran, mantenerlas vigentes y actualizadas a valores de mercado o valor de adquisición, según las condiciones impuestas por la aseguradora, de conformidad con las líneas de seguro.
+13) Presentar los reclamos correspondientes ante la aseguradora respectiva, en virtud de los daños o robos que sean objeto los activos asegurados en las distintas líneas de seguro suscritas, así como atender los trámites administrativos requeridos por la aseguradora.
+14) Administrar y controlar los contratos por concepto de mantenimiento de los activos tangibles excepto equipo de cómputo.
+15) Llevar a cabo el trámite de venta o permuta de activos, de conformidad con el ordenamiento jurídico vigente.

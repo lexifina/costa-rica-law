@@ -1,0 +1,1 @@
+Artículo 14- Revaluación de activos. Los activos podrán ser revaluados, con el fin de mantener el valor real de mercado y actualizadas las pólizas de seguros. Una vez recibido el informe de Servicios Generales, Finanzas deberá realizar el registro contable de la revaluación, de acuerdo con lo que estipule la normativa contable vigente.

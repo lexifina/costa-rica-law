@@ -1,0 +1,1 @@
+Transitorio II. La Dirección de Finanzas llevará el registro de los bienes adquiridos por Proveeduría, con la herramienta y la forma en que lo viene realizando, hasta tanto entre en operación el Sistema que administre esta materia.

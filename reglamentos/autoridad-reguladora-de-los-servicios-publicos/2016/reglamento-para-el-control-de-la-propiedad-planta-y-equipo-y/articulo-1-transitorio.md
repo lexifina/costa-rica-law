@@ -1,0 +1,1 @@
+Transitorio I. Dentro del plazo de 6 meses contados a partir de la publicación de este Reglamento, La Dirección de Finanzas y los Departamentos de Servicios Generales y Proveeduría, deberán actualizar los procedimientos y formularios por utilizar, en coordinación con la Dirección General de Estrategia y Evaluación.

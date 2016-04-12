@@ -1,0 +1,1 @@
+Artículo 13- Fuentes que se toman en cuenta para valorizar bienes. En los registros contables todos los bienes deben estar valorizados considerando todos los elementos que la normativa contable vigente estipule.
