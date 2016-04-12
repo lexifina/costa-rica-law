@@ -1,1 +1,0 @@
-Artículo 8º— Con el fin de promover la consulta y participación ciudadana en la ejecución de El Programa de Desarrollo de la cuenca del Río Grande del Térraba se promoverán comisiones de diálogo temáticas con los diputados, gobiernos locales, organizaciones ambientalistas, comunidades indígenas y sociedad civil.

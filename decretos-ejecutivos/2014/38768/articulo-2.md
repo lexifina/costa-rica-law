@@ -1,1 +1,0 @@
-Artículo 2º— Objetivo de la Comisión. El objetivo de la Comisión de Alto Nivel será la de coordinar y apoyar la ejecución del “Programa de Desarrollo de la Cuenca Río Grande de Térraba” en adelante EL PROGRAMA, el cual contará con una Secretaría Técnica para realizar todas las acciones necesarias para el cumplimiento de su objetivo.
