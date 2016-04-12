@@ -1,0 +1,10 @@
+10.—Centro de Documentación que oficializa.
+Centro de Documentación Administración Superior.
+Los Titulares Subordinados que reciban para su resolución los casos remitidos por la Contraloría de Servicios, deberán realizar una investigación exhaustiva considerando los siguientes elementos:
+1. Analizar e investigar las causas y consecuencias de los hechos denunciados y la afectación de los servicios que brinda la Empresa a sus clientes, a las comunidades y a la imagen institucional. Cuando la situación lo amerite, se deberán tomar acciones inmediatas con el fin de evitar una mayor afectación a los clientes, usuarios y públicos de RECOPE.
+2. Analizar el proceso de forma integral y realizar las acciones necesarias para evitar la recurrencia de situaciones similares,
+tales como: revisión de medidas de control interno, modificación de procedimientos, planificación de acciones o inversiones necesarias a futuro y su incorporación en los planes anuales operativos.
+3. Comunicar a la Contraloría de Servicios en el plazo establecido de cinco días hábiles, sobre las acciones realizadas o medidas que se adoptarán para solucionar de forma integral la situación que generó la queja, denuncia o sugerencia y el tiempo estimado de ejecución. Así mismo, deberá comunicar cualquier motivo de retraso en las acciones planificadas y cuando éstas hayan sido ejecutadas, documentando lo realizado mediante informes, fotografías, notas u otros.
+4. Cuando el titular subordinado determine el incumplimiento de la normativa vigente por parte de algún funcionario de la Empresa, deberá actuar conforme a lo estipulado en el régimen disciplinario.
+5. Suministrar oportunamente la información, apoyo y recursos solicitados por la Contraloría de Servicios para fines de su competencia.
+6. Por ningún motivo tomarán represalias contra las personas denunciantes; los efectos de cualquier represalia que se compruebe se realice a raíz de la interposición de una denuncia ante la Administración, serán revertidos contra la persona que las emprenda, mediante la realización de los procedimientos disciplinarios que procedan y la aplicación de las sanciones pertinentes.

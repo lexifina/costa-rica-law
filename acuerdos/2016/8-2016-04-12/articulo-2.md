@@ -1,0 +1,1 @@
+2º—Alcance. Este procedimiento debe ser aplicado por la persona Contralora de Servicios, los Subcontralores de Servicios, las personas colaboradoras de la Contraloría de Servicios, los Titulares Subordinados y la persona Presidente de RECOPE, conforme a su competencia.
