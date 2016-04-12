@@ -1,6 +1,6 @@
 # Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2016
 
-Ley N° 9341 del 2015-12-01. SINALEVI, ficha 80804: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=80804&param2=103734&param3=1>.
+Ley N° 9341 del 2015-12-01. SINALEVI, ficha 80804: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=80804&param2=103896&param3=1>.
 
 Publicada en La Gaceta N° 240 del 2015-12-10.
 
@@ -14,3 +14,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 4 de 26 | 2016-03-01 | Decreto Ejecutivo 39522 (2016-02-11) | 2016-02-11 |
 | 5 de 26 | 2016-04-04 | Decreto Ejecutivo 39590 (2016-03-08) | 2016-03-08 |
 | 6 de 26 | 2016-04-12 | Decreto Ejecutivo 39619 (2016-03-17) | 2016-03-17 |
+| 7 de 26 | 2016-04-12 | Decreto Ejecutivo 39683 (2016-04-14) | 2016-04-14 |
