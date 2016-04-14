@@ -1,0 +1,1 @@
+Artículo 2º—La visión consensuada de la PEDRT es contar con territorios rurales integrados al desarrollo nacional con una mejor calidad de vida de sus habitantes, mediante una gestión integrada, articulada y participativa de la institucionalidad pública, empresa privada y sociedad civil, en un marco de cohesión, equidad, solidaridad, respeto y compromiso al año 2030.

@@ -1,0 +1,15 @@
+Artículo 5º—Población objetivo. Se conceptualiza como la población objetivo o destinataria de los bienes y servicios de los planes, programas y proyectos que se deriven de la Política, las personas físicas y jurídicas, integradas a los procesos de desarrollo rural territorial, conforme a la siguiente descripción:
+1. Personas físicas: Se incluyen los siguientes tipos: productores y productoras; productores y productoras de la micro, pequeña y mediana empresa y personas físicas no generadoras de ingresos. Se caracterizan del modo siguiente:
+• Productores y productoras: Se encuentran al frente de las denominadas economías familiares rurales. Son unidades económicas que funcionan de forma autogestionaria por la familia, con acceso a la tierra o no y al área rural.
+Se comportan como emprendimientos familiares puesto que la familia constituye la reserva de mano de obra y, al mismo tiempo, es una unidad de consumo. Por la posibilidad de satisfacer necesidades de consumo con su propia producción, combinan producción de subsistencia y de mercado.
+• Productores y productoras (micro, pequeño y mediano): Personas que desarrollan unidades económicas de carácter empresarial, en las cuales la participación de la familia no es definitiva. La mayor parte de su producción está destinada al mercado y utilizan en forma regular mano de obra contratada.
+• Personas físicas no generadoras de ingresos. Son las personas que no cuentan con una actividad específica que genere ingresos (ejemplo trabajadoras del hogar, estudiantes, personas desempleadas, entre otras).
+• Personas que tradicionalmente han sido invisibilizadas y excluidas para el acceso a los bienes y servicios del Estado (personas con discapacidad, adultos mayores, mujeres, jóvenes, grupos étnicos, pueblos originarios).
+2. Personas jurídicas: Organizaciones de diferente naturaleza del medio rural, entre ellas:
+• Organizaciones que se dedican a actividades productivas del medio rural, que cuentan con personería jurídica.
+• Organizaciones que se dedican a actividades diversas, integradas por personas con discapacidad, personas adultas mayores, mujeres, jóvenes, gobiernos de pueblos originarios y grupos étnicos que cuentan con personería jurídica.
+• Organizaciones constituidas por personas egresadas del sector educativo formal e informal que cuenten con personería jurídica vigente.
+• Micro, pequeña, y mediana empresa, unidades económicas de carácter empresarial, la mayor parte de su producción está destinada al mercado y utilizan en forma regular mano de obra contratada.
+• Organizaciones comunales con personería jurídica que tienen el propósito de propiciar el desarrollo integral de su entorno y mejorar las condiciones de vida de su comunidad.
+• Gobiernos locales, constituidos por las municipalidades con cobertura cantonal y los Consejos de Distrito, cuando corresponda. Tienen autonomía política y administrativa en los asuntos de su competencia.
+• Instituciones públicas, con los que se suscriben convenios y alianzas estratégicas.
