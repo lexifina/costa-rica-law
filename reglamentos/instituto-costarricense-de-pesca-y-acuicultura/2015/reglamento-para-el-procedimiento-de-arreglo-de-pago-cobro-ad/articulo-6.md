@@ -1,7 +1,3 @@
-Artículo 6º—Del proceso del arreglo de pago. Se podrán autorizar arreglos de pago de conformidad con los siguientes parámetros:
-1. Pago inicial para todos los casos mínimo con un 15% sobre el pago total adeudado, entiéndase principal más intereses, mismos que se establecerán según la tasa básica pasiva del Banco Central de Costa Rica.
-2. Del plazo para cancelar el saldo adeudado resultante (85% de la deuda):
-a. Montos iguales o superiores a quinientos mil colones en 36 pagos mensuales de montos igual.
-b. Montos inferiores a quinientos mil colones 24 pagos mensuales de montos iguales.
-c. Quedará a criterio de la administración y de previo acuerdo
-con el administrado si el monto de los pagos mensuales se podrá realizar por trimestre o semestre vencido sin exceder el plazo concedido.
+Artículo 6º—Se podrán autorizar arreglos de pago de conformidad con los siguientes parámetros: Pago inicial para todos los casos mínimo con un 15% sobre el pago total adeudado, entiéndase principal más intereses. Los intereses serán calculados trayendo cada periodo a valor presente hasta el día del arreglo de pago, y se calcularán a la tasa de interés activa promedio del Sistema Financiero del último mes calculado a partir de los préstamos en moneda nacional y en dólares, las cuales serán aplicadas a las tarifas fijadas en colones y en dólares, respectivamente.
+El Departamento Financiero procederá semestralmente a realizar la revisión de las tasas de interés activa promedio del Sistema Financiero de los últimos seis meses, tanto en moneda nacional como dólares, a fin de actualizarla en el cobro de la multa por pago tardío de los bienes y servicios, en colones y en dólares.
+(Así reformado mediante acuerdo AJDIP/145/2016 del 14 de abril del 2016)
