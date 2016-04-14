@@ -14,3 +14,4 @@ Reforma Tarifas por la venta de bienes y servicios que brinda y genera el INCOPE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-12 | la propia norma |
+| 2 | 2016-04-14 | Acuerdo 145 (2016-04-14) |
