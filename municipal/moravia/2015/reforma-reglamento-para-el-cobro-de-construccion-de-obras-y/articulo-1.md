@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE MORAVIA
+El Concejo Municipal de Moravia, según acuerdo N° 2727- 2015 tomado en la sesión ordinaria N° 296 del 28 de diciembre del 2015, aprobó en forma definitiva la reforma a los artículos 23 y 26 del Reglamento para el cobro de construcción de obras y servicios realizados por la Municipalidad de Moravia como consecuencia a la omisión a los deberes establecidos en el artículo 75 del Código Municipal, el cual dispone lo siguiente:
+“Artículo 23. Valor del metro lineal de construcción de cerca. El valor del metro lineal por construcción de cerca electrosoldada asciende a ¢77.720,72 y el valor de la cerca de postes de concreto con alambre liso tiene un costo de ¢45.982,08.
+Artículo 26. Valor del metro lineal de instalación de canoas, bajantes y colocación de desagües en aceras. El valor del metro lineal por instalación de canoas corresponderá a un monto total de ¢14.004,97 el monto correspondiente a la instalación de bajantes es de ¢9.855,99 y por ultimo instalación de desagües sobre las aceras tendrá un costo de ¢19.948,13.”
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
