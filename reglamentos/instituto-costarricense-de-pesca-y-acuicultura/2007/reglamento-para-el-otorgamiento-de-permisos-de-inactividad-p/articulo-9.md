@@ -1,1 +1,0 @@
-Artículo 9º—Derogatoria. Deróguese los Acuerdos AJDIP-132-99, AJDIP-064-2003, AJDIP/380-2004, AJDIP/534-2004, AJDIP/109-2005 en sus artículos 5, 6, 7, 8, 9 y 10. Así como cualquier disposición legal de igual o menor rango que se le oponga.
