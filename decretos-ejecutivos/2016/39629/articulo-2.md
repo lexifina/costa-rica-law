@@ -1,0 +1,1 @@
+Artículo 2°—En todo lo demás, el Decreto Ejecutivo N° 38002-C – Creación del Centro de Producción Artística y Cultural, del 26 de setiembre de 2013, publicado en el Diario Oficial La Gaceta N° 220 del 14 de noviembre de 2013, permanece incólume.
