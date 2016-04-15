@@ -1,0 +1,2 @@
+Artículo 13°. Facultades de la Dirección General de Migración y Extranjería.
+La Dirección General de Migración y Extranjería deberá determinar los requisitos que deberán, acreditar los ciudadanos costarricenses y residentes en el país para optar por el Permiso Vecinal o Permiso de Tránsito Vecinal Fronterizo, que les facu1tará para ser acreedores del beneficio de exención del tributo de cinco dólares estadounidenses (US$5,OO) para la salida por vía terrestre del territorio nacional.

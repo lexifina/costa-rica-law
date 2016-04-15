@@ -1,0 +1,2 @@
+Artículo 19°. Responsabilidad del Presidente del Consejo de Puestos Fronterizos Terrestres.
+Es responsabilidad del Presidente del Consejo de Puestos Fronterizos Terrestres, dar el seguimiento a la ejecución de los recursos presupuestados en virtud de los tributos creados en el artículo 4 de la Ley número 91 S4 citada, debidamente incorporados en la Ley de Presupuesto Ordinario y Extraordinario de la República de cada ejercicio económico, de conformidad con la utilización que-el Consejo haya acordado para dichos recursos en el respectivo periodo.

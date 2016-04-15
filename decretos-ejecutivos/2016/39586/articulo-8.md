@@ -1,0 +1,3 @@
+Artículo 8°. Forma y medio para la presentación de la información.
+La infonnaci6n que se indica en el artículo anterior, deberá ser incluida en un archivo digital en formato Excel o Texto y deberá remitirse inicialmente al correo electrónico pagos_sdpec@hacienda.go.cr, una vez que se implemente el sistema informático para que la información se transmita en forma automática y electrónica.
+El formato, medio de presentación y periodicidad de la información indicada en el artículo anterior, podrán ser modificados por la Dirección General de Tributación, para lo cual, deberá comunicado a los entes encargados del suministro con un mínimo de quince días de anticipación.
