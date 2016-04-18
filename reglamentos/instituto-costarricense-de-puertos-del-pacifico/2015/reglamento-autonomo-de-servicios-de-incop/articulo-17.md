@@ -1,0 +1,1 @@
+Artículo 17.- Los contratos de trabajo que se celebren con personas del sexo femenino o con menores de edad se garantizarán todos los derechos y ventajas que a este tipo de trabajadores reconoce el Código de Trabajo y Leyes Especiales Conexas.

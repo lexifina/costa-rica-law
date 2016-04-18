@@ -1,0 +1,1 @@
+Artículo 102.- Los subsidios dichos se pagarán al trabajador por quincena, en los días de pago ordinario que efectúa el Instituto a su personal, siempre y cuando se hubiese llenado el requisito imprescindible de demostración de la incapacidad por motivo de enfermedad o accidente.

@@ -1,0 +1,1 @@
+Artículo 6.- Las personas que ejerzan cargo de dirección, encargados de áreas administrativas, son representantes patronales. En las relaciones con sus subalternos están obligados a cumplir y/o hacer que se cumplan las órdenes e instrucciones emanadas de la Gerencia General y de conformidad con las leyes y reglamentos vigentes.

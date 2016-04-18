@@ -1,0 +1,2 @@
+Artículo 88.- Es prohibido recibir gratificaciones de cualquier naturaleza por servicios prestados como trabajador del INCOP o valerse de su puesto para concretar negocios, trabajos o servicios profesionales a terceras personas.
+El trabajador que infringiere esta prohibición, según la gravedad de la falta, será sancionado con amonestación escrita, suspensión hasta por ocho días o despido, de conformidad con lo establecido en el Capítulo del Régimen Disciplinario.

@@ -1,0 +1,2 @@
+Artículo 92.- Es absolutamente prohibido presentarse al trabajo en estado de embriaguez o bajo cualquier otra condición análoga, o injerir bebidas alcohólicas o aplicarse sustancias que perturben los sentidos durante horas de trabajo.
+Cuando se viole la prohibición del párrafo primero y por razón de las funciones que se desempeñen o del lugar donde se presten los servicios, no se considera falta grave, el trabajador será suspendido por ocho días la primera vez y por la reincidencia producida dentro de un lapso de tres meses, será despedido.

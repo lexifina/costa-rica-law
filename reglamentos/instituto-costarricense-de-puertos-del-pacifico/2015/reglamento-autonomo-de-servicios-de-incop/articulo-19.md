@@ -1,0 +1,1 @@
+Artículo 19.- Para los efectos legales, el INCOP contratará a cada uno de sus trabajadores en el propio lugar de la prestación de sus servicios, salvo que de modo expreso se diga lo contrario en el contrato de trabajo.

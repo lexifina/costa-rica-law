@@ -1,0 +1,1 @@
+Artículo 42.- Todo movimiento de personal (ingresos, ascensos, traslados, permiso, incapacidad, suspensiones, regreso al trabajo, renuncia, cesación, vacaciones) o cualquier otro acto, resolución o situación que debe figurar en el respectivo expediente del servidor será tramitado mediante la fórmula “Acción de Personal”.

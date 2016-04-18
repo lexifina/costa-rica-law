@@ -1,0 +1,2 @@
+Artículo 64.- El Área de Administración del Capital Humano elaborará anualmente un cuadro por direcciones ó áreas, conteniendo los nombres de los trabajadores pertenecientes a cada unidad de trabajo y la fecha de cumplimiento del derecho de vacaciones.
+Una copia de este cuadro será enviado a cada Director o encargado y éste estará en la obligación, tomando en cuenta las solicitudes de compensación parcial que se le hayan hecho, de asignar el disfrute de vacaciones a cada trabajador dentro de las quince semanas siguientes a la fecha de adquisición del derecho.

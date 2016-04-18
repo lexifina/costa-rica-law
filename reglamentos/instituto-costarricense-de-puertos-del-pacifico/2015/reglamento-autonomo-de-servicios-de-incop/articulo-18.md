@@ -1,0 +1,1 @@
+Artículo 18.- Cuando el INCOP necesite reclutar personas para un adiestramiento previo para su posible nombramiento, se suscribirán contratos especiales que estarán regulados por lo que al respecto disponga la Gerencia General ó cualquiera otra disposición que sobre la misma materia estén en vigencia o llegaren a dictarse.

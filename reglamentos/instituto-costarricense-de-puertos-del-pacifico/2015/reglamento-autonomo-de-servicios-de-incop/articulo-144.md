@@ -1,0 +1,1 @@
+Artículo 144.- El procedimiento disciplinario se verificará con celeridad y eficiencia, con respeto del Ordenamiento Jurídico y de los derechos del servidor y conforme a una sana y correcta administración. El servidor que por dolo o culpa grave ocasione cualquier retardo injustificado incurrirá en responsabilidad disciplinaria.

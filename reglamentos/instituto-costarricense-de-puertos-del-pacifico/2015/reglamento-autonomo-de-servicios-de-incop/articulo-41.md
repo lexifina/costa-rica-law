@@ -1,0 +1,1 @@
+Artículo 41.- Si el servidor debe pasar un período de prueba en los casos de ascenso y traslado, gozará de licencia de su puesto anterior durante el tiempo que dure dicho período de prueba, el cual será aplicable también a su sustituto. Lo anterior con las excepciones establecidas en el artículo 73, incisos a) y b) del presente Reglamento.

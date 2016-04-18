@@ -1,0 +1,1 @@
+Artículo 14.- En los contratos de trabajo por tiempo indeterminado, los trabajadores se considerarán en período de prueba durante los primeros tres meses. Las partes tendrán la facultad de dar por terminada la relación laboral en cualquier tiempo dentro de ese período de tres meses.

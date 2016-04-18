@@ -1,0 +1,1 @@
+Artículo 158.- La persona que haya denunciado ser víctima de hostigamiento o acoso sexual o haya comparecido como testigo de las partes, no podrá sufrir, por ello, perjuicio alguno en su empleo ni en sus estudios, siempre y cuando la denuncia o testimonio tengan fundamento.

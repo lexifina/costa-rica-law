@@ -1,0 +1,1 @@
+Artículo 32.- En caso de que candidatos elegibles incluidos en la terna no resulten escogidos por la Gerencia General o Presidencia Ejecutiva según corresponda, éste deberá justificar por escrito las razones que originan su rechazo, debiendo el Área de Administración del Capital Humano, en ese caso llenar una nueva.

@@ -1,0 +1,1 @@
+Artículo 44.- Las calificaciones serán determinantes para la concesión de ascensos, traslados, capacitaciones, aumentos de salario, concesión de permisos, exenciones de marca y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación de servicio.

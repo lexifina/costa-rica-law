@@ -1,0 +1,1 @@
+Artículo 24.- Las reasignaciones entrarán en vigencia a partir del primer día del mes siguiente a aquel en que la Junta Directiva emita la resolución correspondiente salvo disposición en contrario emitida en las Directrices y Procedimientos de Política Salarial y Empleo Vigentes.

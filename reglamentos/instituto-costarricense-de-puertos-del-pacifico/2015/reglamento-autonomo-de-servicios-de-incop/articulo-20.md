@@ -1,0 +1,1 @@
+Artículo 20.- El trabajador prestará sus servicios en cualquiera de las oficinas, instalaciones o centros de trabajo que el INCOP opere en el país, sin perjuicio de lo que al respecto disponga el Código de Trabajo.

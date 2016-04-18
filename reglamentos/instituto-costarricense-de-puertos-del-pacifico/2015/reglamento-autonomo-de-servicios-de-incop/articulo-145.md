@@ -1,0 +1,1 @@
+Artículo 145.- Es obligación de todo servidor, y particularmente del jefe respectivo, informar al Encargado del Área de Administración del Capital Humano de las faltas cometidas por cualquier empleado del INCOP dentro del mes siguiente a la fecha en que se hubiere tenido conocimiento de los hechos. El incumplimiento de esta obligación acarreará responsabilidad disciplinaria.

@@ -1,0 +1,2 @@
+Artículo 65.- Los trabajadores disfrutarán sin interrupciones, su período completo de vacaciones no obstante, por convenio de las partes se podrá fraccionar en dos períodos, siempre que se trate de labores de índole especial que no permitan la ausencia prolongada de los mismos.
+Los adelantos de vacaciones, cuando no se haya cumplido el período de cincuenta semanas, procederán solamente a solicitud escrita del trabajador cuando se considere que no perjudican los intereses del INCOP y siempre que no proceda el nombramiento de un trabajador sustituto.

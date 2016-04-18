@@ -1,0 +1,1 @@
+Artículo 153.- El encargado de la Administración del Capital Humano, dentro de las acciones inmediatas, podrá recomendar de oficio o a solicitud del interesado, la reubicación temporal en el Instituto del funcionario denunciante o del denunciado. El Gerente General definirá en última instancia.

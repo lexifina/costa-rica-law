@@ -1,0 +1,1 @@
+Artículo 101.- Será suspendido el subsidio a empleados que, disfrutando del mismo, se ocupen en alguna labor remunerada, sin perjuicio de que tal circunstancia sea considerada falta grave para efecto de la sanción que corresponda.
