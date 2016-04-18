@@ -1,1 +1,0 @@
-Artículo 4°—Se establece un fondo fijo de caja chica cuyo monto será revisado anualmente por el Concejo Municipal, mediante acuerdo municipal, previo estudio elaborado por la Tesorería y avalado por el Alcalde en el mes de enero.
