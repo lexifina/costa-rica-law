@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P23 Conformación y sesión de los órganos colegia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-25 | la propia norma |
+| 2 | 2016-04-18 | Acuerdo 5 (2016-04-18) |
