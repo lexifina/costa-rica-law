@@ -6,17 +6,20 @@ ECA-MC-MA-P08 Instrucciones para los proveedores de equipos de iluminación, ref
 Los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contratada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 11 de junio del 2015.
 (Nota de Sinalevi: El Procedimiento ECA-MC-MA-P08 Instrucciones para los proveedores de equipos de iluminación, refrigeración y aire acondicionado para cumplir con la directriz N° 11-MINAE, se bajó del sitio Web Ente Costarricense de Acreditación, y se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicada de forma íntegra mediante publicación en La Gaceta N° 98 del 23 de mayo del 2016, donde se actualiza la versión 01 existente y se publica la versión 02 que se transcribe a continuación:)
+continuación:)
 [imagen]
 TABLA DE CONTENIDO.
-1 OBJETIVO ................................................................................................................................ 1
-2 ALCANCE ................................................................................................................................. 1
+1 OBJETIVO ............................................................................................................................... 1
+2 ALCANCE ................................................................................................................................ 1
 3 DOCUMENTOS DE REFERENCIA ........................................................................................... 1
 4 DEFINICIONES Y ABREVIATURAS ......................................................................................... 2
 5 GENERALIDADES .................................................................................................................... 3
 6 INFORMACIÓN SOBRE EL PAGO. .......................................................................................... 6
 7 PROCEDIMIENTO PARA EL AVAL POR PARTE DEL ECA. .................................................... 6
-8 ANEXOS ................................................................................................................................. 10
-9 CAMBIOS ................................................................................................................................ 12
+8 ANEXOS ................................................................................................................................ 10
+9 CAMBIOS ............................................................................................................................... 12
+10 TRANSITORIO ........................................................................................................................ 12
 1 OBJETIVO
 Establecer lineamientos para el proceso de aprobación de certificados de conformidad de producto utilizados para demostrar el cumplimiento de los requisitos de la DIRECTRIZ Nº 11-MINAE.
 2 ALCANCE
@@ -62,14 +65,12 @@ Equipos de Aires Acondicionados | Estos equipos deben cumplir las característic
 5.4 Cuando la acreditación es otorgada por el ECA, el proveedor debe cerciorarse que el organismo de certificación de producto se encuentra acreditado y de preferencia que su alcance de acreditación incluya los documentos normativos para demostrar la conformidad con la Directriz No.11-MINAE. Para lo anterior deben consultar la información en el siguiente enlace: http://eca.or.cr/acr_oc.php. Sin embargo, si la proveeduría lo requiere es posible la presentación de un aval por parte del ECA durante los procesos de compra.
 5.5 Cuando el proveedor cuenta con un certificado de producto emitido por un organismo de certificación del país de origen del fabricante, puede ser que el organismo de certificación de producto se encuentre acreditado por un organismo de acreditación diferente al ECA, por lo que el proveedor tiene la obligación de presentar ante la proveeduría un aval por parte del ECA, durante los procesos de compra, que será el medio para confirmar la validez y existencia de los certificados de producto en cumplimiento de la Directriz 11 del MINAE. En estos casos, siempre debe seguir el proceso para la obtención del aval por parte del ECA.
 6 INFORMACIÓN SOBRE EL PAGO.
-6.1 Consultar las tarifas vigentes en el sitio web: www.eca.or.cr/tarifas.php
+6.1 Consultar las tarifas vigentes en el sitio web: www.eca.or.cr/tarifas.php.
 7 PROCEDIMIENTO PARA EL AVAL POR PARTE DEL ECA.
 7.1 El aval de los certificados de conformidad de producto se otorga por parte del ECA, como mecanismo de verificación de que los equipos de iluminación, aire acondicionado y refrigeración cumplen con requerimientos de alta eficiencia energética tal como lo solicita la DIRECTRIZ Nº 11- MINAE.
-7.2 Por su naturaleza, el aval tiene una vigencia de 30 días hábiles desde el momento que se otorga, siendo que el ECA no puede dar fe de la validez o mantenimiento de:
-a) Las certificaciones emitidas por los organismos de certificación de producto
-b) De la vigencia acreditación del organismo de certificación de producto
-7.3 Los interesados pueden solicitar el aval mediante la Solicitud de aval de certificados de producto para cumplir DIRECTRIZ Nº 11-MINAE.
-7.4 Toda la información suministrada al ECA es tratada de manera confidencial.
+7.2 El aval tiene una vigencia de un año máximo o el plazo establecido en los certificados de producto o en el certificado de acreditación, si su fecha de vigencia es menor.
+7.3 Los interesados pueden solicitar el aval mediante la Solicitud de aval de certificados de producto para cumplir DIRECTRIZ Nº 11-MINAE, para cada certificado de producto cuya acreditación requiera ser reconocida.
+7.4 El ECA ha solicitud de las Instituciones del Estado, podrá informar, el estado de los avales otorgados, su vigencia y nombre del solicitante. El resto de la información suministrada al ECA es tratada de manera confidencial.
 7.5 ECA mantiene todas las solicitudes que se presenten resguardadas de forma segura.
 7.6 La presentación de una solicitud no implica la obtención del aval, ya que depende del cumplimiento de los requisitos indicados en el apartado 7.9.
 7.7 En los casos en que no sea posible emitir el aval, sea por incumplimiento de las prevenciones realizadas o porque la verificación de la información resulta negativa, el ECA no reembolsará los costos del trámite.
@@ -89,10 +90,10 @@ b) Copia de la cédula de identidad o pasaporte del representante legal.
 7.10.4 En los casos que los resultados de evaluación de la conformidad, no cuenten con el símbolo de acreditación, el interesado debe entregar adicionalmente copia fiel del certificado y alcance de acreditación del organismo de certificación de producto.
 7.10.5 Comprobante de la transferencia bancaria por concepto del trámite de verificación y aval del certificado de conformidad.
 7.10.6 Declaración jurada, según formato establecido en el formulario anterior, donde se indique bajo fe de juramento que:
-• Toda la documentación aportada es copia fiel de su original, y no es producto de alteración, falsificación o modificación para poder cumplir con la DIRECTRIZ Nº 11- MINAE.
-• Toda la información relacionada que consigné es cierta y cualquier indicación falsa o modificada total o parcialmente es sujeta de ser denunciada como la transgresión a la legislación penal vigente y acepto que seré denunciado penalmente ante el Ministerio Público de la República de Costa Rica.
-• Acepto que fui advertido de las implicaciones legales de mis manifestaciones, y conozco de la pena con la cual la legislación penal castiga el delito de perjurio.
-• El ECA se libera de cualquier responsabilidad en caso de que la información remitida sea falsa o modificada total o parcialmente.
+ Toda la documentación aportada es copia fiel de su original, y no es producto de alteración, falsificación o modificación para poder cumplir con la DIRECTRIZ Nº 11- MINAE.
+ Toda la información relacionada que consigné es cierta y cualquier indicación falsa o modificada total o parcialmente es sujeta de ser denunciada como la transgresión a la legislación penal vigente y acepto que seré denunciado penalmente ante el Ministerio Público de la República de Costa Rica.
+ Acepto que fui advertido de las implicaciones legales de mis manifestaciones, y conozco de la pena con la cual la legislación penal castiga el delito de perjurio.
+ El ECA se libera de cualquier responsabilidad en caso de que la información remitida sea falsa o modificada total o parcialmente.
 Nota 1: La documentación descrita anteriormente se debe presentar solo la primera vez o cuando se den cambios en la información.
 Nota 2: La documentación solicitada se debe presentarse en idioma español o inglés y en caso de que los documentos sean emitidos en un idioma diferente a los indicados, se debe presentar una traducción oficial al idioma español.
 7.11 En todos los casos anteriores el ECA se reserva el derecho de solicitar los originales de los documentos aportados. Los costos para hacer llegar la información deben ser cubiertos por el Interesado y entregados en las oficinas del ECA.
@@ -112,24 +113,25 @@ Nota 2. El cumplimiento de las aclaraciones necesarias es permitido por una sola
 7.21 Recibida la solicitud de revalidar el aval, el ECA realiza el mismo proceso de verificación y otorgamiento del aval.
 7.22 La revalidación del aval será otorgado por el mismo plazo que el original.
 8 ANEXOS
-Ejemplo de un aval del ECA para organismos de certificación de producto acreditados por organismos diferentes al ECA.
-San José, _____de _______del _______
-Ref. No. ECA - | AVAL - | - 20xx
+[imagen]
+A Quien corresponda
 L(a) suscrit(a): __________________________, Directora Técnica del Ente Costarricense de Acreditación, por este medio hace constar que: En respuesta a la Solicitud de aval de certificados de producto para cumplir DIRECTRIZ Nº 11-MINAE número XXXXXXXXXXXX, para el proveedor XXXXXXXX, cédula jurídica XXXXX, presentada el ___ de ___ de 20XX, se verifica el certificado de producto emitido por XXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXXX, con sede en XXXXXXXXXXXXXXXXXXXXXXX.
 El ECA avala este certificado de producto para cumplir con la Directriz No.11-MINAE por las siguientes razones:
-El certificado de producto No. XXXX se otorga para los siguientes equipos XXXXXXX, bajo las normas XXXXX autorizadas en la Directriz No.11-MINAE o sus equivalentes, para lo cual se cumplió el procedimiento de equivalencia de normas autorizado por el MINAE
+El certificado de producto No. XXXX se otorga para los siguientes equipos modelos XXXXXXX, bajo las normas XXXXX autorizadas en la Directriz No.11-MINAE o sus equivalentes, para lo cual se cumplió el procedimiento de equivalencia de normas autorizado por el MINAE
 El certificado de conformidad de producto se encuentra vigente al momento de solicitar el aval y sin ninguna suspensión.
 El certificado de conformidad de producto demuestra el cumplimiento de los límites de eficiencia o consumo y las normativas establecidos en la DIRECTRIZ Nº 11 MINAE o sus equivalentes.
 El certificado de conformidad de producto fue emitido por XXXX, organismo de certificación de producto reconocido por el ECA, pues se encuentra acreditado bajo la normai ISO/IEC 17065 en su versión vigente, por el Organismo de Acreditación ___________________________________________________________ y se encuentra vigente al día de hoy y sujeta a las decisiones del Organismo de Acreditación.
 El Organismo de Acreditación ___________________________________________ es signatario del Acuerdo de Reconocimiento Multilateral con ii______________.
 El alcance de acreditación del organismo de certificación de producto incluye las normas indicadas en la DIRECTRIZ Nº 11- MINAE o su equivalente, esto es opcional solamente si está acreditado.
-El aval de este certificado de producto se otorga por un periodo de XXX días. Desde el xx.xx.xxxx y hasta el xx.xx.xxxx, siendo que el ECA no puede dar fe de la validez o mantenimiento de los alcances reconocidos posterior a este plazo.
+El aval de este certificado de producto se otorga por un periodo de un año. Desde el xx.xx.xxxx y hasta el xx.xx.xxxx..
 Se extiende el presente aval a solicitud expresa de nombre físico o jurídico del interesado, al ser las _____ horas del día ______ de__________del año dos mil XXXX, para efectos administrativos en cumplimiento de la Directriz no.11 del MINAE EXCLUSIVAMENTE.
-Se agregan y cancelan las especies de Ley.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x
-_____________________
-XXXXXXXXXXXX
+Se agregan y cancelan las especies de Ley.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x.x XXXXXXXXXXXX
 Directora Técnica
 Ente Costarricense de Acreditación.
-Notas:
-Nota 1. El presente aval solamente tiene validez para su correspondiente certificado de producto, referenciado anteriormente.
+1. El presente aval solamente tiene validez para su correspondiente certificado de producto, referenciado anteriormente.
 Nota 2. Una vez cumplido el plazo de otorgamiento del aval, el ECA no garantiza la vigencia de la acreditación, ni la validez de la certificación del producto.
+9 CAMBIOS Motivo: | Modificación del documento
+Refiérase a la solicitud de elaboración o modificación del documento número 2016-088
+Modificación de apartados 7.2 y 7.3, subrayados en el procedimiento. Se agrega apartado 7.4 subrayado.
+10 TRANSITORIO
+No aplica.
