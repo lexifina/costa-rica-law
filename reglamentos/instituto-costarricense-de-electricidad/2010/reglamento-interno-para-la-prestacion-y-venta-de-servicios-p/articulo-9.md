@@ -1,1 +1,0 @@
-Artículo 9º—El “Comercializador Autorizado” y el ICE nombrarán un representante para que funja como Administrador de Contrato, quien coordinará los detalles de la contratación y será el responsable de la ejecución del mismo.

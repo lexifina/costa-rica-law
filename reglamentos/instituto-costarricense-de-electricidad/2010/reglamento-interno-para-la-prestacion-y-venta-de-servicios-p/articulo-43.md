@@ -1,1 +1,0 @@
-Artículo 43.—Una vez formalizado y aprobado el contrato, el Administrador de Contrato custodiará el expediente con la documentación original y remitirá una copia a las partes interesadas, según corresponda.

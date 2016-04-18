@@ -1,2 +1,0 @@
-Artículo 53.—Cada vez que el ICE considere necesario, realizará una revisión sobre la morosidad de todos los planes post pago vendidos y de los cuales no se haya entregado expedientes o corregido inconsistencias. Sobre estos, los “Comercializadores Autorizados” deberán asumir el 100% de la morosidad sobre todos los productos y/o servicios gestionados al cliente. Este monto deberá ser cancelado en un máximo de 5 días hábiles posteriores a la notificación, de lo contrario, serán rebajados del pago mensual siguiente.
-San José, 10 de diciembre del 2010.

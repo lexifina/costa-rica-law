@@ -1,1 +1,0 @@
-Artículo 8º—El ICE establece los controles y variables de calidad de servicio al cliente, horarios, uniformes, trato personal, tiempos de respuesta y atención, así como responsabilidades y obligaciones de cada figura en los contratos y procedimientos aplicables para los comercializadores autorizados.

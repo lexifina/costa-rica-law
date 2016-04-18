@@ -1,1 +1,0 @@
-Artículo 23.—El ICE verificará el cumplimiento de los requisitos establecidos en cada una de las ofertas recibidas. Una vez que se determine si la empresa interesada cumple, el área responsable de la contratación, realizará una inspección a las instalaciones del oferente para evaluar que cumpla efectivamente con los requisitos establecidos.

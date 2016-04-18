@@ -1,1 +1,0 @@
-Artículo 5º—El contrato madre que servirá de base para suscribir las diferentes relaciones contractuales, deberá llevar el visto bueno de la Dirección de Contratación Administrativa de la División Jurídica Institucional y será el mismo para todas las empresas en sus diferentes modalidades.

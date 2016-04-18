@@ -1,1 +1,0 @@
-Artículo 38.—Cada contrato será estimado anualmente, de conformidad con las posibles comisiones que obtendrá el “Comercializador Mayorista Grandes Cadenas” durante este periodo. Dicha estimación no genera por sí misma una expectativa de derecho.

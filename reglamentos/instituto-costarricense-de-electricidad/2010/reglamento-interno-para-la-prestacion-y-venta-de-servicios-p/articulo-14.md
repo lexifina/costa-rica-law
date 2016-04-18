@@ -1,1 +1,0 @@
-Artículo 14.—El “Comercializador Mayorista Exclusivo y el Comercializador Ampliado” podrán ofrecer los servicios ICE de manera virtual y/o en instalaciones comerciales propias y del ICE, siempre y cuando responda a la estrategia comercial de la empresa y previa autorización de éste, para lo cual deberán firmar un adéndum al contrato, el cual especifica los lineamientos que rigen.

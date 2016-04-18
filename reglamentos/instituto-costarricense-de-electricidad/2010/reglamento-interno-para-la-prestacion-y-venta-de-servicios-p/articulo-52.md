@@ -1,1 +1,0 @@
-Artículo 52.—El ICE no pagará comisiones sobre los servicios cuyo expediente no haya sido entregado o se hayan corregido sus inconsistencias en un plazo máximo de 15 días naturales, posteriores a la activación del servicio.

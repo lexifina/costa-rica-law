@@ -1,1 +1,0 @@
-Artículo 42.—Posterior a la firma del contrato, el “Comercializador Autorizado” deberá inscribir formalmente la cuenta bancaria que el ICE determine para que se realicen los pagos correspondientes. La misma debe estar a nombre del Comercializador.

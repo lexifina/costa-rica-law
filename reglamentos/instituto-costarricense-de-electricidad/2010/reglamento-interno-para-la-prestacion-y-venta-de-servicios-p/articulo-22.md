@@ -1,1 +1,0 @@
-Artículo 22.—Los interesados deberán presentar su oferta en un sobre cerrado, a la cual deben adjuntar todos los documentos que respaldan el cumplimiento de los requisitos establecidos para esa figura contractual.

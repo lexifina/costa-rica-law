@@ -1,1 +1,0 @@
-Artículo 27.—Una vez escogido al Comercializador, se procederá a la confección del contrato, asimismo a la formalización de la garantía de cumplimiento, de acuerdo a las condiciones señaladas en el apartado de garantías de este Reglamento y al pago de las especies fiscales correspondientes.

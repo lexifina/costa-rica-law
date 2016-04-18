@@ -1,1 +1,0 @@
-Artículo 25.—El responsable de la contratación, tendrá un máximo de 30 días hábiles a partir del recibo de las ofertas, para recomendar o desestimar, según corresponda. La Jefatura encargada de los procesos de Servicio al Cliente escogerá la oferta de distribución que se ajuste a los requerimientos, o en su defecto, desestimará la contratación.

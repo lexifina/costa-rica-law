@@ -1,1 +1,0 @@
-Artículo 11.—Los “Comercializadores Autorizados” podrán ampliar sus puntos de venta previa autorización del ICE y ajuste de la garantía de cumplimiento, para lo cual deberán cumplir con el procedimiento establecido para este fin.

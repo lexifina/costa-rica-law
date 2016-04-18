@@ -1,1 +1,0 @@
-Artículo 44.—Cada contrato será estimado anualmente, de conformidad con las posibles comisiones que obtendrá el “Comercializador Autorizado” durante este periodo. Dicha estimación no genera por sí misma una expectativa de derecho.

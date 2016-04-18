@@ -1,1 +1,0 @@
-Artículo 45.—Vigencia: Los contratos amparados al presente Reglamento tendrán una vigencia máxima de 4 años, prorrogables por un periodo igual, para lo cual se detallará cada caso en el contrato respectivo.

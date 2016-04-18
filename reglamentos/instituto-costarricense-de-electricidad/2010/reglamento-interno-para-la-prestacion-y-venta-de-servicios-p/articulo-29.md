@@ -1,1 +1,0 @@
-Artículo 29.—Posterior a la firma del contrato y paralelo al punto anterior, el “Comercializador Mayorista Exclusivo” deberá inscribir formalmente la cuenta bancaria que el ICE designe para que se realicen los pagos correspondientes. La misma debe estar a nombre del Comercializador.

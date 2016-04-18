@@ -1,1 +1,0 @@
-Artículo 48.—Las garantías deberán ser rendidas en cualquiera de las formas establecidas en el artículo 38 del Reglamento al Título II de la Ley 8660 de Fortalecimiento y Modernización de las Entidades Públicas del Sector Telecomunicaciones.

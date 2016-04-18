@@ -1,1 +1,0 @@
-Artículo 36.—Posterior a la firma del contrato, el “Comercializador Mayorista Grandes Cadenas” deberá inscribir formalmente ante el ICE una cuenta bancaria para que se realicen los pagos correspondientes. La misma debe estar a nombre del Comercializador.
