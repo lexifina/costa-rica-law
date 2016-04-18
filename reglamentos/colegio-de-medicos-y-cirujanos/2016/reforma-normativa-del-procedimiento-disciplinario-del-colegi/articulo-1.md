@@ -1,0 +1,8 @@
+COLEGIO DE MÉDICOS Y CIRUJANOS DE COSTA RICA
+La Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, comunica que:
+En la sesión ordinaria 2016-04-06, celebrada el 06 de abril de 2016, acordó; lo siguiente:
+1) Modificar el artículo 78 de la “Normativa del Procedimiento Disciplinario del Colegio de Médicos y Cirujanos de Costa Rica”, aprobado por la Junta de Gobierno en la sesión ordinaria Nº 2016-02-03, celebrada el 03 de febrero del 2016 y publicada en La Gaceta Nº 32 del 16 de febrero del 2016, para que en adelante se lea de la siguiente manera:
+“Artículo 78—El Tribunal de Ética Médica estará integrado por cinco miembros propietarios y dos miembros suplentes, nombrados por la Junta de Gobierno por tiempo indefinido, a lo interno del Tribunal se elegirá un presidente quien será el encargado de representarlo. En el caso de los miembros suplentes, éstos sustituirán a cualquiera de los miembros propietarios cuando así sea requerido, previa comunicación por parte del Tribunal.
+El Tribunal de Ética se constituye como Órgano Director dentro de los procedimientos disciplinarios tramitados en contra de los agremiados del colegio, pudiéndose dividir en secciones de no menos de tres miembros para realizar las actuaciones procesales requeridas.
+En los procedimientos que se realicen ante el Tribunal de Ética, en contra de algún profesional afín o tecnólogo autorizado por el Colegio, el Tribunal podrá contar con la participación de un representante del grupo al cual pertenece el denunciado, todo esto a criterio del Tribunal de Ética.
+El Tribunal de Ética Médica sesionará con al menos tres de sus miembros para que haya quórum.”
