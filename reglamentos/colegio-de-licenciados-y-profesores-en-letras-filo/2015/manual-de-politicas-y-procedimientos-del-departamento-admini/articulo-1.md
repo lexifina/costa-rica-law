@@ -15,16 +15,28 @@ GENERALES
 . A las personas colegiadas que incurran en morosidad, se les realizará el cobro preventivo por medio de: Llamada telefónica, correo electrónico, mensaje de texto u otro medio idóneo siendo todas excluyentes entre sí y no siendo obligación del Colegio todas las acciones antes citadas.
 6. Las personas colegiadas que incurran en morosidad de tres (3) cuotas o más, serán comunicados de su condición por medio del Diario Oficial la Gaceta y otros medios de comunicación idóneo por parte del Colegio.
 7. Una vez realizada la publicación de morosidad la persona colegiada tendrá diez (10) días hábiles para arreglar su situación con el Colegio, caso contrario se procederá con la suspensión respectiva.
-8. Las personas colegiadas que incurran en morosidad de cuatro (4) cuotas o más, serán suspendidas y se publicará dicha suspensión en el diario oficial la Gaceta, constituyéndose este acto como el final de la gestión administrativa de cobro.
-9. La Unidad de Cobro y FMS, es la encargada de ejecutar la suspensión de los colegiados(as) por morosidad, así como realizar el levantamiento de la suspensión de los colegiados(as) que normalicen su condición de suspendido; además presentará un informe mensual de dichos trámites a la Junta Directiva a través de la Dirección Ejecutiva, con copia a la Fiscalía del Colegio.
-10. La Fiscalía comunicará y dará el seguimiento de las suspensiones al respectivo patrono en cumplimiento de la Ley No 4770 y otras acciones legales que se consideren necesarias.
-11. La persona colegiada que se reincorpore, se retire, se suspenda o se le levante la suspensión, deberá pagar la cuota de colegiación correspondiente al mes en que se aplique el movimiento.
-12. Si un colegiado cancela las cuotas por adelantado y el Colegio realiza un aumento de cuota no se le cobrará la diferencia, de existir alguna diferencia se realiza una nota de crédito.
-13. En el Diario Oficial La Gaceta se publicará 2 veces en el mes de enero de cada año, el listado de aquellas personas colegiadas que incurran con lo estipulado en el artículo 46 del Reglamento General del Colegio, que se refiere a las Multas y prescripción en el cobro de cuotas, con la finalidad de interrumpir la prescripción de la obligación.
-14. La fecha del levantamiento de la suspensión debe ser coincidente a la fecha del mes en el que se está aplicando el rebajo de la deducción al colegiado(a).
-15. Una vez realizado el levantamiento de suspensión, las personas colegiadas serán comunicadas al mes siguiente por medio de una publicación en el Diario Oficial La Gaceta.
-16. Las personas colegiadas serán las responsables de mantener actualizado en el expediente o base de datos del Colegio, el medio para recibir comunicados o notificaciones sean estas de carácter administrativo o judicial. En caso de que el colegiado no actualice sus datos al Colegio o que los mismos no sean veraces y exactos; exonera de todo tipo de responsabilidad al Colegio, en caso de que no pueda ser contactado.
-17. El Colegio utilizará como título ejecutivo para los arreglos de pago la letra de cambio con los requisitos establecidos en el artículo 727 del Código de Comercio, el mismo contará con una fecha de vencimiento (la cual no podrá ser mayor a un año) que deberá de ser cumplida por el colegiado.
+8. Las personas colegiadas que incurran en morosidad de cuatro (4) cuotas o más, serán suspendidas y se publicará dicha suspensión en el Diario Oficial La Gaceta, constituyéndose este acto como el final de la gestión administrativa de cobro.
+Una vez realizada la publicación, la Unidad de Cobros trasladará la cartera de colegiados suspendidos por morosidad, a la Asesoría de Legal de Junta Directiva mediante oficio y con los documentos de respaldo correspondientes, para que ésta inicie el cobro prejudicial.
+(Así reformado el punto 8) anterior en sesión N° 033 del 18 de abril de 2016)
+9. La Asesoría Legal de Junta Directiva, una vez realizado el cobro prejudicial de la cartera de colegiados suspendidos, analizará las cuentas por cobrar y recomendará a Junta Directiva realizar el cobro judicial o declarar como incobrables.
+(Así adicionado el punto anterior en sesión N° 033 del 18 de abril de 2016)
+10. La Unidad de Cobro y FMS, es la encargada de ejecutar la suspensión de los colegiados(as) por morosidad, así como realizar el levantamiento de la suspensión de los colegiados(as) que normalicen su condición de suspendido; además presentará un informe mensual de dichos trámites a la Junta Directiva a través de la Dirección Ejecutiva, con copia a la Fiscalía del Colegio.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 9) al 10))
+11. La Fiscalía comunicará y dará el seguimiento de las suspensiones al respectivo patrono en cumplimiento de la Ley No 4770 y otras acciones legales que se consideren necesarias.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 10) al 11))
+12. La persona colegiada que se reincorpore, se retire, se suspenda o se le levante la suspensión, deberá pagar la cuota de colegiación correspondiente al mes en que se aplique el movimiento.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 11) al 12))
+13. Si un colegiado cancela las cuotas por adelantado y el Colegio realiza un aumento de cuota no se le cobrará la diferencia, de existir alguna diferencia se realiza una nota de crédito.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 12) al 13))
+14. En el Diario Oficial La Gaceta se publicará 2 veces en el mes de enero de cada año, el listado de aquellas personas colegiadas que incurran con lo estipulado en el artículo 46 del Reglamento General del Colegio, que se refiere a las Multas y prescripción en el cobro de cuotas, con la finalidad de interrumpir la prescripción de la obligación.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 13) al 14))
+15. La fecha del levantamiento de la suspensión debe ser coincidente a la fecha del mes en el que se está aplicando el rebajo de la deducción al colegiado(a).
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 14) al 15))
+16. Una vez realizado el levantamiento de suspensión, las personas colegiadas serán comunicadas al mes siguiente por medio de una publicación en el Diario Oficial La Gaceta.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 15) al 16))
+17. Las personas colegiadas serán las responsables de mantener actualizado en el expediente o base de datos del Colegio, el medio para recibir comunicados o notificaciones sean estas de carácter administrativo o judicial. En caso de que el colegiado no actualice sus datos al Colegio o que los mismos no sean veraces y exactos; exonera de todo tipo de responsabilidad al Colegio, en caso de que no pueda ser contactado.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 16) al 17))
+(*)18. El Colegio utilizará como título ejecutivo para los arreglos de pago la letra de cambio con los requisitos establecidos en el artículo 727 del Código de Comercio, el mismo contará con una fecha de vencimiento (la cual no podrá ser mayor a un año) que deberá de ser cumplida por el colegiado.
 Según el Artículo 727.-La letra de cambio deberá contener:
 a) La denominación de la letra de cambio inserta en su texto y expresado en la lengua en que la letra esté redactada;
 b) El mandato puro y simple de pagar determinada cantidad;
@@ -34,7 +46,8 @@ e) Indicar el lugar en que ha de efectuar el pago;
 f) El nombre de la persona a quien se ha de hacer el pago o a cuya orden se ha de efectuar;
 g) Indicación de la fecha y lugar en que la letra se libra; y
 h) La persona que emite la letra (librador)
-18. Para que la persona colegiada pueda optar por un arreglo de pago por cuotas de colegiación, debe cumplir con los siguientes requisitos:
+(*) (Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 17) al 18))
+(*)19. Para que la persona colegiada pueda optar por un arreglo de pago por cuotas de colegiación, debe cumplir con los siguientes requisitos:
 a) Que la deuda no esté en proceso de cobro por parte de una empresa externa contratada por el Colegio.
 b) Actualizar sus datos antes de formalizar el arreglo de pago.
 c) Tramitarlo de forma personal, o presentar el poder que lo acredite.
@@ -44,8 +57,12 @@ f) Cancelar el 50% de la deuda por los medios y formas de pago facilitadas por e
 g) Presentar original y fotocopia de la cédula vigente y en buen estado.
 h) Firmar la autorización de deducción y/o el compromiso de pago.
 i) No se realizarán trámites de arreglo de pago en actividades del Colegio, tales como: Asambleas Ordinarias, Extraordinarias y Regionales, así como de cualquier otra índole
-19. La Unidad de Tesorería dos veces al año (mayo y noviembre), verificará en el Sistema de Colegiados que todos los órganos del Colegio se encuentren al día con sus obligaciones, previo a la entrega del pago de dietas o estipendios y en caso de presentarse alguna irregularidad informará por medio escrito a la Dirección Ejecutiva, para que sea elevado a Junta Directiva.
-20. Para dar cumplimiento a lo establecido en el artículo 45 “Morosidad” del Reglamento General del Colegio, cinco días hábiles después de finalizado el cierre mensual de la Unidad de Cobro y FMS, el Encargado de esta Unidad presentará a su jefatura inmediata con copia al Tesorero de Junta Directiva, un informe con el detalle de la gestión de cobro realizada y el estado actual de la morosidad; así como dar las recomendaciones correctivas que sean convenientes para la gestión de cobro.
+(*) (Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 18) al 19))
+20. La Unidad de Tesorería dos veces al año (mayo y noviembre), verificará en el Sistema de Colegiados que todos los órganos del Colegio se encuentren al día con sus obligaciones, previo a la entrega del pago de dietas o estipendios y en caso de presentarse alguna irregularidad informará por medio escrito a la Dirección Ejecutiva, para que sea elevado a Junta Directiva.
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 19) al 20))
+21. Para dar cumplimiento a lo establecido en el artículo 45 “Morosidad” del Reglamento General del Colegio, cinco días hábiles después de finalizado el cierre mensual de las cuentas por cobrar, el Encargado de esta Unidad y su jefatura inmediata elaborarán un informe al Director Ejecutivo con el estado actual de la morosidad y el detalle de la gestión de cobro realizada; así como las medidas correctivas que estime convenientes para la gestión de cobro. El Director Ejecutivo una vez analizado dicho informe lo trasladará al tesorero de Junta Directiva, para que éste informe a la Junta Directiva.
+(Así reformado el punto anterior en sesión N° 033 del 18 de abril de 2016)
+(Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 20) al 21))
 ESPECÍFICAS:
 1. La gestión de cobro se realizará de acuerdo al cronograma elaborado por el Encargado de la Unidad de Cobro y FMS con el aval de quien ocupe el cargo de la Jefatura Financiera, el cual debe contener metas medibles y cuantificables de las gestiones que deben realizarse.
 2. La Jefatura Financiera coordinará la elaboración de un arqueo escrito de las letras de cambio custodiadas en la Unidad de Cobro como mínimo tres veces al año o cuando se considere conveniente para verificar su debida custodia.
