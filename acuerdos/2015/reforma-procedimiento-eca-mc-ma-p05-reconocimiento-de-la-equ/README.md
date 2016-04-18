@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-MA-P05 Reconocimiento de la equivalencia del certif
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-01 | la propia norma |
+| 2 | 2016-04-18 | Acuerdo 5 (2016-04-18) |
