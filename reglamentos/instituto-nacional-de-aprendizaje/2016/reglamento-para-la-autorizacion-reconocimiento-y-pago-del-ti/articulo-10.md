@@ -1,0 +1,1 @@
+Artículo 10.—Del contenido económico y la previsión presupuestaria. Previo a la autorización de la jornada extraordinaria, la jefatura autorizante deberá asegurarse que existe contenido presupuestario suficiente para cubrir las erogaciones posteriores por ese este concepto.

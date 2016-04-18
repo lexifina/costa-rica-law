@@ -1,0 +1,1 @@
+Artículo 28.—Presentación extemporánea de reportes de tiempo extraordinario. Lo reportes de tiempo extraordinario que se presenten extemporáneamente, serán reservados para ser pagados en el mes inmediato siguiente.

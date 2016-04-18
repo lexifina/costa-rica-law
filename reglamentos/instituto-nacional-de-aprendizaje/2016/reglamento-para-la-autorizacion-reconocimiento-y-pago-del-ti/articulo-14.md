@@ -1,0 +1,8 @@
+CAPÍTULO TERCERO
+Reconocimiento de la Jornada extraordinaria
+Artículo 14.—Trámite para el pago de horas extra. El pago de la jornada extraordinaria se realizará en el mes siguiente en el que se ejecutaron las labores. Para ello, la persona servidora deberá presentar la gestión correspondiente ante el Proceso de Soporte Administrativo de la Unidad de Recursos Humanos, en los primeros tres días hábiles del mes en el que deberá ejecutarse el pago y remitir la siguiente información:
+a. Un informe de tiempo extraordinario laborado, que se ajustará al formulario que defina la Unidad de Recursos Humanos y que contenga toda la información que en él se requiera, debidamente firmado por la respectiva jefatura. La información que se incorpore en el espacio de “justificación” deberá ser consecuente con la contenida en el respectivo acto de autorización y con la naturaleza excepcional y eventual de las horas extra.
+b. Una Copia del registro de control de asistencia del respectivo mes y la boleta de justificación de marcas, cuando corresponda.
+c. Una copia del acto o acuerdo de autorización para laborar en jornada extraordinaria.
+Con la firma en el citado formulario, la persona servidora y la respectiva jefatura, dejarán constancia de que verificó la veracidad de la información brindada en él y que el tiempo extraordinario cobrado fue previamente autorizado conforme a las disposiciones de este reglamento.
+Cuando el pago se refiera a situaciones excepcionales originadas en siniestros o riesgos inminentes, en las cuales no se requiera la autorización previa, la gestión de pago deberá acompañarse de un informe detallado firmado por la jefatura inmediata del servidor, en donde se establezcan las condiciones en las que se prestó la jornada extraordinaria.

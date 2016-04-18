@@ -1,0 +1,2 @@
+Artículo 29.—Jornada extraordinaria no autorizada. Con las excepciones previstas en este Reglamento en cuanto a la atención de siniestros o riesgos inminentes, el pago de la jornada extraordinaria que no haya sido autorizada previamente, no podrá ser pagada por los medios ordinarios establecidos en este reglamento.
+En esos casos, el pago deberá estar precedido de un informe pormenorizado de la jefatura respectiva en que se indique el número de horas extras adeudadas, las razones que mediaron para realizar ese trabajo y se acredite que el trabajo fue realizado efectivamente.

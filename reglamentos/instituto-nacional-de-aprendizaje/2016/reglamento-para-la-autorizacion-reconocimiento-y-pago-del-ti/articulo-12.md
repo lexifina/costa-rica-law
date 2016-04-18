@@ -1,0 +1,1 @@
+Artículo 12.—Autorización de horas extraordinarias imprevisibles. Las autorizaciones para laborar horas extraordinarias imprevisibles, serán otorgadas por la jefatura autorizante correspondiente, apenas tenga conocimiento de la situación especial que las origina y deberá ajustarse a los requisitos indicados en el artículo anterior.

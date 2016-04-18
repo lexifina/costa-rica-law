@@ -1,0 +1,1 @@
+Artículo 27.—Deber de ajustarse a los sistemas de control. Será obligación de todas las dependencias institucionales involucradas en la autorización, reconocimiento y pago de la jornada extraordinaria, ajustarse a los sistemas de control que establezca el Instituto para ese fin, tanto en materia presupuestaria como en relación con el trabajo realizado.

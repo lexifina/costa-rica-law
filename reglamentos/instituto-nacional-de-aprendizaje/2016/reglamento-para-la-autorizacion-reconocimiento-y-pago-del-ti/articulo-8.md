@@ -1,0 +1,2 @@
+Artículo 8°—Obligatoriedad de laborar la jornada extraordinaria. Cuando las necesidades del servicio así lo requieren, las personas servidoras quedan en la ineludible obligación de laborar jornada extraordinaria, dentro de los límites y bajo las condiciones señaladas por el presente Reglamento, salvo que exista causa justa o fuerza mayor para negarse.
+La negativa injustificada para hacerlo constituirá falta grave para efectos disciplinarios, que será sancionada de acuerdo con las disposiciones del Reglamento Autónomo de Servicios del Instituto Nacional de Aprendizaje.
