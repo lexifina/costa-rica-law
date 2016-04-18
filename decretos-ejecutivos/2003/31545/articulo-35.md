@@ -1,1 +1,0 @@
-Artículo 35.—En ningún caso se aceptarán tuberías, válvulas u otros dispositivos que permitan la descarga de lodos o de aguas residuales crudas o parcialmente tratadas, directamente a un cuerpo de agua.

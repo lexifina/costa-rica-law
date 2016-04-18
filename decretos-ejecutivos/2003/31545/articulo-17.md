@@ -1,1 +1,0 @@
-Artículo 17.—La ubicación de un sistema de tratamiento deberá ser tal que permita el fácil acceso al personal, al equipo y a los vehículos necesarios para realizar la operación y mantenimiento necesarios.

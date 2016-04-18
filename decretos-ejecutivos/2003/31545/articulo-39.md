@@ -1,1 +1,0 @@
-Artículo 39.—Todo sistema de tratamiento dotado de losa superior deberá incluir los dispositivos necesarios para la conducción del biogás hasta un sitio adecuado para su ventilación, de modo que se evite la concentración de gases que puedan causar explosión, intoxicación o molestias a las personas. El detalle de dichos dispositivos deberá ser mostrado en los planos constructivos.

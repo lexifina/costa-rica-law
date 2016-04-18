@@ -1,1 +1,0 @@
-Artículo 7º—El presente capítulo regula el alcance del permiso de ubicación de Sistemas de Tratamiento de Aguas Residuales. Este es un requisito inicial que no obliga a conceder otros permisos, ni sustituye requisitos de otras instancias gubernamentales.

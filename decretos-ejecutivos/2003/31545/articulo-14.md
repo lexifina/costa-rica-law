@@ -1,1 +1,0 @@
-Artículo 14.—En el caso de obras menores de pretratamiento como rejillas, tamices, desarenadores, obras de paso u otras, el Ministerio de Salud definirá en cada caso los retiros que deberán guardarse, en caso que estos se ameriten.

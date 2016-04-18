@@ -1,1 +1,0 @@
-Artículo 11.—En casos especiales de viviendas unifamiliares, cuando el terreno no permite infiltración ni existe servicio de alcantarillado sanitario, se podrá optar por descargar en un medio receptor, siempre y cuando se cumpla con el Reglamento de Vertido y Reuso de Aguas Residuales.

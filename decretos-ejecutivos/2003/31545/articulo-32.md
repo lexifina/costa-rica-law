@@ -1,1 +1,0 @@
-Artículo 32.—Se le comunicará por escrito al Ministerio de Salud toda remodelación o ampliación a un proyecto de tratamiento de aguas residuales que haya sido aprobado por éste, antes de que dicha modificación se lleve a cabo. Este Ministerio definirá el procedimiento a seguir.

@@ -1,1 +1,0 @@
-Artículo 10.—El vertido en un alcantarillado sanitario será obligatorio, sujeto a la justificación dada en el artículo 9, en aquellos sitios donde una red de este tipo se encuentre en uso y cuando su ente administrador autorice la posible descarga propuesta.

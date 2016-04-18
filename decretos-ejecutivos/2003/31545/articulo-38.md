@@ -1,1 +1,0 @@
-Artículo 38.—Todo sistema de tratamiento deberá contar con una caja de registro o algún otro dispositivo que permita la toma de muestras de agua en un punto intermedio entre la última etapa del tratamiento y el cabezal de desfogue.

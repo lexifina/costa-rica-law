@@ -1,1 +1,0 @@
-Artículo 37.—Todo sistema de tratamiento deberá contar con algún dispositivo para la medición del caudal de salida, cuyo diseño será incluido en los planos, memoria de cálculo y manual de operación y mantenimiento. Si el tratamiento es mediante un sistema de lagunaje, deberá existir también un dispositivo de medición del caudal de entrada al sistema.

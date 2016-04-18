@@ -1,1 +1,0 @@
-Artículo 23.—El permiso de ubicación tendrá una vigencia de un año a partir de la fecha de expedición, período en el que será válido como requisito previo al trámite del permiso de construcción del proyecto del sistema de tratamiento.

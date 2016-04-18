@@ -1,1 +1,0 @@
-Artículo 12.—El retiro entre el sistema de tratamiento y los cuerpos de agua que colinden o atraviesen la propiedad, deberá ajustarse a lo establecido por la Ley Forestal Nº 7575, respetando como mínimo aquellas zonas de protección definidas por esta Ley.

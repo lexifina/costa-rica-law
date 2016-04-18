@@ -1,1 +1,0 @@
-Artículo 18.—No se permitirá la ubicación de sistemas de tratamiento en sitios que supongan un riesgo evidente y demostrado para el personal de operación y mantenimiento, para los ocupantes de las edificaciones propias, o en propiedades aledañas, o para la salud pública y los recursos naturales.

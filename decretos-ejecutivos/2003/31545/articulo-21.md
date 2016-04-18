@@ -1,1 +1,0 @@
-Artículo 21.—Todo sistema de tratamiento, independientemente de su tipo, deberá estar retirado al menos treinta metros (30m) en planta de los pozos para extracción de agua existentes o proyectados, tanto en la misma propiedad como en las colindancias con el proyecto global.

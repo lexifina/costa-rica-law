@@ -1,2 +1,0 @@
-Artículo 48.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los nueve días de mes de octubre del dos mil tres.

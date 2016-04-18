@@ -1,1 +1,0 @@
-Artículo 42.—El Ministerio de Salud designará a un funcionario para que en un plazo máximo de diez días hábiles, contados a partir de la fecha de recibo de la solicitud del permiso de Funcionamiento, realice una visita de inspección al sitio, para lo cual el Ente Generador asegurará el libre acceso a la propiedad en estudio.
