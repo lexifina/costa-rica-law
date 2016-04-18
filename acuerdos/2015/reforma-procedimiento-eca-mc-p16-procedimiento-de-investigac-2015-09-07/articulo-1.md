@@ -4,29 +4,28 @@ El Ente Costarricense de Acreditación (ECA), da a conocer las modificaciones en
 Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha de entrada en vigencia en el sistema de gestión del ECA
 ECA-MC-P16 Procedimiento de Investigación | 10 | 11 | A partir de su publicación en el Diario Oficial La Gaceta. | 10 días hábiles posteriores a su publicación en el Diario Oficial La Gaceta.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 98 del 23 de mayo del 2016, donde se actualiza la versión 11 existente y se publica la versión 12, que se reproduce a continuación:)
 [imagen]
-PROCEDIMIENTO DE INVESTIGACIÓN | Código N : ECA-MC-P16 | Páginas: 1 de 18
-| Fecha emisión: 10.09.2015 | Versión: 11
 TABLA DE CONTENIDO
-1 OBJETIVO ..............................................................................................................................................1
-2 ALCANCE ...............................................................................................................................................1
-3 DEFINICIONES ......................................................................................................................................2
-4 INICIO DEL PROCESO DE INVESTIGACIÓN ..................................................................................3
-5 PROCESO DE INVESTIGACIÓN ........................................................................................................4
-6 AUDIENCIAS ..........................................................................................................................................7
-7 RECURSOS ...........................................................................................................................................8
-8 SANCIONES ...........................................................................................................................................9
-9 SUSPENSIONES PARCIALES O TOTALES DEL ALCANCE DE ACREDITACIÓN ............... 10
-10 PUBLICACIÓN DE LAS SANCIONES ............................................................................................. 12
-11 OBLIGACIONES DEL OEC ............................................................................................................... 12
-12 INCUMPLIMIENTO DE PAGO .......................................................................................................... 13
-13 ANEXOS .............................................................................................................................................. 14
-14 TRANSITORIO .................................................................................................................................... 17
-15 IDENTIFICACIÓN DE CAMBIOS ...................................................................................................... 18
+1 OBJETIVO .............................................................................................................................. 1
+2 ALCANCE ............................................................................................................................... 1
+3 DEFINICIONES ....................................................................................................................... 2
+4 INICIO DEL PROCESO DE INVESTIGACIÓN ........................................................................ 3
+5 PROCESO DE INVESTIGACIÓN ............................................................................................ 4
+6 AUDIENCIAS .......................................................................................................................... 7
+7 RECURSOS ............................................................................................................................ 8
+8 SANCIONES ........................................................................................................................... 9
+9 SUSPENSIONES PARCIALES O TOTALES DEL ALCANCE DE ACREDITACIÓN .............. 10
+10 PUBLICACIÓN DE LAS SANCIONES ................................................................................... 12
+11 OBLIGACIONES DEL OEC ................................................................................................... 12
+12 INCUMPLIMIENTO DE PAGO .............................................................................................. 13
+13 ANEXOS ............................................................................................................................... 14
+14 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 18
+15 TRANSITORIO ...................................................................................................................... 18
 1 OBJETIVO
 Establecer los lineamientos para la realización de los procesos de investigación y la dictaminación de las sanciones correspondientes, cuando se demuestre que un OEC acreditado ha dejado de cumplir los requisitos, criterios, políticas, reglas y procedimientos de acreditación, o en aquellos casos que el OEC, solicite la suspensión, reducción o retiro voluntario de parte o la totalidad del alcance acreditado.
 2 ALCANCE
-Aplica a todos los OEC acreditados por el ECA, fundamentado en el artículo 21 incisos c y d, artículo 26, inciso b, artículo 31 y el artículo 32 de la Ley 8279 Ley del Sistema Nacional para la Calidad
+Aplica a todos los OEC acreditados por el ECA, fundamentado en el artículo 21 incisos c y d, artículo 26, inciso b, artículo 31 y el artículo 32 de la Ley 8279 Ley del Sistema Nacional para la Calidad.
 3 DEFINICIONES
 CA: Comisión de Acreditación.
 Ciclo de reevaluación o acreditación: Se entiende por ciclo de reevaluación o acreditación, tres evaluaciones de seguimiento y la reevaluación, que se realizan de manera consecutivas.
@@ -58,12 +57,12 @@ a. Cuando sea de oficio, el inicio del proceso se realiza con la evidencia recol
 b. Las denuncias se reciben de la siguiente manera:
  De manera escrita en formato libre o en el Formulario de denuncia.
  De forma verbal. De la denuncia verbal debe levantarse un documento en el que conste el decir del denunciante, los motivos o fundamentos de hecho, nombre y apellidos, residencia, hora y fecha, un lugar dónde notificarle el procedimiento; su firma cuando aplique y la firma del funcionario del ECA que tomó la declaración.
-4.3 Cualquier denuncia que no cuente con el nombre y apellidos, residencia, lugar de notificaciones y los motivos o fundamentos serán rechazadas de plano.
+4.3 Cualquier denuncia que no cuente con el nombre y apellidos, residencia, lugar de notificaciones del denunciante y los motivos o fundamentos serán rechazadas de plano.
 4.4 Las denuncias deben contener las pruebas que demuestren un grado razonable de probabilidad de que el OEC denunciado incurrió en las faltas que se le atribuyen. Además deben consignarse los motivos o fundamentos de su denuncia.
 4.5 Cualquier instancia del ECA puede recibir la denuncia y debe trasladarla a la Secretaría correspondiente.
 4.6 La Secretaría de Acreditación debe analizar y valorar de manera integral las manifestaciones del denunciante, sus motivos, los fundamentos y la prueba, de tal manera que, producto del estudio de todos esos elementos, la lleven a considerar que existe un posible incumplimiento.
 4.7 En los casos de denuncia, si la Secretaría de Acreditación considera que existe un posible incumplimiento traslada sin demora alguna la documentación a la Comisión de Acreditación. En el caso de evidencia de incumplimientos documentados en los informes de cualquier tipo de evaluación, la Secretaría traslada la información al Comité Asesor respectivo, quien emite una recomendación a la Comisión de acreditación.
-4.8 La Comisión de Acreditación debe analizar la evidencia presentada y decide si procede o no la investigación para lo cual debe determinar el tipo de posible falta, de acuerdo a la clasificación de faltas descritas en el Anexo 1 y debe proceder según el apartado 7 de este procedimiento.
+4.8 La Comisión de Acreditación debe analizar la evidencia presentada y decide si procede o no la investigación para lo cual debe determinar el tipo de posible falta, de acuerdo a la clasificación de faltas descritas en el Anexo 1 y debe proceder según el apartado 5 de este procedimiento.
 4.9 La Comisión de Acreditación, analiza la información para determinar la verdad real de los hechos y si determina que la falta no fue cometida, justifica las razones por las cuales no se establece ninguna sanción y la Unidad de Logística notifica al OEC y/o al denunciante la resolución tomada, cuando aplique.
 5 PROCESO DE INVESTIGACIÓN
 5.1 Investigación para faltas clasificadas como leves.
@@ -83,7 +82,7 @@ Si se considera que la información demuestra que las faltas no fueron cometidas
 h. El Comité Ad Hoc conformado averigua la verdad real de los hechos, analiza la documentación y si lo considera, puede definir una verificación o evaluación extraordinaria en el sitio, para:
 - Que el OEC demuestre al Comité Disciplinario que las posibles faltas imputadas no han ocurrido.
 - Que el OEC demuestre al Comité Disciplinario que las posibles faltas imputadas ya fueron subsanadas y corregidas, o bien;
-i. Como parte del proceso de investigación el Comité realizará una audiencia oral y privada con el OEC investigado, para lo cual se sigue lo establecido en el apartado 8 de este procedimiento.
+i. Como parte del proceso de investigación el Comité realizará una audiencia oral y privada con el OEC investigado, para lo cual se sigue lo establecido en el apartado 6 de este procedimiento.
 j. Realizadas las actividades anteriores, el Comité emite una recomendación a la Comisión de Acreditación.
 k. La Comisión de Acreditación evalúa la recomendación y determina si procede una sanción de acuerdo a lo establecido en el apartado de sanciones de este procedimiento.
 l. Si la investigación arroja que la falta no fue cometida y no procede sanción alguna, la Comisión de Acreditación declara sin lugar el proceso de investigación, ordena el levantamiento de las medidas cautelares y archiva el expediente. La Unidad de Logística notifica la resolución tomada al OEC y al denunciante cuando aplique, mediante Formulario ECA-MC-P16-F04 Resolución final del procedimiento de investigación.
@@ -193,7 +192,7 @@ En el caso de laboratorios clínicos: cuando el laboratorio tenga 2 participacio
 c. No demuestre haber tomado medidas correctivas apropiadas o éstas no hayan resultado ser efectivas; cuando se hayan obtenido resultados no satisfactorios.
 d. Si el laboratorio clínico no demuestra el cumplimiento con su requerimiento de calidad.
 12. No permitir al ECA la realización de la verificación de acciones correctivas en los plazos establecidos por el ECA.
-13. No implementar adecuadamente en los plazos establecidos por el ECA, las acciones para subsanar las no conformidades detectadas en evaluaciones de seguimiento, reevaluación, o extraordinarias cuando estas últimas no sean producto de una sanción es decir no realizar algunos de los siguientes elementos de la gestión de las no conformidades: análisis de causa, análisis de impacto, implementación de las acciones y análisis de eficacia cuando sea posible.
+13. No implementar adecuadamente en los plazos establecidos por el ECA, las acciones para subsanar las no conformidades detectadas en evaluaciones de seguimiento, reevaluación, o extraordinarias cuando estas últimas no sean producto de una sanción es decir no realizar algunos de los siguientes elementos de la gestión de las no conformidades: análisis de causa, evaluación de la magnitud, consecuencias y riesgos de las desviaciones en el sistema de gestión del OEC, en la validez y calidad de las actividades acreditadas, así como la afectación a los clientes del OEC, implementación de las acciones y análisis de eficacia cuando sea posible.
 14. Cuando se determine durante la evaluación documental de las evaluaciones de seguimiento o reevaluación, que para el alcance acreditado no procede la evaluación in situ.
 15. No permitir el ingreso del equipo evaluador a las instalaciones del OEC.
 16. Con respecto a los documentos ECA-MC-PO01 Política de validación de métodos y ECA-MC-PO01-G01 Guía de Validación de Métodos, incurra en las siguientes faltas:
@@ -213,6 +212,9 @@ c. Equipo de análisis inadecuado o diferente al declarado por el laboratorio.
 22. No permitir al ECA la realización de evaluaciones de seguimiento o reevaluaciones.
 23. Incumplimiento de los requisitos establecidos por los dueños de los esquemas que el ECA acredita.
 24. Retiro del reconocimiento de un OEC acreditado para un esquema de certificación específico por parte del dueño del esquema.
+25. Para Organismo de Certificación de Sistemas (OCSG), otorgar certificaciones para el registro de sistemas de gestión fuera de la acreditación, para todas las actividades que se encuentran dentro de su alcance acreditado.
+26. Que el OCP no cumpla con lo establecido en el procedimiento ECA-MC-P25 Procedimiento de Alcance Flexible para OCP.
+27. Para laboratorios clínicos, que emitan informes de ensayo con el respaldo del símbolo de acreditación o que indiquen alguna referencia al estado de acreditación; previo a la aprobación por parte del ECA por cambio de equipo analítico donde se realicen los ensayos acreditados,
 FALTAS MUY GRAVES:
 1. Descuido y/o abandono de su imparcialidad e integridad.
 2. Utilizar la acreditación concedida de manera que afecte el buen nombre, la reputación e imagen del ECA o se ponga en riesgo la credibilidad o prestigio del ECA.
@@ -227,12 +229,13 @@ FALTAS MUY GRAVES:
 11. Incumplimiento del ECA-MC-P18 Política para uso de logotipo ECA y símbolo de acreditación para las siguientes faltas, siempre que se demuestre que se incurre en ellas de forma engañosa o dolosa:
 a. Utilizar el símbolo de acreditación en documentos de resultados de actividades de evaluación de la conformidad donde no aparecen actividades acreditadas.
 b. No identificar claramente las actividades acreditadas y no acreditadas, en el caso de informes o certificados donde se incorporan tanto aspectos acreditados como no acreditados.
-Nota: Cuando se demuestre que el OEC incurrió en alguna de las faltas muy graves mencionadas en los puntos 6 al 13, el ECA además de la debida sanción tiene el derecho a tomar acciones legales, ya que puede llevar a un detrimento de la credibilidad del sistema internacional de acreditación.
+Nota: Cuando se demuestre que el OEC incurrió en alguna de las faltas muy graves mencionadas en los puntos 6 al 11, el ECA además de la debida sanción tiene el derecho a tomar acciones legales, ya que puede llevar a un detrimento de la credibilidad del sistema internacional de acreditación.
 12. Pérdida de competencia técnica para ejecutar las actividades dentro del alcance.
 13. No contar con el personal calificado y competente para la ejecución de las actividades dentro del alcance de acreditación.
 14. Reiteración de una falta grave cuando afecta la competencia técnica del OEC o cuando afecte el buen nombre del ECA.
-14 TRANSITORIO
-Fecha de entrada en vigencia 10 días hábiles posteriores a su publicación en el Diario Oficial La Gaceta, #177 del 10.09.2015.
-15 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P16
-Refiérase a la solicitud de elaboración o modificación del documento: 2015-042
-Observaciones: Apartado 3: se incorporan definiciones sobre ciclo de reevaluación, evaluación, evaluación extraordinaria, tipos de evaluación, IAF. Se modifica redacción del procedimiento para aclarar aspectos del proceso desde el punto de vista técnico. Se subraya el texto modificado o incorporado. Se elimina referencia del apartado 5.2, inciso h - Verificar los hechos que sirven de motivo de la investigación y del posible acto final en la forma más fiel y completa posible. i. La Comisión de Acreditación que dirige, el Proceso de Investigación, deberá adoptar todas las medidas probatorias pertinentes o necesarias, aún si no han sido propuestas por las partes y aún en contra de la voluntad de éstas últimas. Modificación de anexo Faltas, se eliminan las siguientes referencias. Faltas graves: 16. Con respecto a los documentos ECA-MC-PO01 Política de validación de métodos y ECA-MC-PO01-G01 Guía de Validación de Métodos, incurra en las siguientes faltas: e. No contar con toda la evidencia técnica que respalda las confirmaciones o validaciones de los métodos realizadas. El laboratorio no haya confirmado o validado que aplica correctamente los métodos normalizados, normalizados modificados, no normalizados o desarrollados por el laboratorio. aplicación Realizar calibraciones, ensayos o análisis acreditados que no se encuentren respaldados por una validación que cumpla con los requisitos de validación específicos documentados en la Política ECA-MC-PO01 Política de validación de métodos. Faltas muy graves: 10. Que un OEC sugiera, manifieste o dé a entender que una actividad está acreditada sin estarlo.
+15. Emitir resultados de evaluación de la conformidad falsos, o que no cuenten con la evidencia de la realización de todas las actividades necesarias para respaldar las decisiones tomadas o comunicadas a sus clientes, en conformidad con sus propios procedimientos o los criterios aplicables del ECA.
+14 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P16
+Refiérase a la solicitud de elaboración o modificación del documento: 2016-085
+Observaciones: Se modifica anexo 1 Faltas graves se incorporan las faltas 25, 26 y 27 Faltas muy graves se incorpora falta15
+15 TRANSITORIO
+1 mes posterior a su publicación en el Diario Oficial La Gaceta, 98 del 23 de Mayo del 2016, es decir, a partir del 23 de Junio del 2016.
