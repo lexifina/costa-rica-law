@@ -1,9 +1,13 @@
-7 PROCESO DE EVALUACION DEL DESEMEPEÑO
-7.1 La evaluación del desempeño se aplica a los siguientes órganos colegiados del ECA: Junta Directiva, Comisión de Acreditación y Comités Asesores de las Secretarías de Acreditación y CAMCEE.
-7.2 La evaluación del desempeño se realiza 1 vez al año, en el primer trimestre del año siguiente al periodo a evaluar. Esta evaluación está dividida de la siguiente manera: 70 % desempeño y 30% habilidades y aptitudes.
-Nota: En el mes de noviembre y diciembre de cada año, se emiten recordatorios a todos los encargados de aplicar las evaluaciones del desempeño de los diferentes órganos colegiados
-7.3 Los Coordinadores y los secretarios de los órganos colegiados son los encargados de aplicar las evaluaciones del desempeño de los diferentes integrantes de los órganos colegiados. En el caso de la Junta Directiva, la evaluación la realiza la Gerencia.
-7.4 El responsable de aplicar la evaluación debe informar el resultado de la evaluación del desempeño por correo electrónico, junto con el plan de capacitación o de mejora si aplica; para lo que cuenta con 5 días hábiles una vez finalizada la misma.
-7.5 La notificación de aceptación de la evaluación del desempeño se realiza por correo electrónico y se brindan 3 días hábiles para recibir la respuesta por parte del evaluado, en caso contrario se dará por aceptado el resultado.
-Nota: el evaluador debe indicar en las evaluaciones del desempeño si es necesario la realización de un plan de mejora al evaluado.
-7.6 Cada encargado del órgano colegiado debe presentar los resultados de las evaluaciones del desempeño y el seguimiento del cumplimiento del plan individual de capacitación en la segunda sesión de revisión por la dirección.
+7. EXPEDIENTES DE LOS INTEGRANTES DE LOS ORGANOS COLEGIADOS
+7.1 Los encargados de los órganos colegiados deben mantener actualizados los expedientes, los cuales deben contener como mínimo: Etapas | Observaciones
+1 | Compromiso de Confidencialidad | Debe de estar en orden cronológico de los anteriores. Revisarse anualmente
+2 | Currículo Vitae | Si el miembro pertenece al cuerpo de evaluadores colocar un oficio realizado por la Coordinadora de la Secretaría donde indique que lo único que encontrará en el expediente es el ECA-MC-P01-F02 Compromiso de Confidencialidad, Imparcialidad y Objetividad, esto sí es evaluador, si es personal del ECA estará en custodia de Recursos Humanos. Revisarse anualmente
+3 | Acta | Donde fue nombrado como propietario/ suplente del Comité Asesor.
+4 | Directorio del Comité Asesor | El directorio debe estar actualizado, con los datos personales de cada miembro así mismo como el período de vigencia (desde- hasta). El nombramiento será por un período de 3 años.
+5 | Plan de Capacitación Individual | Se debe de revisar una vez al año por la Coordinadora de la Secretaría respectiva.
+6 | Atestados | De las capacitaciones recibidas relacionadas con el área que está representando en el Comité Asesor.
+7 | Estudio de Competencia | Para cada uno de los miembros del Comité Asesor.
+8 | Evaluaciones de Desempeño | Cada miembro del comité contará con su evaluación del desempeño. Estás evaluaciones del desempeño deben de realizarse anualmente.
+| | |
+7.2 Cada responsable de mantener actualizado los expedientes de los integrantes de los órganos colegiados, será comunicado mediante un recordatorio semestral sobre la revisión y actualización de los expedientes.
+7.3 Adicionalmente se debe revisar de manera periódica el registro ECA-MC-P23 directorio del órgano colegiado, dejando evidencia en el mismo de su revisión y actualización.

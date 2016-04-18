@@ -1,4 +1,4 @@
-3 DEFINICIONES
+3. DEFINICIONES
 - Comité Disciplinario ad hoc: Órgano director de un procedimiento administrativo, nombrado por la Comisión de Acreditación para instruir y averiguar los hechos sobre posible incumplimiento de las obligaciones establecidas para los Organismos de Evaluación de la Conformidad, OEC acreditados.
 - Mayoría absoluta: Más de la mitad de la totalidad de los miembros.
 - Mayoría calificada: Dos terceras partes de la totalidad de los miembros.
