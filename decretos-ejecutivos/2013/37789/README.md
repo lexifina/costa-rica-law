@@ -14,3 +14,4 @@ Crea el Festival Nacional de Danza Contemporánea
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-24 | la propia norma |
+| 2 | 2016-04-19 | Decreto Ejecutivo 39713 (2016-04-19) |
