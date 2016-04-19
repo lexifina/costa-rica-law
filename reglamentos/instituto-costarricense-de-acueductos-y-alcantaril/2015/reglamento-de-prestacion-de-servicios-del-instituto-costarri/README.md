@@ -14,3 +14,4 @@ Reglamento de Prestación de Servicios del Instituto Costarricense de Acueductos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-22 | la propia norma |
+| 2 | 2016-04-19 | Reglamento 22 (2016-04-19) |
