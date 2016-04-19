@@ -11,3 +11,5 @@ i) Expediente personal: Documentación foliada y sellada sobre el historial del 
 j) Acción de Personal: Fórmula oficial para la realización de cualquier movimiento relativo a las o los servidores y servidoras del Ministerio.
 k) Comisión Institucional de Ascensos: Órgano colegiado encargado de revisar las propuestas para la debida aplicación de los criterios relativos a la carrera administrativa en la institución, en puestos cubiertos por el Régimen de Servicio Civil.
 l) Operador(a): Servidor (a) del Ministerio que opera equipo móvil de esta Institución.
+m) Compañero(a): Aquella persona que convive en unión libre, en forma estable y bajo un mismo techo, con otra del mismo sexo o diferente por un año o más.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39722 del 19 de abril del 2016)
