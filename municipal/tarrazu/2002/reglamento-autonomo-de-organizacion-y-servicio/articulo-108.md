@@ -1,1 +1,0 @@
-Artículo 108.—En caso de terminación de la relación de servicios, el interesado deberá plantear a tiempo el correspondiente reclamo en relación con los extremos que considere adeudados. Caso contrario, la Municipalidad declarará la prescripción legal, cuando proceda.

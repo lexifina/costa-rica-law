@@ -1,1 +1,0 @@
-Artículo 110.—La Municipalidad conformará una Comisión de Salud Ocupacional a la que le brindará el apoyo necesario para el cumplimiento de sus funciones, tareas y actividades, de acuerdo con lo establecido en la normativa aplicable.

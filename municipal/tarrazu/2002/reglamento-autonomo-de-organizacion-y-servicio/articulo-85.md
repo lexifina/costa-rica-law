@@ -1,1 +1,0 @@
-Artículo 85.—Concluido con la confirmación de la denuncia y el descargo denunciado, el Alcalde procederá en un plazo de tres días, a citar a las partes a una comparecencia oral y privada en la cual se recibirá la prueba testimonial y toda la prueba y alego de las partes que fueren de anticipación. Cualquier valoración de la vida personal del denunciante será improcedente.

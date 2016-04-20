@@ -1,1 +1,0 @@
-Artículo 73.—La calificación de servicios se hará según los méritos durante el semestre (o año) respectivo, en una escala que comprenderá: Excelente, Muy Bueno, Bueno, Regular, Insuficiente e Inaceptable.

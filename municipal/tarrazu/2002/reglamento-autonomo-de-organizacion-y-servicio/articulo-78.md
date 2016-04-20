@@ -1,1 +1,0 @@
-Artículo 78.—En el caso del funcionario al que se le hubiese sancionado por faltas contempladas en el epígrafe anterior, como leves y graves, y presente una conducta reiterativa, se le aplicará la sanción inmediata siguiente.

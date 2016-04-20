@@ -1,1 +1,0 @@
-Artículo 39.—El cómputo de los períodos a los que se refiere el artículo anterior se hará aunque los servicios no se hayan brindado en forma continua. Se reconocerá, asimismo, el tiempo laborado para cualquier otra dependencia de la Institución.

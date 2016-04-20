@@ -1,1 +1,0 @@
-Artículo 14.—Los superiores inmediatos serán los responsables de advertir a los funcionarios sobre la prohibición del fumado. La Municipalidad deberá, asimismo, indicar dicha prohibición por medio de rótulos visibles.

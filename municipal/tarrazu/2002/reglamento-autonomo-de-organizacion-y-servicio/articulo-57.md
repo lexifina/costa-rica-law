@@ -1,1 +1,0 @@
-Artículo 57.—Las ausencias por incapacidades laborales, por enfermedad común y por riesgos del trabajo se aceptarán si son certificadas por un médico de la correspondiente entidad aseguradora para efectos del pago del subsidio respectivo. Se aceptará la certificación de un médico particular sólo para efectos de justificación de la ausencia.

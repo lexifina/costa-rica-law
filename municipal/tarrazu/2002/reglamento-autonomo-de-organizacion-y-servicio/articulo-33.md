@@ -1,1 +1,0 @@
-Artículo 33.—Salvo causa justificada, todo servidor está obligado a prestar sus servicios en las oficinas centrales de la Municipalidad o en cualquier otro lugar de la República, cuando situaciones de emergencia así lo exijan, a juicio de la institución, siempre que se le reconozcan los gastos de transporte y de permanencia o viáticos correspondientes.

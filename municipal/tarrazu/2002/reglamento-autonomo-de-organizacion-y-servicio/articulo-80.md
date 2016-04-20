@@ -1,1 +1,0 @@
-Artículo 80.—Tanto el Alcalde Municipal, como el Auditor Interno y los miembros del Concejo Municipal, deberán garantizar en el procedimiento el cumplimiento del debido proceso y absoluta confidencialidad en el seguimiento del mismo. Si alguno de estos funcionarios cometiera indiscreción en lo pertinente, se tendrá como falta grave, de acuerdo con el presente reglamento.

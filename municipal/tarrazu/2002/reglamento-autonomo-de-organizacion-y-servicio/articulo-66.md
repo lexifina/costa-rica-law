@@ -1,1 +1,0 @@
-Artículo 66.—Cada vez que haya una nueva fijación de salarios, la unidad encargada de las planillas revisará los salarios, a fin de que ningún servidor devengue menos del salario que le corresponde según su categoría.

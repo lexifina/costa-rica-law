@@ -1,1 +1,0 @@
-Artículo 68.—Si los trabajadores llegaren a recibir beneficios provenientes de un Fondo de Garantía y Jubilaciones, Fondo de Enfermedad o similares, se considerarán parte de sus garantías laborales y derechos adquiridos.

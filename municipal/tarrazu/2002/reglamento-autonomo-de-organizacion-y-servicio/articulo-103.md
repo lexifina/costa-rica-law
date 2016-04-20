@@ -1,1 +1,0 @@
-Artículo 103.—En los casos de suspensión disciplinaria, una vez firme el acto que la acuerde, dicha medida se aplicará en la forma y oportunidad que establezca la sección, unidad o funcionario encargado de personal.

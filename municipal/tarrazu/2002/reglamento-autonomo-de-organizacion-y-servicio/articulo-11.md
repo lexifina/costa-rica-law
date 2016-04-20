@@ -1,1 +1,0 @@
-Artículo 11.—Además de las contempladas en el artículo anterior, y en otros de este reglamento, los servidores autorizados para conducir vehículos de la Municipalidad deberán acatar lo dispuesto en el Reglamento para Uso y Mantenimiento de Vehículos de la Municipalidad de Tarrazú.

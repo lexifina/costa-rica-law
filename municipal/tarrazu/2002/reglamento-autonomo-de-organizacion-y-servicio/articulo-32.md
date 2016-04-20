@@ -1,3 +1,0 @@
-Artículo 32.—Toda labor que se ejecute fuera de los límites señalados en los artículos 26 y 27 de este reglamento o durante los días inhábiles, será considerada como extraordinaria y se remunerará en cada caso conforme con lo dispuesto por la ley.
-En ningún caso, se reconocerá labores extraordinarias ejecutadas ni se aplicará compensación, sin la autorización previa del Alcalde. Dicha autorización deberá solicitarla el servidor por medio de su superior inmediato.
-Tampoco se reconocerá como tiempo extraordinario el requerido para subsanar los errores imputables al servidor, cometidos durante la jornada ordinaria.

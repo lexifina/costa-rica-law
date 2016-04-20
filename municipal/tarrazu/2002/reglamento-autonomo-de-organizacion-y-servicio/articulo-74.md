@@ -1,1 +1,0 @@
-Artículo 74.—La calificación semestral (o anual) servirá, en cuanto a los buenos servidores, como factor a considerar para: régimen méritos en los que corresponda, entrenamientos, ascensos, concesiones de permisos, cobertura contra reducciones forzosas de personal y otros.
