@@ -1,6 +1,1 @@
-Artículo 24.—Las sesiones de la Junta serán siempre privadas, pero sus miembros podrán acordar, por unanimidad de los presentes, que tengan acceso a ella el público en general o ciertas personas, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.
-Las sesiones de la Junta se desarrollarán conforme al orden del día previamente elaborado, el cual podrá ser modificado o alterado según las circunstancias. Se tratará en lo posible de ajustarse a los puntos siguientes:
-a) Aprobación del acta y actas anteriores, que ya hubieren sido estudiadas por los Directores, en los ejemplares distribuidos oportunamente por la Secretaría. Deberán firmar las actas quienes presidieron y el Secretario, propietario o suplente. También deberán suscribirla aquellos Directores que hayan hecho constar su voto disidente. La aprobación de las actas figurara en el orden del día cuando se trate de una sesión ordinaria, salvo el caso de revisión previsto por este Reglamento.
-b) Lectura, examen y tramitación de la correspondencia.
-c) Conocimiento, examen y resolución de los asuntos específicos sometidos a la Junta Directiva en la agenda correspondiente.
-d) Análisis de los demás asuntos que se presenten en iniciativas
+ARTÍCULO 24: Las propuestas que no se refieren al tema objeto de deliberación, serán eliminadas de la discusión. Las enmiendas deben ser tramitadas ante quien preside antes de ser puestas a debate.

@@ -1,1 +1,2 @@
-Artículo 17.—Se requerirá unanimidad para declarar la urgencia de un asunto que no figure en la orden del día. siempre que como mínimo estén presentes cinco directores, a efecto de entrar a conocerlo.
+ARTÍCULO 17: Las sesiones de la Junta Directiva deberán celebrarse en el Edificio sede del IFAM, salvo que por excepción y con la debida justificación, se acuerde celebrarlas en otro lugar.
+No obstante lo anterior, excepcionalmente las sesiones podrán ser no presenciales, cuando por cualquier medio puedan deliberar y decidir los Directores por comunicación simultánea o sucesiva siempre y cuando ello se pueda probar.

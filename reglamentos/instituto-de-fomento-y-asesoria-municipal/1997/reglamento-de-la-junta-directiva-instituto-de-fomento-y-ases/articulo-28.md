@@ -1,1 +1,1 @@
-Artículo 28.—Si se promueve una moción de orden sobre un asunto. se suspenderá la deliberación hasta que se haya votado la moción respectiva.
+ARTÍCULO 28: Los acuerdos tomados por la Junta Directiva quedarán firmes al aprobarse el acta respectiva en la siguiente sesión ordinaria o al haberse declarado así por un mínimo de cuatro votos en el momento de efectuarse la votación. Se exceptúa de esta norma, aquellos acuerdos que requieren una votación de mayoría especial de dos tercios de los integrantes del Órgano Colegiado, equivalente a cinco votos.

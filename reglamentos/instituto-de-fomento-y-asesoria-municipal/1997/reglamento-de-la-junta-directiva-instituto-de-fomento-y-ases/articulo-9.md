@@ -1,3 +1,3 @@
-CAPITULO IV
-Del Auditor
-Artículo 9°—El Auditor General del IFAM es un funcionario de confianza que asiste a las sesiones de la Junta Directiva con voz. Cuyo nombramiento, régimen disciplinario y remoción corresponde a ese Órgano Colegiado conforme a la Ley.
+TÍTULO V
+ATRIBUCIONES Y DEBERES DE LA JUNTA DIRECTIVA
+ARTÍCULO 9: Los Directores tendrán las calidades personales morales y profesionales más altas y contarán con competencias especializadas para tomar decisiones analíticas y gerenciales, con una visión estratégica de la actividad de la Institución y del Régimen Municipal. Lo anterior dentro de los criterios objetivos que les permitan presentar sus diferentes puntos de vista.

@@ -1,23 +1,11 @@
-CAPITULO II
-De la Presidencia Ejecutiva
-Artículo 7°—Será el funcionario de mayor jerarquía para efectos de gobierno de la Institución y le corresponderá fundamentalmente velar porque las decisiones tomadas por la Junta se ejecuten, así como coordinar la acción del IFAM con la de las demás instituciones del Estado. Será un funcionario de tiempo completo y de dedicación exclusiva y, como tal, tendrá las siguientes atribuciones y funciones:
-a) Presidir las sesiones.
-b) Elaborar y presentar a la Junta Directiva programas de política en todos los campos de la actividad institucional y. una vez aprobados, velar por su aplicación y supervisar su ejecución.
-c) Programar las actividades que se requieran para alcanzar los objetivos de la Institución, dentro de los lineamientos de esas políticas y del Plan Nacional de Desarrollo.
-d) Llevar a cabo una labor sistemática de modernización de la entidad y racionalización del uso de sus recursos, en coordinación con el Ministerio de Planificación Nacional y Política Económica.
-e) Establecer, en el ejercicio de sus funciones superiores de gobierno la organización técnica y administrativa de la Institución, a fin de garantizar la eficiente ejecución de sus políticas. Para tales efectos, el Presidente Ejecutivo solicitará la asistencia del Director Ejecutivo de la institución.
-f) Coordinar con la Presidencia de la República las negociaciones tendentes a obtener asistencia técnica y financiamiento, nacionales e internacionales, a efecto de cubrir las necesidades que demande la Institución.
-g) Coordinar con. el Gobierno Central, las Instituciones Autónomas, y Semiautónomas y con las Municipalidades, las políticas, objetivos, planes y programas del Instituto.
-h) Dirigir y supervisar la Unidad de Planificación de la Institución y representar a ésta en los órganos asesores y coordinadores que establecen el artículo 12 y concordantes de la Ley de Planificación Nacional, N° 5525 de 2 de mayo de 1974.
-i) Formar parte del Consejo de Coordinación Interinstitucional a que se refiere el artículo 19 de la mencionada Ley de Planificación.
-j) Supervisar y evaluar periódicamente los programas del Instituto y recomendar a la Junta Directiva lo que estime pertinente para el fortalecimiento, reajuste o terminación de los mismos.
-k) Otorgar el visto bueno a los proyectos de presupuestos y someterlos a conocimiento de la Junta Directiva para los fines legales y reglamentarios del caso, así como vigilar su correcta ejecución, auxiliado por la Auditoría.
-l) Presentar oportunamente a la Oficina de Planificación Nacional y Política Económica, previa aprobación de la Junta Directiva, los proyectos de presupuesto y programas de inversión, así como las solicitudes de financiamiento externo de conformidad con lo establecido en los artículos 9° y 10 de la Ley de Planificación Nacional.
-m) Reunirse las veces que sean necesarias con el Presidente de la República o el Consejo de Gobierno, cuando fuere convocado al efecto.
-n) Firmar las actas, comunicaciones, acuerdos y resoluciones emanados de la Junta Directiva, transcribiéndolos al Director Ejecutivo o a quien corresponda.
-o) Velar para que las decisiones tomadas por la Junta Directiva se ejecuten cumplida y oportunamente en tiempo y forma.
-p) Dirigir y coordinar las relaciones del Instituto con los organismos internacionales.
-q) Dirigir y coordinar las relaciones del IFAM con el Régimen Municipal en el plano de la política institucional, así como proporcionar a la prensa, personalmente o por medio del Director Ejecutivo, las informaciones que estime convenientes.
-r) Ejercer la representación judicial o extrajudicial del Instituto, con el carácter de apoderado generalísimo y con las facultades que determina el artículo 1253 del Código Civil.
-s) Representar al Instituto en el Consejo Directivo del Programa Integral de Mercadeo Agropecuario (Ley N° 6142) y en la Junta Planificadora del Fondo de Desarrollo Municipal (Ley N° 7509).
-t) Presentar cada trimestre un informe escrito al Consejo de Gobierno sobre la marcha general de la Institución.
+TÍTULO III
+CESE DE FUNCIONES DE LOS MIEMBROS DE LA JUNTA DIRECTIVA
+ARTÍCULO 7: Salvo en caso de inciso a) del artículo 6 del presente reglamento, cesará de ser miembro de la Junta Directiva:
+a)El que se ausente del país por más de un mes sin autorización de la Junta Directiva, o con ella, por más de un año.
+b)El que sin causa justificada, a juicio de la Junta Directiva, falte a cuatro sesiones ordinarias consecutivas.
+c)El que infrinja o consienta infracciones manifiestas a las leyes con motivo del ejercicio de su cargo.
+d)El que por incapacidad física no pueda desempeñar sus funciones durante 6 meses a juicio de la Junta Directiva.
+e)El que renuncie a su cargo o se incapacite legalmente para ejercerlo. En caso de renuncia, ésta deberá ser presentada por escrito a la Junta Directiva anticipadamente a la fecha en la que se hará efectiva la misma para el trámite correspondiente.
+En los casos a que se refiere los incisos anteriores y en el de muerte de un miembro de la Junta Directiva, el Presidente Ejecutivo o el Director Ejecutivo, darán cuenta al Poder Ejecutivo para que proceda a declarar la separación y hacer el reemplazo respectivo, sin que la pérdida del puesto libre a la persona separada de las responsabilidades en que hubiere podido incurrir.
+La reposición se hará dentro de los quince días siguientes en que ocurrió la vacante y en igual forma que se nombró el miembro que debe ser sustituido y el nuevo miembro ejercerá el cargo por el resto del período legal de su antecesor.
+En el caso de los representantes de las Municipalidades, la reposición se realizará por medio de la convocatoria y celebración de la Asamblea correspondiente en los términos de la reforma del inciso b) del artículo 7 de la Ley de Organización y Funcionamiento del IFAM (Ley No. 8699 Gaceta No. 17 del 28 de enero de 2009) y Decreto Ejecutivo No. 38.505-MP del 6 de junio de 2014 (Gaceta No. 126 del 2 de julio de 2014).

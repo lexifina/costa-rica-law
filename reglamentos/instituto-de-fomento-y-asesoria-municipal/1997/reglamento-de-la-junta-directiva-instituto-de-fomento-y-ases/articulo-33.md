@@ -1,1 +1,3 @@
-Artículo 33.—Las votaciones serán nominales, salvo en aquellos casos en que decida la Junta que el voto sea secreto.
+ARTÍCULO 33: Contra los acuerdos no firmes de la Junta Directiva podrán los directores interponer recurso de revisión en cualquier momento, siempre que no haya sido aprobada el acta respectiva.
+La revisión la conocerá la Junta Directiva durante la misma sesión en que deba aprobarse el acta correspondiente. Sin embargo, podrá conocerse el recurso en sesión extraordinaria como excepción a la regla que prevé este Reglamento, cuando quien preside considere que el asunto requiere de mayor discusión y análisis.
+Las simples observaciones de forma relativas a la redacción de los acuerdos, no serán consideradas para efectos del párrafo anterior como recurso de revisión.

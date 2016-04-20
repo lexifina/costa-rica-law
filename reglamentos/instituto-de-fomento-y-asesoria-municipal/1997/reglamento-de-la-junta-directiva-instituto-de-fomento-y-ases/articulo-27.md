@@ -1,1 +1,1 @@
-Artículo 27.—Las propuestas que no se refieren al tema objeto de deliberación serán eliminadas de la discusión. Las enmiendas deben ser tramitadas ante quien preside antes de ser puestas a debate.
+ARTÍCULO 27: Se concederá la palabra en el orden en que se haya solicitado, y no deberá empezar a hablar una persona sino después de que el que preside, hubiere concedido la autorización para ello.

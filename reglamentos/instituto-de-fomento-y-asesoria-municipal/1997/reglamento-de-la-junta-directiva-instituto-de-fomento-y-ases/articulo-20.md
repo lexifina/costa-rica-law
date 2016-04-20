@@ -1,2 +1,1 @@
-Artículo 20.—Los Directores son de nombramiento del Poder Ejecutivo, y de conformidad con el artículo anterior serán remunerados con el pago de dieta por cada sesión a la que asistan.
-(Así reformado mediante sesión N° 3228 de 27 de noviembre de 2002)
+ARTÍCULO 20: Las sesiones de la Junta Directiva, deberán iniciarse dentro de los treinta minutos siguientes a la hora señalada al efecto conforme al reloj de la Institución. En segunda convocatoria pasados los treinta minutos indicados, si no hubiere quórum, se dejará constancia en el libro de actas consignando el nombre de los Directores presentes, siendo estos últimos los únicos que devengarán dieta.

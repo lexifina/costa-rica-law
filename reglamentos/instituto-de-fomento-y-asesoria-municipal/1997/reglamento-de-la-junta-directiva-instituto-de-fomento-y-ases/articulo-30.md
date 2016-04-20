@@ -1,1 +1,1 @@
-Artículo 30.—Se concederá la palabra en el orden en que se haya solicitado, y no deberá empezar a hablar una persona sino después de que el Presidente le haya concedido la autorización para ello.
+ARTÍCULO 30: Las votaciones se harán nominalmente y en voz alta, salvo que por unanimidad la Junta Directiva acuerde, en cada caso, hacer la votación en secreto.

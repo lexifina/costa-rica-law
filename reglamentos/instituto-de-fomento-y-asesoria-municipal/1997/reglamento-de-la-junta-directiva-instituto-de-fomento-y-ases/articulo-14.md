@@ -1,3 +1,1 @@
-CAPITULO VII
-De las Sesiones
-Artículo 14.—El quorum necesario para sesionar válidamente es el de la mayoría absoluta de los componentes de la Junta Directiva; es decir cuatro directores. Si no hubiere quorum, la Junta podrá sesionar válidamente en segunda convocatoria veinticuatro horas después de la señalada para la primera, salvo casos de urgencia declarada, en donde lo podrá hacer media hora después, y para ello será suficiente la asistencia de la tercera parte de sus miembros; es decir tres directores.
+ARTÍCULO 14: Las convocatorias a sesiones extraordinarias las podrán efectuar el Presidente (a) Ejecutivo (a), el Director (a) Ejecutivo (a) o al menos dos directores, con un mínimo de 24 horas de antelación y por escrito a la dirección de correo electrónico o fax que se encuentre acreditado por cada director para esos efectos. La convocatoria se acompañará del orden del día.

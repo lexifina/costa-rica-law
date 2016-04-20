@@ -1,1 +1,1 @@
-Artículo 25.—Toda iniciativa debe ser presentada o acogida para su tramite por algún miembro de la Junta Directiva.
+ARTÍCULO 25: Si se promueve una moción de orden sobre un asunto, se suspenderá la deliberación hasta que se haya votado la moción respectiva.

@@ -1,1 +1,3 @@
-Artículo 34.—De la sesión se levantara un acta en la que se hará constar los asistentes a la misma, las circunstancias de tiempo y lugar en que se ha celebrado, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. También se hará mención de los documentos vistos, los cuales se archivarán en el respectivo expediente de la sesión, poniendo el Secretario una nota de constancia o certificación de que ese es el documento a que hace referencia el acta. En casos de nombramientos, elecciones y otros asuntos, que a juicio de la Junta Directiva se justifiquen, podrá disponerse que se haga constar solamente el acuerdo tomado.
+TÍTULO VIII
+ÓRGANOS DE LA JUNTA DIRECTIVA
+ARTÍCULO 34: Presidirá la Junta Directiva el Presidente (a) Ejecutivo (a) o quien le sustituya conforme a lo que ordena este Reglamento.

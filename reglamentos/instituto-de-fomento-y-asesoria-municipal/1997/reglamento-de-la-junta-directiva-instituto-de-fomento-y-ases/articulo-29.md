@@ -1,1 +1,1 @@
-Artículo 29.—Todo acuerdo se tomara previa deliberación después de considerarse suficientemente discutido el asunto. Cuando el acuerdo no fuere votado por unanimidad se consignará a petición de los directores respectivos el voto salvado o negativo y en el acta los motivos que lo justifiquen, quedando exentos de las responsabilidades que pudieren derivarse del acuerdo.
+ARTÍCULO 29: Las propuestas deben ser sometidas a votación en el orden que hayan sido presentadas.

@@ -1,1 +1,1 @@
-Artículo 18.—Las sesiones de la Junta deberán celebrarse en el local sede del IFAM, salvo que se acuerde celebrarlas en otro lugar.
+ARTÍCULO 18: Los Directores serán remunerados con el pago de una dieta por cada sesión en la que participen en forma presencial o virtual.
