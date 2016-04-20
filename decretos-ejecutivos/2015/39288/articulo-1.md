@@ -111,7 +111,10 @@ Urología Pediátrica | Artículo No. 137 |
 Subespecialidad de la Neurocirugía, Neurología y Artículo No. 138 Radiología e Imágenes Médicas. |
 Neuroradiología Quirúrgica Endovascular | Artículo No. 139 |
 | | | | |
-“Artículo 79.—Coloproctología.
-(…)
-b) Aprobación de un (1) año en un programa de estudios posgrado (residencia medica) en la Especialidad en Coloproctología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio.”
+Artículo Nº 79. Coloproctología
+Se reconoce como sinónimo de la Subespecialidad en Coloproctología el siguiente término: Cirugía de Colon y Recto.
+Requisitos específicos:
+a. Estar debidamente inscrito como Especialista en Cirugía General, en el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación de un año en un programa de estudios posgrado (residencia médica) en la Especialidad en Coloproctología, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio…”
+(Así reformado mediante sesión ordinaria N° 2016-04-20 del 20 de abril del 2016)
 Transitorio.—Aquellos médicos que iniciaron estudios en alguna especialidad o subespecialidad con anterioridad a la vigencia de este Reglamento podrán inscribirse acogiéndose a la normativa jurídica vigente en el momento del inicio de estudios; con excepción de lo referente al examen de suficiencia teórico-práctico establecido en el artículo 3º inciso e) y demás artículos concordantes, el cual es de carácter obligatorio cuando se han realizado estudios en el extranjero sin importar a la normativa a la que se acoja el solicitante. Este transitorio tendrá una vigencia de cinco (5) años, a partir del 18 de marzo de 2013 fecha en que se promulgó el Reglamento de Especialidades y Subespecialidades Médicas mediante Decreto Ejecutivo Nº 37562-S- del 8 de enero de 2013, publicado en La Gaceta Nº 54 al Alcance Digital N° 51 del 18 de marzo de 2013; automáticamente una vez cumplido este plazo, quedará sin vigencia su aplicación.”

@@ -14,3 +14,4 @@ Reforma Reglamento de Especialidades y Subespecialidades Médicas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-26 | la propia norma |
+| 2 | 2016-04-20 | Acuerdo 0 (2016-04-20) |
