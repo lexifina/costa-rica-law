@@ -2,143 +2,39 @@ Nº 14082-H
 EL PRESIDENTE DE LA REPUBLICA
 Y EL MINISTRO DE HACIENDA,
 DECRETAN:
-El siguiente
-Reglamento de la Ley de Impuesto General
-sobre las Ventas
-(Ley Nº 6826 de 8 de noviembre de 1982)
+El siguiente Reglamento de la Ley de Impuesto General sobre las Ventas (Ley Nº 6826 de 8 de noviembre de 1982)
 CAPITULO I
 De las Definiciones
-Artículo 1º.- Definiciones. Para todos los efectos, cuando la ley o
-este reglamento utilicen los términos siguientes, deben dárseles las
-acepciones que a continuación se indican:
-1) "Administración Tributaria". Se trata de la Dirección General
-de la Tributación Directa.
-2) "Contribuyente". La persona física, jurídica o entidad, pública
-o privada, responsable del pago del impuesto.
-3) "Declarante". El productor exclusivo de mercancías exentas, el
-exportador exclusivo de mercancías, incluso las empresas que
-operen bajo el régimen de admisión temporal.
-4) "Dependencia", "Dirección". Se refiere a la Dirección General
-de la Tributación Directa.
-5) "Envasado", "enlatado". Es el producto contenido en recipiente
-cerrado de hojalata o vidrio.
-6) "Exportación". Es la salida, cumplidos los trámites legales, de
-mercancías nacionales o nacionalizadas, destinadas a uso o
-consumo definitivo en el extranjero.
-7) "Importación". Es el ingreso en el territorio nacional,
-cumplidos los trámites legales, de mercancías extranjeras
-destinadas al uso o consumo en el país.
-8) "Impuesto", "tributo". Salvo otra indicación, se refiere al
-impuesto general sobre las ventas, creado por ley número 6826
-del 8 de noviembre de 1982.
-9) "Incorporación", "incorporación en la producción". Es la unión,
-mezcla o combinación de dos o más mercancías que dan origen a
-otro producto de características diferentes; se incorporan en
-la producción las materias primas y productos intermedios.
-También existe incorporación en el caso de envases o empaques
-que se utilicen directamente en el producto por razones de
-presentación, conservación o higiene.
-10) "Insumos". Son los bienes intermedios y finales que se
-incorporan al bien producido o fabricado y también aquellos que
-se utilizan en la producción o fabricación de éste, que no
-pueden imputarse directamente a su costo, tales como grasas,
-aceites, lubricantes, artículos de limpieza para maquinaria,
-cepillos, agujas, filtros, embalajes, enfardajes, etc.
-También se consideran insumos, por la índole de su uso y de la
-actividad en que son empleadas, las herramientas e instrumentos
-manuales, así como el equipo e implementos, todos de uso
-exclusivo en las explotaciones agrícolas, madereras y
-ganaderas, según lista contenida en el artículo 5º de este
-reglamento.
-11) "Internación". Es el ingreso, cumplidos los trámites previstos
-en el Reglamento del Código Aduanero Centroamericano (RECAUCA),
-de mercancías que gozan de libre comercio, de conformidad con
-los Tratados de Integración Económica Centroamericana o que
-sean originarias de alguno de los Estados signatarios de los
-mismos, destinadas al uso o consumo en el país.
-12) "Ley". Salvo indicación en contrario, se trata de la ley Nº
-6826 del 8 de noviembre de 1982.
-13) "Mercancías": Son todas las materias, productos, artículos,
-manufacturas y en general, los bienes muebles producidos o
-adquiridos para su industrialización o comercialización. Esta
-definición no comprende los valores representados por acciones,
-bonos, pólizas, títulos, timbres, estampillas y billetes de
-banco, bienes inmuebles por naturaleza, ni los animales vivos,
-excepto los de las partidas arancelarias NAUCA II 01.06.80.99 y
-03.01.01.01."
-( Así reformado este inciso por el artículo 1º del Decreto Nº 22592
-de 4 de octubre de 1993).
-14) "Período fiscal". Salvo otra indicación, se refiere a cualquier
-mes del año.
-15) "Reexportación". Es la salida, cumplidos los trámites legales,
-de mercancías extranjeras llegadas al país y no nacionalizadas.
-16) "Registro de Contribuyentes". Es la nómina de las personas
-naturales o jurídicas, de las entidades públicas o privadas de
-toda clase, inscritas en la Administración Tributaria como
-contribuyentes o declarantes del impuesto.
-17) "Uso o consumo personal". Es el que efectúa el contribuyente o
-declarante, para beneficio propio o de terceros.
-18) "Utilización física". Es el acto de emplear equipos, máquinas,
-enseres, herramientas, combustibles, lubricantes, energía,
-etc., directamente en el proceso de producción de bienes o
-servicios.
-19) "Pequeño contribuyente". La persona física o jurídica que venda
-mercancías o preste servicios por un monto anual que no exceda
-de dos millones de colones incluyendo las ventas de mercancías
-o servicios gravados.
-20) "Espectáculo Público". Función o diversión pública celebrada en
-un teatro, cinematógrafo, circo o cualquier otro lugar en que
-se congregue la gente para presenciarla.
-21) "Servicios Publicitarios". Es la venta de espacio o de tiempo
-en estaciones de televisión y publicaciones periódicas, como
-diarios, revistas, suplementos y otros impresos, efectuada por
-personas físicas o jurídicas propietarios o no, intermediarios
-o agentes de publicidad.
-22) "Servicios de agencias aduanales". Son las gestiones realizadas
-por agentes, personas físicas o jurídicas para la tramitación
-de importaciones y exportaciones, retribuidas mediante el pago
-de honorarios o comisiones.
-23) "Servicios de correduría de bienes raíces". Son las diligencias
-efectuadas por personas físicas o jurídicas para la compra y
-venta de bienes raíces, que son retribuidas mediante el pago de
-una comisión.
-24) "Servicio de mudanza internacional". Es el servicio prestado
-por personas físicas o jurídicas, para trasladar menaje de casa
-o efectos personales del país hacia el exterior o viceversa.
-25) "Servicios de transmisión de programas de televisión vía cable,
-satélite u otros". Es la transmisión en relevo de emisiones de
-televisión originadas fuera del país, que se ponen a
-disposición de usuarios, por medio de dispositivos agregados a
-los aparatos receptores.
-26) "Periódico rural". Publicación periódica que no exceda de
-quince mil ejemplares por tiraje, cuyo contenido en su mayoría
-se refiera a asuntos o intereses propios del cantón en el que
-principalmente circula, con un personal profesional que no
-exceda de dos periodistas, siempre que esté ubicado fuera de
-cabeceras de provincia.
-27) "Consumo de energía eléctrica". Es el consumo de energía
-eléctrica expresado en kilovatios-hora en el recibo por cobro.
-28) "Reimportación de mercancías nacionales". Para efectos de lo
-establecido en el artículo 9º de la ley, es el ingreso al país,
-cumplidos los trámites legales, de mercancías nacionales
-anteriormente exportadas.
-( Así reformado este artículo por el 1º del Decreto Nº 21560 de 31
-de agosto de 1992).
-29) Empresa líder de mercado: Empresa o empresas (a juicio de la
-Administración Tributaria), sobre cuya información se
-fundamentarán los estudios para determinar la base imponible a
-fin de ordenar la recaudación de impuesto a nivel de fábrica,
-aduana o mayorista.
-( Adicionado este inciso por el artículo 1º del Decreto Nº 24775 de
-23 de noviembre de 1995).
-30) "Servicio de radiolocalizadores, radiomensajes y similares": Es el servicio de busca personas,
-y envío de mensajes, realizado mediante sistema de radiocomunicación y similares en una o más vías,
-independientemente del dispositivo utilizado para el disfrute del servicio.
-31) "Primas de seguro": Importe que de una vez o periódicamente paga el asegurado al
-Instituto Nacional de Seguros, o al ente autorizado por éste o por la ley.
-32) "Servicio de estacionamiento transitorio de mercancías": Es el servicio que brindan las empresas autorizadas
-por la Dirección General de Aduanas para el depósito aduanero de vehículos, unidades de transporte
-y sus cargas, hasta por un plazo máximo de ocho días hábiles, siempre y cuando permanezcan
-bajo precinto aduanero.
-(Así adicionados los incisos 30), 31) y 32), por el inciso 1) del artículo 7 del Decreo Ejecutivo N° 29643
-de 10 de julio del 2001).
+Artículo 1°- Definiciones. Para todos los efectos, cuando la Ley o este Reglamento utilicen los términos siguientes, se les debe dar las acepciones que a continuación se indican:
+1)"Administración Tributaria". Es el. órgano administrativo encargado de gestionar y fiscalizar los tributos, se trate del Fisco o de otros entes públicos que sean sujetos activos de la obligación tributaria.
+Tratándose de la Administración Tributaria del Ministerio de Hacienda, cuando se otorga una potestad o una facultad a la Dirección General de Tributación, se entenderá que también es aplicable a la Dirección General de Aduanas, a la Dirección General de Hacienda y a la Dirección General de Policía de Control Fiscal, en sus ámbitos de competencia.
+En virtud de lo anterior, todo 10 relacionado con las normas de procedimiento general son de aplicación a las administraciones tributarias. Algunos procedimientos específicos regulan la materia propia de la competencia de la Dirección General de Tributación, sin perjuicio de que si son atinentes a otras administraciones tributarias, estas puedan ser aplicadas supletoriamente.
+2) "Comercialización": Planificación y control de los bienes y servicios para favorecer el desarrollo adecuado del producto y asegurar que el producto solicitado esté en el lugar, en el momento, al precio y en la cantidad requeridos, garantizando así unas ventas rentables.
+3) "Consumo de energía eléctrica". Consumo de energía eléctrica expresado en kilovatios-hora en el recibo por cobro.
+4) "Contribuyente". La persona física, jurídica o entidad, pública o privada, responsable del pago del impuesto.
+5) "Declarante". La persona física, jurídica o entidad, pública o privada que produzca, comercialice y/o distribuya exclusivamente mercancías cuya venta está exenta del pago del impuesto general sobre las ventas, el exportador exclusivo de mercancías o cualquier otro sujeto que por ley especial así lo disponga.
+6) "Distribución": Conjunto de actividades que se realizan desde que el producto ha sido elaborado por el fabricante hasta que ha sido comprado por el consumidor final, y que tiene por objeto hacer llegar el producto hasta el consumidor.
+7) "Espectáculo Público". Cualquier evento o representación para divertir o recrear, así como las manifestaciones artísticas con participación real y directa de intérpretes en cualquiera de sus modalidades, que congregue a las personas en cualquier lugar, para presenciarlo o escucharlo.
+8) "Exportación". Es la salida, cumplidos los trámites legales, de mercancías nacionales o nacionalizadas, destinadas a uso o consumo definitivo en el extranjero.
+9) "Importación". Es el ingreso en el territorio nacional, cumplidos los trámites legales, de mercancías extranjeras destinadas al uso o consumo en el país.
+10) "Impuesto", "tributo". Salvo otra indicación, se refiere al impuesto general sobre las ventas, creado por Ley No. 6826 del 8 de noviembre de 1982 y sus reformas.
+11) "Insumas". Son los bienes intermedios y finales que se incorporan al bien producido o fabricado y también aquellos que se utilizan en la producción o fabricación de este, que no pueden imputarse directamente a su costo, tales como grasas, aceites, lubricantes, artículos de limpieza para maquinaria, cepillos, agujas, filtros, embalajes y enfardajes.
+También se consideran insumas, por la índole de su uso y de la actividad en que son empleadas, las herramientas e instrumentos manuales, así como el equipo e implementos, todos de uso exclusivo en las explotaciones agrícolas, madereras y ganaderas, según lista contenida en el artículo 5° de este Reglamento.
+12) "Internación". Es el ingreso, cumplidos los trámites previstos en el Reglamento del Código Aduanero Centroamericano (RECAUCA), de mercancías que gozan de libre comercio, de conformidad con los Tratados de Integración Económica Centroamericana o que sean originarias de alguno de los Estados signatarios de los mismos, destinadas al uso o consumo en el país.
+13) "Ley". Salvo indicación en contrario, se trata de la Ley N° 6826 del 8 de noviembre de 1982 y sus reformas.
+14) "Mercancías". Son todas las materias, productos, artículos, manufacturas y en general, los bienes muebles producidos o adquiridos para su industrialización o comercialización. Esta definición no comprende los valores representados por acciones, bonos, pólizas, títulos, timbres, estampillas y billetes de banco, bienes inmuebles por naturaleza, ni los animales vivos, excepto los comercializados como mascotas tales como perros, gatos, peces ornamentales y roedores como el hámster.
+15) "Periódico rural". Publicación periódica cuyo contenido en su mayoría se refiera a asuntos o intereses propios del cantón en el que circula, con un personal profesional que no exceda de dos periodistas, siempre que esté ubicado fuera de cabeceras de provincia.
+16) "Período fiscal". Salvo otra indicación de índole legal, se refiere a cualquier mes del año.
+17) "Primas de seguro": Importe que de una vez o periódicamente paga el asegurado a la institución o empresa de seguros autorizada.
+18) "Reexportación". Es la salida, cumplidos los trámites legales, de mercancías extranjeras llegadas al país y no nacionalizadas.
+19) "Reimportación de mercancías nacionales". Para efectos de 10 establecido en el artículo 9° de la ley, es el ingreso al país, cumplidos los trámites legales, de mercancías nacionales anteriormente exportadas.
+20) "Servicios de agencias aduanales". Son las gestiones realizadas por agentes, personas físicas o jurídicas para la tramitación de importaciones y exportaciones, retribuidas mediante el pago de honorarios o comisiones.
+21) "Servicios de correduría de bienes raíces". Son las diligencias efectuadas por personas físicas o jurídicas para la compra y venta de bienes raíces, que son retribuidas mediante el pago de una comisión.
+22) "Servicio de estacionamiento transitorio de mercancías": Es el servicio que brindan las empresas autorizadas por la Dirección General de Aduanas para el depósito aduanero de vehículos, unidades de transporte y sus cargas, hasta por un plazo máximo de ocho días hábiles, siempre y cuando permanezcan bajo precinto aduanero.
+23) "Servicios de mudanza internacional". Es el servicio prestado por personas físicas o jurídicas, para trasladar menaje de casa o efectos personales del país hacia el exterior o viceversa.
+24) "Servicios de transmisión de programas de televisión vía cable, satélite u otros similares". Es la transmisión en relevo de emisiones de televisión originadas fuera del país, que se ponen a disposición de usuarios, por medio de dispositivos agregados a los aparatos receptores.
+25) "Servicios Publicitarios". Es la venta de espacio o de tiempo con el objetivo de difundir o informar al público sobre un bien o servicio, a través de medios de comunicación tales como radio, televisión y publicaciones periódicas impresas o digitales, que sea efectuada por personas físicas o jurídicas propietarias o no, intermediarios o agentes de publicidad.
+26) "Servicios telefónicos, de cable, de telex, de radiolocalizadores, radiomensajes y similares": Son los servicios prestados mediante teléfono, internet, cable, satélite, busca personas y envío de mensajes, realizados mediante sistemas de radiocomunicación y similares en una o más vías, independientemente del dispositivo utilizado para el disfrute del servicio.
+27) "Teatros": Espectáculos públicos asociados a las obras dramáticas que se realicen en teatros o anfiteatros. Entiéndase por obras dramáticas, las diferentes formas del género dramatical; tales como: tragedia, comedia, drama, tragicomedia, auto sacramental, entremés, paso, monólogo, farsa, vodevil, ópera, zarzuela, sainete, loa, revista y género chico.
+28) "Uso o consumo personal", Es el que efectúa el contribuyente o declarante, para beneficio propio o de terceros.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39732 del 21 de abril del 2016)

@@ -1,16 +1,4 @@
-Artículo 9º.- Declarantes. Los productores exclusivos de mercancías
-cuya venta está exenta del pago del impuesto, deben solicitar su
-inscripción como declarantes del tributo, a fin de tener derecho a
-utilizar el crédito de impuesto correspondiente, facturado por separado
-de los precios de adquisición de mercancías incorporadas físicamente en
-la elaboración de aquellos bienes, así como el referente, en su caso, a
-la maquinaria y equipo utilizados directa y exclusivamente en la
-confección de dichos bienes.
-También los exportadores de mercancías deben inscribirse como
-declarantes para obtener el crédito de impuesto pertinente, en los
-términos y condiciones antes indicados y en el artículo 21 de este
-reglamento.
-(Así reformado este párrafo por el artículo 4º del Decreto Nº 24775
-de 23 de noviembre de 1995).
-En ningún caso procederá el crédito fiscal si el proveedor no
-factura el impuesto por separado.
+Artículo 9°.-Declarantes. Los productores, comerciantes y distribuidores exclusivos de mercancías cuya venta está exenta del pago del impuesto, deben solicitar su inscripción como declarantes del tributo, a fin de tener derecho a utilizar como crédito el impuesto pagado en la adquisición de mercancías, maquinaria y equipo, sus partes y repuestos utilizados dentro del proceso de producción, comercialización y distribución de aquellos bienes, el cual debe facturarse por separado; así como el pagado por consumo de energía eléctrica; por concepto de primas de seguro que protegen bienes, maquinaria e insumas y sobre el equipo y materiales utilizados en las labores de tratamiento de desechos y control de calidad de sus productos.
+También los exportadores de mercancías deben inscribirse como declarantes para obtener el crédito de impuesto pertinente, en los términos y condiciones antes indicados y lo consignado en el artículo 21 de este Reglamento.
+En ningún caso procederá el crédito fiscal si el proveedor no factura el impuesto por separado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39732 del 21 de abril del 2016)
