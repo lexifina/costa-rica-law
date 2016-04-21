@@ -14,3 +14,4 @@ Publica Resolución N° 269-2011 (COMIECO-LXI) de fecha del 2 de diciembre de 20
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-07-02 | la propia norma |
+| 2 | 2016-04-21 | Decreto Ejecutivo 39738 (2016-04-21) |

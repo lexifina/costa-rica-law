@@ -24,9 +24,7 @@ RESUELVE:
 Aprobar el Procedimiento de Reconocimiento de los Registros Sanitarios de Alimentos y Bebidas Procesados, en la forma que aparece Anexo a la presente Resolución y de la cual es parte integrante.
 2. La presente Resolución entrará en vigencia el dos (2) de julio de dos mil doce (2012) y será publicada por los Estados Parte.
 San Salvador, El Salvador, 2 de diciembre de 2011
-[imagen]
 El infrascrito Secretario General de la Secretaría de Integración Económica Centroamericana (SIEGA) CERTIFICA: Que la presente fotocopia y la que le antecede, impresas únicamente en-su anverso, así como las tres (3) del anexo adjunto, impresas únicamente en su anverso, rubricadas y selladas con el sello de la SIEGA, reproducen fielmente la Resolución No, 269-2011 (COMIECOLXl), adoptada por el Consejo de Ministros de Integración Económica, el dos de diciembre de dos mil once, de cuyos originales se reprodujeron. Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala, el cinco de diciembre de dos mil once. —————————————
-[imagen]
 ANEXO DE LA RESOLUCIÓN No. 269-2011 (COMIECO-LXI)
 RECONOCIMIENTO DE LOS REGISTROS SANITARIOS DE ALIMENTOS Y BEBIDAS PROCESADOS
 1. ÁMBITO DE APLICACIÓN
@@ -49,9 +47,7 @@ d. Contenido neto del producto (todas las presentaciones del producto a comercia
 e. N° de Registro Sanitario y vigencia
 f. País de procedencia.
 3.3 Otros requisitos
-a. Original y fotocopia del Certificado de Libre Venta en el formato unificado para la
-Unión Aduanera, sin consularizar y firmado por la autoridad sanitaria que extiende los
-registros.
+a. Original y fotocopia del Certificado de Libre Venta en el formato unificado para laUnión Aduanera, sin consularizar y firmado por la autoridad sanitaria que extiende losregistros.
 b. Pago para la vigilancia sanitaria derivado del reconocimiento de registros., el cual será equivalente al costo del registro de alimentos según lo establece el país que reconoce el registro.
 NOTAS:
 1- Los países mantendrán actualizado el listado de los funcionarios y sus respectivas firmas así como sus suplentes., autorizados por cada Autoridad Competente, para la emisión del Certificado de Libre Venta.
@@ -61,6 +57,8 @@ NOTAS:
 4.2 La autoridad sanitaria verifica los requisitos presentados, firma y sella el original y copia del Certificado de Libre Venta (Anexo 4 de la resolución 121-2004) para el reconocimiento, en un plazo no mayor de 24 horas, y entrega el original firmado y sellado al interesado.
 4.3 Se ingresa los datos del producto reconocido a la base de datos de cada Estado Parte.
 4.4 El reconocimiento del registro de alimentos, no será otorgado cuando no se cumpla con los requisitos establecidos
+4.5 Para los cambios post-registro notificados ante la autoridad sanitaria del país donde se efectuó el registro sanitario del producto, el responsable del reconocimiento del registro sanitario de este producto, debe presentar una copia de dichas notificaciones ante la autoridad sanitaria en donde se otorgó el reconocimiento del registro sanitario. Lo anterior con el fin de que el mismo pueda continuar comercializándose en ese país.
+(Así adicionado el punto 4.5) anterior por el artículo 2° del decreto ejecutivo N° 39738 del 21 de abril del 2016 “Publica la Resolución N° 373-2015 (COMIECO-LXXIV) del 04 de diciembre de 2015: Modificación por adición del Procedimiento de Reconocimiento de Registro Sanitario de Alimentos y Bebidas Procesados" aprobado por Resolución N° 269-2011 del 2/12/2011”)
 5. VIGENCIA DEL RECONOCIMIENTO DEL REGISTRO
 La vigencia del reconocimiento de registra será la misma que el período de vigencia que se indique en el Certificado de Libre Venta y que corresponde a la vigencia del registro del país de origen.
 6. RENOVACIÓN DEL RECONOCIMIENTO DE REGISTRO:
