@@ -15,3 +15,4 @@ Instrucciones para el Cumplimiento de la Obligación de Comunicación a que se R
 | --- | --- | --- |
 | 1 | 2003-06-12 | la propia norma |
 | 2 | 2004-07-13 | Acuerdo 91 (2004-07-13) |
+| 3 | 2016-04-21 | Acuerdo 213 (2016-04-21) |

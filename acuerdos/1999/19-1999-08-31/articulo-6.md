@@ -10,3 +10,5 @@ g) Forma de adquisición: tratándose de adquisiciones por compraventa o reporto
 h) Cantidad de acciones y monto total de la transacción, así como cantidad acumulada de acciones después de la transacción. La información solicitada deberá enviarse únicamente en el formulario adjunto, acompañado de una nota de remisión (Anexo 1)*.
 (Así adicionado por el artículo 1° del acuerdo SGV-A-91 del 13 de julio de 2004)
 (* El anexo en mención se encuentra en el acuerdo SGV-A-91 del 13 de julio de 2004)
+6 bis. En caso de que se trate de una entidad sujeta a la fiscalización de la SUGEF, una vez recibida la comunicación, SUGEVAL procederá a dar traslado a dicho regulador para lo que corresponda.
+(Así adicionado el párrafo 6 bis) anterior por el artículo 1 del acuerdo SGV-A-213 del 21 de abril del 2016)
