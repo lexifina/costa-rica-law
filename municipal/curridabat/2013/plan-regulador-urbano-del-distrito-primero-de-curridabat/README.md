@@ -14,3 +14,4 @@ Plan Regulador Urbano del Distrito Primero de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-21 | la propia norma |
+| 2 | 2016-04-21 | Reglamento municipal 312 (2016-04-21) |
