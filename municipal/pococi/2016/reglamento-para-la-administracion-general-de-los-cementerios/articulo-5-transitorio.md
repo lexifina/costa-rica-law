@@ -1,0 +1,1 @@
+Transitorio 5°—Las actuales tarifas o valores de derechos de arrendamiento, cuotas anuales de arrendamiento y cualquier otro rubro, se mantendrán vigentes hasta tanto no se cuente con la actualización correspondiente de costos y cálculos de las nuevas tarifas, previa publicación en el Diario Oficial.

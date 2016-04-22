@@ -1,0 +1,1 @@
+Artículo 12.—Prohibición de reserva de parcela: Sin excepción, ni la Junta, ni el encargado(a) del cementerio, podrán hacer reservas particulares de parcelas para su arrendamiento, hasta tanto el usuario cumpla con los requerimientos establecidos para este fin.

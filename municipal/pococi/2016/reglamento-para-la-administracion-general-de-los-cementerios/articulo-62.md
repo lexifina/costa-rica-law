@@ -1,0 +1,1 @@
+Artículo 62.—Los funcionarios contratados por las juntas administrativas para laborar 8 horas diarias en tareas como las siguientes, administrativo o panteonero, no podrán dedicarse a contratos de construcción de bóvedas dentro del horario señalado.

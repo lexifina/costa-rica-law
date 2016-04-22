@@ -1,0 +1,1 @@
+Artículo 58.—Cada uno de los frentes de las bóvedas, nichos o mausoleos a construir llevará acera construida por cuenta del arrendatario, indicándose por la Junta las medidas y condiciones constructivas requeridas, con una medida de 60 cm sea 30 cm a cada lado, para que haya espacio al construir.

@@ -1,0 +1,1 @@
+Artículo 42.—En toda inhumación deberá mediar autorización de la persona arrendataria del derecho o de aquella que previamente se haya designado como corresponsable en el contrato de adquisición, previa autorización de la Junta Administrativa.

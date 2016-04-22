@@ -1,0 +1,1 @@
+Artículo 40.—Toda solicitud de cesión de derechos de arrendamiento, pagará a favor de la Junta, con fundamento en el artículo 18 del presente reglamento, el equivalente al siete por ciento (7%) del salario base (correspondiente al salario base mensual de un Auxiliar Administrativo 1 del Poder Judicial), por concepto de gastos administrativos.

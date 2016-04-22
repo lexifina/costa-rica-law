@@ -1,0 +1,1 @@
+Artículo 19.—Servicio en días inhábiles: En días inhábiles la Junta deberá garantizar la efectiva prestación del servicio, para lo cual se deberá asignar una persona que puede ser el o la encargada de cementerio, u otra persona exclusiva para atención de este tipo de servicios.

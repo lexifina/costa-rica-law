@@ -1,0 +1,1 @@
+Artículo 44.—No se permitirá la inhumación con cajas de metal y otros materiales que impidan la fácil descomposición de los restos. Además no se permitirá más de un cadáver en la misma caja y en la misma fosa, solo cuando se trate de la madre y el producto del parto muerto en el alumbramiento.

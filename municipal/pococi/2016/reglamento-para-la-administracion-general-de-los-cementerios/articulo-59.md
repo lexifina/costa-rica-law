@@ -1,0 +1,1 @@
+Artículo 59.—Queda prohibido colocar alrededor de las bóvedas, nichos, sepulturas o mausoleo, plantas, arbustos, verjas de metal, madera o cualquier otro material. Así mismo, se prohíbe almacenar agua a cielo abierto, ubicar jarrones, macetas u otros recipientes para colocación de ofrendas que produzcan estancamiento de agua.

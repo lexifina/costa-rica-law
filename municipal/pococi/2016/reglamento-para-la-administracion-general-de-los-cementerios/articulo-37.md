@@ -1,0 +1,1 @@
+Artículo 37.—Cuando por negligencia u otra causa una sepultura, nicho o monumento amenace la salud pública y la seguridad de las personas, la Junta o Asociación de Desarrollo ordenará su demolición, previa notificación al arrendatario, en caso de no localizar al propietario se procederá de oficio con el acto.

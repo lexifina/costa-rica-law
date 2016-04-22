@@ -1,0 +1,1 @@
+Artículo 21.—De los nombramientos: Los nombramientos de las Juntas deberán hacerse en el distrito o caserío donde haya cementerio, sus miembros durarán en el cargo dos años, pudiendo ser reelectos. El Concejo Municipal o en su caso la Asociación de Desarrollo, podrá revocar los nombramientos por mayoría simple cuando el caso lo amerite.

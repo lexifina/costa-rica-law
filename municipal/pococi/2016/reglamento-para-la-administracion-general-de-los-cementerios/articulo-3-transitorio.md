@@ -1,0 +1,1 @@
+Transitorio 3°—En las parcelas que por cualquier motivo contengan nichos o cualquier edificación no autorizada por la normativa vigente, la Junta queda en la ineludible obligación de demoler dichas construcciones y erigir nuevos nichos de acuerdo a la conceptualización estructural aprobada para la uniformidad del cementerio.

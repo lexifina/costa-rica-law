@@ -1,0 +1,1 @@
+Artículo 27.—Informe semestral: Las Juntas deberán elaborar un informe de labores y presentarlo ante el Concejo Municipal, detallado de sus actividades al concluir los meses de junio y diciembre de cada año, dicho informe deberá estar firmado al menos por el o la secretaria y el o la presidenta de la Junta en ejercicio.

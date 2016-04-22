@@ -1,0 +1,1 @@
+Artículo 43.—La presentación del comprobante de pago deberá hacerse por lo menos con dos horas de anticipación para la inhumación, con el fin de determinar el sitio exacto y la ausencia de restos con más de cinco años de inhumación.

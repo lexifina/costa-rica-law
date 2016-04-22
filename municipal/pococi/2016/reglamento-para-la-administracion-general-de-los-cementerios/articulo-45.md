@@ -1,0 +1,1 @@
+Artículo 45.—Las inhumaciones se realizarán según el horario en que realice funciones cada cementerio. Para realizarse fuera de ese horario se requerirá autorización de la autoridad competente (Ministerio de Salud).

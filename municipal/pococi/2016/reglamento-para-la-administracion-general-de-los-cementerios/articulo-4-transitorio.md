@@ -1,0 +1,1 @@
+Transitorio 4°—Para el caso de los cementerios privados que se vayan a ubicar en el Cantón de Pococí, deberán contar con la licencia municipal respectiva y cumplir con lo dispuesto en el Reglamento General de Cementerios y la normativa sanitaria y ambiental correspondiente.

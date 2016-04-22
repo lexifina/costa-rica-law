@@ -1,0 +1,1 @@
+Artículo 61.—Con lo recaudado por concepto de los arrendamientos, se construirá un osario general y privado en el cementerio para mejor funcionamiento y ornato del mismo, la Junta tendrá la facultad de arrendar osarios individuales, hasta por un período de cinco años con una única prórroga de cinco años.

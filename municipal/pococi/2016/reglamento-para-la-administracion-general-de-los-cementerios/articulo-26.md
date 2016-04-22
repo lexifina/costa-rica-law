@@ -1,0 +1,1 @@
+Artículo 26.—De las sustituciones: Dejará de ser integrante de la Junta, quien faltare a tres (3) sesiones consecutivas sin causa justificada. Para sustituirlo la Junta enviará una terna al Concejo Municipal o a la Asociación de Desarrollo, para que proceda al nombramiento y juramentación respectiva, solo para el periodo restante del miembro que cesó en su cargo.
