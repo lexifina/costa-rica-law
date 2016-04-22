@@ -14,3 +14,4 @@ Establece para el Parque Nacional Palo Verde Manejo Activo en sus Humedales y Á
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1998-10-14 | la propia norma |
+| 2 | 2016-04-22 | Decreto Ejecutivo 39786 (2016-04-22) |
