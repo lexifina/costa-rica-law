@@ -1,1 +1,0 @@
-Artículo 142.—Los agremiados del Colegio tendrán derecho a consulta legal y hacer representados por el Departamento Legal del Colegio en procesos judiciales y administrativos lo mismo que los funcionarios del Colegio, pero el Colegio podrá cobrarle a los agremiados el costo mínimo de los gastos de representación legal.

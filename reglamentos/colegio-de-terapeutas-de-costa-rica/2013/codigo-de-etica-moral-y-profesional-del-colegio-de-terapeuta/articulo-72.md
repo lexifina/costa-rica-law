@@ -1,2 +1,0 @@
-Artículo 72.—Responsabilidad profesional.
-1. Las personas profesionales Terapeutas deben asumir la responsabilidad por todas las decisiones que tomen y por las acciones que ejecute, supervise o delegue en el ejercicio de su profesión.2. Se les exigirá responsabilidad por cualquier acción u omisión que lesione la integridad de las personas, sus derechos o intereses legítimos, cometida con dolo, negligencia, impericia o imprudencia.

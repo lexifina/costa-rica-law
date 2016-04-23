@@ -1,1 +1,0 @@
-Artículo 195.—Las Unidades Audiológicas Móviles o consultorios móviles, serán consideradas por los alcances de las reglamentaciones del Colegio de Terapeutas, como establecimientos audiológicos, con todos los requisitos que se definen para los mismos.

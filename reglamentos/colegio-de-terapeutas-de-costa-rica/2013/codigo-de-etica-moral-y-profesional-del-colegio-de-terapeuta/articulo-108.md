@@ -1,1 +1,0 @@
-Artículo 108.—Del horario del Colegio de Terapeutas de Costa Rica, el horario normal ordinario del Colegio como Institución Pública será de lunes a viernes de 8 a. m. a 5 p. m. y el horario extraordinario el que se estipule fuera del horario ordinario.

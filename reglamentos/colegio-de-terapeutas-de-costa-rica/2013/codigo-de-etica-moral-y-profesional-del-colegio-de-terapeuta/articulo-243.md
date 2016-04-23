@@ -1,1 +1,0 @@
-Artículo 243.—La prescripción de prótesis y ayudas auditivas es una parte inseparable de la atención terapéutica rehabilitativa del paciente hipoacúsico, Se enmarca dentro de la prescripción la evaluación y la propia prescripción, pudiendo estar involucrado el despacho y adaptación de aparatos auditivos.

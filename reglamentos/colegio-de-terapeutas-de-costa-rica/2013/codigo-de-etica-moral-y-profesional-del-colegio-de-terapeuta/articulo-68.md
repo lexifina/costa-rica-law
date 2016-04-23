@@ -1,1 +1,0 @@
-Artículo 68.—Deber de informar sobre límites del secreto profesional. Las personas profesionales en Terapeutas informarán al sujeto de atención sobre los límites del secreto profesional y no adquirirá compromisos bajo secreto que entrañen malicia o dañen a terceros o a un bien público.

@@ -1,1 +1,0 @@
-Artículo 239.—Toda prótesis o ayuda auditiva que se expenda o venda en los establecimientos audiológicos, deberá despacharse debidamente con la indicación (nombre) del establecimiento que lo vende o expende, con la garantía, sus condiciones, con su respectivo manual u otra indicación para su buen uso y con el nombre y código del regente audiológico.

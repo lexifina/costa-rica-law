@@ -1,1 +1,0 @@
-Artículo 273.—Si el Audiólogo que prescribe es el mismo que despacha la prótesis, estará en la obligación de entregar una copia del formulario al paciente, si este lo solicita y la original debe ser archivada en el expediente del paciente.

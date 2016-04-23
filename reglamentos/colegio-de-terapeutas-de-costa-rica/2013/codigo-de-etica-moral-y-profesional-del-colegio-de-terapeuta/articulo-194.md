@@ -1,1 +1,0 @@
-Artículo 194.—La cabina sonoamortiguada portátil, utilizada regularmente para evaluaciones clínicas, por ser equipo audiológico y en donde se realizan pruebas audiológicas que están dentro del Perfil Profesional del audiólogo, será considerada equipo de uso audiológico y la utilización de la misma deberá cumplir con las reglamentaciones del Colegio de Terapeutas.

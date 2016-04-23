@@ -1,1 +1,0 @@
-Artículo 44.—Concepto de personas profesionales en área de Terapeuta para los efectos de este Código. Para los efectos de la aplicación de este Código se entenderá por personas profesionales en áreas del Terapeuta a los profesionales que han demostrado tal condición ante el Colegio, por tanto, se les ha otorgado la licencia y se encuentran incorporados en el Colegio.

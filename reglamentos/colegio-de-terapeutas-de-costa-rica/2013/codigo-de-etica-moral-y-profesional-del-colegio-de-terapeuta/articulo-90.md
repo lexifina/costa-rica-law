@@ -1,1 +1,0 @@
-Artículo 90.—Deber de colaboración con Organizaciones de atención a las personas con discapacidad. Por iniciativa personal o cuando se les solicite, las personas profesionales en Terapeutas deben colaborar con organismos, instituciones o asociaciones públicos y privados en la creación y desarrollo de servicios de atención a personas con discapacidad.

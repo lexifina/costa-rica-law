@@ -1,1 +1,0 @@
-Artículo 205.—La resolución que dicte el Tribunal de Ética del Colegio autorizando la regencia, se comunicará a la Fiscalía y a los interesados. Entrará en vigencia de inmediato, una vez cancelado los aranceles, emitido el Certificado de Registro y Autorización de Regencia y recibido por parte de los interesados. El certificado tendrá una validez de dos años.

@@ -1,1 +1,0 @@
-Artículo 157.—En cuanto a puestos electorales de conformidad con el código electoral de Costa Rica los funcionarios públicos del Colegio podrán concursar en puestos electorales y hacer campaña en tiempo libre, por lo que podrán concursar en puestos como: Diputaciones, Regidores, Síndicos, Defensoría de los Habitantes, Presidencia de la República etc.

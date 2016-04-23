@@ -1,1 +1,0 @@
-Artículo 23.—El Terapeuta debe procurarse su clientela por medios dignos. Deben evitarse las gestiones excesivas o sospechosas, o el ofrecimiento espontáneo de servicios no requeridos. No debe recurrir a terceras personas, remuneradas o no, para obtener asuntos, ni procurarse trabajo profesional mediante descuentos y otras ventajas que conceda al cliente o a terceras personas.

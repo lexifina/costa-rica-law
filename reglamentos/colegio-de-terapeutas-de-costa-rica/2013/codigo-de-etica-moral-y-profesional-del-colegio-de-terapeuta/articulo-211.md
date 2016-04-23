@@ -1,1 +1,0 @@
-Artículo 211.—Durante este lapso, el propietario del establecimiento o representante legal del mismo, deberá nombrar a quien haya de reemplazarlo y solicitar un nuevo certificado, de acuerdo con lo establecido en el reglamento. El Tribunal de Ética informará de todo ello a la Fiscalía.

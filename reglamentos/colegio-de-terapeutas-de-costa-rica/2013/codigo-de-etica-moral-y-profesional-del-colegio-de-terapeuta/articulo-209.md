@@ -1,1 +1,0 @@
-Artículo 209.—El regente audiológico por vía de excepción previo acuerdo del Tribunal de Ética del Colegio, podrá delegar las funciones de la regencia, en otro Audiólogo (regente suplente), siendo ambos solidariamente responsables.

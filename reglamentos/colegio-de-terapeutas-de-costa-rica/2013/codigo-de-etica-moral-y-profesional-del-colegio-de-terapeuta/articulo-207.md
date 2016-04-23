@@ -1,1 +1,0 @@
-Artículo 207.—Un audiólogo no podrá regentar simultáneamente más de un establecimiento audiológico y deberá permanecer en él durante las horas que señale el Certificado de Registro y Autorización de Regencia.

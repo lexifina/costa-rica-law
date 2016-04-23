@@ -1,1 +1,0 @@
-Artículo 217.—Solamente cuando se ha cumplido este último trámite, el establecimiento podrá iniciar sus funciones. No se considerará regencia del establecimiento audiológico si no se cuenta con el Certificado de Registro y Autorización de Regencia emitido por el Colegio.

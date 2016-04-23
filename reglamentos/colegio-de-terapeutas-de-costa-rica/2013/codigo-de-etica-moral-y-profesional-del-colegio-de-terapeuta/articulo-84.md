@@ -1,1 +1,0 @@
-Artículo 84.—Prohibición de prestar su código profesional. Los y las Terapeutas no deben prestar su nombre, código, licencia profesional o títulos a otras personas para que ejerzan la profesión; ni deben firmar ningún registro o reporte de actos que no hayan ejecutado o supervisado.

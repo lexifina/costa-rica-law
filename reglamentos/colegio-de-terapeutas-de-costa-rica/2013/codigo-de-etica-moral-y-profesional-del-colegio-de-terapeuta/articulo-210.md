@@ -1,1 +1,0 @@
-Artículo 210.—Toda renuncia al cargo de regente deberá comunicarse al Tribunal de Ética con dos semanas de anticipación al día en que hará efectiva la renuncia, debiendo depositar en el Tribunal de Ética, el respectivo Certificado de Registro y Autorización de Regencia.

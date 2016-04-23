@@ -1,1 +1,0 @@
-Artículo 110.—De las Vacaciones de los trabajadores los trabajadores funcionarios tendrán derecho a 14 días naturales de vacaciones al cumplir el año y podrán negociar con el patrono la efectividad de las mismas en días consecutivos en una misma fecha o en diferentes fechas hasta completar los 14 días naturales.

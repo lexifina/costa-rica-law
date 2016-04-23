@@ -1,1 +1,0 @@
-Artículo 158.—En cuanto a capacitaciones de funcionarios el Colegio de Terapeutas de Costa Rica podrá pagar las capacitaciones que considere necesarias para sus funcionarios para la buena marcha del Colegio.

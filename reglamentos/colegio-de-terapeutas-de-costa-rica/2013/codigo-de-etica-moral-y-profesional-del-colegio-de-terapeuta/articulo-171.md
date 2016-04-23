@@ -1,1 +1,0 @@
-Artículo 171.—Con el fin de proteger la salud pública, las prótesis auditivas se deberán prescribir por un Profesional en Audiología con grado académico de Licenciado o superior, incorporado en el Colegio de Terapeutas de Costa Rica y autorizado para emitir Diagnóstico Terapéutico.

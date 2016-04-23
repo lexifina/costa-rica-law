@@ -1,1 +1,0 @@
-Artículo 230.—Toda concesión de Certificado de Registro y Autorización de Regencia audiológica para la apertura y/o funcionamiento de establecimientos audiológicos, estará supeditado al fiel cumplimiento de lo prescrito en el presente reglamento.

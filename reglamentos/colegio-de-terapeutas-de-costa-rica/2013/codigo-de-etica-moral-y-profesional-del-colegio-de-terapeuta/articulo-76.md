@@ -1,1 +1,0 @@
-Artículo 76.—Deber de denuncia. Las personas profesionales en Terapeutas están obligadas a denunciar ante quien corresponda, las situaciones que afecten la integridad y los derechos de los sujetos de atención por parte de Cualquier persona, sea o no miembro del equipo de salud.

@@ -1,1 +1,0 @@
-Artículo 145.—Son funciones del Departamento Financiero a llevar la contabilidad del Colegio, hacer el presupuesto anual del Colegio para la Junta Directiva, elaborar los estados financieros del Colegio para la Junta Directiva, llevar la planillas del Colegio de la CCSS, manejar el datafono del Colegio y otras, todas las funciones que indique la Ley.

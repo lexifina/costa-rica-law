@@ -1,1 +1,0 @@
-Artículo 176.—Los Audiólogos son los profesionales de la salud, que se forman académicamente con contenidos teórico-prácticos específicos para prescribir audífonos, con el fin de garantizar que las personas con pérdida auditiva reciban un beneficio óptimo y sean atendidos por los profesionales idóneos.

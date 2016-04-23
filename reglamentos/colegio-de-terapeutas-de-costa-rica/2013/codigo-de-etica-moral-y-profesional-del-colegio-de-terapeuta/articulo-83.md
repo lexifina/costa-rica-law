@@ -1,1 +1,0 @@
-Artículo 83.—Prohibición de asociarse con personas para ejercer ilegalmente la profesión. La persona profesional en Terapeutas no debe asociarse, en ningún caso, con personas que ejercen ilegalmente la profesión, o con profesionales, instituciones o establecimientos de salud donde se practiquen actos ilícitos, que sean de su conocimiento.

@@ -1,1 +1,0 @@
-Artículo 259.—El procedimiento prescriptivo debe proveer características electroacústicas completas para la meta funcional de las prótesis auditivas en el paciente, que incluyen ganancia y/o salida por frecuencia, ganancia de reserva (cuando aplique), un máximo de salida y manejo de características de compresión.

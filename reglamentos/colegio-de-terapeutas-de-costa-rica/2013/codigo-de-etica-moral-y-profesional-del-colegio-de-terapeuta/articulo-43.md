@@ -1,1 +1,0 @@
-Artículo 43.—No podrá imponerse sanción disciplinaria alguna, con fundamento en esta potestad, a profesionales del área de Terapeuta que se encuentran en ejercicio de funciones distintas a la profesión del Terapeuta y cuyas infracciones no guardan relación con la actividad que desempeñan.

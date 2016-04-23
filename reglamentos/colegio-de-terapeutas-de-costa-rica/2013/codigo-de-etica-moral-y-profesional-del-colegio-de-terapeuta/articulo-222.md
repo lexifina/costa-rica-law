@@ -1,1 +1,0 @@
-Artículo 222.—Dentro de los 60 días naturales antes de la fecha en que vence el Certificado de Registro y Autorización de Regencia, deberá solicitarse la ampliación o la renovación, según sea el caso, del certificado en el Colegio de Terapeutas.

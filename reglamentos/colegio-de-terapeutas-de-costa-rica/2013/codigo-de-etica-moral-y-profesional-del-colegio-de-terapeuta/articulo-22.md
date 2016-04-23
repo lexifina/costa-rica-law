@@ -1,1 +1,0 @@
-Artículo 22.—El Terapeuta debe centralizar su actividad en un lugar digno, determinado y conocido. podrá asociarse con colegas y otros profesionales para el estudio de los asuntos que se les sometan. No es conveniente para el decoro de la profesión la atención de los asuntos profesionales en lugares públicos o inadecuados.

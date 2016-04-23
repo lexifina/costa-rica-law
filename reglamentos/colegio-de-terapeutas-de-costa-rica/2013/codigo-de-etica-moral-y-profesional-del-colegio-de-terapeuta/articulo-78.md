@@ -1,2 +1,0 @@
-Artículo 78.—Deber de actualización permanente de conocimientos o formación continua. 1. Las personas profesionales en Terapeutas serán responsables de actualizar constantemente sus conocimientos científicos, éticos y tecnológicos con el fin de incrementar el conocimiento y prestar un servicio de calidad.
-1. Las personas profesionales en Terapeutas en el ejercicio de su profesión debe conocer y respetar el contexto cultural e histórico del lugar donde trabaja.

@@ -1,1 +1,0 @@
-Artículo 172.—Prescribir un audífono para una persona con discapacidad auditiva ha sido denominado por el Colegio de Terapeutas de Costa Rica como un acto que debe ser controlado, por el riesgo potencial de causar daños a la salud de los pacientes, si se realiza por personal no calificado ni autorizado por el Colegio.

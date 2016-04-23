@@ -1,1 +1,0 @@
-Artículo 164.—De los salarios de los Terapeutas trabajadores asalariados del sector privado el salario estos trabajadores se regirá por el Decreto de Honorarios Mínimos del Ministerio de Trabajo y Seguridad Social de cada año y bajo los aumentos de ley.

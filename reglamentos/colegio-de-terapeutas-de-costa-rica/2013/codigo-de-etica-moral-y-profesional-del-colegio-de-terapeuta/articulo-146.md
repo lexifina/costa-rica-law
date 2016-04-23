@@ -1,1 +1,0 @@
-Artículo 146.—Son funciones del Departamento de Administración del Colegio cumplir los acuerdos de Junta Directiva, dar informes a Junta Directiva cuando lo requiera, velar por el correcto funcionamiento del Colegio, fijar las fechas de curso de Ética y Juramentación para la aprobación de junta Directiva y todas las funciones que indique la Ley.

@@ -1,1 +1,0 @@
-Artículo 147.—Son funciones del Departamento de Incorporación del Colegio a- Realizar las incorporaciones de los agremiados, llevar el banco de datos de los agremiados, emitir el carne de los agremiados, realizar los certificados de ética, incorporación y título de uso social de los agremiados y todas las funciones que indique la Ley.

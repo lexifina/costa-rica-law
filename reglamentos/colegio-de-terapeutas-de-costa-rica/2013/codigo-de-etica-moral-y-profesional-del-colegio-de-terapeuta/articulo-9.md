@@ -1,4 +1,0 @@
-Artículo 9°—Es deber del Terapeuta dedicarse con diligencia a atender la salud de su usuario y poner en defensa todos sus esfuerzos y conocimientos, con estricto apego a las normas jurídicas y morales. El Terapeuta debe ser diligente, respetuoso y puntual en todas sus actuaciones.
-La honestidad y la integridad moral del Terapeuta, es extensiva a su conducta social y personal.
-Igualmente debe asistir el Terapeuta a todas las audiencias a que sean citados por las autoridades judiciales o administrativas, en las cuales se requiera la presencia indispensable del Terapeuta para ejercer la defensa técnica de sus pacientes.
-De ser el caso que el Terapeuta tenga algún impedimento grave para asistir a la audiencia, deberá hacerlo saber a la autoridad respectiva con suficiente anticipación, de tal forma que la autoridad de que se trate pueda tomar las previsiones del caso, de considerar justificado el impedimento.

@@ -1,1 +1,0 @@
-Artículo 270.—Al concluir el llenado del formulario de prescripción, el Audiólogo revisará el proceso con el paciente, su familia y/o su encargado, para asegurarse que las necesidades individuales de amplificación de los pacientes se hayan incluido en la prescripción.

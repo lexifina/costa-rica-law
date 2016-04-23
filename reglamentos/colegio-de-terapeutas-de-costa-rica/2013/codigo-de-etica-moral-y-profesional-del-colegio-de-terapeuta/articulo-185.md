@@ -1,1 +1,0 @@
-Artículo 185.—La prescripción terapéutica de prótesis auditivas deberá realizarse en los formularios autorizados por el Colegio de Terapeutas de Costa Rica para tal efecto. El cual el audiólogo podrá adquirirlo en las oficinas del Colegio.

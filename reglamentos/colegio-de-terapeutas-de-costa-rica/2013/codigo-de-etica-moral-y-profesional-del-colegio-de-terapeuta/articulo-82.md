@@ -1,1 +1,0 @@
-Artículo 82.—Denuncia de instituciones ante el Colegio. Las personas profesionales en Terapeutas que conozcan de situaciones que afecten negativamente la intervención del Terapeuta en las instituciones públicas y privadas, donde laboran, deberán denunciar ante la Fiscalía para que esta tome las medidas oportunas.
