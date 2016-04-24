@@ -14,3 +14,4 @@ Reglamento para el control de ruido emitido por el escape de vehículos automoto
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-24 | la propia norma |
+| 2 | 2016-04-24 | Decreto Ejecutivo 39283 (2015-10-15) |
