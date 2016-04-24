@@ -1,0 +1,2 @@
+Artículo 17.—De los responsables de realizar la medición de ruido. La prestataria del Servicio de Inspección Técnica Vehicular es la encargada de aplicar en los Centros de Inspección Vehicular (CIVE) lo dispuesto en el presente reglamento, una vez que se haya incorporado lo correspondiente en el Manual de Procedimientos respectivo.
+El MOPT determinará, por su parte, los responsables de realizar las mediciones en carretera, velando porque se utilicen los equipos de acuerdo a lo establecido en este reglamento, y exista la competencia técnica correspondiente.

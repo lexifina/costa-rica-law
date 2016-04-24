@@ -1,0 +1,1 @@
+Artículo 9º—Valores límite de ruido para el escape de los vehículos equipados con freno motor. En los vehículos que cuenten con freno motor, sin importar su fecha de inscripción, se comprobará el nivel de ruido con este sistema accionado, no debiendo excederse los 112 dBA.

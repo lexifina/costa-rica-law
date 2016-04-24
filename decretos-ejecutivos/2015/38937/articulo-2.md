@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente reglamento se aplica a vehículos automotores que circulan en vías públicas, sin importar su fecha de primera inscripción, hayan estado o no obligados a contar con silenciador.

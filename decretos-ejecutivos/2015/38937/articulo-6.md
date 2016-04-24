@@ -1,0 +1,3 @@
+Artículo 6º—Entorno acústico (lugar de ensayo). Los lugares donde se realicen pruebas de ruido, objeto del presente reglamento, deben cumplir las siguientes características:
+- La superficie del suelo debe ser de asfalto, concreto o de otro material rígido o semirrígido, libre de hierba, tierra suelta o de cualquier otro material con capacidad para absorber el sonido.
+- El espacio debe ser abierto o cerrado, pero libre de la presencia de vehículos estacionados, edificios, vallas, árboles, arbustos, paredes paralelas, personas, etc., en un radio mínimo de 3 m, desde la ubicación del micrófono y de cualquier punto del vehículo.
