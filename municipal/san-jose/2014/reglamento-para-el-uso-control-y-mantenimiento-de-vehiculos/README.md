@@ -14,3 +14,4 @@ Reglamento para el uso, control y mantenimiento de vehículos de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-09 | la propia norma |
+| 2 | 2016-04-25 | Reglamento municipal 151 (2016-04-25) |
