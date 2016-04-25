@@ -83,13 +83,13 @@ f. La venta de combustibles en puertos y aeropuertos.
 A continuación se explica el procedimiento para fijar el precio en plantel de distribución, de todos los combustibles derivados de hidrocarburos que comercializa Recope, con excepción de los que se venden en puertos y aeropuertos, los cuales se calcularán con el procedimiento incluido en el apartado 5.12 de esta metodología.
 Se debe indicar que la fórmula general aquí descrita se utilizará tanto para la fijación por vía ordinaria como para la fijación extraordinaria, toda vez que en ambas se calcula el precio de venta en plantel de distribución al mayoreo de los combustibles. La diferencia entre ambas fijaciones (ordinaria y extraordinaria) es la periodicidad con la que se calculan algunas de las variables. En la sección 6 se especifican las variables de esta fórmula que se actualizan de forma extraordinaria y su respectiva periodicidad.
 Para fijar el precio por litro en plantel de distribución (PPCi) se debe aplicar la ecuación 1. La temporalidad y el detalle de cálculo de cada una de las variables se definen en las siguientes secciones.
-[imagen] Donde:
+Donde:
 PPCi = Precio de venta en plantel de distribución, por litro, al mayoreo del combustible i.
 PRij = Precio FOB promedio internacional de referencia por litro del combustible i del ajuste extraordinario j (ver detalle de cálculo en la sección 5.2).
 TCRj = Tipo de cambio (colones / dólares USA) del ajuste extraordinario j (ver detalle de cálculo en la sección 5.3).
 Ki,a = Margen de operación de Recope por litro del combustible i en el año a (ver detalle de cálculo en la sección 5.4).
-[imagen] = Otros ingresos diferentes a la venta de combustibles en plantel de distribución, para el combustible i en el año a. Se utilizan los valores reales de las cuentas de otros ingresos para los cuales Recope no cuente con los gastos asociados a su generación y no puedan separarse las actividades contablemente (ver detalle de cálculo en la sección 5.5).
-[imagen] = Otros ingresos prorrateados. Se refiere a otros ingresos diferentes a la venta de combustibles en plantel de distribución, que no pueden ser asociados a un combustible en particular en el año a. Se utilizan los valores reales de las cuentas de otros ingresos para los cuales Recope no cuente con los gastos asociados a su generación y no puedan separarse las actividades contablemente (ver detalle de cálculo en la sección 5.5).
+OI i,a= Otros ingresos diferentes a la venta de combustibles en plantel de distribución, para el combustible i en el año a. Se utilizan los valores reales de las cuentas de otros ingresos para los cuales Recope no cuente con los gastos asociados a su generación y no puedan separarse las actividades contablemente (ver detalle de cálculo en la sección 5.5).
+OIP i,a= Otros ingresos prorrateados. Se refiere a otros ingresos diferentes a la venta de combustibles en plantel de distribución, que no pueden ser asociados a un combustible en particular en el año a. Se utilizan los valores reales de las cuentas de otros ingresos para los cuales Recope no cuente con los gastos asociados a su generación y no puedan separarse las actividades contablemente (ver detalle de cálculo en la sección 5.5).
 Dai,j = Ajuste en el precio de venta causado por el diferencial de precio del combustible i en el ajuste extraordinario j (ver detalle de cálculo en la sección 5.6).
 AZi,a = Ajuste por concepto de gastos de operación por litro para el combustible i, en el año a (ver detalle de cálculo en la sección 5.8.1).
 AOIi,a= Ajuste por concepto de otros ingresos por litro para el combustible i, en el año a (ver detalle de cálculo en la sección 5.8.2).
@@ -125,7 +125,7 @@ Keroseno | Jet/Kero 54, 0,3% de azufre. | PJABO00
 Búnker | Residual fuel N°6, 3% de azufre | PUAFZ00
 Búnker bajo azufre | 60% Residual fuel N°6, 3% de azufre + 40% diésel ULSD | PUAFZ00/ AATGY00
 IFO-380 | New Orleans i.e., viscosidad 380CST, 3,0 – 4,0 S (azufre), con factor de conversión reportado por Platt´s de 6,40 barriles por tonelada. Dato proporcionado por Recope. | No aplica
-Asfaltos | Selling Prices Asphalt Cement Text/Louisiana Gulf. Dato proporcionado por Recope. | No aplica
+Asfaltos | Selling Prices Asphalt Cement, Gulf Coast, Area Barge y/o Asphalt Cement Texas/Lousiana Gulf. Dato puede ser proporcionado por Recope. (Así reformado el párrafo anterior mediante resolución RJD-070 del 25 de abril de 2016) | No aplica
 Diésel Pesado | Se utiliza una mezcla de 55,23% precio diésel más 44,77% precio búnker. | POAED00/PUAFZ00
 Emulsión asfáltica | Se utiliza el 65% de la mezcla del 86% del precio del asfalto más el 14% del precio del búnker. Los porcentajes de mezcla son suministrados por la Dirección de Distribución de Recope y están sujetos a revisión por Aresep. La fórmula anterior está sujeta a actualización conforme a los costos de los insumos utilizados en la preparación del producto. | No aplica
 LPG 70-30 | Normal Propane Monte Belvieu, non-tet y Normal Butane Mont Belvieu, nontet; mezcla en 70% de propano y 30% de butano máximo. | PMAAY00/PMAAI00
@@ -146,9 +146,8 @@ Regular RBOB gasolina: | Costa del Golfo o Costa del Atlántico. Octanos mín. d
 5.2.2. Mezclas de combustibles:
 Para las mezclas de combustibles, el precio de referencia se determinará con base en los volúmenes de cada uno de esos componentes en la mezcla total. Para tales efectos se utilizará la fórmula siguiente:
 i. Mezclas de dos combustibles:
-[imagen]
 Donde:
-[imagen] = Precio FOB a utilizar en caso de una mezcla del combustible i, para el ajuste extraordinario j.
+PRi,j= Precio FOB a utilizar en caso de una mezcla del combustible i, para el ajuste extraordinario j.
 X% = Porcentaje de participación del combustible “1” en la mezcla de los productos que vende Recope.
 PRi1j = Precio FOB de referencia internacional del combustible “i1” para el ajuste extraordinario j. En caso de que “1” sea un biocombustible: si es importado se utiliza el precio de la misma fuente de información detallada en el punto anterior, o si es producido a nivel nacional el menor resultante entre el precio FOB de referencia anteriormente citado o el precio del productor nacional del biocombustible entregado en el lugar donde se realizará la mezcla.
 PRi2j = Precio de referencia internacional del combustible “i2” utilizado en la mezcla ya definido en el punto anterior, para el ajuste extraordinario j.
@@ -156,12 +155,10 @@ PRi2j = Precio de referencia internacional del combustible “i2” utilizado en
 2 = Combustible derivado de hidrocarburo diferente de “i1”, de conformidad con las tablas de la sección 5.2.1.
 j = 1, 2, 3,…, J, Número de ajustes extraordinarios de precios, realizados a partir de la entrada en vigencia de la tarifa establecida mediante procedimiento ordinario vigente.
 ii. Mezclas de más de dos combustibles:
-[imagen]
 Donde:
 PRi,j = Precio FOB a utilizar en caso de una mezcla del combustible i, para el ajuste
 extraordinario j.
 γh = Proporción de cada combustible h que se utiliza en la mezcla, y en donde 0 < γh ≤ 1 y la
-[imagen]
 PRh,j = Precio FOB de referencia internacional del combustible “h” para el ajuste extraordinario j.
 i = Tipo de combustible.
 h = Combustibles derivados de hidrocarburos o biocombustibles, de conformidad con las tablas de la sección 5.2.1., los cuales componen la mezcla del combustible i.
@@ -178,7 +175,6 @@ Mediante el margen de operación (K) se reconocen los costos y gastos necesarios
 Este margen de operación se debe calcular por tipo de combustible. Cuando los rubros de costo no puedan asociarse directamente con el tipo de combustible, el monto del costo que se debe asignar a cada producto se determinará por el parámetro de distribución de costos (Cost drivers) que mejor se ajuste al costo a distribuir. En caso de no contar con ese conductor se considerará su participación en las ventas totales físicas del último año calendario.
 Este margen absoluto generará los ingresos para cubrir el costo de operación necesario para el suministro oportuno del combustible y será establecido al menos una vez al año de manera ordinaria siguiendo el procedimiento establecido en la Ley 7593, sus reformas y su reglamento.
 A continuación se describe el procedimiento de estimación del margen de operación para cada tipo de combustible, el cual se basa en el análisis de los costos históricos, la temporalidad de esos costos históricos se indica en el detalle siguiente. Con ese propósito, la fórmula a emplear es la siguiente:
-[imagen]
 Dónde:
 Ki,a = Margen de operación por litro de combustible vendido y por tipo de combustible i, en el año a.
 Ci,a = Costos totales operativos tarifarios anuales por litro y tipo de combustible i, en el año a.
@@ -208,7 +204,6 @@ A continuación se detallan los costos operativos tarifarios incluidos en la ecu
 i. Margen de comercialización del proveedor (margen trader) para el combustible i (Mg¢/Ltri):
 El margen de proveedor internacional se presenta como un promedio de las comisiones cobradas, según los contratos del último año disponible al momento del cálculo tarifario.
 Este dato se presenta en dólares por barril. Para su incorporación dentro del cálculo de K proyectado para el periodo en que estará vigente la tarifa por producto, se multiplica su valor en dólares por barril, por el IPC de los Estados Unidos de América (TC¢). El resultado se multiplica por el tipo de cambio de venta para el sector público no bancario (CRC/USD), calculado como una media aritmética simple diaria de los 3 meses anteriores a la fecha de la audiencia pública y dividiendo el resultado anterior entre 158,987 (litros/barril) para finalmente que el resultado quede expresado en colones / litro.
-[imagen]
 Donde:
 Mg¢/Li,a = Margen de comercialización del proveedor, que es el proyectado en colones por litro para el combustible i, en el año a.
 Mg$/bbli,a-1 = Margen de comercialización del proveedor, que es el promedio del año base a-1 en dólares por barril para el combustible i.
@@ -221,7 +216,6 @@ ii. Flete de transporte marítimo:
 Para el cálculo de este componente se toman los datos reales para el año base del anexo 3- B.4 de los Estados Financieros de Recope o su equivalente, expresado en dólares estadounidenses / barril. Ese cuadro detalla los barriles importados durante el último año, el flete en dólares/barril para cada producto.
 Para el cálculo del costo de flete marítimo en colones/litro por producto, primero se debe tener en cuenta aquellos productos que son compuestos, como es el caso de las gasolinas, el LPG y otros. En el caso de aquellos productos que se obtienen como una mezcla, el flete internacional se calculará considerando el flete promedio de sus componentes, el cual se ponderará por la participación relativa de cada componente en la mezcla. Este dato se presenta en dólares por barril. Para su incorporación dentro del cálculo de K proyectado por producto se multiplica ese valor por el IPC de los Estados Unidos de América. El resultado se multiplica por el tipo de cambio de venta para el sector público no bancario (CRC/USD), calculado como una media aritmética simple diaria de los 3 meses anteriores a la fecha de la audiencia pública y dividiendo el resultado anterior entre 158,987 (litros/barril) para finalmente que el resultado quede expresado en colones / litro.
 En el caso de los productos cuya composición se basa en porcentajes de mezcla entre productos, se aplica a cada componente (costo de flete y barriles importados) el porcentaje de mezcla correspondiente. La fórmula de flete marítimo proyectado es:
-[imagen]
 Donde:
 Fl¢/L i,a = Flete marítimo proyectado en colones por litro para el combustible i, en el año a.
 Fl$/bbli,a-1= Flete marítimo del año base a-1 en dólares por barril para el combustible i.
@@ -234,7 +228,6 @@ iii. Seguro de transporte marítimo:
 Para el cálculo de este componente se toman los datos del anexo 3-B.4 de los Estados Financieros de Recope o su equivalente, expresado en dólares estadounidenses. Este cuadro detalla los barriles importados durante el último año, el seguro en dólares/barril para cada producto.
 Para el cálculo del costo de seguro de transporte marítimo en colones por litro por producto, debe tenerse en cuenta aquellos productos que son compuestos, como es el caso de las gasolinas, el LPG y otros. En el caso de aquellos productos que se obtienen como una mezcla, el seguro se calculará considerando el seguro promedio de los componentes, el cual se ponderará por la participación relativa de cada componente en la mezcla, este dato se presenta en dólares por barril. Para su incorporación dentro del cálculo de K proyectado por producto, se multiplica ese valor por el IPC de los Estados Unidos de América, por el tipo de cambio de venta para el sector público no bancario (CRC/USD), calculado como una media aritmética simple diaria de los 3 meses anteriores a la fecha de la audiencia pública y dividiendo el resultado anterior entre 158,987 (litros/barril) para finalmente que el resultado quede expresado en colones / litro.
 En el caso de los productos cuya composición se basa en porcentajes de mezcla entre productos, se aplica a cada componente (costo de seguros y barriles importados) el porcentaje de mezcla correspondiente. La ecuación para calcular este rubro es la siguiente:
-[imagen]
 Donde:
 Seg¢/L i,a = Seguro marítimo proyectado en colones por litro para el combustible i, en el año a.
 Seg$/bbli,a-1 = Seguro marítimo del año base a-1 en dólares por barril para el combustible i.
@@ -248,7 +241,6 @@ Estos costos están relacionados con la descarga del producto en el puerto de de
 Para el cálculo de los costos portuarios en colones por litro por producto, primero se debe tener en cuenta aquellos productos que son compuestos, como es el caso de las gasolinas, el LPG y otros. En el caso de aquellos productos que se obtienen como una mezcla, el costo portuario se calculará considerando el costo promedio de los componentes, el cual se ponderará por la participación relativa de cada componente en la mezcla. Este dato se presenta en dólares por barril.
 Para su incorporación dentro del cálculo de K proyectado por producto, se multiplica ese valor por el IPC de los Estados Unidos de América y por el tipo de cambio de venta para el sector público no bancario (CRC/USD), calculado como una media aritmética simple diaria de los 3 meses anteriores a la fecha de la audiencia pública y dividiendo el resultado anterior entre 158,987 (litros/barril) para finalmente que el resultado quede expresado en colones / litro.
 En el caso de los productos cuya composición se basa en porcentajes de mezcla entre productos, se aplica a cada componente (costo portuario y barriles importados) el porcentaje de mezcla correspondiente. La fórmula del costo portuario proyectado es la siguiente:
-[imagen]
 Donde:
 CstPort¢/Ltri,a = Costo portuario proyectado en colones por litro para el combustible i, en el año a.
 CstPort$/bbli,a-1 = Costo portuario del año base a-1 en dólares por barril para el combustible i.
@@ -261,8 +253,8 @@ v. Pérdidas en tránsito.
 Para el cálculo del costo de pérdidas en tránsito, se deben enlistar y justificar por parte de los ingenieros químicos, los porcentajes de pérdida por producto, que ocurren entre el volumen cargado en el puerto de origen y el volumen descargado en el puerto de destino.
 Estas pérdidas pueden darse por evaporación, por adherencia a las paredes de los recipientes, diferencias de medición originadas por calibración, factores de corrección de los tanques de los barcos por diferencia de temperatura, o cuando se da la existencia de bolsas de aire en la compactación de las líneas de trasiego del barco a los tanques de almacenamiento.
 El cálculo del valor en moneda nacional del costo por pérdidas en tránsito, se cuantifica sobre los costos del producto en el puerto de destino de la siguiente forma:
-[imagen] Donde:
-[imagen] = Pérdidas en tránsito para el combustible i, en el año a.
+Donde:
+= Pérdidas en tránsito para el combustible i, en el año a.
 PRi = Precio FOB promedio internacional de referencia por litro del combustible i. Definido en la sección 5.3
 TCR = Tipo de cambio, de venta para el sector público no bancario (CRC/USD), calculado como una media aritmética simple diaria de los 3 meses anteriores a la fecha de la audiencia pública.
 Mg¢/Li,a = Margen de comercialización del proveedor proyectado en colones por litro para el combustible i, en el año a.
@@ -272,7 +264,8 @@ CstPort¢/Li,a = Costo portuario proyectado en colones por litro para el combust
 % pérdidasi = Porcentaje de pérdidas en tránsito por producto i.
 i = Tipo de combustible.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
-vi. Costos de almacenamiento, trasiego y distribución por litro del combustible i:
+vi. El costo de almacenamiento: toma como criterio de distribución el volumen de litros anuales vendidos de cada tipo de combustible i del año a:
+(Así reformado el párrafo anterior mediante resolución RJD-070-2016 del 25 de abril de 2016)
 Para el cálculo de los costos de almacenamiento, trasiego y distribución se tiene el modelo de costos y gastos de la Gerencia de Distribución y Ventas, en donde se encuentran aplicados los gastos de la gerencia de refinación que están relacionados con la actividad de almacenamiento, trasiego y distribución de producto terminado por lo que sí se deben tomar en cuenta dentro de la fijación tarifaria.
 La asignación de los gastos de la Gerencia de Distribución y Ventas se realiza considerando dos categorías, a saber:
 Gastos directos: relacionados con los procesos de bombeo y recibo de producto, almacenamiento y venta.
@@ -324,65 +317,59 @@ El resultado de estos costos se expresa en colones por litro del combustible i.
 Se refiere a los otros ingresos para el combustible i en el año a, diferentes a la venta de combustibles en plantel de distribución.
 5.5.1. Otros ingresos:
 Se utilizan los valores reales de las cuentas de otros ingresos para los cuales Recope no cuente con los gastos asociados a su generación y no puedan separarse las actividades contablemente. La fórmula para otros ingresos es:
-[imagen]
 Donde:
-[imagen] = Otros ingresos diferentes a la venta de combustibles en plantel de distribución, para el combustible i en el año a. % = Porcentaje de otros ingresos del combustible i para el año a-1(OIi,a-1) de las ventas totales en colones del combustible i para el año a-1 (VTi,a-1)
+OI i,a= Otros ingresos diferentes a la venta de combustibles en plantel de distribución, para el combustible i en el año a. % = Porcentaje de otros ingresos del combustible i para el año a-1(OIi,a-1) de las ventas totales en colones del combustible i para el año a-1 (VTi,a-1)
 VTi,a-1 = Ventas totales reales en colones para el combustible i, en el año a-1.
 Con VTi,a-1 ≠0
 Qi,a = Total de litros anuales vendidos estimados de cada tipo de combustible i, en el año a.
-Si para algún “i” Qia = 0, entonces [imagen] = 0
+Si para algún “i” Qia = 0, entonces OI i,a= 0
 i = Tipo de combustible.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 a-1 = Año base.
 5.5.2. Otros ingresos prorrateados
 Se refiere a los otros ingresos para el combustible i en el año a, diferentes a la venta de combustibles en plantel de distribución, que no pueden ser asociados a un combustible en particular, para los cuales Recope no cuente con los gastos asociados a su generación y no puedan separarse las actividades contablemente. Se utilizan los valores reales de las cuentas de otros ingresos para los cuales Recope no cuente con los gastos asociados a su generación y se procede a su estimación mediante la siguiente ecuación:
-[imagen]
 Donde :
-[imagen] = Otros ingreso prorrateados asignados al combustible i en el año a.
-[imagen] = Otros ingresos totales en el año a-1. Son los otros ingresos que no son asociados a un combustible en particular.
-[imagen] = Volumen en litros vendidos estimados del combustible i, en el año a.
-Si para algún “i” Qia = 0, entonces 𝑂𝐼𝑃𝑖,𝑎
+OIPi,a= Otros ingreso prorrateados asignados al combustible i en el año a.
+OIT a-1 = Otros ingresos totales en el año a-1. Son los otros ingresos que no son asociados a un combustible en particular.
+Qi,a= Volumen en litros vendidos estimados del combustible i, en el año a.
+Si para algún “i” Qia = 0, entonces OIPi,a
 i = Tipo de combustible.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 5.6. Diferencial de precios (Dai,j)
-El diferencial de precios por rezago, parte del cálculo de la suma bimensual de las diferencias diarias entre el costo FOB del litro promedio de combustible en tanque versus el precio FOB promedio de referencia del combustible i del ajuste j [imagen] , dividido a su vez entre el total de ventas estimadas por producto i para el periodo de ajuste j. Y se calcula mediante la siguiente fórmula:
-[imagen]
+El diferencial de precios por rezago, parte del cálculo de la suma bimensual .Y se calcula mediante la siguiente fórmula:
+(Así reformado el párrafo anterior mediante resolución RJD-070-2016 del 25 de abril de 2016)
 Donde:
 Da i,j = Ajuste en el precio de venta causado por el diferencial de precio del combustible i en el ajuste extraordinario j.
-[imagen] = Precio FOB promedio de referencia del combustible i del ajuste j en colones para el día d.
-[imagen] = Costo FOB Promedio del inventario en colones del combustible i en tanque, para el día d.
-[imagen] = Ventas reales del producto i en litros l para el día d.
-[imagen] = Ventas totales estimadas en litros, para el combustible i en el ajuste extraordinario j.
-Si para algún [imagen] , entonces [imagen]
+PRi,j,d= Precio FOB promedio de referencia del combustible i del ajuste j en colones para el día d.
+CIPi,d= Costo FOB Promedio del inventario en colones del combustible i en tanque, para el día d.
+VDRi,d,l= Ventas reales del producto i en litros l para el día d.
+VTEi,j= Ventas totales estimadas en litros, para el combustible i en el ajuste extraordinario j.
+Si para algún "i" VTE i,j=0, entonces Dai,j=0
 J = 1, 2, 3,…, J. Número de ajustes extraordinarios de precios, realizados a partir de la entrada en vigencia de la tarifa establecida mediante procedimiento ordinario vigente.
 i = Tipo de combustibles
 d = Índice que indica el día de la semana.
 L = Litros
 b1 = Índice que indica el primer día del mes 1 considerado en el ajuste por diferencial.
 b2 = Índice que indica el último día del mes 2 considerado en el ajuste por diferencial.
-El costo FOB del litro promedio de combustible [imagen] , se obtiene de la división del valor
-del saldo del inventario diario por producto a precio FOB [imagen] , entre el saldo de litros del
-inventario diario por producto [imagen]
-[imagen]
+El costo FOB del litro promedio de combustible (CIPd,i), se obtiene de la división del valor del saldo del inventario diario por producto a precio FOB (VI i,d), entre el saldo de litros del inventario diario por producto (Inv i,l d)
 Donde:
-[imagen] = Costo FOB del litro promedio de combustible i para el día d.
-[imagen] = Valor del inventario del combustible i a precio FOB para el día d.
-[imagen] = Saldo de inventario del combustible i en litros l para el día d.
-Si para algún [imagen] , entonces [imagen] .
+CIP i,d= Costo FOB del litro promedio de combustible i para el día d.
+VI i,d= Valor del inventario del combustible i a precio FOB para el día d.
+Inv i,l,d= Saldo de inventario del combustible i en litros l para el día d.
+Si para algún "i" Inv i,l,d=0, entonces CIP i,d=0..
 j = 1, 2, 3,…, J. Número de ajustes extraordinarios de precios, realizados a partir de la entrada en
 vigencia de la tarifa establecida mediante procedimiento ordinario vigente.
 i = Tipo de combustibles
 d = Índice que indica el día de la semana.
 L = Litros
-El valor del inventario diario al costo por producto (VId,i ), representa el saldo del inventario al costo a precio FOB del día anterior o inicial [imagen] , más el valor total de compras del día (cada embarque se promedia en el momento de la fecha de descarga en tanques) a precio FOB (CCi,r), menos el total de ventas diarias costeadas a precios de referencia vigentes [imagen] Para el cálculo del saldo de inventario diario por producto en litros [imagen] , se toman el saldo del inventario en litros del día anterior por producto, se le suman las compras físicas del día en litros por producto, y se le restan las ventas en litros del día por producto, según las siguientes fórmulas:
-[imagen]
+El valor del inventario diario al costo por producto (VI d,i ), representa el saldo del inventario al costo a precio FOB del día anterior o inicial (VI i,d-1), más el valor total de compras del día (cada embarque se promedia en el momento de la fecha de descarga en tanques) a precio FOB (CCi,r), menos el total de ventas diarias costeadas a precios de referencia vigentes Para el cálculo del saldo de inventario diario por producto en litros (Inv d,i,l), se toman el saldo del inventario en litros del día anterior por producto, se le suman las compras físicas del día en litros por producto, y se le restan las ventas en litros del día por producto, según las siguientes fórmulas:
 Donde:
-[imagen] = Valor del inventario del combustible i a precio FOB para el día d.
-[imagen] = Valor del inventario diario promedio del combustible i a precio FOB para el día d-1.
-[imagen] = Compra al costo FOB real del producto i del embarque r, para el día de descarga d, al tipo de cambio de venta para el sector público no bancario (CRC/USD) de la fecha de pago del
+VI i,d= Valor del inventario del combustible i a precio FOB para el día d.
+VI i,d-1= Valor del inventario diario promedio del combustible i a precio FOB para el día d-1.
+CC i,r= Compra al costo FOB real del producto i del embarque r, para el día de descarga d, al tipo de cambio de venta para el sector público no bancario (CRC/USD) de la fecha de pago del
 embarque r.
-[imagen] = Ventas reales del producto i para el día d en litros l
-[imagen] = Precio FOB promedio de referencia del combustible i del ajuste j en colones vigente el día d.
+VDR i,d,l= Ventas reales del producto i para el día d en litros l
+PR i,j,d= Precio FOB promedio de referencia del combustible i del ajuste j en colones vigente el día d.
 j = 1, 2, 3,…, J. Número de ajustes extraordinarios de precios, realizados a partir de la entrada en
 vigencia de la tarifa establecida mediante procedimiento ordinario vigente.
 i = 1, 2 ,3…h. Tipos de combustibles
@@ -390,11 +377,12 @@ d = Índice que indica el día de la semana.
 l = Litros
 r = Índice que muestra el embarque del que se toman los precios FOB.
 [imagen]
+(Así reformado la ecuación anterior mediante resolución RJD-070-2016 del 25 de abril de 2016)
 Donde:
-[imagen] = Saldo de inventario del combustible i en litros l para el día d.
-[imagen] = Inventario del producto i en litros l para el día d-1.
-[imagen] = Compras físicas en litros del producto i del embarque r, para el día de descarga d.
-[imagen] = Ventas reales el día d del producto i en litros l
+Inv i,l,d= Saldo de inventario del combustible i en litros l para el día d.
+Inv i,l,d-1= Inventario del producto i en litros l para el día d-1.
+CF i,r,l= Compras físicas en litros del producto i del embarque r, para el día de descarga d.
+VDR i,d,l= Ventas reales el día d del producto i en litros l
 j = 1, 2, 3,…, J. Número de ajustes extraordinarios de precios, realizados a partir de la entrada en vigencia de la tarifa establecida mediante procedimiento ordinario vigente.
 i = 1, 2 ,3…h. Tipos de combustibles
 d = Índice que indica el día de la semana.
@@ -403,45 +391,40 @@ r = Índice que muestra el embarque del que se toman los precios FOB.
 Para la primera aplicación de esta metodología se debe ajustar el Diferencial de precios de tal forma que se reconozcan tarifariamente las diferencias no incluidas en tarifas de meses anteriores, por el plazo que se indica en el apartado 6.
 5.7. Subsidio por tipo de combustible y asignación del pago del subsidio
 5.7.1 Transferencia directa de parte del Estado: Representa el subsidio específico por tipo de combustible otorgado por alguna institución competente del Estado y aplicado a partir del momento en que se demuestre que el valor total del subsidio ha sido trasladado a Recope. El subsidio por litro para el tipo de combustible i, se determinará de la siguiente manera:
-[imagen]
 Donde:
-[imagen] = Monto en colones por litro en que se afecta el precio del combustible i, por concepto de subsidio durante el periodo h, expresado en colones por litro.
-[imagen] = Valor total del subsidio aprobado por la Asamblea Legislativa o el ente competente y trasladado a Recope para el producto i y para el periodo h.
-[imagen] = Ventas totales estimadas en litros del producto i y para el periodo h.
-Si para algún [imagen] entonces [imagen]
-h = Periodo durante el que se aplicará el subsidio [imagen]
+SE i,h= Monto en colones por litro en que se afecta el precio del combustible i, por concepto de subsidio durante el periodo h, expresado en colones por litro.
+VTSi = Valor total del subsidio aprobado por la Asamblea Legislativa o el ente competente y trasladado a Recope para el producto i y para el periodo h.
+VTE i,h= Ventas totales estimadas en litros del producto i y para el periodo h.
+Si para algún "i" VTE i,h=0 entonces SE i,h=0
+h = Periodo durante el que se aplicará el subsidio S i,h
 i = Tipo de combustible.
 5.7.2 Subsidios cruzados:
 a. Ad valorem: Ocurre cuando se subsidia un porcentaje del precio del combustible i.
 Para calcular este porcentaje se debe obtener previamente el cálculo del subsidio por litro, de la siguiente forma:
-[imagen]
 Donde:
-[imagen] = Subsidio cruzado por tipo de combustible i, para el ajuste extraordinario j.
-[imagen] = Porcentaje a subsidiar del precio del combustible i, para el ajuste extraordinario j.
-[imagen] = Precio plantel sin subsidio del combustible i, para el ajuste extraordinario j.
+SCI i,j= Subsidio cruzado por tipo de combustible i, para el ajuste extraordinario j.
+%S i,j= Porcentaje a subsidiar del precio del combustible i, para el ajuste extraordinario j.
+Pss i,j= Precio plantel sin subsidio del combustible i, para el ajuste extraordinario j.
 i = Tipo de combustible.
 j = 1, 2, 3,…, J, Número de ajustes extraordinarios de precios, realizados a partir de la entrada en vigencia de la tarifa establecida mediante procedimiento ordinario vigente.
 El valor total del subsidio se calcula de la siguiente manera:
-[imagen]
 Donde:
-[imagen] = Valor total del subsidio para el ajuste extraordinario j.
-[imagen] = Subsidio cruzado por tipo de combustible i, para el ajuste extraordinario j.
-[imagen] = Ventas totales estimadas en litros del producto i, para el ajuste extraordinario j.
+VTSj = Valor total del subsidio para el ajuste extraordinario j.
+SC i,j= Subsidio cruzado por tipo de combustible i, para el ajuste extraordinario j.
+VTE i,j= Ventas totales estimadas en litros del producto i, para el ajuste extraordinario j.
 j = 1, 2, 3,…, J. Ajustes extraordinarios de precios, realizados a partir de la entrada en vigencia de la tarifa del estudio ordinario de precios anterior.
 i = Tipos de combustibles.
 b. Fijo: Ocurre cuando se subsidia un monto específico por litro del combustible i. Es
-decir, el monto del subsidio [imagen] por litro ya está dado. El cálculo para obtener el valor total del subsidio es el mismo que para el subsidio cruzado ad valorem definido en la ecuación 16.
+decir, el monto del subsidio (SC i,j) por litro ya está dado. El cálculo para obtener el valor total del subsidio es el mismo que para el subsidio cruzado ad valorem definido en la ecuación 16.
 5.7.3 Asignación del subsidio cruzado a otros combustibles:
 La asignación del pago del subsidio i, en el periodo extraordinario j, para los casos a y b anteriores.
 El subsidio del combustible i lo pagarán únicamente los combustibles no subsidiados en el ajuste extraordinario j, a menos de que la normativa vigente al momento del cálculo estipule lo contrario. La participación del pago del subsidio será distribuido de la siguiente manera:
-[imagen]
 Donde:
-[imagen] = Asignación del subsidio del combustible i, para el ajuste j. Únicamente participan los combustibles i no subsidiados.
-[imagen] = Valor total del subsidio para el ajuste extraordinario j.
-[imagen] = Participación relativa en las ventas totales físicas del combustible i, para el ajuste extraordinario j.
+PS i,j= Asignación del subsidio del combustible i, para el ajuste j. Únicamente participan los combustibles i no subsidiados.
+VTS j= Valor total del subsidio para el ajuste extraordinario j.
+Part i,j= Participación relativa en las ventas totales físicas del combustible i, para el ajuste extraordinario j.
 j = 1, 2, 3,…, J. Ajustes extraordinarios de precios, realizados a partir de la entrada en vigencia de la tarifa del estudio ordinario de precios anterior.
 i = 1, 2 ,3…h. Tipos de combustibles
-RJD-230-2015 Página 30 de 45
 La fórmula anterior se establece para ventas estimadas de productos mayores que cero; en
 caso de que no se estimen ventas de alguno de los productos i, el porcentaje del subsidio a
 aplicar sería cero.
@@ -451,71 +434,66 @@ Se realizarán ajustes en los ingresos y gastos estimados y reales, para las var
 usuario los ingresos por encima de los costos obtenidos por Recope en cada periodo. De
 manera contraria, si los ingresos fuesen inferiores a los gastos y costos, Recope podrá
 solicitar un estudio ordinario con las justificaciones pertinentes.
-5.8.1. Ajuste para gastos de operación [imagen]
-El ajuste para gastos de operación ( [imagen] , contrasta los gastos estimados incluidos en el cálculo de la tarifa vigente con los gastos reales incurridos por Recope, el cual se obtiene de la siguiente manera:
-En un primer lugar se calcula el ajuste por diferencial [imagen] entre gastos e ingresos reales de operación relacionados al combustible i y se obtiene de la siguiente manera:
-[imagen]
+5.8.1. Ajuste para gastos de operación (AZ i,a)
+El ajuste para gastos de operación (AZ i,a), contrasta los gastos estimados incluidos en el cálculo de la tarifa vigente con los gastos reales incurridos por Recope, el cual se obtiene de la siguiente manera:
+En un primer lugar se calcula el ajuste por diferencial (az i,a) entre gastos e ingresos reales de operación relacionados al combustible i y se obtiene de la siguiente manera:
 Donde:
-[imagen] = Ajuste por diferencial de ingresos y gastos de operación relacionados al combustible i, para el año a.
-[imagen] = Gastos reales por concepto de margen de costos de operación Ci,a-1 del combustible i, para el periodo n.
-[imagen] = Ingresos reales por concepto de margen de costos de operación Ci,a-1 del combustible i, para el periodo n.
+az i,a= Ajuste por diferencial de ingresos y gastos de operación relacionados al combustible i, para el año a.
+GRZ i,n= Gastos reales por concepto de margen de costos de operación Ci,a-1 del combustible i, para el periodo n.
+IRZ i,n= Ingresos reales por concepto de margen de costos de operación Ci,a-1 del combustible i, para el periodo n.
 n = Periodo comprendido desde Enero a diciembre del año a-1.
 i = Tipo de combustible.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 a-1 = Año base.
-Segundo, el monto total que se debe ajustar a Recope [imagen] , se obtiene de la siguiente
+Segundo, el monto total que se debe ajustar a Recope (Az i,a), se obtiene de la siguiente
 manera:
-[imagen]
 Donde:
-[imagen] = Ajuste por gastos de operación para el combustible i, para el año a.
-[imagen] = Ventas totales estimadas en litros para el combustible i, en el año a-1.
-[imagen] = Ventas totales reales en litros para el combustible i, en el año a-1, para todo [imagen] mayor a 0.
-[imagen] = Ajuste por gastos de operación para el combustible i, para el año a-1.
-[imagen] = Ajuste por diferencial de ingresos y gastos de operación relacionados al combustible i, para el año a (ver ecuación 19).
+Az i,a= Ajuste por gastos de operación para el combustible i, para el año a.
+VTE i,a-1= Ventas totales estimadas en litros para el combustible i, en el año a-1.
+VTR i,a-1= Ventas totales reales en litros para el combustible i, en el año a-1, para todo VTR i,a-1 mayor a 0.
+Az i,a-1= Ajuste por gastos de operación para el combustible i, para el año a-1.
+az i,a= Ajuste por diferencial de ingresos y gastos de operación relacionados al combustible i, para el año a (ver ecuación 19).
 i = Tipo de combustible.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 a-1 = Año base.
-Tercero, una vez obtenido el monto total de ajuste por gastos de operación para el combustible i, se obtiene el monto de ajuste por concepto de gastos de operación por litro para el combustibles i [imagen] de la siguiente manera:
-[imagen]
+Tercero, una vez obtenido el monto total de ajuste por gastos de operación para el combustible i, se obtiene el monto de ajuste por concepto de gastos de operación por litro para el combustibles i (Az i,a)de la siguiente manera:
 Donde:
-[imagen] = Ajuste por concepto de gastos de operación por litro para el combustible i, para el año a.
-[imagen] = Ajuste por gastos de operación para el combustible i, para el año a.
-[imagen] = Ventas totales estimadas en litros para el combustible i, en el año a, para todo [imagen] mayor a 0.
+AjZ i,a= Ajuste por concepto de gastos de operación por litro para el combustible i, para el año a.
+Az i,a= Ajuste por gastos de operación para el combustible i, para el año a.
+VTE i,a= Ventas totales estimadas en litros para el combustible i, en el año a, para todo VTE i,amayor a 0.
 j = 1, 2, 3,…, J. Ajustes extraordinarios de precios, realizados a partir de la entrada en vigencia de la tarifa del estudio ordinario de precios anterior.
 i = Tipos de combustibles
 Las fórmulas anteriores se establecen para ventas de productos mayores que cero; en caso de que no se den ventas reales o no se estimen ventas de alguno de los productos i, su ajuste sería cero.
-5.8.2. Ajuste por concepto de Otros Ingresos [imagen]
-La tarifa de ajuste por concepto de Otros Ingresos [imagen] , contrasta los otros ingresos (OI) estimados reflejados vía tarifa con los otros Ingresos realmente obtenidos por Recope. Y se obtiene de la siguiente manera:
-En primer lugar se obtiene el ajuste por diferencial [imagen] entre Ingresos percibidos vía tarifa e ingresos reales por concepto de otros ingresos relacionados al combustible i y se obtiene de la siguiente manera:
-[imagen] Donde:
-[imagen] = Ajuste por diferencial entre ingresos incluidos en al cálculo de la tarifa vigente e ingresos reales por concepto de otros ingresos relacionados al combustible i, para el año a.
-[imagen] = Otros Ingresos reflejados vía tarifa en la venta de la combustible i, para el periodo n.
-[imagen] = Otros Ingresos reales obtenidos por Recope para el combustible i, para el periodo n.
-[imagen] = Otros Ingresos prorateados reflejados vía tarifa en la venta de la combustible i, para el periodo n.
-[imagen] = Otros Ingresos prorateados reales obtenidos por Recope para el combustible i, para el periodo n.
+5.8.2. Ajuste por concepto de Otros Ingresos (AOI i,a)
+La tarifa de ajuste por concepto de Otros Ingresos (AOI i,a), contrasta los otros ingresos (OI) estimados reflejados vía tarifa con los otros Ingresos realmente obtenidos por Recope. Y se obtiene de la siguiente manera:
+En primer lugar se obtiene el ajuste por diferencial (aoi i,a)entre Ingresos percibidos vía tarifa e ingresos reales por concepto de otros ingresos relacionados al combustible i y se obtiene de la siguiente manera:
+Donde:
+aoi i,a= Ajuste por diferencial entre ingresos incluidos en al cálculo de la tarifa vigente e ingresos reales por concepto de otros ingresos relacionados al combustible i, para el año a.
+OI i,n= Otros Ingresos reflejados vía tarifa en la venta de la combustible i, para el periodo n.
+OIR i,n= Otros Ingresos reales obtenidos por Recope para el combustible i, para el periodo n.
+OIP i,n= Otros Ingresos prorateados reflejados vía tarifa en la venta de la combustible i, para el periodo n.
+OIPR i,n= Otros Ingresos prorateados reales obtenidos por Recope para el combustible i, para el periodo n.
 n = Periodo comprendido desde Enero del año a-2 hasta Diciembre del año a-1.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 a-1 = Año base.
 i = Tipo de combustible.
-En segundo lugar, para obtener el monto total que se debe ajustar a Recope [imagen] , o por el contrario el monto total que Recope debe ajustar a los usuarios, se obtiene de la siguiente manera:
-[imagen]
+En segundo lugar, para obtener el monto total que se debe ajustar a Recope (Aoi i,a), o por el contrario el monto total que Recope debe ajustar a los usuarios, se obtiene de la siguiente manera:
 Donde:
-[imagen] = Ajuste por concepto de otros ingresos para el combustible i, para el año a.
-[imagen] = Ajuste por concepto de otros ingresos para el combustible i, para el año a-1.
-[imagen] = Ventas totales estimadas en litros para el combustible i, en el año a-1, Para todo [imagen] mayor a 0.
+Aoi i,a= Ajuste por concepto de otros ingresos para el combustible i, para el año a.
+Aoi i,a-1= Ajuste por concepto de otros ingresos para el combustible i, para el año a-1.
+VTE i,a-1= Ventas totales estimadas en litros para el combustible i, en el año a-1, Para todo VTE i,a-1mayor a 0.
 VTRi,a-1 = Ventas totales reales en litros para el combustible i, en el año a-1.
-[imagen] = Ajuste por diferencial entre ingresos incluidos en al cálculo de la tarifa vigente e ingresos reales por concepto de otros ingresos relacionados al combustible i, para el año a.
+aoi i,a= Ajuste por diferencial entre ingresos incluidos en al cálculo de la tarifa vigente e ingresos reales por concepto de otros ingresos relacionados al combustible i, para el año a.
 n = Periodo comprendido desde Enero del año a-2 hasta Diciembre del año a-1.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 a-1 = Año base.
 i = Tipo de combustible.
-Una vez obtenido el monto total de ajuste por otros ingresos para el combustible i, se obtiene el monto de ajuste por concepto de otros ingresos por litro para el combustibles i [imagen] ; y se obtiene de la siguiente manera:
-[imagen]
+Una vez obtenido el monto total de ajuste por otros ingresos para el combustible i, se obtiene el monto de ajuste por concepto de otros ingresos por litro para el combustibles i (AZ i,a) ; y se obtiene de la siguiente manera:
 Donde:
-[imagen] = Ajuste por concepto de gastos de operaci? por litro para el combustible i, para el año a.
-[imagen] = Ajuste por concepto de otros ingresos para el combustible i, para el año a (Ver ecuación 23).
-[imagen] = Ventas totales estimadas en litros para el combustible i, en el año a.
-Si par algún [imagen] ; [imagen] ; es igual a 0.
+AjOI i,a= Ajuste por concepto de gastos de operaci? por litro para el combustible i, para el año a.
+Aoi i,a= Ajuste por concepto de otros ingresos para el combustible i, para el año a (Ver ecuación 23).
+VTE i,a= Ventas totales estimadas en litros para el combustible i, en el año a.
+Si par algún "i" VTEi,a=0; Aj OIi; es igual a 0.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 i = Tipo de combustible.
 Las fórmulas anteriores se establecen para ventas de productos mayores que cero; en caso de que no se den ventas reales o no se estimen ventas de alguno de los productos i, su diferencial será cero.
@@ -525,7 +503,6 @@ La variable Cai se refiere al canon de regulación vigente de las actividades de
 5.10. Rendimiento sobre la base tarifaria (RSBTi)
 El rendimiento sobre la base tarifaria (RSBTi,a) se determina a partir de una tasa que refleje el costo del capital en Recope, con el objetivo de que cuente con los fondos necesarios para financiar las inversiones en infraestructura necesarias para garantizar que el servicio público se preste en las condiciones de calidad, cantidad, confiabilidad, continuidad y oportunidad que indica la Ley 7593.
 Se determina mediante la siguiente ecuación:
-[imagen]
 RSBTi,a = Rendimiento sobre la base tarifaria del combustible i para el año a.
 rc = Costo promedio ponderado del capital (Ver ecuación 25a).
 AFNORia:= Activo fijo neto de operación al costo y revaluado del combustible i para el año a, al último cierre fiscal, el cual se calcula como el activo fijo neto en colones que efectivamente se encuentre en operación y se utilice en el proceso productivo asociado con el servicio regulado, más el promedio anual de adiciones por la capitalización de los activos del año a, menos los retiros de activos obsoletos, deteriorados o trasladados a la prestación de otros servicios no incluidos en el Ki,a, más su correspondiente revaluación menos la depreciación acumulada, tanto al costo como revaluada (Ver sección 5.10.2).
@@ -540,10 +517,10 @@ rc= tiea-1 * pa a-1 + tip a-1 * apkp a-1 (Ecuación 25.a)
 Donde:
 rc = Costo promedio ponderado del capital.
 tiea-1 = Costo del endeudamiento: valor de las obligaciones de largo plazo con costo financiero del año a-1. Se obtiene del promedio ponderado de la tasa de interés de los pasivos de largo plazo con costo de la empresa con corte al periodo fiscal anterior a la fijación tarifaria (siendo el ponderador el monto del principal de cada préstamo incluido en el cálculo).
-Paa-1 = Porcentaje de apalancamiento del año a-1 obtenido como [imagen] siendo: D el valor de la euda, el cual considera únicamente las obligaciones con costo financiero excluidas las adquiridas para financiar la actividad de refinación y A la sumatoria de la deuda con costo más el patrimonio (D+P), ambos según el último estado financiero auditado anterior a la fijación tarifaria.
+Paa-1 = Porcentaje de apalancamiento del año a-1 obtenido como D/A siendo: D el valor de la euda, el cual considera únicamente las obligaciones con costo financiero excluidas las adquiridas para financiar la actividad de refinación y A la sumatoria de la deuda con costo más el patrimonio (D+P), ambos según el último estado financiero auditado anterior a la fijación tarifaria.
 tipa-1 = Tasa de interés pasiva nominal promedio general del año a-1. Se utilizará la media aritmética simple del valor diario de tasa de interés pasiva bruta promedio del Sistema Financiero, en colones publicada por el BCCR, y se usará la serie de datos para el año fiscal anterior al que se
 realiza la fijación tarifaria.
-Apkpa-1 = Porcentaje de aporte propio sobre el capital del año a-1 obtenido como [imagen] siendo: P el valor del capital propio o patrimonio excluidos los aportes realizados al proceso de refinación, según el último estado financiero auditado anterior a la fijación tarifaria y A el indicado en la variable pa.
+Apkpa-1 = Porcentaje de aporte propio sobre el capital del año a-1 obtenido como P/A siendo: P el valor del capital propio o patrimonio excluidos los aportes realizados al proceso de refinación, según el último estado financiero auditado anterior a la fijación tarifaria y A el indicado en la variable pa.
 a-1 = Año base.
 5.10.2. Activo fijo neto en operación
 El activo fijo neto de operación al costo por tipo de combustible, al último cierre fiscal, el cual
@@ -632,7 +609,6 @@ a = Año en el que estará vigente la fijación ordinaria calculada con
 esta metodología.
 En los casos en los cuales se utiliza el Índice de Precios al Consumidor se considerará la expectativa de inflación publicada por el Banco Central de Costa Rica en su Programa Macroeconómico. Mientras que la información real del índice se obtiene del Instituto Nacional de Estadística y Censos (INEC). Para la proyección se utiliza la variación interanual del índice al último mes disponible de información.
 Índice de revaluación para activos de origen externo (importado)
-[imagen]
 Donde:
 IRE = Índice de revaluación de activos externo.
 IPUSAa-1 = Índice de precios de Estados Unidos representativo del activo al mes de diciembre de periodo a-1, con IPUSAa-1 diferente de 0.
@@ -764,10 +740,9 @@ Donde:
 𝑉𝑇𝑃𝑖,𝑎−1 = Ventas diarias promedio, en litros para el combustible i. Calculadas como una media aritmética simple de las ventas diarias en el año a-1
 𝑃𝑃𝐴𝑖,𝐶𝐼𝐹 = Precio promedio de referencia CIF sin impuesto en litros para el combustible i. Calculada como una media aritmética simple de las facturas por embarque para el año a-1.
 𝐷𝐼𝑃𝑖,𝑎−1 = Días de inventario Promedio real del periodo a-1. Se calcula como:
-[imagen]
 Donde:
-𝑉𝑇𝑅𝑖,𝑎−1 = Ventas totales reales en colones para el combustible i, en el año a-1
-𝐼𝑁𝐶𝑖,𝑎−1 = Inventario neto al costo del producto i, en el año a-1
+VTR i,a-1 = Ventas totales reales en colones para el combustible i, en el año a-1
+INCi,a−1 = Inventario neto al costo del producto i, en el año a-1
 Dv = Días efectivos de venta al año, durante los que se expenden combustibles en los planteles de Recope.
 a = Año en el que estará vigente la fijación ordinaria calculada con esta metodología.
 a-1 = Año base.
@@ -775,9 +750,9 @@ I = Tipo de combustible.
 5.11. Impuesto único por tipo de combustible (Ti)
 El impuesto único a los combustibles está establecido en la Ley de Simplificación y Eficiencia Tributaria N° 8114 y es fijado por el Ministerio de Hacienda. Este monto será ajustado de manera extraordinaria, según se indica en el apartado 7 y es expresado en colones por litro y para cada combustible.
 5.12. Precio del Jet fuel, av-gas e ifo 380 en puertos y aeropuertos sin impuesto único
-Los precios en plantel de distribución de los combustibles jet fuel, av-gas e ifo 380, que se venden en aeropuertos o puertos, será aplicado automáticamente por Recope ajustando el precio de referencia internacional PRi dentro de una banda establecida por Aresep. El rango de la banda se establecerá con base en el valor de dos desviaciónes estándar por barril del precio internacional FOB de cada combustible. La desviación estándar será calculada en cada fijación extraordinaria, con base en 300 observaciones del precio FOB de referencia internacional de cada combustible ocurridas con anterioridad a la fecha de corte las fijaciones extraordinarias de las variables PRij, TCRj, el segundo viernes de cada mes, según la sección 6. En las fijaciones ordinarias se utilizará el resultado la fijación extraordinaria vigente a la fecha de la resolución tarifaria.
+Los precios en plantel de distribución de los combustibles jet fuel, av-gas e ifo 380, que se venden en aeropuertos o puertos, será aplicado automáticamente por Recope ajustando el precio de referencia internacional PRi dentro de una banda establecida por Aresep. (*)El rango de la banda se establecerá con base en el valor de una desviación estándar por barril del precio internacional FOB de cada combustible. La desviación estándar será calculada en cada fijación extraordinaria, con base en 300 observaciones del precio FOB de referencia internacional de cada combustible ocurridas con anterioridad a la fecha de corte las fijaciones extraordinarias de las variables PRij, TCRj, el segundo viernes de cada mes, según la sección 6. En las fijaciones ordinarias se utilizará el resultado la fijación extraordinaria vigente a la fecha de la resolución tarifaria.
+(*) (Así reformado el párrafo anterior mediante resolución RJD-070-2016 del 25 de abril de 2016)
 Modificado el precio internacional PRi según el rango de variación, debe adicionársele el Ki,a, Dai,j, los subsidios y Cai,a para establecer el precio final, sin el impuesto único. En aquellos casos en donde no se aplique la exoneración del impuesto único, este deberá agregarse al precio. Las fórmulas para calcular el precio máximo y mínimo por litro, en colones o dólares, son las siguientes:
-[imagen]
 Donde:
 máx¢
 i, j NPPC = Precio máximo en colones por litro, en plantel de distribución, de los combustibles jet fuel, av-gas e ifo 380, que se vende en aeropuertos o puertos, del combustible i para el ajuste extraordinario j.
@@ -806,7 +781,6 @@ De conformidad con lo expuesto, en un mismo mes y en un solo expediente tarifari
 El ajuste de precios se someterá al procedimiento que estipula la Ley 7593 y sus reformas, el Reglamento a dicha ley y varios votos de la Sala Constitucional, entre ellos el 2010- 004042, para resolver los ajustes de precios extraordinarios. La Aresep dará un plazo razonable para cumplir con el derecho de participación ciudadana. Para ello se seguirá el procedimiento establecido en la RRG-7205-2007 del 7 de setiembre de 2007 publicada en La Gaceta 181 del 20 de setiembre de 2007 y sus modificaciones o cualquier otra resolución que la sustituya. De este trámite se excluyen los ajustes en los precios del combustible ocasionados por la actualización del impuesto único, el cual se deberá realizar de acuerdo a lo que establece la Ley 8114.
 7. Precio al consumidor final
 Una vez ajustado el precio en plantel de distribución al mayoreo de Recope, se trasladará el ajuste a los precios del consumidor en estaciones de servicio mixtas y distribuidores sin punto fijo de venta (peddlers). La fórmula para establecer el precio al consumidor será la siguiente:
-[imagen]
 Donde:
 PCDFi,j = Precio al consumidor del combustible i, al nivel del distribuidor y/o comercializador de combustible, en colones por litro.
 PPCi, j = Precio de venta en plantel de distribución al mayoreo del combustible i, en el ajuste extraordinario j.

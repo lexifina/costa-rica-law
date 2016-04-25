@@ -14,3 +14,4 @@ Metodología tarifaria ordinaria y extraordinaria para fijar el precio de los co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-30 | la propia norma |
+| 2 | 2016-04-25 | Resolución 70 (2016-04-25) |
