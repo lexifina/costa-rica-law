@@ -1,0 +1,1 @@
+Artículo 3: Que las bases para el otorgamiento de ambos premios, han sido definidas por las comisiones nombradas al efecto para la realización de estos concursos y aprobadas por la Junta Administrativa del Archivo Nacional.

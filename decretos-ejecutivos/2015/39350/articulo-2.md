@@ -1,0 +1,1 @@
+Artículo 2: Autorizar a la Junta Administrativa del Archivo Nacional para que otorgue anualmente al ganador del Premio Archivístico Nacional Luz Alba Chacón de Umaña la exoneración del pago de inscripción del Congreso Archivístico Nacional del año en que obtuvo el premio.

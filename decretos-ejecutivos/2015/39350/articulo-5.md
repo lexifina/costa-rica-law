@@ -1,0 +1,1 @@
+Artículo 5: El Premio Archivístico Nacional "Luz Alba Chacón de Umaña", al archivo distinguido, será anual y consistirá en la entrega de una placa de reconocimiento, así como la exoneración del pago de inscripción del Congreso Archivístico Nacional del año en que obtuvo el premio.
