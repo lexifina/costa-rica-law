@@ -1,1 +1,0 @@
-Artículo 33.—Una vez concluida la sesión correspondiente, el secretario de la Junta Directiva preparará un proyecto de acta, que deberá entregar a los miembros de la Junta Directiva, por lo menos con veinticuatro horas de anticipación, a la sesión en que serán discutidas y aprobadas.

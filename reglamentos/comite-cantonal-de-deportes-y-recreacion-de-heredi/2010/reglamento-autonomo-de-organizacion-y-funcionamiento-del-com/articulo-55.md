@@ -1,1 +1,0 @@
-Artículo 55.—Todas las obligaciones de pago, producto de compras o contrataciones de bienes y servicios que no estén contempladas en los artículos anteriores, serán tramitadas en las oficinas del Comité Cantonal, a solicitud de cada Comité Comunal.

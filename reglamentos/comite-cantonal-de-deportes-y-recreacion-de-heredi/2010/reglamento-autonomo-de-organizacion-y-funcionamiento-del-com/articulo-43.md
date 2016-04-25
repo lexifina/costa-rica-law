@@ -1,1 +1,0 @@
-Artículo 43.—El Comité Cantonal deberá presentar para la aprobación del Concejo Municipal, tanto del presupuesto ordinario como los extraordinarios, los que deberán sujetarse a las disposiciones que en tal sentido dicte la Contraloría General de la República y deberán elaborarse en forma acorde con los programas incluidos en el plan de trabajo anual.

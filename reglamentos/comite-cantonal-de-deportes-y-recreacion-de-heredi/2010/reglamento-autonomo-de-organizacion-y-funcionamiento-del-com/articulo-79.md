@@ -1,1 +1,0 @@
-Artículo 79.—Las contrataciones hasta un máximo de quinientos mil colones, podrán ser adjudicadas por el Administrador, previo visto Bueno del Presidente y el Tesorero quienes deben firmar conjuntamente. Todas las demás contrataciones que excedan ese monto, obligatoriamente deben ser adjudicadas por la Junta Directiva del Comité.

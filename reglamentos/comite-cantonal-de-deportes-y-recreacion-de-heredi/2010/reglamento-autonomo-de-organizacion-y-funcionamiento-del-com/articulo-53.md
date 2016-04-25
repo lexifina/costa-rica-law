@@ -1,1 +1,0 @@
-Artículo 53.—El Comité Cantonal, abrirá una cuenta corriente a favor de cada Comité Comunal, en donde se depositarán todos los fondos del Comité. Esa cuenta se encontrará bajo supervisión del Comité Cantonal de Deportes.

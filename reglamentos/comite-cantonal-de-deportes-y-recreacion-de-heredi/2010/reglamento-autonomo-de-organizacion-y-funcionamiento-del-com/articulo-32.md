@@ -1,4 +1,0 @@
-CAPÍTULO VI
-De las actas
-Artículo 32.—El Comité Cantonal, así como los Comités Comunales, llevarán un libro de actas donde harán constar en forma íntegra, clara y sucinta, los miembros asistentes a cada sesión, los puntos principales de la deliberación, la forma y resultado de la votación y el contenido de los acuerdos. El libro de actas de la Junta Directiva del Comité Cantonal y de los Comité Comunales, deben ser autorizados por la Auditoría Municipal. En todos los casos, las hojas de los libros deben ser selladas y foliadas. Las actas una vez aprobadas por la Junta Directiva, serán firmadas por el presidente y el secretario.
-Los miembros de la Junta Directiva podrán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

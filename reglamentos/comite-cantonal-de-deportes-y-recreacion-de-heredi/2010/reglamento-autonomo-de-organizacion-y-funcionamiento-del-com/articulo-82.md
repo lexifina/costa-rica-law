@@ -1,1 +1,0 @@
-Artículo 82.—Los límites para determinar el procedimiento de contratación a seguir, según su cuantía, serán los fijados por el artículo 27 de la Ley de Contratación Administrativa y las reformas que al efecto establezca la Contraloría General de la República.

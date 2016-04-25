@@ -1,1 +1,0 @@
-Artículo 59.—Los comités comunales se reunirán ordinariamente, en sesión pública, dos veces al mes, en la hora, día y lugar que fijará el Comité Comunal y se reunirán extraordinariamente cuando lo requieran.

@@ -1,1 +1,0 @@
-Artículo 74.—El mantenimiento de canchas de fútbol, específicamente de su gramilla, deberá producirse una vez al año, utilizando los meses de la temporada lluviosa, preferiblemente setiembre, octubre y/o noviembre, debiendo permanecer totalmente cerradas al público mientras duren los trabajos de mantenimiento.

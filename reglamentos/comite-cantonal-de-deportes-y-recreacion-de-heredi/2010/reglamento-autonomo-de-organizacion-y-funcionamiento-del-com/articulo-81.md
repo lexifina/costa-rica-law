@@ -1,1 +1,0 @@
-Artículo 81.—El Comité deberá levantar un expediente administrativo, debidamente foliado, para cada contratación que realice. Dicho expediente, debe contener todos los requisitos y actuaciones referentes a la contratación.

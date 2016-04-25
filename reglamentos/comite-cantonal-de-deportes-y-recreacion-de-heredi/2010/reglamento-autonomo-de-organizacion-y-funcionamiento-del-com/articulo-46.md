@@ -1,1 +1,0 @@
-Artículo 46.—Conforme a sus fines, el Comité Cantonal y comités adscritos, solo podrán invertir recursos económicos en obras de infraestructura deportiva o recreacional ubicadas en propiedades de la Municipalidad o del Estado; en este último caso, deberá suscribirse formalmente el convenio correspondiente.

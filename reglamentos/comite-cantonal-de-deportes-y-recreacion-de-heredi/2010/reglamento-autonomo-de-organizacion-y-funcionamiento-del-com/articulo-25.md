@@ -1,4 +1,0 @@
-Artículo 25.—Para resolver los asuntos en discusión en la Junta Directiva, se tendrán tres tipos de votación:
-a) Ordinaria: Es aquella por medio de la cual los integrantes, una vez agotada la discusión de un asunto, expresan su voluntad levantando la mano.
-b) Nominal: Es aquella, que una vez solicitada por un integrante y agotada la lista de oradores que estuviere pendiente en ese momento, se expresa verbalmente por cada uno de los votantes, quienes en esa oportunidad podrán expresas la justificación de su voto, la que debe de constar en el acta.
-c) Secreta: Es aquella que una vez agotada la lista de oradores, se emite mediante una boleta de votación y para aquellos casos en que este Reglamento dispone ese tipo de votación. Los votos de los miembros deben ser en forma positiva, o negativa al asunto en discusión, sin permitirse la abstención o anotando el nombre de la persona en el caso de una elección.

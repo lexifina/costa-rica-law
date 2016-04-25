@@ -1,1 +1,0 @@
-Artículo 13.—Los miembros de la Junta Directiva del Comité Cantonal y los Comunales, no devengarán dietas ni remuneración alguna por su servicio voluntario a favor del desarrollo del deporte y la recreación.

@@ -1,1 +1,0 @@
-Artículo 72.—La Junta Directiva del Comité Cantonal podrá evaluar y autorizar iniciativas de ventas de publicidad por concepto de colocación de vallas. Dicho recursos, serán utilizados para el mantenimiento de las mismas instalaciones deportivas.

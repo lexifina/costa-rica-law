@@ -1,1 +1,0 @@
-Artículo 80.—Cuando se trate de contrataciones directas que superen el monto de caja chica, deberá contarse con al menos tres cotizaciones escritas y/o facturas proforma, salvo que se trate de oferentes o proveedores únicos, lo cual deberá quedar debidamente justificado.

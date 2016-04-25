@@ -1,1 +1,0 @@
-Artículo 36.—Cada comisión deberá elaborar un plan de trabajo para el logro del objetivo que le fue impuesto al ser autorizado su funcionamiento y rendirá un informe escrito a la Junta Directiva sobre las actividades realizadas y resultados obtenidos, sobre los fines para los cuales fueron nombrados.
