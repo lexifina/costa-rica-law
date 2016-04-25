@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE SAN JOSÉ
+(Esta norma fue derogada por el artículo 108 del Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Cantón Central de San José, aprobado en sesión N° 151 del 25 de abril de 2016)
 REGLAMENTO INTERIOR DE ORDEN, DIRECCIÓN Y DEBATES
 DEL CONCEJO MUNICIPAL DEL CANTÓN CENTRAL
 DE SAN JOSÉ

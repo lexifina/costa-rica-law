@@ -21,3 +21,4 @@ Reglamento Interior de Orden, Dirección y Debates del Concejo Municipal del Can
 | 6 | 2015-01-27 | Reglamento municipal 248 (2015-01-27) |
 | 7 | 2016-03-07 | Reglamento municipal 148 (2016-03-07) |
 | 8 | 2016-03-29 | Reglamento municipal 309 (2016-03-29) |
+| 9 | 2016-04-25 | Reglamento municipal 151 (2016-04-25) |
