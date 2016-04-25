@@ -13,4 +13,8 @@ Considerando:
 Decretan:
 Reglamento de Zonaje de los Funcionarios
 del Ministerio del Ambiente y Energía
-Artículo 1º—Para los efectos del presente Reglamento se entenderá por zonaje aquella compensación adicional que reciban los servidores del Ministerio que tengan que prestar sus servicios en lugar distinto al de su domicilio legal, siempre y cuando el lugar de prestación de servicios se encuentra a más de veinte kilómetros (20 km) de su domicilio legal (según tabla de kilometraje del Ministerio de Obras Públicas y Transportes) o que eventualmente permanezcan fuera de la circunscripción territorial de este por más de un mes, en forma continua, siempre que la zona en donde realicen sus trabajos justifique tal compensación.
+Artículo 1º—Para los efectos de este Reglamento, por zonaje se entenderá la compensación adicional que reciban los servidores que por disposición del empleador, se vean obligados a prestar sus servicios permanentemente en lugar distinto al de su domicilio legal, o que eventualmente permanezcan fuera de la circunscripción territorial de éste por más de un mes, en forma continua, siempre que la zona en donde realicen su trabajo justifique tal compensación, y se encuentre el funcionario, por lo menos, en una de las siguientes condiciones:
+a) Que el costo de la vida sea más alto que el de su domicilio, de acuerdo con los índices de la Dirección General de Estadística y Censos.
+b) Que las vías de comunicación con el lugar de su vecindario sean caros y difíciles; o
+c) Que no ofrezca facilidades de educación y de atención médica para la familia del servidor, o exista evidente riesgo para la salud de éste o de aquella.
+(Así reformado por el artículo 1 del decreto ejecutivo N° 39860 del 25 de abril del 2016)

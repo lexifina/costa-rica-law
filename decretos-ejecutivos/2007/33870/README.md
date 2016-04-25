@@ -14,3 +14,4 @@ Reglamento de Zonaje de los Funcionarios del Ministerio del Ambiente y Energía
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-27 | la propia norma |
+| 2 | 2016-04-25 | Decreto Ejecutivo 39860 (2016-04-25) |
