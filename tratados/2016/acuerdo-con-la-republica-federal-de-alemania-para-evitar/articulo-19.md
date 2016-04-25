@@ -1,0 +1,13 @@
+Artículo 19
+Funciones Públicas
+(1)
+a) Salarios, sueldos y otras remuneraciones similares, excluyendo una pensión, pagados por un Estado Contratante, Land, subdivisión política o autoridad local del mismo u otra entidad legal bajo las leyes públicas de ese Estado, a una persona física con respecto a servicios prestados a ese Estado, un Land, subdivisión política o autoridad local u otra entidad legal bajo las leyes públicas , deberá ser sometido a imposición solo en ese Estado.
+b) Sin embargo , dicha remuneración deberá ser sometida a imposición solo en el otro Estado Contratante si los servicios se prestan en ese Estado y si la persona física es residente de ese Estado y
+i) es un nacional de ese Estado, o
+ii) no ha adquirido la condición de residente de ese Estado solamente para prestar los servicios .
+(2)
+a) Cualquier pensión pagada por, o de los fondos creados por, un Estado Contratante , Land, subdivisión política o autoridad local del mismo u otra entidad legal bajo las leyes públicas de ese Estado a una persona física con respecto a servicios brindados a ese Estado, un Land, subdivisión política o autoridad local u otra entidad legal bajo las leyes públicas, deberá ser sometida a imposición solo en ese Estado.
+b) Sin embargo , dicha pensión será sometida a imposición solo en el otro Estado Contratante si la persona física es residente de, o nacional de, ese Estado.
+(3) Las disposiciones de los Artículos 15, 16, 17 y 18 serán de aplicación a la remuneración o pensiones en relación a servicios prestados en el marco de un negocio realizado por un Estado Contratante , Land, subdivisión política o autoridad local del mismo u otra entidad legal bajo las leyes públicas de ese Estado.
+(4) Las disposiciones del párrafo 1 también se aplicarán a la remuneración pagada , en el marco de un programa de asistencia al desarrollo del Estado Contratante, Land, subdivisión política o autoridad local del mismo, de fondos exclusivamente brindados por ese Estado, Land subdivisión política o autoridad local del mismo, a un especialista o voluntario envidado por el otro Estado Contratante, con el consentimiento de este otro Estado.
+(5) Las disposiciones del párrafo 1 y 2 también se aplican a la remuneración pagada por o para el Instituto Goethe o el Servicio Alemán de Intercambio Académico ("Deutscher Akademischer Austauschdienst ") de la República Federal de Alemania . El trato correspondiente a la remuneración de otras instituciones comparables de los Estados Contratantes puede ser convenido por las autoridades competentes por mutuo acuerdo. Si dicha remuneración no es gravada en el Estado donde la institución fue fundada , se aplicarán las disposiciones del Artículo 15.

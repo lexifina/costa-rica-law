@@ -1,0 +1,4 @@
+Artículo 21
+Otras Rentas
+(1) Las rentas de un residente de un Estado Contratante, cualquiera que sea su procedencia , que no hayan sido mencionadas en los artículos anteriores de este Acuerdo, serán sometidas a imposición solo en ese Estado.
+(2) Las disposiciones del párrafo 1 no serán de aplicación a las rentas que no se deriven de bienes inmuebles , si el beneficiario de dichas rentas, siendo residente de un Estado Contratante, realiza negocios en el otro Estado Contratante a través de un establecimiento permanente situado en el mismo, o si realiza en ese otro Estado, servicios personales independientes desde una base fija situada en el mismo, y los derechos o propiedades con respecto al cual las rentas son pagadas están vinculados efectivamente con dicho establecimiento permanente o base fija . En tal caso, se aplicarán las disposiciones del Artículo 7 o el Artículo 14, según proceda.

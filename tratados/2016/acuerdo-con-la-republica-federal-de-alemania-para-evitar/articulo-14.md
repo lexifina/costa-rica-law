@@ -1,0 +1,4 @@
+Artículo 14
+Servicios Personales Independientes
+(1) La renta generada por una persona física, la cual es residente de un Estado Contratante , con respecto a servicios profesionales u otras actividades de naturaleza independiente , deberá ser sometida a imposición solo en ese Estado, a no ser que dicha persona posea una base fija disponible en forma regular para esta personas en el otro Estado Contratante, con el fin de realizar sus actividades . Si esta persona tiene dicha base fija , la renta puede ser sometida a imposición en el otro Estado, pero solo en la medida en que es atribuible a esa base fija.
+(2) El término "servicios profesionales" especialmente incluye actividades independientes científicas , literarias , artísticas, educativas o de docencia , así como actividades independientes de doctores, dentistas, abogados , ingenieros, arquitectos y contadores.

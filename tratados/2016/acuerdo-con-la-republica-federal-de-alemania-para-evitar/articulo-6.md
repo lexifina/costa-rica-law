@@ -1,0 +1,6 @@
+Artículo 6
+Rentas por Bienes Inmuebles
+(1) Las rentas obtenidas por un residente de un Estado Contratante de bienes inmuebles (incluyendo rentas por explotaciones agrícolas o forestales) ubicados en el otro Estado Contratante , pueden someterse a imposición en este otro Estado.
+(2) El término "bienes inmuebles" deberá tener el significado que le atribuya el derecho del Estado Contratante en el cual la propiedad en cuestión está ubicada. El término deberá, en todo caso, incluir los derechos aplicables según las disposiciones de la ley general de propiedad, el usufructo de los bienes inmuebles y derechos a pagos variables o fijos como consideración de la explotación de o el derecho a la explotación de yacimientos minerales, fuentes y otros recursos naturales ; buques y aeronaves no deberán ser considerados como viene inmuebles .
+(3) Las disposiciones del párrafo 1 son aplicables a las rentas derivadas del uso directo , el arrendamiento , locación o uso en cualquier otra forma del bien inmueble .
+(4) Las disposiciones de los párrafos 1 y 3 son aplicables también a las rentas derivadas de los bienes inmuebles de una empresa y a las rentas de bienes inmuebles utilizados para el desarrollo de los servicios personales independientes.
