@@ -1,0 +1,1 @@
+Artículo 7º—Casos de elección Popular. El Consejo Directivo podrá autorizar licencia sin goce de salario al socio laboral de Conape, que vayan a ocupar puestos de elección popular o cargos temporales designados por el Poder Ejecutivo por el plazo de la elección o del nombramiento.

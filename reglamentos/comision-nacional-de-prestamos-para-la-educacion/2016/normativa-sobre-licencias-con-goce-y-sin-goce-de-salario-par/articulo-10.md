@@ -1,0 +1,1 @@
+Artículo 10.—Disfrute. El socio laboral solicitante podrá disfrutar de la licencia con goce de salario cuando ésta haya sido debidamente aprobada por las instancias competentes. En caso de que la concesión de la licencia haya sido condicionada, el socio laboral podrá disfrutar de la misma bajo las condiciones impuestas por dichas instancias.

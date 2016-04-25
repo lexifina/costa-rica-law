@@ -1,0 +1,1 @@
+Artículo 11.—Disposiciones Comunes. Los períodos de licencias con goce y sin goce de salario concedidos en forma consecutiva serán acumulativos y cuando éstos superen el plazo máximo autorizado por la Secretaria Ejecutiva, deberán ser autorizadas por el Consejo Directivo de Conape.
