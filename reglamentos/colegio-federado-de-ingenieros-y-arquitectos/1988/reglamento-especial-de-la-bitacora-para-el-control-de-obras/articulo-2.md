@@ -1,1 +1,2 @@
-Artículo 2°—Es obligatorio el uso del Cuaderno de Bitácora de Obras para todos los miembros incorporados del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, que tengan participación en una construcción. La Obligación indicada es tanto para construcciones de índole pública o privada.
+Artículo 2°—Es obligatorio el uso del Bitácora para el control de Obras(*) para todos los miembros incorporados del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, que tengan participación en una construcción. La Obligación indicada es tanto para construcciones de índole pública o privada.
+(*) (Así modificada su denominación en sesión N° 31 del 12 de julio de 2016 y sesión N° 20 del 26 de abril de 2016. Anteriormente se indicaba: "Cuaderno de Bitácora en Obras")
