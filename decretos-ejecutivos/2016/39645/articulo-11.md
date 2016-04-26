@@ -1,0 +1,2 @@
+Artículo 11.-De la administración de los recursos. La Unidad Técnica del FINADE llevará una contabilidad específica para el Programa de Apoyo y Reactivación de las Mipyrnes del Sector Turismo Costarricense, debiéndose considerar que el fondeo de los recursos es en dólares estadounidenses y la colocación se hará en esa misma moneda.
+Asimismo, deberá identificar el fondeo recibido, las colocaciones, los intereses por pagar y cobrar, así corno cualquier otro ingreso o erogación relacionada con la operatividad de este Programa.

@@ -1,0 +1,1 @@
+Transitorio Único: La condición de MIPYME temporal, estará vigente por el plazo de tres meses a partir de la vigencia del presente Reglamento. Transcurrido este periodo las MIPYMES del Sector Turismo seguirán registrándose en el MEIC, mediante la fórmula del Sector Servicios que establece el Reglamento a la Ley N° 8262.

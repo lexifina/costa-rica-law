@@ -1,0 +1,1 @@
+Artículo 13.-De la colación de recursos. El FINADE iniciará la colocación de los recursos aprobados por el Consejo Rector del Sistema de Banca para el Desarrollo. Una vez agotados estos. serán colocados los recursos provenientes del ICT. Esto con el objetivo de poder hacer una adecuada identificación del fondeo y la colocación del mismo.

@@ -1,0 +1,1 @@
+Artículo 5.- De las MIPYMES no registradas en período 2008-2011. Aquellas MIPYMES, que no se hayan registrado en el periodo de octubre del 2008 y hasta diciembre del 2011 en el SIEC, deberán obtener la condición PYME, conforme lo establece los artículos 3, 6 y 8 este Reglamento.

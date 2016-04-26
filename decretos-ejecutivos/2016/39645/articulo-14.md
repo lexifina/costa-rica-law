@@ -1,0 +1,1 @@
+Artículo 14.- Del control de los recursos aportados por el ICT. Corno parte del seguimiento y control de los recursos girados por el ICT, el FINADE presentará un informe mensual sobre el avance del Programa de Apoyo y Reactivación de las MIPYMES del Sector Turismo Costarricense, en relación con la colocación y recuperación de los recursos.

@@ -1,0 +1,1 @@
+Artículo 6.- De la Condición PYME temporal. Para efectos de clasificar temporalmente las MIPYMES del Sector Turismo que son objeto del presente reglamento; y cuyas actividades económicas son de hospedaje y restaurantes; se utilizará el CIIU, que se encuentra vigente.

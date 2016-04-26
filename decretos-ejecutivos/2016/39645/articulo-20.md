@@ -1,0 +1,1 @@
+Artículo 20.- Del período de gracia. El Programa tiene un período de gracia de un año en amortización del principal del monto adeudado. Durante ese período de gracia, solo se pagarán intereses sobre saldos adeudados. Terminado dicho período deberá continuar pagándose tanto interés sobre saldos adeudados como amortización del principal durante la vida del crédito.

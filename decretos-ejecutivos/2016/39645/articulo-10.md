@@ -1,0 +1,5 @@
+CAPÍTULO III
+DE LOS RECURSOS FINANCIEROS
+Artículo 10.-De la administración de los recursos. El FINADE administrará dentro del Fondo de Financiamiento, el Programa de Apoyo y Reactivación de las MIPYMES del Sector Turismo Costarricense, para las micros, pequeñas y medianas empresas de hospedaje y restaurantes, el cual, estará constituido por un monto de US$13.500.000,00 (trece millones quinientos mil dólares, moneda de curso legal de los Estados Unidos de América); y está conformado de la siguiente forma:
+1) Por el préstamo otorgado por el Instituto Costarricense de Turismo, por la suma de US$3.500.000,00 (tres millones quinientos mil dólares, moneda de curso legal de los Estados Unidos de América) a una tasa de interés de libor a seis meses más dos puntos porcentuales.
+2) Por la línea de crédito aprobada por el Consejo Rector del Sistema de Banca para el Desarrollo, por medio del FINADE, por la suma de US$ 10.000.000,00 (diez millones de dólares, moneda de curso legal de los Estados Unidos de América) a una tasa de interés de libor a seis meses más dos puntos porcentuales.

@@ -1,0 +1,5 @@
+Artículo 19.-De los Intermediarios Financieros. El Intermediario Financiero para la colocación de los recursos podrá:
+a) Considerar en las readecuaciones de los créditos entre otros aspectos la capacidad de pago de los clientes tomando en consideración los flujos de caja.
+b) Cuando la MIPYME disponga de capacidad de pago, pero se presente el caso de insuficiencia de garantías reales, se podrá solicitar un nuevo avaluó de la garantía, para actualizar su valor. Si la insuficiencia persiste, se puede establecer garantía mobiliaria de conformidad con la legislación aplicable.
+c) Analizar detalladamente que el plan propuesto para la inversión de los recursos provenientes del Programa de Apoyo y Reactivación de las MIPYMES, mejore la capacidad de pago de la misma.
+En los casos de que el beneficiario de la readecuación tuviera deudas con cualquier entidad del sistema de seguridad social, podrá tramitar la solicitud y otorgar la readecuación , en cuyo caso se hará el pago respectivo de estas deudas a la respectiva entidad de la seguridad social, asimismo, dicho monto será considerado en el saldo readecuado.

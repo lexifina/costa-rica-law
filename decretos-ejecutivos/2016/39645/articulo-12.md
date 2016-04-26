@@ -1,0 +1,1 @@
+Artículo 12.- Del reconocimiento por parte del FINADE al ICT. El FINADE cancelará al ICT la tasa señalada en el artículo 10, inciso 1) del presente Reglamento, y en la misma moneda en que el crédito fue otorgado, de conformidad con el plan de pago que se defina en el contrato de crédito, el que deberá atender las mismas condiciones otorgadas al operador financiero.

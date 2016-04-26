@@ -1,0 +1,1 @@
+Artículo 15.- De la consolidación de los recursos. Para efectos de consolidación de los recursos del Fideicomiso en los estados financieros, la Unidad Técnica del FINADE colonizará los saldos del Programa de Apoyo y Reactivación de las Mipymes del Sector Turismo Costarricense, al tipo de cambio de compra del Banco Central de Costa Rica, vigente al cierre de mes.

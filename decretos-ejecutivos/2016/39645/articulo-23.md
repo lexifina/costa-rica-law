@@ -1,0 +1,1 @@
+Artículo 23.- Sobre el uso de los Fondos del FOFIDE. De conformidad con la Ley N° 9274, se autoriza a los bancos del Sistema Bancario Nacional, para que otorguen líneas de crédito a las las MIPYMES del sector turismo, de acuerdo con los parámetros y las regulaciones aplicados a dichos recursos.
