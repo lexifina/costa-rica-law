@@ -1,6 +1,5 @@
 Faltas graves
-ARTICULO 11.-
-Para los efectos legales consiguientes, se consideran faltas graves de los servidores docentes:
+ARTICULO 11.-Para los efectos legales consiguientes, se consideran faltas graves de los servidores docentes:
 a) Usar, sin autorización superior, con fines de lucro u otros ajenos a la función docente, los planteles educativos, el material didáctico, los útiles, los alimentos destinados para los educandos o el equipo de la institución;
 b) Conducirse durante sus labores en forma tal que desprestigien su profesión o bien que sus actos riñan con la moral pública y las buenas costumbres.
 Asimismo, cuando acudan a la injuria, a la calumnia o a las vías de hecho contra sus jefes, compañeros, subalternos o educandos;
@@ -15,3 +14,5 @@ j) Expulsar alumnos del plantel, sin que se haya levantado la respectiva informa
 k) Estimular o inculcar en los alumnos por medio de la enseñanza, ideas que contravengan los principios morales, las buenas costumbres y las tradiciones culturales de la patria;
 l) Alterar maliciosamente los Registros y demás documentos oficiales a su cargo y de su exclusiva responsabilidad; y
 m) Incitar abierta o veladamente a los alumnos para que concurran a actos o realicen actividades que de algún modo socaven el orden público o institucional.
+n) Incurrir en prácticas discriminatorias hacia alguna persona servidora, estudiante o externa a la Institución por razón de su etnia, género, orientación sexual, identidad de género, religión, discapacidad o por cualquier tipo de discriminación contraria a la dignidad humana.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39689 del 26 de abril de 2016)
