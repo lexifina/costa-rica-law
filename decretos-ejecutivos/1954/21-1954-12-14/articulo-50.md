@@ -15,3 +15,11 @@ g) Declarar sus bienes, bajo juramento, todos aquellos funcionarios que manejen 
 h) Rendir las declaraciones que se les pidan cuando fueren citados como testigos en reclamaciones e informaciones de despidos o reclamos; así como suministrar cualesquiera datos, constancias o certificaciones que para cualquier efecto sean requeridos por el Tribunal o la Dirección General;
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 18658 de 15 de noviembre de 1988).
 i) Dar por escrito, en el caso de renuncia del cargo, el preaviso que corresponda, de acuerdo con las reglas del artículo 28 del Código de Trabajo.
+j) Respetar el derecho que le asiste a las personas sexualmente diversas, de expresarse en el campo laboral sin temor a padecer burla, rechazo, hostigamiento u acoso de algún tipo, ni que se emitan comentarios, chistes o chismes de cualquier índole que menoscaben su dignidad humana.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39680 del 26 de abril del 2016)
+k) Observar una conducta de respeto hacia las personas, reconociendo su orientación sexual e identidades de género y llamándoles por el nombre que hayan decidido adoptar.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39680 del 26 de abril del 2016)
+l) Reservar la discreción y la confidencialidad –si así fue solicitado- con respecto a la orientación sexual e identidades de género de las personas sexualmente diversas.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39680 del 26 de abril del 2016)
+m) Abstenerse de cualquier práctica o decisión que pueda disminuir, restringir o menoscabar los derechos de las personas sexualmente diversas.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39680 del 26 de abril del 2016)

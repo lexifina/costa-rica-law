@@ -35,3 +35,4 @@ Reglamento del Estatuto de Servicio Civil
 | 21 | 2013-08-01 | Decreto Ejecutivo 37971 (2013-08-01) |
 | 22 | 2013-11-28 | Decreto Ejecutivo 38109 (2013-11-28) |
 | 23 | 2015-06-29 | Decreto Ejecutivo 39066 (2015-06-29) |
+| 24 | 2016-04-26 | Decreto Ejecutivo 39680 (2016-04-26) |
