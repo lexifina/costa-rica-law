@@ -14,3 +14,4 @@ Reglamento del Centro de resolución de conflictos del Colegio Federado de Ingen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-10 | la propia norma |
+| 2 | 2016-04-26 | Reglamento 20 (2016-04-26) |
