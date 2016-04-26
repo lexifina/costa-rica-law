@@ -1,0 +1,1 @@
+Artículo 89. -Para el efectivo pago de los viáticos se realizará con base al Reglamento emitido por la Contraloría General de la República con el visto bueno de la Presidencia municipal y Alcalde o Alcaldesa Municipal.

@@ -1,0 +1,1 @@
+Artículo 56. -Las Comisiones Permanentes y Especiales, estarán integradas por al menos tres miembros, de los cuales, deben ser regidores (as) propietarios. Las Comisiones especiales podrán integrarlas los regidores propietarios o suplentes, los síndicos propietarios y suplentes con derecho a voz y voto. Los particulares podrán participar en calidad de asesores.

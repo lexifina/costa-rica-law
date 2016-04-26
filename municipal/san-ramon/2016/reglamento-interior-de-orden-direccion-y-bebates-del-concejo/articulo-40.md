@@ -1,0 +1,2 @@
+Artículo 40. -Las mociones de orden se podrán interponer por escrito o verbalmente cuando por razones de oportunidad se requiera.
+Son mociones de orden las que se presenten para regular el debate, para prorrogarle el uso de la palabra a los regidores y excepcionalmente, para alterar el orden del día, introducir algún tema que requiera de inmediata resolución, corregir cuestiones de forma o errores materiales de un dictamen o modificaciones al mismo que no impliquen variaciones sustanciales al fondo del asunto.

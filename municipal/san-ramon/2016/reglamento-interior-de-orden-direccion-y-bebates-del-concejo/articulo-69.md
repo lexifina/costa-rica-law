@@ -1,0 +1,2 @@
+Artículo 69. -Cuando el objeto de la audiencia fuere de competencia del Alcalde, la presidencia ordenará a la secretaría remitir el memorial presentado a dicho funcionario para que éste le dé el trámite correspondiente.
+La secretaría lo hará del conocimiento de los interesados.

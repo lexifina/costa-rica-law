@@ -1,0 +1,1 @@
+Artículo 52. -Los dictámenes de las comisiones podrán ser Unánimes Afirmativos, Unánime Negativo, de Mayoría Afirmativo, de Mayoría Negativo o de Minoría. Deberán presentarse por escrito y firmados por los miembros de la comisión con derecho a voto que lo emiten.

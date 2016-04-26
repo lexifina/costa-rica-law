@@ -1,0 +1,1 @@
+Artículo 29.- Los dictámenes de las comisiones deben ser incluidos en el orden del día siguiendo el orden en que fueron presentados a la secretaria, para ese efecto, la secretaria al recibir los dictámenes consignara al pie de ellos la hora y la fecha de la presentación.

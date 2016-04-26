@@ -1,0 +1,1 @@
+Artículo 60. -Las Comisiones deberán sesionar en forma ordinaria dos veces por mes y extraordinariamente cuando sea necesario. Se procurará que las sesiones de una no choquen con las de otras en las que también participen algunos de sus integrantes. Las sesiones se realizarán en el Edificio Municipal.

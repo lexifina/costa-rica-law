@@ -1,0 +1,1 @@
+Artículo 28.- Antes de la aprobación del acta, cualquier regidor, vía moción debidamente presentada por escrito, podrá presentar el recurso revisión de acuerdos, salvo, los definitivamente aprobados, conforme lo establece el artículo 48 del Código Municipal. Para acordar la revisión, se necesitará la misma mayoría requerida para aprobar el acuerdo.

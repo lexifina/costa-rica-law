@@ -1,0 +1,1 @@
+Articulo 26.- Del Acta. A más tardar durante los quince minutos posteriores al inicio de la sesión, después del saludo y la reflexión, habiéndose realizado las correcciones pertinentes el Concejo deberá aprobar el acta ordinaria anterior, salvo que circunstancias de fuerza mayor lo impidan en cuyo caso la aprobación se pospondrá para la siguiente sesión ordinaria.

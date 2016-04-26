@@ -1,0 +1,1 @@
+Artículo 13º-El quórum necesario para sesionar legalmente se integrará con la mitad más uno de los Regidores miembros del Concejo, presentes a la hora de inicio- y el cual deberá mantenerse durante el tiempo que dure la sesión.

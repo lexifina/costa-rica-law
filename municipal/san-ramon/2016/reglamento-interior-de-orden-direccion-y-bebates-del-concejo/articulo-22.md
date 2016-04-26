@@ -1,0 +1,1 @@
+Artículo22. - El regidor suplente que sustituye a un propietario, tendrá derecho a permanecer durante toda la sesión como miembro del Concejo con voz y voto. El mismo derecho tendrá el síndico suplente, con excepción del voto. Unos y otros devengaran la dieta que corresponda.

@@ -1,0 +1,3 @@
+Artículo 36. -El uso de la palabra será otorgado por la presidencia a los regidores propietarios y suplentes del Concejo, en el orden de solicitud.
+Los síndicos podrán solicitar el uso de la palabra en las sesiones ordinarias y extraordinarias del Concejo, únicamente para referirse asuntos propios del distrito que representan. O en funciones específicas que se le hayan asignado.
+La presidencia podrá de conformidad con el Código Municipal, retirar el uso de la palabra a quien haga uso de ella sin permiso, se exceda en sus expresiones o pretendan sobrepasar los tiempos establecidos en este Reglamento.

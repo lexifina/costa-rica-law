@@ -1,0 +1,1 @@
+Artículo 18.-Para las sesiones extraordinarias fuera de la Sede del Concejo se tomarán en cuenta las solicitudes que al respecto hagan las comunidades a través de sus representantes, siempre que el tema que se trate, sea del interés para el cantón o las comunidades que se visitan.

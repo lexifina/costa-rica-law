@@ -1,0 +1,2 @@
+CAPÍTULO IX
+Artículo 39. -Mociones de Fondo: Se presentaran en forma escrita Uso de la palabra en mociones. En las mociones por el fondo, la presidencia dará la palabra hasta por un máximo de 5 minutos al proponente para que se refiera a la misma. Del mismo tiempo podrá disponer no más de dos representantes por fracción para manifestarse a favor o en contra. En las mociones de reiteración o de revisión de la votación, el regidor o regidora proponente podrá hacer uso de la palabra hasta por 2 minutos.

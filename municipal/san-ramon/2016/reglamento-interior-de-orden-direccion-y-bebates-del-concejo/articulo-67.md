@@ -1,0 +1,1 @@
+Artículo 67. -La secretaría remitirá a la Presidencia en orden de presentación las solicitudes que presenten los particulares. El Presidente del Concejo podrá variar el orden de atención en casos que considere de emergencia o fuerza mayor.

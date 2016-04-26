@@ -1,0 +1,2 @@
+Artículo 45.-Cuando se trate de votar el dictamen o informe de una Comisión, la presidencia ofrecerá la palabra por 5 minutos, en primer lugar a un representante de la comisión dictaminadora, posteriormente, los demás regidores podrán referirse por el fondo según lo estipulado en el artículo 37.
+Finalizada la discusión, se someterá el asunto a votación y el acuerdo se tomara por mayoría absoluta, salvo en los casos que el Código Municipal establezca una mayoría calificada.
