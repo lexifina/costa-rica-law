@@ -1,0 +1,1 @@
+Artículo 32.—Para la firma de cheques y realización de transferencias electrónicas bancarias siempre se requerirá el concurso de la Tesorería y la Alcaldía Municipal o cualquier otro funcionario debidamente autorizado por ésta última.

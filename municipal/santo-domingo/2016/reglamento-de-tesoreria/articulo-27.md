@@ -1,0 +1,1 @@
+Artículo 27.—Todos los pagos se efectuarán por medio de cheque o transferencia electrónica bancada, excepto: los que corresponde hacer por caja chica y las planillas por concepto de salarios, dietas u otros, que se podrán realizar en efectivo.

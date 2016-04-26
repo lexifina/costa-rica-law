@@ -1,0 +1,1 @@
+Artículo 43.—La Caja Chica funcionará mediante el sistema de cuenta corriente y mantendrá dinero en efectivo para atender exclusivamente la adquisición de bienes y servicios, así como para pagar viáticos y gastos de viaje.

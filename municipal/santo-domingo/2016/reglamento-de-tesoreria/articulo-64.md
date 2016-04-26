@@ -1,0 +1,1 @@
+Artículo 64.— Todo funcionario(a) que haga uso del fondo de caja chica, tiene la obligación de cumplir a cabalidad con la normas del presente Reglamento; su incumplimiento será sancionado conforme a los procedimientos establecidos para el efecto, entre otros por el Código Municipal, el Reglamento Interior de Trabajo de la Municipalidad y otra normativa de aplicación conexa.

@@ -1,0 +1,1 @@
+Artículo 24.—Los faltantes de caja deberá cubrirlos el cajero(a) a más tardar el día hábil siguiente. La jefatura de Tesorería comunicará inmediatamente a la Auditoría cualquier faltante en una caja. Es responsabilidad del cajero comunicar a la jefatura de Tesorería de forma inmediata cualquier faltante o sobrante en una caja.

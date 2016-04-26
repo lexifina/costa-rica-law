@@ -1,0 +1,1 @@
+Artículo 66.—Se autoriza al Alcalde Municipal para realizar compras o adquisiciones de bienes y servicios, así como para suscribir gastos fijos, convenios en los cuales la Municipalidad actúe como parte, hasta por la suma dispuesta de forma semestral para esta Municipalidad por la Contraloría General de la República para realizar contrataciones directas de escasa cuantía.

@@ -1,0 +1,5 @@
+Artículo 26.—De los ingresos por transferencias electrónicas. La Municipalidad reconocerá los pagos realizados a través transferencias electrónicas a través del Sistema Nacional de Pagos Electrónicos (SINPE) a sus cuentas bancarias. El reconocimiento como ingreso se computará al final de cada día, con un listado de los ingresos reportados a través del sistema que para tales efectos realizará el Tesorero. Será suficiente la impresión de la pantalla con la firma del Tesorero haciendo constar que la impresión corresponde al informe y confirmación de movimientos ingresados y acreditados en favor de la Municipalidad de Santo Domingo del Sistema Digital del Banco (que corresponda). De cada pago que se reporte, deberá consignarse el monto y concepto del mismo.
+CAPÍTULO V
+De los egresos
+Artículo 26.—La Tesorería administra el fondo de caja chica de la Municipalidad, que se rige por el Capítulo VII del presente Reglamento.
+(Nota de Sinalevi: En la publicación de este reglamento se consignó dos veces el artículo 26.)

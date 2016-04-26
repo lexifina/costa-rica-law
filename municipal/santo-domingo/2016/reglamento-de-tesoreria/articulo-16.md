@@ -1,0 +1,1 @@
+Artículo 16.—A cada cajero(a) se le asignará un Fondo Fijo de Caja Recaudadora. Las variaciones del monto del Fondo Fijo de Caja Recaudadora serán aprobadas por la Alcaldía Municipal, ante solicitud expresa y razonada del titular de Tesorería.

@@ -1,0 +1,1 @@
+Artículo 55.—Es responsabilidad de la Alcaldía Municipal_realizar arqueos en forma sorpresiva al fondo fijo de caja chica, con el propósito de verificar, supervisar y controlar la aplicación de las normas y principios de control interno, vigentes y de las sanas prácticas de la Administración.

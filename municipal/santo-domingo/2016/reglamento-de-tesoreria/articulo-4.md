@@ -1,0 +1,1 @@
+Artículo 4°—Queda prohibido la entrada de particulares y servidores municipales al Departamento de Tesorería. Solamente podrán ingresar los autorizados por la jefatura del Departamento, además de aquellos servidores públicos que por la naturaleza de sus funciones de control y fiscalización puedan ingresar sin necesidad de autorización.

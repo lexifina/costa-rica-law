@@ -1,0 +1,1 @@
+Artículo 29.—Los cheques y transferencias electrónicas bancadas se emitirán y realizarán bajo la responsabilidad absoluta de la Tesorería y Alcaldía Municipal previa consulta a los fondos municipales, que determine la existencia de fondos suficientes en las cuentas bancadas y de la justificación del egreso.

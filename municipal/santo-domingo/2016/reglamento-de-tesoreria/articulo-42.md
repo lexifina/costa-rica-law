@@ -1,0 +1,1 @@
+Artículo 42.—Corresponde al Concejo Municipal, mediante el correspondiente acuerdo que emane de su seno, variar de forma excepcional para alguna situación específica, el monto establecido para el fondo de Caja Chica y el monto máximo para la adquisición de bienes y servicios de conformidad con el artículo 46 siguiente.
