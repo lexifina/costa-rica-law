@@ -1,0 +1,2 @@
+Capítulo segundo.-De las comunicaciones y notificaciones por medios electrónicos
+Artículo 10.—Cuando la notificación se realice mediante fax, una vez comprobado el envío se procederá con el llenado de una acta en la cual se debe de consignar, el número de resolución u oficio, el departamento que la remite y cualquier otro dato, la fecha y hora de la diligencia, con indicación expresa de haberse realizado en forma exitosa y la firma del funcionario que realizó el envío. Asimismo se deberá adjuntar al documento el comprobante de envío realizado.

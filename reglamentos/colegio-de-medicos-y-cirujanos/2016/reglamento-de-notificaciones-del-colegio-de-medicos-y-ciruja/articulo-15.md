@@ -1,0 +1,1 @@
+Artículo 15.—Todas las constancias o actas de notificación practicadas, independientemente del resultado, deberán incorporarse al expediente personal del miembro o autorizado; El incumplimiento de esta obligación por parte del funcionario encargado, podrá ser objeto de sanción conforme el Reglamento Interno de Trabajo.

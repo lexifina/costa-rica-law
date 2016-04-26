@@ -1,0 +1,1 @@
+Artículo 12.—El Colegio de Médicos y Cirujanos de Costa Rica podrá notificar a sus miembros y autorizados por medio de correo electrónico, para lo cual contará con un programa de servicio de correo electrónico registrado, que permite el envío de correos a las direcciones electrónicas registradas en el departamento de plataforma de servicios

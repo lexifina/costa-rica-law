@@ -1,0 +1,1 @@
+Artículo 7°—Los agremiados y autorizados que se incorporen por primera vez deberán consignar la información indicada en el artículo segundo del presente reglamento en los formularios que se le faciliten, en caso de no facilitar un correo electrónico u fax en forma correcta no se dará trámite a su solicitud.

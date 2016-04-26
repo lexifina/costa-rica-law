@@ -1,0 +1,1 @@
+Artículo 3°—El Colegio de Médicos y Cirujanos de Costa Rica, podrá notificar los actos relacionados con los procedimientos administrativos, en cualquiera de las direcciones o medios electrónicos señalados por los profesionales agremiados o autorizados según el artículo 2 de este Reglamento.

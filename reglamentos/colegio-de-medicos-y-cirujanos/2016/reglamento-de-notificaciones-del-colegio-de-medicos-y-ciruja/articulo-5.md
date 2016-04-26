@@ -1,0 +1,1 @@
+Artículo 5°—Los agremiados y autorizados del Colegio de Médicos Y Cirujanos de Costa Rica, están en la obligación de informar a la mayor brevedad posible el cambio de dirección de cualquiera de los medios señalados a Plataforma de Servicios, en caso de no hacerlo se aplicará lo señalado en el artículo 4 de este reglamento lo cual será válido para todos los efectos legales.

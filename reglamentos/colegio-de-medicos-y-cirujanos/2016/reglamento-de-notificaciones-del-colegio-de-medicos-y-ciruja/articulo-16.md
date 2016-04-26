@@ -1,0 +1,1 @@
+Artículo 16.—Cada departamento del Colegio de Médicos y Cirujanos de Costa Rica que deba practicar notificaciones, designará a un funcionario como responsable de realizarlas, para lo cual deberá llevar un registro de todas esas notificaciones.

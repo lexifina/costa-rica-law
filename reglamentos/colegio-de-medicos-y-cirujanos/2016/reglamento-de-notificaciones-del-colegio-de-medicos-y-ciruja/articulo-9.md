@@ -1,0 +1,1 @@
+Artículo 9°—Se pueden establecer, de manera simultánea, dos medios de notificación sean distintos o no, conforme los señalados en el artículo segundo del presente reglamento. El interesado deberá indicar en forma expresa cuál de ellos se utilizará como principal. En caso de omisión se entenderá que el primero que conste en el documento será utilizado como principal.

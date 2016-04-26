@@ -1,0 +1,1 @@
+Artículo 8°—La dirección que se indique en los medios que se provean para tales efectos (formulario o declaración) se entenderá como la dirección por medio de la cual los miembros y autorizados señalan expresamente como medio para tender notificaciones oficiales del Colegio De Médicos y Cirujanos de Costa Rica.

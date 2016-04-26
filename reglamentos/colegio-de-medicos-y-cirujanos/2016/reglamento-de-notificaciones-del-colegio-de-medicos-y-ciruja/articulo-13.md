@@ -1,0 +1,1 @@
+Artículo 13.—En caso de notificación mediante correo electrónico, el funcionario encargado llenará el acta con la información indicada en el artículo diez y además procederá a imprimir el comprobante de remisión de esa notificación, donde conste el envío de ese correo electrónico, el cual deberá adjuntarse al acta correspondiente.
