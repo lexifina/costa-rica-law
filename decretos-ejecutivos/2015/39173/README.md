@@ -14,3 +14,4 @@ Reorganización estructural del Proceso de Planificación Sectorial e Institucio
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-22 | la propia norma |
+| 2 | 2016-04-27 | Decreto Ejecutivo 39702 (2016-04-27) |
