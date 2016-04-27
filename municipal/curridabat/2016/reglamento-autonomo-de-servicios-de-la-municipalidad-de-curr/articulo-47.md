@@ -1,0 +1,25 @@
+CAPÍTULO IX
+OBLIGACIONES DE LOS FUNCIONARIOS
+Artículo 47.- Conforme a lo dispuesto en el Código de Trabajo, Municipal, leyes conexas y en otros artículos del presente Reglamento, son obligaciones de los funcionarios (as):
+a) Prestar los servicios personalmente, en forma regular y continua cumpliendo con la jornada de trabajo correspondiente;
+b) Ejecutar las labores de conformidad con el horario estipulado a la hora señalada, no abandonar ni suspender la jornada laboral sin causa justificada antes de haberla cumplido;
+c) Realizar el trabajo con la capacidad, dedicación y diligencia que el cargo lo requiera, aplicando todo su esfuerzo para el mejor desempeño de sus funciones;
+d) Cumplir con la mayor diligencia y buena voluntad las órdenes e instrucciones de sus jefes, relativos al servicio y a los deberes del puesto que desempeñan.
+e) Atender con diligencia, afán de servicio, en forma correcta y cortesía al público que acuda a las oficinas e instalaciones municipales o por medio telefónico y correos electrónicos, así como guardar al público, sus jefes, subalternos y compañeros de trabajo en las relaciones surgidas del ejercicio de su cargo toda la consideración debida, de modo que no se originen quejas justificadas por mal servicio, desatención, maltrato e irrespeto.
+f) Durante las horas de trabajo vestir conforme a las funciones que desempeña, en forma discreta y sin aditamentos llamativos, de conformidad con el cargo que desempeñan y los lugares en donde presten sus servicios;
+g) Guardar la discreción necesaria sobre los asuntos relacionados con su trabajo que por su naturaleza o en virtud de instrucciones especiales de sus superiores y que así lo requieran, o cuya divulgación pueda causar perjuicio, aún después de haber cesado en el cargo, sin perjuicio de la obligación en que están de denunciar cualquier hecho.
+h) Comunicar a los jefes respectivos las observaciones que su experiencia y su conocimiento le sugieran para prevenir daños o perjuicios a los intereses de la Municipalidad, de sus compañeros de trabajo y de las personas que, eventual o permanentemente, se encuentren dentro de los lugares en que presten sus servicios;
+i) Responder por los objetos, máquinas, útiles o herramientas de la Municipalidad que tengan en uso y reponer o pagar aquellos cuyo deterioro o pérdida le sea imputable por dolo comprobado.
+j) Cuidar las máquinas, el mobiliario, equipo y útiles de propiedad o al servicio de la Municipalidad y no usarlos para fines distintos de aquellos a que están destinados, velar porque no sufran más deterioro que el que exige el trabajo.
+k) Mantener al día las tareas encomendadas, siempre que no lo impidan motivos justificados;
+l) Presentar a su jefe inmediato constancia del tiempo empleado en sus visitas a las instituciones aseguradoras (C.C.S.S., I.N.S.);
+m) Informar de inmediato al Departamento de Recursos Humanos de todo cambio de domicilio, estado civil y demás pormenores que sean necesarios para mantener los respectivos expedientes personales en orden y actualizados;
+n) Acatar y hacer cumplir las medidas que tiendan a prevenir el acaecimiento de accidentes de trabajo y enfermedades profesionales;
+o) Asistir a las capacitaciones de interés municipal, en caso contrario según Reglamento con justificación razonada.
+p) Someterse a petición de la municipalidad a reconocimiento médico físico y psicológico tanto al momento de iniciar su relación laboral como en el curso de esta, a efecto de comprobar que no padece ninguna incapacidad permanente o enfermedad mental.
+q) Usar, preservar y mantener en adecuado estado de preservación el equipo de protección personal que se les suministre, además deberán reportar a su jefatura inmediata cualquier daño, para que el equipo o la pieza sea sustituida, si el equipo es robado debe presentar la copia de la denuncia correspondiente ante el organismos judicial correspondiente;
+r) Los funcionarios a los que la institución les haya dotado de uniforme deberá de utilizarlos durante la jornada laboral, con excepción de presentarse algún aso especial comunicado del trabajador a su superior inmediato y contra con su aprobación por escrito.
+s) Marcar el control de asistencia a la entrada y salida, o registrar su asistencia por cualquier medio idóneo que se establezca.
+t) Notificar al jefe inmediato lo antes posible, salvo casos de fuerza mayor, verbalmente, telefónicamente o por escrito de las causas que le impiden asistir a su trabajo, cuando se encuentre imposibilitado y posteriormente presentar los documentos probatorios necesarios.
+u) Laborar jornadas extraordinarias cuando fuere convocado para tal efecto por su jefe superior inmediato de conformidad con lo dispuesto en el numeral 24 del presente reglamento.
+v) Cumplir las disposiciones que imponen las leyes de trabajo y las de este Reglamento, así como todas aquellas de orden interno en vigencia o que lleguen a dictarse y, en general, todas las disposiciones administrativas actuales o futuras que alcancen a cada uno, sin perjuicio de que puedan hacer valer sus derechos si en alguna forma los consideraren lesionados.

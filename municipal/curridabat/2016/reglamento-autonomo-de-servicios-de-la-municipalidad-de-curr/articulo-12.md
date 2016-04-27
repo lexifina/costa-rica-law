@@ -1,0 +1,1 @@
+Artículo 12.- Los nombramientos interinos, una vez vencido el plazo o concluida la obra, terminará sin responsabilidad para la Municipalidad, teniendo derecho el funcionario al pago o disfrute proporcional de vacaciones, aguinaldo salario escolar y cesantía.

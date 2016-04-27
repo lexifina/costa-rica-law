@@ -1,0 +1,4 @@
+Artículo 70.- La evaluación del desempeño se notificará al servidor(a) dentro de los tres días hábiles siguientes de obtenido los resultados correspondientes.
+Si el funcionario (a) estima que la calificación no es la que le corresponde, podrá impugnarla por escrito, exponiendo los motivos en que fundamenta su inconformidad ante su jefe inmediato, dentro de los tres días hábiles siguientes al de la notificación, debiéndole ser también notificada la resolución de dicha impugnación en un plazo no mayor de cinco días hábiles.
+El jefe concederá una entrevista al servidor(a) dentro de los dos días hábiles siguientes al recibo de la impugnación y debe resolver dentro de los tres días hábiles siguientes a esa entrevista.
+Si persistiere la inconformidad del servidor(a), éste podrá apelar ante la Alcaldía Municipal de acuerdo al artículo 162 del Código Municipal.

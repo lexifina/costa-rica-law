@@ -1,0 +1,1 @@
+Artículo 18.- Todas las personas que laboran para la Municipalidad, están obligadas a cumplir con puntualidad las jornadas y horarios de trabajo que se establecen en este Reglamento. No se podrá conceder privilegio, prerrogativa o licencia alguna que autorice una asistencia irregular, excepto si así lo dispone específicamente alguna disposición de este mismo Reglamento.

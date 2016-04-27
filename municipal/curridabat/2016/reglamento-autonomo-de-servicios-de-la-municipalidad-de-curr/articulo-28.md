@@ -1,0 +1,1 @@
+Artículo 28.- Los sueldos se pagarán mediante transferencia electrónica a la cuenta bancaria que sea acreditada para tales efectos por la persona interesada. El salario se cancelará los días viernes de cada semana a más tardar a las 4:00 p.m.

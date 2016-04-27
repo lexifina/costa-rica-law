@@ -1,0 +1,1 @@
+Artículo 87.- La función de la comisión será proponer medidas para preventivas o correctivas enfocadas la protección de la salud de los trabajadores tanto en instalaciones como y vigilar que las mismas se cumplan. Los miembros de las comisiones desempeñarán los cargos gratuitamente.

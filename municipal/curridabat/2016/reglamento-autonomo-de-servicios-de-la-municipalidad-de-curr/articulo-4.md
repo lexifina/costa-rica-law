@@ -1,0 +1,1 @@
+Artículo 4.- La Municipalidad es la persona jurídica responsable de sus servidores; la representación inmediata estará delegada la figura del Jerarca de la Municipalidad, de acuerdo con el artículo 17 incisos, a), b) y k) del Código Municipal.

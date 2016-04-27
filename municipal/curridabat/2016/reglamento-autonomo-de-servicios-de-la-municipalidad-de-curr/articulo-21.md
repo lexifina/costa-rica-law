@@ -1,0 +1,1 @@
+Artículo 21.- Se considera tiempo efectivo de trabajo aquel en que los funcionarios y funcionarias municipales permanezcan a disposición de la Municipalidad o bajo las órdenes de sus jerarcas o jefes superiores, sea cual sea la forma en que se dé la relación de servicio.

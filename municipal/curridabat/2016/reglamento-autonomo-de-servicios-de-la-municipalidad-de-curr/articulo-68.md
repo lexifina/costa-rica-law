@@ -1,0 +1,1 @@
+Artículo 68.- Las evaluaciones de desempeño serán determinantes para otorgar ascensos, traslados y un factor de obligada consideración al decidir sobre cualquier modificación de los términos de la relación del servicio.

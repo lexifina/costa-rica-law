@@ -1,0 +1,1 @@
+Artículos 98.- Será obligación de todas las personas que laboran en la Municipalidad participar activamente en las actividades que se organicen concernientes a los procesos de prevención y atención de emergencias. El incumplimiento de esta obligación constituye falta grave para efectos disciplinarios.

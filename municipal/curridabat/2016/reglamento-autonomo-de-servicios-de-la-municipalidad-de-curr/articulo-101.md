@@ -1,0 +1,1 @@
+Artículo 101.- La persona interesada en la rehabilitación deberá cumplir con todo el programa al que voluntariamente se someta y deberá presentar ante la Municipalidad los documentos de comprobación correspondientes. El abandono del programa sin causa justificada, será considerado falta grave para efectos disciplinarios.

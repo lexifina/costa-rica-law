@@ -1,0 +1,1 @@
+Artículo 69.- Corresponde a cada jefatura evaluar el desempeño de todo el personal a su cargo, para lo cual, de ser necesario podrá requerir la asesoría y asistencia del Departamento de Recursos Humanos.

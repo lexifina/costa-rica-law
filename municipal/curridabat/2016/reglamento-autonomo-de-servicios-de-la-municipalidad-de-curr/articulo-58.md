@@ -1,0 +1,1 @@
+Artículo 58.- El Despacho de la Alcaldía, podrá dispensar la obligación de marca de asistencia en aquellos casos en que la naturaleza de las funciones y la forma de prestación de los servicios así lo justifiquen.

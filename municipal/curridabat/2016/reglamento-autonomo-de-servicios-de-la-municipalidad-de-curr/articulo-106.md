@@ -1,0 +1,9 @@
+CAPÍTULO XXIII
+DE LA REPRESENTACIÓN SINDICAL
+Artículo 106.- La Municipalidad, reconoce el derecho de protección sindical en beneficio de los dirigentes sindicales, en los siguientes términos:
+a) No se despedirá a ningún trabajador, por el simple hecho de desarrollar actividades sindicales.
+b) Ningún miembro de la Junta Directiva del Sindicato podrá ser destituido por el simple hecho de ser dirigente de los trabajadores.
+c) La inamovilidad del dirigente opera desde el momento en que es electo miembro de la Junta directiva del Sindicato y se mantiene durante el tiempo que dure el cargo y hasta un año después de haber dejado de ejercerlo.
+d) La inamovilidad no impide que el trabajador sea amonestado verbalmente o apercibido por escrito en los casos que contempla el presente Reglamento. De igual forma podrá ser suspendido sin goce de salario y despedido sin responsabilidad patronal, si se demuestra en el procedimiento respectivo de conformidad con el Código Municipal, la Ley General de la Administración Pública y normativa sindical relacionada, que incurrió en alguna de las causales que contempla este Reglamento para la imposición de esas sanciones.
+e) La Municipalidad, a través del Alcalde, concederá permiso con goce de salario a un directivo de la Junta Directiva del Sindicato, a efecto de que pueda dedicarse a las labores propias de la organización.
+f) La Municipalidad concederá permiso sin goce de salario al dirigente sindical que así lo solicite para el desempeño de las labores propias del Sindicato; el permiso podrá concederse hasta por un año prorrogable, pudiéndose reintegrar a su trabajo sin alteración luego de este plazo.

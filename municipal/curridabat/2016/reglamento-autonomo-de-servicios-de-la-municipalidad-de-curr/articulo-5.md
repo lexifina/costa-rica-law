@@ -1,0 +1,1 @@
+Artículo 5.- Quienes tengan bajo su responsabilidad funciones de dirección y de supervisión de personal, son responsables ante la Municipalidad de velar por la correcta aplicación de todas las disposiciones del presente Reglamento y demás normativa aplicable a las relaciones de empleo.

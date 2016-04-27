@@ -1,0 +1,2 @@
+Artículo 100.- El funcionario o funcionaria que sufra enfermedad de alcoholismo o que tenga problemas de adicción al consumo de otras drogas, tendrá el derecho a la rehabilitación, para lo cual la Municipalidad le brindara la ayuda necesaria y le remitirá al Instituto de Alcoholismo y Fármaco Dependencia para que dicha entidad haga las evaluaciones y recomendaciones que
+correspondan.
