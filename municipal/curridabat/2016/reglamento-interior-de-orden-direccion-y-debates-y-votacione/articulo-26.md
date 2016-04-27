@@ -1,0 +1,1 @@
+ARTÍCULO 26. Los acuerdos del Concejo Municipal, por excepción, pueden ser declarados como definitivamente aprobados, inmediatamente después de su aprobación por el Concejo Municipal, mediante votación calificada. Los acuerdos que sean declarados firmes adquieren plena validez jurídica a partir de ese acto.

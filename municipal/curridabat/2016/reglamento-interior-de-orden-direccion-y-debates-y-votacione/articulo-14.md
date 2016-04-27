@@ -1,0 +1,2 @@
+ARTÍCULO 14. Que a todos los miembros del Consejo Municipal en cada período, se les dotará por parte de la Municipalidad de Curridabat una cuenta de CORREO ELECTRÓNICO INSTITUCIONAL, en la cual antes de las 19 horas de cada sesión, les serán transmitidas LA AGENDA DEL DÍA, EL ACTA ANTERIOR, y toda demás documentación pertinente para conocimiento en cada sesión municipal.
+Accesoriamente a cada Jefe(a) de Fracción de los distintos partidos políticos allí representados se les proporciona igualmente una copia física de estos contenidos, para uso de los regidores de su fracción.
