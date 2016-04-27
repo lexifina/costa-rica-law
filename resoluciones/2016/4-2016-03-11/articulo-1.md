@@ -1,0 +1,7 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº SC-004-2016.—San José, 11 de marzo del 2016
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-036-2016: Se modifica la Resolución DG-399-2010 que creó el Manual de Especialidades Docentes, para que se modifique la especialidad Turismo Costero según se detalla en la misma.
+DG-037-2016: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular las especialidades citadas, de manera que en la sección “Atinencias Académicas” se incluyan las de Bachillerato en Contaduría, Licenciatura en Contaduría Pública y Maestría en Administración de Negocios, todas ellas de la Universidad Metropolitana Castro Carazo.
+DG-038-2016: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular las especialidades citadas dentro de la misma, de manera que en la sección “Atinencias Académicas” se incluya la carrera de Bachillerato en Informática Educativa de la Universidad Nacional (UNA).
+DG-039-2016: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la especialidad Agropecuario en Producción Pecuaria, de manera que en la sección “Atinencias Académicas” se incluyan las carreras de Profesorado en la Enseñanza de la Producción Animal y el Bachillerato Universitario en Ingeniería en Producción Animal, ambos de la Universidad Técnica (UTN).
