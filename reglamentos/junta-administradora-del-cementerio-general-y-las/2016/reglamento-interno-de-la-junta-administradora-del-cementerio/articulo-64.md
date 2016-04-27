@@ -1,0 +1,1 @@
+Artículo 64.—Será obligación del interesado retirar del cementerio cualquier tipo de escombro o residuo de material que quedase después de realizado el trabajo de construcción o reparación, así como la tierra de surja en caso que se realice alguna excavación.

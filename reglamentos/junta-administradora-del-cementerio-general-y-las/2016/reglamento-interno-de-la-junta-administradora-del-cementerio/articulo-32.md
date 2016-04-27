@@ -1,0 +1,1 @@
+Artículo 32.—El permiso precario de uso se otorgará por un lapso no menor a cinco ni mayor a cuarenta y cinco años. El valor del permiso precario de uso de lote con o sin bóveda y de la asignación de nicho para la inhumación, lo fijará la Junta Administradora del Cementerio General y Las Rosas de Alajuela de conformidad con sus costos de operación.

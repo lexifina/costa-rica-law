@@ -1,0 +1,1 @@
+Artículo 11.—Los directores perderán su cargo por abandono injustificado de funciones por más de un meses una vez que la persona haya asumido el cargo. En este caso y en el de renuncia, se solicitará al Concejo Municipal de Alajuela elegir y nombrar el miembro faltante, previa comunicación por parte de la Junta.

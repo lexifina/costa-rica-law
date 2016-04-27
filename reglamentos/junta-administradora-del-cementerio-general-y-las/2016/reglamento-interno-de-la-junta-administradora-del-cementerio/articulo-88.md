@@ -1,0 +1,1 @@
+Artículo 88.—Podrá ser exonerado de pago por concepto de inhumación, la persona o institución de bien social que sea autorizada por la Junta Directiva y que presente documentos sobre la condición social de la familia y solicite por escrito dicho beneficio.

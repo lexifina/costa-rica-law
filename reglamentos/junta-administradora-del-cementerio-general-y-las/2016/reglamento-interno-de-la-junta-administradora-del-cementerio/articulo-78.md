@@ -1,0 +1,1 @@
+Artículo 78.—La Junta, no podrá otorgar arrendamiento ni permisos de uso, sobre lotes ni bóvedas que contengan Mausoleos de Honor, pero sí podrá suprimir esa distinción cuando los restos de la persona que dio origen a esa honra hayan sido trasladados a otro lugar.

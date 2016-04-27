@@ -1,0 +1,1 @@
+Artículo 50.—El permisionario deberá supervisar al constructor durante el periodo que dure la construcción o reparación, porque éste es totalmente responsable de cualquier daño o error que cometa su contratado y deberá dar resolución o reparación inmediata a lo que acontezca. Se deberá construir de acuerdo a las normas de construcción aprobadas por la junta.

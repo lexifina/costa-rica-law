@@ -1,0 +1,1 @@
+Artículo 51.—La Junta tiene la potestad de paralizar cualquier obra que infrinja la normativa interna sobre construcciones y reparaciones, la Ley de Construcciones, o bien porque a criterio justificado de la Administración el obrero no cometa conductas acordes a la moral y a las buenas costumbres.

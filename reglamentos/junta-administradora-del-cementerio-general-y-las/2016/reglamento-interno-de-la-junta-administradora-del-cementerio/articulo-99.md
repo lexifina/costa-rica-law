@@ -1,0 +1,1 @@
+Artículo 99.—El permiso en cualquiera de los cementerios podrá inscribirse a nombre de comunidades religiosas, establecimientos, asociaciones, sociedades anónimas o limitadas. En todos los casos deberán entregar personería jurídica donde especifique quien es el apoderado generalísimo y quien o quienes quedarán autorizados para realizar todo tipo de trámite ante la Junta.

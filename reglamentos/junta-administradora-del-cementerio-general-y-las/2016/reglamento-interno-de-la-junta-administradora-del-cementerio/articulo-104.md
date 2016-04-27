@@ -1,0 +1,1 @@
+Artículo 104.—Para el cumplimiento de toda disposición de carácter general dictada por la Junta, bastará con colocar el aviso respectivo en la puerta de los cementerios; salvo que por disposición legal la publicación se deba realizar por otro medio.

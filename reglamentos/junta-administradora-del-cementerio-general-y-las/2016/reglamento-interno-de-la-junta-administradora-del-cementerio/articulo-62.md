@@ -1,0 +1,1 @@
+Artículo 62.—Para la reparación o pintado de bóvedas con ocasión del día del Padre, día de la Madre y día de los Difuntos; deberá realizarse al menos con ocho días de antelación a esas celebraciones o cuando la Junta lo especifique vía anuncio en la entrada a los cementerios o por medio de publicación.

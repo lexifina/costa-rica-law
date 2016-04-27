@@ -1,0 +1,2 @@
+Artículo 85.—Para cualquier inhumación o exhumación se deberá cancelar en la oficina administrativa del cementerio la cuota fijada al efecto por la Junta, y que responde por los gastos de este servicio, además deberá estar al día con los pagos de mantenimiento.
+Si la inhumación o exhumación no se hace por decisión del permisionario, del total pagado se reservará el monto de los gastos incurridos por la preparación de la inhumación.

@@ -1,0 +1,2 @@
+Artículo 103.—La Junta, sus miembros o sus funcionarios, no incurrirán en responsabilidad, si mediante actuación dolosa de un particular se efectúe traspaso, inhumación, exhumación o traslado de restos, contrario a lo dispuesto en el presente Reglamento o legislación, vigente en materia de cementerios.
+La Junta recurrirá ante la autoridad competente a fin que el infractor o infractores se les imponga la sanción correspondiente y podrá acudir a la vía civil en demanda de daños y perjuicios.

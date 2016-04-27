@@ -1,0 +1,1 @@
+Artículo 37.—El plazo mínimo de cinco años establecido en el capítulo XII de este Reglamento para exhumar a un cadáver, no impide la apertura del proceso ni la revocatoria del permiso de uso, condicionando ni la reubicación de los restos al transcurso de ese período.

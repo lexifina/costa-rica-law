@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la Junta Administradora del Cementerio General y Las Rosas de Alajuela
+Artículo 4°—La vigilancia, conservación y administración de los cementerios públicos de Alajuela, así como los bienes y fondos que de ello sean necesarios, estarán a cargo de la Junta Administradora del Cementerio General y Las Rosas de Alajuela (en adelante, “La Junta” o “La Junta Administradora”) la cual será nombrada por el Concejo Municipal de Alajuela. Será integrada por nueve miembros, los cuales deberán ser personas que residan en el cantón central de Alajuela, todos de reconocida idoneidad y destacados luchadores por el progreso de la comunidad y del cantón.

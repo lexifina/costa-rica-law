@@ -1,0 +1,2 @@
+Artículo 58.—El permisionario así como el constructor deberá dar cuentas al personal de campo de la administración encargados de la fiscalización de las construcciones y reparaciones de las bóvedas.
+Igualmente el constructor deberá tener en el sitio, el permiso por escrito que lo autoriza a realizar el trabajo, debidamente firmado por el permisionario y por la administración de la Junta, esto facilitará al personal de campo su fiscalización.

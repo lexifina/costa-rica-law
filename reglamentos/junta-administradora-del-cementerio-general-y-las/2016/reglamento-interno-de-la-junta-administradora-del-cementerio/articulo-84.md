@@ -1,0 +1,1 @@
+Artículo 84.—La Junta queda facultada para denegar una inhumación, si por la acción del tiempo, movimientos telúricos o por cualquier otro motivo resulten total o parcialmente deteriorados los nichos requeridos, y solicitar al permisionario o co-permisionario que transcurrido el período de cinco años de la última inhumación proceda a su demolición o reparación total.

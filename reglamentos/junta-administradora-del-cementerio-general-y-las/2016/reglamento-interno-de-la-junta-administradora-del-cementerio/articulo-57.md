@@ -1,0 +1,1 @@
+Artículo 57.—Durante la construcción o reparación de la bóveda el permisionario será total y absolutamente responsable de resarcir cualquier tipo de daño que pudiera producirse a alguna bóveda o instalaciones. Queda absolutamente prohibido el guardar o colocar en las bóvedas vecinas cualquier objeto, material o herramienta.

@@ -1,0 +1,1 @@
+Artículo 107.—La Junta no se hace responsable por la colocación de enchapes, estatuas, adornos o cualquier material de alto valor que los permisionarios coloquen en bóvedas o mausoleos; éste asumirá la responsabilidad por los daños que fuesen causados por vandalismo, en la destrucción total o parcial de estos elementos.

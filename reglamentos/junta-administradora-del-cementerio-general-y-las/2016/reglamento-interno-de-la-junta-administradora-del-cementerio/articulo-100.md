@@ -1,0 +1,1 @@
+Artículo 100.—La Junta Administradora del Cementerio General y Las Rosas de Alajuela, velará por la implantación de nuevos métodos en el registro de datos, acorde con la actualidad, las necesidades y posibilidades del equipo técnico.

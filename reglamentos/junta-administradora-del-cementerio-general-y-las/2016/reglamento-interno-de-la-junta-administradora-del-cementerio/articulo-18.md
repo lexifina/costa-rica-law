@@ -1,0 +1,1 @@
+Artículo 18.—La relación laboral se regirá por las disposiciones comunes del Código de Trabajo y por el Reglamento General de Cementerios Públicos y Privados, por lo que no habrá relación de empleo público entre los empleados y la Junta. Le corresponderá a la Junta realizar un manual descriptivo de puestos.

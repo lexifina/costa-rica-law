@@ -1,0 +1,1 @@
+Artículo 54.—Cualquier construcción o reparación llevada a cabo sin autorización de la Junta, con inobservancia de las anteriores disposiciones, facultará a la Junta a revocar permiso precario de uso, disponer del espacio y en el acto realizar cualquier arreglo o reparación para corregir la irregularidad. El costo de la reparación será cobrado al permisionario.

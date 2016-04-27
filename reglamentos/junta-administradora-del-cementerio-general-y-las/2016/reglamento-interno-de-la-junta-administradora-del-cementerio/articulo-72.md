@@ -1,0 +1,1 @@
+Artículo 72.—Los permisos de uso sólo podrán ser reasignados a terceras personas por la Junta, y en los siguientes casos: a) cuando nunca hubiese sido usada la bóveda b) cuando habiéndolo sido, se hubieren exhumado todos los restos que contenía.

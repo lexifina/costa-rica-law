@@ -1,0 +1,3 @@
+Artículo 86.—La Junta Administradora llevará y mantendrá al día un registro de bóvedas, mausoleos y nichos, que deberán ser identificados por número de derecho y cuadro a que pertenezcan.
+Se dispondrá una identificación por cada nicho, encabezada por los mismos números distintivos del lugar, ubicación, nombre y apellidos del arrendamiento.
+Se exigirá para cada inhumación lo siguiente: a) que presente el permiso escrito por el permisionario o su representante legal, b) se anotará en el Registro el nombre, sexo, edad de la persona inhumada, c) las fechas de muerte, de entierro, número de certificado de defunción e indicaciones u observaciones del nicho en que será sepultado.

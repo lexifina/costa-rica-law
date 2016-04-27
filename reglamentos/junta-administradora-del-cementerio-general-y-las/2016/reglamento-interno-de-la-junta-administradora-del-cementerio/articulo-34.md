@@ -1,0 +1,1 @@
+Artículo 34.—Ningún permisionario, podrá gestionar inhumaciones, exhumaciones, reparaciones, ni construcciones, ni reasignación de su permiso precario de uso, si mantiene deudas pendientes con la Junta o si la bóveda construida está deteriorada;; salvo si demuele la estructura por su cuenta antes de la transacción.

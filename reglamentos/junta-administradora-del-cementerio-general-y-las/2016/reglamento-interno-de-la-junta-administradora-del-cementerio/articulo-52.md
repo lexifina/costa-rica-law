@@ -1,0 +1,1 @@
+Artículo 52.—.En el Cementerio General de Alajuela, se autoriza la construcción de un osario con tapas de concreto. Cada nicho deberá contar con una tapa de concreto reforzado y los ladrillos respectivos sin pegar detrás de ésta para ser utilizados para sellar el nicho cuando se realice las inhumaciones.

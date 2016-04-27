@@ -1,0 +1,1 @@
+Artículo 6°—La Junta Directiva de la Junta deberá sesionar ordinariamente una vez al mes, pudiendo reunirse extraordinariamente cuantas veces sea necesario por convocatoria del Presidente o por tres de sus miembros que solicitaran por escrito al Presidente con 24 horas de anticipación y quien de inmediato definirá el día y hora; a la vez convocará a los miembros restantes.

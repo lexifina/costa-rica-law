@@ -1,0 +1,1 @@
+Artículo 94.—Toda exhumación de restos deberá ser manejada en bolsa plástica, las que deberán etiquetarse con el nombre del difunto. El traslado de restos lo realizará el personal de campo que trabaje para la Junta. Y se registrará en los archivos del cementerio mediante acta según Reglamento General de Cementerios.

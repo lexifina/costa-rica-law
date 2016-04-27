@@ -1,0 +1,1 @@
+Artículo 30.—El mantenimiento del espacio asignado descrito en el permiso precario de uso otorgado corresponde exclusivamente al permisionario. Este deber no tiene relación alguna con la cuota de mantenimiento general del cementerio que debe cancelar el permisionario.

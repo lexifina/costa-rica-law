@@ -1,0 +1,1 @@
+Artículo 42.—En los nichos asignados mediante permisos precarios de uso no se permitirá la inhumación de cadáveres en cajas de metal, ni de cuerpos embalsamados. Las cajas o ataúdes deben ser de materiales que permitan su fácil descomposición. No se darán permisos de uso en estos nichos para momias traídas de otro cementerio.

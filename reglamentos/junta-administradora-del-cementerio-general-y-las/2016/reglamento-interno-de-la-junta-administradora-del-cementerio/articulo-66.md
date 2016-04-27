@@ -1,0 +1,1 @@
+Artículo 66.—Al estar la Junta Administradora del Cementerio General y Las Rosas de Alajuela, imposibilitada para asegurar bienes propiedad de terceros, no se hace responsable de daños, robos o pérdida de objetos, construcciones y otros que se instalen en las bóvedas por cuenta propia.

@@ -1,0 +1,2 @@
+Artículo 31.—Cuando una persona haya suscrito una solicitud de permiso con financiamiento a un año, e incumple el pago, la Junta Administradora del Cementerio General y Las Rosas de Alajuela, queda facultada para tener por desistida la solicitud de permiso precario de uso y resolver la opción o contrato.
+En caso de incumplimiento y de resolución de la solicitud de permiso, la Junta devolverá al solicitante lo pagado, menos el 5% a título de indemnización por los daños y perjuicios causados por el incumplimiento.

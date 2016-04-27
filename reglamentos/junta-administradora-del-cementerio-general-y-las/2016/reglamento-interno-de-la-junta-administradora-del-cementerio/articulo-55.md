@@ -1,0 +1,1 @@
+Artículo 55.—La Junta Administradora no se hace responsable por el incumplimiento de contratos celebrados entre los constructores y titulares de permiso ya que eso es una relación entre las partes contratantes.

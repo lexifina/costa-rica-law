@@ -1,0 +1,1 @@
+Artículo 105.—Toda consulta o solicitud que se presente a la junta deberá ser realizada de manera escrita y esta tendrá hasta los cinco días siguientes a la próxima sesión ordinaria después de presentada para responder.

@@ -1,0 +1,1 @@
+Artículo 106.—Para pintar la bóveda o mausoleos el permisionario deberá presentarse en la oficina de la Junta para solicitar el permiso, estar al día en los pagos de mantenimiento del cementerio y deberá firmar el documento que especifique el trabajo a realizar ya sea por él mismo, un constructor autorizado por la Junta o autorizar a un particular.

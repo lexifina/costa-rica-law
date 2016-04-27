@@ -1,0 +1,1 @@
+Artículo 22.—La Junta, como órgano colegiado que es, dispondrá hasta la siguiente sesión ordinaria después de la presentación de cualquier tipo de solicitud, para resolver sobre ella. Asimismo podrá hacer comparecer al interesado para aclarar aspectos relacionados con la misma.

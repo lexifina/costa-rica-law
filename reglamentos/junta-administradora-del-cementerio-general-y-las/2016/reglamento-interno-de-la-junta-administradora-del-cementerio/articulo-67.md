@@ -1,0 +1,1 @@
+Artículo 67.—En caso de bóvedas o nichos en alto grado de deterioro que contenga restos que pongan en peligro la salud pública, el permisionario deberá llevar a cabo su reparación o modificación con la mayor prontitud, para lo cual solicitará la autorización por escrito a la Junta y esta mediante visto bueno la autorizará.

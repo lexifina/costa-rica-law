@@ -1,0 +1,1 @@
+Artículo 110.—Es permitido en los cementerios la práctica de ceremonias religiosas, pronunciar discursos y oraciones fúnebres alusivas al fallecido y el acompañamiento musical de las exequias; siempre que no contravenga la ley, la moral o las buenas costumbres.

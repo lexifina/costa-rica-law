@@ -1,0 +1,1 @@
+Artículo 73- Los permisos de uso no pueden ser objeto de pactos de retroventa; no son derechos reales, no son susceptibles de ningún tipo de embargo, ni pueden ser dados como garantía o gravados en alguna manera.

@@ -1,0 +1,2 @@
+Artículo 41.—La Junta queda facultada para prorrogar un permiso precario de uso de nicho si así lo estima conveniente y para ello el permisionario deberá pagar a ésta el canon respectivo.
+Si al vencimiento del plazo del permiso asignado no se realizara la renovación o se tramita el traslado de los restos allí sepultados, la Junta podrá trasladar dichos restos al Osario General del Cementerio sin ningún responsabilidad.

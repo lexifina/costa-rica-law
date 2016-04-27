@@ -1,0 +1,1 @@
+Artículo 20.—Los acuerdos tomados por la totalidad o la mayoría de los miembros presentes de la Junta, siempre serán firmes; salvo que se acuerde lo contrario. La solicitud de revisión y revocatoria deberá presentarse en antes de aprobarse en firme un acuerdo o antes de ser aprobada el acta en la sesión siguiente.

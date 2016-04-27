@@ -1,0 +1,1 @@
+Artículo 48.—Para poder construir o reparar bóvedas el permisionario debe hacer una solicitud por escrito a la Junta Administradora, en la cual especifique el tipo de trabajo a realizar, describiendo de la mejor manera cada detalle del mismo. La Junta procederá a resolver autorizando o denegando el permiso solicitado.
