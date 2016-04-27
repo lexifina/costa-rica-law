@@ -16,3 +16,8 @@ l) Tener derecho a cinco días hábiles con goce de salario, en casos de matrimo
 m) Las servidoras disfrutarán de una hora diaria de lactancia después de nacido(a) su bebé, para lo cual el médico tratante extenderá el dictamen correspondiente para determinar la procedencia de este derecho.
 n) A disponer del tiempo necesario para asistir a citas médicas, debiendo acreditar el tiempo utilizado mediante el respectivo comprobante de asistencia que emita la entidad respectiva.
 o) Como medida de protección especial del Estado hacia el niño y el adolescente, gozar de licencia con goce de salario en los casos en que un(a) hijo(a) menor de edad se encuentre internado(a) en algún centro médico, así como también durante el tiempo en que tenga que brindarle algún cuidado especial en la casa como parte de un tratamiento prescrito por la autoridad médica tratante, en cuyo caso se deberá presentar el dictamen indicado.
+p) A que no se les discrimine en su trabajo por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad, o que se les cese en sus funciones por tales razones.
+Además, tienen derecho a que se les reconozca, en todos los ámbitos de su labor, la identidad de género de acuerdo a lo solicitado por la persona funcionaria.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
+q) A cinco (5) días hábiles con goce de salario en el caso de adopción legal de un menor de edad.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)

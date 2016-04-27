@@ -2,11 +2,15 @@ CAPÍTULO VIII
 De las licencias
 Artículo 34.—El personal podrá disfrutar de licencia ocasional de conformidad con los requisitos y formalidades que establece el presente Reglamento y el Estatuto y Reglamento de Servicio Civil, según los siguientes casos y condiciones:
 A. Licencias con goce de salario: Éstas se regirán conforme a lo establecido en el artículo 33 del Reglamento al Estatuto de Servicio Civil.
-B. Licencias sin goce de salario: El Ministerio podrá otorgar a sus servidores (as) licencia sin goce de salario para atender asuntos personales de la siguiente forma:
+B) Licencias sin goce de salario: El Ministerio podrá otorgar a sus servidores (as) licencia sin goce de salario para atender asuntos personales de la siguiente forma:
 1) Hasta tres días, concedidos por parte del (la) responsable inmediato(a) de la dependencia.
 2) Hasta una semana, otorgado por el (la) Director(a) respectivo(a).
 3) Hasta un mes, autorizado por el (la) Viceministro(a).
 4) Por más de un mes, autorizado por el (la) Ministro(a) mediante resolución razonada, para los fines y disposiciones que establece el artículo 33, inciso c) del Reglamento del Estatuto de Servicio Civil.
+5) Un año en casos muy calificados, a juicio del Ministro; tales como: asuntos graves de familia, trátese de matrimonio, unión de hecho o del supuesto mencionado en el inciso l) del artículo 2° de este Reglamento, tales como enfermedad, convalecencia o tratamiento médico cuando así lo requiera la salud del servidor o familiar; realización de estudios superiores de pregrado, grado y postgrado, que requieran dedicación exclusiva del servidor; realización de estudios a nivel superior o técnico que requieran dedicación exclusiva del servidor durante la jornada de labores; y para que el servidor se desligue del Ministerio con la finalidad de participar en la ejecución de proyectos experimentales dentro de programas de traspaso de actividades del sector público hacia el sector privado, que hayan sido aprobados previamente por el Ministerio.
+Dicho plazo podrá prorrogarse hasta por un año, a juicio del Ministro, cuando se trate de la realización de estudios superiores de postgrado o bien de estudios de nivel superior o técnico, previa demostración favorable por parte del interesado del aprovechamiento y rendimiento académico durante el año anterior.
+En los casos de tratamiento médico, igualmente se podrá prorrogar la licencia hasta por un año, previa demostración y comprobación de la necesidad de éste.”
+(Así adicionado el inciso 5) anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
 En todos los casos de licencia, con o sin salario, la autorización y comprobantes deberán ser remitidos a Gestión Institucional de Recursos Humanos para el control respectivo.
 C. Licencias para estudios: El Ministerio podrá otorgar licencias para estudios a sus servidores (as) con o sin salario, para que asistan a cursos de estudio en las instituciones de enseñanza del país siempre y cuando no se cause evidente perjuicio al servicio público y lo permitan las condiciones técnicas y administrativas y las exigencias del trabajo en cada dependencia. A estos efectos, las licencias para estudio se regirán por las siguientes normas:
 1) Que los estudios capaciten al (la) servidor(a) para el mejor desempeño de su cargo o para optar por la carrera administrativa.

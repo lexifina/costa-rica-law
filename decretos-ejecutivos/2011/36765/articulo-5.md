@@ -9,4 +9,5 @@ g) Remitir de manera inmediata las incapacidades de sus colaboradores a Gestión
 h) Indicar a los (las) funcionarios (as) a su cargo, con la mayor claridad, el detalle de las funciones y responsabilidades que le corresponden, en concordancia con la clasificación del puesto que ostenta, tanto al inicio de sus funciones como en el momento en que haya una variación de éstas.
 i) Reportar a Gestión Institucional de Recursos Humanos las ausencias o llegadas tardías de los funcionarios que están exentos de registrar su asistencia.
 j) Reportar, en el momento en que lleguen a su conocimiento, aquellas conductas de sus colaboradores (as) que sean contrarias al ordenamiento jurídico vigente.
-k) Cumplir con todas las demás obligaciones propias del cargo.
+k) Velar porque sus subalternos no incurran en prácticas discriminatorias hacia ningún servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de tener noticia, ya sea de manera personal o por interpósita persona, de que algún subalterno incurrió en estas prácticas, instruir para el inicio del procedimiento sancionatorio correspondiente.
+(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)

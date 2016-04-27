@@ -22,4 +22,11 @@ q) Asistir a las actividades de capacitación que sus superiores le indiquen y h
 r) Orientar su gestión a la satisfacción del interés público, demostrando rectitud y buena fe en el ejercicio de las potestades que le confiere la Ley y administrando los recursos públicos con apego a los principios de legalidad, eficiencia, eficacia y economía, presentando una debida rendición de cuentas.
 s) Presentar ante la Contraloría General de la República la declaración jurada de bienes sobre su situación patrimonial, de conformidad con lo dispuesto en la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, en los plazos establecidos por la misma.
 t) Portar durante la jornada de trabajo el carné que lo identifica como funcionario del Ministerio en un lugar visible, a nivel del pecho de su vestimenta, indistintamente del puesto o cargo que ostente.
-u) Denunciar de manera responsable ante quien corresponda los hechos incorrectos, indebidos o delictivos que lleguen a su conocimiento.
+u) Promover una cultura de respeto hacia las personas con orientación sexual o identidad de género diversa, mediante actividades de capacitación y sensibilización dirigidas a todo el personal.
+(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
+v) Velar por el trato justo hacia las personas con orientación sexual o identidad de género diversa que laboren en el MAG.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
+w) Aplicar la perspectiva de equidad de género, la dimensión ambiental, la igualdad de oportunidades, los valores éticos, humanísticos y el desarrollo del espíritu emprendedor en los planes, programas y actividades institucionales.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
+x) Respetar las normas de convivencia, las relaciones de vecindad y tranquilidad, así como, las otras opciones culturales, étnicas y sexuales de sus compañeros.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)

@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Ministerio de Agricultura y Ganadería y su
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-10-24 | la propia norma |
+| 2 | 2016-04-27 | Decreto Ejecutivo 39692 (2016-04-27) |

@@ -25,3 +25,9 @@ t) Fomentar y mantener tertulias con otros (as) funcionarios (as) o particulares
 u) Fumar en zonas no definidas por el Ministerio y fuera de sus horarios de receso para ingerir alimentos.
 v) Observar, divulgar, transmitir, reproducir o exhibir material pornográfico en cualquier lugar del Ministerio.
 w) Registrar los escritorios u otros muebles donde se mantengan objetos personales de otro(a) servidor(a) y hacer uso de los mismos sin la previa autorización de éste(a). Para fines de trabajo y bajo la responsabilidad del superior inmediato, podrán usarse las herramientas de trabajo o documentos que estén en custodia de un(a) servidor(a) ausente.
+x) Adoptar actitudes provocadoras e incitantes con otras personas, que puedan colocar en riesgo la seguridad de las personas con orientación sexual o identidad de género diversa.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
+y) Sacar provecho ilícito de su condición de población en situación de vulnerabilidad y evitar el exhibicionismo.
+(Así adicionado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
+z) Incurrir en prácticas discriminatorias hacia cualquier servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de tener noticia, ya sea de manera personal o por interpósita persona, de que algún servidor de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.”
+(Así adicionado el inciso anterior por artículo 1 del decreto ejecutivo N° 39692 del 27 de abril del 2016)
