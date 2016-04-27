@@ -1,3 +1,0 @@
-ARTÍCULO 29.- Deber de firmar el convenio por parte de la persona teletrabajadora. La persona teletrabajadora deberá firmar un convenio que especificará las condiciones de esta modalidad laboral.
-Además, en este convenio se debe indicar que la persona teletrabajadora y el puesto cumplen los perfiles definidos, así como que la persona conoce, acepta y se compromete a mantener las condiciones de espacio físico, equipo y otras herramientas determinadas por la Institución para la realización adecuada de las funciones a su cargo.
-El formato del convenio será preparado por la Comisión y avalado por el Departamento Legal.

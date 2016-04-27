@@ -1,1 +1,0 @@
-ARTÍCULO 27.- Duración de la relación de teletrabajo. La duración, o permanencia de las y los servidores en la modalidad de teletrabajo, se definirá en el convenio “por tiempo indefinido”. En caso de que se determine el rompimiento del convenio, deberá ser debidamente justificado y comunicado a la Comisión y al Departamento de Recursos Humanos.

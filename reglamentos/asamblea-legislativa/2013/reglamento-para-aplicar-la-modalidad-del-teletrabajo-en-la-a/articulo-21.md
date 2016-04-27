@@ -1,1 +1,0 @@
-ARTÍCULO 21.- Jornada laboral y horario dentro del teletrabajo. Dentro del horario institucional, la persona trabajadora debe cumplir las metas o el trabajo que su superiora o superior jerárquico le asigne y en el plazo establecido para tal efecto.

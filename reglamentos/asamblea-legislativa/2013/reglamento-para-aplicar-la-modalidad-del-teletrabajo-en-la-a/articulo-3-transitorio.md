@@ -1,1 +1,0 @@
-TRANSITORIO III.- Dentro del mes después de la entrada en vigencia de este reglamento, el Departamento de Recursos Humanos debe definir los perfiles de las actividades o las funciones que pueden sujetarse a la modalidad de prestación de servicios del teletrabajo.

@@ -1,1 +1,0 @@
-TRANSITORIO II.- Dentro del mes después de la entrada en vigencia de este reglamento, el Departamento de Informática deberá tener la definición del equipo y las condiciones mínimas con el que debe contar un funcionario o funcionaria en su lugar de teletrabajo para realizar sus funciones.
