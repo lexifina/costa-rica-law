@@ -1,4 +1,5 @@
 INSTITUTO COSTARRICENSE DE PESCA Y ACUICULTURA
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 5617 del 27 de abril de 2016, se declaró sin lugar la acción, siempre y cuando se interprete que INCOPESCA debe regular las condiciones técnicas para el uso de carnada viva, al momento de otorgar aquellas licencias de pesca que correspondan según la ley o su reglamento.)
 AJDIP/280-2014.—Puntarenas, a los ocho días del mes de agosto del dos mil catorce.
 Considerando:
 I.—Que corresponde al Instituto Costarricense de Pesca y Acuicultura, INCOPESCA, coordinar el sector pesquero, así como promover y ordenar el desarrollo de la Pesca y la Acuicultura.

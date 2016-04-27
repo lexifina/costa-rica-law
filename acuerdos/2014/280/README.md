@@ -14,3 +14,4 @@ Medidas de ordenamiento para el uso de carnada viva para la flota pesquera comer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-08 | la propia norma |
+| 2 | 2016-04-27 | SINALEVI (sin norma nombrada) |
