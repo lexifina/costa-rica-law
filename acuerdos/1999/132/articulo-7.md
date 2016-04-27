@@ -1,1 +1,0 @@
-Artículo 7°—La presente regulación deja sin efecto cualquier disposición normativa existente, anteriormente emitida en materia de permisos de inactividad para embarcaciones de pesca con fines comerciales.
