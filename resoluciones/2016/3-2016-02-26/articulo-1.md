@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISOS
+N° SC-003-2016.—San José, 26 de febrero del 2016.
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-009-2016: Se suprime el Manual de Clases Institucional del Tribunal Administrativo de la Seguridad Social del Régimen de Pensiones y Jubilaciones del Magisterio Nacional y su correspondiente valoración; a la vez que se reestructuran dichas clases.
+DG-030-2016: Se modifica el Manual de Especialidades Docentes (resolución DG-399-2010), específicamente la especialidad Educación Cívica de manera que en la sección “Atinencias Académicas” se incluya la carrera Licenciatura en la Enseñanza de los Estudios Sociales y la Educación Cívica de la Universidad Estatal a Distancia (UNED).
+DG-031-2016: Se modifica el Manual de Especialidades Docentes (resolución DG-399-2010), en particular las especialidades Turismo Ecológico, Turismos en Alimentos y Bebidas, Turismo en Hotelería y Eventos Especiales y Turismo Rural de manera que en la sección “Atinencias Académicas” de las especialidades mencionadas se incluya la carrera de Bachillerato en Turismo con Énfasis en Hotelería la Universidad Panamericana(UPA).
+DG-032-2016: Se modifica el Manual de Especialidades Docentes (resolución DG-399-2010), en particular las especialidades Banca y Finanzas, Contabilidad, Contabilidad y Auditoría, Contabilidad y Costos, Contabilidad y Finanzas y Contabilidad Generalista, de manera que en la sección “Atinencias Académicas” de las especialidades mencionadas se incluya la carrera de Bachillerato de Enseñanza de Educación Comercial con Énfasis en Contabilidad de la Universidad Técnica (UTN).
+DG-033-2016: Se modifica el Manual de Especialidades Docentes (resolución DG-399-2010), en particular las especialidades siguientes, de manera que en la sección “Atinencias Académicas” se incluya la carrera Bachillerato en Ingeniería de Sistemas de Información de la Universidad Nacional (UNA).
