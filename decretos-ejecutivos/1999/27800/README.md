@@ -14,3 +14,4 @@ Reglamento para el aprovechamiento del recurso forestal en las reservas indígen
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-04-26 | la propia norma |
+| 2 | 2016-04-27 | SINALEVI (sin norma nombrada) |
