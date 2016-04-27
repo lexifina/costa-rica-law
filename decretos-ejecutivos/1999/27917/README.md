@@ -20,3 +20,4 @@ Reforma Organizativa y Funcional del Ministerio de Obras Públicas y Transportes
 | 5 | 2004-07-22 | Decreto Ejecutivo 32044 (2004-07-22) |
 | 6 | 2005-07-19 | Decreto Ejecutivo 32461 (2005-07-19) |
 | 7 | 2015-07-09 | Decreto Ejecutivo 39173 (2015-07-09) |
+| 8 | 2016-04-27 | Decreto Ejecutivo 39702 (2016-04-27) |

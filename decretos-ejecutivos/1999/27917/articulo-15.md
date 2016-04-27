@@ -5,7 +5,7 @@ Por lo tanto, la División de Obras Públicas es clave para ayudar y canalizar l
 Su objetivo es brindar en forma coordinada, la asistencia técnica y el apoyo a las municipalidades y a otras organizaciones del país, para que en conjunto con éstas, se lleven a cabo las obras públicas necesarias con énfasis en la infraestructura vial cantonal, que permita un desarrollo económico y social del país, acorde con las políticas generales del Gobierno y del Ministerio.
 Sus funciones generales pasarán a ser:
 a. Cooperar con las municipalidades en el mantenimiento rutinario y periódico, la rehabilitación y el mejoramiento de caminos y puentes de la red cantonal y calles urbanas del país.
-b. Promover la cooperación técnica y financiera nacional e internacional necesaria para la atención de la red vial cantonal.
+b. (Derogado por el artículo 2° del decreto ejecutivo N° 39702 del 27 de abril del 2016)
 c. Inventariar la red cantonal del país y actualizar su clasificación.
 d. Planificar y ejecutar las obras fluviales.
 e. Coordinar con la Comisión Nacional de Emergencia en los eventos tendientes a la prevención y atención de situaciones de emergencia.
