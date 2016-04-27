@@ -1,1 +1,0 @@
-Artículo 2º—El plazo otorgado para la sustitución temporal, será de un año calendario contado a partir de la fecha de emisión de la autorización respectiva, por parte de las instancias mencionadas. Vencido el plazo señalado, el permiso de sustitución temporal caducará de pleno derecho y bajo ninguna circunstancia podrá ser revalidado.

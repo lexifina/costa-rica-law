@@ -1,1 +1,0 @@
-Artículo 4º—El costo del permiso de sustitución temporal será el establecido en el Reglamento de Tarifas del Instituto para la licencia de pesca comercial que posee la embarcación objeto de la sustitución temporal.
