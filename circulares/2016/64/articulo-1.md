@@ -1,0 +1,6 @@
+CIRCULAR Nº 64-2016
+ASUNTO: Solicitar el resultado al Departamento de Psicología y Psiquiatría Forense, de la primera y segunda evaluación al final del mes de internamiento, para determinar si la persona debe o no continuar bajo internamiento en el Centro de Atención para Personas con Enfermedad mental en conflicto con la Ley (CAPEMCOL).
+A LOS JUZGADOS Y TRIBUNALES PENALES DEL PAÍS,
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 24-16 celebrada el 10 de marzo de 2016, artículo XLI, acordó instar a todos los jueces y juezas penales, que en aquellos casos en que se encuentre involucrada una persona con discapacidad psicosocial que por esta condición deba ser remitida al Centro de Atención para Personas con Enfermedad mental en conflicto con la Ley (CAPEMCOL) a efectos de cumplir con el internamiento para observación de conformidad con el artículo 186 del Código Procesal Penal, se les recuerda la necesidad de solicitar desde el primer momento, al Departamento de Psicología y Psiquiatría Forense, tanto la primera como la segunda evaluación de ingreso al final del mes, para que se determine si la persona debe continuar en internamiento en ese Centro.
+San José, 28 de abril del 2016.
