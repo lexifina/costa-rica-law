@@ -1,0 +1,1 @@
+Artículo 2º—Se autoriza a las Instituciones del Estado a realizar todas las acciones necesarias, dentro del marco legal de sus competencias, para los arreglos público-privado que faciliten la implementación de la estrategia
