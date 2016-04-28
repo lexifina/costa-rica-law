@@ -14,3 +14,4 @@ Reglamento de Contratos Administrativos del Benemérito Cuerpo de Bomberos de Co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-21 | la propia norma |
+| 2 | 2016-04-28 | Reglamento 102 (2016-04-28) |
