@@ -14,3 +14,4 @@ Reglamento para la asignación, uso y control de líneas de teléfonos celulares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-03 | la propia norma |
+| 2 | 2016-04-28 | Reglamento 0 (2016-04-28) |
