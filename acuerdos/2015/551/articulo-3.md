@@ -1,0 +1,1 @@
+Artículo 3º—Del formato digital del libro: el Libro de Servicios Profesionales Digital será llenado por cada profesional en un programa y formato actual que pueda ser accesado en cualquier computadora. Será deber del profesional llevar el Libro al día según los trabajos realizados por él.

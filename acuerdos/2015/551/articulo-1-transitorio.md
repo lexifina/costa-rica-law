@@ -1,0 +1,2 @@
+Transitorio N° 1: los que tengan libros legalizados en uso, lo pueden utilizar hasta dentro del plazo de un año a partir de la publicación de la reforma efectuada al artículo 15 del Reglamento del Colegio de Contadores Públicos de la Ley N° 1038 “Regulación de la Profesión de Contador Público y creación del Colegio de Contadores Públicos”. Posteriormente, solo se puede llevar de manera digital.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
