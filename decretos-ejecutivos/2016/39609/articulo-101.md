@@ -1,0 +1,1 @@
+Artículo 101.- El médico como propietario, socio o director de empresas o instituciones prestatarias de servicios de salud, no debe aprovecharse ni explotar el trabajo médico aisladamente o en equipo. Infringen la ética médica aquellos facultativos que constituyan o dirijan agrupaciones profesionales en las que se promueva o permita la explotación de alguno de sus miembros.

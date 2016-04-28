@@ -1,0 +1,1 @@
+Artículo 163.- Falta a la ética, el médico que aconseje o participe en facilitar la obtención de células, tejidos u órganos humanos para ser trasplantados, si dicha acción lleva involucrada fines de lucro o de comercio.

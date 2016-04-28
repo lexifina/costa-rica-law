@@ -1,0 +1,1 @@
+Artículo 167.- Los médicos no deberán participar en procedimientos de trasplante, si las células, tejidos u órganos en cuestión se han obtenido mediante explotación o coacción del donante o del familiar más cercano de un donante fallecido, o bien si éstos han recibido una remuneración.

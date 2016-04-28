@@ -1,0 +1,4 @@
+Artículo 183.- El médico puede rehusar la atención de un paciente:
+a) Cuando el paciente o sus representantes legales hayan optado por una alternativa terapéutica que vaya contra el criterio razonable del médico o contra los principios morales, religiosos o filosóficos del médico.
+b) Haya sido objeto de una denuncia en instancias administrativas o judiciales por parte del paciente o su representante legal, que ponga en riesgo la relación médico-paciente.
+Este derecho no se aplica en los casos de emergencias, cuando exista un peligro inminente que ponga en riesgo la vida o comprometa gravemente la salud del paciente. En tales casos, el médico debe actuar sin dilación alguna, brindando los servicios que estén a su alcance, para procurar resolver la emergencia y luego referir al paciente a un centro de salud donde puedan darle continuidad a los servicios médicos.

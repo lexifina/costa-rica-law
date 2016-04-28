@@ -1,0 +1,1 @@
+Artículo 48.- El médico debe guardar respeto hacia el cadáver. La referencia al cadáver mediante gestos o palabras que sean ofensivas o con intención de burla se considera falta a la ética. Las disecciones que se practiquen conforme a la Ley, deben hacerse dentro de los límites de razonabilidad, procurando no incurrir en prácticas mutilantes que sean innecesarias o grotescas.

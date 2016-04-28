@@ -1,0 +1,1 @@
+Artículo 54.-Si el paciente no estuviese en condiciones de dar su consentimiento por ser menor de edad, por ser incapaz mental, o por la urgencia de la situación, y no es posible obtenerlo de su familia, el médico deberá prestar los cuidados que le dicte su conciencia profesional. La opinión del menor de edad deberá ser considerada, atendiendo a su edad y grado de madurez.

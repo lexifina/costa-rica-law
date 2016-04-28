@@ -1,0 +1,1 @@
+Artículo 71.- El médico, no revelará o permitirá que se revele, información a empresas aseguradoras, particulares o estatales, sobre las circunstancias de la enfermedad, o causas de muerte del paciente, salvo lo contenido en el certificado de defunción, o que medie autorización expresa del paciente, del responsable legal o autoridad judicial.

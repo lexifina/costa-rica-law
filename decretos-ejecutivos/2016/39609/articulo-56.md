@@ -1,0 +1,2 @@
+Articulo 56.-Aún en casos de urgencia, cuando el paciente en plena capacidad de actuar y en estado de conciencia, rechaza el tratamiento médico o quirúrgico, o bien haya dejado manifestación anticipada en forma indubitable en donde rechaza un determinado procedimiento médico o quirúrgico, deberá respetarse su voluntad.
+En casos de urgencia médica impostergable, cuando no exista certeza del rechazo al tratamieto médico, o se trata de un menor o incapaz, el médico actuará en conciencia, protegiendo el derecho a la vida del paciente.

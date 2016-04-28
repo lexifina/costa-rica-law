@@ -1,0 +1,2 @@
+Artículo 94.- Constituye falta a la ética criticar con terceros, de manera despectiva, las actuaciones profesionales de un colega. Hacerlo en presencia de pacientes, familiares, o públicamente, se considerará circunstancia agravante.
+Igualmente, constituye falta a la ética cualquier acto que, directa o indirectamente, pretenda difamar, injuriar o calumniar a un colega en su integridad o ejercicio profesional.

@@ -1,0 +1,1 @@
+Artículo 90.- Salvo pacto en contrario entre el médico y el paciente, cuando varios médicos participen en un examen o tratamiento, los honorarios deberán ser presentados separadamente, según las acciones realizadas.

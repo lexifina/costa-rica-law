@@ -1,0 +1,1 @@
+Artículo 44.- El médico debe brindar a sus pacientes todos los recursos de su ciencia y toda su lealtad. Cuando un examen o tratamiento sobrepase su capacidad, el médico debe llamar a otro médico calificado en la materia.

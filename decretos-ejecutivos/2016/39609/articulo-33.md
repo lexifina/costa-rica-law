@@ -1,0 +1,1 @@
+Artículo 33.- El médico a quien se solicitaren prestaciones que vayan en contra de su conciencia o de su convencimiento clínico, podrá negarse a intervenir. En estas circunstancias, procurará que otro colega continúe asistiendo al paciente, salvo que ello produjere graves e inmediatos daños para la salud del enfermo.

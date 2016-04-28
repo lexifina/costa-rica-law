@@ -1,0 +1,1 @@
+Artículo 168.- Los médicos que participen en procedimientos de obtención y trasplante de células, tejidos u órganos no deberán percibir una remuneración superior a los honorarios que estaría justificado recibir por los servicios prestados, conforme a la ley.

@@ -1,0 +1,1 @@
+Artículo 24.- El médico no debe asociarse en condición de codueño, accionista, administrador o trabajador con personas físicas o jurídicas, que practiquen actos ilícitos o contrarios a las normas contenidas en este código y cualquier otro acto que menoscabe los intereses del gremio médico nacional.

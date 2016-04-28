@@ -1,0 +1,1 @@
+Artículo 38.- En caso de huelga de hambre, el médico, además de respetar la decisión del huelguista, debe de informar adecuadamente a aquel sobre las probables consecuencias o complicaciones del ayuno prolongado, incluyendo la de la muerte.

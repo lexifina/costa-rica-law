@@ -1,0 +1,1 @@
+Artículo 96.- Todo profesional tiene el derecho de denunciar ante la Fiscalía del Colegio, en forma objetiva y discreta, las infracciones a la ética médica y a las reglas que rigen la práctica profesional, en que hubiere presumiblemente incurrido un colega.

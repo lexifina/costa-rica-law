@@ -1,0 +1,2 @@
+Artículo 52.-Toda atención médica deberá contar con el consentimiento del paciente, excepto en los casos de absoluta imposibilidad o urgencia.
+En caso de procedimientos diagnósticos o terapéuticos que entrañen un riesgo significativo para el paciente, el médico le proporcionará información adicional de los beneficios y riesgos del mismo, con el fin de obtener su consentimiento específico, imprescindible para practicarlos.

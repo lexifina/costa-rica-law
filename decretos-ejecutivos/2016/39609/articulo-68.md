@@ -1,0 +1,1 @@
+Artículo 68.- El médico no debe hacer referencia a casos clínicos identificables, mostrar pacientes o sus fotografías en publicaciones médicas, en medios de comunicación colectiva, sin el consentimiento escrito del paciente o de su representante legal.

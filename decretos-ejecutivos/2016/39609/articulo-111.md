@@ -1,0 +1,1 @@
+Artículo 111.- Cuando el médico tratante lo creyere necesario, puede proponer la concurrencia de un médico ayudante designado por él. En este caso, la atención se hará en forma conjunta. El médico tratante dirigirá el tratamiento.

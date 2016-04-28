@@ -1,0 +1,1 @@
+Artículo 14.- El médico deberá mantener su capacidad clínica, conocimientos, habilidades y destrezas actualizados, y utilizar todos los medios técnicos y científicos a su alcance para lograr una atención óptima e integral de sus pacientes. Cuando sea necesario, deberá recurrir a la interconsulta para una mejor atención.

@@ -1,0 +1,1 @@
+Artículo 26.- Nadie podrá ser, a la vez, salvo casos de urgencia, médico perito y médico tratante del mismo enfermo. El médico perito tampoco podrá ser posteriormente, médico tratante del enfermo a menos que haya transcurrido un período de un año, a partir del momento de su último acto como perito.

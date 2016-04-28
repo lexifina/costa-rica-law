@@ -1,0 +1,1 @@
+Artículo 176.- El médico no debe publicar a su nombre trabajos científicos en los cuales no haya participado, tampoco atribuirse autoría exclusiva de trabajos realizados por sus subalternos u otros profesionales, aún cuando hubiesen sido efectuados bajo su orientación.

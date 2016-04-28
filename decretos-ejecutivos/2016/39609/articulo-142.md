@@ -1,0 +1,1 @@
+Artículo 142.- El médico llamado a actuar como perito o auditor, deberá actuar con objetividad y dentro de los límites de sus atribuciones y competencias. Antes de examinar al paciente, debe informarle que su función es de experto y que como tal, tiene que rendir su informe como perito. Debe abstenerse de hacer comentarios subjetivos en su informe.

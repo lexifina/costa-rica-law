@@ -1,0 +1,1 @@
+Artículo 103.- El médico especialista, llamado en interconsulta por razones de su estricta competencia, podrá atender al enfermo, informando luego en detalle el resultado de esa valoración al médico tratante.

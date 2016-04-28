@@ -1,0 +1,1 @@
+Artículo 32.- La pérdida de confianza y de respeto entre médico y paciente pone en riesgo la continuidad y la calidad de la atención. En tal caso, el facultativo deberá procurar que otro colega se haga cargo del paciente, para lo cual le transmitirá toda la información necesaria para una correcta atención, dejando constancia escrita del motivo de su separación.

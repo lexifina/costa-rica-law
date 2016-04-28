@@ -1,0 +1,6 @@
+Artículo 27.- En relación con las autoridades del Colegio, el médico tiene los siguientes deberes:
+a) trato respetuoso hacia los integrantes de la Junta de Gobierno, Fiscalía, Tribunal de Ética, Tribunal Electoral, y demás órganos permanentes o transitorios que sean creados conforme a la ley o reglamentos vigentes. Este deber de respeto se extiende al personal contratado por el Colegio para ejecutar las labores encomendadas.
+b) acudir ante el llamado de la Junta de Gobierno, el Tribunal de Ética Médica o Fiscalía General del Colegio, sea en el curso de un procedimiento administrativo o de forma preventiva, salvo que una causa justa se lo impida. No será calificada como causa excepcional la distancia entre el lugar de trabajo o de residencia del citado y la sede del Colegio, siempre y cuando la citación se haya hecho con al menos quince días hábiles.
+c) Cumplir eficazmente las tareas que le sean encomendadas, conforme a la normativa interna aplicable.
+d) Colaborar en las comisiones o en los órganos cuando lo solicite la Junta de Gobierno o la Asamblea General.
+e) Responder con la verdad cuando sea interrogado por el Tribunal de Ética Médica o cualquier otro procedimiento de investigación que sea instaurado conforme a la Ley y reglamentos vigentes.

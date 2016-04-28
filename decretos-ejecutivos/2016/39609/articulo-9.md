@@ -1,0 +1,1 @@
+Artículo 9.-El médico, tanto en su ejercicio profesional como en su vida pública, debe observar un comportamiento acorde con la moral, el decoro y el prestigio de la medicina. El trato respetuoso hacia las demás personas constituye un presupuesto ético propio del ser médico.

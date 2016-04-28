@@ -1,0 +1,1 @@
+Artículo 138.- El médico no debe elaborar o divulgar certificación o constancia médica que revele el diagnóstico, pronóstico o tratamiento, sin la expresa autorización del paciente o del responsable legal.

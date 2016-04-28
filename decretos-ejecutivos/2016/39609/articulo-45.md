@@ -1,0 +1,1 @@
+Artículo 45.- El médico no puede proponer a sus pacientes o a los familiares de éstos, como efectivo o sin peligro, un medicamento o procedimiento ilusorio o que no esté aprobado por las autoridades competentes.

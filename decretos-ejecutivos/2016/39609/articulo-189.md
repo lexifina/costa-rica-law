@@ -1,0 +1,1 @@
+Artículo 189.- No es ético que el médico participe en procedimientos médicos, llevando a cabo embarazos obtenidos in vitro, con uno o ambos gametos de terceros progenitores a sabiendas que ha existido una contratación del útero de una mujer (madre gestante).

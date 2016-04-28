@@ -1,0 +1,1 @@
+Artículo 97.- Es obligación de todo médico entregar los informes clínicos que los colegas soliciten cuando el paciente ha decidido cambiar de facultativo o recurrir a una interconsulta, sin perjuicio de cumplir con las obligaciones establecidas en este mismo Código o en otras disposiciones normativas.

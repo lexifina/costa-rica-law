@@ -1,0 +1,1 @@
+Artículo 99.- Todo médico a quien corresponda intervenir, en virtud de sus funciones, en el nombramiento o remoción de un colega, tanto en el sector público como en el privado, como en su calificación o ascenso, deberá actuar con justicia, respetando la dignidad de aquél y las normas legales vigentes.

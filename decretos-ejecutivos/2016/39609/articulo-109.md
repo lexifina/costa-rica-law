@@ -1,0 +1,1 @@
+Artículo 109.- El médico no debe alterar las prescripciones o tratamientos del paciente indicados por otro médico, aún en función de jefe o de auditor, salvo en situaciones de indiscutible conveniencia para el paciente, debiendo comunicar a la brevedad posible este hecho al médico responsable.

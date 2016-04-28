@@ -1,0 +1,1 @@
+Artículo 108.- El médico no debe impedir que un colega utilice, en la atención de un caso de urgencia, las instalaciones y recursos bajo su dirección, particularmente si se trata de la única existente en la comunidad.

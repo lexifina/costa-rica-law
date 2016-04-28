@@ -1,0 +1,4 @@
+Artículo 36.- Toda persona tiene derecho a morir dignamente. Por consiguiente, los procedimientos diagnósticos y terapéuticos deberán ser proporcionales a los resultados que se pueda esperar de ellos.
+El médico procurará siempre aliviar el sufrimiento y el dolor del paciente, aunque con ello haya riesgo de abreviar la vida.
+Ante la inminencia de una muerte inevitable, a pedido del paciente en plena capacidad y estado de conciencia, es lícito que el médico, tome la decisión de no aplicar tratamientos que procuren únicamente una prolongación precaria y penosa de la existencia, debiendo procurar al enfermo los cuidados paliativos inherentes a la dignidad de todo ser humano, hasta el final de sus días.
+Si se comprobare la muerte cerebral de un paciente, el médico estará autorizado para suspender todo procedimiento terapéutico.

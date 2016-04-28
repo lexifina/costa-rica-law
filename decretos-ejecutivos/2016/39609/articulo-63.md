@@ -1,0 +1,1 @@
+Artículo 63.- Es deber del médico garantizar que los pacientes a que se haga referencia en publicaciones científicas, reuniones clínicas y presentaciones públicas permanezcan en el anonimato. Sin embargo, si fuere imprescindible revelar la identidad de algún paciente, el facultativo deberá contar siempre con el consentimiento escrito de aquel.

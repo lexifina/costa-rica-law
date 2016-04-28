@@ -1,0 +1,1 @@
+Artículo 190.- No es ética la aplicación de cualquier procedimiento dirigido a practicar la eugenesia, seleccionando los seres humanos, especialmente aquellos dirigidos a discriminar según alguna característica.

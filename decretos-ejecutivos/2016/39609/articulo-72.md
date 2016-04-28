@@ -1,0 +1,1 @@
+Artículo 72.- El médico debe apoyar a las instituciones públicas o privadas en las que labore para orientar a sus auxiliares y subordinados, en el celo por el resguardo del secreto profesional a que están obligados por ley.

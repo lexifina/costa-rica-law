@@ -1,0 +1,1 @@
+Artículo 88.- Falta gravemente a la ética profesional el médico que exija el pago de honorarios por prestaciones no realizadas. Se exceptúa esta norma, cuando haya acuerdo previo de las partes o bien que la no realización del servicio se deba a una circunstancia que escape a la responsabilidad y control del médico.

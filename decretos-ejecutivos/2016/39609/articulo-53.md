@@ -1,0 +1,1 @@
+Artículo 53.-Es recomendable que el facultativo consigne siempre el consentimiento del paciente por escrito, debiendo proceder necesariamente de esta forma cuando dicho consentimiento sea exigido por la ley o reglamento.

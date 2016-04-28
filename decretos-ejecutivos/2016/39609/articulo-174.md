@@ -1,0 +1,1 @@
+Artículo 174.- En las entrevistas y publicaciones realizadas por los medios de comunicación social, los médicos deben respetar los principios enunciados en el artículo anterior. Su actuación debe prestigiar al Colegio y no ser fuente de confusión, temores inadecuados, ni auto propaganda.

@@ -1,0 +1,1 @@
+Artículo 135.- El médico debe extender el certificado de defunción habiendo verificado de previo la identidad del occiso, su estado de muerte real, el mecanismo biológico que terminó con el cese de las funciones vitales y las circunstancias que rodearon el inicio y evolución de ese mecanismo. Deberá emitirse con fecha cierta.

@@ -1,0 +1,1 @@
+Artículo 57.-El médico no debe exagerar la gravedad del diagnóstico o pronóstico; complicar el tratamiento, excederse en el número de visitas, interconsultas o en cualquier otro procedimiento médico, así como crear artificialmente situaciones de alarma, respondiendo a intereses espurios.

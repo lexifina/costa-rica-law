@@ -1,0 +1,1 @@
+Artículo 107.- Respetando el derecho del paciente a solicitar una segunda opinión, el médico no debe, expresar o comentar al paciente, a sus familiares o responsable legal, opiniones desfavorables sobre diagnósticos o tratamientos, actuales o previos, tendientes a difamar o disminuir la confianza en el médico tratante.

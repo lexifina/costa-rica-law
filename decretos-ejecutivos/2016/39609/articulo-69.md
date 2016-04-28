@@ -1,0 +1,1 @@
+Artículo 69.- El médico debe tener acceso a la información contenida en el expediente clínico en los servicios de salud, esa información es confidencial, solo podrá compartirla con fines médicos legítimos y para cualquier otro uso con el consentimiento escrito del paciente.

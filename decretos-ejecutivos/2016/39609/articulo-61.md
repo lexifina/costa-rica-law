@@ -1,0 +1,1 @@
+Artículo 61.- El facultativo deberá siempre adoptar todas aquellas medidas que sean necesarias para cautelar la confidencialidad de la información recibida, debiendo procurar que sus colaboradores mantengan discreción y guarden la misma confidencialidad.

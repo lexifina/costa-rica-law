@@ -1,0 +1,1 @@
+Artículo 10.-El médico debe oponerse y no practicar la discriminación o el trato indigno de ningún ser humano en razón de edad, género, etnia, discapacidad en cualquiera de sus formas, credo político, religioso, nacionalidad, privación de libertad, orientación sexual o posición económica.

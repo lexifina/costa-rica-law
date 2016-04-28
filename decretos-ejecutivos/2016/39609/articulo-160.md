@@ -1,0 +1,1 @@
+Artículo 160.- El médico, en caso de trasplante, deberá explicar al donador vivo o a su representante legal, así como al receptor o su representante legal, en un lenguaje comprensible, los riesgos en cuanto a los exámenes, actos quirúrgicos, otros procedimientos y las complicaciones que pudiesen sobrevenir como resultado de esos.

@@ -1,0 +1,1 @@
+Artículo 131.- En el consultorio médico privado el profesional está obligado a tener un expediente clínico, el cual pertenece al profesional. A solicitud del paciente o autoridad judicial, el médico está en la obligación de extender una epicrisis o una fotocopia del expediente. Solo la autoridad judicial podrá requerir el expediente original.

@@ -1,0 +1,1 @@
+Artículo 31.- El facultativo que acepte atender a un paciente, está obligado a asegurarle, de inmediato, todos los cuidados médicos en su poder, personalmente, o con la ayuda de terceras personas calificadas y se compromete a garantizar la continuidad de sus servicios.

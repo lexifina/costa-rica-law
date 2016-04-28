@@ -1,0 +1,1 @@
+Artículo 188.- No es éticamente admisible que el médico contribuya a gestar seres humanos para investigación, comercialización o uso como fuente de recursos diagnósticos o terapéuticos. El embrión humano nunca debe ser sujeto de experimentación ni materia prima de medicamentos, cosméticos u otros productos.

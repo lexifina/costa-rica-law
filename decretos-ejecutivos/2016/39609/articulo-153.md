@@ -1,0 +1,1 @@
+Artículo 153.- Cuando un facultativo participe en una investigación científica, deberá consultar al médico tratante del sujeto de investigación para que manifieste su parecer sobre la conveniencia de su inclusión y sobre los perjuicios que ésta pudiere acarrear

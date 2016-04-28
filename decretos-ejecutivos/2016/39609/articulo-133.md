@@ -1,0 +1,1 @@
+Artículo 133.- El médico está en la obligación de certificar los datos producto de su ejercicio profesional, solicitados por el paciente o por su representante legal. Deberá emitirse con fecha cierta.

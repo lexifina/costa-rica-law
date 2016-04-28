@@ -1,0 +1,1 @@
+Artículo 110.- La disminución de honorarios por debajo de las tarifas o porcentajes que establezca el Colegio, o aceptar salarios inferiores a los establecidos por ley, se considerará como competencia desleal hacia los colegas.
