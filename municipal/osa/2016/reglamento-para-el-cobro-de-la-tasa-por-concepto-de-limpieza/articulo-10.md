@@ -1,0 +1,1 @@
+Artículo 10.—El cobro por concepto de servicio de limpieza de vías, parques, zonas verdes y playas de la Z.M.T., se efectuará de forma trimestral, quedando el sujeto pasivo autorizado en efectuar el pago anual en el primer trimestre de cada año o efectuar pagos adelantados en cualquier tiempo.

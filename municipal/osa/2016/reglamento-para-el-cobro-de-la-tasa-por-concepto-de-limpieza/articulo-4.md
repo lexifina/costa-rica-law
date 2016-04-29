@@ -1,0 +1,1 @@
+Artículo 4°—Es sujeto pasivo para los efectos de este reglamento, toda aquella persona física o jurídica que sea dueño o poseedor de un bien inmueble, siendo que dicha condición lo obliga al pago de la tasa que cobra la municipalidad por el servicio de mantenimiento de parques, zonas verdes y sus respectivos servicios.

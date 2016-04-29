@@ -1,0 +1,1 @@
+Artículo 14.—El presente Reglamento para el Cobro de la Tasa por Concepto de Limpieza de Vías, Parques, Zonas Verdes y Playas de la Z.M.T. del cantón de Osa, deroga todo reglamento anterior que regule este tipo de servicio y tarifa.

@@ -1,0 +1,1 @@
+Artículo 3°—El costo efectivo de lo invertido por la municipalidad en el servicio de limpieza de vías, parques, zonas verdes y playas de la Z.M.T., se distribuirá proporcionalmente entre los contribuyentes del distrito en el cual se brinda el servicio, según el valor de su finca. Su cálculo se regirá de conformidad con el modelo establecido en el artículo 74 del Código Municipal.

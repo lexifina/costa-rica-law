@@ -1,0 +1,1 @@
+Artículo 5°—Se entiende por tasa para efectos de este reglamento, el servicio de limpieza de vías, parques, zonas verdes y playas de la Z.M.T., cuya obligación tiene como hecho generador la propiedad de bienes inmuebles. Por parte de las personas físicas o jurídicas en cada distrito del Cantón de Osa.

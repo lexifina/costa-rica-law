@@ -1,0 +1,1 @@
+Artículo 13.—El cobro de esta tasa por concepto de servicio de limpieza de vías, parques, zonas verdes y playas de la Z.M.T., rige en 30 días hábiles después de su publicación en el Diario Oficial La Gaceta.

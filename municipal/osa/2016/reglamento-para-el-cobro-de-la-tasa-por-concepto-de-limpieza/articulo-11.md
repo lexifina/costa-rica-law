@@ -1,0 +1,1 @@
+Artículo 11.—El atraso y/o el incumplimiento en el pago trimestralmente establecido, generará la aplicación de intereses, los cuales serán atribuidos al monto adeudado por el servicio de limpieza de vías, parques, zonas verdes y playas de la Z.M.T., siendo que dichos intereses se calcularan según lo establecido en el Código de Normas y Procedimientos Tributarios.

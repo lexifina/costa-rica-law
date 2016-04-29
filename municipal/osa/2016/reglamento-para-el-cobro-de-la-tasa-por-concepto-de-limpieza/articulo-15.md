@@ -1,0 +1,2 @@
+Artículo 15.—El presente reglamento, se aprueba en forma unánime y en firme por el Concejo Municipal de Osa, en el acta de sesión extraordinaria N° 04, celebrada el 15 de febrero del 2016, por lo que, de conformidad con el artículo 43 del Código Municipal, se procede a su publicación en el Diario Oficial La Gaceta y rige a partir de 30 días después de sus publicación.
+Ciudad Cortés, 17 de febrero del 2016.
