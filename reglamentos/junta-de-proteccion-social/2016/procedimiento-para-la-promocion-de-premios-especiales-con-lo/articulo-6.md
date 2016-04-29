@@ -1,0 +1,6 @@
+Artículo 6º—Mecánica del Sorteo Premios Especiales “Sorteos de Lotería Popular”. El sorteo para la selección de los ganadores de esta promoción se hará a través de una tómbola electrónica, la cual indicará el nombre del ganador, número de cédula, serie, número y número de emisión del entero que corresponde al número de la fracción activada. En el siguiente cuadro se detallan las fechas en que se efectuará el sorteo en el Auditorio Institucional en presencia del grupo de fiscalizadores que designe la Junta, para seleccionar al ganador el Gerente General o su representante es quien autoriza en el sistema informático el tiempo de duración de la tómbola electrónica, es decir, el momento en que inicia y finaliza el sorteo para seleccionar al ganador, los sorteos se realizarán durante la transmisión de los sorteos de Lotería Popular, que se transmite a las 07:30 p. m. por canal 13.
+Fecha del sorteo
+Viernes 03 de junio, 2016
+Martes 05 de julio, 2016
+Martes 02 de agosto, 2016
+Los nombres de los ganadores serán publicados en la página electrónica de la Junta de Protección Social (www.jps.go.cr), en el sitio de la red social facebook “Junta de Protección Social (Oficial)” y en una publicación que se efectuará en prensa escrita.

@@ -1,0 +1,1 @@
+Artículo 4º—Caducidad. Los premios obtenidos con esta promoción pueden ser reclamados a partir del día hábil siguiente a la fecha de realización del sorteo. El período de caducidad de los premios es de 60 días naturales, según lo establecido en el artículo 18 de la Ley Nº 8718.

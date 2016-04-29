@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia. Esta promoción tiene vigencia del 03 de mayo del 2016 a las 08:00 p. m. al 01 de agosto del 2016 a las 12:00 medianoche y la lotería participante corresponde a los “Sorteos de Lotería Popular” que se realicen en el período comprendido del 03 de mayo del 2016 al 29 de julio del 2016.
