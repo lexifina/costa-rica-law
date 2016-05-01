@@ -1,0 +1,5 @@
+CAPÍTULO SEGUNDO
+Límites a la jornada extraordinaria
+Artículo 12.- Límite de la jornada laboral. Conforme a lo dispuesto en el artículo 140 del Código de Trabajo, la jornada ordinaria sumada a la extraordinaria no podrá ser mayor de doce horas diarias; por lo tanto, el máximo de la jornada extraordinaria no podría exceder de 4 horas diarias. Lo anterior, a excepción de los supuestos en que por siniestro ocurrido o riesgo inminente peligren las personas, los establecimientos, las máquinas o instalaciones, en cuyo caso podrá extenderse ese límite, en el tanto, sin evidente perjuicio, no pueden sustituirse los trabajadores o suspenderse las labores de los que están trabajando.
+Solamente se autorizará el tiempo extraordinario a funcionarios que una vez concluida la jornada ordinaria, laboren como mínimo una hora extra. A partir de la primera hora extra laborada, podrán tomarse en cuenta medias horas como medida de cobro.
+No se considerarán horas extraordinarias las que el trabajador ocupe en subsanar los errores imputables sólo a él, cometidos durante la jornada ordinaria.

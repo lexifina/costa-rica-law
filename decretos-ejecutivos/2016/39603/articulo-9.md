@@ -1,0 +1,1 @@
+Artículo 9.- LA aprobación del tiempo extraordinario dependerá de la presentación del sustento documental que demuestre la necesidad de las horas extras laboradas ante la jefatura directa encargada de la autorización de la jornada extraordinaria para cada funcionario.

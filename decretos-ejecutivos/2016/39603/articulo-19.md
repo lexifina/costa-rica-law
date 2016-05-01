@@ -1,0 +1,1 @@
+Artículo 19.- Fiscalización. La Unidad de Recursos Humanos, será la Unidad Administrativa responsable del registro, verificación de que los formularios presentados cuenten con la información correspondiente, control y pago de la cantidad de horas extraordinarias autorizadas por las distintas jefaturas.

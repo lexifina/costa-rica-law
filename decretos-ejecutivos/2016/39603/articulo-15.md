@@ -1,0 +1,4 @@
+Artículo 15.- Improcedencia. No corresponde el pago de tiempo extraordinario en aquellos casos en que el funcionario participe en actividades de aprendizaje corno cursos de capacitación, talleres, seminarios, charlas y en la atención de asuntos de índole personal después de la jornada ordinaria laboral. En todos los casos se trate dentro o fuera del país.
+En caso de que el funcionario (a) deba laborar de manera extraordinaria después de regresar de una actividad de capacitación dentro del país, posterior a la terminación de la jornada
+ordinaria, y por instrucción de su superior inmediato, le será reconocido dicho tiempo bajo la responsabilidad directa de éste.
+Del mismo modo, queda prohibido a los funcionarios solicitar el reconocimiento de tiempo extraordinario, correspondiente al traslado del servidor público al lugar de la gira y viceversa.

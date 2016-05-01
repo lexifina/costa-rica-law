@@ -1,0 +1,1 @@
+Artículo 6.- Para la determinación de la cantidad de horas extraordinarias que se requerirán para el año siguiente, se debe considerar la debida planificación y proyección que realice cada Dirección Regional de la Dirección General de la Policía de Tránsito, así como los informes de tiempo extraordinario laborado por dichas Direcciones.

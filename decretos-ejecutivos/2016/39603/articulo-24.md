@@ -1,0 +1,1 @@
+Artículo 24.- Restricciones. El pago de tiempo extraordinario será restringido y la subpartida presupuestaria será para cubrir exclusivamente aquellos casos de trabajos eminentemente ocasionales y que no puedan ser ejecutados durante la jornada ordinaria por el personal que se dispone para ello.
