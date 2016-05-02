@@ -1,0 +1,1 @@
+Artículo 8º—Procedimientos no regulados. Todo procedimiento médico-quirúrgico o acto médico no regulado en este arancel de manera expresa, le corresponderá a la comisión de aranceles conocer y resolver sobre el monto a cancelar, o bien cuando surjan dudas o controversias en cuanto a la interpretación de este arancel.

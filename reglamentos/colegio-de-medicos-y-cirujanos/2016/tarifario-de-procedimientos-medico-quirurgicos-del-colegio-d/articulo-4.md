@@ -1,0 +1,1 @@
+Artículo 4º—Pago de Honorarios. Todo procedimiento médico-quirúrgico que realicen los profesionales en medicina debidamente incorporados y habilitados por este Colegio profesional, deberá ser claramente explicado de forma previa y cancelados por el cliente en el plazo acordado, según la naturaleza de los servicios brindados en los términos que señale este arancel.

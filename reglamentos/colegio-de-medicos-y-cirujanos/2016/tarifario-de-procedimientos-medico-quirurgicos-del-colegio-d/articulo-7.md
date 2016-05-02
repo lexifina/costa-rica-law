@@ -1,0 +1,1 @@
+Artículo 7º—Controversias. Le corresponderá a la comisión de aranceles, conocer y resolver sobre dudas y controversias en cuanto a la interpretación de este arancel, para lo cual informará a la Junta de Gobierno su recomendación para que ésta decida en el ejercicio de su competencia. El pronunciamiento que emita la Junta de Gobierno será de acatamiento obligatorio.
