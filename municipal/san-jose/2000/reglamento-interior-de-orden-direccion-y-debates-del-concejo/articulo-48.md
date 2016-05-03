@@ -1,1 +1,0 @@
-Artículo 48.—Para dar cumplimiento al inciso e), del artículo diecisiete, del Código Municipal, el Alcalde debe coordinar con el directorio del Concejo, la presentación ante éste y la difusión pública de su programa de gobierno.

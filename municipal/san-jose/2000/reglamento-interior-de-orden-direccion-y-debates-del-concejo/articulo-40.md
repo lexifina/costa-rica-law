@@ -1,1 +1,0 @@
-Artículo 40.—Durante el transcurso de las sesiones del Concejo, solo podrán permanecer en la sala de sesiones Cleto González Víquez, los regidores, síndicos, el alcalde, sus suplentes el Secretario Municipal, el Auditor Municipal y los asesores del Concejo.

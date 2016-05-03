@@ -1,1 +1,0 @@
-Artículo 76.—Cuando una Comisión quede sin posibilidad de conformar su quórum, en razón de ausencia temporal justificada de sus miembros, el Presidente del Concejo Municipal, podrá, en tanto dure esa ausencia, sustituir a los titulares por otros regidores o síndicos.
