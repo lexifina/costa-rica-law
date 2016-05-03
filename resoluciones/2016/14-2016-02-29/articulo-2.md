@@ -1,0 +1,2 @@
+Artículo 2º—Para efectos fiscales y hasta tanto no se comuniquen otros lineamientos, son válidas todas las facturas electrónicas firmadas digitalmente mediante certificados electrónicos emitidos por empresas nacionales y compañías reconocidas mundialmente, que cumplan como mínimo con las políticas de seguridad dictadas por el Ministerio de Ciencia y Tecnología.
+Vigencia. Esta resolución rige a partir de su publicación.
