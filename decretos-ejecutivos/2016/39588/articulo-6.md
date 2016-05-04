@@ -1,0 +1,1 @@
+Artículo 6º—Los medios de comunicación social masivos difundirán de manera oportuna, los mensajes que promuevan las autoridades de salud para la prevención, mitigación, control y atención de estas enfermedades transmitidas por vector.

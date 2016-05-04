@@ -1,0 +1,1 @@
+Artículo 2º—Se ordena a las entidades públicas, privadas y a la población en general cumplir con las disposiciones que, de carácter general o particular, dicten las autoridades del Ministerio de Salud, para controlar y así evitar la propagación de estas enfermedades.
