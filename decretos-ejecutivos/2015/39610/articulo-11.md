@@ -1,0 +1,1 @@
+Artículo 11.- Prohibición del uso de vehículos en mal estado. Queda prohibido a la Coordinación del Área Administrativa, responsable de transportes y a quien tenga a cargo vehículos del Consejo, ponerlos en uso cuando no estén en condiciones de ser utilizados o cuando no hayan pasado por el proceso de revisión técnica, al término de la última diligencia realizada en este sentido.

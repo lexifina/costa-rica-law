@@ -1,0 +1,1 @@
+Artículo 33.- Responsabilidad por Incumplimiento. La responsabilidad por incumplimiento de la presente normativa reglamentaria, es exclusiva de cada chofer o conductor y del Coordinador del Área Administrativa del Consejo, en lo que les sea aplicable individualmente.

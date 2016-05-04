@@ -1,0 +1,1 @@
+Artículo 12.- Responsabilidad por alteración de la ruta. Cualquier alteración del itinerario del destino programado que se presente en el transcurso de un viaje o gira, será responsabilidad total de la persona funcionaria que utilice el servicio y dirija el viaje o la gira.

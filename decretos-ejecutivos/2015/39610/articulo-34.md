@@ -1,0 +1,3 @@
+Capítulo XI
+Infracciones
+Artículo 34.- Las infracciones al presente decreto reglamentario se sancionarán disciplinariamente, de conformidad con la Ley de Tránsito N.9078 y sus reformas, con el Reglamento Autónomo de Servicios del Ministerio de Trabajo y Seguridad Social, Decreto Ejecutivo N.27969-TSS de fecha 23/06/1999 y sus reformas, aplicable al Consejo por adscripción, en el Estatuto de Servicio Civil y su Reglamento y demás leyes conexas, con respeto al Debido Proceso Constitucional y al procedimiento establecido en la Ley General de la Administración Pública, sin detrimento de las responsabilidades civiles o penales que le sean aplicables.

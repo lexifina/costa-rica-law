@@ -1,0 +1,2 @@
+Artículo 13.- Personas autorizadas para conducir vehículos del Consejo. La Dirección Ejecutiva podrá autorizar el manejo de los vehículos del Consejo a las personas funcionarias de la Institución que cumplan con los requisitos establecidos en la Ley de Transito N.9078 vigente y en el presente reglamento.
+Igualmente, podrán ser autorizados por el Director Ejecutivo los Choferes de Planta del Ministerio de Trabajo y Seguridad Social.

@@ -1,0 +1,1 @@
+Artículo 5.- Control de vehículos. Para realizar el control de los vehículos, la Dirección Ejecutiva se apoyará en la Coordinación del Área Administrativa del Consejo, la cual será la responsable de implementar los controles establecidos en el presente reglamento y en las órdenes de la Dirección Ejecutiva de la Institución.

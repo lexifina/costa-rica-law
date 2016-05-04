@@ -1,0 +1,1 @@
+Artículo 6.- Uso del emblema y placas oficiales en los vehículos: Todos los vehículos del Consejo, al estar clasificados de uso administrativo, deben portar permanentemente las placas de matrícula oficial con el código 344 y el logotipo que los identifique con el emblema del Consejo en ambas puertas laterales con la leyenda "USO OFICIAL".

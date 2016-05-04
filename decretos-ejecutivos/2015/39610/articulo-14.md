@@ -1,0 +1,18 @@
+Capítulo III
+Otras Funciones del Área Administrativa del Consejo
+Artículo 14-Responsabilidades del Coordinador del Área Administrativa. Esta Coordinación constituye una dependencia de apoyo administrativo de la Dirección Ejecutiva del Consejo. El Coordinador debe cumplir con las funciones propias de sus funciones y será coresponsable, junto con el Director Ejecutivo de la Institución, de la administración de los vehículos del Consejo.
+Por lo anterior, tendrá las siguientes funciones:
+a) Planificar, organizar, fiscalizar, controlar y coordinar todas las actividades de orden administrativo, relacionadas con la custodia, el uso, mantenimiento y disposición de los vehículos del Consejo.
+b) Atender las solicitudes de transporte de las personas funcionarias de la Institución, según planificación anual, así como de conformidad con los requerimientos excepcionales que, previamente, deben estar autorizados por la Dirección Ejecutiva.
+c) Mantener un registro de cada vehículo, con indicación del estado en el que se encuentra y de las reparaciones y cambios de piezas que se le hayan realizado.
+d) Velar por el correcto funcionamiento, conservación y limpieza de los vehículos. Mantener informada a la Dirección Ejecutiva de las necesidades de reparación y sustitución de partes de las unidades de la Institución en forma escrita.
+e) Garantizar, en la medida de lo posible, que existan vehículos disponibles para atender necesidades de transporte por cualquier eventualidad o emergencia.
+f) Controlar, en cada caso, que la prestación del servicio guarde relación con el kilometraje recorrido, el tiempo empleado y el consumo de combustible; para lo cual, se fundamentará en la fórmula de solicitud de cada vehículo y en el informe que debe suministrar el chofer o la persona funcionaria que haya sido autorizada para conducir la unidad, sobre los lugares visitados.
+g) Expedir, con autorización previa de la Dirección Ejecutiva, las solicitudes de pedido para el mantenimiento preventivo y correctivo de los vehículos, así como mantener actualizado el control mensual de los gastos de cada vehículo y rendir un informe de tales gastos a la Dirección Ejecutiva.
+h) Levantar la información administrativa preliminar en forma detallada para cada caso, cuando existiera daño o daños a cualquiera de los vehículos, por accidente o por cualquier otra causa, por lo cual, está en la obligación de informarlo por escrito, inmediatamente, al Director Ejecutivo.
+i) Debe coordinar la salida de cada vehículo y evitar que se produzca duplicidad de servicios hacia un mismo lugar o ruta, caso en el que debe organizar la salida solamente para un único vehículo con todas las personas funcionarias solicitantes, siempre que tal acción le fuera posible, de lo contrario, debe autorizar la salida de las unidades que sean necesarias, con la obligación de informarle a la Dirección Ejecutiva de tal situación, para que se tomen las medidas que correspondan.
+j) Únicamente hará la entrega del vehículo o vehículos a la persona que le presente la correspondiente autorización suscrita previamente por el Director Ejecutivo y cumpla con los requisitos establecidos en la Ley de Tránsito vigente y en el presente Reglamento.
+k) Informar al Director Ejecutivo, por su condición de superior inmediato, sobre cualquier tipo de anomalía e inconsistencia que se presente en el uso de los vehículos a su cargo.
+l) Controlar el trabajo de los choferes e instruirlos sobre la forma de cumplir sus deberes y las consecuencias de su incumplimiento.
+m)Velar para que todo chofer o conductor cuente con su licencia de conducir al día y en regla.
+n) Todas las demás responsabilidades propias de su cargo.

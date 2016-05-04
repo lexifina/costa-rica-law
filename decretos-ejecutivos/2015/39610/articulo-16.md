@@ -1,0 +1,3 @@
+Capítulo V
+Protección, deberes y responsabilidades de los Conductores y Choferes del Consejo
+Artículo 16.- De la suscripción de pólizas por el Consejo. El Consejo suscribirá las pólizas relativas a vehículos automotores que procedan, según las disposiciones de la Ley de Tránsito N.9078 vigente, como protección a sus choferes y conductores durante el ejercicio de sus labores. La Dirección Ejecutiva decidirá sobre la posibilidad de adquirir coberturas adicionales en las pólizas de vehículos, previo análisis económico financiero, de conveniencia y oportunidad, según la experiencia existente en la materia.

@@ -1,0 +1,1 @@
+Artículo 30.- Control del Gasto de Combustible. La Coordinación del Área Administrativa del Consejo debe llevar un estricto control del gasto de combustible por vehículo, de tal manera que le permita mantener controlado el consumo racional del combustible.
