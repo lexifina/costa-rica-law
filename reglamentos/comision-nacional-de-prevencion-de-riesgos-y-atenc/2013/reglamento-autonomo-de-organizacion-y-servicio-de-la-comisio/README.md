@@ -14,3 +14,4 @@ Reglamento autónomo de organización y servicio de la Comisión Nacional de Pre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-15 | la propia norma |
+| 2 | 2016-05-04 | Reglamento 7 (2016-05-04) |
