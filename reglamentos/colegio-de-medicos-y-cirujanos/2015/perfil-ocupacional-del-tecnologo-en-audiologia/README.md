@@ -14,3 +14,4 @@ Perfil Ocupacional del Tecnólogo en Audiología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-12-18 | la propia norma |
+| 2 | 2016-05-04 | Reglamento 0 (2016-05-04) |
