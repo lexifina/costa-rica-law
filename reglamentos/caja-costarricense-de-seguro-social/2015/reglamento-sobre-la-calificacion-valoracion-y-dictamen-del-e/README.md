@@ -14,3 +14,4 @@ Reglamento sobre la Calificación, Valoración y Dictamen del Estado de Invalide
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-08 | la propia norma |
+| 2 | 2016-05-05 | Reglamento 8841 (2016-05-05) |
