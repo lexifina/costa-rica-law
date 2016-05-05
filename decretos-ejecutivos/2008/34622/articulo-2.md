@@ -1,1 +1,2 @@
-Artículo 2º—En los establecimientos de Cirugía Ambulatoria, se restringe el uso de fentanilo ampollas para prescripción y administración exclusivas por los médicos especialistas en Anestesiología.
+Artículo 2º—En los procedimientos quirúrgicos, el uso de fentanilo ampollas para prescripción y administración, corresponderá únicamente a los médicos especialistas en Anestesiología.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39608 del 5 de mayo del 2016)

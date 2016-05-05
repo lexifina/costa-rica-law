@@ -14,3 +14,4 @@ Regulación del uso de Fentanillo en Ampollas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-07-17 | la propia norma |
+| 2 | 2016-05-05 | Decreto Ejecutivo 39608 (2016-05-05) |

@@ -1,2 +1,2 @@
-Artículo 5º—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José, a los 21 días del mes de mayo del dos mil ocho.
+Artículo 5º—Se deroga el Decreto Ejecutivo Nº 33643-S de 26 de febrero del 2007, publicado en La Gaceta Nº 57 de 21 de marzo del 2007.
+(Corrida su numeración por el artículo 1° del decreto ejecutivo N° 39608 del 5 de mayo del 2016, que lo traspasó del antiguo artículo 4° al 5°)
