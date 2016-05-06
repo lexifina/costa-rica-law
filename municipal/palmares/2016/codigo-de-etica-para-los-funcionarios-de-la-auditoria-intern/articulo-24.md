@@ -1,0 +1,1 @@
+Artículo 24.—Los funcionarios de la auditoría interna deberán resguardar, proteger y tutelar los fondos y recursos públicos, todo acto contrario a tal imperativo, o cualquier acto de corrupción, debe ser denunciado de inmediato ante las instancias correspondientes, cuando se tenga conocimiento del mismo.

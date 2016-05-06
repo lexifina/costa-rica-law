@@ -1,0 +1,2 @@
+Artículo 8º—Todos los funcionarios de la auditoría interna deben mantener la neutralidad política, tanto la real como la percibida, en el ámbito público y en el privado, de acuerdo con el régimen de prohibiciones legales existentes. Por tanto, se debe conservar la independencia con respecto a las influencias políticas partidistas o electorales para desempeñar con imparcialidad las
+funciones asignadas.

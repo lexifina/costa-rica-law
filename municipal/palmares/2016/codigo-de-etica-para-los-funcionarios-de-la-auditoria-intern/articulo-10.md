@@ -1,0 +1,1 @@
+Artículo 10.—Todos los funcionarios de la auditoría interna deben evitar toda clase de relaciones y actos inconvenientes, con personas que puedan influir, comprometer o amenazar la capacidad real o potencial de la auditoría interna, para actuar, y por ende, proceder con la independencia requerida.

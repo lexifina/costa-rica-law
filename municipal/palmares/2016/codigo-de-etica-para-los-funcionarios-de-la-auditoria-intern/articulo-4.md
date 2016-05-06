@@ -1,0 +1,1 @@
+Artículo 4º—Todos los funcionarios de la auditoría interna deben actuar con independencia respecto de la entidad fiscalizada, de grupos de interés internos y externos, así mismo, deben ser objetivos al tomar decisiones.

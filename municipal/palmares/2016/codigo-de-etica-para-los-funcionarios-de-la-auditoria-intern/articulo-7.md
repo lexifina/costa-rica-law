@@ -1,0 +1,1 @@
+Artículo 7º—Los informes elaborados deberán ser exactos y objetivos y las conclusiones, por consiguiente, deben basarse exclusivamente en las pruebas y evidencia obtenida y unificadas de acuerdo con las normas de auditoría.

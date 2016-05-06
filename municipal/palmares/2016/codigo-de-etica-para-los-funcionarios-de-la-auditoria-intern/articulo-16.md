@@ -1,0 +1,1 @@
+Artículo 16.—Los funcionarios de la auditoría interna no deberán aceptar honorarios, regalías de cualquier tipo por discursos, conferencias o actividades similares, con excepción de lo que permita la ley.

@@ -1,0 +1,1 @@
+Artículo 17.—Los funcionarios de la auditoría interna no deberán usar las instalaciones físicas, el equipo de oficina, vehículos o demás bienes públicos a que tengan acceso, para propósitos ajenos al fin para el que están destinados.

@@ -1,0 +1,1 @@
+Artículo 14.—Los funcionarios de la auditoría interna no deberán llevar a cabo trabajos o actividades, remuneradas o no, que estén en conflicto con sus deberes y responsabilidades en la función pública, o cuyo ejercicio pueda dar motivo de duda razonable sobre la imparcialidad en la toma de decisiones.

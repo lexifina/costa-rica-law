@@ -1,0 +1,1 @@
+Artículo 23.—Los funcionarios de la auditoría interna deberán excusarse de participar en actos que ocasionen conflictos de intereses, por lo que deberán abstenerse razonablemente en participar en cualquier actividad pública o privada en general, donde pueda existir un conflicto de interés con respecto a su investidura de servidor público.
