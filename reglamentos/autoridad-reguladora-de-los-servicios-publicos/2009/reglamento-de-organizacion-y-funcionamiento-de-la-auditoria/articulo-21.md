@@ -1,4 +1,0 @@
-Artículo 21.—Elaboración y aprobación del presupuesto. Corresponde al (a la) Auditor(a) Interno(a) elaborar el presupuesto de la Auditoría Interna y someterlo, oportunamente, a la aprobación de la Junta Directiva.
-La Junta, al aprobar el presupuesto de la Auditoría Interna, deberá garantizar, a satisfacción del (de la) Auditor(a) Interno(a), que esa dependencia contará con los recursos necesarios para cumplir con los componentes que el (la) Auditor(a) Interno(a) considere esenciales.
-Cuando sea necesario asignarle a la Auditoría Interna, más recursos de los originalmente presupuestados; la Junta Directiva tramitará las modificaciones presupuestarias necesarias, con la celeridad que dicten las circunstancias.
-Al aprobar el presupuesto de la Auditoría Interna, la Junta Directiva asignará prudencialmente, los recursos necesarios para hacerle frente a las contrataciones a que se refiere el artículo 26 de este reglamento.

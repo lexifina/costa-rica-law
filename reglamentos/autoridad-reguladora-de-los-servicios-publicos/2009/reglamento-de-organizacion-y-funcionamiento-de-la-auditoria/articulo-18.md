@@ -1,1 +1,0 @@
-Artículo 18.—Capacitación del personal. La capacitación del personal será continua, a efecto de perfeccionar y mantener actualizados los conocimientos, aptitudes y otras competencias de los (las) funcionarios(as) de la Auditoría Interna. El (la) Auditor(a) Interno(a) será responsable de dar adecuado seguimiento a lo dispuesto en este artículo.

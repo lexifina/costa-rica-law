@@ -1,3 +1,0 @@
-Artículo 22.—Asignación de recursos. De acuerdo con lo que establece el artículo 27 de la Ley Nº 8292, la Junta Directiva asignará el recurso humano, material, tecnológico y de otra naturaleza que requiera la Auditoría Interna para el adecuado cumplimiento de sus funciones.
-Para efectos presupuestarios lo asignado a la Auditoría Interna deberá estar centralizado en una categoría programática especial.
-Es competencia de la Auditoría Interna elaborar su propio Proyecto de presupuesto anual, el cual se confeccionará de acuerdo con la normativa técnica y jurídica vigente y se incorporará debidamente identificado en el Proyecto de presupuesto que se presenta para aprobación de la Junta Directiva.

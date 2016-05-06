@@ -1,1 +1,0 @@
-Artículo 9º—Función asesora. La Auditoría Interna asesorará a la Junta Directiva y a la Administración activa, cuando le planteen consultas o se requiera su participación en sesiones o reuniones. Su actuación ha de ser conforme a su responsabilidad de asesor y se hará en apego a normativa y criterios establecidos por la Contraloría.

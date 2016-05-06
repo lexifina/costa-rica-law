@@ -1,4 +1,0 @@
-Artículo 31.—Solicitudes o contratación de estudios o labores de auditoría. La Junta Directiva podrá solicitarle a la Auditoría Interna, con el debido fundamento y de previo a la formulación de su Plan de trabajo anual; estudios o labores de auditoría, que la Junta considere necesarios.
-Recibida la solicitud de la Junta Directiva, el (la) Auditor(a) Interno(a) las analizará, y le comunicará a la Junta si hay inconvenientes u obstáculos que impiden realizar lo solicitado y propondrá la o las alternativas que considere permiten cumplir lo pedido por la Junta.
-Para la Auditoría Interna pueda realizar los estudios y las labores indicados en el párrafo anterior, La Junta Directiva podrá asignarle recursos adicionales a los originalmente asignados a la Auditoría Interna.
-La Junta Directiva podrá contratar los estudios y labores de auditoría que considere necesarios, con despachos o profesionales externos a la Autoridad Reguladora; previo criterio de la Auditoría Interna.

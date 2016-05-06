@@ -1,2 +1,0 @@
-Artículo 25.—Comunicación de resultados. La Auditoría Interna comunicará los resultados de sus auditorías o estudios especiales por escrito a la Junta Directiva, al Regulador General, al Gerente General o a los Directores de área, según proceda, a efecto de que tomen oportunamente, las decisiones del caso.
-Cuando de un estudio se deriven recomendaciones sobre asuntos de responsabilidad, la Auditoría Interna deberá comunicarlas en informes independientes.

@@ -1,1 +1,0 @@
-Artículo 15.—Requisitos del personal. El personal de la Auditoría Interna deberá poseer amplio conocimiento en auditoría, contabilidad, administración, tecnología de información, finanzas y riesgos, así como del marco legal que rige el accionar de la Administración pública y de la Autoridad Reguladora.

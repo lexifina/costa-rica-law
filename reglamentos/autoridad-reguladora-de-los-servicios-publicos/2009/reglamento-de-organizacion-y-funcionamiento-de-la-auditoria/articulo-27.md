@@ -1,3 +1,0 @@
-Artículo 27.—Atención de denuncias. Las denuncias que los ciudadanos presenten ante la Auditoría Interna deberán ser evaluadas de conformidad con lo que establece el capítulo III del Reglamento a la Ley Nº 8422.
-En apego a lo que establecen las Leyes Nos. 8292 y 8422, durante el proceso de investigación, concluida la misma y durante cualquier procedimiento administrativo que se originare, la identidad del denunciante deberá protegerse.
-La Auditoría Interna no dará trámite a denuncias presentadas en forma anónima, con excepción de aquellas en que se reciban elementos de prueba que den mérito para ello.

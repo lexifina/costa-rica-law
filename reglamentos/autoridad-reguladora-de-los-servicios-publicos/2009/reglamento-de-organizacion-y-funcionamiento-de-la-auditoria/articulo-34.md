@@ -1,4 +1,0 @@
-Artículo 34.—Informe anual de labores. En el mes de marzo de cada año, la Auditoría Interna debe presentar a la Junta Directiva, un Informe de labores del año anterior, en que se detallen, además de lo indicado en el artículo 22, inciso g), 22 de la Ley 8292 y en la norma 2.1.6 del Manual de normas para el ejercicio de la auditoría interna en el sector público; lo siguiente:
-a) Los resultados obtenidos en el período, a la luz del Plan estratégico y del Plan de trabajo anual de la Auditoría Interna.
-b) Una evaluación de la respuesta de la Administración activa a los informes de los diversos órganos internos y externos de control.
-De considerarlo necesario, el(la) Auditor(a) Interno(a) podrá solicitarle a la Junta Directiva que se le asignen recursos adicionales a los originalmente asignados a la Auditoría Interna, para que ésta pueda llevar a cabo las labores indicadas en los incisos a) y b) de este artículo.

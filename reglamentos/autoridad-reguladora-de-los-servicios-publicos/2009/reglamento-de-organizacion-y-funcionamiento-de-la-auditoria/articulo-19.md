@@ -1,1 +1,0 @@
-Artículo 19.—Protección al personal. Cuando el personal de la Auditoría Interna en el cumplimiento de sus funciones se involucre en un conflicto legal o una demanda, la Autoridad Reguladora deberá brindarle el respaldo jurídico y técnico y cubrir los costos para atender el proceso hasta su resolución final.

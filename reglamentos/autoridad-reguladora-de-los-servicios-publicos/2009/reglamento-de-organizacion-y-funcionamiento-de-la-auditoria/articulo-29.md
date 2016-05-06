@@ -1,1 +1,0 @@
-Artículo 29.—Recomendaciones. La Administración activa será la responsable de implementar las recomendaciones que haga la Auditoría Interna. Si al recibir el informe final correspondiente, la Administración encuentra motivos que imposibiliten ponerlas en práctica, deberá seguir el procedimiento establecido en los artículos 36, 37 y 38 de la Ley Nº 8292.

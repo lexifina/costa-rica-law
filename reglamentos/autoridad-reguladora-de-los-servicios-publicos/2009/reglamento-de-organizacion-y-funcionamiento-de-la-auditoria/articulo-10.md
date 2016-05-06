@@ -1,2 +1,0 @@
-Artículo 10.—Organización de la Auditoría Interna. La Auditoría Interna estará estructurada en una sola área organizacional. La designación de estudios la hará el(a) Auditor(a) Interno(a) basándose en lo que establece el Plan anual de trabajo o en otras fuentes de naturaleza especial.
-El (la) Auditor(a) Interno(a) velará porque el funcionamiento sea el apropiado para el óptimo desempeño de sus actividades.

@@ -1,1 +1,0 @@
-Artículo 2º—Actualización del presente reglamento, de manuales y guías. El (la) Auditor(a) Interno(a) observará, aplicará y mantendrá actualizado el presente reglamento, el Manual de procedimientos y la Guía procedimental del archivo permanente, con el fin de que esos instrumentos faciliten la ejecución de la labor de la Auditoría Interna.

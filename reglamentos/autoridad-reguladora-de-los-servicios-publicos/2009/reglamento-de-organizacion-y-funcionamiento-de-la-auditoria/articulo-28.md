@@ -1,3 +1,0 @@
-Artículo 28.—Discusión de resultados y acta de la discusión final. Con excepción de las relaciones de hechos, los hallazgos que se produzcan en el transcurso de una auditoría, deben ser comentados con los (las) funcionarios(as) responsables.
-Para ello se convocará formalmente, adjuntando un borrador del informe. El día de la discusión, los convocados podrán aportar por escrito cualquier observación que consideren pertinente hacer.
-El (la) auditor(a) responsable del informe, debe confeccionar un acta de la conferencia final, en la cual citará los asuntos más relevantes ocurridos y cualquier compromiso adquirido por los (las) funcionarios(as) responsables.

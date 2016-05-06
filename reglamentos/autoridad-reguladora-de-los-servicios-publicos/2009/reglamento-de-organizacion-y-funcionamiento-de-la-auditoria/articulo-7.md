@@ -1,1 +1,0 @@
-Artículo 7º—Independencia funcional y de criterio. Los (Las) funcionarios(as) de la Auditoría Interna ejercerán sus funciones con total independencia funcional y de criterio respecto del jerarca y de los demás órganos de la Administración activa. Tendrán los deberes, prohibiciones y potestades que establecen los artículos 32, 33 y 34 de la Ley Nº 8292.
