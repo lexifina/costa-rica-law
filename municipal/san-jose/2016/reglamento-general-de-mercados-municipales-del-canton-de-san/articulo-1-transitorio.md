@@ -1,0 +1,2 @@
+CAPÍTULO VIII: Disposiciones Transitorias
+TRANSITORIO I.- Los locales y los derechos de los inquilinos que actualmente funcionan en los mercados habilitados por la Municipalidad de San José, mantendrán las condiciones en que se realizó el contrato original. El administrador del Mercado, adecuarán el funcionamiento de cada mercado a lo dispuesto en este reglamento sin perjuicio de los derechos adquiridos.

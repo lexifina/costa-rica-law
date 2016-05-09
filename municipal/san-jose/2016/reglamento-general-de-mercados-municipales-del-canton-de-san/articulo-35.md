@@ -1,0 +1,2 @@
+ARTÍCULO 35.- Transformación y reparación. La construcción se llevará a cabo conforme a las normas y recomendaciones que dicte la oficina especializada de la Municipalidad en resguardo de las medidas de seguridad, la estética y el ornato del Mercado.
+No se permitirá la edificación de segundas plantas con fines de explotación comercial, sin embargo, el administrador del Mercado podrá autorizar la construcción de bodegas sobre los locales, previo visto bueno del Departamento de Desarrollo de Obra Pública.

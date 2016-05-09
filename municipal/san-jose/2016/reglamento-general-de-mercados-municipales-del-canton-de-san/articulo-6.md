@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Ubicación de puestos transitorios. Serán permitidos en los Mercados Central y Mayoreo. En los mercados nuevos no se permitirán salvo en los casos en que la Municipalidad por razones de conveniencia y de mejoramiento en el servicio acordare su funcionamiento.

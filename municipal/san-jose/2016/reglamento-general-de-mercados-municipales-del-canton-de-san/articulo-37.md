@@ -1,0 +1,1 @@
+ARTÍCULO 37.- Permanencia. Fuera de los casos expresamente señalados por este Reglamento ningún visitante o persona ajena a las funciones propias del Mercado podrá permanecer dentro del mercado después o antes del horario fijado.

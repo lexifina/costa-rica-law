@@ -1,0 +1,1 @@
+ARTÍCULO 27.- Limitaciones a la transferencia del puesto. No se podrá ceder, vender, canjear, arrendar, subarrendar, transferir, traspasar, ni enajenar en forma alguna, los derechos de arrendamiento sin el criterio previo del administrador del mercado y la autorización de la Jefatura de la Sección de Administración de Mercados y autorización del Alcalde o Alcaldesa.

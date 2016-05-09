@@ -1,0 +1,3 @@
+ARTÍCULO 21.- Subarriendo. En casos como enfermedad comprobada, fuerza mayor u otra causa calificada de grave, el administrador del Mercado en coordinación con la Jefatura de la Sección de Administración de Mercados y el Alcalde o Alcaldesa Municipal podrá autorizar subarriendos, en cuyo caso deberá el arrendatario:
+A) Firmar un contrato adicional y pagar los gastos de la administración.
+B) El arrendatario pagará a partir de la fecha de contrato de subarriendo por concepto de alquiler mensual futuro el valor de 3 (tres) mensualidades, tomando como base la suma inicial de alquiler mensual fijada por la Municipalidad para el local objeto de esta contratación especial.
