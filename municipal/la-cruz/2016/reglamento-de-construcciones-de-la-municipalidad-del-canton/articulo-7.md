@@ -1,0 +1,4 @@
+Artículo 7. Salidas
+a. El área de piso frente a una puerta de salida a un vestíbulo interior o pasillo, deberá ser suficiente para acomodar simultáneamente a todas las personas que ocupen esa sección del edificio, con base en un mínimo de treinta decímetros cuadrados (0,30 m2) por persona; la superficie mínima será de dos metros, cuarenta decímetros cuadrados (2,40 m2).
+b. Las puertas de salida a la vía pública deberán estar situadas de tal forma que la distancia desde cualquiera de ellas al punto más alejado de los espacios servidos por las mismas no sea mayor a 35 metros.
+c. Las entradas principales de edificios, que no se encuentren a nivel con la acera deberán contar con una rampa como mínimo, adicional a las escaleras usuales. Dicha rampa se construirá de la línea de propiedad y no en la acera.

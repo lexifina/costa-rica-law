@@ -1,0 +1,2 @@
+Artículo 3. Regulaciones
+A continuación se establecen las regulaciones generales para la construcción de edificaciones en el área del Plan Regulador. Estas regulaciones se basan en las normas establecidas en el Reglamento de Construcciones del INVU, específicamente las que se refieren a construcciones de tipo hotelero y comercial, que son los únicos tipos de edificaciones que se podrán desarrollar en el área de acuerdo a las disposiciones del Reglamento de Zonificación.
