@@ -1,0 +1,1 @@
+2. El mensaje completo con la modificación indicada con el nombre: “Formato de Mensaje de Dua, Declaración Única Aduanera Versión 3.9 estará disponible en la siguiente dirección electrónica: http://www.hacienda.go.cr/contenido/388-mensajes-codigos-y-manuales-tica
