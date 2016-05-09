@@ -1,0 +1,11 @@
+MUNICIPALIDAD DE LA CRUZ
+(Nota de Sinalevi: Sobre este tema la Municipalidad de La Cruz, había emitido anteriormente el Plan Regulador de Playa El Jobo y Plan Regulador Acantilados Sector Norte Playa El Jobo, y publicado en La Gaceta N° 153 del 10 de agosto de 2005)
+APROBACION DEFINITIVA DEL PLAN REGULADOR INTEGRAL ACANTILADOS AL NORTE
+DE PLAYA EL JOBO-PUNTA MANZANILLO
+Considerando que el Instituto Costarricense de Turismo (ICT) mediante la Sesión Ordinaria de Junta Directiva No. 5923, artículo 5, inciso III , celebrada el día 14 de marzo del 2016; el Instituto Nacional de Vivienda y Urbanismo (INVU), en su oficio C-UCT-00T-21-03-2016 del 01 de abril del 2016, aprobaron el Plan Regulador Integral Acantilados al Norte de Playa Jobo-Punta Manzanillo, dando por finalizado el proceso de aprobación institucional que establece la Ley No. 6043 sobre la Zona Marítimo Terrestre.
+Por lo anterior, el Concejo Municipal del cantón de La Cruz, en el artículo III.10 de la Sesión Ordinaria No. 12-2016 celebrada el 7 de abril del 2016, acordó adoptar el Plan Regulador Integral Acantilados al Norte de Playa Jobo-Punta Manzanillo, por lo que se procede a la presente publicación de los mapas y Reglamento de Zonificación para su oficialización y entrada en vigencia.
+REGLAMENTO DE MAPA OFICIAL
+Artículo 1. Establecimiento del Reglamento y Objetivos El Reglamento de Mapa Oficial se refiere, de acuerdo al artículo 42 de la Ley de Planificación Urbana (No. 4042), a las normas sobre reservas, adquisición, uso y conservación de las áreas necesarias para vías, parques, plazas, edificios y demás usos comunales.
+Para el caso del Plan Regulador Integral Acantilados al Norte de Playa El Jobo – Playa Manzanillo, debido a que no se relaciona a comunidades consolidadas, no existen dentro del área sujeta a planificación áreas de uso comunal como parques, plazas, etc. Por esto, las únicas áreas de uso común lo comprenden las vías públicas que dan acceso a las diferentes zonas de uso del suelo propuesto.
+Es importante considerar que estas vías comprenden la denominada Zona Vial Propuesta (ZVI), tal como está descrita en el Reglamento de Zonificación.
+Considerando lo anterior, en el presente reglamento únicamente se mencionan los aspectos relacionados con la infraestructura vial asociada al Plan.
