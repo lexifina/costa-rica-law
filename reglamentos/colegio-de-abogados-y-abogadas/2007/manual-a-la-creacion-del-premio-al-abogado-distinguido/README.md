@@ -14,3 +14,4 @@ Manual a la Creación del Premio al Abogado Distinguido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-02-08 | la propia norma |
+| 2 | 2016-05-09 | Reglamento 17 (2016-05-09) |

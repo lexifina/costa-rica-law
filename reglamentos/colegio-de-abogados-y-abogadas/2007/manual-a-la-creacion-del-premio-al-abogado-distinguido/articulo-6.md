@@ -1,1 +1,2 @@
-Artículo 6º—El Premio será entregado el día que fije la Junta Directiva, preferiblemente en las actividades de la celebración de la Semana del Abogado.
+Artículo 6°-Una vez que ha vencido el plazo para la postulación de candidatos, se llevará a cabo una publicación tanto en la base de datos del Colegio como en un medio de circulación nacional, con el nombre de los candidatos y se otorgará un plazo de 15 días naturales, para que las personas interesadas envíen a la presidencia del Colegio, las observaciones que consideren pertinentes sobre cada postulante.
+(Así adicionado en sesión N° 17 del 9 de mayo de 2016)
