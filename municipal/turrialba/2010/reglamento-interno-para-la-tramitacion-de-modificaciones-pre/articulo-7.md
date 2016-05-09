@@ -1,1 +1,0 @@
-Artículo 7º—Registro de modificaciones. La Administración deberá mantener actualizada en el Sistema Integrado de Presupuestos Públicos, la inclusión y validación de las modificaciones debidamente aprobadas que operen al presupuesto de la institución.

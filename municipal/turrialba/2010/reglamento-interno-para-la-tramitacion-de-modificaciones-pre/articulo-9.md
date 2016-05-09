@@ -1,1 +1,0 @@
-Artículo 9.—Incumplimiento. El incumplimiento de las disposiciones de este Reglamento de las normas legales y directrices aplicables en la materia, será considerada como falta grave y dará mérito a la aplicación de las sanciones previstas en el Código Municipal y en el Reglamento Autónomo se Servicios de la Municipalidad.

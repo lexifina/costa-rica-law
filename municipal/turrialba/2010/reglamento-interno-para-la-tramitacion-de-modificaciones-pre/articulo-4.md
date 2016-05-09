@@ -1,1 +1,0 @@
-Artículo 4º—Niveles de aprobación. La aprobación de las modificaciones al presupuesto de egresos de la Municipalidad clasificadas como de primer orden, las modificaciones se segundo orden y las de tercer orden serán aprobadas por el Concejo municipal, de acuerdo a lo indicado en el artículo 100 del Código Municipal.
