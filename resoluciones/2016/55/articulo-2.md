@@ -1,0 +1,1 @@
+II. Indicar que para aquellas compraventas de energía proveniente de plantas nuevas que produzcan con fuentes no convencionales para las cuales no exista aún una metodología tarifaria específica aprobada por la Autoridad Reguladora se les aplicará la estructura tarifaria propuesta en la recomendación anterior.
