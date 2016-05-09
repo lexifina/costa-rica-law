@@ -1,0 +1,18 @@
+Artículo 12. Cuadro de Distribución de Usos del Suelo
+Cuadro No. 1: Áreas, zonas y porcentaje que representa
+Plan Regulador Integral Acantilados al Norte de Playa El Jobo y Punta Manzanillo
+TABLA GENERAL DE ÁREAS | SUB USO TAN | SIGLA | HA % | %
+ZONA
+AREA NUCLEO PARA ATRACTIVOS TURISTICOS | SERVICIO BÁSICO | TAN 1 | 0 | 0.00%
+| ESPACIM. PÚBLICO | TAN 2 | 0 | 0.00%
+| COMERCIO | TAN 3 | 1.335 | 2.68%
+AREA PARA PROTECCIÓN | | PA | 3.607 | 7.24%
+AREA PLANIFICADA PARA DESARROLLO TURISTICO | | TAP-BD | 25.192 | 50.60%
+AREA COOPERATIVAS | | OAC | 0.531 | 1.07%
+AREA MIXTA PARA TURISMO Y COMUNIDAD | | MIX | 3.926 | 7.89%
+AREA PARA DESARROLLO FUTURO | | FAD | 3.086 | 6.20%
+ÁREA PROPIEDAD PRIVADA | | ZPP | 9.44 | 18.96%
+AREA PARA VIALIDADES | | OAV | 2.671 | 5.36%
+TOTAL | | | 49.788 | 100.00%
+PATRIMONIO NATURAL DEL ESTADO | | PNE | 124.52 |
+[imagen]
