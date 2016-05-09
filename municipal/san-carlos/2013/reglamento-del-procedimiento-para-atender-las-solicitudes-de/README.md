@@ -14,3 +14,4 @@ Reglamento del procedimiento para atender las solicitudes de aceptación y reape
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-22 | la propia norma |
+| 2 | 2016-05-09 | Reglamento municipal 0 (2016-05-09) |
