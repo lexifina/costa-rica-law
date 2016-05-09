@@ -1,0 +1,1 @@
+Artículo 7°.- En aras de cumplir con el principio de transparencia que impera en el comercio internacional, notifíquese, para los efectos que corresponda, a la Organización Mundial del Comercio (OMC) y a la Organización Mundial de Sanidad Animal (OIE).

@@ -1,0 +1,5 @@
+Artículo 6°- El ingreso de bovinos a la Región Brunca deberá ser controlado. Para dichos efectos, los oficiales de la Fuerza Pública del Ministerio de Seguridad Pública prestarán auxilio y colaboración a las autoridades del SENASA, realizando inspección física de los animales y verificando, en los puestos de control ubicados estratégicamente sobre las vías de acceso a la Región Brunca, los siguientes aspectos:
+a) Guía Oficial de Movilización de Ganado Bovino debidamente emitida conforme a las regulaciones establecidas en el Decreto Ejecutivo N° 37918, “Reglamento a la Ley de Control de Ganado Bovino, Prevención y Sanción de su robo, hurto y receptación”.
+b) Guía sanitaria de movilización de ganado emitida por la Oficina Cantonal del SENASA más cercana a la finca de origen.
+c) Que los bovinos porten los dispositivos de identificación individual asignados por el SENASA.
+d) Que los medios de transporte se encuentren debidamente marchamados cuando se trate de animales cuyo destino inmediato es matadero.
