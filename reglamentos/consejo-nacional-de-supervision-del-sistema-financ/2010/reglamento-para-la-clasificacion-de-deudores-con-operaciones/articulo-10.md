@@ -1,1 +1,0 @@
-Artículo 10.—Condiciones generales de las garantías. Las condiciones generales de las garantías y el porcentaje máximo de su valor que puede considerarse para el cálculo de las estimaciones se rigen por lo dispuesto en el Acuerdo SUGEF 1-05 y sus Lineamientos Generales.

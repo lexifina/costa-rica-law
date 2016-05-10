@@ -1,1 +1,0 @@
-Artículo 13.—Envío de Información. La información sobre la cartera de crédito del Sistema de Banca para el Desarrollo, Ley 8634, deberá incluirse en los XML de las diferentes clases de datos del SICVECA, y deberá ajustarse a los plazos y medios establecidos en el Acuerdo SUGEF 1-05.
