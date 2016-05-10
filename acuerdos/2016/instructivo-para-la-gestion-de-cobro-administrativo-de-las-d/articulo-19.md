@@ -1,0 +1,3 @@
+Artículo 19: Del Traslado de las certificaciones de cobro judicial
+Las certificaciones y documentos originales para cobro judicial, cualquiera que sea su tipo, serán trasladadas a las unidades de cobro judicial en caso de Oficinas Centrales y en el caso de las Sucursales al abogado externo, mediante oficio firmado por la jefatura correspondiente, el cual debe incluir un detalle de las certificaciones a tramitar.
+El Área Gestión de Cobro a Trabajadores Independientes, las Sucursales de la Direcciones Regionales y la Subárea Cobro Judicial a Patronos, del Área Gestión de Cobro a Patronos, deberán llevar un control y seguimiento sobre las gestiones de cobro realizadas a las certificaciones remitidas.

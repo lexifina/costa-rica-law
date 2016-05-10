@@ -1,0 +1,2 @@
+Transitorio Uno
+Una vez implementado la automatización de la gestión de cobro administrativo, quien notifica –Empresa notificadora y/o notificador-podrá recibir los avisos de cobro en forma digital, además las facturas y/o planillas, que cuenten con las condiciones requeridas, sea localización y plazo, se modificaran automáticamente en Sistema Centralizado de Recaudación SICERE a firmeza administrativa.

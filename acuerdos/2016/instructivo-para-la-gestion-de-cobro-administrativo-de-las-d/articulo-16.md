@@ -1,0 +1,2 @@
+Artículo 16: De la gestión de adeudos en cobro administrativo con convenio de pago formalizado
+En caso de que el adeudo esté en cobro administrativo y el patrono y/o trabajador independiente, formalice convenio de pago administrativo, se detendrán las acciones de cobro administrativo, de conformidad con lo establecido en el Instructivo para la aplicación del Reglamento que regula la formalización de arreglos y convenios de pago de las contribuciones a la seguridad social.

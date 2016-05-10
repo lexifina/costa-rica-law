@@ -1,0 +1,4 @@
+Artículo 11: De la gestión de cobro por responsabilidad solidaria
+Se realizará gestión de cobro administrativo a los patronos morosos, a los cuales mediante informe de inspección se les haya aplicado la responsabilidad solidaria, según alcances del Artículo 30 y 51 de la Ley Constitutiva de la Caja Costarricense de Seguro Social y según lo establecido en el “Manual de Procedimiento para la Aplicación y Gestión Cobratoria de Responsabilidad Solidaria/Fusión”.
+En el caso de la aplicación del artículo 30, la deuda la asume una empresa, por lo que la gestión de cobro se hace únicamente, al deudor que asumió la deuda del patrono moroso, y se notifica a ambos deudores.
+Si la aplicación de responsabilidad solidaria corresponde al artículo 51, el cobro se debe hacer al grupo de empresas que conforman el interés económico.

@@ -1,0 +1,8 @@
+Artículo 14: De la gestión de cobro a patronos/ TI, por deudas inactivas
+Se realizará gestión de cobro administrativo, a las deudas de patronos/TI cuya condición en el Sistema Centralizado de Recaudación SICERE es inactiva, de la siguiente manera:
+1. Se emite aviso de cobro.
+2. Se notifica a la dirección indica en el Sistema Centralizado de Recaudación SICERE.
+3. Se separan los casos, como localizados, no localizados, dicha situación se indica en la hoja de ruta en el SICERE.
+4. Los casos como no localizados, se iniciará los estudios correspondientes para iniciar un proceso de posible declaración de difícil recuperación, según lo indicado en el Instructivo para declarar la morosidad de patronos y trabajadores como de difícil recuperación.
+5. Calificarán para difícil recuperación, para el caso de cuotas obreras, patronales, aportes a la Ley de Protección al Trabajador (LPT), cuotas de trabajadores independientes, cheques debitados que cumplan con los lineamientos del artículo 803 del Código de Comercio, multas, recargos, intereses e infracciones a los artículos 36 y/o 44 de la Ley Constitutiva de la CCSS: 14. El patrono y/o trabajador independiente debe tener la condición de inactivo en el SICERE. El “Dictamen de Recuperabilidad” de la deuda del patrono y/o trabajador independiente resulte bajo, muy bajo o nulo, conforme lo establecido en el anexo 1. En el caso de los patronos físicos y/o trabajadores independientes, que éstos no aparezcan consignados como asalariados de algún patrono activo en el SICERE.
+Los casos localizados inactivos, se insistirá mediante la notificación del aviso de cobro hasta que la mora cese.

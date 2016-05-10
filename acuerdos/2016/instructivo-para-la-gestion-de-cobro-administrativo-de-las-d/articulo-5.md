@@ -1,0 +1,2 @@
+Artículo 5: Del trámite de los reportes-listados de morosidad
+El Área Gestión de Cobro a Trabajadores Independientes, la Subárea Cobro Administrativo a Patronos, adscrita al Área Gestión de Cobro a Patronos y las Sucursales de las Direcciones Regionales, ingresarán al link de la Dirección de Cobros y gestionarán el cobro (emitir el aviso de cobro, notificarlo para agotar la vía administrativa y certificar la deuda) en apego a las estrategias emitidas por la Dirección de Cobros, Direcciones Regionales y en cumplimiento a la estrategia institucional.
