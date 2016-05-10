@@ -16,3 +16,4 @@ Reglamento de Sesiones del Concejo Municipal de Santa Bárbara.
 | 1 | 2003-10-14 | la propia norma |
 | 2 | 2007-01-31 | Reglamento municipal 40 (2007-01-31) |
 | 3 | 2009-08-12 | Reglamento municipal 93 (2009-08-12) |
+| 4 | 2016-05-10 | Reglamento municipal 2 (2016-05-10) |
