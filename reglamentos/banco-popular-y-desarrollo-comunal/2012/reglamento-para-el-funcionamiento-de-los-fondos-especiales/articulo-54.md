@@ -1,5 +1,1 @@
-Artículo 54.—Cuando el Banco compruebe que un solicitante u obligado ha infringido cualquiera otra de las condiciones indicadas en los dos artículos anteriores convenidas en la contratación del préstamo o en este Reglamento, salvo atraso de la operación, y considerando el interés institucional, respetando el principio de igualdad y de acuerdo con la gravedad de la falta, podrá aplicar una de las siguientes opciones:
-a) Efectuar las correcciones del caso y mantener las condiciones del crédito,
-b) Variar la tasa de interés hasta la tasa activa más alta que en la respectiva moneda rija en ese momento en el Banco. Si la infracción se comete en un crédito que tiene la tasa activa más alta de todas, se podrá aumentar dicha tasa hasta en cinco puntos porcentuales o,
-c) Dar por vencida la obligación y exigir su cancelación inmediata.
-En caso de que el crédito haya sido otorgado por un órgano unipersonal, la decisión deberá trasladarse al órgano colegiado con atribuciones inmediatamente superiores.
+Artículo 54.— (Nota de Sinalevi: En la publicación de este reglamento, no aparece este artículo. No obstante el sistema exige una numeración consecutiva, por lo que se ha creado el mismo, pero sin texto.)

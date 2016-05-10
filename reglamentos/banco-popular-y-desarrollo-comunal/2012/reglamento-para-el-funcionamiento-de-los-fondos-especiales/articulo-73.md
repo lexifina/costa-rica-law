@@ -1,0 +1,2 @@
+DISPOSICIONES FINALES
+Artículo 73.— Toda modificación o aprobación de las directrices crediticias o para avales FAVI por parte de la Gerencia General Corporativa deberá ser comunicada dentro de los siguientes cinco días hábiles a la Junta Directiva Nacional.

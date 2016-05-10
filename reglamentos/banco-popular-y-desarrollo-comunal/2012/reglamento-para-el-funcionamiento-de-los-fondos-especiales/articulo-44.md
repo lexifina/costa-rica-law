@@ -1,1 +1,1 @@
-Artículo 44.—De los gastos de formalización: La Gerencia General Corporativa regulará, mediante directriz, las condiciones de pago de honorarios y avalúo, procurando favorecer a la población meta de este programa.
+Artículo 44.—De los gastos de formalización: La Gerencia General Corporativa regulará mediante directriz las condiciones de pago de honorarios y avalúo, procurando favorecer la población meta de este programa.

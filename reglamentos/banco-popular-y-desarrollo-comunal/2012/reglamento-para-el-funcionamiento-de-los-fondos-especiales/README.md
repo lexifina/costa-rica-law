@@ -18,3 +18,4 @@ Reglamento para el Funcionamiento de los Fondos Especiales
 | 3 | 2014-05-20 | Reglamento 5170 (2014-05-20) |
 | 4 | 2015-09-01 | Reglamento 5306 (2015-09-01) |
 | 5 | 2015-10-20 | Reglamento 5318 (2015-10-20) |
+| 6 | 2016-05-10 | Reglamento 5369 (2016-05-10) |
