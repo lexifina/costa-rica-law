@@ -1,0 +1,1 @@
+Artículo 6º—Firmeza de la liquidación. La liquidación quedará en firme, cuando habiendo vencido el plazo para recurrirla, ésta no fuera objetada; o bien, cuando habiendo sido objetada, se emita y notifique la resolución respectiva.

@@ -1,0 +1,1 @@
+Artículo 5º—Etapa recursiva de la liquidación. Se aplicarán por analogía las disposiciones del artículo 88 del Reglamento de Procedimiento Tributario respecto a la etapa recursiva, a las liquidaciones administrativas reguladas en esta resolución.
