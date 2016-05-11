@@ -1,0 +1,5 @@
+Artículo 61.—En lo no previsto en este reglamento se aplicarán las disposiciones de la Ley General de Salud, Ley de Regulación sobre Propiedad y Arrendamiento de Tumbas en Cementerio, la Ley General de la Administración Pública, el Código Municipal y el Reglamento General de Cementerios.
+Disposiciones transitorias:
+1. Se establece un período de tres meses a partir de la publicación del presente reglamento, para que los adquirientes de derechos en el Cementerio Central de Aserrí, se apersonen al Cementerio a actualizar los datos y revisar su situación como adquirientes. Transcurrido dicho plazo, los derechos que no se hayan actualizado, que se encuentren en mora con la cuota de mantenimiento y que tengan más de dos años de no utilizarse, podrán ser readjudicados por la administración del cementerio, previa autorización del Concejo Municipal.
+2. Este Reglamento deroga cualquier otro reglamento emitido con anterioridad sobre Cementerios Municipales de la Municipalidad de Aserrí.
+Rige a partir de su publicación

@@ -1,0 +1,1 @@
+Artículo 33.—La Administración inspeccionará la colocación de las lápidas, cruces, etc. así como los colores a usarse que serán blanco (95%) y gris. Se podrá aplicar el color negro para fines decorativos. La violación de este procedimiento autorizará a la Administración a retirar el enchape colocado contrario a esta disposición, sin responsabilidad de su parte.

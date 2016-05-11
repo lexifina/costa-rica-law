@@ -1,0 +1,1 @@
+Artículo 56.—La Municipalidad por medio de la Administración del Cementerio, tiene la autoridad para hacer respetar y acatar las disposiciones de este Reglamento. Los adquirientes de derechos se obligan a cumplirlo y así lo harán constar en el contrato respectivo.

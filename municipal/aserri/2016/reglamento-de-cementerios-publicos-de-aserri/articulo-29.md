@@ -1,0 +1,1 @@
+Artículo 29.—Los nichos municipales que se encuentran ocupados al momento de entrar en vigencia el presente reglamento, mantendrán los cuerpos inhumados hasta que completen los cinco años, contados desde el momento en que fueron enterrados.

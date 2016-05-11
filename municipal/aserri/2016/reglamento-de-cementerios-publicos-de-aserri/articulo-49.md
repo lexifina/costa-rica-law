@@ -1,0 +1,1 @@
+Artículo 49.—Las exhumaciones ordinarias se realizarán a solicitud de las personas que aparezcan como titulares de los derechos funerarios sobre el nicho. Dichas exhumaciones se realizarán bajo el horario de las ocho horas a las quince horas.

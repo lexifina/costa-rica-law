@@ -1,0 +1,1 @@
+Artículo 25.—Solo se podrá adquirir un derecho por familia. Quedan exentos de esta prohibición los adquirientes que a la entrada en vigencia del presente reglamento posean dos o más derechos en el cementerio.

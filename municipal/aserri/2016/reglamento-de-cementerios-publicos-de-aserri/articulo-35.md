@@ -1,0 +1,1 @@
+Artículo 35.—Queda prohibido el ingreso de animales domésticos o silvestres a las instalaciones del cementerio Municipal, excepto cuando se trate de lazarillos o animales de similares características, en cuyo caso los encargados deben hacerse responsables por los desechos de los mismos.

@@ -1,0 +1,1 @@
+Artículo 9°—La construcción de las bóvedas deben respetar las regulaciones de construcción dispuestas en el código sísmico, por lo que se exigirá que toda la construcción se realice con varilla numero 3 colocada cada 25cm, las paredes y losas deben ser chorreadas en concreto, no se permiten las paredes de mampostería.

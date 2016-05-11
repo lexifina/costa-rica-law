@@ -1,0 +1,1 @@
+Artículo 19.—El adquirente, obtendrá el derecho de uso por un período de 20 años, renovable por un plazo igual, siempre y cuando cumpla con las obligaciones establecidas en el presente Reglamento y en el contrato de adquisición respectivo.

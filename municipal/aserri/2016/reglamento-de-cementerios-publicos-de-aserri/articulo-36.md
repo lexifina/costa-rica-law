@@ -1,0 +1,1 @@
+Artículo 36.—Cuando los nichos, por la acción del tiempo, por movimientos telúricos o por cualquier otro motivo se deterioren, la administración del cementerio previa consulta con el Ministerio de Salud prohibirá su uso para nuevas inhumaciones y ordenará su demolición.

@@ -1,0 +1,1 @@
+Artículo 51.—En caso de los derechos adquirientes cuyos poseedores incumplan las obligaciones de este Reglamento o del Contrato, facultará a la Municipalidad para efectuar exhumaciones ordinarias de oficio y será causal para la rescisión y/o resolución contractual.

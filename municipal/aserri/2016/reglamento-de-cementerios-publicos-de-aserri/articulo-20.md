@@ -1,0 +1,1 @@
+Artículo 20.—Cuando el derecho pertenezca a dos o más personas, cada uno tendrá igual derecho respecto al uso del lote en el cementerio. Sin embargo para el ejercicio de los mismos, se requiere el consentimiento de todos los coadquirentes.
