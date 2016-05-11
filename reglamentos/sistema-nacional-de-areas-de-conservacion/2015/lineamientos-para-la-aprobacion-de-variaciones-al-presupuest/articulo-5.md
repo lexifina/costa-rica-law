@@ -1,0 +1,7 @@
+Artículo 5- Dependencias:
+CONAC: Consejo Nacional de Áreas de Conservación, es la máxima instancia del Sistema Nacional de Áreas de Conservación.
+Coordinación Administrativa: Instancia de la Secretaria Ejecutiva y las Áreas de Conservación, encargada de coordinar y armonizar la labor administrativa financiera de las unidades y departamentos de apoyo en este campo de acción y de coordinar la formulación, aprobación, ejecución , control y evaluación presupuestaria.
+Instancia Financiero Contable: Ente de la Coordinación Administrativa responsable del adecuado y oportuno cumplimiento en el seguimiento y control de la ejecución presupuestaria del Sistema, realizar el registro contable, el trámite de pagos y el registro de ingresos del Sistema.
+Secretaría Ejecutiva: Instancia que forma parte de la Organización administrativa del Sistema Nacional de Áreas de Conservación, según el artículo 23 de la Ley de Biodiversidad No. 7788.
+Instancia de Formulación Presupuestaria: Ente de la Coordinación Administrativa de la Secretaría Ejecutiva , responsable de coordinar, organizar , supervisar , facilitar , distribuir y formular el presupuesto Institucional (ordinario y extraordinarios) coordinando con las dependencias competentes en las Áreas de Conservación ; además le corresponde gestionar incrementos de límite de gasto presupuestario.
+Instancia de Planificación: Ente de la Secretaría Ejecutiva y las áreas de conservación, responsable de coordinar y facilitar el proceso de planificación institucional , en términos estratégicos y operativos.

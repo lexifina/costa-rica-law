@@ -1,0 +1,4 @@
+Del registro de la información y custodia de la documentación que respalda las Variaciones
+presupuestarias
+Artículo 20- Registro y validación de la información en los sistemas informáticos externos: Todas las variaciones presupuestarias realizadas deberán ser registradas en el Sistema Integrado de Información sobre Planes y Presupuestos (SIPP) de la Contraloría General de la República por los funcionarios designados para tal efecto según los lineamientos y procedimientos establecidos en la normativa que al efecto haya dictado o dicte el Órgano Contralor.
+Para tal efecto, se establece un plazo máximo de 5 días hábiles para el registro de los Presupuestos Extraordinarios y Modificaciones Presupuestarias, una vez recibido el documento formal de aprobación por parte de la Autoridad Presupuestaria o la Contraloría General de la República.

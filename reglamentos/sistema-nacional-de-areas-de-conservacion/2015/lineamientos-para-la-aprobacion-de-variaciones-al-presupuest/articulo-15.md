@@ -1,0 +1,4 @@
+Artículo N° 15- Cantidad de Presupuestos Extraordinarios Permitidos: El número máximo de Presupuestos Extraordinarios que se podrán presentar ante la Contraloría General de la República será de tres por año, en casos de excepción debidamente justificados se podrán tramitar Presupuestos Extraordinarios adicionales según lo establecido en la Norma 4. 3.1 1 de las Normas Técnicas sobre Presupuesto Público, por las siguientes razones:
+a) Cuando, una vez agotados los límites establecidos, se perciban ingresos que no fueron posibles de prever y por tanto no pudieron incluirse en los tres presupuestos extraordinarios permitidos.
+b) Para atender una obligación imprevista que deba cumplir la Administración en acatamiento de una orden judicial o de una disposición contenida en una ley.
+c) Por requerimiento expreso de la Contraloría General de la República como consecuencia del ejercicio de sus competencias de fiscalización superior de la Hacienda Pública.

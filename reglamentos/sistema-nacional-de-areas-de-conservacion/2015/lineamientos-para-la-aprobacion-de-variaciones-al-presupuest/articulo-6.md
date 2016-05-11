@@ -1,0 +1,2 @@
+De las Variaciones al Presupuesto
+Artículo 6- Uso de los clasificadores de ingresos y egresos: Las variaciones que se realicen al presupuesto ordinario (presupuesto extraordinario y modificaciones presupuestarias) deberán ser formuladas atendiendo el nivel de detalle establecido en los clasificadores de ingresos y por objeto de gasto del sector público vigentes y de conformidad con la normativa emitida por la Contraloría General de la República.
