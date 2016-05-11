@@ -1,4 +1,8 @@
-ARTÍCULO 5.- Finalidad del impuesto rojo
-La entidad acreedora del impuesto aquí creado es la Asociación Cruz Roja Costarricense.
-Para estos efectos, se establece como obligación que dicha Asociación presente un informe anual de rendición de cuentas a la Contraloría General de la República y a la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos de la Asamblea Legislativa, a más tardar el 31 de enero de cada año, que contemple los siguientes aspectos: la ejecución presupuestaria relativa al uso y destino de los recursos asignados en esta Ley; el cumplimiento de metas y evaluación de resultados; los costos unitarios de productos o actividades financiados con recursos generados en aplicación de esta Ley; los niveles de cobertura de los servicios que presta la Cruz Roja, la inversión en equipos y los resultados sobre el fortalecimiento institucional central y el de los comités auxiliares.
-En ningún caso, la Asociación Cruz Roja Costarricense podrá utilizar más de un cinco por ciento (5%) de estos recursos en gastos administrativos.
+Artículo 5.- Forma de la contribución parafiscal
+La contribución parafiscal creada en el artículo 1 de la presente ley se destinará a la Asociación Cruz Roja Costarricense y su distribución será la siguiente:
+a) Un diez por ciento (10%) al financiamiento de las operaciones de la sede central de la Cruz Roja Costarricense.
+b) El setenta y tres por ciento (73%) a los comités auxiliares de la Cruz Roja Costarricense.
+c) Un diecisiete por ciento (17%) al fortalecimiento administrativo de las juntas regionales y la respuesta regional de emergencias y desastres de la Cruz Roja Costarricense.
+Se autoriza a la Tesorería Nacional para que establezca, en los tres casos descritos en los incisos a), b) y c), una cuenta referenciada, a efectos de que los recursos generados por la contribución parafiscal sean aplicados directamente para atender las necesidades operativas de cada una de las actividades descritas en este numeral.
+El giro de los recursos de la Tesorería Nacional a la Asociación Cruz Roja Costarricense se hará conforme al avance y la programación financiera y presupuestaria que la Asociación Cruz Roja Costarricense le presente.
+La sede central de la Asociación Cruz Roja Costarricense deberá informar, dentro del plazo máximo de quince días, a los comités auxiliares y a las juntas regionales de la existencia de los recursos, para que sean girados conforme al avance y la programación financiera y presupuestaria.
