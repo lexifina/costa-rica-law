@@ -1,0 +1,1 @@
+Artículo 2º—Se insta a las entidades el sector privado y a la población en general, a colaborar en la implementación de las anteriores indicaciones en sus respectivas empresas, centros de trabajo y casas de habitación. Además, al sector hotelero se le insta para que las anteriores medidas sean ampliadas a las mujeres huéspedes en estado de embarazo.
