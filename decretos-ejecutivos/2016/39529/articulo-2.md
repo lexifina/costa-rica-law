@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Hacienda formalizará con los bancos recaudadores de impuestos un mecanismo electrónico que permita el cobro de dichos tributos de forma simple y unificada, que sea aceptable y comprensible para todas las instancias que están obligadas a exigir el pago de Timbres Fiscales en sus trámites.

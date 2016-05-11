@@ -1,0 +1,1 @@
+Transitorio II.—El tenedor de especies físicas podrá solicitar su reembolso conforme los procedimientos establecidos por la Dirección General de Tributación, en un plazo máximo de cuatro años contados a partir de la publicación del presente decreto.
