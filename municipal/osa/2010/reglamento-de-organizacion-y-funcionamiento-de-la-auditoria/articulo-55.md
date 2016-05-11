@@ -1,4 +1,0 @@
-Artículo 55.—Vigencia: El presente Reglamento rige a partir de su publicación en el Diario oficial La Gaceta.
-Que se dispense de trámite de comisión y se declare acuerdo definitivamente aprobado.
-Una vez conocido y analizado el Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Municipalidad de Osa. El Concejo Municipal, ACUERDA APROBARLO de manera definitiva. Por medio de los votos de los Regidores Propietarios Enoc Rugama Morales, Norma Collado Pérez, Sonia Segura Matamoros y Luis Ángel Achio Wong. Publíquese en el Diario Oficial La Gaceta para su vigencia. Por tanto comuníquese de este acuerdo a la Contraloría General de la República al fax: 2501-8100, a la Licda. Idriabel Madriz Mora Auditoría Interna y al señor Alberto Cole de León Alcalde Municipal.
-Ciudad Cortés, 17 de diciembre del 2010

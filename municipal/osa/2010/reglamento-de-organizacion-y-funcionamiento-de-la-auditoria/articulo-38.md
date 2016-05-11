@@ -1,1 +1,0 @@
-Artículo 38.—Modificaciones al presupuesto de la Auditoría Interna. En el caso de que se requiera hacer movimientos de recursos que afecten los asignados a la Auditoría Interna, como modificaciones o presupuestos, deberá contarse con autorización por escrito del Auditor Interno.
