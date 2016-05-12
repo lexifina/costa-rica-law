@@ -1,1 +1,2 @@
-Artículo 64.—El procedimiento deberá ser llevado a cabo resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa so pena de incurrir en falta grave.
+Artículo 64. El procedimiento deberá ser llevado a cabo resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa, con observancia de los principios establecidos en la Ley N°7476 de 3 de febrero de 1995 y sus reformas, en especial el principio pro víctima, el cual implica que, en caso de duda, se interpretará en favor de la víctima, so pena de incurrir en falta grave.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)

@@ -1,1 +1,5 @@
-Artículo 90.—Derogatorias. Se derogan los Decretos Ejecutivos No 21194-VAH de tres de abril de mil novecientos noventa y dos. No 24886-MP-MIVAH de once de diciembre de mil novecientos noventa y cinco y No 27290-MIVAH-MP.
+Artículo 90.—Con el propósito de promover una política y un ambiente de no discriminación en razón de la orientación sexual e identidad de género, la Oficina de Gestión Institucional de Recursos Humanos deberá:
+a) Colocar en lugares visibles de la institución, un ejemplar del Decreto Ejecutivo Número 38999 del 12 de mayo de 2015.
+b) Desarrollar actividades tales como charlas, talleres, seminarios, conferencias y otras actividades grupales tendientes a capacitar y sensibilizar al personal del Ministerio de Vivienda y Asentamientos Humanos con respecto al tema de la diversidad y orientación sexual que significa entender y aceptar que todo ser humano tiene el derecho y la libertad de realizarse íntegramente y que las instituciones públicas deben protegerles de conformidad con las normas de derechos humanos que los asisten.
+c) Cualquiera otra que se estime pertinente para el cumplimiento de los fines establecidos en el Decreto Ejecutivo Número 38999 del 12 de mayo de 2015.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)

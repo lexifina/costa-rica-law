@@ -1,0 +1,2 @@
+Artículo 92.—La discriminación en razón de la orientación sexual e identidad de género será considerada falta grave. A cualquier persona funcionaria que labore en el Ministerio de Vivienda y Asentamientos Humanos y se le compruebe haber incurrido en estas conductas, podrá ser despedida sin responsabilidad para el Estado, de conformidad con la normativa vigente para estos efectos.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)

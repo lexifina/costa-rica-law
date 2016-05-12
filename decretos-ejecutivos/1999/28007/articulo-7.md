@@ -18,6 +18,11 @@ n) Acatar y hacer cumplir en su caso las medidas que tiendan a evitar el acontec
 ñ) Rendir cuenta de las sumas de dinero adelantado por concepto de viáticos dentro de los cinco días hábiles posteriores a la terminación de la labor encomendada.
 o) Velar porque la buena imagen del Ministerio no se deteriore ni se comprometa con comportamientos inmorales o inadecuados, aún fuera de las horas de trabajo.
 p) Marcar para el control de asistencia a la hora de entrada y salida, o registrar su asistencia por cualquier medio idóneo que se establezca para tal fin.
-q) Las demás obligaciones que en forma expresa establezca el Ordenamiento Jurídico.
+q) Abstenerse de utilizar lenguaje o realizar conductas que sean discriminatorias o contrarias a la dignidad de personas por razones religiosas, de ideología política, discapacidad, etnia, nacionalidad, idioma, género, orientación sexual e identidad de género contra cualquier usuario, personal de la institución u otras instituciones. En caso de queja o denuncia, ya sea de manera personal o por interpósita persona, de que algún servidor (a) de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas pertinentes o lo comunique a la autoridad competente.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
+r) No discriminar a aquellas personas en razón de su orientación sexual e identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
+s) Las demás obligaciones que en forma expresa establezca el Ordenamiento Jurídico.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 39721 del 12 de mayo del 2016, que lo traspasó del antiguo inciso q) al s))
 El incumplimiento de estas obligaciones será sancionado de acuerdo con su gravedad.
 (Así reformado por el artículo 1° del decreto ejecutivo N° 35417 del 14 de julio de 2009)

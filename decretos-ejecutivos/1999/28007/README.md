@@ -15,3 +15,4 @@ Reglamento Autónomo Servicio Ministerio Vivienda Asentamientos Humanos
 | --- | --- | --- |
 | 1 | 1999-08-10 | la propia norma |
 | 2 | 2009-07-14 | Decreto Ejecutivo 35417 (2009-07-14) |
+| 3 | 2016-05-12 | Decreto Ejecutivo 39721 (2016-05-12) |

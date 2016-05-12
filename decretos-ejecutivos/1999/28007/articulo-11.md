@@ -10,3 +10,7 @@ f.) Gozar de las medidas de seguridad necesarias para prevenir accidentes durant
 g.) Tener una debida identificación del centro de trabajo.
 h.) Tener oportunidad de superarse y especializarse, haciendo uso de las facilidades que en determinados casos puedan ofrecer al Ministerio para participación en seminarios, becas o cursos especiales de capacitación.
 i.) Conocer la opinión de sus superiores en relación con su labor y actuación.
+j) La no discriminación en su trabajo por razones de etnia, nacionalidad, idioma, género, discapacidad, orientación sexual, identidad de género en todos los ámbitos de su labor, ni que se les cese en sus funciones por tales razones.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
+k) Gozar de licencia en caso de enfermedad grave o fallecimiento de su compañero o compañera, la cual estará sujeta a la constancia extendida por el Centro de Salud o médico respectivo.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)

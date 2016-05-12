@@ -1,2 +1,2 @@
-Artículo 91.—Rige a partir de su publicación.
-Dado en la Presidencia de la República.—San José a los veintiséis días del mes de abril de mil novecientos noventa y nueve.
+Artículo 91.—El Ministerio de Vivienda y Asentamientos Humanos creará una comisión con representación sexualmente diversa y representación del Despacho de la Jerarquía Institucional, representación del Área de Recursos Humanos, representación del Área de Planificación Institucional y representación del Área de Asesoría Jurídica. La comisión deberá velar por dar a conocer el tema de diversidad sexual, promover políticas de respeto e integración y procurar el debido cumplimiento del Decreto Ejecutivo número 38999.
+(Así adicionado por el artículo 3° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)

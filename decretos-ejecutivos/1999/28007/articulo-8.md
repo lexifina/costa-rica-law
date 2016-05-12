@@ -4,7 +4,8 @@ b) Informar a su superior inmediato periódicamente sobre la marcha de su depend
 c) Cuidar la disciplina y asistencia de los servidores bajo su responsabilidad e informar a su superior inmediato de las irregularidades que en uno u otro aspecto se presenta.
 d) Velar para que sus subalternos con esmero y cuidado cumplan con el correcto empleo y mantenimiento del equipo que está a su cargo, y reportar de inmediato al superior inmediato cualquier descuido o anormalidad que surja al respecto.
 e) Cuidar que los servidores lleven al día y en debida forma las labores que se les tienen asignadas dictando las instrucciones que juzguen convenientes para que el trabajo se realice eficientemente.
-f) Abstenerse de ejercer represalias contra sus subalternos por motivo de orden político electoral o que implica violación de cualquier otro derecho que concedan las leyes, reglamentos y circulares.
+f) No incurrir en prácticas discriminatorias hacia sus subalternos u otros servidores o usuarios de la Institución por razones de orden político electoral, discapacidad, religión, etnia, nacionalidad, idioma, género, orientación sexual o identidad de género.
+(Así reformado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
 g) Informar al Departamento de Recursos Humanos, oportunamente, las faltas en que incurran sus subordinados. La omisión de dicha información será considerada falta grave.
 h) Cumplir con los cometidos de las funciones que le hayan sido asignadas conforme a su cargo.
 i) Fomentar en la organización la formación de una cultura de control que contribuya al mejoramiento continuo en el cumplimiento de la misión institucional.
@@ -22,4 +23,12 @@ s) Velar por la correcta administración de los recursos humanos y materiales, d
 t) Velar porque los funcionarios bajo su cargo, observen orden y disciplina en el desempeño de sus funciones.
 u) Establecer, desarrollar e implementar en sus respectivas áreas de competencia, las metodologías de autoevaluación del Sistema de Control Interno y de la valoración del riesgo, para garantizar el cumplimiento de los objetivos de gestión.
 v) Atender aquellas otras que se deriven del ordenamiento jurídico de conformidad con su competencia.
+w) Tomar las medidas necesarias para prevenir, desalentar y evitar conductas de acoso u hostigamiento sexual y acoso laboral así como discriminación por la orientación sexual e identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
+x) Difundir, promover y alentar actividades conmemorativas el día 17 de Mayo de cada año como Día Nacional en Contra de la Homofobia, Lesboiobia y la Transfobia, así corno toda otra celebración de índole nacional.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
+y) Tomar las medidas necesarias frente a posibles acciones de discriminación que manifieste la población subalterna, evitando conductas de discriminación por razones de orientación sexual e identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
+z) Facilitar espacios de capacitación y toma de conciencia sobre temas relativos a la orientación sexual e identidad de género.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39721 del 12 de mayo del 2016)
 (Así reformado por el artículo 1° del decreto ejecutivo N° 35417 del 14 de julio de 2009)
