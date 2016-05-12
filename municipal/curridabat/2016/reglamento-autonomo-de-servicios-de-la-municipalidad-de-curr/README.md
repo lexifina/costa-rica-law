@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicios de la Municipalidad de Curridabat
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-27 | la propia norma |
+| 2 | 2016-05-12 | Reglamento municipal 2 (2016-05-12) |
