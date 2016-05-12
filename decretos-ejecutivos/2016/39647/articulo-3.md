@@ -1,0 +1,1 @@
+Artículo 3°- Que a efectos de cumplir y observar las medidas de compensación y mitigación, se plantarán veinte árboles por cada árbol cortado en la zona de protección con especies nativas de la zona. La cantidad de árboles a sembrar supera la expectativa que se persigue obtener con las medidas de compensación definidas por la autoridad competente.

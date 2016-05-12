@@ -1,0 +1,1 @@
+Artículo 4° -El desarrollador está en la obligación de proceder bajo los parámetros que establece el último párrafo del artículo 19. de la Ley Forestal Nº 7575, en el sentido que la corta de los árboles deberá realizarse de forma limitada, proporcional y razonable, conforme dictan las autorizaciones pertinentes.
