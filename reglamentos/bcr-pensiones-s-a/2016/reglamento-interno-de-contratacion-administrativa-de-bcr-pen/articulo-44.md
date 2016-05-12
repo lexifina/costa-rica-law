@@ -1,0 +1,2 @@
+Artículo 44. Suspensión del plazo del contrato
+El servidor que emitió el acto de adjudicación, o los rangos superiores de atribuciones, de oficio o a petición del contratista, podrán suspender mediante acto motivado el plazo del contrato por causa de fuerza mayor o caso fortuito debidamente comprobados en el expediente. En tal situación se establecerá a cargo de quién corre la obligación de mantenimiento de las obras hechas hasta ese momento.

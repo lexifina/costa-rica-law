@@ -1,0 +1,2 @@
+Artículo 35. Régimen jurídico aplicable
+El régimen jurídico aplicable a la función de refrendo de los contratos administrativos del BCR Pensiones es el establecido en la Ley Orgánica de la Contraloría General de la República, en la Ley de Contratación Administrativa y su Reglamento ejecutivo, así como en las disposiciones del Reglamento sobre el Refrendo de las contrataciones de la administración pública y de este Reglamento.

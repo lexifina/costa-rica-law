@@ -1,0 +1,2 @@
+Artículo 23. Garantías
+En los casos que así lo soliciten la oficina usuaria o la oficina usuaria técnica solicitante o así lo disponga la ley, BCR Pensiones incluye en los carteles la obligación de los participantes de rendir las garantías de participación, de cumplimiento y de funcionamiento u operación por los montos y plazos que se señalen, guardando una adecuada proporcionalidad con la magnitud y trascendencia de la contratación respectiva.

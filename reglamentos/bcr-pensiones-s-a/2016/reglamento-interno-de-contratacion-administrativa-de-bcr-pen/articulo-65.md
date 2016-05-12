@@ -1,0 +1,2 @@
+Artículo 65. Registro de sanciones a particulares
+BCR Pensiones suministra información a la Oficina de Contratación Administrativa del BCR quien elabora y mantiene actualizado un Registro de Sanciones a Particulares que permita a las diferentes oficinas del Banco acceder a la información correspondiente en las contrataciones que se promuevan. BCR Pensiones no puede efectuar contratación alguna con proveedores inhabilitados para contratar mientras se encuentre vigente dicha sanción.

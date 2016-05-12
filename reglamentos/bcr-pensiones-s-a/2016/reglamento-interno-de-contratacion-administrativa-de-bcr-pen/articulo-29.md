@@ -1,0 +1,8 @@
+Artículo 29. Requisitos de la solicitud de dictamen de legalidad de parte de la División Jurídica del BCR para efectos de refrendo interno
+Para emitir el refrendo interno por parte del gerente general de BCR Pensiones, a través de la Oficina de Contratación Administrativa del BCR, debe solicitar a la División Jurídica un estudio de legalidad que sirva de apoyo para el dictado del acto de aprobación interna correspondiente.
+En la solicitud se debe incorporar, al menos, la siguiente información:
+a. Solicitud expresa del criterio de legalidad del contrato.
+b. Acompañar el documento contractual original debidamente firmado por las partes. En caso que se trate de una modificación debe aportarse, además, el contrato original, en tanto este haya sido objeto de refrendo interno.
+c. Acompañar el expediente administrativo de la contratación respectiva, debidamente foliado y en orden cronológico, incluyendo si corresponde una copia de la garantía de cumplimiento. Se podrá excluir de la remisión del expediente las ofertas no adjudicadas en el concurso, en cuyo caso el servidor remitente deberá manifestar bajo su responsabilidad que dichos documentos excluidos de la remisión no afectan el análisis del refrendo.
+d. Acompañar certificación de contenido presupuestario sobre recursos económicos debidamente separados y disponibles para cubrir el gasto, o bien indicación del folio del expediente administrativo en que se localice dicho documento.
+e. Aportar las especies fiscales de ley o mención de la norma jurídica que exime su pago.

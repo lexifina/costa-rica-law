@@ -1,0 +1,2 @@
+Artículo 42. Contrato adicional
+El servidor competente conforme a la cuantía del contrato podrá disponer dentro del plazo de seis meses posteriores a la recepción provisional la adquisición de suministros o servicios adicionales de igual naturaleza, proporcionados por el mismo contratista, en tanto este convenga libremente en ello y se cumplan las condiciones, supuestos y requisitos establecidos en el artículo 201 del Reglamento a la Ley de contratación administrativa.

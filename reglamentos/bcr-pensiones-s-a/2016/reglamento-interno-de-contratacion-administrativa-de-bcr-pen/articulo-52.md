@@ -1,0 +1,2 @@
+Artículo 52. Procedimiento para la resolución del contrato
+La resolución del contrato procede por el incumplimiento grave del contratista de las obligaciones esenciales del contrato. Cuando en los informes elaborados por la oficina responsable de la ejecución del contrato se recomiende la resolución del contrato por incumplimiento grave imputable al contratista, esta oficina prepara la documentación que corresponda, a fin de que tramite el procedimiento ordinario regulado en el artículo 308 de la Ley General de la Administración Pública.

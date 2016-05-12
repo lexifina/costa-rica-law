@@ -1,0 +1,6 @@
+Artículo 2. Principios generales
+Todo procedimiento de contratación administrativa de BCR Pensiones debe respetar los principios constitucionales y legales dispuestos en la Ley de Contratación Administrativa y su Reglamento, así como los siguientes principios:
+a. Los requisitos formales de identificación de las personas físicas o jurídicas y en general sus atestados serán analizados e interpretados de manera que se permita la más amplia participación de potenciales oferentes.
+b. Todo proceso de contratación tiene una etapa de saneamiento de requisitos formales, cumplida la cual se procede al análisis de las ofertas en su contenido técnico y económico.
+c. Los requisitos técnicos y económicos que sean exigidos en los procesos de contratación de BCR Pensiones deben ser siempre lo más general y neutral posible, con el propósito de permitir la más amplia participación de potenciales oferentes. La decisión de seleccionar una determinada tecnología debe ser aprobada por el gerente general de BCR Pensiones.
+d. Los requisitos legales, técnicos y económicos deben ser analizados e interpretados de manera que permitan cumplir los fines públicos encomendados a BCR Pensiones; así como la selección del mejor bien o servicio al mejor precio y condiciones.

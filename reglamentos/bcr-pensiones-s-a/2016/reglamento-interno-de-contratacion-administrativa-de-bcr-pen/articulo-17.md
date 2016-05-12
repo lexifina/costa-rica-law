@@ -1,0 +1,4 @@
+Artículo 17. Decisión inicial de contratar
+La solicitud para dar inicio a un procedimiento de contratación administrativa, deberá ser remitida a la Gerencia Financiero Administrativa de BCR Pensiones S.A., por un servidor de los indicados en el artículo 11 de este Reglamento, cualquiera que sea el límite económico de sus atribuciones. Dicha solicitud debe cumplir los requisitos que contiene el artículo 8 del Reglamento a la Ley de Contratación Administrativa.
+En los procedimientos de contratación directa por escasa cuantía puede prescindirse del cronograma citado.
+El inicio de los procedimientos para la adquisición de bienes y servicios definidos como recursos informáticos y su respectiva recomendación, debe tomar en cuenta la opinión de la Gerencia de Tecnología de Información de BCR Pensiones.

@@ -1,0 +1,2 @@
+Artículo 45. Suspensión de la ejecución del contrato
+El órgano o servidores que emitieren el acto de adjudicación, o los rangos superiores de atribuciones una vez que el contrato adquiera eficacia y durante su ejecución podrán ordenar la suspensión, según lo establecido en el artículo 202 del Reglamento a la Ley de Contratación Administrativa y en coordinación con la Oficina de Contratación Administrativa del BCR.

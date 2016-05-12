@@ -1,0 +1,3 @@
+Artículo 32. Plazos, trámite y decisión sobre el refrendo interno
+Una vez suscrito el contrato administrativo por ambas partes BCR Pensiones a través de la Oficina de Contratación Administrativa del BCR dispondrá de un plazo de tres días hábiles para enviarlo a revisión a la División Jurídica del BCR, la que a su vez dispone de un plazo de diez días hábiles para pronunciarse sobre dicho refrendo o aprobación interna.
+La División Jurídica emitirá un criterio jurídico donde indica la legalidad del contrato y las recomendaciones que considere necesarias. Además, cuando considere necesario, señala que se debe subsanar, enmendar o corregir o bien indicar la nulidad absoluta o impedimento legal que haga imposible seguir adelante con el contrato.

@@ -1,0 +1,2 @@
+Artículo 58. Finiquito de contratos
+En los contratos de obra y aquellos otros que así lo considere necesario, la oficina encargada de la ejecución contractual elaborará el finiquito correspondiente a que se refiere el artículo 152 del Reglamento a la Ley de Contratación Administrativa, el cual debe suscribirlo a un servidor competente de BCR Pensiones con capacidad legal para ello he incorporarlo al expediente administrativo que esa misma oficina debe levantar durante la etapa de ejecución del contrato

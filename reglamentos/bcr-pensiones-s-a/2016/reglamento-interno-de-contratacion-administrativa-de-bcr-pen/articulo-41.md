@@ -1,0 +1,2 @@
+Artículo 41. Modificación unilateral del contrato
+El servidor que emitió el acto de adjudicación, o los rangos superiores de atribuciones podrán modificar unilateralmente el contrato a partir de su perfección, aún antes de iniciarse su ejecución o durante esta, a cuyo efecto deberán darse los supuestos y cumplirse las reglas establecidas en el artículo 200 del Reglamento a la Ley de contratación administrativa.

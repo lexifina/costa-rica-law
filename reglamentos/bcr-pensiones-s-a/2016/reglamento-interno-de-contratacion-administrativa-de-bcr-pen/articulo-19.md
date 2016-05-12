@@ -1,0 +1,5 @@
+Capítulo V
+Procedimientos de contratación
+Artículo 19. Contratación de bienes, obras y servicios
+Los bienes, obras y servicios que interese adquirir a BCR Pensiones son contratados mediante la promoción de los procedimientos de licitación pública, licitación abreviada y contratación directa, según corresponda de acuerdo con la legislación especial en la materia. Asimismo, para la realización de sus distintas contrataciones BCR Pensiones puede hacer uso de los demás procedimientos y modalidades de estos que contempla dicha legislación, como el remate, la subasta a la baja y la licitación con precalificación. En todos los casos los procedimientos que se tramiten deben ajustarse a dicha legislación y contar para su inicio con la autorización y justificación de alguno de los servidores facultados por el artículo 11 de este Reglamento.
+En los procedimientos de contratación directa y licitación abreviada las invitaciones a participar pueden ser formuladas por medio de carta directa, fax o correo electrónico, dejando la evidencia correspondiente tanto del envío como de su recepción.

@@ -1,0 +1,2 @@
+Artículo 16. Evaluación del Programa de Adquisiciones institucional
+Al finalizar cada período presupuestario la Gerencia Administrativa Financiera de BCR Pensiones S.A, realizará una evaluación de la ejecución presupuestaria del Programa de Adquisiciones Institucional y formula las recomendaciones que estime pertinentes. El informe de evaluación debe ser dirigido al gerente general e incorporado en el Informe de Evaluación Presupuestaria de BCR Pensiones al final del periodo presupuestario.
