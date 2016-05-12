@@ -1,0 +1,1 @@
+Artículo 79.—En el caso de prórrogas a la garantía de cumplimiento, una vez prevenido el contratista, y si éste no atendiere oportunamente la prevención, la Proveeduría procederá a la ejecución de la caución a más tardar el último día de su vencimiento, a efectos de tenerla en custodia mientras se repone. Es responsabilidad del AC y CCA gestionar la ejecución cuando proceda.

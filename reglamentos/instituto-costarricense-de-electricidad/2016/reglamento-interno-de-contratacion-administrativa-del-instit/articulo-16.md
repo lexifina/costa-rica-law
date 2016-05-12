@@ -1,0 +1,2 @@
+Artículo 16.—Cuando surja una necesidad no prevista, o bien, ya no se requiera el suministro o servicio, deberá modificarse el Programa de Adquisiciones, para lo cual deberán adjuntarse las justificaciones pertinentes. La inclusión o exclusión de contrataciones en el Programa de Adquisiciones será aprobada por la Gerencia respectiva, según corresponda.
+Las contrataciones que no estén amparadas al Programa de Adquisiciones original o modificado, no serán tramitadas por la Proveeduría.

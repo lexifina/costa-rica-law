@@ -1,0 +1,6 @@
+SECCIÓN II
+Suspensión
+Artículo 57.—En el caso de la suspensión del contrato, dependiendo de la cuantía a la que han sido autorizados para adjudicar las distintas instancias, estarán facultados para suspender el contrato. En el caso de las contrataciones que hayan sido adjudicadas por la Junta de Adquisiciones ICE/Corporativa estarán facultadas para suspender el contrato la Gerencia respectiva y la Gerencia Corporativa de Administración y Finanzas cuando se trate de las dependencias adscritas a la Presidencia Ejecutiva. La suspensión será procedente por razones de interés público, institucional o bien por causas que imposibilitan la ejecución del contrato. Lo anterior de conformidad con lo previsto en el artículo 180 del Reglamento a la Ley 8660.
+El AC en coordinación con el CCA deberá presentar su recomendación al órgano que adjudicó. Una vez autorizada la suspensión respectiva, la documentación deberá ser remitida a la Proveeduría para su incorporación al expediente administrativo correspondiente.
+La suspensión deberá contar con el dictamen legal favorable.
+De previo al reinicio del contrato, el AC deberá aportar una certificación de contenido presupuestario actualizada que confirme la existencia de los recursos económicos suficientes que permitan cubrir las erogaciones establecidas.

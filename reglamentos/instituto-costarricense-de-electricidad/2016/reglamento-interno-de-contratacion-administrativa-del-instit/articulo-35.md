@@ -1,0 +1,1 @@
+Artículo 35.—En las licitaciones públicas y las abreviadas, la publicidad del concurso se hará por medio de la página web que utilice la Proveeduría o por el medio informático que esta disponga.
