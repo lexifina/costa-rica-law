@@ -1,0 +1,1 @@
+Artículo 3°:Derogatoria. Deróguese los artículos 33 y 34 y el título: "Rondalla de la Fuerza Pública", de la Sección II, del Capítulo V, del Título I, del Reglamento de Organización del Ministerio de Seguridad Pública, Decreto Ejecutivo Nº 36366-SP.
