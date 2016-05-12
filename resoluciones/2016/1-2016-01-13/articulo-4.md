@@ -1,0 +1,1 @@
+Artículo 4º—A partir de la publicación oficial de la presente resolución, los contribuyentes o responsables, que realicen gestiones ante el Tribunal Fiscal Administrativo deben señalar, en ausencia de indicación de medio electrónico o fax para recibir notificaciones, un lugar para tal efecto, dentro del perímetro que establece esta resolución.

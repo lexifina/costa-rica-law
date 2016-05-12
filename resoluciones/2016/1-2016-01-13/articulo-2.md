@@ -1,0 +1,1 @@
+Artículo 2º—El citado Perímetro, abarca el área céntrica de la ciudad de San José y estará delimitado por las vías conformadas por el Bulevar de Circunvalación (Ruta Nacional 39); la Radial de La Uruca (Ruta Nacional Nº 108) y la Carretera La Uruca-Calle Blancos (Ruta Nacional Nº 100)

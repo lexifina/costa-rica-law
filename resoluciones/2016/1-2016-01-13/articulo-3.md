@@ -1,0 +1,1 @@
+Artículo 3º—El Tribunal Fiscal Administrativo, efectuará las notificaciones de sus actos, dentro del citado perímetro, incluyendo los domicilios que se encuentren en el lindero interno de las rutas indicadas, que se oriente al centro de la ciudad de San José.
