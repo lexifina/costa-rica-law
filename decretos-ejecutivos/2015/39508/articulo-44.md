@@ -1,0 +1,1 @@
+Artículo 44º-Deber de excusa de evaluadores y expertos técnicos. Los evaluadores y expertos técnicos deben excusarse de participar en procedimientos de acreditación, en los cuales tengan conflicto de interés.

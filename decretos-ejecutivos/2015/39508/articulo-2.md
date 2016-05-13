@@ -1,0 +1,1 @@
+Artículo 2º-Ámbito de aplicación. El presente reglamento, establece el procedimiento para la aplicación de las funciones que le otorga la ley 8279 al ECA. De la misma forma, se regulan los deberes y facultades de los órganos colegiados y de los funcionarios del ECA.

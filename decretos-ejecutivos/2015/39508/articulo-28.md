@@ -1,0 +1,4 @@
+Artículo 28º-De los Comités Asesores. Para el adecuado funcionamiento del ECA y de conformidad con las necesidades del caso particular, se podrán conformar Comités Asesores para cada una de las Secretarías de Acreditación o para el cumplimiento de las funciones que la Comisión de Acreditación requiera. Cada Comité Asesor de las Secretarías de Acreditación será coordinado por el Secretario de Acreditación correspondiente. Cuando se conformen otros comités
+asesores adicionales a los indicados en este artículo, el coordinador será elegido entre los miembros que lo conforman.
+Cada uno de sus miembros debe contar con experiencia mínima de tres años en el área de calidad y conocimientos en materia de evaluación de la conformidad o en el área específica de las funciones del Comité.
+Los integrantes de los Comités Asesores deben conocer los procedimientos internos del ECA y suscribir el compromiso de confidencialidad.

@@ -1,0 +1,1 @@
+Artículo 11º-Del procedimiento de acreditación. La actividad de acreditación se llevará a cabo de acuerdo con los procedimientos de acreditación diseñados de conformidad con los requisitos establecidos por las normas nacionales e internacionales aplicables y vigentes.

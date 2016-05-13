@@ -1,0 +1,1 @@
+Artículo 16º-De las obligaciones de los organismos de evaluación de la conformidad acreditados. Son obligaciones de los organismos de evaluación de la conformidad acreditados las establecidas en la Ley del Sistema Nacional para la Calidad Nº 8279; en el Compromiso de Acreditación y procedimientos internos del ECA que corresponda.

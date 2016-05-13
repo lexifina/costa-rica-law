@@ -1,0 +1,2 @@
+Artículo 43º-Casos de inopia. Cuando el ECA no cuente, dentro de sus registros con evaluadores y/o expertos técnicos que puedan realizar una evaluación solicitada, podrá gestionar la contratación de profesionales externos recurriendo a los organismos de acreditación homólogos o directamente con el evaluador o experto técnico.
+Cada vez que se considere necesario, el ECA realizará un estudio de los Evaluadores y Expertos Técnicos que requiera y procurará su incorporación para dar respuesta a la demanda.

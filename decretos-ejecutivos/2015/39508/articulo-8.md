@@ -1,0 +1,2 @@
+Artículo 8º-De las funciones. Para el desarrollo de su misión, el ECA cumplirá con las funciones que la Ley Nº 8279 le asigna, realizará la promoción de organismos acreditados que brindan servicios de evaluación de la conformidad y brindará capacitación en materia de acreditación y evaluación de la conformidad.
+También será función del ECA, con base en el Decreto Ejecutivo Nº 37662 MEIC-H-MICIT del año 2012, colaborar con la Administración Pública en la definición y evaluación de procedimientos de evaluación de conformidad para dar cumplimiento a los reglamentos técnicos.
