@@ -1,0 +1,1 @@
+Artículo 2.- Córrase la numeración de los capítulos y artículos siguientes del ''Reglamento Autónomo de Servido del Ministerio de Comercio Exterior", Decreto Ejecutivo Nº 24924-COMEX del 22 de diciembre de 1995, a partir del Capítulo XIV reformado mediante el presente Decreto Ejecutivo.
