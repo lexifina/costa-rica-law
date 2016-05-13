@@ -1,0 +1,1 @@
+Artículo 30.—Debe asumir tareas y actividades propias del acto médico especializado. Debe aplicar las técnicas preventivas en salud ocupacional (seguridad, higiene, ergonomía y psicosociología) así como la toxicología industrial y la seguridad humana relacionada a situaciones de emergencias que pudieran presentarse en la empresa.

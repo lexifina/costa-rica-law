@@ -1,0 +1,1 @@
+Artículo 33.—Cuando el médico Especialista en Medicina del Trabajo brinde sus servicios en instituciones públicas o privadas tendrá todos los derechos laborales, reconocidos en el Código de Trabajo o en las leyes especiales que rige a los profesionales en las ciencias médicas”
