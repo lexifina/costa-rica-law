@@ -11,3 +11,5 @@ h. Velar por el cumplimiento de lo dispuesto en los artículos 9,10 y 11 de este
 i. Evaluar en forma objetiva a sus subalternos, enviando oportunamente la fórmula de Evaluación de Desempeño.
 j. Supervisar estrictamente el uso del uniforme reglamentario de la Policía Penitenciaria, observando lo dispuesto en los artículos 9 punto 4 y en el 11 inciso ñ; y,
 k. Cumplir con todas las demás obligaciones propias de su cargo.
+l. Velar porque sus subalternos no incurran en prácticas discriminatorias hacia ningún servidor o usuario de la Institución por razones de edad, identidad de género, etnia, religión o por tener cualquier tipo de discapacidad.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39864 del 13 de mayo del 2016)

@@ -27,3 +27,5 @@ Los miembros de la Policía Penitenciaria observarán los siguientes deberes: -
 23. Asistir a reuniones o cursos de capacitación, cuando sea formalmente convocado por el Superior Jerárquico, aún fuera de los horarios de trabajo;
 24. Impedir por los medios a su alcance, la fuga. invasión, evasión, y/o cualquier atentado contra la vida o contra la seguridad institucional, tomando en cuenta la proporcionalidad de los medios a utilizar; y,
 25. Hacer el saludo respectivo a sus Superiores Jerárquicos o de rango, como una señal de disciplina y cortesía.
+26. Utilizar en sus labores un lenguaje no discriminatorio por razones de edad, etnia, identidad de género, orientación sexual o religión, en contra de los visitantes de los centros penitenciarios.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39864 del 13 de mayo del 2016)

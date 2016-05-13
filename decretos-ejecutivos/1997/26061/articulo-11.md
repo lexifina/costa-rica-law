@@ -29,3 +29,5 @@ Queda absolutamente prohibido a los miembros de la Policía Penitenciaria, adem�
 27. Rendir los informes y las declaraciones que se les soliciten cuando fueren requeridos y citados por los órganos competentes del Ministerio;
 28. Realizar actos indecorosos en lugares públicos; y,
 29. Utilizar insignias o emblemas de cualquier especie en el uniforme reglamentario, que no sean las oficiales y autorizadas para el rango que le corresponde.
+30. Se prohíbe incurrir en prácticas discriminatorias hacia la población privada de libertad por razones de género u orientación sexual. En caso de tener noticia de manera personal o por interpósita persona de que otro servidor incurrió en estas prácticas, deberá informar a su superior inmediato.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39864 del 13 de mayo del 2016)

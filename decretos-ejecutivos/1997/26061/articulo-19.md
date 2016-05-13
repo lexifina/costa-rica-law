@@ -7,3 +7,5 @@ d. Comunicar por escrito al Departamento de Información Penitenciaria, los movi
 e. Mantener estrecha comunicación y coordinación con el Director del Centro Penitenciario respectivo, para asegurar la correcta ejecución de los programas de trabajo y de las políticas definidas en materia de orden y disciplina de la población penitenciaria;
 f. En conjunto con el Departamento de Supervisión, velar por el mantenimiento de la capacidad táctico-operativa de la Policía Penitenciaria, por medio de la realización de ejercicios, simulacros y cualquier otro tipo de práctica que favorezca la preparación física y mental de los miembros de la Policía Penitenciaria; Y,
 g. Todas aquéllas que le encomiende la Dirección de la Policía Penitenciaria.
+h. Vigilar que el personal a su cargo no incurra en prácticas discriminatorias hacia los servidores, visitantes, población privada de libertad y usuarios en general de la Institución por razones de edad, etnia, identidad de género, religión o por tener algún tipo de discapacidad.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39864 del 13 de mayo del 2016)
