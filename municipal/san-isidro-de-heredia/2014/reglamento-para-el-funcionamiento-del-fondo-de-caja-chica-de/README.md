@@ -14,3 +14,4 @@ Reglamento para el funcionamiento del fondo de Caja Chica de la Municipalidad de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-10 | la propia norma |
+| 2 | 2016-05-16 | Reglamento municipal 32 (2016-05-16) |
