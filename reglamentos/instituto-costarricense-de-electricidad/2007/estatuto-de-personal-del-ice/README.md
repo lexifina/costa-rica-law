@@ -15,3 +15,4 @@ Estatuto de Personal del ICE
 | --- | --- | --- |
 | 1 | 2008-03-03 | la propia norma |
 | 2 | 2010-06-30 | Reglamento 5915 (2010-06-30) |
+| 3 | 2016-05-16 | Reglamento 6177 (2016-05-16) |
