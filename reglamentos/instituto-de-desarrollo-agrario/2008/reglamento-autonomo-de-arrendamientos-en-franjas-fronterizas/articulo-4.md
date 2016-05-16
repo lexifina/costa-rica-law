@@ -1,1 +1,0 @@
-Artículo 4º—El INSTITUTO no otorgará arrendamientos, ni autorizará cesiones o subarriendos a aquellas personas a las que previamente se les haya rescindido un contrato de arriendo por incumplimiento de las obligaciones con el INSTITUTO.

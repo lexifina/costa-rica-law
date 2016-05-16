@@ -1,1 +1,0 @@
-Artículo 19.—Realizada la inspección de campo, y cumplido lo dispuesto en el artículo anterior, el técnico encargado, verificado que se cumplieron los requisitos de forma y fondo, elaborará un informe detallado de su resultado en un plazo de quince días, en el que deberá indicar si recomienda aprobar o improbar la solicitud de arrendamiento.

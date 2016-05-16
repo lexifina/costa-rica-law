@@ -1,1 +1,0 @@
-Artículo 49.—La Junta Directiva podrá revocar los contratos de arrendamientos por el incumplimiento de cualquiera de las cláusulas incorporadas a los mismos, las disposiciones de este Reglamento, de lo contemplado en las Ley Nº 2825 de Tierras y Colonización y sus reformas y la Ley Nº 6735 de Creación del Instituto de Desarrollo Agrario, en lo que sean aplicables.

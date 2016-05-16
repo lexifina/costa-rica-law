@@ -1,1 +1,0 @@
-Artículo 20: Con base en dicho informe la OFICINA SUBREGIONAL remitirá al Director Regional y a la Asesoría Legal Regional un informe del resultado en un plazo de quince días, en el que deberá indicar si recomienda aprobar o improbar la solicitud de arrendamiento.

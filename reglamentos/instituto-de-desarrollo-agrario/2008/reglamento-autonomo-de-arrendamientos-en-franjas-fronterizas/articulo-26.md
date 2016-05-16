@@ -1,1 +1,0 @@
-Artículo 26.—En las resoluciones que notifiquen la no aprobación, luego del debido proceso, la Dirección Regional gestionará el desalojo del ocupante u ocupantes del terreno, sin perjuicio de las acciones judiciales que el INSTITUTO pueda ejercer.

@@ -1,1 +1,0 @@
-Artículo 40.—Las cesiones de contratos de arrendamiento (total o parcial) que se autoricen de acuerdo con el artículo anterior, lo serán por el término que falta para el vencimiento del respectivo contrato.

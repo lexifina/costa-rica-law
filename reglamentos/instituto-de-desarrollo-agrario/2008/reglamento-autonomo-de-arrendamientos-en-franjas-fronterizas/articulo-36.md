@@ -1,1 +1,0 @@
-Artículo 36.—Los CÁNONES establecidos para todo contrato de arrendamiento podrán ser modificados cuando se autoricen prórrogas, renovaciones, cesiones, modificaciones en el área o en el uso, y subarriendos, de conformidad con el mecanismo establecido en los artículos 17 y 31 de este reglamento.

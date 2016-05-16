@@ -1,1 +1,0 @@
-Artículo 22.—Listos los expedientes (solicitudes y/o oposiciones) la DIRECCIÓN REGIONAL procederá a recomendar lo que en derecho corresponda y remitirá el asunto al DEPARTAMENTO, quien una vez verificado que se cumplieron los requisitos del presente reglamento elevará el asunto a la Junta Directiva del INSTITUTO para que se tome el acuerdo respectivo.

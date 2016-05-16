@@ -1,1 +1,0 @@
-Artículo 24.—Después de cumplidos los trámites indicados en los artículos anteriores y aprobada o improbada la solicitud de arrendamiento por la Junta Directiva, se confeccionará por parte de la DIRECCIÓN REGIONAL una resolución firmada por el Director que notifique al petente lo acordado en relación con su solicitud de arrendamiento.
