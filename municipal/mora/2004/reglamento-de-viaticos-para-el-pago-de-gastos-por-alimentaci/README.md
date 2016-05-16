@@ -18,3 +18,4 @@ Reglamento de Viáticos para el Pago de Gastos por Alimentación y Transporte a 
 | 3 | 2005-04-25 | Reglamento municipal 218 (2005-04-25) |
 | 4 | 2005-11-28 | Reglamento municipal 259 (2005-11-28) |
 | 5 | 2006-04-24 | Reglamento municipal 287 (2006-04-24) |
+| 6 | 2016-05-16 | Reglamento municipal 3 (2016-05-16) |
