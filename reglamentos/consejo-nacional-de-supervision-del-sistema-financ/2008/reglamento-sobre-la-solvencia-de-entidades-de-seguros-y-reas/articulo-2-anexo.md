@@ -109,15 +109,8 @@ Capital en riesgo retenido = monto del capital en riesgo deducido la participaci
 FR= factor de capital regulatorio para cada una de las provisiones técnicas de acuerdo con la tabla contenida en este anexo
 PT = monto bruto de la correspondiente provisión técnica.
 Provisión técnica retenida= monto de la provisión técnica que corresponda deducido la participación del reasegurador en dicha provisión.
-Provisión Técnica | Factor de Capital Regulatorio
-Provisión matemática | 5%
-Provisión para prima no devengada de seguros de vida y rentas | 7%
-Provisión para prima no devengada de seguros de riesgos del trabajo, accidentes y salud | 18%
-Provisión para siniestros de seguros de vida y rentas | 2%
-Provisión para siniestros por indemnizaciones en forma de renta de seguros de riesgos del trabajo, accidentes y salud | 5%
-Provisión para siniestros de seguros de riesgos del trabajo, accidentes y salud | 12%
-Provisión de participación en beneficios y extornos | 7%
-Provisión de seguros en los que el riesgo de inversión lo asume el tomador. | 2%
+[imagen]
+(Así reformada la tabla anterior en sesión N° 1253 del 17 de mayo de 2016)
 ANEXO RCS-4
 CALCULO DE REQUERIMIENTO DE CAPITAL DE SOLVENCIA
 RIESGO DE SEGUROS GENERALES
