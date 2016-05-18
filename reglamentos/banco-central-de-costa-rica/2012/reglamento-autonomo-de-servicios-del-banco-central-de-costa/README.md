@@ -17,3 +17,4 @@ Reglamento Autónomo de Servicios del Banco Central de Costa Rica y sus Órganos
 | 2 | 2013-09-11 | Reglamento 5613 (2013-09-11) |
 | 3 | 2015-11-04 | Reglamento 5706 (2015-11-04) |
 | 4 | 2016-05-18 | Reglamento 5722 (2016-05-18) |
+| 5 | 2016-05-18 | Reglamento 5722 (2016-05-18) |
