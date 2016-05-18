@@ -1,1 +1,1 @@
-Artículo 116.—Durante el trámite de denuncias de acuerdo a lo indicado en el artículo anterior, el Jerarca Superior Administrativo correspondiente, podrá ordenar de oficio o a solicitud de los afectados directos, su reubicación temporal, o cualquier otra medida cautelar que estime conveniente.
+Artículo 116. (Derogado por el artículo 29 del Reglamento contra el hostigamiento o Acoso Sexual en el Banco Central de Costa Rica, aprobado mediante sesión N° 5722-2016 del 18 de mayo del 2016)

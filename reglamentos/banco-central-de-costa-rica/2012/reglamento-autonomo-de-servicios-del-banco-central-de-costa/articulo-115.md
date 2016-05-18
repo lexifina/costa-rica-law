@@ -1,3 +1,4 @@
 CAPÍTULO XIII
 Del Hostigamiento Sexual
-Artículo 115.—Cuando un servidor o colaborador se considere afectado por acoso u hostigamiento sexual, podrá denunciar formalmente los hechos, de conformidad con la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia Nº 7476 del 3 de febrero de 1995, siguiendo para ello los procedimientos vigentes para la presentación de denuncias en la Institución.
+(Derogado este capítulo por el artículo 29 del Reglamento contra el hostigamiento o Acoso Sexual en el Banco Central de Costa Rica, aprobado mediante sesión N° 5722-2016 del 18 de mayo del 2016)
+Artículo 115. (Derogado por el artículo 29 del Reglamento contra el hostigamiento o Acoso Sexual en el Banco Central de Costa Rica, aprobado mediante sesión N° 5722-2016 del 18 de mayo del 2016)

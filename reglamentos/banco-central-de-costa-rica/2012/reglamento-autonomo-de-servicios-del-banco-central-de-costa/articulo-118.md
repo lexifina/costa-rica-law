@@ -9,6 +9,6 @@ g. Autorizar o efectuar gastos a nombre de la Institución sin cumplir las norma
 h. Inducir a error a la Institución pretendiendo tener cualidades, condiciones o conocimientos que no posee, o presentándole referencias o atestados personales cuya falsedad luego se compruebe, o ejecutando su trabajo en forma que demuestre claramente su incapacidad en la realización de las labores para las cuales ha sido nombrado.
 i. El uso de equipo electrónico de la Institución para observar o reproducir pornografía.
 j. La exhibición de material pornográfico dentro de las instalaciones de la Institución.
-k. Las conductas sancionadas por la Ley contra el Hostigamiento Sexual en el Empleo y la Docencia (Nº 7476 del 3 de febrero de 1995).
+k. (Derogado por el artículo 29 del Reglamento contra el hostigamiento o Acoso Sexual en el Banco Central de Costa Rica, aprobado mediante sesión N° 5722-2016 del 18 de mayo del 2016)
 l. Los retrasos en que incurran los servidores o colaboradores involucrados en la instrucción e imposición de sanciones disciplinarias y que provoquen de cualquier forma la prescripción de la misma.
 m. Cuando un servidor o colaborador que teniendo responsabilidad en la gestión no advierta a quien corresponda respecto de la existencia de cualquier vicio o irregularidad que pueda hacer nulo algún nombramiento.
