@@ -1,0 +1,1 @@
+Artículo 8º—La autorización se emitirá por un tiempo determinado y para un sitio específico, y todas las estructuras que se utilicen tendrán como único fin dar soporte logístico y operativo para la actividad autorizada.

@@ -1,0 +1,1 @@
+Artículo 28.—La Municipalidad podrá revocar la autorización en caso de que variare alguno de los condiciones con base en las cuales se ha razonado la aprobación e iniciar las gestiones pertinentes sobre la concesión.

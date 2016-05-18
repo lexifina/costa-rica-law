@@ -1,0 +1,1 @@
+Artículo 4º—Le corresponde a la Municipalidad de Carrillo por mandato expreso de la Ley dictar y hacer cumplir las disposiciones necesarias para garantizar el libre y seguro tránsito de las personas y el uso público en la zona pública bajo su jurisdicción.

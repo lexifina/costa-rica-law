@@ -1,0 +1,1 @@
+Artículo 19.—En el caso de que se determine que existe mobiliario que impide o estorba al uso general de la zona pública, la Municipalidad a través de sus funcionarios solicitará al responsable del mobiliario que inmediatamente realice el retiro de forma voluntaria.

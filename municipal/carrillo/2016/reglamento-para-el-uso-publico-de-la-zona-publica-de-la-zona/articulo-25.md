@@ -1,0 +1,1 @@
+Artículo 25.—La Municipalidad en cumplimiento de los requisitos y condiciones necesarios para la autorización excepcional del uso de la zona pública amparado al artículo 21 de la Ley Nº 6043, podrá requerir condiciones adicionales siempre y cuando sean necesarias para garantizar el uso público de la zona pública y la protección del ambiente.

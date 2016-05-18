@@ -1,0 +1,1 @@
+Artículo 21.—En el caso de reincidencia en la colocación de mobiliario en la zona pública en contra de lo aquí indicado, se establecerá ante el Concejo Municipal el inicio del trámite de cancelación de concesión conforme a lo definido en el inciso d) del artículo 53 de la Ley de Zona Marítimo Terrestre, por impedir o estorbar al uso general de la zona pública.

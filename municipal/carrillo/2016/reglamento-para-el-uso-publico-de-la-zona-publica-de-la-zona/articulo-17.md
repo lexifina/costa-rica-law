@@ -1,0 +1,1 @@
+Artículo 17.—La Municipalidad velando por el ejercicio del derecho al uso público de la zona pública podrá especificar aspectos sobre el horario, disposición, cantidad y densidad del mobiliario para los casos de los sectores costeros que se consideren necesarios.

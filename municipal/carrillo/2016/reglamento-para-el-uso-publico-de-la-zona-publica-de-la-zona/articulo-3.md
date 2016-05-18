@@ -1,0 +1,1 @@
+Artículo 3º—Que en el ejercicio del derecho al uso público debe tenerse siempre el interés general, garantizando en todo momento el acceso a la zona y el libre tránsito en ella de cualquier persona, la práctica de deportes y de actividades para el sano esparcimiento físico y cultural.

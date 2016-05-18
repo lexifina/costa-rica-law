@@ -1,0 +1,1 @@
+Artículo 13.—El uso de mobiliario en la zona pública es permitido sin ninguna autorización especial siempre y cuando no afecte el interés general y el ejercicio del derecho al uso público de la zona pública y sean para actividades para el sano esparcimiento físico y cultural.

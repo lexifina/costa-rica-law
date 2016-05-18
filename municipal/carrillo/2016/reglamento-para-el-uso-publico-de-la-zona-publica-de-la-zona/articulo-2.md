@@ -1,0 +1,1 @@
+Artículo 2º—Que salvo las excepciones establecidas por ley, nadie puede alegar derecho alguno sobre la zona pública y la misma estará dedicada al uso público y en especial al libre tránsito de las personas.

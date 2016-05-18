@@ -1,0 +1,1 @@
+Artículo 7º—El Concejo Municipal analizará la solicitud y podrá solicitar criterio a los departamentos que considere convenientes, así como requerir medidas adicionales al solicitante según el tipo de actividad con el único propósito de garantizar el adecuado uso y aprovechamiento de la zona pública.

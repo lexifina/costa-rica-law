@@ -1,0 +1,3 @@
+Artículo 24.—Una vez recibida la solicitud, además de verificar los requisitos anteriores, la Municipalidad de Carrillo deberá comprobar lo siguiente:
+a) Que el área solicitada en concesión por su configuración geográfica, topografía o condiciones especiales no permitan su aprovechamiento para el uso público. Para fundamentar la existencia de dichas condiciones el Concejo Municipal podrá solicitar criterio técnico si lo considere necesario.
+b) Que el eventual otorgamiento de la concesión no causa perjuicio o afectación en contra de algún concesionario o propietario de los terrenos colindantes.

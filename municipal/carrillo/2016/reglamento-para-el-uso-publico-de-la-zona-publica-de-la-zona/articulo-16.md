@@ -1,0 +1,1 @@
+Artículo 16.—Cuando el mobiliario sea facilitado por un hotel, restaurante u otro tipo de instalación turística para actividades de sano esparcimiento físico y cultural, este deberá estar supeditado al uso directo del mobiliario, y por tanto cuando no esté en uso, el responsable del mobiliario deberá retirarlo de la zona pública.

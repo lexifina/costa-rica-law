@@ -1,0 +1,2 @@
+Artículo 29.—Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Se acuerda: Este Concejo Municipal por unanimidad de votos dispone, que en base a lo que estipula el artículo 43 del Código Municipal se le solicita a la Secretaria del Concejo que proceda a mandar a publicar por segunda vez el Reglamento del Uso de la Zona Pública en Zona Marítimo Terrestre en el Diario Oficial La Gaceta. Este Reglamento rige a partir de su publicación.
