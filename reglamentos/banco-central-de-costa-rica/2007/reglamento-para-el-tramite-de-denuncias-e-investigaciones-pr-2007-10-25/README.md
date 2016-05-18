@@ -15,3 +15,4 @@ Reglamento para el Trámite de Denuncias e Investigaciones Preliminares en el Ba
 | --- | --- | --- |
 | 1 | 2007-11-09 | la propia norma |
 | 2 | 2012-03-21 | Reglamento 5538 (2012-03-21) |
+| 3 | 2016-05-18 | Reglamento 5722 (2016-05-18) |
