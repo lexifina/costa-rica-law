@@ -14,3 +14,5 @@ RO: por recompras y reportos.
 DP: por dividendos y participaciones.
 RE: por remesas al exterior.
 OR: por otros conceptos no especificados.
+RB: Retenciones Banca para el Desarrollo.
+(Así adicionado el punto anterior por el artículo 2° de la resolución DGT-R-29-2016 del 18 de mayo de 2016)

@@ -14,3 +14,4 @@ Suministro general de la información previsiblemente pertinente, derivada de la
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-14 | la propia norma |
+| 2 | 2016-05-18 | Resolución 29 (2016-05-18) |
