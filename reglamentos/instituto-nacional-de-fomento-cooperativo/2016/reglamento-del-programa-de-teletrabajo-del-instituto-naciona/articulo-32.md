@@ -1,0 +1,1 @@
+Artículo 32.-Espacio de teletrabajo. En caso de que las actividades se realicen desde la casa de habitación, el teletrabajador debe acondicionar un espacio físico con las características recomendadas por la Comisión Institucional o Auxiliar de Teletrabajo, y permitir el acceso para la inspección de las condiciones ergonómicas, de seguridad e higiene del puesto de trabajo.

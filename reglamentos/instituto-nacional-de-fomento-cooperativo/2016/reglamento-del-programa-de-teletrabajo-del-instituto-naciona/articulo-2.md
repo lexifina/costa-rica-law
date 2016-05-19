@@ -1,0 +1,1 @@
+Artículo 2.-Alcance. Este reglamento es aplicable a todos los trabajadores del Instituto Nacional de Fomento Cooperativo, que tienen puestos con actividades que la respectiva institución para la que laboran, determine como teletrabajables y donde existan las condiciones tecnológicas requeridas.

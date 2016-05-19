@@ -1,0 +1,1 @@
+Artículo 25.-Tiempo extraordinario. En la modalidad de teletrabajo, cuando surjan necesidades, excepcionales y únicas, de trabajar tiempo extraordinario, se aplicará lo que establece la normativa vigente. Para ello, Desarrollo Humano, según corresponda, deberá establecer los mecanismos de control del tiempo extraordinario laborado que corresponda.

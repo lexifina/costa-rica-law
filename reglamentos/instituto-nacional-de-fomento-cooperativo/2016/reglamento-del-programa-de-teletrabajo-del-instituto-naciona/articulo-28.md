@@ -1,0 +1,5 @@
+Artículo 28.-Soporte técnico. El INFOCOOP solo le brindará el soporte técnico a los sistemas informáticos autorizados y herramientas de software instalados en los equipos aportados por el INFOCOOP al teletrabajador, para que éste desarrolle sus funciones. Cuando el trabajador aporta el equipo y demás herramientas, su mantenimiento estará bajo su cuenta.
+En caso de que el equipo aportado por la institución sufra deterioro o destrucción por uso inadecuado del funcionario responsable se emitirá un informe para su valoración.
+El teletrabajador es responsable de mantener un buen resguardo de los equipos consignados y velar por el buen funcionamiento bajo la supervisión de Tecnologías de Información y Comunicación.
+En caso de extravío, pérdida o daño del equipo suministrado por el trabajador, el mismo deberá encargarse de suplir un nuevo equipo si el INFOCOOP no tiene uno disponible.
+Es responsabilidad del teletrabajador el cuido y resguardo del equipo suministrado por el INFOCOOP, pero queda exento de su deterioro por uso normal y de los casos fortuitos (golpes de voltaje, etc.)

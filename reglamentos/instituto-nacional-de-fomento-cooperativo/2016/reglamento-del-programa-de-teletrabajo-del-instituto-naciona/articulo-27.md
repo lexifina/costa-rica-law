@@ -1,0 +1,2 @@
+Artículo 27.-Requerimiento técnico del equipo. Las computadoras utilizadas para el teletrabajo deben cumplir con los lineamientos técnicos y de seguridad indicadas por el Departamento de Tecnologías de Información.
+El teletrabajador debe acatar lo dispuesto en la política de seguridad de la información, en cuanto al acceso y uso de la información, aspectos de seguridad lógicos, Para ello el INFOCOOP dotará al Teletrabajador de aplicaciones seguridad de otros elementos en caso de ser requerido.

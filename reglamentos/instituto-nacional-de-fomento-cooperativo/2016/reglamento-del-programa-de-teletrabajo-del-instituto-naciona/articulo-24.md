@@ -1,0 +1,1 @@
+Artículo 24.-Regreso al trabajo presencial. Para que el teletrabajador retorne a sus labores de forma presencial, el Gerente inmediato o Superior, deberá presentar ante la Comisión Institucional o Auxiliares de Teletrabajo, una justificación que explique los motivos que sustentan esta decisión, para aplicar las acciones correspondientes.
