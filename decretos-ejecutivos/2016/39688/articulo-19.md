@@ -1,0 +1,16 @@
+CAPÍTULO III
+DE LAS FORMALIDADES DEL PROCEDIMIENTO
+Artículo 19º Requisitos para solicitudes de concesiones: Toda solicitud de concesión debe presentarse ante las Oficinas del Instituto en el Territorio, en la cual se ubica el predio, acompañada de los siguientes documentos:
+a) Fotocopia legible por ambos lados de cédula de identidad o de residencia permanente, vigente del solicitante o del apoderado en caso de personas jurídicas.
+b) En caso de extranjeros, deberán demostrar que se encuentran dentro de la categoría de residentes permanentes, que les permita realizar actividades independientes, mediante documento expedido por la Dirección General de Migración y Extranjería.
+c) Señalamiento de medio o lugar exacto para recibir notificaciones
+d) Cancelar el valor de inspección de campo. Se exceptúa de esta disposición a las Organizaciones Comunales, y a las personas físicas que se encuentran en condición de pobreza, calificadas como tal por el Instituto Mixto de Ayuda Social, en este último caso la verificación la realizará el Inder de oficio consultando a la base de datos del Sistema de Información de Población Objetivo –SIPO.
+e) Aportar plano catastrado en original o copia certificada del predio a concesionar, con el respectivo visado por parte de la Municipalidad correspondiente en todos los casos, incorporando visado del Instituto Geográfico Nacional cuando el terreno esté adyacente a la línea fronteriza y del Consejo Nacional de Vialidad cuando el predio colinde con ruta nacional.
+f) Descripción de naturaleza, linderos y uso que se le dará al predio.
+Para personas jurídicas
+Si el solicitante es una persona jurídica, además de lo anterior deberá aportar:
+g) Certificación original de personería jurídica expedida por el registro respectivo (Registro Público, Ministerio de Gobernación, INFOCOOP, Ministerio de Trabajo, DINADECO, etc.) o por Notario Público; documento que no deberá tener más de 2 meses de expedido.
+h)Para Personas Jurídicas con fines de lucro, certificación notarial original, con vista en el libro de Registro de Accionistas, donde se certifique la naturaleza y propiedad de las acciones.
+i)En los casos de Personas Jurídicas con fines de lucro, cuyo capital social pertenezca a ciudadanos extranjeros, deberán demostrar que como personas físicas cumplen con el requisito del inciso b) de este Artículo.
+En caso de que se omita el requisito del lugar de notificaciones o que el mismo resulte impreciso, toda resolución que se dicte sobre el asunto quedará notificada con el solo transcurso de veinticuatro horas. Cualquier variación en el domicilio del solicitante deberá ser comunicado al INSTITUTO. Cuando el INSTITUTO lo estime necesario notificará a las partes, mediante la autoridad de policía del domicilio del interesado.
+Una vez cumplidos todos los requisitos indicados en este artículo, para escuchar oposiciones se publicará un edicto por una sola vez en el diario oficial La Gaceta, a costa del solicitante, en el cual se indicará su nombre y calidades de ley, descripción y ubicación del predio por concesionar, otorgándose un plazo de diez días hábiles contados a partir de su publicación para recibir oposiciones ante cualquier oficina del Instituto.

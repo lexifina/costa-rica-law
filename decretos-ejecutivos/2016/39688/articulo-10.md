@@ -1,0 +1,1 @@
+Artículo 10º- Concesiones con pago de mejoras: Las concesiones se otorgarán directamente a los solicitantes, excepto en casos que el INSTITUTO haya pagado mejoras y accesiones. De ocurrir, se realizará una licitación privada o pública conforme a las normas que rigen la materia, donde el adjudicado deberá cancelar el valor de las mismas, a efecto de que se le otorgue la concesión.

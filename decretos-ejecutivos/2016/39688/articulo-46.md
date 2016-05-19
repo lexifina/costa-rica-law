@@ -1,0 +1,1 @@
+Artículo 46°- Extinción del permiso temporal: Una vez sobrepasada la fecha límite del permiso otorgado, los concesionarios deberán reanudar la explotación o uso del predio. En caso de no hacerlo, sin que exista una justificación válida se procederá a iniciar el procedimiento de cancelación de la concesión.

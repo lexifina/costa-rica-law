@@ -1,0 +1,1 @@
+Artículo 6º- Restricción por incumplimiento de obligaciones: El INSTITUTO no otorgará concesiones, ni autorizará segregaciones y traspasos a aquellas personas a las que previamente se les haya rescindido un contrato de concesión anterior, hasta por un plazo de diez años.

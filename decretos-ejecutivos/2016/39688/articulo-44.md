@@ -1,0 +1,1 @@
+Artículo 44°- Causales para denegar: El Instituto podrá denegar la prórroga de concesiones por motivos de utilidad pública o conveniencia general, o por incumplimiento de las obligaciones del concesionario establecidas en este Reglamento o en el Contrato. En todo caso los motivos deberán ser debidamente comprobados.

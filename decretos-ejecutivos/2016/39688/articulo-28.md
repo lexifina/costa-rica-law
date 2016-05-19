@@ -1,0 +1,1 @@
+Artículo 28°- Contrato: Notificado y efectuado el pago del CANON correspondiente a la primera anualidad, se confeccionará el respectivo contrato de concesión, mismo que deberá contener como mínimo los requisitos establecidos en los Artículos 15 y 17 de este cuerpo normativo.

@@ -1,0 +1,1 @@
+Artículo 39°- Inicio del procedimiento: La resolución inicial se tendrá por interpuesta y declarará el inicio del procedimiento de cancelación de la Concesión, la que se regirá por el procedimiento ordinario regulado en los artículos 308 siguientes y concordantes de la Ley General de la Administración Pública, y las disposiciones especiales de este Reglamento.

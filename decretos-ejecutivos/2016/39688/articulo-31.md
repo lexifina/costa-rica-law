@@ -1,0 +1,1 @@
+Artículo 31°- Intereses Moratorios: En caso de que el CONCESIONARIO (A) incurra en un atraso en el pago del CANON respectivo, deberá cancelar intereses de mora que serán calculados conforme a la tasa de interés vigente en el Banco Nacional de Costa Rica, para los depósitos a seis meses plazo.

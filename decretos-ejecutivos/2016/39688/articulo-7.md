@@ -1,0 +1,3 @@
+Artículo 7º- Cantidad de Concesiones: Se concederá a nombre de una misma persona física, una única concesión para uso habitacional y como máximo tres concesiones incluyendo ésta. Para el caso de las personas jurídicas se podrán otorgar como máximo tres concesiones y no se otorgarán concesiones para uso habitacional.
+Las Organizaciones comunales o entidades sin fines de lucro, que presten un servicio a la comunidad, podrán solicitar tantas concesiones como requieran para el desarrollo de sus actividades consecuentes a su pacto constitutivo.
+El área máxima a concesionar será de 100 Hectáreas, salvo casos excepcionales debidamente fundamentados y así aprobados por la Junta Directiva.

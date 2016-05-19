@@ -1,0 +1,1 @@
+Artículo 41°- Destino de predios recuperados: Concluido el proceso de revocatoria y recuperados los predios, se otorgarán de conformidad con el orden de prelación establecido en el Artículo 8 del presente Reglamento.

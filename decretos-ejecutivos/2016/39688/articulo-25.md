@@ -1,0 +1,2 @@
+Artículo 25°- Recomendación: Con base en dicho informe la OFICINA SUBREGIONAL remitirá al Director Regional y a la Asesoría Legal Regional un informe del resultado en un plazo de quince días, en el que deberá indicar si recomienda aprobar o improbar la solicitud de concesión.
+Listo el expediente de solicitud, la DIRECCIÓN REGIONAL procederá a recomendar lo que en derecho corresponda y lo remitirá al FONDO DE TIERRAS, para su trámite de aprobación.

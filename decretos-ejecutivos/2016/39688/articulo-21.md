@@ -1,0 +1,1 @@
+Artículo 21º- Inactividad en trámite expediente: Cuando un expediente de solicitud se paralice por más de seis meses en virtud de causa, imputable exclusivamente al interesado que lo haya promovido, se producirá la caducidad y se ordenará su archivo, todo de conformidad con el Artículo 340 de la Ley General de la Administración Pública.

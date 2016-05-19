@@ -1,0 +1,1 @@
+Artículo 13º- Impedimentos al concesionario: El concesionario no podrá ceder, comprometer, o en cualquier otra forma traspasar o gravar, total o parcialmente, las concesiones o los derechos derivados de ellas, sin la autorización expresa del INSTITUTO. Carecerán de toda validez los actos o contratos que infrinjan esta disposición.

@@ -1,0 +1,1 @@
+Artículo 12º- Variación de uso: Todas las concesiones otorgadas de conformidad con este Reglamento están sujetas a la condición de que los concesionarios no podrán variar el uso autorizado sin el consentimiento del Instituto.

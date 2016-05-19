@@ -1,0 +1,3 @@
+SECCION III
+SUCESIONES
+Artículo 42°- Sucesión de derechos de Concesión: En caso de fallecimiento o por presunción de muerte declarada del concesionario, sus herederos lo sucederán en todos sus derechos y obligaciones; si no hubiere herederos o presuntos herederos, la concesión se extinguirá y las mejoras y construcciones existentes se incorporarán al Instituto. Igualmente se extinguirá la concesión si por algún motivo de conveniencia general el terreno se destinará para uso público, debiendo pagar en este caso el valor de las mejoras existentes a los herederos. El Instituto no podrá pagar por las mejoras un valor superior al que determine el avalúo correspondiente.

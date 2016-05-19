@@ -1,0 +1,1 @@
+Artículo 48°. - Reconocimiento de mejoras: Cuando se trate de renuncia y se tenga una deuda con el Instituto, y lo adeudado supera el monto a pagar por mejoras, la certificación del saldo será título ejecutivo para su respectivo cobro, de conformidad con el Artículo 17 inciso b) de la Ley 9036.

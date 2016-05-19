@@ -1,0 +1,1 @@
+Transitorio II. — En las solicitudes y trámites de arrendamiento que no se haya perfeccionado mediante un contrato, antes de la entrada en vigencia de este Reglamento, se adecuarán a las disposiciones del mismo, para que se les otorgue concesión.
