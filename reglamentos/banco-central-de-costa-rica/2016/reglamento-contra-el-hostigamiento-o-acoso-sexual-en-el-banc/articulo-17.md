@@ -1,0 +1,3 @@
+Artículo 17. Sobre el expediente administrativo.
+El expediente administrativo contendrá como mínimo toda la documentación relativa a la denuncia, la prueba recabada durante la investigación, las actas, las resoluciones pertinentes y sus constancias de notificación. Además deberá encontrarse foliado con numeración consecutiva y en la carátula el señalamiento de confidencialidad.
+El expediente podrá ser consultado exclusivamente por las partes y sus representantes legales debidamente identificados y autorizados por la parte interesada; por los funcionarios (as) que tengan a cargo su custodia y trámite y por la instancia de decisión.

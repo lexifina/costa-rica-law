@@ -1,0 +1,2 @@
+Artículo 25. Sanciones por incumplimiento.
+En caso de incumplimiento de las obligaciones establecidas en la Ley contra el acoso sexual y en este Reglamento, el servidor responsable podrá ser sancionado con una amonestación escrita, suspensión, e incluso el despido. Las sanciones serán aplicadas, según los principios de razonabilidad y proporcionalidad, de forma que correspondan a la gravedad del hecho.

@@ -1,0 +1,2 @@
+Artículo 26. Ejecución de la Sanción.
+Cuando el procedimiento administrativo imponga una sanción, una vez que ésta adquiera firmeza se le comunicará al Departamento de Gestión del Factor Humano para su respectiva ejecución, la cual deberá aplicarse en el término máximo de un mes contado desde la fecha que se dictó. Asimismo, los expedientes de todos los casos finalizados se remitirán a esa misma dependencia para su custodia final, debiendo tomarse las medidas pertinentes para mantener su confidencialidad.

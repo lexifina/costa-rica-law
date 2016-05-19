@@ -1,0 +1,6 @@
+Artículo 22. Integración de la Comisión Investigadora.
+El Jerarca Superior Administrativo, el Consejo Nacional de Supervisión del Sistema Financiero o la Junta Directiva del Banco Central de Costa Rica, según corresponda, integrarán una comisión investigadora en cada caso en particular facultada para instruir el procedimiento administrativo con ocasión de una denuncia por hostigamiento sexual. Dicha comisión estará conformada por tres personas con representación de ambos sexos quienes tendrán que cumplir con al menos una de las siguientes características:
+a) Ser de una división diferente a la de las partes involucradas.
+b) Tener conocimientos en materia de hostigamiento sexual.
+c) Ser abogado(a) con conocimientos y experiencia en el trámite del procedimiento administrativo ordinario de la Ley General de la Administración Pública, Ley 6227, así como en el régimen disciplinario del Banco Central.
+Las personas que conforman esta comisión no pueden haber sido en los últimos 12 meses, compañeros (as) de área o departamento o sus equivalentes con respecto de la persona denunciada o con la presunta víctima; tampoco deben de contar con lazos de consanguinidad o afinidad hasta tercer grado con ninguna de las partes.

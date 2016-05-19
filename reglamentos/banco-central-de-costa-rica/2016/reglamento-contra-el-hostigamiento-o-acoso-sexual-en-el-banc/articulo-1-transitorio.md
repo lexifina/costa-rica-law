@@ -1,0 +1,2 @@
+Transitorio Único
+Los procedimientos disciplinarios relativos a esta materia que con anterioridad a la publicación de este reglamento se encuentren activos, se regirán en todos sus trámites y recursos conforme a la presente normativa a partir de su entrada en vigencia. Para tales efectos, las comisiones investigadoras que lleven estos casos, deberán valorar la posibilidad de revisar y volver a celebrar actuaciones pasadas con el fin de evitar nulidades futuras.

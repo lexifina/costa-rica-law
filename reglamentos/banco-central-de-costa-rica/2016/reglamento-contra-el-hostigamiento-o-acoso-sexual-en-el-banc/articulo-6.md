@@ -1,0 +1,9 @@
+Artículo 6. Mecanismos de divulgación.
+Para la adecuada divulgación del contenido de la Ley contra el acoso sexual, de este Reglamento y de cualquier política de prevención que sobre esta materia dicte el Banco Central, se establecen las siguientes funciones y responsabilidades mínimas en esta materia:
+1. Corresponderá al Departamento de Calidad de la División de Gestión y Desarrollo asegurarse que en la intranet institucional se mantengan permanentemente los archivos electrónicos de la Ley contra el acoso sexual y este Reglamento, así como que éstos estén actualizados y puedan ser consultados en cualquier momento por todo el personal de la Institución.
+2. Corresponderá al Departamento de Gestión del Factor Humano de la División Administrativa:
+a) Verificar que los documentos indicados en el inciso anterior sean conocidos por todas aquellas personas externas al Banco, cuyas relaciones impliquen el uso del mismo ámbito de trabajo de la Institución.
+b) Organizar capacitaciones para todo el personal del Banco Central que aborden los distintos aspectos que abarca esta materia, como por ejemplo, los mecanismos de prevención contra el hostigamiento sexual, régimen sancionatorio, procedimiento interno, etc.
+c) Distribuir materiales informativos entre todos los funcionarios del Banco que, entre otras cosas, fomenten el respeto entre su personal e informen el procedimiento para denunciar conductas constitutivas de hostigamiento sexual.
+d) Coordinar lo que corresponda con las distintas áreas del Banco para que el personal que tenga relación directa con la aplicación de esta normativa y de la Ley contra el acoso sexual, reciba capacitación suficiente y actualizada para el mejor desempeño de sus funciones.
+e) Cualquier otro aspecto o recurso que se estime necesario para el cumplimiento de los fines de la Ley contra el acoso sexual y este Reglamento.

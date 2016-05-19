@@ -1,0 +1,2 @@
+Artículo 18. Plazo para concluir la investigación.
+El plazo para concluir el procedimiento no podrá exceder de tres meses; sin embargo, al ser dicho plazo ordenatorio, es posible que, según las circunstancias de cada caso, el tiempo se prolongue, pero para ello la comisión investigadora o el órgano decisor, según corresponda, deberán contar con las justificaciones objetivas procedentes; caso contrario, podría surgir responsabilidad administrativa para los funcionarios encargados de estos trámites.
