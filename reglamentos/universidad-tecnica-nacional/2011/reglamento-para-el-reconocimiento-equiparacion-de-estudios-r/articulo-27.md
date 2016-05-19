@@ -1,1 +1,7 @@
-Artículo 27. Cuando no se puedan equiparar o convalidar estudios cursados, se indicará claramente este hecho, y el expediente será devuelto al Departamento de Registro. Si sólo se equipara parte de los cursos solicitados, se indicará así para efectos de iniciar el trámite correspondiente.
+Artículo 27.- Para el reconocimiento y equiparación de estudios que han concluido con un diploma en una institución de educación superior extranjera, además de las otras funciones establecidas en este reglamento, le corresponde a Registro Universitario:
+a) Recibir y revisar las solicitudes y documentación remitidas por OPES, así como solicitar las aclaraciones que fueren necesarias a esa oficina y al interesado cualquier otro documento o trámite que estime pertinente.
+b) Enviar la solicitud de reconocimiento y equiparación, remitida por OPES, a la Coordinación General de Carrera o Comisión Técnica Asesora afín
+con el campo de estudio del interesado, para que ésta envíe su criterio técnico a la Comisión de Reconocimientos y Equiparaciones de la Universidad.
+c) Comunicar a las Unidades Académicas sobre la existencia y vigencia de tratados o convenios internacionales o cualquier información que pueda aplicarse al caso y que pueda servir de base para el dictamen final.
+d) Llevar control minucioso de casos tramitados mediante un tratado o convenio internacional, con el objetivo de tener referencias y poder citarlos posteriormente.
+e) Comunicar oficialmente al interesado, la resolución final de la Comisión de Reconocimientos y Equiparaciones de la Universidad, con estricto apego a los dictámenes de las instancias competentes, con copia a la Oficina de Reconocimiento y Equiparación de OPES.

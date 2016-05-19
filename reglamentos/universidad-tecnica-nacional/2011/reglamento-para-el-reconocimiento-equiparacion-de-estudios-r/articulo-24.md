@@ -1,3 +1,3 @@
-CAPÍTULO VII
-Disposiciones Finales
-Artículo 24. El estudiante deberá cumplir una residencia mínima de un año lectivo y 24 créditos, salvo que existan convenios con la institución de donde provenga el estudiante.
+Capítulo V
+Del Reconocimiento y la Equiparación de Títulos y de Estudios de Pregrado
+Artículo 24.- Se pueden equiparar y reconocer los pregrados y títulos emitidos por los colegios universitarios estatales cuando el plan de estudios del parauniversitario es equivalente con el plan de estudios del nivel de pregrado universitario de la Universidad Técnica Nacional, según los criterios establecidos en este Reglamento. Lo anterior se aplica únicamente para efectos de continuación de estudios en la UTN. Para definir aspectos específicos de esta equiparación, se deben suscribir cartas de entendimiento con las instituciones involucradas que describan el procedimiento específico.

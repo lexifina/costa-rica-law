@@ -1,7 +1,5 @@
-Artículo 33. Para solicitar reconocimiento y equiparación de estudios realizados en universidades nacionales el interesado debe aportar los siguientes documentos:
-a. Original y dos fotocopias del Diploma de Bachillerato en Educación Media o su equivalente y al dorso de las fotocopias de dicho documento fotocopia de cédula de identidad, cédula de residencia o pasaporte.
-b. Si aprobó la educación media en el exterior, el Diploma debe venir debidamente autenticado, cuya presentación debe hacerse de conformidad con los procedimientos de autenticación establecidos por el Ministerio de Relaciones Exteriores. Luego debe ser equiparado por el Consejo Superior de Educación del Ministerio de Educación Pública de Costa Rica.
-Deben presentar original y fotocopia del mismo, al dorso de las copias de dicho documento fotocopia de cédula de identidad, cédula de residencia o pasaporte.
-c. Si el interesado es estudiante regular de la Universidad Técnica Nacional no debe presentar lo estipulado en los puntos a, b y c anteriores.
-d. Original y fotocopia de certificación de materias aprobadas con el número de créditos y señalando la escala de calificación y la nota mínima de aprobación, firmada y sellada por la institución de procedencia.
-e. Presentar certificación de los programas de las materias aprobadas que va a someter a reconocimiento, debidamente sellados y firmados en cada página por la Universidad de procedencia, en la que coincida el nombre y año de curso con los señalados en la certificación de materias aprobadas.
+Artículo 33.- Para este proceso, el estudiante debe presentar ante Registro Universitario:
+a) Una copia de la cédula de identidad,
+b) El original y una copia del diploma obtenido,
+c) Programas de las materias cursadas, calificaciones y escala de calificación, debidamente sellado y firmado en cada página por la Universidad de procedencia, y
+d) El original y una copia del plan de estudios, debidamente sellado por la Institución correspondiente.

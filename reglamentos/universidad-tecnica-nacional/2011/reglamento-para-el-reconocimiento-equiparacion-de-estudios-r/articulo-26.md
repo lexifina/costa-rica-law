@@ -1,1 +1,1 @@
-Artículo 26. A fin de que haya uniformidad en los procedimientos, el criterio técnico y el dictamen final deben emitirse en los formularios elaborados y suministrados por el Registro Universitario.
+Artículo 26.- Posterior al recibo del criterio de la Coordinación General de la Carrera o Comisión Técnica Asesora, según corresponda, la Comisión de Reconocimientos y Equiparaciones de la Universidad tiene cinco días hábiles para remitir el dictamen final al Registro Universitario.

@@ -1,1 +1,1 @@
-Artículo 30. La Comisión de Reconocimientos y Equiparaciones de la Universidad tiene cinco días hábiles, después de haber recibido el criterio técnico de la Comisión Técnica Asesora, para remitir el dictamen final al Departamento de Registro de la Sede o a Registro Universitario, según corresponda.
+Artículo 30.- Para el ingreso al Bachillerato en la Enseñanza (en la Especialidad Técnica) los estudiantes deberán haber concluido su plan de estudios en la especialidad y aportar el diploma.

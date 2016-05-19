@@ -1,6 +1,3 @@
-CAPÍTULO V
-Reconocimiento de Diplomas
-Artículo 16. El reconocimiento de diplomas sólo se podrá realizar a estudiantes de universidades estatales costarricenses que cumplan los siguientes requisitos:
-a. Poseer el diploma de pregrado o grado académico universitario de su institución de origen.
-b. Solicitar inscripción para obtener un grado superior en la misma disciplina.
-c. Que se les haya otorgado cupo en la carrera solicitada.
+Artículo 16.- El estudio de las solicitudes de equiparación, salvo que por Convenio o carta de entendimiento se haya establecido lo contrario, deberá ser realizado por las Coordinaciones Generales de Carrera o Comisiones Técnicas Asesoras, Comisiones Técnicas Asesoras del Área de Servicio y el Programa Institucional de Idiomas para el Trabajo, según sea el caso, de conformidad con los criterios técnicos que estas hayan establecido y tomado en cuenta:
+a- Criterios Cuantitativos: Los créditos y horas del curso.
+b- Criterios Cualitativos: Los objetivos, el perfil académico profesional (conocimientos, habilidades y actitudes) y el contenido de los cursos, así como los requisitos de aprobación (calificación mínima y obtenida, y forma evaluación). ( Así reformado por el acuerdo 7-1-2016, según sesión ordinaria 17-2016 del 18 de agosto del 2016)

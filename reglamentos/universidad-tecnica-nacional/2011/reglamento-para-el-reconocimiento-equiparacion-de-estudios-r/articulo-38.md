@@ -1,0 +1,1 @@
+Artículo 38.- En los casos en que los estudiantes deseen cursar otra carrera en la UTN, diferente al Bachillerato en la Enseñanza (en la Especialidad Técnica) impartido por CFPTE, o continuar el nivel de Bachillerato en la especialidad, deben cumplir con los requisitos que para tal efecto hayan sido establecidos en este Reglamento.

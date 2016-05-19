@@ -1,1 +1,1 @@
-Artículo 7. El reconocimiento y equiparación se hace solamente sobre cursos aprobados. No procede en los cursos indicados como reconocidos, equiparados o equivalentes.
+Artículo 7.- En los casos en que no existe CGC por impartirse la carrera en una única sede corresponde a la Comisión Técnica Asesora existente realizar lo dispuesto en este Reglamento para las Coordinaciones Generales de Carrera.

@@ -1,4 +1,3 @@
-Artículo 19. La Dirección de Cooperación Externa (DCE) es responsable de:
-a. Conservar actualizado los tratados y convenios internacionales concernientes a reconocimientos y equiparación de estudios, y lo correlativo en ese tema, así como la jurisprudencia de cada uno de esos tratados, respaldados por la Oficina de Asuntos Jurídicos de la universidad.
-b. Mantener una constancia actualizada, de cada tratado y convenio, de la embajada correspondiente por medio del Ministerio de Relaciones Exteriores, de que el país firmante respalda a los graduados de la Universidad Técnica Nacional con iguales beneficios que los graduados de ese país solicitan en Costa Rica.
-c. Debe enviar a Registro Universitario, la lista actualizada de tratados y convenios vigentes sobre reconocimiento y equiparación de estudios.
+Sección II
+Procedimiento
+Artículo 19.- Toda solicitud de reconocimiento y equiparación debe ser presentada por el interesado directamente a Registro Universitario, en las fechas establecidas, con la documentación que se le indique de conformidad con la normativa institucional.

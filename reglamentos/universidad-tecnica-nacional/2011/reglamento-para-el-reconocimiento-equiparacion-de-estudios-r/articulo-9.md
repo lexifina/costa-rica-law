@@ -1,1 +1,1 @@
-Artículo 9. Para resolver la equiparación, el Departamento de Registro de la Sede enviará una copia del expediente de reconocimiento, debidamente firmada y foliada a la Comisión Técnica Asesora correspondiente a la carrera en la que fue aceptado el interesado, informándolo así a la Comisión de Reconocimientos y Equiparaciones de la Universidad.
+Artículo 9.- En todos aquellos de idiomas para otras carreras, el responsable de los procesos de reconocimiento, equiparación y estudios en general, será el Programa Institucional de Idiomas para el Trabajo.

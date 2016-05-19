@@ -1,1 +1,1 @@
-Artículo 8. El Departamento de Registro de la Sede velará porque las calificaciones y otros documentos que acompañan la solicitud de equiparación cumplan con los requisitos que se especifican en este reglamento.
+Artículo 8.- La Comisión Técnica Asesora del Área de Servicio es la autoridad que coordina los procesos de reconocimiento, equiparación y estudios en general, del área de su competencia, de conformidad con los criterios establecidos por el Área de Servicio de conformidad con este Reglamento.

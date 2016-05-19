@@ -1,0 +1,3 @@
+Capítulo VIII
+Recursos
+Artículo 39.- Ante las resoluciones emitidas por la Coordinación General de Carrera, la Comisión Técnica Asesora, la Coordinación Técnica Asesora del Área de Servicios, el Programa Institucional de Formación Holística y el Programa Institucional de Idiomas para el Trabajo y la Comisión de Reconocimientos, caben los recursos de revocatoria en primera instancia ante el órgano que emitió la resolución y el de apelación ante el superior jerárquico de éste, según lo dispuesto en este capítulo y en forma supletoria por lo establecido por la Ley General de la Administración Pública número 6227.

@@ -1,0 +1,1 @@
+Artículo 36.- Posterior al criterio de la CGC o CTA, según corresponda, la Comisión de Reconocimientos y Equiparaciones de la Universidad tiene cinco días hábiles para remitir el dictamen final al Registro Universitario.

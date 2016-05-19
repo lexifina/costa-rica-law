@@ -1,1 +1,1 @@
-Artículo 13. No procede el reconocimiento y la equiparación de cursos, cuyo requisito o co-requisito no se hayan reconocido, equiparado o aprobado previamente.
+Artículo 13.- La Dirección Institucional de Cooperación Externa es la dependencia responsable de llevar un registro actualizado de los tratados y convenios internacionales concernientes a reconocimientos y equiparación de estudios, y lo correlativo en ese tema, así como la jurisprudencia de cada uno de esos tratados, respaldados por la Oficina de Asuntos Jurídicos de la universidad.

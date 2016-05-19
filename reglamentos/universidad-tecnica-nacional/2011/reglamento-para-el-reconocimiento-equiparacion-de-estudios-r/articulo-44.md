@@ -1,0 +1,1 @@
+Artículo 44.- En el caso que el recurso de revocatoria se presente conjuntamente con el de apelación, debe resolverse el de revocatoria previo al de apelación y de conformidad con los lineamientos y tiempos establecidos en este capítulo.

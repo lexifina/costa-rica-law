@@ -1,1 +1,1 @@
-Artículo 31. La documentación escrita en otro idioma debe ser traducida al español, y será de total responsabilidad por parte del interesado. La traducción debe ser certificada por el Ministerio de Relaciones Exteriores y Culto.
+Artículo 31.- Bajo ninguna circunstancia podrá el estudiante titularse en la Enseñanza de dos especialidades técnicas, por lo que en caso de dos o más titulaciones en distintas especialidades técnicas, el estudiante deberá elegir entre ellas y presentar el diploma correspondiente a la especialidad que haya elegido.

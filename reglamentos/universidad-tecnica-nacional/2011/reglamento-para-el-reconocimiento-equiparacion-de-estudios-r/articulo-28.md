@@ -1,1 +1,4 @@
-Artículo 28. Para reconocimiento, equiparación o convalidación de cursos y bloques de cursos, la Comisión Técnica Asesora de cada Unidad Académica tiene diez días hábiles, como máximo, después de haber recibido la documentación del Departamento de Registro, para emitir el dictamen al departamento de Registro de la Sede.
+Artículo 28.- La Dirección Institucional de Cooperación Externa, en este proceso, es responsable de:
+a) Llevar un registro actualizado de los tratados y convenios internacionales concernientes a reconocimientos y equiparación de estudios, y lo correlativo en ese tema, así como la jurisprudencia de cada uno de esos tratados, respaldados por la Oficina de Asuntos Jurídicos de la Universidad.
+b) Mantener actualizadas, a través del Ministerio de Relaciones Exteriores, las constancias de los tratados y convenios sobre respaldo del país firmante de la igualdad de beneficios de los graduandos del país extranjero con respecto a las condiciones de los estudiantes de la Universidad Técnica Nacional.
+c) Enviar a Registro Universitario la lista actualizada de tratados y convenios vigentes sobre reconocimiento y equiparación de estudios.

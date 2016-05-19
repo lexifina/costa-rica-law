@@ -1,5 +1,5 @@
-CAPITULO VIII
-Responsabilidades
-Artículo 20. Registro Universitario será responsable de:
-a. Suministrar al Departamento de Registro de cada Sede y a la Comisión de Reconocimientos y Equiparaciones de la Universidad, los formularios oficiales en los cuales se emitirá el criterio técnico y las resoluciones de reconocimientos y equiparación.
-b. Los aspectos que le corresponden de acuerdo con el artículo 23, incisos a-g.
+Artículo 20.- Para solicitar el reconocimiento y equiparación de estudios realizados en el país, además del cumplimiento de la normativa previamente establecida, el interesado debe aportar los siguientes documentos:
+a) Original y fotocopia de certificación de materias aprobadas con el número de créditos y señalando la escala de calificación y la nota mínima de aprobación, firmada y sellada por la institución de procedencia.
+b) Certificación de los programas de las materias aprobadas que va a someter a reconocimiento, con códigos y detalle de los programas, debidamente sellados y firmados en cada página por la Universidad de procedencia; y en los que coincida el nombre y año de curso con los señalados en la certificación de materias aprobadas; con excepción de los casos de reconocimiento automático.
+c) Si los estudios que se van a someter a reconocimiento y equiparación fueron realizados en uno de los colegios universitarios fusionados o en la UTN, el interesado deberá aportar únicamente un historial académico.
+d) En los casos de reconocimiento automático sólo se deberá presentar la certificación de materia aprobada que consigne la calificación, en los casos en que proceda.

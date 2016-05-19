@@ -1,1 +1,3 @@
-Artículo 11. Los estudiantes matriculados en la Universidad podrán solicitar el reconocimiento y equiparación de cursos, que fueron aprobados en cualquier carrera de la institución, cuando el interesado quiera cambiar de carrera u optar por una segunda carrera, a la que debe haber sido admitido previamente.
+Artículo 11.- Son funciones específicas de las Coordinaciones Generales de Carrera o de las Comisiones Técnicas Asesoras de la carrera, según corresponda:
+a) Emitir el estudio técnico de reconocimiento o equiparación de títulos de pregrado, y de reconocimiento o equiparación de grados y títulos de universidades nacionales o extranjeras, de conformidad con los formularios oficiales y dentro de los plazos establecidos.
+b) Brindar criterio técnico para el reconocimiento especial del grado y título, así como concordancia de perfil académico para el ingreso al Centro de Formación Pedagógica y Tecnología Educativa.
