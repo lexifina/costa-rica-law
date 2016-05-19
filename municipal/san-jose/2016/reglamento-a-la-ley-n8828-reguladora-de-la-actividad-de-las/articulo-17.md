@@ -1,0 +1,2 @@
+ARTÍCULO 17.- Incompatibilidad para ser funcionario de las SPEM
+El cargo de funcionario o empleado de las SPEM es incompatible con el cargo de Acalde propietario o Vicealcalde, Regidor propietario o suplente, Síndico propietario o suplente y Concejal de distrito, propietario o suplente de la municipalidad, los empleados directos de la municipalidad y los parientes por afinidad o consanguinidad, hasta el tercer grado inclusive, de estos funcionarios o empleados.

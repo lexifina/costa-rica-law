@@ -1,0 +1,2 @@
+ARTÍCULO 19.- Presidente de la junta directiva
+La junta directiva tendrá un presidente que será elegido de su seno por un período de un año, quien ostentará la representación judicial y extrajudicial de la empresa, con las facultades de apoderado general. Además, se nombrará por un período igual a un vicepresidente, quien reemplazará al titular en sus ausencias temporales. Estos nombramientos se publicarán en La Gaceta, para que surtan sus efectos legales.

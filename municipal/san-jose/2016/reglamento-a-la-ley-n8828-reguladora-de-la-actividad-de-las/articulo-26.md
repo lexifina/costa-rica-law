@@ -1,0 +1,2 @@
+ARTÍCULO 26.- Financiamiento bancario
+Para la implementación y el desarrollo de los proyectos a ejecutar, por las SPEM, el Sistema Bancario Nacional o privado podrá prestar las sumas requeridas y estará sujeto a lo dispuesto en el inciso 5) del artículo 61 de la Ley Orgánica del Sistema Bancario Nacional, Nº 1644, quedando expresamente autorizados por esta norma; para ello, se tomará en cuenta la situación socioeconómica de la región respectiva.

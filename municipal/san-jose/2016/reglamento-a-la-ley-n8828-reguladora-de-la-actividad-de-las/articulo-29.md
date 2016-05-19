@@ -1,0 +1,2 @@
+ARTÍCULO 29.- Representación municipal del capital accionario
+El representante del capital accionario de la municipalidad es el Alcalde. Cualquier decisión sobre la modificación del capital accionario, por parte de los integrantes de la SPEM, será decidido en asamblea de accionistas, lo mismo que cualquier modificación en su Pacto Constitutivo, previo acuerdo adoptado por el Concejo Municipal, mediante mayoría calificada.
