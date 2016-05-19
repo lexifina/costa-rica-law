@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE TARRAZÚ
+El Concejo Municipal de Tarrazú, toma el Acuerdo N° 7, en la sesión ordinaria 298-2016, celebrada el 13 de enero del 2016: El Concejo Municipal aprueba la Modificación del Artículo 40) del Reglamento para la Operación y Administración del Acueducto de la Municipalidad, quedando de la siguiente manera:
+Artículo 40.—Del desperfecto del hidrómetro: En casos en que por cualquier circunstancia el hidrómetro sufra desperfectos que impidan el registro de los consumos de agua al abonado se le cobrará de acuerdo con el promedio de los consumos normales de los últimos cuatro meses, asumiendo la Municipalidad en su totalidad el exceso producido. En caso en que por cualquier circunstancia el hidrómetro sufra desperfectos, pero se registra el consumo de agua, al abonado se le cobrará el promedio de los últimos ocho meses, sin tomar en cuenta el mes que sufrió el desperfecto y fue registrado el consumo.
+Publicarlo en el Diario Oficial La Gaceta.
+Acuerdo definitivamente aprobado.
