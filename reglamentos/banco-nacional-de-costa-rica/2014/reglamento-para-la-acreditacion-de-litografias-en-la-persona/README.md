@@ -14,3 +14,4 @@ Reglamento para la acreditación de litografías en la personalización de chequ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-20 | la propia norma |
+| 2 | 2016-05-20 | Reglamento 0 (2016-04-15) |
