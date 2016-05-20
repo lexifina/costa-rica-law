@@ -1,0 +1,1 @@
+Artículo 11.—Una vez entregados los cheques a satisfacción del cliente, la litografía debe entregar al Banco copia del acta de entrega con al menos una firma del cliente registrada ante el Banco y una muestra de los cheques producidos debidamente anulada para realizar la revisión de seguridades y activación de los cheques en el sistema del Banco.

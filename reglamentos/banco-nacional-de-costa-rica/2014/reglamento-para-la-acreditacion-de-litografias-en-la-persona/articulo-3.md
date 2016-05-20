@@ -1,0 +1,1 @@
+Artículo 3º—Se define a las LITOGRAFÍAS AUTORIZADAS como todas aquellas personas físicas y jurídicas que, por medio de la firma de un contrato, acepten las condiciones especificadas por EL BANCO para contar con el aval para emitir cheques personalizados en serie especial.

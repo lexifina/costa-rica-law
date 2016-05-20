@@ -1,0 +1,1 @@
+Artículo 12.—La litografía se deberá comprometer a que las actas para activación de cheques se enviarán como máximo tres meses después de haber sido aprobado el tiraje por el Banco, caso contrario el Banco se reserva el derecho de anular la solicitud a nivel de sistema.

@@ -1,0 +1,1 @@
+Artículo 26.—La litografía autorizada deberá guardar la confidencialidad y exclusividad de la información y material del que sea titular o que posea del BANCO, y a la cual tenga acceso, en virtud del convenio existente entre las partes, así como asegurar el respeto de este carácter de confidencialidad de la información de sus clientes.
