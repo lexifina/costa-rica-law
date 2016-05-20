@@ -1,0 +1,1 @@
+Artículo 18.—Divulgación. La entidad debe incluir, en su informe anual de riesgos, los aspectos referidos a su gestión del riesgo operativo, de conformidad con lo dispuesto por el artículo 18 del Acuerdo SUGEF 2-10.

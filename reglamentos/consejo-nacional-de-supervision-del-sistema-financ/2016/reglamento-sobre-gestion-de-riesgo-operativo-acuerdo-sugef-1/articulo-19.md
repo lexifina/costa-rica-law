@@ -1,0 +1,1 @@
+Artículo 19.—Reporte para la SUGEF. La entidad debe remitir anualmente, por el medio y en el plazo que defina la SUGEF en el Manual de Información-SICVECA, los datos sobre incidencias y eventos potenciales contenidos en las respectivas bases de datos a que hace mención este reglamento en el artículo 14.
