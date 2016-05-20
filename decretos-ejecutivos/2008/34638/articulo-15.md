@@ -1,1 +1,0 @@
-Artículo 15.—Responsabilidad Solidaria. El encargado del control de las garantías o cauciones que por culpa o dolo no informe cualquier anomalía será solidariamente responsable del perjuicio ocasionado.
