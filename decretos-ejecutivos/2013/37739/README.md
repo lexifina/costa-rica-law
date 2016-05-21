@@ -14,3 +14,4 @@ Reglamento sobre regulación y control de la publicidad comercial relacionada co
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-10-19 | la propia norma |
+| 2 | 2016-05-21 | SINALEVI (sin norma nombrada) |
