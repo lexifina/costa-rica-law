@@ -14,3 +14,4 @@ Reglamento de cajas recaudadoras
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1999-03-09 | la propia norma |
+| 2 | 2016-05-21 | Reglamento municipal 3 (2016-05-21) |
