@@ -1,3 +1,0 @@
-Artículo 14.—
-En caso que sea necesaria la contratación de servicios de consultoría para el diseño, inspección o evaluación de una obra de infraestructura la Unidad de Arquitectura e Ingeniería deberá definir y justificar la necesidad de contratar estos servicios, para uno o varios proyectos específicos, dependiendo de la magnitud o complejidad de los proyectos en cuestión, los recursos profesionales requeridos, el tiempo de entrega y el volumen de trabajo existente. en caso de requerirse la contratación, esta se realizará con fundamento en las reglamentaciones de contratación pública vigentes.
-(Así reformado mediante sesión N° 4336 del 21 de abril del 2008)
