@@ -61,11 +61,12 @@ Más de $30,000.00 comisión $35.00
 Mensaje Swift por trámites de órdenes de pago $10.00
 Investigaciones $5.00
 (Así reformado el punto 5.8) anterior en sesión N° 07-16 del 8 de febrero del 2016)
-5.9.- Transferencias.
+5.9.- Transferencias
 Apertura 0.35% mínima $15.00, máxima $85.00
 Swift $8,00
-5.9.1 Transferencias al exterior modalidad Pago Garantizado U.S.$30.00 adicionales
-(Así reformado el punto 5.9) anterior en sesión N° 44 del 14 de octubre de 2015)
+5.9.1 Transferencias al exterior modalidad Pago Garantizado U.S.
+Comisión adicional: remitidas a través del Bank of America, Miami: $30.00. Bank of New York Mellon, Ny: $25.00
+(Así reformado el punto 5.9) anterior en sesión N° 21 del 23 de mayo de 2016)
 5.10.- Venta Giros
 Venta de Giros en dólares y en otras monedas $25.00
 Aspectos generales
@@ -83,12 +84,13 @@ Gerente de Área de Marca 100%
 Gerente Local 75%
 7. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen funcionarios u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
 (Así reformado el punto 5.10) anterior en sesión N° 07-16 del 8 de febrero del 2016)
-5.11.-Detención de pago a giros bancarios
-Bicsa Miami/Panamá 1,0%
+5.11.- Detención de pago a giros bancarios
+Bicsa Panamá 1,0%
 Mínimo $10.00
 Máximo $50.00
 Citibank New York $7.00
-Bank of América $7.00
+Bank of America $7.00
+(Así reformado el punto 5.11) anterior en sesión N° 21 del 23 de mayo de 2016)
 5.12.- Anulación de giros
 Servicio $10.00
 5.13 -Cartas de crédito locales
@@ -163,3 +165,17 @@ BCR | hasta | hasta | hasta | hasta | hasta | hasta
 5.22.2 Transferencia min $40.00 hasta $100.00 ($30.00 Bank of América)
 5.22.3 Gestión de cobro 0.20% min $50.00
 (Así adicionado el punto 5.22) anterior en sesión N° 44 del 14 de octubre de 2015)
+(*)5.23 Tarifas Teledolar
+Comisión de envíos de dinero para remesas nacionales
+[imagen]
+Comisión de envíos de dinero de remesas familiares al exterior.
+[imagen]
+Comisión de envíos de dinero de remesas familiares al exterior.
+[imagen]
+Comisión de pagos de dinero.
+[imagen]
+Comisión de envíos de dinero por medio de Money Gram a través de Teledolar
+[imagen]
+Envíos Costa Rica - Nicaragua Money Gram
+[imagen]
+(*) (Así adicionado el punto 5.23) anterior en sesión N° 21 del 23 de mayo de 2016)

@@ -71,17 +71,13 @@ $20.00
 Nota:
 Incluye la tarifa del Registro Nacional más gastos de papel legal y timbres.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.8 al 1.9. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
-(*) 1.10.- Cobro administrativo de operaciones en mora
-Créditos inferiores o iguales a $1,000.00 $10.00 mensuales.
-Créditos superiores a $1.000:
-1-10 días $15.00
-11-30 días $20.00
-31-60 días $30.00
-61días de atraso en adelante $50.00
-Nota: rige para todos los créditos nuevos otorgados a partir de la aprobación de esta tarifa y que al momento del pago se encuentre en cartera normal, en cobro administrativo o judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha de vencimiento de los intereses, para cada cuota según la antigüedad de mora que tenga.
+(*)1.10.- Cobro administrativo de operaciones en mora
+[imagen]
+Nota:
+Rige para todos los créditos nuevos otorgados a partir de la aprobación de esta tarifa y que al momento del pago se encuentre en cartera normal, en cobro administrativo o judicial, cada vez que se realice un pago se les cobrará el monto indicado según el rango de atraso con base en la fecha de vencimiento de los intereses, para cada cuota según la antigüedad de mora que tenga.
 Los créditos otorgados antes de esta modificación se regirán por la anterior tarifa, o según lo establezca la cláusula o adenda en el contrato de crédito respectivo.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.9 al 1.10. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)
-(*)(Así reformado el punto 1.10) anterior mediante sesión N° 13-14 del 31 de marzo del 2014)
+(*) (Así reformado el punto 1.10) anterior mediante sesión N° 21 del 23 de mayo de 2016)
 1.11.- Cobro telegramas enviados operaciones vencidas
 $5.00
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 1.10 al 1.11. Lo anterior ya que en dicha sesión se adiciona el numeral 1.2 original y correr la numeración de los siguientes)

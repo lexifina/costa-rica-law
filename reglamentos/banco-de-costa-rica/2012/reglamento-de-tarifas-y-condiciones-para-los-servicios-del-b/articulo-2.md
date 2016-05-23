@@ -87,23 +87,25 @@ $20 más gastos del corresponsal
 2.22.- Venta de cheques de gerencia
 $25.00
 (Así reformado el punto 2.22) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.23.- Recolección depósitos especiales en cuenta corriente
-1- Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
+(*)2.23.- Recolección depósitos especiales en cuenta corriente
+1 - Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
 Hasta ¢ 6.000.000.00 cobrar la suma de:
-a) $ 7.00 remeseras propias/recolección.
-Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
+a) $ 10.00 remeseras propias/recolección. Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula:
+(M.E./T.C.)*0.000572
 Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
 Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
 Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
 b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
 2- Para clientes cuyos depósitos son recolectados, contabilizados, para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera de la (GAM) a los clientes:
 Hasta ¢6.000.000.00 cobrar la suma de:
-a) $ 9.00 remeseras propias/recolección.
-Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula: (M.E./T.C.)*0.000572
+a) $ 13.00 remeseras propias/recolección.
+Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula:
+(M.E./T.C.)*0.000572
 Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
 Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
 Los montos sobre los cuales se realizaran los cobros, son los declarados por el cliente en las planillas de conducción.
-b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto).
+b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
+Vargas Mejía (VMA)
 [imagen]
 [imagen]
 [imagen]
@@ -111,15 +113,12 @@ Proval
 [imagen]
 [imagen]
 [imagen]
-[imagen]
-(Así reformado el punto 2.23) anterior en sesión N° 44 del 14 de octubre de 2015)
+(*) (Así reformado el punto 2.23) anterior en sesión N° 21 del 23 de mayo de 2016)
 2.24.- Comisión para la recepción de efectivo para instituciones del sector financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-[imagen]
 (Así reformado el punto 2.24) anterior en sesión N° 44 del 14 de octubre de 2015)
 2.25- Comisión para la entrega de efectivo para instituciones del sector financiero
 Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-[imagen]
 (Así reformado el punto 2.25) anterior en sesión N° 44 del 14 de octubre de 2015)
 2.26.- Comisión por sobregiros accidentales. Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
 Mínimo $10.00
@@ -158,16 +157,16 @@ Se considera un retiro masivo a partir de 10 retiros, el cobro aplica sólo cuan
 Costo de la comisión por cada nota de débito $ 5.00
 Nota: Se exceptúa del pago de esta comisión a aquellas cuentas cuyo saldo promedio semestral sea mayor a $1.000. o su equivalente en colones y cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
 (Así reformado el punto 2.35) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.36.- Comisión por planilla de empresa mediante depósitos en ventanilla
+2.36.- Comisión por planilla mediante depósitos en ventanilla
 El cliente podrá solicitar cuatro depósitos sin costo adicional. Las solicitudes de cinco o más depósitos se consideran una planilla, por lo que tendrá un costo de $1.00 por cada depósito realizado.
-(Así reformado el punto 2.36) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Así reformado el punto anterior en sesión N° 21 del 23 de mayo de 2016)
 2.37. Divisas depositadas por concepto de exportación en cuenta corriente/ ahorros
 Depósito cuenta en dólares 1.5%, mínima $10.00
 Depósito cuenta en colones 1.0%, mínima $10.00
 (Así reformado el punto 2.37) anterior en sesión N° 07-16 del 8 de febrero del 2016)
-2.38. Comisión por retiro anticipado de un plan de ahorro automático
-Aplica la comisión del 3% sobre la totalidad del saldo ahorrado, para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
-(Así reformado el punto 2.38) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+2.38.- Comisión por retiro anticipado de un plan de ahorro automático
+Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea superior a 6 meses y se cancelen antes de los 181 días de permanencia.
+(Así reformado el punto 2.38) anterior en sesión 21 del 23 de mayo del 2016)
 2.39. Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
 $0.50 por cada registro
 (Así reformado el punto 2.39) anterior en sesión N° 07-16 del 8 de febrero del 2016)
@@ -177,12 +176,12 @@ $0.50 por cada registro
 2.41. Pago de servicios públicos de forma masiva en ventanilla
 El cliente podrá solicitar cuatro pagos de servicios sin costo adicional. Las solicitudes de cinco o más pagos de servicios se consideran masivos, por lo que tendrá un costo de $1.00 por cada pago de servicio adicional cancelado.
 (Así reformado el punto 2.41) anterior en sesión N° 07-16 del 8 de febrero del 2016)
-2.42. Pago de servicios públicos de forma masiva en ventanilla.
-$1.00 por cada uno a partir del quinto servicio cancelado.
-(Así reformado el punto 2.42) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.43- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
-$0.50 por cada registro
-(Así reformado el punto 2.43) anterior mediante sesión N° 43-14 del 6 de octubre del 2014. No obstante la reforma indica que es al punto 2.42) el texto coincide con el punto 2.43))
+2.42 Venta de monedas en máquinas
+1 % sobre la venta, sin importar el monto.
+(Así reformado el punto 2.42) anterior en sesión N° 21 del 23 de mayo de 2016)
+2.43-Cobro de comisión por cheque tramitados a través de la Cámara de Compensación
+$1.00 el primer año y $0.5 de incremento adicional por cada año consecutivamente. Dicha comisión fue establecida por el Banco Central de Costa Rica.
+(Así reformado el punto 2.43) anterior en sesión N° 21 del 23 de mayo de 2016)
 2.44.- Pago de cheque viajero
 En colones: 1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
 (Así adicionado el punto 2.44 anterior mediante sesión 24-13 del 24 de junio del 2013)

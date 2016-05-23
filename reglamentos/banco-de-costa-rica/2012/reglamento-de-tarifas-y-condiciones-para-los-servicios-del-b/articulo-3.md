@@ -6,15 +6,15 @@ Para los productos de compras institucionales y BCR Distribución no pagarán co
 (Así reformado el punto 3.1) anterior en sesión N° 44 del 14 de octubre de 2015)
 3.2.- Comisión por adelanto de efectivo
 Tarjetas de crédito
-$1.00 + 4 % por avance efectivo utilizando cualquier medio disponible.
-Por los avances de efectivo de la BCR Compras institucionales, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente a fin de mes, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente. Para el producto tarjeta de crédito Proyecto Kristal no pagarán esta comisión cuando el adelanto de efectivo se realice por medio de ATM o el sitio web.
+$1.00 + 4 % por avance efectivo. Esta comisión no se cobrará cuando el adelanto de efectivo se realice por canales electrónicos (ATM´S, sitio web, Apps, IVR o cualquier otro canal electrónico que se implemente)
+Por los avances de efectivo de la BCR Compras institucionales, pagarán una comisión igual a la tasa básica pasiva del BCCR, vigente a fin de mes, más el margen que corresponda a una operación ubicada en el riesgo AAA en su límite inferior, ajustable mensualmente.
 Tarjetas de débito
 • $0.25 por avance efectivo en ATM´S del BCR después del quinto retiro en el mes, solamente en las cuentas cuyo saldo promedio semestral sea inferior a los $350.00.
 • $0.50 por avances efectivo en ATM´S dentro de los convenios que tenga el BCR (ATH y BNCR) y $0.25 para las consultas.
 • $3 +0.50% comisión por retiro de efectivo en ATM´S o en ventanilla en otros emisores internacionales o locales que no estén en convenio con el BCR.
 • $1 por cada transacción de avance o retiro de efectivo en ventanilla del BCR, excepto en las cuentas cuyo saldo promedio semestral sea mayor a $1.000.00 o cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
-(Así reformado el punto 3.2) anterior en sesión N° 44 del 14 de octubre de 2015)
-3.3.- Comisiones a negocios afiliados
+(Así reformado el punto 3.2) anterior en sesión N° 21 del 23 de mayo de 2016)
+3.3.-Comisiones a negocios afiliados
 $25.00 mensual por P.O.S. instalado en comercios afiliados con facturación mensual inferior a $1,000.00.
 (Así reformado el punto 3.3) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
 3.4.- Comisión por cargo administrativo por mora
@@ -69,9 +69,11 @@ $450 por cada dispositivo electrónico extraviado o con daño irreparable.
 3.17. Cobro por reposición de clave de acceso a la página www.bcrcompras.com $5
 (Así adicionado el punto 3.17) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
 (Así reformado el punto 3.17) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.18. Tarifa por reposición de datáfono (POS) extraviados o con daño irreparable por el comercio afiliado.
-$450 por cada dispositivo electrónico extraviado o con daño irreparable.
+3.18. -Comisión por alquiler de datáfonos (POS) inalámbricos (GPRS o WiFi)
+- $10 mensuales por POS instalado
+- $10 mensuales adicionales si el SIM Card’s (chip) para dispositivos GPRS es aportado por el Banco.
 (Así adicionado el punto 3.18) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Así reformado el punto 3.18) anterior en sesión N° 21 del 23 de mayo de 2016)
 3.19.- Tarjeta Priority Pass
 $27.00 por cada visita a las salas Priority Pass de aeropuertos
 (Así corrida su numeración mediante sesión N° 43-14 del 6 de octubre del 2014, que lo traspasó del antiguo punto 3.15 al 3.19)
