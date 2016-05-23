@@ -15,3 +15,4 @@ Reglamento Autónomo de Servicio de la Editorial Costa Rica
 | --- | --- | --- |
 | 1 | 2010-08-17 | la propia norma |
 | 2 | 2015-05-11 | Reglamento 2596 (2015-05-11) |
+| 3 | 2016-05-23 | Reglamento 2636 (2016-05-23) |
