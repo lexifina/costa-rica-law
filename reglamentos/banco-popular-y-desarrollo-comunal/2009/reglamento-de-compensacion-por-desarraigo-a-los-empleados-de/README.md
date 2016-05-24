@@ -14,3 +14,4 @@ Reglamento de Compensación por Desarraigo a los empleados del Banco Popular y d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2009-09-02 | la propia norma |
+| 2 | 2016-05-24 | Reglamento 5373 (2016-05-24) |

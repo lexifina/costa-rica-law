@@ -1,1 +1,1 @@
-Artículo 11.—La Dirección de Desarrollo Humano y Organizacional revisará periódicamente los montos que se pagan por concepto de compensación por desarraigo, con el propósito de adecuarlos a nuevas exigencias económicas que se produzcan.
+Artículo 11.—(Derogado en sesión N° 5373 del 24 de mayo de 2016)
