@@ -1,0 +1,1 @@
+Artículo 8º—Ajuste de la caución. La persona que presta servicio en la Municipalidad de Belén obligada a rendir caución, que por algún motivo sea trasladado de un puesto a otro que implique la obligación de rendir una caución mayor, deberá ajustar la garantía conforme a su nueva situación, para lo cual contará con un plazo de diez días hábiles a partir del acto respectivo.

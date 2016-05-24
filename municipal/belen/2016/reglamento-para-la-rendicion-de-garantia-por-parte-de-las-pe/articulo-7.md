@@ -1,0 +1,4 @@
+Artículo 7º—Revisión del listado de las personas que prestan servicio en la Municipalidad de Belén obligados a caucionar. Una vez al año el Director(a) del Área Administrativo – Financiera en conjunto con el Coordinador(a) de Recursos Humanos, revisarán el listado de las personas que prestan servicio en la Municipalidad de Belén obligadas a caucionar referenciado en el artículo anterior, para lo cual deberán considerar, entre otros aspectos:
+a) La existencia en forma separada o combinada de las funciones y actividades de administrar, custodiar o recaudar fondos y valores públicos.
+b) La confiabilidad y eficacia del sistema de control interno y el grado de riesgo de acuerdo con la valoración realizada.
+c) El nivel de responsabilidad, el monto administrado y el salario correspondiente a la persona caucionante.

@@ -1,0 +1,5 @@
+Artículo 4º—Momento para rendir la caución. La caución deberá de ser rendida, cuando así corresponda, una vez conocida por la persona la designación en el puesto y a más tardar en el décimo día hábil después de asumir el cargo. Con el fin de unificar conceptos, se establecen las siguientes definiciones:
+Administrar fondos públicos: corresponde a la persona que presta servicio en la Municipalidad de Belén que por sus atribuciones puede determinar los objetivos y políticas de la Municipalidad.
+Custodia de fondos o valores públicos: Son recursos, valores, bienes y derechos de naturaleza pública, de conformidad con el artículo 9 de la Ley Orgánica de la Contraloría General de la República.
+Custodio de fondos o valores públicos: Corresponde a la persona que presta servicio en la Municipalidad de Belén que por la índole de sus responsabilidades, guarda o tiene a su cargo recursos, bienes o derechos públicos.
+Recaudador de fondos o valores públicos: corresponde a la persona que presta servicio en la Municipalidad de Belén que por sus responsabilidades cobra o percibe rentas públicas (fondos o valores públicos).
