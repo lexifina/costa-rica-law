@@ -14,3 +14,4 @@ Manual para el otorgamiento de premios "Médico del Mes y Premio a la Excelencia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-01-15 | la propia norma |
+| 2 | 2016-05-25 | Reglamento 0 (2016-05-25) |
