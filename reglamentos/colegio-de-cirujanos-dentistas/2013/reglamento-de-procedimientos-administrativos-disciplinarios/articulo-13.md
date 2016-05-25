@@ -1,0 +1,1 @@
+Artículo 13- Inicio de la instrucción: Presentada la denuncia y cumplidas las formalidades que se requieren, la Junta Directiva trasladará el expediente al Tribunal de Honor, para que siguiendo el debido proceso, ordene la conformación de un órgano.

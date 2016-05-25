@@ -1,0 +1,1 @@
+Artículo 19- Dirección de la audiencia: La audiencia será dirigida por quien ejerza el cargo de Coordinador, por encargo de la Ley Orgánica o por quien haya sido designado como Coordinador por parte del Tribunal de Honor, según corresponda. En ausencia de éstos, dirigirá la audiencia la persona que los propios órganos designen.

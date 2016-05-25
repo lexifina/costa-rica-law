@@ -1,0 +1,1 @@
+Artículo 25- Conclusiones: Finalizada la fase probatoria, cada parte podrá plantear sus alegatos de conclusiones. Para ello, se concederá un término de diez a quince minutos a cada parte. Después de las conclusiones, se tendrá por concluida la audiencia. No obstante lo anterior, se podrá conceder a las partes un plazo para que presenten sus alegatos de conclusiones por escrito.

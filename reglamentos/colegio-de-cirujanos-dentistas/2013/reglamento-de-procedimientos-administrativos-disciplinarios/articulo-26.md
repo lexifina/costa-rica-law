@@ -1,0 +1,1 @@
+Artículo 26- Suspensión de la audiencia: Si por lo avanzado de la hora o por así requerirlo el caso, sea necesario suspender la audiencia, se programará la continuación para la fecha más cercana posible. La programación de una segunda audiencia no dará lugar a evacuar prueba que haya sido declarada inevacuable.

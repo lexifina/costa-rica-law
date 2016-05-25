@@ -1,0 +1,1 @@
+Artículo 33- Notificación en el Jugar o medio señalado: Será absolutamente nula la notificación realizada en un lugar o medio distinto al señalado por las partes, salvo que dicha notificación se realice personalmente al interesado.

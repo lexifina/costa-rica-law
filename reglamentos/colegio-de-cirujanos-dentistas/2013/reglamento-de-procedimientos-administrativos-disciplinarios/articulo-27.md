@@ -1,0 +1,1 @@
+Artículo 21- Deliberación y resolución: Finalizada la audiencia o su continuación, en los casos en que se haya ordenado así, el órgano encargado procederá a resolver el asunto. Sea una recomendación en veinte días hábiles a partir de la finalización de la audiencia para tales efectos.

@@ -1,0 +1,1 @@
+Artículo 22- Cuestiones incidentales: De fracasar la fase de conciliación, proseguirá la audiencia con el planteamiento y la resolución de las cuestiones incidentales que se presenten, las cuales deberán ser planteadas de manera oral en la audiencia.

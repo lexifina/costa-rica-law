@@ -1,0 +1,1 @@
+Artículo 35- Derogatoria: El presente Reglamento deroga el Reglamento de Procedimientos Administrativos Disciplinarios aprobado en Asamblea General extraordinaria No. 49, celebrada el 31 de mayo del 2011 y publicado en La Gaceta No. 134 del 12 de julio de 2011 y cualquier otra disposición que se le oponga.

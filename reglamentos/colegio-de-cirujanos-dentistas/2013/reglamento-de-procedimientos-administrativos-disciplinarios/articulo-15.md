@@ -1,0 +1,1 @@
+Artículo 15- Audiencía oral y privada: Se convocará a una audiencia oral y privada donde se escucharán los alegatos de cada una de las partes, se evacuará la prueba, se oirán las conclusiones de las partes y el Órgano Director procederá a dictar la recomendación final. Las partes deberán ser convocadas a la audiencia con un plazo mínimo de quince días hábiles de antelación.

@@ -1,0 +1,5 @@
+Artículo 3: Competencia de la Junta Directiva: Le corresponde a la Junta Directiva del Colegio de Cirujanos Dentistas:
+a. Una vez aceptada y conocida la admisibilidad de una denuncia, conformar al Tribunal de Honor como Órgano Director del Procedimiento, según las disposiciones del artículo 37 de la Ley Orgánica.
+b. Decretar la admisibilidad o inadmisibilidad de una denuncia de oficio planteada por el Fiscal del Colegio. En caso de ser admitida la denuncia, ordenar dar inicio al debido proceso.
+c. La Junta Directiva una vez que ha aceptado la admisibilidad de una denuncia, conforme lo indican los incisos a. y b. de este artículo, la remitirá al Tribunal de Honor, para lo que corresponda.
+d. En todos aquellos casos en los cuales se presuma la existencia de una conducta delictiva, deberá el Colegio de Cirujanos Dentistas de Costa Rica, hacerlo del conocimiento del Ministerio Público o las autoridades administrativas y gubernamentales correspondientes para lo de su cargo. El incumplimiento a esta obligación tendrá las consecuencias penales y civiles que el ordenamiento jurídico establece.

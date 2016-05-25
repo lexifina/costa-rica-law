@@ -1,0 +1,1 @@
+Artículo 10- Motivos de impedimento y recusación: Serán motivos de impedimento y recusación los mismos previstos en el Código Procesal Civil y la Ley Orgánica del Poder Judicial. Los motivos de abstención serán aplicables a los miembros de la Junta Directiva, Tribunal de Honor y Órganos de Instrucción del Procedimiento.

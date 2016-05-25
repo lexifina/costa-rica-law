@@ -1,0 +1,1 @@
+Artículo 24- Valoración de la prueba: La prueba será valorada de conformidad con las reglas de la sana crítica racional y en resguardo de los Derechos de las partes y la verificación de la verdad real de los hechos.
