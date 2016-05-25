@@ -1,0 +1,2 @@
+Artículo 66° Autorización para dictar un Manual de Procedimientos para los Arreglos de Pago.-
+Se autoriza a la Alcaldía Municipal para que en coordinación con Gestión de Cobros y la Asesoría Jurídica Municipal proceda a dictar un Manual de Procedimientos para la regulación de los Arreglos de Pago en Sede Administrativa y Judicial de conformidad con este Reglamento y el cual se incorporará a este Reglamento una vez puesto en conocimiento del Concejo Municipal.

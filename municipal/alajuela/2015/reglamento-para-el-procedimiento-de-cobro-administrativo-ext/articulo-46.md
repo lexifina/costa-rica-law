@@ -1,0 +1,1 @@
+Artículo 46° Los abogados que por fuerza mayor no puedan atender los procesos enviados para cobro, deberán comunicarlo a la administración con quince días de anticipación y enviar la totalidad de los expedientes judiciales que tienen en su poder a la Oficina de Cobro Administrativo.

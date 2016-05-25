@@ -1,0 +1,2 @@
+Sección II De las notificaciones
+Artículo 17° Las notificaciones serán practicadas por los notificadores municipales o quien designe la Municipalidad. Cuando deba practicarse una notificación fuera del asiento municipal, el notificador municipal deberá desplazarse hasta el domicilio conocido, sin perjuicio de los convenios que celebre esta Municipalidad con instituciones que coadyuven a realizar la comisión, de acuerdo con las normas vigentes que sobre el particular faculte el ordenamiento jurídico nacional.

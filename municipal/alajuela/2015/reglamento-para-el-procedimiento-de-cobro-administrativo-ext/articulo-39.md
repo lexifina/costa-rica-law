@@ -1,0 +1,1 @@
+Artículo 39° Los abogados nombrados no podrán aceptar casos de litigio en contra de la Institución. El no cumplimiento de esta disposición será motivo para resolver unilateralmente el contrato de conformidad con el artículo 204 del Reglamento a la Ley de Contratación Administrativa.

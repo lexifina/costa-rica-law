@@ -1,0 +1,1 @@
+Artículo 26° Toda la documentación relativa a arreglos de pago estará en custodia de la oficina de cobro administrativo y de ser necesario la remitirá a los abogados externos que contrate la Municipalidad, para que realicen las gestiones de cobro judicial correspondiente.

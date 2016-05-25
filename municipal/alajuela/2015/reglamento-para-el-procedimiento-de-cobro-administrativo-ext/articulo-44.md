@@ -1,0 +1,1 @@
+Artículo 44° Todo pago de impuestos, multas e intereses lo realizará el contribuyente ante la oficina de Cobro en las cajas de la Municipalidad y le entregará una copia del recibo al abogado director del proceso judicial a efecto de que sea suspendido el juicio respectivo.
