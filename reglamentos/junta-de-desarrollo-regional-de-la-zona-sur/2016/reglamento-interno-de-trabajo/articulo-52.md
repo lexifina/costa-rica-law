@@ -1,0 +1,2 @@
+Artículo 52.- Despido por acoso sexual.
+Quien formule una denuncia por hostigamiento sexual, sólo podrá ser despedido por causa justificada, originada en falta grave a los deberes derivados del contrato laboral, según lo establecido en el artículo 81 del Código de Trabajo. De presentarse una de estas causales, el patrono tramitará el despido ante la Dirección Nacional e Inspección General de Trabajo, donde deberá demostrar la existencia de la falta.

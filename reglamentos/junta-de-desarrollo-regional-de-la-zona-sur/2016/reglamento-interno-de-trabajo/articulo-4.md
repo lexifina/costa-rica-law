@@ -1,0 +1,14 @@
+Artículo 4: Definiciones
+En este reglamento se entenderá por:
+a) JUDESUR: La Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas
+b) Patrono: La Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas, con domicilio en Golfito, Barrio Parroquial, 2do piso del edificio del Banco Nacional de Costa Rica.
+c) Funcionarios: Toda persona física que preste sus servicios en forma personal y subordinada a JUDESUR, a cambio de un salario.
+d) Funcionario en propiedad: Aquel que de conformidad con la normativa o regulaciones vigentes es nombrado en un puesto por plazo indefinido,
+e) Funcionario Interino: Aquel que de conformidad con la normativa o regulaciones vigentes, es nombrado en un puesto por un plazo definido.
+f) Funcionario a prueba: Aquel que se encuentre cumpliendo el periodo de prueba para obtener la propiedad en el puesto.
+g) Representantes Patronales: El Presidente y Vicepresidente de la Junta Directiva y el Director Ejecutivo de JUDESUR, y en general todas aquellas personas que debidamente autorizadas por ellos ejerzan dentro de JUDESUR funciones de dirección, administración o de ambos géneros. Los representantes patronales obligan al patrono, en las relaciones que tengan con los trabajadores de JUDESUR como si éste personalmente hubiera realizado el acto o actos de que se trate y en general a todos aquellos funcionarios considerados en el artículo 5° del Código de Trabajo.
+h) Profesionales: Son todos aquellos funcionarios que poseen conocimientos académicos avanzados. Se clasifican dentro de esta categoría a los; Bachilleres Universitarios, Licenciados en cualquier disciplina o área de estudio, Posgrados, Maestrías, Doctorados y otras especialidades obtenidas en un centro de Educación Superior, estatal o privada, reconocido por CONESUP, e incorporados al Colegio Profesional respectivo. Sin excepción, ningún puesto profesional podrá ser ocupado por un funcionario que no reúna tal condición.
+i) Técnicos: Todos aquellos que ocupan puestos intermedios y tienen idoneidad en su área de trabajo.
+j) Administrativos: Todos aquellos trabajadores que están a cargo de funciones de actividad ordinaria y que por su naturaleza del trabajo, no se requiere un grado o título de educación superior o formación técnica especializada para su ejercicio.
+k) Uniformes: Ropa diseñada para labores de oficina, cuyo estilo será elegido por los superiores jerárquicos de la Institución, en coordinación con la comisión, comprende camisa manga larga y pantalón para los hombres, blusa, enagua o pantalón para las mujeres, previa consulta con la comisión.
+l) ll) Uniforme de trabajo: Ropa diseñada para labores de campo, cuyo estilo será elegido por los superiores jerárquicos de la institución, comprende camisa tipo tshirt de cuello de solapa, pantalón y zapatos de trabajo, previa consulta con la comisión.

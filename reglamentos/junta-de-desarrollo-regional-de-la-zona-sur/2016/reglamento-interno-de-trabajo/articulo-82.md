@@ -1,0 +1,2 @@
+Artículo 82.- Modificaciones.
+La Institución podrá adicionar o modificar, en cualquier momento, las disposiciones de este Reglamento, sin menoscabo de los derechos adquiridos por los trabajadores, por acuerdo de la Junta Directiva de JUDESUR. Dichas modificaciones deberán someterse para trámite de conocimiento y aprobación de la Secretaría Técnica de la Autoridad Presupuestaria y Dirección de Asuntos Jurídicos del Ministerio de Trabajo y Seguridad Social, del sindicato y la asociación solidarista, previo a su posterior publicación en el Diario Oficial LA GACETA.

@@ -1,0 +1,5 @@
+Artículo 17: Recargo de funciones.
+A los funcionarios sólo se les podrá hacer recargo de labores para asumir temporalmente funciones de un puesto de mayor nivel salarial. Únicamente puede ser sujeto de remuneración cuando el recargo se utilice para cubrir las ausencias del titular del puesto de mayor nivel salarial, en caso de vacaciones, licencias con goce de salario e incapacidades que excedan un mes calendario ininterrumpidamente.
+La determinación de la procedencia del recargo de funciones y su respectiva remuneración corresponderá a la Dirección Ejecutiva en coordinación con la Jefatura involucrada. Debiendo apegarse a los lineamientos establecidos por las directrices emitidas por La Autoridad Presupuestaria.
+La remuneración del recargo de funciones según sea el caso se podrá reconocer así:
+a. El monto a reconocer será igual al salario base del trabajador, más la diferencia entre los salarios base de ambos puestos. Además de los pluses con que cuente el puesto asumido como recargo.
