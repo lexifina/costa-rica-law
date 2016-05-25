@@ -1,0 +1,1 @@
+Artículo 3º—De la integración. En la integración de comisiones se debe cumplir lo dispuesto en los Artículos 36, 37 y 38 del Reglamento de la Ley Orgánica del Colegio. La Junta Directiva podrá delegar en comisiones temas específicos que consideren pertinentes. Los miembros de las comisiones serán juramentados en sesión de Junta Directiva.
