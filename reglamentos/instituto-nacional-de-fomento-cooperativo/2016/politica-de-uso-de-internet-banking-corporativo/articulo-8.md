@@ -1,0 +1,1 @@
+Artículo 8: Límites institucionales: Las operaciones de débito que se realicen tendrán como límite máximo diario un monto de dos mil millones de colones exactos (¢2.000.000.000.00), esto como medida de seguridad en resguardo de los fondos institucionales.

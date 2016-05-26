@@ -1,0 +1,4 @@
+Artículo 12: Responsabilidad de la entidad bancaria: Las entidades bancarias que brinden el servicio de su plataforma de internet banking, serán responsables por cualquier daño en los fondos de la institución, en los siguientes supuestos:
+· En aquellos casos en que se determine que ha incurrido en alguna situación de responsabilidad al amparo de lo establecido en los artículos 190 de la Ley General de la Administración Pública.
+· En situaciones comprobadas de actuar amparado a la responsabilidad objetiva al tenor de lo regulado en el artículo 35 de la Ley de protección y defensa efectiva del consumidor.
+· Cuando se demostrare que alguna situación fraudulenta se llevó a cabo por el acceso que se obtuvo de la clave o dispositivo de seguridad en virtud de fragilidades de sus propios sistemas o equipos, o con intervención de actuaciones irregulares de personas a su servicio.

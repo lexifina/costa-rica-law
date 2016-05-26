@@ -1,0 +1,1 @@
+Artículo 9: Cuentas favoritas: Se recomienda que una vez que se establezca una operación recurrente, de la naturaleza que sea, se registre como una cuenta favorita, en resguardo de los fondos institucionales. Sin perjuicio de que se utilicen las demás herramientas que habiliten las plataformas, siempre y cuando no contravengan lo dispuesto en la presente política.
