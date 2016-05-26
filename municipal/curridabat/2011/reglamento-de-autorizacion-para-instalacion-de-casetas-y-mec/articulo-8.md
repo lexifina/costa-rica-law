@@ -3,10 +3,12 @@ a) Establecer nombre, los apellidos, las firmas y demás calidades de al menos u
 b) Descripción de la cantidad de casas habitadas o locales de cualquier tipo, en el barrio, caserío o residencial en el que se solicita la autorización.
 c) Establecer lugar para recibir notificaciones.
 d) La firmas de los vecinos que ostentan la representación de la organización vecinal que se indicada en el inciso a) deben ser autenticadas por notario público, en el caso de estar organizados bajo persona jurídica se deberá aportar personería jurídica al día.
-e) Adjuntar copia del precontrato, contrato o documento idóneo, en el que conste la existencia de la prestación, real y eventual del servicio de seguridad.
-f) Certificación de acreditación de la empresa de seguridad y cada uno sus funcionarios que brindan el servicio, debidamente emitida por la Dirección de Servicios de Seguridad Privada del Ministerio de Seguridad Pública.
+e)Adjuntar copia del documento idóneo que acredite la existencia de personal de seguridad para la atención del mecanismo de vigilancia.
+(Así reformado el inciso anterior por el acuerdo 12 de la sesión N° 004-2016 del 26 de mayo de 2016)
+f) (Derogado mediante el acuerdo N° 12 de la sesión N° 004-2016 del 26 de mayo de 2016)
 g) Aportar el diseño básico de la caseta, su ubicación exacta y una solución de servicio sanitario; se deben guardar los principios de razonabilidad y proporcionalidad pertinentes.
 h) Cumplir con el diseño de construcción y la utilización de los materiales apropiados para la caseta, según las normas establecidas en el plan regulador del cantón.
 i) Cuando el lugar donde se desee ubicar la caseta sea propiedad privada, deberá adjuntarse nota de autorización del propietario del inmueble, para la ejecución de dicha obra; esta autorización deberá estar autenticada por notario público. Los vecinos que la realicen deberán gestionar los permisos y cancelar el impuesto de construcción respectivo ante la Municipalidad de Curridabat.
-j) Indicación precisa del tipo de mecanismos de vigilancia de acceso que se desea instalar.
+j) Indicación precisa del tipo de mecanismos de vigilancia de acceso que se desea instalar y el horario del mismo.
+(Así reformado el inciso anterior por el acuerdo 12 de la sesión N° 004-2016 del 26 de mayo de 2016)
 k) Ubicación propuesta de los mecanismos de vigilancia de acceso, que establezca una relación clara respecto de la caseta de seguridad correspondiente.

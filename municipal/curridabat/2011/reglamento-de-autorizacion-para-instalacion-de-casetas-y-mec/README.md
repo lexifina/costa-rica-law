@@ -14,3 +14,4 @@ Reglamento de autorización para instalación de casetas y mecanismos de vigilan
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-09 | la propia norma |
+| 2 | 2016-05-26 | Reglamento municipal 4 (2016-05-26) |
