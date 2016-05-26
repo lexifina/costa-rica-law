@@ -1,0 +1,3 @@
+Artículo 8º—Bienes asignados a los Comités de Emergencia: En el caso de los bienes asignados a los Comités de Emergencia, en concordancia con lo establecido en el Reglamento correspondiente a los Comités, estarán a cargo de cada Oficial de Enlace, quien los tendrá bajo su responsabilidad según su región operativa.
+Del mismo modo los bienes y activos que hayan sido adquiridos por la Unidad de Gestión de Operaciones para cada una de las Regiones, estarán a cargo del Oficial de Enlace al que se le haya asignado.
+En el caso en que el Oficial de Enlace cambie de Región, deberá entregar a su sucesor un inventario detallado de los bienes y activos que quedan en su custodia, con copia al Administrador de Bienes de la CNE.

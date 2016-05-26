@@ -1,0 +1,4 @@
+Artículo 9º—De las prohibiciones: Quedará prohibido para todos los funcionarios de esta Institución lo siguiente:
+a) Abandonar bienes institucionales fuera de las áreas de los departamentos correspondientes alegando que no son de utilidad o que se encuentran dañados o en su defecto realizar cambios de bienes y activos sin el uso adecuado de los mecanismos de control establecidos por la Unidad de Activos, de manera tal que el funcionario que realice este tipo de actividades, podrá ser sancionado mediante el procedimiento administrativo correspondiente.
+b) Utilizar bienes y activos de la CNE para fines personales o no autorizados, o para otras funciones que difieran de las que originalmente fueron asignadas.
+c) Sacar activos que hayan ingresado a la Bodega Central sin su respectivo número de activo; quedan excluidos de este procedimiento activos que se requiera su utilización en una situación de emergencia.

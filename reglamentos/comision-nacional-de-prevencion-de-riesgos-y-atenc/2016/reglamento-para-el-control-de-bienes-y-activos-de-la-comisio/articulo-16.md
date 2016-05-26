@@ -1,0 +1,1 @@
+Artículo 16.—De los activos ociosos: Cuando proceda la Administración reubicará los activos ociosos hacia otras dependencias. En caso contrario la Administración deberá utilizar los medios más eficientes y acordes al marco legal para el mejor aprovechamiento de los activos en mención para su almacenamiento o su venta.

@@ -1,0 +1,1 @@
+Artículo 14.—Recepción de donaciones: Ningún funcionario está autorizado para recibir donaciones de bienes o activos en nombre de la CNE, excepto aquellos casos autorizados expresamente por la Administración Superior, o la ley, de tal manera que aquel Funcionario que detecte esta situación, tendrá la obligación de comunicarla a las autoridades correspondientes.

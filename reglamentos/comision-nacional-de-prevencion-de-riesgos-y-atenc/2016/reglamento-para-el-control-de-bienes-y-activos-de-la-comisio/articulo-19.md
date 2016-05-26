@@ -1,0 +1,1 @@
+Artículo 19.—Inventario Anual: Se realizará un inventario anual que abarcará la totalidad de los activos y bienes institucionales tanto en la sede central de la CNE como en el resto del territorio nacional.

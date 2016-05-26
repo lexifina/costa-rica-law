@@ -1,0 +1,1 @@
+Artículo 25.—Normativa Disciplinaria Aplicable: La instrucción del procedimiento disciplinario se realizará de conformidad con lo que establece el Reglamento Autónomo de Organización y Servicio de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias y cualquier otra aplicable.

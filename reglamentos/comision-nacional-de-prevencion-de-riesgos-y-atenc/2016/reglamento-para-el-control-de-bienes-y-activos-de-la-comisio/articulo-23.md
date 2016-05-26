@@ -1,0 +1,1 @@
+Artículo 23.—Validez del inventario: Para dar la validez necesaria al ejercicio contable, en los inventarios, para su realización debe participar funcionarios del Proceso Contable y trabajar en manera coordinada con el Administrador de Bienes Institucional.

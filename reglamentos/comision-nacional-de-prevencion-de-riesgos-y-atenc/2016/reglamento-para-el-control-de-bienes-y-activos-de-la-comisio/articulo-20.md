@@ -1,0 +1,1 @@
+Artículo 20.—Bienes y Activos asignados a la Unidad de Operaciones y al Proceso de Comunicaciones: Se solicitará al Proceso de Logística la remisión de manera clara de la información sobre la ubicación y funcionario responsable de los bienes y activos asignados a los Procesos de Comunicaciones y Operaciones en los distintos puntos del país.

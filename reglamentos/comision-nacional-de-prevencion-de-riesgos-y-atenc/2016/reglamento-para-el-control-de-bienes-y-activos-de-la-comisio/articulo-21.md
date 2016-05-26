@@ -1,0 +1,1 @@
+Artículo 21.—Colaboración en la labor de inventario: El Proceso de Activos institucional podrá solicitar la participación de personal adicional de Comunicaciones, Logística y Operaciones para la realización del inventario según ubicación geográfica de los bienes y activos.

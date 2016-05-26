@@ -1,0 +1,3 @@
+Artículo 7º—Obligaciones propias del Proceso de Bodega: El Coordinador del Proceso de Bodega tendrá las siguientes obligaciones:
+a) Todo activo o bien que ingrese al Proceso de Bodega, será asignado al Coordinador o Jefe del Proceso que adquirió o solicitó el bien, y será trasladado de su custodia, hasta que el mismo sea asignado a un subordinado del proceso bajo su responsabilidad, o bien a aquel que la Administración Superior determine.
+b) Los bienes y activos que salgan de la Bodega institucional sin cumplir los formalismos establecidos para la salida de bienes y activos, de donde están almacenados, serán responsabilidad del Coordinador del Proceso de Bodega.
