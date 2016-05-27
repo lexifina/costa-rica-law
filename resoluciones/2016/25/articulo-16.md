@@ -1,0 +1,2 @@
+Artículo 16°.- Obligación de presentar declaraciones informativas.
+En el momento en que la Administración Tributaria disponga el uso obligatorio del formulario respectivo, deberán presentar la declaración informativa los donantes y todos los entes a quienes se les haya autorizado para recibir donaciones, así como aquellos a los que por ley se les conceda ese beneficio, incluyendo al Estado y sus instituciones autónomas y semiautónomas y otras entidades que no requieran la autorización de la Administración Tributaria.
