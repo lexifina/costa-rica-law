@@ -18,3 +18,6 @@ p) Asistir a las asambleas ordinarias y extraordinarias, del sindicato o asociac
 q) Contar con los instrumentos, equipo y materiales mínimos que le permitan ejecutar su trabajo de manera oportuna, adecuada y eficiente.
 r) Al reconocimiento pleno de los derechos establecidos en el presente Reglamento, cuando se den las condiciones establecidas al efecto.
 s) A recibir atención de médico de empresa, de acuerdo a las posibilidades presupuestarias de la Institución.
+t) Todas las personas servidoras tienen derecho a que no se les discrimine en su trabajo por razones de edad, etnia, género, orientación sexual, identidad de género, religión, orientación política o por discapacidad, o que se les cese en sus funciones por tales razones.
+Además, tienen derecho a que se les reconozca la identidad de género, de conformidad con el marco jurídico vigente.
+(Así adicionado el inciso anterior en sesión N° 211 del 27 de mayo de 2016)

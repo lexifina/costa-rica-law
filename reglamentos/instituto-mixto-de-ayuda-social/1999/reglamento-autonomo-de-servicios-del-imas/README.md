@@ -19,3 +19,4 @@ Reglamento Autónomo de Servicios del IMAS
 | 4 | 2007-05-14 | Reglamento 0 (2007-05-14) |
 | 5 | 2013-11-21 | Reglamento 0 (2013-11-21) |
 | 6 | 2015-06-03 | Reglamento 0 (2015-06-03) |
+| 7 | 2016-05-27 | Reglamento 211 (2016-05-27) |

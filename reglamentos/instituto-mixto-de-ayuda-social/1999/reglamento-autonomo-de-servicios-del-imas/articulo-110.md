@@ -1,6 +1,6 @@
 CAPITULO XIV
 De las prohibiciones a los servidores del IMAS
-Artículo 110.—Además de lo dispuesto en los artículos 72 del Código de Trabajo, 40 del Estatuto de Servicio Civil, artículo 51 del Reglamento del Estatuto del Servicio Civil, artículo 107 de la Ley de la Administración Financiera de la República, artículos 22, 23 y 24 de la Ley de Contratación Administrativa y otras disposiciones del presente Reglamento, queda absolutamente prohibido a los servidores del IMAS:
+Artículo 110.— Además de lo dispuesto en los artículos 72 del Código de Trabajo, 40 del Estatuto de Servicio Civil, artículo 51 del Reglamento del Estatuto del Servicio Civil, artículo 107 de la Ley de la Administración Financiera de la República, artículos 22, 23 y 24 de la Ley de Contratación Administrativa y otras disposiciones del presente Reglamento, queda absolutamente prohibido a los servidores del IMAS:
 1. Utilizar tiempo dentro de su jornada de trabajo para atender asuntos personales o ajenos a las funciones que le han sido asignadas.
 2. Dar órdenes a sus subalternos para que ejecuten labores ilegales o extrañas a las funciones que le han sido asignadas o reñidas con el servicio público que la Institución brinda.
 3. Incurrir en agresión de palabra o de hecho en contra de la dignidad e integridad física del cliente de la Institución.
@@ -23,7 +23,8 @@ Artículo 110.—Además de lo dispuesto en los artículos 72 del Código de Tra
 20. Recurrir a la violencia, las vías de hecho o de palabra a fin de resolver las dificultades que surjan durante la realización de las labores o con ocasión de las mismas.
 21. Fumar en la sede de trabajo, vehículos propiedad de la Institución, pasillos, servicios sanitarios y otros lugares que estén bajo techo y sean de uso colectivo, salvo lugares destinados al efecto.
 22. Incurrir en conductas que puedan ser consideradas como manifestaciones de acoso u hostigamiento sexual de conformidad con la normativa aplicable al efecto.
-23. Dar un trato discriminatorio en contra de los proveedores o beneficiarios de los programas institucionales por razón de género, raza, credo religioso, opinión política, u orientación sexual.
+23. Incurrir en prácticas discriminatorias hacia ninguna persona servidora o usuaria de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión, orientación política o discapacidad.
+(Así reformado el inciso anterior en sesión N° 211 del 27 de mayo de 2016)
 24. Ejercer presión, hostigar, acosar, tomar represalia contra los servidores o subalternos a fin de obtener provecho personal o de terceros o con el propósito de modificar criterios técnicos o de alguna forma coaccionar el actuar ordinario del funcionario.
 25. Alterar controles de asistencia o consentir que otras personas lo hagan.
 26. Ausentarse de sus funciones durante la jornada laboral sin causa justificada o sin permiso del superior.
