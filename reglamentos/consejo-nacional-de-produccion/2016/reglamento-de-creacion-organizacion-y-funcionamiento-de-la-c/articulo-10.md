@@ -1,0 +1,1 @@
+Artículo 10.—Actuaciones. La Contraloría de Servicios, será competente para actuar de oficio o a petición de parte de los clientes internos o externos de cualquier servicio prestado por la Institución, realizar investigaciones, visitas a las dependencias y requerir la información pertinente para el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 9°—Libre acceso a los Departamentos de la Institución. La Contraloría de Servicios, tendrá libre acceso en cualquier momento a todos los archivos y documentos electrónicos o escritos de la Institución, así como a otras fuentes de información, y sobre ellos tendrá el deber de confidencialidad.

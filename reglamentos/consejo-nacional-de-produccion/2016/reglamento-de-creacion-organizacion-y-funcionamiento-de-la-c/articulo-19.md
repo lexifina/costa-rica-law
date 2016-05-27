@@ -1,0 +1,1 @@
+Artículo 19—Deber de atención. La Contraloría tendrá la responsabilidad de atender las quejas y sugerencias que se presenten y realizar incluir y gestionar ante las dependencias que corresponda la auditoría y corrección de lo pertinente para monitorear los niveles de eficacia en el servicio.

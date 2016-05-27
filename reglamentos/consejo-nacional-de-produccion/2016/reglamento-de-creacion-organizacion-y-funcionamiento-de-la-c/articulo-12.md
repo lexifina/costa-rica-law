@@ -1,0 +1,1 @@
+Artículo 12.—Suspensión de la tramitación de un caso. La Contraloría de Servicios, no dará inicio o en su defecto suspenderá el trámite de una investigación, cuando el mismo hecho esté siendo investigado por otra instancia administrativa competente para resolver, de lo cual se dejará constancia en el expediente.

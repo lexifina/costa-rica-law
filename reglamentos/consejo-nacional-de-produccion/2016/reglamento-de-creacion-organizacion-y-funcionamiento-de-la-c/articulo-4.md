@@ -1,0 +1,1 @@
+Artículo 4º—Obligación de colaboración. Todas las dependencias y funcionarios del Consejo Nacional de Producción estarán atentos y con la debida coordinación prestar su colaboración a la Contraloría de Servicios, cuando esta lo requiera, como parte de las responsabilidades derivadas de su relación laboral.
