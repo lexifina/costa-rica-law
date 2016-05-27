@@ -1,2 +1,4 @@
-ARTÍCULO 6.- Ajuste del impuesto rojo
-Este impuesto será ajustado en enero de cada año, conforme a la tasa de inflación del país, determinada por el Banco Central de Costa Rica.
+Artículo 6.- Finalidad de la contribución parafiscal
+La entidad acreedora de la contribución parafiscal aquí creada es la Asociación Cruz Roja Costarricense.
+La Asociación Cruz Roja Costarricense deberá presentar un informe anual de rendición de cuentas a la Contraloría General de la República y a la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos de la Asamblea Legislativa, a más tardar el 31 de enero de cada año, que contemple los siguientes aspectos: la ejecución presupuestaria relativa al uso y el destino de los recursos asignados en esta ley, el cumplimiento de metas y evaluación de resultados, los costos unitarios de productos o actividades financiados con recursos generados en aplicación de esta ley, los niveles de cobertura de los servicios que presta la Cruz Roja, la inversión en equipos y los resultados sobre el fortalecimiento institucional central y el de los comités auxiliares.
+En ningún caso, la Asociación Cruz Roja Costarricense podrá utilizar más del veinte por ciento (20%) de estos recursos en gastos administrativos.
