@@ -15,3 +15,4 @@ Calendario Anual de Sorteos y Planes de Premios de Loterías 2016
 | --- | --- | --- |
 | 1 | 2015-12-14 | la propia norma |
 | 2 | 2016-02-18 | Acuerdo 141 (2016-02-18) |
+| 3 | 2016-05-27 | Acuerdo 575 (2016-05-27) |

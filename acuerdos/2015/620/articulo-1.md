@@ -2,7 +2,7 @@ JUNTA DE PROTECCIÓN SOCIAL
 CALENDARIO ANUAL DE SORTEOS Y PLANES
 DE PREMIOS DE LOTERÍAS 2016
 Calendario de Sorteos de Loterías y planes de premios 2016, aprobados por la Junta Directiva de la Junta de Protección Social, según Acuerdos JD-620 correspondiente al artículo I) de la sesión extraordinaria 16-2015 celebrada el 10 de setiembre del 2015; JD-812, correspondiente al artículo V), inciso 4), de la sesión ordinaria Nº 40-2015 celebrada el 9 de noviembre del 2015, JD-830 correspondiente al artículo V), de la sesión extraordinaria 19-2015 celebrada el 12 de noviembre del 2015; JD-900 correspondiente al artículo V), inciso 3) de la sesión ordinaria 43-2015, celebrada el 30 de noviembre del 2015 y JD-901 correspondiente al artículo V), inciso 4) de la sesión ordinaria 43-2015 celebrada el 30 de noviembre del 2015.
-Este Calendario se encuentra sujeto a modificaciones, en cumplimiento de los fines públicos asignados a la Junta de Protección Social y para garantizar la seguridad económica de las loterías que en forma exclusiva administra y distribuye en el territorio nacional, según lo establecido en el artículo N° 2 de la Ley N°7395 “Ley de Loterías”.
+Este Calendario se encuentra sujeto a modificaciones, en cumplimiento de los fines públicos asignados a la Junta de Protección Social y para garantizar la seguridad económica de las loterías que en forma exclusiva administra y distribuye en el territorio nacional, según lo establecido en el artículo N° 2 de la Ley N°7395 "Ley de Loterías".
 INFORMACIÓN GENERAL
 REALIZACIÓN DE LOS SORTEOS DE LOTERÍA
 Los Sorteos de Lotería Nacional (Ordinarios y Extraordinarios), Lotería Popular (Ordinarios, y Súper Extraordinario Viernes Negro), Lotería Tiempos (Impresos), Lotería Nuevos Tiempos, Lotería Lotto y el programa de la Rueda de la Fortuna se celebran en el Auditorio de la Junta de Protección Social u otro lugar que previamente determine la Institución, en presencia del público que desee asistir al acto.
@@ -41,7 +41,7 @@ SORTEOS ORDINARIOS
 BILLETE | FRACCIÓN | PREMIO MAYOR
 ¢2.500 | ¢500 | ¢50.000.000
 LOTERIA POPULAR: El 25 de noviembre del 2016
-SORTEO SÚPER EXTRAORDINARIO “VIERNES NEGRO”
+SORTEO SÚPER EXTRAORDINARIO "VIERNES NEGRO"
 BILLETE | FRACCIÓN | PREMIO MAYOR
 ¢10.000 | ¢1000 | ¢220.000.000
 LOTERÍA TIEMPOS: De enero a diciembre
@@ -77,7 +77,7 @@ FECHA | SORTEO | BILLETE | FRACCIÓN | PREMIO MAYOR
 1 DE ABRIL | 5 FRACCIONES | ₡2.500 | ₡500 | ₡50.000.000
 29 DE JULIO | 5 FRACCIONES | ₡2.500 | ₡500 | ₡50.000.000
 30 DE SETIEMBRE | 5 FRACCIONES | ₡2.500 | ₡500 | ₡50.000.000
-SORTEO SÚPER EXTRAORDINARIO DE LOTERÍA POPULAR “VIERNES NEGRO” 2016
+SORTEO SÚPER EXTRAORDINARIO DE LOTERÍA POPULAR "VIERNES NEGRO" 2016
 FECHA | SORTEO | BILLETE | FRACCIÓN | PREMIO MAYOR
 VIERNES 25 DE
 NOVIEMBRE VIERNES NEGRO ₡10.000 ₡1000 ₡220.000.000
@@ -570,7 +570,7 @@ Sorteo No. 4375 del 31-01-16 "ENTRADA A CLASES "
 Sorteo No. 4382 del 20-03-16 "CONMEMORATIVO AL DIA DE SAN JOSE "
 Sorteo No. 4387 del 01-05-2016 "DIA DEL TRABAJO"
 Sorteo No. 4407 del 18-09-2016 " DIA DE LA INDEPENDENCIA"
-Sorteo No. 4411 del 16-10-2016 " DIA DE LAS CULTURAS”.
+Sorteo No. 4411 del 16-10-2016 " DIA DE LAS CULTURAS".
 | |
 PLAN DE PREMIOS POR EMISIÓN
 EMISION: 2 de 100.000 billetes (Emisión doble) Total: 200.000 Billetes
@@ -728,7 +728,7 @@ PREMIOS DIRECTOS
 TOTAL: 93 Premios directos por emisión |
 SORTEOS EXTRAORDINARIOS DE LOTERÍA NACIONAL
 2016
-No. 4421 DEL LUNES 26 DE DICIEMBRE (*) (*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 33 del 17 de febrero del 2016, página 52. Anteriormente indicaba “No. 4421 DEL DOMINGO 26 DE DICIEMBRE”)
+No. 4421 DEL LUNES 26 DE DICIEMBRE (*) (*)(Corregido mediante Fe de Erratas publicada en La Gaceta N° 33 del 17 de febrero del 2016, página 52. Anteriormente indicaba "No. 4421 DEL DOMINGO 26 DE DICIEMBRE")
 PLAN DE PREMIOS POR EMISIÓN
 Consolación 2
 EMISIÓN: 3 de 100.000 billetes (Emisión triple) Total:300.000 Billetes
@@ -775,6 +775,9 @@ Los billetes con el Número igual al Segundo, con diferente serie | ₡15.000 | 
 Los billetes con el Número igual al Tercero, con diferente serie | ₡10.000 | ₡2.000
 | |
 TOTAL: 3 Premios directos por emisión |
+(*) Sorteo Extraordinario de Lotería Popular Inversas con un valor por entero de ¢5.000, que se detalla a continuación:
+[imagen]
+(*)(Así adicionado el sorteo anterior mediante sesión N°13-2016 del 27 de mayo del 2016)
 Según acuerdo JD-812, de la sesión ordinaria Nº 40-2015 celebrada el 9 de noviembre del 2015, los sorteos 6109,6141 y 6159 a realizarse el 1/04, 29/07 y 30/09 todos del año 2016, los cuales serán de 400.000 billetes (Emisión Cuádruple).
 SORTEO SÚPER EXTRAORDINARIO DE LOTERÍA POPULAR "VIERNES NEGRO"
 PLAN DE PREMIOS POR EMISIÓN
@@ -796,7 +799,7 @@ Los billetes con el Número igual al Tercero, con diferente serie | ₡30.000 | 
 |
 TOTAL: 4 Premios directos por emisión |
 SORTEOS DE LOTERÍA TIEMPOS 2016
-“PRE – IMPRESOS”
+"PRE - IMPRESOS"
 EMISION TOTAL POR SORTEO DE 24,000 BILLETES- MARTES
 EMISION TOTAL POR SORTEO DE 25,600 BILLETES- VIERNES
 EMISION TOTAL POR SORTEO DE 12,000 BILLETES- DOMINGO
