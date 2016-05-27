@@ -1,0 +1,2 @@
+MUNICIPALIDAD DEL CANTÓN DE LIBERIA
+Con base al acuerdo tomado en el Concejo Municipal de Liberia, en la sesión Extraordinaria N° 02-2016, celebrada el día 20 de enero del 2016, donde aprueba el acta N° 01 2016 de la Comisión de Asuntos Jurídicos acuerdo N° 2 2 que dice: La Comisión de Asuntos Jurídicos acuerda: Derogar el Reglamento sobre Actividades Comerciales en bien inmueble Municipal por período de dos meses máximo en el cantón de Liberia así publicado en La Gaceta 2017 del 07 de noviembre del 2005.
