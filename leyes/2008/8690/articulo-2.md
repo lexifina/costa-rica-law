@@ -1,2 +1,3 @@
-ARTÍCULO 2.- Hecho generador
-El hecho generador del impuesto establecido en el artículo 1 ocurre en el momento de facturar el servicio de telefonía móvil o convencional, cuando la persona usuaria acuda a cancelar los recibos de cobros, en todos los casos, independientemente del momento del pago.
+Artículo 2.- Administración tributaria
+La administración tributaria de esta contribución parafiscal será la Dirección General de Tributación del Ministerio de Hacienda, por lo que para esta contribución resulta aplicable el título III, Hechos ilícitos tributarios, de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971.
+Para los gastos administrativos que de la administración de esta contribución parafiscal se generen, la Dirección General de Tributación retendrá el cero coma cinco por ciento (0,5 %) del total de esta, para sus costos operativos. Los recursos retenidos y destinados se incluirán como ingresos corrientes en el siguiente presupuesto ordinario y extraordinario de la República y se destinarán específicamente a la Dirección General de Tributación.
