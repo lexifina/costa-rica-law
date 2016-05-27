@@ -14,3 +14,4 @@ Procedimiento para la Promoción de Premios Especiales, con los "Sorteos de Lote
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-29 | la propia norma |
+| 2 | 2016-05-27 | Acuerdo 575 (2016-05-27) |
