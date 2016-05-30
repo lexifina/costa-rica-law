@@ -1,0 +1,1 @@
+Artículo 3º—El resto del Decreto Ejecutivo Nº 37789-C del 4 de abril del 2013, Creación del Festival Nacional de Danza Contemporánea, publicado en el Diario Oficial La Gaceta Nº 205 del 24 de octubre del 2013, se mantiene incólume.
