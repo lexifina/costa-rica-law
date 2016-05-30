@@ -2,4 +2,4 @@
 Monto del Impuesto específico anterior, multiplicado por 1 (uno) más el porcentaje de variación de los índices de precios al consumidor (IPC), establecidos en el punto anterior. Los montos determinados deberán contener tres decimales, redondeando hacia arriba el tercer decimal, cuando el cuarto decimal sea igual o superior a cinco (5).
 ¢0,4 * 1,01047 = ?0,404
 Tipo de Bebidas | Impuesto por mililitro de Alcohol
-a. Cerveza | 0,446 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 001 del 8 de febrero de 2016, y publicada en La Gaceta N° 45 del 4 de marzo de 2016)
+a. Cerveza | 0,442 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 003-2016 del 30 de mayo del 2016.)
