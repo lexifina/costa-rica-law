@@ -1,0 +1,1 @@
+Transitorio II: El MINAE, en el plazo de seis meses contado a partir de la fecha de publicación del presente reglamento, deberá normar la calidad de los combustibles que permita el ingreso de las tecnologías indicadas en el artículo 7 de este reglamento.

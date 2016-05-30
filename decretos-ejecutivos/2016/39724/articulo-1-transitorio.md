@@ -1,0 +1,1 @@
+Transitorio I.-Aquellos vehículos en que se compruebe que su embarque al país o su solicitud de compra se inició en fecha previa a la publicación de este reglamento, no estarán sujetos a las disposiciones establecidas en los artículos 7 y 8 de este cuerpo normativo.

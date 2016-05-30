@@ -1,0 +1,1 @@
+Transitorio III: El Poder Ejecutivo, en un plazo de un año contado a partir de la fecha de publicación del presente reglamento, deberá establecer los estándares de emisiones para la restantes categorías de vehículos incluidos en este reglamento.

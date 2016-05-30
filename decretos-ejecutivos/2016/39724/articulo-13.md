@@ -1,0 +1,3 @@
+Artículo 13.- Encendido por Chispa: Por medio del analizador de gases se deben medir las emisiones de CO, HC y CO2 de los vehículos con motor de combustión interna de encendido por chispa.
+La medición se realiza con el motor sin carga y girando en ralentí, exceptuando la medición de CO2 para motocicletas y bicimotos (de dos, tres y cuatro ruedas). En los vehículos ingresados a partir el 1 de enero de 1995 también se deben medir las emisiones a aproximadamente 2500 r.p.m.
+En el caso de vehículos ingresados a partir del 26 de octubre de 2012, se debe comprobar que el valor del factor lambda en ralentí sea el adecuado.
