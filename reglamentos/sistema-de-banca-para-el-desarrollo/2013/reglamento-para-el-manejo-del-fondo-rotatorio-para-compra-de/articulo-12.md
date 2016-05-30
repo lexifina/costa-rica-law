@@ -1,1 +1,0 @@
-Artículo 12.—Conocimiento del presente Reglamento: Todo funcionario de la Institución tiene por obligación conocer el presente reglamento. Su desacato y desobediencia se sancionará de acuerdo con el Reglamento Autónomo de Servicios.
