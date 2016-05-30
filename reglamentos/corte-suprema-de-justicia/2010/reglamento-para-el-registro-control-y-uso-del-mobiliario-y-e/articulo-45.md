@@ -1,2 +1,0 @@
-Artículo 45.—Responsables por el mantenimiento y custodia de activos. La jefatura de cada dependencia judicial deberá instruir adecuadamente a los servidores judiciales que ingresen a su centro de trabajo, sobre los deberes y obligaciones que tienen con respecto al manejo, mantenimiento y custodia de los activos de la Institución.
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 40 al 45)

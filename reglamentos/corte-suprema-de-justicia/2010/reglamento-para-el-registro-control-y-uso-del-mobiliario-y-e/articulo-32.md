@@ -1,2 +1,0 @@
-Artículo 32.—Verificación del equipo. Cuando se trate del equipo indicado en el numeral anterior, corresponderá en primera instancia al Departamento de Proveeduría verificar el buen estado del equipo adquirido, así como la cantidad y marca señalada en el pedido, realizando una recepción sujeta a revisión técnica.
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 27 al 32)

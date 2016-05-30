@@ -1,7 +1,0 @@
-Artículo 12.—Donación de Servicios4:
-4 Para la donación de servicios de conformidad con lo que establece la directriz de la Contabilidad Nacional CN-0003-2009 de fecha 22 de abril de 2009, que en su punto "E" señala:
-Cuandos e recibe una donación en servicios, las cuales pueden ser donadas po Institución Pública o privada. Organismo Internacional. Gobierno Extranjero o tercera persona, estas no se registran en los estados financieros como parte de las cuentas contables, solamente en notas con el fin de revelar la información
-a) La oficina interesada de recibir la donación previo a la confección del formulario deberá realizar el análisis de la conveniencia (costo-beneficio) institucional de recibir la donación de acuerdo a los criterios técnicos existentes sobre los requerimientos mínimos a considerar. En caso de considerarse viable puede continuar con el proceso de lo contrario deberá justificar que no se acepta la donación con el visto bueno de la oficina interesada y quien brindó el criterio técnico.
-b) En caso de proceder la donación deberá hacer la solicitud al Consejo Superior o Corte Plena adjuntando el formulario de propuesta para la recepción de donaciones.
-c) Comunicar los acuerdos del Consejo Superior al Departamento Financiero Contable para su revelación en los estados financieros.
-(Así adiconado mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014)

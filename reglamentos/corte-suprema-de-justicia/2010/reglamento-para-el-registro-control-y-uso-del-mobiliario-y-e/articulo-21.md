@@ -1,2 +1,0 @@
-Artículo 21.—Control de entrega del mobiliario y equipo. El Proceso de Administración de bienes del Departamento de Proveeduría y las Administraciones Regionales, bajo ninguna circunstancia entregarán mobiliario y equipo sin el respectivo documento de despacho de mercadería y sin que esté debidamente patrimoniado (plaqueado).
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 16 al 21)

@@ -1,2 +1,0 @@
-Artículo 56.—Asignación temporal del mobiliario y equipo por reparación. El Departamento de Proveeduría podrá suministrar en forma temporal el mobiliario y/o equipo necesario en sustitución, cuando las circunstancias así lo permitan y por haberse valorado que éste es indispensable para el funcionamiento normal de la dependencia judicial.
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 51 al 56)

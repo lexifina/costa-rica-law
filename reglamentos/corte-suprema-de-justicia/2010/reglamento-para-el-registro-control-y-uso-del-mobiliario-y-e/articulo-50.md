@@ -1,2 +1,0 @@
-Artículo 50.—Pérdida de activos por daño o destrucción. Todo servidor y servidora judicial encargado de la custodia y uso de los bienes, es responsable por la pérdida, daño o destrucción que sufran, salvo, cuando provengan del deterioro natural por razón de su uso o de otra causa justificada.
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 45 al 50)

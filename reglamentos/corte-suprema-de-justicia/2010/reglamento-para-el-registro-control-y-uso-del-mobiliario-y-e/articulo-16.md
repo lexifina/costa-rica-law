@@ -1,2 +1,0 @@
-Artículo 16.—Registro de Bienes. Es responsabilidad del Departamento de Proveeduría, las Administraciones Regionales y Administraciones de Programas Auxiliares de Justicia, mantener un registro actualizado de los bienes en poder de la institución.
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 11 al 16)

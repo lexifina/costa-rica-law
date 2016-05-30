@@ -1,3 +1,0 @@
-Artículo 26. Verificación de inventario. El Departamento de Proveeduría deberá verificar la existencia de los bienes inventariados a cargo de las dependencias judiciales y exigir el cumplimiento de las normas establecidas en este reglamento o instrucciones que se hayan emitido en esta materia.
-(Asi reformado mediante sesión N° 8-14 del 3 de marzo del 2014, publicada en el Boletín Judicial N° 86 del 7 de mayo del 2014 mediante circular N° 45-2014)
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 21 al 26)

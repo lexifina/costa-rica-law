@@ -1,2 +1,0 @@
-Artículo 51.—Equipo dañado. Cuando un servidor o servidora judicial ingrese a un puesto de trabajo y encuentre equipo dañado tendrá que comunicarlo a la jefatura inmediata, ésta a su vez, al Departamento de Proveeduría o a la Administración Regional en aquellas dependencias judiciales que cuenten con ésta, para que proceda a su reparación.
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 46 al 51)

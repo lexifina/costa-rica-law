@@ -1,3 +1,0 @@
-Artículo 25.—Informe y firma de inventarios. El informe de inventario y su firma por parte de las personas a que se refiere este reglamento, implica responsabilidad administrativa, con respecto a los bienes bajo su cargo, por lo que serán responsables directa o indirectamente por la pérdida o daño, salvo que provengan del deterioro natural por razones del uso legítimo o de otra causa justificada.
-A ninguna persona se le puede encomendar la firma de los inventarios si éstos no están bajo su inmediato control o responsabilidad.
-(Así corrida su numeración mediante sesión N° 27-14 del 9 de junio del 2014, publicada en el Boletín Judicial N° 137 del 17 de julio del 2014 mediante circular N° 127 del 12 de junio del 2014, que lo traspasó del antiguo 20 al 25)
