@@ -1,0 +1,1 @@
+Artículo 20.—El cartel debe contemplar la aplicación de multas y/o cláusulas penales, conforme lo establecido en el Reglamento para el Establecimiento de Multas y Clausulas Penales de la CNE vigente, publicado en La Gaceta N° 234 del día miércoles 04 de diciembre de 2013, en caso de que no cuenten con un procedimiento establecido para tal efecto.
