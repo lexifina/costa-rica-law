@@ -1,1 +1,0 @@
-Artículo 49.—Procedimientos para las donaciones. Para toda donación de hardware o software que se realice para el Ministerio, se seguirá el procedimiento establecido en el Reglamento para Registro y Control de Bienes de la Administración Central mediante Decreto Ejecutivo Nº 30720-H específicamente el artículo Nº 19 y sus reformas así como en la normativa jurídica vigente.

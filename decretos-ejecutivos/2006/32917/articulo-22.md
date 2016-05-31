@@ -1,1 +1,0 @@
-Artículo 22.—Colaboración de técnicos-especialistas: Para obtener mayores elementos de juicio en sus resoluciones y recomendaciones, los grupos de trabajo podrán solicitar criterio a las distintas Direcciones y/o Departamentos del Ministerio.

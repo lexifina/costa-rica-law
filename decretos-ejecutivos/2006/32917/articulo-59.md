@@ -1,1 +1,0 @@
-Artículo 59.—Desecho de hardware. Se realizarán los procedimientos de acuerdo a lo establecido en el artículo Nº 26 del Reglamento para Registro de Bienes de la Administración Pública Decreto Ejecutivo Nº 30720-H publicado en La Gaceta 188 del 1º de octubre de 2002.

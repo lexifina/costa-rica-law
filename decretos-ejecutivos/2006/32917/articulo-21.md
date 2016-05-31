@@ -1,1 +1,0 @@
-Artículo 21.—Coordinación de los grupos de trabajo: Los grupos de trabajo serán coordinados por el servidor que designe el Presidente y serán los responsables ante la Comisión de la rendición de informes.

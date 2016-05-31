@@ -1,1 +1,0 @@
-Artículo 25.—Organización. La Dirección contará con un Director como órgano responsable ante los jerarcas del Ministerio de la aplicación de las políticas en materia de informática. Contará con toda la organización técnico-administrativa que requiera, así como el equipo y presupuesto necesario para la ejecución de sus actividades.

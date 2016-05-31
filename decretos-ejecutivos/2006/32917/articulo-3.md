@@ -1,1 +1,0 @@
-Artículo 3º—Legislación supletoria. Lo que no se encuentre contemplado en el presente reglamento se aplicará supletoriamente y en lo que corresponda, la Ley General de la Administración Pública, el Código de Trabajo, Estatuto de Servicio Civil y su reglamento, el Reglamento Autónomo del Ministerio de Gobernación y Policía, así como toda la normativa jurídica vigente.

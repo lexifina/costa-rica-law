@@ -1,1 +1,0 @@
-Artículo 44.—Cambios de requerimientos. El usuario podrá solicitar los cambios en los requerimientos del sistema, así como los ajustes o sustitución del mismo, de acuerdo con los procedimientos que se establezcan al respecto y según lo indicado en los manuales y otra normativa vigente que emita la Contraloría General de la República en TI.

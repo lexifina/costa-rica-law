@@ -1,6 +1,0 @@
-CAPÍTULO III
-De la Dirección General de Informática
-Artículo 24.—Competencia. La Dirección General de Informática será la competente en materia de informática, para proveer la información, los sistemas y la tecnología requerida por el Ministerio. Dará el asesoramiento técnico requerido por la Comisión de Informática. Además de lo anterior y de las contenidas en el presente reglamento, tendrá las siguientes responsabilidades específicas:
-a) Coordinar lo relacionado a los contratos de mantenimiento preventivo o correctivo del hardware y software propiedad del Ministerio, lo que implicará si fuera necesario el envío del equipo a la empresa contratada, solicitud de reparación, verificación y reubicación. Para este servicio se contratará empresas de reconocido prestigio en el campo específico.
-b) Coordinar los convenios interinstitucionales de interconexión entre el Ministerio y el área usuaria de la institución. Dichos convenios serán para el intercambio, consulta o adquisición de información de la institución, sea gubernamental o privada, de interés para el Ministerio.
-c) Comunicar a los funcionarios del Ministerio sobre la normativa jurídica vigente, Directrices o Reglamento que se relacione con el área de informática.
