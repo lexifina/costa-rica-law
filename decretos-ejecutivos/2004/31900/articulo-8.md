@@ -1,1 +1,0 @@
-Artículo 8º—El financiamiento de este Programa se hará principalmente aprovechando los recursos existentes en las instituciones participantes tales como infraestructura, servicios profesionales, suministros y equipos, servicios de teléfono, fax, mobiliario, y el aporte económico o en especie por parte de los administrados o particulares.
