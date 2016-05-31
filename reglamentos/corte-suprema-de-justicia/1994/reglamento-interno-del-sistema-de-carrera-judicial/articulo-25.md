@@ -1,1 +1,1 @@
-Artículo 25.—El oferente deberá brindar toda la información que se le pida en cuanto a su persona, familiares, estudios efectuados, antecedentes personales, conocimientos especiales, experiencia laboral, disponibilidad y cualesquiera otra que se incluya en los formularios.
+Artículo 25°- El oferente deberá brindar toda la información que se le pida en cuanto a su persona, familiares, estudios efectuados, antecedentes personales, conocimientos especiales, experiencia laboral, disponibilidad y cualesquiera otra que se incluya en los formularios.

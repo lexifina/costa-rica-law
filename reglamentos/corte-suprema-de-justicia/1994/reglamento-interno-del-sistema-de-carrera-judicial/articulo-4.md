@@ -1,1 +1,1 @@
-Artículo 4º—El Departamento de Personal será el encargado de ejecutar las decisiones del Consejo, de recibir y poner en conocimiento de éste todas las gestiones que correspondan y de hacer las comunicaciones a todos los interesados y además oficinas del Poder Judicial.
+Artículo 4°- El Departamento de Personal ser á el encargado de ejecutar las decisiones del Consejo, de recibir y poner en conocimiento de éste todas las gestiones que correspondan y de hacer las comunicaciones a todos los interesados y además oficinas del Poder Judicial.

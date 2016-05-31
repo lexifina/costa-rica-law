@@ -20,3 +20,4 @@ Reglamento Interno del Sistema de Carrera Judicial
 | 6 | 2007-05-10 | Circular 45 (2007-05-10) |
 | 7 | 2010-11-17 | Circular 135 (2010-11-17) |
 | 8 | 2013-01-05 | Circular 29 (2013-01-05) |
+| 9 | 2016-05-31 | Circular 84 (2016-05-31) |

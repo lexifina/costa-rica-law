@@ -1,1 +1,1 @@
-Transitorio III.—La misma regla anterior aplicará, en lo pertinente, a los Alcaldes Supernumerarios.
+Transitorio III: La misma regla anterior aplicar á, en lo pertinente, a los Alcaldes Supernumerarios.
