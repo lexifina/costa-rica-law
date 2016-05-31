@@ -1,0 +1,10 @@
+CIRCULAR N° 86-2016
+ASUNTO: Acciones de los despachos administrativos sobre la entrada en vigencia de la Reforma al Código de Trabajo y la Reforma al Código Procesal Civil.
+(Nota de Sinalevi: Mediante información suministrada por la Corte Suprema de Justicia el asunto correcto de la presente circular sería “Deber de registrar adecuadamente las contravenciones”)
+JUZGADOS COMPETENTES EN MATERIA
+CONTRAVENCIONAL DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 48-16 celebrada el 17 de mayo de 2016, artículo XXII, dispuso recordar a los responsables de utilizar los sistemas de registro de datos (sistemas de gestión y Sistema para los Juzgados Mixtos conocido mediante las siglas JMS) el cuidado de digitalizar en forma correcta los datos del expediente, especialmente en lo concerniente al registro de las contravenciones denunciadas y entradas al despacho. Esto en el contexto de las siguientes circulares:
+[imagen]
+En el caso de varias contravenciones denunciadas en un mismo expediente, el Juez o Jueza tramitadora escogerá el orden de registro estableciendo de tal forma que será primaria la de mayor daño social asignado las demás contravenciones, sin demerito procesal, en clasificaciones secundarias en el sistema informático correspondiente. Además la Jueza o Juez Coordinador de los juzgados competentes en materia de contravenciones, así como la persona coordinadora judicial deberán asegurar y verificar la debida alimentación de los sistemas de registro de datos (sistemas de gestión y Sistema para los Juzgados Mixtos conocido mediante las siglas JMS). En ese sentido, establecer los mecanismos para el acatamiento por parte del personal profesional y de apoyo, de las circulares emanadas de los distintos Órganos que componen el Poder Judicial y que conciernen a la oficina; siendo que su omisión es causal de responsabilidad administrativa y civil, de conformidad con lo dispuesto en el artículo 39 de la Ley General de Control Interno y artículos 107 y 109 de la Ley General de la Administración Pública.
+San José, 31 de mayo del 2016.
