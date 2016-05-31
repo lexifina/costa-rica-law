@@ -1,0 +1,1 @@
+ARTÍCULO 16.- Funciones del Departamento de Financiero. Corresponderá al Departamento Financiero determinar periódicamente la estimación de costos y beneficios, producto del programa de teletrabajo, y remitirlo a la Dirección Ejecutiva para lo que corresponda.
