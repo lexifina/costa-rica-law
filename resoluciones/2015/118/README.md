@@ -14,3 +14,4 @@ Procedimiento para la remisión al Poder Ejecutivo de recomendaciones técnicas 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-04 | la propia norma |
+| 2 | 2016-06-01 | Resolución 103 (2016-06-01) |
