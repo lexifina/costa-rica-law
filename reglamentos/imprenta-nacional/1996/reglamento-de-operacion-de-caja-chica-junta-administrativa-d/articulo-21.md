@@ -1,2 +1,1 @@
-Artículo 21.-Requisitos para adquisiciones de repuestos, materiales y suministros
-Cuando se trate de repuestos o materiales y suministros, la factura debe venir acompañada del original de la recepción de bodega y/o el número de placa del activo en que se utilizará la compra.
+Artículo 21.- (Derogado en sesión ordinaria N° 19 del 01 de junio de 2016)
