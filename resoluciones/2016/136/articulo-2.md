@@ -1,0 +1,1 @@
+2. El tiempo de rodaje para el tránsito internacional de plátano verde, entre el Puesto Aduanero de Las Tablillas y la ubicación registrada en el módulo de "viajes" del sistema aduanero TICA, se estima en 21 horas, incluyendo las horas de descaso y alimentación; salvo fuerza mayor o caso fortuito, debidamente comprobados.
