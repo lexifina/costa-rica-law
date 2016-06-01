@@ -1,0 +1,13 @@
+Nº 87-2016
+Asunto: 1) Dejar sin efecto las circulares N° 142-2009 de Consejo Superior, y 128-14 de la Dirección Ejecutiva.
+2) Modificación en el proceso para realizar anotaciones y cancelación de gravámenes en bienes inscritos ante el Registro Nacional, por medio del “Sistema de Registro Electrónico de Mandamientos (SREM)”
+A LAS DESPACHOS JUDICIALES QUE UTILIZAN
+EL SISTEMA DE REGISTRO ELECTRÓNICO
+DE MANDAMIENTOS (SREM)
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 3-16 celebrada el 12 de enero de 2016, artículo LXXIX, dispuso acoger las recomendaciones realizadas por la Dirección Jurídica del Poder Judicial, referente al proceso para realizar anotaciones y cancelación de gravámenes en bienes inscritos ante el Registro Nacional, por medio del “Sistema de Registro Electrónico de Mandamientos (SREM)”, dentro de las que destacan:
+1) Dejar sin efecto la circular N° 142-2009 sobre “Anotación y cancelación de gravámenes en bienes inscritos ante el Registro Nacional”, dictada por el Consejo Superior, en sesión N° 102-09 celebrada el 10 de noviembre del 2009, artículo LXXIX, así como la circular N° 128-14 de la Dirección Ejecutiva, sobre “El uso del Sistema del Registro Electrónico de Mandamientos (SREM) de fecha 28 de noviembre de 2014”.
+2) Delegar por parte de los Jueces y Juezas en la persona coordinadora judicial la tarea relativa al envío de anotación de demandas, decretos de embargo y levantamiento de anotaciones, en el Sistema de Registro Electrónico de Mandamientos (SREM), creándose en los coordinadores para estos fines el perfil de Técnica o Técnico Judicial de anotaciones del SREM.
+3) En este sentido, modificar el Manual de Uso para el Sistema de Registro Electrónico de Mandamientos, elaborado por la Dirección de Tecnología de la Información, con el fin de implantar el perfil citado, y asignarle la función de ejecución del mandamiento, el cual se realizará una vez decretado el embargo o levantamiento, mediante resolución judicial dictada por el Juez o Jueza. Lo anterior sin exonerar de responsabilidad a la persona juzgadora, de verificar la correcta ejecución de anotación o levantamiento de un gravamen que dentro de un proceso judicial haya ordenado.
+4) Esta variación no contradice lo establecido en la normativa propia de esta materia, además de estar conforme con el manual descriptivo de puestos el cual dispone entre las tareas la de ejecutar labores técnicas y administrativas, relacionadas con la función jurisdiccional del despacho en el que se ubica, sin que lo anterior implique una exoneración de la responsabilidad que tiene la persona juzgadora, de velar por una correcta ejecución de su decisión jurisdiccional.
+San José, 1° de junio del 2016.
