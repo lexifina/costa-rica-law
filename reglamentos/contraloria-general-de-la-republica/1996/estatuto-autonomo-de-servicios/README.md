@@ -34,3 +34,4 @@ Estatuto Autónomo de Servicios
 | 19 | 2011-11-25 | Resolución 189 (2011-11-25) |
 | 20 | 2012-05-04 | Resolución 54 (2012-05-04) |
 | 21 | 2015-06-25 | Resolución 65 (2015-06-25) |
+| 22 | 2016-06-02 | Resolución 46 (2016-06-02) |
