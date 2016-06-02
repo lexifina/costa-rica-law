@@ -1,0 +1,1 @@
+Artículo 20.-Prohibición de estacionamiento. Los vehículos de la Municipalidad no deberán ser estacionados por sus conductores en lugares que pongan en peligro la seguridad del vehículo, sus accesorios, materiales o equipo que transporta.

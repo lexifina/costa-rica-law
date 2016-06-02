@@ -1,0 +1,1 @@
+Artículo 33.-Sanciones. Las infracciones al presente reglamento serán sancionadas disciplinariamente de acuerdo al Reglamento Autónomo de Organización y Servicio de la Municipalidad, el Código de Trabajo y este Reglamento.
