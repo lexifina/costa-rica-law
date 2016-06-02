@@ -1,0 +1,2 @@
+Artículo 6.- De la Unidad Solicitante. Corresponde a la Unidad Solicitante, por intermedio del Jerarca de la Unidad, generar y presentar la decisión inicial y demás documentos de orden técnico que la Proveeduría requiera para el trámite de contratación administrativa.
+En todo caso, la Unidad Solicitante tendrá los mismos deberes y obligaciones que respecto de aquélla contempla el artículo 5 de este Reglamento.
