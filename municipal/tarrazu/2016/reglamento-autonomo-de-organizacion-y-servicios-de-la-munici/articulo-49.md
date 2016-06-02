@@ -1,0 +1,1 @@
+Artículo 49. La forma de pago será quincenal para todo el Personal, mediante el sistema de depósito en cuentas de ahorros de los trabajadores en entidades del Sistema Bancario Nacional, dicho pago se hará efectivo los días 13 y 28 de cada mes. Si alguno de estos días fuere feriado, el pago se realizará el día hábil inmediato anterior.

@@ -1,0 +1,3 @@
+Artículo 25. El Alcalde (sa) Municipal podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y no se
+cause grave perjuicio a las personas servidoras.
+El cambio deberá ser comunicado al personal afectado con un mínimo de veinticuatro horas de anticipación, pero la modificación definitiva de los mismos deberá ser sometida a la aprobación del Concejo Municipal.

@@ -1,0 +1,8 @@
+Artículo 23. En la Municipalidad regirá el siguiente horario:
+1) Personal Administrativo: Jornada ordinaria de lunes a jueves de las 7:00 a las 16:00 horas, con una hora de almuerzo de las 12 a las 13 horas y quince minutos para tomar café durante las fracciones de jornada de la mañana y de la tarde, distribuidos por la jefatura en roles que garanticen un servicio o atención al público en forma ininterrumpida.
+Los viernes en jornada continua de las 7:00 a las 15:00 horas, con treinta minutos de almuerzo y quince minutos para tomar café en la jornada de la mañana y de la tarde, distribuidos por la jefatura en roles que garanticen un servicio o atención al público en forma ininterrumpida.
+2) Personal de recolección de basura, cuadrillas de obras y limpieza de vías: Estos trabajadores prestarán servicios en los siguientes horarios: De lunes a jueves de las 5:00 horas a las 14:00 horas, con una hora de almuerzo de las 12:00 a las 13:00 horas, y con derecho a quince minutos para tomar café en la jornada de la mañana y de la tarde.
+Los viernes en jornada continua de las 5:00 a las 13:00 horas, con treinta minutos de almuerzo y quince minutos para tomar café en la jornada de la mañana y de la tarde.
+3) Trabajadores operativos del acueducto: Estos trabajadores prestarán servicios en los siguientes horarios: De lunes a jueves de las 6:00 horas a las 15:00 horas, con una hora de
+almuerzo de las 12:00 a las 13:00 horas, y con derecho a quince minutos para tomar café en la jornada de la mañana y de la tarde.
+Los viernes en jornada continua de las 6:00 a las 14:00 horas, con treinta minutos de almuerzo y quince minutos para tomar café en la jornada de la mañana y de la tarde.

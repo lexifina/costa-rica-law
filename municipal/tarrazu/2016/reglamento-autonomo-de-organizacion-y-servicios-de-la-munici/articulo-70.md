@@ -1,0 +1,2 @@
+Artículo 70. Son riesgos del trabajo los accidentes y enfermedades que ocurren a los servidores(as), con ocasión o por consecuencia del trabajo que desempeñan, en forma subordinada y remunerada, así como su agravación o reagravación consecuencia directa del mismo.
+La Municipalidad deberá dar aviso al Instituto Nacional de Seguros de cualquier riesgo del trabajo que le ocurra a su personal de forma inmediata.

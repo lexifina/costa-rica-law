@@ -1,0 +1,1 @@
+Artículo 21. La información contenida en el expediente personal es de carácter confidencial y sólo tendrán acceso a él los funcionarios que los requieran exclusivamente para labores propias del cargo, además del servidor(a) o su representante legal, debidamente acreditado como apoderado.

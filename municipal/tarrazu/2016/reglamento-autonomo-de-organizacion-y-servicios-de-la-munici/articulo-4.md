@@ -1,0 +1,1 @@
+Artículo 4. El Alcalde (sa) Municipal en conjunto con la jefatura de Recursos Humanos controlará todo lo concerniente a nombramientos, despidos, cambios de puesto, ascensos, vacaciones, permisos mediante una acción de personal. Cualquiera de estos trámites el funcionario municipal debe de hacerlo de conocimiento de los jefes inmediatos de cada departamento.

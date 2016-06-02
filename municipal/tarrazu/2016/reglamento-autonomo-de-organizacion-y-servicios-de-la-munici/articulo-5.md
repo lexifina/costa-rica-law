@@ -1,0 +1,3 @@
+CAPÍTULO II
+Contratos de Trabajo
+Artículo 5. Todo el personal laboral de la Municipalidad deberá estar amparado por un contrato de trabajo o acción de personal que contendrá, las cláusulas y estipulaciones particulares que regulen la prestación del servicio, así como el nombre del puesto, salario, jornada de trabajo, lugar de prestación de servicios y cualquier otro aspecto de interés. Los contratos de trabajo o acciones de personal se harán en tres tantos uno para la Municipalidad para efectos de trámite interno, otro para la persona funcionaria interesada y la tercera para el expediente de personal.

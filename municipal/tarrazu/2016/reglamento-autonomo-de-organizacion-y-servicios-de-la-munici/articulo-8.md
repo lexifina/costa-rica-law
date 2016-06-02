@@ -1,0 +1,1 @@
+Artículo 8. En todo contrato o relación de servicio por tiempo indeterminado habrá un periodo de prueba de tres meses. Durante este período y sin previo aviso, pero mediante justificación cualquiera de las partes podrá poner término al contrato o relación de servicio que los une.

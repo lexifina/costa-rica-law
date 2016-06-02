@@ -1,0 +1,1 @@
+Artículo 16. La compensación económica por concepto de prohibición del ejercicio particular de la profesión se regulará conforme la legislación vigente. Los funcionarios podrán acogerse al pago por concepto de Dedicación Exclusiva según las disposiciones del Reglamento de Dedicación Exclusiva de la Municipalidad de Tarrazú.

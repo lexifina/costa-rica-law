@@ -1,0 +1,1 @@
+Artículo 28. Salvo los casos previstos en este Reglamento, la omisión de una marca de asistencia, a cualquiera de las horas de entrada y salida hará presumir la inasistencia, siempre y cuando el trabajador(a) no la justifiquen a más tardar en la fracción de jornada siguiente aquella en la que el hecho sucedió.
