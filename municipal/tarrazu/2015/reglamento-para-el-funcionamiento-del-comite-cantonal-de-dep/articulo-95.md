@@ -1,0 +1,1 @@
+Artículo 95- Para estimular a los dirigentes, atletas, entrenadores, el Comité Cantonal nombrará una Comisión integrada por tres miembros, que escogerá al mejor atleta, mejor entrenador y mejor dirigente deportivo.

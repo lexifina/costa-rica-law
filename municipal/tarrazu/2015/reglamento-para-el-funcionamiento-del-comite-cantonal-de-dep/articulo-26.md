@@ -1,0 +1,3 @@
+Artículo 26- Los Comités Comunales de Deportes estarán integrados por cinco miembros de la Comunidad que serán elegidos por el Comité Cantonal bajo el siguiente procedimiento:
+a) Dos miembros serán electos a propuesta de la Asociación de Desarrollo respectiva.
+b) Los otros tres serán elegidos a propuesta de las organizaciones deportivas, comunales, juveniles y cualquier otra que colabore con el deporte, la recreación y bienestar de la comunidad, para lo cual el Comité Cantonal promoverá la más amplia y razonable participación de organizaciones en la forma que considere apropiada.

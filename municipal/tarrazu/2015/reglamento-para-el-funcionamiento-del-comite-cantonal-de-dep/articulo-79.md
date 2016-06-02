@@ -1,0 +1,1 @@
+Artículo 79- Los equipos afiliados, equipos de liga menor y selecciones locales que representen oficialmente a la comunidad y que estén reconocidos por el Comité Comunal, tendrán preferencia sobre las instalaciones. Las competencias aficionadas tendrán preferencia sobre las no aficionadas o profesionales.

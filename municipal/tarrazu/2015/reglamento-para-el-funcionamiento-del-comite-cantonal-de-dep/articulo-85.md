@@ -1,0 +1,1 @@
+Artículo 85- Las instalaciones deportivas existentes, en las instituciones educativas como gimnasios, plazas, pistas de atletismo, piscinas y otras que hayan sido construidas con fondos públicos o por dependencias gubernamentales, podrán ponerse al servicio de las respectivas comunidades del cantón, según las regulaciones que rijan en cada caso.

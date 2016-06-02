@@ -1,0 +1,1 @@
+Artículo 73- Cada trimestre los tesoreros de los Comités Comunales de Deportes deberán presentar ante el Comité Cantonal, el libro de tesorería, adjuntando las facturas, comprobantes y recibos correspondientes para su respectiva revisión; si este no se presentare el Comité Cantonal paralizará cualquier gestión económica.

@@ -1,0 +1,2 @@
+Artículo 45- Los integrantes del Comité Cantonal se reunirán en sesión ordinaria, el día y hora acordados en la sesión inaugural. Por motivos especiales y del criterio de la mayoría, podrá variarse la fecha y horas de las sesiones. Extraordinariamente se reunirán cuando sea convocado por el Presidente o conjuntamente por 3 miembros. La convocatoria deberá hacerse con 24 horas de anticipación por lo menos y señalándose el objetivo de la sesión.
+En sesiones extraordinarias solo se conocerá lo incluido en la convocatoria.

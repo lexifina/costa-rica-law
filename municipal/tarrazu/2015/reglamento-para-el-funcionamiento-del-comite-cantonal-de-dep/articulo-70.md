@@ -1,0 +1,1 @@
+Artículo 70- Los recursos del Comité Cantonal solamente se podrán invertir en obras de interés deportivo y recreativo, ubicados dentro de los límites territoriales del cantón de Tarrazú; así como en la capacitación, promoción y participación de atleta, entrenadores, árbitros y dirigentes del Cantón.

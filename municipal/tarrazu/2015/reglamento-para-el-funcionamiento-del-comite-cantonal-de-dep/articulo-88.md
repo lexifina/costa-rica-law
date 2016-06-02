@@ -1,0 +1,1 @@
+Artículo 88- Los directivos del Comité Cantonal no podrán formar parte o integrar los Comités Comunales, los Distritos Deportivos y estos a su vez, los Subcomités de Deportes de Recreación, según la estructura organizativa contenida en este reglamento.

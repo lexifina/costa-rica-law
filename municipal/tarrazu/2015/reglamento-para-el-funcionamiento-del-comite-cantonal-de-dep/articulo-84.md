@@ -1,0 +1,1 @@
+Artículo 84- El Comité Cantonal regulará y aprobará las cuotas de ingreso a las instalaciones deportivas. Los ingresos que por ese motivo se produzcan, se destinarán a gastos administrativos, mantenimientos de instalaciones, y a lo que determina la Junta Directiva.
