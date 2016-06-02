@@ -1,0 +1,1 @@
+Artículo 43°—Horario del encargado del mantenimiento del cementerio: El horario del cementerio serán de lunes a jueves 7:00 a. m. a 4:00 p. m. y viernes de 7:00 am a 3:00 pm, no permitiendo sepultar después de este horario exceptuando las de emergencia.

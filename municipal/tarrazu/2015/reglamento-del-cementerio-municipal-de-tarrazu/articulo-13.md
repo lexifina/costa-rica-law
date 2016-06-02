@@ -1,0 +1,1 @@
+Artículo 13° —Cuando en un cementerio existan trabajadores permanentes, ya sea de oficina o de campo, deberá disponerse un lugar para la ingesta de alimentos, con su respectivo lavamanos habilitado y jabón.

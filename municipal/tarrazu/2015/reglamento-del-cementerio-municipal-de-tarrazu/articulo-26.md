@@ -1,0 +1,1 @@
+Artículo 26°—Los restos óseos o cadavéricos que se localicen al hacer las exhumaciones ordinarias, serán recogidos cuidadosamente y colocados en el osario común, siempre que los familiares interesados no los reclamen para depositarlos en osarios privados, que posean dentro del mismo cementerio. El encargado del cementerio deberá usar bata guantes y mascarilla.

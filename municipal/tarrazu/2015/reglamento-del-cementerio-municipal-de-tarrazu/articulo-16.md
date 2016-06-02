@@ -1,0 +1,1 @@
+Artículo 16°—Solicitud: Quien necesite realizar una inhumación en el Cementerio de San Marcos de Tarrazú, deberá solicitar autorización de manera escrita al Departamento de Catastro Municipal. Esta dependencia no autorizará inhumaciones en bóvedas o nichos que presenten fallas en su estructura.

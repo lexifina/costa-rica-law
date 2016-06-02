@@ -1,0 +1,1 @@
+Artículo 52°—Alquiler de parcelas: corresponde a una tarifa fija por metro cuadrado que será actualizada anualmente por la Administración Tributaria y Hacienda Municipal, tomando en cuenta los costos de oportunidad y de mantenimiento más un porcentaje de utilidad para el desarrollo.

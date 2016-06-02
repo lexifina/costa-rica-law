@@ -1,0 +1,1 @@
+Artículo 34°—Obligación de dar mantenimiento: Corresponde a los arrendatarios de bóvedas y parcelas el estado higiénico y decoroso de las construcciones (bóvedas). El incumplimiento de esta obligación será considerado como causal de resolución contractual, en cuyo caso el Departamento de Catastro Municipal hará una prevención al dueño de la bóveda.

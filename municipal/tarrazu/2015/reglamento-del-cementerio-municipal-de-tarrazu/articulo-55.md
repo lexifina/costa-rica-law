@@ -1,0 +1,1 @@
+Artículo 55°—La administración del cementerio, contará con expediente por cada uno de los derechos donde se almacenará toda la información del propietario y de los inhumados. Ordenados de manera cronológica descendente.

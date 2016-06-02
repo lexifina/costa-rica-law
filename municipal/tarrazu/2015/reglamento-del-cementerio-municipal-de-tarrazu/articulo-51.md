@@ -1,0 +1,1 @@
+Artículo 51°—Mantenimiento de Cementerio Municipal: corresponde a una tarifa fija por nicho que será actualizada anualmente por la Administración Tributaria y Hacienda Municipal, tomando en cuenta los costos de oportunidad y de mantenimiento más un porcentaje de utilidad para el desarrollo.
