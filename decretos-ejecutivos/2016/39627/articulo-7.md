@@ -1,0 +1,1 @@
+Artículo 7. Requisitos. Todos los integrantes de la Comisión Nacional para el Manejo, Control y Aprovechamiento del pez león deberán estar involucrados activamente en el quehacer marino – costero y demostrar genuino interés en colaborar con el manejo del pez león sin buscar beneficios personales.

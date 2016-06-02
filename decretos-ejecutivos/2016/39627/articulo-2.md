@@ -1,0 +1,1 @@
+Artículo 2. Aportes. Se insta a las entidades públicas y privadas, para que en la medida de sus posibilidades y dentro de la normativa jurídica vigente, contribuyan con el aporte de recursos económicos, logísticos y técnicos para la exitosa implementación de las acciones para el manejo y control del pez león.

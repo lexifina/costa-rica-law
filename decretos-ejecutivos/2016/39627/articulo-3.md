@@ -1,0 +1,1 @@
+Artículo 3. Creación. Créase la Comisión Nacional para el Manejo y Control del Pez León como órgano colegiado de carácter permanente que fungirá como máximo órgano coordinador de los esfuerzos nacionales por controlar y manejar la invasión del pez león y sus efectos sobre la diversidad biológica.

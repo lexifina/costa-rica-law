@@ -1,0 +1,1 @@
+Artículo 9. Coordinador. Corresponde al representante del Ministro del Minae en calidad de Coordinador dirigir los quehaceres de la Comisión y deberá convocar a sesión al menos una vez por mes. Asimismo, deberá rendir los informes que al respecto soliciten la Defensoría de los Habitantes, Tribunales o cualquier otra institución, sobre el tema.
