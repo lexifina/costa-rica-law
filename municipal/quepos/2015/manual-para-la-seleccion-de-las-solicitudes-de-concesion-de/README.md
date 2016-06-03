@@ -14,3 +14,4 @@ Manual para la selección de las solicitudes de concesión de la Municipalidad d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-30 | la propia norma |
+| 2 | 2016-06-03 | Reglamento municipal 11 (2016-06-03) |
