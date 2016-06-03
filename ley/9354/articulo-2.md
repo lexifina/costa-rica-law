@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Promoción de la información sobre el ajuste máximo aplicable al arrendamiento de vivienda
+El Ministerio de Vivienda y Asentamientos Humanos (Mivah) deberá publicar en los tres medios de mayor circulación nacional de prensa escrita, su página web oficial y otros medios que crea convenientes, un anuncio el primer día de cada mes, que especifique claramente el ajuste máximo en el valor del arrendamiento aplicable para los contratos cuyo vencimiento sea ese mes; dicho cálculo estará basado en el contenido de esta ley.
