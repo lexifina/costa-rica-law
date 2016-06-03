@@ -1,0 +1,1 @@
+Artículo 13. Sobre la creación de la Secretaría Técnica de acciones conjuntas del área de ingresos. Se crea la Secretaría Técnica, que será responsable del seguimiento y evaluación de las acciones conjuntas, dicho cargo recae en la DICEGI. Lo anterior de conformidad con el decreto N° 35366-H del 15 de julio del 2009, artículo 17 incisos b), e), g) e i}.

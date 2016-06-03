@@ -1,0 +1,2 @@
+Artículo 7. Sobre la directriz para Ja implementación de acciones conjuntas del área
+de ingresos. La Comisión emitirá la directriz mediante la cual se aprobarán los lineamientos para el desarrollo de los planes de acciones conjuntas del área de ingresos del Ministerio de Hacienda. Dicha directriz deberá emitirse a más tardar el 30 de noviembre de cada año, para que rija para el año calendario siguiente.
