@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa del Instituto Costarricense d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-12 | la propia norma |
+| 2 | 2016-06-06 | Reglamento 6180 (2016-06-06) |
