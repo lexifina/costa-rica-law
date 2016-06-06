@@ -1,0 +1,3 @@
+Artículo 8.- Modifiquese el primer párrafo del artículo 88 del Decreto Ejecutivo N° 38277-H del 7 de marzo de 2014, para que se lea así:
+"Artículo 88: Liquidación de las resoluciones que revoquen parcialmente liquidaciones de oficio.
+En los casos en que la Administración tributaria, mediante la resolución del recurso de revocatoria, o el Tribunal Fiscal Administrativo, mediante la resolución del recurso de apelación, revoquen parcialmente lo determinado en el acto de liquidación de oficio o en las resoluciones sancionadoras que correspondan, la Administración Tributaria deberá recalcular la deuda, así como los intereses correspondientes."
