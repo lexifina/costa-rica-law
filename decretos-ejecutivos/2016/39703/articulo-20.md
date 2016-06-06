@@ -1,0 +1,1 @@
+Artículo 20°.- Sanciones. En caso de que se verifique algún incumplimiento de las disposiciones contenidas en este reglamento, se aplicará las medidas especiales contempladas en el artículo 355 y siguientes de la Ley Nº 5395 del 30 de octubre de 1973, Ley General de Salud y sus reformas.

@@ -1,0 +1,8 @@
+Artículo 21 °.- Creación, integración y funcionamiento de la Comisión de Turismo de A ventura. Se crea la Comisión de Turismo de A ventura ( en adelante la Comisión), como un órgano colegiado interinstitucional presidido por el Ministerio de Salud, que tendrá como funciones la revisión y actualización de los contenidos de este reglamento y sus anexos. La Comisión estará integrada por los siguientes representantes plenos, todos con derecho a voz y voto:
+a) Un representante del Ministerio de Salud, nombrado por el Ministro de Salud, quién la presidirá.
+b) Un representante del Instituto Costarricense de Turismo (ICT) nombrado por su Presidente Ejecutivo.
+c) Un representante de la Cámara Nacional de Turismo (CANATUR), nombrado por acuerdo de su Junta Directiva, cuyo comunicado se enviará para efectos de su acreditación al Ministro de Salud.
+Los integrantes de la Comisión serán nombrados por un plazo de dos años calendario a partir de su juramentación, los cuales podrán ser prorrogables.
+Los integrantes de la Comisión, no gozarán de dietas ni remuneraciones por concepto de su participación en la misma.
+La Comisión sesionará ordinariamente una vez al mes o cuando sea necesario y extraordinariamente cuando sea convocada por su Presidente. El quórum para sesionar válidamente será el de mayoría absoluta de los miembros que integran la Comisión. Los acuerdos se tomarán por mayoría simple de los representantes presentes.
+En lo no dispuesto en el presente Reglamento con respecto a la Comisión, se aplicará lo señalado por la Ley General de la Administración Pública, Ley Nº 6227 del 02 de mayo de 1978; en relación con el funcionamiento de los órganos colegiados.

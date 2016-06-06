@@ -1,0 +1,1 @@
+Artículo 14°.- Suspensión de actividades. El prestador turístico o el responsable inmediato de alguna modalidad de la actividad de turismo aventura deberá suspender las actividades, cuando se presenten situaciones que pongan en riesgo la seguridad de las personas.

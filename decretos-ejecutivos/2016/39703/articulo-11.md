@@ -1,0 +1,1 @@
+Artículo 11 º.-Equipo de emergencias. El prestador de servicio de las actividades de turismo aventura debe contar con equipo básico para la atención de emergencias, de acuerdo con el detalle de cada manual específico de operación como indica el anexo 1 ó 2 según corresponda.

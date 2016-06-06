@@ -1,0 +1,1 @@
+Artículo 19º.- Inspecciones. El prestador de los servicios de turismo aventura cubierto por la presente regulación, debe cumplir en forma permanente, con las condiciones de operación establecidas en el presente reglamento, lo que será verificado por el Ministerio de Salud, en las inspecciones que realice.

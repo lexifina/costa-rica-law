@@ -1,0 +1,1 @@
+Artículo 5°.- Sin perjuicio de los requisitos exigidos por otra normativa, el prestador o empresa que preste el servicio de turismo aventura, debe cumplir con lo establecido en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 2°.-Ámbito de aplicación. Quedan sujetos a las regulaciones del presente Reglamento, aquellas empresas o prestadores de servicios que proporcionen u ofrezcan servicios de turismo aventura en todo el territorio nacional. Los anexos 1 y 2 forman parte integral y vinculante del presente reglamento.

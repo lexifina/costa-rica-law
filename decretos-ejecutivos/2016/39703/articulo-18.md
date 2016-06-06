@@ -1,0 +1,1 @@
+Articulo 18°.- Agua y servicios sanitarios. El prestador de los servicios de turismo aventura debe facilitar a los usuarios el acceso a servicios sanitarios y agua potable, así como vestidores cuando la actividad lo requiera.
