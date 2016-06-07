@@ -41,3 +41,4 @@ Reglamento para la Calificación de Deudores
 | 26 | 2011-01-28 | Reglamento 899 (2011-01-28) |
 | 27 | 2013-08-19 | Reglamento 1058 (2013-08-19) |
 | 28 | 2014-05-06 | Reglamento 1106 (2014-05-06) |
+| 29 | 2016-06-07 | Reglamento 1258 (2016-06-07) |
