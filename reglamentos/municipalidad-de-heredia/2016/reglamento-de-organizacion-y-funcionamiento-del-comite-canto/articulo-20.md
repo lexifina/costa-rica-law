@@ -1,0 +1,1 @@
+Artículo 20.—El Comité Comunal o los Comités Vecinales de Deportes deberán coadyuvdar en materia deportiva y recreativa al Comité Cantonal de Deportes y Recreación en constante coordinación con las comunidades y esté para la ejecución de las mismas.

@@ -1,0 +1,1 @@
+Artículo 58.—Para regular el funcionamiento operativo y funcional de las diversas áreas del Comité Cantonal, el Concejo Municipal, por recomendación de la Junta Directiva del Comité Cantonal de Deportes emitirá los reglamentos, directrices y resoluciones que procuren el adecuado uso de los fondos públicos que han sido encomendados por el Código Municipal.

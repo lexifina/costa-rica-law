@@ -1,0 +1,1 @@
+Artículo 60.—El Comité Cantonal de Deportes será el responsable de conformar e inscribir las diversas representaciones cantonales en los Juegos Deportivos Nacionales, para lo cual procurará integrar e invitar a todos los jóvenes del cantón, mediante procesos y eventos selectivos, en aras de obtener la mejor representación posible.

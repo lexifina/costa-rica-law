@@ -1,0 +1,1 @@
+Artículo 33.—Cuando un integrante de la Junta Directiva no asista a una sesión, debe comunicar a la Secretaría de la Junta la ausencia justificada de su inasistencia. Para hacerlo por escrito contará con un plazo máximo de cuarenta y ocho horas, de no hacerlo su ausencia se tomará como injustificada para los efectos correspondientes.

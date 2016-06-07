@@ -1,0 +1,1 @@
+Artículo 42.—En el uso de las instalaciones deportivas existentes, el Comité Cantonal, los Comités Comunales y Comités Vecinales de Deportes y Recreación deberán darle participación a todos los grupos deportivos organizados de la comunidad.

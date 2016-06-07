@@ -1,0 +1,1 @@
+Artículo 22.—La Junta Directiva del Comité Comunal o Comités Vecinales de Deportes durarán en sus puestos 2 años y su nombramiento se llevará a cabo con al menos un mes de anticipación al vencimiento de su respectivo periodo.

@@ -1,0 +1,1 @@
+Artículo 50.—De los fondos disponibles en el presupuesto para cada Comité Comunal o Comités Vecinales de Deportes, la Junta Directiva del Comité Cantonal, puede autorizar el funcionamiento de una caja chica, contemplando para ello las normas básicas para la correcta utilización de esos recursos en la comunidad.

@@ -1,0 +1,1 @@
+Artículo 7º—No podrán ser miembros de la Junta Directiva los concejales, el alcalde, los vice Alcaldes, el tesorero o auditor, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado de afinidad y consanguinidad inclusive.

@@ -1,0 +1,1 @@
+Artículo 19.—El Comité Cantonal, también podrá autorizar el funcionamiento de Sub-Comités Vecinales de Deportes por razones territoriales o técnicas, los cuales estarán coordinados por el respectivo Comité Comunal del área donde se circunscriban.

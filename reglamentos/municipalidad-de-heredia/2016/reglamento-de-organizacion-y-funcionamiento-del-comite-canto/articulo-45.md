@@ -1,0 +1,1 @@
+Artículo 45.—El Comité Cantonal, Comité Comunal de Deporte y Recreación y Comités Vecinales de Deportes y Recreación, en lo que se refiere al mantenimiento de las instalaciones deportivas, específicamente de su gramilla, deberán contemplar periodos de recuperación según el clima y la temporada proyectada.

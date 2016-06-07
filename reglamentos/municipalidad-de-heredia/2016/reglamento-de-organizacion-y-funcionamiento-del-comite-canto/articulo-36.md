@@ -1,0 +1,1 @@
+Artículo 36.—El Comité Cantonal contará en su organigrama con las áreas operativas de trabajo necesarias según su disponibilidad presupuestaria. Cada una de estas áreas tendrá un coordinador y el personal necesario para cumplir con sus fines, siempre y cuando dichas plazas estén incorporadas en el presupuesto aprobado.

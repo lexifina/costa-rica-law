@@ -1,0 +1,1 @@
+Artículo 54.—La Junta Directiva del Comité Cantonal podrá evaluar y autorizar iniciativas de generación de recursos para aumentar los ingresos del Comité Cantonal o de los Comités Comunales o Comités Vecinales de Deportes.

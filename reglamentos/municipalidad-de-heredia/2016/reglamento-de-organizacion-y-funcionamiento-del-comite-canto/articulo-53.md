@@ -1,0 +1,2 @@
+Artículo 53.—Los grupos afiliados, los equipos de liga menor, así como los equipos de juegos nacionales y selecciones locales que representen oficialmente a la comunidad y que estén reconocidos o inscritos en el padrón deportivo Cantonal; tendrán prioridad para el uso de instalaciones deportivas.
+Las competencias y campeonatos promovidos por órganos u organismos deportivos nacionales, deberán incluirse en la programación anual del uso de instalaciones; siempre y cuando el uso de las instalaciones sea temporal y resulte beneficioso para el Comité Cantonal de Deportes.

@@ -1,0 +1,1 @@
+Artículo 38.—Cada una de las áreas del Comité debe incorporar dentro de sus áreas de trabajo planes y recursos para la adecuada capacitación del personal, promotores o participantes; todos ellos necesarios para el cabal cumplimiento de los objetivos trazados.

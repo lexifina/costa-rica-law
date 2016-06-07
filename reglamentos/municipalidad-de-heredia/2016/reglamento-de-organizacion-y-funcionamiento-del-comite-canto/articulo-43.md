@@ -1,0 +1,1 @@
+Artículo 43.—Las instalaciones deportivas serán clasificadas por el Comité Cantonal, en categorías, de acuerdo a las condiciones de éstas; también ordenará el uso de éstas por los usuarios, de acuerdo con el tipo de actividad que realicen.

@@ -1,0 +1,5 @@
+Artículo 8º—Los cinco integrantes propietarios del Comité se elegirán de la siguiente manera:
+a) Dos integrantes serán de nombramiento directo del Concejo Municipal, quienes serán escogidos con al menos un mes de antelación al vencimiento del periodo reglamentario de la Junta Directiva;
+b) Dos integrantes serán escogidos por asamblea general de representantes de organizaciones deportivas y recreativas del cantón, incorporados en el padrón deportivo cantonal que para tal efecto llevará la Secretaría del Comité Cantonal de Deportes y Recreación de Heredia; para tal efecto el Comité Cantonal invitará mediante publicación en diario oficial La Gaceta a las organizaciones a integrarse en el padrón al menos una vez al año.
+El padrón es permanente; por lo que únicamente perderán su credencial las organizaciones cuya personería se encuentre vencida al momento de una Asamblea. El corte del padrón para la elección del Comité se realizará 15 días naturales antes de la fecha de la Asamblea.
+c) El quinto integrante se escogerá mediante asamblea de Asociaciones de Desarrollo Integral del Cantón, debidamente inscritas en DINADECO con personería jurídica al día.

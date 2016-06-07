@@ -1,0 +1,1 @@
+Artículo 23.—No podrán ser parte de la Junta Directiva del Comité Comunal o Comités Vecinales de Deportes los concejales, síndicos, alcalde, vice alcaldes, auditor, tesorero, contador, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive.

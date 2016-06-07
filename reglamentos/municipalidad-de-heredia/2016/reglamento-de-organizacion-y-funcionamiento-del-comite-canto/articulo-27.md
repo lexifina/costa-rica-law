@@ -1,0 +1,1 @@
+Artículo 27.—El nombramiento de los miembros de las Juntas Directivas de los Comités Vecinales de Deportes se realizará de manera directa por la Junta Directiva del Comité Cantonal y estas de su seno nombrarán un presidente, un vicepresidente, un secretario, un tesorero y un vocal.

@@ -1,0 +1,1 @@
+Artículo 49.—La Junta Directiva del Comité Cantonal podrá apoyar el funcionamiento de los Comités Comunales o Comités Vecinales de Deportes y Recreación con asignación de recursos, siempre y cuando dicho apoyo sea motivado y esté debidamente presupuestado.

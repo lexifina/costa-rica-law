@@ -1,0 +1,1 @@
+Artículo 2º—Dicho Comité Cantonal funcionará acorde con la legislación vigente y podrá trabajar en coordinación con las autoridades locales, regionales, nacionales e internacionales con el objetivo de cumplir los fines para los que por ley ha sido creado.
