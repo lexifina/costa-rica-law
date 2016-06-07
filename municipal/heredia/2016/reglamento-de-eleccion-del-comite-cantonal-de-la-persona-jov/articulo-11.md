@@ -1,0 +1,1 @@
+Artículo 11.—La convocatoria del Concejo Municipal debe ser publicitada por los medios de comunicación masiva y redes sociales donde sea posible para el gobierno local de Heredia tener presencia sin costo económico. Esto se indicará en el acuerdo respectivo de aprobación de la convocatoria.

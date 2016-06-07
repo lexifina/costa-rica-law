@@ -1,0 +1,1 @@
+Artículo 18.—Se realizará una sola votación y quedaran electos los dos candidatos que obtengan más votos en el caso de las Organizaciones juveniles y la representación colegial, en el caso de las organizaciones religiosas será el que obtenga más votos.

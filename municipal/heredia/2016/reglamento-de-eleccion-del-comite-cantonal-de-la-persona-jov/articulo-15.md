@@ -1,0 +1,1 @@
+Artículo 15.—El Concejo Municipal indicará por acuerdo quienes deben dirigir las Asambleas para elección de los miembros del Comité Cantonal de la Persona Joven, pudiendo recaer dicha responsabilidad en los regidores y/o síndicos que integran la Comisión de la Persona Joven.

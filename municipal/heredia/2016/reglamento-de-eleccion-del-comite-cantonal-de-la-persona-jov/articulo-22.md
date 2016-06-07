@@ -1,0 +1,1 @@
+Artículo 22.—Quien presida la Asamblea finalizada la sesión, enviará todas las actas y la ratificación de los acuerdos a la secretaria del Concejo Municipal junto con la documentación respectiva que acredita a los candidatos electos.

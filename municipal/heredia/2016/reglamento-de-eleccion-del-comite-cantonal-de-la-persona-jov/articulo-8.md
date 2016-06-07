@@ -1,0 +1,1 @@
+Artículo 8º—Dentro de la convocatoria que emitirá el Concejo Municipal de Heredia se le establecerá un plazo proporcional y razonable al Comité Cantonal de Deportes para que efectúe un proceso de selección de su representante o delegado según sus atestados.

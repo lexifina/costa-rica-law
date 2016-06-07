@@ -1,0 +1,1 @@
+Artículo 16.—Terminado el proceso el proceso de presentación de los postulantes inscritos, la Asamblea determinará el proceso de elección de las representaciones, es decir, si la votación será secreta o pública.
