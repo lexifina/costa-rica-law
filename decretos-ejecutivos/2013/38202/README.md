@@ -14,3 +14,4 @@ Reglamento a los inciso h) y k) del artículo 3 de la Ley de Desarrollo Social y
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-10 | la propia norma |
+| 2 | 2016-06-07 | Decreto Ejecutivo 39756 (2016-06-07) |

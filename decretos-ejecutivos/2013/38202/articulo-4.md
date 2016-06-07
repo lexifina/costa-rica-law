@@ -7,3 +7,5 @@ FODESAF: Fondo de Desarrollo Social y Asignaciones Familiares.
 IMAS: Instituto Mixto de Ayuda Social.
 PANI: Patronato Nacional de la Infancia.
 Programa: Programa de Prestaciones Alimentarias a cargo del Estado
+Trabajador: Toda persona que realiza una actividad (física o intelectual) remunerada o no, que producen bienes o servicios en una economía o que genera asistencia a personas y que se proyecte sobre su entorno y circunstancias.
+(Así adicionada la definición anterior por el artículo 1° del decreto ejecutivo N° 39756 del 7 de junio del 2016)
