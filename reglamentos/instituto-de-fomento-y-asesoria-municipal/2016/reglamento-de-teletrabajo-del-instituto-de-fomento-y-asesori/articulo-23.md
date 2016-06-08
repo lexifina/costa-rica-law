@@ -1,0 +1,9 @@
+ARTÍCULO 23: Los requerimientos mínimos de tecnologías de información y comunicación para realizar teletrabajo son los siguientes:
+a.Contar con conexión a internet, con al menos un mega de ancho de banda.
+b.Configurar el equipo que la persona teletrabajadora utilizará para realizar sus labores.
+c.Las personas teletrabajadoras, deberán tomar un curso de inducción en el aspecto tecnológico; con el propósito de hacer un buen uso de las herramientas que deberán utilizar, según cada caso en particular.
+d.En caso de que la persona teletrabajadora requiera conectividad para ingresar a utilizar los sistemas institucionales desde el equipo personal (computador), éste debe tener el sistema operativo Windows XP o superior; además de al menos 2 MB de memoria RAM.
+e.En caso de que el (la) funcionario (a) teletrabajadora tenga asignado en el IFAM un equipo de cómputo portátil, la Administración se lo facilitará para que ejecute el teletrabajo. En estos casos se deberán aplicar los procedimientos que existen en la Institución, para consignar la salida de activos.
+f.Cuando la persona teletrabajadora tiene asignada una computadora de escritorio y para teletrabajar deba hacer uso de su computadora personal, ésta debe contar con la versión de Windows negocios. Sin embargo, hay capacidad técnica en el IFAM para que, el (la) teletrabajador (a) desde su computadora personal, pueda accesar a la computadora que tiene asignada en el IFAM, mediante “escritorio remoto”. Para ello, la Sección de Sistemas de Información y Desempeño deberá valorar cada caso en particular.
+g.En relación con la capacidad del hardware, se le comunicará al personal teletrabajador las condiciones mínimas que debe contar el equipo personal que destinará para teletrabajar.
+h.Con la finalidad de realizarle una revisión e instalación previa por parte de la Sección de Sistemas de Información, la persona teletrabajadora deberá facilitar su equipo personal.

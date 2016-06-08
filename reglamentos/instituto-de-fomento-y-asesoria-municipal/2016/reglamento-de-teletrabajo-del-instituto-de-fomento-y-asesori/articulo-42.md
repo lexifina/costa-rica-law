@@ -1,0 +1,1 @@
+ARTÍCULO 42: Planificar y coordinar las actividades y metas asignadas a los teletrabajadores y supervisar dichas actividades mediante informes, con plazos establecidos, indicadores o el uso de herramientas como el Project, debidamente acordado con el teletrabajador..

@@ -1,0 +1,1 @@
+ARTÍCULO 41: Determinar si la información a la cual tiene acceso la persona teletrabajadora es de carácter confidencial, respecto de los intereses de la Institución y proceder de conformidad con las disposiciones legales y reglamentarias vigentes.

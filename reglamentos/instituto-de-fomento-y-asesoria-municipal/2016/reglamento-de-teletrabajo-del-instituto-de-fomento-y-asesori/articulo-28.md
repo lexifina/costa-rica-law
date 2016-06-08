@@ -1,0 +1,1 @@
+ARTÍCULO 28: La persona teletrabajadora es la responsable directa de la confidencialidad y seguridad de las plataformas, bases de datos e información que utilice y pueda acceder, evitando por todos los medios un uso inapropiado, según se establece en la normativa institucional.

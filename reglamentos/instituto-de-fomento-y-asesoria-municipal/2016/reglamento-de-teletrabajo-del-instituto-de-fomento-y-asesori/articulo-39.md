@@ -1,0 +1,1 @@
+ARTICULO 39: Cumplir con todas las condiciones que establezcan los reglamentos y procedimientos aplicables a esta modalidad, independientemente del lugar donde se desarrollen las actividades a teletrabajar (domicilio particular o centros de teletrabajo).

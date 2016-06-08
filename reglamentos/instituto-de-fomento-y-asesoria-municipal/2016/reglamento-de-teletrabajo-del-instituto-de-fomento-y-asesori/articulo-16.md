@@ -1,0 +1,1 @@
+ARTÍCULO 16: Si la Jefatura inmediata, requiere que el teletrabajador/a se incorpore a la modalidad tradicional de trabajo, deberá, respetando el debido proceso, presentar una justificación explicando los motivos para aplicar las acciones Justificar ante la Administración Superior la decisión para que se ejecuten las acciones administrativas correspondientes.

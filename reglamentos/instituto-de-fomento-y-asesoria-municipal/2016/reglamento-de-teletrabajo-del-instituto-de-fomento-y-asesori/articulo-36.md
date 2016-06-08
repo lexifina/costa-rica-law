@@ -1,0 +1,1 @@
+ARTÍCULO 36: La persona teletrabajadora deberá brindar información verídica y oportuna en todos los procesos de investigación, evaluación del desempeño y medición a los que deba someterse. En caso de comprobarse falsedad o alteración de la información, se procederá conforme lo señalado en la normativa legal y reglamentaria vigente.

@@ -1,0 +1,1 @@
+ARTÍCULO 19: La Sección de Sistemas de Información y Desempeño del IFAM, brindará el soporte técnico únicamente a las herramientas de software y sistema operativo necesarios para realizar el teletrabajo.

@@ -1,0 +1,1 @@
+ARTÍCULO 15: En caso de que se demuestre, que el teletrabajador/a incumple con las disposiciones establecidas en este Reglamento, se dará por finalizada su participación en este programa, sin perjuicio de aplicar las medidas disciplinarias correspondientes, de conformidad con lo señalado en la normativa legal y reglamentaria vigente.

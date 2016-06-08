@@ -1,0 +1,1 @@
+ARTÍCULO 13: Los y las servidoras de nuevo ingreso, contratados en un puesto teletrabajable deben mantener las condiciones acordadas durante su relación laboral. En caso de que dichas condiciones cambien, la jefatura correspondiente analizará la situación, observando el debido proceso.

@@ -1,0 +1,1 @@
+ARTÍCULO 26: La Sección de Recursos Humanos del IFAM, coordinará los requerimientos de capacitación del programa de teletrabajo, hará la provisión presupuestaria correspondiente y realizará las convocatorias a participar de los eventos que se programen.

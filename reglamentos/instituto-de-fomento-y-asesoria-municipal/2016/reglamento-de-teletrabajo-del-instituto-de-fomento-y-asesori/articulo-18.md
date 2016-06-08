@@ -1,0 +1,1 @@
+ARTÍCULO 18: La Sección de Sistemas de Información y Desempeño del IFAM es la responsable, en primera instancia, de brindarle a la persona teletrabajadora la asistencia técnica oportuna para la resolución de los problemas de infraestructura tecnológica, mediante medios remotos.

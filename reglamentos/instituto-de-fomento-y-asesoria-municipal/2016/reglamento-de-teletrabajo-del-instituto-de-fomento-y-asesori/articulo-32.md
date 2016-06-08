@@ -1,0 +1,1 @@
+ARTÍCULO 32: La persona teletrabajadora será responsable de los activos institucionales que utilice y traslade hacia el lugar de teletrabajo. En caso de extravío, debe proceder conforme con lo establecido en la normativa legal y reglamentaria vigente.

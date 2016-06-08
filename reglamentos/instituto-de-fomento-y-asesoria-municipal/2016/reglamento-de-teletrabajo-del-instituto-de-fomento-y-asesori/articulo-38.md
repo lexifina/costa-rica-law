@@ -1,0 +1,1 @@
+ARTICULO 38: Cumplir al igual que todos los funcionarios, con la jornada oficial del IFAM. Sin embargo el horario puede ser flexibe, siempre y cuando sea consensuado con su Jefatura y no afecte el normal desarrollo de las actividades de otros compañeros y procesos de trabajo que reciben o entregan insumos a su gestión.

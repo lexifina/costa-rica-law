@@ -1,0 +1,1 @@
+ARTÍCULO 9: Los teletrabajadores/as mantendrán su centro de trabajo en el cual han sido contratados, independientemente del lugar en el que realicen las actividades, y esto no implica que la Institución deba reconocer algún tipo de incentivo económico, tal como pago de zonaje, viáticos, pasajes, ni ningún otro.

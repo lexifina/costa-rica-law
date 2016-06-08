@@ -1,0 +1,1 @@
+ARTÍCULO 35: La persona teletrabajadora deberá asumir los gastos de electricidad, agua y alimentación, relacionados con el desarrollo de las actividades teletrabajables. En el caso de gastos de traslados para giras o reuniones de trabajo, como parte de su función, aplicará lo establecido en el ordenamiento jurídico vigente.

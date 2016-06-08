@@ -1,0 +1,1 @@
+ARTÍCULO 8: Todas las jefaturas y servidores relacionados directa o indirectamente con las personas que teletrabajen, deben colaborar en su gestión, para que esta modalidad de trabajo cumpla con los objetivos fijados por el IFAM.

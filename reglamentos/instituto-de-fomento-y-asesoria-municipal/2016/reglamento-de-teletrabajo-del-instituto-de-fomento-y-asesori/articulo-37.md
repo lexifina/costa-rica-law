@@ -1,0 +1,1 @@
+ARTICULO 37: Las personas teletrabajadoras estarán protegidas por la “Póliza de Riesgos del Trabajo” que tiene el IFAM, siempre y cuando cumplan con las disposiciones establecidas y procedimientos vigentes para este fin.

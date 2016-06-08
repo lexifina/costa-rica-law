@@ -1,0 +1,1 @@
+ARTÍCULO 29: El (la) servidor(a) que acceda a esta modalidad de trabajo, lo hará de mutuo acuerdo con su jefatura inmediata, siempre y cuando cumpla con los requisitos establecidos para el ingreso al programa de teletrabajo.
