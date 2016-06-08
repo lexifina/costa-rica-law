@@ -7,6 +7,9 @@ Glosario
 5) Morosidad: El mayor número de días de atraso en el pago de principal, intereses, otros productos y cuentas por cobrar asociados a la operación crediticia, contados a partir del primer día de atraso, que presenta el deudor en la atención de sus operaciones crediticias en la entidad a una fecha determinada según las condiciones contractuales de pago.
 6) Plazo: Es el período de tiempo específico en el que ha de cubrirse el monto total otorgado en crédito.
 7) Tasa de interés: La tasa de interés es el precio del dinero en el mercado financiero.
-8) Pluses salariales permanentes: corresponden a aquellas compensaciones salariales que hayan sido percibidas por los trabajadores en los últimos dos años.
+8) Pluses salariales permanentes: corresponden a aquellas compensaciones salariales que hayan sido percibidas por los trabajadores y que formen parte de su salario ordinario, con carácter de permanencia.
+(Así reformada la definición anterior mediante sesión ordinaria N° 064-2016 del 8 de junio del 2016)
 9) Comité de Crédito: Estará conformado por el Analista de Vivienda, quien tendrá voz; el Coordinador de la Unidad de Crédito, el Oficial de Crédito y el Oficial de Cobro, quienes tendrán voz y voto. Este comité, será responsable de analizar las solicitudes de crédito de vivienda del programa del Régimen de Capitalización Colectiva.
 (Así reformada la definición anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+11) Seguro de Caución: Garantía que paga al acreedor el 100% del saldo del crédito que el garantizado (deudor) adeude, habiéndose cumplido todos los procedimientos de cobro respecto del crédito moroso y cuya causa no es ni la muerte ni la incapacidad total y permanente. Esta figura sustituye la fianza solidaria.
+(Así adicionada la definición anterior mediante sesión ordinaria N° 064-2016 del 8 de junio del 2016)

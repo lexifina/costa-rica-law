@@ -1,2 +1,3 @@
-Artículo 13.—Aprobación de los créditos. Las solicitudes para los préstamos de vivienda serán sujeto de análisis, aprobación o denegatoria del Comité de Crédito.
+Artículo 13. Aprobación de los créditos. Las solicitudes para los préstamos de vivienda serán sujeto de análisis, aprobación o denegatoria del Comité de Crédito, salvo por los créditos para remodelaciones, por montos menores o iguales a ¢10 millones, que serán aprobadas por los analistas de vivienda.
 Queda entendido que por el hecho de recibir la solicitud de crédito, la Junta de Pensiones no adquiere compromiso u obligación alguna con el solicitante y que la aprobación del mismo queda sujeta a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación y la disponibilidad presupuestaria.
+(Así reformado mediante sesión ordinaria N° 064-2016 del 8 de junio del 2016)

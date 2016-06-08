@@ -1,1 +1,3 @@
-Artículo 22.—Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos, sin que por ello deba pagar suma adicional alguna, salvo los intereses generados al momento de la cancelación.
+Artículo 22. Pagos extraordinarios y cancelaciones anticipadas. El beneficiario podrá realizar pagos extraordinarios al crédito, o cancelar en forma anticipada cualquiera de los préstamos. En los pagos que se realicen durante el primer año (extraordinario o cancelación) se cobrará una comisión del 2% sobre el monto del pago efectuado, además de los intereses generados al momento de la cancelación.
+Esta comisión es aplicable solamente para casos otorgados en periodos de ferias o con condiciones especiales que hayan significado erogaciones adicionales por parte de la Junta.
+(Así reformado mediante sesión ordinaria N° 064-2016 del 8 de junio del 2016)
