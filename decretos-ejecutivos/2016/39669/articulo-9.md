@@ -1,0 +1,1 @@
+Artículo 9°—En consulta con el Órgano Asesor, el SENASA determinará las vedas que correspondan por especie, zona y tiempo, en función de la rastreabilidad del producto y de los resultados de los análisis toxicológicos del LANASEVE.

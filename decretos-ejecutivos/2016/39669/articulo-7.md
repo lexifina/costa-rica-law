@@ -1,0 +1,1 @@
+Artículo 7°—El SENASA en coordinación con el órgano asesor, establecerá un programa de vigilancia para Marea Roja, que deberá monitorear aquellas especies de moluscos bivalvos u otros organismos acuáticos que acumulen ficotoxinas que impliquen riesgos para la salud humana, como consecuencia de su consumo, ya sea como producto de extracción o de cultivo.

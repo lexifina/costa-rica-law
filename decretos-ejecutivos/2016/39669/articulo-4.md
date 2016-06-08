@@ -1,0 +1,1 @@
+Artículo 4°—Los integrantes del Órgano asesor serán juramentados por el Ministro de Agricultura y Ganadería; de igual forma lo serán los representantes de las distintas instituciones que sean reemplazados al existir una nueva designación, antes o durante la siguiente sesión de trabajo del Órgano asesor.
