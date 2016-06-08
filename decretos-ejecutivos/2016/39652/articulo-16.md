@@ -1,0 +1,1 @@
+Artículo 16.—Los costos relacionados con la adecuación de los sistemas de información para la interoperabilidad y el uso de estándares de información en materia de salud son responsabilidad de los propietarios de sus sistemas.

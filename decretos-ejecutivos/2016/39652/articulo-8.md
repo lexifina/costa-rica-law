@@ -1,0 +1,3 @@
+Artículo 8°—Las actas se aprobarán en la siguiente sesión ordinaria. Antes de esa aprobación carecerán de firmeza los acuerdos tomados en la respectiva sesión, a menos que los miembros presentes acuerden su firmeza por al menos votación de dos tercios de la totalidad de los miembros del “La Comisión”.
+Las actas serán firmadas por el Coordinador y por aquellos miembros que hubieren hecho constar su voto disidente.
+Los miembros de “La Comisión”, podrán hacer constar en el acta su voto contrario al acuerdo, adoptado y los motivos que lo justifiquen, quedando en tal caso exentos de las responsabilidades que, en su caso, pudieren derivarse de los acuerdos.

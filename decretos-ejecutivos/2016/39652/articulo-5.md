@@ -1,0 +1,1 @@
+Artículo 5°—Las sesiones de “La Comisión”, serán siempre privadas, pero ésta podrá disponer, acordándolo así por unanimidad de sus miembros presentes, que tenga acceso a ella el público en general, o bien personas que puedan contribuir con su gestión, concediéndoles o no el derecho de participar en las deliberaciones con voz pero sin voto.

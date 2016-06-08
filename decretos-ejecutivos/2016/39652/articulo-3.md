@@ -1,0 +1,8 @@
+Artículo 3°—“La Comisión” tendrá a cargo las siguientes funciones:
+a) -Definir las ontologías, terminologías y las clasificaciones para la salud común y modelos normalizados de representación de la información en salud para forjar y estandarizar los formatos y esquemas de codificación de datos, con el fin de tener un acceso eficaz a la información relevante, información confiable y oportuna sobre el usuario de los servicios de salud;
+b) -Promover el uso de una arquitectura de la información para la salud, que incluye la representación de estándares contemplados en el artículo número 13 del presente reglamento, para permitir el intercambio de información sobre la salud y la colaboración de todos los profesionales, instituciones de salud y otras personas involucradas en la atención de salud prestada a los usuarios a nivel nacional en el sector público y privado, en un entorno seguro y garantizando la confidencialidad de los datos;
+c) -Contribuir a mejorar la calidad y eficiencia del Sistema Nacional de Salud y la salud de la población en general.
+d) -Justificar la definición de una arquitectura nacional, independiente de software tecnológico y plataforma de hardware, para guiar el desarrollo de sistemas de información nacional de salud.
+e) -Permitir la interoperabilidad funcional, sintáctica y semántica entre diferentes sistemas de información de salud actuales y los futuros a desarrollar e implementar en Costa Rica.
+f) -Definir el conjunto mínimo de datos a ser utilizados en la comunicación entre los sistemas de historia clínica electrónica.
+g) -Mantener informados a los jerarcas de las instituciones (cuales) sobre el avance y necesidades de la “La Comisión”.
