@@ -1,0 +1,1 @@
+Artículo 3°.- Inhabilítense los códigos tarifarios B.5 (B.05.01, B.05.02 y B.05.03); H.3 y H.6 artículo 3 del Decreto Nº 27763-MAG del 10 de marzo de 1999, publicado en el Alcance Nº 26 La Gaceta Nº 68 del 9 de abril de 1999 y sus reformas.

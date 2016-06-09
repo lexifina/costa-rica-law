@@ -1,0 +1,1 @@
+TRANSITORO UNICO.- La Dirección General del SENASA tomará las previsiones administrativas que corresponda a los efectos de que en un término no mayor a sesenta días naturales establezca los mecanismos necesarios para que las personas viajeras que ingresan o salen del país puedan cumplir con su obligación del pago de la tarifa C.19 del artículo 3 del presente Decreto.
