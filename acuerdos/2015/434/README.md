@@ -14,3 +14,4 @@ Prorroga vigencia del Cuadro de Tarifas y sus Notas Explicativas, adoptado media
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-25 | la propia norma |
+| 2 | 2016-06-09 | Acuerdo 212 (2016-06-09) |
