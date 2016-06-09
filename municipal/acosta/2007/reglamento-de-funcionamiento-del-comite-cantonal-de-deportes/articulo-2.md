@@ -1,5 +1,2 @@
-Artículo 2º—En el mes de enero de cada dos años se nombrará el Comité Cantonal de Deportes y Recreación y entrará en funciones el 1º de febrero de ese mismo año, de acuerdo a los siguientes incisos:
-a) A más tardar la segunda semana de enero del año que corresponda las asociaciones deportivas y recreativas y asociaciones comunales deben presentar a la Secretaría del Concejo Municipal las ternas propuestas.
-Las ternas deberán presentarse mediante nota debidamente sellada y firmada por el presidente de la asociación haciendo constar el acuerdo respectivo.
-b) El Concejo Municipal escogerá dos miembros de la ternas de las asociaciones deportivas y recreativas, uno de las ternas de las asociaciones comunales y dos miembros de nombramiento directo.
-c) En el caso de las asociaciones el Concejo Municipal no podrá escoger a personas que no vengan en la respectiva terna, excepto que no se presenten las ternas dentro el plazo establecido en el inciso a de este artículo, y por lo tanto podrá nombrar directamente a esos miembros.
+Artículo 2º—En Los miembros de cada comité durarán en sus cargos dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna.
+(Así reformado mediante sesión N° 02 del 09 de junio del 2016)
