@@ -1,0 +1,3 @@
+Artículo 60.- Fuentes normativas
+Todo lo correspondiente a vialidad se regirá por lo establecido en el Plan regulador de Alvarado y sus reglamentos, la Ley General de Caminos Públicos, y demás normativa conexa, emitida a nivel nacional o municipal. Los planes municipales que se llegasen a adoptar por parte de otros ayuntamientos de la Provincia de Cartago, también servirán como fuente de aplicación e interpretación de la presente reglamentación, en cuanto no resulten abiertamente opuestos.
+Ningún reglamento nacional de planificación urbana podría surtir efectos sino se establecen los elementos de desarrollo de cada gestión.

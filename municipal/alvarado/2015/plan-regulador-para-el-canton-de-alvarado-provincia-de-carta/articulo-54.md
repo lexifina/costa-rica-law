@@ -1,0 +1,1 @@
+Artículo 55.- Todos los anuncios que no armonicen con el diseño y la tipografía general, y que por lo tanto no cumplan con las normas que al respecto establece este reglamento, deberán ser adecuados o retirados por sus propietarios o, en su defecto por la autoridad competente

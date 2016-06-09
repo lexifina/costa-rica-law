@@ -1,0 +1,1 @@
+Artículo 116.—Para la licencia de explotación (actividades lucrativas), se deberá cumplir con el trámite propio de ese tipo de licencias y el pago por concepto de patente se fijará de acuerdo con la ley correspondiente que en la actualidad esla Nº 7248.

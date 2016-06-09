@@ -1,0 +1,1 @@
+Artículo 115.—Una vez presentada completa la solicitud de Licencia de Construcción la administración tendrá treinta días naturales para emitir la resolución final. El interesado contará con la posibilidad de impugnar esa resolución, cuando le sea desfavorable, mediante los recursos previstos en el Código Municipal.

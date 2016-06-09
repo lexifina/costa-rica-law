@@ -1,0 +1,1 @@
+Artículo 52.- La Dirección de Urbanismo de la Municipalidad de Alvarado, en cualquier momento podrá ordenar la suspensión de las obras que no reúnan las condiciones requeridas conforme a la Ley y este reglamento, o cuando se ejecuten sin las autorizaciones y requisitos que señala los documentos antes mencionados.

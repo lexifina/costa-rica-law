@@ -1,0 +1,1 @@
+Artículo 42.- La aplicación de las disposiciones previstas en este reglamento corresponderá a la Municipalidad de Alvarado a través de la Oficina de Planificación Urbana, la que coordinará lo pertinente con la Comisión y otras organizaciones afines. Idea de incentivos a los dueños de inmuebles con interés arquitectónico u otro, rebajo de un porcentaje en impuestos (entre otros)
