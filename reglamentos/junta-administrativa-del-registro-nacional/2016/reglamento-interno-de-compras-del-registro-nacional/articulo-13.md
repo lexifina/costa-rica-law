@@ -1,0 +1,4 @@
+Artículo 13°-De las materias excluidas de los procedimientos ordinarios de contratación. De conformidad a la Ley de Contratación Administrativa y su Reglamento, podrán realizarse compras directas:
+a)Cuando el valor del bien o servicio no sobrepase el monto establecido por la Contraloría General de la República para compras por escasa cuantía, según resolución emitida por la Contraloría General de la República cada año, conforme a la cual se actualizan los montos y ubicación del estrato correspondiente a la Institución.
+b)Cuando por causas especiales exista autorización por parte de la Contraloría General de la República, de conformidad con el numeral 80 de la Ley de Contratación Administrativa y sus correlativos 131 y 132 del Reglamento a la Ley de Contratación Administrativa cuando por el tema corresponda en caso demodificación al texto legal y reglamentario invocados.
+c)En todos los casos establecidos en la Ley de Contratación y su Reglamento.
