@@ -37,9 +37,9 @@ BIENES ACUÍCOLAS
 | 24 | Licencia pesca de atún, embarcación Nacional | licencia | colones | 424.200,00
 | 25 | Emisión y prórroga, licencia pesca de atún, embarcación extranjera | licencia | colones | 424.200,00
 | | LICENCIA PARA EMBARCACION DEPORTIVA O TURISTICA, NACIONAL O EXTRANJERA, MARINA O CONTINENTAL (por año o por trámite)
-| 26 | Embarcación nacional de menos de 10,0 metros de eslora | licencia | dólares | 400,00
-| 27 | Embarcación nacional de 10,01 a 15,0 metros de eslora | licencia | dólares | 690,00
-| 28 | Embarcación nacional de 15,01 a 20,0 metros de eslora | licencia | dólares | 1.035,00
+| 26 | Embarcación nacional de menos de 10,0 metros de eslora | licencia | dólares | Menor o igual 5 millas ¢90,000.00 (o su equivalente en dólares) (Así reformado el monto anterior por acuerdo AJDIP/212-2016 del 9 de junio de 2016)
+| 27 | Embarcación nacional de 10,01 a 15,0 metros de eslora | licencia | dólares | Menor o igual 40 millas ¢270,000.00 (o su equivalente en dólares) (Así reformado el monto anterior por acuerdo AJDIP/212-2016 del 9 de junio de 2016)
+| 28 | Embarcación nacional de 15,01 a 20,0 metros de eslora | licencia | dólares | Mayor 40 millas ¢460,000.00 (o su equivalente en dólares) (Así reformado el monto anterior por acuerdo AJDIP/212-2016 del 9 de junio de 2016)
 | 29 | Embarcación nacional de más de 20,0 metros de eslora | licencia | dólares | 1.340,00
 | 30 | Embarcación extranjera, toda eslora (por 3 meses) | licencia | dólares | 400,00
 | | CONCEPTO | Unidad de medida | Moneda | TARIFA 2015
