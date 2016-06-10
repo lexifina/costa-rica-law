@@ -1,0 +1,4 @@
+Artículo 14. Cobertura de actividades recreativas, deportivas y de responsabilidad social empresarial
+El Instituto extenderá sin costo adicional la cobertura de la póliza del Tomador del seguro, para las actividades recreativas, deportivas y de responsabilidad social empresarial, siempre que sean organizadas, financiadas y dirigidas por éste y se establezca el horario, el lugar, la vestimenta y las acciones a ejecutar, independientemente que las actividades sean o no dentro del horario ordinario y lugar de trabajo.
+Se excluyen de esta cobertura los riesgos del trabajo que se produzcan en las circunstancias señaladas en el artículo 199 del Código de Trabajo.
+El Tomador del seguro deberá garantizar la salud ocupacional de los trabajadores, conforme a los términos del Código de Trabajo, su reglamento y los reglamentos de salud ocupacional que se promulguen.

@@ -1,0 +1,4 @@
+Artículo 58. Prestaciones médicas
+Cuando ocurra un riesgo del trabajo, todo patrono está obligado a procurar brindarle de inmediato al trabajador, el suministro de las prestaciones médico-sanitarias que su estado requiera, sin perjuicio de la obligación que tiene de brindarle los primeros auxilios.
+Para el cumplimiento de esta disposición el Tomador del seguro deberá utilizar, preferentemente, los servicios de la red de salud del Instituto, de conformidad con lo señalado en el Artículo 50.
+Denuncia y procedimiento en caso de siniestro, salvo en aquellos casos de emergencia calificada, en que podrá recurrir al centro médico más cercano, hecho que deberá hacer del conocimiento inmediato del Instituto. En ese caso deberá sujetarse a lo dispuesto en el punto 2 del Artículo 66. Reconocimiento de facturas.

@@ -1,0 +1,3 @@
+Artículo 49. Plazo para anular la “Declaración de planilla” e “Inclusión de asegurados”
+Si por algún motivo el Tomador del seguro requiere anular el envío de una “Declaración de planilla" o una “Inclusión de asegurados”, dicha anulación deberá realizarse directamente en el sistema RTVirtual, a más tardar a las 10 p.m. del día que remitió el reporte.
+De no efectuarse la anulación del envío del formulario en el plazo señalado anteriormente, el Tomador del seguro deberá solicitar por escrito a la Sede del Instituto responsable de la administración de su póliza, a más tardar quince (15) días hábiles posteriores al envío, la anulación indicando las razones correspondientes.

@@ -1,0 +1,11 @@
+Artículo 66. Reconocimiento de facturas
+El reconocimiento se realizará a quien demuestre haber pagado las facturas y para iniciar el trámite de reintegro, el Tomador del seguro deberá denunciar el siniestro conforme a las disposiciones establecidas en el Artículo 50. Denuncia y procedimiento en caso de siniestro.
+A su vez, la persona que pagó las facturas deberá solicitar por escrito al Instituto el reintegro y aportar las facturas originales en buen estado, legibles, sin alteraciones, tachones o borrones de ningún tipo. En caso contrario, no se podrá realizar el reintegro de las mismas.
+El reconocimiento de facturas aplicará:
+1. Cuando exista una referencia médica por parte de los servicios otorgados por el Instituto que autorice al asegurado a realizar el pago. En este caso se gestiona el reintegro del dinero acreditado en la factura original aportada.
+2. Cuando el asegurado recurra por cuenta propia a recibir atención médica en un centro privado, siempre que exista relación causa efecto entre la atención recibida (costos que se pretenden cobrar) y el evento reportado, se reconocerán los costos según el manual tarifario que maneja el Instituto.
+3. En el caso que según criterio de la Unidad de Control y Gestión Técnica de la Dirección de Seguros Solidarios, se determine que el caso aplica como emergencia calificada, se reconocerá el cien por ciento (100%) de los costos incurridos.
+4. En caso de que el evento ocurra en el extranjero, en los términos señalados en el Artículo 13. Cobertura de extraterritorialidad, en cuyos casos se deberá presentar:
+a. Certificado del médico tratante donde se indique el diagnóstico, evolución del padecimiento y tratamiento efectuado, el cual será analizado por el Instituto para su validación.
+b. Facturas originales y/o los comprobantes de pago, en los cuales se detallen los gastos.
+c. En caso de presentación de reclamos en otros idiomas distintos al español, el asegurado debe presentar la respectiva traducción de toda la documentación del reclamo, misma que deberá ser efectuada por traductores oficiales autorizados por el Ministerio de Relaciones Exteriores o mediante el convenio de Apostilla, en un plazo no mayor a los cinco (5) días hábiles, a partir de la fecha en que se emitió la autenticación.

@@ -1,0 +1,3 @@
+Artículo 13. Cobertura de extraterritorialidad
+El Instituto extenderá la cobertura fuera del país, cuando se trate de empresas o actividades que por su índole, deben realizarse ocasional o permanentemente fuera del ámbito geográfico de la República de Costa Rica. Esta protección se otorga sin costo adicional y no será necesario presentar ningún reporte previo al viaje.
+Esta cobertura opera bajo la modalidad de reintegro de facturas definida en el Artículo 66. Reconocimiento de facturas, por lo que en caso de presentarse un riesgo de trabajo en estas circunstancias, el asegurado deberá asistir al centro médico de emergencia más cercano.

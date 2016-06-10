@@ -1,0 +1,3 @@
+Artículo 63. Renta adicional en diciembre
+Tanto los trabajadores a quienes se les haya fijado incapacidad total permanente o gran invalidez, como los derechohabientes del trabajador fallecido a causa de un riesgo de trabajo, tienen derecho al pago de una renta adicional en diciembre, equivalente al monto que estuviera percibiendo mensualmente.
+En el caso de incapacitados en forma parcial permanente, tendrán derecho aquellos que si previo estudio socioeconómico se demuestra que el beneficiario depende exclusivamente de las rentas, es mayor de cuarenta (40) años y no ejerce profesión u oficio en el período de análisis. Además la solicitud de la renta adicional debe ser presentada antes del último día hábil del mes de octubre

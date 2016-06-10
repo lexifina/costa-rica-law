@@ -1,0 +1,4 @@
+Artículo 53. Disposiciones sobre casos no asegurados
+Si el patrono no hubiere asegurado al trabajador contra los riesgos del trabajo, el pago de todas las prestaciones que el Instituto haya suministrado al trabajador víctima de un riesgo del trabajo, o a sus beneficiarios, estará exclusivamente a cargo del patrono.
+El Instituto conservará el derecho de acudir a los Tribunales para cobrar al patrono las sumas erogadas, con los intereses del caso, de conformidad con lo establecido en los artículos 3, 193, 201, 221, 231 y 307 del Código de Trabajo.
+Una vez emitido el cobro, el patrono dispondrá de un plazo máximo de diez (10) días hábiles, para depositar las sumas adeudadas al Instituto, contados a partir de la fecha de la respectiva notificación. Vencido ese término, el Instituto exigirá por la vía ejecutiva el depósito de la suma adeudada, más los intereses legales y las costas correspondientes.

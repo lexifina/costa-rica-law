@@ -1,0 +1,2 @@
+Artículo 74. Modificación del monto asegurado
+Si en el transcurso de vigencia de la póliza se presentan solicitudes que afecten el monto asegurado del seguro, por ejemplo: incremento o disminución de la proyección de planillas, inclusión de proyectos y subcontratos de construcción, extensión de vigencia, entre otros, el Instituto procederá a calcular nuevamente el monto asegurado y hará el ajuste correspondiente en la prima del seguro, informándole al Tomador dentro del plazo máximo de un (1) mes a partir del conocimiento de la situación que generó la modificación.

@@ -1,0 +1,3 @@
+Artículo 36. Responsabilidad solidaria del Tomador del seguro
+Con el fin de salvaguardar la responsabilidad solidaria conforme lo dispuesto en el artículo 193 del Código de Trabajo, el Tomador del seguro responsable de la obra que contrate a otro u otros para realizar una actividad de cualquier índole, quedará exonerado de oficio de esta responsabilidad, si demuestra que los trabajos fueron realizados por un patrono, según lo que señala el artículo 3 del citado Código.
+Las primas que no hayan sido pagadas y correspondan a los trabajos contratados a un intermediario, serán cargadas a la póliza del Tomador del seguro responsable de la obra como un “cargo por pagar”. Igual condición se aplicará para los casos no asegurados que se presenten.

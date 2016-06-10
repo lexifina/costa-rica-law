@@ -1,0 +1,5 @@
+Artículo 38. Monto consumido del período
+El monto consumido del período se determinará con base en el monto de las declaraciones de planilla y/o la mano de obra de las actividades u obras de construcción ejecutados durante el período de liquidación.
+Respecto a las pólizas de construcción, si un proyecto fue pagado en su totalidad al momento de hacer la declaración del mismo y su vigencia consume varios períodos de la póliza, se considerará para la liquidación únicamente la parte de mano de obra correspondiente al período de liquidación, conforme al cronograma del proyecto.
+Las pólizas de construcción de periodo corto cuyo porcentaje de mano de obra declarado es diferente a los contemplados en la Tabla No. 4 del Artículo 30. Determinación del monto de mano de obra, también serán liquidables en las condiciones que se aplican a las pólizas de construcción permanentes.
+Con referencia a las pólizas RT-Cosechas, al finalizar la vigencia del período, el Tomador del seguro deberá aportar una constancia de la producción real entregada, expedida por el ente encargado de recibir la cosecha, a efecto de establecer el monto real consumido.

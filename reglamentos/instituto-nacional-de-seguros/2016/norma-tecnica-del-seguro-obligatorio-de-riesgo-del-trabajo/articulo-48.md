@@ -1,0 +1,3 @@
+Artículo 48. Plazo para la exclusión de nuevos trabajadores
+Si por algún motivo el Tomador del seguro requiere excluir un trabajador de nuevo ingreso, dicha exclusión debe realizarla directamente en el sistema RT-Virtual, a partir del día que defina el cese de la relación laboral, con el fin de registrar en la planilla de inclusión los días realmente laborados.
+El Tomador del seguro siempre deberá incluir el salario y los días laborados por ese trabajador, en la “Declaración de planilla” del período correspondiente, con las observaciones respectivas, de tal forma que el monto que se registre no sea considerado en caso de que se presente un proceso de sustitución posterior a ese período de planilla.

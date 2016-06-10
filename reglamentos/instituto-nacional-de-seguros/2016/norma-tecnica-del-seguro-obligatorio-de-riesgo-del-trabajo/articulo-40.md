@@ -1,0 +1,4 @@
+Artículo 40. Aplicación automática del sobrante
+Cuando del proceso de liquidación resulte un sobrante de prima, será aplicado de oficio prioritariamente a las sumas adeudadas por el Tomador del seguro al régimen de Riesgos del Trabajo.
+De persistir un sobrante y la póliza se encuentre vigente, el mismo será aplicado como aumento al siguiente período de vigencia de la póliza; no obstante, el Tomador del seguro podrá solicitar la devolución, respetando las disposiciones que se indican en el Artículo 41. Devolución del sobrante de liquidación.
+Si la póliza se encuentra sin vigencia por falta de pago, el sobrante será aplicado en la proporción de días que alcance, como extensión de la vigencia del último período pagado o como renovación del seguro, tomando como referencia para definir el consumo la última planilla presentada.

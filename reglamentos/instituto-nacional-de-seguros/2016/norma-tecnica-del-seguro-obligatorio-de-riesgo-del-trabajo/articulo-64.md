@@ -1,0 +1,2 @@
+Artículo 64. Gastos de funeral
+El Instituto Nacional de Seguros reconocerá una suma determinada para gastos del funeral del trabajador fallecido, así como para gastos de traslado del cadáver dentro del Área Metropolitana ó fuera de ésta; dicha suma se reintegrará al familiar del occiso o cualquier otra persona que demuestre haber cumplido con el pago de estos servicios o incurrido en obligaciones económicas por esta misma razón.

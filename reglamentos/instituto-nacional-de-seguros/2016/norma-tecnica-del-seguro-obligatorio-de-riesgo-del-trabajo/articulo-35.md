@@ -1,0 +1,2 @@
+Artículo 35. Modificación de un proyecto de construcción
+Si durante la realización de las actividades de construcción se presentan desviaciones o cambios, con relación a la información declarada en la "Solicitud de inclusión de proyecto de construcción", el Tomador del seguro deberá presentar dentro de los 15 (quince) días hábiles posteriores a la modificación, una nueva declaración con la información actualizada, siempre y cuando la obra esté en ejecución, a fin de que el Instituto realice los ajustes que correspondan en la póliza.

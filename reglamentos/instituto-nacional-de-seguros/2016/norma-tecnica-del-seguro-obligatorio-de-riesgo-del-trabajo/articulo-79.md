@@ -1,0 +1,2 @@
+Artículo 79. Suspensión temporal del seguro
+Si durante el período de vigencia de la póliza se presenta una interrupción en los trabajos que motive la suspensión temporal del mismo, durante los períodos de interrupción el Tomador del seguro deberá declarar una planilla de tipo “Sin actividad”, a efecto de que el Instituto no aplique el procedimiento de sustitución de planillas, conforme lo definido en el Artículo 47. Procedimiento en caso de no recibirse la planilla y el seguro quede suspendido de forma automática.
