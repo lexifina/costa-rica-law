@@ -1,0 +1,1 @@
+Artículo 8º—La versión VIP anuncios consiste en un correo electrónico con contenido expuesto o abierto, que incluirá avisos de pronta publicación, invitaciones, anuncios, alertas y cualquier otra que se considere oportuno enviar dar a conocer de manera urgente.

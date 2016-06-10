@@ -1,0 +1,1 @@
+Artículo 2º—El VIP usará el correo electrónico institucional como medio de divulgación de sus informaciones, las cuales podrán enviarse desplegadas o abiertas en el mismo correo o como un vínculo a la intranet institucional. Estos medios son responsabilidad del DRPPP.

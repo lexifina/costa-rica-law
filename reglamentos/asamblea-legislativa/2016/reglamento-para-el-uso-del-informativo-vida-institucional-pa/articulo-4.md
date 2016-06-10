@@ -1,0 +1,2 @@
+Artículo 4º—El contenido del material enviado para su publicación es responsabilidad del titular de la cuenta de correo que remite la información. El DRPPP conservará copia de los correos recibidos por al menos tres meses, luego procederá a su eliminación.
+Los mensajes que el VIP envíe por correo electrónico se conservarán de acuerdo con las disposiciones del Departamento de Archivo para este tipo de documento.

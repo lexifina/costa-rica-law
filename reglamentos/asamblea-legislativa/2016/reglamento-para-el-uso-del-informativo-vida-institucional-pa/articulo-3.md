@@ -1,0 +1,1 @@
+Artículo 3º—El VIP es de exclusiva utilización institucional, se difundirá información en general y de interés exclusivo de la comunidad legislativa. Podrán hacer uso los diputados, personal de fracciones políticas y personal administrativo. También podrán hacer uso de este medio las organizaciones gremiales de la institución.

@@ -1,0 +1,1 @@
+Artículo 6º—Para ingresar al VIP de la intranet, se deberá autenticar como funcionario de la Asamblea Legislativa, para lo cual la persona tendrá una identificación y una contraseña, que le dará el Departamento de Informática, quien a su vez informará al Área del Portal Legislativo del DRPPP la incorporación o retiro de estas personas.
