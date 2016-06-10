@@ -1,0 +1,1 @@
+Artículo 15.—Las Jefaturas inmediatas deberán velar y fiscalizar que el personal a su cargo utilicen la indumentaria, implementos, equipos, maquinaria y herramientas entregadas y apliquen los procedimientos, mecanismos y sistemas de seguridad que reduzcan los riesgos del trabajo.
