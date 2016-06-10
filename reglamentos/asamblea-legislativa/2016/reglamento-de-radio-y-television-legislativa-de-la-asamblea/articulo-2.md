@@ -1,0 +1,1 @@
+Artículo 2°—Adscripción. Estarán a cargo del Departamento de Relaciones Públicas, Prensa y Protocolo de la Asamblea Legislativa, a través del Área de Radio y Televisión. En el presupuesto anual de dicho departamento deberá incluirse el monto necesario para su funcionamiento.

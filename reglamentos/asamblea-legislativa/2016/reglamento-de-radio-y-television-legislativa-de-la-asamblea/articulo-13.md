@@ -1,0 +1,1 @@
+Artículo 13.—Producción y transmisión de programas de fracciones parlamentarias. El Área de Radio y Televisión brindará espacios semanales de televisión y radio a cada una de las fracciones políticas, distribuidos a convenir de acuerdo con la disponibilidad de espacio y con la cantidad de fracciones políticas.

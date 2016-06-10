@@ -1,0 +1,1 @@
+Artículo 11.—Programación de actividades. El Área de Radio y Televisión deberá informar de previo, las actividades institucionales que serán transmitidas, preferiblemente de forma semanal. Esta información será brindada a diputados y al público en general, a través del portal legislativo.

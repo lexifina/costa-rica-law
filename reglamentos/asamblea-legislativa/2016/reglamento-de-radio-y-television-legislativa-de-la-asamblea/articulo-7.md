@@ -1,0 +1,1 @@
+Artículo 7°—Material de apoyo audiovisual. Durante la transmisión de las sesiones, en caso de recesos, y de previo a su inicio, se podrán transmitir entrevistas o material de audio y audiovisual producidos por el Área de Radio y Televisión. Dicho material deberá buscar ser imparcial y equilibrado entre las fuerzas políticas representadas en la Asamblea Legislativa.

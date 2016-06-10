@@ -1,0 +1,1 @@
+Artículo 16.—Plazo de custodia del material. El material será custodiado por el Área de Radio y Televisión del Departamento de Relaciones Públicas, Prensa y Protocolo de la Asamblea Legislativa, que coordinará con el Departamento de Archivo lo relacionado con la Ley del Sistema Nacional de Archivos y los plazos de remisión del material al Archivo Nacional.
