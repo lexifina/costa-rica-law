@@ -1,2 +1,0 @@
-Artículo 9º—De los recargos. En caso de que algún funcionario de los mencionados en los artículos anteriores del presente Reglamento por recargo o cualquier otro motivo se desempeñe por más de seis meses en dos o más puestos de los señalados, deberá rendir caución por cada uno de ellos.
-Excepcionalmente, si se demostrare que el monto de una de las cauciones pudiera comprender la sumatoria de los montos de las demás, sin detrimento o desmejora de esta primera, el funcionario sólo estará obligado a suscribir la de mayor monto.

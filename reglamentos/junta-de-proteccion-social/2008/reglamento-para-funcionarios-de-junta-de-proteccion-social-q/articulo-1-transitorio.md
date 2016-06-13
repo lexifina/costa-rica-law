@@ -1,7 +1,0 @@
-CAPÍTULO VII
-Disposiciones transitorias
-Transitorio I.—La Comisión de Cauciones de la (*) Junta de Protección Social, una vez publicado el reglamento, deberá elaborar un informe para determinar, con base en los criterios de selección, cuáles funcionarios podrán encuadrar en los supuestos del artículo 3°, dicha Comisión contará para ello con un plazo de treinta días naturales.
-El informe será remitido al Gerente General, quien con base en éste, recomendará a la Junta Directiva dentro de los quince días hábiles siguientes, cuáles de estos cargos o puestos deberían ser incluidos en la rendición de garantía.
-La Junta Directiva ordenará mediante acuerdo firme, cuales de estos cargos o puestos deberán prestar caución.
-Posterior al acuerdo que tome el Órgano Superior, corresponderá a la Gerencia General, aprobar las variaciones que se presenten en cuanto a los montos de las cauciones, ingresos de nuevos colaboradores que deben rendir dicha garantía, u otros, lo anterior de conformidad con la información que para dichos efectos presente la Comisión de Cauciones, únicamente se elevara a Junta Directiva las variaciones que correspondan en cuanto a los montos de las garantías que competen a la Gerencia General.
-(*)(Así modificada su denominación mediante el artículo 1° de la ley N° 8718 del 16 de febrero de 2009, Ley de autorización para el cambio de nombre de la Junta de Protección Social y establecimiento de las rentas de las loterías nacionales).

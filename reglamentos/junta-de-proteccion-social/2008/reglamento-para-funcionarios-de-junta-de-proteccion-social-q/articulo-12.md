@@ -1,1 +1,0 @@
-Artículo 12.—Del monto de la garantía. Todos los funcionarios obligados a rendir caución deberán hacerlo de acuerdo con los montos y los niveles de responsabilidad, que serán definidos por la Institución mediante resolución administrativa.

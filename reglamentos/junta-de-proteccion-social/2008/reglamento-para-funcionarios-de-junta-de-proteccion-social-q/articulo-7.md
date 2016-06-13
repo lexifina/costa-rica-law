@@ -1,3 +1,0 @@
-Artículo 7º—Del plazo de la garantía. La garantía deberá rendirse de previo a que el funcionario entre en posesión del cargo. Los funcionarios obligados a rendir caución lo harán por un año. Si la garantía caducare o venciere antes del cese del nombramiento, el funcionario deberá prorrogarla tantas veces hasta que finalice el plazo por el cual fue nombrado.
-Las cauciones dadas deberán renovarse a más tardar el mismo día del vencimiento de las mismas.
-Las garantías se deberán mantener vigentes por el lapso de prescripción de la responsabilidad civil y/o mientras se encuentre pendiente un procedimiento administrativo por daños y perjuicios.
