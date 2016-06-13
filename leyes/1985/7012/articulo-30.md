@@ -1,1 +1,1 @@
-Artículo 30.- Autorízase al Poder Ejecutivo para que otorgue el aval del Estado, a la Empresa de Servicios Públicos de Heredia, a fin de que obtenga un empréstito, interno o externo, por la suma de hasta treinta millones de colones, o su equivalente en moneda extranjera, con el propósito de que sustituya la tubería del tanque noventa de la Planta Joya y la rehabilitación de ésta.
+Artículo 30.-(Derogado por el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)

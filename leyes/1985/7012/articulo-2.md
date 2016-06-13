@@ -1,1 +1,1 @@
-Artículo 2º.- El Poder Ejecutivo, por medio del Ministerio de Hacienda y de la Comisión asesora del depósito libre de Golfito, la cual se constituye en el artículo 10 de esta ley, determinará el lugar exacto en que estará localizado el depósito, tomando en cuenta para ello las exigencias propias del buen funcionamiento y control de las actividades.
+Artículo 2º.- (Derogado por el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)

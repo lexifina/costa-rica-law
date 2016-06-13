@@ -1,0 +1,3 @@
+ARTÍCULO 24.- El presidente será el representante legal de la Junta con facultades de apoderado generalísimo sin límite de suma. Podrá otorgar poderes con las denominaciones y para los asuntos generales y específicos que considere convenientes, de conformidad con el acuerdo que adopte la Junta.
+Será el responsable de suscribir contratos o convenios requeridos para el cumplimiento de los fines, funciones y atribuciones de la Junta de Desarrollo Regional de la Zona Sur (Judesur).
+Además, es atribución de la Presidencia presidir la Junta Directiva, velar por que se ejecuten las decisiones tomadas por la Junta Directiva y coordinar internamente la acción de Judesur, así como las acciones de este con los demás entes y órganos públicos.

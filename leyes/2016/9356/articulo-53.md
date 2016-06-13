@@ -1,0 +1,2 @@
+ARTÍCULO 53.- El monto máximo autorizado para compras en el Depósito Libre Comercial de Golfito será de cuatro salarios base por año calendario. El salario base será definido de conformidad con el artículo 2 de la Ley N.° 7337, de 5 de mayo de 1993.
+Dentro de un mismo año calendario cada comprador podrá disponer del monto indicado anteriormente, ya sea en una o varias visitas al Depósito Libre Comercial de Golfito.

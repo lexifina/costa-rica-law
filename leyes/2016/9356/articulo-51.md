@@ -1,0 +1,1 @@
+ARTÍCULO 51.- Para ejercer su derecho de compra los compradores deberán registrarse ante el puesto de aduana de Golfito y el interesado deberá obligatoriamente presentar su documento de identificación.

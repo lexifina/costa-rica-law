@@ -1,0 +1,1 @@
+ARTÍCULO 34.- La Junta de Desarrollo Regional de la Zona Sur (Judesur) contará con un auditor interno, el cual deberá ser contador público autorizado, tener un mínimo de tres años de experiencia en la Administración Pública y estar incorporado al colegio profesional respectivo.

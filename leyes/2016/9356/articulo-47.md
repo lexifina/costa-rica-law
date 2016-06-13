@@ -1,0 +1,8 @@
+ARTÍCULO 47.- De conformidad con lo establecido en el artículo anterior, se establecen las siguientes sanciones de suspensión de actividad ante la autoridad aduanera o de multa administrativa, para los concesionarios que incumplan:
+a) Será suspendido del ejercicio de su actividad ante la autoridad aduanera si el concesionario deja de cumplir algún requisito para actuar como auxiliar de la función pública aduanera, sin causa justificada. La suspensión se extenderá hasta tanto no cumpla con las respectivas obligaciones.
+b) Será suspendido por dos días el concesionario que incumpla las disposiciones de procedimiento y control emitidas por las autoridades aduaneras.
+c) Será suspendido por dos días el concesionario que importe con destino al Depósito Libre Comercial de Golfito mercancías que no estén autorizadas para ingresar a ese régimen.
+d) Será sancionado con quinientos pesos centroamericanos el que incumpla las normas referentes a vigilancia, custodia y conservación de las mercancías.
+e) Será suspendido por cinco días del ejercicio de su actividad el que no permita el acceso de la autoridad aduanera a sus instalaciones, zonas de producción, bodegas, registros de movimientos de mercancías, o registros de costos de producción para la verificación y el reconocimiento correspondientes de las mercancías y su destino final.
+f) Será sancionado con una multa de dos mil pesos centroamericanos el que venda mercancías sin observar las limitaciones o restricciones cuantitativas, temporales, o sin observar el valor de compra máximo por persona o grupo familiar.
+g) Será sancionado con una multa de cien pesos centroamericanos el que no mantenga actualizada su información y registro de firmas.

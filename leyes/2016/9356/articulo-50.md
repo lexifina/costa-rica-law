@@ -1,0 +1,1 @@
+ARTÍCULO 50.- El derecho de compra es personal, por tanto, no es acumulable ni transferible total o parcialmente a terceros, salvo entre padres e hijos, hermanos, convivientes y cónyuges entre sí, siempre que la compra no supere el doble del monto de compra máximo vigente.

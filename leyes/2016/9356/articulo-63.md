@@ -1,0 +1,1 @@
+ARTÍCULO 63.- Los recursos económicos no ejecutados por las organizaciones de cada uno de los cantones en el periodo anterior, la Junta de Desarrollo Regional de la Zona Sur (Judesur) los dispondrá para financiar proyectos productivos o de interés social, de conformidad con lo dispuesto en esta ley.

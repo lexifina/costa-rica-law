@@ -1,0 +1,1 @@
+ARTÍCULO 54.- Los comerciantes pueden vender al exterior del país sin limitación de suma. Los turistas extranjeros gozarán de igual privilegio en cuanto al monto de sus compras, cuando cumplan con los requisitos que el reglamento fije para garantizar que la mercadería salga de Costa Rica dentro de las siguientes veinticuatro horas.

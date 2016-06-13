@@ -1,0 +1,2 @@
+ARTÍCULO 21.- Los miembros de la Junta Directiva podrán ser removidos de su cargo por justa causa debidamente comprobada, ya sea por la entidad que los nombró o por la Contraloría General de la República.
+Quien sustituya en el cargo cesante a un miembro de la Junta Directiva, antes de haberse cumplido el período respectivo, será nombrado por el plazo que le falte por cumplir al integrante sustituido.

@@ -1,6 +1,6 @@
 # Creación Depósito Libre Comercial de Golfito
 
-Ley N° 7012 del 1985-11-04. SINALEVI, ficha 7110: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7110&param2=93313&param3=1>.
+Ley N° 7012 del 1985-11-04. SINALEVI, ficha 7110: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=7110&param2=104266&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -16,3 +16,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 8 de 11 | 2011-01-18 | Ley 8907 | 2010-12-07 |
 | 9 de 11 | 2011-10-24 | Ley 8942 | 2011-04-28 |
 | 10 de 11 | 2013-07-19 | Ley 9152 | 2013-07-15 |
+| 11 de 11 | 2016-06-13 | Ley 9356 | 2016-05-24 |

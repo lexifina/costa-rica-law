@@ -1,2 +1,1 @@
-Artículo 19.- Las mercancías adquiridas de acuerdo con la exoneración que otorga la presente ley, serán exclusivamente para uso personal. Será penado con prisión de uno a tres años, quien ponga a la venta, venda o por cualquier otro modo traspase, ofrezca o reciba, bajo cualquier título y con carácter comercial, mercancías adquiridas en el depósito libre comercial de Golfito.
-(Así reformado por el artículo 1º de ley No.7730 de 20 de diciembre de 1997)
+Artículo 19.- (Derogado por el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)

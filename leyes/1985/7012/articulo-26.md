@@ -1,1 +1,1 @@
-Artículo 26.- Se autoriza al Sistema Bancario Nacional para que otorgue, con el aval del Estado, facilidades crediticias, ágiles y oportunas, a personas físicas y jurídicas nacionales, para que construyan o amplíen instalaciones turísticas en Golfito, o para que instalen sus almacenes y expendios en el depósito libre comercial.
+Artículo 26. (Derogado por el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)

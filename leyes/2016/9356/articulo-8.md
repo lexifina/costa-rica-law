@@ -1,0 +1,2 @@
+ARTÍCULO 8.- Al tercer año de la puesta en marcha del Plan Estratégico Institucional se realizará una valoración de su ejecución. En este proceso participará la Junta Directiva y la Dirección Ejecutiva, y se tomará el criterio de las municipalidades de Golfito, Corredores, Buenos Aires, Osa y Coto Brus.
+Como máximo a falta de un semestre para que se cumpla el cuarto año de la ejecución del Plan Estratégico Institucional, se iniciará la elaboración del nuevo Plan para los próximos cuatro años.

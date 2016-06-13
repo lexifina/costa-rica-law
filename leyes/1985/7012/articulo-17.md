@@ -1,1 +1,1 @@
-Artículo 17.- Las personas o instituciones que, en virtud de legislación especial, gocen del beneficio de exoneración total de impuestos de importación, también podrán adquirir mercaderías en el depósito libre comercial, con base en tales franquicias, previo cumplimiento de las formalidades correspondientes.
+Artículo 17.- (Derogado por el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)

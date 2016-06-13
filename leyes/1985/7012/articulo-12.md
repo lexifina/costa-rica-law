@@ -1,1 +1,1 @@
-Artículo 12.- DEROGADO.-(Derogado por el artículo 2º de ley No.7730 de 20 de diciembre de 1997)
+Artículo 12.- (Derogado por el artículo 2º de ley No.7730 de 20 de diciembre de 1997. Posteriormente mediante el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016, se vuelve a derogar este artículo.)

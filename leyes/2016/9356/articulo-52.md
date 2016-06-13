@@ -1,0 +1,1 @@
+ARTÍCULO 52.- Se podrá comprar en el Depósito Libre Comercial de Golfito tanto en colones como en dólares de los Estados Unidos de América, según el tipo de cambio establecido por el Banco Central de Costa Rica. La mercancía que se expenda tendrá el etiquetado que señale el Ministerio de Economía, Industria y Comercio, de conformidad con la normativa vigente.

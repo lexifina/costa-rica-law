@@ -1,0 +1,1 @@
+ARTÍCULO 23.- La Junta Directiva escogerá de su seno y por mayoría absoluta un presidente, un vicepresidente y un secretario, quienes permanecerán en sus cargos dos años y podrán ser reelectos. Cuando estén ausentes el presidente y el vicepresidente, la Junta nombrará a uno de sus miembros como presidente ad hoc.

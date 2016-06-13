@@ -1,0 +1,11 @@
+# Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR)
+
+Ley N° 9356 del 2016-05-24. SINALEVI, ficha 81681: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=81681&param2=104263&param3=1>.
+
+Publicada en La Gaceta N° 113 del 2016-06-13.
+
+Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
+
+| Versión | En vigor desde | Hecha por | Fecha de la versión |
+| --- | --- | --- | --- |
+| 1 de 7 | 2016-06-13 | Ley 9356 | 2016-05-24 |

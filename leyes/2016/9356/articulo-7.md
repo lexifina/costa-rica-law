@@ -1,0 +1,5 @@
+ARTÍCULO 7.- El Plan Estratégico Institucional tomará en cuenta los siguientes ejes transversales:
+a) Garantía integral de derechos y enfoque diferencial: supone garantizar el goce integral y equitativo de los derechos con un enfoque diferencial de acuerdo con las condiciones de la población y del territorio.
+b) Fortalecimiento para la equidad: supone garantizar el desarrollo en condiciones de equidad.
+c) Fortalecimiento de la región y funcionalidad del territorio: supone fomentar la integración subregional, regional y suprarregional en la búsqueda del desarrollo integral de la zona sur, de acuerdo con sus potencialidades, desconcentración y funcionalidad del territorio para generar acceso equitativo al desarrollo.
+d) Priorización para familias y personas en situación de pobreza extrema: impone considerar como prioridad transversal de todos los programas consolidados el avanzar en la superación de la pobreza extrema, entendiendo que solo de esta forma será posible garantizar la calidad de vida para todos los habitantes de la zona sur del país.

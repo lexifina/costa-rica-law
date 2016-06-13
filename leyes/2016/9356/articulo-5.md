@@ -1,0 +1,1 @@
+ARTÍCULO 5.- La Junta de Desarrollo Regional de la Zona Sur (Judesur) deberá contar con un Plan Estratégico Institucional para promover de manera planificada y eficiente el desarrollo socioeconómico integral de los cantones de Golfito, Corredores, Buenos Aires, Osa y Coto Brus, el cual tendrá una vigencia de cuatro años.
