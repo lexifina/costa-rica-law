@@ -1,1 +1,0 @@
-Artículo 8º—Para la implementación de la prueba será necesario el uso de cuatro diferentes formularios, cuya manipulación quedará bajo la responsabilidad del profesional en salud encargado de realizar la prueba.
