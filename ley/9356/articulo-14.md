@@ -1,0 +1,1 @@
+ARTÍCULO 14.- Los miembros de la Junta Directiva actuarán conforme al principio de legalidad establecido en el artículo 11 de la Constitución Política y de la Ley N.° 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, los reglamentos pertinentes y a los principios de la ciencia y de la técnica, siendo responsables de su gestión de forma total e ineludible.

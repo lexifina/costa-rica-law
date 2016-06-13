@@ -1,4 +1,1 @@
-Artículo 9.- Fíjase un porcentaje máximo de utilidad bruta del cuarenta por ciento (40%), sobre el costo de la mercadería puesta en las bodegas del depósito libre comercial. Si la importación fuere realizada por una entidad diferente de las que la vendan al público, este porcentaje se distribuirá entre las partes que intervengan.
-En todo caso, para garantizar que la presente disposición no sea infringida, el importador deberá consignar en las facturas que emita, el precio de venta máximo al consumidor.
-El incumplimiento de estas disposiciones podrá ser sancionado hasta con la cancelación de la patente que se establece en el artículo 21, sin responsabilidad para el Estado. El Ministerio de Economía y Comercio podrá regular los porcentajes máximos de utilidad bruta, previa consulta con la Junta creada en el artículo 10 de esta ley.
-(Así reformado por el artículo 1º de ley No.7730 de 20 de diciembre de 1997)
+Artículo 9.- (Derogado por el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)

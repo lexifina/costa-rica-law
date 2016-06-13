@@ -1,1 +1,1 @@
-Artículo 8º.- Las exoneraciones a que se refiere esta ley, no comprenden el pago de tasas por servicios prestados.
+Artículo 8º.- (Derogado por el artículo 67 aparte a) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)

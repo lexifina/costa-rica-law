@@ -1,0 +1,1 @@
+ARTÍCULO 27.- La Junta Directiva de la Junta de Desarrollo Regional de la Zona Sur (Judesur) se reunirá en sesión ordinaria una vez por semana, en el lugar, día y hora que este órgano colegiado determine, y en sesión extraordinaria cada vez que sea convocada por su presidente o por tres de sus miembros.

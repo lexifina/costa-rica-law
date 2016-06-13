@@ -1,0 +1,1 @@
+ARTÍCULO 65.- La Junta Directiva encargará al director ejecutivo para que elabore, conjuntamente con el jefe del Departamento de Planificación y de Desarrollo Institucional, un Plan Anual Operativo, que desarrolle los objetivos, las metas y los proyectos aprobados en el Plan Estratégico Institucional.

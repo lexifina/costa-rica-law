@@ -1,0 +1,3 @@
+ARTÍCULO 60.- Los recursos destinados a cada uno de los cantones beneficiados, de conformidad con el inciso d) del artículo anterior, se asignarán de la siguiente manera:
+a) El cuarenta por ciento (40%) será reembolsable y se destinará para el crédito de proyectos productivos de bienes y servicios que generen empleo y desarrollo en cada uno de los cantones.
+b) El sesenta por ciento (60%) será de carácter no reembolsable y se destinará para el financiamiento de obras de infraestructura, o de proyectos de interés social o comunal, ya sea a nivel local o regional, de acuerdo con los fines y los objetivos de Judesur.
