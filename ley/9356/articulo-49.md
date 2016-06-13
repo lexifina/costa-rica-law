@@ -1,0 +1,1 @@
+ARTÍCULO 49.- Los bienes adquiridos de acuerdo al beneficio que otorga la presente ley serán exclusivamente para uso personal. Será penado con prisión de uno a tres años quien ponga a la venta, venda o por cualquier otro modo traspase, ofrezca o reciba bajo cualquier título y con carácter comercial, mercancías adquiridas en el Depósito Libre Comercial de Golfito.

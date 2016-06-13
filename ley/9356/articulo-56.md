@@ -1,0 +1,2 @@
+ARTÍCULO 56.- La salida de mercancías del Depósito Libre Comercial de Golfito, en contravención a las disposiciones de la presente ley y sus reglamentos, tendrán las mismas implicaciones que las leyes establecen con respecto a los delitos de contrabando y defraudación fiscal. En caso de comprobarse dicha falta por parte de locales comerciales o comercios, se procederá a cancelar la patente municipal.
+Los concesionarios o comerciantes que incurran en cualquiera de las conductas de este artículo podrán perder su concesión o derecho, previo cumplimiento del debido proceso.

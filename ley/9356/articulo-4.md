@@ -1,0 +1,1 @@
+ARTÍCULO 4.- La Junta de Desarrollo Regional de la Zona Sur (Judesur) podrá aplicar un incremento anual sobre los alquileres de los locales en operación ubicados dentro del Depósito Libre Comercial de Golfito, hasta por el monto anual establecido por el IPC.

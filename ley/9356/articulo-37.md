@@ -1,0 +1,1 @@
+ARTÍCULO 37.- Se prohíbe celebrar toda clase de contratos con la Junta de Desarrollo Regional de la Zona Sur (Judesur) a sus funcionarios y a los miembros de la Junta Directiva, de acuerdo con lo establecido en los artículos 22 y 22 bis de la Ley N.° 7494, Ley de Contratación Administrativa, de 2 de mayo de 1995, y sus reformas.

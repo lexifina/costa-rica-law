@@ -1,0 +1,3 @@
+TRANSITORIO VI.- Durante el primer año de vigencia de la presente ley, el impuesto único establecido en el párrafo primero del artículo 40 será del catorce por ciento (14%) sobre la venta de las mercaderías almacenadas en las bodegas del Depósito Libre Comercial de Golfito, a favor de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas, el cual se aplicará sobre la carga tributaria total correspondiente a una importación ordinaria, es decir, destinada al resto del país.
+Durante el segundo año de vigencia de la presente ley dicho impuesto único será del doce por ciento (12%).
+A partir del tercer año de vigencia de la presente ley, el impuesto único aplicable, será del diez por ciento (10%), de conformidad con el artículo 40 de la presente ley.
