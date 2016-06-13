@@ -1,4 +1,6 @@
+(Derogado)
 N° 8942
+(Esta norma fue derogada por el artículo 67 aparte c) de la Ley Orgánica de la Junta de Desarrollo Regional de la Zona Sur de la provincia de Puntarenas (JUDESUR), N° 9356 del 24 de mayo de 2016)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
