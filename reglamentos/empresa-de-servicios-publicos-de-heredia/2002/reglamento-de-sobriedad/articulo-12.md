@@ -1,1 +1,0 @@
-12.—Si luego del primer y único apercibimiento, el trabajador continúa en actitud de desobediencia a las normas aquí indicadas, tal conducta se considera causal de despido sin responsabilidad patronal, aplicable, previo cumplimiento del debido proceso
