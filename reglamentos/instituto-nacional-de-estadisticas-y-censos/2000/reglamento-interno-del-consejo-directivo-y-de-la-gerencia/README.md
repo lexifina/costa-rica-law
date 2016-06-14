@@ -18,3 +18,4 @@ Reglamento Interno del Consejo Directivo y de la Gerencia
 | 3 | 2004-11-09 | Reglamento 306 (2004-11-09) |
 | 4 | 2013-10-22 | Reglamento 703 (2013-10-22) |
 | 5 | 2014-07-01 | Reglamento 733 (2014-07-01) |
+| 6 | 2016-06-14 | Reglamento 814 (2016-06-14) |

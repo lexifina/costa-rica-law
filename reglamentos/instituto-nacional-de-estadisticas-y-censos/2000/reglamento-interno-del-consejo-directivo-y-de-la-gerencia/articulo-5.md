@@ -14,8 +14,8 @@ k- Autorizar las salidas al exterior de cualquiera de sus miembros cuando éstas
 l- Dictar las políticas institucionales de venta de servicio y establecer mediante acuerdo el precio de los mismos.
 m- Recibir las donaciones y todo tipo de legados que realicen al Instituto.
 n- Ejecutar las demás funciones que le correspondan de conformidad con la Ley y los reglamentos.
-ñ- Autorizar al Gerente y al Auditor Interno las licencias con o sin goce de salario, permisos, vacaciones, entre otros, que soliciten, conforme a los mismos alcances que se encuentran dispuestos en el Reglamento Autónomo de Servicio del INEC, para los funcionarios regulares.
+ñ. Conocer y autorizar, de previo, las vacaciones, licencias, con o sin goce de salario, y permisos del Gerente y del Auditor Interno. En el eventual caso que esas gestiones no se puedan conocer anticipadamente en el seno de este Órgano, por situaciones de causa fortuita o fuerza mayor, podrá autorizarlos de forma directa el Presidente del Consejo Directivo o en su defecto el Vicepresidente, para cuyos efectos el Gerente o el Auditor Interno, conforme corresponda, informará al Consejo Directivo lo pertinente en la sesión ordinaria o extraordinaria siguiente a la fecha de esa aprobación.
 (Así adicionado el inciso anterior en sesión N° 306 del 9 de noviembre del 2004)
-(Así reformado el inciso ñ) anterior en sesión N° 703 del 22 de octubre de 2013)
+(Así reformado el inciso anterior por el acuerdo 3 de la sesión N° 814 del 14 de junio del 2016)
 o- Requerir del Gerente, Subgerente. Auditor Interne y Subauditor, cuando el Consejo Directivo lo considere necesario, informes sobre el uso de equipos, mobiliario, vehículos y demás activos del INEC, que les haya sido asignados para el desempeño de las labores propias de su cargo.
 (Así adicionado el inciso anterior en sesión N° 306 del 9 de noviembre del 2004)
