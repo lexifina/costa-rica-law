@@ -14,3 +14,4 @@ Reglamento de Aplicación del Beneficio de la Ejecución Condicional de la Sanci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-02-04 | la propia norma |
+| 2 | 2016-06-14 | Reglamento 27 (2016-06-14) |
