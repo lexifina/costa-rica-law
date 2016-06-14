@@ -14,3 +14,4 @@ Reglamento para la adquisición de bienes y servicios de la Municipalidad de Aco
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-12-20 | la propia norma |
+| 2 | 2016-06-14 | Reglamento municipal 7 (2016-06-14) |

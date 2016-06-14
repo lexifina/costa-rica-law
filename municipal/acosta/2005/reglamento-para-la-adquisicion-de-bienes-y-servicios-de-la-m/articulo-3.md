@@ -1,1 +1,1 @@
-Artículo 3º—Cuando considere necesario por cualquier monto, además de la orden de compra podrá exigir la firma de un contrato con los oferentes de bienes y servicios. Podrá exigir garantías de cumplimiento.
+Artículo 3º—De todos los egresos autorizados el Alcalde Municipal informará al Concejo Municipal, como parte de los informes que exige la Ley N° 7794.
