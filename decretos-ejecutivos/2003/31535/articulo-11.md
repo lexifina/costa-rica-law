@@ -1,6 +1,6 @@
 CAPÍTULO V
 De los derechos de los servidores
-Artículo 11.—Derechos. Los servidores regulares del Ministerio gozarán de todos los derechos y prerrogativas que nuestro ordenamiento les confiere como funcionarios al servicio de la administración. Tendrán derecho a:
+Artículo 11.— Derechos. Los servidores regulares del Ministerio gozarán de todos los derechos y prerrogativas que nuestro ordenamiento les confiere como funcionarios al servicio de la administración tendrán derecho a:
 a) Carrera administrativa en la institución, por lo que en igualdad de condiciones y requisitos en cada plaza vacante debe preferirse a servidores más antiguos que por su capacidad y responsabilidad resultan idóneos para el cargo.
 b) Se les faciliten los medios necesarios para que puedan efectuar sus labores con la eficiencia que se les exige.
 c) Se les impartan las instrucciones y explicaciones adecuadas para definir las responsabilidades y la posición que les corresponde dentro del Ministerio.
@@ -18,3 +18,5 @@ n) Las horas extra laboradas se le cancelen de acuerdo a la normativa que rige l
 ñ) Se le reconozcan los viáticos correspondientes en los lugares donde el Ministerio no brinde este servicio, cuando deba desplazarse a cumplir sus funciones, fuera de su centro de trabajo de conformidad con el Reglamento de Gastos de Viaje y Transporte para funcionarios o empleados del Estado.
 o) No ser despedido de su cargo, a menos que incurra en causal de despido, con excepción de aquellos servidores que están en período de prueba.
 p) Los servidores del Ministerio asociados a sindicatos o asociaciones internas, ya existente o que se constituyan en un futuro, y cuyos estatutos hayan sido previamente aprobados de acuerdo con la normativa vigente, contarán con permiso para que puedan realizar sus asambleas ordinarias y extraordinarias y reuniones de las juntas directivas, hasta por un máximo de seis horas mensuales, siempre y cuando lo soliciten a su jefe inmediato con quince días de anticipación y que como consecuencia de ello, no se altere la buena marcha del servicio que presta al Ministerio.
+q) Los servidores tienen derecho a que no se les discrimine en su trabajo por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad, o que se les cese en sus funciones por tales razones. Además tienen derecho a que se les reconozca, en todos los ámbitos de su labor, la identidad de género de acuerdo a lo solicitado por la persona funcionaria. derecho a que se les reconozca, en todos los ámbitos de su labor, la identidad de género de acuerdo a lo solicitado por la persona funcionaria.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39988 del 15 de junio del 2016)
