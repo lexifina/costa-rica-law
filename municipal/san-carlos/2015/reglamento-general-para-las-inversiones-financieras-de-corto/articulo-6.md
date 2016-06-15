@@ -1,0 +1,12 @@
+Artículo 6º—Funciones del Comité de Inversiones. El Comité de Inversiones desempeñará, las siguientes funciones:
+a) Proponer para aprobación de la Administración, la política de inversiones de los fondos administrados según lo establecido en el presente Reglamento.
+b) Deberá sesionar, al menos, una vez al mes con el objeto de determinar la estrategia de inversión.
+c) El Comité de inversiones no podrá sesionar dos veces, en forma consecutiva, sin la asistencia y participación del miembro externo.
+d) La participación de los miembros del Comité de Inversiones es obligatoria, actuando con voz y voto en el análisis y decisiones en materia de inversión. Será responsabilidad de quien ocupe el cargo de Director(a) de Hacienda, las convocatorias a las sesiones del Comité. Los acuerdos se tomarán por simple mayoría.
+e) Constituir la cartera o portafolio de inversiones de la Municipalidad de San Carlos.
+f) Tomar decisiones debidamente fundamentadas sobre la constitución, modificación, cancelación y recomposición de la cartera o portafolio de inversiones, sobre los ajustes a los activos o ingresos involucrados en las operaciones anteriores. Aprobar estas decisiones mediante la suscripción de actas que deberán cumplir en todo momento con los requisitos que se establecen en el presente reglamento.
+g) Presentar a la Presidencia de la Comisión alternativas de soporte para el mejoramiento en la toma de decisiones orientadas a la optimización de la cartera o portafolio de inversiones, tales como seminarios, conferencias, charlas, suscripción a boletines o periódicos sobre el mercado financiero y de valores.
+h) Considerar y establecer las medidas correspondientes, de acuerdo con las circunstancias especiales, para que en las decisiones del Comité de Inversiones en relación con la conformación de la cartera o portafolio de inversiones, se pueda atender al origen y el destino de los recursos financieros, en aspectos tales como el asignar los intereses devengados y recibidos a recursos de naturaleza especifica.
+i) Realizar sesiones ordinarias por lo menos una (1) vez al mes dependiendo de la naturaleza o urgencia de los temas a tratar.
+j) Realizar sesiones extraordinarias, si el caso lo amerita, cada vez que Io solicite la Tesorería, el Jefe del Departamento Contable, sus integrantes, la Presidencia de la Comisión de Hacienda o El Concejo Municipal.
+k) Elaborar el acta numerada de cada sesión y obtener las firmas de los participantes, indicando en forma clara y precisa los asuntos tratados, análisis y decisiones tomadas.
