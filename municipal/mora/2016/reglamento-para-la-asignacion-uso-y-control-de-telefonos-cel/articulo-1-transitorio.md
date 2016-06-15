@@ -1,0 +1,3 @@
+TRANSITORIOS:
+Transitorio único. Una vez que este Reglamento haya sido publicado en el Diario Oficial La Gaceta, la asignación vigente de los teléfonos celulares será revisada por la Dirección Administrativa Financiera, con el fin de actualizar la asignación o revocar las asignaciones de equipo, sin que ello signifique ninguna responsabilidad para la Administración y asignar las responsabilidades y ajustarse a las disposiciones contenidas en el presente Reglamento a los funcionarios con celular asignado. De igual forma, los funcionarios deberán proceder con la firma del contrato respectivo para continuar con el uso del servicio, debiendo ajustarse a los requerimientos establecidos en el presente contrato.
+Rige a partir de la publicación en el Diario Oficial La Gaceta.

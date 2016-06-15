@@ -1,0 +1,1 @@
+Artículo 21.—Del cobro del excedente. Si el cobro reportado por el ICE excede el monto autorizado en el convenio, el Departamento de Tesorería procederá de conformidad con lo estipulado en el artículo 10 de este Reglamento.
