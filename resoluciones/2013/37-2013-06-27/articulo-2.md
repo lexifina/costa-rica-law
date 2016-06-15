@@ -1,1 +1,0 @@
-Artículo 2.- Las condiciones técnicas (ámbito, incertidumbre, condiciones previas a la calibración, etc.) y administrativas (fecha de recepción y entrega, inspección previa, etc.) específicas para cada servicio se acceden por medio de la Plataforma de Servicios del LACOMET con referencia al código del respectivo servicio.
