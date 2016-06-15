@@ -1,1 +1,0 @@
-Artículo 13.—Los órganos desconcentrados del Ministerio de Cultura, Juventud y Deportes que tengan asignados vehículos de uso administrativo deberán, establecer un departamento responsable, encargado de dar cabal cumplimiento a las disposiciones del presente reglamento.

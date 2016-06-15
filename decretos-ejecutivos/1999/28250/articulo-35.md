@@ -1,2 +1,0 @@
-Artículo 35.—El Departamento de Servicios Generales o la unidad designada en cada órgano desconcentrado, analizará el informe presentado, que lo remitirá a la Oficialía Mayor o a la Dirección General o Administrativa según corresponda, con las recomendaciones respectivas. Dicha recomendación será realizada también mediante un informe, una vez efectuada la valoración del caso.
-(Así reformado por el artículo 2 del Decreto Ejecutivo N° 30666 de 17 de julio del 2002)

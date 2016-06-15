@@ -1,2 +1,0 @@
-Artículo 34.—Recibido el informe que menciona el inciso j) del artículo 26, el Departamento de Servicios Generales o la unidad encargada en cada órgano, podrá emplazar al conductor para que en un plazo perentorio de tres días hábiles, realice la ampliación o aclaración de algún aspecto importante de constatar.
-(Así reformado por el artículo 2 del Decreto Ejecutivo N° 30666 de 17 de julio del 2002)

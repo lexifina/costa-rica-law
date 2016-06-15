@@ -1,2 +1,0 @@
-Artículo 36.—Del informe mencionado en el artículo anterior, se hará traslado al operador de equipo móvil o al conductor involucrado en el accidente, a efecto que realice las manifestaciones que considere oportunas, ofreciendo la prueba del caso, en el término de tres días hábiles. Vencido dicho término, la Oficialía Mayor o la Dirección General o Administrativa, se pronunciará sobre la medida administrativa que estime conveniente aplicar.
-(Así reformado por el artículo 2 del Decreto Ejecutivo N° 30666 de 17 de julio del 2002)

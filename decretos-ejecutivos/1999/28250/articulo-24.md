@@ -1,2 +1,0 @@
-Artículo 24.—Cuando el vehículo haya regresado a la institución u órgano desconcentrado, y los datos del formulario se encuentren completos, el conductor la entregará al encargado del área de transportes.
-En caso de existir alguna incongruencia respecto a lo inicialmente solicitado, el Departamento de Servicios Generales o la unidad encargada en cada desconcentrada, pedirá por escrito en un plazo de veinticuatro horas, las explicaciones del caso al funcionario encargado de la conducción del vehículo.

@@ -1,2 +1,0 @@
-Artículo 14.—La responsabilidad en el uso adecuado y racional de los vehículos, así como en el ejercicio de los controles, en los casos de órganos desconcentrados que cuenten con éstos, corresponderá al Director General y/o Administrativo, en conjunto con la unidad de transportes que haya sido designada, cuando así corresponda.
-(Así reformado por el artículo 2 del Decreto Ejecutivo N° 30666 de 17 de julio del 2002)

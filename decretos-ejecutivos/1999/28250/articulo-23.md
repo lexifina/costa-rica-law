@@ -1,1 +1,0 @@
-Artículo 23.—La circulación de vehículos de la Administración central y órganos desconcentrados del Ministerio en días no hábiles, estará restringida a casos especiales en que así se amerite para el efectivo cumplimiento de los fines de la Institución, u órgano desconcentrado, previa autorización de la Oficialía Mayor o el director respectivo.

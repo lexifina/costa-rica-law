@@ -1,1 +1,0 @@
-Artículo 29.—No se podrá alterar la ruta programada, salvo una situación debidamente calificada que así lo amerite, y bajo responsabilidad absoluta del funcionario que utilice el servicio. El chofer en todo caso, informará lo que corresponda al Departamento de Servicios Generales, o a la unidad competente en cada desconcentrada, una vez finalizada la gira.
