@@ -31,3 +31,4 @@ Políticas Generales para la Administración de las Reservas Monetarias Internac
 | 16 | 2011-11-30 | Reglamento 5524 (2011-11-30) |
 | 17 | 2012-01-04 | Reglamento 5528 (2012-01-04) |
 | 18 | 2014-02-19 | Reglamento 5637 (2014-02-19) |
+| 19 | 2016-06-15 | Reglamento 5725 (2016-06-15) |
