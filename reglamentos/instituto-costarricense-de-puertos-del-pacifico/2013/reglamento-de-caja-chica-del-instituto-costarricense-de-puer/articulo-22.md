@@ -1,7 +1,9 @@
-ARTÍCULO 22: De la devolución del remanente del vale ante el encargado del fondo: Si al liquidar el vale queda un remanente para devolver por parte del funcionario, el encargado del fondo recibirá el mismo, incluyéndolo en un libro de actas en el cual se tomaran los siguientes datos:
-a) Fecha de la devolución.
-b) Número de documento.
-c) Tipo de documento.
-d) Monto.
-e) Nombre del cajero (a) que recibe el dinero.
-f) Firma del funcionario que entrega el dinero.
+ARTÍCULO 22: De los requisitos del vale: Deberá incluir con el vale los siguientes requisitos:
+a) Número del consecutivo que asigna el sistema.
+b) Fecha de emisión.
+c) Suma solicitada en números.
+d) Suma solicitada en letras.
+e) Especificar detalladamente el tipo de bien o servicios que se va a adquirir.
+f) Funcionario que hará el retiro del dinero.
+g) La partida presupuestaria, el programa y la meta con la cual se tramita el vale.
+h) El aprobado del jefe inmediato que autoriza el vale.

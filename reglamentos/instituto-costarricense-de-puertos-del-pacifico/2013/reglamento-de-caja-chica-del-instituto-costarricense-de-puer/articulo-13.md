@@ -1,18 +1,5 @@
-CAPITULO III
-De la Responsabilidad
-ARTÍCULO 13: De la facultad de autorizar. Los únicos facultados para aprobar vales y liquidaciones de caja chica, adelantos y liquidaciones de viáticos, así como autorizar a los funcionarios que podrán aprobar en su ausencia, son:
-a) Presidente Ejecutivo.
-b) Gerente General.
-c) Auditor General.
-d) Director(a) Administrativa Financiera
-e) Director(a) Portuaria
-f) Secretario(a) de Fiscalización.
-g) Jefe Unidad Técnica de Supervisión y Control.
-h) Director(a) de Planificación Institucional
-i) Asesor Legal
-j) Jefe de Tecnologías de Información
-k) Encargado de Junta Promotora de Turismo.
-Cada uno de los funcionarios anteriormente señalados podrá nombrar un sustituto para aprobar, cuando éste se encuentre en vacaciones o incapacitado, para lo cual deberá comunicarlo por escrito (puede ser con oficio formal o por correo) al Tesorero, al Jefe de Capital Humano y al Jefe de Tecnologías de Información, para que realicen los cambios pertinentes en el sistema y al encargado del fondo de caja chica para que esté enterado del cambio.
-El Jefe de la unidad solicitante será el responsable de garantizar a su superior inmediato y por tanto a la institución que se recibió el bien o el servicio, debiendo revisar las facturas que respaldan dicho gasto, previo a presentarlas a su Jefe inmediato para su visto bueno y aprobación en el sistema, por parte de los funcionarios indicados en los incisos anteriores o quien ellos designen en su ausencia.
-El encargado de una Dirección podrá realizar autorizaciones de vales y liquidaciones de caja chica, así como adelantos y liquidaciones de viáticos a una unidad que no está adscrita a la Dirección a su cargo, en casos de que el titular de la Dirección se encuentre incapacitado o de vacaciones; siempre y cuando medie una autorización de parte del Director que se ausenta o la aprobación de la Administración Superior, para lo cual deberán comunicarlo por escrito (puede ser con oficio formal o por correo) al Tesorero, al Jefe de Capital Humano y al Jefe de Tecnologías de Información, para que realicen los cambios pertinentes en el sistema y al encargado del fondo de caja chica para que esté enterado del cambio
-(Modificado mediante Acuerdo N° 2 de la Sesión N° 3952 celebrada el 23 de julio del 2015)
+ARTÍCULO 13: De los límites para tramitar vales de caja chica: Los límites con que cuenta cada dependencia para tramitar vales de caja chica en el portal del SIAF son los siguientes:
+a) La Administración Superior (Gerencia y Presidencia) hasta por un monto de ¢250.000,00.
+b) La Auditoría Interna, la Dirección Administrativa Financiera, Planificación Institucional, la Dirección Portuaria, Asesoría Legal, la Unidad Técnica de Supervisión y Control, la Junta Promotora de Turismo, la Secretaría de Fiscalización y Tecnologías de Información, quedan facultados para tramitar vales hasta por un monto de ¢150.000,00, sin requerir aprobación adicional de otro nivel jerárquico.
+c) La Secretaria de la Junta Directiva, queda facultada para tramitar vales hasta por un monto de ¢150.000,00, requiriendo la aprobación de la Presidencia Ejecutiva.
+d) La Jefaturas de la Dirección Administrativa Financiera y las Jefaturas de la Dirección Portuaria (Muelle de Quepos, Muelle de Puntarenas, Muelle de Golfito), quedan facultados para tramitar vales hasta por un monto de ¢100.000,00, requiriendo la aprobación de la Dirección Administrativa Financiera y la Dirección Portuaria según corresponda.

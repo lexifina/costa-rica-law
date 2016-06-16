@@ -1,1 +1,7 @@
-ARTICULO 25: Del trámite del adelanto de gastos de viaje en el interior del país: Si se requiere realizar adelanto de viáticos, el encargado de la caja chica, tendrá en forma digital el documento que se genera en el SIAF, el cual guardará en un archivo digital con formato de PDF, asimismo tendrá en el libro de actas la bitácora de entrega del efectivo debidamente firmado por el funcionario que lo está recibiendo.
+ARTÍCULO 25: De la devolución del remanente del vale ante el encargado del fondo: Si al liquidar el vale queda un remanente para devolver por parte del funcionario, el encargado del fondo recibirá el mismo, incluyéndolo en un libro de actas en el cual se tomaran los siguientes datos:
+a) Fecha de la devolución.
+b) Número de documento.
+c) Tipo de documento.
+d) Monto.
+e) Nombre del cajero (a) que recibe el dinero.
+f) Firma del funcionario que entrega el dinero.

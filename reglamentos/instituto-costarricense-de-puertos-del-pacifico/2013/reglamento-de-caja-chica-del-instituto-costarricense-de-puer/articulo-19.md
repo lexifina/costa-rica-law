@@ -1,9 +1,2 @@
-ARTÍCULO 19: De los requisitos del vale: Deberá incluir con el vale los siguientes requisitos:
-a) Número del consecutivo que asigna el sistema.
-b) Fecha de emisión.
-c) Suma solicitada en números.
-d) Suma solicitada en letras.
-e) Especificar detalladamente el tipo de bien o servicios que se va a adquirir.
-f) Funcionario que hará el retiro del dinero.
-g) La partida presupuestaria, el programa y la meta con la cual se tramita el vale.
-h) El aprobado del jefe inmediato que autoriza el vale.
+ARTICULO 19: De la facultad del encargado del fondo: El encargado de caja chica tendrá facultades para rechazar todos los trámites o pagos efectuados por medio de estos fondos que no reúnan los requisitos estipulados en este Reglamento, haciendo responsable al que autorizó su trámite en forma incorrecta.
+El incumplimiento de este Artículo hará responsable en forma solidaria tanto al encargado del fondo como al funcionario que autorizó el pago ante la violación de este Artículo. El Jefe inmediato del funcionario o el encargado del fondo, solicitará ante la Unidad de Capital Humano, tomar las medidas correspondientes para la recuperación de los dineros.

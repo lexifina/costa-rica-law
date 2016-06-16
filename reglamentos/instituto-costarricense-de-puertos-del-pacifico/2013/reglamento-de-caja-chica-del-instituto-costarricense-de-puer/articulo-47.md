@@ -1,1 +1,7 @@
-ARTICULO 47: De la violación a la legislación: El funcionario que en nombre de INCOP contraiga obligaciones de cualquier naturaleza en contra de las leyes o sin autorización legal, será exclusivamente responsable ante los acreedores de la obligación civil proveniente del compromiso contratado y se hará acreedor a las medidas disciplinarias respectivas, éstas no excluyen la acción penal correspondiente cuando exista intención dolosa, de conformidad con el Artículo No. 7 de la Ley de Administración Financiera de la República.
+CAPITULO X
+De las Prohibiciones
+ARTÍCULO 47: De la imposibilidad para tramitar: En ningún caso podrán tramitarse compras de bienes y servicios que estén contemplados en las siguientes situaciones:
+a) Artículos y Mobiliario de Oficina: Todos aquellos que se encuentren incluidos dentro del Programa Anual de Adquisiciones de la Institución, exceptuando cuando no hayan en existencia.
+b) Artículos de Limpieza: Todos aquellos que se encuentran incluidos dentro del Programa Anual de Adquisiciones de la Institución, exceptuando cuando no haya en existencia.
+c) Químicos y Conexos: Todos aquellos productos que se encuentren incluidos dentro del Plan Anual de Adquisiciones de la Institución, exceptuando cuando no haya en existencia.
+d) Empastes y Encuadernación. Se exceptúa de esta disposición a la Secretaría de Junta Directiva. Así como a la Presidencia Ejecutiva y Gerencia General.

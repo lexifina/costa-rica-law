@@ -1,3 +1,1 @@
-CAPITULO XI
-Disposiciones finales
-ARTICULO 49: De la obligatoriedad en el cumplimiento: El incumplimiento del presente Reglamento en cualquiera de sus artículos faculta al superior jerárquico a gestionar ante la Unidad de Capital Humano la aplicación de las sanciones correspondientes de conformidad con los reglamentos y normas vigentes.
+ARTICULO 49: De la prohibición en los fondos de caja chica: Es terminantemente prohibido mantener o sustituir los fondos de caja chica por otros vales que no sean los propios de la Institución.

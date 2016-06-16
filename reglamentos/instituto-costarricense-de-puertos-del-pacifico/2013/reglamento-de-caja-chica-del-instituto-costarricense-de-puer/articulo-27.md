@@ -1,5 +1,5 @@
-ARTÍCULO 27: De la aprobación del adelanto de gastos de viaje ante el encargado del fondo: El adelanto de gastos de viaje en el interior del país será presentado al encargado del fondo con los siguientes requisitos:
-a) Nombre de la persona que autorizada el respectivo adelanto.
-b) Códigos presupuestarios.
-c) El encargado del fondo deberá revisar el adelanto de gastos de viaje y guardar digitalmente en formato de PDF.
-d) En un libro de actas se llevará una bitácora incluyendo los datos del funcionario y del efectivo que se está entregando, para que sea firmado como recibido conforme del efectivo.
+CAPITULO VI
+Del trámite de adelanto de dinero de caja chica por gastos de viaje en el
+interior del país
+ARTICULO 27: De la programación de la gira: Deberá existir una estrecha relación entre el motivo del viaje y la naturaleza del puesto de cualquier funcionario, salvo que la Administración designe al funcionario para algún trabajo en especifico.
+Cada Jefatura aprobará la gira de sus colaboradores, asegurándose previamente que cuenta con el contenido presupuestario necesario, quedando a la disposición de cada funcionario y su jefatura si se realiza adelanto para gira o solo se liquida al regreso de la misma.

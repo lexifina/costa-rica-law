@@ -1,1 +1,1 @@
-ARTÍCULO 32: De las devoluciones de las liquidaciones: El funcionario a partir de la notificación de rechazo tendrá un plazo único de dos días hábiles para elaborar nuevamente la liquidación de viáticos, vencido el cual, se tendrá por no presentada la liquidación con las sanciones que dicho incumplimiento amerite.
+ARTÍCULO 32: Del retiro de los adelantos para las giras: El dinero de los adelantos de viáticos se entregará el día hábil antes del inicio de la gira.

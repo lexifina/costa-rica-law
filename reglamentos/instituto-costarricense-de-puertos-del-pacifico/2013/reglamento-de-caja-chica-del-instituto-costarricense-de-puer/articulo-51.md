@@ -1,1 +1,1 @@
-Artículo 51: De la vigencia. El presente Reglamento rige a partir del día de su publicación en el Diario Oficial La Gaceta.
+ARTICULO 51: De las prohibiciones a la caja chica: Es absolutamente prohibido cambiar cheques, pagar salarios o prestar dinero con los fondos de caja chica.

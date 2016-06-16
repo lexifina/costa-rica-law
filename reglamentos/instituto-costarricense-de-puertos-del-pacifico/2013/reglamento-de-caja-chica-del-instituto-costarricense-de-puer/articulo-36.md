@@ -1,1 +1,1 @@
-ARTICULO 36: De la prohibición en los fondos de caja chica: Es terminantemente prohibido mantener o sustituir los fondos de caja chica por otros vales que no sean los propios de la Institución.
+ARTÍCULO 36: De las devoluciones de las liquidaciones: El funcionario a partir de la notificación de rechazo tendrá un plazo único de tres días hábiles para elaborar nuevamente la liquidación de viáticos, vencido el cual, se tendrá por no presentada la liquidación con las sanciones que dicho incumplimiento amerite.

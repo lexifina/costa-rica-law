@@ -1,1 +1,1 @@
-ARTICULO 8: Del porcentaje fijado para motivar el reintegro: Todo reintegro o reembolso será emitido por el Cajero en formulario respectivo cuando se tenga entre un 25% y un 40% de utilización de los fondos de caja chica o en su defecto uno diario, si no alcanza el mínimo fijado.
+ARTÍCULO 8: De los cheques para reintegro: Los cheques que se emitan para reintegro de las cajas chicas asignadas deberán confeccionarse a nombre del responsable del manejo de los fondos de cajas.

@@ -1,3 +1,5 @@
-CAPITULO VI
-Del trámite de adelanto de dinero de caja chica por gastos de viaje en el interior del país
-ARTICULO 23: De la programación de la gira: Cada Jefatura aprobará la gira de sus colaboradores, asegurándose previamente que cuenta con el contenido presupuestario necesario, quedando a la disposición de cada funcionario y su jefatura si se realiza adelanto para gira o solo se liquida al regreso de la misma.
+ARTÍCULO 23: De la aprobación del vale ante el encargado del fondo: El vale de caja chica lo podrá ver el encargado del fondo en el módulo de caja chica y debe revisar que venga con los siguientes requisitos:
+a) Persona que autoriza el vale.
+b) Códigos presupuestarios.
+c) El encargado del fondo deberá revisar el vale y guardar digitalmente en formato de PDF.
+d) En un libro de actas se llevará una bitácora incluyendo los datos del funcionario y del efectivo que se está entregando, para que sea firmado como recibido conforme del efectivo.
