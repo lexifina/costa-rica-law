@@ -1,0 +1,2 @@
+Artículo 6º—La Administración Central tiene el deber de publicar en el sitio Web oficial o la plataforma electrónica análoga, los informes emitidos por la Auditoría respectiva, preservando cuando sea necesario la confidencialidad que dispone el artículo 6º de la Ley General de Control Interno.
+Para dar seguimiento a esta obligación, la Unidad de Control Interno o la oficina equivalente deberá informar cada 6 meses a la Presidencia de la República sobre la actualización del listado de informes de Auditoría publicitados.

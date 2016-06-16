@@ -1,0 +1,1 @@
+Artículo 2º—Como parte del sistema de control interno, la Administración Pública Central deberá adoptar los mecanismos de control, planificación y verificación pertinentes que contribuyan a la evaluación del desempeño institucional, a garantizar la eficiencia y eficacia de sus operaciones y el manejo transparente de toda la información que forma parte de este sistema.
