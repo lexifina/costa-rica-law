@@ -14,3 +14,4 @@ Manual de Políticas y Procedimientos "Incorporaciones"
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-19 | la propia norma |
+| 2 | 2016-06-16 | Acuerdo 0 (2016-06-16) |
