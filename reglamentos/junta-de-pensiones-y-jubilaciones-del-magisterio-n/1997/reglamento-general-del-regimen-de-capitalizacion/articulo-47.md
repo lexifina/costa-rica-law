@@ -1,2 +1,5 @@
-Artículo 47.—De la liquidación de cuotas. La Junta procederá a realizar una única liquidación de los recursos efectivamente enterados al Fondo, junto con los rendimientos obtenidos a la fecha de efectivo pago, siempre que se realice con ocasión de un requerimiento formal, a efecto de derivar un beneficio por cualquiera de los otros regímenes que componen el primer pilar de la seguridad social del país. La Junta determinará actuarialmente los montos a trasladar.
-(Así corrida su numeración mediante sesión ordinaria N° 093-2013 del 22 de agosto del 2013, que lo traspasó del antiguo 46 al 47)
+TITULO IV DE LOS PROCEDIMIENTOS ESPECIALES
+CAPITULO I PROCEDIMIENTO DE LIQUIDACIONES Y
+TRANSFERENCIAS
+Artículo 47.(De la liquidación de cuotas a un Régimen del Primer Pilar)
+La Junta determinará y procederá a realizar una única liquidación de los recursos efectivamente enterados al Fondo, siempre que se realice con ocasión de un requerimiento formal por parte de la Institución administradora del Régimen, a efecto de derivar un beneficio por cualquiera de los otros regímenes que componen el primer pilar de la seguridad social del país.

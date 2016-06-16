@@ -23,3 +23,4 @@ Reglamento General del Régimen de Capitalización
 | 8 | 2013-08-22 | Reglamento 93 (2013-08-22) |
 | 9 | 2014-01-07 | Reglamento 0 (2014-01-07) |
 | 10 | 2016-05-24 | Reglamento 58 (2016-05-24) |
+| 11 | 2016-06-16 | Reglamento 68 (2016-06-16) |

@@ -1,4 +1,5 @@
-Artículo 11.—Tabla de retiro. Podrá acogerse al beneficio de una pensión por vejez quien cumpla los requisitos de edad y de cotización mínima para el RCC que se establece en la siguiente tabla de retiro, donde el número de cotizaciones mínimas exigidas incluyen, cuando corresponda, el reconocimiento de cotizaciones a otro régimen, según artículo 50.
+Artículo 11.(Tabla de retiro)
+Podrá acogerse al beneficio de una pensión por vejez quien cumpla los requisitos de edad y de cotización mínima para el RCC que se establece en la siguiente tabla de retiro, donde el número de cotizaciones mínimas exigidas incluyen, cuando corresponda, el reconocimiento de cotizaciones a otro régimen, según artículo 51.
 Tabla de retiro por concepto de Vejez
 Ambos sexos
 Edad Mínima Retiro | Cotizaciones Mínimas | Edad Mínima Retiro | Cotizaciones Mínimas
@@ -42,23 +43,25 @@ Edad Mínima Retiro | Cotizaciones Mínimas | Edad Mínima Retiro | Cotizaciones
 58 años 2 meses | 358 | 63 años 2 meses | 257
 58 años 3 meses | 357 | 63 años 3 meses | 254
 58 años 4 meses | 356 | 63 años 4 meses | 251
+Edad Mínima Cotizaciones Edad Mínima Cotizaciones
+Retiro Mínimas Retiro Mínimas
 58 años 5 meses | 355 | 63 años 5 meses | 248
-58 años 6 meses | 354 | 63 años 6 meses | 245
-58 años 7 meses | 353 | 63 años 7 meses | 242
-58 años 8 meses | 352 | 63 años 8 meses | 239
-58 años 9 meses | 351 | 63 años 9 meses | 236
-58 años 10 meses | 350 | 63 años 10 meses | 233
-58 años 11 meses | 349 | 63 años 11 meses | 230
-59 años | 348 | 64 años | 226
-59 años 1 mes | 347 | 64 años 1 mes | 222
-59 años 2 meses | 346 | 64 años 2 meses | 218
-59 años 3 meses | 345 | 64 años 3 meses | 214
-59 años 4 meses | 344 | 64 años 4 meses | 210
-59 años 5 meses | 343 | 64 años 5 meses | 206
-59 años 6 meses | 342 | 64 años 6 meses | 202
-59 años 7 meses | 341 | 64 años 7 meses | 198
-59 años 8 meses | 340 | 64 años 8 meses | 194
-59 años 9 meses | 339 | 64 años 9 meses | 190
-59 años 10 meses | 338 | 64 años 10 meses | 186
-59 años 11 meses | 337 | 64 años 11 meses | 182
-60 años | 336 | 65 años | 180
+58 años 6 meses 354 63 años 6 meses 245
+58 años 7 meses 353 63 años 7 meses 242
+58 años 8 meses 352 63 años 8 meses 239
+58 años 9 meses 351 63 años 9 meses 236
+58 años 10 meses 350 63 años 10 meses 233
+58 años 11 meses 349 63 años 11 meses 230
+59 años 348 64 años 226
+59 años 1 mes 347 64 años 1 mes 222
+59 años 2 meses 346 64 años 2 meses 218
+59 años 3 meses 345 64 años 3 meses 214
+59 años 4 meses 344 64 años 4 meses 210
+59 años 5 meses 343 64 años 5 meses 206
+59 años 6 meses 342 64 años 6 meses 202
+59 años 7 meses 341 64 años 7 meses 198
+59 años 8 meses 340 64 años 8 meses 194
+59 años 9 meses 339 64 años 9 meses 190
+59 años 10 meses 338 64 años 10 meses 186
+59 años 11 meses 337 64 años 11 meses 182
+60 años 336 65 años 180

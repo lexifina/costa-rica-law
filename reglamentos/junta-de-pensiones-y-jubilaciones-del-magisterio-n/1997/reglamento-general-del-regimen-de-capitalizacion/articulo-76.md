@@ -1,1 +1,3 @@
-Artículo 76.—De las inversiones. Las inversiones del Fondo del RCC se regularán por el Reglamento de Inversiones emitido por la Junta de Pensiones; el cual se ajustará a la normativa vigente que en materia de inversiones para este tipo de fondos, se haya incorporado al Ordenamiento Jurídico y a las directrices de la SUPEN.
+CAPITULO II ESTRUCTURA ADMINISTRATIVA
+Artículo 76.(Estructura administrativa)
+Para la correcta administración del RCC la Junta de Pensiones y Jubilaciones del Magisterio Nacional establecerá los Departamentos y dependencias que considere necesarias, de conformidad con el artículo 113 de la Ley 7531 y sus reformas.

@@ -1,2 +1,3 @@
-Artículo 38.—Procedimiento de declaratoria de la revaloración. En los meses de enero y julio de cada año, se realizará el estudio actuarial con el que se determinará si procede el aumento en los montos de las pensiones en curso, de manera que cuando proceda tal aumento, dentro del estudio se recomendará el nivel y la forma de aumento.
+Artículo 38.(Procedimiento de declaratoria de la revaloración)
+En los meses de enero y julio de cada año, se realizará el estudio actuarial con el que se determinará si procede el aumento en los montos de las pensiones en curso, de manera que cuando proceda tal aumento, dentro del estudio se recomendará el nivel y la forma de aumento.
 La Junta Directiva, mediante votación calificada determinará la revaloración de las pensiones, con estricta sujeción a los estudios actuariales, cuando el aumento resulte procedente. El acuerdo se comunicará a la SUPEN y se publicará en el Diario Oficial La Gaceta.

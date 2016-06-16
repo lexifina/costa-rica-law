@@ -1,2 +1,2 @@
-Artículo 62.—Suspensión de pensión por vejez. El (la) pensionado(a) por vejez que pase a la condición de trabajador(a) activo(a), devengando un salario de las instituciones del Magisterio Nacional o instituciones públicas, obligadas a cotizar al RCC, le será suspendida por la Junta la percepción de la prestación económica, durante el tiempo en que se encuentre en ese ejercicio.
-(Así corrida su numeración mediante sesión ordinaria N° 093-2013 del 22 de agosto del 2013, que lo traspasó del antiguo 61 al 62)
+Artículo 62.(Suspensión de pensión por vejez)
+El (la) pensionado (a) por vejez que pase a la condición de trabajador (a) activo (a), devengando un salario de las instituciones del Magisterio Nacional o instituciones públicas, obligadas a cotizar al RCC, le será suspendida por la Junta la percepción de la prestación económica, durante el tiempo en que se encuentre en ese ejercicio.

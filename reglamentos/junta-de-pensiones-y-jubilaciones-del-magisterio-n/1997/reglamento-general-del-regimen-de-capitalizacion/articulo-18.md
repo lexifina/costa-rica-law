@@ -1,1 +1,2 @@
-Artículo 18.—Estudio socioeconómico. Cuando por algún motivo se presente duda razonable sobre el cumplimiento de los requisitos consignados en este Capítulo, la Junta asumirá la realización de un estudio técnico mediante el que se demuestre fehacientemente los requisitos.
+Artículo 18.(Estudio Socioeconómico)
+Cuando por algún motivo se presente duda razonable sobre el cumplimiento de los requisitos consignados en este Capítulo, la Junta asumirá la realización de un estudio técnico mediante el que se demuestre fehacientemente los requisitos.

@@ -1,1 +1,2 @@
-Artículo 74.—Auditoría externa. La Junta Directiva ordenará la práctica de una auditoría externa anual, sobre el Fondo del Régimen de Capitalización Colectiva, como complemento a las labores propias que desarrolla la Auditoría Interna de la Institución. Además si la Junta Directiva lo considera oportuno, podrá solicitar auditorías financieras, actuariales, de inversiones o de sistemas que maneja la Junta.
+Artículo 74.(Superintendencia de Pensiones)
+La gestión de la Junta referida al Régimen de Capitalización Colectiva, se encontrará fiscalizada y regulada por la Superintendencia de Pensiones, de conformidad con lo dispuesto en la legislación del sistema de seguridad social costarricense.

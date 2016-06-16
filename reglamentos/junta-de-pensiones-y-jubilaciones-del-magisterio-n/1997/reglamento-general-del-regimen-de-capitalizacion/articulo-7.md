@@ -1,1 +1,2 @@
-Artículo 7º—Ámbito de cobertura. Quedan cubiertos por los beneficios de este Régimen, todos (as) los (as) trabajadores (as) a que se refiere el artículo 5 de este Reglamento y hayan sido nombrados por primera vez a partir del 15 de julio de 1992.
+Artículo 7.(Ámbito de Cobertura).
+Quedan cubiertos por los beneficios de este Régimen, todos (as) los (as) trabajadores (as) a que se refiere el artículo 5 de este Reglamento y hayan sido nombrados por primera vez a partir del 15 de julio de 1992.

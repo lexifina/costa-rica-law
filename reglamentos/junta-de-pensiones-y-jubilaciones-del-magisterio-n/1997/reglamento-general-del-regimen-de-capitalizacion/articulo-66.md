@@ -1,4 +1,4 @@
-CAPÍTULO V
-Procedimiento de la caducidad de los derechos
-Artículo 66.—Caducidad. Para la declaratoria de caducidad de cualquier derecho se observará estrictamente, bajo pena de nulidad, el debido proceso que garantice al menos los siguientes principios constitucionales: derecho de audiencia, publicidad del proceso, valoración razonable de la prueba, resolución razonada, doble instancia, concentración, economía procesal, derecho a la defensa técnica, publicidad de audiencia y el expediente, entre otros derivados del ordenamiento positivo procesal. En todo caso, en los procedimientos de caducidad que se regulan en este capítulo, el interesado dispondrá del medio de impugnación establecido en el artículo 41 de este Reglamento.
-(Así corrida su numeración mediante sesión ordinaria N° 093-2013 del 22 de agosto del 2013, que lo traspasó del antiguo 65 al 66)
+CAPITULO V PROCEDIMIENTO DE LA CADUCIDAD DE LOS
+DERECHOS
+Artículo 66.(Caducidad)
+Para la declaratoria de caducidad de cualquier derecho se observará estrictamente, bajo pena de nulidad, el debido proceso que garantice al menos los siguientes principios constitucionales: derecho de audiencia, publicidad del proceso, valoración razonable de la prueba, resolución razonada, doble instancia, concentración, economía procesal, derecho a la defensa técnica, publicidad de audiencia y el expediente, entre otros derivados del ordenamiento positivo procesal. En todo caso, en los procedimientos de caducidad que se regulan en este capítulo, el interesado dispondrá del medio de impugnación establecido en el artículo 41 de este Reglamento.

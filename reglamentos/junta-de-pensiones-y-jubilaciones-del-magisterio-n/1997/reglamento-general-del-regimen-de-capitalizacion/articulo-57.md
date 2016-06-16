@@ -1,2 +1,2 @@
-Artículo 57.—Planilla preelaborada. La Junta de Pensiones establecerá los métodos necesarios para una eficiente recaudación. Se les enviará a las instituciones públicas y privadas, una planilla preelaborada y en el caso de los (as) funcionarios (as) del Ministerio de Educación Pública, se hará una conciliación mensual.
-(Así corrida su numeración mediante sesión ordinaria N° 093-2013 del 22 de agosto del 2013, que lo traspasó del antiguo 56 al 57)
+Artículo 57.(Mecanismos de cobro)
+La Junta de Pensiones establecerá los procedimientos necesarios para una eficiente recaudación.

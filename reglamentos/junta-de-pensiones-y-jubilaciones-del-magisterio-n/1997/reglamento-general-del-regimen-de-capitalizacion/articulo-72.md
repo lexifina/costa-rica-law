@@ -1,1 +1,2 @@
-Artículo 72.—Liquidación anual. Anualmente se realizará una liquidación de ingresos y gastos. Además se emitirán los estados financieros y demás estudios técnicos que la Junta crea oportunos.
+Artículo 72.(Procedimientos contables)
+La contabilidad del Régimen deberá llevarse conforme a las disposiciones legales vigentes, Normas Internacionales de Contabilidad y disposiciones de la Superintendencia de Pensiones, en la forma que determina la técnica tradicional y actuarial, y consistirá de tantos libros principales y auxiliares, registros y archivos, como sea necesario para determinar exactamente y en cualquier momento la situación financiera del Régimen.

@@ -1,1 +1,2 @@
-Artículo 75.—Superintendencia de Pensiones. La gestión de la Junta referida al Régimen de Capitalización Colectiva, se encontrará fiscalizada y regulada por la Superintendencia de Pensiones, de conformidad con lo dispuesto en la legislación del sistema de seguridad social costarricense.
+Artículo 75.(De las inversiones)
+Las inversiones del Fondo del RCC se regularán por el Reglamento de Inversiones emitido por la Junta de Pensiones; el cual se ajustará a la normativa vigente que en materia de inversiones para este tipo de fondos, se haya incorporado al Ordenamiento Jurídico y a las directrices de la SUPEN.

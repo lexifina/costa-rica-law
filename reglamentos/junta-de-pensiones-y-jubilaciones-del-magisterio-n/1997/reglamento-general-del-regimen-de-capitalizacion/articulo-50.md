@@ -1,2 +1,2 @@
-Artículo 50º—Responsabilidad por el traslado efectivo. Al momento del traslado del (la) trabajador(a) y de los recursos del RCC a cualquiera de los regímenes del primer pilar, se suprime la responsabilidad por riesgo de aseguramiento del RCC y la obligación del pago de cualquier beneficio que contemple este Reglamento.
-(Así corrida su numeración mediante sesión ordinaria N° 093-2013 del 22 de agosto del 2013, que lo traspasó del antiguo 49 al 50)
+Artículo 50.(Responsabilidad por el traslado efectivo)
+Al momento del traslado del (la) trabajador (a) y de los recursos del RCC a cualquiera de los regímenes del primer pilar, se suprime la responsabilidad por riesgo de aseguramiento del RCC y la obligación del pago de cualquier beneficio que contemple este Reglamento.
