@@ -1,0 +1,16 @@
+# Reglamento (2016-05-16)
+
+Reglamento interno de contratación pública del Conglomerado Financiero BCR
+
+- Tipo: Reglamento
+- Número: 20
+- Fecha: 2016-05-16
+- Ente emisor: Banco de Costa Rica
+- Publicación: La Gaceta N° 116 del 2016-06-16, Alcance 99
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=81712&param2=104307&param3=1 (ficha 81712)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2016-06-16 | la propia norma |
