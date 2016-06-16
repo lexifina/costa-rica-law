@@ -1,0 +1,1 @@
+Artículo 3º—Los alimentos y bebidas contemplados en este marco reglamentario, pueden ser desde repostería normal, café, té o refrescos, naturales o gaseosos, hasta alimentación como desayuno y/o almuerzo, según sea la duración prevista de la jornada de trabajo y siempre y cuando el mismo esté directamente vinculado con la finalidad propia de la Institución.

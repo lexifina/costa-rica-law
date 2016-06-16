@@ -1,0 +1,1 @@
+Artículo 7º—Los gastos por alimentación y bebidas, son necesarios para una buena atención a los participantes a las sesiones de trabajo y evitar la suspensión de labores, que generalmente obedecen a una prioridad o son actividades de capacitación. Dichos gastos deben cumplir lo señalado en los artículos 3 y 4 de este reglamento.

@@ -1,0 +1,1 @@
+Artículo 10.—Los Directores Regionales o Nacionales podrán autorizar el gasto de Alimentos y Bebidas a los Jefes Subregionales y Jefes de Departamento, guardando los mismos límites de gasto racional, cuando estos estén debidamente justificados.

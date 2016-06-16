@@ -1,0 +1,1 @@
+Artículo 4º—En estos gastos no se incluyen platos a la carta, sino alimentación normal en la dieta de las personas. Los costos de esta actividad estarán bajo el control del Director Regional o Nacional, quien tendrá la obligación de vigilar su partida presupuestaria, bajo la cual se aplica este gasto.

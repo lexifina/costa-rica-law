@@ -1,0 +1,1 @@
+Artículo 14.—El acatamiento y aplicación de este Reglamento, es de carácter obligatorio para los Directores Regionales y Nacionales, así como para los titulares subordinados autorizados, que hagan uso de la partida presupuestaria. El incumplimiento a este Reglamento, implica para el funcionario hacerse acreedor a las medidas disciplinarias, según lo indique el debido proceso.
