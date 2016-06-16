@@ -1,0 +1,12 @@
+ARTICULO IV
+Compromisos del Gobierno de la República de Costa Rica
+Para alcanzar el objetivo establecido en el artículo I del presente Acuerdo Complementario, la parte costarricense mediante el Ministerio de Educación Pública, realizará las siguientes acciones preparatorias:
+a. Informar a la Embajada de Francia en Costa Rica de la selección definitiva de los candidatos para el Programa.
+b. Dar acompañamiento a la Embajada de Francia en Costa Rica en el trámite del documento de permanencia de los asistentes ante el Ministerio de Relaciones Exteriores y Culto.
+c. Solicitar la colaboración al Ministerio de Relaciones Exteriores y Culto, para que los asistentes que formen parte del Programa, gocen de libre tránsito dentro del territorio nacional y su ingreso y salida del país se regirá por el ordenamiento jurídico costarricense especialmente por el Acuerdo de Cooperación Cultural y Técnica entre el Gobierno de la República de Costa Rica y el Gobierno de la República Francesa antes referido.
+d. Establecer el presupuesto anual que se otorgará al Programa, específicamente para que los asistentes franceses complementen sus gastos personales relacionados con el hospedaje, la alimentación, el trasporte u otro tipo de necesidades básicas, todo lo anterior conforme al ordenamiento jurídico costarricense.
+Para alcanzar el objetivo establecido en el artículo I del presente Acuerdo Complementario, la parte costarricense, mediante el Ministerio de Educación Pública, realizará las siguientes acciones ejecutorias:
+a) Realizar en coordinación con la Embajada de Francia en Costa Rica, lo relativo a la instalación e inducción de los asistentes al momento de su llegada a Costa Rica.
+b) Brindar el recibimiento y ambientación de los asistentes franceses. Además, realizar una jornada de inducción acerca del sistema educativo y de la cultura costarricense.
+c) Efectuar la inducción a los asistentes de francés en las dependencias administrativas y centros educativos públicos en los que se ejecute el Programa.
+d) Aportar a los asistentes franceses un subsidio mensual cuyo monto será establecido y comunicado mediante notas oficiales dirigidas a la Embajada de Francia. El subsidio se establecerá anualmente y será comunicado antes de la apertura del proceso de convocatoria para la participación de asistentes en el año siguiente. Este subsidio se otorga con el fin de que los asistentes complementen sus gastos personales, conforme a lo señalado en el Artículo IV en el inciso d de las acciones preparatorias.
