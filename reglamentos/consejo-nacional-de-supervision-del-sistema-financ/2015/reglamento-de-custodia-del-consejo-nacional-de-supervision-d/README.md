@@ -14,3 +14,4 @@ Reglamento de Custodia del Consejo Nacional de Supervisión del Sistema Financie
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-09 | la propia norma |
+| 2 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
