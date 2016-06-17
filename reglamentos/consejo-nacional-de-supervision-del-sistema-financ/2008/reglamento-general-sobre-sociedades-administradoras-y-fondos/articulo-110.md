@@ -3,13 +3,10 @@ TÍTULO VII
 Comercialización de fondos de inversión
 CAPÍTULO I
 Autorización
-Artículo 110.—Entidades comercializadoras. Pueden comercializar fondos de inversión:
-a) Las sociedades administradoras de fondos de inversión constituidos bajo la legislación costarricense.
-b) Los puestos de bolsa constituidos bajo la legislación costarricense.
-c) Los intermediarios financieros supervisados por la Superintendencia General de Entidades Financieras.
-d) Sociedades administradoras del país de origen del fondo por medio de una sucursal, la cual debe ajustarse a lo dispuesto en el Código de Comercio y la regulación que le sea aplicable.
-e) Las sociedades anónimas constituidas bajo la legislación costarricense, cuyo objeto exclusivo sea la comercialización de fondos de inversión.
-Las entidades a las que se refieren los incisos anteriores, cuando corresponda, deben contar con la autorización de comercialización del gestor o administrador del fondo. Las entidades de los incisos d. y e. deben contar con el capital mínimo establecido para las sociedades administradoras de fondos de inversión y cumplir con las obligaciones establecidas en el artículo 102 de este Reglamento.
-Las entidades señaladas en el inciso c. deben aportar una certificación notarial del acuerdo de su junta directiva, en la que reconoce y acepta sus obligaciones y los riesgos derivados de la actividad de comercialización.
-La comisión por los servicios de comercialización, en el caso de fondos constituidos bajo la legislación costarricense, se debe someter a lo dispuesto en los artículos 43 y 44 de este Reglamento.
+Artículo 110. Comercialización de fondos de inversión
+La comercialización de fondos abiertos puede realizarse:
+a) De manera directa a través de la fuerza de ventas de la sociedad administradora del fondo de inversión o a través de contratos de comercialización de fondos de inversión, en los que aplican las responsabilidades indicadas en este reglamento. Cuando la comercialización se contrate con intermediarios de valores, estos además deberán sujetarse a los servicios y obligaciones que dispone el Reglamento de Intermediación y Actividades Complementarias, asumiendo directamente la responsabilidad por la actividad que realicen.
+b) De forma indirecta a través de los servicios prestados por intermediarios de valores sujetos a lo dispuesto en el Reglamento de Intermediación de Valores y Actividades Complementarias y bajo las responsabilidades dispuestas en ese reglamento.
+La colocación de fondos cerrados en el mercado primario se rige por lo dispuesto en el Reglamento sobre Oferta Pública de Valores.
+(Así reformado por el artículo 63 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 (Así corrida su numeración mediante sesión N° 944-2011 del 26 de octubre del 2011, que lo traspasó del antiguo artículo 98 al 110)

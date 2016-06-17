@@ -8,7 +8,7 @@ v. Disminución del mínimo de inversión, aportes adicionales, saldo mínimo en
 vi. Sustitución de la sociedad calificadora de riesgo.
 vii. Actualización de la calificación de riesgo, cuando corresponda a la calificación inicial o se presenten modificaciones a la calificación otorgada.
 viii. Cambios en la información de la sociedad administradora como: domicilio, número de teléfono, fax, y apartado postal.
-ix. Cambio del mecanismo de colocación en fondos cerrados.
+ix. (Derogado por el artículo 61 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016 publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 x. Cambios en los mecanismos que puede usar los inversionistas para tener acceso a las políticas de conflictos de intereses y gobierno corporativo.
 xi. Cambio de la entidad que llevará el libro oficial centralizado en el cual se acredita la titularidad de los inversionistas.
 xii. Cambio en la revelación de la metodología de valoración de los valores de la cartera del fondo.
