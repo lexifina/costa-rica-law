@@ -1,0 +1,1 @@
+Artículo 3º—Excepción. El BCCR participa en la liquidación y compensación de valores sin que deba aportar al fondo de garantías de la Bolsa Nacional de Valores (FOGABONA), dada la especial naturaleza y funciones asignadas por su propia ley.
