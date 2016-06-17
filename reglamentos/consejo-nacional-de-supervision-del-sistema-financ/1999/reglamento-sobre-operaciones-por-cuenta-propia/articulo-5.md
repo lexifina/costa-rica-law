@@ -1,1 +1,0 @@
-Artículo 5º—Responsabilidad de las bolsas. Las bolsas de valores en el ámbito de sus competencias y responsabilidades, darán seguimiento especial a las operaciones cruzadas que se realicen en el mercado y establecerán los procedimientos ¡de auditoría necesarios para velar por la debida aplicación por parte de los puestos de bolsa, de lo establecido en el presente reglamento.
