@@ -1,0 +1,1 @@
+Artículo 4º—Que para el reconocimiento de pago de viáticos a los miembros del Concejo Municipal, la Municipalidad de Guácimo, se ajustará a los horarios definidos por la Contraloría General de la República, en el artículo 20 del Reglamento de Gastos de Viajes y Transporte para Funcionarios públicos.
