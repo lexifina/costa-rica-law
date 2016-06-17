@@ -1,0 +1,7 @@
+Articulo 32. Requisitos para prestar el servicio
+En adición al cumplimiento de los requerimientos de estructura dispuestos en este reglamento, para poner este servicio a disposición de sus clientes el intermediario debe contar con un contrato que establezca los deberes y derechos de las partes y cumplir con los siguientes requisitos:
+a) Contar con políticas y procedimientos para el monitoreo y gestión de los riesgos de los portafolios de los clientes.
+b) Formalizar por escrito el mandato de gestión acordado con el inversionista, cualquier cambio debe estar aprobado entre las partes y definir la fecha a partir de la cual aplica.
+c) Implementar procedimientos de análisis sobre los valores e instrumentos financieros y los portafolios, así como procedimientos de control para la gestión de estos portafolios.
+d) Disponer de un contrato de servicios con un intermediario autorizado para ejecutar en el mercado donde se negocien los valores o instrumentos financieros.
+e) Contar con un contrato suscrito con alguna entidad de custodia autorizada, a través de la cual pueda actuar como ordenante en la cuenta y dar seguimiento al portafolio del inversionista. La entidad de custodia contratada debe abrir la cuenta a nombre del titular de los valores o instrumentos financieros y permitir el acceso del intermediario a la información del portafolio. Esta autorización de acceso y la designación del ordenante deben también quedar explícitas en el contrato de servicios que se suscriba entre el custodio y el inversionista.

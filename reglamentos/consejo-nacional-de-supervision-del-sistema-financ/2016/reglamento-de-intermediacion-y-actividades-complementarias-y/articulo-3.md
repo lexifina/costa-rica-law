@@ -1,0 +1,3 @@
+Articulo 3. Selección de contrapartes
+(1) Para la prestación de servicios de intermediación de valores y actividades complementarias, debe existir una política interna que guíe el proceso de selección de contrapartes en la gestión de su operativa, de forma que el intermediario considere y administre los riesgos que pueda introducir su contraparte en la cadena de servicios prestados a los inversionistas.
+(2) La política de selección de contrapartes debe valorar al menos aspectos como experiencia, capacidad financiera, cumplimiento de aspectos regulatorios incluyendo si cuenta con las licencias requeridas para actuar como contraparte, de conformidad con la regulación aplicable al mercado donde opere.

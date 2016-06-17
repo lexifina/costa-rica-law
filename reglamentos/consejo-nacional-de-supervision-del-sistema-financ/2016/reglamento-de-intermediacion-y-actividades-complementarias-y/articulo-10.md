@@ -1,0 +1,5 @@
+Articulo 10. Definición de Inversionista Profesional y No Profesional
+(1) Inversionista Profesional es aquella persona física o jurídica que posee la infraestructura o capacidad para reconocer, comprender y gestionar los riesgos inherentes a sus decisiones de inversión.
+(2) Inversionista No Profesional son todas aquellas personas físicas o jurídicas que no califican para ser tratados como inversionistas profesionales.
+(3) Cuando se clasifica a un cliente se le deben informar y explicar las limitaciones de la responsabilidad del intermediario en función de la clasificación asignada, de previo a la prestación de cualquier servicio, de forma que el inversionista tenga claro el alcance del servicio contratado, limitaciones de responsabilidad entre las partes y riesgos que se asumen en la relación de servicios.
+(4) Además, el intermediario será responsable de comunicar a cualquier inversionista la posibilidad de contratar servicios de asesoría, para lo cual suscribirán un acuerdo por escrito que precise los alcances del servicio, operaciones o tipos de productos a los que se refiere la contratación.

@@ -1,0 +1,4 @@
+Articulo 18. Obligación de perfilar
+(1) Cuando un inversionista contrate servicios de asesoría o gestión individual de portafolios debe ser perfilado.
+(2) El inversionista debe ser informado sobre la categoría en que se le ha clasificado, de forma que tenga claro el significado de esta clasificación. El intermediario debe definir en sus políticas sobre la forma de proceder en caso que el inversionista no esté conforme con la clasificación asignada y solicite su revisión.
+(3) Todos los perfiles deben contar con la fecha de elaboración, cualquier modificación posterior, producto del proceso de actualización debe incluir la fecha a partir de la cual se realiza el cambio en el perfil de riesgo. El intermediario debe definir una política de actualización del perfil e informar al cliente sobre esta periodicidad.

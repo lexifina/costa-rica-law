@@ -1,0 +1,2 @@
+Articulo 21. Definición de orden de transacción
+Se entiende por orden de transacción el mandato para la ejecución de una operación, especificando al menos las condiciones de cantidad, precio y plazo de vigencia respecto al valor o instrumento, bajo las cuales se debe ejecutar tal transacción. En los casos en que se preste el servicio de Gestión de Portafolios la orden es girada por el mismo intermediario.

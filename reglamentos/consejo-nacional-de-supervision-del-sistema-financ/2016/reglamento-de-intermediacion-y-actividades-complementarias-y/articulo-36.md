@@ -1,0 +1,6 @@
+Articulo 36. Informes de gestión
+(1) Aparte del estado de cuenta que el inversionista recibe de su entidad de custodia, el intermediario debe rendir cuentas a los clientes sobre los portafolios que administra con la periodicidad que se pacte entre las partes. Si no hay un acuerdo formal la información deberá remitirse al menos trimestralmente en un informe que incluya como mínimo:
+a) El valor y evolución de la cartera de inversiones gestionada, para esto se debe reflejar el valor histórico de compra del instrumento y presentar también el valor a precio de mercado a la fecha de corte del reporte, de forma tal que se reflejen las ganancias o pérdidas que se hayan generado.
+b) Resultados obtenidos para el período reportado expresado en una base que permitan su comparación con el estándar de referencia definido para valorar la gestión del portafolio administrado.
+c) Comisiones y gastos asignados al portafolio, expresados en una base que permita su comparabilidad con los rendimientos generados de la cartera para el período del reporte.
+(2) En el caso de portafolios recibidos de otro intermediario para los cuales no se disponga del precio histórico de compra del instrumento, se puede utilizar el precio de referencia a la fecha de recepción del portafolio.

@@ -1,0 +1,14 @@
+Articulo 68. Modificaciones al “Reglamento sobre valoración de instrumentos financieros”
+Seis meses después de la entrada en vigencia de este reglamento se modifican el artículo 1, incisos b), c) e i) del artículo 2, párrafo 1 y 2 del artículo 24, para que en adelante se lean así:
+“Artículo 1. Carteras sujetas a valoración
+La cartera de inversiones de las entidades supervisadas por la Superintendencia General de Entidades Financieras (SUGEF), Superintendencia General de Valores (SUGEVAL), Superintendencia de Pensiones (SUPEN) y Superintendencia General de Seguros (SUGESE), así como las carteras mancomunadas y las carteras individuales de terceros sobre las que las entidades supervisadas indicadas presten servicios de gestión o asesoría, independientemente del vehículo jurídico utilizado para ello, deben valorarse a precios de mercado en forma diaria, para lo que se debe utilizar una metodología de valoración.
+Artículo 2. Instrumentos financieros sujetos a valoración
+(…)
+b) En caso de que no exista un proveedor que suministre precios para un instrumento financiero de un emisor local en particular, las entidades pueden registrar en la SUGEVAL, de conformidad con lo dispuesto en los capítulos III y IV de este Reglamento, una metodología propia para la valoración de dicho instrumento.
+c) En el caso de instrumentos financieros de emisores extranjeros, se deben utilizar los precios provistos por una fuente de información de aceptación general en el mercado donde se adquieran los valores, para esto deben definirse las horas en que harán la importación de los datos y el origen de la información, la cual debe provenir de fuentes ejecutables y con volumen de transacción significativo, o en su ausencia definir como se obtendrían los precios utilizando bids de compra. De forma alternativa, las entidades pueden utilizar un proveedor de precios autorizado según este Reglamento para que les suministre los precios de emisiones internacionales.
+(…)
+i) En caso de que no existan proveedores de precios en operación en el mercado local, las bolsas de valores pueden ofrecer el servicio de determinación y suministro de precios a las entidades reguladas, previa autorización de la Superintendencia General de Valores mediante una resolución motivada.
+Artículo 24. Comunicación de la metodología de valoración seleccionada
+Los grupos o conglomerados financieros y las entidades supervisadas deben comunicar la metodología seleccionada al órgano supervisor correspondiente.
+La aplicación de la metodología seleccionada en las carteras propias, mancomunadas o individuales debe realizarse al término de los diez días posteriores a la comunicación indicada en el párrafo anterior. Cuando una entidad preste servicios a terceros debe aplicar la misma metodología de valoración que selecciona para sus carteras propias en las cuentas individuales o mancomunadas que atiende.
+(…)”.

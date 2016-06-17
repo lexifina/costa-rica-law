@@ -1,0 +1,2 @@
+Articulo 22. Requisitos para prestar el servicio
+En adición al cumplimiento de los requerimientos de estructura dispuestos en este reglamento, para poner este servicio a disposición de sus clientes el intermediario debe cumplir con los requisitos impuestos por la bolsa de valores a la cual se adscriba o en su defecto, contar con los contratos o infraestructura necesaria para transmitir las órdenes recibidas para su ejecución. Además, debe contar con un sistema de registro de órdenes que permita su trazabilidad.
