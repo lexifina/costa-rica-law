@@ -19,4 +19,23 @@ d) Realizar operaciones cambiarias por cuenta y riesgo propio o por encargo de t
 "...d) Realizar operaciones cambiarias por cuenta y riesgo propio o por encargo de terceros siempre y cuando sean debidamente autorizados por el Banco Central de Costa Rica (BCCR) conforme al Reglamento para las Operaciones Cambiarias de Contado” emitido por la Junta Directiva del BCCR. Corresponderá a la Superintendencia General de Valores supervisar y fiscalizar que las operaciones cambiarias que realicen los puestos de bolsa autorizados por el BCCR se realicen de conformidad con la normativa correspondiente.")
 e)Participar en las operaciones de reporto u otras figuras similares que el Banco Central de Costa Rica realice con fundamento en sus Regulaciones de Política Monetaria.
 (Así adicionado el inciso anterior mediante sesión N° 757 del 21 de noviembre de 2008)
-Las bolsas de valores podrán establecer contratos-marco para dichas actividades.
+f) Transmitir órdenes para su ejecución en mercados internacionales.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+g) Prestar servicios de recepción automatizada de órdenes.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+h) Prestar servicios de acceso a plataformas de negociación directa.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+i) Referir clientes.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+j) Suscribir contratos de colocación.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+k) Prestar servicios de estructuración de emisiones.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+l) Ejecutar órdenes de compra venta de valores no inscritos en el Registro Nacional de Valores e Intermediarios, según las limitaciones que se definan en el Reglamento sobre Oferta Pública de Valores.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+m) Comprar o vender valores o instrumentos financieros de mercados internacionales para su gestión de cuenta propia, de conformidad con las políticas que autorice su Junta Directiva.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+n) Comprar o vender valores de oferta privada para su gestión de cuenta propia, de conformidad con las políticas que autorice su Junta Directiva y según las limitaciones que se definan en el Reglamento sobre Oferta Pública de Valores.
+En todos los casos la ejecución de estas actividades debe ser realizada según se dispone en el Reglamento de Intermediación de Valores y Actividades Complementarias y demás regulación aplicable.
+(Así adicionado el inciso anterior por el artículo 64 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+(Derogado el último párrafo original por el artículo 61 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016 publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
