@@ -1,0 +1,2 @@
+Artículo 11. Sanciones
+La negativa a proporcionar información sobre los cálculos y registros contables realizados sobre las estimaciones contracíclicas registradas en cada periodo, el impedimento u obstaculización de inspección o supervisión, la alteración de registros contables, el envío o presentación de información falsa o incompleta son sancionados de conformidad con lo dispuesto en el artículo 155 de la Ley 7558, Ley Orgánica del Banco Central de Costa Rica.
