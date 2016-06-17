@@ -1,2 +1,0 @@
-TRANSITORIO II
-En virtud de las disposiciones anteriores, la Bolsa Nacional de Valores, S.A. y la Bolsa Electrónica de Valores de Costa Rica, S.A., deberán ajustar, a más tardar el 1° de marzo de 1994, sus respectivos reglamentos, sistemas operativos y contratos para la administración de carteras de terceros que tienen a disposición de los puestos de bolsa, ello conforme al detalle que, para cada una de esas entidades, se anexa a la presente Normativa.
