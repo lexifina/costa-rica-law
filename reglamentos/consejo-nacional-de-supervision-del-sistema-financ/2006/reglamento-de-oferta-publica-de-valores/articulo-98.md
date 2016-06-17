@@ -1,4 +1,6 @@
-Artículo 98.—Requisitos para la inscripción de emisiones de productos estructurados ligados a un valor subyacente o a un índice. Se permitirá la inscripción en el RNVI de productos estructurados mediante oferta pública restringida.
+Artículo 98. Requisitos para la inscripción de emisiones de productos estructurados ligados a un valor subyacente o a un índice
+Se permitirá la inscripción en el RNVI de productos estructurados.
+(Así reformado el párrafo anterior por el artículo 62 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 Se deberá presentar lo siguiente:
 a) Documentación requerida en el Artículo 18 de este Reglamento. En el caso de la calificación de riesgo establecida en el inciso c., únicamente se requerirá su actualización en forma anual.
 b) Información financiera requerida en el Artículo 23 de este Reglamento. Cuando se trate de empresas domiciliadas en el exterior se deberá presentar la información auditada y exceptuadas de las restantes disposiciones del Reglamento de auditores extemos y medidas de gobierno corporativo aplicable a los sujetos fiscalizados por SUGEVAL, SUGEF y SUPEN. En caso de emisores de oferta pública en mercados organizados se podrá presentar la fuente de consulta de la información.
