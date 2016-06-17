@@ -16,3 +16,4 @@ Reglamento sobre Valoración de Instrumentos Financieros
 | 1 | 2009-08-28 | la propia norma |
 | 2 | 2011-10-26 | Reglamento 944 (2011-10-26) |
 | 3 | 2013-10-29 | Reglamento 1071 (2013-10-29) |
+| 4 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
