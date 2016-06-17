@@ -1,3 +1,1 @@
-Artículo 2º—Inversionistas que deben contar con un perfil. Los inversionistas que deben contar con la identificación de su perfil en forma previa a la realización de inversiones son:
-a. Inversionistas de las entidades que comercializan fondos de inversión.
-b. Inversionistas de puestos de bolsa.
+Artículo 2º—(Derogado por el artículo 61 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259 del 17 de junio de 2016)

@@ -12,7 +12,7 @@ IX.—Estas disposiciones deben aplicarse en forma adicional a las que solicite 
 Por tanto, acuerda:
 SGV-A-141. INSTRUCCIONES SOBRE
 EL PERFIL DEL INVERSIONISTA
-Artículo 1º—Alcance. Estas instrucciones establecen los elementos mínimos que deben considerar los puestos de bolsa, las sociedades administradoras de fondos de inversión y demás entidades comercializadoras de fondos de inversión, llamadas en adelante entidades, para efectuar una indagación razonable de sus inversionistas, con el fin de ofrecerles productos y servicios que se ajusten a su perfil.
+Artículo 1. Alcance
+Estas instrucciones establecen los elementos mínimos que deben considerar las sociedades administradoras de fondos de inversión y demás entidades comercializadoras de fondos de inversión, llamadas en adelante entidades, para efectuar una indagación razonable de sus inversionistas, con el fin de ofrecerles productos y servicios que se ajusten a su perfil.
 Para efectos de este Acuerdo, el perfil del inversionista se define como el conjunto de características del inversionista, que son relevantes para la toma de sus decisiones de inversión.
-Este Acuerdo no aplica a los inversionistas institucionales definidos en el artículo 13 del Reglamento sobre oferta pública de valores.
-Las bolsas de valores deben reglamentar la elaboración del perfil de inversionista para los inversionistas de los puestos de bolsa, considerando como mínimo lo establecido en este acuerdo.
+(Así reformado por el artículo 67 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016 del 17 de junio de 2016)

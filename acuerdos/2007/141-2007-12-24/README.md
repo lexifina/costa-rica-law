@@ -14,3 +14,4 @@ Instrucciones sobre el perfil del inversionista
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-04-04 | la propia norma |
+| 2 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
