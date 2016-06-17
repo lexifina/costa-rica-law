@@ -3,8 +3,10 @@ Difusión de la calificación
 Artículo 18.—Periodicidad y difusión de las calificaciones. La calificación debe estar actualizada en todo momento.
 En este sentido, cuando la sociedad calificadora tenga conocimiento de hechos que pudiesen por su naturaleza alterar los fundamentos de la calificación otorgada, debe iniciar un proceso de revisión e informar a esta Superintendencia sobre las entidades, productos o valores que se están analizando y la fecha estimada en que se espera tomar un acuerdo sobre la revisión.
 Si de la revisión se deriva que el Consejo de calificación tome una decisión que mantenga o modifique la calificación otorgada, la sociedad calificadora debe realizar de inmediato un comunicado de Hecho Relevante, que contenga la información requerida en este artículo.
-En todo caso, la revisión ordinaria de la calificación debe ser efectuada al menos una vez cada seis meses y para los valores de oferta pública restringida al menos una vez al año.
-El resultado de las revisiones semestrales y anuales debe ser divulgado mediante Comunicado de Hechos Relevantes en un plazo máximo de cinco (5) días hábiles posteriores al cumplimiento de los plazos calculados según lo establecido en el párrafo anterior.
+En todo caso, la revisión ordinaria de la calificación debe ser efectuada al menos una vez cada seis meses.
+(Así reformado el párrafo anterior por el artículo 65 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
+El resultado de las revisiones semestrales y anuales debe ser divulgado mediante Comunicado de Hechos Relevantes.
+(Así reformado el párrafo anterior por el artículo 65 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 Una de las revisiones semestrales debe basarse en la información financiera auditada más reciente disponible.
 En todos los casos, el comunicado de hecho relevante debe contener al menos la siguiente información:
 a) Identificación de los valores, productos o entidad calificados.
@@ -31,4 +33,5 @@ l) En el caso de calificación de productos estructurados debe incorporarse info
 i. Análisis de posibles pérdidas y de flujo de efectivo, que haya realizado la sociedad calificadora.
 ii. El nivel de análisis realizado con respecto a los activos subyacentes de los productos estructurados.
 iii. Deberá indicar si ha efectuado un análisis de dichos procesos o si se ha basado en el análisis de un tercero, e indicará de qué modo influye el resultado de ese análisis en la calificación.
-Si la sociedad calificadora publica la información de las calificaciones otorgadas a través de su sitio Web, se deben establecer los mecanismos de actualización de dicha información, de forma tal que esta no tenga una antigüedad mayor al plazo establecido en el párrafo quinto de este artículo.
+Si la sociedad calificadora publica la información de las calificaciones otorgadas a través de su sitio Web, se deben establecer los mecanismos de actualización de dicha información, de forma tal que esta se realice el mismo día en que se realiza el Comunicado de Hecho Relevante.
+(Así reformado el párrafo anterior por el artículo 65 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016, publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
