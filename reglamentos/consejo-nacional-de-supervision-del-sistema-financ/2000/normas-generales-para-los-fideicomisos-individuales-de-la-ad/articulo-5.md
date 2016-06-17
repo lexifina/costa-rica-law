@@ -1,1 +1,0 @@
-Articulo 5°—Registro de las carteras administradas: El fiduciario deberá mantener actualizado en forma diaria el registro de la cartera de cada fideicomiso. Deberán registrarse lodos los movimientos de la cartera, esto es, compras, venias, intereses y dividendos recibidos.
