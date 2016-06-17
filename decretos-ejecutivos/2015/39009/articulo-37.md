@@ -9,7 +9,8 @@ Artículo 37.—Funciones de las Comisiones Hospitalarias. Las Comisiones Hospit
 8) Enviar a la Secretaría Técnica de la CONEAMMI y al coordinador regional toda la documentación de análisis del caso de muerte materna.
 9) El plazo entre el informe final del análisis del caso y el envío de la documentación respectiva al nivel regional, no puede ser mayor de dos semanas.
 10) Asistir a las reuniones que le convoque el nivel regional o el nivel nacional.
-11) Llevar un registro de las muertes maternas, perinatales e infantiles ocurridas en el hospital y rendir los informes necesarios al nivel regional.
+11) Llevar un registro actualizado de las muertes maternas, perinatales e infantiles ocurridas en el hospital y rendir los informes necesarios al nivel regional y central, de conformidad con el Decreto Ejecutivo No. 37306-S, “Reglamento de Vigilancia de la Salud”. Los reportes obligatorios de muertes infantiles y maternas deben registrarse en el Sistema Informático de Mortalidad Materno Infantil y mantenerse actualizado.
+(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39950 del 17 de junio del 2016)
 12) Llevar un registro de la morbilidad materna grave.
 13) Organizar y participar en sesiones clínicas de discusión de casos y auto evaluación.
 14) Organizar y participar en la capacitación permanente de temas relacionados con materno-infantil.

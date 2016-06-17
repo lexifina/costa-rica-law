@@ -14,3 +14,4 @@ Reglamento sobre el Sistema Nacional de evaluación y análisis de la mortalidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-28 | la propia norma |
+| 2 | 2016-06-17 | Decreto Ejecutivo 39950 (2016-06-17) |

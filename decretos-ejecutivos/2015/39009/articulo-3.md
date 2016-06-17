@@ -4,7 +4,8 @@ Artículo 3º—Definiciones y abreviaturas. Para los efectos del presente Regla
 3) Nacimiento vivo: Es la expulsión o extracción completa del cuerpo de la madre, independientemente de la duración del embarazo, de un producto de la concepción que, después de dicha separación, respire o dé cualquier otra señal de vida, como latidos del corazón, pulsaciones del cordón umbilical o movimientos efectivos de los músculos de contracción voluntaria tanto si se ha cortado o no el cordón umbilical y esté o no desprendida la placenta. Cada producto de un nacimiento que reúna esas condiciones se considera como un nacido vivo.
 4) Edad gestacional: Consiste en el cálculo del embarazo desde el primer día de la fecha de la última menstruación, hasta el nacimiento, se expresa en semanas y días completos.
 5) Captación temprana: Inclusión de la mujer embarazada en la atención Prenatal durante las primeras trece semanas de la gestación.
-6) Captación tardía: Inclusión de la mujer embarazada en la atención Prenatal después de la semana 24 de gestación.
+6) Captación tardía: Inclusión de la mujer embarazada en la atención Prenatal después de la semana 14 de gestación.
+(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39950 del 17 de junio del 2016)
 7) Embarazo normal: Constituye un estado fisiológico de la mujer que se inicia con la fecundación y concluye con el parto y nacimiento del producto a término.
 8) Parto de término: de 37 semanas a menos de 42 semanas completas (259 a 293 días) de gestación.
 9) Parto de pretérmino: Consiste en la expulsión del producto entre las 22 y menos de 37 semanas de gestación del organismo materno.
@@ -21,7 +22,8 @@ Artículo 3º—Definiciones y abreviaturas. Para los efectos del presente Regla
 20) Período neonatal: Comienza en el nacimiento y termina 28 días completos después del nacimiento. Se subdivide en: neonatal precoz (durante los siete primeros días de vida), neonatal tardía (después del séptimo día pero antes de los 28 días completos de vida).
 21) Peso al nacer: Es la primera medida del peso del feto o recién nacido hecha después del nacimiento.
 22) Peso bajo al nacer: Menos de 2500 g (hasta 2499 g inclusive).
-23) Peso muy bajo al nacer: Menos de 1500 g (hasta 1499 g inclusive).
+23) Peso muy bajo al nacer: Menos de 1500 gramos (de 1000 gramos hasta 1499 gramos).
+(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 39950 del 17 de junio del 2016)
 24) Peso extremadamente bajo al nacer: Menos de 1000 g (hasta 999 g inclusive).
 25) Prevenibilidad:
 25.1. Aquellas defunciones causadas por una enfermedad o un evento que podría no haber sucedido con la intervención médica oportuna o apropiada, o con medidas de salud pública.” Hospital Pediátrico Pereira Rosell, Uruguay.
