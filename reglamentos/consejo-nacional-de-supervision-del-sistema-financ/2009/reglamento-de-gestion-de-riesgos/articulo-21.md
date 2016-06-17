@@ -1,5 +1,4 @@
 Artículo 21.—Obtención del saldo de posiciones de compra a plazo ajustado por riesgo. El saldo de las posiciones de compra a plazo se debe ajustar en función de los riesgos de renovación, contraparte y subyacente, de la siguiente forma:
-[imagen]
 Donde:
 SAAR: Saldo de las posiciones de compra a plazo ajustado por riesgo
 SA: Saldo de las posiciones de compra a plazo
@@ -14,7 +13,6 @@ De 16 a 30 días | 3
 Menor a 15 días | 4
 En el caso de posiciones sin fecha de vencimiento definida, se considera que el plazo al vencimiento es de un día. La posición se incluye en el cálculo mientras se mantenga vigente.
 El factor de ajuste por riesgo de renovación corresponde a la sumatoria de los factores de ajuste individuales multiplicados por el peso relativo de cada operación:
-[imagen]
 Donde i = operación
 b. Factor de ajuste por riesgo de concentración. El factor de ajuste por riesgo de concentración se establece en función de la concentración por cliente del saldo de las posiciones compradoras a plazo:
 Concentración | Factor de ajuste
@@ -24,7 +22,6 @@ Más de 20% y hasta 40% en un cliente | 3
 Más de 40% en un cliente | 4
 Se consideran como un solo cliente, aquellos que formen parte de un grupo financiero.
 El factor de ajuste por riesgo de concentración corresponde a la sumatoria de los factores de ajuste individuales multiplicados por el peso relativo de cada cliente:
-[imagen]
 Donde i = cliente
 c. Factor de ajuste por riesgo de subyacente. El factor de ajuste por riesgo de subyacente se establece en función del tipo de subyacente según las siguientes categorías:
 Categoría de subyacente | Factor de ajuste
@@ -35,7 +32,6 @@ Emisiones de deuda de entes no supervisados por la SUGEF con calificación A o s
 Participaciones de fondos financieros y acciones | 3
 Participaciones de fondos inmobiliarios | 3.5
 Otros | 4
-Los valores de Oferta Pública Restringida no pueden ser utilizados como subyacentes en operaciones de reporto tripartito.
+(Derogado el párrafo penúltimo original por el artículo 61 del Reglamento de Intermediación y Actividades Complementarias, aprobado mediante sesión N° 1259-2016 publicada en el Alcance N° 100 a La Gaceta N° 117 del 17 de junio del 2016)
 El factor de ajuste por riesgo de subyacente corresponde a la sumatoria de los factores de ajuste individuales multiplicados por el peso relativo de cada operación:
-[imagen]
 Donde i = operación

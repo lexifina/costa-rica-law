@@ -20,3 +20,4 @@ Reglamento de Gestión de Riesgos
 | 5 | 2010-11-12 | Reglamento 890 (2010-11-12) |
 | 6 | 2014-09-08 | Reglamento 1124 (2014-09-08) |
 | 7 | 2015-02-23 | Reglamento 1150 (2015-02-23) |
+| 8 | 2016-06-17 | Reglamento 1259 (2016-06-17) |
