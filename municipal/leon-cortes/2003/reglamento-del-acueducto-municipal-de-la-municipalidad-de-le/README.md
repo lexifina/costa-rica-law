@@ -14,3 +14,4 @@ Reglamento del Acueducto Municipal de la Municipalidad de León Cortés
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-11-27 | la propia norma |
+| 2 | 2016-06-20 | Reglamento municipal 8 (2016-06-20) |
