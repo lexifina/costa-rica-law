@@ -1,0 +1,1 @@
+Artículo 5°—De manera conjunta, INEC e IMAS en coordinación con el Consejo Presidencial Social desarrollarán las acciones de actualización, capacitación y seguimiento necesarias para el mejor uso de los mapas sociales.
