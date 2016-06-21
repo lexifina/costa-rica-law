@@ -1,1 +1,1 @@
-Artículo 83.—Seguro de inmuebles. La sociedad administradora es responsable de suscribir con cargo al fondo, todos los seguros que estime necesarios para la adecuada protección de los inversionistas en relación con los inmuebles que se adquieran. Con tal fin, en el prospecto deben revelarse los contratos de seguros suscritos y sus condiciones.
+Artículo 83.—(Derogado mediante sesión N° 1261-2016 del 21 de junio del 2016)

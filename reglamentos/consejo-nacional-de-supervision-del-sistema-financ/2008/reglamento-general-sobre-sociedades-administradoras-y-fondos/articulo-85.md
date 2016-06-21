@@ -1,2 +1,1 @@
-Artículo 85.—Limitaciones en materia de venta. Los bienes inmuebles que integren los activos del fondo no pueden enajenarse si no hasta transcurridos tres años contados desde su inscripción a nombre del fondo.
-Sin embargo, por medio de la asamblea de inversionistas se puede autorizar la venta de un inmueble en un periodo menor a tres años. Como parte del acta de la asamblea, se debe dejar evidencia del impacto que se espera en el patrimonio de los inversionistas por la venta acordada.
+Artículo 85.—(Derogado mediante sesión N° 1261-2016 del 21 de junio del 2016)

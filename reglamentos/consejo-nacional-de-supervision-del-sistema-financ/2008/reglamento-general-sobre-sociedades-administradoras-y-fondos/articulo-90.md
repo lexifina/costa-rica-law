@@ -1,4 +1,4 @@
-Artículo 90.—Normativa aplicable. Los valores que formen parte de los activos de un fondo de desarrollo inmobiliario se rigen por la normativa aplicable a los fondos de inversión financieros dispuesta en el artículo 55 este Reglamento. En cuanto a la diversificación, se debe revelar en el prospecto la política definida para el fondo.
-Los bienes inmuebles que se mantengan para el arrendamiento y aquellos que se hayan concluido, se rigen por la normativa aplicable para las valoraciones de inmuebles y contratación de seguros de fondos inmobiliarios dispuesta en este Reglamento.
-Adicionalmente, la sociedad administradora y las entidades que forman parte de su grupo de interés económico, pueden ser arrendatarios de los bienes inmuebles del fondo, para lo cual deben cumplir con las disposiciones establecidas en el artículo 86 de este Reglamento.
-(Así reformado en sesión N° 1047 del 18 de junio de 2013)
+Artículo 90. Normativa aplicable
+Los valores que formen parte de los activos de un fondo de inversión de desarrollo de proyectos se rigen por la normativa aplicable a los fondos de inversión financieros dispuesta en el artículo 55 de este Reglamento. En cuanto a la diversificación, se debe revelar en el prospecto la política definida para el fondo.
+En el caso de bienes inmuebles que se exploten en arrendamiento, se debe acatar lo establecido en los artículos 77, 82 al 88 de este Reglamento.
+(Así reformado mediante sesión N° 1261-2016 del 21 de junio del 2016)
