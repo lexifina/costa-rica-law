@@ -1,0 +1,1 @@
+Artículo 43.- La Dirección de Desarrollo Humano debe realizar el proceso de inducción al programa y seguimiento de los teletrabajadores, asimismo debe brindar los informes que la Comisión Institucional de Teletrabajo del Ministerio solicite en dicha materia.

@@ -1,0 +1,1 @@
+Artículo 3.- Alcance. Esta normativa es aplicable a todos los trabajadores que ocupen puestos con actividades que la institución determine como teletrabajables y que reúnan los requisitos establecidos para aplicar esta práctica laboral.

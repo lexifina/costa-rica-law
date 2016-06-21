@@ -1,0 +1,1 @@
+Artículo 34.-El teletrabajador debe cumplir con la jornada laboral oficial de la institución; sin embargo, el horario puede ser flexible, siempre y cuando sea consensuado con su jefatura y no afecte el normal desarrollo de las actividades de otros compañeros, de otros procesos y en el servicio al usuario.

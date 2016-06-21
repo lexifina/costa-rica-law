@@ -1,0 +1,1 @@
+Artículo 26.- El teletrabajador es responsable directo de la confidencialidad y seguridad de la información que utilice y pueda acceder, y evitará por todos los medios su uso inapropiado, según se establece en la normativa institucional.

@@ -1,0 +1,1 @@
+Artículo 22.- Las computadoras utilizadas para el teletrabajo deben cumplir con todas las características de seguridad establecidas para la institución por el Departamento de Tecnologías de Información y Comunicación.

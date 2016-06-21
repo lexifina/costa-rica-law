@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo del teletrabajo. El objetivo del teletrabajo es mejorar la calidad en el servicio al usuario, aumentar la productividad, reducir costos, y brindar el mejor desarrollo laboral de los trabajadores de la institución, de acuerdo con las prácticas modernas.

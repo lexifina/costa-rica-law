@@ -1,0 +1,1 @@
+Artículo 42.- El Departamento de Tecnologías de Información y Comunicación brindará el soporte técnico únicamente a las herramientas de software y sistema operativo necesarios para realizar el teletrabajo. Es la responsable de aprobar dispositivos, enlaces y software para realizar las labores de teletrabajo.

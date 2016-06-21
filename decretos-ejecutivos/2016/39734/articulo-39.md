@@ -1,0 +1,1 @@
+Artículo 39.- Cuando se determine ante la Comisión Institucional de Teletrabajo, que las causas de incumplimiento o bajo desempeño del teletrabajador, son atribuibles a la jefatura, ésta coordinará las acciones para cumplir con lo dispuesto en esta materia.

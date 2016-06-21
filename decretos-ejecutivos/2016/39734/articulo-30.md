@@ -1,0 +1,1 @@
+Artículo 30.-El teletrabajador es responsable de los activos institucionales que utilice y traslade hacia el lugar de trabajo, ya sea hogar, telecentro o centro destinado para realizar sus funciones durante el teletrabajo. En caso de extravío, debe proceder de acuerdo con lo que establece la normativa vigente.

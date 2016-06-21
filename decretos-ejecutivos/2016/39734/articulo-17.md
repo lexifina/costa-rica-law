@@ -1,0 +1,1 @@
+Artículo 17.- La institución puede dejar sin efecto la aplicación del teletrabajo en aquellos puestos que lo estime necesario por razones de conveniencia institucional, en cuyo caso las personas que estén teletrabajando, deberán reintegrarse a su centro de trabajo. En el caso de las personas de nuevo ingreso, aplicará lo establecido en el artículo 14 de la presente normativa.

@@ -1,0 +1,1 @@
+Artículo 45.- La Dirección de Desarrollo Humano coordinará con la Comisión Institucional de Teletrabajo del Ministerio, los requerimientos de capacitación del programa de teletrabajo, hará la previsión presupuestaria correspondiente y realizará las convocatorias a participar de los eventos que se programen.

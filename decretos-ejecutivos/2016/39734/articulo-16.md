@@ -1,0 +1,1 @@
+Artículo 16.- Las personas de nuevo ingreso contratadas en un puesto teletrabajable deben mantener las condiciones acordadas durante su relación laboral. En caso de que dichas condiciones cambien, se analizará la situación por parte de la jefatura correspondiente.

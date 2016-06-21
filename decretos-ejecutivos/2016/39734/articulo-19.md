@@ -1,0 +1,1 @@
+Artículo 19.- Si se requiere que el teletrabajador se incorpore a la modalidad presencial detrabajo, la jefatura autorizará la incorporación y comunicará a la Comisión Institucional para lo que corresponda.
