@@ -1,0 +1,1 @@
+Artículo 28.—Deben establecerse y funcionar adecuados canales y medios de comunicación internos y externos, que permitan trasladar la información de manera transparente, ágil, segura, correcta y oportuna, a los destinatarios idóneos dentro y fuera de la institución.

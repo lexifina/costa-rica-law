@@ -1,0 +1,1 @@
+Artículo 10.—La obligatoriedad de las unidades organizacionales de implementar medidas de control interno en sus operaciones. Es obligación del responsable designado en un cargo de jefatura, la creación de las medidas de control interno suficientes y necesarias para el cumplimiento de los artículos 12, 13 y 15 de la Ley 8292 Ley General para el Control Interno.

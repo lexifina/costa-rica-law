@@ -1,0 +1,1 @@
+Artículo 17.—Se deben establecer por parte de la administración, las políticas y actividades de control pertinentes para gestionar y verificar la calidad de la gestión, para asegurar su conformidad con las necesidades institucionales, a la luz de los objetivos, y con base en un enfoque de mejoramiento continuo.

@@ -1,0 +1,1 @@
+Artículo 27.—La información que generen los diferentes procesos en la Municipalidad de Tarrazú podrá ser compartida a través de los canales oficiales sin excepción, previa autorización del Jerarca de turno y utilizando los procedimientos o canales estipulados por la legislación vigente. Todo el trámite debe ser debidamente documentado.

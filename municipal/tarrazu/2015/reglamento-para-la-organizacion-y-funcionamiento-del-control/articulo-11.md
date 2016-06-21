@@ -1,0 +1,1 @@
+Artículo 11.—Deber del titular subordinado de reportar al jerarca el avance del ambiente de control. Las jefaturas deben presentar un informe del avance en la ejecución y resultados de la aplicación de las medidas de control interno.

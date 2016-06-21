@@ -1,0 +1,1 @@
+Artículo 8º—Determinados los riesgos, errores, incumplimientos u otros asuntos señalados por la auditoría y el sistema de control interno, el jerarca en conjunto con el titular subordinado, propondrán el plan de acción que procure los ajustes necesarios para su corrección.

@@ -1,0 +1,1 @@
+Artículo 33.—Rendición de cuentas. El Comité para la gestión de la calidad elaborará, con los informes que los titulares subordinados le deben entregar anualmente, un informe ejecutivo sobre el avance en la ejecución y mejoras en el ambiente de control interno.

@@ -1,0 +1,3 @@
+CAPÍTULO IV
+Gestión de la información y comunicación
+Artículo 26.—El jerarca y los titulares subordinados, según sus competencias, deben asegurar razonablemente que los sistemas de información propicien una debida gestión documental institucional, mediante la que se ejerza control, se almacene y se recupere la información en la organización, de manera oportuna y eficiente, y de conformidad con las necesidades institucionales.

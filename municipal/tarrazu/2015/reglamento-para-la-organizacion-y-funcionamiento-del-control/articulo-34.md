@@ -1,0 +1,1 @@
+Artículo 34.—Informe de Fin de Gestión. Los subordinados titulares deben presentar su informe final anualmente. En este darán rendición de cuentas sobre su labor en el cumplimiento de los objetivos de su gestión operativa y los objetivos institucionales.

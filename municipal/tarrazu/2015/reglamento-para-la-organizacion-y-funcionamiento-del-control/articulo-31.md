@@ -1,0 +1,1 @@
+Artículo 31.—El jerarca y los titulares subordinados, según sus competencias, deben disponer la realización, por lo menos una vez al año, de prácticas que recopilen la percepción de los usuarios de los servicios. Los resultados sistematizados, tabulados o graficados, serán analizados por el Comité para la calidad.

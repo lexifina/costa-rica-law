@@ -1,0 +1,1 @@
+Artículo 18.—Los resultados y el avance de las prácticas se deben documentar en los informes laborales de los Titulares e informar al Comité de Gestión para la Calidad. Este comité emitirá las recomendaciones que considere necesarias, por escrito a través de la minuta.

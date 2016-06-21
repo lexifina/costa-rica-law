@@ -1,0 +1,1 @@
+Artículo 29.—Los medios y canales de comunicación utilizados, serán de previo aprobados por el Jerarca. De igual forma el contenido y estructura del mensaje debe ser aprobado por el Titular Superior y Titular Subordinado involucrado, dejando un registro como evidencia.

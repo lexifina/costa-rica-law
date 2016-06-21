@@ -1,0 +1,1 @@
+Artículo 21.—El análisis de riesgo debe iniciar con la determinación de los factores internos (Fortalezas y Debilidades) y Externos (Oportunidades y Amenazas). Posterior a la determinación de factores, se pronostica los riegos interno y externos implicados.
