@@ -1,0 +1,1 @@
+Artículo 2º—El Mercado se organizará internamente, dentro de lo posible, en zonas o sectores destinado al servicio del consumidor local, al suministro de artículos de consumo, alimentos y actividades, y otros servicios lícitos dentro del comercio, que además no vayan contra la moral y las buenas costumbres de la comunidad.

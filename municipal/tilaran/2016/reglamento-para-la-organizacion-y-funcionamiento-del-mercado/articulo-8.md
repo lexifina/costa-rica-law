@@ -1,0 +1,1 @@
+Artículo 8º—Fuera de los casos expresamente señalados por este Reglamento, ninguna persona podrá permanecer dentro del mercado después o antes del horario fijado, exceptuando los empleados del mismo, cuadrillas de trabajo, aseo o personal de vigilancia.

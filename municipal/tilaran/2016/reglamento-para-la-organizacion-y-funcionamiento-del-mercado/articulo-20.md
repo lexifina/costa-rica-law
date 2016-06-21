@@ -1,0 +1,1 @@
+Artículo 20.—Dentro del Mercado Municipal queda prohibido expedir patentes para venta de bebidas alcohólicas, ni de objetos usados o que atente contra la salud pública; igual prohibición rige tratándose de venta de animales de cualquier especie, o cualquier otra actividad que vaya contra la moral y las buenas costumbres.

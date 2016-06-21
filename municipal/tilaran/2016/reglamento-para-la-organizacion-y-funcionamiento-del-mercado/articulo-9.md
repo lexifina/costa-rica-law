@@ -1,0 +1,4 @@
+CAPÍTULO III
+De los Inquilinos
+Artículo 9º—Los puestos que se explotan en el Mercado se dividen en permanentes y transitorios, o sea puestos de estructura fija y estructura móvil. Son fijos los ocupados por arrendatarios en forma continua, con base en la respectiva adjudicación y el contrato firmado con la Municipalidad. Son transitorios aquellos puestos comerciales como “derecho de piso” que se otorgan provisionalmente en lugares habilitados para tal efecto y que constituyen derechos de uso revocables unilateralmente a juicio del Concejo Municipal, cuando así lo estime y amerite hacerlo el Concejo.
+Las personas que ocupen puestos comerciales en forma móvil, adquieren el derecho fijo después de seis meses de pago continuo e ininterrumpido. Los beneficiarios de estos puestos móviles que adquieren derecho permanente, deberán pagar por adelantado la renta de los locales en las cajas municipales.
