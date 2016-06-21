@@ -1,0 +1,28 @@
+N° 39681-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las atribuciones que les confieren los incisos 3) y 18) del artículo 140 y el artículo 146 de la Constitución Política, los artículos 27 inciso 1) y 28 inciso 2) acápite b) de la Ley 6227, del 2 de mayo de 1978, Ley General de la Administración Pública, y la Ley N° 8488, del 22 de noviembre de 2005, Ley Nacional de Emergencias y Prevención del Riesgo.
+Considerando:
+1º—Que la Ley N° 8488 constituye un Sistema Nacional de Gestión de Riesgo en el que se integran todas las instituciones públicas y se procura la participación del sector privado y de la sociedad civil organizada, bajo la rectoría de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, en adelante CNE, el cual se articula a través de la implementación de una Política Nacional de Gestión de Riesgo, mediante la interacción de instrumentos, programas y recursos que se conviertan en actividades ordinarias y extraordinarias tendentes a evitar la ocurrencia de los desastres y la atención de las emergencias en todas sus fases.
+2º—Que en cumplimiento del artículo 55 de la Ley N° 8488, mediante Decreto Ejecutivo N° 34361-MP del 21 de noviembre de 2007 se emitió el Reglamento a la Ley Nacional de Emergencias y Prevención del Riesgo, publicado en La Gaceta N° 52 del 13 de marzo de 2008.
+3º—Que en el Informe N° DFOE-PG-IF-09-2013, denominado “Informe de auditoría de carácter especial del proceso para la adquisición de bienes y servicios en la fase de respuesta a las emergencias por parte de la Comisión Nacional de Prevención de Riesgos y Atención de Emergencias”, el Área de Fiscalización de Servicios Públicos Generales de la División de Fiscalización Operativa y Evaluativa de la Contraloría General de la República, dispuso que era necesario armonizar el párrafo tercero del artículo 14 del Reglamento a la Ley Nacional de Emergencias y Prevención del Riesgo con el párrafo final del artículo 15 de la Ley N° 8488, relativos a la contratación de un máximo de cien horas máquina en la atención de primeros impactos.
+4º—Que el artículo 24 actual del citado Reglamento, donde regula los servicios contratados bajo el régimen de excepción, indica que para el pago de estos servicios, la CNE utilizará el decreto ejecutivo de salarios mínimos emitido por el Ministerio de Trabajo para el sector privado, lo cual resulta contradictorio pues, aun siendo nombramientos de emergencia, estos trabajadores son funcionarios públicos.
+5º—Que se ha determinado la necesidad de modificar parcialmente dicho reglamento para corregir las inconsistencias señaladas en los considerandos anteriores. Por tanto,
+Decretan:
+“Reforma parcial del reglamento a la Ley Nacional de Emergencias y Prevención
+del Riesgo”
+Artículo 1°.—Reformas. Refórmese los artículos 14 y 24 del Decreto Ejecutivo N° 34361- MP del 21 de noviembre de 2007, publicado en La Gaceta N° 52 del 13 de marzo de 2008, denominado “Reglamento a la Ley Nacional de Emergencias y Prevención del Riesgo”, para que en lo sucesivo se lean de la siguiente manera:
+Artículo 14.—Emergencias locales facultades. La CNE contará con facultades extraordinarias a fin de atender las emergencias locales.
+Son aquellas que por la alta frecuencia con que ocurren o la seria afectación que provocan a las comunidades con riesgo a la vida, a la salud y la seguridad de los habitantes y sus bienes, la interrupción de los servicios básicos de las poblaciones afectadas, así como al medio ambiente, demandan un servicio humanitario de primer impacto. La CNE contará con competencias extraordinarias, a fin de atender este tipo de emergencias.
+La CNE podrá contratar un máximo de cien horas máquina para la limpieza de cada punto de intervención en las áreas más afectadas de la zona, sin que medie declaratoria de emergencia, para cumplir con su función de atención a la población afectada por los efectos del hecho generador de los daños. Las contrataciones y adquisiciones relacionadas con estas emergencias menores, se realizarán por medio del procedimiento establecido para tales fines. Para estos efectos, las labores de limpieza comprenderán al menos:
+- Limpieza de caminos y reposición del material de la calzada.
+- Limpieza y recolección de desechos de material de derrumbes.
+- Limpieza de deslizamientos y colocación de estructuras para la protección y seguridad de los usuarios.
+- Recuperación y reposición del material disgregado en obras de protección.
+- Recava de cauces de ríos.
+- Y toda otra actividad que procure salvaguardar la vida humana.
+Para la compra de materiales para rehabilitar servicios básicos y habilitar albergues, en caso de ser necesario, se contratará la mano de obra requerida para la construcción de la obra.
+Artículo 24.—Nombramientos Bajo el Régimen de Excepción. Los nombramientos bajo el régimen de excepción, se harán a partir de la declaratoria de emergencia siempre que sean necesarios para atender las diferentes etapas de ésta.
+Estos nombramientos de emergencia serán efectuados a partir de criterios de idoneidad y objetividad. Se emplearán únicamente para atender funciones que se vinculen directamente con la emergencia decretada.
+Los gastos en que incurra la CNE por estos nombramientos deberán ser cubiertos con los recursos del Fondo Nacional de Emergencias, previa autorización de la Junta Directiva y bajo un plan de inversión. Para el pago a estos funcionarios, la CNE utilizará las reglas aplicables a las relaciones de servicio entre la Administración y sus servidores públicos.
+Los nombramientos de emergencia no podrán exceder del plazo de la declaratoria respectiva.
