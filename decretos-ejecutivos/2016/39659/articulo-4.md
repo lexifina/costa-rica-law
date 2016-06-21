@@ -1,0 +1,1 @@
+Artículo 4º—Los Ministerios de Cultura y Juventud, Educación Pública y Ambiente y Energía, determinarán a lo interno, según las competencias legalmente conferidas, los planes, programas o actividades mediante las cuales se conmemore el Día Nacional de la Madre Tierra.

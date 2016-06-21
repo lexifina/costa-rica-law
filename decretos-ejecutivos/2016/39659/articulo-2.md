@@ -1,0 +1,1 @@
+Artículo 2º—Autorízase a las instituciones públicas para que preparen y conmemoren el Día Nacional de la Madre Tierra, mediante actividades que contribuyan a crear en los y las costarricenses, desde los primeros años de vida, una nueva relación con el Planeta, en la cual cada persona sea responsable de vivir una vida en armonía con la naturaleza.
