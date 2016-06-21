@@ -1,0 +1,2 @@
+Artículo 5°—La comisión nombrará en su seno, a una persona que presida y otra que asuma la secretaría, esta última podrá ser representante de la Administración.
+La presidencia tendrá la responsabilidad de coordinar las reuniones y las diversas actividades que se deriven de las funciones de la COMAD, mientras que la secretaría será la responsable de levantar actas de cada reunión, elaborar los dictámenes o informes que deberán presentarse al concejo y resguardar los documentos que se generen de la gestión de la COMAD.

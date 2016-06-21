@@ -1,0 +1,1 @@
+Artículo 3°—Esta comisión estará conformada por un mínimo de tres integrantes del Concejo Municipal; así mismo podrán participar representantes de la Administración y de la sociedad civil en calidad de asesores y asesoras.
