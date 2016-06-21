@@ -15,3 +15,4 @@ Reglamento para el Cobro Administrativo y Judicial
 | --- | --- | --- |
 | 1 | 2001-02-07 | la propia norma |
 | 2 | 2011-06-07 | Reglamento municipal 58 (2011-06-07) |
+| 3 | 2016-06-21 | Reglamento municipal 25 (2016-06-21) |

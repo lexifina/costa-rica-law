@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE ALAJUELITA
+(Esta norma fue derogada por el artículo 51 del Reglamento de Cobro Administrativo y Judicial de la Municipalidad de Alajuelita, aprobado mediante sesión ordinaria N° 25 del 21 de junio del 2016)
 La municipalidad del cantón de Alajuelita, comunica a los estimables vecinos y público en general, que de conformidad con el acuerdo tomado en la sesión N° 139 ordinaria, celebrada el día 24 del mes de octubre del año en curso, a partir de la publicación del presente aviso en el Diario Oficial La Gaceta entrarán en vigencia los siguientes reglamentos: a) Reglamento para el Cobro Administrativo y Judicial. B) Reglamento para el Cobro de Tarifas por las Omisiones a los Deberes de los Propietarios de Inmuebles Localizados en el Cantón de Alajuelita, cuyos textos íntegros fueron publicados en La Gaceta N° 182 del 22 de setiembre del 2000 y La Gaceta N° 183 del 25 de setiembre del 2000 respectivamente y por un plazo de 10 días hábiles sin haberse recibido ninguna objeción a los mismo.
 Alajuelita, 31 de enero del 2001.
 (Nota de Sinalevi: Tal como se indica en el párrafo anterior el reglamento para el Cobro Administrativo y Judicial corresponde al publicado como proyecto en la Gaceta N° 183 del 25 de setiembre del 2000, por lo que se transcribe a continuación:)
