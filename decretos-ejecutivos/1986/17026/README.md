@@ -17,3 +17,4 @@ Reglamento de Servicio del Teatro Popular Mélico Salazar.
 | 2 | 1999-02-15 | Decreto Ejecutivo 27738 (1999-02-15) |
 | 3 | 2003-09-10 | Decreto Ejecutivo 31398 (2003-09-10) |
 | 4 | 2008-12-03 | Decreto Ejecutivo 35078 (2008-12-03) |
+| 5 | 2016-06-21 | Decreto Ejecutivo 39815 (2016-06-21) |
