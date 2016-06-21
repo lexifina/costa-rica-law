@@ -14,3 +14,4 @@ Reglamento de gastos de viaje y transporte de la Municipalidad de Aguirre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-06-04 | la propia norma |
+| 2 | 2016-06-21 | Reglamento municipal 15 (2016-06-21) |
