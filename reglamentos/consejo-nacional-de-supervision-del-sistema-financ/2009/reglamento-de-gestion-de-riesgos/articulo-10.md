@@ -6,12 +6,14 @@ En el caso de fondos de inversión financieros, vehículos de propósito especia
 i. Riesgo crediticio.
 ii. Riesgo de liquidez.
 iii. Riesgo de mercado.
-En el caso de fondos de inversión inmobiliarios, se deben divulgar al menos los siguientes riesgos:
+En el caso de fondos de desarrollo de proyectos(*), se deben divulgar al menos los siguientes riesgos:
+(*) (Así modificada su denominación mediante sesión N° 1261-2016 del 21 de junio del 2016. Anteriormente indicaba "fondos de desarrollo inmobiliario")
 i. Riesgo de siniestros.
 ii. Riesgo de desocupación.
 iii. Riesgo de concentración por inmueble.
 iv. Riesgo de concentración por inquilino.
-En el caso de fondos de inversión de desarrollo inmobiliario se deben divulgar al menos los siguientes riesgos:
+En el caso de fondos de inversión de desarrollo de proyectos(*) se deben divulgar al menos los siguientes riesgos:
+(*) (Así modificada su denominación mediante sesión N° 1261-2016 del 21 de junio del 2016. Anteriormente indicaba "fondos de desarrollo inmobiliario")
 i. Riesgo de siniestros.
 ii. Riesgo de localización.
 iii. Riesgo de financiamiento.
