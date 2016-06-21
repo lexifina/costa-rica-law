@@ -62,3 +62,4 @@ Fijación de tarifas de los servicios del Ministerio de Agricultura y Ganadería
 | 47 | 2014-03-10 | Resolución 10 (2014-03-10) |
 | 48 | 2014-05-14 | Resolución 15 (2014-05-14) |
 | 49 | 2016-01-25 | Decreto Ejecutivo 39600 (2016-01-25) |
+| 50 | 2016-06-21 | Decreto Ejecutivo 39827 (2016-06-21) |
