@@ -14,3 +14,4 @@ Reglamento sobre Financiamiento de Proyectos de Infraestructura
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-03 | la propia norma |
+| 2 | 2016-06-21 | Reglamento 1261 (2016-06-21) |
