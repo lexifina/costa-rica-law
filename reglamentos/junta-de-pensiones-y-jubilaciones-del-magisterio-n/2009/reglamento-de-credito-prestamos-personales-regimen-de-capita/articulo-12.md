@@ -6,9 +6,12 @@ Para ello, deberán cumplir los siguientes requisitos:
 Estos documentos no deben tener más de 60 días de emitidos.
 Los gastos a financiar pueden ser del deudor o de quien estime conveniente.
 (Así reformado el párrafo anterior mediante sesión ordianria N° 016-2015 del 10 de febrero del 2015)
-Garantía:
+(*)Garantía:
 Esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
-Pensionados, MEP, Universidades e INA en Propiedad o interinos y Centros Educativos privados en propiedad.
-[imagen]
+Pensionados, MEP, CUC, CUN Limón, Universidades Estatales e INA en propiedad o interinos y Centros Educativos privados en propiedad:
+Hasta 01.000.000.00 1 fiador o Seguro de caución
+Centros Educativos Privados con nombramiento interino:
+Hasta 01.000.000.00 1 fiador
 Esta línea de crédito puede ser renovada, en tanto se observe capacidad de pago.
+(*)(Así reformado el punto anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
 (Así reformado mediante sesión ordinaria N° 119-2014 del 29 de octubre del 2014)

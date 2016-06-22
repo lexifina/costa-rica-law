@@ -29,3 +29,4 @@ Reglamento de Crédito Préstamos Personales Régimen de Capitalización Colecti
 | 14 | 2014-10-29 | Reglamento 119 (2014-10-29) |
 | 15 | 2015-02-10 | Reglamento 16 (2015-02-10) |
 | 16 | 2015-09-22 | Reglamento 105 (2015-09-22) |
+| 17 | 2016-06-22 | Reglamento 70 (2016-06-22) |

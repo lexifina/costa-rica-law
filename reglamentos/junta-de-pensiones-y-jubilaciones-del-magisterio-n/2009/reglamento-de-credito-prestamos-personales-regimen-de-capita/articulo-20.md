@@ -2,7 +2,7 @@ Artículo 20: Del cobro de los créditos. La cuota del préstamo, así como los 
 (Así reformado el párrafo anterior mediante sesión ordinaria N° 016-2015 del 10 de febrero del 2015)
 Se exceptúan los casos en que la deducción no se pueda aplicar por motivos ajenos a la Junta, siempre y cuando esta situación se haya generado con posterioridad a la formalización del crédito. En estos casos, el deudor quedará obligado a pagar las cuotas oportunamente en las oficinas de la Junta de Pensiones.
 (Así reformado el párrafo anterior mediante sesión ordinaria N° 016-2015 del 10 de febrero del 2015)
-Para efectos de cobro de intereses moratorios, se tendrá como fecha de cobro, el primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 016-2015 del 10 de febrero del 2015)
+Para efectos de cobro de intereses moratorios, se cobrará a partir del primer día hábil del mes, siendo equivalente a la tasa de interés corriente del crédito más un 30%, según lo establecido en el Artículo 498 del Código de Comercio.
+(Así reformado el párrafo anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
 En el caso de los jubilados y pensionados se deducirán de su giro de pensión.
-(Así reformado mediante sesión ordianria N° 119-2014 del 29 de octubre del 2014)
+(Así reformado el párrafo anterior mediante sesiones N° 070 y 071-2016 del 22 y 28 de junio del 2016)
