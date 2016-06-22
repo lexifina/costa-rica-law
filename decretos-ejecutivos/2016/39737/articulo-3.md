@@ -1,0 +1,1 @@
+Artículo 3°—Se faculta a la Administración Pública Central, a las instituciones y empresas del Estado, y se insta a las empresas privadas, para que dentro del marco de sus competencias y en estricto apego al ordenamiento jurídico, brinden las facilidades y cooperación requeridas para la realización de todas las actividades que se lleven a cabo en el marco de esta iniciativa.
