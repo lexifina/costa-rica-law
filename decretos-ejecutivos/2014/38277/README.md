@@ -15,3 +15,4 @@ Reglamento de Procedimiento Tributario
 | --- | --- | --- |
 | 1 | 2014-04-02 | la propia norma |
 | 2 | 2016-01-28 | Decreto Ejecutivo 39673 (2016-01-28) |
+| 3 | 2016-06-23 | Decreto Ejecutivo 39940 (2016-06-23) |
