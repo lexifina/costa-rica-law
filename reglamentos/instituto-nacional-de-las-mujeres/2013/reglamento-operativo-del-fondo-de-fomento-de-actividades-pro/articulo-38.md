@@ -1,0 +1,1 @@
+Artículo 38.- Divulgación del resultado de la convocatoria: Los proyectos seleccionados se divulgarán a través de medios de comunicación virtual del INAMU. Asimismo, los proyectos que no fueron seleccionados se publicarán en los mismos medios, donde se indicará en forma sucinta la razón para la no selección.

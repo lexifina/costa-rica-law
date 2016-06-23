@@ -1,1 +1,8 @@
-Artículo 18.—Contenido de la convocatoria: La convocatoria contendrá al menos la siguiente información: fecha de apertura y de cierre del periodo de retiro de la las fichas de participación y demás material necesario, periodo límite de entrega de propuestas y lugar para hacerlo, mención del público hacia el cual va dirigido, áreas temáticas y categorías de participación, medios de información sobre el programa y medios para que las personas interesadas se contacten con INAMU para obtener información sobre FOMUJERES.
+CAPÍTULO 3
+REQUISITOS DE LOS PROYECTOS A FINANCIAR
+Artículo 18.- Proyectos a financiar: Podrán ser financiados con recursos de FOMUJERES los proyectos que cumplan con las siguientes características:
+1. Con los principios que rigen el INAMU.
+2. Que se encuentren en las áreas y categorías establecidas para la convocatoria que participa. Que se refieran al desarrollo de un proyecto productivo o a la implementación y fortalecimiento de estructuras organizativas de las mujeres en beneficio de sus derechos, con especial atención en sus derechos económicos.
+3. Que sean propuestas que demuestren congruencia con la inversión de capital solicitada.
+4. Que cumplan con todos los requisitos solicitados por la convocatoria. Estos deberán ser auténticos, claros y veraces.
+5. Que las propuestas sean lideradas por las mujeres, éstas deben demostrar el conocimiento técnico y la capacidad en la toma de decisiones de los proyectos.

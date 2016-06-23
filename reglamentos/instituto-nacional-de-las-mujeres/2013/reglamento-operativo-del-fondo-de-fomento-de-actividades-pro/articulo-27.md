@@ -1,2 +1,3 @@
-Artículo 27.—Divulgación de los proyectos seleccionados: Los proyectos seleccionados para optar por los recursos de FOMUJERES se divulgarán a través de medios de comunicación y de la página web. Tanto seleccionados como no seleccionados serán notificados de los resultados del concurso por correo electrónico o medios de comunicación masiva.
-La Junta Directiva seleccionará el modo y tipo de actividad que se organizará para anunciar a los seleccionados.
+CAPÍTULO 4
+DE LA UNIDAD EJECUTORA DE FOMUJERES
+Artículo 27.- De la Unidad Ejecutora: Será la Unidad Ejecutora a cargo del Fondo, la que contará con el personal idóneo para sus funciones. Es la Unidad responsable de coordinar intra e interinstitucionalmente acciones para una efectiva operación del Fondo FOMUJERES, así como de ejecutar cada una de las fases del concurso, elaborando todo el instrumental requerido para una operación óptima de éste.

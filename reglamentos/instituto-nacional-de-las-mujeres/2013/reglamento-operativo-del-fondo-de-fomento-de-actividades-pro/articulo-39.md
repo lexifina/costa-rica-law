@@ -1,0 +1,1 @@
+Artículo 39.- Comunicaciones a las mujeres u organizaciones de mujeres seleccionadas: Las mujeres y organizaciones de mujeres beneficiarias de los proyectos serán contactadas vía telefónica o por correo electrónico, para que en la fecha que se les indique, se presenten a cada Unidad Regional del INAMU o en donde se defina, a firmar el respectivo Contrato.

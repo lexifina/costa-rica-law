@@ -1,1 +1,3 @@
-Artículo 9º—Contenido del proyecto: El proyecto que presente la persona u organización postulante deberán contener, al menos lo siguiente: título, objetivos, lugar de realización del proyecto, descripción, justificación, en relación con la finalidad del Fondo, duración, presupuesto detallado y programación de desembolsos propuesta, impacto y sostenibilidad del proyecto.
+CAPÍTULO 2
+PRINCIPIOS DE SELECCIÓN
+Artículo 9.- Convocatoria pública: Los proyectos serán seleccionados mediante procesos concursados de convocatoria pública que se regirán por principios de libre participación, igualdad de oportunidades, justicia y transparencia, según bases de participación previamente definidas.

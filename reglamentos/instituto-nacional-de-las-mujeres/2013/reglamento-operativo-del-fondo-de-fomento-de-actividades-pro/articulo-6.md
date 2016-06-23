@@ -1,8 +1,1 @@
-Artículo 6º—Proyectos que se excluyen de financiamiento: No podrán ser objeto de financiamiento los proyectos que:
-1) Beneficien a personas funcionarias del INAMU.
-2) Aquellos en los que se detecte que existe cualquier tipo de irrespeto a los derechos laborales y de seguridad social de las mujeres.
-3) Beneficien a personas que se encuentren ligadas por consanguinidad, hasta el tercer grado, de personas funcionarias que tengan algún grado de injerencia en la toma de decisiones relativas al Fondo o de personas integrantes de los órganos seleccionadores.
-4) Pretendan el mantenimiento operativo de una organización a través del pago de salarios u otros gastos administrativos en los que no se vislumbre financiamiento propio.
-5) Propongan que el aporte del Fondo sea para el pago de deudas o préstamos.
-6) Pretendan el financiamiento de gastos que no se hayan incluido, inicialmente, en los presupuestos presentados en los proyectos.
-7) Sean propuestas por otros órganos, entes, o instituciones públicas de cualquier índole.
+Artículo 6.- Financiamiento y asignación de recursos: El Fondo se financiará con recursos del presupuesto ordinario y extraordinario; recursos del superávit cuando lo hubiere y/o recursos extraordinarios del INAMU y de aquellas donaciones que ingresen de acuerdo con lo previsto en el Artículo 3 del Decreto de creación del Fondo. La Junta Directiva del INAMU será la encargada de asignar los recursos económicos al Fondo. Esta aprobará mediante Acuerdo firme la transferencia al Fondo de un mínimo de un 4% del presupuesto ordinario de la Institución. Los recursos se trasladarán a la Tesorería de la Institución, quien será la encargada de hacer los desembolsos a las mujeres beneficiarias y/o representantes de las organizaciones.

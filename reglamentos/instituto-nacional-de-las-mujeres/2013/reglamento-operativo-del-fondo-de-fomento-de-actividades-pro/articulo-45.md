@@ -1,0 +1,1 @@
+Artículo 45.- Del incumplimiento: En caso de incumplimiento, se emitirá una resolución por parte de la Unidad Ejecutora de FOMUJERES previo debido proceso, quien valorará y definirá el traslado del caso a la Unidad de Asesoría Legal del INAMU.

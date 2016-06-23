@@ -1,0 +1,1 @@
+Artículo 46.- Evaluación final: El INAMU mediante la Unidad Ejecutora de FOMUJERES en coordinación con el Equipo Desarrollador de Proyectos, designarán los mecanismos de evaluación anual del programa.

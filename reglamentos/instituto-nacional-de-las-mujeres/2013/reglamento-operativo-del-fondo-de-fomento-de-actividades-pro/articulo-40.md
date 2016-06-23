@@ -1,0 +1,1 @@
+Artículo 40.- Aceptación de recursos y firma de contratos: En el Contrato se especificarán los deberes y obligaciones de cada una de las partes, según el proyecto seleccionado. Asimismo, se definirá la forma en que se realizarán los desembolsos.

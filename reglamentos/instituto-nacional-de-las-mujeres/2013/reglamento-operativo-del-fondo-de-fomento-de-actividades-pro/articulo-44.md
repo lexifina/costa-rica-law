@@ -1,0 +1,1 @@
+Artículo 44.- Protocolo de incumplimiento: La Unidad Ejecutora de FOMUJERES elaborará y mantendrá actualizado un “Protocolo de Incumplimientos” para establecer el proceder cuando las mujeres u organizaciones de mujeres incurran con faltas en el cumplimiento del Contrato. Este protocolo será aprobado por la Junta Directiva del INAMU.

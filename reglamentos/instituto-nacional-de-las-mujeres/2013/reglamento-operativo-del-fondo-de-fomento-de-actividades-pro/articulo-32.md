@@ -1,1 +1,4 @@
-Artículo 32.—Facturas timbradas: Para que el INAMU pueda hacer efectiva la entrega de los recursos, de acuerdo a lo establecido en el convenio, será necesaria la entrega de facturas timbradas por parte de la persona u organización, según el monto correspondiente, excepto los casos en que se cuente con exención de timbraje.
+CAPÍTULO 5
+DE LOS ÓRGANOS SELECCIONADORES Y SELECCIÓN DE
+PROYECTOS
+Artículo 32.- Órganos Seleccionadores: La Presidencia Ejecutiva del INAMU designará los Órganos Seleccionadores de proyectos, de acuerdo a cada categoría del concurso, de acuerdo con el número de expedientes a analizar por categoría.

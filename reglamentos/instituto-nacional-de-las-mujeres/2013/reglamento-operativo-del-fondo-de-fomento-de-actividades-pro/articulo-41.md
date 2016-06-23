@@ -1,0 +1,1 @@
+Artículo 41.- Garantías para la Administración: El Contrato será el instrumento que garantizará al INAMU que las mujeres y organizaciones de mujeres seleccionadas, se comprometen a cumplir con los deberes y obligaciones, establecidos en este documento legal.
