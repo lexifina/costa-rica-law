@@ -30,3 +30,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 15 | 2016-05-31 | Decreto Ejecutivo 39750 (2016-05-31) |
 | 16 | 2016-05-31 | Decreto Ejecutivo 39761 (2016-05-31) |
 | 17 | 2016-06-07 | Decreto Ejecutivo 39775 (2016-06-07) |
+| 18 | 2016-06-23 | Decreto Ejecutivo 39791 (2016-06-23) |
