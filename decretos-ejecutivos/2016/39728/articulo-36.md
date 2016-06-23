@@ -1,0 +1,3 @@
+Artículo 36.- Del programa de salud ocupacional: Los servicios de salud y afines que se ubiquen en establecimientos y que tengan 50 funcionarios o más deberán contar con un Programa de Salud Ocupacional.
+No obstante, con base en criterio técnico, los funcionarios del Ministerio de Salud encargados de tramitar la solicitud, podrán solicitar este programa independientemente del número de trabajadores, cuando determinen que se requiere para mejorar las condiciones de trabajo que puedan afectar la salud. Asimismo, en los casos en que la norma específica así lo requiera.
+El Programa de Salud Ocupacional debe ajustarse al Decreto Ejecutivo N° 39408-MTSS del 23 de noviembre del 2015 "Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional".

@@ -1,0 +1,1 @@
+Artículo 15.- Normativa específica: Los servicios de salud y afines que cuenten con normativa específica, adicionalmente a las condiciones y requisitos generales establecidos en el presente reglamento, deberán cumplir con las condiciones específicas allí señaladas, los cuales serán verificados por el Ministerio de Salud durante una inspección al servicio.

@@ -1,0 +1,1 @@
+Artículo 23.- Ubicación del certificado de habilitación: El certificado de habilitación deberá colocarse en un lugar visible en el establecimiento, unidad móvil o lugar en el cual se preste el servicio de salud.

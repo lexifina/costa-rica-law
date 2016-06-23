@@ -1,0 +1,1 @@
+Transitorio II- El interesado que haya iniciado el trámite de solicitud de permiso sanitario de funcionamiento con anterioridad a la entrada en vigencia del presente reglamento, se regirá al tenor de lo dispuesto en el Decreto Ejecutivo No. 34728-S del 28 de mayo del 2008 "Reglamento General para el otorgamiento de Permisos de Funcionamiento por parte del Ministerio de Salud".

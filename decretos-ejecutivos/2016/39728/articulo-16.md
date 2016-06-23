@@ -1,0 +1,4 @@
+Artículo 16- Presentación y trámite de la solicitud. La solicitud de habilitación junto con sus requisitos, deberán ser presentados ante la instancia del Ministerio de Salud encargada de su resolución, según los siguientes criterios:
+a. Las solicitudes de todos los servicios de salud con clasificación tipo A, deberán presentarse y ser resueltas en la Dirección de Garantía de Acceso a Servicios de Salud del Nivel Central del Ministerio de Salud.
+b. Las solicitudes de todos los servicios de salud con clasificación tipo B y C deberán presentarse y ser resueltas en la Dirección de Área Rectora de Salud del Ministerio de Salud correspondiente.
+Lo anterior sin perjuicio de los sistemas informáticos en línea, que el Ministerio de Salud pueda implementar eventualmente, para la presentación de estos trámites.
