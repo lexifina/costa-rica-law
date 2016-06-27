@@ -1,0 +1,17 @@
+N° 39742-S
+El PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 50, 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1 ), 27 inciso 1) y 28 párrafo segundo inciso b ), de la Ley N º 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; 1,2,4, 7 y 263 dela Ley N ° 5395 del 30 de octubre de 1973 "Ley General de Salud"; 1, 2 y 6 de la Ley Nº 5412 del 8 de noviembre de 1973 "Ley Orgánica del Ministerio de Salud"; 69 de la Ley Nº . 7554 del 04 de octubre de 1995 "Ley Orgánica del Ambiente"; 2, 3, 7, 8 y siguientes de la Ley No. 8839 del 24 de junio de 201 O "Ley para la Gestión Integral de Residuos"; 1 del Decreto Ejecutivo Nº 33477-S-MP del 23 de noviembre del 2006 "Declara de Interés Público y Nacional las Iniciativas Tendientes a Brindar una Solución Integral al Problema de los Desechos en nuestro País"; 1 del Decreto Ejecutivo Decreto Ejecutivo No. 37567-S-MINAET-H del 2 de noviembre del 2012 "Reglamento General a la Ley para la Gestión Integral de Residuos"; y el artículo 18 del Decreto Ejecutivo Nº 36093-S del 15 de julio del 2010 "Reglamento sobre el Manejo de Residuos Sólidos Ordinarios".
+CONSIDERANDO:
+1°-Que todas las personas tienen derecho a un ambiente sano y ecológicamente equilibrado y es deber del Estado garantizar este derecho.
+2°-Que la salud de la población es un bien de interés público tutelado por el Estado.
+3°-Que la gestión no integral de los residuos sólidos representa uno de los principales problemas que se enfrenta como Nación, lo cual ocasiona importantes impactos en la salud y el ambiente.
+4°-Que el Ministerio de Salud, dentro de sus competencias como rector en la materia, debe desarrollar el Plan Nacional para la Gestión Integral de Residuos, así como su adaptación y evaluación periódica.
+5°-Que uno de los principios generales que fundamentan la gestión integral de residuos es la corresponsabilidad social y requiere la participación conjunta, coordinada y diferenciada de todos los productores, importadores, distribuidores, consumidores, gestores de residuos, tanto públicos como privados.
+6°- Que el Decreto Ejecutivo No. 37567-S-MINAET-H del 2 de noviembre del 2012 "Reglamento a la Ley General para la Gestión Integral de Residuos", en el artículo 18 declara el Plan Nacional para la Gestión Integral de Residuos de interés público y nacional, 2 a saber: Se declara de interés público y nacional el Plan Nacional para la Gestión Integral de Residuos, así como las acciones estratégicas necesarias para su adecuada ejecución. Las acciones estratégicas del Plan Nacional para la Gestión Integral de Residuos, son de acatamiento obligatorio para los diferentes actores que las mismas establecen como responsables, según lo indicado en dicho Plan.
+7°-Que por lo anterior, se hace necesario y oportuno oficializar el Plan Nacional para la Gestión Integral de Residuos.
+POR TANTO,
+DECRETAN:
+"OFICIALIZACIÓN DEL PLAN NACIONAL
+PARA LA GESTIÓN INTEGRAL DE RESIDUOS"
+Artículo 1°-Oficialícese para efectos de su implementación obligatoria el "Plan Nacional para la Gestión Integral de Residuos", el cual se establece como el marco de acción que orientará las gestiones de la Administración Pública, del Sector Municipal, del Sector Educativo y del Sector Privado, en el corto, mediano y largo plazo, mediante un plan de acción construido acorde con las condiciones del país, para garantizar una gestión integral de los residuos sólidos en el país. el cual está contenido en el anexo al presente decreto.
