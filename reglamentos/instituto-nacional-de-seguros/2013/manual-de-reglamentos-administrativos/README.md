@@ -18,3 +18,4 @@ Manual de Reglamentos Administrativos
 | 3 | 2014-12-02 | Reglamento 0 (2014-12-02) |
 | 4 | 2015-06-16 | Reglamento 0 (2015-06-16) |
 | 5 | 2016-04-04 | Reglamento 0 (2016-04-04) |
+| 6 | 2016-06-27 | Reglamento 0 (2016-06-27) |
