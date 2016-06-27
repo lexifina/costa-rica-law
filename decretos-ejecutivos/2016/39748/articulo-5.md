@@ -1,0 +1,7 @@
+ARTÍCULO 5
+ARCHIVOS Y DOCUMENTOS
+1. Previa solicitud, las Administraciones Aduaneras proporcionarán información sobre el transporte y el envío de mercancías, en la que se indique el valor, el destino y la enajenación de las mismas.
+2. Una Administración requirente podrá solicitar los originales de archivos, documentos y otros materiales sólo cuando las copias fueran insuficientes. Previa solicitud, la Administración requerida deberá proporcionar copias debidamente certificadas de este tipo de archivos, documentos y otros materiales.
+3. A menos que la Administración requirente solicite específicamente originales o copias, la Administración requerida podrá transmitir información computarizada en cualquier forma. La Administración requerida deberá, al mismo tiempo, suministrar toda la información pertinente para interpretar o utilizar información computarizada.
+4. Cuando la Administración requerida convenga en ello, los funcionarios designados por la Administración requirente podrán examinar, en las oficinas de la Administración requerida, la información pertinente a una infracción aduanera y fotocopiar o hacer extractos de la misma.
+5. Los originales de los archivos, documentos y otros materiales que se hayan transmitido deberán ser devueltos a la mayor brevedad; no se verán afectados los derechos que la Administración requerida ni ninguna entidad ni persona particular de esta última Administración tengan sobre ellos.
