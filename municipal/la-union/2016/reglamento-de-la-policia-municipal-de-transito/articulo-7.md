@@ -1,0 +1,1 @@
+Artículo 7º—Los deberes y responsabilidades descritos en este Reglamento son representativos y no pretenden ser exhaustivos o cubrir la totalidad de tareas del personal de la Policía Municipal de Tránsito.
