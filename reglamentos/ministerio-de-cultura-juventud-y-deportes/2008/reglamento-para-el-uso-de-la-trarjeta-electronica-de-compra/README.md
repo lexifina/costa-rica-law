@@ -14,3 +14,4 @@ Reglamento para el Uso de la Trarjeta Electrónica de Compra de Combustible por 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-11-13 | la propia norma |
+| 2 | 2016-06-27 | Resolución 162 (2016-06-27) |

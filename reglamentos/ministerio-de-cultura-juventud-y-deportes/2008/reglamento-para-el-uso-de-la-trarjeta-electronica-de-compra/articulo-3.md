@@ -2,7 +2,8 @@ CAPÍTULO II
 De las responsabilidades de los tarjetahabientes
 Artículo 3º—Responsabilidades de los tarjetahabientes.
 - Al tarjetahabiente le corresponderá:
-a) Utilizar la tarjeta exclusivamente para proveer de combustible a los vehículos oficiales del Ministerio de Cultura y Juventud.
+a) Utilizar la tarjeta exclusivamente para proveer de combustible a los vehículos oficiales, los sistemas contra incendios del Ministerio de Cultura y Juventud y el pago de peajes automáticos mediante el sistema denominado “Quick Pass”.
+(Así reformado el inciso anterior por la resolución N° 162-2016 del 27 de junio del 2016)
 b) Utilizar la tarjeta de manera personal, sin transferirla a persona alguna para realizar cualquier transacción, incluso tratándose de funcionarios del Ministerio de Cultura y Juventud.
 c) No participar en forma personal ni en nombre de la Institución, en promociones, o concursos por el uso de la tarjeta.
 d) Entregar a la unidad responsable de cada programa, al día inmediato siguiente de finalizada la gira, la información correspondiente por cada transacción que se haga con cargo a la tarjeta.

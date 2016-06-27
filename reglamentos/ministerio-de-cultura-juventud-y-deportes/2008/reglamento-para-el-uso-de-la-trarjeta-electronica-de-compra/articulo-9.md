@@ -1,6 +1,7 @@
 CAPÍTULO IV
 Controles en la compra de combustible
-Artículo 9º—Comprobantes de la compra de combustible. Al adquirir combustible por la tarjeta, para los vehículos del Ministerio de Cultura y Juventud, el usuario deberá solicitar la siguiente documentación al dispensador de las estaciones de servicio autorizadas:
+Artículo 9º—Comprobantes de la compra de combustible. Al adquirir combustible por la tarjeta, para los vehículos o para los sistemas contra incendios del Ministerio de Cultura y Juventud, el usuario deberá solicitar la siguiente documentación al dispensador de las estaciones de servicio autorizadas:...
+(Así reformado el párrafo anterior por la resolución N° 162-2016 del 27 de junio del 2016)
 a) Copia del voucher en que conste el monto correspondiente a la compra de combustible.
 b) Las facturas que respaldan las compras de combustible, mismas que deben cumplir con los siguientes requisitos:
 • Cumplir con las disposiciones establecidas por la Dirección General de Tributación Directa.
