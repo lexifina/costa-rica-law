@@ -14,3 +14,4 @@ Reglamento para el Control de la Contaminación por Ruido
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-29 | la propia norma |
+| 2 | 2016-06-27 | Decreto Ejecutivo 39900 (2016-06-27) |
