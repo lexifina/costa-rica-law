@@ -1,0 +1,1 @@
+Artículo 73- La solicitud de reposición será suscrita por el funcionario responsable en donde se declare las razones que la motivan. Deberá adjuntarse, en caso de robo o hurto, denuncia ante la autoridad respectiva y publicar un edicto en el Diario La Gaceta.

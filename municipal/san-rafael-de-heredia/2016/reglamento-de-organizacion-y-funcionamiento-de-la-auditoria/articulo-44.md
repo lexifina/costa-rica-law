@@ -1,0 +1,1 @@
+Artículo 44—Ámbito de Competencia: la Auditoría Interna dará trámite únicamente a aquellas denuncias que versen sobre posibles hechos irregulares o ilegales cometidos por los funcionarios municipales o personas u organizaciones privadas en relación con fondos públicos transferidos por la Municipalidad. Toda denuncia recibida será numerada consecutivamente.
