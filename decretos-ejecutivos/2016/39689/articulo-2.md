@@ -1,0 +1,4 @@
+Artículo 2.- Modifíquese y el inciso a) del artículo 80 del Reglamento de la Carrera Docente para que, en lo sucesivo, se lea:
+"Artículo 80.- (. . .)
+a) Por una semana, con motivo de matrimonio de la persona servidora o por fallecimiento del padre, la madre, un hijo, una hija, el cónyuge, la cónyuge, el compañero o la compañera. Para efectos de este Reglamento, se considera compañero o compañera a aquella persona que conviva bajo un mismo techo por un año o más, de forma pública, notoria, única y estable con una persona funcionaria de la Institución, sin diferenciación del sexo. Tanto la persona funcionaria como el compañero (a) deben ostentar la libertad de estado. Para ser beneficiarios de los derechos que les otorga este Reglamento se deberá entregar una Declaración Jurada, por parte de ambas personas, donde constaten la relación según lo establecido anteriormente;
+(. .. )"
