@@ -1,1 +1,2 @@
-Transitorio I.—Las entidades de custodia cuentan con un plazo de 9 meses a partir de la entrada en vigencia de este Acuerdo para actualizar los contratos con sus clientes, si esto se requiere para que ostenten las facultades necesarias para la prestación de los servicios.
+Transitorio I.—Las entidades de custodia cuentan con un plazo de 8 meses contados a partir del 30 de junio de 2016 para actualizar los contratos con sus clientes, si esto se requiere para que ostenten las facultades necesarias para la prestación de los servicios, en consideración de las disposiciones aprobadas en el Reglamento de Intermediación de Valores y Actividades Complementarias.
+(Así reformado mediante acuerdo SGV-A-217 del 28 de junio del 2016)
