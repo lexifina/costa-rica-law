@@ -14,3 +14,4 @@ Reglamento para el otorgamiento de ayudas temporales a los y las habitantes del 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-05-21 | la propia norma |
+| 2 | 2016-06-28 | Reglamento municipal 9 (2016-06-28) |

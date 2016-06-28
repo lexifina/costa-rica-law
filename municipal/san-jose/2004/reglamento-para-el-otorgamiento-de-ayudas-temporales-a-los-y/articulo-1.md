@@ -1,4 +1,5 @@
 MUNICIPALIDAD DE SAN JOSÉ
+(Nota de Sinalevi: De conformidad con el artículo 11 Reglamento para el otorgamiento de ayudas temporales en el Cantón San José para situaciones de desgracia o infortunio transitorias que afectan la situación socioeconómica de la familia solicitante, aprobado en la sesión N° 009 del 28 de junio del 2016, se estableció lo siguiente: “Este reglamento reforma el “Reglamento para el Otorgamiento de Ayudas Temporales a los y las Habitantes del Cantón Central de San José, Contemplados en el Párrafo Tercero del Numeral 62, del Código Municipal”, en materia de desgracia e infortunio con vigencia anterior a éste.)
 REGLAMENTO PARA EL OTORGAMIENTO DE AYUDAS TEMPORALES A LOS Y LAS HABITANTES DEL CANTÓN CENTRAL DE SAN JOSÉ, CONTEMPLADOS EN EL PÁRRAFO TERCERO DEL NUMERAL 62, DEL CÓDIGO MUNICIPAL
 El cual se regirá por las siguientes disposiciones:
 Artículo 1º—De las definiciones: Para efectos de lo dispuesto en este reglamento se entiende por:
