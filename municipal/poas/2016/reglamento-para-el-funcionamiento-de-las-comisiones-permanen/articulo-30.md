@@ -1,0 +1,1 @@
+Artículo 30.—La presidencia del Concejo Municipal definirá el plazo para que cada Comisión rinda sus dictámenes, lo anterior, tomando como referencia la Ley General de Administración Pública indica, que el plazo máximo será de 10 días naturales después de solicitado.

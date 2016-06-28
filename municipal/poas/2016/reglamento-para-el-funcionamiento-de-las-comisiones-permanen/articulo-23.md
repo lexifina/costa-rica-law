@@ -1,0 +1,1 @@
+Artículo 23.—Los acuerdos y dictámenes de las comisiones se tomarán con el carácter de firmes en cada reunión y se decidirán por simple mayoría, exceptuando los casos en que éste reglamento así lo indique.

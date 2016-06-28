@@ -1,0 +1,1 @@
+Artículo 28.—Cada año en la primera semana del mes de abril, cada comisión deberá levantar un listado de los temas aún no vistos, ni dictaminados y deberá dejar una lista de los temas pendientes de ejecución y análisis para el Concejo. Para esto coordinara de manera anticipada la ayuda de la Secretaría del Concejo.

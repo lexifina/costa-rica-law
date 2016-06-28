@@ -1,0 +1,3 @@
+Artículo 2º—Podrán existir las Comisiones Especiales que decida crear el Concejo; el Presidente del Concejo Municipal se encargará de integrarlas. Cada Comisión Especial estará integrada al menos por tres miembros: dos deberán ser escogidos entre los regidores propietarios y suplentes. Podrán integrarlas los síndicos propietarios y suplentes; estos últimos tendrán voz y voto.
+Existirán dos tipos de Comisiones de Trabajo: las Permanentes y las Especiales.
+Las Comisiones de Trabajo tienen su fundamento en el artículo 49 del Código Municipal, creándose como instrumentos auxiliares del Concejo para el estudio de casos, asuntos y hechos que le son remitidos por el Concejo por requerirse de estudios especiales, antes de tomar acuerdos respecto a ellos.

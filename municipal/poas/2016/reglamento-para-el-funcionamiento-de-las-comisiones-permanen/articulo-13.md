@@ -1,0 +1,1 @@
+Artículo 13.—Las Comisiones tomarán sus acuerdos por simple mayoría de los presentes, consignándose dicha votación en los dictámenes enviados al Concejo Municipal. El o los miembros que estén en contra de algún asunto específico aprobado por la comisión podrán, remitir un dictamen de minoría ante el Concejo Municipal junto con el de mayoría.

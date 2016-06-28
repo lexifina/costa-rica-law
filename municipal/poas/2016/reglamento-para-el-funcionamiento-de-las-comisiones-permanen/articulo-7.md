@@ -1,0 +1,4 @@
+CAPÍTULO II
+Comisiones de trabajo
+Artículo 7º—Las comisiones sesionarán en el edificio municipal al menos una vez al mes de forma ordinaria, sin embargo, quedaran facultadas a extender el plazo según la cantidad de trabajo, y de forma extraordinaria en casos calificados y especiales por convocatoria de su presidencia. La fecha y hora de las sesiones deben establecerse con carácter permanente mediante acuerdo de los integrantes de la comisión.
+La fecha y hora de las sesiones ordinarias podría cambiarse si resultara en un problema para el trabajo de la comisión. Asimismo, podría variarse el lugar de la sesión de la comisión siempre y cuando sea de manera excepcional. Los cambios de fecha y hora deben comunicarse a la Secretaria del Concejo y a su Presidencia con un mínimo de ocho días de antelación.

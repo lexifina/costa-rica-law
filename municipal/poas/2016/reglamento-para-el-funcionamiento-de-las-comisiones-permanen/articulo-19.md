@@ -1,0 +1,4 @@
+Artículo 19.—Atribuciones de los asesores de Comisión. Existen tres tipos de asesores de las Comisiones:
+a) La comisión también podrá por mayoría simple solicitar asesores externos para que le ayuden en al análisis de temas específicos, previa muestra de estar debidamente calificados para ello, para lo cual comunicará el acuerdo a la Presidencia Municipal para su nombramiento. Tendrán voz durante el período de nombramiento. Se deberá de coordinar con la administración su contratación.
+b) Los asesores permanentes nombrados por la Presidencia Municipal, tienen derecho a voz en todas las sesiones de Comisión. Dentro de estos se encuentran los profesionales de la administración municipal.
+c) Los munícipes voluntarios quienes tengan interés en aportar a la institución y estén debidamente nombrados por la Presidencia Municipal.
