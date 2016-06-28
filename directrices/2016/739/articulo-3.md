@@ -1,0 +1,1 @@
+Artículo 3.- Los proyectos deberán ser remitidos a la Dirección de Planificación y Desarrollo Institucional del Ministerio de Salud, para mayor información el medio oficial de comunicación es el correo electrónico: proyectosley9028ms@misalud.go.cr.

@@ -1,0 +1,6 @@
+Artículo 2.- Los proyectos propuestos se someterán a un proceso de clasificación para su ordenamiento lógico y sistemático, según los siguientes criterios:
+1. Solo se financiarán aquellos que estén alineados con el Plan Nacional de Desarrollo, el Plan Sectorial Salud Nutrición y Deportes, planes incorporados en otras instituciones públicas, privadas, organizaciones no gubernamentales, otros actores sociales que revistan de importancia al proyecto.
+2. Los proyectos que se desarrollen con alianzas estratégicas entre instituciones (Ministerio de Salud-Caja Costarricense de Seguro Social; Ministerio de Salud Patronato Nacional de la Infancia; Ministerio de Salud-Ministerio de Educación Pública; o con organismos internacionales que respalden con su experiencia la buena ejecución del proyecto).
+3. Proyectos que contemplen un impacto significativo, tanto cualitativo (calidad de vida) como cuantitativo (número de personas beneficiadas).
+4. Proyectos que comprendan un nivel alto de probabilidad de ejecución y simplificación en los procesos, considerando la viabilidad técnica, legal, financiera y de contratación administrativa.
+5. Todos los proyectos que se realicen deberán ser documentados y publicados en revistas indexadas, congresos, seminarios o actividades científicas acreditadas.
