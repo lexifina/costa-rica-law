@@ -1,5 +1,3 @@
-Artículo 37.- El Gobierno no obtendrá ningún porcentaje de las
-utilidades del Instituto, el que tampoco deberá ser considerado una
-fuente productora de ingresos para el fisco. Las utilidades se emplearán
-en el mantenimiento y mejoramiento del servicio, así como en su
-desarrollo futuro.
+Artículo 37.- El Gobierno no obtendrá ningún porcentaje de las utilidades del Instituto, el que tampoco deberá ser considerado una fuente productora de ingresos para el fisco. Las utilidades se emplearán en el mantenimiento y mejoramiento del servicio, así como en su desarrollo futuro.
+Se excluye de esta disposición la contribución hasta del quince por ciento (15%) de las utilidades que se deben destinar al fortalecimiento del Régimen de invalidez, vejez y muerte de la Caja Costarricense de Seguro Social (CCSS), de acuerdo con el artículo 78 de la Ley N.0 7983, Ley de Protección al Trabajador, de 16 de febrero de 2000.
+(Así reformado por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)
