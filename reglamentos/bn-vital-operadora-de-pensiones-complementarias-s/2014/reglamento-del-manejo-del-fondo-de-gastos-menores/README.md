@@ -14,3 +14,4 @@ Reglamento del manejo del fondo de gastos menores
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-15 | la propia norma |
+| 2 | 2016-06-28 | Reglamento 361 (2016-06-28) |

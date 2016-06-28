@@ -1,1 +1,2 @@
-Artículo 5.—Responsable del Fondo. El Custodio de caja chica es el responsable de velar que el fondo cuente siempre al menos con un 30% del total del fondo en efectivo; lo anterior, por medio de un eficiente sistema de reintegros.
+Artículo 5 º Responsable del Fondo
+El Custodio de caja chica es el responsable de velar que el fondo cuente siempre al menos con un 30% del total del fondo en efectivo; lo anterior, por medio de un eficiente sistema de reintegros.

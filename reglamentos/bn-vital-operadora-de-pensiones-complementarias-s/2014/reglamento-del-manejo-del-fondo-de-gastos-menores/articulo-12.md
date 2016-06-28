@@ -1,2 +1,3 @@
-Artículo 12.—Seguridad del fondo y comprobantes. El empleado responsable de los fondos de caja chica guardará el dinero, comprobantes y justificantes en una caja con llave. La llave debe guardarse en un lugar seguro.
+Artículo 12° Seguridad del fondo y comprobantes
+El empleado responsable de los fondos de caja chica guardará el dinero, comprobantes y justificantes en una caja con llave. La llave debe guardarse en un lugar seguro.
 Un duplicado de la llave, se guardará en una custodia en sobre cerrado en la Gerencia General, indicando el contenido. En caso de ser necesario utilizarla, debe hacerse en presencia de un Gerente de área.

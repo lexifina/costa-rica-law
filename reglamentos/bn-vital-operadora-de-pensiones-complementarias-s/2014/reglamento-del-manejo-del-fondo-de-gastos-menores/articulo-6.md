@@ -1,2 +1,3 @@
-Artículo 6.—Nombramiento del custodio. El Custodio de caja chica es nombrado por el Jefe de Contabilidad Presupuesto y Tesorería, el cual remite mediante nota los datos del custodio al Departamento de Contabilidad con copia a la Auditoría Interna y el área de Gestión de Riesgos y Calidad.
-En caso de vacaciones, permiso, enfermedad, traslado de puesto, renuncia, etc., el Jefe de Contabilidad Presupuesto y Tesorería debe comunicar por escrito al Gerente Financiero, con copia a la Auditoria, y al área de Control interno, el nombre del nuevo empleado designado.
+Artículo 6° Nombramiento del custodio
+El Custodio de caja chica es nombrado por el Jefe de Contabilidad, Presupuesto y Tesorería, el cual remite mediante nota los datos del custodio al Departamento de Contabilidad con copia a la Auditoría Interna y el área de Gestión de Riesgos y Calidad.
+En caso de vacaciones, permiso, enfermedad, por más de cinco días hábiles o traslado de puesto, renuncia, etc., el Jefe de Contabilidad, Presupuesto y Tesorería debe comunicar por escrito al Gerente Financiero, con copia a la Auditoria y al área de Control interno, el nombre del nuevo empleado designado.
