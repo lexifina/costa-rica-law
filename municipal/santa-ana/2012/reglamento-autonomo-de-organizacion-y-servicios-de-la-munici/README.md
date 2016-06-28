@@ -15,3 +15,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Santa A
 | --- | --- | --- |
 | 1 | 2012-03-19 | la propia norma |
 | 2 | 2013-07-09 | Reglamento municipal 166 (2013-07-09) |
+| 3 | 2016-06-28 | Reglamento municipal 9 (2016-06-28) |
