@@ -1,0 +1,1 @@
+Artículo 2°.- El Ministerio de Salud velará por la correcta aplicación de la presente norma. La Dirección de Regulación de Productos de Interés Sanitario será la encargada de corroborar el correcto uso del Sello de Garantía de Fortificación de Alimentos en Costa Rica.
