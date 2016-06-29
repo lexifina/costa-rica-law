@@ -1,0 +1,2 @@
+Artículo 19°-Suspensión de la tramitación de un caso. La Contraloría Institucional, suspenderá la instrucción de una investigación cuando el mismo hecho sea conocido por otra instancia administrativa o judicial competente para resolver.
+Cuando una gestión no se refiera a las competencias propias de la Contraloría de Servicios del MOPT o cuando se trate de asuntos propios de la Auditarla Interna de la Institución, se realizará un Traslado de Correspondencia a la unidad competente.
