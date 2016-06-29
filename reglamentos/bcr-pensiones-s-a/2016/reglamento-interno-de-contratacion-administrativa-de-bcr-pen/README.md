@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa de BCR Pensiones S.A
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-12 | la propia norma |
+| 2 | 2016-06-29 | Reglamento 6 (2016-06-29) |
