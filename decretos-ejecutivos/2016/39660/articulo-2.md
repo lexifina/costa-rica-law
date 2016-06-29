@@ -1,0 +1,1 @@
+Artículo 2 — El objetivo del Pago por Servicios Ambientales procura contribuir con la protección y mantenimiento de los servicios ambientales en fincas de propietarios o poseedores, que contempla bosque natural, plantaciones forestales, sistemas agroforestales, regeneración natural y manejo sostenible del bosque.

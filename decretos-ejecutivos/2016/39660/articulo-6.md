@@ -1,0 +1,1 @@
+Artículo 6. El Fondo Nacional de Financiamiento Forestal podrá establecer prioridades diferentes, de conformidad con acuerdos, convenios o contratos con entidades financiadoras que así lo dispongan, según los servicios ambientales brindados.
