@@ -1,3 +1,3 @@
 CAPÍTULO VI
 Normas de control para vehículos de uso discrecional
-Artículo 31.—Solamente podrá asignarse vehículos de uso discrecional a la Alcaldía Municipal, mediante Acuerdo del Concejo Municipal de Parrita, este vehículo únicamente podrá ser utilizado por el funcionario que tiene derecho a éste, en razón del cargo que ostenta, en estricto cumplimiento de las funciones propias del mismo y en ningún caso por otra persona. Por tanto, de acuerdo con las normas de sana administración, se exige que el funcionario aproveche tal recurso de la mejor forma posible en el cometido de sus labores. No podrán usarse para fines contrarios a la ley, a la moral y a las buenas costumbres o para usos en lugares que no contribuyen al objeto de la municipalidad al que pertenecen.
+Artículo 31.—(Derogado en sesión N° 039-2015 del 29 de junio de 2016)

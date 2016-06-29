@@ -14,3 +14,4 @@ Reglamento para el uso y administración de vehículos y máquinaria de la Munic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-17 | la propia norma |
+| 2 | 2016-06-29 | Reglamento municipal 39 (2016-06-29) |
