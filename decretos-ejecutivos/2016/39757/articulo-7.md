@@ -1,0 +1,1 @@
+Artículo 7.- La simplicidad y transparencia en la estructura y nivel tarifario, debe incorporarse en las fijaciones tarifarias, de manera que se establezcan tarifas que permitan enviar señales claras a los usuarios, sobre los costos de los servicios, fomentando la aceptación del sistema tarifario por la sociedad.

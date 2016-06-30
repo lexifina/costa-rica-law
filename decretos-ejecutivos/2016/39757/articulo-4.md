@@ -1,0 +1,1 @@
+Artículo 4.- Las metodologías tarifarias para fijar las tarifas de los operadores de sistemas de agua potable, y saneamiento, deben basarse en el costo medio de cada servicio prestado, estimado para un período no menor a 5 años, de manera que permita recuperar los costos fijos, variables y financieros, asegurando la suficiencia financiera en el corto, mediano y largo plazo.
