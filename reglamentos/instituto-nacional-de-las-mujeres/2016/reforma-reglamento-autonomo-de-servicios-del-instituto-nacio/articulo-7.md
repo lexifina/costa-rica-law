@@ -1,0 +1,4 @@
+Artículo 7º—Se modifica el artículo 87 para que se lea así: “Artículo 87.—Las personas funcionarias regulares e interinas del Instituto disfrutarán de licencia con goce de salario, en los siguientes casos:
+a) Cinco días hábiles por matrimonio o unión de hecho. Tanto la persona funcionaria como el compañero(a) deben ostentar y acreditar la libertad de estado. Para ser beneficiarios de los derechos que les otorga este Reglamento, se deberá entregar ante la Oficina Institucional de Recursos Humanos, una Declaración Jurada por parte de ambas personas, donde hagan constar la existencia de este vínculo, según lo establecido anteriormente.
+b) Cinco días hábiles por el fallecimiento del cónyuge o compañero(a), hijo(a), sus padres, madres y hermanos(as), lo cual debe ser debidamente acreditado.
+c) Cinco días hábiles a la persona funcionaria, con motivo del nacimiento o adopción de hijo/a; nacimiento o adopción de hijo/a del compañero(a).”
