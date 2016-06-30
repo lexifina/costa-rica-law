@@ -1,0 +1,1 @@
+Artículo 10.—Almacenamiento del documento adjunto. El documento adjunto se almacenará mediante un proceso automático en el Sistema de Imágenes Unificadas del Registro Nacional y constituye un medio auxiliar de la publicidad registral, que garantizará el principio de literalidad.

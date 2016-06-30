@@ -1,0 +1,1 @@
+Artículo 7º—Documento adjunto. El documento adjunto deberá incluirse cada vez que se envíe el formulario electrónico al Registro Nacional para su calificación. En caso que el formulario electrónico sea calificado como defectuoso, independientemente del defecto consignado en la calificación, al reenviar el formulario deberá adjuntarse nuevamente el documento.
