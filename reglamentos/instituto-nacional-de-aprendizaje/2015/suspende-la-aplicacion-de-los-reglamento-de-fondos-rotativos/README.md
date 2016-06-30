@@ -14,3 +14,4 @@ Suspende la aplicación de los Reglamento de Fondos Rotativos de Trabajo del INA
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-30 | la propia norma |
+| 2 | 2016-06-30 | Reglamento 4719 (2015-11-30) |
