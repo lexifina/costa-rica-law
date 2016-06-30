@@ -15,3 +15,4 @@ Reglamento de Financiamiento de Becas
 | --- | --- | --- |
 | 1 | 2007-03-28 | la propia norma |
 | 2 | 2014-07-15 | Reglamento 7 (2014-07-15) |
+| 3 | 2016-06-30 | Reglamento 0 (2016-06-30) |
