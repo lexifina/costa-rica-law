@@ -1,0 +1,1 @@
+Artículo 62-. Registro del Fondo: El registro del Fondo se llevara mediante una cuenta contable especial destinada para tal efecto de tal forma que se registren las entradas y salidas del fondo para su adecuado control.

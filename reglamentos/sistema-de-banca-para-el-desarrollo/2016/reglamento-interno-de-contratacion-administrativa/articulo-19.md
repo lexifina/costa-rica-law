@@ -1,0 +1,2 @@
+Artículo 19-. Garantías. En los casos que así lo disponga la ley se incluirá en los carteles la obligación de los participantes de rendir las garantías de participación, de cumplimiento y de funcionamiento u operación por los montos y plazos que aquellas señalen, guardando una adecuada proporcionalidad con la magnitud y trascendencia de la contratación respectiva.
+La Unidad de Servicios Generales y Contratación Administrativa será la competente para liberar y ejecutar cuando corresponda las garantías de participación y cumplimiento rendidas a favor del SBD.

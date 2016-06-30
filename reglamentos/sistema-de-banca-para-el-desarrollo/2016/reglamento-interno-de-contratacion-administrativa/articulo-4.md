@@ -1,0 +1,3 @@
+Capítulo II
+Órganos competentes, principios y funciones
+Artículo 4-. La Unidad de Servicios Generales y Contratación Administrativa: Será el órgano competente y responsable para conducir los trámites de las contrataciones de obras, bienes y servicios, acorde con lo establecido en la Ley de Contratación Administrativa, el Reglamento a la Ley y el presente Reglamento, incluyendo el control sobre las garantías de participación rendidas y su eventual ejecución. En jefe o encargado de la Unidad de Servicios Generales y Contratación Administrativa para todos los efectos cumple el rol de Proveedor Institucional.

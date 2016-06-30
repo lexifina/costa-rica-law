@@ -1,0 +1,2 @@
+Artículo 5-. Obligada Colaboración: Para el eficiente y eficaz cumplimiento de las funciones de la Unidad de Servicios Generales y Contratación Administrativa, todas las demás dependencias administrativas de la Institución de tipo técnico, jurídico, contable, financiero, presupuestario, informático y de cualquier otro orden, están obligadas a brindar colaboración y asesoría.
+Será responsabilidad de las dependencias involucradas en el proceso de contratación, la aplicación de este Reglamento.

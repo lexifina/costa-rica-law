@@ -1,0 +1,1 @@
+Artículo 7-. De la invitación a los interesados: El SBD invitará a los interesados a formar parte del PEC utilizado por la Institución, como mínimo una vez al año, mediante publicación en cualquier medio de acceso público que considere conveniente medio que se considere conveniente.

@@ -1,0 +1,5 @@
+Artículo 6-. Principios generales Todo procedimiento de contratación administrativa del SBD deberá respetar los principios constitucionales y legales dispuestos en la Ley de contratación administrativa y su Reglamento, así como los siguientes principios:
+6.1 Los requisitos formales de identificación de las personas físicas o jurídicas y en general sus atestados, serán analizados e interpretados de manera que se permita la más amplia participación de potenciales oferentes.
+6.2 Todo proceso de contratación tendrá una etapa de saneamiento de requisitos formales, cumplida la cual se procederá al análisis de las ofertas en su contenido técnico y económico.
+6.3 Los requisitos técnicos y económicos que sean exigidos en los procesos de contratación de la SBD serán siempre lo más general y neutral posible, con el propósito de permitir la más amplia participación de potenciales oferentes.
+6.4 Los requisitos legales, técnicos y económicos deberán ser analizados e interpretados de manera que permitan cumplir los fines públicos encomendados al SBD; así como la selección del mejor bien o servicio en las condiciones que se mejor se ajusten a las necesidades institucionales.

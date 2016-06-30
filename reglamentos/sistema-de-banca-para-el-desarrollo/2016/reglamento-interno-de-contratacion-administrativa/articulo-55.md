@@ -1,0 +1,1 @@
+Artículo 55-. Monto del Fondo: El fondo estará conformado por la suma que corresponde hasta el 10% del límite aprobado a la Institución para efectuar Contrataciones Directas. Se podrá mantener un monto en efectivo.

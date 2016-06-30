@@ -1,0 +1,1 @@
+Artículo 30-. Suspensión del contrato: El Director Ejecutivo, en el caso que sea necesario podrá suspender el contrato o su plazo de ejecución, se debe acreditar en el expediente las razones debidamente fundamentadas. La suspensión del contrato será hasta por un plazo máximo de seis meses, prorrogable una única vez por otro plazo igual.

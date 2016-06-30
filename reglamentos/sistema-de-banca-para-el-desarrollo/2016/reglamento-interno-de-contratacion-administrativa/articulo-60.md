@@ -1,0 +1,1 @@
+Artículo 60-. Tarjetas de Débito Institucionales: Se autoriza la emisión de tarjetas de débito para realizar compras y pago de gastos autorizados a nivel nacional, internacional y realizar transacciones electrónicas como por ejemplo compras por internet, pago de servicios, pago de tasas, etc.

@@ -1,0 +1,3 @@
+Artículo 10–. Comisión de Contratación Administrativa: Será el órgano encargado de emitir criterio de recomendación sobre aquellos procedimientos que sean de su competencia. Esta Comisión actuará conforme a las disposiciones del presente Reglamento, así como de ejercer las siguientes funciones:
+10.1 Conocer el expediente del procedimiento y emitir criterio técnico de recomendación sobre el acto de adjudicación.
+10.2 Realizar la evaluación de las ofertas para lo cual se podrán apoyar en funcionarios internos o expertos externos. Excepto los de la Auditoría Interna, a quien le corresponderá la evaluación de sus respectivas ofertas, lo anterior por la especialización de la materia.

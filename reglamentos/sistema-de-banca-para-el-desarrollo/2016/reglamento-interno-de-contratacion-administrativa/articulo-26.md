@@ -1,0 +1,2 @@
+Artículo 26-. Formalización de las contrataciones. Las contrataciones se formalizarán por medio de contratos electrónico u orden de compra.
+Los alcances de los derechos y las obligaciones contraídas por las partes deben estar claramente establecidas en el procedimiento realizado a través del PEC, en caso de considerarse necesario se podrá formalizar un contrato que deberá ser firmado digitalmente.

@@ -1,0 +1,1 @@
+Artículo 18-. Aptitud para Contratar. Solo podrán contratar con el SBD las personas físicas o jurídicas con plena capacidad de actuar, que no tengan impedimento por alguna de las causales establecidas en la Ley de Contratación Administrativa y su Reglamento y que demuestren su idoneidad según el objeto a contratar.

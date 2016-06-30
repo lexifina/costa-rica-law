@@ -1,0 +1,1 @@
+Artículo 28-. Refrendo Interno y Refrendo Contralor. Para para estos efectos aplica lo establecido en el artículo 190 del Reglamento a la Ley de Contratación Administrativa. La Asesoría Jurídica del SBD es la encargada del refrendo interno el cual se realizará digitalmente a través del PEC.

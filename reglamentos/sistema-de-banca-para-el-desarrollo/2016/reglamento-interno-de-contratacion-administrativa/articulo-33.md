@@ -1,0 +1,2 @@
+Artículo 33-. Recursos. Los procedimientos de contratación administrativa, tendrán los recursos de objeción, revocatoria y apelación que establece la ley y serán resueltos por el Jefe de Servicios Generales y Contratación Administrativa, Director Ejecutivo, Consejo Rector, la Contraloría General de la República, quienes darán por agotada la vía administrativa.
+En contrataciones directas de hasta un 50% del monto máximo autorizado para este tipo de procedimientos no aplican la presentación de los recursos de objeción, revocatoria y apelación.

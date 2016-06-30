@@ -1,0 +1,1 @@
+Artículo 53-. Tramitación de Procedimientos Administrativos. Los procedimientos administrativos producto de los procesos ordinarios de contratación se tramitarán en el PEC. En los casos de excepción se tramitarán vía física o por otro medio electrónico.

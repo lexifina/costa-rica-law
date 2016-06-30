@@ -1,0 +1,1 @@
+Artículo 27-. Requisitos Previos para Formalizar de las contrataciones. Para formalizar la contratación el adjudicatario deberá encontrarse al día con sus obligaciones con la Caja Costarricense del Seguro Social y el pago de los impuestos nacionales. En el caso de servicios profesionales cuando se requiera se debe contar con la incorporación al colegio profesional pertinente.

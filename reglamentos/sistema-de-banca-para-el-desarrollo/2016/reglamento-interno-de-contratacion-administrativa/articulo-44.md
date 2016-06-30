@@ -1,0 +1,1 @@
+Artículo 44-. Del no trámite de requerimientos. Cuando el Jefe de Servicios Generales y Contratación Administrativa estime conveniente no tramitar un determinado procedimiento, expondrá sus objeciones ante su superior jerárquico, quien resolverá lo que corresponda, en coordinación con el encargado de la oficina solicitante.

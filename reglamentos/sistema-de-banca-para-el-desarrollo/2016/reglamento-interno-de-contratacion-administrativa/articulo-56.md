@@ -1,0 +1,1 @@
+Artículo 56-. Monto en Efectivo: El monto en efectivo de operación mínimo que tendrá el Fondo será de 200.000 colones exactos y podrá ser incrementado por la Dirección Ejecutiva hasta un máximo equivalente al 5% del monto aprobado a la Institución para Contratación Directa, el ajuste se podrá realizar de manera anual.
