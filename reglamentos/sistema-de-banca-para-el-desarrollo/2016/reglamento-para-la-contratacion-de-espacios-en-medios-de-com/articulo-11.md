@@ -1,0 +1,1 @@
+Artículo 11.—Una vez realizada la negociación y que se haya llegado a un acuerdo satisfactorio con el proveedor, éste deberá presentar su propuesta formal a la Dirección Ejecutiva, para que se proceda a su contratación. Dicha oferta podrá realizarse utilizando medios físicos o digitales.

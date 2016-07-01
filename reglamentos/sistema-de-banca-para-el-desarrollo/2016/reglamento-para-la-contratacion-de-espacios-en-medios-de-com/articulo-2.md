@@ -1,0 +1,4 @@
+Artículo 2º—Para efectos del presente reglamento se entenderá por:
+SBD: Sistema de Banca para el Desarrollo.
+Expediente: Legajo al que se incorporan todas las incidencias que ocurran en el desarrollo de una campaña, desde que se determina la necesidad de realizarla, pasando por la estrategia creativa y de comunicación, la contratación de los medios de comunicación, el monitoreo, la evaluación y la revisión. Este podrá ser físico o digital.
+Medio de comunicación: Persona física o jurídica que dispone de un medio escrito, radial, televisivo, o de otro tipo, o un espacio en alguno de ellos, a través del cual se puede transmitir a la población en general o a un sector de ella, una campaña de información, promoción, sensibilización, educación o cualquier otra, que sea del interés de la Institución.

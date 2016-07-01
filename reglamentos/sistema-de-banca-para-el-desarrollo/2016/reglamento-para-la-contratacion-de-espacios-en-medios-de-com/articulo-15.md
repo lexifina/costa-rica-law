@@ -1,0 +1,1 @@
+Artículo 15.—Si durante la ejecución del contrato se llegara a comprobar por cualquier medio probatorio, que no se cumplió con la obligación establecida, se procederá a la resolución del contrato y el apercibimiento respectivo (si corresponde) como lo establece la Ley.

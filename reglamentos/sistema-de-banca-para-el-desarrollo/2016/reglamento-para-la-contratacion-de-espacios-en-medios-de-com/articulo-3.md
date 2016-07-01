@@ -1,0 +1,1 @@
+Artículo 3º—La Dirección Ejecutiva o quien esta designe será la encargada de coordinar con los oferentes interesados en prestar al SBD los servicios indicados en el artículo uno del presente reglamento.

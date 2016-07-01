@@ -1,0 +1,1 @@
+Artículo 4º—Las personas físicas o jurídicas interesadas en brindar los servicios al SBD deberán encontrarse al día con el pago de impuestos nacionales, no estar afectados por ninguna causal de prohibición prevista en los artículos 22 y 22 bis de la Ley de Contratación Administrativa y encontrarse al día con las obligaciones ante la Caja Costarricense del Seguro Social.

@@ -1,0 +1,1 @@
+Artículo 5º—No existe restricción en cuanto al tipo de medio de comunicación a contratar pudiendo ser este impreso, televisivo, radial, digital u otro que cumpla la función determinada en el Artículo N°2 del presente Reglamento.
