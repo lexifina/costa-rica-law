@@ -1,0 +1,12 @@
+CONTRALORÍA GENERAL DE LA REPÚBLICA
+R-DC-46-2016.—Contraloría General de la República.— Despacho Contralor.—San José, a las once horas del dos de junio del dos mil dieciséis.
+Considerando:
+1º—Que la Contraloría General goza de autonomía para el establecimiento y emisión de la normativa interna que venga a regular la relación de servicio con el personal a su cargo.
+2º—Que mediante resolución Nº 4-DRH-96 de las quince horas del tres de mayo de mil novecientos noventa y seis, se promulgó el Estatuto Autónomo de Servicios vigente, el cual en el artículo 44 establece el horario de trabajo para el personal institucional.
+3º—Que la situación de embotellamientos diarios que se viven en las carreteras que conducen hacia San José, producto del incremento en el parque vehicular nacional, las limitaciones presentes en la infraestructura vial y la realización de obras específicas, conlleva a que la Contraloría General adopte medidas extraordinarias que le faciliten a su personal desplazarse a su centro de trabajo tanto al inicio de la jornada, como al fin de ésta, medida que también se espera beneficie a los administrados que diariamente acuden a su sede.
+4º—Que al amparo de lo dispuesto por la Sala Primera de la Corte Suprema de Justicia, en su resolución Nº 798-F-2005 de las ocho horas y diez minutos del tres de noviembre del dos mil cinco, no se estima necesario someter la presente modificación a consulta interna, según lo dispuesto en el artículo 361.2 de la Ley General de la Administración Pública.
+RESUELVE:
+Modificar el artículo 44 del Estatuto Autónomo de Servicios de la Contraloría de la República, para que en lo sucesivo se lea de la siguiente manera:
+Artículo 44.—Salvedad hecha de las actividades donde la prestación del servicio debe comprender las veinticuatro horas del día, el horario de trabajo para el personal será de lunes a viernes de las siete horas y treinta minutos a las quince horas y treinta minutos. Todo el tiempo comprendido entre esa franja horaria se considera hábil.
+Sin embargo, dentro de la jornada, los servidores y servidoras tendrán derecho a quince minutos de descanso en la mañana, a disfrutar entre las ocho horas y treinta minutos y las diez horas; así como cuarenta y cinco minutos de almuerzo que deberán tomarse antes de las catorce horas. Es obligación del superior inmediato distribuir al personal a su cargo, con el fin de garantizar la prestación continua del servicio.
+Rige a partir del primero de julio del dos mil dieciséis.
