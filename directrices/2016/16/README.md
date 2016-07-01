@@ -14,3 +14,4 @@ Instruye Dirección de Medicamentos Veterinarios que clasifique los medicamentos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-25 | la propia norma |
+| 2 | 2016-07-01 | Resolución 41 (2016-07-01) |
