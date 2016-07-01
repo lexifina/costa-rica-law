@@ -1,0 +1,2 @@
+Artículo 12.—Premiación. En los certámenes se darán premios en dinero en efectivo. Las sumas de dinero establecidas para las premiaciones en los distintos certámenes, serán definidas anualmente por la Dirección General del Centro y aprobadas por el Consejo Directivo, según las previsiones realizadas en el presupuesto ordinario de la institución.
+Para la premiación, el Centro organizará una actividad pública de reconocimiento.

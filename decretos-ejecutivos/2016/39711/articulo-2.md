@@ -1,0 +1,1 @@
+Artículo 2º—Competencia. El Centro será la instancia competente para la aplicación del presente reglamento, por lo que la administración y organización de los certámenes, así como el cumplimiento de lo aquí dispuesto, recae en su estructura administrativa, cuyo responsable final es el Director del Centro.

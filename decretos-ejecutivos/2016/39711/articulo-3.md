@@ -1,0 +1,1 @@
+Artículo 3º—Prohibiciones. No podrán participar, ni resultar ganadores de los certámenes: a. Los funcionarios del Centro, o sus parientes hasta el segundo grado de consanguinidad o afinidad, b. Los miembros de los Jurados Calificadores, o sus parientes hasta el segundo grado de consanguinidad o afinidad.
