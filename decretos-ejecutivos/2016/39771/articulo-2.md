@@ -1,0 +1,1 @@
+Artículo 2°-Deróguese el Decreto Ejecutivo número 39587-H del 07 de marzo de 2016, publicado en el Alcance número 50 a la Gaceta número 64 del 04 de abril de 2016, a partir de la vigencia del presente decreto.
