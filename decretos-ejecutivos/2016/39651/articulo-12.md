@@ -1,0 +1,1 @@
+Artículo 12.—Informes y Recomendaciones. Los informes y recomendaciones que emita la contraloría deberán ser remitidos al Superior Jerarca quien estará facultado para tomar las acciones que se evidencien como necesarias para el mejoramiento del servicio informando de las acciones tomadas a la contraloría.

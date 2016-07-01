@@ -1,0 +1,1 @@
+Artículo 11.—Suspensión de la tramitación de un caso. La contraloría suspenderá una investigación cuando el mismo hecho sea conocido por otra instancia administrativa o judicial competente para resolver, dicho antecedente será confirmado por el usuario o gestionante de previo al planteamiento de su trámite o verificado durante el proceso de su gestión.
