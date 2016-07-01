@@ -1,0 +1,1 @@
+Artículo 4º—El incremento salarial indicado en el artículo 1º del presente Decreto, se aplicará a los pensionados y pensionadas de los diferentes regímenes con cargo al Presupuesto Nacional, de conformidad con lo que la legislación de cada régimen de pensiones indique al respecto.
