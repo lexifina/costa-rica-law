@@ -1,0 +1,1 @@
+Artículo 31.—Cuando se ausente del país un contador o se encuentre con permiso autorizado por el Colegio, será condición expresa o insustituible para el goce de los beneficios aquí establecidos continuar con el pago de la parte proporcional de la cuota que corresponde a DEVOAS.

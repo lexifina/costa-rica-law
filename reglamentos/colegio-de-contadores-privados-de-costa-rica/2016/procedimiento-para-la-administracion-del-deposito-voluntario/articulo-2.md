@@ -1,0 +1,1 @@
+Artículo 2º—Tendrán derecho a pertenecer al DEVOAS los miembros activos del Colegio de Contadores Privados de Costa Rica que se encontraban inscritos y al día en el extinto FASMU, al 31 de diciembre de 2015; y todos aquellos que se hayan incorporado al Colegio de Contadores Privados de Costa Rica a partir del 1 de enero de 2016.

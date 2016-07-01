@@ -1,0 +1,3 @@
+CAPÍTULO IV
+De la rendición de cuentas
+Artículo 6º—La Junta Directiva del Colegio, de conformidad con lo estipulado en la ley 1269 y sus reglamentos, estará obligada a presentar informes acerca de la adecuada administración, ejecución y control de los recursos del DEVOAS; en sus Asambleas Generales de Presupuesto y Liquidación Presupuestaria.

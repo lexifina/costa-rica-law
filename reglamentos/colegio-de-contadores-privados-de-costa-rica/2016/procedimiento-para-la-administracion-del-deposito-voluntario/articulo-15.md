@@ -1,0 +1,2 @@
+Adelanto en vida
+Artículo 15.—El afiliado mayor de sesenta y cinco años, con veinticinco de pertenecer al sistema ininterrumpidamente, tendrá derecho por una sola vez a un adelanto en vida equivalente a un monto del 5% del beneficio por defunción. Dicho adelanto será deducido del monto que se gire al fallecer el colegiado. Si el beneficio por defunción aumenta después de recibir el adelanto en vida, el afiliado tendrá derecho a solicitar la diferencia correspondiente a dicho incremento.
