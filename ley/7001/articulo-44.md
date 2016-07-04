@@ -1,12 +1,2 @@
-Artículo 44.- El Instituto estará exento del pago del impuesto sobre
-la Renta y de todo tipo de impuestos o contribuciones, ya sean nacionales
-o municipales, que existan a la promulgación de la presente ley o
-llegaren a crearse. Esta exención no incluye las tasas por los servicios
-urbanos que reciba.
-( TACITAMENTE DEROGADO, en forma parcial, por leyes números 5870 de 11 de
-diciembre de 1975, artículo 15 (suprime franquicia postal); 4513 de 2 de
-enero de 1970, artículo 9º (suprime franquicia telegráfica y
-radiográfica); 7088 de 30 de noviembre de 1987, artículo 16 (importación
-de vehículos) y 7293 de 31 de marzo de 1992, artículos 50 y 55 (pago de
-futuros impuestos).
-(Derogado parcialmente, en lo referente a las excenciones del impuesto sobre las ventas, por el artículo 17 de la Ley N° 8114, Ley de Simplificación y Eficiencia Tributaria de 4 de julio del 2001).
+Artículo 44.- Se excluye al lncofer de pagar el impuesto sobre la renta, el impuesto sobre bienes inmuebles, el pago de aranceles, el impuesto de ventas, el impuesto selectivo de consumo, el impuesto sobre la propiedad de vehículos, los derechos de registro y cualquier otro tributo, tasa o sobretasa que pese sobre la venta, entrega, importación o inscripción de la maquinaria, el equipo, los vehículos y, en general, sobre los bienes y servicios que adquiera o contrate para la construcción, operación y el mantenimiento de la red ferroviaria nacional.
+(Así reformado por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)

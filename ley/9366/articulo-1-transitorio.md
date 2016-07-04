@@ -1,0 +1,2 @@
+TRANSITORIO I.-
+El Instituto Costarricense de Ferrocarriles (lncofer) tendrá un plazo de seis meses, contado a partir de la entrada en vigencia de esta ley, para cumplir con los registros contables a los que se refiere el inciso ch) del artículo 3 de la Ley N.o 7001, Ley Orgánica del Instituto Costarricense de Ferrocarriles (lncofer), de 19 de setiembre de 1985, y sus reformas, que se modifica mediante el artículo 1 de esta ley.
