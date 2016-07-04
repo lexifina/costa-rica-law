@@ -17,3 +17,4 @@ Reglamento Autónomo de Organización y Servicios de la Municipalidad de Orotina
 | 2 | 2010-03-25 | Reglamento municipal 321 (2010-03-25) |
 | 3 | 2010-04-15 | Reglamento municipal 324 (2010-04-15) |
 | 4 | 2011-12-13 | Reglamento municipal 143 (2011-12-13) |
+| 5 | 2016-07-04 | Reglamento municipal 14 (2016-07-04) |
