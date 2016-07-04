@@ -1,29 +1,13 @@
 CAPITULO II
 Objetivos
 Artículo 3º.- Los objetivos principales del Instituto son:
-a) Fortalecer la economía del país mediante la administración de un
-moderno sistema de transporte ferroviario para el servicio de pasajeros y
-de carga. Además podrá prestar servicios conexos con el citado sistema.
-b) Rehabilitar, estructurar y modernizar, tanto en lo que se refiere
-a vías, instalaciones y equipo rodante, como a su administración y
-prestación de servicios en general, los actuales ferrocarriles nacionales
-del Atlántico y Eléctrico al Pacífico, a fin de integrarlos en un
-ferrocarril interoceánico nacional para la prestación del servicio.
-c) Estudiar, ejecutar y administrar toda nueva red ferroviaria que
-pueda integrarse a las actuales, a fin de habilitar zonas de producción
-del país.
-Los estudios comprenderán, además, la posibilidad de llevar a cabo
-una interconexión ferroviaria centroamericana.
-ch) Electrificar, reconstruir y rectificar toda su red ferroviaria
-existente, dentro de los tres años posteriores a la vigencia de esta ley.
-Para estos fines el Instituto queda autorizado para contratar empréstitos
-directamente y construir gravámenes y, en cualquier forma legal, obtener
-recursos nacional eso extranjeros, sin que al efecto sea necesaria la
-autorización o aprobación de ningún organismo público, y para lo cual el
-Poder Ejecutivo otorgará los avales necesarios.
-No obstante lo anterior, los empréstitos que se contrataren para
-esta finalidad deberán ser sometidos, por conducto del Poder Ejecutivo, a
-conocimiento y aprobación de la Asamblea Legislativa, la cual deberá
-aprobarlos dentro de los tres meses posteriores a su presentación. En
-defecto del pronunciamiento oportuno de la Asamblea Legislativa, se
-tendrá por aprobado el empréstito.
+a) Fortalecer la economía del país mediante la administración de un moderno sistema de transporte ferroviario para el servicio de pasajeros y de carga en todo el territorio nacional. Además, podrá prestar servicios conexos con el citado sistema y desarrollar otras inversiones y obras de infraestructura en inmuebles de su propiedad, o bien, previo convenio entre las partes, de otras instituciones públicas, las empresas de servicios municipales, las cooperativas de electrificación rural y sus consorcios, reguladas en la Ley N. º 8345, Participación de las Cooperativas de Electrificación Rural y de las Empresas de Servicios Públicos Municipales en el Desarrollo Nacional, de 26 de febrero de 2003, y sus reformas, necesarias para la construcción, la operación y el mantenimiento del sistema ferroviario. De igual forma, podrá desarrollar en inmuebles de su propiedad otras inversiones u obras que le generen recursos para financiar sus proyectos de transporte ferroviario, siempre y cuando dichas actividades no afecten la prestación de los servicios de transporte a su cargo.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9366 del 28 de junio del 2016, “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)
+b) Rehabilitar, estructurar y modernizar, tanto en lo que se refiere a vías, instalaciones y equipo rodante, como a su administración y prestación de servicios en general, los actuales ferrocarriles nacionales del Atlántico y Eléctrico al Pacífico, a fin de integrarlos en un ferrocarril interoceánico nacional para la prestación del servicio.
+c) Estudiar, ejecutar y administrar toda nueva red ferroviaria que pueda integrarse a las actuales, a fin de habilitar zonas de producción del país. Los estudios comprenderán, además, la posibilidad de llevar a cabo una interconexión ferroviaria centroamericana.
+ch) Electrificar, reconstruir, rectificar y extender toda su red ferroviaria existente.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)
+Para estos fines, el Instituto queda autorizado para negociar, contratar y ejecutar, de manera autónoma, endeudamientos internos y externos de mediano y largo plazos hasta un nivel de endeudamiento máximo del cuarenta por ciento (40%) en relación con sus activos totales, así como para constituir gravámenes y, en cualquier forma legal, obtener recursos nacionales o extranjeros. El endeudamiento se calculará con base en el total consolidado del valor de los activos totales del Instituto al 31 de diciembre del año anterior; para el cálculo se excluirán los pasivos de corto plazo. Los cambios en el pasivo total del Instituto, a consecuencia de las variaciones en los tipos de cambio, no serán considerados para efectos de medir la variación neta del pasivo total, para el cálculo del nivel de endeudamiento regulado en este artículo. El Instituto deberá contar con un registro contable suficiente, que deberá actualizar de forma periódica, sobre los activos institucionales, o bien, otros mecanismos idóneos para asegurar de manera precisa el valor de dichos activos.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)
+Si el endeudamiento requerido excede el porcentaje indicado en el párrafo anterior, deberá obtenerse la aprobación de la Asamblea Legislativa.
+(Así reformado el párrafo anterior por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)

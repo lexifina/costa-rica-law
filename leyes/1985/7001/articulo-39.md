@@ -1,11 +1,4 @@
 CAPITULO XII
 Disposiciones generales
-Artículo 39.- Para todos los efectos legales el Instituto tendrá el
-carácter de ente administrativo de utilidad pública. Con el propósito de
-que lleve a cabo con prontitud y eficiencia el cumplimiento de sus
-objetivos, los organismos del Estado, centralizados y descentralizados y,
-en especial, el Ministerio de Obras Públicas y Transportes, quedan
-autorizados para ceder, traspasar, gestionar, negociar o colaborar con
-bienes y servicios a favor del Instituto, dentro de las facultades y
-prerrogativas legales que los rijan, sin que al efecto sea necesaria la
-autorización o aprobación de ningún otro organismo público.
+Artículo 39.- Para todos los efectos legales, el Instituto tendrá el carácter de ente administrativo de utilidad pública. Con el propósito de que lleve a cabo con prontitud y eficiencia el cumplimiento de sus objetivos, los organismos del Estado, en especial el Ministerio de Obras Públicas y Transportes (MOPT) y las instituciones autónomas, salvo la Caja Costarricense de Seguro Social (CCSS), semiautónomas y empresas públicas, quedan autorizados para ceder, traspasar, gestionar, negociar, colaborar, donar o arrendar, a título gratuito, todo tipo de recursos, servicios o bienes muebles e inmuebles, materiales y equipo, así como a trasladar personal a favor del Instituto, sin que al efecto sea necesaria la autorización o aprobación de ningún otro organismo público.
+(Así reformado por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)

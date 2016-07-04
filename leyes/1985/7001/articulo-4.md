@@ -1,37 +1,15 @@
 CAPITULO III
 Deberes y atribuciones
-Artículo 4º.- Para el cumplimiento de sus objetivos del Instituto
-tendrá los siguientes deberes y atribuciones:
-a) Someter a la aprobación del Poder Ejecutivo la planificación
-general relativa a la prestación del servicio y a las obras e
-instalaciones ferroviarias; así como planificar programas los servicios,
-las obras e instalaciones ferroviarias que requiera el desarrollo
-económico y social del país.
-b) Establecer las respectivas tarifas del transporte de carga y
-pasajeros, previa aprobación del Poder Ejecutivo, de acuerdo con lo
-establecido en el capítulo VIII de esta ley, así como los cánones, tasas
-o derechos que cobrará, sin que en estos últimos casos sea necesaria la
-aprobación del Poder Ejecutivo.
-c) Contratar empréstitos y en cualquier otra forma autorizada por
-las leyes, obtener recursos nacionales o extranjeros destinados al
-cumplimiento de sus objetivos.
-ch) Transportar, vigilar, custodiar y entregar las mercancías y
-otros bienes a los usuarios de sus servicios, en la forma y condiciones
-que las leyes y reglamentos determinen.
-d) Adquirir y administrar toda clase necesarios para el buen logro
-de sus objetivos.
-e) Ejecutar, en la forma más eficiente posible, el transporte de
-carga y de pasajeros.
-f) Gestionar ante el Poder Ejecutivo las expropiaciones que estime
-convenientes para el desarrollo de sus actividades, de conformidad con
-las leyes pertinentes.
-g) Establecer los sistemas de trabajo y de administración en todos
-los servicios en que intervenga, así como determinar el uso de sus
-instalaciones y equipos.
-h) Reglamentar las disposiciones generales bajo las cuales se
-prestarán los servicios de transporte de pasajeros y de carga; así como
-emitir las relativas a la organización laboral y administrativa del
-Instituto.
-i) Remitir al Poder Ejecutivo, para su aprobación, los reglamentos
-de uso general, de aplicación para los usuarios del servicio, o los que
-tengan como sustento la aplicación de una disposición de orden legal.
+Artículo 4º.- Para el cumplimiento de sus objetivos del Instituto tendrá los siguientes deberes y atribuciones:
+a) Someter a la aprobación del Poder Ejecutivo la planificación general relativa a la prestación del servicio y a las obras e instalaciones ferroviarias; así como planificar programas los servicios, las obras e instalaciones ferroviarias que requiera el desarrollo económico y social del país.
+b) Establecer las respectivas tarifas del transporte de carga y pasajeros, previa aprobación del Poder Ejecutivo, de acuerdo con lo establecido en el capítulo VIII de esta ley, así como los cánones, tasas o derechos que cobrará, sin que en estos últimos casos sea necesaria la aprobación del Poder Ejecutivo.
+c) Contratar empréstitos y en cualquier otra forma autorizada por las leyes, obtener recursos nacionales o extranjeros destinados al cumplimiento de sus objetivos.
+ch) Transportar, vigilar, custodiar y entregar las mercancías y otros bienes a los usuarios de sus servicios, en la forma y condiciones que las leyes y reglamentos determinen.
+d) Adquirir y administrar toda clase necesarios para el buen logro de sus objetivos.
+e) Ejecutar, en la forma más eficiente posible, el transporte de carga y de pasajeros.
+f) Realizar las expropiaciones que estime convenientes para el desarrollo de sus actividades, de conformidad con las leyes pertinentes. Para estos efectos, se declaran de utilidad pública los bienes inmuebles, sean fincas completas, porciones, derechos o intereses patrimoniales legítimos, que por su ubicación sean necesarios, a juicio del Instituto, para el cumplimiento de sus fines, así como las obras por ejecutar por el Instituto, en el cumplimiento de las atribuciones legales que el ordenamiento jurídico le ha encomendado.
+En los procedimientos de expropiación, el Instituto aplicará lo dispuesto en la Ley N.0 7495, Ley de Expropiaciones, de 3 de mayo de 1995, y sus reformas. En cuanto a la imposición forzosa de servidumbres, podrá aplicar las disposiciones de la Ley N.0 6313, Ley de Adquisiciones, Expropiaciones y Constitución de Servidumbres del Instituto Costarricense de Electricidad, de 4 de enero de 1979, actuando con idénticas competencias y potestades con las que dicha ley atribuye al Instituto Costarricense de Electricidad.
+(Así reformado el inciso anterior por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”
+g) Establecer los sistemas de trabajo y de administración en todos los servicios en que intervenga, así como determinar el uso de sus instalaciones y equipos.
+h) Reglamentar las disposiciones generales bajo las cuales se prestarán los servicios de transporte de pasajeros y de carga; así como emitir las relativas a la organización laboral y administrativa del Instituto.
+i) Remitir al Poder Ejecutivo, para su aprobación, los reglamentos de uso general, de aplicación para los usuarios del servicio, o los que tengan como sustento la aplicación de una disposición de orden legal.

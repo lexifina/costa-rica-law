@@ -1,5 +1,3 @@
-Artículo 31.- Todos los servicios que presta el Instituto, aun
-cuando sean a favor de la Administración Pública, municipalidades,
-instituciones autónomas u otros organismos del Estado, deberán ser
-remunerados o retribuidos de acuerdo con las tarifas vigentes para el
-público.
+Artículo 31. Todos los servicios que presta el Instituto, aun cuando sean a favor de la Administración Pública, las municipalidades, las instituciones autónomas u otros organismos del Estado deberán ser remunerados o retribuidos de acuerdo con las tarifas vigentes para el público. No obstante, el Instituto queda facultado para negociar, directamente con otras instituciones y empresas públicas, esquemas de compensación y pago en especie de inversiones, obras y ·servicios recibidos, mediante la prestación de sus servicios.
+Para ello, se deberán tomar en cuenta las competencias de cada entidad, así como los límites de equilibrio y la razonabilidad entre las prestaciones, que se han dispuesto en el ordenamiento de contratación administrativa.
+(Así reformado por el artículo 1° de la ley N° 9366 del 28 de junio del 2016 “Fortalecimiento del Instituto Costarricense de Ferrocarriles (INCOFER) y Promoción del Tren Eléctrico Interurbano de la Gran Área Metropolitana”)
