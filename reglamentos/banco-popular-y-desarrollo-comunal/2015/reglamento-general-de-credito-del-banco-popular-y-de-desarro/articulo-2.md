@@ -1,4 +1,5 @@
-Capítulo II. SUJETOS DE CRÉDITO
+Capítulo II.
+SUJETOS DE CRÉDITO
 *Artículo 2º—Los créditos se concederán a personas físicas y jurídicas a partir de los siguientes parámetros:
 a) Debe ser clientela de los servicios de captación del Banco o de cualquiera de las Sociedades de su propiedad o, en su defecto, adquirir esa condición al momento de formalizar el crédito. El ahorro obligatorio se considera parte de los servicios de captación.
 b) Las personas físicas deben ser mayores de 18 años, costarricenses o ciudadanos extranjeros con cédula de residencia, permanente o temporal, que puedan demostrar que poseen una renta fija o desarrollan o van a desarrollar una actividad que genere o generará los ingresos suficientes para atender adecuadamente las operaciones de crédito.

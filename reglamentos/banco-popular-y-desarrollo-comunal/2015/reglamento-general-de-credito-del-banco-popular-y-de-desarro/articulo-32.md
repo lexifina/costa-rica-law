@@ -1,3 +1,4 @@
-Capítulo IX. SEGUIMIENTO Y CONTROL DE LA CARTERA DE CRÉDITO
+Capítulo IX.
+SEGUIMIENTO Y CONTROL DE LA CARTERA DE CRÉDITO
 *Artículo 32.— Es potestad del Banco supervisar los créditos en todos sus aspectos, en apego a las disposiciones y recomendaciones efectuadas por las instancias de fiscalización superior y las que disponga el Banco, para lo cual las partes solicitantes u obligadas deberán brindar toda la información pertinente y colaboración que se les solicite. De lo contrario, el Banco queda facultado, una vez realizado el debido proceso, para variar la tasa de interés en 5 puntos porcentuales por encima de la tasa que rija en la operación de crédito, si se tratara de un crédito de la Cartera de Desarrollo o de la Cartera Social y en10 puntos porcentuales si se tratara de una operación de crédito de la Cartera Financiera
 * Este artículo fue modificado por la Junta Directiva Nacional, en sesión 5205 del 28 de agosto de 2014. Publicado en el Alcance Digital N. 60 de la Gaceta No. 207 del 28 de octubre de 2014.
