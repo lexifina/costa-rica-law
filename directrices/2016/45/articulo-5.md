@@ -1,0 +1,1 @@
+Artículo 5º—El Consejo Presidencial Social hará llegar a los jerarcas y responsables de los programas sociales, especificados en el artículo anterior, el instrumental metodológico y procedimental necesario para la inclusión del IPM en su programación, presupuestos, seguimiento y evaluación de metas.

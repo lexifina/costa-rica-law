@@ -1,0 +1,1 @@
+Artículo 3º—Los jerarcas de los ministerios e instituciones del sector social que se indican en el artículo siguiente velarán porque los planes operativos y presupuestos institucionales anuales contemplen la distribución de los recursos orientada a incidir positivamente en los indicadores del IPM.

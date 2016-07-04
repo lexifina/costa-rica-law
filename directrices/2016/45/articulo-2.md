@@ -1,0 +1,1 @@
+Artículo 2º—Los ministerios e instituciones del sector social adoptarán los resultados del Índice de Pobreza Multidimensional (IPM), como un criterio para la elaboración de los planes operativos institucionales (MAPP-Ficha Técnica) y de los presupuestos institucionales anuales.

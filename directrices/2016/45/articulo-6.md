@@ -1,0 +1,1 @@
+Artículo 6º—El equipo de monitoreo y seguimiento del Consejo Presidencial Social, con el apoyo de representantes de MIDEPLAN, Ministerio de Hacienda, IMAS y DESAF, dará el acompañamiento necesario a las instituciones especificadas en el artículo 4.
