@@ -14,3 +14,4 @@ Prórroga plazo para el Registro y Plazo extraordinario de regularización de tr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-10 | la propia norma |
+| 2 | 2016-07-04 | Decreto Ejecutivo 40067 (2016-07-04) |
