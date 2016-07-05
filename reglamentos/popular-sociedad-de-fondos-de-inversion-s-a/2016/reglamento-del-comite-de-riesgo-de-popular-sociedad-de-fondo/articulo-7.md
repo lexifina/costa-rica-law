@@ -1,0 +1,1 @@
+Artículo 7º—Sesiones. El Comité de Riesgo de Popular SAFI sesionará ordinariamente hasta dos veces al mes y extraordinariamente a criterio del Presidente o cuando alguno de los miembros lo requiera, previa solicitud a la Presidencia.
