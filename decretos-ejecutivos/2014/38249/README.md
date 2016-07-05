@@ -14,3 +14,4 @@ Reglamento General de Juntas de Educación y Juntas Administrativas
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-03-14 | la propia norma |
+| 2 | 2016-07-05 | Decreto Ejecutivo 39817 (2016-07-05) |

@@ -1,0 +1,6 @@
+Artículo 7 bis.—Cuando las Juntas de Educación existentes a la fecha del presente reglamento se acojan al artículo 7, se acudirá al siguiente procedimiento:
+a) Ante la creación de códigos presupuestarios independientes con una Junta asignada a esos códigos, los miembros de la Junta con nombramiento vigente a esa fecha, serán responsables de realizar todos los actos y procedimientos relativos a la liquidación de activos, pasivos, traspaso de bienes inmuebles, entre otros.
+Dicha Junta se mantendrá vigente y con la asignación de un centro educativo (código), la cual una vez finalizado el procedimiento de liquidación administre el centro educativo con las obligaciones y potestades presupuestarias.
+b) En caso del vencimiento en el nombramiento de los miembros de las Juntas, el Concejo Municipal de la Municipalidad respectiva deberá nombrar una Junta según corresponda, que se encargue del proceso de liquidación descrito en el inciso anterior.
+La Dirección Financiera a través del Departamento de Juntas, dictará los lineamientos o disposiciones relativas al procedimiento de liquidación de activos, pasivos, traspaso de bienes inmuebles, entre otros.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39817 del 5 de julio de 2016)
