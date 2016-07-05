@@ -1,2 +1,0 @@
-Artículo 11.—La Alcaldía Municipal con la ayuda de la Sección de Recursos Humanos aprobará o improbará los contratos de disponibilidad, en un plazo no mayor de diez días hábiles contados a partir de la fecha de presentación.
-Una vez aprobado el contrato respectivo la Municipalidad procederá a través de la Sección de Recursos Humanos a confeccionar la Acción de Personal, la cual deberá seguir el trámite usual que rige en la Institución.
