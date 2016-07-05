@@ -1,1 +1,2 @@
-Artículo 22.—Se establecerá una tarifa diferenciada para vehículos livianos y pesados, una vez que se realice la demarcación de los espacios correspondientes. Las motocicletas pagarán una tarifa mínima.
+Artículo 22.— Se podrá establecer una tarifa diferenciada para vehículos livianos, semi-pesados y pesados que utilicen los espacios habilitados en dicho mercado. Las motocicletas pagarán una tarifa mínima.
+(Así reformado mediante sesión ordinaria N° 010 del 5 de julio del 2016)

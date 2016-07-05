@@ -14,3 +14,4 @@ Reglamento de Cobro en las instalaciones del Mercado al Mayoreo a través del Si
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-04 | la propia norma |
+| 2 | 2016-07-05 | Reglamento municipal 10 (2016-07-05) |
