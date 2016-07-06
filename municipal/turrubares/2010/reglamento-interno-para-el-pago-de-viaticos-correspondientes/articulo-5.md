@@ -1,10 +1,5 @@
 CAPÍTULO II
 Del pago de viáticos a Regidores y Síndicos Municipales
-Artículo 5º—Los gastos por transporte se le reconocerán a Regidores y Síndicos Municipales, que deban desplazarse a una sesión municipal, conforme a la siguiente tabla:
-Distrito | Monto
-San Pablo | 2.000.00
-San Pedro | 4.000.00
-San Juan de Mata | 7.000.00
-San Luis | 6.000.00
-Carara | 15.000.00
-El pago correspondiente a este rubro se hará a todos los regidores y síndicos propietarios y suplentes con el comprobante de asistencia establecido en cada sesión que registra la Secretaria Municipal. Los montos de la tabla establecida aumentarán automáticamente un 10% (diez por ciento) cada año, rigiendo a partir del primero de enero.
+Artículo 5: Los gastos de transporte se le reconocerán a los Regidores y Síndicos Municipales, que deban desplazarse a una sesión municipal, de conformidad con la Directriz R-DC-26-2016 de la Contraloría General de la República de las catorce horas con treinta minutos del siete de abril de dos mil dieciséis, o su reformas; y la Ley reguladora de los gastos de viaje y gastos por concepto de transporte para todos los funcionarios del Estado N° 3462. Que para efectos de este pago, se considera que los desplazamientos deberán ser mayores a 5 kilómetros del Concejo Municipal y hasta un máximo de 12 kilómetros, cuando corresponda a pago por uso de taxi autorizado como transporte público, aplicando un máximo del cincuenta por ciento de la tarifa autorizada por la ARESEP para Taxi Rural. Que para distancias superiores a los 12 kilómetros solo se permite el uso de vehículo privado, para lo cual el funcionario deberá firmar con la administración un Contrato de Uso de Vehículo Privado, con indicación de Marca, Año, Cilindraje, y detalle de Tracción doble o Sencillo, para efectos del cálculo de la tarifa indicada por la Contraloría según la Directriz anual correspondiente.
+De corresponder a un vehículo privado propiedad de un tercero, el funcionario deberá presentar a la Administración, autorización correspondiente del propietario.
+(Así reformado en sesión N° 31 del 6 de julio de 2016)

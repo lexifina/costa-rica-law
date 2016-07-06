@@ -14,3 +14,4 @@ Reglamento Interno para el Pago de Viáticos correspondientes a Alimentación y 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-10-21 | la propia norma |
+| 2 | 2016-07-06 | Reglamento municipal 31 (2016-07-06) |
