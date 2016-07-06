@@ -18,6 +18,10 @@ b. Para el envío oficial de notificaciones se han habilitado por parte de las d
 í Oficina de Marcas de Ganado: NotificacionGanado@ rnp.go.cr
 í Oficina de Marcas Comerciales: NotificacionMarcas1@ rnp.go.cr, NotificacionMarcas2@rnp.go.cr
 í Oficina de Patentes de Invención: NotificacionPatentes@ rnp.go.cr
+● Oficina de Marcas Comerciales del Registro de la Propiedad Industrial: NotificacionMarcas3@rnp.go.cr
+(Así adicionado el punto anterior por directriz DPI-0004-2016 del 6 de julio de 2016)
+● Oficina de Marcas Comerciales del Registro de la Propiedad Industrial: NotificacionMarcas4@rnp.go.cr
+(Así adicionado el punto anterior por directriz DPI-0004-2016 del 6 de julio de 2016)
 c. Los documentos se tendrán por notificados al administrado a partir de su envío, y el plazo empezará a correr el día hábil siguiente. Para la comprobación de la notificación, el departamento de Diario y Notificaciones adjuntará al expediente el comprobante de envío electrónico.
 d. En caso de que el envío del correo electrónico sea fallido por causas ajenas al Registro de la Propiedad Industrial, se intentará enviar la notificación al medio señalado como subsidiario (en caso de que haya sido señalado). De no lograrse la notificación al medio subsidiario, se tendrá por notificado con el comprobante de envío, transmisión electrónica o la respectiva constancia, salvo que se demuestre que ello se debió a causas no imputables al interesado.
 II. Domicilio electrónico permanente: Todas las personas físicas y jurídicas, tanto nacionales como extranjeras, podrán señalar ante este Registro una dirección única de correo electrónico, para recibir emplazamientos o cualquier otra notificación, en cualquier asunto administrativo en que la persona deba intervenir. Esta fijación podrá ser modificada o revocada en cualquier tiempo, por la persona interesada.

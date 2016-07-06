@@ -14,3 +14,4 @@ Notificaciones: Disposiciones generales, notificación por medios electrónicos 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-04-06 | la propia norma |
+| 2 | 2016-07-06 | Directriz 4 (2016-07-06) |
