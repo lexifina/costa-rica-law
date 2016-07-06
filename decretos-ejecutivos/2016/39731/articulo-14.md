@@ -1,0 +1,1 @@
+Artículo 14°-Empate. En aquellos casos excepcionales en donde el jurado determine que dos trabajos de una misma categoría son meritorios al galardón de forma simultánea, la persona que ejerza la Presidencia del Jurado, tendrá derecho a doble voto, con el fin de realizar el desempate.

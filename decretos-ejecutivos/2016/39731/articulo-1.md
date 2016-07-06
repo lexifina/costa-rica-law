@@ -1,0 +1,14 @@
+N° 39731-MICITT
+EL PRESIDENTE DE LA REPUBLICA
+Y EL MINISTRO DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES
+De conformidad con los artículos 140 incisos 3), 18) y 20) y 146 de la Constitución Política; los artículos 11, 25 inciso 1), 27 inciso 1) y 28 inciso 2) acápite b) de la Ley No. 6227 “Ley General de la Administración Pública”, publicada en el Diario Oficial La Gaceta No. 102 del 30 de mayo de 1978, Alcance No. 90 y artículo 4 inciso g) de la Ley No. 7169 “Ley de Promoción del Desarrollo Científico y Tecnológico”, publicada en el Diario Oficial La Gaceta No. 144 del 01 de agosto de 1990, Alcance No. 23.
+CONSIDERANDO:
+1. Que el Estado mediante el apoyo de los programas, actividades científicas y educativas pretende fomentar la capacidad creadora del costarricense, incentivar y estimular las investigaciones, la transferencia del conocimiento, la ciencia y la tecnología, como condiciones fundamentales del desarrollo y como elementos de la cultura universal, a través del otorgamiento de premios y beneficios a aquellas personas que contribuyan con resultados positivos en el desarrollo nacional en la ciencia y la tecnología.
+2. Que el Ministerio de Ciencia, Tecnología y Telecomunicaciones, es el ente Rector del Sistema Nacional de Ciencia y Tecnología, entre cuyas funciones está el coordinar, elaborar y ejecutar la realización de estos programas, así como de actividades de naturaleza científicas y tecnológicas enmarcadas dentro de las políticas de promoción y desarrollo nacional.
+3. Que la promoción del desarrollo científico y tecnológico debe estar acompañada de estímulos permanentes, equitativos y simultáneos para la investigación científica y tecnológica y esta podrá realizarse a través de mecanismos de enlace con entidades públicas y privadas relacionadas dentro del Programa Nacional de Ciencia y Tecnología.
+4. Que es deber del Estado promover la elaboración de los instrumentos jurídicos adecuados para la promoción del desarrollo científico y tecnológico, según lo estipula el artículo 4 inciso g) de la Ley No. 7169 “Ley de Promoción del Desarrollo Científico y Tecnológico, publicada en el Diario Oficial La Gaceta No. 144 del 01 de agosto de 1990, Alcance No. 23, por lo que por medio de su propia normativa se establecerá el “Premio Nacional de Ciencia Clodomiro Picado Twight y el Premio Nacional de Tecnología Clodomiro Picado Twight”, que le permita al Ministerio de Ciencia, Tecnología y Telecomunicaciones, consolidar el proceso de reconocimiento del mayor galardón que el Estado ofrece a científicos costarricenses.
+Por tanto,
+Decretan:
+“CREACION DEL PREMIO NACIONAL DE CIENCIA CLODOMIRO PICADO TWIGHT Y
+EL PREMIO NACIONAL DE TECNOLOGIA CLODOMIRO PICADO TWIGHT”
+Artículo 1°. — Creación. Créase el Premio Nacional de Ciencia “Clodomiro Picado Twight” y el Premio Nacional de Tecnología “Clodomiro Picado Twight”.

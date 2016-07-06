@@ -1,0 +1,1 @@
+Artículo 12°-Premio. El premio otorgado por el Jurado consistirá en una estatuilla conmemorativa, un pergamino de reconocimiento y la suma equivalente a diez veces el salario base de un profesional de Servicio Civil 2.
