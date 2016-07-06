@@ -1,0 +1,6 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+La Junta Directiva Nacional en sesión 5373 del 24 de mayo del 2016, modificó el artículo 7 del “Reglamento para la aplicación de estimaciones a activos financieros por incobrabilidad, desvaloración o deterioro”, el cual se leerá de la siguiente manera:
+“Artículo 7 º—Pérdida por deterioro en bienes realizables. El Gerente General Corporativo, mediante acto que únicamente podrá delegar en los Subgerentes, aprobará el traspaso de bienes realizables a cuentas de orden por deterioro, cuando se dé la siguiente condición:
+Los bienes adjudicados se pasarán por pérdida cuando medie un estudio de costo beneficio o que jurídicamente sea imposible su realización, por deterioro, destrucción o inexistencia del bien, de conformidad con lo que se establece en las normas de operación.
+La pérdida por deterioro en Bienes Realizables la recomendará el Gerente de la Oficina Comercial, el Jefe del Área de Bienes Adjudicados o personal designado, quienes deberán demostrar por escrito al Jefe de Gestión Activos Crediticios o personal designado, que la propuesta de pérdida por deterioro cumple con el estudio de costo beneficio o bien con el dictamen legal, sobre la imposibilidad jurídica de la realización del bien, para su respectivo traslado a la Gerencia General Corporativa.”
+Rige a partir de su publicación en el Diario Oficial.
