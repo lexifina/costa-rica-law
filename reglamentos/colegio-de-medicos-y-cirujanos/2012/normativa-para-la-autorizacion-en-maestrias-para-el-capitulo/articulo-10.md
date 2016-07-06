@@ -5,7 +5,8 @@ Audiología.
 Homeopatía.
 Imagenología Diagnóstica y Terapéutica.
 Estimulación Temprana (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-02-20 del 20 de febrero del 2013)
-Epidemiología Clínica (Así adicionada la mestría anterior mediante sesión ordinaria N° 2015-07-15 del 15 de julio del 2015)
+Epidemiología Clínica (Así adicionada la maestría anterior mediante sesión ordinaria N° 2015-07-15 del 15 de julio del 2015)
+Farmacodependencia (Así adicionada la maestría anterior mediante sesión ordinaria N° 2016-07-06 del 6 de julio de 2016)
 Fonoaudilogía.
 Kinesiología.
 Medicina Social (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-03-06 del 6 de marzo del 2013)
