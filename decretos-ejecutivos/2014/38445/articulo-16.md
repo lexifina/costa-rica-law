@@ -1,1 +1,0 @@
-Artículo 16.—Las computadoras utilizadas para el teletrabajo deberán cumplir con todas las características de seguridad indicadas en la normativa que se establezca a nivel Institucional por parte de la Dirección de Tecnologías de Información.

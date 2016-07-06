@@ -1,1 +1,0 @@
-Artículo 12.—La Institución puede dejar sin efecto la aplicación del Teletrabajo en aquellos puestos que lo estime necesario por razones de conveniencia institucional, en cuyo caso las personas que estén teletrabajando, deberán reintegrarse a su centro de trabajo siguiendo las pautas del Convenio establecido.

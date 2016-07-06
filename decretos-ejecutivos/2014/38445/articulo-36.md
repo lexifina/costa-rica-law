@@ -1,1 +1,0 @@
-Artículo 36.—El Teletrabajador, deberá cumplir con la jornada oficial de la Institución, sin embargo el horario podrá ser flexibilizado, siempre y cuando sea consensuado con su jefatura y no afecte el normal desarrollo de las actividades de otros compañeros, de otros procesos y/o el servicio al usuario.

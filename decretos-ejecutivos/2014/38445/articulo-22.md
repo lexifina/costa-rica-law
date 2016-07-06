@@ -1,1 +1,0 @@
-Artículo 22.—Mantener actualizada la normativa y los formularios requeridos para asegurar la correcta aplicación de esta modalidad de trabajo a nivel institucional y capacitar al personal de las áreas involucradas sobre el tema.

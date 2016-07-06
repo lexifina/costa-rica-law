@@ -1,1 +1,0 @@
-Artículo 41.—Planificar y evaluar las metas del teletrabajador y recomendar las acciones que permitan mejorar su productividad. Para este fin, deberá llevar registros y hacer las sesiones de seguimiento correspondientes.

@@ -1,1 +1,0 @@
-Artículo 17.—La institución deberá brindar soporte técnico a los sistemas informáticos institucionales y equipos aportados por ella, cuando corresponda, para que el Teletrabajador desarrolle sus funciones adecuadamente.
