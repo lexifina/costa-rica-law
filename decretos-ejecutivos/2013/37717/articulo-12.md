@@ -14,6 +14,7 @@ Economía de la Salud y las Políticas Públicas.
 Epidemiología.
 Epidemiología Clínica (Así adicionada la maestría anterior mediante sesión ordinaria N° 2015-07-15 del 15 de julio del 2015)
 Estimulación Temprana (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-02-20 del 20 de febrero del 2013)
+Farmacodependencia (Así adicionada la maestría anterior mediante sesión ordinaria N° 2016-07-06 del 6 de julio de 2016)
 Farmacología Clínica.
 Fisiología Humana.
 Gerontología.
