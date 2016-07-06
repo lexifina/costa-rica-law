@@ -1,0 +1,5 @@
+CAPÍTULO II
+DE LA INFORMACIÓN
+Artículo 4.Conformación del expediente del comercializador. El Administrador del contrato deberá, como primer paso, confeccionar un expediente; el cual deberá mantener foliado y actualizado durante la ejecución del respectivo instrumento (contrato) y en el mismo orden cronológico en que fueron presentados o generados los documentos. El expediente podrá conformarse en soporte digital o físico. Es importante que para la administración del expediente, se cumpla con lo que establece la "Directriz Institucional para el manejo de expedientes administrativos".
+El expediente administrativo debe contener los documentos oficiales que se generen a lo interno de su dependencia, o los que reciba del comercializador en torno a un contrato específico, por lo que los borradores de los documentos no formarán parte del expediente.
+Una vez concluida la etapa de ejecución, los expedientes administrativos deberán, estar al menos custodiados por el plazo de dos años, debiendo luego proceder con la digitalización en el Centro Gestión de Documentación (CEGED) de previo a destruirlo.

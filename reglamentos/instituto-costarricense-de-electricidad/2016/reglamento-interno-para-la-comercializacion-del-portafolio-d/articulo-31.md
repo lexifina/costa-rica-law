@@ -1,0 +1,1 @@
+Artículo 31. Rescisión por mutuo acuerdo. La rescisión contractual por mutuo acuerdo únicamente podrá ser convenida cuando existan razones de interés público y no concurra causa de resolución imputable al comercializador. Para lo cual aplicará lo establecido en el contrato.

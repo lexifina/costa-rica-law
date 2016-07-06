@@ -1,0 +1,2 @@
+Artículo 11. Otros Requisitos. El eventual comercializador deberá ser recaudador autorizado del ICE o estar afiliado a alguno de ellos. Deberá presentar carta indicando la modalidad a utilizar para la recaudación o el contrato firmado para ese fin, antes de iniciar operaciones.
+Cuando el ICE requiera realizar incorporaciones al registro y segmentación de canales, podrá definir otros requisitos de incorporación, preselección y selección, según las necesidades del mercado y su estrategia comercial.

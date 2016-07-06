@@ -1,0 +1,1 @@
+Artículo 24. Supervisión. Los Supervisores de zona, con el fin de asegurar la continuidad y calidad del servicio, serán responsables de velar por el correcto abastecimiento de productos, el cumplimiento de la estrategia, la presencia de marca, la colocación de material POP, supervisión del plan de ventas, así como otras acciones comerciales afines.

@@ -1,0 +1,1 @@
+Artículo 3. Contratos. Los términos comerciales y contractuales de la relación se establecerán en un contrato, que será definido por el ICE, en concordancia con los intereses institucionales y a las estrategias comerciales, mismo que deberá ser firmado por las partes, con el fin de que manifiesten su aceptación respecto a los alcances del negocio.

@@ -1,0 +1,1 @@
+Artículo 10. Modificación de criterios. De conformidad con su estrategia, el ICE queda facultado para adicionar y/o cambiar parámetros de calificación y escogencia cuando así se requiera, para garantizar la mejora en la comercialización y distribución de nuevos productos y servicios en el portafolio, ya sea de índole comercial, financiero, legal o técnico.

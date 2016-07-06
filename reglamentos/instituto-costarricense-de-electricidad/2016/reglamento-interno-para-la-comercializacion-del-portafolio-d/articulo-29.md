@@ -1,0 +1,1 @@
+Artículo 29. Resolución contractual. El ICE podrá resolver unilateralmente los contratos por motivo de incumplimiento imputable al comercializador. Una vez firme la resolución contractual se procederá a ejecutar las garantías correspondientes y cualquier cobro de multas si ello resulta pertinente, aplicando lo establecido en el contrato.

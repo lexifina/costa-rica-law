@@ -1,0 +1,1 @@
+Artículo 23. Evaluación de desempeño. Se aplicará una metodología de evaluación de desempeño de los comercializadores durante la ejecución del contrato, correspondiendo al/la Administrador/a del contrato la aplicación de dicho instrumento.

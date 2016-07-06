@@ -1,0 +1,4 @@
+Artículo 2. Orientación de la relación comercial. Toda relación de negocios con fines de comercialización de productos y servicios, deberá ser congruente con los objetivos estratégicos del ICE y estar orientada a fortalecer su estrategia competitiva y su participación relativa en el mercado.
+Esta relación comercial busca extender el campo de acción, aumentando la escala de distribución propia, generando mayor presencia y cobertura geográfica.
+El ICE se reserva el derecho de desarrollar e implementar la estructura de canales de venta de acuerdo con su estrategia, realizando la segmentación que responda a las necesidades del mercado, considerando, pero sin limitarse a: Cadenas, Cuentas Corporativas, Comercializadores Mayoristas y Especializados.
+Asimismo, las negociaciones se inspirarán en los principios de la ética, equilibrio de intereses, razonabilidad, transparencia, colaboración, confianza, legalidad, responsabilidad, probidad y eficiencia.

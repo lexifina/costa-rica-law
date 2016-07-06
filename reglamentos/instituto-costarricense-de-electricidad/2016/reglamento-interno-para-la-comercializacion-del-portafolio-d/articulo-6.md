@@ -1,0 +1,1 @@
+Artículo 6. Información de usuarios y clientes ICE. Toda información de los usuarios y clientes del ICE, es de carácter confidencial y se encuentra protegida, por lo que solo podrá ser usada para los fines de negocio, conforme lo dispuesto en el artículo 35 de la Ley 8660.

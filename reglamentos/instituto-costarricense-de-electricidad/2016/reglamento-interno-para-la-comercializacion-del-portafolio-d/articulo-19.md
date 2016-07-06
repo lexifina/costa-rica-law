@@ -1,0 +1,2 @@
+Artículo 19. Acceso. Según su capacidad y estrategia comercial, el ICE podrá proveer al comercializador los sistemas transaccionales para la comercialización de los productos y servicios, así como información, acceso a la plataforma, la capacitación, el soporte comercial y material promocional.
+Cuando el ICE realice cambios en sus plataformas y sistemas, el comercializador está obligado a utilizarlos, sin que ello signifique perjuicio de ningún tipo para el ICE.

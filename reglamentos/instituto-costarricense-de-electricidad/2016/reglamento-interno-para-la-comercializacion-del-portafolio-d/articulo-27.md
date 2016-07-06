@@ -1,0 +1,1 @@
+Artículo 27. Garantía Colateral. El ICE solicitará una Garantía Colateral que permitirá cubrir la entrega de productos para la comercialización y distribución, tales como las tarjetas SIM, terminales, equipos, promocionales, entre otros, al comercializador; la misma podrá ajustarse si el monto total de los inventarios aumenta.
