@@ -15,3 +15,4 @@ Reglamento a la Ley de Promoción de la Competencia y Defensa Efectiva del Consu
 | --- | --- | --- |
 | 1 | 2013-09-23 | la propia norma |
 | 2 | 2014-03-20 | Decreto Ejecutivo 38359 (2014-03-20) |
+| 3 | 2016-07-06 | SINALEVI (sin norma nombrada) |
