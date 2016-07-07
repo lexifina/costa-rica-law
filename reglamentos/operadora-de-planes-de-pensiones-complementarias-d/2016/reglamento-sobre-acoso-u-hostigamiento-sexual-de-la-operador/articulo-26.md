@@ -1,0 +1,3 @@
+Artículo 26.- Despido por justa causa.
+Quien formule una denuncia por hostigamiento y acoso sexual, durante la tramitación del procedimiento previsto en este Reglamento sólo podrá ser despedido por causa justificada, originada en falta grave a los deberes derivados del contrato laboral, según lo establecido en el artículo 81 del Código de Trabajo.
+De presentarse una de estas causales, el representante legal tramitará el despido ante la Dirección Nacional e Inspección General de Trabajo, donde deberá demostrar la existencia de la falta. Esa Dirección podrá autorizar excepcional y justificadamente, la suspensión con goce de salario de la persona trabajadora mientras se resuelve el despido.

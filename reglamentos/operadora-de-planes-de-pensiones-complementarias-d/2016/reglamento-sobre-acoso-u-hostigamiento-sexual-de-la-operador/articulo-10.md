@@ -1,0 +1,2 @@
+Artículo 10.- Valoración de la Prueba.
+Para la valoración de la prueba, la Comisión deberá tener presentes las reglas de la sana crítica, la lógica y la experiencia; ante la ausencia de prueba directa se deberá valorar la prueba indiciaria y todas las otras fuentes del derecho común, atendiendo los principios especiales que rigen la materia de hostigamiento sexual. En caso de duda, se aplicará lo que más beneficie a la persona hostigada, está prohibido expresamente considerar los antecedentes del (la) denunciante, particularmente en lo relativo al ejercicio de su sexualidad.

@@ -1,0 +1,3 @@
+Artículo 2.- Ámbito de Aplicación.
+El presente Reglamento regirá para todas las personas trabajadoras de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal Sociedad Anónima, en sus relaciones de trabajo en el ámbito interno o servicio con oferentes, proveedores, clientes u otros terceros.
+Se aplicará en relaciones de Jerarquía o autoridad (Jefe a subordinado), relaciones entre personas del mismo nivel jerárquico (compañeros de trabajo), entre personas de un nivel jerárquico o de un nivel inferior a uno superior (de subordinado a Jefe) y relaciones entre personas, servidoras y usuarias en el ámbito de trabajo (clientes a personas trabajadoras).
