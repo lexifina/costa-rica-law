@@ -1,0 +1,1 @@
+Artículo 15. -Preparar el material que el médico utilizará en los diferentes procedimientos de Ortopedia, esto, de acuerdo con las patologías que presenten los pacientes de las diferentes áreas (áreas quirúrgicas, de emergencias, de consulta externa, de hospitalización, pediatría).

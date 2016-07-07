@@ -1,0 +1,1 @@
+Artículo 24. -Asistir al médico tratante en la aplicación, análisis y ejecución de las técnicas propias de su tecnicidad en los tratamientos conservadores y/o quirúrgicos de las diferentes patologías de los pacientes en sala de operaciones, post quirúrgicos, hospitalizados, de Emergencia o en Consulta Externa, de acuerdo con las indicaciones del médico tratante.

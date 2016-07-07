@@ -1,0 +1,1 @@
+Artículo 23. -Aplicación, análisis y ejecución de las técnicas propias de su tecnicidad para asistir al médico tratante en el uso de la mesa y el manejo del paciente en la mesa quirúrgica, de acuerdo con el tipo de tratamiento o patología.

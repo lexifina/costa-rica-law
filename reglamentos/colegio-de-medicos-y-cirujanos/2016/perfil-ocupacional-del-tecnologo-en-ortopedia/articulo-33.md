@@ -1,0 +1,1 @@
+Artículo 33. -Aplicación, análisis y ejecución de las técnicas propias de su tecnología, que se relacionan con procedimientos conservadores y/o quirúrgicos en las diferentes patologías de Ortopedia y Traumatología, que son indicadas por el médico tratante.

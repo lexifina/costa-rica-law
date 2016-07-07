@@ -1,0 +1,1 @@
+Artículo 17. -Reconocer los diferentes tipos, tamaños, formas y consistencia de los materiales, con el fin de utilizar los más adecuados en el paciente según su patología y tratamiento indicado por el médico tratante.

@@ -1,0 +1,1 @@
+Artículo 35. -Aplicación, análisis, reconocimiento y ejecución de las técnicas relacionadas con su tecnología para la ortesis pediátricas, (por ejemplo: arnés de Pavlik), tomando en cuenta los puntos de apoyo en las zonas de descarga, tipos de alineamientos y en la ejecución de la función motora en los usuarios. De acuerdo con las indicaciones del médico tratante.

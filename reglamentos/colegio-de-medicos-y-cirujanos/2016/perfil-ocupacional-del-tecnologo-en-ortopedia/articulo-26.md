@@ -1,0 +1,1 @@
+Artículo 26. -Conocimiento, aplicación, análisis y ejecución de las técnicas propias de su tecnicidad para las diferentes posiciones anatómicas en las mesas ortopédicas en el preoperatorio, trans-operatorio, post-operatorio y hospitalizado según la patología y tratamiento indicado por el médico tratante.

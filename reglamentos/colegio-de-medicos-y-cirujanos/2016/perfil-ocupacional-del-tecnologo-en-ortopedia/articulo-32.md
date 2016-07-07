@@ -1,0 +1,1 @@
+Artículo 32. -Aplicación, análisis, criterio y ejecución de las técnicas propias de su tecnología para las ortesis, tomando en cuenta los puntos de apoyo en las zonas de descarga, tipos de alineamientos y en la ejecución de la función motora, de acuerdo con las indicaciones del médico tratante.

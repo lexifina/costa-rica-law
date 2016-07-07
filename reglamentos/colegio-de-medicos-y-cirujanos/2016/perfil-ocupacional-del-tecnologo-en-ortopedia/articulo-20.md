@@ -1,0 +1,1 @@
+Artículo 20. -Reconocimiento del diagnóstico pre-operatorio de los pacientes en las áreas quirúrgicas, de los usuarios en hospitalización, Consulta Externa y Emergencias, los cuales son realizados por el médico tratante.

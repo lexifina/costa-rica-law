@@ -1,0 +1,1 @@
+Artículo 30. -Análisis, reconocimiento y aplicación de las técnicas de isquemia propias de su tecnicidad, en el pre-operatorio, trans-operatorio y pos-operatorio, de acuerdo con las indicaciones del médico tratante.

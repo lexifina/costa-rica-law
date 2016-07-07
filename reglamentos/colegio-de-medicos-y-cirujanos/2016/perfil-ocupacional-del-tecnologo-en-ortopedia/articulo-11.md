@@ -1,0 +1,1 @@
+Artículo 11. -Reconocimiento del proceso y rutina de las cirugías de Ortopedia, ya sean estas propias de cirugía menor, ambulatoria, electiva, programadas o de emergencias. Así como, tener el conocimiento pertinente a su tecnicidad sobre las diferentes patologías de Ortopedia y Traumatología.

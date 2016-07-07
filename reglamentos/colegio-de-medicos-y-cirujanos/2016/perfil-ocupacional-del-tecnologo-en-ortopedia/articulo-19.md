@@ -1,0 +1,1 @@
+Artículo 19. -Aplicación, análisis y ejecución de las técnicas propias de su tecnicidad para colocar y retirar todo tipo vendajes ortopédicos, de acuerdo con las indicaciones del médico tratante y la patología que presente el paciente.

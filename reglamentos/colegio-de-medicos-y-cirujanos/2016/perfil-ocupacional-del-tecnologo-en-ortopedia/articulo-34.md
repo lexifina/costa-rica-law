@@ -1,0 +1,1 @@
+Artículo 34. -Aplicación, análisis, reconocimiento y ejecución de las técnicas relacionadas con su tecnología sobre inmovilización pasiva y recomendaciones del ejercicio al usuario, de acuerdo con las indicaciones brindadas por el médico tratante.

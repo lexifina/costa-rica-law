@@ -1,0 +1,1 @@
+Artículo 25. -Conocer el manejo de los diferentes instrumentos, equipos y material utilizados en sala de operaciones y diferentes áreas donde se ubican los pacientes de Ortopedia y Traumatología (Emergencias, hospitalización, Consulta Externa, Sala de Operaciones).

@@ -1,0 +1,1 @@
+Artículo 21. -Aplica los conocimientos adquiridos en imágenes médicas y que se encuentran relacionados con su tecnicidad, para colaborar con el médico tratante en los procedimientos a realizar en el usuario de Ortopedia y Traumatología.

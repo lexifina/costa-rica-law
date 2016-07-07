@@ -1,0 +1,1 @@
+Artículo 5. -Dará asistencia a los Médicos Especialistas en Ortopedia y Traumatología para la ejecución de procedimientos técnicos. Sus actividades como Tecnólogos, las podrá realizar siempre que se encuentre debidamente capacitado para efectuarlas.
