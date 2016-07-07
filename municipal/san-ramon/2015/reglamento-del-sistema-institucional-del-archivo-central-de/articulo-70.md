@@ -1,0 +1,1 @@
+Artículo 70.- Cuando el Archivo Central transfiera documentos a la Dirección General del Archivo Nacional, deberá entregar los instrumentos descriptivos que pertenecen a aquellos calificados por la Comisión y Eliminación de Documentos como de valor científico-cultural.

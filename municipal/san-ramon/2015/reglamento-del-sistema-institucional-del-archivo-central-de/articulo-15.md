@@ -1,0 +1,1 @@
+Artículo 15.- La persona responsable del Archivo Central será, nombrada de conformidad con el Manual Descriptivo de Puestos de la Municipalidad de San Ramón, a quien le corresponderá planificar, coordinar, controlar y supervisar las funciones archivísticas de su unidad.

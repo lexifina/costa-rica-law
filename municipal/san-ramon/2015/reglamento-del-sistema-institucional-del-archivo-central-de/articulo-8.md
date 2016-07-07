@@ -1,0 +1,1 @@
+Artículo 8.- Cuando sea necesaria la salida temporal de la institución de un documento de valor administrativo legal, el encargado o responsable legal de los archivos de gestión registrará por escrito la autorización de salida de dicho documento y la verificación de la entrada.

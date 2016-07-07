@@ -1,0 +1,1 @@
+Artículo 45.- El programa descriptivo en los archivos de gestión, dará prioridad a los registros de entrada y salida de documentos, a las listas de remisión y a las tablas de plazos de conservación. En los Archivos Centrales, a los inventarios y listas de remisión y en los Históricos o Finales a las guías e inventarios.

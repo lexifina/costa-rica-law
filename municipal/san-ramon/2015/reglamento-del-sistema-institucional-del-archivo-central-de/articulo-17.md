@@ -1,0 +1,1 @@
+Artículo 17-. Al Archivo Central, ingresarán sólo los documentos declarados por el Comité Institucional de Selección y Eliminación de Documentos, con valor administrativo – legal, fiscal o contable vigente o científico-cultural y de conservación permanente, conforme la normativa establecida para la adecuada transferencia de documentos.

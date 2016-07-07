@@ -1,0 +1,1 @@
+Artículo 19 .-Se denominará Archivo de Gestión a aquel que reúne, conserva, clasifica, ordena, describe, selecciona, administra y facilita los documentos textuales, gráficos, audiovisuales y legibles por máquina, que resultan producto del funcionamiento interno de la Municipalidad, de las unidades administrativas que la conforman y de las entidades adscritas a ésta.

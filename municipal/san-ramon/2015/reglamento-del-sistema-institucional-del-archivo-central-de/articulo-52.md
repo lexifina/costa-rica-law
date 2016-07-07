@@ -1,0 +1,1 @@
+Artículo 52.- Los archivos que componen el Sistema Institucional de Archivos de la Municipalidad de San Ramón, facilitarán la consulta de sus fondos documentales, con excepción de que existan restricciones al acceso por leyes o resoluciones especiales.

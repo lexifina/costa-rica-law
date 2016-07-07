@@ -1,0 +1,1 @@
+Artículo 60.- Los fondos documentales del Archivo Central de la Municipalidad de San Ramón y de los Archivos de Gestión, podrán ser reproducidos para cumplir con los trámites de constancias, certificaciones y testimonio que se expedirán a solicitud de los usuarios, quienes cancelarán las especies fiscales, tasas y otros costos establecidos de acuerdo con las leyes vigentes.

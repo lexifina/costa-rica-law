@@ -1,0 +1,1 @@
+Artículo 3.- Los archivos de gestión de las diferentes unidades administrativas de la Municipalidad y de las entidades adscritas a ésta, regularán su funcionamiento de acuerdo con las pautas y lineamientos archivísticos que dictará el Archivo Central de la Municipalidad de San Ramón.

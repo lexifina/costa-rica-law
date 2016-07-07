@@ -1,0 +1,1 @@
+Artículo 2.-Todas las unidades administrativas de la Municipalidad de San Ramón y de las entidades adscritas a ésta deberán contar con archivos de gestión para la debida conservación y organización de sus documentos, lo que deberán hacer de acuerdo con las disposiciones de este reglamento.

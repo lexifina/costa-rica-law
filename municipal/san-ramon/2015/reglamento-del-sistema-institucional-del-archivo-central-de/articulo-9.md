@@ -1,0 +1,1 @@
+Artículo 9.- Se garantiza el libre acceso a todos los documentos a los que se refiere los artículos 5 y 7 que produzcan o custodien las unidades administrativas de la Municipalidad de San Ramón y de las entidades adscritas a ésta, con excepción de que existan restricciones al acceso por leyes o resoluciones especiales.

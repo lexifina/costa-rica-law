@@ -1,0 +1,1 @@
+Artículo 20 .-Se denominará Archivo de Especializado aquel archivo de gestión que reúne, conserva, clasifica, ordena, describe, selecciona y administra los documentos textuales, gráficos, audiovisuales y legibles por máquina, que por su contenido debe conformarse en expedientes.

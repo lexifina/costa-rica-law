@@ -1,0 +1,13 @@
+MUNICIPALIDAD DE SAN RAMÓN
+CONCEJO MUNICIPAL
+AVISA
+El Concejo Municipal de la Municipalidad de San Ramón por medio del Acuerdo N° 08 de la Sesión N° 450 Ordinaria del 17 de diciembre del 2015 y de conformidad con lo establecido en el párrafo segundo del artículo 43 del Código Municipal acuerda: Habiéndose publicado el PROYECTO DE REGLAMENTO DEL SISTEMA INSTITUCIONAL DEL ARCHIVO CENTRAL DE LA MUNICIPALIDAD DE SAN RAMÓN, en el Diario Oficial La Gaceta número 231 del día viernes 27 de noviembre del 2015; y no presentándose observación alguna dentro del tiempo establecido por ley, lo aprueba en definitiva como Reglamento, tal y como fue publicado en La Gaceta en mención, el cual rige a partir de su publicación y de cuyas especificaciones se deja constancia a continuación.
+REGLAMENTO DEL SISTEMA INSTITUCIONAL DEL ARCHIVO CENTRAL DE LA
+MUNICIPALIDAD DE SAN RAMÓN
+Considerando:
+1-. Que en procura de dar cumplimiento a lo que se establece en materia de custodia y acceso a la información en el Artículo 30 de la Constitución Política, en la Ley N°. 6227, Ley General de la Administración Pública; en la Ley N°8292, Ley de Control Interno; en la Ley N°8220, Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos; Ley N°8508 Código Procesal Contencioso Administrativo; en la Ley N°7794, Código Municipal y en la Ley N°7202, Ley del Sistema Nacional de Archivos, es necesario crear un sistema de información que permita a la Municipalidad de San Ramón y al Cantón determinar los mecanismos que propicien que la información sea pronta.
+2-. Que se debe contar con la adecuada reglamentación que aclare y explique los deberes y potestades que -para la Municipalidad de San Ramón- están dados en las leyes mencionadas.
+3-. Que el Archivo Central de la Municipalidad de San Ramón se propone como objetivo primordial de la publicación y cumplimiento del presente reglamento, la óptima organización, conservación y facilitación de la documentación que se genera producto del accionar municipal y la salvaguardia del patrimonio documental de la institución.
+CAPÍTULO I
+DISPOSICIONES GENERALES
+Artículo 1. El Sistema Institucional de Archivos de la Municipalidad de San Ramón, estará compuesto por el conjunto de Archivos de Gestión de las diferentes unidades administrativas de la Municipalidad y de los Archivos de Gestión los de aquellas instituciones adscritas a ésta: a saber, Consejo Municipal de Distrito de Peñas Blancas, Comité Cantonal de Deportes y Recreación de San Ramón y Comité Cantonal de la Persona Joven de San Ramón. Las definiciones de términos archivísticos para la aplicación del presente reglamento se encontrarán en el artículo 71 de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 23.- El responsable de administrar los archivos de gestión de las entidades adscritas a la Municipalidad de San Ramón, será el representante legal de las mismas quien, si lo considera necesario, asignará las funciones archivísticas a uno o varios de sus colaboradores, sin que esta delegación le exima de su responsabilidad.

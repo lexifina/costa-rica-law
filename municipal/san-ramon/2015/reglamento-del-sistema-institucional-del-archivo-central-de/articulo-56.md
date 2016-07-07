@@ -1,0 +1,1 @@
+Artículo 56.- Los archivos que componen el Sistema Institucional de Archivos, facilitarán al usuario los servicios de reprografías para documentos textuales, gráficos y audiovisuales. El usuario deberá pagar el costo de las reproducciones.

@@ -1,0 +1,7 @@
+Artículo 64.- Son funciones del Comité Institucional: Evaluar y determinar la vigencia administrativa y legal de los documentos de la Institución. Para ello promoverá la elaboración de tablas de plazos de conservación en los Archivos de Gestión y en el Archivo Central.
+a) Consultar a la Comisión Nacional de Selección y Eliminación de Documentos cuando se deban eliminar documentos que hayan finalizado su trámite administrativo y no existan tablas de plazo aprobadas.
+b) Resolver consultas atendiendo a la directriz de conservar lo que tenga valor científico-cultural, y gestionar ante la Comisión Nacional de Selección y Eliminación cuando sea necesaria la eliminación de los documentos que carezcan de este valor, en las diferentes etapas de formación de los archivos.
+c) Analizar y aprobar las tablas de plazos de conservación de documentos que presenten al Archivo Central de la Municipalidad de San Ramón las diferentes unidades administrativas que conforman el Sistema Institucional de Archivos.
+d) Someter a la aprobación de la Comisión Nacional de Selección y Eliminación, las tablas de plazos aprobadas por el Comité Institucional de Selección y Eliminación.
+e) Dictar las directrices generales en los aspectos de procedimiento de las labores del Comité Institucional de Selección y Eliminación.
+f) Otras funciones que le asignen las leyes y reglamentos al Comité Institucional de Selección y Eliminación.

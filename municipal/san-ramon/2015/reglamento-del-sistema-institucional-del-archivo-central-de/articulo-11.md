@@ -1,0 +1,1 @@
+Artículo 11.- Los investigadores que utilicen los fondos documentales de la Sistema Institucional de Archivos de la Municipalidad de San Ramón deberán coordinar estos estudios con el Archivo Central y entregar a la Municipalidad dos ejemplares del resultado de su investigación.

@@ -1,0 +1,1 @@
+Artículo 59.- El encargado del Archivo Central de la Municipalidad de San Ramón autorizará la salida de documentos textuales, gráficos y audiovisuales para ser reproducidos fuera de sus instalaciones, en el caso de que no se cuente con el equipo necesario para hacerlo y atendiendo las restricciones internas estipuladas.

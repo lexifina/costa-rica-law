@@ -1,0 +1,1 @@
+Artículo 49.- Los Archivos de Gestión de la Municipalidad de San Ramón y las entidades adscritas a éstas gestionarán, según corresponda, los recursos necesarios para la administración adecuada de sus archivos.

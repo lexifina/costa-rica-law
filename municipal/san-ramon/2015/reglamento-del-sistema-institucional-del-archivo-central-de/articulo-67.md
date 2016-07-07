@@ -1,0 +1,1 @@
+Artículo 67.- El o la encargado (a) del Archivo Central de la Municipalidad de San Ramón, deberá encargarse de coordinar todas las actividades archivísticas que realicen los archivos de gestión del ente, de acuerdo con los lineamientos establecidos en este reglamento.
