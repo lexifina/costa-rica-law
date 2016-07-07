@@ -60,7 +60,8 @@ ii. Asalariado: variables críticas del servicio de la deuda (tipo de cambio con
 E. Análisis de la capacidad de pago de un intermediario financiero supervisado por la SUGEF
 El otorgamiento de crédito es responsabilidad exclusiva de cada entidad financiera, la cual debe valorar la información sobre el deudor que considere pertinente, así como las garantías recibidas, con el fin de determinar si se requieren estimaciones adicionales.
 (Así reformado el inciso anterior por acuerdo SUGEF-R-004-2010 del 26 de febrero de 2010)
-F. Análisis de la capacidad de pago de una institución del sector público costarricense. Se debe evaluar que exista contenido presupuestario debidamente autorizado por la Contraloría General de la República para la atención de sus obligaciones financieras.
+F. Análisis de la capacidad de pago de una institución del sector público costarricense. Tratándose de instituciones del sector público costarricense, éstas no se eximen de las disposiciones establecidas en el Acuerdo SUGEF 1-05 y estos Lineamientos Generales, para los deudores del Grupo 1 o del Grupo 2 según corresponda, de manera que dichas disposiciones les son igualmente aplicables.
+(Así reformado el punto anterior mediante acuerdo SGF-R-2335-2016 del 7 de julio de 2016)
 G. Calificación
 Capacidad de pago Condiciones a cumplir
 Nivel 1 | a) El análisis muestra que la capacidad de pago es suficiente para atender las obligaciones crediticias en los términos pactados aún bajo escenarios de estrés de las variables críticas y de concentración de clientes y proveedores; b) El deudor presenta estados financieros auditados cuando la suma de los saldos totales adeudados es mayor al límite fijado por el Superintendente; c) La institución pública cuenta con contenido presupuestario para la atención de sus obligaciones financieras y d) (Derogado por el aparte a) del punto 1° del acuerdo SUGEF-R-005-2010 del 26 de febrero de 2010)
