@@ -1,0 +1,1 @@
+Artículo 6. -En conocimiento del marco legal y organizativo que regula y condiciona su actividad como Licenciado o Máster, desarrolla su profesión con actitud ética, reflexiva, crítica, propendiendo a mejorar la calidad de vida de la persona, familia y comunidad.

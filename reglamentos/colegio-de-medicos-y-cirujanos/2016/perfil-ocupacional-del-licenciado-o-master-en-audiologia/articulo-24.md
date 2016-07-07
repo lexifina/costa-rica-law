@@ -1,0 +1,1 @@
+Artículo 24. -Sin perjuicio de la obligación de acatar las instrucciones médicas recibidas, los profesionales gozarán de criterio propio y autonomía o independencia en lo que respecta a la ejecución de los procedimientos propios de su área.

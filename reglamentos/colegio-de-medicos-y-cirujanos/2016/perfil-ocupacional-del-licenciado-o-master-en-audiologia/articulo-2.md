@@ -1,0 +1,2 @@
+Artículo 2. -Diagnóstico audiológico: dicho término está implícito dentro del diagnóstico médico, siendo que no todo diagnóstico médico es audiológico.
+Bajo la premisa anterior no se concibe la palabra "diagnóstico" dentro de las funciones del profesional en Audiología, con excepción de lo que se establece en la Ley de Tamizaje Auditivo Neonatal. Este profesional solo puede brindar un reporte de las pruebas audiológicas realizadas, dejando claro que el diagnóstico es competencia del médico como tal.

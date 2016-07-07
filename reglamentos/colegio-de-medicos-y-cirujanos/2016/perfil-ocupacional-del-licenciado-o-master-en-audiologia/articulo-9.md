@@ -1,0 +1,1 @@
+Artículo 9.-Dentro del marco legal relacionado y de acuerdo con los alcances de su Licenciatura o Maestría, podrán participar en las tareas de investigación propias de su área. Esto, como parte del Equipo en Salud encargado de dicha investigación.

@@ -1,0 +1,2 @@
+Artículo 34.- Expediente clínico:
+El expediente clínico del paciente debe ser resguardado con respecto a los principios de la ética profesional, respetando los derechos individuales de los pacientes, de conformidad con lo establecido en la legislación.
