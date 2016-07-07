@@ -1,0 +1,1 @@
+Artículo 26. -De acuerdo con la legislación vigente en el territorio nacional, contribuye con el avance del conocimiento de los trastornos mentales y del comportamiento, desarrollando e interviniendo en proyectos de investigación biomédica observacional, epidemiológica, no intervencional, experimental, clínica o intervencional.

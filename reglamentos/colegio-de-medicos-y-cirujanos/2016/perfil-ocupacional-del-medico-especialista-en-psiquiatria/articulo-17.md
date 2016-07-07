@@ -1,0 +1,1 @@
+Artículo 17.-Aplica sus conocimientos especializados, destrezas, habilidades y competencias para el adecuado manejo de la Psicofarmacología y de las otras técnicas de intervención terapéutica en Psiquiatría.

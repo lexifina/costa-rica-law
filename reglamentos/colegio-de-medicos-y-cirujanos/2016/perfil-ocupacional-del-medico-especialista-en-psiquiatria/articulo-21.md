@@ -1,0 +1,1 @@
+Artículo 21.-Coordina, desarrolla y dirige programas de atención integralen psiquiatría y salud mental, así como programas de educación y divulgación para modificar estigmas y actitudes negativas de la población con respecto a las personas con trastornos mentales y del comportamiento.

@@ -1,0 +1,1 @@
+Artículo 20.-Dirige, coordina, colabora y asesora en las actividades dirigidas a la educación y promoción de la salud mental, de acuerdo con las características particulares de las comunidades y su entorno, así como, evaluar los resultados obtenidos.

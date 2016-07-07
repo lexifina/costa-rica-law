@@ -1,0 +1,1 @@
+Artículo 10. -Desarrolla sus actividades a nivel público y privado, dentro de una red de servicios de salud, favoreciendo el abordaje integral, familiar y psicosocial, desde una perspectiva de trabajo interdisciplinario y en equipo.

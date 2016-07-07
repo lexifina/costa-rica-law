@@ -1,0 +1,1 @@
+Artículo 16. -Coordina, supervisa e integra en las redes de servicios de atención en salud mental y psiquiatría a nivel comunitario, con la participación de los tres niveles de atención y de manera interinstitucional e interdisciplinario.
