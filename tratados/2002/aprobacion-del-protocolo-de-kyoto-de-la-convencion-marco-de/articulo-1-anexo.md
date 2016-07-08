@@ -1,11 +1,14 @@
 ANEXO A
 Gases de efecto invernadero
-Dióxido de carbono (CO2)
-Métano (CH4)
-Óxido nitroso (N2O)
+Dióxido de carbono (C02)
+Metano (CH4)
+Óxido nitroso (N20)
 Hidrofluorocarbonos (HFC)
 Perfluorocarbonos (PFC)
 Hexafluoruro de azufre (SF6)
+Trifluoruro de nitrógeno (NF3)1
+1Se aplicará únicamente a partir del inicio del segundo período de compromiso.
+(Así reformada la lista anterior por el artículo único del Tratado Internacional N° 9357 del 25 de mayo de 2016, “Aprobación de la Enmienda de DOHA al Protocolo de KYOTO”)
 Sectores/categorías de fuentes
 Energía
 Quema de combustible
