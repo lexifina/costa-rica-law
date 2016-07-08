@@ -1,0 +1,1 @@
+Artículo 2°- Declárese de interés público el Programa de Monitoreo Ecológico (PRONAMEC) en lo sucesivo denominado El Programa, el cual tendrá un ámbito de aplicación nacional, pudiendo contemplar también acciones específicas en las escalas regional y local.

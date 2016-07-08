@@ -1,0 +1,1 @@
+Artículo 13°.- La Secretaría Técnica en coordinación con la Dirección del Área de Conservación convocarán a los responsables de los programas del área, expel10s y otros actores locales relevantes según lo que dispone el artículo 32° de la Ley de Biodiversidad N" 7788.

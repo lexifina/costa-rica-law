@@ -1,0 +1,3 @@
+Artículo 18°.- Las funciones de la Red de Monitoreo son las siguientes:
+a) Participar activamente, en el intercambio y difusión de experiencias de monitoreo ecológico en el país a nivel de metodologías, resultados, fortalezas y debilidades, requerimientos técnicos, tecnológicos y costos financieros de dichas experiencias, así como recomendaciones para el monitoreo según las competencias legales y condiciones de la Administración Pública.
+b) Contribuir con recomendaciones de carácter metodológico a la Secretaría Técnica, instituciones y organizaciones que realizan monitoreo ecológico, a partir del conocimiento científico y la experiencias locales.

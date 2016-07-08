@@ -1,0 +1,1 @@
+Artículo 20°-Se insta a las. entidades públicas y privadas para que en la medida de sus posibilidades y dentro de la normativa jurídica vigente contribuyan con el aporte de recursos económicos, logísticos y técnicos

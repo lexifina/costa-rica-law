@@ -1,0 +1,5 @@
+Artículo 4°-Los objetivos específicos de El Programa serán:
+a) Proveer información que permita evaluar y conocer el estado y tendencias de la biodiversidad y la salud de los ecosistemas del país para la toma de decisiones.
+b) Proveer información que permita evaluar el cumplimiento de los objetivos de creación, efectividad e integridad ecológica de las áreas silvestres protegidas del SlNAC y de los corredores biológicos que las interconectan.
+c) Generar información requerida para el desarrollo de indicadores nacionales en biodiversidad. utilizados para la preparación de informes institucionales y de país, e información requerida para evaluar el estado de conservación de ecosistemas y de especies amenazadas, raras o en peligro de extinción.
+d) Gestionar periódicamente y de manera sistemática. y de conformidad con metodologías oficiales la preparación de estadísticas sobre biodiversidad, requeridas para evaluar la efectividad de la gestión de aquellas instituciones que realizan actividades vinculadas con la conservación de la biodiversidad.
