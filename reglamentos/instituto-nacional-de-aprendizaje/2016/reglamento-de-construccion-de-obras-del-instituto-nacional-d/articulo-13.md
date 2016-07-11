@@ -1,0 +1,2 @@
+Artículo 13.—Inscripción en el Banco de Proyectos y creación del Programa Institucional de Inversión Pública. La inscripción de los proyectos de inversión de obra pública la realizará la unidad de Planificación y Evaluación cumpliendo para ello con los requisitos solicitados por el MIDEPLAN para esos efectos.
+Los proyectos incorporados al Banco de Proyectos de Inversión Pública, constituyen el Programa Institucional de Inversión Pública.

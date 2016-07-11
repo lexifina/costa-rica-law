@@ -1,0 +1,1 @@
+Artículo 12.—Aval del ente rector. Una vez aprobados los proyectos por la Junta Directiva y antes de su inscripción en el Banco de Proyectos, la Presidencia Ejecutiva, por requerimiento de la Unidad de Planificación y Evaluación, solicitará cuando sea necesario, el aval del ente u órgano rector que corresponda.

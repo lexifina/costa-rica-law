@@ -1,0 +1,2 @@
+Artículo 8º—Plan quinquenal de proyectos. Con base en el inventario de proyectos debidamente analizado técnicamente, la Unidad de Planificación y Evaluación elaborará el Plan Quinquenal de Proyectos que será sometido a la aprobación de la Junta Directiva del INA.
+El plan quinquenal tendrá un ordenamiento anual de los proyectos, para lo cual se tomará como referencia, la proyección de ingresos y egresos que elabore para tales efectos la Unidad de Planificación y Evaluación, con insumos que proporcione la Unidad de Recursos Financieros.
