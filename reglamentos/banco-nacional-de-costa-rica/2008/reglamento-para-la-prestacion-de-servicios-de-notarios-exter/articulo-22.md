@@ -1,1 +1,0 @@
-Artículo 22.—Trámite para el cobro de gastos y honorarios. El notario procederá a otorgar la escritura con las formalidades de ley, aportando dos copias del testimonio definitivo, original y dos copias de la factura con el detalle del cobro de gastos y honorarios, según los artículos 25, 26 y 27 de este Reglamento, dentro del plazo indicado en el artículo 20.

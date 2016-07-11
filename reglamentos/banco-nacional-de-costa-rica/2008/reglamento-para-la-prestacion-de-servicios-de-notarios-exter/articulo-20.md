@@ -1,7 +1,0 @@
-Artículo 20.—Plazo para otorgar las escrituras. Luego de que el Centro de Administración de Crédito asigna un expediente de crédito, el notario contará un plazo de dos días hábiles en créditos de vivienda y consumo y tres días hábiles en el resto de créditos, para:
-1) Retirar el expediente personalmente cuando corresponda.
-2) Confeccionar la escritura y,
-3) Enviar por correo electrónico, una copia del borrador de la escritura, así como el detalle de gastos y honorarios. Al momento de firmar la escritura deberá aportar el original debidamente firmado del detalle de gastos y honorarios.
-Los plazos antes indicados serán contados a partir del día hábil siguiente a la comunicación respectiva, vía correo electrónico o fax, siendo responsabilidad del notario comunicar oportunamente al Banco cuando dichos instrumentos por alguna situación se encuentren deshabilitados. El incumplimiento de lo anterior facultará al banco para reasignar al día hábil siguiente el caso al notario que le corresponda en el rol, perdiendo el notario original el turno respectivo.
-En el eventual caso de que la escritura presente errores, el notario contará con un día hábil para efectuar las respectivas correcciones y otorgar su visto bueno para formalizar, aspecto que será considerado en las evaluaciones relacionadas con la prestación de servicio. El notario deberá presentar los documentos limpios, de buena calidad, nitidez y sin errores ni omisiones y con las cláusulas y condiciones crediticias que corresponda.
-(Así reformado mediante sesión N° 11606 del 6 de abril de 2010)

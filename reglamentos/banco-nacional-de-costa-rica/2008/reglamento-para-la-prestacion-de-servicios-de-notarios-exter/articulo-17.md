@@ -1,3 +1,0 @@
-Artículo 17.—Reportes de trabajos asignados. Cada Centro de Administración de Crédito, confeccionará cada dos meses un reporte de los expedientes de crédito asignados a los notarios externos, el cual someterá al conocimiento del Jefe de Crédito de cada Centro Empresarial y Centro Corporativo así como al Director de Gestión de Crédito Personal, para su seguimiento y control.
-De forma semestral, al finalizar los meses de marzo y setiembre el encargado de cada Centro de Administración de Crédito emitirá un reporte al Jefe de Crédito y al Director del Centro de Administración respectivo, con un resumen sobre los expedientes crediticios asignados durante ese período.
-(Así reformado en sesión N° 11836 y publicado en La Gaceta N° 121 del 25 de junio de 2013)
