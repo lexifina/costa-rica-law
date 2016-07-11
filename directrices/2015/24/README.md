@@ -14,3 +14,4 @@ Entidades de Administración Central deberán presentar ante Dirección General 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-04 | la propia norma |
+| 2 | 2016-07-11 | Directriz 51 (2016-07-11) |

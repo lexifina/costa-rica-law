@@ -9,8 +9,10 @@ Considerando:
 4°—Que a raíz de los problemas expuestos, el Poder Ejecutivo considera necesario coadyuvar en la construcción de una solución que mitigue las situaciones descritas, al tiempo que permita un mecanismo de control interno razonable y certero, regulando la situación registral, administrativa y legal de todos los bienes muebles propiedad del Estado asignados a los órganos que conforman la Administración Central. Por tanto:
 Emiten la siguiente Directriz
 Dirigida a la Administración Central
-Artículo 1°—Las entidades de la Administración Central, deberán presentar ante la Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda (DGABCA), los días 30 de enero de cada año, a partir del año 2016, un informe que contenga el listado de la totalidad de bienes muebles de los cuales es propietaria y que están inscritos ante el Registro Nacional, en el que se detalle:
+Artículo 1°— Las entidades de la Administración Central, deberán presentar ante la Dirección General de Administración de Bienes y Contratación Administrativa del Ministerio de Hacienda (DGABCA), los días 30 de abril de cada año1, a partir del año 2017, un informe que contenga el listado de la totalidad de bienes muebles de los cuales es propietaria y que están inscritos ante el Registro Nacional, en el que se detalle:
+1En caso de ser día inhábil, deberá rendirse el día hábil siguiente
 a. El número de matrícula (placa), clase y código.
 b. La marca, modelo y año de fabricación e inscripción registral del vehículo.
 c. Ubicación actual de cada bien y,
 d. El estado en que se encuentre cada bien mueble, sea en uso, desuso, en malas condiciones, chatarra, o cualquier otro calificativo que describa con claridad el estado en que se encuentren los mismos.
+(Así reformado por el artículo 1° de la directriz N° 051 del 11 de julio de 2016)
