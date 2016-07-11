@@ -4,3 +4,4 @@ Artículo 6°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 39524 del 3 de febrero del 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39590 del 8 de marzo de 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39684 del 29 de abril del 2016)
+(Modificado por el artículo 1° del decreto ejecutivo N° 39777 del 29 de junio del 2016)
