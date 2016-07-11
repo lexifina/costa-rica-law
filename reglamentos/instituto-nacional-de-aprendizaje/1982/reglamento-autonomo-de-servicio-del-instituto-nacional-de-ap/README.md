@@ -29,3 +29,4 @@ Reglamento Autónomo de servicio del Instituto Nacional de Aprendizaje
 | 14 | 2010-12-06 | Reglamento 4466 (2010-12-06) |
 | 15 | 2014-12-18 | Reglamento 4662 (2014-12-18) |
 | 16 | 2015-10-15 | Reglamento 4710 (2015-10-15) |
+| 17 | 2016-07-11 | Reglamento 4749 (2016-07-11) |
