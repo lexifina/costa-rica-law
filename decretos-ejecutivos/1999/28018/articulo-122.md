@@ -1,4 +1,29 @@
-Artículo 122.—El Director Ejecutivo y el Subdirector Ejecutivo quedarán sujetos a las mismas disposiciones que para los miembros de la Junta Directiva establece este Reglamento.
-La remoción del Director Ejecutivo o del Subdirector Ejecutivo sólo podrá acordarse de la misma forma en que fueron nombrados.
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 90 al 113 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 113 al 122 actual).
+Artículo 122.—La Junta Directiva tendrá las siguientes atribuciones:
+a) Definir la política general del Instituto del Café, tanto en lo nacional como en lo internacional, en este último caso en coordinación con el Ministerio correspondiente y aprobar los planes de trabajo.
+b) Fijar las cuotas de exportación, de consumo nacional, en disponibilidad, de retención y aquellas otras que determinen las leyes, en la forma y condiciones estatuidas por este Reglamento, por acuerdo de sus miembros, a más tardar el 1 de abril del año anterior a la cosecha correspondiente.
+c) Fijar hasta dos zonas de recibo de café a los beneficios de acuerdo con la diferencia de altura a que es cosechado el grano y de factores agrícolas-económicos y determinar las diferencias de precios de liquidación entre las mismas, según se establece en el artículo 10 de este Reglamento.
+d) Fijar para cada cosecha las calidades del café de exportación a que se refiere este Reglamento; los factores de conversión de café en fruta a café en oro, que se aplicarán como rendimientos mínimos de beneficiado, el porcentaje máximo de calidades inferiores que establece el artículo 46 de la Ley y aquellas otras normas de carácter general que para cada cosecha imponga la Junta de Liquidaciones.
+(Así reformado el inciso anterior por el artículo 47 del decreto ejecutivo N° 39854 del 11 de julio del 2016)
+e) Cuando se apele ante ella, determinar los precios definitivos que el beneficiador deberá pagar a sus clientes por el café recibido, de acuerdo con las disposiciones del artículo 30 de este Reglamento.
+f) Autorizar la adquisición, hipoteca, gravamen o enajenación de bienes inmuebles, de conformidad con las leyes aplicables al caso.
+g) Acordar, reformar e interpretar los reglamentos internos del Instituto del Café.
+h) Acordar y aprobar el presupuesto anual de la Institución, los extraordinarios y las modificaciones internas.
+i) Conceder licencia, por justa causa y hasta por un año, a sus miembros para no asistir a sesiones.
+j) Nombrar y remover a los funcionarios del Instituto según su estructura orgánica.
+k) Nombrar a los representantes del Instituto del Café ante los organismos cafetaleros internacionales, cuando ello no sea de incumbencia del Poder Ejecutivo.
+l) Designar por el término de dos años a partir de la segunda semana del mes de setiembre, la Comisión de Peritos Catadores.
+(Así reformado el inciso anterior por el artículo 47 del decreto ejecutivo N° 39854 del 11 de julio del 2016)
+m) Conocer en alzada de las apelaciones que se presenten contra las resoluciones dictadas por la Junta de Liquidaciones, la Dirección Ejecutiva o la Auditoría.
+n) Conocer y resolver los proyectos que presenten la Dirección Ejecutiva para la creación o supresión de departamentos o secciones.
+ñ) Adjudicar las licitaciones públicas utilizando como parámetro las disposiciones de la Ley de Contratación Administrativa, y de la Contraloría General de la República.
+(Así reformado el inciso anterior por el artículo 47 del decreto ejecutivo N° 39854 del 11 de julio del 2016)
+o) Aprobar la memoria anual.
+p) Pronunciarse sobre el alcance de las disposiciones legales relativas a la actividad cafetalera.
+q) Presentar al Poder Ejecutivo los proyectos de decretos ejecutivos que a su juicio sean necesarios promulgar para la realización de las funciones del Instituto del Café de Costa Rica.
+r) Presentar a la Asamblea Legislativa, por medio del Poder Ejecutivo los proyectos de Ley que a su juicio sean necesarios promulgar para la realización de las funciones del Instituto del Café de Costa Rica.
+s) Aprobar los estados y balances económicos una vez revisados por la Unidad de Auditoría y
+t) Seleccionar y contratar las firmas auditoras externas.
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 88 al 111 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 111 al 120 actual)
+(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 120 al 121)
+(Corrida su numeración por el artículo 45 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 121 al 122)

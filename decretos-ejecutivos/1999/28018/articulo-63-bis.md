@@ -1,6 +1,6 @@
-Artículo 63 bis: En caso de traspasos de contratos de exportación de café a través de endosos, la parte transmitente del contrato deberá notificar al beneficiador con un mínimo de tres días hábiles anteriores al endoso su intención de hacerlo, a fin de que éste último de su consentimiento. Lo anterior sólo será aplicable cuando el exportador no haya cancelado el contrato a la firma beneficiadora.
-La notificación al beneficiador podrá hacerse por cualquier medio, pero deberá hacerse constar que la comunicación fue recibida por la empresa beneficiadora. El beneficiador manifestará su consentimiento a su negativa al endoso dentro del término que le sea señalado, siempre que se respete el mínimo indicado en este mismo artículo. El silencio del beneficiador, una vez vencido el término conferido, se presumirá como su negativa a que se practique el endoso.
-El beneficiador deberá manifestar expresamente su conformidad con el endoso a través de una carta cuyo original será adjuntado al contrato en que se haya hecho el endoso.
-Si el contrato ya ha sido cancelado, se deberá adjuntar a la solicitud de endoso, la evidencia de pago respectiva.
+Artículo 63 bis. -
+En caso de traspasos de contratos de exportación de café -a través de cesión-deberá atenderse la disposición contenida en el ordinal 100 de la Ley N°2762.
+Adicionalmente, se adjuntará al acto de cesión documento idóneo que acredite fehacientemente la cancelación del café.
 (Así adicionado por Art. 2° del Decreto Ejecutivo N° 29585 del 30 de mayo del 2001)
 (Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 54 bis al 63 bis actual).
+(Así reformado por el artículo 23 del decreto ejecutivo N° 39854 del 11 de julio del 2016)

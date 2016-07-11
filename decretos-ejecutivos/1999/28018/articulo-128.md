@@ -1,3 +1,7 @@
-Artículo 128.—(Así derogado mediante artículo N° 1° del Decreto Ejecutivo N° 33861 del 20 de junio de 2007)
-(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 96 al 119 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 119 al 128 actual).
+Artículo 128.—La Auditoría Interna tendrá las competencias, deberes, potestades y prohibiciones establecidos en el capítulo V de la Ley General de Control Interno.
+Su actuación se regula por lo establecido fundamentalmente en la Ley General de Control Interno, Ley Nº 8292 y su Reglamento; en la Ley Orgánica de la Contraloría General de la República, Nº 7428 del 7 de setiembre de 1994; el Reglamento de Organización y Funcionamiento de la Auditoría Interna, así como en las normas, lineamientos, disposiciones, criterios u otros emitidos por la Contraloría General de la República y supletoriamente por lo establecido en las normas y prácticas profesionales pertinentes
+(Así corrida su numeración por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002, que lo traspasó del antiguo 94 al 117 actual y posteriormente reformado por el artículo 2 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 117 al 126 actual).
+(Así reformado mediante artículo N° 3° del decreto ejecutivo N° 33861 del 20 de junio de 2007)
+(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 126 al 127)
+(Corrida su numeración por el artículo 45 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 127 al 128)

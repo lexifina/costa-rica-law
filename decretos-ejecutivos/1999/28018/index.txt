@@ -75,8 +75,8 @@ articulo-72.md
 articulo-73.md
 articulo-74.md
 articulo-75.md
-articulo-75-bis.md
 articulo-76.md
+articulo-76-bis.md
 articulo-77.md
 articulo-78.md
 articulo-79.md
@@ -140,4 +140,6 @@ articulo-136.md
 articulo-137.md
 articulo-138.md
 articulo-139.md
+articulo-140.md
+articulo-141.md
 articulo-1-transitorio.md

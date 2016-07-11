@@ -25,3 +25,4 @@ Reglamento a la Ley de Relaciones entre Productores, Beneficiadores y Exportador
 | 10 | 2009-08-19 | Decreto Ejecutivo 35503 (2009-08-19) |
 | 11 | 2010-03-26 | Decreto Ejecutivo 35983 (2010-03-26) |
 | 12 | 2013-08-29 | Decreto Ejecutivo 37984 (2013-08-29) |
+| 13 | 2016-07-11 | Decreto Ejecutivo 39854 (2016-07-11) |

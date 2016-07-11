@@ -1,3 +1,2 @@
-Artículo 75.—Para efectos de la liquidación prevista en el artículo 74 de este Reglamento, el Exportador deberá incluir el efecto neto de las coberturas y podrá deducir otros gastos complementarios al monto autorizado, ambos debidamente registrados en la contabilidad del Exportador y certificados por un Contador Público .
-(Así reformado por el atículo 1° del decreto ejecutivo N° 37984 del 29 de agosto del 2013)
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 66 al 75 actual).
+Artículo 75.- Las firmas Beneficiadoras al monto recibido por parte del Exportador por concepto de PRC, deducirá el 9% de utilidad y el remanente será distribuido entre los Productores que forman parte de la respectiva Certificación. El Beneficio con la presentación de la liquidación final, queda en la obligación de entregar al ICAFE una certificación de CPA indicando el detalle de lo pagado a cada Productor, así como el detalle de los montos recibidos del Exportador por concepto de PRC.
+(Así adicionado por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016)

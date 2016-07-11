@@ -1,4 +1,5 @@
-Artículo 39.—Con base en las declaraciones de los beneficiadores y los datos complementarios a que se hace referencia en los artículos 48, 57 y 59 de la Ley, la Unidad de Liquidaciones preparará para cada firma beneficiadora una liquidación proforma, según el siguiente procedimiento:
+Artículo 39.-Con base en las declaraciones de los beneficiadores y los datos complementarios a que se hace referencia en los artículos 48, 57 y 59 de la Ley, la Unidad de Liquidaciones preparará para cada firma beneficiadora una liquidación proforma para cada una de las categorías autorizadas por el ICAFE, según el siguiente procedimiento:
+(Así reformado el párrafo anterior por el artículo 17 del decreto ejecutivo N° 39854 del 11 de julio del 2016)
 a) Valor total rieles del café de exportación vendido, excluyendo el comprado a otros beneficios, calculado en colones;
 b) Más valor total del café vendido para el consumo nacional;
 c) Más valor total estimado de las existencias de café de la cuota de consumo nacional no vendidas a la fecha:
@@ -8,6 +9,7 @@ f) Menos los gastos de sacos, acarreo del café beneficiado, seguros de café y 
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 35503 del 19 de agosto de 2009)
 g) Además, se deducirá la suma que le corresponde al beneficiador por toda su intervención en la elaboración y mercadeo de café en su aspecto local y que será de un nueve por ciento del remanente obtenido del producto de las ventas menos las deducciones señaladas en el punto f).
 h) Más el valor líquido distribuible del café natural.
-i) Al precio promedio de liquidación bruta del beneficio se le deduce el monto correspondiente del impuesto sobre la renta según la Ley 7551 del 2 de octubre de 1995, obteniéndose el precio promedio de liquidación neto del beneficio.
+i) Al precio promedio de liquidación bruta del beneficio se le deduce el monto correspondiente al rubro de FONECAFE según la Ley 7301 del Fondo Nacional de Estabilización Cafetalera, obteniéndose el precio promedio de liquidación neto del beneficio.
+(Así reformado el inciso anterior por el artículo 17 del decreto ejecutivo N° 39854 del 11 de julio del 2016)
 j) El remanente obtenido, que constituye el valor líquido distribuible de la cosecha, se dividirá entre el número de dobles hectolitros de café en fruta recibidos, estableciéndose así el precio promedio de liquidación bruto del beneficio.
 (Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 30 al 39 actual).

@@ -1,6 +1,4 @@
-TITULO TERCERO
-Del Instituto del Café de Costa Rica y del Congreso Nacional Cafetalero
-CAPITULO I
-Nombre, personería y domicilio
-Artículo 76.—El Instituto tendrá responsabilidad propia en la ejecución de sus funciones, lo cual impone a los miembros de su Junta Directiva la obligación de actuar conforme con su criterio en la dirección y administración del mismo y dentro de las disposiciones de las leyes y reglamentos respectivos.
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 67 al 76 actual).
+Artículo 76.—Para efectos de la liquidación prevista en el artículo 74 de este Reglamento, el Exportador deberá incluir el efecto neto de las coberturas y podrá deducir otros gastos complementarios al monto autorizado, ambos debidamente registrados en la contabilidad del Exportador y certificados por un Contador Público .
+(Así reformado por el artículo 1° del decreto ejecutivo N° 37984 del 29 de agosto del 2013)
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 66 al 75 actual)
+(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 75 al 76)

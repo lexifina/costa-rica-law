@@ -1,16 +1,14 @@
-Artículo 91.—De la emisión de votos. Cuando un productor se haga presente al Centro de Votación para emitir su voto, se seguirá el siguiente procedimiento:
-1. Los miembros de la Junta Escrutadoras de Votos verificarán en el Padrón de la correspondiente Región Electoral que el productor (persona física o jurídica) se encuentre incluido.
-2. En el caso de personas físicas, presente su respectiva cédula de identidad, o documento de identidad idóneo en casos de extranjeros.
-3. Las personas que representen legalmente a personas jurídicas, deberán aportar además la certificación de personería jurídica correspondiente, la que deberá ser emitida con un máximo de treinta días naturales antes de la celebración de la Asamblea respectiva.
-4. En el caso de menores de quince años, participarán a través de la persona que legalmente se encuentre en el ejercicio de la patria potestad, lo cual debe de demostrarse con certificación reciente emitida con un mínimo de tres meses de antelación por el Registro Civil. Los menores de quince a dieciocho años podrán ejercer directamente el voto siempre y cuando las entregas sean fruto de su trabajo, con la presentación de Certificación de Registro Civil donde conste su número de cédula y su fecha de nacimiento.
-5. Se verificará que la persona no tenga manchado con tinta indeleble el dedo índice de su mano derecha.
-6. Los miembros de la Junta Escrutadoras de Votos entregarán al productor dos papeletas de votación debidamente firmadas por todos sus miembros, una para la elección de Delegados al Congreso y otra para terna de candidatos a la Junta Directiva de ICAFE.
-7. Los productores votarán en forma secreta en las papeletas marcando con una X en la casilla correspondiente. En la papeleta para elegir Delegados al Congreso, debe votar hasta por la cantidad de Delegados que haya que elegir en la respectiva región electoral. En la papeleta para elegir terna de candidatos a Junta Directiva debe votar hasta por tres de los candidatos postulados.
-8. El productor que sea una persona con discapacidad y no pueda emitir su voto, podrá hacerlo públicamente, o emitir su voto semipúblico, pudiendo ingresar al centro de votación con una persona mayor de edad y de su entera confianza. Si el voto es público, expresará su decisión a los integrantes de la Junta Escrutadora y el Presidente marcará en la casilla que el votante le indique.
-(Así reformado el inciso anterior por el artículo 1 del decreto ejecutivo N° 35983 del 26 de marzo de 2010)
-9. Los votos serán depositados en cajas destinadas al efecto, las cuales estarán debidamente identificadas.
-10. Posterior a emitir su voto, cada productor procederá a manchar el dedo índice de su mano derecha con tinta indeleble, a fin de asegurar que no se presente a votar en otro centro de votación de esa misma Región Electoral.
-Al ser las diecisiete horas, se cerrará el centro de votación, indiferentemente de que hayan o no personas afuera del recinto, procediendo solamente a aceptar el voto de la persona que en ese momento se encontrara dentro del recinto en proceso de votación.
-(Así reformado el párrafo anterior por el artículo 1 del decreto ejecutivo N° 35983 del 26 de marzo de 2010)
+Artículo 91.—De la apertura de las Votaciones. El ICAFE entregará a cada una de las Juntas Escrutadoras de Votos una caja con la totalidad del material a utilizar, que será:
+1. Papeletas de votación para elección de Delegados al Congreso Nacional Cafetalero.
+2. Papeletas de votación para elección Terna Junta Directiva ICAFE.
+3. Padrón Electoral.
+4. Bolígrafos.
+5. Acta de apertura y cierre.
+6. Tinta indeleble.
+7. Servilletas.
+8. Cinco sobres de Manila.
+Los miembros de cada Junta Escrutadoras de Votos procederán a llenar el acta de apertura correspondiente, donde se hará constar necesariamente el nombre de los miembros, el número de papeletas de votación, indicación de que todas se encuentran en blanco y la inclusión de los demás materiales antes indicados. Todos los miembros procederán a firmar el acta de apertura. El período de votación iniciará a las diez horas y finalizará a las diecisiete horas.
+(Así reformado el párrafo anterior por el artículo 35 del decreto ejecutivo N° 39854 del 11 de julio del 2016)
 (Así adicionado por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002 y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 82 al 91 actual).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 81 al 90 actual)
+(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 90 al 91)

@@ -1,6 +1,90 @@
-Artículo 83.—Del padrón electoral. Participarán en las Asambleas Regionales, los productores de café, sean estos personas físicas o jurídicas que consten en el padrón que al efecto elaborará el ICAFE. Para la confección del mismo, el ICAFE, tomará en cuenta las nóminas presentadas por las firmas beneficiadoras a esa Institución, en la cosecha inmediata anterior al año de la elección y sólo participarán, los productores que en ellas se hayan reportado como tales. Cuando un productor figure en diferentes regiones, comunicará al ICAFE a más tardar al 31 de marzo del año correspondiente, la Región seleccionada para ejercer su voto, vencido ese plazo sin que así lo haya manifestado, el ICAFE de oficio le asignará la región en que le corresponderá ejercer su voto tomando como criterio la región electoral donde tenga la mayor cantidad de entregas de café.
-El padrón electoral, deberá estar a disposición de los usuarios para su consulta en las sedes regionales ICAFE, en el mes de marzo del año en que corresponda la elección. El plazo para posibles correcciones serán los meses de marzo y abril de tal manera que a partir de mayo no se podrá realizar cambio al mismo.
-En los casos de errores en el Padrón de la Nómina de Productores, será responsabilidad del beneficio en el tanto ICAFE haya considerado la conformación contenida y reportada por la firma beneficiadora.
-Por tanto, con solo la Declaración Jurada del Beneficio indicando la corrección, se podrá modificar el mismo.
+CAPÍTULO III
+De las Asambleas Regionales de Productores
+Artículo 83.—De las regiones cafetaleras electorales. Para nombrar los delegados del sector productor ante el Congreso Nacional Cafetalero, de acuerdo con el artículo 109 de la Ley Nº 2762 del 21 de junio de 1961, reformada por la Ley Nº 8109 del 4 de julio de 2001, se establece la conformación de cada una de ellas de la siguiente manera:
+I. Región Electoral de la Zona Norte:
+1. San Carlos
+2. Upala
+3. Sarapiquí
+4. Abangares
+5. Nandayure
+6. Tilarán
+7. Hojancha
+8. Nicoya
+9. Santa Cruz
+10. Bagaces
+11. Cañas
+12. Montes de Oro
+13. Esparza
+14. Liberia
+15. Puntarenas
+II. Región Electoral del Valle Central Occidental:
+1. Grecia
+2. Valverde Vega
+3. Naranjo
+4. Palmares
+5. San Ramón
+6. Atenas
+7. Alfaro Ruiz
+8. San Mateo
+9. Orotina
+III. Región Electoral del Valle Central:
+1. Puriscal
+2. Santa Ana
+3. San José
+4. Mora
+5. Moravia
+6. Goicoechea
+7. Curridabat
+8. Escazú
+9. Alajuelita
+10. Tibás
+11. Montes de Oca
+12. Turrubares
+13. Coronado
+14. Alajuela
+15. Poás
+16. Santa Bárbara
+17. Santo Domingo
+18. Barva
+19. Heredia
+20. San Rafael
+21. Flores
+22. San Isidro
+23. San Pablo
+24. Belén
+25. Unión
+IV. Región Electoral de Los Santos:
+1. Tarrazú
+2. León Cortes
+3. Desamparados
+4. Aserrí
+5. Acosta
+6. Cartago
+7. Guarco
+8. Dota
+9. Parrita
+V. Región Electoral de la Zona de Turrialba:
+1. Turrialba
+2. Alvarado
+3. Jiménez
+4. Paraíso
+5. Siquirres
+6. Oreamuno
+7. Guácimo
+8. Matina
+9. Limón
+10. Pococí
+11. Talamanca
+VI. Región Electoral de Pérez Zeledón:
+1. Pérez Zeledón
+2. Aguirre
+VII. Región Electoral de Coto Brus:
+1. Coto Brus
+2. Buenos Aires
+3. Golfito
+4. Corredores
+5. Osa
+Corresponderá al ICAFE propiciar las condiciones idóneas para realizar las Asambleas Regionales de Ley, seleccionando dentro de cada Región, un lugar adecuado. Para ello se apoyará en la Regional del ICAFE de cada zona, así como con el personal y técnicos de esa Institución que estime necesarios.
 (Así adicionado por el artículo 3 del decreto ejecutivo N° 30197 del 12 de febrero del 2002 y posteriormente reformado por el artículo 1 del decreto ejecutivo N°33062 del 29 de marzo del 2006).
-(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 74 al 83 actual).
+(Así corrida su numeración mediante artículo N° 2° del decreto ejecutivo N° 33861 del 20 de junio de 2007, que lo traspasó del anterior artículo 73 al 82 actual).
+(Corrida su numeración por el artículo 28 del decreto ejecutivo N° 39854 del 11 de julio del 2016 que lo traspasó del antiguo 82 al 83)
