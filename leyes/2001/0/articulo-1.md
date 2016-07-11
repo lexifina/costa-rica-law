@@ -1,4 +1,6 @@
+(Derogado)
 INSTITUTO NACIONAL DE APRENDIZAJE
+(Esta norma fue derogada por el artículo 18 del Reglamento de Construcción de Obras del Instituto Nacional de Aprendizaje, aprobado mediante sesión N° 4744 del 23 de mayo del 2016)
 REGLAMENTO DE CONSTRUCCIÓN
 Y MANTENIMIENTO DE OBRAS
 Artículo 1°—Objeto y alcance. El presente Reglamento regula el planeamiento, contratación y ejecución de obras de construcción y obras correspondientes a mantenimiento mayor en el Instituto Nacional de Aprendizaje. Se entenderá por obra pública la ejecución de obras de infraestructura en terrenos propiedad del Instituto, sean nuevas o ampliación de las ya existentes, destinadas a la satisfacción de las necesidades de capacitación y formación profesional, con cargo en fondos del INA. y ejecutadas en concordancia con los lineamientos contenidos en el Plan Nacional de Desarrollo y leyes vigentes sobre la materia.

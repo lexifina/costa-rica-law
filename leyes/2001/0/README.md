@@ -1,6 +1,6 @@
 # Reglamento de Construcción y Mantenimiento de Obras Instituto Nacional de Aprendizaje
 
-Ley  del 2001-06-21. SINALEVI, ficha 58577: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=58577&param2=104740&param3=1>.
+Ley  del 2001-06-21. SINALEVI, ficha 58577: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=58577&param2=104741&param3=1>.
 
 Publicada en La Gaceta N° 125 del 2001-06-29.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 2001-06-29 | Ley 0 | 2001-06-21 |
 | 2 de 3 | 2008-05-27 | Reglamento 4336 (2008-04-21) | 2008-04-21 |
+| 3 de 3 | 2016-07-11 | Reglamento 4744 (2016-05-23) | 2016-05-23 |
