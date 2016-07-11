@@ -1,0 +1,4 @@
+CAPÍTULO III
+DEL PROCEDIMIENTO DE ADMISIÓN
+Artículo 10.- Proceso de admisión. La realización del voluntariado, las pasantías, los trabajos comunales y las prácticas profesionales supervisadas. será admitida únicamente cuando éstas hayan sido debidamente gestionadas por el Ministerio de Cultura y Juventud y sus Órganos Desconcentrados, a través de las instancias pertinentes o a solicitud expresa de una Institución ya sea Educativa o de otra índole, nacional o internacional. o persona interesada.
+El Departamento de Gestión Institucional del Recursos Humanos del Ministerio de Cultura y Juventud, o la Oficina Auxiliar de Recursos Humanos del Órgano Desconcentrado, según corresponda, en representación de la Institución. será el responsable de gestionar la admisión de las personas interesadas, previa solicitud justificada.

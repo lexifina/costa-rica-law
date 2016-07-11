@@ -1,0 +1,1 @@
+Artículo 15. Sobre los documentos de identificación. La persona que realice las actividades reguladas en estos Lineamientos. deberá mantener durante su tiempo de estadía en la Institución, sus documentos de identificación al día: cédula de identidad, de residencia, pasaporte. visa y/o permiso de trabajo.

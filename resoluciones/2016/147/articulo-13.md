@@ -1,0 +1,4 @@
+Artículo 13.- Criterio de Selección. Los documentos citados en los artículos 11 y 12 de los presentes Lineamientos, deben ser presentados ante el Departamento de Gestión Institucional del Recurso Humano o a la Oficina Auxiliar de Recursos Humanos del Órgano Desconcentrado.
+Para la aprobación de cada solicitud, la dependencia donde se realizarán las actividades deberá constatar, que la actividad a desarrollar por parte del solicitante corresponda con las necesidades y fines institucionales.
+Una vez verificado que se cumplen con los requisitos antes enumerados. se procederá a realizar el trámite para la selección de los oferentes. A las personas aceptadas, se les confeccionará un carné de identificación, donde se indique el área en que estará realizando las actividades.
+Para la selección de los interesados, se deberá contemplar la equidad de género y la no Discriminación.

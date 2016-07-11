@@ -1,0 +1,1 @@
+Artículo 3.- Alcances y aplicación. Los presentes Lineamientos son de aplicación obligatoria en todos los Despachos y demás programas, direcciones, áreas y oficinas del Ministerio de Cultura y Juventud y sus Órganos Desconcentrados.

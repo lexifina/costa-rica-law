@@ -1,0 +1,3 @@
+CAPÍTULO VII
+DISPOSICIONES FINALES
+Artículo 23.- Terminación en caso de incumplimiento. El incumplimiento de cualquiera de las estipulaciones aquí establecidas por parte de los voluntarios. pasantes y practicantes, facultará al Ministerio de Cultura y Juventud y a sus Órganos Adscritos a dar por terminada la realización de las actividades de manera anticipada. La comunicación de dicha decisión deberá ser informada por escrito al Departamento de Gestión Institucional del Recurso Humano, quien se encargará de notificar a la persona, al centro educativo o entidad de donde provenga la persona que haya incumplido.

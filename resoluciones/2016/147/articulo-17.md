@@ -1,0 +1,1 @@
+Articulo 17.- De las personas servidoras supervisoras. Cada Despacho, Dirección, Departamento, Área u Oficina del Ministerio de Cultura y Juventud o del Órgano Desconcentrado, designará una persona servidora, quien será la encargada de velar por el efectivo desarrollo de las actividades que realizan estas personas.

@@ -1,0 +1,1 @@
+Artículo 14.- Sobre el cumplimiento de las horas. El Departamento de Gestión Institucional del Recurso Humano del Ministerio de Cultura y Juventud o la Oficina Auxiliar de Recursos Humanos del Órgano Desconcentrado, será el encargado de verificar el cumplimiento de las horas establecidas, con base en el reporte que envíe el Despacho o la dependencia, en el que fue asignado.
