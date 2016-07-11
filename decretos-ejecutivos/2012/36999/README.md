@@ -14,3 +14,4 @@ Crea Registro de Importadores de productos de origen vegetal, y el establecimien
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-28 | la propia norma |
+| 2 | 2016-07-11 | Decreto Ejecutivo 39855 (2016-07-11) |
