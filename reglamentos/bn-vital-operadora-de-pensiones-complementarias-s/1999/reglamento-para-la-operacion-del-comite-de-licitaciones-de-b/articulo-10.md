@@ -1,1 +1,1 @@
-Artículo 10.—Proveedor Institucional. El Director Administrativo será quien actué como Proveedor Institucional. Ante su ausencia las funciones serán atendidas por el Presidente del Comité de Licitaciones.
+Artículo 10° -Proveedor Institucional. El Jefe de Gestión Administrativa será quien actué como Proveedor Institucional. Ante su ausencia las funciones serán atendidas por el Presidente del Comité de Licitaciones.

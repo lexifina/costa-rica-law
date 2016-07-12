@@ -1,4 +1,4 @@
-Artículo 11.—Funciones del Proveedor Institucional. El Proveedor Institucional de la Operadora tendrá las siguientes funciones, obligaciones y atribuciones:
+Artículo 11 ° -Funciones del Proveedor Institucional. El Proveedor Institucional de la Operadora tendrá las siguientes funciones, obligaciones y atribuciones:
 a. Supervisar los procedimientos de contratación administrativa, de almacenamiento y distribución de bienes y de levantamiento y confección de inventarios permanentes de todos los bienes.
 b. Conocer, aprobar, rechazar o corregir los pliegos de condiciones de las contrataciones directas por escasa cuantía y por cualquier otra causal.
 c. Resolver los recursos de objeción que se presenten contra los pliegos de condiciones de las contrataciones directas por escasa cuantía y por cualquier otra causal.

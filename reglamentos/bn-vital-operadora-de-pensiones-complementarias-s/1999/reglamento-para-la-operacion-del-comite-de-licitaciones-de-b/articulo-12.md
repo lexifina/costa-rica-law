@@ -1,1 +1,1 @@
-Artículo 12.—En lo no regulado expresamente aquí, se estará a lo dispuesto por la Ley General de la Administración Pública, la Ley de Contratación Administrativa, su Reglamento y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Vital OPC.
+Artículo 12º-En lo no regulado expresamente aquí, se estará a lo dispuesto por la Ley General de la Administración Pública, la Ley de Contratación Administrativa, su Reglamento y demás normativa atinente a la materia, así como a los acuerdos de la Junta Directiva de BN Vital OPC.

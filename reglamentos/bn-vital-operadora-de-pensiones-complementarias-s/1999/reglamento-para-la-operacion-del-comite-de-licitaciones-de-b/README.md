@@ -17,3 +17,4 @@ Reglamento para la Operación del Comité de Licitaciones de BN Vital
 | 2 | 2009-02-03 | Reglamento 198 (2009-02-03) |
 | 3 | 2010-11-22 | Reglamento 0 (2010-11-22) |
 | 4 | 2014-05-12 | Reglamento 309 (2014-05-12) |
+| 5 | 2016-07-12 | Reglamento 362 (2016-07-12) |

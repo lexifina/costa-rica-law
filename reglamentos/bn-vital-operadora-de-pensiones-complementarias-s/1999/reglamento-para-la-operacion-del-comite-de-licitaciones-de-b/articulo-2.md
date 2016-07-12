@@ -1,4 +1,4 @@
-Artículo 2º—Funciones del Comité de Licitaciones
+Artículo 2º-Funciones del Comité de Licitaciones
 2.1 Corresponderá al Comité de Licitaciones:
 a. Aprobar o rechazar los carteles de las contrataciones administrativas que se realicen por medio de licitaciones públicas o licitaciones abreviadas; se incluyen las licitaciones públicas de cuantía inestimable.
 b. Adjudicar o en su caso declarar desiertas o infructuosas, con base en los criterios técnicos y económicos del caso, las licitaciones públicas y abreviadas; se incluyen las licitaciones públicas de cuantía inestimable.
