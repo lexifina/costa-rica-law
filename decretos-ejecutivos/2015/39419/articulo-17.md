@@ -1,0 +1,1 @@
+Artículo 17.—Seguimiento y evaluación. Corresponderá al CONAPDIS, en coordinación con la Comisión de Coordinación del SICID, dar seguimiento al proyecto y gestionará las diferentes evaluaciones necesarias para el cumplimiento de los objetivos del proyecto del Sistema de Información.

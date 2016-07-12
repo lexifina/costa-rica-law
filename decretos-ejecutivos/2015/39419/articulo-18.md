@@ -1,0 +1,1 @@
+Artículo 18.—Derogatoria. Se deroga el Decreto Nº 36357-S del 22 de noviembre del 2010, Creación del Registro Nacional de Estadística sobre Discapacidad (RED), publicado en La Gaceta Nº 24 del 03 de febrero del 2011.

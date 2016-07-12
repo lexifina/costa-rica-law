@@ -1,0 +1,6 @@
+Artículo 8º—El sistema de información está organizado de la siguiente manera:
+Red nacional de información sobre discapacidad y derechos humanos de las personas con discapacidad. Integrada por las entidades productoras de datos sobre discapacidad y derechos de las personas con discapacidad, en el marco del ordenamiento jurídico internacional y nacional en este campo.
+Comisión de coordinación del SICID. Integrada por entidades públicas con participación estratégica en la generación del SICID y representantes de las organizaciones de personas con discapacidad.
+Entidad ejecutora del proyecto de creación del SICID. Es la entidad pública responsable de la coordinación de la ejecución del proyecto SICID y de la operación del mismo.
+Unidad de coordinación para el desarrollo y operación del SICID. Es la unidad administrativa especializada dentro del CONAPDIS responsable del proyecto y posterior operación del mismo.
+Los nodos. Son las unidades técnicas especializadas en las entidades públicas centralizadas, descentralizadas por territorio y materia, responsables de la producción de información sobre discapacidad en el marco del SICID; así también por las instancias definidas por las organizaciones no gubernamentales de personas con discapacidad, organismos internacionales y el sector privado, vinculado con el sistema.

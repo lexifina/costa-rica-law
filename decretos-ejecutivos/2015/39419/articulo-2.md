@@ -1,0 +1,2 @@
+Artículo 2º—Se declara el Sistema Costarricense de Información sobre Discapacidad como proyecto de interés público.
+Para tal efecto se llevará a cabo un proyecto de desarrollo que, en su operación, permita al país disponer de las capacidades y condiciones internas necesarias para producir información oportuna y de calidad sobre discapacidad, de conformidad con las mejores prácticas nacionales e internacionales.
