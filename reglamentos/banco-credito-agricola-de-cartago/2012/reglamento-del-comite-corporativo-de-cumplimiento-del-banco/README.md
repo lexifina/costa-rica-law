@@ -15,3 +15,4 @@ Reglamento del Comité corporativo de cumplimiento del Banco Crédito Agrícola 
 | --- | --- | --- |
 | 1 | 2013-03-20 | la propia norma |
 | 2 | 2014-09-09 | Reglamento 8779 (2014-09-09) |
+| 3 | 2016-07-12 | Reglamento 8954 (2016-07-12) |
