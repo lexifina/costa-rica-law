@@ -14,3 +14,4 @@ Modificación de las líneas de crédito Ley 8448 y superávit libre
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-12 | la propia norma |
+| 2 | 2016-07-12 | Reglamento 6202 (2016-06-09) |

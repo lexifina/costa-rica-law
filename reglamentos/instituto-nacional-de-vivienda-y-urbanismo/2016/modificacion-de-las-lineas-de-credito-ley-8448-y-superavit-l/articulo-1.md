@@ -42,3 +42,5 @@ Cancelación anticipada | Se permitirá sin penalización alguna.
 Pagos extraordinarios: | Se aceptarán estando la operación al día.
 1/ Con excepción de los empleados del INVU según acuerdo de Junta Directiva N° 6162, art 11), inciso 9) de 26 de noviembre de 2015. Acuerdo firme.
 San José, 10 de junio del 2016.
+(Nota de Sinalevi: Mediante sesión N° 6202 del 9 de junio del 2016, se acordó reformar el inciso c) de la presente norma, al no existir dicho inciso se transcribe la modificación: “…Con los votos a favor de la Arq. Sonia Montero Díaz, quien preside y de los Miranda, Lic. Marco Vásquez Víquez y Arq. Mauricio Mussio Vargas. Se acuerda d) Modificar el acuerdo adoptado en la Sesión Ordinaria N° 6201, Artículo II, Inciso 6) punto c) del 02 de junio del 2016, para que se lea de la siguiente manera:
+“c) Abrir dentro de la propuesta de modificación de las líneas de crédito Ley 8448 y Superávit Libre la posibilidad de que exista una hipoteca en segundo grado, siempre y cuando sea suficiente la garantía hipotecaria y que la hipoteca de primer grado sea del Sistema Bancario Nacional.”)
