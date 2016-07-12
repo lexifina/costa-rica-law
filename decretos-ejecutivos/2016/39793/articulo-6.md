@@ -1,0 +1,1 @@
+Artículo 6°.- El ministerio de Obras Públicas y Transportes elaborará un estudio comparativo sobre el impacto de los rangos de horarios escalonados y jornada acumulativa voluntaria, el cual deberá realizarse y presentar dentro del tercer mes de vigencia del presente Decreto Ejecutivo.

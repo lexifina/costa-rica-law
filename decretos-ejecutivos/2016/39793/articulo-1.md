@@ -1,0 +1,25 @@
+N° 39793-MTSS-MOPT
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE RABAJO Y SEGURIDAD SOCIAL Y
+EL MINISTRI DE OBRAS PÚBLICAS
+Y TRANSPORTES
+En uso de las facultades que les confieren los incisos 3) y 18) del artículo 140 y artículo 146 de la Constitución Política, el artículo 28 párrafos 1) y 2), incisos a) y b) de la Ley General de la Administración Pública y el artículo 136 del Código de Trabajo; y
+CONSIDERANDO
+I. Que la ciudad de San José, como capital de la República de Costa Rica, presenta características comunes a la mayoría de las capitales del mundo y particularmente de América Latina, no sólo en lo que respecta a un crecimiento urbanístico, hasta hace poco carente de planificación alguna, sino de contar además con una red vial que resulta insuficiente para soportar la numerosa flotilla vehicular que ha venido en aumento en los últimos años.
+II. Que la alta afluencia y circulación vehicular en el Área Metropolitana de San José y sus alrededores, genera un evidente impacto en el congestionamiento vial, en la salud pública (por el estrés generado por las congestiones), en el ambiente y en la seguridad vial, que demanda por parte del Estado la necesidad de intervenir en la tutela de los derecho e intereses de las personas y el medio ambiente.
+III. Que con la entrada de la estación lluviosa, las frecuentes lluvias aumentan los embotellamientos viales, lo cual agrava aún más los problemas de movilidad en la Red Vial Nacional, aumentando los tiempos de desplazamiento.
+IV. Que se tiene como referencia un análisis del Departamento de Estudios y Diseños de la Dirección General de Ingeniería de Tránsito, sobre el efecto del cambio de horario de ingreso y salida a laborar en el volumen de tránsito. Con base en el análisis realizado por el Departamento de Estudios y Diseños es posible establecer una similitud en el comportamiento del tránsito y las horas de ingreso y salida de los empleados públicos y privados.
+V. Que existe evidencia de que un cambio en los horarios de los servidores públicos del Área Metropolitana de San José puede tener un impacto en el congestionamiento vial, tanto en las denominadas horas pico de la mañana como en la tarde.
+VI. Que 101.000 funcionarios públicos laboran en los cantones del Área Metropolitana de San José, por lo que se ha dispuesto implementar horarios escalonados de ingreso y salida de la jornada laboral de dichos funcionarios, con el fin de disminuir la concentración de vehículos durante las horas de mayor congestión y lograr la oportuna participación de los funcionarios en sus actividades diarias y en la atención de la ciudadanía.
+VII. Que la implementación de horarios escalonados de ingreso y salida de la jornada laboral y de la jornada acumulativa voluntaria debe garantizar, en los casos que corresponda, que la jornada laboral no sea mayor de ocho horas diarias o cuarenta y ocho horas semanales, así como que la atención al público no sea menor de ocho horas diarias.
+VIII. Que el artículo 136 del Código de Trabajo regula la posibilidad de estipular una jornada acumulativa hasta de diez horas, siempre que se respete el límite de trabajo semanal, en las condiciones establecidas por ley, aplicación que se puede dar con el fin de producir una disminución del flujo vehicular.
+IX. Que de la implementación de estos horarios escalonadas y la jornada acumulativa voluntaria no participarán los servicios públicos como policía, clínicas y hospitales, centros educativos públicos, así como aquellos otros que no deben ser variados en su horario en función de la continuidad específica del servicio público.
+X. Que estas medidas estarán sometidas a un monitoreo permanente a efectos de evaluar el impacto de las mismas sobre el congestionamiento vial. Sobre lavase de ese monitoreo y análisis de impacto, se introducirán los ajustes correspondientes, ya sea para eliminar algunas de ellas o adicionar las que resulten necesarias.
+XI. Que de conformidad con la Ley N° 8220 del 04 de marzo del 2002, este Decreto no modifica trámites, requisitos o procedimientos que el administrado deba cumplir ante la Administración Central.
+Por tanto,
+DECRETAN:
+“IMPLEMENACIÓN DE LOS HORARIOS ESCALONADOS Y LA JORNADA ACUMULATIVA
+VOLUNTARIA EN LA ADMINISTRACIÓN CENTRAL”
+Artículo 1°.- Los titulares de los Ministerios y sus órganos adscritos ubicados dentro del Área Metropolitana de San José deberá aplicar un horario escalonado de ingreso y salida de la jornada laboral de sus funcionarios, medida que será implementada hasta el 30 de noviembre del 2016 y la cual podrá ser prorrogada por periodos adicionales de seis meses.
+Para efectos del presente decreto el Área Metropolitana de San José comprende los cantones de San José, Escazú, Desamparados, Aserrí, Mora, Goicoechea, Santa Ana, Alajuelita, Vázquez de Coronado, Tibás, Moravia, Montes de Oca y Curridabat y la Unión.
+Los titulares de los Ministerios y sus órganos adscritos deberán establecer a lo interno de sus respectivas instituciones, las unidades responsables de la ejecución de las acciones establecidas en el presente decreto, así como de las labores de coordinación que se consideren necesarias.
