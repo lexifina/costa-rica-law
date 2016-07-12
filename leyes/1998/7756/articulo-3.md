@@ -1,2 +1,4 @@
-Artículo 3°- Pacientes en fase terminal
-Se considerarán en fase terminal los pacientes cuya expectativa de vida es igual o menor a seis meses.
+Artículo 3.- Pacientes en fase terminal y personas menores gravemente enfermas
+Se considerarán en fase terminal los pacientes que presenten una enfermedad avanzada, progresiva e incurable, que implique la falta de posibilidades razonables de respuesta al tratamiento específico y que su expectativa de vida sea menor o igual a seis meses, sin perjuicio de que el paciente reaccione positivamente al tratamiento y se extienda el plazo de vida.
+Las personas menores de edad gravemente enfermas son aquellas que sufren una enfermedad con efectos significativos en su salud, la cual pone al paciente en riesgo de muerte, cuyo tratamiento, a criterio del médico tratante, requiere el concurso de los progenitores que ejercen la patria potestad, el tutor, el curador, el representante legal o, en ausencia de estos, el familiar más cercano del enfermo para su cuidado.
+(Así reformado por el artículo 2° de la Ley para garantizar el Interés Superior del Niño, la Niña y el Adolescente en el Cuidado de la persona menor de edad Gravemente Enferma, N° 9353 del 16 de junio del 2016)
