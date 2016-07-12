@@ -1,0 +1,1 @@
+Artículo 2°.- Los rangos de horario escalonado y la jornada acumulativa voluntaria no se aplicarán a los servicios públicos esenciales tales como centro de salud u hospitalarios, autoridades de policía ni los llamados a la atención de emergencias. Tampoco serán aplicables a los centros educativos.

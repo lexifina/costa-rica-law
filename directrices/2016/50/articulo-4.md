@@ -1,0 +1,1 @@
+Artículo 4°.- Se invita a las oficinas del Poder Legislativo, al Poder Judicial, al Tribunal Supremo de Elecciones y a las dependencias de estos tres, que se encuentran en el Área Metropolitana de San José, junto a las municipalidades que encuentran en esa zona; implementar las medidas referentes al escalonamiento de horarios y jornadas acumulativas descritas en esta directriz.

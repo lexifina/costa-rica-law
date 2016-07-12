@@ -1,0 +1,1 @@
+Artículo 3°.- El director o encargado de recursos humanos en cada entidad pública deberá informar en el plazo de treinta días al Ministerio de la Presidencia así como al Ministro de Trabajo y Seguridad Social el resultado de la implementación del horario escalonado y la jornada acumulativa voluntaria.
