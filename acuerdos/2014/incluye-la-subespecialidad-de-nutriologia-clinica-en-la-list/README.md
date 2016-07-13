@@ -14,3 +14,4 @@ Incluye la Subespecialidad de Nutriología Clínica en la lista oficial reconoci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-22 | la propia norma |
+| 2 | 2016-07-13 | Acuerdo 0 (2016-07-13) |
