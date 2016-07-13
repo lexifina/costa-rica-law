@@ -12,6 +12,7 @@ Kinesiología.
 Medicina Social (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-03-06 del 6 de marzo del 2013)
 Medicina Fetal (Así adicionada la maestría anterior mediante sesión extraordinaria N° 2015-02-04 del 4 de febrero del 2015)
 Microbiología (Así adicionada la maestría anterior mediante sesión ordinaria N° 2013-12-11 del 11 de diciembre del 2013)
+Psiquiatría Forense (Así adicionada la maestría anterior mediante sesión ordinaria N° 2016-07-13 del 13 de julio de 2016) Asimismo en dicha sesión se indica reconocer como sinónimos de esta maestría el siguiente término: Maestría en Salud Mental Forense
 Recreación Física y Mental.
 Registros Médicos.
 Salud Ocupacional (Así adicionada la maestría anterior mediante sesión ordinaria N° 2014-05-28 del 28 de mayo del 2014)
