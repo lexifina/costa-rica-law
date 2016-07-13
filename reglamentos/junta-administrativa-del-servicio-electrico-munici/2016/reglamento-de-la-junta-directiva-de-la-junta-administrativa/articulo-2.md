@@ -1,0 +1,1 @@
+Artículo No. 2.- En caso de que por renuncia u otra causa similar, el Presidente o el Vicepresidente no pudieran terminar el período para el que fueron nombrados, se elegirá a los sustitutos para completar el período correspondiente, según lo establecido en la normativa vigente.

@@ -1,0 +1,1 @@
+Artículo No. 9.- Las sesiones ordinarias y extraordinarias se realizarán en el Salón de Sesiones de la Junta Directiva ubicado en el Edificio Central de JASEC, pudiendo ser variado el lugar, por acuerdo de mayoría simple de los señores directores presentes.

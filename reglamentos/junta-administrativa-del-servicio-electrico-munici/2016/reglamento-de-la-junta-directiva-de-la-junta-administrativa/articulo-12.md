@@ -1,0 +1,1 @@
+Artículo No. 12.- El quórum para sesionar válidamente lo constituyen cuatro miembros y para los asuntos en discusión, las votaciones se decidirán por mayoría simple de los presentes, salvo en los asuntos estipulados en la ley.

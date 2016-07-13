@@ -1,0 +1,1 @@
+Artículo No. 11.- Las sesiones extraordinarias podrán ser convocadas por el Presidente o cuatro directores. Para realizar este tipo de convocatorias, será necesario hacerlo por escrito indicando la hora, fecha, lugar y el objeto de la sesión; deberá citarse por lo menos con veinticuatro horas de anticipación, salvo casos de urgencia.

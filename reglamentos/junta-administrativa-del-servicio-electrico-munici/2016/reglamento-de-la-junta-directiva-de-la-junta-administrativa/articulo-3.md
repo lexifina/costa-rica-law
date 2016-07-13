@@ -1,0 +1,1 @@
+Artículo No. 3.- El Presidente elaborará la agenda y dirigirá las sesiones de la Junta. El vicepresidente sustituirá al Presidente en sus ausencias temporales y éste a su vez será sustituido por el director de mayor edad.

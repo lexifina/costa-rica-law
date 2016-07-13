@@ -1,0 +1,1 @@
+Artículo No. 23.- Presentada la revisión, los señores Directores resolverán sobre su admisibilidad. De votarse positivamente se procederá a discutir y resolver lo que corresponda sobre el o los artículos en revisión.
