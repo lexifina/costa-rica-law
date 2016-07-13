@@ -1,5 +1,9 @@
-Artículo 11.- El jefe del Registro cancelará los asientos de los
-convictos, cuando transcurrieren diez años desde el cumplimiento de la
-condena sin efectuarse nueva inscripción.
-( Texto Modificado por Resolución de la Sala Constitucional No.
-1438-92 de las 15:00 horas del 2 de junio de 1992 ).
+Artículo 11.- El Registro Judicial cancelará los asientos de las personas sentenciadas luego del cumplimiento de la pena, atendiendo los siguientes parámetros:
+a) Inmediatamente después de cumplida la condena impuesta, cuando la pena sea inferior a tres años o por delitos culposos.
+b) Un año después de cumplida la condena impuesta, cuando la pena sea entre tres y cinco años.
+c) Tres años después de cumplida la condena impuesta, cuando la pena sea entre cinco y diez años.
+d) Cinco años después de cumplida la condena impuesta, cuando la pena sea de diez años en adelante.
+e) Diez años después de cumplida la condena impuesta, cuando la pena sea por delitos tramitados bajo el procedimiento especial de crimen organizado, según el artículo 2 de la Ley N.° 8754, Ley contra la Delincuencia Organizada, terrorismo, delitos sexuales contra menores de edad, homicidio calificado, feminicidio y delitos contra los deberes de la función pública.
+f) En los casos de delitos cometidos por una persona en condición de vulnerabilidad y con familiares dependientes, el juez o la jueza de ejecución de la pena valorará la cancelación de los asientos una vez cumplida la pena impuesta, con excepción de los delitos tramitados o bajo la tramitación del procedimiento especial de crimen organizado, según los términos de la Ley contrala Delincuencia Organizada, terrorismo, delitos sexuales contra menores de edad, homicidio calificado, feminicidio y delitos contra los deberes de la función pública.
+Si la solicitud de certificación de juzgamientos se hace para fines laborales, de conformidad con los incisos e) y ñ) del artículo 13 de esta ley, el Registro Judicial de Delincuentes del Poder Judicial únicamente consignará en dicha certificación las existencias de los juzgamientos referidos en el inciso e) del presente artículo.
+(Así reformado por el artículo único de la Ley N° 9361 del 16 de junio del 2016. Asimismo véase el transitorio único de la ley N° 9361 del 16 de junio de 2016)
