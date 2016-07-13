@@ -1,0 +1,1 @@
+Artículo 23º.- Atención de peticiones. Los órganos o las unidades administrativas de cada organización ante la petición planteada por la Contraloría de Servicios, en el ejercicio de sus funciones, deberán responder esta en un plazo máximo de cinco días hábiles, excepto en los casos en que la resolución de la gestión sea de una mayor complejidad.

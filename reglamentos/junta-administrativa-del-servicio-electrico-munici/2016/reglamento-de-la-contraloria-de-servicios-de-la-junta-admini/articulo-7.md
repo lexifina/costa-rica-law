@@ -1,0 +1,1 @@
+Artículo 7º—Asignación de Recursos. La Contraloría de Servicios contará con un Centro Presupuestario, en el cual la Administración dotará de recursos para hacer frente a las erogaciones por concepto de remuneraciones, materiales, suministros, equipos, para que la misma cumpla satisfactoriamente con su gestión.

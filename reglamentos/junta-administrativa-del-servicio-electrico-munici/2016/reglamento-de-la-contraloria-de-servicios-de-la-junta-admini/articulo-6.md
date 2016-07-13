@@ -1,0 +1,2 @@
+Artículo 6º—Estructura. La Contraloría de Servicios estará a cargo de un Coordinador Contraloría de Servicios, quien desempeñará su puesto sin recargo de funciones y dependerá de la Junta Directiva. El Contralor de Servicios deberá cumplir con las funciones establecidas en la ley y reglamento, así como con los demás atributos y competencias que precise JASEC en su Manual Descriptivo de Puestos.
+Para garantizar la continuidad y calidad en el servicio, el jerarca dotará con carácter exclusivo, de un mínimo de dos funcionarios, incluida la persona Contralora de Servicios.

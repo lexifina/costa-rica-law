@@ -1,0 +1,1 @@
+Artículo 27.—Incumplimiento. El incumplimiento de las disposiciones contenidas en el presente Reglamento hará acreedor al funcionario de las medidas disciplinarias correspondientes, en aplicación a lo prescrito en el Código de Trabajo, Reglamento Autónomo de Trabajo de JASEC y demás normas concomitantes.
