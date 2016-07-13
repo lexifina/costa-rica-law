@@ -1,0 +1,1 @@
+ARTÍCULO 29.- El teletrabajador deberá asumir los gastos de electricidad, agua y alimentación, derivados de la ejecución de las actividades teletrabajables. En el caso de traslados para realizar giras o reuniones de trabajo como parte de su función, se aplicará lo establecido en la normativa laboral vigente.

@@ -1,0 +1,1 @@
+ARTÍCULO 25.- El teletrabajador es responsable de los activos institucionales que se le asignen y los cuales deba trasladar hacia el lugar de trabajo, para realizar sus funciones durante el teletrabajo. En caso de extravío o robo debe proceder de acuerdo con lo que establece la normativa vigente.

@@ -1,0 +1,1 @@
+ARTICULO 20.-Cuando el equipo dañado sea un activo de la institución, la Dirección de Tecnologías brindará el soporte técnico respectivo, por lo que el funcionario deberá trasladar el equipo a la institución. En caso de que la reparación requiera un gasto adicional o reemplazo del equipo, dicha Dirección deberá notificarlo a la Administración Superior para lo de su competencia.

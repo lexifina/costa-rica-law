@@ -1,0 +1,1 @@
+ARTÍCULO 23.- El teletrabajador deberá contar con un espacio físico con las características recomendadas porla Comisión de Teletrabajo y permitir el acceso para las inspecciones de las condiciones ergonómicas, de seguridad e higiene del puesto de trabajo.

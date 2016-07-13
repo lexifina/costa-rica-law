@@ -1,0 +1,1 @@
+ARTÍCULO 10.- Las actividades teletrabajables son de carácter permanente, sin embargo por razones de conveniencia institucional se podrán realizar actividades de este tipo de forma parcial, temporal u ocasional.

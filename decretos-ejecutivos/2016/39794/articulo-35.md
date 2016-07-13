@@ -1,0 +1,1 @@
+ARTÍCULO 35.- La Dirección Jurídica brindará el apoyo en todos aquellos temas relacionados con el teletrabajo, desde el punto de vista de la normativa vigente y aplicable, contratos, convenios, así como de derechos y obligaciones de los teletrabajadores.

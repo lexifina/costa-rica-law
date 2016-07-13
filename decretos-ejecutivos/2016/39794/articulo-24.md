@@ -1,0 +1,1 @@
+ARTÍCULO 24.- El trabajador deberá firmar un convenio donde se especificarán las condiciones en que laborará dentro del Programa de Teletrabajo y en el cual hará constar que conoce todas las estipulaciones contenidas en la Carta Constitutiva de dicho Programa.
