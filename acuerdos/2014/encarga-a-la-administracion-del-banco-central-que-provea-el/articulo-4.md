@@ -1,2 +1,2 @@
-4. La variación de reservas internacionales producto de las operaciones de divisas con el Sector Público no Bancario, indicadas en los numerales 1 y 3 de este acuerdo, no podrá exceder, en forma acumulada para los últimos doce meses, el equivalente al ±8% del saldo de las Reservas Adecuadas, estimado el último viernes de cada mes.
-(Así reformado en sesión N° 5669 del 19 de noviembre de 2014)
+4. La variación de Reservas Internacionales Netas producto de las operaciones con divisas del Sector Público no Bancario, indicadas en los numerales 1 y 3 de este acuerdo, no podrá exceder, en forma acumulada, el equivalente al 8% del saldo promedio de las Reservas Internacionales Netas. Este promedio se calculará el último viernes de cada mes, con base en la información diaria disponible de los últimos 60 días naturales, a partir de ese viernes.
+(Así reformado en sesión N° 5729 del 13 de julio del 2016)
