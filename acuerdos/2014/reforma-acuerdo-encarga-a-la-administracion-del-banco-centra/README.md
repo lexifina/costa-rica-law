@@ -14,3 +14,4 @@ Reforma acuerdo "Encarga a la Administración del Banco Central que provea el re
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-19 | la propia norma |
+| 2 | 2016-07-13 | Acuerdo 0 (2016-07-13) |

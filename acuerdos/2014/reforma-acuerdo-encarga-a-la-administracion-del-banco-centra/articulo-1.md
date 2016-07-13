@@ -1,4 +1,6 @@
+(Derogado)
 BANCO CENTRAL DE COSTA RICA
+(Esta norma fue derogada mediante sesión N° 5729 del 13 de julio del 2016)
 La Junta Directiva del Banco Central de Costa Rica en el artículo 7 del acta de la sesión 5669-2014, celebrada el 19 de noviembre del 2014,
 considerando que:
 A- En el artículo 10, del acta de la sesión 5651-2014, del 25 de junio del 2014, la Junta Directiva introdujo modificaciones a la forma en la que el Banco Central de Costa Rica gestiona las divisas del Sector Público No Bancario (SPNB). Particularmente:
