@@ -50,3 +50,4 @@ Reglamento del Seguro de Invalidez Vejez y Muerte de la Caja Costarricense de Se
 | 35 | 2014-04-24 | Reglamento 8712 (2014-04-24) |
 | 36 | 2015-02-04 | SINALEVI (sin norma nombrada) |
 | 37 | 2016-02-01 | Reglamento 8823 (2016-02-01) |
+| 38 | 2016-07-13 | SINALEVI (sin norma nombrada) |
