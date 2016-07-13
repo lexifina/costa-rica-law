@@ -14,3 +14,4 @@ Reglamento de correduría para la venta de bienes adjudicados al Banco Crédito 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-11 | la propia norma |
+| 2 | 2016-07-13 | Reglamento 8955 (2016-07-13) |
