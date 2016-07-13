@@ -33,8 +33,9 @@ Nutrición Clínica.
 Psicoanálisis.
 Psicología Clínica.
 Psicogeriatría (Así adicionada la maestría anterior mediante sesión ordinaria N° 2015-07-29 del 29 de julio del 2015)
+Psiquiatría Forense (Así adicionada la maestría anterior mediante sesión ordinaria N° 2016-07-13 del 13 de julio del 2016)
 Salud Pública.
-Salud ocupacional (Así adicionada la maestía anterior mediante sesión ordinaria N° 2014-05-28 del 28 de mayo del 2014)
+Salud ocupacional (Así adicionada la maestría anterior mediante sesión ordinaria N° 2014-05-28 del 28 de mayo del 2014)
 Valoración Médica de Incapacidades y Daño Corporal para la Protección Social (Así adicionada la maestría anterior en sesión 2014-12-17 del 17 de diciembre de 2014) Asimismo en sesión 2014-12-17 del 17 de diciembre de 2014, se indica reconocer como sinónimos de esta maestría los siguientes términos: Maestría en Valoración Médica del Daño Corporal Maestría en Medicina Evaluadora y Peritaje Médico Maestría en Valoración del Daño Corporal Maestría en Evaluación del Daño Corporal Maestría en Valoración del Daño Personal y Medicina del Seguro Maestría en Valoración de la Incapacidad Laboral, del Daño Corporal y Medicina del seguro.)
 DOCTORADOS ACADÉMICOS (Ph. D)
 Ciencias Médicas.

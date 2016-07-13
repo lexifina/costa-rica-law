@@ -24,3 +24,4 @@ Reglamento de maestrías y doctorados académicos en las áreas de ciencias méd
 | 9 | 2015-07-15 | Acuerdo 0 (2015-07-15) |
 | 10 | 2015-07-29 | Acuerdo 0 (2015-07-29) |
 | 11 | 2016-07-06 | Acuerdo 0 (2016-07-06) |
+| 12 | 2016-07-13 | Acuerdo 0 (2016-07-13) |
