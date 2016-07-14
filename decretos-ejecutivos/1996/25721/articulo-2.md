@@ -35,3 +35,8 @@ w) Terrenos de uso agropecuario y sin bosque: Son aquellas fincas privadas con l
 (Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 38769 del 28 de octubre del 2014)
 x) Valor de transferencia de madera en troza: Es la base imponible para efectos del cálculo del impuesto forestal.
 (Así reformado por el artículo 1º del decreto ejecutivo N° 35868 del 24 de marzo de 2010)
+y) Pequeño productor forestal: dueños de fincas que desarrollan proyectos anuales de protección de bosque, manejo de bosque, reforestación o regeneración, menores o iguales a 50 hectáreas, o con proyectos en sistemas agroforestales menores o iguales a 5.000 árboles.
+(Así adicionado el inciso anterior por el artículo 1º del decreto ejecutivo N° 39871 del 14 de julio de 2016)
+z) Mediano productor forestal: dueños de fincas que desarrollan proyectos anuales de protección de bosque, manejo de bosque, reforestación o regeneración, mayores a 50 hectáreas y menores o iguales a 300 hectáreas, o con proyectos en sistemas agroforestales menores o iguales a 10.000 árboles.
+(Así adicionado el inciso anterior por el artículo 1º del decreto ejecutivo N° 39871 del 14 de julio de 2016)
+(Así reformado por el artículo 1º del decreto ejecutivo N° 35868 del 24 de marzo de 2010)
