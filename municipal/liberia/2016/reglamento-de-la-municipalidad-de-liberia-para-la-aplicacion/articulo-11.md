@@ -1,0 +1,1 @@
+Artículo 11.—Apoyo administrativo. Las unidades municipales, de acuerdo al artículo 59 del Código Municipal, brindarán según sus funciones y competencias el apoyo necesario para la ejecución de los proyectos propuestos por los Concejos de Distrito.

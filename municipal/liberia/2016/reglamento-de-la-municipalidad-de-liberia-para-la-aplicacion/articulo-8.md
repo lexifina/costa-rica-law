@@ -1,0 +1,1 @@
+Artículo 8º—Definición de los proyectos. Cada año los Concejos de Distrito realizarán en el mes de diciembre una consulta comunal para definir los proyectos a ejecutar, con los recursos asignados para el año siguiente.
