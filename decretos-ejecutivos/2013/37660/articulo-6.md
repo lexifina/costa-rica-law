@@ -1,5 +1,1 @@
-Artículo 6°—Para efectos exclusivamente del Plan Piloto a ejecutar durante el año 2013, el FONAFIFO fija como meta el establecimiento de cincuenta mil árboles , bajo la modalidad de sistemas agroforestales y/o silvopastoriles, incluidas dentro del Programa de Plantaciones de Aprovechamiento forestal. Serán sujetos de crédito dentro del Plan Piloto del Programa de Plantaciones de Aprovechamiento Forestal, nuevos proyectos que consideren las siguientes especies:
-1. Especies de rápido crecimiento: Melina (Gmelina arbórea) y Eucalipto (Eucalyptus deglupta).
-2. Especies de mediano crecimiento: Ciprés (Cupressus lusitanica), Jaúl (Alnus acuminata), Nogal (Juglans neotropica), Cedro amargo (Cedrela odorata), laurel (Cordia alliodora) y Teca (Tectona grandis)
-3. Especies de lento crecimiento: Caoba (Swetenia macrophylla) y Ron Ron (Astronium graveolens)
-Los árboles plantados bajo la modalidad del Programa de Plantaciones de Aprovechamiento Forestal, no podrán ser sujetos del pago de servicios ambientales.
+Artículo 6°—(Derogado por el artículo 8 del decreto ejecutivo N° 39871 del 14 de julio del 2016)

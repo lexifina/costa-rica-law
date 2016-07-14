@@ -14,3 +14,4 @@ Fomento Forestal y el pago de servicios ambientales para el año 2013
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-23 | la propia norma |
+| 2 | 2016-07-14 | Decreto Ejecutivo 39871 (2016-07-14) |

@@ -28,4 +28,4 @@ DEL FOMENTO FORESTAL Y EL
 PAGO DE SERVICIOS AMBIENTALES PARA EL AÑO 2013
 CAPÍTULO I
 DEL FOMENTO A LA ACTIVIDAD FORESTAL Y EL CREDITO
-Artículo 1° —El Fondo Nacional de Financiamiento Forestal como encargado de ejecutar las políticas de fomento a la actividad forestal, -con apoyo de los fideicomisos a su cargopodrá establecer y aplicar diferentes medios y mecanismos, entre ellos el crédito. Para cumplir con estas competencias, la Junta Directiva del Fondo Nacional de Financiamiento Forestal establecerá o revisará las políticas y disposiciones del programa de crédito vigente, en donde se establecen las regulaciones para cada actividad, las actividades a financiar, las tasas de interés y demás condiciones que se consideren necesarias para la aplicación de estos mecanismos, así como los correspondientes Manuales de Procedimientos, según se considere necesario.
+Artículo 1° —(Derogado por el artículo 8 del decreto ejecutivo N° 39871 del 14 de julio del 2016)
