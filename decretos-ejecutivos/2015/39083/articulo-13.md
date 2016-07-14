@@ -1,1 +1,2 @@
+(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 39871 del 14 de julio de 2016, se estableció que el presente artículo mantendrá su vigencia indefinidamente para los proyectos de Pago por Servicios Ambientales presentados para el año 2016 y siguientes.)
 Artículo 13.—En caso de que en las solicitudes presentadas se determinara la existencia de traslapes o desplazamiento entre ellas y/o con otras fincas, el FONAFIFO valorará de acuerdo a criterios técnicos y legales la aprobación o no de las solicitudes de ingreso con estas inconsistencias.

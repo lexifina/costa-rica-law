@@ -14,3 +14,4 @@ Pago de servicios ambientales para el año 2015
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-07-24 | la propia norma |
+| 2 | 2016-07-14 | Decreto Ejecutivo 39871 (2016-07-14) |

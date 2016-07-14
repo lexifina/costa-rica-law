@@ -1,1 +1,2 @@
+(Nota de Sinalevi: Mediante el artículo 8° del decreto ejecutivo N° 39871 del 14 de julio de 2016, se estableció que el presente artículo mantendrá su vigencia indefinidamente para los proyectos de Pago por Servicios Ambientales presentados para el año 2016 y siguientes.)
 Artículo 8°—Los recursos no utilizados por el FONAFIFO y los recursos recuperados en virtud de incumplimientos contractuales, serán depositados en una cuenta bancaria que al efecto establezca el citado Fondo y serán presupuestados para la ejecución de nuevos proyectos de Pago de Servicios Ambientales.
