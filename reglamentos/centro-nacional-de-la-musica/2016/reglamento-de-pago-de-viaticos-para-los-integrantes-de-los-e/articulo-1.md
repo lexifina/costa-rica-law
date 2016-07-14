@@ -1,0 +1,26 @@
+CENTRO NACIONAL DE LA MÚSICA Reglamento de pago de viáticos para los integrantes
+de los ensambles del Instituto Nacional
+de la Música
+MINISTERIO DE CULTURA Y JUVENTUD
+CENTRO NACIONAL DE LA MÚSICA
+PAGO DE VIÁTICOS PARA LOS INTEGRANTES DE LOS ENSAMBLES
+MUSICALES DEL INSTITUTO NACIONAL DE LA MÚSICA DEL CENTRO
+NACIONAL DE LA MUSICAL, ÓRGANO DESCONCENTRADO
+DEL MINISTERIO DE CULTURA Y JUVENTUD
+CNM-DG-131-2016.-Ministerio de Cultura y Juventud. Centro Nacional de la Música.-Dirección General. San José, a las catorce horas del cuatro de Julio del dos mil dieciséis. Reglamento para el pago de viáticos a los integrantes de los ensambles musicales del Instituto Nacional de la Música, del Centro Nacional de la Música, Órgano Desconcentrado del Ministerio de Cultura y Juventud.
+Considerando:
+1º-Que el concepto de viático plasmado en el artículo 2 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos está basado en el Principio de No Perjuicio Económico, lo cual significa que por medio de la figura del viático se van a restituir o reconocer al funcionario todas aquellas erogaciones por concepto de alimentación, hospedaje y otros gastos menores que tuviese que realizar para satisfacer sus necesidades, como consecuencia de un desplazamiento temporal o transitorio en cumplimiento de las funciones propias del cargo.
+3º-Que el Instituto Nacional de la Música es una unidad técnica especializada del Centro Nacional de la Música, cuyo fin es desarrollar los programas de formación musical profesional en el Centro, fomentando en sus estudiantes una actitud permanente de superación profesional y humana.
+4º-Que el Instituto Nacional de la Música cuenta con ensambles musicales constituidos por estudiantes que prestan sus servicios de forma ad honorem a la Institución, satisfaciendo el interés público y los fines del citado Centro, sin que el Estado desembolse recursos públicos por ello.
+5º-Que el artículo 3 del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos dispone:
+"Artículo 32.-Sujetos beneficiarios. Los gastos a que se refiere este Reglamento únicamente serán cubiertos a los funcionarios que prestan sus servicios a algún ente público, como parte de su organización, en virtud de un acto válido y eficaz de investidura, con entera independencia del carácter imperativo, representativo, remunerado, permanente o público de la actividad respectiva", disposición que es acorde con lo dispuesto en el artículo 111.1 de la Ley General de la Administración Pública, en cuanto define el concepto de "Servidor Público".
+6º-Que la Contraloría General de la República en el oficio N° 1411 de 11 de febrero de 2010 (DFOESAF- 0047), señaló. "..Cabe indicar, como criterio general para los fines de la decisión que en el caso concreto adopte esa Administración que haciendo una interpretación analógica del anterior oficio, podemos aplicar un tratamiento igual a la figura de la prestación ad honorem de servicios, en el tanto se estaría dando una contraprestación de un servicio, sin que se devengue solario) quedando la entidad pública autorizada para valorar el reconocimiento del pago de los viáticos y transporte, todo conforme los términos del Reglamento de la materia".
+7º-Que con base en el Principio de No Perjuicio Económico se hace necesario regular el pago de viáticos a los integrantes de los ensambles musicales del Instituto Nacional de la Música del Centro Nacional de la Música, a fin de no causarles un menoscabo económico al tener que costearse gastos que de no prestar su servicio ad honorem a esta Institución, no tendrían. Por tanto;
+LA DIRECCIÓN GENERAL DEL CENTRO
+NACIONAL DE LA MUSICA
+RESUELVE:
+PAGO DE VIÁTICOS PARA LOS INTEGRANTES DE LOS ENSAMBLES
+DEL INSTITUTO NACIONAL DE LA MUSICA DEL CENTRO NACIONAL
+DE LA MUSICA, ORGANO DESCONCENTRADO
+DEL MINISTERIO DE CULTURA Y JUVENTUD
+Artículo 1º-Reconocer dentro del concepto de viáticos, el hospedaje, el desayuno, el almuerzo, la cena, así como gastos menores a los integrantes de los ensambles de música del Instituto Nacional de la Música del Centro Nacional de la Música, cuando éstos en razón de la labor ad honorem que brindan a la Institución, deban prestar sus servicios, durante las horas a que se refiere el artículo 20 incisos b) y c) del Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos.
