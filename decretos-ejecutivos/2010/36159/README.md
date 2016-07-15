@@ -14,3 +14,4 @@ Normas Estándares y Competencias de las Entidades Públicas para la aprobación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-08 | la propia norma |
+| 2 | 2016-07-15 | Decreto Ejecutivo 40075 (2016-07-15) |
