@@ -1,0 +1,13 @@
+SERVICIO NACIONAL DE SALUD ANIMAL
+DIRECCIÓN DE MEDICAMENTOS VETERINARIOS
+EDICTOS
+Resolución SENASA-DMV-R75-2016.—Dirección de Medicamentos Veterinarios del Servicio Nacional de Salud Animal.—Heredia, a las diez horas del quince de junio del dos mil dieciséis.
+Considerando:
+I.—Que es obligación del Estado promover y mantener estándares adecuados en el medio ambiente y en especial en la salud de la población y que por tanto es necesario coordinar las acciones en materia de Salud Pública, también desde el punto de vista de la salud animal, la cual incide directamente en la salud humana.
+II.—Que la Dirección de Medicamentos Veterinarios del Servicio Nacional de Salud Animal es el órgano especializado para establecer las regulaciones y controles de medicamentos veterinarios y encargado de administrar su correspondiente registro.
+III.—Que el artículo 17 del Decreto Ejecutivo N° 28861-MAG, “Reglamento de Registro y Control de Medicamentos Veterinarios”, establece la clasificación de medicamentos veterinarios para efectos de su registro y además señala que la misma podrá ser modificada por la jefatura de Medicamentos Veterinarios.
+IV.-Que ante recomendación al SENASA de la Comisión Nacional de Medicamentos Veterinarios en su reunión N°1-2016 del 02 de febrero de 2016, para la adopción de los LMR para ivermectina recomendados por Comité Mixto de Expertos en Aditivos Alimentarios de la FAO y la OMS (JECFA por sus siglas en inglés), la Dirección General del SENASA, mediante Resolución N° directriz SENASA DG-R016-2016 de las ocho horas treinta minutos del siete de abril del dos mil dieciséis, publicada en el Diario Oficial La Gaceta N° 100 del 25 de mayo del 2016, instruyó en su artículo primero a la Dirección de Medicamentos Veterinarios (DMV) del SENASA, para que clasificara a los medicamentos que contengan como ingrediente activo la ivermectina, doramectina, moxidectina o abamectina, en el Grupo 3 de medicamentos veterinarios, conforme a las disposiciones contenidas en el Decreto N° 28861-MAG del 12 desde agosto del 2000, Reglamento de Registro y Control de Medicamentos Veterinarios, en un plazo no mayor a treinta días hábiles a partir de la entrada en vigencia de dicha resolución. Por tanto,
+EL DIRECTOR DE MEDICAMENTOS VETERINARIOS
+DEL SERVICIO NACIONAL DE SALUD ANIMAL
+RESUELVE:
+1º—Clasificar a los medicamentos que contengan como ingrediente activo la ivermectina, doramectina, moxidectina o abamectina, en el Grupo 3 de medicamentos veterinarios, conforme a las disposiciones contenidas en el Decreto N° 28861-MAG del 12 de agosto del 2000, Reglamento de Registro y Control de Medicamentos Veterinarios.

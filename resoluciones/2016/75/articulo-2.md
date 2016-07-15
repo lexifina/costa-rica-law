@@ -1,0 +1,1 @@
+2º—Derogar la Resolución N° SENASA-DMV-005-2011 del 13 de diciembre de 2011, “Clasifica los medicamentos que contengan como ingrediente activo la ivermectina, doramectina, moxidectina y abamectina en el grupo 2 de medicamentos veterinarios conforme al decreto 28861”, publicada en el Diario Oficial La Gaceta N° 36 del 20 de febrero del 2012.
