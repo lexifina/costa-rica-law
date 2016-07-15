@@ -14,3 +14,4 @@ Crea Programa mi Primer Empleo y declara de interés público y nacional el prog
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-16 | la propia norma |
+| 2 | 2016-07-15 | Decreto Ejecutivo 39805 (2016-07-15) |
