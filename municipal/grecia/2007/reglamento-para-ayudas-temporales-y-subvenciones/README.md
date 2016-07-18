@@ -14,3 +14,4 @@ Reglamento para Ayudas Temporales y Subvenciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-08-17 | la propia norma |
+| 2 | 2016-07-18 | Reglamento municipal 0 (2016-07-18) |
