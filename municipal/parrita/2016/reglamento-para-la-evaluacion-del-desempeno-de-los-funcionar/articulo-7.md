@@ -1,0 +1,1 @@
+Artículo 7º—La Oficina de Recursos Humanos velara por la actualización y aplicación del proceso de Evaluación del Desempeño, así como la revisión y mejoras de los formularios y guías de aplicación de este proceso.

@@ -1,0 +1,1 @@
+Artículo 5º—El departamento de Recursos Humanos deberá elaborar una guía completa que explique bien el procedimiento de evaluación del desempeño, así como capacitar año a año a los responsables de aplicar la evaluación del desempeño de los servicios.

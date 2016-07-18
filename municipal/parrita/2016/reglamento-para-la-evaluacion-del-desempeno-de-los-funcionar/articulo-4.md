@@ -1,0 +1,1 @@
+Artículo 4º—El jefe inmediato aplicara el formulario según la clase de puesto a la que pertenece el funcionario o funcionada de acuerdo a las funciones que esté realiza. Para ello el departamento de Recursos Humanos deberá indicarlo a la hora de la entrega.
