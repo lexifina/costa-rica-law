@@ -72,4 +72,12 @@ h) Otros
 1) Farmacia forense
 2) Farmacia veterinaria
 3) Auditoría farmacéutica
+19) Gerencia industrial
+(Así adicionada la especialidad anterior en Asamblea General Extraordinaria celebrada el 18 de julio de 2016)
+43) Farmacia magistral
+(Así adicionada la especialidad anterior en Asamblea General Extraordinaria celebrada el 18 de julio de 2016)
+46) Asuntos Regulatorios
+(Así adicionada la especialidad anterior en Asamblea General Extraordinaria celebrada el 18 de julio de 2016)
+48) Gestión Ambiental.
+(Así adicionada la especialidad anterior en Asamblea General Extraordinaria celebrada el 18 de julio de 2016)
 (Así reformado en asamblea general ordinaria y extraordinaria del 9 de diciembre de 2012)
