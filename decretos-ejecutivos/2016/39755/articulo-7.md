@@ -1,0 +1,1 @@
+Artículo 7.- Obligaciones de los Directores, Jefes y Funcionarios: Los Directores, Jefes y Funcionarios en general, tienen el deber, de entregar al solicitante del bien mueble, una copia del formulario, una vez que sea autorizado el préstamo, conforme el procedimiento descrito.

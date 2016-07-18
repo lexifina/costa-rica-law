@@ -1,0 +1,1 @@
+Artículo 2°.- Ámbito de Aplicación. Las disposiciones de este Reglamento son de acatamiento obligatorio para todos los servidores del Ministerio de Cultura y Juventud, sus Programas y Órganos desconcentrados.

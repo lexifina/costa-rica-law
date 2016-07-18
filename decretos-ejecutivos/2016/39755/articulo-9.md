@@ -1,0 +1,1 @@
+Artículo 9.- Traslado de viene muebles fuera de la Institución. En caso de que los bienes muebles propiedad del Ministerio y sus Órganos Desconcentrados deban trasladarse fuera de su sede central, la jefatura de la unidad y/o el funcionario responsable, deberá cumplir con los procedimientos institucionales para la salida del bien.

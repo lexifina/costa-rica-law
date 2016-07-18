@@ -1,0 +1,1 @@
+Artículo 11.- Sanciones aplicables. Los funcionarios que incumplan las obligaciones y deberes contenidos en este Reglamento, serán sancionados de acuerdo con las disposiciones disciplinarias aplicables, sin perjuicio de la responsabilidad civil o penal que pueda derivarse.
