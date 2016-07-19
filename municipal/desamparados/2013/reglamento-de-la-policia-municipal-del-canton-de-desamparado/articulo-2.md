@@ -21,5 +21,8 @@ r) Abrir una línea directa receptora de denuncias en el puesto de la Oficialía
 s) Poner la denuncia ante el organismo nacional que corresponda, de cualquier acto ilícito que en cumplimiento de sus funciones determine la Policía Municipal.
 t) Se mantendrá el sistema de vigilancia y monitoreo que actualmente opera, procurando que el mismo sea extendido, de forma que permita su desarrollo e instalación en puntos estratégicos del cantón.
 u) Incentivar la creación de una unidad canina de apoyo a la labor policial.
-v) Las demás funciones que le asigne la ley y las autoridades superiores de la Municipalidad.
+v) Confeccionar las boletas por infracciones de tránsito contempladas en los artículos 96, 143, 144, 145, 146, y 147 de la ley 9078 Ley de Tránsito por Vías Públicas, Terrestres y Seguridad Vial, según lo estipula el artículo 214 de ese cuerpo normativo.
+(Así reformado el inciso anterior mediante sesión N° 18-2016 del 19 de julio del 2016)
+w) Las demás funciones que le asigne la ley.
+(Así adicionado el inciso anterior mediante sesión N° 18-2016 del 19 de julio del 2016)
 El presente artículo, así como cada uno de sus respectivos incisos, supedita sus alcances a la disponibilidad de recursos presupuestarios.
