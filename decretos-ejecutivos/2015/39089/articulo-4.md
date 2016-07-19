@@ -1,2 +1,2 @@
-Artículo 4º—Rige a partir de su publicación.
-Dado en la provincia de San José a los dieciséis días del mes de julio del dos mil quince.
+Artículo 4º—Definición: Se entenderá para efectos de este Decreto a la Economía Social Solidaria como: “el conjunto de actividades económicas y empresariales realizadas en el ámbito privado por diversas entidades y organizaciones, para satisfacer el interés colectivo de las personas que las integran y el interés general económico social de los territorios donde se ubican.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39835 del 19 de julio del 2016)

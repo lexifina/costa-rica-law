@@ -14,3 +14,4 @@ Declara de interés público y nacional el Fomento, Creación, Desarrollo y Form
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-18 | la propia norma |
+| 2 | 2016-07-19 | Decreto Ejecutivo 39835 (2016-07-19) |
