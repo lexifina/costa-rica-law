@@ -1,0 +1,1 @@
+Artículo 3. El concesionario realizará inspección periódicas de escaleras, muelles, rampas, equipos de seguridad, entradas y salidas; equipos específicos de cada atracción, de acuerdo a la atracción que se haya concesionado. Así mismo el ICODER podrá realizar esta labor cuando lo crea pertinente.
