@@ -1,0 +1,1 @@
+Artículo 4º—Naturaleza del Comité. Es un órgano catalizador de la ética institucional, dedicada a promover, formar y fortalecer en temas de ética y valores, mediante las acciones en el marco ético y valores de Correos de Costa Rica.
