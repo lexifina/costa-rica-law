@@ -1,0 +1,1 @@
+Artículo 7. Publicidad de información.- Con el fin de propiciar una política de transparencia, la Dirección General de Hacienda podrá publicitar por los medios que estime pertinentes información relacionada con la gestión que realizan las Direcciones que conforman el Área de Ingresos, atinente al Régimen de Zonas Francas, de conformidad con la normativa vigente.
