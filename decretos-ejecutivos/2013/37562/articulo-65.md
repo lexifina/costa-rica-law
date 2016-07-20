@@ -36,15 +36,14 @@ Uveítis. | Artículo No. 96
 Subespecialidad de la Otorrinolaringología Artículo No. 97
 Otorrinolaringología Pediátrica | Artículo No. 98
 Subespecialidad de la Ortopedia y Traumatología Artículo No. 99
-Ortopedia y Traumatología Infantil Medicina Deportiva Ortopédica (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) | Artículo No. 100 Artículo 143 (Así el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016)
-Subespecialidades de la Pediatría Artículo No. 101
+Ortopedia y Traumatología Infantil Medicina Deportiva Ortopédica (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) Subespecialidades de la Pediatría (Así reformada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) | Artículo No. 100 Artículo 143 (Así el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) Artículo No. 102 (Así reformado el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016)
 Adolescencia y Medicina del Desarrollo. | Artículo No. 102
 Cardiología Pediátrica. | Artículo No. 103
 Endocrinología Pediátrica. | Artículo No. 104
 Gastroenterología Pediátrica. | Artículo No. 105
 Genética Infantil | Artículo No. 106
 Hematología Pediátrica. | Artículo No. 107
-Infectología Pediátrica. | Artículo No. 108
+Infectología Pediátrica. Medicina Adolescente (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) | Artículo No. 108 Artículo 145 (Así adicionado el punto mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016)
 Medicina Crítica Pediátrica. | Artículo No. 109
 Medicina de Emergencias Pediátricas. | Artículo No. 110
 Nefrología Pediátrica. | Artículo No. 111
@@ -75,6 +74,6 @@ Radioterapia Pediátrica. | Artículo No. 135
 Subespecialidades de la Urología. Artículo No. 136
 Urología Pediátrica Ginecología Urológica (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2015-08-12 del 12 de agosto de 2015) | Artículo No. 137
 Subespecialidad de la Neurocirugía, Neurología y Artículo No. 138 Radiología e Imágenes Médicas.
-Neuroradiología Quirúrgica Endovascular | Artículo No. 139
+Neuroradiología Quirúrgica Endovascular Subespecialidad en Medicina Familiar (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) Medicina adolescente (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) | Artículo No. 139 Artículo 144 (Así adicionado el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) Artículo 145 (Así adicionado el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016)
 | |
 (Así reformado por el artículo 1° del decreto ejecutivo N° 39288 del 29 de julio del 2015)

@@ -1,6 +1,7 @@
-Artículo 145°- -Rige a partir de su publicación.
-Dado en la Presidencia de la República- San José, a los ocho días del mes de enero de dos mil trece.
-(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 141 al 142)
-(Corrida su numeración mediante sesión ordinaria N° 2016-03-09 del 9 de marzo de 2016, que lo traspasó del antiguo 142 al 143)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-13 del 13 de julio del 2016, que lo traspasó del antiguo 143 al 144)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016, que lo traspasó del antiguo 144 al 145)
+Artículo 145.—Medicina del adolescente. Se reconoce como sinónimos de la Subespecialidad en Medicina del Adolescente los siguientes términos:
+ü Medicina en Adolescencia.
+ü Cuidado de la Salud Adolescente.
+Requisitos específicos:
+a Estar debidamente inscrito y acreditado como Especialista en Pediatría o como Especialista en Medicina Familiar y Comunitaria ante el Colegio de Médicos y Cirujanos de Costa Rica.
+b. Aprobación y acreditación de un (1) año en un programa de estudios de posgrado (residencia médica) en la Subespecialidad en Medicina del Adolescente en un Hospital de Tercer Nivel o Centro Especializado, perteneciente o adscrito a una Universidad de reconocido prestigio.
+(Así adicionado mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016)
