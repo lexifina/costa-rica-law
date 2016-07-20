@@ -36,7 +36,7 @@ Uveítis. | Artículo No. 96
 Subespecialidad de la Otorrinolaringología Artículo No. 97
 Otorrinolaringología Pediátrica | Artículo No. 98
 Subespecialidad de la Ortopedia y Traumatología Artículo No. 99
-Ortopedia y Traumatología Infantil | Artículo No. 100
+Ortopedia y Traumatología Infantil Medicina Deportiva Ortopédica (Así adicionada la subespecialidad anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016) | Artículo No. 100 Artículo 143 (Así el punto anterior mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016)
 Subespecialidades de la Pediatría Artículo No. 101
 Adolescencia y Medicina del Desarrollo. | Artículo No. 102
 Cardiología Pediátrica. | Artículo No. 103
