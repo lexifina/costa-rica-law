@@ -1,0 +1,1 @@
+ARTÍCULO 2.-La suspensión prevista en el artículo anterior no excluye dictar las medidas cautelares judiciales o administrativas por las autoridades competentes, cuando se determine la comisión de daño ambiental o peligro o amenaza de daño al medio ambiente.
