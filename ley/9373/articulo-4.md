@@ -1,0 +1,1 @@
+ARTÍCULO 4.-En ningún caso, la aplicación de esta ley favorecerá la constitución de derechos a favor de los ocupantes de las zonas objeto de la moratoria. Asimismo, los ocupantes no podrán realizar modificaciones en las obras, las actividades y los proyectos ubicados en las zonas objeto de la moratoria.
