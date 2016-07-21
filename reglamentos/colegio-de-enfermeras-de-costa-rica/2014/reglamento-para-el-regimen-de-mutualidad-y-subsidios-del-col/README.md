@@ -14,3 +14,4 @@ Reglamento para el Régimen de Mutualidad y Subsidios del Colegio de Enfermeras 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-31 | la propia norma |
+| 2 | 2016-07-21 | Reglamento 0 (2016-07-21) |

@@ -1,4 +1,3 @@
-Artículo 21.—Obligaciones de los miembros del COVFOM: Son obligaciones de los miembros del COVFOM.
-a) Asistir puntualmente a las sesiones del Comité de Vigilancia del Fondo de Mutualidad, sean éstas ordinarias o extraordinarias, convocadas por la persona coordinadora del Comité o por la Junta Directiva del Colegio de Enfermeras de Costa Rica.
-b) Ejercer el voto afirmativo o negativo en todos aquellos asuntos sometidos a decisión del Comité. Por ser una instancia de toma de decisiones no procede que un miembro ejerza el voto de abstención.
-c) Abstenerse de participar en la discusión y votación de todos aquellos asuntos, donde pueda tener interés personal directo o alguno de sus familiares hasta el tercer grado de consanguinidad o afinidad.
+Artículo 21.- Cese de funciones. Cesará en sus funciones aquel miembro del comité:
+a)Ausencia injustificadamente a tres sesiones consecutivas o en su defecto a cinco ausencias de manera justificada en un período de seis meses, salvo en casos de fuerza mayor o caso fortuito enfermedad incapacitante médicamente certificada. Estas ausencias deberán ser de conocimiento ante de la Junta Directiva del Colegio de Enfermeras de Costa Rica, para que se formule la solicitud de destitución y nombramiento del nuevo miembro.
+b)Otra causa de destitución de un miembro será en el caso probado de que dicho miembro obstruya la función de este comité según Reglamento.

@@ -1,3 +1,2 @@
-Artículo 27.—De la aprobación, publicación y vigencia de este Reglamento: El presente Reglamento se aprobó, por mayoría simple de los miembros presentes en la Asamblea General Extraordinaria, convocada para tal efecto por la Junta Directiva del Colegio de Enfermeras de Costa Rica.
-Las reformas totales o parciales que se le hagan a este Reglamento, posterior a su aprobación por parte de la Asamblea Extraordinaria, deberán ser aprobadas por mayoría simple de los miembros presentes de la Asamblea que corresponda.
-Una vez aprobado el reglamento o sus reformas, deberán publicarse en el Diario Oficial La Gaceta, y diez días hábiles después de su publicación entrará en vigencia.
+Capítulo X.- Disposiciones transitorias
+Artículo 27.- Estudio actuarial. Los montos, beneficios y coberturas que dan origen a este fondo de mutualidad, serán derivados del estudio actuarial y actualizados cada cinco años a partir de julio 2016, sometidos y aprobados por la Asamblea General Extraordinaria, convocada por la Junta Directiva del Colegios de Enfermeras de Costa Rica. De tal manera que se asegure la sustentabilidad del fondo.

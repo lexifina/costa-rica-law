@@ -1,3 +1,2 @@
-CAPÍTULO X
-Disposiciones transitorias
-Artículo 28.—Estudio actuarial: Los montos, beneficios y coberturas que dan origen a este fondo de mutualidad, serán derivados del estudio actuarial y actualizados cada cinco años a partir de julio 2011, sometidos y aprobados por la Asamblea General Extraordinaria, convocada por la Junta Directiva del Colegios de Enfermeras de Costa Rica. De tal manera que se asegure la sustentabilidad del fondo.
+Artículo 28.- Plazo para el pago de cuotas. A partir de la vigencia de este Reglamento, todas aquellas personas colegiadas que no realizaron la migración del Fondo de Mutualidad, Créditos y Subsidios aprobado en fecha Julio 2011, tendrán la oportunidad de ingresar al nuevo régimen de fondo de mutualidad y subsidios, por única vez en un plazo de seis meses, posterior a este plazo, se otorgará un año, para solicitar el reclamo correspondiente, se debe realizar una actualización de las cuotas a partir de la vigencia de este Reglamento.
+El agremiado o agremiada que no solicite el cambio al nuevo régimen, quedará cubierto por el régimen al cual esté afiliado.

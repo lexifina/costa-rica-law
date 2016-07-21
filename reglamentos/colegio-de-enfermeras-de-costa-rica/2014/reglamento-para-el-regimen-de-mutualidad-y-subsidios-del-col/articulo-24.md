@@ -1,3 +1,5 @@
-Artículo 24.—Funciones de los demás miembros de la COVFOM:
-a) Asistir puntualmente con voz y voto a las sesiones de la COVFOM.
-b) Sustituir cuando fuere necesario en las ausencias temporales o definitivas por su orden.
+Capítulo VIII.- Unidad de soporte administrativo y financiero-contable
+Artículo 24.- Unidad de Soporte.
+a)Administración y financiero: COVFOM contará con la colaboración de las instancias administrativas y financiero contable del Colegio de Enfermeras de Costa Rica, las cuales responderán a las necesidades presentadas por este comité y que serán aprobadas por la Junta Directiva de la Corporación.
+b)Fiscalía: COVFOM podrá realizar consultas a la fiscalía del Colegio de Enfermeras de Costa Rica, en aquellos asuntos que afecten el funcionamiento de la misma.
+c)Asesoría legal: La asesoría legal del Colegio de Enfermeras de Costa Rica, apoyara a la COVFOM en asuntos jurídicos previa aprobación de la Junta Directiva del Colegio de Enfermeras de Costa Rica.

@@ -1,6 +1,6 @@
-CAPÍTULO IV
-De los miembros del fondo
-Artículo 8º—De los afiliados y afiliadas: De conformidad con la Ley Orgánica del Colegio de Enfermeras de Costa Rica y su reglamento, se considerarán afiliados y afiliadas al Fondo, con igualdad de derechos y obligaciones:
-a) Todas las personas profesionales en enfermería incorporadas como miembros de la Corporación con sus obligaciones al día al régimen del Fondo de Mutualidad y Subsidios y al Colegio de Enfermeras de Costa Rica.
-b) Automáticamente con la incorporación al Colegio, queda afiliado(a) al Fondo de Mutualidad y Subsidio, en la medida que cumpla con los demás requisitos que establezca este Reglamento.
-c) También conservarán su condición de afiliados (as), todos aquellos profesionales en enfermería que se hayan pensionado por cualesquiera de los regímenes establecidos por ley, siempre y cuando se mantengan pagando sus cuotas al Fondo de Mutualidad y Subsidio del Colegio de Enfermeras de Costa Rica y cumplan con las demás obligaciones establecidas en este Reglamento.
+Artículo 8.- De la desafiliación. Dejarán de ser miembros del Fondo:
+a)Todas aquellas personas colegiadas que se retiren de manera voluntaria y permanente del ejercicio de la profesión, debidamente aprobado por la Junta Directiva del Colegio de Enfermeras de Costa Rica.
+b)Las personas colegiadas, que dejaren de pagar sus cuotas de colegiatura por más de tres meses consecutivos, sin justa causa.
+c)Las personas colegiadas que soliciten ausentarse del país, así como aquellos que soliciten la suspensión temporal de su ejercicio profesional ante la Junta Directiva del Colegio de Enfermeras de Costa, dejarán de ser miembros del Fondo durante ese mismo período de su ausencia, de tal manera que al reincorporarse -si fuere ese el caso- deberán cancelar todas las cuotas de colegiatura dejadas de pagar durante ese período.
+d)Todos aquellas personas colegiadas, a quienes se les suspenda su licencia de profesionales en enfermería.
+e)Todos aquellas personas colegiadas, que fallecieron y el Fondo cumplió con sus beneficios.

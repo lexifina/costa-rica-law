@@ -1,1 +1,5 @@
-Artículo 7º—Cuentas separadas: Todos los dineros o ingresos correspondientes al Fondo, deberán ser depositados en las cuentas bancarias propias del Colegio de Enfermeras de Costa Rica, destinadas para el Fondo de Mutualidad y Subsidios, para tal efecto deberán registrarse en esas entidades bancarias, las firmas de Presidencia y Tesorería, de la Junta Directiva del Colegio de Enfermeras de Costa Rica.
+Capítulo IV.- De los miembros del fondo
+Artículo 7.- De los miembros del Fondo. De conformidad con la Ley Orgánica del Colegio de Enfermeras de Costa Rica y su Reglamento, se considerarán miembros del Fondo, con igualdad de derechos y obligaciones:
+a)Todas las personas colegiadas.
+b)Automáticamente con la incorporación al Colegio, pasa a ser miembro del Fondo de Mutualidad y Subsidio, en la medida que cumpla con los demás requisitos que establezca este Reglamento.
+c)También conservarán su condición de miembros, todos aquellos profesionales en enfermería que se hayan pensionado por cualesquiera de los regímenes establecidos por ley, siempre y cuando se mantengan pagando sus cuotas de colegiatura del Colegio de Enfermeras de Costa Rica y cumplan con las demás obligaciones establecidas en este Reglamento.
