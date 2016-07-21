@@ -25,3 +25,4 @@ Reglamento General de Organización y Funcionamiento de la Junta de Pensiones y 
 | 10 | 2015-03-05 | Reglamento 28 (2015-03-05) |
 | 11 | 2015-06-10 | Reglamento 65 (2015-06-10) |
 | 12 | 2016-03-15 | Reglamento 33 (2016-03-15) |
+| 13 | 2016-07-21 | Reglamento 77 (2016-07-21) |
