@@ -1,1 +1,0 @@
-Artículo 3º—El monto total del fondo de caja chica y el monto de pago máximo por vale lo fijará el Concejo Municipal previa solicitud del Alcalde Municipal, será utilizado para el pago de gastos menores y urgentes.

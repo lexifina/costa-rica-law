@@ -1,1 +1,0 @@
-Artículo 5º—Los formularios para el trámite de vales deberá firmarlo el Alcalde, el Tesorero y el funcionario interesado, corresponde al funcionario que realiza la compra velar porque los bienes o servicios beneficien en precio y calidad a la Municipalidad
