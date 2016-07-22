@@ -1,0 +1,1 @@
+Artículo 72º—Sanciones. Las faltas comprobadas a las disposiciones derivadas de la relación laboral existente entre los funcionarios de la Auditoría Interna con la Aresep y Sutel serán sancionadas conforme lo establecido en el Reglamento Autónomo de las Relaciones de Servicio entre la Autoridad Reguladora de los Servicios Públicos, su Órgano Desconcentrado y sus Funcionarios.

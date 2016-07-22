@@ -1,0 +1,1 @@
+Artículo 5º—Valor agregado. El valor agregado de la Auditoría se mide en términos de su contribución a que se alcancen los objetivos institucionales de la Aresep y Sutel, mediante la práctica de un enfoque sistémico y profesional para evaluar y mejorar la efectividad de la administración del riesgo, del control y de los procesos de dirección institucionales.

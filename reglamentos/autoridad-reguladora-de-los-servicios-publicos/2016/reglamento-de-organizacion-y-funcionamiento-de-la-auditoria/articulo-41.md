@@ -1,0 +1,2 @@
+Artículo 41º—Contratación de servicios por excepción. Para el desarrollo de investigaciones cuya agilidad y confidencialidad lo ameriten, la Auditoría Interna podrá contratar servicios profesionales especiales, amparada en el artículo 2 inciso d) de la Ley de Contratación Administrativa, N°7494 y artículo 131 p) del Reglamento a esa Ley.
+La Auditoría Interna deberá plantear su requerimiento, como parte del canon y presupuesto del año respectivo, sin perjuicio de que la necesidad surja en el transcurso del período y el requerimiento se efectúe de manera extraordinaria.

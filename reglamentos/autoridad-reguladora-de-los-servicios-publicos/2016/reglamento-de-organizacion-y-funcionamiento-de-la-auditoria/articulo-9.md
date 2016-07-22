@@ -1,0 +1,1 @@
+Artículo 9º—Definición de ideas rectoras. Le compete al Auditor Interno el proceso de planificación estratégica de la Auditoría Interna, la definición de sus objetivos, políticas, misión, visión, los valores éticos que deben tener en cuenta los funcionarios de la Auditoría. Esta planificación debe ser congruente con la misión, la visión y los objetivos institucionales.

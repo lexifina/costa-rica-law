@@ -1,0 +1,3 @@
+Artículo 21º—Objetividad individual y ética profesional. El personal de la Auditoría Interna, deberá mantener elevados valores de conducta para ejercer la actividad de la auditoría interna, entre otros, los de justicia, equidad, oportunidad, servicio, lealtad, objetividad, independencia, integridad, respeto y motivación para el aprendizaje y la mejora continua. Dichos valores deben de
+ponerse de manifiesto en sus actuaciones y prevenir cualquier posibilidad de duda en su gestión. Asimismo, los funcionarios de la Auditoría Interna deberán tener una actitud imparcial y neutral
+para evitar conflictos de intereses y proteger su independencia.

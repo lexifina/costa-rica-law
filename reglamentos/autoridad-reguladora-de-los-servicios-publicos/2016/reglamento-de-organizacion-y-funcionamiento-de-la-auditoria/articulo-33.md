@@ -1,0 +1,2 @@
+SECCIÓN V. Dirección y control de gestión de la Auditoría Interna
+Artículo 33º—Gestión de supervisión. El Auditor Interno deberá incluir dentro de los procedimientos de trabajo, los lineamientos de supervisión y será responsable de su efectividad. Para ello, debe propiciar que los esfuerzos de todos los niveles jerárquicos dentro de la Auditoría Interna se dirijan al cumplimiento de los objetivos.

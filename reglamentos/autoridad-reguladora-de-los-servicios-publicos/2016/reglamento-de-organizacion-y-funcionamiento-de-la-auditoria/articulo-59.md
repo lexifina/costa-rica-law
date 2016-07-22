@@ -1,0 +1,2 @@
+SECCIÓN V. Del seguimiento de recomendaciones
+Artículo 59º—Obligación de implantar las recomendaciones. El máximo Jerarca, jerarca administrativo, o el titular subordinado, una vez aceptadas las recomendaciones de la Auditoria Interna, será responsable de la acción correctiva, de implementar y dar seguimiento a las recomendaciones de manera oportuna y efectiva, para lo que deberá establecer políticas, procedimientos y sistemas para comprobar las acciones llevadas para asegurar el correcto y oportuno cumplimiento.

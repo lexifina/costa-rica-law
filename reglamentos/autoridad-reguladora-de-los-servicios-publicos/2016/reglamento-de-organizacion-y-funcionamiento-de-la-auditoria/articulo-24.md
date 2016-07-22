@@ -1,0 +1,6 @@
+Artículo 24º—Impedimentos del personal de la Auditoría Interna. Con el propósito de no perjudicar su objetividad individual y ética profesional, el personal de la Auditoría Interna deberá:
+a) No utilizar su cargo oficial con propósitos de carácter privado.
+b) Evitar relaciones que impliquen un riesgo de corrupción, que puedan suscitar dudas acerca de la objetividad e independencia del personal, o influir, comprometer o amenazar la capacidad para actuar o la imagen de la Auditoría Interna. Si la independencia y objetividad se ven comprometidas de hecho o en apariencia, los detalles del impedimento deben darse a conocer por escrito al jerarca y demás partes interesadas.
+c) Abstenerse de auditar operaciones de las cuales hayan sido previamente responsables de su ejecución como funcionarios de la Administración, proveedores, o prevalezcan relaciones familiares entre estos y el personal de la Auditoría, hasta el tercer grado de consanguinidad.
+Este impedimento se hace extensivo tratándose de las citadas operaciones, en relación con la prestación de los servicios de asesoría y advertencia.
+d) Omitir la participación en la prestación de servicios para una actividad en la que se tuvo responsabilidades o relaciones que puedan resultar incompatibles.

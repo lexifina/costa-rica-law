@@ -1,0 +1,2 @@
+Artículo 4º—Ámbito de aplicación y género. El presente Reglamento es de carácter obligatorio para todos los funcionarios de la Auditoría Interna y para el resto de los funcionarios de la administración activa, en la materia que les fuere aplicable.
+Para efectos de este reglamento, cuando se hace alusión al cargo, puesto o condición de una persona, debe entenderse que se hace sin distinción o discriminación de género.

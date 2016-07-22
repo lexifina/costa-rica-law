@@ -1,0 +1,3 @@
+Artículo 40º—Gestión de plazas nuevas, vacantes y disminución. Corresponde al Auditor Interno proponer a la Aresep y Sutel, debidamente justificada, la creación de plazas, así como gestionar oportunamente lo relativo a las plazas vacantes de la Auditoría Interna y a la unidad de Recursos Humanos atender dichas gestiones en un plazo de 3 meses a efectos de cumplir con el plazo establecido por el artículo 28 de la Ley General de Control Interno, N°8292.
+Dicho plazo podrá prorrogarse por tres meses más, por razones debidamente acreditadas en el expediente que se confeccione al efecto.
+Cuando se pretenda disminuir plazas de la Auditoría Interna, necesariamente se debe contar con la autorización previa del titular de la Auditoría Interna.

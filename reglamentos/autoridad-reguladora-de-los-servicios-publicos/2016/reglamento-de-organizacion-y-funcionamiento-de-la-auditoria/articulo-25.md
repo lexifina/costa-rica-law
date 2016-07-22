@@ -1,0 +1,1 @@
+Artículo 25º —Uniformidad de criterios. El Auditor Interno aplicará criterios uniformes en el ejercicio de las competencias y en las relaciones con los sujetos pasivos; ejerciendo la dirección y administración de la Auditoría Interna, conforme los lineamientos, directrices, políticas e instrucciones pertinentes, según la normativa jurídica y técnica.

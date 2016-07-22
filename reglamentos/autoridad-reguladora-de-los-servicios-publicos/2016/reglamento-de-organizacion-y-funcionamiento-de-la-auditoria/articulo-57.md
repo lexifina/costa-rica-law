@@ -1,0 +1,1 @@
+Artículo 57º—Planteamiento de conflictos ante la Contraloría General de la República. Firme la resolución de la Junta Directiva de la Aresep, que ordene soluciones distintas de las recomendadas por la Auditoría Interna, esta podrá acogerse a lo dispuesto en el artículo Nº 38 de Ley general de control interno, N°8292.

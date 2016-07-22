@@ -1,0 +1,1 @@
+Artículo 71º—Sanciones administrativas aplicables por faltas a la Ley general de control interno. Según la gravedad de las faltas, se le aplicará lo establecido en el artículo 41 de la Ley General de Control Interno, N°8292, por parte de órgano que ostente la potestad disciplinaria en la Aresep y Sutel o externamente, conforme al artículo 42 de dicha ley.

@@ -1,0 +1,4 @@
+SECCIÓN III. De la comunicación de resultados
+Artículo 51º—Conferencia Final. De previo a la comunicación escrita y oficial del informe, la Auditoría Interna debe realizar la comunicación verbal de resultados o conferencia final, ante quienes sean responsables de poner en práctica las recomendaciones, a fin de exponer los resultados, conclusiones y recomendaciones de la auditoría, de conformidad con lo establecido por las políticas y procedimientos de la auditoría.
+Para tal efecto, la Auditoría Interna convocará por escrito a los interesados, Se exceptúan del proceso de comunicación oral los resultados de los informes de relaciones de hechos y servicios preventivos.
+La realización de dicha comunicación se documentará y archivará en el expediente respectivo mediante el acta de conferencia final.

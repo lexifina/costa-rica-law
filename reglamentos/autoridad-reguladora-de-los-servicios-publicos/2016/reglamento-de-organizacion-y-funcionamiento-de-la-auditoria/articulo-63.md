@@ -1,0 +1,3 @@
+Artículo 63º—Informe anual sobre el estado de las recomendaciones. El Auditor Interno debe elaborar y presentar ante la Junta Directiva de la Aresep un informe anual sobre el estado de las recomendaciones emitidas por la Auditoría Interna, de las disposiciones emanadas de la Contraloría General de la República y de los despachos de contadores públicos, en los últimos dos
+casos, sin perjuicio de que se elaboren informes y se presenten ante dicho órgano colegiado cuando las circunstancias lo ameriten y sean de su conocimiento. Asimismo, se elaborará este tipo
+de informe para la Sutel y se presentará al Consejo de Sutel.

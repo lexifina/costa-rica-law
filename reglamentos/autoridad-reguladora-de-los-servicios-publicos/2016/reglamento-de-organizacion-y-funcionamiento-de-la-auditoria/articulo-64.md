@@ -1,0 +1,4 @@
+SECCIÓN VI. Trámite de denuncias
+Artículo 64º—Trámite de denuncias. La Auditoría Interna dará trámite a las denuncias que presenten los ciudadanos en forma escrita verbal o por cualquier otro medio. No se dará trámite a las denuncias anónimas, en casos excepcionales podrá abrirse de oficio una investigación preliminar, cuando incluya pruebas que den mérito para ello. Las denuncias también pueden ser presentadas por los funcionarios públicos en atención a su deber de denunciar los presuntos actos de corrupción de los que tengan conocimiento que se produzcan en ejercicio de la función pública.
+Se prepara el acuse de recibo de la denuncia, dentro del plazo de diez días hábiles posteriores a su recepción, conforme al artículo 32 de la Ley de la jurisdicción constitucional, N°7135.
+Las denuncias atendidas se instruirán bajo la ordenación de los principios de informalidad, oficiosidad, celeridad y eficacia.
