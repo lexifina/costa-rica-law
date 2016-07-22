@@ -1,0 +1,1 @@
+Artículo 12: El Departamento Financiero revisara las solicitudes de modificación de acuerdo a la legislación vigente y, confeccionara el documento respectivo que contendrá todos los aumentos, disminuciones y justificaciones.

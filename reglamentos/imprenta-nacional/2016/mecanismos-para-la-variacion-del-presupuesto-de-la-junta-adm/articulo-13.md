@@ -1,0 +1,1 @@
+Artículo 13: Mediante documento escrito, el Departamento Financiero trasladará el proyecto presupuestario, presentando los cuadros al mismo nivel de detalle que fue aprobado en el presupuesto ordinario y solicitará la respectiva aprobación según sea el caso a la Junta Administrativa o el Director Ejecutivo.

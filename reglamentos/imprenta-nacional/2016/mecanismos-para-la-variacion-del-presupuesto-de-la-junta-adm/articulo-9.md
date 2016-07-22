@@ -1,0 +1,3 @@
+Artículo 9: Procedimiento para las modificaciones internas Los funcionarios citados en el artículo anterior deberán plantear por escrito, la solicitud de modificación presupuestaria ante la jefatura del Departamento Financiero.
+Cuando la modificación pretenda aumentar una subpartida, de previo al inicio de dicha solicitud, primero debe obtenerse el visto bueno del Director responsable de la subpartida que sufrirá la disminución presupuestaria. El visto bueno o acuerdo entre las partes debe constar por escrito.
+El visto bueno indicado en el párrafo anterior no es necesario, cuando los recursos que se movilizarán se encuentran dentro del mismo ámbito de responsabilidad o competencia del solicitante.

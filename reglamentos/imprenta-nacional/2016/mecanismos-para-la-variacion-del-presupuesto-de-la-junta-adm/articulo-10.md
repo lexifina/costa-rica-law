@@ -1,0 +1,1 @@
+Artículo 10: Antes de someter a estudio una solicitud de modificación, el interesado debe consultar por escrito a la Unidad Interna de Planificación, si el cambio presupuestario generará cambios en el Plan Anual Operativo (PAO). Si fuera así, entonces la solicitud de modificación debe elevarse ante la Junta Administrativa, previa propuesta de modificación en el PAO.
