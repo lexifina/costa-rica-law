@@ -1,1 +1,1 @@
-Artículo 8º—Se establece el precio mínimo para la calidad 80/20 que pasa de ¢657,00 a un precio de ¢631,00 por kilogramo, de acuerdo con la actualización del modelo de costos del industrial y tomando en consideración la fórmula establecida en el artículo 2° del presente Decreto.
+Artículo 8º—(Derogado por el artículo 2° del decreto ejecutivo N° 39889 del 22 de julio de 2016)
