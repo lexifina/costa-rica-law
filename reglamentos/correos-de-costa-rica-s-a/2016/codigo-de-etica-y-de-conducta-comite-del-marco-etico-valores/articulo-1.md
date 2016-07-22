@@ -1,0 +1,38 @@
+CORREOS DE COSTA RICA S. A.
+CÓDIGO DE ÉTICA Y DE CONDUCTA
+Abril 2016
+COMITÉ DEL MARCO ÉTICO VALORES
+Mensaje del gerente general
+Correos de Costa Rica S.A, asumió el firme compromiso de llevar a cabo sus actividades de conformidad con la letra y el espíritu de la ley, por lo cual este Código viene a convertirse en la piedra angular de nuestro compromiso con la integridad y la ética.
+Actuar con integridad y transparencia es más que proteger la imagen y la reputación de nuestra Empresa, es garantizar un lugar de trabajo en donde seamos conscientes de que nuestro actuar es de conformidad con los más fieles principios éticos y morales. Esto significa actuar con honestidad, transparencia y tratar, a cada uno de nosotros, nuestros clientes, socios comerciales y proveedores, de manera justa y digna.
+El Código de Ética y de Conducta se convierte entonces en nuestra guía de conducta, en el pilar de nuestras relaciones y creencias empresariales, por ello consérvelo y consúltelo frecuentemente y más importante aún, practíquelo hasta que la conducta ética sea una actuación natural.
+Vivamos intensamente nuestros valores y principios éticos, asegurándonos que estos serán nuestro estandarte ante un mercado altamente competitivo; seamos garantes de los mismos por medio de nuestras acciones transparentes, honradas y honestas con nuestros clientes, aliados estratégicos y proveedores.
+1.1. Objetivo: Establecer un marco ético empresarial que declare los principios y valores éticos que deben prevalecer en Correos de Costa Rica S. A., por lo que se asume como fundamento para guiar el accionar de la Empresa, las conductas de todos nosotros, sus miembros y el correcto proceder, en el cumplimiento de las funciones de quienes en ella laboramos.
+1.2. Alcance: ¿A quién aplica el Código de Ética y de Conducta?
+El presente Código es de aplicación obligatoria para los miembros de Junta Directiva y todos nosotros, los colaboradores de Correos de Costa Rica S.A, quienes desarrollaremos nuestras tareas basadas en los principios y valores aquí indicados, constituyendo este un paso significativo en el proceso de armonización de los conceptos éticos, valores y principios empresariales que deben formar parte de la filosofía de trabajo de la Empresa.
+La obligatoriedad en la aplicación de las disposiciones aquí establecidas, son complementarias a las obligaciones laborales inherentes a cada puesto de trabajo y, en consecuencia, su incumplimiento podrá ser susceptible de responsabilidades disciplinarias con la consecuente aplicación de sanciones propias tuteladas por el Ordenamiento Jurídico.
+1.3. ¿Cómo usar este Código de Ética y de Conducta?
+Nuestro Código está dividido en cuatro secciones:
+Capítulo N° 1: Sección 1: Muestra en detalle los pilares de la conducta de nosotros como colaboradores mediante la declaración de la misión y visión, los valores y principios de Correos de Costa Rica S. A.
+Capítulo N° 2: Sección 2: Establece los deberes éticos, que de forma responsable debemos cumplir los colaboradores de Correos de Costa Rica S. A.
+Capítulo N° 3: Sección 3: Establece las pautas para el comportamiento y/o conducta que debemos cumplir nosotros los colaboradores de Correos de Costa Rica S. A., así como también nuestros miembros de la Junta Directiva, para haya congruencia con nuestras acciones y conductas manifiestas, con los principios y valores éticos proclamados por la Empresa.
+Capítulo N° 4: Sección 4: Detalla los compromisos que, si no respetamos, podrían provocar un daño a la imagen de Correos de Costa Rica S. A.
+1.4. ¿Qué es la ética profesional?
+Es el conjunto de normas, conductas, actitudes y prácticas que reflejan los valores a manifestar en el desempeño de las funciones de nosotros los colaboradores. Al ser Correos de Costa Rica, S.A, una empresa de servicios, la ética profesional es fundamental para ganar la confianza de los clientes, proveedores y socios comerciales.
+¿Cuál es el propósito de este Código?
+Proporcionar un Código que guie, fomente y autorregule la conducta individual y colectiva de los miembros de Junta Directiva y nosotros, todos los colaboradores de Correos de Costa Rica, S. A., la cual sentará sus bases en los tres valores empresariales, por lo que el actuar de forma correcta siempre será un deber y obligación para honrar lo estipulado en el presente Código de Ética y de Conducta.
+Capítulo N° 1: Declaración de la filosofía medular, principios y valores empresariales
+Artículo N° 1: Nuestros pilares fundamentales. En la Sesión 1344 del 16 de setiembre del 2015, la Junta Directiva bajo el Acuerdo N° 7742, aprueba y establece la misión y visión de Correos de Costa Rica S. A., las cuales se citan a continuación:
+• Misión: Acercar personas, empresas y organizaciones.
+• Visión: Para el 2020 seremos la empresa número uno de logística en Costa Rica.
+(Corregido el párrafo anterior mediante Fe de Erratas y publicada en La Gaceta N° 191 del 10 de octubre de 2017, página N° 36. Anteriormente se indicaba: “•Visión: Para el 2020 seremos la empresa número uno en logística en Costa Rica, a través de soluciones, integrales, inclusivas e innovadoras.”)
+Artículo N° 2: Los principios de nuestra conducta: Refieren a las creencias básicas sobre la forma correcta como debemos relacionarnos con los otros y con el mundo, desde las cuales se erige el sistema de valores éticos al cual la persona o el grupo se vinculan. Son los principios fundamentales y universales que adaptamos en Correos de Costa Rica S. A. Nuestros principios son:
+1. Integridad: En Correos de Costa Rica S. A., evitamos cualquier situación que ponga en riesgo o en entre dicho nuestra probidad, nuestra honestidad, y transparencia en el actuar.
+2. Lealtad: En Correos de Costa Rica S. A., prometemos lealtad a esta empresa y a todos aquellos con los que tenemos relación, así como a los principios éticos enunciados en este Código, actuando con responsabilidad para el cumplimiento de nuestros fines, reportando cuando sea necesario, los hechos o situaciones que puedan afectar a la Empresa.
+3. Responsabilidad: Las personas que laboramos en Correos de Costa Rica S. A., cumplimos con nuestros deberes, obligaciones, compromisos y responsabilidades, asumiendo las consecuencias de nuestros actos.
+4. Iniciativa: En Correos de Costa Rica S. A., nos esmeramos por desarrollar acciones innovadoras y creativas que potencien nuestras funciones y mejoren la experiencia y el servicio ofrecido a nuestros clientes.
+5. Respeto a la igualdad: En Correos de Costa Rica S. A., nos caracterizamos por tratar a todas las personas por igual, evitamos todo tipo de actitud o acto discriminatorio por razón de sexo, etnia, credo, edad, discapacidad, afinidad política, orientación sexual, nacionalidad, estado civil o estado socioeconómico, fomentando la equidad e igualdad de condiciones, para con los clientes, colaboradores, proveedores o visitantes en general.
+Artículo N° 3: Nuestros valores empresariales: Refieren a la identificación de la Empresa y los servicios que ofrece, la de nosotros los colaboradores y la de los clientes, los cuales irán orientados a coadyuvar a la estrategia empresarial. Según Acuerdo Nº 7742 de la Sesión Nº 1344 de la Junta Directiva y celebrada el 16 de setiembre del 2015, se aprueban y se establecen como valores los citados a continuación:
+1. Pasión por servir: Se refiere a sentido de urgencia, agilidad, empatía y confianza.
+2. Excelencia en la labor: Se refiere a eficiencia y eficacia, integridad (honestidad), cortesía e iniciativa.
+3. Compomiso y dedicación: Se refiere a hacia el logro, innovación, creatividad, mejora continua y con el ambiente e integridad.
