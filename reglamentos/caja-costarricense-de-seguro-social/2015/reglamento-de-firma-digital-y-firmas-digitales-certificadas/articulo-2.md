@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente Reglamento se aplicará a los funcionarios o unidades internas de la Caja, conforme con los procesos telemáticos que se habiliten acorde con los programas y proyectos afines con los planes maestros de innovación, gobierno digital y modernización del Estado.

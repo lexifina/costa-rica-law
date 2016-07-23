@@ -1,0 +1,1 @@
+Artículo 16.—De las Jefaturas. Corresponderá a las Direcciones de Sede, Direcciones de Servicios de Salud y a las Direcciones de Sucursales, con base en las solicitudes de las jefaturas subordinadas, determinar los proyectos y listas de funcionarios que se presentarán ante los Gerentes para su aprobación en el otorgamiento de los certificados digitales.
