@@ -1,1 +1,0 @@
-Artículo 29.—El inspector que vaya a ser sancionado tendrá derecho a una audiencia de descargo ante el órgano competente y en todos los casos cabrá recurso de apelación, por una sola vez, ante el órgano superior.

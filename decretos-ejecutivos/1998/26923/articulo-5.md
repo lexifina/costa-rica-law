@@ -1,1 +1,0 @@
-Artículo 5°—Podrán ser inspectores de los recursos naturales ad-honorem todas aquellas personas que cumplan con los requisitos establecidos en el presente Reglamento, que sean mayores de edad. Los vigilantes de los recursos naturales podrán ser menores de edad pero mayores de 15 años.

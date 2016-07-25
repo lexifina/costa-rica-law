@@ -1,3 +1,0 @@
-Artículo 35.—Reformas:
-a) Se suprime el párrafo segundo del artículo 47 del Reglamento a la Ley de Conservación de la Vida Silvestre decreto ejecutivo No 22545-MIRENEM del 30-08-93 y sus reformas.
-b) El artículo 35 del Reglamento a la Ley Forestal decreto ejecutivo No y 25721-MINAE del 17-10-96 para que diga: 'La AFE fijará las políticas para velar por la protección y conservación de todos los bosques y terrenos forestales. A efecto de coadyuvar en la aplicación de la legislación que rige la materia, se nombrarán inspectores ad-honorem, los cuales se regirán por el Reglamento de los Comités de Vigilancia de los Recursos Naturales, COVIRENA".

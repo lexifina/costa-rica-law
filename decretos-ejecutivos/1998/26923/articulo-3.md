@@ -1,1 +1,0 @@
-Artículo 3°—Sus integrantes serán personas de probada solvencia moral y de reconocida honradez, disciplina y compromiso con la causa conservacionista y ambientalista y con los principios de desarrollo sostenible.

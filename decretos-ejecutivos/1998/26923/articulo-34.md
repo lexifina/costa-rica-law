@@ -1,1 +1,0 @@
-Artículo 34.—Aquellas personas o comités que alcancen tres reconocimientos de los aquí señalados, obtendrán la categoría de "Inspector Distinguido" o "Comité Distinguido" de Vigilancia de los Recursos Naturales respectivamente, lo cual será motivo de orgullo y respeto dentro de la estructura de los COVIRENA y del MINAE, procurándose que lo sea también dentro de la sociedad.

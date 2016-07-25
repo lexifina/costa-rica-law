@@ -1,2 +1,0 @@
-Transitorio II.—En el plazo de un mes a partir de la fecha de constitución de las Direcciones Regionales, éstas realizarán el primer encuentro nacional para nombrar sus cuatro representantes ante la Secretaría Nacional. El Ministro del Ambiente y Energía, nombrará en el mismo plazo, a los tres miembros restantes.
-Dado en la Presidencia de la República.—San José, al primer día del mes de abril de mil novecientos noventa y ocho.

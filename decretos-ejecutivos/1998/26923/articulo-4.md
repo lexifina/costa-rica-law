@@ -1,1 +1,0 @@
-Artículo 4°—Los Comités de Vigilancia de los Recursos Naturales estarán integrados por dos categorías diferentes de miembros: los Inspectores de los recursos naturales y los vigilantes de los recursos naturales.

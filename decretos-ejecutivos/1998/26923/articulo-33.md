@@ -1,1 +1,0 @@
-Artículo 33.—En los casos en que el CONACOVIRENA o la Secretaría Nacional, mediante la cooperación interna o externa, o mediante sus propios recursos, proceda a dotar de equipos, implementos u otros materiales, a los comités, dará prioridad a aquellos que hayan sido objeto de este reconocimiento.

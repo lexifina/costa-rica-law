@@ -1,1 +1,0 @@
-Artículo 19.—Las Direcciones Regionales de los COVIRENAS estarán compuestas por 5 Inspectores de los COVIRENA de su región, los cuales serán escogidos por todos los representantes de los COVIRENA de su región, en Encuentros Regionales de acuerdo con mecanismos de elección que definirá la Secretaría Nacional.
