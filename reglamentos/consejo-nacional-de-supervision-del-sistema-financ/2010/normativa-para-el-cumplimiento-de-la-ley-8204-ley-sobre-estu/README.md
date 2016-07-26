@@ -17,3 +17,4 @@ Normativa para el cumplimiento de la Ley 8204 “Ley sobre estupefacientes, sust
 | 2 | 2011-01-20 | Reglamento 898 (2011-01-20) |
 | 3 | 2012-05-29 | SINALEVI (sin norma nombrada) |
 | 4 | 2014-03-04 | Reglamento 1094 (2014-03-04) |
+| 5 | 2016-07-26 | Reglamento 1268 (2016-07-26) |

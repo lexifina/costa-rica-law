@@ -1,0 +1,14 @@
+Artículo 19 bis. Transferencias electrónicas. Los sujetos obligados que presten el servicio de transferencias desde o hacia el exterior en moneda local o extranjera, que igualen o superen los US$1,000.00 (mil dólares en la moneda de los Estados Unidos de América) o su equivalente en colones u otra moneda extranjera, deben registrar electrónicamente la información que se detalla seguidamente:
+a) Datos de la persona a cuyo nombre se realiza la transacción (cliente): nombre completo o razón social (para persona jurídica), número de identificación.
+b) Descripción de la Transacción: tipo de transacción (ingreso o egreso), número de la operación, fecha y hora de la transacción, monto y moneda original transada. Respecto a la contraparte en el exterior, toda transferencia debe estar acompañada de lo siguiente:
+a) Información requerida sobre el originador.
+(i) el nombre del originador;
+(ii) el número de cuenta del originador cuando la cuenta se utilice para procesar la transacción o, de no haber una cuenta, un único número de referencia de la transacción que permita rastrearla; y (iii) la dirección del originador o su número de identidad nacional o el número de identificación del cliente o la fecha y lugar de nacimiento, si se cuenta con dicha información.
+b) Información requerida sobre el beneficiario.
+(i) el nombre del beneficiario; y
+(ii) el número de cuenta del beneficiario cuando la cuenta se utilice para procesar la transacción o, de no haber una cuenta, un único número de referencia de la transacción que permita rastrearla.
+En el caso de las transferencias electrónicas nacionales, es exigido a la institución financiera originadora que la información que acompañe a las transferencias incluya la información del originador tal y como se indica para las transferencias electrónicas desde y hacia el exterior.
+Para los casos de las transferencias electrónicas que estén por debajo del umbral señalado en el párrafo primero de este artículo, las personas físicas o jurídicas sujetas al cumplimiento de la Ley 8204 deben asegurarse que contengan el nombre del originador y el nombre del beneficiario, además de un número de cuenta para cada uno o un número único de referencia de la transacción.
+La institución financiera que hace la orden no podrá ejecutar la transferencia electrónica si no cumple con los requisitos establecidos anteriormente.
+Las instituciones financieras intermediarias y beneficiarias de las transacciones electrónicas, deben contar con políticas y procedimientos eficaces basados en el riesgo para determinar: i) cuando ejecutar, rechazar o suspender una transferencia electrónica que carezca de la información requerida sobre el beneficiario; y (ii) la acción de seguimiento apropiada.
+(Así adicionado en sesiones N° 1268-2016 y 1269-2016 del 26 de julio de 2016)
