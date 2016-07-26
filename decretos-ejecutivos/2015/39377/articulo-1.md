@@ -123,8 +123,10 @@ III. Auditoría del sistema de calidad.
 7.3 Para los productores nacionales e importadores, los Certificados de Conformidad indicados en el apartado 7.1 y 7.2 deben ser emitidos por un Organismo de Certificación de tercera parte acreditado bajo la norma ISO/IEC 17065 para los alcances requeridos en este reglamento. Dicha
 acreditación debe ser otorgada por el Ente Costarricense de Acreditación (ECA) o por un Organismo homólogo signatario del Acuerdo de Reconocimiento Multilateral de IAF.
 7.4 Los Organismos de Certificación, deben seguir el siguiente orden de prioridad para la selección del laboratorio en el país donde se realicen los ensayos de evaluación de la conformidad:
-7.4.1 Laboratorios de tercera parte no acreditados para el alcance específico, el organismo de certificación debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025, por parte del laboratorio.
-7.4.2 Laboratorios de primera parte no acreditado para el alcance específico, el organismo de certificación debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025, por parte del laboratorio.
+7.4.1 Laboratorios acreditados bajo la norma ISO/IEC 17025, para los ensayos específicos solicitados por el reglamento, por el ECA o por un organismo de acreditación signatario del MRA de ILAC.
+7.4.2 Laboratorios de tercera parte no acreditados para el alcance específico, el organismo de certificación, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025 por parte del laboratorio.
+7.4.3 Laboratorios de primera parte no acreditados para el alcance específico, el organismo de certificación, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025 por parte del laboratorio.
+(Así reformado el punto 7.4) anterior por el artículo 1° del decreto ejecutivo N° 39535 del 3 de febrero del 2016)
 8 VERIFICACIÓN DE LA DEMOSTRACIÓN DE LA CONFORMIDAD.
 Los productores nacionales y los importadores tienen la obligación de demostrar la conformidad con el presente reglamento técnico y para ello deberán cumplir con las siguientes disposiciones:
 8.1 Previo a la colocación del producto en el mercado.
@@ -156,7 +158,7 @@ Familia de productos | Inciso arancelario | Productos específicos | Norma Nacio
 1.1 Cables, trenzas y similares de cobre, sin aislar para electricidad (Conductores eléctricos desnudos, de cobre). | 7413.00.10.00 Aplicable solo a partida separada de conductores utilizados en construcción de edificios. | Cables desnudos de cobre electrolítico. | INTE/IEC 60228. Conductores eléctricos para cables aislados. | IEC 60228. Conductores eléctricos para cables aislados | ASTM B2 Especificación de alambres de cobre semiduros.
 | | INTE 20-03-01. Alambres de cobre desnudos suave o recocido para uso eléctrico. | IEC 62561-2 Requisitos para los componentes de los sistemas de protección contra el rayo (CPCR). Parte 2: Requisitos para los conductores y electrodos de puesta a tierra. | ASTM B3 Especificación para alambres de cobre suave.
 | | INTE 20-03-02. Cable de cobre desnudo con cableado concéntrico para usos eléctricos. | | ASTM B8 Especificación para conductores de cobre con cableado concéntricos, duros, semiduros y suaves.
-| | INTE 20-03-03 Cable de cobre desnudo con cableado concéntrico compactado para usos eléctricos. | | UL 96A Lightning Protection Components.
+| | INTE 20-03-03 Cable de cobre desnudo con cableado concéntrico compactado para usos eléctricos. | | UL 96 Lightning Protection Components. (Corregida la referencia anterior mediante Fe de Erratas y publicada en la Gaceta N° 171 del 19 de setiembre de 2023, página N° 2. Anteriormente se indicaba: “UL 96A Lightning Protection Components.”)
 | | INTE 20-03-05 Alambre de cobre desnudo duro para usos eléctricos. | |
 | | INTE 20-03-06 Alambre de cobre desnudo semiduro para usos eléctricos. | |
 | | | INTE 20-03-07 Especificación estándar para conductores de cobre cableado bunchado para Conductores Eléctricos. | |

@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 475:2015 Productos eléctricos. Conductores y Extension
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-26 | la propia norma |
+| 2 | 2016-07-26 | Decreto Ejecutivo 39535 (2016-02-03) |
