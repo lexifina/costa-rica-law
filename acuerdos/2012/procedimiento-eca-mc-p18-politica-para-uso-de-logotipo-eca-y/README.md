@@ -16,3 +16,4 @@ Procedimiento ECA-MC-P18 Política para uso de logotipo ECA y símbolo de acredi
 | 1 | 2012-10-10 | la propia norma |
 | 2 | 2013-11-27 | Acuerdo 0 (2013-11-27) |
 | 3 | 2015-07-16 | Acuerdo 0 (2015-07-16) |
+| 4 | 2016-07-26 | Acuerdo 0 (2016-07-26) |
