@@ -1,0 +1,1 @@
+Artículo 3º—La Política Nacional para la Atención Integral a las Personas en Situación de Abandono y Situación de Calle 2016 - 2026, será evaluada de manera periódica para su actualización permanente según los requerimientos y necesidades de las personas en Situación de Abandono y Situación de Calle.
