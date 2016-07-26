@@ -1,1 +1,0 @@
-Artículo 74.—El Departamento de Régimen Disciplinario o las otras partes podrán introducir antes del acto final nuevos hechos relacionados con los inicialmente conocidos o invocados, pero en el caso del procedimiento disciplinario tendrá que observarse el trámite de comparecencia oral y la intimación respectiva para probarlos.

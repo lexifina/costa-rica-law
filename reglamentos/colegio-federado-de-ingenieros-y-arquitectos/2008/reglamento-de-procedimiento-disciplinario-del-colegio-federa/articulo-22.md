@@ -1,6 +1,0 @@
-Artículo 22:
-1. Las partes deberán señalar lugar para notificaciones dentro del Área Metropolitana. Asimismo podrán señalar un número de fax, conforme al Reglamento Especial para las Notificaciones y Comunicaciones del Colegio Federado de Ingenieros y de Arquitectos.
-2. La notificación se hará al lugar señalado por las partes, y podrá hacerse personalmente o por medio de fax, telegrama o carta certificada dirigida. Si no se hiciere señalamiento al efecto por la parte interesada, la notificación se tendrá por practicada con solo el transcurso de veinticuatro horas después de haberse dictado la resolución, salvo que se trate de la notificación que da inicio al procedimiento.
-3. En el caso de notificación personal, servirá como prueba el acta respectiva firmada por el interesado y el notificador o, si aquél no ha querido firmar, por este último dejando constancia de ello.
-4. Cuando se trate de telegrama o carta certificada, la notificación se tendrá por hecha con la boleta de retiro o el acta de recibo firmada por quien hace la entrega. En el caso del fax, se aplicará lo dispuesto en el Reglamento Especial para las Notificaciones y Comunicaciones del Colegio Federado de Ingenieros y de Arquitectos.
-(Corregido mediante Fe de Erratas y publicada en La Gaceta N° 162 del 22 de agosto de 2008)

@@ -1,2 +1,0 @@
-Artículo 59.— La denuncia deberá presentarse personalmente ante la Plataforma de Servicios o del órgano que indique oportunamente la Dirección Ejecutiva del Colegio Federado de Ingenieros y de Arquitectos. Para tales efectos, el interesado deberá presentar debidamente lleno el “Formulario de Denuncia” y aportar toda la información que en él se le indique.
-(Así reformado mediante acuerdo 08 de la sesión ordinaria N°04-09/10 del 10 de agosto de 2010)

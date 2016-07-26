@@ -1,1 +1,0 @@
-Artículo 96.—La comunicación, por publicación o notificación, deberá contener lo establecido en el artículo 25 de este reglamento, además de las decisiones o dictámenes de los tribunales de honor que se invoquen como motivación.

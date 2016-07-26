@@ -1,1 +1,0 @@
-Artículo 8º—El desarrollo del procedimiento disciplinario se realizará de oficio, sin perjuicio del que puedan darle las partes. La inacción de las partes no podrá ser excusa para que el tribunal no resuelva dentro de los plazos establecidos, salvo lo que se indique en este reglamento.

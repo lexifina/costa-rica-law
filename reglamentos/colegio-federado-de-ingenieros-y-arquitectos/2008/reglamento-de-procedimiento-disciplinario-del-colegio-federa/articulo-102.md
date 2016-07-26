@@ -1,3 +1,0 @@
-Artículo 1022.—Si el Departamento de Régimen Disciplinario o el tribunal de honor llegaren a tener conocimiento de que la parte afectada sí tuvo el conocimiento debido de los hechos en el momento de su comisión o en otro posterior y no ejercieron oportunamente la acción correspondiente ante el Colegio Federado de Ingenieros y de Arquitectos, procederán a remitir su recomendación a la Junta Directiva General para lo que corresponda en derecho.
-_____________
-2 El presente artículo fue reformado por Asamblea de Representantes Nº 05-06/07-AER, del 20 de setiembre de 2007, publicado en el Diario Oficial La Gaceta Nº 191 del 04 de octubre de 2007.

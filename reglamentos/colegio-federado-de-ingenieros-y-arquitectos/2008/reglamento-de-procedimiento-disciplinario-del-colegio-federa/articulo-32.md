@@ -1,2 +1,0 @@
-Artículo 32.—Si la persona citada no compareciere, sin justa causa, el tribunal de honor podrá citarla nuevamente, o continuar y decidir el caso con los elementos de juicio existentes.
-Si la persona fue citada en carácter de prueba para mejor resolver, se prescindirá de su declaración sin mayor trámite, salvo que el tribunal estime que su deposición sea esencial para la determinación de la verdad real, en cuyo caso ordenará a la parte que la ha ofrecido, su presentación. Si a pesar de la citación, la persona no compareciere, se continuará el procedimiento sin más demora.

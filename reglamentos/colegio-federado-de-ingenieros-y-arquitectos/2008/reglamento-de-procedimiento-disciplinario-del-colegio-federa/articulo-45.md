@@ -1,1 +1,0 @@
-Artículo 45.—La actuación de los tribunales de honor deberá tener lugar en la sede del Colegio Federado de Ingenieros y de Arquitectos, so pena de nulidad absoluta del acto, salvo que ésta, por su naturaleza deba realizarse fuera de sede. El tribunal podrá actuar excepcionalmente fuera de sede por razones de urgente necesidad y conveniencia o fuerza mayor o caso fortuito.

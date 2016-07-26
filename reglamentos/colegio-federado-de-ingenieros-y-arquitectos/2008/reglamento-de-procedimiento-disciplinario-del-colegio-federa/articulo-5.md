@@ -1,1 +1,0 @@
-Artículo 5º—Las partes tendrán derecho a una comparecencia oral y privada con el tribunal de honor nombrado al efecto, y en la que se ofrecerá y recibirá toda la prueba, tal como se establece en el artículo 59 de la Ley Orgánica del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica.

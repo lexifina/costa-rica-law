@@ -1,3 +1,0 @@
-Artículo 40.—
-1. El procedimiento disciplinario deberá concluirse, por acto final, dentro de los siete meses calendario posteriores a la intimación que realice el tribunal de honor a la parte denunciada.
-2. Recibido el Informe Final, la Junta Directiva General dispondrá de un plazo de dos meses para dictar el acto final. No obstante lo indicado en este inciso, si la Junta Directiva General considera que el informe del tribunal de honor, establecido en el artículo 93 de este reglamento, está incompleto o es confuso, se hará la remisión correspondiente al tribunal de honor, para que en el plazo de un mes lo aclare o lo adicione.

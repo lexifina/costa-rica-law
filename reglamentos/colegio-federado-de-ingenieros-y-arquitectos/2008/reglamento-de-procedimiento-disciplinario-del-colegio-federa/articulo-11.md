@@ -1,1 +1,0 @@
-Artículo 11.—El Departamento de Régimen Disciplinario y el tribunal de honor deberán de conducir el procedimiento con la intención de lograr un máximo de celeridad y eficiencia, dentro del respeto al ordenamiento jurídico y a los derechos e intereses de las partes y serán responsables de cualquier retardo grave e injustificado

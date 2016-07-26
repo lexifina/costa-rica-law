@@ -1,1 +1,0 @@
-Artículo 94.—Recibida la recomendación del tribunal de honor, la Junta Directiva General contará con dos meses, de conformidad con lo señalado en el artículo 40 inciso 3) de este reglamento, para dictar el acto final. La recomendación del tribunal de honor no será vinculante para la Junta Directiva General, quien podrá apartarse de esa recomendación, motivando su decisión.
