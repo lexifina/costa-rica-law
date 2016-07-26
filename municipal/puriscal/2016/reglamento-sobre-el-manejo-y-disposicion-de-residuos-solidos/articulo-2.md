@@ -1,0 +1,2 @@
+Artículo 2º—Ámbito de aplicación: La aplicación del presente reglamento se circunscribe al cantón de Puriscal y regula los aspectos relacionados con la gestión integral de los residuos sólidos ordinarios, cualquiera que sea la actividad de generación.
+Esto incluye principalmente el almacenamiento, recolección, barrido y limpieza de vías y áreas públicas, transporte y transferencia, valorización, tratamiento y disposición final de los residuos sólidos ordinarios.

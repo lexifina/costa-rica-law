@@ -1,0 +1,1 @@
+Artículo 16.—Los generadores de residuos sólidos valorizables importadores, productores de bienes y servicios, comercializadores, distribuidores, las instituciones públicas y privadas, deben realizar las acciones necesarias para que los residuos que se generen de su actividad, sean separados previamente para su valorización.

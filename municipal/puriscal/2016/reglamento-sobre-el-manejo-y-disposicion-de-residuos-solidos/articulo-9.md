@@ -1,0 +1,1 @@
+Artículo 9º—Los usuarios del servicio de recolección utilizarán bolsas de material plástico o de características similares, preferiblemente biodegradables, su resistencia deberá soportar la tensión ejercida por los residuos contenidos y por la manipulación.
