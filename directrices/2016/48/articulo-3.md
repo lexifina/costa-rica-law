@@ -1,0 +1,1 @@
+Artículo 3º—Se ordena a la Administración Central y se instruye a la Administración Descentralizada, evaluar periódicamente para su actualización permanente según los requerimientos y necesidades de las personas en situación de abandono y situación de calle, la Política Nacional para la Atención a las Personas en Situación de Abandono y Situación de Calle 2016 – 2026.

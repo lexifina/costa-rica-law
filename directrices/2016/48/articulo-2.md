@@ -1,0 +1,1 @@
+Artículo 2º—Se invita a las Municipalidades a ejecutar las labores deles planes de acción de la Política Nacional para la Atención a las Personas en Situación de Abandono y Situación de Calle 2016 – 2026.
