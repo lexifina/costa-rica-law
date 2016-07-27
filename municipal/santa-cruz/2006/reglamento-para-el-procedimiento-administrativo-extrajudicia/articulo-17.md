@@ -1,2 +1,0 @@
-Artículo 17º—Sobre la documentación relacionada con los arreglos de pago. La unidad de Cobro podrá solicitar constancias y certificaciones para la verificación de la condición socioeconómica de la persona que solicite el arreglo de pago.
-Toda la documentación que haya sido requerida por la Unidad de Cobro para la suscripción del arreglo de pago será agregado al expediente y debidamente foliado, para su conservación.
