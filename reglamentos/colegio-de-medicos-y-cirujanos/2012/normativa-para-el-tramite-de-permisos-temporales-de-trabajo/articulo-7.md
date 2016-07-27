@@ -1,1 +1,0 @@
-Artículo 7º—Publicación. El Colegio de Médicos y Cirujanos contará con un registro digital de los permisos otorgados, en el que se indique nombre completo, código profesional y especialidad autorizada la cual estará disponible y actualizado en la página Web oficial del Colegio.

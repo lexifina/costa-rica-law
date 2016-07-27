@@ -1,2 +1,0 @@
-Transitorio único.—Las solicitudes planteadas por primera vez antes de la publicación de la presente normativa en el Diario Oficial La Gaceta continuaran con su tramite usual anterior, pero las solicitudes de renovación del permiso otorgado una vez publicado deberán tramitarse bajo esta normativa.
-Aprobado en la sala de sesiones del Colegio de Médicos y Cirujanos de la República de Costa Rica por acuerdo firme de su Junta de Gobierno, mediante el acuerdo de la sesión ordinaria 2012-06-27, celebrada el 27 de junio del 2012.
