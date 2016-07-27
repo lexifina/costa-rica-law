@@ -1,0 +1,1 @@
+Artículo 29. -Brinda asesorías técnico profesional en asuntos concernientes a la práctica, docencia, investigación y desarrollo de su especialidad, ante instituciones públicos o privados que así lo requieran.

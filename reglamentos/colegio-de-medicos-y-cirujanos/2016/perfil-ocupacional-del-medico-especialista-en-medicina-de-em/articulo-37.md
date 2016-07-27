@@ -1,0 +1,2 @@
+Artículo 37. -Deber de Actualización:
+Debe mantener actualizados los conocimientos, procedimientos y técnicas propias de los profesionales de su área. Asimismo, es deber ético del médico emergenciólogo la enseñanza de la práctica de la Medicina de Emergencias a todos aquellos médicos en formación, procurando inculcar las destrezas y conocimientos que mejoren la calidad de la atención de los servicios brindados a la población y haciendo del proceso enseñanza- aprendizaje un acto agradable, ético, y efectivo.

@@ -1,0 +1,1 @@
+Artículo 27. -A solicitud de parte, o de la autoridad administrativa o judicial que dirija un proceso, el especialista en Medicina de Emergencias puede rendir peritaje dentro del mismo en el campo de su área.

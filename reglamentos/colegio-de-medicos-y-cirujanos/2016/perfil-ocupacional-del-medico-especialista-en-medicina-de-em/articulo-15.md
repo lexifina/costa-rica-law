@@ -1,0 +1,2 @@
+Artículo 15. -Función de Rehabilitación:
+Identificar y cuantificar las alteraciones fisiológicas, orgánicas y psíquicas que puedan derivarse de las Emergencias, a fin de establecer e indicar las acciones correctivas de manera oportuna durante el periodo de la enfermedad y la convalecencia. En caso de que en el centro salud se cuente con un médico especialista en Medicina Física y Rehabilitación se consultará con el mismo en forma temprana.

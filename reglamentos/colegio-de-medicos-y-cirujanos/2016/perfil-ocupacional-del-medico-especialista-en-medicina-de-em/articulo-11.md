@@ -1,0 +1,5 @@
+Capítulo 4
+Funciones
+Artículo 11. -El médico especialista en Medicina de Emergencias está capacitado para brindar de manera integral la atención oportuna y de calidad a todo aquel usuario que se presente con una lesión o afectación aguda de su estado de salud, ya sea producto de una enfermedad de nueva adquisición o la descompensación de una enfermedad crónica que ponga en riesgo su vida o su estabilidad funcional.
+Su competencia le permite brindar atención a los pacientes de cualquier rango de edad y aplicar los procedimientos diagnósticos o terapéuticos que salvaguarden de forma oportuna la vida y la salud de la persona que lo necesita. Para esto, debe de contar con los insumas necesarios para lograrlo.
+Asimismo, es el responsable de la asistencia inicial de todo paciente que se presente con una emergencia de cualquier tipo, sin importar las características de la misma, desde el ingreso al servicio de emergencias, hasta el momento en que el mismo sea trasladado a otras áreas del mismo centro hospitalario o a un centro de mayor o menor nivel de complejidad, recurriendo para esto a los especialistas de otras ramas de la medicina cuando lo considere oportuno.

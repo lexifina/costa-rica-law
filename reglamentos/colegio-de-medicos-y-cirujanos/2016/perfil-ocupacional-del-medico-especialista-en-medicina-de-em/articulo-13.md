@@ -1,0 +1,8 @@
+Artículo 13. -Función Preventiva:
+El especialista en medicina de emergencias, propiciará, participará, apoyará, e incentivará aquellas buenas prácticas para la prevención de los factores determinantes de la salud que favorecen la afectación aguda de las personas, tanto a nivel de la población general, como en grupos de interés y dentro de las instituciones públicas o privadas donde se desempeñe. Dentro de ello se pueden mencionar:
+a. Informar a la comunidad acerca de las medidas higiénicas y hábitos adecuados que permitan disminuir la incidencia de enfermedades agudas frecuentes, tanto en la edad adulta como en la infancia; a nivel de las consultas de choque, sala de emergencias y centros de atención pre hospitalaria.
+b. Instruir a la comunidad sobre la prevención de las emergencias en el hogar, orientación sobre los riesgos de la automedicación y el abuso de fármacos.
+c. Educar a la comunidad sobre las medidas básicas de reanimación y de cómo actuar ante una emergencia.
+d. Participar de manera activa cuando las instituciones de salud encargadas así lo requieran, en las diferentes campañas destinadas a la capacitación de la población sobre cómo actuar correctamente ante una emergencia masiva o desastre.
+e. Colaborar con las autoridades pertinentes en la creación y ejecución de campañas, que permitan disminuir la morbimortalidad de las principales causas de consultas en el servicio de emergencias.
+f. Participar con los departamentos de epidemiología del sector salud en la notificación oportuna de aquellas enfermedades de reporte obligatorio, con miras a la identificación de comportamientos epidemiológicos anormales y la aplicación de medidas preventivas concretas.

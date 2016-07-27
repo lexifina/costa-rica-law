@@ -1,0 +1,1 @@
+Artículo 28. -Previa indicación de la Junta de Gobierno del Colegio de Médicos y Cirujanos, forma parte de jurados calificadores, en la evaluación teórica y práctica de aquellos Médicos y Cirujanos con formación en Medicina de Emergencias en el extranjero y que optan por la inscripción de dicha especialidad.

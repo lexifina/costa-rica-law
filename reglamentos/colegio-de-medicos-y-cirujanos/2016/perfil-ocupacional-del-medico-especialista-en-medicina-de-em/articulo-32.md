@@ -1,0 +1,2 @@
+Artículo 32. -Tribunales evaluadores:
+El médico especialista en Medicina de Emergencias deberá participar activamente cuando el Colegio de Médicos y Cirujanos de la República de Costa Rica así lo requiera, en la conformación de tribunales para la evaluación de médicos nacionales o extranjeros, que hayan realizado estudios en el exterior y que soliciten su respectiva incorporación como médicos especialistas en Medicina de Emergencias, sus subespecialidades o soliciten incorporación como especialidades equivalentes de la Medicina de Emergencias.

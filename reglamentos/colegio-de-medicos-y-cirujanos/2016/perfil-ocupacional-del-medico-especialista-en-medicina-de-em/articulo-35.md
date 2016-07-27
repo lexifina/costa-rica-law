@@ -1,0 +1,3 @@
+Artículo 35. -Deber para con Superiores, Compañeros y Público:
+Deberá cuidar las relaciones con superiores, compañeros y público en general, atendiéndolos con respeto, prudencia y discreción absoluta conforme a los principios éticos.
+Asimismo, debe siempre observar en su actuación profesional y para con el paciente un desempeño prudente y comprensivo, capaz de garantizar la pertinencia y calidad de su atención, asumiendo el compromiso moral de mantener sus conocimientos permanentemente actualizados teniendo siempre en mente que su acciones repercuten en la vida y la salud de la persona y la de su familia, y que esa persona tendrá una necesidad muy humana de sus servicios.

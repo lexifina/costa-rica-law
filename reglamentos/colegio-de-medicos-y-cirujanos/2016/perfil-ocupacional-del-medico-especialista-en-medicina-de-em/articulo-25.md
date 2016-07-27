@@ -1,0 +1,2 @@
+Artículo 25. -Unidades de estancia corta:
+El médico especialista en Medicina de Emergencias podrá supervisar u operar las unidades de estancia corta si estas existiesen en su centro de trabajo, y cuyo fin último es acortar la permanencia del paciente o usuario en el hospital, haciendo más eficiente el uso del recurso cama y mejorando la disponibilidad de estas para otros usuarios, con lo que se pretende mejorar el desempeño de los servicios de emergencias en cuanto la resolución definitiva.

@@ -1,0 +1,1 @@
+Artículo 21. -Colabora mediante la interconsulta con otros servicios asistenciales para el mejor desarrollo de una atención sanitaria integral. La misma, debe realizarse en función de los conocimientos, de los medios y recursos disponibles que el médico especialista en Medicina de Emergencias tenga ante un caso concreto y teniendo siempre presente el beneficio del paciente.

@@ -1,0 +1,1 @@
+Artículo 34. -En el desempeño de sus funciones y previa solicitud del ente rector en materia de Salud del país, o de la institución donde labora, le puede corresponder participar en las diferentes comisiones para la atención de desastres naturales o de los efectos de estos en la población.
