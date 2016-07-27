@@ -1,0 +1,1 @@
+Artículo 22: La evaluación se realizará por medio de la asignación de puntos en las variables señaladas en el artículo número 21 del presente Reglamento. Los miembros del jurado votarán a conciencia por alguna de las personas que hayan sido clasificados como aceptables o sobresalientes.

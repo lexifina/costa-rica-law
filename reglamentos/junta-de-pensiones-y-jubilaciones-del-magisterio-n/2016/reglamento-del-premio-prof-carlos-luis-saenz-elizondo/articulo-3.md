@@ -1,0 +1,1 @@
+Artículo 3: El Jurado señalará en primera instancia los defectos de forma que presenten los documentos de los candidatos, a partir de ese momento los postulantes tendrán diez días hábiles para subsanar los defectos señalados.

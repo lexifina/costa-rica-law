@@ -1,0 +1,2 @@
+Artículo 18: Las actas serán aprobadas en la siguiente sesión ordinaria, quedando aprobados los acuerdos. Si hay que ejecutar uno o varios acuerdos por urgencia se deben aprobar en acuerdo firme en la misma sesión.
+Las actas serán firmadas por los (las) presentes en la sesión en la cual se aprueben. En las actas se harán constar los votos negativos, las abstenciones o los dictámenes de minoría, todos debidamente justificados.

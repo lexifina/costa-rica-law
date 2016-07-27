@@ -1,0 +1,1 @@
+Artículo 2: La apertura oficial del concurso será la primera semana de setiembre y finalizará la recepción de postulantes la última semana de setiembre. Una vez recibidas las postulaciones, el Jurado deberá revisar y evaluar el cumplimiento de las formalidades requeridas, de acuerdo con los requisitos establecidos en el presente Reglamento.

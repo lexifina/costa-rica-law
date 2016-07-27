@@ -1,0 +1,1 @@
+Artículo 28: El premio consistirá en la entrega de un busto del Prof. Carlos Luis Sáenz Elizondo y una suma económica equivalente al monto de dos salarios bases del primer nivel salarial de la escala de sueldos de la Administración Pública.
