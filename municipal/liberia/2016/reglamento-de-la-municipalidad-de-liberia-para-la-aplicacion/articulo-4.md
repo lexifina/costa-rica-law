@@ -1,1 +1,0 @@
-Artículo 4º—Administración de los recursos. Los Concejos de Distritos, según las competencias que les otorgan los artículos 54 y 57 del Código Municipal, serán los responsables de definir los proyectos a financiar con los recursos otorgados por la Ley 9156.

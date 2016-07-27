@@ -1,1 +1,0 @@
-Artículo 7º—Proyectos de infraestructura turística y patrimonio cultural. Se podrán financiar proyectos que por su índole y alcance incluyan o involucren componentes de infraestructura turística y patrimonio cultural.

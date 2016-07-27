@@ -1,1 +1,0 @@
-Artículo 12.—Este Reglamento fue aprobado por el Concejo Municipal de Liberia, acuerdo Nº artículo tercero, capítulo tercero, de la sesión ordinaria Nº 04-2016, celebrada el 25 de enero de 2016 y rige a partir de su publicación en el Diario Oficial La Gaceta.
