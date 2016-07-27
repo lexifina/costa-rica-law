@@ -1,0 +1,17 @@
+CAPÍTULO III
+De la obligación tributaria
+SECCIÓN I
+Del cobro de las obligaciones tributarias municipales
+en la etapa administrativa y extrajudicial
+Artículo 13.-Obligaciones de los funcionarios municipales asignados al cobro administrativo y extrajudicial de las obligaciones vencidas: Los funcionarios asignados al Departamento de Cobro, en cumplimiento de su función de gestión y recaudación tendrán las siguientes obligaciones:
+a) Realizar gestiones preventivas de cobro. Éstas se realizarán quince días naturales antes de la fecha de vencimiento del plazo para el pago de la obligación respectiva. Las acciones consistirán en avisos o mensajes vía telefónica o internet, publicaciones generales u otros que el Departamento considere convenientes.
+b) Realizar las gestiones de cobro administrativo y extrajudicial de las cuentas atrasadas. Éste se iniciará ocho días naturales después de haberse vencido el plazo para el pago de la obligación vencida respectiva, y las acciones consistirán en avisos, llamadas telefónicas, publicaciones generales o cualquier otro recurso tecnológico a disposición de los funcionarios municipales.
+c) Las obligaciones tributarias municipales que tengan un atraso de dos trimestres, serán
+notificadas dos veces administrativamente, en un plazo de veinte días hábiles, para el pago respectivo, o formalizar arreglo de pago otorgándosele al contribuyente quince días hábiles con la primera notificación y cinco días hábiles con la segunda notificación. Si vencido el plazo después de la última notificación no se hiciere presente el sujeto pasivo a cancelar o a formalizar arreglo de pago, se remitirá a los abogados internos o externos el expediente que contiene toda la documentación que corresponda para efectos de proceder al cobro judicial, de conformidad con lo que se indica en este Reglamento. La notificación indicada se realizará por los medios legales correspondientes, establecidos en el presente Reglamento.
+En el caso de que el atraso de dos trimestres corresponda a la obligación del pago del impuesto a la licencia referida en el Artículo 79 del Código Municipal, si una vez vencido el
+plazo de veinte días hábiles y el pago respectivo no se hizo efectivo, se procederá paralelamente a suspender la licencia de conformidad con el Artículo 81 bis del Código Municipal.
+d) Entregar una vez agotada la última gestión de cobro administrativo la documentación necesaria de las cuentas en estado de morosidad, a los abogados designados por la Municipalidad para que procedan a su cobro por la vía judicial que corresponda.
+e) Ejercer las funciones de control y fiscalización sobre la actuación que ejerzan los abogados internos y externos en la etapa judicial y ejecutiva.
+f) Rendir informes trimestrales sobre el estado de las obligaciones vencidas que se encuentran en las etapas administrativa y judicial.
+Para la etapa administrativa el informe deberá indicar: los procedimientos de cobro realizados y enviados al contribuyente moroso, el número de cédula, nombre del contribuyente, distrito de ubicación, el monto moroso, clasificándolo de acuerdo con la antigüedad del atraso en 30,60,90 y más de 90 días de morosidad.
+Para la etapa judicial, el informe indicará además del número de cédula y nombre del contribuyente moroso, el número de días que el abogado interno o externo asignado tiene el proceso en su poder y el estado en que se encuentra el proceso.

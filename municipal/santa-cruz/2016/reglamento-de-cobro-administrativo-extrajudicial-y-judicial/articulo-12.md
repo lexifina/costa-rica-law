@@ -1,0 +1,1 @@
+Artículo 12.-De la función de fiscalización. La función de fiscalización tiene por objeto comprobar la situación tributaria de pago de los sujetos pasivos, con el fin de verificar su exacto cumplimiento, propiciando la regularización del pago por parte de los mismos.

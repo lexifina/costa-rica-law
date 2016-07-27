@@ -1,0 +1,1 @@
+Artículo 22.-Sobre la documentación relacionada con los arreglos de pago. Toda la documentación que haya sido requerida por el Departamento de Cobro para la suscripción del arreglo de pago será agregado al expediente y debidamente foliado, para su conservación.

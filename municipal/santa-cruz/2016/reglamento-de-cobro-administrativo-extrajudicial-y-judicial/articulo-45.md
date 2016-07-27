@@ -1,0 +1,1 @@
+Artículo 45.-Derogaciones. Este Reglamento deroga el Reglamento para el Procedimiento de Cobro Administrativo extrajudicial y judicial de la Municipalidad de Santa Cruz publicado en La Gaceta N° 123 del martes 27 de junio del año 2006 y cualquier otra disposición administrativa o reglamentaria que se contraponga a lo aquí regulado.

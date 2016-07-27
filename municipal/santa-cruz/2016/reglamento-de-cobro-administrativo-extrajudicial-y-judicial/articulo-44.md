@@ -1,0 +1,3 @@
+CAPÍTULO V
+Disposiciones finales
+Artículo 44.-Normas supletorias. A las materias que son objeto del presente reglamento, resultan aplicables supletoriamente las disposiciones contenidas en el Código de Normas y Procedimientos Tributarios, Código Municipal, Ley de Impuesto Sobre Bienes Inmuebles, Ley de Cobro Judicial, Código Procesal Civil, la Ley General de la Administración Pública, la Ley Orgánica del Colegio de Abogados, Código Procesal Contencioso Administrativo y Normas Conexas, y el Decreto de Aranceles Profesionales para Abogados, así como cualquier otra norma que guarde relación con este reglamento.

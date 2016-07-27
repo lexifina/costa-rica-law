@@ -1,0 +1,4 @@
+Artículo 17.--Condiciones para otorgar arreglos de pago. El arreglo de pago se otorgará por parte del Departamento de Cobro, para lo cual éste valorará las siguientes condiciones del sujeto pasivo:
+a) Existencia y verificación de la deuda: Los funcionarios del Departamento de Captación de Ingresos deben verificar que todos los datos relativos a la deuda sujeta al arreglo de pago sean admisibles, pertinentes e idóneos.
+b) Plazos de arreglos de pago: De proceder el arreglo de pago, ambas partes, pactarán el plazo, y consecuentemente el monto a cancelar mensualmente. El plazo para la cancelación total de la obligación vencida no podrá exceder de treinta y seis meses.
+Solo en casos calificados se podrá otorgar un arreglo de pago con un plazo mayor al indicado, siempre y cuando cuente con la aprobación del Coordinador o jefe del Departamento de Cobro y/o Alcalde Municipal.

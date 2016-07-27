@@ -1,0 +1,2 @@
+Artículo 20.-Resolución del arreglo de pago. El convenio de arreglo de pago se resolverá únicamente, ante el pago total que realice el sujeto pasivo de la obligación vencida o cuando éste incumpla tres cuotas consecutivas de pago, en cuyo caso, vencido dicho plazo, se remitirá inmediatamente el expediente a etapa de cobro judicial.
+La persona que teniendo un arreglo de pago lo incumpla, no tendrá derecho a pretender un nuevo arreglo de pago sobre la misma cuenta.
