@@ -1,0 +1,6 @@
+Artículo 10.—Del proceso de trámite: Para la tramitación de las solicitudes de ayuda temporal por emergencia se seguirá el siguiente procedimiento.
+1. Recepción de solicitud por escrito y documentos probatorios según tipo de evento.
+2. Valoración técnica-operativa de la situación de emergencia o desastre mediante la comprobación de campo y coordinación institucional con los profesionales, técnicos o dependencias que corresponda con el tipo de evento.
+3. Conformación del expediente de ayuda temporal por emergencia el cual contempla la siguiente documentación: solicitud del afectado (mediante una herramienta diseñada que incluya toda la información básica de referencia social y económica), valoración técnica-operativa del evento, la recomendación de ayuda temporal, la declaración jurada del afectado. Cada uno de estos requisitos debe tener su formulario específico.
+4. Traslado de expediente a la Alcaldía para la aprobación según corresponda. El expediente lleva la recomendación de ayuda por parte de la Oficina Municipal de Gestión del Riesgo a Desastres y el visto bueno de la Gerencia de Provisión de Servicios.
+5. La Alcaldía gira la orden a la Gerencia Administrativa Financiera para dar el contenido económico a la ayuda autorizada y entrega de la misma a los beneficiados
