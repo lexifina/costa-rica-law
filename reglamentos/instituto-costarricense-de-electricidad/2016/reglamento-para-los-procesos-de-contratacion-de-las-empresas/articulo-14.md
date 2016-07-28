@@ -1,0 +1,26 @@
+SECCIÓN VI
+Administradores de contrato (AC)
+Artículo 14. Son aquellas personas nombradas por la Administración Superior o Jefaturas de las Dependencias que promueven la contratación, que tendrán la responsabilidad de la coordinación, ejecución y fiscalización de las diversas etapas de las contrataciones que se promuevan en su respectiva área, de acuerdo con la competencia y funciones que se le atribuyen en el presente Reglamento. Su sustitución temporal o remoción estará a cargo de quien lo nombra, quien deberá enviar copia de este cambio al expediente.
+El nombramiento o sustitución de cada AC y los medios para ser localizado, así como su remoción, deberán constar en el expediente de la respectiva contratación. Será requisito indispensable para la validez del nombramiento que quien nombra al AC, notifique al designado.
+Cuando se requiera cubrir una ausencia temporal del AC, la dependencia correspondiente lo deberá comunicar a la Proveeduría, en un plazo no mayor de 3 días hábiles del conocimiento del hecho que motiva la ausencia, con el nombre del AC sustituto, indicando el plazo a suplir.
+El AC deberá cumplir preferiblemente con conocimiento relacionado al objeto de la contratación que le corresponderá administrar.
+El AC ejercerá, entre otras, las siguientes funciones:
+1) Preparar en conjunto con los técnicos correspondientes, la documentación y las solicitudes pertinentes en los trámites de contratación y remitírsela a la Proveeduría. Deberá utilizar la plantilla del cartel establecida por la Proveeduría.
+2) Atender cualquier consulta técnica que surgiera durante el proceso de una contratación bajo su cargo y realizar el trámite que corresponda.
+3) Participar en el proceso de análisis, valoración de ofertas y recomendación de adjudicación.
+4) Aportar la certificación sobre el contenido presupuestario.
+5) Preparar el borrador de contrato, borradores de acuerdo y cualquier otro documento, para ser remitidos a la Asesoría Jurídica.
+6) Velar por la correcta ejecución de los contratos que se les asigne, respetando para ello cada una de las etapas establecidas para los procedimientos de contratación. Asimismo, será responsable de la recepción y aceptación de los bienes, obras y servicios dentro de los plazos y condiciones establecidas, firmando para tal efecto el acta de recepción respectiva, así como gestionar y aprobar los pagos.
+7) Coordinar y preparar lo necesario para estimar los daños y perjuicios que se deben calcular para la ejecución de la garantía de participación o cumplimiento y realizar el trámite que corresponda.
+8) Realizar el análisis respectivo cuando el contratista solicite el pago de intereses moratorios, para lo cual se podrá apoyar del Área Financiera de la Empresa.
+9) Gestionar las liquidaciones de saldos de las órdenes de servicio o de compra en coordinación con el encargado de presupuesto.
+10) Elaborar y remitir la respuesta de todos aquellos recursos que les competa, y realizar el trámite ante Proveeduría para la ejecución de las multas, cláusulas penales, garantías, contrataciones irregulares, cobros y reclamos administrativos, prórrogas, rescisión y resolución contractual.
+11) Velar por la correcta ejecución y realizar informes de avance y cierre de la ejecución de los contratos, según se establezca en el cronograma respectivo, cuya copia deberá constar en el expediente correspondiente. El informe deberá estar dirigido a la jefatura inmediata del AC.
+12) Llevar un registro de los contratos a su cargo y su fecha de terminación, a fin de gestionar oportunamente ante la Proveeduría, las gestiones de suspensión, prórrogas, ampliación, modificaciones, finiquito, vencimiento de garantías, así como todo aquello que sea necesario tramitar con el tiempo necesario.
+13) Remitir a la Proveeduría todos los documentos oficiales que se generen a lo interno de su dependencia o los que reciba del contratista en torno a una contratación específica, para su custodia e incorporación en el expediente.
+14) Levantar minutas de las reuniones sostenidas con el oferente o con el contratista, según corresponda y enviarlas a la Proveeduría para su custodia e incorporación al expediente.
+15) De previo a iniciar una compra de materiales y equipo verificará las existencias en los almacenes de la Empresa, o en su defecto consultar si existe en desuso en otra de las empresas del ICE, a fin de maximizar el uso del inventario. En caso de que exista dicho material o equipo en los Almacenes, se deberá consultar si se encuentra disponible para su utilización. Dicha gestión podrá realizarse por correo y dejar la debida constancia en el expediente.
+16) Verificar que el contratista se encuentre al día con el pago de las obligaciones obrero patronales, y remitir dicho documento al expediente de la contratación respectiva. Esta verificación se deberá cumplir al momento de realizar el estudio técnico de adjudicación, y periódicamente durante toda la ejecución del contrato.
+17) Participar en aquellas audiencias previas para la confección del cartel que se realicen, así como confeccionar las minutas correspondientes.
+18) Cumplir con las normas que establezcan las Empresas sobre la Administración de Contratos.
+19) Cuando el contrato en particular sea parte de un proyecto empresarial de mayor alcance deberá coordinar con el Director del Proyecto.

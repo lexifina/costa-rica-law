@@ -1,0 +1,1 @@
+Artículo 85. Rescisión por mutuo acuerdo. La rescisión contractual por mutuo acuerdo podrá acordarse por razones de oportunidad y conveniencia. En este caso la Empresa podrá acordar los extremos a liquidar o indemnizar, que en ningún caso podrá exceder los límites señalados en el artículo anterior, siempre dentro de los límites de razonabilidad y proporcionalidad.

@@ -1,0 +1,2 @@
+Artículo 41. Actualización Económica. Los montos establecidos en el presente reglamento para CNFL y RACSA serán actualizados cada año, según el Índice de precios al productor de la manufactura establecido por el Banco Central para el año anterior y serán ajustados mediante resolución por la Proveeduría de cada empresa, en el mes de enero de cada año.
+En el caso de CVCR u otra empresa futura del ICE se actualizarán anualmente conforme a lo dispuesto por la Contraloría General de la República.

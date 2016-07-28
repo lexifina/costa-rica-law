@@ -1,0 +1,3 @@
+Artículo 52. Plan Piloto. Las Empresas podrán suscribir con algún cliente o empresa comercial, un Plan Piloto, para lo cual éstos últimos podrán poner a su disposición, entre otros, equipo, tecnología, experiencia y conocimiento a efecto de que la Empresa conozca sobre su funcionamiento y ventajas.
+Todo lo concerniente a la solución de pruebas se otorga de forma gratuita con el fin de conocer y explorar una tecnología determinada, quedando de manifiesto que no existirá ventaja alguna de tipo concursal para la empresa que pone a disposición su tecnología.
+El plan piloto será aprobado por la Gerencia General.

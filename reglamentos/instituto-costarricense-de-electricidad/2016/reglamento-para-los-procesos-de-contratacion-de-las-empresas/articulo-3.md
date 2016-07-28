@@ -1,0 +1,1 @@
+Artículo 3. Principios. La actividad de contratación se regirá, entre otros, por los siguientes principios: eficiencia, eficacia, publicidad, libre competencia, igualdad, buena fe, neutralidad tecnológica, sostenibilidad ambiental, legalidad y seguridad jurídica, razonabilidad y proporcionalidad, entre otros.

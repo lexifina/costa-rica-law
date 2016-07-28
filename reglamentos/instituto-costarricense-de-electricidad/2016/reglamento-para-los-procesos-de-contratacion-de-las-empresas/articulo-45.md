@@ -1,0 +1,1 @@
+Artículo 45. Determinación del precio. La base para la venta de todos los bienes sujetos a procesos de enajenación, cuando proceda, será fijado mediante un avalúo realizado por el personal responsable en materia de Avalúos de la Empresa o bien el Proceso de Avalúos del ICE.

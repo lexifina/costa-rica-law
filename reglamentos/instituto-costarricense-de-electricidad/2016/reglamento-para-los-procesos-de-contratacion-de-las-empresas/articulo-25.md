@@ -1,0 +1,1 @@
+Artículo 25. La documentación que se presente para incorporar al Registro de Proveedores podrá ser utilizada en cualquiera de los procedimientos de contratación y deberá ser entregada en la Proveeduría o bien ingresada en la página web respectiva.

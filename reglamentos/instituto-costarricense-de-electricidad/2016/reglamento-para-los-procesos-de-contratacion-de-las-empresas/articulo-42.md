@@ -1,0 +1,11 @@
+SECCIÓN II
+Modalidades de Suministro
+Artículo 42. Modalidad de contrato. Los contratos de suministro podrán realizarse bajo los siguientes criterios:
+a) Cantidad definida: mediante la compra de una cantidad específica previamente definida, ya sea que se fije un plazo de entrega único o con varios tractos referidos a entregas parciales.
+b) Entrega según demanda: cuando las condiciones de consumo de la Empresa sean altas y frecuentes, se podrá pactar no una cantidad específica, sino el compromiso de suplir los suministros periódicamente, según las necesidades de consumo puntuales que se vayan dando durante la fase de ejecución.
+En este supuesto la Empresa incluirá en el cartel, a modo de información general, los consumos estimados, según sea la naturaleza del objeto.
+Las cotizaciones se harán sobre la base de precios unitarios formulados con fundamento en una proyección de los consumos. El cartel deberá definir con toda claridad, entre otros: el plazo de la contratación, el cual no podrá ser superior a seis años, incluyendo plazo inicial y eventuales prórrogas, las condiciones de revisión periódicas de precios, sea en aumento o disminución según
+comportamiento del mercado, las reglas sobre la eventual exclusividad, la metodología de ejecución del contrato, incluyendo los plazos mínimos de aviso al contratista para la siguiente entrega y los máximos en los que éste debe entregar, sistemas del control de calidad, causas de resolución contractual, reglas para excluir e incluir un producto y demás asuntos pertinentes.
+a. Ejecución por consignación: En objetos, en los que la determinación de la demanda puede sufrir variaciones importantes y periódicas durante la fase de ejecución, es posible realizar la contratación mediante la entrega de un lote inicial con el compromiso del contratista durante el plazo contractual de restituir los componentes o elementos consumidos.
+De previo a la utilización de esta modalidad, el AC deberá dejar acreditado que para el caso particular, su uso es más conveniente que la contratación de una cantidad única.
+El cartel deberá regular las condiciones de entrega original y formas de restitución, así como el plazo máximo del contrato, el cual no podrá ser superior a seis años. Las cotizaciones se harán en precios unitarios sobre la base de una estimación de consumo.

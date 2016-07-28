@@ -1,0 +1,1 @@
+Artículo 19. Si en el momento de iniciar un procedimiento de contratación, se determina que el monto estimado y publicado en el Programa de Adquisiciones requiere un ajuste, éste podrá realizarse con la aprobación de la Gerencia General, siempre y cuando no cambie el procedimiento de contratación ya publicado.

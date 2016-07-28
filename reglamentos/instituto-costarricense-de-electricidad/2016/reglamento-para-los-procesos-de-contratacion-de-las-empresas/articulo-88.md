@@ -1,0 +1,2 @@
+Artículo 88. Multas y cláusula penal. En el Cartel se podrá establecer el pago de multas por defectos en la ejecución del contrato y cláusulas penales por ejecución tardía o prematura de las obligaciones contractuales. En ambos casos, el cobro no podrá exceder del 25% del valor total del contrato.
+En caso de que el objeto esté compuesto por líneas distintas, el monto máximo para su cobro se considerará sobre el mayor valor de cada una y no sobre la totalidad del contrato, siempre que el incumplimiento de una línea no afecte el resto de las obligaciones.

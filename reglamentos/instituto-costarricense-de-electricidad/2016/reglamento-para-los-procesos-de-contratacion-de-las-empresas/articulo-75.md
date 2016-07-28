@@ -1,0 +1,3 @@
+Artículo 75. Prórroga del plazo
+La prórroga en el plazo de ejecución contractual o al plazo de entrega procederá cuando existan demoras ocasionadas por la Empresa o causas ajenas al contratista. El contratista deberá solicitar la prórroga siempre que esté vigente el plazo contractual. Si la solicitud se hace fuera del plazo, pero estando aún el contrato en ejecución, la Empresa puede autorizarla, siempre que esté vigente el plazo del contrato.
+Ante la solicitud del contratista, el AC valorará y deberá presentar su recomendación junto con la documentación relacionada a la Proveeduría o dependencia de adquisiciones para su valoración y aprobación. Una vez aprobada, la Proveeduría incorporará al expediente la documentación correspondiente.

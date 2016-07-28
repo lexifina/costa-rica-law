@@ -1,0 +1,2 @@
+Artículo 69. Recurso de Revocatoria. En los concursos de adquisición podrá plantearse el recurso de revocatoria en relación con el acto de adjudicación. En las adquisiciones de escasa cuantía, no procederá el recurso de revocatoria.
+El recurso será planteado ante la Proveeduría o dependencia de adquisiciones, dentro de los tres días hábiles siguientes a la fecha en que se comunicó el acto de adjudicación. Será resuelto por la instancia que dictó la adjudicación en el plazo de quince días hábiles.

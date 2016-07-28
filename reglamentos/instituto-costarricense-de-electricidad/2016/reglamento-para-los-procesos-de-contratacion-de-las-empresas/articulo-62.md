@@ -1,0 +1,1 @@
+Artículo 62. Alcances de las mejoras. Las mejoras, ventajas y descuentos en la oferta que fueren sometidas a la Empresa, después del acto de apertura respectiva serán tomados en cuenta en la valoración y comparación de la propuesta, y obligarán a quien lo formule una vez firme la adjudicación.

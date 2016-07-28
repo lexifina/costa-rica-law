@@ -1,0 +1,1 @@
+Artículo 36. La Proveeduría es la responsable de la conducción de las contrataciones y de aplicar los procedimientos que correspondan. Cuando se determine el procedimiento a seguir, se deberá evitar la fragmentación ilícita, así como documentar todas sus actuaciones en el expediente.

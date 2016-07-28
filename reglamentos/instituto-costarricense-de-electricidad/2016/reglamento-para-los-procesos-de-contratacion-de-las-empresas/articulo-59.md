@@ -1,0 +1,2 @@
+Artículo 59. Condiciones. Las condiciones de la oferta y su estudio se establecerán en el Cartel.
+Con la sola presentación de la oferta se presume su cumplimiento y vigencia por todo el plazo estipulado en el requerimiento, salvo que expresamente se indique lo contrario. Además, que se someten a los Tribunales de Costa Rica para todas las incidencias que de modo directo o indirecto puedan surgir del Contrato con renuncia a su jurisdicción.

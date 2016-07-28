@@ -1,0 +1,1 @@
+Artículo 38. El cartel lo confeccionará el AC designado por la dependencia promovente de la contratación, siguiendo las disposiciones del machote de cartel, así como los lineamientos de la Proveeduría. Una vez revisado y aprobado por la Proveeduría, deberá ser publicado en la página web correspondiente.

@@ -1,0 +1,1 @@
+Artículo 20. Al finalizar cada período presupuestario, la Proveeduría hará una evaluación de la gestión de contratación de bienes, obras y servicios por dependencia e informará sobre el particular al Gerente General. Dicha evaluación incluirá las recomendaciones que la Proveeduría considere pertinentes.
