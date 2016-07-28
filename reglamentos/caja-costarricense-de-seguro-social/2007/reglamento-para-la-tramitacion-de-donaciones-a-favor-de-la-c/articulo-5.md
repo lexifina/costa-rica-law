@@ -1,1 +1,0 @@
-Artículo 5º—De los montos para aceptar las donaciones. Los órganos con competencia para aprobar donaciones podrán conocer aquellas solicitudes cuyo monto corresponda como máximo a los definidos por la Junta Directiva para proceder a la adjudicación de procesos de contratación administrativa.
