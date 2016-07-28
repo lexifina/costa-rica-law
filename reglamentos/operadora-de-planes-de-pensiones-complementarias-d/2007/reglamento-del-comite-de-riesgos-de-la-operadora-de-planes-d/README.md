@@ -17,3 +17,4 @@ Reglamento del Comité de Riesgos de la Operadora de Planes de Pensiones Complem
 | 2 | 2009-08-19 | Reglamento 311 (2009-08-19) |
 | 3 | 2011-05-12 | Reglamento 352 (2011-05-12) |
 | 4 | 2014-08-28 | Reglamento 442 (2014-08-28) |
+| 5 | 2016-07-28 | Reglamento 492 (2016-07-28) |
