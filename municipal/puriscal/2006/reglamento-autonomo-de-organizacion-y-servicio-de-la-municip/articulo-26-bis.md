@@ -1,0 +1,2 @@
+Artículo 26 Bis.-No obstante lo indicado en el artículo anterior, en caso de abrirse concursos para nuevas plazas, en aras de darle continuidad al servicio público, el horario de estas nuevas plazas será de las 8:00 a.m. a 4:30 p.m., debiendo ajustarse la persona nombrada a este horario, independientemente si el nombramiento se da en forma interina o en propiedad, por ascenso directo o concurso externo o interno.
+(Así adicionado mediante acuerdo 020-482- 2015 y publicado en La Gaceta N° 145 del 28 de julio de 2016)

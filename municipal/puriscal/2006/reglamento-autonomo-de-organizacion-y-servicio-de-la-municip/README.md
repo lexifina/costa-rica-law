@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Puriscal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-11-24 | la propia norma |
+| 2 | 2016-07-28 | Reglamento municipal 0 (2016-07-28) |
