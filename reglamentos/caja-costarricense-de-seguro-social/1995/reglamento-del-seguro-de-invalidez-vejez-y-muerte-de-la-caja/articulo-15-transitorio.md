@@ -1,0 +1,2 @@
+Transitorio XV.- La presente reforma entrará en vigencia a partir del 1° de setiembre del año 2016. Una vez transcurridos cincuenta y cuatro (54) meses desde la entrada en vigencia de esta reforma, ninguna persona podrá acceder a un retiro anticipado con derecho a pensión reducida conforme a los artículos 5 y 24 del Reglamento del Seguro de Invalidez, Vejez y Muerte.
+(Así adicionado mediante sesión N° 8856 del 28 de julio del 2016)
