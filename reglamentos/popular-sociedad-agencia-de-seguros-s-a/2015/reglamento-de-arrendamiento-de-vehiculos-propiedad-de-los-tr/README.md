@@ -14,3 +14,4 @@ Reglamento de arrendamiento de vehículos propiedad de los trabajadores del Popu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-03-20 | la propia norma |
+| 2 | 2016-07-29 | Reglamento 0 (2016-07-29) |
