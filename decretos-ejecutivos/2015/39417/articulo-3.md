@@ -1,0 +1,1 @@
+Artículo 3°—La verificación del cumplimiento del presente reglamento corresponde a la Dirección de Productos de Interés Sanitario. Para ello podrá aplicar las facultades y medidas establecidas en la Ley General de Salud N° 5395 publicada en La Gaceta N° 222, Alcance 172 del 24 de noviembre de 1973.

@@ -1,0 +1,2 @@
+Artículo 2°— Modifíquese el artículo 1º del Decreto Ejecutivo Nº 35244-S “Reglamento del Sistema Nacional de Farmacovigilancia” publicado en La Gaceta 98 del 22 de mayo del 2009, para que a partir de la entrada en vigencia del presente decreto se lea:
+“Artículo 1°—Ámbito de aplicación. Las disposiciones del presente reglamento se aplican a cada uno de los agentes que conforman el Sistema Nacional de Farmacovigilancia y a todos los medicamentos de uso humano que se importan, fabrican, comercializan y utilizan en el país.”

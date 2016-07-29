@@ -1,0 +1,1 @@
+TRANSITORIO: Se otorga un plazo de tres meses a partir de la entrada en vigencia del presente Reglamento a los centros prestadores de servicios de salud e industria farmacéutica, para comunicar al CNFV el nombre, calidades y datos de contacto del encargado de FV.
