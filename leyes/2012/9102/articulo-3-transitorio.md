@@ -1,0 +1,2 @@
+Transitorio.- Se autoriza a la Municipalidad de Belén para que condone la deuda existente a la fecha de la entrada en vigencia de esta ley, por concepto de impuesto de rótulos, a los patentados de negocios comerciales que cuentan con rótulos o anuncios, según la Ley N.° 9102, Ley de Patentes de la Municipalidad de Belén, de 7 de noviembre de 2012.
+(Así adicionado por el artículo 1° de la ley N° 9368 del 27 de junio del 2016)

@@ -1,2 +1,1 @@
-ARTÍCULO 31.- Autorización
-Se autoriza a la Municipalidad para que adopte las medidas administrativas necesarias para aplicar esta ley.
+ARTÍCULO 31.- (Nota de Sinalevi: El texto del presente artículo se encuentra en el numeral 28, toda vez que por el artículo 2° de la ley N° 9368 del 27 de junio del 2016 se ordina derogar los artículo 28, 29, 30 originales y correr la numeración de los posteriores)
