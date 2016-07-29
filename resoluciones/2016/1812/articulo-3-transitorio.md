@@ -1,0 +1,3 @@
+Transitorio III
+En los puntos “4.2 Autenticación y Autorización de Transacciones” y “4.3 Emisión de comprobantes de transacciones” de la Sección “IV. REQUERIMIENTOS MÍNIMOS RESPECTO A LA AUTENTICACIÓN DE CLIENTES Y AUTORIZACIÓN DE TRANSACCIONES EN LOS MEDIOS Y DISPOSITIVOS DE LOS CANALES ELECTRÓNICOS UTILIZADOS EN LA PRESTACIÓN DE SERVICIOS FINANCIEROS DE BANCA EN LINEA.”, se hace referencia al sitio web. Sin embargo, en el momento a partir del cual la entidad utilice una plataforma alternativa, ésta deberá informarlo a la SUGEF, aplicándole los mismos requerimientos estipulados en los puntos mencionados.
+Rige a partir de su publicación en el Diario Oficial La Gaceta.
