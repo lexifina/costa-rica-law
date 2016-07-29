@@ -1,0 +1,15 @@
+Artículo 2°—Refórmese el inciso q) del artículo 7, trasladándose su texto a la numeración del inciso s); inciso del artículo 8; el artículo 64; la parte inicial del artículo 74 y el inciso b) del artículo $1 del Reglamento Autónomo Servicio del Ministerio Vivienda Asentamientos Humanos promulgado mediante Decreto Ejecutivo N° 28007-MP-MIVAH de 26 de abril de 1999 publicado en el Diario Oficial La Gaceta N° 154 del 10 de agosto de 1999, reformado mediante Decreto Ejecutivo N° 35417-MP-MIVAH de 14 de julio de 2009 publicado en el Diario Oficial La Gaceta N° 153 del 7 de agosto del 2009, para que se lean de la siguiente manera:
+Artículo 7°—De los deberes de los servidores. Además de los dispuesto en el artículo 39 del Estatuto de Servicio Civil, 50 de su Reglamento, la Ley General de la Administración Pública, la Ley General de Control Interno, la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y toda aquella normativa que imponga obligación a los servidores regulares como
+interinos deberán:
+(...)
+q) Abstenerse de utilizar lenguaje o realizar conductas que sean discriminatorias o contrarias a la dignidad de personas por razones religiosas, de ideología política, discapacidad, etnia, nacionalidad, idioma, género, orientación sexual e identidad de género contra cualquier usuario, personal de la institución u otras instituciones. En caso de queja o denuncia, ya sea de manera personal o por interpósita persona, de que algún servidor (a) de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas pertinentes o lo comunique a la autoridad competente.”
+(...)
+s) Las demás obligaciones que en forma expresa establezca el Ordenamiento Jurídico.”
+Artículo 8°—Además de las contempladas en el artículo anterior y en otros de este Reglamento, los jefes de sección, departamento, oficina o unidad, tendrán las siguientes obligaciones:
+(…)
+f) No incurrir en prácticas discriminatorias hacia sus subalternos u otros servidores o usuarios de la Institución por razones de orden político electoral, discapacidad, religión, etnia, nacionalidad, idioma, género, orientación sexual o identidad de género.
+Artículo 64. El procedimiento deberá ser llevado a cabo resguardando la imagen, confidencialidad y los principios que rigen la actividad administrativa, con observancia de los principios establecidos en la Ley N°7476 de 3 de febrero de 1995 y sus reformas, en especial el principio pro víctima, el cual implica que, en caso de duda, se interpretará en favor de la víctima, so pena de incurrir en falta grave.
+Artículo 74.—Según la gravedad de la falta se impondrán las siguientes sanciones: la amonestación escrita, la suspensión sin goce de salario en caso de falta grave y el despido sin responsabilidad patronal.
+Artículo 81 .—Los servidores regulares o interinos del Ministerio disfrutarán licencia con goce de salario por una semana por motivo de:
+(...)
+b) Por fallecimiento de sus padres, hermanos, hijos, cónyuge, compañero o compañera.
