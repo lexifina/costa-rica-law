@@ -1,0 +1,1 @@
+Artículo 34º- En caso de ausencia del Secretario de Actas del Consejo Directivo, el Consejo podrá recargar la función en un funcionario de la Institución, o bien nombrar un secretario interino. Para este nombramiento se requerirá mayoría absoluta.

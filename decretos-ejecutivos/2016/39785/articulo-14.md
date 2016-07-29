@@ -1,0 +1,1 @@
+Artículo 14º- Cuando no estuvieren presentes el Presidente y el Secretario, los miembros asistentes nombrarán un Presidente y un Secretario, ambos ad hoc, quienes tendrán las mismas funciones y atribuciones establecidas para esos cargos en este reglamento, para efecto de las sesiones.

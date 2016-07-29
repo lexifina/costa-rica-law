@@ -1,0 +1,2 @@
+Artículo 28º- Cualquier miembro del Consejo Directivo podrá solicitar la revisión de un acuerdo a más tardar antes de aprobarse el acta correspondiente. El recurso deberá resolverse en la misma sesión en que se conozca el acta; salvo que por tratarse de un asunto que el Presidente juzgue urgente, prefiera conocerlo en sesión extraordinaria.
+Las observaciones de forma relativas a la redacción de acuerdos no serán consideradas como recursos de revisión.

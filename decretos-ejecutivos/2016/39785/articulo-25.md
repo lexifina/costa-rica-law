@@ -1,0 +1,1 @@
+Artículo 25º- Los acuerdos tomados por el Consejo Directivo quedarán firmes cuando se apruebe el acta respectiva; o cuando así se declare por votación de la mayoría calificada de los miembros del Consejo Directivo.

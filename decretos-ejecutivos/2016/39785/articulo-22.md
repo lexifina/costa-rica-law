@@ -1,0 +1,1 @@
+Artículo 22º- No podrá ser objeto de acuerdo ningún asunto que no figure expresamente en el orden del día, salvo que sean incluidos bajo el procedimiento del artículo 14 del presente reglamento en su párrafo final.

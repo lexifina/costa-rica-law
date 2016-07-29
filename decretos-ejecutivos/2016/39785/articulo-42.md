@@ -1,0 +1,2 @@
+Artículo 42º- La información, documentación y otras evidencias de los estudios de auditoría, así como la identidad de los eventuales denunciantes, serán confidenciales.
+Cuando los resultados puedan originar la apertura de un procedimiento administrativo, la información y los documentos serán confidenciales durante la formulación del informe, excepto para las partes involucradas una vez emitido dicho informe y hasta la resolución final del citado procedimiento, quienes tendrán libre acceso al expediente.

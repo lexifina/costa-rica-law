@@ -1,0 +1,3 @@
+Artículo 38º- Los actos y decisiones del Gerente General pueden ser recurridos por los funcionarios y particulares afectados de la siguiente forma:
+a) Recurso de revocatoria a presentar por escrito ante el Gerente General en el término de tres días hábiles, después de comunicada la decisión o el acto. El Gerente General lo resolverá por escrito en el término máximo de diez días hábiles.
+b) Recurso de apelación a presentar por escrito ante el Consejo Directivo en el término de tres días hábiles, después de comunicada la resolución de la revocatoria. El Consejo Directivo lo resolverá por escrito en el término máximo de un mes calendario.

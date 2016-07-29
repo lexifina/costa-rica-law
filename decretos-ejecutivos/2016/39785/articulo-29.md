@@ -1,0 +1,1 @@
+Artículo 29º- Ningún miembro del Consejo Directivo podrá estar presente en el momento de la sesión en que se discutan y resuelvan asuntos en los que tengan interés personal directo o indirecto; según los impedimentos o excusas señalados en los Artículos 49 y 53 del Código Procesal Civil.

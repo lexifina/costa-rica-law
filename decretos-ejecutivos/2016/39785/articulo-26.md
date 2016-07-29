@@ -1,0 +1,2 @@
+Artículo 26º- Los miembros del Consejo Directivo devengarán dietas, según lo establecido en el Artículo 2º de la ley número 3065 del 20 de noviembre de 1962 y sus reformas; las cuales se aumentarán cada año conforme con el índice de inflación calculado por el Banco Central de Costa Rica. Lo anterior de acuerdo con las disposiciones legales vigentes. En ningún caso se remunerará más de ocho sesiones por mes, incluyendo ordinarias y extraordinarias.
+Las dietas se cancelarán mensualmente conforme los procedimientos de pagos establecidos para operaciones ordinarias del PIMA.

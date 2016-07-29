@@ -1,0 +1,4 @@
+Artículo 20º- Los acuerdos del Consejo Directivo se tomarán previa deliberación una vez discutido suficientemente el tema, por la mayoría absoluta de los votos de los miembros presentes, salvo los casos en que la reglamentación interna o el ordenamiento jurídico en general prescriba una mayoría calificada para ese caso en particular.
+Cuando un miembro del Consejo Directivo vote negativamente un acuerdo, podrá solicitar la consignación en actas de su voto negativo y su justificación, con lo cual queda exento de la responsabilidad que pudiera derivarse del acuerdo.
+Cuando efectuada la votación resultare empate, se procederá de inmediato a una segunda votación. En caso de persistir dicho resultado, el presidente gozará de voto de calidad.
+Los votos salvados deberán ser comunicados cuando se trate de la formulación de un dictamen o propuesta.

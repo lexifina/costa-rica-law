@@ -1,0 +1,1 @@
+Artículo 30º - Cualquier interesado legitimado o persona que ostente un derecho subjetivo podrá interponer recurso de reposición por escrito contra los acuerdos del Consejo Directivo, en un término de tres días hábiles luego de haber sido notificado.

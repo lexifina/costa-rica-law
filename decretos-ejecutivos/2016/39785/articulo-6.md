@@ -1,0 +1,2 @@
+Artículo 6º- El Consejo Directivo elegirá de su seno un Presidente y un Secretario, por el término de un año y en votación secreta celebrada en la primera sesión de mayo. La elección se hará conforme con lo estipulado en el Artículo 49 de la Ley General de la Administración Pública.
+En caso de empate de esta elección en particular se procederá a una nueva votación. Si persiste el empate, quedará en el cargo el postulante de mayor edad.

@@ -1,0 +1,3 @@
+Artículo 41 º - Las funciones del Auditor serán aquellas establecidas en la Ley de Control Interno y demás normativa jurídica aplicable, además de las establecidas en el Manual de Funciones y el Reglamento respectivo emitido por el Consejo Directivo.
+Tiene la potestad de utilizar según las circunstancias, las técnicas y herramientas de auditoría que satisfagan en mejor forma las necesidades de los exámenes y verificaciones que lleve a cabo.
+Se debe formular y mantener actualizado y en uso un Manual de Procedimientos de Auditoría, que defina las características y procesos de auditoría aplicables en la Institución, así como el Manual de Organización y Funcionamiento de la Auditoría Interna del PIMA.

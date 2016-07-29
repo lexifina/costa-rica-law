@@ -1,0 +1,2 @@
+Artículo 36º - El Gerente General es un funcionario de confianza cuyo nombramiento, régimen disciplinario y remoción corresponde al Consejo Directivo.
+El Consejo Directivo elegirá al Gerente General con base en un concurso público o abreviado, por un período de 4 años con posibilidad de reelección. El Gerente General deberá ser costarricense, graduado de una carrera universitaria que lo faculte para el desempeño del cargo y además tener amplia experiencia en la dirección de programas técnicos y administrativos de alto nivel, especialmente en el área de mercadeo agropecuario.

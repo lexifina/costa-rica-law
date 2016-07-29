@@ -1,0 +1,2 @@
+Artículo 32º - El Secretario de Actas del Consejo Directivo es un funcionario público cuyo nombramiento, régimen disciplinario y remoción corresponde al Consejo Directivo.
+El Consejo Directivo elegirá a dicho funcionario con base en un concurso público o abreviado. Deberá ser graduado de una carrera universitaria que lo faculte para el desempeño del cargo, tener experiencia en el desempeño del mismo y facilidad para la redacción.

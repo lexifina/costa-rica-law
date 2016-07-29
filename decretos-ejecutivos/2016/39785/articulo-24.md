@@ -1,0 +1,2 @@
+Artículo 24º- Las actas se aprobarán en la siguiente sesión ordinaria, salvo las excepciones que autorice el Consejo Directivo. Una vez aprobadas, las actas se consignarán en el Libro que al efecto se debe llevar de conformidad con las normas técnicas y demás disposiciones emitidas por la Contraloría General de la República.
+El Libro de Actas deberá ser firmado en cada sesión transcrita; por el Presidente y el Secretario de este Consejo y por los miembros de ese órgano colegiado que hubieren hecho constar su voto disidente.

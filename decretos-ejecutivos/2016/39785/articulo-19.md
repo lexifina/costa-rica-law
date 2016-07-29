@@ -1,0 +1,5 @@
+Artículo 19º - Los miembros del Consejo Directivo están obligados a solicitar autorización del Consejo, cuando por cualquier circunstancia, deban ausentarse consecutivamente de sesiones por el lapso de un mes o más.
+El Consejo tomará el acuerdo respectivo con base en el análisis de motivos y, si lo considera pertinente, podrá solicitar de previo la comprobación.
+En el interés de mantener el quórum y la debida asistencia, el Consejo no podrá autorizar ausencias consecutivas superiores a dos meses. En este caso, el miembro del Consejo Directivo deberá renunciar a su cargo o, en su defecto, el Consejo solicitará un nombramiento para sustituirlo, o bien remitirá el respectivo informe al Consejo de Gobierno para que ejerza la sanción disciplinaria oportuna.
+Cuando se otorgue autorización para ausencias consecutivas, el Consejo podrá solicitar, si lo considera conveniente, el nombramiento de un sustituto provisional.
+Si un directivo se ausenta consecutivamente por más de un mes sin la autorización mencionada, el Consejo deberá comunicar la situación al órgano o al titular que lo nombró.
