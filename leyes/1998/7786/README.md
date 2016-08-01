@@ -1,6 +1,6 @@
 # Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso No Autorizado, actividades Conexas, legitimación de capitales y financiamiento al terrorismo
 
-Ley N° 7786 del 1998-04-30. SINALEVI, ficha 29254: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29254&param2=93997&param3=1>.
+Ley N° 7786 del 1998-04-30. SINALEVI, ficha 29254: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=29254&param2=104835&param3=1>.
 
 Publicada en La Gaceta N° 93 del 1998-05-15.
 
@@ -15,3 +15,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 5 de 14 | 2009-03-16 | Ley 8719 | 2009-03-04 |
 | 6 de 14 | 2013-02-22 | Ley 9074 | 2012-09-20 |
 | 7 de 14 | 2013-09-23 | Ley 9161 | 2013-08-13 |
+| 8 de 14 | 2016-08-01 | Ley 9387 | 2016-07-28 |
