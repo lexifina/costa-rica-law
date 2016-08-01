@@ -1,0 +1,1 @@
+Artículo 17°- El CCHJFF realiza actividades gratuitas y abiertas a la comunidad. No se permite el cobro de entrada a menos que se trate de causas benéficas para instituciones de bien social. En estos casos, debe incorporarse esta información en la solicitud, de manera que se conozca el beneficiario y el costo de la actividad y se incluya en el material de divulgación.

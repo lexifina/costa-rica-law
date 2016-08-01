@@ -1,0 +1,1 @@
+Artículo 20°— La utilización de las instalaciones y/o equipos se realizará siguiendo siempre las indicaciones de las autoridades del CCHJFF, asumiendo las personas usuarias o expositoras, la responsabilidad por los daños producidos por el uso inadecuado.

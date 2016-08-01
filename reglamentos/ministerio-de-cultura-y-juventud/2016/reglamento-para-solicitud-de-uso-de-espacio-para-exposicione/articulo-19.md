@@ -1,0 +1,1 @@
+Artículo 19°— Por razones de seguridad de los usuarios y personal del CCHJFF, no se permite la instalación de equipo o la ubicación de público bloqueando las áreas de acceso al edificio o de las salas. Tampoco se permite mover obras de arte.

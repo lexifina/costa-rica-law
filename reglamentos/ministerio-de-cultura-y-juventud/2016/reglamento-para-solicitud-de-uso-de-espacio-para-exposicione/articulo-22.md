@@ -1,0 +1,1 @@
+Artículo 22°— El artista puede solicitar el espacio previo al desarrollo de la actividad, para ensayar, realizar pruebas de sonido, iluminación u otras, previa coordinación con el CCHJFF. Lo anterior, para evitar que se afecte la prestación del servicio o el desarrollo de otras actividades.

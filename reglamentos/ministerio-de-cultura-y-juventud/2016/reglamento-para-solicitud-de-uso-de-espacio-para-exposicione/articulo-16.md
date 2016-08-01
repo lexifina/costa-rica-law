@@ -1,0 +1,1 @@
+Artículo 16°— Cuando la actividad requiera servicio de alimentación o refrigerio, debe ser servido en el jardín. No se permite el ingreso de alimentos ni la ingesta de los mismos en la Galería, ni en el Auditorio.

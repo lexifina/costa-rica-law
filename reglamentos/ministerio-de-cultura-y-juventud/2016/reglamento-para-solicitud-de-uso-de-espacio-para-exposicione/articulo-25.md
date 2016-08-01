@@ -1,0 +1,1 @@
+Artículo 25°— El CCHJFF, en la medida de sus posibilidades, colaborará con el transporte de obras de los expositores invitados de acuerdo a la disponibilidad de recursos automotores propios en el momento requerido.

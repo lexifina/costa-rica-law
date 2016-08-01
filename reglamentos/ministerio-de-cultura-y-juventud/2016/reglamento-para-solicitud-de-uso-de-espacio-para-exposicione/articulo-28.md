@@ -1,0 +1,4 @@
+Artículo 28°— En el caso que el solicitante renuncie al uso de los espacios autorizados, éste lo deberá comunicar de forma justificada, por escrito, con al menos un mes de anticipación. No obstante el CCHJFF valorará justificaciones presentadas en un plazo menor, siempre y cuando se trate de razones de fuerza mayor y caso fortuito.
+El artista que renuncie al espacio asignado, deberá aportar el contacto de un expositor, artistas o agrupación alternativa, para que la institución pueda valorar la suplencia de la actividad solicitada y coordinar la misma.
+El artista que renuncie de forma injustificada al espacio otorgado, no se tendrá en cuenta para la programación anual siguiente.
+Aprobado por el Consejo Directivo, con fundamento en la Ley No 7672 del 29 de abril de 1997, según consta en el acta No 229 del 15 de junio de 2016.

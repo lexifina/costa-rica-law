@@ -1,0 +1,1 @@
+Artículo 10°— Los expositores deben asegurarse de completar la boleta de recepción de obras, al entregar la exposición a los funcionarios del CCHJFF. De igual manera deben firmar el recibido de la misma, al momento de retirar la muestra.

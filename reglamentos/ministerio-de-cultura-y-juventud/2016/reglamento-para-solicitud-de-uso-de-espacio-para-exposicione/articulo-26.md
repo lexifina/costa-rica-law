@@ -1,0 +1,1 @@
+Artículo 26- El CCHJFF aporta el personal encargado de gestionar el acto inaugural de las exposiciones (organización, guión, maestro de ceremonias) así como de organizar el refrigerio de inauguración y los enseres (platos, vasos, servilletas, cucharas, copas, etc) necesarios para tal fin.

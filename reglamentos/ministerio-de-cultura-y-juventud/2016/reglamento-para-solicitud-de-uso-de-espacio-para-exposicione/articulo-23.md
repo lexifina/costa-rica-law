@@ -1,0 +1,1 @@
+Artículo 23°— El expositor (persona física o jurídica responsable) deberá encargarse del seguro de las obras, si así lo considera necesario. El CCHJFF no se responsabilizará por daños, hurtos o robos que sufran las obras expuestas.

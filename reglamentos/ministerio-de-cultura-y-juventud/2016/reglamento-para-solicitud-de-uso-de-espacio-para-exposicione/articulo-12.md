@@ -1,0 +1,1 @@
+Artículo 12°- El expositor debe colaborar, de acuerdo con sus posibilidades, con los insumos para el refrigerio de inauguración, y si le es posible con una actividad cultural complementaria (performance, solista o grupo musical, danza u otros), previa coordinación, con el responsable del Área de Promoción Cultural y Educativa del CCHJFF, con al menos un mes de anticipación.

@@ -1,0 +1,1 @@
+Artículo 15°— Los cambios en las actividades que se realicen por razones caso fortuito o fuerza mayor, deben ser debidamente comunicados a la Dirección Administrativa, con la anticipación necesaria para difundir la información, de manera que el público que se presente cuente con datos reales acerca de la actividad a la que asiste.
