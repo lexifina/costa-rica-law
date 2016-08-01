@@ -1,1 +1,0 @@
-Artículo 9º—No podrán formar parte de la Junta Directiva del Comité Cantonal los regidores y síndicos, el alcalde, los alcaldes suplentes, loa concejales de distrito, el auditor, el tesorero, el contador y personal de la Municipalidad y del mismo Comité, sus cónyuges o parientes en línea directa o colateral hasta el tercer grado inclusive.

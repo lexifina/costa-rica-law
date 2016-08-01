@@ -1,1 +1,0 @@
-Artículo 61.—El padrón confeccionado por una determinada elección, tendrá vigencia para ella solamente, de manera que para otra elección posterior debe depurarse, de conformidad con lo establecido en este Reglamento, de forma que los delegados nombrados por una organización, tienen representatividad solo para la elección para la que fueron designados, perdiéndola pasada la misma.

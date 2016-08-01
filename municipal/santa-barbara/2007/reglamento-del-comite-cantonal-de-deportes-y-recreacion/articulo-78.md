@@ -1,2 +1,0 @@
-Artículo 78.—Todos aquellos aspectos no regulados en este proyecto de reglamento, serán resueltos por la Junta Directiva del Comité Cantonal de conformidad con la legislación vigente”.
-“Por su naturaleza. La Reforma a este Reglamento de conformidad con lo establecido en el artículo 43 del Código Municipal, se somete a consulta publica por un lapso de 10 hábiles, contados a partir de su publicación en el Diario Oficial La Gaceta, debiendo cualquier interesado hacer sus oposiciones en memorial razonado, ante la Secretaria Municipal.

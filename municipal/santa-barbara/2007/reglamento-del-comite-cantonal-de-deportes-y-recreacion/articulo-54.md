@@ -1,7 +1,0 @@
-Artículo 54.—Queda expresamente prohibido a las integrantes de las Juntas Directivas de los Comités Comunales lo siguiente:
-a) Celebrar, suscribir, negociar, acordar, pactar, ejecutar o ejercer influencia cualquier tipo de convenio o contrato en que tenga interés el Comité Cantonal o el Comité Comunal.
-b) Realizar cualquier tipo de contratación laboral personal, por plazo definido, indefinido o a destajo, así como por servicios profesionales con el Comité Comunal, al que sirve, y formalizar cualquier tipo de contrato laboral con terceras personas físicas o jurídicas, sin el consentimiento del Comité Cantonal.
-c) Despedir o sancionar a cualquier funcionario con ligamen laboral, asignado al Comité Comunal, pues dicha función corresponde al Comité Cantonal, que procederá a petición del Comunal, previa remisión de las pruebas correspondientes. Para que este sea el que eventualmente proceda apegado a la ley.
-d) Iniciar torneos o campeonatos deportivos o recreacionales sin el aval correspondiente por parte de la Junta Directiva del Comité Cantonal. La solicitud de aval deberá ser presentada con diez días hábiles de anticipación a la fecha prevista para el comienzo de dicha competencia.
-e) Utilizar fondos del Comité Comunal para préstamos personales o autorizar créditos a miembros de su Junta Directiva o cualquier tercero.
-f) Autorizar cualquier tipo de erogación económica por pequeña que sea, sin haber verificado la existencia previa de contenido presupuestario.

@@ -1,1 +1,0 @@
-Artículo 48.—Los Comités Comunales, en el ejercicio de sus funciones, dirigirán todo su esfuerzo a lograr que las metas establecidas en el plan anual de trabajo y en respectivo presupuesto, tanto a nivel operativo como a nivel de ingresos por concepto de cánones y otros, se cumpla satisfactoriamente, sobre el avance de la ejecución del plan anual.
