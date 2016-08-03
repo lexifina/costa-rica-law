@@ -1,0 +1,1 @@
+Artículo 7o—Previsión. El Departamento de Desarrollo Social deberá velar para que se garantice la reserva de un monto determinado en el presupuesto anual disponible, para efectos de atender las necesidades que surjan de conformidad con este reglamento.

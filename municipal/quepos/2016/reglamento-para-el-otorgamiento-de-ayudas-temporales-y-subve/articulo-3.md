@@ -1,0 +1,1 @@
+Artículo 3o—Reserva Presupuestaria. La Municipalidad deberá incluir cada año al realizar el Presupuesto Ordinario del año inmediato siguiente, una partida específica para otorgar ayudas temporales a vecinos del cantón que enfrenten situaciones de desgracio o infortunio y subvenciones a centros educativos o de bienestar social.

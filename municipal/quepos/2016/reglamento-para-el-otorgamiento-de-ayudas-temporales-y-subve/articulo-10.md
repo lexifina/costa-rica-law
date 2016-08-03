@@ -1,0 +1,1 @@
+Artículo 10°—Las ayudas que concederá la Municipalidad de Quepos podrán ser en dinero según lo indicado en este cuerpo normativo, en materiales o en víveres, según la recomendación que, de acuerdo con lo establecido realizará el ente encargado del estudio social.
