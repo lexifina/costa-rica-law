@@ -1,0 +1,1 @@
+Artículo 12. —A nivel Pre Hospitalario: Responde a emergencias terrestres, acuáticas y aéreas, teniendo la capacidad de controlar cada uno de estos escenarios. Siempre y cuando cuente con la capacitación necesaria para tal efecto y asuma la responsabilidad que esto conlleva.

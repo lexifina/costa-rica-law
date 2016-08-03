@@ -1,0 +1,1 @@
+Artículo 52. —Documentos Clínicos: Los documentos clínicos o cualquier otro insumo legal que respalden la atención brindada al paciente deben ser resguardados con respecto a los principios de la ética profesional, respetando los derechos individuales de los pacientes, de conformidad con lo establecido en la legislación.

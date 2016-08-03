@@ -1,0 +1,1 @@
+Artículo 18. —Eventos Masivos: Prestará sus servicios en aquellas actividades y/o eventos deportivos, socioculturales o masivos. Dichas actividades deben contar con los permisos de ley, si el evento así lo exige.

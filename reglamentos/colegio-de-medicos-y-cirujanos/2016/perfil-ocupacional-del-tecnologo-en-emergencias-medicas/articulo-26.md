@@ -1,0 +1,6 @@
+Artículo 26. —Uso de Medicamentos que requieren imperativamente el contacto e indicación médica para su utilización: Aunque estos medicamentos se aplicarán únicamente por indicación médica, el Tecnólogo en Emergencias Médicas debe, de igual manera, conocer la farmacocinética, farmacodinamia, vías de administración, indicaciones contraindicaciones, dosis, preparación y efectos secundarios de los mismos:
+a. Farmacología General: glucosa, solución salina al 0,9%, dextrosa al 5, 10, 25 y 50%, solución mixta, Lactato de Ringer, diuréticos, anti colinérgicos, antihistamínicos, antieméticos, antivertiginosos, procinéticos.
+b. Farmacología Cardiovascular: inotrópicos, cronotrópicos, antihipertensivos, vasodilatadores, vasoconstrictores, antiarrítmicos, beta bloqueadores, calcio antagonistas, anticoagulantes, antiagregantes plaquetarios.
+c. Farmacología Respiratoria: broncodilatadores, esteroides, oxígeno.
+d. Farmacología Sistema Nervioso Central y Periférico: anticonvulsivantes, analgésicos, sedantes, paralizantes despolarizantes y no despolarizantes, AINES, benzodiacepinas, opiáceos, neuromusculares, sulfato de magnesio
+e. Antídotos: carbón activado, neos antiofídico, N-Acetylcisteína. narcóticos en general, bloqueadores tigmina, naloxona, catárticos, suero

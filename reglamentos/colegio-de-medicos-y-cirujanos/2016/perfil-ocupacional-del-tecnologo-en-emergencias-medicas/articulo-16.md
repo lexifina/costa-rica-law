@@ -1,0 +1,1 @@
+Artículo 16. —Educador en Salud: Como educador en Salud, podrá contribuir con la formación y capacitación de las Brigadas de Emergencias, en las áreas en las que encuentre debidamente capacitado y certificado. Además como instructor, participa como parte del Equipo Multidisciplinario de Salud, en la Educación preventiva en Salud y Desastres.

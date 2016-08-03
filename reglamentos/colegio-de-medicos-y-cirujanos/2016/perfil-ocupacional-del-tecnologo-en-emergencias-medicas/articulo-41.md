@@ -1,0 +1,1 @@
+Artículo 41. —El tecnólogo: El Tecnólogo trabajará dentro de su ámbito de acción y en todo momento según lo indicado en el artículo segundo de esta normativa, bajo la supervisión del Médico y Cirujano.

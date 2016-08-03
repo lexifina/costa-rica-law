@@ -1,0 +1,1 @@
+Artículo 43. —En el desempeño de sus funciones y previa indicación del ente rector en Salud del país, le puede corresponder participar en los diferentes grupos de trabajo en la atención a emergencias sanitarias que ocurran.

@@ -1,0 +1,1 @@
+Artículo 6. —Dará asistencia a los Médicos y Cirujanos para la ejecución de procedimientos técnicos. Sus actividades como Tecnólogos, las podrá realizar siempre que se encuentre debidamente capacitado para efectuarlas.

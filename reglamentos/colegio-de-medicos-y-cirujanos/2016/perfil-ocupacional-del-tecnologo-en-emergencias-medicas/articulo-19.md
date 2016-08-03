@@ -1,0 +1,1 @@
+Artículo 19. —Presta sus servicios de salud de emergencias y/o rescate pre hospitalario, a cualquier lesionado y/o enfermo que así lo amerite. Ejecuta las técnicas de cuidado médico de emergencia aplicables en cada caso individual, con el fin de mantener vivo al paciente y evitar condiciones incapacitantes, procurando un pronto traslado a un centro hospitalario.
