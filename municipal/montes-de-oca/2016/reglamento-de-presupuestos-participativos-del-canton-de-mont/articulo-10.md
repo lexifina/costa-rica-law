@@ -1,0 +1,1 @@
+Artículo 10.—Los actores comunales participantes en el proceso tienen derecho a voz y un representante por cada uno de ellos, tendrá derecho al voto para las decisiones de deliberación y priorización participativa en los talleres de planificación y presupuestos participativos.

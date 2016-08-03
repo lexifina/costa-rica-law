@@ -1,0 +1,2 @@
+Artículo 14.—El Concejo Municipal, en coordinación con los Concejos de Distrito y el Alcalde Municipal, realizará una convocatoria pública a los actores comunales, en el mes de febrero de cada año para iniciar el proceso de presupuestos participativos. Se realizará un taller por cada distrito y un taller cantonal en los meses de marzo y abril.
+En la invitación deberá instarse a los actores comunales a reproducir dicha invitación entre los grupos organizados de su comunidad.

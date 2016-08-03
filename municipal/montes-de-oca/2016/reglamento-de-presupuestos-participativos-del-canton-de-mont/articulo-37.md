@@ -1,0 +1,2 @@
+Artículo 37.—El ciudadano estará facultado, para fiscalizar, vigilar y controlar la ejecución de los proyectos del distrito donde residen, así como para participar en la rendición de cuentas de la Administración Municipal, esto con el fin de conocer los avances en los proyectos.
+En caso de verificar alguna irregularidad podrá presentar en forma fundamentada la denuncia respectiva ante la Auditoría Municipal.

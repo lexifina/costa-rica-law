@@ -1,0 +1,1 @@
+Artículo 29.—La administración municipal al momento de formular el proyecto de presupuesto ordinario, mantendrá y respetará la priorización y la aprobación de los proyectos presentados por los Concejos de Distrito y aprobados en las asambleas distritales ampliadas.

@@ -1,0 +1,1 @@
+Artículo 12.—Todos los participantes deberán respetar los principios, objetivos y acuerdos finales establecidos en las distintas fases que conllevan la planificación y los presupuestos participativos.

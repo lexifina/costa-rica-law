@@ -1,0 +1,1 @@
+Artículo 26.—En caso de que la municipalidad sea proponente de proyecto, y con el objetivo de acompañar el proceso de planificación y presupuestación pública participativa, ésta nombrará a un representante ante el concejo de distrito con el fin de que integre el concejo de distrito ampliado.

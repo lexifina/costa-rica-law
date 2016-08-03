@@ -1,0 +1,1 @@
+Artículo 38.—Será la Administración Municipal, la responsable de la ejecución de los proyectos, así como de realizar las obras o contrataciones, según corresponda, con base en la normativa vigente y en apego a la legislación aplicable para estos proyectos

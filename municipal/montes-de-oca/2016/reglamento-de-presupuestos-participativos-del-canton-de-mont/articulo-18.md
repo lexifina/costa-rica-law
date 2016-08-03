@@ -1,0 +1,1 @@
+Artículo 18.—Los talleres serán el espacio en donde los participantes podrán desarrollar la formulación de los proyectos de impacto comunal, bajo la dirección y supervisión del equipo operativo institucional.

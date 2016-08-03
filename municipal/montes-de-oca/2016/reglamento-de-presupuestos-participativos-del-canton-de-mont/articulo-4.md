@@ -1,0 +1,7 @@
+CAPÍTULO SEGUNDO
+De la asignación de los recursos municipales
+Artículo 4º—Sobre el monto: La Municipalidad destinará cada año, recursos para ser asignados a través de presupuestos participativos, con base en los siguientes parámetros:
+a) Se asignará el equivalente de un 10% del ingreso real obtenido en el año inmediato anterior por concepto de Impuesto de Bienes Inmuebles a los cuatro Concejos de Distrito del Cantón. El Alcalde Municipal informará a más tardar el día 15 del mes de febrero el monto exacto a asignar, indicando la distribución por distrito, conforme a los parámetros establecidos en este reglamento.
+b) El 70% del monto destinado, según el inciso anterior, será asignado mediante el proceso de presupuestos participativos, en asamblea distrital ampliada, donde tendrán voz y voto todos los actores.
+c) El restante 30% del monto destinado, será asignado por el Concejo de Distrito entre aquellas necesidades comunales que por diferentes circunstancias no fueron conocidas o aprobadas en la asamblea de presupuestos participativos indicada en el inciso anterior y que se consideran de relevancia comunal. Deberán ser de impacto para el distrito y podrán ser obras o inversiones con repercusiones visibles y de valor para la comunidad.
+d) Todos los proyectos deberán ser ejecutados por la administración de la Municipalidad o por contrato, excepto en los casos que se trate de un sujeto con idoneidad para la administración de recursos públicos.

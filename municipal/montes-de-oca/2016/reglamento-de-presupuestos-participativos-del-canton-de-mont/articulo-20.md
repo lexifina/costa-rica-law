@@ -1,0 +1,1 @@
+Artículo 20.—Todos los proyectos desarrollados en los talleres serán revisados por el equipo operativo institucional, de manera que se garantice la viabilidad técnica, jurídica o de cualquier otra naturaleza.

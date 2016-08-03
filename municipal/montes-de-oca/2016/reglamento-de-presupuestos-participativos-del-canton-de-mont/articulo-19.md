@@ -1,0 +1,1 @@
+Artículo 19.—Los Concejos de Distrito y los actores comunales que participen en el proceso, contarán con la asesoría técnica del equipo operativo institucional, en las distintas temáticas acorde con las propuestas de sus proyectos, siendo estos funcionarios los responsables del acompañamiento para la confección total del proyecto.
