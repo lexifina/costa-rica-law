@@ -6,26 +6,23 @@ ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/ IEC 17021 | 09 | 
 Los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 5 de junio del 2015.
 (Nota de Sinalevi: El Procedimiento ECA-MC-C05 Criterios para la evaluación de la norma INTE-ISO/ IEC 17021, fue suministrado por el Departamento de Gestoría de Calidad del Ente Costarricense de Acreditación y se transcribe a continuación:)
-(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 72 del 15 de abril del 2016, donde se actualiza la versión 10 y se publica la versión 11 por lo que se reproduce a continuación:)
+(Nota de Sinalevi: El texto de este procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 166 del 30 de agosto del 2016, donde se actualiza la versión 11 existente y se publica la versión 12, por lo que se reproduce a continuación:)
 [imagen]
-CRITERIOS PARA LA EVALUACIÓN DE LA NORMA INTE-ISO/IEC 17021-1 | Código N : ECA-MC-C05 | Páginas: 1 de 52
-| Fecha emisión: 15.04.2016 | Versión: 11
 TABLA DE CONTENIDO
-1. OBJETIVO ................................................................................................................................. 1
-2. ALCANCE .................................................................................................................................. 1
-3. DEFINICIONES ......................................................................................................................... 1
+1. OBJETIVO ............................................................................................................................. 1
+2. ALCANCE ............................................................................................................................. 1
+3. DEFINICIONES ...................................................................................................................... 1
 4. DOCUMENTOS MANDATORIOS .......................................................................................... 2
-5. ANEXOS ............................................................................................................................... …..2
-ANEXO I: CERTIFICACIÓN DE SITIOS MÚLTIPLES BASADA EN EL MUESTREO ........ 2
-ANEXO II: TRANSFERENCIA DE LA CERTIFICACIÓN ACREDITADA DE SISTEMAS DE GESTIÓN ……………………………………………………………………………………………………. 11
-ANEXO lll: PROCEDIMIENTOS AVANZADOS DE SEGUIMIENTO Y RECERTIFICACIÓN ......................................................................................................................................................... 13
-ANEXO lV: USO DE TÉCNICAS DE AUDITORÍA ASISTIDAS POR COMPUTADORA (“CAAT”) PARA LA CERTIFICACIÓN ACREDITADA DE LOS SISTEMAS DE GESTIÓN ........................................................................................................................................................... 17
+5. ANEXOS ............................................................................................................................... 2
+ANEXO I: CERTIFICACIÓN DE SITIOS MÚLTIPLES BASADA EN EL MUESTREO ...................................................................................................................................... 2
+ANEXO II: TRANSFERENCIA DE LA CERTIFICACIÓN ACREDITADA DE SISTEMAS DE GESTIÓN ............................................................................................................... 11
+ANEXO lll: PROCEDIMIENTOS AVANZADOS DE SEGUIMIENTO Y RECERTIFICACIÓN ........................................................................................................................ 13
+ANEXO lV: USO DE TÉCNICAS DE AUDITORÍA ASISTIDAS POR COMPUTADORA (“CAAT”) PARA LA CERTIFICACIÓN ACREDITADA DE LOS SISTEMAS DE GESTIÓN ............................................................................................................... 17
 ANEXO V: DURACIÓN DE AUDITORÍAS DE SGC Y SGA. .................................................... 19
-ANEXO Vl DOCUMENTO MANDATORIO DE IAF PARA LA EVALUACIÓN DEL MANEJO DE COMPETENCIA DEL ORGANISMO DE CERTIFICACIÓN DE ACUERDO CON INTE ISO/IEC 17021-1:2015 ............................................................................................................................................. 35
-ANEXO Vll: APLICACIÓN DE 17021-1:2015 PARA LA AUDITORÍA DE SISTEMAS DE GESTIÓN INTEGRADOS ................................................................................................................................ 42
-ANEXO VllI: RECOPILACIÓN DE DATOS PARA PROPORCIONAR INDICADORES DE RENDIMIENTO DE SISTEMA DE GESTIÓN DE ORGANISMOS DE CERTIFICACIÓN ........................................................................................................................................................... 47
-6. TRANSITORIOS: ...................................................................................................................... 51
-7. IDENTIFICACIÓN DE CAMBIOS ............................................................................................ 51
+ANEXO Vl DOCUMENTO MANDATORIO DE IAF PARA LA EVALUACIÓN DEL MANEJO DE COMPETENCIA DEL ORGANISMO DE CERTIFICACIÓN DE ACUERDO CON INTE ISO/IEC 17021-1:2015 ........................................................................... 35
+ANEXO Vll: APLICACIÓN DE 17021-1:2015 PARA LA AUDITORÍA DE SISTEMAS DE GESTIÓN INTEGRADOS ................................................................................... 42
+ANEXO VllI: RECOPILACIÓN DE DATOS PARA PROPORCIONAR INDICADORES DE RENDIMIENTO DE SISTEMA DE GESTIÓN DE ORGANISMOS DE CERTIFICACIÓN .......................................................................................... 47
+6. IDENTIFICACIÓN DE CAMBIOS ......................................................................................... 50
 1. OBJETIVO
 Establecer criterios de cumplimiento obligatorio para los Organismos de Certificación de Sistemas de Gestión (Calidad y/o Ambiental) acreditados o solicitantes de acreditación ante el ECA. Los criterios aquí definidos se pueden complementar con otros criterios de carácter específico para sistemas de gestión concretos como por ejemplo: certificación de Firma Digital.
 2. ALCANCE
@@ -421,7 +418,7 @@ Nota 2: Factores adicionales a considerar para el cálculo del tiempo de auditor
 9. SITIOS TEMPORALES
 9.1 En situaciones donde el cliente solicitante o certificado provee sus productos o servicios en sitios temporales, cada sitio debe ser incorporado en los programas de auditoría.
 9.2 Los sitios temporales podrían abarcar desde sitios con proyectos de gestión principales hasta sitios / instalaciones menores o de servicio. La necesidad de visitar tales sitios y de extender el muestreo, debería basarse en una evaluación de los riesgos de falla del SGC para el control del producto o servicio resultante o del SGA para el control de los aspectos e impactos ambientales asociados a las operaciones del cliente. El muestreo de los sitios seleccionados debería representar el espectro de las necesidades de competencia del cliente y las variaciones del servicio tomando en cuenta el tamaño y los tipos de actividades, y las distintas etapas de los proyectos en progreso y los aspectos e impactos ambientales asociados.
-9.3 Normalmente, deberían realizarse auditorías in situ de los sitios temporales. Sin embargo, podrían considerarse los siguientes métodos como alternativas que reemplacen algunas auditorías in situ:
+9.3 Normalmente, deberían realizarse auditorías in situ de los sitios temporales. Sin embargo, podrían considerarse los siguientes métodos como alternativas que reemplacen algunas auditorías in situ: CRITERIOS PARA LA
  Entrevistas o reuniones con el cliente y / o sus propios clientes en persona o por teleconferencia;
  Revisión de documentos de las actividades de los sitios temporales;
  Acceso remoto a sitios electrónicos que contengan registros u otra información relevante para la evaluación del sistema de gestión y del sitio temporal;
@@ -454,7 +451,7 @@ Relación entre el número efectivo de personal y la duración de la auditoría 
 Nota 1. Nota 1: El número de personal de la Tabla 1 SGC debe ser visto como continuo en lugar de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula 2.2 para entender partes de un día.
 Nota 2. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10.700. Dicha duración de auditoría debería seguir la progresión en la tabla SGC 1 de forma consistente.
 Nota 3. Puede ver también la cláusula 1.9 y 2.3
-Figura SGC 1 – Relación entre complejidad y duración de la auditoria
+Figura SGC 1 – Relación entre complejidad y duración de la auditoría
 [imagen]
 Tabla SGC 2 - Ejemplos de categorías de riesgo
 Estas categorías de riesgo no son decisivos, son sólo ejemplos que podrían ser utilizados por un OEC a la hora de determinar la categoría de riesgo de una auditoría.
@@ -474,28 +471,15 @@ Educación; venta al por menor, hoteles y restaurantes.
 Nota 1: Se espera que las actividades de negocio definidos como de bajo riesgo pueden requerir menos tiempo de auditoría que el tiempo calculado utilizando la Tabla SGC 1, las actividades definidas como de riesgo medio se tome el tiempo calculado utilizando la Tabla SGC 1, y las actividades definidas como de alto riesgo se llevará más tiempo.
 Nota 2: Si una empresa está proporcionando una mezcla de actividades empresariales (por ejemplo: empresa de construcción que construye sencilla construcción - riesgo medio - y puentes - de alto riesgo), depende de del OC determinar el tiempo de auditoría correcto, tomando en cuenta el número de personal involucrado en cada una de las actividades.
 Apéndice B: Sistemas de Gestión Ambiental
-Tabla SGA 1 - Relación entre el número efectivo de personal, la complejidad y la duración de la auditoría (solo auditoría inicial) Número efectivo de personal | Duración de la auditoría etapa 1 + etapa 2 (días) | Número efectivo de personal | Duración de la auditoría etapa 1 + etapa 2 (días)
-Alto | Medio | Bajo | Limi-tado | Alto | Medio | Bajo | Limi-tado
-1-5 | 3 | 2.5 | 2.5 | 2.5 | 626-875 | 17 | 13 | 10 | 6.5 |
-6-10 | 3.5 | 3 | 3 | 3 | 876-1175 | 19 | 15 | 11 | 7 |
-11-15 | 4.5 | 3.5 | 3 | 3 | 1176-1550 | 20 | 16 | 12 | 7.5 |
-16-25 | 5.5 | 4.5 | 3.5 | 3 | 1551-2025 | 21 | 17 | 12 | 8 |
-26-45 | 7 | 5.5 | 4 | 3 | 2026-2675 | 23 | 18 | 13 | 8.5 |
-46-65 | 8 | 6 | 4.5 | 3.5 | 2676-3450 | 25 | 19 | 14 | 9 |
-66-85 | 9 | 7 | 5 | 3.5 | 3451-4350 | 27 | 20 | 15 | 10 |
-86-125 | 11 | 8 | 5.5 | 4 | 4351-5450 | 28 | 21 | 16 | 11 |
-126-175 | 12 | 9 | 6 | 4.5 | 5451-6800 | 30 | 23 | 17 | 12 |
-176-275 | 13 | 10 | 7 | 5 | 6801-8500 | 32 | 25 | 19 | 13 |
-276-425 | 15 | 11 | 8 | 5.5 | 8501 -10700 | 34 | 27 | 20 | 14 |
-426-625 | 16 | 12 | 9 | 6 | >10700 | Seguir la progresión
-| | | | | | | | | | | | | | | | | | | | | |
+Tabla SGA 1 - Relación entre el número efectivo de personal, la complejidad y la duración de la auditoría (solo auditoría inicial)
+[imagen]
 Nota 1. La duración de la auditoría es mostrada para auditorías de complejidad alta. Media, baja y limitada.
 Nota 2. El número de empleados en la tabla SGA 1 debería ser visto como un continuo en vez de un cambio escalonado. Por ejemplo, se si dibujara como un gráfico, la línea debería comenzar con los valores en la banda inferior y terminar con los puntos finales de cada banda. El punto de partida del gráfico debe ser personal de 1 (1,5 días). Véase la cláusula 2.2 para entender días fraccionados.
 Nota 3. El procedimiento del OC podrá disponer una duración de la auditoría para un número de empleados superior a 10 700. Dicha duración de auditoría debería seguir la progresión en la tabla SGA 1 de forma consistente.
 Tabla SGA 2 – Ejemplos de relaciones entre los sectores y las categorías de complejidad de los aspectos ambientales Categoría de Complejidad | Sector
 Alta | Minería e industrias extractivas Extracción de petróleo y gas Curtido de pieles y de tejidos Fabricación de pasta de papel incluyendo el proceso de reciclado de papel Refinería de petróleo Químicas (incluyendo fabricación materias primas de goma y plástico) y farmacéuticas Metales-Producción primaria Procesamiento de no metálicos y sus productos cubriendo cerámicos y el cemento Generación de electricidad basada en el carbón Construcción civil y demolición Procesamiento de residuos peligrosos y no peligrosos por ej: incineración, etc. Tratamiento de aguas residuales y vertidos
-Media | Pesca, Agricultura/silvicultura Textiles y ropas excepto el curtido Fabricación de tableros y tratamiento/impregnación de madera Producción de papel y impresión exceptuando la fabricación de pasta Procesamiento de no metálicos y sus productos, cubriendo vidrio, arcilla, cal etc. Tratamiento superficial y otros tratamientos químicos para productos metálicos. Excluye la producción primaria Tratamiento superficial y otros tratamientos químicos para maquinaria y equipo mecánico Producción de circuitos impresos para la industria electrónica Fabricación de equipo de transporte - carretera, tren, aire, barcos Generación y distribución de electricidad que no esté basada en el carbón. Producción de gas, almacenamiento y distribución (excepto la extracción) Captación de agua, purificación y distribución incluyendo gestión de ríos Venta al por mayor y al por menor de combustible fósil Fabricación de comida y tabaco Transporte y distribución - por mar, aire, tierra Agencias de comercio inmobiliario, gestión inmobiliaria, limpieza industrial, limpieza higiénica, limpieza en seco, normalmente son parte de los servicios generales Reciclado, compostura, y vertedero (de residuos no peligrosos) Ensayos técnicos y laboratorios Cuidado de la salud/hospitales/veterinaria
-Servicios de ocio y servicios personales excluyendo hoteles y restaurantes
+Media | Pesca, Agricultura/silvicultura Textiles y ropas excepto el curtido Fabricación de tableros y tratamiento/impregnación de madera Producción de papel y impresión exceptuando la fabricación de pasta Procesamiento de no metálicos y sus productos, cubriendo vidrio, arcilla, cal etc. Tratamiento superficial y otros tratamientos químicos para productos metálicos. Excluye la producción primaria Tratamiento superficial y otros tratamientos químicos para maquinaria y equipo mecánico Producción de circuitos impresos para la industria electrónica Fabricación de equipo de transporte - carretera, tren, aire, barcos Generación y distribución de electricidad que no esté basada en el carbón. Producción de gas, almacenamiento y distribución (excepto la extracción) Captación de agua, purificación y distribución incluyendo gestión de ríos Venta al por mayor y al por menor de combustible fósil Fabricación de comida y tabaco Transporte y distribución - por mar, aire, tierra Agencias de comercio inmobiliario, gestión inmobiliaria, limpieza industrial, limpieza higiénica, limpieza en seco, normalmente son parte de los servicios generales Reciclado, compostura, y vertedero (de residuos no peligrosos) Ensayos técnicos y laboratorios
+Cuidado de la salud/hospitales/veterinaria Servicios de ocio y servicios personales excluyendo hoteles y restaurantes
 Baja | Hoteles/restaurantes Madera y productos de madera Productos de papel excluyendo impresión, pasta de papel y fabricación de papel Moldeado por inyección de goma y plástico. Conformado y ensamble. Moldeado en caliente y en frío y fabricación de metal Ensamble de maquinaria y equipo mecánico Venta al por mayor y al por menor Ensamble de equipo eléctrico y electrónico de circuitos impresos
 Limitada | Actividades corporativas y de gestión, sedes centrales y gestión de sociedades Transporte y distribución – únicamente servicios de gestión, sin una flota real Telecomunicaciones Servicios generales a los negocios Servicios de enseñanza/educación
 Casos especiales | Nuclear Generación nuclear de electricidad Almacenamiento de grandes cantidades de material peligroso Administración pública Autoridades locales Organizaciones con productos o servicios medioambientalmente sensibles
@@ -587,13 +571,13 @@ Final del Documento Mandatorio de IAF para la evaluación del manejo de competen
 Apéndice A (Informativo): Ejemplos de resultados esperados de funciones de certificación
 FUNCIÓN DE CERTIFICACIÓN | RESULTADOS ESPERADOS
 Revisión de la solicitud |  El alcance está dentro la competencia del OC;  El alcance propuesto está definido de manera consistente con los productos/servicios del cliente que aplica y del sistema de gestión;  Las áreas técnicas de la organización a ser auditada han sido asignadas e identificadas adecuadamente;  Se han asignado suficientes auditores;  Los auditores asignados tienen la competencia para: i) las funciones de auditoría, ej. líder del equipo auditor; ii) el proceso y las operaciones que se le asignan; iii) los estándares de sistema de gestión relevantes; iv) el esquema de certificación, cuando sea apropiado  Se ha asignado y justificado tiempo suficiente para la auditoría, de acuerdo con el IAF MD1 y MD5 (para SGA y SGC) u otros requerimientos específicos para esquemas de certificación particulares, basado en la revisión de información provista por el cliente.  Aplicaciones para la transferencia de la certificación son procesadas de acuerdo con los requisitos de IAFMD 2.
-Establecimiento del programa de auditoría |  El programa de seguimiento y las auditorías de recertificación están acorde con la norma INTE ISO / IEC 17021-1;  La correcta aplicación del IAF MD 1 para multisitios. Programación de las auditorías  El programa de auditoría cumple con la norma INTE ISO / IEC 17021-1;
- La duración y las fechas de la auditoría se han acordado con el cliente.
+Establecimiento del programa de auditoría |  El programa de seguimiento y las auditorías de recertificación están acorde con la norma INTE ISO / IEC 17021-1;  La correcta aplicación del IAF MD 1 para multisitios. Programación de las auditorías
+ El programa de auditoría cumple con la norma INTE ISO / IEC 17021-1;  La duración y las fechas de la auditoría se han acordado con el cliente.
 Asignación de los equipos auditores |  La competencia colectiva del equipo auditor es consistente con los productos y procesos del cliente.
 Planificación de la auditoría |  El plan de auditoría es consistente con el alcance propuesto de la certificación y el tipo de auditoría y refleja la organización, los procesos y las operaciones de los clientes;  El plan de auditoría asigna tiempo suficiente para una auditoría exhaustiva;  Los miembros del equipo auditor se asignan las tareas propias de su competencia.
 Auditoría e informe |  La ejecución de la auditoría se lleva a cabo con eficacia:  Las sesiones de apertura y de cierre se llevan a cabo,  Las técnicas de recolección de evidencia de auditoría son efectivas,  Los miembros del equipo de auditoría toman notas adecuadas de la evidencia de auditoría,  Las técnicas de muestreo se utilizan con eficacia;  Los miembros del equipo auditor llegan a conclusiones consistentes con la evidencia de auditoría.  El contenido del informe de auditoría cumple con los requisitos de la norma ISO / IEC TS 17022:2012.  Las re auditorías se realizan cuando es necesario.  La recomendación de certificación es consistente con los hallazgos de la auditoría, el alcance de la auditoría y el alcance de la certificación.
-Revisión de informes y decisiones de certificación |  Comprobación de los cambios desde la revisión de la solicitud;  Confirmación de que la duración de la auditoría fue correcta;  Confirmación de que a los miembros del equipo de auditor se les han sido asignadas tareas de auditoría adecuadas a su competencia;  Confirmación de que el informe de auditoría cumple con los requisitos de la norma ISO / IEC TS 17022:2012;  Confirmación de que la recomendación
-es consistente con los hallazgos de la auditoría;  Que las pruebas documentales están disponibles cuando el revisor independiente ha tenido motivos para discutir/aclarar cualquier aspecto del contenido del informe o recomendación asociada.
+Revisión de informes y decisiones de certificación |  Comprobación de los cambios desde la revisión de la solicitud;  Confirmación de que la duración de la auditoría fue correcta;  Confirmación de que a los miembros del equipo de auditor se les han sido asignadas tareas de auditoría adecuadas a su competencia;  Confirmación de que el informe de
+auditoría cumple con los requisitos de la norma ISO / IEC TS 17022:2012;  Confirmación de que la recomendación es consistente con los hallazgos de la auditoría;  Que las pruebas documentales están disponibles cuando el revisor independiente ha tenido motivos para discutir/aclarar cualquier aspecto del contenido del informe o recomendación asociada.
 Mantenimiento de la certificación |  El programa de auditoría se ha seguido y las funciones de seguimiento y recertificación se han realizado de manera oportuna;  Una adecuada toma de muestras de la revisión de los informes de seguimiento  Los cambios han sido revisados y verificados para que no afecte negativamente a la certificación;  Demostrado el traslado a instancias superiores en el caso de las no conformidades que pudieran llevar a la suspensión o retiro de la certificación;  Auditorías de recertificación oportuna y decisiones de recertificación antes de su vencimiento.
 ANEXO Vll: APLICACIÓN DE 17021-1:2015 PARA LA AUDITORÍA DE SISTEMAS DE GESTIÓN INTEGRADOS
 (OBLIGATORIO)
@@ -712,30 +696,7 @@ El indicador que se describe en 3.1 requiere que los Organismos de Certificació
 Nota: Un certificado válido se refiere a una certificación de que se encuentra valida bajo un contrato de certificación, ya sea con un estado activo o suspendido. Certificados retirados, así como solicitantes, no deben ser incluidos para este propósito.
 APLICACIÓN DE LOS CRITERIOS
 La aplicación de este criterio (Anexo VIII) regirá a partir del 14 de julio del año 2016. Por lo tanto los Organismos de Certificación de Sistemas de Gestión acreditados para certificar sistemas de gestión ambiental, deben satisfacer los requisitos del documento a partir de dicha fecha. La Secretaría de Acreditación de Organismos de Certificación será la encargada de difundir la información a los OEC´s acreditados y/o en proceso de acreditación para que sean notificados de dicha información para que realicen los cambios o modificaciones respectivas.
-ANEXO IX: CRITERIOS PARA ORGANISMOS DE CERTIFICACIÓN DE SISTEMAS DE GESTIÓN DE IGUALDAD Y EQUIDAD DE GÉNERO
-(OBLIGATORIO)
-Este documento indica el conocimiento y experiencia que debe tener el equipo auditor del Organismo de Certificación para auditar una empresa.
-Requisitos para personas auditoras en Igualdad de Género:
-Tener conocimiento en los planteamientos fundamentales, sobre todo, en aquellos temas vinculados a la norma y abordados en:
-a) Tratados (Leyes, Acuerdos y Convenios) internacionales ratificados por Costa Rica y vinculantes en materia de igualdad de género como: Convención para la Eliminación de todas las Formas de Discriminación contra las Mujeres (CEDAW por sus siglas en inglés), Convención Interamericana para Prevenir, Sancionar y Erradicar la Violencia contra la Mujer "Convención de Belem do Para", Convenios de la Organización Internacional del Trabajo-OIT (Convenios, 110, 111 y 156), entre otros.
-b) Leyes, Normas y Decretos relacionados con los Derechos Laborales establecidos en la legislación costarricense para todas las personas trabajadoras y especialmente los derechos de las mujeres en el trabajo como: derechos durante el embarazo, licencias de maternidad y lactancia, derechos para trabajar en ambientes libres de hostigamiento sexual y violencia de género, así como, manejo básico de temas, entre ellos, aquellos que permitan mejorar la conciliación entre el ámbito del hogar y el empleo y, cambios culturales, en el marco de la corresponsabilidad en las tareas no remuneradas que realizan las mujeres y los hombres.
-c) Conocimientos generales sobre la teoría de Género y en particular, sobre los componentes de género de la Norma INTE-38-01-01:2013, así como, de sus requisitos de gestión.
-El equipo de auditoría debe contar con al menos una persona experta técnica en género, que debe contar con los siguientes requisitos:
-a) Experiencia documentada de al menos dos años y desarrollada en los últimos cinco años, en la aplicación del enfoque de género.
-b) Aprobación del curso “Formación de Asesores/as de igualdad de Género en las empresas”.
-c) Conocimiento amplio en los temas y requisitos de género de la norma SIGIEG INTE-38-01-01:2013.
-d) Conocimiento básico sobre funcionamiento de los Sistemas de Gestión de Calidad.
-e) Aprobación del curso sobre Derechos Laborales de las Mujeres en el trabajo.
-6. TRANSITORIOS:
-El Anexo V que refiere al Documento Mandatorio MD 5: 2015 “Duración de auditorías de SGC Y SGA” entrará en vigencia su aplicación a partir del 9 de junio del año 2016. Es por lo anterior que se dará un periodo de transición a los OEC hasta dicha fecha para ajustar sus procedimientos para el cumplimiento de esta nueva versión.
-Es aplicable para las personas expertas técnicas en Igualdad de Género:
-Se brinda un transitorio de dos años para el cumplimiento de los requisitos de competencia de la persona técnica experta en Igualdad de Género, a partir de la apertura del esquema; para este caso el organismo certificador deberá solicitar al INAMU la lista de personas profesionales expertas en Género. Las personas interesadas en constituirse como expertas deberán comunicarse con el INAMU, que aplicará el procedimiento establecido para tal fin.
-Durante el transitorio, el requisito b) se puede sustituir por:
-a) Experiencia de al menos dos años en asesoría técnica y capacitación en Igualdad de Género, en organizaciones públicas o privadas o,
-b) Haber realizado al menos dos estudios o investigaciones que aborden a profundidad temas sobre Igualdad de Género.
-c) Debe alcanzarse den al menos dos años
-Y, el requisito d) debe alcanzarse en al menos dos años.
-En enero 2017 todas las personas interesadas en formar parte de la lista de personas expertas en Igualdad de Género, deberán cumplir todos los requisitos.
-7. IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación de documento
-Refiérase a la solicitud de elaboración o modificación del documento número 2016-056
-Observaciones Cambios se subrayan: Se cambian todas las referencias a la norma INTE ISO/IEC 17021:2011 por INTE-ISO/IEC 17021-1 y sus respectivos requisitos de norma. Se cambian todas las referencias a la norma INTE-ISO 9001: 2008 por INTE-ISO 9001:2015. Se cambian todas las referencias a la norma INTE-ISO 14001:2004 por INTE-ISO 14001:2015. Se elimina el ANEXO IX: Criterios para organismos de certificación de sistemas de gestión de igualdad y equidad de género y su transitorio. Se incluye subrayado el ANEXO V: DURACIÓN DE AUDITORÍAS DE SGC Y SGA, en versión 2015. Este anexo tuvo cambios en la redacción para aclarar conceptos y tuvo modificaciones en el orden de párrafos, por lo que se recomienda lectura completa del mismo. Dentro de los principales cambios están: a) Cambios en la redacción b) Adición de comentarios c) Cambio en los títulos d) Adición de ejemplos en los apéndices e) Se hace referencia a la norma ISO/IEC 17021-1 y a distintos documentos mandatorios
+6. IDENTIFICACIÓN DE CAMBIOS
+Motivo: | Modificación de documento
+Refiérase a la solicitud de elaboración o modificación del documento número 2016-101
+Observaciones Se elimina el ANEXO IX: Criterios para organismos de certificación de sistemas de gestión de igualdad y equidad de género y su transitorio.
