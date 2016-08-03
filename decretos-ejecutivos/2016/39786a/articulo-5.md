@@ -1,0 +1,1 @@
+Artículo 5. —Gestión de recursos. La Secretaria Ejecutiva del Sistema Nacional de Áreas de Conservación en conjunto con el Área de Conservación Arenal Tempisque deberá efectuar las gestiones necesarias para la búsqueda de fondos complementarios, la suscripción y ejecución de convenios de cooperación y otros mecanismos orientados a apoyar la aplicación del presente Reglamento.
