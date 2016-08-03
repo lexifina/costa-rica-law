@@ -11,9 +11,8 @@ ECA-MP-P02 Requisitos para la acreditación | N.A | 01 | A partir de su publicac
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditación, y se transcribe a continuación:)
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 83 del 2 de mayo del 2016, donde se actualiza la versión 01 existente y se publica la versión 02, y se transcribe a continuación:)
-[imagen]
-TABLA DE CONTENIDO
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 166 del 30 de agosto del 2016, donde se actualiza la versión 02 existente y se publica la versión 03, por lo que se reproduce a continuación:)
+[imagen] TABLA DE CONTENIDO
 1 DOCUMENTOS APLICABLES POR TIPO DE OEC ................................................................. 1
 2 REQUISITOS GENERALES PARA LA ACREDITACIÓN DE CUALQUIER TIPO DE OEC ....... 1
 3 ANEXO .................................................................................................................................... 5
