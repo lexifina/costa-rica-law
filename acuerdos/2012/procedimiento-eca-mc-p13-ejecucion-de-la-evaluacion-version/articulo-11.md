@@ -1,2 +1,3 @@
-11 TRANSITORIO
-Fecha de entrada en vigencia 10 días hábiles posteriores a su publicación en el Diario Oficial La Gaceta, #177 del 10.09.2015.
+11 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento
+Refiérase a la solicitud de elaboración o modificación del documento número 2016-102
+Observaciones: Se subrayan cambios en el documento. Apartado 5.6, se incorporan las aprobaciones de uso del símbolo de acreditación. Apartado 6.2, se agrega la información el Equipo Evaluador puede esperar a que el OEC remita la información requerida para completarlo. Apartado 6.4 se agrega Si el OEC tiene instalaciones multisitios, instalaciones móviles. Se agrega estándar de cumplimiento “Esquema para la certificación de los sistemas de gestión para la igualdad de género en el ámbito laboral y la utilización del “sello de igualdad de género” del INAMU.”.

@@ -9,11 +9,12 @@ Nota 2: En el cuadro 1 se presenta la documentación por área, donde se indican
 Nota: Los integrantes del CEE, tanto de instituciones públicas como CEE independientes mantienen un compromiso ético y declaración de responsabilidades sociales y compromiso ético profesional respectivamente, el cual es firmado cuando son integrados al CEE.
 5.5 Es obligación de la Unidad de Logística hacer disponible para el equipo evaluador en la página web del ECA la información del OEC, si la evaluación documental se realiza de previo a la evaluación in situ.
 5.6 La Unidad de Logística, debe hacer disponible para el equipo evaluador los siguientes documentos antes de las evaluaciones de seguimiento o reevaluaciones :
-- Informe final
-- ECA-MP-P07-F01Informe propuesta de acciones por parte del OEC y verificación por parte del ECA de la evaluación anterior, cuando aplique.
-- Resultados de intercomparaciones.
-- La información del OEC, si la evaluación documental se realiza de previo a la evaluación in situ
-- Informes de testificación para las evaluaciones de los organismos de certificación.
+ Informe final
+ ECA-MP-P07-F01Informe propuesta de acciones por parte del OEC y verificación por parte del ECA de la evaluación anterior, cuando aplique.
+ Resultados de intercomparaciones.
+ La información del OEC, si la evaluación documental se realiza de previo a la evaluación in situ
+ Informes de testificación para las evaluaciones de los organismos de certificación.
+ Las aprobaciones del uso del símbolo de acreditación.
 5.7 En caso necesario, el Equipo Evaluador puede solicitar al OEC información adicional a través de la Unidad de Logística, el OEC debe presentarla ante ésta para que la traslade al Equipo Evaluador. Dado que esta información adicional puede resultar en generar cambios sobre el informe documental, el Equipo Evaluador puede esperar a que el OEC complete la información requerida para completar los documentos.
 5.8 El Evaluador Líder es el responsable de completar el ECA-MC-P13-F02 Informe de evaluación documental, para lo cual requiere la participación activa de los restantes miembros del Equipo Evaluador, quienes deben remitir su formato de notas digitales al Evaluador Líder. Este informe solo se completa si la evaluación documental se realiza de previo a la evaluación in situ.
 Nota: En caso de requerirlo, la Secretaría de Acreditación puede solicitar enmiendas a los informes presentados por el Evaluador Líder antes de enviarlos al OEC.
