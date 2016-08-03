@@ -1,1 +1,0 @@
-Artículo 10.—Quórum y acuerdos de la Comisión. La CTIC podrá sesionar válidamente con la presencia de al menos seis de sus miembros. Los acuerdos serán adoptados por la mayoría simple de los presentes.
