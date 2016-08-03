@@ -15,3 +15,4 @@ Reglamento para la Ejecución de la Cuenta de Alimentos en el Patronato Nacional
 | --- | --- | --- |
 | 1 | 2005-02-15 | la propia norma |
 | 2 | 2005-11-07 | Acuerdo 48 (2005-11-07) |
+| 3 | 2016-08-03 | Reglamento 27 (2016-08-03) |

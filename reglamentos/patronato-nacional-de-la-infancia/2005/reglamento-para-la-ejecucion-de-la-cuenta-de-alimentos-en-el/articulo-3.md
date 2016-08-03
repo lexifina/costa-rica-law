@@ -1,1 +1,1 @@
-Artículo III.— La ejecución de la Cuenta de Alimentos se realiza dentro de los montos establecidos en el Plan Anual Operativo y de acuerdo a la disponibilidad financiera con que cuenten los diferentes programas, subprogramas y actividades.
+Artículo 3º—De los Montos de la Cuenta de Alimentos. La ejecución de la Cuenta de Alimentos se realiza dentro de los montos establecidos en el Plan Anual Operativo y de acuerdo a la disponibilidad financiera con que cuenten los diferentes programas, subprogramas y actividades.
