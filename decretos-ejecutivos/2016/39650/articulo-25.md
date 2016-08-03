@@ -1,0 +1,1 @@
+ARTÍCULO 25°. Presentaciones al COE. El CAT debe hacer presentaciones al COE cuando este así lo solicite o cuando el CAT considere importante exponer algún tema ante esta instancia permanente de coordinación.

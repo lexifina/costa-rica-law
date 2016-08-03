@@ -1,0 +1,1 @@
+ARTICULO 14°. Coordinación. Cada Comité Asesor Técnico, tanto los operativos como los técnicos científicos, será coordinado por un funcionario de la CNE designado por la DGR a la cual pertenecen en forma directa.

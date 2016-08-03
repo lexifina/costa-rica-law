@@ -1,0 +1,2 @@
+ARTICULO 6°. Aprobación de nuevos CAT's. La Dirección de Gestión del Riesgo (DGR) será el ente encargado de proponer la creación de nuevos CAT's a la Junta Directiva de la CNE, para su aprobación. Así mismo, todos Jos CAT's dependen jerárquicamente de la Dirección de Gestión de Riesgo y los coordinadores que asf sean designados por esta dirección.
+Para ello, la DGR deberá realizar una presentación donde justifique la necesidad que suplirá el nuevo CAT, así como la descripción de las instituciones que deberán integrarlo.

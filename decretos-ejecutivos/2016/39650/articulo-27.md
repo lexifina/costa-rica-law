@@ -1,0 +1,1 @@
+ARTÍCULO 27° Del Quórum. Habrá mayoría suficiente para realizar estas reuniones cuando asista la mitad más uno de los miembros del CAT oficialmente reconocidos, excepto cuando se trate de reuniones por emergencia, en cuyo caso se puede llevar a cabo con los miembros que estén presentes, ya que hay suficiente peso para asesorar al COE ante una emergencia.

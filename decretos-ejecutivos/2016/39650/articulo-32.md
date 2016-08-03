@@ -1,0 +1,1 @@
+ARTICULO 32°. Ejecución. Cada CA T puede presentar propuestas de proyectos, según su competencia, ante la DGR. La ejecución del proyecto quedará a cargo del CAT o según se designe en el perfil del proyecto. La DGR debe elaborar un formato de perfil de proyecto.

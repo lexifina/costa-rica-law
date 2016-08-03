@@ -1,0 +1,1 @@
+ARTÍCULO 30°. Lugar de Reuniones. El lugar de reuniones será definido por los miembros del CAT, según la disponibilidad de espacios para reuniones que contengan las instituciones miembros del Sistema Nacional de Gestión del Riesgo.

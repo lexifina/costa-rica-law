@@ -1,0 +1,1 @@
+ARTICULO 5°. Creación de los CAT's. Los CAT's se crean con un fin y un área temática específica y de acuerdo a las necesidades que se presentan para la toma de decisiones en cuanto a la prevención, preparativos, respuesta, reconstrucción y recuperación.

@@ -1,0 +1,1 @@
+ARTÍCULO 23°.Uso de la Palabra: El Coordinador será el encargado de otorgar la palabra a los participantes en la reunión. Se concederá la palabra a los miembros en el orden que lo soliciten, según el tema en discusión. En caso de ausencia del coordinador, el subcoordinador asumirá la condición de coordinar y tendrá a cargo ceder el uso de la palabra.

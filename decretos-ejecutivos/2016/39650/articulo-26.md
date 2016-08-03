@@ -1,0 +1,1 @@
+ARTÍCULO 26°. Situaciones Específicas. Cualquier CAT puede apoyar o recomendar a otro CAT si este así lo requiere.Esto se hará por medio de una solicitud expresa por parte de coordinador o de la Dirección de Gestión del Riesgo.

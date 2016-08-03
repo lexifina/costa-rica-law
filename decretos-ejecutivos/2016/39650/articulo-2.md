@@ -1,0 +1,1 @@
+ARTÍCULO 2°-Alcance. Este reglamento aplica a todos los funcionarios designados como representantes y suplentes en un CAT así como los funcionarios de la CNE que integren un CAT. Con la finalidad de activar, mejorar, fortalecer y regular el trabajo que desarrollan los CAT's es que se genera dicho reglamento.
