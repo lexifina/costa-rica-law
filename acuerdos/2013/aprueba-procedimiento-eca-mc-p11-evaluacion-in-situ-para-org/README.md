@@ -14,3 +14,4 @@ Aprueba Procedimiento ECA-MC-P11 "Evaluación in situ para Organismos de Certifi
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-07 | la propia norma |
+| 2 | 2016-08-03 | Acuerdo 0 (2016-08-03) |
