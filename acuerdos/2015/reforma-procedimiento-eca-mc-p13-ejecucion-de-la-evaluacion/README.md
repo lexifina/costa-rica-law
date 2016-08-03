@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MC-P13 Ejecución de la evaluación (Versión 08)
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-25 | la propia norma |
+| 2 | 2016-08-03 | Acuerdo 0 (2016-08-03) |
