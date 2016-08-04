@@ -1,0 +1,9 @@
+INSTITUTO COSTARRICENSE DE TURISMO
+Mediante comunicado de acuerdo SJD-027-2016 tomado en sesión ordinaria de junta directiva N° 5918, Artículo 5, inciso I, celebrada el día 08 de febrero de 2016:
+Se acuerda:
+A) De conformidad con el oficio N° G-0259-2016 suscrito por la Gerencia General aprobar la siguiente modificación al sub inciso xii), del inciso b), punto 1 del artículo 4 y el artículo 74 del Reglamento Financiero:
+CAPÍTULO I
+Artículo 4º—
+xii. Gastos de representación y actividades protocolarias y sociales que incluyan además la adquisición de productos alimenticios para atención de reuniones (ver capítulo VI, artículo 74°).
+CAPÍTULO VI
+Artículo 74.—La Presidencia Ejecutiva y la Gerencia General, son los funcionarios autorizados para efectuar Gastos de Representación Institucionales y aquellos ubicados en la subpartida “Actividades Protocolarias y Sociales” sujetos a liquidación y verificación posterior. Por autorización expresa, podrán efectuar este tipo de gastos, los funcionarios de otros niveles, debiendo visarse la liquidación respectiva por quien dio el consentimiento. Asimismo, no se autoriza la compra de cigarrillos y el uso del licor debe ser en forma racional y en apego a las políticas de austeridad que disponga la Administración. Aquellos funcionarios que participen en atenciones y recepciones (cenas, bufetes, entre otros), no pueden a la vez, hacer uso de la tarifa correspondiente que estipula el Reglamento de Gastos de Viaje y de Transporte para Funcionarios Públicos, debiendo velar además, de que los funcionarios del Instituto, solo en casos muy específicos supere al número de personas atendidas. Cuando por situaciones excepcionales la Junta Directiva y demás Órganos Colegiados que operen en la Institución requieran reunirse por lapsos relativamente prolongados en forma continua, los gastos para atenciones deberán adquirirse con apego a principios de razonabilidad y austeridad.
