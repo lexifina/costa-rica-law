@@ -1,0 +1,15 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+AJDIP/157-2016.—Puntarenas, a los veintisiete días del mes de abril de dos mil dieciséis.
+Considerando:
+1º—Que de conformidad con las disposiciones establecidas en la Ley 7384 del 16 de marzo de 1994, publicada en el Diario Oficial La Gaceta Nº 62 del 29 de marzo de 1994, el INCOPESCA tiene competencia y facultad legal para normar lo concerniente al aprovechamiento, explotación y comercialización de los recursos pesqueros, el otorgamiento de los permisos de pesca, construcción de embarcaciones, permisos de inactividad.
+2º—Que al amparo de esa potestad legal se adoptaron diversos acuerdos que regulan el otorgamiento de permisos de inactividad, como política para garantizar una adecuada y racional explotación de los recursos pesqueros y un óptimo rendimiento de las actividades pesqueras.
+3º—Que a efecto de lograr una mayor y mejor aplicación y comprensión de las disposiciones legales existentes en materia de sustitución temporal de embarcaciones, se ha estimado oportuno y conveniente integrarlas en una única disposición legal, estiman los Sres. Directivos la necesidad de establecer con claridad la normativa operante en relación con las sustituciones temporales de embarcaciones, razón por la cual, la Junta Directiva. Por tanto,
+ACUERDA:
+Establecer las Regulaciones Generales para el otorgamiento de permisos de sustitución temporal de embarcaciones a embarcaciones de la flota pesquera nacional con fines comerciales de conformidad con las siguientes disposiciones:
+1) La administración del Instituto, por medio del Jefe del Departamento de Protección y Registro, los Directores Regionales, los Jefes de Oficinas Regionales y Jefes de Oficinas Auxiliares, podrá autorizar en casos excepcionales, la sustitución temporal de embarcaciones dedicadas a la pesca con fines comerciales, siempre y cuando se compruebe ante dichas instancias que efectivamente la embarcación no se encuentra en condiciones aptas para realizar la actividad de pesca. Lo anterior deberá acreditarse por escrito y constar en el expediente respectivo.
+2) El plazo otorgado para la sustitución temporal, será de un año calendario contado a partir de la fecha de emisión de la autorización respectiva, por parte de las instancias mencionadas. Vencido el plazo señalado, el permiso de sustitución temporal caducará de pleno derecho y bajo ninguna circunstancia podrá ser revalidado.
+3) La sustitución temporal se regirá por los mismos términos y condiciones en cuanto al cumplimiento de los requerimientos y procedimientos de lo establecido en el Acuerdo AJDIP/238-2002.
+4) El costo del permiso de sustitución temporal será el establecido en el Reglamento de Tarifas del Instituto para la licencia de pesca comercial que posee la embarcación objeto de la sustitución temporal.
+5) Se dejan sin efecto los Acuerdos AJDIP-132-99, AJDIP-064-2003, AJDIP/380-2004, AJDIP/534-2004 y AJDIP/109-2005, así como cualquier otra disposición legal de igual o menor rango que se le oponga.
+6) Acuerdo Firme
