@@ -1,0 +1,25 @@
+INSTITUTO COSTARRICENSE DE PESCA
+Y ACUICULTURA
+AJDIP/181-2016.—Puntarenas, a los veinte días del mes de mayo de dos mil dieciséis.
+Considerando:
+1º—Presenta el Sr. Antonio Porras Porras, Director General Técnico, oficio DGT-060-2016, por medio del cual remite propuesta de prohibición de la pesca sobre boyas de datos, de conformidad con lo resuelto mediante resolución de la Comisión Interamericana del Atún Tropical –CIAT- N°. C-11-03, adoptada en la 82° Reunión de esa Comisión, la cual se vuelve vinculante para nuestro país.
+2º—Que dicha propuesta señala que la Comisión Interamericana del Atún Tropical en su 82ª Reunión, celebrada del 4 al 8 de julio de 2011 aprobó la Resolución C-11-03 mediante la cual se prohíbe la pesca sobre boyas de datos.
+3º—Que conscientes de que muchas naciones, incluidos Miembros de la Comisión, operan y emplazan boyas de datos por todo el Océano Pacífico oriental y los océanos del mundo para obtener información usada para generar mejores pronósticos meteorológicos y marinos, brindar ayuda a la pesca mediante la generación de datos sobre temperaturas oceánicas superficiales y subsuperficiales, ayudar esfuerzos de búsqueda y rescate en el mar, y obtener datos críticos para la investigación de temas meteorológicos y oceanográficos y predicción climática;
+4º—Que sabiendo que especies altamente migratorias, en particular los atunes, se agregan cerca de boyas de datos;
+5º—Que la Organización Meteorológica Mundial y la Comisión Oceanográfica Intergubernamental han determinado que el vandalismo y daños a las boyas de datos por buques pesqueros constituyen un problema importante en el Océano Pacífico y en todo el mundo;
+6º—Que el vandalismo o daño a las boyas de datos resulta en una pérdida importante de datos críticos para la predicción del tiempo, el estudio de condiciones marinas, avisos de tsunamis, y el apoyo de esfuerzos de búsqueda y rescate en el mar, y que los Miembros de la Comisión gastan time y recursos considerables en localizar, reemplazar, y reparar boyas de datos dañadas o pérdidas debido a actividades de pesca o vandalismo;
+7º—Que la pérdida de datos críticos para el estudio de las condiciones marinas debido al vandalismo o daño a las boyas de datos menoscaba los análisis por los científicos de la CIAT que buscan mejorar los conocimientos del uso de hábitat de los atunes y las relaciones entre el clima y el reclutamiento de los atunes, y la investigación por científicos ambientales en general; y
+8º—Que embarcaciones pesqueras costarricenses han sido detectadas haciendo pesca sobre boyas o las han utilizado para amarrarse a ellas e incluso se ha presentado al menos un caso en que se ha tenido que recoger una boya de datos en Puntarenas.
+9º—Que las resoluciones de la CIAT son vinculantes para Costa Rica y que por lo tanto se debe ir homologando dichas resoluciones a la normativa nacional; la Junta Directiva. Por tanto,
+ACUERDA:
+1º—Prohibir a las embarcaciones pesqueras de bandera nacional interactuar con boyas de datos en el Área de la Convención de Antigua (Océano Pacífico Oriental). Las interacciones incluyen, pero no se limitan a, cercar la boya con el arte de pesca, amarrar o sujetar al buque, o cualquier parte o porción de la embarcación a una boya de datos o cortar su cable de ancla.
+2º—Prohibir a los buques pesqueros nacionales o de bandera extranjera con licencia de pesca de Costa Rica calar sus artes de pesca en un área que este a menos de una milla náutica de distancia de una boya de datos anclada en el área de la Convención de Antigua.
+3º—Prohibir a las embarcaciones pesqueras subir a bordo una boya de datos, a menos que una Parte Contratante o el propietario responsable de esa boya lo autorice o solicite específicamente.
+4º—Las embarcaciones pesqueras deberán tomar toda medida razonable para evitar enmallar en el arte de pesca o interactuar directamente de cualquier forma con las boyas de datos que flotan a la deriva.
+5º—Se obliga a las embarcaciones pesqueras cuyo arte se haya enmallado con una boya de datos extraer el arte de pesca enmallado con el daño mínimo posible a la boya de datos.
+6º—Si una embarcación pesquera incurre en lo señalado en el punto 5, deberá notificarlo al regreso de su viaje por escrito ante la Jefatura del Departamento de Protección y Registro, indicando en dicho reporte la fecha, posición, y naturaleza del enmallamiento, junto con cualquier información identificadora sobre la boya de datos, a efectos de proceder a realizar la remisión respectiva de dicho informe ante la CIAT.
+7º—Los programas de investigación científica notificados a la Comisión podrán operar buques pesqueros a menos de una milla náutica de una boya de datos serán permitidos, siempre que no interactúen con la misma.
+8º—El Departamento de Extensión y Capacitación deberá realizar la comunicación de este acuerdo a las Organizaciones de Pescadores, para su conocimiento y aplicación.
+9º—Las faltas a esta regulación serán sancionadas conforme se establece en la Ley N° 8436, Ley de Pesca y Acuicultura.
+10.—Rige a partir de su publicación en el Diario Oficial La Gaceta.
+11.—Acuerdo Firme.
