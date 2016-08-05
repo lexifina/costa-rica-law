@@ -1,0 +1,1 @@
+Artículo 14.—Informes. El Departamento de Desarrollo del Talento Humano, presentará a la Comisión de Cauciones, de acuerdo con la vigencia de las pólizas, un informe sobre el incumplimiento de la normativa establecida en este reglamento, quienes lo elevarán a la Gerencia General, la que tendrá la potestad de establecer las medidas que correspondan.

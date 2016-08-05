@@ -1,0 +1,1 @@
+Artículo 8º—Causales que extinguen el deber de rendir garantía. El deber de caucionar cesará por renuncia, despido o traslado del funcionario del puesto o cargo a otro en el cual no se exija rendir garantía

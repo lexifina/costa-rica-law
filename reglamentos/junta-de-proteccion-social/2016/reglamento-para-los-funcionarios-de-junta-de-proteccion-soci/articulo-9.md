@@ -1,0 +1,1 @@
+Artículo 9º—Vigencia de la garantía. De conformidad con la normativa legal vigente, la vigencia de las garantías será de un año a partir de su emisión, debiendo renovarse en forma oportuna, si el funcionario continúa en el puesto.

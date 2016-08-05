@@ -1,0 +1,1 @@
+Artículo 6º—De los funcionarios interinos. Aquellos funcionarios que de manera interina o transitoria ocupen cualquiera de los puestos o cargos mencionados en los artículos anteriores, deberán rendir garantía desde el momento de su nombramiento.

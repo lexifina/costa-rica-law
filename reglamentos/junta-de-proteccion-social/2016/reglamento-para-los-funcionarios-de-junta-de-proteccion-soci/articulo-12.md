@@ -1,0 +1,8 @@
+Artículo 12.—Control y monto de la póliza. Le corresponde a la Comisión de Cauciones determinar el monto que debe ser cubierto por la póliza de fidelidad Individual que deben rendir los funcionarios de la Institución. Entre mayor sea la responsabilidad del funcionario, mayor será el monto de la póliza que debe rendir.
+Para determinar las clases y los montos de las garantías, así como la obligación de prestar caución por parte de los funcionarios mencionados en el artículo 1, la Junta de Protección Social deberá aplicar, al menos, los siguientes criterios:
+a) Nivel de Responsabilidad: Se relaciona con la jerarquía, la supervisión y el grado de autoridad en la disposición de los fondos públicos a su cargo. La capacidad de ordenar o autorizar las ejecuciones o emisiones de gastos, la captación de ingresos, decidir en los procesos de contratación administrativa, la supervisión de todos estos procesos, así como la suscripción de convenios o contratos los cuales signifiquen un flujo de fondos para la institución.
+b) Monto de recursos que maneja el funcionario: Se refiere a la sumatoria total del valor promedio en dinero por mes de los fondos que administra el funcionario.
+c) Factor Salario: Está determinado por el salario mensual que percibe el funcionario en el cumplimiento de sus labores.
+d) Puestos a valorar: Puestos que tengan a su cargo funciones o procesos con niveles de riesgo.
+e) Controles realizados: Medidas de control implantadas y su efectividad.
+Lo anterior, sin perjuicio de que la Junta, con base en los postulados y los principios contenidos en las Normas Generales de Control Interno, establezca conjuntamente otros criterios o parámetros para determinar objetivamente la obligación de los funcionarios.
