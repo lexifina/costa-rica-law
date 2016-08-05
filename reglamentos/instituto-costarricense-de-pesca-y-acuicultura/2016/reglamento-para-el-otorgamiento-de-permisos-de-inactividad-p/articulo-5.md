@@ -1,0 +1,1 @@
+5º—Vencido el término permitido de la inactividad según se hubiere concedido al interesado y no se reactiva la licencia de pesca por un plazo no menor de un año el permiso o licencia de pesca caducará de pleno derecho y el Instituto procederá a su cancelación administrativa.

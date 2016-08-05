@@ -1,0 +1,1 @@
+4º—Tratándose de inactividades concedidas por baja rentabilidad en la extracción o producción de los recursos pesqueros, anualmente el permisionario deberá aportar los insumos que certifiquen tal condición y además deberá verificarse que la embarcación se mantiene en condiciones aptas para ejecutar las faenas de pesca.

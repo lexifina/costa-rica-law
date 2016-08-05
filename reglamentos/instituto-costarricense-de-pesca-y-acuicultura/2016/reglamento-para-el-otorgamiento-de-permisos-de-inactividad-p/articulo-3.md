@@ -1,0 +1,1 @@
+3º—El plazo del permiso de inactividad de la licencia de pesca concedido podrá ser prorrogado por períodos anuales y hasta un máximo de nueve prorrogas, por parte de las dependencias administrativas mencionadas.
