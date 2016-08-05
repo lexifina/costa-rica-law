@@ -1,0 +1,1 @@
+Artículo 2º—Las solicitudes de rehabilitación de licencias de pesca comercial serán presentadas ante las oficinas administrativas correspondientes y remitidas por estas a la secretaria de la CEARLP, con copia certificada del respectivo expediente administrativo de la licencia de pesca.

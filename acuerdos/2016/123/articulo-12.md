@@ -1,0 +1,1 @@
+Artículo 12.—Aquellas solicitudes cuya recomendación para la rehabilitación de licencias por parte de la Comisión sean negativas, una vez avalada dicha recomendación por parte de la Junta Directiva acarreará el archivo definitivo del expediente administrativo.

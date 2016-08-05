@@ -1,0 +1,1 @@
+Artículo 13.—Los acuerdos emanados por parte de la Junta Directiva, en razón de las recomendaciones de esta Comisión, tendrán los recursos procesales de revocatoria y apelación que determina la Ley General de la Administración Pública.

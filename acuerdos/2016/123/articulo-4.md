@@ -1,0 +1,1 @@
+Artículo 4º—Dicha Comisión estará constituida por el Director General Técnico, quien la coordinará; el Director General de Organizaciones Pesqueras y Acuícolas; el Asesor Legal; el Jefe del Departamento de Protección y Registro y el Jefe del Departamento de Extensión y Capacitación.
