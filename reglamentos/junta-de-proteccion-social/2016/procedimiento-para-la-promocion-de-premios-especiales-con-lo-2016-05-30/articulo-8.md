@@ -1,0 +1,1 @@
+Artículo 8º—Vigencia. La promoción premios especiales en los sorteos ordinarios de Lotería Nacional tiene vigencia a partir del sorteo Nº 4401 a efectuarse el 07 de agosto, 2016 y hasta el sorteo Nº 4417 a efectuarse el 27 de noviembre, 2016.
