@@ -13,3 +13,4 @@ Reglamento al Título IX de la Ley Orgánica del Poder Judicial, de las Jubilaci
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-09-04 | la propia norma |
+| 2 | 2016-08-08 | Circular 121 (2016-08-08) |

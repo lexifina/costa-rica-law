@@ -1,3 +1,3 @@
-CAPÍTULO X
-De los estados financieros del fondo de jubilaciones y pensiones
-Artículo 41.—El Departamento Financiero Contable deberá presentar ante la Dirección Ejecutiva, y esta a su vez al Consejo Superior, trimestralmente, los estados financieros del Fondo de Jubilaciones y Pensiones, cumpliendo con lo establecido en la normativa contable que resulte aplicable al Fondo de Jubilaciones y Pensiones del Poder Judicial, sin perjuicio de los informes que se soliciten en el momento que se requiera.
+Artículo 41.—El quórum para que pueda sesionar válidamente el Comité de Riesgos será de dos terceras partes de los miembros con voto. Los acuerdos serán adoptados por mayoría y los acuerdos se emitirán por mayoría de los miembros presentes. En caso de empate, el voto del Presidente del Comité valdrá doble (voto de calidad).
+En el caso de los votos negativos o en caso de que algún miembro se abstenga a votar, este criterio deberá quedar debidamente razonado y justificado en el Acta.
+(Así reformado mediante sesión N° 21-16 del 20 de junio de 2016, aprobada mediante Circular N° 121-2016 del 8 de agosto del 2016 publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016)

@@ -1,3 +1,2 @@
-CAPÍTULO XI
-De los estudios actuariales
-Artículo 43.—La Dirección Ejecutiva, deberá realizar las gestiones necesarias para que se realice al menos cada dos años un estudio actuarial del Fondo de Jubilaciones y Pensiones del Poder Judicial, a efecto de medir entre otros aspectos, su sostenibilidad en el corto, mediano y largo plazos.
+Artículo 43.—Corresponderá al Secretario Técnico del Comité de Riesgos apoyar técnicamente al Comité de Riesgos, a cuyo efecto estará a cargo de la elaboración de la propuesta de agenda, levantar el acta de la sesión y comunicar los acuerdos tomados por el Comité de Riesgos, los cuales se resguardarán de forma electrónica.
+(Así reformado mediante sesión N° 21-16 del 20 de junio de 2016, aprobada mediante Circular N° 121-2016 del 8 de agosto del 2016 publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016)

@@ -1,0 +1,2 @@
+Artículo 53.—Los recursos concedidos a los sujetos que establece el 238 de la LOPJ en calidad de crédito a los servidores, jubilados y pensionados judiciales, se realizarán conforme al reglamento de crédito aprobado por Corte Plena en sesión N° 16-11, del 30 de mayo de 2011, artículo XXIX y sus reformas.
+(Así adicionado mediante sesión N° 21-16 del 20 de junio de 2016, aprobada mediante Circular N° 121-2016 del 8 de agosto del 2016 publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016)

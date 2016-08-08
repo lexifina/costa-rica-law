@@ -1,0 +1,2 @@
+Artículo 57.—El estudio actuarial debe ejecutarse considerando las distintas variables en esta materia, que permita proyectar la situación actuarial en el corto, mediano y largo plazos, y en apego estricto a los requerimientos que se establecen en el pliego de condiciones para la contratación.
+(Así adicionado mediante sesión N° 21-16 del 20 de junio de 2016, aprobada mediante Circular N° 121-2016 del 8 de agosto del 2016 publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016)

@@ -1,0 +1,4 @@
+CAPÍTULO IX
+De los préstamos
+Artículo 52.—Los préstamos con recursos del Fondo de Jubilaciones y Pensiones serán otorgados a los sujetos que establece el artículo 238 de la Ley Orgánica del Poder Judicial.
+(Así adicionado mediante sesión N° 21-16 del 20 de junio de 2016, aprobada mediante Circular N° 121-2016 del 8 de agosto del 2016 publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016)

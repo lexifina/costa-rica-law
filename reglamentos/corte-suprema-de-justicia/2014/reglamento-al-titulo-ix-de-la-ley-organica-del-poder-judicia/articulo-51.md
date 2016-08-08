@@ -1,0 +1,2 @@
+Artículo 51.—El Departamento Financiero Contable deberá rendir informes trimestrales a la Dirección Ejecutiva, quien a su vez deberá informar al Consejo Superior, sobre la distribución de la cartera de inversiones, los intereses ganados, rendimientos, así como cualquier otro aspecto que coadyuve a la toma de decisiones.
+(Así adicionado mediante sesión N° 21-16 del 20 de junio de 2016, aprobada mediante Circular N° 121-2016 del 8 de agosto del 2016 publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016)

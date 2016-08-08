@@ -1,3 +1,2 @@
-CAPÍTULO XII
-Disposiciones finales
-Artículo 46.—Lo no previsto en este reglamento será resuelto por la Corte Plena. En todo caso de duda, salvo lo dispuesto en la ley, privará el principio pro-fondo.
+Artículo 46.—Los recursos del Fondo de Jubilaciones y Pensiones, deben ser invertidos de conformidad con lo establecido en los artículos 81, inciso 12 y artículo 239 de la Ley Orgánica del Poder Judicial, conforme a las políticas definidas por la Corte Plena, y de acuerdo a las recomendaciones que efectúen Comités de Riesgos e Inversiones, mediante una adecuada administración de la cartera de inversiones, procurando que se garanticen los mejores rendimientos, liquidez, seguridad, solidez económica y que el rendimiento de la cartera de inversión no sea inferior a la tasa técnica actuarial que se determine.
+(Así reformado mediante sesión N° 21-16 del 20 de junio de 2016, aprobada mediante Circular N° 121-2016 del 8 de agosto del 2016 publicada en el Boletín Judicial N° 171 del 6 de setiembre del 2016)
