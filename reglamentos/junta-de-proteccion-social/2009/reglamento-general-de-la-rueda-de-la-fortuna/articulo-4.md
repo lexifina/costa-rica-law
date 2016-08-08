@@ -1,1 +1,0 @@
-4. El monto total de premio que obtiene cada participante en el sorteo La Rueda de la Fortuna , será el resultante de la sumatoria de los premios obtenidos individualmente en cada uno de los juegos en que participó y obtuvo algún monto de premio.
