@@ -1,8 +1,10 @@
 Artículo 12.—Deberes del Auditor Interno. La Auditoría Interna estará bajo la responsabilidad de un Auditor Interno, a quien corresponde su dirección superior y administración. Deberá cumplir con todos los requisitos que exige la Ley General de Control Interno y conocer las disposiciones legales que rigen la Administración Pública, así como la normativa interna, en lo que sea aplicable.
 El Auditor Interno tendrá, sin perjuicio de lo establecido en la citada ley y lo que al efecto disponga la Contraloría General de la República, los siguientes deberes y funciones:
+(Así reformado el párrafo anterior por el artículo 1° de decreto del Tribunal Supremo de Elecciones N° 8-2016 del 8 de agosto del 2016)
 a) Presentar el Plan de Trabajo de la Auditoría Interna de conformidad con los lineamientos que al efecto dicte la Contraloría General de la República y proponer al Tribunal los requerimientos de recursos necesarios para ejecutar dicho plan.
 b) Formular, gestionar, divulgar y mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría Interna, de conformidad con lo que dispone el artículo 4º del presente Reglamento y cumplir y hacer cumplir dicho Reglamento.
-c) Establecer un Programa de Aseguramiento de la Calidad para la Auditoría Interna.
+c) Establecer un Sistema de Control de Aseguramiento de la Calidad para la Auditoría Interna.
+(Así reformado el inciso anterior por el artículo 1° de decreto del Tribunal Supremo de Elecciones N° 8-2016 del 8 de agosto del 2016)
 d) Presentar ante el jerarca un informe anual de la ejecución del plan de trabajo. Asimismo, deberá presentar el informe final de gestión a que se refiere el inciso e) del artículo 12 de la Ley General de Control Interno, de conformidad con los requisitos que al efecto haya emitido la Contraloría General de la República.
 e) Implantar una adecuada gestión de procesos, servicios y productos de la auditoría.
 f) Definir, establecer y mantener actualizadas las políticas, directrices y procedimientos necesarios para cumplir con sus competencias, de conformidad con la normativa jurídica y técnica pertinente, y vigilar que los funcionarios de la auditoría cumplan con dicha normativa.
