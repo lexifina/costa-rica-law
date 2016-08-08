@@ -1,1 +1,0 @@
-Transitorio II.—El último sorteo a realizar bajo la mecánica del reglamento anterior (publicado en La Gaceta Nº 168 del 1 de setiembre del 2000), es el día 12 de julio del 2008. En esta fecha se escogerán de entre los sobres únicamente dos participantes.

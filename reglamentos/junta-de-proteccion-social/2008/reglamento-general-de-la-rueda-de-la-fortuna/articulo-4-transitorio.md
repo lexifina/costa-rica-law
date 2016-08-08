@@ -1,1 +1,0 @@
-Transitorio IV.—Durante los dos primeros sorteos a realizar bajo la mecánica de este nuevo reglamento, los participantes a seleccionar para el próximo sorteo, se escogerán de los sobres recibidos con seis boletos sin premio.

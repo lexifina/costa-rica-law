@@ -1,1 +1,0 @@
-Transitorio III.—El monto del Gran Premio Acumulado resultante del último sorteo de la Rueda de la Fortuna bajo la mecánica de reglamento anterior, queda sin efecto a partir del primer sorteo a realizar bajo la mecánica de este nuevo Reglamento.
