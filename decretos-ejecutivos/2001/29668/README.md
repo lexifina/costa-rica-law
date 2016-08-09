@@ -14,3 +14,4 @@ Incorpora al Patrimonio Histórico- Arquitectónico, el inmueble La Iglesia de L
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-08-08 | la propia norma |
+| 2 | 2016-08-09 | Decreto Ejecutivo 39921 (2016-08-09) |
