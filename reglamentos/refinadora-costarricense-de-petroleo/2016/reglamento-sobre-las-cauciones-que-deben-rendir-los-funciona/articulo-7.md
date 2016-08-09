@@ -1,0 +1,1 @@
+Artículo 7º—Vigencia de la caución. Será responsabilidad del funcionario, rendir con cargo a su propio peculio, la garantía a que hace referencia el artículo 13 de la Ley de Administración Financiera y Presupuestos Públicos, así como mantener la vigencia y el monto de la misma durante su nombramiento en el cargo.

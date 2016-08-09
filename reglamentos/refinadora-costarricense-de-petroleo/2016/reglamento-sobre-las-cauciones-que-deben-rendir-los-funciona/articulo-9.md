@@ -1,0 +1,4 @@
+Artículo 9º—De los funcionarios llamados a caucionar. Tomando en consideración los niveles de responsabilidad, y sujetos a los principios de lógica, eficiencia, eficacia, economía, legalidad, nivel de riesgo y en general, las prácticas generales de sana administración de los recursos públicos, los (as) funcionarios (as) llamados (as) a caucionar son los siguientes:
+Nivel A: El jerarca, Presidente, Gerente General, Gerentes de Área, Auditor General y Subauditor General.
+Nivel B: Subauditores de Área y Directores de Área.
+Nivel C: Jefes de Departamento, encargados de especies fiscales, los encargados de recaudar, custodiar y trasegar dineros y valores y cualquier otro funcionario que en razón de sus funciones, esté autorizado para aprobar trámites de contratación administrativa y pagos que se gestionen por medio de caja chica y órdenes de pago, así como aquellos funcionarios que son responsables de un proyecto y que autorizan retiro de materiales de bodega.

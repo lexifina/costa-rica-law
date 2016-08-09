@@ -1,0 +1,1 @@
+Artículo 6º—Momento para rendir la caución. Los funcionarios obligados a rendir caución deberán hacerlo dentro de los veinte días hábiles siguientes a la fecha de su nombramiento en el puesto, ya sea de manera temporal o definitiva.

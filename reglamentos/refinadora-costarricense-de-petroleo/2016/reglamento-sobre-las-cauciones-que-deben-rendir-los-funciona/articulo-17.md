@@ -1,0 +1,1 @@
+Artículo 17.—Transitorio. Respecto a la actualización del monto de la garantía para cada nivel, la misma se realizará al momento del vencimiento de las pólizas vigentes, una vez que entre en vigencia el presente reglamento.

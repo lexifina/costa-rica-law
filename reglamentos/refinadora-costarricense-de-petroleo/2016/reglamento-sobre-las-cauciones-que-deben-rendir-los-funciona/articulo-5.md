@@ -1,0 +1,1 @@
+Artículo 5º—De las formas de caucionar. La caución a favor de la Empresa sólo podrá ser admitida mediante las pólizas de fidelidad que extienden las compañías aseguradoras debidamente registradas en el país, mismas que deben ser cubiertas con fondos propios del funcionario.

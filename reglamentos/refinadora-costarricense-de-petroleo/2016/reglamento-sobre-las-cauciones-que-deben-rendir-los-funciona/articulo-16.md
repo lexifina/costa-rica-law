@@ -1,0 +1,1 @@
+Artículo 16.—Disposiciones generales obligatorias. Las disposiciones de este reglamento son de acatamiento obligatorio para las unidades que conforman la organización de la Empresa y para todos los funcionarios (as) encargados de recaudar, custodiar o administrar fondos y valores.

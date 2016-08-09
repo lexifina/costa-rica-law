@@ -1,0 +1,6 @@
+Artículo 10.—Del monto de las garantías. Considerando que las cauciones son una medida que se complementa con acciones de control de riesgos adoptadas en la Empresa con base en el riesgo probable, según los deberes consignados en el Capítulo III de la Ley General de Control Interno N° 8292, el monto de las garantías se fija de acuerdo con el nivel de responsabilidad, el puesto y salario de los servidores, así como los valores recaudados, custodiados o administrados por éstos.
+El monto de las garantías para los diferentes niveles establecidos en el artículo 9, serán los siguientes:
+Nivel A: El equivalente a dos y medio salario base.
+Nivel B: El equivalente a dos salarios base.
+Nivel C: El equivalente a uno y medio salario base.
+El monto de la garantía para cada nivel, se actualizará anualmente, tomando como parámetro el salario base establecido en la Ley N° 7337 del 5 de mayo de 1993, publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año. Dicha actualización será comunicada por escrito por la Dirección de Recursos Humanos a los funcionarios obligados a caucionar, para que se ajusten al nuevo monto de cobertura de la garantía; quienes contarán para ello con un plazo máximo de treinta días hábiles contados a partir de la notificación de dicha comunicación.
