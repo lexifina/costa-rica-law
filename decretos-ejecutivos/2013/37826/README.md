@@ -14,3 +14,4 @@ Asigna al Ministerio de Agricultura y Ganadería un bien inmueble para su utiliz
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-08-14 | la propia norma |
+| 2 | 2016-08-09 | Decreto Ejecutivo 39990 (2016-08-09) |
