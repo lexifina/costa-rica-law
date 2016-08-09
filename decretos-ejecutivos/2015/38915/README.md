@@ -40,3 +40,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 25 | 2016-07-13 | Decreto Ejecutivo 39832 (2016-07-13) |
 | 26 | 2016-07-13 | Decreto Ejecutivo 39831 (2016-07-13) |
 | 27 | 2016-07-13 | Decreto Ejecutivo 39830 (2016-07-13) |
+| 28 | 2016-08-09 | Decreto Ejecutivo 39885 (2016-08-09) |
