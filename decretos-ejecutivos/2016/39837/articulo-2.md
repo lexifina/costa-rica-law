@@ -1,0 +1,1 @@
+Artículo 2. - Deróguese el artículo 8; así como el párrafo final del inciso 10) del artículo 2), del Reglamento al Fondo Especial para el Desarrollo de las Micros, Pequeñas y Medianas Empresas (FODEMIPYME), Decreto Ejecutivo N° 39278-MEIC del 22 de julio de 2015.
