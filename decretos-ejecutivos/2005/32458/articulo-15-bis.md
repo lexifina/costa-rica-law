@@ -1,0 +1,2 @@
+Artículo 15° Bis.- La Dirección General de Aduanas no permitirá la nacionalización de aquellos vehículos que incumplan lo establecido en el artículo 5 de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, N° 9078 del 4 de octubre del 2012, por haber sido manipulados en su número de identificación, VIN o chasis.
+(Así adicionado por el artículo 1° del decreto ejecutivo N° 39941 del 10 de agosto del 2016)

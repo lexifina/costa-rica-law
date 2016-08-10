@@ -15,8 +15,7 @@ VIII.—Que un estudio realizado por la Dirección General de Hacienda a inicios
 IX.—Que el artículo 11 de la Ley del Impuesto General sobre las Ventas, establece en lo de interés, lo siguiente:
 "Artículo 11.—Base imponible en ventas de mercancías.
 (...) Se faculta a la Administración Tributaria, para determinar la base imponible y ordenar la recaudación del impuesto en el nivel de las fábricas, mayoristas y aduanas, sobre los precios de venta al consumidor final, en el nivel del detallista, en las mercancías en las cuales se dificulte percibir el tributo. El procedimiento anterior deberá adoptarse mediante resolución razonada, emitida por la Administración Tributaria y deberá contener los parámetros y los datos que permitan a los contribuyentes aplicar correctamente el tributo (...)"
-X.—Que el Ministerio de Hacienda considera necesario establecer el cobro del Impuesto General sobre las Ventas, en el caso de la comercialización de vehículos nuevos y usados, para garantizar su mejor fiscalización y recaudación, razón por la cual con fundamento en la disposición citada en el considerando anterior, así como en los artículos 17 y 26 del Reglamento de la Ley del Impuesto General sobre las Ventas en lo conducente, y para tal efecto, dispone determinar la base imponible y ordenar la recaudación a nivel de aduanas, sobre el precio de venta estimado al consumidor final.
-Por tanto,
+X.—Que el Ministerio de Hacienda considera necesario establecer el cobro del Impuesto General sobre las Ventas, en el caso de la comercialización de vehículos nuevos y usados, para garantizar su mejor fiscalización y recaudación, razón por la cual con fundamento en la disposición citada en el considerando anterior, así como en los artículos 17 y 26 del Reglamento de la Ley del Impuesto General sobre las Ventas en lo conducente, y para tal efecto, dispone determinar la base imponible y ordenar la recaudación a nivel de aduanas, sobre el precio de venta estimado al consumidor final.Por tanto,
 DECRETAN:
 CAPÍTULO I
 Del procedimiento de valoración para la importación de vehículos
@@ -28,3 +27,5 @@ c) Valor Importación Tributación (VIT): Es el valor resultante de deducir al V
 d) Vehículo: Que corresponda únicamente a mercancías amparadas a las partidas arancelarias 87.02, 87.03, 87.04 y 87.11.
 e) Vehículo nuevo: Aquel vehículo que se importa sin uso desde el país de donde es originario o desde un tercer país y corresponde al modelo del año o del siguiente, o a un modelo de años anteriores que no haya sido inscrito o registrado en el país de origen o de exportación.
 f) Vehículo usado: Vehículo que haya sido registrado o matriculado en el país de origen o de exportación.
+g)Número de identificación vehicular (VIN): Número de identificación estándar denominado internacionalmente como Vehicle Identification Nurnber (VIN) y que se compone de una secuencia de dígitos cuyo objetivo es permitir identificar e individualizar los vehículos de motor de cualquier tipo, entre los cuales aparece el correspondiente al año modelo o el año de fabricación.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39941 del 10 de agosto del 2016)
