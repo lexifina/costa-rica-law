@@ -1,0 +1,23 @@
+CIRCULAR Nº 128-2016
+Asunto: Procedimiento a seguir para atender juicios en los que sea necesario asignar una cuarta plaza de jueza o juez.
+A LOS TRIBUNALES PENALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión Nº 60-16 celebrada el 21 de junio de 2016, artículo LXXXIII, aprobó la propuesta sobre el Procedimiento a seguir para atender juicios en los que sea necesario asignar una cuarta plaza de jueza o juez, que literalmente dice:
+“ (…)
+1. Es necesario que todos los tribunales del país, al momento de agendar los expedientes para juicio consideren las normas ya establecidas en las circulares N° 31-2011, N° 173-2014 y N° 231-2015, especialmente lo referido a los principales factores que determinan la duración de un debate, el horario de inicio; las responsabilidades de la jueza o juez de trámite, entre otras.
+2. Previo a remitir la solicitud de asignación de una cuarta plaza, el Juez Coordinador o Jueza Coordinadora de cada Tribunal deberá valorar internamente la factibilidad de asignarla desde su personal de planta, debido a las restricciones presupuestarias para crear plazas.
+3. Si una vez atendidas las anteriores disposiciones, no resulta posible cubrir internamente la necesidad, el Juez Coordinador/a procederá a realizar la solicitud ante el Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional; para lo cual, además de exponer las particularidades o datos específicos del juicio, deberá aportar y cumplir con lo siguiente:
+3.1. Cumplir con lo dispuesto por Corte Plena, en la circular N° 18-2016 del 29 de enero del 2016.
+3.2. Presentar la acusación y la minuta o radiografía del juicio (respetando la confidencialidad de las partes).
+3.3. Rellenar la plantilla denominada “Matriz de cronograma de juicio” indicando: la duración de la investigación policial, intervenciones telefónicas (cantidad de teléfonos intervenidos), cantidad de partes involucradas, cantidad de imputados y ofendidos, cantidad de abogados y abogadas participantes, cantidad de personas testigos, peritos y el señalamiento a debate.
+PLANTILLA
+Matriz de
+Cronograma de Juicio.doc
+4. Una vez que el Centro de Apoyo, Coordinación y Mejoramiento de la Función Jurisdiccional reciba la solicitud con los datos completos, procederá, inmediatamente, a resolver si procede la asignar la cuarta plaza de Jueza o Juez. En aquellos casos en que proceda la solicitud; no obstante, dicho Centro no cuente con el recurso humano correspondiente para asignar el cuatro Juez o Jueza, remitirá la gestión aprobada ante el Consejo Superior, adjuntando la respectiva certificación de contenido presupuestario por parte de la Dirección de Gestión Humana, a efectos, de que éste autorice dicho recurso.
+4.1 En los casos que el Centro considere que no procede la gestión solicitada, la rechazará, comunicando su resolución de inmediato al Despacho solicitante.
+5. Una vez asignado el cuarto Juez o Jueza, se deberán cumplir las siguientes condiciones:
+5.1. La plaza será asignada al Tribunal, y administrada por el Jueza o Juez Coordinador. La persona asignada por el Centro se integrará a las labores ordinarias del Tribunal, formando parte integral del despacho, por el tiempo nombrado. De tal forma qué, de las plazas ordinarias del Despacho, el coordinador escogerá según rol, la persona que participará del juicio como cuarto juez o jueza, siendo que la persona asignada por el Centro deberá sustituir durante el tiempo que dure dicho juicio al funcionario propietario asignado.
+Lo anterior, no eximirá al cuarto Juez o Jueza, de realizar labores propias de los jueces ordinarios, pudiendo el coordinador asignarle otras labores siempre y cuando no sean juicios orales. Por ejemplo, podrá asignársele procedimientos especiales abreviados; vistas de apelación, audiencias sobre medidas alternas, sobreseimientos, cuando procedan; así como trabajo interlocutorio del Despacho, que el coordinador considere conveniente y proporcional a las cargas de trabajo del puesto que ocupa.
+5.2. La Jueza o Juez Coordinador presentará informes semanales del avance con respecto a la programación del juicio, elaborados por la sección a cargo del proceso, ante el Centro de Apoyo Coordinación y Mejoramiento de la Función Jurisdiccional, de manera que se genere información útil que permita una adecuada toma de decisiones.
+5.3 Con base en los informes semanales de avance aportados por el juez o jueza coordinadora, en relación a la programación del juicio, el Centro de Apoyo Coordinación y Mejoramiento de la Función Jurisdiccional, informará al Consejo en caso de que considere un mal uso del recurso.”
+San José, 10 de agosto de 2016.
