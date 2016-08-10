@@ -1,0 +1,1 @@
+Artículo 5. La restauración o la creación de humedales no pueden reemplazar la destrucción o degradación de humedales naturales. Se debe evitar el canje de hábitats o ecosistemas de alta calidad bajo el concepto de restauración, excepto cuando intervengan intereses públicos debidamente comprobados por los instrumentos respectivos.
