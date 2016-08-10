@@ -14,3 +14,4 @@ Reglamento de Garantías y Cauciones para los funcionarios de la Universidad Té
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-16 | la propia norma |
+| 2 | 2016-08-10 | Reglamento 0 (2016-08-10) |
