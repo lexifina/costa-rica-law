@@ -1,0 +1,1 @@
+Artículo 23. Los estudiantes deben de mantenerse en un solo proyecto de TCU. Sólo en casos muy calificados y por recomendación del Coordinador del Proyecto, se podrá recomendar a la Dirección de Extensión la reubicación del estudiante. En este caso, se reconocerán las horas contabilizadas en el proyecto original.

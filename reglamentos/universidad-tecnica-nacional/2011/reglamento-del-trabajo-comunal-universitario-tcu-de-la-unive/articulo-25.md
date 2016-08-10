@@ -1,0 +1,1 @@
+Artículo 25. Salvo los casos de fuerza mayor, el estudiante que no concluya su TCU en el tiempo establecido en este reglamento, no podrá matricularlo nuevamente en el ciclo siguiente. Deberá esperar un cuatrimestre antes de volver a matricular el TCU, y las horas que cumplió no se les contabilizarán.

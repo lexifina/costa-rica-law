@@ -1,0 +1,1 @@
+Artículo 26. El estudiante que no cumpla con las tareas encomendadas podrá ser removido por el Coordinador del proyecto, mediante una resolución debidamente fundamentada que tendrá los recursos administrativos ordinarios. En caso de remoción justificada, el estudiante perderá las horas acumuladas.

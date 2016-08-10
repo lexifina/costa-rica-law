@@ -1,0 +1,1 @@
+Artículo 9. Los proyectos podrán ser propuestos por las distintas unidades académicas, carreras, Centros especializados y comisiones institucionales de cada Sede o de la Universidad; para este efecto, las unidades proponentes designarán un coordinador de proyecto que será el profesional encargado de coordinar, implementar la propuesta y velar por su adecuado desarrollo.

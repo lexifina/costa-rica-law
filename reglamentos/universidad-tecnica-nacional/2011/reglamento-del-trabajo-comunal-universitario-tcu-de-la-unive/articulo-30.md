@@ -1,0 +1,1 @@
+Artículo 30. Al concluir cada proyecto, las autoridades de la Sede rendirán un informe sobre el desarrollo, impacto y la consecución de los objetivos del proyecto a la comunidad universitaria, a la sociedad civil y a los grupos interesados.

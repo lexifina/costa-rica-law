@@ -1,0 +1,1 @@
+Artículo 12. En cada sede, existirá una Comisión Técnica encargada de la aprobación, en primera instancia, de los proyectos. Dicha Comisión estará presidida por el Decano e integrada por el Director de Docencia, el Director de Extensión y el Director de Investigación.
