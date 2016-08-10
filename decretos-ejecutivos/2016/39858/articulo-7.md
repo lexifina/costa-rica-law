@@ -1,0 +1,1 @@
+Artículo 7.- Todas las organizaciones y sectores que tengan derecho a conformar la Junta Directiva deberán tener electos a las personas que asumirán los nuevos cargos con al menos con diez días hábiles de anticipación a la fecha de vencimiento de las representaciones a sustituir.

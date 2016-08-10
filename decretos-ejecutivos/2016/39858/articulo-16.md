@@ -1,0 +1,2 @@
+Artículo 16.- Para la elección de la persona representante establecida en el inciso del artículo 15 de la Ley de JUDESUR, el Consejo de Gobierno nombrará a su representante ante la Junta Directiva de JUDESUR, respetando el criterio legal de alternabilidad y paridad de género, de modo que deberá asegurar que su representación alterne como corresponde a cada periodo, según los lineamientos establecidos en este Reglamento.
+La elección será por un lapso de cuatro años, contados a partir del primero de junio del año en que se inicia el período constitucional.
