@@ -1,0 +1,6 @@
+Artículo 3. Será reconocido en los siguientes casos:
+a- Cuando el funcionario tenga que salir de su domicilio antes de las cinco horas para atender una gira de trabajo y requiera el servicio de taxi para desplazarse a la terminal de transporte público, al recinto de trabajo o al lugar más conveniente de acuerdo con la ruta del vehículo institucional dispuesto para la gira.
+b- Cuando la gira finalice después de las veintiún horas y el funcionario requiera el servicio de taxi para desplazarse desde el recinto de trabajo o lugar más conveniente de acuerdo con la ruta de la gira del vehículo institucional, a su domicilio o una terminal de transporte público.
+c- Cuando resulte más conveniente para la institución realizar el servicio o la diligencia utilizando el servicio de transporte público (autobús y taxi, en ese orden), sin sacrificar la calidad, la agilidad y la oportunidad de las actividades programadas.
+Artículo 3. La autoridad competente deberá analizar los casos en donde se puede utilizar el servicio de taxi para varios funcionarios que viajen en una misma ruta, siempre que se cumpla con lo indicado en los puntos a y b anteriores.
+(En la publicación de este reglamento se consignó dos veces el artículo N° 3)

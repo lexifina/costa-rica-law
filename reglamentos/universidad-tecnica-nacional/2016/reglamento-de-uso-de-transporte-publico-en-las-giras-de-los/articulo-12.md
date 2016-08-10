@@ -1,0 +1,1 @@
+Artículo 12. El incumplimiento de los mandatos del presente Reglamento obligará a la Administración Activa a realizar el respectivo procedimiento disciplinario contra los funcionarios responsables, de acuerdo con lo dispuesto en la Ley General de la Administración Pública.

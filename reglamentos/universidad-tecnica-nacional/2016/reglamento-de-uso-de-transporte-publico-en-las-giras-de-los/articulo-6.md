@@ -1,0 +1,1 @@
+Artículo 6. El funcionario debe presentar el formulario para gastos de transporte vigente de la Contraloría General de la República aprobado por el Consejo Universitario para la liquidación de servicios de transporte público.

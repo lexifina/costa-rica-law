@@ -1,0 +1,1 @@
+Artículo 7. Si utiliza taxi, en la liquidación correspondiente, deberá adjuntar el formulario de pago elaborado para estos fines por la UTN y el comprobante emitido por el taxista que le brindó el servicio si fuese posible.
