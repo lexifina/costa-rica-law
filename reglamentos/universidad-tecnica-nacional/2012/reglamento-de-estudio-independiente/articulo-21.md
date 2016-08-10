@@ -3,3 +3,4 @@ a) Al estudiante le falte un máximo de tres cursos para terminar el plan de est
 b) Vida Estudiantil de la sede o centro recomiende que el estudiante reciba el curso bajo esta modalidad como una adecuación curricular.
 c) Por la naturaleza del curso, la modalidad regular para impartir este curso sea por tutoría.
 d) A criterio del Director de Carrera, exista una causa justificada para su aprobación.
+(Así reformado el inciso anterior por acuerdo N° 5-10-2016 de la sesión N° 10-2016 del 19 de mayo de 2016)
