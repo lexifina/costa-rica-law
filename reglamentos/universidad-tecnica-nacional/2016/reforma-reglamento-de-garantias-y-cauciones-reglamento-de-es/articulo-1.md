@@ -1,0 +1,51 @@
+UNIVERSIDAD TÉCNICA NACIONAL
+CONSEJO UNIVERSITARIO
+El Consejo Universitario de la Universidad Técnica Nacional informa de la aprobación de los siguientes reglamentos:
+1) Reglamento del trabajo comunal universitario (TCU) de la Universidad Técnica Nacional, probado por el Consejo Universitario en la sesión ordinaria Nº 7, Acuerdo VI del Acta Nº 08-2011 del 06 de setiembre de 2011.
+2) Reglamento de uso de transporte público en las giras de los funcionarios de la Universidad Técnica Nacional, aprobado por el Consejo Universitario en la sesión ordinaria Nº 12, Acuerdo 06-12-2016 del Acta Nº 12-2016 del 16 de junio de 2016.
+3) Reglamento para el pago de kilometraje por uso de vehículos propiedad de funcionarios de la Universidad Técnica Nacional, aprobado por el Consejo Universitario en la sesión ordinaria Nº 12, Acuerdo 05-12-2016 del Acta Nº 12-2016 del 16 de junio de 2016.
+4) Reglamento general sobre la escogencia del premio a la excelencia académica “Rubén Darío” del CSUCA, aprobado por el Consejo Universitario en la sesión ordinaria Nº12-2014, Acuerdo 87-2014 del Acta Nº 12-2014, del 19 de junio de 2014.
+(Nota de Sinalevi: Por tener articulado propio los reglamentos arriba mencionados deben de consultarse en el sistema de forma independiente.
+Igualmente se informa de las reformas realizadas a los siguientes reglamentos:
+5) Reglamento de garantías y cauciones de la Universidad Técnica Nacional, se reforma parcialmente el artículo 5, punto 3, mediante el Acuerdo VII de la sesión ordinaria Nº 15 del Acta 20-2012del 31 de enero de 2012.
+(Nota de Sinalevi: La presente reforma al Reglamento de garantías y cauciones de la Universidad Técnica Nacional se extrajo del sitio Web de la Universidad Técnica Nacional y se transcribe a continuación: )
+Artículo 5º—Monto de la garantía. La póliza de fidelidad deberá ser suscrita por los funcionarios obligados, según la siguiente Tabla:
+3) Nivel de Responsabilidad Bajo: Dos y medio Salarios base
+Encargados (as) de Caja Chica.
+Encargados (as) de Áreas de Presupuestos y Tesorería.
+Encargados de bodegas o almacenes, en los cuales se custodien valores y bienes públicos.
+6) Reglamento de estudio Independiente de la Universidad Técnica Nacional, se reforman parcialmente los artículos 6, 7 incisos a), b), f) y g), 8, 9, 17, 18, 20, 21 inciso d), 32 y el transitorio I, mediante el Acuerdo Nº 5-10-2016 de la sesión ordinaria Nº 10-2016, del Acta 10-2016 del 19 de mayo de 2016.
+(Nota de Sinalevi: La presente reforma al Reglamento de estudio Independiente de la Universidad Técnica Nacional se extrajo del sitio Web de la Universidad Técnica Nacional, y se transcribe a continuación:)
+Artículo 6. Los cursos que podrán ser objeto de estudio independiente, en sus dos modalidades, serán determinados por la Comisión Técnica Asesora, establecida como el órgano permanente de carácter técnico de cada carrera por el Reglamento para el Reconocimiento, Equiparación de Estudios realizados en la UTN y otras Instituciones de Educación Superior.
+Artículo 7. El Director de Carrera tendrá las siguientes funciones con respecto al estudio independiente:
+a) Establecer y comunicar oportunamente a la Dirección de Docencia, mediante la programación anual, los cursos del plan de estudios que podrán presentarse por suficiencia, así como sus respectivos programas, previa disposición de la Comisión Técnica Asesora.
+b) Establecer y comunicar a la Dirección de Docencia los cursos que se impartirán en la modalidad de tutoría una vez que estos hayan sido aprobados, cada cuatrimestre, de conformidad con el calendario institucional, así como la designación de los docentes que asumirán la tutoría.
+f) Comunicar al Registro de cada sede o centro el listado de los cursos de la carrera que podrán ser matriculados por suficiencia y por tutoría, en las fechas determinadas por el calendario institucional.
+g) Trasladar al Registro de cada sede o centro, dentro del período establecido en el calendario institucional, el programa de cada uno de los cursos que pueden ser matriculados por suficiencia.
+Artículo 8. Serán funciones de Registro de cada sede o centro:
+a) Trasladar al Registro Universitario la programación anual de los cursos del plan de estudio que podrán presentarse por suficiencia o realizarse por tutoría.
+b) Comunicar al estudiante sobre el resultado de la solicitud de suficiencia, así como de entregarle el programa del curso respectivo y el comprobante de matrícula.
+Artículo 9. Las suficiencias deben ser solicitadas por el estudiante ante el Registro de cada sede o centro en los períodos establecidos para tal efecto en el calendario institucional.
+Artículo 17. Las modalidades de la tutoría podrán ser presenciales, a distancia e híbridas. El docente podrá sugerir la modalidad de tutoría, sin embargo, corresponderá al Director de Carrera, previa recomendación de la Comisión Técnica Asesora, la determinación de ésta.
+Artículo 18. El estudiante que desee matricular un curso por tutoría debe realizar la solicitud ante el Director de Carrera respectivo dentro del período establecido por el calendario institucional, con la excepción de aquellos cursos que son matriculados de manera regular pero que por lo dispuesto en el artículo siguiente, son impartidos en la modalidad de tutoría.
+Artículo 20. El Director de Carrera tendrá la potestad de aprobar o rechazar las tutorías solicitadas por los estudiantes, de conformidad con los lineamientos establecidos por este Reglamento y, en ambos casos, deberá justificar su decisión por escrito al estudiante.
+Artículo 21. La autorización de la matrícula de cursos por tutoría, por parte del Director de Carrera, deberá estar debidamente fundamentada y podrá darse cuando:
+d) A criterio del Director de Carrera, exista una causa justificada para su aprobación.
+Artículo 32. Las formalidades de ambos recursos y los plazos de resolución se ajustarán a lo dispuesto en los artículos relativos de la Ley General de la Administración Pública. La Revocatoria será resuelta por el Director de Carrera la Apelación por el Director de Docencia.
+Transitorio I. La Dirección de Tecnología Educativa del CFPTE contará con tres meses calendario a partir de la aprobación de este Reglamento, para la elaboración de los Manuales que contengan las normas básicas por cumplir y procedimiento para el diseño e implementación de cursos virtuales.
+7) Reglamento del sistema de becas y beneficios estudiantiles de la Universidad Técnica Nacional, se reforma parcialmente el artículo 5, mediante el Acuerdo 09-25-2015 de la sesión ordinaria Nº 25-2015, Acta 25-2015 del 12 de noviembre de 2015.
+(Nota de Sinalevi: La presente reforma al Reglamento del sistema de becas y beneficios estudiantiles de la Universidad Técnica Nacional se extrajo del sitio Web de la Universidad Técnica Nacional, y se transcribe a continuación: )
+Artículo 5 — Diferentes tipos de beca y beneficios estudiantiles. Los tipos de beca y beneficios estudiantiles que otorga el sistema a través del presente Reglamento son:
+1- Becas socioeconómicas: Consisten en la exoneración total o parcial en el pago de aranceles referidos a costos de créditos, costos de créditos por suficiencia y por tutorías, así como otros aranceles definidos por el Consejo Universitario distintos a los gastos fijos, además del otorgamiento de ayudas económicas o cualquier otro beneficio estudiantil complementario o adicional a la beca según su categoría, con el fin de favorecer las posibilidades de estudio a personas que por su condición socioeconómica tengan dificultades para hacerlo.
+2- Becas de estímulo: Consisten en la exoneración total o parcial en el pago de aranceles referidos a costos de créditos, costos de créditos por suficiencia y por tutorías, así como otros aranceles definidos por el Consejo Universitario distintos a los gastos fijos, otorgadas como estímulo a la excelencia académica, así como a la participación de los estudiantes en diversas actividades y grupos de interés institucional.
+3- Beneficio de Residencias Estudiantiles: Consiste en el alojamiento que se brinda al estudiante, sea de forma exonerada o por un bajo costo, en instalaciones de la universidad.
+8) Reglamento de becas e incentivos para funcionarios de la Universidad Técnica Nacional, se reforman los artículos 73 y 82, mediante el Acuerdo 16-2014 de la sesión ordinaria Nº 01, Acta 2-2014 del 30 de enero de 2014, así como el artículo 12, mediante el Acuerdo 126-2014 de la sesión ordinaria Nº 13, Acta Nº 18-2014 del 11 de setiembre de 2014.
+(Nota de Sinalevi: La presente reforma al Reglamento de becas e incentivos para funcionarios de la Universidad Técnica Nacional puede ser consultada en el sitio Web de la Universidad Técnica Nacional, y se transcribe a continuación:)
+Artículo 12.- Las becas otorgadas para realizar estudios en el país, deben llevarse a cabo en instituciones debidamente autorizadas. En el caso de Universidades o Centros de Educativos Internacionales, la comisión consultará a la institución que corresponda sobre la calidad y el nivel de la Carrera en que se solicite la beca, para su aprobación. El servidor tendrá derecho a solicitar el pago de sus estudios como mínimo un mes antes del inicio del período académico respectivo cuando se trate de la primera vez, en caso de reactivar el beneficio deberá cumplir con los requisitos establecidos.
+Artículo 73.- De las solicitudes aprobadas, se procederá a informar a la jefatura inmediata del servidor y al Departamento de Gestión de Desarrollo Humano de la Sede, en este último caso para el trámite final ante el Área Financiera.
+Artículo 82.- Será necesario suscribir contrato en los siguientes casos cuando concurra cualquiera de las siguientes causales:
+a) Por cualquier monto aportado por la UTN para el financiamiento de la capacitación o formación.
+b) La actividad de capacitación y formación subsidiada por la UTN, sea en el exterior o en el país.
+c) Se trate de una actividad de capacitación y formación no subsidiada por la UTN, sea en el exterior o en el país.
+d) Para la licencia con goce de salario solicitada.
+Dichos Reglamentos y sus reformas, en su versión completa y actualizadas, se encuentran en el portal electrónico de la Universidad Técnica Nacional www.utn.ac.cr, sección “Normativa Universitaria”.
