@@ -1,0 +1,3 @@
+Artículo 6: Relación Laboral
+La relación entre los asociados de la cooperativa y la cooperativa, se regirá por lo dispuesto en la Ley N° 4179.
+No se establecerá ninguna relación laboral entre los asociados trabajadores de la cooperativa y el Ministerio de Justicia y Paz. En ese sentido, el trabajo que realizan las personas privadas de libertad es una forma de rehabilitación, por tanto, se concibe como un tratamiento de aprendizaje de hábitos y conductas socialmente aceptables. Por tanto, tampoco se considera que exista relación laboral entre estas personas y la administración, instituciones autónomas estatales o empresas privadas a la cual llegaren a prestar sus servicios.

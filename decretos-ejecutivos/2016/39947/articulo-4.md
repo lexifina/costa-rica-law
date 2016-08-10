@@ -1,0 +1,2 @@
+Artículo 4: Administración y regulación
+La Administración y regulación de las cooperativas tendrán como base lo estipulado por la ley de Asociaciones Cooperativas y Creación del INFOCOOP, subsidiariamente el Instructivo para Regular las Organizaciones de Personas Privadas de Libertad y su Relación con la Administración Penitenciaria, y todas las demás normas jurídicas que se correlacionen, sean estas nacionales o a través de tratados internacionales.
