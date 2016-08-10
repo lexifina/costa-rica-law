@@ -1,0 +1,1 @@
+Artículo 2. Se procederá a pagar kilometraje por el uso de vehículos propiedad de funcionarios cuando no se cuente con vehículos oficiales disponibles, para atender una necesidad institucional, o cuando para el cumplimiento de sus funciones deba desplazarse y resulte más económico y razonable el pago del kilometraje por la utilización de este servicio.

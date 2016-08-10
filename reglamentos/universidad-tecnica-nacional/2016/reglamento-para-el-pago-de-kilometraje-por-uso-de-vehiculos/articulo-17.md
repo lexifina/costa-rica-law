@@ -1,0 +1,1 @@
+Artículo 17. Los funcionarios que incumplan con lo estipulado en este Reglamento, y que incurran en irregularidades en los reportes o liquidaciones de kilometraje, serán sancionados disciplinariamente, sin perjuicio de eventuales responsabilidades que se establezcan en sede jurisdiccional.

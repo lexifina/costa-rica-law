@@ -1,0 +1,1 @@
+Artículo 18. En caso que se sustraiga algún objeto o equipo propiedad de la UTN, y que se encuentre en el vehículo al servicio de la Universidad, se dará apertura a procedimiento administrativo con el propósito de determinar la responsabilidad disciplinaria del caso, sin perjuicio de las medidas civiles y penales que correspondan.
