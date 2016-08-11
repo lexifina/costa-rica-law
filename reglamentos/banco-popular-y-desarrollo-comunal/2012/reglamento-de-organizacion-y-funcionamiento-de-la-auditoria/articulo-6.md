@@ -1,3 +1,0 @@
-Modificaciones del Reglamento
-Artículo 6º—Para la debida actualización del Reglamento de Organización y Funcionamiento de la Auditoría Interna, el Auditor General debe proponer al máximo jerarca institucional las modificaciones que estime necesarias. Habiendo sido aprobadas éstas por el jerarca, el Auditor General debe presentar a la Contraloría General de la República una certificación de que lo aprobado cumple con la normativa aplicable, para que este ente regulador otorgue su aprobación definitiva.
-Para el trámite de modificaciones debe observarse lo dispuesto en las normas precedentes en cuanto a la resolución de discrepancias y los plazos aplicables.

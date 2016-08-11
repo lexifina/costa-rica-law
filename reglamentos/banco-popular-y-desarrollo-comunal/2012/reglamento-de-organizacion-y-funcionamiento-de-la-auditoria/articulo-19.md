@@ -1,2 +1,0 @@
-Artículo 19.—Independencia. El Auditor y Subauditor en el ejercicio de sus funciones, deberán actuar con independencia, objetividad, profesionalismo, integridad y gestión asesora, haciendo prevalecer sus competencias con independencia funcional y de criterio y serán vigilantes de que todo el personal responda de igual forma.
-El jerarca deberá respetar y velar por esa independencia según lo establece el artículo 25 de la LGCI y el artículo 62 de la Ley Orgánica de la Contraloría General de la República.
