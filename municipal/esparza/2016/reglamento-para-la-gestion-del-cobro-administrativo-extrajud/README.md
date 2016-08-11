@@ -14,3 +14,4 @@ Reglamento para la Gestión del Cobro Administrativo, Extrajudicial y judicial, 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-03 | la propia norma |
+| 2 | 2016-08-11 | Reglamento municipal 0 (2016-08-11) |
