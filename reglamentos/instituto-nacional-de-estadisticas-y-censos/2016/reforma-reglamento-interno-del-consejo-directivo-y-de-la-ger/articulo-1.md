@@ -1,0 +1,12 @@
+INSTITUTO NACIONAL DE ESTADÍSTICA Y CENSOS
+El Consejo Directivo del Instituto Nacional de Estadística y Censos.
+En uso de las facultades que le confiere el artículo 22, literal e) de la Ley Nº 7839 de fecha 15 de octubre de 1998, publicada en el Alcance Nº 77-B a La Gaceta Nº 214 de fecha 4 de noviembre de 1998.
+Considerando:
+I.—Que con el fin de garantizar una mayor eficiencia en las labores y gestiones administrativas que realiza el Instituto Nacional de Estadística y Censos ‘INEC’ en cumplimiento del fin público para el cual fue creado, se consideró necesario promulgar el ‘Reglamento Interno del Consejo Directivo y de la Gerencia’, de fecha 27 de marzo del año 2000, publicado en La Gaceta Nº 107 de fecha 5 de junio del año 2000, como instrumento jurídico mediante el cual se establece y regula, entre otros, la integración, atribuciones, facultades, derechos, deberes y obligaciones de esas dependencias institucionales;
+II.—Que en el Reglamento supracitado no se contempla el procedimiento para otorgar vacaciones a la persona que ocupe la Gerencia y Auditoría Interna en el eventual caso de que el Consejo Directivo no se encuentre legalmente conformado;
+III.—Que para una eficiente gestión en el otorgamiento de vacaciones bajo el supuesto anteriormente señalado, corresponde modificar el inciso ñ) del artículo 5 del Reglamento Interno del Consejo Directivo y de la Gerencia. Por tanto,
+ACUERDA:
+1º—Modificar el inciso ñ) del artículo 5 del Reglamento Interno del Consejo Directivo y de la Gerencia, de fecha 27 de marzo del año 2000, publicado en La Gaceta Nº 107 de fecha 5 de junio del año 2000, para que en lo sucesivo se lea de la siguiente manera:
+ñ. Conocer y autorizar, de previo, las vacaciones, licencias, con o sin goce de salario, y permisos del Gerente y del Auditor Interno. En el eventual caso que esas gestiones no se puedan conocer anticipadamente en el seno de este Órgano, por situaciones de causa fortuita o fuerza mayor, podrá autorizarlos de forma directa el Presidente del Consejo Directivo o en su defecto el Vicepresidente, para cuyos efectos el Gerente o el Auditor Interno, conforme corresponda, informará al Consejo Directivo lo pertinente en la sesión ordinaria o extraordinaria siguiente a la fecha de esa aprobación”
+2º—Rige a partir de su publicación.
+Aprobado por el Consejo Directivo mediante Acuerdo Nº 3, de la sesión ordinaria N° 814-2016, de fecha 14 de junio del año 2016.
