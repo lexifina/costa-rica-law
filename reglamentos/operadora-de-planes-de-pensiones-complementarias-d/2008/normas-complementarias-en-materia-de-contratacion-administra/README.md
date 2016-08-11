@@ -17,3 +17,4 @@ Normas Complementarias en Materia de Contratación Administrativa para la Operad
 | 2 | 2013-03-14 | Reglamento 402 (2013-03-14) |
 | 3 | 2014-03-18 | Reglamento 430 (2014-03-18) |
 | 4 | 2015-04-16 | Reglamento 459 (2015-04-16) |
+| 5 | 2016-08-11 | Reglamento 493 (2016-08-11) |
