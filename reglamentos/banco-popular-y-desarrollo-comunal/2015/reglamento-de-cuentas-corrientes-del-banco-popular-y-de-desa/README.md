@@ -14,3 +14,4 @@ Reglamento de Cuentas Corrientes del Banco Popular y de Desarrollo Comunal
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-10-21 | la propia norma |
+| 2 | 2016-08-11 | Reglamento 5393 (2016-08-11) |

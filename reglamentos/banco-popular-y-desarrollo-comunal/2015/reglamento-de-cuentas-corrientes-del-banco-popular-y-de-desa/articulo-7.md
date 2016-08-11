@@ -1,1 +1,2 @@
-Artículo 7º—Otros cargos a cobrar en el servicio de cuentas corrientes. La Gerencia General Corporativa podrá variar los cargos indicadas en el anexo de este Reglamento, modificación que no podrá ser superior a un 80% del máximo fijado para cada caso en el semestre (de enero a junio y de julio a diciembre) anterior.
+Artículo 7º—Tarifas y comisiones a cobrar en el servicio de cuentas corrientes.
+El Banco definirá tarifas o comisiones por concepto de servicios brindados a las cuentas corrientes, las cuales aplicará de acuerdo con la Tabla de Tarifas y Comisiones para los productos de Captación vigente.

@@ -1,0 +1,2 @@
+Artículo 17.—Formas de retiro de fondos.
+El giro de fondos se realizará mediante cheque bajo las condiciones y requisitos establecidos por el Código de Comercio; adicionalmente, el cuentacorrentista podrá retirar fondos de su cuenta mediante la aplicación de transferencias electrónicas, o bien por medio de aquellos canales o medios electrónicos que el Banco implemente. El retiro de fondos en efectivo por ventanilla se realizará bajo los lineamientos que el Banco defina para cada tipo de cliente de acuerdo con criterios administrativos o de conveniencia.

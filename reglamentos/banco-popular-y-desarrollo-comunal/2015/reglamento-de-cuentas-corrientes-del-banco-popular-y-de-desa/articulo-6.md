@@ -1,2 +1,3 @@
-Artículo 6º—Firma y aprobación de contratos de cuenta corriente. La apertura de la cuenta corriente se materializa con la firma física o digital del contrato.
+Artículo 6º— Firma y aprobación de contratos de cuenta corriente.
+La apertura de la cuenta corriente se materializa con la firma física o digital del contrato.
 Los contratos de cuenta corriente deberán ser firmados únicamente por los siguientes funcionarios: Gerente General Corporativo, Subgerentes Generales, Gerentes, Ejecutivos Bancarios y Administrativos 3, y Jefes de las Oficinas Comerciales. Sin perjuicio de las causales de abstención que señale el ordenamiento jurídico, si la aprobación de la apertura de una cuenta corriente corresponde a personal del Banco que a su vez es una persona socia, administradora, gerente, integrante de la Junta Directiva o apoderada de la sociedad mercantil solicitante de la apertura, quien trámite la solicitud deberá abstenerse de conocer el asunto.

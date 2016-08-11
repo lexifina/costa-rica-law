@@ -1,1 +1,1 @@
-Artículo 9º—Comunicación de variaciones en la tasa de interés. Toda variación en la tasa de interés y en su forma de cálculo se efectuará previa comunicación a la persona cuentacorrentista, con al menos cinco días hábiles de anticipación.
+Artículo 9º—Derogado.

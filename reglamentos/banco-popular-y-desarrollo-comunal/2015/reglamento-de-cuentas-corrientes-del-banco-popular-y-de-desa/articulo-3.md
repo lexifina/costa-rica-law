@@ -1,7 +1,8 @@
-Artículo 3º—Rechazo de solicitudes de apertura. El Banco, por acto motivado, podrá rechazar la apertura de una cuenta corriente en los siguientes casos, respetando las disposiciones jurídicas y la jurisprudencia aplicable al efecto:
+Artículo 3º—Rechazo de solicitudes de apertura
+El Banco por acto motivado, podrá rechazar la apertura de una cuenta corriente en los siguientes casos, respetando las disposiciones jurídicas y la jurisprudencia aplicable al efecto:
 a) Cuando la persona solicitante o sus personas apoderadas no cumplan con lo establecido en las disposiciones indicadas en el artículo 2º, inciso a).
 b) Cuando la persona solicitante o sus personas apoderadas sean parte deudora, fiadora o avalista de operaciones declaradas por el Banco, en calidad de morosas, bien sea por estar en trámite de cobro administrativo o cobro judicial; o hayan sido declaradas incobrables o prescritas, o dichas operaciones hayan sido canceladas total o parcialmente mediante adjudicación por parte del Banco de un bien en sede judicial.
 c) Cuando la persona solicitante o sus personas apoderadas hayan suministrado datos falsos al Banco por cualquier causa.
-d) Cuando la persona solicitante o sus personas apoderadas hayan cometido irregularidad de cualquier naturaleza con Cuentas Corrientes u otras operaciones o servicios en cualquier entidad del Sistema Bancario Nacional.
+d) Cuando la persona solicitante o sus personas apoderadas hayan cometido irregularidad de cualquier naturaleza que se considere inconveniente o que perjudique los intereses de la Institución con Cuentas Corrientes u otras operaciones o servicios en el Banco o en cualquier otra entidad del Sistema Bancario Nacional.
 e) Cualquier otra razón que el Banco considere que ponga en duda la solvencia moral o económica de la persona solicitante.
 Quien ejerza como solicitante deberá sustituir a su persona apoderada o autorizada, si concurriera en alguna de las anteriores causales.
