@@ -1,0 +1,1 @@
+Artículo 2º—Para tales efectos, los Comités Intersectoriales Regionales, en concordancia con el artículo 16 del Decreto Nº 39453-MP-PLAN, deberán coordinar, programar, acompañar la ejecución y seguimiento de los proyectos concertados.

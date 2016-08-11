@@ -1,0 +1,1 @@
+Artículo 3º—En el caso de los proyectos ubicados en el área de Agua e Infraestructura Hídrica, estos seguirán a cargo del Programa Integral de Abastecimiento de Agua para Guanacaste (PIAAG), integrándose, además, el Comité Intersectorial Regional de Ambiente.

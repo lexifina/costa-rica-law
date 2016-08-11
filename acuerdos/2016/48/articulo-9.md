@@ -1,0 +1,1 @@
+Artículo 9º—Queda facultada la Mesa de Trabajo por Guanacaste para la Mejora de la Calidad de Vida y la Promoción del Empleo y Desarrollo Productivo para coordinar de ahora en adelante con el Consejo de Desarrollo Regional para lo que corresponda y fungir como órgano de consulta y asesoría permanente del COREDES de la región Chorotega.

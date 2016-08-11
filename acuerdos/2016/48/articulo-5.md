@@ -1,0 +1,1 @@
+Artículo 5º—El Comité Intersectorial Regional Social, coordinado por el IMAS, a través de su dirección regional, desarrollará su trabajo en el marco de la Estrategia Puente al Desarrollo, en concordancia con el Acuerdo del Consejo Presidencial Social Nº 69.

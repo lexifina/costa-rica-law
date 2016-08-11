@@ -1,0 +1,1 @@
+Artículo 4º—Los Comités Intersectoriales Regionales, el PIAAG y aquellas instancias que coordinen la ejecución de los proyectos de la Mesa, deberán emitir, a través de sus coordinaciones institucionales, un informe de avances y resultados ante el Directorio de COREDES de manera bimensual.

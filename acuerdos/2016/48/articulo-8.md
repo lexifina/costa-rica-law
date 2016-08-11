@@ -1,0 +1,1 @@
+Artículo 8º—Se hará entrega al Directorio de COREDES de la región Chorotega de una ficha técnica por cada uno de los 133 proyectos establecidos en la Mesa de Trabajo por Guanacaste para la Mejora de la Calidad de Vida y la Promoción del Empleo y Desarrollo Productivo como traslado formal para el respectivo seguimiento de su implementación.
