@@ -15,3 +15,4 @@ Reglamento de arrendamiento de vehículos propiedad de los trabajadores y trabaj
 | --- | --- | --- |
 | 1 | 2010-06-02 | la propia norma |
 | 2 | 2013-10-10 | Reglamento 416 (2013-10-10) |
+| 3 | 2016-08-11 | Reglamento 493 (2016-08-11) |
