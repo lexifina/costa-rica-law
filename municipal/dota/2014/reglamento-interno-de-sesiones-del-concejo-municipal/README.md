@@ -15,3 +15,4 @@ Reglamento interno de sesiones del Concejo Municipal
 | --- | --- | --- |
 | 1 | 2015-08-08 | la propia norma |
 | 2 | 2016-06-28 | Reglamento municipal 9 (2016-06-28) |
+| 3 | 2016-08-11 | Reglamento municipal 14 (2016-08-11) |
