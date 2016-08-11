@@ -1,0 +1,1 @@
+Artículo 3º—Participación. Las instituciones miembros de la CONATT deberán participar y cooperar para facilitar y fortalecer las acciones que permitan el desarrollo de estas actividades e iniciativas, realizando las acciones que estimen pertinentes en lo atinente a simplificación y eficiencia administrativa.
