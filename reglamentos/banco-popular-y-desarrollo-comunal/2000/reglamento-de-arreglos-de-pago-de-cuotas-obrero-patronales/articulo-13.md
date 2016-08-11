@@ -1,2 +1,0 @@
-Artículo 13.—Arreglo de pago de obligaciones prescritas o con imposibilidad de cobro. A juicio del nivel resolutivo correspondiente, se podrá efectuar un arreglo de pago de obligaciones que se encuentren en las condiciones indicadas en los artículos 11 y 12, mediante el pago mínimo de un 50% del principal y un año de multas e intereses, quedando autorizado dicho nivel a exonerar el pago de honorarios y gastos.
-En tal caso, se otorgará una garantía a satisfacción del Banco.
