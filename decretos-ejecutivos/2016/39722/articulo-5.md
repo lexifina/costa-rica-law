@@ -1,0 +1,3 @@
+Artículo 5º—Se modifica el inciso a) del artículo 99.1, del Decreto Ejecutivo Nº 36235-MOPT del 5 de julio del 2010 y sus reformas “Reglamento Autónomo de Servicios del Ministerio de Obras Públicas y Transportes”, para que en lo sucesivo se lea de la siguiente manera:
+“99. 1) Licencias con goce de salario
+a) El jefe(a) inmediato(a) podrá conceder licencia con goce de sueldo hasta por una semana, en caso de matrimonio del servidor o servidora, fallecimiento de alguno del padre o de la madre, hijos (as), hermanos (as), cónyuge o compañero(a). El disfrute de este beneficio se concederá a partir del día en que ocurra el hecho.”
