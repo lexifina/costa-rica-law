@@ -1,0 +1,3 @@
+Artículo 5º—Del nombramiento del Gerente General y Subgerentes Generales. El Gerente y los Subgerentes serán nombrados por la Junta Directiva, con el voto favorable de no menos de cinco de sus miembros, por un período de seis años pudiendo ser reelegidos; sin embargo, para realizar este nombramiento se procurará que se encuentren presentes todos los miembros del órgano colegiado.
+Para estos nombramientos, la Junta Directiva podrá nombrar discrecionalmente a la persona que, a juicio del órgano, resulta idónea para el cargo, o bien, podrá hacer un concurso por invitación o un concurso abierto.
+Cuando en el ejercicio de sus potestades, la Junta Directiva decida no reelegir a uno de estos funcionarios, se lo comunicará al interesado con al menos un mes de antelación.

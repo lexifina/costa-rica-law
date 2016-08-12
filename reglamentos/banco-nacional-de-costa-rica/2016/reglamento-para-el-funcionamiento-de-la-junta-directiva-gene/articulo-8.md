@@ -1,0 +1,1 @@
+Artículo 8º—De las Unidades Técnicas de Apoyo. La Junta Directiva contará con una Asesoría Legal permanente y podrá constituir otras unidades técnicas de apoyo para garantizar el más adecuado cumplimiento de sus funciones.

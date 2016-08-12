@@ -1,0 +1,1 @@
+Artículo 54.—Del suministro de equipo. Los directores deberán suscribir el documento denominado “Manifestación unilateral de voluntad, con ocasión del suministro de equipo por el Banco Nacional de Costa Rica” que forma parte de este Reglamento y se adjunta como Anexo 1.

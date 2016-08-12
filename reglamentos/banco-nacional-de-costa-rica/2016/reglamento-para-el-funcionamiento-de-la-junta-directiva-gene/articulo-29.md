@@ -1,0 +1,4 @@
+CAPÍTULO VII
+De las actas y su contenido
+Artículo 29.—De las Actas de las sesiones de Junta Directiva. La nómina de las sesiones y redacción de las actas correspondientes estarán a cargo del Secretario General, quien para ese efecto asistirá a todas las sesiones, salvo aquellos casos en que la Junta Directiva disponga otra cosa.
+De todos los acuerdos y resoluciones de la Junta Directiva deberá quedar constancia clara y precisa en el libro de actas, al cuidado del Secretario General, quien tendrá la obligación de hacer legalizar los libros antes de iniciar su uso, cuidar por que éstos se mantengan limpios, ordenados y completos, sin permitir en ellos borrones ni tachaduras, ya que cualquier corrección por error deberá hacerse por nota al final del acta respectiva. Asimismo, el Secretario General se encargará de recoger las firmas de los directores y funcionarios asistentes en las sesiones.

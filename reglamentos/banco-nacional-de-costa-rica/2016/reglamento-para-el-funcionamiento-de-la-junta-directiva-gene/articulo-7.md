@@ -1,0 +1,1 @@
+Artículo 7º—De los nombramientos de las Juntas Directivas Locales y Gerentes de sucursales. Los miembros de las juntas directivas locales y el gerente de las sucursales serán designados por la Junta Directiva General, mediante votación por mayoría de los votos presentes.

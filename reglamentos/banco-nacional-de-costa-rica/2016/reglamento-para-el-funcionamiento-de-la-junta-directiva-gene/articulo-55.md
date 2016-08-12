@@ -1,0 +1,1 @@
+Artículo 55.—Del uso de espacio para parqueo. Los directores deberán suscribir el documento denominado “Manifestación unilateral de voluntad, con ocasión de una autorización de uso de un espacio para parqueo en el Banco Nacional de Costa Rica” que forma parte de este Reglamento y se adjunta como Anexo 2.

@@ -1,0 +1,1 @@
+Artículo 42.—Localización de acuerdos. Corresponderá a la Secretaría General mantener un índice de los asuntos tratados por la Junta Directiva que permita una expedita ubicación de los acuerdos adoptados.

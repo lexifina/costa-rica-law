@@ -1,0 +1,1 @@
+Artículo 48.—Deber de llevar expediente y libro auxiliar. Cada acta de las sesiones celebradas debe llevar su respectivo expediente, el cual estará formado por los documentos originales o copias de los asuntos que se conocen en cada sesión. El expediente de cada acta, tendrá el carácter de libro auxiliar del libro de actas de la Junta Directiva.
