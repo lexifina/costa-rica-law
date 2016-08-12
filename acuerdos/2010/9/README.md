@@ -14,3 +14,4 @@ Política y Procedimiento Retiros Temporales e Indefinidos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-01 | la propia norma |
+| 2 | 2016-08-12 | Acuerdo 0 (2016-08-12) |
