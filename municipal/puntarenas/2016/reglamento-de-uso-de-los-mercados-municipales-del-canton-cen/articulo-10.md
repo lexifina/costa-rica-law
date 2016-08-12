@@ -1,0 +1,1 @@
+Artículo 10º.- Todo adjudicatario, deberá atender personalmente el puesto y podrá, previa autorización de la Municipalidad de Puntarenas, ocupar los dependientes que estime necesario para la buena marcha del mismo.

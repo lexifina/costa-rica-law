@@ -1,0 +1,1 @@
+Artículo 16º.- La entrada de mercancía en los Mercados, así como las operaciones de carga y descarga de las mismas, se realizarán con sujeción a las disposiciones municipales, teniendo en cuenta las necesidades del abastecimiento y las que el interés público demande.

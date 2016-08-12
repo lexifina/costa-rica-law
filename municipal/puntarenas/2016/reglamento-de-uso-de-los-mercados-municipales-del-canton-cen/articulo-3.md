@@ -1,0 +1,1 @@
+Artículo 3º.- Dentro de estos mercados existen lugares para la venta de productos y subproductos de origen animal, los cuales deben tener la aprobación de las entidades competentes: Instituto Costarricense de Pesca y Acuicultura (INCOPESCA), Servicio Nacional de Salud Animal (SENASA), Ministerio de Salud Pública (SALUD) y la Municipalidad de Puntarenas, cantón central.

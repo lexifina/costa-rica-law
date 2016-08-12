@@ -1,0 +1,1 @@
+Artículo 20º.- Solo se permitirá realizar acciones preparativas del producto dentro de los Mercados Municipales en los puestos de venta establecidos única y exclusivamente para la venta minorista y/o al detalle.

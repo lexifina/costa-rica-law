@@ -1,0 +1,2 @@
+Artículo 27º.- En los Mercados, bajo la custodia de la administración, existirá un libro de reclamaciones para que el público pueda expresar las quejas ó sugerencias que estime conveniente. Estas deberán ponerse en conocimiento de las autoridades superiores y autoridades competentes mensualmente, en caso de reclamaciones que se hubieran anotado en los libros, en
+un plazo máximo de veinticuatro horas de ser conocidas.

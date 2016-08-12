@@ -1,0 +1,1 @@
+Artículo 24º.- En todos los tramos de los Mercados Municipales se pondrá en lugar visible y a la vista de todo el público una pizarra con los precios de los productos pesqueros, fecha de ingreso al mercado, temperatura de mantenimiento, nombre del local y procedencia, todo esto tiene que ser respetado por los protocolos establecidos para la estabilidad del producto.

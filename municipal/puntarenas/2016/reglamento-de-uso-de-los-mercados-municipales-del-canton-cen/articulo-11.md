@@ -1,0 +1,8 @@
+Artículo 11°.- Los dependientes deberán cumplir con los requisitos establecidos en el reglamento que dicte la Municipalidad, para estos efectos; además, los manipuladores de alimentos mientras laboren deberán cumplir los requisitos estipulados para el adecuado manejo de productos alimenticios, de conformidad con la Ley General de Salud, a saber:
+a) No podrán utilizar objetos personales en sus manos, tales como anillos, relojes y cadenas.
+b) b) Las uñas de los manipuladores no podrán estar pintadas con esmalte. Tanto las uñas como el cabello deberán usarse recortados, en el segundo sin embargo, se podrá recurrir a la redecilla para recogerlo.
+c) El fumado queda prohibido durante la jornada laboral y en particular en el área de proceso.
+d) Con carácter de obligatoriedad, lavado de las manos con suficiente agua potable y jabón, al inicio de las labores y después de asistir al servicio sanitario. El propietario, administrador o encargado del establecimiento será el responsable de velar porque frecuentemente el personal de proceso higienice sus manos, aún cuando no haya utilizado el servicio sanitario.
+e) Ningún manipulador podrá laborar con afecciones cutáneas, particularmente en manos; en las vías respiratorias o digestivas u otros tipos de enfermedad infecto-contagiosas. El responsable del establecimiento velará porque no se den hábitos insalubres entre los manipuladores, refiriendo obligatoriamente al trabajador enfermo al Área de Salud respectiva.
+f) Vestir prendas exteriores adecuadas de color claro y conservarlas en buen estado de uso y limpieza.
+g) Emplear buenas formas y decoro en las relaciones entre sí, con el público y con los funcionarios y autoridades.

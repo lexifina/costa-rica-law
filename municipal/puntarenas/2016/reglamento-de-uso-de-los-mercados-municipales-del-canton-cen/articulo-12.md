@@ -1,0 +1,1 @@
+Artículo 12º.- Los adjudicatarios de los puestos serán los responsables de las situaciones que pongan en riesgo la salud pública, esto previa comprobación de negligencia o impericia en el manejo de productos alimenticios.

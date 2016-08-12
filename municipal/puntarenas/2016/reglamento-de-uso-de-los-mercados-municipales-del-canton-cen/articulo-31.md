@@ -1,0 +1,1 @@
+Artículo 31°.- Que se incluyan las sanciones que si el adjudicatario incumple con lo establecido en el presente Reglamento se da la potestad a la Administración Municipal a iniciar un Procedimiento Administrativo correspondiente para aplicar las sanciones que se encuentre dentro de la misma Ley, lo cual podría devenir en una cancelación de patentes.

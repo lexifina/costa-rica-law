@@ -1,0 +1,1 @@
+Artículo 26º.- Los adjudicatarios conservarán las facturas de adquisición de los productos y subproductos, las cuales estarán a disposición de la Municipalidad de Puntarenas, para efectos de comprobar la procedencia de los artículos puestos a la venta para el consumo, y otras circunstancias que sean necesarias conocer, para un adecuado control.

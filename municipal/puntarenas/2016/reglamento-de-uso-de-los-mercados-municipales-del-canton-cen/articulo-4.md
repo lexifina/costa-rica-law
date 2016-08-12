@@ -1,0 +1,1 @@
+Artículo 4º.- La Municipalidad con el apoyo técnico del INCOPESCA, MOPT y SENASA ejercerán permanentemente la fiscalización administrativa y sanitaria de los Mercados, cualquiera que sea el régimen de su gestión.

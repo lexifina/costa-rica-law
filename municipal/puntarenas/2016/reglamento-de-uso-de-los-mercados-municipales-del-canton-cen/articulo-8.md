@@ -1,0 +1,1 @@
+Artículo 8º.- La utilización del puesto se hará precisamente por el adjudicatario, siempre que cuente con la correspondiente autorización Municipal. Y las reglamentaciones de las autoridades competentes.
