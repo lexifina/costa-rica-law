@@ -1,0 +1,1 @@
+3. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Subespecialidad de Medicina Deportiva Ortopédica el cumplimiento de todos los requisitos establecidos en el Reglamento de Especialidades y Subespecialidades Médicas y demás legislación relacionada vigente.
