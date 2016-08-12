@@ -1,0 +1,1 @@
+Artículo 23.- Aplicación de los predictores. La Comisión Calificadora, previo a publicar el concurso, determinará los contenidos de los predictores que deberán estar en función de las características de los puestos, de las necesidades de la institución y de la oferta de trabajo institucional.

@@ -1,0 +1,1 @@
+Artículo 20.- Responsabilidades del nombramiento por inopia. El candidato nombrado por inopia conserva las mismas funciones y responsabilidades de este, tal y como se publicó según el concurso de antecedentes.

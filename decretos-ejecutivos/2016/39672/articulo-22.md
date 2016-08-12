@@ -1,0 +1,6 @@
+Artículo 22.-Definición de predictores. Los predictores se definen de la siguiente manera:
+a) Experiencia: el conocimiento que se acumula por el desempeño en puestos similares o relacionados con el que está sometido a concurso.
+b) Formación académica: la enseñanza recibida en centros de educación formal, extendidos o reconocidos y equiparados por el Ministerio de Educación Pública o las instituciones estatales de educación superior legalmente facultadas, que llevan a la obtención de un diploma, certificado o grado académico.
+c) Actividades de capacitación: los cursos, seminarios, talleres y similares recibidos y reconocidos dentro del sistema de Carrera Policial.
+d) Pruebas de conocimiento: el instrumento a través del cual se mide lo que ha aprendido el candidato a partir de muestras objetivas del respectivo proceso de aprendizaje.
+e) Prueba psicométrica y entrevista: Serie de herramientas que evalúan las conductas, comportamientos o rasgos de personalidad de un individuo, a través de las cuales se identifican aspectos tales como competencias, intereses, actitudes, aptitudes, entre otras, las pruebas dan un indicador indirecto y la entrevista busca complementar, observar e indagar de forma directa dichos resultados.

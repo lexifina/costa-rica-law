@@ -1,0 +1,1 @@
+Artículo 13.- Registros de Oferentes y de Elegibles. El Área de Recursos Humanos y Capacitación llevará registros de aquellos candidatos (as) con la condición de elegibles. Dicho registro deberá ser actualizado cada dos años así como la información de los candidatos que lo conforman.

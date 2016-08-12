@@ -1,0 +1,1 @@
+Artículo 19.- Período de nombramiento interino por inopia. El nombramiento por inopia se hace de forma provisional por un periodo no mayor a los nueve meses, conforme a lo establecido en el artículo 68 de la Ley General de Policía. Una vez vencido ese período, la plaza vacante debe salir de nuevo a concurso.

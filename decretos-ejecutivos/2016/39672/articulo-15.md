@@ -1,0 +1,2 @@
+Artículo 15.- Confidencialidad de los resultados del proceso de selección.
+Todas las pruebas que se realicen para el concurso de antecedentes tienen carácter confidencial y son propiedad de la Institución. Además, la Comisión Calificadora será la responsable de su debida custodia y su filtración comprobada a cualquiera de los participantes constituye falta grave, sancionable conforme al Régimen Disciplinario del Reglamento Autónomo de Organización y Servicio de la Presidencia de la República y del Ministerio de la Presidencia.

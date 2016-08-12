@@ -1,0 +1,1 @@
+Artículo 7.- Sesiones de la Comisión. La Comisión Calificadora sesionará cada vez que la convoque el representante del Área de Recursos Humanos y Capacitación. Para sesionar deberán estar presentes al menos tres de sus miembros. Las decisiones podrán ser tomadas por la mayoría simple de los miembros que la integran en la sesión respectiva.

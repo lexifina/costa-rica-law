@@ -1,0 +1,1 @@
+Artículo 28.- Periodo de prueba. Todo ascenso efectuado por vía del concurso interno estará sujeto a un período de prueba, de conformidad con lo establecido en el artículo 70 de la Ley N° 7410. Si éste no fuese aprobado por el funcionario, la nueva nómina para el ascenso deberá integrarse con los otros candidatos mejor calificados que participaron en el concurso.
