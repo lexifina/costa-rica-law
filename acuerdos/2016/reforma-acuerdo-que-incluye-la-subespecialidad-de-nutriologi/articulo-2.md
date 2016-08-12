@@ -1,0 +1,1 @@
+2) Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Especialidad de Nutriología Clínica, de conformidad con los incisos previos a) y b), el cumplimiento de todos los requisitos establecidos en el Decreto Ejecutivo Nº 37562-S denominado “Reglamento de Especialidades y Subespecialidades Médicas y demás legislación relacionada vigente.
