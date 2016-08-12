@@ -1,0 +1,1 @@
+Artículo 33. — Disposiciones Finales. Los notarios externos quedan entendidos de la potestad del Banco de adicionar, derogar, modificar, reformar o sustituir el presente Reglamento sin que puedan alegar derechos adquiridos de ninguna índole derivados de estos preceptos o sus modificaciones.

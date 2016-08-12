@@ -1,0 +1,1 @@
+Artículo 24. —Trámite para el cobro de gastos y honorarios. El notario externo procederá a otorgar la escritura con las formalidades de ley, aportando dos copias del testimonio definitivo, deberá entregar la factura con el original del detalle del cobro de gastos y honorarios, según los artículos 21, 26, 27 y 28 de este Reglamento, dentro del plazo indicado en el artículo 22.

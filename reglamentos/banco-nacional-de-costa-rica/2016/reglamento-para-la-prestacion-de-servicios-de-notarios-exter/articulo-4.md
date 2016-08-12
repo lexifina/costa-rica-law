@@ -1,0 +1,1 @@
+Artículo 4.—Formalización y vigencia de la contratación de los notarios externos. Por tratarse de una contratación de cuantía inestimable, la misma deberá formalizarse mediante contrato no protocolizado, conforme a la Ley de Contratación Administrativa y su Reglamento y entrará a regir una vez que hubiere sido comunicada su aprobación interna.
