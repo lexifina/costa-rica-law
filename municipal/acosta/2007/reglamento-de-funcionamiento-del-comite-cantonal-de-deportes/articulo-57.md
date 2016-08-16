@@ -1,1 +1,1 @@
-Artículo 57.—La Junta Administrativa programará las actividades y desarrollará proyectos para el desarrollo deportivo y pleno uso de las instalaciones.
+Artículo 57.— (Derogado mediante sesión ordinaria N° 15 del 16 de agosto del 2016)

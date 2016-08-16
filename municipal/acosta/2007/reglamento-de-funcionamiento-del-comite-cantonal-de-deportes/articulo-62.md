@@ -1,1 +1,1 @@
-Artículo 62.—La Junta Administrativa tendrá un presidente y secretario, y sus funciones se incluyen en los artículos 9° y 10 del presente Reglamento.
+Artículo 62.— (Derogado mediante sesión ordinaria N° 15 del 16 de agosto del 2016)

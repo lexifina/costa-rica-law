@@ -1,1 +1,1 @@
-Artículo 58.—La Junta Administrativa fijará las políticas de mercadeo, promoción y alquiler temporal de las instalaciones.
+Artículo 58.— (Derogado mediante sesión ordinaria N° 15 del 16 de agosto del 2016)

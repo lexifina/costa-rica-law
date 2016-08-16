@@ -1,1 +1,1 @@
-Artículo 56.—La Junta Administrativa dictará las normas para el uso y cuido de las instalaciones del Polideportivo por parte de instituciones y particulares. Asimismo, sobre el comportamiento de los particulares dentro del mismo, y deberán ser aprobadas por el Comité Cantonal de Deportes y Recreación.
+Artículo 56.— (Derogado mediante sesión ordinaria N° 15 del 16 de agosto del 2016)

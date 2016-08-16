@@ -1,1 +1,1 @@
-Artículo 50.—El Centro de Formación Deportivo y Cultural de Turrujal (Polideportivo) será administrado por una junta administrativa.
+Artículo 50.—(Derogado mediante sesión ordinaria N° 15 del 16 de agosto del 2016)

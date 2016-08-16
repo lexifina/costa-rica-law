@@ -1,1 +1,1 @@
-Artículo 51.—La junta administrativa estará integrada por cinco miembros, dos miembros de nombramiento del Concejo Municipal, un miembro nombrado por el Instituto Costarricense del Deporte y la Recreación y dos miembros del Comité Cantonal de Deportes y Recreación.
+Artículo 51.— (Derogado mediante sesión ordinaria N° 15 del 16 de agosto del 2016)

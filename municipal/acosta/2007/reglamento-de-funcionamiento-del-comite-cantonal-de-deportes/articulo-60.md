@@ -1,1 +1,1 @@
-Artículo 60.—La Junta Administrativa será la única autorizada para hacer nombramientos de personal que labore en el Polideportivo.
+Artículo 60.— (Derogado mediante sesión ordinaria N° 15 del 16 de agosto del 2016)
