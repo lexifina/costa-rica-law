@@ -14,3 +14,4 @@ Reglamento Interior de Orden, Dirección, Comisiones y Debates del Concejo Munic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-07-27 | la propia norma |
+| 2 | 2016-08-16 | Reglamento municipal 16 (2016-08-16) |
