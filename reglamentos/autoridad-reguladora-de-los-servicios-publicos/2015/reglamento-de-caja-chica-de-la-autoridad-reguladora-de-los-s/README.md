@@ -14,3 +14,4 @@ Reglamento de Caja Chica de la Autoridad Reguladora de los Servicios Públicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-03 | la propia norma |
+| 2 | 2016-08-16 | Reglamento 44 (2016-08-16) |
