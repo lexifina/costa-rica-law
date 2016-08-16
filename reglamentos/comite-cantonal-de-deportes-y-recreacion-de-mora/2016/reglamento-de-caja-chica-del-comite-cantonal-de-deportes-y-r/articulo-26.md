@@ -1,0 +1,1 @@
+Artículo 26.—Faltantes de dinero. El faltante de dinero encontrado en un arqueo, será cubierto de inmediato por la persona designada para el Manejo del Fondo de Caja Chica, dejando constancia de ello en la hoja del arqueo.

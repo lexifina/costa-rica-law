@@ -1,0 +1,1 @@
+Artículo 17.—Liquidación de viáticos. Los viáticos deben ser liquidados ante la persona designada para el Manejo de Fondo de Caja Chica el tercer día en que el solicitante se presente al Comité Cantonal de Deportes y Recreación de Mora. Adjuntando los comprobantes de cada gasto y el efectivo sobrante.

@@ -1,0 +1,1 @@
+Artículo 24.—Arqueo extraordinario. Cuando la persona designada para el Manejo del Fondo de Caja Chica deba ser sustituida temporalmente, el Tesorero o miembro de la Junta Directiva realizará un arqueo antes de entregar el manejo del fondo a otra persona. Igual procedimiento se realizará cuando la persona designada para el Manejo de Fondo de Caja Chica ingrese a laborar.

@@ -1,0 +1,1 @@
+Artículo 12.—Contenido presupuestario. Antes de hacer efectivo un vale, la persona designada para el manejo del Fondo de Caja Chica debe verificar que existe contenido presupuestario en la cuenta correspondiente al bien o servicio que se quiere adquirir.

@@ -1,0 +1,4 @@
+Artículo 20.—Requisitos de una factura comercial, tiquete de caja o comprobante, para liquidar vales o viáticos.
+a. Los justificantes que respaldan la adquisición de mercadería y servicios deberán ser confeccionados por la respectiva casa comercial, en original, a nombre del Comité Cantonal de Deportes y Recreación de Mora, limpios de borrones y tachaduras y con indicación clara del bien o servicio adquirido, de la fecha de adquisición y de su valor, además, deberán cumplir con los requisitos establecidos por la Dirección General de Tributación.
+b. La fecha del documento deberá ser igualo posterior a la de emisión del vale.
+c. Para los casos de un tiquete de caja u otro tipo de comprobante que sustituya a la factura, éstos deberán cumplir con los requisitos establecidos por la Dirección General de Tributación.

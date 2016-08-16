@@ -1,0 +1,1 @@
+Artículo 25º—Hoja de arqueo. De cada arqueo se confeccionara una hoja, en que consignarán su firma, la persona designada para el Manejo de Caja Chica y el Tesorero de la Junta Directiva. Este informe deberá entregarse en original a la Junta Directiva, para que constituya un expediente con las hojas de todos los arqueos realizados en el año.

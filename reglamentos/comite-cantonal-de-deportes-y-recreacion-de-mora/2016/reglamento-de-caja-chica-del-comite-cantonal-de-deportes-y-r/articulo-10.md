@@ -1,0 +1,1 @@
+Artículo 10°—Responsabilidad por pagos improcedentes. Si por negligencia, la persona designada para el Manejo del Fondo de Caja Chica incurre en pagos improcedentes, deberá reintegrar el monto erogado.

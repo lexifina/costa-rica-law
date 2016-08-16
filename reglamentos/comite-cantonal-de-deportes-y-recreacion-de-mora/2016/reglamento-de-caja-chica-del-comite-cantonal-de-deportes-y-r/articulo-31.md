@@ -1,0 +1,1 @@
+Artículo 31.—Régimen sancionatorio. Las personas designadas para el Manejo del Fondo de Caja Chica del Comité Cantonal de Deportes y Recreación infractores de las disposiciones contenidas en el presente reglamento, se harán acreedores a las sanciones que correspondan de conformidad con las leyes y reglamentos vigentes en la materia.
