@@ -14,3 +14,4 @@ Reglamento para el trámite de aprobación y aplicación de modificaciones presu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-09-29 | la propia norma |
+| 2 | 2016-08-16 | Reglamento municipal 16 (2016-08-16) |
