@@ -14,3 +14,4 @@ Reglamento aprobación de los proyectos de cánones de regulación de la Autorid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-31 | la propia norma |
+| 2 | 2016-08-16 | Resolución 71 (2016-08-16) |

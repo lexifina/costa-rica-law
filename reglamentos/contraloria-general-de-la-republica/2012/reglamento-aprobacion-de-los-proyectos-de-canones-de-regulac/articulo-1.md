@@ -12,7 +12,9 @@ Considerando:
 8º—Que de conformidad con lo establecido en el artículo 361 de la Ley General de Administración Pública, Nº 6227, se concedió audiencia al anteproyecto de la presente normativa a la ARESEP y SUTEL y a la ciudadanía en general, cuyas observaciones fueron valoradas por el Órgano Contralor. Por tanto, Resuelve aprobar y promulgar el siguiente: REGLAMENTO SOBRE LA APROBACIÓN DE LOS PROYECTOS DE CÁNONES DE REGULACIÓN DE LA AUTORIDAD REGULADORA DE LOS SERVICIOS PÚBLICOS (ARESEP) Y DE LA SUPERINTENDENCIA DE TELECOMUNICACIONES (SUTEL), POR PARTE DE LA CONTRALORÍA GENERAL DE LA REPÚBLICA (R-2-2012-DC-DFOE).
 CAPÍTULO I.
 Disposiciones generales.
-Artículo 1º—Conceptos. Para los efectos del presente reglamento, deben observarse los siguientes conceptos:
+Artículo 1°—Conceptos. Para los efectos del presente reglamento, deben observarse los siguientes conceptos:
 Jerarca: superior jerárquico del órgano o del ente; ejerce la máxima autoridad dentro del órgano o ente, unipersonal o colegiado.
 Canon de regulación: Es un ingreso que percibe el órgano o ente regulador para financiar el servicio de regulación para cada actividad, por cuenta de los sujetos públicos o privados que de acuerdo con el ordenamiento jurídico están afectos a regulación.
 Proyecto de cánones: Acto administrativo válido emitido por el órgano o ente regulador en el que propone los ingresos anuales por canon de regulación necesarios para desarrollar los servicios de regulación para cada actividad, determinadas previamente en sus planes institucionales.
+Sistema de Costeo: Herramienta que permita al ente u órgano regulador calcular los costos necesarios para la prestación del servicio de regulación. Dicha herramienta debe contener al menos el objeto del costo, los costos directos e indirectos de ese objeto de costo, el grupo de costos y la base de asignación.
+(Así reformado por resolución R-DC-71-2016 del 16 de agosto de 2016)
