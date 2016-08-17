@@ -1,2 +1,0 @@
-Sección II. Planificación de la Auditoría Interna
-Artículo 40.—Planificación estratégica y de corto plazo. El Auditor o Auditora Interna coordinará el proceso de planificación de la Auditoría Interna y su posterior ejecución una vez conocido por el CONAC, de conformidad con la normativa legal y técnica. Además, definirá y documentará la planificación de corto y mediano plazo, mediante la elaboración de un plan anual y presupuesto, los cuales deberán ser congruentes con la planificación estratégica y la normativa reglamentaria y técnica pertinente.

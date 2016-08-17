@@ -1,1 +1,0 @@
-Artículo 60.—Solicitud de la Asamblea Legislativa. La Asamblea Legislativa de conformidad con el inciso h) artículo 32 de la Ley Nº 8292, podrá solicitar información a la Auditoría Interna, salvo si se trata de denuncias trasladadas al Ministerio Público, para lo cual se considerará el artículo 295 del Código Procesal Penal.

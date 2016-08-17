@@ -1,1 +1,0 @@
-Artículo 28.—Obligación de brindar asesoría legal. La Asesoría Legal del SINAC brindará en forma oportuna y efectiva, los servicios de asesoría legal que requiera la Auditoría Interna para atender sus necesidades de orden jurídico en el ejercicio de sus competencias; obligación que es extensiva a las demás unidades administrativas y técnicas.

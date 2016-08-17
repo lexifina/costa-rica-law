@@ -1,1 +1,0 @@
-Artículo 35.—Deberes de la Auditoría Interna. El Auditor o Auditora, el Subauditor Internos y el personal de la Unidad para el desempeño de sus competencias, tendrán los deberes que se establecen en el artículo 32 de la Ley Nº 8292.

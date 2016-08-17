@@ -1,1 +1,0 @@
-Artículo 17.—Pericia y cuidado profesional. El Auditor o Auditora, el Subauditor o Subauditora Internos y el resto del personal de la Auditoría Interna deberán cumplir con pericia y debido cuidado profesional sus funciones, haciendo valer sus competencias con independencia funcional y de criterio.
