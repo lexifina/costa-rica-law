@@ -1,1 +1,0 @@
-12—El Departamento de Contabilidad recibe la documentación, y prepara los cheques respectivos. Deberá firmar la nómina de pago y retener la original de la misma. Toda la documentación restante es enviada al Auditor Interno.

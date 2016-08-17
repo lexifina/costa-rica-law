@@ -1,1 +1,0 @@
-8—Cumplidas las formalidades señaladas en los puntos 6 y 7, e! tesorero entrega el dinero a quien corresponda, se reserva el original del comprobante y remite la copia al Alcalde. Una vez hecha la compra, el tesorero solicita a la persona que la realizó los justificantes originales cancelados, cuando esto proceda.

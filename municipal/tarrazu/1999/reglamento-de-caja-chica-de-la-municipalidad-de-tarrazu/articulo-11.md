@@ -1,1 +1,0 @@
-11—El Alcalde con la copia de la factura y de la orden de compra, y la original orden de compra que mantenía en su poder, prepara y forma nómina de pago. Todos los documentos acumulados, son enviados a Contabilidad.

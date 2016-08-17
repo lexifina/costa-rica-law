@@ -1,1 +1,0 @@
-3—El fondo se tendrá en dinero efectivo y servirá para atender exclusivamente la adquisición de servicios y artículos de situaciones de de verdadera urgencia, y aquellos que por su naturaleza y momo se exceptúan de los trámites de la orden de compra y de la cancelación directa por medio cheque.
