@@ -1,0 +1,4 @@
+Artículo 12. Funciones del CD y confidencialidad.
+Al aceptar su nombramiento, los miembros del CD se comprometen a desempeñar sus funciones conforme al presente Reglamento y a las disposiciones generales aplicables según el Título Primero del Capítulo I del Reglamento.
+Cualquier información obtenida por un miembro del CD en el ámbito de sus actividades será́ confidencial, y este no podrá́ revelarla salvo que fuera autorizado por escrito por ambas partes, o que fuera requerido por un órgano jurisdiccional o autoridad competente.
+Ningún miembro del CD podrá́ participar en un procedimiento judicial o arbitral relativo a una controversia sometida a su decisión o recomendación, sea en condición de juez, árbitro, testigo, experto, representante o consejero de una parte, salvo acuerdo de las partes.

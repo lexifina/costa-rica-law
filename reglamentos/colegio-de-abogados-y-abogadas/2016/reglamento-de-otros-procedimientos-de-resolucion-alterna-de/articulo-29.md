@@ -1,0 +1,2 @@
+Artículo 29. Honorarios diarios
+Las partes pueden acordar también el pago de honorarios diarios a cada uno de los miembros del CD, en especial para los casos Ad Hoc, que permitirán cubrir el tiempo dedicado al ejercicio de las siguientes actividades: Reuniones y visitas al sitio; audiencias; tiempo de desplazamiento; reuniones internas de la JD; estudio de los documentos entregados por las partes durante los procedimientos; preparación de la decisión o recomendación; y actividades de coordinación y de organización del funcionamiento.

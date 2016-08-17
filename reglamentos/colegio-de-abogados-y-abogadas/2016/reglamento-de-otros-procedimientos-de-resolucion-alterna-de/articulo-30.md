@@ -1,0 +1,2 @@
+Artículo 30. Gastos de desplazamiento y otros
+Salvo estipulación en contrario, los gastos razonables y documentados en que incurran los miembros del CD en el marco de su labor, en cualquier sitio, ya sea relativos a desplazamientos locales, viajes por vía terrestre, aérea u otra, alojamiento, alimentación, llamadas de teléfono local o de larga distancia, gastos de fax y de mensajería, fotocopias, correos, gastos de visado, u otros, serán reembolsados tomando como base su costo real.

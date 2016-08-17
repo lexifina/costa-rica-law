@@ -1,0 +1,2 @@
+Artículo 38. Plazo para el dictamen.
+El experto deberá rendir su informe dentro del plazo de un mes calendario, luego de recabada toda la información correspondiente, a menos que ese plazo resulte insuficiente o si es menester a juicio del experto realizar inspecciones, verificaciones, pruebas u otras actividades. En este caso deberá indicar el plazo requerido para realizarlas, así como los costos estimados que deberán ser asumidos por igual por las partes, dentro del término que al efecto indicará el CAM-CR mediante resolución administrativa.

@@ -1,0 +1,3 @@
+Artículo 10. Sustitución de miembro del CD.
+Cuando algún miembro de la CD deba ser sustituido por causa de incapacidad física o mental, sea temporal o permanente, fallecimiento, cuestionamiento a su imparcialidad, independencia o en caso de renuncia, el nuevo miembro será́ designado de común acuerdo por las partes o en su defecto por la Dirección del CAM-CR en un plazo de (05) cinco días hábiles a partir del día siguiente de la solicitud de cualquiera de las partes o de culminado el procedimiento de evaluación realizado por el CAM-CR.
+Mientras no haya sido sustituido un miembro del CD, los otros dos miembros se abstendrán de realizar audiencias o de emitir decisiones o recomendaciones, salvo acuerdo contrario de las partes.
