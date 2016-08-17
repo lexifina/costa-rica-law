@@ -1,1 +1,0 @@
-Artículo 33- —Las becas se entregarán sólo durante los periodos lectivos. Por tanto, las becas universitarias serán aportadas antes del inicio de cada cuatrimestre o semestre y las de secundaria al inicio de cada uno de los meses que dure el curso lectivo.

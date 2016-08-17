@@ -1,4 +1,0 @@
-Artículo 17.—Los becarios universitarios están obligados a matricular no menos de tres materias en cada cuatrimestre; y deberán presentar el recibo correspondiente de matricula ante el Secretario de la Comisión Evaluadora, en el término de los tres días posteriores a la matricula. La violación a esta disposición dejará sin derecho de beca al infractor por el resto del añil correspondiente y obligará a la devolución de los montos recibidos en ese cuatrimestre, Además si desea acogerse al beneficio de la beca en el siguiente ano, deberá plantear una nueva solicitud de inclusión en el programa.
-Como excepción a este articulo la Comisión Evaluadora autorizará la matrícula de un número menor de materias, en las situaciones siguientes:
-a. Cuando el Becario ya haya aprobado una o varias de las materias de ese cuatrimestre,
-b. Cuando la respectiva universidad cierre uno o varios cursos de ese cuatrimestre, por razones internas de dicha institución.

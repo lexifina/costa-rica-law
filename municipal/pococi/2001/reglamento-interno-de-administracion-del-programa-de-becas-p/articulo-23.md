@@ -1,1 +1,0 @@
-Artículo 23.—Las omisiones en que incurra la Comisión Evaluadora en sus atribuciones y deberes producirán la prórroga por un nuevo año, de las normativas que a ese momento estén vigentes en esta materia.

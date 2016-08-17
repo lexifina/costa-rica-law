@@ -1,1 +1,0 @@
-Artículo 20.—Para mantener el derecho a beca debe obtenerse una nota mínima de 80% en cada materia. Las notas interiores a este nivel, serán evaluadas de acuerdo con lo dispuesto por los artículos 34, 35, 36 y 37 de este Reglamento.

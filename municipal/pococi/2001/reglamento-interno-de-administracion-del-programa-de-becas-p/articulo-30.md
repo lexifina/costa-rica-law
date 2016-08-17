@@ -1,1 +1,0 @@
-Artículo 30.—En ningún caso la Municipalidad girará el monto total de la beca, sino que hará los desembolsos por mensualidades anticipadas en el caso de estudios de secundaria y cuatrimestres o semestres anticipados en el caso de estudios universitarios.

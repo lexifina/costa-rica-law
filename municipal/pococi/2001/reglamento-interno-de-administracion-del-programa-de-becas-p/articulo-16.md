@@ -1,2 +1,0 @@
-Artículo 16.—Cada becario de Carrera Universitaria deberá firmar un Contrato formal de Trabajo, según la cual se obligará a cumplir con dos años de servicio para la Municipalidad, una vez finalizados sus estudios.
-Este requisito será considerado sine qua non para el disfrute de beca. El despido con responsabilidad patronal liberará al empleado de dicha obligación y los sin obligación patronal devolver el 50%.

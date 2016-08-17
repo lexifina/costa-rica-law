@@ -1,1 +1,0 @@
-Artículo 35.—Por la pérdida de una de las materias del curso de becario se le suspenderá el apone durante un cuatrimestre o semestre según sea el sistema de estudio si se tratare de estudiante universitario o de técnico.
