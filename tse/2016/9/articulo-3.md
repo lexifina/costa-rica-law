@@ -1,0 +1,1 @@
+Artículo 3.- Sin perjuicio de lo dispuesto en los artículos anteriores, las cédulas de identidad expedidas con las características aprobadas por este Tribunal en el Decreto N.° 7-2008, publicado en La Gaceta N.° 221 del 14 de noviembre de 2008, mantendrán su validez hasta la fecha que en ellas se indique.
