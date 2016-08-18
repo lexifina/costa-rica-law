@@ -1,2 +1,0 @@
-Artículo 18.-El acta para traslado de restos deberá contener la autorización de los propietarios de ambas bóvedas, en caso de traslado dentro del cementerio (Ver Anexo N° 3) o del propietario de la bóveda que contenga los restos en caso de traslado a otro cementerio. En este último caso se requerirá la constancia de la administración del cementerio en cuestión, donde se indique que se ha reservado el espacio para tal fin. (Ver Anexo N° 4).
-(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 15 al 18 actual).

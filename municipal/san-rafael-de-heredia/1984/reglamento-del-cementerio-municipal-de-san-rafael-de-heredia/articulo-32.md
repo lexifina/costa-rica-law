@@ -1,4 +1,0 @@
-De las construcciones
-Artículo 32.-En ninguna parcela se permitirá la construcción de nichos sobre la superficie del suelo, estos deberán estar construidos bajo la superficie del suelo y se permitirá la construcción de bóvedas de dos y cuatro nichos. Estas construcciones se iniciarán en la ampliación al Cementerio Sectores N° 08, a partir del lote N° 24 sector N° 09.
-(Así reformado mediante sesión N° 78 del 24 de febrero de 1999. Asimismo, se indica que debido a que existen en la parte antigua del Cementerio Sectores Nos. 1, 2, 3, 4, 5 y 6, así como en el sector N° 07, algunos terrenos sin bóvedas, se procederá conforme lo establece el presente reglamento permitiendo la construcción de las mismas de la siguiente manera: dos sobre la superficie del suelo y dos en forma subterráneas).
-(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 29 al 32 actual).

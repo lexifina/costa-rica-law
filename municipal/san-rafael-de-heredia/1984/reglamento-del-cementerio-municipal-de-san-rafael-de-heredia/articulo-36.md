@@ -1,2 +1,0 @@
-Artículo 36.-Cualquier daño o deterioro ocasionado por la construcción de una bóveda será reparado de inmediato por el interesado. En caso contrario el costo de la reparación será cargado a su cuenta con la Municipalidad y constituirá gravamen sobre el derecho respectivo.
-(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 33 al 36 actual).

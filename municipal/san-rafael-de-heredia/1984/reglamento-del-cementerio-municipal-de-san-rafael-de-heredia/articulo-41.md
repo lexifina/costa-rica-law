@@ -1,2 +1,0 @@
-Artículo 41.-Los mausoleos subterráneos a que se refiere el articulo 23 se definen como construcciones de tres nichos en fondo colocados en ambas parcelas laterales y con acceso por la parcela central. Este acceso estará cubierto por una lápida debidamente asegurada. La construcción no podrá sobresalir más de 20 centímetros de nivel del suelo, ni podrá tener una profundidad mayor de dos metros del mismo nivel.
-(Así corrida su numeración mediante sesión N° 24 del 16 de julio de 1990, que lo traspasó del anterior artículo 38 al 41 actual).
