@@ -1,0 +1,1 @@
+Artículo 24.—Los derechos sólo se adjudicarán en orden de ubicación geográfica, según lo disponga la Administración y de acuerdo con el plano regulador aprobado por el la Administración y se hará efectiva su ubicación sólo en el momento en que el interesado diere inicio a la construcción.

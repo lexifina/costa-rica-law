@@ -1,0 +1,1 @@
+Artículo 8º—En caso de exhumar restos, el interesado que desea que se mantengan debidamente identificados podrían solicitar a la administración que se haga la diligencia de separación y correcto embalaje y marchamado de los restos, previa cancelación del costo.

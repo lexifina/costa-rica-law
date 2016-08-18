@@ -1,0 +1,3 @@
+CAPÍTULO II
+De las inhumaciones
+Artículo 4º—Para las inhumaciones en el cementerio, el interesado deberá presentarse con el certificado de defunción en la Municipalidad, donde le confeccionarán el comprobante de ingreso por el monto que le corresponde pagar, el cual será determinado por la Administración, de acuerdo con las categorías establecidas en el artículo 10 de este Reglamento y las tarifas vigentes al momento del pago. La copia del comprobante de ingreso, debidamente cancelado se entrega al Encargado del Cementerio junto con el acta de defunción, para que se proceda a realizar la inhumación

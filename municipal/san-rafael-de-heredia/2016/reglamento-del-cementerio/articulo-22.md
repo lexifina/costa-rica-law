@@ -1,0 +1,1 @@
+Artículo 22.—Para autorizar a una persona un derecho de uso en el Cementerio Municipal se requiere ser vecino del cantón. Ninguna persona física podrá tener más de un derecho individual en este cementerio.

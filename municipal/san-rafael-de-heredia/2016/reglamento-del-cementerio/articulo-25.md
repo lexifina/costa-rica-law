@@ -1,0 +1,1 @@
+Artículo 25.—Todo titular de un permiso de uso y disfrute se compromete en el acto mismo de adquisición al pago de la cuota anual de mantenimiento, la cual será revisada periódicamente por la administración municipal. La omisión en el pago de esta cuota constituirá causal de cancelación del permiso de uso autorizado, siguiendo el Debido Proceso.

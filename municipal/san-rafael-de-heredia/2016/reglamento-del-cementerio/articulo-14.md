@@ -1,0 +1,1 @@
+Artículo 14.—Se consideran exhumaciones ordinarias por interés de la Administración Municipal, las que tiene lugar en nichos de alquiler, una vez vencido el plazo de 5 años de arrendamiento, si no se localizan dolientes la Administración procederá a inhumar y pasara los restos al osario Municipal debidamente identificados, previa elaboración del acta correspondiente.

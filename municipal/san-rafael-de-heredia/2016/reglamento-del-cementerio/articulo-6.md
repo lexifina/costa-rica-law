@@ -1,0 +1,1 @@
+Artículo 6º—La presentación del comprobante de ingreso cancelado deberá hacerse dos horas antes de la inhumación en los casos en que las misma se realice en nichos municipales o bóvedas particulares, con el fin de determinar el sitio exacto y la usencia de restos con menos de cinco años de inhumados.

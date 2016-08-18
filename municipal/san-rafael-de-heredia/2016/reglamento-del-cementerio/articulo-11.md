@@ -1,0 +1,1 @@
+Artículo 11.—Las inhumaciones se realizaran entre las 7:00 a. m. y las 3:00 p. m. Para inhumaciones fuera de este horario se regirá orden de la autoridad competente con previa cancelación del impuesto aprobado por la Administración para este efecto.

@@ -1,0 +1,1 @@
+Artículo 29.—Las construcciones de bóvedas quedan sujetas al pago de licencias de construcción, cuyo monto será objeto de determinación por parte de la administración en relación con el valor de la cuota equivalente al 1%.

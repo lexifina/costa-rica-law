@@ -1,0 +1,1 @@
+Artículo 34.—La Municipalidad no se responsabiliza por ningún accidente que suceda al realizarse trabajos de cualquier clase en las bóvedas y toda obra deberá contar con los permisos municipales respectivos.

@@ -1,0 +1,1 @@
+Artículo 17.—A partir del momento en que los restos de una persona han salido del Cementerio Municipal, la Municipalidad salva su responsabilidad, la cual será asumida por el solicitante y el adjudicatario de la bóveda que firmarán el acta correspondiente.
