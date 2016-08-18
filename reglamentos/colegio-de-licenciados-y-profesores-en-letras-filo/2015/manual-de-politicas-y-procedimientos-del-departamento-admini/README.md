@@ -15,3 +15,4 @@ Manual de Políticas y Procedimientos del Departamento Administrativo (Gestión 
 | --- | --- | --- |
 | 1 | 2015-10-13 | la propia norma |
 | 2 | 2016-04-18 | Reglamento 33 (2016-04-18) |
+| 3 | 2016-08-18 | Reglamento 74 (2016-08-18) |

@@ -1,7 +1,6 @@
 COLEGIO DE LICENCIADOS Y PROFESORES
 MANUAL DE POLÍTICAS Y PROCEDIMIENTOS
 DEPARTAMENTO ADMINISTRATIVO Y FINANCIERO
-[imagen]
 OBJETIVO:
 Establecer los lineamientos por seguir en la gestión del cobro de cuotas de colegiación y arreglo de pago, además de la suspensión de la colegiatura, el levantamiento de suspensión y aplicación de cuentas por pagar, notas de crédito y notas de débito.
 ALCANCE:
@@ -55,7 +54,8 @@ d) No tener otro arreglo de pago vigente o vencido.
 e) Adeudar como mínimo seis cuotas vencidas
 f) Cancelar el 50% de la deuda por los medios y formas de pago facilitadas por el Colegio.
 g) Presentar original y fotocopia de la cédula vigente y en buen estado.
-h) Firmar la autorización de deducción y/o el compromiso de pago.
+h) Firmar la autorización para que se realice el rebajo del salario o autorizar el rebajo de la cuenta bancaria por medio del servicio de domiciliación de la cuenta.
+(Así reformado el inciso anterior en sesión N° 074-2016 del 18 de agosto del 2016)
 i) No se realizarán trámites de arreglo de pago en actividades del Colegio, tales como: Asambleas Ordinarias, Extraordinarias y Regionales, así como de cualquier otra índole
 (*) (Corrida la numeración del punto anterior en sesión N° 033 del 18 de abril de 2016, que lo traspaso del punto 18) al 19))
 20. La Unidad de Tesorería dos veces al año (mayo y noviembre), verificará en el Sistema de Colegiados que todos los órganos del Colegio se encuentren al día con sus obligaciones, previo a la entrega del pago de dietas o estipendios y en caso de presentarse alguna irregularidad informará por medio escrito a la Dirección Ejecutiva, para que sea elevado a Junta Directiva.
