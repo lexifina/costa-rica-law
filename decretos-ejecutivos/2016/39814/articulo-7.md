@@ -1,0 +1,1 @@
+Artículo 7º—En todo lo demás, el Decreto Ejecutivo N° 39117-C del 28 de julio de 2015, publicado en el Diario Oficial La Gaceta N° 160 del 18 de agosto de 2015, que constituyó y reglamentó el Fondo para el fomento audiovisual y cinematográfico - El Fauno, permanece incólume.

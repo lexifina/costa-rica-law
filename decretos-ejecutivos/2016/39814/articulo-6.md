@@ -1,0 +1,2 @@
+Artículo 6º—Adiciónese un transitorio II al Decreto Ejecutivo N° 39117-C del 28 de julio de 2015, publicado en el Diario Oficial La Gaceta N° 160 del 18 de agosto de 2015, acto administrativo que constituyó y reglamentó el Fondo para el fomento audiovisual y cinematográfico - El Fauno, que establecerá lo siguiente:
+“Transitorio II.—Las presentes reformas son aplicables a los convenios vigentes suscritos con base en el presente Reglamento, en lo que beneficie a los suscribientes
