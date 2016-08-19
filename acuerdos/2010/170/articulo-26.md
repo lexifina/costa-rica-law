@@ -9,7 +9,8 @@ iii) Comisión de administración.
 iv) Volumen de activos netos administrado.
 v) Cantidad de cuentas abiertas de inversionistas en el fondo.
 vi) Rendimiento a valor de mercado últimos 12 meses (fondos cerrados)
-vii) Rendimiento líquido últimos 12 meses (fondos inmobiliarios o de desarrollo inmobiliario).
+vii) Rendimiento líquido últimos 12 meses (fondos inmobiliarios o de desarrollo de proyectos).
+(Así reformado el acápite anterior por acuerdo SGV-218 del 19 de agosto de 2016)
 e. Estados financieros auditados correspondientes a los últimos cinco periodos anuales.
 f. Informe trimestral de Fondos de Inversión, al menos para los últimos cuatro trimestres.
 g. Políticas y procedimientos para la presentación de consultas o reclamos por parte de los inversionistas.
