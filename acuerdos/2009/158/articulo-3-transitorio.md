@@ -1,4 +1,4 @@
-Transitorio III.—Actualización de prospectos de acuerdo con diseño y contenido del anexo 1 del Acuerdo.
+Transitorio III.-Actualización de prospectos de acuerdo con diseño y contenido del anexo 1 del Acuerdo.
 La sociedad administradora debe presentar la solicitud de actualización del prospecto para adecuarlo a las normas de presentación, contenido mínimo y nombre del fondo dispuestas en los artículos 9, 10 y 11 y el anexo 1 de este acuerdo, según los siguientes plazos:
 Tipo | Fecha máxima de presentación de la solicitud
 Crecimiento | 18 de diciembre del 2009

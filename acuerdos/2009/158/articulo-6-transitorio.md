@@ -1,0 +1,2 @@
+Transitorio VI: La actualización de los prospectos de fondos de inversión de desarrollo de proyectos y fondos de inversión inmobiliarios, se debe realizar de acuerdo a los plazos y procedimientos indicados en el Transitorio XII de la reforma del Reglamento general sobre sociedades administradoras y fondos de inversión. Los fondos que consideren en su nombre la expresión “Desarrollo Inmobiliario”, deben modificarla a “Desarrollo de Proyectos.
+(Así adicionado por acuerdo SGV-218 del 19 de agosto de 2016)

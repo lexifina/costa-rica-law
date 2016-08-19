@@ -1,0 +1,2 @@
+Transitorio V: La actualización de los prospectos de los fondos de inversión financieros y de procesos de titularización, se debe realizar en el proceso de actualización periódica de prospectos de fondos de inversión, a más tardar el 30 de setiembre del 2016, según lo definido en el artículo 24 del Reglamento general sobre sociedades administradoras y fondos de inversión.
+(Así adicionado por acuerdo SGV-218 del 19 de agosto de 2016)

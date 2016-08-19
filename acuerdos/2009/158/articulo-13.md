@@ -1,6 +1,6 @@
 CAPÍTULO IV
 Disposiciones finales
-Artículo 13.—Derogatorias
+Artículo 13.-Derogatorias
 Se derogan los siguientes Acuerdos emitidos por el Superintendente:
 a. SGV-A-34. Instrucciones sobre el contenido mínimo del contrato de participación en un fondo de inversión abierto. Ref. 762 del 16 de marzo del 2000.
 b. SGV-A-37. Instrucciones para la adecuada revelación en el prospecto de los riesgos de los fondos de inversión inmobiliarios. Ref. 1090 del 26 de abril del 2000.

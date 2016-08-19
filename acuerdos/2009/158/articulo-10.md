@@ -1,3 +1,3 @@
-Artículo 10.—Contenido mínimo de acuse de recibido y aceptación de condiciones del prospecto del fondo de inversión.
-El inversionista y el ejecutivo de fondos de inversión o corredor de bolsa que lo atiende, deben firmar un documento donde conste el recibo y aceptación de las condiciones del prospecto del fondo de inversión, así como la asesoría que se le brindó.
-Dicho documento debe suscribirse en la colocación de fondos de inversión abiertos y la colocación por ventanilla de fondos cerrados, además debe considerar el contenido mínimo establecido en el Anexo 8.
+Artículo 10. Contenido mínimo de acuse de recibido y aceptación de condiciones del prospecto del fondo de inversión
+En la comercialización de fondos abiertos de manera directa, a través de la fuerza de ventas de la sociedad administradora del fondo de inversión o a través de contratos de comercialización de fondos de inversión, el inversionista y el ejecutivo de fondos de inversión que lo atiende, deben firmar un documento donde conste el recibo y aceptación de las condiciones del prospecto del fondo de inversión, así como la asesoría que se le brindó. Se debe considerar el contenido mínimo establecido en el Anexo 8.
+(Así reformado por acuerdo SGV-218 del 19 de agosto de 2016)
