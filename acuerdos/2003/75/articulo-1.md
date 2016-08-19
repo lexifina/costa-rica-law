@@ -512,7 +512,6 @@ vi. Anexo 3: Reporte de Colocaciones, se hace aclaración de los conceptos en lo
 (Nota de Sinalevi: Mediante acuerdo SGV-A-214 del 1 de junio de 2016, se acordó reformar el anexo 13 Reporte Diario de Fondos de Inversión (RD_FONDOS) y anexo 17 Reporte de Composición de Carteras de Inversionistas, al no contener la presente norma los anexos, ya que no fueron publicados se transcribe la reforma:
 Artículo 1º—Modificaciones
 a. En el anexo 13. Reporte Diario de Fondos de Inversión (RD_FONDOS). Se modifica el nombre de la cuenta 800000000000 Total de Inversionistas, de manera que aplique solamente a los fondos abiertos:
-[imagen]
 ANEXO 13
 Reporte Diario Fondos.xlsx
 b. En el anexo 17. Reporte de Composición de Carteras de Inversionistas (RC_FONDOS); se aclara que solo aplica para fondos abiertos, de manera que el encabezado queda de la siguiente manera:
@@ -520,11 +519,25 @@ ANEXO 17.
 Reporte de Composición de Carteras de Inversionistas.
 Fondos de Inversión Abiertos
 c. En el anexo 17. Reporte de Composición de Carteras de Inversionistas (RC_FONDOS); se modifica el nombre de las cuentas 120000000000, 12300000000 y 124000000000, de manera que se refiera a cuentas abiertas de inversionistas:
-[imagen]
 ANEXO 17
 Carteras Inversionistas.xlsx
 d. En el Cuadro de Información Periódica: Pestaña “Sociedades Administradoras de Fondos de Inversión”, en la línea 18, se incluye una nota aclaratoria, ya que la remisión del Reporte de Composición de Carteras de Inversionistas (Anexo 17) solo aplica a los fondos abiertos:
-[imagen] ”)
+”)
+(Nota de Sinalevi: Mediante el artículo 7 del acuerdo SGV-218 del 19 de agosto de 2016, se acordó modificar lo siguiente: Artículo 7. Modificaciones al Acuerdo “SGV-A-75 Suministro de información periódica”
+a)En el Cuadro de Información Periódica: Pestaña “Sociedades Administradoras de Fondos de Inversión”, en la línea 15, se ajusta la referencia que se realiza al acuerdoSGV-A-150 que se deroga y se homologa el plazo de entrega al establecido para los vehículos de propósito especial para financiamiento de proyectos de infraestructura:
+INFORME O REPORTE | Periodicidad | Plazo máximo de entrega | Formato o normas sobre el Contenido | Medio de envío | Notas Aclaratorias
+Informe de avance de fondos de desarrollo de proyectos | Trimestral | 20 días hábiles después del cierre de cada trimestre | n/a | Sistema Ingresador | n/a
+b)En el anexo 15 Estados financieros fondos de inversión (catálogo BG_FONDOS), se modifica el nombre de las cuentas 702007000000, 751015010900 y 751015020900,de manera que se lean:
+Cuenta | Nombre Vigente | Nombre Propuesto
+702007000000 | Participación en el Capital de otras empresas de desarrollo inmobiliario | Participación en el Capital de otras empresas de desarrollo de proyectos
+751015010900 | Sumas recibidas por preventa de proyectos de desarrollo inmobiliario | Sumas recibidas por preventa de proyectos de desarrollo
+751015020900 | Sumas recibidas por preventa de proyectos de desarrollo inmobiliario | Sumas recibidas por preventa de proyectos de desarrollo
+BG Fondos.xls
+c) En el anexo 22 Reporte de composición de cartera de fondos inmobiliarios (Archivo No. 1); se modifica la fórmula de porcentaje de ocupación del inmueble, de manera que se lea:
+N° | Nombre | Descripción | Formato | Long | Dec.
+7 | Porcentaje de ocupación | Porcentaje de Ocupación del Inmueble Metros arrendados de los inquilinos actuales Metros disponibles de arrendamiento totales (arrendados, disponibles) | Numérico | 7 | 2
+d)Se deroga el anexo 38 “Reporte de comercialización de fondos extranjeros” para atender las nuevas disposiciones que surgen de la emisión del “Reglamento de intermediación de valores y actividades complementarias” y se deroga el anexo 40“Plantilla de mega fondos” por cuanto la información será capturada en el actual anexo18.En este sentido, se realizan los ajustes en el Cuadro de Información Periódica: Pestañas “Sociedades Administradoras de Fondos de Inversión”, “Puestos de Bolsa” e“ Intermediarios financieros supervisados por SUGEF”.
+e)Se deroga el campo “Fecha pago intereses” del anexo 18 Plantilla de Carteras.”)
 SGV-A-75.—Superintendencia General de Valores. Despacho del Superintendente. A las catorce horas del veinticuatro de abril del dos mil tres.
 Considerando:
 I. Que mediante artículo 13 del Acta de la Sesión 81 -99. celebrada el 18 de marzo de 1999. el Consejo Nacional de Supervisión del Sistema Financiero aprobó el Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y otras Obligaciones de Información con lineamientos sobre los deberes de comunicación de los diferentes participantes en el mercado de valores.
