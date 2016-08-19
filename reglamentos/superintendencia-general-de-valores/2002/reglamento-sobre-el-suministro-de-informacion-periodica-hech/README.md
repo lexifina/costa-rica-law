@@ -20,3 +20,4 @@ Reglamento sobre el Suministro de Información Periódica, Hechos Relevantes y o
 | 5 | 2008-01-14 | Acuerdo 142 (2008-01-14) |
 | 6 | 2010-11-17 | Acuerdo 0 (2010-11-17) |
 | 7 | 2015-03-18 | Acuerdo 196 (2015-03-18) |
+| 8 | 2016-08-19 | Acuerdo 218 (2016-08-19) |
