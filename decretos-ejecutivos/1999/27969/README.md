@@ -19,3 +19,4 @@ Reglamento Autónomo de Servicio del Ministerio de Trabajo y Seguridad
 | 4 | 2003-11-25 | Decreto Ejecutivo 31679 (2003-11-25) |
 | 5 | 2009-03-30 | Decreto Ejecutivo 35191 (2009-03-30) |
 | 6 | 2014-03-11 | Decreto Ejecutivo 38360 (2014-03-11) |
+| 7 | 2016-08-22 | Decreto Ejecutivo 39972 (2016-08-22) |

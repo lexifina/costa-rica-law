@@ -29,3 +29,5 @@ y) Prestar servicios, remunerados o no, asociarse, dirigir, administrar, asesora
 Se entiende que interviene indirectamente el funcionario o servidor público, cuando participa en la determinación del adjudicatario o cuando pertenece a la dependencia y organismo encargado de formular las especificaciones relacionadas con los contratos, si éstos se celebran con parientes hasta el tercer grado de consanguinidad o afinidad.
 z) Efectuar negocios personales dentro del centro de labores y colocar dinero a interés entre los servidores, excepto cuando se trate de organizaciones sociales legítimamente constituidas e inscritas en el registro correspondiente.
 aa) Haciendo uso de los recursos del Estado o de la influencia que surja de su cargo, expedir recomendaciones a personas físicas o jurídicas. Esta prohibición incluye las recomendaciones para otorgamiento de préstamos o sobregiros a empresas o particulares en instituciones financieras.
+bb) Realizar acciones u omisiones discriminatorias fundamentadas en razones de diversidad sexual.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39972 del 22 de agosto del 2016)

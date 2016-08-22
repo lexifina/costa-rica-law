@@ -11,3 +11,7 @@ g) Velar porque sus subalternos cumplan con el correcto empleo del equipo, mobil
 h) Informar periódicamente al superior jerárquico sobre la marcha de su respectiva dependencia y, en forma inmediata, cuando ocurra un hecho extraordinario que requiera su atención.
 i) Cumplir las obligaciones señaladas en el artículo 102 de la Ley General de la Administración Pública y todas las demás propias de su cargo.
 j) Mantener las normas de respeto apropiadas, para lograr relaciones humanas cordiales con sus colaboradores, compañeros y superiores.
+k) Realizar sus funciones respetando los Derechos Humanos, garantizando la igualdad y la no discriminación de las personas sexualmente diversas.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39972 del 22 de agosto de 2016)
+l) Reconocer la identidad de género que indiquen los funcionarios y las personas usuarias.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39972 del 22 de agosto de 2016)

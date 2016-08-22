@@ -29,3 +29,7 @@ aa) Velar por la buena imagen del Ministerio y no comprometerlo con comportamien
 bb) Guardar la debida consideración y respeto a sus compañeros y a sus superiores jerárquicos.
 cc) Portar el carné de identificación durante la jornada laboral, en el centro de trabajo.
 (Así adicionado, por el artículo 1° del Decreto Ejecutivo N° 31679 de 25 de noviembre de 2003).
+dd) Realizar sus funciones respetando los Derechos Humanos, garantizando la igualdad y la no discriminación de las personas sexualmente diversas.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39972 del 22 de agosto del 2016)
+ee) Reconocer la identidad de género que indiquen los funcionarios y las personas usuarias.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 39972 del 22 de agosto del 2016)
