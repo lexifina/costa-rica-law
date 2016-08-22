@@ -12,3 +12,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 39777 del 29 de junio de 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39820 del 13 de julio de 2016)
 (Así reformado por el artículo 2°, 3° y 4° de la ley N° 9385 del 29 de julio del 2016)
+(Así reformado por el artículo 1° de la ley N° 9386 del 29 de julio del 2016)
