@@ -14,3 +14,4 @@ Declara de interés público y nacional la lucha contra el Comercio Ilícito y l
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-20 | la propia norma |
+| 2 | 2016-08-22 | Decreto Ejecutivo 40014 (2016-08-22) |
