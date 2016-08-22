@@ -3,3 +3,4 @@ Artículo 5°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 39590 del 8 de marzo de 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39684 del 29 de abril del 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39777 del 29 de junio del 2016)
+(Así reformado por el artículo 3° y 4° de la ley N° 9385 del 29 de julio del 2016)

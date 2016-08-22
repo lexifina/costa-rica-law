@@ -1,0 +1,2 @@
+Artículo 3°: Modifícanse los Artículos 2º, 4°, 5° y 6° de la Ley No. 9341, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico 2016, publicada en el Alcance Digital No.112 a La Gaceta No. 240 del 10 de diciembre del 2015, en la forma que se indica a continuación:
+(Nota de Sinalevi: Por lo extenso de su contenido y tipo de formato consultar Alcance N° 143 a La Gaceta N° 155 del 12 de agosto del 2016)
