@@ -1,0 +1,9 @@
+N° 9378
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+AUTORIZACIÓN A LA MUNICIPALIDAD DE PÉREZ ZELEDÓN
+PARA QUE SEGREGUE UN TERRENO DE SU PROPIEDAD
+Y LO DONE A LA ASOCIACIÓN HOGAR BETANIA
+DE PÉREZ ZELEDÓN
+ARTÍCULO 1.- Autorización
+Se autoriza a la Municipalidad de Pérez Zeledón con cédula de persona jurídica número tres-cero uno cuatro-cero cuatro dos cero cinco seis (N.°3-014-042056), para que del lote inscrito en el Registro Público, partido de San José, matrícula de folio real número uno-dos ocho cinco seis cuatro uno-cero cero cero (1-285641-000), cuya naturaleza es de terreno para construir; sito en la provincia de San José, distrito tres, Daniel Flores, cantón diecinueve, Pérez Zeledón; que linda al norte con la carretera interamericana; UNED, al sur, con la Asociación Nacional de Rehabilitación y Educación Especial, la Municipalidad de Pérez Zeledón; al este, con Lilliana Halder Picado, otro y, al oeste, con la Asociación Nacional de Rehabilitación y Educación Especial, la Municipalidad de Pérez Zeledón; mide: setenta y cinco mil quinientos nueve metros con diecinueve decímetros cuadrados (75, 509,19 m2), propiedad que está libre de anotaciones y gravámenes, el plano catastrado no se indica, segregue y done a la Asociación Hogar Betania, Pacientes en Fase Terminal de Pérez Zeledón, cédula de persona jurídica número tres-cero cero dos-uno cuatro dos uno cinco dos (N.° 3-002-142152), un lote que se describe así: terreno para construir, mide doce mil ochocientos cincuenta y cinco metros con ochenta y dos decímetros cuadrados (12.855,82 m2), sito en la provincia de San José, distrito 3, Daniel Flores, cantón 19, Pérez Zeledón, plano catastrado número SJ-siete dos seis uno dos seis-dos cero cero uno (SJ-726126-2001); que linda al norte con el Ministerio de Salud; al sur, con el Patronato Nacional de la Infancia (PANI); al este, con calle pública y, al oeste, con calle pública.
