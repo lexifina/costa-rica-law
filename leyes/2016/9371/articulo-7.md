@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Informe del monto de los recursos del suparávit libre
+Cuando se utilicen recursos del superávit libre, las entidades señaladas en el artículo 3 deberán informar el monto a la Tesorería Nacional y a la Dirección General de Presupuesto Nacional, a efectos de realizar los ajustes a las transferencias asignadas en los ejercicios presupuestarios correspondientes y a la Autoridad Presupuestaria para su información.

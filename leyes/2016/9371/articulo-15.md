@@ -1,0 +1,2 @@
+ARTÍCULO 15.- Debido proceso
+Toda responsabilidad será declarada de acuerdo con los procedimientos administrativos dispuestos en la Ley N.° 6227, Ley General de la Administración Pública, de 2 de mayo de 1978, y sus reformas, y demás normas aplicables a la entidad u órgano competente, para asegurar a las partes las garantías constitucionales inherentes al debido proceso y la defensa previa, real, efectiva y sin perjuicio de las medidas preventivas que procedan.
