@@ -19,3 +19,4 @@ Reglamento para la Regulación y Comercialización de Bebidas con Contenido Alco
 | 4 | 2014-04-22 | Reglamento municipal 297 (2014-04-22) |
 | 5 | 2015-04-20 | Reglamento municipal 0 (2015-04-20) |
 | 6 | 2016-03-15 | Reglamento municipal 0 (2016-03-15) |
+| 7 | 2016-08-23 | Reglamento municipal 0 (2016-08-23) |
