@@ -1,0 +1,3 @@
+ARTÍCULO 10.- Giro de las transferencias
+El giro de las transferencias con destinos específicos dispuestos mediante ley de la República deberá realizarse tomando en consideración la disponibilidad de los ingresos efectivamente recaudados, de manera que se garanticen los porcentajes que sobre su distribución estén asignados por ley a las entidades.
+Los destinatarios de los recursos provenientes de las transferencias asociadas a los destinos a los que se hace referencia en el párrafo anterior presentarán ante la Autoridad Presupuestaria, al final de cada ejercicio económico, un informe de rendición de cuentas donde se detallen los resultados que han tenido los recursos otorgados a cada institución.
