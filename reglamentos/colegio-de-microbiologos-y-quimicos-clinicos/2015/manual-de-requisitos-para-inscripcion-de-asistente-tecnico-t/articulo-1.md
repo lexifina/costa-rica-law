@@ -4,7 +4,15 @@ MANUAL DE REQUISITOS PARA INSCRIPCIÓN
 DE ASISTENTE TÉCNICO, TÉCNICO 1, TÉCNICO 2
 Y ASISTENTE DIPLOMADO EN LABORATORIO DE
 MICROBIOLOGÍA Y QUÍMICA CLÍNICA
-Para optar por la autorización en alguna de las cuatro categorías, el interesado deberá demostrar ante la junta directiva el respectivo cumplimiento y obligatoriedad de los siguientes requisitos:
+Para optar por la autorización en alguna de las cuatro categorías, el interesado deberá demostrar ante la junta directiva el respectivo cumplimiento y obligatoriedad de las siguientes normas de presentación *y los requisitos por categoría:
+(*) * NORMAS DE PRESENTACIÓN:
+1 La presentación de documentos se hará en los formularios vigentes al momento
+2 El trámite debe llevarse a cabo por el interesado, de manera presencial en la sede del Colegio (100 metros oeste y 75 metro sur del Segundo Circuito Judicial, Goicoechea)
+3 De no poder hacerlo personalmente puede efectuarlo a través de una persona autorizada, con documento de autorización original y expedito, firmado por el interesado y adjuntando fotocopia de su cédula de identidad; la persona autorizada aportará también fotocopia de su cédula de identidad que se verificará en el Colegio al momento del trámite ante la cédula del autorizado. Igual procedimiento se seguirá al retirar los resultados del trámite.
+4 Deberá aportar documentación completa al momento de la solicitud para que sea admitido; si falta algún documento o es incorrecta la presentación, se devolverán al solicitante para completar o corregir.
+5 Si el interesado cumple con estas normas de presentación y los requisitos de la categoría, el solicitante debe cancelar los aranceles dispuestos para el mismo, sin excepción.
+6 La entrega y aceptación de los documentos, así como el pago de aranceles correspondientes, no aseguran la aprobación de la solicitud; solamente aseguran que la misma ha sido recibida para el estudio pertinente.
+(*) (Así adicionado el punto anterior en sesión 21:2016-2017 del 23 de agosto de 2016)
 A) Asistente Técnico:
 1- Carta debidamente firmada y dirigida a la Junta Directiva de turno, solicitando expresamente la inscripción en la categoría interesada.
 2- Llenar formulario oficial de información básica que le será suministrado en las Instalaciones del Colegio. La información deberá ser clara, completa, veraz y con letra legible.
@@ -55,7 +63,3 @@ D) Asistente Diplomado
 Nota: En caso de estudios realizados en el extranjero deben ser reconocidos por el Consejo Nacional de Rectores (CONARE), para el caso de Bachilleratos Universitarios o por el Consejo Superior de Educación (CSE) para el caso de Diplomados.
 Todos los atestados provenientes del exterior sin excepción, deberán ser presentados con las autenticaciones de las autoridades del país de origen, la del Cónsul de Costa Rica en dicho país y la del Ministerio de Relaciones Exteriores y Culto de la República de Costa Rica o según lo establecido en el Convenio de la Haya Suprimiendo la exigencia de legalización de los documentos públicos extranjeros (Convenio de Apostilla) para los países firmantes.
 Los requisitos indicados en este artículo pueden ser variados en cualquier momento por la junta directiva del Colegio de Microbiólogos y Químicos Clínicos de Costa Rica, y serán de aplicación inmediata una vez que se de la publicidad respectiva.
-[imagen]
-[imagen]
-[imagen]
-[imagen]
