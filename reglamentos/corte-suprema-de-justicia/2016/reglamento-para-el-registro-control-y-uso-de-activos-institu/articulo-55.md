@@ -1,0 +1,1 @@
+Artículo 55. Reportes. La persona que labora para el Poder Judicial, está en la obligación de reportar a la jefatura inmediata cuando advierta la desaparición de algún bien o cuando se trasladen, se deterioren y se desprenda la identificación numérica.

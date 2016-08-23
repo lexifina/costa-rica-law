@@ -1,0 +1,1 @@
+Artículo 54. Equipo dañado. Cuando una persona ingrese a un puesto de trabajo en el Poder Judicial y encuentre equipo dañado, tendrá que comunicarlo a la jefatura inmediata. Esta a su vez, al Departamento de Proveeduría o a la Administración Regional en aquellas dependencias judiciales que cuenten con ésta, para que proceda a su reparación.

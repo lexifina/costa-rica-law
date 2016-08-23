@@ -1,0 +1,1 @@
+Artículo 53. Pérdida de activos por daño o destrucción. Todo el personal judicial encargado de la custodia y uso de los bienes, es responsable por la pérdida, daño o destrucción que sufran, salvo, cuando provengan del deterioro natural por razón de su uso o de otra causa justificada

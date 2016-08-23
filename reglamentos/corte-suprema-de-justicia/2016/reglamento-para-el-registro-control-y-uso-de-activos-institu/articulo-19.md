@@ -1,0 +1,1 @@
+Artículo 19. Registro de Bienes. Será responsabilidad del Departamento de Proveeduría, las Administraciones Regionales y Administraciones de Programas Auxiliares de Justicia, mantener un registro actualizado de los bienes en poder de la institución.

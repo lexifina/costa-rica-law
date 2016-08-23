@@ -1,0 +1,1 @@
+Artículo 24. Control de entrega del mobiliario y equipo. El Proceso de Administración de bienes del Departamento de Proveeduría y las Administraciones Regionales, bajo ninguna circunstancia entregarán mobiliario y equipo sin el respectivo documento de despacho de mercadería y sin que los activos estén debidamente patrimoniados (plaqueados).

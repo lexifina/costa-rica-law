@@ -1,0 +1,1 @@
+Artículo 59. Asignación temporal del mobiliario y equipo por reparación. El Departamento de Proveedur ía podrá suministrar en forma temporal el mobiliario y/o equipo necesario en sustitución, cuando las circunstancias así lo permitan y por haberse valorado que éste es indispensable para el funcionamiento normal de la dependencia judicial.

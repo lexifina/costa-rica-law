@@ -1,0 +1,1 @@
+Artículo 35. Verificación del equipo. Cuando se trate del equipo indicado en el numeral anterior, corresponderá en primera instancia al Departamento de Proveeduría verificar el buen estado del equipo adquirido, así como la cantidad y marca señalada en el pedido, realizando una recepción sujeta a revisión técnica.

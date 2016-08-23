@@ -1,0 +1,1 @@
+Artículo 9. Adquisición de bienes por alquiler. El Departamento de Proveeduría, según las necesidades establecidas a nivel institucional y a solicitud de las dependencias judiciales interesadas, podrá realizar procesos de contratación bajo la modalidad de alquiler, en apego a lo establecido en la Ley de Contratación Administrativa y su reglamento.

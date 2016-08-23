@@ -1,0 +1,1 @@
+Artículo 2. Objetivo. El objetivo del presente reglamento es establecer las normas y los procedimientos para controlar y supervisar las operaciones patrimoniales relativas a la adquisición, control y baja de activos; además de facilitar y mantener registros que permitan identificar plenamente el bien y establecer las responsabilidades por su administración y uso.

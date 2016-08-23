@@ -1,0 +1,4 @@
+CAPÍTULO III
+FORMAS DE ADQUISICIÓN DE BIENES
+Artículo 4. Adquisición de bienes por compra. El Departamento de Proveeduría elaborará cada año un Plan de Compras que incluye las solicitudes de mobiliario y equipo de las distintas dependencias judiciales, según el presupuesto aprobado para cada una de ellas. Corresponderá a los centros gestores solicitar la compra del bien de la dependencia judicial de su jurisdicción, o bien, tramitar la compra en forma directa con las limitaciones del monto indicadas en las normas de ejecución presupuestaria y las políticas que se dicten respecto a la contención del gasto.
+En aquellos Circuitos judiciales donde no exista una oficina administrativa, corresponderá a la dependencia Judicial solicitar directamente al Departamento de Proveeduría para que tramite la compra en el período respectivo.

@@ -1,0 +1,5 @@
+CAPÍTULO VIII
+RECEPCIÓN, REGISTRO Y ALMACEN DE BIENES
+Artículo 32. Recepción de bienes. Una vez adjudicada la compra, el proveedor entregará el bien a la Unidad del Almacén del Departamento de Proveeduría o Administración Regional según corresponda.
+El Departamento de Proveeduría o la oficina correspondiente, se encargará de revisarlo cualitativamente y cuantitativamente contra la orden de pedido y la factura, a fin de determinar si se ajusta a las características señaladas en los documentos. El Departamento de Proveedur ía o Administración Regional entregará el bien, debidamente identificado a la dependencia judicial solicitante, a través del formulario respectivo (despacho). Será responsabilidad del servidor que reciba el activo, confrontar contra el documento de despacho para verificar las características y condiciones del bien que recibe.
+En los casos donde los bienes ingresen directamente a las oficinas, la jefatura de la dependencia será la responsable de hacer el reporte al Departamento de Proveeduría o Administración Regional para efectos de asignar el número de activo e ingresarlo al SICA-PJ.

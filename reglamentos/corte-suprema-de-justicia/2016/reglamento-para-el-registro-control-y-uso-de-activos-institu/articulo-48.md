@@ -1,0 +1,1 @@
+Artículo 48. Personas Responsables por el mantenimiento y custodia de activos. La jefatura de cada dependencia judicial deberá instruir adecuadamente a las personas que laboran para el Poder Judicial, sobre los deberes y obligaciones que tienen con respecto al manejo, mantenimiento y custodia de los activos de la Institución.

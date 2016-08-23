@@ -1,0 +1,2 @@
+Artículo 72. Reposición de activos por destrucción, robos y desaparición. La dependencia judicial estará en la obligación de gestionar ante el Departamento de Proveeduría o Administración Regional la reposición del mobiliario y equipo, por robo, desaparición y destrucción del bien por caso fortuito.
+El Departamento de Proveeduría será el responsable de entregar el bien siempre que éste exista en inventario, caso contrario se procederá a tramitar la compra si la dependencia judicial cuenta con contenido presupuestario.

@@ -1,0 +1,2 @@
+Artículo 33. Asignación de los bienes. Una vez revisados e identificados, los bienes se distribuirán en las oficinas que los solicitaron, cumpliendo con la documentación necesaria. En ningún caso podrá variarse la dependencia destino salvo aquellos casos autorizados por la Dirección Ejecutiva y solo en cuanto a los bienes de inventario.
+El Departamento de Proveeduría y las Administraciones Regionales registrarán el activo en el sistema de información de inventario permanente (SICA-PJ), sin perjuicio de que la dependencia judicial que lo reciba lleve su propio registro.

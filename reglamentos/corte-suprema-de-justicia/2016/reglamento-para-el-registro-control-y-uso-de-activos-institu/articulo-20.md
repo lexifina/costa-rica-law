@@ -1,0 +1,1 @@
+Artículo 20. Sistema Informático. El Departamento de Proveeduría será el responsable de administrar el sistema de información (SICA-PJ.) para que sea utilizado para el manejo, registro y control de los activos del Poder Judicial. Todos los bienes deberán estar debidamente registrados y actualizados en este sistema.
