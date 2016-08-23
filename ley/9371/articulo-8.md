@@ -1,0 +1,4 @@
+ARTÍCULO 8.- Ajustes presupuestarios
+Con el propósito de consolidar las medidas dispuestas en esta ley, se podrán llevar a cabo los siguientes ajustes presupuestarios:
+a) Para el traslado de los recursos al presupuesto nacional, las instituciones, cuyo presupuesto es aprobado por la Contraloría General de la República, prepararán los presupuestos extraordinarios u ordinarios para la aprobación de este.
+b) Asimismo, mediante el presupuesto ordinario o extraordinario de la República, y previa certificación de la Contabilidad Nacional del depósito de los recursos en el Fondo General, el Ministerio de Hacienda, por medio de la Dirección General de Presupuesto Nacional, incorporará al presupuesto nacional los recursos provenientes de las instituciones y los órganos a que se refiere el artículo 3 de la presente ley, los cuales se presupuestarán para la amortización de la deuda interna y externa.
