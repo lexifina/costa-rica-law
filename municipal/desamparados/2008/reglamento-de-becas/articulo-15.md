@@ -1,2 +1,0 @@
-Artículo 15.—Para disfrutar de la beca, el estudiante deberá haber aprobado el curso anterior con un rendimiento académico aceptable, excepto en casos debidamente justificados y documentados, donde se compruebe situaciones familiares, sociales, o médicas que hayan incidido directamente en el rendimiento académico; esto será evaluado por el trabajador o trabajadora social del Área de Gestión Social y la Comisión de Asuntos Sociales de la Municipalidad de Desamparados.
-(Así reformado en sesión N° 32 del 2 de junio de 2015)

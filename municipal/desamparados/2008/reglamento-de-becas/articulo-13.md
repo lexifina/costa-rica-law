@@ -1,1 +1,0 @@
-Artículo 13.—Los estudiantes que aspiren al otorgamiento de una beca, deberán comprobar ante el Consejo de Becas que no están disfrutando de otro régimen becario, se entiende por esto que no están recibiendo ayuda económica de ninguna entidad gubernamental o privada para los efectos de estudios en secundaria.
