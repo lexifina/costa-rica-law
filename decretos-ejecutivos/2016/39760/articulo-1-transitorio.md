@@ -1,0 +1,1 @@
+Transitorio Único: Los fabricantes, importadores, distribuidores y comercializadores de recipientes para contener residuos tienen un plazo de un año contado a partir de la publicación del presente decreto, para el cumplimiento del código de colores aquí establecido.
