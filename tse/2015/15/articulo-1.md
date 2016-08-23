@@ -29,8 +29,12 @@ IV DISTRITO CATEDRAL
 069 Js 022 NACIONES UNIDAS*. POBLADOS: CARLOS MARIA JIMENEZ, LOMAS DE OCLORO.
 069 Is 023 BARRIO LUJAN*/. POBLADOS: ALTAMIRA, BELLAVISTA (MUSEO ESTE), BRENES, CALIFORNIA (PARTE SUR), CERRITO (PARTE OESTE), DISTRITO JUDICIAL/, DOS PINOS, ECHANDI, FRANCISCO PERALTA (PARTE OESTE)*, GONZALEZ LAHMANN*, MILFLOR, NUÑEZ, TABACALERA, WOLF.
 V DISTRITO ZAPOTE
-069 Ju 002 ZAPOTE*D/. POBLADOS: ABOGADOS, AGUILAR, ALBORADA, CALLE LOS MORA, CALVO, CARVAJAL, COLONIA BANCARIA, COND. TORRE BLANCA, COOPERATIVA, COOPERATIVA MOP, DIAMANTES, FINSA, GARGOLLO, GLORIA, INVU, JARDIN, LARA, LUISAS, MARIA AGUILAR (SAN CRISTOBAL), MONTOYA, MORENO CAÑAS, NICHOLAS, PRADERA, QUESADA DURAN, RAMIREZ VALIDO, SAN GERARDO (PARTE SUR)*, VISTA HERMOSA.
-069 Js 032 CORDOBA*. POBLADOS: CALDERON MUÑOZ, CASTRO MADRIZ, CERRITO (PARTE ESTE)*, MANGOS, MONTEALEGRE*, SAN DIMAS, TREBOL, UJARRAS, YOSES SUR.
+069 Ju 002 ZAPOTE*D/. POBLADOS: ABOGADOS, AGUILAR, ALBORADA, CALLE LOS MORA, CALVO, CARVAJAL, COLONIA BANCARIA, COND. TORRE BLANCA, COOPERATIVA, COOPERATIVA MOP, DIAMANTES, FINSA, GARGOLLO, GLORIA, INVU, JARDIN, LARA, LUISAS, MONTOYA, MORENO CAÑAS, NICHOLAS, PRADERA, QUESADA DURAN, RAMIREZ VALIDO, SAN GERARDO (PARTE SUR)*, VISTA HERMOSA.
+Nota: El poblado Maria Aguilar (San Cristóbal) se elimina del electoral Zapote (1-01-V-002) y se reubica al electoral Cordoba (1-01-V-032).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+069 Js 032 CORDOBA*. POBLADOS: CALDERON MUÑOZ, CASTRO MADRIZ, CERRITO (PARTE ESTE)*, COND. DEL SUR, MANGOS, SAN CRISTOBAL, MONTEALEGRE*, SAN DIMAS, TREBOL, UJARRAS, YOSES SUR.
+Nota: El poblado Maria Aguilar (San Cristóbal) se elimina del electoral Zapote (1-01-V-002), se reubica al electoral Cordoba (1-01-V-032) y se le modifica la denominación por San Cristóbal. El poblado Cond. del Sur se incluye oficialmente en la DTE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 VI DISTRITO SAN FRANCISCO DE DOS RIOS
 069 Ku 003 SAN FRANCISCO DE DOS RIOS*D/. POBLADOS: AHOGADOS (PARTE SUR), ARPAZA, CABAÑA, CALLE JUANES, CALLE MURTA (PARTE OESTE), COOPEGUARIA, EQUITATIVA, FATIMA, LINCOLN, LOMAS DE SAN FRANCISCO, LOOSER, MEDAL, PACIFICA, SAUCITOS, URB. SAN MARINO, URB. ZURQUI.
 1 SAN JOSE
@@ -46,9 +50,12 @@ VII DISTRITO URUCA
 069 Gp 034 PEREGRINA*D. POBLADOS: ROBLEDAL, SATURNO, URB. LAS MAGNOLIAS.
 069 Fñ 040 C.S.M. CAPEMCOL.
 VIII DISTRITO MATA REDONDA
-069 Io 005 MATA REDONDA*D/. POBLADOS: AMERICAS, CALLE ALVAREZ, CALLE GOLF, CALLE LANG, CALLE LUISA, CASTRO, COLON, DEL PINO, FERNANDEZ CASTRO, FINSA, GENERAL CAÑAS, LA LUISA, MADRIZ, PORRAS, RANCHO LUNA, RESID. AMERICANAS, ROHRMOSER (PARTE ESTE), SASSON.
-069 Io 035 PERPETUO SOCORRO*. POBLADOS: ANONOS (PARTE ESTE), BAJO ANONOS (PARTE ESTE), BAJO CAÑADA (PARTE NORTE), BALCON VERDE,
-CALLE MORENOS, HOLANDA*, LA SALLE, LAS VEGAS*, LOMA LINDA, NIZA, PINOS, ROMA, TENIS, TOVAR, URB. NOSARA.
+069 Io 005 MATA REDONDA*D/. POBLADOS: AMERICAS, CALLE ALVAREZ, CALLE GOLF, CALLE LUISA, CASTRO, COLON, DEL PINO, FERNANDEZ CASTRO, FINSA, GENERAL CAÑAS, LA LUISA, MADRIZ, PORRAS, RANCHO LUNA, RESID. AMERICANAS, ROHRMOSER (PARTE ESTE), SASSON.
+Nota: El poblado Calle Lang se elimina del electoral Mata Redonda (1-01-VIII-005) y se reubica al electoral Perpetuo Socorro (1-01-VIII-035).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+069 Io 035 PERPETUO SOCORRO*. POBLADOS: ANONOS (PARTE ESTE), BAJO ANONOS (PARTE ESTE), BAJO CAÑADA (PARTE NORTE), BALCON VERDE, CALLE LANG, CALLE MORENOS, HOLANDA*, LA SALLE, LAS VEGAS*, LOMA LINDA, NIZA, PINOS, ROMA, TENIS, TOVAR, URB. NOSARA.
+Nota: El poblado Calle Lang se elimina del electoral Mata Redonda (1-01-VIII-005) y se reubica al electoral Perpetuo Socorro (1-01-VIII-035).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IX DISTRITO PAVAS
 069 Gm 006 PAVAS*D/. POBLADOS: ALFA, ASUNCION, FAVORITA NORTE Y SUR*, GEROMA, ROHRMOSER (PARTE OESTE)*D/, TRIANGULO, URB. BETA.
 1 SAN JOSE
@@ -81,8 +88,12 @@ II DISTRITO SAN ANTONIO
 069 Lj 004 BEBEDERO O SAN FRANCISCO*.
 069 Ml 006 CARMEN (CHIVERRAL)*. POBLADOS: CALLE CHIVERRAL, CALLE DE LOS GUAYABOS, CALLE LAJAS, CALLE PASO HONDO, CHAPARRAL, COND. ACAVE DOS, JUAN SANTANA, LONDRES, URB. LOS PICAPIEDRA.
 III DISTRITO SAN RAFAEL
-069 Im 003 SAN RAFAEL*D/. POBLADOS: ALTO PALOMAS (PARTE ESTE), ANONOS (PARTE OESTE), AYALA, BAJO ANONOS (PARTE OESTE), BAJO PALOMAS, BETINA*, CALLE BARRO, CALLE CHAVES (PARTE NORTE), CALLE CONVENTO, CALLE PAVAS, CALLE PRIMAVERA, CALLE SOCOLA, CARAZO, CARCHITA, COUNTRY CLUB, DELFINA, DESARROLLO UNIVERSAL, FACIO CASTRO, LAGUNILLA, LAURELES, MADRES CARMELITAS, MAYNARD, MIRADOR, MIRAVALLES, PALERMO, PALMA DE MAYORCA, QUESADA, SANTA MARTA, TENA, TREJOS MONTEALEGRE, URB. AMERICANA, URB. CEIBA, URB. MONTE ROCA, URIBE.
-069 Gj 005 GUACHIPELIN (SAN GABRIEL)*. POBLADOS: CALLE DEL MANGO, CALLE GUACHIPELIN, CALLE MATAPALO, CALLE VIRILLA, LOMA REAL, QUINTANA, REAL PEREIRA (PARTE ESTE), REAL DE PEREIRA NORTE, URB. CARREZ, URB. PINAR DEL RIO.
+069 Im 003 SAN RAFAEL*D/. POBLADOS: ALTO PALOMAS (PARTE ESTE), ANONOS (PARTE OESTE), AYALA, BAJO ANONOS (PARTE OESTE), BAJO PALOMAS, BETINA*, CALLE BARRO, CALLE CHAVES (PARTE NORTE), CALLE CONVENTO, CALLE PAVAS, CALLE PRIMAVERA, CALLE SOCOLA, CARAZO, CARCHITA, COUNTRY CLUB, DELFINA, DESARROLLO UNIVERSAL, FACIO CASTRO, LAGUNILLA, LAURELES, MADRES CARMELITAS, MAYNARD, MIRADOR, PALERMO, PALMA DE MAYORCA, QUESADA, SANTA MARTA, TENA, TREJOS MONTEALEGRE, URB. AMERICANA, URB. CEIBA, URB. MONTE ROCA, URIBE.
+Nota: El poblado Miravalles se elimina del electoral San Rafael (1-02-III-003) y se reubica al electoral Guachipelín (San Gabriel) (1-02-III-005).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+069 Gj 005 GUACHIPELIN (SAN GABRIEL)*. POBLADOS: CALLE DEL MANGO, CALLE GUACHIPELIN, CALLE MATAPALO, CALLE VIRILLA, LOMA REAL, COND. MIRAVALLES, QUINTANA, REAL PEREIRA (PARTE ESTE), REAL DE PEREIRA NORTE, URB. CARREZ, URB. PINAR DEL RIO.
+Nota: El poblado Miravalles se elimina del electoral San Rafael (1-02-III-003), se reubica al electoral Guachipelín (San Gabriel) (1-02-III-005) y se le modifica la denominación por Cond. Miravalles.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 02 CANTON ESCAZU
 Mapa
@@ -92,10 +103,16 @@ Mapa
 03 CANTON DESAMPARADOS
 Mapa
 I DISTRITO DESAMPARADOS
-069 Lt 001 DESAMPARADOS*/. POBLADOS: BARRIO DAMAS, COLONIA DEL SUR, DORADOS, METROPOLI, MORA ROJAS, PALO GRANDE, RESID. MARSCHALL, ROJAS, TRONCOS O TUCONADA, VISTA VERDE.
-069 Ms 018 CALLE FALLAS*/. POBLADOS: BELLAVISTA, CALIFORNIA, CALLE ANGULO, CALLE CONTADORES, CALLE JORCO, CALLE NARANJOS, CAPILLA, CARMEN MURILLO, CENTRO DE AMIGOS, CERAMICA, CIUD. CUCUBRES, CRUCE (PARTE OESTE), FLORITA, JARDIN, LOS DURAZNOS, MONSEÑOR SANABRIA, MONTE CLARO, RETOÑOS, RIO JORCO, SABARA, SAN ESTEBAN REY, SAN JOSE, SAN ROQUE, TICA LINDA, TORREMOLINOS*, URB. GARCIA MONGE.
+069 Lt 001 DESAMPARADOS*/. POBLADOS: BARRIO DAMAS, COLONIA DEL SUR, DORADOS, METROPOLI, MORA ROJAS, PALO GRANDE, RESID. MARSCHALL, ROJAS, BARRIO SAN JOSE, TRONCOS O TUCONADA, VISTA VERDE.
+Nota: El poblado San José se elimina del electoral Calle Fallas (1-03-I-018) y se reubica al electoral Desamparados (1-03-I-001) y se le modifica la denominación por Barrio San José.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+069 Ms 018 CALLE FALLAS*/. POBLADOS: BELLAVISTA, CALIFORNIA, CALLE ANGULO, CALLE CONTADORES, CALLE JORCO, CALLE NARANJOS, CAPILLA, CARMEN MURILLO, CENTRO DE AMIGOS, CERAMICA, CIUD. CUCUBRES, CRUCE (PARTE OESTE), FLORITA, JARDIN, LOS DURAZNOS, MONSEÑOR SANABRIA, MONTE CLARO, RETOÑOS, RIO JORCO, SABARA, SAN ESTEBAN REY, SAN ROQUE, TICA LINDA, TORREMOLINOS*, URB. GARCIA MONGE.
+Nota: El poblado San José se elimina del electoral Calle Fallas (1-03-I-018) y se reubica al electoral Desamparados (1-03-I-001).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 069 Ls 028 SAN JERONIMO*. POBLADOS: ALTAMIRA, CALLE ARAYA, CIUD. LA PAZ, COCORI (KAMAKIRI), LOMA LINDA, LOTO, PINOS, TAURO, URB. PINAR DEL RIO, URB. KIRIA, VENECIA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 069 Ls 036 H. A. OFELIA CARVAJAL DE NARANJO.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO SAN MIGUEL
 069 Ot 002 SAN MIGUEL*D/. POBLADOS: ANGELES, BARRIO FATIMA DE SAN MIGUEL, BELARMINA, CARIBARI, CASA CUBA, DAMAS ISRAELITAS (URB. PAZ), EL RETORNO, GIRASOL, JARDIN, LOS COLEGIOS, MESEGUER, ORQUIDEAS, PEÑASCAL, SAN JOSE*, SAN MARTIN, URB. EMPERADOR, URB. LA ASUNCION, URB. LAS AMERICAS, URB. LOS MANZANOS, URB. VILLADOLID.
 070 At 003 JERICO*/. POBLADOS: ALTO LEONA, URB. LINDA VISTA.
@@ -146,8 +163,12 @@ X DISTRITO DAMAS
 03 CANTON DESAMPARADOS
 Mapa
 XI DISTRITO SAN RAFAEL ABAJO
-069 Mr 007 SAN RAFAEL ABAJO*D/. POBLADOS: ANGELES, AUTOFORES, BALBOA, BARRIO LA TABLA, BARRIO SAN JOSE, CALLE BRUJO (PARTE OESTE), COOPELOT, GARDENIA, SAN BUENAVENTURA, SANTA CECILIA, TEJAR, TREVISA*, UNIDAS, URB. LAREDO, URB. LOS FRUTALES, URB. PABLO PRESBERE.
-069 Lr 031 VALENCIA*. POBLADOS: CALLE LA UNION, IMAS (FUENTES MARTINEZ), LAS TRES MARIAS, LEO, LOS PINARES DE SEVILLA, MARJO, RESID. HIGUERONES, SAGITARIO, URB. MONACO, URB. VALENCIA, VIZCAYA.
+069 Mr 007 SAN RAFAEL ABAJO*D/. POBLADOS: ANGELES, AUTOFORES, BALBOA, BARRIO LA TABLA, BARRIO SAN JOSE, CALLE BRUJO (PARTE OESTE), COOPELOT, GARDENIA, SAN BUENAVENTURA, SANTA CECILIA, TEJAR, UNIDAS, URB. LAREDO, URB. LOS FRUTALES, URB. PABLO PRESBERE.
+Nota: El poblado Trevisa se elimina del electoral San Rafael Abajo (1-03-XI-007) y se reubica al electoral Valencia (1-03-XI-031).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+069 Lr 031 VALENCIA*. POBLADOS: CALLE LA UNION, IMAS (FUENTES MARTINEZ), LAS TRES MARIAS, LEO, LOS PINARES DE SEVILLA, MARJO, RESID. HIGUERONES, SAGITARIO, TREVISA*, URB. MONACO, URB. VALENCIA, VIZCAYA.
+Nota: El poblado Trevisa se elimina del electoral San Rafael Abajo (1-03-XI-007) y se reubica al electoral Valencia (1-03-XI-031).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 XII DISTRITO GRAVILIAS
 069 Mt 019 GRAVILIAS*D/. POBLADOS: CARTONERA, CRUCE (PARTE ESTE), DIAMANTE, FORTUNA*, FORTUNITA, LA RAYA, LAS CUMBRES O CASTILLA, MARIA AUXILIADORA, RESID. CASA BLANCA, RIBERALTA, URB. EL LAUREL, URB. FUSOLVI, VILLA NUEVA, VON SCHROTER.
 069 Mu 032 EL PORVENIR*/. POBLADOS: CLAVELES, DAMASCO, ESMERALDAS, JARDINES EL PORVENIR, URB. CASCADAS, URB. SALITRAL (LOMAS SALITRAL OESTE)*.
@@ -157,21 +178,37 @@ XIII DISTRITO LOS GUIDO
 04 CANTON PURISCAL
 Mapa
 I DISTRITO SANTIAGO
-060 Rs 001 SANTIAGO *RD/. POBLADOS: BAJO MORAS, BARRIO CORAZON DE MARIA, BARRIO EL CARMEN*, BARRIO LOS ANGELES, BUENOS AIRES, CALLE BARBACOAS, CALLE SAN JUAN, CHARCON DE BARRIO LOS ANGELES (PARTE OESTE), JARAZAL, JUNQUILLO ABAJO*, JUNQUILLO ARRIBA*, KAMAKIRI, PUEBLO NUEVO, SAN FRANCISCO*, SAN ISIDRO, SAN MARTIN, URB. LOS LAGOS.
+060 Rs 001 SANTIAGO *RD/. POBLADOS: BAJO MORAS, BARRIO CORAZON DE MARIA, BARRIO EL CARMEN*, BARRIO LOS ANGELES, BUENOS AIRES, CALLE BARBACOAS, CALLE SAN JUAN, CHARCON DE BARRIO LOS ANGELES (PARTE OESTE), JARAZAL, JUNQUILLO ABAJO*, JUNQUILLO ARRIBA (PARTE NORTE), KAMAKIRI, PUEBLO NUEVO, SAN FRANCISCO*, SAN ISIDRO, SAN MARTIN, URB. LOS LAGOS.
+Nota: El poblado Junquillo Arriba* se le modifica la denominación por Junquillo Arriba (Parte Norte) y se elimina el símbolo de escuela.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Dv 002 POZOS*/. POBLADOS: ALTO POZOS, BAJO BARRANCO, BAJO LAGUNA, BAJO MAQUINA (PARTE OESTE), BAJO POZOS, CALLE POZOS, CAÑALES ABAJO, CAÑALES ARRIBA O LLANO DE LIMON*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 060 Pr 034 CARIT*. POBLADOS: ALTO PARARRAYOS, BARRIO SANTA LUCIA, CIRRI, ZAPOTE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Fw 042 BAJO BADILLA*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 060 Rs 045 H. A. CORAZON DE JESUS.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 060 Qq 046 SANTA CECILIA*. POBLADO: CALLE SAN RAFAEL.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO MERCEDES SUR
 061 Bo 003 MERCEDES SUR*/. POBLADOS: ALTO LA LEGUA*, BAJO LA LEGUA*, BAJO LA LEGUITA*, EL CRUCE, LOS CARMONA, SAN JOSECITO, VIBORA O BEDOYA.
-060 Sr 004 MERCEDES NORTE*/. POBLADOS: BAJO MURILLO*, CALLE VINDAS, PLANCHA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+060 Sr 004 MERCEDES NORTE*/. POBLADOS: BAJO MURILLO*, BARRIO GIRASOL, CALLE VINDAS, JUNQUILLO ARRIBA (PARTE SUR)*, PLANCHA.
+Nota: Los poblados Barrio Girasol y Junquillo Arriba (Parte Sur)* se incluyen oficialmente en la DTE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Gn 005 BOCANA*. POBLADO: BAJO QUESADA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Dj 006 JILGUERAL*. POBLADOS: ALTO PAVERO, CHARQUILLOS, POTENCIANA, QUEBRADA AZUL, QUEBRADILLAS.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Im 008 TUFARES*. POBLADOS: ALTO LIMON, ORATORIO, VARA BLANCA, ZAPOTAL.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Hk 009 SALITRALES*/. POBLADOS: LAJAS O SAN RAMON, SURTUBAL, TULIN.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Fm 011 ALTO LA PALMA*. POBLADOS: ALTO QUIVEL, LOS PERAZA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Mg 016 LLANO GRANDE*. POBLADOS: BAJO LANAS O GUADALUPE*, LAJAS, PLAYA BONITA (PARTE ESTE), QUEBRADA HONDA*, RANCHO LARGO, SANGUIJUELAR, VENADO.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 04 CANTON PURISCAL
 Mapa
@@ -201,16 +238,26 @@ VIII DISTRITO SAN ANTONIO
 060 Rw 038 CHARCON (RIO VIEJO)*. POBLADOS: CALLE CHARCON, CALLE CLARAS.
 IX DISTRITO CHIRES
 061 Qi 023 GUARUMAL*. POBLADOS: CERDAS, GUARUMALITO, SAN VICENTE*, SANTA ROSA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Qq 024 ZAPATON (SAN CARLOS)*. POBLADOS: ALTO CONCEPCION*, ALTO PEREZ ASTUA*, BEJUCO, MUÑECO, REY*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Gf 028 GAMALOTILLO*. POBLADOS: COLONIA*, QUEBRADA BONITA, TIERRA FERTIL.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Ei 029 LOS ANGELES*.
-062 Be 030 LA GLORIA*D/. POBLADOS: ALTO GLORIA, ANGOSTURA (PARTE ESTE)*, BAJO VEGA, PERICOS, PUEBLO NUEVO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+062 Be 030 LA GLORIA*D/. POBLADOS: ALTO GLORIA, ANGOSTURA (PARTE ESTE)*, ARENAL*, BAJO GUARUMAL, BAJO VEGA, CRISTO REY*, El PLANTEL, NARANJAL*, PERICOS, PUEBLO NUEVO*, SAN GABRIEL.
+Nota: Los electorales La Gloria (1-04-IX-030) y Cristo Rey (1-04-IX-039) se refunden en el electoral La Gloria (1-04-IX-030). El poblado El Plantel se incluye oficialmente en la DTE
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Rn 031 MASTATAL*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Kl 037 SAN MARTIN*. POBLADOS: ALTO PELON, LAJAS O SAN RAMON (MONO CHINGO).
-062 Bf 039 CRISTO REY*. POBLADOS: ARENAL*, BAJO GUARUMAL, NARANJAL*, SAN GABRIEL.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Cm 040 SAN MIGUEL*. POBLADOS: FILA DEL AGUACATE*, LAJAS DE AGUACATE, RIO NEGRO (PARTE NORTE).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Hi 043 VISTA DE MAR NORTE*. POBLADOS: BAJO CHIRES, CHIRES (NORTE DEL RIO).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Bt 044 BAJO REY*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 05 CANTON TARRAZU
 Mapa
@@ -222,14 +269,26 @@ I DISTRITO SAN MARCOS
 070 Sx 016 H. A. LOS SANTOS.
 II DISTRITO SAN LORENZO
 071 Hv 004 SAN MARTIN*. POBLADOS: ALTO GUARUMAL, BAJO REYES, SAN RAMON O NARANJILLO*.
-071 Dw 005 SAN LORENZO*/. POBLADOS: ARDILLA, BAJO ZAPOTAL, CALLE MONTERO, CALLE VARGAS, COTOS, DELICIAS, LAGUNA (ESTE DE SAN LORENZO), MATA DE CAÑA*, MIRAMAR, PALMA, SAN ANTONIO, SAN BERNARDO*, SAN FRANCISCO*, SANTA CECILIA DE SAN LORENZO, SANTA MARTA*, SANTA ROSA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+071 Dw 005 SAN LORENZO*/. POBLADOS: ARDILLA, BAJO ZAPOTAL, CALLE MONTERO, CALLE VARGAS, COTOS, DELICIAS, LAGUNA (ESTE DE SAN LORENZO), MATA DE CAÑA*, MIRAMAR, PALMA, SAN ANTONIO, SAN BERNARDO*, SANTA CECILIA DE SAN LORENZO, SANTA MARTA*, SANTA ROSA.
+Nota: El poblado San Francisco se elimina del electoral San Lorenzo (1-05-II-005) y se reubica al electoral San Carlos (1-05-III-008).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Bv 009 ESQUIPULAS*. POBLADOS: CERRO NARA*, JILGUERO, PAQUITA, PASO REAL ARRIBA, RODEO (SAN ISIDRO)*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Bv 012 SAN MIGUEL O SALADO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Cv 013 ZAPOTAL*. POBLADOS: ALTO ZAPOTAL, CUESTA DE MORAS*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Gs 014 NAPOLES*. POBLADOS: ALTO PACAYAS, ALTO PORTAL, BAJO QUEBRADA HONDA, CHILAMATE, CONCEPCION, ESPERANZA*, SANTA TERESA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Ey 015 QUEBRADA ARROYO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO SAN CARLOS
-071 Ep 008 SAN CARLOS*/. POBLADOS: ALTO CHIRAL, ALTO DEL CARMEN, ALTO PAVON, BARRIO SANTA ANA, EL CURA, JAMAICA, LLANO DE LA VIRGEN, PALMILERA, QUEBRADA SECA*, SAN JOSE*.
+071 Ep 008 SAN CARLOS*/. POBLADOS: ALTO CHIRAL, ALTO DEL CARMEN, ALTO PAVON, BARRIO SANTA ANA, EL CURA, JAMAICA, LLANO DE LA VIRGEN, PALMILERA, QUEBRADA SECA*, SAN FRANCISCO*, SAN JOSE*.
+Nota: El poblado San Francisco se elimina del electoral San Lorenzo (1-05-II-005) y se reubica al electoral San Carlos (1-05-III-008).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+071 Eñ 010 SAN JERONIMO*. POBLADOS: ALTO SAN JUAN*, BAJO DE JENARO O SAN CAYETANO, SAN JOSECITO.
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 05 CANTON TARRAZU
 Mapa
@@ -260,10 +319,16 @@ Mapa
 070 Dp 017 TRANQUERILLAS*.
 V DISTRITO LEGUA
 070 Ko 010 LEGUA*. POBLADOS: ALTO BUENA VISTA, BAJO MAQUINAS, LOS ITABOS, OJO DE AGUA (PARTE SUROESTE).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 070 Pn 011 BAJO DE PARRITA*. POBLADO: BAJO VENEGAS (PARTE NORTE).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Ah 018 ALTO AGUACATE*. POBLADOS: LA PALMA, LOMA CALVARIO, LOMA DE JAMAICA.
-071 Cf 020 LAGUNA (BAJO BIJAGUAL)*.
-071 Ee 021 CARMEN*. POBLADOS: CHONTA, PALMAS, PIEDRAS DE FUEGO, ROBLAR*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+071 Cf 020 LAGUNA (BAJO BIJAGUAL)*. POBLADO: CARMEN (PARTE NORTE).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+(*)071 Ee 021 CARMEN*. POBLADOS: CHONTA, PALMAS, PIEDRAS DE FUEGO, ROBLAR*.
+(Nota de Sinalevi: Mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016, se establece los siguiente con respecto al distrito anterior: : “ Nota: El poblado Carmen (Parte Norte) se incluye oficialmente en la DTE
+Nota: El electoral Carmen (1-06-V-021) se elimina del administrativo Legua (1-06-V), se reubica al administrativo Parrita (6-09-I) con el código 6-09-I-028 y se le modifica la denominación por Carmen (Parte Sur))
 VI DISTRITO MONTERREY
 070 Io 012 MONTERREY*/. POBLADOS: BAJO DE LA ZORRA, FINCA VICTORIA, RODEO.
 070 Lq 022 OJO DE AGUA (PARTE NOROESTE)*.
@@ -284,12 +349,19 @@ II DISTRITO GUAYABO
 060 Qy 003 GUAYABO*D/. POBLADOS: CALLE LA VENTOLERA, CALLE LOS SAUCES, CALLE MORAS, CALLE PUENTE TIERRA, BAJO MORADO, MATINILLA, MONTENEGRO.
 060 Px 021 CORROGRES (LA FILA EL CARMEN)*. POBLADOS: BAJO CLARAS, BARRIO LOS CEDROS, BARRIO SAN ISIDRO, CALLE CUBILLO (SOLORZANO), NARANJITO.
 III DISTRITO TABARCIA
-069 Rb 004 TABARCIA*D/. POBLADOS: BAJO LIMA, CALLE LOS MARIN, CAÑAS, SALTO, URB. CALLE VARGAS.
+069 Rb 004 TABARCIA*D/. POBLADOS: BAJO LIMA, CALLE LOS MARIN, CAÑAS, SAN JUAN, SALTO, URB. CALLE VARGAS.
+Nota: El poblado San Juan se incluye oficialmente en la DTE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 070 Ab 005 PIEDRAS BLANCAS*. POBLADOS: CALLE BLANCA, CALLE CARMONA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 069 Qa 006 MORADO*. POBLADO: CALLE UREÑA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 069 Rd 013 CORRALAR*. POBLADO: PUEBLO NUEVO (PARTE OESTE).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 061 Bz 015 BAJO DE LOAIZA (SAN LORENZO)*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 060 Rz 022 BAJO DE BUSTAMANTE O ANGELES*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 07 CANTON MORA
 Mapa
@@ -359,10 +431,15 @@ Mapa
 I DISTRITO ALAJUELITA
 069 Lp 001 ALAJUELITA*D/. POBLADOS: BELLAVISTA, CALLE A SAN FELIPE, CALLE LOS POBRES, CARAZO, FINSA, FONSECA, FRAY MARTIN DE PORRES, INVU, JUAN PABLO SEGUNDO, LAGUNILLA, MACHA, MADRIGAL, PINOS, URB. CHOROTEGA.
 II DISTRITO SAN JOSECITO
-069 Mo 002 SAN JOSECITO*. POBLADOS: AGUILAR MACHADO, CALLE ALTO (PARTE SUR)*, CALLE CALDERON, CALLE COCHEA, CALLE MANGOS, CALLE MASTATE, CALLE NUEVA, CALLE TANQUE, DOCE DE JULIO, LOS FILTROS*, MANGO, OFELIA, PUEBLO ESCONDIDO, TU CASA, VISTAS DE ALAJUELITA.
+069 Mo 002 SAN JOSECITO*. POBLADOS: AGUILAR MACHADO, CALLE ALTO (PARTE SUR)*, CALLE CALDERON, CALLE COCHEA, CALLE MANGOS, CALLE MASTATE, CALLE NUEVA, CALLE TANQUE, LOS FILTROS*, MANGO, OFELIA, PUEBLO ESCONDIDO, TU CASA, VISTAS DE ALAJUELITA.
+Nota: El poblado Doce de Julio se elimina del electoral San Josecito (1-10-II-002) y se reubica al electoral San Antonio o El Llano (1-10-III-003).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO SAN ANTONIO
-069 Nñ 003 SAN ANTONIO O EL LLANO*. POBLADOS: ARCANGELES, CALLE AGUACATE, CALLE ALTO (PARTE OESTE), CALLE CALDERON, CALLE CHANFAINA, CALLE COMUN O DE GRANADILLA, CALLE LA MORA O SANTA MARIA, CALLE RABO DE MICO, CARACAS, CASCABELA, EL CODO, FARO DEL SURESTE, MESON, PIEDRA DE FUEGO.
+069 Nñ 003 SAN ANTONIO O EL LLANO*. POBLADOS: ARCANGELES, CALLE AGUACATE, CALLE ALTO (PARTE OESTE), CALLE CALDERON, CALLE CHANFAINA, CALLE COMUN O DE GRANADILLA, CALLE LA MORA O SANTA MARIA, CALLE RABO DE MICO, CARACAS, CASCABELA, CALLE DOCE DE JULIO, EL CODO, FARO DEL SURESTE, MESON, PIEDRA DE FUEGO.
+Nota: El poblado Doce de Julio se elimina del electoral San Josecito (1-10-II-002) se reubica al electoral San Antonio o El Llano (1-10-III-003) y se le modifica la denominación por Calle Doce de Julio.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 069 Oo 006 LAMPARAS O CORAZON DE JESUS*. POBLADOS: FINCA EVANGELINA, POASITO, TEQUENDAMA.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO CONCEPCION
 069 Mq 004 CONCEPCION ABAJO*D. POBLADOS: CALLE CHINCHILLA, CALLE GUACAMAYO, CALLE LIMON, CHIRIVICO, LOS ITABOS, MONTE ALTO, ONCE DE ABRIL, PRIMAVERA, TEJAR, VEGAS, VISTA DE SAN JOSE, VISTA REAL.
 069 Mq 008 CONCEPCION ARRIBA*. POBLADOS: ALMENDROS, BOCA DEL MONTE, CALLE ALFARERA (TURRUJAL), CALLE EL CHORRITO, CALLE PATALILLO, EL PORO, LOTES PAZ (VISTA GRANDE 2), PROGRESO, URB. FUENTES OESTE.
@@ -510,11 +587,18 @@ I DISTRITO SANTA MARIA
 II DISTRITO JARDIN
 079 Nc 002 JARDIN*/. POBLADOS: CAÑON (SUR CARRETERA)/, CHONTA (PARTE SUR), QUEBRADILLAS, TARRAZU ABAJO, TARRAZU (CABECERA DEL RIO).
 III DISTRITO COPEY
-080 Ci 003 COPEY*/. POBLADOS: ALTO CAÑAZO, ALTO MIRAMAR, BARRIO IMAS, BERNARDO UREÑA, CRUCE CHINCHILLA, FLORIDA, LAGUNA CERRADA, PEDREGOSO, QUEBRADA GRANDE (PARTE ESTE), SAN CARLOS, SAN LUCAS.
+080 Ci 003 COPEY*/. POBLADOS: ALTO CAÑAZO, ALTO MIRAMAR, BARRIO IMAS, BERNARDO UREÑA, CRUCE CHINCHILLA, FLORIDA, LAGUNA CERRADA, PEDREGOSO, QUEBRADA GRANDE (PARTE ESTE), RIO BLANCO*, SAN CARLOS, SAN LUCAS.
+Nota: El poblado Rio Blanco se elimina del electoral Trinidad (1-17-III-006) y se reubica al electoral Copey (1-17-III-003).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 080 Mñ 004 PROVIDENCIA*. POBLADOS: BAJO AZUL, EL BRUJO, OJO DE AGUA (SUR CARRETERA), PIEDRA, RINCON, ZAPOTAL.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 079 Rk 005 LA CIMA*/. POBLADO: CAÑON (PARTE SUR).
-079 Sl 006 TRINIDAD*. POBLADOS: ALTO INDIO, CRUCES (SUR CARRETERA), DOS AMIGOS (SUR CARRETERA), GARRAFA, MADRESELVA (PARTE SUR), PASO MACHO (PARTE SUR), QUEBRADOR (SUR CARRETERA), RIO BLANCO*, RIO HUMO (SUR CARRETERA), TRES DE JUNIO (SUR CARRETERA), VUELTAS.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+079 Sl 006 TRINIDAD*. POBLADOS: ALTO INDIO, CRUCES (SUR CARRETERA), DOS AMIGOS (SUR CARRETERA), GARRAFA, MADRESELVA (PARTE SUR), PASO MACHO (PARTE SUR), QUEBRADOR (SUR CARRETERA), RIO HUMO (SUR CARRETERA), TRES DE JUNIO (SUR CARRETERA), VUELTAS.
+Nota: El poblado Rio Blanco se elimina del electoral Trinidad (1-17-III-006) y se reubica al electoral Copey (1-17-III-003).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 080 Kt 008 SAN GERARDO*. POBLADO: JABONCILLO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 18 CANTON CURRIDABAT
 Mapa
@@ -625,22 +709,50 @@ Mapa
 106 Ga 106 CRISTO REY*.
 VI DISTRITO PLATANARES
 093 Qn 017 BOLIVIA*/. POBLADO: SAN GERARDO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 093 Nl 025 SAN RAFAEL DE PLATANARES*D/. POBLADOS: BONITAS*, NARANJO*.
-093 Mñ 035 SAN PABLO*/. POBLADOS: BAJO ESPINOZA, LOURDES (PARTE NORTE)*, MOLLEJONCITO, NARANJOS, SAN PABLITO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+093 Mñ 035 SAN PABLO*/. POBLADOS: BAJO ESPINOZA, MOLLEJONCITO, NARANJOS, SAN PABLITO*.
+Nota: El poblado Lourdes (Parte Norte) se elimina del electoral San Pablo (1-19-VII-035) y se reubica al electoral San Gabriel (1-19-XII-029).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 093 Mg 050 AGUAS BUENAS*. POBLADO: ORATORIO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 094 Cn 057 SIERRA*.
-093 Kp 058 SAN CARLOS*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 093 Qk 063 VISTA DE MAR NORTE*. POBLADOS: ALTO DEL CARMEN, MASTATAL, VILLA FLOR (CANTARRANA).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 093 Jn 079 RIO GRANDE*. POBLADO: CRISTO REY.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 093 Ll 088 MOLLEJONES*. POBLADOS: BUENOS AIRES*, CONCEPCION (PARTE OESTE)*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 093 Nj 089 SOCORRO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 093 Ql 099 VILLA ARGENTINA*. POBLADO: BAJO BONITAS*.
+Nota: El electoral San Carlos (1-19-VI-058) se elimina del administrativo Platanares (1-19-VI) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-058.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 VII DISTRITO PEJIBAYE
-093 Or 029 SAN GABRIEL*/. POBLADOS: LOURDES (PARTE SUR), SANTA CECILIA*.
+(*)093 Or 029 SAN GABRIEL*/. POBLADOS: LOURDES (PARTE SUR), SANTA CECILIA*.
+(*)(Mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016, se establece lo siguiente: “Nota: El electoral San Gabriel (1-19-VII-029) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-029. El electoral Santa Lucia (Santa Luisa) (1-19-VII-047) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-047. El electoral China Kicha (1-19-VII-069) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-069. El electoral San Antonio (1-19-VII-070) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-070.”)
 094 Bs 031 PEJIBAYE*D/. POBLADOS: ACHIOTAL O VILLA HERMOSA*, ASENTAMIENTO EL PROGRESO*, BARRIO NUEVO*, CIUD. EL RIO, GIBRE, PARAISO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 094 Fx 034 AGUILA ABAJO*. POBLADO: DELICIAS*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 094 Et 036 ZAPOTE*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 094 Cp 038 DESAMPARADOS*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+093 So 039 SAN MIGUEL*. POBLADOS: BAJO MINAS, MATASANOS.
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+093 Pq 040 MESAS*/. POBLADOS: MINAS, SAN MARCOS*.
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+094 Ez 077 SAN MARTIN (LAS MULAS)*. POBLADOS: ALTO LOS ANGELES O SAN DIMAS, LIMONCITO.
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+094 Gu 078 GUADALUPE*/. POBLADO: SANTA FE DE AGUILA*.
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+094 Fr 086 TRINIDAD*. POBLADOS: ALTO TRINIDAD (PUÑAL)*, BELLA VISTA*.
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+094 Hv 087 VERACRUZ*. POBLADOS: BAJO CALIENTE, CALIENTILLO.
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 19 CANTON PEREZ ZELEDON
 Mapa
@@ -684,6 +796,19 @@ XI DISTRITO PARAMO
 081 Cu 065 LOS ANGELES DE PARAMO*D. POBLADO: LIRA*.
 091 Nd 071 SIBERIA (PARTE OESTE)*. POBLADOS: HOTEL (PARTE SUR), VILLA MILLS (PARTE SUR)*.
 092 Gd 072 LA ESE*. POBLADOS: CHANCHERA, FORTUNA, HORTENSIA*, LA PIEDRA, PALMA DE ESE.
+(*) XII DISTRITO LA AMISTAD
+093 Or 029 SAN GABRIEL*/. POBLADOS: LOURDES (SAN ROQUE)*, SANTA CECILIA*.
+Nota: El electoral San Gabriel (1-19-VII-029) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-029. El poblado Lourdes (Parte Norte) se elimina del electoral San Pablo (1-19-VII-035), se reubica al electoral San Gabriel (1-19-XII-029) y se le modifica la denominación por Lourdes (San Roque). El poblado Lourdes (Parte Sur) se elimina de la DTE
+093 Ms 047 SANTA LUCIA (SANTA LUISA)*. POBLADO: ORATORIO.
+Nota: El electoral Santa Lucia (Santa Luisa) (1-19-VII-047) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-047. El poblado Oratorio se incluye oficialmente en la DTE.
+093 Kp 058 SAN CARLOS*.
+Nota: El electoral San Carlos (1-19-VI-058) se elimina del administrativo Platanares (1-19-VI) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-058.
+093 Rz 069 CHINA KICHA*. POBLADO: MOCTEZUMA*.
+Nota: El electoral China Kicha (1-19-VII-069) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-069.
+093 Pv 070 SAN ANTONIO*. POBLADOS: BELLAVISTA, CORRALILLO*, SAN ANTONIO ABAJO*.
+Nota: El electoral San Antonio (1-19-VII-070) se elimina del administrativo Pejibaye (1-19-VII) y se reubica al administrativo La Amistad (1-19-XII) con el código 1-19-XII-070. El poblado Bellavista se incluye oficialmente en la DTE.
+Distrito Administrativo La Amistad, creado por Decreto Ejecutivo Nº 67-2014-MGP, publicado en La Gaceta Nº 48 , Alcance Digital Nº 38, del 09 de marzo de 2016.
+(*)(Así adicionado el distrito XII “Distrito la Amistad” anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 1 SAN JOSE
 19 CANTON PEREZ ZELEDON
 Mapa
@@ -696,21 +821,38 @@ Mapa
 20 CANTON LEON CORTES CASTRO
 Mapa
 I DISTRITO SAN PABLO
-070 Qv 001 SAN PABLO*D/. POBLADOS: ABEJONAL, BARRIO LA VIRGEN, BARRIO SAN FRANCISCO, LA CLARA, LOS ANGELES, MONTES DE ORO, ROSARIO, SAGRADA FAMILIA.
+070 Qv 001 SAN PABLO*D/. POBLADOS: BARRIO SAN FRANCISCO, LA CLARA, LOS ANGELES, MONTES DE ORO, ROSARIO, SAGRADA FAMILIA.
+Nota: El poblado Abejonal se elimina del electoral San Pablo (1-20-I-001). El poblado Barrio La Virgen se elimina del electoral San Pablo (1-20-I-001) y se reubica al electoral Angostura Abajo (1-20-II-006).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 070 Ru 018 CARRIZALES*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO SAN ANDRES
 070 Kr 002 SAN ANDRES*/. POBLADOS: BAJO LOS ANGELES*, OJO DE AGUA (PARTE ESTE)*, RASTROJALES.
-070 Ls 006 ANGOSTURA ABAJO*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+070 Ls 006 ANGOSTURA ABAJO*. POBLADO: ABEJONAL (BARRIO LA VIRGEN).
+Nota: El poblado Barrio La Virgen se elimina del electoral San Pablo (1-20-I-001), se reubica al electoral Angostura Abajo (1-20-II-006) y se le modifica la denominación por Abejonal (Barrio La Virgen).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 070 Mr 016 HIGUERON*. POBLADOS: BAJO BONILLA, BAJO GAMBOA, LLANO GRANDE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO LLANO BONITO
-070 So 003 LLANO BONITO (SAN RAFAEL ARRIBA)*/. POBLADOS: BAJOS DE PARRITA OESTE, BARRIO DURAN BONILLA, EL LLANO, SANTA ROSA ABAJO OESTE*, SANTA ROSA ARRIBA OESTE*.
-071 Bo 007 SAN RAFAEL ABAJO (BENEFICIO CAFE)*. POBLADOS: BARRIO SAN JUAN, BARRIO SAN LUIS*.
+070 So 003 LLANO BONITO (SAN RAFAEL ARRIBA)*/. POBLADOS: BAJOS DE PARRITA OESTE, BARRIO DURAN BONILLA, EL LLANO,
+Nota: Los poblados Santa Rosa Abajo Oeste* y Santa Rosa Arriba Oeste* se eliminan del electoral Llano Bonito (San Rafael Arriba) (1-20-III-003) y se reubican al electoral San Rafael Abajo (Beneficio Café) (1-20-III-007)
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+071 Bo 007 SAN RAFAEL ABAJO (BENEFICIO CAFE)*. POBLADOS: BARRIO SAN JUAN, BARRIO SAN LUIS*, SANTA ROSA ABAJO OESTE, SANTA ROSA ARRIBA OESTE.
+Nota: Los poblados Santa Rosa Abajo Oeste* y Santa Rosa Arriba Oeste* se eliminan del electoral Llano Bonito (San Rafael Arriba) (1-20-III-003), se reubican al electoral San Rafael Abajo (Beneficio Café) (1-20-III-007) y se les elimina el símbolo de escuela*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 070 Pñ 011 SAN FRANCISCO*. POBLADOS: BAJO MORAS, BAJO VENEGAS (PARTE SUR), BARRIO CONCEPCION*, BARRIO SAN MIGUEL.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Cn 019 SANTA JUANA*. POBLADO: TABACALES.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO SAN ISIDRO
 070 Rs 004 SAN ISIDRO*/. POBLADOS: ALTO CARRIZAL, LOMA DE LA ALTURA.
-070 Pp 008 SANTA ROSA ARRIBA ESTE*. POBLADO: SANTA ROSA ABAJO ESTE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+070 Pp 008 SANTA ROSA ABAJO ESTE*. POBLADO: SANTA ROSA ARRIBA ESTE*.
+Nota: Al electoral Santa Rosa Arriba Este (1-20-IV-008) se le reubica la cabecera a Santa Rosa Abajo Este (1-20-IV-008) y se le elimina el símbolo de escuela*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Bq 012 TRINIDAD*. POBLADO: BAJO DE PARRITA ESTE O DE SAN RAFA*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 V DISTRITO SANTA CRUZ
 070 Lx 005 SANTA CRUZ*/. POBLADOS: LAGUNA, RINCON DE GAMBOA, TARRAZU ARRIBA.
 079 Ma 009 CEDRAL (PARTE NORTE)*. POBLADO: SAN ANTONIO DE CEDRAL.
@@ -912,14 +1054,21 @@ II DISTRITO SAN ISIDRO
 059 Fx 036 SAN ISIDRO*. POBLADOS: CALLE ALFARO O MONTECARLO, CALLE BOSQUE DEL NIÑO, CALLE LABRADOR, CASILLAS DE COOPERATIVA, URB. ALFARO, URB. ASECOVI, URB. SAN ISIDRO.
 III DISTRITO SAN JOSE
 059 Iw 004 SAN JOSE Y SANTA GERTRUDIS NORTE*. POBLADOS: CALLE CANGREJOS, CALLE EMERITA ARAYA, CALLE JOAQUIN ROJAS (PARTE ESTE), CALLE OJO DE AGUA (PARTE NORTE), CALLE SAN ANTONIO (EL BURRO), LA ERMITA, LOMA O SAN MARTIN, URB. EL ACHIOTE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 059 Kx 005 SANTA GERTRUDIS SUR*. POBLADOS: CALLE GUAYABAL, CALLE LOS CHORROS, CALLE LOS TRAPICHES, CALLE OJO DE AGUA (PARTE SUR), CALLE SOLIS (PARTE OESTE), CALLE UGALDE, CALLE ZAMORA (PARTE OESTE), ROJAS, URB. ANIBAL GONZALEZ.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 2 ALAJUELA
 03 CANTON GRECIA
 Mapa
-059 Lu 012 LA ARENA*. POBLADOS: CALLE DE LA ARENA, DELICIAS O SANTA BARBARA, GUAYABAL (PARTE NORTE).
+059 Lu 012 LA ARENA (PARTE NORTE)*. POBLADOS: CALLE DE LA ARENA, DELICIAS O SANTA BARBARA, GUAYABAL (PARTE NORTE).
+Nota: Al electoral La Arena (2-03-III-012) se le modifica la denominación por La Arena (Parte Norte).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 059 Fy 014 CALLE RODRIGUEZ*.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 059 Ix 033 CALLE SAN JOSE*. POBLADOS: CALLE GEOVANNY ARGUEDAS, CALLE QUESADA, CALLE RESBALON, EL CRUCE, SANTA ROSA (PARTE OESTE).
-059 Jx 037 CEDRO*. POBLADOS: CALLE BARRANTES, PUNTA DE CAÑA, ULATE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+059 Jx 037 CEDRO*. POBLADOS: CALLE BARRANTES, PUNTA DE CAÑA, ULATE
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO SAN ROQUE
 059 Hu 007 SAN ROQUE*/. POBLADOS: BAJO SAPERA, CALLE AGAPITO, CALLE CHAGUITE (1 Y 2), CALLE HIDALGO, CALLE HIGUERONES (PARTE OESTE), CALLE HOGAR DE ANCIANOS (PARTE SUR), CALLE LA IRMA, CALLE PANIAGUA, CALLE SAN ROQUE, URB. LA HILDA, URB. LOS HIGUERONES, URB. VIETNAM (CASILLAS DE GRECIA).
 059 Fv 023 SAN MIGUEL*. POBLADOS: CALLE LA AMARGURA, CALLE PARRITA (PARTE ESTE).
@@ -973,6 +1122,10 @@ I DISTRITO SAN MATEO
 050 Cw 004 DULCE NOMBRE*. POBLADO: AGUA AGRIA.
 II DISTRITO DESMONTE
 060 Fc 005 DESMONTE*/. POBLADOS: CONCEPCION, CUESTA COLORADA, EL LIMON, FINCA LA SIERRA, FINCA SACRA FAMILIA, HELADO O LA LIBERTAD*, LA UNION, PATIO DE AGUA NORTE, QUEBRADA HONDA, SAN JUAN UNO, ZAPOTE.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+060 Ce 010 ESTANQUILLOS O SAN ANTONIO (PARTE OESTE)*/. POBLADOS: CALLE A CARRIZAL, PATO DE AGUA (PARTE OESTE).
+Nota: El electoral Estanquillo (San Antonio) (2-05-II-005) se elimina del administrativo Jesús (2-05-II), se reubica al administrativo Desmonte (2-04-II) con el código 2-04-II-010 y se le modifica la denominación por Estanquillos o San Antonio (Parte Oeste).
+(Así adicionado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO JESUS MARIA
 050 Fp 008 JESUS MARIA*/. POBLADOS: CALLE LA QUINTA, FINCA MADERAL, GARABITO, POZA AZUL, URB. JUAN LUIS JIMENEZ SUCCAR.
 IV DISTRITO LABRADOR
@@ -986,8 +1139,11 @@ I DISTRITO ATENAS
 060 Dm 016 H. A. HORTENSIA RODRIGUEZ S. DE B.
 II DISTRITO JESUS
 060 Di 003 JESUS*/. POBLADOS: ALTO DEL MONTE*, BARROETA*, BOCA DEL MONTE, CUAJINIQUIL, VUELTA POLACO.
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 060 Dk 004 SABANA LARGA*/. POBLADOS: FINCA ESPAVELES, GUACALILLO, SAN VICENTE.
-060 Ce 005 ESTANQUILLO (SAN ANTONIO)*/. POBLADOS: CALLE A CARRIZAL, PATO DE AGUA (PARTE OESTE).
+(Así reformado el distrito anterior mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+(*)060 Ce 005 ESTANQUILLO (SAN ANTONIO)*/. POBLADOS: CALLE A CARRIZAL, PATO DE AGUA (PARTE OESTE).
+(*)(Mediante el decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016), se establece lo siguiente “Nota: El electoral Estanquillo (San Antonio) (2-05-II-005) se elimina del administrativo Jesús (2-05-II), se reubica al administrativo Desmonte (2-04-II) con el código 2-04-II-010 y se le modifica la denominación por Estanquillos o San Antonio (Parte Oeste).”)
 III DISTRITO MERCEDES
 060 Ck 007 MERCEDES*/. POBLADOS: AVISPERO, BAJO COYOL, CALLAO, CALLE A JESUS, FATIMA (CAJON)*, PLANCILLO, PLAZOLETA.
 IV DISTRITO SAN ISIDRO
@@ -1314,12 +1470,15 @@ IV DISTRITO BIJAGUA
 026 Dt 043 HIGUERON (PARTE SUR)*. POBLADOS: PATA DE GALLO (PARTE SUR), PUEBLO NUEVO*, RESERVA*.
 V DISTRITO DELICIAS
 025 Fw 011 DELICIAS*D/. POBLADOS: ASUNCION, EL MANZANO, FINCA ARGENTINA (LLANOS ARGENTINA), FINCA CHIRIPA, FINCA MERCEDES (FRONTERA), FINCA SAN SEBASTIAN, FINCA SANTA ROSA (FRONTERA), FINCA SANTA ROSA SUR, LA CRUZ*, PATASTE, PAVAS*.
-2 ALAJUELA
-13 CANTON UPALA
-Mapa
-025 Jp 012 SANTA CLARA (PARTE ESTE)*. POBLADOS: FINCA BUENAVISTA, FINCA MONTERREY, SAN JUAN.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+025 Jp 012 SANTA CLARA (PARTE ESTE)*. POBLADOS: FINCA BUENAVISTA, FINCA MONTERREY, PERLA*, SAN JUAN.
+Nota: El poblado Perla se elimina del electoral Quebradón (2-13-V-034) y se reubica al electoral Santa Clara (Parte Este) (2-13-V-012).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 025 Bq 020 SAN RAMON*. POBLADOS: FINCA AMALITA, FINCA CONCEPCION, FINCA SANTA LUCIA, LA PUEBLA, MEXICO*, MOCORON.
-025 Jt 034 QUEBRADON*. POBLADOS: ASENT. TINAJAS, FINCA ESPERANZA, PERLA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+025 Jt 034 QUEBRADON*. POBLADOS: ASENT. TINAJAS, FINCA ESPERANZA.
+Nota: El poblado Perla se elimina del electoral Quebradon (2-13-V-034) y se reubica al electoral Santa Clara (Parte Este) (2-13-V-012).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 VI DISTRITO DOS RIOS
 016 Mn 013 DOS RIOS O COLONIA MAYORGA*D/. POBLADOS: EL GAVILAN (PARTE OESTE)*, FINCA ARGELIA, FINCA BELLAVISTA, FINCA CLAVELES, FINCA CULTIVEZ, FINCA ENCANTO*, FINCA ESPERANZA DE COLONIA MAYORGA, FINCA ESTRELLAS, FINCA LETRAS, FINCA LUCHA, FINCA PACIENCIA, FINCA SAN ANDRES, LA PALMA, SAN LUIS*.
 015 Rp 014 BRASILIA*/. POBLADOS: FINCA ENSAYO, FINCA LAURELAR, FINCA SAN BERNARDO, FINCA SAN MARTIN, FINCA SELVA, LA COLONIA (PARTE ESTE), LA JABALINA*.
@@ -1418,11 +1577,17 @@ IV DISTRITO SAN NICOLAS
 Mapa
 V DISTRITO AGUACALIENTE O SAN FRANCISCO
 078 Si 005 SAN FRANCISCO*D/. POBLADOS: AGUA CALIENTE*, CALLE PITAHAYA, CIUDAD DE LOS NIÑOS*, COCORI*, LA CHACONA, LOS FRAILES, LOS PINARES, SALITRAL, ZANJON.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 079 Aj 006 LOURDES*. POBLADOS: BARRO MORADO, CENICERO, EL MUÑECO*, FINCA TRINIDAD, GRANADILLA, JUCOSAL, MATA DE GUINEO, NAVARRITO, URB. INCSA, URB. LAS LOMAS.
-078 Qh 027 PITAHAYA*. POBLADOS: IMAS, LOPEZ, RESID. CARTAGO, RESID. JARDINES DE AGUACALIENTE, SAN ANTONIO DE PADUA, URB. CASTILLO, URB. CIUDAD DE ORO, URB. MONTEALTO, VASQUEZ DE CORONADO.
-078 Ri 031 MANUEL DE JESUS JIMENEZ*. POBLADO: CALLE ZOPILOTA.
-078 Si 032 C. P. SAN FRANCISCO.
-078 Sg 035 GUAYABAL (PARTE ESTE)*. POBLADO: RESID. LA CAMPIÑA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+078 Qh 027 PITAHAYA*. POBLADOS: IMAS, LOPEZ, RESID. JARDINES DE AGUACALIENTE, SAN ANTONIO DE PADUA, URB. CASTILLO, URB. CIUDAD DE ORO, URB. MONTEALTO, VASQUEZ DE CORONADO.
+Nota: El poblado Resid. Cartago se elimina del electoral Pitahaya (3-01-I-027) y se reubica al electoral Manuel de Jesús Jimenez (3-01-I-031).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+078 Ri 031 MANUEL DE JESUS JIMENEZ*. POBLADOS: CALLE ZOPILOTA, RESID. CARTAGO.
+Nota: El poblado Resid. Cartago se elimina del electoral Pitahaya (3-01-I-027) y se reubica al electoral Manuel de Jesús Jimenez (3-01-I-031).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+078 Sg 035 GUAYABAL (PARTE ESTE)*. POBLADO: RESID. LA CAMPIÑA Nota: El electoral C.P. San Francisco (3-01-V-032) se elimina del administrativo Agua Caliente o San Francisco (3-01-V) y se reubica al administrativo El Tejar (3-08-I) con el código 3-08-I-017
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 VI DISTRITO GUADALUPE O ARENILLA
 078 Pg 007 GUADALUPE O ARENILLA*D/. POBLADOS: BARRIO SANTA CECILIA, CALLE ALFARO, CALLE HIGUERON, CALLE MOLINO, CALLE SANTA MARTA, HACIENDA PIZA (PARTE SUR), HACIENDA SAN JUAN BOSCO, JOYA, MARIAS, PATRICIA, RESID. HACIENDA DEL REY, RESID. LAS AMERICAS, URB. EL CARDIO, URB. EL VALLE, URB. JADE, URB. JULIETA, URB. LAS TRES MARIAS.
 VII DISTRITO CORRALILLO
@@ -1456,15 +1621,26 @@ XI DISTRITO QUEBRADILLA
 Mapa
 I DISTRITO PARAISO
 078 Sñ 001 PARAISO*D/. POBLADOS: BARRIO FLORENCIO DEL CASTILLO, BARRIO LA CASTILLA, BARRIO SAN ESTEBAN, BARRO HONDO, CALVARIO, CHIVERRE O SAN ANTONIO*, CRUZ ROJA, CUCARACHO, CUESTA GRANDE, CUESTA MADRIZ, DULCE NOMBRE, ESTACION, FINCA CASTILLO, GUTIERREZ, HOGAR PUEBLITO DE COSTA RICA, INVU, JORA, JOYA, LAGUNA*, LLANO, LUISIANA, MORALES, MOZOTAL, PALMA, PEDREGAL, PEIPUTE, PERICO, PIEDRA GRANDE, PITALILLO, PUCARES, RADIO, RINCON, SALTO, SANCHIRI, SANTA MARTA, SOLARES, SOLEDAD*, URB. CERRO VERDE, URB. EL ANGEL, URB. LA MISION, URB. LA VICENTINA, VEINTIOCHO DE DICIEMBRE.
-078 Rp 002 BIRRISITO*D/. POBLADOS: ALTO BIRRISITO, ASENT. ROGELIO COTO, BARRIO SAN FRANCISCO, CERRO CHIQUITO, CHIRAL, CHIRRITALES, EL HUECO, LA CACHIMBA, PANDORA, PARRUAS, TITERES.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+078 Rp 002 BIRRISITO*D/. POBLADOS: ALTO BIRRISITO, ASENT. ROGELIO COTO, CERRO CHIQUITO, CHIRAL, CHIRRITALES, EL HUECO, LA CACHIMBA, PANDORA, PARRUAS, TITERES.
+Nota: El poblado Barrio San Francisco se elimina del electoral Birrisito (3-02-I-002) y se reubica al electoral Lapuente (3-02-II-019).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 079 Ar 013 UJARRAS*. POBLADOS: CALLE LOS PERICOS, FINCA SAN JUAN, HACIENDA LA FLORA, LA MINITA, RESID. LOS CAPIROS, URB. FLORENCIO DEL CASTILLO, VILLA ISABEL.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO SANTIAGO
 078 Ou 003 SANTIAGO*/. POBLADOS: BARRIO LAS TROJAS, BIRRIS (PARTE ESTE), CASA BLANCA, CORREDORES, CUSCARES, LA LOMA, MESAS*, MESITAS, URB. EL BENEFICIO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Qs 004 EL YAS*/. POBLADOS: JETA TUERTA, JUNQUILLAL, CALLE EL NARANJO (PARTE NORTE), PUENTE FAJARDO, URB. ARBOLES DEL YAS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Ps 011 LA FLOR*D/. POBLADOS: ARRABARA, DESENGAÑO, TALOLINGA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Ss 015 AJENJAL*D. POBLADOS: CALLE DEL VALLE, CIUD. MARIA REINA, FINCA ASENSAL O AJENJAL, NUEVA UJARRAS, URB. CUATRO CALLES.
-078 Oq 019 LAPUENTE*. POBLADO: FINCA SAN MIGUEL.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+078 Oq 019 LAPUENTE*. POBLADOS: BARRIO SAN FRANCISCO, FINCA SAN MIGUEL.
+Nota: El poblado Barrio San Francisco se elimina del electoral Birrisito (3-02-I-002) y se reubica al electoral Lapuente (3-02-II-19).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Rs 021 RIO REGADO*. POBLADOS: CALLE ACEVEDO, CALLE EL NARANJO (PARTE SUR), CALLE VALE, EL CIRJUELO, LA FORTUNA (EL ALTO), LOS VIVES, PIEDRA AZUL*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO OROSI
 079 Eo 005 OROSI*D/. POBLADOS: BARRIO MEDALLA MILAGROSA, CALLE ALTO LOAIZA, HACIENDA DEL RIO, IMAS, POZO TIBIO, PUENTE NEGRO*, RESID. OROKAY, TROYA, URB. MURRAY.
 3 CARTAGO
@@ -1476,10 +1652,16 @@ Mapa
 079 Dq 016 ALTO DE ARAYA*.
 IV DISTRITO CACHI
 079 At 009 CACHI*D/. POBLADOS: BAJOS URASCA, BARRIO CIENEGUITA, CALLE VOLIO, LA MURRAY, NARANJO, PEÑAS BLANCAS*, PIEDRA GRANDE, PUEBLO NUEVO, RIO DE OROS, URB. LAS ROSAS, URB. ROBLES DE CACHI, URB. VISTA AL LAGO, VOLIO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Sv 010 URASCA*/. POBLADOS: BAJOS DE DOROTEA, FAJARDO, SURTUBAL.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 079 Br 012 LA LOAIZA*. POBLADOS: CALLE LOAIZA, CUESTA SEGURA, GUABATA (PARTE NORTE), GUAIRA, GUARIA, MATA DE GUINEO, PUENTE CASIMIRO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Qu 017 SAN JERONIMO O GUATUSO*. POBLADOS: GUATUSITO, JOYAS.
-078 Py 018 SAN MIGUEL O HAMACA (PARTE OESTE)*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+078 Py 018 SAN MIGUEL O HAMACA (PARTE OESTE).
+Nota: Al electoral San Miguel o Hamaca (Parte Oeste)* se le elimina el símbolo de escuela*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 V DISTRITO LLANOS DE SANTA LUCIA
 078 Sm 020 LLANOS DE SANTA LUCIA*D/. POBLADOS: CALDERON, CALLE LORIA, CAMPO AYALA, EL SALVADOR, LAS MARGARITAS, LOS MANZANOS, LOTES PADRE SANABRIA, PAEZ (PARTE SUR), PROYECTO CASTILLO, PROYECTO MI CASA, RESID. COLINAS DEL SUR, SECTOR ESTADIO*, URB. VALLE DEL ESTE, URB. 16 DE ABRIL.
 3 CARTAGO
@@ -1488,17 +1670,26 @@ Mapa
 I DISTRITO TRES RIOS
 078 Ka 001 TRES RIOS*D/. POBLADOS: ANTIGUA, BARRIO CARPINTERA, CALLE CHAVARRIA, FATIMA, INVU, LAS VILLAS, LOMAS DEL ESTE, LOTES VOLIO, RESID. ARBOLEDA.
 II DISTRITO SAN DIEGO
-069 Lz 002 SAN DIEGO*D/. POBLADOS: BARRIO SAN MARTIN, CALLE NORTE O RICHMOND, CALLE PADILLA, CALLE PIEDRA ENCANTO, LA ITABA, MARIANA, OMEGA (PARTE SUR), PUEBLO NUEVO, RESID. PASO REAL, TACORA, URB. DON EFRAIN, URB. EL CEDRO, URB. FLORENCIO DEL CASTILLO, URB. MANOS UNIDAS, URB. MECANIZADA, URB. PALMIRA, URB. SAN JUAN, URB. SANTA MOHAL, URB. TORONJAS, URB. VILLA FLORIDA, VILLA SOFIA.
+069 Lz 002 SAN DIEGO*D/. POBLADOS: BARRIO SAN MARTIN, CALLE NORTE O RICHMOND, CALLE PADILLA, CALLE PIEDRA ENCANTO, LA ITABA, MARIANA, OMEGA (PARTE SUR), PUEBLO NUEVO, RESID. PASO REAL, TACORA, URB. DON EFRAIN, URB. FLORENCIO DEL CASTILLO, URB. MANOS UNIDAS, URB. MECANIZADA, URB. PALMIRA, URB. SAN JUAN, URB. SANTA MOHAL, URB. TORONJAS, URB. VILLA FLORIDA, VILLA SOFIA.
+Nota: El poblado Urb. El Cedro se elimina del electoral San Diego (3-03-II-002) y se reubica al electoral San Rafael (3-03-IV-005).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Ma 009 SANTIAGO DEL MONTE*. POBLADOS: CALLE GIRALES*, CALLE PEREZ, EULALIA, RESID. VILLA FLORENCIA, URB. LA YENY, URB. LAS MARGARITAS, URB. TINOCO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 069 Mz 012 RINCON MESEN ESTE*. POBLADO: CALLE MESEN*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO SAN JUAN
 069 Kz 004 SAN JUAN*. POBLADOS: ARAUCARIAS (PARTE ESTE), CALLE SANTA LUCIA, HERRAN*, MONTUFAR, OMEGA (PARTE NORTE), RESID. MONSERRAT (PARTE SUR), RESID. VEREDAS DEL ESTE, URB. EL TRIUNFO, URB. LOMA VERDE.
 069 Ly 015 VILLAS DE AYARCO*. POBLADOS: RESID. TORRES DEL ESTE, URB. DANZA DEL SOL.
 IV DISTRITO SAN RAFAEL
-078 Kc 005 SAN RAFAEL*D. POBLADOS: BARRIO PINAR DEL RIO, BELLELANDIA, CALLE MUÑOZ, CARLOS MALAVASI, RESID. LA CARPINTERA, ESTANCIA ANTIGUA, LA CRUZ, RESID. GENOVA, SAN CARLOS, SAN MIGUEL*, SIERRAS DE LA UNION, URB. EL PILAR.
+078 Kc 005 SAN RAFAEL*D. POBLADOS: BARRIO PINAR DEL RIO, BELLELANDIA, CALLE MUÑOZ, CARLOS MALAVASI, RESID. LA CARPINTERA, ESTANCIA ANTIGUA, LA CRUZ, RESID. GENOVA, SAN CARLOS, SAN MIGUEL*, SIERRAS DE LA UNION, URB. EL PILAR, URB. EL CEDRO.
+Nota: El poblado Urb. El Cedro se elimina del electoral San Diego (3-03-II-002) y se reubica al electoral San Rafael (3-03-IV-005).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Ld 010 QUEBRADA DEL FIERRO*. POBLADO: URB. ENTEBE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Lc 013 SAN VICENTE*. POBLADOS: PILARICA, SAUCEDO (SAUCES), URB. ARBOLEDA, URB. VILLA ALEGRE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Jb 016 YERBABUENA*. POBLADO: IZTARU.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 3 CARTAGO
 03 CANTON LA UNION
 Mapa
@@ -1552,18 +1743,26 @@ I DISTRITO TURRIALBA
 089 Lg 068 H. A. SAN BUENAVENTURA.
 089 Kh 069 MARGOT*. POBLADOS: BARRIO RECOPE, EL SILENCIO, FINCA DOMINICA, REPASTO, URB. CEDROS, URB. TOMAS GUARDIA.
 II DISTRITO LA SUIZA
-089 Nr 013 PACAYITAS*/. POBLADOS: BARRIO ARAYA, BARRIO EL PROGRESO*, BUENOS AIRES (GUADALUPE), MARGARITA.
+089 Nr 013 PACAYITAS*/. POBLADOS: BARRIO ARAYA, BUENOS AIRES (GUADALUPE), MARGARITA.
+Nota: El poblado Barrio El Progreso se elimina del electoral Pacayitas (3-05-II-013) y se reubica al electoral San Vicente (3-05-II-050).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 089 Qo 014 LA SUIZA*D/. POBLADOS: ARCANGELES, BARRO DE OLLA, CARRIZAL, DAVID, FINCA NUBES, FINCA ROMA, HACIENDA CRISTINA*, LAS COLONIAS*, LEONA (PARTE OESTE), PIEDRA GRANDE, SELVA (PARTE SUR), SONIA, URB. FRANCISCO MENDEZ, URB. HUGO SMITH.
-3 CARTAGO
-05 CANTON TURRIALBA
-Mapa
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 089 Sk 016 ATIRRO*/. POBLADOS: MAQUINA VIEJA, PUEBLO NUEVO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 089 Lt 033 MOLLEJONES*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 089 Pn 049 CARMEN*. POBLADO: SAN GERARDO.
-089 Ns 050 SAN VICENTE*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+089 Ns 050 SAN VICENTE*. POBLADO: EL PROGRESO*.
+Nota: El poblado Barrio El Progreso se elimina del electoral Pacayitas (3-05-II-013), se reubica al electoral San Vicente (3-05-II-050) y se le modifica la denominación por El Progreso
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 089 Oñ 065 EL SILENCIO*. POBLADOS: ALTO ALEMANIA, BALALAICA, DANTA, SILENCIO ARRIBA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 089 Qn 070 CANADA*. POBLADOS: BARRIO GONZALEZ, BARRIO SAN MARTIN, CIUD. ABELARDO ROJAS, CIUD. ROJAS QUIROS, CRUZADA DE ATIRRO, PROYECTO LAS GAVIOTAS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 089 Jt 074 PACUARE*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO PERALTA
 089 Eñ 019 PERALTA*/. POBLADOS: EL SEIS*, PALO ALTO.
 IV DISTRITO SANTA CRUZ
@@ -1680,9 +1879,16 @@ V DISTRITO SANTA ROSA
 Mapa
 I DISTRITO EL TEJAR
 078 Rg 001 EL TEJAR*D/. POBLADOS: BARAHONA, BARRIO LOS ANGELES, BARRIO SAN FRANCISCO, CALDERON, CALLE A TOBOSI, CHAVARRIA, GONZALEZ, RESID. ANDREA, SAN RAFAEL, SANTA CLARA*, SANTA GERTRUDIS*, SAUCES, SILO, URB. EL GUARCO, URB. VICTORIA, URB. VILLA FLORESTA, URB. ZORZALES, VIENTO FRESCO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Se 006 BARRIO NUEVO*. POBLADOS: RESID. CACIQUE, SANTO CRISTO, URB. FUNDACION, URB. LAS CATALINAS, URB. LOS LLANOS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Rh 015 ASUNCION (CANGREJAL)*/. POBLADOS: COLONIA, HACIENDA VIEJA, VILLA FRANCISCA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 078 Re 016 SABANA GRANDE*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+078 Si 017 C. P. SAN FRANCISCO.
+Nota: El electoral C.P. San Francisco (3-01-V-032) se elimina del administrativo Agua Caliente o San Francisco (3-01-V) y se reubica al administrativo El Tejar (3-08-I) con el código 3-08-I-017.
+(Así adicionado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO SAN ISIDRO
 079 Ae 002 SAN ISIDRO*D/. POBLADOS: BARRANCA (PARTE ESTE), BARRIO MARIA AUXILIADORA, CALLE SANTA CECILIA, COND. VISTA DEL IRAZU, EL HOYO, GUATUSO*, GUAYABAL (PARTE OESTE), HIGUITO*, LA CRUZ, PALO BLANCO, PEDREGAL, POTRERILLOS, PURIRES (PARTE ESTE), URB. ARBOLEDA, URB. LA SILVIA, VARILLAS,
 079 Fb 003 PALMITAL*/. POBLADOS: BARRIO LOS FALLAS, CASAMATA*, LA PAZ*, SANTO TOMAS, VENTOLERA (PARTE ESTE).
@@ -1837,10 +2043,14 @@ III DISTRITO LA ASUNCION
 08 CANTON FLORES
 Mapa
 I DISTRITO SAN JOAQUIN
-068 Sk 001 SAN JOAQUIN*D/. POBLADOS: CALLE CEMENTERIO, CALLE REAL (PARTE NORTE), HACIENDA LUISIANA, LOS JOAQUINEÑOS, SANTA MARTA, SANTISIMA TRINIDAD, URB. EL CAMPANARIO, URB. LAS FLORES, URB. SAN JOAQUIN, URB. SANTA CECILIA, VILLA LICO, VILLA LUISIANA, VILLA MARIA.
+068 Sk 001 SAN JOAQUIN*D/. POBLADOS: CALLE CEMENTERIO, CALLE REAL (PARTE NORTE), HACIENDA LUISIANA, LOS JOAQUINEÑOS, SANTA MARTA, SANTISIMA TRINIDAD, URB. EL CAMPANARIO, URB. LAS FLORES, URB. SAN JOAQUIN, URB. SANTA CECILIA, VILLA LICO, VILLA LUISIANA.
+Nota: El poblado Villa María se elimina del electoral San Joaquin (4-08-I-001) y se reubica al electoral San Lorenzo (4-08-II-002).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO BARRANTES
-068 Rl 002 SAN LORENZO*. POBLADOS: BARRIO BARRANTES*, CALLE RINCONADA, UGALDE, URB. BARILOCHE, URB. SAN LORENZO, URB. VILLAS DEL RIO.
-III DISTRITO LLORENTE
+068 Rl 002 SAN LORENZO*. POBLADOS: BARRIO BARRANTES*, CALLE RINCONADA, RESID. CAMPOS DE MARIA O VILLA MARIA, UGALDE, URB. BARILOCHE, URB. SAN LORENZO, URB. VILLAS DEL RIO.
+Nota: El poblado Villa María se elimina del electoral San Joaquín (4-08-I-001), se reubica al electoral San Lorenzo (4-08-II-002) y se le modifica la denominación por Resid,. Campos de Maria o Villa Maria
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+vIII DISTRITO LLORENTE
 069 Ak 003 LLORENTE*. POBLADOS: ANGELES, AÑO 2000, CALLE REAL (PARTE SUR), CALLE VIQUEZ, CRISTO REY (LA RUSIA) (PARTE NORESTE), ECHEVERRIA (PARTE ESTE), GERANIOS, SANTA ELENA, URB. EL ROSARIO, URB. LAS CARRETAS, URB. LAS HADAS, URB. SIGLO XXI.
 4 HEREDIA
 09 CANTON SAN PABLO
@@ -1915,22 +2125,35 @@ V DISTRITO CUREÑA
 Mapa
 I DISTRITO LIBERIA
 018 Eh 001 LIBERIA*RD/. POBLADOS: ARIZONA, BARRIO LOS ANGELES, BARRIO MANUEL CORDOBA (IMAS), BOCANA, CACAO, CERROS, COND. LUNA LIBERIANA, CONDEGA*, COYOLAR, DELICIAS*, FINCA BIRMANIA, FINCA CEBADILLA, FINCA CHACARA, FINCA ESPERANZA DOS, FINCA GLORIA, FINCA GUACHIPELIN, FINCA HERRADURA, FINCA MACONDO, FINCA SAN JOCOBO, FINCA TIERRA BLANCA, FINCA ZELANDIA, HACIENDA CAÑADA, HACIENDA EL REAL, HACIENDA LIRIAMBA, HACIENDA SAN HERNAN, ISLETA (NORTE DEL RIO), JUANILAMA, MALINCHE, OREGANO, PASO TEMPISQUE (PARTE ESTE), PLAZUELA, POLVAZALES, PUERCOS, SAN BENITO, SAN LUCAS, SANTA INES, TRES MARIAS, TROZAS, VILLANUEVA.
-018 Lm 010 SALTO OESTE*/. POBLADOS: FINCA BELLAVISTA, FINCA CHUMBULUN, FINCA FORMOSA, FINCA HUACAS, FINCA IBERIA, FINCA RESCATE, FINCA SAN ANTONIO, FINCA SAN BOSCO, FINCA ZOPILOTA, HACIENDA ASIENTILLO, HACIENDA PALENQUE, HACIENDA PELON DE LA BAJURA*, MONTAÑITA, TERREROS*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+018 Lm 010 SALTO OESTE*/. POBLADOS: CARAÑA, FINCA BELLAVISTA, FINCA CHUMBULUN, FINCA FORMOSA, FINCA HUACAS, FINCA IBERIA, FINCA RESCATE, FINCA SAN ANTONIO, FINCA SAN BOSCO, FINCA ZOPILOTA, HACIENDA ASIENTILLO, HACIENDA PELON DE LA BAJURA*, HACIENDA PALENQUE, MONTAÑITA, TERREROS*.
+Nota: El poblado Caraña se elimina del electoral La Victoria (5-01-I-015) y se reubica al electoral Salto Oeste (5-01-I-010).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Gj 011 C. P. LIBERIA (MODULO B CASITAS).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Eg 012 H. A. LIBERIA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Hg 013 BARRIO LA CRUZ*. POBLADOS: FINCA MATA DE CAÑA, FINCA SAN JERONIMO, ROBLE DE SABANA, SANTA LUISA, URB. EL GOLFO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Df 014 CORAZON DE JESUS*. POBLADOS: BARRIO SAN ANTONIO, BUENOS AIRES, CAMBALACHE*, ENCINOS, JICARO, LAS BRISAS, URB. LOS ANGELES*, URB. SANTA ANA*.
-018 Fh 015 LA VICTORIA*. POBLADOS: ARENA, BARRIO LAS BRISAS, BARRIO PELONCITO*, BARRIO SAN MIGUEL, CARAÑA, CHORICERA, FINCA ESPERANZA, FINCA LAURELES, LA CARRETA, MOCHO, RESID. CASA BLANCA, RESID. DANIEL ODUBER, SANTA LUCIA, URB. ALASKA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+018 Fh 015 LA VICTORIA*. POBLADOS: ARENA, BARRIO LAS BRISAS, BARRIO PELONCITO*, BARRIO SAN MIGUEL, CHORICERA, FINCA ESPERANZA, FINCA LAURELES, LA CARRETA, MOCHO, RESID. CASA BLANCA, RESID. DANIEL ODUBER, SANTA LUCIA, URB. ALASKA.
+Nota: El poblado Caraña se elimina del electoral La Victoria (5-01-I-015) y se reubica al electoral Salto Oeste (5-01-I-010).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Dh 016 SAN ROQUE*. POBLADOS: BARRIO MARTINA BUSTOS, CIUD. ROJAS CHAVES, GUARIA, INVU SABANERO 1 y 2/, LA GALLERA, LOTES DE GUALBERTO, NAZARETH*, URB. CURIME, VEINTICINCO DE JULIO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 017 Jt 017 SANTA MARIA*. POBLADO: EL ESCOBIO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Db 020 RODEITO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Dh 021 MORACIA*/. POBLADOS: FELIPE PEREZ, PUEBLO NUEVO*, SAN RAFAEL, URB. CHOROTEGA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Gj 022 C. P. LIBERIA (MODULO D1-D2).
-5 GUANACASTE
-01 CANTON LIBERIA
-Mapa
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Ff 023 CAPULIN*. POBLADOS: BARRIO LOS LAGOS, BARRIO SANTA ANA, COND. DEL RIO, COND. TAYACAN, FINCA LA CHOCOLATA, RESID. CAMINO DE LUNA, RESID. CHOROTEGA, RESID. DEL RIO, RESID. EL SITIO, RESID. LA AMERICA, RESID. ROBLE SABANA, ZANJITA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Gj 024 C. P. LIBERIA (MODULO D3-D4).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO CAÑAS DULCES
 017 Lc 003 CAÑAS DULCES*D/. POBLADOS: BARRIO HORIZONTE, CONGO, DELICIAS, FINCA COYOTE, FINCA ENSAYO, FINCA LOMAS, FINCA MONTAÑITA, FINCA MONTE BLANCO, FINCA PAN DE AZUCAR, GUAPINOL, GUAYACAN, HACIENDA AGUAS FRIAS, PANAMACITO, PEDREGAL, PUEBLO NUEVO.
 017 Jd 006 BUENAVISTA DE CAÑAS DULCES*. POBLADOS: ALCANTARO, BRISAS, CEDRO, FINCA APRECIO, FINCA BORINQUEN, FINCA DOS QUEBRADAS, FINCA JOVITOS, FINCA MADROÑOS, FINCA NAYARIT, FINCA PERLA, LAS MESAS, PITAL.
@@ -1939,7 +2162,9 @@ II DISTRITO CAÑAS DULCES
 III DISTRITO MAYORGA
 016 Rb 004 QUEBRADA GRANDE O GARCIA FLAMENCO*D/. POBLADOS: ASENT. EL ENCANTO, CONSUELO*, FINCA BERLIN, FINCA COMPAÑIA, FINCA ITALIA, FINCA SAN EMILIO, FINCA SANTA CLARA, FINCA SANTA MARIA, FINCA SOMBRA, HACIENDA JIRONA, HACIENDA JOSEFINA, HACIENDA LOS ANGELES*, HACIENDA MONTELINDO, HACIENDA NUEVA ZELANDIA, HACIENDA PERLA, HACIENDA POTRERILLOS, HACIENDA SAN ISIDRO, HACIENDA SANTA FE, HACIENDA SANTA LUCIA, HACIENDA SOCORRO, LA ARGENTINA, LOMA DEL VALLE, LOURDES, SAN ANTONIO.
 IV DISTRITO NACASCOLO
-010 Lq 002 GUARDIA*D/. POBLADOS: BARRIO BUENOS AIRES, BARRIO CHINO, BARRIO EL FOSFORO, BEJUCO, CABUYAL, CACAO, EXPERIMENTAL HORIZONTE, FINCA CEBADILLA, FINCA IGUANITA, FINCA MONTE GALAN, FINCA SAN MIGUEL, FINCA SANTO TOMAS, HACIENDA CULEBRA, HACIENDA EL JOBO, HACIENDA GUAPOTE, HACIENDA ORIENTE, HACIENDA PELON DE LA ALTURA, HACIENDA RANCHO ALEGRE, HACIENDA SAN MIGUEL, HACIENDA SANTA ROSA, HACIENDA TRINIDAD, LAS BRISAS, LAS TRANQUERAS, LOS LAGOS DE GUARDIA*, NACASCOLO,
+010 Lq 002 GUARDIA*D/. POBLADOS: BARRIO BUENOS AIRES, BARRIO CHINO, BARRIO EL FOSFORO, BEJUCO, CABUYAL, CACAO, EXPERIMENTAL HORIZONTE, FINCA CEBADILLA, FINCA IGUANITA, FINCA SAN MIGUEL, FINCA SANTO TOMAS, HACIENDA CULEBRA, HACIENDA EL JOBO, HACIENDA GUAPOTE, HACIENDA ORIENTE, HACIENDA PELON DE LA ALTURA, HACIENDA RANCHO ALEGRE, HACIENDA SAN MIGUEL, HACIENDA SANTA ROSA, HACIENDA TRINIDAD, LAS BRISAS, LAS TRANQUERAS, LOS LAGOS DE GUARDIA*, NACASCOLO, ORATORIO, PASO LAJAS, PLAYA NARANJO, PUERTO CULEBRA, SAN FELIPE, SITIO GUANACASTILLO, TRIUNFO*.
+Nota: El poblado Finca Monte Galan se elimina del electoral Guardia (5-01-IV-002) y se reubica al electoral Comunidad (5-05-II-003).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 5 GUANACASTE
 01 CANTON LIBERIA
 Mapa
@@ -2074,14 +2299,24 @@ III DISTRITO VEINTISIETE DE ABRIL
 03 CANTON SANTA CRUZ
 Mapa
 IV DISTRITO TEMPATE
-011 Jc 018 TEMPATE*/. POBLADOS: BEJUCO*, CUESTA SARDINAL, CUESTA TEMPATE, FINCA JUAN VIÑAS, FINCA PALO DE ARCO, HACIENDA LUPITA, PARAISO DE TEMPATE.
+011 Jc 018 TEMPATE*/. POBLADOS: BEJUCO*, CUESTA SARDINAL, CUESTA TEMPATE, FINCA PALO DE ARCO, HACIENDA LUPITA, PARAISO DE TEMPATE.
+Nota: El poblado Finca Juan Viñas se elimina del electoral Tempate (5-03-IV-018) y se reubica al electoral Cartagena (5-03-V-019).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 011 Rb 020 PORTEGOLPE*/. POBLADOS: FINCA GLORIA, FINCA ZANJA, LOS CHILES, RINCON.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 003 Ox 021 HUACAS*/.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 003 Ex 027 POTRERO*. POBLADO: PLAYA POTRERO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 011 Pa 040 EL LLANO (EL CHORRO)*. POBLADOS: FINCA CARRERA BUENA, FINCA SALTO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 V DISTRITO CARTAGENA
-011 Nh 019 CARTAGENA*D/. POBLADOS: CALLE ZORRA, CAÑAFISTULA, COROCITOS, CUESTA ARENAL, EDEN, FINCA ALCORNOQUE, FINCA COROCITO, FINCA PEÑAS BLANCAS, FINCA TAJO, HIGUERON, JOBO, LOURDES, ORATORIO, TOYOSA, VILLA ROSARIO (HUACALES), ZACATIPE.
+011 Nh 019 CARTAGENA*D/. POBLADOS: CALLE ZORRA, CAÑAFISTULA, COROCITOS, CUESTA ARENAL, EDEN, FINCA ALCORNOQUE, FINCA COROCITO, FINCA JUAN VIÑAS, FINCA PEÑAS BLANCAS, FINCA TAJO, HIGUERON, JOBO, LOURDES, ORATORIO, TOYOSA, VILLA ROSARIO
+(HUACALES), ZACATIPE.
+Nota: El poblado Finca Juan Viñas se elimina del electoral Tempate (5-03-IV-018) y se reubica al electoral Cartagena (5-03-V-019).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 011 Pd 032 LORENA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 VI DISTRITO CUAJINIQUIL
 005 Iy 012 MARBELLA*D/. POBLADOS: BARRIO EL FRIJOLAR, FINCA NORMA, FINCA NUEVA LUZ, FINCA PITAHAYA, FINCA PORFIA, FINCA VICTORIA, LAGARTO*, LIBERTAD, MANZANILLO, VERACRUZ*.
 013 Oa 025 SAN JUANILLO*/. POBLADOS: CUAJINIQUIL, PUNTA CALIENTE, ROSARIO ABAJO.
@@ -2110,14 +2345,24 @@ IX DISTRITO TAMARINDO
 Mapa
 I DISTRITO BAGACES
 018 Qz 001 BAGACES*D/. POBLADOS: ARBOLITO*, BARRIO CHILE*, BARRIO SAN ANTONIO, BRISAS, CINCO DE JUNIO, CORAZON DE JESUS (PUENTE QUEMADO)*, EL COLMENAR, FINCA ENCANTO, FINCA ESPAÑA, FINCA FELICIDAD, FINCA FRANCESA, FINCA GAVIOTA, FINCA LOBA, FINCA SAN GERARDO, FINCA SANTA ROSA, FINCA SIERRA, FINCA TRINIDAD, HACIENDA BRASIL, HACIENDA LORAS, HACIENDA MARSELLESA (CHIRICANO), HACIENDA PALO VERDE, HACIENDA RECREO, HACIENDA YOJAN, HORQUETILLA, LA LIMA, PARCELAS SAN MARTIN, URB. EL REDONDEL, URB. EL RODEO, URB. PEDRO NOLASCO, URB. VALLE DORADO, VILLA VIEJA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 027 Qg 002 MONTANO*/. POBLADOS: CASA VIEJA, COFRADIA, CORRALILLO, CUESTA CAMBALACHE, CUESTA JOBO, FINCA OSCAR MIGUEL, HACIENDA AURORA, LOMA ALTA, RIO BLANCO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 Of 003 BEBEDERO (NORTE DEL RIO)*. POBLADOS: FINCA LAS PIEDRAS, FINCA PALMITA, FINCA SAN JERONIMO, HACIENDA CATALINA, HACIENDA MOJICA, URB. BEBEDERO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 027 Ia 009 SALITRAL*. POBLADOS: FINCA COYOL, FINCA RIO BLANCO, FINCA VENTANAS, MICO PINTADO, PITAL, SANTA ROSA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 Cd 011 MONTENEGRO*/. POBLADOS: FINCA LA FLOR, FINCA MASAVI, HACIENDA RANCHO REY.
-018 Op 014 PIJIJE*. POBLADOS: FINCA FLOR DE LIZ, FINCA LUCHA, FINCA RIO POTRERO, FINCA SAN CAYETANO NORTE, FINCA SAN CAYETANO SUR, FINCA SANTA ELENA, HACIENDA CIRUELAS, HACIENDA CORTES, HACIENDA MONTEVERDE, LA ZANJA DE BARRO, PELON DE LA BAJURA (ESTE DEL RIO), SALTO ESTE, SAN RAMON O PAPAYITO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+018 Op 014 PIJIJE*. POBLADOS: FINCA FLOR DE LIZ, FINCA LUCHA, FINCA RIO POTRERO, FINCA SAN CAYETANO NORTE, FINCA SAN CAYETANO SUR, FINCA SANTA ELENA, HACIENDA CIRUELAS, HACIENDA CORTES, HACIENDA MONTEVERDE, LA ZANJA DE BARRO, SALTO ESTE, SAN RAMON O PAPAYITO*.
+Nota: El poblado Pelón de la Bajura (Este Rio) se elimina de la DTE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 019 Ku 018 BAGATZI*. POBLADOS: ASENTAMIENTO FALCONIANA*, HACIENDA TAMARINDO, LAS PLAYITAS*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 018 Qu 019 LLANOS DE CORTES*. POBLADO: ASENTAMIENTO MARAÑONAL.
-028 Dc 020 AGUA CALIENTE*. POBLADOS: BARRIO POZA LINDA, FINCA CULEBRA, FINCA PAMPA MIA, FINCA SAN JERONIMO (PARTE NORTE), FINCA SANTA ISABEL, FINCA SONORA, PARCELAS LA SOGA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+028 Dc 020 AGUA CALIENTE*. POBLADOS: BARRIO POZA LINDA, FINCA CULEBRA, FINCA PAMPA MIA, FINCA SAN JERONIMO (PARTE NORTE
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO LA FORTUNA
 026 Sj 005 CUIPILAPA*/. POBLADO: GIGANTA.
 026 Se 006 LA FORTUNA*D/. POBLADOS: BAJO DE MACUA, LAS HORNILLAS, MARTILLETE, MOZOTAL, SAGRADA FAMILIA, SAN PEDRO, SAN RAFAEL, SANTA CECILIA*, SANTA ROSA, UNION FERRER*, URB. MIRAVALLES.
@@ -2126,9 +2371,15 @@ II DISTRITO LA FORTUNA
 Mapa
 027 Ef 010 SAN BERNARDO*. POBLADOS: CASA VIEJA, FINCA GUACIMO, FINCA PERLA, POZO AZUL, SANTA FE*.
 III DISTRITO MOGOTE
-026 Oc 008 GUAYABO*D/. POBLADOS: BARRIO 2000, BARRIO MIRAVALLES, BARRIO OSES, FINCA TIZONA, HORCONES, LA ESE, LOS ANGELES*, MOCHADERO, SAN PEDRO*, TORNO, URB. YIYI.
+026 Oc 008 GUAYABO*D/. POBLADOS: BARRIO 2000, BARRIO MIRAVALLES, BARRIO OSES, FINCA TIZONA, HORCONES, LA ESE, LOS ANGELES*, MOCHADERO, SAN PEDRO*, URB. YIYI.
+Nota: El poblado Torno se elimina del electoral Guayabo (5-04-III-008) y se reubica al electoral San
+Isidro de Limonal (5-04-III-017).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 026 La 013 PUEBLO NUEVO*. POBLADOS: HACIENDA LA GLORIA, RINCON DE LA CRUZ*, SAN JORGE*.
-018 Bz 017 SAN ISIDRO DE LIMONAL*. POBLADOS: BARRO DE OLLA, FINCA CAJON, FINCA PARAISO, LIMONAL*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+018 Bz 017 SAN ISIDRO DE LIMONAL*. POBLADOS: BARRO DE OLLA, FINCA CAJON, FINCA PARAISO, LIMONAL*, TORNO.
+Nota: El poblado Torno se elimina del electoral Guayabo (5-04-III-008) y se reubica al electoral San Isidro de Limonal (5-04-III-017).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO RIO NARANJO
 026 Rq 004 RIO NARANJO*D/. POBLADOS: BARRIO NARANJITO, FINCA ENCANTO.
 027 Bp 016 RIO CHIQUITO*/. POBLADOS: EL NISPERO (FINCA PORVENIR), FINCA GOTA DE AGUA.
@@ -2141,19 +2392,33 @@ I DISTRITO FILADELFIA
 019 Ma 014 CORRALILLO*. POBLADOS: COLONIA ESPERANZA, FINCA CEIBA, FINCA LAS PAMPAS, FINCA MARGARITA, FINCA SAN CAYETANO, FINCA SANTA CECILIA, MORALITO, PUERTO BALLENA.
 II DISTRITO PALMIRA
 010 Rr 002 PALMIRA*D/. POBLADOS: BARRIO CIELO AZUL, BARRIO LA COYOLERA, BARRIO SAN PEDRO, INVU 1, INVU 2, LOS ANGELES, PALMIRA TRES (INVU).
-010 Nq 003 COMUNIDAD*/. POBLADOS: BARRIO MARIA AUXILIADORA, COND. PRADOS DEL RIO, GAVILAN, HACIENDA LAS TRANCAS, HACIENDA MONTE CLARO, KUKUI (SAN LUIS).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+010 Nq 003 COMUNIDAD*/. POBLADOS: ASENT. MONTE GALAN, BARRIO MARIA AUXILIADORA, COND. PRADOS DEL RIO, GAVILAN, HACIENDA LAS TRANCAS, HACIENDA MONTE CLARO, KUKUI (SAN LUIS).
+Nota: El poblado Finca Monte Galan se elimina del electoral Guardia (5-01-IV-002) y se reubica al electoral Comunidad (5-05-II-003) y se le modifica la denominación por Asent. Monte Galan
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 011 As 021 PASO TEMPISQUE (PARTE OESTE)*/. POBLADOS: FINCA DELICIAS, SAN RAFAEL.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO SARDINAL
 010 Rl 004 SARDINAL*D/. POBLADOS: BARRIO EL GUANACASTE, BARRIO LAS PALMAS*, BARRIO SIMON BOLIVAR, BARRIO VERDUN, BEJUCO, CARPINTERO, COLEGIO, IMAS (VIETNAM), NANCITAL, OBANDITO*, PILAS, PLAYONES, TABORES.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 011 Bñ 005 SAN BLAS*/. POBLADOS: EL MORAL (PARTE NORTE), FINCA ANITA, FINCA RASTROJO, FINCA SANTA ISABEL, GUAYABAL.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 010 Rh 006 ARTOLA*. POBLADOS: ARTOLITA, HUAQUITAS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 010 Ne 011 EL COCO*D/. POBLADOS: El PORVENIR, LA CHORRERA, LOS CANALES, OCOTAL, SAN MARTIN, URB. LA SEGOVIA.
-010 Jj 015 PANAMA O CACIQUE*. POBLADOS: HACIENDA MONTE DEL BARCO, HACIENDA ROBLE, PLAYA HERMOSA*.
-5 GUANACASTE
-05 CANTON CARRILLO
-Mapa
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+010 Jj 015 PANAMA O CACIQUE*. POBLADOS: HACIENDA MONTE DEL BARCO, PLAYA HERMOSA*.
+Nota: El poblado Hacienda El Roble se elimina del electoral Panamá o Cacique (5-05-III-015) y se crea como distrito electoral con la denominación de Altos del Roble (5-05-III-022).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 010 Sd 018 NUEVO COLON*. POBLADOS: DELICIAS, FINCA VASCONIA, FINCA VOLCAN, GUACAMAYA, PASO REAL, PASO VAINILLA, PLAYA BLANCA, PLAYA MATAPALO, ZAPOTAL.
-010 Om 019 SANTA RITA*. POBLADOS: ASENT. DANIEL ODUBER , FINCA LIBANO, NANCITE DULCE, TABLAZO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+010 Om 019 SANTA RITA*. POBLADOS: ASENT. DANIEL ODUBER, FINCA LIBANO, NANCITE DULCE, TABLAZO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+011 Am 020 LIBERTADAD (HUACAS)*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+010 Gn 022 ALTOS DEL ROBLE*. POBLADO: LA CASCADA.
+Nota: El poblado Hacienda El Roble se elimina del electoral Panamá o Cacique (5-05-III-015) y se crea como distrito electoral con la denominación de Altos del Roble (5-05-III-022). El poblado La Cascada se incluye oficialmente en la DTE.
+(Así adicionado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO BELEN
 011 Kq 007 BELEN*D/. POBLADOS: BARRIO LA VILLITA*, BARRIO LOS MOLINOS 1 Y 2, BARRIO SAN FRANCISCO, FINCA CARRIZAL, FINCA ESCARBADOR, FINCA GUANACASTE MOCHO, FINCA POCHOTADA, GALLINA, PALESTINA*, PALMAS, RINCON CACHIMBO, URB. ANA PAULA.
 011 Mn 008 SANTA ANA*/. POBLADOS: ALTO SAN ANTONIO, FINCA COYOLAR, FINCA MONTAÑITA, FINCA NUEVO MUNDO, HACIENDA LA MORA, JUANILAMA, LA PENCA, LLANO.
@@ -2166,14 +2431,27 @@ IV DISTRITO BELEN
 06 CANTON CAÑAS
 Mapa
 I DISTRITO CAÑAS
-028 Ip 001 CAÑAS*RD/. POBLADOS: ALBANIA, ANDEZA, BARRIO SANTA ISABEL ABAJO, BARRIO SANTA ISABEL ARRIBA, BARRIO MIGUEL ARAYA, BELLO HORIZONTE*, CANTARRANAS O SAN LUIS*, CONCEPCION, CUESTA DIABLO, CUESTA EL MICO, IMAS, INVU VIEJO*, KENNEDY, LA CORTE, LA CUEVA, LOS ANGELES, MIRAVALLES, PEDREGAL (URB. VERGEL), POCHOTA, PUEBLO NUEVO, RESID. NACAOME, RESID. VERGEL, SAN CRISTOBAL*, SAN PEDRO, SANDIAL*, SANTA ROSA, URB. LA GRAN PIEDRA, URB. LAS BRISAS (INVU), URB. LOS MALINCHES, URB. TENORIO, VILLA ESPERANZA.
+028 Ip 001 CAÑAS*RD/. POBLADOS: ALBANIA, ANDEZA, BARRIO SANTA ISABEL ABAJO, BARRIO SANTA ISABEL ARRIBA, BARRIO MIGUEL ARAYA, BELLO HORIZONTE*, CANTARRANAS O SAN LUIS*, CONCEPCION, CUESTA DIABLO, CUESTA EL MICO, IMAS, INVU VIEJO*, KENNEDY, LA CORTE, LA CUEVA, LOS ANGELES, MIRAVALLES, PEDREGAL (URB. VERGEL), PUEBLO NUEVO, RESID. NACAOME, RESID. VERGEL, SAN CRISTOBAL*, SAN PEDRO, SANDIAL*, SANTA ROSA, URB. LA GRAN PIEDRA, URB. LAS BRISAS (INVU), URB. LOS MALINCHES, URB. TENORIO.
+Nota: Los poblados Pochota y Villa Esperanza se eliminan del electoral Cañas (5-06-I-001) y se reubican al electoral Urb. Las Cañas (5-06-I-018).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 On 010 HOTEL*. POBLADOS: COLONIA SAN LUIS*, FINCA NILO, FINCA SANTA PAULA, LIBERTAD*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 Eo 011 SANDILLAL*/. POBLADOS: BARRIO LAS ROMANITAS, CEDROS*, COROBICI*, CORRENTADAS, EL CEPO, FINCA CONGOJAS, FINCA GUARIA, FINCA MARIA CRISTINA, FINCA PACIFICA, FINCA UNION, MONTES DE ORO, SAN ISIDRO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 Gu 012 EL VERGEL*. POBLADOS: FINCA CHARCONES, FINCA REJOYA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 Lr 014 JABILLA ABAJO*. POBLADOS: BARRIO LOS ULATE, FINCA SALITRAL, JABILLA ARRIBA, PASO LAJAS*, SAN ANTONIO.
-028 Io 015 SAN MARTIN*. POBLADOS: BARRIO UNION, FINCA PASO HONDO, FINCA POZO DE AGUA, TRES MARIAS, URB. VEROLIZ.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+028 Io 015 SAN MARTIN*. POBLADOS: BARRIO UNION, FINCA POZO DE AGUA, TRES MARIAS, URB. VEROLIZ.
+Nota: El poblado Finca Paso Hondo se elimina del electoral San Martin (5-06-I-015) y se reubica al electoral Urb. Las Cañas (5-06-I-018).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 Hp 016 LAS PALMAS*. POBLADOS: BARRIO EL BOSQUE, BARRIO EL CASTILLO, BARRIO SAN ANTONIO, URB. CHOROTEGA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 028 Kq 017 H. A. MARY BLANCO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+028 Ip 018 URB. LAS CAÑAS*. POBLADOS: FINCA PASO HONDO, POCHOTA, TERRAPEZ, VILLA ESPERANZA.
+Nota: El electoral creado es Urb. Las Cañas (5-06-I-018). Los poblados Pochota y Villa Esperanza se eliminan del electoral Cañas (5-06-I-001) y se reubican al electoral Urb. Las Cañas (5-06-I-018). El poblado Finca Paso Hondo se elimina del electoral San Martin (5-06-I-015) y se reubica al electoral Urb. Las Cañas (5-06-I-018). El poblado Terrapez se incluye oficialmente en la DTE
+(Así adicionado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO PALMIRA
 027 Oq 003 PALMIRA*/. POBLADOS: CABUYO, CORALES, FINCA AURORA, FINCA BOMBAY, FINCA GUACALITO, FINCA PRADERA DEL NORTE, FINCA SANTA CECILIA, HACIENDA VALLE DEL VIENTO, HUACAL, PANALES, SANTA LUCIA.
 027 Dt 006 NUEVA GUATEMALA*. POBLADOS: AGUA CALIENTE*, BAJO POTRERO, CARBONALES, COYOTA, FINCA CHOLUTECA, FINCA GUACHIPELIN, LAS FLORES, MARTIRIO, PARAISO (PARTE OESTE), TENORIO*, TENORITO, VUELTAS.
@@ -2233,10 +2511,15 @@ Mapa
 08 CANTON TILARAN
 Mapa
 I DISTRITO TILARAN
-038 Dd 001 TILARAN*D/. POBLADOS: ASENT. MONSEÑOR MORERA*, BARRIO BONANZA, BARRIO BUENOS AIRES*, BARRIO DOS PINOS, BARRIO SAN ANTONIO, BARRIO SANTA ROSA, BARRIO TOVAR, CAPRI (CABRA), CARMEN*, CIUD. JUAN XXIII, COLONIA ICE, FINCA BELLA VISTA, FINCA MANDELA, FINCA QUESERA, HACIENDA SILENCIO, INVU, LOMA LINDA, LOMBARDIA, PIAMONTE, TRES ESQUINAS, URB. CENIZAROS, URB. LINDA VISTA, URB. LOMAS DEL CARMEN, URB. LOMAS DEL SOL, URB. QUEBRADA AZUL.
-038 Hn 017 RIO CHIQUITO*. POBLADO: CHIRIPA.
+038 Dd 001 TILARAN*D/. POBLADOS: ASENT. MONSEÑOR MORERA*, BARRIO BONANZA, BARRIO BUENOS AIRES*, BARRIO DOS PINOS, BARRIO SAN ANTONIO, BARRIO SANTA ROSA, BARRIO TOVAR, CAPRI (CABRA), CARMEN*, CIUD. JUAN XXIII, FINCA BELLA VISTA, FINCA MANDELA, FINCA QUESERA, HACIENDA SILENCIO, INVU, LOMA LINDA, LOMBARDIA, PIAMONTE, TRES ESQUINAS, URB. CENIZAROS, URB. LINDA VISTA, URB. LOMAS DEL CARMEN, URB. LOMAS DEL SOL, URB. QUEBRADA AZUL.
+Nota: El poblado Colonia ICE se elimina del electoral Tilarán (5-08-I-001) y se reubica al electoral Los Ángeles de Santa Rosa (5-08-IV-007).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+038 Hn 017 RIO CHIQUITO*. POBLADOS: CHIRIPA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 037 Rg 023 SAN LUIS*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 038 Dd 024 H. A. TILARAN.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO QUEBRADA GRANDE
 038 Hf 002 QUEBRADA GRANDE*/. POBLADOS: CAMPOS DE ORO ABAJO, VUELTAS.
 038 Nk 003 SAN RAMON*. POBLADOS: EL DOS DE TILARAN, FINCA LINDA VISTA.
@@ -2249,7 +2532,11 @@ III DISTRITO TRONADORA
 038 Ep 021 VIEJO ARENAL*. POBLADOS: BARRIO LOS PEREZ, RIO CHIQUITO ABAJO*, SAN PEDRO (COLONIA MENONITA).
 038 Cj 022 SILENCIO*. POBLADOS: FINCA DELICIAS, LOS AYOTES.
 IV DISTRITO SANTA ROSA
-028 Bx 007 LOS ANGELES (SANTA ROSA)*/. POBLADOS: AGUILARES, CUESTA MUERTO, FINCA ESPERANZA, LA PALMA*, LOS MOISOS, SAN JUAN, SAN RAFAEL.
+028 Bx 007 LOS ANGELES (SANTA ROSA)*/. POBLADOS: AGUILARES, COLONIA ICE, CUESTA MUERTO, FINCA ESPERANZA, LA PALMA*, LOS MOISOS, SAN JUAN, SAN RAFAEL.
+Nota: El poblado Colonia ICE se elimina del electoral Tilarán (5-08-I-001) y se reubica al electoral Los Ángeles de Santa Rosa (5-08-IV-007).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+037 Oa 008 PARCELAS DE QUEBRADA AZUL (LINDA VISTA)*/. POBLADOS: CAMPOS AZULES, FINCA ALTAMIRA, FINCA LIRIO BLANCO, FINCA RETIRO, HACIENDA MONTECRISTO, NARANJOS AGRIOS, RANCHITOS*, SANTA CECILIA.
+(Así adicionado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 5 GUANACASTE
 08 CANTON TILARAN
 Mapa
@@ -2259,9 +2546,14 @@ V DISTRITO LIBANO
 038 Md 010 SAN JOSE*.
 038 Oa 015 SOLANIA*. POBLADO: MARAVILLA*.
 VI DISTRITO TIERRAS MORENAS
-037 Lg 006 AGUACATE*.
+037 Lg 006 AGUACATE (PARTE OESTE)*.
+Nota: Al electoral Aguacate se le modifica la denominación por Aguacate (Parte Oeste).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 027 Lx 011 TIERRAS MORENAS*/. POBLADOS: AGUAS GATAS, BAJO PAIRES, FINCA INDIA, FINCA ISLA, PARAISO (PARTE ESTE)*, SABALITO*, SAN LORENZO.
-037 Ld 019 GUADALAJARA*. POBLADO: RIO PIEDRAS*/.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+037 Ld 019 RIO PIEDRAS (GUADALAJARA)*.
+Nota: Al electoral Guadalajara se le modifica la denominación por Río Piedras (Guadalajara).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 VII DISTRITO ARENAL
 037 Nl 014 ARENAL NUEVO*D/. POBLADOS: ASENTAMIENTO HERMANOS SIBAJA, BARRIO SAN ANTONIO*, MATA DE CAÑA NORTE.
 037 Sp 018 LA UNION*. POBLADOS: FINCA IGUAZU, MATA DE CAÑA SUR*, SANGREGADO*.
@@ -2272,9 +2564,14 @@ I DISTRITO CARMONA
 022 Bz 001 CARMONA*D/. POBLADOS: BARRIO CAMBOYA, CAMAS, LIMONES, LOS HULES, MAQUENCO DE CARMONA, SAN RAFAEL*, VISTA DE MAR*.
 022 Bz 027 H. A. SAGRADO CORAZON DE JESUS.
 II DISTRITO SANTA RITA
-021 Py 002 SANTA RITA*/. POBLADOS: ANGOSTURA, FINCA PALMICHAL, GUASTOMATAL, HACIENDA ROXANA*, MOROTE (PARTE SUR)*, YERBABUENA (PARTE SUR), ZANJONES.
+021 Py 002 SANTA RITA*/. POBLADOS: ANGOSTURA, FINCA PALMICHAL, GUASTOMATAL, MOROTE (PARTE SUR)*, YERBABUENA (PARTE SUR), ZANJONES.
+Nota: El poblado Hacienda Roxana se elimina del electoral Santa Rita (5-09-II-002) y se reubica al electoral Cacao (5-09-II-024).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 021 Ot 016 TACANIS*/.
-021 Mw 024 CACAO*. POBLADOS: GUARIA, UVITA (PARTE SUR)*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+021 Mw 024 CACAO*. POBLADOS: GUARIA, HACIENDA ROXANA*, UVITA (PARTE SUR)*.
+Nota: El poblado Hacienda Roxana se elimina del electoral Santa Rita (5-09-II-002) y se reubica al electoral Cacao (5-09-II-024).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO ZAPOTAL
 021 Su 003 SAN ANTONIO DE ZAPOTAL*/. POBLADO: RIO BLANCO (ESTE DEL RIO).
 022 Kn 008 SAN PEDRO*.
@@ -2282,8 +2579,12 @@ III DISTRITO ZAPOTAL
 022 Gq 017 SAN RAMON*/. POBLADOS: BALSA DE RIO ORA, CABECERAS DE RIO ORA, CUESTA BIJAGUA, FINCA FLORIDA, LEONA, MANZANALES, SOLEDAD (CANGREJAL)*.
 021 Sp 025 RIO DE ORO*/. POBLADO: FINCA GEMELAS.
 IV DISTRITO SAN PABLO
-030 Pb 004 SAN PABLO*/. POBLADOS: BARRIO LA UVITA, FINCA LAGUNA, FINCA POZO DE PIEDRA, ISLA BERRUGATE, MATADERO DE BERRUGATE, SAN PABLO VIEJO.
-031Ae 018 PAVONES*/. POBLADOS: CANJEL*, CANJELITO (LAS PARCELAS)*/, CHAMARRO, COROZAL OESTE, PUERTO THIEL*.
+030 Pb 004 SAN PABLO*/. POBLADOS: BARRIO LA UVITA, FINCA LAGUNA, FINCA POZO DE PIEDRA, ISLA BERRUGATE, MATADERO DE BERRUGATE, PUERTO THIEL*, SAN PABLO VIEJO.
+Nota: El poblado Puerto Thiel se elimina del electoral Pavones (5-09-IV-018) y se reubica al electoral San Pablo (5-09-IV-004).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+031Ae 018 PAVONES*/. POBLADOS: CANJEL*, CANJELITO (LAS PARCELAS)*/, CHAMARRO, COROZAL OESTE.
+Nota: El poblado Puerto Thiel se elimina del electoral Pavones (5-09-IV-018) y se reubica al electoral San Pablo (5-09-IV-004).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 V DISTRITO PORVENIR
 022 Fw 005 BELLAVISTA*. POBLADO: DELICIAS.
 022 Hu 010 CERRO AZUL*/. POBLADOS: ALTO PALOMAS, CABECERAS DE RIO BEJUCO, SANTIAGO.
@@ -2649,26 +2950,45 @@ V DISTRITO PIEDRAS BLANCAS
 108 Oy 032 SINAI*. POBLADO: FILA.
 VI DISTRITO BAHIA DRAKE
 096 Nk 016 DRAKE*/. POBLADOS: AGUJITAS*, BOCA GANADO, BUENA VISTA, CALETAS*, EL PROGRESO*, GUERRA*, ISLA DEL CAÑO, LLORONA, LOS ANGELES*, PIEDRA EL ARCO, PLAYA COLORADA, QUEBRADA GANADO, SAN PEDRILLO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 110 Da 027 RIYITO DE SIERPE*. POBLADOS: BANEGAS (PARTE SUR), FINCA QUEBRADA SUCIA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 096 Pr 033 RANCHO QUEMADO O DELICIAS*. POBLADO: CHIQUERON.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 096 Sh 038 LOS PLANES*. POBLADO: SAN JOSECITO (RINCON)*.
-097 Hy 039 ALTO LAGUNA*/.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+097 Hy 039 ALTO LAGUNA*/. POBLADO: DOS BRAZOS (CIUDADELA GUAYMI).
+Nota: El poblado Ciudadela Guaymi se elimina del electoral La Palma o Independencia (6-07-II-003) y se reubica al electoral Alto Laguna (6-05-VI-039). El poblado Ciudadela Guaymi se le modifica la denominación por dos Brazos (Ciudadela Guaymi).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 6 PUNTARENAS
 06 CANTON AGUIRRE
 Mapa
 I DISTRITO QUEPOS
 072 Ij 001 QUEPOS*RD/. POBLADOS: ARENAL, BARRIO BELLAVISTA, BARRIO EL CERRO O TIPO H, BARRIO PARAISO, BARRIO VISTA BOSQUE, COLINAS DEL ESTE*, ESPADILLA, ZONA AMERICANA, LOS ANGELES, RANCHO GRANDE (INVU)*, TAJO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Al 002 CERRITOS*. POBLADOS: GALLEGA*, GUACALILLO, LAS PARCELAS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Be 006 DAMAS*. POBLADOS: FINCA PIRRIS, PAPATURRO, RIOS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Rh 012 SAN RAFAEL (CERROS)*. POBLADOS: APAGON, CANTA RANA, CAÑAS, CERROS ARRIBA*, EL PRECARIO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Jp 016 RONCADOR*. POBLADOS: BOCA DE NARANJO, FINCA BARTOLO, FINCA MONA*, FINCA QUEBRADA AZUL, LLAMARON, LLORONA*, PASTORA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Ov 021 MARITIMA*. POBLADO: DELICIAS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Fh 025 PAQUITA*. POBLADOS: CAÑITAS, ESTERO DAMAS, FINCA ANITA*, JUNTA NARANJO O EL SWITCH, PUEBLO REAL, VISTA DE MAR.
-072 Gl 031 LA INMACULADA*. POBLADOS: BARRIO LAS PALMAS, BARRIO SAN MARTIN, FINCA PASCUA, LA MANAGUA, LOMAS DEL CRUCE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+072 Gl 031 LA INMACULADA*. POBLADOS: BARRIO LAS PALMAS, BARRIO LOURDES, BARRIO SAN MARTIN, FINCA PASCUA, LA MANAGUA, LOMAS DEL CRUCE.
+Nota: El poblado Barrio Lourdes se elimina del electoral Naranjito (6-06-III-003) y se reubica al electoral Inmaculada (6-06-I-031).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Kk 033 MANUEL ANTONIO*. POBLADOS: EL CRUCE, SECTOR LOS LIRIOS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Hj 034 BOCA VIEJA*. POBLADOS: BAHIA AZUL, CALLE LOS ALFARO, VENECIA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Hi 035 COCAL*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Fh 038 H. A. PAQUITA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO SAVEGRE
 072 Pz 004 PASITO*. POBLADOS: EL PASO, RESBALON.
 082 Ad 009 MATAPALO*/. POBLADOS: PLATANILLO, PLAYA MATAPALO, SAN ANDRES*.
@@ -2683,11 +3003,15 @@ Mapa
 072 Hy 032 SANTO DOMINGO*. POBLADO: DELICIAS.
 081 Qb 037 PORTALON*.
 III DISTRITO NARANJITO
-072 Do 003 NARANJITO*/. POBLADOS: BARRIO LOURDES, CONCEPCION, PASCUA.
+072 Do 003 NARANJITO*/. POBLADOS: CONCEPCION, PASCUA.
+Nota: El poblado Barrio Lourdes se elimina del electoral Naranjito (6-06-III-003) y se reubica al electoral Inmaculada (6-06-I-031).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Ds 007 VILLANUEVA*. POBLADOS: COTOS, NENE, PASO REAL, SANTA JUANA*, TOCORI.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Et 027 LONDRES*/. POBLADOS: BUENOS AIRES, CAPITAL, PASO DE LOS INDIOS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 It 036 SABALO*. POBLADOS: BAJO SAVEGRE, BIJAGUAL, FINCA EL NEGRO*.
-6 PUNTARENAS
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 07 CANTON GOLFITO
 Mapa
 I DISTRITO GOLFITO
@@ -2700,24 +3024,41 @@ I DISTRITO GOLFITO
 121 Fs 032 KILOMETRO 20*. POBLADOS: AGROINDUSTRIAL*, FINCA SAN MARTIN, KILOMETRO 24*, RESID. JORGE BRENES DURAN.
 121 Dh 037 H. A. GOLFITO.
 II DISTRITO PUERTO JIMENEZ
-110 Ot 002 PUERTO JIMENEZ*D/. POBLADOS: AGUA BUENA, BALSA, CARATE, CARBONERA*, COYUNDA, FINCA BAMBU*, FINCA CATALINA, FINCA COROZAL, FINCA DELICIAS, FINCA SAN MARTIN, FINCA ZAPOTE, LACONTE, PIRO*, PLAYA MATAPALO, PLAYA SOMBRERO, PLAYA TIGRE, PUEBLO NUEVO, RIO NUEVO, RIO ORO*, URB. EL COLEGIO, URB. FABRI, URB. SAN LAZARO.
-110 Cf 003 LA PALMA O INDEPENDENCIA*D. POBLADOS: AMAPOLA*, CERRO DE ORO, CIUDADELA GUAYMI, GUADALUPE*, PLAYA BLANCA, PUERTO ESCONDIDO DE JIMENEZ*, URB. CERRITOS.
-6 PUNTARENAS
-07 CANTON GOLFITO
-Mapa
+110 Ot 002 PUERTO JIMENEZ*D/. POBLADOS: BALSA, COYUNDA, FINCA BAMBU*, FINCA CATALINA, FINCA COROZAL, FINCA DELICIAS, FINCA SAN MARTIN, FINCA ZAPOTE, LACONTE, PLAYA TIGRE, PUEBLO NUEVO, RIO NUEVO, URB. EL COLEGIO, URB. FABRI, URB. SAN LAZARO.
+Nota: El poblado Carbonera se elimina del electoral Puerto Jimenez (6-07-I-002) y se crea como distrito electoral con la denominación de Carbonera (6-07-II-038). Los poblados Agua Buena, Carate, Piro, Playa Matapalo, Playa Sombrero y Río Oro se eliminan del electoral Puerto Jimenez (5-06-I-002) y se reubican al electoral Carbonera (6-07-II-038).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+110 Cf 003 LA PALMA O INDEPENDENCIA*D. POBLADOS: AMAPOLA*, CERRO DE ORO, GUADALUPE*, PLAYA BLANCA, PUERTO ESCONDIDO DE JIMENEZ*, URB. CERRITOS.
+Nota: El poblado Ciudadela Guaymi se elimina del electoral La Palma o Independencia (6-07-II-003) y se reubica al electoral Alto Laguna (6-05-VI-039).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 110 Jj 004 CAÑAZA DE JIMENEZ*. POBLADOS: AGUJAS ABAJO (BARRIO BONITO)*, AGUJAS ARRIBA, CONTE DE PALO SECO*, MONTERREY, SAN MIGUEL*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 110 Oñ 009 BOCA GALLARDO DE SANDALO*. POBLADOS: DOS BRAZOS DE RIO TIGRE*, LAJITAS, PLAYA ÑEQUE*, SANDALO*, TERRONES, TIGRE DE JIMENEZ.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+111 Kv 038 CARBONERA*. POBLADOS: AGUA BUENA, CARATE, MATAPALO, PIRO*, PLAYA SOMBRERO, RIO ORO*.
+Nota: El poblado Carbonera se elimina del electoral Puerto Jimenez (6-07-I-002) y se crea como distrito electoral con la denominación de Carbonera (6-07-II-038). Los poblados Agua Buena, Carate, Piro, Playa Matapalo, Playa Sombrero y Río Oro se eliminan del electoral Puerto Jimenez (5-06-I-002) y se reubican al electoral Carbonera (6-07-II-038). El poblado Playa Matapalo se le modifica la denominación por Matapalo.
+(Así adicionado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 III DISTRITO GUAYCARA
-120 Mj 005 VILLA BRICEÑO*. POBLADOS: ACAPULCO, BOLSA, EL ALTO (VINCENZI), GAMBA*D, KILOMETRO 33*, LA JULIETA (KILOMETRO 35)*, RIO BONITO.
+120 Mj 005 VILLA BRICEÑO (KILOMETRO 37)*. POBLADOS: ACAPULCO, BOLSA, EL ALTO (VINCENZI), GAMBA*D, KILOMETRO 33*, LA JULIETA (KILOMETRO 35)*, RIO BONITO.
+Nota: Al electoral Villa Briceño se le modifica la denominación por Villa Briceño (Kilometro 37)
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Rt 010 RIO CLARO*D/. POBLADOS: BAMBEL 1*, BAMBEL 2 Y 3*, BAMBEL 4, BARRIO RASTRO (POLIDEPORTIVO), BARRIO RITA CALDERON, BARRIO SANTIAGO*, CHIQUEROS, COLONIA LUZ DEL MUNDO, FINCA RIO CLARO, GORRION*, LA ESPERANZA (IDA)*, LA GLORIA, LA GRANJA CAMPESINA, LA GUARIA, LOS ANGELES*, URB. GUAYCARA, URB. GUAYMI, URB. SILVERIO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Mu 015 LLANO BONITO*. POBLADO: LINDA VISTA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Mñ 016 UNION DE COTO NORTE*. POBLADO: BUENA VISTA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Ik 017 VALLE DE LOS CEDROS O SAN MIGUEL*. POBLADO: BAJO CEDROS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Qz 023 CARACOL NORTE (PARTE)*. POBLADOS: LAS NUBES (PARTE OESTE)*, SANTIAGO DE CARACOL (PARTE OESTE)*, TIGRA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Rñ 026 VIQUILLAS*. POBLADOS: KILOMETRO 30, KILOMETRO 31, VILLA FOSTER (KILOMETRO 29)*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Os 031 LAGARTO (LA LUCHA)*. POBLADO: SAN FRANCISCO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 120 Qt 035 SAN RAMON*. POBLADOS: LAS DELICIAS*, LAS VEGAS*, PARCELAS IDA, URB. EL ESFUERZO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 121 Fz 036 FINCA 54*. POBLADOS: COTO 63*, FINCA COOPERATIVA*, FINCA 55, FINCA 56*, FINCA 57, FINCA 58*, FINCA 59, GORRION, PUEBLO TRISTE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO PAVON
 122 Gv 006 CONTE DE PAVON*/. POBLADOS: CUERVITO*, ESTRELLA*, TIGRITOS*.
 121 Pl 008 ZANCUDO (PUERTO NUEVO)*D. POBLADO: SABALOS.
@@ -2804,50 +3145,90 @@ Mapa
 Mapa
 I DISTRITO PARRITA
 062 Rr 001 PARRITA*D/. POBLADOS: ISLA PALO SECO*, LOS ALMENDROS, PUEBLO NUEVO*/ , URB. CESAR.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 052 Pz 002 ESTERILLOS OESTE*. POBLADOS: FINCA RANCHO NUEVO, HIGUITO*, PUNTA MALA, SAN JULIAN*, VILLAS XIHU, VISTA DE MAR*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Mh 004 CHIRES ARRIBA*. POBLADOS: CHIRES ABAJO, GUAPINOL*, JICOTE ARRIBA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Kr 005 SARDINAL SUR*. POBLADO: MONTE SIERPE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Ok 006 LOMAS DE PARRITA*. POBLADOS: FINCA ESPERANZA, LA LOMA*, LA PALMA*, LA 45, LOS SUEÑOS*, PROYECTO GRUPOS 1 AL 9.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Po 007 LOS ANGELES*. POBLADO: RESID. LAS ACACIAS
-062 Nq 008 EL TIGRE*. POBLADOS: JICOTE, LA CORONA, REFORMADORES, TECA, VALLODOLID ETAPAS I y II.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+062 Nq 008 EL TIGRE*. POBLADOS: JICOTE, LA CORONA, REFORMADORES, TECA, VALLADOLID ETAPAS I y II.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Hp 010 CHIRRACA*. POBLADOS: MESAS*, RINCON DE MORALES.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Ht 011 SAN ISIDRO DE PLAYON*/.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Ht 012 SURUBRES*. POBLADOS: FILA DE SURUBRES, I GRIEGA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Ou 013 PALO SECO*. POBLADOS: BARBUDAL*, FINCA NICOYA*, FINCA SANTA RITA, LOURDES (SARDINAL)*, SAN BOSCO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Ow 014 VUELTA DE POCARES*. POBLADO: LA PLANTA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Pa 015 POCARES*. POBLADO: SAN ISIDRO DE POCARES.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Jz 016 PORVENIR O LAS VEGAS*. POBLADO: SAN JUAN*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 071 Mc 017 SAN RAFAEL NORTE (RIO SECO)*. POBLADOS: ASENTAMIENTO POCARITOS (RIO SECO), SAN RAFAEL SUR.
-071 Of 018 ASENTAMIENTO PIRRIS (LAS PARCELAS)*. POBLADOS: SAN ANTONIO*, VALERIA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+071 Of 018 LAS PARCELAS O DAMITAS (PIRRIS)*. POBLADOS: SAN ANTONIO*, VALERIA
+Nota: Al electoral Asentamiento Pirris (Las Parcelas) se le modifica la denominación por Las Parcelas o Damitas (Pirris)
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 072 Fd 019 ISLA DAMAS*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Fr 020 PIRRIS*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Ew 021 BAMBU*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Et 023 VALLE VASCONIA (BARRO)*. POBLADO: SAN GERARDO*.
-6 PUNTARENAS
-09 CANTON PARRITA
-Mapa
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Pg 024 BEJUCO*. POBLADO: ESTERILLOS ESTE*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Qr 025 LA JULIETA*. POBLADOS: FINCA LIGIA, INVU LA GUARIA*, LOMA LINDA, SITRADIQUE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Iq 026 PLAYON SUR*/.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 062 Rm 027 BANDERA*. POBLADO: PLAYA DE PALMA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+071 Ee 028 CARMEN (PARTE SUR)*. POBLADOS: CHONTA, PALMAS, PIEDRAS DE FUEGO, ROBLAR*.
+Nota: El electoral Carmen (1-06-V-021) se elimina del administrativo Legua (1-06-V), se reubica al administrativo Parrita (6-09-I) con el código 6-09-I-028 y se le modifica la denominación por Carmen (Parte Sur).
+(Así adicionado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 6 PUNTARENAS
 10 CANTON CORREDORES
 Mapa
 I DISTRITO CORREDOR
 132 Cg 001 NEILY*RD/. POBLADOS: BARRIO CARTONERA, BARRIO EL CARMEN*D, BARRIO EMPLEADOS MUNICIPALES, BARRIO ESTADIO, BARRIO LAS PISCINAS, BARRIO EL PROGRESO, BARRIO LA UNION, BARRIO REDONDEL, BARRIO SALAS VINDAS (CANTU), BOSQUE, CAÑO SECO, CAPRI, CIUD. GONZALEZ*, CIUD. LA COLINA, CIUD. 22 DE OCTUBRE*, INVU, LA ESPERANZA, LA FUENTE*, SAN JUAN, SAN RAFAEL*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 131 Ph 002 CAMPO DOS Y MEDIO*. POBLADOS: CAMPO DOS, CUESTA DE CAL, FLORIDA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 131 Rl 003 BAJO LOS INDIOS*. POBLADO: GUAYABI*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Hh 004 COTO CUARENTA Y DOS*. POBLADOS: ARGENTINA, BETEL, COTO CUARENTA Y TRES, FINCA 45*, SAN JOSECITO, TROPEZON.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Hd 005 COTO CUARENTA Y SIETE*/. POBLADOS: CAÑADA, CASTAÑOS*, CENTRAL CAMPESINA (FINCA 20)*, COTO CUARENTA Y OCHO, COTO CUARENTA Y SEIS, ESTRELLA DEL SUR*, FINCA EL CLAVO, FINCA 44*, FINCA 49*, FINCA 50*, FINCA 51*, FINCA 52*, FINCA 53, PANGAS*, SANTA RITA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Gn 006 ABROJO NORTE (VEGAS DE ABROJO NORTE)*. POBLADOS: ALTO ABROJO (CACORAGUA)*, MIRAMAR*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 121 Ry 007 CAMPIÑA*. POBLADOS: EL BARRIDO, PUEBLO NUEVO DE COTO*/.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 131 Pn 015 LOS PLANES*. POBLADOS: ALTO LIMONCITO, VILLA ROMA.
-132 Fj 016 CARMEN*. POBLADOS: ABROJO OESTE, COLORADITO NORTE, FINCA MIRLAS, SAN ANTONIO/, SANTA MARTA (PARTE OESTE).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+132 Fj 016 CARMEN (COLORADITO NORTE)*. POBLADOS: ABROJO OESTE, FINCA MIRLAS, SAN ANTONIO/, SANTA MARTA (PARTE OESTE).
+Nota: Al electoral Carmen se le modifica la denominación por Carmen (Coloradito Norte).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Be 022 RIO BONITO DE NEILY*. POBLADOS: AGUILARES, CARACOL SUR, UNION.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 De 024 FORTUNA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Bn 027 ABROJO-MONTEZUMA*/. POBLADOS: BAJO LIMONCITO (FRONTERA)*, MONTEZUMA O BELLAVISTA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Cc 029 RIO NUEVO*. POBLADOS: CARACOL NORTE (PARTE SUR), CEIBO, LAS NUBES (PARTE ESTE), SANTIAGO DE CARACOL (PARTE ESTE), URB. PALMA REAL.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Bc 030 H. A. NEILY.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 6 PUNTARENAS
 10 CANTON CORREDORES
 Mapa
@@ -2855,12 +3236,20 @@ II DISTRITO LA CUESTA
 133 Ap 008 LA CUESTA*D/. POBLADOS: CANOAS ABAJO (PARTE SUR), CIUD. TAMAYO, CONTROL*, CUERVITO, EL CHORRO, FINCA BOTAS*, FINCA CEIBO, IMAS, URB. ZUMBADO.
 III DISTRITO CANOAS
 132 Pq 011 CANOAS*D. POBLADOS: ALTO BRUJO*, BARRIO CARTIN, BARRIO LA LIBERTAD, BETANIA, CANOAS ABAJO (PARTE NORTE), CAÑAZA DE CANOAS, URB. CAMPOBELLO.
-132 Jn 012 BARRIO NUEVO DE VERACRUZ*. POBLADOS: ALTO SAN ANTONIO*/, BAJO BRUJO, CERRO BRUJO, COLORADITO SUR, GUAYABAL, PALO SECO, SANTA MARTA (PARTE ESTE), URB. BARRIO NUEVO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+132 Jn 012 BARRIO NUEVO DE VERACRUZ*. POBLADOS: ALTO SAN ANTONIO*/, BAJO BRUJO, CERRO BRUJO, GUAYABAL, PALO SECO, SANTA MARTA (PARTE ESTE) (COLORADITO SUR), URB. BARRIO NUEVO.
+Nota: Al poblado Santa Marta (Parte Este) se le modifica la denominación por Santa Marta (Parte este) (Coloradito Sur).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Oh 013 COLORADO*. POBLADOS: GUAY, LOS BAJOS, PALMA*, VEGUITAS DE COLORADO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Mk 014 MARIPOSA*. POBLADOS: LA GLORIA, NISPERO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Lr 023 SAN MARTIN*. POBLADOS: CANOAS ARRIBA, SAN MIGUEL*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Mo 031 DARIZARA*. POBLADOS: CIUD. EL TRIUNFO*, SAN ISIDRO*, VILLAS DE DARIZARA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 132 Oq 032 BARRIO SAN JORGE*D. POBLADOS: ASENT. PADILLA, BARRIO BRIGADA, BARRIO SAN GIL.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO LAUREL
 133 Gk 009 LAUREL*D/. POBLADOS: FINCA BAMBITO*, FINCA CAIMITO*, FINCA CAUCHO*, FINCA COROTU, FINCA JOBO, FINCA MANGO*, FINCA PERAL, JOBO CIVIL*, PUERTO GONZALEZ VIQUEZ/.
 133 Hb 017 BELLA LUZ*D. POBLADOS: COYOCHE*, INCENDIO*, MONTEVERDE*, SANTA LUCIA*.
@@ -2930,13 +3319,22 @@ Mapa
 Mapa
 104 Eb 044 JAKKÜE (SITIO HILDA PARTE ESTE)*. POBLADOS: DUCHIITAWASI (PARTE ESTE), JOCTALI, MANZANILLO*.
 III DISTRITO RIO BLANCO
-113 Bm 002 LIVERPOOL*/. POBLADOS: LIMON 2000*, MEXICO, NUEVE MILLAS DE LIVERPOOL, RESID. CARIBE, RIO MADRE, SANDOVAL.
+113 Bm 002 LIVERPOOL*/. POBLADOS: LIMON 2000*, MEXICO, NUEVE MILLAS DE LIVERPOOL, RESID. CARIBE, RIO MADRE, SAN ANTONIO, SANDOVAL.
+Nota: El poblado San Antonio se elimina del electoral Santa Rita (7-01-III-033) y se reubica al electoral Liverpool (7-01-III-002).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 113 Dk 011 RIO BLANCO*D. POBLADOS: QUITO*, VICTORIA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 113 Ge 018 BRISAS DE VERAGUA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 112 Ri 020 BUFALO*. POBLADOS: CEDRO O CEDAR CREEK*, LA LAGUNA, LOMAS DE BUFALO, LOMAS DEL TORO (PARTE ESTE), PLANTEL DE BUFALO.
-113 Dm 033 SANTA RITA*. POBLADOS: MIRAVALLES (SANTA RITA SUR)*, SAN ANTONIO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+113 Dm 033 SANTA RITA*. POBLADOS: MIRAVALLES (SANTA RITA SUR)*.
+Nota: El poblado San Antonio se elimina del electoral Santa Rita (7-01-III-033) y se reubica al electoral Liverpool (7-01-III-002).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 113 Dk 037 C. P. RIO BLANCO (SANDOVAL).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 113 As 047 LOMA LINDA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 IV DISTRITO MATAMA
 113 Jt 003 LA BOMBA*. POBLADO: CASTILLO NUEVO*.
 113 Gz 012 WESTFALIA*. POBLADO: CALLE TRANVIA.
@@ -2994,19 +3392,27 @@ Mapa
 086 Mk 041 LLANO BONITO*. POBLADOS: AGUAS FRIAS, ASENTAMIENTO LA LIDIA*, MATA DE LIMON (DUACARI UNO)*, NAZARETH*, VEGAS DEL TORTUGUERO*.
 076 Ez 049 C. P. ROXANA (MODULOS D-E).
 V DISTRITO CARIARI
-086 Pb 006 CAMPO KENNEDY*D/. POBLADOS: BARRIO SAN JUAN, BOREAL, CALLE ALVARADO, CAMPO DE ATERRIZAJE*, CRISTO REY, ESPAÑA, FINCA FORMOSA*, FINCA URANIA, HERMANOS, LA FLORESTA, LA GLORIA, LA GUARIA, LA ORQUIDEA, PALERMO*, SAGRADA FAMILIA*, URB. EL LLANO.
+086 Pb 006 CARIARI (CAMPO KENNEDY)*D/. POBLADOS: BARRIO SAN JUAN, BOREAL, CALLE ALVARADO, CAMPO DE ATERRIZAJE*, CRISTO REY, ESPAÑA, FINCA FORMOSA*, FINCA URANIA, HERMANOS, LA FLORESTA, LA GLORIA, LA GUARIA, LA ORQUIDEA, PALERMO*, SAGRADA FAMILIA*, URB. EL LLANO.
+Nota: Al electoral Campo Kennedy se le modifica la denominación por Cariari (Campo Kennedy)
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 075 Rw 012 BANAMOLA*. POBLADOS: FINCA PERDIZ, NAZARETH*, PROYECTO LA SOLE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Nd 015 CAMPO CINCO (SEMILLERO)*. POBLADOS: CAMPO 3*, CAMPO 4*, FINCA COOPECABAN, PAVANA (IDA), TEL AVIV, URB. EL ENCANTO*, VILLA HERMOSA (URB. LAS GAVIOTAS).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Kd 024 LOS ANGELES*. POBLADOS: CAROLINA TICA*, FINCA PONDEROSA, HOJANCHA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Kf 025 CAMPO DOS*. POBLADOS: CANTARRANA, COOPECARIARI.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Fi 026 CUATRO ESQUINAS*D. POBLADOS: ASENT. MANA*, ASENT. MONTERREY*, CASA VERDE*, FINCA FRUTERA, LA ESPERANZA*, VEGAS DEL RIO PALACIO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Eñ 027 EL CEIBO*. POBLADOS: ASENT. LA LUCHA, CAÑO CHIQUERO, SAN FRANCISCO*, ZACATALES.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Rb 042 ASTUA Y PIRIE*. POBLADOS: BARRIO EL CARMEN, BARRIO LAS GAVIOTAS, COLONIA ZELEDON (PARTE OESTE)*, FINCA TORTUGUERO, PUEBLO NUEVO, ROXANITA, SAN MARCOS, SAN MIGUEL.
-7 LIMON
-02 CANTON POCOCI
-Mapa
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Na 043 PROGRESO*. POBLADOS: FINCA ALGARBA, FINCA CARIBE, FINCA OESTE, FRUTERA ATLANTICA*, LA VUELTA, LOS LAGOS*, LOS LIRIOS, URB. LAS BRISAS*, URB. NUEVO CARIBE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 086 Ob 052 H. A. CARIARI.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 VI DISTRITO COLORADO
 084 Hp 002 BARRA DEL COLORADO*D/. POBLADOS: AGUA DULCE, AGUA FRIA*, ARAGON, BARRA COLORADO ESTE, ISLA BUENA VISTA*, PORTILLOS.
 085 Oz 021 BOCA TORTUGUERO*. POBLADOS: BOCA LAGUNAS, ISLA CUATRO ESQUINAS, LAGUNA CUATRO, LAGUNA OCHO, LAGUNA SEIS, PANAWIE, PERRO CATON, TEMPORALES.
@@ -3066,8 +3472,12 @@ V DISTRITO EL CAIRO
 087 Pu 032 BELLAVISTA*.
 VI DISTRITO ALEGRIA
 088 Ip 005 ALEGRIA*. POBLADOS: RIO PEJE, VUELTAS.
-088 Fr 013 ALTO HEREDIANA (SAN ISIDRO)*. POBLADOS: ALTO GERMANIA*, BARRIO NUEVO DE SAN ISIDRO, EL CRUCE*, GRANO DE ORO*, LA ESMERALDA, LA Y GRIEGA.
-088 Fp 036 PORTON IBERIA*. POBLADO: EL CEIBO*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+088 Fr 013 SAN ISIDRO (ALTO HEREDIANA)*. POBLADOS: ALTO GERMANIA*, BARRIO NUEVO DE SAN ISIDRO, EL CRUCE*, GRANO DE ORO*, LA ESMERALDA, LA Y GRIEGA.
+Nota: Al electoral Alto Herediana (San Isidro) se le modifica la denominación por San Isidro (Alto Herediana).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+088 Fp 036 PORTON IBERIA*. POBLADO: EL CEIBO*
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 7 LIMON
 04 CANTON TALAMANCA
 Mapa
@@ -3096,13 +3506,21 @@ Mapa
 125 In 018 BORDON*. POBLADOS: GIBRALTAR, LIMONAL, SAN RAFAEL*, TUBA CREEK (PARTE SUR)*.
 IV DISTRITO TELIRE
 126 Qf 002 AMUBRI*/. POBLADOS: ALTO BUICHPANI, ALTO CACHABRI*, ALTO CHINANGUCH, ALTO SURISAM, ALTO UREN*, BARRIO LOS DIQUES, BOCA TSUIDI, CACHABRI (CACHABALI)*, CERRO SIOLA, CERRO STUTUK, CORBITA, CRORIÑAC, CUESTA BUGU, CWACHCA, GUACHALAVA, KAMUK, KIVUT, LUMBETA, NAMU O UOKI*, NIMASO, OURUT, PURISQUI, PURITA, SIPURIO (TSPURIO), SOQI (TSOQI PARTE OESTE)*, SUKUT, SURAYO, SWIRI*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 126 Oa 003 COROMA (COLOQCHA)*/. POBLADOS: ALTO LARI, BAJO CUEN (CWEYKE)*, DURIÑAC*, FINCA SURUGURA, PIEDRA PINTADA, RIO COEN.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 126 Rh 013 KATSI*. POBLADOS: BOCA UREN (ULEYÑAC)*, BRIS*, DURURPE*, NAMUWOQI (TULUBOC QICHA)*, TSOQI (PARTE ESTE).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 126 Mb 015 SEPEQUE*. POBLADOS: BARRIO ESCALANTE, FINCA JURUGURA, KICHUGUECHA, MOJONCITO*, OROCHICO*, SAN JOSE CABECAR.
-115 Gd 020 TELIRE (BLEY)*D. POBLADOS: ALTO BLEY, ALTO TELIRE (TELIRE TAWA), BISULARI, BROY, CERRO AGUILA, DYESQIRA, NAQEAGRI, PJUJU, RANGALLE (BICOLORI), TQEY, XORBATA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+115 Gd 020 BAJO TELIRE (BAJO BLEY)*D. POBLADOS: ALTO BLEY, BISULARI, BROY, CERRO AGUILA, DYESQIRA, NAQEAGRI, PJUJU, RANGALLE (BICOLORI), TQEY, XORBATA.
+Nota: Al electoral Telire (Bley) se le modifica la denominación por Bajo Telire (Bajo Bley)*. El poblado AltoTelire (Telire Tawa) se elimina de la DTE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 126 Qo 022 YORKIN*. POBLADOS: BRAI, SHUABB*.
-104 Ls 023 JAKCATACLA (MESA DE PIEDRA)*. POBLADOS: BATUBATA (TORTUGAL), BECBTA (GUAYABAL)*, DATZIRIBATA (MONTEVERDE), XIQEY (RIO EXEY).
-.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+104 Ls 023 ALTO TELIRE (BAJO PIEDRA MESA)*. POBLADOS: ALTO PIEDRA MESA, BATUBATA (TORTUGAL), BECBTA (GUAYABAL)*, DATZIRIBATA (MONTEVERDE), XIQEY (RIO EXEY).
+Nota: Al electoral Jakcatacla (Mesa de Piedra) se le modifica la denominación por Alto Telire (Bajo Piedra Mesa)*. El poblado Alto Piedra Mesa se incluye oficialmente en la DTE.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 7 LIMON
 05 CANTON MATINA
 Mapa
@@ -3136,12 +3554,22 @@ III DISTRITO CARRANDI
 Mapa
 I DISTRITO GUACIMO
 087 Oh 001 GUACIMO*D/. POBLADOS: AFRICA*, ANGELINA, CABAÑA, CAMINO LA GUAIRA*, CANTARRANA, EL TRES, FINCA RUDIN, FOX HALL, GUAYACAN, INVU, LA PERLA*, LANDHURST, LAS PALMITAS*, LIBANO, LOS GERANIOS*, LOS OLIVOS, LUCANIA, MANZANOS, OTILIA, PARAISO, REINALDO KENNEDY, RESID. LAS ARALIAS, ROCA, SAN GERARDO, SELVA*, SIRIA, SUCESO, URB. LOS COLEGIOS.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 087 Me 002 HOGAR*. POBLADOS: CALLE CINCO, CALLE CUATRO, CALLE SEIS, EDEN*.
-087 Jh 003 BOSQUE*. POBLADOS: AGUACATE*, EL UNO, FINCA ROSALIA, FINCA TORRENTES, LA MANUDITA*.
-087 Pk 004 PARISMINA*. POBLADOS: AGRIMAGA*, ESTACION RUDIN, LINDA VISTA.
-087 Kj 012 SAN LUIS*. POBLADO: FINCA COBAL.
-088 Ai 017 LAS COLINAS*. POBLADO: ISLETA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+087 Jh 003 BOSQUE*. POBLADOS: AGUACATE*, FINCA ROSALIA, FINCA TORRENTES, LA MANUDITA*.
+Nota: El poblado El Uno se elimina del electoral Bosque (7-06-I-003) y se reubica al electoral San Luis (7-06-I-012).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+087 Pk 004 PARISMINA*. POBLADOS: ESTACION RUDIN, LINDA VISTA.
+Nota: El poblado Agrimaga se elimina del electoral Parismina (7-06-I-004) y se reubica al electoral Río Jimenez (Balsaville) (7-06-IV-007).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+087 Kj 012 SAN LUIS*. POBLADOS: EL UNO, FINCA COBAL.
+Nota: El poblado El Uno se elimina del electoral Bosque (7-06-I-003) y se reubica al electoral San Luis (7-06-I-012).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
+88 Ai 017 LAS COLINAS*. POBLADO: ISLETA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 087 Nh 018 H. A. DAVID GARRO.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 II DISTRITO MERCEDES
 087 Rn 005 IROQUOIS*. POBLADOS: BREMEN, CONFIANZA, DELICIAS, LOS LIRIOS*, MERCEDES*, TIERRA GRANDE*, TURRIALBA.
 III DISTRITO POCORA
@@ -3153,10 +3581,13 @@ III DISTRITO POCORA
 06 CANTON GUACIMO
 Mapa
 IV DISTRITO RIO JIMENEZ
-087 Ko 007 RIO JIMENEZ (BALSAVILLE)*D/. POBLADOS: CARTAGENA*, CRUCE A CARTAGENA, DULCE NOMBRE, ESCOCIA DE RIO JIMENEZ*, FINCA CLEMENCIA, FINCA ESMERALDA, FINCA RIO JIMENEZ, FINCA TRINIDAD,
-JARDIN, LAS ORQUIDEAS, LIGIA (PUEBLO NUEVO)*, NARANJOS*, RAMAL DE PARISMINA, SANTA MARIA*, SOCORRO (IDA).
+087 Ko 007 RIO JIMENEZ (BALSAVILLE)*D/. POBLADOS: AGRIMAGA*, CARTAGENA*, CRUCE A CARTAGENA, DULCE NOMBRE, ESCOCIA DE RIO JIMENEZ*, FINCA CLEMENCIA, FINCA ESMERALDA, FINCA RIO JIMENEZ, FINCA TRINIDAD, JARDIN, LAS ORQUIDEAS, LIGIA (PUEBLO NUEVO)*, NARANJOS*, RAMAL DE PARISMINA, SANTA MARIA*, SOCORRO (IDA).
+Nota: El poblado Agrimaga se elimina del electoral Parismina (7-06-I-004) y se reubica al electoral Río Jimenez (Balsaville) (7-06-IV-007).
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 087 Iu 008 SANTA ROSA*. POBLADOS: BOCAS DEL RIO SILENCIO*, EL CAMARON*, FINCA ENCANTO, FINCA ESCONDIDO, FINCA IRLANDA*, LA LUCHA*.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 087 Fu 011 LOS ANGELES*. POBLADO: FINCA SIRENA.
+(Así reformado el distrito anterior mediante decreto del Tribunal Supremo de Elecciones N° 10-2016 del 23 de agosto del 2016)
 V DISTRITO DUACARI
 087 Fñ 009 VILLAFRANCA*/. POBLADOS: AGUAS GATAS, CARAMBOLAS*, CRISTO REY, FINCA BARZONE, FINCA ESCORPIONES, FRUTA DE PAN*.
 086 Sp 013 PUEBLO NUEVO O ZANCUDO*. POBLADOS: LOMAS DE GUACIMO*, SAN FRANCISCO.
