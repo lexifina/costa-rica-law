@@ -19,3 +19,4 @@ Reglamento sobre autorizaciones de entidades supervisadas por la SUGEF
 | 4 | 2011-02-04 | Reglamento 900 (2011-02-04) |
 | 5 | 2012-02-06 | Reglamento 959 (2012-02-06) |
 | 6 | 2013-04-09 | Reglamento 1036 (2013-04-09) |
+| 7 | 2016-08-23 | Reglamento 1273 (2016-08-23) |
