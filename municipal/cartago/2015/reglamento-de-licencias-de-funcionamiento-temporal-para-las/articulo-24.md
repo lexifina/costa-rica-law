@@ -1,1 +1,0 @@
-Artículo 24.—Deber del organizador del evento. El organizador de las actividades festividades con ocasión del Aniversario del Hallazgo de la Virgen de los Ángeles, deberá acreditar haber cumplido con la totalidad de requisitos exigidos en el Reglamento de Concentraciones Masivas, y en general con la Legislación vigente.
