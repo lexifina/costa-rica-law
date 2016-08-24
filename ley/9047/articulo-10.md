@@ -1,22 +1,47 @@
-ARTÍCULO 10.- Pago de derechos trimestrales
-Los sujetos pasivos que tengan licencia para el expendio de bebidas con contenido alcohólico deberán realizar, trimestralmente a la municipalidad respectiva, el pago por anticipado de este derecho que se establecerá según el tipo de licencia que le fue otorgado a cada establecimiento comercial conforme a su actividad principal, establecido en la clasificación que señala el artículo 4 de la siguiente forma:
-1.- Licencia clase A: de un salario base y hasta dos salarios base.
-2.- Licencia clase B: de medio salario base y hasta un salario base.
-(*)3.- Licencia clase C: un salario base.
-- Licencia clase C1: (Anulado de este inciso la frase: "medio salario base", mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013.)
-- Licencia clase C2: (Anulado de este inciso la frase: "un salario base", mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013.)
-(*) (Mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013, se interpretó conforme al Derecho a la Constitución que los montos únicos por concepto de pago de derechos trimestrales establecidos en el inciso 3), significan el límite máximo por aplicar, lo que implica que cada municipio puede fijar provisionalmente un límite mínimo de acuerdo con el potencial de explotación de cada negocio dentro de su respectiva clase de licencia, según sea su ubicación, tamaño, tipo de infraestructura, entre otros parámetros objetivos, todo ello hasta tanto el legislador no regule al respecto.)
-4.- Licencia clase D:
-- Licencia clase D1: de un salario base y hasta dos salarios base.
-- Licencia clase D2: de dos salarios base y hasta tres salarios base.
-(*)5.- Licencia clase E:
-- Licencia clase E1a: un salario base.
-- Licencia clase E1b: dos salarios base.
-- Licencia clase E2: tres salarios base.
-- Licencia clase E3: dos salarios base.
-- Licencia clase E4: tres salarios base.
-- Licencia clase E5: un salario base.
-(*) (Mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013, se interpretó conforme al Derecho a la Constitución que los montos únicos por concepto de pago de derechos trimestrales establecidos en el inciso 5), para las Licencias Clase E1a, E1b, E2, E3, E4 y E5, significan el límite máximo por aplicar, lo que implica que cada municipio puede fijar provisionalmente un límite mínimo de acuerdo con el potencial de explotación de cada negocio dentro de su respectiva clase de licencia, según sea su ubicación, tamaño, tipo de infraestructura, entre otros parámetros objetivos, todo ello hasta tanto el legislador no regule al respecto)
+Artículo 10.- Los sujetos pasivos que tengan licencia para el expendio de bebidas con contenido alcohólico deberán realizar trimestralmente a la municipalidad respectiva el pago anticipado de este derecho, que se establecerá según el tipo de licencia que le fue otorgado a cada establecimiento comercial conforme a su actividad principal.
+El hecho generador del derecho trimestral lo constituye el otorgamiento de la licencia de expendio de bebidas con contenido alcohólico por cada municipalidad.
+Los parámetros para determinar la potencialidad del negocio serán:
+a) El personal empleado por la empresa.
+b) El valor de las ventas anuales netas del último período fiscal.
+c) El valor de los activos totales netos del último período fiscal, con los cuales se aplicará la siguiente fórmula:
+P=[ (0,6 x pe/NTcs) + (0,3 x van/VNcs) + (0,1 x ate/Atcs)] x 100
+Donde:
+P: puntaje obtenido por el negocio.
+pe personal promedio empleado por el negocio durante el último período fiscal.
+NTcs: parámetro de referencia para el número de trabajadores de los sectores de comercio y servicios.
+van: valor de las ventas anuales netas del negocio en el último período fiscal.
+VNcs: parámetro monetario de referencia para las ventas netas de los sectores de comercio y servicios.
+ate: valor de los activos totales netos de la empresa en el último período fiscal.
+ATcs: parámetro monetario de referencia para los activos netos de los sectores de comercio y servicios.
+Para el caso del ATcs, no podrá tener un valor menor de diez millones de colones.
+Los valores NTcs, VNcs y ATcs serán actualizados según lo hace anualmente el Ministerio de Economía, Industria y Comercio, por medio de Digepyme, de conformidad con lo señalado en la Ley N.° 8262, Ley de Fortalecimiento de las Pequeñas y Medianas Empresas, de 2 de mayo de 2002.
+Con sustento en la anterior fórmula, las licencias se clasificarán en las siguientes subcategorías de acuerdo con el puntaje obtenido:
+Subcategoría 1. puntaje obtenido menor o igual a 10
+Subcategoría 2. puntaje obtenido mayor de 10 y menor o igual a 35
+Subcategoría 3. puntaje obtenido mayor de 35, pero menor o igual a 100
+Subcategoría 4. puntaje obtenido mayor de 100
+La tarifa a cobrar, en razón del otorgamiento de la patente municipal, para las diferentes categorías y subcategorías, se establece conforme a la siguiente tabla:
+Categoría | Subcategoría 1 | Subcategoría 2 | Subcategoría 3 | Subcategoría 4
+Licorera (A) | ¼ | 3/8 | ½ | 1 ½
+Bar (B1) | * | 3/8 | ½ | 1
+Bar c/ actividad bailable (B2) | ¼ | 3/8 | ½ | 1
+Restaurant (C) | ** | 3/8 | ½ | 1
+Minisúoer (D 1) | 1/8 | 3/8 | ½ | 1
+Supermercado (D2) | ½ | ¾ | 1 | 2 ½
+Hospedaje <15 (E 1 a) *** | ¼ | 3/8 | ½ | 1
+Hospedaje >15 (E 1B) | ½ | 5/8 | ¾ | 1 ½
+Marinas (E2) | ½ | ¾ | 1 | 2 ½
+Gastronómicas (E3) | ½ | ¾ | 1 | 1 ½
+Centros nocturnos (E4) | ½ | ¾ | 1 | 2
+Actividades temáticas (E5) | ¼ | 3/8 | ½ | 1
+* Para los sujetos pasivos de la categoría de bar (B1), la fracción a pagar para los clasificados en la subcategoría 1 es de 1/4 para los sujetos pasivos ubicados en el distrito primero del respectivo cantón, y 1/8 para los sujetos pasivos ubicados en los distritos restantes del respectivo cantón.
+** Para los sujetos pasivos de la categoría de restaurante (C) la fracción a pagar para los sujetos pasivos clasificados en la subcategoría 1 es de 1/4 para los sujetos pasivos ubicados en el distrito primero del respectivo cantón, y de 1/8 para los sujetos pasivos ubicados en los distritos restantes del respectivo cantón.
+*** Los sujetos pasivos categorizados como "Hospedaje < 15 (E1a)" y "Hospedaje > 15 (E1b)", de cualquier subcategoría, ubicados en distritos distintos al distrito primero del respectivo cantón, pagarán 3/4 de la tarifa establecida en la tabla anterior.
+Esta tabla mantiene la clasificación de licencias establecida en el artículo 4 de esta ley.
+La fracción indicada en la tabla anterior para cada subcategoría corresponde a la proporción del salario base establecido en el artículo 2 de la Ley N.° 7337, de 5 de mayo de 1993, y sus reformas.
 La licencia referida en el artículo 3 podrá suspenderse por falta de pago, o bien, por incumplimiento de los requisitos y las prohibiciones establecidos por esta ley y su reglamento, que regulan el desarrollo de la actividad.
-El pago extemporáneo de los derechos trimestrales está sujeto a una multa del uno por ciento (1%) por mes sobre el monto no pagado o fracción de mes hasta un máximo de un veinte por ciento (20%), y al pago de intereses.
-(Mediante resolución de la Sala Constitucional N° 11499 del 28 de agosto de 2013, se estableció que: “…deviene inconstitucional que en todas las clases de licencia contempladas en esa norma (incluso las que tienen un mínimo y un máximo como rango), no esté regulado que la graduación del mencionado monto se debe aplicar conforme al potencial de explotación de cada negocio dentro de su respectiva clase de licencia, según sea su ubicación, tamaño, tipo de infraestructura, entre otros parámetros objetivos. Tal determinación corresponde al legislador ordinario; no obstante, a efectos de evitar el surgimiento de un vacío legal que cause graves dislocaciones a la seguridad, la justicia o la paz sociales, la Sala toma como referencia el criterio anterior del legislador incorporado en el artículo 12 de la Ley N° 10 (Ley sobre venta de licores) únicamente en cuanto al uso del parámetro de ubicación para determinar el monto del cobro de patentes, y, por ende, establece como medida excepcional y transitoria que hasta tanto el legislador ordinario no disponga otra cosa, los rangos estatuidos en el mencionado ordinal 10 únicamente serán aplicables a los negocios localizados en las cabeceras de provincia, debiendo reducirse a la mitad en el caso de las cabeceras de cantón y en una cuarta parte cuando se trata de las demás poblaciones..”)
+El pago extemporáneo de los derechos trimestrales está sujeto a una multa de entre un uno por ciento (1%) hasta un máximo de veinte por ciento (20%) sobre el monto no pagado.
+El pago extemporáneo de los derechos trimestrales está sujeto al pago de intereses.
+Los negocios que se estén iniciando en la comercialización de bebidas con contenido alcohólico y todavía no hayan declarado en el último período fiscal pagarán los patentados el monto establecido en la categoría correspondiente y el rubro establecido en la subcategoría 1, establecida en el artículo 10 de esta ley.
+A la entrada en vigencia de esta ley, por única vez y por el plazo improrrogable de un año, se autoriza a las municipalidades y a los consejos municipales de distrito para que condonen las deudas acumuladas entre junio de 2012 y la entrada en vigencia de esta ley, por concepto del pago de patentes de licores, con sustento en la autonomía municipal administrativa y tributaria.
+(Así reformado por el artículo único de la ley N° 9384 del 24 de agosto de 2016)
