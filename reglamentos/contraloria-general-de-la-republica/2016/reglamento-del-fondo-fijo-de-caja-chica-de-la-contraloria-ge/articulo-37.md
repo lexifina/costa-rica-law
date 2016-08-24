@@ -1,0 +1,1 @@
+Artículo 37° Responsables del manejo de las Sub Cajas Chicas Auxiliares. El manejo de las Sub Cajas Chicas Auxiliares estará cada una a cargo de una persona designada por la Jefatura de la Unidad de Administración Financiera y la Jefatura de la Unidad de Servicios de Proveeduría, respectivamente, y su supervisión corresponderá a cada superior inmediato.

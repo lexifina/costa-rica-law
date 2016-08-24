@@ -1,0 +1,2 @@
+Artículo 17° Trámite de adelantos para gastos de viaje. Los adelantos de dinero para cubrir gastos de viaje en el interior del país deberán ser tramitados mediante el Sistema de Viáticos y Transporte institucional.
+Los adelantos para cubrir gastos de viaje así como los gastos de representación ocasionales y los conexos, todos en el exterior del país, se realizarán conforme al correspondiente acuerdo de viaje.

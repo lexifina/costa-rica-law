@@ -1,0 +1,1 @@
+Artículo 5° Monto del pago máximo. El monto del pago máximo a incurrir en gastos por medio del Fondo Fijo de Caja Chica, se establecerá de conformidad con los límites económicos emitidos por la Tesorería Nacional para cada período presupuestario.

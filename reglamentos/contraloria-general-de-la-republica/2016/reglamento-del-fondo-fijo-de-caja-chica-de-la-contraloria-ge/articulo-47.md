@@ -1,0 +1,1 @@
+Artículo 47° Responsable de efectuar los reintegros. Las personas encargadas de las Sub Cajas Chicas Auxiliares deberán estar atentos de presentar la respectiva solicitud de reintegro al Fondo, en el momento que consideren más oportuno, con el fin de evitar atrasos en las compras requeridas por la institución.

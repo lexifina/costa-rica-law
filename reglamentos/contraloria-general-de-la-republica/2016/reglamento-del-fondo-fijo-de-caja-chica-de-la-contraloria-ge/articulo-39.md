@@ -1,0 +1,1 @@
+Artículo 39° Arqueo de las Sub Cajas Chicas Auxiliares. Diariamente al finalizar las operaciones del día, las personas encargadas de las Sub Cajas Chicas Auxiliares, deberán efectuar un arqueo de todos los valores.

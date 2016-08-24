@@ -1,0 +1,1 @@
+Artículo 46° Arqueos. Los fondos de las Sub Cajas Chicas Auxiliares estarán sujetos a arqueos periódicos, sin previo aviso, por parte de la Auditoría Interna y las Jefaturas de la Unidad de Administración Financiera y de la Unidad de Servicios de Proveeduría, según corresponda.

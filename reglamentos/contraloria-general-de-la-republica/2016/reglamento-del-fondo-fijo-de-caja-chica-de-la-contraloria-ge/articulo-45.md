@@ -1,0 +1,1 @@
+Artículo 45° Prohibición de realizar transacciones distintas a las que se destinan los fondos. Los fondos de las Sub Cajas Chicas Auxiliares no deberán servir para realizar cambios de cheques u operaciones distintas a las que se destinan dichos fondos.

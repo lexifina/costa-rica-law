@@ -1,0 +1,1 @@
+Artículo 44° Responsabilidad por pagos improcedentes. Si por negligencia se incurre en pagos improcedentes, la persona encargada del fondo de Sub Caja Chica Auxiliar respectivo, deberá reintegrar el monto erogado.
