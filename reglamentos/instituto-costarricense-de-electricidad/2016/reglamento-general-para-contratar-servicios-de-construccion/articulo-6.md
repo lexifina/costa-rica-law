@@ -1,0 +1,3 @@
+Artículo 6. Conformación y custodia del expediente
+a. La Dirección de Proveeduría Institucional es la encargada de mantener en custodia los expedientes del Registro Precalificado o incluirlos en el sistema Mer-link, los cuales deben contener los atestados de cada persona inscrita al registro y el expediente de cada contratación en la que resulte seleccionado.
+b. El expediente administrativo o de Mer-link de cada contrato, contendrá toda la documentación relacionada con la contratación. En el expediente se debe incluir un informe sobre la ejecución del contrato y su correspondiente finiquito, el cual debe firmar el contratista y el administrador del contrato, de conformidad con el Reglamento Interno de Contratación Administrativa (RICA).

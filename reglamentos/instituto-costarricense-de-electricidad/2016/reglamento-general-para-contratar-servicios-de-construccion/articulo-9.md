@@ -1,0 +1,9 @@
+Artículo 9. Adjudicación por sorteo a precio fijo
+a. En esta modalidad de adjudicación, el ICE invita a los oferentes inscritos en el Registro Precalificado que cuenten con frentes disponibles para realizar los trabajos requeridos y le comunicará los requerimientos de los servicios a contratar a precio fijo, debiendo entenderse que el ICE determina previamente el precio de los servicios a contratar.
+b. Se invita a los oferentes incluidos en el Registro Precalificado, cuya conformación esté regulada en el Capítulo II de este reglamento y estén habilitados a participar en un sorteo, a fin de distribuir entre éstos los servicios o bienes a contratar.
+c. El acto de adjudicación de los servicios a contratar se realiza por sorteo, en el lugar y hora previamente establecidos, con los oferentes elegibles que se encuentren presentes.
+d. El sorteo se efectúa de la siguiente manera:
+i. En un recipiente cerrado se depositan igual cantidad de esferas numeradas que los servicios a contratar, a los que se asignará un número correspondiente a una esfera numerada.
+ii. Luego cada oferente elegible, o su representante saca una esfera del recipiente y el número que tenga esa esfera corresponderá al servicio que deberá realizar. En cada sorteo, la dependencia gestionante de la contratación levanta un acta, la cual será suscrita por los oferentes que se encuentren presentes en el momento del sorteo.
+e. El orden de elección de las esferas por parte de los oferentes se realiza por el método de sorteo.
+f. En el mismo acto del sorteo la persona física o jurídica adjudicada, firmará un formulario aceptando la asignación del servicio que el ICE solicite. Este documento se tendrá como la notificación de la adjudicación por parte de la Administración y la aceptación de la misma por parte del oferente favorecido.
