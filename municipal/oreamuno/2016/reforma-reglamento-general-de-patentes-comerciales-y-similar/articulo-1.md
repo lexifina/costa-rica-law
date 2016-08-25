@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE OREAMUNO
+Se le comunica al público en general que de acuerdo a la publicación en el Diario Oficial La Gaceta Nº 126 de fecha 30 de junio del 2016, ya rige la reforma de Reglamento General de Patentes Comerciales y Similares de la Municipalidad de Oreamuno, que indica lo siguiente:
+Artículo 7º—Una vez realizada la inspección el encargado de la Unidad Tributaria procederá al análisis y verificación de requisitos y aprobará o rechazará la solicitud de la licencia. En caso de rechazo, la resolución correspondiente tendrá los recursos de admisión o revocatoria y apelación ante el Alcalde Municipal.
