@@ -14,3 +14,4 @@ Procedimiento para registro simplificado de productos cosméticos y alimentos de
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-08 | la propia norma |
+| 2 | 2016-08-25 | Decreto Ejecutivo 39920 (2016-08-25) |

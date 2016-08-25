@@ -1,5 +1,6 @@
 Artículo 3-. DEFINICIONES. Para fines de este procedimiento se entenderá por:
-a) Alimento de bajo riesgo: productos listados en el anexo a este decreto, que no tengan etiquetado nutricional.
+a) Alimento de bajo riesgo: productos listados en el anexo a este decreto.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39920 de 25 de agosto del 2016)
 b) Producto Cosmético: Es toda sustancia o preparado destinado a ser puesto en contacto con las diversas partes superficiales del cuerpo humano (epidermis, sistemas piloso y capilar, uñas, labios y órganos genitales externos) o con los dientes y las mucosas bucales, con el fin exclusivo o principal de limpiarlos, perfumarlos, modificar su aspecto y/o corregir los olores corporales y/o protegerlos o mantenerlos en buen estado. El producto que, en razón de su composición, se le atribuye propiedades terapéuticas, deberá registrarse como medicamento.
 c) Producto Cosmético de bajo riesgo: productos listados en el anexo a este decreto.
 d) Registro: Es el proceso mediante el cual el Ministerio autoriza la comercialización de un producto con base a la solicitud o notificación del administrado, que se presenta acompañada de la documentación requerida para su evaluación, registro estadístico y posterior vigilancia.
