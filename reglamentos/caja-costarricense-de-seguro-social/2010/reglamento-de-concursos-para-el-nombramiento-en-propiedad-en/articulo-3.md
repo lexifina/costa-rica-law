@@ -43,3 +43,20 @@ Solicitar la información necesaria a las instancias pertinentes para la resoluc
 Declarar la inadmisibilidad de los recursos que no cumplan con las causales establecidas en el punto uno y trasladar al superior jerárquico de quien resolvió el recurso de revocatoria para su resolución.
 Además, el Tribunal Resolutivo en Materia de Concursos, presentará semestralmente un informe a la Gerencia Administrativa sobre los casos conocidos y resueltos, para que sea de conocimiento de la Junta Directiva.
 (*)(Así adicionado el párrafo anterior mediante sesión N° 8819 del 11 de enero del 2016)
+(*)Tribunal Resolutivo en Materia de Concursos, conformado de la siguiente manera, el cual estará constituido por cuatro representantes de las siguientes instancias:
+a) Titular Director, Dirección Administración y Gestión de Personal/ Suplente.
+b) Titular Jefatura del Área Dotación de Personal/ Suplente.
+c) Titular Asesor Legal Dirección Administración y Gestión de Personal / Suplente.
+d) Titular Jefatura del Área de Asesoría Laboral, Dirección de Bienestar Laboral / Suplente.
+El Director o su suplente presidirá las sesiones del Tribunal Resolutivo en Materia de Concursos, será quien convoque a dicha sesiones y tendrá voto de calidad en caso de empate.
+La asistencia a las sesiones es obligatoria para los titulares y solo podrá asistir el suplente de forma excepcional y previa justificación ante quien presida el Tribunal, quien decidirá sobre su procedencia; situación que debe quedar consignada en el acta de la sesión.
+Las sesiones ordinarias del Tribunal se realizarán como mínimo dos veces al mes y de manera extraordinaria a criterio del Presidente.
+Para sesionar deberán estar presentes al menos tres de los miembros del Tribunal, siendo obligatoria la presencia del Presidente.
+De cada sesión se levantará un acta en la que constatarán los miembros presentes, los asuntos tratados y las resoluciones adoptadas.
+Las resoluciones se adoptarán por mayoría simple de los miembros presentes.
+El Tribunal Resolutivo en Materia de Concursos tendrá las siguientes competencias:
+l. Resolver el recurso de apelación contra la adjudicación de la plaza en los concursos vía nómina, en aspectos que determinan la idoneidad señalados en los artículos 13 y 20 del Reglamento de Concursos para nombramiento en propiedad en la Caja Costarricense de Seguro Social.
+2. Solicitar la información necesaria a las instancias pertinentes para la resolución del recurso.
+3. Declarar la inadmisibilidad de los recursos que no cumplan con las causales establecidas en el punto uno y trasladar al superior jerárquico de quien resolvió el recurso de revocatoria para su resolución.
+Además, el Tribunal Resolutivo en Materia de Concursos presentará semestralmente un informe a la Gerencia Administrativa sobre los casos conocidos y resueltos, para que sea de conocimiento de la Junta Directiva.
+(*)(Así adicionado el párrafo anterior mediante sesión N° 8860 del 25 de agosto del 2016)
