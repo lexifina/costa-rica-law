@@ -15,3 +15,4 @@ Declara oficial para efectos administrativos la aprobación de la División Terr
 | --- | --- | --- |
 | 1 | 2015-11-12 | la propia norma |
 | 2 | 2016-02-29 | Acuerdo 6 (2016-02-29) |
+| 3 | 2016-08-26 | Acuerdo 25 (2016-08-26) |

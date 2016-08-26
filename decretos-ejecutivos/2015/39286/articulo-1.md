@@ -1,4 +1,5 @@
 N° 39286-MGP
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 40184 del 9 de enero de 2017, se publicó la División Territorial Administrativa de la República.)
 (Nota de Sinalevi: Sobre este tema el Poder Ejecutivo había aprobado anteriormente el decreto ejecutivo N° 37559 del 31 de enero de 2013, "Declara oficial para efectos administrativos la División Territorial Administrativa de la República")
 EL PRESIDENTE DE LA REPÚBLICA
 Y EL MINISTRO DE GOBERNACIÓN Y POLICÍA
@@ -353,10 +354,12 @@ Barrios: Acacias, Arboleda, Asturias, Estudiantes, Florida, González Truque, Je
 Barrios: Bajo Piuses, Copey, Leiva Urcuyo, Lilas, Lomas del Pinar, Montecarlo, Santa Teresa.
 113 03 ANSELMO LLORENTE: Villa: ALTITUD: 1155 m.
 Barrios: Apolo, Dalia, Estancia, Fletcher, Franjo, Jardines de Tibás, Jardines La Trinidad, Monterreal, Palmeras, Santa Mónica, Talamanca, Vergel.
-113 04 LEON XIII: Villa: ALTITUD 1094 m.
+113 04 LEON XIII(*): Villa: ALTITUD 1094 m.
 Barrios: Doña Fabiola, Garabito.
-113 05 COLIMA: Villa: ALTITUD 1130 m.
+(*) (Mediante acuerdo N° 025 del 26 de agosto de 2016, se modificó el límite del distrito de Colima con el distrito de León XIII del cantón 13, Tibás, de la Provincia de San José, para que, la Octava Etapa de Cuatro Reinas deje de pertenecer al distrito de León XIII y oficializarse como parte del Distrito La Colima. Asimismo los límites pueden ser consultados en el artículo 2° del acuerdo antes mencionado.)
+113 05 COLIMA(*): Villa: ALTITUD 1130 m.
 Barrios: Anselmo Alvarado, Balsa, Cuatro Reinas, Orquídeas, Rey, San Agustín.
+(*) (Mediante acuerdo N° 025 del 26 de agosto de 2016, se modificó el límite del distrito de Colima con el distrito de León XIII del cantón 13, Tibás, de la Provincia de San José, para que, la Octava Etapa de Cuatro Reinas deje de pertenecer al distrito de León XIII y oficializarse como parte del Distrito La Colima. Asimismo los límites pueden ser consultados en el artículo 2° del acuerdo antes mencionado.)
 Hojas del mapa básico 1:50 000 (IGN): Abra.
 Hojas del mapa 1:10 000 (IGN): Pavas, Santo Domingo, Torres.
 CANTÓN 114: MORAVIA
