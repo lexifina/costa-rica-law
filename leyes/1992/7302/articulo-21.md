@@ -1,2 +1,1 @@
-ARTICULO 21.- DEROGADO.-
-(Derogado por el artículo 5º de la ley No.7605 de 2 de mayo de 1996)
+ARTICULO 21.- (Derogado por el artículo 5º de la ley No.7605 de 2 de mayo de 1996. Posteriormente se deroga nuevamente por el artículo 9 de la ley N° 9381 del 29 de julio del 2016, Ley de Caducidad de Derechos de Pensión de Hijos e Hijas y Reformas a la Ley de Pensiones de Hacienda)

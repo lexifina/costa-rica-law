@@ -1,0 +1,3 @@
+ARTÍCULO 2.- Ámbito de aplicación
+La presente ley es aplicable a los hijos beneficiarios e hijas beneficiarias de pensión del Régimen de Hacienda por la Ley N.º 148, Ley de Pensiones de Hacienda, de 23 de agosto de 1943, y sus reformas y, específicamente, a quienes no se les aplicó en el momento del otorgamiento los correctivos de la Ley N.º 7302, de 8 de julio de 1992.
+En lo que respecta al Régimen de Pensión Hacienda-Diputados, esta ley es aplicable a quienes gocen de un derecho de pensión al amparo de lo dispuesto en el artículo 13 de la Ley N.º 148, Ley de Pensiones de Hacienda, de 23 de agosto de 1943, y sus reformas.

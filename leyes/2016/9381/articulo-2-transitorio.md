@@ -1,0 +1,3 @@
+TRANSITORIO II.- Los hijos e hijas que al momento de la entrada en vigencia de esta ley tengan una pensión aprobada al amparo de la Ley N.° 148, Ley de Pensiones de Hacienda, de 23 de agosto de 1943, y sus reformas, y además tengan al menos sesenta y cinco años de edad, conservarán su pensión por el resto de su vida y por el mismo régimen especial de pensión con cargo al presupuesto nacional que hasta la fecha de entrada en vigencia de esta ley hayan venido disfrutando.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República, San José, a los veintinueve días del mes de julio del año dos mil dieciséis.
