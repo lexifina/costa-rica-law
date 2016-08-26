@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de los Consejos Regionales de Desar
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-29 | la propia norma |
+| 2 | 2016-08-26 | Decreto Ejecutivo 39882 (2016-08-26) |
