@@ -1,0 +1,6 @@
+Artículo 3.- Aprobación de Actividades Oficiales en el Exterior.
+La Dirección CAI deberá presentar mediante memorando a la Administración Superior la propuesta de actividad oficial en el exterior emitida por la Subgerencia de Área y demás dependencias, justificando la conveniencia, importancia y aporte que se genere a la Institución.
+Le corresponde a la Administración Superior:
+a. Aprobar o desaprobar las salidas a actividades oficiales en el exterior, de acuerdo a lo establecido en el Artículo N°7, del Capítulo II del Reglamento de Gastos de Viaje y Transporte para funcionarios Públicos de la Contraloría General de la República.
+b. La aprobación será mediante la firma y sello del Formulario de Justificación de Actividades Oficiales en el Exterior emitido por la Dirección CAI, y con base en este documento se elaborará la Resolución de Actividades Oficiales en el Exterior.
+c. En el caso de que en sesión de Junta Directiva se tome el Acuerdo de incluir en la participación a algún funcionario, deberá informar a la Dirección CAI para que coordine con el servidor lo que corresponde a la gestión del exterior. Además, deberá remitir copia de todo Acuerdo de Junta Directiva de Actividades Oficiales en el Exterior de algún miembro de la Administración Superior.
