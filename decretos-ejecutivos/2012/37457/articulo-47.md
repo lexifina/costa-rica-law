@@ -1,6 +1,6 @@
 CAPÍTULO XI
 Generalidades
-Artículo 47.—Generalidades. Todas las direcciones, unidades y departamentos, además de las funciones que le corresponden deberán cumplir con las siguientes:
+Artículo 47.-Generalidades. Todas las direcciones, unidades y departamentos, además de las funciones que le corresponden deberán cumplir con las siguientes:
 a. Asesorar y brindar el criterio técnico-legal en materia de su competencia a las autoridades superiores.
 b. Definir prioridades y dar seguimiento a las metas establecidas mediante la formulación del Plan Estratégico y el Plan Operativo Anual con la finalidad de contribuir con el alcance de la misión y el cumplimiento de las políticas institucionales.
 c. Promover como parte de la administración activa un ambiente propicio para la operación del control interno.
@@ -14,10 +14,14 @@ j. Analizar y resolver problemas que se presentan en el desarrollo de las labore
 k. Rendir cuentas de su labor ante el Despacho Ministerial, así como ante otras instituciones y dependencias cuando la naturaleza del trabajo así lo requiera.
 l. Cuando lo requiera el jerarca, representar a la institución ante comisiones, comités, grupos de trabajo, seminarios, talleres, nacionales e internacionales en materia de su competencia.
 m. Asistir a reuniones con superiores o subalternos y representar a la institución, con el fin de coordinar actividades, mejorar métodos y procedimientos de trabajo, analizar y resolver problemas que se presentan en el desarrollo de las labores y proponer a los niveles superiores las políticas, planes, programas y proyectos de trabajo a realizar.
-n. Coordinar con la Dirección de Cooperación Internacional la elaboración, presentación y ejecución de los programas y proyectos relacionados con su competencia que requieran de recursos de cooperación internacional, así como la conformidad de los viajes al exterior.
-o. Brindar la información solicitada por la Unidad Asesora de Planificación, en tiempo, suficiencia, certeza y claridad.
+n. Coordinar con la Unidad de Cooperación Internacional la elaboración, presentación y ejecución de los programas y proyectos relacionados con su competencia que requieran de recursos de cooperación internacional, así como la conformidad de los viajes al exterior .
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
+o. Brindar la información solicitada por la Unidad de Planificación Institucional, en tiempo, suficiencia, certeza y claridad.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
 p. Cuando informes, investigaciones y/o estudios que se realicen arrojen datos no confidenciales económicos, mercado y otro de un bien, servicio y/o sector se debe remitir una copia de los mismos a la Dirección de Investigaciones Económicas y de Mercado, para alimentar la base de datos económicos y de mercado.
-q. Todas las Comisiones y comités institucionales que deben funcionar de acuerdo con la normativa vigente, deben presentar su plan de trabajo anual, así como los informes de seguimiento semestral y cumplimiento anual a la Unidad de Planificación.
-r. Coordinar con la Unidad de Planificación la elaboración y ejecución de los proyectos de inversión pública (capacitación, sistemas de TI, etc.).
+q. Todas las Comisiones y comités institucionales que deben funcionar de acuerdo con la normativa vigente, deben presentar su plan de trabajo anual, así como los informes de seguimiento semestral y cumplimiento anual a la Unidad de Planificación Institucional.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
+r. Coordinar con la Unidad de Planificación Institucional la elaboración y ejecución de los proyectos de inversión pública (capacitación, sistemas de TI, etc.).
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
 s. Ejecutar y administrar los convenios que suscriba el Ministerio en el ámbito de su respectiva competencia.
 t. Utilizar, mantener y respetar la imagen corporativa de la institución a partir del libro de marca.

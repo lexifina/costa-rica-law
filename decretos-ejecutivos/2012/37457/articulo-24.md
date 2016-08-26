@@ -1,6 +1,8 @@
 CAPÍTULO V
-De la Dirección de Apoyo a la Competencia
-Artículo 24.—Dirección de Apoyo a la Competencia. Esta Dirección es el encargado de dar cumplimiento a lo ordenado por la Ley N° 7472, le corresponderá ejecutar las siguientes funciones:
+De la Dirección de Competencia
+(Así reformado el capítulo anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
+Artículo 24.-Dirección de la Competencia. Esta Dirección es el encargado de dar cumplimiento a lo ordenado por la Ley Nº 7472, le corresponderá ejecutar las siguientes funciones:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
 a. Fungir como la Unidad Técnica de Apoyo a la Comisión para Promover la Competencia (COPROCOM).
 b. Dar seguimiento a los acuerdos tomados por la COPROCOM.
 c. Asesorar y proponer a la COPROCOM los procedimientos administrativos ordinarios cuando ésta determine la existencia de posibles prácticas monopolísticas, concentraciones u otras restricciones de mercado.

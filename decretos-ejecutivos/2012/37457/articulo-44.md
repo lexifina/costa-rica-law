@@ -1,11 +1,19 @@
-Artículo 44.—Departamento de Gestión de Centros Regionales de Atención a Pequeñas y Medianas Empresas y Emprendimiento (CREAPYMES). Para el cumplimiento de sus objetivos, tendrá las siguientes funciones:
-a. Coordinar el funcionamiento de los Centros Regionales de Atención a las Pequeñas y Medianas Empresas y Emprendimientos (CREAPYMES Interinstitucionales).
-b. Recomendar a la Dirección la suscripción de convenios para la creación de nuevas CREAPYMES en instituciones públicas o privadas, basado en un diagnóstico de necesidades en la zona de cobertura.
-c. Asesorar, apoyar y dar seguimiento a las CREAPYMES que operen mediante convenios suscritos, así como facilitar la integración y coordinación de las redes regionales de CREAPYMES lideradas por las CREAPYMES Interinstitucionales.
-d. Evaluar anualmente el impacto y funcionamiento de los convenios suscritos de creación de CREAPYMES y brindar las recomendaciones necesarias así como plantear las medidas correctivas cuando se requieran.
-e. Coordinar y evaluar la labor de las CREAPYMES interinstitucionales.
-f. Coordinar los procesos de formación, actualización y seguimiento de los gestores pyme, capacitados para la atención de emprendedores y PYMES, por medio de las CREAPYMES debiendo llevar un registro actualizado de los mismos.
-g. Canalizar con las instituciones del Sistema Integrado de Desarrollo al Emprendedor y a la PYME (SIDEP), los servicios especializados de acompañamiento.
-h. Informar a la Dirección sobre necesidades específicas de atención que requieren las PYMES.
-i. Impulsar programas o acciones conjuntas para apoyar a la PYME en el acceso a mercados.
-j. Cualquier función asignada por sus superiores.
+Artículo 44.-Departamento de Centros Integrales de Desarrollo Empresarial (CIDE) y Encadenamientos. Para el cumplimiento de sus objetivos, tendrá las siguientes funciones:
+a) Realizar investigaciones a nivel internacional sobre políticas, estrategias programas y proyectos que desarrollen otros países con el fin de promover la articulación productiva y los encadenamientos.
+b) Formular y evaluar las políticas y estrategias de apoyo a las PYME considerando las recomendaciones del Consejo Asesor Mixto de la PYME, en materia de articulación productiva.
+c) Diseñar y desarrollar programas de articulación productiva a fin de fortalecer la cadena de valor de los productos de las P YME.
+d) Gestionar la implementación de programas de encadenamientos productivos a fin de vincular a las PYME con empresas grandes o con megaproyectos regionales.
+e) Coordinar con las instituciones rectoras la implementación de los programas de encadenamiento.
+f) Desarrollar investigaciones sobre instrumentos de encadenamientos existentes y su adaptación al país.
+g) Crear programas de capacitación y asesoría dirigidos a las PYME a fin de que participen en los procesos de licitación de bienes y servicios del sector público.
+h) Impulsar programas que promocione la implementación de tecnologías limpias en las PYME y la adopción de normas de mejoramiento continuo, que impacte en la gestión administrativa y la calidad de los productos y servicios de las PYME.
+i) Brindar información y acompañamiento sobre los trámites que contribuyan a la formalización de las empresas.
+j) Retroalimentar al Departamento sobre las demandas o necesidades que se deriven de la atención a las PYME, a fin de coordinar ofertas que no se encuentran en la región de influencia.
+k) Estimular el desarrollo de las organizaciones empresariales, asociatividad y alianzas estratégicas.
+l) Diseñar y ejecutar políticas y programas de asesoría a las PYME en compras del estado, encadenamientos y otras formas de cooperación interempresarial, cultura empresarial y desarrollo de emprendedores, innovación tecnológica, capacitación y asistencia técnica, y servicios financieros.
+m) Participar en los Comités Ejecutivos Regionales conformado por las CIDE interinstitucionales, de acuerdo con el convenio respectivo, para la elaboración de los planes de trabajo, seguimiento y evaluación, e informar y remitir los acuerdos al Jefe del Departamento.
+n) Impulsar la participación de los comités técnicos mixtos interinstitucionales relacionados con la ejecución de proyectos de apoyo al emprendedurismo y las PYME.
+o) Organizar encuentros empresariales, apoyar en la organización de la Expopyme del MEJC y en ferias empresariales organizadas por otras instituciones gubernamentales.
+p) Ejecutar otras funciones del ámbito de su competencia, cuando las necesidades de la institución lo sugieran, con el fin de coadyuvar a resolver integralmente los problemas de volumen y nuevas competencias asignadas a ésta.
+q) Cualquier función asignada por sus superiores.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39917 del 26 de agosto del 2016)
