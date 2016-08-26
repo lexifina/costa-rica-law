@@ -14,3 +14,4 @@ Diagnóstico de emprendedores y PYME
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-26 | la propia norma |
+| 2 | 2016-08-26 | Decreto Ejecutivo 39917 (2016-08-26) |
