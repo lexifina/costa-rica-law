@@ -1,6 +1,5 @@
-(Derogado)
 Nº 33778
-(Este decreto ejecutivo fue derogado por el artículo 34 del Reglamento de Organización y Funcionamiento de los Consejos Regionales de Desarrollo, aprobado mediante decreto ejecutivo N° 39453 del 14 de octubre de 2015.)
+(El artículo 34 del Reglamento de Organización y Funcionamiento de los Consejos Regionales de Desarrollo, D.E. N° 39453 del 14 de octubre de 2015, indicaba que, a partir de un año de la entrada en vigencia se derogaría el presente decreto ejecutivo. No obstante, el artículo 1° del decreto ejecutivo N° 39882 del 26 de agosto de 2016, denominado "Fortalecimiento del Consejo Regional para el Desarrollo de la Provincia de Limón (COREDES-PROLI)", derogó expresamente, en su artículo 1, el numeral 34 que eliminaba este decreto)
 EL PRESIDENTE DE LA REPÚBLICA,
 EL MINISTRO DE PLANIFICACIÓN
 NACIONAL Y POLÍTICA ECONÓMICA
