@@ -1,0 +1,1 @@
+ARTÍCULO 2.- Se deroga el artículo 2 de la Ley N.° 8552, Autorización al Instituto Nacional de Vivienda y Urbanismo para que Segregue un Lote y lo Done a la Asociación Cartaginesa de Atención al Ciudadano en la Tercera Edad, de 19 de octubre de 2006.
