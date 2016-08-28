@@ -1,0 +1,1 @@
+Artículo 15.- Para otorgar esta clase de subvenciones, la Municipalidad de Orotina deberá incluir cada año, en las partidas presupuestarias correspondientes, el suficiente contenido para hacer frente a las necesidades, debidamente demostradas, de las entidades y organizaciones descritas en el artículo siguiente.
