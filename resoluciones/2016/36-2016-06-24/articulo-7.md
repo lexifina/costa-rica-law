@@ -1,1 +1,0 @@
-Artículo 7º—Seguimiento. La Dirección de Tributación Internacional y Técnica Tributaria asumirá las funciones de seguimiento de las propuestas normativas que emita la Comisión BEPS, correspondiéndole el apoyo a las Direcciones Generales para la presentación de las reformas legales o administrativas necesarias.
