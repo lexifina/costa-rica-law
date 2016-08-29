@@ -1,0 +1,1 @@
+Artículo 21.—De la emisión del certificado. El Tribunal de Ética y Moral Profesional en un plazo no mayor a 15 días hábiles a partir de la entrega del resultado de la evaluación de cada curso, deberá emitir los certificados de aprovechamiento de aquellos participantes que hubiesen aprobado el curso.

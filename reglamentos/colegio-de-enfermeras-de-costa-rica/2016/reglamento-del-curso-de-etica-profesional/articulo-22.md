@@ -1,0 +1,1 @@
+Artículo 22.—De la entrega. El Tribunal de Ética y Moral Profesional, comunicará mediante notificación oficial vía correo electrónico, sobre la entrega del certificado, el cual deberá retirarse según se indique en dicho comunicado.

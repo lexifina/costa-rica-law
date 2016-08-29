@@ -1,0 +1,1 @@
+Artículo 15.—Procedimiento. El recurso de apelación se iniciará con la gestión escrita del recurrente ante la Junta Directiva del Colegio de Enfermeras de Costa Rica, en la cual aquél deberá exponer en forma clara y razonada los motivos de su disconformidad, con indicación de las pruebas pertinentes.

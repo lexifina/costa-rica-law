@@ -1,0 +1,3 @@
+Artículo 4º—Programación y cupo. Durante el mes de diciembre de cada año, el Tribunal de Ética y Moral Profesional, planificará, agendará y publicará la oferta de cursos disponibles para el año siguiente, por los medios electrónicos con que el Colegio cuente. Dicha programación deberá indicar el cupo disponible por curso y la modalidad a utilizar según criterio del mismo Tribunal.
+El Curso presencial será impartido en primera instancia en la sede del Colegio ubicada en La Uruca, San José, Costa Rica. Sin embargo, el Tribunal, previa aprobación por Junta Directiva podrá valorar otras ubicaciones según la necesidad presentada.
+En caso del Curso Bimodal y el Curso virtual serán impartidos en el lugar y forma en que lo indique el Tribunal de Ética y Moral Profesional.

@@ -1,0 +1,1 @@
+Artículo 10.—Del mecanismo de implementación del examen. Tendrán derecho a realizar el examen todos aquellos participantes que hayan finalizado satisfactoriamente el Curso, de conformidad con las estipulaciones del Tribunal del Ética y Moral Profesional.
