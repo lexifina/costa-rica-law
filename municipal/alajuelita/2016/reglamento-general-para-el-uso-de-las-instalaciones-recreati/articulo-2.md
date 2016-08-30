@@ -1,0 +1,4 @@
+CAPÍTULO II
+De los usuarios de las instalaciones
+Artículo 2 —Usuarios. La condición de usuario se adquiere en el momento que se realice el pago del precio señalado por entrada, o bien, se le extienda el permiso de uso, o ingrese a las instalaciones de libre acceso. El mismo se pierde automáticamente cuando termina el período autorizado sin haber hecho efectiva la siguiente reserva, o cancelación respectiva, o abandone la instalación.
+El Comité Cantonal de Deportes y Recreación de Alajuelita se exime de toda responsabilidad civil que se le pueda exigir, por el uso individual o colectivo de alguna de las instalaciones o participación en sus actividades por los usuarios, tales como: pérdida de objetos personales, robo o lesiones como consecuencia de la práctica recreativa o deportiva.
