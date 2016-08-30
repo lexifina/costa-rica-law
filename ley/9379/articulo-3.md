@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Principios generales. Los principios generales que fundamentan la aplicación de la presente ley son los establecidos en el artículo 3 de la Ley N.° 8661, Aprobación de la Convención sobre los Derechos de las Personas con Discapacidad, de 19 de agosto de 2008.

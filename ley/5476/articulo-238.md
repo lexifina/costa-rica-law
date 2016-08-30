@@ -1,2 +1,2 @@
-Artículo 238.- Sólo los ascendientes, descendientes o cónyuges están obligados a conservar por más de cinco años la curatela de un incapaz; todo otro curador tiene derecho a ser renovado de la curatela al cumplirse ese término.
+Artículo 238.- (Derogado por el artículo 41 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
 (Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 225 al 238)

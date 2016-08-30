@@ -1,0 +1,1 @@
+ARTÍCULO 28.- Certificación de las personas asistentes. Las personas que podrán ofrecer el servicio de asistencia personal humana a las personas receptoras de la prestación económica, otorgada al amparo de la presente ley, serán únicamente aquellas certificadas por el Instituto Nacional de Aprendizaje (INA).

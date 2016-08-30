@@ -1,0 +1,3 @@
+ARTÍCULO 24.- Derechos del familiar que solicita la asistencia personal humana para la persona con discapacidad. Son derechos del familiar que solicite la asistencia personal humana para la persona con discapacidad los siguientes:
+a) Solicitar la asistencia personal para su familiar, siempre y cuando a este por su propia condición de discapacidad se le dificulte o imposibilite realizarlo por sí mismo.
+b) Recibir, en términos comprensibles y accesibles, información completa y relacionada con la asistencia personal humana, así como sobre las razones de hecho y de derecho por los que eventualmente no se le otorgue o suspenda este apoyo a su familiar.

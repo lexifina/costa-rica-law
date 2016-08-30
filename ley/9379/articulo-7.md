@@ -1,0 +1,1 @@
+ARTÍCULO 7.- Solicitud de la salvaguardia. La gestión de solicitud de la salvaguardia, así como la revisión de esta, podrá ser verbal o escrita o por otro medio de comunicación, de conformidad con la definición que se establece en el artículo 2 de la presente ley y no requerirá autenticación, si el solicitante o la solicitante las presentara personalmente.
