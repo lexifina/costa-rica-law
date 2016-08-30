@@ -1,0 +1,2 @@
+Artículo 3°—Modifíquese el artículo 5, de la Resolución N° DM-164-2008, de las catorce horas tres minutos del día veintitrés de setiembre del dos mil ocho, para que se lea de la siguiente forma:
+“Artículo 5: Parámetros de uso de la tarjeta. La tarjeta será utilizada exclusivamente para el pago a proveedores por compra de combustibles efectuados en Costa Rica, en los establecimientos que estén afiliados al sistema de recepción de tarjetas, así como para el pago de peajes mediante el sistema automático denominado “Quick Pass” y sus costos de uso”.
