@@ -1,0 +1,1 @@
+Artículo 40.—En lo que resulte aplicable a la elección y las funciones a ejercer por los miembros de la Junta Directiva del Comité Comunal serán similares a las funciones que tienen los miembros del Comité Cantonal, en lo que respecta al ámbito de su comunidad.

@@ -1,0 +1,1 @@
+Artículo 34.—Las actas aprobadas, deberán llevar obligatoriamente las firmas del Presidente y del Secretario de actas del Comité Cantonal. El libro de actas será autorizado por la Auditoría Interna de la Municipalidad, previa verificación de la conformación y estado del libro anterior y éste presente las condiciones de uso adecuado.
