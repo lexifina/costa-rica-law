@@ -1,2 +1,0 @@
-Artículo 7º—El costo de esta tarifa se determina tomando en consideración el costo de lo invertido por la Municipalidad para realizar la obra o el servicio de que se trate. El dueño o poseedor de la propiedad deberá reembolsar el costo efectivo en el plazo máximo de ocho días hábiles, de lo contrario se incrementará por concepto de multa un cincuenta por ciento (50%) del valor de la obra o el servicio, sin perjuicio del cobro de los intereses moratorios.
-(Así reformado mediante publicación en La Gaceta N° 49 del 9 de marzo del 2000)

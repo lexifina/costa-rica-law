@@ -1,2 +1,0 @@
-Artículo 11.—Corresponde al Concejo Municipal, de conformidad con lo establecido en los artículos 4, inciso d, 13, inciso b; 68 y 76 del Código, la aprobación de estas tarifas, las que entrarán en vigencia a partir de su publicación en el Diario Oficial "La Gaceta". Las multas fijadas en el artículo 76 de esta ley se actualizarán anualmente, en el mismo porcentaje que aumente el salario base establecido en el artículo 2 de la ley 7337 el 5 de mayo de 1993.
-(Así reformado mediante publicación en La Gaceta N° 49 del 9 de marzo del 2000)
