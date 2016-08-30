@@ -1,0 +1,5 @@
+Artículo 31: Sustituciones por ausencias permanentes: En el caso de ausencias definitivas de algún miembro de una Junta Directiva se recurrirá al siguiente proceso conforme corresponda:
+a) Cuando se trate de un miembro que ha sido nombrado de manera directa por parte del Concejo Municipal en la Junta Directiva del Comité Cantonal el Concejo nombrará al sustituto de manera directa, por el resto del periodo.
+b) Cuando se trate del representante de las organizaciones de desarrollo comunal en la Junta Directiva del Comité Cantonal, se nombrará mediante asamblea de la Unión Cantonal de Asociaciones de Desarrollo Comunal de Alajuelita UCADEA.
+c) Cuando se trate de un representante de las asociaciones deportivas o recreativas del cantón en la Junta Directiva del Comité Cantonal, se convocará a una Asamblea de Organizaciones Deportivas y Recreativas para que realicen el nuevo nombramiento.
+d) Cuando se trate de un miembro de un Comité Comunal o Comités Vecinales de Deportes lo realizará la Junta Directiva del Comité Cantonal de la misma manera en que fueron electos.

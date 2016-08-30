@@ -1,0 +1,19 @@
+Artículo 9: Son funciones de la Junta Directiva las siguientes:
+a) Ejecutar las políticas que en materia de deporte y recreación hayan sido aprobadas en el Plan Operativo Anual.
+b) Elaborar y aprobar el Plan Operativo Anual con asignación de presupuesto.
+c) Sesionar en forma ordinaria o extraordinaria conforme lo indica este Reglamento.
+d) Juramentar a las personas que el mismo comité nombre para integrar alguno de sus comités como acto previo a la toma de posesión de sus cargos.
+e) Aprobar los cánones para derechos de alquiler de las instalaciones deportivas y recreativas bajo su administración.
+f) Gestionar el otorgamiento de permisos con su respectiva recomendación para la celebración de eventos especiales.
+g) Divulgar e informar sobre el desarrollo de sus actividades.
+h) Nombrar, sancionar y remover en su oportunidad al personal del Comité Cantonal conforme con las leyes laborales vigentes.
+i) Supervisar que el personal cumpla con sus funciones en la forma dispuesta en la Ley y los Reglamentos.
+j) Supervisar que los diversos procedimientos utilizados por el Comité en el desempeño de sus labores generales sea apegado a disposiciones legales y reglamentarias y con estricto apego a la sana administración de fondos públicos.
+k) Entregar semestralmente al Concejo Municipal de Alajuelita y a la Alcaldía un informe económico y de labores.
+l) Rendir cuentas de su gestión una vez al año al Concejo Municipal de Alajuelita, a los Concejos de Distrito, Comités Comunales, así como a los vecinos del cantón.
+m) Gestionar oportunamente los recursos que le han sido otorgados por la normativa vigente.
+n) Aprobar contratos, convenios o cualquier otro acto que celebre el Comité Cantonal.
+o) Someter a conocimiento del Concejos Municipal sus programa anual de actividades, obras e inversión, antes de aprobarse el presupuesto ordinario de la municipalidad, así como presentar un informe de los resultados de la gestión correspondiente al año anterior; todo lo anterior de conformidad con el artículo 172 del Código Municipal.
+p) Realizar las eliminatorias y procesos selectivos necesarios para la representación del cantón de Alajuelita en diferentes competencias a nivel regional y nacional; procurando para ello dar la mayor posibilidad de participación a los habitantes del cantón.
+q) Contratar el personal técnico y administrativo calificado para el cumplimiento de las funciones del Comité Cantonal.
+r) Cualquier otra que determine el Concejo Municipal de Alajuelita.

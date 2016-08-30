@@ -1,0 +1,2 @@
+Artículo 51: En el presupuesto ordinario del Comité Cantonal debe reflejarse el plan operativo anual, así como los programas que se ejecutarán en el período anual al que corresponde el presupuesto. Los gastos presupuestarios no pueden exceder los ingresos probables.
+El Comité Cantonal, procederá a abrir una cuenta a favor de cada instalación deportiva en alguna institución bancaria pública, en donde se depositarán todos los fondos generados por dicha instalación.

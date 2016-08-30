@@ -1,0 +1,1 @@
+Artículo 22: El Comité Cantonal de Deportes y Recreación, a solicitud de los vecinos o del respectivo Comité Comunal de Deportes y Recreación también podrá autorizar el funcionamiento de Comités Vecinales de Deportes por razones territoriales o técnicas, los cuales estarán coordinados por el respectivo Comité Comunal del área donde se circunscriban.

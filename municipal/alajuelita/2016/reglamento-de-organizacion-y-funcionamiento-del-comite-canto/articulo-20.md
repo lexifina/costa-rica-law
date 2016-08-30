@@ -1,0 +1,3 @@
+Artículo 20: El Congreso deberá reunirse ordinariamente una vez al año en el mes de mayo. Para el análisis temático la Junta Directiva podrá crear comisiones donde participen los delegados del congreso.
+El congreso se podrá reunir extraordinariamente, cuando sea convocado por el Comité Cantonal de Deportes, de oficio o a solicitud de parte, para conocer de los asuntos que esta someta a su conocimiento.
+El Congreso podrá reunirse en primera convocatoria con la presencia de la mitad más uno del total de sus miembros debidamente acreditados y en segunda convocatoria, treinta minutos después con el número de miembros presentes.
