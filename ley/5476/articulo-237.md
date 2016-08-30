@@ -1,2 +1,2 @@
-Artículo 237.- Cuando la curatela recaiga en el cónyuge o en el padre o la madre, éstos no están obligados a dar fianza ni a rendir de la administración más cuenta que la final.
+Artículo 237.- (Derogado por el artículo 41 de la Ley para Promoción de la Autonomía Personal de las Personas con Discapacidad, N° 9379 del 18 de agosto de 2016)
 (Así corrida su numeración por el artículo 2 de ley No.7538 del 22 de agosto de 1995, que lo traspasó del antiguo artículo 224 al 237)

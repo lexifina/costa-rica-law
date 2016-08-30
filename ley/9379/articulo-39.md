@@ -1,0 +1,1 @@
+ARTÍCULO 39.- Derogación del artículo 853 del capítulo IV de la Ley N.° 7130. Se deroga el artículo 853 del capítulo IV de la Ley N.° 7130, Código Procesal Civil, de 16 de agosto de 1989, y sus reformas.
