@@ -1,3 +1,3 @@
-Artículo 8º—Poblaciones utilizadas y horizonte de la evaluación
-La evaluación actuarial deberá mostrar claramente la técnica utilizada. En caso de realizarse con población abierta deberá establecer las condiciones de los entrantes al grupo. De cualquier forma deberán presentarse también los resultados sobre la base de una población cerrada.
-Las proyecciones que se incluyan en la evaluación actuarial no podrán considerar un período menor a cincuenta años. Además deberá incluir la totalidad de los afiliados al régimen y sus beneficiarios.
+Artículo 8. Periodicidad de las valuaciones actuariales. La valuación actuarial de los regímenes debe realizarse una vez al año como mínimo.
+Además, deben realizarse valuaciones actuariales cuando se propongan cambios en los perfiles de requisitos y beneficios de los regímenes o cuando existan fundados indicios de que el comportamiento del régimen pudiera derivar en un desequilibrio financiero o actuarial a juicio del Órgano de Dirección del régimen o a solicitud de la SUPEN.
+El Superintendente, mediante resolución razonada, puede variar la periodicidad de las valuaciones actuariales, según el análisis del riesgo de solvencia del fondo que se realice al efecto.

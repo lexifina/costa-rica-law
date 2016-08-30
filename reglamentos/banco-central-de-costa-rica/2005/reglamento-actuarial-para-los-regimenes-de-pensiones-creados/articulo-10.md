@@ -1,3 +1,2 @@
-Artículo 10.—Fecha de elaboración de la evaluación
-Las evaluaciones actuariales deberán contener información con corte al 30 de junio de cada año.
-Cuando se trate de evaluaciones originadas en cambios en las especificaciones técnicas o solicitudes del Superintendente, se deberá utilizar la información más reciente con que cuente el régimen, la que en todo caso no debe tener más de tres meses de antigüedad respecto de la fecha de realización del estudio.
+Artículo 10. Fecha de la valuación. Las valuaciones actuariales anuales deben contener información con corte al 31 de diciembre de cada año.
+Cuando se trate de valuaciones que propongan cambios en los perfiles de requisitos y beneficios o solicitudes de la SUPEN, debe utilizarse la información más reciente con que cuente el régimen, la que, en todo caso, no debe tener más de tres meses de antigüedad respecto de la fecha de realización del estudio.

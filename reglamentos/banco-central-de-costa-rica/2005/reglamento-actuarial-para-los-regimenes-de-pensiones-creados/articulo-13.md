@@ -1,10 +1,6 @@
-Artículo 13.—Requisitos para el profesional o firma actuarial
-Los regímenes para realizar las evaluaciones actuariales podrán hacerlo de manera interna o contratar profesionales externos para el efecto.
-En todo caso, el profesional o firma actuarial que se contrate para la evaluación actuarial deberá cumplir los siguientes requisitos:
-a) No haber sido declarado insolvente o en quiebra, según corresponda, durante los cinco años anteriores al período fiscal correspondiente.
-b) No haber sido condenado por delitos contra la propiedad durante los últimos diez años por autoridades judiciales competentes.
-c) No haber incumplido, durante la elaboración de evaluaciones actuariales a los regímenes, con el procedimiento de comunicación de sustitución establecido en este Reglamento durante los tres años anteriores al estudio para el cual es contratado.
-d) El encargado de la evaluación deberá contar con experiencia demostrable en la elaboración de evaluaciones actuariales que impliquen estimación de contingencias de vida.
-e) El profesional responsable del estudio deberá contar con un título profesional de actuario que lo acredite para desempeñarse como actuario o su acreditación como tal en el colegio profesional respectivo.
-En el caso de documentación emitida en el exterior deberá cumplirse con las formalidades de autenticación y traducción si estuviere escrita en idioma diferente al español.
-Se aplicará los mismos requisitos tanto al profesional que realice una evaluación actuarial de manera externa como a quien realice una auditoría actuarial.
+Artículo 13. Remisión y presentación de los informes de valuaciones o auditorías actuariales a la SUPEN. Los informes de valuaciones o auditorías actuariales y sus anexos deben remitirse a la Superintendencia, por los medios establecidos.
+El informe correspondiente a la valuación actuarial anual, a que hace referencia el primer párrafo del artículo 8, debe remitirse a más tardar el último día hábil del mes de marzo. Adicionalmente, la SUPEN podrá solicitar el detalle con la información sobre afiliados y pensionados, las tablas biométricas y demás parámetros utilizados en las estimaciones, así como el resultado individual de la cuantía de los beneficios devengados.
+Cuando corresponda realizar la auditoría actuarial externa, el informe debe remitirse a más tardar el último día hábil del mes de setiembre siguiente.
+El órgano de dirección debe enviar una nota de remisión junto con el informe de la valuación o auditoría actuarial a la SUPEN, en el que se detallen las medidas que se hubieren dispuesto tomar para atender las recomendaciones del actuario o firma actuarial.
+Es responsabilidad del régimen realizar una presentación del documento ante la SUPEN cuando se les requiera.
+El Superintendente puede requerir correcciones o ajustes al informe entregado, o bien la realización de un nuevo estudio.

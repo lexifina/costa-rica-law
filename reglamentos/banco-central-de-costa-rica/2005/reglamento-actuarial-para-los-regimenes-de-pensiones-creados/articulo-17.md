@@ -1,4 +1,2 @@
-Artículo 17.—Comunicación de designación y demostración del cumplimiento de los requisitos y condiciones
-Los regímenes deberán comunicar a la Superintendencia el nombre del actuario o en su defecto de la firma actuarial y el actuario encargado de realizar la evaluación o auditoría actuarial correspondiente, al menos treinta días antes del inicio del trabajo encargado.
-Las entidades deberán acreditar el cumplimiento de los requisitos establecidos en este artículo por medio de una declaración jurada. En dicha declaración, rendida ante notario público, el representante legal indicará que verificó que el actuario, o en su defecto la firma actuarial y el actuario encargado, cumple satisfactoriamente los requerimientos exigidos y que los documentos probatorios se encuentran a disposición de la Superintendencia.
-Igual certificación deberá entregarse para el caso del auditor actuarial.
+Artículo 17. Rotación de profesionales. Los regímenes que contraten la valuación anual externamente deberán cambiar al actuario o firma al menos cada cinco años. El profesional o firma podrán ser contratados nuevamente una vez transcurridos tres años continuos contados a partir de la fecha del último informe realizado por dicho profesional o firma.
+Idéntico plazo se tomará para el caso de la auditoría actuarial externa requerida en el Artículo 19 de este Reglamento.

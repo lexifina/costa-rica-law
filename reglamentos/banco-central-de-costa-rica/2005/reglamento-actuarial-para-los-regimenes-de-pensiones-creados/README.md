@@ -14,3 +14,4 @@ Reglamento Actuarial para los Regímenes de Pensiones creados por Leyes especial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-01-13 | la propia norma |
+| 2 | 2016-08-30 | Reglamento 1275 (2016-08-30) |

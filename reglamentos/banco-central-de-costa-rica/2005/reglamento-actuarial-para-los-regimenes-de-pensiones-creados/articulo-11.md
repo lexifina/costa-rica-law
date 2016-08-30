@@ -1,29 +1,36 @@
-Artículo 11.—Contenido del Informe actuarial
-El informe que elabore el actuario para comunicar los resultados de una evaluación actuarial debe contener al menos lo siguiente:
-a) Información general: Debe indicarse el régimen objeto de la evaluación, el período evaluado, la fecha de la evaluación, el nombre y número de acreditación del actuario responsable de la evaluación.
-b) Resumen ejecutivo: En esta sección se deben resumir los principales hallazgos y recomendaciones de la evaluación.
-c) Contexto económico y demográfico: Debe hacerse referencia a aspectos relevantes del contexto en que el régimen opera, tales como:
-i) entorno macroeconómico (inflación, salarios, empleo u otros),
-ii) comportamiento de variables e instituciones financieras (situación fiscal del gobierno o financiera del régimen, eficiencia en la recolección de cotizaciones o impuestos, morosidad, evasión, comportamiento del mercado financiero u otros),
-iii) tendencias demográficas (migraciones, comportamiento de la mortalidad, de la expectativa de vida, de la fertilidad u otros).
-d) Análisis de la situación actual del régimen: Los principales elementos que debe contener esta sección son:
-i) situación de las provisiones con que cuenta el régimen,
-ii) marco legal, con especial referencia a los cambios en el marco legal (si los hubiere) e implicaciones de estos cambios en la situación financiera y actuarial del régimen,
-iii) análisis del comportamiento financiero del régimen desde la última evaluación (ingresos y gastos por tipo de beneficio, comportamiento de las inversiones y de los gastos de administración, etc.) y explicación de las desviaciones entre la situación proyectada y la real (ganancia o pérdida actuarial),
-iv) comportamiento de variables relevantes como la cobertura del régimen (poblaciones activa y pensionada con los respectivos montos de salario y pensión), la tasa de reemplazo por riesgo y el beneficio promedio por riesgo.
-e) Proyecciones actuariales (en caso de que se utilice el método de las proyecciones): Esta sección debe contener al menos los siguientes componentes:
-i) metodología (método de evaluación y procedimientos utilizados para proyectar los ingresos y egresos del régimen),
-ii) bases de datos y supuestos (resumen del contenido, la calidad y la fuente de la Información estadística, supuestos utilizados, justificación de estos y análisis de su Impacto en la evaluación),
-iii) resultados de la proyección base (proyecciones demográficas y financieras según la información estadística disponible y los supuestos asumidos),
-iv) análisis de sensibilidad (variaciones en los resultados obtenidos a partir de la modificación de algunos parámetros críticos, de manera que se construyan escenarios optimistas y pesimistas),
-v) valoración con reformas propuestas (resultados de la proyección base, incorporando modificaciones legales propuestas en caso de que las hubiere).
-Las proyecciones a incluir en el informe serán al menos las siguientes:
-1) Proyecciones demográficas por año, edad y sexo de la población activa y pensionada y sus potenciales beneficiarios, así como las correspondientes relaciones demográficas.
-2) Proyecciones financieras por año de los salarios, ingresos y egresos por pago de beneficios correspondientes a los riesgos cubiertos por el régimen, en colones corrientes y constantes.
-3) Proyecciones anuales de ingreso promedio y egreso promedio por pago de beneficios del régimen, según riesgo.
-4) Balance actuarial según el sistema financiero utilizado.
-5) Proyección anual del comportamiento de las provisiones del régimen.
-6) Proyección de la tasa de cotización necesaria para financiar los beneficios del régimen, por tipo de riesgo y de forma agregada, bajo el sistema de financiamiento vigente.
-7) Proyección de la tasa de cotización necesaria para financiar los beneficios del régimen, por tipo de riesgo y de forma agregada, bajo hipótesis de un sistema alternativo de financiamiento, en caso de presentarse problemas de financiamiento en el régimen.
-f) Conclusiones y recomendaciones: Deben indicarse como mínimo las medidas que se recomienda adoptar para restablecer o preservar el equilibrio actuarial del régimen así como los pros y contras de esas medidas, también debe comentarse sobre la contabilidad de los resultados obtenidos y llamarse la atención sobre las acciones que se requieran en aspectos como la calidad de la información y los sistemas contables y financieros, cuando corresponda.
-El informe que elabore el actuario deberá observar el contenido indicado. Cuando se requiera, a juicio del actuario, se presentará en anexos la información relevante del régimen que por razones prácticas no se incluya en el cuerpo del informe. Necesariamente deben presentarse un anexo metodológico y un anexo estadístico, en los que se detallen los procedimientos empleados para realizar las estimaciones y la información utilizada en ellas.
+Artículo 11. Contenido del informe de la valuación actuarial anual. El informe que elabore el actuario para comunicar los resultados de la valuación actuarial anual debe contener, al menos, lo siguiente:
+a) Información general: Debe indicarse el régimen objeto de la valuación, el período valuado, la fecha de la valuación y el nombre del actuario responsable de la valuación.
+b) Resumen ejecutivo: En esta sección se deben resumir los principales hallazgos y recomendaciones de la valuación.
+c) Contexto económico: Analizar la evolución de, al menos, las siguientes variables: inflación, tasas de interés experimentadas y esperadas en el país, comportamiento de los salarios y pensiones. En el caso de los regímenes tipo 2 y tipo 3 las variables a analizar deben ser las que están relacionadas con el régimen.
+d) Contexto demográfico: Analizar la evolución de, al menos, las siguientes variables: estructura de la población, población activa y pensionada (edad, antigüedad y sexo), comportamiento de altas y bajas de afiliados y pensionados, desempleo, cobertura del régimen, indicadores
+demográficos. En el caso de los regímenes tipo 2 y tipo 3 las variables a analizar deben ser las que están relacionadas con el régimen.
+e) Análisis de la situación actual del régimen. Los principales elementos que debe contener esta sección son:
+i. Situación de las provisiones y reservas con que cuenta el régimen y su comportamiento.
+ii. Marco legal. Si la valuación actuarial propone cambios en el mismo debe referirse a las implicaciones en la situación financiera y actuarial del régimen.
+iii. Análisis del comportamiento de las inversiones, los gastos de administración y cualquier otra variable financiera que afecte el desempeño del régimen.
+f) Metodología. Método de valuación y procedimientos utilizados.
+g) Bases de Datos y supuestos: Comentarios sobre la calidad y la fuente de la información, así como los supuestos utilizados y su justificación.
+h) Resultados. Esta sección debe contener, al menos, los siguientes componentes:
+i. Resultados del escenario base de acuerdo con lo establecido en el artículo siete.
+ii. Comparación de los resultados obtenidos en el escenario base con los obtenidos en el escenario base del informe actuarial anterior, incluyendo el análisis de pérdidas y ganancias y un comparativo de las poblaciones esperadas y efectivas.
+iii. Análisis de sensibilidad (variaciones en los resultados obtenidos a partir de la modificación de algunos parámetros críticos).
+iv. Valoración con reformas propuestas (resultados de la proyección base, incorporando modificaciones legales propuestas en caso de que las hubiere).
+En todos los escenarios debe presentarse el balance actuarial correspondiente y la prima media nivelada. En los regímenes tipo 2 y tipo 3 también debe presentarse el balance actuarial con beneficios devengados.
+En caso de que se utilice el método de proyecciones, deben incluirse en el informe, al menos, las siguientes:
+i. Proyecciones demográficas por año de la población activa y pensionada.
+ii. Proyecciones financieras por año, de los salarios, ingresos y egresos por pago de beneficios correspondientes a los riesgos cubiertos por el régimen y otros gastos administrativos.
+iii. Proyección anual del comportamiento de las provisiones del régimen.
+iv. Proyección de la tasa de cotización necesaria para financiar los beneficios del régimen.
+v. Proyección de la tasa de cotización necesaria para financiar los beneficios del régimen, bajo hipótesis de un sistema alternativo de financiamiento, en caso de presentarse problemas de financiamiento en el régimen.
+vi. De acuerdo con las definiciones del artículo tres, mostrar los siguientes indicadores:
+- Corto plazo (anual): La razón del fondo para contingencias.
+- Largo plazo (75 años o más): La tasa de ingresos y la tasa de costo.
+i) Conclusiones y recomendaciones:
+Para el régimen tipo 1, se sugiere que las recomendaciones estén referidas al escenario base con población abierta.
+Para los regímenes tipo 2 y tipo 3 las recomendaciones deben estar referidas al escenario base con población cerrada y al escenario con beneficios devengados.
+En todos los casos, deben indicarse, como mínimo, las medidas que se recomienda adoptar para restablecer o preservar el equilibrio actuarial del régimen, las necesarias para cubrir los faltantes o manejar los excedentes en las provisiones, así como los pros y contras de esas medidas y el impacto esperado.
+De manera complementaria, los regímenes tipo 2 y 3 pueden presentar escenarios con población abierta.
+El actuario debe emitir una opinión clara, precisa, objetiva y técnica en relación con la
+solvencia del régimen de pensión objeto de la valuación.
+Cuando se requiera, a juicio del actuario, se presentará en anexos la información relevante del régimen que por razones prácticas no se incluya en el cuerpo del informe.
+Los informes que correspondan a otras valuaciones actuariales, diferentes de la anual, observarán el contenido establecido en el presente artículo en cuanto resulte pertinente.
