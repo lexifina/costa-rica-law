@@ -1,0 +1,1 @@
+ARTÍCULO 41.- Derogación de varios artículos del título VI del capítulo I de la Ley N.° 5476. Se derogan los artículos 231, 232, 233, 234, 235, 236, 237, 238, 239, 240 y 241 que conforman el título sexto, capítulo 1 de la Ley N.° 5476, Código de Familia, de 21 de diciembre de 1973.

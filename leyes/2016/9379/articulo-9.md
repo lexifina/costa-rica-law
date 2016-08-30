@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Revisión de la salvaguardia. La salvaguardia podrá ser revisada en cualquier momento, estando legitimadas para este acto las mismas personas físicas y jurídicas señaladas en el artículo anterior, y de oficio estará sujeta a revisión, por parte del juez o la jueza, cada cinco años.

@@ -1,0 +1,2 @@
+ARTÍCULO 14.- Carácter selectivo de la asistencia personal humana. Para los efectos de esta ley, las personas con discapacidad que podrán optar por la asistencia personal humana son aquellas que para ejercer su derecho a la autonomía personal requieren necesariamente la asistencia personal humana y no cuenten con los recursos económicos suficientes para sufragar dicho apoyo.
+Para estos efectos, la persona con discapacidad deberá aportar certificación de la discapacidad. Las personas que vayan a brindar servicios de asistencia no podrán ser empleadas públicas a la vez.

@@ -1,0 +1,1 @@
+ARTÍCULO 18.- Objetivo del Programa para la Promoción de la Autonomía Personal de las Personas con Discapacidad. El objetivo principal es la promoción, a nivel nacional, de la autonomía personal de las personas con discapacidad.

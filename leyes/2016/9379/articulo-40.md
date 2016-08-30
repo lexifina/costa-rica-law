@@ -1,0 +1,4 @@
+Sección II
+Código de Familia
+ARTÍCULO 40.- Reforma del artículo 230 de la Ley N.° 5476. Se reforma el artículo 230 de la Ley N.° 5476, Código de Familia, de 21 de diciembre de 1973. El texto dirá:
+“Artículo 230.- Para garantizar el ejercicio seguro y efectivo de los derechos y las obligaciones de las personas mayores de edad con discapacidad intelectual, mental y psicosocial, en un marco de respeto a su voluntad y preferencias, sin que haya conflicto de intereses ni influencia indebida, se establece la salvaguardia para la igualdad jurídica de las personas con discapacidad, que será proporcionada y adaptada a la circunstancia de la persona. Este procedimiento se tramitará de conformidad con lo establecido en la Ley para la Promoción de la Autonomía Personal de las Personas con Discapacidad y en el Código Procesal Civil.”
