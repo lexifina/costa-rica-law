@@ -14,3 +14,4 @@ Reglamento a la Ley de Desarrollo Social y Asignaciones Familiares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-04-08 | la propia norma |
+| 2 | 2016-08-30 | Decreto Ejecutivo 39916 (2016-08-30) |
