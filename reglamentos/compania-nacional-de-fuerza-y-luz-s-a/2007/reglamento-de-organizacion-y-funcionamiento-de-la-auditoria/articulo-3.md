@@ -1,2 +1,0 @@
-Artículo 3º—Ámbito de acción. El ámbito de acción de la Auditoría Interna está conformado por todas las dependencias de la CNFL y por los entes y órganos públicos y privados sujetos a su competencia, incluyendo fideicomisos, fondos especiales y otros de naturaleza similar; así como fondos y actividades privadas que se originen de transferencias efectuadas por la CNFL.
-Es responsabilidad del Auditor General mantener actualizado en el documento correspondiente, los órganos y entes sujetos al ámbito de acción de la Auditoría Interna.

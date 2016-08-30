@@ -1,1 +1,0 @@
-Artículo 30.—Respaldo de los trabajos. Los Auditores deben identificar, analizar, evaluar, registrar y custodiar la información que procesan, con pericia y debido cuidado profesional, para cumplir los objetivos del trabajo y lograr que los resultados del mismo estén adecuadamente fundamentados.

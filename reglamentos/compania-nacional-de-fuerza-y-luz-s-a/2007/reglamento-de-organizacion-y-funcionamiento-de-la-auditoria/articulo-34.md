@@ -1,1 +1,0 @@
-Artículo 34.—Aseguramiento de la calidad. Con el propósito de agregar valor y mejorar la gestión de la Auditoría Interna, esta dependencia establecerá e implementará un programa de aseguramiento de la calidad, según lo establecido en el punto 1.4 del Manual para el Ejercicio de la Auditoría Interna.

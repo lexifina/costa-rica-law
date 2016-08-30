@@ -1,1 +1,0 @@
-Artículo 4º—Coordinación. Los Auditores procurarán que la ejecución de sus actividades no interfiera el normal desarrollo de las operaciones que se realizan en las diferentes dependencias de la CNFL, para lo cual establecerán la coordinación necesaria con los funcionarios correspondientes.

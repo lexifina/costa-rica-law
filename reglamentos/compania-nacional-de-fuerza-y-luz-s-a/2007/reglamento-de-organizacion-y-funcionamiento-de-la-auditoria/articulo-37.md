@@ -1,1 +1,0 @@
-Artículo 37.—Servicios preventivos. La comunicación de los servicios preventivos se realizará con base en el criterio del Auditor General, quien definirá el contenido de los informes, oficios u otros medios de comunicación, conforme a la naturaleza de los estudios y los criterios pertinentes.

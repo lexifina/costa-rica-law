@@ -1,1 +1,0 @@
-Artículo 10.—Recursos insuficientes. Cuando el Auditor General demuestre que la insuficiencia de recursos de la Auditoría Interna debilita la fiscalización oportuna del patrimonio de la CNFL, debe informar al Jerarca del riesgo que está asumiendo y de la eventual imputación de responsabilidades que esta situación podría generarle.

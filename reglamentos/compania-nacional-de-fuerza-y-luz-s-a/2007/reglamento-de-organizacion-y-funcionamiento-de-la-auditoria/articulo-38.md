@@ -1,2 +1,0 @@
-Artículo 38.—Comunicación oral. Previo a remitir el informe oficial de manera escrita, el resultado de los estudios de auditoría debe ser comentado con los funcionarios responsables de la unidad evaluada; con el propósito de obtener de ellos las observaciones que consideren pertinentes.
-Los resultados obtenidos no serán comentados con los funcionarios responsables, cuando se determine que el informe puede originar la apertura de un procedimiento administrativo.

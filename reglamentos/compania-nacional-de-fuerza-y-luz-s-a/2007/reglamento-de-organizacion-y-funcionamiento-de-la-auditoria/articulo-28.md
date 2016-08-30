@@ -1,1 +1,0 @@
-Artículo 28.—Protección al personal. Cuando el personal de la Auditoría Interna, en el cumplimiento de sus funciones se involucre en un conflicto legal o demanda, la CNFL dará todo su respaldo, tanto jurídico como técnico y cubrirá los costos para atender ese proceso hasta su resolución final.

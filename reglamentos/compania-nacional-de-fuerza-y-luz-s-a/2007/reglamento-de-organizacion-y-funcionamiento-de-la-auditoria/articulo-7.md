@@ -1,2 +1,0 @@
-Artículo 7º—Actividades de las unidades. La Auditoría Financiera es la encargada de evaluar asuntos operativos, financieros y administrativos de las actividades que se llevan a cabo en la CNFL, así como de brindar asesoría en estos temas; según su ámbito de competencia.
-La Auditoría Informática debe realizar evaluaciones relacionadas con los sistemas informáticos de la CNFL, el Sistema de Distribución, Producción y Conservación de la Energía, así como brindar asesoría en estos temas; según su ámbito de competencia.

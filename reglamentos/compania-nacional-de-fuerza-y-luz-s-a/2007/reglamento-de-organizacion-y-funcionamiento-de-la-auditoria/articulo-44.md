@@ -1,1 +1,0 @@
-Artículo 44.—Responsabilidad civil y administrativa. Cuando los Auditores determinen la existencia de eventuales responsabilidades civiles y administrativas, el Auditor General debe comunicar la relación de hechos correspondiente al Jerarca o a la Contraloría cuando se trate de este último.
