@@ -14,3 +14,4 @@ Reglamento de requisitos y de funciones para asistentes de laboratorio de microb
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-14 | la propia norma |
+| 2 | 2016-08-30 | Reglamento 22 (2016-08-30) |
