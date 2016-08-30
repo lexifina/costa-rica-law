@@ -1,0 +1,2 @@
+Disposiciones finales
+Artículo 22.—En el transcurso de la sesión, la Presidencia o cualquier miembro del Comité, puede solicitar la comprobación de asistencia. Quien no se encuentre en el recinto o se haya retirado por más de 15 minutos deberá considerarse ausente para efectos de la dieta correspondiente.

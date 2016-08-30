@@ -1,0 +1,2 @@
+De las votaciones
+Artículo 12.—Es responsabilidad de cada directivo razonar su voto en caso de considerarlo necesario, para lo cual contará con un tiempo de un minuto y de ello debe quedar constancia en la respectiva acta de la sesión.

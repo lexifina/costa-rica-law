@@ -1,0 +1,1 @@
+Artículo 2º—Las sesiones ordinarias del Comité Cantonal de Deportes y Recreación de Alajuelita se llevarán a cabo la fecha y hora acordada de conformidad con lo establecido por el Reglamento Autónomo de Organización del Comité Cantonal de Deportes y Recreación de Alajuelita.

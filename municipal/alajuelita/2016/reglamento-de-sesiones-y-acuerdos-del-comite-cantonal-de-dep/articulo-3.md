@@ -1,0 +1,1 @@
+Artículo 3º—Las sesiones extraordinarias del Comité Cantonal de Deportes y Recreación de Alajuelita se llevarán a cabo cuando se requieran y se convocarán de conformidad con lo establecido por el Reglamento Autónomo de Organización del Comité Cantonal de Deportes y Recreación de Alajuelita.
