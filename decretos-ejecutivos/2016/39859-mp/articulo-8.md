@@ -1,0 +1,1 @@
+Artículo 8º-Facultades del Secretario. De su seno, la Comisión nombrará un Secretario quien tendrá las facultades y atribuciones del artículo 50 de la Ley General de la Administración Pública, Ley Nº 6227 del 2 de mayo de 1978.

@@ -1,0 +1,1 @@
+Artículo 5°- De los representantes titulares y suplentes. El jerarca de cada uno de los Ministerios o Instituciones que integran la Comisión, deberá designar un representante titular así como uno suplente, quien en ausencia del primero, ejercerá la representación correspondiente.
