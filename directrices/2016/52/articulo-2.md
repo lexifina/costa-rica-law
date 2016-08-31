@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. La presente directriz se orienta a todas las instituciones del sector público centralizado, descentralizado institucional y territorial, que de una u otra forma, realicen actos o presten servicios públicos, a personas usuarias.

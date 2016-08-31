@@ -1,0 +1,1 @@
+Artículo 3º—Ejercicio de la función pública. Todas las instituciones públicas deben procurar establecer procedimientos e instruir a su personal, para que eviten requerir, en la realización de trámites administrativos, que las personas deban aportar fotocopia de su cédula de identidad o cédula jurídica.
