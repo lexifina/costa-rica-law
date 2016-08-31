@@ -15,3 +15,4 @@ Reglamento a la Ley de Biodiversidad
 | --- | --- | --- |
 | 1 | 2008-04-08 | la propia norma |
 | 2 | 2008-07-16 | Decreto Ejecutivo 34781 (2008-07-16) |
+| 3 | 2016-08-31 | Decreto Ejecutivo 40043 (2016-08-31) |
