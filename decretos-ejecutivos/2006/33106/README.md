@@ -14,3 +14,4 @@ Crea Programa Nacional de Corredores Biológicos
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-05-30 | la propia norma |
+| 2 | 2016-08-31 | Decreto Ejecutivo 40043 (2016-08-31) |
