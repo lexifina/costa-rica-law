@@ -1,1 +1,1 @@
-Artículo 22.- Envío de información al área de Contabilidad. La Dirección de Control de Bienes debe remitir mensualmente al área de Contabilidad de la Dirección de Administración Financiera los movimientos de los inventarios de la institución para su respectivo registro.
+Artículo 22.- Envío de información al área de Contabilidad. La Dirección de Control de Bienes e Inventarios debe remitir mensualmente al área de Contabilidad de la Dirección de Gestión Financiera los movimientos de los inventarios de la institución para su respectivo registro.

@@ -1,2 +1,3 @@
-Artículo 31.- Casos no previstos en este reglamento.
-Los casos no previstos en este reglamento, se resolverán tomando en cuenta la normativa vigente, la jurisprudencia administrativa, los dictámenes del Ministerio de Hacienda y los de la Contraloría General de la República, emitidos sobre la materia que aquí se reglamenta.
+CAPÍTULO X
+DISPOSICIONES TRANSITORIAS Y VIGENCIA
+Artículo 31.- Disposiciones transitorias. Se deberá adoptar en el plazo máximo de seis meses, las medidas que correspondan para dotar a las Unidades de Control Bienes e Inventarios de cada Sede, Subsede, Centro, Instituto u otras Adscritas del recursos humano necesario, equipo tecnológico software y hardware y materiales indispensables para su funcionamiento.

@@ -1,1 +1,1 @@
-Artículo 12.- De la autorización. La autorización para la realización de una baja le corresponde al Consejo de Sede, en el caso de los bienes de la Administración Superior le corresponderá al Consejo Universitario dar la autorización para la baja
+Artículo 12.- De la autorización. La autorización para la realización de una baja le corresponde al Consejo de Sede, en el caso de los bienes de la Administración Universitaria le corresponderá al Consejo Universitario dar la autorización para la baja.

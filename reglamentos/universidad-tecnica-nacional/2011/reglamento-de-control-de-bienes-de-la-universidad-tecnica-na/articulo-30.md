@@ -1,3 +1,1 @@
-CAPÍTULO X
-DISPOSICIONES TRANSITORIAS Y VIGENCIA
-Artículo 30.- Disposiciones transitorias. Se deberá adoptar en el plazo máximo de seis meses, las medidas que correspondan para dotar a las Unidades de Control Bienes de cada Sede, Subsede, Centro, Instituto u otras Adscrita del recursos humano necesario, equipo tecnológico software y hardware y materiales indispensables para su funcionamiento.
+Artículo 30.- Del acatamiento del reglamento. La violación de cualquier disposición contenida en el presente “Reglamento para el Control de Bienes e Inventarios de la Universidad Técnica Nacional”, será sancionada de conformidad con lo que establezca el Reglamento de Personal de la UTN, sin perjuicio de que se puedan aplicar otras leyes y reglamentos.
