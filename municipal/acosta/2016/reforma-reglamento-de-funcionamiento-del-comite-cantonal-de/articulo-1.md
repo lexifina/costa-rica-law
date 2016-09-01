@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE ACOSTA
+Informa que el Concejo de la Municipalidad de Acosta en acta de la sesión extraordinaria 02 celebrada el 9 de junio del 2016, en acuerdo número 1 por mayoría calificada y en firme. Este Concejo Municipal acuerda:
+Modificar el artículo 2 del Reglamento de funcionamiento del Comité Cantonal de Deportes y Recreación del Cantón de Acosta, el cual dirá “Los miembros de cada comité durarán en sus cargos dos años, podrán ser reelegidos y no devengarán dietas ni remuneración alguna”; y derogar el artículo 6 del reglamento de funcionamiento del Comité Cantonal de Deportes y Recreación del Cantón de Acosta.
