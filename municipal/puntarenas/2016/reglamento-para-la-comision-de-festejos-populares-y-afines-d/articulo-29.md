@@ -1,0 +1,1 @@
+Artículo 29.— Todas las erogaciones que requieran emisión de cheque serán autorizadas de previo por la Comisión y deberá constar en actas. Asimismo, dichos egresos requerirán necesariamente de la emisión de una orden de pago. La Municipalidad brindara un espacio para oficina de carnavales la cual estará dotada de equipo necesario para operar.

@@ -1,0 +1,4 @@
+Artículo 6º—En la primera sesión de la Comisión entre sus integrantes deberán nombrar una Junta Directiva, constituida por Presidente o Presidenta, secretario o secretaria, tesorero o tesorera un vocal y dos vocales, junta que será responsable de la dirección de cada una de las subcomisiones que la Comisión resuelva nombrar.
+Para efectos operativos, la comisión contará con la asesoría directa y obligatoria de la Tesorería y la Contabilidad Municipal.
+Además tendrán la asesoría de: a) Un abogado de la Dirección de Asuntos Jurídicos; b) Un representante de la Dirección Financiera c) un representante de la Proveeduría municipal y un representante de la Auditoria Municipal de conformidad con lo establecido en la Ley de Control Interno que preceptúa la obligación de brindar asesoría al órgano superior.
+La Comisión podrá apoyar sus funciones y planes de ejecución con los funcionarios municipales atinentes a la materia y al cargo.

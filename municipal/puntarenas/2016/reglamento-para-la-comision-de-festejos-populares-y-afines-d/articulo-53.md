@@ -1,0 +1,1 @@
+Artículo 53.— Todas las actuaciones y los documentos relativos a los diferentes procedimientos de contratación empleados por la Comisión, desde los primeros acuerdos hasta el último acto de liquidación, se conservarán en expedientes individuales, debidamente foliados y ordenados.

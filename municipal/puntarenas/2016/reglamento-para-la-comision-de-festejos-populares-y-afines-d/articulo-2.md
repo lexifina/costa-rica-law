@@ -1,0 +1,1 @@
+Artículo 2º—La Comisión de carnavales o afines del Cantón de Puntarenas tiene por naturaleza jurídica el constituirse en un órgano colegiado perteneciente a la Municipalidad de Puntarenas. Su titularidad corresponde a un conjunto de personas físicas, sujetas a las disposiciones del Concejo Municipal como su superior jerárquico y a la normativa que regula la materia.

@@ -1,0 +1,1 @@
+Artículo 63.- Una vez nombrada la Comisión de Festejos Populares, esta será juramentada por el Concejo Municipal y dentro de ese acto, los integrantes aceptarán a viva voz, el acatamiento de las disposiciones de este Reglamento.

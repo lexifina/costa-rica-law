@@ -1,0 +1,1 @@
+Artículo 8. -Quórum para las sesiones de las Comisiones de Festejos Populares: El quórum para que pueda sesionar válidamente la Comisión de Festejos Populares será el de la mayoría simple de sus integrantes, sea de la mitad más uno de sus miembros.

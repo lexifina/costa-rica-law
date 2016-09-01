@@ -1,0 +1,2 @@
+Artículo 36.-Autorización previa de gastos y emisión de orden de pago: Todas las erogaciones que requieran emisión de cheque serán autorizadas de previo mediante acuerdo de la Comisión, debiendo constar en el libro de actas el respectivo acuerdo de pago. Asimismo, dichos egresos requerirán necesariamente de la emisión de una orden de pago debidamente firmada por el Secretario, en la que conste número de la sesión donde se autorizó el egreso, así como el número, fecha y monto del respectivo cheque.
+Los formularios para órdenes de pago serán provistos por la Municipalidad
