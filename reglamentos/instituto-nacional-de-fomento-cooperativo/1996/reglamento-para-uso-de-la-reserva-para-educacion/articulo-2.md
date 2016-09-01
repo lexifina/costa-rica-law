@@ -1,3 +1,0 @@
-CAPITULO DOS
-Del destino de la reserva para educación y capacitación
-Artículo 2°-La Reserva o Provisión para Educación y Capacitación se destinará a sufragar dentro de la zona de influencia de la cooperativa, programas de divulgación del Sistema Cooperativo en sus aspectos filosóficos, doctrinario s, educativos y de capacitación, tanto en sus formas y procedimientos sociales para fines administrativos, como en su gestión empresarial, incluyendo la enseñanza de metodologías y técnicas para el desarrollo de procesos que ayuden a obtener mejores resultados socioeconómicos de las actividades a que se dedican los asociados, en el mayor aprovechamiento de los servicios que otorga la cooperativa, y en el fortalecimiento y consolidación de la asociación.

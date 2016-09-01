@@ -1,2 +1,0 @@
-Artículo 15.-La cooperativa por medio de la Gerencia General, deberá brindar al Comité para Educación las facilidades necesarias para que cumpla sus funciones satisfactoriamente.
-Los miembros que componen el Comité para Educación se reunirán en forma ordinaria una vez al mes, y extraordinariamente cada vez que se presenten asuntos importantes que así lo demanden. Así mismo deberán llevar el correspondiente libro de actas.

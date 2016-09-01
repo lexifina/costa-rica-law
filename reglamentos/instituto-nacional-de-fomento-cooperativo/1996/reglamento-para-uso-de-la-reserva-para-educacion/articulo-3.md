@@ -1,1 +1,0 @@
-Artículo 3°-EI Comité para Educación será el ente responsable de la programación y coordinación de los Planes de educación capacitación y divulgación cooperativa que se proyecten dentro de la organización a nivel central y en todas las localidades donde funcionen agencias o sucursales.

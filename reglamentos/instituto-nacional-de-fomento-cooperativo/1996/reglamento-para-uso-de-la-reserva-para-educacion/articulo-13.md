@@ -1,1 +1,0 @@
-Artículo 13.-El gerente de la cooperativa deberá informar por escrito al Comité de Educación, como mínimo al cierre de cada mes, la disponibilidad presupuestaria de la reserva o provisión para educación y capacitación.
