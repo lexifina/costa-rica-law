@@ -10,6 +10,5 @@ DECRETAN:
 REGLAMENTO PARA LA CREACIÓN Y EL FUNCIONAMIENTO
 DE LA COMISIÓN DE DONACIÓN DEL MINISTERIO
 DE CIENCIA, TECNOLOGÍA Y TELECOMUNICACIONES(*)
-Artículo 1º—Comisión de Donación. El Ministerio de Ciencia, Tecnología y Telecomunicaciones(*), contará con una Comisión de Donación, constituida por el Oficial Mayor, el Proveedor Institucional titular o interino en el cargo y el Encargado del Control de Bienes de la Institución. Dicha Comisión será encargada de recomendar las donaciones de los bienes susceptibles de ello.
-Esta comisión estará coordinada por el Oficial Mayor y se reunirá ordinariamente al menos una vez cada dos meses.
-(*)(Modificada su denominación por el artículo 11 de la Ley "Traslado del sector Telecomunicaciones del Ministerio de Ambiente, Energía y Telecomunicaciones al Ministerio de Ciencia y Tecnología”, N° 9046 del 25 de junio de 2012)
+Artículo 1°—Comisión de Donación. El Ministerio de Ciencia, Tecnología y Telecomunicaciones, contará con una Comisión de Donación, constituida por el (la) Director (a) Administrativo (a), el (la) Proveedor (a) Institucional y el (la) Encargado (a) del Control de Bienes de la Institución. Dicha Comisión será encargada de recomendar las donaciones de los bienes susceptibles de ello.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39982 del 1° de setiembre del 2016)

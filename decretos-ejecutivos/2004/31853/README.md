@@ -15,3 +15,4 @@ Reglamento para la Creación y el Funcionamiento de la Comisión de Donación de
 | --- | --- | --- |
 | 1 | 2004-06-30 | la propia norma |
 | 2 | 2012-06-25 | Ley 9046 |
+| 3 | 2016-09-01 | Decreto Ejecutivo 39982 (2016-09-01) |
