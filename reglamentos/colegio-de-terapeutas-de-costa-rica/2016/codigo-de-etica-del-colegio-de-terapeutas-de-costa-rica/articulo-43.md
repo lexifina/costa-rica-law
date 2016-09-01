@@ -1,0 +1,1 @@
+Artículo 43. —El Colegio en el ejercicio de la potestad disciplinaria, actuará sometido a las normas nacionales y a los principios contenidos en los instrumentos internacionales sobre derechos humanos aplicables en Costa Rica la Constitución y las leyes, así como a las disposiciones reglamentarias vigentes, según la escala jerárquica de las fuentes.

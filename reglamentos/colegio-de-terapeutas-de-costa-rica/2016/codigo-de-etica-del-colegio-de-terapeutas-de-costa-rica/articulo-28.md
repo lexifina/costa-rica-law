@@ -1,0 +1,1 @@
+Artículo 28. —Entablada la relación con el paciente y/o usuario, el Colegiado no puede renunciar a la misma, salvo por una causa justificada sobreviniente, así como cuando exista incumplimiento de las obligaciones materiales del paciente y/o usuario.

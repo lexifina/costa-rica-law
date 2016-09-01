@@ -1,0 +1,1 @@
+Artículo 52. — Las sanciones que se imponga contra el Colegiado se harán constar en el expediente y registro personal de dicho Colegiado. Además, la Junta Directiva informará a acerca de las sanciones a quien corresponda.

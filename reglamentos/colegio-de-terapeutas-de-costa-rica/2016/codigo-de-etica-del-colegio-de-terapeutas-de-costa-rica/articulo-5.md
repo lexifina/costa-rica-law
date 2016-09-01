@@ -1,0 +1,1 @@
+Artículo 5. —Cualquier disposición que enerve o haga negatoria la aplicación de esta normativa, que exonere de responsabilidad al Colegiado o que implique la renuncia para accionar o quejarse contra él, será absolutamente nula y se tendrá por no puesta.

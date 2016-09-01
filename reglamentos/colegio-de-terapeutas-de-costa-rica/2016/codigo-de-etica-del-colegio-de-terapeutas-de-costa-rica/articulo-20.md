@@ -1,0 +1,1 @@
+Artículo 20. —El Colegiado debe procurar el ejercicio de su profesión por medios dignos y lícitos, evitando el ofrecimiento y realización de procedimientos no permitidos por el perfil profesional correspondiente o por el Colegio.

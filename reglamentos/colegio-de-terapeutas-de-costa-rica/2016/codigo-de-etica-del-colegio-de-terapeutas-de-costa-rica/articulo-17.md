@@ -1,0 +1,1 @@
+Artículo 17. —El Colegiado tiene la obligación de guardar secreto profesional sobre sus expedientes, pudiendo revelar sólo lo necesario para su defensa cuando esté en peligro de una sanción por la existencia de un proceso disciplinario, administrativo o judicial.

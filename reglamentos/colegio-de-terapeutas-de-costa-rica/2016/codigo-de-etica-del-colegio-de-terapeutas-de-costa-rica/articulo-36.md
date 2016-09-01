@@ -1,0 +1,1 @@
+Artículo 36. —Los Colegiados deben asumir la responsabilidad por todas las decisiones que tomen y por las acciones que ejecuten, supervisen o deleguen en el ejercicio de su profesión. Se les exigirá responsabilidad por cualquier acción u omisión que lesione la integridad de las personas, sus derechos o intereses legítimos, cometida con dolo, negligencia, impericia o imprudencia.

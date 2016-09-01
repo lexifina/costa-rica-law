@@ -1,0 +1,1 @@
+Artículo 15. —El pago de los honorarios del Colegiado, no debe ser la causa fundamental o determinante para asumir la atención del paciente y/o usuario, sino que debe prevalecer su vocación en su campo profesional.

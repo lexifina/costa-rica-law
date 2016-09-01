@@ -1,0 +1,2 @@
+Artículo 12. — El Colegiado debe ser diligente, respetuoso y puntual en todas sus actuaciones. La honestidad y la integridad moral del Colegiado es extensiva a su conducta social y personal. Su comportamiento debe ser siempre probo y leal, veraz y de buena fe. El Colegiado debe tener con sus colegas, respeto, consideración y solidaridad.
+Asimismo, entre los Colegiados deben procurarse fraternidad, lealtad y respeto recíproco.

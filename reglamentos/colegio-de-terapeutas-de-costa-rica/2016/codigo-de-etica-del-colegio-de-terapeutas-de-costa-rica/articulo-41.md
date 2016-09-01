@@ -1,0 +1,1 @@
+Artículo 41. — El Colegiado debe asistir y votar en las asambleas. Además, tiene el deber de brindar a los órganos del Colegio un informe oportuno sobre su persona o actividad profesional cuando se le solicite.

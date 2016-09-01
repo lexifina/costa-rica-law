@@ -1,0 +1,1 @@
+Artículo 35. —Los Colegiados se deben a los pacientes y/o usuarios que requieran su atención. Los Colegiados tendrán vocación de servicio continuo y permanente en favor del interés o las necesidades de los pacientes y/o usuarios.

@@ -1,0 +1,1 @@
+Artículo 14.— Queda prohibido al Colegiado prestar sus servicios o su nombre para facilitar el ejercicio profesional de quienes no están legalmente autorizados para hacerlo ni debidamente incorporados a este Colegio. Tampoco deberán asociarse con personas que ejerzan ilegalmente la profesión.

@@ -1,0 +1,1 @@
+Artículo 37. —Los Colegiados no deben asumir funciones que no correspondan al ámbito de su competencia. Tienen el derecho a rehusarse realizar aquellas actividades que le imponga el empleador que no sean compatibles con su profesión o que riñan con el ejercicio de su profesión.

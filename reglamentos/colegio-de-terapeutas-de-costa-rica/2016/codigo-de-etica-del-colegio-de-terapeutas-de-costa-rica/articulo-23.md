@@ -1,0 +1,1 @@
+Artículo 23. —Los Colegiados, cuando se encuentren en presencia de un enfermo grave o herido donde peligre su vida, deberán prestar auxilio, asistencia y asegurarse que reciba los cuidados de los que se disponga en ese momento y lugar. Se exceptúa de esta obligación a las personas Colegiadas que al prestar el auxilio ponga en riesgo su vida e integridad física.

@@ -1,0 +1,1 @@
+Artículo 44. — La Fiscalía del Colegio, tendrá a su cargo la función de recibir todas las denuncias interpuestas contra los Colegiados, por hechos relacionados con el ejercicio profesional y darle el trámite necesario. El fiscal estudiará la denuncia y resolverá sobre su admisibilidad.

@@ -1,0 +1,1 @@
+Artículo 22. —Cuando se vea violentada la independencia a que alude el artículo anterior, el Colegiado deberá denunciar ante el Colegio, en defensa de los principios éticos de la profesión. En caso necesario, el Colegio adoptará las acciones necesarias y urgentes que el caso requiera, a fin de restablecer el orden alterado y defender los derechos de los colegiados.

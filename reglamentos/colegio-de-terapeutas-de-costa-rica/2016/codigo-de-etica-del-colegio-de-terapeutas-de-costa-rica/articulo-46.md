@@ -1,0 +1,1 @@
+Artículo 46. — La Fiscalía o el Tribunal de Ética del Colegio, podrán solicitar a la Junta Directiva que se revoque la licencia a un colegiado, cuando se haya comprobado que ésta ha sido adjudicada sin el cumplimiento de los requisitos legales establecidos para tal efecto.

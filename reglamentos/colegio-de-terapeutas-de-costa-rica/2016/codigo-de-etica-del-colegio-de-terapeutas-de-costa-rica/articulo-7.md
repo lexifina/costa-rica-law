@@ -1,0 +1,1 @@
+Artículo 7. —Las normas de este Código sólo podrán ser modificadas por acuerdo de Asamblea General del Colegio. Se autoriza a la Junta Directiva, Tribunal de Ética y Fiscalía para que de manera conjunta emitan la normativa necesaria que regule el procedimiento para la interposición de denuncias y su respectivo trámite.

@@ -1,0 +1,1 @@
+Artículo 11. — A toda persona que se encuentre en estado de emergencia, el Colegiado deberá prestarle atención de conformidad con sus competencias y conocimiento en el ejercicio de su profesión, en aras de la protección de la vida humana.

@@ -1,0 +1,1 @@
+Artículo 3. —El presente Código y sus disposiciones se aplicarán sin perjuicio de otras normas jurídicas y de la competencia respectiva de las autoridades administrativas y judiciales. En el caso de que el Colegiado labore para una institución pública o privada, el Colegio mantendrá sus facultades y competencias para sancionar las conductas que violenten el presente código.

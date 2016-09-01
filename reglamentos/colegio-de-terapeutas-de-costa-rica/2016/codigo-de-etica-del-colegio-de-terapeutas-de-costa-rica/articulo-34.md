@@ -1,0 +1,1 @@
+Artículo 34. —El Colegiado está obligado a llevar un expediente terapéutico de cada paciente o usuario. A solicitud del paciente y/o usuario o autoridad judicial, el Colegiado deberá extender un diagnostico terapéutico. En las instituciones públicas se ajustará a lo que establezca su normativa.

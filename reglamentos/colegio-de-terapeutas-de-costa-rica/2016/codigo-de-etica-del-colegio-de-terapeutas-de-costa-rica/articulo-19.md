@@ -1,0 +1,1 @@
+Artículo 19. —El Colegiado debe llevar a cabo su actividad y la de sus subalternos en un lugar apto para tales efectos. Podrá asociarse con colegas y otros profesionales para el estudio de los asuntos que le competen.
