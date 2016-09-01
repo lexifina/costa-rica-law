@@ -11,4 +11,6 @@ g) Velar porque sus subalternos cumplan con el correcto empleo del equipo, mobil
 h) Informar periódicamente al superior jerárquico sobre la marcha de su respectiva dependencia y, en forma inmediata, cuando ocurra un hecho extraordinario que requiera su atención.
 i) Cumplir las obligaciones señaladas en el artículo 102 de la Ley General de la Administración Pública y todas las demás propias de su cargo.
 j) Mantener las normas de respeto apropiadas, para lograr relaciones humanas cordiales con sus colaboradores, compañeros y superiores.
+k) Velar porque sus subalternos no incurran en prácticas discriminatorias hacia ningún servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En caso de existir denuncia, interpuesta de manera personal o por interpósita persona, en contra de algún subalterno por haber incurrido en estas prácticas, instruir para el inicio del procedimiento sancionatorio correspondiente.
+(Así adicionado el inciso anterior mediante sesión ordinaria N° 6217 del 1° de setiembre del 2016)
 (Así reformado por acuerdo tomado de la Junta Directiva, en su sesión ordinaria N° 4968 de 8 de marzo de 2000)

@@ -23,3 +23,4 @@ Reglamento Autónomo de Organización y Servicio del Instituto Nacional de Vivie
 | 8 | 2012-12-06 | Reglamento 5970 (2012-12-06) |
 | 9 | 2012-12-13 | Reglamento 5972 (2012-12-13) |
 | 10 | 2015-10-29 | Reglamento 6157 (2015-10-29) |
+| 11 | 2016-09-01 | Reglamento 6217 (2016-09-01) |
