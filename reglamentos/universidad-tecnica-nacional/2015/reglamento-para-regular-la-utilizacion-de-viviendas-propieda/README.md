@@ -14,3 +14,4 @@ Reglamento para Regular la Utilización de Viviendas Propiedad de la Universidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-11 | la propia norma |
+| 2 | 2016-09-01 | Reglamento 18 (2016-09-01) |
