@@ -1,3 +1,5 @@
+(Derogado)
+(Este Convenio se dejó sin efecto por el artículo XIII del Convenio de Cooperación para el Desarrollo con los Estados Unidos Mexicanos, N° 9365 del 21 de junio de 2016)
 APROBACIÓN DEL CONVENIO BÁSICO DE COOPERACIÓN TÉCNICA
 Y CIENTÍFICA ENTRE EL GOBIERNO DE LA REPÚBLICA
 DE COSTA RICA Y EL GOBIERNO DE LOS
