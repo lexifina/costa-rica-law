@@ -1,0 +1,6 @@
+ARTÍCULO VIII
+COOPERACIÓN TRILATERAL
+Cada Parte podrá sugerir a la Otra, de conformidad con los criterios que establezcan de común acuerdo, la ejecución de proyectos de cooperación trilateral (en beneficio de terceros), en áreas de interés común, a fin de aprovechar sus fortalezas y potenciar impactos, por medio de la utilización coordinada de recursos humanos, técnicos y financieros. Las propuestas serán analizadas por las Partes de conformidad con sus normas y procedimientos internos y en coordinación con los gobiernos de los Estados participantes.
+La ejecución de los proyectos aprobados, se formalizará a través de un intercambio de Notas, que deberán especificar, en cada caso, los objetivos; medios de acción; formas de participación; obligaciones de cada Parte; contribuciones técnicas, financieras, de recursos humanos y otros; presupuestos, incluyendo los costos de supervisión técnica y administrativa que correspondan; y cualquier otra información que asegure el adecuado cumplimiento de lo convenido.
+Estos proyectos se sujetarán a las modalidades de cooperación establecidas en el Artículo III del presente Convenio.
+Cada Parte contribuirá al financiamiento de los proyectos de cooperación trilateral, de conformidad con su legislación nacional y su disponibilidad presupuestal existente. Los porcentajes del financiamiento serán definidos para cada caso.

@@ -1,0 +1,5 @@
+ARTÍCULO V
+GESTIÓN DE LOS PROYECTOS Y/0 ACTIVIDADES DE COOPERACIÓN
+En el proceso de gestión de los proyectos y/o actividades de cooperación, tales como la elaboración, negociación y aprobación de sus términos de referencia, las Partes definirán los tiempos y mecanismos para llevar a cabo dichos procesos y, de ser necesario, organizarán videoconferencias para abordar los cronogramas de trabajo.
+Para la ejecución de los proyectos y/o actividades de cooperación, se podrá considerar la participación de organismos y entidades de los sectores público y privado de ambas Partes, de las universidades, organismos de investigación y organizaciones no gubernamentales. Las Partes deberán tomar en consideración la importancia de la ejecución de proyectos bilaterales y de desarrollo trilateral, que respondan a las prioridades contenidas en sus respectivos planes nacionales de desarrollo.
+Las Partes podrán suscribir acuerdos complementarios de cooperación en áreas específicas de interés común, que se regirán de conformidad con las disposiciones del presente Convenio.
