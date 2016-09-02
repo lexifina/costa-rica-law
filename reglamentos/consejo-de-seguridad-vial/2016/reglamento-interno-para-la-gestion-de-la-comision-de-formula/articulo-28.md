@@ -1,0 +1,1 @@
+Artículo 28.- Presupuesto Extraordinario. Mediante presupuesto extraordinario producto de nuevos ingresos, sólo en casos especiales se financiarán gastos logísticos o de apoyo a la labor sustantiva, de lo contrario, los mismos deberán ser solventados mediante modificación presupuestaria de recursos del Plan Operativo Institucional - Presupuesto Ordinario.

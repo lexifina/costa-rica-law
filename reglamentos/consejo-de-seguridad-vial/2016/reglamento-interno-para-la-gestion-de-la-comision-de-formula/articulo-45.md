@@ -1,0 +1,1 @@
+Artículo 45.- Registro de los Cambios. Se deberá registrar en los archivos correspondientes los documentos que respaldan las solicitudes de cambios y demás que forma parte del proceso, según competencias de las unidades institucionales involucradas en los cambios aprobados.

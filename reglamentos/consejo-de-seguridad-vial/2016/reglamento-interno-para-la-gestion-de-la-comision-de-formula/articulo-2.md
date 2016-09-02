@@ -1,0 +1,1 @@
+Artículo 2.- Alcances y Ámbito de Aplicación. El presente reglamento aplica únicamente para el Consejo de Seguridad Vial, y está subdividido en dos Programas Presupuestarios: Programa 1- Administración Superior y Programa 2- Administración Vial.

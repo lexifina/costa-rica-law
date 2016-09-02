@@ -1,0 +1,1 @@
+Artículo 46.- Cambios Aprobados. Cada unidad ejecutora deberá incorporar el análisis de los cambios aprobados dentro de la evaluación acumulada en forma trimestral y anual de los proyectos, metas, acciones, la cual deben realizar y remitir al Área de Planificación y Evaluación en las fechas que se programen durante el período presupuestario.
