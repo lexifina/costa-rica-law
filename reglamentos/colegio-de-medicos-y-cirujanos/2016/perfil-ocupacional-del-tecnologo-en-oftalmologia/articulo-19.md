@@ -1,0 +1,1 @@
+Artículo 19.—Normas de Bioseguridad: El Tecnólogo, debe velar porque en el sitio de trabajo se cumpla con todas las pautas sanitarias y legales establecidas para el adecuado manejo de desechos biopeligrosos.

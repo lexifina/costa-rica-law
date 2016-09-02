@@ -1,0 +1,6 @@
+Artículo 11.—Atención al Usuario:
+a) Recibe al usuario en el servicio donde se efectuará el estudio y verifica la información del mismo, para consignarla en todas las fórmulas de reporte que se requieran. Verifica la existencia física del consentimiento informado, el cual debe encontrarse ya completo y debidamente firmado.
+b) Informar al paciente y familiares que lo acompañan todo lo concerniente al tipo de procedimiento que se le va a realizar y brindarle apoyo emocional.
+c) Educación y orientación al usuario: La misma se realiza para favorecerle en el conocimiento del proceso al que va a ser sometido, como estudios especiales o intervenciones quirúrgicas en oftalmología, así como de los cuidados que debe de tener posterior al mismo.
+d) Instruye al paciente en los cuidados para su salud ocular general, entre estas: aseo personal, manejo de medicamentos según la prescripción del médico, concientizar sobre prevención de accidentes oculares y promueve su revisión oftalmológica anual.
+e) Aclara al paciente sobre diferentes conceptos de alteraciones refractivas, como lo son: la miopía, la hipermetropía, el astigmatismo, la presbicia así como su implicación en la visión, también en entender las diferentes patologías oculares.

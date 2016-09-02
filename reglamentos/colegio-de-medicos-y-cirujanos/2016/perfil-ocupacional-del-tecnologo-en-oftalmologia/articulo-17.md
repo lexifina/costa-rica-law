@@ -1,0 +1,1 @@
+Artículo 17.—De acuerdo con las indicaciones previas del especialista en Oftalmología, podrá brindar colaboración en la realización de los exámenes oculares de detección, función, medición y valoración que le sean solicitados de manera verbal o escrita e informar el resultado correspondiente así como manejar el equipo de facoemulsificación durante la cirugía de catarata.

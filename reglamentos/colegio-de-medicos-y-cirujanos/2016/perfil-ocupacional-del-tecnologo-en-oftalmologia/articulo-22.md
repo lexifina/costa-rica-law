@@ -1,0 +1,1 @@
+Artículo 22.—En el desempeño de sus funciones y previa indicación del ente rector en Salud del país, le puede corresponder participar en las diferentes comisiones de atención a emergencias sanitarias que ocurran.

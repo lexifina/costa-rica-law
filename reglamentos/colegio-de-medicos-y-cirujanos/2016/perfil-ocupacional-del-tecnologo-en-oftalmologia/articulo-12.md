@@ -1,0 +1,1 @@
+Artículo 12.—Manejo de muestras biológicas: Colabora con el Médico Especialista en Oftalmología para la obtención de las muestras que sean necesarias, las cuales serán tratadas adecuadamente, las rotulará con la información del paciente que sea requerida y se asegurará que sean entregadas en el departamento correspondiente.
