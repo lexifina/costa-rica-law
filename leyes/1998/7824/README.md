@@ -1,6 +1,6 @@
 # Convenio Básico General de Cooperación Técnica y Científica con México
 
-Ley N° 7824 del 1998-09-09. SINALEVI, ficha 30595: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=30595&param2=32301&param3=1>.
+Ley N° 7824 del 1998-09-09. SINALEVI, ficha 30595: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=30595&param2=105223&param3=1>.
 
 Publicada en La Gaceta N° 189 del 1998-09-29.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1998-09-29 | Ley 7824 | 1998-09-09 |
 | 2 de 3 | 1998-09-29 | SINALEVI | 1998-09-09 |
+| 3 de 3 | 2016-09-02 | Tratados Internacionales 9365 (2016-06-21) | 2016-06-21 |
