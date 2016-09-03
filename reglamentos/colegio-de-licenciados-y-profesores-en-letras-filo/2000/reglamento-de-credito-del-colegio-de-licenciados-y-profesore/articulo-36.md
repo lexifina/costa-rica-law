@@ -1,3 +1,0 @@
-Articulo 36.—Transcurridos 30 días hábiles, después de que una solicitud haya sido aprobada, ésta se anulará, si el solicitante no se ha presentado a formalizarla pudiendo entonces formular nueva solicitud.
-Asimismo se procederá con los cheques emitidos por concepto de crédito. En ambos casos, el colegiado autorizará el cobro, mediante rebajo de su salario, del porcentaje correspondiente a gastos administrativos, señalado en el artículo 31 anterior.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)

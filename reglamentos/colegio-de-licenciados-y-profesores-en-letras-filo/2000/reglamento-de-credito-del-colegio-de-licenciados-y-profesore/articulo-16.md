@@ -1,3 +1,0 @@
-Articulo 16.—Crédito de Emergencia: Este tipo de crédito, tendrá una tasa de interés corriente del 50% si el plazo del crédito es de un año y del 75% si el plazo del crédito es de dos años de la tasa activa para créditos personales que dicte el Banco Central de Costa Rica y una tasa de interés moratorio del 100% del porcentaje fijado por dicho Banco. El plazo del crédito será de un año y se pagará mediante cuotas mensuales, iguales y consecutivas, que incluyan capital e intereses correspondientes.
-Este crédito se rige por lo establecido en el artículo 15.
-(Así REFORMADO TOTAL Y EXPRESAMENTE por la Asamblea General Extraordinaria XCVII, aprobada el 8 de febrero del 2003, publicada en La Gaceta No. 62 de 28 de marzo del 2003)

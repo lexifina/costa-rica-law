@@ -1,1 +1,0 @@
-Articulo 6°—La Junta Directiva delega todas las labores administrativas referentes al trámite de solicitudes de crédito a la Comisión Administrativa de Crédito, a la que se hace referencia en el articulo 4° de este Reglamento.

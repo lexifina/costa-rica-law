@@ -1,1 +1,0 @@
-Articulo 23.—Cuando la póliza de la Sociedad de Seguros de Vida del Magisterio Nacional haya sido ofrecida como garantía para el crédito, esta se ejecutará al fallecer el colegiado, salvo que la operación esté cubierta, como garantía adicional, por una póliza de saldos deudores.

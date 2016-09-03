@@ -1,1 +1,0 @@
-Articulo 5°—Las solicitudes de crédito deben incorporarse al Fondo Mutual de Protección Crediticia para Deudores y Fiadores del Colegio. El valor total de esta garantía se deducirá del monto del crédito que se entregara al colegiado.

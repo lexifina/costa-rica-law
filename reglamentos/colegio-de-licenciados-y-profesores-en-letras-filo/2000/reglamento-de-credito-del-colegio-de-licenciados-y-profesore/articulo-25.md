@@ -1,1 +1,0 @@
-Articulo 25.—En los créditos denominados "créditos comentes", si la garantía que se ofrece es fiduciaria, para asegurar el préstamo se necesitará un fiador, el cual deberá cumplir con el requisito establecido en el articulo anterior.
