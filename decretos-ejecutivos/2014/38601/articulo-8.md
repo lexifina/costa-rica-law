@@ -1,6 +1,8 @@
 Artículo 8º—Instancia responsable del proceso de selección y asignación. Se establece la Comisión Seleccionadora del Fondo becas-taller, como órgano encargado de seleccionar y asignar las becas-taller. Estará compuesta por los siguientes integrantes:
-a) La coordinación del Departamento de Fomento Cultural de la Dirección de Cultura o su representante, quien presidirá las deliberaciones.
-b) Los funcionarios de la unidad técnica del Fondo becas-taller.
-c) Los gestores culturales de la Dirección de Cultura que atienden las provincias de Alajuela, Heredia, Cartago, San José, Limón, Guanacaste, Puntarenas y las regiones de la Zona Norte y la Zona Sur.
-d) Dos representantes de organizaciones culturales, debidamente inscritas en el Sistema de Información Cultural, creado y administrado por el Ministerio de Cultura y Juventud, denominado SICultura.
-e) Un representante de la Comisión Nacional de Patrimonio Cultural Inmaterial - CONAPACI, creada por Decreto Ejecutivo Nº 33093-C del 20 de marzo del 2006 y modificada por Decreto Ejecutivo Nº 38325-C del 22 de enero de 2014.
+a. La coordinación del Departamento de Fomento Cultural de la Dirección de Cultura o su representante, quien presidirá las deliberaciones.
+b. Los funcionarios de la unidad técnica del Fondo becas-taller.
+c. Los gestores culturales de la Dirección de Cultura que atienden las provincias de Alajuela, Heredia, Cartago, San José, Limón, Guanacaste, Puntarenas y las regiones de la Zona Norte y la Zona Sur.
+d. Dos representantes de organizaciones culturales, debidamente inscritas en el Sistema de Información Cultural, creado y administrado por el Ministerio de Cultura y Juventud, denominado SICultura.
+e. Un representante de la Comisión Nacional de Patrimonio Cultural Inmaterial — CONAPACL creada por Decreto Ejecutivo No. 33093-C del 20 de marzo del 2006 y modificada por Decreto Ejecutivo No. 38325-C del 22 de enero de 2014.
+Los representantes de organizaciones culturales serán seleccionados de la siguiente manera: El encargado del Sistema facilitará a la coordinación de Fomento Cultural la lista de organizaciones inscritas. Posteriormente, esta unidad administrativa preseleccionará a aquellas organizaciones que cumplan con una experiencia mínima definida por la Dirección de Cultura y les cursará invitación para conformar esta Comisión Seleccionadora. De las organizaciones que respondan positivamente este llamado, serán escogidos los representantes requeridos por este artículo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39954 del 5 de setiembre de 2016)
