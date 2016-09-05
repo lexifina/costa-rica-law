@@ -1,13 +1,7 @@
-3 DEFINICIONES
-3.1 Acreditación: Atestación o declaración de tercera parte relativa a un organismo de evaluación de la conformidad que manifiesta la demostración formal de su competencia para llevar a cabo tareas específicas de evaluación de la conformidad.
-3.2 ECA: Ente Costarricense de Acreditación.
-3.3 Foros de Acreditación Internacionales:
-- IAAC: Cooperación Interamericana de Acreditación (Interamerican Accreditation Cooperation).
-- IAF: Foro Internacional de Acreditación (International Accreditation Forum).
-- PAC: Cooperación de Acreditación del Pacifico (Pacific Accreditation Cooperation)
-- EA: Cooperación Europea para la Acreditación (European Cooperation for Accreditation).
-3.4 Interesado: Organismo de Certificación de Sistemas o Producto
-3.5 ISO: Organización Internacional de Estandarización.
-3.6 MLA: Acuerdo de Reconocimiento Multilateral.
-3.7 Organismo de acreditación (OA): Organismo con autoridad que lleva a cabo la acreditación. La autoridad de un organismo de acreditación deriva en general del Gobierno.
-3.8 Símbolo de acreditación: Símbolo emitido por un OA para ser utilizado por los OEC para indicar su condición de acreditado, que comprende el logotipo OA o el logotipo combinado según tipo de OEC, el tipo de OEC, número de acreditación y la fecha en que se obtiene la acreditación. Foros Internacionales:
+3 DOCUMENTOS DE REFERENCIA.
+- Ley de Marcas y Otros Signos Distintivos, Ley No. 7978, artículo 55, 56.
+- Ley del Sistema Nacional para la Calidad, Ley No. 8279.
+- Norma INTE-ISO/IEC 17021-1 en su versión vigente Evaluación de la conformidad - Requisitos para los organismos que realizan la auditoría y la certificación de sistemas de gestión.
+- Norma ITNE-ISO/IEC 17024 en su versión vigente Evaluación de la conformidad - Requisitos generales para los organismos que realizan certificación de personas.
+- Norma INTE-ISO/IEC 17065 en su versión vigente Evaluación de la conformidad - Requisitos para organismos certifican productos, procesos y servicios.
+- Norma INTE-ISO/IEC 17030 en su versión vigente Evaluación de la conformidad - Requisitos generales para las marcas de conformidad de tercera parte.

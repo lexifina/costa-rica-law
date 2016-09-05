@@ -14,3 +14,4 @@ Procedimiento ECA-MC-MA-P07 procedimiento para la aprobación de reglamentos de 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-22 | la propia norma |
+| 2 | 2016-09-05 | Acuerdo 0 (2016-09-05) |
