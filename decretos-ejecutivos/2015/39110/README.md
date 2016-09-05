@@ -14,3 +14,4 @@ Crea Programa Puntos de Cultura del Ministerio de Cultura y Juventud
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-08-04 | la propia norma |
+| 2 | 2016-09-05 | Decreto Ejecutivo 39955 (2016-09-05) |
