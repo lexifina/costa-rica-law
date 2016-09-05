@@ -1,0 +1,9 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+AVISO
+N° SC-011-2016.—San José, 12 de agosto del 2016.
+Se hace saber que la Dirección General de Servicio Civil ha emitido las siguientes resoluciones:
+DG-158-2016: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la especialidad “Prevención para la Salud Estudiantil”, de manera que en el apartado “Atinencias Académicas” se incluyan los títulos académicos de Bachillerato y Licenciatura en Enseñanza Especial con sus Énfasis y Bachillerato y Licenciatura en Educación Especial con sus Énfasis.
+DG-159-2016: Se modifica el Manual de Puestos del Subsistema Indígena, creado mediante Resolución DG-151-2013, específicamente en la nomenclatura de las clases Asesor Regional en Educación Indígena, Asesor Nacional en Educación Indígena; Jefe Técnico en Educación Indígena 1 y 2, para que en consiguiente se les incluya el grupo de especialidad según se indica en la presente resolución.
+DG-160-2016: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la especialidad “Mecánica de Precisión”, de manera que en el apartado “Atinencias Académicas” se incluya el título académico de Bachillerato en Ingeniería Mecánica y Administración de la Universidad Latina de Costa Rica.
+DG-161-2016: Se modifica el Manual Descriptivo de Especialidades Docentes (Resolución DG-399-2010), en particular la especialidad “Artes Plásticas, Subespecialidad Artes Pláticas”, de manera que en el apartado “Atinencias Académicas” se incluya la carrera Licenciatura en Diseño Publicitario de la Universidad Hispanoamericana.
+DG-162-2016: Se modifica el Manual de Especialidades Docentes, específicamente en el apartado de “Atinencias Académicas” de las especialidades de la Educación Técnica, para que se incluya la carrera de Licenciatura en Educación Técnica, tal como se detalla en la presente resolución.
