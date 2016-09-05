@@ -1,1 +1,0 @@
-Artículo 53.—Sobre la implementación de recomendaciones. La Junta Directiva o el titular subordinado, una vez aceptadas las recomendaciones de la Auditoría Interna, debe girar por escrito la orden para su implementación al responsable designado, con copia a la Auditoría Interna, disponiendo las fechas de inicio y de finalización probable de la misma.

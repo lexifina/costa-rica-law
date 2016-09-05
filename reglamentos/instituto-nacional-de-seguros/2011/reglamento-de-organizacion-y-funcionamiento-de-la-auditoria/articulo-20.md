@@ -1,3 +1,0 @@
-SECCIÓN IV
-Del Auditor y Subauditor Internos
-Artículo 20.—Del Auditor Interno. El Auditor es el delegado directo de la Junta Directiva para ejercer en su nombre y representación la vigilancia, inspección, fiscalización sistemática de la situación y marcha general del Instituto. EI puesto de Auditor Interno corresponde al máximo nivel de competencia, responsabilidad y autoridad de la Auditoría Interna. El Auditor Interno responderá por su gestión ante la Junta Directiva y, en lo conducente ante el Comité de Auditoría Corporativo del Grupo Financiero del Instituto Nacional de Seguros y la Contraloría General de la República.

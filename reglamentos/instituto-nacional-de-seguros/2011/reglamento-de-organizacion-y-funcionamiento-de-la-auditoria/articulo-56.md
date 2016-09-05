@@ -1,2 +1,0 @@
-Artículo 56.—Sobre la prescripción de responsabilidad. La Junta Directiva o el funcionario con la competencia para iniciar el procedimiento administrativo por recomendación de la Auditoría Interna, deben tomar las medidas para que éste se atienda dentro de los plazos que correspondan a fin de que se interrumpa la prescripción de la responsabilidad.
-Se considerará como falta grave del funcionario competente para iniciar el procedimiento sancionatorio, el no darle inicio a este oportunamente o el dejar prescribir la responsabilidad del infractor, sin causa justificada.
