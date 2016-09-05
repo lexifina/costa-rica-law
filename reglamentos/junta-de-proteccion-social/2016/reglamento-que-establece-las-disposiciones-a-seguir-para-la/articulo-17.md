@@ -1,0 +1,1 @@
+Artículo 17°- Deber de informar sobre funcionarios sujetos a responsabilidades: El Jerarca tiene el deber de informar al titular de la Auditoría Interna sobre las gestiones y acciones que eventualmente puedan desembocar en la determinación de responsabilidades y en la aplicación de medidas disciplinarias al personal de la Auditoría Interna.

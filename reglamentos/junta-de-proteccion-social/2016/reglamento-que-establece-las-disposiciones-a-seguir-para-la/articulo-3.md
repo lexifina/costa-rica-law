@@ -1,0 +1,1 @@
+Artículo 3°- Objetivo: El objeto de este reglamento es establecer el trámite a seguir para la aprobación, modificación o derogatoria de regulaciones administrativas aplicables al Auditor y al Subauditor Internos y a los funcionarios de la Auditoría Interna, así como cumplir con lo dispuesto en el artículo N° 24 de la Ley General de Control Interno.

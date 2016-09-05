@@ -1,0 +1,1 @@
+Artículo 9°.- Resolución Interna: El jerarca deberá resolver el requerimiento de manera motivada dentro del plazo de diez días hábiles, dejando constancia del análisis y las razones expuestas, comunicando su resolución al titular de la Auditoría Interna.

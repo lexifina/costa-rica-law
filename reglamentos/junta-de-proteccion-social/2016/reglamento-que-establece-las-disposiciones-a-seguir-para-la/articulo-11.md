@@ -1,0 +1,2 @@
+Artículo 11°.- Gestión ante la Contraloría General de la República: El Auditor Interno podrá plantear la gestión ante el Órgano Contralor, remitiendo toda la documentación, a fin de que la Contraloría General de la República resuelva la discrepancia, cuando habiendo transcurrido el plazo establecido en el artículo N° 9 de este reglamento el Jerarca no se haya pronunciado mediante resolución.
+Lo resuelto por el Órgano Contralor será de acatamiento obligatorio.
