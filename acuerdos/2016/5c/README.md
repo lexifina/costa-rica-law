@@ -14,3 +14,4 @@ Procedimiento ECA-MC-C13 Criterios para la Evaluación de la Norma INTE-ISO15189
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-23 | la propia norma |
+| 2 | 2016-09-05 | Acuerdo 0 (2016-09-05) |
