@@ -1,0 +1,1 @@
+Artículo 5°— Para el cumplimiento de sus funciones, la Comisión Interinstitucional contará con un Equipo Técnico que coadyuvará en su labor. Dicho Equipo estará integrado por un miembro propietario y suplente de cada una de las instituciones y organizaciones contempladas en el artículo 1 de este decreto.

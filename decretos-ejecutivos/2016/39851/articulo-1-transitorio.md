@@ -1,0 +1,2 @@
+Transitorio I: En caso de que las respectivas instituciones y organizaciones no nombren a alguno (a) de los representantes que integrarán el Equipo Técnico señalado en el artículo 5 de este decreto, dicho rol será asumido por el representante integrante del grupo técnico de trabajo interinstitucional encargado de elaborar la propuesta del Marco Nacional de Cualificaciones de la educación y formación técnica profesional de Costa Rica.
+Dado en la Presidencia de la República, San José, a los ocho días del mes de agosto de dos mil dieciséis.

@@ -1,0 +1,1 @@
+Artículo 2°— La Comisión Interinstitucional sesionará en forma ordinaria una vez por mes y, en forma extraordinaria, por convocatoria de la Ministra (o) de Educación Pública o su Viceministro(a), cuando así se amerite. La convocatoria a sesiones extraordinarias deberá remitirse a los miembros de la Comisión con al menos veinticuatro horas de anticipación de la respectiva sesión.
