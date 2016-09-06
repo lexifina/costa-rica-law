@@ -1,2 +1,0 @@
-Artículo 4º—Reuniones. El Consejo sesionará ordinariamente una vez cada trimestre y extraordinariamente, cada vez que sea convocado por quien lo preside o por tres de sus miembros. En este último caso, los tres miembros, con indicación expresa del asunto a tratar, deberán así solicitarlo a la persona que lo presida, quien realizará la convocatoria a los miembros del Consejo.
-Las convocatorias se realizarán por medio de oficio o por correo electrónico.

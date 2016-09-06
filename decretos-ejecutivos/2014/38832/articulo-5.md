@@ -1,2 +1,0 @@
-Artículo 5º—Cuórum y votaciones. En tanto esté integrado el cuórum estructural, el cuórum para sesionar válidamente será la mayoría absoluta de sus integrantes y los acuerdos serán adoptados por mayoría absoluta de los miembros presentes. En caso de empate el Presidente tendrá voto de calidad.
-Entiéndase como cuórum estructural, el órgano colegiado válidamente conformado o integrado, es decir, aquel en que todos los miembros que le componen se encuentren debidamente nombrados.
