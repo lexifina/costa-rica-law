@@ -1,5 +1,7 @@
 CAPÍTULO IV
-Derechos y responsabilidades de las personas menores de edad
+DERECHOS, RESPONSABILIDADES Y PROHIBICIONES DE
+LAS PERSONAS MENORES DE EDAD
+(Así reformado el capítulo anterior en sesión N° 36 del 6 de setiembre de 2016)
 Artículo 15.—Derechos. Son derechos de la población beneficiada:
 a) Recibir una atención y servicios integrales, coherentes con el objeto de los CECUDI, que tome en cuenta sus necesidades, intereses y los avances de la pedagogía.
 b) Recibir comprensión y guía oportuna de parte del personal docente, administrativo, y profesional y otros servicios especiales que preste el Centro, previo criterio del o la docente o profesional a cargo.

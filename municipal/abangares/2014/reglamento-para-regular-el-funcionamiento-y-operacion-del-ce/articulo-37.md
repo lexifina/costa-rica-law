@@ -1,0 +1,2 @@
+Artículo 37 °: Cuando el representante, incumpla injustificadamente en dos ocasiones en el mismo mes calendario, con el horario establecido por el Centro, como hora límite para recoger a su representado (a), se le suspenderá el servicio definitivamente. Previamente la Administración, le conferirá audiencia por tres días hábiles para que aporte las pruebas de descargo, evacuada la misma, se procederá a resolver lo que corresponda.
+(Así adicionado en sesión N° 36 del 6 de setiembre de 2016)

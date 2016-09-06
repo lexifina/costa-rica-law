@@ -14,3 +14,4 @@ Reglamento para Regular el Funcionamiento y operación del centro de Cuido y Des
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-05-19 | la propia norma |
+| 2 | 2016-09-06 | Reglamento municipal 36 (2016-09-06) |
