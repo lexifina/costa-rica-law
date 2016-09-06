@@ -1,0 +1,3 @@
+Artículo 4: Solicitudes de autorización.
+La Fiscalía del Colegio de Médicos y Cirujanos de Costa Rica, será el ente encargado de tramitar y verificar el cumplimiento en la presentación de todos los requisitos formales exigidos en la presente normativa de todas las solicitudes realizadas a efecto de obtener un permiso temporal de trabajo para ejercer la profesión médica en el país.
+La ausencia de alguno de los requisitos señalados en la presente normativa, obligará al rechazo ad portas de la solicitud y bajo ninguna circunstancia se admitirá la presentación de documentación incompleta o imprecisa.
