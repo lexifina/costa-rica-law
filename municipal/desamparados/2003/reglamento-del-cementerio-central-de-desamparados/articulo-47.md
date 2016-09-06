@@ -1,1 +1,0 @@
-Artículo 47.—En caso de los derechos posesorios cuyos propietarios incumplan las obligaciones de este Reglamento o del Contrato, facultará a la Municipalidad para efectuar exhumaciones ordinarias de oficio y dar por terminado el contrato.

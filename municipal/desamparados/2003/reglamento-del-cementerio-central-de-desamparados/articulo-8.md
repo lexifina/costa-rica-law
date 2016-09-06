@@ -1,1 +1,0 @@
-Artículo 8º—El terreno del cementerio está dividido en cuadrantes, dentro de los cuales se ubican las fosas. Su localización se efectúa de acuerdo a la numeración asignada a cada uno, correlativa con las distintas hileras, partiendo de las calles de acceso que dividen cada área y acorde con el diseño oficial del cementerio consignado en el respectivo plano.

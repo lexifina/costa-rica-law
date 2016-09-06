@@ -1,1 +1,0 @@
-Artículo 31.—La Municipalidad se compromete a proteger y vigilar las instalaciones del cementerio. No obstante, no será responsable por profanaciones de tumbas, pérdidas, robos o daños causados por terceros, o cuando medie caso fortuito o fuerza mayor.

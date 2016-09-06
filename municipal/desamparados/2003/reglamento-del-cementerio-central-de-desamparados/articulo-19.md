@@ -1,2 +1,0 @@
-Artículo 19.—Cuando el derecho pertenezca a dos o más personas vivas, cada una tendrá igual derecho respecto al uso y posesión del lote en el cementerio. Para el ejercicio de esos derechos se requiere el consentimiento de todos los coposeedores, no obstante, cuando alguno de ellos haya fallecido, los demás coposeedores tendrán el derecho de uso y posesión proporcionales, pudiendo incluso traspasarlos a terceras personas.
-(Así reformado mediante sesión N° 56-2012 del 21 de setiembre del 2012)

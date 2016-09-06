@@ -1,1 +1,0 @@
-Artículo 18.—Los derechos no pueden ser cedidos con pacto de retroventa, no son susceptibles de embargo y no pueden ser dados en garantía o grabados en forma alguna. Las cesiones se tramitarán en escritura pública o por resolución judicial, debiendo presentarse posteriormente a la administración para que surtan los efectos correspondientes.

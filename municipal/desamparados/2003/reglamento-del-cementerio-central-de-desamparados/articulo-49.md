@@ -1,1 +1,0 @@
-Artículo 49.—La Municipalidad por medio de la Administración se reserva el derecho de admisión al Cementerio de cualquier persona que a su juicio pudiera poner en peligro la tranquilidad y el orden que debe guardarse en este lugar.

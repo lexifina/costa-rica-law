@@ -1,1 +1,0 @@
-Artículo 16.—El adquirente que cancele totalmente el lote, obtendrá simultáneamente el derecho de uso y posesión por un período de 99 años, renovable por un plazo igual, siempre y cuando cumpla con las obligaciones establecidas en el presente Reglamento y en el contrato de adquisición respectivo.

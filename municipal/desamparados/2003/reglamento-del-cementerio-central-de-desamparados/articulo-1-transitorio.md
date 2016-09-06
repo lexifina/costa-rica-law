@@ -1,2 +1,0 @@
-*Transitorio único.—Se establece un período de tres meses a partir de la publicación del presente reglamento, para que los poseedores de derechos en el Cementerio Central de Desamparados, se apersonen al Cementerio a revalidar sus títulos y revisar su situación como poseedores. Los derechos que no se actualicen y que tengan más de veinte años de no utilizarse serán aprovechados nuevamente por la administración.
-Acuerdo Nº 8, Sesión Ordinaria Nº 125 del 2 de diciembre de 2003.

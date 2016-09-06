@@ -1,1 +1,0 @@
-Artículo 42.—No se permitirá la inhumación de más de un cadáver en el mismo féretro ni en el mismo nicho, salvo se trate de la madre y el producto del parto muertos en el acto del alumbramiento; tampoco se permitirá la inhumación en fosa común.

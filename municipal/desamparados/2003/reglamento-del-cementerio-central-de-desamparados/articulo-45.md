@@ -1,1 +1,0 @@
-Artículo 45.—Las exhumaciones ordinarias se realizarán a solicitud de los parientes mencionados en el artículo 17 del presente Reglamento. Dichas exhumaciones se realizarán bajo el horario de las ocho horas a las dieciséis horas.

@@ -1,1 +1,0 @@
-Artículo 46.—Las exhumaciones se harán siempre con la presencia del Administrador del Cementerio y dos testigos quienes pueden ser parientes de la persona fallecida. Será responsabilidad del Administrador, efectuar la comprobación de la identidad del cadáver mediante su registro en los libros respectivos, confeccionando el acta respectiva, y firmada por los testigos.

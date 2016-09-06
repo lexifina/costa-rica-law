@@ -1,1 +1,0 @@
-Artículo 3º—En lo atinente a recursos contra decisiones de la Administración, será aplicable lo establecido en el Código Municipal, Título VI Recursos contra los actos Municipales, Capítulos I y II según corresponda.

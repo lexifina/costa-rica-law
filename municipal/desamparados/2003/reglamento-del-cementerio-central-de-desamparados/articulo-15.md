@@ -1,1 +1,0 @@
-Artículo 15.—La Municipalidad entregará el título de posesión del derecho al adquirente, cuando la obligación esté totalmente cancelada; sin embargo, éste podrá hacer uso del mismo a partir del pago de la prima correspondiente.

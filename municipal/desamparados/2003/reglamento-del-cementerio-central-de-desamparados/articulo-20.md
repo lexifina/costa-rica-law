@@ -1,1 +1,0 @@
-Artículo 20.—Cuando el titular del derecho posesorio sobre un lote en el cementerio fallezca y no esté definido en el contrato los derechos habientes, la posesión del derecho corresponderá, a la persona que mediante sentencia firme en proceso sucesorio judicial o notarial, sea declarado como heredero del mismo.

@@ -1,1 +1,0 @@
-Artículo 50.—Dentro de la racionalidad del caso, la Municipalidad se reserva el derecho de realizar todo tipo de construcciones, reparaciones y mantenimiento en las instalaciones del Cementerio, tanto en su terreno propio como en los derechos ya adquiridos. El traspaso de derechos se hará con tales limitaciones.
