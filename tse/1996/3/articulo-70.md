@@ -1,1 +1,2 @@
-Artículo 70.—La Comisión de Salud Ocupacional estará formada por dos representantes de los trabajadores y dos representantes del patrono, con sus respectivos suplentes.
+Artículo 70.—Las Comisiones de Salud Ocupacional del Tribunal Supremo de Elecciones, estarán integradas cada una de ellas, de conformidad con lo establecido en el artículo 11 del Decreto N° 39408-MTSS del 23 de noviembre del 2015, “Reglamento de Comisiones y Oficinas o Departamentos de Salud Ocupacional.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 11-2016 de 6 de setiembre de 2016).

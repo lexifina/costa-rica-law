@@ -1,1 +1,2 @@
-Artículo 73.—El quorum para iniciar las sesiones y deliberar, quedara conformado con la asistencia de dos representantes de la institución y dos de los trabajadores. Los acuerdos se tomaran por mayoría simple y tendrán el carácter de recomendación; sin perjuicio de lo que dispongan los organismos competentes externos a que se refiere la Ley de Riesgos del Trabajo N° 6727 y su reglamento.
+Artículo 73.—El quorum para iniciar las sesiones, deliberar y tomar acuerdos, en las comisiones constituidas por más de dos miembros será por mayoría simple. En las demás requerirá la asistencia completa de sus miembros.
+(Así reformado por el artículo 1° del decreto del Tribunal Supremo de Elecciones N° 11-2016 de 6 de setiembre de 2016).
