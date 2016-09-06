@@ -1,0 +1,3 @@
+Transitorio Único.- Durante el primer proceso de conformación de la Junta Directiva de JUDESUR, el Poder Ejecutivo revisará los nombramientos adoptados por las organizaciones y sectores que tienen derecho a representación ante esa Junta Directiva, con el fin de verificar el cumplimiento de los principios de alternabilidad y paridad de género. Lo anterior, tanto en la integralidad del órgano como a lo interno de cada representación, cuando sea necesario elegir representación propietaria y suplente.
+Asimismo, en caso de incumplimiento, el Poder Ejecutivo aplicará las disposiciones necesarias en este Reglamento para asegurar la conformación plena de la Junta Directiva.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 39898 del 6 de setiembre del 2016)

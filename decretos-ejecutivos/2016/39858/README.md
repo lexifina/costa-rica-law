@@ -14,3 +14,4 @@ Reglamento para el elección de las personas integrantes de la Junta Directiva d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-10 | la propia norma |
+| 2 | 2016-09-06 | Decreto Ejecutivo 39898 (2016-09-06) |
