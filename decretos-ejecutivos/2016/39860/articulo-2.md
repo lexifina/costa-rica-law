@@ -1,0 +1,2 @@
+Artículo 2º—Modifíquese el artículo 13 del Decreto Ejecutivo Nº 33870-MINAE del 30 de abril del 2007, para que en adelante se lea así:
+“Artículo 13.—Todo funcionario que considere que le asiste algún derecho al tenor de las disposiciones contenidas en el presente reglamento, deberá solicitar al Departamento de Recursos Humanos su reconocimiento o modificación, el cual empezará a regir el primer día del mes posterior a su solicitud, siempre y cuando sea procedente”.
