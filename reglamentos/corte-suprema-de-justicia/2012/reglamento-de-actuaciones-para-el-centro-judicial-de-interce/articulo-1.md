@@ -1,4 +1,5 @@
 CIRCULAR Nº 150-2013
+(Mediante resolución de la Sala Constitucional N° 12771 del 7 de setiembre de 2016, se indicó que de que la delegación de la escucha que contempla el Reglamento de Actuaciones para el Centro Judicial de Interceptación de Comunicaciones, aprobado por la Corte Plena de la Corte Suprema de Justicia en la Sesión N° 44-12 de 17 de diciembre de 2012 (artículos XXIII y XXIV), no resulta contraria al contenido del artículo 24, de la Constitución Política, ni a los principios y valores que informan el Derecho de la Constitución.)
 Asunto: “Reglamento de Actuaciones para el Centro Judicial de Interceptación de Comunicaciones”.
 A TODOS LOS DESPACHOS JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:

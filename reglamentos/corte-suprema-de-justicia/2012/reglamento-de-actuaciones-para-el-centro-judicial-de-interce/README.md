@@ -13,3 +13,4 @@ Reglamento de actuaciones para el Centro Judicial de Interceptación de Comunica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-12-17 | la propia norma |
+| 2 | 2016-09-07 | SINALEVI (sin norma nombrada) |
