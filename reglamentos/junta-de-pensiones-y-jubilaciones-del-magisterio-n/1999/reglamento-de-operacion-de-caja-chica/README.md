@@ -16,3 +16,4 @@ Reglamento de operación de caja chica
 | 1 | 2012-03-23 | la propia norma |
 | 2 | 2013-03-04 | Reglamento 0 (2013-03-04) |
 | 3 | 2013-08-12 | Reglamento 89 (2013-08-12) |
+| 4 | 2016-09-07 | Reglamento 99 (2016-09-07) |

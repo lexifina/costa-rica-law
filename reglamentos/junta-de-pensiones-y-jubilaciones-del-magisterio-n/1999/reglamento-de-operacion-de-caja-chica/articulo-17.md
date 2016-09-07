@@ -1,3 +1,4 @@
 CAPÍTULO III
 Del control
-Artículo 17.—Los fondos de Caja Chica estarán sujetos a la fiscalización inmediata del Jefe del Departamento Administrativo. Adicionalmente, la Contraloría Financiera y la Auditoría Interna realizarán revisiones y arqueos periódicos de acuerdo a su plan de trabajo. Los encargados de cada fondo de Caja Chica están obligados a brindar toda la información requerida para estos efectos. (Modificación realizada en la sesión ordinaria Nº 47-2002 del 03 de julio 2002.) (Última Modificación realizada en la sesión ordinaria Nº 73-2004 del 06 de octubre de 2004.) (Última Modificación realizada en la sesión ordinaria Nº 126-2010 del 11 de noviembre de 2010).
+Artículo 17.— El fondo de Caja Chica estará sujeto a la fiscalización inmediata del Jefe del Departamento Administrativo. Adicionalmente, la Contraloría Financiera y la Auditoría Interna realizarán las revisiones y arqueos periódicos de acuerdo a su plan de trabajo. El encargado del fondo de Caja Chica está obligado a brindar toda la información requerida para estos efectos.
+(Así reformado en sesión N° 099 del 7 de setiembre de 2016)
