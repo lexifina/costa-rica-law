@@ -1,6 +1,6 @@
-Artículo 146°- Deróguese el Decreto Ejecutivo Nº 10538-SPPS- del 18 de setiembre de 1979, publicado en La Gaceta Nº 181 del 27 de setiembre de 1979 “Reglamento de Especialidades Médicas”.
-(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 140 al 141)
-(Corrida su numeración mediante sesión ordinaria N° 2016-03-09 del 9 de marzo de 2016, que lo traspasó del antiguo 141 al 142)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-13 del 13 de julio del 2016, que lo traspasó del antiguo 142 al 143)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016, que lo traspasó del antiguo 143 al 144)
-(Corrida su numeración mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016, que lo traspasó del antiguo 144 al 146)
+Artículo 146.—Epidemiología de Campo
+Requisitos específicos:
+a. Aprobación de tres (3) años en un programa de estudios de posgrado (residencia médica) en la Especialidad de Epidemiología de Campo, en un Hospital de Tercer Nivel, perteneciente o adscrito a una Universidad de reconocido prestigio.
+Se ordena además, correr la numeración posterior.
+3. Establecer de carácter obligatorio para los médicos que soliciten la inscripción en la Especialidad de Epidemiología de Campo, el cumplimiento de todos los requisitos establecidos, generales y específicos, en el Decreto Ejecutivo N° 37562- S “Reglamento de Especialidades y Subespecialidades Médicas”, publicado en La Gaceta Alcance Digital N° 51 del 18 de marzo de 2013 y demás legislación relacionada vigente.
+(Así adicionado mediante sesión ordinaria 2016- 09-07 del 07 de setiembre del 2016)
