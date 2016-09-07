@@ -1,4 +1,5 @@
 Artículo 2°-Apruébanse los siguientes Egresos Ordinarios y Extraordinarios de la República para el Ejercicio Económico del 2015:
+(Mediante resolución de la Sala Constitucional N° 12803 del 7 de setiembre de 2016, se declaró la inconstitucionalidad por omisión del Título 210-Ministerio de Educación Pública, del presente artículo, por no cubrir el monto mínimo del 8% de gasto público en educación estatal, previsto en el artículo 78 de la Constitución Política.”)
 MISIÓN INSTITUCIONAL:
 Somos los encargados de dirigir y coordinar las estrategias de desarrollo del país, procurando la obtención del mayor bienestar para
 todos los habitantes; por medio de la comunicación y diálogo con la ciudadanía y los distintos sectores para el posterior
