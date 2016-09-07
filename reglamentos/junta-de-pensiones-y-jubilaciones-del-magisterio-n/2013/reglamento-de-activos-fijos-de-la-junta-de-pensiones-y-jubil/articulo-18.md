@@ -1,7 +1,6 @@
-Artículo 18.—De la adjudicación de la venta de activos fijos: La adjudicación de la venta de activos, quedará sujeta a los rangos y autorización establecidos en el artículo N° 6 del Reglamento de Contratación Administrativa de la Junta.
-La adjudicación para la venta de los activos fijos, que tengan un valor inferior al estipulado en el inciso a) del artículo N° 6 del Reglamento de Contratación Administrativa, debe ser tramitada por el Departamento Administrativo, con previa autorización de la Dirección Ejecutiva.
-Al realizar la venta de un activo fijo, se tomará como parámetro el valor razonable y no el valor en libros del mismo.
-Las adjudicaciones de venta de activos que tramite el Departamento Administrativo, deberán ser conocidas por la Dirección Ejecutiva, previamente.
-Las ganancias producidas por la venta de un activo deben ser registradas contablemente en la cuenta de ingresos denominada Venta de Maquinaria y equipo.
-Las pérdidas producidas por la venta de un activo cuyo precio esté por debajo de su valor en libros, deben ser registradas en la cuenta de gasto, denominada Pérdida en venta de inmuebles y equipos.
-Corresponde a la Junta Directiva autorizar las pérdidas señaladas en el párrafo anterior.
+Artículo N° 18. Garantía de compra:
+Cuando el monto de venta de algún activo fijo, se encuentre en el rango establecido en los incisos d) y e) del artículo N° 6 del Reglamento de Contratación Administrativa, la Administración exigirá al adjudicatario un depósito de garantía de compra, que será de un 5% del precio de la venta.
+En caso de no cumplir con la rendición de la garantía de compra, en un plazo máximo de cinco días hábiles a partir de la comunicación de la decisión de venta, esta adjudicación quedará sin efecto.
+En tal supuesto, la Junta podrá optar por las ofertas subsiguientes, de acuerdo con su calificación y readjudicarla. En caso de empate, lo definirá la suerte.
+El interesado dispondrá de ocho días hábiles a partir del depósito de garantía, para cancelar el precio del activo, en caso contrario, perderá la garantía en favor de la Administración de la Junta.
+El plazo, para la cancelación del saldo del valor de la venta, podrá modificarse sólo por expresa y previa autorización de la Dirección Ejecutiva o Junta Directiva, según corresponda.

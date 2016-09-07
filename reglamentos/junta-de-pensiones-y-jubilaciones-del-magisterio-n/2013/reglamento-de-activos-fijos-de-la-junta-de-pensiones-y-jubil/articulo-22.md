@@ -1,5 +1,5 @@
-Artículo 22.—Donaciones: Los activos y equipos menores en desuso, podrán ser donados a instituciones y organizaciones sin fines de lucro, cuyos integrantes formen parte de la membresía del Régimen de Pensiones y Jubilaciones del Magisterio Nacional, considerando en todo momento, el interés social, colectivo y directo en beneficio de los entes mencionados.
-El Departamento Administrativo, elaborará un informe trimestral de los activos y equipos menores que podrían ser sujeto de donación, el cual será remitido a la Dirección Ejecutiva para su análisis y aprobación.
-Una vez, que el informe es aprobado por la Dirección Ejecutiva, se envía un oficio a todas las Organizaciones Magisteriales ofreciéndoles los activos y equipos menores en desuso. Dicho oficio debe llevar copia para cada uno de los miembros de Junta Directiva.
-La asignación de los activos y equipos menores en desuso, se realizará considerando las necesidades de las Organizaciones y el estricto orden cronológico, con el que ingresen las solicitudes de donación, hasta agotar existencias.
-En caso de no existir solicitudes, la Dirección Ejecutiva podrá ofrecer los mismos a otras entidades del Magisterio Nacional o a otras instituciones sin fines de lucro. La Dirección Ejecutiva presentará un informe semestral a la Junta Directiva, con el detalle de los activos y equipos menores que fueron donados, para su respectivo conocimiento.
+Capítulo IV
+Disposiciones Finales
+Artículo 22. De la obligatoriedad:
+Todos los funcionarios de la Institución así como aquellos que desempeñen labores particulares en la Junta de Pensiones y Jubilaciones, bajo la modalidad de Contrato de Servicios de Gestión y Apoyo, y en general bajo cualquier otra modalidad que se disponga, así como los miembros de Junta Directiva, velarán porque se cumpla con lo establecido en el presente reglamento.
+Quien incumpla con lo establecido en el presente Reglamento, será sancionado y responsabilizado de conformidad con lo establecido en el Reglamento Interior de Trabajo o la legislación que corresponda.”

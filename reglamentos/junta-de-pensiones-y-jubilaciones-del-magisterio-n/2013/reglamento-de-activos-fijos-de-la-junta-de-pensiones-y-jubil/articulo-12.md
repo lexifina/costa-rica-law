@@ -1,3 +1,3 @@
-Artículo 12.—Ingreso de bienes personales a la Institución propiedad de los funcionarios:
-Todo funcionario debe reportar el mobiliario y equipo de su propiedad, que ingrese a la Institución para uso personal, a los Oficiales de Seguridad; quienes deberán realizar la anotación respectiva en la bitácora de control.
-La Junta de Pensiones y Jubilaciones del Magisterio Nacional, no asumirá responsabilidad alguna, por aquellos bienes personales que se pierdan o se deterioren dentro de sus instalaciones o en actividades Institucionales.
+Artículo N° 12. Venta de activos fijos:
+Se entenderá por ventas de activos fijos, aquellas transacciones en las cuales la Junta enajene uno o varios de los mismos, sea porque se encuentren en desuso o deban ser sustituidos.
+Corresponderá al Departamento Administrativo, la correcta aplicación de los lineamientos para la venta de activos fijos que se señalan en este Reglamento, con el objetivo de lograr la satisfacción del interés general de la Institución, respetando la igualdad de oportunidades de los oferentes potenciales.

@@ -1,7 +1,8 @@
-Artículo 10.—Pérdida, Hurto o Robo de Activos Fijos: en caso de pérdida, hurto o robo de activos fijos y/o equipos menores, el funcionario responsable de la custodia, debe informar al menos al día siguiente hábil y por escrito a la jefatura respectiva y a la Jefatura del Departamento Administrativo.
-El funcionario involucrado en coordinación con el Departamento Administrativo, realizará los trámites respectivos ante las entidades correspondientes.
-La Jefatura del Departamento Administrativo, gestionará la reposición del activo fijo y/o equipo menor; siempre y cuando exista el contenido presupuestario necesario para la compra.
-Una vez recopilada la información sobre el caso, el Departamento Administrativo enviará un informe final con todas las actuaciones generadas a la Dirección Ejecutiva, con la respectiva recomendación técnica.
-Conocido este oficio, la Dirección Ejecutiva enviará un oficio para acoger o rechazar la recomendación del Departamento Administrativo, incluyendo las medidas administrativas que se aplicarán.
-En caso de pérdida, hurto o robo de un activo fijo y/o equipo menor, cuyo custodio sea un miembro del Órgano Colegiado o un funcionario de la Auditoría Interna, la Dirección Ejecutiva informará de inmediato a la Junta Directiva, para el análisis correspondiente.
-La Dirección Ejecutiva deberá presentar un informe semestral para conocimiento de la Junta Directiva, sobre los activos y equipos menores perdidos, hurtados o robados.
+Capítulo III
+Préstamo y venta de activos fijos
+Artículo N° 10. Préstamo de Activos Fijos:
+El préstamo de activos fijos y equipos menores quedará sujeto al siguiente esquema de autorización:
+a) Corresponde a la Dirección Ejecutiva, brindar la autorización para el préstamo de activos fijos a otras instancias del Magisterio Nacional, o a entidades afines al quehacer magisterial.
+b) En el caso de los activos en custodia de cada Departamento, corresponde a cada Jefatura dar su autorización para el préstamo de activos a funcionarios, siempre y cuando sea para fines Institucionales y deberá comunicarlo al Departamento Administrativo.
+c) Toda entrada y salida de activos de las oficinas de la Institución, deberá comunicarse al Departamento Administrativo.
+Los daños, pérdidas y robos que presenten los activos fijos prestados, serán cubiertos por la Institución solicitante o el funcionario responsable, que retiró los mismos. En tal caso deberá cubrir cualquier reparación para que estos vuelvan a estar en óptimas condiciones. No obstante, en este supuesto también será aplicable lo referido en el artículo anterior, respecto del informe y recomendación.

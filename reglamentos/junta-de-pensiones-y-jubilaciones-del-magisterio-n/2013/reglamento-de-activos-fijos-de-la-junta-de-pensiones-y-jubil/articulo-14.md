@@ -1,6 +1,3 @@
-Artículo 14.—Revisión y precio de referencia: El Departamento Administrativo, realizará una revisión mensual de los activos en desuso, para determinar aquellos que sean sujeto de venta.
-Para realizar la venta o sustitución de un activo, se debe contar con un precio de referencia o valor de mercado del bien a vender o sustituir.
-En aquellos casos en los que el bien a vender o a sustituir, posea un valor de mercado ubicado en los rangos de los incisos d) y e), del artículo N° 6 del Reglamento de Contratación Administrativa de la Junta, se requerirá de un avalúo emitido por una persona física o jurídica especializada, inscrita en el registro de proveedores institucional y debidamente autorizada ante la autoridad competente.
-En el caso de los vehículos, se deberá coordinar un avaluó por las agencias inscritas en el registro de proveedores, para compararlo con el valor de mercado de los mismos y así determinar el precio de referencia para la venta, según lo establecido en este Reglamento.
-Corresponde a la Dirección Ejecutiva autorizar la venta de activos según los rangos establecidos en el artículo 6 incisos a), b), c) y d) del Reglamento de Contratación Administrativa. La venta de activos que se encuentren en el inciso e), requerirán de aprobación por parte de la Junta Directiva.
-En caso de que no se cuente con un valor de referencia o valor de mercado, el Departamento Administrativo debe establecer un precio base de venta.
+Artículo N° 14. Venta de propiedades:
+Se promoverá la venta de una propiedad, cuando ésta se encuentre en desuso y no haya planes para su uso futuro.
+Para este proceso, se realizará un avalúo por medio de persona física o jurídica especializada, con el propósito de obtener su valor razonable y utilizarlo como precio de referencia.
