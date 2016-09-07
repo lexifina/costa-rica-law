@@ -3,6 +3,7 @@ ESPECIALIDADES MÉDICAS
 Artículo 11°.- El Colegio de Médicos y Cirujanos de Costa Rica, reconoce las siguientes Especialidades Médicas:
 ESPECIALIDAD MÉDICA | REQUISITOS ESPECÍFICOS PARA LA INSCRIPCIÓN
 Acupuntura. | Artículo No.12
+Administración de Servicios de Salud (Así adicionada la especialidad anterior mediante sesión ordinaria N° 2016-09-07, del 07 de setiembre del 2016) | Artículo N° 151 (Así adicionado el requisito anterior mediante sesión ordinaria N° 2016-09-07, del 07 de setiembre del 2016)
 Alergología Clínica. | Artículo No.13
 Anatomía Patológica. | Artículo No.14
 Anestesiología y Recuperación. | Artículo No. 15

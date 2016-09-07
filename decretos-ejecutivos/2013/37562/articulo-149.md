@@ -1,0 +1,1 @@
+Artículo 149.- (Nota de Sinalevi: Mediante sesión ordinaria 2016-09-07 del 07 de setiembre del 2016, se ordena incluir un artículo 151, no obstante el presente reglamento llegaba hasta el artículo 148, al exigir el sistema un numero consecutivo el mismo fue creado pero sin texto)
