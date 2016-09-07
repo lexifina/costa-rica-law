@@ -1,0 +1,3 @@
+Artículo 9º— Refórmese el artículo 21 del Decreto Ejecutivo Nº 28018-MAG, para que en adelante se lea así:
+“Artículo 21.-Para cubrir cualquier contingencia de las contempladas por el artículo 24 de la ley, los beneficiadores están en la obligación de mantener una póliza flotante contra incendio, que cubra el café recibido desde el momento en que ingresa a su esfera de custodia hasta su entrega.
+En el caso de Planta Beneficiadoras que únicamente procese y venda café de sus propietarios, quedará a discrecionalidad de los mismos mantener una póliza flotante contra incendio, que cubra el café recibido desde el momento en que ingresa a su esfera de custodia hasta su entrega.”

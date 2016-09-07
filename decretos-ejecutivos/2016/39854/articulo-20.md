@@ -1,0 +1,2 @@
+Artículo 20º— Refórmese el artículo 57 del Decreto Ejecutivo Nº 28018-MAG, para que en adelante se lea así:
+“Artículo 57.- La inscripción de contratos de compra - venta de café para la exportación cerrará el último día del mes de setiembre del respectivo año cafetero. El ICAFE está facultado para autorizar el registro de ventas de cosechas futuras conforme lo indicado en el artículo 23 de este Reglamento. Queda la Junta Directiva facultada para anticipar la fecha de inicio o prorrogar la de cierre.”

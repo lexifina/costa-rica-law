@@ -1,0 +1,3 @@
+Artículo 14º— Refórmese el artículo 34 del Decreto Ejecutivo Nº 28018-MAG, para que en adelante se lea así:
+“Artículo 34.-El Instituto mantendrá al día estudios de precios de insumos, mercaderías, servicios y otros aspectos relacionados con los costos de elaboración del café. Para tal propósito, los beneficiadores están obligados a suministrar conforme lo establece la Ley la información necesaria y al día para la elaboración de tales estudios.
+El Instituto, informará anualmente a la Junta de Liquidaciones o cuando esta lo requiera y a los interesados, sobre el resultado de los indicados estudios, para que ésta pueda contar con información suficiente para el cumplimiento de su cometido.”

@@ -1,0 +1,6 @@
+Artículo 31º— Refórmese el artículo 85 del Decreto Ejecutivo Nº 28018-MAG, para que en adelante se lea así:
+“Artículo 85.-De las Juntas Escrutadoras de Votos
+El control de la votación en cada centro de votación estará a cargo de una Junta Escrutadora integrada por 3 personas: dos productores de la respectiva región y un funcionario de ICAFE, quien la presidirá. Los dos productores serán escogidos al azar por la Junta Directiva, de las personas postuladas para tal propósito. Podrán postular candidatos para la Junta Escrutadora los productores de la zona, así como aquellos productores que se postulen directamente. El representante de ICAFE será designado por la Dirección Ejecutiva de ICAFE.
+La Auditoría Interna del ICAFE fiscalizará conforme a sus potestades el proceso electoral.
+En caso de que no exista la cantidad suficiente de productores postulados para conformar las Juntas Escrutadoras, la Dirección Ejecutiva de ICAFE nombrará -de oficio- productores de la región que corresponda para llenar el espacio vacante.
+En la publicación del primer lunes de mayo que se indica en el artículo siguiente de este Reglamento, la Dirección Ejecutiva comunicará a los interesados el plazo para postular candidatos para las Juntas Escrutadoras de Votos.”

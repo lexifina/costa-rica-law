@@ -1,0 +1,3 @@
+Artículo 33º— Refórmese el artículo 87 del Decreto Ejecutivo Nº 28018-MAG, para que en adelante se lea así:
+“Artículo 87.-De la publicación de candidatos Delegados al Congreso Nacional Cafetalero y Ternas de Candidatos a la Junta Directiva ICAFE.
+El ICAFE publicará a más tardar el lunes siguiente a la finalización del período de postulación de candidatos, la lista de candidatos para cada región electoral, tanto para Delegados al Congreso Nacional Cafetalero como para las ternas de postulantes para Junta Directiva de ICAFE, en aquellos medios de comunicación que considere necesarios, con el único propósito de informar de su existencia a los electores.”

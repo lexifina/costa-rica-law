@@ -1,0 +1,2 @@
+Artículo 10º— Refórmese el artículo 27 del Decreto Ejecutivo Nº 28018-MAG, para que en adelante se lea así:
+“Artículo 27.- Las ventas de café de consumo nacional de acuerdo a lo previsto en el artículo 33 de la ley, que efectúen los beneficiadores a torrefactores o compradores comerciantes con el mercado nacional como destino, se regirán por las mismas normas aplicables a los contratos de exportación en lo referente a informes de venta, criterios de evaluación de precio, rescisiones, y controles de ejecución.”

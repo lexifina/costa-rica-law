@@ -1,0 +1,2 @@
+Artículo 25º— Refórmese el artículo 72 del Decreto Ejecutivo Nº 28018-MAG, para que en adelante se lea así:
+“Artículo 72.-El tamaño de las muestras tomadas por el ICAFE obedecerá a estudios técnicos, dichas muestras permanecerán en custodia del Instituto por un plazo de tres meses, transcurrido ese plazo, se notificará al interesado. Pasados treinta días naturales sin que las muestras se retiren, pasaran a ser propiedad del Instituto del Café de Costa Rica.”
