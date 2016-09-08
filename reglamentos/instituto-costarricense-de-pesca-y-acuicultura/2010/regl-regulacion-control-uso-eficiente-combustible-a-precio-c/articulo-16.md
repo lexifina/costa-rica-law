@@ -1,1 +1,0 @@
-Artículo 16.—La interposición del recurso se hará por escrito y deberá expresar el nombre y domicilio del recurrente, los agravios, los elementos de prueba que se consideren necesarios y las constancias que acrediten la legitimación del promovente.

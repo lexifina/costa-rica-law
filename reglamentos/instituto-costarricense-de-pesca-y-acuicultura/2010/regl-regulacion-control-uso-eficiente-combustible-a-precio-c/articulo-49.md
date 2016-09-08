@@ -1,1 +1,0 @@
-Artículo 49.—Cuando una orden de compra se haya extraviado y se pretenda su revalidación, el INCOPESCA realizará ante RECOPE todas aquellas gestiones para verificar que la misma no se hizo efectiva, y contará con un plazo de 5 días hábiles para emitir y aprobar la nueva orden de compra.

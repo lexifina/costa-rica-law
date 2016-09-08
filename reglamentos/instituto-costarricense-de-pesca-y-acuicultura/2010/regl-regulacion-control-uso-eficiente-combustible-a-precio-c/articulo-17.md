@@ -1,1 +1,0 @@
-Artículo 17.—Los beneficiarios y las Organizaciones Pesqueras que posean código de compra directa ante RECOPE para combustible a precio competitivo, deberán presentar y aportar original y fotocopia del contrato suscrito con RECOPE, a más tardar 5 días hábiles después de la firma de dicho contrato.

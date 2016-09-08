@@ -1,1 +1,0 @@
-Artículo 60.—De conformidad con las normas contempladas en el Código Civil vigente, se tendrán por aceptados para la tramitación del combustible a precio competitivo o cualquier otro trámite que brinde el INCOPESCA, el poder especial por cada beneficiario y el cual será otorgado ante Notario Público en escritura pública y con los timbres de Ley.

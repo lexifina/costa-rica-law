@@ -1,1 +1,0 @@
-Transitorio 7º—Los formularios a utilizar citados en la presente regulación como “anexo”, serán puestos a disposición de los interesados en la Oficina del Departamento de Protección y Registro, Direcciones y Oficinas Regionales del INCOPESCA ubicadas en todo el país.

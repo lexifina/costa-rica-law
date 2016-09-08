@@ -1,2 +1,0 @@
-Artículo 34.—Para la asignación de combustible a precio competitivo a embarcaciones con dos motores solo se reconocerá el motor de mayor potencia, sin embargo cuando por razones técnicas la embarcación requiere el uso de dos motores, las jefaturas de la Sección de Combustible, Direcciones y Oficinas Regionales estarán facultadas para asignar combustible a un segundo motor.
-Cuando se reconoce la utilización de dos motores, el combustible asignado no podrá exceder la potencia de 250 Hp, tratándose de gasolina, y de 1450 Hp, tratándose de diesel.

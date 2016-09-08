@@ -1,1 +1,0 @@
-Artículo 39.—Aquellas personas físicas o jurídicas que transporten combustible a precio competitivo podrán ser supervisados por el INCOPESCA, en coordinación con las Instituciones competentes (Policía Fiscal, Dirección General de Tránsito del MOPT, SNG, MINAET, MSP).

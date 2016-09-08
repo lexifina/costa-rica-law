@@ -1,1 +1,0 @@
-Artículo 56.—No se podrán emitir consolidados de órdenes de compra para tipo de combustible gasolina que superen la máxima capacidad de almacenamiento de los tanques en donde se pretende depositar dicho combustible.

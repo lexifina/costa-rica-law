@@ -1,5 +1,0 @@
-Artículo 51.—Con tal propósito, las personas físicas o jurídicas que cuenten con código para la compra de combustible a precio competitivo ante RECOPE y que tramiten ante el INCOPESCA la respectiva emisión de autorización de consolidación de órdenes de compra de combustible, deberán cumplir los siguientes requerimientos:
-- Debe previamente aportar autorización respectiva por parte del beneficiario, mediante oficio dirigido al INCOPESCA debidamente autenticado o en presencia de los funcionarios de la SCAC o a través de poder especial.
-- Presentar las órdenes de compra de combustible a precio competitivo individuales (original y copias) en buenas condiciones sin roturas, tachaduras, alteraciones o borrones, las cuales serán objeto del consolidado. Dichas órdenes deberán estar vigentes.
-- Presentar la solicitud de compra de combustible que pretende adquirir. Dicha solicitud debe contener nombre completo y código de la Organización, la cantidad y clase de producto a retirar.
-(Así reformado mediante acuerdo N° AJDIP/317-2013 del 14 de agosto del 2013)

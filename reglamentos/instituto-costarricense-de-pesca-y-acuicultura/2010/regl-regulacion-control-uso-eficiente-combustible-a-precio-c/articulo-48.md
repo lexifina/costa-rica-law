@@ -1,1 +1,0 @@
-Artículo 48.—Cuando la orden de compra haya vencido, ésta podrá ser renovada por la jefatura de la dependencia correspondiente y con la vigencia estipulada en el artículo 47 y para lo cual deberá existir previa solicitud expresa del beneficiario.

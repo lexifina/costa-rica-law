@@ -1,1 +1,0 @@
-Artículo 14.—La caducidad y la revocatoria serán declaradas de acuerdo con el procedimiento establecido en el Instructivo de Combustible. A los interesados se les otorgará la garantía del debido proceso.

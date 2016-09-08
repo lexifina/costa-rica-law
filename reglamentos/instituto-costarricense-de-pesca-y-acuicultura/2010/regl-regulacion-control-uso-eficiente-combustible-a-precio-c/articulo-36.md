@@ -1,2 +1,0 @@
-Artículo 36.—Los tanques utilizados para depositar el combustible, pertenecientes a los beneficiarios, Organizaciones Pesqueras o Estaciones de Servicio con convenios con las Organizaciones Pesqueras deberán estar debidamente cubicados y calibrados, además deben tener un mecanismo que permita medir la cantidad de combustible que contienen.
-(Así reformado por acuerdo A.J.D.I.P./151-2010 del 11 de mayo de 2010)

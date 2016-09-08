@@ -1,1 +1,0 @@
-Artículo 67.—Este acuerdo deroga el Acuerdo Nº A. J. D. I. P./020-2007 publicado en el Diario Oficial La Gaceta Nº 24 del 2 de febrero del 2007 y el Acuerdo Nº A. J. D. I. P./570-2007 publicado en el Diario Oficial La Gaceta Nº 35 del 19 de febrero del 2008, así como cualquier otra disposición anterior que se le oponga.

@@ -1,2 +1,0 @@
-Artículo 66.—A partir de la publicación del presente Reglamento en el Diario Oficial La Gaceta, el Comité de Combustible contará con un mes calendario para revisar, adecuar y presentar ante la Junta Directiva del INCOPESCA para su debida aprobación, los formatos de Convenios de Combustible a Precio Competitivo que la Institución deberá suscribir con los beneficiarios y las organizaciones pesqueras.
-(Así reformado por acuerdo A.J.D.I.P./151-2010 del 11 de mayo de 2010)

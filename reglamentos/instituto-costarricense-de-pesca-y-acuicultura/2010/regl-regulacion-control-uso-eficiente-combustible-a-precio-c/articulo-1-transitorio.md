@@ -1,1 +1,0 @@
-Transitorio 1º—A partir de la entrada en vigencia del presente Reglamento, todos los beneficiarios que utilicen el combustible a precio competitivo destinado a la flota pesquera comercial, tendrán un plazo de un mes calendario a efecto de poner en regla los requisitos y poderes emitidos según lo exige el presente Reglamento.
