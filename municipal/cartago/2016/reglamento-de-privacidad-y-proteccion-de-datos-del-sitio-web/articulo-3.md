@@ -1,0 +1,2 @@
+Artículo 3°—Oficina de intermediación laboral. Es la oficina responsable de la Administración de este Sitio Web y es la oficina encargada de relacionar la oferta y demanda de trabajo, brindando información, orientación para el empleo y capacitación de forma gratuita.
+A la vez es una vía de información y acceso a diversos programas sociales que ejecuta el Estado, tendientes a aumentar el empleo en el cantón.

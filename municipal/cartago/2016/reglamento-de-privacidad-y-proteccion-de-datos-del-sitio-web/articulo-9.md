@@ -1,0 +1,2 @@
+Artículo 9°—Configuración de cookies. El sitio utiliza cookies para mejorar la experiencia de navegación del usuario.
+Cookies estrictamente necesarias: estas cookies son esenciales para el correcto funcionamiento de los servicios esperados por el usuario, y para evitar mostrar ciertas páginas informativas que el usuario ha decidido obviar. Sin estas cookies, el usuario percibiría que el servicio solicitado no funciona correctamente.

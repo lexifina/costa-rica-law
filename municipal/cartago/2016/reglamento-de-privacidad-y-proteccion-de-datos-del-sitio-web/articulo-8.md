@@ -1,0 +1,1 @@
+Artículo 8°—Seguridad. La municipalidad ha adoptado las medidas de índole técnica y organizativas legalmente establecidas para garantizar la seguridad de los datos de carácter personal y evitar su alteración, pérdida, tratamiento o acceso no autorizado, habida cuenta del estado de la tecnología, la naturaleza de los datos almacenados y los riesgos a que estén expuestos.

@@ -1,0 +1,2 @@
+Artículo 2°—Sitio web de la Oficina de Intermediación Laboral. El Sitio Web es una herramienta que será utilizada para relacionar la oferta y demanda de trabajo, brindando información, orientación para el empleo.
+Por este medio los interesados en obtener trabajo, trabajadores activos que necesiten un cambio de empleo podrán registrarse completando el formulario y cuando el Contratante solicite a esta oficina postulantes que cumplan con el perfil solicitado se enviaran sus datos (nombre, cédula de identidad, números telefónicos) para que sean contactados.

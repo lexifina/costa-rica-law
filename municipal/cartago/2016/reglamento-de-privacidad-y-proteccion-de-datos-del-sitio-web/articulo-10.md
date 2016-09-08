@@ -1,0 +1,1 @@
+Artículo 10.—Derecho de Acceso, Rectificación, Oposición y Cancelación de Datos. El usuario solamente podrá tener acceso a su información de forma presencial en la Oficina de Intermediación de Empleo ya sea para el fin de actualizar, agregar o eliminar datos y si así lo requiere de solicitar la exclusión de la base de datos por medio de una solicitud escrita.
