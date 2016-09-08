@@ -1,1 +1,0 @@
-Artículo 6º—Acceso a la información de morosidad. El Registro Nacional creará una base de datos pública, consultable por medios electrónicos, en la que figuraran las entidades o sociedades morosas en el pago del impuesto.

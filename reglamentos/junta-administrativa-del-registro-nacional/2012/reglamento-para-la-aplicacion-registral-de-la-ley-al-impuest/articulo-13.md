@@ -1,1 +1,0 @@
-Artículo 13.—Vigencia. El presente reglamento rige a partir de su publicación en el Diario Oficial La Gaceta. Publíquese. Acuerdo firme adoptado por la Junta Administrativa del Registro Nacional de la sesión extraordinaria Nº 13-2012, celebrada en San José, el día 26 de marzo del 2012.

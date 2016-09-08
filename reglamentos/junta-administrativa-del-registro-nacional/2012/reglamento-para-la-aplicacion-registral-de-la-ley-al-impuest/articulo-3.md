@@ -1,4 +1,0 @@
-Artículo 3°—Tarifa. Las entidades jurídicas que se encuentren inscritas en el Registro de Personas Jurídicas y que se encuentren activas ante la autoridad tributaria, pagarán un importe equivalente al 50% de un salario base mensual, según lo dispuesto en el artículo 2 de la Ley Nº 7337, de 5 de mayo de 1993.
-Las entidades jurídicas que se encuentren inactivas ante la autoridad tributaria, pagarán un importe equivalente a un 25 % del salario base indicado en el párrafo anterior.
-Para efectos de aplicación de la Ley Impuesto a las Personas Jurídicas, sus transitorios y el presente reglamento, el Registro Nacional entenderá por personas jurídicas activas aquellas que se encuentren así calificadas dentro de la lista que al efecto le remita la Dirección General de Tributación del Ministerio de Hacienda a la fecha del hecho generador.
-En ausencia del listado de la Dirección General de Tributación, se entenderá que las personas jurídicas son inactivas.

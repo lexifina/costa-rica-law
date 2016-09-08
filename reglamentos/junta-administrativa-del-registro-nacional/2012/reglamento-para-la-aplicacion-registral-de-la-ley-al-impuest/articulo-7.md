@@ -1,1 +1,0 @@
-Artículo 7º—Pago de períodos acumulados. En los casos en que la persona jurídica se encuentre morosa por dos períodos, se procederá conforme lo dispuesto en el Reglamento de Cuentas por Cobrar de la Junta Administrativa del Registro Nacional, así como el Código de Normas y Procedimientos Tributarios.
