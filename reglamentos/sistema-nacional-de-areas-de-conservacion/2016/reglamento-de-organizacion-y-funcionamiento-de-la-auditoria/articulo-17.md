@@ -1,0 +1,20 @@
+Artículo 17.—Funciones del Auditor o Auditora Interna. La Auditoría Interna estará bajo la responsabilidad del Auditor o Auditora Interna, a quien corresponde su dirección superior y administración. El Auditor Interno tendrá, sin perjuicio de lo establecido en la Ley N° 8292, Ley de Control Interno y lo que al efecto disponga la Contraloría General de la República, las siguientes funciones:
+a) Realizar auditorías o estudios especiales, en relación con los fondos públicos administrados por el SINAC y sobre fondos y actividades privadas, de acuerdo con los artículos 5 y 6 de la Ley Orgánica de la Contraloría General de la República, en el tanto estos se originen en transferencias efectuadas por componentes de su competencia institucional.
+b) Verificar el cumplimiento, la validez y la suficiencia del sistema de control interno del SINAC, informar de ello y proponer las medidas correctivas que sean pertinentes.
+c) Asesorar, en materia de su competencia, al CONAC; además, advertir tanto a éste como al resto de las instancias del SINAC sobre las posibles consecuencias de determinadas conductas o decisiones, cuando sean de su conocimiento.
+d) Autorizar, mediante razón de apertura, los libros de contabilidad y de actas que deban llevarse a lo interno del SINAC y otros libros que a criterio del auditor interno, sean necesarios para el fortalecimiento del sistema de control interno.
+e) Dar seguimiento al cumplimiento de las disposiciones de la Contraloría General de la República y demás entes de fiscalización, así como a las recomendaciones emitidas por las auditorías en los informes respectivos.
+f) Planear, programar, dirigir, coordinar, organizar y supervisar, el desarrollo de actividades profesionales del Área de Auditoría a su cargo, del más alto grado de complejidad que llevan a cabo equipos profesionales de auditores asignados.
+g) Dirigir la actividad de Auditoría Interna, así como disponer la organización y funcionamiento de la Unidad, conforme las disposiciones legales vigentes y los recursos aprobados por el CONAC.
+h) Formular, gestionar, divulgar y mantener vigente el Reglamento de Organización y Funcionamiento de la Auditoría Interna, así como su cumplimiento.
+i) Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas por la Auditoría Interna para cumplir con sus competencias, considerando en cada caso lo relativo a los procesos de la unidad.
+j) Definir, establecer y mantener actualizados las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna, en especial de la información de asuntos de carácter confidencial que estipula el artículos 6 de la Ley N° 8292, Ley General de Control Interno.
+k) Establecer un Programa de Aseguramiento y Mejora de la Calidad (PAMC) de la Auditoría Interna.
+I) Presentar ante el CONAC un informe anual de la ejecución del plan de trabajo.
+m) Elaborar un informe anual de la ejecución del plan de trabajo y del estado de las recomendaciones de la Auditoría Interna, de la Contraloría General de la República y de los despachos de contadores públicos; en los últimos dos casos, cuando sean de su conocimiento, sin perjuicio de que se elaboren informes y se presenten al jerarca cuando las circunstancias lo ameriten.
+n) Coordinar con el personal de auditoría la elaboración, actualización y ejecución del Plan Estratégico de la unidad.
+o) Gestionar las necesidades fundamentales de capacitación y los requerimientos de otros recursos que considere indispensables para llevar a cabo sus actividades de auditoría y la administración de la unidad a su cargo.
+p) Administrar en forma efectiva los recursos, materiales, humanos y tecnológicos en concordancia con los objetivos del SINAC.
+q) Dirigir la autoevaluación de calidad y emitir el informe para conocimiento del jerarca y someter aprobación del jerarca el plan de mejora.
+r) Dirigir la autoevaluación del sistema de control interno con el equipo de auditoría.
+s) Realizar cualquier otra actividad propia del cargo.

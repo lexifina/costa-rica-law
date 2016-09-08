@@ -1,0 +1,2 @@
+Sección IV. Del Auditor o Auditora y Subauditor o Subauditora
+Artículo 15.—Dependencia jerárquica. La persona que ostente el cargo de Auditor o Auditora Interna responderá por su gestión ante el CONAC, y en lo conducente, ante la Contraloría General de la República. Al Subauditor o Subauditora Interna le corresponderá apoyar al Auditor o Auditora Interna, responderá ante él o ella por su gestión y sustituirá a él o ella en sus ausencias temporales.
