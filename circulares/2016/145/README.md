@@ -13,3 +13,4 @@ Obligatoriedad de valorar la información del Sistema de Gestión Tecnológica (
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-29 | la propia norma |
+| 2 | 2016-09-09 | Circular 157 (2016-09-09) |
