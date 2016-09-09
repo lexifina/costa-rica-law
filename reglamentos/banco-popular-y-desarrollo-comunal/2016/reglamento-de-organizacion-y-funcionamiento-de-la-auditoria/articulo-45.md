@@ -1,0 +1,5 @@
+Artículo 45. —El seguimiento de recomendaciones se regirá por los siguientes criterios:
+a) La Auditoría evaluará la efectividad del programa de seguimiento establecido por la administración para controlar el avance y cumplimiento de los plazos dispuestos en las recomendaciones y disposiciones según corresponda. La programación de las actividades de seguimiento de recomendaciones deberá estar incluida en el Plan Anual de Trabajo.
+b) La Auditoría verificará lo actuado por la administración respecto de las advertencias que le haya formulado, sin perjuicio de que como resultado del seguimiento, emita informes de control interno, de responsabilidades (Relaciones de Hechos) y otros pertinentes.
+c) La Auditoría verificará lo actuado por el jerarca respecto de la asesoría que le haya brindado (la asesoría no es vinculante), en cuanto a que las acciones tomadas estén de acuerdo con el ordenamiento jurídico y técnico, sin perjuicio de que como resultado del seguimiento emita informes de control interno o de responsabilidades.
+d) La Auditoría Interna hará un seguimiento regular respecto de la administración y el control de los libros que ha autorizado.

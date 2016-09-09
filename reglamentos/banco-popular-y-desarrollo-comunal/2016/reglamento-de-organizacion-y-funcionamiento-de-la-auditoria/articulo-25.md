@@ -1,0 +1,4 @@
+Plan de trabajo de la auditoría Interna
+Artículo 25. —El plan de trabajo anual de la auditoría interna y el requerimiento de recursos necesarios para su ejecución, se dará a conocer al jerarca, por parte del Auditor General, quien debe valorar las observaciones y solicitudes que, sobre los contenidos de ese plan, plantee el jerarca en su condición de responsable principal por el sistema de control interno institucional.
+Las modificaciones al plan de trabajo anual que se requieran durante su ejecución, deben comunicarse oportunamente al jerarca.
+El plan de trabajo anual y sus modificaciones, se deben remitir a la Contraloría General de la República, en la forma y términos que al efecto disponga ese órgano contralor. La remisión de esa información no tiene como objetivo otorgar una aprobación o visto bueno a lo planificado por la auditoría

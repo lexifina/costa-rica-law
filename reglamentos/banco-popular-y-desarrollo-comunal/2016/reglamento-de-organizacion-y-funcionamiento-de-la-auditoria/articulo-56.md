@@ -1,0 +1,1 @@
+Artículo 56. —Formato del informe. Deberá mostrar la relación entre los servicios de auditoría establecidos en el plan anual de trabajo y los productos o resultados obtenidos de cada auditoría, estudio especial o servicio preventivo prestado. El informe contendrá tanto el número de recomendaciones emitidas como el porcentaje de recomendaciones que implantó la Administración.
