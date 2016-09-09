@@ -1,0 +1,1 @@
+Artículo 3.- Deróguese el artículo 5° del Decreto Ejecutivo n.° 39858 del 10 de agosto de 2016, “Reglamento para el elección de las personas integrantes de la Junta Directiva de la Junta de Desarrollo Regional de la Zona Sur de la Provincia de Puntarenas (JUDESUR)” y corríjase la numeración correspondiente.
