@@ -1,3 +1,0 @@
-3. Políticas de Administración del Servicio de Correo Electrónico.
-3.1. La violación de la seguridad de los sistemas de Internet y/o de la red, puede acarrear responsabilidad civil y/o penal de conformidad con la legislación vigente. En caso de que se inicie una investigación al respecto, el ICODER colaborará con las autoridades correspondientes.
-3.2. El personal del SICODERE con la ayuda de herramientas especializadas, procederá con el filtrado de los archivos que vengan anexados al correo electrónico, con extensiones tales como: .exe, .bat, .wav, .mp3, .mpg, entre otros que pudieran considerarse peligrosos, con el fin de garantizar la seguridad de la red.
