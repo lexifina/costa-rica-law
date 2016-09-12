@@ -1,1 +1,0 @@
-Artículo 8: El rechazo de una solicitud de incorporación podrá ser objeto de los recursos de revocatoria y de apelación respectivamente ante la Junta Directiva dentro del quinto día hábil de conocida la resolución.

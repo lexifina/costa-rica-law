@@ -1,1 +1,0 @@
-Artículo 25: Los acuerdos de Asamblea General, reunida ordinaria o extraordinariamente, se tomarán por mayoría simple, cuando la votación resulte empatada la persona que presida la Asamblea General decidirá el asunto con doble voto.
