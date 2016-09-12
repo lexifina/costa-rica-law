@@ -18,7 +18,9 @@ K3) Ríos y Quebradas, INVU.
 K.4) Colindancia a Pozos, Nacimientos y Humedales, MINAE.
 K.5) Servicios Eléctricos u otros ICE-ESPH
 La Viabilidad Ambiental otorgada por la Secretaría Nacional Técnica Ambiental (SETENA-MINAET).
-l) Oficio emitido por la SUTEL donde se autorice la ubicación de la estructura en el inmueble propuesto.
-m) El o los propietarios registrales, el solicitante y el operador o proveedor, deben estar al día con los Impuestos y tributos municipales en el cantón de San Isidro de Heredia, lo cual se verificará internamente.
+l) La Viabilidad Ambiental otorgada por la Secretaría Nacional Técnica Ambiental (SETENA-MlNAET).
+(Así reformado el inciso anterior por acuerdo N° 979-2016 de la sesión 61-2016 del 12 de setiembre de 2016)
+m) Presentar una propuesta de mimetización o camuflaje de la infraestructura a instalar, tomando en cuenta el entorno donde se ha de ubicar, la cual podrá ser aprobada, improbada o sometida a modificaciones por parte de la Dirección de Desarrollo Urbano.
+(Así reformado el inciso anterior por acuerdo N° 979-2016 de la sesión 61-2016 del 12 de setiembre de 2016)
 n) Constancia del cumplimiento de las responsabilidades obrero patronales actualizada, con la Caja Costarricense del Seguro Social (CCSS) por parte del o los propietarios del inmueble, del solicitante y del operador o proveedor.
 o) Previo al pago de la licencia constructiva deberá presentar la póliza de seguro de riesgo de trabajo y la póliza de responsabilidad por daños a terceros.

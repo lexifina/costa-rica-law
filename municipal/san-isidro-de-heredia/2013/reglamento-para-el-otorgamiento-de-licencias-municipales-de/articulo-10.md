@@ -1,1 +1,2 @@
-Artículo 10.—Se deberá mantener una franja de amortiguamiento dentro de la finca consolidada, alrededor de una torre de telecomunicaciones de al menos el treinta por ciento (30%) de su altura, medido desde el borde más sobresaliente de la obra constructiva incluyendo las antenas que se le vayan a adherir.
+Artículo 10.—Se deberá mantener una franja del amortiguamiento dentro de la finca consolidada, alrededor de una torre de telecomunicaciones de al menos el quince por ciento (15%) de su altura, medido desde el borde más sobresaliente de la obra constructiva incluyendo las antenas que se le vayan a adherir.
+(Así reformado mediante acuerdo N° 979-2016 de la sesión N° 61-2016 del 12 de setiembre de 2016)

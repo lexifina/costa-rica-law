@@ -17,4 +17,7 @@ o) Torre Arriostrada: Estructura vertical de altura variable que requiere de sop
 p) Estructura de Telecomunicaciones: Se considera como aquella destinada para soportar antenas y/o equipos de telecomunicaciones, que puede incluir otros elementos asociados como: terreno, cuartos o casetas, suministro eléctrico, acondicionadores de aire, entre otros.
 q) Torre: Estructura vertical para el soporte de antenas y/o equipo de telecomunicaciones que pueden ser de tipo arriostrada, auto soportada y monopolo.
 r) Estructuras auto soportantes tipo monoposte o monopolo: torres auto soportantes de un solo apoyo.
-s) Cualquier otro tipo que pueda ser desarrollado en un futuro.
+s) Camuflaje: Ejecución de obras constructivas aplicadas a la infraestructura de telecomunicaciones, mediante las que se pretende dotar a su aspecto exterior, de características similares a otros objetos cercanos que se ubiquen en su entorno, con tal de disminuir su impacto visual.
+(Así reformado el inciso anterior por acuerdo N° 979-2016 de la sesión N° 61-2016 del 12 de setiembre de 2016)
+t) Mimetización: Ejecución de obras constructivas aplicadas a la infraestructura de telecomunicaciones, mediante las que se pretende dotarles de condiciones físicas que permitan que se confundan con su entorno, con tal de disminuir su impacto visual.
+(Así adicionado el inciso anterior por acuerdo N° 979-2016 de la sesión N° 61-2016 del 12 de setiembre de 2016)
