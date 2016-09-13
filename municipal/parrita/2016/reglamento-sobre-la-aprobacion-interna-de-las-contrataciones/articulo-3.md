@@ -1,0 +1,1 @@
+Artículo 3º—Unidad interna competente. La unidad interna competente para otorgar la Aprobación Interna será la Asesoría Jurídica, que se encargará de verificar que el contrato se ajuste al bloque de legalidad, según los parámetros que se establecen en este Reglamento.
