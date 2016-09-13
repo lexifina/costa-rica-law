@@ -1,0 +1,4 @@
+Artículo 142.— Las amonestaciones verbales o escritas por faltas leves, las impondrá el jefe inmediato del servidor (a), brindando el debido proceso. La amonestación escrita deberá contener un relato sucinto de los hechos que motivaron la infracción y fundamento que justifican la sanción disciplinaria.
+Las suspensiones, deberá imponerlas el (la) Director(a) Ejecutivo (a) dentro del término establecido, previo procedimiento administrativo efectuado al servidor (a).
+Los despidos se tramitarán de conformidad con lo dispuesto en el Capítulo IX del Estatuto de Servicio Civil y artículo 90 del Reglamento del Estatuto del Servicio Civil y las regulaciones que al efecto dicte la Dirección General de Servicio Civil.
+Contra las resoluciones que dicte CONAPAM que ordenen algún tipo de sanción, cabrán los recursos establecidos en la Ley General de la Administración Pública, dentro de los plazos ahí contemplados.

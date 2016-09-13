@@ -1,0 +1,1 @@
+Artículo 162.— La OGEREH deberá remitir en e1 plazo máximo de diez días, según la complejidad del asunto, la información y documentos necesarios, a la Unidad de Asesoría Jurídica para el trámite correspondiente.

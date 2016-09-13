@@ -1,0 +1,1 @@
+Artículo 72.— A efecto de determinar las cincuenta semanas de servicios continuos para tener derecho a vacaciones, no se computará los periodos de suspensión de la relación de servicio, conforme lo establecido por el Estatuto de Servicio Civil y su Reglamento.

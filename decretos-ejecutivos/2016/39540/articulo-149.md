@@ -1,0 +1,1 @@
+Artículo 149.— Los plazos para contabilizar la reincidencia, salvo los casos de faltas contra la asistencia y puntualidad, serán de tres meses e impondrá la sanción inmediata siguiente a la anterior aplicada.

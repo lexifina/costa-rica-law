@@ -1,0 +1,1 @@
+Artículo 170.— Los servidores (as) del CONAPAM tendrán un plazo de tres meses, para ajustarse al nuevo horario establecido en el artículo 29 de este Reglamento. Se autorizará a la OGEREH para implementar los controles que considere necesarios.

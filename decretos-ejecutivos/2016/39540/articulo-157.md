@@ -1,0 +1,1 @@
+Artículo 157.— En las faltas graves y suspensión disciplinaria, una vez firme el acto final que la acuerde, se practicará la correspondiente reducción de salario, que en forma expresa determine y disponga dicho acto, sin que exceda el plazo máximo de un mes la imposición de la sanción.

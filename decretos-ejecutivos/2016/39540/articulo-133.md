@@ -1,0 +1,1 @@
+Artículo 133.— De conformidad con el artículo 288 del Código de Trabajo, en el CONAPAM se establecerá una Comisión Institucional de Salud Ocupacional, la cual dictará todas las directrices en materia de salud ocupacional, de conformidad con la normativa vigente y aplicable a la materia.

@@ -1,0 +1,1 @@
+Artículo 26.— El CONAPAM, siempre que se cuente con los recursos presupuestarios necesarios, brindará atención médica directa en forma regular a los servidores (as), mediante el sistema de médico de empresa.

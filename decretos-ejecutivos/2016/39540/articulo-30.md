@@ -1,0 +1,1 @@
+Artículo 30.— Los Directores y Encargados de Unidades son los responsables de velar porque se aplique lo dispuesto en el artículo anterior. La Dirección Ejecutiva del CONAPAM podrá modificar los horarios establecidos, siempre que existan circunstancias especiales que así lo exijan y no se cause perjuicio al servicio público y a los servidores (as).

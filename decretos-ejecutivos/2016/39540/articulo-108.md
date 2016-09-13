@@ -1,0 +1,1 @@
+Artículo 108.— El procedimiento a seguir y las sanciones aplicables por hostigamiento o acoso sexual o laboral, se tramitarán de conformidad con lo establecido en el presente Reglamento y la normativa vigente.

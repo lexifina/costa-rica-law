@@ -1,0 +1,1 @@
+Artículo 92.— En caso de recargo de funciones por más de un mes, el servidor (a) sustituto tendrá derecho a recibir su salario de acuerdo con el salario base del servidor (a) sustituido siempre y cuando reúna los requisitos mínimos para el desempeño del puesto, de conformidad con las normas vigentes.

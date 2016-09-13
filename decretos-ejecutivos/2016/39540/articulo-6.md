@@ -1,0 +1,5 @@
+CAPÍTULO III
+De las relaciones de servicio
+Artículo 6.— Los servidores (as) cubiertos por este Reglamento, que ocupen una plaza, en propiedad o en forma interina en el CONAPAM, sean del Régimen de Servicio Civil o excluidos de este, estarán sujetos a la siguiente relación de servicios:
+1. Cuando se trate de servidores (as) que ocupen puestos incluidos en el Régimen de Servicio Civil, estarán sometidos a las disposiciones del Estatuto de Servicio Civil, su Reglamento, el presente Reglamento, la Ley General de la Administración Pública, el Código de Trabajo y demás normativa de derecho público que corresponda.
+2. Cuando se trate de servidores (as) que ocupen puestos excluidos del régimen de Servicio Civil, según lo dispuesto en el artículo 3 inciso c) y 4 inciso g) del Estatuto de Servicio Civil, estarán sometidos a las disposiciones del presente Reglamento, normas atinentes al puesto, al Código de Trabajo, a la Ley General de la Administración Pública y demás normativa de derecho público que corresponda.

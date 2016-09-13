@@ -1,0 +1,1 @@
+Artículo 34.— Se entiende por jornada extraordinaria, el trabajo efectivo que se ejecuta fuera de la jornada ordinaria. En tales condiciones este trabajo extraordinario deberá ser remunerado de acuerdo con lo que establezca la normativa jurídica vigente. No se consideran horas extraordinarias las que el servidor (a) ocupe para subsanar errores imputables sólo a él.

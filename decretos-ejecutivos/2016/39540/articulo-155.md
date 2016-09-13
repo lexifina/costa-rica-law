@@ -1,0 +1,1 @@
+Artículo 155.— Terminada la comparecencia e instruido el procedimiento administrativo, el órgano director remitirá los autos a la Dirección Ejecutiva, para que en el plazo de 15 días dicte el acto final y realice la comunicación respectiva.

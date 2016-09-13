@@ -1,0 +1,1 @@
+Artículo 56.— La llegada tardía injustificada superior a veinte (20) minutos, implicará la pérdida de media jornada, con la deducción salarial correspondiente, sin perjuicio de la sanción disciplinaria que la misma pueda acarrear.

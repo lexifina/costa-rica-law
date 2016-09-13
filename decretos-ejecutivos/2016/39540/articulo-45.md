@@ -1,0 +1,1 @@
+Artículo 45.— Salvo desperfecto del sistema que se utilice, los registros defectuosos o confusos de la asistencia a labores deberán ser justificados por el servidor (a), dentro del plazo establecido en el artículo 48 de este Reglamento.

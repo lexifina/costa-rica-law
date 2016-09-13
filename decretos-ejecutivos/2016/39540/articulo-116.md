@@ -1,0 +1,2 @@
+Artículo 116.— Ninguna persona que haya denunciado ser víctima de acoso u hostigamiento sexual o haya comparecido como testigo de las partes, podrá sufrir por ello, perjuicio personal alguno en su empleo.
+Quien formule una denuncia por acoso u hostigamiento sexual sólo podrá ser despedido por causa justificada, originada en falta grave a los deberes derivados de la relación de servicios, según lo establecido en el artículo 81 del Código de Trabajo.

@@ -1,0 +1,1 @@
+Artículo 101.— Corresponde al superior inmediato del servidor (a) efectuar la evaluación del desempeño, en el plazo establecido, siguiendo las instrucciones contenidas en el Modelo de evaluación del desempeño institucional para el CONAPAM.

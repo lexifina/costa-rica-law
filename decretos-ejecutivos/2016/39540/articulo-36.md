@@ -1,0 +1,2 @@
+Artículo 36.— La Dirección Ejecutiva, podrá modificar transitoriamente los horarios establecidos en este Reglamento, siempre que circunstancias especiales así lo exijan y en tanto no se cause perjuicio grave a los servidores (as). El cambio temporal de horario deberá comunicarse a los afectados, con un mínimo de tres días de anticipación.
+La variación definitiva de los horarios deberá aprobarse por modificación de este Reglamento.

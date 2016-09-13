@@ -1,0 +1,1 @@
+Artículo 11.— No interrumpirán la continuidad de los servicios los descansos otorgados por la legislación vigente, la prórroga o renovación inmediata del contrato, ni ninguna otra causa análoga que no termine con la relación de servicios, siempre que tales supuestos se ajusten por entero a lo dispuesto por el ordenamiento jurídico.

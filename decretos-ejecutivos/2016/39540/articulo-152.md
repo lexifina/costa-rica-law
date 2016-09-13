@@ -1,0 +1,5 @@
+Artículo 152.— En el caso de que la falta sea valorada como leve, se seguirá el procedimiento establecido en el artículo 142 del presente Reglamento.
+Cuando la falta sea considerada como grave, el procedimiento o instrucción disciplinaria atenderá los siguientes pasos:
+1. Las jefaturas deberán reportar a la Dirección Ejecutiva, las faltas en que incurran sus subalternos a más tardar, dentro de los tres días hábiles siguientes en que éstas se hayan cometido o sean de su conocimiento.
+2. Todo reporte deberá ser presentada por escrito y contener una relación circunstanciada de los hechos, indicación del o los servidores (as) participantes, fechas, lugares y otros datos de interés. Se deberán aportar y ofrecer las pruebas en que fundamentan los alegatos.
+3. La Dirección Ejecutiva, bajo su responsabilidad, hará una valoración previa de la falta reportada para determinar su naturaleza, y establecer la necesidad o no de iniciar el procedimiento administrativo disciplinario. En caso de que de acuerdo con su criterio, no se deba iniciar el procedimiento, procederá a archivar las diligencias mediante resolución fundada.

@@ -1,0 +1,1 @@
+Artículo 134.—Los servidores (as), previa autorización de la Dirección Ejecutiva, podrán realizar actividades de formación humanística, intelectual, estética, deportiva y recreativa que les permita el desarrollo de sus aptitudes.

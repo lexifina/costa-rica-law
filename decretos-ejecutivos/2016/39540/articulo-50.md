@@ -1,0 +1,1 @@
+Artículo 50.— En caso de que por irregularidades en la asistencia proceda el despido sin responsabilidad patronal, la OGEREH remitirá todos los atestados a la Asesoría Jurídica, a efecto de se proceda con el trámite de la gestión de despido ante el Tribunal de Servicio Civil, instancia que dará el debido proceso al servidor (a) afectado.

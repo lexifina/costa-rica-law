@@ -1,0 +1,1 @@
+Artículo 163.— La resolución deberá contener un encabezado con la especificación del lugar, hora y fecha en que se emite, los resultandos que especificarán los elementos relevantes del reclamo, los considerandos en los que se consignarán los hechos probados y el fondo del asunto, y un por tanto que indicará la parte resolutiva de la decisión final.

@@ -1,0 +1,1 @@
+Artículo 18.— El CONAPAM ofrecerá facilidades para que la servidora o el servidor asistan a programas de desintoxicación. De incumplir con el programa de desintoxicación y al ser detectado infringiendo la prohibición de no fumar, tres veces o más, el servidor (a) podrá ser despedido sin responsabilidad patronal.

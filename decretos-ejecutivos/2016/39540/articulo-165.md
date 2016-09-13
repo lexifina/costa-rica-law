@@ -1,0 +1,1 @@
+Artículo 165.— Los servidores (as) podrán recurrir contra todas aquellas resoluciones o disposiciones que les causen perjuicio, en los términos establecidos en el artículo 342 y siguientes de la Ley General de la Administración Pública.

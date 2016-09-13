@@ -1,0 +1,1 @@
+Artículo 129.— La OGEREH tomará las medidas necesarias para incorporar personas con discapacidad a los servicios del CONAPAM, y coordinará lo que corresponda con la Dirección General de Servicio Civil. Además, brindará la capacitación necesaria para que las personas con discapacidad se superen en el desempeño de su cargo.

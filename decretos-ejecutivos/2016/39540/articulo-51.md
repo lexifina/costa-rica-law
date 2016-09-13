@@ -1,0 +1,1 @@
+Artículo 51.— El servidor (a) que efectué un registro de asistencia que no sea el suyo, incurrirá en falta grave; de la misma manera aquel (aquella) que consienta o solicite a otro le registre su marca de asistencia.

@@ -1,0 +1,1 @@
+Artículo 69.— Como regla general, la remuneración durante las vacaciones será de acuerdo con el sueldo correspondiente asignado vigente a la fecha en que el servidor (a) disfrute del descanso anual, conforme a la legislación vigente.

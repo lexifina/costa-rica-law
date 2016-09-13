@@ -1,0 +1,1 @@
+Artículo 62.— Sin perjuicio de lo dispuesto en el artículo anterior, todo servidor (a) deberá comunicar al superior inmediato, a la mayor brevedad posible y por un medio idóneo que asegure su comunicación, que durante esa jornada va a estar ausente de sus labores.

@@ -1,0 +1,1 @@
+Artículo 137.— La valoración de las faltas en que incurrieren los servidores (as) para determinación de la sanción correspondiente, se fundamentará en los principios de derecho, de objetividad y proporcionalidad.

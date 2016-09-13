@@ -1,0 +1,11 @@
+Artículo 13.— Además de las obligaciones incluidas en el artículo 12 y en otros artículos del presente Reglamento, los Directores, Encargados de Unidades Administrativas y todos aquellos servidores (as) que ostenten cargos de jefatura, tendrían las siguientes obligaciones:
+1. Supervisar, asesorar, dirigir e instruir a todos los servidores (as) a su cargo, en los aspectos técnicos y administrativos.
+2. Informar a su superior inmediato con periodicidad, al menos una vez al mes, sobre la marcha de su respectiva unidad de competencia y en forma inmediata cuando ocurra un hecho relevante y que requiera pronta solución o especial atención.
+3. Velar por la disciplina, asistencia y puntualidad de los servidores (as) a su cargo, informando a su superior y la OGEREH de las irregularidades que, en uno u otro aspecto, se presenten.
+4. Mantener en el lugar de la prestación de servicios, condiciones de respeto recíproco y apropiadas para quienes ahí laboran, y por ende, tomar las medidas necesarias para prevenir, desalentar y evitar conductas de irrespeto, acoso laboral o acoso u hostigamiento sexual.
+5. Velar porque todos los servidores (as) realicen diariamente y en forma correcta las labores asignadas, aplicando las medidas que juzgue convenientes para que el trabajo se haga eficientemente y sin retraso alguno.
+6. Dictar las disposiciones administrativas necesarias en beneficio de la buena marcha de la unidad o dirección a su cargo y, cuando corresponda, someterlas a la aprobación del respectivo Superior Jerárquico.
+7. Planear las labores y suministrar la información requerida para elaborar los anteproyectos de presupuesto que serán sometidos a la aprobación de su Superior Jerárquico.
+8. Evaluar en forma objetiva el desempeño de sus colaboradores amparados al Régimen de Servicio Civil, mediante la aplicación oportuna de los formularios correspondientes que la OGEREH remitirá para tal efecto y enviando oportunamente la documentación a dicha oficina.
+9. Cuidar que los subalternos vistan apropiadamente, de conformidad con lo establecido en el artículo anterior.
+10. Cumplir con todas las demás obligaciones propias de su cargo, además de las contenidas en el artículo 102 de la Ley General de la Administración Pública, así como cualquier otra normativa de derecho público que corresponda.

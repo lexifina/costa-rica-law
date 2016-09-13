@@ -1,0 +1,1 @@
+Artículo 10.— Cuando el servicio público lo exija, el CONAPAM está facultado para asignarle a un servidor, por un plazo que no debe exceder de sesenta días consecutivos o alternos durante el periodo anual respectivo, tareas correspondientes a otro puesto distinto al suyo del Manual de Cargos Institucional, sin que ello signifique un aumento o disminución de salario.

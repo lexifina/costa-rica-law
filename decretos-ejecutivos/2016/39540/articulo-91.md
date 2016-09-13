@@ -1,0 +1,1 @@
+Artículo 91.— El salario de las personas que ocupen el puesto de Director (a) Ejecutivo(a) y Auditor (a) General serán fijados de acuerdo con las normas que establezca la Autoridad Presupuestaria del Ministerio de Hacienda.

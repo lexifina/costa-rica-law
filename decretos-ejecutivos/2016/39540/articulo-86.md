@@ -1,0 +1,1 @@
+Artículo 86.— No obstante lo establecido en el presente capítulo, la concesión de licencias para estudios podrá ser denegada, cuando así lo justifiquen las necesidades del servicio, sin responsabilidad para el CONAPAM y sin que por ello se puedan alegar derechos adquiridos por concesiones similares anteriores, o aquellos dados a otros servidores (as).

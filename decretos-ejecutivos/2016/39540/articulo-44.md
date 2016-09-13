@@ -1,0 +1,1 @@
+Artículo 44.— Los (as) jefes inmediatos (as) de los servidores (as) eximidos de registrar la asistencia tendrán la obligación de establecer los medios de control de asistencia adecuados, debiendo comunicar a la OGEREH las anomalías, ausencias, llegadas tardías y abusos que se presenten.

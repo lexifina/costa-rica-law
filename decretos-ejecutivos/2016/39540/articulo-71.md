@@ -1,0 +1,1 @@
+Artículo 71.— Las vacaciones serán absolutamente incompensables. El servidor (a) que hubiere adquirido derecho a las vacaciones y que antes de disfrutarlas cese en su contrato por cualquier causa, recibirá el importe correspondiente en dinero, de conformidad con el artículo 156 del Código de Trabajo.

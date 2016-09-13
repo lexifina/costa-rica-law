@@ -1,0 +1,1 @@
+Artículo 46.—Salvo los casos de excepción previstos en este Reglamento, la omisión de registrar la asistencia a labores, a cualquiera de las horas establecidas en este Reglamento, hará presumir la inasistencia a la correspondiente jornada o fracción.

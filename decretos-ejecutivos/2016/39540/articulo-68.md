@@ -1,0 +1,1 @@
+Artículo 68.— Si por cualquier causa el servidor no completa el periodo de cincuenta semanas de servicios continuos, por terminación de su relación laboral, tendrá derecho a vacaciones proporcionales, las que se aplicarán según lo establecido por el artículo 29 del Reglamento del Estatuto de Servicio Civil.

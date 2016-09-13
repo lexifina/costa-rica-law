@@ -1,0 +1,1 @@
+Artículo 28.— Los subsidios por razones de enfermedad, y las licencias por maternidad se regularán por lo dispuesto en el Reglamento del Estatuto de Servicio Civil, Código de Trabajo y demás normativa aplicable, así como por lo dispuesto por la Caja Costarricense de Seguro Social e Instituto Nacional de Seguros, en lo que a su materia se refiere.

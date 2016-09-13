@@ -1,0 +1,1 @@
+Artículo 3.— Los Directores y encargados de Unidades Administrativas y en general todos aquellos servidores (as), que tengan bajo su responsabilidad tareas de administración o supervisión de personal, son responsables ante el CONAPAM de velar por la correcta aplicación de las disposiciones del presente Reglamento.

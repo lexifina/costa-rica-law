@@ -1,0 +1,1 @@
+Articulo 148.— Se amonestará por escrito al servidor (a) que no rinda las declaraciones que se le pidan cuando fuere citado como testigo en reclamaciones, así como cuando no suministre cualquier dato, constancia o certificación que sea requerida en un asunto disciplinario laboral.

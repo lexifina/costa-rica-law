@@ -1,0 +1,1 @@
+Artículo 96.— La OGEREH llevará y custodiará un expediente personal para cada servidor (a) del CONAPAM. Dicho expediente deberá contener todos aquellos documentos y datos que sirvan para determinar el historial de los servicios.

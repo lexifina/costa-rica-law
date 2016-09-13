@@ -1,0 +1,5 @@
+CAPÍTULO X
+Del registro y control de asistencia
+Artículo 42.— En el registro de asistencia, se incluirán todos los servidores (as) del CONAPAM, por medio del mecanismo que la OGEREH determine, salvo aquellos servidores (as) que por la índole de sus funciones, así lo requieran y que conforme al artículo 143 del Código de Trabajo no tienen limitación de jornada.
+Se exceptúan también de la obligación de registrar la asistencia, aquellos días en los que con ocasión del cumplimiento de sus funciones, los servidores (as) deban prestar sus servicios fuera del lugar habitual de trabajo, siempre y cuando resulte imposible registrar su ingreso o salida, lo cual deberá ser debidamente justificado en la boleta correspondiente por el superior inmediato del servidor (a), así como cuando se imposibilite el registro de asistencia, por causa médica acreditada por el médico tratante y mientras esta se mantenga.
+La Dirección Ejecutiva del CONAPAM comunicará a la OGEREH, las exoneraciones de marca que correspondan, según los supuestos indicados.

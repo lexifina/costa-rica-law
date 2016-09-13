@@ -1,0 +1,1 @@
+Artículo 5.— La OGEREH llevará a cabo todas aquellas actividades que sean resorte de su competencia de conformidad con lo establecido en el presente Reglamento y demás normas aplicables, incluyendo el control de la aplicación de las sanciones disciplinarias.

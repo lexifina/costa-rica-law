@@ -1,0 +1,1 @@
+Artículo 8.— Se consideran servidores (as) regulares todos los que hayan sido nombrados con los procedimientos y disposiciones contenidas en los capítulos IV y V, Título I del Estatuto de Servicio Civil y III y V de su Reglamento.

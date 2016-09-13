@@ -1,0 +1,1 @@
+Artículo 22.— Los servidores (as) podrán disfrutar del tiempo necesario para asistir a sus citas médicas, así como a las de sus hijos, menores de edad o con alguna discapacidad, o a las de sus padres o abuelos, cuando sean personas adultas mayores, a las instituciones de seguridad social del Estado u otras de carácter privado.

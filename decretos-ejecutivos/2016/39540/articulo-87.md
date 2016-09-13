@@ -1,0 +1,1 @@
+Artículo 87.— Las licencias para asistir a cursos de adiestramiento mediante el otorgamiento de becas y otras facilidades, se regularán por las disposiciones de la Ley No. 3009 de 18 de julio de 1962 y sus reformas, así como con las normas internas que al efecto dicte la Junta Rectora.

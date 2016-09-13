@@ -1,0 +1,1 @@
+Artículo 123.— Contra la resolución final que se dicte cabrán los recursos establecidos en la Ley General de la Administración Pública, los que deberán interponerse ante la Dirección Ejecutiva, dentro de los plazos ahí establecidos.

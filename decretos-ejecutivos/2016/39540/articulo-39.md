@@ -1,0 +1,1 @@
+Artículo 39.— El Teletrabajo deberá implementarse por medio de programas previamente establecidos y según las regulaciones establecidas en los Decretos No. 37695-MP-MTSS del 11 de febrero de 2013 y Decreto No. 35434-S-MTSS del 12 de agosto de 2009, o la normativa que se encuentre vigente al efecto.

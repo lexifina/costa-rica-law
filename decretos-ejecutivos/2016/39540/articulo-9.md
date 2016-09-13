@@ -1,0 +1,1 @@
+Artículo 9.— Se considera servidor (a) interino (a) quien fuere nombrado (a) para sustituir temporalmente a un servidor (a) regular, cuando éste por alguna razón haya interrumpido su relación de servicio con el CONAPAM, o aquel que se nombre cuando no hayan candidatos elegibles, mientras se hace el concurso, los cuales serán nombrados por un plazo determinado.
