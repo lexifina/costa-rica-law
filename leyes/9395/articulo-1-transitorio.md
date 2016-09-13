@@ -1,0 +1,3 @@
+TRANSITORIO ÚNICO.- Los entes públicos, que a la entrada en vigencia de la presente ley no posean los recursos humanos y digitales necesarios para efectuar las contrataciones por medio del Sistema digital unificado de compras públicas, tendrán un plazo improrrogable de un año para cumplir con las obligaciones establecidas en la presente ley. Salvo autorización del ente ejecutor del Sistema digital unificado de compras públicas, que no podrá excederse de seis meses adicionales, en casos debidamente justificados.
+Rige a partir de su publicación.
+Dado en la Presidencia de la República.-San José, alos treinta y un días del mes de agosto del año dos mil dieciséis.
