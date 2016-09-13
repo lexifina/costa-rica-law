@@ -1,0 +1,2 @@
+Artículo 3º—Se modifica el artículo número 11, para que en lo sucesivo se lea de la siguiente forma:
+“Artículo 11.—En el caso que se constate el incumplimiento de las condiciones en las cuales fue otorgado el beneficio de la ejecución condicional de la sanción, o bien, se incumpla con la asistencia al curso de actualización profesional, se procederá de inmediato a comunicarlo al Departamento de Registro para que proceda de oficio con la revocación del beneficio concedido y aplique la sanción correspondiente. Esa situación le será comunicada al interesado.”
