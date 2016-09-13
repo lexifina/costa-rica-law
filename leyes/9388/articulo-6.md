@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Excepciones. Las disposiciones contenidas en la presente ley no serán aplicables a las personas cubiertas por el Régimen de Invalidez, Vejez y Muerte que administra la Caja Costarricense de Seguro Social, ni a los regímenes de pensiones y jubilaciones del Magisterio Nacional ni al del Poder Judicial.”

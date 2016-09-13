@@ -1,0 +1,1 @@
+ARTÍCULO 7.- Disposición derogatoria. Se deroga el artículo 3 de la Ley N.° 7605, Derogación del Régimen de Pensiones de los Diputados, Ley N.° 7302 y Modificación de la Ley Orgánica del Poder Judicial, de 2 de mayo de 1996, y sus reformas.
