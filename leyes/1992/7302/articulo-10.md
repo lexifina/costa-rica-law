@@ -1,6 +1,2 @@
-ARTICULO 10.- Anualmente el Ministerio de Trabajo y Seguridad Social
-realizará las evaluaciones actuariales de los sistemas de protección y los
-requerimientos financieros y económicos necesarios para la buena marcha
-del régimen general. Un resumen de estas evaluaciones estará contenido en
-la memoria anual que este Ministerio debe presentar a la Asamblea Legislativa,
-de conformidad con lo establecido en la Constitución Política.
+Artículo 10.- Cada año, el Ministerio de Trabajo y Seguridad Social realizará un estudio técnico de los regímenes especiales de pensión con cargo al presupuesto nacional que administra la Dirección Nacional de Pensiones, que incluirá los requerimientos financieros y económicos necesarios para la buena marcha de los regímenes en general. Un resumen de estas evaluaciones estará contenido en la memoria anual correspondiente que este Ministerio debe presentar a la Asamblea Legislativa, de conformidad con lo establecido en la Constitución Política.
+(Así reformado por el artículo 4° de la ley N° 9388 del 10 de agosto de 2016, “Reforma normativa de los Regímenes Especiales de Pensiones con cargo al presupuesto para contener el gasto de pensiones”)

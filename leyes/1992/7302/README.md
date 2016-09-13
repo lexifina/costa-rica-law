@@ -1,6 +1,6 @@
 # Régimen General de Pensiones con Cargo al Presupuesto Nacional (Marco)
 
-Ley N° 7302 del 1992-07-08. SINALEVI, ficha 23804: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=23804&param2=105257&param3=1>.
+Ley N° 7302 del 1992-07-08. SINALEVI, ficha 23804: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=23804&param2=105403&param3=1>.
 
 Publicada en La Gaceta N° 134 del 1992-07-15.
 
@@ -19,3 +19,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 9 de 16 | 2015-01-03 | SINALEVI | 2015-01-03 |
 | 10 de 16 | 2016-08-26 | Ley 9381 | 2016-07-29 |
 | 11 de 16 | 2016-09-05 | Ley 9380 | 2016-07-29 |
+| 12 de 16 | 2016-09-13 | Ley 9388 | 2016-08-10 |

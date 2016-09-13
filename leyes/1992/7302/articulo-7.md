@@ -1,4 +1,2 @@
-ARTICULO 7.- El monto de las pensiones se reajustará cuando el Poder
-Ejecutivo decrete incrementos para los servidores públicos por variaciones
-en el costo de la vida y en igual porcentaje que los decretados para
-estos.
+Artículo 7.- El monto de todas las pensiones de los regímenes contributivos y no contributivos con cargo al presupuesto nacional en curso de pago se reajustará únicamente cuando el Poder Ejecutivo decrete incrementos para los servidores públicos, por variaciones en el costo de la vida y en igual porcentaje que los decretados para estos.
+(Así reformado por el artículo 3° de la ley N° 9388 del 10 de agosto de 2016, “Reforma normativa de los Regímenes Especiales de Pensiones con cargo al presupuesto para contener el gasto de pensiones”)
