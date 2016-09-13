@@ -1,0 +1,5 @@
+SECCIÓN IV. Control, seguimiento y evaluación del trabajo de los profesionales y
+empresas de peritaje.
+Artículo 28° Rendición de informes semestrales. Los profesionales y empresas de peritaje deberán presentar ante la Sección de Ingeniería, un informe digital semestral en el cual detallen los casos atendidos en dicho periodo de tiempo, el tipo de servicio ofrecido y otros detalles según el formato que dicha Sección defina para tal efecto. El informe debe ser presentado los primeros cinco días hábiles de los meses de junio y diciembre de cada año.
+Lo anterior sin menoscabo de los demás requerimientos que cualquier dependencia del Banco solicite.
+La presentación tardía del informe, la no presentación o la presentación con información omisa o incorrecta, se entenderá como un incumplimiento del contrato y dará la posibilidad al Banco para iniciar los procedimientos sancionatorios que correspondan, aplicar las multas contractuales previstas en el Artículo 31 de este Reglamento o resolver el contrato.

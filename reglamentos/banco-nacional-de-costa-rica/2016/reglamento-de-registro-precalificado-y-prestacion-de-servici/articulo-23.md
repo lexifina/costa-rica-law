@@ -1,0 +1,1 @@
+Artículo 23° Prohibición de recibir sumas de dinero. Queda prohibido a los peritos, las empresas de peritaje y a sus funcionarios, recibir sumas de dinero de los clientes del Banco Nacional, con los cuales tendrá relación en el cumplimiento de las asignaciones hechas desde el propio Banco.

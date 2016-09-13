@@ -1,0 +1,8 @@
+BANCO NACIONAL DE COSTA RICA
+El Banco Nacional de Costa Rica comunica la parte resolutiva del acuerdo tomado por la Junta Directiva General, en la Sesión No. 12.092, artículo 11º, celebrada el 11 de julio del 2016, en el cual acordó aprobar la modificación al Reglamento de Registro Precalificado y Prestación de Servicios de Peritos Externos del Banco Nacional de Costa Rica, para que, en lo sucesivo, se lea de conformidad con el siguiente texto:
+REGLAMENTO DEL REGISTRO PRECALIFICADO
+Y PRESTACIÓN DE SERVICIOS DE PERITOS EXTERNOS
+DEL BANCO NACIONAL DE COSTA RICA
+CAPÍTULO I
+DISPOSICIONES GENERALES DEL REGISTRO
+Artículo 1º Objeto. El presente Reglamento regula la asignación de avalúos, recomendación para desembolso de recursos de crédito e inspecciones de bienes muebles e inmuebles, relacionados con procesos de crédito en sus etapas de otorgamiento, seguimiento, recuperación, cobro judicial, venta de bienes adjudicados, y otros casos especiales solicitados por el Banco Nacional de Costa Rica, a los profesionales y empresas de peritaje que integran el Registro Precalificado de Peritos Externos del Banco Nacional de Costa Rica, y se emite al amparo de lo dispuesto por el artículo 2 bis , inciso c) de la Ley de Contratación Administrativa y los artículos 119 y 138 del Reglamento a la Ley de Contratación Administrativa, por lo que su vigencia se encuentra condicionada a la aprobación por parte de la Contraloría General de la República. Este Registro Precalificado de Peritos Externos no representa en ningún aspecto subordinación jurídico laboral, por tratarse de una prestación de servicios profesionales.

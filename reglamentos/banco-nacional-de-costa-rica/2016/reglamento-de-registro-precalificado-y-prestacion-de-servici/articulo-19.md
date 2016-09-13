@@ -1,0 +1,3 @@
+Artículo 19° Distribución de trabajo. Cada el profesional o empresa de peritaje puede integrar uno o varios grupos de especialidad profesional de un máximo de tres zonas de peritaje.
+Cada grupo se integrará por los peritos o empresas de peritaje que posean la especialidad correspondiente en la zona seleccionada, ordenados de conformidad con el orden de inscripción mediante un código que le brindará la institución.
+Respetando dicho orden, se asignarán a cada profesional o empresa de peritaje todos los casos de análisis de garantías de una misma solicitud (de crédito, seguimiento, recuperación u otro), cuya ubicación coincida con la zona de peritaje seleccionada.
