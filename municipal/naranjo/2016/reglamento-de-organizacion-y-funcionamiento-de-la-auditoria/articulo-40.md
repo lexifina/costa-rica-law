@@ -1,0 +1,3 @@
+Artículo 40º Seguimiento de los recomendaciones. La Auditoría Interna evaluará periódicamente, mediante un programa de seguimiento, la implementación de las recomendaciones emitidas y aprobadas por el Concejo Municipal, con la finalidad de verificar si esas recomendaciones aceptadas han sido puestas en práctica. Esta evaluación se deberá incluir en el Plan de Trabajo Anual.
+No obstante, por su carácter asesor, deberá limitarse a informar y recomendar; pues la responsabilidad exclusiva de comunicar las recomendaciones así como de ejecutar las acciones correctivas o soluciones recae sobre el Concejo, la Alcaldía y de las demás jefaturas técnicas y administrativas.
+Asimismo, deberá dársele seguimiento a las disposiciones y recomendaciones emitidas por la CGR.

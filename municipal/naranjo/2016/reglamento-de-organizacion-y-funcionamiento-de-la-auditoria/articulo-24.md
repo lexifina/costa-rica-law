@@ -1,0 +1,1 @@
+Artículo 24º Apego a la ética. Los funcionarios de la Auditoría Interna deberán actuar conforme a las normas de ética profesional dictadas por sus colegios profesionales, las emitidas por organismos competentes y aquellas que disponga la Auditoría Interna para garantizar la integridad moral y calidad profesional de sus miembros.

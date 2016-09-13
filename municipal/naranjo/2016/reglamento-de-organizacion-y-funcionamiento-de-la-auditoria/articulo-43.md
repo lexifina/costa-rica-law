@@ -1,0 +1,1 @@
+Artículo 43º Plan Anual Operativo. Estará orientado al Plan de Trabajo Anual y la determinación del nivel de riesgo de las actividades que se realizarán de acuerdo con el ciclo de Auditoría, la vinculación del presupuesto y las disposiciones que ha emitido la CGR para con las Auditorías Internas.

@@ -1,0 +1,1 @@
+Artículo 6º Órganos del sistema de control interno. La administración activa y la Auditoría interna de los entes, serán los componentes orgánicos del sistema de control interno establecido e integrarán el Sistema de Fiscalización Superior de la Hacienda Pública a que se refiere la Ley Orgánica de la Controlaría General de la República.

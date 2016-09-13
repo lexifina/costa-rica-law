@@ -1,0 +1,3 @@
+CAPÍTULO II
+De la organización
+Artículo 9° Estructura. La Auditoría Interna se organizará conforme lo dispuesto en los artículos 23 y 24 de la Ley General de Control Interno, contará con el personal asistente necesario, el que deberá poseer los requisitos profesionales idóneos para el cabal cumplimiento de sus funciones, así como los conocimientos suficientes sobre las disposiciones legales contenidos en el Régimen Municipal, y la Administración Pública

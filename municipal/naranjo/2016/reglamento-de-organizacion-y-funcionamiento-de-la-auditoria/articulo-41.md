@@ -1,0 +1,4 @@
+CAPÍTULO V
+El presupuesto de la Autoría Interna
+Artículo 41 º Asignación de recursos. El jerarca de los entes y órganos sujetos a esta Ley deberá asignar los recursos humanos, materiales, tecnológicos, de transporte y otros necesarios y suficientes para que la Auditoría Interna pueda cumplir su gestión. De conformidad con lo prescrito en el artículo 27 de la Ley General de Control Interno. Para efectos presupuestarios, la Auditoría interna tendrá categoría programática; para la asignación y disposición de sus recursos, se velará porque se tome en cuenta el criterio del Auditor Interno y las instrucciones que emita al respecto la Contraloría General de la República.
+Cabrá responsabilidad administrativa contra el jerarca que injustificadamente no asigne los recursos a la Auditoría Interna en los términos plasmados en el artículo 27 de la Ley General de Control Interno.

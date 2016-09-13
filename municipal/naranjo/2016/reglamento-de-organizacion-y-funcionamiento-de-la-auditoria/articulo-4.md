@@ -1,0 +1,2 @@
+Artículo 4° Ámbito de acción. Está conformado por la institución a la cual pertenece y por los entes y órganos públicos y privados sujetos a la competencia institucional de la Auditoría interna, con fundamento en lo estipulado en el artículo 22, inciso a), de la LGCI.
+Asimismo, las dependencias que se encuentran dentro del ámbito de acción deberán observar, en lo que corresponda, lo regulado en el presente reglamento.

@@ -1,0 +1,1 @@
+Artículo 23º Competencias, deberes, potestades y prohibiciones. El auditor interno, sub-auditor y demás personal de la Auditoría Interna, deberán atender a las competencias, deberes, potestades y prohibiciones; que se encuentran establecidas en la Ley General de Control Interno.

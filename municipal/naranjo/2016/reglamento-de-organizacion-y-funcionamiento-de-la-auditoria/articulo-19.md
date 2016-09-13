@@ -1,0 +1,1 @@
+Artículo 19º Jornada laboral. La jornada laboral del Auditor y Subauditor Internos y demás personal de la Auditoría Interna, será de tiempo completo. Sin embargo, podrán ingresar y dejar las instalaciones de la Municipalidad en el momento que se considere necesario en el cumplimiento de sus funciones y competencias.

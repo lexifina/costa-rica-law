@@ -1,0 +1,2 @@
+Artículo 15º Participación en sesiones. La participación de Auditor Interno en sesiones o reuniones del Concejo Municipal no debe ser permanente, y si se requiere su participación en dichas sesiones o reuniones, su actuación ha de ser conforme a su competencia, según lo indicado en la Ley General de Control Interno, así como cualquier otra normativa y criterios establecidos tanto por la Contraloría General de la República como otras entidades relacionadas al
+respecto.

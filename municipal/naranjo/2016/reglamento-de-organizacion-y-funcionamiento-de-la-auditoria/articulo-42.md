@@ -1,0 +1,1 @@
+Artículo 42º Elaboración del presupuesto. La Auditoría Interna confeccionará su presupuesto anual en forma independiente, de acuerdo con los lineamientos y directrices que sobre la materia emita la CGR.

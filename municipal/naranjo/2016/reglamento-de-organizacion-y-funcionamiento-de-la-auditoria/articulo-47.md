@@ -1,0 +1,1 @@
+Artículo 47º Discrepancias. Cualquier discrepancia que se presente en cuanto a la interpretación y ejecución del presente reglamento, será resuelta por el Concejo Municipal, teniendo el criterio del Auditor Interno, previo a la toma de la decisión final.
