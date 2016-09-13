@@ -1,0 +1,1 @@
+Artículo 27. El permiso de uso que emita la Comisión será a título personal y de carácter intransferible, de manera que resulta absolutamente prohibido alquilar o trasladar por cualquier medio el derecho de uso.
