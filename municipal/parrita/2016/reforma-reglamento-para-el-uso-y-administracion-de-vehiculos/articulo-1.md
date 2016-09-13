@@ -1,0 +1,3 @@
+MUNICIPALIDAD DE PARRITA
+El Concejo Municipal mediante acuerdo N° 07, artículo tercero, informes, punto N° 02, asunto N° 03, sesión ordinaria N° 039-2015, celebrada el veintinueve de junio del dos mil quince, se acordó derogar el capítulo VI, artículos 31 y 32 del Reglamento para el uso y Administración de Vehículos y Maquinaria de la Municipalidad de Parrita él fue publicado en La Gaceta N° 178 del 17 de setiembre del 2013, esto por motivo que según la Ley de Transito se indica que las corporaciones Municipales no tienen vehículos de uso semi discrecional o discrecionales porque se contraviene la norma.
+Parrita, 18 de agosto del 2016
