@@ -1,3 +1,6 @@
-Artículo 40.—Uso de medios electrónicos. Para realizar los actos previstos en esta Ley, la administración y los particulares podrán utilizar cualquier medio electrónico que garantice la integridad del documento y la identidad del emisor. Estos actos tendrán la misma validez y eficacia jurídica que los realizados por medios físicos.
-En el Reglamento de esta Ley se definirán los actos susceptibles de transmitirse por medios electrónicos y sus formalidades.
-(Así reformado mediante el artículo 1° de la ley N° 8511 del 16 de mayo del 2006).
+Artículo 40.- Uso de medios digitales. Toda la actividad de contratación regulada en la presente ley, así como aquella que se regule bajo cualquier régimen especial, deberá realizarse por medio del Sistema digital unificado de compras públicas.
+Dicho sistema de gestión será único y centralizado y su administración estará a cargo del Poder Ejecutivo.
+El sistema deberá reproducir toda la información relativa a cada una de las etapas del procedimiento de compras.
+Asimismo, el Sistema digital unificado de compras públicas garantizará la total transparencia y publicidad de cada uno de los procedimientos, documentos e información relacionada con dichos procesos de compras, para lo cual el sistema debe reproducir la información en formatos digitales aptos para que el público pueda descargarlos, copiarlos, manipularlos y reproducirlos.
+Para realizar los actos previstos en esta ley, la administración y los particulares deberán ajustarse a las regulaciones de la Ley N.° 8454, Ley de Certificados, Firmas Digitales y Documentos Electrónicos, de 30 de agosto de 2005.
+(Así reformado por el artículo único de la ley N° 9395 del 31 de agosto de 2016, “Transparencia de las contrataciones administrativas”.)
