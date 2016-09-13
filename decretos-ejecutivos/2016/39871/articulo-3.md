@@ -1,0 +1,2 @@
+Artículo 3°. Se reforma el artículo 39 inciso d), iii) del Reglamento a la Ley Forestal, Decreto Ejecutivo N°25721-M1NAE del 17 de octubre de 1996, para que se lea de la siguiente manera:
+iii- Las Oficinas Regionales del Fondo Nacional de Financiamiento Forestal disponen de hasta sesenta días naturales para la valoración de las solicitudes de acuerdo a la matriz de calificación establecida en el decreto o resolución respectiva.

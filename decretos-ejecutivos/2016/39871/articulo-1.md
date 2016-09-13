@@ -1,0 +1,19 @@
+Nº39871-MINAE
+EL PRESIDENTE DE LA REPÚBLICA
+y
+EL MINISTRO DE AMBIENTE Y ENERGÍA
+En ejercicio de las facultades que les confieren los artículos 140, incisos 3) y 18) y 146 de la Constitución Política; el artículo 28 inciso 2.b) de la Ley General de la Administración Pública Nº 6227 del 2 de mayo de 1978, la Ley Forestal Nº 7575 del 13 de febrero de 1996.
+Considerando
+1 º- Que el Programa de Pago de Servicios Ambientales cuenta con más de dieciocho años de ejecución, con la participación del Fondo Nacional de Financiamiento Forestal (FONAFIFO), lo que se hace necesario ajustar algunos de sus procedimientos a los cambios y variantes surgidas en el tiempo; de manera tal, que se logre un esquema con procesos más ágiles, claros y dinámicos, que habrán de constituir el primer paso para un sistema digital, que brinde a los usuarios mayor claridad y simplicidad en los procesos que debe cumplir.
+2°- Que el Sistema Nacional de Áreas de Conservación es la entidad competente para establecer las prioridades de acuerdo con las Políticas Nacionales de Conservación de la Biodiversidad, mismas que fueron acogidas, situación por la que se ejecuta el Programa de Pago por Servicios Ambientales alineado con las citadas políticas.
+3°- Que con la presente reforma del Reglamento a la Ley Forestal N° 7575, el Programa de Pago por Servicios Ambientales será simplificado, debido a que no será necesario emitir un Decreto Ejecutivo que disponga las condiciones para aplicar el Programa de Pago por Servicios Ambientales, siendo que el Ministro de Ambiente y Energía como Rector del Sector Ambiente determinará, mediante Resolución Ministerial los montos a pagar y el presupuesto asignado para cada actividad.
+4°- Que es necesario realizar una serie de cambios que permitan delimitar ciertos conceptos como la definición de pequeños y medianos productores, términos indicados en la Ley N° 7575 pero que no se han definido, siendo especialmente importante para la aplicación del Programa de Pago por Servicios Ambientales. De igual forma es necesario plasmar otras disposiciones que fortalezcan el rol de las organizaciones de productores forestales, como por ejemplo la asignación de cuotas para el Pago por Servicios Ambientales, de forma tal que se vean beneficiados los pequeños productores, ello en virtud de las políticas de este gobierno para la atención de los grupos menos favorecidos.
+5°- Que es necesario establecer disposiciones para las Asociaciones de Desarrollo Indígenas que les permitan participar en el Programa de Pago por Servicios Ambientales respetando su visión cosmogónica. Considerando los antecedentes de cumplimiento, las 2 limitaciones legales que tienen sus tierras y el sistema de información con el que cuenta Fondo Nacional de Financiamiento Forestal y entre otros se pretende modificar, la gestión de sus proyectos de Pago por Servicios Ambientales.
+6°- Que la Dirección de Mejora Regulatoria y Reglamentación Técnica, del Ministerio de Economía Industria y Comercio, aprobó el presente Decreto mediante oficio DMRT-ARINF-093 -16.
+Por tanto,
+DECRETAN:
+"Reforma al Reglamento a la Ley Forestal, Decreto Ejecutivo N° 25721-
+MINAE del 17 de octubre de 1996"
+Artículo 1°. Se adiciona al artículo 2 del Reglamento a la Ley Forestal, Decreto Ejecutivo N°25721-MINAE del 17 de octubre de 1996, dos nuevas definiciones mediante los incisos y) y z), cuyo texto dirá lo siguiente:
+"y) Pequeño productor forestal: dueños de fincas que desarrollan proyectos anuales de protección de bosque, manejo de bosque, reforestación o regeneración, menores o iguales a 50 hectáreas, o con proyectos en sistemas agroforestales menores o iguales a 5.000 árboles.
+z) Mediano productor forestal: dueños de fincas que desarrollan proyectos anuales de protección de bosque, manejo de bosque, reforestación o regeneración, mayores a 50 hectáreas y menores o iguales a 300 hectáreas, o con proyectos en sistemas agroforestales menores o iguales a 10.000 árboles".
