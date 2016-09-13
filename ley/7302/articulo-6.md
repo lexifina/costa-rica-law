@@ -1,10 +1,2 @@
-ARTICULO 6.- En el momento en que el funcionario se acoja a la
-jubilación o pensión, ésta no podrá exceder el monto máximo de cuatro
-veces el salario promedio base de los puestos protegidos por el Servicio
-Civil. Este salario promedio será determinado en forma mensual por la
-Dirección General del Servicio Civil, la cual deberá reportarlo también
-mensualmente al Departamento Nacional de Pensiones del Ministerio de
-Trabajo y Seguridad Social. Para su cálculo, la Dirección deberá
-considerar el total de puestos ocupados y el gasto mensual en sueldos
-cubiertos por el Servicio Civil, para cargos fijos de la Administración
-Pública.
+Artículo 6.- La prestación económica a otorgar, al momento de la declaración de la jubilación o pensión de los regímenes contributivos regulados en la presente ley, no podrá exceder el monto máximo que genere la suma resultante de diez veces el salario base más bajo pagado en la Administración Pública, según la escala de sueldos de la Administración Pública emitida por la Dirección General de Servicio Civil.
+(Así reformado por el artículo 2° de la ley N° 9388 del 10 de agosto de 2016, “Reforma normativa de los Regímenes Especiales de Pensiones con cargo al presupuesto para contener el gasto de pensiones”)
