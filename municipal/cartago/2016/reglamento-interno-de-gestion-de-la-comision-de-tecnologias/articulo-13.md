@@ -1,0 +1,2 @@
+Artículo 13.- Normativas de aplicación supletoria
+En lo no regulado expresamente por las disposiciones del presente reglamento, se aplicará supletoriamente lo dispuesto en la Ley General de la Administración Pública en materia de órganos colegiados, entre otra normativa.
