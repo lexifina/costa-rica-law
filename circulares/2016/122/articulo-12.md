@@ -1,0 +1,5 @@
+Artículo 12.- Tipos de bases de datos.
+La institución contará con las siguientes bases de datos:
+a) Base de Datos de acceso restringido: Contendrá toda la información en forma íntegra, sin ningún tratamiento de despersonalización y será conservada por la oficina correspondiente para su consulta interna, mediante los procedimientos y sistemas informáticos creados para tal fin.
+b) Base de Datos Pública: En cuanto a la información que deberá ser publicada en Internet o de acceso a terceras personas, se mantendrá una base de datos “pública”, que contendrá la información despersonalizada conforme a este reglamento y normativa relacionada.
+Las actas, circulares, avisos o documentos judiciales, que sean publicados, deberán coincidir con la versión existente en la Base única de Circulares, Actas, Avisos y documentos Judiciales (BUCADOJUD), siendo éste el archivo oficial, del cual los sistemas de información públicos existentes, como el Sistema Costarricense de Información Jurídica -SCIJ-, los sistemas propios de cada oficina y el portal del Poder Judicial entre otros, podrán obtener el documento para proceder a su publicación.

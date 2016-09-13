@@ -1,0 +1,2 @@
+Artículo 2.- Ámbito de aplicación.
+El Protocolo de despersonalización de datos para las oficinas administrativas del Poder Judicial deberá ser aplicado en actas, circulares y avisos de la Corte Plena, el Consejo Superior; así como las restantes oficinas del Ámbito Administrativo. Será aplicable también a toda información con datos sensibles que emitan dichos órganos y que deba ser difundida, publicada o puesta a disposición de terceras personas que no forman parte del proceso interno institucional.
