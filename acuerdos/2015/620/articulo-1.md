@@ -1520,12 +1520,15 @@ Sábado | 19/11/2016 | 1673 | LOTTO
 Miércoles | 23/11/2016 | 1674 | LOTTO
 Sábado | 26/11/2016 | 1675 | LOTTO
 Miércoles | 30/11/2016 | 1676 | LOTTO
-DICIEMBRE
-DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA
+Diciembre
+Día | Fecha | Nº de sorteo | Tipo de lotería
 Sábado | 03/12/2016 | 1677 | LOTTO
 Miércoles | 07/12/2016 | 1678 | LOTTO
 Sábado | 10/12/2016 | 1679 | LOTTO
 Miércoles | 14/12/2016 | 1680 | LOTTO
 Sábado | 17/12/2016 | 1681 | LOTTO
 Miércoles | 21/12/2016 | 1682 | LOTTO
-Miércoles | 28/12/2016 | 1683 | LOTTO
+Sábado | 24/12/2016 | 1683 | LOTTO
+Miércoles | 28/12/2016 | 1684 | LOTTO
+Sábado | 31/12/2016 | 1685 | LOTTO
+(Así reformada la tabla anterior por acuerdo N° 942 del 14 de setiembre de 2016)
