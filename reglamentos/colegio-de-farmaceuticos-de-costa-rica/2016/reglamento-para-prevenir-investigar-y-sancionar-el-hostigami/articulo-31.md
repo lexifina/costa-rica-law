@@ -1,0 +1,2 @@
+Artículo 31.- Sanciones para quienes no den trámite a las denuncias
+Incurrirá en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, de acuerdo con el artículo 81 del Código de Trabajo y las disposiciones pertinentes del Reglamento interno de trabajo del Colegio de Farmacéuticos de Costa Rica, aquel funcionario que, conociendo de una denuncia por hostigamiento sexual, en su condición de Órgano Instructor, no le dé el trámite previsto en esta normativa.

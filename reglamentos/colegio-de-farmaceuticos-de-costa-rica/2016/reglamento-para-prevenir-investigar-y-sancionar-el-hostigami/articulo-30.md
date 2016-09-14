@@ -1,0 +1,2 @@
+Artículo 30.- Sanciones para quienes entorpezcan o atrasen injustificadamente la investigación
+Incurrirá en falta de naturaleza laboral, que dará mérito para la aplicación del régimen disciplinario, según el artículo 81 del Código de Trabajo y las disposiciones pertinentes del Reglamento interno de trabajo del Colegio de Farmacéuticos de Costa Rica, aquel funcionario que entorpezca o atrase, injustificadamente, la investigación, al negarse a declarar o a brindar información sobre los hechos investigados.

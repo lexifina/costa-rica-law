@@ -1,0 +1,8 @@
+Artículo 2.- Definiciones
+1) Hostigamiento sexual: por acoso u hostigamiento sexual se entiende toda conducta sexual escrita, verbal, no verbal o física, indeseable para quien la recibe, reiterada o aislada, que provoca una interferencia sustancial en el desempeño del trabajo de una persona o crea un ambiente de trabajo intimidante, hostil u ofensivo.
+2) Víctima: es la persona que sufre el hostigamiento. Para efectos de este reglamento, incluye a los colaboradores, a los integrantes de las comisiones, de los distintos órganos del Colegio, de la Junta Directiva y del Tribunal de Honor, así como a las personas usuarias de los servicios y al personal de contratación externa al servicio del Colegio de Farmacéuticos de Costa Rica.
+3) Denunciado/a: es la persona funcionaria a la que se le atribuye una presunta conducta constitutiva de hostigamiento sexual.
+4) Comisión Investigadora: estará conformada por el jefe del Departamento de Recursos Humanos, un abogado del Departamento Jurídico y el director ejecutivo, quienes serán los encargados de efectuar el procedimiento para investigar las denuncias.
+5) Órgano Instructor:
+a) En primer término, la Comisión Investigadora será la encargada de recibir las denuncias por hostigamiento sexual y tramitarlas de acuerdo con lo indicado en el presente reglamento, además de presentar un informe con la debida recomendación ante la Junta Directiva, en el cual indique si la falta amerita una sanción disciplinaria.
+b) Cuando la denuncia sea en contra de alguno de los miembros de la Comisión Investigadora, se deberá presentar ante el fiscal general, quien deberá tramitarla.

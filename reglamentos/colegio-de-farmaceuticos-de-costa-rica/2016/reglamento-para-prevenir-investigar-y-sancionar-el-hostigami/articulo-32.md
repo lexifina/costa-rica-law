@@ -1,0 +1,2 @@
+Artículo 32.- Sanciones para quienes denuncien sin fundamento
+Incurrirá en falta de naturaleza laboral, que dará mérito para aplicación del régimen disciplinario, con base en el artículo 81 del Código de Trabajo y las disposiciones pertinentes del Reglamento interno de trabajo del Colegio de Farmacéuticos de Costa Rica, sin perjuicio de otras acciones que personalmente intente el propio denunciado, el funcionario que haya denunciado o que haya ratificado una denuncia interpuesta por un compañero o por un superior, cuya falsedad se compruebe en forma evidente y manifiesta.

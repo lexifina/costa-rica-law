@@ -1,0 +1,3 @@
+Artículo 12.- Procedimiento para sustituir al Órgano Instructor
+Al concurrir alguna de las causas de impedimento, recusación o excusa, enumeradas en la normativa vigente, la suplencia se tramitará de la siguiente manera:
+Cuando, por impedimento. recusación, excusa u otro motivo, un colaborador deba separarse del conocimiento de un asunto determinado, su ausencia será suplida del modo siguiente: al sujeto encargado de la instrucción lo suplirá otro funcionario del mismo rango; si este, a su vez, tampoco pudiera conocer del procedimiento, será sustituido por el secretario de la Junta Directiva; y si este último tampoco pudiera, la Junta Directiva nombrará a la persona competente para que conozca del proceso.

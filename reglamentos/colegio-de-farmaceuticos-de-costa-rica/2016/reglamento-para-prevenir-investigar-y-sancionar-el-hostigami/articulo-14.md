@@ -1,0 +1,3 @@
+Artículo 14.- Deber de denunciar
+Todo colaborador del Colegio de Farmacéuticos de Costa Rica, persona usuaria de los servicios, personal de contratación externa al servicio del Colegio o cualquier integrante de las diferentes comisiones, de los distintos órganos del Colegio, de la Junta Directiva y del Tribunal de Honor, que tenga conocimiento de una situación de hostigamiento sexual, en cualquiera de sus manifestaciones, está en la obligación de denunciar al hostigador ante el órgano correspondiente, aun en contra de la voluntad de la presunta víctima.
+En estos casos, la investigación únicamente se iniciará en el momento en que la presunta víctima ratifique la denuncia; en caso contrario, se desestimará, salvo que el acoso sexual resulte público y notorio.

@@ -1,0 +1,5 @@
+Artículo 9.- Ámbito de cobertura del procedimiento para investigar las denuncias
+El siguiente procedimiento regirá para todos los colaboradores del Colegio de Farmacéuticos de Costa Rica.
+En el caso de los farmacéuticos incorporados al Colegio que sean integrantes de las diferentes comisiones, de los distintos órganos, de la Junta Directiva, del Tribunal de Honor y del Tribunal Electoral y de cualquier otro farmacéutico que incurra en hostigamiento sexual, se seguirá el procedimiento establecido en el Reglamento de procedimientos a seguir en casos de denuncias o trámite de oficio en contra de miembros, publicado en La Gaceta n. º 72, del 17 de abril de 1991,
+en cumplimiento de lo señalado en el artículo 11 de la Ley contra Hostigamiento o Acoso Sexual en el Empleo y la Docencia.
+Cuando la persona que incurra en hostigamiento sexual sea usuaria de los servicios o personal de contratación externa al servicio del Colegio de Farmacéuticos de Costa Rica, la víctima deberá interponer la denuncia en la instancia correspondiente. El Colegio podrá asesorar a la víctima con respecto al procedimiento por seguir y la instancia a la cual deberá recurrir.

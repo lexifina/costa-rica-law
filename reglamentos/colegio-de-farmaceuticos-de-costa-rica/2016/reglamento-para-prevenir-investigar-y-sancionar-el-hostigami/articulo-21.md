@@ -1,0 +1,2 @@
+Artículo 21.- Audiencia sobre la contestación de la denuncia
+Contestada la denuncia en tiempo y forma, el Órgano Instructor dará audiencia al denunciante por un término de tres días laborales para referirse a ella y a las pruebas ofrecidas. Después de cumplir esa audiencia, procederá a resolver, o bien, a reservar para que sean resueltas por la Junta Directiva las excepciones previas e interpuestas por las partes.
