@@ -5,3 +5,6 @@ articulo-4.md
 articulo-5.md
 articulo-6.md
 articulo-1-anexo.md
+articulo-2-anexo.md
+articulo-3-anexo.md
+articulo-4-anexo.md

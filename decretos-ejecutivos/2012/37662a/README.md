@@ -14,3 +14,4 @@ Procedimiento para la demostración de la evaluación de la conformidad de los R
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-04-26 | la propia norma |
+| 2 | 2016-09-14 | Decreto Ejecutivo 40077 (2016-09-14) |
