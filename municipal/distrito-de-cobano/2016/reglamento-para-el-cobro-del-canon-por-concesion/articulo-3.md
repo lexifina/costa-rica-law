@@ -1,0 +1,1 @@
+Artículo 3. La periodicidad del cobro del canon por concesión en Zona Marítimo Terrestre será trimestral de conformidad con el artículo 51 bis del Reglamento de la Ley sobre la Zona Marítimo Terrestre.
