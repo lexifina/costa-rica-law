@@ -1,0 +1,8 @@
+Artículo 9. Componentes para el cálculo de pérdidas esperadas
+Las metodologías deben contemplar desarrollos para los componentes del cálculo de las pérdidas esperadas, genéricas y específicas.
+En congruencia con las prácticas internacionales, para el cálculo de las pérdidas esperadas se deben tomar en consideración, al menos, los siguientes componentes:
+a) Probabilidad de incumplimiento: probabilidad de que en un lapso de doce (12) meses el deudor incurra en incumplimiento. La metodología que adopte la entidad debe establecer los criterios bajo los cuales se determinará el estado de incumplimiento del deudor. Entre estos criterios deberá considerar, al menos, el evento en el cual una operación de crédito se encuentre con morosidad mayor o igual a determinado umbral máximo.
+b) Exposición en caso de incumplimiento: pérdida a que está expuesta la entidad en el evento de incumplimiento del deudor. El monto de la exposición de los créditos contingentes puede calcularse según se indica en el Anexo 3 de este Reglamento. Sin embargo, aquellas entidades que dispongan de información histórica podrán utilizarla para calcular los factores de equivalencia de riesgo de crédito de los créditos contingentes.
+c) Severidad de pérdida en caso de incumplimiento: pérdida en que incurriría la entidad en caso de que se materialice el evento de incumplimiento indicado en el inciso a) anterior. La metodología que adopte la entidad debe tomar en cuenta, al menos, los siguientes parámetros para su cuantificación:
+i. Debe calcularse en función de las recuperaciones que se han realizado en efectivo, sobre el conjunto de créditos incumplidos.
+ii. Debe considerar como mínimo los créditos incumplidos durante los últimos tres (3) años.

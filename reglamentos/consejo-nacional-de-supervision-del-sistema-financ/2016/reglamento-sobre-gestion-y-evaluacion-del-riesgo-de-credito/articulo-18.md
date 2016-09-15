@@ -1,0 +1,3 @@
+Artículo 18. Publicación de información de operaciones activas del SBD
+La SUGEF publicará mensualmente en su página web información agregada del SBD con la finalidad de medir su evolución y comportamiento, elaborada en coordinación con la Secretaría Técnica del Consejo Rector, respecto a las operaciones que hayan efectuado los intermediarios financieros bajo el amparo del SBD. Esta publicación deberá efectuarse a más tardar, el último día hábil del mes siguiente.
+Dicha información estará referida al monto y saldo de operaciones tramitadas con recursos del SBD, actividades financiadas, planes o programas autorizados, morosidad; monto de avales emitidos por el FINADE sobre créditos vigentes y su estado de atención, entre otros.

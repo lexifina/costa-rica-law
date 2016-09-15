@@ -1,0 +1,4 @@
+Transitorio II.
+A más tardar a la fecha de entrada en vigencia de este Reglamento, la SUGEF pondrá a disposición de los operadores del SBD la información crediticia de los deudores del SBD a que se refiere el artículo 17 de este Reglamento, incluyendo el indicador de “Comportamiento de pago histórico en el SBD” (CPH-SBD).
+La información crediticia de los deudores será únicamente sobre sus operaciones de crédito en el marco de la Ley 9274, con entidades supervisadas por SUGEF.
+La información crediticia de los clientes, sobre sus operaciones de crédito en el marco de la Ley 9274, mantenida en operadores no supervisados por la SUGEF, será incluida gradualmente, conforme sea recopilada de manera estructurada y sistemática por parte del Consejo Rector del Sistema de Banca de Desarrollo, y remitida por éste a la SUGEF en la forma, plazos, periodicidad y medios tecnológicos que se dispongan.
