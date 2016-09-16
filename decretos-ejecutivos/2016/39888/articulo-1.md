@@ -16,5 +16,13 @@ VI. - Que en lo correspondiente se han seguido los procedimientos de Ley.
 Por tanto;
 DECRETAN:
 Autorización para la importación de frijol por desabastecimiento en el mercado nacional.
-Artículo 1.- Se autoriza la importación de nueve mil cuatrocientas treinta y dos toneladas métricas con cuatrocientos sesenta kilogramos de frijol (9.432,46 TM), con una tarifa de cero por ciento (0%) de Derechos Arancelarios a la lmpo1tación, para los siguientes incisos arancelarios contemplados en el Arancel Centroamericano de Importación:
-[imagen]
+Artículo 1.-Se autoriza la importación de nueve mil cuatrocientas treinta y dos toneladas métricas con cuatrocientos sesenta kilogramos de frijol (9.432.46 TM), con una tarifa de cero por ciento (0%) de Derechos Arancelarios a la Importación, para los siguientes incisos arancelarios, contemplado en el Arancel Centroamericano de Importación:
+SAC | Descripción | DAI
+0713.3 | -Frijoles (judías, porotos, alubias, fréjoles)(Vigna spp, Phanseolus spp): |
+0713.33 | -- Comunes (Phaseolus vulgaris): |
+0713.33.10.00 | --- Negros |
+0713.33.10.00.1 | ---- A granel |
+0713.33.10.00.19 | ----- Los demás | 0%
+0713.33.40.00 | --- Rojos |
+0713.33.40.00.10 | ----- A granel | 0%
+(Así reformado por el artículo 5° del decreto ejecutivo N° 39961 del 16 de setiembre de 2016)
