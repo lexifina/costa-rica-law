@@ -14,3 +14,4 @@ Autorización para la importación de maíz blanco por desabastecimiento en el m
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-09 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
