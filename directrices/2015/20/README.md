@@ -14,3 +14,4 @@ Establece símbolo de sanidad del Servicio Nacional de Salud Animal para los est
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-17 | la propia norma |
+| 2 | 2016-09-16 | Resolución 62 (2016-09-16) |
