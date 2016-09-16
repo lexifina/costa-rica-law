@@ -1,0 +1,2 @@
+Artículo 6°— Refórmese el artículo 21 del Decreto Ejecutivo N° 36999-MAG, para que en adelante se lea así:
+"Articulo 21.-Del marchamado de las unidades de transportación. El SFE podrá marchamar las unidades de transportación en frontera en forma aleatoria, o considerando el tipo de producto, como medida de trazabilidad. El levantamiento o apertura del marchamo lo harán funcionarios del SFE con levantamiento de un acta."
