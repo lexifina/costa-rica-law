@@ -14,3 +14,4 @@ Reforma decreto ejecutivo N° 35701 "Incremento Arancel Importación para filete
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-01-01 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
