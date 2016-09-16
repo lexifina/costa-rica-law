@@ -1,0 +1,7 @@
+Artículo 2º— Objetivos Específicos: Este Programa tiene los siguientes objetivos específicos:
+a). Estimular las habilidades de pensamiento científico como parte de la cultura general de la ciudadanía y con ello el interés por los procesos educativos vinculados a la ciencia y la tecnología de las y los estudiantes.
+b). Facilitar, en coordinación con el Instituto de Desarrollo Profesional Uladislao Gámez Solano (IDPUGS) del Ministerio de Educación Pública; espacios de formación continua al personal docente en los procesos de elaboración de proyectos de investigación y en la organización de ferias científicas y tecnológicas como un proceso articulado a la mediación pedagógica y las reformas educativas establecidas en el currículo nacional.
+c). Promover que el personal docente a través de la mediación pedagógica y demás procesos formativos cotidianos, motiven al estudiantado para que participen en las ferias de ciencia y tecnología.
+d). Divulgar los conocimientos científicos y tecnológicos, producto de los proyectos e investigaciones realizadas para las ferias.
+e). Aprovechar los resultados de las investigaciones y experiencias de las y los estudiantes en las aulas mediante la elaboración de material didáctico apropiado.
+f). Propiciar el uso racional y sostenible de los recursos utilizados en la organización y ejecución de las Ferias de Ciencia y Tecnología, así como, durante la elaboración de los proyectos, velando por el reciclaje o reutilización de los materiales.
