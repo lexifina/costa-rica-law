@@ -14,3 +14,4 @@ Criterio Vinculante de Clasificación Arancelaria para la mercancía identificad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-17 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
