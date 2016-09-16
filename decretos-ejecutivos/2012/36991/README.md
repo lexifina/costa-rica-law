@@ -14,3 +14,4 @@ Publica Resolución N° 274-2011 (COMIECO-LXI) de 02/12/2011 y su Anexo: Adecuac
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-02-02 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
