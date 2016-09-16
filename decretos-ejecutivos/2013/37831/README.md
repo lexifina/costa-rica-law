@@ -14,3 +14,4 @@ Autorización para la importación de frijol por desabastecimiento en el mercado
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-07-01 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
