@@ -14,3 +14,4 @@ Autoriza importación de maíz blanco por desabastecimiento en el mercado nacion
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-06 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39961 (2016-09-16) |

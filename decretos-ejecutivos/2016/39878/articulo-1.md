@@ -16,5 +16,10 @@ Por tanto;
 DECRETAN:
 Autorización para la importación de maíz blanco por desabastecimiento en el mercado
 nacional
-Artículo 1.- Se autoriza la importación de quince mil cuatrocientas cuarenta y cuatro toneladas métricas de maíz blanco ( 15.444 TM), con una tarifa de cero por ciento (0%) de Derechos Arancelarios a la Importación, para los siguientes incisos arancelarios contemplados en el Arancel Centroamericano de Importación:
-[imagen]
+Artículo 1.-Se autoriza la importación de quince mil cuatrocientos cuarenta y cuatro toneladas métricas de maíz blanco (15.444 TM), con una tarifa de cero por ciento (0%) de Derechos Arancelarios a la Importación, para los siguientes incisos arancelarios contemplados en el Arancel Centroamericano de Importación:
+CODIGO | DESCRIPIÓN | DAI %
+1005 | MAIZ |
+1005.90 | -Los demás: |
+1005.90.30 | --Maíz blanco |
+1005.90.30.00.90 | --Los demás | 0%
+(Así reformado por el artículo 4° del decreto ejecutivo del 39961 del 16 de setiembre de 2016)
