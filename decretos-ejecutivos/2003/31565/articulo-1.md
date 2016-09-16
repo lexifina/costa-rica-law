@@ -50,3 +50,23 @@ Código | Descripción | DAI
 85291000 | Antenas y reflectores de antenas de cualquier tipo; partes apropiadas para su utilización con dichos artículos. | 0
 85366900 | Las demás | 2
 85444900 | Los demás | 2
+(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 39960 del 16 de setiembre del 2016 “Publica Resolución N° 372-2015 (COMIECO-LXXIV) del 4 de diciembre de 2015 y su anexo: Modificación al Arancel Centroamericano de Importación, que amplía los Códigos arancelarios a diez dígitos e incorpora al SAC los resultados de las 6a Enmienda”, se reforman algunos incisos arancelarios, al no estar clara la reforma la misma se transcribe a continuación:
+CÓDIGO | DESCRIPCIÓN | DAI %
+12.02 | CACAHUATES (CACAHUATES, MANIES) SIN TOSTAR NI COCER DE OTRO MODO, INCLUSO SIN CÁSCARA O QUEBRANTADO |
+1202.4 | -Los demás |
+1202.41.00.00 | -- Con cáscara | 0
+1202.42.00.00 | -- Sin cáscara, incluso quebrantados | 0
+1203.00.00.00 | COPRA | 0
+12.07 | LAS DEMÁS SEMILLAS Y FRUTOS OLEAGINOSOS, INCLUSO QUEBRANTADOS |
+1207.10 | -Nueces y almendras de palma: |
+1207.10.90.00 | -- Otras | 0
+12.12 | ALGARROBAS, ALGAS, REMOLACHA AZUCARERA Y CAÑA DE AZUCAR, FRESCAS, REFRIGERADAS, CONGELADAS O SECAS, INCLUSO PULVERIZADAS, HUESOS (CAROZOS) Y ALMENDRAS DE FRUTOS Y DEMÁS PRODUCTOS VEGETALES (INCLUIDAS LAS RAICES DE ACHICORIA SON TOSTAR DE LA VARIEDAD CICHORIUM INTYBUS SATIVUM) EMPLEADOS PRINCIPALMENTE EN LA ALIMENTACIÓN HUMANA, NO EXPRESADOS NO COMPRENDIDOS EN OTRA PARTE |
+1212.9 | -Los demás: |
+1212.93.00.00 | -- Caña de azúcar | 0
+)
+(Nota de Sinalevi: Mediante el artículo 6 del decreto ejecutivo N° 39960 del 16 de setiembre del 2016 “Publica Resolución N° 372-2015 (COMIECO-LXXIV) del 4 de diciembre de 2015 y su anexo: Modificación al Arancel Centroamericano de Importación, que amplía los Códigos arancelarios a diez dígitos e incorpora al SAC los resultados de las 6a Enmienda”, se estableció lo siguiente: De conformidad con el numeral 2 de la parte dispositiva de la Resolución N° 372-2015 (COMIECO-LXXIV) de fecha 04 de diciembre de 2015; Costa Rica aplica un arancel de 0% a los incisos arancelarios contenidos en el Decreto Ejecutivo N° 31565-COMEX de fecha 01 de diciembre de 2003, publicado en el Alcance N° 63-A al Diario Oficial La Gaceta N° 245 del 19 de diciembre de 2003.”)
+(Nota de Sinalevi: Mediante el numeral 5 de la resolución N° 450-2021 (COMIECO-EX) de 12/07/2021 y su anexo 1: Sistema Arancelario centroamericano-SAC-y su anexo 2: Panamá ambos relativos a las modificaciones al Arancel Centroamericano de Importación, que incorpora los resultados de la séptima enmienda, aprobada mediante decreto ejecutivo N° 43258 del 16 de setiembre de 2021, se acordó modificar algunos incisos arancelarios de este numeral. De conformidad con el numeral 10 del decreto ejecutivo antes mencionado dicha afectación entrará a regir a partir del 1° de enero del 2022, por lo que a partir de esa fecha los nuevos incisos arancelarios se leerán de la siguiente forma:
+CODIGO | DESCRIPCION | DAI %
+12.07 | LAS DEMÁS SEMILLAS Y FRUTOS OLEAGINOSOS, INCLUSO QUEBRANTADOS |
+1207.10 | - Nueces y almendras de palma (palmiste): |
+1207.10.90.00 | - - Otras | 0”)
