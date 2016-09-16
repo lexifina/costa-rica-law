@@ -14,3 +14,4 @@ Publica Resolución N° 183-2006 (COMIECO XL) Aprueba modificaciones a los Derec
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-03-02 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
