@@ -12,9 +12,9 @@ IV.—Que las importaciones de filetes congelados de pescado pangassus (Pangasyu
 Decretan:
 INCREMENTO DEL ARANCEL DE IMPORTACIÓN PARA LOS
 FILETES DE PANGASSUS (PANGASYUS SPP) CONGELADOS
-Artículo 1º—Modificar los derechos arancelarios a la importación aplicados al inciso que se detalla a continuación, contemplado en el Arancel Centroamericano de Importación:
+Artículo 1.- Modificar los derechos arancelarios a la importación aplicados al inciso que se detalla a continuación, contemplado en el Arancel Centroamericano de Importación:
 CODIGO | DESCRIPCION | DAI %
-03.06 | FILETES Y DEMAS CARNE DE PESCADO (INCLUSO PICADA), FRESCOS, REFRIGERADOS O CONGELADOS |
-0304.6 | - Filetes congelados de tilapias (Oreochromis spp.), bagres o pez gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.), carpas (Cyprinus carpio, Carassius carassius, Ctenopharyngodon idellus, Hypophthalmichthys spp., Cirrhinus spp., Mylopharyngodon piceus), anguilas (Anguilla spp.), percas del Nilo (Lates niloticus) y de peces cabeza de serpiente (Channa spp.): |
-0304.62.00 | - - Bagres o pez gato (Pangasius spp., Silurus spp., Clarias spp., Ictalurus spp.) | 45
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36845 del 4 de octubre del 2011)
+03.04 | FILETES Y DEMÁS CARNE DE PESCADO (INCLUSO PICADA), FRESCOS, REFRIGERADOS O CONGELADOS |
+0304.6 | -Filetes congelados de tilapias (Oreochromis spp), bagres o peces gato (Pangasius spp, Silurus spp, clarias spp, Ictalurus spp), carpas (Cyprinus spp, Carassius sp, Ctenopharyngodos, idellus, Hypophthalmichthys spp, Cirrhinus spp. ; Mylopharyngodon piceus, Catla catla Labeo spp, Osteochilus hasselti, Leptobarbus hoeveni, Megalobrama spp), anguilas (Anguilla spp), percas del Nilo (Lates nolocitus) y de peces cabeza de serpiente (Channa spp) |
+0304.62.00.00 | --Bagres o peces gato (Pangasius spp, Silurus spp, Clarias spp, Ictalurus spp.) | 45
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39961 del 16 de setiembre de 2016)
