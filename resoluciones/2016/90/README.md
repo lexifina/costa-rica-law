@@ -14,3 +14,4 @@ Criterio vinculante de clasificación arancelaria para la mercancía "Cilindro d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-27 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
