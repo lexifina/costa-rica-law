@@ -14,3 +14,4 @@ Pone en vigencia la Resolución Nº 196-2007 (COMIECOXLIV) Aprueba modificacione
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-05-31 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
