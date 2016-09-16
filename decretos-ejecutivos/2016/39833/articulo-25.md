@@ -1,0 +1,8 @@
+Artículo 25°. Funciones del Presidente del COVIRENA. Los miembros del COVIRENA elegirán entre sus miembros a un integrante que fungirá como Presidente, quien tendrá las siguientes funciones:
+a. Representación del Comité ante el Encargado de Prevención, Protección y Control del Área de Conservación o el representante del Departamento de Prevención, Protección y Control de la Secretaría Ejecutiva del SINAC.
+b. Reunirse al menos una vez al mes con el Encargado de Prevención, Protección y Control del Área de Conservación o el representante del Departamento de Prevención, Protección y Control de la Secretaría Ejecutiva del SINAC.
+c. Coordinar acciones con los miembros del Comité.
+d. Dar seguimiento al plan de trabajo elaborado conjuntamente con el Área de Conservación o el Departamento de Prevención, Protección y Control de la Secretaría Ejecutiva del SINAC, según sus necesidades y capacidad operativa.
+e. Mantener informado al Encargado de Prevención, Protección y Control de la respectiva Área de Conservación o al representante del Departamento de Prevención, Protección y Control de la Secretaría Ejecutiva del SINAC sobre el trabajo realizado.
+f. Informar al Encargado de Prevención, Protección y Control del Área de Conservación o al representante del Departamento de Prevención, Protección y Control de la Secretaría Ejecutiva del SINAC, en forma inmediata cualquier anomalía o conducta irregular de cualquiera de los miembros COVIRENA, que violente la normativa que lo regula y comprometa la función u objetivos del grupo.
+g. Propiciar y facilitar la participación equitativa de todos los miembros del COVIRENA, en las actividades que se realicen.

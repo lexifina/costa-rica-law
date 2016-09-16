@@ -1,0 +1,1 @@
+Artículo 30°. Derogatorias. Se deroga el Decreto Ejecutivo número 26923-MINAE, del 1 de abril de 1998, publicado en la Gaceta 99 del 25 de mayo de 1998, y el artículo 19 del Reglamento a la Ley de Conservación de Vida Silvestre, Decreto Ejecutivo No. 32633-MINAE, de fecha 10 de marzo de 2005.

@@ -1,0 +1,1 @@
+Transitorio II. En el plazo de un año a partir de la publicación del presente Decreto, el SINAC, deberá elaborar los lineamientos, para la selección del Inspector Ambiental Ad honorem, que cada Área de Conservación deberá declarar como "Ciudadano Distinguido en la Protección al Ambiente".

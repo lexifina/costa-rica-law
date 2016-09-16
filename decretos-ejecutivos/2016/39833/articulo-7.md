@@ -1,0 +1,1 @@
+Artículo 7°. Aptitudes de los inspectores ambientales ad honorem. Los inspectores ambientales ad honorem deben ser mayores de edad, con facultades mentales y buena conducta para cumplir con las funciones que le han sido encomendadas.

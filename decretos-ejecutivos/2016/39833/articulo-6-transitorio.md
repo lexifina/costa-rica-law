@@ -1,0 +1,1 @@
+Transitorio VI. En un plazo de seis meses a partir de esta publicación, el MINAE deberá contar con el registro digital de inspectores ambientales ad honorem y COVIRENA. Este sistema deberá brindar acceso como mínimo al Contralor Ambiental, el Departamento de Protección y Control de la Secretaría Ejecutiva del SlNAC y las Áreas de Conservación.

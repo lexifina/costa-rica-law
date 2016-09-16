@@ -1,0 +1,1 @@
+Transitorio V. El Departamento de Protección y Control de la Secretaría Ejecutiva del SINAC deberá oficializar el procedimiento para la evaluación anual de la gestión de Control y Protección con los COVIRENA, en el plazo de un año a partir de esta publicación.

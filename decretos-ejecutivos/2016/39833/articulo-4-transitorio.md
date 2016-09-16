@@ -1,0 +1,1 @@
+Transitorio IV. Los COVIRENA conformados al amparo de la anterior regulación, se mantendrán constituidos ante el Área de Conservación respectiva. Sin embargo, deberán actualizar su información al amparo de lo contenido en el Capítulo II del presente decreto dentro de los seis meses posteriores a su publicación.

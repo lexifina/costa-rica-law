@@ -1,0 +1,3 @@
+Capítulo VI. Disposiciones finales
+Artículo 29°. De los reconocimientos. El SINAC otorgará un reconocimiento a los Inspectores Ambientales Ad honorem que hayan realizado acciones notorias por la conservación del ambiente y la protección de los recursos naturales.
+Cada año, con base en un análisis de los informes de los COVIRENA, presentados a las Áreas de Conservación, será seleccionado un Inspector Ambiental Ad honorem por Área de Conservación, para otorgarle el reconocimiento de "Ciudadano Distinguido en la Protección del Ambiente", según los lineamientos que para tal efecto elabore la Secretaría del SINAC y se entregará en una actividad pública del Área de Conservación.

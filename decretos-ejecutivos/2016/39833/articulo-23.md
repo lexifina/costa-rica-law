@@ -1,0 +1,1 @@
+Artículo 23°. Una vez que la resolución esté en firme, la misma se comunicará al Contralor Ambiental, quien incluirá la información correspondiente en el registro de inspectores ambientales ad honorem y COVIRENA.
