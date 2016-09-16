@@ -15,3 +15,4 @@ Modifica Derechos Arancelarios a la Importación contemplados en el Arancel Cent
 | --- | --- | --- |
 | 1 | 2011-02-02 | la propia norma |
 | 2 | 2011-10-04 | Decreto Ejecutivo 36845 (2011-10-04) |
+| 3 | 2016-09-16 | Decreto Ejecutivo 39961 (2016-09-16) |
