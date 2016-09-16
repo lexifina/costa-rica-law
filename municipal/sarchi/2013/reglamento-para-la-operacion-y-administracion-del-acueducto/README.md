@@ -14,3 +14,4 @@ Reglamento para la Operación y Administración del Acueducto de la Municipalida
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-06-18 | la propia norma |
+| 2 | 2016-09-16 | Reglamento municipal 0 (2016-09-16) |
