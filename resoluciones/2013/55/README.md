@@ -14,3 +14,4 @@ Emite a efectos aclaratorios Criterio de Clasificación Arancelaria para las mer
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-06-21 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
