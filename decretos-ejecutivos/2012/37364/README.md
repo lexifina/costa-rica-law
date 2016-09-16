@@ -14,3 +14,4 @@ Reforma Decreto Ejecutivo N° 37299 del 23 de agosto del 2012 "Autorización par
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-08-10 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39960 (2016-09-16) |
