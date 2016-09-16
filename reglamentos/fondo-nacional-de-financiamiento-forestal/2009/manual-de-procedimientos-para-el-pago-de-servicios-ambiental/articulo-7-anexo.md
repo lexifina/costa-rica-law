@@ -12,15 +12,20 @@ El suscrito ____________, Nº colegiado ______, En mi calidad de Regente Foresta
 8. El Regente Forestal debe certificar el origen del material vegetativo a plantar en el proyecto.
 9. El Regente debe certificar que el área a someter en PSA-SAF es suficiente para el número de árboles y arreglo recomendado.
 10. El plano de la propiedad debe estar georeferenciado con al menos tres puntos ubicados mediante GPS con el datum WGS 84 y en formato grados-decimales (GG.dddd). Dos de estos puntos como mínimo deben ser vértices del plano. Todos los puntos GPS, deben de estar a una distancia no menor a 50 metros entre ellos. (deben indicarse en el croquis, las ubicaciones de los puntos y se deben de aportar de forma digital mediante un archivo de puntos shape, en el mismo sistema de coordenadas del croquis, indicando la referencia de cada punto). La información, de los puntos GPS debe estar incluida.
-11. Asimismo, cada Estudio Técnico debe contener el croquis del área a someter a PSA con respecto al área total de la propiedad, indicando el derrotero y la numeración correspondiente de vértices. Debe indicarse el sistema empleado y exactitud del mismo; además debe amarrarse el punto de inicio (punto 1) del área a someter de un punto con coordenadas conocidas. El croquis del área efectiva PSA, así como el croquis de la totalidad del plano debe entregarse impreso y en digital.
-El digital debe de cumplir con:
-- El archivo debe ser en formato Shape File de Arcview (polígono), no se admitirán otros formatos.
-- El archivo Shape debe venir nombrado con el número de solicitud asignado por la Oficina Regional (ejemplo, SJ01000108).
-- Se debe presentar un solo Shape que incluya en la tabla de atributos la cuantificación del área, uso (área PSA, resto de la finca) y el número de plano catastrado cuando sea el caso.
-- En caso de existir contratos vigentes, incluir la ubicación de los mismos.
-- El archivo del croquis debe presentarse georeferenciado en el sistema de coordenadas CRTM05 (oficializado mediante el Decreto Nº 33797-MJ-MOPT publicado en La Gaceta Nº 108 del miércoles 6 de junio del 2007) o bien en sistema de coordenadas geográficas, datum WGS84 y en formato grados decimales (GG.dddd).
-- El croquis impreso del área PSA debe presentarse georeferenciado en el sistema de coordenadas CRTM05 (oficializado mediante el Decreto Nº 33797-MJ-MOPT publicado en La Gaceta Nº 108 del miércoles 6 de junio del 2007) o bien en sistema de coordenadas geográficas, datum WGS84 y en formato grados decimales (GG.dddd).
-- Debe ser entregado en un disco compacto (cd).
+11. El plano de la propiedad debe estar geo-referenciado con al menos tres puntos ubicados mediante GPS con proyección CRTM05. Dos de estos puntos como mínimo deben ser vértices del plano. Todos los puntos GPS, deben de estar a una distancia no menor a 50 metros entre ellos (deben indicarse en el croquis las ubicaciones de los puntos) y se debe aportar de forma digital mediante un archivo Shape de puntos (shp).
+-Se debe presentar un solo archivo Shape de puntos que incluya en la tabla de atributos (dbf), la columna A, con el nombre “plano” tipo texto donde se incluye el número de plano indicado en la solicitud; la columna B con el nombre “punto” tipo numérica, donde se incluye el número de punto de GPS al que se hace referencia y la columna C con el nombre “código” tipo numérica solamente deberá de llenarse con los números que indique el Catálogo de referencia GPS. Cuyo formato a seguir es:
+A | B | C
+plano | punto | código
+*Los nombres de las columnas van en minúscula, NO se aceptan tildes, espacios en blanco u otro carácter extraño en los títulos de las columnas
+-Para normalizar el tipo de información que se requiere en los archivos Shape de puntos, a continuación se procede a indicar la numeración a utilizar de acuerdo al catálogo de referencia GPS, que se va implementar:
+Código | Catalogo
+1 | Vértice del plano
+2 | Edificación (casa, corral, etc)
+3 | Infraestructura vial (camino, carretera)
+40 | Otro
+-El archivo Shape debe venir nombrado con el número de solicitud asignado por la Oficina Regional, incluyendo al final del nombre la letra “p” (ejemplo, SJ01000116p)
+-El archivo Shape debe de ser entregado en un disco compacto, o cualquier otro medio electrónico siempre y cuando se pueda corroborar la fecha de entrega.
+(Así reformado el inciso 11) anterior en sesión N° 08-2016 del 16 de setiembre del 2016)
 12. En el caso de los proyectos de PSA en territorios indígenas el regente deberá proporcionar un punto de GPS por cada bloque de SAF establecido.
 13. Las escalas a utilizar para áreas menores a treinta hectáreas deben de ser 1:5.000 a 1:10.000. Para el caso de áreas mayores pueden utilizarse a conveniencia profesional.
 14. Además, el Estudio deberá elaborarse con base al área legal del terreno, es decir la ‘superficie agraria’, definiéndose ésta como el área de una porción de terreno determinada por la proyección horizontal de su perímetro.
