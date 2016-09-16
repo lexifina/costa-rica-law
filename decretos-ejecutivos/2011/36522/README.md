@@ -14,3 +14,4 @@ Disminuye el arancel para la importación de varilla para construcción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-15 | la propia norma |
+| 2 | 2016-09-16 | Decreto Ejecutivo 39961 (2016-09-16) |

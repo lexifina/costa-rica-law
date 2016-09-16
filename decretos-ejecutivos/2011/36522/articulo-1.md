@@ -10,10 +10,11 @@ III.—Que el Gobierno enfrenta el reto de implementar varias acciones para dina
 Decretan:
 MODIFICACIÓN DE LOS ARANCELES DE IMPORTACIÓN
 APLICADOS A LA VARILLA DE CONSTRUCCIÓN
-Artículo 1º—Modificar los Derechos Arancelarios a la importación de los incisos arancelarios que se detallan a continuación:
-Código SAC | Descripción | DAI
-72.14 | barras de hierro o acero sin alear, simplemente forjadas, laminadas o extrudidas, en caliente, así como de las sometidas a torsión después del laminado
-7214.20.00 | - Con muescas, cordones, surcos o relieves, producidos en el laminado o sometidas a torsión después del laminado | 5
-7214.99 | --Las demás:
-7214.99.20 | --- De sección transversal distinta de la cuadrada o rectangular, cuya mayor dimensión sea superior o igual a 5.5mm pero inferior o igual a 4.5mm. | 5
-| | |
+Artículo 1.- Modificar los Derechos Arancelarios a la importación de los incisos arancelarios que se detallan a continuación:
+CODIGO | DESCRIPIÓN | DAI %
+72.14 | BARRAS DE HIERRO O ACERO SIN ALEAR, SIMPLEMENTE FORJADAS, LAMINADAS O EXTRUDIDAS, EN CALIENTE, ASÍ COMO DE LAS SOMETIDAS A TORSIÓN DESPUES DEL LAMINADO |
+7214.20.00.00 | -Con muescas, cordones, surcos o relieves, producidos en el laminado o sometidas a torsión después del laminado | 5
+7214.9 | -Las demás: |
+7214.99 | -- Las demás: |
+7214.99.20.00 | --- De sección transversal distinta de la cuadrada o rectangular, cuya mayor dimensión sea superior o igual 5.5 mm pero inferior o igual a 4.5 mm | 5
+(Así reformado por el artículo 3° del decreto ejecutivo N° 39961 del 16 de setiembre de 2016)
