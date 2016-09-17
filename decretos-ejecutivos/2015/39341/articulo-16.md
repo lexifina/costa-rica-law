@@ -1,0 +1,1 @@
+Artículo 16.—Acumulación de procedimientos. Cuando la OT, de oficio o a gestión de parte, determinare la existencia de dos o más denuncias, con identidad de objeto y causa, procederá a acumularlos tramitándolos en un único procedimiento.

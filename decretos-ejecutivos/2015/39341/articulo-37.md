@@ -1,0 +1,1 @@
+Artículo 37.—Disposiciones supletorias. En todo aquello no previsto en este reglamento se aplicará lo dispuesto en el Código Procesal Contencioso-Administrativo, el Código Procesal Civil y la Ley de Notificaciones Judiciales

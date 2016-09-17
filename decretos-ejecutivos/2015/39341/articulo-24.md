@@ -1,0 +1,1 @@
+Artículo 24.—Inspección in situ. Cuando el Órgano Director lo estime oportuno, podrá realizar las inspecciones oculares y periciales que considere necesarias, en cuyo caso deberá citar a las partes a dicha diligencia.

@@ -1,0 +1,1 @@
+Artículo 22.—Administración y acceso al expediente administrativo. Las partes, sus representantes y cualquier abogado tendrán derecho en cualquier fase del procedimiento a examinar, leer y fotocopiar cualquier pieza del expediente, así como solicitar certificación de la misma, con las salvedades que indica el artículo 273 de la Ley General de la Administración Pública.

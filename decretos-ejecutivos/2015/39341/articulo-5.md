@@ -1,0 +1,2 @@
+Artículo 5°—Principios Jurídicos. La OT llevará a cabo el procedimiento ordinario administrativo establecido en la Ley General de la Administración Pública y complementado por este reglamento, sujeto a los principios de debido proceso, oralidad, oficialidad, celeridad, inmediación de la prueba e informalidad y, en virtud del impulso procesal de oficio, la OT está facultada para conducir su tramitación sin necesidad de gestión de parte.
+El procedimiento será rápido, económico y técnico, garantizando el acceso a la justicia.

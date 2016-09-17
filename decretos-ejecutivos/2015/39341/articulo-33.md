@@ -1,0 +1,1 @@
+Artículo 33.—Aclaración y adición. Cuando la resolución final fuere omisa u oscura en su parte dispositiva, podrá ser adicionada o aclarada de oficio antes de que se notifique la resolución correspondiente o a instancia de parte presentada dentro del plazo de tres días.

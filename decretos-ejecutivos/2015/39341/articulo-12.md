@@ -1,0 +1,2 @@
+Artículo 12.—Admisibilidad de la denuncia e investigación preliminar. El Órgano Decisor
+determinará la necesidad de realizar en los casos en que estime pertinente una investigación preliminar para determinar la apertura de un procedimiento administrativo o si procede desestimar la denuncia y proceder a su archivo. Como parte de la investigación preliminar se intentará identificar al proveedor del recurso genético o bioquímico afectado por el acceso no autorizado. Funge como órgano decisor en este procedimiento, quien ejerza la Dirección Ejecutiva de la OT de la CONAGEBIO.
