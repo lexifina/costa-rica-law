@@ -1,0 +1,10 @@
+BANCO CENTRAL DE COSTA RICA
+SGF-2456-2016 - SGF-PUBLICO. Superintendencia General de Entidades Financieras. Despacho del Superintendente General de Entidades Financieras. Santa Ana, del 15 de julio del 2016.
+El Superintendente General de Entidades Financieras,
+Considerando que:
+1.El Consejo Nacional de Supervisión del Sistema Financiero en el artículo 6 del acta de la sesión 1258-2016, del 7 de junio del 2016, con base en lo expuesto por la Superintendencia General de Entidades Financieras en su oficio SGF-1729-2016, del 26 de mayo del 2016, aprobó el Acuerdo SUGEF 19-16“Reglamento para la determinación y el registro de estimaciones contracíclicas”,la reforma al Acuerdo SUGEF 1-05 “Reglamento para la calificación de deudores” y la reforma al Acuerdo SUGEF 3-06 “Reglamento sobre la suficiencia patrimonial de entidades financieras”, publicados el 17 de junio de 2016 en el Alcance Digital No. 100 del Diario Oficial La Gaceta.
+2.Que dichas reformas consideran la adición de un nuevo criterio de valoración para la determinación de la capacidad de pago de los deudores, y que consiste en la presentación de la Declaración Jurada del Impuesto sobre la Renta del periodo fiscal más reciente, y para los casos en que la suma de los saldos totales adeudados es mayor al límite fijado por el Superintendente (Grupo 1).
+3.Que dichas reformas introducen el indicador de Cobertura del Servicio de las Deudas (CSD), como un factor determinante de la fortaleza financiera de un deudor persona física para atender oportunamente sus obligaciones. Mediante estos Lineamientos Generales, se indican las consideraciones metodológicas para el cálculo del CSD.
+4.El Acuerdo SUGEF 1-05 establece que las entidades deben contar con metodologías para la evaluación de la capacidad de los deudores, las cuales deben estar aprobadas por la Junta Directiva o autoridad equivalente. Asímismo, estas metodologías deben ser consonantes con sus políticas crediticias y congruentes con el tipo de deudor de que se trate, las líneas de negocio y productos crediticios.
+Resolvió:
+1.Dejar sin efecto la Resolución SGF-2366-2016 del 11 de julio de 2016.
