@@ -1,0 +1,1 @@
+Artículo 30. Los sistemas de tratamiento de aguas residuales que brinden servicio a redes de alcantarillado sanitario provenientes de ciudades, urbanizaciones, condominios, fraccionamientos, así como aquellos sistemas que brinden tratamiento a terceros deberán contar con el Permiso Sanitario de Funcionamiento vigente.

@@ -1,0 +1,1 @@
+Artículo 26 - Para el trámite de los planos constructivos de los sistemas de tratamiento de aguas residuales se cumplirá con todo lo dispuesto en el "Reglamento para el Trámite de Revisión de los Planos para la Construcción", Decreto Ejecutivo Nº 36550 del 28 de abril del 2011 y publicado en el Diario Oficial La Gaceta No. 117 del 17 de junio del 2011.

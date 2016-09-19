@@ -1,0 +1,1 @@
+Artículo 7 - En caso de existir cuerpos de agua que colinden o atraviesen la propiedad en la cual se ubica el sistema de tratamiento, deberá aplicarse el mayor retiro establecido entre el Cuadro 1 del presente reglamento y el artículo 33 de la Ley No. 7575, Ley Forestal.

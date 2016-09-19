@@ -1,0 +1,1 @@
+Artículo 3 - Todos los documentos que se tramiten en relación con este Reglamento, deberán ser presentados en idioma español y expresar las especificaciones y cálculos bajo el Sistema Internacional de Unidades (SI), tal y como lo establece la legislación vigente.

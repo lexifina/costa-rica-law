@@ -1,0 +1,1 @@
+Artículo 25 - Toda unidad de tratamiento anaerobio que genere gases combustibles, a excepción de tanques sépticos domésticos, deberá contar con un dispositivo para evitar su emisión a la atmósfera ya sea por aprovechamiento, eliminación por combustión u otro método disponible. Dicho dispositivo deberá incluirse en los planos constructivos y en la memoria de cálculo.

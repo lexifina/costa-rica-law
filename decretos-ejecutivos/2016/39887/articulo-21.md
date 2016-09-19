@@ -1,0 +1,1 @@
+Artículo 21 - En el diseño de los sistemas de tratamiento deberán incluirse, las previsiones necesarias para posibilitar su mantenimiento o rehabilitación sin sacar de operación toda la planta de tratamiento .

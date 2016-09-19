@@ -1,0 +1,1 @@
+Artículo 16. Toda persona fisica o jurídica que vaya a construir, remodelar, ampliar, modificar, reubicar u operar un sistema de tratamiento de aguas residuales debe contar con la aprobación de los planos de construcción.

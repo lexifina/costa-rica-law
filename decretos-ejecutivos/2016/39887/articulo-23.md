@@ -1,0 +1,1 @@
+Artículo 23 - Para efectos de control, todo sistema de tratamiento deberá contar en su salida con una estructura de aforo y toma de muestras de fácil acceso y que cuente con los dispositivos necesarios.

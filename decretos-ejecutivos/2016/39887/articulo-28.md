@@ -1,0 +1,1 @@
+Artículo 28. Las estaciones de bombeo para aguas residuales ordinarias deberán cumplir con los requisitos para el diseño, construcción, operación y mantenimiento que establezca el Instituto Costarricense de Acueductos y Alcantarillado (A y A).

@@ -1,0 +1,1 @@
+Artículo 14 - Los sistemas de tratamiento existentes no requerirán de un nuevo permiso de ubicación en aquellos casos que sean remodelados o ampliados dentro del área de construcción aprobada originalmente. Lo anterior no lo exonera de cumplir con la aprobación de los planos de construcción.

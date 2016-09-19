@@ -1,0 +1,1 @@
+Artículo 12 -El Ministerio de Salud emitirá la respectiva resolución dentro de un plazo de veintidós días naturales contados a partir del recibo de la solicitud, para lo cual deberá verificar la información presentada por el administrado y podrá solicitar por única vez y por escrito que complete requisitos omitidos o que aclare la información, en un plazo de diez días hábiles.

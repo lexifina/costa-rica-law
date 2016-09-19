@@ -1,0 +1,1 @@
+Artículo 33. Deróguese el Decreto Ejecutivo Nº 31545-S-MTNAE del 09 de octubre del 2003 y publicado en La Gaceta Nº 246 del 22 de diciembre de 2003, "Reglamento de Aprobación y Operación de Sistemas de Tratamiento de Aguas Residuales".

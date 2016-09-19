@@ -1,0 +1,1 @@
+Artículo 27.- El Ministerio de Salud realizará inspecciones de campo a fin de verificar que las obras construidas de los sistemas de tratamiento de aguas residuales se ajusten a los proyectos aprobados. Todo esto de acuerdo con el protocolo establecido en el artículo 19 del "Reglamento para el Trámite de Revisión de los Planos para la Construcción".
