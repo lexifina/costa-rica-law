@@ -14,3 +14,4 @@ Reglamento de Ediciones
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-07-07 | la propia norma |
+| 2 | 2016-09-19 | Reglamento 2648 (2016-09-19) |
