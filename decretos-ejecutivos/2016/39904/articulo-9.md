@@ -1,0 +1,2 @@
+Artículo 9.- Diferencias. En el caso de que la compañía naviera o la terminal marítima ejecute un proceso de confirmación de la masa bruta verificada de un contenedor lleno en el momento de maniobras de embarque, y se determina una diferencia de ±5% entre la declarada y la determinada en ese momento, el Capitán o representante de la Compañía Naviera podrá negar el abordaje de dicho contenedor.
+Los gastos que ocasionen no embarcar, almacenar, demorar o devolver finalmente el contenedor deberán supeditarse a lo acordado contractualmente por las partes comerciales.

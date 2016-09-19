@@ -1,0 +1,2 @@
+Artículo 11. Control. La Dirección de Navegación y Seguridad del MOPT podrá llevar un registro de empresas acreditadas por ECA como Laboratorios de Calibración u Organismos de Inspección, así como de las personas físicas y jurídicas cuyos equipos hayan sido calibradas o inspeccionadas por estas.
+El ECA deberá informar a la Dirección de Navegación y Seguridad del MOPT, cualquier cambio en el estado de acreditación de los organismos antes citados.

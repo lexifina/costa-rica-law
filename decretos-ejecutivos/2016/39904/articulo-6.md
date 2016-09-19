@@ -1,0 +1,2 @@
+Artículo 6º - Transmisión de la información. El embarcador deberá remitir el Documento de Expedición por los medios físicos o electrónicos acordados con la compañía naviera y la terminal portuaria, con al menos 24 horas de anticipación, previo a la carga del contenedor al buque.
+Sin embargo, el embarcador podrá transmitir dicha información con una antelación de 12 horas, solo en el caso que haya remitido una declaración preliminar con una antelación de al menos 24 horas.

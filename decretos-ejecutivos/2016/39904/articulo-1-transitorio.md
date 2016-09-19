@@ -1,0 +1,5 @@
+Transitorio Único. - Con el objeto de otorgar un plazo para la implantación en todos ·sus extremos del proceso de verificación de la masa bruta de los contenedores llenos, y tomando en cuenta el plan de acción entre la Administración y los sectores involucrados, se definen las siguientes etapas y fechas de cumplimiento:
+a) A partir de la entrada en vigencia del presente reglamento, los embarcadores o los terceros autorizados por los primeros, deberán reportar la masa bruta verificada del total de contenedores llenos a las navieras contratadas y por mecanismos establecidos entre éstos, información que tendrá la condición de declaración jurada con todos los efectos jurídicos.
+b) A partir del 01 de enero de 201 7, los embarcadores o los terceros autorizados por los primeros, deberán contar con la debida calibración de sus sistemas de pesaje, por parte de
+Laboratorios Acreditados o reconocidos por el ECA.
+c) A partir del I de julio de 2017, los embarcadores que utilicen el método B deberán contar con la debida acreditación desarrollados conforme a los Anexos A y B adjuntos, establecido en el presente Decreto.
