@@ -1,24 +1,24 @@
 BCR SOCIEDAD CORREDORA DE SEGUROS S. A.
 La Junta Directiva BCR Sociedad Corredora de Seguros S.A., en sesión 15-15, artículo III, del 3 de agosto del 2015 el Reglamento Interno de Contratación Administrativa de BCR Corredora de Seguros S. A.
-I. Propósito
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y reproducido su texto de forma íntegra mediante sesión N° 18-16 del 19 de setiembre del 2016 publicada en La Gaceta N° 206 del 27 de octubre del 2016, por lo que se reproduce a continuación:)
+i. Propósito
 El propósito de este reglamento es regular la tramitación de los procedimientos de contratación administrativa, así como su correspondiente fase de ejecución.
-II. Alcance
+ii. Alcance
 La aplicación de este reglamento será para toda servidora y servidor de BCR Corredora de Seguros S.A. que en el desarrollo de sus labores, realice la tramitación y ejecución de contratación administrativa.
-III. Documentos de referencia
-Ley de Contratación Administrativa y su Reglamento, Ley N° 7494.
-Ley General de Control Interno, Ley N° 8292.
-Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, N° 8204.
-Ley contra la corrupción y enriquecimiento ilícito en la función pública, N° 8422.
+iii. Documentos de referencia
+Ley de Contratación Administrativa y su Reglamento, Ley No. 7494.
+Ley General de Control Interno, Ley No. 8292.
+Ley sobre estupefacientes, sustancias psicotrópicas, drogas de uso no autorizado, actividades conexas, legitimación de capitales y financiamiento al terrorismo, No. 8204.
+Ley contra la corrupción y enriquecimiento ilícito en la función pública, No. 8422.
 Reglamento sobre el refrendo de las contrataciones de la Administración Pública, emitido por la Contraloría General de la República.
 Normas de control interno para el sector público, emitida por la Contraloría General de la República.
 Código de ética corporativo del Conglomerado Financiero BCR, REG-GRE-ACH-94-11-15.
-Manual de cumplimiento corporativo del Conglomerado Financiero BCR, MAC-GCU-CRE-56-04-14.
-Reglamento para regular el uso de las tarjetas de compras institucionales en el Conglomerado Financiero BCR, REG-GRE-ADT-04-13.
+Manual de cumplimiento corporativo del Conglomerado Financiero BCR, MACGCU-CRE-56-04-14.
 Glosario de términos y definiciones utilizados en el Conglomerado Financiero BCR, DISP-GMC-OPP-111-11-15.
-IV. Definiciones
+iv. Definiciones
 Administrador del contrato: es el servidor designado por el jerarca de la oficina responsable de la ejecución contractual para coadyuvar en sus funciones respecto de un contrato determinado.
 Cartel: documento que contiene las condiciones generales, administrativas y técnicas que deben cumplir los oferentes para formular su cotización.
-Contratista: persona física o jurídica que habiendo presentado su oferta es seleccionada por BCR Corredora de Seguros S. A. como adjudicataria para proveer un bien, servicio u obra.
+Contratista: persona física o jurídica que habiendo presentado su oferta es seleccionada por BCR Corredora de Seguros S.A. como adjudicataria para proveer un bien, servicio u obra.
 Expediente administrativo: legajo físico que deberá contener todas las actuaciones, internas y externas en el orden cronológico correspondiente a su presentación y relativas a un trámite de contratación administrativa específico.
 Finiquito: documento final suscrito por el funcionario competente de BCR Corredora de Seguros y por el contratista en el que se hace constar la finalización del trabajo adjudicado a satisfacción de BCR Corredora de Seguros y en el que además las partes manifiestan la inexistencia de obligaciones pendientes, salvedad hecha de las garantías vigentes.
 Informe final: es el informe que deberá elaborar la oficina responsable de la ejecución contractual, sobre el resultado final de la contratación, detallando de manera proporcionada y conforme a la naturaleza de cada contratación si el contratista cumplió o no los diferentes aspectos de la contratación a que se obligó, tanto en calidad como en cantidad, plazo, garantías de funcionamiento, etc.; el cual deberá rendirse cumpliendo en el plazo y los requisitos que requiere el presente Reglamento. Este informe deberá incorporarse al expediente de la contratación que levante dicha Oficina.
@@ -34,4 +34,5 @@ Sanción de inhabilitación: consiste en el impedimento para participar en proce
 Subasta a la baja: sistema de adjudicación de compra productos genéricos, tales como suministros, equipos o bienes de uso común, cuya fabricación obedezca a reglas estandarizadas, donde el oferente tiene la oportunidad de mejorar el precio hacia la baja.
 Capítulo I
 Disposiciones generales
-Artículo 1º—Objeto. Este reglamento incorpora las regulaciones internas que deberán observar las servidoras y servidores de BCR Corredora de Seguros que participen en la compra, adquisición o arrendamiento de algún bien o servicio, así como en su correspondiente fase de ejecución.
+Artículo 1. Objeto
+Este reglamento incorpora las regulaciones internas que deberán observar las servidoras y servidores de BCR Corredora de Seguros que participen en la compra, adquisición o arrendamiento de algún bien o servicio, así como en su correspondiente fase de ejecución.

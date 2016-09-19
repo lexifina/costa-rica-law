@@ -1,5 +1,5 @@
-Artículo 25.—Requisitos de la solicitud de dictamen de legalidad de parte de la División Jurídica del BCR para efectos de aprobación interna
-Para emitir el refrendo interno por parte del gerente general de BCR Corredora de Seguros, se deberá solicitar a la División Jurídica un estudio de legalidad que sirva de apoyo para el dictado del acto de aprobación interno correspondiente.
+Artículo 25. Requisitos de la solicitud de dictamen de legalidad de parte de la División Jurídica del BCR para efectos de aprobación interna
+Para emitir el refrendo interno por parte del gerente general de BCR Corredora de Seguros, se deberá solicitar a la Gerencia Corporativa Jurídica un estudio de legalidad que sirva de apoyo para el dictado del acto de aprobación interno correspondiente.
 Las solicitudes para la verificación de legalidad y el dictamen a la División Jurídica las realizará BCR Corredora de Seguros. En la solicitud se debe incorporar, al menos, la siguiente información:
 a. Solicitud expresa del criterio de legalidad del contrato.
 b. Acompañar el documento contractual original debidamente firmado por las partes. En caso que se trate de una modificación debe aportarse, además, el contrato original, en tanto este haya sido objeto de refrendo interno.

@@ -1,1 +1,4 @@
-Artículo 64.—Adquisición de bienes y servicios de poca cuantía. Para atender exclusivamente la adquisición de bienes y servicios de poca cuantía se deberá utilizar la tarjeta de compras institucionales asignada a los servidores con atribuciones de BCR Corredora de Seguros, de acuerdo con el Reglamento para regular el uso de las tarjetas de compras institucionales en el Conglomerado Financiero BCR y las Disposiciones administrativas para regular el uso de las tarjetas de compras institucionales en BCR Corredora de Seguros S.A.
+Capítulo XI
+Disposiciones finales
+Artículo 64. Normas supletorias
+Cualquier hecho de fondo o de orden procedimental no previsto en el presente Reglamento será resuelto aplicando las normas pertinentes de la Ley de Contratación Administrativa y su Reglamento cuyas disposiciones por el fondo prevalecerán en caso de contradicción con el presente instrumento.

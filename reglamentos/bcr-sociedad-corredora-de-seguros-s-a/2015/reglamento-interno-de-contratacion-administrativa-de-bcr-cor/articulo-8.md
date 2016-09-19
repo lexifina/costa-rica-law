@@ -1,6 +1,7 @@
 Capítulo III
 De las atribuciones para los servidores o grupo de servidores
-Artículo 8º—Atribuciones por el monto de la contratación. Los órganos y servidores que se detallan en la tabla siguiente están facultados para adjudicar los procedimientos tramitados por BCR Corredora de Seguros para la adquisición de bienes y servicios o contrataciones de servicios continuados, por los plazos que sean necesarios, siempre y cuando el importe de lo adjudicado no supere los límites económicos aquí establecidos.
+Artículo 8. Atribuciones por el monto de la contratación
+Los órganos y servidores que se detallan en la tabla siguiente están facultados para adjudicar los procedimientos tramitados por BCR Corredora de Seguros para la adquisición de bienes y servicios o contrataciones de servicios continuados, por los plazos que sean necesarios, siempre y cuando el importe de lo adjudicado no supere los límites económicos aquí establecidos.
 Órganos y servidores | Límite (1)
 Comité Ejecutivo | De acuerdo con el artículo 11 del Reglamento Interno de Contratación Administrativa del Banco de Costa Rica.
 Comisión de Contratación Administrativa | De acuerdo con el artículo 11 del Reglamento Interno de Contratación Administrativa del Banco de Costa Rica.

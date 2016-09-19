@@ -1,10 +1,11 @@
-Artículo 9º—Atribuciones por naturaleza de la contratación.
+Artículo 9. Atribuciones por naturaleza de la contratación
 Atendiendo a la naturaleza de la contratación las atribuciones serán las siguientes:
 1. Enajenación de bienes inmuebles propios
-El inicio de los procedimientos promovidos para la enajenación o arrendamiento de bienes inmuebles propios de BCR Corredora de Seguros será autorizado por el gerente general de la Corredora.
-2. Enajenación y arrendamiento de bienes muebles propios
-El inicio de los procedimientos tendientes a la enajenación y arrendamiento de bienes muebles de BCR Corredora de Seguros será autorizado por el gerente general de la subsidiaria.
-Quedan facultados los órganos y servidores que se indican a continuación para adjudicar la enajenación o arrendamiento de bienes inmuebles propios de BCR Corredora de Seguros y la enajenación y arrendamiento, por tiempo definido, de bienes muebles propios del BCR Corredora de Seguros, siempre que el monto a cobrar por tales contratos no sobrepase las atribuciones aquí concedidas, así como para disponer prórrogas, modificaciones e incrementos de los mismos. Todo arrendamiento se formalizará mediante contrato escrito.
+El inicio de los procedimientos promovidos para la enajenación o concesión de bienes inmuebles propios de BCR Corredora de Seguros será autorizado por el gerente general de la Corredora.
+2. Enajenación de bienes muebles propios
+El inicio de los procedimientos tendientes a la enajenación de bienes muebles de BCR Corredora de Seguros será autorizado por el gerente general de la subsidiaria.
+Facultad de órganos y servidores para la enajenación de bienes muebles e inmuebles
+Quedan facultados los órganos y servidores que se indican a continuación para adjudicar la enajenación o concesión de bienes inmuebles propios de BCR Corredora de Seguros y la enajenación, por tiempo definido, de bienes muebles propios del BCR Corredora de Seguros, siempre que el monto a cobrar por tales contratos no sobrepase las atribuciones aquí concedidas, así como para disponer prórrogas, modificaciones e incrementos de los mismos. Todo arrendamiento se formalizará mediante contrato escrito.
 Podrán adjudicar los procedimientos regulados en este artículo, por los montos aquí establecidos, los siguientes órganos y servidores:
 Órganos y servidores | Límite
 Comité Ejecutivo | De acuerdo con el artículo 12.2 del Reglamento Interno de Contratación Administrativa del Banco de Costa Rica.

@@ -1,4 +1,5 @@
-Artículo 26.—Alcance del dictamen de legalidad emitido por la División Jurídica. El análisis que realiza la División Jurídica del BCR para emitir el criterio jurídico de la procedencia o no del refrendo interno de un contrato administrativo es de legalidad y no de oportunidad o conveniencia, quedando circunscrito a la verificación de los siguientes aspectos:
+Artículo 26. Alcance del dictamen de legalidad emitido por la Gerencia Corporativa Jurídica
+El análisis que realiza la Gerencia Corporativa Jurídica del BCR para emitir el criterio jurídico de la procedencia o no del refrendo interno de un contrato administrativo es de legalidad y no de oportunidad o conveniencia, quedando circunscrito a la verificación de los siguientes aspectos:
 a. Que exista contenido presupuestario.
 b. Que para la selección del contratista se haya seguido el procedimiento ordinario de concurso o la excepción de contratación directa que corresponda según el ordenamiento jurídico vigente.
 c. Que estén incorporados al expediente administrativo los estudios técnicos que amparen la adjudicación y los demás términos del cartel. Si no constan dichos estudios o no existen, en la nota de remisión de la solicitud de refrendo se deberá justificar la adjudicación en los términos sometidos a refrendo.

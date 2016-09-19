@@ -1,5 +1,6 @@
 Capítulo IV
 Requisitos previos de la contratación administrativa
-Artículo 12.—Programa de adquisiciones. BCR Corredora de Seguros deberá remitir en diciembre de cada año a la Oficina de Compras y Pagos del BCR la información relacionada con el programa de adquisiciones de la subsidiaria, para que sea publicado de acuerdo con el artículo 7 del Reglamento a la Ley de Contratación Administrativa.
+Artículo 12. Programa de adquisiciones
+BCR Corredora de Seguros deberá remitir en diciembre de cada año a la Oficina de Contratación Administrativa del BCR la información relacionada con el programa de adquisiciones de la subsidiaria, para que sea publicado de acuerdo con el artículo 7 del Reglamento a la Ley de Contratación Administrativa.
 Las contrataciones previstas en el programa de adquisiciones deberán contar con los recursos presupuestarios necesarios, con excepción de lo dispuesto en la legislación de contratación administrativa en cuanto a inicio y adjudicación de procesos de adquisición de bienes y servicios con cargo a presupuestos futuros, según lo establecido en el artículo 9 del Reglamento a la Ley de Contratación Administrativa.
 BCR Corredora de Seguros podrá ejecutar contrataciones urgentes, no previstas, sin necesidad de modificar el Programa de Adquisiciones, cuando se justifique para el cumplimiento de los fines públicos de la Corredora, los cuales deberán quedar debidamente acreditados en el expediente de la contratación que al efecto se tramite.

@@ -1,1 +1,2 @@
-Artículo 4º—Otros servidores competentes. La gerencia general y los gerentes de BCR Corredora de Seguros, emitirán el acto final de adjudicación en los procedimientos de contratación, conforme a las disposiciones que contiene el artículo 8 del presente Reglamento.
+Artículo 4. Otros servidores competentes
+La gerencia general y los gerentes de BCR Corredora de Seguros, emitirán el acto final de adjudicación en los procedimientos de contratación, conforme a las disposiciones que contiene el artículo 8 del presente Reglamento.

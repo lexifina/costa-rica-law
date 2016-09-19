@@ -1,4 +1,2 @@
-Capítulo X
-De la autorización de gastos de agasajos,
-recepciones y eventos especiales
-Artículo 62.—Gastos por agasajos, recepciones y eventos especiales. Los gastos por agasajos, recepciones y eventos especiales son aquellos en los que BCR Corredora de Seguros incurre en la celebración de actos conmemorativos a personas ajenas a la Corredora u originados en la realización de actividades especiales de trabajo para sus colaboradores.
+Artículo 62. Servidores autorizados
+El gerente general de BCR Corredora de Seguros, o quien lo sustituya formalmente, quedará facultado para autorizar la realización de tales gastos de acuerdo con las atribuciones establecidas en el artículo 8 de este reglamento.

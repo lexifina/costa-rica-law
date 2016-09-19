@@ -1,9 +1,2 @@
-Artículo 50.—Cesión del contrato. Los derechos y obligaciones derivados de un contrato administrativo listo para iniciarse o en ejecución, podrán ser cedidos a un tercero, ello en tanto no se trate de una obligación personalísima. Toda cesión deberá ser autorizada por el órgano que adjudicó el contrato, o uno de los niveles superiores de atribuciones, mediante acto debidamente razonado, previa solicitud de criterio a la oficina técnica solicitante; para adoptar la decisión se analizarán como mínimo los siguientes aspectos:
-a. Causa de la cesión.
-b. Grado de cumplimiento por parte del cesionario de las principales condiciones legales, técnicas y financieras solicitadas en el cartel.
-c. Que el cesionario no esté afectado por alguna causal legal de prohibición o impedimento para contratar.
-d. Que el cesionario cumpla las mismas condiciones subjetivas exigidas por el cartel para ejecutar el contrato y cumplir el fin público previsto.
-e. Ventajas de la cesión frente a la posibilidad de resolver el contrato.
-f. Eventuales incumplimientos graves del cedente hasta el momento de su solicitud y medidas administrativas adoptadas al respecto.
-Si la cesión excede el cincuenta por ciento del objeto del contrato deberá ser autorizada por la Contraloría General de la República.
-La tramitación de la cesión será realizada por BCR Corredora de Seguros en coordinación con la Oficina de Compras y Pagos del BCR.
+Artículo 50. Cesión de los derechos de pago
+Los derechos de cobro frente a BCR Corredora de Seguros originados en contratos administrativos podrán ser cedidos por el contratista a un tercero, en cualquier momento, sin que sea necesario el consentimiento BCR Corredora de Seguros ni de la Contraloría General de la República. No obstante, deberán respetarse en un todo las regulaciones pertinentes que sobre esta materia se desarrollan en el artículo 36 del Reglamento a la Ley de Contratación Administrativa, ello en salvaguarda de los intereses legales, económicos, financieros y técnicos de BCR Corredora de Seguros.
