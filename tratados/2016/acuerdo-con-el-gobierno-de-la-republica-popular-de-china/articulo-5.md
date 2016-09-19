@@ -1,0 +1,3 @@
+ARTÍCULO 5
+COMPENSACIÓN POR DAÑOS Y PÉRDIDAS
+Los inversionistas de una Parte Contratante cuyas inversiones en el territorio de la otra Parte Contratante sufran pérdidas por causa de guerra, estado de emergencia nacional, insurrección, disturbio u otros sucesos similares en el territorio de ésta última Parte Contratante, recibirán de ésta última Parte Contratante con respecto a restitución, indemnización, compensación y otros acuerdos, un trato no menos favorable que el otorgado a sus propios inversionistas o los de cualquier tercer Estado, el que sea más favorable para los inversionistas involucrados.
