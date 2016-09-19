@@ -1,0 +1,1 @@
+5. Que de acuerdo a lo estipulado en el artículo 3.15 del Tratado se considera certificado de origen, al establecido en el Anexo 3-B, emitido por la autoridad competente de la Parte exportadora a solicitud del exportador, para cada declaración aduanera transmitida bajo el Acuerdo 18.

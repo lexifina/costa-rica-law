@@ -1,0 +1,1 @@
+10. Por encontrarse el Director General de Aduanas fuera del país mediante acuerdo Nº AH-0101-2016 entre el 19 de julio del 2016 al 21 de julio del 2016, y con base en los artículos 12 de la Ley General de Aduanas y 8 de su Reglamento, el suscrito firma el presente oficio en carácter de Subdirector General de Aduanas.
