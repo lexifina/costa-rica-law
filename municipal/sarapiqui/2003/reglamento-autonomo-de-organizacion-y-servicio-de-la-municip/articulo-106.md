@@ -6,4 +6,4 @@ b. Atender, en horas de trabajo, visitas y hacer llamadas telefónicas de carác
 c. Atender negocios de carácter personal, o ejecutar algún trabajo de cualquier naturaleza, ajeno a los fines de su función o de la Municipalidad.
 d. Visitar otras oficinas que no sean aquellas donde prestan sus servicios, a no ser que lo exija la naturaleza del trabajo; así como mantener conversaciones innecesarias con compañeros de labores o con extraños, en perjuicio o con demora del trabajo que se está ejecutando.
 e. Distraer con cualquier clase de juegos o bromas a los compañeros de trabajo o quebrantar la cordialidad y el mutuo respeto que deben ser normas en las relaciones del personal de la Municipalidad.
-f. Mantener conversaciones innecesarias, con compañeros de trabajo, y otras personas con perjuicio o con demora de las labores que están ejecutando.
+f. (Derogado en sesión N° 38 del 19 de setiembre de 2016)

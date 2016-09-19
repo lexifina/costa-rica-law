@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización y Servicio de la Municipalidad de Sarapiqu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2003-06-23 | la propia norma |
+| 2 | 2016-09-19 | Reglamento municipal 38 (2016-09-19) |

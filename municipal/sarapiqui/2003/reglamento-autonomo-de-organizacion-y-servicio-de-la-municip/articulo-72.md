@@ -1,1 +1,2 @@
-Artículo 72.—Los funcionarios que deban viajar en el ejercicio de sus funciones tendrá derecho a gastos de transporte y viáticos consistentes en pasajes, alimentación y hospedaje, los cuales serán otorgados según el Reglamento respectivo. Los viáticos no se considerarán salario para ningún efecto legal.
+Artículo 72.— Los funcionarios que deban viajar en el ejercicio de sus funciones fuera del Cantón de Sarapiquí, tendrán derecho al pago de los gastos de viaje, el cual se regirá por lo dispuesto en el Reglamento de Gastos de viaje y de Transporte para Funcionarios Públicos emitido por la Contraloría General de la República.
+(Así reformado en sesión N° 38 del 19 de setiembre de 2016)
