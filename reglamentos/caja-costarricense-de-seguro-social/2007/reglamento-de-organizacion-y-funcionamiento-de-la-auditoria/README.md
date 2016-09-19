@@ -16,3 +16,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Caja
 | 1 | 2007-10-24 | la propia norma |
 | 2 | 2008-02-21 | Reglamento 8229 (2008-02-21) |
 | 3 | 2012-06-07 | Reglamento 8583 (2012-06-07) |
+| 4 | 2016-09-19 | Reglamento 8863 (2016-09-19) |
