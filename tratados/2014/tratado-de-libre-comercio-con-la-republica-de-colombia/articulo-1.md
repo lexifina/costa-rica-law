@@ -1,4 +1,5 @@
 N° 9238
+(Nota de Sinalevi: De conformidad con la resolución RES-SUB-DGA-040-2016 del 19 de julio del 2016, de la Dirección General de Aduanas, el presente instrumento entró en vigencia el 1° de agosto del 2016)
 (Nota de Sinalevi: Mediante decreto ejecutivo N° 38433 del 30 de abril del 2014, la República de Costa Rica ratifica el presente Tratado)
 LA ASAMBLEA LEGISLATIVA
 DE LA REPÚBLICA DE
