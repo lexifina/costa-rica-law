@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de aplicación. Las disposiciones contenidas en el presente Reglamento son aplicables a todos los funcionarios del Ministerio de Agricultura y Ganadería y sus Órganos Adscritos de Desconcentración Máxima y Mínima que recauden, custodien o administren fondos públicos.

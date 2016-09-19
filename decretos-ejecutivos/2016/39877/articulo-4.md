@@ -1,0 +1,1 @@
+Artículo 4º—Deber de solventar la garantía. Es deber del caucionante, asumir el costo íntegro de la Letra de Cambio rendida en garantía a favor del Ministerio de Agricultura y sus Órganos Adscritos de Desconcentración Máxima y Mínima, el cual deberá provenir de su propio peculio.

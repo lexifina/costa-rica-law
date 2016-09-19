@@ -1,0 +1,1 @@
+Artículo 10°—Caucionantes ad honorem. En el caso de los funcionarios que ocupen cargos ad honorem afectos a caucionar, el monto de la caución que deben rendir será igual a tres salarios base de la clase de puesto de Gerente de Servicio Civil 1 que se encuentre vigente al momento de rendir la caución.

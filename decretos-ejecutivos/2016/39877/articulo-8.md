@@ -1,0 +1,1 @@
+Artículo 8°—Obligación de caucionar por las funciones previstas. Todo funcionario al que se le compruebe que recauda, custodia o administra fondos públicos, está obligado a caucionar aún y cuando su cargo no aparezca en la lista citada en el artículo anterior.

@@ -1,0 +1,5 @@
+CAPÍTULO VI
+De la ejecución, prescripción y extinción de las cauciones
+Artículo 14°—Ejecución de la garantía. Cuando se comprueben hechos que deben ser reparados por el caucionante conforme a la finalidad de la Letra de Cambio rendida en garantía y una vez firme la resolución dictada por la instancia competente, donde corresponda el resarcimiento de daños y perjuicios, el Ministro deberá ordenar la ejecución de la Letra de Cambio rendida en garantía, sin perjuicio de otras responsabilidades administrativas, civiles y penales que correspondan al caucionante.
+Cuando la garantía sea insuficiente, el Ministro valorará la significancia del monto para acudir a la vía ejecutiva simple a efecto de cobrar el saldo insoluto.
+En el caso de que la Letra de Cambio rendida en garantía no pueda hacerse efectiva por culpa o negligencia de los encargados de tramitar y controlar las cauciones, éstos serán civil, penal y administrativamente responsables del daño económico causado a la Hacienda Pública, según se determine.
