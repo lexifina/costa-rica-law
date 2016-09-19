@@ -1,5 +1,0 @@
-Artículo 11.—Garantía: Para garantizar la responsabilidad civil por daños y perjuicios a terceros (incluyendo a la Municipalidad) será necesario lo siguiente:
-1) Copia certificada de la póliza de seguro nacional suscrita por la Operadora como garantía, expedida por una compañía autorizada por la SUGESE para la emisión de las mismas.
-2) Esta garantía cubrirá la totalidad de las obras que desarrolle el Operador de la infraestructura en la jurisdicción del cantón, deberá ajustarse y mantearse vigente desde el inicio de la construcción de la infraestructura de telecomunicaciones, incluyendo la fase de operación y mantenimiento. Deberá reportar a la Administración Municipal la renovación de la póliza cada vez que se venza.
-3) El Operador será responsable de cubrir el cien por ciento (100%) de cualquier daño directo o indirecto que cause durante la operación del servicio de telecomunicaciones.
-4) La cancelación de la póliza sólo procederá cuando sean retirados todos los elementos estructurales, radio bases y sus antenas, previa comprobación de que no existen daños por los que se tenga que responder ante terceros o ante la Municipalidad.

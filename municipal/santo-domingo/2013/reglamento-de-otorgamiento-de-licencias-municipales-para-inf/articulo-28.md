@@ -1,1 +1,0 @@
-Artículo 28.—Requisitos para la solicitud de la licencia comercial: para obtener la licencia comercial el solicitante deberá completar y firmar el Formulario Municipal de Solicitud de Patente, cumpliendo con todo lo establecido en él.
