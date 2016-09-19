@@ -1,0 +1,2 @@
+Artículo 34. - Las personas funcionarias de las Áreas de Atención solo podrán utilizar las conexiones vía FfP o de conversación en línea ICQ, MSN, u otras de similar utilidad, cuando así se le haya autorizado previamente y la Unidad haya instalado y configurado el "software" necesario con el perfil de acceso respectivo.
+Tampoco podrá utilizarse ningún otro tipo de "software" que no sean los exploradores autorizados e instalados por la Unidad, para acceder Internet.

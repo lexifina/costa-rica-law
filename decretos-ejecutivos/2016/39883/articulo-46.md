@@ -1,0 +1,1 @@
+Artículo 46. - La persona usuaria será responsable de mantener la confidencialidad de la contraseña y de la cuenta de correo electrónico que se Je asigne y será el responsable por las actividades que se realicen con su cuenta de correo.

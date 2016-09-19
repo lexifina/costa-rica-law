@@ -1,0 +1,1 @@
+Artículo 30. - Ninguna persona funcionaria podrá comer, beber, o tener alimentos, ni líquidos en los sectores donde se ubican los equipos de tecnología de información. En caso de detectarse incumplimiento a esta disposición, la persona técnica encargada deberá poner en conocimiento, de tal hecho, a las autoridades administrativas superiores del Ministerio.

@@ -1,0 +1,1 @@
+Artículo 13. - Requerimientos. La Unidad debe levantar los requerimientos de las personas usuarias por cada sistema que se pretenda desarrollar. El trabajo de levantamiento de los requerimientos del sistema, será responsabilidad de la Unidad y del área usuaria involucrada. El sistema se desarrollará con base en los requerimientos establecidos.

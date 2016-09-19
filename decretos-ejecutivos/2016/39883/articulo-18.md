@@ -1,0 +1,1 @@
+Artículo 18. - Manuales de operación. La Unidad preparará los manuales de usuario y técnicos de cada uno de los sistemas de acuerdo a la normativa vigente que emita la Contraloría General de la República en esta materia y se los entregará a la parte usuaria de manera digital.

@@ -1,0 +1,1 @@
+Artículo 53. - Cada usuario debe bloquear el equipo de tecnología de información asignado, cuando no lo vaya a utilizar o se aleje del mismo circunstancialmente, con la finalidad de evitar su utilización no autorizada por parte de terceras personas.

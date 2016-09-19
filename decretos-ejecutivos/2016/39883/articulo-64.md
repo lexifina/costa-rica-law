@@ -1,0 +1,1 @@
+Artículo 64. - Derogaciones. Deróguese el "Reglamento Normas y Políticas de Informática del Ministerio de Gobernación y Policía": Decreto Nº 32917-MGP del 19 de enero de 2006 que fuera publicado en La Gaceta Nº 47 del 7 de marzo del 2006.

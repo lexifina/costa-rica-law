@@ -1,0 +1,3 @@
+Artículo 16. - Diseño del sistema. El diseño del sistema, se hará de acuerdo con los manuales y otra normativa vigente que emita la Contraloría General de la República en esta materia, definiendo todos aquellos aspectos de seguridad y control que deben incorporarse al sistema para asegurar la confidencialidad de la información procesada. Además de lo anterior, el diseño del sistema contendrá lo siguiente:
+a) Análisis de Riesgos: Definirá todos aquellos aspectos de seguridad y control que deben incorporarse al sistema para asegurar la confidencialidad de la información procesada, así como las pistas de Auditoría.
+b) Aprobación por escrito: Tanto la parte usuaria como la Unidad, aprobarán por escrito el diseño del sistema.

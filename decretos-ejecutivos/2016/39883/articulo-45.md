@@ -1,0 +1,1 @@
+Artículo 45. - La persona usuaria es responsable de respetar la ley de derechos de autor, por lo que no debe abusar de este medio para distribuir en forma ilegal "software" licenciado o reproducir información sin conocimiento del autor.

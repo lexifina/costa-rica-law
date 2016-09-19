@@ -1,0 +1,1 @@
+Artículo 6. - Áreas: La Unidad tendrá las siguientes Áreas: Sistemas, Telemática y Soporte Técnico, sin perjuicio de la creación de otras funciones que puedan coadyuvar en una mejor distribución y rendimiento en la labor de la unidad. Para esto último deberá seguirse el procedimiento jurídico previsto.

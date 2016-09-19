@@ -1,0 +1,1 @@
+Artículo 52. - La persona funcionaria que por motivos de incapacidad médica, disfrute de vacaciones o autorización de licencia, deba ausentarse de la oficina por más de dos días, estará en la obligación de suministrar a su Jefatura inmediata, copia de la información oficial que esté contenida en el equipo asignado; así como aquella que esté en proceso de elaboración.

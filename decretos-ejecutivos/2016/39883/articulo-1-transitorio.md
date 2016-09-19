@@ -1,0 +1,1 @@
+Transitorio único: El artículo 56 incluido dentro del capítulo IX;, descritos en este Reglamento, será de acatamiento obligatorio en el momento que se cuente con las herramientas necesarias para implementar un único Portal WEB Ministerial.

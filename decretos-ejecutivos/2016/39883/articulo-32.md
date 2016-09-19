@@ -1,0 +1,12 @@
+Artículo 32. - Las personas funcionarias a quienes se les asigne dispositivos o equipos portátiles, deberán adoptar al menos las siguientes medidas de seguridad:
+• Velar por la debida custodia del dispositivo o equipo portátil asignado, por lo que deberá mantenerlo siempre a la vista para su cuidado.
+• No utilizarlo ni ubicarlo en lugares en donde puedan correr riesgo de daño físico o de funcionamiento y evitar la cercanía de alimentos, líquidos u otros elementos que puedan afectarlo.
+• Proteger con contraseña el acceso al dispositivo de tecnología de información asignado.
+• Mantener sus carpetas y archivos importantes con contraseñas y ocultas, si es posible incluso encriptados.
+• No se debe conectar automáticamente a redes inalámbricas abiertas para evitar conectarse a uno falso y poner en riesgo el acceso no autorizado y la sustracción de la información que contenga. AJ conectarse se debe verificar que se utiliza tecnología de seguridad con contraseña cuyos protocolos pueden ser "WEAP2 ", "WPA" o "WEP".
+• Someter periódicamente a control y revisión ante la Unidad el dispositivo portátil asignado para verificar que cuenta con los mecanismos de seguridad, tales como "software" "VPN" y antivirus, debidamente habilitados y actualizados. Y procurar hacerlo con la suficiente antelación de previo a salir de viaje o de utilizar dicho equipo fuera del lugar de trabajo.
+• Si los dispositivos de tecnología de información asignados cuentan con "bluetooth" ( conexión inalámbrica o remota) deben adoptarse al menos las siguientes medidas preventivas:
+-Cuando se requiera habilitar el uso de "bluetooth ", hacerlo siempre en modo oculto para evitar mostrarse visibles para otros dispositivos no autorizados a la conexión.
+-Deshabilitar la función de conexión vía "bluetooth" cuando ésta no se utilice o en sitios públicos o muy concurridos. Lo anterior para evitar conexiones y trasferencias de información no autorizados y alargar el tiempo de uso de la batería.
+• Únicamente se podrá conectar con otros dispositivos móviles de sincronización, tales como agendas electrónicas, teléfonos inteligentes, tabletas u otros con los que se puedan realizar intercambios de información, si están autorizados de forma explícita por la jefatura respectiva conjuntamente con la Unidad.
+La autorización solo podrá hacerse con respecto a dispositivos móviles de sincronización que provea el Ministerio, por lo que queda terminantemente prohibido el uso de dispositivos personales para este propósito.

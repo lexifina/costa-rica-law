@@ -1,0 +1,1 @@
+Artículo 44. - La persona usuaria es responsable de respaldar sus archivos de correo manteniendo en la bandeja de entrada solamente documentos en tránsito; sus demás comunicados deberán mantenerlos en una carpeta personal en su computador local y depurar su "bandeja de entrada o "Inbox", al igual que las bandejas de elementos eliminados y enviados, para no saturar el buzón.

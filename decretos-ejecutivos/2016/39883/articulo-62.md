@@ -1,0 +1,5 @@
+CAPÍTULO XI
+De la Auditoría Interna
+Artículo 62. - La Auditoría Interna podrá realizar las verificaciones que estime pertinentes en relación con el correcto uso de los equipos de tecnologías de información, licencias de "software" e información pública contenida en los equipos de tecnologías de información, de conformidad con su competencia y atribuciones establecidas en el artículo 33 de la Ley de Control Interno y demás disposiciones legales y reglamentarias relacionadas.
+Para tales efectos se deberá tener en cuenta las limitaciones propias del secreto de las comunicaciones y la inviolabilidad de los documentos privados, por lo que deberá accederse a los equipos en presencia de la respectiva persona funcionaria.
+De todo lo actuado presentarán el respectivo informe con las recomendaciones a su jefatura, la cual tomará las medidas correctivas que pudieran corresponder, las cuales serán vinculantes y de obligado acatamiento. Lo anterior sin perjuicio de la competencia en materia de controles que tiene la Unidad.

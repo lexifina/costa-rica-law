@@ -1,0 +1,1 @@
+Artículo 39. - Los correos masivos solo podrán solicitarlos aquellas personas funcionarias o instancias que por sus funciones así lo requieran. Se deberá presentar solicitud a la Unidad que se encargará de realizar el envío respectivo.

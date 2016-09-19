@@ -1,0 +1,1 @@
+Artículo 31. - Las personas usuarias de los equipos de tecnologías de información de las Áreas de Atención deberán velar por el debido cuidado y reportar, a la Unidad, cualquier falla que se detecte, a efectos de que se realicen las reparaciones o ajustes que corresponda a la mayor brevedad posible, con la finalidad de mantenerlos en condiciones óptimas de funcionamiento.

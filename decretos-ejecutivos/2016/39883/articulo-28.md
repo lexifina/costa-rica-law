@@ -1,0 +1,1 @@
+Artículo 28. - En caso de que se requiera trasladar equipos de forma temporal, deben enviar a Control de Activos de Proveeduría Institucional el Formulario "Traslado temporal por giras, capacitaciones, reparaciones y otros".

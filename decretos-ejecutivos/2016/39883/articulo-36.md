@@ -1,0 +1,3 @@
+CAPÍTULO VII
+Acceso y uso al servicio de correo electrónico
+Artículo 36. - A toda persona funcionaria autorizada por la Jefatura de la oficina en que labora se Je asignará una cuenta de correo electrónico en el servidor de la Institución. Se asignará solamente una cuenta por persona. Las cuentas por proyectos o temporales, se asignarán a consideración de la Unidad. Para tales efectos la Jefatura respectiva hará la solicitud correspondiente a la Unidad. En caso de cese de funciones de la persona funcionaria, la jefatura deberá informar a la Unidad, para la cancelación de la cuenta de correo electrónico.

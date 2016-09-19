@@ -1,0 +1,6 @@
+CAPÍTULO III
+Plan Estratégico de Tecnologías de Información (PETI)
+Artículo 10. - Contenido del (PETI). El plan estratégico será elaborado por la Unidad de manera quinquenal y debe someterse a la aprobación de la Comisión. Dicho Plan contendrá lo siguiente:
+a) Parte Informática: Establecerá todas las necesidades de hardware y software y requerimientos que se han de desarrollar a mediano y largo plazo para las Áreas de Atención.
+b) Parte Operativa: Es la planificación del trabajo que desarrollará la Unidad, según el respectivo presupuesto asignado para las Áreas de Atención.
+c) Parte de Contingencias (continuidad, respaldo y recuperación de operaciones): Será desarrollado tomando en cuenta eventos naturales y errores humanos que puedan afectar el normal accionar de todos los bienes informáticos y la información contenida en ellos, pertenecientes a las Áreas de Atención. El mismo tomará en cuenta: Procedimientos de respaldo, internos y externos, diarios, semanales, mensuales y anuales, mecanismos para la seguridad de los equipos, así como la capacitación para contingencias tanto a personas usuarias, técnicas de seguridad y auditoras de TI. En dicho desarrollo habrá una valoración de riesgos.

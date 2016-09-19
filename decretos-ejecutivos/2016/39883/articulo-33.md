@@ -1,0 +1,4 @@
+CAPÍTULO VI
+Acceso a la Red Interna e Internet
+Artículo 33. - A toda persona funcionaria autorizada por la Jefatura de la oficina en que labora, se le asignará una cuenta de acceso de uso y contraseña a Internet la cual es intransferible, por lo que deberá adoptar las medidas necesarias para mantener en secreto su clave de acceso y será la responsable por el uso que se le brinde a la cuenta. Asimismo, solo podrá utilizar la cuenta propia que le ha sido asignada. En caso de detectarse incumplimiento a esta disposición, la persona técnica encargada deberá poner en conocimiento, de tal hecho, a las autoridades administrativas superiores del Ministerio.
+El ingreso a páginas restringidas solo podrá ser brindado por la Unidad, previa autorización escrita por la jefatura respectiva, indicando el nombre de la persona funcionaria, número de cédula y la debida justificación. Para tales efectos la Jefatura respectiva hará la solicitud correspondiente a la Unidad.

@@ -1,0 +1,1 @@
+Artículo 59. - Las personas funcionarias autorizadas para administrar el perfil de las redes sociales digitales de cada dependencia deberán abstenerse de permitir o dar autorizaciones para accesar o promocionar contenidos ajenos a la función de proyección institucional, tales como juegos, aplicaciones u otros que distraigan dicha finalidad.
