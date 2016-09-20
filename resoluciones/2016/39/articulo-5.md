@@ -1,0 +1,1 @@
+Artículo 5. Compromiso. Las relaciones profesionales y personales deberán situarlas en un marco de seriedad, justicia, amabilidad, honorabilidad, tolerancia, comprensión, cortesía y discreción. Cuya actuación deberá estar identificada con la misión y objetivos del SINAC y con sus funciones de manera proactiva.

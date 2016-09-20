@@ -1,0 +1,1 @@
+Artículo 35. Para dar cumplimiento a este Código de Ética los funcionarios que laboren para el SINAC, suscribirán una Carta de Compromiso donde aceptan tener conocimiento de las normas aquí señaladas y su obligatoriedad en acatarlas. Dicho documento formará parte del expediente personal como anexo a los contratos de los funcionarios del SINAC.

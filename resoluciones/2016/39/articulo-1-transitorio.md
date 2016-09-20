@@ -1,0 +1,2 @@
+Transitorio único: Para la implementación de lo dispuesto en el artículo 35 del presente Código el Departamento de Gestión de Recurso Humano establecerá en el plazo de tres meses, el formulario de carta de compromiso a suscribir por los funcionarios con antigüedad que se encuentren nombrados en forma interina o en propiedad en la institución.
+Una vez que se cuente con dicho formulario los Encargados de Recursos Humanos de la Secretaría Ejecutiva y de las Áreas de Conservación formalizaran con todo el personal activo la firma de dicha carta de compromiso.

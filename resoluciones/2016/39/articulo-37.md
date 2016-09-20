@@ -1,0 +1,2 @@
+Artículo 37. El o la Director(a) Ejecutivo(a), los y las Directores (as) de Áreas de Conservación así como las respectivas Jefaturas de cada área funcional deberán promover la cultura de probidad, transparencia, justicia y servicio público establecida en el presente Código.
+Todo servidor público que tenga conocimiento de cualquier acto contrario a lo normado por el presente Código tiene la obligación de informar a la Directora(a) Ejecutivo (a) para la apertura respectivo procedimiento administrativo
