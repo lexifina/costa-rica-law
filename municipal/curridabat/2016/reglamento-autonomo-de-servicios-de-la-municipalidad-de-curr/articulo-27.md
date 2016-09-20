@@ -1,1 +1,2 @@
-Artículo 27.- La Municipalidad reconoce un 2% anual por el concepto de anualidad durante los primeros 10 años y a partir del año 11 se reconoce el 2.5% sin límite, aplicable a la totalidad de las anualidades. Para los efectos se reconocerán años laborados en el sector público para la anualidad o antigüedad, reconociendo las fracciones laboradas en otras entidades del sector público.
+Artículo 27.- La Municipalidad reconoce un 2% anual por el concepto de anualidad durante los primeros 10 años y a partir del año 11 se reconoce el 2.5% sin límite. Para los efectos se reconocerán las fracciones laboradas en otras entidades del sector público.
+(Así reformado en sesión N° 021 del 20 de septiembre de 2016)
