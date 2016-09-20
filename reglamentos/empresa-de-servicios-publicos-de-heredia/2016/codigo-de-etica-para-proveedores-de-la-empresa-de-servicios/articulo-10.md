@@ -1,0 +1,2 @@
+10. Subcontratistas
+Los Proveedores solo pueden emplear subcontratistas en el desempeño de las tareas para la Empresa con la previa aprobación por parte de ésta y después de que el subcontratista haya acordado, comprometerse a cumplir con este Código. Los Proveedores deben garantizar que los subcontratistas que empleen han implementado prácticas éticas y comerciales similares a las normas y las prácticas de la Empresa.

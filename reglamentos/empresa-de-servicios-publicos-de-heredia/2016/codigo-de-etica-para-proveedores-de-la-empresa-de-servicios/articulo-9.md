@@ -1,0 +1,9 @@
+9. Uso de recursos.
+Los Proveedores deberán proteger y conservar los recursos que la Empresa ponga a su disposición y deberán utilizarlos solo para los fines autorizados por ella. Los recursos de la Empresa incluyen elementos tangibles, como vehículos, equipos, establecimientos, insumos y sistemas informáticos y de comunicación, así como también elementos intangibles, como el buen nombre y la reputación de la Empresa, la productividad de los empleados y la información confidencial.
+Los Proveedores deberán respetar en todos sus extremos y no violar los derechos de propiedad intelectual de la Empresa y de terceros, que incluyen, entre otros, información de propiedad exclusiva, derechos de autor, patentes, marcas comerciales y secretos institucionales en general.
+• El proveedor administrará los recursos de la ESPH S.A. con responsabilidad y cuidado como si fueran de su propiedad, cumpliendo con los principios de eficacia, economía y probidad.
+• Todos los proveedores de la ESPH S.A. deberán implementar los controles internos que garanticen la salvaguarda de los recursos de la empresa, dados en custodia, reconociendo su naturaleza de bien empresarial, sujeto de rendición de cuentas.
+• Se prohíbe el uso de herramientas o equipo de trabajo propiedad de la Empresa, para prestar servicios de ajenos a la Empresa y fuera de sus instalaciones.
+* Para el uso de equipo electrónico e internet, se aplicará lo estipulado en las políticas para la gestión de las tecnologías de la información de la ESPH S.A. y el reglamento para monitoreo del uso de internet y correo electrónico.
+• No usar las instalaciones físicas, equipo de oficina, vehículos o demás bienes de la ESPH S.A., para propósitos ajenos a los cuales fueron contratados.
+• Dirigirse con decoro, dentro de las buenas costumbres en las instalaciones de la ESPH y en las relaciones con los funcionarios
