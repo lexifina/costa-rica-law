@@ -1,0 +1,2 @@
+Artículo 11. Suspensión del trámite de cobro por arreglo de pago
+En caso muy calificado, a criterio razonado o por escrito, por única vez, mediante un arreglo de pago y cuando las partes lo soliciten de común acuerdo, se podrá suspender el proceso judicial, cuyo plazo perentorio en ningún caso podrá exceder de dos meses, vencido el plazo se reanudara el proceso, según lo dispuesto en el artículo 202, inciso 3) del Código procesal Civil.
