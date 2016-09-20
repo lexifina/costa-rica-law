@@ -1,0 +1,2 @@
+Artículo 6. Para que el CSN pueda sesionar válidamente, el quórum será el de mayoría absoluta de la totalidad de sus miembros propietarios, o quienes actúen en esa condición.
+Si no hubiere quórum, podrá sesionar en segunda convocatoria, veinticuatro horas después de la señalada para la primera convocatoria, salvo en casos de urgencia, en los que podrá sesionar media hora después de la hora señalada para la primera convocatoria, con la asistencia de la tercera parte de sus miembros.
