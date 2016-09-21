@@ -1,0 +1,1 @@
+Artículo 8. Por ninguna razón deberá revolverse dinero del Fondo de Caja Chica con dinero proveniente de la Recaudación en Caja General, este incumplimiento en caso de ser detectado será causal de amonestación escrita y de ser reiterativo de suspensión del cargo.

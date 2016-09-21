@@ -1,0 +1,1 @@
+Artículo 12. Cuando por algún motivo no se lleve a cabo la compra o el gasto para el cual se solicitó el dinero, el funcionario(a) que ha recibido el dinero de caja chica, deberá hacer el reintegro inmediato de lo recibido.

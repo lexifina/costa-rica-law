@@ -1,0 +1,1 @@
+Artículo 19. De todos los arqueos que se realicen deberá constar evidencia escrita, en original y una copia. El original será archivado como parte de los documentos de la Municipalidad y la copia será entregada a la Tesorería Municipal.
