@@ -1,0 +1,1 @@
+Artículo 10.-De la responsabilidad de la Dirección de Talento Humano. Es responsabilidad de la persona Directora de Talento Humano, determinar cuándo un funcionario en razón de su cargo o labor que desempeñe, debe de rendir la respectiva garantía, independientemente de si el funcionario tiene un nombramiento interino o en propiedad.

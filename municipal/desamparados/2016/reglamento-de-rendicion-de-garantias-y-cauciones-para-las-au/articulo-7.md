@@ -1,0 +1,1 @@
+Artículo 7.- Autoridades y Funcionarios obligados a rendir garantía. Deberán rendir garantía o caución las autoridades y los funcionarios municipales que realicen las labores establecidas en el artículo 1° de este reglamento, a definir por la Alcaldía conjuntamente con la Dirección de Administración Financiera.

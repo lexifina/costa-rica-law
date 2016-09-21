@@ -1,0 +1,1 @@
+Artículo 11.-Deberes de los funcionarios. El funcionario obligado a rendir garantía, que en el ejercicio de sus funciones detecte la pérdida, defraudación, malversación o cualquier situación ocurrida que afecte a la hacienda municipal, deberá comunicarlo inmediatamente a su superior.

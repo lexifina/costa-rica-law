@@ -1,0 +1,1 @@
+Artículo 8.-Monto de garantía. El monto de la garantía o caución lo determinará el ente asegurador de conformidad con la información suministrada por la Administración Municipal en conjunto con la Dirección Financiera, considerando el eventual riesgo según criterios de razonabilidad y proporcionalidad.

@@ -1,0 +1,1 @@
+Artículo 2: Finalidad. La caución tiene como fin garantizar el resarcimiento de eventuales daños y perjuicios que el caucionante responsable, en el ejercicio de sus funciones, pueda producir al patrimonio de la Municipalidad de Desamparados, sin que ello limite la eventual responsabilidad civil, penal y laboral del funcionario.
