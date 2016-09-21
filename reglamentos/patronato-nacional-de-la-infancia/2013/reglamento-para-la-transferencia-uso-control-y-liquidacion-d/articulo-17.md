@@ -1,2 +1,0 @@
-Artículo 17.—La Oficina de Transferencias y Control del Departamento Financiero-Contable, verificará de previo al giro de los recursos que la ONG se encuentra declarada como patrono activo y al día o en arreglo judicial certificado así por la CCSS. Igualmente, estar al día con el pago de la cuota a favor del FODESAF.
-De encontrarse morosa o con alguna irregularidad ante la CCSS o FODESAF, la oficina de Transferencias y Control, comunicará dicha situación a la ONG y advertirá a la ONG sobre la imposibilidad de girar los recursos hasta que no se cumpla con dichos requisitos.

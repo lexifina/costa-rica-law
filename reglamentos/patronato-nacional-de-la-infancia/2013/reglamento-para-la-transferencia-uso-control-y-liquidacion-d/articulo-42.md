@@ -1,2 +1,0 @@
-Artículo 42.—Las fechas límite para la presentación ante el Departamento Financiero de la liquidación de los recursos transferidos por el PANI es entre el 1º de enero al 30 de junio de cada año, iniciará a partir del día 15 y hasta el 30 de julio de cada año.
-En el caso de los recursos transferidos entre el 1º de julio y el 31 de diciembre de cada año, la fecha límite para la presentación de la citada liquidación será a partir del día 15 y hasta el 30 de enero de año siguiente.

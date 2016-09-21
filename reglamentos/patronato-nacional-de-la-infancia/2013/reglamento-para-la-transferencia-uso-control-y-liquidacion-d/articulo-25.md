@@ -1,1 +1,0 @@
-Artículo 25.—Toda erogación realizada por los medios establecidos en el artículo anterior, deberá contar con la aprobación de los responsables de la firma mancomunada de la cuenta corriente, para la cual los sujetos privados deberán establecer los mecanismos de control necesarios que garanticen el uso correcto de dichos recursos.

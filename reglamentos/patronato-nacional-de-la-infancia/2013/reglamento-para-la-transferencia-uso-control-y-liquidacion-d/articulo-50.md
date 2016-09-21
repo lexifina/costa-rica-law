@@ -1,4 +1,0 @@
-Artículo 50.—Para los proyectos específicos y programas dirigidos a la educación, promoción, prevención y defensa y de los derechos de las personas menores de edad, deberán cumplir con lo indicado en el presente Reglamento, sin detrimento de otras disposiciones que dicten las Gerencias Técnica y de Administración.
-Los recursos que el PANI transfiera para financiar los proyectos específicos, podrán destinarse a las áreas indicadas en el artículo 26 del presente reglamento, y a otros rubros que sean atinentes a la ejecución del proyecto, y que hayan sido previamente aprobados por los Departamentos de Acreditación y Financiero Contable.
-Además de lo indicado en el artículo 27 del presente reglamento, en ningún caso los recursos transferidos se podrán destinar para el pago de preaviso y cesantía.
-(Así reformado mediante sesión ordianria N° 2015-031 del 21 de agosto del 2015)

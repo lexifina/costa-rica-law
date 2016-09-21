@@ -1,1 +1,0 @@
-Artículo 20.—Tratándose de programas con modalidad de centros de atención integral, con horario diurno, no se descontará del monto a girar, la inasistencia de personas menores de edad por un máximo de 5 días, siempre y cuando se demuestre al PANI que el niño o niña no ha dejado de pertenecer al programa subvencionado y que la ausencia no es imputable al programa.

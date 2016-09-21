@@ -1,1 +1,0 @@
-Artículo 32.—Las organizaciones no gubernamentales dispondrán de un control auxiliar para el manejo de la cuenta corriente que ha sido asignada a los recursos que transfiere el PANI. El mismo deberá llevarse en forma consecutiva por cheque emitido, transferencia bancaria o electrónica, así como el registro de los movimientos, débitos y créditos que afecten el saldo.

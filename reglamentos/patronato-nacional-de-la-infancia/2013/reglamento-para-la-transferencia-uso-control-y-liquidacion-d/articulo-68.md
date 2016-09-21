@@ -1,1 +1,0 @@
-Artículo 68.—A los hogares solidarios nuevos se les podrá reconocer por una única vez, un monto por concepto de gastos de instalación, previa solicitud de la Oficina Local competente, el cual debe incorporarse en la planilla de pago mensual correspondiente. Dicho monto será igual al de la subvención mensual por persona menor de edad.

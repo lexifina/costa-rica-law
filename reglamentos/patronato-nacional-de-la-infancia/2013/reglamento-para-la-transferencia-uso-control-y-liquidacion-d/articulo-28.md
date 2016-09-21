@@ -1,1 +1,0 @@
-Artículo 28.—Las ONG utilizarán los clasificadores de ingresos y de egresos aprobados por la Contraloría General de la República en la elaboración de los presupuestos que debe remitir para su aprobación.

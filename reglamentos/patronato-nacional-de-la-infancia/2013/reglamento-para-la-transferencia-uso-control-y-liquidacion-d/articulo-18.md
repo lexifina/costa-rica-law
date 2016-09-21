@@ -1,3 +1,0 @@
-Sobre el financiamiento por cupos y planilla para el pago
-del subsidio a las ONG por persona menor de edad
-Artículo 18.—El monto de los recursos presupuestados a cada ONG dependerá del número de cupos aprobados para el programa en un período específico. Trimestralmente, el Departamento Financiero-Contable informará al Departamento de Acreditación sobre los remanentes de la partida presupuestaria donde se imputan las transferencias a las ONG para que el Departamento de Acreditación proponga la distribución de dichos remanentes según estudios técnicos previos. Esta propuesta deberá ser avalada por la Gerencia Técnica.

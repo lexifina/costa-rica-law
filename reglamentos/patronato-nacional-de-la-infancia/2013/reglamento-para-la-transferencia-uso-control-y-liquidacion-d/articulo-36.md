@@ -1,1 +1,0 @@
-Artículo 36.—Las ONG deberán contar con un expediente de todos los trabajadores, activos o salientes de la organización, donde se registre como mínimo: Nombre completo, cédula de identidad o residencia, nacionalidad, dirección, teléfono, cargo que desempeña, salario, fecha de ingreso, y fecha de egreso. Dicho expediente estará a la disposición del PANI cuando así se requiera.

@@ -1,1 +1,0 @@
-Artículo 60.—El monto mensual del subsidio será aquel que la Junta Directiva del Patronato Nacional de la Infancia apruebe anualmente y será depositado por medio de la Caja Única del Estado. Asimismo, para este fin se reconocerá la apertura de cuentas de ahorros o cuenta corriente.

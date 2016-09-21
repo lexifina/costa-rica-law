@@ -1,1 +1,0 @@
-Artículo 27.—En ningún caso podrán destinarse los recursos girados por el PANI a fines comerciales o políticos u otros distintos a los contemplados en los convenios y adendas suscritos entre la ONG y el PANI.

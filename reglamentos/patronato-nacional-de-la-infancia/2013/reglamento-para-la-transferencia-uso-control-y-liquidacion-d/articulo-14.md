@@ -1,1 +1,0 @@
-Artículo 14.—El plazo de vigencia de los convenios se establece por un año y podrá ser prorrogado por la Administración mediante la suscripción de adendas, hasta un plazo máximo de tres años, es decir, un total de cuatro años.

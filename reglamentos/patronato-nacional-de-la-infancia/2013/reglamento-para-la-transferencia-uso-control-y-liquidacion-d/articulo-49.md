@@ -1,1 +1,0 @@
-Artículo 49.—En caso de transferencias extraordinarias por parte del PANI para proyectos específicos, la liquidación se efectuará conforme las fechas estipuladas en el convenio o adenda correspondiente o mediante disposición previamente establecida. Los saldos no ejecutados seguirán el procedimiento de devolución establecido en el artículo anterior del presente reglamento.
