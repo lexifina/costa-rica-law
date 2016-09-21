@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Alcance. El presente reglamento es de acatamiento obligatorio para todas las personas físicas o jurídicas, públicas o privadas, que requieran de servicios administrativos por parte de la Municipalidad del Cantón de León Cortés Castro.
