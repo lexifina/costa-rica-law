@@ -1,0 +1,2 @@
+ARTÍCULO 25.-
+La Proveeduría Municipal exigirá la garantía de cumplimiento, en los supuestos en que así lo determine el Pliego de condiciones o invitación a cotizar, respetando los términos dispuestos en el artículo 40 del Reglamento General de Contratación Directa. Las garantías de cumplimiento, serán controladas, en cuanto a su monto y vigencia, por parte de la Proveeduría Municipal. La custodia de las mismas estará a cargo de la Tesorería Municipal.

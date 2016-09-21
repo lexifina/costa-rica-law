@@ -1,0 +1,2 @@
+ARTÍCULO 40.-
+El encargado de caja chica podrá hacer adelantos de dinero a cualquier funcionario de la Municipalidad para gastos de viaje y de transporte. En este supuesto, el funcionario deberá presentar la liquidación de gastos dentro de los tres días hábiles siguientes a la conclusión de la gira o viaje, según lo dispuesto en el Reglamento de Gastos de Viaje y de Transporte vigente.

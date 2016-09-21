@@ -1,0 +1,2 @@
+ARTÍCULO 26.-
+La Dirección del departamento promotor de la contratación, en los casos de obras o servicios y en aquellos otros que determine la Proveeduría Municipal, deberá poner un visto bueno a las facturas que presente el proveedor para efectos de pagos parciales o finales de la contratación. El Departamento de Hacienda Municipal a través de sus dependencias, ejecutará el trámite de pago respectivo, una vez sea ordenado mediante nómina firmada por el Alcalde Municipal.

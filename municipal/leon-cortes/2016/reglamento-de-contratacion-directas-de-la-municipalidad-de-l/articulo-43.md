@@ -1,0 +1,2 @@
+ARTÍCULO 43.-
+La Dirección de Hacienda Municipal o el funcionario que esta designe, deberá realizar al menos dos arqueos sorpresivos por mes del fondo de caja chica y emitir un informe sobre el resultado de cada arqueo. Por otra parte, la Auditoría Interna también realizará arqueos de ese fondo, de acuerdo con su programa de trabajo.

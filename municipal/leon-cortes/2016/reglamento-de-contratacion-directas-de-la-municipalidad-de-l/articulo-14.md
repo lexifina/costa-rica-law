@@ -1,0 +1,2 @@
+ARTÍCULO 14.-
+La Proveeduría Municipal tendrá a su cargo la responsabilidad de constituir y mantener actualizado el Registro de Proveedores. Ese departamento invitará, al menos una vez al año, a todos los interesados a inscribirse o a actualizar su información en el Registro de Proveedores. La invitación se hará en el Diario Oficial La Gaceta y, si se estima necesario, también se podrá publicar en cualquier otro medio de comunicación masiva
