@@ -1,0 +1,15 @@
+MUNICIPALIDAD DE ALAJUELA
+REGLAMENTO DE SEGURIDAD MUNICIPAL (POLICÍA MUNICIPAL) Y
+CONTROL VIAL DEL CANTÓN CENTRAL DE ALAJUELA.
+El Concejo Municipal de la Municipalidad del Cantón Central de la Provincia de Alajuela, en el uso de sus atribuciones establecidas en los artículos 169 y 170 de la Constitución Política y artículo 13 incisos c) y d) del Código Municipal, por acuerdo tomado en el artículo Nº 7, capítulo V de la Sesión Ordinaria Nº 04-2016 del 26 de enero de 2016, aprobó el presente reglamento.
+Considerando:
+1 ° Que el marco jurídico en que se fundamenta el actual Reglamento del Departamento de Policía Municipal, ha sido modificado sustancialmente con la entrada en vigencia de reformas al Código Municipal, Ley N º 7794, Reglamento para el Funcionamiento de los Cuerpos Especiales de Inspectores de Tránsito (Decreto Ejecutivo N º 38164-MOPT), así como pronunciamientos de la Sala Constitucional y más recientemente la Ley General de Transferencia de Competencias del Poder Ejecutivo a las Municipalidades, lo cual obliga a modificar sustancialmente el citado cuerpo normativo.
+2° Que de acuerdo con lo anterior, es necesario un cuerpo de disposiciones reglamentarias fundamentadas en el artículo 4 incisos a) y c) del Código Municipal vigente.
+3° Que la Sala Constitucional de la Corte Suprema de Justicia ha dictado la resolución número 10134-99, de las once horas del veintitrés de diciembre de mil novecientos noventa y nueve, en la cual analizó la regularidad constitucional de la Policía Municipal en nuestro país y dispuso una serie de atribuciones a cargo de un cuerpo policial, sin perjuicio de las que existen para la Policía Nacional.
+4° Que relacionado a lo anterior, algunas disposiciones a que alude el actual Reglamento de Policía se refieren a aspectos derogados, lo cual convierte el texto en difícil aplicación y por ser carente de sistematicidad jurídica. Por tanto,
+Acuerda emitir el presente Reglamento de Seguridad Municipal (policía municipal) y Control Vial del Cantón Central de Alajuela.
+CAPÍTULO I
+Disposiciones Generales
+Fines y Definiciones
+El Proceso de Seguridad Municipal y Control Vial
+Artículo 1 ° La Seguridad Municipal, entendido como Policía Municipal y las funciones de Control Vial, son ejercidos dentro de la estructura organizacional por el Proceso de Seguridad Municipal y Control Vial. Dicho Proceso tiene como finalidad coordinar, dirigir, planificar y ejecutar acciones en materia de seguridad ciudadana tendientes a mantener adecuados niveles de prevención, intervención, salvaguarda de la integridad de las y los ciudadanos y de los bienes públicos, privados e institucionales, mediante un cuerpo especial de vigilancia y seguridad que contribuya a mantener el orden público en el Cantón de Alajuela, y lograr un permanente control y vigilancia sobre las áreas de estacionamiento autorizado, con el objetivo de mejorar el servicio y la confianza de los Alajuelenses y velar por el cumplimiento de la normativa en esta materia, así como coadyuvar en el cumplimiento y aplicación de la Ley que regula el tránsito dentro del Cantón, en su función de Inspectores Municipales de Tránsito.

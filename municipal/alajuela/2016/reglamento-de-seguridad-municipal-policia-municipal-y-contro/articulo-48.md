@@ -1,0 +1,1 @@
+Artículo 48° En todo aquello no previsto en este reglamento, se aplicará, supletoriamente, el Código Municipal, la Convención Colectiva de los Trabajadores de la Municipalidad de Alajuela, la Ley General de la Administración Pública, Reglamento Autónomo de Organización y Servicio de la Municipalidad de Alajuela, Código de Trabajo y demás normativa conexa.

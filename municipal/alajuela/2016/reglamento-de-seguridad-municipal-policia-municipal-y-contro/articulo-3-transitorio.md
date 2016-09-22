@@ -1,0 +1,1 @@
+Artículo Transitorio III. Realizar los ajustes correspondientes en el Manual de Clases de Puestos en lo atinente a la coordinación, control e inspección de estacionamientos y parquímetros, como una actividad propia del Proceso de Seguridad Municipal y Control Vial.

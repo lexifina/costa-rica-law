@@ -1,0 +1,1 @@
+Artículo 34° Los (as) policías municipales deberán, en todo momento, presentarse en perfecto estado y aseo personal, manteniendo en buen estado de conservación, tanto el vestuario como los equipo que le fueran entregados o encomendados para su uso y/o custodia; procurando siempre una imagen decorosa.

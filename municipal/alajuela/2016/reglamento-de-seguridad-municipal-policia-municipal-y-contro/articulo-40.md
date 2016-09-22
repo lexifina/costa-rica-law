@@ -1,0 +1,1 @@
+Artículo 40° Los miembros de la Policía Municipal tendrán derecho a la Jubilación de acuerdo a lo establecido con la legislación vigente y asimismo, gozarán de los derechos pasivos que les pudiera corresponder.

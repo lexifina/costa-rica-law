@@ -1,0 +1,2 @@
+Función de Control Vial y atribuciones
+Artículo 2° La función de control vial implica ejecutar las actividades de inspección y verificación de la utilización de los estacionamientos y parquímetros, a partir de visitas, recorridos e inspecciones en zonas de estacionamiento, parquímetros; el análisis y verificación del cumplimiento de los reglamentos, los requerimientos de funcionamiento y la presentación de los informes del caso, entre otras actividades dé similar naturaleza.
