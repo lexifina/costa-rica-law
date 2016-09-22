@@ -1,0 +1,2 @@
+Artículo 3.- Función de CMECA.
+El CMECA tendrá como función esencial colaborar en el control de la sobrepoblación de perros y gatos callejeros en el cantón de Cartago, mediante esterilizaciones, así como desarrollar programas de salud pública y de educación, con el fin de mejorar las condiciones de vida de personas y animales del cantón, así como procurar el bienestar animal y la tenencia responsable de mascotas.

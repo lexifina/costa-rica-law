@@ -1,0 +1,3 @@
+Artículo 16.- Expediente de cada animal.
+Se deberá preparar un expediente a cada animal que ingrese al CMECA, que tendrá la siguiente información: fecha de ingreso o nacimiento, espacio para fecha de egreso, nombre, cédula, teléfonos y dirección exacta del propietario (cuando aplique), se anotarán además las características físicas del animal (especie, raza, sexo, peso, color), las características etológicas y se abrirá una hoja clínica para anotar los hallazgos del examen clínico y tratamientos suministrados.
+Cada expediente deberá ser numerado y archivado, de forma que el personal del CMECA pueda tener acceso a la información e identificar con facilidad los animales que han sido esterilizados.
