@@ -1,0 +1,1 @@
+Artículo 5° -Las ayudas que brinde la Municipalidad serán destinadas exclusivamente a solventar, las necesidades de las personas, originadas directamente por el evento definido en el artículo 3° de este reglamento.

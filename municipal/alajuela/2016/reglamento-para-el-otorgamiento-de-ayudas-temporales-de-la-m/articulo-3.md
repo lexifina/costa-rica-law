@@ -1,0 +1,3 @@
+CAPITULO II
+De las ayudas por situaciones de desgracia o infortunio
+Artículo 3° -Se define la desgracia o el infortunio como aquellos acontecimientos inesperados que amenazan gravemente la integridad física y emocional de una persona o núcleo familiar, como los provocados por eventos de la naturaleza tales como, terremotos, huracanes, tomados, deslizamientos, inundaciones, derrumbes e incendios; o bien por hechos derivados de condiciones socioeconómicas patológicos, como muerte, enfermedad crónica, miseria extrema o indigencia y desempleo, que afecte directamente a la persona o la familia solicitante.

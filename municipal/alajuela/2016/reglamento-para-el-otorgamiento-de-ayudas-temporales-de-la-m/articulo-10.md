@@ -1,0 +1,2 @@
+Artículo 10.-Las ayudas en casos extremadamente necesarios, cuando se trate del pago de alquiler para vivienda, requerirá recomendación previa dirigida a la Comisión Permanente de Asuntos Sociales y la respectiva aprobación del Concejo Municipal para su ejecución.
+Antes de determinarse el pago de alquiler de vivienda, la cual debe considerarse como excepción calificada y no se otorgará por más de dos meses de alquiler. Se deberán agotar todas y cada una de las opciones que pueda ofrecer la sociedad en general.
