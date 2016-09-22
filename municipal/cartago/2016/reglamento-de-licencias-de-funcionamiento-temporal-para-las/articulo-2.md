@@ -1,0 +1,1 @@
+ARTÍCULO 2: DEL DEBER DE PORTAR EL CARNET DE MANIPULACION DE ALIMENTOS: Los colaboradores de los solicitantes que trabajen en expendios temporales de alimentos, deberán portar en todo momento el carné de manipulación de alimentos vigente durante el desarrollo de la actividad.

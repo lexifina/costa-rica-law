@@ -1,0 +1,3 @@
+ARTÍCULO 5: SUMISIÓN DE LA AUTORIZACIÓN A INSPECCIONES Y RECOMENDACIONES TECNICAS PREVIAS: La aprobación de la autorización de funcionamiento temporal, estará sujeta a los resultados de las visitas de inspección y recomendaciones brindadas por las autoridades competentes.
+Asimismo, se programarán inspecciones posteriores a la aprobación de dicha autorización.
+En caso de que se advierta incumplimientos graves, se revocará temporalmente el permiso otorgado hasta que sean corregidas las anomalías identificadas, y se clausurará el local en forma temporal. De no corregirse los incumplimientos en el plazo que se fije, se revocará definitivamente la autorización aprobada.

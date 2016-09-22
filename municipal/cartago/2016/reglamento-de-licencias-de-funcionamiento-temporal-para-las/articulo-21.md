@@ -1,0 +1,6 @@
+ARTÍCULO 21: DE OTROS REQUISITOS PARA AUTORIZAR LICENCIAS EN PROPIEDAD PRIVADA: Además de los requisitos que constan en los artículos anteriores, los solicitantes deberán cumplir con los siguientes:
+a.- Formulario de Licencia de Funcionamiento Temporal para la Festividad de la Virgen de los Ángeles debidamente lleno y firmado por el/los propietario (s) del inmueble y el solicitante de la licencia *En caso de que el inmueble tenga más de un propietario adjunte a este formulario lista con el nombre, número de identificación y firma de cada uno de los propietarios. Este formulario tendrá carácter de Declaración Jurada.
+b.- Fotocopia del documento de identidad del solicitante y el/los propietario (s) del inmueble.
+c.- Si la licencia es solicitada por una persona jurídica y/o el dueño de la propiedad es una persona jurídica se debe adjuntar original de personería jurídica, con no más de tres meses de expedida.
+d.- Autorización Sanitaria de Funcionamiento Temporal emitida por el Área Rectora de Salud Cartago. Todas las actividades deberán contar con la Autorización Temporal extendida por el Ministerio de Salud, para la actividad (es) solicitada (s).
+f.- El solicitante deberá estar al día con el pago de los tributos municipales, incluidos arreglos de pago y demás obligaciones (Ley 4755, Art. 18)

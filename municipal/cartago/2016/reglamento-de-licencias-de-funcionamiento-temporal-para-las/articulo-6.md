@@ -1,0 +1,1 @@
+ARTÍCULO 6: DEL MANEJO ADECUADO DE LAS AGUAS RESIDUALES: Todo puesto temporal deberá disponer de facilidades para la evacuación sanitaria de las aguas servidas de cualquier naturaleza que sean, ya sea por medio de trampas de grasa y drenajes o cualquier otro medio para su recolección y tratamiento.

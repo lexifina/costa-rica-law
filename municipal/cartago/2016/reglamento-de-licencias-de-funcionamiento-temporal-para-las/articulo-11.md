@@ -1,0 +1,1 @@
+ARTÍCULO 11: DEBER DE CONTAR CON LAS POLIZAS DE SEGUROS CORRESPONDIENTES: Los solicitantes deberán presentar original y copia de las Pólizas de Riesgos del Trabajo y Responsabilidad Civil General ante el Área Rectora de Salud de Cartago.
