@@ -1,0 +1,1 @@
+Artículo 26.- Registro del convenio. El INCOFER remitirá al Registro Nacional de Telecomunicaciones todos los convenios de permisos de uso simple para infraestructura de telecomunicaciones que realice, así como sus modificaciones, reformas, ampliaciones o adendas, para su respectiva inscripción.

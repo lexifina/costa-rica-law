@@ -1,3 +1,1 @@
-CAPÍTULO V
-Formalidad de los permisos
-Artículo 11.—Una vez autorizado por la Junta Directiva, el Departamento Legal confeccionará un documento que contendrá los aspectos autorizados por el Consejo Directivo y diligenciará la firma de los mismos. Cuando algún permisionario no se presente a firmar en un plazo de quince días después de autorizado, comunicará de esta situación al Presidente Ejecutivo para lo que proceda.
+Artículo 11.- El Consejo Directivo conocerá en sus sesiones ordinarias los permisos de uso que se hayan diligenciado y presentado y que hayan cumplido con el procedimiento aquí descrito. Cuando sean aprobados, se hará un acuerdo por cada permiso autorizado que indicará sus principales características. Los mismos se comunicarán al Departamento Legal para la confección del documento que los acredite.

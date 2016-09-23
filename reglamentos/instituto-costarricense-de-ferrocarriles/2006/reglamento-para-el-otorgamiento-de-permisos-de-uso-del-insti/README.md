@@ -14,3 +14,4 @@ Reglamento para el Otorgamiento de Permisos de Uso del Instituto Costarricense d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-09-04 | la propia norma |
+| 2 | 2016-09-23 | Reglamento 0 (2016-09-23) |

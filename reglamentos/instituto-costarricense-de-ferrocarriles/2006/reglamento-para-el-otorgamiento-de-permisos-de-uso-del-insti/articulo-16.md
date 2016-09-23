@@ -1,1 +1,1 @@
-Artículo 16.—Recibida una solicitud de esta naturaleza, la CPUI someterá la misma a conocimiento del Presidente Ejecutivo, y operará lo establecido en el numeral 7 del presente Reglamento.
+Artículo 16.-Una vez suscrito el convenio, el Departamento Legal enviará oficio de remisión a los departamentos de Contabilidad, Tesorería y Gerencia Administrativa, informándoles de ese hecho para las acciones correspondientes por cada uno de los departamentos.

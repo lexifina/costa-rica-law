@@ -1,0 +1,1 @@
+Artículo 24.- Condiciones para uso compartido: Las infraestructuras físicas necesarias para la prestación de servicios de telecomunicaciones, que se encuentren en el derecho de vía, en la medida de lo posible deberán ser compartidas, por lo que el INCOFER procurara que en los permisos de uso simple para infraestructura de telecomunicaciones que se realicen se promueva dicho uso.

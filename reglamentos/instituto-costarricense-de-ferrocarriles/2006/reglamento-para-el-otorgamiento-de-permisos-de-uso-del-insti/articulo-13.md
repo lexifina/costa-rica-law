@@ -1,1 +1,1 @@
-Artículo 13.—Una vez suscrito el convenio, el Departamento Legal enviará oficio de remisión a los departamentos de Contabilidad, Tesorería y Gerencia Administrativa, informándoles de ese hecho para las acciones correspondientes por cada uno de los departamentos.
+Artículo 13.- Solución de conflictos. Las diferencias de criterio que surjan con motivo de la aplicación de este reglamento, se podrán resolver de conformidad con el artículo 35 de la Ley N° 7001, Ley Orgánica del INCOFER.

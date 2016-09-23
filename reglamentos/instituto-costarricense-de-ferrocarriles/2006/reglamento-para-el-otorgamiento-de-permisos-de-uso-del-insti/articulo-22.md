@@ -1,0 +1,3 @@
+Artículo 22.- Requisitos. Para el otorgamiento del permiso, el interesado deberá presentar, además de los requisitos dispuestos en los artículos 5 y 6 del presente reglamento, los siguientes:
+a) Propuesta técnica del permisionario donde se señale el tipo de infraestructura que se instalará (ductos, postes, torres, estaciones y otros) y características técnicas de la misma, señalando la ubicación de los puntos o trazado de la ruta de manera georreferenciada aportando la latitud y longitud.
+b) Documento idóneo donde demuestre que es sujeto de título habilitante en los términos contenidos en la Ley N° 8642, Ley General de Telecomunicaciones.

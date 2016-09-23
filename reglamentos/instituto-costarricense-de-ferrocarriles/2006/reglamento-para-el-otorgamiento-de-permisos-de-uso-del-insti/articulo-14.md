@@ -1,1 +1,3 @@
-Artículo 14.—Cuando de acuerdo al Reglamento de Refrendos de la Contraloría General de la República sea necesaria la Autorización del Área de Autorizaciones y Aprobaciones de dicho órgano, el Convenio deberá enviarse al efecto, y su vigencia deberá establecerse a partir del refrendo respectivo. Cuando no sea así se regirá por el Reglamento de Refrendo Interno de las Contrataciones del Instituto Costarricense de Ferrocarriles que por su monto o naturaleza no requieren del refrendo contralor.
+CAPÍTULO V
+Formalidad de los permisos
+Artículo 14.-Una vez autorizado por la Junta Directiva, el Departamento Legal confeccionará un documento que contendrá los aspectos autorizados por el Consejo Directivo y diligenciará la firma de los mismos. Cuando algún permisionario no se presente a firmar en un plazo de quince días después de autorizado, comunicará de esta situación al Presidente Ejecutivo para lo que proceda.
