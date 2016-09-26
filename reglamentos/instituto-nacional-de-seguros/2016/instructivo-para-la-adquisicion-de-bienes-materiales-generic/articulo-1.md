@@ -1,0 +1,6 @@
+INSTITUTO NACIONAL DE SEGUROS
+INSTRUCTIVO PARA LA ADQUISICIÓN DE MATERIALES
+GENÉRICOS DE CONSTRUCCIÓN –MANTENIMIENTO
+FÍSICO Y REMODELACIÓN DE LA RED DE OFICINAS-
+1. Propósito: Establecer un instructivo que contemple las actividades generales necesarias para la adquisición de materiales genéricos de construcción (mantenimiento y remodelación de la red de oficinas) en el Instituto Nacional de Seguros, en adelante Instituto.
+Las contrataciones que el Instituto a través del Departamento de Proveeduría (en adelante Proveeduría) llegue a celebrar al amparo de este marco normativo, se sustentan en la autorización que para tales efectos otorgó la Contraloría General de la Republica por medio del oficio 07498 (DJ- 0231) del 15 de julio 2009 y las prórrogas concedidas en los oficios 04964 (DJ-2078) del 28 de mayo 2010 en el cual además se autorizó la reforma de los numerales 4, inciso e) y 12), oficio 05138 (DJ-2131) del 2 de junio 2010 en el que se autorizó la modificación del numeral 4, inciso a), oficio 6107 (DCA-1455) del 21 de junio 2012 y el oficio 10897 (DCA- 2101) del 19 de agosto 2016, mismas que fueron solicitadas por el Instituto con fundamento en lo que establece el artículo 2 inciso h) de la Ley de Contratación Administrativa.

@@ -1,0 +1,1 @@
+8. Formalización del contrato: Cada vez que se le adjudique, el Instituto extenderá una orden de compra que constituirá en el documento que ordene la correspondiente ejecución contractual. El Instituto entregará la orden de compra o bien la notificará por facsímil a más tardar un día hábil posterior a la adjudicación.

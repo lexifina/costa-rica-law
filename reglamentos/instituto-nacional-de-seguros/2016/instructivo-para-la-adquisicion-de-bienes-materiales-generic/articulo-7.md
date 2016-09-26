@@ -1,0 +1,1 @@
+7. Vigencia del procedimiento: Este procedimiento tendrá una vigencia de un año a partir de la autorización dada por la Contraloría General de la Republica en el oficio indicado al inicio de este instructivo, y podrá prorrogarse nuevamente la aplicación de este instructivo con la previa autorización del Órgano Contralor.
