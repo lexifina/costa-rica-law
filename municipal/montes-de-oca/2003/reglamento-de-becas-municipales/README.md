@@ -15,3 +15,4 @@ Reglamento de Becas Municipales.
 | --- | --- | --- |
 | 1 | 2003-09-08 | la propia norma |
 | 2 | 2009-11-09 | Reglamento municipal 185 (2009-11-09) |
+| 3 | 2016-09-26 | Reglamento municipal 22 (2016-09-26) |
