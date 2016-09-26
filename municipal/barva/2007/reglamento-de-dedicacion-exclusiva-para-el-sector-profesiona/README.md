@@ -14,3 +14,4 @@ Reglamento de Dedicación Exclusiva para el Sector Profesional de la Municipalid
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-12-10 | la propia norma |
+| 2 | 2016-09-26 | Reglamento municipal 0 (2016-09-26) |
