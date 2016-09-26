@@ -1,1 +1,0 @@
-Artículo 25,—No obstante lo dispuesto en el articulo 21 de este Reglamento, los trabajadores de IFAM, están en la ineludible obligación de laborar jornada emergente, cuando por siniestro ocurrido o riesgo inminente, peligren las instalaciones, la maquinaria o personal del IFAM lo que no les da derecho a remuneración adicional.

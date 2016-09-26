@@ -1,1 +1,0 @@
-Artículo 36—Al ocurrir una vacante o con motivo de la creación de un nuevo puesto, sujeto a las normas de este Reglamento, el Director del Departamento correspondiente, autorizado por el Director Ejecutivo, cuando se requiera solicitará a la Sección de Personal, que le proporcione una terna de elegibles para escoger entre ellos, el que será recomendado para el nombramiento.

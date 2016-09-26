@@ -1,1 +1,0 @@
-Artículo 100—DEL DESCANSO SEMANAL: Todo trabajador del IFAM disfrutará de dos días de descanso absoluto después de cada semana continua de trabajo, excepto los guardas dormilones que disfrutarán de un día de descanso semanal, por la propia naturaleza de sus funciones y jornada de trabajo.

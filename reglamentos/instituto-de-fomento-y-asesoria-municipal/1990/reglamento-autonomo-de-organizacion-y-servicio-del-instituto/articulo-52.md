@@ -1,1 +1,0 @@
-Artículo 52.—La Sección de Personal será la encargada de mantener al día el Manual Descriptivo de Puestos debiendo incluir en el mismo las especificaciones de los nuevos puestos que se establezcan y crean en la Institución, así como hará las correcciones que se consideren necesarias a las especificaciones ya contenidas en el manual.

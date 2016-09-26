@@ -1,2 +1,0 @@
-Artículo 128— Para cumplir lo señalado en el artículo anterior, se constituirá una Comisión de Salud Ocupacional, integrada con igual número de representantes del patrono y de los trabajadores y tendrá como finalidad investigar las causas de los riesgos del trabajo, determinar las medidas para prevenirlos y vigilar para que en el centro de trabajo se cumplan las disposiciones relativas a la salud ocupacional.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 135 al 128 actual).

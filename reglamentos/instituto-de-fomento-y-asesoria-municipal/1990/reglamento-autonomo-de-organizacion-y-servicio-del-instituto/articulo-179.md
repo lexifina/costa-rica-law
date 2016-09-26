@@ -1,3 +1,0 @@
-Artículo 179.— El presente Reglamento rige a partir de su publicación.
-(Mediante sesión N° 2359 del 5 de enero de 1994, se corre la numeración de este artículo pasándolo del anterior 174 al 167. Posteriormente mediante sesión N° 2557 del 18 de diciembre de 1995, fue corrida nuevamente su numeración que lo traspasó del anterior 167 al 179 actual).
-Aprobado por la Junta Directiva mediante acuerdo quinto de la sesión ordinaria 1991 celebrada el siete de mayo de mil novecientos noventa. Se le introdujeron modificaciones por acuerdo cuarto de la sesión extraordinaria 2350, celebrada el día seis de diciembre de mil novecientos noventa y tres.

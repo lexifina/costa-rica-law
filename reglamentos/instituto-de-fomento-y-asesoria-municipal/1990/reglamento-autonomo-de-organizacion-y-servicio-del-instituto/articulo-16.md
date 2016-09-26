@@ -1,5 +1,0 @@
-Artículo 16.—Los contratos de trabajo serán:
-a- POR TIEMPO INDEFINIDO: Cuando el trabajador conviene en prestar sus servicios durante un tiempo cuyo fin no puede preverse, por ser la naturaleza del trabajo inherente a las actividades normales de la Institución.
-b- A PLAZO FIJO: Cuando el trabajador conviene en prestar sus servicios durante un período determinado, cuya iniciación y terminación se conocen previamente. Estos nombramientos se podrán efectuar para sustituir a quienes se encuentran en disfrute de vacaciones, licencias, incapacidades, etc.
-c- POR OBRA DETERMINADA: Cuando el trabajador conviene en prestar sus servicios para la realización de un trabajo u obra específica, en cuyo caso se conoce la fecha de inicio, pero se ignora su terminación.
-d- DE APRENDIZAJE: Los contratos que se formalicen por escrito y que tiendan a la formación profesional o técnica del individuo, en virtud de disposición legal o bien por convenios celebrados con instituciones de educación media o superior, o con las municipalidades.

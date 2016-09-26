@@ -1,2 +1,0 @@
-Artículo 90.—Las vacaciones son absolutamente incompensables, pero si se tratare de labores que no sean pesadas, peligrosas ni insalubres y que exijan , continuidad por la índole de las necesidades que satisfacen, a solicitud de la Administración el trabajador podrá consentir en prestar sus servicios durante el periodo de vacaciones, dependiendo de las posibilidades financieras del IFAM.
-(Así reformado mediante sesión N° 2529 del 6 de setiembre de 1995).

@@ -1,2 +1,0 @@
-Artículo 117— Todos los trabajadores del IFAM, con la excepción de lo excluidos expresamente por la Ley y los Reglamentos correspondientes de la Caja Costarricense se Seguro .Social, estarán amparados por los beneficios que como contraprestación al pago de las cuotas obrero patronales se conceden dentro del Régimen obligatorio de Seguros Sociales, denominado Invalidez. Vejez y Muerte.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 124 al 117 actual).

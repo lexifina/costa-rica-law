@@ -1,2 +1,0 @@
-Artículo 156.—En casos de faltas de extrema gravedad, cometidas por servidores que manejen fondos o desempeñan funciones de responsabilidad, o en circunstancias en que se haga necesario salvaguardar el decoro de la Institución, se procederá a suspender al servidor, hasta por el tiempo máximo permitido por este Reglamento para llevar a cabo las investigaciones necesarias y levantar las informaciones pertinentes.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 163 al 156 actual).

@@ -1,1 +1,0 @@
-Artículo 49—Por puesto se entenderá el conjunto de deberes y responsabilidades que requieren la atención de un servidor, durante la totalidad o parle de su jornada, en forma permanente, para ejecutar una actividad de la Institución, ya sea administrativa, de servicio, técnica profesional asistencial o de asesoría.

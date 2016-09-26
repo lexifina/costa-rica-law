@@ -1,4 +1,0 @@
-Artículo 169—Recibida la denuncia e integrado el Órgano Director, de oficio o a solicitud de una de las partes o de ambas, en un plazo de tres días hábiles se fijará fecha y hora para efectuar una comparecencia.
-Si persistiere la denuncia después de la comparecencia, el Órgano Director, dará traslado a la persona denunciada, dentro de los dos días hábiles posteriores.
-En la citación se indicará claramente un plazo de quince días hábiles para que se refiera a todos y cada uno de los hechos denunciados y presente los medios de prueba en descargo de los mismos, así como la posibilidad de asesorarse con un ahogado y el derecho a tener acceso al expediente administrativo que con motivo de la denuncia se abra. Si él o la denunciante no ejerce su derecho de defensa, se continuará el procedimiento hasta el informe final.
-(Así adicionado mediante sesión N° 2557 del 18 de diciembre de 1995).

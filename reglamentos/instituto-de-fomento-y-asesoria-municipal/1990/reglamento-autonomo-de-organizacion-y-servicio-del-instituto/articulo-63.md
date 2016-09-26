@@ -1,2 +1,0 @@
-Artículo 63.—Por concepto de quinquenio se reconocerá al servidor el 5% del salario base personal que esté devengando en el momento de lograr ese beneficio; derecho que tendrán los trabajadores en forma indefinida mientras dure su vinculación laboral con el IFAM.
-Para efectos de este beneficio no se tomarán en cuenta las fracciones de año, según reconocimiento de antigüedad laboral arrastrada de otras instituciones del Estado.

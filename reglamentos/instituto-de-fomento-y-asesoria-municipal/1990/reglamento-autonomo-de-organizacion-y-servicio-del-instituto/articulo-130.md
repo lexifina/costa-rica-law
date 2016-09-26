@@ -1,3 +1,0 @@
-Artículo 130.— Las marcas en las tarjetas de asistencia deberán hacerse con el debido cuidado, de manera que queden impresas con claridad. Las marcas defectuosas, manchadas o confusas, que no se deban a deficiencia en el reloj marcador o lectora óptica, se tendrán por no hechas.
-Sólo en los casos muy calificados y a juicio del Jefe correspondiente, se justificarán las omisiones de marca; en estos casos deberá informarse de ello por escrito a la Sección de Personal, con las explicaciones del caso en el tiempo que prescribe este Reglamento.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 137 al 130 actual).

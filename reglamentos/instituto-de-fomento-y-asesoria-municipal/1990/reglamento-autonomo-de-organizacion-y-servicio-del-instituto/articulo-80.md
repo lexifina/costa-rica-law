@@ -1,1 +1,0 @@
-Artículo 80.—La licencia, permisos con goce de sueldo, becas otorgadas por el IFAM, así como las incapacidades otorgadas por la Caja Costarricense de Seguro Social o del INS no interrumpen la aplicación de los aumentos por antigüedad, mérito y quinquenios.

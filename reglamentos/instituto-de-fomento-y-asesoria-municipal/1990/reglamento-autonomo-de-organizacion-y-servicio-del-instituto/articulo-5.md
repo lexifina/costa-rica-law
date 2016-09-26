@@ -1,3 +1,0 @@
-CAPITULO II
-De la Sección de Personal y del ingreso al servicio
-Artículo 5°—La Sección de Personal del Departamento Administrativo tiene como objeto atender todos los asuntos concernientes del personal tendrá a su cargo directamente la aplicación y cumplimiento del presente Reglamento, Esta Sección, por la índole de sus funciones, gozará de independencia técnica para cumplir su cometido. Llevará un expediente personal de cada uno de los empleados del IFAM, en el cual se archivarán todos los documentos relativos al contrato laboral, a fin de mantener el historial de servicios lo más exacto posible.

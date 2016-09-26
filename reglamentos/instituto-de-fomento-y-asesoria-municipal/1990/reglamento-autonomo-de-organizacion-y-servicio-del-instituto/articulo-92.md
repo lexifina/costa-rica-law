@@ -1,1 +1,0 @@
-Artículo 92. —El IFAM pagará las vacaciones a que tenga derecho el trabajador cuando el contrato de trabajo finalice, cualquiera que sea su causa, adquiriendo el derecho a este pago después de haber trabajado un mes completo en forma interrumpida.

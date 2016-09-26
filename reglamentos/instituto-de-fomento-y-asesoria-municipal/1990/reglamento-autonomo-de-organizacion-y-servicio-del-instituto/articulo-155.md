@@ -1,5 +1,0 @@
-Artículo 155.—La suspensión del trabajo se aplicará hasta por ocho días hábiles y sin goce de salario, una vez que se haya oído al interesado v a los compañeros de trabajo que indique mediante resolución razonada, en los siguientes casos:
-a- Cuando al trabajador, después de haber sido amonestado por escrito, incurra de nuevo en la falla que motivó la amonestación en un lapso de un mes calendario.
-b- Cuando el trabajador viole alguna de las prohibiciones establecidas en este Reglamento, después de haber sido amonestado verbalmente o por escrito. salvo que la falta diere mérito para el despido sin responsabilidad patronal.
-c- Cuando el trabajador cometa alguna falta grave que no de mérito para el despido, es decir, que la suspensión sea sustitutiva del despido, excepto si estuviera tipificada de otra forma en este Reglamento.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 162 al 155 actual).

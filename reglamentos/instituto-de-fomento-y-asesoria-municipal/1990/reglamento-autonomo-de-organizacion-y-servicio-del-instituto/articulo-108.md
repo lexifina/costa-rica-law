@@ -1,2 +1,0 @@
-Artículo 108.— Los permisos hasta por un día los podrá conceder el jefe inmediato, hasta por tres días el Director del Departamento, mayores de tres días el Director Ejecutivo. Estos permisos serán sin goce de salario, salvo casos muy calificados a juicio del Director Ejecutivo, se podrán otorgar con goce de salario. Dichos permisos se tramitarán mediante el formulario "SOLICITUD DE ACCIÓN DE PERSONAL".
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 115 al 108 actual).

@@ -1,1 +1,0 @@
-Artículo 31.—Se integrará una Comisión bipartita con cuatro miembros, dos nombrados por la Administración y dos por los trabajadores, la cual deberá revisar el Reglamento de Becas con el fin de mejorarlo y adaptarlo, a las necesidades vigentes de la organización.

@@ -1,1 +1,0 @@
-Artículo 69.—El trabajador al momento de recibir su salario deberá firmar el "comprobante de pago" que contendrá los datos del monto devengado, las deducciones hechas y por que concepto y el monto neto pagado.

@@ -1,1 +1,0 @@
-Artículo 51.—Los puestos de trabajo del Instituto serán clasificados según su naturaleza o especialidad, en clases, series y grupos ocupacionales. Cada clase de puesto tendrá su título y su especificación escrita, expresará la naturaleza del trabajo, la descripción de las funciones y su complejidad, sus características especiales y los requisitos académicos exigidos.

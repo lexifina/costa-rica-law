@@ -1,2 +1,0 @@
-Artículo 151.— Para el establecimiento de eventuales responsabilidades contra el servidor, el IFAM deberá obligatoriamente ordenar iniciar el procedimiento administrativo con el objeto de asegurar el respeto a la garantía del debido proceso y defensa previa que se señala en el libro segundo, título primero, del procedimiento administrativo, Artículos 214 y siguientes, de la Ley General de la Administración Publica.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 158 al 151 actual).

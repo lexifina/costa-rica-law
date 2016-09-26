@@ -1,1 +1,0 @@
-Artículo 82.—Para aspirar a un ascenso, el candidato debe llenar los requisitos del Manual de Puestos, tener una calificación anual cié servicios superior o igual al 80% y haber aprobado las pruebas internas, si así lo dispone la administración: además es necesario que figure en la tema o nómina de candidatos que se derive de aquel procedimiento.

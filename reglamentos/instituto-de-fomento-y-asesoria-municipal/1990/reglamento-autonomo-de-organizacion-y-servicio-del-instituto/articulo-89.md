@@ -1,2 +1,0 @@
-Artículo 89-—El Superior Jerárquico inmediato, dispondrá la época en que cada servidor debe disfrutar de sus vacaciones en lo posible este señalamiento se hará de común acuerdo con el funcionario interesado y las exigencias del trabajo, procurando hacerlo dentro de las quince semanas posteriores al día en que se adquiera el derecho.
-Si venciera dicho plazo, sin que al servidor se le hubiera señalado la fecha de sus vacaciones, deberá éste reclamarlo por escrito dentro de los tres meses siguientes, ante el Jefe respectivo.

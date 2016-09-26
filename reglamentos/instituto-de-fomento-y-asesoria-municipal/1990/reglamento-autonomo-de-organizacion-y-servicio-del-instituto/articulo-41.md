@@ -1,1 +1,0 @@
-Artículo 41.— Para la preparación o confección, administración y calificación de los exámenes y pruebas específicas de selección de personal podrá solicitar la colaboración técnica de la dependencia en donde se presentan las vacantes de los puestos que están siendo concursados, o de cualquier otra dependencia que esté en la posibilidad y capacidad de proporcionarla.

@@ -1,2 +1,0 @@
-Artículo 40.—La Sección de Personal determinará por los medios técnicos que considere más aconsejables, la aptitud o capacidad potencial de los aspirantes para desempeñar los puestos para los que hayan hecho ofertas de servicios.
-En los casos en que se empleen exámenes, o pruebas de ejecución, los aspirantes serán clasificados por el sistema cuantitativo de porcentaje, y solo se considerarán elegibles los candidatos que obtengan una puntuación mínima del setenta por ciento.

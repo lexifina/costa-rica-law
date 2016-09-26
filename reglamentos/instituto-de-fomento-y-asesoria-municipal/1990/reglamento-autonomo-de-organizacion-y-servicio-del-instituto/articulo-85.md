@@ -1,2 +1,0 @@
-Artículo 85.—Para proceder al traslado de un servidor a otro cargo de igual categoría, de previo a que sea acordado por la Dirección Ejecutiva, deberá contar con la anuencia, por escrito, del funcionario involucrado, así como de las Jefaturas respectivas. Para que sea procedente y eficaz una permuta, se requerirá que los interesados lo manifiesten así por escrito, se cuente con la autorización de sus superiores inmediatos y estén conformes con el salario a devengar en el puesto permutado.
-(Así reformado mediante sesión N° 2379 del 9 de marzo de 1994).

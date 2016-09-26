@@ -1,2 +1,0 @@
-Artículo 45—La Dirección Ejecutiva, podrá prescindir de lo dispuesto en este capítulo de la selección de personal en los nombramientos de Directores, Sub-directores y Jefes de las distintas dependencias, quienes deberán cumplir con los requisitos que señala el Manual Descriptivo de Clases.
-El Presidente Ejecutivo nombrará y removerá los puestos calificados de confianza a saber: Asistentes de la Presidencia Ejecutiva, Secretarias Ejecutivas de la Presidencia Ejecutiva y el chofer asignado a esa dependencia.

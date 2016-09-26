@@ -1,2 +1,0 @@
-Artículo 177.— El presente Reglamento podrá ser reformado parcial o totalmente, siguiendo el mismo procedimiento utilizado para su aprobación, sea mediante acuerdo de la Junta Directiva del IFAM.
-(Mediante sesión N° 2359 del 5 de enero de 1994, se corre la numeración de este artículo pasándolo del anterior 172 al 165. Posteriormente mediante sesión N° 2557 del 18 de diciembre de 1995, fue corrida nuevamente su numeración que lo traspasó del anterior 165 al 177 actual).

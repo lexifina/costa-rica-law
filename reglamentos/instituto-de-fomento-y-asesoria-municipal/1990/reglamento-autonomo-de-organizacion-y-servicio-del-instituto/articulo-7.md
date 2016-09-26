@@ -1,1 +1,0 @@
-Artículo 7°—EI ingreso al servicio como funcionario del IFAM se calificará mediante concurso por oposición. En casos muy especiales y motivados se recurrirá al concurso de antecedentes o cualquier otro sistema que la Sección de Personal o la Administración juzgue conveniente.

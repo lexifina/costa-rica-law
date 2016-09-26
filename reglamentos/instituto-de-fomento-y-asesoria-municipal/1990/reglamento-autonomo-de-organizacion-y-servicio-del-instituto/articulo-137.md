@@ -1,2 +1,0 @@
-Artículo 137.— Cuando la enfermedad inhabilite al servidor para el desempeño de sus labores por menos de 4 días, el trabajador deberá comunicar a su Jefe inmediato por cualquier medio, la imposibilidad en que está de asistir al trabajo. En dichas situaciones, queda a juicio del Jefe de la dependencia, el que se justifique dichas ausencias sin que medie autorización médica, lo cual no implica obligación de pagar el salario.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 144 al 137 actual).

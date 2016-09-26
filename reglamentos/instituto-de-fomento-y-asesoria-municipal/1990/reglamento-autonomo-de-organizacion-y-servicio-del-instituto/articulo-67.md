@@ -1,1 +1,0 @@
-Artículo 67. —El IFAM pagará el salario, hechas las deducciones obligadas por ley o autorizadas por el trabajador, por medio de cheque bancario, que para todos sus efectos se considera moneda de curso legal.

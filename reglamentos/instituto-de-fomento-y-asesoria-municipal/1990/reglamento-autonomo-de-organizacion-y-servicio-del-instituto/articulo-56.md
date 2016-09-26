@@ -1,1 +1,0 @@
-Artículo 56.—La Sección de Personal hará los estudios de los puestos que de acuerdo con este Reglamento procedan, y recomendará a la Dirección Ejecutiva la acción que a su juicio corresponde tomar. Las recomendaciones de la Sección de Personal en cualquier sentido, no producirán efecto alguno hasta tanto no haya resolución firme de parte del Director Ejecutivo.

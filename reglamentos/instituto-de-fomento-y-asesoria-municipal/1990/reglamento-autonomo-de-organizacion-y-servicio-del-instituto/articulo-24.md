@@ -1,2 +1,0 @@
-Artículo 24—El procedimiento a seguir para determinar el valor de la hora laborada en jornada extraordinaria, se hará dividiendo el salario nominal mensual entre el número de horas laboradas ordinariamente durante ese período y el factor resultante se multiplicará por uno punto cinco.
-En el caso de los guardas dormilones, por la propia naturaleza de su jornada de trabajo están imposibilitados a laborar jornada extraordinaria de trabajo, salvo casos de excepción, tales como: sustitución de vacaciones, enfermedad, incapacidad, etc.

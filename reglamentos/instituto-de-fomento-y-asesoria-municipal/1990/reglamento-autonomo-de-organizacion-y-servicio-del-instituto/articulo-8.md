@@ -1,1 +1,0 @@
-Artículo 8°—El escogimiento del personal se hará de las ternas o nominas que elaborará la Sección de Personal en cada caso, lista que será remitida a la Dirección del Departamento donde se da la vacante, para que ésta recomiende al candidato idóneo. Corresponde a la Dirección Ejecutiva la ratificación del nombramiento.

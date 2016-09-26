@@ -1,3 +1,0 @@
-Artículo 76.—El trabajador después de haber tenido la entrevista con su jefe inmediato, si considera que la calificación que se le esta adjudicando no es la que le corresponde, podrá recurrir al jefe superior del calificador, previa notificación escrita a este último, para hacer valer el derecho que pretende tener de ser mejor calificado.
-El proceso de calificación se interrumpirá en este caso hasta que se le realice una nueva entrevista con las mismas formalidades de la primera.
-Si el jefe o director del departamento ratifica lo actuado por el jefe inmediato del servidor, éste podrá apelar en última instancia administrativa ante el Director Ejecutivo.

@@ -1,1 +1,0 @@
-Artículo 50—Clase comprende un grupo de puestos con deberes, responsabilidades y atribuciones similares para el que pueda usarse el mismo título descriptivo para designar cada puesto comprendido en él. En este caso quienes ocupen esos puestos deberán tener los mismos requisitos en educación, experiencia, capacidad, conocimientos, eficiencia y habilidad.

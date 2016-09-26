@@ -1,2 +1,0 @@
-Artículo 157.— La calificación de las faltas, como leves o graves, para efectos de su sanción y en los casos en que no esté específicamente indicado en este Reglamento, será a juicio de la Dirección Ejecutiva, tomando en consideración la opinión del Jefe inmediato y la trayectoria laboral del servidor a quien se debe sancionar.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 164 al 157 actual).

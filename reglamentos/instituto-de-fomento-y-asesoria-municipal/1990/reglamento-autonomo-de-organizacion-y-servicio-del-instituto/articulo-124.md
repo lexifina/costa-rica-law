@@ -1,2 +1,0 @@
-Artículo 124— En caso de que un trabajador que sufra un accidente del trabajo, no pudiere desempeñar el puesto que ocupaba antes de ocurrirle el accidente o se le haya diagnosticado la enfermedad, por prescripción médica, el IFAM estará obligado a reubicarlo a un nuevo puesto acorde con su capacidad física, motora y laboral, garantizando le todos sus derechos.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 131 al 124 actual).

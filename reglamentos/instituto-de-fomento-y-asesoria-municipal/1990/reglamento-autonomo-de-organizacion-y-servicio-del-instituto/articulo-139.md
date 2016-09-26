@@ -1,2 +1,0 @@
-Artículo 139. — Para casos muy calificados, no contemplados en este Reglamento, queda ajuicio del Jefe de dependencia y el respectivo Director o Jefe de Departamento o Sección, justificar ausencias que no sean por enfermedad comprobada, sin que ello signifique obligación al pago del salario.
-(Así corrida su numeración mediante sesión N° 2359 del 5 de enero de 1994, que lo traspasó del antiguo 146 al 139 actual).

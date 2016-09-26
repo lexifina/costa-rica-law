@@ -1,1 +1,0 @@
-Artículo 44.—La Sección de Personal enviará a la Dirección Ejecutiva ternas para llenar vacantes, especificadas en el artículo anterior, salvo en los casos en que no se hayan calificado tres concursos, situación en que se deberán enviar nóminas.
