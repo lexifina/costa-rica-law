@@ -1,4 +1,0 @@
-Artículo 5º—Corresponde a esta Junta Interventora realizar:
-a) Las facultades otorgadas por el bloque de legalidad vigente a la Junta Directiva de la JUDESUR para mantener el normal funcionamiento de la institución y del Depósito Libre Comercial de Golfito.
-b) Realizar el accionar necesario para el restablecimiento y organización de las condiciones normales de funcionamiento de la JUDESUR, con el objetivo de que se logre desarrollar, en cumplimiento de la normativa vigente y bajo los principios fundamentales del servicio público, el fin asignado al ente.
-c) Iniciar y tramitar los procedimientos administrativos necesarios para lograr los objetivos de la intervención. Si se tuvieren que abrir o substanciar procedimientos disciplinarios, podrá adoptar las medidas cautelares que el ordenamiento permite para este tipo de acciones.
