@@ -1,1 +1,0 @@
-Artículo 2°.- Se ordena a la Junta Interventora Sustitutiva que, a más tardar el 15 de mayo de 2016, deba presentar, tanto al Consejo de Gobierno como a los órganos o entes electores de directores a la Junta Directiva de JUDESUR, un informe de labores que contenga, al menos, lo exigido por la Ley General de Control Interno.
