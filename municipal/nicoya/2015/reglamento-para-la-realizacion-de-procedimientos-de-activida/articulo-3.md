@@ -1,0 +1,1 @@
+Artículo 3°· Áreas Excluidas de la aplicación del presente Reglamento. Quedan excluidas de la aplicación de este procedimiento, toda la Zona costera Patrimonio del Estado. terrenos forestales o con esa aptitud o aquellas definidas como PNE.

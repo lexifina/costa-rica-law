@@ -1,0 +1,4 @@
+CAPITULO III
+De los Procedimientos sancionatorios.
+Artículo 10°- Cuando exista Plan Regulador. La Municipalidad de Nicoya, de conformidad con el registro y calendarización de los plazos preestablecidos y notificados a los interesados, al tenor del acatamiento de las disposiciones establecidas en el numeral 3 de la Ley 9242, procederá en aras de su implementación y obligatorio cumplimiento. a efectuar una última notificación, para que los Concesionarios y Permisionarios incumplientes, se pongan a derecho y cumplan con las normativas dictadas por dicha Ley, modificando sus construcciones si así lo requieren para ajustarse al Plan Regulador y a la normativa ambiental vigente. en el plazo improrrogable de seis meses. una vez, levantada la información de su situación y notificados al efecto.
+Vencido el plazo referido, y comprobado el cumplimiento de la prevención. el interesado queda facultado para tramitar la concesión pertinente. en el plazo de seis meses.
