@@ -1,0 +1,2 @@
+ARTÍCULO 7.- Mecanismo de ejecución
+Para el desarrollo del plan decenal de inversiones, contempladas en el Indicador de Desembolso de Préstamo (IDP) 7, y con el propósito de cumplir con los principios constitucionales de eficacia, eficiencia, simplicidad y celeridad, la Caja Costarricense de Seguro Social (CCSS), como ente ejecutor del Programa por Resultados, queda autorizado para que utilice como mecanismo de ejecución cualquiera que le autorice el ordenamiento jurídico, según su conveniencia.
