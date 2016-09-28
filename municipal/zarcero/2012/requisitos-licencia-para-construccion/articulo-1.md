@@ -1,4 +1,5 @@
 Municipalidad de Zarcero
+(Nota de Sinalevi: Mediante acuerdo publicado en La Gaceta N° 202 del 21 de octubre de 2016, “Requisitos solicitud de patente: nueva, traslado y traspaso, requisitos para uso de suelo y ubicación”, se indicó dejar sin efecto los requisitos para viabilidad ambiental y para uso de suelo y ubicación.)
 LICENCIA PARA CONSTRUCCIÓN
 Requisitos generales para todo proyecto: Solicitud de permiso de construcción debidamente lleno (se facilitará y llenará por el funcionario de plataforma al momento de presentar el proyecto).
 Certificado de uso de suelo vigente para dicha actividad. O en su caso el número de oficio de la resolución de uso de suelo.

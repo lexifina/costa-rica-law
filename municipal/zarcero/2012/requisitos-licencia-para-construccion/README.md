@@ -14,3 +14,4 @@ Requisitos Licencia para Construcción
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-11-27 | la propia norma |
+| 2 | 2016-09-28 | Acuerdo municipal 0 (2016-09-28) |
