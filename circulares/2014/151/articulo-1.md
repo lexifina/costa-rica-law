@@ -1,4 +1,5 @@
 CIRCULAR Nº 151-2014
+(Esta norma fue reiterada mediante sesión N° 84-16 del 8 de setiembre del 2016, publicada en el Boletín Judicial N° 238 del 12 de diciembre del 2016, mediante circular N° 167-2016 del 28 de setiembre del 2016)
 Asunto: Requisitos para solicitar citas en la Sección de Psiquiatría y Psicología Forense del Departamento de Medicina Legal.
 A LAS AUTORIDADES JUDICIALES DEL PAÍS
 SE LES HACE SABER QUE:
@@ -7,4 +8,5 @@ El Consejo Superior del Poder Judicial en sesión N° 59-14, celebrada el 7 de j
  Copia de la denuncia o cualquier otro documento que contenga la narración de los hechos denunciados.
  Documentos médicos como dictámenes y/o epicrisis en caso que el o la usuaria cuenten con antecedentes de valoraciones en Psiquiatría, Psicología y/o Trabajo Social.
  Estos requisitos deben ser remitidos conjuntamente y pueden ser enviados al correo electrónico Solicitar citas - Sección Psiquiatría y Psicología Forense (docs_psiquiatria@poder-judicial.go.cr), al fax 2267-1218 o por correo interno.
+(Nota de Sinalevi: Mediante sesión N° 84-16 del 8 de setiembre del 2016, publicada en el Boletín Judicial N° 238 del 12 de diciembre del 2016, mediante circular N° 167-2016 del 28 de setiembre del 2016 se adiciona la presente norma estableciéndose lo siguiente “…estos requisitos también aplican para los casos que son atendidos en el horario de disponibilidad que tiene habilitado el Departamento.”)
 San José, 17 de julio del 2014.

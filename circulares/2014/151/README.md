@@ -13,3 +13,4 @@ Requisitos para solicitar citas en la Sección de Psiquiatría y Psicología For
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-07-17 | la propia norma |
+| 2 | 2016-09-28 | Circular 167 (2016-09-28) |
