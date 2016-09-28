@@ -30,3 +30,5 @@ Tercero: Procedan las Unidades de Servicios Notariales a rectificar los requisit
 Cuarto: Siendo que esta Directriz ajusta a las normas de rango legal los requisitos señalados en el Acuerdo 2011-014-002 del Consejo Superior Notarial, la misma se publicará mediante reseña en el diario oficial La Gaceta.
 Quinto: Notifíquese personalmente a los Jefes de las Unidades Legal Notarial, Servicios Notariales, Asesoría Jurídica y Fiscalización Notarial; y por correo electrónico a todos los funcionarios de esas Unidades.
 Rige a partir de su emisión.
+Emitida en San Pedro de Montes de Oca, al ser las nueve horas del veintiséis de febrero del dos mil dieciséis.
+(Así adicionado el párrafo anterior y publicada en La Gaceta N° 186 del 28 de setiembre de 2016)

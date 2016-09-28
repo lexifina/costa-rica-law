@@ -14,3 +14,4 @@ Elimina los requisitos para la inscripción y habilitación como notario públic
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-26 | la propia norma |
+| 2 | 2016-09-28 | Acuerdo 0 (2016-09-28) |
