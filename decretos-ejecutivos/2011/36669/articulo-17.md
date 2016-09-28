@@ -1,1 +1,2 @@
-Artículo 17.—De la Dirección de Proveeduría Institucional. Será responsable de la adquisición, registro y control de los aparatos. Para la adquisición de los aparatos deberán observarse los principios de razonabilidad y racionabilidad en el gasto.
+Artículo 17.—El Departamento de Comunicaciones de la Dirección de Servicios Generales, será responsable de la adquisición, registro y control de los servicios de tecnología, comunicación y otros regulados en el presente Reglamento, incluyendo los dispositivos y sus accesorios.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39980 del 28 de setiembre del 2016)

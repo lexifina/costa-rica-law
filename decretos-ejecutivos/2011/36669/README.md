@@ -14,3 +14,4 @@ Reglamento para la asignación, uso, y control de teléfonos celulares , servici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-07-22 | la propia norma |
+| 2 | 2016-09-28 | Decreto Ejecutivo 39980 (2016-09-28) |

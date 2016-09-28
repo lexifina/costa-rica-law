@@ -15,4 +15,5 @@ comunicación y otros, del Ministerio de Obras
 Públicas y Transportes
 CAPÍTULO I
 Disposiciones generales
-Artículo 1º—Objeto. El presente Reglamento tiene por objeto establecer las disposiciones de acatamiento obligatorio para la adquisición, asignación, uso, custodia, conservación y control de líneas, aparatos de telefonía móvil, servicios de tecnología de la comunicación (servicios TIC), equipo para el almacenamiento de datos, y/o radiolocalizadores en el Ministerio de Obras Públicas y Transportes, ya sean propiedad del Ministerio o propiedad de funcionarios (as) autorizados (as) por este Reglamento para acogerse a esta modalidad.
+Artículo 1°-Objeto. El presente Reglamento tiene por objeto establecer las disposiciones de acatamiento obligatorio para la adquisición, asignación, uso, custodia, conservación y control de líneas. aparatos de telefonía móvil. servicios de tecnología de la comunicación (servicios TIC) y equipo para el almacenamiento de datos en el Ministerio de Obras Públicas y Transportes, ya sean propiedad del Ministerio o propi edad de funcionarios (as) autorizados (as) por este Reglamento para acogerse a esta modalidad.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 39980 del 28 de setiembre del 2016)
