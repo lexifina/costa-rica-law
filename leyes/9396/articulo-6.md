@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Rendición de cuentas
+Cada año, a partir de la entrada en vigencia de la presente ley, el Ministerio de Hacienda rendirá un informe detallado a la Comisión Permanente Especial para el Control del Ingreso y el Gasto Públicos de la Asamblea Legislativa y a la Contraloría General de la República sobre los procesos de contratación, el nivel de ejecución, el desarrollo y los resultados obtenidos, de conformidad con los objetivos del Programa por Resultados para el Fortalecimiento del Seguro Universal de Salud en Costa Rica, que se establece en la presente ley.
