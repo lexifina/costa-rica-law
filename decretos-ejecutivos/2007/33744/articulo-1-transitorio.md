@@ -1,0 +1,2 @@
+TRANSITORIO ÚNICO: El LACOMET y SENASA-MAG contarán con un plazo de seis meses, a partir de la publicación del presente reglamento, para desarrollar los métodos de ensayo o análisis necesarios, que permitan efectivamente verificar los incisos materia de su competencia, señalados en el Artículo 2º bis anterior.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 40006 del 29 de setiembre del 2016)
