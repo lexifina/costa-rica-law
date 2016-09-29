@@ -16,3 +16,4 @@ Reglamento para el juego Lotto
 | 1 | 2014-03-31 | la propia norma |
 | 2 | 2015-09-08 | Reglamento 31 (2015-09-08) |
 | 3 | 2016-02-18 | Reglamento 5 (2016-02-18) |
+| 4 | 2016-09-29 | Reglamento 22 (2016-09-29) |
