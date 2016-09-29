@@ -1,0 +1,1 @@
+TRANSITORIO UNICO. Se le otorga a la Unidad de Planificación un plazo de tres meses para efectuar un nuevo estudio de reestructuración parcial para la Dirección de Competencia, de acuerdo con lo solicitado por el DM-025-16 del 26 de enero del 2016 de MIDEPLAN y el pronunciamiento C-071-2016 del 12 de abril del 2016 de la Procuraduría General de la República.

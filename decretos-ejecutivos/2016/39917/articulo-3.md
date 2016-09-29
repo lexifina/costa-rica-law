@@ -1,0 +1,1 @@
+Artículo 3.-En toda aquella disposición reglamentaria donde se indique CREAPYMES debe leerse CIDE; asimismo, en donde se indique Departamento de Políticas y Verificación de Mercado debe leerse Departamento de Educación al Consumidor y Ventas a Plazo.

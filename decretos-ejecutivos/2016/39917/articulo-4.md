@@ -1,0 +1,1 @@
+Artículo 4.- Deróguese los artículos 32 y 33 y el inciso f) del artículo 34 del Decreto Ejecutivo N º 37457-MEIC del 2 de noviembre del 2012, Reglamento a la Ley Orgánica del Ministerio de Economía, Industria y Comercio, publicado en el Alcance digital N º 3 de La Gaceta Nº 6 del 9 de enero del 2013.
