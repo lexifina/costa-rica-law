@@ -1,1 +1,0 @@
-Transitorio I.—Asignaciones al amparo de otros reglamentos. Este reglamento no modifica las asignaciones que COMEX u otro órgano o entidad competente hayan efectuado al amparo de la normativa vigente previo a la fecha de su publicación.

@@ -1,2 +1,0 @@
-Artículo 13.—Certificado. COMEX transmitirá al sistema Tecnología Informática para el Control Aduanero (TIC@) o al sistema que haga sus veces, el volumen asignado a cada solicitante, conforme con los lineamientos que establezca al efecto la autoridad aduanera. Para efectos de control aduanero, dicha transmisión será considerada como certificado de contingente de importación.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35617 del 4 de noviembre de 2009)

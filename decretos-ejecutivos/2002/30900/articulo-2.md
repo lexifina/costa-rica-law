@@ -1,3 +1,0 @@
-Artículo 2º—Autoridad competente. El Ministerio de Comercio Exterior (en adelante "COMEX") será el órgano responsable de distribuir, asignar y administrar los contingentes de importación de conformidad con las disposiciones de este Reglamento.
-Únicamente se cobrará el arancel preferencial que corresponda dentro de cuota a aquellos importadores que cuenten con un certificado de importación válido y vigente, por el volumen máximo ahí establecido, de conformidad con los artículos 6º y 13 de este Reglamento.
-Para el caso de los compromisos de acceso mínimo o acceso actual consolidados ante la OMC, COMEX solicitará el criterio del MAG en materia de los niveles arancelarios y volumen aplicado a los contingentes otorgados al amparo de la OMC.
