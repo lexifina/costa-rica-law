@@ -1,5 +1,0 @@
-CAPÍTULO V
-De la responsabilidad por no presentar caución
-Artículo 13.—Responsabilidad por la no presentación o renovación de la caución. La falta de presentación de la caución, así como la falta de renovación de la misma serán causal para el cese en el cargo sin responsabilidad patronal del funcionario, en los términos del artículo 120 de la Ley de la Administración Financiera de la República y Presupuestos Públicos.
-En el caso de los funcionaros encargados de administrar y controlar la presentación de cauciones, que le otorguen al servidor obligado posesión del cargo sin rendir previamente la caución dispuesta, constituirá un hecho generador de responsabilidad administrativa y la aplicación del régimen sancionatorio correspondiente, de acuerdo a lo dispuesto por la Ley General de la Administración Pública y respetando el debido proceso.
-En el caso de los miembros Propietarios y Suplentes de la Junta Administrativa del Registro Nacional, corresponderá al Ministro de Justicia y Paz, la verificación de la garantía por el período de nombramiento, la cual deberá ser suscrita por los miembros indicados, dentro de los diez días hábiles posteriores a éste.

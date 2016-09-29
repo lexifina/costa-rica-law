@@ -1,1 +1,0 @@
-Artículo 6º—Momento para rendir la caución. Los funcionarios del Registro Nacional o miembro de la Junta Administrativa del Registro Nacional, serán los responsables directos de rendir la caución y deberán presentar los documentos que la acreditan, ante el Departamento de Recursos Humanos del Registro Nacional antes de asumir el cargo.

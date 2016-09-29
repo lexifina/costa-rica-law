@@ -1,1 +1,0 @@
-Artículo 4º—Forma de rendir la caución. La caución a favor del Registro Nacional, se hará mediante la suscripción de una póliza de fidelidad suscrita con cargo al peculio del funcionario o miembro de la Junta Administrativa del Registro Nacional obligado a rendir caución, ante las entidades o empresas aseguradoras autorizadas para tal fin.
