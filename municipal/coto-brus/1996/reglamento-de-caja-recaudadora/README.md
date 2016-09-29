@@ -16,3 +16,4 @@ Reglamento de Caja Recaudadora
 | 1 | 1996-06-03 | la propia norma |
 | 2 | 1996-11-09 | Reglamento municipal 251 (1996-11-09) |
 | 3 | 2000-02-19 | Reglamento municipal 92 (2000-02-19) |
+| 4 | 2016-09-29 | Reglamento municipal 283 (2016-09-29) |
