@@ -1,0 +1,6 @@
+Artículo 41.- Derecho de defensa.
+1. El derecho de defensa del contribuyente deberá ser ejercido dentro de los limites razonables establecidos en el ordenamiento jurídico.
+2. La Administración Tributaria está obligada a evacuar la prueba ofrecida en tiempo y forma, so pena de incurrir en nulidad absoluta; salvo la prueba impertinente. Caerá en abandono la prueba ofrecida y no evacuada por culpa del interesado, si transcurre un plazo de treinta días hábiles, contado desde la fecha en que la Administración instó su diligenciamiento, sin que lo haya hecho, según resolución motivada que así lo disponga.
+3. El contribuyente puede invocar para su defensa todos los medios de prueba indicados en el Código Procesal Civil, a excepción de la confesión a los servidores de la Administración Tributaria.
+4. El contribuyente podrá hacerse representar en los términos del presente Reglamento y conforme a otras normas legales que así lo establezcan.
+5. A efectos de que el contribuyente pueda ejercer, de manera efectiva, el derecho de defensa en contra de los actos jurídicos y las actuaciones materiales de la Administración Tributaria, esta debe pronunciarse sobre todos los alegatos y valorar las pruebas aportadas de manera razonable.

@@ -1,0 +1,2 @@
+Artículo 69.- Trámite de los recursos. El órgano director emplazará a las partes ante la Junta Directiva, a la cual remitirá el expediente. Ésta resolverá el recurso de revocatoria y si lo denegare remitirá el expediente a la Asamblea General.
+El trámite y resolución de los recursos se ajustará a lo dispuesto en la Ley General de la Administración Pública, con la salvedad de que deben añadirse los plazos que estipula la Ley Orgánica del Colegio para la celebración de la Asamblea General.

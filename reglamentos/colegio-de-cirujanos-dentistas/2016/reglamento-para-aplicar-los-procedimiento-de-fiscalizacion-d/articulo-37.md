@@ -1,0 +1,1 @@
+Artículo 37.- Requerimientos de información a terceros. En todos los casos en que se requiera información a terceros, la justificación del requerimiento se limitará a los fundamentos legales que permiten solicitarla y a por qué se considera previsiblemente pertinente.

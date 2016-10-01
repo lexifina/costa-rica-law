@@ -1,0 +1,1 @@
+Artículo 71.- Normas supletorias. En lo no previsto en este Reglamento se aplicarán supletoriamente el Código de Normas y Procedimientos Tributarios, la Ley General de la Administración Pública y Reglamento de Procedimiento Tributario, en lo que sean aplicables.

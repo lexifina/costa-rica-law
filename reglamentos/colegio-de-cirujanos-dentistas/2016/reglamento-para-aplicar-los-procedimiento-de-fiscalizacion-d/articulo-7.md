@@ -1,0 +1,2 @@
+Artículo 7.- Tarifa. Toda factura por venta de contado o crédito deberá llevar Timbres Odontológicos según la tabla siguiente: de ¢ 0.05 a ¢10.00 pagarán ¢ 0.50 de timbre; de ¢10.05 a ¢20.00, ¢ 1.00 de timbres; de ¢ 20.05 a ¢30.00, ¢1.50 de timbres; de ¢30.05 a ¢40.00, ¢ 2.00 de timbres; de ¢40.05 a ¢ 50.00, ¢ 2.50 de timbres; de ¢ 50.05 a ¢ 60.00, ¢3.00 de timbres; de ¢ 60.05 a ¢70.00, ¢3.50 de timbres; de ¢70.05 a ¢ 80.00, ¢4.00 de timbres; de ¢ 80.05 a ¢90.00, ¢ 4.50 de timbres, de ¢90.05 a ¢ 100.00, ¢t 5.00 de timbres.
+Las facturas mayores de ¢100.00 pagarán el 5%.

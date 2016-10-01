@@ -1,0 +1,1 @@
+Artículo 55.- Contenido de las notificaciones. La notificación contendrá el texto íntegro de la resolución y, además, la indicación de los recursos que quepan contra ella, el plazo para interponerlos, ante quien se han de interponer, quienes los resolverán, de conformidad con el artículo 245 de la Ley General de la Administración Pública.

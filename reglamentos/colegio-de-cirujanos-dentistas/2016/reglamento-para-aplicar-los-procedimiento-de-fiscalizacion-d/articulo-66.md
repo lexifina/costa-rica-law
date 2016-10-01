@@ -1,0 +1,1 @@
+Artículo 66.- Dictado del acto final. Terminada la comparecencia, el asunto quedará listo para dictar el acto final, lo cual deberá hacer la Junta Directiva dentro del plazo de diez días hábiles, contados a partir de la fecha de la comparecencia.

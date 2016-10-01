@@ -1,0 +1,1 @@
+Artículo 68.- Recursos contra el acto final. La resolución a que se refiere el artículo anterior tendrá los recursos de revocatoria con apelación subsidiaria para ante la Asamblea General, que deberán interponerse ante el órgano director del procedimiento, dentro de treinta días hábiles contados a partir de la notificación.

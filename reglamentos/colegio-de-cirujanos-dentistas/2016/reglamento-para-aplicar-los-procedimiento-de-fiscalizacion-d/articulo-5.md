@@ -1,0 +1,1 @@
+Artículo 5: Del hecho generador: la venta de toda clase de materiales o instrumentos para el ejercicio de Odontología, de conformidad con lo establecido en la Ley Nº 24 del 19 de noviembre de 1941 reformada por la Ley Nº 3752.

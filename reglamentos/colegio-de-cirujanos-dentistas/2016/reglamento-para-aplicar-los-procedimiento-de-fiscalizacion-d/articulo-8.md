@@ -1,0 +1,1 @@
+Artículo 8.- Valores de los timbres. El Colegio hará imprimir timbres en valores múltiplos de ¢ 10,00 para adecuarlos a los precios actuales de los materiales e instrumentos de odontología, al amparo del artículo 10 de la Ley de la Administración Financiera de la República y Presupuestos Públicos, Nº 8131 citada.

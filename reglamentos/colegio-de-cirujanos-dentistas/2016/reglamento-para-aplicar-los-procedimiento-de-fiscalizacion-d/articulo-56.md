@@ -1,0 +1,1 @@
+Artículo 56.- Formas de notificación. En todo lo relativo al trámite de determinación del tributo el Colegio utilizará las normas establecidas en el artículo 137 del Código de Normas y Procedimientos Tributarios y, supletoriamente, las establecidas en la Ley de Notificaciones Judiciales, número 8687 del 4 de diciembre del 2008.

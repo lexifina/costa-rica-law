@@ -1,0 +1,1 @@
+Artículo 61.- Órgano competente para sancionar. Las sanciones administrativas tributarias serán impuestas por la Junta Directiva del Colegio que dicte los actos administrativos mediante los cuales se determine el Timbre Odontológico.

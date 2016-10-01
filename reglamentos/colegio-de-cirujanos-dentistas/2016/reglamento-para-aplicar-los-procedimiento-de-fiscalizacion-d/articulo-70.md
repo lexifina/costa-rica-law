@@ -1,0 +1,1 @@
+Artículo 70.- Ejecución de la suspensión del ejercicio profesional. Cuando esté firme el acto final, la suspensión se publicará una vez en el Diario Oficial y en uno de los diarios de mayor circulación; la sanción comenzará a cumplirse el día siguiente de la publicación.
