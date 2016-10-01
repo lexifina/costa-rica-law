@@ -14,3 +14,4 @@ Reglamento de Regencias para los Establecimientos de Microbiología y Química C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 1988-02-26 | la propia norma |
+| 2 | 2016-10-01 | Reglamento 3 (2016-10-01) |
