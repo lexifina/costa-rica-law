@@ -1,0 +1,1 @@
+Artículo 2º-Deróguese el Decreto Ejecutivo número 39771-H del 07 de junio de 2016, publicado en el Alcance número 108 a La Gaceta número 125 del 29 de junio de 2016, a partir de la vigencia del presente decreto.
