@@ -14,3 +14,4 @@ Reglamento de compras y contrataciones de la Empresa de Servicios Públicos de H
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-05-05 | la propia norma |
+| 2 | 2016-10-03 | Reglamento 3678 (2016-10-03) |
