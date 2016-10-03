@@ -1,3 +1,0 @@
-Artículo 3º—En el momento en que el margen de seguridad de un producto llegue a ser inaceptable, o si el uso del producto representa más riesgos que beneficios, el Ministerio de Salud podrá reformar el presente decreto ejecutivo condicionando, eliminando de la lista o restringiendo el uso del producto.
-El Ministerio de Salud podrá incluir de oficio nuevos medicamentos de venta libre o a solicitud del interesado. Las inclusiones aprobadas por el Ministerio al Listado de la Declaratoria de Medicamentos de Venta libre al Consumidor, se publicarán en la página Web del Ministerio de Salud, www.ministeriodesalud.go.cr para su aplicación y conocimiento.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36288 del 9 de agosto de 2010)

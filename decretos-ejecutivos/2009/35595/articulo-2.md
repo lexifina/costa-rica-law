@@ -1,1 +1,0 @@
-Artículo 2º—De considerarse necesario, la Dirección de Atención al Cliente podrá restringir el tamaño o número de unidades o el volumen o tamaño de los empaques; podrá asimismo solicitar leyendas u otras instrucciones de uso en el etiquetado que aseguren el uso seguro y efectivo del producto.
