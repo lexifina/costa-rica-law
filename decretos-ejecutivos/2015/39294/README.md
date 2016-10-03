@@ -14,3 +14,4 @@ Reglamento "RTCR 470:2014 Productos Farmacéuticos, Medicamentos de Uso Humano. 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-26 | la propia norma |
+| 2 | 2016-10-03 | Decreto Ejecutivo 39989 (2016-10-03) |

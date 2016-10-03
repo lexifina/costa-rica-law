@@ -120,7 +120,8 @@ Adicionalmente, para el caso de la renovación del registro sanitario de medicam
 11.1 Para los efectos de este reglamento, se contará con un Consejo Técnico de Inscripción de Medicamentos en apego a lo establecido en el artículo 113 de la Ley General de Salud.
 11.2 Funciones.
 Serán funciones del Consejo Técnico de Inscripciones las siguientes:
-11.2.1 La aprobación o denegación del registro sanitario de los medicamentos presentados por primera vez.
+11.2.1 La aprobación o denegación del registro sanitario de los medicamentos innovadores y de los productos farmacéuticos nuevos, que son presentados para registro por primera vez ante el Ministerio de Salud.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 39989 del 3 de octubre del 2016)
 11.2.2 Aprobar el listado de los productos farmacéuticos multiorigen de riesgo sanitario.
 11.3 Integración.
 11.3.1 El Consejo estará integrado por miembros propietarios y sus respectivos suplentes, que deben cumplir con el mismo perfil del miembro titular, quienes podrán asistir a las sesiones cuando los propietarios estén ausentes por atender asuntos de su competencia, todos de idoneidad científica y técnica en materia de medicamentos y designados en la siguiente forma:
