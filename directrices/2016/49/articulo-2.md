@@ -1,0 +1,1 @@
+Artículo 2º—El reporte deberá presentarse ante la Dirección de Protección al Ambiente Humano, Nivel Central del Ministerio de Salud, a más tardar una semana calendario posterior a la finalización del respectivo trimestre o semestre según corresponda.
