@@ -14,3 +14,4 @@ Reglamento para el Aprovechamiento Racional de los Recursos Acuáticos Aprobados
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-23 | la propia norma |
+| 2 | 2016-10-03 | Decreto Ejecutivo 40023 (2016-10-03) |
