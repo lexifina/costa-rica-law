@@ -16,4 +16,5 @@ CLÍNICOS POR PARTE DE LAS AUTORIDADES
 REGULADORAS DE REFERENCIA COMO
 EVIDENCIA PARA EL REGISTRO
 SANITARIO DE MEDICAMENTOS
-Artículo 1º—El presente reglamento tiene como objeto establecer los criterios para que el Ministerio de Salud pueda reconocer informes concluyentes de estudios clínicos y preclínicos de seguridad y eficacia, bioequivalencia o biosimilitud, como parte del registro sanitario de los medicamentos.
+Artículo 1º—El presente reglamento tiene como objeto establecer las condiciones para que el Ministerio de Salud pueda considerar reconocer informes concluyentes de estudios clínicos y preclínicos de seguridad y eficacia, bioequivalencia o biosimilitud, como parte del registro sanitario de los medicamentos.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40084 del 3 de octubre del 2016)

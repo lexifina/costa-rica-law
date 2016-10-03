@@ -14,3 +14,4 @@ Reconocimiento de la Evaluación y Aprobación de informes finales de Estudios C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-01-28 | la propia norma |
+| 2 | 2016-10-03 | Decreto Ejecutivo 40084 (2016-10-03) |

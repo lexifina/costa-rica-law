@@ -1,3 +1,11 @@
-Artículo 2º—Para efectos de interpretación de este decreto se establecen las siguientes definiciones:
-a) Autoridades Reguladoras Estrictas: Son las definidas como tales según la Organización Mundial de la Salud en el proceso de precalificación de productos farmacéuticos establecida en el Documento WHO Technical Report Series, Nº 961, 2011 y sus actualizaciones.
-b) Autoridades Nacionales de Referencia Regional: Son las que según los criterios establecidos por la Organización Panamericana de la Salud han alcanzado un nivel IV.
+Artículo 2º—Se consideran Autoridades Reguladoras Estrictas para la aplicación del presente decreto:
+a) EMA: Agencia Europea de Medicamentos.
+b) FDA: Administración de Alimentos y Medicamentos de Estados Unidos de América.
+c) Ministerio de Sanidad, Trabajo y Bienestar de Japón.
+d) Swissmedic: Agencia Suiza para Productos Terapéuticos.
+e) Health Canada.
+f) TGA: Administración de Productos Terapéuticos de Australia.
+g) IMCA: Agencia Islandesa para el Control de Medicamentos.
+h) Agencia Noruega de Medicamentos.
+i) Oficina de salud/Departamento de Medicamentos de Liechtenstein.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40084 del 3 de octubre del 2016)
