@@ -1,2 +1,2 @@
-Artículo 3º—El Viceministerio de Paz tendrá a su cargo los programas de prevención del delito y de la violencia social, y como fin primordial, la promoción de una cultura de paz.
-Lo anterior, sin perjuicio de otras funciones que el Ministro/a de Justicia y Paz le encomiende o delegue.
+Articulo 3 °-El Viceministro/a de Paz tendrá a su cargo la coordinación de los programas de prevención del delito y de la violencia social, así como el control de espectáculos públicos y como fin primordial, la promoción de una cultura de paz. Esto sin perjuicio de otras funciones que el ministro/a de Justicia y Paz le encomiende o delegue.
+(Así reformado por el artículo 2° del decreto ejecutivo N° 39967 del 3 de octubre de 2016)

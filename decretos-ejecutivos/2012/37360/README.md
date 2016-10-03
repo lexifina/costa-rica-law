@@ -15,3 +15,4 @@ Reglamento de Órganos Jerárquicos Superiores del Ministro de Justicia y Paz
 | --- | --- | --- |
 | 1 | 2012-10-26 | la propia norma |
 | 2 | 2014-08-14 | Decreto Ejecutivo 38599 (2014-08-14) |
+| 3 | 2016-10-03 | Decreto Ejecutivo 39967 (2016-10-03) |
