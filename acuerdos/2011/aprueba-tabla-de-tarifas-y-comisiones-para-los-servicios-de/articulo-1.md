@@ -313,4 +313,6 @@ En colones | 0.50% anual
 En dólares | 0.50% anual
 - Mínimo | $7.00
 Reposición de valores en Custodia por cláusulas restrictivas a favor de la Proveeduría Nacional, Dirección General de Aduanas y otras Instituciones para garantizar la participación y cumplimiento de las licitaciones. |
+Por la emisión de constancias o certificaciones relativas a información de índole tributaria (máximo un período fiscal por constancia): (Así adicionado el servicio anterior mediante sesión N° 8977/16 del 4 de octubre del 2016) | $10,00 o su equivalente en colones. (Así adicionado el monto anterior mediante sesión N° 8977/16 del 4 de octubre del 2016)
+Por la emisión de cada certificación o constancia en general, para los servicios que no especifiquen otra tarifa, dentro del rubro denominado “Otras tarifas”: (Así adicionado el servicio anterior mediante sesión N° 8977/16 del 4 de octubre del 2016) | $10,00 o su equivalente en colones. (Así adicionado el monto anterior mediante sesión N° 8977/16 del 4 de octubre del 2016)
 * Nota: La información en Tarjetas de Crédito y Débito y SINPE con asterisco (*) son comisiones interbancarias, para conocimiento y uso interno.
