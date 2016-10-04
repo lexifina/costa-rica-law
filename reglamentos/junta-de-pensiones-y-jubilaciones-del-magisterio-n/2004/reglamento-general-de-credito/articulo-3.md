@@ -11,20 +11,18 @@ Su finalidad es dotar de recursos a las entidades sociales y financieras del Mag
 (Así reformado el punto anterior mediante sesión ordinaria N° 113-2015 del 19 de octubre del 2015)
 5. Línea de Salud
 Dirigido a los afiliados (as) del Régimen, para satisfacer sus requerimientos en el área de la salud. Entendiéndose el término salud, tal como lo refiere el Organismo Mundial de la Salud: “Estado de completo bienestar físico, mental y social, y no solamente la ausencia de enfermedad o dolencia.
-6. Derecho Sucesorio:
-Dirigido a los beneficiarios de derechos sucesorios del Régimen de Pensiones del Magisterio Nacional, siempre y cuando exista una resolución que apruebe su derecho. / Esta línea atenderá requerimientos de índole personal.
-(Así reformado el punto anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+6. Derecho Sucesorio
+Dirigido a los beneficiarios de derechos sucesorios del Régimen de pensiones del Magisterio Nacional, siempre y cuando exista una resolución que apruebe su derecho y sean mayores de edad.
+Esta línea atenderá requerimientos de índole personal.
+(Así reformado el punto anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
 7. Línea de Urgencia
-Podrían acceder a esta línea, los pensionados (as) que presenten las siguientes necesidades:
-i. Cancelación parcial o total de deudas a nombre del pensionado (a), que se encuentren en estado de cobro judicial o que tengan un alto grado de atraso en el pago de las cuotas.
-Las deudas deben haber sido contraídas con instituciones públicas o privadas del sector bancario nacional, financieras, entidades financieras del Magisterio Nacional, o personas físicas, para lo cual el solicitante deberá presentar la documentación de respaldo correspondiente.
+Podrían acceder a esta línea, los afiliados (as) que presenten las siguientes necesidades:
+i. Cancelación parcial o total de deudas que se encuentren en estado de morosidad o cobro judicial.
 ii. Cancelación parcial o total de gastos médicos para tratamientos especializados u operaciones.
-Estos gastos, pueden ser para el pensionado (a), su cónyuge o algún pariente por consaguinidad o afinidad en primer grado.
-iii. Reposición de bienes que el pensionado (a) haya perdido, a causa de hurto, robo o vandalismo; para lo cual, deberá presentar la documentación probatoria correspondiente (copia de la denuncia ante el Organismo de Investigación Judicial).
-iv. Reposición de bienes por causa de desastres naturales (inundaciones, temblores, terremotos, etc.) en los cuales, el pensionado (a) haya perdido parcial o totalmente sus bienes. Deberá aportar certificación emitida por la autoridad competente.
-Estos gastos, pueden ser para el pensionado (a), o de quien estime conveniente.
-(Así adicionado el párrafo anterior mediante sesión ordinaria N° 015-2015 del 5 de febrero del 2015)
-(Eliminado el inciso v) original mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+Estos gastos, pueden ser del afiliado (a) o de quien estime conveniente.
+Reposición de bienes que haya perdido, a causa de hurto, robo o vandalismo; para lo cual, deberá presentar la documentación probatoria.
+iii. Reposición de bienes parcial o total por causa de desastres naturales (inundaciones, temblores, terremotos, etc). Deberá aportar certificación emitida por la autoridad competente.
+(Así reformado el punto anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
 8. Línea para Servicios Funerarios
-Dirigida a los trabajadores en servicio cotizantes y a los pensionados o jubilados, que requieren cancelar gastos funerarios.
-(Así reformado el punto anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+Dirigida a los afiliados, que requieren cancelar gastos funerarios.
+(Así reformado el punto anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)

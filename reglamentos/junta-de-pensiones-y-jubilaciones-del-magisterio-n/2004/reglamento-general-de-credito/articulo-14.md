@@ -13,12 +13,23 @@ f) Presentar fotocopia de la cédula de identidad vigente (por ambos lados).
 (Así corrida la numeración del inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014, que lo traspasó del antiguo inciso e) al f))
 g) Las cuotas del crédito, incluyendo amortización y pago de intereses, serán deducidas de la pensión o jubilación, previa autorización del interesado.
 (Así corrida la numeración del inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014, que lo traspasó del antiguo inciso f) al g))
-h) Presentar facturas pro-forma donde se muestre el servicio funerario a financiar, o las facturas timbradas que comprueben la cancelación, ambas acompañadas del acta de defunción.
+h) Proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito.
 (Así corrida la numeración del inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014, que lo traspasó del antiguo inciso g) al h))
-i) Proporcionar satisfactoriamente los datos de contactos solicitados por la Unidad de Crédito y Cobro.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
+i) En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito, para resguardar los intereses de la institución.
 (Así reformado y corrida la numeración del inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014, que lo traspasó del antiguo inciso h) al i))
-j) que señala: En caso de ser necesario, presentar y cumplir con los documentos, requisitos y garantías adicionales que le solicite la Unidad de Crédito y Cobro, para resguardar los intereses de la institución.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
+j) Garantía: Esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
+Pensionados, trabajadores en Servicio de MEP, INA, CUC, CUN Limón y de las universidades estatales, con nombramiento en Propiedad, o bien, interinos de estos centros educativos, con 48 cotizaciones o más, en los últimos 5 años:
+Hasta | ¢2.000.000.00 | Sin fiador
+Trabajadores en Servicio del MEP, INA, CUC, CUN Limón y de las Universidades Interinos de estas instituciones con menos de 48 cotizaciones:
+Hasta ¢1.000.000.00 | Sin fiador
+¢1.000.001.00 | ¢2.000.000.00 | 1 fiadores
+| |
+Trabajadores en Servicio de Centros Educativos Privados (CEP), en Propiedad e Interinos:
+Hasta | ¢2.000.000.00 | 1 fiador
 (Así adicionado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+(Así reformado el inciso anterior mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
 k):• Garantía: Esta línea de crédito podrá aprobarse con o sin fiador, según se detalla:
 • Pensionados, trabajadores en Servicio de MEP, Universidades y el INA, con nombramiento en Propiedad, o bien, interinos de estos centros educativos, con 60 cotizaciones o más, en los últimos 6 años.
 Hasta | ¢2.000.000.00 | Sin fiador

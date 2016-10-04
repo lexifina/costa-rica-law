@@ -1,4 +1,3 @@
-Artículo 22.—Mecanismo de Aprobación. Las solicitudes de crédito serán recibidas, analizadas y aprobadas o denegadas por la Unidad de Crédito y Cobro de la Junta de Pensiones o en cualquiera de las sucursales, según los parámetros establecidos en este Reglamento.
-(Así reformado el párrafo anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
-Se exceptúan de esta aprobación, los casos de crédito de Microempresa y los que por su naturaleza atípica deben ser aprobados por la junta directiva de la Junta de Pensiones, así como los de la línea para Entidades Sociales y Financieras del Magisterio Nacional, cuya aprobación final también la brinda ese órgano.
-Queda entendido que por el hecho de recibir la solicitud de crédito, la Junta no adquiere compromiso y obligación alguna con el solicitante y que la aprobación del mismo queda sujeta a juicio exclusivo de la Institución, de conformidad con los parámetros establecidos en esta reglamentación, la disponibilidad presupuestaria, y los acuerdos expresos de la Junta Directiva.
+ARTÍCULO 22 Mecanismo de Aprobación
+Las solicitudes de crédito serán recibidas, analizadas y aprobadas o denegadas por la Unidad de Crédito o en cualquiera de las sucursales, según los parámetros establecidos en este Reglamento.
+(Así reformado mediante sesión ordinaria N° 109-2016 del 4 de octubre del 2016)
