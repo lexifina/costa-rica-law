@@ -1,0 +1,1 @@
+TRANSITORIO I.- Las patentes sin explotación comercial otorgadas al amparo de la Ley N.° 10, Ley sobre la Venta de Licores, de 7 de octubre de 1936, tendrán un plazo único de seis meses, contado a partir de la presente reforma, para colocar dichas patentes o renunciarlas sin pago alguno ante la municipalidad respectiva.
