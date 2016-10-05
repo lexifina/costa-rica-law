@@ -1,1 +1,1 @@
-Artículo 22.—Prohibición de recibir dádivas. Queda absolutamente prohibido a los Parquimetrista solicitar o recibir contribuciones de los usuarios. El irrespeto a esta prohibición será causa justa para dar por terminado el contrato de trabajo del Parquimetrista, sin responsabilidad patronal.
+Artículo 22.—Prohibición de recibir dádivas. Queda absolutamente prohibido a los funcionarios solicitar o recibir contribuciones de los usuarios. El irrespeto a esta prohibición será causa justa para dar por terminada la relación laboral con el funcionario sin responsabilidad patronal.

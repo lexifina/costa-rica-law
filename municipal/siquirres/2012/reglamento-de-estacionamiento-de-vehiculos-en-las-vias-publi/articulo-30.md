@@ -1,1 +1,1 @@
-Artículo 30.—Horario. El horario de estacionómetros será de lunes a sábado de las 7:00 horas a las 18:00 horas.
+Artículo 30. — (Nota de Sinalevi: En la publicación de esta norma no se publica este artículo. No obstante el sistema exige una numeración consecutivo por lo que se ha creado el mismo pero sin texto)
