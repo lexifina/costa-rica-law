@@ -1,0 +1,1 @@
+Artículo 9.- Régimen Recursivo. Contra el acto del jerarca que deniegue la emisión de la Carta, la empresa solicitante podrá interponer recurso de reconsideración, en los términos y plazos establecidos en la Ley General de la Administración Pública.
