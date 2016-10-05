@@ -1,0 +1,1 @@
+Artículo 11º—Actualización anual del monto de la caución: El Proceso de Recursos Humanos actualizará los montos por caucionar para cada uno de los niveles, conforme a las modificaciones del “salario base”. Dichas actualizaciones serán comunicadas por correo electrónico interno a cada caucionado/da y se harán efectivas al momento en que proceda la renovación de la garantía.
