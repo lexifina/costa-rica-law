@@ -1,0 +1,9 @@
+BANCO POPULAR Y DE DESARROLLO COMUNAL
+(Nota de Sinalevi: Sobre este tema el Banco Popular y de Desarrollo Comunal, había emitido anteriormente el Reglamento para la administración de vehículos para uso del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y sus subsidiarias, en sesión N° 5100 del 5 de setiembre de 2013.)
+La Junta Directiva Nacional, en su calidad de tal y en el ejercicio de funciones de Asamblea de Accionistas de Popular Sociedad Administradora de Fondos de Inversión S.A Popular Sociedad Agencia de Seguros S.A, Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A y Popular Valores Puesto de Bolsa S.A, en sesión 5400 del 6 de setiembre del 2016, aprobó el Reglamento para la Administración y Uso de Vehículos del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y sus Subsidiarias el cual se leerá así:
+“REGLAMENTO PARA LA ADMINISTRACIÓN Y USO DE
+VEHÍCULOS DEL CONGLOMERADO FINANCIERO BANCO
+OPULAR Y DE DESARROLLO COMUNAL Y SUS
+SUBSIDIARIAS”
+Disposiciones Generales
+Artículo 1°.- El uso, control y mantenimiento de los vehículos que sean propiedad del Banco Popular, de la Operadora de Planes de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal S.A, de Popular Valores y de Popular Sociedad Agencia de Seguros S.A, o que no siéndolo se utilicen para el mejor cumplimiento de las funciones que le son propias a cada uno de ellos, están regulados por el presente Reglamento, así como por todos aquello otros reglamentos, circulares, políticas, órdenes y demás disposiciones que señalen deberes y obligaciones del personal del Conglomerado, en relación con la conservación de los bienes de cada entidad. Dichas normas son de acatamiento obligatorio por parte de quienes conducen y utilizan dichos vehículos.
