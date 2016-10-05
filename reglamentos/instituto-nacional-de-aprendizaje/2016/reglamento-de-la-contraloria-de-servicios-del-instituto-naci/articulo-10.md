@@ -1,0 +1,2 @@
+Artículo 10.—Investigación Preliminar
+La persona analista responsable de la tramitación de la gestión, en caso de considerarlo necesario, previo a darle trámite, puede realizar una investigación preliminar. Para tal efecto podrá utilizar cualquier medio que facilite dicha acción y que le permita obtener la información necesaria a fin de determinar los alcances de la gestión presentada así como la tramitación que se le dé.
