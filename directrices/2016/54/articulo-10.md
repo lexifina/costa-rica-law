@@ -1,0 +1,1 @@
+Artículo 10º. - La presente Directriz se aplicará para la confección de los listados de potenciales beneficiarios de los proyectos de vivienda de interés social financiados al amparo del artículo 59 de la LSFNV que hayan ingresado formalmente al BANHVI después de su entrada en vigencia.

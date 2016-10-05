@@ -1,0 +1,3 @@
+TRANSITORIO II. - Las Entidades Autorizadas remitirán al BANHVI los proyectos que reúnan las condiciones indicadas en el inciso e) del artículo 2 de esta directriz, con sus respectivos listados de familias potenciales beneficiarias, siempre que hayan ingresado a ellas antes del primer día del mes de marzo del año 2017.
+Se instruye para que cada bimestre el BANHVI oficialice mediante acuerdo de Junta Directiva, la lista de PVIS que se encuentra cubierta por el Transitorio I de la presente Directriz.
+La Junta Directiva verificará que únicamente se incluyan PVIS cuyo listado de potenciales beneficiarios se encuentre completo señalando un núcleo familiar para cada una de las soluciones de vivienda a desarrollar.

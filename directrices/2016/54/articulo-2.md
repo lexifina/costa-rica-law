@@ -1,0 +1,7 @@
+Artículo 2°. - Para efectos de la comprensión de la presente Directriz se utilizarán las siguientes definiciones, abreviaturas y siglas:
+a) BANHVI: Banco Hipotecario de la Vivienda.
+b) IPV: iniciativas de proyectos de vivienda que cuentan con un listado de familias potenciales beneficiarias y que se encuentran en el registro oficial del BANHVI emitido en el mes de octubre del 2016.
+c) LSFNV: Ley del Sistema Financiero Nacional para la Vivienda y Creación del BANHVI (Banco Hipotecario de la Vivienda), Ley n. º 7052, de 13 de noviembre de 1986.
+d) MIVAH: Ministerio de Vivienda y Asentamientos Humanos.
+e) PVIS: proyectos de vivienda de interés social que cuentan con un listado de familias potenciales beneficiarias y que se encuentran en trámite para ser financiados al amparo del artículo 59 de la LSFNV en las Entidades Autorizadas o bien, que ingresen a ellas antes del primer día del mes de marzo del año 2017.
+f) Riesgo inminente: conjunto de factores físicos y ambientales que aumentan la vulnerabilidad de que una amenaza se convierta en desastre y represente un peligro para la vida de los habitantes de un determinado espacio geográfico. Para determinar el riesgo inminente, se utilizarán los informes generados por instituciones competentes en la materia: Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, Ministerio de Salud, Comités Municipales de Emergencia, o el Ministerio de Vivienda y Asentamientos Humanos.

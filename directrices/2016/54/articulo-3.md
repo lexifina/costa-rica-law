@@ -1,0 +1,5 @@
+Artículo 3. - Se instruye para que los proyectos de vivienda de interés social financiados al amparo del artículo 59 de la LSFNV, se orienten a la atención de familias potenciales beneficiarias que se encuentren en uno o varios de los siguientes supuestos:
+a. Ser damnificadas por emergencias o ubicarse en zonas en condición de riesgo inminente declaradas mediante decreto ejecutivo o por alguna autoridad competente.
+b. Formar parte de la población meta de la estrategia Puente al Desarrollo con necesidades de vivienda o bien, de otras estrategias concretas que el Poder Ejecutivo establezca para la reducción de la desigualdad o de la pobreza.
+c. Tener necesidad de vivienda asociada al desarrollo de un proyecto de interés nacional debidamente declarado mediante decreto ejecutivo.
+d. Tener necesidad de vivienda y estar registrada en el Sistema de Identificación de Población Objetivo (SIPO) del Instituto Mixto de Ayuda Social, o bien en el Sistema Nacional de Información y Registro Único de Beneficiarios (SINIRUBE).

@@ -1,0 +1,1 @@
+Artículo 7º. - Corresponderá a la Junta Directiva del BANHVI emitir las disposiciones administrativas y metodológicas necesarias para garantizar la efectiva aplicación de esta Directriz, por lo que se direcciona para que lo realice en un plazo no mayor a dos meses calendario, contados a partir de la entrada en vigencia de la misma.

@@ -1,0 +1,1 @@
+Artículo 9°. - De conformidad con las especificaciones establecidas en la presente Directriz, el BANHVI podrá solicitar la colaboración del MIVAH para la definición de un segmento de población prioritaria para un proyecto de vivienda de interés social financiado al amparo del artículo 59 de la LSFNV.
