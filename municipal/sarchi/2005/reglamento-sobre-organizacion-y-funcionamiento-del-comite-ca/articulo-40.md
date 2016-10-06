@@ -1,1 +1,0 @@
-Artículo 40.—Cada Comisión debe elaborar y ejecutar su plan de trabajo, mismos que previamente debe ser aprobados por el Comité Cantonal de Deportes quien le brindará para su funcionamiento el soporte administrativo y económico en la medida de sus posibilidades.

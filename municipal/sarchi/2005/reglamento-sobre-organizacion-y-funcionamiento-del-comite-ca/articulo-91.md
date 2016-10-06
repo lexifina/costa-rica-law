@@ -1,1 +1,0 @@
-Artículo 91.—Toda organización deportiva y recreativa de la comunidad puede recurrir al Comité Cantonal de Deportes y Recreación para su reconocimiento y afiliación y gozar de todos los beneficios en proyectos y programas que el mismo ofrece.

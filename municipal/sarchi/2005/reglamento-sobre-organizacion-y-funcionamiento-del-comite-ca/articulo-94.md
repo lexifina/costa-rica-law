@@ -1,1 +1,0 @@
-Artículo 94.—Los casos y necesidades no contemplados en este reglamento serán resueltos conforme al sano criterio de los miembros del Comité Cantonal de Deportes y Recreación, su resolución deberá ser aprobada por el Concejo Municipal y comunicarse para su debida incorporación al reglamento.

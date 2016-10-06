@@ -1,1 +1,0 @@
-Artículo 64.—Queda terminantemente prohibido el préstamo personal de dineros provenientes de los ingresos de las actividades deportivas o recreativas, de ser incumplida esta disposición, los infractores perderán su credencial del cargo que ocupaban, además reintegrar el dinero por parte de los responsables.
