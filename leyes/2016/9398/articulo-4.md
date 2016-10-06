@@ -1,0 +1,1 @@
+ARTÍCULO 4.- Aquellos informes de los rectores sectoriales que sean designados por la Asamblea Legislativa se presentarán directamente ante el Plenario, que los escuchará y discutirá conforme se establezca en el Reglamento de la Asamblea Legislativa.
