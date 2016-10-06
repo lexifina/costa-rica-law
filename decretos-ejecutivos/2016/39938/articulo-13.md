@@ -1,0 +1,3 @@
+Artículo 13.- Volumen de contingente de importación asignado.
+1. COMEX transmitirá al sistema informático para el control aduanero, el volumen asignado a cada solicitante conforme con los lineamientos que establezca al efecto la autoridad aduanera. Esta transmisión será considerada como ce1tificado electrónico de contingente de importación.
+2. Los derechos concedidos mediante la asignación de contingentes arancelarios y el certificado electrónico de contingente no constituyen un título valor o valor negociable de manera que no pueden ser endosados, cedidos o de cualquier otra forma transferidos.
