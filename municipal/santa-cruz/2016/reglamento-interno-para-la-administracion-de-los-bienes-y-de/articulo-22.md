@@ -1,0 +1,4 @@
+Artículo 22.- La asignación de bienes públicos a un contratista deberá considerar lo siguiente:
+a. Incluir en el contrato la responsabilidad del contratista, y otros aspectos que se consideren necesarios, sobre los bienes facilitados durante la vigencia del contrato.
+b. La entrega y devolución de los bienes estarán a cargo de un encargado por parte de la unidad fiscalizadora del contrato, quien levantará un acta, en la que dejará constancia de la descripción de los bienes y su estado en cada uno de esos momentos. En el acta de la devolución por parte del contratista se debe consignar si existe faltante o daño.
+c. Si se omitiere la confección de la citada acta, los faltantes o daños que posteriormente se encuentren, quedarán bajo la responsabilidad del encargado, de lo contrario la administración procederá conforme corresponda para iniciar la reposición de los posibles faltantes o daños por parte del contratista.

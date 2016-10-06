@@ -1,0 +1,1 @@
+Artículo 13.- El Departamento de Asesoría Jurídica Interna será el responsable de realizar los trámites de inscripción de los derechos de propiedad intelectual que sean generados por los funcionarios de la Municipalidad de Santa Cruz a solicitud de la Alcaldía Municipal.

@@ -1,0 +1,1 @@
+Artículo 21.- Los reportes anuales que contienen el detalle de los bienes asignados a cada dependencia, serán enviados por el Almacén de Bienes y Suministros, con el objeto de que los Jefes de cada departamento valoren y analicen las inconsistencias detectadas, determinen sus causas, adopten las acciones correspondientes a lo interno de sus departamentos e informen lo pertinente.

@@ -1,0 +1,2 @@
+Artículo 35.- Cuando el Almacén de Bienes y Suministros la Unidad de Gestión Administrativa determine que el bien es irrecuperable, dará de baja el bien en el Sistema de Bienes, dando comunicación de ello al Departamento de Contabilidad y al Departamento responsable de la administración del bien. De tratarse de equipo de cómputo, se informará igualmente al Departamento de Tecnologías de Información.
+Los expedientes de los bienes dados de baja se deben conservar en el Almacén de Bienes y Suministros.
