@@ -1,5 +1,0 @@
-Artículo 14.—Obligaciones de los Proveedores de solución de facturación en sitios Web. Los proveedores de la solución de facturación electrónica en un sitio Web, están obligados a:
-a. Estar inscrito en el Registro de Contribuyentes de la Administración Tributaria y tener registrado un correo electrónico.
-b. Cumplir con todos los requisitos y obligaciones establecidos en los artículos precedentes de la presente resolución.
-c. Disponer de una solución de factura electrónica que facilite a sus clientes el cumplimiento de las obligaciones establecidas en los artículos 12 y 13 de esta resolución. Dicha solución tecnológica, además, debe permitir la descarga y respaldo de todos los documentos que el emisor-receptor electrónico haya generado, emitido y recibido por este medio; y llevar un registro de control de clientes y mantener registros de todas las operaciones realizadas por los usuarios de facturación electrónica en sitios Web.
-(Así reformado el inciso anterior mediante resolución N° DGT-019 del 4 de agosto de 2011)

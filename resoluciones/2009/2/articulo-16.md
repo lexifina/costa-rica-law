@@ -1,1 +1,0 @@
-Artículo 16.—Divulgación. El registro de emisores-receptores de facturación electrónica, receptores no emisores y proveedores de solución de facturación en sitios Web, estará disponible y se podrá consultar en el sitio Web del Ministerio de Hacienda o en forma telefónica en la Administración Tributaria correspondiente.

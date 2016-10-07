@@ -1,1 +1,0 @@
-Artículo 6º—Aceptación o rechazo de los documentos electrónicos. Cuando los comprobantes electrónicos sean generados satisfactoriamente se enviarán al receptor electrónico, quien confirmará su aceptación o rechazo, utilizando el formato establecido para tal efecto.

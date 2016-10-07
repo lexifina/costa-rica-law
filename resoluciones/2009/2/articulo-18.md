@@ -1,1 +1,0 @@
-Artículo 18.—Derogatoria. Se deroga la resolución Nº 22-07 de las nueve horas del día diecisiete de setiembre de dos mil siete, publicada en el diario oficial La Gaceta Nº 188 del primero de octubre del dos mil siete.

@@ -1,1 +1,0 @@
-Artículo 8º—Anulación o corrección. Se puede efectuar la anulación o corrección de una factura electrónica emitida, únicamente mediante nota de crédito o de débito electrónicas, prevaleciendo inalterable el documento original y su correspondiente número consecutivo, el cual no podrá ser reutilizado.
