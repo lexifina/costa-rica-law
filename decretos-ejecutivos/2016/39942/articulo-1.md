@@ -1,0 +1,19 @@
+Nº 39942-MP
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE LA PRESIDENCIA
+En uso de las facultades que les confieren los artículos 140, incisos 8) y 20), y 146 de la Constitución Política; 25, 28, párrafo 2), inciso b) de la Ley General de la Administración Pública, Ley Nº 6227 de 02 de mayo de 1978.
+Considerando:
+I.—Que la Universidad Nacional (UNA) declaró el 2016 como el año por la Madre Tierra. A la vez, el Consejo Nacional de Rectores (CONARE) realizó la declaratoria del 2016 como el año de las Universidades Públicas por la Madre Tierra.
+II.—Que el Consejo Superior Universitario Centroamericano (CSUCA) declaró el 2016 como el año de las Universidades Estatales de Centroamérica por la Madre Tierra.
+III.—Que la UNA cuenta con equipos de académicos consolidados que abordan la problemática del patrimonio hídrico nacional mediante la investigación, extensión, docencia y gestión en diferentes temas estratégicos asociados al agua, que contribuyen a fortalecer los procesos de la gestión sustentable del recurso. Es por ello que, siendo una de las áreas de fortaleza en dicho trabajo la gestión comunitaria del agua, la UNA ha desarrollado diversas actividades académicas orientadas a promover y potenciar los procesos de gestión del patrimonio hídrico a nivel local, nacional y regional.
+IV.—Que mediante nota suscrita por el Dr. Javier Escalera Reyes, Director del Campus de Excelencia Internacional de Medio Ambiente, Biodiversidad y Cambio Climático (CEI CamBio) y los señores Juan Ramón Rodríguez Mateo y Fernando Quiles, Coordinadores de la Red de Patrimonio Cultural de los Países Centroamericanos, se invita a la Universidad Nacional a participar activamente del I Congreso Internacional sobre Patrimonio Cultural y Natural Centroamericano: Agua, Cultura y Territorio, cuya sede será Costa Rica.
+V.—Que dicho evento tiene como objetivo promover el intercambio de conocimientos, saberes y experiencias relacionadas con el elemento agua y su manifestación a través de la cultura y el territorio, el cual tiene relación directa con las áreas temáticas de la Universidad Nacional, incluidas la conservación del agua, gestión integrada de cuencas, fomento de capacidades y contaminación, tratamiento de aguas, entre otras.
+VI.—Que en el Congreso citado participarán delegaciones de los países Centroamericanos y del Caribe, representantes nacionales y universidades españolas, para un total de 200 participantes, con los cuales se espera intercambiar experiencias en el tema de patrimonio cultural y natural del agua, y dentro de los cuales se espera la participación de académicos e investigadores de la UNA.
+VII.—Que en el quehacer de la Vicerrectoría de Investigación de la UNA, como gestor de iniciativas académicas de integración en la temática del agua, por medio Programa Interdisciplinario de Investigación y Gestión del Agua de la Universidad Nacional (PRIGA) se busca promover la gestión integral del patrimonio hídrico para fortalecer la generación de conocimiento a partir de un abordaje interdisciplinario de las iniciativas académicas, objetivo directamente relacionado con la temática del encuentro.
+VIII.—Que diversas instancias de la UNA, como el Programa Interdisciplinario de Investigación y Gestión del Agua (PRIGA), el Instituto de Estudios Sociales en Población (IDESPO) y la Escuela de Historia, son parte activa del comité organizador del el I Congreso Internacional sobre Patrimonio Cultural y Natural: Agua, Cultura y Territorio. Por tanto,
+Decretan:
+“DECLARATORIA DE INTERÉS PÚBLICO
+Y NACIONAL DEL I CONGRESO INTERNACIONAL
+SOBRE PATRIMONIO CULTURAL Y NATURAL:
+AGUA, CULTURA Y TERRITORIO”
+Artículo 1º—Se declara de interés público y nacional el I Congreso Internacional sobre Patrimonio Cultural y Natural: Agua, Cultura y Territorio, a realizarse del 14 al 18 de noviembre del 2016, en la Sede Omar Dengo de la Universidad Nacional.
