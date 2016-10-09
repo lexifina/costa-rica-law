@@ -1,0 +1,1 @@
+2. Cobertura. El sistema es para el registro de corredores de bienes raíces y posterior aplicación del procedimiento aquí incluido, para la venta de bienes inmuebles transferidos al Banco Popular en pago de obligaciones o adjudicados en remates judiciales. Su aplicación será por medio del Área Bienes Adjudicados.

@@ -1,0 +1,1 @@
+27. Otras consideraciones. Los corredores de bienes inscritos antes de la publicación de este Instructivo modificado, deberán validar y completar información en caso necesario, ante el Área de Bienes Adjudicados. Posterior al comunicado del Banco con los requerimientos para actualizar su inscripción, tendrán un plazo de quince días hábiles para aportar lo solicitado.

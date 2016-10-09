@@ -1,0 +1,2 @@
+Formalización
+22. La relación entre el Banco Popular y el corredor (a) de bienes raíces se formalizará mediante la suscripción de un contrato, cuya vigencia será de un año con posibilidad de prórrogas anuales hasta por un máximo de tres períodos adicionales, siempre y cuando ninguna de las partes manifieste por escrito, su interés de no prorrogarlo con una antelación de tres meses antes de su vencimiento.

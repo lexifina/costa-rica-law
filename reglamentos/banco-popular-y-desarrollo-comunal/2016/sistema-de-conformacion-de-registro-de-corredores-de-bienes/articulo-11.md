@@ -1,0 +1,2 @@
+11. Subsanaciones. En cualquier momento dentro del plazo de análisis de las solicitudes de inscripción, el Área Bienes Adjudicados podrá solicitar la subsanación de aquellos elementos que se requieran para mejor resolver.
+El interesado deberá remitir lo solicitado dentro de un plazo de 5 días hábiles contados a partir de la comunicación por parte del Banco. Los documentos remitidos fuera de ese plazo invalidarán la solicitud, sin perjuicio de que pueda presentar una nueva solicitud de inscripción.

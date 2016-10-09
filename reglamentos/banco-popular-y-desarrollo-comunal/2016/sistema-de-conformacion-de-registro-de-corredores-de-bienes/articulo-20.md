@@ -1,0 +1,3 @@
+Multas
+20. Multas. Por cada día natural de atraso en la notificación al Banco del formulario denominado “Prospección de Clientes Potenciales” por parte del Corredor, según el apartado 17 de este instructivo, éste deberá pagar un 0.1 % sobre el monto de la comisión correspondiente por la venta del bien.
+Para efectos de aplicación de las multas establecidas en este apartado, se considerarán los alcances de la resolución Nº 2013006639, emitida por la Sala Constitucional de la Corte Suprema de Justicia de las 16 horas y 01 minutos del 15 de mayo del 2013.
