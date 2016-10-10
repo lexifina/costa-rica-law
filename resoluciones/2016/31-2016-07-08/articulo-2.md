@@ -1,1 +1,0 @@
-Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-021-2016 del 07 de abril del 2016, publicada en el Alcance N° 62 a La Gaceta N° 78 del 25 de abril del 2016.
