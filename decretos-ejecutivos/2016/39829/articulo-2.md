@@ -1,1 +1,0 @@
-Artículo 2°— Deróguese el Decreto Ejecutivo número 39640-H de fecha 7 de abril de 2016, publicado en el Alcance número 63 a La Gaceta número 79 de fecha 26 de abril de 2016, a partir de la vigencia del presente decreto.
