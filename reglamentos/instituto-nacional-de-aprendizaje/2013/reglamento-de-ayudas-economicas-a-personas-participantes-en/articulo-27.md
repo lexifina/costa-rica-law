@@ -1,3 +1,2 @@
-Artículo 27.—Responsabilidades de las personas Encargadas del Proceso Financiero Contable en las Unidades Regionales con relación a la gestión de pago de ayudas económicas.
-a. Realizar el trámite de aprobación de los compromisos presupuestarios de las ayudas aprobadas en las fechas establecidas según cronograma institucional y elaborar los cheques que correspondan al pago de las ayudas por medio del sistema institucional establecido, cuando lo amerite.
-b. Cualquier otra función conferida por ley, Reglamento o instrucción institucional atinente a su condición.
+Artículo 27. Funciones de la persona Administradora de Servicios o persona funcionarias designada por la persona Encargada del Centro Ejecutor.
+Reportar a la persona Encargada del Centro de Formación o Proceso de Servicio al Usuario, la información referente al control de ausencias, fallecimientos, deserciones, rendimiento académico y cualquier otra situación anómala en las que hayan incurrido las personas con ayuda económica referidas por la persona docente en los plazos establecidos en las instrucciones institucionales, para que se proceda según corresponda.

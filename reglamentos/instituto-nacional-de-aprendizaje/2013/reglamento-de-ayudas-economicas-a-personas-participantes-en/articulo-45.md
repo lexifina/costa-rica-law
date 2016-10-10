@@ -1,5 +1,6 @@
-Artículo 45.—Denegatoria de la ayuda económica. La ayuda económica no se aprobará cuando:
-a. La persona solicitante o su familia suministre información no veraz.
-b. La persona solicitante o su familia, omita información sobre la situación económica familiar o personal.
-c. Por no cumplir dentro del plazo con lo establecido en el artículo 33 del presente Reglamento.
-d. Cuando su condición socioeconómica no sea la prioritaria según establecen los parámetros del Índice Socioeconómico aplicado.
+Artículo 45. Pérdida de la ayuda económica.
+Se cancelarán las ayudas económicas, cuando:
+a. Después de realizado el estudio de verificación de la situación socioeconómica, se determine la existencia de alguna de las causales señaladas en los incisos a) y b) del artículo 44.
+b. Incumplimiento de las obligaciones establecidas en el artículo 42 del presente Reglamento.
+c. Cuando la persona reprueba dos módulos en forma consecutiva o simultánea.
+d. Cuando deserte.

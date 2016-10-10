@@ -1,1 +1,2 @@
-Artículo 55.—Derogatorias. Se deroga cualquier otra disposición dictada por la Junta Directiva que se le oponga a este Reglamento.
+Artículo 55. Vigencia
+Este Reglamento rige a partir del día hábil siguiente a su publicación en el Diario Oficial La Gaceta.

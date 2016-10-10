@@ -1,1 +1,2 @@
-Artículo 51.—Plazo para resolver. Tanto el Comité Regional de Ayudas Económicas como el Consejo Institucional tendrán un plazo de 10 días hábiles cada uno para pronunciarse sobre los recursos correspondientes. Este plazo rige a partir del día siguiente de la fecha de recibo del recurso.
+Artículo 51. Situaciones no reguladas
+Los casos no previstos por este Reglamento son resueltos por el Consejo Institucional de Ayudas Económicas.

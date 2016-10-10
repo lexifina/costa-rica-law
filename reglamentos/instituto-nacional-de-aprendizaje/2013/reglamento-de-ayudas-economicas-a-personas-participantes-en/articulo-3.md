@@ -1,7 +1,7 @@
 CAPÍTULO II
-Sobre el sistema de ayudas económicas
-Artículo 3º—Personas beneficiarias
-Podrán ser beneficiarias del sistema de ayudas económicas del INA las personas participantes de escasos recursos económicos (condición de pobreza, pobreza extrema y en vulnerabilidad social) o con situaciones especiales que cumplan con lo establecido en el artículo 32 del presente Reglamento. Para ello debe demostrar que tiene esa condición socioeconómica u otra situación calificada que amerite el otorgamiento de la ayuda económica, previa valoración de la persona profesional en Trabajo Social.
+SOBRE EL SISTEMA DE AYUDAS ECONÓMICAS
+Artículo 3. Personas beneficiarias
+Podrán ser beneficiarias del sistema de ayudas económicas del INA las personas participantes de escasos recursos económicos que se encuentren en condición de pobreza, extrema pobreza, condición de vulnerabilidad social u otra situación especial o calificada que cumplan con lo establecido en el artículo 31 del presente Reglamento. Para ello, debe demostrar que tiene esa condición que amerite el otorgamiento de la ayuda económica, previa valoración de la persona profesional en Trabajo Social.
+Además podrán ser beneficiadas las personas participantes de los servicios de capacitación y formación profesional que realizan práctica didáctica supervisada y de la modalidad de formación dual, independientemente de su condición socioeconómica, así mismo se podrá otorgar ayudas de este tipo para estimular la participación estudiantil dentro o fuera del país, cultural, deportiva, entre otras.
 La ayuda económica será únicamente para personas costarricenses y extranjeras residentes en condición de permanentes, siempre que su estatus migratorio sea legalmente establecido en el país y conforme a lo dispuesto en este Reglamento.
 Si la persona solicitante, cuenta con ayuda económica brindada por otra institución pública o privada, el INA podrá valorar el otorgamiento o no de una ayuda económica que la complemente y que le permita cubrir necesidades de su condición de participante, siempre que su situación socioeconómica lo amerite.
-(Así reformado y publicado en La Gaceta N° 135 del 15 de julio del 2013)

@@ -1,5 +1,6 @@
-Artículo 46.—Pérdida de la ayuda económica. Se cancelarán las ayudas económicas, cuando:
-a. Después de realizado el estudio de verificación de la situación socioeconómica, se determine la existencia de alguna de las causales señaladas en los incisos a) y b) del artículo 45.
-b. Incumplimiento de las obligaciones establecidas en el artículo 42 del presente Reglamento.
-c. Cuando la persona reprueba dos módulos en forma consecutiva o simultánea.
-d. Cuando deserte sin causa justificada.
+Artículo 46. Recuperación de la ayuda económica
+a. Cuando la persona con ayuda económica se retira del proceso de capacitación o formación por problemas de salud o situaciones muy calificadas y posterior a ello, solicita repetir el módulo, podrá reingresar con el status de la ayuda económica en el momento que se retiró.
+b. Cuando a la persona participante se le aplicó el artículo 47 del presente Reglamento no se le tramitará nueva solicitud hasta transcurridos dos años.
+c. Cuando la persona participante reingrese después de habérsele aplicado el artículo 45 inciso c) podrá realizar nuevo trámite de solicitud de ayuda económica y podrá otorgársele por una única vez más.
+d. Cuando la persona participante reingrese después de habérsele aplicado el artículo 45 inciso d) por desertar injustificadamente, podrá realizar nuevo trámite de solicitud de ayuda económica después de transcurridos doce meses y podrá otorgársele por una única vez más.
+Si la persona participante permanece fuera de la Institución por un período igual o superior a doce meses, deberá realizar nuevo trámite de solicitud de ayuda económica. Si el período es inferior deberá presentar solicitud por escrito la prórroga de la ayuda económica. Es necesario constatar cambio de situación socioeconómica si el período fuera de la institución fuera menos de doce meses.

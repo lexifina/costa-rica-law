@@ -1,1 +1,2 @@
-Artículo 53.—Sanciones. En caso de incumplimiento de las responsabilidades y obligaciones señaladas en el presente Reglamento, manual de instrucciones, lineamientos y políticas con relación a las ayudas económicas, se aplicará lo estipulado en el Capítulo X del Reglamento Autónomo de Servicios del INA.
+Artículo 53. Normas Supletorias
+En todo aquello no contemplado en este Reglamento se aplicarán las disposiciones de la Leyes establecidas en el ordenamiento jurídico que le compete.

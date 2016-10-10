@@ -1,4 +1,3 @@
-Artículo 30.—Responsabilidades de la Jefatura Regional:
-a. Aprobar la Nómina Regional de las ayudas económicas en las fechas establecidas por cronograma institucional por medio del sistema establecido.
-b. Designar a una persona responsable para cumplir con la responsabilidad asignada en este reglamento en caso de encontrarse ausente por motivos de incapacidad, permisos o vacaciones.
-c. Cualquier otra función conferida por ley, Reglamento o instrucción institucional atinente a su condición de Jefe Regional.
+Artículo 30. Proceso de Tesorería
+a. Dar trámite al depósito de las ayudas económicas en la entidad bancaria correspondiente en las fechas estipuladas según cronograma institucional.
+b. Cualquier otra función conferida por ley, Reglamento o instrucción institucional atinente a su condición.

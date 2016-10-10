@@ -1,5 +1,7 @@
-Artículo 35.—Ayuda para cubrir gastos de alimentación, gastos personales y transporte.
-a. Alimentación: Se considerará el horario de estudio y el tiempo de traslado al lugar donde recibe la capacitación.
-b. Transporte: Se considerará el costo establecido en las tarifas de los servicios de transporte público.
-c. Gastos personales: Gastos para artículos de uso personalizado que no puede cubrir la persona participante o su núcleo familiar por su condición de pobreza, el cual es indispensable para asistir al servicio de capacitación y formación profesional.
-La aprobación de estos rubros dependerá de la condición socioeconómica y categorías establecidas por el Índice Socioeconómico correspondiente y el monto a otorgar no podrá sobrepasar el máximo establecido en la Tabla de Ayudas Económicas
+Artículo 35. Ayudas técnicas para personas con discapacidad y para atender situaciones calificadas.
+Está ayuda se brindará a las personas en condición de pobreza o extrema pobreza podrán otorgarse en los siguientes conceptos:
+a. Compra de ayudas técnicas con carácter individualizada, dirigida a personas cuya discapacidad sea una limitante para el Servicio de Capacitación o Formación Profesional.
+b. Para la atención de situaciones calificadas con carácter de emergencia y debidamente justificadas, que a plazo inmediato no podrán ser atendidas por las personas participantes o por las instituciones del Estado. La asignación de este beneficio será regulado por lo establecido en las instrucciones dictadas por el Proceso de Registro y Bienestar Estudiantil.
+La justificación para el otorgamiento de esta ayuda debe consignarse en el expediente digital y físico.
+El monto máximo a otorgar en este beneficio en cada uno de los conceptos será el 100% del total del monto establecido para el beneficio de hospedaje en la Tabla de Ayudas Económicas del INA.
+Para solicitar este beneficio deberá llenarse el formulario respectivo. Se deberá presentar al menos dos facturas proformas en los casos que se amerite, considerando la de menor precio y razonable. La liquidación del gasto se hará en los próximos ocho días hábiles una vez recibida la ayuda, para ello deberá presentar facturas timbradas debidamente canceladas, la cual se archivará en el expediente.

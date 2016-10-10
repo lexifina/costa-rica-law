@@ -1,1 +1,2 @@
-Artículo 50.—Aplicación del debido proceso. Cuando la persona participante con ayuda económica incurra en alguna falta se deberá aplicar el debido proceso, según lo establecido en el Reglamento de participantes en servicios de capacitación y formación profesional del INA, en cuyo caso será responsabilidad del Comité Regional de Ayudas Económicas de definir la integración del Órgano Director del procedimiento.
+Artículo 50. Plazo para resolver
+Tanto el Comité Regional de Ayudas Económicas como el Consejo Institucional tendrán un plazo de 10 días hábiles cada uno para pronunciarse sobre los recursos correspondientes. Este plazo rige a partir del día siguiente de la fecha de recibo del recurso.

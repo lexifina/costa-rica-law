@@ -1,5 +1,5 @@
-Artículo 7º—Presidencia del Consejo Institucional de Ayudas Económicas. Será asumida por la persona que ocupa el cargo de la Gerencia o su suplente y en ausencia de ambas quien represente a las Jefaturas Regionales, ello de conformidad con lo establecido en el inciso c) del artículo 5 del presente Reglamento.
-En caso de no encontrarse presente ninguna de las personas indicadas, el Consejo Institucional de Ayudas Económicas nombrará entre los integrantes presentes una persona ad hoc quien presidirá esa sesión.
+Artículo 7. Presidencia del Consejo Institucional de Ayudas Económicas
+Será asumida por la persona que ocupa el cargo de la Sub-Gerencia Técnica o su suplente y en ausencia de ambas quien represente a las Jefaturas Regionales, ello de conformidad con lo establecido en el inciso c) del artículo 5 del presente Reglamento. En caso de no encontrarse presente ninguna de las personas indicadas, el Consejo Institucional de Ayudas Económicas nombrará entre los integrantes presentes una persona ad hoc quien presidirá esa sesión.
 La presidencia tendrá las siguientes funciones:
 a. Convocar a sesiones, sean éstas ordinarias o extraordinarias
 b. Comprobar el quórum, abrir, presidir, suspender y levantar las sesiones.
