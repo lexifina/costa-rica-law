@@ -1,13 +1,13 @@
-Artículo 45-Prohibiciones. Es absolutamente prohibido para los funcionarios:
+ARTÍCULO 45.- Prohibiciones. Es absolutamente prohibido para los funcionarios:
 1. Ocupar tiempo dentro de su jornada de trabajo, para atender asuntos o negocios personales.
 2. Desatender durante su jornada de trabajo, las labores asignadas.
 3. Recibir visitas para asuntos personales en horas de trabajo.
-4. Utilizar el teléfono, el fax, la internet y en general, el equipo y los útiles de su oficia para asuntos personales, salvo casos de urgencia debidamente acreditados ante su jefatura inmediata.
+4. Utilizar el teléfono, el fax, la internet y en general, el equipo y los útiles de su oficina para asuntos personales, salvo casos de urgencia debidamente acreditados ante su jefatura inmediata.
 5. Recibir gratificaciones, recompensas o pagos de cualquier naturaleza, por hacer o dejar de hacer funciones propias de su cargo.
 6. Visitar otras oficinas sin justificación, para atender asuntos o realizar trámites ajenos a sus funciones o a su condición de funcionario.
 7. Fomentar o mantener tertulias con particulares o compañeros de trabajo, en forma abusiva y durante períodos prolongados, dentro de su jornada de trabajo.
 8. Aprovechar la función que desempeña para obtener ventajas de cualquier índole, en beneficio propio o de un tercero.
-9. Incurrir en prácticas discriminatorias por razones de cualquier índole, en perjuicio de la dignidad de los compañeros de trabajo o usuarios de la institución.
+9. Incurrir en prácticas discriminatorias por razones de edad, apariencia física, sexo, orientación sexual, identidad de género; religiosa o de cualquier índole, en perjuicio de la dignidad de los compañeros de trabajo o usuarios de la institución.
 10. Hacer manifestaciones o demostraciones de carácter político electoral, dentro del INA o durante el desempeño de sus labores, en cualquier sitio donde se encuentre.
 11. Hacer rifas o colectas en horas de trabajo, salvo para fines benéficos debidamente autorizados por alguna autoridad de la institución.
 12. Vender, comprar o cambiar cualquier tipo de mercancía u objeto durante la jornada laboral y en las instalaciones del INA.
@@ -26,4 +26,5 @@ Artículo 45-Prohibiciones. Es absolutamente prohibido para los funcionarios:
 25. Acceder a material pornográfico y reproducirlo, difundirlo o exhibirlo, por cualquiera que sea el medio que se utilice para ello.
 26. Distraer con juegos o bromas a compañeros de trabajo, alumnos o usuarios, con los que pueda interrumpir su atención y concentración en las actividades que desempeñan.
 27. Cualquier otro proceder que afecte gravemente el buen nombre que debe guardar como funcionario del INA.
-(Así reformado mediante sesión N° 4466 del 6 de diciembre de 2010)
+Reformado mediante acuerdo de la Junta Directiva No. 187-2010-JD. Art. VII, capítulo 4466 del 6 de diciembre del 2010, publicado en La Gaceta No. 5 del 7 de enero del 2011.
+(Así reformado mediante sesión ordinaria N° 4765 del 10 de octubre del 2016)
