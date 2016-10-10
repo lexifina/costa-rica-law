@@ -14,3 +14,4 @@ Reglamento Autónomo de Organización, Funcionamiento y Administración del Merc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-21 | la propia norma |
+| 2 | 2016-10-10 | Reglamento municipal 22 (2016-10-10) |
