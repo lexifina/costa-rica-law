@@ -1,3 +1,4 @@
-Artículo 193.—Obligación de tramitación. Las gestiones formuladas por el contratista en procura de continuar la ejecución contractual, serán resueltas por la Administración, de manera motivada, dentro de los treinta días hábiles, contados a partir del recibo de la petición. En caso de requerirse información adicional al contratista, se le dará un plazo de 10 días hábiles para que aporte la documentación respectiva, de lo contrario la Administración resolverá con lo que conste en el expediente.
-El silencio de la Administración, se entenderá como aceptación de la petición, cuando se trate de una autorización admisible en Derecho y se haya cumplido con todos los requisitos.
-La no atención de la gestión dentro del plazo señalado generará responsabilidad administrativa al servidor.
+SECCIÓN CUARTA
+Recurso de revocatoria
+Artículo 193.—Supuestos. Cuando por monto no proceda el recurso de apelación, podrá presentarse recurso de revocatoria en contra del acto de adjudicación o contra aquel que declara desierto o infructuoso el concurso, dentro de los cinco días hábiles siguientes a aquel en que se notificó a todas las partes y se regirá en cuanto a la legitimación, fundamentación y procedencia por las reglas del recurso de apelación, salvo lo dispuesto en cuanto a la fase recursiva de las materias excluidas de los procedimientos ordinarios de contratación.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 185 al 193)

@@ -1,3 +1,2 @@
-Artículo 207.—Rescisión por mutuo acuerdo. La rescisión contractual por mutuo acuerdo únicamente podrá ser convenida cuando existan razones de interés público y no concurra causa de resolución imputable al contratista.
-En este caso la Administración podrá acordar los extremos a liquidar o indemnizar, que en ningún caso podrá exceder los límites señalados en el artículo anterior, siempre dentro de los límites de razonabilidad y proporcionalidad.
-Acordada la rescisión sin mayor trámite, se enviará la respectiva liquidación a aprobación de la Contraloría General de la República de la República, quien contará con veinticinco días hábiles para emitir su resolución.
+Artículo 207.—Suspensión del plazo. La Administración, de oficio o a petición del contratista, podrá suspender el plazo del contrato por motivos de fuerza mayor o caso fortuito, debidamente acreditados en el expediente, mediante acto motivado, en el cual se estipulará a cargo de quien corren las medidas de mantenimiento de lo hecho hasta ese momento.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 199 al 207)

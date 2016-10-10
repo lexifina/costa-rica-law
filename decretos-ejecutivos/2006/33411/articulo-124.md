@@ -1,8 +1,8 @@
-Artículo 124.—Exclusión del registro. Serán causales de exclusión del registro las siguientes:
-a) La muerte o la extinción de la persona física o jurídica.
-b) La manifestación expresa del proveedor inscrito.
-c) Los que hayan sido inhabilitados de conformidad con el artículo 100 de la Ley de Contratación Administrativa.
-d) Por carencia de interés de la Administración de continuar contratando determinado bien o servicio.
-e) Por la no sujeción del proveedor a los estándares de calidad que indicare la Administración mediante reglamentos o normas técnicas emanadas de los órganos competentes.
-f) Por vencimiento o expiración del plazo de inscripción, u otras que se determinen en la normativa interna.
-En la reglamentación interna de cada Administración se regulará el procedimiento para excluir al proveedor del Registro de Proveedores y su régimen recursivo, debiendo garantizarse en todos los casos el derecho de defensa.
+CAPÍTULO VIII
+Registro de Proveedores
+Artículo 124.—Registro de Proveedores. El Registro de Proveedores constituirá el instrumento idóneo, en el que se inscribirán las personas físicas y jurídicas que desean participar en los procesos de contratación administrativa que corresponda, de manera que se encuentren debidamente acreditados y evaluados en forma integral y particular para un determinado tipo de concurso, en cuanto a su historial, sanciones, capacidad técnica, financiera, jurídica y cualquier otra que resulte indispensable para una adecuada selección del contratista y del interés público.
+Los registros podrán mantenerse en medios electrónicos, si se cuenta con un sistema confiable, los cuales podrán utilizarlos para realizar las invitaciones correspondientes, recibir ofertas, aclaraciones u otras comunicaciones oficiales, el cual será regulado según la normativa interna de cada entidad, salvo en el caso de las Instituciones que utilizan el Sistema de Compras Gubernamentales “CompraRed”, de acuerdo a su normativa especial.
+(Así reformado el párrafo anterior por el artículo 47 del Reglamento para la utilización del Sistema de Compras Gubernamentales "Comprared", aprobado mediante decreto ejecutivo N° 39065 del 6 de abril de 2015)
+A efecto de mantener actualizados dichos registros, la Administración invitará a los interesados en integrarlo, mediante publicación en el Diario Oficial La Gaceta y facultativamente en un diario de circulación nacional o en los sistemas electrónicos implementados por la Administración, al menos una vez al año.
+Es de libre acceso la información que consta en los registros de proveedores.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 116 al 124)

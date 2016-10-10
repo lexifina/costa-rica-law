@@ -1,2 +1,2 @@
-Artículo 211.—Arbitraje. Cuando las partes así lo pacten, las controversias patrimoniales disponibles derivadas de sus contratos administrativos podrán ser resueltas por la vía arbitral, de conformidad con las regulaciones legales existentes. El arbitraje se entenderá de Derecho, sin que pueda comprometerse el ejercicio de potestades de imperio ni el ejercicio de deberes públicos.
-El idioma del arbitraje será el español.
+Artículo 211.—Extinción del contrato. Los contratos se extinguen por la vía normal, por el acaecimiento del plazo y la ejecución del objeto contractual. De modo anormal, por resolución, rescisión administrativa o declaratoria de nulidad.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 203 al 211)

@@ -1,5 +1,4 @@
-CAPÍTULO XI
-Tipos de contratos
-SECCIÓN PRIMERA
-Generalidades
-Artículo 145.—Generalidades. La Administración puede acudir a cualquiera de las figuras contractuales desarrolladas en la Ley de Contratación Administrativa y en el presente capítulo, así como aquellas otras no establecidas en el ordenamiento jurídico administrativo, siempre y cuando lo justifique la satisfacción del interés público.
+Artículo 145.—Construcción y mantenimiento de infraestructura educativa. Para la construcción y mantenimiento de infraestructura física educativa, tanto las Juntas de Educación como las Administrativas, podrán acudir al procedimiento de contratación directa concursada, para lo cual será necesario invitar a un mínimo de tres potenciales oferentes.
+Para la adecuada aplicación de este mecanismo, el Ministerio de Educación Pública y el Ministerio de Obras Públicas y Transportes, adoptarán las disposiciones generales en las que se establezcan las medidas de control interno necesarias para garantizar la más eficiente y eficaz administración de los fondos públicos involucrados en estas contrataciones, así como los medios que permitan a las Juntas acceder a la asesoría legal y técnica requerida, tanto para la fase de elaboración del cartel, como para la valoración de ofertas y la ejecución contractual.
+Dentro de la organización del Ministerio respectivo, se establecerá una unidad encargada de ejecutar esta labor así como autorizar el inicio de cada contratación particular. La falta de esta autorización generará la nulidad de todo el procedimiento.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 137 al 145)

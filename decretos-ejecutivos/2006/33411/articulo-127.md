@@ -1,2 +1,3 @@
-Artículo 127.—Decisión de contratar directamente. La determinación de los supuestos de prescindencia de los procedimientos ordinarios, es responsabilidad exclusiva del Jerarca de la Institución o del funcionario subordinado competente, el cual en la decisión inicial deberá hacer referencia a los estudios legales y técnicos en los que se acredita que, en el caso concreto, se está ante un supuesto de prescindencia de los procedimientos ordinarios.
-Para cada contratación se deberá confeccionar un expediente físico o electrónico, el cual estará encabezado por la decisión inicial y en el cual se ha de incorporar constancia de todas las actuaciones que se realicen.
+Artículo 127.—Registros precalificados. En los casos que así resulte más conveniente y se cuente con la capacidad para ello, la Administración también podrá contar con registros precalificados, ya sea en su totalidad o para ciertos bienes o servicios.
+En los registros precalificados se evaluarán aspectos legales, técnicos y financieros del proveedor.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 119 al 127)

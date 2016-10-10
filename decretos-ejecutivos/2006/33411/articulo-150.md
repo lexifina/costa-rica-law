@@ -1,1 +1,3 @@
-Artículo 150.—Riesgo del contratista. En el contrato de obra la ejecución se realizará por cuenta y riesgo del contratista, sin perjuicio de su derecho a que se mantenga el equilibrio económico del contrato, en los términos que lo regula la respectiva normativa. La Administración no asumirá ante el contratista más responsabilidades que las previstas y derivadas de la respectiva contratación.
+Artículo 150.—Disponibilidad de la información. La información debe estar disponible a través del sitio web de la respectiva Administración, de modo que se garantice el acceso público, con las salvedades de ley.
+Salvo caso fortuito o fuerza mayor, debe garantizarse la disponibilidad de la información las 24 horas del día.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 142 al 150)

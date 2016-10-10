@@ -1,0 +1,2 @@
+Artículo 228.—De la Plataforma tecnológica. La Proveeduría Institucional de cada entidad deberá contar con la plataforma tecnológica suficiente y adecuada que le permita ejecutar los procedimientos de contratación administrativa en forma eficiente. Para tales efectos las Administraciones deberán asignar permanentemente los recursos necesarios.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 220 al 228)

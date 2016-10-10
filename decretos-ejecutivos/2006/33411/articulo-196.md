@@ -1,2 +1,6 @@
-Artículo 196.—Rechazo del objeto. En caso de incumplimientos graves y evidentes, la Administración podrá rechazar el objeto en el mismo acto previsto para su recepción provisional y disponer el procedimiento de resolución contractual. Cuando el objeto esté compuesto por líneas independientes entre sí, la entidad podrá recibir provisionalmente unas y rechazar otras.
-Como alternativa, la Administración podrá conceder al contratista un nuevo plazo para que corrija el incumplimiento, el cual no podrá exceder de la mitad del plazo de ejecución original y no impedirá el cobro de multas. Vencido ese plazo sin que el contratista cumpla a satisfacción, la Administración valorará ejecutar la garantía de cumplimiento o también iniciar el procedimiento de resolución contractual.
+CAPÍTULO XIII
+Validez y ejecución del contrato
+SECCIÓN PRIMERA
+Validez, perfeccionamiento y formalización contractual
+Artículo 196.—Validez del contrato. Será válido el contrato administrativo sustancialmente conforme con el ordenamiento jurídico, por lo que no lo afectarán aquellos vicios intrascendentes del procedimiento de selección del contratista.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 188 al 196)

@@ -1,0 +1,6 @@
+CAPÍTULO XVI
+Disposiciones Finales
+Artículo 233.—Deber de informar. La Administración, deberá informar a la Contraloría General de la República sobre la actividad contractual que desarrolle, consignado, al menos, los procedimientos de contratación iniciados, los actos de adjudicación, las calidades del contratista, el objeto y el monto de las operaciones, así como otros datos de relevancia sobre la actividad contractual de la Administración.
+La Contraloría General de la República podrá indicar, mediante resolución, el medio, la periodicidad del suministro de la información, así como qué otros datos de relevancia deberán serle brindados. Igualmente podrá establecer formatos generales de presentación que faciliten el procesamiento de la información. En caso de la Administración Central y de todas aquellas Instituciones que utilicen el Sistema de Compras Gubernamentales “CompraRed”, esta información será suministrada a través de dicho Sistema.
+(Así reformado el párrafo anterior por el artículo 47 del Reglamento para la utilización del Sistema de Compras Gubernamentales "Comprared", aprobado mediante decreto ejecutivo N° 39065 del 6 de abril de 2015)
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 225 al 233)

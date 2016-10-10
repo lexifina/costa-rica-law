@@ -1,4 +1,9 @@
-Artículo 132.—Procedimientos de urgencia. Cuando la Administración enfrente una situación cuya atención sea calificada de urgente, indistintamente de las causas que la originaron, podrá prescindir de una o de todas las formalidades de los procedimientos de contratación, o crear procedimientos sustitutivos de estos, con el fin de evitar lesión al interés público, daños graves a las personas o irreparables a las cosas. Para utilizar este mecanismo de urgencia, la Administración requiere previamente la autorización de la Contraloría General de la República.
-La petición respectiva debe formularse con aporte de la información pertinente ante el órgano contralor, el cual deberá resolverla dentro de los cinco días hábiles siguientes a su presentación. En casos calificados la autorización podrá ser extendida por la vía telefónica, fax o correo electrónico, para lo cual, la Contraloría General de la República deberá instaurar los mecanismos de control que permitan acreditar la veracidad de una autorización dada por esa vía. El silencio de la Contraloría General de la República no podrá interpretarse como aprobación de la solicitud.
-Si la situación de atención urgente es provocada por una mala gestión se deberán adoptar las medidas sancionatorias y correctivas que procedan; considerándose, a esos efectos, que la amenaza de desabastecimiento de suministros o servicios esenciales constituye una falta grave.
-El cartel así como la adjudicación fundados en esta causal no tendrán recurso alguno y tampoco será necesario el refrendo del contrato, aunque sí se debe dejar constancia de todas las actuaciones en un único expediente, de fácil acceso para efectos del control posterior.
+Artículo 132.—Exclusión del registro. Serán causales de exclusión del registro las siguientes:
+a) La muerte o la extinción de la persona física o jurídica.
+b) La manifestación expresa del proveedor inscrito.
+c) Los que hayan sido inhabilitados de conformidad con el artículo 100 de la Ley de Contratación Administrativa.
+d) Por carencia de interés de la Administración de continuar contratando determinado bien o servicio.
+e) Por la no sujeción del proveedor a los estándares de calidad que indicare la Administración mediante reglamentos o normas técnicas emanadas de los órganos competentes.
+f) Por vencimiento o expiración del plazo de inscripción, u otras que se determinen en la normativa interna.
+En la reglamentación interna de cada Administración se regulará el procedimiento para excluir al proveedor del Registro de Proveedores y su régimen recursivo, debiendo garantizarse en todos los casos el derecho de defensa.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 124 al 132)

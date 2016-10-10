@@ -1,6 +1,3 @@
-Artículo 179.—Supuestos de inadmisiblidad. El recurso de apelación será rechazado de plano por inadmisible, en los siguientes casos:
-a) Cuando la Contraloría General de la República carezca de competencia en razón de la materia.
-b) Cuando se haya presentado en forma extemporánea.
-c) Cuando no corresponda conocerlo a la Contraloría General de la República en razón del monto.
-d) Cuando no se cumpla con los requisitos formales previstos en el ordenamiento para interponerlo, tales como la firma del recurso.
-Al momento de contestar la audiencia inicial, las partes podrán alegar como excepción la presentación extemporánea o la incompetencia por monto, que en caso de prosperar obligará a dictar la resolución final dentro de los quince días hábiles siguientes al recibo de la gestión.
+Artículo 179.—Prórrogas, modificaciones y adiciones al cartel. Contra las modificaciones o adiciones del cartel, podrá interponerse recurso de objeción dentro del primer tercio del plazo que medie entre la publicación o comunicación de la variante del cartel y la fecha señalada para recibir ofertas.
+Cuando la modificación consista únicamente en la prórroga del plazo para presentar ofertas, el plazo para objetar se obtendrá de la sumatoria del plazo inicial más el plazo de la prórroga.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 171 al 179)

@@ -24,3 +24,4 @@ Reglamento a la Ley de Contratación Administrativa
 | 9 | 2013-09-17 | Decreto Ejecutivo 37943 (2013-09-17) |
 | 10 | 2015-04-06 | Decreto Ejecutivo 39065 (2015-04-06) |
 | 11 | 2015-11-11 | SINALEVI (sin norma nombrada) |
+| 12 | 2016-10-10 | Decreto Ejecutivo 40124 (2016-10-10) |

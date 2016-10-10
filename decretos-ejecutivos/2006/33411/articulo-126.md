@@ -1,3 +1,2 @@
-Artículo 126.—Trámite. La actividad contractual excluida legalmente de los procedimientos ordinarios de contratación, deberá adaptarse, en lo pertinente, a los principios generales, a los requisitos previos que correspondan y a las normas generales sobre el cartel y la oferta.
-A excepción de los supuestos de proveedor único, actividad ordinaria e interés manifiesto de colaborar con la Administración, se deberá verificar que el eventual contratista no esté cubierto por el régimen de prohibiciones.
-El mecanismo de selección del contratista, así como su aplicación han de ser expeditos, prácticos y ajenos a plazos cuya extensión desvirtúen su naturaleza.
+Artículo 126.—Actualización de Información. Cuando una persona física o jurídica se encuentra inscrita en el Registro de Proveedores de la Administración licitante y ya haya cumplido con los requisitos de inscripción, no será necesario acreditarlos de nuevo, mientras no varíe la situación declarada lo cual se indicará en la oferta.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 118 al 126)

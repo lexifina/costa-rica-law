@@ -1,9 +1,10 @@
-Artículo 209.—Cesión. Los derechos y obligaciones derivados de un contrato en ejecución o listo para iniciarse, podrán ser cedidos a un tercero, siempre que no se trate de una obligación personalísima.
-En todo caso la cesión debe ser autorizada por la Administración mediante acto debidamente razonado, en el que al menos analizará:
-a) Causa de la cesión.
-b) El cumplimiento por parte del cesionario de las principales condiciones legales, técnicas y financieras solicitadas en el cartel.
-c) Que el cesionario no esté afectado por alguna causal de prohibición.
-d) Ventajas de la cesión de frente a resolver el contrato.
-e) Eventuales incumplimientos del cedente hasta el momento y medidas administrativas adoptadas.
-Si la cesión excede el cincuenta por ciento del objeto contractual, independientemente del avance en su ejecución, deberá ser autorizada por la Contraloría General de la República de la República, quien resolverá dentro del décimo día hábil una vez presentada la solicitud. La petición de la Administración deberá contener como mínimo la solicitud formulada por el cedente; aceptación del cesionario y cualquier documentación que resulte pertinente en relación con sus condiciones, cartel y resolución motivada de la Administración.
-El cesionario queda subrogado en todos los derechos y obligaciones que corresponderían al cedente y este quedará libre de todas las obligaciones con la Administración. En el supuesto de que la cesión genere modificaciones contractuales éstas seguirán los procedimientos comunes establecidos al efecto.
+Artículo 209.—Contrato adicional. Si ejecutado un contrato, la Administración requiere suministros o servicios adicionales de igual naturaleza, podrá obtenerlos del mismo contratista, siempre que éste lo acepte y se cumplan las siguientes condiciones:
+a) Que el nuevo contrato se concluya sobre las bases del precedente.
+b) Que se mantengan los precios y condiciones con base en los cuales se ejecutaron las obligaciones, pudiendo el contratista mejorar las condiciones iniciales.
+c) Que el monto del nuevo contrato no sea mayor al 50% del contrato anterior, contemplando los reajustes o revisiones y modificaciones operadas. Cuando el objeto del contrato original esté compuesto por líneas independientes, el 50% se calculará sobre el objeto y estimación general del contrato y no sobre el monto o cantidad de alguna línea en particular. En los contratos de objeto continuado el 50% se considerará sobre el plazo originalmente convenido sin considerar las prórrogas.
+d) Que no hayan transcurrido más de seis meses desde la recepción provisional del objeto. Cuando la recepción provisional del objeto coincida con la definitiva, el plazo comenzará a contar a partir de esta fecha. En contratos con plazos de entrega diferidos, contará a partir de la última entrega de bienes.
+Se excluyen del cómputo de este plazo la ejecución de prestaciones subsidiarias de la principal, como el plazo de garantía sobre bienes o servicios de soporte y mantenimiento derivado del principal.
+e) Que en el contrato precedente no se hubiera incurrido en ningún incumplimiento grave.
+Para utilizar esta modalidad, será requisito que dentro del plazo de los seis meses, conste en el expediente la debida motivación y promulgación, por quien tenga competencia para adjudicar, del acto administrativo que contenga la decisión en que se funde el nuevo contrato.
+La sumatoria del contrato precedente y del nuevo podrá exceder el límite económico del tipo de procedimiento originalmente utilizado. Esta modalidad no es aplicable a contratos de obra. Para lo anterior se deberá considerar los alcances del artículo 37 de la Ley de Contratación Administrativa y lo establecido en el presente Reglamento.
+(Corrida su numeración por el artículo 2° del decreto ejecutivo N° 40124 del 10 de octubre del 2016, que lo traspasó del antiguo 201 al 209)
