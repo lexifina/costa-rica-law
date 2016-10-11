@@ -1,1 +1,0 @@
-Artículo 8º—El Contador Privado Incorporado, deberá mantenerse al día con las obligaciones que, conforme al ordenamiento jurídico, le demande el Colegio. En caso contrario, se impondrá la sanción establecida en el artículo 5º de la Ley Nº 1269, Ley del Colegio de Contadores Privados.

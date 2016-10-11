@@ -1,1 +1,0 @@
-Artículo 22.—Antes de actuar judicialmente contra otro Contador Privado, se podrá intentar acudir a medios alternativos de solución de controversias, como la mediación y la conciliación, en los cuales la Fiscalía Administrativa del Colegio de Contadores Privados de Costa Rica servirá de mediador o de conciliador.

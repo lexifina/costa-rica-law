@@ -1,1 +1,0 @@
-Artículo 27.—Las sanciones disciplinarias impuestas por el Colegio de Contadores Privados de Costa Rica se harán constar en el expediente personal de cada Contador Privado Incorporado y se comunicarán conforme lo dispuesto en la Ley de Notificaciones, Citaciones y Otras Comunicaciones Judiciales, Ley número 7637, del 4 de noviembre de 1996.

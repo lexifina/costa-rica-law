@@ -1,1 +1,0 @@
-Artículo 10.—El Contador Privado Incorporado, no deberá realizar o participar de cualquier forma, en la comisión de delitos dolosos en cualquier forma de participación en que estuviesen relacionados con el ejercicio profesional del colegiado.

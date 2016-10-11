@@ -1,1 +1,0 @@
-Artículo 12.—El Contador Privado Incorporado, guardará el secreto profesional y, por ello, no revelará, por ningún motivo, los hechos, los datos o las circunstancias de que tenga conocimiento en el ejercicio de la profesión, a menos que sea autorizado por la persona física o jurídica interesada, o que sea requerido para ello por autoridad judicial competente.

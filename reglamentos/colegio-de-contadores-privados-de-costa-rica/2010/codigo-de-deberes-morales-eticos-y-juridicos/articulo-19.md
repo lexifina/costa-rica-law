@@ -1,1 +1,0 @@
-Artículo 19.—Cuando el Contador Privado Incorporado preste sus servicios en relación de dependencia, las partes definirán, de mutuo acuerdo, los términos de la contratación, los alcances y los honorarios pactados.

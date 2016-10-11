@@ -1,1 +1,0 @@
-Artículo 16.—El Contador Privado Incorporado, no deberá, bajo ninguna circunstancia, retener la documentación o los libros contables de su cliente, cuando finalice la relación laboral o profesional, por lo que, deberá entregar la documentación con un recibido conforme de parte del cliente.

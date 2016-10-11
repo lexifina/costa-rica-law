@@ -1,1 +1,0 @@
-Artículo 18.—Los Contadores Privados Incorporados que ejerzan la profesión en forma liberal, tendrán la obligación de emitir factura o comprobante de ingresos, por concepto de honorarios profesionales, debidamente autorizada por la Administración Tributaria.

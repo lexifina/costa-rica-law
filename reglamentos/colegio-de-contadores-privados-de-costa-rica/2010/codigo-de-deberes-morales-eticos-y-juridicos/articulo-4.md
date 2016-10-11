@@ -1,1 +1,0 @@
-Artículo 4º—El Contador Privado Incorporado, deberá dedicarse con diligencia y denuedo a los asuntos de sus clientes y poner a su disposición plenamente sus esfuerzos y conocimientos, con estricto apego a las normas contables, legales y con ajuste a los dictados de la Ética.

@@ -1,1 +1,0 @@
-Artículo 7º—El Contador Privado Incorporado, deberá actuar con responsabilidad y libertad de criterio en su vida profesional y rechazar todo asunto que comprometa su independencia, en el correcto cumplimiento de las labores propias de su profesión.
