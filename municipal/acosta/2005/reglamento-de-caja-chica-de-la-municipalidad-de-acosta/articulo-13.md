@@ -1,1 +1,0 @@
-13.—El fondo se tomará de la cuenta corriente Municipalidad de Acosta Recursos de la Ley Nº 8114 y se utilizará en las actividades relacionadas con el Mantenimiento y Mejoramiento de los caminos del cantón.

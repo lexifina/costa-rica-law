@@ -1,1 +1,0 @@
-12.—En ausencia del Alcalde Municipal, el Tesorero queda autorizado para realizar los pagos de servicios públicos y otros bienes y servicios por un monto máximo de $50.000.00 Cincuenta mil colones netos) quien luego lo pasará al Alcalde para su conocimiento.

@@ -1,1 +1,0 @@
-5º—Los egresos que se realicen por caja chica se tramitan a través de la fórmula denominada comprobante de pago por caja chica que prepara la Oficina de la Unidad Técnica de Gestión Vial, en original y una copia.
