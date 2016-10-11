@@ -3,3 +3,4 @@ Artículo 3°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 39684 del 29 de abril del 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39777 del 29 de junio del 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39910 del 8 de setiembre de 2016)
+(Modificado por el artículo 1° del decreto ejecutivo N° 39959 del 6 de octubre de 2016)
