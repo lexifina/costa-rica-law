@@ -1,0 +1,1 @@
+Artículo 3º—La declaratoria de reserva se mantendrá hasta que el asunto de que traten los respectivos informes no comprometa las relaciones exteriores de la República, a criterio del Ministro de Relaciones Exteriores y Culto.
