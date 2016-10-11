@@ -1,1 +1,0 @@
-III.—Establecer que el método de envío referente a la información estadística del mercado del servicio de distribución eléctrica, será únicamente por medio digital, al correo electrónico ienergia@aresep.go.cr o mediante el sitio oficial de ARESEP en internet cuando ésta opción se encuentre habilitada.
