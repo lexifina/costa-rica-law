@@ -1,0 +1,1 @@
+Artículo 36.- La autorización de los establecimientos de salud para obtener órganos y/o tejidos humanos, podrá ser revocada o suspendida como consecuencia de las actuaciones de inspección y control por parte de la Secretaría, en caso de incumplimiento a lo establecido en la ley y su reglamento.

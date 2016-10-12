@@ -1,0 +1,1 @@
+Artículo 28.- En caso de que se presente un incumplimiento, la Secretaria procederá a hacer una única prevención otorgando un plazo máximo de 20 días hábiles para que se subsane la misma. En caso de que se incumpla con lo solicitado se procederá a suspender o revocar la autorización emitida.

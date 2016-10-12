@@ -1,0 +1,1 @@
+Artículo 73.- Los establecimientos de salud serán responsables de diseñar un programa de capacitación y formación para los miembros del CBC el cual será presentado al Consejo Nacional de Donación y Trasplante de Órganos y tejidos para su aval.

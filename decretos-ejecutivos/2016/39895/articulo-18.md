@@ -1,0 +1,1 @@
+Artículo 18.- El Ministerio de Salud a través de la Secretaría capacitará a los establecimientos de salud que realicen donación y trasplante en el uso correcto del Registro Nacional de Información de los procesos de Donación y Trasplante de Órganos y Tejidos Humanos.

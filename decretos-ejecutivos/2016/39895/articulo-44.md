@@ -1,0 +1,5 @@
+Artículo 44.- Sólo se autorizará la comercialización, la importación y exportación de componentes anatómicos procesados y/o preservados, cuando éstos sean tratados de forma lícita cumpliendo con los siguientes principios:
+a) Que la procedencia de componentes anatómicos procesados y/o preservados, proceda de donaciones altruistas realizadas a nivel nacional y/o en países terceros, que reúnan las debidas garantías. Esto sin perjuicio de los costos que el transporte, proceso y trasplante conlleve, por parte de los establecimientos de salud.
+b) Que exista un probado beneficio en la utilización de los componentes anatómicos procesados y/o preservados en lo que se pretende aplicar.
+c) Que la finalidad de la comercialización, exportación e importación de los componentes anatómicos procesados y/o preservados sea la de su aplicación en humanos.
+d) En el caso de componentes anatómicos procesados y/o preservados que se produzcan a nivel nacional, los interesados deberán cumplir con la normativa nacional.

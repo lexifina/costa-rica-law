@@ -1,0 +1,1 @@
+Artículo 59.- Para efectos de este reglamento y según lo establece el artículo 21 de la Ley No. 9222, créanse los Comités Bioéticos Clínicos, denominados CBC. Este requisito no aplica para establecimientos de salud que procesen residuos quirúrgicos.

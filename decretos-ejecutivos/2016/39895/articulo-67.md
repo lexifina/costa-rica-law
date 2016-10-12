@@ -1,0 +1,1 @@
+Artículo 67.- Aplicación supletoria. En lo no regulado en el presente reglamento, le será aplicable al CBC las disposiciones contenidas en el Capítulo Tercero del Título Segundo de la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".

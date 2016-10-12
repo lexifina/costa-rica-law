@@ -1,0 +1,1 @@
+Artículo 47.- La declaración jurada tendrá un año de vigencia y deberá ser presentada anualmente ante la Secretaría. El incumplimiento de esta disposición llevara a la revocatoria de la Autorización de Importación y Exportación.

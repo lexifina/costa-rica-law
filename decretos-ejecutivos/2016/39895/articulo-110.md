@@ -1,0 +1,1 @@
+Artículo 110.- La publicidad relacionada con las actividades de donación de órganos y tejidos, no debe inducir a error o a engaño al público. De detectarse la situación anterior, la Secretaría Técnica así como cualquier persona física está en su deber de denunciar el hecho ante la entidad competente para la aplicación de las sanciones que correspondan.

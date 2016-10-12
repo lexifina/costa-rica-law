@@ -1,0 +1,4 @@
+CAPÍTULO III
+REQUISITOS DEL RECEPTOR PARA LA REALIZACIÓN
+DEL TRASPLANTE
+Artículo. 94.- Todo potencial receptor de órganos deberá ser valorado de un profesional de psiquiatría o psicología y por trabajo social, todos debidamente certificados por el establecimiento de salud responsable del procedimiento, que verifiquen que las condiciones socioeconómicas y ambientales del donante son aptas para su recuperación, así como si se sospecha de algún tipo de gratificación, remuneración, dadiva en efectivo o en especie, condicionamiento social, psicológico o de cualquier otra naturaleza. El psiquiatra o el psicólogo o el trabajador social que evalúen al potencial receptor de órganos deben de ser un profesional diferente al que evalúe o brinde tratamiento al potencial donador de órganos, en el caso de trasplante de donador vivo, con el objetivo de evitar conflictos de interés.

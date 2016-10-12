@@ -1,0 +1,1 @@
+Artículo 71.- En los establecimientos públicos o privados que cuenten con un CBC, la máxima autoridad del establecimiento, tienen la obligación de asegurarle independencia de criterio y funcionamiento, así como todos los recursos tanto físicos como administrativos para el cumplimiento de sus obligaciones.

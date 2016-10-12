@@ -1,0 +1,1 @@
+Artículo 32.- El personal de salud encargado de la extracción y del trasplante de los órganos y /o tejidos, no pueden participar en el proceso de petición de órganos y/o tejidos del donante cadavérico, ni en el mantenimiento del mismo.

@@ -1,0 +1,1 @@
+Artículo 113.- Deróguese el Decreto Ejecutivo No. 38832-S del 16 de setiembre del 2014 "Establece la integración y funcionamiento del Consejo Nacional de donación y trasplante de órganos y tejido", publicado en La Gaceta No. 35 del 19 de febrero del 2015.

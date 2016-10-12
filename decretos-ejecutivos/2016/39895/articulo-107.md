@@ -1,0 +1,1 @@
+Artículo 107.- Las instituciones públicas podrán apoyar de acuerdo con los recursos disponibles, programas de información, educación y comunicación realizados por organizaciones no gubernamentales o grupos comunitarios, cuya finalidad es promover la donación altruista y voluntaria de órganos y tejidos.

@@ -1,0 +1,1 @@
+Artículo 89.- El diagnóstico de Muerte Encefálica será de reporte obligatorio a la Secretaria del Ministerio de Salud, por parte del jefe de la unidad médica donde se encuentre el paciente o su sustituto. Asimismo deberá informarlo al Coordinador de donación y trasplante del establecimiento de salud.

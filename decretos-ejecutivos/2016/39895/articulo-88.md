@@ -1,0 +1,1 @@
+Artículo 88.- La muerte encefálica debe ser certificada por; un médico neurólogo o neurocirujano, un médico tratante y un profesional en medicina que funge como testigo, según se establece en el Anexo 3 del presente reglamento "CERTIFICADO DE MUERTE ENCEFALICA".

@@ -1,0 +1,1 @@
+Artículo 105.- Se permitirá la promoción y publicidad de actividades en beneficio de la concienciación de la población en la donación de órganos y tejidos humanos de manera voluntaria, altruista y solidaria.

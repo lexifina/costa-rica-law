@@ -1,0 +1,1 @@
+Artículo 48.- Una vez emitida la resolución de la Secretaria autorizando o no la solicitud de importación o exportación de componentes anatómicos procesados y/o preservados, ésta procederá a remitir dicho informe a Dirección de Productos de Interés Sanitario del Ministerio de Salud para su correspondiente registro, clasificación y control según corresponda

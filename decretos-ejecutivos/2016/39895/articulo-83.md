@@ -1,0 +1,1 @@
+ArtícμJo 83[sic].- En caso de que no se cuente con un documento de identificación del potencial donante en donde se especifique su anuencia en vida a donar, será el personal del establecimiento de salud autorizado, quién se encargue de obtener el consentimiento informado de los familiares.

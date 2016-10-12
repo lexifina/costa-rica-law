@@ -1,0 +1,1 @@
+Artículo 27.- La autorización emitida por la Secretaria tendrá una validez de cinco años (5). Su correspondiente renovación deberá solicitarse ante la Secretaria tres meses (3) antes de la fecha de su vencimiento.

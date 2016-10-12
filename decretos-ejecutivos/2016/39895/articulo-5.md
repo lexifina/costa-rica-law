@@ -1,0 +1,1 @@
+Artículo 5.- El Ministerio de Salud, por medio de la Dirección de Garantía de Acceso de Servicios de Salud inscribirá a las organizaciones no gubernamentales y grupos comunitarios que representen a pacientes trasplantados o que requieran trasplante, cuyas labores se relacionen con la donación y trasplante de órganos y tejidos.

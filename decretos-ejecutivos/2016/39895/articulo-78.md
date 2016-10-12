@@ -1,0 +1,1 @@
+Artículo 78.- La aplicación del documento de Consentimiento Informado, se hará obligatoriamente, antes de la realización de los procedimientos clínicos relacionados con los procesos de donación y trasplante de órganos y tejidos humanos.

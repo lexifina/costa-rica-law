@@ -1,0 +1,1 @@
+Artículo 66.- Quórum y votaciones. En tanto esté integrado el quórum estructural, el quórum para sesionar válidamente será la mayoría absoluta de sus integrantes y los acuerdos serán adoptados por mayoría absoluta de los miembros presentes. En caso de empate el Presidente tendrá voto de calidad.

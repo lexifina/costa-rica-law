@@ -1,0 +1,1 @@
+Artículo 42.- En relación a la devolución del cuerpo: En los convenios entre instituciones y organizaciones se deberá establecer quién es el responsable de la devolución del cuerpo al punto de origen y quien asumirá los costos del mismo.

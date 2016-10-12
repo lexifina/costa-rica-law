@@ -1,0 +1,1 @@
+Artículo 35.- Los establecimientos de salud autorizados por la Secretaría, deben establecer y mantener actualizado el Registro Nacional de Información de los procesos de Donación y Trasplante de Órganos y Tejidos Humanos, de manera que la información sea veraz y oportuna.

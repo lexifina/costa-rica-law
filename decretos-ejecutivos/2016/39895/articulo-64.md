@@ -1,0 +1,1 @@
+Artículo 64.- El CBC será convocado por quien lo preside o por tres de sus miembros. En este último caso, los tres miembros, con indicación expresa del asunto a tratar, deben así solicitarlo a la persona que lo presida, quien realizará la convocatoria a los miembros del Comité.

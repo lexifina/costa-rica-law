@@ -1,0 +1,1 @@
+Artículo 85.- Tendrá prioridad de extracción de tejidos, el personal del establecimiento de salud autorizado en donde esté el potencial receptor, según el Registro Nacional de Información de los procesos de Donación y Trasplante de Órganos y Tejidos Humanos.

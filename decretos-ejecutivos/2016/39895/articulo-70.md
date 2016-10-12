@@ -1,0 +1,1 @@
+Artículo 70.- En caso de existir discrepancia entre los integrantes del equipo trasplantador, en relación con la recomendación emitida por el CBC, será el profesional de la salud médico tratante responsable del caso quién tome de decisión final de proceder o no con el caso.

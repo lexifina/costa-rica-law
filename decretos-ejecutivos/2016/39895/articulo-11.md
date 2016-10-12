@@ -1,0 +1,1 @@
+Artículo 11.- Aplicación supletoria. En lo no regulado en el presente decreto, le serán aplicable al Consejo, las disposiciones contenidas en el Capítulo Tercero del Título Segundo del Libro I de la Ley No. 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública".

@@ -1,0 +1,1 @@
+Artículo 26.- Los establecimientos de salud deberán presentar los requisitos ante la Secretaría, esta procederá a realizar la inspección de campo para verificar el cumplimiento de los requisitos solicitados y en un plazo de 20 días hábiles contados a partir del día hábil siguiente al recibo de la solicitud, emitirá la resolución correspondiente.

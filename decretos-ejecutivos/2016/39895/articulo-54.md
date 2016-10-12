@@ -1,0 +1,1 @@
+Artículo 54.- Se deberá enviar la información a la Secretaría del Ministerio de Salud a través del Registro Nacional de Información de los procesos de Donación y Trasplante de Órganos y Tejidos Humanos, utilizando todas las medidas de seguridad necesarias para garantizar la protección de la identidad de donantes y receptores.

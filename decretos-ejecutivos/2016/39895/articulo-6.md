@@ -1,0 +1,5 @@
+Artículo 6.- Los requisitos para la inscripción de cada organización o grupo comunitario, serán:
+a) Registrarse ante la Secretaria Ejecutiva Técnica de Donación y Trasplantes de Órganos y Tejidos del Ministerio de Salud, mediante la firma y presentación del formulario de inscripción denominado "FORMULARIO DE INSCRJPCIÓN DE ORGANIZACIONES NO GUBERNAMENTALES O GRUPOS COMUNITARIOS", contenido en el Anexo 1 del presente decreto. Dicho formulario debe ser fi rm ado[sic] por el representante legal de la ONG o por el. Presidente o líder del grupo comunitario, y adjuntar una copia simple de su cédula de identidad.
+b) Aportar un escrito con el nombre y las calidades de las personas que integran la organización, así como el cargo dentro de ésta, si aplica.
+c) Personería Jurídica vigente, si aplica. Esto será verificado por las autoridades del Ministerio de Salud.
+d) Presentar el Plan de Trabajo Anual, en el que se establezcan las lineas generales de acción de la organización relacionadas con los objetivos de la Ley No. 9222.

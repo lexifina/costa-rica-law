@@ -1,0 +1,1 @@
+Artículo 84.- El personal del establecimiento de salud autorizado deberá llevar los registros de las autorizaciones que se solicitaron, así como de las extracciones que se realicen en el Departamento de Medicina Legal del Poder Judicial o bien en alguna de sus dependencias.

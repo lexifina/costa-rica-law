@@ -1,0 +1,1 @@
+Artículo 87.- El personal del establecimiento de salud autorizado que realice la extracción de órganos y/o tejidos de un donante fallecido deberá preservar en la medida posible, la apariencia física del cadáver.

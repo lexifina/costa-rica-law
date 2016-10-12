@@ -1,0 +1,1 @@
+Artículo 62.- Integración de los CBC. Deberá conformarse por un grupo . multidisciplinario que labore en el establecimiento de salud que conforma el CBC, a excepción del representante de la comunidad.
