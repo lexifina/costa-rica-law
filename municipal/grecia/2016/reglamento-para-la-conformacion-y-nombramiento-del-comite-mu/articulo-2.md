@@ -1,0 +1,1 @@
+Artículo 2º—El Concejo Municipal, deberá nombrar a su representante para el proceso de elección de los candidatos del comité en las asambleas y deberá nombrar a su representante para la presidencia de las asambleas, en el mes de setiembre.

@@ -1,0 +1,3 @@
+Artículo 5º—Dos Representantes de los Colegios del cantón.
+El Concejo Municipal, a través de su Secretaría, enviará una invitación a las supervisiones educativas y a todos los colegios, la tercera semana del mes de setiembre, para que cada gobierno estudiantil elija a un hombre y a una mujer que los represente en la Asamblea.
+Una vez elegidos los representantes de cada centro educativo, deberán notificarlo a la Secretaría del Concejo Municipal a más tardar la primera semana de octubre; con la nota adjunta de cada miembro, donde se exponga el interés del por qué quiere ser parte del comité, mínimo 1 página, máximo 2, por cada representante. La fecha de la Asamblea, será entre la tercera y/o cuarta semana de octubre en el Salón de Sesiones del Concejo Municipal.

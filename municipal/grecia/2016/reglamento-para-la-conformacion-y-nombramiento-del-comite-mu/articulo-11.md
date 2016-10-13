@@ -1,0 +1,1 @@
+Artículo 11.—El principio básico en el procedimiento de las Asambleas es el voto secreto, mediante el cual, los postulantes votarán entre sí, a quien consideren como el más idóneo para llevar a cabo la labor encomendada.

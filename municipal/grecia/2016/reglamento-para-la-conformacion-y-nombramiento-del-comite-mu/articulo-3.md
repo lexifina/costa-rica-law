@@ -1,0 +1,1 @@
+Artículo 3º—El Concejo Municipal, deberá realizar el nombramiento y juramentación de todos los miembros del comité, la segunda semana de noviembre y una vez tomado el acuerdo en firme, notificar por medio de su Secretaría al Concejo de la Persona Joven del Ministerio de Cultura y Juventud.
