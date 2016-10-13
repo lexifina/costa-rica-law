@@ -44,3 +44,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 29 | 2016-08-16 | Decreto Ejecutivo 39879 (2016-08-16) |
 | 30 | 2016-09-12 | Decreto Ejecutivo 39931 (2016-09-12) |
 | 31 | 2016-09-20 | Decreto Ejecutivo 39963 (2016-09-20) |
+| 32 | 2016-10-13 | Decreto Ejecutivo 40019 (2016-10-13) |
