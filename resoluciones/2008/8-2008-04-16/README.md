@@ -15,3 +15,4 @@ Tratamiento tributario de los ingresos provenientes de espectáculos públicos
 | --- | --- | --- |
 | 1 | 2008-05-06 | la propia norma |
 | 2 | 2012-02-21 | Resolución 4 (2012-02-21) |
+| 3 | 2016-10-14 | Resolución 53 (2016-10-14) |
