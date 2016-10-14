@@ -1,0 +1,6 @@
+Artículo 31.- Acciones correctivas para faltas graves. Los estudiantes responsables de haber cometido una falta grave podrán ser objetos de las siguientes acciones correctivas:
+a) Reparar y/o reponer el material dañado, destruido, extraviado o sustraído.
+b) Subsanar el irrespeto y/o la ofensa verbal a las personas, grupos internos o externos a la institución mediante la oportuna retractación pública y las disculpas que correspondan.
+c) Realizar acciones de interés institucional y comunal, respetando la proporcionalidad y la idoneidad con respecto a la falta cometida. Cuando se imponga esta acción correctiva se deberá indicar cuál es la labor por realizar y cuántas las horas que debe dedicar el estudiante. El director(a) de la escuela o encargado(a) de programa designará a un miembro de la comunidad educativa quien velará por el cumplimiento de la sanción impuesta.
+d) Participar en charlas sobre el consumo de licor o el uso de drogas, sea en la institución, o en otras organizaciones, estatales o no, que se dediquen a trabajar esta problemática. En este caso el estudiante deberá aportar un documento que haga constar su participación en dichas charlas.
+e) Ser objeto de una suspensión parcial o total de todas las actividades académicas de una semana hasta por un máximo de un mes calendario.

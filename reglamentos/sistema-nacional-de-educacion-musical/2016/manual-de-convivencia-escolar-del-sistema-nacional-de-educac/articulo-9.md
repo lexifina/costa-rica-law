@@ -1,0 +1,1 @@
+Artículo 9.- Plazo de nombramiento. Los miembros del Comité de Convivencia son nombrados por todo el curso lectivo (año calendario), dentro de los 15 días posteriores al inicio del curso lectivo del SINEM.

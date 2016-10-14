@@ -1,0 +1,1 @@
+Artículo 2.- Marco legal. El ejercicio de los derechos y el cumplimiento de los deberes aquí contenidos, se enmarcan dentro del ordenamiento jurídico nacional, de los fines, principios, y valores del SINEM.

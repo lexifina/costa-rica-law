@@ -1,0 +1,4 @@
+Artículo 33.- Acciones correctivas para faltas gravísimas. Los estudiantes responsables de haber cometido una falta gravísima podrán ser objetos de las siguientes acciones correctivas:
+a) Obligación de reparar, de manera verificable, el daño material, moral o personal causado a personas, grupos determinados o a la misma institución.
+b) Realización de acciones de interés institucional y comunal, respetando la proporcionalidad y la idoneidad con respecto a la falta cometida. Cuando se imponga esta acción correctiva se deberá indicar cuál es la labor por realizar y cuantas las horas que debe dedicar el estudiante. El director de la escuela o encargado de programa designará a un miembro de la comunidad educativa quien velará por el cumplimiento de la sanción impuesta.
+c) Suspensión parcial o total de todas las actividades académicas de tres semanas hasta por un máximo de un mes calendario.

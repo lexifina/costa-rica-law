@@ -1,0 +1,1 @@
+Artículo 20.- Permisos programados. En caso de que el padre de familia y/o representante legal, con conocimiento previo, necesite que el estudiante se ausente de la Institución por motivos que este considere justificables, deberá solicitar por escrito el permiso ante el director de la escuela o encargado de programa o quien lo represente, de manera razonada.

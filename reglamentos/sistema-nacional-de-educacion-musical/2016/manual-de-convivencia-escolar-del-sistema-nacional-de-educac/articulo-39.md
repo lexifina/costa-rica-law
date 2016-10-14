@@ -1,0 +1,1 @@
+Artículo 39. Normativa supletoria. En lo no dispuesto por la presente norma, se aplicará la Convención de las Naciones Unidas sobre los Derechos del Niño, la Ley No. 7739, Código de la Niñez y la Adolescencia y la Ley No. 8261, Ley General de la Persona Joven.

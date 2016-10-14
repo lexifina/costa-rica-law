@@ -1,0 +1,1 @@
+Artículo 25.- Corresponsabilidad. Los estudiantes que inciten a sus compañeros a cometer alguna de las faltas disciplinarias contempladas en este reglamento o colaboren en la ejecución de la misma, son corresponsables por la falta cometida y podrán ser objeto de la aplicación de medidas correctivas siguiendo el debido proceso.

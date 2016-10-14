@@ -1,0 +1,4 @@
+Artículo 32.- Acciones correctivas para faltas muy graves. Los estudiantes responsables de haber cometido una falta muy grave podrán ser objetos de las siguientes acciones correctivas:
+a) Reparar, de manera verificable, el daño material, moral o personal causado a personas, grupos determinados o a la misma institución.
+b) Realizar acciones de interés institucional y comunal, respetando la proporcionalidad y la idoneidad con respecto a la falta cometida. Cuando se imponga esta acción correctiva se deberá indicar cuál es la labor por realizar y cuántas las horas que debe dedicar el estudiante. El director de la escuela o encargado de programa designará a un miembro de la comunidad educativa quien velará por el cumplimiento de la sanción impuesta.
+c) Ser objeto de una suspensión parcial o total de todas las actividades académicas de dos semanas hasta por un máximo de un mes calendario.

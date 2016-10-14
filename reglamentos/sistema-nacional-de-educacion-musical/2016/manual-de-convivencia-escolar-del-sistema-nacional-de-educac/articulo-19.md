@@ -1,0 +1,2 @@
+Artículo 19.- Justificación de las ausencias. En caso de ausencia a lecciones y pruebas, se justifica por escrito durante los tres días hábiles siguientes al reingreso del estudiante. La justificación se realiza ante la Dirección o quien este designe para llevar el control de las mismas. Por ninguna circunstancia se justificarán ausencias pasados estos tres días hábiles.
+En todos los casos, la justificación debe ser razonada. El padre de familia podrá realizar este trámite adjuntando los documentos probatorios respectivos.
