@@ -1,0 +1,1 @@
+Artículo 24° .-Después de publicado el presente Reglamento en el periódico oficial La Gaceta, los Directores de cada cuerpo policial adscrito al Ministerio de Seguridad Pública tendrán la obligación de comunicar a cada uno de los funcionarios del respectivo cuerpo policial, los alcances de las medidas de este acto.

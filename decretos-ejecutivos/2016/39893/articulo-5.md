@@ -1,0 +1,1 @@
+Artículo 5° -Para la realización de la prueba, en caso de los funcionarios policiales activos, se seleccionará de forma aleatoria a los candidatos que serán sometidos a la misma. Dicha elección será efectuada por el profesional en salud encargado del proceso.

@@ -1,0 +1,1 @@
+Artículo 19 º .-EI profesional en salud entregará al Departamento de Salud Ocupacional el sobre que contiene los resultados. Los mismos serán revisados por un médico de dicho Departamento. Una vez impuesto del contenido, decidirá lo que corresponda en cada caso, consignándolo en un libro de actas para ese efecto.

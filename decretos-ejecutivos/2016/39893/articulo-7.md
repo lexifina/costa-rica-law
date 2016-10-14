@@ -1,0 +1,1 @@
+Artículo 7º -Para la implementación de la prueba será necesario documentar en formularios preestablecidos los actos que se realizaran durante el proceso. La documentación anterior estará bajo la responsabilidad del encargado de realizar la prueba.

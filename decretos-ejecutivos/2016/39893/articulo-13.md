@@ -1,0 +1,1 @@
+Artículo 13° .-En caso que la muestra de orina fuera vertida en recipiente distinto a los frascos identificados con la letra "A" y "B", el encargado de supervisar la toma de la muestra verterá la orina en los frascos dichos. Dicho procedimiento tiene que ser descrito en un formulario.

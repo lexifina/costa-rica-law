@@ -1,0 +1,2 @@
+Artículo 12° -La persona sujeta a la prueba orinará dentro de los frascos o en un recipiente
+esterilizado bajo la estricta vigilancia del funcionario del Departamento de Salud Ocupacional encargado para tal efecto. El volumen de orina no podrá ser inferior a 35 mi, salvo que hubiera especiales dificultades para recoger tal cantidad, en cuyo caso el encargado de realizar la prueba decidirá el volumen requerido.
