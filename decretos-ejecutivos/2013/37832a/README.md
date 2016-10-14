@@ -14,3 +14,4 @@ Reglamento Técnico RTCR 456:2011 Receptores ISDB-Tb y antenas de televisión Ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-20 | la propia norma |
+| 2 | 2016-10-14 | Decreto Ejecutivo 40033 (2016-10-14) |
