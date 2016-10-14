@@ -1,0 +1,2 @@
+Disposiciones transitorias.
+Transitorio I. La fecha de vigencia del envío de los archivos XML a la Administración Tributaria, para su respectiva validación, queda sujeta a que la Dirección General de Tributación comunique mediante resolución posterior, cuales son los contribuyentes que tendrán la obligatoriedad del uso de comprobantes electrónicos, ya que serán los contribuyentes obligados al uso de comprobantes electrónicos los que deberán realizar dicho envío de los archivos XML para su respectiva validación.

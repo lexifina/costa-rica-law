@@ -1,0 +1,2 @@
+Artículo 6º Código de Respuesta Rápida (QR). Código generado por el obligado tributario que permitirá realizar la consulta de los comprobantes electrónicos, por medio de una dirección Web suministrada por la Dirección General de Tributación; a la cual se le debe de incorporar la clave numérica.
+La generación e impresión del Código QR en los comprobantes electrónicos, deben permitir su lectura a través de cualquier dispositivo de captura compatible.

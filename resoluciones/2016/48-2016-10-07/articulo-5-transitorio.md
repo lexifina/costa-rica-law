@@ -1,0 +1,1 @@
+Transitorio V. La consulta de los obligados tributarios registrados como emisor-receptor electrónico, receptor electrónico-no emisor y proveedores de sistemas gratuitos para la emisión de comprobantes electrónicos, establecida en el artículo 22 de la presente resolución queda suspendida hasta que la Dirección General de Tributación lo comunique mediante resolución.

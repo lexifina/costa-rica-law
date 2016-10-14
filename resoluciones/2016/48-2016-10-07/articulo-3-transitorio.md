@@ -1,0 +1,1 @@
+Transitorio III. Los obligados tributarios que a la fecha de emisión de la presente resolución mantengan un sistema de facturación electrónica de conformidad con lo establecido en la resolución DGT-02-2009 del 9 de enero de dos mil nueve, contarán con un plazo de hasta seis meses para ajustar sus sistemas, a partir de la publicación de la presente resolución.
