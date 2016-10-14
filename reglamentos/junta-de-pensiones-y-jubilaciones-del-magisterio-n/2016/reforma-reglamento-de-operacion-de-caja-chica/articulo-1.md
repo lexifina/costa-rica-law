@@ -1,0 +1,5 @@
+JUNTA DE PENSIONES Y JUBILACIONES
+DEL MAGISTERIO NACIONAL
+La Junta Directiva en la sesión ordinaria N° 099-2016 del 07 de setiembre de 2016, acuerda: Modificar los artículos 5 y 17 del Reglamento de Operación de Caja Chica, para que se consigne de la siguiente manera:
+Artículo N° 5: El manejo del Fondo de Caja Chica Institucional le corresponde al Departamento Administrativo, éste debe designar a un funcionario(a) del Departamento como encargado(a) de la administración de los fondos fijos de Caja Chica y además, suscribir una póliza de fidelidad a nombre de la Junta por el monto en custodia. El costo de la póliza corre por cuenta de la Institución.
+Artículo N° 17: El fondo de Caja Chica estará sujeto a la fiscalización inmediata del Jefe del Departamento Administrativo. Adicionalmente, la Contraloría Financiera y la Auditoría Interna realizarán las revisiones y arqueos periódicos de acuerdo a su plan de trabajo. El encargado del fondo de Caja Chica está obligado a brindar toda la información requerida para estos efectos.
