@@ -1,0 +1,1 @@
+Artículo 6. De la inspección municipal. La Municipalidad por medio de sus funcionarios o personas contratadas para desempeñar la función pública, podrá ejercer las labores de inspección que considere oportunas, para el fiel cumplimiento del presente reglamento.

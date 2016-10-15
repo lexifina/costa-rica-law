@@ -1,0 +1,10 @@
+CAPITULO X
+De las sanciones y multas
+Artículo 34. Sanciones. Por incumplimiento de las disposiciones legales y reglamentarias, sin perjuicio de las demás estipuladas en este reglamento, podrá la Unidad imponer las siguientes sanciones:
+a) Suspensión de la licencia.
+b) Clausura de la actividad
+c) Cuando los funcionarios municipales emitan ordenes escritas a los Patentados éstas serán de acatamiento obligatorio, una vez que estén firmes y de acuerdo a la ley. Si el patentado desobedeciera estas órdenes en evidente confrontación con la autoridad municipal, ésta podrá acudir a los Tribunales de Justicia el Poder Judicial a interponer las denuncias correspondientes a los delitos de desacato o desobediencia a la autoridad como corresponda y de acuerdo al Código Penal. Además la municipalidad se reservara el derecho de presentar la correspondiente querella y la acción civil resarcitoria en estos casos.
+d) Ruptura de sellos por los patentados. Los sellos que coloque la Municipalidad con el fin de clausurar e impedir el ejercicio de actividades lucrativas que hayan sido declaradas indebidas de acuerdo a este Reglamento son un patrimonio público y oficial y se hace para efectos fiscales. El patentado tiene la obligación de cuidar y velar por la protección de estos sellos. Si la Municipalidad conociera y lograre demostrar que el patentado ha roto o permitido que se rompan estos sellos por cualquier mecanismo podrá comunicarlo al Juzgado contravencional de Menor cuantía, mediante denuncia formal, para que se le sancione por la contravención enunciada en el artículo 319 del Código Penal.
+e) Imposición de multas,
+f) Denuncia ante los órganos judiciales competentes en los casos conducentes.
+g) Realización de operativos. La Municipalidad de La Cruz junto con las autoridades de la Fuerza Pública, la Dirección General de Migración y Extranjería, el Patronato Nacional de la Infancia, la Dirección de Tránsito del MOPT y el Ministerio de Salud o cualquier otra entidad afín, podrá realizar operativos para comprobar el adecuado cumplimiento de las licencias ya otorgadas.

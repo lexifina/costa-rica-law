@@ -1,0 +1,1 @@
+Artículo 23. Determinación del ingreso bruto y el ingreso neto anual en casos especiales. El total de los ingresos brutos y los ingresos netos anuales que hayan operado únicamente durante una parte del período fiscal anterior, se determinará con base en el promedio mensual de la actividad.

@@ -1,0 +1,1 @@
+Artículo 39. Denuncias ante los órganos jurisdiccionales. La Unidad procederá a denunciar ante los órganos jurisdiccionales comp·etentes en los casos contemplados en los artículos 26, 33 y 34 de este reglamento.

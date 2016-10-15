@@ -1,0 +1,1 @@
+Artículo 25. Confidencialidad de la Información. La información suministrada por los contribuyentes a la Municipalidad, tiene el carácter confidencial a que se refiere el artículo Nº 117 del Código de Normas y Procedimientos Tributarios. La violación al deber de confidencialidad será sancionada conforme lo establece la Sección 111, del Capítulo 111 de dicho cuerpo normativo.

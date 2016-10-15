@@ -1,0 +1,3 @@
+CAPITULO V
+Sobre el traslado y el Traspaso de licencias y la modificación de actividades
+Artículo 18. Traslado de licencia: Cualquier patente podrá ser trasladada del lugar en que fue otorgada o que exista actualmente siempre y cuando este cambio no implique la violación o incumplimiento de lo estableció en la legislación vigente. Para el traslado es necesario que se formule una solicitud por escrito a la Unidad de Patentes de la Municipalidad en los mismos términos que establece el artículo 12 de este Reglamento. En todos los casos será necesario que el solicitante compruebe el cumplimiento de todos los requisitos que establece este Reglamento para el funcionamiento de la patente en el nuevo lugar solicitado.
