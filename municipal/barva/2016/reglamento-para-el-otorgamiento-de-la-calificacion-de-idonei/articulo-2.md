@@ -1,0 +1,5 @@
+Artículo 2º—Definiciones. Para efectos de la aplicación del presente Reglamento y la interpretación del mismo, se entiende por:
+a) Calificación de idoneidad. Constituye el pronunciamiento de la Municipalidad de Barva, encaminado a establecer la cualidad de un sujeto privado de ser apto para administrar fondos públicos.
+b) Fondos públicos. Conjunto de bienes patrimoniales de la Hacienda pública, dinero y valores existentes en el erario público, y, además las obligaciones activas a favor del Estado y las corporaciones públicas, como impuestos y derechos pendientes de pago y títulos o signos representativos de la deuda pública.
+c) Sujetos privados. Cualquier persona jurídica sin fin lucrativo que pretenda obtener la calificación de idoneidad para administrar fondos públicos en el cantón de Barva.
+d) Comisión: Comisión Especial nombrada por el Concejo Municipal a la que corresponde el análisis, valoración, dictamen y recomendación al Concejo Municipal sobre las solicitudes de calificación de idoneidad promovidas por los sujetos o entidades privadas.

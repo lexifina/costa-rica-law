@@ -1,0 +1,3 @@
+Artículo 16.—Tanto la Municipalidad como las asociaciones deben cumplir con las Normas de control interno para los sujetos privados que custodien o administren, por cualquier título, fondos públicos, especialmente deberán cumplir con lo establecido en el manual de Normas de control interno para los sujetos privados que custodien o administren, por cualquier título, fondos públicos, emitido por la Contraloría General de la República. (N-1-2009-CO-DFOE).
+El sujeto privado al que se le venza la calificación de idoneidad deberá iniciar el procedimiento previsto en este Reglamento para recibir nuevos recursos de las leyes señaladas en el artículo primero.
+El presente Reglamento entrará en vigencia a partir de su publicación definitiva en el Diario Oficial La Gaceta.

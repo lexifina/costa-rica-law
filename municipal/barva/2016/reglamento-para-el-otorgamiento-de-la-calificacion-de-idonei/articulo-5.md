@@ -1,0 +1,1 @@
+Artículo 5º—En el supuesto en el cual el sujeto privado no cumpla con la totalidad de los requisitos solicitados se le prevendrá por una única vez al solicitante, que en el plazo improrrogable de ocho días hábiles deberá aportar la documentación omitida, bajo el apercibimiento, que de no cumplirlo se procederá al archivo inmediato del expediente.

@@ -1,0 +1,1 @@
+Artículo 6º—La valoración definitiva de las solicitudes de idoneidad de sujetos privados para administrar fondos públicos, será responsabilidad del Concejo Municipal. De previo a la resolución final deberá existir la recomendación de una Comisión Especial conformada al efecto.

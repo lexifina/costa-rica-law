@@ -1,0 +1,1 @@
+Artículo 8º—El Concejo Municipal ordenará la conformación de una Comisión Especial que tendrá a su cargo la valoración de solicitudes de calificación de idoneidad. La misma deberá contar con la representación de la Alcaldía Municipal y estará constituida por no menos de cinco miembros.

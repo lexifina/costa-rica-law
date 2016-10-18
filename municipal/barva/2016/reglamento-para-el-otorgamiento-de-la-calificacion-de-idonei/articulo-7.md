@@ -1,0 +1,1 @@
+Artículo 7º—El sujeto privado, de cualquier tipo, beneficiado con la declaratoria de idoneidad, deberá presentar ante la Municipalidad de Barva, mediante declaración jurada autenticada legalmente, la respectiva liquidación presupuestaria de los fondos trasferidos.

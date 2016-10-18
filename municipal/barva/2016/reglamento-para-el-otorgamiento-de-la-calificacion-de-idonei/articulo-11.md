@@ -1,0 +1,1 @@
+Artículo 11.—El dictamen de recomendación que hace la Comisión, no será vinculante para el Concejo Municipal, quien en caso de desaprobación, fundamentará su decisión mediante un acto motivado y dicho documento debe ser adjuntado al expediente.
