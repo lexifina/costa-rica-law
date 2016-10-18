@@ -15,3 +15,4 @@ Reglamento para regular el funcionamiento y operación del centro de cuido y des
 | --- | --- | --- |
 | 1 | 2013-09-18 | la propia norma |
 | 2 | 2014-07-03 | Reglamento municipal 218 (2014-07-03) |
+| 3 | 2016-10-18 | Reglamento municipal 25 (2016-10-18) |
