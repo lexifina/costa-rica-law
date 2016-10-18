@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE HOJANCHA
+(Esta norma fue derogada mediante acuerdo N° 2 tomado en sesión ordinaria N° 025-2016 del 18 de octubre del 2016 “Establece que el Otorgamiento de los Visados Municipales de los planos a catastrar serán autorizados por el encargado del Departamento de catastro y Bienes Inmuebles”)
 El Concejo Municipal de Hojancha, cantón Guanacaste, comunica Acuerdo N° 11 tomado en sesión ordinaria N° 266-015, del 2 de junio del 2015, que textualmente dice:
 El Concejo Municipal, Municipalidad de Hojancha, provincia Guanacaste, acuerda:
 a) Que el otorgamiento de los Visados Municipales de los planos a catastrar serán autorizados por el encargado del Departamento de Catastro y Bienes Inmuebles que está inserto dentro de la Administración Tributaria, según artículo 33 de la Ley de Planificación Urbana.
