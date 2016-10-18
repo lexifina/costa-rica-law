@@ -1,1 +1,1 @@
-Artículo 7º—Sujeto Activo y Pasivo en el Cobro de Tributos. La municipalidad es el sujeto activo en el cobro de los tributos, mientras que el o los contribuyentes serán el sujeto pasivo de los mismos.
+Artículo 7º-Definición de Cobro Judicial. Por cobro judicial se debe entender aquellas gestiones que se realicen en el ámbito judicial con el objetivo de recuperar las cuentas atrasadas mayores de 90 días.

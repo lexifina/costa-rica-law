@@ -1,1 +1,5 @@
-Artículo 12.—La distribución de las cuentas atrasadas a los abogados se hará en forma aleatoria.
+Artículo 12º- A la unidad administrativa encargada del cobro le corresponde ejercer control de la labor realizada por todos los abogados(as) internos(as) o externos(as) encargados(as) de los procesos de cobro judicial, mediante el siguiente procedimiento:
+a) Mediante la revisión de los informes mensuales que deberán rendir los(as) abogados(as) de acuerdo con lo que establece este Reglamento.
+b) Mediante requerimiento escrito a los (as) abogados (as) sobre el avance de cada proceso o de alguna gestión en particular, de cualquier cuenta que se encuentre en gestión judicial.
+c) Los (as) servidores (as) de la unidad administrativa encargada del cobro deberán informar a su jefe (a) inmediato de cualquier anomalía o irregularidad observada en el desempeño de la labor profesional de los (as) abogados (as). Lo anterior con el propósito de realizar una investigación, señalar omisiones e irregularidades en el cobro de cuentas atrasadas y si fuera del caso iniciar las acciones correspondientes por su incumplimiento.
+En caso de reincidencia o incumplimiento de las indicaciones expresas, la unidad administrativa encargada del cobro comunicará al Alcalde (sa) estos casos, con el fin de que se tome una decisión respecto al comportamiento de los (as) abogados (as).

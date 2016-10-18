@@ -1,1 +1,3 @@
-Artículo 5º—Definición de cobro administrativo. Se entenderá por cobro administrativo todas las acciones que se realizan por cuenta de la municipalidad, con el objetivo de cumplir con los calendarios de pago que garanticen la cancelación oportuna de las cuentas de los contribuyentes, las cuales iniciarán 8 días después de vencidos, completándose a los 30 días la gestión de cobro completa.
+CAPÍTULO II
+ORGANIZACIÓN Y FUNCIONAMIENTO DE LA OFICINA ENCARGADA DE COBRO
+Artículo 5º-Ubicación y atribuciones de la Oficina de Cobro. Esta oficina forma parte de la Dirección Administrativa-Financiera; tendrá como atribuciones realizar el cobro en forma oportuna, crear y poner en práctica los mecanismos, diseñar o variar los procesos y establecer los controles necesarios para hacer efectivo el cobro y el correspondiente pago de las cuentas morosas, tanto las administrativas como las judiciales.

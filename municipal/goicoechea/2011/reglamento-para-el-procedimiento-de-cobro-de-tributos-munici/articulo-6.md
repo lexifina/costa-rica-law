@@ -1,1 +1,1 @@
-Artículo 6º—Definición de Cobro Judicial. Por cobro judicial se debe entender aquellas gestiones que se realicen en el ámbito judicial con el objetivo de recuperar las cuentas atrasadas mayores de 90 días.
+Artículo 6º- Definición de cobro administrativo. Se entenderá por cobro administrativo todas las acciones que se realizan por cuenta de la municipalidad, con el objetivo de cumplir con los calendarios de pago que garanticen la cancelación oportuna de las cuentas de los contribuyentes, las cuales iniciarán 8 días después de vencidos.

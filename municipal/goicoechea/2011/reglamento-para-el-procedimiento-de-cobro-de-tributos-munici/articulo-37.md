@@ -1,4 +1,1 @@
-CAPÍTULO 9
-Disposiciones finales
-Artículo 37.—A las materias que son objeto del presente Reglamento, resultan aplicables las disposiciones contenidas sobre las mismas en el Código Municipal, el Código Procesal Civil, la Ley General de la Administración Pública, la Ley Reguladora de la Jurisdicción Contencioso Administrativa, la Ley Orgánica del Colegio de Abogados y normas conexas y el decreto de aranceles profesionales para abogados, así como cualquier otra norma que guarde relación con este Reglamento.
-El presente Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Artículo 37º-La definición de cada uno de los conceptos anteriores y su aplicación es conforme consta en la Ley Nº 4755, emitida el 29 de abril de 1971 y sus reformas, que consta en el artículo 36 al 50 de ese cuerpo normativo, el cual es suficientemente claro y amplio en el desarrollo de concepto y procedimiento de aplicación de los mismos. Motivo por el cual en este Reglamento se define que las resoluciones por emitir para esos conceptos corresponden a la Jefatura del Departamento de Cobro, Licencias y Patentes.

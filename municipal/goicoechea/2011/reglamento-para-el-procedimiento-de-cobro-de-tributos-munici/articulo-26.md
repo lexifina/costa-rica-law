@@ -1,1 +1,5 @@
-Artículo 26.—La sumatoria de los montos atrasados más las nuevas deudas, dividido entre el plazo otorgado, constituirá la cuota a pagar por contribuyente. En el caso de que el contribuyente moroso incumpliere el compromiso adquirido, de tal manera que se acumulen dos o más cuotas, la Municipalidad podrá proceder de inmediato a tramitar el cobro judicial, previo cargo de los costos por concepto de gastos administrativos, los cuales se calcularán con base en el costo de las gestiones realizada para la localización del contribuyente y la notificación de la deuda, a saber, llamadas telefónicas, telegramas, avisos de cobro y otros.
+CAPÍTULO IV
+DE LOS ARREGLOS DE PAGO
+Artículo 26º-Entiéndase por arreglo de pago:
+a) Arreglo de pago administrativo: El compromiso que asume el o la contribuyente moroso (a) con la Municipalidad de cancelar las sumas adeudadas a la Municipalidad en un tiempo perentorio, de acuerdo en lo dispuesto en este Reglamento.
+b) Arreglo de pago judicial: Entiéndase por arreglo de pago judicial, el compromiso que adquiere el o la contribuyente moroso(a) con la Municipalidad, cuya cuenta ha sido trasladada a los(as) abogados(as) asignados (as) para llevar a cabo el proceso de Cobro Judicial.

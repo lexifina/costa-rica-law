@@ -1,6 +1,3 @@
-CAPÍTULO 8
-De las devoluciones o acreditaciones de tributos
-Artículo 34.—En los casos anteriores donde el contribuyente ha cancelado oportunamente su obligación y se determine con posterioridad la existencia de incongruencia en el cobro, requiriéndose la devolución o acreditación de tributos cancelados se procederá conforme reza el siguiente articulado de este capítulo.
-Todo aquel pago que un sujeto físico o jurídico realice por permisos de construcción, y no se lleve a cabo la obra, no se harán devoluciones.
-Todo aquel pago que un sujeto físico o jurídico realice por patentes comerciales, licencias de bebidas alcohólicas y cualquier otro pago que por algún tipo de permiso y no sea utilizado, tampoco se harán devoluciones. El funcionario en el momento de recibir el pago, hará la advertencia correspondiente, además de que en los recibos emitidos por la corporación deberá indicarse de que en caso de hacer uso del permiso, licencia o patente cancelada no se harán devoluciones.
-(Así reformado en sesión N° 24 del 15 de junio de 2015)
+Artículo 34º- Una vez revisada la documentación presentada y la existente en el Departamento de Cobro Licencias y Patentes, se emitirá por la Jefatura de esa unidad administrativa la resolución administrativa fundamentada que declare con lugar o no la prescripción de lo adeudado.
+En caso de ser favorable la resolución de prescripción, la Jefatura del Departamento de Cobro, Licencia y Patentes, ordenará la inclusión de la resolución en el expediente respectivo y la confección del cambio de cargos correspondiente para aplicar en el sistema de cómputo, conforme la normativa y disposiciones vigentes en esa materia, con el aval de la Dirección Administrativa de este Municipio.
+En caso de ser negativa la resolución para el sujeto pasivo, se debe indicar en la misma las instancias de alzada que dispone y los plazos para presentar su acción señalando la base legal de la misma.

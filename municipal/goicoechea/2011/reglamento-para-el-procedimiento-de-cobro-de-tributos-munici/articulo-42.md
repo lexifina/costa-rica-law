@@ -1,0 +1,1 @@
+Artículo 42°-En caso de que se determine que el Proceso de Cobro Judicial sea desarrollado por el Departamento de Cobro; Licencias y Patentes Municipales, se debe otorgar una plaza de abogado (a) y una plaza de oficinista, con la Intención de que dichos (as) funcionarios se avoquen diariamente al desarrollo de los procesos de cobro judicial.
