@@ -14,3 +14,4 @@ Reglamento de activos fijos, materiales y otros bienes de la Municipalidad de Cu
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-02 | la propia norma |
+| 2 | 2016-10-18 | Reglamento municipal 25 (2016-10-18) |
