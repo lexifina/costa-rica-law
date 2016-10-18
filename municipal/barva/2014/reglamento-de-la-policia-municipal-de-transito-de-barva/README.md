@@ -14,3 +14,4 @@ Reglamento de la Policía Municipal de Tránsito de Barva
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-24 | la propia norma |
+| 2 | 2016-10-18 | Reglamento municipal 0 (2016-10-18) |
