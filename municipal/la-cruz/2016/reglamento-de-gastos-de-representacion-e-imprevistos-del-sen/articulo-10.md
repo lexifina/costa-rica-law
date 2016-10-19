@@ -1,0 +1,1 @@
+Artículo 10.—Reintegro. Mensualmente deberá reintegrarse junto a la liquidación la suma no utilizadas. Deberá reintegrarse la totalidad del adelanto, cuando no se cumplan los requisitos y plazos previstos en el artículo anterior.
