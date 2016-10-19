@@ -15,9 +15,11 @@ Cardiología Pediátrica.
 Electrofisiología Cardiaca. Subespecialidad de la Dermatopatología Artículo 66 (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015) Subespecialidades de la Dermatología Artículo 67 (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015) Cirugía Dermatológica (Así adicionada la subespecialidad anterior en sesión ordinaria N° 2015-12-02 del 2 de diciembre de 2015)
 Subespecialidades de la Cirugía General Artículo No. 77
 Cirugía Gastroenterológica. | Artículo No. 78
+Cirugía de Trauma (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2016-10-19 del 19 de octubre de 2016) | Artículo No. 147 (Así adicionado el requisito anterior mediante sesión ordinaria 2016-10-19 del 19 de octubre de 2016)
 Coloproctología. | Artículo No. 79
 Subespecialidad de la Cirugía Pediátrica Artículo No. 80
 Oncología Quirúrgica Pediátrica. | Artículo No. 81
+Cirugía de Trauma (Así adicionada la subespecialidad anterior mediante sesión ordinaria 2016-10-19 del 19 de octubre de 2016) | Artículo No. 147 (Así adicionado el requisito anterior mediante sesión ordinaria 2016-10-19 del 19 de octubre de 2016)
 Subespecialidades de la Ginecología y Obstetricia Artículo No. 82
 Ginecología Endocrinológica. | Artículo No. 83
 Ginecología Oncológica. | Artículo No. 84

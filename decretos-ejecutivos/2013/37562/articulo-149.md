@@ -1,1 +1,9 @@
-Artículo 149.- (Nota de Sinalevi: Mediante sesión ordinaria 2016-09-07 del 07 de setiembre del 2016, se ordena incluir un artículo 151, no obstante el presente reglamento llegaba hasta el artículo 148, al exigir el sistema un numero consecutivo el mismo fue creado pero sin texto)
+Artículo 149°- -Rige a partir de su publicación.
+Dado en la Presidencia de la República- San José, a los ocho días del mes de enero de dos mil trece.
+(Corrida su numeración mediante sesión ordinaria N° 2015-12-02 del 2 de diciembre del 2015, que lo traspasó del antiguo 141 al 142)
+(Corrida su numeración mediante sesión ordinaria N° 2016-03-09 del 9 de marzo de 2016, que lo traspasó del antiguo 142 al 143)
+(Corrida su numeración mediante sesión ordinaria N° 2016-07-13 del 13 de julio del 2016, que lo traspasó del antiguo 143 al 144)
+(Corrida su numeración mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016, que lo traspasó del antiguo 144 al 145)
+(Corrida su numeración mediante sesión ordinaria N° 2016-07-20 del 20 de julio del 2016, que lo traspasó del antiguo 145 al 147)
+(Corrida su numeración mediante sesión ordinaria N° 2016- 09-07 del 07 de setiembre del 2016, que lo traspasó del antiguo 147 al 148)
+(Corrida su numeración mediante sesión ordinaria 2016-10-19 del 19 de octubre de 2016, que lo traspasó del antiguo 148 al 149)

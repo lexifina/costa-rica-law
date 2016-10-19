@@ -149,4 +149,5 @@ articulo-148.md
 articulo-149.md
 articulo-150.md
 articulo-151.md
+articulo-152.md
 articulo-1-transitorio.md
