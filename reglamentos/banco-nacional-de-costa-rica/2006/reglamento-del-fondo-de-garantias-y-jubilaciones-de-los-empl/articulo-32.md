@@ -1,1 +1,0 @@
-Artículo 32.—Sesiones del Órgano. El Órgano de Dirección, deberá reunirse en sesión ordinaria, por lo menos una vez al mes, en el lugar y día que sus miembros determinen y en sesión extraordinaria las veces que sea convocada por escrito por el Presidente o por cuatro miembros del Órgano de Dirección o por lo menos el 50% más uno de los integrantes del Fondo.

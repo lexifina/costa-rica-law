@@ -1,3 +1,0 @@
-Artículo 9º—Manejo de las reservas y liquidación mensual. Los rendimientos que generen los recursos de la Reserva Pensiones en Curso, permanecerán en dicha reserva, por lo que no podrán ser utilizados para otros fines que no sean el pago de pensiones en curso.
-De los rendimientos mensuales que generen los recursos de la reserva matemática en formación, se liquidarán los costos de operación del fondo y el costo actuarial para los nuevos jubilados.
-En caso de que quede remanente, éste se trasladará íntegramente a la reserva pensiones en curso. El Órgano de Dirección puede modificar este monto de traslado, definiendo nuevas proporciones de distribución entre ambas reservas, según las recomendaciones contenidas en los estudios actuariales.

@@ -1,1 +1,0 @@
-Artículo 13.—Salario de referencia. El salario de referencia es igual al promedio aritmético del valor actual de los salarios recibidos, en los 25 años antes de la fecha de pensionarse. La tasa de actualización comprende la inflación de cada año tomado en consideración, a la fecha en que se hace el respectivo cálculo de la pensión.

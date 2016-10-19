@@ -1,1 +1,0 @@
-Artículo 22.—Reevaluación montos de pensiones y jubilaciones. El monto de las pensiones o jubilaciones en curso de pago, será revalorizado semestralmente, tomando en consideración el índice de inflación y la situación financiera del Fondo, todo de acuerdo con las recomendaciones actuariales pertinentes.

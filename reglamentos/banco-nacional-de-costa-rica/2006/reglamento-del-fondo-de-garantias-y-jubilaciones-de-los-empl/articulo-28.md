@@ -1,3 +1,0 @@
-Artículo 28.—Reingreso al servicio del Banco de un jubilado. Todo jubilado que reingrese al servicio del Banco, dejará de percibir su pensión por el tiempo que se mantenga la relación laboral con el Banco, debiendo simultáneamente aportar de su sueldo el porcentaje de cotización que esté vigente.
-Si la relación laboral se diera por terminada antes de cumplir seis meses, se reactivará la pensión con el mismo monto con que fue suspendida, más los aumentos que hubiesen sido aprobados por el Órgano de Dirección, durante los meses que reingresó al servicio del Banco.
-Si la relación laboral se diera por más de seis meses, el exjubilado tendrá derecho al recálculo de su pensión, de conformidad con el artículo 14 de este Reglamento, tomando en consideración los nuevos salarios.
