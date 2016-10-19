@@ -1,1 +1,2 @@
-Artículo 33.—Sobre los períodos de nombramiento del Consejo Regional. Los miembros del Consejo Regional, serán nombrados en sus cargos por el plazo y forma que se defina en su Reglamento Interno.
+Artículo 33. Sobre los periodos de nombramiento del Consejo Regional. Los miembros del Consejo Regional serán nombrado en sus cargos por un plazo de tres años. Cuando alguno de los miembros propietarios no pueda continuar ejerciendo el cargo o haya sido removido, lo sumirá el suplente hasta que se realice una convocatoria pública para el nombramiento del representante del sector correspondiente.
+(Así reformado por el artículo 12 del decreto ejecutivo N° 40054 del 19 de octubre del 2016 “Regionalización del Ministerio de Ambiente y Energía”)
