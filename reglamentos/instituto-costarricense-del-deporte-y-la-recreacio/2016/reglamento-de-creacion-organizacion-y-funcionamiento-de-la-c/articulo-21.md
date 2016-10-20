@@ -1,0 +1,1 @@
+Artículo 21°- Atribución de mediación. La Contraloría de Servicios podrá actuar como persona mediadora o conciliadora en la búsqueda de soluciones más adecuadas a las gestiones planteadas, como una forma de agilizar la prestación de los servicios, promover el diálogo y propiciar la paz.

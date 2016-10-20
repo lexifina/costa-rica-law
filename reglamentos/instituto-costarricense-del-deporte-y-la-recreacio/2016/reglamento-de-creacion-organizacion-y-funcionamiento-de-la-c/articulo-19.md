@@ -1,0 +1,1 @@
+Artículo 19°- Suspensión de la tramitación de un caso. La Contraloría de Servicios suspenderá la instrucción de una investigación cuando el mismo hecho se traslade a otra instancia administrativa o judicial competente para resolver, acto sobre el cual deberá quedar explícito en el expediente abierto del caso y así se lo notificará al usuario demandante.

@@ -1,0 +1,1 @@
+Artículo 9°- Integración. La Contraloría de Servicio del ICODER podrá participar en los diferentes Consejos Directivos, Comisiones de Trabajo o cualquier otro órgano a nivel institucional, cuando la función de estos esté relacionada con la prestación, evaluación y mejora continua de los servicios institucionales.

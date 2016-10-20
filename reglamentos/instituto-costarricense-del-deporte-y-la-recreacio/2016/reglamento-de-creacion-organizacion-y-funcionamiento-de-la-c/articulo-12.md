@@ -1,0 +1,18 @@
+Título II: Funciones
+Artículo 12°- Funciones. Para lograr el cumplimiento de sus objetivos la Contraloría de Servicio del ICODER tendrá las siguientes funciones:
+· Mediar para una solución pacífica de las gestiones presentadas por las personas usuarias relativas a la prestación del servicio, siempre y cuando sea posible de acuerdo con la naturaleza del servicio.
+· Tomar las acciones necesarias a los efectos de que la administración le haga llegar a la persona usuaria la información que solicite relativa a los servicios, normas, procedimientos o demás que se refieran a los servicios que presta el ICODER, de manera expedita, correcta, actualizada y completa de conformidad con la Ley.
+· Velar por que se cumplan los lineamientos y directrices que en materia de Contralorías de Servicio y mejoramiento al servicio público se emitan, sin perjuicio de las acciones que desarrolle las cuales deben responder a las necesidades específicas de la institución
+· Atender oportunamente las inconformidades, denuncias, sugerencias que presenten los usuarios y procurar una solución inmediata a los problemas que se plantean.
+· Elaborar y proponer al jerarca para su correspondiente aprobación, los procedimientos de recepción, tramitación y resolución de inconformidades, denuncias o sugerencias del usuario, respecto a los servicios que el ICODER ofrece, así como establecer los mecanismos de control y seguimiento de las mismas, teniendo en consideración que dichos procedimientos deberán ser accesibles y expeditos.
+· Vigilar el cumplimiento institucional en la pronta respuesta a las inconformidades presentadas por los usuarios o beneficiarios de los servicios.
+· Identificar conflictos en la relación de la administración con el usuario que afecten la prestación del servicio y emitir las recomendaciones de mejora que correspondan.
+· Mantener un registro actualizado sobre la naturaleza y frecuencia de las inconformidades y denuncias, así como de las acciones institucionales acatadas y recomendadas para resolver el caso y su cumplimiento o no.
+· Elaborar y aplicar semestralmente entre los usuarios de los servicios instrumentos de percepción para obtener su opinión sobre la calidad de los servicios, grado de satisfacción y las mejoras requeridas.
+· Informar a los niveles superiores jerárquicos cuando las sugerencias presentadas por la Contraloría de Servicios a otras unidades administrativas de la institución hayan sido ignoradas y por ende las situaciones que provocan inconformidades en las personas usuarias permanezcan sin solución.
+· Velar preventivamente por la prestación de los servicios en los parques y sedes regionales, identificando deficiencias de atención y/o procedimiento, para derivar recomendaciones y propuestas que conlleven a la modernización de los servicios.
+· Orientar a los usuarios sobre la ubicación de las diferentes oficinas del ICODER, requisitos de trámites, así como sus derechos y deberes.
+· Impulsar el establecimiento de instrumentos de información, y procedimientos accesibles para formular quejas.
+· Fiscalizar los módulos de orientación e información al usuario, para garantizar su profesionalización y proponer instrumentos de comunicación, tales como instructivos, guías, manuales y señalización, que orienten a los clientes en sus trámites.
+· Presentar al jerarca institucional con copia a la Secretaría Técnica el informe anual de labores de acuerdo con la metodología propuesta por MIDEPLAN, y previo a esto un plan anual de trabajo que sirva de base para el informe antes mencionado.
+· Propiciar encuestas que permitan consultar a los usuarios acerca de los servicios que presta la institución.

@@ -1,0 +1,1 @@
+Artículo 29°- Sanciones. La violación a los deberes impuestos por este reglamento o por cualquier funcionario de la Contraloría de Servicios, serán sancionadas de conformidad con lo regulado en el Reglamento Autónomo de Servicio del ICODER y demás normas supletorias y concomitantes.

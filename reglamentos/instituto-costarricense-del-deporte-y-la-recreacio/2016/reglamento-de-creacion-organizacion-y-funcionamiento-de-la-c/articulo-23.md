@@ -1,0 +1,1 @@
+Artículo 23°- Asesoría. El Contralor (a) de Servicios podrá requerir la asesoría de las diferentes unidades administrativas de la institución, funcionarios internos o externos que estime necesarios para el cumplimiento a cabalidad de sus funciones.

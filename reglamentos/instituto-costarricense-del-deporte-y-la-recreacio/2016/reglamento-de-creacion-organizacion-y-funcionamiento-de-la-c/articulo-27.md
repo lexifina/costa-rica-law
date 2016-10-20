@@ -1,0 +1,1 @@
+Artículo 27°- Casos de atención colectiva. Si en relación con un mismo tema o problema se presentan denuncias que por su cantidad sobrepasa las posibilidades reales de resolución y atención individualizada, la Contraloría de Servicios tratará el tema de forma colectiva, y de tal circunstancia y su resultado, informará a los usuarios.

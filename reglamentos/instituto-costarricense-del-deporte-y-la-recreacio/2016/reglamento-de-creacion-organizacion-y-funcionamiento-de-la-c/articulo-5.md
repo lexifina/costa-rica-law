@@ -1,0 +1,1 @@
+Artículo 5°- Actuaciones. La Contraloría de Servicios será competente para actuar de oficio o a petición de parte, realizar investigaciones, visitar dependencias, y requerir la información pertinente para el cumplimiento de sus funciones.

@@ -1,0 +1,1 @@
+Artículo 4°- Independencia de la Contraloría. El Jerarca de la institución de conformidad con la Ley, no podrá tomar o ejecutar acciones de ningún tipo, tendientes a influir o hacer cambiar el criterio del Contralor (a) en el ejercicio de sus funciones.
