@@ -1,0 +1,2 @@
+Artículo 22.
+En ausencia de disposición expresa de su texto, se aplicarán supletoriamente, en lo que fueren compatibles, la Ley Orgánica y los reglamentos del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, la Ley General de la Administración Pública, el Código Procesal Contencioso Administrativo, las demás normas, escritas y no escritas, con rango legal o reglamentario, del ordenamiento administrativo y, en último término, el Código Procesal Civil, la Ley Orgánica del Poder Judicial y el resto del derecho común.

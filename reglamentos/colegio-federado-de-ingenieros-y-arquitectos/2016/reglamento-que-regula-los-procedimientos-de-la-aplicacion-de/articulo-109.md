@@ -1,0 +1,2 @@
+Artículo 109.
+El acto final de la Junta Directiva General, en los procedimientos, quedará en firme una vez vencido el plazo de 10 días hábiles otorgado a las partes para interponer el recurso de reposición o reconsideración, sin que éstas hubieren ejercido ese derecho. En caso de haberse presentado el recurso dentro del plazo antes señalado, la decisión recurrida de la Junta Directiva General quedará en firme hasta el momento de resolverse dicho recurso. En ambos casos, se dará por agotada la vía administrativa.
