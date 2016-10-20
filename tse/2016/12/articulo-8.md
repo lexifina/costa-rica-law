@@ -1,0 +1,2 @@
+Artículo 8.- Sala de consulta.
+La sala de consulta es de uso exclusivo para la revisión de los recursos de información por parte de las personas usuarias y para lo relativo al funcionamiento y objetivos del Centro de Documentación. Fuera de esto, no podrá ser destinada a otro tipo de actividades, excepto aquellas que hayan sido previamente gestionadas ante la jefatura del Centro o ante la Dirección del IFED y debidamente autorizadas por estos.
