@@ -1,0 +1,3 @@
+Capítulo III
+De la valoración previa de la idoneidad del sujeto privado para administrar fondos públicos
+Artículo 6º - De la conformación de la Comisión que tendrá a su cargo la valoración de solicitudes de calificación de idoneidad. El Alcalde Municipal deberá conformar una Comisión Administrativa constituida por no menos de cinco miembros, al menos uno de ellos debe ser abogado, en la cual delegará la obligación de estudiar toda la documentación aportada por sujetos privados de conformidad con lo indicado en el presente reglamento; con el fin de valorar la capacidad e idoneidad de esos sujetos para administrar fondos públicos.

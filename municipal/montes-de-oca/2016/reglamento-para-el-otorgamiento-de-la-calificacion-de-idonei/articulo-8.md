@@ -1,0 +1,1 @@
+Artículo 8º - Del expediente: Para los efectos de lo dispuesto en el artículo anterior, la Comisión, conformará un expediente debidamente foliado y en estricto orden cronológico, de cada sujeto privado que realice su solicitud.

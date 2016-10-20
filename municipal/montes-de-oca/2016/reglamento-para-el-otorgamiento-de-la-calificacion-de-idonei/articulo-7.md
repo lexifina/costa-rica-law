@@ -1,0 +1,1 @@
+Artículo 7º - De la valoración de la idoneidad del sujeto privado para administrar fondos públicos. Corresponde a la Comisión Administrativa recibir y analizar, las solicitudes que le presenten para la obtención de la calificación de idoneidad, recomendar al Concejo Municipal su respectivo otorgamiento o rechazo y de custodiar la documentación recibida de los interesados.

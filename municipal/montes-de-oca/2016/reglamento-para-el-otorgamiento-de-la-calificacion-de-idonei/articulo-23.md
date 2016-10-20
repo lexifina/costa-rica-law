@@ -1,0 +1,1 @@
+Artículo 23º - De las sanciones y las responsabilidades. El incumplimiento de lo establecido en este reglamento, dará lugar a las sanciones previstas en el Reglamento Autónomo de Servicios, sin perjuicio de las responsabilidades administrativas, civiles y penales.

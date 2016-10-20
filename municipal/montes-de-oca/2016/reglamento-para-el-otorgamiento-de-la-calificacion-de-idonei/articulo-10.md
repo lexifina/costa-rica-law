@@ -1,0 +1,1 @@
+Artículo 10º - Del traslado del dictamen. Será remitido al Concejo Municipal, a través del Alcalde, el dictamen con las recomendaciones sobre la solicitud planteada, junto con el expediente debidamente foliado.
