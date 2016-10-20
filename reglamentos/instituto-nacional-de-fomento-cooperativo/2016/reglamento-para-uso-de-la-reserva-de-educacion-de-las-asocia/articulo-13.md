@@ -1,0 +1,2 @@
+ARTÍCULO 13.-
+El manejo y control financiero de los recursos de la reserva para educación y capacitación, estarán a cargo de la Administración Gerencial de la Cooperativa, conforme con las políticas y normas establecidas por el Consejo de Administración, el cual aprobará los desembolsos correspondientes de acuerdo con la disponibilidad del flujo de caja de la cooperativa. A tales efectos se debe generar un asiento contable específico.

@@ -1,0 +1,2 @@
+ARTÍCULO 14.-
+Una vez aprobada la asignación de recursos según el artículo anterior, con la antelación que indican los sistemas de control interno establecidos en la cooperativa, el Comité de Educación y Bienestar Social, presentará a la Gerencia la solicitud de desembolso de los recursos, para cubrir las necesidades en cada actividad, y una vez que esta finalice, informará a la Gerencia en detalle los resultados obtenidos, y el desglose de gastos.
