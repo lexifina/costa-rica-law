@@ -1,0 +1,1 @@
+Artículo 9º—Normas Supletorias. En lo no contemplado en esta normativa, la Comisión se regirán por las disposiciones que regulan a los órganos colegiados, contenidas en la Ley General de la Administración Pública, Ley Número 6227, Título Segundo, Capítulo Tercero.
