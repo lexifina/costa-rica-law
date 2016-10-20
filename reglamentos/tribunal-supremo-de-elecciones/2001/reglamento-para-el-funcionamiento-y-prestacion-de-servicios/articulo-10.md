@@ -1,1 +1,0 @@
-Articulo 10.— El máximo de obras a prestar será de tres, cuando se trate de un préstamo a domicilio, salvo que la existencia de materiales permita el préstamo de un número mayor a Juicio de la Jefatura de la Biblioteca.
