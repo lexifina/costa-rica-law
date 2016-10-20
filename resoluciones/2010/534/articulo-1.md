@@ -1,4 +1,6 @@
+(Revocada)
 SUPERINTENDENCIA DE TELECOMUNICACIONES
+(Revocada mediante resolución N° RCS-229-2016 del 20 de octubre de 2016, “Procedimiento para el cálculo del canon de reserva del Espectro Radioeléctrico”)
 Acuerdo Nº 001-072-2010
 Por el que se aprueba la:
 RCS-534-2010.—Resolución del Consejo de la Superintendencia de Telecomunicaciones.—San José, a las 11:10 horas del 10 de diciembre de 2010. Expediente SUTEL-OT-108-2010.

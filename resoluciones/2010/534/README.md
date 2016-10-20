@@ -14,3 +14,4 @@ Procedimiento para el cálculo del Canon de Reserva de Espectro Radioeléctrico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-24 | la propia norma |
+| 2 | 2016-10-20 | Resolución 229 (2016-10-20) |
