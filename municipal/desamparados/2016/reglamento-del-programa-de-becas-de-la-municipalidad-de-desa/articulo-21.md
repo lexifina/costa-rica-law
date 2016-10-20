@@ -1,0 +1,1 @@
+Artículo 21°. Apelación de resolución. En el caso de que la resolución de una solicitud sea negativa, la persona interesada en la beca tendrá 15 días hábiles después de la entrega de los resultados, para presentar la apelación correspondiente. Para ello debe presentar de manera escrita la apelación junto con los documentos que sean necesarios ante la Comisión de Asuntos Sociales.

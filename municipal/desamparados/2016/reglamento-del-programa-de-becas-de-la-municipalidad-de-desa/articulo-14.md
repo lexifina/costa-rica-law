@@ -1,0 +1,1 @@
+Artículo 14°. Se becará un estudiante por familia, es decir que no podrán disfrutar de la beca dos o más hermanos de manera simultánea, salvo en casos que posterior a la valoración socioeconómica se considere pertinente.

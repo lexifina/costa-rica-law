@@ -1,0 +1,1 @@
+Transitorio I: La población que actualmente se encuentra becada y que con las nuevas disposiciones ya no cumple con los requisitos para optar por la beca, tendrá el subsidio únicamente por un año más luego de que entre en vigencia el nuevo reglamento.”

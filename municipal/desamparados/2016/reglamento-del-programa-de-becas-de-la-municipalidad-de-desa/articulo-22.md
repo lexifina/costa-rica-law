@@ -1,0 +1,1 @@
+Artículo 22°. La Comisión de Asuntos Sociales contará con 15 días hábiles a partir de recibida la apelación, para resolver y elevar ante el Concejo Municipal la resolución final, quien a su vez le dará una respuesta a las personas que hayan apelado la resolución de la beca.

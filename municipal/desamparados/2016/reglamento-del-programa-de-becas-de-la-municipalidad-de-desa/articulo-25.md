@@ -1,0 +1,1 @@
+Artículo 25°. Dicho monto podrá ser revisado anualmente por la Comisión de Becas, quien podrá proponer a la Administración que valore un incremento en dicho monto, considerando la inflación, devaluación y porcentaje de incremento del Presupuesto Municipal.

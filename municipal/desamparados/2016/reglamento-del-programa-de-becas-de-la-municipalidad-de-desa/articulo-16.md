@@ -1,0 +1,1 @@
+Artículo 16°. El Concejo Municipal será el responsable de conocer y aprobar la recomendación de la Comisión de Sociales sobre los beneficiarios de becas que hayan sido valorados y seleccionados por el profesional en Trabajo Social.

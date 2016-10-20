@@ -1,0 +1,1 @@
+Artículo 29°. La Comisión de Asuntos Sociales se encargará de elaborar los acuerdos de suspensión y presentarlos ante el Concejo Municipal, el cual se sustentará de la información brindada por el o la profesional en Trabajo Social del Área Social.

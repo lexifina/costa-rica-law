@@ -1,0 +1,1 @@
+Artículo 13°. Para obtener una beca, la persona solicitante deberá presentar dentro de los plazos señalados por el Área Social, el respectivo formulario de solicitud debidamente lleno, con los documentos y datos que se soliciten, además de cumplir con los requisitos estipulados.

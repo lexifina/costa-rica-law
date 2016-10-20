@@ -1,0 +1,1 @@
+Artículo 6°. La Comisión de Asuntos Sociales, con la asesoría de un representante del Área Social (profesional en Trabajo Social) y un representante del Área Financiera, tendrán a su cargo las recomendaciones ante el Concejo Municipal de la población estudiantil que recibirá la beca municipal.
