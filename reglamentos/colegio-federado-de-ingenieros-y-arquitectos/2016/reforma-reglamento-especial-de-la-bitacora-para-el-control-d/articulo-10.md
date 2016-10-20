@@ -1,0 +1,2 @@
+Artículo 10º— Se modifica el artículo número 27, para que en lo sucesivo se lea de la siguiente forma:
+“Artículo 27.- En caso de suspensiones en la obra, el profesional responsable deberá retirar y custodiar el documento de información de la obra, teniendo la obligación de informar dicha situación a la Dirección de Operaciones del Colegio Federado de Ingenieros y de Arquitectos de Costa Rica, a efectos que ésta registre lo que corresponda.”
