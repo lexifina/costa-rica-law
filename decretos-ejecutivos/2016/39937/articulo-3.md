@@ -1,0 +1,1 @@
+Artículo 3.- El Ministerio de Comercio Exterior, publicará en la primer semana del mes de enero de cada año, un aviso en el Diario Oficial La Gaceta y en un medio de circulación nacional, indicando la disposición del contingente señalado en el artículo 1 del presente Reglamento.
