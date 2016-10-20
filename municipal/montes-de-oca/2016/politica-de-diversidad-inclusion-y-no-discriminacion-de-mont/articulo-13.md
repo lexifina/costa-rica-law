@@ -1,0 +1,2 @@
+Artículo 13º - Acciones afirmativas: La Municipalidad promoverá la visibilizarían de esta política en sus instalaciones y en su sitio web a fin de comunicar a todas las personas habitantes de su cantón la promoción de la igualdad y el respeto de la diversidad humana y los Derechos Humanos. La contratación de nuevo personal en la Municipalidad se debe regir por todos los principios establecidos en esta Política.
+ACUERDO DEFINITIVAMENTE APROBADO POR DECISION UNANIME EN LA SESIÓN ORDINARIA N° 16-2016, ARTICULO N° 9, PUNTO N° 5, CELEBRADA EL DÍA 16 DE AGOSTO DEL 2016.-
