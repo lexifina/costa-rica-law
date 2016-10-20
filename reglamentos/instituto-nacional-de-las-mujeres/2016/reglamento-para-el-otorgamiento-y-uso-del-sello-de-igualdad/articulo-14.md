@@ -1,0 +1,1 @@
+Artículo 14°-Notificación del otorgamiento del Sello de Igualdad de Género. Una vez otorgado el Sello de Igualdad de Género la Comisión enviará el respectivo acuerdo a la Presidenta Ejecutiva del INAMU para que ese despacho notifique a la respectiva organización.

@@ -1,0 +1,1 @@
+Artículo 22°.- La Comisión podrá hacer reconocimiento de Buenas Prácticas Laborales con Enfoque de Género, aplicables a organizaciones públicas y privadas, independientemente del sector y actividad económica a la que se dediquen, de conformidad a los criterios técnicos establecidos por el INAMU para tales fines.

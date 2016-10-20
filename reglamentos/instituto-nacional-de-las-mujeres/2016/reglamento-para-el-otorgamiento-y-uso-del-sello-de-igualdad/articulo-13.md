@@ -1,0 +1,1 @@
+Artículo 13°-Denegación de la solicitud de otorgamiento del “Sello de Igualdad de Género”. La Comisión podrá denegar el otorgamiento del sello cuando la organización solicitante no cumpla con lo establecido en los artículos 11 y 12 del presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 34°.-Cuando el uso del “Sello de Igualdad de Género” por parte de una organización ocasione daño o perjuicio al INAMU o a terceras personas, la organización responderá civilmente por los daños ocasionados.

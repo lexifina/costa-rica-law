@@ -1,0 +1,1 @@
+Artículo 24°-Las solicitudes para el uso específico del “Sello de Igualdad de Género” se presentan en el Área de Gestión de Políticas Públicas para la Equidad de Género del INAMU, a la que deberá adjuntársele una muestra del uso solicitado.

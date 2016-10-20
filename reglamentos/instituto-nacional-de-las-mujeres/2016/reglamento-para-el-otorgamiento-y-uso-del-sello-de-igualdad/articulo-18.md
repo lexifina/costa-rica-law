@@ -1,0 +1,1 @@
+Artículo 18°-De los recursos. Las decisiones de la Comisión tendrán recurso de revocatoria y apelación ante la Presidencia Ejecutiva, con lo que se agotará la vía Administrativa. Las resoluciones de la Presidencia Ejecutiva con carácter de acto final tendrán recurso de reposición, en los plazos y términos que establece la Ley General de Administración Pública.

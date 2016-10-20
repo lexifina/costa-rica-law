@@ -1,0 +1,1 @@
+Artículo 5°-.Marca Registrada. El “Sello de Igualdad de Género” es propiedad exclusiva del INAMU como se establece en el Registro de la Propiedad Industrial, Expediente 2016-0008615 y notificación de Edicto, dado en San José, a las 14:58:57 del 8 de setiembre de 2016, conforme la Ley de Marcas y Otros Signos Distintivos, Ley N° 7978 y su reglamento.

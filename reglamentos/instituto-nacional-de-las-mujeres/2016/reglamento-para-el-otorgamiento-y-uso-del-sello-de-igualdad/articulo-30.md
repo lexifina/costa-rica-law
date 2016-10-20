@@ -1,0 +1,2 @@
+Artículo 30°.-El OCSG deberá asegurar que la organización cumpla con lo establecido en el presente Reglamento y deberá documentar la evidencia de esta revisión en los informes de auditoría correspondientes, así como informar a la Coordinación del Área de Gestión de Políticas Públicas para la Equidad de Género del INAMU de forma inmediata mediante el correo electrónico
+selloigualdad@inamu.go.cr, sobre cualquier hallazgo detectado en las organizaciones relacionado con el mal uso del “Sello de Igualdad de Género”.

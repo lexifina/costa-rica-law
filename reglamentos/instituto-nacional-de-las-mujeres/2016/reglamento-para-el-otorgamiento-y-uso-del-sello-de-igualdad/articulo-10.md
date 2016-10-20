@@ -1,0 +1,1 @@
+Artículo 10°-De la revisión de la información de la organización. La Comisión recibirá la información de la organización mediante comunicación enviada por la Presidenta Ejecutiva del INAMU o por la Coordinación del Área de Gestión de Políticas Públicas para la Equidad de Género del INAMU.

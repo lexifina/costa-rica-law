@@ -1,0 +1,1 @@
+Artículo 11°-Revisión del cumplimiento de requisitos. La información entregada por la organización será verificada por la Comisión, quien resolverá sobre el otorgamiento del “Sello de Igualdad de Género”.

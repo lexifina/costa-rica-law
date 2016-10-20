@@ -1,0 +1,1 @@
+Artículo 6°.-Otorgamiento del “Sello de Igualdad de Género”. El proceso para el otorgamiento y uso del sello se realiza según lo establecido en el Procedimiento para el otorgamiento del “Sello de Igualdad de Género” según el Capítulo II de este Reglamento.

@@ -1,0 +1,1 @@
+Artículo 33°.-En caso de corroborarse un mal uso del Sello de Igualdad de Género por parte de alguna organización, el INAMU, podrá proceder según lo descrito en el capítulo IX del presente Reglamento.
