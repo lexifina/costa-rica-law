@@ -1,0 +1,1 @@
+Artículo 12.- La persona empleadora debe poner a disposición de las personas trabajadoras, expuestas directamente al sílice cristalina respirable, instalaciones donde, al finalizar la jornada laboral, se deben lavar las manos y cara con agua y jabón.

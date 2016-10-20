@@ -1,0 +1,1 @@
+Artículo 9º .- Para proteger la salud de las personas trabajadoras, será recomendable en las actividades que se puedan aplicar, la sustitución de la sílice cristalina por otros materiales, productos o tecnologías alternativas, científicamente reconocidas.

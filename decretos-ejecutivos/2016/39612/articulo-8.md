@@ -1,0 +1,1 @@
+Artículo 8°.- En todo Centro de Trabajo en el que exista exposición ocupacional directa al sílice cristalina respirable, deben aplicarse medidas técnicas de prevención individual y prácticas de trabajo, incluida la higiene ocupacional, según el presente Reglamento.

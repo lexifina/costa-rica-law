@@ -1,0 +1,1 @@
+Artículo 17.- Todas las imágenes radiológicas deben mantenerse en buen estado de conservación para evaluar la evolución de la patología y, cuando la persona trabajadora termina su relación laboral, se le deben entregar las radiografías o respaldo digital para su custodia.

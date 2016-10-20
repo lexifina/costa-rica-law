@@ -1,0 +1,4 @@
+Artículo 5° .- Para la evaluación de las actividades en trabajos que no sean ocasionales y en donde exista exposición ocupacional directa a sílice cristalina, la persona empleadora debe realizar las siguientes evaluaciones de exposición a la sílice cristalina respirable, con la siguiente periodicidad:
+a) Si están por debajo del umbral límite, una vez al año o lo que el profesional en Salud Ocupacional recomiende por escrito, para lo que debe considerar la normativa que emita el Consejo de Salud Ocupacional.
+b) Si están por encima del umbral límite, el profesional de salud ocupacional definirá por escrito, según los estudios obtenidos y la normativa emitida por el Consejo de Salud ocupacional.
+c) El Consejo de Salud Ocupacional realizará las evaluaciones de exposición a la sílice cristalina en las actividades que considere conveniente, para recomendar las protecciones respiratorias necesarias en cada una de éstas actividades.

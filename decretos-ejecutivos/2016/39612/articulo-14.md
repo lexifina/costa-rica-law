@@ -1,0 +1,1 @@
+Artículo 14.- En las operaciones permanentes que desprendan polvo de Sílice cristalina, la persona empleadora debe implementar controles de ingeniería, ya sea en la fuente, el medio o el receptor, así como prácticas de trabajo seguras.

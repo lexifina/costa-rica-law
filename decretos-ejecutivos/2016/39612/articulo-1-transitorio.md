@@ -1,0 +1,1 @@
+TRANSITORIO ÚNICO La persona empleadora que tenga personas trabajadoras expuestas al Sílice cristalina respirable, que no cuenten con la ficha de seguimiento de los exámenes clínicos de detección de silicosis, deben implementarla en un plazo no mayor a un año a partir de la entrada en vigencia del presente reglamento

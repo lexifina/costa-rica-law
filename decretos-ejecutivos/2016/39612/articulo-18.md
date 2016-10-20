@@ -1,0 +1,1 @@
+Artículo 18.- Toda persona trabajadora cuya placa presente un cambio radiológico sugestivo de silicosis, según la clasificación internacional, debe ser referida de forma inmediata a la entidad aseguradora, de conformidad con la legislación vigente propia de la materia laboral.

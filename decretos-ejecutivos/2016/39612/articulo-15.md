@@ -1,0 +1,1 @@
+Artículo 15.- Las personas trabajadoras deben lavarse las manos y la cara con agua y jabón antes de ingerir alimentos o líquidos. Igualmente; no deben ingerir alimentos o líquidos en las actividades de trabajo donde exista presencia de sílice cristalina respirable.
