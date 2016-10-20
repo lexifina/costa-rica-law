@@ -6,3 +6,4 @@ Artículo 6°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 39684 del 29 de abril del 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 39777 del 29 de junio del 2016)
 (Así reformado por el artículo 3° de la ley N° 9385 del 29 de julio del 2016)
+(Modificado por el artículo 2° del decreto ejecutivo N° 39991 del 20 de octubre de 2016)
