@@ -1,0 +1,1 @@
+Artículo 22.-Para que una organización juvenil sea adscrita al CCPJSPH deberá llenar el formulario respectivo y entregarlo en la Secretaría del Concejo Municipal. Los formularios podrán solicitarse en la Municipalidad o descargarlos en la página web de la misma.

@@ -1,0 +1,1 @@
+Artículo 27. Duración: Los miembros del CCPJSPH durarán en sus cargos dos años y podrán ser reelectos, el nombramiento se hará a partir del O 1 de enero de los años impares y se conformará en los meses de octubre y noviembre de cada año, en los años pares.

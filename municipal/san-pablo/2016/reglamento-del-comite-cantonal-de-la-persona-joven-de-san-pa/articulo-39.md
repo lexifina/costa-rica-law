@@ -1,0 +1,1 @@
+Artículo 39.- Funciones del 1 °, 2° y 3° vocal: Son funciones del o la vocal primero, segundo y tercero las de sustituir al vicepresidente, secretario y/o tesorero en ausencia de uno o ambos, en estricto orden preferente, con las mismas obligaciones y atribuciones.

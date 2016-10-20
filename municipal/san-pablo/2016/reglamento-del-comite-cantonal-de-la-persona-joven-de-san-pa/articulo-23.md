@@ -1,0 +1,1 @@
+Artículo 23.-Es responsabilidad de las organizaciones juveniles adscritas actualizar la información en caso que se modifique la misma. Si la información no se encuentra actualizada en el momento de realizar las asambleas no podrán participar.

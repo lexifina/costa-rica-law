@@ -1,0 +1,1 @@
+Artículo 55.- Aprobación de actas: Las actas de las sesiones del CCPJSPH deberán ser aprobadas en la sesión ordinaria inmediata posterior, salvo que circunstancias especiales lo impidan, en cuyo caso la aprobación se pospondrá para la sesión ordinaria siguiente.

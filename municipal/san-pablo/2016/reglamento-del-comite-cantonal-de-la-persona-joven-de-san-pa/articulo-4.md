@@ -1,0 +1,1 @@
+Artículo 4.- El ámbito de aplicación del presente Reglamento se restringe únicamente a la jurisdicción del cantón de San Pablo, de la provincia de Heredia y es válido para todos los habitantes o munícipes y organizaciones de la sociedad civil, domiciliadas en su territorio.
