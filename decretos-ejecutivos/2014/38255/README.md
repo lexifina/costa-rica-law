@@ -14,3 +14,4 @@ Reglamenta los trámites que deben cumplir las asociaciones cooperativas en form
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-10 | la propia norma |
+| 2 | 2016-10-21 | SINALEVI (sin norma nombrada) |

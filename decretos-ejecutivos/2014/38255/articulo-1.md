@@ -1,4 +1,6 @@
+(Anulada)
 Nº 38255-MTSS
+(Anulado mediante resolución N° 155-2016-VI, del 21 de octubre de 2016, del Tribunal Contencioso Administrativo y Civil de Hacienda, Sección Sexta.)
 LA PRESIDENTA DE LA REPÚBLICA
 Y EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL
 En uso de las facultades conferidas al Poder Ejecutivo por los artículos 140, incisos 3) y 18 y 146 de la Constitución Política y de conformidad con lo dispuesto en el artículo 28, inciso 2), aparte b), de la Ley General de la Administración Pública y en los numerales 32 inciso a) y 139 incisos b) y f) de la Ley de Asociaciones Cooperativas y Creación del INFOCOOP, Ley Nº 4179 de 22 de agosto de 1968.
