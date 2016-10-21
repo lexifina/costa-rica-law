@@ -15,3 +15,4 @@ Reglamenta los trámites que deben cumplir las asociaciones cooperativas en form
 | --- | --- | --- |
 | 1 | 2008-09-18 | la propia norma |
 | 2 | 2014-01-17 | Decreto Ejecutivo 38255 (2014-01-17) |
+| 3 | 2016-10-21 | SINALEVI (sin norma nombrada) |
