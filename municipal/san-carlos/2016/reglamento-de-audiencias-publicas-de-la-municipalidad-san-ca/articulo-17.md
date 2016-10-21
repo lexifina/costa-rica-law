@@ -1,0 +1,1 @@
+Artículo 17.-En caso de personas jurídicas, deben interponer su ponencia por medio de su representante legal, aportando copia de la personería jurídica vigente y señalando lugar o medio para atender las notificaciones.

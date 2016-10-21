@@ -1,0 +1,1 @@
+Artículo 8.-. El Acuerdo del Concejo Municipal será publicado en el Diario Oficial La Gaceta, mediando un plazo mínimo de treinta días naturales entre la publicación y la realización de la Audiencia, que será el término que tienen los interesados legítimos para hacer llegar sus argumentaciones escritas a la Oficina indicada, sobre el proyecto de modificación tarifaría.

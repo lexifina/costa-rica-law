@@ -1,0 +1,1 @@
+Artículo 5.- El Acuerdo del Concejo Municipal, como indica el artículo anterior, deberá indicar la hora, el día y el lugar donde se llevará a cabo la audiencia, así como la Oficina o medio para recibir oposiciones y coadyuvancias escritas antes del día de la audiencia.

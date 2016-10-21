@@ -1,0 +1,1 @@
+Artículo 4.- Recibido el proyecto, el Concejo Municipal lo someterá a votación; en caso de que sea aprobado acordará su publicación en el diario oficial la Gaceta, otorgando un plazo de treinta días naturales desde la publicación y citando lugar y hora de inicio de la audiencia pública.

@@ -1,0 +1,1 @@
+Artículo 7°- EI Acuerdo del Concejo Municipal deberá indicar la oficina y el horario donde se puede consultar o fotocopiar el Expediente Administrativo del caso, así como otros medios electrónicos de consulta.

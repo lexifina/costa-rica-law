@@ -1,0 +1,1 @@
+Artículo 18.-Las oposiciones o coadyuvancias deben estar sustentadas en razones de hecho y de derecho, y no en simples juicios de opinión, las oposiciones o coadyuvancias que no se ajusten a lo indicado, serán rechazadas.

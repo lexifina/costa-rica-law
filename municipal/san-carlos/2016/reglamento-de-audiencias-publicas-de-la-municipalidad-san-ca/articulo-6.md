@@ -1,0 +1,1 @@
+Artículo 6.- En el caso de audiencias públicas para la modificación de tarifas de los servicios públicos municipales, además de lo indicado en el Artículo anterior, deberá indicar claramente en el Acuerdo Municipal la modificación tarifaria propuesta.
