@@ -1,0 +1,1 @@
+Artículo 81. Excepción. El Comité Cantonal podrá autorizar eventos o actividades no deportivas como ferias, bingos, fiestas o actividades similares dentro de las instalaciones que administre o en los alrededores de las mismas.

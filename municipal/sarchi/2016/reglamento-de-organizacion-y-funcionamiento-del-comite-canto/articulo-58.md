@@ -1,0 +1,1 @@
+Artículo 58. Los designados como miembros del Comité Comunal de Deporte y Recreación se reunirán posteriormente e integrarán el directorio con su respectivo cargo de Presidente, Vicepresidente, Tesorero, Secretario y Vocal. Serán juramentados por el Presidente de la Junta Directiva del Comité Cantonal de Deportes y Recreación en la próxima sesión ordinaria de la Junta Directiva.
