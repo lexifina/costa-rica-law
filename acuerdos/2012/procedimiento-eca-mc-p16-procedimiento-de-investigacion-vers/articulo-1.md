@@ -6,24 +6,24 @@ ECA-MC-P16 Procedimiento de Investigación | Versión 07 | Versión 08
 El Procedimiento modificado se encontrará a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo podrán solicitar el envío de manera electrónica del procedimiento o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad de las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas. Entra en vigencia a partir de ésta publicación en el Diario Oficial La Gaceta.
 San José, 5 de febrero del 2013.-
 (Nota de Sinalevi: La presente norma se extrajo del sitio web Ente Costarricense de Acreditación, por lo que se reproduce a continuación:)
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 98 del 23 de mayo del 2016, donde se actualiza la versión 11 existente y se publica la versión 12, que se reproduce a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 214 del 8 de noviembre del 2016, donde se actualiza la versión 12 existente y se publica la versión 13, que se reproduce a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 OBJETIVO .............................................................................................................................. 1
-2 ALCANCE ............................................................................................................................... 1
+2 ALCANCE ............................................................................................................................... 2
 3 DEFINICIONES ....................................................................................................................... 2
-4 INICIO DEL PROCESO DE INVESTIGACIÓN ........................................................................ 3
-5 PROCESO DE INVESTIGACIÓN ............................................................................................ 4
-6 AUDIENCIAS .......................................................................................................................... 7
-7 RECURSOS ............................................................................................................................ 8
-8 SANCIONES ........................................................................................................................... 9
-9 SUSPENSIONES PARCIALES O TOTALES DEL ALCANCE DE ACREDITACIÓN .............. 10
-10 PUBLICACIÓN DE LAS SANCIONES ................................................................................... 12
-11 OBLIGACIONES DEL OEC ................................................................................................... 12
-12 INCUMPLIMIENTO DE PAGO .............................................................................................. 13
-13 ANEXOS ............................................................................................................................... 14
-14 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 18
-15 TRANSITORIO ...................................................................................................................... 18
+4 INICIO DEL PROCESO DE INVESTIGACIÓN ........................................................................ 4
+5 PROCESO DE INVESTIGACIÓN ............................................................................................ 5
+6 AUDIENCIAS .......................................................................................................................... 8
+7 RECURSOS ............................................................................................................................ 9
+8 SANCIONES ......................................................................................................................... 10
+9 SUSPENSIONES PARCIALES O TOTALES DEL ALCANCE DE ACREDITACIÓN .............. 11
+10 PUBLICACIÓN DE LAS SANCIONES ................................................................................... 13
+11 OBLIGACIONES DEL OEC ................................................................................................... 14
+12 INCUMPLIMIENTO DE PAGO .............................................................................................. 14
+13 ANEXOS ............................................................................................................................... 15
+14 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 20
+15 TRANSITORIO………………………………………………………………………………………. 20
 1 OBJETIVO
 Establecer los lineamientos para la realización de los procesos de investigación y la dictaminación de las sanciones correspondientes, cuando se demuestre que un OEC acreditado ha dejado de cumplir los requisitos, criterios, políticas, reglas y procedimientos de acreditación, o en aquellos casos que el OEC, solicite la suspensión, reducción o retiro voluntario de parte o la totalidad del alcance acreditado.
 2 ALCANCE
@@ -176,6 +176,7 @@ c. En caso de suspensión, reducción o retiro de la acreditación de un Organis
 Anexo 1: Clasificación de faltas.
 FALTAS LEVES:
 a. No informar al ECA todo cambio significativo relativo a su acreditación en cualquier aspecto de su estado o funcionamiento relacionado con su configuración legal, comercial, de propiedad, u organizacional, de alta dirección, personal clave, personal responsable de los certificados o informes, de sus principales políticas, recursos, equipos e instalaciones o cualquier otro que sea relevante para el alcance de acreditación y/o que puedan afectar su capacidad para cumplir con los requisitos establecidos para el alcance de acreditación. Dicha notificación debe realizarse con al menos 15 días de anticipación, cuando se trate de cambios significativos planificados y con un máximo de 5 días hábiles después, para cuando se trate de cambios significativos no planificados, a partir de la fecha de ejecución del cambio respectivo.
+b. No utilizar el símbolo de acreditación de acuerdo al modelo aprobado por el ECA y en casos donde no afectan la validez final de la actividad acreditada ni la seguridad de terceros.
 FALTAS GRAVES:
 1. Entregar en contrataciones públicas o privadas de manera incompleta el certificado y alcance de acreditación, que puedan confundir al cliente del servicio.
 2. Utilizar el símbolo de acreditación sin cumplir las restricciones indicadas en la ECA-MC-P18 Política para uso de logotipo ECA o lugares que no han sido debidamente autorizados por el ECA.
@@ -194,7 +195,12 @@ En el caso de laboratorios clínicos: cuando el laboratorio tenga 2 participacio
 c. No demuestre haber tomado medidas correctivas apropiadas o éstas no hayan resultado ser efectivas; cuando se hayan obtenido resultados no satisfactorios.
 d. Si el laboratorio clínico no demuestra el cumplimiento con su requerimiento de calidad.
 12. No permitir al ECA la realización de la verificación de acciones correctivas en los plazos establecidos por el ECA.
-13. No implementar adecuadamente en los plazos establecidos por el ECA, las acciones para subsanar las no conformidades detectadas en evaluaciones de seguimiento, reevaluación, o extraordinarias cuando estas últimas no sean producto de una sanción es decir no realizar algunos de los siguientes elementos de la gestión de las no conformidades: análisis de causa, evaluación de la magnitud, consecuencias y riesgos de las desviaciones en el sistema de gestión del OEC, en la validez y calidad de las actividades acreditadas, así como la afectación a los clientes del OEC, implementación de las acciones y análisis de eficacia cuando sea posible.
+13. No implementar en los plazos establecidos por el ECA, las acciones para subsanar las no conformidades detectadas en evaluaciones de seguimiento, reevaluación, o extraordinarias. Se considera que las acciones no han sido implementadas si se presenta una o varias de las siguientes acciones:
+a. El OEC no proporciona la información solicitada en el formato ECA-MP-P07-F01.
+b. Alguna de las acciones propuestas por el OEC no fue implementada en el tiempo establecido (120 días o 65 días) según sea el caso.
+c. No se consideren los comentarios del equipo evaluador, relacionados con las acciones propuestas o no se presente la evidencia documentada que lo indicado en dicho estudio ya fue considerado por el OEC o no es aplicable.
+d. Las acciones implementadas no son suficientes y apropiadas, con la finalidad de evitar la recurrencia de la no conformidad.
+e. Si las testificaciones no se realizan en el tiempo establecido de acuerdo al apartado 5.10 del procedimiento ECA-MP-P07.
 14. Cuando se determine durante la evaluación documental de las evaluaciones de seguimiento o reevaluación, que para el alcance acreditado no procede la evaluación in situ.
 15. No permitir el ingreso del equipo evaluador a las instalaciones del OEC.
 16. Con respecto a los documentos ECA-MC-PO01 Política de validación de métodos y ECA-MC-PO01-G01 Guía de Validación de Métodos, incurra en las siguientes faltas:
@@ -216,7 +222,7 @@ c. Equipo de análisis inadecuado o diferente al declarado por el laboratorio.
 24. Retiro del reconocimiento de un OEC acreditado para un esquema de certificación específico por parte del dueño del esquema.
 25. Para Organismo de Certificación de Sistemas (OCSG), otorgar certificaciones para el registro de sistemas de gestión fuera de la acreditación, para todas las actividades que se encuentran dentro de su alcance acreditado.
 26. Que el OCP no cumpla con lo establecido en el procedimiento ECA-MC-P25 Procedimiento de Alcance Flexible para OCP.
-27. Para laboratorios clínicos, que emitan informes de ensayo con el respaldo del símbolo de acreditación o que indiquen alguna referencia al estado de acreditación; previo a la aprobación por parte del ECA por cambio de equipo analítico donde se realicen los ensayos acreditados,
+27. Para laboratorios clínicos, que emitan informes de ensayo con el respaldo del símbolo de acreditación o que indiquen alguna referencia al estado de acreditación; previo a la aprobación por parte del ECA para el cambio del equipo analítico donde se realizan los ensayos acreditados.
 FALTAS MUY GRAVES:
 1. Descuido y/o abandono de su imparcialidad e integridad.
 2. Utilizar la acreditación concedida de manera que afecte el buen nombre, la reputación e imagen del ECA o se ponga en riesgo la credibilidad o prestigio del ECA.
@@ -236,8 +242,8 @@ Nota: Cuando se demuestre que el OEC incurrió en alguna de las faltas muy grave
 13. No contar con el personal calificado y competente para la ejecución de las actividades dentro del alcance de acreditación.
 14. Reiteración de una falta grave cuando afecta la competencia técnica del OEC o cuando afecte el buen nombre del ECA.
 15. Emitir resultados de evaluación de la conformidad falsos, o que no cuenten con la evidencia de la realización de todas las actividades necesarias para respaldar las decisiones tomadas o comunicadas a sus clientes, en conformidad con sus propios procedimientos o los criterios aplicables del ECA.
-14 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P16
-Refiérase a la solicitud de elaboración o modificación del documento: 2016-085
-Observaciones: Se modifica anexo 1 Faltas graves se incorporan las faltas 25, 26 y 27 Faltas muy graves se incorpora falta15
-15 TRANSITORIO
-1 mes posterior a su publicación en el Diario Oficial La Gaceta, 98 del 23 de Mayo del 2016, es decir, a partir del 23 de Junio del 2016.
+14 TRANSITORIO
+Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento.
+15 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P16
+Refiérase a la solicitud de elaboración o modificación del documento: 2016-155
+Observaciones: Modificaciones se subrayan en el documento. Se modifica anexo 1 clasificación de faltas Falta leve b, Faltas graves 13
