@@ -14,3 +14,4 @@ Reglamento para el Reconocimiento de la Disponibilidad
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-04-23 | la propia norma |
+| 2 | 2016-10-24 | Reglamento municipal 71 (2016-10-24) |

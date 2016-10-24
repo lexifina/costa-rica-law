@@ -1,5 +1,3 @@
-Artículo 17.—El Alcalde o Alcaldesa determinará los porcentajes de compensación, de acuerdo con los resultados de los estudios que a dicho efecto realice la Oficina de Recursos Humanos y que se consignarán en el informe respectivo; en concordancia con los contenidos en el artículo 5.
-Dichos porcentajes serán consignados en el contrato que a estos efectos se suscribe entre las partes.
-Las horas promedio a que se refiere el artículo supracitado, serán obtenidas de dos maneras:
-a) Cuando se presenta la solicitud de autorización por primera vez ante la Alcaldía Municipal y corresponderá al cálculo para el periodo de 3 meses antes de plantearse esta gestión.
-b) Para las renovaciones el cálculo será el resultado de los valores de tiempo que son obtenidos de las bitácoras o instrumentos, en los cuales se hace constatar la labor prestada.
+Artículo 17°. - Para que un funcionario pueda formar parte de un contrato de disponibilidad, el jefe inmediato deberá remitir una solicitud al Proceso de Recursos Humanos, que contenga las razones por las cuales el servidor(a) debe ser sujeto de disponibilidad. En éste se deben exponer las características del servicio que se debe prestar por parte de la institución, así como las tareas del puesto, presupuesto y cualquier otra información que permita la correcta administración de esta compensación económica.
+Posteriormente el Proceso de Recursos Humanos remitirá el informe con sus apreciaciones y sugerencias a la Alcaldía Municipal, quien finalmente aprobará o improbará, el someter el servicio y al funcionario al contrato de disponibilidad. A partir de ello, se procederá con la suscripción del contrato de disponibilidad.
+(Así reformado en sesión N° 71-2016 del 24 de octubre del 2016)

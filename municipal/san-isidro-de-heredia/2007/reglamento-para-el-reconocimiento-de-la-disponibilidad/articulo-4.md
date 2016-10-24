@@ -1,3 +1,5 @@
-Artículo 4º—Para los efectos de ser sujeto de este Régimen de Disponibilidad considérense necesidad institucional los siguientes casos y tipos de actividad:
-a) Personal de mantenimiento de un servicio, cuando éste deba prestarse en días y horas inhábiles, en donde por escasez de personal o tipo de servicio, no se pueda cubrir cada turno de manera adecuada y sea necesario disponer de algún personal, que solamente se llamará si se necesita, en donde se conoce que dicha necesidad es impostergable.
-b) Profesionales y especialistas indispensables en la atención de emergencias de ocurrencia frecuente, en áreas de salud, ingeniería u otras específicas
+Artículo 4°. - Para los efectos de ser sujeto de este Régimen de Disponibilidad, el funcionario debe cumplir con los siguientes requisitos:
+a) Laborar tiempo completo para la institución, sea en propiedad o interino. En caso de que corresponda a un funcionario interino, el plazo del contrato de disponibilidad no podrá ser superior al plazo del nombramiento según se determine en la Acción de Personal.
+b) Que el servicio lo amerite a fin de asegurar su continuidad.
+c) Que se cuente con contenido presupuestario para sufragar la compensación.
+(Así reformado en sesión N° 71-2016 del 24 de octubre del 2016)
