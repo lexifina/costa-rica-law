@@ -3,25 +3,26 @@ Modificación de documento 005-2016
 El Ente Costarricense de Acreditación (ECA), da a conocer las publicaciones del sistema de gestión documental de la siguiente manera:
 ECA-MC-P16 Procedimiento de Investigación | 11 | 12 | A partir de su publicación en el diario oficial La Gaceta. | Un mes para la aplicación de este procedimiento a partir de su publicación en el diario oficial La Gaceta.
 Los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar su envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser; 150 metros al este, del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes, de las 8:00 a las 16:00 horas.
-San José, 18 de abril del 2016.—
+San José, 18 de abril del 2016.-
 (Nota de Sinalevi: La presente norma se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y publicado su texto de forma íntegra mediante publicación en La Gaceta N° 214 del 8 de noviembre del 2016, donde se actualiza la versión 12 existente y se publica la versión 13, que se reproduce a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 OBJETIVO .............................................................................................................................. 1
-2 ALCANCE ............................................................................................................................... 1
+2 ALCANCE ............................................................................................................................... 2
 3 DEFINICIONES ....................................................................................................................... 2
-4 INICIO DEL PROCESO DE INVESTIGACIÓN ........................................................................ 3
-5 PROCESO DE INVESTIGACIÓN ............................................................................................ 4
-6 AUDIENCIAS .......................................................................................................................... 7
-7 RECURSOS ............................................................................................................................ 8
-8 SANCIONES ........................................................................................................................... 9
-9 SUSPENSIONES PARCIALES O TOTALES DEL ALCANCE DE ACREDITACIÓN .............. 10
-10 PUBLICACIÓN DE LAS SANCIONES ................................................................................... 12
-11 OBLIGACIONES DEL OEC ................................................................................................... 12
-12 INCUMPLIMIENTO DE PAGO .............................................................................................. 13
-13 ANEXOS ............................................................................................................................... 14
-14 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 18
-15 TRANSITORIO ...................................................................................................................... 18
+4 INICIO DEL PROCESO DE INVESTIGACIÓN ........................................................................ 4
+5 PROCESO DE INVESTIGACIÓN ............................................................................................ 5
+6 AUDIENCIAS .......................................................................................................................... 8
+7 RECURSOS ............................................................................................................................ 9
+8 SANCIONES ......................................................................................................................... 10
+9 SUSPENSIONES PARCIALES O TOTALES DEL ALCANCE DE ACREDITACIÓN .............. 11
+10 PUBLICACIÓN DE LAS SANCIONES ................................................................................... 13
+11 OBLIGACIONES DEL OEC ................................................................................................... 14
+12 INCUMPLIMIENTO DE PAGO .............................................................................................. 14
+13 ANEXOS ............................................................................................................................... 15
+14 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 20
+15 TRANSITORIO………………………………………………………………………………………. 20
 1 OBJETIVO
 Establecer los lineamientos para la realización de los procesos de investigación y la dictaminación de las sanciones correspondientes, cuando se demuestre que un OEC acreditado ha dejado de cumplir los requisitos, criterios, políticas, reglas y procedimientos de acreditación, o en aquellos casos que el OEC, solicite la suspensión, reducción o retiro voluntario de parte o la totalidad del alcance acreditado.
 2 ALCANCE
@@ -123,8 +124,6 @@ c) Cuando en la evaluación extraordinaria de seguimiento descrita en el apartad
 d) Para mayores instrucciones sobre las suspensiones referirse al apartado 10 de este documento.
 e) Para el caso de alcance flexible la sanción a aplicar es la pérdida de esta modalidad de acreditación; así como limitar la opción de solicitar alcances flexibles hasta por un plazo máximo de dos años.
 f) Para el caso de dos o más resultados consecutivos no satisfactorios en ensayos de aptitud, si el proceso de investigación confirma la falta, la sanción es la suspensión del o los ensayos, calibraciones específicas, o actividades de inspección (cuando aplique). El levantamiento de la suspensión se realiza, una vez que el laboratorio u organismo de inspección (cuando aplique) presente evidencia objetiva de que ha obtenido resultados satisfactorios en otra intercomparación para el alcance específico suspendido.
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 10 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 g) En estos casos el ECA se reserva el derecho de comunicar las acciones tomadas a las instituciones reguladoras o dueños de los esquemas.
 8.2 Sanciones para faltas muy graves:
 a) Cuando hay evidencia de una falta muy grave o incumplimientos graves reiterados, la Comisión de Acreditación sanciona al OEC con algunas de las siguientes opciones:
@@ -138,10 +137,7 @@ b) En estos casos el ECA se reserva el derecho de comunicar las acciones tomadas
 9.2 En los casos que sea a solicitud del OEC, éste debe hacer la solicitud por escrito a la Secretaría de Acreditación respectiva, e indicar si la suspensión voluntaria es parcial o total de su alcance acreditado, fundamentando las razones de la suspensión. En este caso, no se realiza el procedimiento de investigación establecido en el requisito 6 de este procedimiento.
 9.3 La solicitud de suspensión (ya sea por sanción o por solicitud del OEC) debe ser analizada por la Comisión de Acreditación, quien determina los siguientes aspectos:
 a. Duración de la suspensión. Los periodos de suspensión pueden ser de 3 o 6 meses en periodos prorrogables hasta un máximo de 12 meses a partir del inicio de la suspensión, ya sea por solicitud del OEC o por oficio de parte del ECA, si no se han subsanado las causas que motivaron la suspensión.
-b. Restricciones sobre el uso del símbolo de acreditación y referencia a la condición de acreditado, para las actividades suspendidas. La suspensión temporal de la totalidad o parte del alcance de la acreditación supone la prohibición, mientras dure la suspensión, de hacer uso del símbolo de acreditación del ECA, la devolución del certificado y alcance de
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 11 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
-acreditación, así como el compromiso de acreditación respectivo y cesar inmediatamente el uso de toda publicidad que contenga cualquier referencia a una condición de acreditado.
+b. Restricciones sobre el uso del símbolo de acreditación y referencia a la condición de acreditado, para las actividades suspendidas. La suspensión temporal de la totalidad o parte del alcance de la acreditación supone la prohibición, mientras dure la suspensión, de hacer uso del símbolo de acreditación del ECA, la devolución del certificado y alcance de acreditación, así como el compromiso de acreditación respectivo y cesar inmediatamente el uso de toda publicidad que contenga cualquier referencia a una condición de acreditado.
 c. La necesidad de realizar una evaluación extraordinaria y su respectivo alcance (toda o parte de la norma respectiva y las actividades a testificar) para el levantamiento de la suspensión. La suspensión de una acreditación puede requerir para su levantamiento la realización de una evaluación extraordinaria. Si al final del plazo establecido de la suspensión de la acreditación no se subsanan las causas que motivaron la suspensión, la Comisión analizará la situación presentada y tomara la decisión de retirar o reducir el alcance de acreditación, según corresponda.
 d. En los casos que la solicitud de suspensión sea de la totalidad del alcance para volver a gozar de su condición de acreditado siempre el ECA debe realizar una evaluación extraordinaria total.
 e. Publicación e información al público sobre la suspensión solicitada en el Diario Oficial La Gaceta y en la página web del ECA, en la sección de OEC Suspendidos.
@@ -150,8 +146,6 @@ e. Publicación e información al público sobre la suspensión solicitada en el
 9.6 El plazo de la suspensión solicitado por el OEC no puede sobrepasar a 12 meses máximo desde el inicio de la suspensión. Si se supera este plazo por causas imputables al OEC, se procede a la reducción del alcance o retiro de la acreditación de manera inmediata
 9.7 Si antes del vencimiento del plazo máximo de la suspensión (12 meses) y siempre que se haya realizado la evaluación extraordinaria antes de la finalización del plazo, puede postergarse el plazo de la suspensión 3 meses más en caso que se requiera hacer una verificación de acciones correctivas.
 9.8 Finalizado el plazo para que ECA realice la verificación de acciones correctivas indicado en el apartado anterior y si el OEC no logra demostrar, en la verificación de acciones correctivas, una implementación adecuada de acciones para subsanar las no conformidades detectadas en la evaluación extraordinaria; la Comisión analizará la situación presentada y tomara la decisión de retirar o reducir el alcance de acreditación, según corresponda.
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 12 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 9.9 Si no se ha realizado la evaluación extraordinaria por causas imputables al OEC, antes del vencimiento del plazo máximo de la suspensión, se procede a la reducción o retiro de la acreditación, según corresponda.
 9.10 Por ningún caso las suspensiones podrán ser levantadas si las causas que la motivaron o las no conformidades detectadas en la evaluación extraordinaria, si aplican, no son subsanadas.
 9.11 Todos los costos relacionados para el levantamiento de la suspensión, deben ser cubiertos por el OEC y se deben cancelar las cuotas de mantenimiento y otras deudas de procesos de evaluación anteriores.
@@ -166,8 +160,7 @@ Nota 2: Cuando se haya suspendido o retirado el alcance de la acreditación de u
 - Solicitud de la Comisión de Acreditación.
 - Requerimiento para comprobar lo dicho por el OEC en su defensa.
 - Resolución final del proceso de investigación.
-El OEC debe cubrir el pago de las visitas extraordinarias, cuando el mismo haya sugerido la visita y/o haya sido declarado con lugar el proceso de investigación. PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 13 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
+El OEC debe cubrir el pago de las visitas extraordinarias, cuando el mismo haya sugerido la visita y/o haya sido declarado con lugar el proceso de investigación.
 11.2 Una vez que ha sido publicado en el Diario Oficial La Gaceta, la sanción dictada al OEC éste debe:
 a. Interrumpir en un máximo de 15 días hábiles posterior a la comunicación de la resolución la referencia o uso público de la acreditación y/o su símbolo de acreditación (ejemplos: informes, certificados, página web, material publicitario, sitios de internet), cuando la misma sea retirada, y para las actividades suspendidas o reducidas. En cumplimiento de lo anterior, el OEC debe enviar al ECA evidencia de las acciones realizadas que demuestren que no se está realizando ninguna referencia de la acreditación.
 b. En caso de suspensión, retiro o reducción de la acreditación, devolver el certificado y alcance de acreditación y cesar inmediatamente el uso de toda publicidad que contenga cualquier referencia a una condición de acreditado. Para esto el OEC cuenta con un máximo de 5 días hábiles posterior a la comunicación de la resolución. La Gestoría de Calidad es responsable de verificar que la documentación haya sido entregada.
@@ -178,12 +171,11 @@ c. En caso de suspensión, reducción o retiro de la acreditación de un Organis
 12.3 La Comisión de Acreditación dicta una resolución de suspensión inmediata de la acreditación.
 12.4 La Unidad de Logística notifica al OEC, con copia al Área Financiero Contable, Secretaría de Acreditación respectiva ya la Gestoría de Calidad, la resolución de la Comisión de Acreditación.
 12.5 La Gestoría de Calidad y la Gerencia proceden a gestionar la publicación del estado del OEC, tanto en la página Web del ECA como en el Diario Oficial La Gaceta.
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 14 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 13 ANEXOS
 Anexo 1: Clasificación de faltas.
 FALTAS LEVES:
 a. No informar al ECA todo cambio significativo relativo a su acreditación en cualquier aspecto de su estado o funcionamiento relacionado con su configuración legal, comercial, de propiedad, u organizacional, de alta dirección, personal clave, personal responsable de los certificados o informes, de sus principales políticas, recursos, equipos e instalaciones o cualquier otro que sea relevante para el alcance de acreditación y/o que puedan afectar su capacidad para cumplir con los requisitos establecidos para el alcance de acreditación. Dicha notificación debe realizarse con al menos 15 días de anticipación, cuando se trate de cambios significativos planificados y con un máximo de 5 días hábiles después, para cuando se trate de cambios significativos no planificados, a partir de la fecha de ejecución del cambio respectivo.
+b. No utilizar el símbolo de acreditación de acuerdo al modelo aprobado por el ECA y en casos donde no afectan la validez final de la actividad acreditada ni la seguridad de terceros.
 FALTAS GRAVES:
 1. Entregar en contrataciones públicas o privadas de manera incompleta el certificado y alcance de acreditación, que puedan confundir al cliente del servicio.
 2. Utilizar el símbolo de acreditación sin cumplir las restricciones indicadas en la ECA-MC-P18 Política para uso de logotipo ECA o lugares que no han sido debidamente autorizados por el ECA.
@@ -194,8 +186,6 @@ FALTAS GRAVES:
 7. No implementar los cambios de los requisitos de acreditación que decida el ECA, dentro del tiempo acordado entre las partes y/o no permitir la verificación de su cumplimiento.
 8. No permitir al ECA la verificación continua del cumplimiento de los requisitos de acreditación en todas las instalaciones en que realiza una o más actividades claves.
 9. No permitir al ECA la verificación del desempeño de un número representativo de su personal.
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 15 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 10. Que el ECA no logre finalizar el proceso de evaluación incluyendo las testificaciones durante las evaluaciones de seguimiento o reevaluación por causas imputables al OEC, cuando no se haya coordinado previamente con el ECA.
 11. Con respecto al documento ECA-MC-P17 Política para la participación de ensayos/pruebas de aptitud y otras intercomparaciones para los laboratorios y organismos de inspección (cuando aplique), incurra en las siguientes faltas:
 a. No participar en el número de programas de ensayos de aptitud requeridos.
@@ -204,15 +194,18 @@ En el caso de laboratorios clínicos: cuando el laboratorio tenga 2 participacio
 c. No demuestre haber tomado medidas correctivas apropiadas o éstas no hayan resultado ser efectivas; cuando se hayan obtenido resultados no satisfactorios.
 d. Si el laboratorio clínico no demuestra el cumplimiento con su requerimiento de calidad.
 12. No permitir al ECA la realización de la verificación de acciones correctivas en los plazos establecidos por el ECA.
-13. No implementar adecuadamente en los plazos establecidos por el ECA, las acciones para subsanar las no conformidades detectadas en evaluaciones de seguimiento, reevaluación, o extraordinarias cuando estas últimas no sean producto de una sanción es decir no realizar algunos de los siguientes elementos de la gestión de las no conformidades: análisis de causa, evaluación de la magnitud, consecuencias y riesgos de las desviaciones en el sistema de gestión del OEC, en la validez y calidad de las actividades acreditadas, así como la afectación a los clientes del OEC, implementación de las acciones y análisis de eficacia cuando sea posible.
+13. No implementar en los plazos establecidos por el ECA, las acciones para subsanar las no conformidades detectadas en evaluaciones de seguimiento, reevaluación, o extraordinarias. Se considera que las acciones no han sido implementadas si se presenta una o varias de las siguientes acciones:
+a. El OEC no proporciona la información solicitada en el formato ECA-MP-P07-F01.
+b. Alguna de las acciones propuestas por el OEC no fue implementada en el tiempo establecido (120 días o 65 días) según sea el caso.
+c. No se consideren los comentarios del equipo evaluador, relacionados con las acciones propuestas o no se presente la evidencia documentada que lo indicado en dicho estudio ya fue considerado por el OEC o no es aplicable.
+d. Las acciones implementadas no son suficientes y apropiadas, con la finalidad de evitar la recurrencia de la no conformidad.
+e. Si las testificaciones no se realizan en el tiempo establecido de acuerdo al apartado 5.10 del procedimiento ECA-MP-P07.
 14. Cuando se determine durante la evaluación documental de las evaluaciones de seguimiento o reevaluación, que para el alcance acreditado no procede la evaluación in situ.
 15. No permitir el ingreso del equipo evaluador a las instalaciones del OEC.
 16. Con respecto a los documentos ECA-MC-PO01 Política de validación de métodos y ECA-MC-PO01-G01 Guía de Validación de Métodos, incurra en las siguientes faltas:
 a. No contar con una confirmación o validación que respalde la correcta aplicación del método normalizado, normalizado modificado, no normalizado o desarrollado por el laboratorio.
 b. No confirmar adecuadamente los parámetros de desempeño del método normalizado.
 c. No validar adecuadamente todos los cambios o modificaciones que se realicen a los métodos normalizados.
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 16 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 d. No validar adecuadamente los parámetros de desempeño de los métodos no normalizados o de los métodos desarrollados por el laboratorio.
 e. No contar con toda la evidencia técnica que respalda las confirmaciones o validaciones de los métodos realizadas.
 17. No tener un mecanismo implementado para la estimación de incertidumbre para laboratorios de ensayo, calibración y clínicos.
@@ -228,9 +221,7 @@ c. Equipo de análisis inadecuado o diferente al declarado por el laboratorio.
 24. Retiro del reconocimiento de un OEC acreditado para un esquema de certificación específico por parte del dueño del esquema.
 25. Para Organismo de Certificación de Sistemas (OCSG), otorgar certificaciones para el registro de sistemas de gestión fuera de la acreditación, para todas las actividades que se encuentran dentro de su alcance acreditado.
 26. Que el OCP no cumpla con lo establecido en el procedimiento ECA-MC-P25 Procedimiento de Alcance Flexible para OCP.
-27. Para laboratorios clínicos, que emitan informes de ensayo con el respaldo del símbolo de acreditación o que indiquen alguna referencia al estado de acreditación; previo a la aprobación por parte del ECA por cambio de equipo analítico donde se realicen los ensayos acreditados,
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 17 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
+27. Para laboratorios clínicos, que emitan informes de ensayo con el respaldo del símbolo de acreditación o que indiquen alguna referencia al estado de acreditación; previo a la aprobación por parte del ECA para el cambio del equipo analítico donde se realizan los ensayos acreditados.
 FALTAS MUY GRAVES:
 1. Descuido y/o abandono de su imparcialidad e integridad.
 2. Utilizar la acreditación concedida de manera que afecte el buen nombre, la reputación e imagen del ECA o se ponga en riesgo la credibilidad o prestigio del ECA.
@@ -247,13 +238,11 @@ a. Utilizar el símbolo de acreditación en documentos de resultados de activida
 b. No identificar claramente las actividades acreditadas y no acreditadas, en el caso de informes o certificados donde se incorporan tanto aspectos acreditados como no acreditados.
 Nota: Cuando se demuestre que el OEC incurrió en alguna de las faltas muy graves mencionadas en los puntos 6 al 11, el ECA además de la debida sanción tiene el derecho a tomar acciones legales, ya que puede llevar a un detrimento de la credibilidad del sistema internacional de acreditación.
 12. Pérdida de competencia técnica para ejecutar las actividades dentro del alcance.
-PROCEDIMIENTO DE INVESTIGACIÓN Código N : ECA-MC-P16 Páginas: 18 de 18 Fecha emisión: 23.05.2016 Versión: 12
-Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 13. No contar con el personal calificado y competente para la ejecución de las actividades dentro del alcance de acreditación.
 14. Reiteración de una falta grave cuando afecta la competencia técnica del OEC o cuando afecte el buen nombre del ECA.
 15. Emitir resultados de evaluación de la conformidad falsos, o que no cuenten con la evidencia de la realización de todas las actividades necesarias para respaldar las decisiones tomadas o comunicadas a sus clientes, en conformidad con sus propios procedimientos o los criterios aplicables del ECA.
-14 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P16
-Refiérase a la solicitud de elaboración o modificación del documento: 2016-085
-Observaciones: Se modifica anexo 1 Faltas graves se incorporan las faltas 25, 26 y 27 Faltas muy graves se incorpora falta15
-15 TRANSITORIO
-1 mes posterior a su publicación en el Diario Oficial La Gaceta, 98 del 23 de Mayo del 2016, es decir, a partir del 23 de Junio del 2016.
+14 TRANSITORIO
+Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento.
+15 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P16
+Refiérase a la solicitud de elaboración o modificación del documento: 2016-155
+Observaciones: Modificaciones se subrayan en el documento. Se modifica anexo 1 clasificación de faltas Falta leve b, Faltas graves 13
