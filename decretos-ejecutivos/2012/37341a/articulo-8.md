@@ -36,3 +36,5 @@ e) Para el certificado de inspección por cada lote producido para el producto n
 8.4.3 Laboratorios de tercera parte no acreditados para el alcance específico, el Organismo de certificación o de inspección respectivo, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025 por parte del laboratorio.
 8.4.4 Laboratorios de primera parte no acreditado para el alcance específico, el Organismo de certificación o de inspección respectivo, debe contar con evidencia del cumplimiento de los requisitos técnicos de ISO/IEC 17025 por parte del laboratorio.
 (Así adicionado el punto 8.4) anterior por el artículo 2° del decreto ejecutivo N° 37932 del 6 de setiembre del 2013)
+8.5 Todo aquello no previsto en este reglamento será de aplicación supletoria lo indicado en el Decreto Ejecutivo N° 37662-MEIC-H-MICIT Procedimiento para la Demostración de la Evaluación de la Conformidad de los Reglamentos Técnicos.
+(Así adicionado el punto 8.5) anterior por el artículo 2° del decreto ejecutivo N° 40052 del 24 de octubre del 2016)
