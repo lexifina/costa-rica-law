@@ -10,8 +10,7 @@ b. Para Organismos de Certificación y OVV: ECA-MC-P11 Procedimiento de evaluaci
 - Si el OEC tiene instalaciones multisitios, instalaciones móviles.
 - La opinión de los Expertos Técnicos a la hora de establecer los horarios de las testificaciones.
 - La duración de la evaluación se debe estimar en consenso entre los integrantes del Equipo Evaluador.
-- Establecer un espacio de tiempo (4 horas recomendable) dentro del plan, para la redacción de no conformidades y realización del informe final respectivo previo a la reunión de cierre.
-El objetivo de este espacio es que cada persona entregue al Evaluador Líder las no conformidades debidamente redactadas y las notas digitales respectivas.
+- Establecer un espacio de tiempo (4 horas recomendable) dentro del plan, para la redacción de no conformidades y realización del informe final respectivo previo a la reunión de cierre. El objetivo de este espacio es que cada persona entregue al Evaluador Líder las no conformidades debidamente redactadas y las notas digitales respectivas.
 - La redacción es responsabilidad de cada integrante del equipo evaluador; en los casos de Expertos Técnicos no calificados como Evaluadores, deben trabajar de manera conjunta con el Evaluador asignado o Evaluador Líder.
 - El Experto Técnico y los Evaluadores en Formación deben ser supervisados por el Evaluador Líder o por un Evaluador durante la evaluación in situ. Lo anterior debe reflejarse en el plan de evaluación.
 - La planificación debe permitir al Evaluador Líder, realizar una distribución adecuada de tareas durante la evaluación, de acuerdo a la competencia del equipo y de forma tal que le permita al final de la reunión de cierre, recibir la documentación e información asignada a cada integrante del Equipo Evaluador, ejemplo:

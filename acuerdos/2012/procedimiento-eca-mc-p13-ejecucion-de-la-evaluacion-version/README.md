@@ -18,3 +18,4 @@ Procedimiento ECA-MC-P13 Ejecución de la evaluación Versión 05
 | 3 | 2014-06-30 | Acuerdo 0 (2014-06-30) |
 | 4 | 2015-09-07 | Acuerdo 0 (2015-09-07) |
 | 5 | 2016-08-03 | Acuerdo 0 (2016-08-03) |
+| 6 | 2016-10-24 | Acuerdo 0 (2016-10-24) |

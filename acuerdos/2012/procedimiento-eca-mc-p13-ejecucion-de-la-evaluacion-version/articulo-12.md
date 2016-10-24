@@ -1,2 +1,3 @@
-12 TRANSITORIO
-Fecha de entrada en vigencia un mes posterior a su publicación en el Diario Oficial La Gaceta, #166 del 30.08.2016.
+12 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P13
+Refiérase a la solicitud de elaboración o modificación del documento número 2016-154
+Observaciones: Se modifica el apartado 8, Criterios para clasificación de Hallazgos. Se documenta apartado 11 transitorio.

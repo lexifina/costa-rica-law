@@ -1,3 +1,2 @@
-11 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento
-Refiérase a la solicitud de elaboración o modificación del documento número 2016-102
-Observaciones: Se subrayan cambios en el documento. Apartado 5.6, se incorporan las aprobaciones de uso del símbolo de acreditación. Apartado 6.2, se agrega la información el Equipo Evaluador puede esperar a que el OEC remita la información requerida para completarlo. Apartado 6.4 se agrega Si el OEC tiene instalaciones multisitios, instalaciones móviles. Se agrega estándar de cumplimiento “Esquema para la certificación de los sistemas de gestión para la igualdad de género en el ámbito laboral y la utilización del “sello de igualdad de género” del INAMU.”.
+11 TRANSITORIO
+Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento, excepto para el apartado 8, se brinda un transitorio de 3 meses para su entrada en vigencia.
