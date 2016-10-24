@@ -10,16 +10,14 @@ ECA-MP-P08 Toma de decisión | N.A | 01 | A partir de su publicación en el Diar
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
 (Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente Costarricense de Acreditaci?n, y se transcribe a continuación:)
-(Nota de sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en la gaceta N° 177 del 10 de setiembre del 2015, donde se actualizó la versión 2 existente y se publicó la 3, por lo que se transcribe a continuación:)
-[imagen]
-MANUAL DE PROCEDIMIENTOS PARA LA EVALUACIÓN Y ACREDITACIÓN | Código N°: ECA-MP-P08 | Páginas: 1 de 6
-TOMA DE DECISIÓN | Fecha emisión: 10.09.2015 | Versión: 03
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en la gaceta N° 214 del 8 de noviembre del 2016, donde se actualizó la versión 3 existente y se publicó la 4, por lo que se transcribe a continuación:)
 TABLA DE CONTENIDO
 1 GENERALIDADES .................................................................................................................... 1
-2 ANÁLISIS POR PARTE DEL COMITÉ ASESOR ...................................................................... 2
+2 ANÁLISIS POR PARTE DEL COMITÉ ASESOR .......... ¡ERROR! MARCADOR NO DEFINIDO.
 3 DECISIÓN POR PARTE DE LA COMISIÓN DE ACREDITACIÓN ............................................ 3
-4 DECISIONES SOBRE PROCESOS PARCIALES ..................................................................... 6
-5 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 6
+4 DECISIONES SOBRE PROCESOS PARCIALES ..................................................................... 5
+5 TRANSITORIO …………………………………………………………………………………………..6
+6 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 6
 1 GENERALIDADES
 1.1 Finalizadas las actividades de verificación para los procesos de evaluación y evaluaciones extraordinarias, se procede con el proceso de toma de decisión.
 1.2 La Comisión de Acreditación es el órgano colegiado encargado de tomar la decisión sobre la acreditación.
@@ -27,7 +25,7 @@ TABLA DE CONTENIDO
 2 ANÁLISIS POR PARTE DEL COMITÉ ASESOR
 2.1 Finalizadas las actividades de verificación para procesos iniciales, seguimientos, ampliaciones, reevaluaciones y extraordinarias, la Secretaría Acreditación, convoca al Comité Asesor, en un plazo máximo de 10 días hábiles y presenta los siguientes documentos:
 a) Informe final de evaluación o de testificación.
-b) Resultado de la verificación de acciones correctivas, cuando se hayan indicado no conformidades mayores.
+b) Resultado de la verificación de acciones correctivas, cuando se hayan indicado no conformidades.
 c) Alcance de acreditación evaluado y/o por acreditar.
 d) Expediente del OEC.
 2.2 El Comité Asesor revisa los expedientes del OEC, emite criterio técnico y presenta las observaciones y/o una recomendación a la Secretaría de Acreditación.
@@ -37,7 +35,7 @@ Nota: El Comité Asesor, a fin de emitir criterio técnico, puede dar audiencia 
 2.5 Una vez que el Comité Asesor esté conforme con la documentación presentada y no solicite ninguna aclaración al respecto, la Secretaría de Acreditación traslada la recomendación del Comité a la Comisión de Acreditación, mediante el formulario ECA-MP-P08-F01 resumen ejecutivo del proceso de evaluación y acreditación, la Secretaría de Acreditación cuenta con 10 días hábiles.
 2.6 Los acuerdos de recomendación del Comité Asesor deben redactarse de la siguiente manera:
 2.6.1 Recomendar a la Comisión de Acreditación otorgar, ampliar, mantener la acreditación al OEC (nombre y expediente del OEC).
-2.6.2 Recomendar a la Comisión de Acreditación iniciar un proceso de investigación al OEC (nombre y expediente del OEC), por las siguientes razones (indicar la debida fundamentación).
+2.6.2 Recomendar a la Comisión de Acreditación iniciar un proceso de investigación al OEC (nombre y expediente del OEC), por las siguientes razones (indicar la debida fundamentación). Si después de realizarse el debido proceso de investigación se demuestra que el OEC no incurrió en la falta o la falta ya fue subsanada, recomendar a la Comisión de Acreditación mantener la acreditación, cuando aplique.
 2.6.3 Recomendar a la Comisión de Acreditación NO otorgar o NO ampliar la acreditación al OEC (nombre y expediente del OEC) por las siguientes razones (indicar la debida fundamentación).
 2.6.4 Recomendar a la Comisión de Acreditación levantar o no la suspensión total o parcial del alcance de acreditación al OEC (nombre y expediente del OEC) por las siguientes razones (indicar la debida fundamentación).
 2.6.5 Elevar a la Comisión de Acreditación cualquier otro acuerdo relacionado con los procesos de evaluación y acreditación, para su consideración.
@@ -46,7 +44,7 @@ Nota: El Comité Asesor, a fin de emitir criterio técnico, puede dar audiencia 
 3.1 La Secretaría de Acreditación presenta a la Comisión de Acreditación los siguientes documentos:
 a) Formulario ECA-MP-P08-F01 resumen ejecutivo del proceso de evaluación y acreditación.
 b) Informe final de evaluación o de testificación.
-c) Resultado de la verificación de acciones correctivas, cuando se hayan indicado no conformidades mayores.
+c) Resultado de la verificación de acciones correctivas, cuando se hayan indicado no conformidades.
 d) Solicitud de acreditación, cuando aplique
 e) Alcance de la acreditación evaluada y/o por acreditar.
 f) Expediente del OEC.
@@ -57,23 +55,22 @@ f) Expediente del OEC.
 3.6 Para conceder, ampliar o mantener la acreditación, la Comisión de Acreditación debe obtener la confianza adecuada en:
 a) La competencia técnica del OEC para llevar a cabo las actividades para las que solicitó la acreditación o se encuentra acreditado
 b) Que se cumplen los requisitos de acreditación.
-c) Que las no conformidades mayores detectadas en su caso, han sido subsanadas.
+c) Que las no conformidades detectadas en su caso, han sido subsanadas.
 3.7 Para tomar la decisión la Comisión de Acreditación analiza la información generada durante el proceso de evaluación, la recomendación del Comité Asesor y adopta una de las siguientes decisiones:
 3.7.1 Procesos iniciales o ampliaciones:
 a) Otorgar o ampliar sin ninguna condición.
-b) OEC con la totalidad de las acciones correctivas cerradas e implementadas para las no conformidades mayores detectadas, pero que debido a la naturaleza de las no conformidades, se requiere verificar la continuidad del sistema, la Comisión de Acreditación puede otorgar o ampliar con condiciones (por ejemplo: acortar el intervalo de seguimiento, realizar alguna evaluación extraordinaria, solicitar informes periódicos entre otras).
+b) OEC con la totalidad de las acciones correctivas cerradas e implementadas, pero que debido a la naturaleza de las no conformidades, se requiere verificar la continuidad del sistema, la Comisión de Acreditación puede otorgar o ampliar con condiciones (por ejemplo: acortar el intervalo de seguimiento, realizar alguna evaluación extraordinaria, solicitar informes periódicos entre otras).
 c) Aplazar la decisión pendiente a la presentación de evidencias de acciones correctivas y/o cualquier otra información que la Comisión de Acreditación determine, o la realización de alguna actividad de seguimiento para confirmar la efectividad de las acciones correctivas.
 d) Denegar la acreditación o la ampliación.
 3.7.2 Procesos de seguimiento o reevaluación:
 a) Mantener la acreditación
-b) OEC con la totalidad de las acciones correctivas cerradas e implementadas para las no conformidades mayores detectadas, pero que debido a la naturaleza de las no conformidades, se requiere verificar la continuidad del sistema, la Comisión de Acreditación puede mantener con condiciones (por ejemplo: acortar el intervalo de seguimiento, realizar alguna evaluación extraordinaria, solicitar informes periódicos entre otras).
+b) OEC con la totalidad de las acciones correctivas cerradas e implementadas, pero que debido a la naturaleza de las no conformidades, se requiere verificar la continuidad del sistema, la Comisión de Acreditación puede mantener con condiciones (por ejemplo: acortar el intervalo de seguimiento, realizar alguna evaluación extraordinaria, solicitar informes periódicos entre otras).
 c) Aplazar la decisión de mantener, pendiente a la presentación de evidencias de acciones correctivas y/o cualquier otra información que la Comisión de Acreditación determine, o la realización de alguna actividad de seguimiento para confirmar la efectividad de las acciones correctivas.
-d) OEC con no conformidades mayores abiertas, se toma la decisión de iniciar un procedimiento de investigación conforme al ECA-MC-P16 Procedimiento de investigación.
+d) OEC con no conformidades abiertas, se toma la decisión de iniciar un procedimiento de investigación conforme al ECA-MC-P16 Procedimiento de investigación.
 3.7.3 Decisiones a solicitud del OEC:
 a) La Comisión es la responsable de aceptar las solicitudes de reducción, suspensión, retiro o cancelación que el OEC haga voluntariamente al ECA, de manera documentada.
 Nota 1: En caso de suspensiones voluntarias se debe seguir lo establecido en ECA-MC-P16 Procedimiento de Investigación.
 Nota 2: En caso que se notifiquen decisiones adversas en contra del OEC deben realizarse con la debida fundamentación.
-Nota 3: La implementación o no de las acciones para las no conformidades menores no condicionan ni afectan la toma de decisión.
 3.7.4 Decisiones por procesos de evaluaciones extraordinarias
 a) La Comisión de Acreditación realiza la valoración de la información relacionada con las evaluaciones extraordinarias y determinara la decisión que corresponda en cada caso particular.
 3.8 La Comisión de Acreditación debe registrar en las actas de las sesiones ordinarias y/o extraordinarias, el acuerdo tomado y debe ser una resolución motivada para cada caso, cada acuerdo debe incluir, según corresponda: [CA]
@@ -94,13 +91,15 @@ Nota: En caso de que NO se otorgue la acreditación, el OEC puede presentar por 
 3.13 Cancelado el monto se procede con el ECA-MP-P09: Emisión del certificado de acreditación.
 4 DECISIONES SOBRE PROCESOS PARCIALES
 4.1 El proceso de toma de decisión se puede dar parcialmente, en cualquiera de las siguientes situaciones:
-a) Decisión sobre un alcance parcial: Cuando el OEC en procesos iniciales o ampliaciones, atiende correctamente no conformidades para solo ciertas actividades dentro del alcance a acreditar o ampliar y no existen o han sido atendidas correctamente no conformidades mayores de los requisitos de gestión.
+a) Decisión sobre un alcance parcial: Cuando el OEC en procesos iniciales o ampliaciones, atiende correctamente no conformidades para solo ciertas actividades dentro del alcance a acreditar o ampliar y no existen o han sido atendidas correctamente no conformidades de los requisitos de gestión.
 b) En los casos de seguimientos o reevaluaciones de organismos de certificación u organismos validadores/ verificadores, pueden tomarse decisiones sobre cada subproceso de evaluación.
 c) Los procesos de decisión parciales para subprocesos de evaluación, no se pueden dar para los procesos iniciales de OC y OV/V.
 4.2 En cualquiera de los casos que se presenten decisiones sobre procesos parciales, ya sea para el alcance específico o el subproceso especifico, se deben:
 a) Cumplir las actividades de evaluación correspondientes.
 b) Realizar las actividades posteriores a la evaluación aplicables.
 c) Realizar el proceso de toma de decisión de acuerdo a este procedimiento.
-5 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P08
-Refiérase a la solicitud de elaboración o modificación del documento 2015 – 098
-Observaciones: Se incorporan la decisión de seguimientos por parte de la Comisión de Acreditación Se modifican los párrafos subrayados para los apartados de generalidades, análisis por parte del comité asesor, decisión por parte de la comisión de acreditación
+5 TRANSITORIO
+Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento, excepto para los apartados donde se indica la clasificación de los hallazgos como no conformidades mayores y menores; en estos casos se brinda un transitorio de 3 meses para su entrada en vigencia.
+6 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P08
+Refiérase a la solicitud de elaboración o modificación del documento 2016 – 153
+Observaciones: Modificaciones realizadas se subrayan en el procedimiento. Apartados 1. Inciso 1.1 2. Inciso 2.1 b), 2.6.2. 3. Inciso 3.1 c), 3.6 c), 3.7.1 b), 3.7.2 b)-d)
