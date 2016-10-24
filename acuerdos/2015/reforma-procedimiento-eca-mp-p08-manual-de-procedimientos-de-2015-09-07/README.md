@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-P08 Manual de procedimientos de evaluación y acred
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-25 | la propia norma |
+| 2 | 2016-10-24 | Acuerdo 0 (2016-10-24) |
