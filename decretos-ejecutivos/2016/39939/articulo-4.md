@@ -1,0 +1,1 @@
+Artículo 4. Tasa de Interés. Los intereses del TPRAS serán pagaderos semestralmente y para efectos del cálculo los cupones estarán indexados a los rendimientos netos de la curva soberana calculada por el Banco Central de Costa Rica, asociado al plazo al vencimiento del título vigente un día antes del inicio del semestre correspondiente.

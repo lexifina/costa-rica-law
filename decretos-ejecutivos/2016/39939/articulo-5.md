@@ -1,0 +1,1 @@
+Artículo 5. Denominación. El TPRAS se cancelará y denominará en colones costarricenses. No obstante, la Tesorería Nacional podrá emitir TPRAS en dólares estadounidenses u otras monedas que defina, siempre y cuando se disponga de una curva de rendimiento en otras monedas, previamente formalizada, vigente y disponible para los inversionistas.
