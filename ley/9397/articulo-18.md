@@ -1,0 +1,3 @@
+ARTÍCULO 18.- Exoneración
+Se eximen de todo pago las operaciones del fideicomiso por concepto de timbres, avalúas, impuestos de inscripción de la constitución, endoso, cancelación de hipotecas, impuesto de contratos de prenda, así como del pago de derechos de registro, así como de cualquier tasa o impuesto de carácter nacional o municipal.
+Las adquisiciones de obras, bienes y servicios no estarán sujetas al pago de ninguna clase de impuestos, tasas, sobretasas, contribuciones ni derechos, en la medida en que las contrataciones se realicen con estricto apego a esta ley y se incorporen al fideicomiso.
