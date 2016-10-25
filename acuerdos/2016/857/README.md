@@ -14,3 +14,4 @@ Reforma Calendario Anual de Sorteos y Planes de Premios de Loterías 2016
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-15 | la propia norma |
+| 2 | 2016-10-25 | Acuerdo 0 (2016-10-25) |
