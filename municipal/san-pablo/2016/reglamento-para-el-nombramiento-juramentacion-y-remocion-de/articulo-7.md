@@ -1,0 +1,1 @@
+Artículo 7.- De las potestades del Concejo durante la elección. En el proceso de elección de los miembros de las Juntas, el Concejo dispondrá del expediente respectivo y de cualquier elemento informativo o documental que le resultare de interés para mejor resolver.

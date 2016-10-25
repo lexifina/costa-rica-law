@@ -1,0 +1,1 @@
+Artículo 13.- La investigación sumaria deberá concluirse en el plazo máximo de 15 días hábiles. La inacción u omisión por parte del Supervisor o Supervisora del Circuito Educativo, según lo indicado en el artículo anterior, será considerado incumplimiento de funciones.

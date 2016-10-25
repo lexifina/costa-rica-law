@@ -1,0 +1,1 @@
+Artículo 15.- El Director o la Directora Regional de Educación, verificará el cumplimiento del procedimiento establecido en los artículos precedentes, y pasará el expediente al Concejo en el plazo máximo de cinco días naturales , con la solicitud de destitución.

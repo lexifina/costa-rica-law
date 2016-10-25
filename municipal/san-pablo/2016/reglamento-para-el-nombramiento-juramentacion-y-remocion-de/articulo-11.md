@@ -1,0 +1,1 @@
+Artículo 11.- Cuando se estimare que existe justa causa para remover algún miembro de la Junta el asunto será puesto en conocimiento por el Director o Directora al Supervisor o Supervisora del Circuito Educativo correspondiente.

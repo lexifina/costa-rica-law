@@ -1,0 +1,1 @@
+Artículo 14.- Una vez concluida la investigación sumaria, el Supervisor o la Supervisora del Circuito Educativo, pondrá el expediente en conocimiento del Director o Directora Regional de Educación respectivo, con una resolución del caso que incluya sus recomendaciones y observaciones.
