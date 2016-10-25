@@ -1,1 +1,0 @@
-Artículo 89.—Responsabilidad de los encargados de Centros de Producción: Los encargados de los Centros de Producción responderán por el correcto manejo de la mezcla asfáltica, la arena y la piedra a su cargo.

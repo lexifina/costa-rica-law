@@ -1,1 +1,0 @@
-Artículo 37.—Registros de artículos recibidos por aporte o donación: Los artículos recibidos mediante aporte o donación deberán registrarse en el sistema computadorizado de bodegas, y donde no existiere se hará uso de la tarjeta de inventario, conforme al trámite que regula las compras de bienes por parte del Ministerio de Obras Públicas y Transportes.

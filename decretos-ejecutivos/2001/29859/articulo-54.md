@@ -1,1 +1,0 @@
-Artículo 54.—Autorizaciones para recibo, almacenamiento y despacho de explosivos: El recibo, almacenamiento y despacho de cualquier clase de explosivos y componentes serán autorizados por la unidad de Almacenes y la Bodega respectiva.

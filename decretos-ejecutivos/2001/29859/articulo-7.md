@@ -1,1 +1,0 @@
-Artículo 7º—Labores de planeamiento, coordinación y control: El planeamiento, coordinación y control de los Almacenes Centrales, será responsabilidad de la Unidad de Almacenes de la Proveeduría Institucional y de Equipo y Maquinaria según sea el caso de bienes o repuestos que se almacenen.

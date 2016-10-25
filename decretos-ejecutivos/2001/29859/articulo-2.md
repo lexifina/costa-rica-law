@@ -1,1 +1,0 @@
-Artículo 2º—Técnicas de aplicación complementaria: A los efectos correspondientes el Manual denominado "Sistema Básico de Mantenimiento de Repuestos y sus Procedimientos", o cualquier otro que en el futuro lo sustituya o complemente, deberá tenerse como de aplicación complementaria en esta materia.

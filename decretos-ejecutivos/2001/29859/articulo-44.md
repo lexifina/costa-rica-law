@@ -1,4 +1,0 @@
-Artículo 44.—Casos en que queda sin efecto la requisición o solicitud: Quedará sin efecto toda "Requisición de Materiales" cuyos artículos no fueren retirados en el término de cinco días hábiles, siguientes a la fecha de su presentación ante el almacén o bodega; en tal caso, deberán devolverse los artículos o mercancías a los anaqueles respectivos, asimismo, se deben reincorporar los artículos al sistema de inventario respectivo.
-Para tales efectos, el encargado del almacén o bodega deberá cumplir con el siguiente procedimiento:
-a) Poner el sello de "anulado" a la respectiva "Requisición de Materiales" enviándola, de inmediato, a Contabilidad.
-Informar a la dependencia administrativa que corresponda, sobre la situación acaecida, a efecto de que se tomen las medidas correctivas necesarias para que no vuelvan a producirse situaciones similares.

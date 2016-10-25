@@ -1,1 +1,0 @@
-Artículo 29.—Del Almacén General de Repuestos: El encargado del Equipo y Maquinaria, en lo que le corresponda, atenderá las disposiciones del presente Reglamento por medio del Almacén General de Repuestos y atenderá las instrucciones que, en materia de almacenamiento, dictará la unidad de Almacenes.

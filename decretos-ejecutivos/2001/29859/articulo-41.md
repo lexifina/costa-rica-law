@@ -1,2 +1,0 @@
-Artículo 41.—Revisión de las firmas: El Encargado de un almacén o bodega, antes de efectuar el despacho de bienes, deberá revisar las firmas consignadas en la solicitud respectiva, cotejándolas con las consignadas en el "Registro de Firmas" y exigirá la presentación de la cédula de identidad de todo servidor que se apersone a retirar los artículos.
-En lo que concierne a las bodegas identificadas con los números 81 y 62 deberá, además, anotar y verificar el número de placa y las características (marca, modelo, etc.) del vehículo que transporta el bien.

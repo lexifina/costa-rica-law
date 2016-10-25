@@ -1,1 +1,0 @@
-Artículo 56.—Control de explosivos: La Unidad de Almacenes, por medio del encargado de explosivos, deberá llevar los controles correspondientes sobre el recibo, almacenamiento y entrega de explosivos conforme a los registros de existencias.

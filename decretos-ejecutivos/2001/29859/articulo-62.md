@@ -1,2 +1,0 @@
-Artículo 62.—Capacitación: Capacitación del MOPT gestionará la capacitación a solicitud de parte del interesado sobre el manejo de explosivos, de modo tal que pueda conocer y poner en práctica todas las medidas de seguridad vigentes.
-Corresponderá al encargado de la Bodega de Explosivos y Polvorines instruir a todos los subalternos y al personal que, en otras dependencias de este Ministerio tuviere que manejar dichos materiales, sobre los cuidados mínimos que deben tenerse en cuenta en todo momento en lo que se refiere a los explosivos.

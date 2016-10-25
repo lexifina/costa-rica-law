@@ -1,1 +1,0 @@
-Artículo 84.—Entregas parciales: Cuando se tratare de entregas parciales de asfalto AC-20 o de emulsión asfáltica, el encargado de recibirlos realizará la entrada, únicamente, por la cantidad expresamente recibida.

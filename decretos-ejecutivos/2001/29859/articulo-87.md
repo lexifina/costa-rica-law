@@ -1,1 +1,0 @@
-Artículo 87.—Traspaso de asfalto o emulsión: El traspaso de asfalto o emulsión asfáltica entre bodegas de este Ministerio deberá hacerse por medio de requisición, quedando expresamente prohibido su préstamo a las empresas constructoras o a particulares, en general.

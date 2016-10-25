@@ -1,2 +1,0 @@
-Artículo 20.—Errores en la entrada o despacho de un artículo: Los encargados de los almacenes y bodegas harán, inmediatamente que se detecten, los ajustes administrativos necesarios cuando se generen errores al confeccionarse una entrada a bodega o por el mal despacho de un artículo.
-Asimismo, mediante nota explicativa, informará a Contabilidad y a la unidad de Almacenes, así como al Administrativo al que pertenece la correspondiente bodega en donde se produzca dicho error.

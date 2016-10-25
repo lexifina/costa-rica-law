@@ -1,1 +1,0 @@
-Artículo 88.—Envío semanal de documentos: El encargado de depósitos de asfalto deberá enviar a Contabilidad, semanalmente, documentos que respaldan las entradas y salidas de asfalto o de emulsión asfáltica, con copia a la unidad de Almacenes.

@@ -1,1 +1,0 @@
-Artículo 51.—Prohibición del traslado de bienes: Queda prohibido el traslado de bienes de los almacenes centrales, con cargo directo a obras, debiendo utilizarse el procedimiento de traspaso a bodegas, excepto cuando se trate de cemento dentro del programa de Ayuda Comunal, asfaltos, explosivos, oxígeno y acetileno.

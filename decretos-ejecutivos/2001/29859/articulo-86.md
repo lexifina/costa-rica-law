@@ -1,1 +1,0 @@
-Artículo 86.—Registro de Existencias: Todo movimiento de asfalto, mezcla asfáltica, arena y piedra deberá ser registrado, de inmediato, en el tarjetero denominado "Registro de Existencias", siendo este último de uso obligatorio en dichas bodegas.

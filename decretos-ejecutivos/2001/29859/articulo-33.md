@@ -1,1 +1,0 @@
-Artículo 33.—Rechazo de mercancías y maquinaria que no se ajuste a lo especificado: Las mercaderías, maquinaria o equipo que no se ajusten a lo especificado en el Cartel de Licitación, la Orden de Compra o Reserva de Crédito deberán rechazarse, informando de inmediato a la Proveeduría Institucional para que se proceda con el reclamo que resulte pertinente.

@@ -1,1 +1,0 @@
-Artículo 49.—Prohibición de préstamo o adelanto de bienes: Queda expresamente prohibido al jefe o encargado del almacén o bodega o a cualquiera de sus subalternos la entrega, en calidad de préstamo o adelanto, de bienes o materiales.

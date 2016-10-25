@@ -1,1 +1,0 @@
-Artículo 46.—Requisito para el despacho de equipo y mobiliario de oficina: Para el despacho de equipo y mobiliario de oficina, la dependencia que lo solicite deberá, además de aportar el documento de "Requisición" respectivo, adjuntar el formulario de asignación con el nombre, número de cédula y firma del funcionario a quien se le asigna el activo.

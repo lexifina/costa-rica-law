@@ -1,2 +1,0 @@
-Artículo 25.—Prohibición de efectuar ajustes de oficio: El Encargado de almacén o bodega y la unidad de Almacenes, por ningún motivo podrá de oficio, hacer ajustes en las tarjetas de existencia ni desechos de materiales.
-Dichos ajustes sólo se podrán hacer mediante una "entrada" o "salida" de bodega debidamente suscrita por la unidad de Almacenes y por el Encargado Administrativo correspondiente quienes serán los responsables de asumir las acciones que deberán tomarse respecto de desechos y a los faltantes o sobrantes del inventario.
