@@ -14,3 +14,4 @@ Reglamento de asignación de recursos a las Juntas de Educación, Juntas Adminis
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-24 | la propia norma |
+| 2 | 2016-10-25 | Reglamento municipal 0 (2016-10-25) |
