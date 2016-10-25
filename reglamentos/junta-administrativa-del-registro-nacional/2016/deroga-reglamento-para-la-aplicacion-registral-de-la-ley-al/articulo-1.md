@@ -1,0 +1,13 @@
+JUNTA ADMINISTRATIVA DEL REGISTRO NACIONAL
+DEROGATORIA DEL REGLAMENTO PARA LA APLICACIÓN REGISTRAL
+DE LA LEY AL IMPUESTO A LAS PERSONAS JURÍDICAS
+Con fundamento en el artículo 11 de la Constitución Política de la República de Costa Rica; el artículo 11 de la Ley General de la Administración Pública, Ley N° 6227, del 2 de mayo de 1978 y el artículo 3, incisos a) y e) de la Ley de Creación del Registro Nacional, Ley N° 5695 de 28 de mayo de 1975 y sus reformas.
+CONSIDERANDO:
+I.- Que la Junta Administrativa del Registro Nacional, mediante acuerdo firme número J 137-2012, de la sesión extraordinaria número 13-2012, celebrado el 26 de marzo del 2012, aprobó la promulgación del “Reglamento para la aplicación registral de la Ley al Impuesto de las Personas Jurídicas”, instrumento jurídico publicado en el Diario Oficial La Gaceta número N° 87, en fecha 07 de mayo del 2012.
+II.- Que en atención del oficio DGL-1095-2016, de fecha 30 de agosto de 2016, el Licenciado Luis Jiménez Sancho, Director General del Registro Nacional, puso en conocimiento de la Junta Administrativa del Registro Nacional, el oficio DGL-AJU-21-1074-2016, de fecha 11 de agosto de los corrientes, mediante el cual el Departamento de Asesoría Jurídica del Registro Nacional remitió informe del proceso de conocimiento número 12-005573-1027-CA, con relación a la declaratoria parcial de nulidad de la Circular número DGRN-0003-2012, “Aplicación de las disposiciones contenidas en la Ley al Impuesto a las Personas Jurídicas No.9024”, recomendando la derogatoria del “Reglamento para la Aplicación Registral de la Ley al Impuesto a las Personas Jurídicas”.
+III.- Que mediante acuerdo firme número J 367-2016, la Junta Administrativa del Registro Nacional, en sesión ordinaria número 28-2016, celebrada el 08 de setiembre del 2016, acordó por unanimidad : “1-) Tener por recibido el oficio DGL-1095-2016 de fecha 30 de agosto de 2016, suscrito por el Licenciado Luis Jiménez Sancho, Director General del Registro Nacional. 2-) Derogar en todos sus extremos el Reglamento para la aplicación registral de la Ley al Impuesto de las Personas Jurídicas, publicado en la Gaceta No. 87 del 7 de mayo 2012. 3-) Derogar en todos sus extremos el acuerdo firme J137-2012, tomado en sesión N°13-2012 celebrada de manera extraordinaria el 26 de marzo de 2012.
+ACUERDO FIRME.”
+ACUERDA:
+Derogar el “Reglamento para la aplicación registral de la Ley al Impuesto de las Personas Jurídicas”, publicado en el Diario Oficial La Gaceta número 87 de fecha 07 de mayo del 2012.
+Rige a partir de su publicación.
+Dado en San José a los 04 días del mes de setiembre del 2016.
