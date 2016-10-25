@@ -1,0 +1,1 @@
+Artículo 39.- Suspensión de la disponibilidad: Cuando por el disfrute de vacaciones y permisos con goce de salario la persona trabajadora no esté disponible; durante estos periodos se suspenderá el pago de la compensación para otorgárselo a la persona que le supla. Una vez reintegrada a sus funciones, se restablecerá el pago de la compensación.

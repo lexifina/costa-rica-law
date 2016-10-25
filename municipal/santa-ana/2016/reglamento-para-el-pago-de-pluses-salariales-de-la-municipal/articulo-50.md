@@ -1,0 +1,1 @@
+Artículo 50.- Compensación económica por peligrosidad: Conforme lo establece el artículo sesenta y nueve de la Convención Colectiva vigente en la Municipalidad de Santa Ana; la compensación económica por peligrosidad consiste en un diez por ciento adicional, calculado sobre el salario base.

@@ -1,0 +1,1 @@
+Artículo 6.- Compensación económica de la prohibición: La Municipalidad reconocerá la compensación salarial, establecida en cada una de las leyes que implantan este régimen, calculada sobre el salario base.

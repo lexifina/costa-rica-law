@@ -1,0 +1,1 @@
+Artículo 38.- Horas extraordinarias: Los trabajos realizados fuera de la jornada ordinaria por las personas trabajadoras cubiertas por este régimen, deben quedar debidamente documentados y justificados para su correspondiente pago, como tiempo extraordinario. Se reconocerá el pago de tiempo extraordinario después de doce horas de trabajo continuo.

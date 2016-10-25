@@ -1,0 +1,1 @@
+Artículo 40.- Sustituciones: Siendo que la disponibilidad se define por las necesidades del servicio y no para la persona trabajadora, en aquellos casos en que se dé una suplencia temporal, la persona suplente deberá aceptar estar disponible, deberá suscribir el contrato y consecuentemente recibirá la compensación durante el tiempo que dure la suplencia.

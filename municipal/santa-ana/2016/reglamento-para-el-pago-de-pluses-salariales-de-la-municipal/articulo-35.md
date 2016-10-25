@@ -1,0 +1,1 @@
+Artículo 35.- Objetivo de la compensación salarial por disponibilidad: Esta tiene como propósito compensar salarialmente a las personas trabajadoras que por necesidad institucional, deben permanecer disponibles y prestar sus servicios en horas y días no hábiles.

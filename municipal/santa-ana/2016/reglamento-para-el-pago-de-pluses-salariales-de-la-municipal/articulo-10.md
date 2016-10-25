@@ -1,0 +1,1 @@
+Artículo 10.- Requisitos: Las personas que ocupen puestos afectados legalmente por el régimen de prohibición del ejercicio liberal de la profesión deben ser profesionales y estar incorporados al colegio profesional correspondiente.

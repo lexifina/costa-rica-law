@@ -1,0 +1,1 @@
+Artículo 55.- Puestos con exposición a riesgo policial: En la Municipalidad de Santa Ana están expuestas a situaciones de riesgo policial en sus tareas habituales y permanentes, las personas trabajadoras que ocupan puestos de oficiales de seguridad comunitaria (policías municipales) y de guarda.

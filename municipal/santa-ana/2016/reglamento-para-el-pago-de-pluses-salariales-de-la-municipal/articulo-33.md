@@ -1,0 +1,1 @@
+Artículo 33.- Compensación económica por disponibilidad: A la persona trabajadora cubierta por el régimen de disponibilidad, se le reconocerá una compensación económica, que consiste en un veinticinco por ciento adicional, calculado sobre el salario base.

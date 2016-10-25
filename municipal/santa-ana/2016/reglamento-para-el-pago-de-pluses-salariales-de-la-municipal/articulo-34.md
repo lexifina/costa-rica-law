@@ -1,0 +1,1 @@
+Artículo 34.- Objetivo de la disponibilidad: Contar en todo momento con el personal calificado para darle continuidad a un servicio municipal, o restablecerlo en caso de que este haya sufrido una interrupción.

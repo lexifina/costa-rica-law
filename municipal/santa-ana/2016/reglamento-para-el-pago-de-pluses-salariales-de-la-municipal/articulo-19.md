@@ -1,0 +1,3 @@
+Artículo 19.- Compensación económica: La Municipalidad reconocerá una compensación salarial por dedicación exclusiva calculada sobre el salario base, cuyo monto está definido por el grado académico universitario que la persona trabajadora posea, de la siguiente manera:
+a) Un treinta y cinco por ciento, para aquellas personas trabajadoras que poseen el grado académico de bachillerato universitario y ocupen un puesto para el que se requiere tal condición.
+b) Un cincuenta y cinco por ciento, para aquellas personas trabajadoras que ostentando el grado académico de licenciatura, ocupen un puesto para el que se requiere como mínimo el grado académico de bachillerato.

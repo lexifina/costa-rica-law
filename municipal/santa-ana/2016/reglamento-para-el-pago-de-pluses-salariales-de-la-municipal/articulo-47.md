@@ -1,0 +1,2 @@
+Artículo 47.- Momento desde que será efectiva la renuncia: Para el régimen de dedicación exclusiva, la renuncia se hará efectiva al finalizar la bisemana en que la renuncia fue presentada y la persona trabajadora no podrá acogerse nuevamente al régimen sin que hayan transcurrido dos años.
+Para el caso de la disponibilidad, la renuncia se hará efectiva hasta finalizar la bisemana en que la Municipalidad cuente con un substituto y la persona trabajadora no podrá acogerse nuevamente al régimen mientras exista otra persona trabajadora cubriendo la misma disponibilidad.

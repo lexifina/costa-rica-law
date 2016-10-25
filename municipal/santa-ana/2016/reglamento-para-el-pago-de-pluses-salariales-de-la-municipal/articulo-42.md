@@ -1,0 +1,1 @@
+Artículo 42.- Consecuencias del incumplimiento: La inobservancia de lo establecido en el artículo anterior, se considerará un incumplimiento contractual y por tanto, será causal de terminación del contrato de disponibilidad, sin perjuicio de la responsabilidad disciplinaria y/o administrativa que pudiere generar la falta.

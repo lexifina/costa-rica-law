@@ -1,0 +1,1 @@
+Artículo 36.- Momento de inicio de las obligaciones del régimen: Las obligaciones del régimen de disponibilidad iniciarán, para ambas partes desde que sea posible para la Municipalidad hacer la erogación de la compensación salarial.

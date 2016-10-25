@@ -1,0 +1,1 @@
+Artículo 59.- Servidores Administrativos: Ninguna persona trabajadora administrativa puede desempeñar funciones policiales o de guarda. En consecuencia la concepción de funciones mixtas “administrativo-policial” no es aceptable para los efectos del presente reglamento, por lo que ninguna persona trabajadora administrativa podrá percibir esta compensación económica.
