@@ -1,0 +1,1 @@
+Artículo 19- Función. Se constituye la Comisión de Control Interno como ente asesor del ejecutor (Alcaldía), con el propósito de que coordine a nivel institucional todas las acciones dirigidas al fortalecimiento y mejoramiento del Sistema de Control Interno Interinstitucional.
