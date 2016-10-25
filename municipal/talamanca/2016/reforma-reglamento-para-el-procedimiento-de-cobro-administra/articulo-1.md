@@ -1,0 +1,10 @@
+MUNICIPALIDAD DE TALAMANCA
+El Concejo Municipal de la Municipalidad de Talamanca, mediante Sesión Extraordinaria N° 13 celebrada el día 05 de octubre de 2016, adoptó el Acuerdo Único, que dice:
+El Concejo Municipal de Talamanca considerando:
+1- Oficio N° 10590, DFOE-SD-1332, con fecha 11 de agosto de 2016, suscrito por la Licda. Grace Madrigal Castro, MC, Gerente de Área de Seguimiento de Disposiciones de la Contraloría General de la República, en la cual solicita el cumplimiento de la disposición 4.20 del Informe DFOE-DLIF-10-2014.
+2- Recomendación del Asesor Legal Municipal, Lic. Randall Salas Rojas, en oficio IALMT-012-2016, para adicionar un párrafo al artículo 24 del Reglamento para el Procedimiento de Cobro Administrativo, Extrajudicial y Judicial de la Municipalidad de Talamanca.
+Por lo tanto acuerda realizar ajuste al Reglamento de cobro administrativo, extrajudicial y judicial de la Municipalidad de Talamanca, adicionando un párrafo al artículo 24, y que se lea de la siguiente forma:
+“Artículo 24: Las gestiones de cobro administrativo se harán después de vencido el trimestre, sobre el entendido que patentes se hará por trimestre adelantado y los servicios en forma trimestral. Para estos efectos la oficina encargada del cobro realizará dos notificaciones a los sujetos pasivos de las deudas en mora.
+Concluidas las gestiones administrativas en la recuperación de las cuentas morosas, la oficina de cobros entregará a los abogados, para el proceso de cobro judicial, la documentación necesaria para que inicien los trámites judiciales, sin embargo no será requisito el haber tramitado un cobro administrativo para poder enviar las cuentas en mora a cobro judicial
+El porcentaje de la tasa de interés a aplicar a las deudas vencidas y en estado de morosidad, deberá ser equivalente al promedio simple de las tasas activas de los bancos estatales para créditos del sector comercial y, en ningún caso, podrá exceder en más de diez puntos de la tasa básica pasiva fijada por el Banco Central de Costa Rica.
+Publíquese en el Diario Oficial La Gaceta. Acuerdo aprobado por unanimidad.
