@@ -1306,6 +1306,7 @@ Lunes | 07/11/2016 | 15446 | NUEVOS TIEMPOS
 Martes | 08/11/2016 | 15447 | NUEVOS TIEMPOS
 Martes | 08/11/2016 | 15448 | NUEVOS TIEMPOS
 Miércoles | 09/11/2016 | 15449 | NUEVOS TIEMPOS
+Miércoles adicionado el punto anterior mediante publicación en La Gaceta N° 216 del 10 de noviembre del 2016) | 09/11/2016 adicionado el punto anterior mediante publicación en La Gaceta N° 216 del 10 de noviembre del 2016) | 15450 (Así adicionado el punto anterior mediante publicación en La Gaceta N° 216 del 10 de noviembre del 2016) | NUEVOS TIEMPOS adicionado el punto anterior mediante publicación en La Gaceta N° 216 del 10 de noviembre del 2016)
 Jueves | 10/11/2016 | 15451 | NUEVOS TIEMPOS
 Jueves | 10/11/2016 | 15452 | NUEVOS TIEMPOS
 Viernes | 11/11/2016 | 15453 | NUEVOS TIEMPOS
@@ -1366,7 +1367,7 @@ Lunes | 05/12/2016 | 15501 | NUEVOS TIEMPOS
 DICIEMBRE 2016 (Así reformado el calendario del mes de diciembre por acuerdo JD-857 del 22 de agosto de 2016)
 DÍA | FECHA | Nº DE SORTEO | TIPO DE LOTERÍA
 Martes | 06/12/2016 | 15502 | NUEVOS TIEMPOS
-Martes | 06/12/2016 | 15003 | NUEVOS TIEMPOS
+Martes | 06/12/2016 | 15503 (Así reformado el punto anterior mediante publicación en La Gaceta N° 216 del 10 de noviembre del 2016) | NUEVOS TIEMPOS
 Miércoles | 07/12/2016 | 15504 | NUEVOS TIEMPOS
 Miércoles | 07/12/2016 | 15505 | NUEVOS TIEMPOS
 Jueves | 08/12/2016 | 15506 | NUEVOS TIEMPOS

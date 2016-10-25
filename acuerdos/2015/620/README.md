@@ -18,3 +18,4 @@ Calendario Anual de Sorteos y Planes de Premios de Loterías 2016
 | 3 | 2016-05-27 | Acuerdo 575 (2016-05-27) |
 | 4 | 2016-08-22 | Acuerdo 857 (2016-08-22) |
 | 5 | 2016-09-14 | Acuerdo 942 (2016-09-14) |
+| 6 | 2016-10-25 | Acuerdo 0 (2016-10-25) |
