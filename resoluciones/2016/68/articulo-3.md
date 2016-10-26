@@ -1,0 +1,1 @@
+3º—El Servicio Nacional de Salud Animal tomará las medidas sanitarias correspondientes a partir de los resultados violatorios o no conformes de la sumatoria de verde malaquita y su metabolito verde leucomalaquita que sean detectados en productos acuícolas.

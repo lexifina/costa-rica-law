@@ -1,0 +1,1 @@
+4º—Rige a partir de su adopción. Comuníquese y notifíquese a través de los mecanismos establecidos por la Organización Mundial del Comercio. Publíquese en el Diario Oficial La Gaceta y en la página web del Servicio Nacional de Salud Animal.
