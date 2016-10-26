@@ -15,3 +15,4 @@ Declara de Conveniencia Nacional e Interés Público los estudios y las obras de
 | --- | --- | --- |
 | 1 | 2008-02-13 | la propia norma |
 | 2 | 2011-09-23 | SINALEVI (sin norma nombrada) |
+| 3 | 2016-10-26 | SINALEVI (sin norma nombrada) |
