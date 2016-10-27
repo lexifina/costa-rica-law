@@ -1,0 +1,2 @@
+Artículo 10. —Requisitos previos. Previo a la decisión inicial de contratación, el funcionario encargado del departamento solicitante y el funcionario encargado del presupuesto o tesorero determinará, mediante un oficio o certificación, la existencia de la partida presupuestaria (contenido) siendo requisito indispensable que en esa decisión inicial se adjunte y se indique expresamente los recursos presupuestarios con que se atenderán las obligaciones derivadas de la
+contratación.
