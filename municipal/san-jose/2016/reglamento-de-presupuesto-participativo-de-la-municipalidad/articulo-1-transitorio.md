@@ -1,0 +1,2 @@
+DISPOSICIONES TRANSITORIAS
+TRANSITORIO I: La Alcaldía contará con el plazo de seis meses a partir de la fecha de publicación del presente reglamento para delegar y definir mediante directrices internas las funciones y competencias que asumirán las diversas dependencias municipales para el cumplimiento de los controles y disposiciones de este reglamento. Asimismo, deberá proveer a las mismas de los recursos necesarios para el cumplimiento de lo asignado.

@@ -1,0 +1,1 @@
+Artículo 10.- Los proyectos que hayan sido presentados en el mes de abril por los munícipes, sus organizaciones formales y no formales, serán conocidos en el mes de mayo por la Comisión Institucional a efecto de determinar la factibilidad de los proyectos propuestos el cual se expresará en un documento denominado VISTO BUENO DE FACTIBILIDAD.

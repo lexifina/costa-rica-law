@@ -1,0 +1,5 @@
+Artículo 4.- La Municipalidad promoverá la iniciativa de Presupuestos Participativos guiada por los siguientes principios:
+a) IGUALDAD: Participación de los munícipes, sus organizaciones formales y no formales sin discriminación de carácter político, ideológico, religioso, racial, género o de otra naturaleza.
+b) SOLIDARIDAD: Disposición para asumir los problemas de otros como propios, sin crear intereses particulares, generando la ayuda, el apoyo, la fraternidad y la empatía hacia quienes sufren un problema o se encuentra en una situación desafortunada, o hacia quien promueve una causa valiosa, actuando siempre con sentido de comunidad. La solidaridad exige que el interés personal sea puesto al servicio del bienestar comunitario.
+c) TOLERANCIA: Garantía de reconocimiento y respeto a la diversidad de opiniones, visiones, necesidades y posturas de quienes conforman la sociedad, como un elemento esencial para la construcción de consensos.
+d) TRANSPARENCIA: Información suficiente y oportuna de los asuntos públicos y colectivos que se decidan por vía participativa, así como del seguimiento de los mismos hasta su finalización.

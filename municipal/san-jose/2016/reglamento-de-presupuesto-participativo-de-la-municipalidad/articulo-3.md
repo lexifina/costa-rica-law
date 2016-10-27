@@ -1,0 +1,5 @@
+Artículo 3.- El modelo de Presupuesto Participativo que implementará la Municipalidad de San José en el marco de este reglamento, se ajustará a las siguientes características:
+a) PARTICIPATIVO: Reconoce la multiplicidad de actores, roles, intereses y necesidades de la población del Cantón San José, y fortalece la participación de las comunidades y sus organizaciones en la toma de decisiones en los procesos de formulación, priorización, distribución y ejecución de proyectos con presupuesto municipal.
+b) INCLUSIVO: Promueve un desarrollo equitativo de la comunidad y de todos los individuos que la conforman, a través de la integración de las diversas opiniones e iniciativas de los sectores que la constituyen.
+c) DELIBERATIVO: Crea un entorno institucional propicio para la discusión abierta y mutuamente transformadora con las comunidades y sus organizaciones.
+d) CONCERTADO: Potencia esfuerzos e identifica intereses, problemas, soluciones y oportunidades de desarrollo con las comunidades del cantón.

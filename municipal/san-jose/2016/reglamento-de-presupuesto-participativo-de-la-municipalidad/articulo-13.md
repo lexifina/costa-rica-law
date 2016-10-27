@@ -1,0 +1,1 @@
+Artículo 13.- En los meses de setiembre y octubre, la Municipalidad comunicará a los munícipes, sus organizaciones formales y no formales a través de una publicación en el diario oficial La Gaceta y otra en un diario de circulación nacional, los proyectos que serán incorporados en el Plan Operativo Anual de la Municipalidad para el año siguiente.

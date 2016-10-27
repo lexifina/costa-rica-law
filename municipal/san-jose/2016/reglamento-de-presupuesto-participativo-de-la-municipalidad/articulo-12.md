@@ -1,0 +1,1 @@
+Artículo 12.- En la audiencia pública los munícipes, sus organizaciones formales y no formales del Cantón San José expondrán ante la Municipalidad las principales necesidades de la comunidad que fueron formuladas en los proyectos presentados, y procederán a priorizarlos para la asignación de los recursos derivados del presupuesto participativo.

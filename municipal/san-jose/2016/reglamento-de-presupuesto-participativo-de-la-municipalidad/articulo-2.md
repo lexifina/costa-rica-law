@@ -1,0 +1,2 @@
+Artículo 2.- El presente reglamento aplica para todos los/as munícipes que habiten los barrios del Cantón San José y sus organizaciones formales y no formales, que deseen incidir positivamente en el desarrollo humano sostenible del Cantón, a través de la implementación de proyectos, sin que medie una intención de lucro y que se enmarquen en la visión, la misión, las políticas y los objetivos del Plan de Desarrollo Municipal vigente.
+(Queda excluida de la aplicación del presente reglamento, toda disposición relacionada al artículo 62 del Código Municipal).

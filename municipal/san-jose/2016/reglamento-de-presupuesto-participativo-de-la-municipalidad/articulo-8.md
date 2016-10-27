@@ -1,0 +1,1 @@
+Artículo 8.- El Departamento de Participación Ciudadana con al menos 15 días de anticipación convocará a través de una publicación en el diario oficial La Gaceta y otra en un diario de circulación nacional, el cronograma de los talleres distritales a realizarse en los meses de febrero y marzo.
