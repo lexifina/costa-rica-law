@@ -1,0 +1,2 @@
+Transitorio Tres.- El Coordinador del Proceso de Hacienda, contará con un plazo de seis meses a partir de la Publicación del presente Reglamento para elaborar los procedimientos relacionados con la rendición de cauciones en la Municipalidad y hacerlos conocer a todos los funcionarios que tengan que rendir esta garantía.
+Aprobado mediante acuerdo_____ de la sesión ______________ del ________ de 2016.
