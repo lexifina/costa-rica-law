@@ -1,0 +1,2 @@
+ARTÍCULO 3.-
+El inmueble donado será destinado a albergar las oficinas y demás construcciones necesarias para brindar el servicio de campo ferial en la comunidad donde se ubica. En caso de que la Asociación donataria llegara a disolverse o el inmueble se destine a otro uso no autorizado en la presente ley, el bien donado volverá de pleno derecho a ser propiedad de la Junta Administrativa del Colegio de San Francisco de Coyote.
