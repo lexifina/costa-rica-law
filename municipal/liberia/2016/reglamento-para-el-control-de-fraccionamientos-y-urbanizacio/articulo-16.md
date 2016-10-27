@@ -1,0 +1,1 @@
+Artículo 16. Queda sujeta a la revisión por parte de la oficina municipal competente la incorporación de cualquier tipo de barreras tales como agujas, cadenas, entre otras, que obstaculicen al libre tránsito de cualquier persona o vehículo.

@@ -1,0 +1,1 @@
+Artículo 15. Si la urbanización va a estar ubicada cerca de una ruta de autobuses importante y es mayor a 50 unidades habitacionales deberá disponer de al menos un sitio para paradas de autobús con su respectiva bahía.

@@ -1,0 +1,1 @@
+Artículo 21. Cordón y caño: El cordón y caño en las esquinas de calles se proyectarán en forma circular con radio mínimo de seis metros. En el caso de zonas industriales o comerciales o cuando existan ángulos de intersección vial de tipo agudo (nunca menor de sesenta grados) en las esquinas, el radio se incrementará a diez metros como mínimo.

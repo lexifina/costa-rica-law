@@ -1,0 +1,1 @@
+Artículo 20. Ochavos: En todo cruce de calles se recortarán las esquinas en el límite de propiedad, mediante un ochavo de dos metros cincuenta centímetros por cada lado en el caso de preferirse una curva, esta deberá estar inscrita dentro de la línea de propiedad y el ochavo.

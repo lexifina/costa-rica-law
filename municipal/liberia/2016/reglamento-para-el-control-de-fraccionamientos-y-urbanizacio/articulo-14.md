@@ -1,0 +1,1 @@
+Artículo 14. La municipalidad revisará a nivel de anteproyecto, la sección típica de la vía que se puede utilizar en cada urbanización para lo cual tomará en cuenta los accidentes topográficos, el número de viviendas servidas, la generación de tránsito y continuidad vial, entre otras.

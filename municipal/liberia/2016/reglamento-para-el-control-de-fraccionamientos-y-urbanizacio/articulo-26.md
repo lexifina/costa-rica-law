@@ -1,0 +1,1 @@
+Artículo 26. Los terrenos que serán entregados como áreas públicas a la Municipalidad de Liberia, deberán ser estabilizados y arborizados de acuerdo con un plan de arborización presentado por el desarrollador debidamente firmado por un profesional en el campo, el cual será visto, analizado y aprobado por la Unidad de Gestión Ambiental de la Municipalidad.
