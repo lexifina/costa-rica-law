@@ -1,0 +1,2 @@
+Artículo 20.- La Municipalidad podrá verificar el estado de la vivienda entregada a los permisionarios en condición de uso precario una vez al mes, y si comprobare la existencia de daños al inmueble o la desatención del mantenimiento de su infraestructura, podrá exigir al permisionario la reparación inmediata de los daños o su correspondiente pago en un plazo no mayor a cinco días hábiles.
+En caso de no repararse o solucionarse el daño apercibido, se revocará unilateralmente el permiso de uso en precario.

@@ -1,0 +1,6 @@
+MUNICIPALIDAD DE SAN RAFAEL DE HEREDIA
+REGLAMENTO DE AUTORIZACIONES DE PERMISO DE USO EN PRECARIO DE VIVIENDAS
+EN LA MUNICIPALIDAD DE SAN RAFAEL DE HEREDIA
+El Concejo Municipal de la Municipalidad de San Rafael de Heredia con fundamento en lo establecido en los artículos 170 de la Constitución Política, 2, 3, 4 inciso a), 13 inciso c) y 43 del Código Municipal y artículo 154 de la Ley General de la Administración Pública, y habiéndose sometido a consulta pública no vinculante por un plazo de diez días hábiles, se acuerda aprobar en forma definitiva, el texto del Reglamento de Permiso de Uso en Precario de Viviendas de Interés Social, con las siguientes regulaciones:
+CAPÍTULO I : DISPOSICIONES GENERALES
+Artículo 1.- OBJETO: El presente reglamento tiene como objeto regular los permisos de uso en precario con fundamento en lo dispuesto por el artículo 154 de la Ley General de la Administración Pública, de viviendas de interés social construidas por la Municipalidad de San Rafael de Heredia en terrenos públicos propiedad de la Corporación, los cuales serán motivados en razones de oportunidad o conveniencia para el interés general, cumpliendo con los requisitos y procedimientos establecidos en este Reglamento, siempre y cuando no implique una desmejora en la disposición del bien.

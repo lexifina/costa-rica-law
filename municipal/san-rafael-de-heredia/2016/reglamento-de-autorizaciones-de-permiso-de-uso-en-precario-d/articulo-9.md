@@ -1,0 +1,2 @@
+CAPÍTULO V: DEL PROCEDIMIENTO PARA DICTAR LAS AUTORIZACIONES CONCRETAS DE PERMISO DE USO PRECARIO
+Artículo 9.- El Concejo Municipal conformará una Comisión Especial encargada de analizar los informes técnicos y las recomendaciones de asignación sugeridas por el IMAS y el cumplimiento de las condiciones y requisitos de los beneficiarios de las viviendas respecto de las cuales se otorgarán autorizaciones de uso en precario. Lo anterior de conformidad con las competencias establecidas en los artículos 8 incisos a) y b) y artículo 10 de este Reglamento.

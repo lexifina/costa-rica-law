@@ -1,0 +1,1 @@
+Artículo 11.- Una vez elegidas las familias en virtud de los informes técnicos, la resolución administrativa de permiso de uso precario dictada por la Alcaldía Municipal deberá estipular las obligaciones del permiso mediante un convenio.

@@ -1,0 +1,1 @@
+Artículo 23.- Las prohibiciones y limitaciones que contempla este reglamento, formarán parte integral del permiso de uso precario, así como cualquier limitación o afectación que leyes concordantes y conexas estipulen al efecto.

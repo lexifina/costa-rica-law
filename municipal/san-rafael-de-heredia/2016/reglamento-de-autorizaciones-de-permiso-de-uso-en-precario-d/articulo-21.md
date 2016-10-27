@@ -1,0 +1,1 @@
+Artículo 21.- El permisionario deberá cumplir con las condiciones de la resolución administrativa que autoriza el permiso de uso en precario y el pago de los servicios municipales y otros servicios públicos establecidos en el mismo. Al beneficiario que incumpla con dichas condiciones, se le revocará unilateralmente el permiso de uso en precario.

@@ -1,0 +1,1 @@
+Artículo 18.- Los permisionarios tendrán la obligación de pagar los servicios municipales, de dar mantenimiento a la infraestructura de la vivienda y a garantizar el buen funcionamiento de toda instalación eléctrica y pluvial, de los servicios sanitarios y de todos el inventario de muebles levantado al momento de la entrega de uso precario de la vivienda.

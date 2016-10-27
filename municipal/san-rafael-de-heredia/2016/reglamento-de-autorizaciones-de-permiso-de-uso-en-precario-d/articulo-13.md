@@ -1,0 +1,1 @@
+Artículo 13.- Luego de transcurrido el plazo de tres años deberá ejecutarse de nuevo el procedimiento de asignación de permiso de uso precario. Vencido este plazo y a solicitud de los permisionarios, podrán ser valorados como candidatos en el nuevo procedimiento de asignación de permiso de uso precario.
