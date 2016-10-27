@@ -1,0 +1,5 @@
+Artículo 9o- La compra de bienes y/o servicios se tramitará por el fondo de caja chica, solamente cuando se den las siguientes condiciones:
+a. Si el subproceso de Tesorería verifica que en la bodega Municipal no hay existencia del bien que se solicita.
+b. Si ninguna dependencia o funcionario de la Municipalidad, según sus funciones, está en la posibilidad de prestar el servicio de que se trate.
+c. Si los bienes o servidos'son tan indispensables y de verdadera urgencia, que se justifique su pago fuera de los trámites ordinarios que establece la Ley y el Reglamento de Contratación Administrativa, en cuyo caso, la Jefatura del Proceso solicitante deberá dejar constancia mediante acto motivado de la necesidad del pago con fondos de la caja chica junto con el visto bueno de la Dirección del Macroproceso respectivo.
+d. Si son gastos de la partida de servicios no personales, o de la partida de materiales y suministros, siempre que exista contenido económico y presupuestario con cargo a estas partidas.

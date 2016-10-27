@@ -1,0 +1,1 @@
+Artículo 5o- El monto del vale de caja chica se podrá aumentar, previa autorización de la Dirección Financiera Administrativa, de forma semestral en los meses de junio y diciembre, o se decidirá prescindir de realizar aumentos, todo de conformidad con los índices de inflación publicados por el Ministerio de Economía, Industria y Comercio.
