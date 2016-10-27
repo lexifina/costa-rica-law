@@ -1,1 +1,1 @@
-Artículo 31.- Bajo ninguna circunstancia podrá el estudiante titularse en la Enseñanza de dos especialidades técnicas, por lo que en caso de dos o más titulaciones en distintas especialidades técnicas, el estudiante deberá elegir entre ellas y presentar el diploma correspondiente a la especialidad que haya elegido.
+Artículo 31.- (Derogado en sesión N° 23 del 27 de octubre de 2016)
