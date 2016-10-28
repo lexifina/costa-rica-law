@@ -1,0 +1,2 @@
+Transitorio único: Las presentes disposiciones rigen a partir de la fecha de su publicación en el Diario Oficial La Gaceta, sin afectar las solicitudes de financiamiento que a esa fecha se encuentren en trámite en las entidades autorizadas y que hayan sido reportadas al BANHVI, por parte de las entidades autorizadas, dentro de los 15 días hábiles posteriores a la fecha de publicación del presente acuerdo en el Diario Oficial La Gaceta.
+Acuerdo unánime y firme.
