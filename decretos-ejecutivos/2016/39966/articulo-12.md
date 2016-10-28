@@ -1,0 +1,1 @@
+Artículo 12.- Se declara de interés público el funcionamiento y las actividades que realice la Comisión lnterinstitucional del SICA y, consecuentemente, se solicita la colaboración de las entidades públicas y privadas, para que, apoyen el trabajo que deberá ser desarrollado por la Comisión.

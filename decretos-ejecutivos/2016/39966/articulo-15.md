@@ -1,0 +1,1 @@
+Artículo 15.- La Coordinación de Comisión lnterinstitucional del SICA podrá contar con un Comité Asesor integrado por instituciones y expertos independientes, quienes serán invitados por la Coordinación según sea necesario de acuerdo con los temas a tratar.
