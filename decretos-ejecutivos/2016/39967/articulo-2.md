@@ -1,0 +1,2 @@
+Artículo 2° -Refórmese el artículo 3 º del Reglamento de Órganos Jerárquicos Superiores del Ministerio de Justicia y Paz, Decreto Ejecutivo número 37360-JP, del 27 de junio de 2012, para que en adelante se lea:
+Articulo 3 °-El Viceministro/a de Paz tendrá a su cargo la coordinación de los programas de prevención del delito y de la violencia social, así como el control de espectáculos públicos y como fin primordial, la promoción de una cultura de paz. Esto sin perjuicio de otras funciones que el ministro/a de Justicia y Paz le encomiende o delegue."
