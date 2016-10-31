@@ -47,3 +47,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 32 | 2016-10-13 | Decreto Ejecutivo 40019 (2016-10-13) |
 | 33 | 2016-10-21 | Decreto Ejecutivo 40002 (2016-10-21) |
 | 34 | 2016-10-31 | Decreto Ejecutivo 40000 (2016-10-31) |
+| 35 | 2016-10-31 | Decreto Ejecutivo 39999 (2016-10-31) |
