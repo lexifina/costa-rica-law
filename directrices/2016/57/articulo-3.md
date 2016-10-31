@@ -1,0 +1,1 @@
+Artículo 3°.- Obligación de las personas funcionarias. Es obligación de todas las personas funcionarias respetar de manera integral los derechos humanos de esta población, derivados del marco normativo nacional e internacional sobre la materia.
