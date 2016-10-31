@@ -1,1 +1,0 @@
-Artículo 77.—El Comité Cantonal regulara y presentara ante el Concejo Municipal anualmente, los montos por concepto de uso y de alquiler de las instalaciones deportivas, de conformidad con el inciso q) del artículo 5 del presente reglamento.

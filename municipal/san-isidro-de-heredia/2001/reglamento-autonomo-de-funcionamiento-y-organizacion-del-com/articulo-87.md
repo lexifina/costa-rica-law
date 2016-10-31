@@ -1,1 +1,0 @@
-Artículo 87.—Una vez al año se dará el respectivo mantenimiento a las instalaciones deportivas, esto en cualquiera de los meses, debiendo permanecer totalmente cerradas las instalaciones durante el tiempo necesario para la realización del mismo, para lo cual deberán comunicarlo a los interesados y usuarios de éstas.

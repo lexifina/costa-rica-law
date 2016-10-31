@@ -1,1 +1,0 @@
-Artículo 28.—Los acuerdos tomados por la Junta Directiva quedarán definitivamente aprobados al existir votación favorable de todos los miembros presentes del Comité Cantonal o al aprobarse el acta respectiva.

@@ -1,1 +1,0 @@
-Artículo 8°—El Comité Cantonal ejercerá los controles que corresponden, para que sus órganos y afiliados, cumplan con las funciones asignadas para el logro de dichas políticas, para fomentar, tutelar y dirigir el deporte y la recreación.

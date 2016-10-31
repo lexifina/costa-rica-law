@@ -1,1 +1,0 @@
-Artículo 66.—De cada una de las Asambleas se levantara un acta que deberá estar debidamente firmada por todos los miembros presentes del Comité Cantonal. Cada una de esas actas será comunicada al Concejo Principal para su conocimiento en su sesión ordinaria más próxima a la celebración de cada una de las Asambleas.

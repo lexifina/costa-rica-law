@@ -1,1 +1,0 @@
-Artículo 71.—En caso de renuncia o sustitución de uno o más de los miembros del Comité Comunal, la sustitución se realizará de acuerdo con ternas a considerar por el Comité Cantonal de Deportes. En caso de renuncia o destitución de la Junta Directiva en pleno, el Comité Cantonal convocara a una nueva elección de conformidad con la sección segunda del presente capítulo.

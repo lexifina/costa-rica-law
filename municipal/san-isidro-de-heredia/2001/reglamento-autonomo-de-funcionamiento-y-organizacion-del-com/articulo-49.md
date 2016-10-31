@@ -1,1 +1,0 @@
-Artículo 49.—El Comité Cantonal y sus órganos adscritos sólo podrán invertir sus fondos en terrenos v propiedades que pertenezcan a la Municipalidad de San Isidro de Heredia o sean propiedad del ICODER y se ubiquen dentro de la jurisdicción del cantón, o en instalaciones deportivas y recreativas de carácter público financiadas con fondos de la administración del Estado.

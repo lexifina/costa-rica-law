@@ -1,1 +1,0 @@
-Artículo 40.—Los particulares tendrán los recursos de revocatoria ante el Comité Cantonal y de Apelación ante el Concejo Municipal en lo administrativo, y ante el ÍCODER en lo deportivo, todo dentro del quinto día hábil contando a partir de la notificación del acuerdo y en memorial razonado. El Comité Cantonal deberá conocer el recurso respectivo en la sesión ordinaria siguiente.

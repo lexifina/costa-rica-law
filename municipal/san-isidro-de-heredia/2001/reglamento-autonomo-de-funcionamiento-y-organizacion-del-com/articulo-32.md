@@ -1,1 +1,0 @@
-Artículo 32.—Cuando un miembro de la Junta Directiva del Comité Cantonal renuncie a su cargo, deberá comunicarlo por escrito al Comité Cantonal con quince (15) días de antelación de la puesta en practica de la renuncia. Además deberá entregar por escrito un informe bien detallado de sus últimas gestiones en la comisión que estuviere nombrado.

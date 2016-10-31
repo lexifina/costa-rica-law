@@ -1,1 +1,0 @@
-Articulo 24.—Todo miembro de la Junta Directiva deberá comunicar en forma escrita, cuando proceda, las razones de su inasistencia a las sesiones, a más tardar dentro de las cuarenta y ocho horas siguientes a su ausencia en la oficina del Comité Cantonal; caso contrario, será catalogada la asistencia como injustificada y sancionable.

@@ -1,4 +1,0 @@
-Artículo 45.—Los recursos del Comité Cantonal solamente se podrán invertir en obras de interés deportivo y recreativo, ubicados dentro de los limites del cantón, así como en la capacitación de atletas. entrenadores, árbitros y dirigentes isidreños.
-Además se subvencionará a organizaciones que organicen actividades deportivas, y aquellos deportes colectivos que representen al cantón, a nivel regional o nacional, en cualquier disciplina y categoría en torneos de FECOA, FECOBOL, LINAFA, FUT-SAL, FECOCI y otras disciplinas deportivas debidamente inscritas; siempre y cuando se demuestre que más del 60% de sus integrantes son isidreños.
-(Así adicionado el párrafo anterior mediante sesión N° 36 del 05 de junio del 2006)
-(Así reformado el párrafo anterior en sesión N° 74-2010 del 25 de octubre de 2010)

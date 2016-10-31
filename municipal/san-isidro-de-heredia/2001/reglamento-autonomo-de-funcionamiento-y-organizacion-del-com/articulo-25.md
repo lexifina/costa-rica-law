@@ -1,1 +1,0 @@
-Articulo 25.—El quórum para sesionar en las sesiones ordinarias como extraordinarias de la Junta Directiva estará integrado por la mitad más uno de la totalidad de sus miembros. Los acuerdos se tomaran por mayoría simple de los votos presentes, salvo si este reglamento señala un mayor número de votos. En caso de empate de una votación, el Presidente tendrá doble voto.

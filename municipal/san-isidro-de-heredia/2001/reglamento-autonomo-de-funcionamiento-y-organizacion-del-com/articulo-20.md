@@ -1,1 +1,0 @@
-Artículo 20.—En la primera sesión que celebre el Comité Cantonal, una vez juramentados todos sus miembros por el Concejo Municipal, designaran los cargos de la Junta Directiva: Presidente, Vicepresidente, Secretario, Tesorero y Vocal.

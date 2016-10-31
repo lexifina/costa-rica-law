@@ -1,2 +1,0 @@
-Artículo 22.—Las sesiones extraordinarias de la Junta Directiva serán convocadas por el Presidente a solicitud de por lo menos tres miembros, y con por lo menos veinticuatro horas de antelación. La invitación a dicha sesión deberá indicar el día y hora de la sesión y los asuntos por tratar, asimismo el lugar donde se realizara la reunión.
-Podrán celebrarse sesiones extraordinarias en otros lugares del cantón, cuando la índole de los asuntos por tratar así lo requiera, especificándose en la convocatoria.

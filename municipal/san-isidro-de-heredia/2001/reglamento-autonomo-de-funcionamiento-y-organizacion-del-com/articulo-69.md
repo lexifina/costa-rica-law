@@ -1,1 +1,0 @@
-Artículo 69.—En cuanto a las sesiones, causas de sustitución, y actas de los Comités Comunales, se regirá por las mismas disposiciones de las Sección 111. IV, y V, del Capitulo III del Título I de este Reglamento respectivamente.

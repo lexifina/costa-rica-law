@@ -1,1 +1,0 @@
-Artículo 86.—Las instalaciones deportivas existentes en instituciones educativas como gimnasios, plazas, pistas de atletismo, piscinas y otros que hayan sido construidos con fondos públicos o por dependencias gubernamentales, podrán ponerse al servicio de las respectivas comunidades del cantón según las regulaciones que rijan en cada caso.

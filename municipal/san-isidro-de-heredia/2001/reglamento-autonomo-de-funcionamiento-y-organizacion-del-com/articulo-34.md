@@ -1,2 +1,0 @@
-Artículo 34.—Cuando algún cargo de la Junta Directiva quede vacante, ya sea por sustitución o renuncia de alguno de sus miembros, el Concejo Municipal procederá a la reposición inmediata del miembro separado, para lo cual pedirá la organización que éste representa el envió de una tema para remplazar el cargo. Si dicha organización no presenta la tema correspondiente el Concejo Municipal quedará en libertad de escoger a la persona que considere apta para ejercer tal cargo.
-De todo este movimiento, la Junta Directiva informará por escrito al ICODER.

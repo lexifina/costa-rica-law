@@ -1,1 +1,0 @@
-Artículo 47.—Cada trimestre los tesoreros de los Comités Comunales y de las Comisiones deberán presentar ante la Junta Directiva del Comité Cantonal, el libro de tesorería, adjuntando las facturas, comprobantes y recibos correspondientes para su respectiva revisión; si éste no se presentare a la Junta Directiva del Comité Cantonal paralizará cualquier gestión económica.

@@ -1,2 +1,0 @@
-Artículo 48.—Se prohíbe el uso de carácter personal de dineros provenientes de ingresos por actividades deportivas o recreativas: por el incumplimiento de ésta disposición, el responsable será expulsado del organismo u órgano correspondiente, debiendo reintegrar el dinero que en tal caso haya utilizado y no se descarta continuar con el proceso en los Tribunales de Justicia.
-De igual forma se prohíbe al Comité Comunal hacer uso de los dineros o fondos del mismo, para dar obsequios a equipos o personas. pagar facturas por concepto de fiestas o regalías.

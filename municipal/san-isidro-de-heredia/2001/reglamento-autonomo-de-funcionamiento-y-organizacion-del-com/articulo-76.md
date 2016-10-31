@@ -1,3 +1,0 @@
-Artículo 76.—La Junta Directiva del Comité Cantonal para el ordenamiento de su uso y empleo, clasificará todas las instalaciones deportivas existentes en el cantón por categorías de acuerdo con su infraestructura.
-De igual forma clasificará por categorías las distintas organizaciones deportivas y recreativas adscritas al Comité Cantonal y existentes en cada una de las distintas disciplinas deportivas, de conformidad con el grado de competición en el que participan.
-De conformidad con la categoría de la instalación y con la categoría de la organización deportiva o recreativa, se definirán las costas por derecho de uso y alquiler de las instalaciones y el período que abarca.

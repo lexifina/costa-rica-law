@@ -1,1 +1,0 @@
-Artículo 60.—Todo postulante cumplir con los requisitos del artículo 10 del Reglamento de Elección. Asimismo deberán aportar además personería jurídica vigente de su respectiva organización deportiva o recreativa. u organización comunal, y copia certificada por un Notario Público de la cédula jurídica de la organización que representen.
