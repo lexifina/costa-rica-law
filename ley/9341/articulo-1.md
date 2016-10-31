@@ -11,6 +11,7 @@ INCISO B:
 DETALLE DEL CÁLCULO DE LOS INGRESOS EXTRAORDINARIOS INTERNOS DEL GOBIERNO
 DE LA REPÚBLICA PARA EL EJERCICIO ECONÓMICO DE 2016 (en colones)
 (Así reformado por el artículo 1° de la ley N° 9385 del 29 de julio del 2016)
+(Modificado el inciso b) por el artículo 1° del decreto ejecutivo N° 39991 del 20 de octubre de 2016)
 Autorízase al Poder Ejecutivo para emitir hasta TRES BILLONES SEISCIENTOS CUARENTA Y OCHO MIL CIENTO CUARENTA Y SIETE MILLONES OCHOCIENTOS SETENTA MIL NOVECIENTOS SESENTA Y CINCO COLONES 00/100 en Títulos Valores de Deuda Interna 2016.
 Parte de estas emisiones podrán realizarse en moneda extranjera.
 El Poder Ejecutivo queda autorizado para establecer vía reglamento, el plazo hasta por
