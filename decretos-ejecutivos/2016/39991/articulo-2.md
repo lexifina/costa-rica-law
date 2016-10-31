@@ -1,0 +1,1 @@
+Artículo 2°.— Modificanse los artículos 2°, 40, 50 y 6° de la Ley No. 9341, Ley de Presupuesto Ordinario y Extraordinario de la República para el Ejercicio Económico del 2016, publicada en el Alcance Digital No. 112 a La Gaceta No. 240 de 10 de diciembre de 2015, con el fin de realizar el traslado de partidas en los Órganos del Gobierno de la República aquí incluidos.
