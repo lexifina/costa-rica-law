@@ -1,0 +1,17 @@
+N° 39940-H
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE HACIENDA
+Con fundamento en los artículos 140 incisos 3) y 18) y 146 de la Constitución Política de 7 de noviembre de 1949, los numerales 27 y 28 acápite 2 inciso b) de la Ley N° 6227 del 2 de mayo de 1978 y sus reformas, Ley General de la Administración Pública; y el artículo 106 quáter de la Ley N° 4755 del 3 de mayo de 1971 y sus reformas, Código de Normas y Procedimientos Tributarios; y
+Considerando:
+I. Que mediante el Decreto Ejecutivo N° 38277-H del siete de marzo de 2014, publicado en el Alcance N° 10 a La Gaceta N° 65 del 02 de abril de 2014, se emitió el Reglamento de Procedimiento Tributario (en adelante RPT).
+II. Que mediante el Decreto Ejecutivo N° 39673-H del 28 de enero de 2016, publicado en el Alcance N° 92 a La Gaceta N° 108 del 6 de junio de 2016, se reformó, entre otros, el artículo 108 del RPT, para efectos de ajustarlo con el procedimiento que establece el artículo 106 quáter del Código de Normas y Procedimientos Tributarios, Ley N° 4755 del 3 de mayo de 1971, introducido por el artículo I o de la Ley N° 9296 del 18 de mayo de 2015.
+III. Que se requiere modificar el párrafo primero del numeral 108 del RPT, a efectos de que no se mencione la Dependencia de la Dirección General de Tributación a la que, conforme con sus funciones, le corresponde la tramitación de las solicitudes de intercambio de información tributaria, que regula dicho artículo, ya que se trata de un asunto de organización interna según criterios de oportunidad y conveniencia, sin que afecte en modo alguno a los interesados, pues con estos cambios no se alectan los derechos de los contribuyentes; tampoco los principios de seguridad jurídica y legalidad,
+Por Tanto,
+Decretan:
+Reforma al artículo 108 del Reglamento de Procedimiento Tributario, Decreto Ejecutivo N°
+38277-H del 7 de marzo de 2014
+Artículo 1.- Refórmese el artículo 108 del Decreto Ejecutivo N° 38277-H del 7 de mareo de 2014, para que se lea así:
+Artículo 108.- Competencia, procedimiento y requisitos en el trámite de solicitud de información financiera por requerimiento de jurisdicción extranjera en aplicación de un convenio tributario internacional.
+Cuando la jurisdicción extranjera requirente, en aplicación de un convenio internacional que contemple el intercambio de información en materia tributaria, haya solicitado información financiera, el procedimiento a seguir es el señalado en el artículo 106 quáter del Código, siendo el Director General de Tributación el competente para llevar a cabo la solicitud de información, a través de la dependencia que este designe.
+La solicitud únicamente indicará los datos identificativos de la persona acerca de la cual se requiere información, sea el nombre, número de identificación o cualquier otro aspecto que lo identifique. No se proporcionará a la entidad requerida copia del requerimiento de información de la jurisdicción extranjera requirente, en virtud del carácter confidencial que cubre a la información obtenida al amparo de las disposiciones de un convenio internacional que contemple el intercambio de información en materia tributaria, de conformidad con el artículo 48 de este Reglamento.
+El carácter previsiblemente pertinente de la información financiera requerida está motivado y justificado por el hecho de tratarse de la aplicación de un convenio internacional que autoriza la obtención de esa información, de conformidad con lo que establece el Código; para lo cual se debe cumplir a cabalidad con todas las disposiciones del mismo.
