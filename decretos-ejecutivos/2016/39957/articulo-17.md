@@ -1,0 +1,1 @@
+Artículo 17.- Coordinación: Los grupos de trabajo (Sub comisiones) serán coordinados por la persona funcionaria que designe la Presidencia y serán las responsables ante la Comisión de la rendición de informes.

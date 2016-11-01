@@ -1,0 +1,3 @@
+CAPÍTULO V
+De los grupos de trabajo (Sub comisiones)
+Artículo 16.- Designación: La Presidencia designará los Grupos de Trabajo (Sub comisiones) para realizar actividades, análisis y estudios de apoyo a Jerarcas de la Institución, que coadyuven a la forma de decisiones y a fomentar el desarrollo integral del Ministerio. Cada grupo de trabajo presentará un informe final a la Comisión quien lo conocerá y, previo a su aprobación, podrá recomendar cambios y ampliaciones a dicho documento, a efectos de que constituya información suficiente para la definición de las políticas a establecer en materia de informática.
