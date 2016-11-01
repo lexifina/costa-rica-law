@@ -1,0 +1,1 @@
+Artículo 7.- Función del vicepresidente del Comité Cantonal. Corresponderá al vicepresidente sustituir al presidente durante su ausencia temporal, con todas las atribuciones y deberes atinentes al cargo enunciados en el artículo anterior.

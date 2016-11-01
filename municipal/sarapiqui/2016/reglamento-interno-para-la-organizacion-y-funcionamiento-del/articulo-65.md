@@ -1,0 +1,3 @@
+CAPÍTULO XI
+DISPOSICIONES FINALES
+Artículo 65.- Obligatoriedad de utilización de los símbolos del Cantón. En todo evento deportivo o recreativo a nivel nacional, regional o local, al que asistan atletas u otras personas en representación del cantón de Sarapiquí por delegación o anuencia expresa del Comité Cantonal, deberá utilizarse en su indumentaria u otros bienes accesorios, los símbolos oficiales de este cantón, aprobados mediante acuerdos del Concejo Municipal de Sarapiquí, dictados en la sesión ordinaria Nº 08-2012, artículo 4, celebrada el 20 de febrero del 2012 y sesión extraordinaria Nº 13-2011, artículo único, celebrada el 18 de noviembre del 2012, publicados en su orden, en la Gaceta N° 50 del 9 de marzo de 2012 y N° 53 del 14 de marzo de 2012.

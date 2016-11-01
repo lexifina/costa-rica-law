@@ -1,0 +1,1 @@
+Artículo 57.- Período de nombramiento. Los miembros de cada comité comunal durarán en sus cargos dos años, podrán ser reelegidos mediante ratificación en Asamblea General y no devengarán dietas ni remuneración alguna.

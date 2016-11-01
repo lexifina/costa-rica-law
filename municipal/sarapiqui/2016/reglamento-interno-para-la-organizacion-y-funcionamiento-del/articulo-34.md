@@ -1,0 +1,2 @@
+Artículo 34.- Desembolsos ordinarios de la Municipalidad de Sarapiquí a favor de Comité Cantonal. Para cumplir con la trasferencia de recursos asignada en el presupuesto ordinario, según se dispone en el artículo 170 del Código Municipal, la Dirección Financiera – Tributaria de la
+Municipalidad elaborará anualmente en el mes de enero, un cronograma de desembolsos de los recursos al Comité Cantonal, congruente con el presupuesto de gastos presentado por ese órgano.

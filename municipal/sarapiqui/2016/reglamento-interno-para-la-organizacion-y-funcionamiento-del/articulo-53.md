@@ -1,0 +1,1 @@
+Artículo 53.- Responsabilidad de construcción de instalaciones deportivas y recreativas. Corresponderá a la Municipalidad de Sarapiquí la construcción de infraestructura deportiva o recreativa; sin embargo, el Comité Cantonal podrá presupuestar recursos con ese fin, sin afectar sus programas o proyectos deportivos y recreativos.

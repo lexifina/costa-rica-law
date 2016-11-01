@@ -1,0 +1,1 @@
+Artículo 63.- Registro de actividades. Los Comités Comunales deberán llevar un archivo administrativo y financiero en el que consten los informes y comprobantes de las operaciones que efectúe referentes a su gestión, los cuales podrán ser solicitados por el Comité Cantonal en cualquier momento.

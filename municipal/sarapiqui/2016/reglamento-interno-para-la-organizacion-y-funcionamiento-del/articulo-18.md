@@ -1,0 +1,1 @@
+Artículo 18.- Forma de presentación de mociones. Las mociones deberán ser presentadas oportunamente al iniciar la sección de la agenda correspondiente a “mociones y acuerdos”, las cuales podrán ser planteadas en forma verbal o mediante escrito. En este último supuesto, la moción será leída por el auxiliar administrativo.

@@ -1,0 +1,3 @@
+CAPÍTULO VII
+GESTIÓN FINANCIERA Y PRESUPUESTARIA DEL COMITÉ CANTONAL
+Artículo 28.- Sujeción a la normativa financiera y presupuestaria. El Comité Cantonal estará sometido en todas las fases del proceso presupuestario (formulación, aprobación, ejecución, control y evaluación), a las regulaciones dispuestas en la Ley de la Administración Financiera de la República y Presupuestos Públicos (Títulos II y X), el Código Municipal y a las disposiciones técnicas emitidas por la Contraloría General de la República sobre la materia, especialmente las contenidas en las Normas Técnicas sobre Presupuesto Público N-1-2012-DC-DFOE1 y sus reformas, sin que le sea dable desconocerlas o desaplicarlas.

@@ -1,0 +1,3 @@
+CAPÍTULO X
+COMITÉS COMUNALES DE DEPORTES Y RECREACIÓN
+Artículo 55.- Constitución. Los Comités Comunales de Deportes y Recreación son órganos inferiores adscritos al Comité Cantonal de Deportes y Recreación de Sarapiquí integrados cada uno de éstos, por cinco miembros residentes en barrios o poblados del cantón de Sarapiquí, definidos conforme a la división territorial administrativa de la República de Costa Rica (Decreto Ejecutivo No. 39286-MGP del 28 de mayo del 2015) y su misión será coadyuvar con el Comité Cantonal en la extensión de sus programas y proyectos en todo el territorio de Sarapiquí, para que los habitantes de las comunidades más alejadas de la cabecera del cantón, en especial, participen y se beneficien de éstos con igualdad de oportunidades.
