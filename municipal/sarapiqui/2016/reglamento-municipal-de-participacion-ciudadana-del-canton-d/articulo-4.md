@@ -1,0 +1,1 @@
+Artículo 4—Principio de no discriminación. La Municipalidad no podrá realizar ningún tipo de discriminación por razón de género, sexo, creencias, etnia, edad, discapacidad, nacionalidad, grupo o clase social, ya sea por acción u omisión, legítima o ilegítima, directa o indirecta. Además, impulsará políticas que impidan cualquiera de las formas anteriores de discriminación.

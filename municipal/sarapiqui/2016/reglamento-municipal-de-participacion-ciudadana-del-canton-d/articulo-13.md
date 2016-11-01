@@ -1,0 +1,1 @@
+Artículo 13—El Alcalde Municipal propondrá en la elaboración de cada Proyecto de Presupuesto Ordinario, la incorporación de recursos para la comunicación de acciones de la Municipalidad, gestión para fomentar la participación ciudadana y las formas para instrumentalizar las mismas.

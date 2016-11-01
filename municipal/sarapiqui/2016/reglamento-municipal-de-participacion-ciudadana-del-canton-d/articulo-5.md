@@ -1,0 +1,1 @@
+Artículo 5—Principio de accesibilidad a la función pública. La Municipalidad gestionará los espacios y mecanismos que sean necesarios para garantizar a los administrados y las administradas un verdadero acceso a sus dependencias, oficinas, registros, a fin de hacer efectivo el principio de información y la verdadera participación ciudadana en la gestión municipal.
