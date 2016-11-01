@@ -1,0 +1,3 @@
+Artículo 3.- Competencia del ICODER.
+Para todos los efectos tributarios de la exoneración prevista en el artículo 100 de la Ley N° 7800 y de la excepción contenida en el inciso k) del artículo 1 de la Ley N° 6826, el ICODER es la entidad pública competente para emitir la resolución de reconocimiento como espectáculo deportivo de los espectáculos, actividades o torneos deportivos para los cuales se soliciten tales beneficios fiscales.
+Dentro de la motivación del reconocimiento como evento deportivo de los espectáculos, actividades o torneos deportivos para los cuales se soliciten tales beneficios fiscales deberá incluirse en todos los casos en el expediente, la justificación técnica de la calificación de la actividad, espectáculo o torneo de índole deportivo.

@@ -1,0 +1,3 @@
+Artículo 7.- Competencia de la Dirección General de Tributación y del Teatro Nacional.
+La Dirección General de Tributación actuará como Administración Tributaria del Impuesto de Espectáculos Públicos.
+El Teatro Nacional ejercerá como órgano auxiliar en la gestión de fiscalización, administración, recaudación y distribución de dicho tributo, mediante la tramitación de cada caso concreto, verificando que las agrupaciones y organizadores de los eventos o actividades deportivas que se presentan a su consideración, cumplan con los requisitos establecidos por la normativa legal y reglamentaria aplicables.

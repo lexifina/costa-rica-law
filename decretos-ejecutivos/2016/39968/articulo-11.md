@@ -1,0 +1,2 @@
+Artículo 11.- Consecuencias del incumplimiento.
+El beneficiario que incumpla los fines que motivaron el otorgamiento de la exención deberá sujetarse a lo dispuesto en el procedimiento administrativo determinado en los artículos 37 y siguientes de la Ley N° 7293 de 31 de marzo de 1992 denominada “Ley Reguladora de Exenciones Vigentes, Derogatorias y Excepciones” y cualquier otra de carácter civil, penal o administrativo.
