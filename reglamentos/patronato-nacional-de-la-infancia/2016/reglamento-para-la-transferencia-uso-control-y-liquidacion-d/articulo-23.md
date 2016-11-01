@@ -1,0 +1,2 @@
+Artículo 23. —Tratándose del giro correspondiente al mes de enero, el mismo se realizará dentro de los primeros quince días de ese mes, conforme al total de los cupos aprobados por la Junta Directiva y establecidos en el convenio.
+Los giros siguientes se realizarán conforme a los listados de población atendida que remita el Departamento de Acreditación a la Oficina de Transferencias y Control, oficina que realizará los ajustes negativos por menor cantidad de población atendida, ajustes que se aplicarán en el mes siguiente.

@@ -1,0 +1,2 @@
+Artículo 51. —Una vez emitida la medida cautelar de suspensión ante causam del giro de los recursos, el Departamento Financiero Contable deberá dar audiencia a la Organización no Gubernamental dentro del plazo de 24 horas para que este aporte la prueba que considere pertinente, y así valorar la revocatoria o el mantenimiento de la medida cautelar.
+La medida cautelar ante causam deberá dictarse quince antes de la apertura del acto inicial del procedimiento administrativo sancionatorio mencionado en el artículo 49 anterior del presente reglamento.

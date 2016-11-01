@@ -1,0 +1,3 @@
+ANEXO 5
+DETALLE DE EGRESOS
+[imagen]

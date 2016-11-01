@@ -1,0 +1,2 @@
+Artículo 69.—En el mes de diciembre y conforme a la disponibilidad presupuestaria del PANI, la Oficina de Transferencias y Control, podrá realizar un giro adicional por concepto de bono navideño, correspondiente a una subvención mensual para cubrir los pagos propios de la época navideña.
+El PANI, conforme a la disponibilidad presupuestaria podrá autorizar bonos extraordinarios a los hogares solidarios subvencionados.

@@ -1,0 +1,1 @@
+Artículo 68.—Para el reconocimiento de pago del Hogar Solidario, la Oficina Local deberá remitir en los primeros diez días hábiles de cada mes, al Departamento Financiero Contable- Contable, el formulario denominado “Planilla de Pago e Información Mensual para Hogares Solidarios Subvencionados” (Anexo 7).

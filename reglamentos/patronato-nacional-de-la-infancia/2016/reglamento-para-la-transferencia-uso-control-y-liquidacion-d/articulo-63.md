@@ -1,0 +1,3 @@
+Artículo 63. —Si al finalizar el proyecto la Organización no Gubernamental no gastó el 100 % de los recursos girados por el PANI, el monto remanente deberá reflejarse en la liquidación y hacerse devolución del mismo al PANI, depositándolo en la Caja de la Tesorería en las Oficinas Centrales o en la cuenta corriente PANI – Banco Nacional de Costa Rica No. 100-01-000-001535-4, cuenta cliente No. 15100010010015355.
+En caso de haber remanente, deberá presentar como parte de la liquidación el comprobante correspondiente del reintegro realizado al PANI.
+De igual manera, si la organización incurre en gastos mayores a los recursos aprobados, los mismos serán asumidos por la Organización no Gubernamental.

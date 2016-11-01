@@ -1,0 +1,6 @@
+Artículo 58º—Corresponderá a la Asesoría Jurídica dentro del proceso de confección de convenios, lo siguiente:
+a) Realizar la propuesta de redacción de las clausulas correspondientes de cada convenio de cooperación y transferencia de recursos, consignando entre otros aspectos, los objetivos generales y específicos del proyecto a desarrollar, identificación de la población beneficiaria, cronograma y descripción de las actividades, aporte del PANI y la contrapartida que aportará la organización. Asimismo, deberán consignarse los aspectos relativos a la supervisión por parte de la Gerencia Técnica, mecanismos de control y fechas para la presentación de las liquidaciones.
+b) Posteriormente deberá someter cada propuesta de redacción al conocimiento de la Junta Directiva para su aprobación.
+c) Revisar que los expedientes enviados por la Gerencia Técnica, correspondientes a cada sujeto privado con los que se suscribirá convenio, incluyan todos los requisitos establecidos en el artículo 57 del presente reglamento y que los mismos se encuentren actualizados.
+d) Gestionar la firma de los convenios por parte del (los) representante (s) legal (es) de la Organización no Gubernamental y de la Presidencia Ejecutiva.
+e) Emitir la correspondiente aprobación interna a los convenios.
