@@ -1,0 +1,4 @@
+Artículo 10.—Del Pago del excedente de llamadas telefónicas. Si el monto del recibo telefónico excede los límites indicados en el artículo precedente, el beneficiario de la línea, deberá reembolsar al PANI el monto equivalente a la diferencia, de conformidad con los límites de consumo dispuestos en este Reglamento. El control sobre el excedente y la comunicación al beneficiario será responsabilidad del Departamento Administración de Presupuesto.
+Los reembolsos indicados se podrán realizar de las siguientes maneras:
+a) Vía depósito en la Caja Central de la Oficina de Tesorería del Patronato Nacional de la Infancia. El beneficiario deberá comunicar sobre este depósito al Departamento Administración de Presupuesto ya su jefatura inmediata.
+b) De no mediar depósito directo el reembolso deberá realizarse mediante el procedimiento de cobro administrativo.
