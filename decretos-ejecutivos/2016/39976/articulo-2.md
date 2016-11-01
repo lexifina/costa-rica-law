@@ -1,0 +1,1 @@
+Artículo 2°— Deróguese el Decreto Ejecutivo número 39829-H de fecha 11 de julio de 2016, publicado en el Alcance número 132 en la Gaceta número 146 de fecha 29 de julio de 2016, a partir de la vigencia del presente decreto.
