@@ -14,3 +14,4 @@ Normativa que Regula la Comisión Nacional de Excelencia Tecnológica y Médica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-10-20 | la propia norma |
+| 2 | 2016-11-02 | Reglamento 0 (2016-11-02) |

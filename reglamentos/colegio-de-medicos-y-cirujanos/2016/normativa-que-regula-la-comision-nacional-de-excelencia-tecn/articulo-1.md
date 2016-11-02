@@ -20,7 +20,8 @@ a) Un coordinador del Consenso Nacional de Asociaciones Médicas involucrados en
 b) Un representante de la patología del tema que se va a considerar.
 Estos representantes, según la agenda de cada sesión, podrán acompañarse de los asesores técnicos que considere.
 c) Adicionalmente, cada uno de los consensos nacionales en las especialidades de cardiovascular y endocrinología, una vez conformados, acreditarán como integrantes de la Comisión, a su propio representante respecto a los asuntos propios de su especialidad.
-ii.—El Director del Área de Calidad de Vida de la Defensoría de los Habitantes de la República.
+ii.— Un representante de la Defensoría de los Habitantes, quien será designado por dicha institución según la temática que se trate en cada convocatoria, en calidad de observador del proceso dentro del marco de su competencia.
+(Así reformado el inciso anterior en sesión ordinaria 2016-11-02 del 2 de noviembre de 2016)
 a) El Secretario Técnico del Consejo Nacional de Cáncer del Ministro de Salud.
 b) El Director de la Dirección de Farmacoterapia de la Caja Costarricense de Seguro Social.
 c) Un representante de las organizaciones no gubernamentales, debidamente inscritas, de pacientes oncológicos, y posteriormente se analizará la inclusión de organizaciones no gubernamentales cardiovasculares y de endocrinología, cuando estén debidamente conformados los consensos. Este representante será elegido en asamblea que las organizaciones realizarán conforme invitación que les cursará el Colegio de Médicos y Cirujanos al respecto.
