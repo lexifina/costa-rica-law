@@ -1,0 +1,25 @@
+Artículo 3.- Elemento objetivo de la infracción. Consiste en la realización de la conducta tipificada en las normas, para el caso concreto, el no suministrar la información solicitada en los términos requeridos, o bien entregarla con errores.
+La concreción de esta conducta requiere verificar la existencia de los siguientes componentes: una obligación de suministrar información previsiblemente pertinente para efectos tributarios ante la Administración Tributaria; un sujeto infractor; y el incumplimiento como tal.
+a. La obligación de terceros a suministrar información previsiblemente pertinente. Esta obligación surge de los artículos 105, 106, 106 bis y 106 ter del Código, así como de los reglamentos y resoluciones generales establecidos conforme al artículo 2 inciso d) del Código Tributario.
+b. El sujeto infractor. El sujeto infractor será toda persona física o jurídica, pública o privada, y que en ocasión de sus relaciones económicas, financieras y profesionales con otras personas, no proporciona la información previsiblemente pertinente para efectos tributarios que la Administración le hubiere solicitado o requerido, o bien la proporcione con errores.
+Al respecto, debe recalcarse la diferencia que existe entre el sujeto requerido en calidad de tercero y aquellos casos en que se solicita información a una persona en su condición de sujeto sometido a una actuación de control, en cuyo caso la conducta se tipifica en el artículo 82 inciso b) del Código, denominada “Resistencia a las actuaciones administrativas de control”. Por otra parte, no puede imputarse la infracción por el no suministro de información a los sujetos contemplados en el artículo 105 incisos a), b), c) y d) del Código1.
+1Esta limitación para la Administración no afecta la obligación de suministrar información que estas personas deben acatar cuando la información se les solicita en su condición de sujeto pasivo.
+c. El incumplimiento en el suministro de información. La conducta tipificada consiste en no suministrar la información a la Administración Tributaria, en el plazo indicado y bajo los términos solicitados, o bien suministrarla con errores.
+c.1. No suministro de información. El no suministrar2 la información requerida por la Administración consiste en no presentarla en los medios y con el contenido que la Administración indicó, ya sea por medio de reglamento o resolución (información por suministro), o bien por medio de requerimientos individualizados.
+2El concepto “suministrar” es definido por el Diccionario de la Real Academia Española como el “proveer a alguien de algo que necesita”. http://www.rae.es/
+Esta infracción puede ser cometida tanto por terceros como entidades financieras, por lo que su sanción será la regulada en los artículos 83 y 106 ter del Código Tributario, respectivamente.
+Lo anterior permite afirmar que para tener por cumplido el suministro de información, se debe entregar toda la información solicitada, en el plazo y bajo las condiciones señaladas por la Administración.
+Así, la infracción por no suministro de información se configura en los siguientes casos:
+c.1.1. No presentación de la información solicitada.
+c.1.2. Presentación de la información solicitada fuera del plazo otorgado para presentarla.
+c.1.3 Presentación de la información en forma incompleta o parcial.
+c.1.4. Presentación de la información sin cumplir las condiciones y especificaciones dadas por la Administración.
+c.1.5. Presentación de información que no corresponda con lo solicitado.
+En todos los supuestos mencionados, esta modalidad de infracción se consuma una vez vencido el plazo otorgado para presentar la información3.
+3En este sentido, debe tomarse en cuenta que si el tercero subsana su falta antes del vencimiento del plazo otorgado para proporcionar la información, no se configura la infracción, puesto que “quien tiene plazo nada debe”.
+c.2. Suministrar información con errores. En este supuesto, el tercero sí presenta la información dentro del plazo otorgado por la Administración Tributaria, solo que la aporta con errores. Para los efectos de su aplicación, el término “cada registro incorrecto” se deberá entender como cada dato suministrado por el tercero obligado, que contenga errores.
+El concepto “error” se define como: “Equivocación, yerro, desacierto. Concepto equivocado. Juicio inexacto o falso. Lo contrario de la verdad. Falsedad. Acción inconveniente, perjudicial o desacertada.” 4.
+4Guillermo Cabanellas de Torres, Diccionario Jurídico Elemental, Buenos Aires, Editorial Helista, p.148.
+En tal sentido, la información con errores, se delimitaría como aquella información que en su contenido posee equivocaciones o yerros.
+La infracción señalada no podrá ser aplicada a las entidades financieras contempladas en el artículo 106 bis.
+En todos los supuestos mencionados, esta modalidad de infracción se consuma en el momento en que la Administración constate el error cometido, aspecto que debe quedar demostrado en el expediente, ya sea por medio de actas o algún otro documento idóneo que permita verificar o cotejar el error cometido.

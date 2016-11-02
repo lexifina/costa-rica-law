@@ -1,0 +1,1 @@
+Artículo 4.- Aplicación de la sanción. El cálculo de la multa. La sanción establecida para los infractores del artículo 83 y 106 ter del Código consiste en una multa administrativa de tipo pecuniario, según el tipo de conducta tipificada.

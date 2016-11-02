@@ -1,0 +1,2 @@
+Artículo 8.- Sanción por constatarse errores en la información suministrada. La sanción aplicable constituye una multa equivalente al 1% del salario base, por cada registro incorrecto, esto es por cada dato reportado con errores.
+Para su cuantificación, debe utilizarse el salario base vigente al momento en que se consumó la infracción, es decir, al momento en que se evidencia y constata la existencia del error.

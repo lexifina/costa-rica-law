@@ -1,0 +1,2 @@
+Artículo 5.- Sanción por no suministro de información. Se sanciona con una multa equivalente al 2% de los ingresos brutos del sujeto infractor, declarados en su declaración del Impuesto a las Utilidades del periodo fiscal anterior al que se hubiere cometido la infracción, con un mínimo de diez salarios base y un máximo de cien salarios base.
+Para estos efectos deben tomarse los ingresos brutos reflejados en la declaración del Impuesto sobre las Utilidades del período fiscal anterior a aquel en que se produjo la infracción.
