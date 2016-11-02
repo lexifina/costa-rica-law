@@ -1,1 +1,0 @@
-Artículo 5º—De la descarga de la salmuera. La descarga de las aguas de rechazo o salmuera deberá retornarse al mar. Para ello, deberá indicar la técnica y la tecnología que empleará en dicha descarga, justificando técnicamente la elección de la misma, lo cual será evaluado en la viabilidad ambiental.
