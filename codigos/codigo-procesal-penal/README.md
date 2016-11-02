@@ -1,6 +1,6 @@
 # Código Procesal Penal
 
-Ley N° 7594 del 1996-04-10. SINALEVI, ficha 41297: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41297&param2=101880&param3=1>.
+Ley N° 7594 del 1996-04-10. SINALEVI, ficha 41297: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=41297&param2=107536&param3=1>.
 
 Publicada en La Gaceta N° 106 del 1996-06-04.
 
@@ -32,3 +32,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 22 de 47 | 2014-08-20 | Sala Constitucional, resolución 13820 (2014-08-20) | 2014-08-20 |
 | 23 de 47 | 2014-10-31 | Ley 9271 | 2014-09-30 |
 | 24 de 47 | 2014-10-31 | Sala Constitucional, resolución 2014-017411 (2014-10-22) | 2014-10-22 |
+| 25 de 47 | 2016-11-02 | Sala Constitucional, resolución 16111 (2016-11-02) | 2016-11-02 |

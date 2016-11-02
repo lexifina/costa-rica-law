@@ -1,1 +1,2 @@
 ARTICULO 401.-Casos de excepción El procedimiento establecido en este Título no será aplicable a los magistrados suplentes de la Corte Suprema de Justicia y del Tribunal Supremo de Elecciones. Tampoco será aplicable en materia contravencional, salvo que proceda la acumulación con un proceso por delito.
+(Mediante resolución de la Sala Constitucional N° 16111 del 2 de noviembre del 2016, se interpretó este numeral en el sentido de que sí cubre a los suplentes ese Título, cuando ejercen la suplencia de manera efectiva.)
