@@ -1,3 +1,0 @@
-Artículo 9º—Precio del E-100 y B-100 a RECOPE y al auto-consumidor. El precio de venta de los biocombustibles a RECOPE y a los autoconsumidores será de libre negociación entre las partes. Para el caso de RECOPE, se deberá fundamentar en un estudio referencial de precios, que garantice la sostenibilidad y rentabilidad de los biocombustibles.
-RECOPE podrá realizar mezclas en diferentes proporciones dentro los límites indicados en este Decreto, con el objeto de no afectar el precio final de los combustibles, todo para beneficio del consumidor.
-RECOPE hará contrataciones para la compra de etanol y biodiesel considerando un año o más de abastecimiento, sin perjuicio de entregas parciales.

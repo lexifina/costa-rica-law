@@ -1,1 +1,0 @@
-Artículo 7º—Inclusión del uso de Biocombustibles en el mercado de carbono nacional e internacional. Las personas físicas o jurídicas podrán utilizar el consumo de biocombustibles, como parte de los atributos que las califiquen como contribuyentes a la carbono-neutralidad del país, de empresas u organizaciones.

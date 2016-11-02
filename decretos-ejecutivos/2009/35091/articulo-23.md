@@ -1,1 +1,0 @@
-Artículo 23.—Habilitación para establecer plantas y procesos para producir biocombustibles. RECOPE queda facultada para establecer plantas de proceso para la producción de biocombustibles con materia prima nacional o importada, para su uso en estado puro o como mezcla con combustibles de origen fósil.

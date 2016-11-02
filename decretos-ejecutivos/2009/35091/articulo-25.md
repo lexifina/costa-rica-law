@@ -1,1 +1,0 @@
-Artículo 25.—Declaratoria de interés público. Se declara de conveniencia nacional e interés público los planes, proyectos y procesos relativos a la producción e industrialización de biocombustibles y sus mezclas con combustibles de origen fósil que realice RECOPE.
