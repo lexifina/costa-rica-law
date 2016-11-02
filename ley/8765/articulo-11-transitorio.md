@@ -1,0 +1,3 @@
+Transitorio XI.- Monto del aporte estatal
+Para las elecciones nacionales del año 2018 y las municipales del 2020, para cubrir los gastos de las campañas para elegir presidente, vicepresidentes, diputados y la totalidad de los cargos municipales, así como los gastos destinados a sus actividades permanentes de capacitación y organización política, de conformidad con el artículo 96 de la Constitución Política, los partidos políticos tendrán derecho a recibir una contribución estatal máxima equivalente a un cero coma once por ciento (0,11%) del Producto Interno Bruto (PIB) del año 2016.
+(Así adicionado por el artículo único de la ley N° 9407 del 2 de noviembre del 2016 “Reforma Código Electoral (Límite de Gasto Estatal en las Campañas Políticas de 2018 y 2020)”)
