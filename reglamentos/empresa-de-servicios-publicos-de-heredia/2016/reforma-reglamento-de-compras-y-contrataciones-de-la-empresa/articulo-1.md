@@ -1,0 +1,8 @@
+EMPRESA DE SERVICIOS PÚBLICOS DE HEREDIA S. A.
+La Junta Directiva de la Empresa de Servicios Públicos de Heredia S. A., en la sesión número tres mil seiscientos setenta y ocho - C de fecha tres de octubre del año dos mil dieciséis, en su artículo cuarto, inciso uno y mediante Acuerdo JD doscientos veintidós guión dos mil dieciséis aprobó “Reforma Reglamento de Compras y Contrataciones de la ESPH S. A.” y que dice así:
+Acuerdo JD 222-2016
+1. Aprobar la inclusión en el Reglamento de Compras y Contrataciones de la Empresa de Servicios Públicos de Heredia S. A., un artículo 41 bis), dentro del “Capítulo X – del Contenido del Cartel” que a la letra dice:
+Artículo 41 bis.—El Cartel de la Contratación, a solicitud de la unidad Responsable del proceso de compra o contratación, en forma excepcional y cuando las circunstancias así lo requieran, podrá solicitar la inclusión en las ofertas, de capacitaciones o entrenamientos en uso de equipos especiales, maquinaria o sistemas, que sean estrictamente necesarios para el manejo, operación o implementación adecuada de los bienes adquiridos. Cuando la capacitación o entrenamiento sea en el exterior, el cartel de la contratación deberá ser aprobado por la Junta Directiva, a la que deberá enviársele tanto el cartel como la justificación técnica, que determine con toda claridad, la necesidad imperiosa de la capacitación o entrenamiento.
+Ningún oferente podrá incluir en su oferta capacitaciones o entrenamientos dentro o fuera del país, que no fueran solicitados en el cartel, en cuyo caso se tendrán por no ofertados.”
+2. Publíquese en el Diario Oficial La Gaceta.
+3. Acuerdo firme.
