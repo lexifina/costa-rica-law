@@ -1,0 +1,1 @@
+ARTÍCULO 11.- Para efectos de registro al sistema presupuestario del ICAFE, la Unidad Financiera Contable incluirá el gasto correspondiente en el presupuesto del periodo y el debido registro contable.

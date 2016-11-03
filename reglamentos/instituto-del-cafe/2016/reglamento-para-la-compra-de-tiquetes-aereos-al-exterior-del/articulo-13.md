@@ -1,0 +1,2 @@
+ARTÍCULO 13.- Para efectos de este procedimiento, la administración deberá adoptar mecanismos de control que determinen la seguridad de la transacción, compra, y fidelidad de la obtención de los tiquetes aéreos; tales como la impresión del comprobante de la transacción y corroborar vía correo electrónico la reserva de tiquetes con la aerolínea.
+Para los efectos de este procedimiento, las medidas de control referidas, se aplicarán a todas las compras realizadas bajo este procedimiento sustitutivo.

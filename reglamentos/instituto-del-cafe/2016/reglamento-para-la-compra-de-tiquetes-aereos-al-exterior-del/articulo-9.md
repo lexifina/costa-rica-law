@@ -1,0 +1,1 @@
+ARTÍCULO 9.- Una vez seleccionado el tiquete que cumple con los requisitos expuestos en este procedimiento y que tenga el menor precio, el autorizado procederá con la debida transacción, en el mismo acto se generará la documentación probatoria de la transacción efectuada.
