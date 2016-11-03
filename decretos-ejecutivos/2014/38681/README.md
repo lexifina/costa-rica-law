@@ -14,3 +14,4 @@ Establece medidas de ordenamiento para el aprovechamiento de atún y especies af
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-05 | la propia norma |
+| 2 | 2016-11-03 | Decreto Ejecutivo 40007 (2016-11-03) |
