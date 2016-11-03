@@ -1,0 +1,1 @@
+Artículo 23.-Los Ministerios de Salud, de Seguridad Pública y Gobernación y Policía y de Relaciones Exteriores y Culto deberán coordinar lo necesario, para efectos de cumplimiento del presente Decreto Ejecutivo.

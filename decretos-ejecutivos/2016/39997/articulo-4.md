@@ -1,0 +1,1 @@
+Artículo 4.- Se faculta al Ministerio de Salud para que, vía resolución ministerial, debidamente razonada, establezca la lista de las zonas geográficas consideradas en riesgo de transmisión de fiebre amarilla. Dicha resolución ministerial deberá ser publicada en la página web del Ministerio de Salud: www.ministeriodesalud.go.cr

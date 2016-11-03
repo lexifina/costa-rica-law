@@ -1,0 +1,1 @@
+Artículo 22.- Se instruye a las autoridades del Ministerio de Relaciones Exteriores y Culto, para que por medio de las embajadas y consulados ubicados en otros países, se mantenga informada a la población sobre las disposiciones del presente Decreto Ejecutivo.

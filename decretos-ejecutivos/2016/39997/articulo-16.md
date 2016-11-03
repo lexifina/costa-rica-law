@@ -1,0 +1,1 @@
+Artículo 16.-En el caso de extranjeros no residentes con contraindicación para la vacunación contra fiebre amarilla que provengan de países o zonas geográficas de riesgo, deberán aportar previo al ingreso a territorio nacional, certificado médico avalado por la autoridad sanitaria nacional del país de donde proviene.

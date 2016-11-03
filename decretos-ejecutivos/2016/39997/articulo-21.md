@@ -1,0 +1,1 @@
+Artículo 21.-El Ministerio de Salud deberá mantener actualizada la información de la situación de la fiebre amarilla selvática en los países o zonas geográficas con transmisión, a fin de mantener actualizada la resolución ministerial a que se hace referencia en el artículo 4 del presente decreto ejecutivo.

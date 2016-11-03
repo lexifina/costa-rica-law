@@ -1,0 +1,1 @@
+Artículo 15.-También quedan exentas del requisito de vacunación las personas que proceden de países o zonas geográficas consideradas de riesgo, que antes de ingresar en el territorio nacional hayan permanecido por espacio de al menos seis (6) días, en un país o zona geográfica que no es de riesgo y no han desarrollado fiebre en ese período.

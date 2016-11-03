@@ -1,0 +1,1 @@
+Artículo 6.-Todas las personas que habitan en el país y que van a viajar a los países o zonas geográficas consideradas de riesgo y que tienen intenciones de regresar a Costa Rica, deberán vacunarse al menos 10 días antes de su salida del país.
