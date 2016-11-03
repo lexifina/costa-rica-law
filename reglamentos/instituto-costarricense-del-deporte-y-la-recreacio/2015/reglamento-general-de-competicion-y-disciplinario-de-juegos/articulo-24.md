@@ -1,3 +1,0 @@
-ARTICULO 24. FISCALES DE LAS COMPETENCIAS
-24.1 Las Federaciones Nacionales podrán nombrar delegados en las competencias que estimen conveniente. Su función será la de velar junto con los administradores de la competencia de que el evento se desarrolle dentro de la normativa. Brindará un informe de su accionar a las instancias que le designó.
-24.2 El Dpto. de Juegos Deportivos Nacionales podrá nombrar fiscales en las competencias que estimen convenientes. Su función será como observador del desarrollo de la competencia y reportar las incidencias que considere infringe las normas a la Federación o Asociación Nacional correspondiente. No tienen poder de decisión sobre el desarrollo del evento.
