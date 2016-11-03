@@ -1,0 +1,4 @@
+Artículo 22.- Procedimiento. El funcionario arrendador deberá realizar el siguiente procedimiento:
+a) Completará un formulario de #Reporte de kilometraje” por cada gira que pretenda realizar y lo presentará al Encargado de la Unidad Administrativa para su visto bueno en conjunto con la Dirección respectiva, posterior se tramitará ante la Unidad de Servicios Generales.
+b) Posteriormente, el funcionario arrendante completará el formulario denominado “Liquidación de pago de kilometraje” con todas las indicaciones ahí establecidas y lo trasladará a cada uno de los encargados de otorgar los respectivos visados.
+c) Una vez que el reporte de liquidación se encuentre visado tanto por el encargado de la Unidad Administrativa y la Dirección respectiva se remitirá a la Unidad Financiero Contable para el respectivo trámite de pago.

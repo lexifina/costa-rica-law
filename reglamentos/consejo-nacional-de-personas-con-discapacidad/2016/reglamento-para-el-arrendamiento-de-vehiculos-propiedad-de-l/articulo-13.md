@@ -1,0 +1,1 @@
+Artículo 13.- De los derechos del funcionario arrendador. El funcionario que suscribe el contrato tendrá derecho al reconocimiento de pago de kilometraje, según las normas establecidas en el presente reglamento.

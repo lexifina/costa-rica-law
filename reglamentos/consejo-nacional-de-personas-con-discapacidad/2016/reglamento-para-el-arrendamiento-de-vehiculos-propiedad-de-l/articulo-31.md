@@ -1,0 +1,1 @@
+Artículo 31.- Será aplicable a esta figura en forma supletoria la Ley de Tránsito por vías públicas terrestres y seguridad vial 9078 de 26 de octubre de 2012 y sus reformas, el Reglamento para el uso de vehículos propiedad del Consejo Nacional de Personas con Discapacidad y Registro Civil, Reglamento Orgánico de Conapdis, así como cualquier otra normativa.

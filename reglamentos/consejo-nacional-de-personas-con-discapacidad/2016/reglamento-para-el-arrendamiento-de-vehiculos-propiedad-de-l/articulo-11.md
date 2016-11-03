@@ -1,0 +1,1 @@
+Artículo 11. Resolución de cese. Si se produjeren algunas de las causales anteriores, la Dirección Ejecutiva deberá, mediante resolución motivada, dar por finalizada la relación contractual y notificar de ello al funcionario arrendante.
