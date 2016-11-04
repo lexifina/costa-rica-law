@@ -1,0 +1,1 @@
+Artículo 14.-Responsabilidad por la no presentación o renovación de la caución: El no rendir la caución dentro del plazo establecido, así como el no renovarla oportunamente, se considera falta de diligencia y originará al funcionario la responsabilidad administrativa que corresponda una vez realizado el debido proceso, de conformidad con la normativa vigente.

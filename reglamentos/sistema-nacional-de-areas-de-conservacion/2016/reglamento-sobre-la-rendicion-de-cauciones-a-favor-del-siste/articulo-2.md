@@ -1,0 +1,10 @@
+Artículo 2.- Definiciones. Para los efectos del presente reglamento, se entiende por:
+Administrador de fondos públicos: Funcionario que por sus labores y facultades puede disponer y determinar la utilización de los recursos, bienes y derechos propiedad del SINAC.
+Caución: Garantía o fianza que deberá rendir el funcionario que tenga a cargo la recaudación, custodia o administración de fondos y valores públicos, la cual deberá rendir de su propio peculio por medio de una póliza de fidelidad extendida por un ente asegurador.
+Cajero: Funcionario que se encarga de realizar las gestiones de cobro derivadas de la venta de tiquetes de entrada a las Áreas Silvestres Protegidas.
+Custodio de fondos o valores públicos: Funcionario que en virtud de sus labores, guarda o tiene a su cargo recursos, títulos valor, bienes o derechos de propiedad pertenecientes al SINAC.
+Fondos públicos: Son aquellos recursos monetarios, valores y demás bienes circulantes propiedad del Estado, órganos, empresas o entidades públicas.
+Funcionario del SINAC: Persona que se encuentra nombrada en forma temporal o permanente, cuyo salario es cubierto con recursos del Fondo Parques Nacionales o con la transferencia de gobierno denominada Fondo SINAC.
+Fiscalizador técnico de contrato: Funcionario designado por el Director Ejecutivo o el Director de Área de Conservación para que funja como fiscalizador técnico de convenios marco, contratos marco o trámites de contratación, quien debe realizar un control objetivo de la ejecución contractual, cumpliéndose a cabalidad el proceso de contratación administrativa, según lo estipulado en la Ley de Contratación Administrativa No. 7494 y el Reglamento a la Ley de Contratación Administrativa N° 33411.
+Póliza de fidelidad: Tiene como fin indemnizar las pérdidas que por dolo o culpa grave sufra un tercero por las responsabilidades pecuniarias en que pueda incurrir el asegurado, en el desempeño del puesto bajo su dirección y gobierno.
+Recaudador de fondos públicos: Funcionario que por sus tareas recauda o percibe rentas públicas a favor del Estado.

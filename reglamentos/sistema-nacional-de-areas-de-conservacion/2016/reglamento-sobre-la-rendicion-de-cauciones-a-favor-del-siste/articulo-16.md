@@ -1,0 +1,1 @@
+Artículo 16.-Vigencia de las cauciones. Las cauciones a favor del SINAC deberán tener una vigencia mínima de un año, siendo obligación del funcionario que la suscribe mantenerla vigente mientras el puesto que ocupe asilo requiera.

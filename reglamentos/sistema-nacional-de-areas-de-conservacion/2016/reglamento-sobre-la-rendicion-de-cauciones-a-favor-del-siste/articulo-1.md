@@ -1,0 +1,8 @@
+SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN
+R-SINAC-CONAC-050-2016
+SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN, a las catorce horas con cuarenta minutos del trece de octubre de dos mil dieciséis.
+Que el Consejo Nacional de Áreas de Conservación (CONAC) de conformidad con el Acuerdo Nº 22 de la Sesión Ordinaria Nº 03-2016 celebrada el día 28 de marzo del 2016, y en cumplimiento de los artículos 13 de la Ley de Administración Financiera de la República y Presupuestos Públicos Nº 8131, articulas 8 y 12 de la Ley General de Control Interno Nº 8292, artículos 3 y 4 de la Ley Contra la Corrupción el Enriquecimiento ilícito en la Función Pública Nº 8422, articulo 12 incisos c) y g) del Reglamento a la Ley de Biodiversidad Nº 7788, Decreto Ejecutivo Nº 34433-MINAE, aprueba y emite el presente:
+"REGLAMENTO SOBRE LA RENDICIÓN DE CAUCIONES A FAVOR DEL SISTEMA NACIONAL DE ÁREAS DE CONSERVACIÓN"
+CAPÍTULO 1
+Disposiciones generales
+Artículo 1.- Objetivo. Este reglamento tiene como objetivo establecer los lineamientos que deben seguirse para que los funcionarios del Sistema Nacional de Áreas de Conservación (SINAC) que tienen bajo su responsabilidad recaudar, custodiar o administrar fondos y valores públicos, rindan garantía con cargo a su propio peculio, en favor del SINAC para asegurar el correcto cumplimiento de sus deberes y obligaciones, en acatamiento de lo establecido en el artículo 13 de la Ley Nº 8131, Ley de Administración Financiera de la República y Presupuestos Públicos, artículo 8 y 12 de la Ley General de Control Interno Nº 8292 y el artículo 3 y 4 de la Ley Contra la Corrupción el Enriquecimiento ilícito en la función Pública.

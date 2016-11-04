@@ -1,0 +1,1 @@
+Artículo 6.- Simultaneidad de funciones sujetas a caución. El funcionario que esté obligado a presentar caución, y que se le asigne una nueva función que genere ese mismo deber, deberá rendirla por el monto de mayor valor, de conformidad con lo que establece el Capítulo III del presente Reglamento.

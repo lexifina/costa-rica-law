@@ -1,0 +1,1 @@
+Transitorio l. Los funcionarios del SINAC que al momento de entrada en vigencia de este Reglamento estén obligados a rendir caución y no la hayan rendido, contarán con un plazo de 20 días hábiles para gestionarla y presentarla ante el Departamento de Gestión del Recurso Humano y la Dirección Administrativa Financiera de la Secretaría Ejecutiva del SINAC.
