@@ -1,0 +1,6 @@
+Artículo 2
+1. El presente Acuerdo, al mejorar la aplicación de la Convención, incluido el logro de su objetivo, tiene por objeto reforzar la respuesta mundial a la amenaza del cambio climático, en el contexto del desarrollo sostenible y de los esfuerzos por erradicar la pobreza, y para ello:
+a) Mantener el aumento de la temperatura media mundial muy por debajo de 2 ºC con respecto a los niveles preindustriales, y proseguir los esfuerzos para limitar ese aumento de la temperatura a 1,5 ºC con respecto a los niveles preindustriales, reconociendo que ello reduciría considerablemente los riesgos y los efectos del cambio climático;
+b) Aumentar la capacidad de adaptación a los efectos adversos del cambio climático y promover la resiliencia al clima y un desarrollo con bajas emisiones de gases de efecto invernadero, de un modo que no comprometa la producción de alimentos; y
+c) Situar los flujos financieros en un nivel compatible con una trayectoria que conduzca a un desarrollo resiliente al clima y con bajas emisiones de gases de efecto invernadero.
+2. El presente Acuerdo se aplicará de modo que refleje la equidad y el principio de las responsabilidades comunes pero diferenciadas y las capacidades respectivas, a la luz de las diferentes circunstancias nacionales.

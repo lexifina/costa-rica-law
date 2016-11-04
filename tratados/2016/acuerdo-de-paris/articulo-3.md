@@ -1,0 +1,2 @@
+Artículo 3
+En sus contribuciones determinadas a nivel nacional a la respuesta mundial al cambio climático, todas las Partes habrán de realizar y comunicar los esfuerzos ambiciosos que se definen en los artículos 4, 7, 9, 10, 11 y 13 con miras a alcanzar el propósito del presente Acuerdo enunciado en su artículo 2. Los esfuerzos de todas las Partes representarán una progresión a lo largo del tiempo, teniendo en cuenta la necesidad de apoyar a las Partes que son países en desarrollo para lograr la aplicación efectiva del presente Acuerdo.

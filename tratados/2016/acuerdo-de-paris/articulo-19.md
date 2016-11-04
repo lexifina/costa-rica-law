@@ -1,0 +1,3 @@
+Artículo 19
+1. Los órganos subsidiarios u otros arreglos institucionales establecidos por la Convención o en el marco de esta que no se mencionan en el presente Acuerdo estarán al servicio de este si así lo decide la Conferencia de las Partes en calidad de reunión de las Partes en el presente Acuerdo. La Conferencia de las Partes en calidad de reunión de las Partes en el presente Acuerdo especificará las funciones que deberán ejercer esos órganos subsidiarios o arreglos.
+2. La Conferencia de las Partes en calidad de reunión de las Partes en el presente Acuerdo podrá impartir orientaciones adicionales a esos órganos subsidiarios y arreglos institucionales.
