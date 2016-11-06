@@ -1,0 +1,2 @@
+Artículo 7º— Refórmese el artículo 17 del Decreto Ejecutivo Nº 38681-MAG-MINAE, para que en adelante se lea así:
+Artículo 17.- Para el caso de embarcaciones pesqueras comerciales de mediana escala y comerciales avanzada, el capitán de la embarcación y su tripulación deberán completar en un plazo no mayor a treinta y seis meses, contados a partir de la entrada en vigencia del presente Decreto, el curso sobre técnicas apropiadas de liberación de tortugas marinas y otras especies marinas no objetivo de pesca (…)

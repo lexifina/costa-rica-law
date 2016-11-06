@@ -1,0 +1,2 @@
+Artículo 9º— Refórmese el artículo 21 del Decreto Ejecutivo Nº 38681-MAG-MINAE, para que en adelante se lea así:
+“Artículo 21°.- El Incopesca deberá adoptar las medidas que permitan la aplicación del presente Decreto, en ejercicio de sus competencias legales; sin menoscabo de la coordinación interinstitucional que deberá existir entre dicho Instituto, el MAG y el MINAE; así como con otras instituciones competentes.”

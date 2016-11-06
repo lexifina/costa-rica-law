@@ -1,0 +1,3 @@
+Artículo 6º— Refórmese el artículo 16 del Decreto Ejecutivo Nº 38681-MAG-MINAE, para que en adelante se lea así:
+“Artículo 16.- Todas las embarcaciones pesqueras comerciales de mediana escala y comercial avanzada deberán llevar y tener en operación un dispositivo o baliza de monitoreo y seguimiento satelital, compatible con la plataforma de seguimiento satelital que tiene el Incopesca.
+A efectos de la instalación de los dispositivos de Seguimiento Satelital o balizas a las embarcaciones de la flota pesquera costarricense, se establece un máximo de 36 meses para la flota comercial avanzada y para la flota comercial de mediana escala un máximo de 42 meses a partir de la entrada en vigencia del presente Decreto para su debida implementación.
