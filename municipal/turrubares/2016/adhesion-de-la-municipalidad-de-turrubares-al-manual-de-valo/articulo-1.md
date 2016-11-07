@@ -1,0 +1,5 @@
+MUNICIPALIDAD DE TURRUBARES
+Alcaldía Municipal
+RESOLUCION ADMINISTRATIVA 02-2016
+La Alcaldía Municipal de Turrubares mediante Resolución Administrativa 02-2016 de las 14:00 horas del día 14 de setiembre del 2016, procede a publicar en el Diario Oficial La Gaceta lo siguiente:
+1.- Aprobar y autorizar adherirse al documento Manual de Valores Base Unitarios por Tipología Constructiva, publicado en el Alcance Digital N°19 del Diario Oficial La Gaceta número 57, del pasado 23 de marzo del 2015, con los respectivos métodos de depreciación según la Tipología Constructiva, las tablas de depreciación de construcciones realizadas por Ross y Heidecke vigentes para todo el territorio nacional, lo cual fue elaborado y publicado por el Órgano de Normalización Técnica, O.N.T., de la Dirección General de Tributación, Ministerio de Hacienda. Esta adhesión tuvo aprobación del Concejo Municipal de Turrubares, al concordar con la Alcaldía Municipal según oficio MT-ALC- 01-045-2016, en la Sesión Ordinaria N°26-2016 celebrada el 15 de junio del 2016.
