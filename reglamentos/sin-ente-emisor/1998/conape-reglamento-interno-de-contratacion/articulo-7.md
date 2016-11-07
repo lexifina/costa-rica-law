@@ -1,2 +1,0 @@
-Artículo 7°—Funciones de la Comisión de Contratación Administrativa.
-La Comisión de Contratación Administrativa tendrá a su cargo, el estudio,, análisis y recomendaciones en los procesos de licitación. Analizadas las ofertas y efectuadas las recomendaciones, dicha Comisión presentará su dictamen al Secretario Ejecutivo- Posteriormente y con la anuencia de la Secretaría Ejecutiva , la Sección Administrativa retomará el procedimiento, para la presentación ante el Consejo Directivo y cumplimiento de los trámites pertinentes, para la adquisición del bien o servicio.

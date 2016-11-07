@@ -1,2 +1,0 @@
-Artículo 6°—De la Comisión de Contratación Administrativa.
-La Comisión de Contratación Administrativa estará integrada por el Jefe de la Sección Administrativa , quien tendrá a cargo la coordinación de ésta, la Jefatura del Departamento Financiero y la Unidad Orgánica interesada en el proceso de contratación. No obstante cuando fuere menester se dará participación en las deliberaciones a otros funcionarios de la Institución.

@@ -1,5 +1,0 @@
-Artículo10.—Documentación Requerida.
-El trámite de una contratación requiere la suscripción de una "Solicitud de Compra", la cual contiene el nombre del departamento solicitante, la cantidad y la descripción detallada de lo requerido, será emitida porta Unidad Orgánica interesada y debidamente firmada por el jefe del departamento correspondiente.
-La Sección Administrativa en cada caso emitirá órdenes de compra, las cuales constituyen el documento mediante el cual se ordena la ejecución contractual para la adquisición de bienes y servicios.
-• Las compras directas se realizarán de acuerdo con los topes establecidos en la Ley de Contratación Administrativa y su Reglamento o cuando existiere autorización de un órgano competente para sobrepasar dichos límites.
-• La Sección Administrativa solicitará un mínimo de 3 Cotizaciones para cada compra directa salvo en casos calificados y debidamente razonados, solicitara un número inferior. En cualesquiera de los casos elaborará un "Cuadro de Ofertas" el cual debe contener la respectiva recomendación.

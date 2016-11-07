@@ -1,1 +1,0 @@
-Artículo 14.—Registro de Proveedores. La Sección Administrativa será la encargada de realizar todos los trámites concernientes al mantenimiento y operación de este registro, el cual se regula por su propio Reglamento.
