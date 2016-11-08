@@ -1,0 +1,2 @@
+Artículo 10
+En el caso de los candidatos para ocupar un puesto en la Junta Directiva de CORBANA, una vez que se tengan los resultados de la valoración indicada en los artículos anteriores, los miembros de la Comisión, mediante el ejercicio del voto directo, definirán al candidato cuyo nombre se postulará ante la Junta Directiva del Banco Central, a efectos de que ese Órgano lo nombre, si así lo tiene a bien. En caso de que lo rechacé podrá solicitarle a la Comisión que someta a su consideración otro candidato, para lo cual se volverá a repetir el procedimiento indicado.

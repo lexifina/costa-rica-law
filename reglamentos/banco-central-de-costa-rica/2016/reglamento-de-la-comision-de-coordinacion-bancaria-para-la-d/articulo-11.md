@@ -1,0 +1,2 @@
+Artículo 11
+Contra el acuerdo tomado por la Junta Directiva del Banco Central de Costa Rica en el que se nombre a los representantes del Sistema Bancario Nacional en los Órganos Colegiados Superiores de PIMA y CORBANA, procede recurso de revocatoria que podrá interponer ante la Secretaría General del Banco Central cualquier miembro de la Comisión en el término de tres días hábiles, contados a partir de la toma de esa decisión. La tramitación de dicho recurso se regirá por las disposiciones de la Ley General de la Administración Pública.
