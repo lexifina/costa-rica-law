@@ -1,0 +1,8 @@
+Artículo 4.- Se autorizarán aquellas terapias con células madre adultas para uso autólogo exclusivo, con fines regenerativos y en donde sus células son expuestas a una manipulación mínima.
+Todo interesado en obtener autorización para implementar terapias con células madre adultas para uso autólogo exclusivo, con fines regenerativos en donde sus células son expuestas a una manipulación mínima, deberán presentar por escrito ante el Área Rectora de Salud correspondiente, una solicitud que incluya:
+1) Justificación científicamente razonada de que este procedimiento tiene una posibilidad razonable de éxito, incluyendo cualquier evidencia preclínica o clínica de prueba de concepto, de su eficiencia y seguridad. Si no se cumple con este requisito, el procedimiento deberá realizarse bajo un protocolo de investigación, según lo dispuesto en la Ley N° 9234 del 22 de abril del 2014 “Ley Reguladora de Investigación Biomédica” y el Decreto Ejecutivo N° 39061-S del 8 de mayo del 2015 “Reglamento a la Ley Reguladora de Investigación Biomédica”.
+2) Justificación clínica del motivo por el cual esa propuesta de tratamiento con células madre debe implementarse, comparado con tratamientos ya existentes.
+3) La caracterización completa de los tipos celulares que serán trasplantados y sus características, el procesamiento y su producción.
+4) La descripción de cómo las células serán administradas, incluyendo, drogas adyuvantes, agentes y procedimientos quirúrgico.
+5) Un plan de seguimiento clínico y de registros de datos para asegurar la efectividad y los efectos adversos de la terapia celular.
+6) Original y copia del título o certificado que haga constar el entrenamiento en terapias con células madre, del personal que realizará el procedimiento.
