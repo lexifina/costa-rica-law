@@ -1,0 +1,1 @@
+Artículo 16 - El jerarca y los titulares subordinados, deberán incluir en sus SGE los lineamientos, procedimientos y formularios requeridos para el proceder interno de toda actividad de donación; esto según sus competencias para garantizar en la Institución un ambiente de control y de rendición de cuentas.

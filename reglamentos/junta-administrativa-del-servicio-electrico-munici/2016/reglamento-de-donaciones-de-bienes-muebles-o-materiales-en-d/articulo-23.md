@@ -1,0 +1,1 @@
+Artículo 23 - Cuando el bien o material se encuentre en custodia de un área técnica de negocios, será competencia de dicha área realizar la respectiva devolución del bien al Proceso Administrar Materiales y Equipos y al Encargado de Activos, para proceder con el respectivo registro contable y el trámite de entrega de la donación

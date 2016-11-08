@@ -1,0 +1,1 @@
+Artículo 12 – En caso que existan residuos especiales incluidos en un lote de materiales que se encuentra en proceso de remate; estos no podrán ser donados. Llámese proceso de remate desde el inicio de solicitud de avalúo al Ministerio de Hacienda, hasta la última entrega a la empresa adjudicataria.

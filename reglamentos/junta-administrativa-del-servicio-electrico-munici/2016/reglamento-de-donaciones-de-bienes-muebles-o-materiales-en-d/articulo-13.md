@@ -1,0 +1,1 @@
+Artículo 13 – Dado que los residuos especiales representan ingreso adicional para la Institución, lo cual es una fuente coadyuvante en los procesos de financiamiento de inversiones y obras de mejora; no se podrá disponer para donación lotes completos de materiales o residuos especiales.

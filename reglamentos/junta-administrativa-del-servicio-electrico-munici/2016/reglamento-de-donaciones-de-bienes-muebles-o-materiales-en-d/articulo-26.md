@@ -1,0 +1,1 @@
+Artículo 26 - JASEC no cubrirá ningún costo de transporte y equipo de levante de los bienes donados, salvo por razones de mérito, oportunidad y conveniencia en los casos que señale la Gerencia General.

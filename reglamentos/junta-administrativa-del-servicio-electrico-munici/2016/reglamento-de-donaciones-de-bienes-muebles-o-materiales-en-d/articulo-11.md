@@ -1,0 +1,2 @@
+Artículo 11- Para efectos del presente reglamento, no podrán ser donados los bienes que conserven la finalidad, utilidad y la importancia institucional por la cual se adquirieron.
+No estarán disponibles para donación aquellos materiales que ya se encuentren comprometidos con otra empresa, como parte de convenios de cooperación interinstitucional o por contratos amparados bajo el Reglamento al Título II de la Ley 8660, la Ley de Contratación Administrativa y demás normativa aplicable, donde JASEC cuenta con un compromiso ante el adjudicatario.

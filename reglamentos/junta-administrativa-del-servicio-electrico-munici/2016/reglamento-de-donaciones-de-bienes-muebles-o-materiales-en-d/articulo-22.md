@@ -1,0 +1,1 @@
+Artículo 22 - El Proceso Administrar Materiales y Equipos, dependencia depositaria de los materiales, deberá custodiarlos y mantenerlos en forma separada hasta la finalización del procedimiento de donación

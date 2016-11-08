@@ -1,0 +1,1 @@
+Artículo 5—Las solicitudes de donación deberán ser presentadas ante la Gerencia General de JASEC quien podrá autorizar las mismas si cumplen con lo estipulado y regulado en el presente reglamento y una vez recibidas las recomendaciones respectivas.

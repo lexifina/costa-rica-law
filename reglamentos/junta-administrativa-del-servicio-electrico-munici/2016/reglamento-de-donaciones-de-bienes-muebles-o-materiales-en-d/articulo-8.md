@@ -1,0 +1,1 @@
+Artículo 8—Los residuos peligrosos y electrónicos, no serán objeto de donación, salvo para efecto de su debido tratamiento, investigación, disposición final de conformidad con el ordenamiento jurídico. JASEC como empresa generadora de residuos, producto de sus actividades de prestación de servicios, deberá velar por la correcta disposición final de sus residuos.

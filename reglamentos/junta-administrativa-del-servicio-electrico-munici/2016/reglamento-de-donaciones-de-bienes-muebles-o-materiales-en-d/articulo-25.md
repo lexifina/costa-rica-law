@@ -1,0 +1,1 @@
+Artículo 25 –En el acto de entrega deberá estar presente al menos un funcionario del Proceso Administrar Materiales y Equipos, en caso de bienes que en su momento fueron catalogados como activos de JASEC deberá estar presente un funcionario del Proceso Contabilizar; en lo que corresponde a Propiedad Planta y Equipo.

@@ -1,0 +1,1 @@
+Artículo 21 - En caso de haber sido aprobada la donación, el Proceso Administrar Materiales y Equipos notificarán al interesado la hora, día y lugar para la entrega de los bienes y formalización de la donación.
