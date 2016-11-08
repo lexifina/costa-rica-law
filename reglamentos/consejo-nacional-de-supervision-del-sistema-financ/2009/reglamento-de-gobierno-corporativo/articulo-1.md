@@ -1,3 +1,5 @@
+(Derogado)
+(Esta norma fue derogada por el artículo 50 del Reglamento sobre Gobierno Corporativo, aprobado en sesiones 1294-2016 y 1295-2016 del 8 de noviembre del 2016)
 (Nota de Sinalevi: Ver el anexo 2 del Código de Gobierno Corporativo aprobado mediante sesión N° 5526-2011 del 14 de diciembre del 2011, el cual contiene el presente reglamento con contenido idéntico)
 El Consejo Nacional de Supervisión del Sistema Financiero en el literal B), de los artículos 16 y 5, de las actas de las sesiones 787-2009 y 788-2009, celebradas el 19 de junio del 2009,
 considerando que:
