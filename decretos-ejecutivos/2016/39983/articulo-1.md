@@ -1,0 +1,17 @@
+No. 39983-S
+EL PRESIDENTE DE LA REPÚBLICA
+Y EL MINISTRO DE SALUD
+En uso de las facultades que les confieren los artículos 140 incisos 3) y 18) y 146 de la Constitución Política; 25 inciso 1), 27 inciso 1) y 28 inciso 2), acápite b) de la Ley Nº 6227 del 2 de mayo de 1978 "Ley General de la Administración Pública"; 1, 2, 4, 7, 49, 142, 143, 144 y 145 de la Ley Nº 5395 del 30 de octubre de 1973 "Ley General de Salud".
+Considerando:
+1. Que la Ley General de Salud establece que son de venta libre los medicamentos que el Ministerio declare vía decreto, oyendo previamente el criterio del Colegio de Farmacéuticos.
+2. Que mediante Decreto Ejecutivo Nº 35595-S publicado en La Gaceta Nº 229 del 25 de noviembre del 2009, se emitió la normativa con el listado de medicamentos de venta libre, la cual fue modificada mediante el Decreto Ejecutivo Nº 36041-S publicado en La Gaceta 119 del 21 de junio del 2010.
+3. Que la Procuraduría General de la República emitió el Dictamen 131 del 16 de junio del 2011, en el cual ratifica que el Ministerio de Salud puede autorizar el expendio de medicamentos que no requieren de receta médica en establecimientos no farmacéuticos, y reafirma que la decisión del mismo de permitir la venta de medicamentos fuera de farmacias y botiquines, debe responder a criterios técnicos y que tales productos deben ser aquellos cuyos datos farmacológicos denoten que no existe riesgo para el consumidor o que son de bajo riesgo.
+4. Que el artículo 1° del Decreto Ejecutivo N° 36288 del 9 de agosto de 2010, modificó el artículo 3 del Decreto Ejecutivo N°35595-S a fin de poder actualizar periódicamente el listado oficial de medicamentos de libre venta, mediante la publicación en la página Web del Ministerio de Salud.
+5. Que se ha visto la necesidad de que las exclusiones y otras modificaciones al listado de medicamentos de venta libre y no sólo las adiciones puedan ser publicadas en la página Web del Ministerio de Salud para su aplicación y conocimiento.
+6. Que siguiendo las recomendaciones de la Organización Panamericana de la Salud, la Dirección de Regulación de Productos de Interés Sanitario, a través del Equipo Evaluador de Solicitudes de Modalidad de Venta continuará utilizando los Criterios para la modificación de la modalidad de venta de medicamentos.
+7. Que según información suministrada por la Directora de la Dirección Regulación de Productos de Interés Sanitario, la inclusión de los productos contenida en el Anexo al presente decreto, fue consultada con el Colegio de Farmacéuticos de Costa Rica.
+8. Que de conformidad con el artículo 12 bis del Decreto Ejecutivo No. 37045 del 22 de febrero de 2012 y su reforma "Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos", la persona encargada de la Oficialía de Simplificación de Trámites del Ministerio de Salud, ha completado como primer paso la Sección I denominada Control Previo de Mejora Regulatoria, que conforma el formulario de Evaluación Costo Beneficio. Las respuestas brindadas en esa Sección han sido todas negativas, toda vez que la propuesta no contiene trámites ni requisitos.
+POR TANTO,
+DECRETAN
+DECLARATORIA DE MEDICAMENTOS DE VENTA LIBRE AL CONSUMIDOR
+Artículo 1°- Declárese de venta libre y en consecuencia pueden ofrecerse al consumidor en cualquier establecimiento comercial, los medicamentos establecidos en el Anexo 1 del presente Reglamento.
