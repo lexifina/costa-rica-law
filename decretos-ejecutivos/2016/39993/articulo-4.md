@@ -1,0 +1,1 @@
+Artículo 4º—Apoyo del Proyecto. El Poder Ejecutivo, consciente de la necesidad de articular esfuerzos públicos y privados para impulsar la innovación social en Costa Rica, apoyará la formalización de cualquier acto que sea necesario para su concreción.
