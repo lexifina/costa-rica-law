@@ -1,0 +1,36 @@
+BANCO CENTRAL DE COSTA RICA
+La Junta Directiva del Banco Central de Costa Rica en el inciso I, numeral 5 del artículo 4 del acta de la sesión 5742-2016, celebrada el 19 de octubre del 2016,
+considerando que:
+A. El artículo 62 de la Ley Orgánica del Banco Central de Costa Rica, Ley 7558, establece que los entes que realizan intermediación financiera están sujetos al encaje mínimo legal.
+B. El artículo 117 de la Ley Orgánica del Banco Central de Costa Rica dispone que “… La Junta Directiva del Banco Central de Costa Rica podrá eximir de la aplicación de los controles monetarios a las cooperativas de ahorro y crédito, las asociaciones solidaristas u otras organizaciones similares, en función del tamaño de sus activos, el número de asociados o cuando realicen operaciones con un grupo cerrado de asociados. En estos casos, las entidades eximidas no tendrán acceso al financiamiento establecido en los incisos a) y b) del artículo 52 de esta Ley y deberán mantener reservas de liquidez por el mismo porcentaje del encaje mínimo legal, en las condiciones que establezca la Junta Directiva del Banco Central de Costa Rica.”
+C. En la sesión 4931-97, del 24 de octubre de 1997, esta Junta Directiva eximió del encaje mínimo legal a las asociaciones solidaristas y a las cooperativas de ahorro y crédito, por lo que estas entidades quedaron sujetas al cumplimiento de la reserva de liquidez.
+D. Existen limitaciones para aplicar sanciones por incumplimiento de la reserva de liquidez.
+E. El grado de incumplimiento de la reserva de liquidez es elevado al tomar como referencia las entidades registradas como activas ante el Ministerio de Trabajo y Seguridad Social,
+particularmente, en el caso de las asociaciones solidaristas.
+F. Existe un deber legal de esas entidades de cumplir con el encaje mínimo legal o, en su defecto, con la reserva de liquidez y es deber institucional velar por su cumplimiento.
+dispuso:
+(…)
+5. Modificar el cálculo del requerimiento de reserva de liquidez para que considere todos los días del mes y que su cumplimiento deba realizarse con un mes de rezago, por lo que se modifican los literales D, F, I, J y L, del Título VI de las Regulaciones de Política Monetaria, para que, en adelante, se lean de la siguiente forma:
+Título VI
+Disposiciones sobre la reserva de liquidez, de las Regulaciones
+de Política Monetaria
+D El requerimiento mensual de reserva de liquidez en moneda nacional y en moneda extranjera debe calcularse por separado y los respectivos fondos deben mantenerse en la moneda correspondiente.
+El requerimiento de reserva de liquidez será calculado como el promedio mensual de saldos, al final del día, de las operaciones sujetas a ese requisito. En el cálculo intervendrán todos los días del mes, para los fines de semana y días no hábiles debe repetirse el saldo del último día hábil.
+F El cumplimiento de la reserva de liquidez será realizado con un mes de rezago. El control se hará con el promedio mensual del saldo, al final de cada día del mes de cumplimiento, de los activos que componen esa reserva. En ese cálculo intervendrán todos los días del mes, para los fines de semana y días no hábiles repite el saldo del último día hábil.
+La entidad financiera deberá llevar un registro de esa reserva de liquidez en una cuenta contable exclusiva para ese fin, la cual debe mostrar en las subcuentas el detalle de composición de dicha reserva por tipo de activo.
+I. Los intermediarios financieros sujetos al cumplimiento de la reserva de liquidez deben enviar a la SUGEF, dentro de los primeros quince días hábiles de febrero y agosto, un estado dictaminado por un Contador Público Autorizado (CPA) sobre el cumplimiento o incumplimiento mensual del requerimiento de reserva de liquidez, durante el semestre natural anterior, en la forma y con el detalle que la SUGEF requiera.
+Los intermediarios financieros serán responsables de contratar y cubrir los costos de los profesionales en Contaduría Pública, que emitirán el estado dictaminado solicitado en esta normativa.
+Además, los entes sujetos a reserva de liquidez deberán enviar a la SUGEF, en los 15 días naturales siguientes al fin de cada mes natural, un informe sobre el cumplimiento de ese requisito durante ese mes, firmado por el representante legal de la entidad. Ese informe deberá realizarse con el detalle y formato que la SUGEF determine.
+J. Incumplimiento del requisito de reserva de liquidez.
+1. Se entenderá por insuficiencia en la reserva de liquidez, sea en moneda nacional o extranjera, aquella situación en la que el promedio mensual del saldo de los activos financieros en que debe constituirse la reserva de liquidez, resulte menor al requerimiento de reserva. El CPA deberá especificar en su dictamen, el mes y monto de ese incumplimiento.
+De igual forma será incumplimiento el no envío del estado dictaminado.
+2. La SUGEF informará por escrito a la Gerencia del Banco Central de Costa Rica o a quien esa Dependencia designe, el monto del incumplimiento y enviará una nota de apercibimiento al Presidente y al Gerente de la entidad infractora.
+L. Se exceptúan del requerimiento de reserva de liquidez los depósitos y captaciones con plazo de vencimiento superior a ocho años, en el tanto esos recursos sean canalizados según lo dispuesto en el artículo 62 bis de la Ley Orgánica del Banco Central de Costa Rica. Para ello:
+i. La entidad comunicará a la Gerencia del BCCR y a la SUGEF, con al menos dos semanas de antelación, la decisión de captar al amparo de lo dispuesto en el artículo 62 bis y deberá afiliarse a los servicios del Sistema Nacional de Pagos Electrónicos (SINPE) como asociado. Esto con el fin de realizar la apertura de la cuenta de reserva y una ‘cuenta especial’ para mantener el saldo captado bajo esa figura y no colocado. La ‘cuenta especial’ será abierta en la moneda de constitución de la captación que le da origen.
+Para realizar el control del saldo mantenido en esa cuenta especial la SUGEF solicitará a las entidades los datos que considere pertinentes, con el detalle y en el formato que así lo requiera.
+ii. El Banco Central reconocerá intereses sobre el saldo indicado por la SUGEF, aplicando, para operaciones en colones una tasa de interés igual a la de la Facilidad Permanente de Depósito a un día plazo en el MIL y para operaciones denominadas en moneda extranjera una tasa equivalente a la que reconoce el Banco de la Reserva Federal de los Estados Unidos para los depósitos overnight (técnicamente denominada Repurchase Agreement Pool) menos quince puntos base con límite inferior de cero. Al respecto se acota lo siguiente:
+• Si el saldo efectivo en la ‘cuenta especial’ fuera menor que el indicado por la SUGEF, se reconocerán intereses sobre el saldo efectivo. Si el saldo efectivo fuera mayor al indicado por la SUGEF, se reconocerán intereses sobre esta última referencia.
+• Los intereses se acreditarán en la cuenta de reserva en el BCCR en la moneda correspondiente, por mes natural, a más tardar un mes natural posterior al mes de cálculo.
+Si la denominación de las operaciones en moneda extranjera es distinta del dólar estadounidense, procederá su conversión al dólar estadounidense al tipo de cambio publicado en el sitio del BCCR.
+( … )
+Las anteriores modificaciones rigen a partir de su publicación en el diario oficial La Gaceta.
