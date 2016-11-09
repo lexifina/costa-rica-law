@@ -1,0 +1,1 @@
+Artículo 2"—Colaboración. Se insta a las instituciones del Sector Público, las instituciones autónomas y semi-autónomas, las municipalidades y el Sector Privado, para que en la medida de sus posibilidades y dentro del marco jurídico respectivo, apoyen la ejecución de estos proyectos de la Fundación Nacional de Solidaridad Contra el Cáncer de mama.

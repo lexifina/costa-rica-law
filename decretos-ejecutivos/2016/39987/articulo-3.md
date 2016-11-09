@@ -1,0 +1,1 @@
+Artículo 3°— Apoyo del Proyecto. Se insta a todas las entidades del Sector Público a que en el marco de las potestades legales y reglamentarias, otorguen a la Fundación el, apoyo que esta requiera para el logro de sus objetivos.
