@@ -1,0 +1,1 @@
+Artículo 18: Consulta de documentos. El Archivo Central facilitará los documentos únicamente en la sala de consulta y atención al usuario y en el horario ordinario de la Institución, salvo la excepción hecha en el artículo 16.

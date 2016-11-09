@@ -1,0 +1,1 @@
+Artículo 28: Sistema de clasificación de documentos. El Archivo Central utilizará el sistema de clasificación más apropiado según los criterios archivísticos más modernos, tanto en el Archivo Central como en los archivos de gestión.

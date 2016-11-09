@@ -1,0 +1,1 @@
+Artículo 32: Convocatoria a reunión. El Comité Institucional de Selección y Eliminación de Documentos, se reunirá previa convocatoria del Presidente, debiendo definir su programa de trabajo y normas internas de actuación, de conformidad con lo que establece el artículo 138 del Reglamento a la Ley No. 7202 del Sistema Nacional de Archivos.

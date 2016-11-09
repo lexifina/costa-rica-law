@@ -1,0 +1,2 @@
+Artículo 26: Registro de documentos. Los documentos ingresarán al Archivo Central por medio de transferencias las cuales se anotarán en un registro general de ingreso de documentos, con indicación del número de transferencia, la unidad productora, fecha de los documentos, fecha de ingreso al archivo, cantidad y contenido sustantivo.
+También se llevará un registro de salida de documentos con la misma característica y responderá a las transferencias de documentos que el Archivo Central debe enviar a la Dirección General del Archivo Nacional.

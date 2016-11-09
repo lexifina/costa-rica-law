@@ -1,0 +1,1 @@
+Artículo 4: Órganos Desconcentrados. Corresponderá al Archivo Central mantener una relación archivística con los Órganos Desconcentrados del Ministerio de Cultura y Juventud, cuando estas instituciones carezcan de un profesional en archivística, siendo esta relación en materia de asesoría y capacitación.

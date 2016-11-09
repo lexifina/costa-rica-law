@@ -1,0 +1,1 @@
+Artículo 31: De los miembros del Comité. Corresponde al Ministro de Cultura y Juventud, modificar la integración del Comité Institucional de Selección y Eliminación de Documentos, cuando lo considere necesario.

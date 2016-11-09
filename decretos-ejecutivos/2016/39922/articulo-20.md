@@ -1,0 +1,1 @@
+Artículo 20: Devolución de documentos. Los documentos consultados por los usuarios, serán devueltos al funcionario que los prestó o en su defecto al Jefe del Archivo Central, quién los revisará antes de dar el recibido conforme y procederá a su posterior reubicación.

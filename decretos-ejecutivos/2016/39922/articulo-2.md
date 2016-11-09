@@ -1,0 +1,4 @@
+Artículo 2: Fondo Documental
+1. El acervo documental del Ministerio de Cultura y Juventud, está constituido por el conjunto de documentos generados, recibidos o reunidos por los Despachos, Programas y Departamentos de la Institución, al igual que aquellos archivos especializados y centros de documentación que se encuentren en el Ministerio. Incluye los expedientes y documentos de archivo que se custodia en la Unidad de Información Documental de Patrimonio Cultural "Luis Ferrero Acosta" y al Archivo Central del Sistema Nacional de Bibliotecas.
+2. La documentación de aquellos Órganos Desconcentrados del Ministerio de Cultura y Juventud, que sean transferidos al Archivo Central.
+3. Los archivos o colecciones propiedad de personas físicas o jurídicas ajenas al Ministerio de Cultura y Juventud, que hagan cesión o donación expresa de sus documentos, también forman parte de dicho patrimonio documental.

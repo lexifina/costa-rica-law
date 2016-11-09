@@ -1,0 +1,1 @@
+Artículo 33: Acuerdos del Comité. Al Secretario le corresponderá llevar las actas y archivo de la Comisión y sus acuerdos se tomarán por consenso de mayoría. El acuerdo tomado se comunicará a la dependencia gestor de la documentación que se trate.
