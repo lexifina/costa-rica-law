@@ -1,0 +1,1 @@
+Artículo 33. — Para el uso del Sistema Receta Digital los usuarios, deberán cumplir los requerimientos técnicos que se definan en las políticas de uso incluidas en el sistema; además serán responsables del mantenimiento de los medios que adquieran e instalen para la utilización del Sistema.

@@ -1,0 +1,1 @@
+Artículo 4. — Todo establecimiento farmacéutico que pretenda comercializar psicotrópicos y estupefacientes deberá registrarse en la plataforma de Receta Digital, para efectos de actualizar sus datos u obtener la autorización del Ministerio de Salud en el despacho de recetas de psicotrópicos y estupefacientes.

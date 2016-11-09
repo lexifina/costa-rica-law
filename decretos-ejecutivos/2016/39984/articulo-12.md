@@ -1,0 +1,1 @@
+Artículo 12. —Los estupefacientes y psicotrópicos sólo podrán ser prescritos y despachados mediante recetas digitales incluidas en el Sistema Receta Digital. El profesional autorizado del establecimiento farmacéutico, así como el director médico del establecimiento de salud, deberán registrarse en el sistema.

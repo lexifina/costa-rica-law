@@ -1,0 +1,1 @@
+Artículo 10. — El Colegio de Farmacéuticos de Costa Rica deberá disponer en línea la nómina actualizada de sus profesionales activos, el listado con nombre y ubicación de los establecimientos activos y sus regentes respectivos con el propósito de alimentar el sistema digital.

@@ -1,0 +1,1 @@
+Artículo 30. — Por medio del uso de la firma digital certificada, el Sistema Receta Digital garantizará la vinculación jurídica de la firma del emisor con el documento electrónico que identifica al receptor de este, de manera que se certifique la no alteración y la conservación del contenido original de cada documento que se reciba y se envíe por medio del Sistema Receta Digital.

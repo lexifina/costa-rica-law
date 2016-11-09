@@ -1,0 +1,1 @@
+Transitorio II. — Las farmacias que manejen psicotrópicos y estupefacientes, tendrán tres meses a partir de la publicación del presente reglamento para presentar debidamente llenos los formularios disponibles en la página Web del Ministerio de Salud sobre reportes de inventarios e inscribirse en el Sistema Receta Digital.

@@ -1,0 +1,1 @@
+Artículo 24. — Toda persona física o jurídica que acceda al Sistema Receta Digital, así como todo funcionario del Ministerio de Salud que efectúe operaciones en el Sistema, deberá inscribirse en el Registro de Usuarios del Sistema. Este registro contiene datos de identificación y de contacto de los usuarios registrados.

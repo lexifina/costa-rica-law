@@ -1,0 +1,1 @@
+Transitorio IV. — Los establecimientos de salud de la Caja Costarricense de Seguro Social (CCSS), en cuanto a farmacias y prescripción de recetas por parte de los profesionales de esos centros, tendrán en forma gradual un año a partir de la publicación del presente reglamento para registrarse en el Sistema Receta Digital.

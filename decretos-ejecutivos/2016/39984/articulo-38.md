@@ -1,0 +1,1 @@
+Artículo 38. — Las instituciones públicas con plataformas electrónicas que interoperen con el Sistema de Receta Digital, deberán reportar al administrador del Sistema la discontinuidad o las fallas en la infraestructura tecnológica o en las 20 aplicaciones que se interconecten. Este reporte deberá realizarse en el mismo momento en que se detecte la discontinuidad o la falla.

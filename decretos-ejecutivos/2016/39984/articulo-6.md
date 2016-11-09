@@ -1,0 +1,1 @@
+Artículo 6. — Las personas profesionales en medicina y odontología, autorizadas en el Sistema Receta Digital, en el ejercicio legal de sus profesiones, podrán prescribir estupefacientes y psicotrópicos con fines terapéuticos, nunca para fines distintos de los previstos en los convenios internacionales, las leyes nacionales y este reglamento, o para el mantenimiento de adicciones.

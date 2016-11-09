@@ -1,0 +1,1 @@
+Artículo 31. — El Sistema Receta Digital deberá conservar sin ningún tipo de alteración, las recetas electrónicas enviadas y recibidas mediante el Sistema y dejará constancia en su bitácora de todas las transacciones y los mensajes generados.

@@ -1,0 +1,1 @@
+Artículo 32. — El Sistema Receta Digital deberá contar con los espacios físicos y los mecanismos óptimos para garantizar que la información se encuentra almacenada y custodiada, de modo que se eviten riesgos, daños, pérdida, destrucción, alteración, sustracción o divulgación indebida.

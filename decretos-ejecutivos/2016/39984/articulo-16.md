@@ -1,0 +1,1 @@
+Artículo 16. — El plazo para la presentación en la farmacia del código otorgado para el despacho de una receta de estupefacientes o de psicotrópicos será de cinco días hábiles a partir de la fecha de su emisión por el prescriptor.

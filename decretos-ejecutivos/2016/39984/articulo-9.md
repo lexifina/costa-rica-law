@@ -1,0 +1,1 @@
+Artículo 9. — El Colegio de Médicos y Cirujanos de Costa Rica y el Colegio de Cirujanos Dentistas de Costa Rica, deberán disponer en línea la nómina actualizada de sus profesionales activos con el propósito de alimentar el Sistema Receta Digital.

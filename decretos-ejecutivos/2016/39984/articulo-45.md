@@ -1,0 +1,1 @@
+Artículo 45. — Deróguese el artículo 24 del Decreto Ejecutivo No. 37111-S del 12 de enero de 2012 "Reglamento para el Control de Drogas, Estupefacientes y Psicotrópicas" publicado en el Alcance 72 a la Gaceta No. 108 del 05 de junio de 2012.

@@ -1,0 +1,1 @@
+Artículo 8. — El control y el manejo de estupefacientes y psicotrópicos en los establecimientos farmacéuticos, así como el despacho de las recetas que se prescriben, corresponderá personal y exclusivamente a los regentes farmacéuticos, los que deberán utilizar el Sistema Receta Digital para el control de las prescripciones.
