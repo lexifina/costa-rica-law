@@ -1,0 +1,1 @@
+Artículo 2°—En virtud de la declaratoria de Conveniencia Nacional del proyecto antes descrito, se autoriza realizar la corta, poda o eliminación de 4 (cuatro) árboles, que se ubican en las áreas de protección, definidas en el inciso b) del artículo 33 de la Ley Forestal N° 7575.

@@ -1,0 +1,1 @@
+Artículo 3°—Ei desarrollador está en la obligación de proceder bajo los parámetros que establece el último párrafo del artículo 19 de la Ley Forestal N° 7575, en el sentido de que la corta de árboles, deberá realizarse de forma limitada, proporcional
