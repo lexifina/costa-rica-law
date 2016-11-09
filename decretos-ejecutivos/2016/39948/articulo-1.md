@@ -1,0 +1,11 @@
+N° 39948-JP
+EL PRESIDENTE DE LA REPÚBLICA
+Y LA MINISTRA DE JUSTICIA Y PAZ
+Con fundamento en lo dispuesto en los artículos 140, inciso 18) y 146 de la Constitución Política, en el artículo 32 de la Ley de Asociaciones y en los artículos 27 y siguientes del Reglamento a la Ley de Asociaciones número 29496-J, publicado en la Gaceta número 96 del 21 de mayo del 2001.
+CONSIDERANDO
+I. Que el artículo 32 de la Ley de Asociaciones número 218 de 08-08-39 y sus reformas, confiere al Poder Ejecutivo la potestad de declarar de Utilidad Pública a las Asociaciones simples, federadas o confederadas, cuyo desarrollo y actividades sean particularmente útiles para los intereses del Estado, y que por ello contribuyan a solventar una necesidad social.
+II. Que la Asociación Sarchiseña de Discapacitados, cédula de persona jurídica número: 3-002-249128, se inscribió en el Registro de Asociaciones del Registro Público desde el día 13 de abril de 2004, bajo el tomo No. 465, asiento 7520, expediente N° 11401.
+III. Que los fines que persigue la Asociación, según el artículo cuarto de sus estatutos, son: "... A) Colaborar, apoyar, y en su caso ejecutar actuaciones en el proceso de rehabilitación integral de las personas con deficiencia física y o mentales del Cantón de Valverde Vega. B) Promover la existencia de las condiciones necesarias para la integración del discapacitado a la sociedad como ente productivo. C) Promover, coordinar, canalizar y desarrollar programas desarrollados con las crecientes necesidades de las personas con discapacidad y su familia, en la comunidad, a través de: Capacitación a las personas afectadas, capacitación a padres y otros familiares, capacitación a maestros y otras personas vinculadas en su atención y capacitación al público en general. D) Fomentar la cooperación y la coordinación con entes Nacionales e Internacionales vinculados en la discapacidad a fin de promover, conocer e intercambiar los avances técnicos y científicos y canalizar acciones conjuntas para fortalecer la prestación de servicios".
+IV. Que tales fines solventan una necesidad social de primer orden, por lo cual merecen el apoyo del Estado Costarricense. Por tanto,
+DECRETAN
+Artículo 1.- Declárese de Utilidad Pública para los intereses del Estado la Asociación Sarchiseña de Discapacitados, cédula de persona jurídica número: 3-002-249128.
