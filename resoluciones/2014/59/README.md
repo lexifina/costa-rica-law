@@ -14,3 +14,4 @@ Oferta de Interconexión por referencia (Oir) del ICE
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-09 | la propia norma |
+| 2 | 2016-11-09 | Resolución 244 (2016-11-09) |
