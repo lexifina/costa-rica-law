@@ -1,0 +1,1 @@
+Artículo 12: Los Programas Presupuestarios y los Órganos Desconcentrados del Ministerio que tengan asignados vehículos de uso administrativo deberán, establecer un Departamento responsable o alguna persona servidora que se encargue de dar cabal cumplimiento a las disposiciones del presente Reglamento.

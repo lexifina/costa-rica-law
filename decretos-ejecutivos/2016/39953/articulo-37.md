@@ -1,0 +1,1 @@
+Artículo 37: Es obligación de la persona servidora, rendir su declaración ante los Tribunales de Justicia, conforme las disposiciones de la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial, en los casos en que así sea requerido.

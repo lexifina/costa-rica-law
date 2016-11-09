@@ -1,0 +1,1 @@
+Artículo 8: El consumo de combustible de los vehículos de uso administrativo, se hará utilizando la tarjeta de combustible, la que se regula mediante el Convenio con el Banco emisor, de lo cual el Departamento de Servicios Generales, el Administrador de cada uno de los Programas y las Unidades de Transportes de cada Órgano Desconcentrado, llevarán registros de cada tarjeta.

@@ -1,0 +1,1 @@
+Artículo 43: Deróganse los Decretos Ejecutivos No. 28250-C del 20 de octubre de 1999, publicado en La Gaceta No. 234 del 2 de diciembre de 1999 y No. 30666-C del 17 de julio del 2002, publicado en La Gaceta No. 170 del 5 de setiembre del 2002.

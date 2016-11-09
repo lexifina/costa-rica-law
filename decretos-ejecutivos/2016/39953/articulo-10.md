@@ -1,0 +1,1 @@
+Artículo 10: Cada vez que se utilice un vehículo deberá contar de previo, con una autorización que motive y justifique su uso, debiendo someterse además a control de kilometraje, antes y después de su recorrido. Estas disposiciones se aplicarán, en todos los casos en que se requiera la utilización de los servicios de transporte de la Institución.
