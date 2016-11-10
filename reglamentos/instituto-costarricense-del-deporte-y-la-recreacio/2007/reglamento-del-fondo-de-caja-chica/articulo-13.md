@@ -1,2 +1,0 @@
-Artículo 13 - De la liquidación del cierre presupuestario
-Para efectos de liquidación presupuestaria, tanto mensual como anual, el Departamento de Finanzas y Contabilidad brindará las pautas que permitan contar con los documentos debidamente liquidados del fondo de Caja Chica que garanticen una mayor veracidad en la ejecución del gasto devengado. Para ello, se le autoriza coordinar con las unidades y divisiones de la organización.

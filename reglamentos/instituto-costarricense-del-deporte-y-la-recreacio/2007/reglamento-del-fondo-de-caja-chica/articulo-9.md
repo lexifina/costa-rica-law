@@ -1,3 +1,0 @@
-Artículo 9 - De la administración del fondo
-El Departamento de Finanzas y Contabilidad será el único responsable de la administración del fondo de Caja Chica, amparado a un documento formal que lo respalde. El Departamento de Contabilidad deberá mantener en todo momento un registro actualizado de las cajas chicas en operación, para ese efecto llevará un registro auxiliar en que se individualice lo correspondiente a cada una de ellas, incluyendo su localización.
-Podrá el Consejo Nacional del Deporte y la Recreación aprobar otras instancias que administren fondos complementarios o adicionales de Caja Chica, con la recomendación de la Dirección de Administración y Finanzas.
