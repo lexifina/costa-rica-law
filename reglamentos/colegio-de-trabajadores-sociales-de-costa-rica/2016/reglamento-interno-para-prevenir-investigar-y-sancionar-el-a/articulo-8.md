@@ -1,0 +1,1 @@
+Artículo 8°—Plazo para interponer la denuncia y caducidad. El plazo para interponer la denuncia será de hasta dos años, computado a partir del último hecho constitutivo del supuesto hostigamiento sexual o a partir del cese de la causa justificada que le impidió denunciar. El plazo de caducidad para la aplicación de sanciones disciplinarias, es de un mes.

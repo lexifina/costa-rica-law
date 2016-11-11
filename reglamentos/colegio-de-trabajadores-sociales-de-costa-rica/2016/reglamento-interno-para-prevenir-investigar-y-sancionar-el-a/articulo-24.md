@@ -1,0 +1,1 @@
+Artículo 24.—El presente reglamento amplia lo dispuesto en los artículos del 31 al 44 del reglamento interno de trabajo del Colegio de Trabajadores Sociales de Costa Rica, aprobado por la Dirección de Asuntos Jurídicos del Ministerio de Trabajo en el mes de noviembre del año 2008.

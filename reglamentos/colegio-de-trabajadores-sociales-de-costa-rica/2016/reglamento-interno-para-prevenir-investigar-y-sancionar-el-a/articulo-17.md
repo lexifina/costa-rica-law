@@ -1,0 +1,7 @@
+Artículo 17.—De los recursos contra la resolución. Contra las resoluciones procederán los recursos establecidos en la Ley General de la Administración Pública, los cuales deberán ser planteados dentro de los términos de ley.
+La resolución final tendrá Recurso de Reconsideración ante la Junta Directiva del Colegio, y deberá ser interpuesto dentro de los tres días hábiles siguientes a la notificación de la resolución.
+Resuelto el Recurso de Reconsideración se tiene por agotada la Vía Administrativa.
+De todo acto final firme, se le deberá remitir una copia a la Defensoría de los Habitantes.
+Una vez agotada la Vía Administrativa, o si los procedimientos no se hubieren cumplido por motivos que no se le pueden imputar a la persona ofendida, la denuncia por hostigamiento sexual se podrá presentar ante los tribunales de la jurisdicción laboral, los cuales son competentes para conocerlas.
+Atención al ofendido u ofendida: En caso de necesitarlo o solicitarlo, la Junta Directiva del Colegio a través de la Oficina de Administración, brindará el apoyo necesario o referirá al especialista correspondiente, a la persona ofendida o cualquiera de las partes que participan en el proceso, tanto antes como después de poner la denuncia y según lo que recomiende el Órgano Director.
+La medida cautelar deberá ejecutarse de manera urgente y prevalente, debiendo procurarse mantener la seguridad de la víctima. Contra la medida cautelar impuesta, solo cabrá recurso de adición y aclaración.
