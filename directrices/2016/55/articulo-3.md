@@ -1,0 +1,1 @@
+TERCERO: El Consejo Nacional de Producción, mediante resolución razonada que dictará su Gerencia General, determinará los casos de excepción de aplicación de la presente directriz y comunicará formalmente lo procedente al cliente institucional o unidad respectiva de éste.
