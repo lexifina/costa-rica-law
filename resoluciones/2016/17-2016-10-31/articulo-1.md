@@ -1,0 +1,4 @@
+DIRECCIÓN GENERAL DE SERVICIO CIVIL
+Nº SC-017-2016.—San José, 31 de octubre del 2016.
+Se hace saber que la Dirección General de Servicio Civil ha emitido la siguiente resolución:
+DG-214-2016: Se modifica el artículo 1 inciso d) de la Resolución N° DG-114-2016 de las trece horas del veinticuatro de mayo del dos mil dieciséis, para que en lo sucesivo se lea de la siguiente forma: “…Artículo 1°: Delegar en la funcionaria Yaxinia Díaz Mendoza, cédula de identidad número 5-271-790, quien ocupa la Jefatura de la Oficina de Gestión Institucional de Recursos Humanos del Ministerio de Educación Pública, como responsable designada en esa Institución, y en tanto ocupe el cargo de Directora de Recursos Humanos, la ejecución, firma y aprobación de los actos y movimientos de personal…”, según se detallan en la presente resolución. Rige a partir de su publicación y hasta la vigencia de la Resolución N° DG-114-2016 de las trece horas del veinticuatro de mayo del dos mil dieciséis.
