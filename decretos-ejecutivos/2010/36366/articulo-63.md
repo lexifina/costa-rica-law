@@ -1,8 +1,3 @@
-Artículo 63.—La Sección Evaluación del Desempeño tendrá las siguientes funciones:
-1) Coordinar y orientar el proceso de evaluación del Desempeño anual, tanto del personal administrativo como policial.
-2) Mantener actualizados los sistemas y bases de datos que contengan la información sobre la Evaluación del Desempeño de los (las) funcionarios (as).
-3) Brindar asesoría y capacitación a las jefaturas y funcionarios (as) sobre el funcionamiento de los sistemas de evaluación del desempeño.
-4) Dar seguimiento a los resultados de la evaluación del desempeño.
-5) Atender cualquier otra actividad propia de su competencia.
+Artículo 63.—(Derogado por el artículo 3° del decreto ejecutivo N° 40106 del 11 de noviembre del 2016)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 60 al 61)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 61 al 63)

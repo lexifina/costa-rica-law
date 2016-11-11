@@ -1,11 +1,10 @@
-Artículo 46.—El Departamento de Remuneraciones y Compensaciones tendrá las siguientes funciones:
-1) Coordinar la elaboración del anteproyecto de presupuesto en materia salarial.
-2) Tramitar, ejecutar y controlar el contenido económico para asignar, reasignar, reclasificar, entre otros, los puestos de la institución; así como, el presupuesto general de la institución.
-3) Velar por el correcto trámite y aplicación de las gestiones relacionadas con la administración de salarios y derechos pecuniarios derivados de la relación laboral; asimismo, acatar las disposiciones emitidas por resolución con respecto al pago en materia salarial.
-4) Administrar el cobro de las Sumas Acreditadas que no corresponden, incapacidades, elaborar las denuncias por accidentes laborales, certificaciones de componentes salariales y deducciones, reclamos administrativos por salarios dejados de percibir, desgloses salariales; así como, elaborar y remitir las propuestas de planillas del Instituto Nacional de Seguros y la Caja Costarricense de Seguro Social.
-5) Velar por la correcta aplicación en el Sistema de Pagos, en acato a las disposiciones que en materia de salario se emitan, todo movimiento de personal relacionado con inclusiones, exclusiones, licencias, incapacidades, deducciones, reajustes; así como, las propuestas de pago salarial, entre otras modificaciones que afecten la condición de puestos, salarios e información de los servidores.
-6) Dar trámite y efectuar investigaciones y estudios de cumplimiento de requisitos que determinen el pago de los distintos incentivos salariales, beneficios y vacaciones; así como mantener el registro y control de los mismos.
-7) Realizar los cálculos, proyecciones y resoluciones de pago de extremos laborales.
-8) Atender cualquier otra actividad propia de su competencia.
+Artículo 46.- El Departamento de Control y Documentación tendrá las siguientes funciones:
+1) Administrar el recurso humano y los puestos asignados al Ministerio de Seguridad Pública.
+2) Velar porque los movimientos de personal se realicen acorde con la normativa vigente en el Ministerio.
+3) Mantener el control de asistencia, puntualidad y vacaciones del personal del Ministerio.
+4) Administrar, facilitar, reunir, clasificar, ordenar, seleccionar y conservar los expedientes personales de los funcionarios y ex funcionarios del Ministerio.
+5) Administrar y custodiar los documentos referentes a pólizas de garantía, declaraciones juradas de bienes e informe de fin de gestión, en cumplimiento de la normativa de control interno vigente.
+6) Atender cualquier otra actividad propia de su competencia.
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 43 al 44)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 44 al 46)
+(Así reformado por el artículo 2° del decreto ejecutivo N° 40106 del 11 de noviembre del 2016)

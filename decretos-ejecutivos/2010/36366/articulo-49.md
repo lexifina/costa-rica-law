@@ -1,11 +1,11 @@
-Artículo 49.—La Sección de Aplicaciones tendrá las siguientes funciones:
-1) Velar por la aplicación de los movimientos de personal, relacionados con la administración de salarios y derechos pecuniarios derivados de la relación laboral.
-2) Mantener actualizado el sistema de pagos mediante el registro y monitoreo de los movimientos de personal de la Institución.
-3) Administrar la relación de puestos para el trámite y aplicación de los movimientos de personal de este Ministerio.
-4) Realizar mediante el sistema de pagos del Ministerio de Hacienda la inclusión y exclusión de los servidores de este Ministerio.
-5) Confeccionar las propuestas de planillas de pago conforme a los periodos que establezca el Ministerio de Hacienda.
-6) Realizar las actividades correspondientes para el pago de horas extra, anualidades e incentivos que así lo requieran.
-7) Ejercer el control y monitoreo quincenal de pago de la planilla para verificar y analizar los resultados referentes a ésta.
-8) Atender cualquier otra actividad propia de su competencia.
+Artículo 49.- La Sección Asistencia y Reubicaciones tendrá las siguientes funciones:
+1) Gestionar y ejecutar los procedimientos relacionados con la ubicación y traslado del personal del Ministerio.
+2) Controlar y dar seguimiento al proceso de asistencia y puntualidad de los funcionarios del Ministerio.
+3) informar al Departamento Disciplinario Legal, sobre las actuaciones de los funcionarios que contravienen los procedimientos de asistencia.
+4) Realizar la retención y liberación salarial de los funcionarios del Ministerio, por anomalías en el control de asistencia.
+5) Mantener una base de datos actualizada sobre los funcionarios que disfrutan vacaciones.
+6) Dar trámite y seguimiento a las gestiones relacionadas con disfrute de vacaciones de los funcionarios de la Institución.
+7) Atender otras funciones propias de su competencia.
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 37310 del 6 de agosto de 2012, que lo traspaso del antiguo artículo 46 al 47)
 (Así corrida su numeración por el artículo 2° del decreto ejecutivo N° 38705 del 13 de agosto del 2014, que lo traspasó del antiguo artículo 47 al 49)
+(Así reformado por el artículo 2° del decreto ejecutivo N° 40106 del 11 de noviembre del 2016)
