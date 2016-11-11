@@ -1,0 +1,4 @@
+Artículo 27. Políticas y procedimientos. La persona Auditora Interna es responsable de la dirección superior y administración de la Auditoría Interna, por lo que, entre otras cosas, le corresponde:
+a. Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas requeridas para cumplir las competencias de la Auditoría Interna.
+b. Definir, establecer y mantener actualizadas las políticas, procedimientos y prácticas de administración, acceso y custodia de la documentación de la Auditoría Interna, en especial de la información relativa a los asuntos de carácter confidencial que estipulan el artículo 6 de la LGCI y el artículo 8 de la LCEIFP.
+c. Para esos efectos, se debe considerar la normativa que dicte la CGR sobre la materia,en especial lo establecido en las Normas para el Ejercicio de la Auditoría Interna R-DC-119-2009 (en adelante NEAISP).

@@ -1,0 +1,1 @@
+Artículo 40. Discrepancias e implantación de recomendaciones. El plazo para ordenar la implantación de las recomendaciones planteadas en los informes de la Auditoría Interna y la solución de las discrepancias que podrían surgir con los responsables de esa labor, estarán regulados por lo establecido en los artículos 36, 37 y 38 de la LGCI.

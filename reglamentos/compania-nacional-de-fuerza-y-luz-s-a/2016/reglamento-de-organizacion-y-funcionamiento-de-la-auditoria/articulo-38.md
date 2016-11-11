@@ -1,0 +1,1 @@
+Artículo 38. Comunicación de los servicios preventivos. La comunicación de los servicios preventivos se hará en forma escrita, mediante oficios u otros medios de comunicación legales permitidos, conforme lo establecido en las políticas y procedimientos aprobados por la persona Auditora Interna.

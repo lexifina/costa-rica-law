@@ -1,0 +1,3 @@
+CAPÍTULO III
+DE LOS NOMBRAMIENTOS
+Artículo 11. Nombramiento, suspensión o remoción de la persona Auditora Interna. El nombramiento, suspensión o remoción de la persona Auditora Interna, se hará en estricto apego a lo dispuesto en el artículo 31 de la LGCI, el artículo 15 de la Ley Orgánica de la Contraloría General de la República (en adelante LOCGR) y los “Lineamientos sobre los requisitos de los cargos de auditor y sub auditor internos, las condiciones para las gestiones de nombramiento, suspensión y destitución de dichos cargos, y la aprobación del reglamento de organización y funcionamiento de las auditorías internas del Sector Público R-CO-91-2006 del 17 de noviembre de 2006 y sus reformas, resolución N°R-DC-119-2009 del 16 de diciembre de 2009.

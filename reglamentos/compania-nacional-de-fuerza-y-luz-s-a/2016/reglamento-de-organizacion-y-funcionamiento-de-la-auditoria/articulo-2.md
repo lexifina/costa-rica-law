@@ -1,0 +1,1 @@
+Artículo 2. Ámbito de acción. La Auditoría Interna ejercerá sus funciones en todas aquellas actividades que tienen relación con el negocio de la CNFL, con los entes u órganos que custodian, administran y/o reciben beneficios patrimoniales de la empresa.
