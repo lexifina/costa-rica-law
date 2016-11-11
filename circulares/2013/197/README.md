@@ -13,3 +13,4 @@ Modificación del punto 8 del artículo 6° del “Reglamento de Vestimenta para
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-11-15 | la propia norma |
+| 2 | 2016-11-11 | Circular 180 (2016-11-11) |
