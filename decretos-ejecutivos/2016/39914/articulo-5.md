@@ -1,0 +1,2 @@
+ARTÍCULO 5
+Cada una de las Partes Contratantes tiene el derecho de suspender la implementación de todo o parte de este Acuerdo por razones de seguridad nacional, orden público o de salud pública. Tal decisión de suspender o revocar una suspensión será notificada a la otra parte contratante por los canales diplomáticos a más tardar 7 (siete) días antes de la entrada en vigor de la suspensión o revocación de la suspensión, respectivamente.

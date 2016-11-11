@@ -1,0 +1,2 @@
+ARTÍCULO 4
+En el evento en que un ciudadano de una de las Partes Contratantes pierda su pasaporte diplomático o pasaporte especial en el territorio de la otra parte contratante, debe notificar inmediatamente a las autoridades competentes de la parte contratante anfitriona para llevar a cabo las acciones apropiadas. La misión diplomática relevante u oficina consular debe emitir un nuevo documento de viaje a su ciudadano que le permita cruzar puntos fronterizos, y deberá notificar a las autoridades competentes de la parte contratante anfitriona de la acción realizada.

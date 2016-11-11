@@ -1,0 +1,4 @@
+ARTÍCULO 2
+1. Los ciudadanos de cualquiera de las Partes Contratantes que porten pasaportes diplomáticos y pasaportes especiales asignados como miembros de misiones diplomáticas, consulares o de una organización internacional con sede en el territorio de la otra Parte Contratante, tendrán el derecho de ingresar, salir y transitar a través del territorio de la otra parte contratante y de permanecer allí durante el término de su asignación sin la necesidad de solicitar visa.
+2. Lo anterior se aplicará también a miembros familiares, a los que se refiere el Artículo 2.1, siempre y cuando ellos sean portadores de pasaportes diplomáticos y sean miembros del núcleo familiar con tales personas.
+3. Las identidades de las personas a las que se refiere el Artículo 2.1 y el Artículo 2.2 serán notificadas por el Ministerio de Relaciones Exteriores de una de las Partes Contratantes a la misión diplomática de la otra parte contratante previo a su asignación.

@@ -1,0 +1,3 @@
+ARTÍCULO 6
+1. Para los propósitos de este Acuerdo, las Partes Contratantes deben intercambiar, a través de los canales diplomáticos, las muestras de los pasaportes diplomáticos en vigencia, acompañadas de una descripción detallada de tales documentos, a más tardar 30 (treinta) días antes de la entrada en vigencia de este Acuerdo.
+2. Para los propósitos de este Acuerdo, las Partes Contratantes deben intercambiar, a través de los canales diplomáticos, las muestras de los pasaportes diplomáticos y pasaportes especiales nuevos y modificados, acompañados de una descripción detallada de tales documentos, a más tardar 30 (treinta) días antes de la entrada en vigencia de estos documentos.
