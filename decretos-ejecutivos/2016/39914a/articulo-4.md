@@ -1,0 +1,2 @@
+Article 4
+In the event a citizen of one Contracting Party losses his/her diplomatic and special passport in the territory of the other Contracting Party, he/she shall immediately notify the competent authorities of the receiving Contracting Party so that appropriate actions can be undertaken. The relevant diplomatic mission or consular office shall issue a new travel document to his/her citizen enabling him/her to cross state borders, and shall notify the competent authorities of the receiving Contracting Party of this fact.

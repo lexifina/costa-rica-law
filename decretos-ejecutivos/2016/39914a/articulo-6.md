@@ -1,0 +1,3 @@
+Article 6
+1. For the purposes of this Agreement, the Contracting Parties shall, by diplomatic channels, exchange specimens of their currently applicable diplomatic passports, together with a detailed description of such documents, no later than 30 (thirty) days before the entry into force of this Agreement.
+2. For the purposes of this Agreement, the Contracting Parties shall, by diplomatic channels, exchange specimens of their new and changed diplomatic and special passports, together with a detailed description of such documents, no later than 30 (thirty) days before the entry into force of such documents.

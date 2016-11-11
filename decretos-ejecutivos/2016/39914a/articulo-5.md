@@ -1,0 +1,2 @@
+Article 5
+Each Contracting Party shall have the right to suspend the implementation of the entire Agreement or its part for reasons of security, public order or public health protection. A decision to suspend or to revoke a suspension shall be notified to the other Contracting Party by diplomatic channels no later than 7 (seven) days prior to the entry into force of the suspension or the revocation of the suspension, respectively.

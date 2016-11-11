@@ -1,0 +1,4 @@
+Article 2
+1. Citizens of one Contracting Party holding valid diplomatic and special passports who are assigned to work in a diplomatic mission, consular office or an international organization having its seat in the territory of the other Contracting Party shall have the right to enter, exit and transit through the territory of the other Contracting Party and to remain there during the term of their assignment without the need to apply for a visa.
+2. The above right shall also be enjoyed by family members of persons referred to in Article 2.1, provided that they hold diplomatic passports and are members of one household with such persons.
+3. Persons referred to in Article 2.1 and Article 2.2 shall be notified by the Ministry of Foreign Affairs of one of the Contracting Parties to the diplomatic mission of the other Contracting Party prior to being assigned.
