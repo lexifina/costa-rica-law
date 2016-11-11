@@ -14,3 +14,4 @@ Reglamento de Vestimenta para las personas que laboran en el Poder Judicial
 | --- | --- | --- |
 | 1 | 2013-02-21 | la propia norma |
 | 2 | 2013-11-15 | Circular 197 (2013-11-15) |
+| 3 | 2016-11-11 | Circular 180 (2016-11-11) |
