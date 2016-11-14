@@ -1,0 +1,1 @@
+Artículo 36.- Ninguna persona queda autorizada para utilizar el perifoneo para realizar ventas ambulantes junto con el pregoneo mediante el uso o no de sistemas de amplificación u otros sin permiso municipal.

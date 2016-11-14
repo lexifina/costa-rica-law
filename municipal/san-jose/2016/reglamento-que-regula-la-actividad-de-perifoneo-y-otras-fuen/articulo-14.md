@@ -1,0 +1,2 @@
+Artículo 14.- Una vez recibida toda la documentación por parte de la Sección de Permisos y Patentes, está realizará una valoración sobre la solicitud y presentará resolución.
+Verificada la información presentada por el solicitante, en caso de determinarse que hacen falta requisitos, se prevendrá al administrado para que complete requisitos o aclare la información, tal prevención suspende el plazo que tiene la administración y otorgará al administrado hasta 10 días hábiles para completar o aclarar la información, trascurridos los cuales continuará el plazo para resolver.

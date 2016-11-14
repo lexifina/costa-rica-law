@@ -1,0 +1,1 @@
+Artículo 42.- Al efectuar las visitas a que se refiere el artículo anterior, los inspectores municipales, se identificarán debidamente y procederán a levantar el acta y seguir los procedimientos correspondientes.

@@ -1,0 +1,2 @@
+Artículo 37.- El horario de funcionamiento de perifoneo móvil será de lunes a viernes con un horario de 09:00 am a 5:00 pm, los sábados, domingos y días feriados no se permitirá el funcionamiento de esta actividad, bajo esta modalidad.
+El horario de funcionamiento de perifoneo en locales comerciales será de lunes a domingo con un horario de 10:00 am a 6:00 pm. Es totalmente prohibido el funcionamiento de perifoneo, DJ o uso de altoparlantes fuera de este horario salvo situaciones de interés público.

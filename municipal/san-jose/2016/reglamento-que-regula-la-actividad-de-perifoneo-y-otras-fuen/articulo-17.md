@@ -1,0 +1,1 @@
+Artículo 17.-Firme la resolución que apruebe la solicitud, la dependencia encargada de otorgar licencias o patentes lo comunicará a la Sección de Inspección, para su conocimiento y respectivo control.

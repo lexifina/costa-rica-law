@@ -1,0 +1,1 @@
+Artículo 19. Denegatoria: La licencia o permiso municipal, podrá ser denegado cuando la actividad sea contraria a las leyes vigentes, a la moral y las buenas costumbres, así como por razones de oportunidad y conveniencia mediante resolución razonada, contra la cual se podrán interponer los recursos que dispone el Capítulo I del Título VI del Código Municipal.

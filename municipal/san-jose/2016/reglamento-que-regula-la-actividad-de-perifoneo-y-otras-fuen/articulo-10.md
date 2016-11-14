@@ -1,0 +1,1 @@
+Artículo 10.- Quienes ostenten por la licencia municipal deberán observar los imperativos legales ambientales y comerciales en desarrollo de la actividad, así como el Reglamento para el Control de Ruido y sus reformas, en tanto no podrá utilizarse instrumentos de amplificación de sonido que sobrepase los decibeles de sonidos permitidos conforme a las normas ambientales.

@@ -1,0 +1,1 @@
+Artículo 3.-Ámbito de Aplicación. El presente Reglamento regulará todas las actividades de perifoneo y otras fuentes emisoras de sonido que se realicen dentro de la jurisdicción territorial de la Municipalidad de San José.

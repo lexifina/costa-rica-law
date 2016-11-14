@@ -1,0 +1,1 @@
+Artículo 27.-De conformidad con el artículo 81 bis del Código Municipal, será sancionado con multa equivalente a tres salarios base, al licenciatario o persona responsable del servicio o uso de perifoneo, DJ o similares que no cuente con licencia municipal o que teniéndola esté suspendida y continúe desarrollando la actividad.

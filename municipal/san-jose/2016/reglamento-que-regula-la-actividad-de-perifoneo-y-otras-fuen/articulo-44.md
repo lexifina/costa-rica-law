@@ -1,0 +1,1 @@
+Artículo 44.-La Municipalidad de San José deberá presupuestar para el año 2017, la compra de los sonómetros o instrumentos requeridos para el cumplimiento de los artículos establecidos en el presente reglamento.

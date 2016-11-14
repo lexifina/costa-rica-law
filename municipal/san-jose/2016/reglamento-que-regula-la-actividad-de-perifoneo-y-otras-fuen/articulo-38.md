@@ -1,0 +1,1 @@
+Artículo 38.- No se podrá realizar actividades de perifoneo o DJ en un radio de 100 metros en los alrededores de hospitales, centros de enseñanza, Iglesias, capillas de velación o áreas designadas por el Ministerio de Salud como de “tranquilidad excepcional”.

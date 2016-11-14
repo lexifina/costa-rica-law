@@ -1,0 +1,1 @@
+Artículo 34.- Para todo establecimiento comercial u otro, está totalmente prohibido el funcionamiento de altoparlantes o cualquier otro artefacto similar, o bien mediante la animación de DJ en vivo u otros medios de radio difusión con sistemas de amplificación de sonido afuera de sus establecimientos; así como en la vía pública, incluyendo aceras.

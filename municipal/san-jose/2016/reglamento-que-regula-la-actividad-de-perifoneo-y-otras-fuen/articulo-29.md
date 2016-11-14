@@ -1,0 +1,1 @@
+Artículo 29.-Será responsable por el incumplimiento y la violación de las obligaciones mencionadas: El propietario y /o Administrador del establecimiento de comercio o dueño vehicular; el dueño de los altoparlantes o amplificadores y la persona que difunda el mensaje.

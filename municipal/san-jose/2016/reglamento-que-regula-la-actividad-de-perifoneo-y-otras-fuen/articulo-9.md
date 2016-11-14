@@ -1,0 +1,13 @@
+Artículo 9.- Toda persona que quiera optar por una licencia municipal, para ejercer la actividad de perifoneo o bien la intervención de DJ comercial y similares, deberá cumplir con los siguientes requisitos y disposiciones:
+a.- Formulario original de solicitud de licencia comercial dispuesto por la municipalidad, debidamente lleno, firmado y autenticado por abogado.
+b.- Ser persona física o jurídica mayor de edad.
+c.- Copia de la Cédula de identidad o certificación de naturalización residencia permanente y en su caso certificación de residente permanente.
+d.- Recibo de agua o luz donde consta la dirección con ubicación en el cantón.
+e.- Permiso del Ministerio de Salud, cuando esta corresponda donde se indique los decibeles permitidos como la altura y colocación de los parlantes, esto de conformidad con la Ley General de Salud, (artículo 20 “límite de niveles de sonido del Reglamento para el control de la contaminación por ruido) o bien certificado de ese Ministerio en el que se indique que no emite ese tipo de certificados.
+No obstante, estas autorizaciones, no serán vinculantes para la Municipalidad, en tanto ésta se reserva el derecho de rechazar las solicitudes respectivas, de acuerdo con criterios de conveniencia y oportunidad.
+f.- Todo solicitante debe estar al día en el pago de los impuestos y servicios municipales.
+g.- De igual forma todo interesado deberá presentar ante la dependencia encargada de otorgar las licencias o patentes, la solicitud por escrito en el que deberá señalar el lugar y nombre de negocio comercial o bien el sector a circular si fuera móvil, días y horas de utilización, texto del perifoneo y similares, el cual deberá estar de acuerdo con la moral y las buenas costumbres. En caso de no acatar esta disposición luego de otorgar la licencia y el texto fue variado, o se realiza en el lugar, horas y días no autorizados se cancelará la licencia.
+h.- Así mismo, deberá expresar la naturaleza de los mensajes a difundir y presentará un cronograma de la actividad indicando la fecha, hora, lugar, tiempo de duración, tiempo de inicio y tiempo a terminar.
+i.- Cuando el perifoneo sea en vehículo de motor, deberá presentar fotografía de la unidad a través de la que se hará el anuncio.
+j.- Cuando se utilice vehículos automotores la identificación de éste y la obligatoriedad de anexar fotocopia de los documentos del vehículo y del conductor fotocopia de la cédula de identidad, Licencia de conducir al día, tarjeta de circulación RITEVE y marchamo, certificado de permiso para ese tipo de actividad por parte de la Dirección General de Tránsito, así como cualquier otro que a valoración administrativa, se requiera.
+k.- Pago de derechos correspondientes.

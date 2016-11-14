@@ -1,0 +1,1 @@
+Artículo 32.-La resolución de extinción y cancelación de la licencia de perifoneo, uso de DJ o similares, sin responsabilidad de la Municipalidad, se seguirá conforme al debido proceso siguiendo el procedimiento interno seguido en la especie.

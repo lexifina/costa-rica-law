@@ -1,0 +1,1 @@
+Artículo 30.- Suspensión de la licencia. Las licencias serán suspendidas por 8 días cuando se determine la reincidencia de alguna falta, en cuyo caso el inspector solicitará el retiro inmediato del equipo utilizado.

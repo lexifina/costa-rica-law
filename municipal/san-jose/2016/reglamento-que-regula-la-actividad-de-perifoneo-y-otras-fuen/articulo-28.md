@@ -1,0 +1,1 @@
+Artículo 28.-Denuncias ante los órganos jurisdiccionales. La Municipalidad podrá denunciar ante los órganos jurisdiccionales competentes, a quien incurra en violación de lo aquí dispuesto y así se le ha notificado previamente al infractor.

@@ -1,0 +1,3 @@
+CAPÍTULO V
+DE LAS SANCIONES
+Artículo 26.-Sin perjuicio de las denuncias que se pueda instar de conformidad con la legislación vigente, si un patentado fuere apercibido, por alguna falta a las disposiciones de este reglamento o a las leyes en el desarrollo de la actividad autorizada, salvo que otra norma disponga otra sanción, sin que adecue su actividad a las disposiciones normativas vigentes dentro del plazo que se le otorgue, su licencia será suspendida y contra la resolución que así lo ordene podrán interponerse los recursos correspondientes de conformidad con lo establecido en el Código Municipal.

@@ -1,0 +1,3 @@
+Artículo 15.- La dependencia encargada de otorgar las licencias o patentes de así considerarlo, podrá solicitar el criterio técnico de las dependencias municipales correspondientes.
+De conformidad con criterios técnicos y jurídicos, la dependencia encargada de otorgar las licencias o patentes determinará si la actividad propuesta es conveniente para los intereses públicos locales, y si guarda o no homogeneidad con la estética y condiciones del lugar en el cual circulará. En ese sentido, será rechazada cualquier solicitud que no se ajuste al marco técnico, legal y reglamentario aplicable.
+Una vez presentado el informe referido, la dependencia encargada de otorgar licencias o patentes emitirá una resolución motivada en el que apruebe o deniegue la gestión.
