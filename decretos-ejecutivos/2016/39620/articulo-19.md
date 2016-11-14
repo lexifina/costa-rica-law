@@ -1,0 +1,3 @@
+SECCIÓN SEGUNDA
+De los documentos de identidad provisionales y permanentes
+Artículo 19.—El documento al que se hace referencia en el artículo 12 de este Reglamento deberá ser emitido por la Dirección General de Migración y Extranjería (Subproceso de Refugiados), para documentar provisionalmente al solicitante de la condición de apátrida y sus familiares, de ser el caso. Dicho documento provisional regularizará temporalmente la situación migratoria del solicitante en el país por un período de seis meses, renovable por períodos iguales hasta tanto se haya dictado la resolución final que resuelve la solicitud de la condición de apátrida.

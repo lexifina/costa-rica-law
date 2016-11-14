@@ -1,0 +1,1 @@
+Artículo 36.—Aquellos parientes de la persona apátrida que tengan su nacionalidad, deberán promover ante la Dirección General de Migración y Extranjería, la regularización migratoria del resto del núcleo familiar, salvo que sean costarricenses.

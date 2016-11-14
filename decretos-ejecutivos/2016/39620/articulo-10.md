@@ -1,0 +1,1 @@
+Artículo 10.—Una vez presentada la solicitud de apátrida, la Dirección Jurídica procederá a abrir un expediente. En caso de grupo familiar se abrirá un expediente individual a cada una de las personas mayores de edad.

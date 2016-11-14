@@ -1,0 +1,3 @@
+Artículo 25.—Es deber del solicitante de la declaratoria de condición de persona apátrida, completar y cumplir en tiempo y forma el procedimiento indicado en este Reglamento, así como las siguientes obligaciones:
+a. Señalar lugar o medio (fax o correo electrónico) para recibir notificaciones; reportar domicilio exacto y medio óptimo para su ubicación. Deberá reportar oportunamente al Ministerio cualquier cambio.
+b. Cooperar y dar seguimiento activo a su solicitud. Transcurridos seis meses sin actividad atribuible al solicitante, se archivará el expediente. Sin perjuicio de ello, se procederá a la reapertura a requerimiento del solicitante en cualquier momento.

@@ -1,0 +1,1 @@
+Artículo 16.—Una vez emitida la resolución de reconocimiento de la condición de apátrida por parte del Ministro de Relaciones Exteriores y Culto, se procederá a su inmediata notificación al solicitante, a la Dirección General de Migración y Extranjería y cualquier otra autoridad que por la particularidad de cada caso se estime necesario.

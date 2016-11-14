@@ -1,0 +1,2 @@
+Artículo 6°—El Ministerio podrá solicitar la cooperación y asistencia técnica de la Oficina del ACNUR, agencia del Sistema de las Naciones Unidas al cual se le encomendó la identificación, prevención y reducción de las situaciones de apatridia y la protección de las personas apátridas.
+Asimismo, tanto en la tramitación inicial de la solicitud como en cualquiera de sus etapas siguientes, el Ministerio podrá solicitar la asistencia técnica a las autoridades, dependencias y demás entes que estime necesario, quienes están en la obligación de asistirlo en lo que corresponda.

@@ -1,0 +1,4 @@
+Artículo 7°—El Ministerio de Relaciones Exteriores y Culto tendrá entre sus principales funciones:
+a) Resolver el reconocimiento, denegatoria, exclusión, cesación y revocación de la condición de persona apátrida, sobre la base de las disposiciones contenidas en la Convención de 1954, la Ley General de Migración y Extranjería, Ley Nº 8764 de 19 de agosto de 2009, el presente Reglamento y demás fuentes de derecho internacional y nacional en materia de personas apátridas.
+b) Promover ante la Dirección General de Migración y Extranjería la emisión de la documentación de identidad provisional del solicitante y definitiva del apátrida y sus familiares, de conformidad con lo establecido en el presente reglamento, así como los documentos de viaje.
+c) Actuar, en el marco de su competencia, en el proceso orientado a dotar de nacionalidad a la persona apátrida, ante las instancias involucradas.

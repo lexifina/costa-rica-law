@@ -1,0 +1,2 @@
+Artículo 27.—El Ministro, con las recomendaciones de la Dirección Jurídica al respecto, decidirá mediante resolución motivada la aplicación de las cláusulas de exclusión a la persona apátrida. Contra esa resolución puede interponerse recurso de reconsideración dentro de un plazo de quince días hábiles contados a partir del día siguiente a la fecha de su notificación.
+El Ministro deberá resolver el recurso en un plazo no mayor de diez días hábiles, a partir de recibido el recurso. Lo resuelto por el Ministro agotará la vía administrativa.

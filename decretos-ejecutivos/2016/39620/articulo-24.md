@@ -1,0 +1,2 @@
+Artículo 24.—De conformidad con el artículo 33 inciso 2 de la Ley General de Migración y Extranjería, los solicitantes de la condición de apátrida y personas apátridas deberán portar, conservar y presentar, a solicitud de la autoridad competente, el documento de identificación vigente que acredite su permanencia regular en el país, de conformidad con la normativa vigente.
+Asimismo, deberán respetar los períodos de renovación de su documentación.

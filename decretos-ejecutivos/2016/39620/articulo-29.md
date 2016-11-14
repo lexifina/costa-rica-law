@@ -1,0 +1,3 @@
+Artículo 29.—El Ministro decidirá mediante resolución debidamente motivada sobre la aplicación de las cláusulas de cesación de la condición de persona apátrida. Contra esa resolución puede oponerse el recurso de reconsideración dentro de un plazo de quince días hábiles contados a partir del día siguiente a la fecha de su notificación.
+El Ministro deberá resolver el recurso de reconsideración en un plazo no mayor de diez días hábiles, a partir de recibido el recurso. Lo resuelto por el Ministro agotará la vía administrativa.
+A la persona cesada en su condición de apátrida, en virtud del inciso a) del artículo 27, le será aplicable la legislación ordinaria en materia migratoria.

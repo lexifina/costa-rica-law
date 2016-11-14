@@ -1,0 +1,1 @@
+Artículo 13.—Cuando el ejercicio de un derecho por una persona apátrida necesite de la ayuda de autoridades extranjeras a las cuales no pueda recurrir directamente, la Administración tomará las medidas necesarias para que sus propias autoridades le proporcionen, en la medida de lo posible, esa ayuda, teniendo presente la situación de vulnerabilidad de la persona apátrida.
