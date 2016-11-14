@@ -14,3 +14,4 @@ Reglamento para el procedimiento de cobro administrativo y judicial de la Munici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-01-06 | la propia norma |
+| 2 | 2016-11-14 | Reglamento municipal 52 (2016-11-14) |
