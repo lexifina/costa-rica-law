@@ -1,0 +1,1 @@
+Artículo 16. La alcaldía municipal puede variar en cualquier momento la organización de la Administración del Centro de Acopio Fernando Matamoros, dicha organización estará establecida en el organigrama establecido para ese fin. (Ver Anexo 1)

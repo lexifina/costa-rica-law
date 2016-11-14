@@ -1,0 +1,1 @@
+Artículo 37. La Municipalidad de San Rafael de Heredia dará debida capacitación y entrenamiento al personal encargado de velar por el funcionamiento de los diferentes equipos y maquinaria tanto estáticos como móviles con los que dispone el Centro de Acopio Municipal.

@@ -1,0 +1,1 @@
+Artículo 18. Lo referente a vacaciones, aguinaldos, permisos y demás garantías que gozan los funcionarios, se aplicará lo que dispone el Reglamento Interno de la Municipalidad de San Rafael de Heredia, y supletoriamente el Código Municipal prevaleciendo el Código de Trabajo.

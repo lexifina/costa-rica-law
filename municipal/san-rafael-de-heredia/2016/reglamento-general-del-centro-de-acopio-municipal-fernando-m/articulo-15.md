@@ -1,0 +1,1 @@
+Artículo 15. El Centro de Acopio Fernando Matamoros cuenta con los siguientes funcionarios: Encargado administrativo, coordinador centro de acopio, clasificadores generales, clasificadores papel, embalador general, clasificador vidrio, clasificador periódico, supernumerario, ruteros, chofer.

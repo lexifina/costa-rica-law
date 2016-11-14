@@ -1,0 +1,1 @@
+Artículo 30. El proceso de cierre de caja diario, preferiblemente debe iniciar a las 2:15 p.m. y estar listo a las 2:45 p.m., hora en que deberá ser entregado al Mensajero municipal, o en su defecto, al funcionario que la administración determine, esto para ser trasladado a las cajas centrales recaudadoras del Municipio.

@@ -1,0 +1,1 @@
+Artículo 19. En caso de presentarse alguna situación de hostigamiento sexual o acoso laboral se dispondrá lo que se establece en el Reglamento contra el hostigamiento sexual y el acoso laboral de la Municipalidad de San Rafael de Heredia, supletoriamente prevalece y se aplicará la Ley contra el hostigamiento sexual en el empleo y la docencia (Ley 7476).

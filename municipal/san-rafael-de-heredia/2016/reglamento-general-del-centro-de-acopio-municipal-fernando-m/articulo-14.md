@@ -1,0 +1,1 @@
+Artículo 14. Los funcionarios tendrán una hora de almuerzo y quince minutos para el café de Lunes a Viernes. Administrador del Centro de Acopio dispondrá de cuándo los funcionarios pueden tomar sus respectivas horas de almuerzo y tiempo de café dependiendo de la disponibilidad de personal en el momento, de las rutas, de la época y demás factores que puedan inferir en los tiempos.
