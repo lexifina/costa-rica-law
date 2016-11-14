@@ -14,3 +14,4 @@ Reglamento Orgánico del Instituto Costarricense de Investigación y Enseñanza 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-02-15 | la propia norma |
+| 2 | 2016-11-14 | Decreto Ejecutivo 40091 (2016-11-14) |
