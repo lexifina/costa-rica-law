@@ -14,3 +14,4 @@ Código de ética profesional del Contador Público autorizado y de la Contadora
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-01-16 | la propia norma |
+| 2 | 2016-11-14 | Reglamento 14 (2016-11-14) |
