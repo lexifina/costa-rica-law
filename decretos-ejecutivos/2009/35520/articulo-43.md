@@ -1,1 +1,0 @@
-Artículo 43.—La Secretaria de Actas llevará el registro de asistencia a las sesiones de los miembros del Consejo Técnico, todo de acuerdo con lo que establece este Reglamento. Las situaciones especiales que pudieran presentarse, serán resueltas por el Presidente del Consejo Técnico o por quien actúe transitoriamente como tal durante sus ausencias.

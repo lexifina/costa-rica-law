@@ -1,2 +1,0 @@
-Artículo 15.—Los invitados o visitantes, en el artículo correspondiente debe especificarse el motivo de su asistencia, de no participar se consignará la razón por lo cual no lo hizo. Tienen derecho de voz, pero no de voto.
-Su ingreso debe constar al inicio del artículo correspondiente, o en el texto de la discusión en el momento en que ingresan a la sala, así como la hora de su salida.

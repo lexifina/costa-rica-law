@@ -1,1 +1,0 @@
-Artículo 5º—La convocatoria será comunicada al menos con veinticuatro horas hábiles por la secretaria del Consejo Técnico, previa aprobación del cronograma de sesiones ordinarias por parte de este órgano colegiado; incluirá primera y segunda convocatoria y se adjuntará la agenda correspondiente.

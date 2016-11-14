@@ -1,1 +1,0 @@
-Artículo 10.—El miembro del Consejo Técnico que no pueda asistir, debe presentar en forma escrita la justificación de ausencia a la Presidencia o al secretario (la secretaria) del órgano, con anticipación suficiente, a la hora en que se convocó la reunión, con la finalidad de incluirla en la agenda y el acta correspondiente.

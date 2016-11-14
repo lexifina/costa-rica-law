@@ -1,1 +1,0 @@
-Artículo 31.—Todas las dependencias del INCIENSA deberán dar atención inmediata a los acuerdos que adopte el Consejo Técnico. La Dirección General indicará a cuál o cuáles de ellas corresponden ejecutar la resolución tomada. La Secretaria de Actas del Consejo Técnico, deberá llevar además, un registro especial de cada acuerdo y verificar en tiempo, su fiel cumplimiento.
