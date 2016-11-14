@@ -1,0 +1,2 @@
+Artículo 10.—Vigencia. Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+El Concejo Municipal de Turrubares, en sesión ordinaria Nº 53-2016, celebrada el día 19 de Octubre del 2016, acuerda en forma unánime en firme y definitivamente, aprobar el Reglamento para la formulación, aprobación y ejecución de modificaciones presupuestarias de la Municipalidad de Turrubares. Procédase a su publicación en el Diario Oficial La Gaceta.
