@@ -1,6 +1,3 @@
-Artículo 15.—Toda documentación relativa a los acuerdos de pago estarán en custodia de la Oficina de Cobros, la que en su oportunidad y de ser necesario, la remitirá a los abogados que asigne la Municipalidad para que realice las gestiones de cobro judicial correspondiente.
-Todo arreglo de pago debe ser realizado por el propietario de la finca sobre la que pesa la deuda, en caso contrario la persona que se presente a firmar dicho arreglo deberá presentar un poder debidamente autenticado.
-Para el arreglo de pago el contribuyente deberá presentar la siguiente documentación:
-—Fotocopia de la cédula de identidad.
-—Fotocopia de la escritura o estudio registral.
-(Así reformado por acuerdo del Concejo Municipal, en su sesión N° 27 del 6 de julio de 2004)
+Artículo 15.—Se exceptúan del arreglo de pago:
+Licencias municipales y Patentes Municipales. Lo adeudado deberá pagarse en un solo tracto. La Administración Tributaria procederá al cierre del respectivo local comercial después del incumplimiento de pago previo apercibimiento por un plazo de quince días. (Artículos 65 y 86 del Código de Normas y Procedimientos Tributarios) lo mismo que al cierre de los locales que se encuentren en funcionamiento sin contar con su respectiva licencia municipal. (Patente) (Ley 8260 publicada en la Gaceta del 20 de mayo del 2002, “Tarifa de Impuestos Municipales del cantón de Abangares”.).
+Los alquileres: Por este concepto no se aceptarán arreglos de pago y la renta se hará por adelantado.

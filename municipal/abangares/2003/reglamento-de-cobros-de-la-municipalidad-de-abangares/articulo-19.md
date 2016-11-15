@@ -1,3 +1,4 @@
-Artículo 19.—Se exceptúa del arreglo de pago:
-a) Licencias municipales y Patentes Municipales. Lo adeudado deberá hacerse de un solo monto. El Departamento de Administración Tributaria por medio de la Oficina de Patentes queda facultado para realizar el cierre del respectivo local comercial después de incumplimiento de pago por dos o más trimestres consecutivos (Art. 72 Código de Procedimientos Tributarios) y proceder al cierre de los locales que se encuentren en funcionamiento sin contar con su respectiva licencia municipal. (Patente) (Ley 8260 publicada en la Gaceta del 20 de mayo del 2002, "Tarifa de Impuestos Municipales del cantón de Abangares".)
-b) Los alquileres: Por este concepto no se aceptarán arreglos de pago; pues debe pagar por adelantado.
+Artículo 19.—Solicitud de Certificaciones de Impuestos Municipales.
+a) Cuando el contribuyente solicitare una certificación de la contaduría municipal para efectos bancarios u otro efecto, se expedirá con la advertencia que se encuentra moroso, o bien si está pendiente un arreglo de pago.
+b) Cuando un contribuyente solicitare una certificación de la contaduría municipal para efectos bancarios u otro trámite, si se encuentra en arreglo de pago, la certificación deberá consignar si se encuentra o no cumpliendo con los términos del arreglo de pago y el monto que adeuda a la fecha de emisión.
+c) Se responsabiliza al contador (a) para la recuperación de la deuda en el plazo y monto estipulado en la garantía, ya que este funcionario es el único autorizado para extender certificaciones tributarias.

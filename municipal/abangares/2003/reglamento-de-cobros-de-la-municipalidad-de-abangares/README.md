@@ -15,3 +15,4 @@ Reglamento de Cobros de la Municipalidad de Abangares.
 | --- | --- | --- |
 | 1 | 2003-09-10 | la propia norma |
 | 2 | 2004-07-06 | Reglamento municipal 27 (2004-07-06) |
+| 3 | 2016-11-15 | Reglamento municipal 46 (2016-11-15) |

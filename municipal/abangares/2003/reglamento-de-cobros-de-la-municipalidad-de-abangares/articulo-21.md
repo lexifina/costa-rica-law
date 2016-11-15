@@ -1,1 +1,1 @@
-Artículo 21.—Para solicitar un arreglo de pago la cuenta deberá superar los dos trimestres de morosidad, una vez concedido el arreglo de pago. Los meses posteriores a este, deben pagarse puntualmente. De lo contrario se incumple el convenio de arreglo de pago.
+Artículo 21.—El abogado está obligado a cotejar el edicto antes y después de su publicación en el Boletín Judicial, con los documentos que fundamentan la demanda y será responsable, ante la Municipalidad, de cualquier perjuicio que por error al respecto pudiera causar su omisión.
