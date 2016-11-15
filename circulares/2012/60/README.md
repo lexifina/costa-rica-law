@@ -13,3 +13,4 @@ Pago de horas extra a personal técnico jurídico
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-05-15 | la propia norma |
+| 2 | 2016-11-15 | Circular 192 (2016-11-15) |
