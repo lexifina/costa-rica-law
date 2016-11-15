@@ -1,1 +1,3 @@
-Artículo 3º—La licencia deberá ser solicitada por escrito adjuntando el respectivo timbre Municipal, cumpliendo con los requisitos que para tal efecto estipula el artículo 4° de este reglamento. En la solicitud deberá indicar que tipo de actividad lucrativa ofrecerá.
+CAPÍTULO II
+Licencias
+Artículo 3º—Únicamente se podrá realizar el comercio en forma ambulante en las vías públicas y demás zonas enunciadas cuando se cuente con la respectiva licencia Municipal.

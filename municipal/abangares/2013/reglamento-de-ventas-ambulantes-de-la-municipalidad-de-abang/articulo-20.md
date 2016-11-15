@@ -1,3 +1,3 @@
-Artículo 20.—Por incumplimiento a las disposiciones legales y reglamentarias podrá la Municipalidad de Abangares imponer las siguientes sanciones:
-a) Suspensión temporal de la licencia o clausura de la actividad.
-b) En caso de denuncias de actividades ilícitas en el ejercicio de la respectiva patente se le dará audiencia al patentado por cinco días hábiles para que exponga sus criterios de defensa y ofrezca prueba, y posteriormente la Municipalidad de Abangares, tiene un plazo de quince para recibir testigos, y posteriormente tendrá un plazo de diez días hábiles para que de una resolución debidamente fundamentada y resuelva el conflicto.
+CAPÍTULO VI
+Costo de la patente
+Artículo 20.—El costo de la Patente de vendedores ambulantes, será el equivalente al salario diario de una servidora doméstica y los ajustes se aplicarán en forma automática como así lo establezcan el Ministerio de Trabajo.

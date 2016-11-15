@@ -1,1 +1,3 @@
-Artículo 17.—El Departamento de Administración Tributaria y Catastro elaborará y enviará a los inspectores generales la lista actualizada de las personas a las que se les ha otorgado Licencia de vendedor ambulante para que fiscalicen si están a derecho, así como el cumplimiento de este reglamento.
+CAPÍTULO IV
+Procedimientos especiales
+Artículo 17.—Para la aplicación de este Reglamento el Alcalde o Alcaldesa o en su caso el Departamento de Administración tributaria coordinará con las autoridades policiales quienes estarán obligadas a prestar auxilio y denunciar a los vendedores que no cuenten con patente o se encuentren violando los términos de este reglamento.

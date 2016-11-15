@@ -1,1 +1,1 @@
-Artículo 28.—Es potestad del Concejo Municipal efectuar las reformas del presente Reglamento cuando así lo considere necesario.
+Artículo 28.—Este reglamento entrará en vigencia el mismo día que se publique en el Diario Oficial La Gaceta.

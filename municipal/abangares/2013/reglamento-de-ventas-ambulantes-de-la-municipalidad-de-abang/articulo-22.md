@@ -1,1 +1,1 @@
-Artículo 22.—La forma de pago de éste impuesto será trimestralmente y el atraso en los pagos generará multas e intereses moratorios que se cancelarán con base al artículo 57 y 76 del Código de Normas y Procedimientos Tributarios.
+Artículo 22. —(Nota de Sinalevi: En el presente reglamento no aparece este artículo. No obstante el sistema exige una numeración consecutiva por lo que se ha creado el mismo pero sin texto)

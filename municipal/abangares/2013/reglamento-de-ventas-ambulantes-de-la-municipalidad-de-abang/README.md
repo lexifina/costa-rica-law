@@ -14,3 +14,4 @@ Reglamento de ventas ambulantes de la Municipalidad de Abangares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-20 | la propia norma |
+| 2 | 2016-11-15 | Reglamento municipal 46 (2016-11-15) |

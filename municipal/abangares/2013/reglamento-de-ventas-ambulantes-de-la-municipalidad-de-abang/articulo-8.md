@@ -1,1 +1,5 @@
-Artículo 8º—Las ventas ambulantes funcionarán en vías públicas o zonas Públicas. Quedan a salvo las prohibiciones establecidas por otras leyes y aquellos lugares que atenten contra la seguridad del peatón y el tránsito de vehículos.
+Artículo 8º—La Municipalidad de Abangares podrá otorgar permisos temporales a instituciones educativas, de salud, religiosas, culturales, y de interés social, en los siguientes casos:
+a) Días especiales.
+b) Ferias, eventos culturales y artesanales.
+c) Eventos religiosos.
+Por excepción en este caso, se podrán vender alimentos previo informe del Ministerio de Salud .siempre y cuando donde se vaya a realizar la feria reúna las condiciones básicas de salud, rodo a criterio del referido Ministerio.

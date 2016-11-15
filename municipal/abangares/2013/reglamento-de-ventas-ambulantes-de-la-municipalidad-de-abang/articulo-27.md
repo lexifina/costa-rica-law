@@ -1,1 +1,1 @@
-Artículo 27.—Forma parte integrante del presente reglamento la Ley de Tarifas de Impuestos del cantón de Abangares N° 8260 y su Reglamento, vigentes.
+Artículo 27.—Lo no previsto en este reglamento, se aplicará la Ley 8260 Tarifa de Impuestos Municipales del Cantón de Abangares, el Código Municipal, el Código de Normas y Procedimientos Tributarios, la Ley General de Administración pública y cualquier otra disposición compatible.

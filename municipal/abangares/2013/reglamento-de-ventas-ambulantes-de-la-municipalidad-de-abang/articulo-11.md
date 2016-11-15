@@ -1,1 +1,1 @@
-Artículo 11.—Queda, terminantemente prohibido los puestos de comercio donde sus dependientes o productos ocupen las vías públicas o aceras para ejercer su actividad.
+Artículo 11.—No podrán ubicarse ventas ambulantes, obstruyendo puertas o ventanas de instituciones dedicadas a la salud, educación, en cementerios o en esquinas donde converjan zonas de seguridad peatonal, en la línea de ascenso de las paradas de autobuses, en los frentes de las Iglesias, en las entradas y ventanas del comercio local.

@@ -1,3 +1,1 @@
-CAPÍTULO V
-Recursos y sanciones
-Artículo 18.—La resolución dictada tendrá recurso de revocatoria para ante quién dicta el acto Administrativo y recurso de apelación para ante el Alcalde Municipal y el de Jerarquía impropia para ante el Tribunal Contencioso Administrativo.
+Artículo 18.—El Departamento de Administración Tributaria y Catastro, elaborará y enviará a los inspectores generales la lista actualizada de las personas a quienes se les ha otorgado Licencia do vendedor ambulante; para que fiscalicen si están a derecho, así como el cumplimiento de este reglamento.

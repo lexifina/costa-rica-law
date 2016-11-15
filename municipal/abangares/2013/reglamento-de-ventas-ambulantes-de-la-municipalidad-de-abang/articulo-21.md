@@ -1,3 +1,1 @@
-CAPÍTULO VI
-Costo de la patente
-Artículo 21.—El costo de la Patente de vendedores ambulantes será el equivalente al salario diario de una servidora doméstica y los ajustes se aplicarán en forma automática como así lo establezcan el Ministerio de Trabajo.
+Artículo 21.—La forma de pago de éste impuesto será trimestralmente y el atraso en los pagos generará multas e intereses moratorios que se cancelarán con base al artículo 57 y 75 del Código de Normas y Procedimientos Tributarios.

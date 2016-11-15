@@ -1,1 +1,3 @@
-Artículo 15.—La solicitud de cambio de línea comercial será tramitada con las formalidades establecidas en el artículo tercero de éste Reglamento.
+CAPÍTULO III
+Traslados traspasos y denuncias
+Artículo 15.—Queda totalmente prohibido la cesión, donación, venta o cualquier forma de transmisión de las licencias ambulantes, quien infringiera esto, se le declarará caduca la licencia.
