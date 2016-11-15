@@ -14,3 +14,4 @@ Fórmulas para diversos trámites de la Municipalidad de Moravia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-17 | la propia norma |
+| 2 | 2016-11-15 | Acuerdo municipal 0 (2016-11-15) |
