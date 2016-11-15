@@ -1,0 +1,1 @@
+Artículo 4º-El monto por vale de caja chica podrá ser hasta la suma del salario base mensual del "Oficinista 1" que aparece en la relación de puestos de la Ley de Presupuesto Ordinario de la República.

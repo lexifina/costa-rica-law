@@ -1,0 +1,1 @@
+Artículo 22. -Se confeccionarán reintegros de caja chica, cuando se haya gastado por lo menos un 60% y no más del 80% del fondo fijo, con el propósito de darle la rotación óptima a los recursos y mantener la liquidez del fondo.
