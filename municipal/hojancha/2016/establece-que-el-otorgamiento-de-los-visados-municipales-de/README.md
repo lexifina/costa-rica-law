@@ -14,3 +14,4 @@ Establece que el otorgamiento de los visados Municipales de los planos a catastr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-09 | la propia norma |
+| 2 | 2016-11-15 | Acuerdo municipal 6 (2016-11-15) |

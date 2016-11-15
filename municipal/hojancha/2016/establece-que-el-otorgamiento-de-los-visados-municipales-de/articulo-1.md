@@ -14,5 +14,6 @@ visado, crea conveniente realizar la visita al sitio en estudio.
 6. Estar al día con la declaración de bienes inmuebles.
 7. Estar al día en el pago de tributos municipales.
 8. Disponibilidad de agua potable otorgada por el ente encargado de suministrar el servicio en la zona.
+(Nota de Sinalevi: Mediante acuerdo N° 6 de la sesión N° 029 del 15 de noviembre de 2016, se acordó lo siguiente: “…En vista de que no está clara la situación respecto al requisito N° 8 de los visados municipales, “Disponibilidad de agua potable otorgado por el ente encargado de suministrar el servicio en la zona”, aprobado por el Concejo Municipal, acuerdo N° 2, de la sesión ordinaria N° 025-2016, del 18 de octubre de 2016 y publicado en La Gaceta el 9 de noviembre de 2016; este Concejo Municipal acuerda, mantener los requisitos para los visados municipales publicados en La Gaceta N° 119 del lunes 22 de junio del 2015, por mientras se realizan las consultas legales al respecto.”)
 Aprobado por unanimidad. Acuerdo definitivamente aprobado. Publíquese en el Diario Oficial La Gaceta. Rige a partir de su publicación y todas las publicaciones anteriores en referencia a los visados municipales, Municipalidad de Hojancha, para los planos a catastrar no serán válidas.
 Hojancha, Guanacaste, 20 de octubre del 2016.
