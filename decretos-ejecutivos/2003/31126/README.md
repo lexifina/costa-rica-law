@@ -80,3 +80,4 @@ Integra la Comisión Nacional para la Gestión de la Biodiversidad
 | 65 | 2016-02-15 | Decreto Ejecutivo 39597 (2016-02-15) |
 | 66 | 2016-02-22 | Decreto Ejecutivo 39598 (2016-02-22) |
 | 67 | 2016-07-20 | Decreto Ejecutivo 39891 (2016-07-20) |
+| 68 | 2016-11-15 | Decreto Ejecutivo 40074 (2016-11-15) |

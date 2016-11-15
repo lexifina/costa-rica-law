@@ -101,3 +101,4 @@ k) (Derogado por el artículo 3°, punto 1 del decreto ejecutivo N° 35789 del 8
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 39597 del 15 de febrero de 2016, se nombra como miembro suplente al señor Oldemar Pérez Hernández, como representante de la Asociación Mesa Nacional Indígena.)
 (Nota de Sinalevi: Mediante el artículo 1° del 39598 del 22 de febrero de 2016, se nombra como miembro suplente a la señora Katherine Arroyo Arce como representante del Ministro de Comercio Exterior.)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 39891 del 20 de julio de 2016, se nombra como miembro suplente a la señora Argerie Cruz Méndez, como representante del Ministerio de Agricultura y Ganadería.)
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 40074 del 15 de noviembre de 2016, se nombra como miembro suplente a la señora Ana Victoria Giusti Méndez, como representante del Ministerio de Salud.)
