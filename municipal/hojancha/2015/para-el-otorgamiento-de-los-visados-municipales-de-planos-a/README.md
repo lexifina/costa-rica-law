@@ -15,3 +15,4 @@ Para el otorgamiento de los visados municipales de planos a catastrar serán aut
 | --- | --- | --- |
 | 1 | 2015-06-22 | la propia norma |
 | 2 | 2016-10-18 | Acuerdo municipal 2 (2016-10-18) |
+| 3 | 2016-11-15 | Acuerdo municipal 6 (2016-11-15) |
