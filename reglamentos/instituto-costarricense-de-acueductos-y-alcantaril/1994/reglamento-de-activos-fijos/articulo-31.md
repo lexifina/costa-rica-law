@@ -1,1 +1,0 @@
-Artículo 31.—Este reglamento está ligado a los procedimientos de activos fijos, por tanto es responsabilidad de todos los encargados de activos cumplir con las acciones y responsabilidades estipuladas en éste.

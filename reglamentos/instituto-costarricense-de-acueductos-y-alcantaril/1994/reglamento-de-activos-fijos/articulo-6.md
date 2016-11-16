@@ -1,1 +1,0 @@
-Artículo 6°—Corresponde al encargado de Administración de Activos de cada dependencia entregar el bien al funcionario solicitante, previo a la confección, firma y entrega del vale correspondiente (ANEXO 2), cuando proceda según el ANEXO 1.

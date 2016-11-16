@@ -1,1 +1,0 @@
-Transitorio II.—En un plazo no mayor a cuatro meses a partir de la vigencia de este reglamento, se confeccionará un instructivo para uso de los equipos utilizados en los sistemas y para el mantenimiento de los sistemas de acueducto, esta guía será elaborada por la Dirección de Operaciones.

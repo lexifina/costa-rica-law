@@ -1,1 +1,0 @@
-Artículo 9°—La asignación del número de activo se obtiene en forma consecutiva en el Sistema Financiero Suministros y el encargado de activos de cada región o dependencia es el responsable de plaquear los bienes, mediante código de barras.

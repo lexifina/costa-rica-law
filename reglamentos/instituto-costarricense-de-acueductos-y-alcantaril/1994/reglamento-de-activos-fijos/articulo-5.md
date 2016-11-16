@@ -1,2 +1,0 @@
-Artículo 5°—El retiro de activos de la Bodega Central o Bodegas Regionales sólo podrá ser realizado por el Encargado de Administración de Activos de cada Dependencia o por otro funcionario con autorización escrita del jefe inmediato o del encargado de activos.
-Ninguna bodega podrá permitir la salida de activos que requieran por sus características que un especialista o técnico los revise para verificar que cumpla con las especificaciones solicitadas. Este funcionario a su vez podrá con dicha autorización retirarlo de la bodega.

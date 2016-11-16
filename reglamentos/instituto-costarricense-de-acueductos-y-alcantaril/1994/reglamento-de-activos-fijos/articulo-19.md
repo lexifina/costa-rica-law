@@ -1,1 +1,0 @@
-Artículo 19.—En el caso de renuncia, despido, defunción, el jefe inmediato será el responsable de gestionar el trámite en Asuntos Legales, para que se realice el procedimiento correspondiente, para efectos de cobro por daños o faltantes previo inventario por la persona asignada y antes de que se efectúe la liquidación de beneficios laborales.

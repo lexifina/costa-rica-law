@@ -1,1 +1,0 @@
-Artículo 16.—Cuando se realiza un movimiento de activos dentro de unidades de una misma región o dependencia y éstos corresponden a los bienes asignados a la Dependencia (Artículo 2°, párrafo primero) el traslado no requiere de traspaso, pero si la comunicación respectiva entre las partes.

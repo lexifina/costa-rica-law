@@ -1,2 +1,0 @@
-Artículo 33.- Este Reglamento rige a partir de la fecha de su publicación en “La Gaceta”.
-Este reglamento está sujeto a modificaciones, de acuerdo con las políticas administrativas del Instituto o impuestas por su lógico crecimiento y aceptará ampliaciones o mejoras debidamente justificadas, por parte de cualquier dependencia que por alguna razón, requiera se incorpore algún aspecto especial en pro de un mejor uso y aplicación de su contenido.

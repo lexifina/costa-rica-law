@@ -1,1 +1,0 @@
-Artículo 3°—Habrá una Unidad encargada de la administración de los activos, a su vez en cada regional y dependencia se asignará a un funcionario para que realice las labores, quien dependerá funcionalmente de esa unidad.

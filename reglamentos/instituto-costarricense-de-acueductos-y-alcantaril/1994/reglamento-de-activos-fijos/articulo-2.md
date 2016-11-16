@@ -1,2 +1,0 @@
-Artículo 2°—Los bienes institucionales para uso de un grupo organizacional estarán bajo responsabilidad del funcionario asignado por la dependencia donde se encuentran ubicados y asignados a ésta. Por tanto es responsabilidad del jefe inmediato de la unidad reportar cualquier daño y velar por su buen uso.
-Los bienes que están bajo la responsabilidad del funcionario y asignados a éste, son aquellos necesarios para el cumplimiento de sus funciones y cuyas características requiere de la custodia permanente de éstos (ANEXO I).

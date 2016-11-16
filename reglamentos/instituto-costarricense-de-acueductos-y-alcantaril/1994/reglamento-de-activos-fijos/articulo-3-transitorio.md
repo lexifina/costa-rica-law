@@ -1,1 +1,0 @@
-Transitorio III.—Los bienes inmuebles que se hayan recibido como donaciones y que no estén registrados como activos, la jefatura donde se encuentren ubicados tendrán un plazo de tres meses para realizar los trámites de registro del activo, a partir de la vigencia de este reglamento.

@@ -1,3 +1,0 @@
-Artículo 8°—Para los activos construidos por empresas constructoras o por las Unidades Ejecutoras de la Institución, se deberá presentar los planos finales debidamente actualizados a la Unidad que operará el sistema. Con el recibido conforme de éste, comunicará al encargado de activos de la dependencia que recibe el bien para que dé de alta al activo (contabilizar el activo).
-Las obras construidas por contratación el recibido conforme lo dará el jefe de la Unidad que fiscalizó la obra.
-En el caso de los acueductos que sean contratados en administración a las comunidades, el representante de ésta, dará el recibido conforme con la venia del encargado de la región respectiva.

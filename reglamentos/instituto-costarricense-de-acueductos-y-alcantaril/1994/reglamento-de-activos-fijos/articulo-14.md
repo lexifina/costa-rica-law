@@ -1,1 +1,0 @@
-Artículo 14.—Los custodios de los activos son los responsables de la ubicación de éstos y deberán responder por su localización cuando no sean, detectados por los funcionarios encargados de realizar los inventarios.

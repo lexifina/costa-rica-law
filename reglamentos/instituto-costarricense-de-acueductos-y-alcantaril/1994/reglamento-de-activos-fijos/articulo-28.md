@@ -1,1 +1,0 @@
-Artículo 28.—Asuntos Legales realizará la investigación de los hechos, conforme a lo estipulado en el artículo 308 siguientes y concordantes de la Ley General de la Administración Pública, a efectos de determinar si existe o no responsabilidad del funcionario a quien le fue asignado el activo, por la pérdida o daño.

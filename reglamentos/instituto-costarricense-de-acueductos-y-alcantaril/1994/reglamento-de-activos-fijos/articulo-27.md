@@ -1,1 +1,0 @@
-Artículo 27.—El funcionario que manifieste robo o sustracción de 4no de sus activos, debe interponer denuncia formal al Organismo de Investigaciones Judiciales (OIJ) u órgano judicial competente dentro de los dos días hábiles siguientes al conocimiento de los hechos y proceder de acuerdo al artículo 25 de este reglamento.

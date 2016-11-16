@@ -1,1 +1,0 @@
-Transitorio I.—En un plazo de seis meses a partir de la vigencia de este reglamento, se realizará un análisis de los activos para identificar todos los bienes que no califiquen como activos (costo de adquisición inferior a 30.000,00) y se registrarán como gasto, pero cada dependencia controlará el uso apropiado de dichos bienes.

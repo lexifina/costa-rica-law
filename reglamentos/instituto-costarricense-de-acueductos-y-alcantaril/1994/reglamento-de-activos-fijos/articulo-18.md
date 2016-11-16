@@ -1,2 +1,0 @@
-Artículo 18.—Cuando un funcionario se traslada de su centro de trabajo, sus activos permanecen en la ubicación original, salvo que las funciones las realice otro funcionario y no requiera de los activos, en cuyo caso la mudanza de los activos deberá ser autorizada por el jefe superior, en forma escrita.
-Cuando un funcionario sea ascendido o trasladado a otra unidad y sus nuevas funciones le imponen el uso de diferentes , los que deja deben ser reasignadas por el encargado de activos de cada dependencia o región, con previa autorización del jefe.

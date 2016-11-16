@@ -1,1 +1,0 @@
-Artículo 11.—El funcionario que ponga en uso un bien que fue donado sin que la Sede Central lo haya contabilizado, será responsable disciplinariamente previo procedimiento ordinario respectivo. El funcionario que realiza el inventario deberá informar cuando se presenta la situación antes descrita.
