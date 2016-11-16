@@ -1,0 +1,1 @@
+Artículo 2º—De conformidad con el artículo 9° de la Ley Reguladora del Servicio Público de Transporte Remunerado de personas en Vehículos en la modalidad de Taxi, el plazo de los respectivos nombramientos lo es, hasta por el plazo máximo equivalente al del nombramiento del Presidente de la República.
