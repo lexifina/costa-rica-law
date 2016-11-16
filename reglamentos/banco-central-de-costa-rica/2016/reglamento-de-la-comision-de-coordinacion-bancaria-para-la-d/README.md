@@ -14,3 +14,4 @@ Reglamento de la comisión de coordinación bancaria para la designación de los
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-08 | la propia norma |
+| 2 | 2016-11-16 | Reglamento 5746 (2016-11-16) |
