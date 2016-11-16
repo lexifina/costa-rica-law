@@ -15,3 +15,4 @@ Metodología tarifaria ordinaria y extraordinaria para fijar el precio de los co
 | --- | --- | --- |
 | 1 | 2015-10-30 | la propia norma |
 | 2 | 2016-04-25 | Resolución 70 (2016-04-25) |
+| 3 | 2016-11-16 | SINALEVI (sin norma nombrada) |

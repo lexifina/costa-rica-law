@@ -1,4 +1,5 @@
 RESOLUCION RJD-230-2015
+(Nota de Sinalevi: Mediante resolución de la Sala Constitucional N° 16965 del 16 de noviembre del 2016, se acordó revocar de manera parcial la resolución de las 15:00 horas del 16 de setiembre de 2016, y se dispone la continuidad de la aplicación de la presente norma)
 San José, a las quince horas con diez minutos del quince de octubre del dos mil quince
 METODOLOGÍA TARIFARIA ORDINARIA Y EXTRAORDINARIA PARA FIJAR EL PRECIO DE
 LOS COMBUSTIBLES DERIVADOS DE LOS HIDROCARBUROS EN PLANTELES DE
