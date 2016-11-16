@@ -1,0 +1,1 @@
+ARTÍCULO 8°.- El plazo para informar cada 6 meses a la Presidencia de la República sobre la actualización del listado de informes de Auditoría publicitados comenzará a regir a partir de la fecha de publicación de esta Directriz.

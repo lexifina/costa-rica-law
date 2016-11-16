@@ -1,0 +1,2 @@
+ARTÍCULO 6°.-Se insta a los jerarcas de la Administración Descentralizada a publicar en el sitio Web oficial o la plataforma electrónica análoga, los informes emitidos por la Auditoría respectiva, preservando cuando sea necesario la confidencialidad que dispone el artículo 6 de la Ley General de Control Interno.
+La respectiva Unidad de Control Interno o la oficina equivalente informará cada 6 meses a la Presidencia de la República sobre la actualización del listado de informes de Auditoría publicitados.

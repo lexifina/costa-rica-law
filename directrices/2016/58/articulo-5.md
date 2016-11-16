@@ -1,0 +1,1 @@
+ARTÍCULO 5°.-En acatamiento de lo dispuesto por los ordinales número 36 y 37de la Ley General de Control Interno, Ley número 8292, se procurará implementar debidamente las recomendaciones dadas por la Auditoría Interna y en caso de presentarse discrepancias respecto de estas, seguir el proceso establecido para su solución.
