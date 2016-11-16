@@ -1,0 +1,1 @@
+Artículo 31.- Denuncias de oficio. Si en la ejecución de medidas previstas en el presente Reglamento, la UIF detecta el incumplimiento de las obligaciones por parte de los sujetos obligados, procederá a denunciarlo a los órganos de supervisión y control correspondientes a fin de que éstos procedan a aplicar la sanción establecida en la Ley N°7786.

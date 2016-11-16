@@ -1,0 +1,6 @@
+Artículo 15.- Propuesta de designación de personas en vía administrativa. El Consejo Presidencial de Seguridad Nacional, solicitará a través del Ministerio de Relaciones Exteriores y Culto, la inclusión de las personas físicas y jurídicas investigadas sobre los posibles delitos de terrorismo, su financiamiento y cualquier vínculo directo o indirecto con actividades relacionadas a la proliferación de armas de destrucción masiva, ante el punto focal del Comité del CSNU correspondiente.
+La solicitud deberá contener un informe detallado del caso, que servirá de fundamento justificación para la propuesta de designación en la lista del CSNU con arreglo de los criterios de designación siguientes:
+a) Conclusiones y razonamientos concretos que demuestren que se cumplen los criterios de inclusión;
+b) La índole de las pruebas justificativas (por ejemplo, de informes de expertos y técnicos, de servicios de inteligencia, de la policía, de fuentes judiciales, de otros medios de difusión, de declaraciones hechas por el sujeto, y cualquier otro mecanismo que se requiera);
+c) Pruebas o documentos justificativos;
+d) Detalles de cualquier conexión con personas o entidades que figuren actualmente en la lista.

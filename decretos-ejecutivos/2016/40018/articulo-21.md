@@ -1,0 +1,1 @@
+Artículo 21.- Facilitación de revisión al Comité 1988 del CSNU y mantenimiento de la información. El Consejo Presidencial de Seguridad Nacional, a través del Ministerio de Relaciones Exteriores y Culto, facilitará al Comité 1988 del CSNU, la revisión y el mantenimiento de la información de las personas físicas y jurídicas designadas cuando así sea necesario y procedente.

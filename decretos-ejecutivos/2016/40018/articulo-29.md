@@ -1,0 +1,3 @@
+CAPITULO VI
+Disposiciones generales
+Artículo 29.- La implementación de las obligaciones contenidas en el presente Reglamento, no les acarrearán responsabilidades administrativas, civiles, penales, ni de ninguna otra índole a las entidades, funcionarios o las personas que las apliquen, en tanto no se acredite que actuaron con dolo o culpa grave, de conformidad con lo que disponen el artículo 271 de la Ley N.° 7594, Código Procesal Penal, de 10 de abril de 1996, y el artículo 199 de la Ley N.° 6227, Ley General de la Administración Publica, de 2 de mayo de 1978. Lo anterior, según lo fijado en el artículo 33 bis de la Ley N°7786.

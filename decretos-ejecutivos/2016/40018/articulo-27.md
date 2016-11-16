@@ -1,0 +1,6 @@
+Artículo 27.- Supuestos de designación de conformidad con la Resolución 1373. Podrá realizarse una designación nacional, en virtud de la Resolución 1373 del CSNU, respecto de cualquiera de los siguientes sujetos:
+i. Toda persona o entidad que comete o intente cometer actos terroristas, o que participa en ellos, o facilita la comisión de, actos terroristas.
+fi. Toda entidad que pertenezca o esté controlada, directa o indirectamente por alguna persona o entidad designada dentro del inciso anterior.
+iii. Toda persona o entidad que actúe en nombre de, o bajo la dirección de, alguna persona o entidad designada dentro del primer numeral.
+Los supuestos anteriores serán designados cuando existan sentencias condenatorias en firme por el juez competente, y en vía administrativa por medio del Consejo Presidencial de Seguridad Nacional cuando medien las pruebas justificativas, informes de Expertos o técnicos por parte de servicios de inteligencia, de la policía, de fuentes judiciales, de otros medios de difusión, de declaraciones hechas por el sujeto, y cualquier otro mecanismo que se requiera.
+Una vez realizada la designación, se procederá de conformidad a lo dispuesto en el artículo 33 bis de la Ley N° 7786.
