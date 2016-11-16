@@ -1,0 +1,9 @@
+CIRCULAR N° 198-2016
+ASUNTO: Rotulación de contenedores utilizados para la separación de residuos destinados al reciclaje.
+A TODAS LAS JEFATURAS DEL PODER JUDICIAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial, en sesión N° 102-16, celebrada el 8 de noviembre del 2016, artículo LVI, dispuso aprobar el diseño de calcomanías elaboradas por la Comisión de Gestión Ambiental y el Departamento de Artes Gráficas, con el fin de que sean empleadas en oficinas y despachos, como la única rotulación oficial a ser colocada en los contenedores donde se separan los residuos para reciclaje. El diseño de las calcomanías se puede consultar en la siguiente dirección: http://sjoint05/ambiental/index. php?option=com_content&view=article&id=29&Itemid=28.
+Las oficinas interesadas deberán comunicarse a más tardar el 30 de noviembre con el Departamento de Artes Gráficas (agraficas@ poder-judicial.go.cr), indicando la cantidad y el tipo de calcomanías que requieren, las cuales serán remitidas por correo interno.
+Se aclara a las personas interesadas en colocar contenedores para separar residuos, que los mismos pueden ser cajas de cartón, estañones, recipientes de plástico o cualquier otro recipiente que pueda servir para tal fin. Asimismo, se recuerda que el Departamento de Proveeduría cuenta con recipientes para el reciclaje de papel y plástico los cuales pueden ser utilizados para la separación de otros residuos siempre y cuando se encuentren debidamente rotulados con las calcomanías correspondientes. Para solicitar los recipientes se deberán comunicar con Giselle Castrillo Vargas (gcastrillo@ poder-judicial.go.cr) del Proceso de Administración de Bienes del Departamento de Proveeduría.
+Cualquier consulta o asesoría sobre el tema debe ser dirigida al correo electrónico de la comisión: comisionambiental@poder-judicial.go.cr o al teléfono 2295-3159 con el MSc. Eugenio Solís Rodríguez.
+San José, 16 de noviembre de 2016.
