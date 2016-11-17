@@ -14,3 +14,4 @@ Metodología para la Fijación Ordinaria de Tarifas para el Servicio Remunerado 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-07 | la propia norma |
+| 2 | 2016-11-17 | Resolución 174 (2016-11-17) |
