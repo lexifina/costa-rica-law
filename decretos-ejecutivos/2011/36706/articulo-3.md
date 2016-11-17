@@ -13,3 +13,5 @@ k) Reglamento: El presente Reglamento Autónomo de Servicio del Instituto Sobre 
 l) Reglamento del Estatuto: Decreto Ejecutivo Nº 21 del 14 de diciembre de 1954 y sus reformas.
 m) Representante patronal: Persona física que realiza funciones de gestión administrativa, en nombre de la Institución.
 n) Superior Jerárquico: Junta Directiva, Director General, Coordinadores de Área, Encargados de Procesos y Subprocesos.
+o) Compañero (a): aquella persona que conviva bajo un mismo techo por un año o más, de forma pública, notoria, única y estable con una persona funcionaria de la Institución, sin diferenciación del sexo. Tanto la persona funcionaria como el compañero (a) deben ostentar la libertad de estado. Para ser beneficiarios de los derechos que les otorga este Reglamento se deberá entregar, ante la Oficina Institucional de Recursos Humanos, una Declaración Jurada por parte de ambas personas, donde hagan constar la existencia de la relación, según lo establecido anteriormente.
+(Así adicionado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40083 del 17 de noviembre del 2016)

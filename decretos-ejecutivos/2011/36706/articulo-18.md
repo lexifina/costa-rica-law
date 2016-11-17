@@ -1,8 +1,7 @@
 CAPÍTULO VI
 De las prohibiciones y/o restricciones
 de los funcionarios
-Artículo 18.—Prohibiciones. De conformidad con el artículo 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento; y otras disposiciones del presente Reglamento, artículo 72 del Código de Trabajo y la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley General de la Administración Pública, Ley General de Control Interno, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y demás normativa conexa estos de aplicación supletoria, queda prohibido a los funcionarios:
-a) Hacer abandono de trabajo, lo cual constituye, sin perjuicio de otras causas, contempladas en el presente Reglamento, las siguientes:
+Artículo 18.- Prohibiciones. De conformidad con el artículo 40 del Estatuto de Servicio Civil y artículo 51 de su Reglamento; y otras disposiciones del presente Reglamento, artículo 72 del Código de Trabajo y la Ley de la Administración Financiera de la República y Presupuestos Públicos, Ley General de la Administración Pública, Ley General de Control Interno, Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y demás normativa conexa estos de aplicación supletoria, queda prohibido a los funcionarios:a) Hacer abandono de trabajo, lo cual constituye, sin perjuicio de otras causas, contempladas en el presente Reglamento, las siguientes:
 1. Promover tertulias o conversaciones innecesarias en las oficinas, con compañeros de trabajo o terceras personas, en perjuicio y demora de las labores que están ejecutando.
 2. Recibir visitas y hacer uso del teléfono institucional para asuntos personales, salvo caso de urgencia.
 3. Dedicar tiempo dentro de la jornada laboral, para atender asuntos ajenos a las labores propias del cargo.
@@ -35,4 +34,6 @@ w) Alterar o sustraer las tarjetas, carné u hojas de control, o marcar la tarje
 x) Tratar de resolver por medio de la violencia, de hecho o de palabra, las diferencias que surjan durante la realización del trabajo.
 y) Recibir gratificaciones, dádivas o recompensas de cualquier naturaleza, con motivo del ejercicio de sus funciones como servidor público, así como valerse del cargo que desempeña en el Instituto para obtener ventaja o provecho de cualquier índole en beneficio propio o en favor de terceros.
 z) Alterar documentos con el fin de obtener alguna ventaja personal en detrimento de la Institución o de compañeros de trabajo o emitir informes con datos falsos.
-aa)Maltratar de hecho o de palabra, corromper o tratar de corromper o abandonar a las personas menores de edad que asisten a recibir los servicios que el IAFA brinda en las diferentes Dependencias.
+aa) Maltratar de hecho o de palabra, corromper o tratar de corromper o abandonar a las personas menores de edad que asisten a recibir los servicios que el IAFA brinda en las diferentes Dependencias.
+aaa) Incurrir en prácticas discriminatorias hacia cualquier servidor o usuario de la Institución por razones de edad, etnia, género, orientación sexual, identidad de género, religión o por tener cualquier tipo de discapacidad. En el caso de una denuncia, ya sea de manera personal o por interpósita persona, de que algún servidor de la institución incurrió en estas prácticas, deberá informar a su superior inmediato para que tome las medidas necesarias o lo comunique a la autoridad competente.
+(Así adicionado el inciso anterior por el artículo 1° del 40083 del 17 de noviembre del 2016)
