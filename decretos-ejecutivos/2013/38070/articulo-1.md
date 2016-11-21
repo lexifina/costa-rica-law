@@ -1,4 +1,5 @@
 N° 38070-COMEX-MEIC-MAG-S
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 40126 del 21 de noviembre de 2016, publicó la Oficialización de la Guía para la interpretación del Reglamento técnico centroamericano RTCA 67.04.65:12 uso de términos lecheros, contenido en el anexo de la Resolución N° 312-2013 (COMIECO-LXV) del 21 de junio de 2013, mismo que puede ser consultado en el siguiente links)
 LA PRESIDENTA DE LA REPÚBLICA
 Y LAS MINISTRAS DE COMERCIO EXTERIOR,
 DE ECONOMÍA, INDUSTRIA Y COMERCIO,
@@ -36,9 +37,7 @@ RESUELVE:
 2.La presente Resolución entrará en vigencia el 21 de diciembre de 2013 y será publicada por los Estados Parte.
 3.No obstante lo establecido en el numeral anterior, la presente resolución no entrará en vigor para Panamá hasta que este Consejo emita el acto administrativo correspondiente. conforme a lo establecido en el Artículo Transitorio del Protocolo de Incorporación de la República de Panamá al Subsistema de Integración Económica.
 San José. Costa Rica. 21 de junio de 2013
-[imagen]
 infrascrito Secretario General de la Secretaria de integración Económica Centroamericana (SIECA) CERTIFICA: Que las dos (2) fotocopias que anteceden a la presente hoja de papel bond, impresas únicamente en su anverso, así corno las siete (7) del anexo adjunto, impresas únicamente en su anverso. rubricadas y selladas con el sello de la SIECA, reproducen fielmente 13 Resolución No. 312-2013 (COMIECO-LXV, adoptada por el Consejo de Ministros de Integración Económica, el veintiuno de junio de dos mil trece, de cuyos originales se reprodujeron Y para remitir a los Estados Parte para su correspondiente publicación, extiendo la presente copia certificada en la ciudad de Guatemala el veinticuatro de junio de dos mil trece.
-[imagen]
 Reglamento Técnico Centroamericano RTCA 67.04.65:12
 USO DE TÉRMINOS LECHEROS
 Correspondencia: Este Reglamento tiene correspondencia con la norma CODEX STAN-206-1999. Uso de Términos Lecheros.
@@ -117,4 +116,3 @@ La Secretaria de Integración Económica Centroamericana ·SIECA-, HACE CONSTAR 
 En consecuencia, el octavo considerando debe leerse de la siguiente manera:
 "Que el Artículo Transitorio del Protocolo de Incorporación de la República de Panamá al Subsistema de Integración Económica del Sistema de la Integración Centroamericana, firmado el 29 de junio de 2012, y adoptado por la Reunión de Presidentes del Sistema de la Integración Centroamericana en la Declaración de su XL Cumbre realizada en Managua, Nicaragua el 13 de diciembre de 2012, establece que los instrumentos jurídicos de la integración económica derivados que se aprobaran y pusieran en vigor durante el periodo comprendido entre la firma de dicho Protocolo y su entrada en vigencia, serán puestos en vigor para la República de Panamá mediante un acto administrativo del Consejo de Ministros de Integración Económica posterior."
 Ciudad de Guatemala, 9 de julio de 2013
-[imagen]

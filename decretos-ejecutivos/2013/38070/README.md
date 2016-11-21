@@ -14,3 +14,4 @@ Publica Resolución N° 312-2013 (COMIECO-LXV) del 21 de junio de 2013, y su ane
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-12-21 | la propia norma |
+| 2 | 2016-11-21 | Decreto Ejecutivo 40126 (2016-11-21) |
