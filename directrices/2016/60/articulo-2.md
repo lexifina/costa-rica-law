@@ -1,0 +1,1 @@
+Artículo 2°.- Se insta ministros y a los jerarcas máximos de las instituciones descentralizadas a permanecer en el territorio nacional y en sus puestos de trabajo con motivo de atender los efectos que genere el mencionado fenómeno atmosférico.
