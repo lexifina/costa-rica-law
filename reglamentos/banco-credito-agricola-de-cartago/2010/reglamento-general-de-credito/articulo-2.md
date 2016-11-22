@@ -1,3 +1,4 @@
-Artículo Nº 2º—Responsables. Es responsabilidad de todos los funcionarios involucrados en el proceso de crédito, el fiel cumplimiento a lo dictado en este reglamento.
+Artículo 2.—Responsables. Es responsabilidad de todos los funcionarios involucrados en el proceso de crédito, el fiel cumplimiento a lo dictado en este reglamento.
 Los Directores de las diferentes Bancas, Gerentes y Encargados de oficina serán responsables de velar por que se cumpla lo estipulado en este documento.
-(Así reformado mediante sesión N° 8751/14 del 20 de mayo del 2014)
+Las decisiones de crédito, aunque deben basarse siempre en apreciaciones sobre el desempeño histórico objetivo y sobre planes de negocios de los clientes analizados con sentido común, son decisiones donde prevalece el buen juicio. Es por ello, que la formación de sanos criterios bancarios entre los funcionarios del Banco y su aplicación a los casos concretos, no pueden nunca ser sustituidos por normas. La enseñanza y difusión de estos criterios, es responsabilidad primordial de la alta administración con experiencia y criterio ya formados.
+(Así reformado en sesión N° 8991 del 22 de noviembre de 2016)

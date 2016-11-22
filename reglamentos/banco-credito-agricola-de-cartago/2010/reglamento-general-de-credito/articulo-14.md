@@ -8,3 +8,5 @@ Cuando se determinen causas justificadas y para asegurar la recuperación de la 
 a) una adecuación de los pagos para atender dichas sumas, dentro de la vigencia del crédito,
 b) ampliar el plazo del crédito u
 c) otorgarle un nuevo crédito para el pago de dichas sumas. En tales casos, deberán suscribirse los documentos legales correspondientes.
+El Banco tiene la potestad de realizar cargos administrativos, así como cualquier otra suma que esté estipulada en los documentos legales de formalización y aquellas originadas por la normativa de los entes regulatorios.
+(Así adicionado el párrafo anterior en sesión N° 8991 del 22 de noviembre de 2016)

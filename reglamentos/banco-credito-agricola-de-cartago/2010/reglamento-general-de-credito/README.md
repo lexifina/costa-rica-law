@@ -15,3 +15,4 @@ Reglamento General de Crédito
 | --- | --- | --- |
 | 1 | 2010-02-26 | la propia norma |
 | 2 | 2014-05-20 | Reglamento 8751 (2014-05-20) |
+| 3 | 2016-11-22 | Reglamento 8991 (2016-11-22) |
