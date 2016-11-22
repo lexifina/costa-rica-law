@@ -26,3 +26,4 @@ PRESUPUESTARIA, PARA EL AÑO 2017
 CAPÍTULO I
 Disposiciones generales
 Artículo 1°- Estas directrices serán aplicables a las entidades públicas, ministerios y órganos desconcentrados, cubiertos por el ámbito de la AP, sin perjuicio de lo establecido en otras disposiciones legales.
+(Mediante el artículo 1° del decreto ejecutivo N° 40087 del 22 de noviembre del 2016, se amplia para el Instituto Costarricense de Ferrocarriles (INCOFER), el gasto presupuestario máximo para el año 2017, en la suma de ¢1.708.429.747,19 (mil setecientos ocho millones cuatrocientos veintinueve mil setecientos cuarenta y siete colones con 19/100), para ese período.)

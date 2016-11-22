@@ -14,3 +14,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-30 | la propia norma |
+| 2 | 2016-11-22 | Decreto Ejecutivo 40087 (2016-11-22) |
