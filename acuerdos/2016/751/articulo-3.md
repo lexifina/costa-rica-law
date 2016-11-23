@@ -1,0 +1,1 @@
+Artículo 3°.- La presente convocatoria será para el período comprendido desde la entrada en vigencia del presente Acuerdo y hasta que cese la situación descrita en el Artículo 1º de este cuerpo normativo.
