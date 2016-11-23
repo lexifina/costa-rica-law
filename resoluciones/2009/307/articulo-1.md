@@ -125,15 +125,7 @@ Mercado 14: Desagregación de elementos de acceso a la red pública de telecomun
 i. Elementos de acceso a la red (desagregación del medio de acceso, alámbrico e inalámbrico)
 ii. Desagregación de elementos de transmisión o transporte
 iii. Coubicación de equipos
-Mercado 15: Servicios de acceso e interconexión (originación de comunicaciones): Es el mercado en el que se comercializa entre operadores y proveedores la originación de comunicaciones desde una ubicación fija o móvil en una red pública de telecomunicaciones. Mediante este servicio un operador o proveedor entrega a otro operador o proveedor interconectado una comunicación de un cliente de su red, para que este último la transporte hacia la red de destino. Esto es, el operador o proveedor de la red de telecomunicaciones que brinda el acceso al cliente, transporta la comunicación desde el equipo terminal hasta el punto de interconexión en donde se entrega la comunicación al operador interconectado para que este último complete el enlace con el destino solicitado.
-Este mercado incluye los siguientes servicios de originación:
-• Servicios de acceso indirecto
-• Servicios de acceso a Red Inteligente, y
-• Servicios de acceso a numeración corta.
-Todos estos servicios se ofrecen al nivel de centros de tránsito primario.
-El servicio de originación de comunicaciones puede ofrecerse en dos modalidades:
-• Servicios de Originación por tiempo: Corresponde al servicio en el que los cargos por originación de las comunicaciones, son cobradas entre operadores en función del tiempo real de comunicación conforme a las condiciones de tasación de las comunicaciones establecidas en el artículo 37 del Reglamento de Acceso e Interconexión.
-• Servicios de Originación por capacidad: Corresponde al servicio en el que un operador le brinda a otro una determinada capacidad de transporte de comunicaciones, cobrando un cargo fijo por su utilización, conforme a los niveles de calidad mínimos establecidos por la SUTEL, y los esquemas de liquidación establecidos en el artículo 37 del Reglamento de Acceso e Interconexión.
+Mercado 15: Servicios de acceso e interconexión (originación de comunicaciones): (Derogado por la resolución N° RCS-260-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado mayorista del servicio de originación, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
 Mercado 16: Servicios de acceso e interconexión (terminación de comunicaciones): Es el mercado en el que se comercializa entre operadores y proveedores la terminación de comunicaciones hacia una ubicación fija o móvil en una red pública de telecomunicaciones. Mediante este servicio un operador o proveedor recibe y termina la comunicación proveniente de otro operador o proveedor interconectado. Esto es, el operador o proveedor de la red de telecomunicaciones que brinda el acceso al cliente que recibe la comunicación, termina la comunicación proveniente del operador interconectado.
 Este mercado incluye los siguientes servicios de terminación:
 • Servicios de terminación indirecta,
