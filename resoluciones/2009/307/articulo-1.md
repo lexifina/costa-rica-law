@@ -47,23 +47,8 @@ RESUELVE:
 A. Determinar los siguientes mercados relevantes de telecomunicaciones:
 MERCADOS RELEVANTES MINORISTAS
 SERVICIOS FIJOS
-Mercado 1: Acceso a la red pública de telecomunicaciones desde una ubicación fija para clientes residenciales: Mercado que incluye la puesta a disposición de los recursos que permiten la prestación de servicios de telecomunicaciones y las facilidades adicionales asociadas a estos, desde un origen fijo. Incluye redes cableadas, inalámbricas y satelitales.
-Mercado 2: Servicios de comunicaciones de voz con origen en una ubicación fija y destino nacional: servicio de realización de comunicaciones de voz, desde un punto de origen en la red fija, con destino a ubicaciones fijas o móviles e incluye los siguientes tipos de comunicaciones:
-a. Comunicaciones con origen y destino fijo:
-i. Comunicaciones locales
-ii. Comunicaciones locales a través del protocolo IP (VoIP)
-iii. Comunicaciones a servicios de acceso a bases de datos (900)
-iv. Comunicaciones a servicios de cobro revertido manual y automático
-v. Comunicaciones a servidores de acceso a Internet (RAS – DIAL UP)
-vi. Comunicaciones de telefonía pública
-vii. Comunicaciones a centros de telegestión de los operadores y proveedores a nivel nacional
-viii. Comunicaciones a servicios de emergencia (911)
-ix. Comunicaciones al servicio de mensajería de voz
-x. Demás que establezca la SUTEL
-b. Comunicaciones con origen fijo y destino móvil:
-i. Comunicaciones locales
-ii. Comunicaciones locales a través del protocolo IP (VoIP)
-iii. Demás que establezca la SUTEL
+Mercado 1: Acceso a la red pública de telecomunicaciones desde una ubicación fija para clientes residenciales: (Derogado por la resolución N° RCS-261-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado minorista del servicio de telefonía fija, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
+Mercado 2: Servicios de comunicaciones de voz con origen en una ubicación fija y destino nacional: (Derogado por la resolución N° RCS-261-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado minorista del servicio de telefonía fija, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
 Mercado 3: Servicio de comunicaciones de voz con origen en ubicación fija y destino internacional: servicio de realización de comunicaciones de voz, desde un punto de origen en la red fija, con destino internacional e incluye los siguientes tipos de comunicaciones:
 a. Comunicaciones con origen fijo y destino internacional fijo:
 i. Comunicaciones internacionales
@@ -115,7 +100,7 @@ iv. Mensajería corta internacional a servicios de contenido
 v. Demás que establezca la SUTEL
 Mercado 8: Servicios de itinerancia nacional e internacional: servicio que permite al cliente de un operador o proveedor realizar comunicaciones (voz, mensajería corta, transferencia de datos) a través de la red otro operador o proveedor e incluye comunicaciones entrantes y salientes nacionales e internacionales.
 SERVICIOS DE TRANSFERENCIA DE DATOS
-Mercado 9: Servicios de transferencia de datos de acceso conmutado: Corresponde a los servicios de acceso a redes de transferencia de datos a través de redes de conmutación de circuitos.
+Mercado 9: Servicios de transferencia de datos de acceso conmutado: (Derogado por la resolución N° RCS-261-2016 aprobada en la sesión N° 068-2016 del 23 de noviembre del 2016, “Revisión del mercado minorista del servicio de telefonía fija, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”)
 Mercado 10: Servicios de transferencia de datos a través de redes móviles: Corresponde a los servicios de acceso a redes de transferencia de datos a través de tecnologías móviles (celulares).
 Mercado 11: Servicios de transferencia de datos de acceso permanente (dedicado): Corresponde a los servicios de acceso a redes de transferencia de datos a través de tecnologías que aseguran la conectividad permanente del cliente. Incluye el acceso a través de redes cableadas y a través de redes móviles (celulares), satelitales e inalámbricas.
 Mercado 12: Servicios de comunicaciones punto a punto, punto a multipunto y demás modalidades: Corresponde a los servicios de arrendamiento a los usuarios finales, de enlaces de transmisión para la conexión permanente entre dos o más puntos a través de una red pública de telecomunicaciones, con una determinada capacidad fija en circuitos de n x 64 Kbps u otras capacidades, sin incluir funciones de conmutación que el usuario pueda controlar. Este servicio permite conectar dos o más puntos para el envío y recepción de flujos de información.
