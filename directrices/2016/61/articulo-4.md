@@ -1,0 +1,1 @@
+Artículo 4°.-Los profesionales de los servicios de consulta externa y sedes de EBAIS que sean cerrados a causa del fenómeno atmosférico, deben estar disponible para reforzar los servicios de urgencias y emergencias que la CCSS determine necesario, así como en los servicios de hospitalización donde queden pacientes en condición de internamiento.

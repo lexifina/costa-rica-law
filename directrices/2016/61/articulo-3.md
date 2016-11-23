@@ -1,0 +1,1 @@
+Artículo 3°.- Las redes de servicios establecidas permanecerán preparadas y organizadas para garantizar la atención de aquellos pacientes que no puedan ser asumidos por los hospitales en condición de alerta roja, tal como ha sido instruido por las autoridades de la CCSS.

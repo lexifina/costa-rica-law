@@ -1,0 +1,1 @@
+Artículo 7°.-Las autoridades del nivel central de la CCSS se mantendrán en coordinación con el Ministerio de Salud y la Comisión Nacional de Emergencias para brindar la información de la situación de los Servicios de Salud en las áreas declaradas como zonas de alerta roja.
