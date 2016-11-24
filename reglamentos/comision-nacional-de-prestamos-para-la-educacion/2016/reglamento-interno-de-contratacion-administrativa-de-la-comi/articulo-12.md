@@ -1,0 +1,5 @@
+Artículo 12.- De las funciones y responsabilidades de la Unidad Solicitante. En materia de contratación administrativa le corresponde lo siguiente:
+a. Solicitar a la Sección Administrativa asesoramiento relacionado con el área de la contratación administrativa para preparar la Decisión Inicial.
+b. Completar el formulario de Decisión Inicial o Solicitud de Compra establecido por la Sección Administrativa, el cual deberá contar, cuando así se requiera, con el criterio técnico, legal y administrativo que sustente dicha solicitud, según lo establece la Ley de Contratación Administrativa y su Reglamento.
+c. Establecer la razonabilidad del precio donde se indiquen los precios mínimos y máximos que se podrán aceptar para los bienes y/o servicios que se van a contratar.
+d. Autorizar la información consignada en el formulario de Decisión Inicial o Solicitud de Compra, incluyendo entre otros la definición del Administrador del Contrato, requerimientos específicos del objeto a contratar y controles que efectuará para asegurar el éxito de la contratación durante el proceso de ejecución contractual.

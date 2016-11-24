@@ -1,0 +1,1 @@
+Artículo 2.-Alcance. Este reglamento tendrá como alcance todas las contrataciones realizadas por CONAPE, excluyendo del mismo las compras a realizar mediante la Caja Chica que se regirán por su propia reglamentación

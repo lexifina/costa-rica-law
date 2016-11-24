@@ -1,0 +1,6 @@
+Artículo 18.- Funciones de los autorizados a emitir actos administrativos. De acuerdo con el nivel de aprobación que corresponda, serán funciones de los autorizados a emitir actos administrativa lo siguiente:
+a. Realizar todos sus actos en tiempo y forma al amparo de la LCA y el RLCA.
+b. Analizar las recomendaciones emitidas por el Analista de Contratación Administrativa para atender aclaraciones, modificaciones, recursos o readjudicaciones contra los procedimientos de contratación administrativa, ante consulta realizada por los oferentes, adjudicatarios o la Contraloría General de la República.
+c. Aprobar la adjudicación, declaración de infructuoso o desierto sobre los procedimientos de contratación administrativa, con base en el informe rendido por la Sección Administrativa, el cual se sustentará en el cumplimiento de los requisitos administrativos establecidos en el cartel y el análisis técnico emitido por la unidad solicitante.
+d. Firmar los acuerdos de actos administrativos mediante la Resolución de Acto Final en Contratación Administrativa.
+e. Los acuerdos correspondientes a los actos administrativos en los procesos de contratación diferentes a la Resolución de Acto Final en Contratación Administrativa serán suscritos solamente por el Jefe de la Sección Administrativa.

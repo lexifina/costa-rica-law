@@ -1,0 +1,5 @@
+Artículo 28.- Prórroga al plazo de la ejecución contractual. En los casos que el cartel lo faculte, a falta de pronunciamiento del Administrador del Contrato, se tendrá por prorrogado el contrato por un período adicional.
+Cuando la contratación tenga la opción de prórroga, el Administrador del Contrato comunicará formalmente al Analista en Contratación Administrativa la decisión para continuarlo o finalizarlo, al menos 40 días naturales de anticipación al vencimiento del contrato, con el propósito de que el Analista en Contratación Administrativa lo informe al Contratista con al menos 30 días naturales antes del vencimiento del mismo. Para autorizar la prórroga al plazo de la compra, el Administrador del Contrato debe considerar que el Expediente de Ejecución Contractual presenta las siguientes condiciones:
+a. Que no se haya acreditado un incumplimiento grave en las condiciones y plazos pactados.
+b. Que prevalezca la necesidad del aprovisionamiento del objeto del contrato.
+c. Que se disponga de los recursos presupuestarios suficientes, incluidos reajustes de precios cuando así correspondan.
