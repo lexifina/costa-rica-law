@@ -1,0 +1,1 @@
+Artículo N° 12. Solicitud de jubilación. EI cotizante que cumpla con los requisitos establecidos en el artículo anterior y desee jubilarse, deberá solicitarlo a la Gerencia del Fondo, debiendo de previo, pagar en su totalidad las obligaciones que tuviere con el Fondo. La Gerencia definirá mediante circular, los documentos necesarios para acreditar el derecho del solicitante.

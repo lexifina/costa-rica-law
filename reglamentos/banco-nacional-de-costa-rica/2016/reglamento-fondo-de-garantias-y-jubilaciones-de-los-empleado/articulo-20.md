@@ -1,0 +1,2 @@
+Artículo N° 20. -Aumento en edad de jubilación y reducción monto de pensión. EI cotizante que al 24 de abril del año 2003, haya cotizado al menos 10 años y no alcance los 20 años de servicio cotizado al fondo, tendrá derecho a jubilarse con base en lo normado en los artículos 13 y 14 de este Reglamento cuando alcance la edad mínima indicada adelante y 30 años de servicio cotizados. La edad mínima de retiro dependerá del número de años cotizados a la fecha indicada, de acuerdo con lo que establece la siguiente tabla:
+[imagen]

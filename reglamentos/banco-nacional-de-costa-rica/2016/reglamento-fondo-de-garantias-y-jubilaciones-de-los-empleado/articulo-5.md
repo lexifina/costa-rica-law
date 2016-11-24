@@ -1,0 +1,1 @@
+Artículo N° 5. Representación. La representación legal del Fondo le compete al Banco Nacional de Costa Rica, por lo tanto, no tiene autonomía externa. Su autonomía sin limitación, alguna está basada en la gestión y administración que este Reglamento y demás normativa que se establezca.

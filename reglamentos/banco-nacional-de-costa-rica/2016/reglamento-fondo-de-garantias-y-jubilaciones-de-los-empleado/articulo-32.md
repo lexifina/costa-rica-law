@@ -1,0 +1,1 @@
+Artículo N° 32. Sesiones del Órgano. EI Órgano de Dirección, deberá reunirse en sesión ordinaria, por lo menos una vez al mes, en el lugar y día que sus miembros determinen y en sesión extraordinaria las veces que sea convocada por escrito por el Presidente o por cuatro miembros del Órgano de Dirección.

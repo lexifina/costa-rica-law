@@ -1,0 +1,4 @@
+SUBSECCIÓN TERCERA.
+CONSERVACIÓN DE DERECHOS.
+Artículo N° 19. Conservación de derechos. EI cotizante que al 24 de abril del año 2003, alcance 20 años de servicio cotizado al Fondo, tendrá derecho a jubilarse con base en lo normado en los artículos 13 y 14 de este Reglamento cuando alcance una edad mínima de 57 años para los varones y 55 años las mujeres y además 30 años de servicio cotizado como mínimo. Sin embargo, podrá aplicarse el exceso de los 30 años de servicio cotizado, para disminuir la edad, para que en esta forma quede compensado el faltante de edad con el exceso de años de servicio cotizado y pueda otorgársele la pensión en el momento en que haya completado, en virtud de la compensación, el faltante de edad. En este caso, el número de años que el cotizante puede anticipar la jubilación, tienen tope que depende del número de años cotizados al 24 de abril del 2003, de acuerdo con la siguiente tabla.
+[imagen]

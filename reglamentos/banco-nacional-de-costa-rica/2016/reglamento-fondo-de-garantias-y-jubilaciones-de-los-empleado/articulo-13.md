@@ -1,0 +1,1 @@
+Artículo N° 13.-Salario de referencia. EI salario de referencia es igual al promedio aritmético del valor actual de los salarios, en los últimos 25 años o el equivalente a los años cotizados en los casos de invalidez o muerte. La tasa de actualización comprende la inflación desde el mes que corresponde el pago hasta la fecha en que se hace el respectivo cálculo de la pensión.

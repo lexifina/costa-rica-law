@@ -1,0 +1,6 @@
+Artículo N° 30.-Órgano de Dirección. EI Órgano de Dirección del Fondo estará conformado por seis integrantes:
+a)Tres representantes del Banco nombrados por la Gerencia General.
+b)Dos representantes de los trabajadores nombrados por el Sindicato de los empleados del Banco Nacional.
+c)Un representante de los pensionados, nombrado por la Asociación de Pensionados.
+d)Además el Órgano de Dirección contará con seis suplentes, nombrados por el mismos sectores igual que los titulares, quienes sustituirán a los propietarios en sus ausencias temporales o definitivas.
+e)El Órgano de Dirección contará con la asesoría legal de la Dirección Jurídica del Banco. El profesional designado, asistirá a las sesiones de conformidad con las convocatorias tramitadas por el Gerente del Fondo, siguiendo instrucciones del Presidente del Órgano de Dirección. EI cargo de miembro del Órgano de Dirección será honorífico, por lo que no se percibirá dietas ni ningún otro tipo de remuneración. Estarán en sus cargos por espacio de dos años a partir del primero de enero siguiente al nombramiento y podrán ser reelegidos. Cuando un suplente adquiera la titularidad permanente, lo realizará por el tiempo que faltare para terminar el periodo.

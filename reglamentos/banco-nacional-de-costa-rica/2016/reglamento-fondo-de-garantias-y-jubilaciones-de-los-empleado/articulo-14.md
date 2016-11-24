@@ -1,0 +1,3 @@
+Artículo N° 14. Monto de la pensión.
+1- EI cotizante que cumpla con los requisitos indicados en los artículos 11 y 12 de este Reglamento, tendrá derecho a la jubilación calculada de la siguiente manera: Un 25% del salario de referencia, indicado en el artículo anterior, cuando tenga al menos veinte años cotizados. EI monto anterior se incrementara en un 0.125% de ese salario de referencia, por cada mes cotizado después de los primeros veinte años de cotización.
+2- El cotizante podrá postergar su jubilación, en cuyo caso se incrementará la tasa de reemplazo 0.125% adicional por cada mes postergado.
