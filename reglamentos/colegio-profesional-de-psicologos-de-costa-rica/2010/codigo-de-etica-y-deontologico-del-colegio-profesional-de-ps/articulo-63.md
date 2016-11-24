@@ -1,1 +1,2 @@
 Artículo 63.—Para apelar un fallo del Tribunal de Honor, las partes deberán hacerlo por escrito ante la Junta Directiva dentro de los ocho días siguientes al recibo de la notificación. Una vez recibida la apelación, la Junta Directiva deberá convocar a Asamblea General para este fin específico. La Asamblea General deberá resolver por votación secreta por simple mayoría el mismo día para la cual fue convocada. El fallo de la Asamblea será definitivo.
+(Así reformado mediante publicación en el Alcance Digital N° 268 de La Gaceta N° 226 del 24 de noviembre del 2016)

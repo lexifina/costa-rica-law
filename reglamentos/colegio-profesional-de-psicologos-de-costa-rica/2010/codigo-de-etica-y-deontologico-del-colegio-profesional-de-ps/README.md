@@ -14,3 +14,4 @@ Código de Ética y Deontológico del Colegio Profesional de Psicólogos/as de C
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-04-12 | la propia norma |
+| 2 | 2016-11-24 | Reglamento 0 (2016-11-24) |
