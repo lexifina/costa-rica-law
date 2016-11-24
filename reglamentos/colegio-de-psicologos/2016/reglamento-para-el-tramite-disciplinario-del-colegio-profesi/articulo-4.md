@@ -1,0 +1,3 @@
+ARTÍCULO 4:
+1. Una vez dictado el auto de inicio por el Tribunal de Honor, si el expediente se paralizare por más de tres meses y la inactividad sea directamente imputable al Tribunal, se producirá la caducidad la cual será declarada de oficio o instancia de parte ordenando el archivo del expediente. No procederá la caducidad cuando el expediente se encuentre listo para la resolución final.
+2. Tratándose del recurso de apelación contra el acto definitivo habrá el término de dos meses calendario, contados a partir de la presentación del mismo, para que la Junta Directiva convoque a Asamblea General, a efecto de resolver lo que corresponda.
