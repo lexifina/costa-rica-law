@@ -1,0 +1,1 @@
+Artículo 18: El Archivo Central deberá elaborar por escrito el Informe Anual sobre el Desarrollo Archivístico de la Institución, que se enviará a la Dirección General del Archivo Nacional en el mes de marzo de cada año.

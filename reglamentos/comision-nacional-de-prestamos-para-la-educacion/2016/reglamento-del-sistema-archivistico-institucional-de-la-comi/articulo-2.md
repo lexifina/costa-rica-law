@@ -1,0 +1,1 @@
+Artículo 2: El objetivo del presente reglamento es regular el funcionamiento del Sistema Archivístico Institucional de la Comisión Nacional de Préstamos para Educación, con el propósito de asegurar una adecuada gestión documental.

@@ -1,0 +1,2 @@
+Artículo 13: En el Archivo Central se reunirán los documentos custodiados por los archivos de gestión de las diferentes unidades administrativas, los cuales deberán ser remitidos dentro del período que fijan las tablas de plazos de conservación de documentos.
+La documentación por remitir al Archivo Central deberá estar preparada de acuerdo con lo establecido en el Proceso de Transferencias Documentales y con el instructivo de Transferencias Documentales.

@@ -1,0 +1,1 @@
+Artículo 27: El Comité Institucional de Selección y Eliminación de Documentos podrá convocar a sus reuniones a cualquier funcionario de la institución competente en la materia por tratar, para decidir con mayor amplitud y objetividad la conservación o eliminación de la documentación evaluada.

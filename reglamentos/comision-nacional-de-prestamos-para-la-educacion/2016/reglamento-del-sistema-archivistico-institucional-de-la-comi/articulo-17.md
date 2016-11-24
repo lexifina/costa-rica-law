@@ -1,0 +1,1 @@
+Artículo 17: El Archivo Central deberá capacitar y asesorar a los encargados de los archivos de gestión de las diferentes unidades administrativas, o a cualquier otro funcionario relacionado con la actividad documental, para que organicen los archivos de conformidad con las políticas y procesos de Gestión Documental reguladas por el Archivo Central.

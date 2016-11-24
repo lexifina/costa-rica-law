@@ -1,0 +1,1 @@
+Artículo 3: El Sistema Archivístico de CONAPE estará conformado por: el Archivo Central, archivos de gestión de las diferentes unidades administrativas de la Comisión Nacional de Préstamos para Educación y el Comité Institucional de Selección y Eliminación de Documentos. El Archivo Central es el órgano rector del Sistema.
