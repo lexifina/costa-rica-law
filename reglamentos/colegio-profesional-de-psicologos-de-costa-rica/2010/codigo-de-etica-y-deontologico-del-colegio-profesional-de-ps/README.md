@@ -15,3 +15,4 @@ Código de Ética y Deontológico del Colegio Profesional de Psicólogos/as de C
 | --- | --- | --- |
 | 1 | 2011-04-12 | la propia norma |
 | 2 | 2016-11-24 | Reglamento 0 (2016-11-24) |
+| 3 | 2016-11-24 | Reglamento 100 (2016-11-24) |
