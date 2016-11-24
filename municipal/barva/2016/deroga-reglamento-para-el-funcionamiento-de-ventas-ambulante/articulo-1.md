@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE BARVA
+El Concejo Municipal mediante Acuerdo N° 1344-2016, tomado en la sesión ordinaria N° 065-2016, celebrada en el salón de sesiones a las diecisiete horas con siete minutos del día 24 de octubre del 2016, acuerda derogar el Reglamento para el Funcionamiento de Ventas Ambulantes en el Cantón de Barva, publicado en el Diario Oficial La Gaceta N° 53 del jueves 15 de marzo del 2007, y se mantiene vigente los artículos 60 y 61 del Reglamento de Patentes de esta Municipalidad, respecto a la prohibición de ventas ambulantes y estacionarias en el cantón de Barva.
