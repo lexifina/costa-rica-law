@@ -1,0 +1,1 @@
+Artículo 14 º — El pago deberá realizarse en las cajas municipales o los medios de pago que en su momento sean implementados por la Municipalidad. El representante deberá presentar el comprobante de pago con el sello respectivo a la Administración del Centro en cualquier momento en que esta se lo requiera.

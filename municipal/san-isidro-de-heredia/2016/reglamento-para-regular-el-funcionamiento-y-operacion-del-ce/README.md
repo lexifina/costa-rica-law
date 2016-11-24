@@ -1,0 +1,16 @@
+# Reglamento municipal (2016-10-28)
+
+Reglamento para regular el funcionamiento y operación del Centro de cuido y desarrollo infantil - CECUDI del cantón de San Isidro de Heredia
+
+- Tipo: Reglamento municipal
+- Número: 71
+- Fecha: 2016-10-28
+- Ente emisor: Municipalidad de San Isidro de Heredia
+- Publicación: La Gaceta N° 226 del 2016-11-24, Alcance 268
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=82967&param2=106378&param3=1 (ficha 82967)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2016-11-24 | la propia norma |
