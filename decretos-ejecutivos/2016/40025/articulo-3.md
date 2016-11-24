@@ -1,0 +1,1 @@
+Artículo 3º-En cuanto a los funcionarios del Ministerio de Educación Pública, será la jerarca de dicha institución quien determine, con base en el artículo 213 del Código de Educación y mediante circular interna, si se concederá el asueto regulado en este decreto, al personal de dicho ministerio.

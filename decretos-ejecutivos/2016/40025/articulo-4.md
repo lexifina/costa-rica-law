@@ -1,0 +1,1 @@
+Artículo 4º-En relación con los funcionarios de la Dirección General de Aduanas, será el jerarca del Ministerio de Hacienda, quien determinará lo que corresponda, con base en el artículo 14 párrafo segundo de la Ley General de Aduanas y mediante circular interna.
