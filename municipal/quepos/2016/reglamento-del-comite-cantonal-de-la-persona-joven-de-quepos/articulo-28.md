@@ -1,0 +1,1 @@
+Artículo 28. —Los representantes nombrados, de cada sector u organización juvenil, deberán presentar ante el Comité Cantonal de la Persona Joven, una carta donde se les acredite como la persona elegida por su organización para participar en la elección del Comité. En caso contrario, la persona respectiva no podrá postularse para el cargo.

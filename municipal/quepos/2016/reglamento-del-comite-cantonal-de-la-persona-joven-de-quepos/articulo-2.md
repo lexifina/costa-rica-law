@@ -1,0 +1,1 @@
+Artículo 2°—El comité cantonal de juventud es el organismo superior en el cantón de Quepos, sobre las políticas, atención y estrategias para promover la participación de los jóvenes en todas las fases de la vida comunal.

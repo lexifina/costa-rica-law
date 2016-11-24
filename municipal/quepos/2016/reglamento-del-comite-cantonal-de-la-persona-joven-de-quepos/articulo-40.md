@@ -1,0 +1,1 @@
+Artículo 40. —Cuando un miembro de la junta directiva sea nombrado ante un proyecto o comisión ante otras instituciones, deberá presentar un informe mensual de su labor, o en un menor tiempo, a solicitud del presidente o del fiscal.

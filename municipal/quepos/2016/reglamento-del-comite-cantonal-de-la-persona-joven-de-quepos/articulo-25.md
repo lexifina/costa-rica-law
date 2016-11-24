@@ -1,0 +1,1 @@
+Artículo 25. —En la primera semana de noviembre, el CCPJQ realizará la convocatoria con el fin de que se nombre a los postulantes de los diferentes sectores y movimientos que integran el CCPJQ. Se invitarán a todos los sectores juveniles, conformados por personas de 12 a 35 años, domiciliados en el cantón de Quepos, y representantes de las organizaciones señaladas por la Ley.

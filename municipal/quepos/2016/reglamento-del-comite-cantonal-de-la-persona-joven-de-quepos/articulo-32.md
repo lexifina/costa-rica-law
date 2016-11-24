@@ -1,0 +1,1 @@
+Artículo 32. —Una vez completada la lista de postulantes, Comité Cantonal de la persona joven deberá presentar la lista ante Concejo Municipal, el cual realizará el proceso de nombramiento y juramentación respectivo.
