@@ -1,0 +1,1 @@
+Transitorio Uno. Los concursos iniciados antes de la publicación de esta modificación, se tramitarán con las disposiciones vigentes al momento de la aprobación de los términos del concurso por parte del nivel de competencia respectivo.

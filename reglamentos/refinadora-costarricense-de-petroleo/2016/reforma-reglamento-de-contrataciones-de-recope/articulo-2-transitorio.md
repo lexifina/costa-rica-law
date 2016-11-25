@@ -1,0 +1,1 @@
+Transitorio Dos. En cuanto a la fase recursiva regulada en esta modificación, le resultará aplicable a los concursos cuyo acto de adjudicación adquieran firmeza a partir de la entrada en vigencia de esta normativa.
