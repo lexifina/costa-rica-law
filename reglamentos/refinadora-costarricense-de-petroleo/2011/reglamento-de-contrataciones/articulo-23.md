@@ -1,2 +1,5 @@
-Artículo 23.—Formalización. Por la naturaleza de estos procedimientos de contratación, las fases de perfeccionamiento y formalización se darán en forma simultánea con la comunicación de lo resuelto a todos los participantes del concurso.
-RECOPE podrá requerir garantías para la presentación de las ofertas y ejecución contractual en las adquisiciones realizadas bajo estas modalidades de concurso.
+Artículo 23. Programación e Informe de la actividad contractual.
+La Dirección de Comercio Internacional de Combustibles, la Dirección de Distribución de Combustibles y la Dirección de Operaciones de la Refinería, deberán someter para aprobación por parte del Comité, en la primera semana del mes de noviembre de cada año, los planes anuales de las actividades contractuales para el año siguiente. Una vez aprobados estos planes, el Comité hará de conocimiento de la Junta Directiva dichos planes.
+Cualquier modificación de esta programación, deberá ser aprobada previamente por el Comité para su ejecución. Se excluye de la presente disposición, las modalidades establecidas en los apartados 15.2 y 15.4.
+La Gerencia General deberá presentar un informe semestral a la Junta Directiva sobre las modalidades de contratación formalizadas en el semestre anterior, y de las importaciones y exportaciones de combustibles realizadas en dicho periodo.
+(Así reformado mediante publicación en el Alcance Digital N° 271 de La Gaceta N° 227 del 25 de noviembre del 2016)

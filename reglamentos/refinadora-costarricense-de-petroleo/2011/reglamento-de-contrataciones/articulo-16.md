@@ -1,1 +1,3 @@
-Artículo 16.—Exportación de productos. Para la exportación de productos deberá promoverse un concurso internacional, salvo que concurran situaciones de excepción que justifiquen acudir a los procedimientos establecidos en el artículo 15, incisos 15.2 y 15.3, lo cual deberá quedar acreditado en el expediente respectivo.
+Artículo 16.—Exportación de productos.
+Para la exportación de productos deberá promoverse un concurso internacional, salvo que concurran situaciones de excepción que justifiquen acudir al procedimiento establecido en el artículo 15.2, lo cual deberá quedar acreditado en el expediente respectivo.
+(Así reformado mediante publicación en el Alcance Digital N° 271 de La Gaceta N° 227 del 25 de noviembre del 2016)

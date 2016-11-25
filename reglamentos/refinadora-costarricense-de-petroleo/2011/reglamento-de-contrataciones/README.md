@@ -17,3 +17,4 @@ Reglamento de Contrataciones
 | 2 | 2012-02-29 | Reglamento 4621 (2012-02-29) |
 | 3 | 2012-11-28 | Reglamento 4688 (2012-11-28) |
 | 4 | 2014-03-24 | Reglamento 4783 (2014-03-24) |
+| 5 | 2016-11-25 | Reglamento 0 (2016-11-25) |

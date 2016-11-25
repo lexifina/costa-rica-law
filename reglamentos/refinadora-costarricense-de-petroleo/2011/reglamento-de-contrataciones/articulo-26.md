@@ -1,1 +1,6 @@
-Artículo 26.—Acciones Recursivas. Cabrán recursos de revocatoria y apelación contra los acuerdos tomados por el Comité, interpuestos según los requisitos y plazos contenidos en la Ley General de la Administración Pública. Corresponderá a la Junta Directiva de RECOPE resolver las apelaciones.
+Artículo 26. Ejecución contractual.
+Las direcciones de área serán responsables de velar por la correcta ejecución de los contratos que lleguen a perfeccionarse, de conformidad con los términos del concurso y el acuerdo de adjudicación dictado por el nivel de competencia.
+En caso de presentarse algún incidente o situación que implique una alteración de dichas disposiciones, ya sea de tipo económico, financiero o de calidad, entre otros, estarán en la obligación de gestionar de forma inmediata la autorización correspondiente ante el Comité para continuar con la ejecución contractual y garantizar el abastecimiento nacional de combustible. Para el caso de contrataciones que hayan sido aprobadas por la Junta Directiva, el Comité estará facultado para aprobar es tas gestiones.
+Los contratos podrán modificarse durante su ejecución cuando se den situaciones imprevisibles que no permitan garantizar la continuidad y seguridad del abastecimiento nacional de combustibles, que por ley compete a RECOPE.
+El acto del Comité que aprueba la modificación deberá ser debidamente motivado y contar con los estudios técnicos y económicos que lo respaldan.
+(Así reformado mediante publicación en el Alcance Digital N° 271 de La Gaceta N° 227 del 25 de noviembre del 2016)

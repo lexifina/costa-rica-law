@@ -1,10 +1,12 @@
-Artículo 17.- Comité de Contratación de Combustibles (CCC).
-17.1 El Comité de Contratación de Combustibles (CCC) conocerá y recomendará a la Junta Directiva de RECOPE la aprobación del concurso a publicar y la aprobación de la adjudicación de los concursos internacionales para las importaciones anuales de los siguientes productos: Gasolinas, Diesel, Jet A-1, LPG, Bunkers (fuel oil) y Asfalto.
-El Comité de Contratación de Combustibles aprobará la publicación y adjudicación de los concursos indicados en el párrafo anterior, por caso fortuito, fuerza mayor, urgencia, plazo de vigencia de las ofertas, únicamente en caso de que la Junta Directiva de RECOPE, por falta de quórum estructural y funcional, no pueda conocer y aprobar la recomendación del Comité, para lo cual posteriormente el Comité rendirá un informe a la Junta Directiva sobre la decisión adoptada y la razón que obligó a la misma.
-17.2 El Comité de Contratación de Combustibles (CCC) aprobará la publicación y adjudicación de los siguientes concursos:
-• Concurso Internacional para la contratación de servicios de fletamento, servicios de remolque y servicios inspección de petróleo crudo y derivados, así como los compuestos utilizados para la formulación de combustibles y los concursos esporádicos para la importación de crudo y derivados.
-• Contratación Concursada.
-• Concurso Nacional de Transporte Terrestre.
-• Contratación Concursada de Fletamento Terrestre.
-17.3 El Comité informará a la Junta Directiva sobre las resoluciones indicadas en el punto anterior No. 17.2.
-(Así reformado en sesión N° 4688 del 28 de noviembre de 2012)
+Artículo 17. Comité de Contratación de Combustibles.
+El Comité de Contratación de Combustibles será la instancia funcional encargada de la toma de acuerdos en los procedimientos de contratación de la actividad ordinaria.
+El Comité de Contratación de Combustibles estará integrado por los Gerentes de Área, el Gerente General y el Presidente de la Empresa, quien fungirá como Presidente del Comité. El cargo de Vicepresidente del Comité será asumido por el Gerente General. Los miembros del Comité no devengarán pago de di etas por su participación en las sesiones.
+En caso de ausencia, el cargo de la Presidencia del Comité, lo asumirá el Vicepresidente; para los demás miembros del Comité, éstos serán sustituidos por el funcionario que ha sido designado formalmente para el puesto de gerente. En caso de ausencia simultánea del Presidente y del Vicepresidente, la Presidencia será asumida por el Gerente de Distribución y Ventas.
+Podrán asistir a las sesiones del Comité, con voz pero sin voto, el Director de Comercio Internacional de Combustibles, Director de Operaciones y el Director de Distribución de Combustibles, en aquellas sesiones en que se tramiten contrataciones correspondientes a sus dependencias.
+El Comité de Contratación de Combustibles se reunirá cada vez que sea convocado por el Presidente, Vicepresidente o la Secretaría de Actas, conforme sea demandado por parte de las direcciones operativas.
+El Comité podrá excepcionalmente realizar sesiones virtuales, debiendo garantizarse en éstas, la simultaneidad, la deliberación y la integración de la información.
+Las sesiones del Comité serán privadas. Podrán tener acceso a las sesiones personas externas a la Empresa, cuando así lo disponga el órgano colegiado mediante un acuerdo unánime de los miembros.
+Los miembros del Comité deberán votar cada uno de los asuntos sometidos a su conocimiento, también podrán salvar su voto en forma razonada. En ningún caso podrán abstenerse de votar, salvo por impedimento legal.
+Los acuerdos del Comité serán válidos y de acatamiento obligatorio, siempre y cuando sean adoptados por mayoría simple de los miembros asistentes. En caso de empate, decidirá el Presidente en ejercicio, quién contará con doble voto. Todos los acuerdos del Comité adquieren firmeza en la sesión de su adopción.
+Cabrá recurso de revocatoria contra los acuerdos del Comité según lo establecido en el artículo 25 de este reglamento.
+(Así reformado mediante publicación en el Alcance Digital N° 271 de La Gaceta N° 227 del 25 de noviembre del 2016)
