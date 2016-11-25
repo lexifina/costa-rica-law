@@ -1,0 +1,1 @@
+Artículo 4°— La autorización para participar en las actividades se podrá extender hasta las 16 horas, en el caso de las personas funcionarias que deban trasladarse por más de 60 kilómetros desde sus lugares de trabajo al centro de San José, donde se realizarán actividades conmemorativas.
