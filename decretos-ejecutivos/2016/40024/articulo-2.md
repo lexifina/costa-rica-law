@@ -1,0 +1,1 @@
+Artículo 2°.- El Ministerio de Obras Públicas y Transportes y cualquier otro ente público especializado y con competencia, podrá recibir la colaboración mencionada en el artículo anterior, siempre que el ente competente la autorice expresamente, la coordine y supervise, con el objeto de garantizar la calidad y utilidad de la obra.
