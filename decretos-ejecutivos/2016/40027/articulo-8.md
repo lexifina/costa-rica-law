@@ -1,0 +1,1 @@
+Artículo 8°.- La Comisión Nacional de Prevención de Riesgos y Atención de Emergencias, con base en lo indicado en el artículo 15 inciso f) y 31 de la Ley Nacional de Emergencias y Prevención del Riesgo, está autorizada para contratar personal especial que requiera por periodos determinados y conforme a la declaración de la emergencia.
