@@ -14,3 +14,4 @@ Reglamento para el Pago de viáticos por excepción para los funcionarios de la 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2004-09-28 | la propia norma |
+| 2 | 2016-11-29 | Reglamento 41 (2016-11-29) |
