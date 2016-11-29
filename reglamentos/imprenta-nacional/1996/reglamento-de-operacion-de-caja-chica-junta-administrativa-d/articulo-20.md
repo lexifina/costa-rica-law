@@ -1,7 +1,5 @@
-Artículo 20.-Requisitos para liquidación mediante facturas
-Toda factura comercial que respalde la compra de mercancías o pago de servicios debe cumplir los siguientes requisitos para su cancelación:
-a) Estar confeccionada en original a nombre de la Junta Administrativa de la Imprenta Nacional.
-b) Indicar los bienes y servicios adquiridos, fecha de adquisición.
-c) Traer sello de cancelación, firma y número de cédula física o jurídica del proveedor, o la leyenda en manuscrita de cancelado y firma de la persona responsable.
-d) Sello de timbraje de facturas, o el sistema que al respecto establezca la Dirección General de la Tributación Directa, salvo los casos indicados en el presente reglamento.
-e) En la factura no se debe utilizar en la descripción la palabra "varios", el detalle debe ser suficiente para su justificación y clasificación.
+Artículo 20. Requisitos de una factura comercial, tiquete de caja o comprobante para su cancelación. Toda factura comercial, tiquete de caja o comprobante, deberá cumplir con los requisitos siguientes, a los efectos de que se pueda cumplir con su respectiva cancelación:
+1) Los comprobantes que respaldan la adquisición de mercadería y servicios deberán ser confeccionados por la respectiva casa comercial, en original, a nombre de la Junta Administrativa de la Imprenta Nacional, libres de borrones y tachaduras y con indicación clara del bien o servicio adquirido, razón por la que no debe utilizar en la descripción la palabra "varios", fecha de adquisición y su valor; además, deberán cumplir con los requisitos establecidos por la Dirección General de Tributación.
+2) Cuando un tiquete de caja u otro tipo de comprobante sustituya a la factura, éstos deberán cumplir con los requisitos establecidos por la Dirección General de Tributación.
+3) Toda factura, tiquete o comprobante que se presente para su liquidación, debe incluir, por parte del solicitante del bien o servicio, la recepción a conformidad de estos.
+(Así reformado en sesión N° 41 del 29 de noviembre de 2016)
