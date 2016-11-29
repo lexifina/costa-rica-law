@@ -1,1 +1,1 @@
-Artículo 2º—Rige a partir de su publicación.
+Artículo 2°: Rige a partir de su publicación.

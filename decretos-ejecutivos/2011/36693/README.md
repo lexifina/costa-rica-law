@@ -15,3 +15,4 @@ Declara Moratoria Nacional para la explotación petrolera
 | --- | --- | --- |
 | 1 | 2011-08-19 | la propia norma |
 | 2 | 2014-07-25 | Decreto Ejecutivo 38537 (2014-07-25) |
+| 3 | 2016-11-29 | Decreto Ejecutivo 40038 (2016-11-29) |
