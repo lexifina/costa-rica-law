@@ -1,1 +1,0 @@
-Artículo 4°—El Ministerio de Agricultura y Ganadería por medio de las autoridades correspondientes de conformidad con el artículo primero podrá emitir normas específicas para el reconocimiento de determinados requisitos con relación a productos específicos.
