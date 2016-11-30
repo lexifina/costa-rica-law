@@ -14,3 +14,4 @@ Reforma Resolución N° 144-09-2016 Otorga permiso de ingreso y permanencia tran
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-11-09 | la propia norma |
+| 2 | 2016-11-30 | Resolución 178 (2016-11-30) |
