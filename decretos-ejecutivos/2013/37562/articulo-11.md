@@ -27,6 +27,7 @@ Homeopatía. | Artículo No. 31
 Infectología. | Artículo No. 32
 Informática Médica. | Artículo No. 33
 Inmunología Clínica. | Artículo No. 34
+Medicina Aeroespacial (Así adicionada la especialidad anterior mediante sesión ordinaria N° 2016-11-30, celebrada el 30 de noviembre del 2016) | Artículo 148º (Así adicionado el requisito anterior mediante sesión ordinaria N° 2016-11-30, celebrada el 30 de noviembre del 2016)
 Medicina Crítica y Terapia Intensiva. | Artículo No. 35
 Medicina de Emergencias. | Artículo No. 36
 Medicina del Deporte. | Artículo No. 37
