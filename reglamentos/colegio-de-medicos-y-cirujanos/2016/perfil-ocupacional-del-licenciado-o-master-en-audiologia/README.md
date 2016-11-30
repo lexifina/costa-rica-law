@@ -14,3 +14,4 @@ Perfil ocupacional del licenciado o máster en audiología
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-07 | la propia norma |
+| 2 | 2016-11-30 | Reglamento 0 (2016-11-30) |
