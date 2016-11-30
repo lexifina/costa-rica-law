@@ -15,3 +15,4 @@ Otorga permiso de ingreso y permanencia transitoria para atención de humanitari
 | --- | --- | --- |
 | 1 | 2016-09-29 | la propia norma |
 | 2 | 2016-10-19 | Resolución 156 (2016-10-19) |
+| 3 | 2016-11-30 | Resolución 178 (2016-11-30) |
