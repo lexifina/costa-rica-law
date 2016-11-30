@@ -14,3 +14,4 @@ Dirección electrónica para la presentación de consultas fundamentadas en el a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-29 | la propia norma |
+| 2 | 2016-11-30 | Resolución 58 (2016-11-30) |
