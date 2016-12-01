@@ -15,3 +15,4 @@ Plan Regulador Urbano y Rural del Cantón de Grecia (contiene Reglamento de Disp
 | --- | --- | --- |
 | 1 | 2006-07-16 | la propia norma |
 | 2 | 2016-06-13 | Reglamento municipal 0 (2016-06-13) |
+| 3 | 2016-12-01 | Acuerdo municipal 0 (2016-12-01) |

@@ -364,11 +364,18 @@ Todos los proyectos de urbanización que se tramiten en el Cantón de Grecia deb
 - considerar aspectos de la tipología arquitectónica del entorno, respetar las normas para las personas con discapacidad (Ley 7600) y respetar lo que señala la Ley Orgánica del Ambiente en cuanto a la contaminación visual y
 - no exceder los cincuenta lotes por cuadrante o los treinta lotes en proyectos lineales, así como dar continuidad de los ejes viales existentes o propuestos en el Plan Regulador.
 Artículo 40.—Requisitos para presentación de Anteproyectos. El interesado debe hacer la consulta mediante una nota dirigida al Concejo y presentar los planos arquitectónicos en el ámbito de anteproyecto que especifiquen las actividades a desarrollar, alturas, retiros, coberturas, niveles de calles, certificado de uso de la tierra con el alineamiento. Para urbanizaciones debe presentar la tabla de áreas. Para condominios deberá presentar la tabla de fincas filiales y sus coeficientes. Adicionalmente, se deberá incorporar los siguientes requisitos:
-- Fotocopia de Plan Catastro a Escala Natural, sin pegas
-- Certificado del Registro Público de la Propiedad
-- Dos copias del juego de planos firmados por el profesional responsable y aprobados por el INVU.
-- Copia del Certificado de Uso del Suelo.
-- El estudio de viabilidad ambiental del órgano estatal competente.
+1. Consulta mediante una nota dirigida al Concejo
+2. Planos Arquitectónicos en el ámbito de anteproyecto que especifiquen:
+a) Actividades a desarrollar
+b) Alturas, retiros, coberturas
+c) Niveles de calles
+d) Certificado de uso de la tierra con el alineamiento
+e) Tabla de fincas filiales y sus coeficientes, tablas de áreas
+3. Plano visado
+4. Cumplir con todo lo dispuesto según reglamento para la contratación de servicios de consultoría en Ingeniería y Arquitectura
+5. Al día en los Impuestos Municipales.
+6. Declaración de bienes inmuebles vigente. Además de los descritos en el plan regulador bajo las excepciones descritas en los informes mencionados.
+(Así reformados los requisitos anteriores mediante publicación en La Gaceta N° 231 del 1 de diciembre del 2016)
 Artículo 41.—Aprobación de anteproyectos. Para efectos de la aprobación de anteproyectos de urbanizaciones, segregaciones, anteproyectos de condominio y fraccionamientos, el desarrollador deberá presentar al Jefatura del IDC(*), para que ésta determine mediante un informe técnico sobre la viabilidad del proyecto urbano y el cumplimiento de las normas y reglamentos aplicables en este caso. El Jefatura del IDC(*) elevará al Concejo Municipal la conveniencia o no del Anteproyecto. El Concejo Municipal podrá solicitar la asesoría de la CET para pronunciarse al respecto. Con base en la resolución del Concejo, la Jefatura del IDC(*) notificará al interesado. El proceso de valoración no podrá exceder los sesenta días naturales.
 (*)(Así modificada su denominación mediante publicación en La Gaceta N° 143 del 26 de julio del 2016. Anteriormente indicaba “DCU”)
 En caso de rechazo parcial y total de las propuestas, asiste al interesado la posibilidad de realizar aquellos cambios o ajustes que procedan y reiniciar el trámite, siguiendo los mismos pasos anteriores.
