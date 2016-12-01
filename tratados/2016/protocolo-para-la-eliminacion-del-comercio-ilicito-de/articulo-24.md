@@ -1,0 +1,4 @@
+Artículo 24
+Asistencia y cooperación: investigación y persecución de infracciones
+1. Las Partes, de conformidad con su derecho interno, tomarán todas las medidas necesarias, cuando proceda, para reforzar la cooperación mediante arreglos multilaterales, regionales o bilaterales en materia de prevención, detección, investigación, persecución y aplicación de sanciones a las personas físicas o jurídicas que se dediquen al comercio ilícito de tabaco, productos de tabaco o equipo de fabricación.
+2. Cada Parte velará por que las autoridades reguladoras y administrativas, las autoridades encargadas de hacer cumplir la ley y otras autoridades dedicadas a combatir el comercio ilícito de tabaco, productos de tabaco o equipo de fabricación (incluidas las autoridades judiciales cuando su derecho interno lo autorice) cooperen e intercambien información pertinente a nivel nacional e internacional, teniendo en cuenta las condiciones prescritas en su derecho interno.

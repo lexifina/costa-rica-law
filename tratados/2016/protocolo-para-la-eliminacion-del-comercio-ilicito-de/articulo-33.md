@@ -1,0 +1,10 @@
+PARTE VII: ARREGLOS INSTITUCIONALES Y RECURSOS FINANCIEROS
+Artículo 33
+Reunión de las Partes
+1. Por el presente se establece una Reunión de las Partes. El primer periodo de sesiones de la Reunión de las Partes será convocado por la Secretaría del Convenio inmediatamente antes o inmediatamente después de la primera reunión ordinaria de la Conferencia de las Partes siguiente a la entrada en vigor del presente Protocolo.
+2. Ulteriormente, la Secretaría del Convenio convocará los periodos de sesiones ordinarios de la Reunión de las Partes inmediatamente antes o inmediatamente después de las reuniones ordinarias de la Conferencia de las Partes.
+3. Se celebrarán periodos de sesiones extraordinarios de la Reunión de las Partes en cuantas ocasiones esta lo considere necesario, o cuando alguna de las Partes lo solicite por escrito, siempre que, dentro de los seis meses siguientes a la fecha en que la Secretaría del Convenio haya comunicado a las Partes la solicitud, esta reciba el apoyo de al menos un tercio de las Partes.
+4. El Reglamento Interior y el Reglamento Financiero de la Conferencia de las Partes en el Convenio Marco de la OMS para el Control del Tabaco se aplicarán, mutatis mutandis, a la Reunión de las Partes en el presente Protocolo, a no ser que la Reunión de las Partes decida otra cosa.
+5. La Reunión de las Partes examinará periódicamente la aplicación del presente Protocolo y tomará las decisiones que sean necesarias para promover su aplicación efectiva.
+6. La Reunión de las Partes establecerá la escala y el mecanismo de contribuciones señaladas de carácter voluntario de la Partes destinadas al funcionamiento del presente Protocolo, así como otros posibles recursos necesarios para su aplicación.
+7. En cada periodo de sesiones ordinario, la Reunión de las Partes adoptará por consenso un presupuesto y un plan de trabajo para el ejercicio financiero que finalice con el siguiente periodo de sesiones ordinario, que serán distintos del presupuesto y plan de trabajo del Convenio Marco de la OMS para el Control del Tabaco

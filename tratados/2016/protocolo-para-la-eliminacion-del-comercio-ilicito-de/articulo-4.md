@@ -1,0 +1,12 @@
+PARTE II: OBLIGACIONES GENERALES
+Artículo 4
+Obligaciones generales
+1. Además de observar las disposiciones contenidas en el artículo 5 del Convenio Marco de la OMS para el Control del Tabaco, las Partes deberán:
+a) adoptar y aplicar medidas eficaces para controlar o regular la cadena de suministro de los artículos a los que se aplique el presente Protocolo a fin de prevenir, desalentar, detectar, investigar y perseguir el comercio ilícito de dichos artículos, y deberán cooperar entre sí con esta finalidad;
+b) tomar todas las medidas que sean necesarias, de conformidad con su derecho interno, para potenciar la eficacia de las autoridades y los servicios competentes, incluidos los de aduana y policía, encargados de prevenir, desalentar, detectar, investigar, perseguir y eliminar todas las formas de comercio ilícito de los artículos a que se refiere el presente Protocolo;
+c) adoptar medidas eficaces para facilitar u obtener la asistencia técnica y el apoyo financiero así como el fortalecimiento de la capacidad y la cooperación internacional necesarios para alcanzar los objetivos del presente Protocolo, y velar por que las autoridades competentes tengan a su disposición e intercambien de forma segura la información a que se refiere el presente Protocolo;
+d) cooperar estrechamente entre sí, de conformidad con sus respectivos ordenamientos jurídico y administrativo, para potenciar la eficacia de las medidas relativas al cumplimiento de la ley destinadas a combatir las conductas ilícitas, incluidos delitos penales, tipificadas como tales de acuerdo con el artículo 14 de este Protocolo;
+e) cooperar y comunicarse, según proceda, con las organizaciones intergubernamentales regionales e internacionales pertinentes por lo que respecta al intercambio seguro3 de la información a que se refiere el presente Protocolo con la finalidad de promover su efectiva aplicación, y
+3El intercambio seguro de información entre dos Partes es resistente a la intercepción y la falsificación. Dicho de otro modo, la información que intercambian dos Partes no puede ser leída ni modificada por otra Parte.
+f) cooperar, con arreglo a los medios y recursos de que dispongan, a fin de obtener los recursos financieros necesarios para aplicar efectivamente el presente Protocolo mediante mecanismos de financiación bilaterales y multilaterales.
+2. En el cumplimiento de las obligaciones que han asumido en virtud del presente Protocolo, las Partes velarán por la máxima transparencia posible respecto de toda relación que puedan mantener con la industria tabacalera.
