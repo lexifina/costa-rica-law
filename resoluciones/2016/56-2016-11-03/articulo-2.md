@@ -1,0 +1,1 @@
+Artículo 2.—Aquellos casos de especial complejidad que no aparezcan en la lista enunciada en el artículo anterior, contarán con revisiones específicas, procediéndose cuando corresponda, a su devolución de forma individual, conforme a lo establecido en el Código de Normas y Procedimientos Tributarios.
