@@ -1,0 +1,4 @@
+10. REGISTRO Y CONTROL DE PROYECTO O PROGRAMAS (Artículo No.46 del Decreto Ejecutivo 34853- MEIC)
+Para cada proyecto la Unidad Técnica de Fodemipyme deberá llevar una bitácora con fecha, acción y observaciones que recopile toda la información necesaria para el control de los proyectos o programas.
+La Unidad Técnica del Fodemipyme deberá llevar un registro de los proyectos recibidos, recomendados, no recomendados, aprobados y rechazados por la Junta Directiva, con los montos de cada uno e informar cada tres meses al MEIC.
+La Unidad Técnica, para efectos de seguimiento y control deberá registrar el proceso desde la recepción hasta el seguimiento en un archivo o sistema, mediante el cual se detallen las acciones realizadas para la atención de las solicitudes. Este registro se llevará en el documento: “Plantilla seguimiento Fondos de Servicios de Desarrollo Empresarial”. Disponible en la intranet.

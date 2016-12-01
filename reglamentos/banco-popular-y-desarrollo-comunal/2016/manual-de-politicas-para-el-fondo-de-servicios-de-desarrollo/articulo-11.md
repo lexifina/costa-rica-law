@@ -1,0 +1,3 @@
+11. SEGUIMIENTO DE PROYECTOS Y PROGRAMAS (Artículo No.46 del Decreto Ejecutivo 34853-MEIC)
+El Fodemipyme deberá realizar visita de seguimiento a los proyectos y presentar un Informe de la visita realizada.
+Para el adecuado control del seguimiento, se deberá utilizar un “Formulario de Seguimiento de SDE”, que contenga fecha de la visita, lugar de la visita, propósito, detalle de los hallazgos durante la supervisión. Este documento debe ser firmado por el Ejecutivo responsable de la visita y quedar incorporado en el expediente en un plazo no mayor a 5 días hábiles contados a partir del día hábil siguiente de realizada la visita.

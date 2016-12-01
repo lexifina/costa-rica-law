@@ -1,0 +1,3 @@
+13. INCUMPLIMIENTO DE LAS CONDICIONES PACTADAS (Artículo No.49 del Decreto Ejecutivo 34853- MEIC)
+En caso de que la Unidad Técnica del Fodemipyme determine que alguna entidad incumplió con los fines o propósitos para los cuales se otorgaron los recursos, la misma estará obligada a reintegrar, dentro de un plazo de un mes, una vez comprobada la falta, el monto transferido hasta ese momento, más los respectivosintereses legales y gastos administrativos.
+Si la entidad no realiza el reintegro en el plazo estipulado, se gestionará el cobro ante las autoridades administrativas o judiciales que correspondan.
