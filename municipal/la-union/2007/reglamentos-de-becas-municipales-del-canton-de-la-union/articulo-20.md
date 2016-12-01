@@ -1,3 +1,2 @@
-CAPÍTULO IV
-Disposiciones finales
-Artículo 20.—Las interpretaciones que se pudieran presentar a este Reglamento, serán resueltas por el Concejo de la Municipalidad.
+Artículo 20.—El dinero no retirado de las becas de cada año lectivo, luego de haber realizado el estudio de la fuente de financiamiento de los recursos de las becas municipales, y si este es positivo, será utilizado en la compra de uniformes y útiles escolares para las escuelas del cantón de La Unión donde exista mayor necesidad, previo estudio por parte de la Comisión de Consejos de distrito y Becas del Concejo Municipal.
+(Así reformado mediante sesión ordinaria N° 49 del 1° de diciembre del 2016)
