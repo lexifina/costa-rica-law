@@ -13,3 +13,4 @@ Reforma del artículo 30 del Reglamento de carrera judicial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-08-16 | la propia norma |
+| 2 | 2016-12-01 | Circular 207 (2016-12-01) |
