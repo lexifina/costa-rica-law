@@ -1,0 +1,10 @@
+Artículo 5. Mecanismos de coordinación interinstitucional
+5.1 Comisión de Calidad del Aire. Créase la Comisión de la Calidad del Aire, coordinada por el Ministerio de Salud e integrada por el Ministerio de Ambiente y Energía (Instituto Meteorológico Nacional y la Dirección de Gestión de la Calidad Ambiental), el Ministerio de Obras Públicas y Transpones, la Caja Costarricense del Seguro Social, la Municipalidad de San José y otra municipalidad nombrada por la Unión Nacional de Gobiernos Locales, un representante de las universidades que realicen monitoreo de la calidad del aire, nombrado por el Consejo Nacional de Rectores (CONARE), un representante de los laboratorios privados que realicen monitoreo de la calidad del aire en inmisión y la Defensoría de los Habitantes de la República. La Comisión de la Calidad del Aire podrá convocar, según necesidad, a otras instituciones o expertos técnicos, con voz pero sin voto, para consultas específicas.
+Son responsabilidades de esta Comisión:
+1. Colaborar en el componente de calidad del aire y red de monitoreo del Plan Nacional de Salud y del Plan Nacional de Calidad del Aire, de conformidad con lineamientos de la Política Nacional de Salud.
+2. Consolidar y fortalecer el funcionamiento permanente de la red con el fin de ampliar su cobertura.
+3. Fomentar el intercambio de experiencias en monitoreo de la calidad del aire a nivel nacional e internacional.
+4. Promover el establecimiento de alianzas y convenios con organismos internacionales, instituciones públicas, privadas y del sector académico para el fortalecimiento sostenido de las actividades de monitoreo de la calidad del aire.
+5. Establecer lineamientos para la comunicación al público sobre calidad del aire.
+6. Promover y facilitar el uso de la información generada por la red para la elaboración de políticas públicas orientadas a reducir a mediano y largo plazo la contaminación atmosférica.
+7. Actualizar cada 5 años el presente reglamento, a la luz de las políticas nacionales en materia de salud pública y de los resultados de las mediciones de calidad del aire.

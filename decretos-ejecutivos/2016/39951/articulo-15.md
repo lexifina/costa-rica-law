@@ -1,0 +1,1 @@
+Artículo 15. Derogatorias. El presente reglamento deroga el Decreto Ejecutivo No. 30221-S del 18 de enero de 2002 "Reglamento sobre Inmisión de Contaminantes Atmosféricos", publicado en La Gaceta No. 57 del 21 de marzo de 2002.
