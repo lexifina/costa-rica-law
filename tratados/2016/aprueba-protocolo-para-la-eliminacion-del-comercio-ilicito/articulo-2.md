@@ -1,0 +1,3 @@
+ARTÍCULO 2.- Se interpreta que en el caso de la República de Costa Rica, para los efectos de la ejecución de lo dispuesto en el artículo 27 del Protocolo, le corresponderá, dentro de sus competencias y facultades, a los Ministerios de Hacienda, Salud Pública, Economía, Industria y Comercio, Gobernación y Policía, y de Seguridad Pública proponer los cambios en la legislación nacional, los reglamentos y la normativa en general que deban introducirse al tenor de la aprobación de este Protocolo. Lo anterior sin detrimento de las facultades constitucionales que corresponden al Poder Legislativo y al Poder Ejecutivo.
+Rige a partir de su publicación.
+Dado en la Presidencia de la república. San José, a los seis días del mes de octubre del año dos mil dieciséis.
