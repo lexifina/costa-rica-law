@@ -19,3 +19,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 39910 del 8 de setiembre de 2016)
 (Modificado por el artículo 2° del decreto ejecutivo N° 39991 del 20 de octubre de 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40021 del 11 de noviembre de 2016)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40036 del 21 de noviembre de 2016)
