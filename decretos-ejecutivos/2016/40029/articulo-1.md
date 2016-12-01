@@ -1,0 +1,19 @@
+N° 40029-MTSS-MOPT
+EL PRESIDENTE DE LA REPÚBLICA,
+EL MINISTRO DE TRABAJO Y SEGURIDAD SOCIAL Y
+EL MINISTRO DE OBRAS PÚBLICAS
+Y TRANSPORTES
+En uso de las facultades que les confieren los incisos 3) y 18) del artículo 140 y artículo 146 de la Constitución Política, el artículo 28 párrafos 1) y 2), incisos a) y b) de la Ley General de la Administración Pública y el artículo 136 del Código de Trabajo; y
+CONSIDERANDO
+l. Que continúa una alta afluencia y circulación vehicular en el Área Metropolitana de San José y sus alrededores, que sigue generando un evidente impacto en el congestionamiento vial, en la salud pública (por el estrés generado por las congestiones), en el ambiente y en la seguridad vial, que demanda por parte del Estado la necesidad de intervenir en la tutela de los derechos e intereses de las personas y el medio ambiente.
+II. Que actualmente hay importantes arterias viales que por motivos de construcción y ampliación no ofrecen un tránsito fluido de vehículos e incluso se prevé en algunas su cierre temporal durante algunas semanas con el fin de concluir adecuadamente sus trabajos.
+III. Que mediante Decreto Ejecutivo N ° 39793-MTSS-MOPT del 12 de julio de 2016, denominado "Implementación de los horarios escalonados y la jornada acumulativa voluntaria en la Administración Central", se dispuso aplicar a los Ministerios y sus órganos adscritos ubicados dentro del Área Metropolitana de San José, tres rangos de horario de ingreso y salida de la jornada laboral de sus funcionarios, así como el establecimiento de una jornada acumulativa de diez horas por día durante cuatro días a la semana, como medida paliativa al problema de circulación vial presente en las principales vías de comunicación.
+IV. Que dicho Decreto Ejecutivo establece que los horarios escalonados y la jornada acumulativa voluntaria serán aplicados hasta el 30 de noviembre del 2016, plazo que podrá ser prorrogado; y que se hará un estudio sobre su impacto en las vías públicas y tiempos de desplazamiento.
+V. Que mediante el estudio comparativo realizado por el Ministerio de Obras Públicas y Transporte, así como el análisis de una encuesta aplicada por el Ministerio de Trabajo y Seguridad Social a cerca de cuatro mil funcionarios públicos de diversas instituciones; se determinó que si bien es cierto no ha habido una disminución importante en el tránsito de vehículos en términos generales, los funcionarios que se acogieron a un rango de horario laboral distinto al ordinario en su mayoría sí han tenido una mejoría en sus tiempos de traslados.
+VI. Que de conformidad con la ley N ° 8220 del 04 de marzo del 2002, este Decreto no modifica trámites, requisitos o procedimientos que el administrado deba cumplir ante la Administración Central.
+Por tanto,
+DECRETAN:
+"SE PRORROGA DE FORMA FACULTATIVA LA IMPLEMENTACIÓN DE LOS HORARIOS
+ESCALONADOS Y LA JORNADA ACUMULATIVA VOLUNTARIA EN LA ADMINISTRACIÓN
+CENTRAL"
+Artículo 1 º- Se prorroga por un plazo de cuatro meses la aplicación facultativa de los horarios escalonados de ingreso y salida de la jornada laboral, así como la jornada acumulativa voluntaria, de los funcionarios de los Ministerios y sus órganos adscritos ubicados dentro del Área Metropolitana de San José, según lo establecido en el Decreto Ejecutivo N ° 39793-MTSS-MOPT del 12 de julio de 2016. Con tal fin, los titulares de los Ministerios y sus órganos adscritos tendrán la facultad de continuar con la aplicación de los tres rangos de horarios de ingreso así como la jornada acumulativa voluntaria, dependiendo de las necesidades institucionales y la respuesta que haya tenido por parte de las personas funcionarias, para lo cual debe de hacerse la respectiva valoración e informar su resultado al Ministerio de Trabajo y Seguridad Social en el plazo de cinco días a partir de la publicación del presente decreto.
