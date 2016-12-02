@@ -1,1 +1,0 @@
-Artículo 23.—Derogaciones. El presente reglamento deroga en su totalidad el Reglamento Interno Para Prevenir, Investigar y Sancionar el Acoso y el Hostigamiento Sexual en la Municipalidad de Curridabat, publicado en La Gaceta Nº 170, del martes 5 de setiembre del 2006.
