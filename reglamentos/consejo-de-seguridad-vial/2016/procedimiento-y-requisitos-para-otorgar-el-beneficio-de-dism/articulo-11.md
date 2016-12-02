@@ -1,0 +1,1 @@
+Artículo 11.—Se instruye a la Asesoría en Tecnología de la Información del Consejo de Seguridad Vial, para que habilite a la Asesoría Legal de este Consejo, para el uso de la Aplicación Tecnológica que permita materializar lo establecido en el artículo anterior.

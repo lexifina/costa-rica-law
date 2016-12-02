@@ -1,0 +1,1 @@
+Artículo 7º—La Asesoría Legal del Consejo de Seguridad Vial, habiendo verificado el cumplimiento de todos los requisitos , según corresponda a cada caso o condición laboral del solicitante, emitirá la Resolución Administrativa correspondiente dentro de un plazo no mayor a los diez (10) días hábiles contados a partir de la presentación de la solicitud.

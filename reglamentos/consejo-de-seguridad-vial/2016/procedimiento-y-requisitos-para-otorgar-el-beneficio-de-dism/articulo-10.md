@@ -1,0 +1,1 @@
+Artículo 10.—Una vez en firme la Resolución Administrativa que determine procedente la disminución del plazo de suspensión a seis (6) meses, la Asesoría Legal del Consejo de Seguridad Vial ingresará lo resuelto en el expediente electrónico del conductor para efectos de actualizar el plazo de la suspensión y la fecha de término de éste.

@@ -1,0 +1,1 @@
+Artículo 9º—La Resolución Administrativa desestimatoria emitida por la Asesoría Legal del Consejo de Seguridad Vial, será recurrible mediante los recursos ordinarios establecidos en el artículo 343 de la Ley General de la Administración Pública, dentro del plazo de tres días hábiles contados a partir de la notificación.

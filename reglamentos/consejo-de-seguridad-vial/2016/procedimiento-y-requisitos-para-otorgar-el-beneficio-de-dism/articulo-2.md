@@ -1,0 +1,1 @@
+Artículo 2º—La solicitud para la disminución del plazo de suspensión referido en el artículo anterior, deberá de contar al momento de su presentación con todos los requisitos dispuestos en la presente directriz.

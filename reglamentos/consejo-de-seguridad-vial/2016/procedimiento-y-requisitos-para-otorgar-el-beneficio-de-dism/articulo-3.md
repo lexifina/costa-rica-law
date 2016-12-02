@@ -1,0 +1,2 @@
+Artículo 3º—En toda solicitud se debe indicar un número de fax o dirección de correo electrónico para recibir notificaciones. No se admitirá como medio para notificación la indicación de una dirección física.
+En caso de no indicación de los mencionados medios admisibles para atender notificaciones o si estos fueren inexactos, los actos administrativos y resoluciones que se dicten se tendrán por notificadas con el solo transcurso de veinticuatro horas luego de emitidas.
