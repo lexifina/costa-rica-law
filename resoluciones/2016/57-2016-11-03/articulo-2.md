@@ -1,0 +1,1 @@
+Artículo 2º—El funcionario tributario que reciba la gestión, debe verificar la identidad de la persona física o jurídica solicitante, revisar su cédula o documento de identidad y dejar constancia de dicha comprobación en el expediente administrativo.
