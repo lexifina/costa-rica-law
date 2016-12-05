@@ -1,0 +1,1 @@
+Artículo 6°— Competencia del MAG. Corresponderá al MAG, cuando se trate de sistemas de uso agropecuario, por medio de la Secretaría Técnica de Exoneraciones de Insumos Agropecuarios, recomendar el otorgamiento de exenciones, así como llevar a cabo el control conjunto sobre el uso y destino de los bienes exonerados, en forma coordinada con la DGH.
