@@ -1,0 +1,18 @@
+Artículo 3°— Definiciones y abreviaturas:
+a) Actividades Teletrabajables: Conjunto de tareas que pueden ser realizadas por medios telemáticos desde el domicilio o centro de trabajo destinado para tal fin y que no requieren la presencia física del trabajador en las instalaciones del Ministerio.
+b) Asistencia Técnica para el (la) Teletrabajador (a): Es el recurso al que puede acudir el (la) trabajador (a) cuando los medios tecnológicos o las telecomunicaciones, no satisfagan los requerimientos necesarios para realizar el teletrabajo.
+c) Comisión Institucional Teletrabajo (CIT): Es el equipo interdisciplinario que coordina y administra la modalidad de Teletrabajo en el MOPT.
+d) Domicilio Personal o lugar habilitado para teletrabajar: La casa de habitación del (la) teletrabajador (a) o cualquier otro lugar autorizado y habilitado adecuadamente desde donde se van a realizar las labores teletrabajables encomendadas.
+e) Horario o Jornada flexible: Es aquel horario donde no existe una hora fija de inicio ni término de la jornada y que le permite al trabajador cumplir con el contrato laboral ya sea por día o por semana para cumplir un objetivo puntual.
+f) Jornada de Teletrabajo: Es el tiempo dedicado para realizar las actividades teletrabajables dentro de la jornada de trabajo ordinaria.
+g) Máximo jerarca: El (la) Ministro (a) de Obras Públicas y Transportes.
+h) Medios Telemáticos: De la palabra "telemática" que proviene de la fusión de los términos "telecomunicación" e "informática". La telemática cubre un campo científico y tecnológico de una considerable amplitud, englobando el estudio, diseño, gestión y aplicación de las redes y servicios de comunicaciones, para el transporte, ahnacenamiento y procesado de cualquier tipo de información (datos, voz, vídeo, etc.), incluyendo el análisis y diseño de tecnologías y sistemas de conmutación.
+i) Tecnologías de la Información y Comunicaciones (TIC): Es un conjunto de servicios, redes, software y dispositivos que tienen como fin el mejoramiento de la calidad de vida de las personas en un entorno, y que se integran a un sistema de información interconectado y complementario.
+j) Teletrabajador (a): Funcionario (a) público del MOPT, en el desempeño de su puesto de trabajo alterna su presencia en el centro de trabajo con alguna de las modalidades de carácter no presencial.
+k) Teletrabajo: Es toda modalidad de prestación de servicios de carácter no presencial, en virtud de la cual un (a) funcionario (a) público, puede desarrollar parte de su jornada laboral mediante el uso de medios telemáticos desde su propio domicilio, u otro lugar habilitado al efecto, siempre que las necesidades y naturaleza del servicio lo permitan, y en el marco de la política de conciliación de la vida personal, familiar y laboral de los funcionarios (as) públicos (as).
+l) Tele presencia: Participación virtual de las personas funcionarias de la Institución mediante el uso de las tecnologías de información.
+m) Servicios no presenciales: Aquellos servicios públicos, en este caso, que para su correcta y oportuna ejecución no es necesario que el (la) funcionario (a) que los realiza se encuentre dentro de la entidad o institución donde brinda sus servicios.
+n) Video comunicaciones: Conjunto de tecnologías de información que permiten la comunicación mediante video de alta calidad, audio y datos entre dos o más puntos geográficamente distantes en tiempo real; soportadas en plataformas de las comunicaciones unificadas integrando salas de videoconferencia y sistemas portátiles.
+o) DGIRH: Dirección de Gestión Institucional de Recursos Humanos.
+p) DI: Dirección de Informática.
+q) MOPT: Ministerio de Obras Públicas y Transportes.

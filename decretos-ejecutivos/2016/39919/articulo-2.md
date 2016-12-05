@@ -1,0 +1,1 @@
+Artículo 2°—Ámbito de Aplicación. Este reglamento es aplicable a los (las) trabajadores (as) del Ministerio de Obras Públicas y Transportes y de órganos Adscritos a este, que reúnan los requisitos que se indicarán más adelante, quienes realizarán las actividades que la Institución determine como teletrabajables y donde existan las condiciones tecnológicas requeridas.
