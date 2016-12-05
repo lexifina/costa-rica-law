@@ -1,0 +1,14 @@
+Artículo 5: Mecánica del sorteo de la promoción Premios Especiales “Sorteo Extraordinario de Navidad No. 4420”
+Al finalizar cada evento promocional que se realice y entre todas las personas que hayan depositado su cupón en los buzones, se realizarán dos sorteos; un sorteo entre las personas que compraron lotería del Sorteo Extraordinario de Navidad No. 4420 para elegir 3 ganadores y un sorteo entre las personas que compraron Lotería Nacional y Lotería Popular y boletos de Lotería Instantánea para elegir 3 ganadores. Se elegirán los 3 ganadores para cada sorteo, en el caso que existan al menos 50 personas que completen el cupón, caso contrario se procederá a elegir una cantidad menor ganadores por sorteo de la siguiente manera: de existir de 1 a 25 cupones en un sorteo, se elegirá un ganador, de existir de 26 a 49 cupones en un sorteo, se elegirán dos ganadores, de existir 50 cupones o más en un sorteo, se elegirán los tres ganadores.
+La Junta puede efectuar cambios en la cantidad de ganadores que se elijan en cada sorteo, en caso que por necesidad Institucional se requiera, lo cual se comunicará previo a cada sorteo. El sorteo será efectuado por los funcionarios de la Junta encargados del evento, luego que se cuente con los nombres de los ganadores, se procederá a indicar el nombre del favorecido, en caso que la persona no se encuentre presente se realizará otro sorteo y así sucesivamente hasta contar con un favorecido.
+Como se indicó anteriormente, cada persona que compre durante cada evento promocional 5 fracciones de Lotería Nacional de los sorteos que se tengan a la venta durante el evento y un boleto de Lotería Instantánea con un valor de ¢1.000 o 5 fracciones de Lotería Popular de los sorteos que se tengan a la venta durante el evento y un boleto de Lotería Instantánea con un valor de ¢1.000 participarán en el sorteo de 20 fracciones de Lotería del Sorteo Extraordinario de Navidad No. 4420.
+Cada persona que compre durante cada evento promocional 5 fracciones de Lotería del Sorteo Extraordinario de Navidad No. 4420, participará en el sorteo para poder girar una ruleta que contendrá los premios que consisten en fracciones del Sorteo Extraordinario de Navidad No. 4420, la cual podrá girar las personas que hayan salido favorecidas en el sorteo, la distribución de los premios será la siguiente:
+Premios que
+contendrá la Ruleta
+de fracciones
+5 fracciones
+10 fracciones
+15 fracciones
+20 fracciones
+40 fracciones
+Posterior al sorteo, se levantará un acta donde se hará constar los datos de los ganadores y el premio correspondiente a cada ganador, la cual será firmada por cada ganador y por los funcionarios de la Junta encargados del sorteo, además se tomará fotografía del documento de identidad de cada ganador, únicamente para ser utilizado por la Junta para efectos de control interno.

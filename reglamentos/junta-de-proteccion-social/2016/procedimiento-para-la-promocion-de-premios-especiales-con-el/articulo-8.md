@@ -1,0 +1,2 @@
+Artículo 8: Vigencia
+Esta promoción tiene vigencia durante los eventos promocionales que la Junta efectuará, cuyas fechas, lugares y horas estará comunicando oportunamente y la lotería participante corresponde al Sorteo Extraordinario de Navidad No. 4420, los sorteos ordinarios y extraordinarios de Lotería Nacional y Lotería Popular y boletos de Lotería Instantánea que se estarán vendiendo durante dichos eventos.
