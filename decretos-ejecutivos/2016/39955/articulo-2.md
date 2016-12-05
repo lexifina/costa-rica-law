@@ -1,0 +1,1 @@
+Artículo 2.- Los otros numerales del Decreto Ejecutivo No. 39110-C, Reglamento de Creación del Programa Puntos de Cultura del Ministerio de Cultura y Juventud, publicado en el Alcance Digital No. 60 al Diario Oficial La Gaceta No. 150 del 4 de agosto de 2015,se mantienen incólumes.
