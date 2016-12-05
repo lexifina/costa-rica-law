@@ -1,4 +1,4 @@
-CAPÍTULO IV
+Capítulo IV
 Custodia de Caja Chica y prohibiciones de su uso
-Artículo 15.—De la caución, seguridad y custodia. Las Cajas Chicas se abrirán, en consideración a la justificación de necesidades demostradas y, en atención a que la dependencia y funcionarios responsables a quienes se les asigne la administración de los fondos, cuenten con las condiciones de seguridad y custodia suficientes y necesarias, para el debido resguardo de los recursos.
+Articulo 15.- De la caución, seguridad y custodia. Las Cajas Chicas se abrirán, en consideración a la justificación de necesidades demostradas y, en atención a que la dependencia y funcionarios responsables a quienes se les asigne la administración de los fondos, cuenten con las condiciones de seguridad y custodia suficientes y necesarias, para el debido resguardo de los recursos.
 El personal de la Unidad de Administración Financiera que participe en el manejo y administración del Fondo, incluyendo el responsable de las Cajas Chicas Auxiliares, deberán rendir garantía a favor de la Hacienda Pública, por el desempeño de sus funciones, lo que se deberá realizar de conformidad con lo establecido en el Reglamento sobre la rendición de cauciones a favor de la Contraloría General de la República, cuando sus funcionarios recauden, custodien o administren fondos y valores públicos.

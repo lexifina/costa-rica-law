@@ -1,6 +1,6 @@
-CAPÍTULO VI
+Capítulo VI
 Arqueos y verificaciones
-Artículo 19.—Arqueos. Para efectos de las verificaciones de fondos o arqueos, se procederá de la siguiente manera:
+Artículo 19.- Arqueos. Para efectos de las verificaciones de fondos o arqueos, se procederá de la siguiente manera:
 a) En el momento que se juzgue necesario, oportuno o conveniente, a juicio de la jefatura del Departamento de Administración de Recursos o de la Dirección Administrativa Financiera, o bien, a criterio de la Auditoría Interna, se realizará la verificación o arqueo de los recursos y documentos justificantes, disponibles en la Caja Chica, dejando asentado en acta levantada al efecto, tal acción.
-b) En casos de faltantes, el responsable del fondo de caja chica, deberá reintegrar de inmediato y de sus propios recursos, el importe de que se trate; en caso de un acto delictivo o reincidencias fuera de lo normal, a juicio de la jefatura del Departamento de Administración de Recursos y con el aval de la Dirección Administrativa Financiera, se orientará el asunto al régimen administrativo sancionatorio o bien, a la vía civil o judicial recomendada por la Asesoría Legal del INTA, concediendo, en todo caso y de previo, el debido proceso pertinente.
+b) En casos de faltantes, el responsable del fondo de caja chica, deberá reintegrar de inmediato y de sus propios recursos, el importe de que se trate; en caso de un acto delictivo o reincidencias fuera de lo normal, a juicio •de la jefatura del Departamento de Administración de Recursos y con el aval de la Dirección Administrativa Financiera, se orientará el asunto al régimen administrativo sancionatorio o bien, a la vía civil o judicial recomendada por la Asesoría Legal del INTA, concediendo, en todo caso y de previo, el debido proceso pertinente.
 c) En situaciones de recursos sobrantes que sean determinados en la verificación correspondiente, tal importe debe depositarse en el Fondo General del Gobierno.

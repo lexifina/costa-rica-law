@@ -1,8 +1,9 @@
-Artículo 16.—Prohibiciones. Se establecen las siguientes prohibiciones para el uso de la caja chica:
+Artículo 16.- Prohibiciones. Se establecen las siguientes prohibiciones para el uso de la caja chica:
 a) Existencias en bodega. Por ningún motivo se tramitarán las adquisiciones o compras de bienes, cuando en la bodega se disponga de existencias de los artículos solicitados.
 b) Compras de uso común. No se tramitarán por medio del fondo de caja chica las compras que hayan sido definidas por la Coordinación Administrativa como de uso común, las que deberán ser adquiridas por medio de los procedimientos convencionales de contratación, de conformidad con las disposiciones establecidas en la Ley de Contratación Administrativa y su Reglamento.
-c) No podrán hacer uso del fondo de caja chica las personas que presten sus servicios al INTA de acuerdo con la modalidad de servicios profesionales y por contrato, ni tampoco lo podrán hacer aquellas personas que no presten servicio bajo el régimen laboral y, en consecuencia, no sean funcionarias o funcionarios del Instituto, a excepción de las cajas auxiliares las cuales se regirán por las disposiciones emitidas por la Dirección Administrativa Financiera.
+c) No podrán hacer uso del fondo de caja chica las personas que presten sus servicios al INTA de acuerdo con la modalidad de servicios profesionales y por contrato, ni tampoco lo podrán hacer aquellas personas que no presten servicio bajo el régimen laboral y, en consecuencia, no sean funcionarias o funcionarios del Instituto.
 d) El fondo de caja chica no podrá ser utilizado para el cambio de cheques personales, ni para hacer préstamos a funcionarios o funcionarias, ni podrá utilizarse para otros fines distintos para el que fue creado.
 e) La persona responsable del fondo de caja chica no podrá guardar documentos, efectivo o cheques de propiedad particular, en los lugares destinados para el resguardo del fondo de caja chica.
 f) Los fondos de caja chica deberán custodiarse en forma separada de los ingresos que sean recaudados por medio de la Tesorería y de cualesquiera otros fondos.
-g) Ningún funcionario o funcionaria del Instituto, podrá mantener en su poder fondos de caja chica por más de tres días, a excepción de las personas responsables del fondo de caja chica y de las cajas auxiliares.
+g) Ningún funcionario o funcionaria del Instituto, podrá mantener en su poder
+h) fondos de caja chica por más de tres días, a excepción de las personas responsables del fondo de caja chica y de las cajas auxiliares.
