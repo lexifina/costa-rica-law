@@ -1,1 +1,1 @@
-Artículo 43.—La jefatura debe planificar y ejecutar el plan de formación de los teletrabajadores, el cual puede ser presencial o a distancia.
+Artículo 43.—No se podrán realizar reuniones con clientela o personal fuera de las instalaciones del Banco, es decir, si durante los días de teletrabajo la personal teletrabajadora requiere reunirse con clientes o personal deberá coordinar lo necesario para que dichas reuniones se realicen en las instalaciones del Conglomerado o en su oficina habitual.

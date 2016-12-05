@@ -1,1 +1,1 @@
-Artículo 34.—El teletrabajador debe firmar un addendum al contrato de trabajo, donde se especifican las condiciones mínimas del teletrabajo y acatar las disposiciones establecidas en el presente Reglamento.
+Artículo 34.—El personal teletrabajador deberá aprobar la capacitación que el Conglomerado Banco Nacional le provea, para mantenerse actualizado en la utilización de las herramientas tecnológicas, de autogestión y otras, requeridas para la ejecución de sus funciones.

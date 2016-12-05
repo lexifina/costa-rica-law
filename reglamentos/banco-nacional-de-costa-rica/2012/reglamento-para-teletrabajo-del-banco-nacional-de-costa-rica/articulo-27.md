@@ -1,1 +1,1 @@
-Artículo 27.—El teletrabajador deberá conocer, cumplir y acatar en todos sus extremos las Leyes, Reglamentos, Manuales, Normativa, Procedimientos e Instructivos establecidos por el Banco para la realización de las funciones mediante el teletrabajo.
+Artículo 27.—El Banco no cancelará monto alguno por tarifas eléctricas, de telefonía fija o celular, de conexión a internet u otras.

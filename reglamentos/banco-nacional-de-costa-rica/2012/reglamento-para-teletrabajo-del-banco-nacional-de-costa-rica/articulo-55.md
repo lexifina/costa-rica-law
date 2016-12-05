@@ -1,0 +1,1 @@
+Artículo 55.—El presente Reglamento para el teletrabajo fue aprobado por la Junta Directiva General en la sesión 12.126, artículo 4° del 05 de diciembre del 2016 y rige a partir de su publicación en el Diario Oficial La Gaceta.

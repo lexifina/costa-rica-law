@@ -1,1 +1,1 @@
-Artículo 3º—El ámbito de aplicación de este reglamento es para los trabajadores del Banco Nacional de Costa Rica que realizan actividades tele trabajables, previamente determinadas y aprobadas.
+Artículo 3º—El presente reglamento aplica a todo el personal que brinde servicios al Conglomerado Banco Nacional de Costa Rica, sea en el Banco o sus Subsidiarias, y que desempeña puestos que la Comisión Institucional de Teletrabajo ha definido como tele trabajables.

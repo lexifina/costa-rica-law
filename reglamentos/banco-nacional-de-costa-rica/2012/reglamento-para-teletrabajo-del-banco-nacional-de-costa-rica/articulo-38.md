@@ -1,3 +1,1 @@
-CAPÍTULO VIII
-Responsabilidades de las jefaturas
-Artículo 38.—Cada jefatura que tenga teletrabajadores a su cargo deberá planificar y coordinar las actividades y metas asignadas a éstos. Además, deberá supervisar dichas actividades mediante informes con plazos establecidos, indicadores y el uso de herramientas, debidamente acordado con el teletrabajador.
+Artículo 38.—Es deber de la persona teletrabajadora renovar al vencimiento del período o cuando cambia de puesto la solicitud de teletrabajo, de acuerdo al procedimiento que establezca el Conglomerado Banco Nacional, de lo contrario se suspende la modalidad de teletrabajo.

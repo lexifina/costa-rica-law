@@ -1,1 +1,1 @@
-Artículo 25.—El Área de Tecnología debe llevar un registro de los colaboradores del Banco que cuentan con acceso a las redes virtuales privadas del Banco y realizan teletrabajo previamente aprobado.
+Artículo 25.—La Dirección de Operaciones será la responsable de administrar los telecentros y garantizar que cuentan con las condiciones necesarias para teletrabajar.

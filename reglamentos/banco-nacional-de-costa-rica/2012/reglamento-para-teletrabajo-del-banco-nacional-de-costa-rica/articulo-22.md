@@ -1,3 +1,3 @@
-CAPÍTULO IV
-Equipamiento y pago de tarifas mínimas
-Artículo 22.—El Banco proveerá a los teletrabajadores de los recursos de comunicación necesarios para el desempeño de sus funciones, con excepción del servicio de comunicación por Internet fijo, el cual deberá ser aprovisionado por el teletrabajador, y con una velocidad de conexión que tendrá como mínimo la que establezca la institución.
+CAPÍTULO V
+Telecentros
+Artículo 22.—El Banco podrá, según su interés y posibilidades, establecer telecentros en centros urbanos en todo el país o en zonas específicas. Los telecentros son un espacio físico acondicionado con las tecnologías digitales e infraestructura que le permite a los teletrabajadores realizar sus actividades y facilita el desarrollo de ambientes colaborativos que promueven el conocimiento para innovar esquemas laborales de alto desempeño.

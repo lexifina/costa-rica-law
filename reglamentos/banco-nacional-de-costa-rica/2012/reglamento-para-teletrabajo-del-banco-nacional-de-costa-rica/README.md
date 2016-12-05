@@ -14,3 +14,4 @@ Reglamento para Teletrabajo del Banco Nacional de Costa Rica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-04-16 | la propia norma |
+| 2 | 2016-12-05 | Reglamento 12126 (2016-12-05) |

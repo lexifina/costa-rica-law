@@ -1,0 +1,1 @@
+Artículo 54.—Concluido por cualquier causa el esquema de teletrabajo, los (las) funcionarios (as) regresarán a las condiciones laborales similares a las que tenía antes de acogerse a esta modalidad de trabajo; salvo cambios originados a nivel institucional.

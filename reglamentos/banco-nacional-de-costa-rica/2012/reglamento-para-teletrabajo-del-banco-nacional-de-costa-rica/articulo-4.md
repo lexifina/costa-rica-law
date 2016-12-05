@@ -1,15 +1,13 @@
-Artículo 4º—Definición de términos y abreviaturas importantes para este reglamento:
-Teletrabajo[1] Utilización de las redes de telecomunicación para trabajar desde un lugar fuera de la empresa usando sus sistemas informáticos.
-(1) Definición del diccionario de la Real Academia Española Referecia tomada de Internet, el día 22 de febrero del 2012, en la dirección electrónica http//www.rae.es/rae.html.
-Teletrabajador: es el trabajador del Banco Nacional que realiza sus funciones, o parte de ellas, por medio del teletrabajo.
-Teletrabajo “online”: Es una modalidad de teletrabajo, donde el teletrabajador está permanentemente conectado a su Oficina y sujeto a cualquier forma de control permanente, su jornada de trabajo debe ser la misma que cualquier trabajo con horario ordinario (diurno, nocturno o mixto), según sea en cada caso.
-Teletrabajo “offline”: Es una modalidad de teletrabajo, donde el teletrabajador presta sus servicios conectado a los sistemas de la institución de forma intermitente, su jornada tendrá los mismos límites que tienen los trabajadores del artículo 143 del Código de Trabajo, es decir, hasta doce horas diarias, con una hora y media de descanso.
-Actividad tele trabajable: conjunto de tareas que la organización determine que pueden ser realizadas, utilizando medios telemáticos.
-Addendum al contrato de trabajo: es una ampliación al contrato de trabajo original, donde se acuerdan las condiciones del teletrabajo.
+Artículo 4º—Definición de términos y abreviaturas importantes para este reglamento.
+Actividad teletrabajable: Conjunto de tareas que la organización determina que pueden ser realizadas utilizando medios telemáticos, fuera de las instalaciones de los centros habituales de trabajo.
+Addendum al contrato de trabajo: Documento mediante el cual se adiciona el Contrato de Trabajo, y que contendrá las condiciones que regirán las prestaciones de servicios bajo la figura del Teletrabajo.
+Conglomerado Banco Nacional de Costa Rica: Se entiende como Conglomerado las unidades de negocio que se integran bajo la marca Banco Nacional, a saber: El Banco y las subsidiarias o sociedades anónimas actuales y que se lleguen a crear a futuro.
+Comisión Institucional de Teletrabajo: Equipo de trabajo designado por la Gerencia General al cual le corresponde la implementación del programa de teletrabajo en el Conglomerado y se constituye en el órgano interlocutor oficial con el Equipo de Coordinación Técnica designado por el Ministerio de Trabajo y Seguridad Social.. (Decreto 39225-MP-MTSS-MICITT).
+Horario: Es la hora de inicio y de finalización del trabajo.
+Jornada Laboral: Es el tiempo efectivo en el que el colaborador se encuentra sujeto a las órdenes que le gire el Conglomerado Banco Nacional de Costa Rica.
+VPN: Red privada virtual (por siglas en inglés de Virtual Private Network). Es una tecnología de red que permite una extensión de la red local sobre una red pública o no controlada, como por ejemplo Internet.
 Reglamento para el teletrabajo: Conjunto de lineamientos de carácter administrativo que regulan el desempeño de las funciones utilizando medios telemáticos.
-Jornada de teletrabajo: Tiempo en que el teletrabajador debe realizar las funciones asignadas. La jornada para los teletrabajadores es igual a la jornada y los horarios de trabajo ordinarias del Banco Nacional. Sin embargo, si las condiciones del puesto lo requiere esta puede extenderse hasta cuatro horas más, como tiempo extraordinario, previa autorización de la jefatura.
-Horario flexible: Es aquel horario donde no está definida una hora fija de inicio y término de la jornada laboral.
-Oficina virtual: Nombre con el cual se está implementando el esquema de teletrabajo en el Banco Nacional, al ser la herramienta que permite el acceso externo seguro a diferentes sistemas centrales del Banco: SFB, SIACC y SIEBEL, entre otros.
+Telecentro: Centros de trabajo brindados por el Conglomerado Banco Nacional de Costa Rica en zonas estratégicas, cuyo fin es evitar el desplazamiento de los teletrabajadores a su centro habitual de trabajo. Es un espacio físico que estará acondicionado con las tecnologías digitales e infraestructura que le permite a los teletrabajadores realizar sus actividades y facilita el desarrollo de ambientes colaborativos que promueven el conocimiento para innovar esquemas laborales de alto desempeño.
+Teletrabajo: Es la prestación de servicios de carácter no presencial fuera de las instalaciones del patrono, en virtud de la cual un trabajador puede desarrollar su jornada laboral desde su propio domicilio, centro que se destine para tal fin, o en trabajos de campo, mediante el uso de medios telemáticos. (Decreto 39225-MP-MTSS-MICITT).
+Teletrabajador(a): Funcionario(a) del Conglomerado Banco Nacional que realiza sus funciones o parte de ellas bajo la modalidad del teletrabajo.
 TIC: Tecnologías de Información y Comunicación.
-VPN: Red privada virtual (por siglas en inglés de Virtual Private Network). Es una tecnología de red que permite una extensión de la red local sobre una red pública o no controlada, como por ejemplo Internet[2]
-(2)CISCI SYSTEM, Cisco Certified Network Associate. Módulo 1:Version 4

@@ -1,3 +1,1 @@
-CAPÍTULO VII
-Responsabilidades y derechos de los teletrabajadores
-Artículo 33.—El teletrabajador tiene derecho a todos los beneficios de seguridad social y de capacitación que la institución proporcione a sus funcionarios.
+Artículo 33.—El personal teletrabajador debe brindar información verídica y oportuna en todos los procesos de validación, evaluación del desempeño y medición a los que deba someterse.

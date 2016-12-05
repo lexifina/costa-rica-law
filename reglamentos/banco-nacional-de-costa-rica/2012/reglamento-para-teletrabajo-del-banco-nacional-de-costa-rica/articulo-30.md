@@ -1,1 +1,3 @@
-Artículo 30.—El Área de Recursos Humanos debe actualizar y administrar la información de los colaboradores que laboran bajo la modalidad de teletrabajo, mediante el expediente administrativo de cada Colaborador.
+CAPÍTULO IX
+Responsabilidades y derechos del personal teletrabajador
+Artículo 30.—El personal teletrabajador tiene derecho a todos los beneficios de seguridad social y de capacitación que la institución proporcione a sus funcionarios (as).

@@ -1,1 +1,1 @@
-Artículo 41.—Cuando el rendimiento de los teletrabajadores no cumpla con lo programado, se debe realizar un análisis de las causas y junto con las evaluaciones anteriores, remitirlo al superior jerárquico para resolver lo correspondiente.
+Artículo 41.—En todo momento la persona teletrabajadora deberá cumplir con las normas de comportamiento definidas en el Código de Conducta. Cuando el teletrabajo se realice en telecentros propios o autorizados por el Conglomerado se deberá cumplir con los lineamientos de presentación personal definidos para la jornada ordinaria.

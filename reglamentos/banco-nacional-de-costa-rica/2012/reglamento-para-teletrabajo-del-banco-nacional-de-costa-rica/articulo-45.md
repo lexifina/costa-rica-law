@@ -1,3 +1,1 @@
-CAPÍTULO IX
-Disposiciones finales
-Artículo 45.—Los funcionarios incorporados al teletrabajo, deben mantener las condiciones que justificaron su ingreso a éste, así como cumplir con todas las obligaciones y responsabilidades adquiridas. En caso de que surja alguna imposibilidad de mantener dichas condiciones, debe plantearlo oportunamente ante la jefatura inmediata.
+Artículo 45.—La jefatura que tenga teletrabajadores (as) a su cargo, deberá planificar y coordinar las actividades y metas asignadas a éstos. Además, deberá supervisar dichas actividades mediante los plazos establecidos, indicadores y el uso de herramientas, debidamente acordado con el personal teletrabajador, en cumplimiento con el procedimiento que establezca el Conglomerado Banco Nacional.

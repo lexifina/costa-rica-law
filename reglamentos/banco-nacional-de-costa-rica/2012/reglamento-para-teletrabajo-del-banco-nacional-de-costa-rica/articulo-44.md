@@ -1,1 +1,3 @@
-Artículo 44.—Canalizar con las diferentes dependencias todos los aspectos de índole laboral u otros que considere necesarios, para garantizar el cumplimiento de los objetivos del teletrabajo.
+CAPÍTULO X
+Responsabilidades de las jefaturas
+Artículo 44.—La jefatura deberá cumplir con el procedimiento que el Conglomerado Banco Nacional establezca para el otorgamiento del teletrabajo al personal a su cargo.

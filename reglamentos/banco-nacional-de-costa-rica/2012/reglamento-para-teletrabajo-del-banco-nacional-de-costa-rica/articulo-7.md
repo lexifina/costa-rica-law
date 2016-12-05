@@ -1,1 +1,1 @@
-Artículo 7º—Realizar teletrabajo no acarrea una situación jurídica consolidada, pudiendo el Banco variar el tipo de prestación laboral por su sola voluntad.
+Artículo 7º—El teletrabajo modificará única y exclusivamente la organización y la forma en que se efectúa el trabajo, sin afectar las condiciones de la relación de servicio del colaborador, quien mantiene los mismos derechos, beneficios y obligaciones de aquellos servidores que desarrollen sus funciones en las instalaciones del Conglomerado Banco Nacional de Costa Rica.”

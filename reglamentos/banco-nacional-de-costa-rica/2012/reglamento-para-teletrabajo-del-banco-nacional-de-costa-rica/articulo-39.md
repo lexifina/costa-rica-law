@@ -1,1 +1,1 @@
-Artículo 39.—Facilitar la aclaración de dudas y solución de conflictos o contratiempos que se puedan presentar en el desarrollo de las actividades bajo la modalidad de teletrabajo.
+Artículo 39.—Todos los casos en que el personal que teletrabaja cambia a un puesto no categorizado como teletrabajable, de forma inmediata deja sin efecto el contrato o addendum de teletrabajo, y a partir de ese momento sus nuevas condiciones laborales serán las del nuevo puesto.

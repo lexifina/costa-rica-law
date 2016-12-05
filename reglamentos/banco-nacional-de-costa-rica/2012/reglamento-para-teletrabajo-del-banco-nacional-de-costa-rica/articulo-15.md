@@ -1,1 +1,1 @@
-Artículo 15.—Los teletrabajadores no están obligados a presentarse en sus respectivas oficinas para registrar su marca de inicio y finalización de la jornada laboral.
+Artículo 15.—Para optar por el teletrabajo se deberá completar la Solicitud de Teletrabajo ante la Jefatura inmediata quien tramitará la solicitud según el procedimiento de registro, control y seguimiento que al respecto haya definido la Comisión de Teletrabajo.

@@ -1,3 +1,1 @@
-CAPÍTULO V
-Responsabilidades del Área de Tecnología e Información
-Artículo 24.—El Área de Tecnología debe mantener actualizada la normativa relacionada con el uso de los servicios de VPN, Seguridad Informática y demás lineamientos relacionados con el teletrabajo.
+Artículo 24.—El telecentro operará en las condiciones de horario de la oficina donde se instale por lo que las personas teletrabajadoras interesadas en dicha opción deberán acogerse a dicho horario de trabajo.

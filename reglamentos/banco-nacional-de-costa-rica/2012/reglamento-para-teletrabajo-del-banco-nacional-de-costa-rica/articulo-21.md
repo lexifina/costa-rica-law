@@ -1,1 +1,1 @@
-Artículo 21.—Todas las jefaturas y funcionarios relacionados directa o indirectamente con el teletrabajo, deben colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos que persigue y la normativa asociada.
+Artículo 21.—El personal teletrabajador estará protegido por la póliza de riesgos de trabajo, durante el horario establecido en el momento de la aprobación de la solicitud de teletrabajo y en los días que se autorice de acuerdo al procedimiento establecido, así como en el lugar indicado en el mismo documento como su lugar para teletrabajar.

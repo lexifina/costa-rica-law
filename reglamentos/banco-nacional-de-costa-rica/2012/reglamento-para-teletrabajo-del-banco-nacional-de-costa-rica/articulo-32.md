@@ -1,1 +1,1 @@
-Artículo 32.—La Dirección de Recursos Humanos deberá analizar cada solicitud para determinar si un puesto se puede desempeñar mediante el teletrabajo. En caso que proceda, debe presentarse la solicitud al Comité de Clasificación y Valoración de Puestos para la aprobación correspondiente.
+Artículo 32.—La persona teletrabajadora deberá conocer, cumplir y acatar en todos sus extremos las Leyes, Reglamentos, Manuales, Normativa, Procedimientos e Instructivos establecidos por el Conglomerado Banco Nacional para la realización de las funciones mediante el teletrabajo.

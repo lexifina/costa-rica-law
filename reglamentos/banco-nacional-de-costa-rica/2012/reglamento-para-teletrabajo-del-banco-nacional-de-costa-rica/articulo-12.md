@@ -1,3 +1,1 @@
-CAPÍTULO III
-Aspectos administrativos
-Artículo 12.—Todas las personas que realicen teletrabajo están en la obligación de firmar un addendum al contrato de trabajo y garantizar al Banco que cuentan con las condiciones de salud y ergonómicas adecuadas en su casa para llevar a cabo sus tareas
+Artículo 12.—El teletrabajo se aplicará en aquellas funciones y actividades que se pueden desarrollar parcial o totalmente de modo no presencial, de acuerdo con una razonable relación tiempo/ resultado y sin afectar las necesidades de coordinación interna o de servicio a los clientes, y en aquellos puestos donde el Conglomerado Banco Nacional establezca un control particularizado de la gestión laboral de cada persona teletrabajadora.
