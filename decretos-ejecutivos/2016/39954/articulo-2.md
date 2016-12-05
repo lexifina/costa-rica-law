@@ -1,0 +1,1 @@
+Artículo 2.- Los otros numerales del Decreto Ejecutivo No. 38601-C, Reglamento del Fondo de Becas Taller para el desarrollo de proyectos culturales, publicado en el Diario Oficial La Gaceta No. 180 del 19 de setiembre de 2014, se mantienen incólumes.
