@@ -1,0 +1,1 @@
+Artículo 30: Del Acta: El acta de la sesión será confeccionada por la persona que ocupe la Secretaría de la Junta Directiva y deberá firmarla conjuntamente con quien presidió la sesión. En caso de ausencia se procederá de la forma descrita en el artículo 24 del presente Reglamento.

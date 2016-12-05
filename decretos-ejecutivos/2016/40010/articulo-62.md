@@ -1,0 +1,1 @@
+Artículo 62: De las Consultas: Las consultas que se hagan al Colegio provenientes de los Poderes Públicos, Instituciones Autónomas y Semi-autónomas, Municipalidades y particulares, sean éstas personas físicas o jurídicas, serán evacuadas por el Comité Consultivo.

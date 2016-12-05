@@ -1,0 +1,5 @@
+Artículo 8: El Colegio estará integrado por:
+Las personas profesionales con el título en Licenciatura, Bachillerato y/o Diplomado en Criminología, obtenido en Universidades y Colegios Parauniversitarios Nacionales acreditados y reconocidos por el Consejo Nacional de Educación Superior (CONESUP).
+a) Las personas profesionales con el título en Licenciatura, Bachillerato y/o Diplomado en Criminología de Universidades extranjeras que cumplan con el debido proceso determinado por el Consejo Nacional de Rectores (CONARE) y por el Ministerio de Relaciones Exteriores y Culto.
+b) Las personales profesionales con el título en Licenciatura, Bachillerato y/o Diplomado en Criminología de Universidades nacionales y extranjeras que se gradúen en el futuro y realicen el Proceso de incorporación en el Colegio.
+c) Los miembros de honor avalados por la Junta Directiva, nacionales y profesionales extranjeros de visita en el país, que se hayan distinguido significativamente por sus aportes personales a la Ciencia Criminológica.

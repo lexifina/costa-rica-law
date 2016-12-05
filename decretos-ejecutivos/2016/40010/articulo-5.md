@@ -1,0 +1,1 @@
+Artículo 5: Miembros del Colegio: Los miembros del Colegio serán aquellas personas que se encuentren debidamente inscritas como activos y temporales y se clasificarán según su grado académico en tres categorías a saber: diplomado, bachillerato y licenciatura.
