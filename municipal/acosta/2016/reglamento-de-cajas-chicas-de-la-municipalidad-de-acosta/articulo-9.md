@@ -1,0 +1,1 @@
+Artículo 9°: Los egresos que se realicen por Caja Chica se tramitan con la debida autorización por parte del Director (a) de la Unidad Técnica de Gestión Vial Municipal, La Vicealcaldesa y el Alcalde .

@@ -1,0 +1,1 @@
+Artículo 4°: El funcionario encargado (Encargado del Departamento de Tesorería) de la custodia del Fondo de Caja Chica, será responsable por su correcto manejo, de conformidad con lo establecido en el presente Reglamento, sin excepción no se permitirá el cambio de cheques personales.
