@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE SAN MATEO
+El Alcalde de la Municipalidad de San Mateo Jairo Guzmán Soto se adhiere a la publicación del documento “Manual de Valores Base Unitarios por Tipología Constructiva”, publicado por el Órgano de Normalización Técnica del Ministerio de Hacienda en el Alcance Nº 19 a La Gaceta Nº 57 del lunes 23 de marzo del año 2015; así como todos los adendums que el órgano de Normalización Técnica emita con el objeto de corregir y/o aclarar los contenidos de dicho Manual para efectos en lo indicado en la Ley Nº 7509 y sus reformas. Rige a partir de su publicación
