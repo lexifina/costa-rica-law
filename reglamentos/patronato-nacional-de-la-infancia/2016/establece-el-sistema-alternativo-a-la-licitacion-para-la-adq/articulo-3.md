@@ -1,0 +1,2 @@
+Artículo 3º: Ámbito de aplicación.
+El Patronato Nacional de la Infancia aplicará el presente reglamento en la adquisición de ropa y accesorios; ropa interior, pijamas y medias (temporada navideña y escolar); calzado (temporada navideña y escolar); regalo navideño; uniformes escolares y colegiales, útiles, bultos, mochilas y salveques, para el uso de los niños, niñas y adolescentes ubicados en los albergues y aldeas del Patronato Nacional de la Infancia.

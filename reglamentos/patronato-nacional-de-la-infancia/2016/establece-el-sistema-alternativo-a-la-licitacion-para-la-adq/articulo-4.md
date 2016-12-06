@@ -1,0 +1,2 @@
+Artículo 4º: Disponibilidad presupuestaria.
+Para las contrataciones que se realicen bajo esta modalidad, es necesario contar con recurso presupuestarios suficientes para enfrentar las erogaciones respectivas, para ello el Director Regional, el Coordinador del Departamento Atención Inmediata y la jefatura de la(s) Aldea(s) deberán realizar las gestiones necesarias a fin de dar cumplimiento a este requisito.

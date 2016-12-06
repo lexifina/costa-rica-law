@@ -1,0 +1,22 @@
+PATRONATO NACIONAL DE LA INFANCIA
+Sistema alternativo a la licitación para la adquisición de ropa y accesorios; ropa interior, pijamas y medias (temporada navideña y escolar); calzado (temporada navideña y escolar); regalo navideño; uniformes escolares y colegiales, útiles, bultos, mochilas y salveques, para el uso de los niños, niñas y adolescentes ubicados en los albergues y aldeas del Patronato Nacional de la Infancia.
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º: Definiciones
+PANI: Patronato Nacional de la Infancia.
+Gerencias: según el artículo 21 de la Ley Orgánica No.7648 el PANI cuenta con la Gerencia Técnica y la Gerencia de Administración.
+Direcciones Regionales: El PANI cuenta con 10 Direcciones Regionales a saber: Alajuela, Cartago, Heredia, Caribe, Brunca, Chorotega, Huetar Norte, Pacifico Central, San José Central y San José Sur, las cuales se encuentran a cargo de un Director Regional.
+Albergues: son las alternativas de protección institucional en las cuales se ubica a las personas menores de edad que han tenido que ser separadas de sus familias. Estos albergues se encuentran adscritos a las Direcciones Regionales según jurisdicción.
+Aldeas: El PANI cuenta con tres aldeas, dos de ellas ubicadas en la Región Caribe y a cargo de la Dirección Regional Caribe, la otra se ubica en Rio Oro de Santa Ana conocida como Aldea Arthur Gough y está a cargo de la Dirección Regional San José Sur, con la particularidad de que esta cuenta con una Coordinación, un Administrador y Equipo Técnico. Una aldea es un conjunto de albergues.
+Departamento de Atención Inmediata (DAI): instancia adscrita a la Gerencia Técnica, la cual brinda atención a situaciones de emergencia en la Gran Área Metropolitana, a su vez tiene adscritos dos albergues para la ubicación de personas menores de edad.
+Equipo de compras: Para cada una de las temporadas (navideña y escolar), se establece un equipo de compras en cada Dirección Regional, en el DAI y en la Aldea Arthur Gough, el cual estará conformado por al menos 3 funcionarios: un profesional del equipo técnico de la Dirección Regional o de la Aldea, el Administrador y una Encargada de Cuido Directo del albergue o aldea.
+Equipo Técnico de la Dirección Regional: Todas las Direcciones Regionales del PANI cuentan con un equipo técnico conformado por al menos un profesional en Psicología, otro en Trabajo Social y uno en Derecho, al igual que la Aldea Arthur Gough y el DAI.
+Ropa: blusas, camisas, enaguas, pantalones, suéter, chalecos, short, vestidos, bermudas,
+pantalonetas, vestidos de baño, licras, ropa deportiva, o similares entre otros.
+Accesorios: prensas, colas, diademas, maquillaje, bolsos, perfumería, bisutería, fajas entre otros.
+Calzado: sandalias, pantuflas, zapato deportivo, zapato de vestir, zapato montaña (tipo burros), botas, zapato escolar y colegial, entre otros.
+Ropa interior: bóxer, calzoncillos, formadores, pijamas, brassier o sostén, camisetas, blúmer, medias, calcetas, pantimedias, mallas, entre otros.
+Regalo navideño para los niños y niñas en edades de 0 a 6 años: consistirá en un juguete como mínimo de acuerdo al monto que se asigne, dicho juguete será adecuado a la edad y madurez de la PME.
+En el caso de los niños y niñas en edades de 7 a 12 años y adolescentes de 13 a 17 años, el regalo podrá consistir como mínimo en un juguete, libro, un artículo electrónico (audífonos, reproductor de música, juegos electrónicos), instrumentos musicales, bicicletas. En el caso de este grupo etareo, el monto destinado para la adquisición del regalo, el adolescente también podrá utilizarlo para complementar la compra de ropa, accesorios o calzado.
+Uniformes escolares y colegiales: son los tradicionales (azul y blanco en escolar así como azul y celeste en colegial) y los especiales de acuerdo a la institución educativa donde asista la persona menor de edad, que en la mayoría de los casos estos los suplen los mismos centros educativos.
+Implementos escolares y colegiales: Útiles, bultos, mochilas y salveque, son todos los implementos necesarios para el desarrollo lectivo de las personas menores de edad, por ejemplo: cuadernos, lápiz, lapiceros, libros, diccionarios, mapas mundi, témperas, papel china, libretas, fichas, lápices de color, lápiz de grafito, marcadores, borradores, cartucheras, reglas, juegos de geometría, papel construcción, goma, tijeras, folder, portafolios, pinturas de agua, plástico, pinceles, entre otros.

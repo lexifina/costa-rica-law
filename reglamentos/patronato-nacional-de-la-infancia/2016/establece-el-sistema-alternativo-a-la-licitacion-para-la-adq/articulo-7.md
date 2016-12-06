@@ -1,0 +1,35 @@
+Artículo 7º: Sistema de selección de proveedores, compra y pago.
+La selección y compra de los artículos se realizará de acuerdo con el siguiente procedimiento:
+1. La escogencia o selección de los contratistas que suplirán los bienes la realizarán en conjunto la Gerencia Técnica y la Gerencia de Administración.
+2. Se prepararán los grupos etarios, de acuerdo a la población que se ubican en los albergues institucionales, dicha información la aportará el Departamento de Acreditación, siguiendo la siguiente línea:
+a- Niños y niñas de 0 a 6 años
+b- Niños y niñas de 7 a 12 años
+c- Adolescentes de 13 a 17 años
+3. Determinar las líneas de productos a adquirir, siguiendo la siguiente estructura:
+a) Ropa, accesorios, ropa interior para la época navideña y uniformes escolares y colegiales para las personas menores de edad.
+b) Calzado para época navideña, así como escolares y colegiales para las personas menores de edad.
+c) Regalos navideños para personas menores de edad.
+d) Implementos escolares y colegiales para las personas menores de edad.
+4. Se procederá a realizar una publicación en el Diario Oficial La Gaceta, a fin de que todos los potenciales oferentes en las distintas líneas de producto (ropa y accesorios, ropa interior, pijamas y medias, calzado, juguetes, artículos electrónicos, libros, uniformes escolares y colegiales, útiles, bultos, mochilas y salveques), retiren los términos de referencia de la contratación (ver anexo No.4), a fin de que remitan sus propuestas indicando los porcentajes de descuentos que ofrecen, su permanencia en el mercado en la venta de las diferentes líneas de producto, la identidad corporativa y la distribución (sucursales) con que cuentan para atender a las personas menores de edad.
+5. Una vez que se obtengan las propuestas de los oferentes que muestren interés en el proceso de compra y la Administración aplique el sistema de evaluación, se adjudicará a los tres oferentes con mayor puntuación. Contra el acto de adjudicación, el que declare infructuoso o desierto el concurso se podrá interponer recurso de revocatoria ante el Departamento Suministros, Bienes y Servicios, en el términos de 2 días hábiles posteriores a la notificación del dictado del acto final, dicha Dependencia deberá resolver dentro de los tres días hábiles siguientes. El PANI procederá a elaborar el respectivo contrato para que posteriormente la Asesoría Jurídica otorgue la aprobación interna.
+6. Las Gerencias comunicarán a la Direcciones Regionales, Aldeas y al Departamento Atención Integral cuales son los establecimientos seleccionados y les suministrará una copia del contrato a fin de que de que procedan a realizar las compras para las personas menores de edad.
+7. Una vez realizada la escogencia de los artículos por las personas menores de edad, el Administrador de la Dirección Regional, Departamento Atención Inmediata o la jefatura de la(s) Aldea(s) solicitará al proveedor la emisión de la factura a nombre del PANI, con los artículos seleccionados, la cual deberá estar exenta de impuestos y debidamente autorizada por la Dirección General de Tributación del Ministerio de Hacienda. Esta acción se realizará en el mismo acto de la compra indicada en el punto anterior.
+8. Previo a realizar el pago, el equipo de compra, verificará que la mercadería cumpla con las especificaciones establecidas en la factura comercial, la cual deberá indicar claramente al menos cantidad, descripción y precio.
+9. El Administrador de la Dirección Regional, del Departamento Atención Inmediata o la jefatura de la(s) Aldea(s) procederá a cancelar la factura mediante cheque o cualquier otro medio electrónico debidamente autorizado utilizando el Fondo de Trabajo, el mismo día que se realice la compra.
+10. En el caso de la mercadería para la temporada navideña, la Dirección Regional, Departamento Atención Inmediata o la jefatura de la(s) Aldea(s) custodiará los artículos, los cuales serán entregados días antes del 24 de diciembre. Solamente en caso de egreso o traslado de las personas menores de edad, antes de la fecha establecida para el envío de la mercadería al albergue, se les entregará los artículos respectivos.
+11. El Administrador de la Dirección Regional, del Departamento Atención Inmediata o la jefatura de la(s) Aldea(s) facilitará al profesional del Equipo Técnico de la Dirección regional encargado del albergue en un plazo de 1 día hábil posterior a la compra, una copia de todas las facturas para que en conjunto con la encargada de cuido directo verifiquen la mercadería al momento de hacer la entrega a las personas menores de edad.
+12. Una vez entregados los artículos a las personas menores de edad, el equipo de compra realizará el “Acta de recepción de compra mediante el sistema alternativo a la licitación para la compra de ropa y accesorios; ropa interior, pijamas y medias (temporada navideña y escolar); calzado (temporada navideña y escolar); regalo navideño; uniformes escolares y colegiales, útiles, bultos, mochilas y salveques, para el uso de los niños, niñas y adolescentes ubicados en los albergues y aldeas del Patronato Nacional de la Infancia” (ver anexo No.1) con el cual se hace constar que efectivamente las personas menores de edad del albergue recibieron los artículos adquiridos.
+13. En dicha acta debe constar que se recibió a satisfacción en términos de calidad y costo la mercadería adquirida y deberá contener la siguiente información:
+ Número de acta
+ Nombre de albergue
+ Descripción de los artículos adquiridos (zapatos, ropa, juguetes, útiles escolares, etc)
+ Fecha de la factura
+ Número de factura
+ Nombre del Proveedor
+ Número de cheque o transacción con el que se pagó la compra
+ Monto total de la compra
+ Sub partida presupuestaria
+ Nombre y edad de las personas menores de edad beneficiadas
+ Firma de los funcionarios que conformaron el equipo de compra
+14. El equipo de compra además deberá presentar con el acta antes mencionada, el formulario denominado: “Verificación de la satisfacción de las personas menores de edad por la compra mediante el sistema alternativo a la licitación para la compra de ropa y accesorios; ropa interior, pijamas y medias (temporada navideña y escolar); calzado (temporada navideña y escolar); regalo navideño; uniformes escolares y colegiales, útiles, bultos, mochilas y salveques, para el uso de los niños, niñas y adolescentes ubicados en los albergues y aldeas del Patronato Nacional de la Infancia (ver anexo No.2), mismo que será aplicado por ese equipo a los niños niñas y adolescentes en capacidad de responderlo, sea de forma verbal o escrita. En el caso de las personas menores de edad que contesten de forma verbal, el equipo de compra completará el instrumento con base en lo expresado por los niños niñas y adolescentes.
+15. Las facturas originales serán custodiadas por el Administrador de la Dirección Regional, del Departamento Atención Inmediata o la jefatura de la(s) Aldea(s). Para su respectiva liquidación deben tener al reverso las firmas del Profesional del Equipo Técnico de la Dirección Regional encargado del albergue, la encargada de cuido directo y el ejecutor presupuestario.

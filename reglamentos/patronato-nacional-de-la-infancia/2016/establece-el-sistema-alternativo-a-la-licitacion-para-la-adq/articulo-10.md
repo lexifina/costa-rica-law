@@ -1,0 +1,2 @@
+Artículo 10º: Vestimenta y calzado de uso diario y juguetes para albergues o Aldeas de uso común.
+La Dirección Regional, Departamento Atención Inmediata y la(s) Aldea(s) podrán realizar la adquisición de compras masivas extraordinarias de vestimenta utilizando el presente reglamento, de conformidad con lo indicado en el artículo 2. Asimismo, realizará la compra de juguetes de uso común para los albergues, siempre que no se trate de activos. Aplican los anexos No.1 y No.2.
