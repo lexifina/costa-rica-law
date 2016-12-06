@@ -1,0 +1,6 @@
+CIRCULAR N° 211-2016
+Asunto: Obligación de uso, actualización y verificación de la información que se incluye en el Sistema de Obligados Alimentarios y Penal (SOAP).
+A TODOS LOS DESPACHOS JUDICIALES QUE EMITEN IMPEDIMENTOS DE SALIDA DEL PAIS EN MATERIA DE PENSIONES ALIMENTARIAS Y PENAL
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión N° 101- 16, celebrada el 3 de noviembre del año 2016 artículo XXXIII, acordó comunicarles sobre la obligación del uso, actualización y verificación, en forma exhaustiva, de cada uno de los datos registrados en el SOAP. Para ello, el servidor o servidora encargada de realizar el registro verificará y se asegurará de que los datos ingresados correspondan a la información que consta en el expediente judicial en cada caso. Por su parte, la persona encargada de aprobar el impedimento, igualmente debe asegurar el uso, actualización y verificación de los datos ingresados al sistema. La falta de uso del SOAP, actualización o errores por falta de verificación de lo consignado en el sistema, podrá acarrear responsabilidad disciplinaria, civil y penal para la persona que incumpla lo dispuesto por la presente circular.
+San José, 6 de diciembre del 2016.
