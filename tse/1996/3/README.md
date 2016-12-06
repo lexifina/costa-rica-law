@@ -36,3 +36,4 @@ Reglamento Autónomo Servicios del Tribunal Supremo de Elecciones
 | 21 | 2015-10-13 | Decreto TSE 22 (2015-10-13) |
 | 22 | 2016-07-14 | Decreto TSE 7 (2016-07-14) |
 | 23 | 2016-09-06 | Decreto TSE 11 (2016-09-06) |
+| 24 | 2016-12-06 | Decreto TSE 15 (2016-12-06) |

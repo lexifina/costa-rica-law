@@ -7,3 +7,5 @@ c) Cuidar de la disciplina de las personas que laboran en la unidad administrati
 d) Cuidar de que todos los empleados estén al día en sus labores; y
 e) Velar por la puntual y oportuna asistencia de las personas que laboran en la dependencia a su cargo. Deberá comunicar cualquier irregularidad al Departamento de Recursos Humanos.
 (Así reformado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 14-2012 del 31 de agosto del 2012)
+f) Elaborar las calificaciones de servicio (anuales, parciales y de período de prueba) y remitirlas a la dependencia correspondiente en el plazo que les sea requerido. Asimismo, tramitar las solicitudes de permisos, licencias, justificaciones y vacaciones de sus colaboradores en los términos y plazos que establece el presente reglamento.
+(Así adicionado el inciso anterior por el artículo 1° del decreto del Tribunal Supremo de Elecciones, N° 15 del 6 de diciembre de 2016)
