@@ -1,0 +1,1 @@
+Artículo 34: La Administración podrá efectuar verificaciones periódicas y al azar de los vehículos que ingresen, con el propósito de determinar si el servicio brindado está siendo utilizado según lo establecido, caso contrario, se catalogaría como uso indebido del servicio y se aplicará la sanción correspondiente.

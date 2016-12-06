@@ -1,0 +1,1 @@
+Artículo 53: Toda persona que adquiera esta modalidad deberá ajustarse al horario de funcionamiento del mismo, según sea establecido por la Administración. Dicho horario podrá ser variado a conveniencia de la Administración según se requiera.

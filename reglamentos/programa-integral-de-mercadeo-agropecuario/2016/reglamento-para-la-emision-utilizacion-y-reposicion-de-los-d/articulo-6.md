@@ -1,0 +1,1 @@
+Artículo 6: En caso de que un usuario con tiquete no pueda salir en horas hábiles, tendrá que dirigirse a la caseta de seguridad, donde los oficiales deberán de coordinar su salida con los funcionarios de Acceso a Casetas autorizados, quienes abordaran el caso y estimaran el monto a cancelar por el usuario, incluyendo un costo administrativo de seis horas.

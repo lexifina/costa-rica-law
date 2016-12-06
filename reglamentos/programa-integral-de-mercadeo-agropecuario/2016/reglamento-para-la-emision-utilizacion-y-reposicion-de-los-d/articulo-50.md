@@ -1,0 +1,1 @@
+Artículo 50: Para la activación del dispositivo en esta modalidad, el usuario deberá cancelar por adelantado lo correspondiente al canon de derecho de uso autorizado por el Consejo Directivo, según lo establecido en el modelo tarifario vigente.

@@ -1,0 +1,1 @@
+Artículo 3: Toda vez que ingresa un usuario comprador al CENADA en su vehículo, deberá tomar comprobante de ingreso a efectos de pagar un canon por horas según el tipo de vehículo, de acuerdo a lo establecido por la Consejo Directivo, y basados en el modelo tarifario vigente, esto por concepto de acceso y permanencia a las instalaciones de la Central Mayorista.

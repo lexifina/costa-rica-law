@@ -1,0 +1,1 @@
+Artículo 26: El pago deberá realizarse a más tardar el quinto día hábil del mes al cobro al que corresponda el derecho, caso contrario se inhabilita el dispositivo. En caso de que se compruebe que el pago se realizó dentro del periodo permitido se le habilitara el sistema y si durante este periodo incurrió en algún pago por permanencia se le reintegrará.

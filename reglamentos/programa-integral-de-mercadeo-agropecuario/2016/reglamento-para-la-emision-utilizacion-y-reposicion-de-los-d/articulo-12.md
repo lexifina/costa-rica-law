@@ -1,0 +1,1 @@
+Artículo 12: El monto del canon por el servicio será establecido mediante acuerdo del Consejo Directivo de PIMA, según lo establecido en el modelo tarifario vigente, el cual no tendrá fraccionamiento.

@@ -1,0 +1,1 @@
+Artículo 16: En el caso de exclusión de vehículos, el concesionario debe llenar el formulario correspondiente y presentarlo a la oficina de la Dirección Administración CENADA para formalizar el trámite y hacer la devolución del dispositivo.

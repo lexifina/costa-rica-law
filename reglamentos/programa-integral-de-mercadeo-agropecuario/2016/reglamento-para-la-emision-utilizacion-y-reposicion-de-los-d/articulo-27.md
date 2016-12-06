@@ -1,0 +1,2 @@
+Artículo 27: Si la cancelación se realiza después de los primeros cinco días hábiles del mes al cobro, deberá presentarse con el comprobante de pago de la caja del Proceso de Tesorería (no del depósito Bancario) a la oficina del Sub Proceso de Acceso a Casetas en horas hábiles, para la reactivación del servicio.
+De omitirse este paso, cada vez que el concesionario ingrese al CENADA deberá tomar el tiquete y pagar el canon respectivo, sin reintegro correspondiente después de reactivar el servicio mensual.

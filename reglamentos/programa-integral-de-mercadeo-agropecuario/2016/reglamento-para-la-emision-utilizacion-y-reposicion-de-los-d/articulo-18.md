@@ -1,0 +1,1 @@
+Artículo 18: El dispositivo será de uso exclusivo para el ingreso y salida del vehículo registrado. En caso de que el servicio sea utilizado en un vehículo no autorizado, la Dirección aplicará como sanción la suspensión del servicio según corresponda.

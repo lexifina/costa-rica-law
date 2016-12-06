@@ -1,0 +1,2 @@
+Artículo 30: El servicio al que se refiere esta sección está ligado al pago de los servicios concesionados, por lo que la falta de pago de al menos uno de estos últimos facultará a la Administración la inhabilitación del servicio.
+El servicio podrá reactivarse mediante la presentación del comprobante de pago del total de los servicios concesionados en la oficina del Sub Proceso de Acceso a Casetas, en horas hábiles. Mientras el servicio esté inhabilitado, el concesionario deberá tomar tiquete y pagar el canon respectivo.

@@ -1,0 +1,1 @@
+Artículo 60: En ningún momento el uso de este servicio otorga, por sí solo, el derecho de uso de un espacio para la comercialización, ni como espacio de permanencia de forma ininterrumpida dentro de la Central.

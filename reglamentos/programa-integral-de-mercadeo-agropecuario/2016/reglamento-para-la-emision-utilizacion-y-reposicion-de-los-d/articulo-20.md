@@ -1,0 +1,2 @@
+Artículo 20: Si el sistema no le permite la salida en horas hábiles, el concesionario deberá retirar el vehículo de la línea de salida para evitar obstaculizaciones al tránsito y dirigirse al Sub Proceso de Acceso a Casetas.
+Si el evento ocurre en horas no hábiles, debe dirigirse a la caseta de seguridad para que reporte lo sucedido, y le habiliten la salida. Posteriormente el concesionario deberá presentarse al siguiente día hábil, en la oficina del Sub Proceso de Acceso a Casetas para restablecer el sistema.

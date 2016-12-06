@@ -1,0 +1,3 @@
+Artículo 23: Si durante la salida no guardó la distancia y su vehículo pasó simultáneamente con el vehículo delantero, o no permitió que la barrera de acceso retornara a su posición horizontal, el sistema no le permitirá en lo sucesivo entrar a la Central Mayorista. En este caso, deberá dirigirse al Sub Proceso de Acceso a Casetas si el hecho ocurre en horas hábiles.
+Si el evento ocurre en horas no hábiles, debe dirigirse a la caseta de seguridad para reportar lo sucedido. Para la reactivación del sistema, deberá dirigirse al Sub Proceso de Acceso a Casetas en horas hábiles.
+En caso de que la persona sea reincidente, deberá cancelar un cargo equivalente a seis horas de permanencia, según el canon aplicable al tipo de vehículo inscrito.

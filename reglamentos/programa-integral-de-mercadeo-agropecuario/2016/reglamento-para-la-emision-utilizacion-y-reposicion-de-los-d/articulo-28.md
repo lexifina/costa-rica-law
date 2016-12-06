@@ -1,0 +1,1 @@
+Artículo 28: No se permitirá el fraccionamiento del derecho conferido por el servicio, en el entendido de que si este se paga en cualquier fecha dentro de ese mes, el costo no variará aun cuando el período de beneficio sea menor.

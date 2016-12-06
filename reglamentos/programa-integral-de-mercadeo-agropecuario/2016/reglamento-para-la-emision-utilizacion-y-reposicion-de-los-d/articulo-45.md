@@ -1,0 +1,1 @@
+Artículo 45: Si el vehículo daña la barrera, por irrespeto de las normas que regulan el ingreso o salida del CENADA, el usuario deberá cubrir un cargo por reposición equivalente, al costo de adquisición de la barrera para el PIMA.

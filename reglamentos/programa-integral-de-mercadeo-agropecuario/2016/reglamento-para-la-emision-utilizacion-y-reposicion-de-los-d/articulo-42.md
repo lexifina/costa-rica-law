@@ -1,0 +1,1 @@
+Artículo 42: El dispositivo Pre pago permite la salida de la Central Mayorista en cualquier momento, siempre y cuando cuente con los fondos suficientes para cubrir la estadía, de lo contrario se procederá según lo establece el Artículo 39 del presente documento.
