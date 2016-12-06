@@ -4,6 +4,8 @@ a) Definir el objetivo del comité, el cual deberá ser evaluado durante su trab
 b) Definir la temporalidad del comité, en cuanto a su plazo de funcionamiento.
 c) Definir la frecuencia en que se deberán entregar los informes.
 d) Aprobar los planes de trabajo que estos comités desarrollen.
-e) Asignar las funciones y responsabilidades, mismas que deberán ser únicas para cada comité a fin de evitar duplicidad.
+e) Asignar las funciones y responsabilidades, según las necesidades y prioridades ministeriales.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40235 del 6 de diciembre del 2016)
 f) La designación de los integrantes de los comités deberá ser registrada en actas de la Comisión.
-g) Los comités deberán estar conformados por representantes de al menos dos Direcciones.
+g) Los comités deberán estar conformados por representantes de al menos dos Direcciones y un representante de la Secretaria Técnica en calidad de invitado permanente.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40235 del 6 de diciembre del 2016)

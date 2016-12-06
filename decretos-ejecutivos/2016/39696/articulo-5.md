@@ -3,7 +3,8 @@ a) Emitir lineamientos generales, directrices e instrucciones que regulen las ac
 b) Seleccionar los temas de interés común, de acuerdo a los informes proporcionados por los distintos comités.
 c) Crear los comités de trabajo de carácter temporal que se requieran.
 d) Aprobar los protocolos de funcionamiento de la Comisión y de los comités a su cargo.
-e) Aprobar los planes de acciones conjuntas que presenten los comités de trabajo.
+e) Aprobar los planes de acciones conjuntas que presenten los Comités de trabajo, a más tardar el 10 de diciembre de cada año.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40235 del 6 de diciembre del 2016)
 f) Dar seguimiento general sobre el avance de las distintas acciones conjuntas y tomar las acciones correctivas alternativas en caso de contratiempos en el avance de las acciones programadas.
 g) Resolver las diferencias de criterio que puedan surgir en la implementación de los planes de acción conjunta.
 h) Aprobar el plan de la divulgación de resultados

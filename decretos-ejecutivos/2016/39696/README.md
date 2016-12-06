@@ -14,3 +14,4 @@ Reglamento de Creación de la Comisión de Coordinación del Área de Ingresos d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-03 | la propia norma |
+| 2 | 2016-12-06 | Decreto Ejecutivo 40235 (2016-12-06) |

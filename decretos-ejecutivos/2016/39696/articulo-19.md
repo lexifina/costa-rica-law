@@ -3,3 +3,5 @@ a) Identificar, analizar y valorar los riesgos hacendarios, tributarios y aduane
 b) Elaborar estudios de los grupos de contribuyentes o sectores, así como de situaciones particulares que puedan guiar a la Comisión en la selección de las áreas sobre las que se realizarán acciones conjuntas.
 c) Presentar ante la Comisión, a más tardar el 31 de octubre de cada año, el resultado de los estudios para la selección de temas y sectores de riesgo en los que se desarrollarán las acciones conjuntas.
 d) Recomendar a la Comisión la incorporación de modelos de análisis, herramientas tecnológicas, procedimientos e instrumentos que faciliten el trabajo de inteligencia de cada una de las distintas direcciones.
+e) Determinar las tácticas y acciones conjuntas que las distintas Direcciones deberán ejecutar para el logro de los objetivos aprobados por la Comisión y remitir los casos respectivos al Comité de Control para la ejecución de las acciones a realizar.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 40235 del 6 de diciembre del 2016)

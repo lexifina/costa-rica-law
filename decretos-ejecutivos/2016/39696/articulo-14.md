@@ -1,10 +1,11 @@
 Artículo 14. Sobre las funciones de la Secretaría Técnica. La Comisión contará con una Secretaría Técnica cuyas funciones son:
 a) Elaborar, revisar y actualizar los instrumentos (protocolos, procedimientos, manuales formularios que son de uso común para todos los comités.
 b) Dar seguimiento a la labor desarrollada por los distintos comités de trabajo de acuerdo con los planes que estos propongan.
-c) Emitir informes a la Comisión, sobre el funcionamiento y cumplimiento de las metas establecidas de los comités, señalando las inconsistencias encontradas y las posibles acciones de mejora.
+c) Emitir informes a la Comisión, sobre el funcionamiento y cumplimiento de las metas establecidas a los Comités, señalando las inconsistencias encontradas y las posibles acciones de mejora, mediante presentaciones de avances del Plan en las reuniones de la Comisión y la emisión del Informe de Cierre Anual.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40235 del 6 de diciembre del 2016)
 d) Solicitar a los comités de trabajo los resultados de los planes.
-e) Informar a los miembros de la Comisión sobre incumplimientos en los acuerdos y
-planes aprobados.
+e) Informar a los miembros de la Comisión, sobre incumplimientos en los acuerdos y planes aprobados, mediante correo electrónico institucional, en el momento de su incidencia.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40235 del 6 de diciembre del 2016)
 f) Evaluar por medio de estudios de impacto, los efectos directos e inducidos, tanto en recaudación como en comportamiento que las acciones conjuntas producen en los ampos de contribuyentes o sectores económicos y proponer las modificaciones que estime convenientes.
 g) Elaborar un plan anual de comunicación que incluya las estrategias, tácticas, metas e indicadores que permitan medir la efectividad del mismo.
 h) Coordinar con el Despacho del Ministro y la Oficina de Prensa del Ministerio, el desarrollo del plan de comunicación tanto a lo interno como en la divulgación externa de los resultados obtenidos en ]a implementación de las acciones conjuntas.
@@ -13,3 +14,5 @@ j) Coordinar con otras dependencias del Ministerio que no están representadas e
 k) Llevar d control sobre el avance y cumplimiento de los acuerdos de la Comisión.
 I) Levantar y custodiar las actas de las reuniones de la Comisión
 m) Custodiar los expedientes que le remitan los comités.
+n) Participar en las reuniones de los diferentes comités que se conformen.
+(Así adicionado el inciso anterior por el artículo 3° del decreto ejecutivo N° 40235 del 6 de diciembre del 2016)
