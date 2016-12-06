@@ -6,4 +6,5 @@ d. El Banco podrá, transcurridos veinte días hábiles a partir de la notificac
 e. Toda documentación que de conformidad con este Reglamento acompañe la solicitud de crédito debe tener no más de un mes de expedida al momento de su recepción, excepto cuando se trate de Estados Financieros, estudios de factibilidad, de suelos, entre otros.
 f. En proyectos de inversión nuevos o con menos de un año de operación, se solicitará como mínimo un aporte real al valor total del proyecto no menor al 25%, entendiéndose como tal: terrenos, equipos, efectivo u otros por parte de la persona solicitante, pudiendo el Banco solicitar aportes mayores si así lo considera necesario de acuerdo con el riesgo y la evaluación general del crédito.
 g. Toda la clientela debe mantener actualizada la política “Conozca a su Cliente”.
-* Este artículo fue modificado por la Junta Directiva Nacional, en sesión 5205 del 28 de agosto de 2014. Publicado en el Alcance Digital N. 60 de la Gaceta No. 207 del 28 de octubre de 2014.
+* Este artículo fue modificado por la Junta Directiva Nacional, en sesión 5205 del 28 de agosto de 2014.
+Publicado en el Alcance Digital N. 60 de la Gaceta No. 207 del 28 de octubre de 2014.
