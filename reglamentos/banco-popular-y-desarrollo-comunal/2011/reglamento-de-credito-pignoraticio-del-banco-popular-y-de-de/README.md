@@ -16,3 +16,4 @@ Reglamento de Crédito Pignoraticio del Banco Popular y de Desarrollo Comunal
 | 1 | 2011-07-06 | la propia norma |
 | 2 | 2012-04-24 | Reglamento 4958 (2012-04-24) |
 | 3 | 2015-06-25 | Reglamento 5288 (2015-06-25) |
+| 4 | 2016-12-06 | Reglamento 5423 (2016-12-06) |
