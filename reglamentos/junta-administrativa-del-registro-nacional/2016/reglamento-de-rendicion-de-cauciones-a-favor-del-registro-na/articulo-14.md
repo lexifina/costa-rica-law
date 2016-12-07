@@ -1,0 +1,8 @@
+CAPÍTULO CUARTO
+De la administración, custodia y ejecución de las cauciones
+Artículo 14°— Competencia. Le corresponderá al Departamento de Gestión Institucional de Recursos Humanos, la administración general de las cauciones que se rindan a favor del Registro Nacional y para ello deberá:
+a) Recibir, custodiar y verificar la efectividad de los documentos que comprueban la presentación de garantías por parte de los caucionantes, estableciendo para ello los controles y medidas de seguridad pertinentes.
+b) Comunicar de manera general en el mes de enero de cada año, el monto actualizado que cada caucionante debe cubrir con la póliza al momento de su renovación.
+c) Informar al Superior Jerárquico de la Institución ante cualquier incumplimiento observado en el proceso de rendición de cauciones.
+d) Mantener un registro actualizado de los caucionantes. En el caso de los Órganos Fiscalizadores, la Proveeduría deberá de informar al Departamento de Gestión Institucional de Recursos Humanos cuando se inicie y finalice una contratación administrativa, así como el monto por el cual se contrato, a efectos que la Dirección correspondiente en la cual se esté ejecutando esta, informe en un plazo de 3 días hábiles previos a la iniciación de la contratación, sobre los funcionarios que han sido designados como órgano fiscalizador y por tanto, estén obligados a rendir caución.
+e) El Departamento de Gestión Institucional de Recursos Humanos, prevendrá a quien no haya presentado el comprobante de pago conforme el Artículo 12 del presente reglamento para que proceda con ese trámite, otorgándosele un plazo de 24 horas, de lo contrario se procederá conforme lo señala el Artículo 17 de este mismo cuerpo normativo.
