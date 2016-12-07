@@ -1,0 +1,2 @@
+ARTÍCULO 5.- Norma interpretativa
+Con el propósito de facilitar la comprensión del presente Convenio, el Gobierno de Costa Rica entiende que en relación con el artículo IV, inciso 2, debe entenderse que la persona condenada o su representante deberán haber solicitado por escrito, en todos los casos, el traslado en aplicación del Convenio, documento que deberá acompañar la solicitud interpuesta al estado receptor.

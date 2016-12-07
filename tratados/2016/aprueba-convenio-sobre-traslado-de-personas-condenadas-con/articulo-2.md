@@ -1,0 +1,2 @@
+ARTÍCULO 2.- Norma interpretativa
+Con el objetivo de facilitar la comprensión del presente Convenio, el Gobierno de Costa Rica entiende que en el artículo I, donde se indica “dictada por sentencia consentida o ejecutoriada, es decir, no sujeta a posterior impugnación”, debe interpretarse que se trata de sentencia definitiva por haber adquirido firmeza, al no ser susceptible interponer recurso legal ordinario alguno en su contra en el estado trasladante.

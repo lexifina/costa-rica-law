@@ -1,0 +1,2 @@
+ARTÍCULO 6.- Norma interpretativa
+Con el propósito de facilitar la comprensión del presente Convenio, el Gobierno de Costa Rica entiende que en relación con el artículo V, inciso 1, debe tenerse presente que la intervención de la Embajada de Costa Rica, en la República del Perú, se limitará al traslado de la petición planteada por el sancionado o su representante legal, lo que se ajustaría a la competencia funcional del citado despacho.
