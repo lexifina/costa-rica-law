@@ -1,0 +1,1 @@
+Artículo 9. Los avalúos de los terrenos se ajustarán conforme a lo establecido en el artículo 50 del Reglamento a la Ley sobre la Zona Marítimo Terrestre, siguiendo la metodología para tal fin, y los porcentajes utilizados para el cálculo del canon del presente reglamento podrán ser revisados con el fin de garantizar la fortaleza de las finanzas municipales.

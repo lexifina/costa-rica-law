@@ -1,0 +1,1 @@
+Artículo 8. El porcentaje del canon fijado mediante el artículo 6 de este reglamento aplicará únicamente sobre avalúos que adquieran su firmeza a partir de la publicación de este reglamento y calculados con base en la Plataforma de Valores por zonas homogéneas para el Cantón publicada en el Diario Oficial La Gaceta Nº56 del 21 de marzo del 2011.

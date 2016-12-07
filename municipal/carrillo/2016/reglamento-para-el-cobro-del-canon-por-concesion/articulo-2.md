@@ -1,0 +1,1 @@
+Artículo 2. Este reglamento forma parte integral del Plan Regulador Integral Hermosa – El Coco – Bahía Azul, tal y como lo establece el artículo 46 del Reglamento a la Ley de la Zona Marítimo Terrestre.

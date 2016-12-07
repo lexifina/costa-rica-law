@@ -1,0 +1,1 @@
+Artículo 11. Será obligación de los concesionarios mantenerse al día con el pago trimestral del canon, brindar un adecuado mantenimiento al terreno otorgado en concesión, respetar el uso establecido en el en el contrato de concesión y respetar las demás disposiciones establecidas en la Ley sobre la Zona Marítimo Terrestre, su reglamento y el Plan Regulador vigente para la zona.
