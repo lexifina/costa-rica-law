@@ -1,0 +1,3 @@
+Artículo 16°- Derogatoria. Se deroga en su totalidad lo siguiente
+a. Reglamento sobre variaciones al presupuesto, de la Municipalidad de San Carros, aprobado por el Concejo Municipal de San Carlos en su sesión ordinaria celebrada el lunes 4 de enero del 2010, mediante artículo N° 15 ; acta N° 01 publicado en el Diaria Oficial La Gaceta: LA GACETA N °16 DEL 25 DE ENERO DEL 2010
+b. Modificación a la estructura del Reglamento sobre variaciones al presupuesto de la Municipalidad de San Carlos aprobado en sesión extraordinaria celebrada el lunes 21 de marzo del 2011, mediante artículo N° 02, acta N o 20, publicado en el Diario Oficial La Gaceta LA GACETA N° 123 DEL 27 DE JUNIO DEL2013

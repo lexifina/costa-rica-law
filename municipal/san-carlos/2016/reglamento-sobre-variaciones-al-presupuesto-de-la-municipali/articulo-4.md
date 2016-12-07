@@ -1,0 +1,1 @@
+Artículo 4°- Vigencia legal de los presupuestos extraordinarios y las modificaciones presupuestarias. Los presupuestos extraordinarios y las modificaciones presupuestarias tendrán efecto legal en el presupuesto, a partir de la aprobación por parte del Concejo Municipal de la Municipalidad de San Carlos y o la Contraloría General de la Republica según corresponda.

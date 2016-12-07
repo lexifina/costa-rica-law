@@ -1,0 +1,1 @@
+Artículo 2.°-Alcance. Estas normas constituyen un marco de referencia de carácter general, a partir del cual debe darse la aplicación de los procedimientos específicos, que al efecto serán comunicados por la Dirección de Hacienda de la Municipalidad.
