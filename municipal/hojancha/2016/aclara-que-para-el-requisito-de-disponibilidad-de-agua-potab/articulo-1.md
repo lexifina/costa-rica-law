@@ -1,0 +1,4 @@
+MUNICIPALIDAD DE HOJANCHA
+El Concejo Municipal de Hojancha, cantón Guanacaste, comunica Acuerdo N° 6 tomado en sesión ordinaria N° 029-016, del 15 de noviembre del 2016, que textualmente dice:
+En vista de que no está clara la situación respecto al requisito N° 8 de los visados municipales, “Disponibilidad de agua potable otorgado por el ente encargado de suministrar el servicio en la zona”, aprobado por el Concejo Municipal, acuerdo N° 2, de la sesión ordinaria N° 025-2016, del 18 de octubre de 2016 y publicado en La Gaceta el 9 de noviembre de 2016; este Concejo Municipal acuerda, mantener los requisitos para los visados municipales publicados en La Gaceta N° 119 del lunes 22 de junio del 2015, por mientras se realizan las consultas legales al respecto. Publíquese en el Diario Oficial La Gaceta. Aprobado por unanimidad. Acuerdo definitivamente aprobado.
+Hojancha, Guanacaste, 16 de noviembre del 2016.
