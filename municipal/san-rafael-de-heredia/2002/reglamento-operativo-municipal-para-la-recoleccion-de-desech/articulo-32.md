@@ -1,1 +1,0 @@
-Artículo XXXII.—Cada inspector hará una revisión previa a la recolección para verificar el buen estado de la canasta metálica, existencia de desechos sin el adecuado empaque, empaques con desechos que contengan más de dos terceras partes de su capacidad de contenido, si están debidamente cerradas y si su contenido no es el autorizado para ser recolectado.

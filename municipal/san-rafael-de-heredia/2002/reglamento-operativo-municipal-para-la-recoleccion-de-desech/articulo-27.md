@@ -1,1 +1,0 @@
-Artículo XXVII.—El usuario del servicio facilitará el trabajo de recolección eliminando cualquier obstáculo arquitectónico o de seguridad que pueda entorpecer la labor. Igualmente evitará cualquier circunstancia tales como animales feroces que puedan poner en peligro la integridad física o la vida del recolector.

@@ -1,1 +1,0 @@
-Artículo XVIII.—No se recolectarán los desechos con características peligrosas. Los mismos deberán ser trasladados por cada usuario hasta un centro de recolección habilitado por la Municipalidad en un sitio debidamente acondicionado. Estos deberán estar empacados con el respectivo color, sea rojo, amarillo o negro.

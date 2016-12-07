@@ -1,1 +1,0 @@
-Artículo XX.—No se recolectarán desechos provenientes de demoliciones y construcciones, piezas grandes de limpiezas de jardín, electrodomésticos, computadoras y demás muebles y línea blanca de mayor tamaño. Los mismos deberán ser trasladados por cada usuario hasta un centro de recolección habilitado por la Municipalidad en un sitio debidamente acondicionado.

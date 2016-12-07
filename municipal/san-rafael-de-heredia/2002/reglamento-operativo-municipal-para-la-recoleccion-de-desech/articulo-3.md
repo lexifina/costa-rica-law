@@ -1,1 +1,0 @@
-Artículo III.—Los empaques tienen que estar en buen estado mientras los desechos permanecen a la intemperie en espera de la recolección. No deben mostrar signos de rompimiento o rasgaduras que provoquen el posterior derrame de desechos o la propagación de malos olores y el acercamiento de insectos voladores.
