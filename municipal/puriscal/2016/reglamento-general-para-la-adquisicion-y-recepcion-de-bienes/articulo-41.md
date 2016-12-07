@@ -1,0 +1,1 @@
+Artículo 41.—Modificaciones a los contratos: La Municipalidad podrá aumentar o disminuir para un contrato los montos y cantidades en las condiciones señaladas en el artículo 12, de la LCA y 14, del RGCA. En todo caso, deberá elaborarse un documento ADENDA en el caso de las modificaciones contractuales, documento que deberá ser incorporado al SIAC.
