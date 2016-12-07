@@ -1,4 +1,6 @@
+(Derogado)
 MUNICIPALIDAD DE SAN CARLOS
+(Esta norma fue deorgada por el artículo 16 del Reglamento Sobre Variaciones al Presupuesto de la Municipalidad de San Carlos, publicado en el Alcance N° 290 a La Gaceta N° 235 del 7 de diciembre del 2016)
 PROYECTO DE REGLAMENTO SOBRE VARIACIONES
 AL PRESUPUESTO DE LA MUNICIPALIDAD DE SAN CARLOS
 Que al no haberse presentado objeciones al Proyecto de Reglamento sobre Variaciones al Presupuesto de la Municipalidad de San Carlos, publicado por primera vez en el Diario Oficial La Gaceta Nº 16 del 25 de enero del 2010, el Concejo Municipal de San Carlos en sesión ordinaria celebrada el lunes 1º de marzo del 2010, mediante artículo Nº 11 del acta Nº 30, acordó ratificar el Reglamento anteriormente indicado. Rige a partir de su publicación.

@@ -15,3 +15,4 @@ Reglamento sobre variaciones al presupuesto de la Municipalidad de San Carlos
 | --- | --- | --- |
 | 1 | 2010-03-16 | la propia norma |
 | 2 | 2011-03-21 | Reglamento municipal 0 (2011-03-21) |
+| 3 | 2016-12-07 | Reglamento municipal 0 (2016-12-07) |
