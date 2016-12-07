@@ -1,0 +1,1 @@
+ARTÍCULO 19.- LEGISLACIÓN DE APLICACIÓN SUPLETORIA. Lo no previsto en la Ley Nº 9110 y en este Reglamento, se regirá supletoriamente por lo establecido en Código de Normas y Procedimientos Tributarios y sus reglamento.

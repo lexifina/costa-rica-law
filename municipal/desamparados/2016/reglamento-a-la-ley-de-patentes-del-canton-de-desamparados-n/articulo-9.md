@@ -1,0 +1,3 @@
+CAPÍTULO V
+DE LA LICENCIA, DECLARACIÓN, LIQUIDACIÓN Y PAGO
+ARTÍCULO 9.- Licencia. Para el desarrollo de cualquier actividad económica en el cantón de Desamparados, se requiere la obtención de la licencia correspondiente ante la Administración, conforme lo señala el artículo 79 del Código Municipal, N° 7794 y el artículo 4 de la Ley de Patentes del cantón de Desamparados, N° 9110. Para ello deberán satisfacer los requisitos establecidos en el artículo 8 de la Ley Nº 9110 y los publicados al efecto por la Administración en cumplimiento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, N° 8220.
