@@ -1,0 +1,1 @@
+Artículo N° 22. Contra la resolución del Alcalde Municipal, cabrán los recursos administrativos previstos en el artículo 162 del Código Municipal. Debiendo interponerlos ante dicha instancia, en los cinco días siguientes a su notificación.

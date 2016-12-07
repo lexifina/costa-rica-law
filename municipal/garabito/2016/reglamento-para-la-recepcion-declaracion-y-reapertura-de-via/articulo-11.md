@@ -1,0 +1,1 @@
+Artículo 11°. El Alcalde(sa) Municipal someterá a conocimiento del Concejo Municipal de Garabito el expediente con los estudios previos y la Resolución Administrativa para la declaratoria del camino o la calle como pública.

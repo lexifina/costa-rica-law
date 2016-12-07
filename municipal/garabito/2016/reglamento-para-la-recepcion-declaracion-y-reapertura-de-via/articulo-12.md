@@ -1,0 +1,1 @@
+Artículo N°12. Una vez cumplido con lo establecido en el artículo anterior, el Concejo Municipal tomará un acuerdo, tomando en consideración para ello el cumplimiento de los requisitos, los estudios técnicos y socioeconómicos referentes a la utilidad pública municipal para la aceptación de las áreas y su declaratoria como pública.

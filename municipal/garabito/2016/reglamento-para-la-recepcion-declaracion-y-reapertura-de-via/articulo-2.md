@@ -1,0 +1,3 @@
+CAPITULO II
+Del procedimiento para la recepción y declaración de vías públicas
+Artículo 2°. Cualquier interesado puede gestionar, de manera escrita ante la Alcaldía Municipal de Garabito, la tramitación del recibimiento, reconocimiento y declaratoria de un camino o de una calle como pública, conforme los términos del presente reglamento, debiendo indicar el interés de la comunidad, con descripción del sector o localización del lugar donde se ubica la calle o camino, cuál será su aporte de aceptarse su propuesta, si es donación o venta por parte de los vecinos para cumplir con los derechos de vía establecido para el caso concreto.

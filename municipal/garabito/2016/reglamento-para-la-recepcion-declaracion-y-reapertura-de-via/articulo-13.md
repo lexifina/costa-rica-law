@@ -1,0 +1,1 @@
+Artículo N° 13. Cuando en el acuerdo se acepten áreas en donación o venta de mutuo consentimiento deberá indicarse en el mismo la autorización al (la) Alcalde (sa) para comparecer a la firma de escritura.
