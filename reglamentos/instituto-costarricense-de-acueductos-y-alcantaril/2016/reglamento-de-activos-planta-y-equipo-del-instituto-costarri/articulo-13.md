@@ -1,0 +1,4 @@
+ARTICULO 13 - PROYECTOS DE INVERSIÓN.
+Para la construcción de obras es necesario, previo a su inicio, la creación de una orden de costos lo cual se hará utilizando el formulario creado para este fin denominado “Solicitud de orden de costos”. A cada orden de costos creada se le asignará un número de activo en construcción (IEC) creado en el sistema contable.
+La solicitud de orden de costos tiene que ser firmada por el solicitante así como del funcionario responsable del proyecto, este deberá suministrar oportunamente la información necesaria para realizar la capitalización de la obra.
+Cuando el responsable del proyecto cambie por la razón que fuere, el jefe inmediato deberá comunicarlo a la Dirección de Finanzas caso contrario, la responsabilidad de suministrar información del proyecto recaerá sobre esta jefatura.

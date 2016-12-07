@@ -1,0 +1,3 @@
+ARTÍCULO 22 - ROBO Y HURTO DE ACTIVOS DE PROPIEDAD, PLANTA Y EQUIPO.
+En el caso de darse un robo o hurto de un activo de propiedad, planta y equipo, el custodio deberá interponer denuncia formal sobre los hechos ante el Organismo de Investigación Judicial (O.I.J.), en un plazo máximo de cinco (5) días hábiles posterior al día en que se percató del robo o hurto; copia de la denuncia deberá remitirla al encargado de activos de su dependencia.
+En el caso de que por razones de ubicación física y de la naturaleza misma del puesto de trabajo, siempre y cuando se justifique, el plazo del párrafo anterior correrá a partir del momento en que el funcionario esté en condiciones físicas y geográficas para apersonarse al OIJ.

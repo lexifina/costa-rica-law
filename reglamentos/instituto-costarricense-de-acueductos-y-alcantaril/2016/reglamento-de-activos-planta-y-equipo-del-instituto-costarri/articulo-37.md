@@ -1,0 +1,2 @@
+ARTÍCULO 37 - RESPONSABILIDADES DE LA DIRECCIÓN DE FINANZAS:
+La Dirección de Finanzas es la responsable de definir las políticas y girar directrices nacionales en materia de propiedad, planta y equipo. Además de coordinar las actividades de planificación, ejecución y evaluación a nivel institucional, enfocadas al cumplimiento de lo establecido en el presente reglamento. También actualizará el presente reglamento cuando sea necesario, tomando en cuenta las circunstancias y la normativa vigente en materia contable.

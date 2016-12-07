@@ -1,0 +1,2 @@
+ARTÍCULO 40 – DEROGATORIA
+El presente Reglamento deroga totalmente el Acuerdo No 99-030, adoptado por la Junta Directiva del Instituto Costarricense de Acueductos y Alcantarillados, en la sesión extraordinaria 99-008, celebrada el veintisiete de enero de mil novecientos noventa y nueve, publicado en La Gaceta No. 40 del 26 de Febrero del año 1999, mediante el cual se dictó el Reglamento de Activos del Instituto Costarricense de Acueductos y Alcantarillados, así como cualquier otro acuerdo o directriz interno que se oponga.

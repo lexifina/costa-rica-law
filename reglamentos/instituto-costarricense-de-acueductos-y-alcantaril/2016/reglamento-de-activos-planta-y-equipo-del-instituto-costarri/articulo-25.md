@@ -1,0 +1,2 @@
+ARTÍCULO 25 - PROCEDIMIENTO ADMINISTRATIVO.
+Cuando se verifique por cualquier medio el robo, daño, hurto, deterioro anormal, faltante u otro similar en detrimento de bienes institucionales, el encargado de activos estará facultado para recopilar la información necesaria y trasladarla en un plazo máximo de quince (15) días naturales a partir del conocimiento del evento, a la Dirección Jurídica, con copia a la Dirección de Finanzas, para que se investigue la situación siguiendo el debido proceso.

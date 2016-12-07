@@ -1,0 +1,2 @@
+ARTICULO 18 - ASIGNACIÓN DE ACTIVOS DE PROPIEDAD, PLANTA Y EQUIPO A CONTRATISTAS O A TERCEROS.
+Únicamente podrá asignarse activos de propiedad, planta y equipo a terceros o a contratistas, cuando exista un contrato, convenio o en términos de referencia de la contratación, que establezca claramente la necesidad por parte de AyA de suministrar dichos bienes, además de establecer la responsabilidad del Contratista o del tercero en caso de robo, pérdida, hurto, extravío, u otro similar.

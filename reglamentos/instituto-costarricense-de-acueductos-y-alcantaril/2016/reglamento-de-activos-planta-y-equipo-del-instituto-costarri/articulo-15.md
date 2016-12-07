@@ -1,0 +1,6 @@
+ARTÍCULO 15 - FIRMA DE VALE DE ACTIVOS DE PROPIEDAD, PLANTA Y EQUIPO.
+Previo a la entrega de un activo de propiedad, planta y equipo al custodio para su uso, el vale de activos debe estar debidamente confeccionado y firmado por el custodio, la jefatura y el encargado de activos.
+El formulario de traspaso de activos, deberá incluir la firma de ambos custodios así como la firma de los jefes respectivos que autorizan el traspaso.
+En el caso del custodio contratista, el vale lo firmará el responsable de la contraparte de la contratación junto al contratista y el encargado de activos.
+En el caso del custodio-tercero, el vale lo firmará el responsable del área donde preste el servicio junto al custodio-tercero y el encargado de activos.
+El activo de propiedad, planta y equipo organizacional estará bajo la responsabilidad de un custodio organizacional, para ello, se confeccionará el correspondiente vale de activos que será debidamente firmado por el custodio, la jefatura y el encargado de activos (no todos los activos de propiedad, planta y equipo organizacionales requieren que exista el documento denominado vale de activos en el catálogo de activos se determinaran cuales activos de propiedad, planta y equipo tienen que tener vale y cuáles no.

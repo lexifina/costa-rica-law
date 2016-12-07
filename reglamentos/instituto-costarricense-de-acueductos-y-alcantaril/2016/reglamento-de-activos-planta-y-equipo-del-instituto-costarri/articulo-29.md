@@ -1,0 +1,2 @@
+ARTÍCULO 29 - VENTA DE CHATARRA
+Cuando se determine que un bien no es de interés institucional, está en mal estado y sea dado de baja contablemente, puede ser vendido como chatarra, la unidad correspondiente, coordinará las gestiones de la venta con la Dirección de Proveeduría previa verificación de la existencia de la resolución Gerencia o Sub Gerencia General que la califique como tal y/o que los activos han sido dados de baja en el sistema contable.
