@@ -9,3 +9,9 @@ e. Mantener la continuidad de servicio a los usuarios al efectuar alguno de los 
 f. Respetar las obligaciones relativas a la portabilidad numérica conforme lo aquí dispuesto y la reglamentación que al efecto se disponga.
 g. Permitir el encaminamiento de las comunicaciones y respetar en general las obligaciones derivadas del Régimen de acceso e interconexión, conforme lo dispuesto en la Ley 8642 y su desarrollo reglamentario.
 h. Permitir el libre acceso a los servicios de emergencias, conforme lo aquí dispuesto así como en la Ley 8642.
+i. Asegurar la interoperabilidad de toda la numeración que forma parte de este Plan.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40107 del 8 de diciembre de 2016)
+j. Abstenerse e impedir que la numeración asignada sea puesta a disposición de terceros operadores y/o proveedores, para la provisión de servicios de telecomunicaciones disponibles al público.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40107 del 8 de diciembre de 2016)
+k. Abstenerse de utilizar numeración que no haya sido asignada por la Sutel, o darle un uso diferente al que le haya sido concedido vía Resolución, y conforme con lo establecido en el presente Plan.
+(Así adicionado el inciso anterior por el artículo 2° del decreto ejecutivo N° 40107 del 8 de diciembre de 2016)
