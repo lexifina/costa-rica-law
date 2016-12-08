@@ -1,0 +1,3 @@
+Artículo 122 ter: Registro institucional de mecanismos alternos al procedimiento administrativo disciplinario y/o patrimonial.
+La Administración deberá contar con un registro institucional mediante el cual se documente de forma idónea cada uno de los casos en los cuales se ha autorizado la aplicación de un mecanismo de tal naturaleza. Mientras se crea dicho registro y se oficializa, el órgano decisor deberá verificar, con la colaboración de las unidades de administración y gestión de personal del lugar de trabajo, si el solicitante en los cinco años anteriores a la petición que se formula, ha disfrutado de algún mecanismo alterno al procedimiento administrativo disciplinario y/o patrimonial.
+(Así adicionado mediante sesión N° 8878 del 8 de diciembre del 2016)

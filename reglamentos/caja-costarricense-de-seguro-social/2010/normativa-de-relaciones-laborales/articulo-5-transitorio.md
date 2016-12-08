@@ -1,0 +1,2 @@
+Transitorio: Los mecanismos alternos al procedimiento administrativo disciplinario y/o patrimonial podrán ser aplicados a los procedimientos administrativos en curso, siempre y cuando la solicitud se presente antes del inicio de la comparecencia oral y privada. Publíquese en el Diario Oficial La Gaceta.
+(Así adicionado mediante sesión N° 8878 del 8 de diciembre del 2016. Al no indicar número de transitorio el mismo fue adicionado como número 5 para seguir con la numeración consecutiva)
