@@ -15,3 +15,4 @@ Reglamento para el uso y control de vehículos del Consejo Nacional de Personas 
 | --- | --- | --- |
 | 1 | 2014-04-02 | la propia norma |
 | 2 | 2015-05-26 | Ley 9303 |
+| 3 | 2016-12-08 | Reglamento 48 (2016-12-08) |
