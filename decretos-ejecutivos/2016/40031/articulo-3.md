@@ -1,0 +1,1 @@
+Artículo 3°. - Las dependencias y entidades de la Administración Pública quedan obligados a proporcionar al Servicio Nacional de Salud Animal (SENASA) todo el apoyo y colaboración técnico y administrativo que requiera para atender la emergencia sanitaria no epidémica regional referida en el ámbito de sus competencias.

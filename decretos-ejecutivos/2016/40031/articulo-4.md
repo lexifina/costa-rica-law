@@ -1,0 +1,1 @@
+Artículo 4°- Asimismo se autoriza a las dependencias y entidades de la Administración Pública para que apoyen con los recursos necesarios para colaborar con el Servicio Nacional de Salud Animal (SENASA), en la atención de la presente emergencia sanitaria no epidémica regional.
