@@ -1,0 +1,3 @@
+Artículo 6º- De los requisitos para ocupar los puestos de Director y Subdirector de la Policía Penitenciara.
+Requisitos de grado para el ejercicio de la Dirección y Subdirección de la Policía Penitenciaria.
+Para ocupar el cargo de director de la Dirección de la Policía Penitenciaria el grado requerido es el de Comisario de Policía, en caso de no existir un funcionario con ese grado, un funcionario con al menos el grado de Comisionado de Policía y para el cargo de subdirector el grado requerido es el de Comisionado de Policía, y en caso de no existir un funcionario con ese grado, un funcionario con al menos el grado de Comandante de Policía.

@@ -1,0 +1,1 @@
+Artículo 23. -La secretaría del Consejo comunicará por escrito a los elegidos el acuerdo tomado por el Concejo, indicando la fecha a partir de la cual rige su grado policial, preparará el acuerdo ejecutivo de otorgamiento del grado para la firma correspondiente de parte del Ministro (a), asimismo solicitará la publicación en el diario oficial la Gaceta.
