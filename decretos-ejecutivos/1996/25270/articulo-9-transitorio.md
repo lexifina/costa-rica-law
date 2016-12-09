@@ -1,0 +1,2 @@
+Transitorio IX. A partir de la entrada en vigencia de las modificaciones efectuadas, el Ministerio de Hacienda a través de la Dirección General de Aduanas y la Dirección de Tecnologías de Información y Comunicación, tendrá un plazo de un mes para realizar los ajustes necesarios en el Sistema Informático Tecnología de Información para el Control Aduanero (TICA).
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 40119 del 9 de diciembre de 2016)
