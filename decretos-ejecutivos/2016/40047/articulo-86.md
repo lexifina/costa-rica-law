@@ -1,0 +1,2 @@
+Artículo 86.- Efectiva correspondencia del puesto, con las funciones vinculadas con el almacenamiento y distribución de bienes
+Todo servidor del Ministerio de Obras Públicas y Transportes que tenga a su cargo funciones relacionadas con el recibo, registro, almacenamiento, custodia y despacho bienes, deberá ocupar un puesto atinente a las funciones y responsabilidades asignadas, por tanto deberá tener el perfil necesario para ocupar dicho puesto. Esto mismo aplicará para el personal de apoyo y que presta servicios para el almacén o bodega.

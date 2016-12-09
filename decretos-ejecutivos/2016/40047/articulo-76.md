@@ -1,0 +1,2 @@
+Artículo 76.- Donación de bienes en desuso o mal estado
+En los casos en que la Comisión de Bienes en Desuso o Mal Estado determine que existen bienes susceptibles de donar, ya sea que se trate de bienes patrimoniables, o de materiales y suministros, remitirá el expediente correspondiente a la Comisión de Donaciones constituida a la luz de lo dispuesto en el Reglamento para el Registro y Control de Bienes de la Administración Central, a fin de que proceda conforme los procedimientos establecidos al efecto en dicho Reglamento.

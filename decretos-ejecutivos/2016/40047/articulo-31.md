@@ -1,0 +1,3 @@
+Artículo 31.- Registro de los bienes que ingresan a las bodegas por traspaso
+Los bienes que ingresen a las bodegas, producto de traspaso, deberán registrarse en el SAI en la opción habilitada para la "Entrada por Traspaso". Para realizar lo anterior, se utilizará el Formulario denominado "Pre entrada", con el cual se verificará que los bienes objetos del traspaso correspondan a los indicados en los documentos que sustentan el traspaso. Realizado lo anterior, se efectuará y registrará la entrada definitiva, la cual se efectuará a más tardar el día siguiente.
+Ese registro afectará el Sistema de Contabilidad General (SCG), de manera que el traspaso de los bienes queda registrado en tal sistema, a los efectos de las competencias del Departamento de Contabilidad.

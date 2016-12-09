@@ -1,0 +1,3 @@
+Artículo 67.- Registros Contables
+La información que se le remita al Departamento de Contabilidad será utilizada como parte integral de la documentación referente a las operaciones del MOPT, que le corresponde registrar, procesar y controlar a los efectos establecidos en la Ley de la Administración Financiera y Presupuestos Públicos y su Reglamento, así como en la normativa técnica y demás disposiciones establecidas por la Contabilidad Nacional.
+El Departamento de Contabilidad custodiará los documentos originales relativos a las entradas y salidas, ajustes y demás movimientos de la bodega, que le sean remitidos.

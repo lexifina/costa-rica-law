@@ -1,0 +1,2 @@
+Artículo 63._ Registro de entrada de materiales objeto de aportes en Convenios de Mutua Cooperación
+Los materiales objeto de aportes definidos en convenios de mutua cooperación, suscritos por el MOPT, que se reciban en las bodegas de los Centros de Producción, se registrarán en el sistema de registro y control existente; para tales efectos el funcionario responsable de la ejecución del Convenio coordinará lo pertinente con la bodega respectiva, aportando copia del Convenio y demás documentación de soporte.

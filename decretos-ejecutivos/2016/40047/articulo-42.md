@@ -1,0 +1,2 @@
+Artículo 42.- Rechazo de las solicitudes
+El Encargado del Almacén o Bodega deberá rechazar las "Solicitudes de Materiales" o la "Solicitud de Repuestos" que se presenten con cualquier alteración, irregularidad o anomalía que origine dudas sobre su autenticidad, o, en su caso, sobre la veracidad de las firmas y de inmediato lo informará por escrito a su superior, para coordinar la solución y enmienda que corresponda.

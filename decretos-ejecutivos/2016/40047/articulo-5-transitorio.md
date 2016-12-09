@@ -1,0 +1,3 @@
+Transitorio V
+Todos los bienes que hayan sido reportados a la Comisión de Desechos antes de la entrada en vigencia de este Reglamento, será asumidos por la nueva Comisión de Bienes en Desuso o Mal Estado y deberán tramitarse en el plazo de seis meses, contados a partir de la publicación de este Reglamento.
+Hasta tanto entre en su totalidad a regir el SICOP, el mecanismo de incorporación en el Sistema MIGO del SIGAS se hará solamente con las órdenes de compra emitidas por SICOP. Aquellas órdenes de compra que se emitan por el Sistema Compra Red V2 y al ser respaldadas por una reserva de recursos, los almacenes que reciban bienes de los proveedores comerciales tramitarán las facturas y demás documentos directamente ante el Departamento de Ejecución Presupuestaria.

@@ -1,0 +1,5 @@
+Artículo 51.- Inventarlos físicos selectivos
+Los Encargados de Almacenes y Bodegas deberán efectuar inventarios fisicos selectivos, parciales o totales, cada quince días, para verificar que las existencias fisicas concuerden con lo registrado en el Sistema SAI. Lo anterior conforme lo establezca su programación.
+El inventario selectivo es una muestra aleatoria, entre un 10% y 20% del total de las mercancías del almacén o bodega, hasta alcanzar el 100% del inventario. Comprende a un grupo de bienes previamente seleccionados y que registren mayor movimiento.
+La programación de los inventarios selectivos deberá efectuarse en el mes de enero de cada ario. Esa programación la comunicará el Encargado del Almacén o Bodega a su superior inmediato, a los Ejecutores de Programa Presupuestario, al Departamento de Programación y Control de la Dirección de Proveeduría Institucional, en el caso de los almacenes y al Proceso de Supervisión de Bodegas, en el caso de las bodegas regionales.
+El resultado de los inventarios selectivos que se realicen deberá consignarse en un informe, el cual remitirá a los funcionarios y dependencias que se indican en el párrafo anterior.

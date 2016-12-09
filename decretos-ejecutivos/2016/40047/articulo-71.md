@@ -1,0 +1,2 @@
+Articulo 71.- Pérdidas por derrames
+Las pérdidas que generen gastos para el MOPT ocasionados por derrames de asfalto o emulsión asfáltica y que se produzcan por negligencia durante el transporte y la descarga, se imputarán al encargado del transporte y a quien reciba el producto, salvo que se demuestre lo contrario, a cuyo efecto se abrirá el expediente administrativo que corresponda, todo ello dentro del conecto ejercicio del debido proceso y el derecho a la defensa por parte de los involucrados.

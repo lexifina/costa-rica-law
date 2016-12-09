@@ -1,0 +1,6 @@
+CAPITULO X
+BIENES EN DESUSO O MAL ESTADO
+Artículo 72.- Responsabilidad del inicio de trámites para la disposición de bienes en desuso o mal estado
+Es responsabilidad de los Ejecutores de los Programas Presupuestarios efectuar los trámites correspondientes, según lo definido en este Reglamento, con respecto a los bienes patrimoniables, materiales y suministros existentes en los almacenes y bodegas, que estén en la condición de bienes en desuso o mal estado.
+El Ejecutor del Programa Presupuestario y su equipo de trabajo, deberá verificar en forma constante los saldos existentes en el SAI, a fin de corroborar aquellos bienes que no tienen movimiento por más de tres meses y detectar la existencia de los que tienen la condición de desuso o mal estado.
+Las acciones respectivas las desarrollarán con fundamento en la información existente en el SAI, así como en la información que el Encargado del Almacén o Bodega le suministre, y además con base en los informes de inventario totales que realicen los Supervisores de Almacenes o Bodegas, documentos en los cuales deberán indicar aquellos bienes que no han tenido movimiento durante más de tres meses, o que, sus condiciones hagan presumir que se trata de bienes en mal estado.

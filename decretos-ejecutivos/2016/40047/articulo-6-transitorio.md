@@ -1,0 +1,2 @@
+Transitorio VI
+En el plazo de seis meses a partir de la entrada en vigencia de este Reglamento, los Ejecutores de Programa Presupuestario deberán remitir a la Comisión de Bienes en Desuso o Mal Estado, el listado de bienes que aún no han sido reportados, ubicados en los almacenes y bodegas que se encuentran en esa condición, junto con la Declaratoria de Bien en Desuso o Mal Estado a que refiere el presente Reglamento.

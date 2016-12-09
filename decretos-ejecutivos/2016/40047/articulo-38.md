@@ -1,0 +1,5 @@
+Artículo 38.- Formularios "Solicitud de Materiales" y "Solicitud de Repuestos"
+Para retirar bienes de cualquier almacén o bodega debe completarse el formulario Solicitud de Materiales" o "Solicitud de Repuestos", según se trate. Dichos formularios contendrán toda la información relativa a los bienes a retirar: cantidad solicitada, descripción de los bienes, número de patrimonio si se trata de bienes patrimoniables, unidad de media y código mecanizado.
+En la "Solicitud de Repuestos" deberá indicarse el número de Taller y la Orden de Trabajo, con excepción de las salidas que se produzcan por traspaso del almacén a una bodega o de una bodega a otra. En este último caso deberá quedar claramente identificada la índole de la transferencia.
+Los formularios para solicitar bienes a los almacenes serán firmados por el funcionario autorizado y deberán contar con el visto bueno del respectivo Ejecutor del Programa Presupuestario.
+Los formularios para solicitar bienes a las bodegas regionales deben ser firmados por el funcionario autorizado y deberán contar con el visto bueno del respectivo Director Regional.

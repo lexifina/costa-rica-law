@@ -1,0 +1,3 @@
+Artículo 87: Gestión de capacitación.
+La Dirección de Capacitación y Desarrollo ejecutará las acciones que correspondan para que se brinde la capacitación y formación de los funcionarios que se desempeñan como Encargado de Almacenes y Bodegas, así como de su personal de apoyo y los funcionarios que fungirán como Supervisores de Almacenes y Bodegas.
+La Dirección de Capacitación y Desarrollo otorgará toda la colaboración y apoyo necesario, conforme al ordenamiento jurídico, a las unidades administrativas que se vinculan con las actividades objeto del presente Reglamento, en la capacitación que resulte pertinente.

@@ -1,0 +1,10 @@
+CAPITULO IV
+TRASPASO DE BIENES DE ALMACENES A BODEGAS O ENTRE ESTOS
+Artículo 26.- Registro de nombres y firmas
+Los almacenes contarán con un "Registro de Nombres y Firmas" de los funcionarios autorizados para firmar los formularios oficializados para solicitar el traspaso de bienes de los almacenes a bodegas, así como de los funcionarios autorizados para el retiro de éstos. Asimismo, en cada Bodega existirá un registro de nombres y firmas de los funcionarios autorizados para retirar bienes por traspaso hacia otras bodegas.
+En el caso de la División de Obras Públicas, corresponderá a los Directores Regionales designar a los funcionarios autorizados para solicitar y para retirar bienes por traspaso. En lo que respecta a la Dirección de Edificaciones Nacionales, tal designación le corresponde al Director. En ambos casos la designación se efectuará en el formulario oficializado para tales efectos, en el cual se consignará la firma de los funcionarios autorizados, así como el visto bueno del Ejecutor del Programa Presupuestario.
+En el caso de los funcionarios autorizados para solicitar y para retirar bienes de los almacenes por traspaso, tal formulario será remitido al Departamento de Almacenamiento y Distribución de la Dirección de Proveeduría Institucional, en el mes de febrero de cada ario. Dicho Departamento lo comunicará al almacén o almacenes que corresponda y remitirá una copia al Departamento de Contabilidad.
+El Departamento de Almacenamiento y Distribución verificará que dicha designación se efectúen en forma oportuna, estando facultado para realizar las acciones que correspondan al efecto ante los funcionarios responsables.
+En el caso del traspaso de bodega a bodega, tal formulario se remitirá a cada una de las bodegas respecto a las cuales podría operar un traspaso, las cuales verificarán que dicha designación se efectúe oportunamente.
+El registro de firmas tendrá validez por un año y deberá renovarse durante el mes de febrero de cada año.
+En caso que sea necesario sustituir a algún funcionario autorizado, deberá utilizarse el mismo procedimiento para el registro de su firma.

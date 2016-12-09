@@ -1,0 +1,2 @@
+Transitorio VII
+En el plazo de tres meses contados a partir de la entrada en vigencia de este Reglamento, la Dirección de Capacitación y Desarrollo deberá elaborar una programación sobre las actividades de capacitación que desarrollará conforme lo dispuesto en este Reglamento. Dicha programación la comunicará a los Departamentos de Almacenamiento y Distribución, Programación y Control, Contabilidad, a los Directores Regionales y a los Ejecutores de Programa Presupuestario.

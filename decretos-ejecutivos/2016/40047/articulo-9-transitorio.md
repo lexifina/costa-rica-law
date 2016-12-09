@@ -1,0 +1,4 @@
+Transitorio IX
+La Unidad de Planificación Institucional, en coordinación con las unidades técnicas especializadas, actualizará en el plazo de seis meses a partir de la entrada en vigencia de este Reglamento, los Manuales de Procedimientos relacionados con lo regulado en este. Asimismo procederá con el levamiento y análisis técnico de las actividades del Proceso de Supervisión de Bodegas para determinar su ubicación y rango jerárquico.
+Car os
+En el plazo de seis meses contados a partir de la entrada en vigencia de este Reglamento las dependencias técnicas competentes actualizarán y elaborarán los manuales técnicos e instructivos establecidos en el artículo 3 del presente Reglamento; debiendo remitirlos con la antelación debida a la Unidad de Planificación Institucional, para su respectiva oficialización.

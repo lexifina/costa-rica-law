@@ -1,0 +1,2 @@
+Transitorio VIII
+En el plazo de seis meses contados a partir de la entrada en vigencia de este Reglamento, la Dirección de Gestión Institucional de Recursos Humanos estudiará los puestos de los jefes de almacenes y personal de apoyo, para ajustarlos a las clasificaciones que correspondan de conformidad con la especialidad "gestión de almacenamiento", aprobadas por la Dirección General de Servicio Civil. Asimismo efectuará las acciones para dotar de los recursos requeridos para esos cargos en los almacenes y bodegas.

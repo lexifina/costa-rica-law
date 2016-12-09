@@ -1,0 +1,4 @@
+Artículo 39.- Revisión de las firmas y demás información en el Formulario "Solicitud de Materiales" o "Solicitud de Repuestos".
+Es obligación del Encargado del Almacén o de la Bodega, antes de efectuar el despacho de bienes, revisar la firma de quien autoriza el retiro de éstos, consignada en el Formulario "Solicitud de Materiales" o "Solicitud de Repuestos" y cotejarla con el respectivo "Registro de Nombres y Firmas". Deberá verificar además si el funcionario que se apersone a efectuar el retiro está autorizado y requerirá su cédula de identidad para cotejarla con el citado registro.
+Deberá revisar asimismo si dicho formulario cuenta con toda la información requerida.
+En lo que respecta al vehículo que transportará los bienes y su operador, verificará si la información contenida en el formulario, en el espacio designado para la indicación del número de placa o número de equipo, así como el nombre del operador, coincide con el que se apersone al almacén o bodega.

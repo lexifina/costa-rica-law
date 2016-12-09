@@ -1,0 +1,9 @@
+CAPITULO V
+REGISTRO DE LA RECEPCIÓN EN ALMACENES Y BODEGAS REGIONALES DE
+BIENES DONADOS, SUMINISTRADOS COMO APORTE EN CONVENIOS
+COOPERACION Y BIENES POR CUENTA DE TERCEROS.
+Artículo 32.- Recepción de bienes patrimoniables donados al MOPT
+La recepción de bienes patrimoniables que se donen al MOPT, conforme lo dispuesto en el Reglamento para el Registro y Control de Bienes de la Administración Central, se efectuará en el almacén o bodega que indique el Jerarca, en el documento de aceptación de la donación.
+En el acto de recepción se deberá contar con una copia del Acta firmada por el donante y donatario o por sus delegados, debidamente autorizados y acreditados. La recepción se registrará en el SAI, a través de la opción habilitada para tales efectos. Tal registro se efectuará por el monto de la factura de adquisición que aporte el donante o en su defecto por el monto del avalúo que realice la Administración.
+Una vez efectuada la recepción, el Encargado del Almacén o Bodega comunicará de inmediato al Departamento de Registro y Control Patrimonial, aportando copia del Acta de Donación respectiva para su respaldo, con el objeto de que proceda con el registro del bien en el SIRPA y en el SIBINET y a la asignación del número de identificación de éste. Dicho Departamento deberá asimismo efectuar la identificación de los bienes donados con el sistema de rotulado (placa de metal o plástica o cualquier otro sistema de alta seguridad).
+El almacén o bodega registrará la entrada del bien en el SAI, afectando de este modo el Sistema de Contabilidad General (SCG). Cuando se remita el cierre mensual al Departamento de Contabilidad, dentro de la documentación que deberá enviársele se incluirán las Actas de Donación respectivas. Corresponderá al Departamento de Contabilidad verificar que se remitan tales Actas, en caso que ello no se efectúe, deberá requerirlas al Almacén o Bodega correspondiente.

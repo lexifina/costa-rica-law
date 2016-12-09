@@ -1,0 +1,3 @@
+Artículo 36.- Entrada de bienes por cuenta de terceros (COSE VI)
+Los bienes que ingresen a los almacenes o bodegas del Ministerio de Obras Públicas y Transportes, adquiridos por el Consejo de Seguridad Vial, conforme las disposiciones contenidas la Ley de la Administración Vial No. 6324, se registrarán en el SAI en la opción especial habilitada para el registro de ese tipo de bienes.
+El Departamento de Contabilidad registrará estos bienes, conforme lo dispuesto en las Normas Internacionales de Contabilidad del Sector Público (NICSP), respecto a los bienes de este tipo que ingresen a la Institución.
