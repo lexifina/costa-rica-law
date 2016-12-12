@@ -44,17 +44,17 @@ d. Disminución de las asignaturas por matricular.
 6. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
 7. Informe de matrícula del periodo actual.
 8. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
-e. Sustitución de fiadores:
+e. Sustitución de fiadores
 1. Solicitud del prestatario para sustitución de fiadores.
 2. Breve justificación.
-3. Fotocopia de la cédula de identidad vigente y legible del fiador(es) que propone.
-4. Constancia de salario original del fiador(es) que propone.
-5. Original y fotocopia de la orden patronal vigente del fiador(es) que propone.
-6. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
-7. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
-8. Informe de matrícula del periodo actual.
-9. Llenar formulario de datos de los fiadores propuestos.
-10. Llenar el formulario de actualización de datos del deudor y de los fiadores que permanecen.
+3. Constancia de salario original del fiador(es) que propone.
+4. Hoja impresa con la orden patronal digital disponible en la Oficina Virtual del SICERE a la cual se ingresa por el portal web: https://sfa.ccss.sa.cr/afiliacion/index.jsp
+5. Carta emitida por la entidad educativa, con sello y firma, que indique que no tiene deudas del último periodo cursado.
+6. Presentar constancia de notas, en caso de tener períodos pendientes por presentar a CONAPE.
+7. Informe de matrícula del periodo actual.
+8. Llenar formulario de datos de los fiadores propuestos.
+9. Llenar el formulario de actualización de datos del deudor y de los fiadores que permanecen.
+(Así reformado el inciso e) anterior en sesión N° 45 del 12 de diciembre de 2016)
 f. Suspensión de estudios y/o desembolsos:
 1. Solicitud del prestatario para suspender plan de estudios.
 2. Breve justificación y documento que respalde la solicitud.
