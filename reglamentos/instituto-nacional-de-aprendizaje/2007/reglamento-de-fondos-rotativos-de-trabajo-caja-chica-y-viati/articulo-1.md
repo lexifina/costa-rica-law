@@ -1,6 +1,5 @@
-(Derogado)
 INSTITUTO NACIONAL DE APRENDIZAJE
-(Esta norma fue derogado por los artículos 20 del Reglamento de Fondos Rotativos de Trabajo del Instituto Nacional de Aprendizaje, y numeral 24 del Reglamento de Fondos Rotativos de Caja Chica del INA, aprobados ambos en sesión N° 4463 del 15 de noviembre de 2010)
+(Mediante sesión N° 4772 del 12 de diciembre de 2016, la Junta Directiva del Instituto Nacional de Aprendizaje, solicitó la aprobar la prórroga de vigencia por 6 meses más de la presente norma. Anteriormente este reglamento había sido derogado por los artículos 20 del Reglamento de Fondos Rotativos de Trabajo del Instituto Nacional de Aprendizaje, y numeral 24 del Reglamento de Fondos Rotativos de Caja Chica del INA, aprobados ambos en sesión N° 4463 del 15 de noviembre de 2010, dicha normativa antes mencionada esta suspendida.)
 REGLAMENTO DE FONDOS ROTATIVOS DE TRABAJO,
 CAJA CHICA Y VIÁTICOS DEL INSTITUTO
 NACIONAL DE APRENDIZAJE
