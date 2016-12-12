@@ -1,3 +1,0 @@
-CAPÍTULO X
-Disposiciones transitorias
-Artículo 50.—Datos del inventario actual. Hasta que se complete el inventario de la red de Calles Locales, Caminos Vecinales y Caminos no clasificados de cada cantón establecidos por Ley, se utilizarán los datos disponibles a la fecha en las bases de datos de la Dirección de Planificación Sectorial, del Ministerio de Obras Públicas y Transportes, consistentes de una identificación de caminos. Los datos podrán ser consultados y conocidos por las municipalidades, personas físicas o jurídicas, previo aporte de los materiales correspondientes que se requieran para entregar la información solicitada.

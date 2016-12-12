@@ -1,1 +1,0 @@
-Artículo 37.—Requisitos técnicos para las Calles Locales. El diseño o definición de las diferentes intervenciones en las Calles Locales deberá regirse por el cuerpo de disposiciones, normas y reglamentaciones establecidas en los Artículos 31 y 45.

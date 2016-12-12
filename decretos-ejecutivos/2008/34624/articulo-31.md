@@ -1,5 +1,0 @@
-CAPÍTULO VIII
-Requisitos Técnicos para el Desarrollo
-y la Conservación de la Red Vial Cantonal
-Artículo 31.—Para el diseño o definición de las actividades de conservación, mejoramiento, reconstrucción u obra nueva previstas en el artículo 3 de este Reglamento, como requisitos técnicos se aplicarán las Especificaciones Generales para la Construcción de Caminos Carreteras y Puentes (CR-77), el Manual de Construcción para Caminos Carreteras y Puentes (MC-83), el Tomo de Disposiciones para la Construcción y Conservación Vial, Normas y Diseños para la Construcción de Carreteras, Reglamento de Circulación por Carretera con Base en el Peso y las Dimensiones de los Vehículos de Carga y el Manual Centroamericano de Dispositivos Uniformes para el Control de Tránsito y las normas y guías de diseño AASHTO o equivalentes, o las versiones actualizadas y vigentes de todos los anteriores.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 37908 del 19 de agosto del 2013)
