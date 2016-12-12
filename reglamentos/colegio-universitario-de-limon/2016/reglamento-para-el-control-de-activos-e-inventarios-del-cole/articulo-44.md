@@ -1,0 +1,2 @@
+Artículo Nº44- Proceso de autorización.
+Comprobada la pérdida sin culpa o dolo del funcionario bajo cuya responsabilidad han estado los bienes y habiendo agotado las gestiones de investigación de la Dirección Administrativa y Financiera, a la Unidad de Control de Activos solicitará autorización a al Señor Decano para que se proceda al descargo físico y contable del registro auxiliar y del mayor auxiliar de activos de la unidad de proveeduría y contable, respectivamente.

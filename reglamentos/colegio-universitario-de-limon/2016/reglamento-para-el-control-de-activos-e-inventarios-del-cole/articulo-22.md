@@ -1,0 +1,2 @@
+Artículo Nº22- La no devolución de activos.
+En caso de mantenerse la no devolución del activo por el plazo mencionado el Director de la Unidad correspondiente deberá informar del mismo a la Asesoría Legal con copia a la Auditoría Interna a efecto de que dicha asesoría legal proceda a presentar la denuncia formal del caso ante las autoridades Judiciales o al Ministerio Público, según la gravedad de la misma y que simultáneamente agote la cobertura de la póliza de seguro si corresponde.

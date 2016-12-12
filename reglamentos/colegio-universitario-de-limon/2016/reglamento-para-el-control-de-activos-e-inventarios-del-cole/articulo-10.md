@@ -1,0 +1,6 @@
+Artículo Nº10- De la Unidad de Informática del CUNLIMON
+La Unidad de informática del CUNLIMON le corresponderá las siguientes disposiciones:
+a) Dotar a la Dirección Administrativa Financiera de un sistema informático, que garantice de forma segura, confiable, integral y completa, el registro de los activos adquiridos por la institución, reflejando permanentemente el movimiento y su control.
+b) Conservar y administrar lo relativo a las garantías originales de los equipo de cómputo y licencias adquiridas en materia de hardware y software.
+c) Elaborar y suministrar, un informe trimestral de la cantidad, el estado, la ubicación, asignación y distribución de los bienes y dispositivos computacionales, a la Unidad Control de Activos, a la Dirección Administrativa y Financiera y a la Auditoría Interna cuando sea solicitado.
+d) Elaborar y suministrar un reporte mensual de todos los repuestos y bienes recuperados, asimismo del costo de su reparación cuando corresponda del equipo de cómputo. Dichos bienes deberán ser oportunamente reportados para su debida anotación en un registro o inventario de repuestos recuperados, para su debido y posterior control a cargo de la Unidad de Control de Activos.

@@ -1,0 +1,2 @@
+Artículo Nº4- Del Marco Jurídico
+Para todo lo no dispuesto en este artículo se aplicara por analogía las disposiciones de la Ley General de Control Interno, la Ley Contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública y su Reglamento, la Ley de la Administración Financiera de la Republica y de Presupuestos Públicos, la Ley General de la Administración Pública y la Ley de Contratación Administrativa y su Reglamento.

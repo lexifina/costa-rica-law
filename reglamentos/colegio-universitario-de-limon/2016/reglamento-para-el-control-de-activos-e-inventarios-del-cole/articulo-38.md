@@ -1,0 +1,2 @@
+Artículo Nº38- Unidad Contable del CUNLIMON.
+La Unidad de Contabilidad velará porque en los registros contables se incluyan todas las operaciones relacionadas con los activos fijos. Tendrá la responsabilidad de mantener actualizado el Libro Auxiliar de activos y la cuenta Mayor, y mantener el saldo debidamente conciliado con el Registro auxiliar de activos de la unidad control de activos; para tal efecto realizará los movimientos contables respectivos en estricta coordinación con dicha unidad.

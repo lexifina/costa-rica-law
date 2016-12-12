@@ -1,0 +1,2 @@
+Artículo Nº21-Incumplimiento del Plazo del Préstamo.
+En casos de incumplimiento del plazo máximo mencionado, la jefatura correspondiente comunicará tal situación, al encargado de la unidad Control de activos, adjuntando el formulario donde conste el incumplimiento del plazo fijado; a fin de que se realice el trámite del cobro ante la Sección de Planillas mediante rebajo salarial. Según lo dispuesto en el artículo 162 del Reglamento Autónomo del CUNLIMON.

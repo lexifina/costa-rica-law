@@ -1,0 +1,21 @@
+Artículo Nº2- De la clasificación y reconocimiento de los bienes o activos institucionales
+Los bienes institucionales se clasificarán en muebles o inmuebles. Según las NICSP, se adquieren, con el propósito de generar beneficios económicos o un potencial de servicio, para la institución.
+1) Bienes Inmuebles: Comprenden los terrenos, los edificios y demás construcciones que se adhieren a la tierra. El control de éstos, será responsabilidad de la Dirección Administrativa Financiera, con la colaboración de la contabilidad y de un registro auxiliar. La Asesoría Legal informará de las inscripciones, anotaciones, restricciones, entre otros asuntos relacionados que se efectuasen en el registro institucional. Todos, excepto el terreno son depreciables.
+2) Bienes Muebles: Para los efectos del presente reglamento, se entenderá por bienes muebles, aquellos destinados al uso o consumo para alcanzar los objetivos institucionales; se clasifican como sigue:
+2.1 Maquinaria, Equipo y Mobiliario: Se identifican y registran conforme a las normas de la NICSP 17 y se tomará en cuenta los siguientes criterios:
+2.1.1 Que el bien sea tangible y posea una vida útil superior a un año.
+2.1.2 Que no constituya parte permanente de edificios y pueda ser trasladado sin alterar su integridad física.
+2.1.3 Que posea una conformación física que permita su adecuada identificación, mediante placa metálica, grabación, sello, cintas adhesivas o cualquier otro medio tecnológico seguro y confiable.
+2.1.4 Que posea un valor igual o superior correspondiente al 10% del fondo asignado a la caja chica.
+2.1.5. Todos los bienes muebles que cumplan estos criterios, además de los inmuebles (excepto el activo terreno) serán depreciables.
+2.2 Bienes No Depreciables o Activos Menores: Comprenden todas las herramientas, instrumentos, utensilios, accesorios, equipo de uso manual o electrónico que cumplen con criterios de los activos depreciables, pero su valor, sea menor que el 10% pero mayor que el 2% del fondo asignado a la caja chica.
+Estos bienes recibirán un tratamiento especial de activos anotados e identificados en un registro auxiliar, separado de los bienes depreciables; hasta que se determine su reemplazo, desecho o el deterioro físico en cuyo momento se reconoce el gasto, disminuyendo la cuenta del Activo menor por su costo histórico.
+2.3 Gastos del periodo: Se reconocen como gastos del periodo, aquellos bienes que cumplen los siguientes criterios:
+2.3.1. Los beneficios económicos serán consumidos en un año, o su vida útil se extinguirá en un periodo no superior al año.
+2.3.2. Llegan a formar parte de un bien ya existente, pero sin aumentar o variar, la vida útil o el rendimiento, respectivamente, del mismo. Ejemplo: Repuestos que sólo mantienen al bien funcionando, independiente de su costo de adquisición.
+2.3.3. Los bienes cuyo costo de adquisición, es inferior al 2% del fondo asignado a la caja chica, serán reconocidos directamente como un gasto del periodo.
+2.4 Mejoras a un bien existente: Son aquellas erogaciones que afectan, alargando la vida útil o mejorando el rendimiento del bien. Aunque llegan a formar parte inherente del activo existente, su valor se registra y deprecia de forma separada.
+3) Materiales y suministros: Se identifican y registran conforme a las normas de la NICSP 12, sobre inventarios. Corresponden con los materiales, suministros y accesorios de diversa naturaleza, adquiridos para formar parte de los productos o necesarios para suministrar los servicios, ofrecidos por la institución.
+Los materiales y suministros, se reconocen y registran a su costo de adquisición, en el inventario almacenado, reflejándose como parte del activo corriente, la parte que se encuentra disponible; y como gasto la parte que ha sido consumida.
+Cuando no se dispone de un sistema de inventario permanente, al final del período, se recurrirá a un inventario físico, para determinar la parte del inventario que fue consumida durante el período.
+4) Bienes Donados: Corresponden a bienes muebles o inmuebles, materiales adquiridos sin contraprestación de servicios. Se valoran según su valor razonable o al costo, el menor de los dos. Se pueden registrar por separado o como parte del respectivo grupo de activos, previa notación explicativa o al pie, del origen de su condición.

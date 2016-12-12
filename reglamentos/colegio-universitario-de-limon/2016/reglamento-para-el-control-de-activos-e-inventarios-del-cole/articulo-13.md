@@ -1,0 +1,2 @@
+Artículo Nº13- Condición de entrega de activos
+Se prohíbe la entrega de activos que no hayan sido previamente identificados, rotulados y anotados en el Registro Auxiliar de activos o en el sistema informático de activos. El solicitante o funcionario será, igualmente responsable por recibir, retirar bienes que transgredan esta disposición. Su incumplimiento, acarreará la aplicación de las sanciones establecidas en el Capítulo II del reglamento.

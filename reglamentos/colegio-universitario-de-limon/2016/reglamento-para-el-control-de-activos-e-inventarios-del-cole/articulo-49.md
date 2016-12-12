@@ -1,0 +1,2 @@
+Artículo Nº49- De la inobservancia.
+La inobservancia de los deberes y obligaciones establecidas en el presente reglamento por parte de los funcionarios se sancionaran de acuerdo con la gravedad de la falta cometida y el daño consecuentemente ocasionado, para lo cual se tomarán en cuenta las disposiciones contenidas en el capítulo XXIX, del Reglamento Autónomo de organización y servicios del CUNLIMON y la Ley General de Control Interno.
