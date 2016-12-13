@@ -1,0 +1,3 @@
+ARTICULO 42 INHABILITACION DE PARTICIPACION DE LOS COMITES
+CANTONALES DE DEPORTES Y RECREACION
+42.1 El Comité Cantonal de Deporte y Recreación que no realice el pago de los servicios de alimentación que sin justificación mediante los mecanismos que establezca el ICODER, no sean consumidos por los miembros acreditados de su delegación, no podrá participar en los Juegos Deportivos Nacionales. Los montos oficiales del valor del plato, serán presentados a los Comités Cantonales de Deporte y Recreación en la fecha que se estipule para el Congreso General de Delegados, para la Etapa Final de Juegos Deportivos Nacionales.

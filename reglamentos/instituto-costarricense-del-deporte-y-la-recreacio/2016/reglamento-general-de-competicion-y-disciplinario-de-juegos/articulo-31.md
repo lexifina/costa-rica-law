@@ -1,0 +1,8 @@
+ARTÍCULO 31. ADMISIBILIDAD DE LA DENUNCIA
+31.1 El Tribunal Nacional de Primera Instancia deberá constatar el cumplimiento de los
+requisitos de la denuncia dentro de los siguientes cinco días de recibida o en su siguiente sesión en las etapas clasificatorias y en las siguientes tres horas en la etapa final.
+31.2 La falta de algún requisito de fondo será responsabilidad del denunciante, por lo que el Tribunal procederá al trámite de la denuncia o a declararla sin lugar por falta de información primordial para resolver y será archivado sin poderse presentar nueva denuncia sobre el mismo hecho.
+31.3 El Tribunal Nacional de Primera Instancia una vez acogida la denuncia, podrá indicar a la respectiva Federación o Asociación o Ente la conveniencia de suspender el desarrollo de la competencia en vista del caso en estudio, con el fin de evitar posteriores daños y gastos innecesarios.
+31.4 Dará audiencia al denunciado por tres días en las etapas eliminatorias y de tres horas en la etapa final para que se pronuncie sobre los hechos y ofrezca la prueba de descargo que considere pertinente, contestación que deberá contener los formalismos del artículo 32, advirtiéndole que si no contesta, se tendrá por ciertos los hechos denunciados.
+31.5 En lo referente a denuncias por inscripción o alineación indebida de un atleta, la fecha límite para presentación ante el ICODER vence tres días hábiles posteriores a la finalización del evento deportivo.
+31.6 Clasificados los equipos a nivel regional, las denuncias por inscripción o alineación inter regional, tendrán que ser presentadas tres días posteriores a la publicación oficial de las listas emanadas por el ICODER
