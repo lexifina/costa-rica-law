@@ -1,2 +1,5 @@
-Artículo 39.—El personal de auditoría está obligado a cumplir normas elevadas de conducta durante su trabajo y en sus relaciones con otros funcionarios del SENARA. Para preservar la confianza de la sociedad, la conducta de los auditores debe ser irreprochable y estar por encima de toda sospecha.
-(Así reformado mediante acuerdo N° 4279 de la sesión N° 606 del 7 de noviembre de 2011)
+CAPÍTULO IV
+Reglas de conducta
+El personal de la Unidad de Auditoría Interna deberá actuar tomando en cuenta las siguientes reglas de conducta
+Artículo 39.—El personal de auditoría debe conducirse de un modo que promueva la cooperación y las buenas relaciones entre los auditores y dentro de la profesión. El apoyo de la profesión por parte de sus miembros, su cooperación recíproca y el trato justo y equilibrado, constituyen elementos esenciales de la profesionalidad.
+(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 38 al 39)

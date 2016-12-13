@@ -1,2 +1,3 @@
-Artículo 40.—El personal de auditoría no sólo debe esforzarse por ser independiente de la Administración Activa del SENARA y de otros grupos interesados, evitando relaciones con los miembros de Junta Directiva, niveles gerenciales, personal del SENARA y otras personas, que puedan influir, comprometer o amenazar, de hecho o apariencia su capacidad para actuar; sino que también debe ser objetivo al tratar los asuntos y temas sometidos a revisión.
-(Así reformado mediante acuerdo N° 4279 de la sesión N° 606 del 7 de noviembre de 2011)
+Artículo 40.—El personal de auditoría deberá conducirse de un modo que promueva la unidad, la cooperación y las buenas relaciones dentro de la Auditoría.
+(Así reformado por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016)
+(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 39 al 40)

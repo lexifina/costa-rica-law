@@ -1,2 +1,2 @@
-Artículo 55.—El personal de auditoría debe abstenerse de auditar, asesorar o advertir, sobre procesos específicos de las cuales haya sido previamente responsable como funcionario de la administración activa, proveedor u otras relaciones. El plazo de abstención será determinado por el alcance definido para el servicio a prestar.
-(Así reformado mediante acuerdo N° 4279 de la sesión N° 606 del 7 de noviembre de 2011)
+Artículo 55.—Está prohibido para el personal de auditoría, el utilizar su cargo oficial, instalaciones, recursos, sistemas de cómputo, información, datos o servicios del SENARA con propósitos privados, de negocios o personales; o facilitar transacciones indebidas que propicien irregularidades.
+(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 53 al 55)

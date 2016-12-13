@@ -1,4 +1,2 @@
-CAPÍTULO IV
-Reglas de conducta
-El personal de la Unidad de Auditoría Interna deberá actuar tomando en cuenta las siguientes reglas de conducta
-Artículo 38.—El personal de auditoría debe conducirse de un modo que promueva la cooperación y las buenas relaciones entre los auditores y dentro de la profesión. El apoyo de la profesión por parte de sus miembros, su cooperación recíproca y el trato justo y equilibrado, constituyen elementos esenciales de la profesionalidad.
+Artículo 38.—Compromiso ambiental. La gestión de la unidad de Auditoría se ejecutará bajo el criterio de compromiso ambiental asociado al consumo responsable de agua, energía y papel.
+(Así adicionado por acuerdo N° 5343 y publicado en la gaceta N° 239 del 13 de diciembre de 2016)

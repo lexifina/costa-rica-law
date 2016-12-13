@@ -1,1 +1,2 @@
-Artículo 43.—El personal de auditoría no deberá utilizar su cargo oficial con propósitos privados y deberá evitar relaciones que impliquen un riesgo de corrupción o que puedan generar dudas acerca de su objetividad e independencia.
+Artículo 43.—El personal de auditoría debe proteger su independencia y evitar cualquier posible conflicto de intereses, rechazando regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia y su integridad, sin perjuicio del deber de denunciar antes las instancias competentes.
+(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 42 al 43)

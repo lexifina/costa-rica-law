@@ -1,1 +1,2 @@
-Artículo 53.—Está prohibido para el personal de auditoría, el utilizar su cargo oficial, instalaciones, recursos, sistemas de cómputo, información, datos o servicios del SENARA con propósitos privados, de negocios o personales; o facilitar transacciones indebidas que propicien irregularidades.
+Artículo 53.— Está prohibido para el personal de auditoría, recibir regalos o gratificaciones que puedan interpretarse como intentos de influir sobre su independencia o integridad, al darse a cambio de un acto propio de sus funciones o contrario a estas funciones.
+(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 51 al 53)

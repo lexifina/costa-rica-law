@@ -1,0 +1,3 @@
+Artículo 57.—El personal de auditoría deberá abstenerse de auditar, asesorar o advertir sobre procesos específicos de los cuales haya sido previamente responsable como funcionario de la administración activa, de contratación en los que haya sido proveedor o donde existan relaciones que puedan afectar su independencia. El plazo de abstención será determinado por el alcance definido para el servicio a prestar.
+(Así reformado por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016)
+(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 55 al 57)

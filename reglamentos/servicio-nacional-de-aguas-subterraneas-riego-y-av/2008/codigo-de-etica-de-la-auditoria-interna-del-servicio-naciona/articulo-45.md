@@ -1,5 +1,3 @@
-CAPÍTULO V
-Prohibiciones para el personal de la Auditoría Interna del SENARA
-Prohibiciones. Sin perjuicio de las prohibiciones de carácter jurídico, establecidas en leyes y reglamentos, para el personal de auditoría serán aplicables las prohibiciones contenidas en este capítulo.
-Artículo 45.—El personal de Auditoría Interna está inhibido de participar o formar parte de comisiones o comités administrativos, en los cuales se analice o se tomen decisiones de carácter administrativo, o se lleven a cabo acciones de control, excepto en su calidad de asesor, cuando así se solicite o por disposición legal en contrario. El personal de auditoría solo podrá realizar las funciones administrativas necesarias para cumplir con las competencias propias de la auditoría.
-(Así reformado mediante acuerdo N ° 4279 de la sesión N° 606 del 7 de noviembre de 2011)
+Artículo 45.—El personal de auditoría tiene la obligación de actuar en todo momento de manera profesional y de aplicar elevados estándares de calidad en la realización de su trabajo, con objeto de desempeñar sus responsabilidades de manera competente e imparcial, con estricto apego al ordenamiento jurídico y técnico aplicable, de conformidad con las potestades planteadas en el artículo 33 de la Ley General de Control Interno. En ese sentido, no debe llevar a cabo trabajos para los que no posea la competencia profesional necesaria, pudiendo en todo caso solicitar la incorporación de otros profesionales o técnicos en aquellos campos en que no posea esa competencia.
+(Así reformado mediante acuerdo N° 4279 de la sesión N° 606 del 7 de noviembre de 2011)
+(Corrida su numeración por acuerdo N° 5343 y publicado en La Gaceta N° 239 del 13 de diciembre de 2016, que lo traspaso de antiguo artículo 44 al 45)
