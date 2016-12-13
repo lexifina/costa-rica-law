@@ -1,0 +1,5 @@
+ARTICULO 53 DE LA ETAPA FINAL
+53.1 Clasificarán a la etapa final por división, rama y categoría hasta seis atletas, pudiendo clasificar hasta dos por cantón en la misma categoría, rama y división de peso corporal.
+53.2 La Federación o Asociación Nacional organizará al menos un torneo clasificatorio para que los atletas se incorporen al listado de espera de clasificados.
+53.3 El atleta para poder ingresar al listado parcial de clasificados deberá realizar un intento valido tanto en arranque como envión para obtener un total que deberá ser igual o superior a la marca mínima establecida en el artículo anterior.
+53.4 Al concluir todos los torneos clasificatorios, en caso de empate total levantado entre los y las atletas de una misma categoría de peso corporal y para determinar los primeros seis lugares de ambas ramas se decidirá el desempate utilizando la formula Sinclair aprobada por la Federación Internacional de Halterofilia para el ciclo olímpico correspondiente; la cual dará un valor numérico de mayor a menor y así se situarán los atletas. Siempre y cuando cumpla lo estipulado en el artículo 53.1

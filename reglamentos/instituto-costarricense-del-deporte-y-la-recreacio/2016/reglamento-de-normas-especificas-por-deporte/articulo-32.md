@@ -1,0 +1,6 @@
+ARTICULO 32 DE LA INSCRIPCION
+32.1 En el torneo clasificatorio cada Comité Cantonal podrá inscribir un máximo de tres equipos por categoría y rama integrados por un mínimo de tres y un máximo de cinco ciclistas que participarán únicamente como equipo para optar por la clasificación a la etapa final. En las categorías Pre juvenil y Juvenil masculino.
+Deberán estar uniformados de diferentes colores los equipos. Si un ciclista participa en ambas modalidades (Ruta – Montaña) deberá inscribirse en el sistema, como Ciclismo R-M. No duplicar la inscripción.
+32.2 En el torneo clasificatorio cada Comité Cantonal podrá inscribir hasta cinco ciclistas para participar en la clasificación individual por categoría y rama para optar por la clasificación individual en la etapa final. Esto en las categorías Infantil masculino y femenino y Pre juvenil y Juvenil femenino.
+32.3 El Comité Cantonal deberá inscribir obligatoriamente un entrenador, un asistente y podrá inscribir un Mecánico.
+32.4 Cuando un Comité Cantonal presente dos o más equipos en una misma categoría, la combinación de colores y diseños de los uniformes para los dos equipos, deberá distinguirse claramente. En el Congresillo Técnico para la Etapa Final, se deberá presentar el diseño del uniforme a utilizar para su respectivo aval.

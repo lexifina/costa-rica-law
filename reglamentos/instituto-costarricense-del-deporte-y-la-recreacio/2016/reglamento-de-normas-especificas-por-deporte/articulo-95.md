@@ -1,0 +1,6 @@
+ARTICULO 96 DE LA ETAPA FINAL
+95.1 Clasifican a la etapa final un máximo de diez parejas por categoría y rama obtenidas de las etapas clasificatorias. A la etapa final clasificarán un máximo de una pareja por cantón por categoría y rama. De no llegar al tope de las diez parejas podrá clasificar la segunda mejor pareja de un cantón con mejor puntaje. 38
+95.2 Etapa clasificatoria: dos grupos A y B de mínimo cuatro y máximo cinco equipos cada uno. Únicamente el campeón y subcampeón de la edición anterior en caso de clasificarse será sorteada su posición en cada grupo y el resto de los equipos serán ubicados en cada grupo por sorteo. Sólo si faltare uno de los equipos a sembrarse se sembrará el tercer lugar de la edición anterior.
+Los equipos que no clasifiquen a la etapa semifinal en la etapa final se retirarán de las villas al día siguiente de finalizado su proceso clasificatorio.
+b. Etapa semifinal: el primero del grupo A jugará contra el segundo del grupo B e igualmente el segundo del grupo A contra el primero del grupo B.
+c. Etapa final: Los equipos perdedores de la etapa semifinal, jugarán por la tercera y cuarta posición. Los equipos ganadores de la etapa semifinal jugarán por la primera y segunda posición.

@@ -1,0 +1,3 @@
+ARTICULO 73 DE LA INSCRIPCIÓN
+73.1 Cada Comité Cantonal podrá inscribir tantos taekwondistas por categoría, rama y peso como se desee y se deberá inscribir obligatoriamente un entrenador y un asistente cuando la agrupación presente de uno a cinco atletas, y un asistente cada 5 taekwondistas, hasta un tope de 5 asistentes.
+73.2 Los entrenadores y asistentes deben estar certificados por la Federación Costarricense de Taekwondo, por tanto deben estar afiliados a la Federación Costarricense de Taekwondo, cumplir con al menos un curso de capacitación por año, tanto a nivel técnico como de planificación de los principios de aptitud física, ser cinturón negro acreditado por la Comisión Técnica de la FCT y poseer el certificado de Kukkiwon con su debida documentación de la FCT.
