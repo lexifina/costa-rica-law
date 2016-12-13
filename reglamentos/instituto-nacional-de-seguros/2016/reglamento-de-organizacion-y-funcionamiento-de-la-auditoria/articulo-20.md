@@ -1,0 +1,2 @@
+Artículo 20°—Unidad Técnica de Auditoría. Brinda apoyo en las labores administrativas de la dependencia y ejecuta estudios solicitados a la Auditoría sobre validaciones de cumplimiento normativo específico.
+Realiza labores de verificación de que los sistemas institucionales y el archivo permanente de la Auditoría mantengan la última versión oficial de la normativa e incluyan aquella nueva, que sea emitida por la Institución y los Entes Fiscalizadores Externos, que sea utilizada en nuestra labor de fiscalización.

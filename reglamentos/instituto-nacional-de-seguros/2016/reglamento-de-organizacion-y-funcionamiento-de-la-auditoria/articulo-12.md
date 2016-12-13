@@ -1,0 +1,10 @@
+Artículo 12°—Asistencia a Sesiones de Junta Directiva y del Comité de Auditoría Corporativo del Grupo INS. El Auditor interno asesora a la Junta Directiva de la cual depende, así como al Comité de Auditoría Corporativo del Grupo INS. Su asistencia a las reuniones o sesiones de dichos Órganos Colegiados será efectuada bajo las siguientes condiciones:
+i. Asistencia con voz pero sin voto.
+ii. La asistencia regular a las sesiones de Junta Directiva, según invitación de este Organo Colegiado, tal y como se indica en el Acuerdo III de la sesión ordinaria No. 9352 del 05-09-2016.
+iii. La asistencia al Comité de Auditoría Corporativo del Grupo INS, será previa invitación de conformidad con lo que establece el Reglamento de Gobierno Corporativo.
+iv. Se brindará asesoría únicamente en asuntos de su competencia y sin que menoscabe o comprometa su independencia y objetividad en el desarrollo posterior de sus demás competencias.
+v. En el caso concreto de la asesoría al Comité de Auditoría Corporativo del Grupo INS, la asesoría versará sobre aspectos propios de Auditoría Interna.
+vi. Se pedirá y vigilará que la opinión del Auditor o Subauditor Internos conste en las actas respectivas.
+vii. Posibilidad de abstenerse de participar cuando se valore que se ve afectada la independencia y objetividad en el ejercicio de las funciones que se le han asignado por ley a las Auditorías Internas.
+viii. El Auditor o Subauditor Internos tendrán la posibilidad de posponer su opinión, cuando a su criterio y por la complejidad del asunto en discusión, requiera recabar mayores elementos de juicio, sin perjuicio de la potestad del jerarca para decidir de inmediato o postergar su decisión el tiempo que considere prudente o conveniente.
+Ni la presencia ni el silencio del Auditor Interno en las sesiones de Junta Directiva o del Comité de Auditoría Corporativo del Grupo INS releva a dichos Órganos Colegiados de la responsabilidad de respetar el ordenamiento jurídico y técnico en lo que acuerde. No obstante el silencio, ello no impide que el Auditor Interno emita su opinión posteriormente de manera oportuna, sea de forma verbal en otra sesión, o por escrito.

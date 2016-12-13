@@ -1,0 +1,1 @@
+Artículo 40°—Servicios preventivos. Los servicios preventivos comprenden asesoría, advertencia y autorización de libros. La asesoría y la advertencia deben versar sobre asuntos que sean estrictamente de la competencia de la Auditoría Interna y deberán darse sin que se comprometa su independencia y objetividad en el desarrollo posterior de sus competencias.

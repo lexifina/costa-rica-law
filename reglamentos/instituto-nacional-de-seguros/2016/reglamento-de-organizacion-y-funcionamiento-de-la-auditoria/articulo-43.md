@@ -1,0 +1,1 @@
+Artículo 43°—Autorización de libros. La Auditoría Interna autorizará tanto la apertura como el cierre de los libros de Junta Directiva, de Contabilidad y otros necesarios para el fortalecimiento del sistema de control interno, de conformidad con lo señalado en el artículo 22, inciso e) de la Ley General de Control Interno.

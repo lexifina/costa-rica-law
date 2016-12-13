@@ -1,0 +1,1 @@
+Artículo 24°—Deberes del Auditor y Subauditor Internos. El Auditor y el Subauditor Internos deberán cumplir sus funciones con independencia, pericia, debido cuidado profesional, objetividad, profesionalismo, integridad y gestión asesora, haciendo valer sus competencias con independencia funcional y de criterio, y serán vigilantes de que su personal responda de igual manera.

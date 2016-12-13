@@ -1,0 +1,1 @@
+Artículo 47°—Sobre la supervisión de los trabajos. Los trabajos deben ser adecuadamente supervisados por el responsable dentro de la Auditoría, para asegurar el logro de sus objetivos, la calidad del trabajo y el desarrollo profesional del personal.

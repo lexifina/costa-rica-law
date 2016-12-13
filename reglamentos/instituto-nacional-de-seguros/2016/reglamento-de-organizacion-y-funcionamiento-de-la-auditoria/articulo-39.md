@@ -1,0 +1,1 @@
+Artículo 39°—Servicios de Auditoría. Los servicios de auditoría son los referidos a los distintos tipos de auditorías e incluyen auditorías financieras, operativas, informáticas y estudios especiales.
