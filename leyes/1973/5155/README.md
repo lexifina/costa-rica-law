@@ -1,6 +1,6 @@
 # Estatuto de Servicio Judicial
 
-Ley N° 5155 del 1973-01-10. SINALEVI, ficha 5751: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5751&param2=115514&param3=1>.
+Ley N° 5155 del 1973-01-10. SINALEVI, ficha 5751: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=5751&param2=115515&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | 2 de 6 | 1993-05-14 | SINALEVI (6 normas) | 1973-01-10 |
 | 3 de 6 | 1993-05-14 | SINALEVI | 1982-05-31 |
 | 4 de 6 | 2015-04-22 | Sala Constitucional, resolución 5614 (2015-04-22) | 2015-04-22 |
+| 5 de 6 | 2016-12-13 | Sala Constitucional, resolución 18093 (2016-12-13) | 2016-12-13 |
