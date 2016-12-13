@@ -14,3 +14,4 @@ Reforma Código de Ética de la Auditoría Interna del Servicio Nacional de Agua
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-12-16 | la propia norma |
+| 2 | 2016-12-13 | Reglamento 0 (2016-12-13) |
