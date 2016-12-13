@@ -1,9 +1,0 @@
-Artículo 8 bis.—Control de la relación insumo-producto. El beneficiario deberá consignar en la solicitud de ingreso al Régimen, según la actividad productiva del beneficiario, la relación insumo-producto por cada uno de los productos. Para tales efectos, el beneficiario deberá aportar una declaración jurada con base en la información técnica del proceso productivo de la empresa.
-La declaración jurada deberá contener, al menos, la siguiente información:
-a) Detalle de los procesos requeridos para la producción de los bienes objeto del Régimen.
-b) Detalle de los bienes que producirá la empresa al amparo del Régimen con descripción exacta y precisa de las mercancías, incluida la clasificación arancelaria a ocho dígitos.
-c) Detalle de los diferentes insumos requeridos por cada unidad de producto con la descripción exacta y precisa de las mercancías, incluida la clasificación arancelaria a ocho dígitos y la proporción utilizada en cada unidad de producto.
-d) Detalle de los insumos 100% exportación para las empresas que deseen utilizar la modalidad establecida en el inciso IV del artículo 20 del presente reglamento, incluida la clasificación arancelaria a diez dígitos. Para estos efectos PROCOMER trasmitirá a la Dirección esta información.
-Cuando la relación insumo-producto sea objeto de modificación, el beneficiario deberá presentar ante la Gerencia que administra los regímenes especiales de exportación en PROCOMER, una declaración jurada nueva con la relación insumo-producto, en los términos antes indicados. Autorizado lo anterior, la Gerencia deberá comunicarlo, de manera inmediata, por los medios establecidos a la Dirección.
-El Servicio Nacional de Aduanas, en ejercicio de sus competencias deberá ejercer los controles y fiscalizaciones que se consideren pertinentes.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 36726 del 26 de julio de 2011)

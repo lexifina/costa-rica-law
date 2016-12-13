@@ -1,1 +1,0 @@
-Artículo 17.—Vencimiento del plazo de permanencia. El incumplimiento de los plazos indicados, sin que las mercancías hayan sido reexportadas o importadas definitivamente, dará lugar a que la Aduana de Control proceda de conformidad con lo indicado por el artículo 43 del presente Reglamento.

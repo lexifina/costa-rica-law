@@ -1,1 +1,0 @@
-Artículo 25.—Control aduanero de los porcentajes aprobados. Si la autoridad aduanera tuviere indicios de que los porcentajes aprobados no responden a la realidad, informará lo pertinente a PROCOMER, quien deberá resolver lo que corresponda en un plazo de treinta días naturales, sin perjuicio de las acciones que corresponda efectuar a la autoridad aduanera.
