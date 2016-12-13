@@ -5,6 +5,7 @@ i) Diseño de redes públicas: las redes públicas deberán ser diseñadas, de c
 interoperabilidad. Para tal efecto, estarán sujetos a los planes técnicos fundamentales de numeración, señalización, transmisión, sincronización e interconexión, los cuales serán de acatamiento obligatorio para el diseño de la red.
 ii) Suministro de información: presentar a la Sutil los informes y la documentación que esta requiera con las condiciones y la periodicidad que esta indique y que sea ü indispensable para el cumplimiento de las atribuciones y obligaciones que se establecen en la Ley.
 b) Obligaciones de los operadores o proveedores importantes:
+(Nota de Sinalevi: De conformidad con el punto 16 de la resolución RSC-262-2016 del 23 de noviembre de 2016, “Revisión del mercado minorista de telefonía internacional, análisis del grado de competencia en dicho mercado, declaratoria de operadores importantes e imposición de obligaciones”, se indicó eliminar el servicio minorista de telefonía internacional de la lista de mercados relevantes sujetos de regulación ex-ante, en los términos de lo definido en el artículo 75 inciso b) de la Ley7593.))
 i. Hacer pública la información que esta solicite, la cual deberá ser suficiente, clara, completa y precisa.
 ii. Mantener contabilidades de costos separadas para cada servicio, de acuerdo con los reglamentos.
 iii. Abstenerse de realizar las prácticas monopolísticas señaladas en el régimen sectorial de competencia correspondiente o en la Ley de promoción de la competencia y defensa efectiva del consumidor.
