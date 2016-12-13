@@ -1,0 +1,3 @@
+BANCO POPULAR Y DESARROLLO COMUNAL
+Modificación al artículo 12 del Reglamento para el Pago de Comisiones a los Agentes de Seguros, Promotores y Pago de Servicios Auxiliares:
+Artículo 12. Forma de pago de los Agentes de Seguros. Por la prestación de sus servicios, los Agentes de Seguros estarán sujetos a la modalidad de remuneración variable, al amparo del Reglamento de Clasificación y Valoración de puestos del Conglomerado Financiero del Banco Popular y Desarrollo Comunal que excepciona de la política de homologación salarial al Agente de Seguros. Dicha remuneración variable estará compuesta por un salario base mensual más un esquema de comisiones; y ambos rubros salariales serán establecidos por la Gerencia General de Popular Sociedad Agencia de Seguros S. A.
