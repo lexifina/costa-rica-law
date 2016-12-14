@@ -14,3 +14,4 @@ Reglamento Interior de Funcionamiento de la Plaza Rising Sun ubicada entre las a
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-14 | la propia norma |
+| 2 | 2016-12-14 | Reglamento municipal 68 (2016-07-27) |

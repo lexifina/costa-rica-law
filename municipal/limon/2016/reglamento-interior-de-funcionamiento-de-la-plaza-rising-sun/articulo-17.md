@@ -1,1 +1,3 @@
 Artículo 17. No se permitirán en forma alguna la cesión parcial o total, así como el subarriendo o traspaso respectivo del área o local concesionado y será considerado causal de rescisión del contrato. El permiso de uso en precario no otorga derecho alguno a favor del permisionario; siendo el local siempre propiedad municipal. A los fines de revocar los mismos se atenderá lo dispuesto en la Ley General de la Administración Pública.
+La transferencia o traspaso de la patente o concesión solo procederá previa autorización expresa del Concejo Municipal.
+(Así adicionado el párrafo anterior en sesión N° 068 del 27 de julio de 2016)
