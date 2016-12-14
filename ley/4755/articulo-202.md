@@ -1,3 +1,9 @@
-Artículo 202.- Vigencia. Las disposiciones de este Código son de orden público y excepción hecha de los casos especialmente mencionados en los artículos transitorios, rigen a partir del 1º de julio de 1971.
-(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 170 al actual)
-(Así corrida su numeración por el artículo 2° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de fortalecimiento de la Gestión Tributaria", que lo traspasó del antiguo artículo 179 al 202)
+CAPÍTULO IV
+Ejecución judicial
+(Así adicionado el capítulo anterior por el artículo 17 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)
+Artículo 202.- Proceso de ejecución judicial. El proceso de ejecución judicial será el proceso monitorio regulado por la Ley N.º 8624, Ley de Cobro Judicial, de 1 de noviembre de 2007, a cargo de los juzgados civiles especializados o no en el cobro de obligaciones dinerarias, del domicilio del demandado, sin importar la cuantía con las siguientes excepciones:
+a) No existirá el trámite de citación de partes para sentencia. Si el ejecutado no se opusiera, dentro del término correspondiente, el tribunal respectivo declarará con lugar la demanda y ordenará continuar la ejecución, por medio de resolución razonada que no requerirá las formalidades de sentencia.
+b) Para decretar embargos preventivos no deberá realizarse depósito alguno de garantía.
+c) Solo se admitirá la oposición vía incidental que se funde en la falta de exigibilidad, el pago o la prescripción.
+d) Los notificadores, peritos y ejecutores del proceso de ejecución judicial deberán desempeñar su cargo de forma obligatoria, sin necesidad de depósito alguno por honorarios, los cuales se girarán del producto de los bienes embargados, una vez cubiertos el crédito, los intereses y las costas y serán siempre a cargo del accionado. El juez no levantará el embargo hasta tanto no estén cubiertos dichos honorarios. Los notificadores, peritos y ejecutores que no cumplan con la obligación precedente se harán acreedores de una sanción equivalente a un salario base, cuya tramitación será de competencia del director de Adeudos Estatales de la Dirección General de Hacienda.
+(Así adicionado por el artículo 17 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

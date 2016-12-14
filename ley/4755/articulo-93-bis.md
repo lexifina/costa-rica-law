@@ -1,0 +1,3 @@
+Artículo 93 bis.- Falta al deber de probidad. Las conductas de los funcionarios públicos, tipificadas en los artículos 94, 95, 96 y 97 de este Código, serán consideradas como faltas graves y serán sancionadas con el despido sin responsabilidad patronal, con independencia de las sanciones penales aplicables.
+En todos los supuestos citados, la Administración Pública competente se encuentra facultada para suspender al funcionario infractor, mientras se tramita el proceso de gestión de despido, así como en la obligación de presentar la denuncia correspondiente al Ministerio Público.
+(Así adicionado por el artículo 16 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

@@ -1,3 +1,5 @@
-Artículo 200.- Honorarios abogados de la Oficina de Cobros. Los honorarios de los abogados de la Oficina de Cobros se deben regir por lo que dispone el artículo 100 de la Ley Reguladora de la Jurisdicción Contencioso-Administrativa.
-(Así corregida su numeración por el artículo 10 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995, que lo traspasó del antiguo 168 al actual)
-(Así corrida su numeración por el artículo 2° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de fortalecimiento de la Gestión Tributaria", que lo traspasó del antiguo artículo 177 al 200)
+CAPÍTULO III
+Dación en pago y remate electrónico
+(Así adicionado el capítulo anterior por el artículo 17 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)
+Artículo 200.- Autorización dación en pago. Se autoriza al Ministerio de Hacienda para que reciba, en pago de tributos administrados por la Dirección General de Tributación o la Dirección General de Aduanas, bienes muebles o inmuebles que ofrezcan los deudores, previo avalúo por parte de la Dirección General de Tributación y según recomendación que realice la Dirección General de Hacienda, en que se verifique la existencia de un plan de aprovechamiento de dichos bienes por parte de alguna institución del Poder Central, o posibilidad de rematarlos mediante el procedimiento de remate electrónico. El Ministerio de Hacienda reglamentará lo correspondiente a este procedimiento.
+(Así adicionado por el artículo 17 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

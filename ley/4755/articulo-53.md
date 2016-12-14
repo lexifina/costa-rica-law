@@ -6,6 +6,8 @@ c) El reconocimiento expreso de la obligación, por parte del deudor.
 d) El pedido de aplazamientos y fraccionamientos de pago.
 e) La notificación de los actos administrativos o jurisdiccionales tendentes a ejecutar el cobro de la deuda.
 f) La interposición de toda petición o reclamo, en los términos dispuestos en el artículo 102 del presente Código.
+g) Se entenderá por no interrumpida la prescripción, si el Ministerio Público no presenta formal acusación o se dicta sentencia de sobreseimiento a favor del contribuyente, en un plazo máximo de cinco años.
+(Así adicionado el inciso anterior por el artículo 16 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)
 Interrumpida la prescripción no se considera el tiempo transcurrido con anterioridad y el término comienza a computarse de nuevo a partir del 1 de enero del año calendario siguiente a aquel en el que se produjo la interrupción.
 El cómputo de la prescripción para determinar la obligación tributaria se suspende por la interposición de la denuncia por el presunto delito de fraude a la Hacienda Pública, establecido en el artículo 92 de este Código, hasta que dicho proceso se dé por terminado.
 (Así reformado por el artículo 1° de la ley N° 9069 del 10 de setiembre del 2012, "Ley de Fortalecimiento de la Gestión Tributaria")
