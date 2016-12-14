@@ -1,0 +1,8 @@
+MUNICIPALIDAD DEL CANTÓN CENTRAL DE LIMÓN
+REGLAMENTO INTERIOR DE FUNCIONAMIENTO DE LA PLAZA RISING SUN
+Ubicado entre las avenidas 3 y 4
+El Concejo Municipal de la Municipalidad de Limón en uso de las facultades y competencias que les otorga el artículo 170 de la Constitución Política y el artículo 13 incisos c) y d) del Código Municipal, emiten el siguiente
+CAPÍTULO l. DISPOSICIONES
+GENERALES
+Artículo 1.- El presente tiene como objetivo fundamental acatar la Resolución de la Sala Constitucional Nº. 9168-11 que dice en lo que interesa: "VENTAS INFORMALES. SE ACUSA DESORDEN DE VENTAS INFORMALES EN LIMON. Alegan los recurrentes que en Limón los peatones no pueden transitar por las aceras en virtud de las ventas callejeras, situación que tolera la Municipalidad. Indican que las autoridades municipales no respetan el reglamento y colocan vehículos oficiales en el boulevard y los comerciantes colocan rótulos en espacios no permitidos, lo que vulnera sus derechos fundamentales. Se declara parcialmente con lugar el recurso. Se ordena al Alcalde Municipal y al Presidente Municipal, ambos de la Municipalidad del Cantón Central de Limón así como la Directora del Área Rectora de Salud Limón o a quienes ocupen esos cargos de manera coordinada tomar las medidas necesarias para que dentro del plazo máximo de dos meses contado a partir de la comunicación de esta sentencia, las actividades de ventas informales que se realicen dentro de su jurisdicción -en cuanto sean permitidas - , se lleven a cabo con el cumplimiento de todos los permisos. CL Parcial( ... )."
+El presente Reglamento regulará lo relativo a todos los vendedores que operen y sean trasladados en el futuro a la Plaza Rising Sun.

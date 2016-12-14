@@ -1,0 +1,1 @@
+Artículo 8. Los permisionarios no almacenarán tener o vender en sus locales sustancias o productos inflamables y lo explosivos o en estado de descomposición a excepción del gas de cocina en las sodas.

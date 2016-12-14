@@ -1,0 +1,1 @@
+Artículo 2. Se denomina Rising Sun a efecto de este reglamento, el lugar acondicionado para que pueda expender sus artículos, fundamentalmente el vendedor ambulante y estacionario que actualmente atiborran el Distrito Primero del Cantón Central de Limón.

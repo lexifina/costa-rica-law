@@ -1,0 +1,1 @@
+Artículo 19. Las resoluciones municipales que ordenen la revocatoria del permiso de uso en precario por falta de pago sea de la patente o el alquiler del área o local no tendrá recurso alguno, salvo excepciones de pago.

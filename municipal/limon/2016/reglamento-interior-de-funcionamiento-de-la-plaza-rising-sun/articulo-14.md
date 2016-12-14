@@ -1,0 +1,2 @@
+Artículos 14. Se concederá únicamente un permiso por núcleo familiar, en caso de fallecimiento o incapacidad que prive al permisionario de mantener su condición como tal el conyugue, compañera (o) o alguno de sus hijos deberá solicitar una nueva patente en el término de 2 meses.
+La Administración de la Plaza levantará un expediente con los nuevos documentos; a los fines de valorar sí dicha solicitud es procedente o no.
