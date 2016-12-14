@@ -1,0 +1,1 @@
+Artículo 34.-Formalización de la contratación. Los oferentes elegidos firmarán un contrato con la Municipalidad, así como cualquier otro documento que requiera la Institución, según las regulaciones establecidas en la Ley de Contratación Administrativa y su reglamento.
