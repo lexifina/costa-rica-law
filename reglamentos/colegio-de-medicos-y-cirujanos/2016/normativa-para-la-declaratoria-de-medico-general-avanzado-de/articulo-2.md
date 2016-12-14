@@ -1,0 +1,6 @@
+Artículo 2°—Requisitos: Podrá hacer la solicitud de nombramiento como Médico General Avanzado, el Médico y Cirujano, debidamente inscrito y autorizado por el Colegio de Médicos y Cirujanos, que demuestre, el cabal cumplimiento de los siguientes requisitos:
+a) Haber realizado un mínimo 5 años de práctica continua supervisada, en un área especializada de un centro hospitalario. Lo anterior deberá presentarse debidamente certificado por el Director y el Jefe del Servicio del centro de Salud donde realizó la actividad.
+Si al momento de presentar la solicitud del reconocimiento, el médico no estuviere activo en la práctica especializada, pero cumple con el requisito anterior, la Junta de Gobierno hará el reconocimiento, siempre y cuando no haya suspendido la práctica especializada por más de dieciocho meses consecutivos.
+b) En caso de que los años de práctica se desarrollen en áreas quirúrgicas; se deberá aportar una certificación de la descripción y el número de procedimientos quirúrgicos en los cuales participó, ya sea como asistente o como cirujano principal.
+c) Certificación por parte del departamento de Recursos Humanos del centro hospitalario donde realizó las labores especializadas supervisadas, así como el periodo en el cual estuvo desempeñando dicha función.
+d) Cubrir el costo que establezca la Junta de Gobierno para generar dicho reconocimiento.

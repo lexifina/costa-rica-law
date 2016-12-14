@@ -1,0 +1,1 @@
+Artículo 4°—Ámbito de Reconocimiento. Una vez aprobado el reconocimiento, por parte de la Junta de Gobierno del Colegio de Médicos y Cirujanos de Costa Rica, se entregará un diploma en el cual se indicará el reconocimiento otorgado, además se indicará expresamente el área práctica de la especialidad que corresponda.

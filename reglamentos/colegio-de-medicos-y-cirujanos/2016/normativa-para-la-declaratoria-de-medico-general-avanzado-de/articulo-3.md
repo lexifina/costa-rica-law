@@ -1,0 +1,4 @@
+Artículo 3°—Procedimiento de Nombramiento. Para el reconocimiento como Médico General Avanzado, se deberá seguir el siguiente procedimiento:
+1. El interesado deberá presentar una solicitud por escrito, ante el Departamento de Dirección Académica de esta corporación y aportará la totalidad de los requisitos aquí establecidos.
+2. El Departamento de Dirección Académica en coordinación con el Departamento Legal de esta corporación, analizarán cada una de las solicitudes y el cumplimiento de los requisitos. Posteriormente enviarán una recomendación a la Junta de Gobierno del Colegio de Médicos y Cirujanos, indicando si el solicitante cumple o no con las disposiciones establecidas en este Reglamento.
+3. Corresponderá a la Junta de Gobierno, analizar los informes recomendativos que se indican en el inciso anterior y determinará la aceptación o rechazo de las solicitudes de reconocimiento como Médico General Avanzado.
