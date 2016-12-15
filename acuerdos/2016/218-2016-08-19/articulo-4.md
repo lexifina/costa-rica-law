@@ -1,0 +1,3 @@
+Artículo 4. Adiciones y modificaciones al Anexo 3 del Acuerdo “SGV-A-158 Guía para la Elaboración y Remisión de Prospectos de Fondos de Inversión”
+a)Se modifica la descripción del campo “Historial de la cartera” del Anexo 3 del Acuerdo SGV-A-158 para que en adelante se lea así:
+Historial de la cartera | (Adjuntar el historial de la cartera de activos de conformidad con lo establecido en la regulación vigente. Si la cartera tuviera una antigüedad menor a dos años deberá adjuntarse, el historial de la cartera del originador por el mismo periodo, de conformidad con los lineamientos emitidos. En el caso de otros tipos de activos deberán aportarse los estudios correspondientes e información histórica con lo establecido en la regulación vigente)
