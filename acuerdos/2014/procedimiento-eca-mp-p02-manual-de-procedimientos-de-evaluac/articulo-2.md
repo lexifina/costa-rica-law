@@ -1,15 +1,15 @@
 2 REQUISITOS GENERALES PARA LA ACREDITACIÓN DE CUALQUIER TIPO DE OEC
-2.1 Haber realizado al menos una auditoría interna a todo su sistema de gestión, antes de entregar la solicitud de acreditación inicial, que incluya todas las actividades dentro del alcance a acreditar. Para el caso de procesos de ampliación, la auditoría debe contener como mínimo la verificación y evaluación de los requisitos técnicos aplicables al tipo de actividad y que se auditen todas las actividades para las cuales se solicita la ampliación.
+2.1 Haber realizado al menos una auditoría interna a todo su sistema de gestión, antes de entregar la solicitud de acreditación inicial, que incluya todas las actividades de evaluación de la conformidad sujetas a acreditación. Para el caso de procesos de ampliación, la auditoría debe contener como mínimo la verificación y evaluación de los requisitos técnicos aplicables al tipo de actividad y que se auditen todas las actividades de evaluación de la conformidad para las cuales se solicita la ampliación.
 2.2 Los OEC acreditados deben considerar como parte de su proceso de auditoría los siguientes criterios:
 2.3 Las auditorías deben realizarse como mínimo una al año y de forma tal que no se excedan 12 meses a partir de la auditoría anterior. Si el OEC realiza auditorías de manera fraccionada, la siguiente auditoría no debe exceder 12 meses a partir de la realización de la actividad de auditoría anterior.
-2.3.1 Debe documentarse en el informe de auditoría las actividades dentro del alcance de acreditación que fueron auditadas.
-2.3.2 El OEC debe auditar todas las actividades del alcance acreditado, para lo cual deben distribuirse las mismas para que al menos una vez en el ciclo de reevaluación todas las actividades acreditadas hayan sido auditadas.
+2.3.1 Debe documentarse en el informe de auditoría las actividades de evaluación de la conformidad sujetas a acreditación o acreditadas, que fueron auditadas.
+2.3.2 El OEC debe auditar todas las actividades de evaluación de la conformidad incluidas en el alcance acreditado, para lo cual deben distribuirse las mismas para que al menos una vez en el ciclo de reevaluación todas las actividades acreditadas hayan sido auditadas.
 2.4 Haber realizado al menos una revisión por la dirección de todo su sistema, antes de entregar la solicitud de acreditación.
 2.5 Las revisiones por la dirección deben realizarse como mínimo una al año y de forma tal que no se excedan 12 meses a partir de la revisión por la dirección anterior. Si el OEC realiza revisiones por la dirección de manera fraccionada debe completarse en 12 meses.
-2.6 Los documentos presentados ante el ECA, con las solicitudes o para las evaluaciones de seguimiento y reevaluación, deben presentarse sin protección contra cambios e impresión y sin clave de acceso, de lo contrario se considera incompleta la información entregada.
+2.6 Los documentos presentados ante el ECA, con las solicitudes o para las evaluaciones de seguimiento y reevaluación, que cuente con clave de protección contra cambios e impresión, esta clave de acceso debe ser entregada al ECA, de lo contrario se considera incompleta la información entregada.
 2.7 Si por causas imputables al OEC, el ECA no puede realizar la admisibilidad de la solicitud, en los plazos indicados en el manual de procedimientos, se procede al archivo del expediente del proceso inicial o ampliación.
 2.8 Los cambios de ingreso o salida que ocurran en el personal del OEC, deben informarse al ECA utilizando, los siguientes formularios:
-a) ECA-MP-P02-F01 Cambios de personal, para organismos de inspección y laboratorios.
+a) ECA-MP-P02-F01 Cambios de personal, este aplica para organismos de inspección, laboratorios y proveedores de ensayos de aptitud.
 b) ECA-MP-P02-F02 Listado de personal para organismos de certificación de sistemas.
 c) ECA-MP-P02-F03 Listado de personal para organismos de certificación de producto.
 d) ECA-MP-P02-F04 Listado de personal para organismos de certificación de personas.
