@@ -14,3 +14,4 @@ Reforma Procedimiento ECA-MP-P04 Manual de procedimientos de evaluación y acred
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-30 | la propia norma |
+| 2 | 2016-12-15 | Acuerdo 12 (2016-12-15) |
