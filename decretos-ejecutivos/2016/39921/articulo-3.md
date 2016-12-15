@@ -1,0 +1,1 @@
+Artículo 3.- En todo lo demás, el Decreto Ejecutivo No. 29668-C, Declaratoria e Incorporación al Patrimonio Histórico-Arquitectónico de Costa Rica del inmueble conocido como Iglesia de Loma Larga de Corralillo, del 10 de julio de 2001, publicado en el Diario Oficial La Gaceta No. 151 del 8 de agosto de 2001, permanece incolume.
