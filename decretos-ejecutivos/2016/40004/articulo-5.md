@@ -1,0 +1,1 @@
+Artículo.5- El proceso de distribución y asignación de órganos y tejidos comenzará ante la existencia de un potencial donante efectivo, una vez que se hayan cumplido los pasos operativos de verificación de consentimiento de donación, certificación de muerte encefálica, entrevista familiar, entre otros, y se haya determinado qué órganos son viables para ser trasplantados.

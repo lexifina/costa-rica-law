@@ -1,0 +1,1 @@
+Artículo.2- El ordenamiento numérico de la lista nacional de receptores se establecerá en cada operativo de donación, una vez conocidas las características de compatibilidad entre el donante/receptor y el lugar del país donde se procura el órgano.

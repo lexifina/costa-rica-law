@@ -1,0 +1,10 @@
+Artículo.24- Variable MELD Na+.
+A fin de lograr una categorización más exacta del riesgo de mortalidad en la lista nacional de receptores, los pacientes de dieciocho (18) años o más, susceptibles de ser tratados mediante trasplante hepático, no incluidos en la situación de emergencia, serán inscritos en la lista nacional de receptores mediante la asignación de un puntaje de riesgo de mortalidad calculado de acuerdo al sistema MELD Na+ (Modelo para Enfermedad Hepática Terminal).
+Este sistema de puntuación se basa en la siguiente fórmula: Puntaje MELD Na+ = [0,957 x log creatinina en (mg/dl) + 0.378 x log bilirrubina (mg/dl) + 1.120 x log INR + 0,643] multiplicar el puntaje obtenido por diez (x 10) y expresar el resultado en números enteros. También se solicitará el valor de Na+ sérico en cada inscripción o actualización de manera obligatoria.
+De acuerdo a la situación clínica de emergencia o al puntaje de MELD Na+ asignado a cada paciente en lista, la misma deberá ser actualizada por el médico tratante del establecimiento de salud, de acuerdo al siguiente esquema:
+a) Emergencia: Cada siete (7) días laboratorio del establecimiento de salud, con antigüedad menor de cuarenta y ocho (48) horas.
+b) MELD Na+ veinte (20) o mayor: Cada doce (12) días laboratorio del establecimiento de salud, con antigüedad menor de 48 horas.
+c) MELD Na+ quince (15) - diecinueve (19): Cada mes laboratorio del establecimiento de salud, con antigüedad menor de siete (7) días.
+d) MELD Na+ once (11) - catorce (14): Cada tres (3) meses laboratorio del establecimiento de salud con antigüedad menor de catorce (14) días.
+e) MELD Na+ diez (10) o menor: Cada seis (6) meses laboratorio del establecimiento de salud con antigüedad menor de treinta (30) días.
+El esquema precedente establece la mínima actualización que se debe presentar, quedando a criterio del profesional de la salud autorizado, la actualización con una frecuencia mayor a la requerida. Si el paciente no es actualizado de acuerdo a los plazos indicados para cada situación establecida por puntaje de MELD Na+, el mismo será reasignado a su menor puntaje de MELD Na+ previo.

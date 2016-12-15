@@ -1,0 +1,1 @@
+Artículo.16- Una vez aceptado el órgano, el coordinador del establecimiento de salud o del establecimiento institucional, en coordinación con los equipos de trasplante, acordarán la hora de evisceración, tomando en cuenta el tiempo transcurrido desde el diagnóstico de muerte encefálica, así como los aspectos logísticos.
