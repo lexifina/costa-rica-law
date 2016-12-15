@@ -14,3 +14,4 @@ Procedimiento ECA-MP-P11 Manual de procedimientos de evaluación y acreditación
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-08-11 | la propia norma |
+| 2 | 2016-12-15 | Acuerdo 12 (2016-12-15) |
