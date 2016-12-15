@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa del IMAS
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-03-10 | la propia norma |
+| 2 | 2016-12-15 | Reglamento 0 (2016-12-15) |
