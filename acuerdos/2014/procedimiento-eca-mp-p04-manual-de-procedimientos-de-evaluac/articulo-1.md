@@ -9,17 +9,17 @@ Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha
 ECA-MP-P04 Solicitud de a c r e d i t a c i ó n y análisis de recursos | N.A | 01 | A partir de su publicación en el Diario Oficial La Gaceta. | Un mes para la aplicación de este proc edimi ent o a partir de su publicación en el Diario Oficial La Gaceta.
 Todos los documentos descritos se encuentran a disposición de los interesados en nuestra página electrónica www.eca.or.cr/ http://www.eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad y en las oficinas centrales del ECA ubicadas en Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
 San José, 30 de junio del 2014.
-(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 166 del 30 de agosto del 2016 donde se actualiza la versión 02 existente y se publica la versión 03, por lo que se reproduce a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 3 del 4 de enero del 2017 donde se actualiza la versión 03 existente y se publica la versión 0, por lo que se reproduce a continuación:)
 [imagen]
 TABLA DE CONTENIDO
 1 SOLICITUD DE ACREDITACIÓN INICIAL O SOLICITUD DE AMPLIACIÓN ............................ 1
-2 ANÁLISIS DE RECURSOS PARA PROCESOS INICIALES Y AMPLIACIONES ....................... 3
-3 DESIGNACIÓN DEL EQUIPO EVALUADOR ............................................................................ 4
+2 ANÁLISIS DE RECURSOS PARA PROCESOS INICIALES Y AMPLIACIONES ....................... 4
+3 DESIGNACIÓN DEL EQUIPO EVALUADOR ............................................................................ 5
 4 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 6
 5 TRANSITORIO .......................................................................................................................... 6
 1 SOLICITUD DE ACREDITACIÓN INICIAL O SOLICITUD DE AMPLIACIÓN
-1.1 Cuando un OEC desea acreditarse por primera vez o desea acreditar un tipo de actividad de acreditación diferente, debe presentar una solicitud inicial.
-Nota1. Actividades de acreditación son:
+1.1 Cuando un OEC desea acreditarse por primera vez o desea acreditar un tipo de actividad de evaluación de la conformidad diferente, debe presentar una solicitud inicial.
+Nota1. Actividades de evaluación de la conformidad son:
  Ensayo, incluyendo análisis clínicos/médicos.
  Calibración
  Ensayos de Aptitud
@@ -27,6 +27,7 @@ Nota1. Actividades de acreditación son:
  Certificación de Producto
  Certificación de Sistemas de Gestión (en todos los sub alcances que ECA establezca.)
  Certificación de Personas
+ Ensayos de Aptitud
  Validación y Verificación de gases de efecto invernadero
 Nota 2. Las solicitudes de acreditación se encuentran disponibles en la página electrónica del ECA.
 1.2 En los casos que un OEC acreditado desee ampliar su alcance de acreditación para la misma actividad de acreditación ya acreditada debe completar una solicitud de ampliación.
@@ -41,6 +42,8 @@ Organismos de certificación de sistemas | ECA-MP-P04-F09 Solicitud de acreditac
 Organismos de certificación de productos | ECA-MP-P04-F11 Solicitud de acreditación inicial para organismos de certificación de producto. | ECA-MP-P04-F12: Solicitud de acreditación para ampliación del alcance de acreditación para organismos de certificación de producto
 Organismos de certificación de personas | ECA-MP-P04-F13 Solicitud de acreditación inicial para organismos de certificación de personas. | ECA-MP-P04-F14 Solicitud de acreditación para ampliación del alcance de acreditación para organismos de certificación de personas.
 Organismos validadores/verificadores de gases de efecto invernadero. | ECA-MP-P04-F15 Solicitud de acreditación inicial organismos validadores/ verificadores de gases de efecto invernadero en INTE/ISO 14065. | ECA-MP-P04-F16: Solicitud de acreditación para la ampliación del alcance de acreditación de organismos validadores/ verificadores de gases de efecto invernadero EN INTE/ISO 14065
+Proveedores de ensayos de | ECA-MP-P04-F28 Solicitud de | ECA-MP-P04-F29 Solicitud de
+aptitud | acreditación inicial para proveedores de ensayos de aptitud en INTE/ISO 17034. | acreditación para proveedores de ensayos de aptitud en INTE/ISO 17034.
 1.4 El OEC presenta a la Unidad de Logística la solicitud de acreditación con la información requerida, los anexos y comprobante de pago inicial conforme a las tarifas vigentes publicadas en el Diario Oficial La Gaceta y en la página web del ECA www.eca.or.cr o mediante la plataforma SIGECA.
 1.5 La Unidad de Logística revisa la solicitud (inicial o ampliación) con base en la lista de verificación de cada área de acreditación, crea el expediente asignándole un número conforme al orden de presentación, para lo cual cuenta con 3 días hábiles siguientes de la presentación.
 1.6 La asignación del número de expediente por parte de la Unidad de Logística se realiza bajo el siguiente formato: XX-NNN, donde XX es el tipo de OEC de acuerdo al cuadro 1, NNN es el consecutivo de expedientes de cada Secretaría de Acreditación. Por ejemplo para un laboratorio de ensayo que presenta la solicitud inicial y que sea el primero en su tipo de OEC en presentarla ante el ECA, el código del expediente sería LE-001.
@@ -53,6 +56,7 @@ Organismos de Certificación de Sistemas de Gestión | OCSG
 Organismos de Certificación de Producto | OCP
 Organismos de Certificación de Personas | OCH
 Organismos Validadores/Verificadores de GEI | OV/V
+Proveedor de Ensayos de Aptitud | PEA
 1.7 Cuando se presente una solicitud de acreditación inicial o de ampliación y se encuentra que la información suministrada no es la adecuada o se omita el envío de algún documento o no se presente el comprobante de pago correspondiente, la Unidad de Logística, mediante el formulario ECA-MP-P04-F18 Solicitud para subsanar deficiencias a la solicitud de acreditación o la plataforma SIGECA, requiere al OEC que envíe las correcciones en un plazo no mayor a 10 días hábiles. El OEC cuenta con 2 oportunidades para corregir las deficiencias encontradas.
 1.8 Para la revisión de la subsanación de la solicitud presentada por el OEC, la Unidad de Logística cuenta con un plazo de 3 días hábiles.
 1.9 En caso de que el OEC no subsane correctamente durante el lapso otorgado, la Unidad de Logística comunica a la Secretaría de Acreditación respectiva, quien procede a cerrar el expediente e informar al OEC.
@@ -65,6 +69,7 @@ Nota: Requisitos adicionales se refiere a aplicaciones de los documentos normati
 2.3 Para la realización del ECA-MP-P04-F27 Análisis de recursos, la Secretaría de Acreditación puede consultar con el OEC, expertos del Comité Asesor u otros expertos técnicos que considere necesarios, respetando los principios de confidencialidad establecidos por el ECA.
 2.4 En todos los casos que no se pueda dar una respuesta oportuna al OEC, este debe mantenerse informado de las gestiones realizadas y la fecha posible para iniciar el servicio. Además, de común acuerdo con el OEC, se pueden dar admisibilidades parciales de la solicitud de acreditación inicial o ampliación, para las áreas en las que se cuente con la competencia técnica requerida.
 2.5 Se debe haber realizado todo el análisis indicado en ECA-MP-P04-F27 Análisis de recursos, antes de seleccionar a los candidatos del equipo evaluador y antes de continuar con el proceso de admisibilidad descrito en el ECA-MP-P05. Si se dan admisibilidades parciales se debe completar un ECA-MP-P04-F27 para cada proceso.
+2.6 En cualquier momento del proceso de solicitud o de evaluación, si hay pruebas de comportamiento fraudulento, si el OEC proporciona intencionalmente información falsa o si el OEC oculta información, el ECA debe rechazar la solicitud de acreditación inicial o de ampliación..
 3 DESIGNACIÓN DEL EQUIPO EVALUADOR
 3.1 El equipo evaluador se conforma en función del grado de la complejidad de la evaluación a realizar.
 3.2 El equipo evaluador está conformado por personas con experiencia en la norma a acreditar y con experiencia técnica relacionada en el alcance de acreditación.
@@ -88,7 +93,7 @@ g. La necesidad de enviar evaluadores en formación como parte del equipo evalua
 h. Aspectos de logística relacionados con traslados, viáticos, uso de equipos y hospedaje del equipo evaluador.
 i. Evaluación de personal responsable de hacer auditorías a servicios subcontratados o proveedores de calibración.
 4 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MP-P04
-Refiérase a la solicitud de elaboración o modificación del documento 2016 – 112
-Observaciones: Se eliminan referencias de responsabilidades, las cuales se describen en cada inciso del documento.
+Refiérase a la solicitud de elaboración o modificación del documento 2016 – 166
+Observaciones: Se subrayan cambios en el documento. Se incluye ensayos de aptitud en 1.1. Se adicionan la referencia a proveedores de ensayos de aptitud en el cuadro 1 y 2. Se incorpora el requisito 2.6 para advertir al OEC sobre las consecuencias de presentar información falsa.
 5 TRANSITORIO
 No aplica.
