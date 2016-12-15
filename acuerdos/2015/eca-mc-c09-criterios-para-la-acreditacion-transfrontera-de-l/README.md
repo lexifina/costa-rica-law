@@ -14,3 +14,4 @@ ECA-MC-C09 Criterios para la acreditación transfrontera de laboratorios y Organ
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-06-19 | la propia norma |
+| 2 | 2016-12-15 | Acuerdo 12 (2016-12-15) |
