@@ -1,0 +1,1 @@
+Artículo 3o- Deróguense los acápites 3.1, 7.4, 7.7 y 9.1.4 g) del artículo Io del Decreto Ejecutivo N° 36134-S del 10 de mayo del 2010 “Reglamento RTCR 436:2009 Suplementos a la Dieta. Requisitos de Registro Sanitario, Importación, Desalmacenaje, Etiquetado y Verificación”, publicado en La Gaceta N° 186 del 24 de setiembre del 2010.
