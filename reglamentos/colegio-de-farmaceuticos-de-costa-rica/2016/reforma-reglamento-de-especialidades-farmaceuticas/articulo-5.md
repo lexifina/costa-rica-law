@@ -1,0 +1,2 @@
+Artículo 5. Refórmese el artículo 6, para que en adelante se lea como sigue:
+“Artículo 6. Únicamente los profesionales debidamente inscritos en el Registro de Farmacéuticos Especialistas podrán anunciarse como tales. La Junta Directiva del Colegio sancionará, de acuerdo con lo dispuesto en el Código de Ética del Colegio de Farmacéuticos de Costa Rica, a los profesionales no inscritos en este Registro que se hagan pasar como tales.”
