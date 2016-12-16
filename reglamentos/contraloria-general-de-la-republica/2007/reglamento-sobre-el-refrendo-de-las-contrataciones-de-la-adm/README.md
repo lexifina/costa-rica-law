@@ -16,3 +16,4 @@ Reglamento sobre el Refrendo de las Contrataciones de la Administración Públic
 | 1 | 2008-01-01 | la propia norma |
 | 2 | 2009-02-04 | Reglamento 13 (2009-02-04) |
 | 3 | 2012-03-07 | Reglamento 31 (2012-03-07) |
+| 4 | 2016-12-16 | Reglamento 114 (2016-12-16) |
