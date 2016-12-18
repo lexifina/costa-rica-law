@@ -1,0 +1,1 @@
+Artículo 6º—La Sede del Comité Nacional de Hidrología y Meteorología, será en el Ministerio de Ambiente y Energía, y corresponderá al Ministerio de Ambiente y Energía y al Vice ministerio de Aguas, Mares, Costas y Humedales, dotar de la logística necesaria para la labor del Comité.

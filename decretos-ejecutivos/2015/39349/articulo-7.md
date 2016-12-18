@@ -1,0 +1,1 @@
+Artículo 7º—Las instituciones y entes miembros del Comité Nacional de Hidrología y Meteorología deberán incluir dentro de los instrumentos de planificación institucional las actividades que ameriten para asegurar el efectivo accionar de este Comité.
