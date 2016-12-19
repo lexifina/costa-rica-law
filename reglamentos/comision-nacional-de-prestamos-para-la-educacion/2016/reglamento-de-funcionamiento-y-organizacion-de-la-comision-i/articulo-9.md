@@ -1,0 +1,1 @@
+Artículo 9º—Capacitación. Las personas integrantes de la comisión deben recibir la inducción y las diferentes capacitaciones como cursos, charlas, congresos sobre ética y gestión ética que imparte la Comisión Nacional de Rescate de Valores, además de participar de los programas de formación continua y asesoría técnica, lo anterior dentro del marco legal respectivo.

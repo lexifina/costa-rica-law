@@ -1,0 +1,1 @@
+Artículo 17.—Auditorías de la ética. Las auditorías de la ética forman parte de la etapa de evaluación, será responsabilidad de la Auditoría Interna aplicar la Guía técnica para el desarrollo de auditorías de la ética1, guía elaborada por la Contraloría General de la República.

@@ -1,0 +1,1 @@
+Artículo 10.—Organización. La Comisión será presidida por el Coordinador y contará con una persona secretaria, quienes serán elegidos por mayoría simple entre los miembros presentes convocados formalmente y por un periodo de dos años consecutivos, pudiendo reelegirse por mutuo acuerdo y votación entre sus miembros máximo por dos periodos consecutivos.

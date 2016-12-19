@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. Las presentes regulaciones son de aplicación para los miembros de la Comisión Institucional de Ética y Valores de CONAPE y a la administración activa en general según sus competencias.

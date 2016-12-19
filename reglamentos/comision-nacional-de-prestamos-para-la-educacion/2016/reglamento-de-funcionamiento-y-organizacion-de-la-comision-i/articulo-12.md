@@ -1,0 +1,2 @@
+Artículo 12.—Funcionamiento. La Comisión sesionará ordinariamente, una vez cada tres meses (el primer viernes laboral de los meses de Enero, Abril, Julio y octubre) y extraordinariamente cuando lo convoque el Coordinador, con al menos cuarenta y ocho horas de anticipación. El quorum se formará con la asistencia de tres de sus miembros.
+El Consejo Directivo dotará, en la medida de lo posible, a la Comisión de los recursos necesarios, basándose en los requerimientos presupuestarios que le sean presentados por la Comisión para su funcionamiento.

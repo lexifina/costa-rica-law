@@ -1,0 +1,2 @@
+Artículo 18.—De las actas. De cada sesión se levantará un acta, que contendrá la indicación de las personas asistentes, así como las circunstancias de lugar y tiempo en que se ha celebrado, los puntos principales de la deliberación y serán firmadas por todos los participantes de la sesión al momento de su aprobación.
+El borrador del acta debe ser remitida ocho días naturales posteriores a la sesión para su respectiva revisión por parte de los participantes, la aprobación definitiva se realizará en la siguiente sesión ordinaria.

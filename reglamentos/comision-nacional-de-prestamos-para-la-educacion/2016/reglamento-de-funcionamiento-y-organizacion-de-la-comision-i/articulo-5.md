@@ -1,0 +1,1 @@
+Artículo 5º—Función general. La Comisión tiene como función general proponer al Jerarca los lineamientos necesarios para promover la ética en el servicio y contribuir a la eficiencia en el sector público, conduciendo técnicamente la gestión ética con el liderazgo y responsabilidad del jerarca y los titulares subordinados y la participación de toda la administración activa.
