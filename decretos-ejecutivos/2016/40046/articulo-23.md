@@ -1,0 +1,1 @@
+Artículo 23. En los casos de reingreso a la lista nacional de receptores por exclusión transitoria, se respetará la fecha de efectivización de la primera inscripción en la lista nacional de receptores.

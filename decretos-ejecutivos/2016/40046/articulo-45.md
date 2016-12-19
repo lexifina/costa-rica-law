@@ -1,0 +1,1 @@
+Artículo 45. El incumplimiento de lo dispuesto precedentemente por parte de los profesionales autorizados, dará lugar a la aplicación de las sanciones previstas en la Ley No. 9222 del 13 de marzo de 2014, “Ley de Donación y Trasplante de Órganos y Tejidos Humanos”.

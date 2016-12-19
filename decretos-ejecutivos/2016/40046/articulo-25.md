@@ -1,0 +1,1 @@
+Artículo 25. En caso de falla primaria definida como: “no trasparencia del tejido en las primeras seis (6) semanas después de la cirugía y que requiera un retrasplante”, se respetará la fecha inicial de inscripción. Si después de seis (6) semanas se requiere un retrasplante, ingresará a la lista nacional de receptores como un caso nuevo.

@@ -1,0 +1,1 @@
+Artículo 12. Los integrantes de un equipo de trasplante, podrán desempeñarse en cualquier establecimiento autorizado ante la Secretaría Ejecutiva Técnica de Donación y Trasplante de Órganos y Tejidos.

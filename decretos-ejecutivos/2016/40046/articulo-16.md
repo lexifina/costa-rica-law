@@ -1,0 +1,1 @@
+Artículo 16. El paciente que desee optar por un servicio privado y que no desee ingresar a la lista nacional de receptores, deberá llenar el formulario de “No inclusión a la lista nacional de receptores”.

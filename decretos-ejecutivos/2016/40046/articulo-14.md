@@ -1,0 +1,1 @@
+Artículo 14. El médico especialista en oftalmología a cargo del trasplante, deberá contar con la documentación avaladora referente a los informes de conteo endotelial, serológica y biomicroscópica correspondientes a la córnea a implantar. Los informes deberán ser avalados por un banco de tejidos nacional o extranjero, según corresponda.

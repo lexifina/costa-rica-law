@@ -1,0 +1,1 @@
+Artículo 2. Los criterios de distribución y asignación de órganos y tejidos cadavéricos deberán sustentarse en normas técnicas que contemplen la equidad en el acceso al trasplante, en la asignación de los órganos y tejidos y en la transparencia de los procesos involucrados.
