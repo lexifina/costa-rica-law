@@ -1,1 +1,0 @@
-Artículo 14.—De la aprobación: El presente Reglamento fue aprobado por acuerdo firme de Consejo Directivo, Nº 391-07, artículo cuarto del acta Nº 082-07 de fecha 16 de octubre de 2007 y modificado por acuerdos del Consejo Directivo Nº 498-2010 de fecha 15 de noviembre del 2010 y 030-01-2013 del 28 de enero del 2013.
