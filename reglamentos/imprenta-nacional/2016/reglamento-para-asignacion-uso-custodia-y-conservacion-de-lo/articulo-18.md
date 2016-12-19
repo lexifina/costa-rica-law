@@ -1,0 +1,1 @@
+Artículo 18. —Las disposiciones de este Reglamento son de aplicación vinculante y obligatoria para las unidades que conforman la organización de la Imprenta y para todos (as) los (as) funcionarios (as) de la Institución.

@@ -1,0 +1,17 @@
+JUNTA ADMINISTRATIVA DE LA IMPRENTA NACIONAL
+REGLAMENTO PARA ASIGNACIÓN, USO, CUSTODIA Y CONSERVACIÓN
+DE LOS TELÉFONOS CELULARES Y DISPOSITIVOS PARA COMUNICACIÓN
+DE LA JUNTA ADMINISTRATIVA DE LA IMPRENTA NACIONAL
+La Junta Administrativa de la Imprenta Nacional, mediante Acuerdo 6645-11-2016 adoptado en la sesión ordinaria N°41 del 29 de noviembre del 2016, conforme a lo señalado en el Artículo 9 del Reglamento de la Junta Administrativa de la Imprenta Nacional y en uso de las facultades y atribuciones que otorga la Ley General de la Administración Pública conferidas por el Artículo 59 y siguientes de ese mismo cuerpo de Leyes, y en aras de contar con la tecnología necesaria para brindar un mejor servicio para la comunicación oportuna con nuestros clientes, y dicen:
+Considerandos
+1º—Que según el Artículo 9 inciso d) del Reglamento a la Ley de la Junta Administrativa de la Imprenta Nacional, Decreto entre las funciones de la Junta Administrativa está la de aprobar los reglamentos internos de la Imprenta Nacional.
+2º—Que mediante Acuerdo firme 078-10-2002, de la Junta Administrativa de la Imprenta Nacional, se aprobó el Reglamento para Asignación, Uso, Custodia y Conservación de los Teléfonos Celulares y dispositivos para comunicación de la Junta Administrativa de la Imprenta Nacional. No obstante, por razones de orden Institucional, es necesario modificar y establecer normas claras y precisas para regular el uso, custodia y conservación de los teléfonos celulares y dispositivos para comunicación de la Junta Administrativa de la Imprenta Nacional.
+3º—Que es de vital importancia que la legislación esté acorde con los tiempos actuales, para proporcionar y facilitar a sus servidores las herramientas, para el mejor desempeño de sus funciones, tareas y actividades, en beneficio de los usuarios de sus servicios.
+4º—Que igualmente, debe establecerse una reglamentación detallada de las obligaciones y responsabilidades de quienes se les asignan el uso de teléfonos celulares y otros dispositivos para comunicación, propiedad de la Junta Administrativa de la Imprenta Nacional.
+5º—Que al respecto la Contraloría General de la República en sus pronunciamientos números 2875 de 12 de marzo de 1996 y 12408 de 1999, indicó la necesidad de que la Administración reglamente el uso de teléfonos celulares y dispositivos para comunicación dentro de sus diferentes dependencias. Por tanto, acuerdan:
+1. Instruir a la Dirección Ejecutiva para que se continúen los trámites administrativos pertinentes para la comunicación y puesta en vigencia de los cambios aprobados.
+2. Aprobar la modificación del “Reglamento para Asignación, Uso, Custodia y Conservación de los Teléfonos Celulares y Dispositivos para Comunicación de la Junta Administrativa de la Imprenta Nacional”, para que en forma integral disponga lo siguiente:
+REGLAMENTO PARA ASIGNACIÓN, USO, CUSTODIA Y CONSERVACIÓN
+DE LOS TELÉFONOS CELULARES Y DISPOSITIVOS PARA COMUNICACIÓN
+DE LA JUNTA ADMINISTRATIVA DE LA IMPRENTA NACIONAL
+Artículo 1º—Este Reglamento tiene por objeto regular la utilización racional, custodia y conservación de los teléfonos celulares y dispositivos para comunicación, asociados a líneas para teléfonos celulares o de internet, pertenecientes a la Junta, asignados como una forma de facilitar el mejor desempeño de las funciones, tareas y actividades de los (as) servidores (as) y de los (as) usuarios (as).

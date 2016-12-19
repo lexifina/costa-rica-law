@@ -1,0 +1,1 @@
+Artículo 7º—El Director Ejecutivo de la Junta Administrativa de la Imprenta Nacional, tendrá la potestad para asignar o retirar estos servicios, a los (as) funcionarios (as) que así considere pertinente, previo estudio y justificación por las funciones y responsabilidades que los mismos desempeñen o dejen de desempeñar.

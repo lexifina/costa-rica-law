@@ -1,0 +1,1 @@
+Artículo 3º—El presente Reglamento se aplicará a todos (as) los (as) servidores (as) de la Imprenta, que se les asigne un teléfono celular o un dispositivo para comunicación propiedad de la Junta con su respectiva línea y acceso a internet.

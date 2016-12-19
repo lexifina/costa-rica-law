@@ -1,0 +1,1 @@
+Artículo 5º—La asignación y uso de los teléfonos celulares o dispositivos para comunicación, se debe sujetar a los principios de razonabilidad, racionalidad y, en general, a las prácticas generales de sana administración de los recursos públicos y austeridad.

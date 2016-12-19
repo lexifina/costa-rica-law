@@ -1,0 +1,1 @@
+Artículo 19. —La Dirección Ejecutiva se reserva el derecho de acceso a toda la información que requiera cuando el caso lo amerite, solicitando al respectivo proveedor del servicio los registros de llamadas, duración, destinos o cualquier otra información que considere pertinente.
