@@ -14,3 +14,4 @@ Reglamento de organización de la Dirección de Crédito Público
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-04-14 | la propia norma |
+| 2 | 2016-12-19 | Decreto Ejecutivo 40355 (2016-12-19) |

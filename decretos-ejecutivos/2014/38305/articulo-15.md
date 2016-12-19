@@ -2,7 +2,8 @@ Artículo 15.—Departamento de Registro, y Estadísticas de la Deuda Pública. 
 Este Departamento está conformado por la Unidad de Registro Consolidado y Control de la Deuda Pública y la Unidad de Estadísticas de la Deuda Pública. Las funciones del Departamento son las siguientes:
 a. Realizar la Planificación Estratégica del Departamento, -entendido como el Plan de Trabajo anual del Departamento-con miras a cumplir con las disposiciones, metas y objetivos, normativa vigente y disposiciones propias.
 b. Dirigir los proyectos, estudios y programas necesarios con el fin de cumplir con las funciones encomendadas al Departamento.
-c. Coordinar con el personal de Registro y Estadísticas, de la Dirección de Crédito Público y otras dependencias del Ministerio de Hacienda con miras a desempeñar adecuadamente las funciones encomendadas.
+c. Coordinar con el personal de Registro y Estadísticas, de la Dirección de Crédito Público y otras dependencias del Ministerio de Hacienda con miras a desempeñar adecuadamente las funciones de registro encomendadas en la Ley Nº 8131.
+(Así reformado el inciso anterior por el artículo 1° del decreto ejecutivo N° 40355 del 19 de diciembre de 2016)
 d. Atender consultas y mantener buenas relaciones con las contrapartes en los organismos multilaterales, otros Ministerios y entes públicos.
 e. Analizar y evaluar los logros alcanzados, las causas de las desviaciones y las posibles medidas correctivas.
 f. Proponer e implementar las medidas tendientes a mejorar el ambiente de control de la Dirección.
