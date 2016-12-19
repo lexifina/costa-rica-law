@@ -1,0 +1,1 @@
+Artículo 31º-Denuncias. En caso de que existan indicios sobre una infracción o delito cometidos por un tercero, el Gestor Ambiental o el funcionario que el Alcalde designe presentará la denuncia respectiva ante el Tribunal Ambiental Administrativo o en la Fiscalía correspondiente.

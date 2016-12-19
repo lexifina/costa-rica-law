@@ -1,0 +1,1 @@
+Artículo 34º-Divulgación y publicación. La Municipalidad tiene la responsabilidad de divulgar adecuadamente el presente reglamento un vez aprobado por el Concejo Municipal. Cualquier modificación posterior debe seguir un procedimiento de consulta a la ciudadanía, publicación y difusión.

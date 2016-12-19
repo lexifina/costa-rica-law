@@ -1,0 +1,4 @@
+CAPÍTULO II
+De las atribuciones y obligaciones Municipales
+Artículo 5º-Responsable de la gestión integral de residuos sólidos. Para la implementación de este reglamento y de otra legislación nacional vigente en la materia, la Dirección de Ingeniería y Servicios, será la entidad responsable de la gestión integral de residuos sólidos en el cantón, en coordinación con otros departamentos como Servicios Urbanos, Proveeduría, Departamento de Campo y Planificación Económica y la Dirección de Asuntos Jurídicos en la emisión de criterios y recomendaciones jurídicas asociadas a la GIRS. El Concejo Municipal dotará de personal técnico y profesional necesario, así como del presupuesto adecuado para cumplir con sus funciones.
+La administración, según el Plan Anual Operativo establecerá las necesidades en personal, logística, equipo y los costos necesarias para la implementación del plan para la gestión integral de los residuos y este Reglamento.

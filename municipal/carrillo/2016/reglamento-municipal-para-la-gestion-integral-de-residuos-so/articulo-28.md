@@ -1,0 +1,5 @@
+CAPÍTULO IX
+Sanciones
+Artículo 28º-Sanciones. La aplicación de multas y sanciones será de conformidad con la Ley para la Gestión Integral de Residuos y el Código Municipal, en caso de detectarse incumplimiento de las obligaciones establecidas en este reglamento en cuanto al adecuado manejo, incluyendo: separación, recolección, tratamiento y disposición final de los residuos sólidos.
+En caso de que las empresas agrícolas, ganaderas, industriales, comerciales y turísticas no cuenten con un sistema de separación, recolección, acumulación y disposición final de los residuos sólidos, aprobado por el Ministerio de Salud, cuando el servicio público de disposición de residuos es insuficiente o si por la naturaleza o el volumen de los residuos, este no es aceptable sanitariamente, se le impondrá la multa que establece en el inciso f) del artículo 76 del Código Municipal.
+La municipalidad debe establecer multas por atrasos en el pago de servicio de recolección, tratamiento y disposición final de los residuos sólidos de conformidad con el Código Municipal.

@@ -1,0 +1,1 @@
+Artículo 4º-Propiedad de los residuos. Los residuos sólidos generados serán propiedad de la Municipalidad en el momento de que los usuarios del servicio público sitúan o entregan los residuos para su recolección, de conformidad con el reglamento respectivo.
