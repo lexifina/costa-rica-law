@@ -1,0 +1,2 @@
+Artículo 2º—Se establece un transitorio único a la entrada en vigencia del presente decreto, que dirá:
+“Transitorio único. Todos los procedimientos administrativos de carácter disciplinario en los que el director general respectivo haya dictado la resolución final -disponiendo aplicar la sanción de suspensión sin goce de salario o despido-, continuarán el trámite dispuesto en el Reglamento Autónomo de Servicios antes de la publicación del presente decreto.”.
