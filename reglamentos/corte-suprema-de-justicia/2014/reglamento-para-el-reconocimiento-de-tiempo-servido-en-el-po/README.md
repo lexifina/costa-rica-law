@@ -15,3 +15,4 @@ Reglamento para el reconocimiento de tiempo servido en el Poder Judicial, en el 
 | 1 | 2014-04-25 | la propia norma |
 | 2 | 2016-02-05 | Circular 21 (2016-02-05) |
 | 3 | 2016-09-20 | Circular 163 (2016-09-20) |
+| 4 | 2016-12-20 | Circular 226 (2016-12-20) |

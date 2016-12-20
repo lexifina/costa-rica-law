@@ -1,1 +1,2 @@
-Artículo 18.—Cálculo erróneo de tiempo servido. Cuando por error se hayan pagado anualidades de más, o se reconociere erróneamente tiempo para efectos de jubilación, el Poder Judicial realizará el procedimiento legal correspondiente.
+Artículo 18.—Cálculo erróneo de tiempo servido.
+Cuando por error se hayan pagado anualidades de más, o se reconociere erróneamente tiempo para efectos de jubilación, el Poder Judicial realizará el procedimiento legal correspondiente.
