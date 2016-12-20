@@ -14,12 +14,13 @@ Reemplazo urgente tarjetas de crédito Oro, Empresarial yPlatino | $30.00
 Sustitución del PIN TARJETA DE DÉBITO Y CRÉDITO. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $2.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Renovación de tarjetas de Débito. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $5.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
 Comisiones por adelanto de efectivo con tarjeta de crédito:
-Avance de efectivo electrónico (Internet y Telefónico) | 2.9%, mínimo $3.00
-Avance de efectivo en cajeros automáticos propios | 2.9%, mínimo $3.00
-Avance de efectivo en cajeros automáticos en convenio con otras instituciones. | 2.9%, mínimo $3.00
-Avance de efectivo en ventanilla. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | 2.9% mínimo $3.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
-Avance de efectivo en cajeros automáticos que no estén en convenio. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | 2.9% mínimo $3.00 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
-Avance de efectivo en ventanilla que no está en convenio. | 4% mínimo $3.00
+Avance de efectivo electrónico (Internet y Telefónico) | 4.5%, mínimo $3.00 (Así reformado el monto anterior en sesión N° 9000 del 20 de diciembre de 2016)
+Avance de efectivo en cajeros automáticos propios | 4.5 %, mínimo $3.00 (Así reformado el monto anterior en sesión N° 9000 del 20 de diciembre de 2016)
+Avance de efectivo en cajeros automáticos en convenio con otras instituciones. | 4.5 %, mínimo $3.00 (Así reformado el monto anterior en sesión N° 9000 del 20 de diciembre de 2016)
+Avance de efectivo en ventanilla. | 4.5 % mínimo $3.00 (Así reformado el monto anterior en sesión N° 9000 del 20 de diciembre de 2016)
+Avance de efectivo en cajeros automáticos que no estén en convenio. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | 4.5% mínimo $3.00 (Así reformado el monto anterior en sesión N° 9000 del 20 de diciembre de 2016)
+Avance de efectivo en ventanilla que no está en convenio. | 4.5 % mínimo $3.00 (Así reformado el monto anterior en sesión N° 9000 del 20 de diciembre de 2016)
+Compra de saldos de tarjetas de crédito: (Así adicionada la comisión anterior en sesión N° 9000 del 20 de diciembre de 2016) | 3.5%, mínimo $3.00 (Así adicionada el monto anterior en sesión N° 9000 del 20 de diciembre de 2016)
 Comisiones por adelanto de efectivo con tarjeta de débito:
 Avance de efectivo en cajeros automáticos propios. Hasta 5 movimientos. | No se cobra
 Después del 5° movimiento en el mes y en cuentas con un saldo promedio semestral inferior al $350.00 en cajeros propios. (Así reformado el servicio anterior mediante sesión N° 8665/13 del 9 de julio del 2013) | $0.20 (Así reformado el monto anterior mediante sesión N° 8665/13 del 9 de julio del 2013)
