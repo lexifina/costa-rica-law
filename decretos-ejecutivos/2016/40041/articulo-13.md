@@ -1,0 +1,1 @@
+Artículo 13.—Todos los bienes culturales e históricos patrimoniales pertenecientes al Museo de la Casa del Boyero, serán propiedad del Proyecto Casa del Boyero. En caso de disolución del Proyecto los mismos deberán ser entregados a la Asociación Desarrollo Integral de Venecia de San Carlos o instancias museísticas estatales a fin de asegurar su adecuada conservación.

@@ -1,0 +1,1 @@
+Artículo 10.—La Junta Directiva de la Asociación Pro Museo la Casa del Boyero de Venecia de San Carlos tendrá la responsabilidad de la custodia de los bienes culturales que integran las colecciones para la operación del Museo, garantizando su debida exhibición, protección, conservación, restauración y uso.
