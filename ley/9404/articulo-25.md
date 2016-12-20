@@ -1,0 +1,2 @@
+ARTÍCULO 25.- Actualización de protocolos
+El Ministerio de Educación Pública (MEP) deberá actualizar, cada cuatro años, los protocolos que ha establecido para prevenir y atender el acoso escolar o “bullying” en los términos que indica esta ley, y lo comunicará a las instituciones de enseñanza por medio de la Contraloría de los Derechos de los Estudiantes, con el fin de divulgar, por medio de la Dirección de Vida Estudiantil, los alcances de esta ley a toda la población estudiantil.

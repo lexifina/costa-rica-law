@@ -1,0 +1,7 @@
+ARTÍCULO 20.- Autoridades de los centros educativos
+El director o la directora de cada centro educativo tendrá las siguientes facultades y obligaciones:
+a) Vigilar que se cumpla el Plan de prevención del acoso escolar o “bullying”, o sus propios lineamientos, para prevenir e intervenir ante casos de dicha índole; este último en el caso de los centros educativos privados.
+b) Promover y verificar la capacitación del personal docente y administrativo en materia de prevención y erradicación del acoso escolar o “bullying”.
+c) Notificar, ante el Patronato Nacional de la Infancia (PANI) y la Fiscalía Penal Juvenil, cuando por la naturaleza o la gravedad de los casos de acoso o “bullying” sea necesaria su intervención y amerite atención adicional a la que el centro educativo ofrece.
+d) Notificar a los padres, las madres, las personas encargadas o a quien ejerza la guarda, crianza y educación de las víctimas de acoso escolar o “bullying”, las medidas correctivas que se han aplicado a los responsables del acoso escolar o “bullying”.
+e) Comunicar al Departamento de Gestión Disciplinaria, del Ministerio de Educación Pública (MEP), para que se establezcan las responsabilidades administrativas del caso en los centros educativos públicos, cuando se incumplan, por parte del personal docente, administrativo docente, técnico docente y administrativo o los equipos interdisciplinarios, las disposiciones contenidas en esta ley.
