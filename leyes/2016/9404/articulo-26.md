@@ -1,0 +1,2 @@
+ARTÍCULO 26.- Campañas de prevención
+El Ministerio de Educación Pública (MEP), por medio de la Dirección de Vida Estudiantil, desarrollará campañas, foros o cualquier otra modalidad que conduzca a la sensibilización, la prevención y la erradicación del acoso escolar o “bullying”, de acuerdo con los objetivos y los fines propuestos en esta ley y los protocolos establecidos por el Ministerio de Educación Pública.
