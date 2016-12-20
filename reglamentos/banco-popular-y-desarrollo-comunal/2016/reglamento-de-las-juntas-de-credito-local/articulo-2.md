@@ -1,0 +1,10 @@
+Artículo 2º—Órgano competente. La Comisión de Pautas, Políticas y Juntas de Crédito Local indicada en el artículo 34 del Reglamento de Organización y Funciones de los Comités y Comisiones de Apoyo del Conglomerado Financiero Banco Popular y de Desarrollo Comunal y Subsidiarias, es el órgano encargado de llevar a cabo la logística, organización, ejecución y propuesta de integración de las Juntas de Crédito Local, para lo cual tiene las siguientes funciones:
+a. Elaborar el aviso indicado en el artículo 5 de este Reglamento referente al inicio del proceso de integración de las Juntas de Crédito Local, someterlo a la aprobación de la Junta Directiva Nacional y velar por su debida publicación una vez aprobado.
+b. Elaborar la propuesta que, para la integración de las Juntas de Crédito Local, deban remitir las organizaciones indicadas en el artículo 3 de este Reglamento, así como de la declaración jurada señalada en el artículo 5 de este Reglamento.
+c. Coordinar con la Secretaría General de la Junta Directiva Nacional y con la Administración del Banco, la recepción de los documentos indicados en el artículo 5 de este Reglamento, procurando que le sean remitidos a la brevedad.
+d. Examinar la documentación indicada en el inciso anterior, clasificando las propuestas con vicios insubsanables, con vicios subsanables y sin vicios.
+e. Trasladar a la Junta Directiva Nacional las propuestas consideradas con vicios insubsanables, para que esta tome una decisión.
+f. Indicar a las organizaciones sociales la necesidad de corregir las anomalías subsanables señaladas en el párrafo tercero del artículo 3 dentro del plazo ahí indicado.
+g. Resueltas las situaciones indicadas en los incisos e y f anteriores, trasladar a la Junta Directiva Nacional todas las propuestas sin vicios, para que validadas por ella, proceda con la integración de las Juntas de Crédito Local.
+h. Velar por que los acuerdos y resoluciones que la Junta Directiva Nacional dicte con fundamento en este Reglamento y demás normativa aplicable, sean comunicados debidamente y a la brevedad.
+i. Las demás que indiquen los reglamentos aplicables o la Junta Directiva Nacional.

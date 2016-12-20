@@ -1,0 +1,1 @@
+Artículo 20.—Votaciones. Los integrantes de las Juntas de Crédito Local deberán votar por alguna de las tesis en discusión, salvo que en una o varias de ellas concurra alguna de las causales de abstención de acuerdo con lo dispuesto en los artículos del 230 al 238 de la Ley General de la Administración Pública.

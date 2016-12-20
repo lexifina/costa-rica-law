@@ -1,0 +1,2 @@
+Artículo 12.—Facultades del Presidente. El presidente de la Junta de Crédito Local tendrá las facultades y atribuciones establecidas en el artículo 49 de la Ley General de la Administración Pública.
+En caso de ausencia temporal del presidente, el vicepresidente lo sustituirá; si la ausencia fuese definitiva, se procederá a la designación de un nuevo presidente en los términos indicados en el artículo 11.
