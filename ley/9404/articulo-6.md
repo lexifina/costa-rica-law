@@ -1,0 +1,9 @@
+ARTÍCULO 6.- Modalidades
+El acoso escolar o “bullying” puede manifestarse en los siguientes tipos:
+a) Físico: es toda acción que lesione o esté destinada a lesionar la integridad física de uno o varios estudiantes.
+b) Patrimonial: son las acciones que dañen, destruyan o permitan tomar, sin consentimiento, las pertenencias de uno o varios estudiantes.
+c) Lenguaje verbal, no verbal y escrito: se manifiesta por medio del lenguaje verbal, no verbal y escrito. Las manifestaciones de este tipo de violencia pueden ser: insultar, calumniar, difamar, esparcir o divulgar un rumor o comentario malintencionado, hacer comentarios discriminatorios o despectivos y abusar verbalmente a otra persona.
+d) Psicológico: comprende todas las acciones que lesionen o estén destinadas a lesionar la integridad emocional de las personas, tales como: molestar, intimidar, humillar, excluir o alentar la exclusión deliberada, gestos faciales o físicos negativos, obscenidades con señas, miradas amenazantes o despectivas, acoso grupal o colectivo.
+e) “Ciberbullying” o acoso cibernético: es el que se realiza mediante el uso de cualquier medio electrónico como Internet, páginas web, redes sociales, blogs, correos electrónicos, mensajes, imágenes o videos por teléfono celular, computadoras, videograbaciones u otras tecnologías digitales, de información y comunicación.
+f) Social: es cuando el estudiante víctima directamente es discriminado o amenazado con serlo, mediante su exclusión, aislamiento o al ignorarlo. Podrá ser también indirecto, cuando se coaccione o influencie a otras personas para que realicen tales conductas en perjuicio de la víctima.
+g) Violencia sexual: manifestación que involucre comentarios, insinuaciones y amenazas con contenido sexual o exhibición explícita sexual entre pares y que no esté tipificada dentro de los delitos sexuales vigentes o dentro de la normativa de acoso y hostigamiento sexual.

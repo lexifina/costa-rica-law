@@ -1,0 +1,5 @@
+ARTÍCULO 5.- Ámbito de aplicación
+Esta ley se aplicará bajo los siguientes términos:
+a) En todas las modalidades educativas públicas previstas dentro del sistema educativo costarricense: preescolar, colegios académicos (diurno y nocturno), escuelas (diurna y nocturna), colegio técnico profesional (diurno y nocturno), educación especial, centros integrados de educación de adultos (Cindea), escuelas unidocentes, colegios técnicos vocacionales, escuelas de enseñanza especial, colegios de educación a distancia (Coned), liceo rural, colegios virtuales Marco Tulio Salazar e Instituto Profesional de Educación Comunitaria (IPEC) y cualquier otra modalidad que sea creada.
+b) Cuando los estudiantes permanezcan en las instalaciones de los centros educativos, públicos y privados, durante los horarios lectivos o fuera de estos, y en las actividades organizadas, patrocinadas o relacionadas con el centro educativo y la prestación del servicio de educación.
+c) Todos los hechos de acoso escolar o “bullying” que se puedan dar en el ciberespacio, en las tecnologías de la información y la comunicación, entre estudiantes.
