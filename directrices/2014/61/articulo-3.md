@@ -1,1 +1,0 @@
-Artículo 3º—El “Plan de Capacitación Sectorial” contemplará los temas estratégicos detallados en el Plan Nacional de Transportes y a su vez, deberá estar vinculado con el Plan Estratégico Sectorial de mediano plazo.

@@ -1,1 +1,0 @@
-Artículo 5º—En virtud de la necesidad de un uso racional de los recursos públicos, se requiere priorizar las actividades de capacitación, según los requerimientos detectados en el Plan Nacional de Transportes 2011-2035.
