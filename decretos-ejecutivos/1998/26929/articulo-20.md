@@ -1,5 +1,0 @@
-Artículo 20.—Con el objeto de procurar un equilibrio entre la recreación del visitante y la fragilidad de los ecosistemas representados en este Parque, se definen las siguientes capacidades máximas permisibles de visitación:
-a) En Puerto Vargas, la admisión diaria no podrá sobrepasar los trescientos (300) visitantes, en tanto que la visitación diaria en el sector Playa Blanca no deberá exceder las doscientas (200) personas. Los sábados y domingos esos números máximos serán de cuatrocientos (400) para Puerto Vargas y trescientos (300) personas por día para Playa Blanca. Una vez alcanzados los límites anteriores, la Administración no permitirá el ingreso de más visitantes.
-b) Las áreas para acampar en Puerto Vargas podrán albergar hasta doscientos cincuenta (250) personas en total, con capacidad para un vehículo y una tienda de campaña para cinco personas en cada una de ellas.
-c) En el área de arrecife de Punta Cahuita se permitirá un máximo de cuarenta (40) turistas u ocho (8) botes al mismo tiempo.
-d) Un total de treinta (30) personas, en grupos no mayores de Quince (15), será el máximo, permitido en el sendero Perezoso, en un momento dado.

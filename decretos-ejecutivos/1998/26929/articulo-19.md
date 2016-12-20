@@ -1,1 +1,0 @@
-Artículo 19.— La Administración del Parque podrá habilitar otras áreas de uso público cuando se amerite y sea factible, además de tomar las medidas de control necesarias para el adecuado manejo de los recursos presentes en ellas.

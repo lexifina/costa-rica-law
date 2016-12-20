@@ -1,1 +1,0 @@
-Artículo 21.- Se prohíbe el estacionamiento de camiones, microbuses y autobuses dentro del Parque. Sólo tres buses podrán hacer uso simultáneo del área de parqueo para el abordaje de los pasajeros, con una permanencia máxima de 30 minutos. Está prohibida la circulación de vehículos dentro del área protegida a más de 25 kilómetros por hora.

@@ -1,1 +1,0 @@
-Artículo 11.—Incumplimiento. El incumplimiento por parte de los adjudicatarios de los servicios, de cualesquiera de las normas establecidas en este Reglamento o en la normativa administrativa vigente, facultará al MINAE para asumir la prestación temporal de los servicios, en tanto se resuelve la situación con los oferentes o se realiza una nueva adjudicación del servicio.

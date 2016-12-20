@@ -1,2 +1,0 @@
-Artículo 3°—Decisiones del Comité. Corresponderá al Comité recomendar al Director del Área de Conservación La Amistad Caribe las medidas necesarias para una adecuada prestación de servicios en el Parque Nacional Cahuita.
-Asimismo, el Ministerio del Ambiente y Energía, dará audiencia al Comité sobre aquellas medidas que afecten sustancialmente la prestación de servicios, tal como la supresión o suspensión de los mismos.

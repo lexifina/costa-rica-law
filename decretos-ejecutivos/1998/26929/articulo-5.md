@@ -1,1 +1,0 @@
-Artículo 5°—Administración del Comité. El Comité nombrará en la primera sesión una junta directiva compuesta por presidente, secretario, tesorero y vocal así como un fiscal, los cuales durarán en Sus cargos durante un año, con posibilidad de reelección.

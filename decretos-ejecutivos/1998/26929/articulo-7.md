@@ -1,1 +1,0 @@
-Artículo 7°—Tarifas. Las tarifas de los servicios brindados por particulares, una vez autorizadas por la Autoridad respectiva, se fijarán por períodos anuales, y no deberán exceder los precios de servicios similares en el mercado.

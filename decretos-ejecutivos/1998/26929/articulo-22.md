@@ -1,1 +1,0 @@
-Artículo 22.—Los recorridos en bote por el arrecife o en los canales del río deberán, contratarse a través del procedimiento que establezca la Administración del Parque en conjunto con el Comité. La obtención de esta información y la cancelación de las tarifas correspondientes tendrán lugar en la caseta de admisión del sector Playa Blanca o en la Administración del Parque.

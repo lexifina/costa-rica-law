@@ -1,1 +1,0 @@
-Artículo 24.—Para operar como guía naturalista local dentro del Parque Nacional Cahuita se debe poseer el carné que lo acredite como tal, extendido por el Comité y avalado por el Área de Conservación La Amistad Caribe.

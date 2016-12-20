@@ -1,1 +1,0 @@
-Artículo 23.—Es requisito indispensable para el buceo y los recorridos en el arrecife, asi como para la observación de tortugas marinas, contar con un guía naturalista local autorizado y debidamente identificado.

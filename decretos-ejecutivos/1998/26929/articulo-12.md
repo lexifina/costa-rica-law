@@ -1,1 +1,0 @@
-Artículo 12.—Control. El fiscal tendrá, entre otras, la función de supervisar la calidad, continuidad y confiabilidad de los servicios, reportando cualquier situación anómala al Comité y recomendando las medidas correctivas del caso.

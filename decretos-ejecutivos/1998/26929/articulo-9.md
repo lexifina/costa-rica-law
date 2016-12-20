@@ -1,2 +1,0 @@
-Artículo 9°—Forma de contratación. Los oferentes de los distintos servicios públicos, serán seleccionados mediante los procedimientos establecidos en la normativa administrativa vigente.
-Dentro de los términos de referencia y posterior adjudicación del servicio, no se permitirán actividades de índole comercial que no estén autorizadas por el Comité o que contraríen la legislación ambiental vigente.

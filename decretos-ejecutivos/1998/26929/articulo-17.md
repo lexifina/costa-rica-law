@@ -1,2 +1,0 @@
-Artículo 17.—La admisión al Parque Nacional Cahuita permanecerá abierta al público de las ocho a las dieciséis horas ( 8,00 a .m. a 4,00 p.m.) de lunes a viernes .y de/las siete a las diecisiete ( 7,00 a .m. a 5,00 p.m.) los sábados y domingos. Durante Semana Santa se cumplirá con un horario extraordinario.' '
-Aquellos grupos organizados que así lo soliciten a la Administración del área, con no menos de tres días de antelación, podrán ser atendidos fuera de las horas regulares de servicio.
