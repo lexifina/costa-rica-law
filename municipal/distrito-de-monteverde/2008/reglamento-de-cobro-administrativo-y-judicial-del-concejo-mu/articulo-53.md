@@ -1,1 +1,0 @@
-Artículo 53.—Cuando se declara en sede administrativa que la prescripción procede, la Oficina de Rentas y Cobranzas deberá proceder en coordinación con el Administrador Tributario a realizar los ajustes respectivos en la base de datos municipal de la cuenta del sujeto pasivo que solicitó la prescripción.

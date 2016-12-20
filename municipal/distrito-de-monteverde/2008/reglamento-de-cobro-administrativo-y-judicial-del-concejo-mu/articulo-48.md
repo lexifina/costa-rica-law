@@ -1,1 +1,0 @@
-Artículo 48.—El abogado está obligado a cotejar los datos indicados en los edictos de ley, con anterioridad y posterioridad a su publicación en el Boletín Judicial, con los documentos que fundamentan la demanda y será responsable, ante el Concejo Municipal de cualquier perjuicio que por error pudiera causar su omisión al respecto.

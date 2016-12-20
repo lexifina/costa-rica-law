@@ -1,1 +1,0 @@
-Artículo 44.—Los sujetos pasivos interesados en realizar arreglos de pago con el Concejo Municipal podrán solicitar a la oficina de rentas y cobranzas el formulario denominado “Requisitos para tramitar arreglo de pago de cuentas vencidas”.

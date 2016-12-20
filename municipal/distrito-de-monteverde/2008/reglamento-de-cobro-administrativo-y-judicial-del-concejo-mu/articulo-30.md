@@ -1,1 +1,0 @@
-Artículo 30.—El incumplimiento en la presentación oportuna del informe trimestral durante dos veces consecutivas o tres alternas en el curso de un año se considerará incumplimiento grave y facultará al Concejo Municipal para rescindir unilateralmente el contrato con el Abogado que incumpla esta obligación, previo procedimiento administrativo.

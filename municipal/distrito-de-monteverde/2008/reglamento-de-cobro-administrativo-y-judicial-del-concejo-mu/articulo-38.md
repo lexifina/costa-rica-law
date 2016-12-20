@@ -1,3 +1,0 @@
-CAPÍTULO VII
-Arreglos de pago
-Artículo 38.—Se entiende como arreglo de pago, el compromiso que asume el sujeto pasivo con cuentas vencidas, de cancelar en un tiempo previamente definido y de una forma determinada, de acuerdo con lo dispuesto en este Reglamento, la cuenta que adeuda al Concejo Municipal. Todo arreglo de pago será formalizado mediante un documento que será firmado por el sujeto pasivo, el encargado (a) de rentas y cobranzas y el Administrador Tributario, donde constarán las calidades del contribuyente, el monto y concepto de la deuda incluyendo los intereses, la forma y plazo de pago, las condiciones del arreglo y las consecuencias del incumplimiento.

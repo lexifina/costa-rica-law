@@ -1,1 +1,0 @@
-Artículo 42.—Los arreglos de pagos serán analizados y aprobados en cuentas vencidas superiores a cincuenta mil colones (¢50.000,00). Únicamente en casos de dificultades económicas comprobadas del sujeto pasivo serán tramitados y autorizados arreglos de pago por cuentas vencidas inferiores al monto indicado.

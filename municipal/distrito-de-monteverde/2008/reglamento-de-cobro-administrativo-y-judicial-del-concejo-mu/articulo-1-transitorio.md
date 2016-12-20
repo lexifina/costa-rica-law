@@ -1,1 +1,0 @@
-Transitorio I.—Por no contar este Concejo Municipal con Encargados en Oficina de Administración Tributaria y Oficina de Rentas y Cobranzas, las responsabilidades de sus funciones las asumirá los encargados actuales de las dependencias de Administración Tributaria: Patentes y Catastro y Bienes Inmuebles.

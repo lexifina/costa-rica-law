@@ -1,3 +1,0 @@
-CAPÍTULO V
-Responsabilidades de los abogados
-Artículo 22.—Después de notificado formalmente el abogado sobre la adjudicación del proceso de contratación administrativa deberá, dentro de los siguientes diez días naturales, apersonarse el Concejo Municipal para firmar el contrato correspondiente, que al efecto elabora el Concejo Municipal. Antes de la firma del contrato deberá demostrar que no ha sido suspendido en el ejercicio de la profesión, que se encuentra legalmente autorizado para el ejercicio de la profesión y aportar los atestados y documentos que comprueben su idoneidad y experiencia profesional.

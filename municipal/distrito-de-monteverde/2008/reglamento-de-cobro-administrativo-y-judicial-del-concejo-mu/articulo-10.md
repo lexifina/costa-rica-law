@@ -1,3 +1,0 @@
-CAPÍTULO IV
-Cobro judicial
-Artículo 10.—El Concejo Municipal podrá contratar los servicios profesionales de empresas consultoras especializadas o de abogados externos para realizar el cobro judicial de las cuentas vencidas, tal contratación será sin sujeción laboral y se regirá por las disposiciones de la Ley General de Contratación Administrativo y su respectivo Reglamento. El Concejo Municipal realizará los procesos de contratación que estime convenientes a los interés municipales con el propósito de lograr la mayor eficiencia y eficacia de la gestión de cobro judicial, o cuando sea requerido por renuncia o rescisión de cualquier contrato.
