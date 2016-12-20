@@ -1,2 +1,2 @@
-Artículo 45.- Verificación de las obligaciones tributarias y/o aduaneras de la empresa beneficiaria
-Para verificar que la empresa beneficiaria no tenga procedimientos administrativos ni obligaciones tributarias y/o aduaneras pendientes, derivadas del Régimen, PROCOMER solicitará las certificaciones correspondientes a la Dirección, a la Dirección General de Tributación y a la Dirección General de Hacienda.
+Artículo 45.- Verificación de las obligaciones tributarias y/o aduaneras de Ja empresa beneficiaria. Para verificar que la empresa beneficiaria no tenga procedimientos administrativos ni obligaciones tributarias y/o aduaneras pendientes, derivadas del Régimen, PROCOMER realizará la consulta a la Dirección, la Dirección General de Tributación y la Dirección General de Hacienda. Dichas certificaciones se emitirán en el plazo máximo de cinco días hábiles.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40141 del 20 de diciembre del 2016)

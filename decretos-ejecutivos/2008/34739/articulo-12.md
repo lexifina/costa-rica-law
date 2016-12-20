@@ -1,10 +1,13 @@
-Artículo 12.—Cálculo del porcentaje de Valor Agregado Nacional (VAN). PROCOMER para efectos del cálculo del porcentaje de Valor Agregado Nacional (VAN) o Contenido Nacional aplicable al otorgamiento del Régimen, interpretará el término VAN de la siguiente forma: Ventas Totales (VT) menos Internamientos (M CIF), más menos Variación en Inventarios (Inv), menos Remesas (R), menos Honorarios pagados en el exterior (H); entre Ventas Totales (VT), por cien.
+Artículo 12.- Informe de Valor Agregado Nacional (VAN). Al final de periodo fiscal en que inicie operaciones productivas la empresa beneficiaria, deberá presentar ante PROCOMER, dentro del informe anual de sus actividades, la información relacionada con el Valor Agregado Nacional.
+Para efectos del cálculo del porcentaje de Valor Agregado Nacional (VAN), se interpretará el término VAN como el cociente entre la sumatoria anual de los pagos efectuados en remuneraciones del personal, otros beneficios salariales, cargas sociales, compra de bienes y servicios a proveedores ubicados en el país, depreciación, tributos y utilidad del periodo, dividido por las ventas totales (VT) y multiplicado por 100.
 [imagen]
-Donde:
-VT: ventas totales.
-M CIF: internamientos (valor CIF) de materias primas.
-Inv: cambio o variación de inventarios a lo largo del período.
-R: remesas.
-H: honorarios pagados al exterior.
-Entendiendo que las Ventas Totales (VT) corresponden al valor FOB de las exportaciones del producto terminado, en el caso de empresas de servicios, administradoras y comercializadoras corresponderá a las ventas totales del servicio o comercialización realizada; más las ventas locales de producto terminado o el valor de la prestación de servicios al mercado local. Los internamientos (M CIF) son aquellos que corresponden al valor CIF de la materia prima. La Variación de Inventarios (Inv) será el resultado del inventario final menos inventario inicial de producto terminado, de producto en proceso, y materias primas nacionales o internadas, en términos monetarios. El término remesas (R) se refiere al monto correspondiente a dividendos pagados al exterior o repatriación de capital. Honorarios pagados en el exterior (H) corresponde a servicios profesionales que la compañía pague en el exterior, que no hayan sido pagados mediante remesas.
-(Así reformado por el artículo 1° del decreto ejecutivo N° 35422 del 7 de agosto de 2009)
+VT=valor de las ventas totales reportadas por la empresa.
+SAL=valor de los salarios totales reportadas por la empresa.
+BEN=valor de otros beneficios salariales reportados por la empresa.
+CS=valor total de cargas sociales incluyendo cuota patronal y obrera a la CCSS, .INA, Banco Popular, JMAS, entre otros y que son reportados por la empresa.
+CL=valor total de las compras de bienes y servicios efectuadas en la economía local
+TRIBUTOS=valor total de todos los impuestos, tasas, contribuciones especiales que la empresa cancele en el país, así como el derecho de uso del régimen de zona franca
+UT-=valor de la utilidad neta obtenida en el período de análisis. El valor de UT no incluye ganancias o pérdidas por diferencial cambiario, ni gastos no operativos.
+DEP= Corresponde al valor de la depreciación del periodo fiscal.
+Para todos los efectos, la moneda de referencia en los factores para real izar el cálculo será el colón costarricense.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40141 del 20 de diciembre de 2016)

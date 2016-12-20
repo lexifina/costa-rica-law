@@ -73,6 +73,7 @@ articulo-65.md
 articulo-66.md
 articulo-66-bis.md
 articulo-67.md
+articulo-67-bis.md
 articulo-68.md
 articulo-69.md
 articulo-70.md
@@ -82,6 +83,7 @@ articulo-73.md
 articulo-74.md
 articulo-75.md
 articulo-76.md
+articulo-76-bis.md
 articulo-77.md
 articulo-78.md
 articulo-79.md
@@ -130,6 +132,7 @@ articulo-119.md
 articulo-120.md
 articulo-121.md
 articulo-122.md
+articulo-122-bis.md
 articulo-123.md
 articulo-124.md
 articulo-125.md
