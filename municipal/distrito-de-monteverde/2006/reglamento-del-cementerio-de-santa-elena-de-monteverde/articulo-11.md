@@ -1,2 +1,0 @@
-Artículo 11.—Todo propietario de derecho se compromete en el acto mismo de adquisición al pago de la cuota anual de mantenimiento. La omisión en el pago de esta cuota constituirá gravamen sobre el derecho respectivo según lo dispuesto por el artículo 70 del código municipal.
-Vencido el periodo de arrendamiento la Municipalidad quedará facultada para exhumar y trasladar al osario general los restos contenidos en el respectivo nicho

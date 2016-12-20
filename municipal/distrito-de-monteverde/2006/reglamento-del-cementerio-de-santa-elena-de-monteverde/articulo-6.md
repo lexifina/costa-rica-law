@@ -1,2 +1,0 @@
-Artículo 6º—Ninguna persona física podrá tener más de un derecho individual en este cementerio. Estos derechos no podrán ser de más de tres parcelas juntas, definidas éstas como espacios de 1,25 por 2,50 metros.
-Las personas jurídicas no podrán adquirir un derecho en el cementerio municipal.

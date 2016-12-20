@@ -1,2 +1,0 @@
-Artículo 26.—Las exhumaciones ordinarias a solicitud de los interesados se realizarán en presencia del encargado del cementerio y dos parientes cercanos de la persona fallecida. Las exhumaciones ordinarias que estuvieron motivadas por el interés de la administración municipal, con el fin de desocupar un espacio en el que hubieren transcurrido cinco años desde la última inhumación, requerirán la presencia de un representante de dicha administración.
-En ambos casos deberá levantarse un acta, cuya fórmula dispondrá y suministrará la misma administración.

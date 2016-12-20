@@ -1,1 +1,0 @@
-Artículo 32.—Las exhumaciones ordinarias por interés de particulares sólo se podrán efectuar dentro de la jornada ordinaria de los empleados del cementerio y quedarán sujetas al pago de los derechos oportunamente fijados por el concejo.
