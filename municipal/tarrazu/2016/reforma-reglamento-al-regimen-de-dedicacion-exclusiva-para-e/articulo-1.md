@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE TARRAZÚ
+El Concejo Municipal de Tarrazú, toma el acuerdo N° 12, en la sesión ordinaria 305-2016, celebrada el 2 de marzo del 2016: donde se modifica el artículo 4), inciso F) del Reglamento de Dedicación Exclusiva de la Municipalidad de Tarrazú, quedando de la siguiente manera: f) Que laboren a tiempo completo con la Municipalidad de Tarrazú en un puesto en propiedad por un espacio no menor de tres (3) meses y que tal nombramiento no haya sido interrumpido. Acuerdo definitivamente aprobado.
