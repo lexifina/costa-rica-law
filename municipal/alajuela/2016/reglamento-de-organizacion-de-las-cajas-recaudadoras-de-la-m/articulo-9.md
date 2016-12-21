@@ -1,0 +1,1 @@
+Artículo 9º—Seguridad de las cajas recaudadoras. Corresponde a la administración implantar todas las medidas necesarias para garantizar la seguridad de los bienes y los valores que se hallen en el lugar donde funcionan las cajas recaudadoras, así como de las personas que hacen uso de ellas.

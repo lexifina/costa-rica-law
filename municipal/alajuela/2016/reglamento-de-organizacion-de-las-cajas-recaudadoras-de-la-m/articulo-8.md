@@ -1,0 +1,1 @@
+Artículo 8º—Responsabilidades del cajero. El cajero será el responsable directo de los documentos, valores, enceres y equipo que manejen, así como de tomar las precauciones necesarias que garanticen la seguridad de su labor y de reportar cualquier circunstancia que lo afecte.

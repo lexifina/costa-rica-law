@@ -1,0 +1,1 @@
+Artículo 21.—Arqueos. Sin perjuicio de los que realice la Auditoría Interna en el cumplimiento de sus funciones, el Tesorero Municipal realizará arqueos periódicos y sorpresivos de las cajas recaudadoras que operen en la institución.

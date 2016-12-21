@@ -1,0 +1,1 @@
+Artículo 38.—Derogatoria. El presente reglamento deroga el Reglamento de Cajas Recaudadoras de la Municipalidad de Alajuela, aprobado en la sesión ordinaria N° 74 del 03 de setiembre de 1990 y publicado en La Gaceta N° 200 del 23 de octubre de 1990, y todas aquellas disposiciones internas de igual o inferior rango que se le oponga.

@@ -1,0 +1,1 @@
+Artículo 27.—Encargado de las cajas recaudadoras auxiliares. Las funciones de cajero de las cajas recaudadoras auxiliares recaerán sobre la persona que desempeñe el cargo de encargado de la respectiva oficina auxiliar.

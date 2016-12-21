@@ -1,0 +1,1 @@
+Artículo 20.—Elaboración del depósito. Corresponde al cajero respectivo, elaborar los documentos de depósito del dinero recaudado diariamente, los cuales entregará junto con la liquidación y demás documentos, al Tesorero Municipal para su verificación.

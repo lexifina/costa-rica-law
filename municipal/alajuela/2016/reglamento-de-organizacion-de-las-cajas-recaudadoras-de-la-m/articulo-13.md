@@ -1,0 +1,1 @@
+Artículo 13.—Forma de emisión de los comprobantes de ingreso. Cada comprobante de ingreso se emitirá en duplicado, uno para el contribuyente y otro para la Municipalidad. Se podrá solicitar reimpresiones de recibos en los casos que ameriten Salvo en los casos que expresamente señale el respectivo manual, deberá emitirse directamente del sistema informático.
