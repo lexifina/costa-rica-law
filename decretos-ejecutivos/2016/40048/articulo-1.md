@@ -1,0 +1,38 @@
+N° 40048-MINAE-MOPT
+EL PRESIDENTE DE LA REPÚBLICA,
+LA MINISTRA DE AMBIENTE Y ENERGÍA
+Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
+En ejercicio de las facultades que les confieren los incisos 3) y 18) del numeral 140 y el artículo’ 146 de la Constitución Política; la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 3155 del 05 de agosto de 1963, reformada mediante Ley N° 4786 del 05 de julio de 1971; los artículos 19 inciso b), 33 y 34 de la Ley Forestal, N° 7575 del 13 de febrero de 1996; el artículo 2 inciso m) del Reglamento a la Ley Forestal, Decreto Ejecutivo N° 25721- MINAE del 17 de octubre de 1996 y los artículos 27.1 y 28.2.b) de la Ley General de Administración Pública, N° 6227 del 2 de mayo de 1978.
+Considerando:
+I.—Que el Plan Nacional de Desarrollo 2015-2018 “Alberto Cañas Escalante”, contempla para el Sector 5.12 “Transporte e Infraestructura”, que una de las grandes metas nacionales propuestas por el Gobierno de la República, está relacionada con la construcción de obras que faciliten el tránsito, así como optimizar la conectividad y seguridad en tramos de la red vial nacional mediante la construcción de puentes y mejorar la capacidad de movilización de mercancías en el país, para así contribuir con el desarrollo económico.
+II.—Que en el año 2013, el Consejo Nacional de Vialidad (CONAVI) detecta la necesidad de iniciar las gestiones necesarias para promover la contratación correspondiente a través de la cual, sea posible proceder con la instalación de los puentes modulares metálicos en la Ruta Nacional N° 245, ubicada en la Región Brunca, Distrito Puerto Jiménez, Cantón Golfito, Provincia de Puntarenas, y de esta forma resolver el problema de accesibilidad en la referida ruta, principalmente en época lluviosa, como consecuencia de la ausencia de puentes que limita el paso y provoca aislamiento respecto de los lugares que proveen servicios básicos.
+III.—Que como se expuso en el considerando anterior, en dicha ruta se presentan serios problemas de accesibilidad, destacándose sin embargo los siguientes:
+- Falta de puentes en los principales ríos que alcanzan distancias entre 21 a 39 metros de largo.
+- Sistema de drenaje pluvial deteriorado e insuficiente.
+- El tránsito se concentra en esta ruta, debido a que no hay rutas alternas con costos de operación similares.
+IV.—Que las falencias anteriormente descritas, generan la imposibilidad de brindar servicios básicos eficientes, afectando a los usuarios de la zona e incrementando las condiciones precarias en las que viven diariamente. A manera de resumen los que se destacan a continuación, son los problemas de mayor complejidad que aquejan a los usuarios:
+- Deficiente servicio de transporte público.
+- Encarecimiento del costo de transporte.
+- Incremento en los tiempos de viaje.
+- Encarecimiento en el costo de transporte de productos.
+- Aumento en los costos de operación.
+- Insatisfacción general del usuario.
+V.—Que como problema adicional, está la falta de rutas alternas en caso de que la Ruta Nacional N° 245 se encuentre fuera de servicio, toda vez que la ruta cantonal aledaña, se encuentra en peores condiciones y también es afectada como consecuencia de la inundación de los ríos; por tanto, sólo puede ser utilizada en época seca. La otra opción sería utilizar la vía marítima.
+VI.—Que la posible solución que se presenta a los problemas antes planteados, es la colocación de puentes tipo Bailey de forma provisional donde actualmente existen vados, mejorando el paso en época lluviosa, lo cual permitirá reducir los tiempos de viaje y en consecuencia, los costos de operación.
+VII.—Que en razón de lo anterior, el CONAVI promueve la Licitación 2014LN-000002-ODI00, presupuestando un monto de ¢1.448.097.534,15 (mil cuatrocientos cuarenta y ocho millones noventa y siete mil quinientos treinta y cuatro colones con 15/100) los cuales serán respaldados con el presupuesto ordinario del CONAVI para el “armado y colocación de los puentes en la Ruta Nacional 245: Puerto Jiménez-Carate”; dichos puentes serán colocados sobre los siguientes ríos:
+a) Quebrada Sombrerito.
+b) Río Carbonara.
+c) Río Piro.
+d) Río Bijagual.
+e) Quebrada Camañín.
+VIII.—Que según se consigna en el Inventario Forestal para Obras de Construcción de Puentes sobre la Ruta Nacional N° 245, elaborado en el mes de julio del 2015 por funcionarios de la Dirección de Seguridad y Embellecimiento de Carreteras del Ministerio de Obras Públicas y Transportes (MOPT), para la ejecución del proyecto en cuestión se debe proceder con la corta aproximada de 47 (cuarenta y siete) árboles ubicados las áreas de protección, definidas en el inciso b) del artículo 33 de la Ley Forestal N° 7575.
+IX.—Que el citado proyecto, al amparo del artículo 17 de la Ley Orgánica del Ambiente N° 7554, cuenta con la respectiva viabilidad ambiental emitida por la Secretaría Técnica Nacional Ambiental, según resolución N° 562-2016-SETENA de la once horas cincuenta y cinco minutos del primero de abril de dos mil dieciséis (expediente administrativo N° D1-15726-2015-SETENA).
+X.—Que los artículos 19 inciso b) y 34 de la Ley Forestal N° 7575, prohíben el cambio de uso del suelo en terrenos cubiertos de bosque, así como la corta de árboles en áreas de protección, excepto en proyectos estatales o privados que el Poder Ejecutivo declare de conveniencia nacional, sean aquellos proyectos cuyos beneficios sociales sean mayores a los costos socio ambientales, tal y como acontece con el Proyecto denominado “Armado y colocación de puentes en la ruta nacional N°245: Puerto Jiménez-Carate”.
+XI.—Para tal efecto, el CONAVI, elaboró la evaluación económico-social del citado proyecto, misma que fue sometida por parte del Ministerio de Ambiente y Energía a valoración, en aras de ponderar que los beneficios sociales sean superiores a los costos socio-ambientales, al amparo del inciso m) del artículo 03 de la Ley Forestal N° 7575, lo anterior a efecto de que se emitieran las recomendaciones respectivas, mismas que en lo conducente, refirieron que el procedimiento utilizado por el CONAVI, corresponde a una metodología adecuada para demostrar el bienestar social, y a la postre se concluyó que:
+“...el estudio presentado muestra que existe un beneficio social positivo. Con la construcción de los puentes se permite a las comunidades aledañas el tránsito y evita su aislamiento en época lluviosa. De este modo les permite la provisión de servicios básicos, también contribuye a dinamizar la economía del lugar y a fortalecer la red vial del país... Por las razones anteriores y considerando que los resultados del proyecto (TIRE Y VANE socio ambiental) fueron positivos, se considera que al proyecto puede otorgársele la declaratoria de conveniencia nacional...”
+XII.—Que de conformidad con el Reglamento a la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos, Decreto Ejecutivo N° 37045-MP-MEIC y sus reformas, se determinó que la presente propuesta no establece ni modifica trámites, requisitos o procedimientos, que el administrado deba cumplir, situación por la que no se procedió con el trámite de control previo. Por tanto,
+Decretan:
+Declaratoria de Conveniencia Nacional del Proyecto
+denominado “Armado y colocación de puentes en
+la ruta nacional N°245: Puerto Jiménez-Carate”
+Artículo 1°—Se declara de Conveniencia Nacional el proyecto de obra pública denominado “Armado y colocación de puentes en la ruta nacional N° 245: Puerto Jiménez-Carate”, así como las labores asociadas, de prevención, mitigación y compensación requeridas por el mismo, dentro del área del proyecto, las cuales serán ejecutadas por el Consejo Nacional de Vialidad (CONAVI).
