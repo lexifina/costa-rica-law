@@ -1,0 +1,5 @@
+Artículo 23— Obligatoriedad de lo establecido en este Reglamento. Todo lo anterior establecido en el presente Reglamento y el Manual de Normas para presupuesto extraordinarios y variaciones presupuestarias son de carácter vinculante para la Municipalidad de Pococí y deroga cualquier otro reglamento que se haya aprobado. El alcalde y todas las unidades administrativas, contaran con un plazo de un mes a partir de la entrada en vigencia de este reglamento para realizar los ajustes administrativos necesarios que aseguren el cumplimiento de todas las disposiciones contenidas en este cuerpo normativo.
+Este Reglamento rige a partir de su publicación en el Diario Oficial La Gaceta.
+Por Unanimidad SE ACUERDA: Aprobar el Manual de Normas y Procedimientos para Presupuestos Extraordinarios y Variaciones Presupuestarias, y el Reglamento Sobre Variaciones y Modificaciones Presupuestarias de La Municipalidad de Pococí, publíquese en el Diario Oficial La Gaceta. Dispénsese del Trámite de Comisión.
+Acuerdo Definitivamente Aprobado.
+Guápiles, 22 de noviembre del 2016.

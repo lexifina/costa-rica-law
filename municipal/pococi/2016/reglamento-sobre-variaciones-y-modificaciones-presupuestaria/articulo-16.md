@@ -1,0 +1,1 @@
+Artículo 16º— Nivel de detalle. El nivel de detalle requerido será el mismo nivel de detalle que se estableció para la aprobación interna de los presupuestos ordinarios, correspondiendo dicho nivel al de la máxima segregación, de conformidad con los clasificadores presupuestarios para el sector público vigentes.

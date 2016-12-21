@@ -1,0 +1,1 @@
+Artículo 11.—La custodia de la información. Los expedientes que se generen por cada presupuesto extraordinario y modificación presupuestaria serán custodiados por la Unidad de Presupuesto. Estos expedientes deben estar accesibles tanto a la Auditoría Interna como a la Contraloría General de la Republica, para sus funciones de fiscalización posterior.

@@ -1,0 +1,1 @@
+Artículo 20º—Fiscalización. Cada tres meses Hacienda Municipal, informará al Alcalde, y este a su vez al Concejo municipal, mediante un cuadro resumen, de las modificaciones presupuestarias realizadas, así como también rendir los informes de ejecución presupuestaria.

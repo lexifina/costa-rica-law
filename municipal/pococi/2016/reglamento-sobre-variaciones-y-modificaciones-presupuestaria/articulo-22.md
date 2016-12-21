@@ -1,0 +1,1 @@
+Artículo 22º—Régimen Sancionatorio. El incumplimiento de las disposiciones de este reglamento y de las normas legales y directrices aplicables en la materia, dará lugar a la aplicación de las sanciones que establece el Código Municipal, Ley General de Control Interno, Ley contra la Corrupción y enriquecimiento ilícito y demás disposiciones concordantes.
