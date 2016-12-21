@@ -1,1 +1,0 @@
-Artículo 3º—Clases de revisión tarifaria. Las tarifas establecidas para la operación de la revisión técnica integral por parte del Consorcio Riteve-SyC podrán actualizarse por causales ordinarias o extraordinarias, conforme a las especificaciones establecidas por el presente reglamento.
