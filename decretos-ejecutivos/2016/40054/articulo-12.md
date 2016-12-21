@@ -1,0 +1,2 @@
+Artículo 12. Modifíquese el artículo 33 del reglamento a la Ley de biodiversidad Decreto ejecutivo N° 34433-MINAE, para que se lea así:
+“Artículo 33. Sobre los periodos de nombramiento del Consejo Regional. Los miembros del Consejo Regional serán nombrado en sus cargos por un plazo de tres años. Cuando alguno de los miembros propietarios no pueda continuar ejerciendo el cargo o haya sido removido, lo sumirá el suplente hasta que se realice una convocatoria pública para el nombramiento del representante del sector correspondiente”.

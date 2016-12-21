@@ -1,0 +1,1 @@
+Artículo 6. Las Oficinas Subregionales de las Áreas de Conservación deberán continuar con la atención y tramitación de las solicitudes que los usuarios hayan realizado en las Oficinas Subregionales, sobre los temas de su competencia conferidas por ley.

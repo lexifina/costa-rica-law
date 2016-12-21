@@ -1,0 +1,1 @@
+Transitorio II. El viceministro de Agua, Mares, Costas y Humedales en conjunto con las Áreas de Conservación del SINAC que tienen litorales costeros tendrán hasta seis meses a partir de la publicación del presente decreto ejecutivo para estableces sus límites marinos.

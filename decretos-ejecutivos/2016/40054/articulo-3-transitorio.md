@@ -1,0 +1,1 @@
+Transitorio III. En el plazo de dieciocho meses a partir de la publicación del presente Decreto, el MINAE gestionará las plazas necesarias para el cargo de Director de Áreas de Conservación del SINAC ante la Secretaría Técnica de la Autoridad Presupuestaria.

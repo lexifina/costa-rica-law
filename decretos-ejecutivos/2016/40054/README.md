@@ -1,0 +1,16 @@
+# Decreto Ejecutivo 40054
+
+Regionalización del Ministerio de Ambiente y Energía y reforma Reglamento a la Ley de Biodiversidad
+
+- Tipo: Decreto Ejecutivo
+- Número: 40054
+- Fecha: 2016-10-19
+- Ente emisor: Poder Ejecutivo
+- Publicación: La Gaceta N° 245 del 2016-12-21, Alcance 315
+- SINALEVI: https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=83217&param2=106752&param3=1 (ficha 83217)
+
+## Versiones
+
+| Versión | En vigor desde | Hecha por |
+| --- | --- | --- |
+| 1 | 2016-12-21 | la propia norma |

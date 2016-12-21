@@ -1,0 +1,1 @@
+Artículo 3. Formarán parte de las Áreas de Conservación con litorales costeros, las aguas interiores y el área del Mar Territorial correspondiente, así como las áreas silvestres marinas protegidas allí localizadas excepción del Golfo de Nicoya y sus Islas cuya administración corresponderá exclusivamente al ACT.
