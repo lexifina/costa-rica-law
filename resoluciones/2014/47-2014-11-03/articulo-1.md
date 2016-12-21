@@ -1,4 +1,6 @@
+(Anulada)
 DIRECCIÓN GENERAL DE TRIBUTACIÓN
+(Esta norma fue anulada mediante resolución Nº 00133-2016 del 21 de diciembre de 2016 de la Sección Quinta del Tribunal Contencioso Administrativo)
 RESOLUCIÓN SOBRE VENTAS POR CATÁLOGO
 Nº DGT-R-047-2014. —San José, a las once horas del tres de noviembre de dos mil catorce.
 I.—Que el artículo 99 del Código de Normas y Procedimientos Tributarios faculta a la Administración Tributaria a dictar normas generales para los efectos de la aplicación correcta de las leyes tributarias, dentro de los límites fijados por las disposiciones legales y reglamentarias pertinentes.

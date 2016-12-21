@@ -14,3 +14,4 @@ Establece regulaciones para los productos vendidos por las empresas que operan b
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-02-01 | la propia norma |
+| 2 | 2016-12-21 | SINALEVI (sin norma nombrada) |
