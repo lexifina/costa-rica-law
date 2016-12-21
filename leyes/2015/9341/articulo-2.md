@@ -21,3 +21,4 @@ Artículo 2°: Apruébanse los siguientes Egresos Ordinarios y Extraordinarios d
 (Modificado por el artículo 1° del decreto ejecutivo N° 40021 del 11 de noviembre de 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40036 del 21 de noviembre de 2016)
 (Modificado por el artículo 1° del decreto ejecutivo N° 40058 del 2 de diciembre del 2016)
+(Modificado por el artículo 1° del decreto ejecutivo N° 40093 del 19 de diciembre de 2016)
