@@ -1,0 +1,1 @@
+Artículo 8. La vigencia de este decreto ejecutivo tendrá un plazo de un año a partir de su publicación y los permisos que se otorguen con fundamento en este, no podrán tener una vigencia superior a este periodo.
