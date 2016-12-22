@@ -1,3 +1,5 @@
-Artículo 61º. De la prestación de servicios a no asegurados.
-En caso de no asegurados, cuando la atención sea urgente, serán atendidos de inmediato, bajo su responsabilidad económica, entendiéndose que el pago podrá hacerse, en esta hipótesis, después de recibir la atención médica.
-En caso de que la atención no sea de urgencia o de emergencia, el pago deberá efectuarse por el no asegurado antes de recibir la atención, sin perjuicio de poner a su disposición las alternativas de aseguramiento que ofrece la institución.
+Artículo 61°-De la prestación de servicios a usuarios sin modalidad de aseguramiento. En caso de usuarios sin modalidad de aseguramiento. cuando la atención sea urgente. serán atendidos de inmediato, bajo su responsabilidad económica. entendiéndose que el pago podrá hacerse. en esta hipótesis. después de recibir la atención médica.
+Si el usuario se presenta sin su documento de identidad. será atendido si se trata de urgencia o de emergencia. si dentro de los tres días posteriores a la fecha en que concluyó la primera atención médica, no presenta documento de identidad. el servicio le será facturado y cobrado por las vías que fueren pertinentes.
+En caso de que la atención no sea de urgencia o de emergencia. el pago deberá efectuarse por el usuario sin modalidad de aseguramiento antes de recibir la atención. sin perjuicio de poner a su disposición las alternativas de aseguramiento que ofrece la Institución.
+Los servicios que se otorguen a personas extranjeras no aseguradas en condición de pobreza a quienes no les puede ser otorgado el Seguro por el Estado, deberán facturarse para efectos del cobro a la instancia de Gobierno que corresponda.
+(Así reformado en sesión N° 8881 del 22 de diciembre de 2016)
