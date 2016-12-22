@@ -1,0 +1,1 @@
+ARTICULO 18- Del seguimiento de las recomendaciones. El Contralor de Servicios podrá realizar todos aquellos trámites y procedimientos necesarios para vigilar y garantizar el cumplimiento de las recomendaciones contenidas en los informes rendidos por esta Contraloría que requieran seguimiento.

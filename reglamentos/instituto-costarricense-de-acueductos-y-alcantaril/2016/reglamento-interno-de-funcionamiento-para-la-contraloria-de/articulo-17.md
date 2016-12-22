@@ -1,0 +1,1 @@
+ARTICULO 17- De las investigaciones. Con fundamento en la investigación se elaborará un informe que podrá incluir recomendaciones para la adopción de políticas, manuales, normas y procedimientos en procura de una prestación de servicios oportuna y eficaz a favor de los administrados.

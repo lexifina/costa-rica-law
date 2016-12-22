@@ -1,0 +1,1 @@
+ARTICULO 12. De los traslados de casos. Las fórmulas de los traslados de casos a utilizar por la Contraloría de Servicios deberán considerar lo indicado en los artículo N° 7 y N° 8 del presente Reglamento.

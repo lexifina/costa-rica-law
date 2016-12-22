@@ -1,0 +1,1 @@
+ARTÍCULO 20.- Relación inter institucional: En coordinación con el despacho de la Presidencia Ejecutiva y la Gerencia General, el Contralor de Servicios podrá participar en reuniones, talleres, seminarios, foros y proyectos en conjunto con otras instancias homólogas, con el propósito de coordinar interinstitucionalmente en mejora del cumplimiento de los objetivos institucionales.
