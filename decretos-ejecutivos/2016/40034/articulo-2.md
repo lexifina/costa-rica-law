@@ -1,0 +1,1 @@
+Artículo 2.- Las denuncias presentadas por parte de un consumidor, serán tramitadas conforme lo dispuesto en el Decreto Ejecutivo N° 37832-MICCITT-MEIC, y la Ley N° 7472, Ley de Promoción de la Competencia y Defensa Efectiva del Consumidor y su reglamento.

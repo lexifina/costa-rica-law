@@ -1,0 +1,1 @@
+Artículo 4.- Los costos que se generen producto del incumplimiento de este reglamento deberán ser cubiertos por el infractor, conforme a lo dispuesto en la ley N° 7472, Ley de Promoción de la Competencia Efectiva del Consumidor y su reglamento.
