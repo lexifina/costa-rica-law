@@ -1,0 +1,2 @@
+Artículo 14—Modificaciones. Los contratos de colaboración público privada estarán sujetos al principio constitucional de mutabilidad contractual y a las reglas de modificación previstas en la Ley de Contratación Administrativa y en su Reglamento.
+Cuando la Administración acuerde modificaciones que afecten el equilibrio financiero del contrato, deberá compensar al contratista colaborador de conformidad con lo dispuesto en el artículo 8 de este Reglamento.

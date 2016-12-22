@@ -1,0 +1,4 @@
+Artículo 11—Supervisión. Durante la vigencia del contrato, la Administración deberá ejercer la supervisión del
+cumplimiento del contrato por parte del contratista colaborador. El cartel y el contrato dispondrán el esquema de multas y sanciones aplicables a los eventuales incumplimientos del contratista.
+En el cartel y en el contrato la Administración podrá exigir el aporte del contratista colaborador para el financiamiento de las actividades de supervisión.
+Para el desarrollo de las actividades de supervisión, la Administración podrá contratar los servicios de empresas o consultores especializados de conformidad con el régimen de contratación previsto en la Ley de Contratación Administrativa, sin perjuicio de los regímenes especiales de contratación existentes para determinados entes y órganos públicos según el ordenamiento jurídico.

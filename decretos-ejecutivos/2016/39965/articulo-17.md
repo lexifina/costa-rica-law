@@ -1,0 +1,2 @@
+Artículo 17—Procedimiento para la selección del contratista colaborador. Para la selección del contratista colaborador, la Administración se sujetará a los procedimientos ordinarios y su régimen recursivo de conformidad con las disposiciones de la Ley de Contratación Administrativa y su Reglamento.
+No obstante, de conformidad con los incisos a) y c) del artículo 2 bis de la Ley de Contratación Administrativa, la Administración podrá promover procedimientos de contratación directa o sistemas especiales, previa autorización por parte de la Contraloría General de la República.

@@ -1,0 +1,3 @@
+Artículo 16—Aspectos ambientales. La Administración deberá dar cumplimiento a los requisitos asociados a cuestiones ambientales, de conformidad con lo dispuesto por la normativa legal y reglamentaria en esa materia, según lo dispongan las autoridades competentes.
+La Administración podrá asignar la responsabilidad de este cumplimiento al contratista colaborador, según se estime más conveniente, en el cartel y en el contrato respectivo.
+En este caso el cartel y el contrato deberán especificar la distribución de riesgos y el tratamiento de las consecuencias con respecto de eventuales atrasos o improbaciones por parte de las autoridades competentes.
