@@ -1,0 +1,1 @@
+Artículo 20°—Aplicación supletoria. En lo no dispuesto por este Reglamento, se aplicarán supletoriamente las disposiciones contenidas en la Ley General de la Administración Pública y en lo que resulte aplicable en relación con los mecanismos de elección, el Código Electoral.

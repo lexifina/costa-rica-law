@@ -1,0 +1,10 @@
+CAPÍTULO IV
+De los deberes de las personas representantes de las organizaciones ciudadanas
+en la estructura de fiscalización, supervisión y vigilancia
+Artículo 15°—Deberes de las personas representantes de las organizaciones ciudadanas. Sin perjuicio de las funciones y responsabilidades específicas que sean asignadas a la estructura de fiscalización, supervisión y vigilancia en el contrato del fideicomiso, las personas representantes de las organizaciones ciudadanas deberán cumplir las siguientes obligaciones y deberes:
+1) Asistir a todas las sesiones convocadas por dicha estructura y cumplir con las obligaciones inherentes al cargo como integrantes de ese órgano colegiado.
+2) Cumplir con los principios rectores y no utilizar este espacio para obtener un beneficio económico personal ni indirecto, para su organización o para terceros, como resultado de su participación en la estructura referida.
+3) Convocar junto al resto de las personas integrantes de la estructura de fiscalización supervisión y vigilancia, una vez cada seis meses como mínimo, a la ciudadanía en general para que el pleno de dicha estructura de fiscalización, explique los avances de la obra y atienda las consultas que se presenten, de conformidad con lo que al efecto prescribe el artículo 11 de la Ley N° 9292.
+4) Atender y representar en todo momento los intereses de las comunidades y de la ciudadanía en general en los asuntos que deben conocer, relacionados con la ejecución del fideicomiso y el proyecto de obra del corredor vial San José-San Ramón.
+5) Presentar ante la ciudadanía en general, un informe final de labores al concluir su período de nombramiento.
+6) Abstenerse, en caso de llegar a ocupar cargos remunerados en la función pública, de incurrir en las prohibiciones, incompatibilidades y restricciones que establece la Ley contra la Corrupción y el Enriquecimiento Ilícito en la Función Pública, la Ley de Contratación Administrativa y demás normativa aplicable para salvaguardar su objetividad e imparcialidad en el ejercicio de las funciones que demanda la estructura de fiscalización.

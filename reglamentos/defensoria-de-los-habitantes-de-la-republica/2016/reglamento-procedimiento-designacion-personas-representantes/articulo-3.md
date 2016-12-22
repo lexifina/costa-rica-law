@@ -1,0 +1,1 @@
+Artículo 3°—Principios rectores. Todo el proceso hasta la designación final de las personas representantes, se regirá por los principios de transparencia, participación abierta y democrática, procurando la pluralidad, igualdad, paridad de género y diversidad de las organizaciones ciudadanas señaladas en la Ley N° 9292.
