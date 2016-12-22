@@ -14,3 +14,4 @@ Reglamento para el control de las emisiones contaminantes producidas por los veh
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-30 | la propia norma |
+| 2 | 2016-12-22 | Decreto Ejecutivo 40108 (2016-12-22) |
