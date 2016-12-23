@@ -1,1 +1,1 @@
-Artículo 20.—Reformas. El presente Reglamento sólo podrá ser modificado por la Junta Directiva, mediante votación calificada.
+Artículo 20.—Otros Casos no previstos. Para aquellos casos no previstos en este Reglamento, corresponderá a la Dirección Ejecutiva su resolución.

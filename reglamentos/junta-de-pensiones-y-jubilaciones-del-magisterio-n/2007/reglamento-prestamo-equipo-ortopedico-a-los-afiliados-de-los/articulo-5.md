@@ -1,8 +1,5 @@
-Artículo 5º—Administración del equipo ortopédico. El control del equipo será responsabilidad de la Jefatura del Departamento de Prestaciones Sociales, por lo cual le corresponde:
-- Mantener un inventario adecuado del equipo ortopédico que posee la Junta.
-- Custodiar los equipos ortopédicos que se encuentran en su poder.
-- Entregar, recuperar y recibir el equipo dado en préstamo a los beneficiarios.
-- Realizar la inspección y control del equipo, con el propósito de verificar el uso adecuado del mismo y determinar que persisten las condiciones de necesidad que dieron origen al préstamo.
-- Informar sobre el estado físico del equipo ortopédico y gestionar su reparación o sustitución.
-- Todas las demás funciones que este Reglamento contempla y las que sus superiores le indiquen para el adecuado servicio.
-Lo anterior, sin perjuicio de las facultades que le establece el Reglamento de Control de Activos Fijos, al Departamento Administrativo.
+Artículo 5.—Requisitos. Para gestionar el préstamo del equipo ortopédico, la afiliación del Magisterio Nacional deberá cumplir con los siguientes requisitos:
+1. Llenar el formulario de solicitud, el cual será facilitado por los funcionarios del Departamento de Prestaciones Sociales de la Junta, o bien por la funcionaria (o) encargado de cualquiera de las sucursales con que cuenta la Junta.
+En el mismo deberán suministrarse las calidades personales y demás datos señalados en la respectiva fórmula, la cual deberá ser firmada por la afiliación del Magisterio Nacional solicitante y en caso de que presente algún impedimento físico para llenar la solicitud, lo puede hacer a ruego en su nombre cualquier pariente o persona encargada de su cuidado.
+2. Presentar dictamen médico o epicrisis original que indique la necesidad de utilizar el equipo solicitado.
+En el supuesto que surja duda respecto a la legitimidad de la información presentada, la Junta puede solicitar otra documentación diferente a la establecida.
