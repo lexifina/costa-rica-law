@@ -1,0 +1,1 @@
+Artículo 2°—Fundamento legal: La materia regulada en este reglamento se fundamenta en lo dispuesto por la Ley General de Salud Ley N° 5395, artículos 36 y 327 al 330, el Reglamento General de Cementerios, Decreto Ejecutivo N° 32833-S del 19 de diciembre de 2005 y el Código Municipal.

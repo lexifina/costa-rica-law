@@ -1,0 +1,1 @@
+Artículo 13°—Para la adquisición de derechos, el pago correspondiente será de contado. La administración podrá vender derechos con facilidades de pago en casos especiales cuando adquiera derechos por abandono de los mismos de acuerdo con lo establecido en este Reglamento y en la parte de ampliación de este cementerio.

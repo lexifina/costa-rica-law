@@ -1,0 +1,1 @@
+Artículo 50.—La realización de actos religiosos de distintos credos estarán sujetos a lo indicado en la legislación emitida sobre la materia; no obstante, la Municipalidad no hará diferencias de tipo económico, social, cultural, racial, político o religioso, siempre y cuando los actos que ahí se realicen no atenten contra el orden, la moral y las buenas costumbres.

@@ -1,0 +1,1 @@
+Artículo 49.—Dentro de las posibilidades presupuestarias y la planificación institucional, la Municipalidad realizará todo tipo de construcciones, reparaciones y mantenimiento en las instalaciones del Cementerio, tanto en su terreno propio como en los derechos ya adquiridos. El traspaso de derechos se hará con tales limitaciones.

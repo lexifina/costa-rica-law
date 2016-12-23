@@ -1,0 +1,1 @@
+Artículo 51.—La Municipalidad por medio de la Administración del Cementerio, tiene la autoridad para hacer respetar y acatar las disposiciones de este Reglamento. Los poseedores de derechos se obligan a cumplirlo y así se hará constar en el contrato respectivo.

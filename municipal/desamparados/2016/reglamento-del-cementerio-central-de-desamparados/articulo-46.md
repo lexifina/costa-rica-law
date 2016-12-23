@@ -1,0 +1,1 @@
+Artículo 46.—En caso de que los poseedores incumplan las obligaciones de este Reglamento o del Contrato derechos posesorios, la Municipalidad quedará facultada para dar por terminado el contrato y recuperar el lote y efectuar las exhumaciones las ordinarias de oficio en el plazo en que corresponda.

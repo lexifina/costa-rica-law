@@ -1,0 +1,1 @@
+Artículo 23.—Solo se podrá adquirir un derecho posesorio por familia. Quedan exentos de esta prohibición los poseedores que a la entrada en vigencia del presente reglamento posean dos o más derechos en el cementerio.

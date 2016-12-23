@@ -1,0 +1,1 @@
+Artículo 30.—La Municipalidad se compromete a proteger y vigilar las instalaciones del cementerio. No obstante, será responsable por profanaciones de tumbas, pérdidas, robos o daños causados por terceros, cuando se logre demostrar negligencia municipal.

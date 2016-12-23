@@ -1,0 +1,1 @@
+Artículo 54.—Los poseedores que van a construir por primera vez o por mejora, deberán solicitar el respectivo permiso de Construcción en la Municipalidad y cancelar el monto correspondiente. La solicitud deberá estar firmada por el poseedor o coposeedores del derecho de posesión.

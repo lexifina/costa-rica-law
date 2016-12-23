@@ -1,0 +1,1 @@
+Artículo 60.—El presente reglamento, se complementará cuando exista alguna omisión, en las disposiciones sobre el tema en la Ley General de Salud y en el Reglamento General de Cementerios. Asimismo en caso de duda en la aplicación de una norma específica, prevalecerá lo dispuesto en la Ley y el Reglamento de cita.

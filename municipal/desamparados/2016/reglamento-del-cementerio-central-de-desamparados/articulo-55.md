@@ -1,0 +1,1 @@
+Artículo 55.—El poseedor y/o coposeedores de un derecho deberán estar al día con su cuota de mantenimiento antes de iniciar cualquier tipo de construcción o mejora, de lo contrario no se les permitirá realizar ningún trabajo.

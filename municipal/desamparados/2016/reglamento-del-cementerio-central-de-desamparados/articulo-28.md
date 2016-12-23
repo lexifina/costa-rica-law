@@ -1,0 +1,1 @@
+Artículo 28.—Cuando a la apertura de un nicho de alquiler se encontraren momias o restos blandos, se ampliará el arrendamiento por un período de dos años más para verificar si se pueden exhumar los restos. En este caso el arrendatario deberá cancelar lo correspondiente a la prórroga y mantenimiento durante ese período.

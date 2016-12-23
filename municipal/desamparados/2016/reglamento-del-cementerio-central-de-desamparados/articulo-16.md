@@ -1,0 +1,1 @@
+Artículo 16.—Los adquirentes de derechos podrán cederlos a terceras personas cuando no hayan sido usados, o cuando habiéndolos usado, se hubieren exhumado todos los restos que ellos contengan. Si no estuvieren completamente desocupados, sólo podrán ser adquiridos por los ascendientes, descendientes y colaterales, hasta el tercer grado de consanguinidad o afinidad.
