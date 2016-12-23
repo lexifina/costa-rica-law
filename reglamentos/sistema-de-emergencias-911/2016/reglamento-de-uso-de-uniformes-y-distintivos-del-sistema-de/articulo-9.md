@@ -1,0 +1,1 @@
+Artículo 9º—Del número 9-1-1. En caso de que al uniforme se le incluya el número 9-1-1, deberá utilizarse en la parte posterior del pantalón/enagua al lado izquierdo y en la manga izquierda de la camiseta o camisa tipo polo.

@@ -1,0 +1,1 @@
+Artículo 3º—Disposiciones Generales. El uso del uniforme Institucional, constituye un motivo de honor y dignidad personal, su uso debe ser completo e impecable, en todo lugar y ocasión. Les corresponde a los Coordinadores o Responsables de Proceso, disponer las medidas necesarias para que su personal a cargo, cumpla las normas establecidas en este reglamento.
