@@ -1,0 +1,1 @@
+Artículo 2. En el caso de incumplimiento de las disposiciones contenidas en el presente Decreto Ejecutivo por parte del interesado, las autoridades de salud podrán aplicar las medidas especiales previstas en el artículo 356 de la Ley General de Salud.
