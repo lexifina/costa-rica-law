@@ -1,0 +1,2 @@
+TRANSITORIO VII.-Para efectos de establecer los medios electrónicos para registrar las transacciones y los comprobantes de sus transacciones de compra y venta, registros contables y otros medios requeridos para el control tributario, se contará con un período hasta de veinticuatro meses, contado a partir de la entrada en vigencia de la presente ley.
+Dado en la Presidencia de la República. San José, a los catorce días del mes de diciembre del año dos mil dieciséis.

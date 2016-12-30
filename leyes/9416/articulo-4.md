@@ -1,0 +1,2 @@
+ARTÍCULO 4.- Medios alternativos de pago
+Todas las personas, físicas o jurídicas, con actividad lucrativa que presten sus servicios al público están obligadas a aceptar, como medio de pago alternativo, las tarjetas de crédito o débito, así como cualquier otro mecanismo electrónico o no, en donde exista una institución financiera que le garantice al comerciante la acreditación del dinero a su favor.
