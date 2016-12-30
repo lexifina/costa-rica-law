@@ -1,3 +1,1 @@
-Artículo 18.- Los Fiscales que incumplan las obligaciones que les resulten de esta ley, violen las disposiciones relativas a honorarios o incurran en cualquier otra falta contraria a las leyes, serán sancionados, sin perjuicio de lo dispuesto en el artículo 16, y según las circunstancias y gravedad de los hechos, con amonestación escrita o suspensión no mayor de tres meses por el Director General de Hacienda, o con revocatoria del nombramiento por el Ministerio de Economía y Hacienda(*)una vez enterado de los hechos por el Director General.
-(Así reformado por el artículo 1º de la Ley Nº 3493 de 29 de enero de 1965).
-(*) (Ministerio de Hacienda a partir de la Ley Nº 3840 de 27 de diciembre de 1966.)
+Artículo 18.- (Derogado por el artículo 19 inciso b) de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

@@ -1,0 +1,1 @@
+TRANSITORIO V.-Las reformas de los artículos 53, 74 y 90 de la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y sus reformas, no afectarán a aquellos procesos que, a la fecha de entrada en vigencia de esta ley, ya se encuentran presentados al Ministerio Público.

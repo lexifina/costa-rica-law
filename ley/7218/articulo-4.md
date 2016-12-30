@@ -1,1 +1,1 @@
-ARTICULO 4.- Autorízase al Ministerio de Hacienda para que reciba, en pago de los tributos adeudados, inmuebles que ofrezcan los deudores, previo avalúo por parte de la Dirección General de la Tributación Directa.
+ARTICULO 4.- (Derogado por el artículo 19 inciso a) de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

@@ -1,0 +1,2 @@
+ARTÍCULO 11.- Verificación de cumplimiento
+Corresponderá a la Dirección General de Tributación el control del cumplimiento del suministro de información de personas jurídicas y de las otras estructuras jurídicas, así como la aplicación de la sanción que corresponda. Para estos efectos, el Banco Central de Costa Rica, en su condición de administrador de la base, suministrará a la Dirección General de Tributación la información correspondiente para cumplir con lo dispuesto en este artículo.

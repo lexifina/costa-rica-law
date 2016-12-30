@@ -1,0 +1,1 @@
+TRANSITORIO III.-Los embargos administrativos que se hayan practicado, antes de la entrada en vigencia de la presente ley, mantendrán su vigencia de conformidad con los términos y las condiciones en que fueron decretados.
