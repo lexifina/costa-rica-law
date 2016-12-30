@@ -1,3 +1,4 @@
-Artículo 149.- Órganos competentes para sancionar.
-Las sanciones administrativas tributarias serán impuestas por los órganos de la Administración Tributaria que dicten los actos administrativos mediante los cuales se determinen los tributos o, en su caso, los ingresos por retenciones a cuenta de ellos.
-(Así reformado por el artículo 8 de la Ley de Justicia Tributaria No.7535 del 1 de agosto de 1995. El numeral 6 de la indicada ley corrigió la numeración, traspasándolo del antiguo 144 al actual)
+Artículo 149.-Órganos competentes para sancionar. Las sanciones por las infracciones administrativas establecidas en este Código serán impuestas por los órganos de las administraciones tributarias territoriales o de grandes contribuyentes de la Administración Tributaria, a los que, reglamentariamente, se les asigne competencia para el control del cumplimiento de las distintas obligaciones tributarias, tanto formales como materiales.
+También podrán imponer esas sanciones las direcciones funcionales que integran los servicios centrales de la Administración Tributaria cuando, mediante reglamento, se les asigne competencia para llevar a cabo, frente a determinados sujetos pasivos y otros obligados tributarios, aquellas mismas actuaciones de control.
+(Así corregido la numeración por el artículo 6 de la ley N° 7535 del 1 de agosto de 1995, traspasándolo del antiguo 144 al actual)
+(Así reformado por el artículo 16 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

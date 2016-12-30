@@ -16,6 +16,7 @@ articulo-15.md
 articulo-16.md
 articulo-17.md
 articulo-18.md
+articulo-18-bis.md
 articulo-19.md
 articulo-20.md
 articulo-21.md
@@ -80,6 +81,7 @@ articulo-79.md
 articulo-80.md
 articulo-80-bis.md
 articulo-81.md
+articulo-81-bis.md
 articulo-82.md
 articulo-83.md
 articulo-84.md
@@ -93,6 +95,7 @@ articulo-90.md
 articulo-91.md
 articulo-92.md
 articulo-93.md
+articulo-93-bis.md
 articulo-94.md
 articulo-95.md
 articulo-96.md
@@ -137,12 +140,14 @@ articulo-128-bis.md
 articulo-129.md
 articulo-130.md
 articulo-131.md
+articulo-131-bis.md
 articulo-132.md
 articulo-133.md
 articulo-134.md
 articulo-135.md
 articulo-136.md
 articulo-137.md
+articulo-137-bis.md
 articulo-138.md
 articulo-139.md
 articulo-140.md
@@ -202,12 +207,17 @@ articulo-193.md
 articulo-194.md
 articulo-195.md
 articulo-196.md
+articulo-196-bis.md
 articulo-197.md
 articulo-198.md
 articulo-199.md
 articulo-200.md
 articulo-201.md
 articulo-202.md
+articulo-203.md
+articulo-204.md
+articulo-205.md
+articulo-206.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
 articulo-3-transitorio.md

@@ -1,3 +1,4 @@
-Artículo 95.- Manejo indebido de programas de cómputo
-Será sancionado con pena de tres a diez años de prisión, quien sin autorización de la Administración Tributaria, se apodere de cualquier programa de cómputo, utilizado por ella para administrar la información tributaria y sus bases de datos, lo copie, destruya, inutilice, altere, transfiera, o lo conserve en su poder, siempre que la Administración Tributaria los haya declarado de uso restringido, mediante resolución.
-(Así reformado por el artículo 2º de la ley No.7900 de 3 de agosto de 1999)
+Artículo 95.- Manejo indebido de sistemas de información
+Será sancionado con pena de tres a cinco años de prisión, quien, sin autorización de la autoridad competente, se apodere, utilice, copie, destruya, inutilice, altere, conserve o transfiera, por cualquier medio, un sistema de información o base de datos o la información contenida en ellos, utilizados por la Administración Tributaria y siempre que no hayan sido declarados de uso público, mediante resolución.
+La pena será de cuatro a diez años de prisión, si la acción fue realizada con ánimo de lucro para sí o para un tercero, o si se hubieran obtenido beneficios económicos de la utilización, enajenación, transferencia o destrucción del sistema de información o de la base de datos o de la información contenida en ellos.
+(Así reformado por el artículo 16 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

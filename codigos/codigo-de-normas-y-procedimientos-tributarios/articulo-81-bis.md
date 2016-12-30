@@ -1,0 +1,6 @@
+Artículo 81 bis.-Responsabilidad de terceros. Se sancionará con una multa de uno a tres salarios base a quien:
+a) Asesore, aconseje o preste servicios para omitir total o parcialmente el pago de algún impuesto.
+b) Colabore en la alteración o en la inscripción de cuentas, asientos o datos falsos en la contabilidad o en los documentos que se expidan.
+La responsabilidad se encontrará sujeta a que se demuestre la participación del asesor o los asesores en la adopción de las decisiones determinantes en la comisión de la infracción y que haya mediado culpa grave o dolo.
+Para tales efectos, se aplicará el procedimiento sancionatorio establecido en la Ley N.° 4755, Código de Normas y Procedimientos Tributarios, de 3 de mayo de 1971, y sus reformas, el cual iniciará una vez se cuente, dentro del proceso determinativo, con sentencia en firme sin posibilidad de recurso alguno. La prescripción en estos casos iniciará su cómputo a partir de la firmeza del acto. Todo esto sin perjuicio de las eventuales responsabilidades penales que puedan surgir en virtud de estas actuaciones.
+(Así adicionado por el artículo 16 de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)
