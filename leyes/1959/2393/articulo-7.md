@@ -1,3 +1,1 @@
-Artículo 7º.- Conforme la Oficina de Cobros emita las resoluciones a que se refiere el artículo anterior, las distribuirá entre los Fiscales Específicos, tomando en cuenta el número de deudores y el monto adeudado por cada uno y procurando que dicha distribución sea equitativa en relación con los honorarios que deba percibir cada Fiscal. La entrega de certificaciones a los Fiscales se hará contra recibo consignado en un libro que se llevará para esa finalidad.
-(Así reformado por el artículo 1º de la Ley Nº 3493 de 29 de enero de 1965).
-(Tácitamente reformado por el artículo 162 de la Ley Nº 4755 de 3 de mayo de 1971 -Código Tributario-).
+Artículo 7º.- (Derogado por el artículo 19 inciso b) de la Ley para Mejorar la Lucha contra el Fraude Fiscal, N° 9416 del 14 de diciembre de 2016)

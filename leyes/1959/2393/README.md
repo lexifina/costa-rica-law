@@ -1,6 +1,6 @@
 # Crea Oficina de Cobros de la Dirección General de Hacienda
 
-Ley N° 2393 del 1959-07-11. SINALEVI, ficha 36930: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36930&param2=38939&param3=1>.
+Ley N° 2393 del 1959-07-11. SINALEVI, ficha 36930: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=36930&param2=106794&param3=1>.
 
 Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit, fechada el día en que entró en vigor):
 
@@ -8,3 +8,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1959-07-11 | Ley 2393 | 1959-07-11 |
 | 2 de 3 | 1992-01-06 | SINALEVI (4 normas) | 1959-07-11 |
+| 3 de 3 | 2016-12-30 | Ley 9416 | 2016-12-14 |
