@@ -1,0 +1,1 @@
+Artículo 42º - Entrada en vigencia. Este Reglamento entra en vigencia a partir de su publicación en el Diario Oficial La Gaceta, sustituyendo y derogando cualquier otra norma contenida en otro reglamento que lo contradiga.
