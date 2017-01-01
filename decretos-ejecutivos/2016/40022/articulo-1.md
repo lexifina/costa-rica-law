@@ -43,5 +43,7 @@ Estibadores por movimiento | ¢355,84
 1De conformidad con la clasificación aprobada en Acta 4185 del 11 de diciembre de 1995, modificada en Acta 4928 del 01 de noviembre del 2006.
 Los portaloneros y los wincheros devengan un salario mínimo de un 10% más de estas tarifas.
 Taxistas en participación, devengan el 30% de las entradas brutas del vehículo. En caso de que no funcione o se interrumpa el sistema en participación, el salario no podrá ser menor de once mil seiscientos quince colones con veintiséis céntimos (¢11.615,26) por jornada ordinaria.
-Agentes vendedores de cerveza, el 2.45% sobre la venta, considerando únicamente el valor neto del líquido.
+(*)Agentes vendedores de cerveza, el 2.45% sobre la venta, considerando únicamente el valor neto del líquido.
+(*) (Nota de Sinalevi: Mediante resolución N° 05 del 28 de noviembre de 2016, el Consejo Nacional de Salarios, estableció lo siguiente: “eliminar del Decreto de Salarios Mínimos, en su artículo N° 1, sección 1-C relativo a fijaciones específicas, el reglón ocupacional para el Agente de Vendedor de Cerveza, que define el salario de un 2,45% sobre la venta considerando únicamente el valor neto del líquido.
+Y que se mantenga la Clasificación de Trabajador Calificado Genérico, tal como lo definen los perfiles ocupacionales para el Agente de Ventas, considerando el estudio técnico elaborado por el Departamento de Salarios Mínimos.”)
 Circuladores de periódicos, el 15% del valor de los periódicos de edición diaria que distribuyan o vendan.
