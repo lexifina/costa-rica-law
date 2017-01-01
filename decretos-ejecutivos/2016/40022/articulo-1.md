@@ -37,7 +37,7 @@ Recolectores de coyol (por kilo) | ¢30,75
 Servicio doméstico (por mes) | ¢178.703,50
 Trabajadores de especialización superior1 | ¢19.910,28
 Periodistas contratados como tales (incluye el 23% en razón de disponibilidad) (por mes) | ¢775.161,64
-Estibadores por caja de banano | ¢1,35
+Estibadores por caja de banano (Nota de Sinalevi: Mediante resolución N° 06 del 13 de diciembre de 2016, el Consejo Nacional de Salarios, estableció lo siguiente: “Se acuerda por unanimidad modificar el salario de los estibadores para que sea determinado por peso a un monto de ¢0,0675 por kilo estibado de frutas y vegetales a partir del 01 de enero 2017, y eliminar la denominación de estibadores por caja de banano de ¢1,35.”) | ¢1,35
 Estibadores por tonelada | ¢83,44
 Estibadores por movimiento | ¢355,84
 1De conformidad con la clasificación aprobada en Acta 4185 del 11 de diciembre de 1995, modificada en Acta 4928 del 01 de noviembre del 2006.

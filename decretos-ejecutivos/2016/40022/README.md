@@ -15,3 +15,4 @@ Fijación de salarios mínimos para el sector privado que regirán a partir del 
 | --- | --- | --- |
 | 1 | 2017-01-01 | la propia norma |
 | 2 | 2017-01-01 | Resolución 5 (2016-11-28) |
+| 3 | 2017-01-01 | Resolución 6 (2016-12-13) |
