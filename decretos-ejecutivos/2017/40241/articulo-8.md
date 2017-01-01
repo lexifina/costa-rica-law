@@ -1,0 +1,1 @@
+Artículo 8º-Se excluye de este aumento al Presidente de la República, Vicepresidentes de la República, Ministros (as), Viceministros (as), Presidentes (as) Ejecutivos (as), Gerentes (as) y Subgerentes (as) del Sector Público Descentralizado.

@@ -1,0 +1,1 @@
+Artículo 10º-Los incrementos salariales indicados en los artículos 1 y 2 de este Decreto rigen a partir del 01 de enero del 2017 y se harán efectivos, de ser posible, en la primera quincena de marzo del 2017, en caso de no ser posible realizar el pago en la fecha indicada, al momento de realizar el mismo, se hará de manera retroactiva al 01 de enero de 2017.

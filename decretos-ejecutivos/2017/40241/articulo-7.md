@@ -1,0 +1,1 @@
+Artículo 7°-0torgar un 8,28% por concepto de salario escolar de conformidad con el artículo 1 º inciso b) de la Resolución DG-011-2016 de fecha 19 de enero del dos mil dieciséis, ratificado el derecho de los trabajadores y trabajadoras públicas, a continuar percibiendo el salario escolar.

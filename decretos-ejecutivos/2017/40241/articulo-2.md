@@ -1,0 +1,2 @@
+Artículo 2°-0torgar un ajuste técnico de un 0,24% al salario base del primer nivel salarial de la Escala de Sueldos de la Administración Pública, que corresponde a la clase Misceláneo de Servicio Civil 1.
+Para los niveles salariales siguientes, se aplicará una disminución gradual de este porcentaje de incremento (0,24%), hasta llegar al nivel 409 de dicha Escala de Sueldos, al cual se le aplicará solo el incremento de O, 76% correspondiente al costo de vida.
