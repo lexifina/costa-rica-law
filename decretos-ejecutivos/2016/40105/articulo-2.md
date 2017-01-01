@@ -1,0 +1,1 @@
+Artículo 2°-Deróguese el Decreto Ejecutivo número 39927-H del 19 de setiembre de 2016, publicado en el Alcance número 202F a La Gaceta número 187 del 29 de setiembre de 2016, a partir de la vigencia del presente decreto.
