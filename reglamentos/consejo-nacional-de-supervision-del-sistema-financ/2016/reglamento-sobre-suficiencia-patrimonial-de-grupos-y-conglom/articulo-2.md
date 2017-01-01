@@ -1,0 +1,3 @@
+Artículo 2. Alcance
+Lo dispuesto en este Reglamento es de aplicación para todas las controladoras de los grupos o conglomerados financieros costarricenses autorizados, de conformidad con el marco legal y reglamentario aplicable.
+El cumplimiento de esta normativa por parte del grupo o conglomerado financiero, no exime a sus empresas integrantes, incluyendo la controladora, de cumplir con las normas prudenciales sobre adecuación de capital con base en riesgos que les sean aplicables en forma individual, de conformidad con las disposiciones reglamentarias emitidas por el CONASSIF o el respectivo organismo de supervisión.

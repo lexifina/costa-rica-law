@@ -1,0 +1,5 @@
+Artículo 5. Capital base de las entidades supervisadas
+El capital base de las entidades supervisadas será el que se obtenga de la aplicación de las normativas prudenciales sobre adecuación de capital con base en riesgos, emitidas por los respectivos supervisores nacionales o extranjeros.
+En el caso de las entidades supervisadas para las cuales el respectivo supervisor no haya emitido regulaciones específicas sobre adecuación de capital, el cálculo del capital base se obtiene del monto que resulte de la suma del capital primario más el capital secundario, definidos respectivamente en los artículos 11 y 12 menos las deducciones indicadas en el artículo 13 de este Reglamento.
+Para los efectos del cálculo del capital base, se considera el capital secundario hasta el 100% del monto del capital primario.
+Para el caso de las entidades supervisadas por la SUGESE que no cuenten con regulaciones específicas sobre adecuación de capital, tales como Sociedades Agencias de Seguros y Sociedades Corredoras de Seguros, el cálculo del capital base, deberá efectuarse según lo dispuesto en el “Reglamento sobre la solvencia de entidades de seguros y reaseguros”.

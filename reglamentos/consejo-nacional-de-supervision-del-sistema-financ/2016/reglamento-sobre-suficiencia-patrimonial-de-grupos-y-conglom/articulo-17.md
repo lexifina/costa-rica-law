@@ -1,0 +1,7 @@
+CAPÍTULO IV
+De las responsabilidades de la controladora
+Artículo 17. Mantenimiento de las posiciones patrimoniales individuales
+La controladora deberá asegurar que las empresas del grupo o conglomerado financiero mantengan una posición patrimonial que les permita responder por:
+a. El nivel del capital que las entidades sujetas a supervisión individual necesiten para su adecuado funcionamiento, en función de sus riesgos y actividades particulares, el cual no deberá ser menor que el capital regulatorio exigido por los órganos supervisores nacionales o extranjeros con base en las disposiciones legales y reglamentarias emitidas al efecto.
+b. La eliminación de los déficits patrimoniales individuales de las empresas del grupo o conglomerado financiero no sujetas a supervisión individual por parte de los órganos supervisores, en un plazo máximo de tres meses contados a partir de su determinación.
+c. La reposición de cualquier pérdida del capital social de la empresa no sujeta a supervisión individual por parte de los órganos supervisores, excepto cuando se opte por la disolución o separación del grupo o conglomerado financiero de la empresa de que se trate, en un plazo máximo de tres meses contados a partir de la fecha de su determinación. En caso que se opte por la disminución proporcional del capital social, el curso de acción a seguir deberá resolverse dentro del mismo plazo de tres meses.
