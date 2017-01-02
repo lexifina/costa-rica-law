@@ -1,0 +1,4 @@
+3. Modificar el Transitorio II del Acuerdo SUGESE 02-2013, Reglamento Sobre la Solvencia de Entidades de Seguros y Reaseguros, para que en lo sucesivo se lea de la siguiente forma:
+Transitorio II
+Durante los seis meses posteriores a la publicación de la modificación del Reglamento, las aseguradoras, en caso de que requieran un plazo para ajustar las provisiones técnicas debido al cambio en las tablas de mortalidad, deben presentar a la Superintendencia un plan para implementar el ajuste.
+Con la finalidad de justificar la necesidad de dicho plan de ajuste, éste debe contener un estudio de impacto en el cual se estime y analice la variación en las provisiones técnicas originada en el cambio de tablas. El plazo total de ejecución del plan de acción no podrá superar los doce meses desde la entrada en vigor del cambio en las tablas. Una vez aprobado por la Superintendencia, el plan será de acatamiento obligatorio para la entidad.
