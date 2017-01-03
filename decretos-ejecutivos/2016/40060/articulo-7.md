@@ -1,0 +1,1 @@
+Artículo 7º—De las responsabilidades de los miembros del Consejo. Es responsabilidad de los miembros del Consejo participar en todas las reuniones, en caso de no poder asistir deberá justificar ante el coordinador del comité y deberá consignarse en el libro de actas autorizado por la Dirección de Auditoria Interna, de manera que acosta en el acta de la reunión o de la siguiente.
