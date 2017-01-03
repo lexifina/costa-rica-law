@@ -1,0 +1,1 @@
+Artículo 4°-Tarifa mínima por hora profesional. Establézcase el monto mínimo a cobrar por hora profesional en el ámbito de la farmacia de comunidad privada en una suma que no podrá ser inferior de seis mil colones.
