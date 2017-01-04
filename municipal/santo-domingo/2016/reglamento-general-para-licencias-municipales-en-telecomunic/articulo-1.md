@@ -1,0 +1,26 @@
+MUNICIPALIDAD DE SANTO DOMINGO DE HEREDIA
+SECRETARIA DE CONCEJO MUNICIPAL
+Diciembre 19, 2016
+SCM-0554-12-16
+Señores
+Imprenta Nacional
+San José
+Estimados señores:
+Por este medio, esta Secretaria Municipal solicita proceder a publicar en el Diario Oficial La Gaceta el siguiente texto:
+La Secretaría del Concejo Municipal de Santo Domingo de Heredia, comunica que mediante los Acuerdos Municipales tomados bajo el Artículo VI, inciso 3.-, de la Sesión Ordinaria N° 33-2016, celebrada el día 19 de setiembre de 2016 y bajo el Artículo V, inciso 4-c, de la Sesión Ordinaria N° 048-2016, celebrada el día 14 de noviembre de 2016; el Concejo Municipal de conformidad con el procedimiento establecido en el artículo cuarenta y tres del Código Municipal; Acordó, la adopción, aprobación, publicación y entrada en vigencia del REGLAMENTO GENERAL PARA LICENCIAS MUNICIPALES EN TELECOMUNICACIONES DEL CANTÓN DE SANTO DOMINGO DE HEREDIA, cuyo texto indica:
+Municipalidad de Santo Domingo de Heredia
+REGLAMENTO GENERAL PARA LICENCIAS
+MUNICIPALES EN TELECOMUNICACIONES DEL CANTON DE SANTO DOMINGO DE HEREDIA
+Considerando:
+1º—Que en la Ley General de Telecomunicaciones Nº 8642, del 4 de junio de 2008 -vigente desde el 30 de junio del 2008- y su reglamento, decreto ejecutivo Nº 34765- MINAET de 22 de setiembre de 2008, vigente desde el 26 de setiembre de 2008-, se promueve la competencia efectiva como mecanismo para aumentar la disponibilidad de servicios, mejorar su calidad y asegurar precios asequibles, en armonía con la sostenibilidad ambiental y urbanística del país.
+2º—Que complemento esencial a la Ley General de Telecomunicaciones, la ley Nº 8660“Ley de Fortalecimiento y Modernización de las Entidades Públicas del Sector de Telecomunicaciones” publicada en La Gaceta Nº 31 del 13 de agosto de 2008, se creó el Sector Telecomunicaciones para desarrollar las competencias y atribuciones a las instituciones que comprenden dicho sector y se modifica la Ley de la Autoridad Reguladora de los Servicios Públicos, para crear la Superintendencia de Telecomunicaciones (SUTEL), disponiendo en su artículo primero que quedan sometidos al ámbito de aplicación de esta Ley, toda la Administración Pública, tanto la centralizada como la descentralizada, las instituciones autónomas, las semiautónomas y las empresas públicas y privadas que desarrollen funciones o actividades relacionadas con las telecomunicaciones, infocomunicaciones, productos y servicios de información, interconexión y demás servicios en convergencia del Sector, declarados de interés público.
+3º—Que el Poder Ejecutivo ha emitido el Reglamento de Salud en la materia de telecomunicaciones, mediante Decreto 36324-S, publicado en la Gaceta 25 del 4 de febrero de 2011, interesando al municipio el cumplimiento efectivo de los parámetros allí establecidos, en resguardo de la salud de los habitantes y usuarios de los servicios del cantón.
+4º- Que los constantes avances tecnológicos en los últimos años, han motivado la aparición de nuevos servicios de comunicación, acompañados de un aumento y multiplicación de instalaciones de telecomunicaciones a las ya existentes, que suponen un impacto visual y medio ambiental en el entorno urbano y natural, por lo que surge la necesidad a la Administración Municipal dentro de su competencia y bajo el presupuesto de su autonomía en materia de planificación y administración territorial, de establecer los parámetros generales que rijan para el otorgamiento de las licencias municipales en lo referido a lo constructivo, a la explotación comercial, y a los usos de suelo relacionados con dichas instalaciones u obras constructivas.
+5º—En cuanto a la Licencia de Construcción, se excluye de la presente normativa: (i) la instalación y mantenimiento de los equipos de telecomunicaciones y antenas, y (ii) la infraestructura de telefonía fija a cargo del Instituto Costarricense de Electricidad.
+6º—Que los aspectos relacionados con el ambiente humano y natural serán resguardados conforme a la Ley y competencia correspondiente, por el Ministerio de Salud y el Ministerio del Ambiente y Telecomunicaciones respectivamente, en disposiciones normativas que regularán estas importantes materias. No obstante, cualquier afectación de la salud de los habitantes o al derecho a un ambiente sano y ecológicamente equilibrado, este municipio coadyuvará para los intereses del munícipe afectado, incluyendo el patrimonio cultural e histórico.
+7º— Las Obras Constructivas de Telecomunicaciones se consideran equivalente a mobiliario o equipamiento urbano, como son la construcción de una estructura de electrificación, instalación de un semáforo, casetilla de teléfono público, alcantarilladlos, etcétera, y por lo tanto, no deben vincularse directamente con los mapas o zonificaciones propias de los planes reguladores cantonales o regionales.
+REGLAMENTO GENERAL PARA LICENCIAS
+MUNICIPALES DE SANTO DOMINGO DE HEREDIA EN TELECOMUNICACIONES
+CAPÍTULO I
+Disposiciones Generales
+Artículo 1º—Este Reglamento tiene como objeto establecer los requisitos y procedimientos para optar por certificados de uso del suelo, permisos de construcción y licencias comerciales en telecomunicaciones en la jurisdicción cantonal, en resguardo del espacio urbano-ambiental.
