@@ -1,0 +1,3 @@
+CAPITULO II
+DE LA CAJA CHICA
+Artículo 4º—Se establece un fondo de caja chica equivalente al monto de medio salario mínimo indicado para un TRABAJADOR SEMICALIFICADO GENÉRICOS de conformidad con el Decreto de Salarios Mínimos publicado semestralmente por el Ministerio de Trabajo y Seguridad Social. ¢150.000.00 (ciento cincuenta mil colones). Por razones de urgencia y necesidad podrá aumentarse el monto de caja chica y el monto máximo del vale para la adquisición de bienes y servicios para un asunto específico, sin embargo, para ello se requiere acuerdo calificado de las dos terceras partes de la Junta Directiva del Comité Cantonal.

@@ -1,0 +1,1 @@
+Artículo 21º— El Encargado de caja chica deberá velar por el fiel cumplimiento de las disposiciones contempladas en el presente Manual y cuando sea el caso, denunciar ante la Junta Directiva las violaciones al mismo.

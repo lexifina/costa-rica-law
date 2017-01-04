@@ -1,0 +1,3 @@
+CAPÍTULO IV
+DE LA LIQUIDACIÓN
+Artículo 16º—Los vales de caja chica deberán ser liquidados a más tardar dos días hábiles posteriores a la fecha de entrega, salvo aquellos casos donde por razones de caso fortuito o fuerza mayor no puedan liquidarse en ese plazo en cuyo caso podrá hacerse con posterioridad siempre y cuando se documente la razón justificante. El incumplimiento del presente artículo constituirá falta leve y su reincidencia en el mismo mes, será grave.
