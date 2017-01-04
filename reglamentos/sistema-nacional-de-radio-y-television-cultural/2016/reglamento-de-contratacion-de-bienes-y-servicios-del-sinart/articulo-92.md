@@ -1,0 +1,2 @@
+Artículo 92. Plazo para comunicar el acto final.
+Una vez que se cuente con la valoración de las ofertas, la adjudicación por parte del área solicitante, la Proveeduría Institucional tendrá un plazo de tres días hábiles para comunicar el acto final por los mismos medios que se cursó la invitación. En ese caso, basta indicar en el aviso, el número de concurso, descripción sucinta del objeto, el adjudicatario y el monto.

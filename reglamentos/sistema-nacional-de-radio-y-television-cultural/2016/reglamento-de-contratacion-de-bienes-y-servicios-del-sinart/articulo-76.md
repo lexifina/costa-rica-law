@@ -1,0 +1,4 @@
+Artículo 76. Subcontratación de bienes y servicios
+El oferente podrá subcontratar hasta en un 50% del monto adjudicado, salvo que el SINART S.A. autorice un monto mayor. En todo caso, la subcontratación de bienes y servicios no relevará al contratista de su responsabilidad.
+Junto con la propuesta se aportará un listado de las empresas subcontratadas. En ese detalle, se indicarán los nombres de todas las empresas con las cuales se va a subcontratar, incluyendo su porcentaje de participación en el costo total de la oferta y se aportará una certificación de los titulares del capital social y de los representantes legales de aquellas.
+No se considera subcontratación de bienes y servicios, la adquisición de suministros, aun cuando éstos conlleven su propia instalación, ni tampoco los compromisos asumidos por cada uno de los participantes consorciados.

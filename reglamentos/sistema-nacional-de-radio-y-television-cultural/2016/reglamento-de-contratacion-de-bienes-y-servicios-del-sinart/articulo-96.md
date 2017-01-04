@@ -1,0 +1,4 @@
+Artículo 96. Presentación del recurso.
+Todo recurso debe presentarse en el lugar y dentro de los plazos previstos en este Reglamento.
+Si se presenta por medios físicos, se debe presentar en original debidamente firmado por el oferente o su apoderado.
+El recurso podrá ser presentado por fax, debiendo remitirse el original dentro de los tres días hábiles siguientes, salvo en el recurso de objeción donde el original deberá presentarse el día hábil siguiente. En tales casos, la presentación del recurso se tendrá como realizada al momento de recibirse el fax. Si el recurso presentado por fax se remite el último día del plazo para recurrir, éste debe ingresar en su totalidad dentro del horario hábil de SINART S.A. En caso de que el original del recurso no se presente dentro del plazo antes indicado la gestión será rechazada.

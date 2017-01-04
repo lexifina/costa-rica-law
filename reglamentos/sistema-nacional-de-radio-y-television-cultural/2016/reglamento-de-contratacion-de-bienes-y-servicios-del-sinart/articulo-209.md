@@ -1,0 +1,5 @@
+Artículo 209. Enajenación de bienes inmuebles
+Para enajenar bienes inmuebles el SINART S.A., debe utilizar el procedimiento de contratación establecido en este reglamento.
+En el expediente respectivo debe incorporarse la resolución debidamente motivada que justifique la enajenación y el procedimiento por el que se ha optado, así como el inventario y clasificación del bien o los bienes objeto de la enajenación.
+Los bienes inmuebles afectos a un fin público, no podrán ser enajenados por el SINART S.A., pero podrán ser desafectados por el mismo procedimiento utilizado para establecer su destino actual. Si no consta el procedimiento utilizado para la afectación, se requerirá la autorización expresa de la Asamblea Legislativa para su desafectación.
+La base de la venta de los bienes inmuebles pertenecientes al SINART S.A., será la que fije pericialmente, el personal especializado en la materia de la respectiva administración o el de una Institución que pueda brindar esa colaboración, en su defecto, la Dirección General de la Tributación.

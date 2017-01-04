@@ -1,0 +1,3 @@
+Artículo 69. Generalidades
+La oferta, deberá redactarse en idioma español. La información técnica o complementaria y los manuales de uso expedidos por el fabricante deberán, presentarse en idioma español, salvo que en el cartel se permitan otros idiomas con la traducción debidamente consularizada o se acepte una traducción libre de su texto.
+Si durante el período de formulación de ofertas, el participante llegara a advertir la incompletez del objeto o bien dificultades en el desempeño o funcionalidad del bien o servicio, deberá indicarlo por escrito al SINART S.A., en el plazo dispuesto para recibir aclaraciones. Caso contrario, no podrá invocar esa circunstancia como eximente de responsabilidad en fase de ejecución contractual o de fiscalización.

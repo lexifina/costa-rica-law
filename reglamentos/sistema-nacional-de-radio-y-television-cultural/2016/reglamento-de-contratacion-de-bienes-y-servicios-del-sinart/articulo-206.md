@@ -1,0 +1,9 @@
+SECCIÓN TERCERA
+Disposición de bienes muebles e inmuebles
+Artículo 206. Venta y donación de bienes muebles.
+Para la venta de bienes muebles, la Administración, acudirá al procedimiento de Contratación pública o al remate. En caso de que se hubiere realizado el procedimiento y no hubiere oferentes o postores interesados, se podrá solicitar la degradación del procedimiento y el rebajo de la base, conforme al artículo referente a la variación del procedimiento infructuoso de este Reglamento, sin perjuicio de que se pueda solicitar autorización a la Contraloría General de la República para su venta directa, si la Administración dispusiera de un interesado en su adquisición.
+De previo a tramitar la respectiva venta, será necesario realizar un peritaje que determine la estimación del valor de los bienes, según las referencias del mercado, la cual se considerará el monto mínimo por el que se venderán.
+De igual forma todos los bienes muebles declarados en desuso o en mal estado podrán ser objeto de venta de acuerdo a lo aquí estipulado.
+En caso de que la Administración determine la oportunidad y conveniencia de donar el bien declarado en desuso o mal estado, deberá emitirse solicitud motivada por parte del órgano que administra los bienes, que será valorada y aprobada por el Presidente Ejecutivo o Consejo Ejecutivo dependiendo de la cuantía del bien.
+Las disposiciones internas que al respecto se dicten deberán establecer normas generales que definan, al menos, bajo qué parámetros, se entenderá un bien en condición de ser donado, los posibles donatarios y similares.
+Previo a la ejecución de la donación, se deberá contar con el avalúo de los bienes realizado por el órgano especializado del SINART S.A., o en su defecto el avalúode la Dirección General de Tributación, o ente público con el que se mantenga un convenio interinstitucional para tales efectos, de acuerdo con el valor real del mercado.

@@ -1,0 +1,3 @@
+Artículo 67. Otras garantías y retenciones.
+El SINART S.A., podrá incorporar en el cartel cláusulas de retención porcentual de las sumas pagadas, cuando ello resulte conveniente para asegurar una correcta ejecución contractual. El monto máximo de esas retenciones será de un 10% de los pagos a realizar.
+Cuando existan adelantos de pago y ello resulte viable, el SINART S.A., podrá solicitar garantías colaterales, por todo el monto que se vaya a girar, no obstante, para esta clase de garantías se admitirán otros medios aceptables por las entidades de crédito, como las fianzas, avales, hipotecas y prendas.

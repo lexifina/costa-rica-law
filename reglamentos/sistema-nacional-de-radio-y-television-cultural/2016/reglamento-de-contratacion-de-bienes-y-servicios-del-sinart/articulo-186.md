@@ -1,0 +1,2 @@
+Artículo 186. Medios de comunicación social
+La contratación de servicios de medios de comunicación social para la difusión de mensajes y publicaciones a favor del SINART S.A., o por cuenta de un tercero como parte de los servicios de RTN, podrá realizarse de manera directa. Cuando esta contratación se haga por cuenta de un tercero, se deberá elaborar un plan de distribución y colocación de dichos mensajes, el cual deberá ser aprobado por la institución o empresa que solicitó el servicio.

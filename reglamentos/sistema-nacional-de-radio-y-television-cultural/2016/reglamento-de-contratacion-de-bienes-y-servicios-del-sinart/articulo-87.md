@@ -1,0 +1,5 @@
+Artículo 87. Estudio de admisibilidad de ofertas.
+Cumplida la anterior etapa, el SINART S.A., procederá al estudio y valoración de las ofertas en relación con las condiciones y especificaciones de admisibilidad fijadas en el cartel y con las normas reguladoras de la materia.
+Serán declaradas fuera del concurso de contratación administrativa, las ofertas que incumplan con aspectos esenciales de las bases de éste o sean sustancialmente disconformes con el ordenamiento jurídico. Los incumplimientos intrascendentes no implicarán la exclusión de la oferta, pero así deberá ser razonado expresamente en el respectivo informe.
+Para facilitar ese estudio la Proveeduría Institucional confeccionará un cuadro comparativo de análisis de las ofertas según su ajuste a las especificaciones del cartel y de sus características más importantes, el cual formará parte del expediente respectivo.
+Si una oferta presenta dos manifestaciones contradictorias entre sí, una que se ajusta al cartel y otra que no, se presumirá su ajuste al cartel; si ambas se ajustan al cartel en la evaluación se tomará la que menos favorezca al oferente.

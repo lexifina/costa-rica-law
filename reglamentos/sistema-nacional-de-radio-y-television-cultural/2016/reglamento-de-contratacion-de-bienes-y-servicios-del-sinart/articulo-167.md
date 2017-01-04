@@ -1,0 +1,2 @@
+Artículo 167. Precio base de la subasta.
+El SINART S.A., definirá el precio base que servirá de límite máximo para la adjudicación. El precio base será fijado de acuerdo a los estudios de referencia delos precios del mercado que realice el SINART S.A., así como otros criterios queconsidere pertinentes. El SINART S.A., se reserva la facultad de indicar este precio base en las cláusulas cartelarias.

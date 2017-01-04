@@ -1,0 +1,2 @@
+Artículo 52. Pauta como parte del pago
+El SINART, S.A., podrá ofrecer como parte o la totalidad del pago servicios de publicidad. Para ello deberá indicarlo en el cartel y ajustarse al tarifario que está establecido para tal fin. Además, esta forma de pago se podrá ponderar en el sistema de evaluación determinado en el cartel, que podrá favorecer a los oferentes que acepten el pago parcial o total mediante servicios.

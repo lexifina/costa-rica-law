@@ -1,0 +1,11 @@
+Artículo 172. Trámite
+Cuando el SINART S.A. requiera la adquisición de bienes o servicios por medio de los procedimientos especiales, deberá atender los lineamientos establecidos para cada tipo de procedimiento. Por lo que en los casos de los proyectos que no son revisados por Proveeduría Institucional deberán atender procedimientos especiales aprobados por la Dirección General elaborados al efecto.
+En caso de que los procedimientos especiales sean tramitados por la Proveeduría, el encargado de proyecto presentará a esta, la solicitud de materiales y decisión inicial con la referencia de los motivos fundados en los que se acredita que, en el caso concreto, se está ante un supuesto de prescindencia de los procedimientos concursales.
+Para cada contratación de bienes y servicios por procedimientos especiales, se deberá confeccionar un expediente físico, el cual estará en custodia de la Proveeduría Institucional. En dicho expediente se ha de incorporar constancia de todas las actuaciones que se realicen del procedimiento.
+A excepción de los supuestos de proveedor único y exclusivo, e interés manifiesto de colaborar con el SINART S.A., se deberá verificar que el eventual contratista no esté cubierto por el régimen de prohibiciones.
+Salvo indicación en contrario, para todos los procedimientos especiales, el encargado del proyecto presentará al órgano competente para autorizar la contratación, de acuerdo con el artículo 31 de este Reglamento, una justificación que acredite la necesidad de acudir a dicho procedimiento. Este órgano competente evaluará la solicitud de autorización y adjudicación de la contratación.
+En todos los casos deberá acreditarse previamente la disponibilidad presupuestaria para dicha contratación.
+Cuando sea necesario, de acuerdo con el artículo 111 del presente Reglamento, se emitirá una orden de compra o se suscribirá un contrato.
+Los precios que el SINART S.A. reconozca en estas contrataciones deben ser razonables y guardar relación con prestaciones similares.
+El mecanismo de selección del contratista, así como su aplicación han de ser expeditos, prácticos y ajenos a plazos cuya extensión desvirtúen su naturaleza.
+Los procedimientos especiales descritos en este Capítulo no tendrán recursos de revocatoria ni de apelación.

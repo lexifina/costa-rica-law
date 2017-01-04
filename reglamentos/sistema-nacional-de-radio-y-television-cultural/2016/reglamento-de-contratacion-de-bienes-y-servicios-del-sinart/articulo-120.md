@@ -1,0 +1,4 @@
+Artículo 120. Prórroga del plazo.
+A solicitud del contratista, el SINART S.A., podrá autorizar prórrogas al plazo de ejecución del contrato cuando existan demoras ocasionadas por el SINART S.A. o causas ajenas al contratista.
+El contratista solicitará la prórroga dentro de los diez días hábiles siguientes al conocimiento del hecho que provoca la extensión del plazo y el SINART S.A., contará con igual plazo para resolver si procede o no. Si la solicitud se hace fuera de plazo, pero estando aún el contrato en ejecución, el SINART S.A. podrá autorizar la prórroga, en caso de estar debidamente sustentada, y que sea de interés para el SINART S.A., siempre que esté vigente el plazo contractual.
+De conformidad con lo indicado en los dos párrafos anteriores, en ambos casos dicho acto deberá ser informado al competente por monto, según corresponda, que autorizó en definitiva la formalización de la relación contractual.

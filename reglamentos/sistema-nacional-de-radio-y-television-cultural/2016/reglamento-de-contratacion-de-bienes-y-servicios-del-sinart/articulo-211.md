@@ -1,0 +1,10 @@
+SECCIÓN CUARTA
+Contrato de servicios
+Artículo 211. Contrato de Servicios Profesionales o técnicos
+Para la contratación de servicios técnicos o profesionales, a cargo de personas físicas o jurídicas, el SINART S.A., deberá seguir los procedimientos de contratación establecidos en este Reglamento, sin perjuicio de lo establecido el artículo 194 del presente Reglamento.
+Ese tipo de contrataciones no originará relación de empleo público entre el SINART, S.A, y el contratista, y deberá remunerarse conforme las respectivas tarifas, cuando los servicios se encuentren regulados por aranceles obligatorios.
+Caso contrario el cartel deberá solicitar un desglose del costo de los servicios, detallado en costos directos, indirectos y utilidades.
+Se deberá establecer en los requisitos de admisibilidad un perfil idóneo y cuando no se encuentren reguladas las tarifas, el precio no constituirá el único factor determinante en la comparación de las ofertas, sino que deberán incluirse también parámetros que permitan valorar las condiciones personales, profesionales o empresariales de los participantes.
+La contratación de servicios profesionales propios de una relación de empleo público, está excluida de este Reglamento, por lo que para su contratación se seguirán las disposiciones del régimen ordinario de nombramiento de funcionarios.
+Cuando las condiciones del mercado, así como la alta y frecuente demanda de servicios lo recomienden, se podrá pactar el compromiso de suplir los servicios, según las necesidades puntuales que se vayan dando durante un período determinado. Las cotizaciones se harán sobre la base de precios unitarios formulados con fundamento en una proyección de los costos y eventuales demandas del servicio.
+El cartel deberá definir con toda claridad, entre otros: el plazo de la contratación, el cual no podrá ser superior a cuatro años, las condiciones de revisiones periódicas de precios, sea en aumento o disminución según comportamiento del mercado, las reglas sobre la eventual exclusividad, la metodología de ejecución del contrato y demás asuntos pertinentes.

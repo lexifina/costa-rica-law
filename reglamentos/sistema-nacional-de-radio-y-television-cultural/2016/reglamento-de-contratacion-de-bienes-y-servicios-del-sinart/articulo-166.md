@@ -1,0 +1,8 @@
+Artículo 166. Subasta a la baja electrónica.
+La subasta a la baja podrá celebrarse por medio de sistemas electrónicos, cuando el SINART S.A. cuente con la infraestructura tecnológica necesaria para ello.
+El SINART S.A., cursará la invitación a participar conforme las reglas aplicables al tipo de procedimiento de que se trate, detallando las características de los bienes a adquirir y advirtiendo que se trata de una subasta a la baja electrónica. A esta modalidad se le aplicarán las reglas generales previstas para la subasta a la baja, que resulten pertinentes.
+La invitación se realizará por el medio electrónico seleccionado e incluirá toda la información pertinente para la conexión individual al dispositivo utilizado.
+Igualmente se comunicarán a los participantes, los parámetros de selección inicial, del mecanismo que se utilizará para la reubicación automática de las ofertas en función de los nuevos precios que se coticen y si el procedimiento a utilizar serán pujas simultáneas hasta determinado momento, o bien pujas independientes que se pueden formular por un tiempo límite.
+Esta modalidad se sujetará a los plazos previstos para el tipo de procedimiento de que se trate, los cuales podrán ser reducidos en función de la agilidad que los medios tecnológicos permitan, siempre y cuando ello no limite en forma indebida la participación de los eventuales oferentes.
+El SINART S.A., comunicará a los interesados el día y la hora en que se iniciará el recibo de las pujas respectivas.
+Asimismo, el SINART S.A., podrá conformar un registro de proveedores precalificados para la subasta a la baja, de conformidad con la regulación interna que se establezca al efecto.

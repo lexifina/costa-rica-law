@@ -1,0 +1,2 @@
+Artículo 185. Patrocinios
+El SINART S.A., estar facultado para otorgar o recibir el patrocinio cuando se trate de una actividad que reporte ventajas económicas. En caso de otorgamiento deberá existir un estudio de costo beneficio que lo justifique. Si es la Administración la que pretende obtener un patrocinio, ha de procurar las condiciones más beneficiosas y en caso de contar con varias opciones decidirá la alternativa más conveniente a sus intereses.

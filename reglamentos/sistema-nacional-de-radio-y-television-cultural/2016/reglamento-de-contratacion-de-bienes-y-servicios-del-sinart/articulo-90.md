@@ -1,0 +1,8 @@
+Artículo 90. Acto final.
+Una vez hechos los estudios y valoraciones señalados en los artículos anteriores, el SINART S.A., deberá dictar el acto de selección del adjudicatario. Cuando se soliciten precios unitarios y el SINART S.A. se haya reservado la posibilidad de adjudicar parcialmente una misma línea o mismo objeto, así lo indicará.
+Si la oferta ganadora del concurso presenta un precio menor al monto presupuestado, el SINART S.A. podrá adjudicar una mayor cantidad de bienes o servicios si la necesidad así lo justifica.
+Si al concurso no se presentaron ofertas o las que lo hicieron no se ajustaron a los elementos esenciales del concurso, se dictará un acto declarando infructuoso el procedimiento, justificando los incumplimientos sustanciales que presenten las ofertas.
+Si fueron presentadas ofertas elegibles, pero por razones de protección al interés empresarial resulta necesario, el SINART S.A., mediante un acto motivado, podrá declarar desierto el concurso.
+Cuando el SINART S.A., decida declarar desierto un procedimiento de contratación de bienes y servicios, deberá dejar constancia de los motivos específicos de interés empresarial considerados para adoptar esa decisión, mediante resolución que deberá incorporarse en el respectivo expediente de la contratación de bienes y servicios.
+Cuando se haya invocado motivos de interés empresarial para declarar desierto el concurso, para iniciar un nuevo procedimiento, el SINART S.A. deberá acreditar el cambio en las circunstancias que justifican tal medida.
+La declaratoria de infructuoso, de desierto o readjudicación deberá ser dictada por el área que tiene la competencia para adjudicar e iniciará un nuevo trámite en caso de ser necesario.

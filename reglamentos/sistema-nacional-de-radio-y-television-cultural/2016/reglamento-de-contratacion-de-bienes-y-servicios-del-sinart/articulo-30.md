@@ -1,0 +1,6 @@
+Artículo 30. Estimación de la contratación de bienes y servicios
+Para determinar la clase del procedimiento a seguir se deberá considerar la estimación indicada por el área solicitante del monto de la contratación de bienes y servicios incluyendo: el costo principal, fletes, seguros, comisiones, intereses, tributos, derechos y cualquier otra suma que deba cancelar el SINART S.A. como consecuencia de la contratación de bienes y servicios.
+Cuando la contratación de bienes y servicios de objeto continuo se celebrare por un plazo determinado, la estimación se efectuará sobre el valor total del contrato durante su vigencia.
+Si la contratación de bienes y servicios fuere por plazo indeterminado con opción de compra o sin ella, la estimación se efectuará sobre la base del pago mensual estipulado multiplicado por cuarenta y ocho meses.
+Cuando en el contrato para satisfacer servicios por períodos menores a cuarenta y ocho meses se establezcan o existan prórrogas facultativas que puedan superar ese límite, o en caso de duda sobre si el plazo es indeterminado o no, se aplicará el método de cálculo previsto en el párrafo anterior.
+Lo dispuesto en este artículo no aplica para la determinación de la procedencia del recurso de apelación o refrendo contractual.

@@ -1,0 +1,3 @@
+Artículo 9. Verificación del régimen de prohibiciones
+El SINART S.A. se encuentra obligado a desplegar las medidas de verificación necesarias para evitar violaciones al régimen de prohibiciones establecido en el artículo anterior. Para ello deberá solicitar a los oferentes una declaración jurada en la que se indique que no se encuentran cubiertos por este régimen, así como cualquier otro documento que considere pertinente.
+Las declaraciones juradas no requieren ser rendidas ante Notario Público, sino que bastará la presentación en documento informal o una manifestación expresa dentro del cuerpo de la oferta, salvo que la Administración requiera la verificación por otros medios.

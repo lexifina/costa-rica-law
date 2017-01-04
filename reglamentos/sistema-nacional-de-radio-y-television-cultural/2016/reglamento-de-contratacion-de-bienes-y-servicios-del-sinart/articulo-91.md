@@ -1,0 +1,2 @@
+Artículo 91. Plazo para dictar el acto final.
+El acto final se dictará dentro del plazo máximo fijado en el cartel, el cual no podrá ser superior al doble del plazo que se otorgó para la presentación de ofertas, incluyendo en ese cálculo todas las prórrogas que se hubiesen dado. Ese plazo podrá prorrogarse por un período igual y por una sola vez, siempre y cuando se acrediten razones de interés institucional para tomar esa decisión. De dictarse el acto fuera de ese plazo se deberán iniciar los procedimientos disciplinarios que correspondan.

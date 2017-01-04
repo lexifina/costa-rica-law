@@ -1,0 +1,3 @@
+Artículo 192. Bienes y servicios por compatibilidad y normalización
+En los casos en que el SINART S.A., habiendo adquirido ya equipo tecnológico y/o sistemas informáticos, decida adquirir más productos del mismo proveedor dentro del año posterior a la recepción definitiva del objeto contratado, podrá realizar una contratación directa con dicho proveedor, siempre y cuando existan razones de normalización o por la necesidad de asegurar su compatibilidad con los equipos tecnológicos que se estén utilizando.
+Para ello será condición necesaria que el contrato original haya sido ejecutado de manera satisfactoria para las necesidades del SINART S.A., que el precio sea razonable y proporcional y que se haya descartado la existencia de mejores alternativas en el mercado.

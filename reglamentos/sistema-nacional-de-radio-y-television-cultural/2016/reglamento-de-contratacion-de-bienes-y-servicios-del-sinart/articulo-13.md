@@ -1,0 +1,2 @@
+Artículo 13. De la Plataforma tecnológica
+La Proveeduría Institucional del SINART S.A., deberá contar con la plataforma tecnológica suficiente y adecuada que le permita ejecutar los procedimientos de contratación administrativa en forma eficiente. Para tales efectos la Administración deberá asignar permanentemente los recursos necesarios, en la medida de las posibilidades financieras de la institución.

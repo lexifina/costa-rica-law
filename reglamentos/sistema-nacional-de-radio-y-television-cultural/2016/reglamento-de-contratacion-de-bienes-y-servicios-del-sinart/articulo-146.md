@@ -1,0 +1,4 @@
+Artículo 146. Adjudicación
+El Órgano competente deberá adjudicar dentro del plazo previsto en el cartel, que en ningún caso podrá ser superior a 20 días hábiles siguientes a la apertura de las ofertas, plazo que podrá ser prorrogado por igual período por el área solicitante.
+En todo caso, deberá mediar y constar en el expediente, la respectiva justificación que motive el uso de la prórroga del acto de adjudicación. En dicha justificación, además de valorarse las razones que originan la prórroga, se contemplará el ajuste de los plazos de los cronogramas.
+Vencido el plazo original más su prórroga, cuando ésta se hubiere dado, sin que se haya dictado el acto de adjudicación, los oferentes tendrán derecho a dejar sin efecto su propuesta y a que de inmediato se les devuelva la garantía de participación, sin que les resulte aplicable sanción alguna por esa razón.

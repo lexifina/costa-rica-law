@@ -1,0 +1,2 @@
+Transitorio Segundo. Reglamento de Programación y Gestión de Contenidos
+El Consejo Ejecutivo deberá aprobar, en un plazo máximo de seis meses contados a partir de la entrada en vigencia del presente Reglamento, el Reglamento de Programación y Gestión de Contenidos. Mientras tanto, toda contratación de contenidos mediante la modalidad de compra de derechos de transmisión, coproducción y alquiler de espacio televisivo o radiofónico, será realizada siempre que así sea recomendado por la Comisión de Programación de Radio Nacional o del Canal 13.

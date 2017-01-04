@@ -1,0 +1,3 @@
+Artículo 20. Proveedor inactivo
+Se tendrá como proveedor inactivo aquél que, habiendo sido invitado a participar en procedimientos de contratación, no presentare oferta en tres ocasiones sin mediar justa causa, en el término de un año, y contadas a partir de la primera invitación. Se le otorgará igual condición a aquel que se negare a actualizar la información del Registro cuando el SINART S.A. así lo haya pedido. Dicho estado operara en forma automática, por lo que la Administración estará facultada para no invitarlo más hasta en tanto regularice su situación.
+En cualquier momento el proveedor inactivo podrá solicitar el cambio de su condición y en tal caso ocupará en el registro el lugar que por rol corresponda.

@@ -1,0 +1,4 @@
+Artículo 97. Notificación.
+Es deber de las partes señalar lugar o fax donde atender notificaciones.
+Para efectos de cómputo de los plazos contemplados en las resoluciones, éstos empezarán a correr a partir del día hábil siguiente de aquél en que se recibe la última notificación.
+La resolución final que se adopte en la tramitación de los recursos, deberá ser notificada a las partes, en caso de Contrataciones Públicas dentro de los diez días hábiles, para simplificadas dentro de los cinco días hábiles, para las concursadas 2 días hábiles siguientes a su emisión, en el lugar o medio designado por las partes. En caso que no se haya efectuado esta indicación, la resolución se tendrá por notificada dos días hábiles luego de su adopción.

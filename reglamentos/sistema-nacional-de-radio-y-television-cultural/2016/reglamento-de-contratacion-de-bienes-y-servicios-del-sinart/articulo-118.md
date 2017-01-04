@@ -1,0 +1,3 @@
+Artículo 118. Rechazo del objeto.
+En caso de incumplimientos graves y evidentes, el SINART S.A. podrá rechazar el objeto en el mismo acto previsto para su recepción y disponer el procedimiento de resolución contractual. Cuando el objeto esté compuesto por líneas independientes entre sí, SINART S.A. podrá recibir provisionalmente unas y rechazar otras.
+Como alternativa, el SINART S.A. podrá conceder al contratista un nuevo plazo para que corrija el incumplimiento, el cual no podrá exceder de la mitad del plazo de ejecución original y no impedirá el cobro de multas. Vencido ese plazo sin que el contratista cumpla a satisfacción, el SINART S.A. valorará ejecutar la garantía de cumplimiento o también iniciar el procedimiento de resolución contractual.

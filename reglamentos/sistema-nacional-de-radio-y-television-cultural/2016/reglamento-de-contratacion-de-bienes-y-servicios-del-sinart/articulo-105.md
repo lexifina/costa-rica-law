@@ -1,0 +1,3 @@
+Artículo 105. Legitimación y plazos para interponer el recurso
+Estará legitimado para recurrir quien haya presentado oferta y sea sujeto de adjudicación, y deberá interponer el recurso de revocatoria dentro del plazo de tres días hábiles siguientes a la notificación de la adjudicación. También puede recurrir quién tenga un interés legítimo, actual, propio y directo.
+El recurso de apelación superior ante la Contraloría General de la República, cuando corresponda, deberá presentarse dentro del plazo establecido por el ente fiscalizador, plazo que corre a partir del comunicado de adjudicación.

@@ -1,0 +1,9 @@
+SECCION SEXTA
+Contratación de bienes y servicios con Financiamiento
+Artículo 157. Contratación de bienes y servicios con financiamiento.
+Cuando el SINART S.A. requiera obtener financiamiento para la ejecución de proyectos, provisión de bienes o servicios, podrá recibirlo por cuenta del oferente o de un tercero, por gestión de aquél, y así lo advertirá en el cartel, siempre que de previo, se cumpla con las siguientes condiciones:
+a) Que se cuente con la autorización del Consejo Ejecutivo del SINART S.A. y de las entidades que por ley correspondan para endeudarse de previo al inicio del trámite, en la medida en que no se requiera del conocimiento de los términos ofertados para otorgar dichas autorizaciones. Las restantes autorizaciones que dependan de la propuesta, deberán completarse antes de dictar el acto de adjudicación, toda vez que constituyen requisitos de validez.
+b) Que se cuente con las condiciones y previsiones financieras y presupuestarias necesarias para hacer frente a las obligaciones.
+Si el oferente se encuentra en condición de ofrecer más de una vía de financiamiento y el cartel lo permite, deberá elegir una como cotización principal y las restantes como opcionales con el propósito de que el SINART S.A. pueda elegir y garantizar, si ello es pertinente, la de mayor monto. Las partes están facultadas para presentar ofertas conjuntas que deslinden el componente financiero del componente técnico, sin necesidad de que ello esté previsto en el cartel.
+En todo caso, el SINART S.A. conserva la facultad de asumir las obligaciones con recursos propios.
+Cuando el financiamiento suponga un empréstito que constituya carga para el Estado o que requiera su aval, antes de iniciar la ejecución del objeto contractual será necesario contar con la autorización de las autoridades correspondientes.
