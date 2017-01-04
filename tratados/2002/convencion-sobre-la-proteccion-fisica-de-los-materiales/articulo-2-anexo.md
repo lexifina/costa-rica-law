@@ -30,9 +30,11 @@ bajo enriquecimiento
 (contenido fisionable
 inferior al 10%)d/ e/
 a/ Todo el plutonio excepto aquel cuyo contenido en el isótopo plutonio-238 exceda del 80%.
-b/ Material no irradiado en un reactor o material irradiado en un reactor pero con una intensidad de radiación igual o inferior a 100 rads/hora a 1 metro de distancia sin mediar blindaje.
+b/ Material no irradiado en un reactor o material irradiado en un reactor pero con una intensidad de radiación igual o inferior a 1 gray/hora (100 rads/hora) a 1 metro de distancia sin mediar blindaje.
+(Así reformada la nota anterior por el artículo único del Tratado Internacional N° 9414 del 7 de diciembre de 2016)
 c/ Las cantidades de material que no correspondan a la Categoría III y el uranio natural deberán quedar protegidos de conformidad con prácticas prudentes de gestión.
 d/ Aunque se recomienda este nivel de protección, queda al arbitrio de los Estados asignar una categoría diferente de protección física previa evaluación de las circunstancias que concurran en cada caso.
-e/ Cuando se trate de otro combustible que en razón de su contenido original en materia fisionable esté clasificado en la categoría I o II con anterioridad a su irradiación, se podrá reducir el nivel de protección física en una categoría cuando la intensidad de la radiación de ese combustible exceda de 100 rads/hora a 1 metro de distancia sin mediar blindaje."
+e/ Cuando se trate de otro combustible que en razón de su contenido original en material fisionable esté clasificado en la Categoría I o II antes de su irradiación, se podrá reducir el nivel de protección física en una categoría cuando la intensidad de radiación de ese combustible exceda de 1 gray/hora (100 rads/hora) a un metro de distancia sin mediar blindaje.
+(Así reformada la nota anterior por el artículo único del Tratado Internacional N° 9414 del 7 de diciembre de 2016)
 Rige a partir de su publicación.
 Presidencia de la República.- San José, a los tres días del mes de mayo del dos mil dos.
