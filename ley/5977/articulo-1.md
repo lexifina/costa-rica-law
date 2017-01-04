@@ -1,4 +1,6 @@
+(Derogado)
 N° 5977
+(Nota de Sinalevi: Mediante decreto ejecutivo N° 40226 del 4 de enero de 2017, la República de Costa Rica, denunció el presente Convenio. Dicha denuncia surte sus efectos a partir del 26 de setiembre de 2017)
 (Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 35428 del 2 de julio de 2009 “Denuncia Convenio Constitutivo del Sistema Económico Latinoamericano (SELA)”, el Gobierno de Costa Rica denunció el presente Convenio. No obstante, mediante decreto ejecutivo N° 36330 del 15 de noviembre de 011, se deroga el decreto referido, y nuevamente se incorpora la República de Costa Rica como Estado Parte de este Convenio "Deroga decreto ejecutivo N° 35428 que "Denuncia Convenio Constitutivo del Sistema Económico Latinoamericano (SELA)" y Reincorpora a Costa Rica en el Convenio Constitutivo del Sistema Económico Latinoamericano (SELA) aprobado mediante ley N° 5977" )
 LA ASAMBLEA LEGISLATIVA DE LA REPUBLICA DE COSTA RICA,
 DECRETA:
