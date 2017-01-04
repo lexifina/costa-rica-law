@@ -1,1 +1,0 @@
-7°-El Tesorero consigna en el comprobante el código presupuestario, lo firma y sella en todos sus tantos y recoge la firma del funcionario municipal que retira el dinero para realizar la compra o pagar el servicio.
