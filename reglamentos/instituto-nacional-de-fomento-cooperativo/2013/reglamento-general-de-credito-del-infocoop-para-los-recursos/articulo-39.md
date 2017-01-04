@@ -6,8 +6,9 @@ d) Cuando se presente una desmejora o pérdida del bien dado en garantía.
 e) Cuando el Área de Financiamiento recomiende técnicamente la sustitución de una garantía específica.
 f) Por la sustitución del pagaré transitorio de los casos de las Cooperativas de Ahorro y Crédito.
 En estos casos, el Área de Financiamiento, verificará el cumplimiento de cada uno de los requisitos necesarios para proceder con la correspondiente sustitución de garantías y emitirá la recomendación técnica respectiva, de ser procedente de acuerdo con los supuestos anteriores.
-Cuando una sustitución de garantía no modifique, el tipo, ni la proporcionalidad de garantía, aprobada por la Junta Directiva para el Financiamiento, esta será autorizada según los siguientes niveles:
-a) En el Área Financiamiento se autorizarán sustituciones de garantía de hasta cien millones de colones.
-b) Las sustituciones de garantías mayores de cien millones de colones, así como la del pagaré transitorio de los casos de las Cooperativas de Ahorro y Crédito, serán autorizadas por la Dirección Ejecutiva.
+(*)Cuando una sustitución de garantía no modifique, el tipo, ni la proporcionalidad de garantía, aprobada por la Junta Directiva para el Financiamiento, esta será autorizada según los siguientes niveles:
+a) En el Área Financiamiento se autorizarán sustituciones de garantía de hasta ciento cincuenta millones de colones.
+b) Las sustituciones de garantías mayores de ciento cincuenta millones de colones, así como la del pagaré transitorio de los casos de las Cooperativas de Ahorro y Crédito, serán autorizadas por la Dirección Ejecutiva.
+(*) (Así reformado el párrafo anterior en sesión N° 4104 y publicado en La Gaceta N° 3 del 4 de enero de 2017)
 Todas aquellas sustituciones de garantía, que conlleven un cambio en: el tipo de garantía, la calidad o proporcionalidad de la misma y las condiciones originales bajo las cuales fue aprobada, deberán ser autorizadas por la Junta Directiva, previa elaboración de un informe técnico del Área de Financiamiento, el cual será sometido al trámite de revisión y aprobación correspondiente.
 Para los casos de fideicomisos de garantía, aplicaran las mismas condiciones estipuladas en el presente artículo.

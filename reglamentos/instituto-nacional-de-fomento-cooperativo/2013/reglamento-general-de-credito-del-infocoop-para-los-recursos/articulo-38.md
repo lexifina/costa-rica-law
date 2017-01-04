@@ -7,8 +7,9 @@ e) Cuando se cancele la responsabilidad parcial o total de una garantía especí
 f) En general podrá liberarse toda aquella garantía en la que se verifique que no existe respaldo a una operación de financiamiento.
 En todos estos casos, el Área de Financiamiento verificará el cumplimiento de cada uno de los requisitos necesarios para proceder con la correspondiente cancelación de garantías y previo estudio técnico, procederá a autorizar y a tramitar la respectiva liberación, para lo cual informará a la Dirección Ejecutiva y a la Auditoría Interna sobre la garantía a liberar y el caso que aplica en relación a los enunciados indicados anteriormente.
 Para los casos de fideicomisos de garantía, aplicarán las mismas condiciones estipuladas en el presente artículo.
-Para todos los casos de liberación de garantía, se establecen los siguientes niveles de aprobación:
-a) En el Área de Financiamiento, se podrán autorizar liberaciones de garantía por un monto de hasta ¢50 millones.
-b) La Dirección Ejecutiva podrá autorizar liberaciones de garantía por un monto de hasta ¢100 millones.
-c) Las liberaciones de garantía que excedan los ¢100 millones, deberán someterse a la aprobación de la Junta Directiva, previo dictamen de la Comisión de Crédito institucional.
-d) Cuando se haya cancelado la totalidad de la deuda, la liberación de garantía la realizará el Área de Financiamiento.
+(*)Para todos los casos de liberación de garantía se establecen los siguientes niveles de aprobación:
+a) En el Área de Financiamiento, se podrán autorizar liberaciones de garantía por un monto de hasta ¢100 millones.
+b) La Dirección Ejecutiva podrá autorizar liberaciones de garantía por un monto de hasta ¢300 millones.
+c) Las liberaciones de garantía que excedan los ¢300 millones, deberán someterse a la aprobación de la Junta Directiva, previo dictamen de la Comisión de Crédito institucional.
+d) Cuando se haya cancelado la totalidad de la deuda (saldo de la operación o la responsabilidad aceptada de una garantía), la liberación de garantía la realizará el Área de Financiamiento.
+(*) (Así reformado el párrafo anterior en sesión N° 4104 y publicado en La Gaceta N° 3 del 4 de enero de 2017)
