@@ -1,0 +1,7 @@
+Artículo 9
+Comparecencia de testigos o peritos en el territorio de la Parte requirente
+1. Si la Parte requirente considera que la comparecencia de un testigo o de un perito ante sus autoridades judiciales es particularmente necesaria, deberá mencionarlo en la solicitud de entrega de la citación y la Parte requerida invitará a dicho testigo o perito a comparecer en una forma voluntaria. La Parte requerida comunicará la respuesta del testigo o del perito a la Parte requirente.
+2. En el supuesto previsto en el primer párrafo de este Artículo, la solicitud o citación deberá mencionar el importe aproximado de los rubros que deban pagarse, así como los gastos de viaje y estancia a reembolsar.
+3. Si se le presenta una solicitud a tal efecto, la Parte requerida podrá conceder un anticipo al testigo o perito, que mencionará en la citación y que reembolsará la Parte requirente.
+4. El testigo o perito que no comparezca a una citación para la que se la haya solicitado no podrá ser objeto, aunque dicha citación lo contemple, de ninguna sanción o medida coercitiva, a menos que se traslade posteriormente por su propia voluntad al territorio de la Parte requirente y que se le vuelva a citar legalmente.
+5. Los rubros que la Parte requirente deba cancelar, así como los gastos de viaje y estancia a reembolsar al testigo o perito, se calcularán desde el lugar de su residencia conforme a los parámetros por lo menos iguales a los previstos por las tarifas y reglamentos vigentes en el país en el que deba tener lugar la comparecencia.

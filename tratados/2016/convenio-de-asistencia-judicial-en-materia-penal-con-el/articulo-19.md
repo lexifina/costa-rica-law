@@ -1,0 +1,7 @@
+Artículo 19
+Productos de los delitos
+1. La Parte requerida intentará establecer, previa solicitud, si los productos de un delito contra la legislación de la Parte requirente se encuentran en su jurisdicción e informará a la Parte requirente sobre los resultados de sus indagaciones. En su solicitud, la Parte requirente comunicará a la Parte requerida los motivos en los que basa su presunción de que tales productos pueden encontrarse dentro de su jurisdicción.
+2. Si de conformidad con el párrafo uno, se encuentran los productos que se sospecha proceden de un delito, la Parte requerida adoptará las medidas necesarias autorizadas por su legislación para impedir que éstos sean objeto de transacciones, se transfieran o se cedan antes de que un tribunal de la Parte requirente no haya adoptado una decisión definitiva al respecto.
+3. La Parte requerida realizará, conforme disponga su legislación, una solicitud de asistencia cuya finalidad sea la incautación de los productos de un delito.
+4. En la medida en que lo permita su legislación y previa solicitud de la Parte requirente, la Parte requerida gestionará prioritariamente la restitución a la Parte requirente de los productos de los delitos, con miras en particular a indemnizar a las víctimas o restituirlos al propietario legítimo, sin prejuicio de los derechos de terceros de buena fe.
+5. Los productos de un delito incluyen los instrumentos utilizados para cometer el ilícito.
