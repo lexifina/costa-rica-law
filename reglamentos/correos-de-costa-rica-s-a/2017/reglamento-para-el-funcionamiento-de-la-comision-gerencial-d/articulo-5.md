@@ -1,0 +1,1 @@
+Artículo 5.—Naturaleza de la Comisión Gerencial de Control Interno de Correos de Costa Rica. Es un órgano catalizador de control interno, dedicado a promover, formar y fortalecer en temas control interno, mediante las acciones establecidas en el SEVRI, autoevaluaciones, revisión de los controles de Correos de Costa Rica.
