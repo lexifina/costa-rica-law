@@ -1,0 +1,1 @@
+Artículo 18.—De las pruebas toxicológicas al funcionariado de la Policía Municipal de San Carlos. Toda persona que desea ingresar a este cuerpo policial deberá someterse a un examen, el cual consiste en la toma de orina que será obligatoria en todos los casos.

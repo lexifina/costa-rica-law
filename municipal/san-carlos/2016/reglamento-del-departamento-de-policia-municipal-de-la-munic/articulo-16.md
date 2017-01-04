@@ -1,0 +1,1 @@
+Artículo 16°—Para la realización de la prueba, en caso de los funcionarios de la Policía Municipal, se seleccionará de forma aleatoria a quienes serán sometidas a la misma, o por cuando por causa justa lo amerite.- Dicha selección será efectuada por la Jefatura del departamento, o en su caso por la Alcaldía Municipal, pudiéndose delegar la selección, en un funcionario competente.

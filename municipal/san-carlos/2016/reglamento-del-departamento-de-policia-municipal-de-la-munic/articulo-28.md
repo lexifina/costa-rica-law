@@ -1,0 +1,1 @@
+Artículo 28.— Fuera de la jornada laboral queda terminantemente prohibido el uso del uniforme, junto con el chaleco de seguridad suministrado por la Institución. De igual forma, se prohíbe realizar actividades personales usando el uniforme.
