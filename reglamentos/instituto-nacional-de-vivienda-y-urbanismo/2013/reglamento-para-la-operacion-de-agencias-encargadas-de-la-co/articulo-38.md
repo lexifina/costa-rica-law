@@ -1,3 +1,0 @@
-Artículo 38.—Tratándose de otras faltas no incluidas en el artículo anterior, o que encontrándose allí previstas no tuvieran la gravedad para justificar una resolución del contrato, el INVU podrá alternativamente decidir:
-a) Suspender temporalmente el contrato hasta por un plazo máximo de seis meses, sin el reconocimiento de indemnización alguna para la agencia.
-b) Imponer por única vez, una multa de hasta dos salarios mínimos, calculados según el salario mensual de un oficinista 2 que aparece en la relación de puestos de la Ley de Presupuestos Ordinarios aprobada en el mes de noviembre anterior a la infracción. Si la conducta infractora se vuelve a repetir durante la vigencia del contrato, el INVU procederá a la resolución contractual, sin responsabilidad de su parte.

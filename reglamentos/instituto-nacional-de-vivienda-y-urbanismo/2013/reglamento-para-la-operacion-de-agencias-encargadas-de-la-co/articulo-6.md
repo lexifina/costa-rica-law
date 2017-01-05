@@ -1,1 +1,0 @@
-Artículo 6º—Toda materia relacionada con el funcionamiento del Sistema de Ahorro y Préstamo del INVU, incluyendo los derechos y obligaciones de los administrados que participan del Sistema, será competencia exclusiva del Instituto.

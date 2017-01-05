@@ -1,1 +1,0 @@
-Artículo 5º—La selección de las agencias se hará mediante los procedimientos que autoriza la Ley General de Contratación Administrativa y su Reglamento, así como, la Ley de Sociedades Anónimas Laborales, si resultare aplicable.

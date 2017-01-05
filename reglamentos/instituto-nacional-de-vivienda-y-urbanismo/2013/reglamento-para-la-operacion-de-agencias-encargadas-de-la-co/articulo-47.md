@@ -1,1 +1,0 @@
-Artículo 47.—Los casos no contemplados expresamente en este Reglamento o en otras disposiciones similares emitidas por el INVU, serán resueltos de conformidad con la Ley N° 1788 de 24 de agosto de 1954, el Código de Comercio y el Reglamento para el Sistema de Ahorro y Préstamo del Instituto Nacional de Vivienda y Urbanismo.

@@ -1,1 +1,0 @@
-Artículo 48.—Este reglamento deroga y deja sin ningún efecto legal, a partir de su publicación, cualquier otra disposición reglamentaria existente en el INVU sobre la operación de agentes del Sistema de Ahorro y Préstamo, así como de operación de entidades comercializadoras del Sistema de Ahorro y Préstamo.
