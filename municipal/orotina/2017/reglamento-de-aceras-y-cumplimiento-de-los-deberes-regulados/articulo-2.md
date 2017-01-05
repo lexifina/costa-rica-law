@@ -1,0 +1,1 @@
+Artículo 2°—La Municipalidad de Orotina debe velar de oficio por el cumplimiento de las disposiciones contempladas en los artículos 75, 76, 76bis y 76 ter el Código Municipal, así como de este Reglamento, iniciando el procedimiento en aquellos casos en que detecte incumplimiento.

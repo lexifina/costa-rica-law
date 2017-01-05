@@ -1,0 +1,1 @@
+Artículo 3°—La Municipalidad de Orotina realizará las obras y servicios correspondientes cuando los propietarios o poseedores de bienes inmuebles omitan el cumplimiento de los deberes a que hace referencia el artículo 75 del Código Municipal, y cobrará la tarifa y multa respectiva.
