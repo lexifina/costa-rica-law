@@ -1,1 +1,0 @@
-Artículo 19.—De la actualización de las multas: Las multas indicadas en los artículos anteriores se modificará automáticamente con la aprobación de la ley correspondiente o mediante disposición expresa que esta Municipalidad tenga por parte del ente que el ordenamiento jurídico dicte al efecto.

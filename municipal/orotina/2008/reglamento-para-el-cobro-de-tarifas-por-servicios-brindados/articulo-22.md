@@ -1,1 +1,0 @@
-Artículo 22.—Colaboración con otros entes: La municipalidad coordinará las acciones necesarias con ministerios e instituciones públicas, asociaciones de desarrollo, comités de caminos, comités de vecinos o cualquier otro grupo u organización de la sociedad civil, a fin de garantizar el debido cumplimiento de las obligaciones y prestaciones a que se refiere el presente reglamento.

@@ -1,1 +1,0 @@
-Artículo 21.—Uso de los recursos obtenidos con base en este reglamento: Los recursos obtenidos producto de la aplicación del presente reglamento serán utilizados preferentemente en obras relacionadas con el mantenimiento rutinario de la Red Vial Cantonal.
