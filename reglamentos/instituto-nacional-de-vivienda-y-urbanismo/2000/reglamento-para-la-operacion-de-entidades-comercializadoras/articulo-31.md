@@ -1,1 +1,0 @@
-Artículo 31.—Las Agencias Comercializadoras deberán permitir al Instituto, verificar el cumplimiento de lo estipulado en el presente Reglamento v el respectivo contrato y demás normas que regulen la relación.

@@ -1,3 +1,0 @@
-CAPÍTULO VI
-Prohibiciones
-Artículo 22.—Es prohibido a las Agencias Comercializadora promover y concretar la venta de contratos del Sistema de Ahorro y Préstamo, al estado, a las Instituciones Públicas o a las empresas en que el Estado tenga una participación superior al cincuenta por ciento de sus acciones. Todo en virtud que este tipo de colocaciones se tramitan por medio de convenios públicos, suscritos de madera directa entre los representantes legales de las instituciones públicas intervinientes o empresas en que el Estado tenga una participación superior al 50°o de sus acciones y el representante del INVL' con facultades de Apoderado Generalísimo sin límite de suma. De toda suerte este tipo de colocaciones no genera el pago de comisión alguna.

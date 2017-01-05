@@ -1,1 +1,0 @@
-Artículo 21.—Las Agencias Comercializadoras no podrán ceder en todo o en parte su cartera y si así se hiciera, previa autorización de la Dirección de Ahorro y Préstamo, las comisiones que corresponda a partir de la fecha en que se avale la cesión, corresponderán a las Agencias que asuma al cliente.

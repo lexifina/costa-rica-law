@@ -1,2 +1,0 @@
-Artículo 16.—El Instituto no será responsable por la suspensión, la cancelación, resolución o terminación del contrato mercantil con la Agencia Comercializadora, cuando se fundamente en las causas expresamente establecidas en el contrato mercantil, de este Reglamento o en la Ley.
-En la cancelación de la operación de una Agencia Comercializadora, el Instituto tendrá la potestad de redistribuir o asumir la cartera de los clientes.

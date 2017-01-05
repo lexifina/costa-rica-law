@@ -1,2 +1,0 @@
-Artículo 6°—La escogencia de una Agencia Comercializadora, será a través de su participación en el proceso de la licitación pública para las agencias comercializadoras. El cartel indicará las características y condiciones. El cartel indicara las características y condiciones y el plazo del respectivo contrato.
-La Junta Directiva autorizara la contratación de las entidades comercializadoras mejor calificadas, previo dictamen administrativo que califiquen la oferta, de acuerdo con los criterios de selección que se determine, con anterioridad al inicio del concurso público.
