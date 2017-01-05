@@ -1,4 +1,5 @@
 SERVICIO NACIONAL DE SALUD ANIMAL
+(Nota de Sinalevi: Mediante resolución SENASA-DG-R001-2017 del 5 de enero de 2017, se acordó levantar el estado de cuarentena sanitaria por Salmonella Gallinarum a los distritos de Turrúcares y La Guácima del cantón central de la provincia de Alajuela y Piedras Negras y Jaris del cantón de Mora de la provincia de San José, establecido en la presente norma. Asimismo se mantiene la medida sanitaria de cuarentena a los establecimientos cuyas aves han dado resultados positivos a Salmonella Gallinarum, a los establecimientos de contacto con aves sin vigilancia oficial a Salmonella Gallinarum conforme al Plan de Control de esta enfermedad establecido por el Programa Nacional de Salud Aviar del SENASA y a las granjas autorizadas oficialmente para aplicar vacuna viva de Salmonella Gallinarum.)
 DIRECCIÓN GENERAL
 N° SENASA-DG-R045-2013.—Barreal de Ulloa, a las catorce horas del veintidós de agosto del año dos mil trece.
 Considerando:
