@@ -14,3 +14,4 @@ Reforma Declara en estado de cuarentena sanitaria a los distritos de Turrúcares
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-04-14 | la propia norma |
+| 2 | 2017-01-05 | Resolución 1 (2017-01-05) |
