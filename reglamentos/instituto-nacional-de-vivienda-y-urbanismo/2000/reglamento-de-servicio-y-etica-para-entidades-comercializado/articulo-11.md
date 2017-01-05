@@ -1,1 +1,0 @@
-Artículo 11.—Ninguna persona física o jurídica, ni funcionario de la Institución no autorizado, ni persona ajena al Sistema de Ahorro y Préstamo, podrá colocar contratos, si no es por medio de los Entes Comercializadores. quien será el responsable de cualquier irregularidad por culpa o dolo en los correspondientes trámites.

@@ -1,1 +1,0 @@
-Artículo 3°—Para ingresar al Instituto como Entidad Comercializadora, es necesario participar en el proceso de Licitación pública para agencias comercializadoras, ó participar como Sociedad Anónima Laboral, todo de acuerdo con la Ley N° 7407 de Sociedades Anónimas Laborales.
