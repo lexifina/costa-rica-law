@@ -1,1 +1,0 @@
-Artículo 28°— Este Reglamento, una vez aprobado por la Oficina Legal del Ministerio de Trabajo y Previsión Social, entrará en vigencia quince días hábiles después de haber sido puesto en conocimiento de los trabajadores y se mantendrá constantemente colocado por lo menos en dos sitios visibles del lugar de trabajo.

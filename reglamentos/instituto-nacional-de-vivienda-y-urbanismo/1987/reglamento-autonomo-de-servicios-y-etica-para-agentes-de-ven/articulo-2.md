@@ -1,1 +1,0 @@
-Articulo 2°—Se consideran agentes de venta, quienes se encuentren debidamente autorizados, conforme con este Reglamento para la colocación de contratos de ahorro y préstamo, de acuerdo con las limitaciones que el Reglamento de Ahorro y Préstamo contiene en esta materia y las disposiciones adicionales que el Instituto imparta en cada caso.

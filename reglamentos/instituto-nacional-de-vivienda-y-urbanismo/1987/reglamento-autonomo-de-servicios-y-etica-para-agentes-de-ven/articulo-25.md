@@ -1,1 +1,0 @@
-Articulo 25°—Toda queja, reclamo o petición de mejoramiento técnico del sistema, deberá ser presentada por escrito ante el Jefe inmediato, quien si no tuviere competencia para resolver el asunto. Ie elevara ante las autoridades de la Institución, respetando la escala jerárquica.

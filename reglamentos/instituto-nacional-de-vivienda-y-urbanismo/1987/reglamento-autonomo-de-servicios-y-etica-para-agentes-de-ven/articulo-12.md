@@ -1,3 +1,0 @@
-Articulo 12°—Con el fin de ayudar a los agentes de ventas en los meses de bajos ingresos, e! Instituto les hará prestamos sobre comisiones de acuerdo con el porcentaje de ventas y serán distribuidas de la siguiente forma:
-— Un porcentaje promedio de las comisiones recibidas totales del año anterior, distribuido en el año. No podrá, ser mayor de un sueldo mensual "per cápita", del grupo de ventas y comprobada su real necesidad. No se podrá pasar de su porcentaje individual y se otorgarán estos prestamos
-para ser cancelados en el año en curso y a un interés de acuerdo con las necesidades del Instituto, que se entenderá. sin fines de lucre,

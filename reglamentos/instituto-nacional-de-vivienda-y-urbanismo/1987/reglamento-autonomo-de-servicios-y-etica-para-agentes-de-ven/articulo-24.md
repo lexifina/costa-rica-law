@@ -1,1 +1,0 @@
-Articulo 24°—El Agente que por cualquier causa no pudiera asistir a su labores esta obligado a notificarlo sin demora al Instituto, especificando la causa de su ausencia en forma que pueda apreciarse la posible duración de ella.

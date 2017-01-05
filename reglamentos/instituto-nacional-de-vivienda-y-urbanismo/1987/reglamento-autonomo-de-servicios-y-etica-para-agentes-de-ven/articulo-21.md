@@ -1,1 +1,0 @@
-Articulo 21°—Los agentes disfrutaran anualmente de vacaciones pagada después de las primeras cincuenta semanas servidas, de acuerdo con lo dispuesto en los artículos 153 y siguientes del Código de Trabajo. No podrán por lo mismos reportar ventas, mientras dure su permiso de vacaciones o se encuentre incapacitados.

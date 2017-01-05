@@ -1,1 +1,0 @@
-Articulo 7°—Las funciones de los agentes de venta se realizaran normalmente fuera de la Institución. Podrán hacer uso de las instalaciones e implementos necesarios de oficina que se asignen para el trámite de sus operaciones laborales. Salvo en los casos en que la Gerencia determine lo contrario.

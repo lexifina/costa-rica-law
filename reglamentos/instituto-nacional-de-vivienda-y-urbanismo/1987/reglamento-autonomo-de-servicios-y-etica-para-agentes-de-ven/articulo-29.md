@@ -1,1 +1,0 @@
-Articulo 29.—Los casos no contemplados expresamente en este Reglamento o en otras disposiciones similares emitidas por el Instiluto, o en Ios respectivos contratos de trabajo, serán resueltos conforme con el Código de Trabajo y sus leyes supletorias o conexas.

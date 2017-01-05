@@ -1,1 +1,0 @@
-Articulo 13°—El Instituto se reserva el derecho de sustituir o suspender temporal o definitivamente la colocación de cualquier plan o serie de planes que tenga. Para tal fin. los agentes de ventas serán notificados por escrito con siete días de anticipación.

@@ -1,1 +1,0 @@
-Articulo 14°—En los casos previstos en el articulo anterior y si la suspensión fuere parcial, los agentes de ventas deberán, de acuerdo con las instrucciones que reciban, concentrar sus esfuerzos de venta en los planes que se señalen como mas convenientes al Sistema de Ahorro y Préstamo.

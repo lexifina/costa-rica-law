@@ -1,1 +1,0 @@
-Artículo 27°—Este reglamento podré ser modificado y aun derogado por la Junta Directiva del Instituto, cuando lo considere conveniente, sin perjuicio de los derechos adquiridos por los agentes, requiriéndose en ambos casos la aprobación de la Oficina Legal del Ministerio de Trabajo y Previsión Social.

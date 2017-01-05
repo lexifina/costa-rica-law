@@ -1,2 +1,0 @@
-Articulo 9°—Los agentes de ventas deberán dedicarse a tiempo complete y exclusivamente a las actividades para las que fueron contratados. Excepcionalmente los agentes regulares podrán ejercer temporalmente otras labores, siempre que cuenten con autorización de la Junta Directiva del Instituto, previo informe de la Gerencia, y que estas no interfieran en el horario normal de trabajo diurno.
-En ningún caso podrán colaborar con otra persona natural o jurídica dedicada a actividades similares a las de la Institución.

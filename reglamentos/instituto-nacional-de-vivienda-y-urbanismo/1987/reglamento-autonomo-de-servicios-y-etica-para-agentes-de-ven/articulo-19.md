@@ -1,1 +1,0 @@
-Articulo 19°—A los agentes que se les compruebe falta de ética en sus funciones, irrespeto al trabajo de sus compañeros, o falta que vaya en perjuicio del Sistema de Ahorro y Préstamo y de la Institución, se Ie sancionara de acuerdo con los reglamentos del Instituto.
