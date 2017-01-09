@@ -14,3 +14,4 @@ Código de Ética Farmacéutica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-02-01 | la propia norma |
+| 2 | 2017-01-09 | Reglamento 0 (2017-01-09) |
