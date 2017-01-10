@@ -1,1 +1,0 @@
-Artículo 32.—Recepción de ofertas. Cuando así se disponga, las cotizaciones serán recibidas por la Unidad de Proveeduría en sobre cerrado. En caso contrario se aceptará su remisión por cualquier otro medio, de tal forma que ingresen en el momento indicado.

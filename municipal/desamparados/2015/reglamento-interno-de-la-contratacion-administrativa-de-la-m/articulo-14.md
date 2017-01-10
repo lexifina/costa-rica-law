@@ -1,1 +1,0 @@
-Artículo 14.—Formalidades del pedido. La respectiva solicitud de pedido deberá estar suscrita por el jefe de la dependencia solicitante, quien será el responsable de verificar y justificar la efectiva necesidad del bien, servicio u obra.

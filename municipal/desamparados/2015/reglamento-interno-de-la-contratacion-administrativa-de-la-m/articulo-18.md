@@ -1,1 +1,0 @@
-Artículo 18.—Inicio del procedimiento. Una vez que se cuente con la solicitud de compra o pedido debidamente confeccionado, con las especificaciones técnicas y el contenido presupuestario correspondiente, la Proveeduría dará inicio al proceso de contratación respectivo.
