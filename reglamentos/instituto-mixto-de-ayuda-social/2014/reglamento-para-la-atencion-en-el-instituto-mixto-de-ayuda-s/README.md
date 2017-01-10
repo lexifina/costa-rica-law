@@ -14,3 +14,4 @@ Reglamento para la atención en el Instituto Mixto de Ayuda Social de las denunc
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-21 | la propia norma |
+| 2 | 2017-01-10 | Reglamento 0 (2017-01-10) |
