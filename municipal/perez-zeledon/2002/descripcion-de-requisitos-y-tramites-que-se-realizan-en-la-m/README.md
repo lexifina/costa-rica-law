@@ -14,3 +14,4 @@ Descripción de requisitos y trámites que se realizan en la Municipalidad de P�
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2002-06-12 | la propia norma |
+| 2 | 2017-01-10 | Reglamento municipal 37 (2017-01-10) |
