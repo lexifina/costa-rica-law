@@ -1,1 +1,0 @@
-Artículo 21.—La Secretaría Municipal será la encargada de administrar el correspondiente expediente de solicitudes y becas aprobadas, de acuerdo con las prácticas de control administrativo que se apliquen institucionalmente.

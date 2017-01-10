@@ -1,1 +1,0 @@
-Artículo 2º—Se entiende por una beca municipal la ayuda que la Municipalidad dá a estudiantes de acuerdo con lo establecido por el Código Municipal en su artículo Nº 62 con el fin de favorecer sus condiciones para la realización de sus estudios.

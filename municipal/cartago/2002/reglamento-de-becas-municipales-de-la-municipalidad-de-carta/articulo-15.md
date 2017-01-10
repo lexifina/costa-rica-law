@@ -1,1 +1,0 @@
-Artículo 15.—En casos extraordinarios, a criterio de la Comisión de Educación, se podrán asignar hasta dos becas en un solo grupo familiar cuando las condiciones socioeconómicas de la familia lo hagan necesario.
