@@ -25,3 +25,4 @@ Reglamento para las Operaciones Cambiarias de Contado
 | 10 | 2015-01-30 | Reglamento 5677 (2015-01-30) |
 | 11 | 2015-11-04 | Reglamento 5706 (2015-11-04) |
 | 12 | 2016-12-23 | Reglamento 5751 (2016-12-23) |
+| 13 | 2017-01-11 | Reglamento 5752 (2017-01-11) |
