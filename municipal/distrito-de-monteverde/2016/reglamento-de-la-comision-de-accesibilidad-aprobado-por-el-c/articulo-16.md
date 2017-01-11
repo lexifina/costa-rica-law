@@ -1,0 +1,2 @@
+Artículo 16.—Disponibilidad de tiempo. Los miembros de la COMAD deberán asistir a las sesiones y atender diligencias o actividades propias de la comisión; para ello, deberán disponer del tiempo necesario.
+La Intendencia gestionará de las condiciones de tiempo y recursos necesarios a fin de asegurar el trabajo efectivo de todos los miembros de la COMAD. sin perjuicio del cumplimiento de las funciones propias del cargo que el funcionario desempeñe en sus instituciones.

@@ -1,0 +1,1 @@
+Artículo 6º—Principio de igualdad. Será obligación de todo funcionario del Concejo Municipal de Distrito de Monteverde brindar un trato equitativo y no discriminatorio a todas las personas con discapacidad, sean funcionarías o usuarias.

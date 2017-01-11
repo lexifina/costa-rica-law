@@ -1,0 +1,1 @@
+Artículo 19.—Normativa supletoria. Para lo no contenido en el presente Reglamento, la COMAD se regirá supletoriamente por lo dispuesto en la Ley N° 7600, Igualdad de Oportunidades para las Personas con Discapacidad, su Reglamento (Decreto 26831 MP).

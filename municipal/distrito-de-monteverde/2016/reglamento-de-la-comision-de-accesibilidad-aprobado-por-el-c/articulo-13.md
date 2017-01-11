@@ -1,0 +1,1 @@
+Artículo 13.—Recursos. La COMAD centralizará su documentación, recepción y remisión de su correspondencia y su gestión institucional, en la oficina que el Concejo Municipal de Distrito de Monteverde le asigne; además, podrá gestionar los recursos humanos y materiales indispensables para el logro de su cometido.
