@@ -1,4 +1,5 @@
 N° 38157-MOPT
+(Nota de Sinalevi: Mediante el artículo 5° del decreto ejecutivo N° 40182 del 11 de enero del 2017, Tarifas para el alquiler de maquinarias contenidas en la tabla denominada "Costos Máximos Horario de Equipo y Maquinaria", para la atención de vías nacionales, se ordena derogar en lo conducente el presente decreto ejecutivo)
 LA PRESIDENTA DE LA REPÚBLICA
 Y EL MINISTRO DE OBRAS PÚBLICAS Y TRANSPORTES
 En ejercicio de las atribuciones conferidas por el artículo 140 incisos 3) y 18) de la Constitución Política y con fundamento en la Ley de Creación del Ministerio de Obras Públicas y Transportes, N° 4786 del 5 de julio de 1971 y sus reformas, la Ley de Contratación Administrativa, N° 7494 del 2 de mayo de 1995 y sus reformas, así como el Reglamento a la Ley de Contratación Administrativa, la Ley General de la Administración Pública, N° 6227 del 2 de mayo de 1978 y sus reformas, y la Ley de Creación del Consejo Nacional de Vialidad, N° 7798 del 30 de abril de 1998.

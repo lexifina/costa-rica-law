@@ -14,3 +14,4 @@ Tarifas para alquiler de maquinaria contenidas en la tabla denominada "Costos M√
 | Versi√≥n | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-02-14 | la propia norma |
+| 2 | 2017-01-11 | Decreto Ejecutivo 40182 (2017-01-11) |
