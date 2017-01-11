@@ -47,6 +47,8 @@ f- Total de créditos aprobados
 g- Período en que cursó cada asignatura
 h- Indicación de las asignaturas, convalidadas, equiparadas y aprobadas por tutoría y/o por suficiencia. De no ser así, en la certificación debe constar explícitamente que no hay asignaturas convalidadas, reconocidas o equiparadas.
 i- Si presenta asignaturas convalidadas deberá aportar certificación original de la aprobación, extendida por la institución de origen; además mediante copia certificada del acta de convalidación o documento equivalente, deberá indicar cuales asignaturas fueron equiparadas entre sí y de qué niveles e instituciones de educación superior.
+j) Contar con los timbres respectivos, las firmas y sellos competentes del ente emisor.
+(Así adicionado el inciso anterior y publicado en La Gaceta N° 8 del 11 de enero de 2016)
 4.4 Adjuntar dos fotografías recientes, tamaño pasaporte, tomadas de frente y en fondo blanco.
 4.5. Original y una copia nítida de la cédula de identidad o su equivalente, vigente. La copia
 deberá ser nítida y que facilite su lectura, con ambas caras del documento en un solo lado de la hoja.
