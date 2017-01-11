@@ -1,0 +1,1 @@
+Artículo 13.—Cobro de licencia de construcciones. Al tenor de lo dispuesto en el Capítulo XVIII de la Ley de Construcciones, el Concejo está autorizado para cobrar por licencia de construcciones un 1% del Valor Tasado de la obra por realizar.

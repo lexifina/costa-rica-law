@@ -1,0 +1,1 @@
+Artículo 21.—Recurso de apelación y agotamiento de la vía administrativa. La resolución de este Recurso de Revocatoria tendrá Recurso de Apelación dentro del quinto día para ante el Intendente Municipal. Para el agotamiento de la vía administrativa, se aplicarán los artículos 161 y 162 del Código Municipal.

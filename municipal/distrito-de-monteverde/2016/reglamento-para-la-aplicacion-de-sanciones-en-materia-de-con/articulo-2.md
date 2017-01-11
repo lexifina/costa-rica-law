@@ -1,0 +1,1 @@
+Artículo 2º—Área geográfica de aplicación. Este Reglamento podrá ser aplicado para todas aquellas actividades que impliquen la realización de obras que requieran permiso municipal de acuerdo con la Ley de Construcciones y sus reglamentos vigentes y ubicados en el Distrito de Monteverde.

@@ -1,0 +1,1 @@
+Artículo 20.—Recurso de revocatoria. La resolución que deniegue o apruebe la solicitud de permiso tendrá Recurso de Revocatoria dentro del quinto día, después de notificado, ante el Departamento de Planificación Urbana y Control Constructivo. La resolución de este recurso deberá contener los mismos requisitos formales del acto administrativo.

@@ -1,0 +1,1 @@
+Artículo 7º—Requisitos extraordinarios. Las solicitudes de permisos de construcción deberán contener los requisitos extraordinarios que al efecto señala la Ley de Construcción y la Ley de Planificación Urbana, así como el correspondiente Reglamento a la Ley de Construcciones y las otras normas del Ordenamiento Jurídico vigente para cada caso específico.

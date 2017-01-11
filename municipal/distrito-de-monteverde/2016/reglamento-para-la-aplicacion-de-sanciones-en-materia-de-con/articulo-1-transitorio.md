@@ -1,0 +1,2 @@
+Transitorio único.—Toda solicitud o trámite administrativo que haya sido presentado antes de la publicación en el Diario Oficial La Gaceta y definitiva entrada en vigencia de este Reglamento será tramitada de acuerdo con las normas vigentes a la fecha de la solicitud. Una vez resueltas y comunicadas todas estas solicitudes a los permisionarios, este procedimiento anterior quedará derogado.
+Rige a partir de su publicación.
