@@ -1,0 +1,1 @@
+Artículo 39.—El plazo máximo que se concederá para realizar el arreglo de pago no excederá los doce meses calendario, contados a partir de la firma del documento respectivo. El cálculo de las cuotas para cancelar la totalidad de la deuda vencida y los intereses será realizado por la oficina de Gestión de Cobros, según el plazo acordado con el sujeto pasivo.

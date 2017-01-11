@@ -1,0 +1,1 @@
+Artículo 8º—Solamente las cuentas vencidas cuyas sumas asciendan o sean mayores a veinte mil colones (¢20.000,00), serán puestas al cobro judicial. Para tal efecto se sumarán todas las cuentas vencidas de un determinado sujeto pasivo.

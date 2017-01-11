@@ -1,0 +1,1 @@
+Artículo 20.—Mediante requerimiento escrito, el Administrador Tributario o el encargado de la oficina de Gestión de Cobros, podrá solicitar al abogado, cuando así lo estime conveniente a los intereses municipales, informes especiales acerca del avance de las gestiones realizadas y los resultados parciales obtenidos, de cualquier caso bajo su responsabilidad.

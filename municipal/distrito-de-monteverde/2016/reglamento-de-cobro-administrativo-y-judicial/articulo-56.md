@@ -1,0 +1,3 @@
+CAPÍTULO DÉCIMOPRIMERO
+Disposiciones finales
+Artículo 56º—Resultan complementarias las disposiciones aplicables en cuanto correspondan contenidas en el Código Municipal, el Código de Normas y Procedimientos Tributarios, el Código Procesal Civil, la Ley General de la Administración Pública, la Ley Reguladora de la Jurisdicción de lo Contencioso Administrativo y Normas Conexas, La Ley de Bienes Inmuebles, La Ley Orgánica del Colegio de Abogados y Normas conexas y el Decreto de Aranceles Profesionales para Abogados, la Ley de Control Interno, así como cualquier otra norma que guarde relación con las disposiciones del Reglamento.

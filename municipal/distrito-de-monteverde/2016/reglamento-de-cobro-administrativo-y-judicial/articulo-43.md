@@ -1,0 +1,1 @@
+Artículo 43.—Los sujetos pasivos interesados en realizar arreglos de pago con el Concejo Municipal deberán presentar por escrito la oficina de Gestión de Cobros dicha solicitud, aportando documentos que respalden su situación económica actual y el motivo que le impide hacer el pago total de lo adeudado.

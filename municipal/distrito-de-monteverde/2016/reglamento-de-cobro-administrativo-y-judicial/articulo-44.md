@@ -1,0 +1,1 @@
+Artículo 44.—Toda la documentación relativa al arreglo de pago quedará en custodia de la Oficina de Gestión de Cobros y podrá entregar copia al sujeto pasivo si este lo solicita. En caso de incumplimiento del arreglo, esta documentación formará parte del expediente de cobro judicial.
