@@ -1,0 +1,1 @@
+Artículo 3º—Los Estudiantes que soliciten becas municipales deberán ser vecinos del Distrito de Monteverde. Lo que se comprobará mediante una constancia expendida por la Clínica de Monteverde u otra institución que solicite previamente la Comisión de Becas.
