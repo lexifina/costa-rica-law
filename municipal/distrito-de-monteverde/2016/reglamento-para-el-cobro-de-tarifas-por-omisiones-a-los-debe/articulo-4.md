@@ -1,0 +1,1 @@
+Artículo 4°—Notificación. Previo a la efectiva prestación del servicio o de la realización de la obra correspondiente, el Concejo Municipal de Distrito de Monteverde notificará por una única vez al propietario del inmueble omiso de los deberes enunciados en este reglamento para que proceda por su cuenta a cumplir con su obligación legal.

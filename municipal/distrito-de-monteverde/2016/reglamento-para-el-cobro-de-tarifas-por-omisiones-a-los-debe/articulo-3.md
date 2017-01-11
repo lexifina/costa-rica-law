@@ -1,0 +1,1 @@
+Artículo 3°—El Concejo Municipal de Distrito de Monteverde cobrará una tarifa cuando tenga que prestar los servicios a los propietarios de bienes inmuebles que omitan cumplir con los deberes indicados en el numeral anterior. La tarifa se fijará tomando en cuenta el costo efectivo del servicio o de la obra que corresponda ejecutar por la omisión del propietario.

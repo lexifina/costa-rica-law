@@ -1,0 +1,1 @@
+Artículo 8°—Para la determinación del costo efectivo, el Concejo Municipal de Distrito de Monteverde tomará como base el gasto real que tenga la realización de las obras y servicios, mediante los costos reales que brinde el Departamento de Planificación Urbana y Control Constructivo el cual es el encargado de contratar las obras o bien ejecutar el trabajo.
