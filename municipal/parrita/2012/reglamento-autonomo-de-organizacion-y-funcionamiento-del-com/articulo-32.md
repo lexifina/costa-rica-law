@@ -1,1 +1,0 @@
-Artículo 32.—En la primera sesión, mediante votación secreta, se designarán los cargos de presidente, vicepresidente, secretario, tesorero y vocal, funciones que desempeñarán por espacio de dos años, en forma ad honoren pudiendo ser reelectos.

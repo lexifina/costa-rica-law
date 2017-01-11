@@ -1,1 +1,0 @@
-Artículo 80.—El nombramiento del Comité Comunal de Deporte y Recreación se llevará a cabo mediante asamblea pública de vecinos, convocada y presidida por el personero del Comité Cantonal de Deportes y Recreación,

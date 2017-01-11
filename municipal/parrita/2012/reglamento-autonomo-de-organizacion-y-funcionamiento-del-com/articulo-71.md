@@ -1,1 +1,0 @@
-Artículo 71.—El Comité Cantonal de Deportes y Recreación someterá sus presupuestos a conocimiento y aprobación del Consejo Municipal de Parrita, sujeto a las disposiciones que dicte la Contraloría General de la República y conforme a los programas que se incluyen en el plan de trabajo anual.

@@ -1,1 +1,0 @@
-Artículo 9º—Brindar soporte y ayuda económica a las Asociaciones y Federaciones Deportivas y Recreativas, legalmente constituidas, vigentes e inscritas y registradas en el Registro Nacional asentadas en el cantón de Parrita, promoviendo la capacitación y otras modalidades relacionadas con el deporte, la recreación y la actividad física

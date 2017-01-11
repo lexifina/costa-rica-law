@@ -1,1 +1,0 @@
-Artículo 13.—Fiscalizar el uso de fondos públicos que se invierten en el deporte y la recreación y determinar el procedimiento de control interno que garantice una puntual y eficaz rendición de cuentas.

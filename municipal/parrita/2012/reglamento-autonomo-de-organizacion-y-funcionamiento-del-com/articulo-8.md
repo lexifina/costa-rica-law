@@ -1,1 +1,0 @@
-Artículo 8º—Facilitar el desarrollo y organización de todas aquellas disciplinas deportivas de carácter competitivo con miras a una representación distrital, cantonal, provincial, nacional y por ende contribuyan a incentivar el deporte de competencia de nuestro país.

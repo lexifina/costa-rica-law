@@ -1,1 +1,0 @@
-Artículo 96.—El Comité Cantonal de Deportes y Recreación tendrá una oficina central sede que es la unidad administrativa y técnica y además el centro de reuniones de todas sus comisiones de trabajo y en caso de no disponer de ella, la Municipalidad de Parrita en la medida de sus posibilidades facilitara la misma por el tiempo que sea necesario.

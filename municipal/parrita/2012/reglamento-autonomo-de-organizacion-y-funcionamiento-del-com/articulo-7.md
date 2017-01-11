@@ -1,1 +1,0 @@
-Artículo 7º—Coordinar con todos los actores sociales de la comunidad proyectos y programas a nivel comunal que contribuyan y fomenten la salud, y estilos de vida activos por medio del deporte y la recreación en todos los sectores de la población.

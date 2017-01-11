@@ -1,4 +1,0 @@
-Artículo 66.—Toda instalación deportiva y recreativa de carácter público (entidades de Gobierno Central) construidas con el financiamiento estatal, contará con una Junta Administrativa, integrada por cinco miembros en representación de:
-a) Uno en representación del ICODER.
-b) Dos del Concejo Municipal de Parrita.
-c) Dos en representación del Comité Cantonal de Deportes y Recreación.
