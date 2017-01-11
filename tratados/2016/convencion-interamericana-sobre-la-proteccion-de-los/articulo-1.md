@@ -1,0 +1,32 @@
+N° 9394
+(Nota de Sinalevi: Mediante el artículo 1° del decreto ejecutivo N° 39973 del 12 de octubre de 2016, se ratificó la presente Convención.)
+LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
+DECRETA:
+APROBACIÓN DE LA CONVENCIÓN INTERAMERICANA SOBRE
+LA PROTECCIÓN DE LOS DERECHOS HUMANOS
+DE LAS PERSONAS MAYORES
+ARTÍCULO ÚNICO.- Se aprueba, en cada una de sus partes, la Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores, adoptada el 15 de junio de 2015, en Washington, D.C., Estados Unidos de América. El texto es el siguiente:
+CONVENCIÓN INTERAMERICANA SOBRE LA PROTECCIÓN DE
+LOS DERECHOS HUMANOS DE LAS PERSONAS MAYORES
+PREÁMBULO
+Los Estados Parte en la presente Convención, Reconociendo que el respeto irrestricto a los derechos humanos ha sido consagrado en la Declaración Americana de los Derechos y Deberes del Hombre y en la Declaración Universal de los Derechos Humanos y reafirmado en otros instrumentos internacionales y regionales;
+Reiterando el propósito de consolidar, dentro del marco de las instituciones democráticas, un régimen de libertad individual y de justicia social, fundado en el respeto de los derechos fundamentales de la persona;
+Teniendo en cuenta que, con arreglo a la Declaración Universal de los Derechos Humanos y a la Convención Americana sobre Derechos Humanos, solo puede realizarse el ideal del ser humano libre, exento del temor y de la miseria, si se crean condiciones que permitan a cada persona gozar de sus derechos económicos, sociales y culturales, tanto como de sus derechos civiles y políticos;
+Reafirmando la universalidad, indivisibilidad, interdependencia e interrelación de todos los derechos humanos y libertades fundamentales, así como la obligación de eliminar todas las formas de discriminación, en particular, la discriminación por motivos de edad;
+Resaltando que la persona mayor tiene los mismos derechos humanos y libertades fundamentales que otras personas, y que estos derechos, incluido el de no verse sometida a discriminación fundada en la edad ni a ningún tipo de violencia, dimanan de la dignidad y la igualdad que son inherentes a todo ser humano;
+Reconociendo que la persona, a medida que envejece, debe seguir disfrutando de una vida plena, independiente y autónoma, con salud, seguridad, integración y participación activa en las esferas económica, social, cultural y política de sus sociedades;
+Reconociendo también la necesidad de abordar los asuntos de la vejez y el envejecimiento desde una perspectiva de derechos humanos que reconoce las valiosas contribuciones actuales y potenciales de la persona mayor al bienestar común, a la identidad cultural, a la diversidad de sus comunidades, al desarrollo humano, social y económico y a la erradicación de la pobreza;
+Recordando lo establecido en los Principios de las Naciones Unidas en favor de las Personas de Edad (1991); la Proclamación sobre el Envejecimiento (1992); la Declaración Política y el Plan de Acción Internacional de Madrid sobre el Envejecimiento (2002), así como los instrumentos regionales tales como la Estrategia Regional de implementación para América Latina y el Caribe del Plan de Acción Internacional de Madrid sobre el Envejecimiento (2003); la Declaración de Brasilia (2007), el Plan de Acción de la Organización Panamericana de la Salud sobre la salud de las personas mayores, incluido el envejecimiento activo y saludable (2009), la Declaración de Compromiso de Puerto España (2009) y la Carta de San José sobre los derechos de las personas mayores de América Latina y el Caribe (2012);
+Decididos a incorporar y dar prioridad al tema del envejecimiento en las políticas públicas, así como a destinar y gestionar los recursos humanos, materiales y financieros para lograr una adecuada implementación y evaluación de las medidas especiales puestas en práctica;
+Reafirmando el valor de la solidaridad y complementariedad de la cooperación internacional y regional para promover los derechos humanos y las libertades fundamentales de la persona mayor;
+Respaldando activamente la incorporación de la perspectiva de género en todas las políticas y programas dirigidos a hacer efectivos los derechos de la persona mayor y destacando la necesidad de eliminar toda forma de discriminación;
+Convencidos de la importancia de facilitar la formulación y el cumplimiento de leyes y programas de prevención de abuso, abandono, negligencia, maltrato y violencia contra la persona mayor, y la necesidad de contar con mecanismos nacionales que protejan sus derechos humanos y libertades fundamentales; y Convencidos también de que la adopción de una convención amplia e integral contribuirá significativamente a promover, proteger y asegurar el pleno goce y ejercicio de los derechos de la persona mayor, y a fomentar un envejecimiento activo en todos los ámbitos,
+Han convenido suscribir la presente Convención Interamericana sobre la Protección de los Derechos Humanos de las Personas Mayores (en adelante, la "Convención"):
+CAPÍTULO I
+OBJETO, ÁMBITO DE APLICACIÓN Y DEFINICIONES
+Artículo 1
+Ámbito de aplicación y objeto
+El objeto de la Convención es promover, proteger y asegurar el reconocimiento y el pleno goce y ejercicio, en condiciones de igualdad, de todos los derechos humanos y libertades fundamentales de la persona mayor, a fin de contribuir a su plena inclusión, integración y participación en la sociedad. Lo dispuesto en la presente Convención no se interpretará como una limitación a derechos o beneficios más amplios o adicionales que reconozcan el derecho internacional o las legislaciones internas de los Estados Parte, a favor de la persona mayor.
+Si el ejercicio de los derechos y libertades mencionados en esta Convención no estuviere ya garantizado por disposiciones legislativas o de otro carácter, los Estados Parte se comprometen a adoptar, con arreglo a sus procedimientos constitucionales y a las disposiciones de esta Convención, las medidas legislativas o de otro carácter que fueren necesarias para hacer efectivos tales derechos y libertades.
+Los Estados Parte solo podrán establecer restricciones y limitaciones al goce y ejercicio de los derechos establecidos en la presente Convención mediante leyes promulgadas con el objeto de preservar el bienestar general dentro de una sociedad democrática, en la medida en que no contradigan el propósito y razón de los mismos.
+Las disposiciones de la presente Convención se aplicarán a todas las partes de los Estados federales sin limitaciones ni excepciones.

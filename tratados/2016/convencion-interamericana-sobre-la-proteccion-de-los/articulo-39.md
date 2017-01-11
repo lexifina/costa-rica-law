@@ -1,0 +1,3 @@
+Articulo 39
+Denuncia
+La Convención permanecerá en vigor indefinidamente, pero cualquiera de los Estados Parte podrá denunciarla mediante notificación escrita dirigida al Secretario General de la Organización de los Estados Americanos. Transcurrido un año contado a partir de la fecha de depósito del instrumento de denuncia, la Convención cesara en sus efectos para dicho Estado, permaneciendo en vigor para los demás Estados Parte. La denuncia no eximirá al Estado Parte de las obligaciones impuestas por la presente Convención con respecto a toda acción u omisión ocurrida antes de la fecha en que la denuncia haya entrado en vigor.

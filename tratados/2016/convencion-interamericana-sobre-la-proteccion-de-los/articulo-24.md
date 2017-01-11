@@ -1,0 +1,9 @@
+Articulo 24
+Derecho a la vivienda
+La persona mayor tiene derecho a una vivienda digna y adecuada, y a vivir en entornos seguros, saludables, accesibles y adaptables a sus preferencias y necesidades.
+Los Estados Parte deberán adoptar las medidas pertinentes para promover el pleno goce de este derecho y facilitar que la persona mayor tenga acceso a servicios socio-sanitarios integrados y servicios de cuidados domiciliarios que le permitan residir en su propio domicilio conforme a su voluntad.
+Los Estados Parte deberán garantizar el derecho de la persona mayor a una vivienda digna y adecuada y adoptarán políticas de promoción del derecho a la vivienda y el acceso a la tierra reconociendo las necesidades de la persona mayor y la prioridad en la asignación a aquella que se encuentre en situación de vulnerabilidad. Asimismo, los Estados Parte fomentarán progresivamente el acceso al crédito de vivienda u otras formas de financiamiento sin discriminación, promoviendo, entre otros, la colaboración con el sector privado, la sociedad civil y otros actores sociales. Las políticas deberán tener especialmente en cuenta:
+a) La necesidad de construir o adaptar progresivamente soluciones habitacionales con el fin de que estas sean arquitectónicamente adecuadas y accesibles a los adultos mayores con discapacidad y con impedimentos relacionados con su movilidad.
+b) Las necesidades específicas de la persona mayor, particularmente aquellas que viven solas, a través de subsidios para el alquiler, apoyo a las renovaciones de la vivienda y otras medidas pertinentes según la capacidad de los Estados Parte.
+Los Estados Parte promoverán el establecimiento de procedimientos expeditos de reclamación y justicia en caso de desalojos de personas mayores y adoptaran las medidas necesarias para protegerlas contra los desalojos forzosos ilegales.
+Los Estados Parte deberán promover programas para la prevención de accidentes en el entorno y el hogar de la persona mayor.

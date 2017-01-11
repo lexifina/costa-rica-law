@@ -1,0 +1,4 @@
+Artículo 6
+Derecho a la vida y a la dignidad en la vejez
+Los Estados Parte adoptarán todas las medidas necesarias para garantizar a la persona mayor el goce efectivo del derecho a la vida y el derecho a vivir con dignidad en la vejez hasta el fin de sus días, en igualdad de condiciones con otros sectores de la población.
+Los Estados Parte tomarán medidas para que las instituciones públicas y privadas ofrezcan a la persona mayor un acceso no discriminatorio a cuidados integrales, incluidos los cuidados paliativos, eviten el aislamiento y manejen apropiadamente los problemas relacionados con el miedo a la muerte de los enfermos terminales, el dolor, y eviten el sufrimiento innecesario y las intervenciones fútiles e inútiles, de conformidad con el derecho de la persona mayor a expresar el consentimiento informado.
