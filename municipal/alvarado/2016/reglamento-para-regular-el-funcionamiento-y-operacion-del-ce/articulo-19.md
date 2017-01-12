@@ -1,0 +1,1 @@
+Artículo 19 º — El pago deberá realizarse en las cajas municipales. El representante deberá presentar el comprobante de pago con el sello respectivo a la Administración del Centro en cualquier momento en que esta se lo requiera.
