@@ -14,3 +14,4 @@ Reglamento de Caja Chica de la Municipalidad de Tarrazú
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-21 | la propia norma |
+| 2 | 2017-01-12 | Reglamento municipal 37 (2017-01-12) |
