@@ -1,0 +1,1 @@
+Artículo 17.—Perfil del correo electrónico. Cada cuenta de correo electrónico debe tener asociado un perfil que tendrá como mínimo la siguiente información: nombre completo, lugar de trabajo y fotografía, esta será la misma del carnet.

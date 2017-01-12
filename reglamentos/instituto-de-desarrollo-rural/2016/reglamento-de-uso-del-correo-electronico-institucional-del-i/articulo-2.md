@@ -1,0 +1,1 @@
+Artículo 2º—Ámbito de Aplicación. Este reglamento es aplicable a todos aquellos funcionarios del INDER, que poseen y hacen uso de una cuenta de correo electrónico institucional. Los lineamientos acá descritos son de obligado cumplimiento por parte de todos los usuarios del servicio.

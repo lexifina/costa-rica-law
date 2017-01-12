@@ -1,0 +1,1 @@
+Artículo 14.—Seguridad. Cada cuenta de correo tendrá asociada una clave de acceso o contraseña para acceder al contenido de la misma. Dicha contraseña es de uso personal, confidencial e intransferible y será la misma que se utiliza para iniciar la sesión de usuario en la red.

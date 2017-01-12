@@ -1,0 +1,1 @@
+Artículo 16.—Respuesta automática. Si un funcionario se encuentra fuera de la oficina por más de dos días hábiles consecutivos, deberá configurar una respuesta automática a los mensajes que reciba durante su ausencia, indicando que no se encuentra laborando e incluyendo en el mensaje la fecha en que regresa y la información de la persona a la que puede acudir en su ausencia.

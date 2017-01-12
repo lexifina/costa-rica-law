@@ -1,0 +1,7 @@
+CAPITULO VI
+De las cuentas de Correo Electrónico
+Artículo 10.—Dominio y tipos de cuentas. Todos los funcionarios del INDER que requieran del servicio de correo electrónico, recibirán una cuenta bajo el dominio “@inder.go.cr”. Estas deben estar asociadas a un único usuario específico, siendo éstas intransferibles.
+a) Las cuentas de correo electrónico se clasificarán dependiendo de su tipo en: Cuentas de funcionario: dirección de correo electrónico asignada a un funcionario del INDER. Quedan excluidas las personas contratadas para servicios especiales y profesionales.
+b) Cuentas Institucionales: cuentas de correo electrónico oficial asignadas a una unidad administrativa. A solicitud de la Administración Superior, Jefaturas o Coordinador de Comisión institucional, se asignará una cuenta de correo general que deberá justificarse de acuerdo al volumen de comunicación con las diferentes oficinas o instituciones.
+c) Cuentas Organizativas: cuentas de correo electrónico asignadas a través del representante (Secretario General, Presidente) de organizaciones solidaristas, sindicales, cooperativas y grupos internos de la Institución.
+Las cuentas institucionales y organizativas serán asignadas a un responsable y pueden ser usadas por uno o varios funcionarios, designado(s) por este, siendo el contenido de los mensajes enviados, estricta responsabilidad de la persona designada como responsable de la cuenta.

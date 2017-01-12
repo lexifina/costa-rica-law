@@ -1,0 +1,2 @@
+Artículo 13.—Archivos Adjuntos. El tamaño máximo de los correos electrónicos que se envíen, considerando tanto el cuerpo del mensaje como los adjuntos que se añadan, será de 10 MB. La Unidad de Tecnología de Información, previa solicitud y análisis de acuerdo al rol y función del funcionario dentro de la institución, podrá incrementar el tamaño de los archivos adjuntos.
+El sistema filtrará archivos con extensiones que se consideran peligrosas, por ejemplo: .bat, .exe, .cmd, etc., esto con el fin de garantizar la seguridad de la red.

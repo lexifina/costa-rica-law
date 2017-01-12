@@ -1,0 +1,3 @@
+Artículo 11.—Capacidad de Almacenamiento. La capacidad máxima por cada buzón de correo electrónico del INDER es de 700 MB, tomando en cuenta todas las carpetas que contenga, la cual puede variar debido al cambio tecnológico.
+La Unidad de Tecnología de Información, previa solicitud y análisis, podrá crear cuentas con mayor capacidad en los buzones de correo, esto debido al volumen de mensajes que gestionan.
+Cuando el buzón de correo electrónico de un usuario ocupe el 90% de la capacidad asignada, automáticamente el sistema enviará una notificación al funcionario, alertando que es requerido tomar medidas para que no llegue a la capacidad máxima.

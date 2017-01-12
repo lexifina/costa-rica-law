@@ -1,0 +1,1 @@
+Artículo 15.—Autofirmas. En todo correo electrónico que sea enviado por un funcionario del INDER, es obligatorio que contenga una firma previamente configurada y automatizada, la cual contendrá el nombre completo del funcionario, la unidad administrativa a la que pertenece, dirección de correo institucional, teléfono y el logo institucional.
