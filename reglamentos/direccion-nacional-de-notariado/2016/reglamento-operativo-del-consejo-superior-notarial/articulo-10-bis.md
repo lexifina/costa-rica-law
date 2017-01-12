@@ -1,0 +1,3 @@
+Artículo 10 bis: El Consejo Superior Notarial podrá sesionar de manera virtual en casos de excepcionales y urgentes que no permitan esperar la sesión presencial, siempre que se cuente con los medios y métodos tecnológicos adecuados que aseguren la trasmisión simultánea de audio, video y datos.
+En estos casos, quien ejerce la presidencia debe hacer constar que existe una plena compatibilidad entre los sistemas empleados por el emisor y el receptor, que garantice la autenticidad e integridad de la voluntad y la conservación de lo actuado.
+(Así adicionado en sesión N° 001—2017 del 12 de enero de 2017)

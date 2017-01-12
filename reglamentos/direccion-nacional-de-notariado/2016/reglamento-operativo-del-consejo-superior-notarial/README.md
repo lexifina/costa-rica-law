@@ -14,3 +14,4 @@ Reglamento Operativo del Consejo Superior Notarial
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-09-20 | la propia norma |
+| 2 | 2017-01-12 | Reglamento 1 (2017-01-12) |
