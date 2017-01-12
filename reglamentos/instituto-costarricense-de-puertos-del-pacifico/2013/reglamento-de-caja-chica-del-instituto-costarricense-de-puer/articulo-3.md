@@ -1,1 +1,0 @@
-ARTICULO 3: De la información de las liquidaciones: La información consignada en la liquidación de gastos de viaje y de transporte tiene el carácter de declaración jurada; o sea, de que ésta es una relación cierta de los gastos incurridos en la atención de asuntos oficiales y toda la información contenida en ella.

@@ -1,2 +1,0 @@
-ARTÍCULO 18: De la responsabilidad sobre los vales vencidos: El encargado del manejo de los fondos no autorizará la entrega de dinero por vale de caja chica a aquellas dependencias que se encuentran con vales vencidos sin liquidar.
-Esta restricción no aplica para la Administración Superior, siempre y cuando la compra que se está autorizando sea de una urgencia tal que no pueda esperar para ser adquirida, lo cual deberá ser debidamente justificado.

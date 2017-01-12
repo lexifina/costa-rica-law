@@ -1,1 +1,0 @@
-ARTÍCULO 44: Facultad de no aprobación: La jefatura inmediata del funcionario tendrá la facultad de no aprobar el cobro del servicio de taxi por considerarlo exagerado o poco razonable, de conformidad con las tarifas vigentes para este tipo de servicio de transporte público o porque las distancias reportadas en su liquidación no corresponden a las distancias reales.

@@ -1,1 +1,0 @@
-ARTICULO 56: De la verificación del aprobado para la entrega del dinero: El encargado de la caja deberá revisar antes de entregar el dinero, que quien este aprobando el vale o viatico, sea el superior inmediato de quien lo esté solicitando. Queda facultado el cajero para rechazar el documento si no se cumple con esta directriz.

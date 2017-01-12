@@ -1,1 +1,0 @@
-ARTICULO 63: Del cumplimiento: La Jefatura de Tesorería será la responsable de velar por el fiel cumplimiento de este Reglamento y tomar las acciones necesarias para ejercer el debido control e informar al Director(a) Administrativo(a) Financiero(a) sobre cualquier situación irregular que atente contra el control y cumplimiento por parte de las diferentes funcionarios.

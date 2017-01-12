@@ -1,1 +1,0 @@
-ARTICULO 14: De la custodia de los fondos de caja chica: Los fondos de caja chica asignados por la Junta Directiva estarán bajo la custodia del cajero o del funcionario que lo sustituya en sus ausencias.
