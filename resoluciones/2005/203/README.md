@@ -83,3 +83,4 @@ Manual de Procedimientos Aduaneros en el marco TICA (Contiene Ingreso y salida d
 | 68 | 2015-12-11 | Resolución 495 (2015-12-11) |
 | 69 | 2016-02-03 | Resolución 29 (2016-02-03) |
 | 70 | 2017-01-03 | Resolución 1 (2017-01-03) |
+| 71 | 2017-01-12 | Resolución 2 (2017-01-12) |
