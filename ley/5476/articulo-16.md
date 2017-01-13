@@ -1,6 +1,6 @@
 Artículo 16.- Es prohibido el matrimonio:
-1) Del menor de 18 años sin el asentimiento previo y expreso de quien ejerza sobre él la patria potestad o tutela, salvo lo estipulado en el inciso 1) del artículo 21 de este Código;
+1) (Derogado por el artículo 4° de la ley N° 9406 del 30 de noviembre de 2016, “Fortalecimiento de la protección legal de las niñas y las adolescentes mujeres ante situaciones de violencia de género asociadas a relaciones abusivas.”)
 2) (Anulado este inciso mediante resolución de la Sala Constitucional N° 2129 del 14 de febrero de 2008).
-3) De los tutores o cualquiera de sus descendientes con los pupilos mientras no estén aprobadas y canceladas las cuentas finales de la tutela, salvo si el padre o madre difuntos del pupilo lo hubieran permitido expresamente en testamento u otro instrumento público; y
+3) (Derogado por el artículo 4° de la ley N° 9406 del 30 de noviembre de 2016, “Fortalecimiento de la protección legal de las niñas y las adolescentes mujeres ante situaciones de violencia de género asociadas a relaciones abusivas.”) y
 4) Sin la previa publicación o dispensa de los edictos legales.
 (Así reformado por el artículo 1º de la ley Nº 5895 de 23 de marzo de 1976).

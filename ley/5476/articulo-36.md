@@ -1,2 +1,1 @@
-Artículo 36.- El matrimonio válido del menor produce los efectos de la mayoría de edad.
-Si se disuelve el vínculo matrimonial, el ex-cónyuge mantendrá su condición de mayor edad.
+Artículo 36.- (Derogado por el artículo 4° de la ley N° 9406 del 30 de noviembre de 2016, “Fortalecimiento de la protección legal de las niñas y las adolescentes mujeres ante situaciones de violencia de género asociadas a relaciones abusivas.”)
