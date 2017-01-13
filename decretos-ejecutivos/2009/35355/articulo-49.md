@@ -1,1 +1,2 @@
-Artículo 49.—Del Reconocimiento de Cursos. Se podrán reconocer, conforme con este Reglamento, cursos cuya temática y contenidos fueren equivalentes a los de la oferta educativa Académica y Técnica, excepto en el caso de aquellos alumnos que hubieran sido reprobados en los colegios diurnos.
+Artículo 49. —Del reconocimiento de subáreas, cursos, asignaturas, periodos o módulos. Se podrán reconocer, de conformidad con este reglamento, subáreas, cursos, asignaturas, periodos o módulos cuya temática y contenidos fueren equivalentes a los de la oferta educativa académica y técnica, excepto en el caso de aquellos estudiantes que ya lo hayan cursado y reprobado.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40213 del 13 de enero de 2017)

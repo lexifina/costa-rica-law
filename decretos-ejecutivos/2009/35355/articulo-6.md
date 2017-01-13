@@ -1,3 +1,4 @@
-Artículo 6º—De la escala de calificación. La valoración de los aprendizajes, incluyendo la conducta, se realizará según una escala cuantitativa de uno a cien.
+Artículo 6°-De la escala de calificación. La valoración de los aprendizajes, incluyendo la conducta, se realizará según una escala cuantitativa de uno a cien, excepto en la Educación Preescolar y el primer año de la Educación General Básica. Así como, en el primer periodo del Primer Nivel del Plan de Estudios de Educación de Adultos y el primer semestre del Primer Nivel del Programa de Nivelación Aula Edad.
 Para efectos del informe de calificaciones al hogar, así como del registro de clase se consignará la calificación obtenida por el estudiante en el período respectivo.
 Los promedios de cada período se consignan sin decimales. Se establece como criterio de redondeo el siguiente: decimales mayores a 0,50 se redondea al entero superior, decimales menores o iguales a 0,50 se redondea al entero inmediatamente inferior.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40213 del 13 de enero de 2017.)
