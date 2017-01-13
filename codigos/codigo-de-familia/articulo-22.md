@@ -1,1 +1,1 @@
-Artículo 22.- Tratándose de menores sujetos a tutela, el tutor dará el consentimiento. Cuando los motivos en que el tutor funde su negativa no fueren razonables, el consentimiento podrá ser suplido por el Tribunal en la forma prevista en el artículo anterior.
+Artículo 22.- (Derogado por el artículo 4° de la ley N° 9406 del 30 de noviembre de 2016, “Fortalecimiento de la protección legal de las niñas y las adolescentes mujeres ante situaciones de violencia de género asociadas a relaciones abusivas.”)
