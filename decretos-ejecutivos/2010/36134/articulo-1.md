@@ -55,9 +55,9 @@ Los alimentos para regímenes especiales no se consideran parte de este reglamen
 6°-Aspectos generales sobre el registro sanitario de Suplementos a la dieta.
 Para comercializar, importar y distribuir los suplementos a la dieta, se debe contar previamente con el registro sanitario vigente, de acuerdo con los requisitos establecidos en este reglamento.
 El registro no excluirá la responsabilidad plena de las personas físicas o jurídicas que hayan fabricado, elaborado o importado el suplemento alimenticio, en cuanto a su garantía sanitaria, calidad nutritiva e inocuidad. El Ministerio otorgará el registro de un suplemento a la dieta, una vez que haya realizado el análisis de la información legal, técnica y científica.
-El Ministerio podrá reconocer los registros de los suplementos a la dieta, registrados en los países que el Ministerio considere cuentan con normativa similar o superior a la nuestra. La lista de países, así como el procedimiento y requisitos para este reconocimiento serán publicados vía reglamento.
-Se exceptúan del registro las muestras sin valor comercial de suplementos a la dieta.
-(Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)
+El Ministerio podrá reconocer los registros de los suplementos a la dieta, registrados en los países que el Ministerio considere cuentan con normativa similar o superior a la nuestra. Se faculta al Ministerio de Salud para que, vía resolución ministerial, debidamente razonada, establezca la lista de países que cuentan con esa normativa similar o superior a la nuestra. Dicha resolución ministerial deberá ser publicada en la página web del Ministerio de Salud: www.ministeriodesal.ud.go.cr. El procedimiento y requisitos para este reconocimiento serán publicados vía reglamento.
+Se exceptúan del registro las muestras sin valor comercial de suplementos a la dieta."
+(Así reformado el inciso 6) anterior por el artículo 3° del decreto ejecutivo N° 40233 del 13 de enero del 2017)
 7o—Requisitos para el registro sanitario de Suplementos a la dieta.
 Para el registro sanitario de suplementos a la dieta, el interesado deberá ingresar al sistema regístrelo del Ministerio, la siguiente información:
 (Así reformado el acápite anterior por el artículo 1° del decreto ejecutivo N° 40003 del 5 de octubre del 2016)

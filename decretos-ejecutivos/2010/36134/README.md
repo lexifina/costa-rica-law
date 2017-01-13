@@ -17,3 +17,4 @@ Reglamento Rtcr 436:2009 Suplementos a la Dieta. Requisitos de Registro Sanitari
 | 2 | 2011-03-25 | Decreto Ejecutivo 36538 (2011-03-15) |
 | 3 | 2014-06-10 | Decreto Ejecutivo 38498 (2014-06-10) |
 | 4 | 2016-10-05 | Decreto Ejecutivo 40003 (2016-10-05) |
+| 5 | 2017-01-13 | Decreto Ejecutivo 40233 (2017-01-13) |
