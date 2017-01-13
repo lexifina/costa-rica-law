@@ -1,1 +1,0 @@
-Artículo 2°—El presente Reglamento establece las disposiciones generales, a que deberán someterse aquellos Regidores y Síndicos propietarios y suplentes, residentes en zonas alejadas de la Sede Municipal por concepto de transporte, hospedaje y alimentación, con el propósito de asistir a las sesiones del Consejo.
