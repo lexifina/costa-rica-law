@@ -14,3 +14,4 @@ Reforma Reglamento RTCR 436:2009 Suplementos a la Dieta. Requisitos de Registro 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-15 | la propia norma |
+| 2 | 2017-01-13 | Decreto Ejecutivo 40233 (2017-01-13) |

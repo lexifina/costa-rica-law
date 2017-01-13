@@ -1,0 +1,2 @@
+TRANSITORIO: Se otorga un plazo de seis meses a partir de la publicación del presente decreto, para que las personas físicas o jurídicas que comercializan suplementos a la dieta que contengan cafeína, incorporaren en el etiquetado de sus productos la leyenda que se solicita en el inciso 9.1.4) f) de este decreto.
+(Así adicionado por el artículo 2° del decreto ejecutivo N° 40233 del 13 de enero del 2017)
