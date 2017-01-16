@@ -1,1 +1,2 @@
-Artículo 56.—Con el visto bueno de su jefe el trabajador podrá solicitar adelanto de sus vacaciones, que no podrá superar el número de días que proporcionalmente corresponda a los meses laborados.
+Artículo 56.—Con el visto bueno de la Alcaldía Municipal, previa anuencia del jefe, el trabajador podrá obtener el adelanto de sus vacaciones, que no podrá superar el número de días que proporcionalmente corresponda a los meses laborados. Esta disposición aplicará únicamente a los funcionarios hasta su primer año de nombramiento.
+(Así reformado mediante sesión ordinaria N° 59-2016 del 16 de enero del 2017)

@@ -1,1 +1,1 @@
-Artículo 44.—Los servidores podan ausentarse de su lugar de trabajo en situaciones especiales, si cuentan previamente con la autorización de su jefe inmediato. En los casos en que deba mediar el registro de la entrada y salida y ésta se omita, deberá tramitarse la correspondiente boleta de justificación.
+Artículo 44.— (Derogado mediante sesión ordinaria N° 59-2016 del 16 de enero del 2017)

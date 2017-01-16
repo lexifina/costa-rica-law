@@ -1,1 +1,1 @@
-Artículo 64.—En caso de que un trabajador sufra un accidente del trabajo y no pueda desempeñar el puesto que ocupaba antes de ocurrirle el accidente o se le haya diagnosticado la enfermedad, por prescripción médica, la municipalidad lo reubicará a un nuevo puesto acorde con su capacidad física, motora y laboral, garantizándole todos sus derechos.
+Artículo 64.— (Derogado mediante sesión ordinaria N° 59-2016 del 16 de enero del 2017)
