@@ -1,0 +1,1 @@
+Artículo 18°- Mantenimiento de la planta. Como parte de la EIA, se deberá indicar explícitamente y de forma detallada, el mantenimiento que se le dará a la planta de desalinización y todos sus componentes, tales como, membranas, sistemas de bombeo, cámaras de presión, tuberías de bombeo, toma de agua, tubería de desagüe o efluente, y difusores.

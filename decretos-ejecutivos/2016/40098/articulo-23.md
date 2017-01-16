@@ -1,0 +1,1 @@
+Artículo 23°- De las tomas para desalinización. Con excepción de lo dispuesto en el artículo 22 del presente Reglamento, el agua para todo sistema de desalinización, deberá ser captada por medio de tomas ubicadas directamente en el mar.

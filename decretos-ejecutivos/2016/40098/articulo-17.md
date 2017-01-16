@@ -1,0 +1,1 @@
+Artículo 17°-Daños. Cuando ocurra un evento que origine daños parciales o totales en equipo, tuberías y edificaciones por eventos naturales o por causa humana, deberán adoptarse inmediatamente las medidas necesarias para corregir el daño presentado, a fin de continuar con la operación de la planta.

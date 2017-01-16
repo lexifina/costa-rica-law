@@ -1,0 +1,1 @@
+Artículo 7°- Trámites simultáneos. Todos los trámites podrán iniciarse ante las instituciones respectivas, de manera simultánea, sin embargo, el punto e) del artículo 6 es requisito de ingreso para el trámite ante SETENA y la Dirección de Agua.

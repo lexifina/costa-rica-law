@@ -1,0 +1,4 @@
+Artículo 3° Definiciones. Para efectos de aplicación del presente Reglamento, los siguientes términos tienen el significado que aquí se les atribuye:
+a) Agua de rechazo: es el agua con elevada concentración de sales que resulta como subproducto de los procesos de desalinización, que contiene los componentes que no atraviesan las membranas y es conocida como salmuera.
+b) Agua residual: agua que ha recibido un uso y cuya calidad ha sido modificada por la incorporación de agentes contaminantes.
+c) Sistemas de Desalinización: Conjunto de equipo, accesorios, instalaciones y estructuras que se requieren para el proceso de quitar la sal del agua del mar o de las aguas salobres, que incluye procesos de pretratamiento, tratamiento y pos-tratamiento con el fin de hacerlas potables y útiles para consumo humano y otros usos.

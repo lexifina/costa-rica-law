@@ -1,0 +1,1 @@
+Artículo 5°- Sobre los usos: El agua procedente de los sistemas de desalinización, podrá ser empleada en todos los usos y en el orden de prioridad que se establece en la Ley de Aguas N° 276 y el Decreto Ejecutivo N° 32868-MINAE.

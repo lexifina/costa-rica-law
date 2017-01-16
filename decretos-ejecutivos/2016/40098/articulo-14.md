@@ -1,0 +1,3 @@
+CAPÍTULO V
+Del uso de la zona marítimo terrestre y mar patrimonial
+Artículo 14°- De la zona marítimo terrestre y mar patrimonial. En la zona pública de la zona marítimo terrestre, las tuberías de conducción de agua de mar y las de descarga de agua de rechazo, deberán ser instaladas en forma subterránea, conforme a lo establecido en la Ley sobre la Zona Marítimo Terrestre N° 6043. Para proyectos que se pretendan realizar en áreas del Polo Turístico Golfo de Papagayo, deberá ajustarse a las disposiciones de las directrices y normas técnicas del Plan Maestro y la Ley Reguladora del Desarrollo y Ejecución del Proyecto Turístico de Papagayo N° 6758.
