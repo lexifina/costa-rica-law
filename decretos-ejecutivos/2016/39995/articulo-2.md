@@ -1,0 +1,1 @@
+ARTÍCULO 2. A los plaguicidas formulados cuyo IAGT no se encuentre registrado, y cuyo expediente ha sido actualizado conforme al artículo anterior, el Servicio Fitosanitario del Estado le otorgará, en un plazo no mayor de tres meses, contados a partir de la fecha en que se le aprobó la actualización, el correspondiente registro de IAGT.

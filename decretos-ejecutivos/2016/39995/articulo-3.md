@@ -1,0 +1,1 @@
+ARTÍCULO 3: El Servicio Fitosanitario del Estado resolverá en un plazo de tres meses las solicitudes previstas en el artículo 1. 1 y un plazo de seis meses las solicitudes que se presenten para la situación jurídica establecida en el artículo 1.2.

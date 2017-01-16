@@ -1,0 +1,1 @@
+ARTÍCULO 8. La información, documentos y requisitos que ya hayan sido presentados por el registrante ante la Autoridad Competente conforme a lo que dispone el artículo 2 de la Ley de Protección al Ciudadano del Exceso de Requisitos y Trámites Administrativos y sus reformas. Ley N° 8220 del 4 de marzo de 2002, no deberán ser presentados nuevamente.

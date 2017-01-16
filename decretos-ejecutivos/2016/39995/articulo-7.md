@@ -1,0 +1,1 @@
+ARTICULO 7. Durante el plazo de vigencia de un registro, cuando los Ministerios competentes demuestren un riesgo inaceptable para la salud humana, el ambiente o la agricultura, el Servicio Fitosanitario del Estado restringirá o prohibirá su uso.
