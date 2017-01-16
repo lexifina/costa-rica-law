@@ -1,3 +1,3 @@
-CAPÍTULO XI
-Separación del servicio y reingreso
-Artículo 38.—Al ocurrir la separación del servicio del Instituto de un bombero por causas diferentes a las contingencias cubiertas bajo el presente Reglamento, el Fondo traspasará a la Caja Costarricense de Seguro Social, el monto de las cuotas obrero patronales y del Estado que como tal correspondan al bombero que deja el servicio y que no fueron pagadas a la Caja durante todo el tiempo que fue miembro del Fondo, a fin de que esta Institución le acredite esas cuotas en el Régimen de Invalidez, Vejez y Muerte. Si hubiere algún sobrante en la cuenta individual del bombero después de hacer esta aplicación, le será entregado a éste.
+CAPITULO XI
+SEPARACIÓN DEL SERVICIO Y REINGRESO
+Artículo 38: Al ocurrir la separación del servicio del Instituto de un bombero por causas diferentes a las contingencias cubiertas bajo el presente Reglamento, el Fondo traspasará a la Caja Costarricense de Seguro Social, el monto de las cuotas obrero patronales y del Estado que como tal correspondan al bombero que deja el servicio y que no fueron pagadas a la Caja durante todo el tiempo que fue miembro del Fondo, a fin de que esta Institución le acredite esas cuotas en el Régimen de Invalidez, Vejez y Muerte. Si hubiere algún sobrante en la cuenta individual del bombero después de hacer esta aplicación, le será entregado a éste.

@@ -14,3 +14,4 @@ Reglamento del Fondo de Pensiones y Jubilaciones para los Miembros del Beneméri
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-09-25 | la propia norma |
+| 2 | 2017-01-16 | Reglamento 9375 (2017-01-16) |

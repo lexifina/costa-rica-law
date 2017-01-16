@@ -1,1 +1,1 @@
-Artículo 16.—No tendrá derecho a pensión la excónyuge sobreviviente, divorciada o separada judicialmente o la excompañera de hecho que a la fecha del fallecimiento del bombero no disfrute de una pensión alimentaria otorgada por sentencia judicial firme.
+Artículo 16: No tendrá derecho a pensión la excónyuge sobreviviente, divorciada o separada judicialmente o la excompañera de hecho que a la fecha del fallecimiento del bombero no disfrute de una pensión alimentaria otorgada por sentencia judicial firme.

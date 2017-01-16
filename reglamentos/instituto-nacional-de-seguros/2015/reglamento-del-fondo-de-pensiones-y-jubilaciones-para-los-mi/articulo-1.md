@@ -6,6 +6,7 @@ REGLAMENTO DEL FONDO DE PENSIONES
 Y JUBILACIONES PARA LOS MIEMBROS DEL
 BENEMERITO CUERPO DE BOMBEROS
 DE COSTA RICA
-CAPÍTULO I
-Objetivos y elegibilidad
-Artículo 1º—El Instituto Nacional de Seguros, en adelante llamado el Instituto, de conformidad con la Ley Nº 6170 del 29 de noviembre de 1977 y su interpretación mediante la Ley Nº 6284 del 3 de noviembre de 1978, establece el Fondo de Jubilaciones y Pensiones para los Miembros Permanentes del Benemérito Cuerpo de Bomberos de Costa Rica, en lo sucesivo denominado “El Fondo”, sujeto a las disposiciones del presente Reglamento.
+(Nota de Sinalevi: La presente norma fue reformada parcialmente y publicado su texto de forma íntegra mediante sesión ordinaria N° 9375 del 16 de enero del 2017 publicada en el Alcance Digital N° 32 a La Gaceta N° 30 del 10 de febrero del 2017, por lo que se transcribe a continuación:
+CAPITULO I
+OBJETIVOS Y ELEGIBILIDAD
+Artículo 1: El Instituto Nacional de Seguros, en adelante llamado el Instituto, de conformidad con la Ley No. 6170 del 29 de noviembre de 1977 y su interpretación mediante la Ley No. 6284 del 3 de noviembre de 1978, establece el Fondo de Jubilaciones y Pensiones para los Miembros Permanentes del Benemérito Cuerpo de Bomberos de Costa Rica, en lo sucesivo denominado "El Fondo", sujeto a las disposiciones del presente Reglamento.
