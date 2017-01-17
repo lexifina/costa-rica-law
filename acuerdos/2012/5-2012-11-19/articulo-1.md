@@ -20,7 +20,8 @@ B- Específicas:
 1. La persona colegiada deberá llenar íntegramente el formulario (F-INC-03) de solicitud de actualización de diplomas de estudios universitarios, en cualquier plataforma de servicios de la Corporación o, imprimiéndolo de la página www. colypro.com
 2. Para el proceso de actualización deberá presentar conjuntamente con el formulario (F-INC-03) los siguientes requisitos:
 I. Original del diploma y título por actualizar y copia del mismo, para su confrontación.
-II. Certificación de notas correspondiente al título o títulos por actualizar (cuya vigencia no sea superior a tres meses de haber sido emitida).
+II. Certificación de notas correspondiente al título o títulos por actualizar.
+(Así reformado el punto anterior y publicado en La Gaceta N° 12 del 17 de enero de 2017)
 III. Original o copia certificada del acta de convalidación de materias convalidadas, en los casos que existan materias convalidadas.
 IV. Certificación de notas original de la(s) materia(s) convalida(s), extendida por la Universidad donde se cursó o cursaron, para los casos en que existan materias convalidadas.
 3. Para el proceso de convalidación, cada persona colegiada debe verificar y procurar que en el expediente que se encuentra en los archivos del Colegio, estén registrados los siguientes documentos:
@@ -33,6 +34,8 @@ c) Calificación obtenida en cada asignatura de la malla curricular o pensum, ap
 d) Período de aprobación.
 e) Condición.
 f) Indicación de las asignaturas convalidadas, aprobadas por tutoría y/o por suficiencia.
+g) Contar con los timbres respectivos, las firmas y sellos competentes del ente emisor.
+(Así adicionado el inciso anterior y publicado en La Gaceta N° 12 del 17 de enero de 2017)
 4. En todos los casos, la persona colegiada será responsable de constatar la información que consta en su expediente físico con el fin de mantener actualizado su expediente. Este trámite lo puede hacer en nuestras plataformas de servicio, personalmente, por vía telefónica o por los correos electrónicos disponibles en nuestra página web.
 5. Las solicitudes de actualización que no cumplan con los requisitos requeridos y que se detallan en el punto 2 de Políticas Específicas no serán recibidas. En ningún caso, las plataformistas de la Corporación estarán autorizadas a recibir solicitudes de actualización de diplomas y títulos, con documentación incompleta.
 6. Las solicitudes de actualización de títulos se presentarán personalmente ante cualquiera de las plataformas de servicios centrales o regionales.

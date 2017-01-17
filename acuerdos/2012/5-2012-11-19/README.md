@@ -14,3 +14,4 @@ Manual de políticas y procedimientos: Actualización de diplomas y títulos uni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-10-08 | la propia norma |
+| 2 | 2017-01-17 | Reglamento 0 (2017-01-17) |
