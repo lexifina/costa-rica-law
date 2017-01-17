@@ -1,0 +1,6 @@
+OPERADORA DE PLANES DE PENSIONES
+COMPLEMENTARIAS DEL BANCO POPULAR
+Y DE DESARROLLO COMUNAL S. A.
+Se da a conocer que la Junta Directiva de la Operadora de Pensiones Complementarias del Banco Popular y de Desarrollo Comunal, Sociedad Anónima en Sesión Ordinaria Nº 501, celebrada el jueves 01 de diciembre del 2016, acordó aprobar por unanimidad de los presentes, aprobar la matriz con la modificación al Reglamento para la Operación y Control de Fondos de Caja Chica de la Operadora de Planes de Pensiones del Banco Popular y de Desarrollo Comunal el cual se leerá de la siguiente manera.
+Artículo 13.—La Jefatura del Departamento de Administración y Finanzas será responsable de realizar, como mínimo, un arqueo al mes, quedando constancia del acto por escrito.
+Cuando existan diferencias, la persona custodia de los fondos de caja chica deberá, de inmediato, reintegrar los faltantes y/o sobrantes detectados en la cuenta corriente que la Jefatura de Administración y Finanzas designe para tal efecto. La reincidencia de faltantes deberá investigarse detalladamente y se castigarán las irregularidades de acuerdo con lo dispuesto en la normativa vigente, todo sin perjuicio de la responsabilidad penal que pueda ser aplicable.
