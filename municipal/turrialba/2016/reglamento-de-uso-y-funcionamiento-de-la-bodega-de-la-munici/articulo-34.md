@@ -1,0 +1,1 @@
+Artículo 34° Registrado el ingreso, en el sistema de existencias, deberá agregarse al formulario de recepción de mercadería la copia de factura o boleta de los bienes, materiales o elementos recibidos.

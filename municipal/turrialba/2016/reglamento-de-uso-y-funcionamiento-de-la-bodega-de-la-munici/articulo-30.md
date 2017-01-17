@@ -1,0 +1,1 @@
+Artículo 30° Toda vez que se reciban materiales, insumos o elementos en la bodega municipal, se deberá emitir un “comprobante” (FORMULARIO DE RECEPCION DE MERCADERIAS) que acredite el ingreso o entrada a bodega de acuerdo a las especies recibidas en el lugar contra lo indicado por los documentos que acompañen las especies. Esto emanado del sistema computacional.

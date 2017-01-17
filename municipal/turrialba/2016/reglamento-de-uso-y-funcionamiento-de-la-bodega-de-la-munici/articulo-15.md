@@ -1,0 +1,1 @@
+Artículo 15° Todo material que fuese retirado de bodega, para una determinada función, obra o proyecto y no se utilizó deberá ser devuelto a bodega, por quienes lo retiraron, a su misma condición la cual el bodeguero deberá realizar la fiscalización.

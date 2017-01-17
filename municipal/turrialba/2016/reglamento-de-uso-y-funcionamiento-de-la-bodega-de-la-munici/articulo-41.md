@@ -1,0 +1,1 @@
+Artículo 41° El Departamento de Servicios Municipales realizará periódicamente controles a toda la bodega y sus saldos, con el objeto de supervisar las existencias y prevenir las pérdidas, siendo estas últimas de responsabilidad del encargado de bodega ya que debe velar por la custodia y seguridad de las especies.

@@ -1,0 +1,1 @@
+Artículo 16° El bodeguero no podrá modificar los registros históricos del sistema de registro de existencias de bodega, después de haber efectuado los ingresos o egresos de materiales. De ser necesario alguna modificación debe contar con la autorización de su jefe inmediato.

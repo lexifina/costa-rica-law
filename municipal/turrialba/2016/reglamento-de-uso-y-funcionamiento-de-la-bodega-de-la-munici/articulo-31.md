@@ -1,0 +1,1 @@
+Artículo 31° En el caso de que los materiales, artículos y elementos no cumplan o no correspondan a lo detallado en la orden de compra, guías o factura procederá a la devolución del material, informando inmediatamente a la Proveeduría Municipal.

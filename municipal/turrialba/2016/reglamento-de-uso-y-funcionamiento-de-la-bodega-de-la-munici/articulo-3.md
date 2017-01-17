@@ -1,0 +1,1 @@
+Artículo 3º Al bodeguero, le corresponderá la operación de la bodega municipal, así como las funciones inherentes, tales como la recepción, registro, almacenamiento, custodia, despacho, de todos los artículos adquiridos o cedidos, para el funcionamiento del municipio y/o para la implementación de los programas o proyectos que se ejecuten.

@@ -1,0 +1,1 @@
+Artículo 39° Realizada la salida de materiales solicitados desde la bodega se procederá inmediatamente a su anotación en el sistema de registro de existencias de bodega, con el fin de actualizar los niveles de existencia.

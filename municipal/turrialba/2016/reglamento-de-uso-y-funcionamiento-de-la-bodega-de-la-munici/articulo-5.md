@@ -1,0 +1,1 @@
+Artículo 5º Los diferentes departamentos o unidades municipales que se sirvan de la bodega municipales, deberá acatar las indicaciones internas de la bodega, de orden administrativo y seguridad, así como lo dispuesto en el presente Reglamento.

@@ -1,0 +1,1 @@
+Artículo 13° Para aquellos materiales, artículos y elementos de mayor movimiento y que por su carencia o baja cantidad afecten el normal funcionamiento de las distintas unidades o departamentos municipales, deberán establecerse existencias mínimas para la reposición atendiendo a su demanda histórica, además de los tiempos de reposición a modo de evitar la falta de estos.

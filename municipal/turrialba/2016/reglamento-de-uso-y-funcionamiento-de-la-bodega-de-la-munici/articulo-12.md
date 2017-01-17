@@ -1,0 +1,1 @@
+Artículo 12° Para efectos de control de existencias en bodega, se deberá disponer de registros y estadísticas que permitan conocer en forma permanente el nivel de existencias y rotación de los materiales y/o elementos almacenados en ellas. El bodeguero deberá informar sobre el inventario al jefe de Proveeduría Municipal.

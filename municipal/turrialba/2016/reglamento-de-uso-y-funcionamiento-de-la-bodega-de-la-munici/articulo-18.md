@@ -1,0 +1,1 @@
+Artículo 18° Todos y cada uno de los bienes, materiales o elementos que ingresen a las bodegas, serán codificados para facilitar un rápido y eficiente control, el no cumplimiento de esta labor, quedará sujeto a la sanción administrativa que así lo amerite.

@@ -1,0 +1,1 @@
+Artículo 42° El Departamento de Servicios Municipales se reserva el derecho de aplicar una toma de inventario de bodega, en cualquier momento del año, para lo cual se procederá como se indica en los artículos 25, 26 y 27 del presente reglamento.

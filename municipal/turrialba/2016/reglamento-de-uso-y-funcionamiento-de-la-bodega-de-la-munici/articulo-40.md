@@ -1,0 +1,1 @@
+Artículo 40° El Jefe de los Servicios Municipales, será el responsable de controlar la debida aplicación del presente reglamento, para cuyo efecto, tendrá acceso a toda la información que sea necesaria.

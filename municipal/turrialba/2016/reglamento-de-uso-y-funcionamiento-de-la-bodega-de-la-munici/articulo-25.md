@@ -1,0 +1,1 @@
+Artículo 25° Se realizará una toma de inventario o arqueo de existencias por el jefe de los Servicios Municipales, quien podrá designar a un funcionario que lo represente, este junto al bodeguero, coordinará las acciones pertinentes para tal efecto.

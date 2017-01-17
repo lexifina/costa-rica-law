@@ -1,0 +1,1 @@
+Artículo 14° El bodeguero deberá informar los saldos y estadísticas de lo utilizado en el año de la bodega a su cargo al 30 de noviembre de cada año al Jefe de Proveeduría Municipal, con el propósito de realizar un plan de compra anual.
