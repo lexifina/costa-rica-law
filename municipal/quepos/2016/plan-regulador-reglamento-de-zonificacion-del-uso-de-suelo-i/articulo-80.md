@@ -1,0 +1,2 @@
+Artículo 80. Usos Condicionales: Clínicas de salud en general, clínicas para animales de especies mayores, mercados, patios o edificios para estacionamiento público de automóviles, hospitales. Además, los usos existentes o solicitados al momento de vigencia de este Reglamento, catalogados como de industria inofensiva, según reglamento del Ministerio de Salud y con el criterio municipal y del Departamento de Urbanismo del INVU.
+Los usos condicionales deben confinar las molestias que puedan causar dentro del lote en que se ubicara la actividad.

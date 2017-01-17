@@ -1,0 +1,1 @@
+Artículo 48. En la Zona de Protección Forestal, que colinde con el Parque Nacional Manuel Antonio debe funcionar como complemento del mismo. Todo proyecto en la Zona de Protección Forestal, debe presentar el visto bueno de MINAE, con respecto a la demarcación de las áreas de bosques.

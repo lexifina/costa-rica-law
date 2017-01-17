@@ -1,0 +1,13 @@
+Artículo 33. Retiros. Retiro es la distancia que existe o que se crea al separar una estructura de otra o una estructura de los linderos de la propiedad en que se ubica. Los edificios que se construyan en el futuro deberán guardar retiros. Los edificios mayores de 5 pisos deberán guardar un retiro mínimo con respecto a otros de por lo menos 1/3 de su altura. Esta distancia deberá guardarse por todos los lados del edificio.
+33.1 La altura de edificios se permitirá en razón de la aplicación del artículo 38 de este Reglamento. El retiro en edificios que presenten ventanas hacia la colindancia (vecino) será el que se indique en el Reglamento de Construcciones. Los retiros podrán ser menores, siempre y cuando el diseño del edificio cumpla las normas de iluminación, ventilación y seguridad.
+33.2 Los edificios mayores o iguales a 5 pisos de altura o su equivalente en metros deberán cumplir con lo indicado en el artículo 8 para su aprobación. Y deberán contemplar los siguientes lineamientos:
+a) Retiro frontal: Está fijado en el Reglamento de Espacios Públicos, Vialidad y Transporte del P.R.U, de acuerdo con las características de cada vía.
+b) Retiro posterior. En lotes esquineros podrá tomarse sobre el lado menor o en la esquina interior con un área equivalente. Se podrá eliminar el retiro posterior en lotes que enfrenten a tres calles, siempre y cuando el diseño propuesto satisfaga las necesidades de aireación e iluminación.
+c) Retiro lateral. La distancia que debe haber será la indicada en el Artículo 34 y el Reglamento de Construcciones.
+d) Viabilidad Ambiental aprobada por le SETENA en caso de ser requerido por la normativa correspondiente.
+e) En los casos de Urbanizaciones y Condominios se deberá seguir lo establecido en el Reglamento para el Control Nacional de Fraccionamientos y Urbanizaciones, Reglamento de Construcciones y Ley Reguladora de la Propiedad en Condominio y cualquier norma aplicable.
+f) En el caso de la Zona de Marina (ZMR), se podrán autorizar para los edificios mayores de 5 pisos un retiro mínimo con respecto a otros de hasta 5 metros.
+33. 3 Además deberán presentar para su aprobación final lo siguiente:
+a) Estudio de impacto vial: estudio de accesos, congestión vehicular, soporte de las vías adyacentes a la propiedad, flujos promedio diario y mensual.
+b) Infraestructura: estudio de la demanda oferta de la infraestructura existente y la propuesta y la conexión con lo existente.
+c) Capacidad de agua: estudio de tanques, con capacidad para almacenar hasta un 40 % del consumo diario de edificio. Los tanques deberán estar funcionando al momento de concluir la obra. Debe indicarse su ubicación y sistema de bombeo.

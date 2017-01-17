@@ -1,0 +1,1 @@
+Artículo 85. Usos Condicionales: Talleres de forja, hojalatería y plomería, Talleres mecánicos y de reparación de baterías, Taller de enderezado y Pintura, Talleres de carpintería, Bodegas (más de 150 m2 de planta), talleres de línea blanca, llanteras, lubricentros, Estaciones de servicio y gasolineras, Venta y exhibición de maquinaría e implementos agrícolas.

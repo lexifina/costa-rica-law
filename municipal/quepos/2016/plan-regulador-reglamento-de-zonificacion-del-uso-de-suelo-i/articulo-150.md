@@ -1,0 +1,1 @@
+Artículo 150. El Plan Regulador del área urbana de Quepos, respeta en todos los términos las zonas de manglar en las cuales no se otorgarán permisos de construcción de ningún tipo de uso, así como también se respetarán los humedales (lagunas) y las áreas de bosque, áreas en las que tampoco se permitirá ningún tipo de construcción, preservándose su estado natural.

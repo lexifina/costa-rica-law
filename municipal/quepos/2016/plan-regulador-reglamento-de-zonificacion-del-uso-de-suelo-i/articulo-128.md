@@ -1,0 +1,1 @@
+Artículo 128. Usos conformes. Los usos permitidos son los de puerto y atracaderos con las instalaciones complementarias, aduana, vigilancia, migración, gasolinera, taller de reparación de embarcaciones, estacionamientos, restaurantes, sodas, bodegas, tiendas de suministros para actividad pesquera, paseos peatonales, hospedaje, venta de mariscos y pescadería.

@@ -1,0 +1,1 @@
+Artículo 104. Usos Conformes: servicios institucionales y comunales, tales como centros educativos público privados, de salud, seguridad, instituciones autónomas, municipales e instalaciones comunales y culturales, centros universitarios, cementerios, EBAIS, instituciones bancarias, Iglesias o locales de culto, salón comunales o parroquiales.

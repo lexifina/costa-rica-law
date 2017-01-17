@@ -1,0 +1,3 @@
+CAPÍTULO III: Zona Servicios Mixtos Corredores Urbanos Municipales
+(ZSMCOM)
+Artículo 82. Propósitos y delimitación espacial. El propósito es consolidar las actividades comerciales y de servicios cuya delimitación aparece en el mapa de zonificación excepto la del casco central de Quepos la cual está comprendida como Zona de Servicios Mixtos Centro Urbano Municipal, esto corresponde centro urbano municipal, así como las ubicadas en la costanera sur, desde el río Paquita hasta la Managua, además las Rutas Nacionales sin incluir lo definido como Centro Urbano Municipal según se señala en el Plano de Zonificación.

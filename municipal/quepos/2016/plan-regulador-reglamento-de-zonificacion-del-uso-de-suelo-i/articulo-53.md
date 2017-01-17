@@ -1,0 +1,8 @@
+TÍTULO VIII ZONA DE MANGLAR Y HUMEDALES (ZMH)
+CAPÍTULO I: Aspectos generales
+Artículo 53. Propósitos. La Zona de Manglar y Humedales, son los terrenos que actualmente están cubiertos de vegetación de mangle y se deben conservar como tal a fin de lograr un desarrollo sostenible.
+Esta zona es de protección absoluta, por tanto, no se permitirá ningún tipo de uso, excepto el de la recuperación del mangle.
+Con base en la Ley de Zona Marítimo Terrestre No. 6043 que establece que las zonas de manglar están catalogadas como una zona pública, de naturaleza demanial, imprescriptible e inalienable y con base en la Ley Forestal no se permite ningún tipo de uso excepto la protección absoluta.
+En el sector noroeste, de actividad agropecuaria, se crea una franja de 10 metros a partir del fin de la zona demarcada como zona de manglar, tendrá como función el amortiguamiento o transición entre una actividad humana y la zona de manglar. Se fundamenta este retiro con base en la Ley Forestal No. 7575 artículo 33 inciso b en lo referente a urbano, la Ley No. 6043 y la Ley de Biodiversidad No. 7788.
+En este sector las construcciones existentes y colindantes al manglar, serán respetadas, pero no podrán ampliarse, sólo podrán mantenerse. Tampoco se permitirá la construcción de nuevas estructuras en la zona de 10 metros denominada zona de amortiguamiento.
+Esta zona de amortiguamiento seguirá perteneciendo al titular de la propiedad y como tal, podrá dar mantenimiento para que el manglar no invada dicha zona, pudiendo cercarlo, demarcarlo, y cualquier derecho real que conlleve la titularidad del bien en su calidad de propietario, siendo exclusivamente una zona de retiro del manglar que busca reducir e impedir el impacto de una actividad humana sobre el manglar.

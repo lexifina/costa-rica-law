@@ -1,0 +1,1 @@
+Artículo 76. Jerarquización. Zona de Servicios Mixtos Corredores Urbanos Municipales: Área urbana de forma lineal en la que se agrupan actividades de servicios y comercio, cuya área de servicio es de nivel municipal.

@@ -1,0 +1,1 @@
+Artículo 140. En la zona Inalienable (50 metros) no se permitirá ningún tipo de uso. En los 20 metros paralelos a la Zona Inalienable se reserva como paseo peatonal a todo lo largo de esta Zona Marítimo Terrestre, desde el área urbana de Quepos hasta la Zona del Plan Regulador de Playa Espadilla y el área del Cocal, formando un gran corredor verde a lo largo del litoral.

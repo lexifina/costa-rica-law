@@ -1,0 +1,1 @@
+Artículo 146. La Municipalidad podrá crear comités en cada uno de los centros urbanos del cantón, los cuales promoverán un foro permanente de promoción y discusión de los alcances del Plan y de la problemática urbana en general, democratizando de esta manera el hecho urbano, construyendo los núcleos urbanos comunalmente.

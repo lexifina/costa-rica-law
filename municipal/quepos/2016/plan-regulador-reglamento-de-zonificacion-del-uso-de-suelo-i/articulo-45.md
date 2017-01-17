@@ -1,0 +1,1 @@
+Artículo 45. Usos conformes. Los usos permitidos son los forestales, reforestación así instalaciones para centros de investigación, educación y ecoturismo, salud, sedes de organismos nacionales e internacionales, viveros, corrales, recreativos, ecoturismo, puentes, caminos, senderos, miradores, restaurantes y para vivienda unifamiliar, multifamiliar y hospedaje turístico.

@@ -1,0 +1,3 @@
+Artículo 51. Usos no conformes: Urbanizaciones, ni condominios, ni conjuntos residenciales, industria, comercio, ni ningún otro uso que no sean los apuntados en los usos conformes.
+Se permitirán aquellos que se encuentren funcionando y debidamente establecidos al cobrar vigencia el presente Reglamento, con las limitaciones, definidas en el presente Reglamento de Zonificación del Uso del Suelo.
+No se permitirá la construcción en terrenos que presenten acuíferos, pendientes mayores al 30 %, áreas sujetas a deslizamientos e inundaciones, zonas boscosas y áreas de protección de ríos y quebradas y que se encuentren afectadas por la Ley Forestal No. 7575.

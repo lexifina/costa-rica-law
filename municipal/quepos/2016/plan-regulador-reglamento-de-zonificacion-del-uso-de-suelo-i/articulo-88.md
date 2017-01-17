@@ -1,0 +1,1 @@
+Artículo 88. Usos Conformes. Instalaciones deportivas, recreativas públicas o privadas como piscinas, gimnasios, vestidores, canchas deportivas abiertas o cerradas, plazas, parques recreativos, temáticos, lineales, urbanos, auditorios, duchas y otras que faciliten el esparcimiento espiritual y deportivo.

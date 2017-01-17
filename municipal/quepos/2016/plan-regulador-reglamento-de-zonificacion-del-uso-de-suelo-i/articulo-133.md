@@ -1,0 +1,1 @@
+Artículo 133. Usos Conformes. Los usos conformes son los institucionales, comunales, educativos, científicos y recreativos. Con base en el artículo 18 del reglamento Ley Forestal, y lo que establezca el respectivo Plan de Manejo aprobado por el SINAC.

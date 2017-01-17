@@ -1,0 +1,1 @@
+III. Los planos debidamente catastrados antes de la entrada en vigencia del presente reglamento podrán ser visados por la Municipalidad aun cuando se vean afectados por las modificaciones establecidas en el respectivo P.R.U.

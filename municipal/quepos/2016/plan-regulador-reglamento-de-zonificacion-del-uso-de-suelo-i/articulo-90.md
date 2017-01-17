@@ -1,0 +1,1 @@
+Artículo 90. Usos Complementarios: Facilidades como kioscos de conformidad con los usos conformes permitidos, oficinas administrativas, heladerías, cafeterías, parqueos que se ubiquen frente a calle pública. Se permitirán siempre y cuando la Municipalidad lo apruebe, siguiendo los lineamientos del Reglamento del Plan Regulador.

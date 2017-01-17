@@ -1,0 +1,1 @@
+Artículo 106. Usos condicionales. Se permitirán también como usos condicionales restaurantes, sodas, cafeterías, oficinas de servicios profesionales, librerías, farmacias, instalaciones recreativas y culturales como museos, actividades comerciales, cines y teatros.

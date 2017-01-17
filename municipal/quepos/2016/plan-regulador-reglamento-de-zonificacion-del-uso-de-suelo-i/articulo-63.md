@@ -1,0 +1,1 @@
+Artículo 63. Usos No Conformes: centros comerciales de gran escala, gimnasios, locales de culto, talleres de servicios (de todo tipo), industria (de ningún tipo), bares, salones de fiesta, bailes, licoreras, juegos electrónicos, clínicas veterinarias, lavados de autos, funerarias, joyerías, billares, venta de mascotas, relojerías, discotecas, cabinas, hoteles.

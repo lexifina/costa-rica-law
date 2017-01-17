@@ -1,0 +1,1 @@
+Artículo 136. Requisitos. Los requisitos se establecerán para cada uno de los casos por la Municipalidad en coordinación con el Ministerio de Cultura, MINAE y el INVU, definidos en el respectivo Plan de Manejo.

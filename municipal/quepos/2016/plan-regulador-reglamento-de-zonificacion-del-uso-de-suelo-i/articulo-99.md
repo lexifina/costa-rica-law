@@ -1,0 +1,1 @@
+Artículo 99. Usos condicionales. Heladerías, cafeterías, refresquería, con módulos o kioscos de hasta 16 m2 no más de 6 módulos en toda la zona, actividades deportivas o de recreación. Estos kioscos no se podrán colocar en frente de la zona de la marina señalada en este plan regulador.

@@ -1,0 +1,1 @@
+Artículo 111. Usos No Conformes: vivienda unifamiliar y multifamiliar, centros educativos públicos ni privados, hospitales, guarderías, asilos, albergues. No se permite ningún tipo de uso, excepto los señalados como usos conformes.

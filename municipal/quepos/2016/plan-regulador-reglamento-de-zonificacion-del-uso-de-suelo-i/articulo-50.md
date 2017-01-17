@@ -1,0 +1,1 @@
+Artículo 50. Usos conformes. Los usos permitidos son los usos agropecuarios como cultivos, producción ganadera y las actividades complementarias, como bodegas, instalaciones de riego, granjas avícolas, porcinas, apícolas y similares y vivienda unifamiliar.

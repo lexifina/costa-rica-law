@@ -1,0 +1,1 @@
+Artículo 72. Delimitación y rangos de acción. Las zonas de comercio y servicios se conciben en el P.R.U. como conjuntos urbanos, que funcionan en forma integral y de manera jerarquizada, en centros y corredores urbanos de diferentes clases.

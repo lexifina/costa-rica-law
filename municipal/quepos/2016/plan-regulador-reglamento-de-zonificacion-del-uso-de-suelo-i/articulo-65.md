@@ -1,0 +1,2 @@
+CAPÍTULO III: Zona Residencial Media Densidad (ZRMD)
+Artículo 65. Propósitos. En esta porción residencial del suelo urbanizado y urbanizable del Cantón, se persigue un uso del suelo menos intenso que en la categoría anterior, con 26 viviendas por hectárea, en soluciones de un nivel. Permitiéndose soluciones de tipo multifamiliar y bajo el concepto de condominio de cuatro niveles, para una densidad máxima en estos casos de 104 viviendas por hectárea.

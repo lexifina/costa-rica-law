@@ -1,0 +1,3 @@
+TÍTULO XXII DISPOSICIONES ESPECIALES
+CAPÍTULO I Aspectos Generales
+Artículo 141. En vista que existen áreas que han sido clasificadas por el MINAE a través del Sistema Nacional de Áreas de Conservación (SINAC) como Patrimonio Natural del Estado que actualmente se encuentran en procesos de impugnación se aplicará lo establecido en la Ley de Planificación Urbana No. 4240 en su artículo 18, por lo que dichas zonas quedan en suspenso hasta que se logre finalizar con dichos procesos, pudiendo definirse posteriormente en caso de que dichas zonas no queden en administración del MINAE por medio de Acuerdo Municipal en coordinación con la Comisión Técnica Interinstitucional INVU-Municipalidad de Quepos. (INVU-DICU).

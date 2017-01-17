@@ -1,0 +1,1 @@
+Artículo 102. Propósitos. En vista de la carencia de instituciones y servicios comunales en el área urbana de Quepos, se propone una dotación de zonas para los establecimientos de instituciones estatales, comunales y culturales, que, junto con el comercio, servicios y áreas verdes, formen los centros urbanos funcionando de forma integral y jerarquizada.

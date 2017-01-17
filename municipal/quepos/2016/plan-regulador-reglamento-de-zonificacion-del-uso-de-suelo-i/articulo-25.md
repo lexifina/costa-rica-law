@@ -1,0 +1,10 @@
+Artículo 25. Usos condicionales. Uso nuevo y existente solicitados que, por sus características, pueden causar molestias a los usos conformes de la zona, pero con ciertos requisitos pueden garantizar que esas posibles molestias se confinen en la propiedad.
+25.1 Son aquellos que pueden darse en una zona, siempre y cuando cumplan los requisitos especiales, que establezca la Municipalidad en coordinación con el Departamento de Urbanismo del INVU o cualquier dependencia o institución competente para lograr la protección de la salud pública, la ciudad y la seguridad de los vecinos del Cantón, en un acto coordinado.
+25.2 Estas condiciones deberán indicarse en el Certificado de Uso de Suelo correspondiente con base en los artículos 9 y 10 del presente Reglamento. Las condiciones serán aquellas que se establezcan en este reglamento, que sean de interés urbanístico, que sean usos complementarios, de interés municipal; que no afecten la salud y el ambiente.
+25.3 No se permitirá el crecimiento de estos usos, y las intervenciones en construcciones existentes, se permitirán en las siguientes circunstancias:
+a) Trabajos de mantenimiento a lo existente. No implica cambios o reparación de la estructura primaria.
+b) El inmueble sea de valor histórico, cultural o patrimonial.
+c) Cuando las remodelaciones sean para cumplir con las normas de seguridad e higiene.
+d) En caso de siniestro, la Municipalidad podrá permitir la reconstrucción de la edificación o infraestructura dañada con una licencia provisional. El interesado deberá presentar una memoria de cálculo estructural (elaborado por un profesional responsable), para fijar los daños.
+En un plazo de 30 días hábiles el interesado debe ponerse a derecho cumpliendo con los requisitos de este Reglamento de conformidad con el artículo 8.
+Lo anterior no implica que si el uso que existía en el inmueble dañado es considerado no conforme a la zonificación del P.R.U., no se emitirá el uso del suelo y el interesado deberá ejercer una actividad compatible con la zonificación.

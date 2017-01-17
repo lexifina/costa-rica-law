@@ -1,0 +1,2 @@
+CAPÍTULO V: Licencia para Actividades Lucrativas.
+Artículo 10. Patentes. Para el trámite de patentes también se exigirá la presentación del Certificado de Uso del Suelo correspondiente, de conformidad con el artículo 29 de la Ley de Planificación Urbana. Para la concesión de patentes por el Departamento de Patente Municipal, debe obtenerse Resolución Municipal de Ubicación del Departamento de Ingeniería y Control Urbano (DICU) donde conste la conformidad de la actividad con el Uso del Suelo dispuesto por el P.R.U en cada zona.
