@@ -1,1 +1,1 @@
-Artículo 17.—Rige a partir de su publicación.
+Artículo 17.—(Nota de Sinalevi: El texto de este numeral debe de ser consultado en el artículo 16, ya que mediante publicación en La Gaceta N° 12 del 17 de enero de 2017, se ordenó derogar el artículo 16 y correr la numeración de los restantes artículos)
