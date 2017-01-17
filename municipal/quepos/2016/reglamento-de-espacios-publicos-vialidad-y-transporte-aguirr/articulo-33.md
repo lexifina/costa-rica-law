@@ -1,0 +1,1 @@
+Artículo 33. Mientras el proyecto del Plan Regulador no sea materializado, todo seguirá funcionando como hasta la fecha, y serán las autoridades del MOPT y la Municipalidad, quienes continuarán dictando las directrices sobre el transporte urbano remunerado de personas.

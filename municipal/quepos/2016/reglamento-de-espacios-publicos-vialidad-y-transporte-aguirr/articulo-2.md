@@ -1,0 +1,1 @@
+Artículo 2. Derecho De Vía. Tendrán un derecho de vía entre treinta y cincuenta metros, con cuatro o seis carriles de tres metros con setenta y cinco centímetros cada uno y dos calles marginales con una calzada de siete metros.

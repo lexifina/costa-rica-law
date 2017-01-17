@@ -1,0 +1,1 @@
+Artículo 46: Barreras De Seguridad. Para la instalación de postes u otros obstáculos para impedir la entrada de vehículos a la acera, parques o jardines, se solicita el permiso de la Dirección de Urbanismo de la Municipalidad. En este caso debe preverse un paso a través del obstáculo de 1 m mínimo para las sillas de ruedas.

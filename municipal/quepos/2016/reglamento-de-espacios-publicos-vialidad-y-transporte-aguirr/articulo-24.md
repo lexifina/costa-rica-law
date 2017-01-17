@@ -1,0 +1,1 @@
+Artículo 24. Diseño. Estas vías, según su ubicación y la magnitud de los flujos peatonales, deben dar la posibilidad de realizar recorridos peatonales a cubierto y contar con el correspondiente mobiliario urbano.

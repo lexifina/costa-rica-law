@@ -1,0 +1,1 @@
+Artículo 6. Carriles y Aceras. Tendrán cuatro carriles de tres metros con setenta y cinco centímetros cada uno, cuando los derechos de vía sean de veinte metros; en el caso de tener derecho de vía de treinta metros se agüeran dos marginales. Tendrán aceras 3 m de ancho mínimo. El resto del derecho de vía, se usará en zonas verdes.

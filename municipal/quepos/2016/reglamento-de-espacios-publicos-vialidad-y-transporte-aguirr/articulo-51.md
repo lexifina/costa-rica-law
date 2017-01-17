@@ -1,0 +1,1 @@
+Artículo 51: Canoas y Bajantes. No se permitirá caída libre de aguas pluviales sobre la vía pública, debiendo disponerse para tal efecto los bajantes pluviales desde techos, balcones, voladizos y cualquier otro saliente de conformidad con el Reglamento de Construcciones del INVU.

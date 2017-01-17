@@ -1,0 +1,1 @@
+Artículo 32. Para ello, la Municipalidad de Quepos y el MOPT, conforme lo dispone en el Mapa de Vialidad y Transporte, habilitarán aquellas áreas de dominio público o privado que aparecen reservadas a tal fin.
