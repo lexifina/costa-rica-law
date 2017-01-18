@@ -14,3 +14,4 @@ Reglamento para el Servicio de Cuenta de Ahorro
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2006-06-20 | la propia norma |
+| 2 | 2017-01-18 | Reglamento 3 (2017-01-18) |
