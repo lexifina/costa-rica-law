@@ -1,0 +1,1 @@
+Artículo 2°—En el plazo de diez días hábiles a partir de la publicación de este decreto, se instruye a las instituciones señaladas en el artículo anterior, para que informen al Ministerio de Trabajo y Seguridad Social, las acciones realizadas para la implementación exitosa de las disposiciones de este decreto.

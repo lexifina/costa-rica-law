@@ -1,0 +1,2 @@
+Artículo 3°—La vigencia para la aplicación de la presente directriz, surtirá efectos a partir de su publicación en el Diario Oficial La Gaceta y estará supeditada a la conclusión de las labores programadas, para la reparación del puente sobre el Río Virilla, en el sector de la autopista General Cañas, según lo que informe el Ministerio de Obras Públicas y Transportes.
+Dado en la Presidencia de la República.—San José, a los trece días del mes de enero del dos mil diecisiete.
