@@ -1,0 +1,1 @@
+Artículo 3: El objetivo que tiene la modalidad del teletrabajo es mejorar la calidad en el servicio al usuario, aumentar la productividad, reducir costos, mejorar el desarrollo laboral y la calidad de vida de los trabajadores en el marco de los procesos de modernización institucional.

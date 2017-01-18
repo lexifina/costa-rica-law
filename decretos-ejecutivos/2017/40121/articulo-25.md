@@ -1,0 +1,1 @@
+Artículo 25: Las autoridades de la institución solicitarán a las organizaciones sociales existentes dentro de la Institución su programa de asambleas o actividades de carácter general, para incluirlas en la programación institucional e informar a las personas teletrabajadoras.

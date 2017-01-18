@@ -1,0 +1,1 @@
+Artículo 24: El teletrabajador debe asumir los gastos de electricidad, agua y alimentación, relacionados con el desarrollo de las actividades teletrabajables. En el caso de traslados para realizar giras o reuniones de trabajo como parte de su función, aplica lo establecido en la normativa laboral vigente.

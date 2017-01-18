@@ -1,0 +1,1 @@
+Artículo 16: Son responsabilidades del Departamento o Unidad encargada del Capital Humano apoyar a las jefaturas y teletrabajadores en la aplicación de los instrumentos que requiere la modalidad de teletrabajo para el desarrollo de las actividades laborales.

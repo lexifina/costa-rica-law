@@ -1,0 +1,1 @@
+Artículo 17: El teletrabajador es responsable directo de la confidencialidad y seguridad de la información que utilice y pueda acceder, evitando por todos los medios su uso inapropiado, según se establece en la normativa institucional.

@@ -1,0 +1,1 @@
+Artículo 18: El trabajador que acceda a esta modalidad de trabajo, toma esta decisión de común acuerdo con su Jefatura o el Director respectivo, siempre y cuando cumpla con los requisitos establecidos en este decreto.

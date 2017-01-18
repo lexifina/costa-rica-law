@@ -1,0 +1,1 @@
+Artículo 27: En el plazo de diez días hábiles a partir de la publicación de este decreto, las instituciones señaladas deberán informar al Ministerio de Trabajo y Seguridad Social, las acciones realizadas para la implementación exitosa de las disposiciones de este decreto.

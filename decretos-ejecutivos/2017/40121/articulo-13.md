@@ -1,0 +1,1 @@
+Artículo 13: La Jefatura Inmediata podrá suspender temporalmente el teletrabajo y solicitar al teletrabajador incorporarse a la modalidad presencial de trabajo, cuando medien razones de necesidad institucional que lo ameriten.

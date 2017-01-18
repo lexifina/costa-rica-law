@@ -1,0 +1,1 @@
+Artículo 20: El teletrabajador es responsable de los activos institucionales que utilice y traslade hacia el lugar de trabajo. En caso de extravío, debe comunicar inmediatamente a su Jefatura o al Director respectivo y proceder de acuerdo con lo que establece la normativa vigente.

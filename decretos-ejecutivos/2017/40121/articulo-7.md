@@ -1,0 +1,1 @@
+Artículo 7: Las personas teletrabajadoras están protegidos por la Póliza de Riesgos del Trabajo que tiene la Institución, siempre que se encuentren ejerciendo las labores propias de su cargo en el lugar acordado para realizar el teletrabajo.

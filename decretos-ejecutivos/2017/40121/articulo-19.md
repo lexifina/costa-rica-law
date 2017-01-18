@@ -1,0 +1,1 @@
+Artículo 19: En caso de que las actividades se realicen desde la casa de habitación, el trabajador debe acondicionar un espacio físico con las características recomendadas por el Departamento de Gestión del Capital Humano y Ministerio de Trabajo y Seguridad Social.

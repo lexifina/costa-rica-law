@@ -1,0 +1,1 @@
+Artículo 8: Todas las jefaturas y trabajadores relacionados directa o indirectamente con las personas que teletrabajen, deben colaborar y facilitar la gestión para que esta modalidad de trabajo cumpla con los objetivos fijados y la normativa asociada.

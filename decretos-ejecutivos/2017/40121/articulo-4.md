@@ -1,0 +1,1 @@
+Artículo 4: Los jerarcas de cada institución, en coordinación con las respectivas jefaturas, serán los encargados de definir cuáles serán las personas teletrabajadoras a las que se le aplicará este decreto, así como coordinar con éstas las condiciones para la realización de sus labores.

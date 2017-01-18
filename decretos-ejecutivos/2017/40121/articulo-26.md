@@ -1,0 +1,1 @@
+Artículo 26: Los titulares de los Ministerios y sus órganos adscritos e instituciones autónomas y semiautónomas ubicadas dentro del Gran Área Metropolitana tendrán un plazo de cinco días hábiles a partir de la publicación del presente decreto, para organizar a lo interno de sus instituciones su respectiva aplicación.
