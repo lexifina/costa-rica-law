@@ -1,2 +1,0 @@
-Artículo 72.—El Departamento de Adopciones recomendará al Consejo Nacional de Adopciones el rechazo de la solicitud, si los solicitantes no cumplen con los requisitos establecidos en el Código de Familia de Costa Rica para la adopción de una persona menor de edad.
-El Consejo Nacional de Adopciones analizará la recomendación y procederá a emitir el acuerdo respectivo, el cual deberá ser comunicado a la Autoridad Central u organismo o entidad colaboradora de la adopción internacional.

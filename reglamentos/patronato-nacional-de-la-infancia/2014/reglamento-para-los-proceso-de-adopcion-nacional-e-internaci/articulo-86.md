@@ -1,1 +1,0 @@
-Artículo 86.—El correspondiente acuerdo de aprobación o rechazo de la solicitud de autorización o prórroga, será comunicado a los solicitantes por el Departamento de Adopciones, otorgándole los recursos establecidos en la Ley General de la Administración Pública.

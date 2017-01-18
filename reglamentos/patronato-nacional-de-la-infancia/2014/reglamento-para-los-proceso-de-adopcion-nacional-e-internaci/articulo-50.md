@@ -1,1 +1,0 @@
-Artículo 50.—El Departamento de Adopciones, una vez constatado el cumplimiento de requisitos y el aporte de los documentos requeridos, procederá en un plazo no mayor a cuatro meses, a realizar las valoraciones sociales y psicológicas correspondientes, emitiendo su criterio técnico en relación con la idoneidad o no de los solicitantes de adopción.

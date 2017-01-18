@@ -1,1 +1,0 @@
-Artículo 64.—El Departamento de Adopciones y las Oficinas Locales del PANI, estarán en la obligación de brindar a los progenitores el debido asesoramiento e información sobre el derecho de la persona menor de edad de permanecer y crecer en su familia.

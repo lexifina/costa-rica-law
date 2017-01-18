@@ -1,3 +1,0 @@
-SECCIÓN II
-Del seguimiento post-adoptivo de la adopción internacional
-Artículo 93.—El seguimiento post-adoptivo internacional se realizará por un periodo de hasta tres años, de acuerdo con lo que resuelva la Autoridad Judicial en la sentencia que declara o autoriza la adopción internacional, mediante informes de seguimiento que remitirán las Autoridades Centrales, Organismos o Entidades Colaboradoras de adopción internacional. Estos informes serán remitidos cada seis meses durante los dos primeros años y un último informe al cumplirse los tres años, contados a partir de la fecha del desplazamiento de la persona menor de edad al Estado de Recepción.
