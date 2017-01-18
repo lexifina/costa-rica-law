@@ -1,17 +1,18 @@
 BANCO DE COSTA RICA
 (Nota de Sinalevi: Sobre este tema el Banco de Costa Rica había aprobado Reglamento de Tarifas y Condiciones para los Servicios del Banco de Costa Rica y publicado en La Gaceta N° 103 del 30 de mayo de 2006)
 La Junta Directiva General del Banco en sesión 47-12, artículo VI, del 12 de noviembre de 2012 aprobó la modificación del Reglamento de tarifas y condiciones para los servicios del Banco de Costa Rica:
-1. Productos de colocación
-1.1. Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo
-Colones y dólares: de 0.00% a un máximo del 5%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de crédito, el Gerente General, Subgerentes, Gerentes Regionales Banca Minorista y Mayorista y Gerente de Área de Marca.
+1 Productos de colocación
+1.1.- Gastos de formalización de operaciones nuevas y prórrogas al vencimiento definitivo
+Colones y dólares: de 0.00% a un máximo del 5%. Quedan abiertos los márgenes de negociación para el Comité de Crédito, Subcomité de crédito, el gerente general, subgerentes, gerentes regionales Banca Minorista y Mayorista y gerente de área de Marca.
 Aplica para todas las modalidades de créditos directos y créditos abiertos.
 Notas:
 1- Esta comisión será cobrada por una única vez al formalizarse el crédito o al establecerse prórrogas al vencimiento definitivo, aplicable directamente al monto del crédito en forma general.
 Para créditos abiertos se cobrará cada vez que se realice una operación derivada del contrato de crédito abierto.
 2- No se cobrará la comisión de formalización en los contratos que se realicen de líneas de crédito revolutivas; tampoco se cobrará la comisión de formalización a las tarjetas de crédito.
 3- Para créditos damnificados por desastres naturales se cobrara un 0.5%, para créditos de vivienda para pensionados y ayuda social un 1%.
-4- Se aplicará un 50% de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR. A excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales.
-(Así reformado el punto 1.1) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+4- Se aplicará un 50 % de la comisión a las personas físicas cuyo salario o pensión es depositado en una cuenta del BCR con excepción del crédito vivienda para pensionados y crédito damnificados por desastres naturales.
+5- En el caso de créditos directos con desembolsos y previa aprobación del Comité de Crédito, el cobro de la comisión se realizará al momento de cada desembolso.
+(Así reformado el punto 1.1) anterior en sesión N° 03-17 del 18 de enero del 2017)
 (*) 1.2.- Comisión de formalización para cambio de rubro mediante Anexo 1 y para cambio de moneda mediante Anexo 2 de las DAC (personas físicas)
 - $300 de comisión de formalización en el caso de créditos que tengan menos de un año de constituidos.
 - $200 en los créditos que tienen más de un año y menos de tres años de constituidos.

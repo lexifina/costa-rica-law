@@ -14,33 +14,35 @@ Tarjetas de débito
 • $3 +0.50% comisión por retiro de efectivo en ATM´S o en ventanilla en otros emisores internacionales o locales que no estén en convenio con el BCR.
 • $1 por cada transacción de avance o retiro de efectivo en ventanilla del BCR, excepto en las cuentas cuyo saldo promedio semestral sea mayor a $1.000.00 o cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
 (Así reformado el punto 3.2) anterior en sesión N° 21 del 23 de mayo de 2016)
-3.3.-Comisiones a negocios afiliados
-$25.00 mensual por P.O.S. instalado en comercios afiliados con facturación mensual inferior a $1,000.00.
-(Así reformado el punto 3.3) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.4.- Comisión por cargo administrativo por mora
-2-30 Días $ 10.00
-31-90 Días $ 25.00
+3.3.- Comisión por cargo administrativo por mora
+2-30 Días $ 25.00
+31-90 Días $ 40.00
 91-180 Días $ 50.00
 Nota:
-Esta comisión se cobra mensualmente de acuerdo al período de morosidad del cliente, durante el plazo en que permanezca el crédito en esa condición.
-(Así reformado el punto 3.4) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.5.- Reposición de pin para tarjeta de crédito y débito
+Esta comisión se cobra mensualmente de acuerdo al periodo de morosidad del cliente, durante el plazo en que permanezca el crédito en esa condición.
+(Así reformado el punto 3.3) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+3.4.- Reposición de pin para tarjeta de crédito y débito
 $5.00
 Se cobra esta tarifa cuando el cliente ha olvidado el PIN, pero si se le sustituye por problemas atribuibles al Banco no se le deberá cobrar.
 Para los productos de compras institucionales del BCR, no pagarán comisión por reemplazo.
-(Así reformado el punto 3.5) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.6.- Comisión por servicios administrativos en tarjetas de débito
-$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho), Pensionados, Anafa, Distribución y Proyecto K.
-(Así reformado el punto 3.6) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.7. Comisión por solicitud de copia de voucher
+(Así reformado el punto 3.4) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+3.5.- Comisión por servicios administrativos en tarjetas de débito
+$10.00 excepto tarjetas: Cuenta Conmigo (HIT), Cuenta Propia (Morpho),
+Pensionados, Anafa, Distribución y tarjeta de débito Kristal
+(Así reformado el punto 3.5) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+3.6.- Comisión por solicitud de copia de voucher
 $11.50 por voucher consultado a otros procesos o emisores.
-(Así reformado el punto 3.7) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.8-Comisión por pagos a tarjetas reversados por cheques devueltos
+Nota: Este cobro también debe aplicarse para las copias de vouchers o documentación que víncula al cliente con la transacción.
+(Así reformado el punto 3.6) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+3.7.- Comisión por pagos a tarjetas reversados por cheques devueltos
 $10.00 si el cheque es devuelto por forma y $20.00 si es por fondos insuficientes.
-(Así reformado el punto 3.8) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
-3.9.- Comisión por afiliación al servicio de adquirencia
-$60 a todos los comercios nuevos que deseen afiliarse al servicio de adquirencia BCR; esta comisión se cobrará una única vez.
-(Así reformado el punto 3.9) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)
+(Así reformado el punto 3.7) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+3.8.-Cobro administrativo en tarjetas de crédito por la redención de Millas Life Miles
+$5.00 por cada 1000 puntos o fracción para la redención.
+(Así reformado el punto 3.8) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+3.9.-Cobro por reposición de clave de acceso a la página www.bcrcompras.com
+$5
+(Así reformado el punto 3.9) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 3.10.-Comisión por confección de máquina manual a los comercios afiliados
 $35 por cada máquina manual confeccionada para los comercios afiliados, esta comisión se cobrará una vez.
 (Así reformado el punto 3.10) anterior mediante sesión N° 43-14 del 6 de octubre del 2014)

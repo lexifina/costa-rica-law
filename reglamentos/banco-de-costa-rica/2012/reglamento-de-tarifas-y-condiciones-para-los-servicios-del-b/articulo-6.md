@@ -38,52 +38,43 @@ Por sobres cerrados y sellados de cajitas de seguridad del BCR $100.00, por el p
 6.2.5 Recepción y custodia de garantías de pago
 Corresponde a la recepción y custodia de documentos de garantía de pago sobre licitaciones de participación y cumplimiento de instituciones públicas. 0,50% sobre el monto de la garantía de pago, con un mínimo de $15.00 y un máximo de $150.00.
 (Así reformado el punto 6.2.5) anterior en sesión N° 21 del 23 de mayo de 2016)
-6.2.6 Administración, control, seguimiento y custodia de las garantías flotantes sobre créditos otorgados
-Servicio que se brinda en la administración y custodia física de documentos dados en garantía al Banco en operaciones de crédito respaldadas con garantías flotantes; que incluye, el proceso de control y seguimiento, según los términos aprobados.
-Comisión de 0.25% anual hasta un máximo de un 1%, vencida; sobre el monto o saldo del crédito, cobrada en forma mensual.
-Nota:
-Para la determinación del porcentaje exacto a cobrar deberán considerarse variables como el monto aprobado, tipo de crédito; tipo, valor promedio y cantidad de documentos a administrar. El porcentaje sugerido a cobrar deberá constar en el informe de crédito que elabora el área comercial respectiva. Este porcentaje de comisión deberá ser avalado por la Oficina de Administración de Valores Colaterales, antes que el área comercial presente el crédito para su aprobación, ante el Comité de Crédito.
-(Así reformado el punto 6.2.6) anterior en sesión N° 21 del 23 de mayo de 2016)
-Custodia electrónica de valores
-Por servicios de custodia local
-6.2.7 Tarifas custodia local sobre saldo promedios de valores administrados:
-[imagen]
+6.2.6 Tarifas custodia local sobre saldo promedios de valores administrados:
+Se aplicará sobre el saldo promedio mensual 0.00108%
 Notas:
 El saldo de la custodia se calcula sobre el valor facial de los principales de los títulos valores custodiados en el caso de deuda.
 En el caso de acciones y títulos de participación de fondos de inversión, los cargos serán calculados sobre el valor de mercado.
 Para efectos del cálculo de las tarifas de custodia de los títulos o valores denominados en colones se convierten a dólares utilizando el tipo de cambio de referencia de venta establecido por el Banco Central de Costa Rica vigente el último día hábil del mes al cobro.
+Otros costos adicionales generados por solicitud de los clientes, y no estén contemplados en el cuadro anterior, deberán ser asumidos por los clientes.
+(Así reformado el punto 6.2.6) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+Custodia electrónica de valores
+Por servicios de custodia local
+6.2.7 Tarifas por movimientos (mercado local), servicios complementarios:
+[imagen]
 (Así reformado el punto 6.2.7) anterior en sesión N° 21 del 23 de mayo de 2016)
-6.2.8 Tarifas por movimientos (mercado local), servicios complementarios:
+(Así reformado el punto 6.2.7) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+6.2.8 Tarifas custodia internacional sobre el saldo promedio de valores administrados:
+Se aplicará sobre el saldo promedio mensual 0.0035%
+(Así reformado el punto 6.2.8) anterior en sesión N° 03-17 del 18 de enero del 2017)
+6.2.9 Tarifas por movimientos (custodio internacional):
 [imagen]
-Por generar reportes adicionales de información para el cliente, sobre la custodia local o internacional, se cobrará una comisión de $25.00 por reporte.
-Por reconstrucción de movimientos o información requerida por el cliente, se cobrará
-$20.00 hora/hombre.
-Nota:
-Las liquidaciones de participaciones, rendimientos de los fondos de inversión, y cancelación de vencimientos de valores, vía de transferencias Sinpe, se les aplicará además del costo definido, anteriormente, la tarifa establecida en el punto 6.2.15 de este reglamento.
-(Así reformado el punto 6.2.8) anterior en sesión N° 21 del 23 de mayo de 2016)
-6.2.9- Registro de las emisiones colocadas por ventanilla bajo la figura de macrotítulo, (posición compradora):
-- Comisión registro por creación de la cuenta: $2.00
-- Comisión por entregas previas de macrotítulos:
+(Así reformado el punto 6.2.9) anterior en sesión N° 03-17 del 18 de enero del 2017)
+6.2.10 Por custodia de macrotítulos de emisiones privadas
 [imagen]
-(Así adicionado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
-(Así reformado el punto 6.2.9) anterior en sesión N° 21 del 23 de mayo de 2016)
-Por Servicio de Custodia Internacional
-6.2.10.- Tarifas Custodia Internacional sobre el saldo promedio de valores administrados:
-[imagen]
-(Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 6.2.9 al 6.2.10. Lo anterior ya que en dicha sesión se adiciona el numeral 6.2.9 original y correr la numeración de los siguientes)
-(Así reformado el punto 6.2.10) anterior en sesión N° 21 del 23 de mayo de 2016)
-6.2.11.- Tarifas por movimientos (custodio internacional):
-[imagen]
+(Así reformado el punto 6.2.10) anterior en sesión N° 03-17 del 18 de enero del 2017)
+6.2.11 Comisión por ingreso a revisar transacciones, en alquiler de espacio a entidades públicas
+- Por cada visita que efectúe el cliente a la bóveda $2.0
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 6.2.10 al 6.2.11. Lo anterior ya que en dicha sesión se adiciona el numeral 6.2.9 original y correr la numeración de los siguientes)
-(Así reformado el punto 6.2.11) anterior en sesión N° 21 del 23 de mayo de 2016)
-6.2.12.-Tarifas por movimientos (mercado internacional): servicios complementarios:
-[imagen]
+(Así reformado el punto 6.2.11) anterior en sesión N° 03-17 del 18 de enero del 2017)
+6.2.12 Administración de los libros de participaciones de los fondos de inversión
+Por la administración de cada libro de participaciones $500.00 mensuales.
+Por generar reportes adicionales al cliente, sobre los libros de participaciones, $10.00 por cada uno.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 6.2.11 al 6.2.12. Lo anterior ya que en dicha sesión se adiciona el numeral 6.2.9 original y correr la numeración de los siguientes)
-(Así reformado el punto 6.2.12) anterior en sesión N° 21 del 23 de mayo de 2016)
-6.2.13.- Por custodia de macrotítulos de emisiones privadas
-[imagen]
+(Así reformado el punto 6.2.12) anterior en sesión N° 03-17 del 18 de enero del 2017)
+6.2.13 Gestión del servicio del impuesto sobre renta
+- Por el servicio de liquidación del impuesto sobre la renta 1,50% sobre el monto depositado por el emisor o la entidad de depósito respectiva. Mínimo $10.00.
+- Por el servicio de gestión de devolución del impuesto sobre la renta, 3,00% sobre el monto depositado por el emisor o la entidad de depósito respectiva. Mínimo $50.00. Las certificaciones de PRI en Ceval-BNV y Sinpe-BCCR, se cobrará la tarifa establecida por esta entidad.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 6.2.12 al 6.2.13. Lo anterior ya que en dicha sesión se adiciona el numeral 6.2.9 original y correr la numeración de los siguientes)
-(Así reformado el punto 6.2.13) anterior en sesión N° 21 del 23 de mayo de 2016)
+(Así reformado el punto 6.2.13) anterior en sesión N° 03-17 del 18 de enero del 2017)
 6.2.14.- Comisión por ingreso a revisar transacciones, en alquiler de espacio a entidades públicas
 -Por cada visita que efectúe el cliente a la bóveda $2.0
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 6.2.13 al 6.2.14. Lo anterior ya que en dicha sesión se adiciona el numeral 6.2.9 original y correr la numeración de los siguientes)

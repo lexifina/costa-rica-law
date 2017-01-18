@@ -1,79 +1,37 @@
-9. Otras tarifas
-9.1.- Otras tarifas
-9.1.- Informes confidenciales, constancias y certificaciones
-$5.00 dólares
-(Así reformado el punto 9.1) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.2.- Uso de fax
-$1.00 nacional
-$5.00 ***internacional
-***Nos ajustamos a tarifa de Racsa ($2) + plus ($3)
-Otros: se exceptúa el envío del estado cuando el cliente no lo recibió.
-(Así reformado el punto 9.2) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.3.- Fotocopias
-$0.05 no se cobra cuando las fotocopias son para trámites bancarios internos.
-(Así reformado el punto 9.3) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.4.- Copias planos
-$6.00 para las primeras 5 páginas y $1.20 por cada hoja adicional
-(Así reformado el punto 9.4) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.5.- Apartado bancario
-$35.00 anual membresía
-$10.00 cada bolso de cuero
-Nota:
-El costo por reposición de llaves y cambio de llavín será asumido totalmente por el cliente.
-(Así reformado el punto 9.5) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.6 - Servicio por examinar videos BCR
-$25.00 por examinar cada video de seguridad.
-Nota:
-Se cobra esta comisión por cada video revisado en cassette o digital.
-(Así reformado el punto 9.6) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.7.- Trámite de licencias, pasaporte y Dimex
-$ 7.00
-(Así reformado el punto 9.7) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.8.- Trámite de entrega de placas
-$10.50
-(Así reformado el punto 9.8) anterior en sesión N° 44 del 14 de octubre de 2015)
-9.9.- Trámite de licencias, pasaportes y Dimex
-$ 7.00
-(Así reformado el punto 9.9 anterior en sesión N° 11 del 9 de marzo de 2015)
-(*)Aspectos generales
-1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
-2. Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
-3. Todas las tarifas incluidas en dólares se refieren a moneda de los Estados Unidos de Norteamérica.
-4. Es obligación de todo servidor del Banco, de informar al cliente el costo del producto o servicio solicitado previo a la contratación del producto o servicio.
-5. Todos los funcionarios del BCR deberán de pagar las comisiones asociada a cualquier servicio sin excepción
-6. Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen diferentes rangos de atribuciones para la negociación de las mismas cuando así se requiera, siendo los siguientes funcionarios los únicos en negociar tarifas y en los porcentajes señalados según el siguiente cuadro:
-Porcentaje a negociar
-Gerente general | 100%
-Subgerentes | 100%
-Director de división (1) | 100%
-Gerente de división (1) y (2) | 100%
-Gerente comercial Proyecto K | 75%
-Gerentes de zona área comercial (1) y (2) | 50%
-7. Lo anterior aplica para todas las comisiones salvo en aquellas donde se determinen funcionarios u órganos resolutorios específicos con atribuciones para negociar esa comisión en particular.
-Notas:
-(1) Informando a superior inmediato.
-(2) Únicamente en su ámbito de acción.
-(*)(Así reformado el punto anterior en sesión N° 44 del 14 de octubre de 2015)
-(*)9.10.- Trámite de entrega de placas
-$10.50
-Aspectos generales
-1. En el caso de que la atención de los servicios antes detallados demande un manejo especial o extraordinario, el Banco se reserva la facultad y el derecho de cobrar los gastos o intereses adicionales locales y del exterior. Cuando una negociación involucre dos o más operaciones con tarifas especificadas en este manual, se cobrarán las tarifas correspondientes a cada una de las operaciones.
-2. Todas las comisiones y tarifas podrán ser pagadas en U.S. dólares o su equivalente en colones, al tipo de cambio BCR de venta vigente a la fecha de cancelación.
-3. Todas las tarifas incluidas en dólares se refieren a moneda de los Estados Unidos de Norteamérica.
-4. Es obligación de todo servidor del Banco, de informar al cliente el costo del producto o servicio solicitado previo a la contratación del producto o servicio.
-5. Para todas las comisiones y tarifas incluidas en el presente Reglamento, se establecen diferentes rangos de atribuciones para la negociación de las mismas cuando así se requiera, siendo los siguientes funcionarios los únicos en negociar tarifas y en los porcentajes señalados según el siguiente cuadro:
-Porcentaje a negociar
-Gerente General 100%
-Subgerentes 100%
-Director de División (1) 100%
-Gerente de División (1) y (2) 100%
-Gerente local del Proyecto K 75 %
-Gerentes de zona área comercial (1) y (2) 50%
-(Así reformado el punto 5) anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
-6. 6.Lo anterior aplica para todas las comisiones salvo en aquellas donde sedeterminen funcionarios u órganos resolutorios específicos con atribucionespara negociar esa comisión en particular.
-(Así reformado el punto 6) anterior mediante sesión N° 42-15 del 28 de setiembre del 2015)
-Notas:
-(1) Informando a superior inmediato.
-(2) Únicamente en su ámbito de acción.
-(Así adicionado el punto 9.10 anterior mediante sesión 24-13 del 24 de junio del 2013)
+9. Servicios de Adquirencia
+9.1.- Comisiones a negocios afiliados
+$10.00 mensual por P.O.S. instalado en comercios afiliados con facturación mensual inferior a $500.00.
+9.2.- Comisión por afiliación al servicio de adquirencia
+$60 a todos los comercios nuevos que deseen afiliarse al servicio de adquirencia BCR; esta comisión se cobrará una única vez.
+9.3.-Comisión por confección de máquina manual a los comercios afiliados
+$35 por cada máquina manual confeccionada para los comercios afiliados, esta comisión se cobrará una vez.
+9.4.-Cobro administrativo en tarjetas de crédito por la conversión de compra en comercios a la modalidad Plan BCR 0%.
+- 3 cuotas: 3% sobre el monto de la transacción a convertir
+- 6 cuotas: 7% sobre el monto de la transacción a convertir.
+- 9 cuotas: 10% sobre el monto de la transacción a convertir.
+9.5.- Comisión por cambio de razón social de comercio afiliado
+$60 por cada cambio de razón social que solicite el comercio afiliado.
+9.6.-Implementación del servicio de comercio electrónico (E-Commerce)
+$50.00 por cada implementación, una única vez.
+9.7.-Protección transacciones comercio electrónico (autenticación 3D secure)
+$300,00 anuales por comercio afiliado por año adelantado
+9.8.-Tarifa por reposición de datáfono (POS) extraviados o con daño irreparable por el comercio afiliado.
+El costo del equipo depende del valor de mercado en el momento de la reposición
+9.9. -Comisión por alquiler de datáfonos (POS) inalámbricos (GPRS o WiFi)
+- $10 mensuales por POS instalado
+- $10 mensuales adicionales si el SIM Card’s (chip) para dispositivos GPRS es aportado por el Banco.
+9.10. - Comisión por el servicio de Adquirencia para comercios afiliados
+- Categoría 1: Gasolineras, Combustibles y Derivados del Petroleo 1.5%.
+- Categoría 2: Supermercados, Minisúper, Pulperías, Abarrotes, Seguros, Gobierno, Organizaciones sin fines de lucro y Servicios Públicos 3%.
+- Categoría 3: Otros Comercios 5%
+9.11.-Cobro por la implementación de sistemas propietarios de facturación de un comercio afiliado
+- $5 mensuales por dispositivo implementado
+9.12. -Cobro por el servicio Plan 0% para los comercios afiliados
+- Para 3 meses 8,37%
+- Para 6 meses 11,83%
+- Para 9 meses 15.00%
+- Para 12 meses 17,80%
+- Para 16 meses 22,07%
+- Para 24 meses 24.52%
+(Así reformado mediante sesión N° 03-17 del 18 de enero del 2017)
 San José, 28 de noviembre del 2012.

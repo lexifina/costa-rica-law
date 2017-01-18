@@ -2,15 +2,18 @@
 5.1.- Carta de crédito de importación
 Apertura 0.45%, mínima $50.00
 Swift apertura $17.00
-Swift modificación $ 8.00
+Swift modificación $8.00
 Modificaciones $25.00 c/u, si es al valor se aplica la comisión de apertura.
+Discrepancias $15.00 (éste costo se traslada al exportador y se descuenta del monto a remesar y se aplica por cada negociación.)
+(Así reformado el punto anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 5.2.- Cobranzas de importación documentaria (cobranza del exterior)
 Cobranza 0.30% del monto, mínima $30.00, máxima $100.00
 Devolución $30.00
 Porte aéreo $5.00
-Traslado 50% de la comisión
+Traslado $50,00
 Swift $8.00
 Courier De acuerdo al destino y la tarifa del servicio Courier
+(Así reformado el punto anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 5.3.- Cobranza simple (cheques en dólares por cuentacorrentista)
 0.30%
 Mínima $25.00
@@ -20,20 +23,29 @@ Swift $8.00
 Porte aéreo $5.00
 5.4.- Cartas de crédito de exportación
 Confirmación 0.12% por cada mes o fracción. Mínima $45.00
+Discrepancias: $15.00
+Handling: $20.00
 Modificación $30.00 cada uno
 Negociación/pago 0.50%, mínima $60.00, máxima $550.00
 Aviso $40.00
+Traslado $50.00
 Swift $8.00
-Aviso traslado $30.00
+Anulación $30.00
+Aceptación 1% anual, mínima USD 60, Máxima USD 550
 Courier según el destino
-Traslado $35.00
+Descuento de Letra de Cambio para:
+1- Las carta de crédito confirmadas por un banco corresponsal
+2- El plazo no debe ser mayor a 1 año Tasa de interés:
+LIBOR 6 MESES + 6,25%.
+(Así reformado el punto anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 5.5.- Cobranzas al exterior (cobros sobre el exterior)
 Apertura y pago 0.25%
 Mínima $30.00
 Máxima $100.00
 Swift $8.00
+Handling: $20.00
 Courier de acuerdo al destino y tarifa del servicio Courier
-Porte aéreo $5.00
+(Así reformado el punto anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 5.6.- Cartas de garantía por cuenta corresponsal y Stand By
 Emisión o confirmación 0.125% por cada mes o fracción, mínima $30.00.
 La fracción se cobra por los días de exceso completos. En caso de excepción se aplica las atribuciones.
@@ -51,16 +63,16 @@ Modificaciones $30.00. Si cambia el monto inicial o en caso de extensión del pl
 Swift $17.00
 Pagos 1.0% cada pago, mínima $60.00, máxima $550.00
 (Así reformado el punto 5.7) anterior en sesión N° 44 del 14 de octubre de 2015)
-5.8. Órdenes de Pago
+5.8.- Órdenes de Pago
 5.8.1 Depósito en cuenta corriente/ ahorros, inversiones
-De $1.00 a $100.00 comisión $5.00
-De $100.01 a $2,000.00 comisión $15.00
+De $1.00 a $20 No hay comisión
+De $20.01 a $2,000.00 comisión $15.00
 De $2,000.01 a $30,000.00 comisión $25.00
 Más de $30,000.00 comisión $35.00
 5.8.2 Mensajes Swift:
 Mensaje Swift por trámites de órdenes de pago $10.00
 Investigaciones $5.00
-(Así reformado el punto 5.8) anterior en sesión N° 07-16 del 8 de febrero del 2016)
+(Así reformado el punto 5.8) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 5.9.- Transferencias
 Apertura 0.35% mínima $15.00, máxima $85.00
 Swift $8,00
@@ -102,11 +114,16 @@ De esta tarifa que cobra el BCR, se comparte el 50% con el Bank of New York
 5.15.- Envio estado de cuenta corriente por Swift
 $3.0 por cada estado de cuenta enviado.
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.16 al 5.15. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
-5.16.- Cartas de crédito de exportación avisadas
+5.16.-Cartas de crédito de exportación avisadas
 Aviso $40.00
 Swift $8.00
 Pago 0.25%, mínima $40.00 y máxima $100.00
+Traslado $50.00
+Handling: $20.00
+Anulación $30.00
+Aceptación 1% anual, mínima USD 60, Máxima USD 550
 (Así corrida su numeración en sesión 24-13 del 24 de junio del 2013, que lo traspaso del antiguo punto 5.17 al 5.16. Lo anterior porque se eliminó el punto 5.14 original denominado: "Pago de chequero viajero")
+(Así reformado el punto anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 5.17.- Negociación de divisas en el exterior diferentes al dólar de los Estados Unidos de América (Forex)
 Hasta el 1 % del tipo de cambio de negociación
 Mínimo $10.00
@@ -152,10 +169,13 @@ Comisión factor importador | Spread BCR
 0.01% hasta 1% | 1.00%
 1% en adelante | 1.50%
 (*)(Así adicionado el punto 5.20 anterior mediante sesión 46-14 del 20 de octubre del 2014)
-5.21 Factoreo local
-Colones: 1.00% anualizado por cada desembolso
-Dólares: 1.00% anualizado por cada desembolso
+5.21 Factoreo de importación
+5.21.1 Servicio completo de factoreo de importación
+[imagen]
+5.21.2 Transferencia min $40.00 hasta $100.00 ($30.00 Bank of America)
+5.21.3 Gestión de cobro 0.20% min $50.00
 (Así adicionado el punto 5.21) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Así reformado el punto 5.21) mediante sesión N° 03-17 del 18 de enero del 2017)
 5.22 Factoreo de importación
 5.22.1 Servicio completo de factoreo de importación
 Plazo (Días) | 15 | 30 | 45 | 60 | 90 | 120

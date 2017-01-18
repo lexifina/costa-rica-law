@@ -12,85 +12,68 @@ $10.001,00 a $25.000,00 | 150 | $1,00 c/u
 $25.001,00 a $100.000,00 | 300 | $1,00 c/u
 A partir de $100.001,00 | Sin Límite |
 (Así reformado el punto anterior mediante sesión 24-13 del 24 de junio del 2013)
-2.2.- Órdenes de no pago de cheques y depósitos a plazo
-Cheques $5.00
-Depósitos a plazo $7.00
-2.3.- Cierre de cuentas corrientes motivo del extravío de cheques
-$18.50
-2.4.- Certificación de cheques colones y dólares
+2 Productos de captación
+2.2.- Certificación de cheques colones y dólares
 $15.00
-2.5.- Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorias nacionales y extranjeras
+(Así reformado el punto 2.2) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.3.- Información sobre solicitudes de conformidades de saldos sobre cuentas corrientes y otras, hechas para firmas de auditorías nacionales y extranjeras
 $20.00
-2.6. Nota de débito generada por la devolución de un cheque defectuoso. (no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 2.21 de este mismo apartado).
+(Así reformado el punto 2.3) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.4.- Nota de débito generada por la devolución de un cheque defectuoso
+(no se incluyen cheques con fondos insuficientes a los cuales se les aplicará la tarifa establecida en el punto 2.14 de este mismo apartado)
 $4.00 más gastos del corresponsal.
-(Así reformado el punto 2.6) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.7.- Reapertura cuentas corrientes
-$18.50
-(Así reformado el punto 2.7) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.8.- Chequeras
-Colones y dólares $6.00
-(Así reformado el punto 2.8) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.9.- Traspaso de fondos entre cuentas corrientes y de ahorros manualmente en las plataformas
+(Así reformado el punto 24.4) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.5.- Chequeras
+Colones y Dólares $6.00
+(Así reformado el punto 2.5) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.6.- Traspaso de fondos entre cuentas corrientes y de ahorros de forma manual en las plataformas y mediante el servicio telefónico Tucán.
 $5.00 por cada traspaso excepto:
 - El cobro de la comisión cuando BCR Empresas o BCR Comercial este fuera de servicio o tengan problemas de clave.
 - A las empresas que por cambios administrativos, se queden sin firmas o autorizados para procesar BCR Empresas o BCR Comercial.
 - Cuando el cliente realice compras y ventas de dólares.
-(Así reformado el punto 2.9) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.10.- Cuentas corrientes y de ahorro inactivas (540 días de inactividad)
-2.10.1 Saldos inferiores a $20.00 (cuentas en colones)
-$5.00 cada mes hasta su liquidación
-2.10.2 Saldos inferiores a $ 50.00 (cuentas en dólares)
-$5.00 cada mes hasta su liquidación
-(Así reformado el punto 2.10) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.11. Buzón continúo
+(Así reformado el punto 2.6) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.7.- Cuentas corrientes y de ahorro inactivas (540 días de inactividad)
+2.7.1 Saldos inferiores a $50.00 (cuentas en colones)
+$10.00 cada mes hasta su liquidación
+2.7.2 Saldos inferiores a $ 50.00 (cuentas en dólares)
+$10.00 cada mes hasta su liquidación
+(Así reformado el punto 2.7) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.8.- Buzón continuo
 Bolso $30.00
 Llave $25.00
-(Así reformado el punto 2.11) anterior en sesión N° 07-16 del 8 de febrero del 2016)
-2.12. Confección y entrega de efectivo (diferentes nominaciones de billetes) a solicitud del cliente en ventanilla.
-2.12.1 Confección y entrega ventanilla
+(Así reformado el punto 2.8) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.9.- Confección y entrega de efectivo (diferentes denominaciones de billetes) a solicitud del cliente en ventanilla
+2.9.1 Confección y entrega ventanilla
 2.00% sobre el monto. Mínimo $20.00
-2.12.2 Confección y envío por transportadora de valores
+2.9.2 Confección y envío por transportadora de valores
 $18.00 la confección
 El envío de acuerdo a la tarifa con la empresa transportadora.
-Nota:
-Para entrega de monedas en bolsas predefinidas a solicitud del cliente, aplicará la comisión 2.18 establecida en este Reglamento.
-(Así reformado el punto 2.12) anterior en sesión 07-16 del 8 de febrero del 2016)
-2.13.- Por cada cheque que giren los intermediarios financieros. (bancos privados, empresas financieras no bancarias, cooperativas de ahorro y crédito, mutuales y puestos de bolsa)
-$4.00 suma que se cobrará el primer día hábil del mes siguiente.
-Esta tarifa será ajustada semestralmente.
-(Así reformado el punto 2.13) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.14.- Sobre el monto de cada cheque o transferencia cambiada en efectivo. Contra cuentas corrientes que mantengan los intermediarios financieros con la Institución en dólares y colones.
-0.35 % sobre el monto
-(Así reformado el punto 2.14) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.15.- Giro sobre otros valores (fondos utilizados respaldados en otros valores) mediante contrato con el cliente
-0.07% sobre los fondos utilizados en moneda nacional
-0.03% sobre recursos en moneda extranjera
-(Así reformado el punto 2.15) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.16.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros por medio de cheques)
+(Así reformado el punto 2.9) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.10.- Descongelamiento de fondos (descongelamiento de recursos depositados en cuenta corriente y cuenta de ahorros por medio de cheques)
 0.10% sobre los fondos utilizados en moneda nacional y moneda extranjera.
-(Así reformado el punto 2.16) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.17.- Retiro de efectivo en ventanilla, pensionados de la C.C.S.S.
-¢100.00 por cada retiro, para aquellas cuentas cuyo saldo semestral sea inferior a $500.
-(Así reformado el punto 2.17) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.18.- Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
-$2.00 para retiros menores o iguales a $200.00 (o su equivalente en colones). Para montos superiores a $200.00 un 1.00% sobre el monto.
-(Así reformado el punto 2.18) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.19.- Cancelación anticipada de los CDP desmaterializados y electrónicos colones y dólares
-Se requiere que el CDP posea como mínimo un 25% de permanencia en el plazo establecido cuando son menores a un año, para plazos mayores, su permanencia tendrá que ser como mínimo de tres meses. La comisión se cobra sobre el principal del CDP, más los intereses vigentes por pagar. Aplicando el 50% de la tasa pasiva vigente del día de la cancelación para el plazo original del CDP, multiplicando ese resultado por el número de días por vencer, dividido por 360. Comisión mínima $10.
-(Así reformado el punto 2.19) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.20.- Estados de cuenta corriente y cuenta de ahorros
+(Así reformado el punto 2.10) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.11.- Entrega de monedas en bolsas predefinidas exclusivo para clientes del BCR
+$2.00 para retiros menores o iguales a $200.00 (o su equivalente en colones).
+Para montos superiores a $200.00 un 1.00% sobre el monto.
+(Así reformado el punto 2.11) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.12.-Cancelación anticipada de los CDP desmaterializados y electrónicos colones y dólares
+Se requiere que el CDP posea como mínimo un 25% de permanencia en el plazo establecido cuando son menores a un año, para plazos mayores, su permanencia tendrá que ser como mínimo de tres meses. La comisión se cobra sobre el principal del CDP, más los intereses vigentes por pagar. Aplicando el 50% de la tasa pasiva vigente del día de la cancelación para el plazo original del CDP, multiplicando ese resultado por el número de días por vencer, dividido por 360.
+Comisión mínima $10.
+(Así reformado el punto 2.12) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.13.- Estados de cuenta corriente y de ahorros
 $2.00 máximo 2 folios, sobre excesos $0.50 por folio
-(Así reformado el punto 2.20) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.21.- Cheques rechazados por insuficiencia de fondos aplica tanto para los cheques emitidos como para los depositados en colones y dólares
+(Así reformado el punto 2.13) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.14.- Cheques rechazados por insuficiencia de fondos aplica tanto para los cheques emitidos como para los depositados en colones y dólares
 $20 más gastos del corresponsal
-(Así reformado el punto 2.21) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.22.- Venta de cheques de gerencia
+(Así reformado el punto 2.14) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.15.-Venta de cheques de gerencia
 $25.00
-(Así reformado el punto 2.22) anterior en sesión N° 44 del 14 de octubre de 2015)
-(*)2.23.- Recolección depósitos especiales en cuenta corriente
+(Así reformado el punto 2.15) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.16.- Recolección depósitos especiales en cuenta corriente
 1 - Para clientes cuyos depósitos son recolectados y contabilizados en las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), planillas preparadas y enviadas de las tesorerías regionales ubicadas en la Gran Área Metropolitana (GAM), a los clientes:
 Hasta ¢ 6.000.000.00 cobrar la suma de:
-a) $ 10.00 remeseras propias/recolección. Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula:
+a) $10.00 remeseras propias/recolección.
+Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula:
 (M.E./T.C.)*0.000572
 Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
 Este factor corresponde a los $2.00 por cada $3.500.00 adicionales.
@@ -98,7 +81,7 @@ Los montos sobre los cuales se realizaran los cobros, son los declarados por el 
 b) Con remeseras externas se cobrará el monto negociado con cada empresa adjudicataria, de conformidad con en el cartel de licitación y la oferta recibida por dichas empresas. (Según cuadro adjunto)
 2- Para clientes cuyos depósitos son recolectados, contabilizados, para planillas preparadas y enviadas en las tesorerías regionales ubicadas fuera de la (GAM) a los clientes:
 Hasta ¢6.000.000.00 cobrar la suma de:
-a) $ 13.00 remeseras propias/recolección.
+a) $13.00 remeseras propias/recolección.
 Sobre el exceso de los ¢6.000.000.00 se aplicará la siguiente fórmula:
 (M.E./T.C.)*0.000572
 Monto del excedente, dividido entre el tipo de cambio de venta del dólar del último día hábil del mes por 0.000572.
@@ -112,31 +95,66 @@ Vargas Mejía (VMA)
 Proval
 [imagen]
 [imagen]
+(Así reformado el punto 2.16) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.17.-Retiro de efectivo en ventanilla, pensionados de la C.C.S.S.
+¢100.00 por cada retiro, para aquellas cuentas cuyo saldo semestral sea inferior a $500.
+2.17.- Comisión para la entrega de efectivo para instituciones del sector
+financiero
+Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
 [imagen]
-(*) (Así reformado el punto 2.23) anterior en sesión N° 21 del 23 de mayo de 2016)
-2.24.- Comisión para la recepción de efectivo para instituciones del sector financiero
-Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-(Así reformado el punto 2.24) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.25- Comisión para la entrega de efectivo para instituciones del sector financiero
-Nota: la tabla para el cálculo de la comisión se encuentra disponible en SOMOS BCR/DOCUBCR/Formularios.
-(Así reformado el punto 2.25) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.26.- Comisión por sobregiros accidentales. Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
+(Así reformado el punto anterior mediante sesión N° 03-17 del 18 de enero del 2017. Se publica dos veces el punto 17, por lo que se transcriben ambas reformas)
+2.18.- Comisión por sobregiros accidentales
+Se cobrará tasa para los sobregiros, proporcional al número de días de su utilización.
 Mínimo $10.00
-(Así reformado el punto 2.26) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.27.- Aplicación de embargo judicial en cada cuenta embargada
-$10.00
-(Así reformado el punto 2.27) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.28.- Traspaso de un CDP desmaterializado a un CDP físico negociable
-Comisión administrativa $5.00
-(Así reformado el punto 2.28) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.29.- Reposición de títulos, certificados y bonos. Reposición certificados de depósito: 0.25% sobre el valor del título con un mínimo de $7.50 y un máximo de $74.50.
-(Así reformado el punto 2.29) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.30.- Traslado de expedientes judiciales a cuenta corriente o ahorros para cobros masivos
+(Así reformado el punto 2.18) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.19.-Traslado de expedientes judiciales a cuenta corriente o ahorros para cobros masivos
 $1.00 por traspaso
-(Así reformado el punto 2.30) anterior en sesión N° 44 del 14 de octubre de 2015)
-2.31.- Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas y entidades financieras y no financieras
+(Así reformado el punto 2.19) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.20.-Cuentas corrientes y de ahorro del BCR, utilizadas por emisores de tarjetas y entidades financieras y no financieras
 $4.00 por cada movimiento (débitos y créditos) sean estos físicos o electrónicos, a todas las cuentas bancarias que se compruebe que están utilizando la infraestructura (oficinas y canales electrónicos) del BCR, como instrumentos para el desarrollo de sus negocios financieros.
-(Así reformado el punto 2.31) anterior en sesión N° 44 del 14 de octubre de 2015)
+(Así reformado el punto 2.20) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.21.-Órdenes de pago (transferencia) a otras oficinas bancarias
+Colones y dólares mínimo $3.00
+Montos %
+Hasta $200.00 2.0%
+Exceso $201.00 a $1.800.00 1.5%
+Exceso de $1,801.00 en adelante 0.5%
+(Así reformado el punto 2.21) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.22.-Servicio de investigación de documentos o información que solicitan los clientes, para localizar comprobantes de caja y otros
+2.22.1 Copias de microfilm $6.00 primeras 5 páginas y $1.20 por cada hoja adicional.
+2.22.2 Comprobantes de caja, imágenes digitalizadas y otros $2.00 máximo tres fotocopias, $0.50 por folio adicional.
+(Así reformado el punto 2.22) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.23.-Comisión por retiros masivos de sumas en expedientes judiciales en ventanilla
+Se cobrará $ 2.00 por cada retiro en ventanilla
+Nota:
+Se considera un retiro masivo a partir de 10 retiros, el cobro aplica sólo cuando el beneficiario de las sumas sean personas jurídicas.
+(Así reformado el punto 2.23) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.24.-Nota de débito en cuenta corriente, para retiro de efectivo en ventanilla
+Costo de la comisión por cada nota de débito $ 5.00
+Nota:
+Se exceptúa del pago de esta comisión a aquellas cuentas cuyo saldo promedio semestral sea mayor a $1.000. o su equivalente en colones y cuando el retiro solicitado por el cliente supere el monto permitido a dispensar por nuestros ATM´S.
+(Así reformado el punto 2.24) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.25.- Comisión por planilla mediante depósitos en ventanilla
+El cliente podrá solicitar cuatro depósitos sin costo adicional. Las solicitudes de cinco o más depósitos se consideran una planilla, por lo que tendrá un costo de $1.00 por cada depósito realizado.
+(Así reformado el punto 2.25) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.26.- Comisión por retiro anticipado de un plan de ahorro automático
+Aplica la comisión del 3% sobre la totalidad del saldo ahorrado (principal más intereses), para los planes de ahorro automático cuyo plazo sea igual o superior a 6 meses y se cancelen antes de los 180 días de permanencia.
+(Así reformado el punto 2.26) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.27- Aplicación de planillas judiciales con fondos trasladados mediante Sinpe (no clientes BCR)
+$0.50 por cada registro
+(Así reformado el punto 2.27) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.28- Pago de cheque viajero
+1%, mínima $2.00. Esta comisión se cobra sobre el monto del cheque
+(Así reformado el punto 2.28) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.29- Pago de servicios públicos de forma masiva en ventanilla
+El cliente podrá solicitar cuatro pagos de servicios sin costo adicional. Las solicitudes de cinco o más pagos de servicios se consideran masivos, por lo que tendrá un costo de $1.00 por cada pago de servicio adicional cancelado.
+(Así reformado el punto 2.29) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.30- Venta de monedas en máquinas
+1% sobre la venta, sin importar el monto.
+(Así reformado el punto 2.30) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
+2.31.- Cobro de comisión por cheque tramitados a través de la Cámara de Compensación
+$1.00 el primer año y $0.5 de incremento adicional por cada año consecutivamente. Dicha comisión fue establecida por el Banco Central de Costa Rica.
+(Así reformado el punto 2.31) anterior mediante sesión N° 03-17 del 18 de enero del 2017)
 2.32.- Órdenes de pago (transferencia) a otras oficinas bancarias
 -Colones y dólares mínimo $3.00
 Montos %
