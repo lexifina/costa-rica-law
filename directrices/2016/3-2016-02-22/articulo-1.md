@@ -14,14 +14,14 @@ Notificación, disposiciones generales:
 a. El administrado podrá señalar únicamente dos medios o lugares de notificación, pero debe indicar en forma expresa, cuál de ellos usará como principal. Si el administrado omite tal indicación, el Registro tendrá a cargo la escogencia, de conformidad con el artículo 36 de la Ley de Notificaciones Judiciales.
 I. Notificación por medios electrónicos:
 a. De acuerdo con el artículo 3 del decreto ejecutivo número 30233-J denominado Reglamento de la Ley de Marcas y Otros Signos Distintivos, el artículo 243 de la Ley General de Administración Pública N° 6227,los artículos 1°, 3° y concordantes de la Ley de Notificaciones Judiciales, el artículo 6° inciso 3) de la Ley de Patentes de Invención, Dibujos y Modelos Industriales y Modelos de Utilidad y los artículos 5° inciso 6) y 33) del Reglamento a esta Ley, el Registro de la Propiedad Industrial está facultado para notificar por medios electrónicos, los autos, las prevenciones y las resoluciones, así como cualquier otro asunto oficial, mediante la utilización de la firma digital inserta en los documentos o bien por medio de su escaneo y envío en formato PDF o semejante.
-b. Para el envío oficial de notificaciones se han habilitado por parte de las distintas dependencias del Registro de la Propiedad Industrial los siguientes correos electrónicos:
-í Oficina de Marcas de Ganado: NotificacionGanado@ rnp.go.cr
-í Oficina de Marcas Comerciales: NotificacionMarcas1@ rnp.go.cr, NotificacionMarcas2@rnp.go.cr
-í Oficina de Patentes de Invención: NotificacionPatentes@ rnp.go.cr
-● Oficina de Marcas Comerciales del Registro de la Propiedad Industrial: NotificacionMarcas3@rnp.go.cr
-(Así adicionado el punto anterior por directriz DPI-0004-2016 del 6 de julio de 2016)
-● Oficina de Marcas Comerciales del Registro de la Propiedad Industrial: NotificacionMarcas4@rnp.go.cr
-(Así adicionado el punto anterior por directriz DPI-0004-2016 del 6 de julio de 2016)
+(*) b. Para el envío oficial de notificaciones se han habilitado por parte de las distintas dependencias del Registro de la Propiedad Industrial los siguientes correos electrónicos:
+• notificacionrpi1@rnp.go.cr
+• notificacionrpi2@rnp.go.cr
+• notificacionrpi3@rnp.go.cr
+• notificacionrpi4@rnp.go.cr
+• notificacionrpi5@rnp.go.cr
+• notificacionrpi6@rnp.go.cr
+(*)(Así reformado el punto b) anterior mediante directriz N° DPI-0001-2017 del 18 de enero del 2017)
 c. Los documentos se tendrán por notificados al administrado a partir del día hábil siguiente a su envío y el plazo empezará a correr el día hábil siguiente. Para la comprobación de la notificación, el Departamento de Diario y Notificaciones adjuntará al expediente el comprobante de envío electrónico.
 (Así reformado el punto anterior mediante directriz N° DRPI-0005-2016 del 22 de julio del 2016)
 d. En caso de que el envío del correo electrónico sea fallido por causas ajenas al Registro de la Propiedad Industrial, se intentará enviar la notificación al medio señalado como subsidiario (en caso de que haya sido señalado). De no lograrse la notificación al medio subsidiario, se tendrá por notificado con el comprobante de envío, transmisión electrónica o la respectiva constancia, salvo que se demuestre que ello se debió a causas no imputables al interesado.

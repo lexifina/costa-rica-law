@@ -16,3 +16,4 @@ Notificaciones: Disposiciones generales, notificación por medios electrónicos 
 | 1 | 2016-04-06 | la propia norma |
 | 2 | 2016-07-06 | Directriz 4 (2016-07-06) |
 | 3 | 2016-07-22 | Directriz 5 (2016-07-22) |
+| 4 | 2017-01-18 | Directriz 1 (2017-01-18) |
