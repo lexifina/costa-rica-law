@@ -1,0 +1,2 @@
+ARTÍCULO 48º. Derogatoria y vigencia. El presente Reglamento rige a partir de su publicación en el diario oficial La Gaceta y deroga cualquier otra disposición legal que se le oponga.
+Este Reglamento fue debidamente aprobado por el Concejo Municipal por medio del acuerdo Nº 304, que consta en el artículo 08 inciso 01, Capítulo IV Asuntos de Trámites Urgentes del acta de la sesión ordinaria Nº 263-2015, celebrada el día 14 de mayo del 2015, aprobación de la Contraloría General de la República, en oficio no. 09018 (DFOE-DL-0702) de fecha 26 de junio del 2015.
