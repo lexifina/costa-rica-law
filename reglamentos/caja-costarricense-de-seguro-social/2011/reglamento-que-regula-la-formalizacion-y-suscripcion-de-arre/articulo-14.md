@@ -1,1 +1,0 @@
-Artículo 14.—De la vigencia. Rige a partir de su publicación y deroga el Reglamento que regula la formalización y suscripción de arreglos y convenios de pago de las contribuciones a la seguridad social, publicado en el Diario Oficial La Gaceta Nº 50 del 12 de marzo del año 2009 y que fue aprobado en el artículo 9º de la sesión Nº 8323, celebrada el 5 de marzo del año 2009.
