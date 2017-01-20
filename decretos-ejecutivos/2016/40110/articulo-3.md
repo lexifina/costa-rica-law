@@ -1,0 +1,2 @@
+Artículo 3. Del Consejo Regional y el Consejo Local:
+Estos Consejos coadyuvarán en la gestión y manejo del Parque Nacional Cahuita, con el objetivo de lograr la conservación y uso sostenible de la biodiversidad, la distribución justa y equitativa de los beneficios, la participación de los diferentes actores y sectores sociales, el cumplimiento de los indicadores de buena gobernanza y el buen entendimiento entre la comunidad y las autoridades competentes.

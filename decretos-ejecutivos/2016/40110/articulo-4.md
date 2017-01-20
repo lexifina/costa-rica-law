@@ -1,0 +1,7 @@
+Artículo 4. Objetivos del Consejo Local para la implementación del Modelo de Gobernanza Compartida del Parque Nacional Cahuita:
+a) Fortalecer el vínculo social, cultural, biológico y económico que existe entre el territorio en que se estableció el Parque Nacional Cahuita, la comunidad y las autoridades competentes.
+b) Coadyuvar al Consejo Regional del Área de Conservación La Amistad Caribe (CORAC) y el Área de Conservación la Amistad Caribe (ACLAC) en la aplicación y cumplimiento del Plan General de Manejo del Parque Nacional Cahuita y los instrumentos técnicos de gestión, manejo y planificación que permitan alcanzar objetivos de conservación del patrimonio histórico, cultural y biológico del Parque Nacional Cahuita y de la comunidad.
+c) Coadyuvar en la resolución de los conflictos que se presenten, procurando el consenso y la participación en relación a la gestión y manejo del Parque Nacional.
+d) Promover la educación ambiental tanto formal como informal, para fortalecer las capacidades y el conocimiento de la comunidad.
+e) Fomentar la participación de los diferentes sectores de la comunidad, para lograr la conservación, el uso sostenible y la distribución justa y equitativa de los beneficios derivados de la conservación, de acuerdo al marco normativo vigente.
+f) Establecer mesas de consulta y diálogo sectoriales sobre los temas de interés, para la gestión del Parque Nacional.

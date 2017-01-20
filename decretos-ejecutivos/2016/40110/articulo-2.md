@@ -1,0 +1,2 @@
+Artículo 2. Modelo de Gobernanza Compartida
+El Poder Ejecutivo reconoce y oficializa el Modelo de Gobernanta Compartida en el Parque Nacional Cahuita, en virtud de que se ha venido desarrollando desde hace más de veinte años, en donde los actores locales han compartido en conjunto con el Sistema Nacional de Áreas de Conservación (SINAC) las responsabilidades, la toma de decisiones y los beneficios de esta Área Silvestre Protegida.
