@@ -1,0 +1,1 @@
+Artículo 8.- Seguridad Vial. En todo este proceso se fortalecerá en la ciudadanía el componente de la seguridad vial, para resguardar la integridad de las personas y el cumplimiento de la normativa mediante todas las acciones y trabajos de información necesarios para garantizarla.

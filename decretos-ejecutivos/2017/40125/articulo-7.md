@@ -1,0 +1,1 @@
+Artículo 7. Sanciones. El incumplimiento de las disposiciones contenidas en el presente decreto será sancionado de conformidad con la Ley de Tránsito por Vías Públicas Terrestres y Seguridad Vial N° 9078, sin perjuicio de las sanciones conexas, al conductor que infrinja las disposiciones relativas a la restricción de paso aquí regulada.

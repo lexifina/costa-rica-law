@@ -1,0 +1,2 @@
+Artículo 9.- Plazo de vigencia. La vigencia para la aplicación del presente Decreto, surtirá efectos a partir de su publicación en el Diario Oficial La Gaceta y estará supeditada a la conclusión de las labores programadas, para la reparación del puente sobre el Río Virilla. en el sector de la autopista General Cañas.
+Dado en la Presidencia de la República- San José, a los trece días del mes de enero del año dos mil diecisiete.

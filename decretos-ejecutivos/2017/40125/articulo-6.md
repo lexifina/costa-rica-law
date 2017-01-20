@@ -1,0 +1,1 @@
+Artículo 6.- Demarcación y/o señalización. Será competencia de la Dirección General de Ingeniería de Tránsito, demarcar, rotular y señalizar, en forma nítida, perfectamente visible, diferenciada y razonablemente continúa, el área sujeta a restricción de paso vehicular.
