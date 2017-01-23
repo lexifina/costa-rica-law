@@ -1,0 +1,1 @@
+Artículo 2º—Se derogan el artículo 44, los dos últimos párrafos del artículo 51, el artículo 64, el inciso o) del artículo 73, y el 148, todos del Reglamento Autónomo de Organización y Servicios de la Municipalidad de Orotina, publicado en La Gaceta N° 70 del 11 de abril de 2007.”
