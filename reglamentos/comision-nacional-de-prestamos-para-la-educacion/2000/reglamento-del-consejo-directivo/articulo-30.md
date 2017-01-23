@@ -1,0 +1,2 @@
+Artículo 30.—Las sesiones virtuales o no presenciales, tendrán carácter de excepcionalidad, especialidad o urgencia que requieran una atención inmediata y puede realizarse cuando concurran circunstancias extraordinarias y a condición de que los medios empleados permitan una integración plena dentro de la sesión, a efecto de que se mantenga la simultaneidad en la deliberación.
+(Así adicionado en sesión N° 03-01-2017 del 23 de enero de 2017)

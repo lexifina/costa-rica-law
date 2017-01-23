@@ -14,3 +14,4 @@ Reglamento del Consejo Directivo
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2001-12-03 | la propia norma |
+| 2 | 2017-01-23 | Reglamento 3 (2017-01-23) |
