@@ -1,1 +1,2 @@
-Artículo 17.—Aseguramiento total de la transparencia radio-eléctrica: Los trabajos de mimetización o camuflaje en telecomunicaciones deben garantizar la total transparencia radio-eléctrica, es decir, producir un efecto mínimo en el coeficiente de reflexión y aislamiento de las antenas, lo que permite una correcta emisión y recepción de la señal.
+Artículo 17.-El establecimiento de los cascos centrales de cada distrito del cantón de Esparza, será definido por el Plan Regulador vigente, o en su defecto por la Gestión de Ordenamiento Territorial de la Municipalidad de Esparza.
+(Así reformado en acta N° 39 del 23 de enero de 2017)

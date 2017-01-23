@@ -14,3 +14,4 @@ Reglamento General para Licencias Municipales en Telecomunicaciones de la Munici
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2011-09-06 | la propia norma |
+| 2 | 2017-01-23 | Reglamento municipal 0 (2017-01-23) |
