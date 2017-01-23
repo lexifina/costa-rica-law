@@ -1,1 +1,0 @@
-Artículo 7º—La solicitud y adquisición de Bienes y Servicios deberá ser liquidada en un plazo máximo de 2 días hábiles siguientes a su entrega, de lo contrario no se entregara una segunda solicitud y adquisición de Bienes y Servicios a funcionarios que tengan pendiente el liquidar la primera.
