@@ -1,1 +1,0 @@
-Artículo 110.—Homologación de Terminales de telefonía pública. Los terminales telefónicos de uso público y equipos de telecomunicaciones que se utilicen para la prestación del servicio de telefonía pública, deberán cumplir con las disposiciones legales en materia de normalización, certificación y homologación, establecidas por Sutel, en forma previa a su operación.

@@ -1,1 +1,0 @@
-Artículo 126.—Puesta a tierra de los cables en el distribuidor principal (MDF). Las pantallas de los cables en el distribuidor principal se deben aterrizar a la barra de pantallas (BTP) en sentido de la descarga hacia la barra colectora de tierras (CEGB) ubicada en la galería de cables o fosa.

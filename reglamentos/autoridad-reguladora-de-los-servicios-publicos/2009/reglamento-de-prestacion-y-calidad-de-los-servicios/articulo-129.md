@@ -1,1 +1,0 @@
-Artículo 129.—Puesta a tierra del mensajero del cable telefónico. Para el caso de redes aéreas que comparten la misma postería con redes de distribución eléctrica, el mensajero del cable debe estar conectado al sistema de puesta a tierra telefónico.

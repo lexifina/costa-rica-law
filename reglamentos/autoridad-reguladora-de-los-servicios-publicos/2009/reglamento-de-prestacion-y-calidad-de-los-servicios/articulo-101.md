@@ -1,2 +1,0 @@
-Artículo 101.—Acceso a números especiales, plataformas de servicios de telecomunicaciones disponibles al público y de emergencia. Se deberá asegurar para todos los servicios de Telefonía IP el acceso sin ningún tipo de restricción a los números telefónicos de servicios de emergencia, plataformas prepago, números especiales, centros de telegestión, cobro revertido de llamadas, números gratuitos y demás destinos aprobados por la Sutel.
-No se podrán prestar servicios de Telefonía IP que tengan restricciones en sus comunicaciones a destinos específicos o a plataformas del SNT.

@@ -1,1 +1,0 @@
-Artículo 12.—Parámetros técnicos del servicio. Son los relacionados con los aspectos de operación técnica de los servicios brindados por los operadores o proveedores, que permiten cuantificar las condiciones de calidad y continuidad del servicio. Estos parámetros se establecen en la presente reglamentación con base en normativa internacional.

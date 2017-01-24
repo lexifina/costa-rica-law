@@ -1,1 +1,0 @@
-Artículo 130.—Protección eléctrica de la caja de dispersión. La puesta a tierra en las cajas de dispersión se debe instalar en los principios y finales de la red, así como en las bifurcaciones donde existan cajas.
