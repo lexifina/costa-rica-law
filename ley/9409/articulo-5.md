@@ -1,0 +1,1 @@
+ARTÍCULO 5.- El levantamiento de los gravámenes ante el Registro Público. relacionados con las operaciones que vayan a condonarse en su totalidad , lo realizará el Instituto de Desarrollo Rural (lnder) a título gratuito, como parte de su actividad ordinaria, vía exhorto o por el mecanismo tecnológico que el Instituto establezca con el Registro Público para tales fines.
