@@ -1,0 +1,1 @@
+ARTÍCULO 6.- Se autoriza al Instituto de Desarrollo Rural (lnder) para que gire al Fondo de Desarrollo Rural los recursos recibidos por concepto de pagos realizados, que no hayan sido aplicados a las operaciones respectivas por no poderse identificar el deudor .
