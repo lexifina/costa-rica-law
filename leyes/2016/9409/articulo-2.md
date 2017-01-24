@@ -1,0 +1,1 @@
+ARTÍCULO 2.- El Instituto de Desarrollo Rural (lnder) procederá, de oficio, a la condonación total de las deudas, de aquellas obligaciones de personas físicas o jurídicas beneficiarias de tierra, cuyo monto total adeudado a la fecha de entrada en vigencia de esta ley sea inferior o igual a seis millones de colones.

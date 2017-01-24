@@ -1,0 +1,1 @@
+ARTÍCULO 3.- Las personas físicas o jurídicas, cuyo monto total adeudado a la fecha de entrada en vigencia de esta ley sea superior a seis millones, podrán solicitar ante el Instituto de Desarrollo Rural (lnder) la condonación de un cincuenta por ciento (50%) de sus deudas.
