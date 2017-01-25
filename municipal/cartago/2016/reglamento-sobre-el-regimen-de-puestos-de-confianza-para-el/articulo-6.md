@@ -1,0 +1,1 @@
+Artículo 6º—Cantidad de puestos de confianza. El número de puestos de confianza para cada fracción política se encuentra supeditado a la inclusión de recursos financieros en el presupuesto municipal de cada año. La Secretaria del Concejo, coordinará a satisfacción de las fracciones, la asignación del personal.

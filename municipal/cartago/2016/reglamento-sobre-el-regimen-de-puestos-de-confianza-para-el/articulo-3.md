@@ -1,0 +1,1 @@
+Artículo 3º—Libre remoción. La fracción política que seleccione la persona bajo puesto de confianza podrá rescindir el contrato en cualquier momento, por lo cual tiene libertad de remoción, y deberá comunicarlo a la instancia administrativa municipal con las razones de la decisión para que proceda a formalizar la terminación del contrato.

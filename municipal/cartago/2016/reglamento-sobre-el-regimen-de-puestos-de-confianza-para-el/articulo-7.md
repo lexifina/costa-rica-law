@@ -1,0 +1,5 @@
+Artículo 7º—Estructura salarial. La estructura salarial de los puestos de confianza será determinada por el Departamento de Recursos Humanos de la Municipalidad, tomando como parámetro la escala de puestos vigente siguiente:
+a) Oficinista 1, cuyo requisito académico mínimo será primer y segundo ciclo aprobado de la Educación General Básica, y salario equiparado a la clase de Trabajador de Servicio 1, de la Municipalidad de Cartago.
+b) Auxiliar administrativo, cuyo requisito académico será de Educación Media concluida, y el salario equiparado a la clase de un Auxiliar Administrativo, de la Municipalidad de Cartago.
+c) Asesor 1: Cuyo requisito académico será de un licenciado universitario, debidamente incorporado al colegio profesional respectivo y su salario estará equiparado a la clase de un Profesional 1 de la Municipalidad de Cartago. Los asesores que cumplan con el requisito académico de licenciado podrán optar por los beneficios que otorga la Municipalidad para esos puestos, conforme a la legislación vigente.
+Todo de acuerdo al Manual descriptivo de Puestos y escala salarial de la Municipalidad de Cartago.

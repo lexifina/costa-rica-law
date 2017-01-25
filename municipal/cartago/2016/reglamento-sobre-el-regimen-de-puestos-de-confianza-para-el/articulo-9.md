@@ -1,0 +1,1 @@
+Artículo 9º—Requisitos académicos. Los requisitos académicos y de experiencia, serán establecidos de acuerdo con las razones objetivas de necesidad del área contratante con relación a las funciones por desempeñar y el salario que se fije, de conformidad con el artículo 7 del presente reglamento.
