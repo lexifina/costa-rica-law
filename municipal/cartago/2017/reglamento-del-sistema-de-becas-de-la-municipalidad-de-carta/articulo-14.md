@@ -1,0 +1,1 @@
+Artículo 14.—A criterio de la CPAS, en casos muy calificados se podrá recibir alguno de los documentos fuera del plazo establecido para la presentación, siempre y cuando no se exceda de la fecha con que cuenta la Comisión para rendir el dictamen indicado en el artículo 3 de este Reglamento. La solicitud de beca no se tramitará hasta que la documentación haya sido completada.

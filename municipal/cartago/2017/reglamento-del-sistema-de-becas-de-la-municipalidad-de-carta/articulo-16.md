@@ -1,0 +1,2 @@
+Artículo 16.—Una vez presentados los formularios de becas ante la Secretaría de la CPAS y verificado el cumplimiento de los requisitos de ley, dicha Comisión emitirá el dictamen señalado en el artículo 3 de este Reglamento.
+Para garantizar que la asignación de la beca cumpla con los fines de este Sistema, la CPAS podrá solicitar la asesoría y colaboración de los entes internos y externos que considere idóneos.

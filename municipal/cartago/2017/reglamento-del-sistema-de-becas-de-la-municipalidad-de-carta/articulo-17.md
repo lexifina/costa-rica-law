@@ -1,0 +1,1 @@
+Artículo 17.—En casos extraordinarios, a criterio del Concejo Municipal, se podrán asignar hasta dos becas en un solo grupo familiar, cuando las condiciones socioeconómicas de la familia lo justifiquen, basados en los índices de pobreza y pobreza extrema que establece el INEC.

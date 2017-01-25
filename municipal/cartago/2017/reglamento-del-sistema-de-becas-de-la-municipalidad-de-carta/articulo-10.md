@@ -1,0 +1,1 @@
+Artículo 10.—Las hijas e hijos de las personas funcionarias municipales podrán optar por las becas municipales, siempre y cuando cumplan con todos los requisitos establecidos en este Reglamento y en el Código Municipal.
