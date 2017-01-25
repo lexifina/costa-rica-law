@@ -1,0 +1,1 @@
+Artículo 13.—De las modificaciones al Reglamento: El IMAS se reserva el derecho de adicionar o modificar, en cualquier momento, las disposiciones de este reglamento; las cuales deberá someter al trámite de conocimiento de la Secretaria Técnica de la Autoridad Presupuestaria.

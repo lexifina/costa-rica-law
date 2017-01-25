@@ -1,0 +1,1 @@
+Artículo 16.—De la aprobación: El presente Reglamento fue aprobado mediante Acuerdo de Consejo Directivo, N° 728-12-2016, Artículo sétimo del Acta N° 73-12-2016 de fecha 19 de diciembre de 2016 y ratificado mediante Acuerdo de Consejo Directivo, N° 728-12-2016, Artículo Cuarto del Acta N° 22-E-12-2016 de fecha 20 de diciembre de 2016, y oficio STAP-0027-2017.
