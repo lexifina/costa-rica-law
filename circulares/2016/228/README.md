@@ -13,3 +13,4 @@ Obligación de los jueces y las juezas quienes ejercen la Coordinación de las o
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-12-20 | la propia norma |
+| 2 | 2017-01-26 | Circular 5 (2017-01-26) |
