@@ -14,3 +14,4 @@ Reglamento de la Sección Especializada del Tribunal Supremo de Elecciones que t
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-06-03 | la propia norma |
+| 2 | 2017-01-26 | Decreto TSE 1 (2017-01-26) |
