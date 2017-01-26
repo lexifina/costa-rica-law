@@ -1,0 +1,1 @@
+Artículo 2°—En todos los demás aspectos no considerados en esta modificación, se mantiene invariable el Manual de Procedimientos para el Pago de los Servicios Ambientales vigente, publicado en el N° 46 del día viernes 6 de marzo del 2009.
