@@ -1,0 +1,1 @@
+Artículo 4º—Se insta a las organizaciones de la sociedad civil a sumarse a la preparación y las conmemoraciones del Día Nacional del Manatí (Trichechus manatus), sin menoscabo de sus propias iniciativas.

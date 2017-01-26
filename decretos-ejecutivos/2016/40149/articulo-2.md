@@ -1,0 +1,1 @@
+Artículo 2º—El Ministerio de Ambiente y Energía por medio del Sistema Nacional de Áreas de Conservación, coordinará y determinará a lo interno, los planes, programas o actividades mediante las cuales se conmemore el Día Nacional del Manatí (Trichechus manatus).

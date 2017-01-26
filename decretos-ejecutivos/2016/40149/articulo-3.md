@@ -1,0 +1,1 @@
+Artículo 3º—Se autorizan a las instituciones públicas para que preparen y conmemoren el Día Nacional del Manatí (Trichechus manatus), mediante actividades que contribuyan a crear conciencia en la protección de los recursos naturales presentes en el territorio nacional.
