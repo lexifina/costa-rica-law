@@ -98,3 +98,4 @@ articulo-97.md
 articulo-98.md
 articulo-1-transitorio.md
 articulo-2-transitorio.md
+articulo-3-transitorio.md

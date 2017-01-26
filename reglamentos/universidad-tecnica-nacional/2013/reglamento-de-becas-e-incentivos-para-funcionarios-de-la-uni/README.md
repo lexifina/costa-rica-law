@@ -15,3 +15,4 @@ Reglamento de becas e incentivos para funcionarios de la Universidad Técnica Na
 | --- | --- | --- |
 | 1 | 2014-04-14 | la propia norma |
 | 2 | 2016-08-10 | Reglamento 0 (2016-08-10) |
+| 3 | 2017-01-26 | Reglamento 2 (2017-01-26) |
