@@ -1,0 +1,1 @@
+2º—Autorizar al Ministerio de Obras Públicas y Transportes, para que proceda a la venta del bien inmueble antes descrito, de conformidad con lo establecido por el artículo 68 de la Ley de Contratación Administrativa y el 25 y 26 de la Ley General de Caminos Públicos.
