@@ -18,3 +18,4 @@ Directrices Generales de Política Presupuestaria, Salarial, Empleo, Inversión 
 | 3 | 2016-12-07 | Decreto Ejecutivo 40104 (2016-12-07) |
 | 4 | 2017-01-09 | Decreto Ejecutivo 40165 (2017-01-09) |
 | 5 | 2017-01-12 | Decreto Ejecutivo 40185 (2017-01-12) |
+| 6 | 2017-01-27 | Decreto Ejecutivo 40194 (2017-01-27) |
