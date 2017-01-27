@@ -1,0 +1,1 @@
+Transitorio I.- Las disposiciones incluidas en la presente reforma, serán de aplicación únicamente para los procedimientos bajo la modalidad de convenio marco, cuya decisión inicial sea posterior a su vigencia.

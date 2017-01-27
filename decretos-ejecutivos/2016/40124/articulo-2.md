@@ -1,0 +1,1 @@
+Artículo 2.- Corrección de numeración. Corríjase la numeración, de los actuales artículos 116 y siguientes del Reglamento a la Ley de Contratación Administrativa Decreto Ejecutivo N° 33411 del 27 de setiembre de 2006, para que se numeren sucesivamente a partir del numeral 124.
