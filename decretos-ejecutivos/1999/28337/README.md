@@ -14,3 +14,4 @@ Reglamento sobre Políticas y Estrategias para la Modernización del Transporte 
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2000-01-03 | la propia norma |
+| 2 | 2017-01-27 | Decreto Ejecutivo 40186 (2017-01-27) |
