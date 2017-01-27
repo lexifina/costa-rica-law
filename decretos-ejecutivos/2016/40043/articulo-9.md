@@ -1,0 +1,5 @@
+Artículo 9—Los CLCB son espacios de participación establecidos para la gestión y consolidación de los Corredores Biológicos. Deberán estar integrados al menos por los siguientes sectores: un representante del SINAC, Organizaciones No Gubernamentales, organizaciones de base, productivo, institucional gubernamental, municipalidades y privado: también podrán participar otros actores interesados. El enlace de CB de SINAC fungirá como Secretario del Comité.
+Su nivel de complejidad y de institucionalidad consistirá en potenciar la canalización de recursos de cooperación técnica y financiera, y asistencia técnica. Deberán contar con un reglamento aprobado en su seno.
+Serán instancias reconocidas por los Consejos Regionales de las Áreas de Conservación.
+Una vez electos los miembros del CLCB, el Director del Área de Conservación los convocará para ser juramentados.
+Para el desarrollo de las sesiones, adopción y votación de acuerdos, levantamiento de actas se regirán por lo dispuesto, en la Ley General de la Administración Pública y lo que se establezca en su propio reglamento de organización.

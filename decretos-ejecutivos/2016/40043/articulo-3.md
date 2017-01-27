@@ -1,0 +1,3 @@
+Artículo 3°—El PNCB tendrá por objetivo general la promoción de la conservación y
+uso sostenible de la biodiversidad en Costa Rica, desde Una perspectiva de conectividad ecosistémica funcional estructural.
+Como objetivos específicos. tendrá el fortalecimiento de las áreas protegidas y su conectividad, de las medidas de adaptación y mitigación al cambio climático, del mantenimiento de los servicios ecosistémicos, la planificación y la gestión urbana y de la articulación con otros sectores, de los modelos de participación gobernanza en la conservación y uso sostenible de la biodiversidad. para el beneficio de la sociedad.
