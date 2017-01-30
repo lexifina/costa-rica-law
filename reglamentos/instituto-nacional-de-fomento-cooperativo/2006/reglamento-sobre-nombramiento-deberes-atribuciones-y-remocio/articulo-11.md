@@ -1,13 +1,9 @@
-Artículo 11.—Prohibiciones. Los representantes del INFOCOOP no deberán:
-a. Tener relación de parentesco por consanguinidad o afinidad hasta tercer grado con los Gerentes o miembros del Consejo de Administración del Organismo Cooperativo y de las organizaciones afiliadas a él, o de la estructura de control que sea asignada en el proyecto de participación asociativa o coinversión.
-b. Aceptar el cargo de presidente del Consejo de Administración del Organismo cooperativo.
-c. Recibir obsequios o dádivas cuando lo comprometa en el cumplimiento de sus deberes como representante institucional.
-d. Incurrir en ilícitos penales o actos contrarios a la moral pública.
-e. En caso de ausencia temporal deberá comunicar previamente a la Dirección Ejecutiva del INFOCOOP sobre las causas que la originan, para que ésta decida si justifica la ausencia y proceda a notificar al suplente.
-(Así reformado el inciso anterior en sesión N° 3779 del 19 de abril de 2010)
-f. Para el representante con perfil técnico se incorporan aquellas prohibiciones que se indiquen en el contrato entre este representante y el INFOCOOP.
-(Así reformado el inciso anterior mediante sesión N° 3794 del 6 de setiembre de 2010)
-g. Para el representante de la Junta Directiva que haya sido contratado bajo la modalidad de servicios profesionales, se incorporan aquellas prohibiciones que se indiquen en el contrato.
-h. Representar al Organismo Cooperativo en el plenario del CONACOOP, o en algún otro organismo de integración cooperativa.
-i. No estar afectado por alguna de las incompatibilidades que señala la Ley Contra Corrupción
-( Así reformado mediante sesión N° 3727 del 8 de diciembre del 2008 )
+Artículo 11.—Faltas graves de Representante Técnico Institucional. Se considerarán faltas graves que motivarán la remoción, las siguientes:
+a) Ocultar información o suministrar datos falsos o incompletos al INFOCOOP, con el objetivo de alterar el análisis y las decisiones correspondientes.
+b) No impedir la toma de decisiones contrarias a los intereses del INFOCOOP, en materia de Participación Asociativa, Coinversión y Crédito.
+c) Acompañar acuerdos del Consejo de Administración contrarios a los intereses del INFOCOOP.
+d) No advertir oportunamente sobre hechos que conozcan y que puedan provocar un perjuicio al INFOCOOP.
+e) Recibir pagos a nombre del INFOCOOP por concepto de amortización, intereses o excedentes.
+f) Ausentarse injustificadamente a dos sesiones del Consejo de Administración.
+No presentar o presentar en forma injustificada fuera del plazo estipulado los informes estipulados en el artículo 9 del presente reglamento y en el contrato de servicios profesionales.
+(Así reformado mediante sesión N° 4104 publicada en La Gaceta N° 21 del 30 de enero del 2017)

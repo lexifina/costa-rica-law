@@ -1,3 +1,3 @@
-Artículo 13.—Procedimiento sancionatorio. Para la remoción antes del vencimiento del plazo, en el caso del representante de la Junta Directiva bastará con el acuerdo de este Órgano Colegiado debidamente comunicado al Organismo Cooperativo, salvo que se hubiese contratado por servicios profesionales en cuyo caso se aplicará lo indicado en el párrafo siguiente. Para la remoción se requerirá del voto de la mayoría simple de los miembros de la Junta Directiva.
-Para el caso de representantes contratados mediante servicios profesionales, el INFOCOOP podrá solicitar o autorizar la resolución del contrato cuando se constate incumplimiento de las cláusulas contractuales por parte del contratista.
-( Así reformado mediante sesión N° 3727 del 8 de diciembre del 2008 )
+Artículo 13.—El presente reglamento deroga el Reglamento sobre el nombramiento, deberes, atribuciones y remoción de los representantes del INFOCOOP en el Consejo de Administración de AGROATIRRO R. L. publicado en La Gaceta 93 del 13-05-04, aprobado por Junta Directiva en sesión 3340, artículo 2, inciso 3.5 del 26-04-06.
+Rige a partir de su publicación y se aplicará para todos los casos no resueltos al momento de entrar en vigencia.
+(Así reformado mediante sesión N° 4104 publicada en La Gaceta N° 21 del 30 de enero del 201)

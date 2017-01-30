@@ -1,2 +1,2 @@
-Artículo 4º—Prórroga. El contrato de los representantes podrá ser prorrogado para nuevos períodos para lo cual se elaborará un dictamen técnico, por parte del Macroproceso de Desarrollo Integral Cooperativo o la dependencia que la Dirección Ejecutiva designe, sobre su desempeño y basado en ese dictamen la Dirección Ejecutiva autorizará la respectiva prórroga contractual o iniciar un nuevo proceso de contratación.
-(Así reformado en sesión N° 3779 del 19 de abril de 20109
+Artículo 4º—Prórroga. El contrato del Representante Técnico Institucional podrá ser prorrogado para nuevos períodos para lo cual se elaborará un dictamen técnico, por parte de Asistencia Técnica sobre su desempeño y basado en ese dictamen la Dirección Ejecutiva autorizará la respectiva prórroga contractual o iniciar un nuevo proceso de contratación.
+(Así reformado mediante sesión N° 4104 publicada en La Gaceta N° 21 del 30 de enero del 2017)

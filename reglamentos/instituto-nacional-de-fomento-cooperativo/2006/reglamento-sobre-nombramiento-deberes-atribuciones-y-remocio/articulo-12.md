@@ -1,11 +1,5 @@
 CAPÍTULO V
 Sanciones
-Artículo 12.—Faltas graves. Se considerarán faltas graves que motivarán la remoción, las siguientes:
-a. Ocultar información o suministrar datos falsos o incompletos al INFOCOOP, con el objetivo de alterar el análisis y las decisiones correspondientes.
-b. No impedir la toma de decisiones contrarias a los intereses del INFOCOOP, en materia de Participación Asociativa, Coinversión y Crédito.
-c. Acompañar acuerdos del Consejo de Administración contrarios a los intereses del INFOCOOP.
-d. No advertir oportunamente sobre hechos que conozcan y que puedan provocar un perjuicio al INFOCOOP.
-e. Recibir pagos a nombre del INFOCOOP por concepto de amortización, intereses o excedentes.
-f. Ausentarse injustificadamente a dos sesiones del Consejo de Administración.
-g. No presentar o presentar en forma injustificada fuera del plazo de 5 días posterior al fin de mes, el informe mensual al Macroproceso de Desarrollo Integral Cooperativo del INFOCOOP o a la dependencia que designe la Dirección Ejecutiva. Lo anterior dará lugar a la resolución del contrato sin responsabilidad para el INFOCOOP.
-(Así reformado en sesión N° 3779 del 19 de abril de 2010)
+Artículo 12.—Procedimiento sancionatorio. Para la remoción antes del vencimiento del plazo, en el caso del representante de la Junta Directiva bastará con el acuerdo de este Órgano Colegiado debidamente comunicado al Organismo Cooperativo.
+Para el caso del Representante Técnico Institucional contratado mediante servicios profesionales, el INFOCOOP podrá solicitar o autorizar la resolución del contrato cuando se constate incumplimiento de las cláusulas contractuales por parte del contratista.
+(Así reformado mediante sesión N° 4104 publicada en La Gaceta N° 21 del 30 de enero del 2017)
