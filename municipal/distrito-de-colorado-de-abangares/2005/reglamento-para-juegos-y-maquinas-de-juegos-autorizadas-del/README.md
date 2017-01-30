@@ -14,3 +14,4 @@ Reglamento para Juegos y Máquinas de Juegos autorizadas del Concejo Municipal d
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-10-27 | la propia norma |
+| 2 | 2017-01-30 | Reglamento municipal 0 (2017-01-30) |
