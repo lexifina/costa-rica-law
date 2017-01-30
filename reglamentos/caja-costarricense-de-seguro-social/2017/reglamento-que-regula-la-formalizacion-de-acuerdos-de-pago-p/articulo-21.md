@@ -1,0 +1,5 @@
+Artículo 21
+De la finalización y suspensión de las acciones judiciales.
+La solicitud de un arreglo o convenio de pago no implica la terminación de las acciones judiciales. Sin embargo, una vez que se haya suscrito un arreglo o convenio de pago y se encuentren cancelados las costas, gastos judiciales y honorarios, se darán por terminado las acciones judiciales a excepción de cuando se formalice un convenio de pago y exista sentencia judicial en firme, en cuyo caso se dará por terminado el proceso hasta la cancelación total de la deuda.
+La administración podrá suspender las acciones cobratorias por un de hasta dos meses contados a partir de la recepción de la solicitud, mientras se tramita la formalización del acuerdo de pago. En todo caso se debe garantizar que la suspensión del cobro en sede judicial, no implique la deserción de la instancia.
+Por otro lado, queda entendido que cuando se produce el pago total de la deuda incluyendo los gastos, costas judiciales y personales, se dan por terminadas las gestiones de cobro.

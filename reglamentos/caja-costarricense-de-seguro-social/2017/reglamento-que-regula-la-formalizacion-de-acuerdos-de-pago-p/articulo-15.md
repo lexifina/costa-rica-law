@@ -1,0 +1,9 @@
+CAPITULO III
+De las condiciones específicas para Trabajadores Independientes.
+Artículo 15
+De los requisitos para Trabajadores Independientes.
+Para el trámite de cualquier solicitud de acuerdo de pago, los Trabajadores Independientes deben presentar en las sucursales administrativas o en Oficinas Centrales de la Caja, una nota o formulario que disponga la Institución, donde conste la intención para realizar el acuerdo de pago. En caso de que el deudor autorice a un tercero a firmar, debe aportar un poder legal para efectos de realizar el trámite y formalizar el acuerdo de pago.
+En el acto de formalización el deudor o el apoderado deben presentar su documento de identidad vigente.
+Para todos los efectos, como requisito previo a formalizar cualquier tipo de acuerdo de pago, el trabajador independiente debe pagar gastos administrativos, judiciales y de formalización, honorarios así como un porcentaje del total de las cuotas adeudadas, el cual en caso de arreglos de pago, cesión de facturas o daciones de pago debe ser al menos de un 20%, y en el caso de los convenios de pago, según el plazo máximo a formalizar tal y como se define en el artículo 17 de este reglamento.
+Adicional a los requisitos señalados anteriormente, el Trabajador Independiente debe cumplir con los requisitos y condiciones específicos según el tipo de acuerdo de pago o garantía que se tramite; lo anterior, de conformidad con lo establecido en el presente reglamento.
+Si la deuda se encuentra en un proceso judicial concursal, para la formalización de cualquier tipo de acuerdo de pago, previo a su formalización, se requiere la aprobación del curador, junta de acreedores o del despacho judicial según corresponda al proceso; asimismo, para la aprobación del mismo, deben privar los principios de oportunidad y conveniencia institucional.

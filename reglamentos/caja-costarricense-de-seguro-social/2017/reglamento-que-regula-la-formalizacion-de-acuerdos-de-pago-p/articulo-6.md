@@ -1,0 +1,4 @@
+Artículo 6
+De la cesión de facturas.
+Los patronos o trabajadores independientes, que se encuentren morosos con la Caja, podrán ceder facturas a favor de la Institución, originadas por la venta de bienes o servicios brindados a la Caja. Para el trámite de la cesión de facturas el deudor debe aportar fotocopias de las facturas a ceder, junto con un listado que indique la unidad en donde fue tramitada la factura para el análisis y trámite. En caso de autorizarse el acuerdo de pago, el deudor debe aportar el original de las facturas.
+La cesión puede ser autorizada para cubrir total o parcialmente el monto de los conceptos adeudados a la Caja, tanto del monto principal como de los intereses. En caso de que el importe de esas facturas sea inferior al monto adeudado, el deudor deberá cancelar la diferencia o bien formalizar un arreglo o convenio de pago de conformidad con lo establecido en el presente Reglamento.
