@@ -1,0 +1,1 @@
+d) Derogar el artículo 8 del Reglamento sobre Nombramiento, Deberes, Atribuciones y Remoción de Representantes del INFOCOOP, en Organismos Receptores de Coinversión o Participación Asociativa, Reglamento 3527 del 20 de marzo de 2006 y sus reformas, y que se ajuste la numeración.
