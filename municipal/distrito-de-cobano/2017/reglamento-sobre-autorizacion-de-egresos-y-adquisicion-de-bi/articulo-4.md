@@ -1,0 +1,1 @@
+Artículo 4º—Corresponderá a la Intendencia tramitar en todas sus etapas, los procedimientos de contratación necesarios para para la adquisición de bienes y servicios, sean ordinarios o excepcionales, a efectos de cumplir con lo previsto en los planes operativos y presupuestos aprobados por el Concejo Municipal de Distrito.

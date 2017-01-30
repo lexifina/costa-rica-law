@@ -1,0 +1,1 @@
+Artículo 5º—De conformidad con este Reglamento, el Concejo deberá tomar el acuerdo sobre el monto que se autorice a la Intendencia par los efectos indicados en el mismo, el cual será revisable de acuerdo a la necesidad requerida”. Acuerdo unánime.
