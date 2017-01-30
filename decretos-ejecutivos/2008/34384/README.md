@@ -15,3 +15,4 @@ Reglamento de Organización y Funcionamiento de la Dirección Nacional de Pensio
 | --- | --- | --- |
 | 1 | 2008-03-19 | la propia norma |
 | 2 | 2011-07-26 | Decreto Ejecutivo 36767 (2011-07-26) |
+| 3 | 2017-01-30 | Decreto Ejecutivo 40252 (2017-01-30) |
