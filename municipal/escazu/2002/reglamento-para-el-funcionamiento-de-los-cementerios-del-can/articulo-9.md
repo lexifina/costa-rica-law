@@ -1,1 +1,0 @@
-Artículo 9º—Del traspaso de poderes. La Junta vigente y que cesa funciones hará entrega a los miembros de la Junta entrante; un informe contable. Asimismo hará entrega de un informe acerca del estado de las instalaciones. Para este propósito con la antelación debida, podrán solicitar la colaboración de la Municipalidad.

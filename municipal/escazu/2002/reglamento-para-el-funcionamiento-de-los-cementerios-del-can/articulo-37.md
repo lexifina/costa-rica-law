@@ -1,1 +1,0 @@
-Artículo 37.—Las parcelas, derechos, tumbas, bóvedas, nichos o mausoleos, no pueden ser dados en garantía, ni vendidos, ni son susceptibles de embargo ni de venta forzosa judicial. Con la salvedad hecha en el artículo 36 anterior.
