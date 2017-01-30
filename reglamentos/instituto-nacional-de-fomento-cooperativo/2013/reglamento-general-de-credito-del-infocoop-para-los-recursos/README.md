@@ -15,3 +15,4 @@ Reglamento General de Crédito del INFOCOOP para los Recursos Propios, Juveniles
 | --- | --- | --- |
 | 1 | 2013-09-27 | la propia norma |
 | 2 | 2017-01-04 | Reglamento 4104 (2017-01-04) |
+| 3 | 2017-01-30 | Reglamento 4104 (2017-01-30) |

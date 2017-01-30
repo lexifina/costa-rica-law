@@ -1,1 +1,2 @@
 Artículo 25.—Límites del financiamiento. El monto total acumulado de los financiamientos por organismo cooperativo, no deberá sobrepasar 11 veces el capital social del ente cooperativo, el 10% del patrimonio del INFOCOOP, ni el 20% del presupuesto anual de colocaciones. Excepcionalmente, considerando criterios de impacto social y sostenibilidad institucional, la Junta Directiva Institucional podrá valorar la posibilidad de sobrepasar estos límites.
+(Así reformado mediante sesión N° 4104 publicada en La Gaceta N° 21 del 30 de enero del 2017)
