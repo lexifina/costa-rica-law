@@ -6,7 +6,8 @@ c) Gestionar eficiente y eficazmente los procesos de contratación administrativ
 d) Coordinar con los las unidades funcionales que corresponda, todos los aspectos de control que garanticen la correcta aplicación de las normas y principios que regulan el proceso de contratación administrativa.
 e) Administrar el proceso para la liberación o ejecución de garantías de participación y de cumplimiento.
 f) Gestionar los trámites de exoneración, importación y desalmacenaje de los materiales y suministros importados.
-g) Emitir la recomendación de adjudicación, declaratoria de desierto o infructuoso, en los procedimientos de contratación administrativa.
+g) Recomendar a la Alcaldía Municipal, según corresponda, una respuesta para los recursos de objeción y/o revocatoria de las resoluciones de adjudicación, así como las audiencias de la CGR en esta materia.
+(Así reformado el inciso anterior mediante acta N° 07 del 30 de enero de 2017)
 h) Preparar para la firma de la Alcaldía o quien esta designe, las solicitudes ante la CGR de aquellas compras que requieren de este requisito conforme a lo indicado en la normativa vigente sobre contratación administrativa.
 i) Recomendar a la Alcaldía (o Dirección General) o al Concejo Municipal, según corresponda, una respuesta para los recursos de objeción y/o revocatoria de las resoluciones de adjudicación, así como las audiencias de la CGR en esta materia.
 j) Dirigir los procesos de sanción contra proveedores por incumpliendo a las condiciones de la compra, conforme a lo estipulado en la normativa vigente sobre contratación administrativa. Corresponderá a la Proveeduría Municipal el confeccionar el informe de final que deberá enviarse al Concejo Municipal para toma de la decisión de sancionar.

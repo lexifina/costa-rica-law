@@ -14,3 +14,4 @@ Reglamento Interno de Contratación Administrativa de la Municipalidad de San Ca
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2012-10-17 | la propia norma |
+| 2 | 2017-01-30 | Reglamento municipal 0 (2017-01-30) |
