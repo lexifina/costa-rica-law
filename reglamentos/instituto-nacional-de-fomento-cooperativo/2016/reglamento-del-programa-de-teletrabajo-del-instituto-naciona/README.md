@@ -14,3 +14,4 @@ Reglamento del Programa de Teletrabajo del Instituto Nacional de Fomento Coopera
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-05-19 | la propia norma |
+| 2 | 2017-01-30 | Reglamento 4104 (2017-01-30) |

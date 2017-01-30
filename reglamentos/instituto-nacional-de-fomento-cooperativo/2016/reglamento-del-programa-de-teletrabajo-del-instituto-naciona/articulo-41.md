@@ -1,1 +1,2 @@
-Artículo 41.-Vigencia. El presente reglamento rige a partir de su aprobación por la Junta Directiva y publicación en el Diario Oficial.
+Artículo 41.—Los funcionarios de la Auditoría Interna en funciones de teletrabajo se apegarán en lo que les corresponde, a las disposiciones consignadas en el Decreto Ejecutivo 39225 del 14 de setiembre del 2015, en el Reglamento de Teletrabajo del INFOCOOP, en las políticas institucionales y en las propias regulaciones de la Auditoría Interna.
+(Así adicionado mediante sesión N° 4104 publicada en La Gaceta N° 21 del 30 de enero del 2017)

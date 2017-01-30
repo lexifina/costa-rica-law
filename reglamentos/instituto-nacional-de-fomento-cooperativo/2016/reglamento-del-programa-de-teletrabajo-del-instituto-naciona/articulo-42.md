@@ -1,0 +1,2 @@
+Artículo 42.—El Auditor Interno informará mensualmente a la Comisión de Teletrabajo institucional sobre los funcionarios que hayan participado en el Programa de Teletrabajo en el mes inmediato anterior, para efectos de las funciones tecnológicas y otras que deba coordinar dicha Comisión y para retroalimentación en lo que corresponda, del Equipo de Coordinación Técnica nombrado por el Ministerio de Trabajo y Seguridad Social.
+(Así adicionado mediante sesión N° 4104 publicada en La Gaceta N° 21 del 30 de enero del 2017)
