@@ -1,0 +1,138 @@
+CIRCULAR No. 10-2017
+(Nota de Sinalevi: Mediante circular N° 155-2018 del 26 de noviembre de 2018, y publicada en el Boletín Judicial N° 8 del 11 de enero del 2019, se reiteró la presente norma.)
+Asunto: Instructivo para el cobro de Subsidios por incapacidades y licencias de la Caja Costarricense de Seguro Social.-
+A TODOS LAS PERSONAS SERVIDORAS
+JUDICIALES DEL PAÍS
+SE LES HACE SABER QUE:
+El Consejo Superior del Poder Judicial en sesión No. 111-16 celebrada el 13 de diciembre de 2016, artículo XXXI, dispuso hacer del conocimiento de las servidores y servidoras judiciales, el Instructivo para el cobro de Subsidios por incapacidades y licencias de la Caja Costarricense del Seguro Social, que literalmente dice:
+Instructivo para el cobro de Subsidios por incapacidades y
+licencias de la Caja Costarricense del Seguro Social
+“Apartado 1. Objetivo
+Definir el procedimiento para el cobro del monto correspondiente al subsidio por incapacidades y licencias de la Caja Costarricense de Seguro Social (en adelante CCSS), en virtud de la finalización del Convenio entre el Poder Judicial y ese ente asegurador, a partir del 01 de setiembre de 2016. Apartado 2. Definiciones
+a. Subsidio
+Suma de dinero que la CCSS paga a la persona asegurada activa, por motivo de incapacidad por enfermedad, accidente de tránsito, fase terminal, licencia de maternidad o cualquier otro, que así disponga la CCSS.
+b. Incapacidad
+Periodo de reposo ordenado por los médicos de la CCSS o autorizados por ésta, a la persona asegurada directa activa, por la pérdida temporal de las facultades o aptitudes para el desempeño de las labores habituales, con el fin de propiciar la recuperación de la salud.
+c. Licencia por fase terminal
+Periodo otorgado por la CCSS a la persona trabajadora asalariada y asegurada activa, con la finalidad de que cuide a un paciente, durante el tiempo que tarde la fase terminal, siempre que no medie retribución alguna.
+d. Licencia por maternidad
+Es el período de reposo y/o adaptación a que tiene derecho la trabajadora en estado de embarazo (gravidez) o en caso de adopci ón, cuyo periodo se determinará en cada caso concreto conforme a la normativa aplicable.
+e. Lugar de Adscripción
+Es el Área de Salud del lugar donde la persona asegurada activa normalmente reside o trabaja y en el cual, mediante un proceso de afiliaci ón, realiza gestiones sanitarias y administrativas y recibe servicios de salud.
+Apartado 3. Tipos de Incapacidad o Licencia que otorga la CCSS
+• Enfermedad.
+• Licencias de Maternidad.
+• Licencias de Fase Terminal.
+• Licencia para cuido de persona menor gravemente enferma.
+• Licencia extraordinaria.
+• Accidentes de Tránsito
+Una vez agotada la cobertura de la póliza del Seguro Obligatorio para los Vehículos Automotores (SOA) (conforme los artículos 16 y 32 del Reglamento del Seguro de Salud: No procede el pago de subsidios por enfermedad cuando se esté frente a los riesgos del trabajo o accidente de tránsito. Sin embargo, el Capítulo XI del Reglamento de Licencias e Incapacidades a los Beneficiarios del Seguro de Salud -2014-, señala el procedimiento 􀂱excepcional- a seguir, una vez agotada la póliza del SOA).
+Apartado 4. Cálculo del Subsidio por parte de la CCSS para las Incapacidades por concepto de Enfermedad y Accidentes de Tránsito
+El monto del subsidio se calcula con base en los salarios o ingresos procesados por la CCSS en los tres meses consecutivos inmediatamente anteriores al inicio de la incapacidad, en los cuales no registre otras incapacidades.
+El subsidio correspondiente se obtiene multiplicando el salario promedio por 15%, luego por 4 y el resultado se divide entre 30 (días) para obtener el subsidio diario.
+Apartado 5. Los periodos a pagar por parte de la CCSS
+El pago de los subsidios por incapacidades otorgadas por la CCSS procede a partir del cuarto día.
+Sin embargo, si no una incapacidad fuere extendida dentro de los treinta días posteriores a la precedente, el subsidio correspondiente a la nueva incapacidad se pagará desde el primer día, es decir, sin el rebajo de los primeros tres días (pago del periodo completo) (seg ún el art ículo 35 del Reglamento del Seguro de Salud de la CCSS).
+Asimismo, si una incapacidad inicia dentro o es continuación inmediata de una licencia por maternidad, no se rebajan los primeros tres (3) días de dicha incapacidad.
+Apartado 6. Cálculo de Subsidio por parte de la CCSS para las Licencias de Maternidad
+El monto del subsidio se calcula con base en los salarios o ingresos procesados por la CCSS en los tres meses inmediatamente anteriores al inicio de la incapacidad, en los cuales no registre otras incapacidades.
+Conforme el artículo 2 del Reglamento para el Otorgamiento de Licencias e Incapacidades a los Beneficiarios del Seguro de Salud -2014-, al definir el concepto de licencia por maternidad, establece que: “[…] Durante esta licencia la trabajadora, de acuerdo con lo que dispone el artículo 42º del Reglamento de Salud de la Caja Costarricense de Seguro Social, tiene derecho a devengar el mismo salario que recibiría si estuviera laborando, por lo cual la Caja Costarricense del Seguro Social paga el 50% del salario y el patrono paga el otro 50% del salario”.
+Las licencias por concepto de maternidad se pagan completas, sin rebajo de los tres primeros días.
+A toda asegurada activa, se le extender á una licencia por maternidad o adopción, cuyo periodo se determinar á en cada caso concreto conforme a la normativa aplicable.
+La Dirección Ejecutiva por circulares N.° 45-2016 y 59-2016 del 10 de mayo y del 27 de junio, ambas del 2016 respectivamente, comunicó que las incapacidades por maternidad deben ser emitidas hasta por un máximo de 123 días, por lo que, cuando se les entregue el documento, deben verificar que sea por ese periodo, ya que la CCSS cancelará únicamente hasta esa cantidad de días.
+Apartado 7. Cálculo del Subsidio por parte de la CCSS para las Licencias de Fase Terminal, Cuido de Persona Menor Gravemente Enferma y Extraordinaria
+El subsidio correspondiente se calcula con base en el promedio de los salarios consignados en las planillas procesadas por la CCSS, durante los tres meses inmediatamente anteriores a la licencia, en los cuales no registre otras incapacidades. El monto del subsidio, será el siguiente:
+• Hasta dos salarios base establecidos en la Ley Nº 7337, de 5 mayo de 1993 (oficinista 1), según Ley del Presupuesto Nacional, percibirán el cien por ciento (100%) del promedio del ingreso.
+• Sobre el exceso de dos salarios y hasta tres salarios base establecidos en la Ley Nº 7337, de 5 mayo de 1993, percibirán el ochenta por ciento (80%) del promedio del ingreso.
+• Sobre el exceso de tres salarios base establecidos en la Ley Nº 7337, de 5 de mayo de 1993, percibirán el 60% promedio del ingreso.
+Las licencias que se otorgan al asalariado para cuidar a un paciente en fase terminal, se pagan completas, sin rebajo de los tres primeros días.
+El salario que debe utilizarse como base de cálculo para el pago que realiza la CCSS, con motivo del Subsidio contemplado en el artículo 5 de la Ley N° 7756 (reformado por la Ley Nº 8600 de 17 de setiembre de 2007), es el correspondiente al “auxiliar administrativo” del Poder Judicial, de conformidad con lo que establece el párrafo tercero del artículo 2° de la Ley Nº 7337 del 5 de mayo de 1993.
+Apartado 8. Trámite para la presentación de la boleta de incapacidad
+En este proceso intervienen el Centro de Salud que emite la incapacidad, la persona servidora judicial incapacitada, la oficina donde la persona labora, la Dirección Ejecutiva y la Dirección de Gestión Humana.
+1- El Centro de Salud emite la boleta de incapacidad con el periodo de reposo otorgado por el médico.
+2- La persona servidora judicial deberá verificar que exista coincidencia entre la cantidad de días en números y letras del periodo de incapacidad, así como la correcta indicación de sus datos personales (cédula, nombre, firma del Auxiliar de Registros Médicos y sello del Centro de Salud).
+3- La CCSS registra la incapacidad de la persona servidora judicial en el sistema Registro, Control y Pago de Incapacidades (RCPI) de la CCSS.
+4- En caso de que la incapacidad sea extendida por el Servicio de Salud del Poder Judicial, la persona trabajadora debe presentar la incapacidad para el refrendo en el Centro de Salud donde se encuentra adscrito.
+5- La oficina donde labora la persona servidora deberá verificar que la boleta de incapacidad contenga el respectivo refrendo de la CCSS (sello del Centro de Salud al cual se encuentra adscrita la persona).
+6- En el sistema RCPI, la CCSS registra las incapacidades y hace los cálculos de los diferentes subsidios para todas las personas aseguradas cubiertas por el Seguro de Salud.
+7- La CCSS realiza el depósito del subsidio directamente en la cuenta bancaria registrada por cada persona asegurada, ante la CCSS.
+8- La persona servidora judicial en un plazo no mayor de tres días hábiles, a partir del inicio de la incapacidad o licencia, debe presentar la boleta de incapacidad o licencia en la oficina donde labora.
+9- La oficina donde labora la persona servidora se encargar á de registrar, escanear y adjuntar en el Sistema de Proposición Electrónica de Nombramientos (denominada PIN) las boletas de incapacidad, así como remitirlas a la Dirección Ejecutiva.
+Apartado 9. Trámite de validación de la boleta de incapacidad
+Una vez ingresada en la PIN y remitida la boleta de incapacidad, la Dirección Ejecutiva realizará el siguiente procedimiento:
+1. Verificar la coincidencia de la cantidad de días en números y letras del periodo de incapacidad.
+2. Revisar que el registro de los datos contenga número de cédula, nombre, firma del Auxiliar de Registros Médicos y sello del Centro de Salud.
+3. La Dirección Ejecutiva almacenará la boleta de incapacidad física. Apartado 10. Trámite para el pago del subsidio
+1. La CCSS realizará los cálculos del subsidio según el tipo de incapacidad o licencia para cada persona servidora judicial, cuando el mismo corresponda pagarse.
+2. La CCSS depositar á los subsidios a las cuentas clientes que las personas empleadas judiciales hayan determinado para tal efecto.
+3. La CCSS realiza de forma periódica y en días hábiles los depósitos de los subsidios a todas las personas aseguradas que son objeto del mismo, por lo que no existe un día específico de depósito en particular.
+4. Los depósitos de subsidio que realiza la CCSS pueden ser en tractos, según el período de incapacidad o licencia otorgado.
+5. La persona servidora judicial recibirá en el correo electrónico señalado, un aviso automático generado por el sistema SIGA, que le informará del trámite por parte de la CCSS de la incapacidad o licencia según corresponda.
+6. Si la cuenta bancaria está cerrada, bloqueada o presenta alguna otra situación particular que imposibilite el depósito del subsidio, será responsabilidad de la persona servidora judicial actualizar los datos ante la CCSS, para que el subsidio le sea depositado.
+7. Para este trámite cuenta con seis meses a partir del último día de la incapacidad para efectuar el reclamo, transcurrido dicho plazo, la persona servidora no podrá cobrar el subsidio correspondiente (prescripción del derecho).
+Lo anterior, de conformidad con el artículo 61 de la Ley Constitutiva de la CCSS.
+8. La imposibilidad del cobro por haber operado la prescripción o cualquier otra causa, no impide al Poder Judicial la recuperación de los dineros que por concepto de incapacidad o licencia, pagó a la persona servidora como licencia con goce de salario.
+9. El Poder Judicial no interfiere en ningún momento en el proceso de cálculo del subsidio por parte de la CCSS.
+Apartado 11. Procedimiento de cobro del monto correspondiente al subsidio o licencia por parte del Poder Judicial
+1- Cuando la persona servidora judicial se encuentre incapacitada, el Poder Judicial cancelará lo necesario hasta completar su salario a partir del monto que reciba de la CCSS.
+2- La CCSS remitirá un archivo quincenalmente, con el detalle de los subsidios tramitados a las personas servidoras judiciales, en un periodo específico, con el fin de que el Poder Judicial pueda recuperar los montos correspondientes por subsidio que haya cancelado en lugar de la CCSS.
+Es importante indicar que las incapacidades que se comuniquen serán las depositadas a partir del 01 de setiembre del 2016 y cuyo periodo de incapacidad inicie en esa misma fecha o con posterioridad a ella. En lo que respecta a incapacidades con fecha de inicio anterior a la finalización del convenio, éstas serán canceladas en su totalidad al Poder Judicial y se tramitarán con el procedimiento anterior, en virtud de la vigencia del Convenio hasta el 31 de agosto de 2016.
+3- La Dirección de Gestión Humana validará el archivo enviado por la CCSS, con el fin de incluirlo en el Sistema SIGA.
+4- La Dirección de Gestión Humana comunicar á a las personas servidoras judiciales, por medio de un correo electrónico automático, a la cuenta señalada para tal efecto, las incapacidades que se registren y el eventual monto del subsidio en caso de que la CCSS reporte dicho dato, e indicar á que en las próximas quincenas se recuperar á lo correspondiente por parte del Poder Judicial, por medio de deducción automática en la planilla siguiente o subsiguientes, hasta completar el monto por recuperar.
+Es obligación de la persona servidora judicial mantener actualizado en el Sistema GH-En Línea, al menos una cuenta de correo electrónico en la cual pueda recibir notificaciones del Poder Judicial. En caso de que la persona servidora, por la naturaleza de sus funciones, no cuente con correo electrónico institucional o no pueda acceder a esta de manera regular, deberá ingresar en el sistema GHEn Línea, una cuenta de correo electrónico personal (externa).
+5- En el proceso de pago se realizará el rebajo del monto correspondiente al subsidio denominado 􀂳Rebajo de subsidio por incapacidad􀂴.
+6- Las deducciones se realizarán en forma quincenal y automáticamente, de acuerdo a lo dispuesto por el Consejo Superior en la Sesión N°102-15 del 19 de noviembre de 2015, artículo LXXX, en el siguiente orden:
+1. Impuesto de Renta
+2. Fondo de Jubilaciones y Pensiones
+3. Seguro de Enfermedad
+4. Ahorro Obligatorio Banco Popular
+5. Subsidio por incapacidad
+6. Pensión Alimentaria
+7. Embargos
+8. Y demás deducciones voluntarias (Bancos, Cooperativas, Asociaciones, Colegios Profesionales y otros).
+7- Es importante recordar que las deducciones correspondientes a los subsidios, se podrán aplicar sin perjuicio, de que la suma depositada por el Poder Judicial como salario líquido no cubra la totalidad de las obligaciones voluntarias, para lo cual la persona incapacitada deberá proceder con los pagos de sus compromisos, a partir del monto que recibe de la CCSS por concepto de subsidio.
+8- Los pagos de subsidio no se consideran como anticipos o pagos hechos en exceso por el patrono, por tanto no se puede aplicar la deducción según lo establece el artículo 173 del Código de Trabajo, el cual indica que las deudas que el trabajador contraiga con el patrono por concepto de anticipos o por pagos hechos en exceso, se amortizarán durante la vigencia del contrato en un mínimo de cuatro períodos de pago y no devengarán intereses. En razón de lo anterior, el monto correspondiente al subsidio no se podrá aplicar en tractos y se recuperará de forma inmediata en la quincena siguiente o subsiguientes a la comunicación del depósito del subsidio por parte de la CCSS.
+9- También debe considerarse el caso de las personas servidoras judiciales con el cumplimiento de los requisitos (al menos uno) para acogerse a su derecho a la jubilación, de manera que, previo al disfrute de ese derecho de retiro, se deben determinar los eventuales montos adeudados al Poder Judicial, por concepto de subsidio por incapacidades o licencias, con el propósito de recuperar oportunamente esos montos.(Circular N° 55-2016, en virtud de la Sesión del Consejo Superior N° 16-16 celebrada el 18 de febrero de 2016, artículo XCV).
+10- En caso de renuncia, despido, cese de nombramiento por espacio de seis meses, jubilación por incapacidad absoluta y permanentemente u otro motivo que finalice definitivamente la relación laboral con el Poder Judicial, la Dirección de Gestión Humana determinar á los posibles montos pendientes de recuperar, por concepto de subsidio de incapacidades o licencias, con el fin de remitir a la Dirección Jurídica para que continúen con el proceso mediante cobro administrativo del monto correspondiente.
+11- En caso de que la persona servidora mantenga un saldo pendiente por concepto incapacidad o licencia y solicite un permiso sin goce de salario o prórrogas por el plazo mayor a un mes, deber á cancelar previamente la suma adeudada por concepto de subsidio. Lo anterior, de conformidad con la Sesión del Consejo Superior N° 42-15 del 5 de mayo de 2016, Artículo XXXV, publicada mediante la Circular N° 97-2015 del 4 de junio del 2015.
+Apartado 12. Trámite de las diferencias de lo pagado por la CCSS y lo calculado por parte del Poder Judicial
+En caso que el monto pagado por la CCSS a la persona servidora judicial por concepto de subsidio por incapacidad o licencia, resulte inferior al que le correspondía, conforme a los cálculos de verificación del Poder Judicial, se seguirá el siguiente procedimiento:
+a) Posterior a la aplicación de las deducciones automáticas por el monto correspondiente al subsidio por incapacidad o licencia, la Dirección de Gestión Humana extraerá del sistema informático, los reportes con las incapacidades que presenten diferencias en el pago esperado por el Poder Judicial y el monto depositado por la CCSS a la persona servidora.
+b) La Unidad de Deducciones de la Dirección de Gestión Humana, remitir á mediante resolución de cobro al Macroproceso Financiero Contable, el detalle de las incapacidades o licencias que presenten diferencias en el pago esperado, así como aquellas de las cuales no se haya recibido pago alguno por parte de la CCSS en el mes siguiente a la fecha de finalización de la incapacidad o licencia y que se encuentren registradas en el sistema de Proposición Electrónica de Nombramientos (denominado PIN). Lo anterior con la finalidad de que el Macroproceso Financiero Contable, realice el trámite de cobro correspondiente.
+c) En caso de negativa de la CCSS al pago requerido, el Macroproceso Financiero Contable comunicar á lo resuelto a la Dirección Jurídica para el análisis y eventual ejercicio de los recursos que correspondan.
+d) Las jefaturas tendrán un plazo de tres días a partir del recibo de la boleta de parte de la persona servidora (quien tendrá tres días para su entrega según punto 8. del apartado denominado Trámite para la presentación de la boleta de incapacidad), para el debido registro en el Sistema de Proposición Electrónica de Nombramientos (PIN), con el fin de que se calcule lo que eventualmente el Poder Judicial deba recuperar.
+e) La Dirección de Gestión Humana remitir á quincenalmente a la Dirección Ejecutiva, un listado de las incapacidades o licencias que no fueron registradas por las jefaturas en el Sistema PIN y que sí fueron canceladas por la CCSS, con el fin de que en el mes siguiente al recibo del listado, comunique a la Inspección Judicial para lo correspondiente.
+Apartado 13. Cobro del monto correspondiente al subsidio por Salario Escolar
+En este proceso la CCSS realizará el depósito del monto correspondiente al subsidio por salario escolar a la persona servidora judicial, aproximadamente en el mes de junio de cada año, según lo indicado por esta Entidad Social. Por lo anterior, la Dirección de Gestión Humana realizará la deducción automática del monto respectivo, siguiendo un procedimiento similar al de subsidio, el cual se detalla a continuación:
+1. En el mes de enero de cada año, el Poder Judicial pagará lo correspondiente al Salario Escolar acumulado durante el año anterior y le aplicará las deducciones de ley (Seguro de Enfermedad y Maternidad, Banco Popular y Fondo de Jubilaciones y Pensiones), así como las deducciones voluntarias respectivas.
+2. La CCSS remitirá un archivo con el detalle de los subsidios correspondientes al salario escolar cancelados a las personas servidoras judiciales, con el fin de que el Poder Judicial pueda recuperar del salario de las personas servidoras, los montos que correspondan por ese concepto.
+3. La Dirección de Gestión Humana validará el archivo enviado por la CCSS, con el fin de incluirlo en el SIGA.
+4. La Dirección de Gestión Humana comunicar á a las personas servidoras judiciales, por medio de un correo electrónico automático a la cuenta señalada para tal efecto, el monto de subsidio por concepto de salario escolar acreditado en su momento por la CCSS, e indicar á que en las próximas quincenas se recuperará lo correspondiente por parte del Poder Judicial, por medio de deducción automática en la planilla siguiente o subsiguientes, hasta completar el monto por recuperar.
+Es obligación de la persona servidora judicial mantener actualizado en el Sistema de GH-En Línea, al menos una cuenta de correo electrónico en la cual pueda recibir notificaciones del Poder Judicial. En caso de que la persona servidora, por la naturaleza de sus funciones, no cuente con correo electrónico institucional o no pueda acceder a esta de manera regular, deberá ingresar en el sistema GH-Línea, una cuenta de correo electrónico personal (externa).
+5. El proceso de pago a cargo de la Dirección de Gestión Humana, realizará el rebajo respectivo denominado “Rebajo de subsidio por salario escolar”.
+6. El monto deducido automáticamente en la planilla se rebajará al saldo por cobrar que tenga la personas servidora por concepto del salario escolar correspondiente al subsidio de incapacidad.
+Apartado 14. Recuperación de las cuotas patronales sobre incapacidades (9.25%)
+En este proceso la CCSS realizar á el depósito del subsidio en la cuenta bancaria designada por el Poder Judicial, para cada incapacidad registrada; por lo cual, la Dirección de Gestión Humana extraer á del módulo de incapacidades del sistema SIGA-GH, una resolución con el detalle de las boletas de incapacidad pagadas por la CCSS y el monto respectivo.
+Ese reporte ser á remitido al Macroproceso Financiero Contable para los trámites de cobro correspondientes.
+Apartado 15. Consideraciones a partir de la finalización del convenio
+a. Subsidio para las personas servidoras extranjeras:
+Es responsabilidad de la persona extranjera dirigirse a la CCSS, para que esta entidad social le asigne un número de asegurado llamado DIMEX, el cual deberá suministrar al Poder Judicial para los trámites internos correspondientes.
+Asimismo, deberá inscribir su cuenta bancaria en la CCSS para el depósito de los subsidios por incapacidad o licencia y lo correspondiente al salario escolar.
+b. Detalle de deducción por Incapacidad:
+La persona servidora judicial podrá observar en el desglose de su planilla, la deducción del monto correspondiente al subsidio por incapacidad o licencia, con el nombre de “Rebajo de Subsidio por Incapacidad” y la deducción correspondiente al salario escolar, se observar á como “Rebajo de subsidio por salario escolar”.
+c. Permisos sin goce de salario:
+Cuando la persona servidora judicial gestione un permiso sin goce de salario por más de quince días hábiles, éste modifica el estado laboral, por lo que si al mismo tiempo se presenta una incapacidad, ésta no será incluida en el Sistema SIGA ni tramitada por la Dirección de Gestión Humana. Lo anterior, de conformidad con el artículo 9 del Reglamento para el Pago de Incapacidades por Enfermedad y Maternidad a Empleados del Poder Judicial -aprobado por la Corte Plena en Sesión N° 028-02 del 24 de junio de 2002, artículo XVII-.
+d. Pago de salario para servidoras judiciales con licencia de maternidad que su nombramiento ha finalizado:
+Cuando una servidora judicial se encuentre gozando de licencia por maternidad y su nombramiento finalice antes del periodo otorgado, el Poder Judicial cancelar á lo correspondiente al salario completo durante el período de dicha licencia y a su vez recuperar á, contra la persona beneficiaria del aporte económico, el monto correspondiente al subsidio, una vez verificado el depósito realizado por parte de la CCSS.
+e. Atención de consultas por parte de la CCSS:
+Cuando una persona servidora judicial presente alguna duda o consulta relacionada con las incapacidades o licencias otorgadas, debe dirigirse a la sucursal de la CCSS donde se encuentra adscrito, o al Poder Judicial según corresponda.
+f. Medio de pago:
+El único medio del Poder Judicial, para recuperar el monto correspondiente al subsidio percibido indebidamente por una persona servidora judicial activa, será mediante rebajo en la planilla; no obstante, en forma exclusiva para el caso de ex servidores judiciales, se podrá utilizar la figura de entero de gobierno a la cuenta designada por el Poder Judicial para tal efecto, lo cual fue aprobado por el Consejo Superior mediante Sesión N° 11-11 del 15 de febrero de 2011, artículo XLVII.
+g. Aporte patronal a la Asociación Solidarista de Servidores Judiciales (ASOSEJUD):
+En situaciones donde la persona servidora judicial presente deducciones por el monto correspondiente a subsidios por incapacidad o licencia y su salario en la quincena no alcance para cubrir la deducción del aporte a la ASOSEJUD, el Poder Judicial aportará el porcentaje correspondiente al Patrono (2.33%). En lo que respecta al aporte obrero, le compete a cada persona trabajadora coordinar con dicha Asociación lo correspondiente al pago.
+h. Boletas de incapacidad otorgadas por el INS en caso de Accidentes de Tránsito:
+Si la persona servidora judicial sufre un accidente de tránsito y es incapacitada por el INS, también deber á presentar a su jefatura, la boleta de incapacidad extendida por la CCSS.
+Apartado 16. Disposiciones Finales
+Será obligación de las jefaturas y personas encargadas de oficina, la divulgación y aplicación del procedimiento institucional de trámite de incapacidades y licencias, a todo el personal que se encuentre a su cargo.
+Todos los puntos contenidos en este instructivo serán de aplicación hasta tanto se modernicen los procesos de trámite de licencias e incapacidades.”
+San José, 31 de enero de 2017
