@@ -14,4 +14,5 @@ Considerando:
 DECRETAN:
 Régimen Salarial para la Actividad de Informática
 del Registro Nacional
-Artículo 1º—De acuerdo con la estructura organizacional aprobada por el Ministerio de Planificación Nacional y Política Económica en el oficio DM-514-2004 del 31 de mayo del 2004, la estructura ocupacional de la Dirección Informática está compuesta por: Gestor Informático, Coordinador de Departamento Informático, Oficial de Seguridad Informático como asesor de la Junta Administrativa y de la Dirección General.
+Artículo 1°.- De la clasificación de puestos. De acuerdo con la estructura organizacional aprobada por el Ministerio de Planificación Nacional y Política Económica en el oficio DM-220-13 del 30 de abril de 2013. la Dirección de Informática contará con el personal técnico, profesional y ejecutivo necesario para cumplir con sus atribuciones y el mejor desarrollo de sus procesos de trabajo.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40436 del 31 de enero de 2017)

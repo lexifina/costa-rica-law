@@ -14,3 +14,4 @@ Régimen Salarial para la Actividad de Informática del Registro Nacional
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2005-03-02 | la propia norma |
+| 2 | 2017-01-31 | Decreto Ejecutivo 40436 (2017-01-31) |
