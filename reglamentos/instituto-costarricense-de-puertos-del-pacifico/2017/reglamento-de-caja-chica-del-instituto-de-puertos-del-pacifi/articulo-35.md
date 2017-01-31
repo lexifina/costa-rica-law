@@ -1,0 +1,1 @@
+ARTICULO 35: Del trámite del vale de caja chica: El encargado de la caja chica, tendrá un archivo digital en formato PDF del vale generado en el SIAF, asimismo tendrá en el libro de actas la bitácora de entrega del efectivo debidamente firmado por el funcionario que lo está recibiendo.

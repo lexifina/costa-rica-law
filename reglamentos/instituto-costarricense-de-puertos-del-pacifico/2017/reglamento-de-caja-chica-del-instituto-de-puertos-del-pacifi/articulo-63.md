@@ -1,0 +1,1 @@
+ARTÍCULO 63: De la prohibición para la utilización de los gastos de representación: No se permite la utilización de los gastos de representación para la atención a otros funcionarios de Instituciones públicas.

@@ -1,0 +1,1 @@
+ARTICULO 72: Del control de gastos: El control de gastos será llevado por cada Unidad de acuerdo con la ejecución presupuestaria del gasto directo, disponible en el SIAF y serán responsables de verificar antes de aprobar que el gasto en que se incurrirá sea procedente de conformidad con este Reglamento y de más normativa de acatamiento obligatorio.

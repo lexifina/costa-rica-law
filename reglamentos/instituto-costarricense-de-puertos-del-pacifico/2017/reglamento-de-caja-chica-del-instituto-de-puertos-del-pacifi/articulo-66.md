@@ -1,0 +1,1 @@
+ARTÍCULO 66: De la excepción en la compra de alimentos y bebidas: Se exceptúa de las reglas de alimentos y bebidas, la compra de agua para el personal y los clientes externos de la institución, la cual se debe realizar mediante los procesos normales de contratación de acuerdo con la legislación vigente.

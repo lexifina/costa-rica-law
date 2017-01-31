@@ -1,0 +1,4 @@
+ARTÍCULO 65: De la excepción en la imposibilidad para tramitar: La prohibición indicada en el artículo 53 no será extensiva para las siguientes situaciones:
+a) Las compras de combustible y lubricantes, siempre y cuando sea para atender giras en lugares alejados en donde las compras deben ser en efectivo y de contado.
+b) En caso de la contratación de cursos de capacitación, seminarios, o similares relativos a formación, este tipo de gestiones se puede realizar mediante vales de caja chica hasta por el monto máximo establecido para la caja chica, cuando el monto sea superior se realizará mediante una orden de compra o de servicios.
+c) Las compras de bienes y servicios descritas en el artículo anterior que la Administración Superior motive por condición especial o conveniencia institucional. Dicha motivación deberá indicarse en observaciones del documento o bien remitir correo o documento escrito para anexar al vale provisional.

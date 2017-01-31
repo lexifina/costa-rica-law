@@ -1,0 +1,1 @@
+ARTÍCULO 54: De las devoluciones de las liquidaciones: El funcionario a partir de la notificación de rechazo tendrá un plazo único de tres días hábiles para elaborar nuevamente la liquidación de viáticos, vencido el cual, se tendrá por no presentada la liquidación con las sanciones que dicho incumplimiento amerite.

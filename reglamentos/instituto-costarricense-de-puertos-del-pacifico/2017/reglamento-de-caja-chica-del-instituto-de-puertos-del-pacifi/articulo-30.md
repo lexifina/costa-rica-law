@@ -1,0 +1,1 @@
+ARTICULO 30: De los casos en las cuales la Presidencia o la Gerencia puedan utilizar la sub partida de gastos de representación: Cuando se encuentre en un evento o actividad de carácter oficial y deba atender personas o representantes de entidades ajenas a la Institución (que no sean funcionarios públicos) en funciones propias del cargo.

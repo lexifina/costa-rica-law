@@ -1,0 +1,2 @@
+ARTICULO 8: De la programación de las giras: Deberá existir una estrecha relación entre el motivo del viaje y la naturaleza del puesto de cualquier funcionario, salvo que la Administración designe al funcionario para algún trabajo en específico.
+Cada Jefatura aprobará la gira de sus colaboradores, asegurándose previamente que cuenta con el contenido presupuestario necesario, quedando a la disposición de cada funcionario y su jefatura si se realiza adelanto para gira o solo se liquida al regreso de la misma.

@@ -1,0 +1,3 @@
+CAPITULO VI
+De la regulación del pago para la compra o renovación de la firma digital
+ARTICULO 31: De los vales de caja chica para la compra o renovación de firma digital: Se autoriza realizar un vale de caja chica para la compra o renovación de la firma digital, esto debido a que, si se hace por medio de cheque o por transferencia, nos estarían cobrando una comisión cada vez que se compra o se renueva la firma digital, situación que no ocurre cuando se presenta el funcionario con el efectivo a realizar el trámite.

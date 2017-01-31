@@ -1,0 +1,1 @@
+ARTICULO 11: De la póliza de fidelidad: Cada funcionario responsable de recaudar, custodiar y administrar fondos y valores, suscribirá una póliza de fidelidad anual de manera personal, la cual estará suscrita a favor del INCOP, lo anterior de acuerdo a lo establecido en el Reglamento de Cauciones del Instituto Costarricense de Puertos del Pacífico.

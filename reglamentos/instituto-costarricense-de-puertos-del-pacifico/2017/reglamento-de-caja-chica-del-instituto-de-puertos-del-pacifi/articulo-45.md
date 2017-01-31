@@ -1,0 +1,1 @@
+ARTICULO 45: Del abuso en el cobro del servicio de taxi: En caso de comprobarse por parte de las autoridades internas de la Institución que medió abuso en el cobro del servicio de taxi, tanto el funcionario que gestó el cobro como la jefatura que autorizó el pago, quedarán expuestos a las sanciones disciplinarias correspondientes.

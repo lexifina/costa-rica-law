@@ -1,0 +1,1 @@
+ARTÍCULO 62: De la prohibición para la compra de alimentos y bebidas: No se permite la compra de alimentos y bebidas para la atención de reuniones ordinarias de trabajo en las que toman parte funcionarios públicos.

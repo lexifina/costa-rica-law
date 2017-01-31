@@ -1,0 +1,1 @@
+ARTÍCULO 42: De las tarifas que se deben utilizar para el cobro del taxi: Las tarifas que se deben de utilizar para el adelanto o liquidación de un viaje, en lo relativo al rubro de pago de taxi, deben ser concordantes con las establecidas y autorizadas por la Autoridad Reguladora de Servicios Públicos (ARESEP), según la resolución más reciente al momento de la liquidación.
