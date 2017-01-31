@@ -1,0 +1,1 @@
+Artículo 6º—Régimen de Sanción. Con base al artículo 13 de de la Ley 6043 (Ley de la Zona Marítimo Terrestre), y artículo 22 del Reglamento a la Ley, se aplicaran las sanciones a los permisionarios infractores de la Zona Marítimo Terrestre.

@@ -1,0 +1,2 @@
+Transitorios I
+A partir de la publicación del presente Reglamento, los poseedores en precario de la zona restringida de la Zona Marítimo Terrestre del cantón de Garabito, dispondrán de treinta días hábiles para la formalización de su situación en uso precario, de lo contario la Municipalidad procederá a realizar el cobro respectivo sin más trámites, caso contrario se aplicara lo estipulada en el artículo 13 de la ley 6043.

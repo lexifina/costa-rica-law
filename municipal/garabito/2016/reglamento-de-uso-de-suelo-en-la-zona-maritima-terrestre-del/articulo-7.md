@@ -1,0 +1,1 @@
+Artículo 7º—Temporalidad de los permisos de uso. El carácter de los permisos de uso es temporal, en consecuencia con la precariedad del mismo y con forme al artículo 4 de la Ley 9242, no otorgara ningún derecho a favor del permisionario a excepción del derecho de uso concedido conforme al presente reglamento.

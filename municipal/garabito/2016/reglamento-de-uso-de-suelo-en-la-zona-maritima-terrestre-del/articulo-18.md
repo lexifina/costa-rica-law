@@ -1,0 +1,1 @@
+Artículo 18.—El departamento de Zona Marítimo Terrestre es el encargado de la aplicación del presente reglamento, para lo cual se contara con la asistencia obligatoria de los departamentos de Hacienda, Valoraciones, Inspecciones y Policía Municipal, según la naturaleza de su función.
