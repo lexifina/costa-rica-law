@@ -1,0 +1,2 @@
+MUNICIPALIDAD DE TARRAZÚ
+El Concejo Municipal de Tarrazú, mediante el acuerdo N° 2, tomado en la sesión ordinaria 037-2017, celebrada el 12 de enero del 2017, aprueba modificación del artículo 2 del Reglamento de Caja Chica de la Municipalidad de Tarrazú, donde se establece el fondo para compra de bienes y servicios, con el fin de que monto sea de ¢1.750.000.00 (un millón setecientos cincuenta mil colones con cero céntimos).
