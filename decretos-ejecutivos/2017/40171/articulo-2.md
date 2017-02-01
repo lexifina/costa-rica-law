@@ -1,0 +1,1 @@
+Artículo 2º—Deróguese el Decreto Ejecutivo Nº 39976-H de fecha 10 de octubre del 2016, publicado en el Alcance Nº 235 a La Gaceta Nº 206 de fecha 27 de octubre del 2016, a partir de la vigencia del presente decreto.
