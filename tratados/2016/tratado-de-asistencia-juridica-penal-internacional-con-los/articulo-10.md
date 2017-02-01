@@ -1,0 +1,10 @@
+ARTÍCULO 10
+Comparecencia en el Territorio de la Parte Requirente
+1. Si la Parte requirente solicita la comparecencia de una persona en calidad de testigo o perito que se encuentre en el territorio de la Parte requerida, esta última procederá a su citación y traslado de conformidad con la solicitud de asistencia jurídica penal internacional formulada.
+2. La comparecencia de la persona, sólo podrá realizarse si ésta manifiesta su aceptación por escrito, no pudiendo ser objeto de medida de apremio o sanción alguna en caso de que no acepte.
+3. La Parte requerida comunicará la respuesta de la persona a la Parte requirente, por escrito, y en su caso solicitará la comparecencia mediante citatorio, el cual deberá contener las excepciones o garantías siguientes en la Parte requirente:
+a) ninguna persona sea cual fuera su nacionalidad, que se traslade al territorio de la Parte requirente para colaborar en atención a una solicitud de asistencia jurídica penal internacional, podrá ser procesada, detenida o sujeta a cualquier restricción de libertad personal en el territorio de esa Parte por causas previas a su traslado, y
+b) ninguna persona estará obligada a declarar en actuaciones, ni a colaborar en investigaciones distintas de las actuaciones o investigaciones mencionadas en la citación.
+4. Toda citación que la Parte requerida notifique a la persona deberá mencionar las excepciones o garantías a que se refiere el numeral anterior y señalar que los gastos de traslado corresponden a la Parte requirente, de conformidad con el Artículo 21 del presente Tratado.
+5. Si la persona relacionada con la solicitud invoca excepción, derechos o incapacidad de conformidad con la legislación de la Parte requerida, dicha invocación será resuelta por la autoridad competente de la Parte requerida, con anterioridad al cumplimiento de la solicitud. El resultado será comunicado a la Parte requirente a través de la Autoridad Central.
+6. Si la persona invoca excepción, derechos o incapacidad de conformidad con la legislación de la Parte Requirente, tal invocación será informada a través de las respectivas Autoridades Centrales.

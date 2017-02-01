@@ -1,0 +1,10 @@
+ARTÍCULO 11
+Comparecencia por Videoconferencia
+1. La Parte requirente podrá solicitar que la declaración de una persona que se encuentre en el territorio de la Parte requerida, se realice mediante audiencia por videoconferencia.
+2. La Parte requerida autorizará la comparecencia por videoconferencia, en la medida en que no se encuentre prohibida por su legislación, siempre y cuando se disponga de los medios técnicos y compatibles para su realización.
+3. La comparecencia se llevará a cabo de conformidad con las reglas siguientes:
+a) tendrá lugar en presencia de la autoridad competente de la Parte requerida pudiendo contar, en caso necesario, con un intérprete;
+b) el interrogatorio será dirigido por la autoridad competente de la Parte requirente, siguiendo las formalidades previstas para este tipo de diligencias en su legislación. No obstante, la autoridad competente de la Parte requerida adoptará las medidas necesarias para que en el desarrollo de la comparecencia, se respeten las garantías individuales y procesales del declarante de conformidad con su legislación;
+c) las autoridades competentes de ambas Partes acordarán, si procede, medidas relativas a la protección de la persona que comparece de conformidad con la legislación de la Parte requerida;
+d) al término de la comparecencia, la autoridad competente de la Parte requerida levantará un acta, indicando la fecha y el lugar de la misma, la identidad del declarante, así como las identidades y calidades de las demás personas que hayan participado en la audiencia, debiendo remitir dicha acta a la Parte requirente, y
+e) los costos de la conexión y utilización del equipo técnico, en caso de que deba pagarse por ello en el territorio de la Parte requerida, el costo de la llamada internacional, el intérprete, así como los gastos de traslado y hospedaje en el territorio de la Parte requerida, serán reembolsados por la Parte requirente a la Parte requerida, a menos que esta última renuncie por escrito al reembolso referido, de manera total o parcial.

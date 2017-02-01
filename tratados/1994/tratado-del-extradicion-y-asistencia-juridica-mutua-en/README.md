@@ -1,6 +1,6 @@
 # Tratado del Extradición y Asistencia Jurídica Mutua en Materia Penal, entre la República de Costa Rica y los Estados Unidos Mexicanos
 
-Tratados Internacionales N° 7469 del 1994-12-20. SINALEVI, ficha 59031: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=59031&param2=93772&param3=1>.
+Tratados Internacionales N° 7469 del 1994-12-20. SINALEVI, ficha 59031: <https://sinalevi.go.cr/ResultadosNormativa/Informacion?param1=59031&param2=107191&param3=1>.
 
 Publicada en La Gaceta N° 7 del 1995-01-10.
 
@@ -10,3 +10,4 @@ Un archivo por artículo, en el orden de `index.txt`. Versiones (una por commit,
 | --- | --- | --- | --- |
 | 1 de 3 | 1995-01-10 | Tratados Internacionales 7469 (1994-12-20) | 1994-12-20 |
 | 2 de 3 | 2013-09-01 | Tratados Internacionales 9139 (2013-04-30) | 2013-04-30 |
+| 3 de 3 | 2017-02-01 | Tratados Internacionales 9400 (2016-09-28) | 2016-09-28 |

@@ -1,0 +1,6 @@
+ARTÍCULO 14
+Envío y Devolución de Documentos Judiciales
+1. La Parte requerida devolverá las actas procesales y las decisiones judiciales que le envíe la Parte requirente.
+La devolución podrá realizarse por transmisión del acta o de la decisión al destinatario. Si la Parte requirente lo solicita expresamente, la Parte requerida efectuará la devolución en una de las formas previstas por su legislación para notificaciones análogas o en una forma especial compatible con dicha legislación.
+2. La prueba de la devolución se realizará por medio de un recibo fechado y firmado por el destinatario o por una declaración de la Parte requirente en la que se dé constancia del hecho, la forma y la fecha de la devolución. Sea cual fuere el documento, se transmitirá inmediatamente a la Parte requirente. A solicitud de esta última, la Parte requerida precisará si la devolución se ha realizado de conformidad con su legislación. Si la devolución no pudiera efectuarse, la Parte requerida comunicará inmediatamente a la Parte requirente los motivos.
+3. Las citaciones de comparecencia se transmitirán a la Parte requerida en un plazo máximo de cuarenta (40) días antes de la fecha fijada para la comparecencia. En caso de urgencia, la Autoridad Central de la Parte requerida podrá renunciar a esta condición a solicitud de la Autoridad Central de la Parte requirente.
