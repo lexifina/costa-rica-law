@@ -1,0 +1,1 @@
+Artículo 2º—Al entrar en vigencia la presente resolución, se deja sin efecto la actualización efectuada mediante resolución número RES-DGH-056-2016 del 10 de octubre de 2016, publicada en el Alcance N° 238C a La Gaceta N° 208 del 31 de octubre de 2016.
