@@ -1,0 +1,11 @@
+Artículo 9. —Funciones Asistenciales Generales del Tecnólogo en Urología
+a. Preparar los materiales y equipos propios de su área, así como realizar el mantenimiento funcional operativo de estos. Esto implica mantener el equipo existente en adecuadas condiciones de higiene, comprobar su correcto funcionamiento, reponer e inventariar el material y los elementos necesarios en el área.
+b. Organizar, preparar y/o acondicionar los equipos e insumos que sean necesarios para que el médico efectúe los procedimientos en: sala de operaciones, consulta externa, hospitalización, emergencias, recuperación, rayos X, endo urología, sala de litotripcia, urodinamia, biopsias transrectales, sala de cistoscopía. Así como, aquellos que sean necesarios para atender eventuales emergencias que se presenten en el transcurso del estudio o procedimiento.
+c. Recibe al usuario en el servicio donde se efectuará el estudio y verifica [a información del mismo, para consignarla en todas las fórmulas de reporte que se requieran. Verifica la existencia física del consentimiento informado, el cual debe encontrarse ya completo y debidamente firmado.
+d. Informar al paciente y familiares que lo acompañan todo lo concerniente al tipo de procedimiento que se le va a realizar y brindarle apoyo emocional.
+e. Realizará la ejecución, control, asesoría, orientación, evaluación y seguimiento al paciente de Urología.
+f. Colabora con el Médico Especialista en Urología para la obtención de las muestras que sean necesarias, las cuales serán tratadas adecuadamente, las rotulará con la información de] paciente que sea requerida y se asegurará que sean entregadas en el departamento correspondiente.
+g. Controlar que todos los mantenimientos de garantía, preventivo y correctivos realizados a los equipos por medio de terceros sean realizados.
+h. En caso de encontrar un desperfecto en los equipos, lo reportará de inmediato a la Jefatura del Servicio, para que se proceda con la debida reparación.
+i. Posterior a cada procedimiento, se encarga de retirar los equipos y verificar [a limpieza de los mismos de acuerdo con las normas institucionales para la prevención de infecciones, preparar la sala para ser utilizada por el siguiente usuario.
+j. Implementar, coordinar y ejecutar programas de detección de patologías Urológicas. el

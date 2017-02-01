@@ -1,0 +1,1 @@
+Artículo 18. —De acuerdo con las indicaciones previas del Médico Especialista en Urología, podrá brindar colaboración en diferentes áreas de trabajo, relacionadas con su tecnología, que así lo requiera.
