@@ -1,2 +1,0 @@
-Artículo 19
-Si la extradición se solicita en forma concurrente por una de las Partes y otros Estados, bien por el mismo hecho o por hechos diferentes, la Parte requerida resolverá teniendo en cuenta especialmente la gravedad relativa a los hechos, el lugar de los delitos, las fechas de las respectivas solicitudes, la nacionalidad del individuo y la posibilidad de una extradición ulterior. Siempre se dará preferencia a la solicitud presentada por un Estado con el cual exista un tratado de extradición.

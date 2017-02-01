@@ -1,4 +1,0 @@
-Artículo 28
-1.- La Parte requerida cumplimentará las cartas o comisiones rogatorias relativas a un procedimiento penal que le sean dirigidas por las autoridades judiciales o por el Ministerio Público de la Parte requirente y que tengan por objeto actos de averiguación previa o instrucción o actos de comunicación.
-2.- Si la carta o comisión rogatoria tiene por objeto la transmisión de autos, objetos, elementos de prueba y en general cualquier clase de documentos, la Parte requerida entregará solamente copias o fotocopias auténticas, quedando a discreción de la Parte requerida el envío de los originales a solicitud expresa de la Parte requirente.
-3.- Los objetos o documentos que hayan sido enviados en cumplimiento de una comisión rogatoria serán devueltos lo antes posible, a menos que la Parte requerida renuncie a ellos.

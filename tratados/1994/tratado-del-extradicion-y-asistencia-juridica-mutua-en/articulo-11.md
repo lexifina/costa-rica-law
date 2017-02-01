@@ -1,2 +1,0 @@
-Artículo 11
-Si el delito que se imputa al reclamado es sancionado según la legislación de la Parte requirente, con la pena capital o con pena mayor al máximo establecido para la privación de la libertad en la legislación del país requerido, la extradición no se concederá a menos que se conmute la pena capital o la pena mayor por pena de prisión que no exceda la máxima prescrita por el país requerido.

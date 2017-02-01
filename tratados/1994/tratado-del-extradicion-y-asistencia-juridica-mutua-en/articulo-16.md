@@ -1,5 +1,0 @@
-Artículo 16
-1.- El individuo entregado en virtud de extradición no será procesado, juzgado o detenido para la ejecución de una pena por un hecho anterior y diferente al que hubiese motivado la extradición, salvo en los casos siguientes:
-a) Cuando la Parte que lo ha entregado preste su consentimiento, después de la presentación de una solicitud en este sentido, que irá acompañada de los documentos previstos en el artículo 15 y de un testimonio judicial conteniendo las declaraciones del inculpado. El consentimiento será otorgado cuando la infracción por la que se solicita, origine la obligación de conceder la extradición según este Tratado;
-b) Cuando estando en libertad de abandonar el territorio de la Parte a la que fue entregado, el inculpado haya permanecido en él más de cuarenta y cinco días sin hacer uso de esa facultad.
-2.- Cuando la calificación o clasificación del hecho imputado sea modificada en el curso del procedimiento, el individuo entregado sólo será procesado o juzgado en el caso de que los elementos constitutivos del delito también hubieren permitido la extradición.
