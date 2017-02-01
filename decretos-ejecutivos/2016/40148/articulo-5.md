@@ -1,0 +1,1 @@
+ARTÍCULO 5. Corresponderá a la Secretaría Técnica de Coordinación para la Gestión de Sustancias Químicas a través de las instituciones que la conforman, coordinar la promoción y el seguimiento de la Política Nacional de Seguridad Química. La Secretaría deberá revisar y actualizar la política, como mínimo cada 6 años,

@@ -1,0 +1,1 @@
+Transitorio II- El Plan de Acción de la Política Nacional de Seguridad Química deberá estar validado por Decreto Ejecutivo de los Ministerios suscribientes en un plazo no mayor a 1 año, contado a partir la publicación del presente decreto en el Diario Oficial La Gaceta.

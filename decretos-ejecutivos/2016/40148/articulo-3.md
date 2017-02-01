@@ -1,0 +1,1 @@
+ARTÍCULO 3. Para efectos de la presente Política Nacional de Seguridad Química, se entenderá como sustancias químicas aquellos elementos, compuestos y mezclas de origen natural o las obtenidas mediante cualquier proceso de producción, incluyendo las que se encuentran contenidas en artículos y mercancías.
