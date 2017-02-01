@@ -5,6 +5,8 @@ b) Gestionará el Tramo de Deuda, según lo consignado en las presentes normas. 
 • Definirá las normas que regirán la ejecución de las operaciones de mercado abierto.
 • Determinará las características de los instrumentos que deben ser negociados como parte de las operaciones de mercado abierto.
 • Propondrá otros mecanismos para la gestión de la deuda según lo estipulado en el Artículo 24 del presente documento.
+• Definirá la tasa de cupón bruta de las series ya aprobadas por la Junta Directiva que serán utilizadas como parte de la Estrategia de Colocación de Deuda del período correspondiente. Para ello, tendrá en cuenta el plazo remanente de cada serie y utilizará como referencia la tasa de rendimiento vigente para dicho plazo en la Curva Soberana de Costa Rica, publicada por el Banco Central de Costa Rica, con una antigüedad no mayor a 3 semanas antes de la utilización, por primera vez, del instrumento en mercado primario.
+(Así adicionado el punto anterior en sesión N° 5755 del 1° de febrero de 2017)
 c) Mantendrá un estrecho seguimiento del mercado financiero con el fin de informar oportunamente sobre aspectos que puedan afectar el logro de los objetivos del Banco Central en la gestión de sus pasivos.
 d) Efectuará los análisis técnicos necesarios para la toma de decisiones de la Comisión de Mercados.
 (Así reformado en sesión N° 5703 del 13 de octubre de 2015)
