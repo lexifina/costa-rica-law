@@ -1,0 +1,1 @@
+Artículo 8º—Una vez recibido en el Departamento de Compras y Contrataciones la totalidad de los informes, el Oficial de contrataciones generales dispondrá de hasta tres días hábiles para convocar a la Comisión.

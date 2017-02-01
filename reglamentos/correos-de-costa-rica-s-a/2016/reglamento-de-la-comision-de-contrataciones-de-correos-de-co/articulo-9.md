@@ -1,0 +1,1 @@
+Artículo 9º—La Comisión tendrá un plazo no mayor de quince días naturales contados a partir de la fecha de la primera reunión sobre el asunto, para analizar la eventual contratación y emitir el criterio correspondiente.

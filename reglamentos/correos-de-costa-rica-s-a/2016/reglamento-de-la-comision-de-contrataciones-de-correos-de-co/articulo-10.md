@@ -1,0 +1,2 @@
+Artículo 10.—Las recomendaciones u otras decisiones se tomarán por acuerdo, siendo necesario para ello la mayoría de los votos de los miembros permanentes, más el voto del representante de la unidad solicitante; en caso de contar con la participación de más de un miembro de una misma unidad, solamente se tomará en consideración un voto. Las votaciones se realizarán sin abstención, debiéndose producir los votos, necesariamente, de manera afirmativa o negativa.
+En caso de la votación resultare con el mismo número de votos a favor y en contra, el coordinador tendrá doble voto.

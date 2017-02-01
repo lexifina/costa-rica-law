@@ -1,0 +1,1 @@
+Artículo 7º—Los miembros de la Comisión y trabajadores que sean convocados o admitidos a sesión, deberán guardar absoluta reserva acerca de las deliberaciones y los asuntos tratados en las sesiones so pena de incurrir en responsabilidad por sus acciones u omisiones, que serán sancionados de conformidad con disposiciones que disciplinan a los trabajadores de Correos de Costa Rica.

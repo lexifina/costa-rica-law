@@ -1,0 +1,1 @@
+Artículo 12.—Cuando por justa causa un miembro de la Comisión no puede asistir a una sesión, deberá comunicarlo al Oficial de Contrataciones Generales de la misma e informar en forma oportuna, quien será su representante.
