@@ -1,3 +1,4 @@
 Artículo 24.—De la celebración de las elecciones. La elección tendrá una duración de 7 (siete) horas, iniciando a las 08:00 a. m. y terminando a las 03:00 p. m., para todos los sectores. En el caso de la elección del sector patronal y de asociaciones y organizaciones pro salud, la elección podrá terminar antes del horario establecido, cuando hayan emitido el voto la totalidad de patronos u organizaciones inscritas debidamente para tal efecto.
-Los horarios pueden ser modificados por el Comité Electoral, por razones de fuerza mayor, previa autorización de la Asesoría y Gestión Legal, Desconcentración y Juntas de Salud o instancia que, en su defecto, sea delegada por la Junta Directiva”.
+Los horarios pueden ser modificados por el Comité Electoral, por razones de fuerza mayor, previa autorización de la Dirección Institucional de Contraloría de Servicios de Salud(*) o instancia que, en su defecto, sea delegada por la Junta Directiva.
+(*) (Así modificada su denominación en sesión N° 8886 del 2 de febrero de 2017. Anteriormente se indicaba: “Asesoría y Gestión Legal, Desconcentración y Juntas de Salud”.)
 (Así reformado en sesión N° 8409 del 17 de diciembre de 2009)

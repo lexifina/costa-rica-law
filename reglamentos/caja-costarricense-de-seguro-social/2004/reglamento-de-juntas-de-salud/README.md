@@ -17,3 +17,4 @@ Reglamento de Juntas de Salud
 | 2 | 2006-01-05 | Reglamento 8021 (2006-01-05) |
 | 3 | 2009-09-17 | Reglamento 8381 (2009-09-17) |
 | 4 | 2009-12-17 | Reglamento 8409 (2009-12-17) |
+| 5 | 2017-02-02 | Reglamento 8886 (2017-02-02) |
