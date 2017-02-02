@@ -1,2 +1,3 @@
-Artículo 23.—Casos en que procede el refrendo a la Contraloría General de la República. BCR Valores S. A. debe solicitar el refrendo de los contratos administrativos a la Contraloría General de la República en todos aquellos casos expresamente así contemplados en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública emitido por esa Institución.
-BCR Valores S. A., debe remitir la solicitud respectiva dentro de los tres días hábiles siguientes a aquel en que el contrato sea debidamente suscrito por ambas partes.
+Artículo 23. Casos en que procede el refrendo a la Contraloría General de la República
+BCR Valores S.A. debe solicitar el refrendo de los contratos administrativos a la Contraloría General de la República en todos aquellos casos expresamente así contemplados en el Reglamento sobre el Refrendo de las Contrataciones de la Administración Pública emitido por esa Institución.
+BCR Valores S.A., debe remitir la solicitud respectiva dentro de los tres días hábiles siguientes a aquel en que el contrato sea debidamente suscrito por ambas partes.

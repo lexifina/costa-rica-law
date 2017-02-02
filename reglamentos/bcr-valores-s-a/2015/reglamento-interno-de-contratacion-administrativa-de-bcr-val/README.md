@@ -14,3 +14,4 @@ Reglamento interno de contratación administrativa de BCR Valores S. A.
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2015-11-04 | la propia norma |
+| 2 | 2017-02-02 | Reglamento 3 (2017-02-02) |

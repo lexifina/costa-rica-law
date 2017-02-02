@@ -1,1 +1,2 @@
-Artículo 11.—Sustitución de servidores. Las atribuciones de un servidor competente pueden ser ejercidas en su ausencia por los órganos superiores con atribuciones en la materia. En caso de que se nombre de manera formal a un sustituto este tiene las mismas atribuciones y facultades que este Reglamento otorga al servidor titular.
+Artículo 11. Sustitución de servidores/as
+Las atribuciones de un/a servidor/a competente pueden ser ejercidas en su ausencia por los órganos superiores con atribuciones en la materia. En caso de que se nombre de manera formal a un/a sustituto/a, este/a tiene las mismas atribuciones y facultades que este Reglamento otorga al/a la servidora titular.

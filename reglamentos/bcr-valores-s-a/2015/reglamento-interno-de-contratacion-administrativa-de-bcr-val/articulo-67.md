@@ -1,2 +1,2 @@
-Artículo 67.—Vigencia y derogatorias. Este reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.
-San José, 14 de octubre del 2015
+Artículo 67. Vigencia y derogatorias
+Este reglamento entrará en vigencia a partir de su publicación en el Diario Oficial La Gaceta.

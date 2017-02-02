@@ -1,9 +1,11 @@
-Artículo 50.—Cesión del contrato. Los derechos y obligaciones derivados de un contrato administrativo listo para iniciarse o en ejecución, pueden ser cedidos a un tercero, ello en tanto no se trate de una obligación personalísima. Toda cesión debe ser autorizada por el órgano que adjudicó el contrato, o uno de los niveles superiores con atribuciones, mediante acto debidamente razonado, previa solicitud de criterio a la oficina técnica solicitante; para adoptar la decisión se analizarán como mínimo los siguientes aspectos:
+Artículo 50. Cesión del contrato
+Los derechos y obligaciones derivados de un contrato administrativo listo para iniciarse o en ejecución, pueden ser cedidos a un tercero, ello en tanto no se trate de una obligación personalísima. Toda cesión debe ser autorizada por el órgano que adjudicó el contrato, o uno de los niveles superiores con atribuciones, mediante acto debidamente razonado, previa solicitud de criterio a la oficina técnica solicitante; para adoptar la decisión se deben analizar como mínimo los
+siguientes aspectos:
 a. Causa de la cesión.
 b. Grado de cumplimiento por parte del cesionario de las principales condiciones legales, técnicas y financieras solicitadas en el cartel.
-c. Que el cesionario no esté afectado por alguna causal legal de prohibición o impedimento para contratar.
-d. Que el cesionario cumpla las mismas condiciones subjetivas exigidas por el cartel para ejecutar el contrato y cumplir el fin público previsto.
+c. Que el/la cesionario/a no esté afectado/a por alguna causal legal de prohibición o impedimento para contratar.
+d. Que el/la cesionario/a cumpla las mismas condiciones subjetivas exigidas por el cartel para ejecutar el contrato y cumplir el fin público previsto.
 e. Ventajas de la cesión frente a la posibilidad de resolver el contrato.
 f. Eventuales incumplimientos graves del cedente hasta el momento de su solicitud y medidas administrativas adoptadas al respecto.
-Si la cesión excede el cincuenta por ciento del objeto del contrato debe ser autorizada por la Contraloría General de la República.
-La tramitación de la cesión debe ser realizada por BCR Valores S. A. en coordinación con la Oficina de Compras y Pagos del BCR.
+Si la cesión excede el cincuenta por ciento del objeto del contrato, debe ser autorizada por la Contraloría General de la República.
+La tramitación de la cesión debe ser realizada por BCR Valores S.A. en coordinación con la Oficina de Contratación Administrativa del BCR.
