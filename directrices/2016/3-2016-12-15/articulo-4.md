@@ -1,0 +1,1 @@
+Artículo 4.- Derogatoria. De conformidad con el artículo 8 de nuestro Código Civil quedan derogadas todas aquellas directrices, circulares, políticas y lineamientos contables anteriores e incompatibles a las nuevas políticas contables con base en NICSP.

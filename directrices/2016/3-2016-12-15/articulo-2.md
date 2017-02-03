@@ -1,0 +1,1 @@
+Artículo 2.- Objetivo. Adoptar e implementar las políticas contables publicadas y emitidas por la Dirección General de Contabilidad Nacional en el ámbito de las Instituciones del Sector Público Costarricense.

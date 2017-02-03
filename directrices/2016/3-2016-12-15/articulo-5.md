@@ -1,0 +1,1 @@
+Artículo 5.- Divulgación. El texto tanto del PGCN como de las políticas contables (generales y específicas) será distribuido a través de los mecanismos pertinentes y estará a disposición de las instituciones, así como para el resto de la ciudadanía, en la página electrónica del Ministerio de Hacienda https://www.hacienda.go.cr.
