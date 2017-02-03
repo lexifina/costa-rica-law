@@ -1,0 +1,15 @@
+Artículo 12.—Funciones de la Unidad Ejecutora. La Unidad Ejecutora tendrá las siguientes funciones:
+a) Preparar, ejecutar y mantener actualizado el cronograma de trabajo para la ejecución e implantación del plan operativo del proyecto piloto y la consolidación de la sectorización de acuerdo con los principios técnicos establecidos en el Decreto Ejecutivo N° 28337-MOPT y el presente Decreto.
+b) Participar en los foros correspondientes, en procesos de discusión y análisis de otros aspectos de la modernización del transporte público, como las políticas de integración tarifaria, el pago electrónico, la integración intermodal, el uso de energías alternativas, la modernización de flota, etc., de modo que, activamente, promueva la coherencia entre la sectorización del transporte público y las decisiones que se deriven de esos foros.
+c) Reformular y/o ajustar el plan operativo diseñado para cada sector geográfico oficialmente establecido, en coordinación con el Equipo Técnico o en su caso con el CTP.
+d) Coordinar con instituciones públicas y los operadores por sector geográfico oficialmente establecido lo referente a la ejecución e implantación del plan operativo diseñado para cada sector.
+e) Coordinar lo concerniente a la infraestructura vial del transporte público, específicamente en lo que se refiere a edificaciones (paradas cubiertas, facilitaciones, protecciones y obras de orden regulador y de control).
+f) Coordinar el equipo de trabajo que se nombre y su capacitación para el logro de la ejecución e implantación del plan operativo diseñado para cada sector geográfico oficialmente establecido.
+g) Coordinar la elaboración y ejecución de un plan de divulgación y de visitas en campo en todo el proceso de la ejecución e implantación del plan operativo diseñado para cada sector geográfico oficialmente establecido.
+h) Elaborar, recibir, avalar y comunicar a las instancias superiores los informes de avance de la ejecución e implantación del plan operativo diseñado para cada sector geográfico oficialmente establecido.
+i) Mantener información técnica actualizada sobre el avance y estadísticas de las actividades técnicas de la ejecución e implantación del plan operativo diseñado para cada sector geográfico oficialmente establecido.
+j) Formular, ejecutar, controlar y avaluar el presupuesto asignado para la ejecución e implantación del plan operativo diseñado para cada sector geográfico oficialmente establecido.
+k) Preparar los términos y condiciones para la contratación de asesorías técnicas que la Unidad Ejecutora requiera, así como las contrataciones de obras, bienes y servicios y darle seguimiento al proceso de modernización del transporte público.
+l) Asegurar que las decisiones que adopte se ajusten al deber de probidad.
+m) Administrar los recursos públicos que le sean asignados con apego a los principios de legalidad, eficacia, eficiencia, economía y rindiendo cuentas ante la Viceministra o Viceministro de Transportes y Seguridad Vial
+n) Atender cualquier otra directriz o disposición que le gire la Viceministra de Transportes y Seguridad.

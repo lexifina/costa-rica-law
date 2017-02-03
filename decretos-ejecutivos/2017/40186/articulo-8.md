@@ -1,0 +1,3 @@
+Artículo 8.—Justificación de propuestas. La presentación de las propuestas de los operadores debe hacerse ante el Equipo Técnico cumpliendo, con los siguientes lineamientos:
+a) Una exposición con la presencia de un máximo de cuatro representantes por operador del servicio público. En la presentación se debe incluir una breve descripción detallada de la propuesta para el Sector correspondiente.
+b) Entregando al Equipo Técnico documentación técnica escrita y en formato digital con la descripción de los lineamientos a mediano y largo plazo para la reorganización del servicio de transporte público a su cargo en su Sector (informe técnico de referencia). Se hará según lo estipulado en el Decreto Ejecutivo 28337-MOPT y por el CTP.

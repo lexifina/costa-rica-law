@@ -1,0 +1,1 @@
+Artículo 16. —El Poder Ejecutivo reconoce la importancia del pago electrónico dentro del proceso de modernización del transporte público, por ese motivo dictará las directrices necesarias a las instituciones competentes en la materia.
