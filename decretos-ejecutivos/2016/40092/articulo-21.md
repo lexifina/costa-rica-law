@@ -1,0 +1,2 @@
+Artículo 21— Otras Actividades y Capacitaciones.
+Los miembros de las brigadas podrán ser convocados por las autoridades de este Ministerio, la Comisión, El Coordinador de Brigadas u cualquier otra institución a cualquier tipo de capacitación para el buen desempeño de sus funciones, para lo cual las respectivas Jefaturas deberán permitir a los miembros de las brigadas, su asistencia, reorganizando el trabajo en las distintas dependencias para garantizar la asistencia del trabajador.

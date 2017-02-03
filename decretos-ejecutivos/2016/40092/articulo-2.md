@@ -1,0 +1,2 @@
+Artículo 2°—Objetivo. El presente reglamento tiene como objetivo regular el quehacer y las acciones que deberán realizar las Comisiones de Salud Ocupacional y Brigadas de Emergencia, de los diferentes centros de trabajo del Ministerio de Educación Pública (MEP), de manera que se garantice en forma efectiva y eficaz, la salud ocupacional de las personas que laboran en ellos.
+Asimismo, se establece como eje fundamental la salud ocupacional, asegurando el bienestar y la seguridad de los funcionarios de la Institución, así como de los visitantes de ésta.

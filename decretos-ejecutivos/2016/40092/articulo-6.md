@@ -1,0 +1,2 @@
+Artículo 6°—Unidad de Coordinación o mando. En caso de una situación de emergencia, la coordinación de la misma será asumida por la brigada respectiva, la cual seguirá las instrucciones de su respectivo Coordinador General, según sea el tipo de emergencia y de acuerdo a las instrucciones establecidas en los diferentes procedimientos autorizados por la Oficialía Mayor del Ministerio de Educación.
+La Comisión asignará al coordinador tareas específicas, siempre y cuando las mismas no atenten contra la seguridad de las personas ni de sus colaboradores.

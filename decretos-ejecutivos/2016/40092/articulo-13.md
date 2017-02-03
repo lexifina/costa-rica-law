@@ -1,0 +1,2 @@
+Artículo 13. - Otras Actividades y Capacitaciones.
+Los miembros de la Comisión podrán ser convocados por este Ministerio o cualquier otra institución a cualquier tipo de capacitación para el buen desempeño de sus funciones, para lo cual las respectivas Jefaturas deberán permitir a los representantes de los trabajadores su asistencia, reorganizando el trabajo en las distintas dependencias para garantizar la asistencia del trabajador. De igual manera la Comisión podrá promover capacitaciones para sus miembros, así como para todos los trabajadores del centro de trabajo.

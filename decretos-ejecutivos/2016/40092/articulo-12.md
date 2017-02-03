@@ -1,0 +1,1 @@
+Artículo 12. - De las sesiones. La Comisión se reunirá ordinariamente una vez al mes. Podrá hacerlo extraordinariamente, las veces que lo requiera. La solicitud de reuniones extraordinarias la hará el presidente de la comisión teniendo carácter de convocatoria, pudiendo dispensar alguno de sus miembros por razones previamente razonadas.

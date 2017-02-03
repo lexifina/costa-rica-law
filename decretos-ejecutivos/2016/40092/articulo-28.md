@@ -1,0 +1,3 @@
+CAPÍTULO VII
+De la Responsabilidad Civil, Penal y Administrativa de la Administración
+Artículo 28. —Sobre la competencia de La Comisión de Salud Ocupacional. La Comisión de Salud Ocupacional actuará de conformidad a las competencias técnico, administrativas que le correspondan, con capacidad de dictaminar los riesgos potenciales que puedan presentarse en los distintos centros de trabajo del Ministerio de Educación Pública, según lo estipulado en el artículo 288 del Código de Trabajo, ante lo cual recaerá la responsabilidad civil, penal o administrativa, por las consecuencias que se generen por la omisión de actuar de conformidad al dictamen de la Comisión.

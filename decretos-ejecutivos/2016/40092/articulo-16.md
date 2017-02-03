@@ -1,0 +1,2 @@
+Artículo 16—Conformación. Cada brigada estará conformada al menos por cinco funcionarios de esta Cartera Ministerial, nombrados por la Comisión.
+Cada brigada contará con un Coordinador que será el responsable definitivo del trabajo de su brigada. En aquellos edificios que cuenten con varios pisos, la Comisión podrá variar el número de brigadistas de acuerdo con la cantidad de personas que se deban evacuar
