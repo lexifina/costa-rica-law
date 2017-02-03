@@ -1,0 +1,1 @@
+Artículo 3°—Beneficiarios. Podrán ser beneficiarios de esta ayuda todas aquellas personas que se encuentren cursando primaria o secundaria en las escuelas o colegios públicos del Cantón de San Mateo, siempre y cuando sean estudiantes de escasos recursos económicos y que hayan demostrado gran interés en continuar sus estudios.

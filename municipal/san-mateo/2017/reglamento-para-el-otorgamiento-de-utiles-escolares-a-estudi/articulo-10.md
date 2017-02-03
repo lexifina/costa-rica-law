@@ -1,0 +1,1 @@
+Artículo 10.—Entrega de la beca. Los beneficios serán entregados personalmente al beneficiario en la oficina de Alcaldía Municipal o el que este delegue con su respectiva identificación. En caso de ser menores de edad, deberán presentar el respectivo carné de la institución educativa en la cual realiza sus estudios.

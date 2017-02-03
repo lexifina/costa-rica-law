@@ -1,0 +1,1 @@
+Artículo 5°—Órgano competente. La adjudicación del beneficio la realizará el Concejo Municipal, previa recomendación no vinculante de la Comisión Municipal a cargo, que se encargará de brindar un estudio de los aspirantes a esta ayuda.

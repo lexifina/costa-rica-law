@@ -1,0 +1,1 @@
+Artículo 7°—Periodo de recepción de solicitudes. El Concejo Municipal divulgará en la primera quincena de diciembre que recibirá solicitudes en la segunda quincena del mes de enero del año respectivo.

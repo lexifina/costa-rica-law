@@ -1,0 +1,1 @@
+Artículo 8°—Comisión Municipal de Beneficio. Créase la Comisión Municipal de Beneficio que será integrada por los miembros del Concejo que el presidente Municipal designe, la que se encargará de recibir y analizar las solicitudes de beca recibidas. En aquellos casos en que los formularios cumplan con todos los requisitos reglamentarios exigidos.
