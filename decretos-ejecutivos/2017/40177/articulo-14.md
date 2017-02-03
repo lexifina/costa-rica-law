@@ -1,0 +1,1 @@
+Artículo 14: Una vez ordenada la medida cautelar por el órgano jurisdiccional, deberá ser comunicada a la Dirección General de Adaptación Social y la persona indiciada será trasladada inmediatamente al centro de monitoreo para el registro de sus datos personales y la formalización de la fase de ingreso.

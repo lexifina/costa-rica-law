@@ -1,0 +1,2 @@
+Artículo 18: El juzgado de ejecución de la pena podrá ordenar el arresto domiciliario con monitoreo electrónico cuando concurra alguno de los supuestos previstos en el artículo 486 bis del Código Procesal Penal.
+Para tales efectos, en caso de requerir información de la Dirección General de Adaptación Social, podrá indicar qué presupuesto es el que motiva el trámite y cuáles son las instancias o disciplinas técnicas que deben rendir sus informes.

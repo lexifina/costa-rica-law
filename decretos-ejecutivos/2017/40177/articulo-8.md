@@ -1,0 +1,1 @@
+Artículo 8: Cuando existiera alguna duda u omisión sobre las condiciones impuestas en sentencia, la Dirección General de Adaptación Social podrá hacer al tribunal competente una solicitud de adición y aclaración de lo resuelto, dentro de] plazo de 5 días, contados a partir del momento en que la persona indiciada o condenada se presentó ante ella.

@@ -1,0 +1,1 @@
+Artículo 10: La competencia territorial de los jueces de ejecución de la pena para la supervisión de la sanción de arresto domiciliario deberá ser determinada por el Poder Judicial atendiendo a la equitativa carga laboral y a la efectiva reinserción social de los sentenciados que obliga a considerar las opciones más cercanas a su domicilio.
