@@ -1,0 +1,80 @@
+ENTE COSTARRICENSE DE ACREDITACIÓN
+AVISO
+Publicación de documentos 012-2016. El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley del Sistema Nacional de la Calidad, dan a conocer la publicación de la modificación de los siguientes documentos, de la siguiente manera:
+Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha de entrada en vigencia en el sistema de gestión del ECA
+ECA-MC-C15 Criterios para realizar ensayos de aptitud | NA | 01 | A partir de su publicación en el diario oficial la Gaceta | 1 mes posterior a su publicación en el diario oficial La Gaceta
+Los documentos descritos se encuentran a disposición de los interesados en la página electrónica www.eca.or.cr/ http://www. eca.or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestoría de Calidad en las oficinas centrales del ECA ubicadas en Pavas, Rohrmoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8:00 a las 16:00 horas.
+San José, 15 de diciembre del 2016.-
+(Nota de Sinalevi: El presente procedimiento se extrajo del sitio web del Ente costarricense de Acreditación, por lo que se reproduce a continuación:)
+[imagen]
+CONTENIDO
+1. OBJETIVO ................................................................................................................................. 1
+2. ALCANCE ................................................................................................................................. 1
+3. DEFINICIONES .......................................................................................................................... 2
+4. CRITERIOS PARA LA EVALUACIÓN Y ACREDITACIÓN DE PROVEEDORES DE ENSAYOS DE APTITUD ................................................................................................................... 2
+5. CRITERIOS ADICIONALES PARA EL USO DE LABORATORIOS POR PARTE DE LOS PROVEEDORES DE ENSAYOS DE APTITUD: .............................................................................. 3
+6. REQUISITOS O CRITERIOS DE PARTICIPACIÓN DE LOS PROVEEDORES DE ENSAYOS DE APTITUD EN ENSAYOS DE APTITUD: ................................................................. 4
+7. CRITERIOS ADICIONALES PARA LA APLICACIÓN DE LA NORMA INTE-ISO/IEC 17043:2010. ...................................................................................................................................... 4
+7.1 APARTADO 4.4.3 HOMOGENEIDAD Y ESTABILIDAD. .................................................... 5
+7.2 APARTADO 4.4.5 VALORES ASIGNADOS. ....................................................................... 5
+7.3 APARTADO 4.7.1 ANÁLISIS DE DATOS Y REGISTROS ................................................. 5
+7.4 APARTADO 4.8 INFORMES ................................................................................................. 5
+7.5 APARTADO 5.8 QUEJAS Y APELACIONES ...................................................................... 6
+8 IDENTIFICACIÓN DE CAMBIOS .............................................................................................. 6
+9 TRANSITORIO ........................................................................................................................... 6
+1. OBJETIVO
+Establecer los criterios de referencia que deben ser aplicados para la evaluación y acreditación de Proveedores de Ensayos de Aptitud de acuerdo con la Norma INTE-ISO/IEC 17043:2010. Asimismo establecer requisitos complementarios a los citados en la norma de referencia.
+2. ALCANCE
+El presente documento debe ser aplicado por el personal de la Secretaría de Acreditación de Laboratorios de Ensayo y Calibración, Evaluadores y Expertos técnicos para Proveedores de Ensayos de Aptitud, Comité Asesor de Laboratorios de Ensayo y Calibración, Comisión de Acreditación y Proveedores de Ensayos de Aptitud acreditados y en proceso de acreditación.
+3. DEFINICIONES
+Para el propósito de este documento, aplican los términos y definiciones descritos en las normas INTE-ISO/IEC 17043:2010 e INTE-ISO/IEC 17000.
+4. CRITERIOS PARA LA EVALUACIÓN Y ACREDITACIÓN DE PROVEEDORES DE ENSAYOS DE APTITUD
+4.1 Si el Proveedor de ensayos de aptitud utiliza ítems de ensayos de aptitud, provenientes de productores de materiales de referencia, debe demostrar que dicho Proveedor es competente con la norma INTE-ISO/IEC-17034:2016.
+4.2 El Proveedor de ensayos de aptitud debe utilizar los métodos de análisis estadísticos descritos en:
+a) El anexo B de la norma INTE-ISO/IEC 17043, o
+b) En la norma INTE-ISO 13528, o
+c) Métodos que sean estadísticamente válidos, apropiados para cada situación y que sean descritos completamente a los participantes.
+4.3 En caso que un Proveedor de ensayos de aptitud sea multisitios, deberá cumplir todos los requisitos establecidos para OEC multisitios, descritos en el documento ECA-MP-P11, Criterios OEC multisitios e instalaciones temporales.
+4.4 Las actividades claves para Proveedores de ensayos de aptitud incluyen: la formulación de políticas, proceso y desarrollo de procedimientos, revisión del contrato, planificación de los programas de ensayos de aptitud, evaluación del desempeño, autorización de la emisión de informes de ensayos de aptitud, preparación de los ítems de ensayo de aptitud, determinación de la homogeneidad y estabilidad de los ítems de ensayo de aptitud, distribución de los ítems de ensayo de aptitud, diseño estadístico del ensayo de aptitud y determinación del valor asignado y su incertidumbre.
+4.5 Las actividades clave de los Proveedores de ensayos de aptitud, que no pueden ser subcontratadas, son:
+a) la formulación de políticas,
+b) Proceso y / o el desarrollo de procedimientos,
+c) revisión del contrato,
+d) La planificación de esquemas de ensayos de aptitud
+e) Evaluación del desempeño.
+f) Autorización de la emisión de informes de ensayos de aptitud
+4.6 El ECA requiere que el Proveedor de ensayos de aptitud informe sin retraso cualquier cambio que surja de las relaciones con sus subcontratistas durante el periodo de acreditación. El Proveedor de ensayos de aptitud debe proporcionar detalles por escrito de los preparativos existentes para asegurar la competencia técnica continua y las medidas que demuestran que la acreditación se mantiene de manera eficaz.
+5. CRITERIOS ADICIONALES PARA EL USO DE LABORATORIOS POR PARTE DE LOS PROVEEDORES DE ENSAYOS DE APTITUD:
+5.1 Los laboratorios del Proveedor de ensayos de aptitud o los que subcontrate, que realicen ensayos o mediciones relacionadas con los programas de ensayo de aptitud, deben demostrar su competencia con la normas INTE-ISO/IEC 17025 o INTE-ISO 15189, según corresponda.
+5.2 Si los laboratorios del Proveedor de ensayos de aptitud o del subcontratista especificado se encuentra acreditados con la norma INTE-ISO/IEC 17025 o la INTE-ISO 15189 por el ECA o un signatario del MLA de IAAC o ILAC para las actividades de ensayos/ calibración / medición que realiza en la operación de los programas de ensayos de aptitud, esta acreditación puede ser considerada satisfactoria para cumplir con los requisitos de la norma ISO/IEC 17025 o la ISO 15189, para la competencia de ensayos o calibración.
+5.3 Si el Proveedor de ensayos de aptitud realiza actividades de ensayos / calibración / determinaciones de mediciones y no se encuentra acreditado, el ECA realizará la evaluación de estas actividades contra los requisitos relevantes de la norma INTE-ISO/IEC 17025 o la INTE-ISO 15189. El objetivo de esta evaluación, es determinar si las actividades de ensayos o de calibración, realizadas por el Proveedor, son viables para apoyar los programas de ensayos de aptitud acreditadas o en proceso de acreditación.
+Lo anterior, no significa que el alcance de la acreditación emitido por el ECA para el Proveedor de ensayos de aptitud, indicará que el Proveedor de ensayos de aptitud se encuentra acreditado conforme a la norma INTE-ISO/IEC 17025 o la INTE-ISO 15189 para dichas actividades de ensayos y/o calibración.
+5.4 Si el Proveedor de ensayos de aptitud, utiliza un subcontratista para realizar las actividades de ensayo / calibración / medición y dicho subcontratista no se encuentra acreditado bajo la norma INTE-ISO/IEC 17025 o la INTE-ISO 15189, por un signatario de IAAC o ILAC, el ECA debe evaluar la forma en que el Proveedor de ensayos de aptitud determina la competencia del subcontratista y su conformidad con las partes relevantes de las normas indicadas.
+En estos casos, el ECA tiene la opción de determinar si se requiere una evaluación en sitio del subcontratista, para evaluar directamente su competencia técnica y el cumplimiento con las partes relevantes de la norma ISO/IEC 17025 o la ISO 15189.
+5.5 Los Laboratorios del Proveedor de ensayos de aptitud o los que subcontrate deben cumplir con los requisitos de ECA-MC-P20, Política de trazabilidad del ECA, siempre que el Laboratorio sea responsable de proporcionar mediciones utilizadas para determinar el valor asignado.
+5.6 El Proveedor de ensayos de aptitud debe evaluar el cumplimiento de la política ECA-MC-P20, como parte de los requisitos para asegurar la competencia del Laboratorio subcontratado.
+6. REQUISITOS O CRITERIOS DE PARTICIPACIÓN DE LOS PROVEEDORES DE ENSAYOS DE APTITUD EN ENSAYOS DE APTITUD:
+6.1 Cuando el Proveedor de ensayos de aptitud realiza ensayos/ calibración o medición, que afecta significativamente la validez y la incertidumbre del valor asignado de un mesurando o característica de los programas de ensayos de aptitud, el Proveedor de ensayos de aptitud debe participar en ensayos de aptitud y cumplir con lo estipulado en ECA-MC-P17 Política de ensayos de aptitud y otras comparaciones del ECA, para los ensayos/calibraciones y mediciones que realiza.
+6.2 Si la única opción para la participación, por parte del Proveedor de ensayos de aptitud, en un programa de ensayos de aptitud, es uno ofrecido por un competidor del Proveedor de ensayos de aptitud, no se esperaría que se utilice esta opción, pero el Proveedor de ensayos de aptitud debe demostrar el cumplimiento de la política ECA-MC-P17 por otros medios, por ejemplo, por el uso de materiales de referencia certificados, repeticiones de ensayos o calibraciones utilizando el mismo método, o diferentes.
+6.3 Si el Proveedor de ensayos de ensayos de aptitud subcontrata las actividades de ensayos / calibración o medición, a un Proveedor no acreditado, debe evaluar el cumplimiento de la política ECA-MC-P17 como parte de los requisitos para asegurar la competencia del Laboratorio subcontratado.
+6.4 Cuando el Proveedor de ensayos de aptitud, determina el valor asignado exclusivamente con base en los valores asignados a los materiales de referencia o en el valor proporcionado por un solo laboratorio, aplican los requisitos de la trazabilidad de las mediciones establecidas en la política ECA-MC-P20.
+7. CRITERIOS ADICIONALES PARA LA APLICACIÓN DE LA NORMA INTE-ISO/IEC 17043:2010.
+A continuación se describen algunos criterios de aplicación de la norma INTE-ISO/IEC 17043:2010 que serán evaluados a los Proveedores de ensayos de aptitud, la numeración, por ejemplo 4.4.3.3 indica el apartado de la norma a la cual aplica el criterio y se agrega una letra como consecutivo para diferenciar el criterio:
+7.1 APARTADO 4.4.3 HOMOGENEIDAD Y ESTABILIDAD.
+4.4.3.3 a. El Proveedor de ensayos de aptitud deberá mantener registros de cómo se conservan los ítems de ensayo de aptitud, para asegurar la estabilidad hasta la entrega a los participantes. El control deberá estar sustentado técnicamente.
+7.2 APARTADO 4.4.5 VALORES ASIGNADOS.
+4.4.5.3 a. Siempre que sea posible, los PEA deberán utilizar ítems con trazabilidad metrológica. En el caso en que la trazabilidad metrológica no sea posible o apropiada, el Proveedor de ensayos de aptitud debe justificar técnicamente la elección de los ítems para el ensayo de aptitud y debe estimar la incertidumbre del valor asignado.
+4.4.5.1 a. Cuando sea el Proveedor de ensayos de aptitud quien determina los valores asignados deberá tener y aplicar procedimientos documentados para estimar la incertidumbre de medición de los valores asignados. En caso de que el Proveedor de ensayos de aptitud subcontrate la determinación del valor asignado deberá exigir le sea reportada la incertidumbre de medida de los valores asignados.
+4.4.5.1 b. El Proveedor de ensayos de aptitud debe mantener registros de la estimación de la incertidumbre de medida de los valores asignados.
+4.4.5.2 a. Cuando sea posible, el Proveedor de ensayos de aptitud debe elegir un procedimiento para determinar un valor de referencia cuyo valor de incertidumbre sea menor a los valores de incertidumbre esperados de los participantes.
+4.4.5.3 b. La trazabilidad metrológica se considera viable con base en lo establecido en la política de trazabilidad del ECA, ECA-MC-P20.
+7.3 APARTADO 4.7.1 ANÁLISIS DE DATOS Y REGISTROS
+4.7.1.1 a. El software comercial (por ejemplo: un procesador de texto, una base de datos y los programas estadísticos) de uso generalizado en el campo de aplicación para el cual fue diseñado, se puede considerar suficientemente validado. Sin embargo, es conveniente que la configuración y las modificaciones del software del Proveedor de ensayos de aptitud se validen.
+7.4 APARTADO 4.8 INFORMES
+4.8.1 a. Incluir en el informe el resultado del desempeño de los participantes indicando si este es satisfactorio o no satisfactorio de acuerdo al criterio de evaluación de desempeño.
+7.5 APARTADO 5.8 QUEJAS Y APELACIONES
+5.8 a. Si como consecuencia de una queja o una apelación la evaluación del desempeño en el informe final sufre un cambio y es necesario emitir un informe nuevo o modificado, además de realizar las acciones establecidas por el Proveedor de ensayos de aptitud para el manejo de trabajo no conforme se debe notificar a los participantes del ensayo de aptitud y al ECA, los cambios realizados.
+8 IDENTIFICACIÓN DE CAMBIOS Motivo: | Elaboración de documento 2016-159
+Observaciones: No aplican.
+9 TRANSITORIO
+Fecha de entrada en vigencia el 04 de Febrero del 2017, un mes posterior a su publicación en el diario oficial la Gaceta N°03 del 04 de Enero del 2017.
