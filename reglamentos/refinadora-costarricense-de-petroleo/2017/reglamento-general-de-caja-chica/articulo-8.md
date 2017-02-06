@@ -1,0 +1,1 @@
+Artículo 8º-Del incumplimiento de los pagos. Los revisores de los Departamentos de Administración de Tesorería o Administración de Servicios Generales devolverán el pago que incumpla con los lineamientos y requisitos establecidos en el presente Reglamento y en las directrices emitidas.

@@ -1,0 +1,1 @@
+Artículo 3º-Del cumplimiento. Las dependencias de la Empresa y los Departamentos de Administración de Servicios Generales y Administración de Tesorería serán encargadas de velar por el cumplimiento del presente Reglamento.

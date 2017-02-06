@@ -1,0 +1,3 @@
+Artículo 22.-De las responsabilidades de los encargados de realizar compras.
+a. Aplicar la retención del impuesto de renta, en pagos locales, cuando el monto de la factura supere el monto establecido para estos efec tos, según lo dispuesto por el artículo 24, inciso g), numeral a) del Reglamento de la Ley del Impuesto sobre la Renta y en pagos al exterior de acuerdo con los porcentajes establecidos en el artículo 59 de la Ley del Impuesto Sobre la Renta.
+b. Entregar inmediatamente las facturas a la persona de su centro de costo o centro gestor, encargada de registrar los documentos en el SIG, para su respectiva liquidación.

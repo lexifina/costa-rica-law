@@ -1,0 +1,1 @@
+Artículo 7º-De las autorizaciones y medio de pago. Las autorizaciones de pago serán administradas a través del SIG, Los pagos autorizados, se cancelarán a través de la tarjeta de compra institucional, por transferencia electrónica a la cuenta personal del beneficiario o a la cuenta del proveedor, según corresponda
