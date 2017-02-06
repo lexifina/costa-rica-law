@@ -17,3 +17,4 @@ Criterios de Verificación para Emitir el Padrón Oficial de las Cooperativas y 
 | 2 | 2009-01-12 | Acuerdo 0 (2009-01-12) |
 | 3 | 2010-08-23 | Reglamento 3792 (2010-08-23) |
 | 4 | 2010-09-20 | Reglamento 0 (2010-09-20) |
+| 5 | 2017-02-06 | Reglamento 4107 (2017-02-06) |
