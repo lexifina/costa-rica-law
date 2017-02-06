@@ -1,1 +1,0 @@
-Artículo 15.—Del reintegro de los montos desembolsados. Pagos autorizados en forma improcedente serán reintegrados por el solicitante y aprobador, por partes iguales, en los tres días hábiles siguientes después de detectado el hecho por parte de la Tesorería o la Auditoría Interna.

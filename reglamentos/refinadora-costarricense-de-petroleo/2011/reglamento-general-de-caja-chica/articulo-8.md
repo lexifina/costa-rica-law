@@ -1,1 +1,0 @@
-Artículo 8º—Del incumplimiento de los pagos. Los revisores del Departamento de Administración de Tesorería no tramitarán ningún pago que incumpla con los lineamientos y requisitos establecidos en el presente Reglamento y en las directrices emitidas.

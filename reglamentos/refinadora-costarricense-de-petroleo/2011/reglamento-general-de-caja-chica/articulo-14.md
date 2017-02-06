@@ -1,1 +1,0 @@
-Artículo 14.—Del plazo para subsanar irregularidades. En caso de que el Departamento de Administración de Tesorería detectara el pago de un bien o servicio que no cumpla con los requisitos del mismo, notificará al beneficiario, al encargado y al aprobador, quienes contarán con cinco días hábiles para subsanar las irregularidades.

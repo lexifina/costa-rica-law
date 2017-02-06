@@ -1,1 +1,0 @@
-Artículo 11.—De la codificación contable. La codificación contable de los gastos será responsabilidad del encargado del control presupuestario de cada centro gestor o centro de costo, de conformidad con los distintos instrumentos de gestión financiera (contables y presupuestarias) vigentes a nivel externo e interno de la Empresa.
