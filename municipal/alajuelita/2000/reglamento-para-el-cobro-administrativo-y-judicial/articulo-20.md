@@ -1,3 +1,2 @@
-Artículo 20.- El tiempo máximo que se concederá como término para el arreglo de pago, será de 12 meses calendario (**) contados a partir de la firma del documento respectivo. Será responsabilidad de la Oficina de Administración Tributaria (*), llevar el control de cumplimiento de los arreglos de pago. Cualquier incumplimiento en el arreglo de pago, faculta a la municipalidad para proceder judicialmente.
-(*)(Así modificada su denominación mediante sesión ordinaria N° 58 del 7 de junio del 2011. Anteriormente establecía “oficina de facturación y cobro”)
-(**)(Así reformada la frase anterior mediante sesión ordinaria N° 58 del 7 de junio del 2011)
+Artículo 20.- Se podrá realizar arreglo de pago hasta por un plazo de 24 meses en los casos debidamente justificados, previa autorización de la Alcaldía Municipal.
+(Así reformado mediante sesión ordinaria N° 10 del 7 de febrero del 2017)
