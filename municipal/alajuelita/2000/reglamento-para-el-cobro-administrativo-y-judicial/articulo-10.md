@@ -1,1 +1,0 @@
-Artículo 10.- En el caso de que el profesional en derecho, logre realizar un arreglo de pago antes de presentar el proceso de cobro en sede judicial, éste devengará los honorarios que se describen en el artículo 16 de éste Reglamento los cuales deberán ser cubiertos por el contribuyente moroso.

@@ -1,1 +1,0 @@
-Artículo 11.- El nombramiento del abogado a cargo de la gestión de cobro en sede Judicial, lo hará el alcalde municipal, sobre el asesor legal del municipio, siempre que éste no esté afectado por el régimen de prohibición y /o dedicación exclusiva, caso en el cual se procederá a nombrar abogados externos siguiendo los procedimientos de contratación administrativa aplicables.

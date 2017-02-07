@@ -1,2 +1,0 @@
-Artículo 2°.- El presente Reglamento será de acatamiento obligatorio para la oficina de Administración Tributaria (*) de la municipalidad de Alajuelita, así como para el encargado de los procesos de Cobro Judicial, toda gestión de cobro, se realizará conforme lo establecido en este Reglamento, salvo cuando la municipalidad pueda acceder a un medio que garantizando la eficiencia del cobro, ofrezca una mayor celeridad.
-(*)(Así reformada la frase anterior mediante sesión ordinaria N° 58 del 7 de junio del 2011. Anteriormente establecía “oficina de facturación y cobro”)
