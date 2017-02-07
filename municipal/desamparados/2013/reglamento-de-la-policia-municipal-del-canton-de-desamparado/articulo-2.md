@@ -23,6 +23,9 @@ t) Se mantendrá el sistema de vigilancia y monitoreo que actualmente opera, pro
 u) Incentivar la creación de una unidad canina de apoyo a la labor policial.
 v) Confeccionar las boletas por infracciones de tránsito contempladas en los artículos 96, 143, 144, 145, 146, y 147 de la ley 9078 Ley de Tránsito por Vías Públicas, Terrestres y Seguridad Vial, según lo estipula el artículo 214 de ese cuerpo normativo.
 (Así reformado el inciso anterior mediante sesión N° 18-2016 del 19 de julio del 2016)
-w) Las demás funciones que le asigne la ley.
+x) Realizar multas por concepto de estacionómetros.
+(Así adicionado el inciso anterior mediante sesión N° 60-2017 del 7 de febrero del 2017)
+y) Las demás funciones que le asigne la ley.
 (Así adicionado el inciso anterior mediante sesión N° 18-2016 del 19 de julio del 2016)
+(Corrida la numeración del inciso anterior mediante sesión N° 60-2017 del 7 de febrero del 2017, que lo traspasó del antiguo inciso “w” al “y”)
 El presente artículo, así como cada uno de sus respectivos incisos, supedita sus alcances a la disponibilidad de recursos presupuestarios.

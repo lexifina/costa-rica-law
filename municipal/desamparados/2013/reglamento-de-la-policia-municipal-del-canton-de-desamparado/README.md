@@ -15,3 +15,4 @@ Reglamento de la Policía Municipal del cantón de Desamparados en San José
 | --- | --- | --- |
 | 1 | 2013-04-18 | la propia norma |
 | 2 | 2016-07-19 | Reglamento municipal 18 (2016-07-19) |
+| 3 | 2017-02-07 | Reglamento municipal 60 (2017-02-07) |
