@@ -1,0 +1,1 @@
+Artículo 16.—Juramentación. La juramentación de las personas integrantes de la CIEV es un acto solemne que se lleva a cabo en la institución. Es realizada por el Jerarca de la institución, en presencia de una persona representante de la Junta Directiva y de la Dirección Ejecutiva de la Comisión Nacional de Rescate y Formación de Valores Morales, Cívicos y Religiosos.

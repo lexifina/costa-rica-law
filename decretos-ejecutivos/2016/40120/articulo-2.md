@@ -1,0 +1,1 @@
+Artículo 2º—Alcance. El presente reglamento es de aplicación obligatoria para las personas funcionarias que integran la Comisión Institucional de Ética y Valores de la Presidencia de la República y Ministerio de la Presidencia.

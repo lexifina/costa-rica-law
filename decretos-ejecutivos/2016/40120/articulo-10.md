@@ -1,0 +1,2 @@
+Artículo 10.—Reuniones. La Comisión se reunirá una vez al mes en forma ordinaria y en forma extraordinaria cuando sea necesario. El/la coordinador/a convocará a las sesiones de la CIEV. Los acuerdos se tomarán por mayoría simple entre los miembros presentes con un quórum mínimo de tres integrantes presentes.
+La persona coordinadora o al menos un representante de la comisión deberá asistir a las sesiones mensuales del Sistema Nacional de Ética y Valores.
