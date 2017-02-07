@@ -1,0 +1,3 @@
+Artículo 53.- Las personas integrantes del Tribunal de Honor no podrán conocer de causas en las cuales estén interesados igualmente sus familiares consanguíneos o afines hasta el tercer grado inclusive. Y deberán separarse de este cuando una de las partes así lo pida, con base en razones de indudable seriedad y fundamento. En estos casos, la Junta Directiva del Colegio procederá a reintegrar el Tribunal de Honor, para el caso concreto, de acuerdo con lo establecido por el Tribunal Electoral del Colegio en su reglamento.
+(Así reformado por el artículo 1° de la ley N° 9420 del 7 de febrero del 2017)
+(Corrida su numeración por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017, que lo traspaso del antiguo artículo 48 al 53)

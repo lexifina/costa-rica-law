@@ -1,4 +1,5 @@
-Artículo 42.—El Tribunal de Honor conocerá:
-a) De las transgresiones al Código de Ética Profesional del Colegio;
-b) De los conflictos graves, que afecten el honor, surgidos entre dos o más miembros del Colegio; y
-c) De las quejas que presenten los particulares contra alguno o algunos miembros del Colegio, por hechos que signifiquen desdoro para la profesión o cargos contra la moral y las buenas costumbres de sus miembros.
+CAPÍTULO IX
+(Corrida la numeración del capítulo anterior por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017, que lo traspaso del antiguo capítulo VIII al IX)
+Del Comité Consultivo
+Artículo 42.—El Comité Consultivo es un organismo de nombramiento de la Junta Directiva que tiene a su cargo dictaminar sobre asuntos que le sean sometidos en consulta a la Corporación, sea por los Poderes Públicos, las instituciones autónomas o por los particulares.
+(Corrida su numeración por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017, que lo traspaso del antiguo artículo 37 al 42)

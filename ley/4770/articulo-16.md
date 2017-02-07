@@ -1,2 +1,3 @@
-Artículo 16.—Formará quórum, en las asambleas generales, la mitad más uno de los miembros del Colegio. En caso de no reunirse el quórum requerido, la sesión se efectuará una hora después, cualquiera que fuere el número de los presentes.
-(Así reformado por el artículo 1° de la Ley N° 5825 de 29 de octubre de 1975).
+Artículo 16.- Las asambleas se realizarán en primera convocatoria con la mitad más uno del total de los colegiados activos, y una hora después, en segunda convocatoria, si está presente un mínimo de cien colegiados. Nunca la Asamblea podrá sesionar con menos de setenta y cinco colegiados.
+En caso de que el desarrollo de una asamblea general ordinaria no logre culminar su orden del día, la Asamblea General aprobará la ampliación de esta, indicando la fecha, el lugar y la hora para su continuación. La Junta Directiva deberá publicarlo en un medio de circulación nacional.
+(Así reformado por el artículo 1° de la ley N° 9420 del 7 de febrero del 2017)

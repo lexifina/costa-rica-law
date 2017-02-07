@@ -1,1 +1,2 @@
-Artículo 33.—En caso de disolución del Colegio por cualquier causa, todo su patrimonio pasará a propiedad de la Universidad de Costa Rica, la cual lo liquidará e invertirá el producto, preferentemente en la promoción y enseñanza de las letras, la filosofía, las ciencias y las artes.
+Artículo 33.- El fiscal ejercerá sus funciones a tiempo completo percibiendo un estipendio, según lo dispuesto en el artículo 13 de esta ley.
+(Así adicionado por el artículo 3° de la ley N° 9420 del 7 de febrero del 2017)
