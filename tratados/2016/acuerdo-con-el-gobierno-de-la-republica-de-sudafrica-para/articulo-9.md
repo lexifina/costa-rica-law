@@ -1,0 +1,3 @@
+ARTÍCULO 9
+COSTOS
+A menos que las Partes contratantes acuerden lo contrario, los costos indirectos incurridos en proporcionar asistencias serán asumidos por la Parte requerida, y los costos directos relacionados con la proporción de asistencia (incluyendo costos de consultores externos para litigio o cualquier otro) serán asumidos por la Parte requirente. Las autoridades competentes respectivas deberán consultar en relación con este artículo, en especial la autoridad competente de la Parte requerida con la autoridad de la Parte requirente, si los costos para proporcionar la información se esperan sean significantes.
