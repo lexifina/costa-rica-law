@@ -1,0 +1,2 @@
+Transitorio II. —A la entrada en vigencia del presente Reglamento, se llevará a cabo el proceso de solicitud y liquidación de gastos del Fondo de Caja Chica con formularios físicos. Una vez que se implemente el Sistema de Información Gerencial Administrativo y Financiero (SIGAF), los trámites del Fondo de Caja Chica y Cajas Auxiliares se efectuarán por medio de dicho sistema.
+Dado en San José, a los 26 días del mes de enero del año dos mil diecisiete.-

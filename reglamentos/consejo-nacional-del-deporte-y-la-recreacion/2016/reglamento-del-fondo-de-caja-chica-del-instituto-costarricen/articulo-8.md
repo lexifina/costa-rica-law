@@ -1,0 +1,3 @@
+Artículo 8° Traslado del Manejo de Fondos
+Cuando, por razones justificadas, sea necesario trasladar la custodia y el manejo de este fondo a un funcionario distinto del Tesorero, el traspaso se realizará, estando ambos presentes y con la aprobación del Jefe del Departamento de Finanzas y Contabilidad. Al momento del mismo, se efectuará un arqueo del cual se dejará constancia debidamente firmada por los involucrados. El sustituto asume una vez realizado a conformidad este acto, las responsabilidades y deberes establecidos en este reglamento. La Jefatura del Departamento de Finanzas y Contabilidad podrá
+solicitar la presencia de la Auditoría Interna para fiscalizar el acto.

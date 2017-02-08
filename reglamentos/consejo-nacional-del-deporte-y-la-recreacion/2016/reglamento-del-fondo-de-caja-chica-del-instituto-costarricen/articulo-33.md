@@ -1,0 +1,2 @@
+Artículo 33° Auditoría del fondo.
+Compete a la Auditoría Interna verificar el cumplimiento, la validez y la suficiencia del sistema de control interno, así como examinar regularmente la operación efectiva de las cajas chicas, sus registros, la custodia y el buen uso de los recursos. Con ese propósito, esa área de fiscalización incorporará en su plan de trabajo por lo menos una auditoría cada año a dicho fondo. Tales funciones las cumplirá con fundamento en el Articulo 22 incisos a, b y c de la Ley No. 8292 Ley General de Control Interno y el presente reglamento.

@@ -1,0 +1,11 @@
+Artículo 25° Pagos por medio del Fondo de Caja Chica.
+La ejecución de las operaciones de caja chica y los trámites de reintegro se podrán girar en efectivo, mediante cheque o transferencia electrónica a la cuenta personal del funcionario solicitante. Lo anterior será determinado por el Departamento de Finanzas y Contabilidad según la naturaleza del gasto lo cual será acatando las siguientes disposiciones:
+a) Pagos por medio de transferencia electrónica: Este será el principal medio de pago para la compra de bienes y servicios y para los gastos de viaje y transporte al interior y exterior del país, por medio del Fondo de Caja Chica. Los recursos serán transferidos a la cuenta personal del funcionario en la cual se le deposita el salario o bien a otra que este indique por escrito. Sólo en casos excepcionales se efectuarán pagos por un medio distinto a este.
+En las situaciones que así lo ameriten y sean autorizadas por el Departamento de Finanzas y Contabilidad, se podrán realizar transferencias bancarias directamente a la cuenta que aporte el proveedor, misma que deberá ser indicada por éste, en la factura, de forma escrita o por medio de correo electrónico, para lo cual deberá observarse lo indicado en el artículo 22 del presente reglamento (numeral 22.1, punto o).
+Para las Cajas Chicas Auxiliares, no se permiten las transferencias bancarias.
+b) Pagos por medio de cheque: Este medio de pago aplicará solo en aquellos casos cuya necesidad sea inmediata y no puedan esperar el trámite por medio de transferencia bancaria.
+En las situaciones que así lo ameriten y sean autorizadas por el Departamento de Finanzas y Contabilidad, se podrán emitir cheques a nombre de proveedores, mismos que serán entregados al representante legal de la empresa que brindó el bien o servicio o la persona que éste proveedor autorice, para lo cual deberá observarse lo indicado en el artículo 22 del presente reglamento (numeral 22.1, punto o).
+Para las Cajas Chicas Auxiliares, no se permite la emisión de cheques.
+c) Pagos en efectivo: aplicará únicamente para aquellos trámites urgentes, cuya necesidad sea inmediata y no puedan esperar el desembolso por medio de transferencia electrónica o cheque.
+Asimismo deberán ser trámites menores o iguales a ¢500.000,00 (quinientos mil colones).
+Las Cajas Chicas Auxiliares, solo podrán efectuar pagos en efectivo.

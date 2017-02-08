@@ -1,0 +1,3 @@
+Artículo 34° Faltantes y sobrantes en las operaciones ordinarias del Fondo de Caja Chica.
+Los faltantes que resulten de las operaciones ordinarias de la caja chica y que sean debidamente comprobados al efectuar un arqueo deberán ser cubiertos por el responsable del fondo, una vez establecida su responsabilidad, de lo contrario se procederá de conformidad con lo establecido en el Artículo 42° de este Reglamento, o en su defecto, se procederá con el debido proceso a fin de sentar responsabilidades.
+En caso que se determine un sobrante, éste lo deberá depositar a más tardar dos días hábiles después de efectuado el arqueo.

@@ -1,0 +1,3 @@
+Artículo 27° Reintegro de Cajas Chicas Auxiliares.
+Para los reintegros que deban realizarse a las Cajas Chicas Auxiliares, los responsables de estas cajas deberán presentar ante el Departamento de Finanzas y Contabilidad, dentro del plazo que establezca las facturas canceladas, el original de los vales de caja chica y demás documentos de respaldo. Deberán utilizar el formulario de reintegros establecido para este fin. (Anexo 3) Las facturas, tiquetes o comprobantes deberán cumplir con los requisitos establecidos en este Reglamento.
+El Departamento de Finanzas y Contabilidad realizará el reintegro por medio de cheque o efectivo.__

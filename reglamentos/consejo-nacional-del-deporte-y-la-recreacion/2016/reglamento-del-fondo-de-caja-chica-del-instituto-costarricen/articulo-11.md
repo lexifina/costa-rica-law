@@ -1,0 +1,3 @@
+Artículo 11° Escasa cuantía
+Para incurrir en gastos por medio del Fondo de Caja Chica debidamente autorizados, corresponde a la Dirección Nacional establecer el límite del monto por escasa cuantía, mediante acto motivado y comunicado formal y previamente a los funcionarios del ICODER.
+Corresponderá a la Dirección Nacional, autorizar montos mayores a dicho límite, para lo cual deberá justificar la urgencia que motive dicho acto, mediante oficio, el cual deberá ser comunicado al Departamento de Finanzas y Contabilidad, de manera previa y formal a la ejecución del acto, además deberá aportarse el vale de caja chica.

@@ -1,0 +1,5 @@
+Artículo 7° De los Arqueos
+Es deber de la Jefatura del Departamento de Finanzas y Contabilidad velar por el cumplimiento de lo establecido en este Reglamento, por lo que deberá realizar regularmente arqueos de manera programada y sorpresiva al Fondo de Caja Chica, incluyendo la revisión de la documentación necesaria. Se preparará el informe escrito sobre el arqueo y la revisión efectuada.
+Todo arqueo al Fondo de Caja Chica se realizará en presencia del Tesorero, quien tendrá el derecho de pedir en el mismo acto en que se realiza el arqueo, una segunda verificación, en caso de dudas sobre el resultado obtenido. El arqueo debe cerrar con el monto total autorizado al Fondo, no obstante, de existir diferencia se procederá de la siguiente manera:
+a) El Tesorero deberá reintegrar en el mismo momento en que se le practique el arqueo el faltante detectado.
+b) El Tesorero deberá depositar el sobrante detectado en el arqueo realizado un día hábil después de practicado éste y enviar copia del comprobante a la jefatura del Departamento de Finanzas y Contabilidad.

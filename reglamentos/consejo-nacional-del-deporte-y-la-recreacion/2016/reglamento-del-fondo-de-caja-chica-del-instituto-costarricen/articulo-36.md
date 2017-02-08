@@ -1,0 +1,2 @@
+Artículo 36° Procedimiento a seguir al detectarse otras irregularidades.
+El Responsable del Fondo de Caja Chica, los entes fiscalizadores y de control pondrán en conocimiento del superior administrativo de la Institución, los hechos irregulares en que incurran los servidores, relacionados en el manejo de los recursos del Fondo de Caja Chica, para que inicie el procedimiento disciplinario que corresponda, garantizando en todo caso el debido proceso al funcionario, bajo pena de responsabilidad, sin perjuicio de la responsabilidad civil y penal de que pudiera ser objeto.

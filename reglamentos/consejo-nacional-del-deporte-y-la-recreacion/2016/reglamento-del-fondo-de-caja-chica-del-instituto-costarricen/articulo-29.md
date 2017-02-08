@@ -1,0 +1,2 @@
+Artículo 29° Sistemas de archivo.
+El sistema de control interno de la administración del Fondo de Caja Chica deberá garantizar la custodia y el buen uso de estos recursos y el registro de datos necesarios para disponer de información confiable y oportuna, para lo cual el respectivo responsable dispondrá de un sistema de archivo que permita la fácil localización de documentos, y otros fines que se estimen convenientes.

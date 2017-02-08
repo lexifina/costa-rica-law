@@ -1,0 +1,2 @@
+Artículo 6º Del seguro de fidelidad
+Los responsables en el manejo y administración del Fondo de Caja Chica y las Cajas Chicas Auxiliares, deberán rendir garantía a favor de la Institución, por el desempeño de sus funciones, por lo que el Fondo estará cubierto por un seguro de fidelidad individual, según lo dispone el artículo No. 13 de la Ley No. 8131 - “Ley de Administración Financiera de la República y Presupuestos Públicos”.

@@ -1,0 +1,2 @@
+Artículo 4º Establecimiento del monto del Fondo de Caja Chica
+El monto del Fondo de Caja Chica será autorizado, por el Consejo Nacional del Deporte y la Recreación. Cualquier modificación al monto, deberá solicitarla previamente el Director (a) Nacional, a dicho órgano colegiado, según estudio de la Dirección Administrativa y Financiera. Se procederá según lo establecido en el artículo 10° del presente Reglamento.

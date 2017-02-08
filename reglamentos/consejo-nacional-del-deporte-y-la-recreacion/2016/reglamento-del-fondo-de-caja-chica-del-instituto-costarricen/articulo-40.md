@@ -1,0 +1,2 @@
+Artículo 40º Revisión y cumplimiento del sistema de control.
+Compete a la Jefatura del Departamento de Finanzas y Contabilidad, implantar y verificar el cumplimiento, la validez y la suficiencia del sistema de control interno, así como darle seguimiento y examinar regularmente la operación efectiva de las cajas chicas, sus registros, la custodia y el buen uso de los recursos. Tal disposición la desarrollará con fundamento en la Ley No. 8292 Ley General de Control Interno y el presente reglamento.

@@ -1,0 +1,2 @@
+Artículo 15° Responsabilidades del encargado del fondo.
+La administración de los recursos del Fondo de Caja Chica, estará bajo la responsabilidad de la Jefatura de Finanzas y Contabilidad, quien delegará en el cargo del Tesorero, el manejo y administración directa de la Caja Chica auxiliar ubicada en la Tesorería del ICODER y deberá cumplir las disposiciones del presente Reglamento. Los responsables de las Cajas Chicas Auxiliares, serán aquellos que determine la Dirección Nacional.

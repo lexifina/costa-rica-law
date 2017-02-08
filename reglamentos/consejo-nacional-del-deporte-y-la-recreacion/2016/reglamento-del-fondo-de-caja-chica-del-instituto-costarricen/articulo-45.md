@@ -1,0 +1,1 @@
+Artículo 45° Queda autorizado el Departamento de Finanzas y Contabilidad a emitir Directrices y Circulares relacionadas con las disposiciones del presente Reglamento. Lo anterior sin perjuicio de lo indicado en el presente Reglamento o en la Normativa Aplicable detallada en su Artículo 2°.

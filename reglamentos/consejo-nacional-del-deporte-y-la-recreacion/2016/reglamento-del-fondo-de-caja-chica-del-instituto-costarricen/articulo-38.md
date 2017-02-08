@@ -1,0 +1,2 @@
+Artículo 38° Revisión de los fondos de cajas chicas.
+Periódicamente y sin previo aviso, la Dirección Nacional, la Dirección Administrativa y Financiera, la Jefatura del Departamento de Finanzas y Contabilidad, la Auditoría Interna y otras instancias fiscalizadoras autorizadas, podrán efectuar revisiones parciales o totales de los fondos de caja chica, de acuerdo con su competencia e informarán de los resultados al respectivo responsable y a las autoridades superiores de la institución.
