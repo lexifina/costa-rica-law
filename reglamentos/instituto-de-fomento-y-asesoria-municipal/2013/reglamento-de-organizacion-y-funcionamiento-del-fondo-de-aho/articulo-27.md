@@ -1,1 +1,0 @@
-Artículo 27.—El afiliado que obtenga un préstamo para compra de terreno, tendrá derecho a un crédito complementario para construir vivienda, pero sólo por la diferencia del tope de la línea de crédito de vivienda que esté vigente.

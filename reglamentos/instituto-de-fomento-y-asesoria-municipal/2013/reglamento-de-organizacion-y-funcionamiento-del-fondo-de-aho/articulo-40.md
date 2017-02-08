@@ -1,1 +1,0 @@
-Artículo 40.—La Junta Directiva aumentará automáticamente la tasa de interés en un dos por ciento de los créditos otorgados, previo informe de la Comisión, cuando el afiliado, por cualquier circunstancia, deje de prestar servicios al IFAM, lo cual deberá consignarse en escritura respectiva o pagaré.

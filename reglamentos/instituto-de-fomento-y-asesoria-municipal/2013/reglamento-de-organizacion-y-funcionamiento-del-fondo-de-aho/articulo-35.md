@@ -1,3 +1,0 @@
-Artículo 35.—No se concederán préstamos personales a aquellos afiliados cuyos salarios se encuentren gravados por embargos judiciales, exceptuando las siguientes situaciones:
-a) Que el monto del préstamo solicitado sea suficiente para levantar el embargo, debiendo aplicarse a ese fin. Se girará el cheque a nombre del (los) acreedor (es).
-b) Que el embargo se haya originado en una fianza, en cuyo caso el salario liquido del servidor debe ser suficiente para atender las retenciones inherentes al embargo, abonos al crédito y cuota de amortización al FODEAP, así como cualquier otra amortización que deba rebajarse de su salario.

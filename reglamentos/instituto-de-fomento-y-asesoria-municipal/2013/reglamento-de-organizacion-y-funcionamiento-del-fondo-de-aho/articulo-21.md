@@ -1,1 +1,0 @@
-Artículo 21.—En igualdad de condiciones y habiendo escasez de fondos, se dará preferencia al afiliado que no cuente con vivienda o tenga mayor necesidad de contar con vivienda, previo estudio social y económico.

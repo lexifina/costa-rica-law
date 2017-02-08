@@ -1,1 +1,0 @@
-Artículo 4º—El FODEAP estará administrado por la Comisión, conformada tal como se señala en el artículo 6º del presente Reglamento. Con recursos del FODEAP se contratarán los servicios mensuales de contabilidad y un informe de auditoría cada dos años, que será presentado a la Junta Directiva y a la Asamblea.

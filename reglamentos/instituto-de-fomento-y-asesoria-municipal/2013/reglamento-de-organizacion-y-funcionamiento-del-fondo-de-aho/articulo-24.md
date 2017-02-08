@@ -1,1 +1,0 @@
-Artículo 24.—Cumplido con lo establecido en el artículo anterior, y realizada la verificación de la totalidad de los requisitos, la Comisión dictaminará la solicitud de crédito y la someterá a consideración y resolución de la junta directiva.

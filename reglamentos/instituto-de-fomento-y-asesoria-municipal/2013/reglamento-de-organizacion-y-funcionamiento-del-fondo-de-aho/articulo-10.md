@@ -1,3 +1,0 @@
-CAPÍTULO III
-De los afiliados
-Artículo 10.—Podrá afiliarse al FODEAP el servidor nombrado en propiedad, es decir, nombrado en plaza fija una vez superado el periodo de prueba, con lo cual quedan excluidos los funcionarios interinos, y de confianza. Para tal efecto, el servidor deberá presentar a la Comisión la fórmula de solicitud de afiliación respectiva, que será resuelta en un plazo no mayor de cinco días hábiles. La afiliación y desafiliación al FODEAP es voluntaria y el interesado deberá suministrar toda la información requerida. Sin embargo, no podrá desafiliarse del FODEAP aquel funcionario que tenga deudas pendientes con éste.
