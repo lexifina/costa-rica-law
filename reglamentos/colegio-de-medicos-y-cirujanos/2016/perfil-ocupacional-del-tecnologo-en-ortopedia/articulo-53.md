@@ -1,1 +1,4 @@
-Artículo 53. - Cuando el tecnólogo en ortopedia brinde sus servicios en instituciones públicas o privadas tendrá todos los derechos laborales, reconocidos en el Código de Trabajo o en las leyes especiales que rige su actividad.
+Capítulo 6
+Derechos
+Artículo 53. -Los Tecnólogos en Ortopedia que cumplieron satisfactoriamente con la totalidad de los requerimientos, están autorizados en el capítulo de Tecnólogos del Colegio de Médicos y Cirujanos.
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 52 al 53)

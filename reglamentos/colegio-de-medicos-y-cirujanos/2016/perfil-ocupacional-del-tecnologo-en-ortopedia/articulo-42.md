@@ -1,1 +1,4 @@
-Artículo 42. -En el desempeño de sus funciones y previa indicación del ente rector en Salud del país, le puede corresponder participar en las diferentes comisiones de atención a emergencias sanitarias que ocurran.
+-Artículo 42.—Tendrá la obligación de acatar las instrucciones del Médico Especialista en Traumatología y Ortopedia, no obstante, el Tecnólogo gozará de independencia en lo que respecta a la ejecución de los procedimientos propios de su Tecnología.
+Excepcionalmente y dentro del ámbito institucional público, dichas instrucciones las podrá realizar un Médico Residente de la misma Especialidad, siempre bajo la supervisión del Médico Especialista Cuando no haya posibilidad de contar con el Médico Especialista respectivo, las instrucciones al Tecnólogo las podrá brindar otro Especialista relacionado con la consulta o bien un Médico y Cirujano debidamente inscrito.
+(Así reformado en sesión N° 2017-02-08 del 8 de febrero de 2017)
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 41 al 42)

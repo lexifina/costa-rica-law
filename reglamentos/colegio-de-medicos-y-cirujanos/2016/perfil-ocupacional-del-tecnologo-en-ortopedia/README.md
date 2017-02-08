@@ -14,3 +14,4 @@ Perfil ocupacional del tecnólogo en ortopedia
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2016-07-07 | la propia norma |
+| 2 | 2017-02-08 | Reglamento 0 (2017-02-08) |

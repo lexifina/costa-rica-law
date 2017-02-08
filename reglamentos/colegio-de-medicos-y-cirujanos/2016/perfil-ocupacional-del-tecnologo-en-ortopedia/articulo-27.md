@@ -1,1 +1,2 @@
-Artículo 27. -Aplicación, análisis, reconocimiento y ejecución de las técnicas relacionadas con su tecnicidad para que, de acuerdo con las indicaciones médicas, asista al médico tratante en el manejo de mesas ortopédicas, en los usuarios de Emergencias y Consulta Externa.
+Artículo 27. -Conocimiento, aplicación, análisis y ejecución de las técnicas propias de su tecnicidad para las diferentes posiciones anatómicas en las mesas ortopédicas en el preoperatorio, trans-operatorio, post-operatorio y hospitalizado según la patología y tratamiento indicado por el médico tratante.
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 26 al 27)

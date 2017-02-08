@@ -1,1 +1,4 @@
-Artículo 41. -Sin perjuicio de la obligación de acatar las instrucciones médicas recibidas, el Tecnólogo gozará de independencia en lo que respecta a la ejecución de los procedimientos propios de su Tecnología.
+Artículo 41. - El tecnólogo:
+El Tecnólogo trabajará siempre bajo la supervisión del médico para la realización de procedimientos ortopédicos dentro de su ámbito de acción.
+En casos excepcionales y dentro del ámbito institucional público, la supervisión hacia el Tecnólogo puede ser delegada a un Residente en Ortopedia y Traumatología, siempre bajo la supervisión del Médico Especialista. Cuando no haya posibilidad de contar con el Médico Especialista respectivo, la supervisión la dará otro médico especialista relacionado con su consulta o bien un Médico y Cirujano.
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 40 al 41)

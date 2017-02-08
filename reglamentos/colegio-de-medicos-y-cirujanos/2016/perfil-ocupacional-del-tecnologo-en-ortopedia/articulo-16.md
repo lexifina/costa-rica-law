@@ -1,1 +1,2 @@
-Artículo 16. -Aplicar, analizar y ejecutar las técnicas o procedimientos relacionados con su tecnología, los cuales deben ser adecuados para cada paciente de acuerdo con su patología y en apego con las indicaciones del médico tratante.
+Artículo 16. -Preparar el material que el médico utilizará en los diferentes procedimientos de Ortopedia, esto, de acuerdo con las patologías que presenten los pacientes de las diferentes áreas (áreas quirúrgicas, de emergencias, de consulta externa, de hospitalización, pediatría).
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 15 al 16)

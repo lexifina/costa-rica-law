@@ -1,1 +1,2 @@
-Artículo 12. -Reconocimiento de las normas propias de las áreas donde realice su quehacer como Tecnólogo de Ortopedia, (hospitalización, Emergencias, Consulta Externa, Sala Operaciones, Pediatría.)
+Artículo 12. -Reconocimiento del proceso y rutina de las cirugías de Ortopedia, ya sean estas propias de cirugía menor, ambulatoria, electiva, programadas o de emergencias. Así como, tener el conocimiento pertinente a su tecnicidad sobre las diferentes patologías de Ortopedia y Traumatología.
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 11 al 12)

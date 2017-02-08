@@ -1,5 +1,9 @@
-Artículo 9. -Atención al Usuario:
-a. Recibe al usuario en el servicio donde se efectuará el procedimiento y verifica la información del mismo, para consignarla en todas las fórmulas de reporte que se requieran. Verifica la existencia física del consentimiento informado, el cual debe encontrarse ya completo y debidamente firmado.
-b. Informar al paciente, o representante legal todo lo concerniente al tipo de procedimiento que se le va a realizar y brindarle apoyo emocional.
-c. Brindar educación a los usuarios sobre el cuidado de su ortesis. Manejo, cuidado y complicaciones que puedan surgir con el uso de inmovilizaciones.
-d. Brindar educación al usuario sobre los ejercicios que en primera instancia puede realizar, en el periodo post quirúrgico y post retiro de la ortesis, de acuerdo con las indicaciones del médico tratante.
+Capítulo 4
+Funciones
+Artículo 9. - Equipos, Insumas y Área de Trabajo:
+a. Preparar materiales y equipos propios de su área, así como realizar el mantenimiento funcional operativo. Esto implica mantener el equipo existente en adecuadas condiciones de higiene, comprobar su correcto funcionamiento, reponer e inventariar el material y los elementos necesarios en el área.
+b. Solicitar, acomodar y ordenar los suministros de acuerdo con las necesidades del servicio.
+c. Controlar todos los mantenimientos realizados a los equipos por medio de terceros.
+d. En caso de encontrar un desperfecto en los equipos, lo reportará de inmediato a la Jefatura del Servicio, para que se proceda con la debida reparación.
+e. Posterior a cada procedimiento, se encarga de retirar los equipos y verificar la limpieza de los mismos de acuerdo con las normas institucionales para la prevención de infecciones.
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 8 al 9)

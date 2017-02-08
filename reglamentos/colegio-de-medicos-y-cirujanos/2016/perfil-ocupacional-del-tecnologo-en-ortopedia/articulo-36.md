@@ -1,1 +1,2 @@
-Artículo 36. -Reconocimiento y aplicación de las técnicas propias de su tecnología en el usuario con trauma músculo-esquelético, de acuerdo con las indicaciones del médico tratante.
+Artículo 36. -Aplicación, análisis, reconocimiento y ejecución de las técnicas relacionadas con su tecnología para la ortesis pediátricas, (por ejemplo: arnés de Pavlik), tomando en cuenta los puntos de apoyo en las zonas de descarga, tipos de alineamientos y en la ejecución de la función motora en los usuarios. De acuerdo con las indicaciones del médico tratante.
+(Corrida su numeración en sesión N° 2017-02-08 del 8 de febrero de 2017, que lo traspaso del antiguo artículo 35 al 36)
