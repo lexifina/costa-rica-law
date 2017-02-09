@@ -1,0 +1,2 @@
+Artículo 40. Calendarización de las acciones
+El responsable de la Hacienda Tributaria en conjunto con el encargado de la Gestión de Cobros establecerá un calendario anual con las fechas en que se estará ejecutando cada una de las etapas contenidas en la estrategia de cobro y coordinará con los puestos de trabajo que tienen participación en la vinculación de las acciones como notificaciones, plataforma de servicios y otras que puedan requerirse.

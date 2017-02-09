@@ -1,0 +1,2 @@
+Artículo 35. Inclusión de los arreglos de pago en las certificaciones de pago de tributos municipales
+Cuando un contribuyente solicite una certificación de la contabilidad municipal, y mantenga un arreglo de pago sobre su morosidad, deberá indicarse en la certificación la existencia del arreglo y su condición de si está al día. No se darán certificaciones de impuestos, de que está en arreglo de pago, el mismo día del arreglo, ya que tendrá que demostrar que ha cumplido su compromiso de pago por lo menos de un período de un mes.

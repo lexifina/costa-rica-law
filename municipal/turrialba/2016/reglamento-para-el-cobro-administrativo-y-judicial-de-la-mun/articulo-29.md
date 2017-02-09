@@ -1,0 +1,5 @@
+CAPÍTULO IV
+Otorgamiento y formalización de los arreglos de pago
+Artículo 29 Definición de arreglos de pago
+Como tal se entiende el compromiso que asume el sujeto pasivo con la Municipalidad, de cancelar en un tiempo a convenir de acuerdo con lo dispuesto en este Reglamento, la cuenta que adeuda.
+Únicamente procederá el arreglo de pago, cuando el cobro se encuentre en la etapa administrativa o extrajudicial Las personas interesadas en un arreglo, deberán presentar solicitud escrita en el formulario diseñado por la Municipalidad para tales efectos. En el caso de personas jurídicas, la solicitud deberá ser firmada por el representante legal o apoderado generalísimo y aportar certificación de la personería.

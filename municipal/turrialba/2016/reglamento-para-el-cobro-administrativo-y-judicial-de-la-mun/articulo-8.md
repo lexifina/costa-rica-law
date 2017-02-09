@@ -1,0 +1,2 @@
+Artículo 8º—Conformación de la Unidad de Gestión de Cobros y sus fines
+La Unidad de Gestión de Cobros se encuentra incorporada como parte de la Administración Tributaria, está formada por un encargado o gestor de Cobros, asistentes de oficina, los notificadores de cobros y respaldada por el abogado de la Municipalidad. Le corresponde crear e implementar los mecanismos, controles necesarios para hacer efectivo el cobro, el correspondiente pago de las cuentas que están al día y las morosas, tanto administrativas, extrajudiciales y judiciales de la Municipalidad de Turrialba.

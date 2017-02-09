@@ -1,0 +1,2 @@
+Artículo 56. De la contratación
+Los abogados externos que por alguna razón personal o profesional, quieran dejar de servir a la Municipalidad de Turrialba, deberán de comunicar esa decisión expresamente y por escrito a la Alcaldía Municipal, con treinta días hábiles de antelación, nota de la cual la alcaldía remitirá una copia a la Administración Tributaria. Toda vez que un abogado externo decida dejar de servir a la municipalidad, deberán renunciar expresamente a los honorarios profesionales de aquellas deudas que no se hayan recuperado por la Municipalidad de Turrialba.

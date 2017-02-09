@@ -1,0 +1,5 @@
+Artículo 51. Cobro de honorarios profesionales
+Lo hace directamente la Unidad de Gestión de Cobro, en caso que el contribuyente pretenda realizar un arreglo de pago y la suspensión del proceso judicial respectivo.
+Dicho cobro se realizará con base en la Tabla de Honorarios establecida en el Arancel de Profesionales, no mayor del ahí establecido. Los honorarios de los abogados externos correrán a partir del momento de la presentación del expediente en cobro judicial al Juzgado correspondiente.
+La Unidad de Gestión de Cobro únicamente podrá recibir la cancelación total del monto adeudado por el contribuyente junto con los honorarios profesionales del abogado externo y los respectivos gastos del proceso. Un arreglo de pago y recibo cancelación.
+Asimismo, no se solicitará dar por terminado el proceso judicial respectivo, hasta tanto la Unidad de Cobro le indique por escrito al abogado externo director del proceso, que se ha recibido de conformidad en las cajas municipales, la totalidad de la obligación vencida adeudada por el sujeto pasivo, sus intereses o recargos, o que la cuenta se trasladado a un arreglo de pago.

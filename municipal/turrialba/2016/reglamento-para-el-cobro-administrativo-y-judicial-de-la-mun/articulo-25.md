@@ -1,0 +1,3 @@
+Artículo 25 Información del contribuyente
+Cada unidad que lleve un proceso que concluya en el cobro de un tributo o servicio, tiene la responsabilidad de levantar una ficha informativa con los datos de cada contribuyente y mantenerla actualizada. Cada vez que ingrese un nuevo contribuyente a su unidad o un contribuyente existente cambie su domicilio o teléfono deberá ingresarlo al sistema para que la unidad de cobro pueda mantener el cobro preventivo, el administrativo y el judicial.
+Plataforma de servicios y cajas tienen la responsabilidad de levantar una declaración jurada con los datos de cada contribuyente y mantenerla actualizada a fin de hacer oficial la información para efecto de comunicados y notificaciones.

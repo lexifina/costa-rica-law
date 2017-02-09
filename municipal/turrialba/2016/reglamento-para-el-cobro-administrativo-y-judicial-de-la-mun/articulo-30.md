@@ -1,0 +1,16 @@
+Artículo 30 Condiciones para otorgar arreglos de pago
+El arreglo de pago se otorgará por parte del encargado de la Gestión de Cobro, para lo cual valorará las siguientes condiciones del sujeto pasivo:
+a. Motivos de la morosidad: El contribuyente debe indicar mediante nota escrita ante el departamento de cobro, las razones que le impiden cancelar, en forma total e inmediata las obligaciones vencidas.
+b. Capacidad económica del sujeto pasivo: Deberá presentar la persona física una certificación de ingresos, y en el caso de personas jurídicas debe presentar una certificación del contador o auditor de la empresa, para realizar un estudio sobre su capacidad económica, y así valorar si se le otorga el arreglo de pago.
+c. Monto adeudado. De proceder el arreglo de pago, ambas partes pactarán el monto a cancelar mensualmente, el contribuyente debe cancelar al momento de formalizar el arreglo de pago de un 5% a un 25% de la deuda, según sea el caso. El plazo para la cancelación total de la obligación vencida, será como máximo de dos años; salvo los casos calificados que imposibiliten en el plazo señalado realizar el pago de lo adeudado, y en los cuales el plazo podría extenderse un año más. En casos excepcionales el encargado de la Unidad de Gestión de Cobro elevará el caso a la alcaldía.
+d. Resolución del arreglo de pago: El encargado de la Gestión de Cobro, el alcalde o alcaldesa y jefe de Hacienda Municipal procederán conjuntamente a analizar y dictar una Resolución de Arreglo de Pago, por medio de la cual podrá concederse un plazo mayor, siempre que este no exceda de tres años. En casos excepcionales de incumplimiento el Gestor de Cobro, trasladará el caso a la vía administrativa ante la Alcaldía para su promoción.
+e. Formalización del arreglo de pago: se realizará ante la oficina de la Gestión de Cobro, esta gestión, mediante la suscripción del documento idóneo que confeccionará dicha Unidad para tales efectos, siempre y cuando el sujeto pasivo haya cumplido con los requisitos que esta Unidad exija para tal gestión. El sujeto pasivo deberá presentar la siguiente documentación:
+a. Completar la información del formulario “Solicitud de Arreglo de Pago” que le entrega la Municipalidad.
+b. Presentar copia de la cédula física o de la cédula jurídica cuando se trate de sociedades; en este último caso, deberán presentar certificación de la personería jurídica, con no más de treinta días de expedida y la comprobación de que se encuentra facultada la persona que se presenta, para realizar el acto.
+c. Copia del estudio de bienes por parte del Registro
+Además de las anteriores el sujeto pasivo deberá cumplir con las siguientes condiciones:
+a. Solicitar arreglo de pago, sobre una obligación vencida.
+b. No tener en vigencia un arreglo de pago sobre la misma cuenta.
+c. No haber incumplido por más de dos oportunidades con arreglos de pago anteriores.
+d. Pagar los gastos administrativos en que se haya incurrido para gestionar el cobro, y en caso de existir, los honorarios del abogado.
+e. Dejar en poder de la Municipalidad, todos los documentos que sean presentados para formalizar arreglos de pago, todo conforme lo que esta solicite por medio del departamento de Cobros.

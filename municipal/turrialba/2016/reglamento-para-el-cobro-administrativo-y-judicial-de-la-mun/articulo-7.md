@@ -1,0 +1,2 @@
+Artículo 7º—Organización interna
+La Administración tributaria tiene como autoridad máxima al Alcalde, el cual lo delega al Coordinador de Hacienda Tributaria, quien coordina y dirige el trabajo de las siguientes unidades: Bienes Inmuebles, Catastro, Patentes, Cobros, Desarrollo Urbano, entre otros. Los puestos que integran estas unidades coordinan con los funcionarios asignados a la plataforma de servicios para la orientación adecuada a los contribuyentes.

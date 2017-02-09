@@ -1,0 +1,4 @@
+CAPÍTULO II
+Organización Institucional para la Gestión Tributaria
+Artículo 5º—Funciones de la Gestión Tributaria
+La función de la gestión tributaria es lograr el máximo cumplimiento voluntario de todos los deberes y obligaciones tributarias de los contribuyentes de la Municipalidad de Turrialba, mediante el desarrollo de un conjunto de acciones cuyo propósito es la implementación y ejecución de sistemas de procedimientos eficientes de planificación, coordinación y control. Dentro de este marco, le corresponde todo lo relacionado con la gestión, recaudación y fiscalización de las obligaciones tributarias municipales o de la administración municipal.

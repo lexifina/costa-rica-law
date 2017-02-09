@@ -1,0 +1,2 @@
+Artículo 37. Definición y Actualización de las Tarifas
+Por los servicios que preste, la Municipalidad cobrará tasas y precios que se ajustarán a cada 24 meses, se fijarán tomando en consideración el costo efectivo o costo proyectado más un diez por ciento (10%) de utilidad para desarrollarlos, una vez fijados, entrarán en vigencia a partir de su publicación en “La Gaceta”. Todo esto conforme lo establece el artículo 74 del Código Municipal.

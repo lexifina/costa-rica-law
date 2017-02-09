@@ -1,0 +1,2 @@
+Artículo 11. Deberes del personal.
+El personal de la Unidad de Gestión Cobro, en el cumplimiento de sus funciones y sin detrimento del ejercicio de su autoridad, ni de la atención de sus tareas, guardará el debido respeto a los interesados y al público en general e informará a aquellos, tanto de sus derechos como de sus deberes, al igual sobre la conducta que deben seguir en sus relaciones con la Unidad de Cobro, orientándolos en el cumplimiento de sus obligaciones.
