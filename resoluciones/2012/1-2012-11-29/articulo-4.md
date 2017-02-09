@@ -3,5 +3,5 @@ Monto del Impuesto específico anterior, multiplicado por 1 (uno) más el porcen
 ¢ 5,725 * 1.01047 = ? 5.785
 ¢ 2.35 * 1,01047 = ?2,375
 Tipo de Bebidas | Impuesto por Unidad de Consumo
-a. Bebidas carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix” | 6,348 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 005 del 9 de noviembre de 2016)
-b. Bebidas Carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix”, para Micro y Pequeñas Empresas | 2,604 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 005 del 9 de noviembre de 2016)
+a. Bebidas carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix” | 6,409 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 001-2017 del 9 de febrero del 2017)
+b. Bebidas Carbonatadas y Jarabes de Bebidas Gaseosas tipo “Post Mix”, para Micro y Pequeñas Empresas | 2,629 (Actualizado el impuesto anterior por el artículo 1° de la resolución N° 001-2017 del 9 de febrero del 2017)
