@@ -7,6 +7,8 @@
 1. Informe final de evaluación, de acuerdo al tipo de OEC.
 2. ECA-MC-P13-F09 Lista de asistencia.
 3. ECA-MC-P13-F10 Informe administrativo.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 13 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 7.6 La evaluación in situ inicia con una reunión de apertura. Esta etapa del proceso de evaluación la dirige el Evaluador Líder y tiene como objetivos:
 - Presentar a los miembros del Equipo Evaluador y dar una breve explicación de su rol durante la evaluación. Para el caso del experto técnico, se debe aclarar, que está autorizado para realizar la revisión de registros, expedientes, procedimientos u otros documentos, que así requiera para la verificación de la implementación de los requisitos a evaluar, siempre bajo la supervisión del evaluador asignado.
 - Presentar al representante de la Institución Reguladora y al testificador del ECA (cuando aplique).
@@ -25,8 +27,10 @@
 7.7 Revisión del sistema de calidad y testificación de las actividades, que comprende los siguientes aspectos:
 - Esta etapa del proceso de evaluación consiste en verificar por parte de los miembros del Equipo Evaluador, la implementación de las actividades indicadas en los documentos del sistema de gestión de la calidad, así como testificar el desempeño del personal involucrado en las actividades de evaluación de la conformidad, documentadas en el alcance de la solicitud de acreditación o alcance acreditado.
 - El Equipo Evaluador debe testificar los servicios de evaluación de la conformidad del OEC en las instalaciones de éste o del cliente, en las cuales se lleva a cabo una o más actividades claves dentro del alcance de acreditación, para recopilar evidencia objetiva de que el OEC es competente y cumple con los requisitos de acreditación.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 14 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 - En el transcurso de esta testificación el Equipo Evaluador debe informar de manera progresiva al evaluado sobre los hallazgos que determine, con el fin de ir aclarando los mismos.
-- La testificación de las actividades de evaluación de la conformidad, durante las evaluaciones, se realiza siguiendo las indicaciones del ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos y Organismos de Inspección. Para el caso de Organismos de Certificación se deben seguir las indicaciones establecidas en ECA-MC-P11 Procedimiento de evaluación in situ para OC y OVV.
+- La testificación de las actividades de evaluación de la conformidad, durante las evaluaciones, se realiza siguiendo las indicaciones del ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos, Proveedores de ensayos de aptitud y Organismos de Inspección. Para el caso de Organismos de Certificación se deben seguir las indicaciones establecidas en ECA-MC-P11 Procedimiento de evaluación in situ para OC y OVV.
 - La testificación de las actividades, sean estas con clientes reales o no, se deben realizar tal como se establece en el respectivo procedimiento del OEC.
 Nota: Para procesos de evaluación de OC y OVV, se debe consultar el procedimiento de evaluación in situ para OC y OVV.
 - Para los OEC con sedes críticas, el ECA evalúa las instalaciones incluidas en el alcance de acreditación, así como las sedes temporales que se encuentren activas durante el ciclo de evaluación; de acuerdo a los documentos ECA-MC-P13-I01 Instructivo de muestreo y el ECA-MC-P11 procedimiento de evaluación in situ para OC y OVV.
@@ -35,6 +39,9 @@ Nota: Puede ser que el OEC no haya implementado acciones para las no conformidad
 - Para la recolección de evidencia se pueden utilizar las notas digitales de cada área o el formulario ECA-MC-P13-F08 Notas.
 - Durante esta etapa, el Equipo Evaluador puede llevar a cabo reuniones de avance para verificar el cumplimiento del plan de evaluación y realimentación del Equipo Evaluador. Asimismo, puede realizar reuniones de cierre previas cuando algún miembro del Equipo Evaluador finaliza su participación de acuerdo con el plan de evaluación.
 - El Equipo Evaluador no cuenta con la autorización para la ampliación del alcance de acreditación, durante la evaluación in situ, solamente puede aceptar una disminución del alcance siempre que sea documentada en el Informe Final respectivo y acordada con el OEC.
-- Si durante la evaluación in situ se genera alguna situación o si el Equipo Evaluador considera conveniente que algún tema deba ser comunicado al ECA para que se tome algún tipo de acción, el Evaluador Líder puede comunicarse con el ECA por el medio que considere necesario.
+- Si durante la evaluación in situ se genera alguna situación o si el Equipo Evaluador considera conveniente que algún tema deba ser comunicado al ECA para que se tome algún tipo de
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 15 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
+acción, el Evaluador Líder puede comunicarse con el ECA por el medio que considere necesario.
 - El Evaluador Líder con la participación activa de todo su Equipo Evaluador redacta las No conformidades (en caso de existir). La redacción de las No conformidades debe ser clara y concisa, debe incluir la evidencia objetiva y hacer referencia al requisito específico que se incumple y el documento de referencia.
 - Al finalizar esta etapa, durante el tiempo designado para la redacción del informe, el Equipo Evaluador debe completar el Informe final respectivo, que debe ser presentado y entregado al OEC durante la reunión de cierre.

@@ -5,7 +5,9 @@
 Nota: En caso de requerirlo, la Unidad de Logística puede solicitar enmiendas a los informes presentados por el Evaluador Líder antes de enviarlos al OEC.
 6.4 Para completar el ECA-MC-P13-F01 Plan de evaluación, el Evaluador Líder en consulta con el Equipo Evaluador, definen la agenda de la evaluación, que debe considerar los siguientes aspectos:
 - Selección de las actividades a testificar durante las evaluaciones conforme a los siguientes documentos:
-a. ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos y Organismos de Inspección.
+a. ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos, Proveedores de ensayos de aptitud y Organismos de Inspección.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 11 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 b. Para Organismos de Certificación y OVV: ECA-MC-P11 Procedimiento de evaluación in situ para Organismos de Certificación y OVV.
 - Si el OEC tiene instalaciones multisitios, instalaciones móviles.
 - La opinión de los Expertos Técnicos a la hora de establecer los horarios de las testificaciones.
@@ -20,14 +22,14 @@ b. Para Organismos de Certificación y OVV: ECA-MC-P11 Procedimiento de evaluaci
  Otra información que el Evaluador Líder indique.
 Nota 1: Para mayor guía sobre el llenado del ECA-MC-P13-F01 Plan de evaluación, puede consultarse el ECA-MC-P13-I02 Instructivo para documentar la agenda para la evaluación
 Nota 2: El número de días de participación de los integrantes del equipo de evaluación para las evaluaciones in situ, se podría definir según el cuadro 2:
-Cuadro 2: Número de días sugeridos para un proceso de evaluación Número de personas dentro del alcance del OEC | Número de Ensayos, Calibraciones, Inspecciones y Certificaciones del alcance a evaluar.
-1 a 10 | 11a 20 | 21 a 40 | 41 a 60 | 61 a 99 | 100 a 130
-1-5 | 2 | 3 | 3 | 3 | 4 | 5
-6-10 | 2 | 3 | 3 | 4 | 4 | 5
-11-15 | 3 | 3 | 4 | 4 | 5 | 5
-16-20 | 3 | 4-5 | 4 | 5 | 5 | 6
-21-30 | 4-5 | 4-5 | 5 | 5 | 6 | 6
-Más de 31 | Lo define el Equipo Evaluador.
-| | | | | | | | | | |
+| Cuadro 2: Número de días sugeridos para un proceso de evaluación Número de personas dentro del alcance del OEC | Número de Actividades del alcance a evaluar.
+| 1 a 10 | 11a 20 | 21 a 40 | 41 a 60 | 61 a 99 | 100 a 130
+1-5 | 2 | 3 | 3 | 3 | 4 | 5 |
+6-10 | 2 | 3 | 3 | 4 | 4 | 5 |
+11-15 | 3 | 3 | 4 | 4 | 5 | 5 |
+16-20 | 3 | 4-5 | 4 | 5 | 5 | 6 |
+21-30 | 4-5 | 4-5 | 5 | 5 | 6 | 6 |
+Más de 31 | Lo define el Equipo Evaluador. |
+| | | | | | | | | | | | |
 La tabla es solamente una guía, los días pueden variar
 6.5 El Evaluador Líder es el responsable de presentar a la Unidad de Logística original firmado y copia digital del plan de evaluación.
