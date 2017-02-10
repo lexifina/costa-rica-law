@@ -1,0 +1,1 @@
+Artículo 32. Alternativas a la disposición final en rellenos sanitarios. La Municipalidad podrá optar por la adopción y/o desarrollo de tecnologías alternativas para reducir la contaminación y mejorar el tratamiento de los residuos.

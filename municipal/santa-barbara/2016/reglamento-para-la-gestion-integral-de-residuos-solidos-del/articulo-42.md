@@ -1,0 +1,1 @@
+Artículo 42. Residuos biológicos e infectocontagiosos. Para el tratamiento de los residuos biológicos e infectocontagiosos que se generan en establecimientos que presten atención a la salud u otros afines, se debe seguir los lineamientos vigentes para la gestión de este tipo de residuos que emita el MINSA.

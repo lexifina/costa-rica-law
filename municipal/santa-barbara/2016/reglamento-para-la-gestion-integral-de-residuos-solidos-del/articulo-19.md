@@ -1,0 +1,20 @@
+Artículo 19. Categorías de residuos sólidos. Los generadores deberán separar los siguientes residuos sólidos de acuerdo a las medidas establecidas y comunicadas previamente por la Municipalidad. Las categorías de los residuos será la siguiente: Papel y cartón: se incluye en esta categoría el papel y cartón, limpio y seco:
+a) Papel:
+se incluye todo el papel reciclable, proveniente de las actividades básicas de oficina, papel triturado, hojas sueltas, folders, sobres, posters, revistas, libros, cuadernos, directorios, periódico y cartulina. No se incluye: papel sucio o mojado, papel carbón, papel químico, papel aluminio, papel celofán, papel encerado, papel plastificado, papel sanitario, papel toalla o servilletas.
+b. Cartón:
+se incluyen pedazos de cartón, láminas de cartón, cartoncillo, cajas de cartón, conos de cartón, tubos de cartón que se encuentren secos y limpios.
+Orgánicos:
+se incluyen en esta categoría los residuos compostables, de origen vegetal: restos de alimentos, frutas, verduras, cáscaras y residuos de jardín.
+Se excluyen los restos de alimentos de origen animal.
+Vidrio: deben separarse de la corriente de los envases y manejarse de forma diferenciada para evitar el riesgo de accidentes cuando se manipula el material. En los residuos de vidrio se incluyen los envases de vidrio de cualquier color, excepto materiales de vidrio plano tales como residuos de ventanas, celosías, cerámica, entre otros.
+Envases: se incluye en esta categoría los envases de plástico y tetra pack, limpios y secos.
+a. Plásticos: se incluyen en esta categoría los recipientes de plástico, incluyen botellas plásticas, bolsas plásticas (Polietileno de baja densidad y polietileno de alta densidad), PVC, poli estireno, polipropileno y plásticos de ingeniería. Así como pichingas, galones y cubetas plásticas que no contengan residuos de sustancias químicas peligrosas.
+b. Envases de tetra pack: se incluyen los empaques tétrada utilizados para la venta de leche y jugos; entre otros.
+Aluminio: se incluyen en esta categoría los envases de aluminio, latón y hojalata. Todos limpios y secos .
+a. Latas de aluminio: se incluyen envases de alimentos y bebidas, latas de cerveza, gaseosa, bebidas energizantes, snacks y similares. No se incluyen restos de papel aluminio empleado en las cocinas.
+b. Latas de latón: se incluyen las latas de atún y demás alimentos enlatados.
+Residuos de manejo especial: llantas usadas, batería ácido plomo, pilas de reloj, pilas (carbón-manganeso, carbón-zinc, litio-cadmio, litio y zinc), aires acondicionados, refrigeradoras, transporte de frío y equipos de refrigeración industrial, aceite lubricante usado, envases plásticos para contener aceites lubricantes, envases metálicos, plástico y vidrio para contener agroquímicos (después del triple lavado), artefactos eléctricos (línea blanca), fluorescentes y bombillos compactos, refrigerantes, colchones, estereofón.
+Los residuos serán conocidos como no tradicionales o voluminosos.
+Residuos ordinarios: se incluyen en esta categoría los residuos ordinarios también conocidos como no valorizables, no peligrosos y sin alternativas viables de recuperación como cartón sucio, papel sucio y/o engrasado papel carbón, papel aluminio, residuos del barrido, residuos de tela, servilletas usadas y residuos de los servicios sanitarios.
+Residuos Bioinfecciosos: regulados por el
+Reglamento sobre la gestión de los desechos infectocontagiosos que se generan en establecimientos que presten atención a la salud y afines, decreto No.39965-S. Sin embargo, en lo referente a los residuos punzo cortantes estos deberán ser empacados individualmente para reducir al máximo el riesgo para el personal recolector. Las categorías pueden variar dependiendo de la capacidad que exista para su valorización, de la producción de material o de la adquisición de nueva tecnología para el tratamiento de residuos no considerados hasta el momento. La Municipalidad debe proveer la información necesaria a los generadores para que puedan separar en la fuente de generación, según las categorías vigentes y de conformidad con las necesidades del servicio de recolección.

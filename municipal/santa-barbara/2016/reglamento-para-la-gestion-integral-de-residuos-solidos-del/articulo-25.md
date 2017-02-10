@@ -1,0 +1,1 @@
+Artículo 25. Participación ciudadana. La Municipalidad promoverá la participación ciudadana en los procesos de planificación, evaluación y seguimiento del Plan Municipal de Gestión Integral de Residuos, así como de otras iniciativas como proyectos y campañas de recuperación de residuos reciclables o tratamiento adecuado de residuos generados en el cantón.

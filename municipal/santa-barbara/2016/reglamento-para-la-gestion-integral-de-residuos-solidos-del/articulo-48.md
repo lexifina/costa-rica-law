@@ -1,0 +1,1 @@
+Artículo 48. Intereses por atraso de pago. El atraso en el pago de las tarifas que se cobrarán por los servicios enunciados en el presente reglamento generará intereses moratorios de conformidad con el Artículo Nº 57 del Código de Normas y Procedimientos Tributarios.

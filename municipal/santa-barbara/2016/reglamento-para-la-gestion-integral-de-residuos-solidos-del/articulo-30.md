@@ -1,0 +1,1 @@
+Artículo 30. Fiscalización. La Municipalidad tendrá la potestad de realizar la fiscalización del cumplimiento de las condiciones estipuladas en la legislación vigente y podrá realizar las denuncias por incumplimiento ante las autoridades pertinentes, donde se puede utilizar diferente tecnología y procesos de innovación que garantice las pruebas necesarias y demuestren el delito.

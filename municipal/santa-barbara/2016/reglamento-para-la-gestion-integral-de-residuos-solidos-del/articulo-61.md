@@ -1,0 +1,1 @@
+Artículo 61. De la vigilancia. La vigilancia del cumplimiento del presente Reglamento corresponde al gobierno local en conjunto con el Área Rectora del Salud Santa Bárbara. Las violaciones al Reglamento se sancionarán en los términos de la Ley General de Salud, Ley de Gestión Integral de Residuos, Código Municipal y demás ordenamientos jurídicos aplicables.
