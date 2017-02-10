@@ -1,0 +1,8 @@
+Artículo 33°- Gastos adicionales INDER y persona teletrabajadora.
+Inciso a) PERSONA TELETRABAJORA
+Los gastos que amerite el desempeño de tareas con la modalidad del teletrabajo, tales como luz, agua, acondicionamiento del espacio físico, línea telefónica fija o móvil, internet, cableado, entre otros, serán cubiertos en su totalidad por la persona teletrabajadora. No implica que la institución deba reconocer algún tipo de incentivo económico tal como pago de Zonaje, Viáticos, Pasajes, entre otros.
+La persona teletrabajadora deberá restituir el equipo institucional que le haya sido brindado para hacer su trabajo, de no hacerlo se procederá con la aplicación del régimen disciplinario o en caso de que la relación de servicios haya finalizado se procederá al rebajo en la liquidación de los extremos laborales correspondientes.
+Inciso b) INDER
+El Inder dotará a las personas teletrabajadoras de una computadora para que realicen su función y el soporte técnico a los sistemas informáticos. Además, excepcionalmente proporcionará cualquier otro material o equipo que se requiera para que la persona teletrabajadora desarrolle sus funciones.
+La Institución facilitará el escaneo de documentos, asi como el uso de otros medios, que no generen erogación alguna. El uso de fotocopias será restringido y requiere de autorización previa y justificada de la Jefatura inmediata. En el caso de traslados para realizar giras o reuniones de trabajo como parte de su función, aplica lo establecido en la normativa vigente. Cuando la persona teletrabajadora reside en el exterior, el Inder no asumirá los costos de ningún traslado.
+Sin embargo, la CIT analizará casos especiales siempre y cuando exista un interés público institucional.

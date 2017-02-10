@@ -1,0 +1,2 @@
+Artículo 35°- Responsabilidad por los activos
+La persona teletrabajadora es responsable de los activos institucionales que utilice y traslade hacia el lugar de trabajo, ya sea domicilio o lugar destinado para realizar sus funciones durante el teletrabajo, cuando así sea autorizado. En caso de extravio, robo o deterioro, se procede de acuerdo con lo que establece el Reglamento para Administración de Bienes del Inder y mediante el debido proceso se determinará su responsabilidad en cada caso

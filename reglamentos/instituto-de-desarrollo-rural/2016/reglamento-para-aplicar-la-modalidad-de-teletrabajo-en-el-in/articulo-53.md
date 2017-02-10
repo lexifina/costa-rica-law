@@ -1,0 +1,4 @@
+Artículo 53°-Sobre los puestos vacantes teletrabajables.
+Cuando un puesto teletrabajable quede vacante, el superior inmediato le informará a la persona funcionaria que lo sustituirá, que ingresará de forma presencial, en caso de que desee laborar bajo la modalidad del teletrabajo, deberá cumplir con las condiciones generales establecidas en este Reglamento.
+Si la persona teletrabajadora se acoge a vacaciones, permisos, o incapacidades temporales el sustituto deberá realizar el trabajo en forma presencial.
+Solo en caso de que se trate de puestos teletrabajables que se requieran sacar a concurso bajo esta modalidad la Institución lo realizará bajo criterios de mayor conveniencia institucional. En este caso el proceso de reclutamiento y selección debe incluir todos los filtros del programa de teletrabajo. Y la persona que ocupe este puesto será contratada desde el principio como persona teletrabajadora.

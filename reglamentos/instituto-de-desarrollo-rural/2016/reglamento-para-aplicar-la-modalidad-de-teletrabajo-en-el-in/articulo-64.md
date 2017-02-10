@@ -1,0 +1,3 @@
+Artículo 64°: De recusaciones
+Las recusaciones de las personas gestionantes de teletrabajo, serán conocidas y resueltas por la Comisión, conforme a las previsiones del articulo 230 y siguientes de la Ley General de la Administración Pública, aplicables en lo conducente.
+En caso de que la recusación sea declarada sin lugar, la persona funcionaria gestionante tendrá derecho de interponer contra lo resuelto los recursos ordinarios de revocatoria y apelación, previstos en este Reglamento y en la Ley General de la Administración Pública y en caso de laguna se integrarán e interpretarán supletoriamente con base en el Código Procesal Civil y la Ley Orgánica del Poder Judicial en esta materia.

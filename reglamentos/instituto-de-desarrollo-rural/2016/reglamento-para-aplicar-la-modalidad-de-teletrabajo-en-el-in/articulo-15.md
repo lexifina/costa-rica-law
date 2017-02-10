@@ -1,0 +1,2 @@
+Artículo 15°-: De la colaboración con las personas teletrabajadoras
+Todas las Jefaturas y personas funcionarias relacionadas directa o indirectamente con las personas que teletrabajen, deben colaborar en su gestión para que esta modalidad de trabajo cumpla con los objetivos que persigue.

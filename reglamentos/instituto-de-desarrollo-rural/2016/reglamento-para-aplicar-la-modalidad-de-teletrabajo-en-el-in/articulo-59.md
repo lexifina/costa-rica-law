@@ -1,0 +1,2 @@
+Artículo 59°: De la naturaleza de las sesiones
+Las sesiones de la Comisión serán privadas. No obstante, por unanimidad de las personas integrantes presentes, podrá acordarse que tengan acceso a ésta las personas funcionarias o bien aquellas que hayan sido invitadas a hacerlo, a las cuales se les concederá el derecho a participar en las deliberaciones con voz pero sin voto, si así lo acuerda la mayoría absoluta de los integrantes presentes.

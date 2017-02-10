@@ -1,0 +1,2 @@
+Artículo 50°-: Decisión de la Comisión
+La CIT valorará el informe del Área de Recursos Humanos y determinará si la persona funcionaria se incorpora o no como persona teletrabajadora. Posteriormente procederá a comunicar recomendación a la Administración Superior y esta comunicará la decisión que corresponda al Area de Recursos Humanos para que materialice la resolución hacia la persona funcionaria y, cuando corresponda, realice el acuerdo de teletrabajo y la acción de personal respectiva.

@@ -1,0 +1,2 @@
+Artículo 46°-: Incumplimiento por parte de la jefatura.
+La persona teletrabajadora afectada debe informar esta situación al Área de Recursos Humanos, dependencia que iniciará indagatoria con las partes involucradas. En caso de persistir la situación informada, el Área de Recursos Humanos elevará a la CIT un informe técnico sobre la situación presentada entre las partes. La CIT lo conocerá y brindará la recomendación correspondiente a la administración superior.

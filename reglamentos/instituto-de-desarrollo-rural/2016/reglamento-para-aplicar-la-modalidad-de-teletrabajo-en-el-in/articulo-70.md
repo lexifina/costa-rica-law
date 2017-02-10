@@ -1,0 +1,2 @@
+Artículo 70°-: Exclusiones.
+Quedarán excluidos de participar en el Programa de Teletrabajo las personas funcionarias nombradas como jefaturas o puestos de confianza, así como todos aquellos personas funcionarias con puestos que por su naturaleza no son teletrabajables, y los que no pasen las pruebas de ingreso, o bien que no reúnan los requisitos establecidos en la normativa que regula la aplicación del Programa de Teletrabajo.

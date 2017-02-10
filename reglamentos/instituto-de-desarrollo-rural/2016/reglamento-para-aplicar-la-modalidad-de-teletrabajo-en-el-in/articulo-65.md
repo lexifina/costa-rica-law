@@ -1,0 +1,2 @@
+Artículo 65°-: De los votos contrarios
+Las personas integrantes de la Comisión deberán hacer constar en el acta su voto contrario al acuerdo adoptado y los motivos que lo justifiquen e indicar por qué razones se aparta del criterio técnico o profesional si es que existiera como insumo para la toma de decisiones, quedando exentas de las responsabilidades que, en su caso, pudieren derivarse de tales acuerdos. En este supuesto deberán firmar el acta correspondiente.

@@ -1,0 +1,18 @@
+CAPITULO VIII: DEL PROCEDIMIENTO PARA ACOGERSE A LA MODALIDAD DE
+TEL ET RA BAJO
+Artículo 54° Procedimiento e impugnación.
+La persona que quiera optar por acogerse a la modalidad de teletrabajo debe:
+SER CANDIDATO:
+a) Tener el deseo y manifestar su voluntad de optar por el Teletrabajo.
+b) Comunicar y materializar su deseo mediante solicitud escrita presentada ante su Jefatura inmediata.
+c) Contar con el aval previo de la Jefatura inmediata.
+d) Al tener el aval de la Jefatura inmediata, el funcionario se convierte en pre-candidato al teletrabajo dentro de su Área respectiva. En caso de la negativa de su Jefatura inmediata, puede impugnar el acto denegatorio inicial mediante la interposición del recurso de revocatoria ante su Jefatura dentro del tercer día hábil de la notificación efectiva del acto y el de apelación ante la CIT, en ese mismo plazo.
+SER PRE-SELECCIONADO:
+e) Siendo ya en firme pre-candidato al teletrabajo con el aval en firme otorgado por su Jefatura Inmediata y su Área respectiva, el funcionario deberá convertirse en pre-seleccionado, para lo cual la Jefatura elevará la solicitud mediante oficio ante el Área de Recursos Humanos, lo anterior para iniciar el proceso de sometimiento de las diferentes pruebas, físicas, psicológicas, tecnológicas, entre otras, previa notificación, para su pre-selección, así como los diferentes análisis y verificaciones que para ello se instauren dentro del Área de Recursos Humanos, en donde se hará el estudio del perfil, las competencias, el cumplimiento de las condiciones generales que determine éste reglamento así como las que adicionalmente establezca dicha Área, previa notificación al pre-seleccionado, para comprobar la idoneidad y selección final para acogerse a la modalidad del teletrabajo.
+SELECCION FINAL:
+f) En caso de aprobar o improbar los requisitos y las condiciones generales del teletrabajo como pre-seleccionado, el Área de Recursos Humanos comunicará a la Jefatura inmediata mediante oficio con copia al funcionario solicitante el trámite para su selección final, el oficio indicará de forma motivada las razones por las cuales resultó ser seleccionado para el teletrabajo, o en su caso de no ser seleccionado para el teletrabajo. Si lo deniega, el funcionario podrá interponer el Recurso de Revocatoria ante la CIT, con apelación ante la Presidencia Ejecutiva, ambos en el plazo del tercer día hábil al de su efectiva notificación. Dicha instancia deberá resolver en un plazo máximo de 22 días. Contra lo resuelto por la Presidencia Ejecutiva cabrá el recurso de Reconsideración.
+g) Aprobada la etapa de requisitos y una vez que se encuentre en firme su selección, el Área de Recursos Humanos lo elevará ante la CIT para lo de aprobación final.
+h) La CIT una vez que da su aprobación final lo remite nuevamente ante al Área de Recursos Humanos para la confección del contrato de teletrabajo.
+i) El Contrato de Teletrabajo será revisado y refrendado por la Dirección de Asuntos Jurídicos, pero en caso de que existan inconsistencias o aspectos por subsanar o corregir, ésta lo comunicará al Área de Recursos Humanos, Área que deberá ajustar lo formal o legalmente requerido en un plazo de 5 días hábiles como máximo y devolverlo a la DA) para su refrendo final.
+j) La Dirección de Asuntos Jurídicos deberá emitir el acto de revisión y refrendo así como devolverlo al Área de Recursos Humanos todo en el plazo de 5 días hábiles.
+k) El Área de Recursos Humanos una vez recibido el contrato revisado y refrendado por la DAJ emitirá la acción de personal respectiva y le comunica al funcionario todo el detalle para el inicio de sus labores teletrabajables, coordinando con la Jefatura los demás aspectos de la ejecución del contrato.

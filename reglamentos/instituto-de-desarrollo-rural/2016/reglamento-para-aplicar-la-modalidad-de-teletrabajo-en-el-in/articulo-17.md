@@ -1,0 +1,2 @@
+Artículo 17°-: Derechos laborales
+El teletrabajo modificará única y exclusivamente la organización y la forma en que se efectúa el trabajo, sin afectar las condiciones de la relación de servicio de la persona funcionaria, quien mantiene los mismos derechos, beneficios y obligaciones de aquellos personas funcionarias que desarrollen sus funciones en las instalaciones de la institución, de conformidad con la normativa aplicable a cada relación de servicio establecida con el Inder.

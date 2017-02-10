@@ -1,0 +1,3 @@
+Artículo 38°-: Soporte técnico a los recursos tecnológicos.
+El soporte técnico que se realice a los equipos y recursos tecnológicos se podrá llevar a cabo de manera remota, para lo cual la persona teletrabajadora brindará el apoyo que sea necesario. En caso de que esta opción no dé los resultados esperados, una persona especialista de la Unidad de Tecnologias de Información le asistirá telefónicamente o por cualquier otro medio.
+En caso de que no pueda corregirse por esta vía la persona funcionaria deberá traer el equipo a la Unidad de Tecnología de Información en oficinas centrales en el momento que lo requiera.
