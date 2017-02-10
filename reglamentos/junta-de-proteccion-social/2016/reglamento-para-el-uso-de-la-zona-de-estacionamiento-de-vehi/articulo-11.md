@@ -1,0 +1,1 @@
+Artículo 11.—Se reserva el lado izquierdo de la zona del estacionamiento del bloque central y del bloque del costado este, como espacios fijos de estacionamiento para personas con discapacidad, de conformidad con lo dispuesto en la Ley No. 7600.

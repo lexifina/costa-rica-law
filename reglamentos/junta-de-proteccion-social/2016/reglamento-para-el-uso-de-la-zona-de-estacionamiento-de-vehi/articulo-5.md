@@ -1,0 +1,1 @@
+Artículo 5º—El Departamento de Servicios Administrativos, velará para que se dé un uso óptimo a las zonas de estacionamiento, debiendo asignar el lugar correspondiente a quienes autorice y pudiendo revocar o suspender en forma razonada, los permisos concedidos.

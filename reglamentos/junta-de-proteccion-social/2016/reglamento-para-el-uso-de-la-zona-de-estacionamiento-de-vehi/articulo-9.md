@@ -1,0 +1,1 @@
+Artículo 9º—Cuando existan espacios disponibles en esta zona, podrán ser utilizados por visitantes de la Junta Directiva y la Gerencia General, previa autorización expresa del Departamento de Servicios Administrativos.

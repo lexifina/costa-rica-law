@@ -1,0 +1,1 @@
+Artículo 3º—La Junta de Protección Social, no asumirá ningún tipo de responsabilidad por eventuales daños que sufran los vehículos de los funcionarios o visitantes en el estacionamiento de la institución, excepto que sean provocados por vehículos institucionales.

@@ -1,0 +1,1 @@
+Artículo 14.—El estacionamiento de motocicletas, se permitirá únicamente en la zona designada para tal efecto. Cualquier automotor de esta naturaleza que se ubique fuera de esta zona, deberá ser retirado en forma inmediata, una vez que así sea solicitado por el Oficial de Seguridad de turno.

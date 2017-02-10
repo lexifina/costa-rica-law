@@ -1,0 +1,2 @@
+Artículo 15.—Las zonas de estacionamiento estarán claramente demarcadas. El vehículo o motocicleta deberá estacionarse dentro de los límites señalados, sin invadir los espacios aledaños o bien, las zonas de tránsito vehicular y/o peatonal; de forma que garantice en todo momento el libre desplazamiento por dichas zonas.
+Para garantizar el acceso y salida de la zona de estacionamiento sin contratiempos y como medida preventiva y de seguridad, los vehículos siempre deberán estacionarse en posición de salida.
