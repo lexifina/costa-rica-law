@@ -3,28 +3,30 @@ El Ente Costarricense de Acreditación (ECA), en cumplimiento de la Ley 8279 Ley
 Procedimiento | Versión actual | Versión publicada | Fecha de emisión | Fecha de entrada en vigencia en el sistema de gestión del ECA
 ECA-MC-P13 Ejecución de la evaluación | 09 | 10 | A partir de su publicación en el diario oficial la Gaceta. | 1 mes posterior a su publicación en el diario oficial la Gaceta.
 Los documentos descritos se encuentran a disposición de los interesados en la página electrónica www.eca.or.cr/http://www.eca. or.cr/docs.php; así mismo puede solicitar el envío de manera electrónica o solicitar gratuitamente una copia no contralada en la Gestada de Calidad en las oficinas centrales del ECA ubicadas en Pavas, Rohrrnoser 150 metros al este del Centro Comercial Plaza Mayor, contiguo a Prisma Dental, de lunes a viernes de las 8 a las 16 horas.
-San José, 24 de octubre del 2016.—
+San José, 24 de octubre del 2016.-
 (Nota presente norma se extrajo del sitio web del Ente Costarricense de Acreditación, por lo que se transcribe a continuación:)
+(Nota de Sinalevi: El presente procedimiento fue reformado parcialmente y reproducido su texto de forma íntegra mediante publicación en La Gaceta N° 40 del 24 de febrero del 2017, donde se actualiza la versión 10 y se publica la versión 11 que se transcribe a continuación:)
 [imagen]
 TABLA DE CONTENIDO
-1 OBJETIVO ...................................................................................................................... 1
-2 ALCANCE ....................................................................................................................... 1
-3 GENERALIDADES .......................................................................................................... 2
-4 USO DE FORMULARIOS ECA DURANTE LAS EVALUACIONES. ............................... 7
-5 EVALUACIÓN DOCUMENTAL ....................................................................................... 8
-6 PREPARACIÓN PARA LA EVALUACIÓN IN SITU. ....................................................... 9
-7 EVALUACIÓN IN SITU ................................................................................................. 11
-8 CLASIFICACIÓN DE NO CONFORMIDADES .............................................................. 14
-9 PAUTAS GENERALES A CONSIDERAR POR EL EQUIPO EVALUADOR ................. 16
-10 ANEXOS .................................................................................................................... 18
-11 TRANSITORIO ........................................................................................................... 20
-12 IDENTIFICACIÓN DE CAMBIOS ............................................................................... 20
+1 OBJETIVO ..................................................................................................................................... 1
+2 ALCANCE ..................................................................................................................................... 1
+3 GENERALIDADES ........................................................................................................................ 2
+4 USO DE FORMULARIOS ECA DURANTE LAS EVALUACIONES. ...................................... 7
+5 EVALUACIÓN DOCUMENTAL .................................................................................................. 8
+6 PREPARACIÓN PARA LA EVALUACIÓN IN SITU. .............................................................. 10
+7 EVALUACIÓN IN SITU .............................................................................................................. 12
+8 CLASIFICACIÓN DE HALLAZGOS ......................................................................................... 15
+9 PAUTAS GENERALES A CONSIDERAR POR EL EQUIPO EVALUADOR ........................ 16
+10 ANEXOS .................................................................................................................................. 18
+11 TRANSITORIO ......................................................................................................................... 20
+12 IDENTIFICACIÓN DE CAMBIOS .......................................................................................... 20
 1 OBJETIVO
 Establecer los lineamientos para ejecutar la evaluación documental y evaluación in situ, por parte de los Equipos Evaluadores asignados por ECA.
 2 ALCANCE
-Aplica a todas las actividades de evaluación inicial, de seguimiento, extraordinarias, ampliación del alcance de acreditación y reevaluación del alcance de acreditación, que realiza el ECA a los Organismos de Evaluación de la Conformidad.
+Aplica a todas las actividades de evaluación inicial, de seguimiento, extraordinarias, ampliación del alcance de acreditación y reevaluación del alcance de acreditación, que realiza el ECA a los Organismos de Evaluación de la Conformidad. EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 2 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 3 GENERALIDADES
-3.1 El Equipo Evaluador, durante las evaluaciones debe verificar el cumplimiento de los requisitos de la norma de acreditación que aplica el respectivo OEC. Para cualquier tipo de evaluación se deben considerar los criterios y requisitos establecidos en el ECA-MP Manual de procedimientos de evaluación y acreditación.
+3.1 El Equipo Evaluador, durante las evaluaciones debe verificar el cumplimiento de los requisitos de la norma de acreditación que aplica al respectivo OEC. Para cualquier tipo de evaluación se deben considerar los criterios y requisitos establecidos en el ECA-MP Manual de procedimientos de evaluación y acreditación.
 3.2 Durante las evaluaciones de seguimiento y reevaluación, el Equipo Evaluador, debe adicionalmente considerar los siguientes aspectos:
 - Implementación efectiva de las acciones correctivas y correcciones de la evaluación anterior.
 - Testificación dentro del alcance acreditado.
@@ -41,10 +43,10 @@ OCSG | 1. Norma INTE-ISO/IEC 17021. 2. Norma INTE-ISO/IEC 17021-2 (para ambiente
 OCP | 1. Norma INTE-ISO/IEC 17065. 2. ECA-MC-C01 Criterios para la utilización de laboratorios por los Organismos de certificación de Producto y Organismos de Inspección. 3. ECA-MC-P11-F03 Informe de testificación para OCP. 4. ECA-MC-P13-F16 Lista de verificación para organismos de certificación de producto. 5. ECA-MC-P13-F19 Informe final de evaluación para organismos de certificación de producto. Norma INTE-ISO/IEC 17065:2013 6. ECA-MC-P20 Política de trazabilidad. 7. ECA-MC-P13-I03 Instructivo evaluación conjunta norma 17020 y norma 17065
 OCH | 1. Norma INTE-ISO/IEC 17024. 2. ECA-MC-P11-F11 Informe de testificación para OCH. 3. ECA-MC-P13-F17 Lista de verificación y formato de notas digitales para organismos de certificación de personas. 4. ECA-MC-P13-F20: Informe final de evaluación para organismos de certificación de personas. Norma INTE-ISO/IEC 17024:2013
 Laboratorios de ensayo y calibración | 1. Norma INTE-ISO/IEC 17025. 2. ECA-MC-P13-I01 Instructivo de muestreo. 3. ECA-MC-P17 Política para la participación en ensayos / pruebas de aptitud y otras comparaciones. 4. ECA-MC-P20 Política de trazabilidad. 5. ECA-MC-PO01 Política de validación de métodos. 6. ECA-MC-PO01-G01 Guía para la validación de métodos. 7. ECA-MC-PO02 Política de incertidumbre de las mediciones. 8. ECA-MC-C09 Criterios para la acreditación transfrontera de laboratorios y organismos de inspección. 9. ECA-MC-P13-F03 Informe final de evaluación para laboratorios de ensayo y calibración. Norma INTE-ISO/IEC 17025 10. ECA-MC-P13-F04 Notas digitales para laboratorios de ensayo y calibración. Norma INTE-ISO/IEC 17025 11. ECA-MC-P13-F05 Notas digitales para la evaluación documental para expertos técnicos. NORMA INTE-ISO/IEC 17025 (estas son utilizadas solo por expertos técnicos que no se encuentren calificados como evaluadores dentro del CEE del ECA y para la evaluación documental).
+Proveedores de ensayos de aptitud | 1. Norma INTE-ISO/IEC 17043 en su versión vigente 2. Norma INTE-ISO 13528 en su versión vigente 3. Normas INTE-ISO/IEC 17025 e INTE-ISO 15189 en su versión vigente, según aplique 4. Norma ISO-17034 en su versión vigente, si aplica 5. ECA-MC-C15 Criterios para la acreditación de PEA 6. ECA-MC-P13-I01 Instructivo de muestreo. 7. ECA-MC-P17 Política para la participación en ensayos / pruebas de aptitud y otras comparaciones. 8. ECA-MC-P20 Política de trazabilidad. 9. ECA-MC-PO01 Política de validación de métodos. 10. ECA-MC-PO01-G01 Guía para la validación de métodos. 11. ECA-MC-PO02 Política de incertidumbre de las mediciones. 12. ECA-MC-C09 Criterios para la acreditación transfrontera de laboratorios y organismos de inspección. 13. ECA-MC-P13-F41 Informe final de evaluación para proveedores de ensayos de aptitud. Norma INTE-ISO/IEC 17043 14. ECA-MC-P13-F42 Notas digitales para proveedores de ensayos de aptitud. 15. ECA-MC-P13-F43 Notas digitales para evaluación documental para expertos técnicos. Norma INTE-ISO/IEC 17043 (estas son utilizadas solo por expertos técnicos que no se encuentren calificados como evaluadores dentro del CEE del ECA y para la evaluación documental).
 Laboratorios Clínicos | 1. Norma INTE-ISO 15189. 2. ECA-MC-P13-F18 Notas digitales para laboratorios clínicos. 3. ECA-MC-P13-I01 Instructivo de muestreo. 4. ECA-MC-P17 Política para la participación en ensayos / pruebas de aptitud y otras comparaciones. 5. ECA-MC-P20 Política de trazabilidad. 6. ECA-MC-PO01 Política de validación de métodos. 7. ECA-MC-PO01-G01 Guía para la validación de métodos. 8. ECA-MC-PO02 Política de incertidumbre de las mediciones. 9. ECA-MC-C09 Ccriterios para la acreditación transfrontera de laboratorios y organismos de inspección. 10. ECA-MC-P13-F23 Informe final de evaluación para laboratorios clínicos. Norma INTE-ISO 15189:2014 11. ECA-MC-P13-F26 Notas digitales para la evaluación documental para Expertos Técnicos de Laboratorios Clínicos (estas son utilizadas solo por expertos técnicos que no se encuentren calificados como evaluadores dentro del CEE del ECA y para la evaluación documental).
 Organismos Validadores Verificadores de gases de efecto invernadero | 1. Norma INTE/ISO 14065 en su versión vigente. 2. Norma INTE/ISO 14066 en su versión vigente 3. Norma INTE/ISO 14064-1 en su versión vigente 4. Norma INTE 12-01-06 en su versión vigente 5. Norma INTE/ISO 14064-2 en su versión vigente 6. Norma INTE/ISO 14064-2 en su versión vigente 7. ECA-MC-P11-F05 Informe de Testificación para OV/Vs. Verificación de inventario o C-Neutralidad 8. ECA-MC-P11-F06 Informe de Testificación para OV/Vs. Validación/verificación de proyectos. 9. ECA-MC-P13-F13 Lista de verificación y formato de notas digitales para organismos validadores/verificadores de gases de efecto invernadero Norma INTE/ISO 14065. 10. ECA-MC-C10 Criterios para la evaluación de la norma INTE/ISO 14065. 11. ECA-MC-P13-F24: Informe final de evaluación para organismos validadores/verificadores de GEI
-Evaluaciones | 1. Normas aplicables
-conjuntas | 2. Criterios de evaluación aplicables. 3. ECA-P13-F15: Notas digitales para evaluación conjunta 17020 – 17065 4. ECA-P13-F27: Informe final para evaluación conjunta 17020 - 17065 5. ECA-P13-F28: Notas digitales para evaluación conjunta 17020 - 17025 6. ECA-P13-F29: Informe final para evaluación conjunta 17020 - 17025 7. ECA-P13-F30: Informe final para evaluación conjunta 17021 - 17065 8. ECA-P13-F31: Notas digitales para evaluación conjunta 17021 – 17065 9. ECA-P13-F34: Informe final para evaluación conjunta 15189 - 17025 10. ECA-P13-F36: Notas digitales para evaluación conjunta 15189 – 17025 11. ECA-MC-P13-I03 Instructivo evaluación conjunta norma 17020 y norma 17065
+Evaluaciones conjuntas | 1. Normas aplicables 2. Criterios de evaluación aplicables. 3. ECA-P13-F15: Notas digitales para evaluación conjunta 17020 – 17065 4. ECA-P13-F27: Informe final para evaluación conjunta 17020 - 17065 5. ECA-P13-F28: Notas digitales para evaluación conjunta 17020 - 17025 6. ECA-P13-F29: Informe final para evaluación conjunta 17020 - 17025 7. ECA-P13-F30: Informe final para evaluación conjunta 17021 - 17065 8. ECA-P13-F31: Notas digitales para evaluación conjunta 17021 – 17065 9. ECA-P13-F34: Informe final para evaluación conjunta 15189 - 17025 10. ECA-P13-F36: Notas digitales para evaluación conjunta 15189 – 17025 11. ECA-MC-P13-I03 Instructivo evaluación conjunta norma 17020 y norma 17065
 3.4 La Gestoría de Calidad, asegura al Equipo Evaluador, la disposición en la página web del ECA (www.eca.or.cr), de la documentación vigente citada en el punto anterior.
 Nota 1: En caso de que alguno de los miembros del Equipo Evaluador no cuente con una clave de acceso a los documentos disponibles en la página web, debe solicitarla a la Unidad de Logística al correo logistica@eca.or.cr.
 3.5 Los miembros del Equipo Evaluador son responsables del manejo y la custodia de la documentación y de su confidencialidad
@@ -61,6 +63,8 @@ Nota 1: En caso de que alguno de los miembros del Equipo Evaluador no cuente con
 4.3 Todo documento debe llenarse de manera completa. En los casos donde no se requiera información debe anotarse NR (no requerido) o NA (no aplica), lo importante es no dejar espacios en blanco.
 4.4 Aunque la responsabilidad de entregar la mayoría de los documentos recae en el Evaluador Líder, es responsabilidad de todos los integrantes del equipo completar los documentos que el Evaluador Líder les haya asignado y de recopilar la información que él les solicite.
 4.5 La redacción de las no conformidades debe incorporar los siguientes aspectos:
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 8 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 - Las evidencias: Redactadas de manera detallada, que no se presten para interpretaciones o generen duda del nivel de incumplimiento del OEC.
 - La redacción de la no conformidad: Evitar redactar la prosa de la norma o del documento que se incumple. Definir de manera clara el incumplimiento del OEC.
 - Requisito de la norma o documento que se incumple.
@@ -74,12 +78,14 @@ Nota 1: En caso de que alguno de los miembros del Equipo Evaluador no cuente con
 5.2 La evaluación documental se realiza previo a la evaluación in situ para los procesos iniciales y de ampliación de manera obligatoria. Para el caso de las evaluaciones de seguimiento y reevaluaciones, la evaluación documental se puede realizar antes de la evaluación in situ o durante la evaluación in situ, para esto último se han establecido condiciones en el ECA-MP-P06 Manual de procedimientos para la evaluación y acreditación: Evaluación.
 Nota: Si el Equipo Evaluador determina durante la evaluación documental que el sistema no se ha implementado, puede tomar la decisión de no continuar con el proceso para lo cual se sigue lo establecido en el ECA-MP-P06 Manual de procedimientos para la evaluación y acreditación: Evaluación.
 5.3 El Evaluador Líder, debe distribuir las tareas al Equipo Evaluador para realizar la revisión de todos los documentos y registros pertinentes proporcionados por el OEC, para evaluar la conformidad del sistema de gestión de calidad, tal como está documentado en los requisitos de acreditación, para los procesos que aplique. También debe establecer la fecha límite de entrega de las notas digitales y línea de investigación de cada integrante del Equipo Evaluador, para que pueda realizar el ECA-MC-P13-F02 informe de evaluación documental. Toda comunicación debe ser con copia a la Secretaría de Acreditación respectiva.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 9 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 Nota 1: Las notas digitales y la línea de investigación son la evidencia de la realización de la evaluación documental y contra las cuales se realiza el pago de los honorarios. Aquellos evaluadores y/o Expertos Técnicos que no remitan esta información, no podrán ser sujetos de pago.
 Nota 2: En el cuadro 1 se presenta la documentación por área, donde se indican las notas digitales que deben utilizarse.
 5.4 Antes de brindar el acceso a la documentación del OEC, los integrantes del Equipo Evaluador deben haber sido aceptados por parte del OEC y deben haber firmado el ECA-MC-P01-F01 compromiso de confidencialidad, objetividad e imparcialidad.
 Nota: Los integrantes del CEE, tanto de instituciones públicas como CEE independientes mantienen un compromiso ético y declaración de responsabilidades sociales y compromiso ético profesional respectivamente, el cual es firmado cuando son integrados al CEE.
 5.5 Es obligación de la Unidad de Logística hacer disponible para el equipo evaluador en la página web del ECA la información del OEC, si la evaluación documental se realiza de previo a la evaluación in situ.
-5.6 La Unidad de Logística, debe hacer disponible para el equipo evaluador los siguientes documentos antes de las evaluaciones de seguimiento o reevaluaciones :
+5.6 La Unidad de Logística, debe hacer disponible para el equipo evaluador los siguientes documentos antes de las evaluaciones de seguimiento o reevaluaciones: :
  Informe final
  ECA-MP-P07-F01Informe propuesta de acciones por parte del OEC y verificación por parte del ECA de la evaluación anterior, cuando aplique.
  Resultados de intercomparaciones.
@@ -88,6 +94,8 @@ Nota: Los integrantes del CEE, tanto de instituciones públicas como CEE indepen
  Las aprobaciones del uso del símbolo de acreditación.
 5.7 En caso necesario, el Equipo Evaluador puede solicitar al OEC información adicional a través de la Unidad de Logística, el OEC debe presentarla ante ésta para que la traslade al Equipo Evaluador. Dado que esta información adicional puede resultar en generar cambios sobre el informe documental, el Equipo Evaluador puede esperar a que el OEC complete la información requerida para completar los documentos.
 5.8 El Evaluador Líder es el responsable de completar el ECA-MC-P13-F02 Informe de evaluación documental, para lo cual requiere la participación activa de los restantes miembros del Equipo Evaluador, quienes deben remitir su formato de notas digitales al Evaluador Líder. Este informe solo se completa si la evaluación documental se realiza de previo a la evaluación in situ.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 10 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 Nota: En caso de requerirlo, la Secretaría de Acreditación puede solicitar enmiendas a los informes presentados por el Evaluador Líder antes de enviarlos al OEC.
 5.9 El ECA-MC-P13-F02 informe de evaluación documental, solamente se completa en los casos en que se detecten no conformidades. Cuando no existan no conformidades, el sustento para evidenciar que la revisión documental se realizó serán solamente las notas digitales.
 5.10 El Evaluador Líder es el responsable de presentar a la Secretaría de Acreditación los siguientes documentos:
@@ -101,7 +109,9 @@ Nota: En caso de requerirlo, la Secretaría de Acreditación puede solicitar enm
 Nota: En caso de requerirlo, la Unidad de Logística puede solicitar enmiendas a los informes presentados por el Evaluador Líder antes de enviarlos al OEC.
 6.4 Para completar el ECA-MC-P13-F01 Plan de evaluación, el Evaluador Líder en consulta con el Equipo Evaluador, definen la agenda de la evaluación, que debe considerar los siguientes aspectos:
 - Selección de las actividades a testificar durante las evaluaciones conforme a los siguientes documentos:
-a. ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos y Organismos de Inspección.
+a. ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos, Proveedores de ensayos de aptitud y Organismos de Inspección.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 11 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 b. Para Organismos de Certificación y OVV: ECA-MC-P11 Procedimiento de evaluación in situ para Organismos de Certificación y OVV.
 - Si el OEC tiene instalaciones multisitios, instalaciones móviles.
 - La opinión de los Expertos Técnicos a la hora de establecer los horarios de las testificaciones.
@@ -116,15 +126,15 @@ b. Para Organismos de Certificación y OVV: ECA-MC-P11 Procedimiento de evaluaci
  Otra información que el Evaluador Líder indique.
 Nota 1: Para mayor guía sobre el llenado del ECA-MC-P13-F01 Plan de evaluación, puede consultarse el ECA-MC-P13-I02 Instructivo para documentar la agenda para la evaluación
 Nota 2: El número de días de participación de los integrantes del equipo de evaluación para las evaluaciones in situ, se podría definir según el cuadro 2:
-Cuadro 2: Número de días sugeridos para un proceso de evaluación Número de personas dentro del alcance del OEC | Número de Ensayos, Calibraciones, Inspecciones y Certificaciones del alcance a evaluar.
-1 a 10 | 11a 20 | 21 a 40 | 41 a 60 | 61 a 99 | 100 a 130
-1-5 | 2 | 3 | 3 | 3 | 4 | 5
-6-10 | 2 | 3 | 3 | 4 | 4 | 5
-11-15 | 3 | 3 | 4 | 4 | 5 | 5
-16-20 | 3 | 4-5 | 4 | 5 | 5 | 6
-21-30 | 4-5 | 4-5 | 5 | 5 | 6 | 6
-Más de 31 | Lo define el Equipo Evaluador.
-| | | | | | | | | | |
+| Cuadro 2: Número de días sugeridos para un proceso de evaluación Número de personas dentro del alcance del OEC | Número de Actividades del alcance a evaluar.
+| 1 a 10 | 11a 20 | 21 a 40 | 41 a 60 | 61 a 99 | 100 a 130
+1-5 | 2 | 3 | 3 | 3 | 4 | 5 |
+6-10 | 2 | 3 | 3 | 4 | 4 | 5 |
+11-15 | 3 | 3 | 4 | 4 | 5 | 5 |
+16-20 | 3 | 4-5 | 4 | 5 | 5 | 6 |
+21-30 | 4-5 | 4-5 | 5 | 5 | 6 | 6 |
+Más de 31 | Lo define el Equipo Evaluador. |
+| | | | | | | | | | | | |
 La tabla es solamente una guía, los días pueden variar
 6.5 El Evaluador Líder es el responsable de presentar a la Unidad de Logística original firmado y copia digital del plan de evaluación.
 7 EVALUACIÓN IN SITU
@@ -136,6 +146,8 @@ La tabla es solamente una guía, los días pueden variar
 1. Informe final de evaluación, de acuerdo al tipo de OEC.
 2. ECA-MC-P13-F09 Lista de asistencia.
 3. ECA-MC-P13-F10 Informe administrativo.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 13 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 7.6 La evaluación in situ inicia con una reunión de apertura. Esta etapa del proceso de evaluación la dirige el Evaluador Líder y tiene como objetivos:
 - Presentar a los miembros del Equipo Evaluador y dar una breve explicación de su rol durante la evaluación. Para el caso del experto técnico, se debe aclarar, que está autorizado para realizar la revisión de registros, expedientes, procedimientos u otros documentos, que así requiera para la verificación de la implementación de los requisitos a evaluar, siempre bajo la supervisión del evaluador asignado.
 - Presentar al representante de la Institución Reguladora y al testificador del ECA (cuando aplique).
@@ -154,8 +166,10 @@ La tabla es solamente una guía, los días pueden variar
 7.7 Revisión del sistema de calidad y testificación de las actividades, que comprende los siguientes aspectos:
 - Esta etapa del proceso de evaluación consiste en verificar por parte de los miembros del Equipo Evaluador, la implementación de las actividades indicadas en los documentos del sistema de gestión de la calidad, así como testificar el desempeño del personal involucrado en las actividades de evaluación de la conformidad, documentadas en el alcance de la solicitud de acreditación o alcance acreditado.
 - El Equipo Evaluador debe testificar los servicios de evaluación de la conformidad del OEC en las instalaciones de éste o del cliente, en las cuales se lleva a cabo una o más actividades claves dentro del alcance de acreditación, para recopilar evidencia objetiva de que el OEC es competente y cumple con los requisitos de acreditación.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 14 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 - En el transcurso de esta testificación el Equipo Evaluador debe informar de manera progresiva al evaluado sobre los hallazgos que determine, con el fin de ir aclarando los mismos.
-- La testificación de las actividades de evaluación de la conformidad, durante las evaluaciones, se realiza siguiendo las indicaciones del ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos y Organismos de Inspección. Para el caso de Organismos de Certificación se deben seguir las indicaciones establecidas en ECA-MC-P11 Procedimiento de evaluación in situ para OC y OVV.
+- La testificación de las actividades de evaluación de la conformidad, durante las evaluaciones, se realiza siguiendo las indicaciones del ECA-MC-P13-I01 Instructivo de muestreo para el caso de Laboratorios de Ensayo, Laboratorios de Calibración, Laboratorios Clínicos, Proveedores de ensayos de aptitud y Organismos de Inspección. Para el caso de Organismos de Certificación se deben seguir las indicaciones establecidas en ECA-MC-P11 Procedimiento de evaluación in situ para OC y OVV.
 - La testificación de las actividades, sean estas con clientes reales o no, se deben realizar tal como se establece en el respectivo procedimiento del OEC.
 Nota: Para procesos de evaluación de OC y OVV, se debe consultar el procedimiento de evaluación in situ para OC y OVV.
 - Para los OEC con sedes críticas, el ECA evalúa las instalaciones incluidas en el alcance de acreditación, así como las sedes temporales que se encuentren activas durante el ciclo de evaluación; de acuerdo a los documentos ECA-MC-P13-I01 Instructivo de muestreo y el ECA-MC-P11 procedimiento de evaluación in situ para OC y OVV.
@@ -164,18 +178,23 @@ Nota: Puede ser que el OEC no haya implementado acciones para las no conformidad
 - Para la recolección de evidencia se pueden utilizar las notas digitales de cada área o el formulario ECA-MC-P13-F08 Notas.
 - Durante esta etapa, el Equipo Evaluador puede llevar a cabo reuniones de avance para verificar el cumplimiento del plan de evaluación y realimentación del Equipo Evaluador. Asimismo, puede realizar reuniones de cierre previas cuando algún miembro del Equipo Evaluador finaliza su participación de acuerdo con el plan de evaluación.
 - El Equipo Evaluador no cuenta con la autorización para la ampliación del alcance de acreditación, durante la evaluación in situ, solamente puede aceptar una disminución del alcance siempre que sea documentada en el Informe Final respectivo y acordada con el OEC.
-- Si durante la evaluación in situ se genera alguna situación o si el Equipo Evaluador considera conveniente que algún tema deba ser comunicado al ECA para que se tome algún tipo de acción, el Evaluador Líder puede comunicarse con el ECA por el medio que considere necesario.
+- Si durante la evaluación in situ se genera alguna situación o si el Equipo Evaluador considera conveniente que algún tema deba ser comunicado al ECA para que se tome algún tipo de
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 15 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
+acción, el Evaluador Líder puede comunicarse con el ECA por el medio que considere necesario.
 - El Evaluador Líder con la participación activa de todo su Equipo Evaluador redacta las No conformidades (en caso de existir). La redacción de las No conformidades debe ser clara y concisa, debe incluir la evidencia objetiva y hacer referencia al requisito específico que se incumple y el documento de referencia.
 - Al finalizar esta etapa, durante el tiempo designado para la redacción del informe, el Equipo Evaluador debe completar el Informe final respectivo, que debe ser presentado y entregado al OEC durante la reunión de cierre.
 8 CLASIFICACIÓN DE HALLAZGOS
 - Previo a la reunión de cierre, el equipo evaluador debe clasificar los hallazgos detectados durante el proceso de evaluación en el sitio; de acuerdo a los siguientes criterios:
-Cuadro 3: Criterios para clasificación de Hallazgos no conformidades. Tipo de hallazgo | Criterio
+Cuadro 3: Criterios para clasificación de Hallazgos. Tipo de hallazgo | Criterio
 No Conformidad | Incumplimiento de los criterios de acreditación que corresponde a todos los documentos normativos contra los cuáles se evalúa la conformidad del sistema de gestión del OEC: Normas de acreditación u obligatorias dentro del esquema; procedimientos, políticas, requisitos o criterios del ECA; contratos y/o reglamentos de la autoridad reguladora; documentos internos o externos del sistema de gestión del OEC.
 Oportunidad de mejora | Cualquier situación que, a juicio del equipo evaluador puede dar lugar a una desviación en el futuro. Situaciones que, aun cumpliendo con los requisitos de la norma, tengan un evidente potencial de mejora.
 8.1 Reunión de cierre
 - Concluida la evaluación el Evaluador Líder es el responsable de realizar una reunión de cierre con el OEC en la cual presenta de forma escrita los aspectos destacables del OEC las no conformidades de la evaluación in situ, al OEC.
 - Se deben considerar los siguientes aspectos:
  Agradecer al personal del OEC por permitir el proceso de evaluación.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 16 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
  Recordar nuevamente que el proceso de evaluación es un muestreo del sistema de calidad del OEC.
  Todos los participantes y el Equipo Evaluador, deben firmar la Lista de asistencia ECA-MC-P13-F09.
  Explicar la metodología de presentación y clasificación de hallazgos. El objetivo de la reunión de cierre es brindar la oportunidad al OEC de preguntar sobre las no conformidades detectadas, sus fundamentos; facilitando así la identificación del problema y su alcance y de ser necesario que el OEC pueda completar información y aclarar dudas si existen.
@@ -188,6 +207,8 @@ Nota 1: Todos los miembros del Equipo Evaluador deben completar un formulario EC
 Nota 2: Si el ECA lo solicita, el integrante del equipo evaluador que participó con el experto técnico debe reunirse con un representante del OEC para completar el ECA-MC-P21-F28 Valoración de competencia a expertos y remitirla a la Gestoría de Calidad.
 9 PAUTAS GENERALES A CONSIDERAR POR EL EQUIPO EVALUADOR
 9.1 Durante la evaluación se pueden observar metodologías y prácticas diferentes a las que se está familiarizado, lo importante es evaluar si estas diferencias afectan negativamente los resultados obtenidos o si constituyen una desviación de los requisitos especificados. Por tanto cuando se detecte un problema es necesario que se establezcan líneas de investigación, siempre que sea posible, a fin de determinar el origen del mismo.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 17 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 9.2 Para la determinación de No Conformidades se debe identificar en primer lugar la cláusula del requisito específico que no se está cumpliendo, segundo dictaminar si se cuenta con la evidencia objetiva que sustente este incumplimiento y finalmente se debe redactar de manera clara y concisa el incumplimiento con información adicional de lo que se tomó en cuenta para dictaminar esto como una No Conformidad. En caso de que no se cuente con evidencia objetiva que sustente el hallazgo para calificarlo como No Conformidad, o si no se tiene identificado de manera objetiva el incumplimiento contra los requisitos específicos, este no se puede juzgar como No Conformidad.
 9.3 Durante las visitas de verificación de implementación de acciones correctivas, no está permitido por ningún motivo levantar nuevas No Conformidades que no se indicaron en el Informe final respectivo. En caso de que, durante esta visita de verificación, el evaluado presente la documentación para el cierre de una No Conformidad que dé cumplimiento al requisito que se indicó como No Conformidad durante la evaluación in situ, pero que a la vez con la acción propuesta incumpla algún otro requisito específico que no fue indicado en dicha evaluación, se debe declarar cerrada la No conformidad correspondiente a la evaluación in situ y especificar dentro de la evidencia de implementación de esta acción que se está incumpliendo el otro requisito y que se debe dar seguimiento al mismo en la próxima evaluación.
 9.4 El Evaluador Líder debe recordar al Experto Técnico que su función es recopilar información en relación con: el cumplimiento del método o procedimiento de verificación, la competencia técnica del personal del evaluado y las evidencias; y que deben presentarse de la forma más completa posible para que el Evaluador Líder tenga toda la información necesaria y pueda determinar en qué consiste el hallazgo.
@@ -196,6 +217,8 @@ Nota 2: Si el ECA lo solicita, el integrante del equipo evaluador que participó
 9.7 En caso de que Equipo Evaluador detecte incumplimientos que el Equipo Evaluador de la evaluación anterior no detectó, se puede resaltar al evaluado que la evaluación se realiza por muestreo y por tanto un equipo puede encontrar algo que el equipo anterior no detectó.
 9.8 Los miembros del Equipo Evaluador deben evitar discutir o si quiera emitir desacuerdos en frente del personal del OEC, dado que esto genera desconfianza del evaluado hacia el Equipo Evaluador y hacia la evaluación en general.
 9.9 El Equipo Evaluador debe evitar confrontaciones, argumentos hostiles u ofensivos por parte o hacia el personal del OEC. En caso que esto suceda se debe reportar de inmediato al Evaluador Líder para que éste determine las acciones a tomar.
+EJECUCIÓN DE LA EVALUACIÓN Código N: ECA-MC-P13 Páginas: 18 de 20 Fecha emisión: 24.02.2017 Versión: 11 Fecha de entrada en vigencia: 24.03.2017
+Este documento se distribuye como COPIA NO CONTROLADA, favor confirmar su vigencia en www.eca.or.cr antes de hacer uso de esta versión, por si ha sido modificada.
 9.10 La evaluación puede ser suspendida por el Equipo Evaluador cuando ocurran una de las siguientes situaciones:
 - Cuando no se brindan las facilidades para tener acceso a la documentación que se requiera como evidencia objetiva del cumplimiento con la norma contra la cual se evalúa, los documentos del sistema de gestión, Políticas del ECA, etc.
 - Cuando la actitud del OEC agreda la integridad y/o dignidad de cualquiera de los miembros del Equipo Evaluador.
@@ -220,9 +243,8 @@ Inicial | Para esta evaluación se evalúa el 100 % de las cláusulas de la Norm
 Seguimiento | El alcance, para esta visita de seguimiento, considera la evaluación de las cláusulas de la Norma INTE-ISO/IEC XXXX:200X definidas para el XXX seguimiento según el Anexo X del procedimiento ECA-MP-P10; todos los registros que evidencian la implementación de esta norma, de las políticas ECA, su compromiso de acreditación y los procedimientos del Sistema de Gestión de Calidad del OEC la testificación de los procedimientos que se detallan: se deben detallar y enlistar los ensayos, calibraciones, inspecciones, sectores con el código y nombre como aparecen en el alcance acreditado
 Reevaluación | Para esta evaluación se evalúa el 100 % de las cláusulas de la Norma INTE-ISO/IEC XXXX:200X; todos los registros que evidencian la implementación de las políticas y procedimientos del Sistema de Gestión de Calidad del OEC XXX, el compromiso de su acreditación y la testificación de los procedimientos; se deben detallar y enlistar los ensayos, calibraciones, inspecciones, sectores con el código y nombre como aparecen en el alcance acreditado
 Ampliación | El alcance, para la ampliación del OEC XXX, corresponde a la evaluación de los requisitos técnicos de la Norma INTE-ISO/IEC XXXX:200X y la testificación de los siguientes procedimientos: se deben detallar y enlistar los ensayos, calibraciones, inspecciones, sectores con el código y nombre como aparecen en el alcance acreditado
-Nota: Cuando la evaluación sea un seguimiento o reevaluación en conjunto con una ampliación se deben documentar los dos alcances de evaluación.
 11 TRANSITORIO
-Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento, excepto para el apartado 8, se brinda un transitorio de 3 meses para su entrada en vigencia.
+Se brinda un transitorio de 1 mes a partir de la publicación en el diario oficial la GACETA, para la aplicación de este procedimiento..
 12 IDENTIFICACIÓN DE CAMBIOS Motivo: | Modificación del procedimiento ECA-MC-P13
-Refiérase a la solicitud de elaboración o modificación del documento número 2016-154
-Observaciones: Se modifica el apartado 8, Criterios para clasificación de Hallazgos. Se documenta apartado 11 transitorio.
+Refiérase a la solicitud de elaboración o modificación del documento número 2017-002.
+Observaciones: Se modifica el cuadro 1 del apartado 3.3, para incluir los documentos aplicables a Proveedores de Ensayos de Aptitud. Se actualizan referencias a los tipos Organismos de evaluación de conformidad incluyendo Proveedores de Ensayos de Aptitud.
