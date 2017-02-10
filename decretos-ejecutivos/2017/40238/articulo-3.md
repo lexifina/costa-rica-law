@@ -1,0 +1,1 @@
+Artículo 3.- Los volúmenes de importación con arancel preferencial del producto en cuestión, podrán ser importados en el mismo período establecido en el Decreto Ejecutivo N° 39888-COMEX-MEIC-MAG del 26 de julio de 2016, con fecha límite al 30 de junio de 2017.
