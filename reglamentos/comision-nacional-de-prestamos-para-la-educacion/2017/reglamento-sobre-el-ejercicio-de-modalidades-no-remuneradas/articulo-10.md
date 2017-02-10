@@ -1,0 +1,1 @@
+Artículo 10.—No generación de responsabilidad laboral. La relación entre Conape y el estudiante, así como el subsidio que la Institución otorga a los estudiantes de prácticas supervisadas no derivará ni generará una relación de orden laboral.

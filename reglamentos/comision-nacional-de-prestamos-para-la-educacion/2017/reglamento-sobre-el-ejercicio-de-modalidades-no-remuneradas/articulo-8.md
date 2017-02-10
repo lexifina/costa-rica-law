@@ -1,0 +1,1 @@
+Artículo 8°—Asignación a dependencia institucional. La asignación de estudiantes a una unidad administrativa en concreto, obedecerá a criterios de necesidad, disponibilidad de espacio físico y a la estrategia institucional.

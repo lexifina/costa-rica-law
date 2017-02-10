@@ -1,0 +1,2 @@
+Artículo 16.—Personal interno. Los funcionarios de CONAPE podrán optar por una modalidad no remunerada, siempre que no se desarrolle en la misma unidad para la cual presta sus servicios, que no se presente incompatibilidad de horarios y que las jornadas laboral y de ejecución de la modalidad no remunerada no sumen más de cuatro horas diarias.
+Vigencia: Rige a partir de su publicación en el Diario Oficial La Gaceta.

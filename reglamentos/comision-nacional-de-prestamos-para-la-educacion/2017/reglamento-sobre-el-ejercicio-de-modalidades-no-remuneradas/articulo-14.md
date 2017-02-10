@@ -1,0 +1,1 @@
+Artículo 14.—Responsabilidad del estudiante ante terceros. El estudiante será responsable civil ante CONAPE y ante terceros por los daños o perjuicios que causare con sus acciones en el ejercicio de la práctica o trabajo comunal. Asimismo, sus actuaciones durante la ejecución de la modalidad no remunerada de servicios podrían generar responsabilidad penal.

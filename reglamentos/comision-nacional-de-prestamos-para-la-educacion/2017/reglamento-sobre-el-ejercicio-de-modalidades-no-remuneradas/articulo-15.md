@@ -1,0 +1,1 @@
+Artículo 15.—Propiedad intelectual. Los derechos patrimoniales sobre la propiedad intelectual de lo producido por el estudiante en el ejercicio de las modalidades no remuneradas de servicio, serán propiedad de CONAPE.

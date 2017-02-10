@@ -1,0 +1,1 @@
+Artículo 11.—Suscripción de documento de entendimiento. La Institución, suscribirá un documento, con cada estudiante que realice su práctica supervisada, dicho documento se denominará “Carta de Entendimiento para Estudiantes”, con el fin de determinar los aspectos sobre los que versará la práctica, sus alcances y el subsidio, que se le otorgará al estudiante.
