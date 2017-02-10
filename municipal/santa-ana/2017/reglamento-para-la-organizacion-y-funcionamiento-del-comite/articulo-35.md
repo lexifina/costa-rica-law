@@ -1,0 +1,1 @@
+ARTICULO 35. Para que un acuerdo quede definitivamente aprobado se requerirá la aprobación de la mitad más uno de los miembros presentes. La modificación de los acuerdos firmes requerirá de mayoría simple de los miembros del Comité Cantonal.

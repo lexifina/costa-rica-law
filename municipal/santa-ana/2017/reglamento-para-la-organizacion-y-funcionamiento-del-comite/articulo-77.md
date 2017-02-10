@@ -1,0 +1,1 @@
+ARTICULO 77. Los colores oficiales del deporte en el cantón de Santa Ana son el amarillo, rosado y verde pudiendo usar el rosado sin perjuicio del diseño artístico y estética con los dos colores anteriores, como un complemento, ocupando hasta un 20%.

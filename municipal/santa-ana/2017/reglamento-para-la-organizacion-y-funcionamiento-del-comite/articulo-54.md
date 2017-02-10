@@ -1,0 +1,1 @@
+ARTICULO 54. Para el desempeño de sus funciones los Comités Comunales podrán disponer de un presupuesto anual y una caja chica. El monto de la caja chica y los Comités Comunales que tendrán esta responsabilidad serán definidos por la Junta Directiva del Comité Cantonal de Deportes.

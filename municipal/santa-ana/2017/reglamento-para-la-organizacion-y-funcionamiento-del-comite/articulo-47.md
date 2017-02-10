@@ -1,0 +1,1 @@
+ARTICULO 47. En lo que resulte aplicable a la elección y las funciones por ejercer de los miembros de la Junta Directiva del Comité Comunal, serán idénticas a las funciones que tienen los miembros del Comité Cantonal, exceptuando todas aquellas que por ley les corresponden a los miembros de la Junta Directiva del Comité Cantonal.

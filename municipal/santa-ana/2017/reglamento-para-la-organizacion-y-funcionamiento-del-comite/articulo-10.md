@@ -1,0 +1,1 @@
+ARTÍCULO 10. La Junta Directiva del CCDR le corresponde la dirección y la organización, del Deporte y la Recreación en el Cantón de Santa Ana para lo cual contará con una secretaria, un administrador y la estructura que estime conveniente de acuerdo a este Reglamento.

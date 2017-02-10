@@ -1,0 +1,1 @@
+ARTICULO 29. El quórum para sesionar estará integrado por la mitad más uno del total de los miembros del Comité Cantonal. Los acuerdos se tomarán por mayoría simple de los votos presentes, salvo si este Reglamento señala un mayor número de votos. En caso de empate en una votación, la persona que ostenta la Presidencia tendrá voto calificado.

@@ -1,0 +1,3 @@
+CAPITULO II
+DE LA CONSTITUCIÓN Y NATURALEZA JURÍDICA
+ARTÍCULO 2. El Comité Cantonal de Deportes y Recreación (en adelante CCDR), es un órgano adscrito a la Municipalidad de Santa Ana. Es una dependencia municipal que se relaciona directamente al Concejo Municipal, el cual goza de personalidad jurídica instrumental para desarrollar planes, proyectos y programas deportivos y recreativos cantonales, así como para construir, administrar y mantener las instalaciones deportivas de su propiedad o las otorgadas en administración. Personería de la cual dará fe la Secretaría Municipal mediante la certificación respectiva.

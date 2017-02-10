@@ -1,0 +1,1 @@
+ARTICULO 7. El Concejo Municipal de Santa Ana deberá conocer y aprobar el Plan Estratégico Deportivo y Recreativo del cantón presentado por el Comité Cantonal con un horizonte de cinco años. Este Plan Estratégico deberá ser revisado y actualizado cada dos años. El Concejo Municipal, deberá conocer también los respectivos planes anuales operativos.

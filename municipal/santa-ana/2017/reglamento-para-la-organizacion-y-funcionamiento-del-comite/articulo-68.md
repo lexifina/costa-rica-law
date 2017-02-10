@@ -1,0 +1,2 @@
+ARTÍCULO 68. Deberá promoverse en las instalaciones deportivas del cantón, programas permanentes para la familia, la niñez y la juventud así como para las personas adultas, adultas mayores y personas con necesidades especiales de la comunidad santaneña.
+Las personas que administren las instalaciones deportivas deberán promover que en dichas instalaciones se desarrollen programas deportivos y recreativos para las mujeres.

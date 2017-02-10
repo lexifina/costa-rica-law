@@ -1,0 +1,3 @@
+ARTICULO 27. Los integrantes del Comité Cantonal se reunirán en sesión ordinaria, el día y la hora acordados en la sesión inaugural. Por motivos especiales y del criterio de la mayoría simple de estos, podrá variarse la fecha y horas de las sesiones.
+Extraordinariamente se reunirán cuando sean convocados por la Presidencia o a petición de tres miembros de la Junta Directiva. La convocatoria deberá hacerse con veinticuatro horas de anticipación por lo menos y señalándose el objeto de la sesión.
+En sesiones extraordinarias sólo se conocerá lo incluido en la convocatoria.

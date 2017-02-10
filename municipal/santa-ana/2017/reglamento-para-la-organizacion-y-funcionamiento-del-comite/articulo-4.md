@@ -1,0 +1,1 @@
+ARTICULO 4. El domicilio legal del Comité Cantonal será el cantón de Santa Ana, Distrito Centro, pudiendo variarse para casos excepcionales la sede en forma temporal previo acuerdo tomado por mayoría de dos terceras partes de los miembros de la Junta Directiva.
