@@ -1,0 +1,1 @@
+Artículo 2º—Los productos de Plástico que en este acto se prohíben, son tanto los que pudieran ser adquiridos por presupuesto ordinario, como por extraordinario o caja chica; así como los suministrados por los servicios de alimentación que eventualmente se contraten para actividades especiales.

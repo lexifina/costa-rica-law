@@ -1,0 +1,1 @@
+Artículo 3º—Los Directores de los diferentes órganos del MINAE deberán girar instrucciones a las áreas de adquisiciones para que modifiquen las bases de datos de los sistemas de compras estatales, a través de carteles o compras directas, de forma que se cumpla con esta Directriz, en las nuevas compras institucionales.
