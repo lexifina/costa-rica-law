@@ -1,1 +1,2 @@
-Artículo 49.—El Ingeniero Inspector presentará su informe y la Tarjeta por triplicado al Departamento donde serán sellados y registrados, para que se pronuncie con respecto al permiso de operación en un plazo no mayor de ocho días hábiles.
+Artículo 49. - La Persona Profesional Inspectora en Calderas presentará su informe y la Tarjeta por triplicado al Ministerio de Salud, donde serán sellados y registrados para que se pronuncie, en relación con el permiso de operación, dentro de un plazo no mayor a los ocho días hábiles a partir de su presentación.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)

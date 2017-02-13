@@ -15,3 +15,4 @@ Reglamento de Calderas
 | --- | --- | --- |
 | 1 | 1998-05-02 | la propia norma |
 | 2 | 2001-06-12 | Decreto Ejecutivo 29626 (2001-06-12) |
+| 3 | 2017-02-13 | Decreto Ejecutivo 40306 (2017-02-13) |

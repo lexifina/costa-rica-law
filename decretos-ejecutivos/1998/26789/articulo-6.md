@@ -1,4 +1,5 @@
-Artículo 6°—Para autorizar la Instalación, sin perjuicio de lo establecido en los artículos anteriores y en otros de este Reglamento, el Departamento tomará en cuenta la capacidad de la caldera y el lugar donde se va a instalar, y al efecto deberá el Usuario cumplir estrictamente las siguientes disposiciones:
+Artículo 6°-Para autorizar la Instalación, sin perjuicio de lo establecido en los artículos anteriores y en otros del este Reglamento, el Ministerio de Salud tomará en cuenta la capacidad de la caldera y el lugar donde se va a instalar y, al efecto, deberá el usuario cumplir estrictamente, con las siguientes disposiciones:
+(Así reformado el párrafo anterior por el artículo 1° del decreto ejecutivo N° 40306 del 13 de febrero del 2017)
 a) Si las calderas son de Categoría "A"
 a.1.) Deberán ser instaladas en un cuarto de calderas;
 a.2.) Las paredes del cuarto de calderas deberán quedar a una distancia mínima de tres metros de la vía pública, del predio vecino y de las habitaciones más cercanas;
