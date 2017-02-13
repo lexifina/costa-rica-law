@@ -14,3 +14,4 @@ Reglamento Autónomo de Servicio del Tribunal de Servicio Civil
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2007-11-12 | la propia norma |
+| 2 | 2017-02-13 | Decreto Ejecutivo 40215 (2017-02-13) |

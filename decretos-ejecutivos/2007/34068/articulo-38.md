@@ -1,3 +1,4 @@
 CAPÍTULO XI
 Registro y control de asistencia
-Artículo 38.—La asistencia de los servidores a sus labores se controlará mediante tarjetas individuales, siendo que cada funcionario debe registrarse en el reloj marcador al inicio y terminación de la jornada, o mediante cualquier otro sistema alternativo autorizado. Se excluyen de la obligación de registrar la asistencia mediante tarjeta a los servidores autorizados expresamente por el Tribunal. Sin embargo, estos quedan sujetos a las mismas obligaciones y responsabilidades disciplinarias que les asiste al resto del personal en cuanto a llegadas tardías o abandono de labores que, en forma injustificadas, se les detecte lo que podría acarrear la revocatoria por parte del Tribunal de disposición, previo informe levantado por la Actuaría.
+Artículo 38.— La asistencia de los servidores a sus labores se controlará mediante reloj marcador o cualquier otro sistema que resulte idóneo y autorizado para dichos efectos, siendo que cada funcionario debe registrar su asistencia al inicio y terminación de la jornada.
+(Así reformado por el artículo 1° del decreto ejecutivo N° 40215 del 13 de febrero del 2017)
