@@ -1,1 +1,0 @@
-Artículo 8º—Independencia y objetividad. La actividad de Auditoría Interna al determinar su planificación y sus modificaciones, al manejar sus recursos, así como al desempeñar su trabajo y al comunicar sus resultados, debe estar libre de injerencias del Concejo Municipal y de los demás órganos de la administración activa.
