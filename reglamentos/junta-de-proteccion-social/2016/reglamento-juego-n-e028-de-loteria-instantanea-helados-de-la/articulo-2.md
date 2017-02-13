@@ -1,0 +1,1 @@
+Artículo 2°—Mecánica de Juego: Raspar toda el área de juego, si un mismo símbolo aparece tres veces en la misma línea horizontal, gana el premio indicado para esa línea. El boleto se compone de un área de raspado que contiene tres posibilidades de acierto, por lo que el jugador puede ganar desde una vez hasta tres veces en este boleto.
