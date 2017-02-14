@@ -14,3 +14,4 @@ Reglamento de Organización y Funcionamiento de la Auditoría Interna de la Muni
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2008-10-16 | la propia norma |
+| 2 | 2017-02-14 | Reglamento municipal 64 (2017-02-14) |

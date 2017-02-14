@@ -1,1 +1,2 @@
-Artículo 34.—Servicios de autorización de libros. Consiste en la apertura y cierre de libros y registros relevantes para el control interno y en las funciones de fiscalización de su manejo y control.
+Artículo 34.—Servicios de autorización de libros. Consiste en autorizar mediante razón de apertura y cierre los libros de actas, de contabilidad que deben llevar los órganos sujetos a su competencia institucional y otros libros que, a criterio del auditor interno resulten necesarios para el fortalecimiento del sistema de control interno.
+(Así reformado mediante sesión N° 64 del 14 de febrero del 2017)

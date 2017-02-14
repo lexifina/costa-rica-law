@@ -1,0 +1,2 @@
+Artículo 43 Bis.—Solicitud de aclaración. En caso de determinar la Auditoría Interna que existe imprecisión de los hechos denunciados se otorgará al denunciante un plazo no menor a 10 días hábiles para que complete su información o de lo contrario se procederá a archivar o desestimar la gestión, sin perjuicio de que sea presentada con mayores elementos de prueba posteriormente, como una nueva gestión.
+(Así adicionado mediante sesión N° 64 del 14 de febrero del 2017)

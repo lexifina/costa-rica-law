@@ -1,0 +1,2 @@
+Artículo 37 Ter.—Registro de control de avance de implementación de recomendaciones. Corresponderá al titular subordinado correspondiente, llevar un registro para controlar el avance de la implementación de las recomendaciones y del cumplimiento del plazo establecido. Además, rendirá cuentas al Concejo, Alcalde Municipal o al funcionario que lo halla ordenado, del seguimiento de las recomendaciones.
+(Así adicionado mediante sesión N° 64 del 14 de febrero del 2017)

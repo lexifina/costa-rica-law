@@ -1,0 +1,3 @@
+Artículo 38 Bis.—Denuncia penal. Es un informe mediante el cual se pone en conocimiento del Ministerio Público cualquier hecho ilícito que fuera conocido como consecuencia de un proceso de auditoría, denunciable conforme a los artículos 278 y 281 del Código Procesal Penal.
+Se debe garantizar la confidencialidad de la Relación de Hechos o Denuncia Penal, así como de la información que respalde el contenido de éstas, en resguardo de los derechos de los presuntos responsables, de la identidad del o los denunciantes y de la buena marcha del procedimiento que se lleve a cabo.
+(Así adicionado mediante sesión N° 64 del 14 de febrero del 2017)

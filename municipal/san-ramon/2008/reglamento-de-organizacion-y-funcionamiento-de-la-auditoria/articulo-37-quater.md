@@ -1,0 +1,3 @@
+Artículo 37 Cto.—Responsabilidad por incumplimiento de recomendaciones. Cabrá responsabilidad administrativa contra los funcionarios que incumplan las recomendaciones de la Auditoría Interna, ordenadas por el Concejo Municipal, Alcalde Municipal o titular subordinado respectivo, sin perjuicio de las responsabilidades civiles y penales que les puedan ser imputadas.
+La Auditoría Interna de conformidad con el marco legal vigente, debe establecer las acciones que proceden en caso de que las recomendaciones y disposiciones emitidas sean incumplidas injustificadamente por el jerarca o titular subordinado.
+(Así adicionado mediante sesión N° 64 del 14 de febrero del 2017)
