@@ -1,0 +1,1 @@
+Artículo 2º—Mecánica de Juego: Raspar toda el área de juego, si un mismo símbolo aparece tres veces en cualquier línea vertical, horizontal o diagonal, gana el premio indicado. Se puede ganar una vez en este boleto.
