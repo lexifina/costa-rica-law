@@ -1,0 +1,1 @@
+Artículo 2º—Mecánica de Juego: Raspar toda el área de juego. Si una misma cantidad se repite 3 (tres) veces gana esta cantidad. Si encuentra 3 (tres) veces el símbolo del billete se gana el monto de ¢15.000.000”.
