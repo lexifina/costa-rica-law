@@ -1,5 +1,5 @@
-Artículo 14.—Desembolso.Para el financiamiento por construcción de vivienda, ampliaciones y remodelaciones se realizarán giros según lo indique el informe técnico del perito contra avance de obra. Los desembolsos deberán solicitarse a la Unidad de Crédito y Cobro y serán verificados y autorizados por el ingeniero a cargo de la obra, designado por la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
-(Así reformado el párrafo anterior en sesión N° 058 del 26 de mayo de 2015)
+Artículo 14.—Desembolso. Para el financiamiento por construcción de vivienda, ampliaciones y remodelaciones se realizarán giros según lo indique el informe técnico del perito contra avance de obra. Los desembolsos deberán solicitarse al Departamento de Crédito y Cobro y serán verificados y autorizados por el ingeniero a cargo de la obra, designado por la Junta de Pensiones y Jubilaciones del Magisterio Nacional.
+(Así reformado el párrafo anterior en sesión ordinaria N° 016-2017 del 14 de febrero del 2017)
 Para los financiamientos por compra de lote, casa o cancelación de hipoteca a favor de terceros, se realizará el giro neto del préstamo a la entidad o persona física dueña del bien, por transferencia o por cheque, al momento de la firma de la escritura.
 Todo desembolso parcial generará intereses que correrán a partir de la fecha de giro y hasta la fecha estimada de finalización del crédito y se cobrarán anticipadamente al momento de la firma de la escritura o cuando se realice el giro parcial.
 (Así reformado el párrafo anterior en sesión N° 058 del 26 de mayo de 2015)

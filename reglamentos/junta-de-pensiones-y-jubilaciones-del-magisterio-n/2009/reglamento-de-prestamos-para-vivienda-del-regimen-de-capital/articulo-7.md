@@ -7,7 +7,8 @@ c) El solicitante debe tener un ingreso líquido estimado, tal que al restarle e
 (Así reformado el inciso anterior en sesión ordinaria N° 058 del 26 de mayo de 2015)
 d) Presentar el Reporte de Calificación Crediticia de la Superintendencia General de Entidades Financieras, emitido por alguna de las entidades supervisadas, con el fin de evaluar el comportamiento de pago histórico del solicitante. Previo análisis de la Unidad de Crédito, no se aceptarán aquellos deudores, codeudores y fiadores que tengan una calificación crediticia en el comportamiento de pago histórico (CPH) del documento de calificación de riesgo de la SUGEF, igual a 3.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 064-2016 del 8 de junio del 2016)
-e) Presentar fotocopia de la cédula de identidad vigente (por ambos lados).
+e) Presentar la cédula de identidad vigente y en buen estado.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 016-2017 del 14 de febrero del 2017)
 f) Para los casos que lo requieran, se debe aportar la cuenta cliente mediante documento idóneo de la institución financiera correspondiente donde se le podría realizar el depósito del monto otorgado. No aplica para jubilados (as) y pensionados (as).
 g) Presentar certificación literal del Registro Nacional con no más de un mes de emitida, de la propiedad que se va a entregar como garantía, la cual debe estar libre de gravámenes y anotaciones que imposibiliten su inscripción como hipoteca.
 h) Certificación original de la municipalidad respectiva, donde se indique estar al día en el pago de Impuestos Municipales e impuesto de bienes inmuebles, mínimo al trimestre inmediato anterior.
@@ -27,9 +28,10 @@ o) En el caso de que el solicitante o el codeudor sea residente, sólo se acepta
 p) Las cuotas del crédito, incluyendo amortización, pago de intereses y póliza o cargos, según corresponda, serán deducidas por el patrono o institución de los ingresos del deudor, ya sea salario ordinario, pensión o jubilación y reportadas a la Junta de Pensiones en los primeros diez días hábiles del mes, junto con el pago de las cuotas obrero patronales, en caso de excepción, se recibirá el pago por ventanilla. Para el caso de los pensionados, se deducirá del monto de su giro de pensión o jubilación mensual. Es responsabilidad del deudor, estar al día con el pago de las cuotas correspondientes según los compromisos del crédito otorgado.
 (Así reformado el inciso anterior mediante sesión ordinaria N° 064-2016 del 8 de junio del 2016)
 q) El solicitante podrá aportar documentos probatorios, que demuestren que cuenta con los recursos necesarios para cubrir cualquier diferencia que exista entre el monto desembolsado y el requerido para cumplir con el plan de inversión en caso de que no requiera aportar fiador, como por ejemplo: comprobantes de saldos en cuentas de ahorro o cuentas corrientes, copia de certificados de depósitos a plazo, comprobante de fondos de inversión financiera.
-r) Con el propósito de incrementar el ingreso del deudor, se aceptarán como codeudores, el cónyuge, los padres, hijos o hermanos del deudor, que sean cotizantes al Régimen del Magisterio Nacional, en cuyo caso, la cuota del crédito podrá dividirse entre las partes.
-(Así reformado el inciso anterior mediante sesión ordinaria N° 114-2014 del 15 de octubre del 2014)
+r) Con el propósito de incrementar el ingreso del deudor, se aceptarán como codeudores, el cónyuge o conviviente de hecho (legalmente comprobado), los padres o hijos o hermanos del deudor, que sean cotizantes al Régimen del Magisterio Nacional, en cuyo caso, la cuota del crédito podrá dividirse entre las partes.
+(Así reformado el inciso anterior mediante sesión ordinaria N° 016-2017 del 14 de febrero del 2017)
 Los codeudores deben aportar lo dispuesto en los incisos b, d y e de este artículo, así como cualquier documento adicional, requerido por la Unidad de Crédito, a fin de resolver la solicitud.
 Los codeudores deben contar con nombramiento en propiedad, o interino, con al menos 1 año de laborar para la entidad que certifica y deben estar libres de embargos.
-Las solicitudes de crédito deben ser presentadas para su revisión y análisis, en la Unidad de Crédito y Cobro de la Junta o en sus oficinas sucursales.
+Las solicitudes de crédito deben ser presentadas para su revisión y análisis, en el Departamento de Crédito y Cobro de la Junta o en sus oficinas Sucursales.
+(Así reformado el párrafo anterior mediante sesión ordinaria N° 016-2017 del 14 de febrero del 2017)
 (Así reformado mediante sesión ordinaria N° 070-2014 del 19 de junio del 2014)
