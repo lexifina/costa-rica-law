@@ -1,4 +1,6 @@
+(Anulada)
 N° 9205
+(Anulada mediante resolución de la Sala Constitucional N° 2375 del 15 de febrero de 2017)
 LA ASAMBLEA LEGISLATIVA DE LA REPÚBLICA DE COSTA RICA
 DECRETA:
 TITULACIÓN EN INMUEBLE PROPIEDAD DE LA JUNTA DE
