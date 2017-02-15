@@ -22,6 +22,7 @@
 [imagen]
 [imagen]
 [imagen]
+(Nota de Sinalevi: De conformidad con el Por Tanto del Reglamento de aprobación y recepción de sistemas de saneamiento por parte del Instituto Costarricense de Acueductos y Alcantarillados, aprobado en sesión N° 009 del 15 de febrero de 2017, se acordó modificar parcialmente el Acuerdo No. 2014-519 denominado: “Actualización del Catálogo Nacional de Trámites, Ley 8220 y 8990,” publicado en el Alcance a La Gaceta N° 219 del 13 de noviembre del 2014, puntualmente en lo que se refiere al TEP-2 (Trámite para aprobación de plantas de tratamiento para aguas residuales), así como los trámites TRPTAR-1 (Trámite para recepción de plantas de tratamiento de aguas residuales de urbanizaciones y condominios para ser administradas, operadas y controladas por el AyA, que se encuentren administradas por otras instituciones, asociaciones o particulares), y TREBAR-2 (Trámite para recepción de estaciones de bombeo de aguas residuales de urbanizaciones y condominios para ser administradas, operadas y controladas por el AyA, que se encuentren administradas por otras instituciones, asociaciones o particulares); para que se ajuste a lo dispuesto en el Reglamento de aprobación y recepción de sistemas de saneamiento por parte del Instituto Costarricense de Acueductos y Alcantarillados, aprobado en sesión N° 009 del 15 de febrero de 2017.)
 [imagen]
 [imagen]
 [imagen]
@@ -32,6 +33,7 @@
 [imagen]
 [imagen]
 [imagen]
+(Nota de Sinalevi: De conformidad con el Por Tanto del Reglamento de aprobación y recepción de sistemas de saneamiento por parte del Instituto Costarricense de Acueductos y Alcantarillados, aprobado en sesión N° 009 del 15 de febrero de 2017, se acordó modificar parcialmente el Acuerdo No. 2014-519 denominado: “Actualización del Catálogo Nacional de Trámites, Ley 8220 y 8990,” publicado en el Alcance a La Gaceta N° 219 del 13 de noviembre del 2014, puntualmente en lo que se refiere al TEP-2 (Trámite para aprobación de plantas de tratamiento para aguas residuales), así como los trámites TRPTAR-1 (Trámite para recepción de plantas de tratamiento de aguas residuales de urbanizaciones y condominios para ser administradas, operadas y controladas por el AyA, que se encuentren administradas por otras instituciones, asociaciones o particulares), y TREBAR-2 (Trámite para recepción de estaciones de bombeo de aguas residuales de urbanizaciones y condominios para ser administradas, operadas y controladas por el AyA, que se encuentren administradas por otras instituciones, asociaciones o particulares); para que se ajuste a lo dispuesto en el Reglamento de aprobación y recepción de sistemas de saneamiento por parte del Instituto Costarricense de Acueductos y Alcantarillados, aprobado en sesión N° 009 del 15 de febrero de 2017.)
 [imagen]
 [imagen]
 [imagen]
@@ -46,6 +48,7 @@
 [imagen] .
 [imagen]
 [imagen]
+(Nota de Sinalevi: De conformidad con el Por Tanto del Reglamento de aprobación y recepción de sistemas de saneamiento por parte del Instituto Costarricense de Acueductos y Alcantarillados, aprobado en sesión N° 009 del 15 de febrero de 2017, se acordó modificar parcialmente el Acuerdo No. 2014-519 denominado: “Actualización del Catálogo Nacional de Trámites, Ley 8220 y 8990,” publicado en el Alcance a La Gaceta N° 219 del 13 de noviembre del 2014, puntualmente en lo que se refiere al TEP-2 (Trámite para aprobación de plantas de tratamiento para aguas residuales), así como los trámites TRPTAR-1 (Trámite para recepción de plantas de tratamiento de aguas residuales de urbanizaciones y condominios para ser administradas, operadas y controladas por el AyA, que se encuentren administradas por otras instituciones, asociaciones o particulares), y TREBAR-2 (Trámite para recepción de estaciones de bombeo de aguas residuales de urbanizaciones y condominios para ser administradas, operadas y controladas por el AyA, que se encuentren administradas por otras instituciones, asociaciones o particulares); para que se ajuste a lo dispuesto en el Reglamento de aprobación y recepción de sistemas de saneamiento por parte del Instituto Costarricense de Acueductos y Alcantarillados, aprobado en sesión N° 009 del 15 de febrero de 2017.)
 [imagen]
 [imagen]
 [imagen]

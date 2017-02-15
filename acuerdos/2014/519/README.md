@@ -14,3 +14,4 @@ Actualización del catálogo nacional de trámites, Ley 8220 y 8990
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2014-11-13 | la propia norma |
+| 2 | 2017-02-15 | Reglamento 9 (2017-02-15) |
