@@ -14,3 +14,4 @@ Reglamento para el Funcionamiento del Fondo de Caja Chica
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-08-24 | la propia norma |
+| 2 | 2017-02-15 | Reglamento 0 (2017-02-15) |

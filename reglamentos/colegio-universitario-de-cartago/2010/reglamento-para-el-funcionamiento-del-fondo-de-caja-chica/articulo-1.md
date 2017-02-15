@@ -1,4 +1,6 @@
+(Derogado)
 COLEGIO UNIVERSITARIO DE CARTAGO
+(Esta norma fue derogada por el artículo 25 del Reglamento para la operación del Fondo de Caja Chica, y publicado en La Gaceta N° 33 del 15 de febrero de 2017)
 REGLAMENTO PARA EL FUNCIONAMIENTO
 DEL FONDO DE CAJA CHICA
 CAPÍTULO I
