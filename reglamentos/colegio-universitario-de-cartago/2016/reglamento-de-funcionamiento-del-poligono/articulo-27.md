@@ -1,0 +1,1 @@
+Artículo 27.—Se prohíbe el almacenamiento permanente de armas de fuego ajenas a la institución. En el caso de contratos por venta de servicios la custodia del arma se dará hasta el final de la práctica, y a la hora de cerrar las instalaciones del polígono, el administrador velará que no queden armas que no pertenezcan a la institución.

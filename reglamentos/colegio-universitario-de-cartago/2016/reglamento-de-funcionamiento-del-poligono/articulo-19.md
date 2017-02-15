@@ -1,0 +1,1 @@
+Artículo 19.—Es estrictamente prohibido todo tipo de manipulación de armas cuando haya personas delante de los cubículos de disparo (campo de disparo). Cuando esto ocurra, es obligación del usuario colocar el arma de fuego en las mesas que se encuentran en los cubículos de disparo y salir de los mismos.

@@ -1,0 +1,1 @@
+Artículo 22.—El usuario solo podrá disparar a la silueta o blanco que se le haya asignado y nadie podrá acompañarlo con la sola excepción de la persona que esté dando la instrucción. El usuario tiene prohibido trasladarse, con o sin armas a otro cubículo.

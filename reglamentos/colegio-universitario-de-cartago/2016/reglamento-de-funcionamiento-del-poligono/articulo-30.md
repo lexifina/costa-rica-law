@@ -1,0 +1,1 @@
+Artículo 30.—Es obligación del usuario conservar el orden y el aseo dentro del aula y deberá dejar su pupitre y demás equipo utilizado en su lugar. Está prohibido el ingreso y consumo de cualquier tipo de alimento incluyendo bebidas.

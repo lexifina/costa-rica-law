@@ -1,0 +1,1 @@
+Artículo 29.—El aula virtual es el espacio destinado para la enseñanza teórica y virtual en el tema de las armas de fuego. El equipo tecnológico solo podrá ser manipulado por el personal del polígono y por los usuarios previamente autorizados.

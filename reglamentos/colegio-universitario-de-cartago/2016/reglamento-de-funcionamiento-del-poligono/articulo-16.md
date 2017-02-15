@@ -1,0 +1,1 @@
+Artículo 16.—El administrador del polígono o sus asistentes, ante cualquier indicio de que un usuario ha ingerido bebidas alcohólicas, o utilizado drogas enervantes o Ilegales podrá denegarle el uso de las instalaciones y solicitarle su salida Inmediata.

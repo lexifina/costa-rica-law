@@ -1,0 +1,1 @@
+Artículo 14.—El administrador del polígono y sus asistentes velarán para que toda arma de fuego que salga de las instalaciones, se encuentre en su estuche y con el candado de seguridad respectivo. Si el arma no tuviera estuche ni candado, deberá salir desarmada. Los cargadores deberán estar vacíos y la munición por aparte de éstos y en su respectiva caja.

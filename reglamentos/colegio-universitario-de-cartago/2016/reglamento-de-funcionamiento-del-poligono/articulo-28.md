@@ -1,0 +1,1 @@
+Artículo 28.—Está prohibida la entrada a la armería: celulares, cámaras fotográficas, de video y hacer tomas de ningún tipo. Tampoco está permitido el ingreso y consumo de cualquier tipo de alimento incluyendo bebidas.

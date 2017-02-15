@@ -1,0 +1,1 @@
+Artículo 23.—Cualquier Inconveniente que tenga el usuario durante la práctica de disparo deberá hacerlo saber al asistente encendiendo la luz color anaranjado y tocando el timbre que se encuentran en cada uno de los cubículos de disparo.
