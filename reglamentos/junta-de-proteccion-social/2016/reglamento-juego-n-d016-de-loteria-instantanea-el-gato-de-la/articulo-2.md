@@ -1,0 +1,1 @@
+Artículo 2º—Mecánica de Juego: Raspar toda el área de juego, si alguno de “SUS NÚMEROS” coincide con alguno de los “NÚMEROS DE LA SUERTE”, gana el premio correspondiente a ese número. El boleto se compone de un área de raspado que contiene diez posibilidades de acierto, por lo que el jugador puede ganar desde una vez hasta diez veces en este boleto.
