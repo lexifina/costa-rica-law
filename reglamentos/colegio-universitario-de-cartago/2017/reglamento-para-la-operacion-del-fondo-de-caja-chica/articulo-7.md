@@ -1,0 +1,1 @@
+Artículo 7º—Justificaciones de comprobantes. Toda compra o pago que se realice por medio del fondo fijo de caja chica deberá contar con justificación de la compra donde se indique para qué actividad se utilizará el bien o servicio, y la subpartida correspondiente. Además se requiere que la solicitud sea debidamente incluida en AVATAR.FI.

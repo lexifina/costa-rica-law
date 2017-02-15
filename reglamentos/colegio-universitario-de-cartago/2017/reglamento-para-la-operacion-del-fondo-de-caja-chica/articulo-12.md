@@ -1,0 +1,5 @@
+Artículo 12.—Requisitos para trámites de adelantos de fondos fijo de caja chica. En atención a las erogaciones autorizadas por medio del fondo fijo de caja chica, para el pago de bienes y servicios, los funcionarios solicitantes de los adelantos, deberán observar los siguientes requisitos, sin perjuicio de otros fijados por la normativa vigente sobre la materia:
+a) Realizar en tiempo y forma la solicitud de vale de caja chica en el sistema AVATAR. FI.
+b) Tramitar ante el Departamento de Financiero el documento de exoneración de impuesto de ventas, de previo a realizar la compra por caja chica.
+c) En el caso de los adelantos de viáticos para gastos de viaje y transporte al interior del país, se deberá adjuntar al vale de caja chica, previo a la realización de la gira, la solicitud de adelanto de viáticos debidamente justificada, autorizada por la jefatura inmediata, donde se indique claramente la fecha de inicio y fin de la gira, los lugares a visitar y el motivo del viaje.
+d) Entregar al responsable del fondo fijo de caja chica del Departamento de Financiero, el vale debidamente firmado, aceptando la recepción a satisfacción del monto recibido.

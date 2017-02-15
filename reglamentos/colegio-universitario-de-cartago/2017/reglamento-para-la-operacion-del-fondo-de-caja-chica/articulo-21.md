@@ -1,0 +1,1 @@
+Artículo 21.—Auditoría del fondo fijo de caja chica. La Auditoría Interna deberá, incluir en el programa de trabajo al menos una auditoría anual al fondo fijo de caja chica autorizado, con el fin de evaluar la suficiencia y la efectividad de estos controles.
