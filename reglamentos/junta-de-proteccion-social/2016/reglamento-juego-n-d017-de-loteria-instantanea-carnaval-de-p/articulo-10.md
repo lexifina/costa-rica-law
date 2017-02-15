@@ -1,0 +1,1 @@
+Artículo 10.—Se aprueba el presente reglamento según acuerdo de junta directiva JD-1269 correspondiente al artículo V), inciso 12) de la sesión ordinaria Nº 48-2016 celebrada el 19 de diciembre del 2016.
