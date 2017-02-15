@@ -1,0 +1,1 @@
+Artículo 2º—Mecánica de Juego: Raspar toda el área de juego, si encuentra 3 símbolos iguales en la misma línea horizontal, gana el premio indicado para esa línea. Si encuentra 2 símbolos iguales y un símbolo TRIPLE (3X) en la misma línea horizontal, gana el TRIPLE del premio indicado para esa línea. El jugador puede ganar una vez en este boleto.
