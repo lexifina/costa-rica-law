@@ -1,0 +1,4 @@
+CAPÍTULO III
+Del monto a caucionar
+Artículo 15.—Cálculo y actualización de los montos de la caución. Para los efectos del presente artículo, se entenderá por salario base el de oficinista 1, el fijado en el presupuesto ordinario de la República, vigente en el momento de la infracción, el cual se actualizará anualmente y cuyo monto será publicado por la Corte Suprema de Justicia en el Boletín Judicial cada inicio de año.
+Dicha actualización será comunicada por documento escrito o medio electrónico por parte del Departamento Financiero, tanto a los funcionarios caucionantes como al Departamento de Gestión Institucional de Recursos Humanos, en el momento en que se deba proceder a la renovación de la caución correspondiente. Los funcionarios que deban ajustarse al nuevo monto de cobertura de la garantía, contarán para ello con un plazo máximo de veinte días hábiles contados a partir de la notificación de dicha comunicación.

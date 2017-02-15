@@ -1,0 +1,2 @@
+Artículo 5º—Momento para rendir la caución. La caución deberá de ser rendida, cuando así corresponda, una vez conocida por la persona la designación en el puesto y al asumir las funciones de recaudación, custodia, administración o disposición de los fondos públicos encargados.
+Corresponderá al Departamento de Gestión Institucional de Recursos Humanos, velar porque la persona obligada haya rendido la garantía correspondiente al momento de asumir el cargo, sin perjuicio de las responsabilidades que corresponden al jerarca y los titulares subordinados.

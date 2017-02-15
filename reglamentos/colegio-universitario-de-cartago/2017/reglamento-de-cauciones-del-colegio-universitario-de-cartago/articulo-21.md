@@ -1,0 +1,1 @@
+Artículo 21.—Modificación de parámetros. Cada tres años a partir de la vigencia de este Reglamento, el Departamento Financiero, deberá coordinar un estudio de actualización o ratificación del procedimiento de cálculo del monto de la garantía que deben rendir los caucionantes y proponer los ajustes que deban ser aplicados.

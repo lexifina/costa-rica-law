@@ -1,0 +1,3 @@
+CAPÍTULO V
+Responsabilidades y sanciones
+Artículo 25.—Responsabilidades. La Administración debe tomar medidas adicionales para el resarcimiento de daños y perjuicios ocasionados por el funcionario contra el patrimonio del Colegio Universitario de Cartago; cuando la responsabilidad del funcionario haya sido probada, sin perjuicio de la responsabilidad administrativa, civil y penal que corresponda. Es potestad del Decano del Colegio Universitario de Cartago redefinir dichos montos, tomando en consideración, entre otros elementos, el salario percibido, monto administrado y responsabilidad de los puestos sujetos a caución.

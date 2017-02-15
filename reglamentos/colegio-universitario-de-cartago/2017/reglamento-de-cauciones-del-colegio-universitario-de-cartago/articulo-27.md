@@ -1,0 +1,2 @@
+Artículo 27.—Sanción por la no presentación de la caución. En caso de que el funcionario obligado a rendir la garantía no lo hiciere, o lo hiciere de forma insuficiente, o no actualice la garantía, incurrirá en causal de despido sin responsabilidad patronal, previo el debido proceso establecido en el Reglamento Autónomo de Trabajo.
+En el caso de los miembros del Consejo Directivo, la no presentación de la caución, será razón para la pérdida de su credencial.

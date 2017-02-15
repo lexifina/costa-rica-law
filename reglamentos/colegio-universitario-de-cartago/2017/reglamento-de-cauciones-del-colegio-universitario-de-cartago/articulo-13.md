@@ -1,0 +1,1 @@
+Artículo 13.—Simultaneidad de funciones sujetas a caución. El funcionario que obligado a caucionar, se le asigne una función que genere ese mismo deber caucionará una sola vez al año y por el monto de mayor valor.

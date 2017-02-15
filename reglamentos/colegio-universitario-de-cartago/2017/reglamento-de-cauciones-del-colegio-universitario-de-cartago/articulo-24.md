@@ -1,0 +1,1 @@
+Artículo 24.—Vigencia de la caución. En cuanto a la vigencia de la garantía, esta deberá ser conforme a lo establecido en el artículo 120 de la Ley de Administración Financiera y Presupuestos Públicos y otras relacionadas.
