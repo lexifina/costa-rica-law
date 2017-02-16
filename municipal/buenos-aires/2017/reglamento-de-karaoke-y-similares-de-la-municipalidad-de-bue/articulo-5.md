@@ -1,0 +1,1 @@
+Artículo 5°—La actividad con karaoke, deberá respetar en todo momento la normativa que establece la Ley General de Salud, referente a los niveles autorizados de sonido, situación que deberá demostrarse con documento emitido por el Ministerio de Salud.

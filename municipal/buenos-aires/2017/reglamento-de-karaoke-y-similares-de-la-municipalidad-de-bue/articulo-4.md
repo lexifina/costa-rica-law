@@ -1,0 +1,1 @@
+Artículo 4.°—En ningún caso se autorizarán actividades con karaoke más allá de las veintitrés horas y ésta constituirá la hora límite en que deberá cesar completamente la utilización del equipo de karaoke.
