@@ -1,0 +1,2 @@
+Artículo 4.- Solicitud del certificado de explotación. Las unidades productivas que soliciten el certificado de explotación ante el CETAC y deseen obtener el beneficio de suspensión, deberán adjuntar una copia de la certificación sobre su condición de PYME o emprendedora emitida por el MEIC de conformidad con el artículo 22 del Decreto Ejecutivo N° 39295-MEIC.
+Para mantener el beneficio de suspensión hasta por el segundo y tercer año, deberán acreditar ante el CETAC la renovación anual de la condición de PYME o emprendedora ante el MEIC.

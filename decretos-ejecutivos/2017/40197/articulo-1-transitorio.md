@@ -1,0 +1,1 @@
+TRANSITORIO I.- La Dirección General de Aviación Civil en un plazo de seis meses a partir de la publicación de presente decreto, deberá confeccionar el Registro Digital de RPAS señalado en el artículo primero de este decreto.

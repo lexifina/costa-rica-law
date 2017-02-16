@@ -1,0 +1,2 @@
+TRANSITORIO II.- El trámite por certificación de empresas por Sistema de Aeronaves Pilotadas a Distancia (RPAS) y por licencia aeronáutica para “Piloto RPAS” incluidas mediante Decreto Ejecutivo N° 39430-MOPT entrará a regir seis meses después de la publicación del presente Decreto. Las demás disposiciones del Decreto Ejecutivo N° 39430-MOPT mantienen su vigencia.
+Dado en la Presidencia de la República.- San José a los trece días del mes de febrero del dos mil diecisiete.
