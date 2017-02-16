@@ -1,0 +1,4 @@
+Artículo 5°. Requisitos para acceder a las donaciones. Para ser beneficiario de donaciones al amparo de este reglamento, los interesados deben cumplir con los siguientes requisitos, verificados por la Junta Administrativa o Junta de Educación respectiva:
+a) El solicitante deberá ser padre de familia o tutor del beneficiario, o el estudiante mayor de edad.
+b) La Junta Administrativa o Junta de Educación correspondiente deberá verificar que los solicitantes se encuentran inscritos en la Lista de Matrícula del centro educativo respectivo.
+c) Con el fin de corroborar la condición socioeconómica de los solicitantes, las Juntas de Educación deberán recurrir a los beneficiarios ya calificados por AVANCEMOS, FONABE o el Programa de Transporte Estudiantil. Aquellas personas que no puedan demostrar su condición mediante los programas anteriores, podrán hacerlo por medio de la Ficha de Información Social (FIS) levantada al efecto por el Instituto Mixto de Ayuda Social.

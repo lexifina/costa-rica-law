@@ -1,0 +1,2 @@
+Artículo 9º. De la donación de recursos por parte de la CNE. El Presidente de la CNE con base en el artículo 48º de la Ley Nacional de Emergencias y Prevención de Riesgos, luego de la verificación del Plan de Acción Específico remitido por la Junta Competente, ordenará la donación de los recursos mediante el traslado a la cuenta cliente indicada en el Plan.
+La Junta competente deberá presupuestar dichos recursos antes de su uso, de conformidad con los procedimientos establecidos.

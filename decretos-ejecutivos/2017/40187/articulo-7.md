@@ -1,0 +1,1 @@
+Artículo 7º. De la verificación de los datos. La Junta competente deberá verificar los requisitos y datos aportados por el solicitante con el fin de corroborar la pertinencia de entregar la ayuda económica únicamente a los sujetos reportados debidamente de acuerdo a los requisitos del artículo 5.
