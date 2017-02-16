@@ -14,3 +14,4 @@ Reglamento de donaciones para estudiantes de Centros Educativos Públicos afecta
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2017-02-16 | la propia norma |
+| 2 | 2017-02-16 | Decreto Ejecutivo 40201 (2017-02-16) |
