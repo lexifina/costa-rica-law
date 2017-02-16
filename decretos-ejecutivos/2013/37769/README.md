@@ -14,3 +14,4 @@ Reglamento para la Presentación de Índices
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2013-09-24 | la propia norma |
+| 2 | 2017-02-16 | Decreto Ejecutivo 40257 (2017-02-16) |
