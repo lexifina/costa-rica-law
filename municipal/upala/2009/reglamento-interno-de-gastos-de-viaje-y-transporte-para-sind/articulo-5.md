@@ -1,2 +1,3 @@
 Artículo 5º—Punto de lejanía. De acuerdo al segundo párrafo del artículo 30 del código municipal, que establece que los gastos correspondientes a viáticos y transporte para regidores y síndicos propietarios y suplentes, cuando residan lejos de la sede municipal, se pagarán con base en la tabla que fija la Contraloría General de la República.
 Por lo tanto este Concejo Municipal define como punto de lejanía cinco kilómetros de la sede municipal.
+(Nota de Sinalevi: Mediante acta N° 10 -2017 de sesión ordinaria del 17 de febrero de 2017, el Concejo Municipal de Upala indicó que la distancia (lejanía) se aplique solo para transportes y no para el pago de viáticos (alimentación).

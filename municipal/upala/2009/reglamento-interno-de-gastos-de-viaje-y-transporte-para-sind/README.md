@@ -14,3 +14,4 @@ Reglamento interno de gastos de viaje y transporte para síndicos y regidores pr
 | Versión | En vigor desde | Hecha por |
 | --- | --- | --- |
 | 1 | 2010-12-13 | la propia norma |
+| 2 | 2017-02-17 | Reglamento municipal 0 (2017-02-17) |
