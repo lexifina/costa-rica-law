@@ -1,0 +1,1 @@
+Artículo 3º—Utilización de formularios y testimonios electrónicos. El uso del formulario electrónico es opcional, no obstante en todos los casos en el que los notarios opten por su utilización, deberán presentar adjunto el testimonio electrónico.

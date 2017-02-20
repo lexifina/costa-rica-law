@@ -1,0 +1,15 @@
+DIRECCIÓN NACIONAL DE NOTARIADO
+REGLAMENTO PARA EL USO DE FORMULARIOS
+Y EXPEDICIÓN DE DOCUMENTOS ELECTRÓNICOS
+EN SEDE NOTARIAL PARA LA INSCRIPCIÓN
+EN EL REGISTRO NACIONAL
+Que en Sesión Ordinaria del Consejo Superior Notarial celebrada el 3 de noviembre del 2016, en el acta N° 028-2016 se tomó el acuerdo Nº 2016-028-015, que aprueba el Reglamento para el uso de formularios y expedición de documentos electrónicos en sede notarial para la inscripción en el Registro Nacional en la siguiente forma:
+Considerando:
+I.—Que el Consejo Superior Notarial es el órgano rector de la actividad notarial en Costa Rica y tiene facultades para emitir la reglamentación que regule dicha actividad notarial.
+II.—Que reviste carácter de interés público y de elevada trascendencia para la seguridad jurídica de la colectividad, todas las medidas que el Estado adopte o pueda adoptar para garantizar y maximizar la seguridad jurídica, sin demérito de la celeridad transaccional que el mercado exige.
+III.—Que la incorporación de nuevas técnicas electrónicas, informáticas al servicio de la seguridad jurídica preventiva, ha permitido crear un nuevo instrumento jurídico como es el documento notarial electrónico, cuyo soporte físico no es el papel, sino un archivo informático, rubricado con la firma digital.
+IV.—Que la Ley de Certificados, Firmas Digitales y Documentos Electrónicos, Ley N° 8454 del 30 de agosto del 2005 y su Reglamento, Decreto Ejecutivo N° 33018-MICITdel 20 de marzo de 2006; indica que se aplicará a toda clase de transacciones y actos jurídicos, públicos o privados, con la utilización de la firma digital como mecanismo de autenticación.
+V.—Que el Código Notarial, Ley N° 7764 del 17 de abril de 1998 y sus reformas, dispone en su artículo 122 que se autoriza el uso de formularios como medio para presentar a la corriente registral, los actos y contratos otorgados por las partes ante el fedatario público para su correspondiente inscripción los cuales deben ser avalados por la Dirección Nacional de Notariado en lo relativo a su competencia.
+VI.—Que con la publicación en el Diario Oficial La Gaceta, el 30 de junio del 2016 del Reglamento operativo para la tramitación de formularios electrónicos y documentos adjuntos, emitido por la Junta Administrativa del Registro Nacional, el Consejo Notarial considera su responsabilidad asegurar que la contratación electrónica registrable cuando se elabore electrónicamente, iguale o supere el grado de seguridad que tradicionalmente ha garantizado la formalización en papel.
+Tomó el Acuerdo Nº 2016-028-015 mediante el cual dictó el siguiente: Reglamento para el uso de formularios y expedición de documentos electrónicos en sede notarial para la inscripción en el Registro Nacional.
+Artículo 1º—Objeto. El presente reglamento tiene por objeto delimitar los procedimientos y condiciones que debe seguir el notario público en la tramitación de formularios y en la emisión de documentos electrónicos adjuntos a ellos, para su inscripción en el Registro Nacional.

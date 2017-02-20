@@ -1,0 +1,2 @@
+Artículo 5º—Del contenido del documento notarial electrónico. Las actuaciones notariales que reproducen el contenido protocolar para efectos registrales tales como testimonios de escritura, así como las razones notariales requeridas y que se plasmen en soporte electrónico deben respetar la estructura establecida en el artículo 114 y siguientes del Código Notarial.
+El notario será responsable y dirá expresamente, que los datos extractados de la matriz e incorporados en el formulario, son fieles al original y al documento electrónico adjunto.
