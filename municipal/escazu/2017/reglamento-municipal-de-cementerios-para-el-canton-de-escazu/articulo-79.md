@@ -1,0 +1,1 @@
+Artículo 79. No se permitirá la exhumación cuando el derecho funerario se encuentre en estado ruinoso mantenga deudas pendientes respecto al pago de los derechos de cementerios, salvo orden judicial bien del Ministerio de Salud que ordene lo contrario.

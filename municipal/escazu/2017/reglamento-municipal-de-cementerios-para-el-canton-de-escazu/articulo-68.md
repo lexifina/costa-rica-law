@@ -1,0 +1,1 @@
+Artículo 68. Los cadáveres o restos deberán conducirse al cementerio en un féretro, los cuales deben estar provistos de una ventana que permita comprobar su Identidad, siendo inhumados inmediatamente en presencia de las personas que integran el séquito mortuorio.

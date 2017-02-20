@@ -1,0 +1,1 @@
+Artículo 40. A criterio de la junta, la votación para la aprobación de acuerdos se realizará mediante votación nominal en la que integrante expresa en forma oral su voto; o mediante votación secreta cuando se haga mediante el uso de papeletas o por cualquier otro medio idóneo que garantice el carácter de votación secreta.

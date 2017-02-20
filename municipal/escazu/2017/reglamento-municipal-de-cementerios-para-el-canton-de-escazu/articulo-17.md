@@ -1,0 +1,1 @@
+Artículo 17. Una bóveda o espacio será declarada en ruina y/o abandono por la Administración de Cementerios, cuando hayan transcurrido un año calendario sin renovar la pintura, efectuar limpieza, mejoras o las reparaciones necesarias que garanticen su condición salubre y buena apariencia.

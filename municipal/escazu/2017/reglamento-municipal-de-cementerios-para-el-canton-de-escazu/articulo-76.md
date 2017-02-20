@@ -1,0 +1,1 @@
+Artículo 76. Los restos exhumados serán colocados en una bolsa plástica o de tela debidamente Identificada y traslado al osario general, osario particular u otra bóveda. Los restos de ropa, calzado, prótesis, féretros y otros desechos serán Incinerados o enterrados en una fosa común directamente en el suelo.

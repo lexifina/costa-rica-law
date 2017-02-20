@@ -1,0 +1,1 @@
+Artículo 12. El titular del derecho funerario a largo plazo podrá designar como máximo dos beneficiarios. Los beneficiarios quedarán debidamente registrados en el título funerario y registros de la Administración del cementerio. Sin embargo, el titular podrá cambiar la designación de los beneficiarios o nombrar otros nuevos a través de los formularios dispuestos para tal efecto.

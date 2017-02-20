@@ -1,0 +1,1 @@
+Artículo 26. Dentro de los deberes de las Juntas Administradoras está el reunirse obligatoriamente una vez al mes en forma ordinaria y extraordinariamente cuando la convoque su presidente. Habrá quórum cuando a la sesión asistan, por lo menos tres de sus miembros integrantes.

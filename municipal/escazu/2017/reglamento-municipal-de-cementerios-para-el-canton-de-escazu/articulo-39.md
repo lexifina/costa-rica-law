@@ -1,0 +1,1 @@
+Artículo 39. Los acuerdos quedan aprobados con votación de mayoría simple de las personas integrantes de la Junta, igual cantidad de votos se requiere para revisar y modificar un acuerdo que haya quedado en firme.

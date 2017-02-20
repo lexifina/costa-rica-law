@@ -1,0 +1,1 @@
+Artículo 37. Corresponderá a la Junta Administradora nombrar al personal necesario para la buena marcha de la administración a su cargo. La relación de empleo patrono se regirá por las disposiciones comunes que rigen la contratación de personal en la empresa privada y por el Reglamento General de Cementerios Decreto No 32833.

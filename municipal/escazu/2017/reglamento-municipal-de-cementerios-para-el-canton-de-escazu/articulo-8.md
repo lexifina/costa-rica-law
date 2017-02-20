@@ -1,0 +1,1 @@
+Artículo 8. La adquisición de un derecho funerario se realizará únicamente cuando existe una necesidad inmediata de personas residentes en el cantón para dar sepultura a un familiar recién fallecido o bien disponer de sus restos óseos en un osario luego de efectuada la exhumación.

@@ -1,0 +1,1 @@
+Artículo 3. Las normas establecidas en el presente Reglamento son de acatamiento obligatorio para usuarios, titulares de derechos funerarios, las personas funcionarias, servidores municipales y personas pertenecientes a la Junta Administradora de cada uno de los Cementerios Municipales.

@@ -1,0 +1,1 @@
+Artículo 83. Contra todo acto administrativo resolutivo emitido por la Administración del Cementerio, se podrá interponer los recursos previstos en el Código Municipal dentro de un plazo de 5 días hábiles siguientes a partir de su dictado.

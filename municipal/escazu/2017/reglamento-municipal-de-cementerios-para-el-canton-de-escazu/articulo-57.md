@@ -1,0 +1,1 @@
+Artículo 57. Todas las bóvedas u osarios a construir luego de la promulgación de este Reglamento, deberán mantener las mismas dimensiones y respetar los diseños establecidos, así como seguir la normativa en cuanto a la calidad de materiales y buenas prácticas constructivas.

@@ -1,0 +1,1 @@
+Artículo 46. Los cementerios estarán abiertos al público de forma ininterrumpida de lunes a domingo dentro una jornada ordinaria de 8 horas cuyo horario será establecido y divulgado por la administración del cementerio.

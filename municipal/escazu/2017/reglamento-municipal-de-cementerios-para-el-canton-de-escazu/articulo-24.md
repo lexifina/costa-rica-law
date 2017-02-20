@@ -1,0 +1,1 @@
+Artículo 24. La Junta Administradora que cesa funciones hará entrega a los miembros de la Junta Administradora entrante; un informe contable. Asimismo, hará entrega de un Informe acerca del estado de las Instalaciones. Para este propósito con la antelación debida, podrán solicitar la colaboración de la Municipalidad.

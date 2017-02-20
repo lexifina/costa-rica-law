@@ -1,0 +1,1 @@
+Artículo 56. La construcción de las bóvedas u osarios deben respetar las regulaciones de construcción dispuestas en las Leyes Nacionales y Código Sísmico de Costa Rica. A cuyo efecto la Administración de Cementerios suministrará un diagrama técnico que contendrá los detalles constructivos a seguir así como que ilustrará sobre el tipo de materiales y tonalidades de colores.

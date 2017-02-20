@@ -1,0 +1,1 @@
+Artículo 45. En el Registro de Titulares de Derechos Funerarios, deberá constar la fecha de adquisición, tipo de derecho (simple o doble), los beneficiarios, los traspasos, y el lugar señalado para notificaciones.

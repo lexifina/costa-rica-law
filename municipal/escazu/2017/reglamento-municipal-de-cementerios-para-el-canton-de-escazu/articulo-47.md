@@ -1,0 +1,1 @@
+Artículo 47. La Administración del Cementerio deberá contar con los registros necesarios que puedan ser utilizados para notificar y localizar a las personas propietarias de títulos funerarios, así como a los beneficiarios.

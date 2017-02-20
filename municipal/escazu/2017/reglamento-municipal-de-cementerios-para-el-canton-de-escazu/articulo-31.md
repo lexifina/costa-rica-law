@@ -1,0 +1,1 @@
+Artículo 31. El Concejo Municipal es el Órgano Superior Jerárquico de las Juntas Administradoras de los Cementerios Públicos del Cantón de Escazú, correspondiéndole la fiscalización superior de las mismas, quien podrá delegar la fiscalización en algunas personas que integren el Concejo Municipal que éste designe para ese efecto,

@@ -1,0 +1,2 @@
+Artículo 14. En los traspasos de derechos funerarios o nombramiento de beneficiarios serán efectuados únicamente a familiares hasta tercer grado de consanguineidad o hasta primer grado por afinidad, lo cual se comprobará aportando constancia emitida por el Registro Civil que determine el grado de consanguineidad o afinidad de la persona.
+Para efectos del traspaso los Interesados deberán cancelar ante la Administración del Cementerio el veinte por ciento del valor del avaluó de la bóveda y completar el formulario dispuesto para tales efectos.

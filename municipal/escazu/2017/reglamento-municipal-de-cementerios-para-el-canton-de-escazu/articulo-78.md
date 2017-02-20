@@ -1,0 +1,1 @@
+Artículo 78. Bajo ninguna circunstancia, se practicará la exhumación de cadáveres de personas fallecidas a causa de enfermedades Infectocontagiosas, salvo por orden del Ministerio de Salud o autoridad competente.

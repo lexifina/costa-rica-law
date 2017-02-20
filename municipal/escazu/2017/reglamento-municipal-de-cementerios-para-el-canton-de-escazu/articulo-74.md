@@ -1,0 +1,1 @@
+Artículo 74. No podrá exhumarse ningún cadáver sin previa autorización de la administración del cementerio y hasta tanto no haya trascurrido un plazo mínimo de cinco años o que las partes blandas se hayan desecho completamente desde su defunción, salvo que la exhumación sea por orden judicial, del Ministerio de Salud Pública u otra autoridad competente.

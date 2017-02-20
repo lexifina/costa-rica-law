@@ -1,0 +1,2 @@
+Artículo S. En aquellos casos en que el Concejo Municipal no nombre a los integrantes de la Junta Administradora, le corresponderá al Alcalde Municipal dentro de la estructura organizacional de la Municipalidad delegar en un Proceso Administrativo la administración del cementerio, mientras se realiza el respectivo nombramiento por parte del Concejo Municipal.
+Las convocatorias serán realizadas por el Concejo Municipal cada dos años cuando no exista Junta Administradora.

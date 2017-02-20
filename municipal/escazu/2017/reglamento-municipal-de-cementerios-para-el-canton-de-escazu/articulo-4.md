@@ -1,0 +1,2 @@
+Artículo 4. La administración de cada uno de los Cementerios Municipales del cantón de Escazú, estará a cargo de una Junta Administradora. Los integrantes de cada Junta serán nombrados por el Concejo Municipal de entre las ternas que al efecto presenten las fuerzas vivas del distrito en que se encuentre asentado cada cementerio, cuyos integrantes deberán tener no menos de tres años de residencia en el distrito respectivo y durarán dos años en sus cargos, con la posibilidad de ser reelectos sucesivamente.
+En ejercicio de sus cargos lo realizarán ad-honorem.

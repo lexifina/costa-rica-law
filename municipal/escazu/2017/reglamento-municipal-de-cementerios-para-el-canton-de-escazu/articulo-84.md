@@ -1,0 +1,1 @@
+Artículo 84. Previo apercibimiento a la persona titular del derecho funerario, el Incumplimiento de cualquiera de las normas establecidas en el presente reglamento, faculta a la administración de cementerios a no permitir el uso del derecho funerario, hasta tanto el titular corrija cualquier falta.

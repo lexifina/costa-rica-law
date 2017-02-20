@@ -1,0 +1,1 @@
+Artículo 44. En el registro de traslados y restos en osarios, deberá dejarse constancia de la fecha de exhumación, nombre del difunto, lugar y nomenclatura de la sepultura o nicho y lugar de traslado que aseguren la identificación del difunto.

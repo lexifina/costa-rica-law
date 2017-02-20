@@ -1,0 +1,1 @@
+Artículo 43. En el registro diario de inhumaciones y exhumaciones, deberá dejarse constancia de la fecha de las inhumaciones y la exhumación, nombre del difunto, lugar y nomenclatura de la sepultura o nicho y demás datos que aseguren la identificación de la persona difunta, nicho y la respectiva bóveda. En el caso de las exhumaciones el lugar de destino de los restos.
